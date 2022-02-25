@@ -2,35 +2,18 @@
 ---
 
 
-## 有声|日媒指普京本没有资格出席中共冬奥会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2061722/)
+## 台湾宣布参与对俄罗斯经济制裁
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2061854/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月18日，据日本媒体指出，按照联合国规定，各国应该在奥运会前后暂停纷争，但作为北京冬奥会东道主的习近平却没有要求普京停止对乌克兰的威胁。另一方面，由于兴奋剂问题，俄罗斯被禁止在冬奥会上以国家队名义参赛，其国家领导人也不应出席中共冬奥会。因此，从各个层面上看，普京都没有资格参加此次中共冬奥会的开幕式。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-53.jpg)
-然而，在本届冬奥会上，不仅中共违背常理地将普京作为最高国宾，连国际奥林匹克委员会主席巴赫也对此默不作声。
+撰稿：追着曙光跑
 
+据台湾中央通讯社2月25日的报道，台湾总统府发言人张惇涵今日（25日）宣布，关于俄罗斯入侵乌克兰的军事行动，将参与国际社会对俄罗斯的经济制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-25-at-12.17.45.jpeg)图片来源：原新闻
+台湾政府严正谴责俄罗斯对乌克兰主权的侵害，以及对于区域及全球和平稳定的破坏。
 
+张惇涵表示，台湾仍呼吁各方恢复和平对话，理性解决争端。而台湾作为国际社会的一员，对于有助于和平解决争议的努力，台湾都愿意参与。
 
-文字版原文：[日媒指普京本没有资格出席中共冬奥会](https://gnews.org/zh-hans/2059044/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+信息来源：[總統府：譴責俄羅斯軍事行動 台灣參與對俄經濟制裁](https://www.cna.com.tw/news/aipl/202202250047.aspx)
 
  
 

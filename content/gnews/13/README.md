@@ -2,37 +2,32 @@
 ---
 
 
-## 特鲁多撤销“紧急法” 抗议相关账户逐步解冻
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2061753/)
+## 红色警报！墙内战友们，屯粮，保命！远离大城市！远离军事基地！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2061872/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-作者：纽约香草山 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2300.png)
-周三，加拿大总理贾斯汀·特鲁多在新闻发布会上，宣布撤销“紧急状态法”。与此同时，与卡车司机抗议活动相关的、被冻结的200多个银行账户，正在逐步解封，总额约800万美元。
+撰稿：东京樱花团/深藏不露
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2305.png)
+2022年2月24日郭文贵先生紧急直播爆料:台湾危矣，国内同胞怎么应对？走一步看一步，就是鸵鸟思维，一定完蛋。
 
-针对加拿大各地的抗议示威活动，2月14日，特鲁多政府启动“紧急状态法”，而参加抗议活动公民的银行账户因此被冻结。该法案实施以来，受到来自国内外的诸多指责。
+1、大连，福建漳州等地，一旦开战会被联军炸平，呆在军事基地周围的， 赶快远离！
 
-据悉，加拿大公民自由协会指出，加拿大公民和平抗议，而政府援引”紧急状态法”涉嫌违宪，并表示将起诉特鲁多政府。
+2、 1号文件就是为了收拾老百姓的，粮食绝对要做好准备，灾难即将来临，特别是北上广深！
 
-参考链接：[Trudeau to revoke Emergencies Act after convoy blockades end](https://globalnews.ca/news/8639534/justin-trudeau-emergencies-act-announcement/?utm_source=%40globalnews&amp;utm_medium=Twitter)
+3、做好未来3-5年吃垃圾的准备，国际正在起草对中共的 惩罚措施，远远大于对俄罗斯的制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+中共所有军事基地基本都会铲平。香港、深圳、广东、东莞、上海、北京、沈阳、大连、哈尔滨这些所谓的经济中心都会被铲平。四川的几个导弹基地、卫星发射中心、海南的航母基地也会炸平。
 
-总编/编辑：雪梨
-校对/发稿：小野貓（文凱琳）
+重庆、青岛、江西都会很惨，因为重庆、青岛、江西都有很多军事基地。七哥很多家人在青岛。共产党和平时期绑架农民、战争时期绑架城市、海外绑架华人，排华。战友们多保重台湾战友应立刻撤离，猪头战略家习近平随时可能对台湾伸出它邪恶的脏手！
 
-**更多资讯，更多关注**
+红色警报！红色警报！墙内战友们，屯粮，保命！一定要远离大城市！一定要远离军事基地！只有活着才能够有美好的未来！
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+信息来源：
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[2022-02-24文贵紧急直播：台湾危机，请台湾同胞们尽快撤离，能够提供帮助的战友请与联盟委员会联系。为台湾同胞，乌克兰人民祈福](https://gtv.org/video/id=6217c08608ba8a07b1a2c0fb)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

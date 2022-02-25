@@ -2,14 +2,28 @@
 ---
 
 
-## 秘翻在线：联合国难民署预测将有10万人因乌克兰入侵沦为难民
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2061732/)
+## 俄罗斯逾千名反战抗议人士被俄警方逮捕
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2061865/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/画像1-33.png)（图片源自本文链接）
-2月25日来自每日新闻记者川上珠实的消息：路透社报道，联合国难民事务高级专员办事处(UNHCR)24日估计，俄罗斯入侵后，有10万名流离失所者被迫逃离他们在乌克兰的家园。据信还有数千名流离失所者逃往以摩尔多瓦和罗马尼亚为主的邻国沦为难民。
+**撰稿：日本东京方舟农场 Kevin wang**
 
-信息源：[ウクライナ侵攻で「避難民10万人」 UNHCRが推計 (msn.com)](https://www.msn.com/ja-jp/news/world/%E3%82%A6%E3%82%AF%E3%83%A9%E3%82%A4%E3%83%8A%E4%BE%B5%E6%94%BB%E3%81%A7-%E9%81%BF%E9%9B%A3%E6%B0%9110%E4%B8%87%E4%BA%BA-unhcr%E3%81%8C%E6%8E%A8%E8%A8%88/ar-AAUgZ2r?ocid=msedgntp)
+2月24日，独立的俄罗斯人权组织OVD-Info发布报告称，俄罗斯警方当日在50座俄罗斯城市拘捕了1300多名反战抗议者。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/22-11.png)（图片来自网络）
+美国之音报道，在普京宣布了入侵乌克兰的军事行动后，俄罗斯各地发生了反战集会。俄罗斯人权组织OVD-Info表示，俄罗斯警方当日在50座俄罗斯城市拘捕了1300多名反战抗议者，仅莫斯科就逮捕了660人之多，圣彼得堡、新西伯利亚、叶卡捷琳堡和其他城市也有人被捕。
+
+另据法广报道，许多俄罗斯人得知普京已下令对一个经常被称为“兄弟国家”的国家进行全面入侵，感到非常震惊。 在抗议活动中，许多人说他们对俄罗斯军事行动的消息感到沮丧和崩溃。
+
+此外，人权组织OVD Info24日晚表示，有关俄罗斯国内因参与反战集会，实时更新的被拘留者名单可以[通过OVD Info的网站查询。](https://ovd.news/news/2022/02/24/spiski-zaderzhannyh-v-svyazi-s-akciey-v-protiv-voyny-s-ukrainoy-24-fevralya-2022)
+
+据悉，在俄罗斯入侵乌克兰后，西方与美国并未拿出有力的制裁措施，美总统拜登虽表示将采取行动阻碍俄国以美元等全球重要货币交易的能力，并制裁银行和国有企业。但并不包括禁止俄罗斯使用环球银行金融电信协会（SWIFT）支付系统。
+
+参考链接：
+1.[https://www.voachinese.com/a/russian-police-arrest-more-than-1-000-anti-war-protestors-in-russia-20220224/6457876.html](https://www.voachinese.com/a/russian-police-arrest-more-than-1-000-anti-war-protestors-in-russia-20220224/6457876.html)
+2.[https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220224-%E7%8B%AC%E7%AB%8B%E7%9B%91%E7%9D%A3%E5%9B%A2%E4%BD%93-%E4%BF%84%E7%BD%97%E6%96%AF52%E4%B8%AA%E5%9F%8E%E5%B8%82%E5%B7%B2%E6%9C%89%E9%80%BE1500%E4%BA%BA%E5%9B%A0%E5%8F%82%E4%B8%8E%E5%8F%8D%E6%88%98%E9%9B%86%E4%BC%9A%E8%A2%AB%E6%8B%98%E7%95%99](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220224-%E7%8B%AC%E7%AB%8B%E7%9B%91%E7%9D%A3%E5%9B%A2%E4%BD%93-%E4%BF%84%E7%BD%97%E6%96%AF52%E4%B8%AA%E5%9F%8E%E5%B8%82%E5%B7%B2%E6%9C%89%E9%80%BE1500%E4%BA%BA%E5%9B%A0%E5%8F%82%E4%B8%8E%E5%8F%8D%E6%88%98%E9%9B%86%E4%BC%9A%E8%A2%AB%E6%8B%98%E7%95%99)
+
+素材采编：Kevin wang
+编辑： 青城道姑
+发布：Linda
 
  
 
