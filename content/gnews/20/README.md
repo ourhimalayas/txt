@@ -2,51 +2,27 @@
 ---
 
 
-## “多么罪恶”：约克地区警察工会在纽马克特拆除“棚屋”为开发让路
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2066119/)
+## 澳洲护士在社区演讲中问到人们是否认识因疫苗而受到伤害的人时，看看有多少人举起了手
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2066164/)
 
-作者：Newmarket Era
-翻译：Himaboy
-![](https://assets.gnews.org/wp-content/uploads/2022/02/22_1U3003Y.png)
-日前位于Newmarket、有着20年历史的原约克区警察工会（York Region Police Association）总部大楼被拆除，开发商买下这块土地后，计划在这里盖起60栋独立屋和142栋镇屋。
+#### 加拿大温哥华扬帆农场 视频组
 
-Marianneville Stonehaven Limited公司此前从约克区警队买下这片40英亩的土地，并向新市政府递交过两次开发申请。
+素材：坐看云起时
+听写：Ucool
+翻译：Kent
+字幕：路仁
 
-在递交了第一次申请后，该计划受到许多附近居民的反对。后来开发商修改了方案，再次递交申请。该公司副主席Joanne Barnett表示，开发商已经响应了居民的意见并做了相应修改，包括让民众更能够使用这片物业土地的自然区域。
+2022/2/23 EST
 
-“他们仍然可以使用公共区，这些地方不会作新的开发。”我们一直在努力确保尽可能少地给现在的社区造成影响。”
+我今天再次呼吁理事会，请对我们的志愿者心怀感恩，他们牺牲了自己的时间，不为金钱利益，无私地维护我们社区的安全，请允许他们继续志愿工作，照顾我们的社区，而不是去胁迫他们接种有可能造成伤害的疫苗，我不想带来反疫苗情绪，我只想说，像任何药物一样，疫苗可能会带来不良反应，因此人们应该有选择权。
 
-这个地点位于Newmarket的Bayview与Stonehaven附近。原大楼周围有一片未开发的土地。周边有居民区和餐饮、超市等商店。当时当地居民就表达出多方面的顾虑，包括开发密度、环境影响和绿化用地损失等。
+作为一名护士我目睹了疫苗带来的药物反应，副作用确实发生了，且他们绝不会把所有的疫苗都从市场上撤下，我们中的很多人都有一个共识，今晚在座的大多数人，都认识被疫苗或疫苗副作用所伤的人，即便不是在座的各位，也会是我们的亲朋或好友，我确信我们都认识某人，或我们社区中的某个亲近的人，所以如果我所说的是事实，请各位举起你的手。
 
-2月14日，这栋有着20年历史的警察工会总部大楼拆除工程正式动工。
+那么，疫苗伤害正在发生，人们正在受到伤害，这可能是一个小的比例，我不知道具体是多少，但它的确在发生，有风险的地方就应该有选择，伤害可能是轻微的，但它也可能会使人衰弱，它可能令父母无法带回晚餐。发烧、脑损伤、胃腹痛、或严重到癫痫发作、神经系统损伤、心肌炎、心包炎、血栓，以及悲惨的死亡。这些都毫无必要，也是可以避免的。
 
-一些居民在社交媒体上对此表示失望。
+很多人已经死于新冠，还有人死于新冠疫苗，我对所有这些人都感到心痛。我恳求各位议员，请在人们的个人背景下，在他们的病史中，在他们个人风险和年龄范围内，更多地考虑什么是对个人最好的，并有同情心和风度，不要继续强迫人们接受某种药物，根据某些人的情况，疫苗可能构成的伤害比疾病本身风险更大。
 
-“多罪恶啊，”有人说道。
-
-另一位居民问：“为什么这栋楼不能
-
-改作社区用途呢？”
-
-还有人说，开发商太“贪钱了。”
-
-这栋旧大楼被拆除前，约克区警队总部已经搬到Aurora市内63 Eric T. Smith Way的一栋双层新办公大楼。这个办公地点更靠近位于Aorura市Wellington和Leslie streets附近的Don Hillock Drive上的约克区警察总部。
-
-来源：https://www.yorkregion.com/news-story/10574609–what-a-sin-york-regional-police-union-shed-demolished-in-newmarket-to-make-way-for-houses/
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑/发文：Kent
 
  
 

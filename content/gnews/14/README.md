@@ -2,46 +2,29 @@
 ---
 
 
-## 疫苗次生灾害加剧，美小型飞机坠落事故频发
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2066171/)
+## Stew Peters Show: 辉瑞公司的肮脏秘密-英国卫生当局隐藏儿童死亡率
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2066257/)
 
-作者：香草山佛教部 – 文一
+## 加拿大温哥华扬帆农场 视频组
 
+素材：文倩
+翻译：Sarah Zhou
+字幕：路仁
+校对：重生之鹰
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
-近日据外媒报道，某外媒网站将近期在美发生的一系列小型飞机坠毁的新闻报道或片段编辑成视频，用短短的4分钟的视频记录了数十个惨烈时刻和死亡案例。
+2022/2/21 EST
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-25-3.jpg)图片来源网络
+Stew: 辉瑞刚刚突然撤回了对5岁以下孩子的新冠疫苗注射审批申请，为什么？Jane Ruby博士说这很直白，来自英国的早期证据表明，健康机构正在隐瞒不但攀升的5-11岁儿童的死亡率，这简直是开玩笑！Ruby博士将就此进行更多的讨论，他们在隐瞒死亡，你说的是真的吗？
 
-年初据路透社报道，同样的， 对于大型商务飞机而言，2020年尽管全球航空运输量因疫情锐减了42%，但因大型商业飞机坠毁的死亡人数却增加了。 我们在震惊痛心之余，这样的结果却更引人质疑：为什么自推打疫苗以来，飞行作为安全性最高的出行方式，机毁人亡事故却屡见不鲜？答案只有一个，那就是郭文贵先生早在几个月前预警的因疫苗副作用而产生的次生灾害已逐一显现出来，在交通运输系统，由于疫苗副作用可能导致驾驶员身体出现的突发状况将成为广大民众出行安全的一大隐患。
+Ruby: 老实说这是唯一说得通的解释，当他们把年龄往下推，推到5、6、7的孩子，我常这么说，现在谈到6个月至4岁的孩子，我们在谈论的是地球上除了有先天缺陷的，最健康、强壮、灵敏的免疫系统。因此辉瑞撤回6个月至4岁孩子的疫苗审批申请的唯一解释是因为他们没有任何数据，事实上可能绝大多数被分析观察的对象都遭受了严重的伤害、副作用和或死亡。
 
+Stew: 但为什么他们在乎呢？他们有全方面的豁免保护，我们在与没人性的人打交道，你的推断是建立于他们有良知的前提条件下，但是他们没有良知，他们不在乎是否正在杀害5-11岁的孩子，不在乎是否正在杀害婴儿，那么为什么现在停下来呢？
 
+Ruby: 因为他们遇到了麻烦，这些麻烦并非他们预期的，这正是大多数人会栽倒的地方，即便这其中没有他们亲生的或其它有关联的孩子，为什么我得此结论？因为英国和欧盟，这些地区在部署相关项目方面比我们要早一些，当5-11岁紧急使用授权出台时他们也暂时领先于我们，现在好了，也就在4-5个月前，你看到的这些数据，我当时也在耐心等待，我们看一下图表，当我们将要展示很多孩子的死亡和残疾数据时，突然间辉瑞撤回了，现在看看我刚发的文件，其标题是：‘来自英国MHRA的新冠疫苗接种后的死亡和伤害’, MHRA是医疗健康产品规范管理机构，它是英国版的FDA。
 
-相关链接：
+Ruby: 它说，在第二行做了红色标记的是指孩子，你可以看到总的报告数是3千3至3千4百，这仅是总量，而你不知道其中有多少死亡、有多少残障，但是看看总残疾数和总死亡数这一竖栏，它被完全抹掉了！众目睽睽之下！这些机构有可能与辉瑞勾结了，但肯定的是他们是在整个撤回操作中相互勾结！“让我们重组，让我们收回”，当辉瑞说他们承认二至四岁孩子的数据未达标时，他们实际上没有指标。然后他们说6个月至2岁的孩子有些许好的迹象，但我们要把这些数据倒掉，干脆就给孩子们打三针而不是两针。回到我们的数据, 我很清楚婴幼儿的数据无法获得的原因，这些数据正在被全面隐蔵了，今天的Jane Ruby博士节目与Enigma 团队的釆访中将会揭示一些三方电子邮件， 分别是 FDA, EMA (欧洲版的FDA) 和MHRA，这些机构勾结在一起来追赶一个时间点，这个时间点与疫苗的安全和功效无关，请保持关注。
 
-[https://www.brighteon.com/7d8609c6-2271-4abf-88a4-c801befdb4e1](https://www.brighteon.com/7d8609c6-2271-4abf-88a4-c801befdb4e1)
-
-[https://www.reuters.com/business/aerospace-defense/aviation-deaths-rise-worldwide-2020-even-fatal-incidents-flights-fall-2021-01-01/](https://www.reuters.com/business/aerospace-defense/aviation-deaths-rise-worldwide-2020-even-fatal-incidents-flights-fall-2021-01-01/)
-
-![This image has an empty alt attribute; its file name is Feb-55.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
-
-编辑/校对/发稿：Petite abeille
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is good-66.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-66.png)
-
-
-
+编辑/发文：Kent
 
  
 

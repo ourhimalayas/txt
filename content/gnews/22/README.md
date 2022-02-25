@@ -2,42 +2,20 @@
 ---
 
 
-## 中共锁链国八孩女事件结果再次强奸民意
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2066055/)
+## 北京冬奥会观众有史以来最少
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2066132/)
 
-作者：香草山健身部 – 文鹰
+加拿大温哥华扬帆农场    平民正道
 
+美国[布莱巴特新闻] 2月23日报道称，本次在中共国举行的种族灭绝冬奥会的观众数量是有史以来最少的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
-当地时间2月23日，中共媒体发表‘丰县锁链女事件调查’一文，对江苏省委省政府调查组，处理该事件通报结论表示认可。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-13.jpg)图片来源网络
-自该事件被网友1月17日，发布自媒体引起民众关注以来。中共为保北京冬奥会，放任地方政府造假不作为，导致舆论沸腾民意愤慨，要求真相声音高涨。 中共政府不是去解决问题，而是持续掩盖事实，打压民众了解真相压制批评声音。甚至用铁皮封锁整个事件发生地，让警察抓捕爆料人并威胁采访声援人士。 有分析人士指出：该事件是中共篡政以来最大的舆情危机，捅破了中共盛世的一个大脓包。中共党媒的宣传，是一切为了邪党的利益，在继续欺骗强奸民众民意。
+据[美国广播公司]的最新数据，比较黄金时段平均收视率，2018年韩国平昌冬奥会约为2000万，而北京冬奥会仅约1000万。去年因疫情被推迟的东京奥运会，其收视率也超过1500万。
 
+报道称，中共政权的种族灭绝和反人类罪行所导致各国政府的外交抵制，中共国内“新冠病毒”的肆虐，繁琐苛刻的防疫检测措施以及人身安全和自由的无保障等因素，都是本次冬奥会观众人数历史最低的主要原因。
 
+* * *
 
-相关链接：
-
-[https://new.qq.com/omn/20220223/20220223A05NQE00.html](https://new.qq.com/omn/20220223/20220223A05NQE00.html)
-
-![This image has an empty alt attribute; its file name is Feb-55.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
-
-编辑/校对/发稿：Petite abeille
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is good-66.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-66.png)
-
-
-
+编辑： 平民正道    发布：平民正道
 
  
 

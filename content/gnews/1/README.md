@@ -2,8 +2,8 @@
 ---
 
 
-## 切尔诺贝利的真实影响
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2066361/)
+## 加拿大会是未来新的伟大国家
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2066383/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
