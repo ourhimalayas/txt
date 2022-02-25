@@ -2,16 +2,14 @@
 ---
 
 
-## 有声|英国议员呼吁对俄罗斯加大制裁，警示中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2065367/)
+## 有声|英国政府私下相信中共病毒来源武汉实验室泄漏
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2065414/)
 
 配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-当地时间2月22日，英国宣布制裁5家俄罗斯银行，以及3名与普京有密切联系的富豪，以此应对21日普京下令入侵乌克兰之举。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+报导指出，早在2020年6月已有英国知名人士根据病毒的非自然演化特征，推断病毒很可能来源于武汉实验室。而曾联名谴责中共病毒武汉实验室泄漏是“阴谋论”的27位科学家，经调查有26位存在相关利益冲突。
 
-英国首相约翰逊表示，克里姆林宫正在为全面入侵乌克兰做准备，俄罗斯正朝向孤立状态前进，全世界必须警惕普京的接下来的行动。
-
-文字版原文：[英国议员呼吁对俄罗斯加大制裁，警示中共](https://gnews.org/zh-hans/2063522/)
+文字版原文：[英国政府私下相信中共病毒来源武汉实验室泄漏](https://gnews.org/zh-hans/2063567/)
 
 音频处理/发稿：Daxia
 

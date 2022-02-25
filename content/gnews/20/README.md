@@ -2,28 +2,28 @@
 ---
 
 
-## 俄军入侵乌克兰引发北约紧急启动战争计划
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2065177/)
+## 有声|中共拘捕日本大使馆工作人员违反维也纳公约
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2065221/)
 
-采编： UCool优酷           翻译：文莱
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2月22日，日本外务省发布公告称，其驻中共国大使馆的工作人员，在21日遭到中共当局非法拘禁。虽然目前该名工作人员已经被释放，但是日本国政府的森健良事务次官在22日，表示这是近年没有发生过的，并指斥中共对日方工作人员进行了长时间的拘禁，这种行为已经违反了维也纳公约。他通知了驻日本的中共临时大使杨宇，表达了日本的严正抗议，并且要求中共的道歉。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220225-113634_Word.jpg)图片：sohfrance.org
+截至发稿时，中共也没有道歉甚至没有报道此事，而临时大使杨宇仅向日方表示，需要向中共请示后才能做出答复。
 
+文字版原文：[中共拘捕日本大使馆工作人员违反维也纳公约](https://gnews.org/zh-hans/2055922/)
 
-据加拿大【CTV新闻】2月24日报道，北约秘书长对俄罗斯当局发出警告，如果俄罗斯袭击任何一个成员国，北约将奋起保卫其每一寸领土。
+音频处理/发稿：Daxia
 
-据悉，北约秘书长[杰斯]日前在主持北约特使紧急会议时表示：[北约安全联盟]将继续加强在乌克兰东部地区附近的军事防御。当任何北约国家的领土完整，政治独立以及安全受到外来威胁时，北约将无条件启动战争防御计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-报道称，由于俄罗斯入侵乌克兰已成定局，北约已启动了紧急军事计划，并迅速向战争地区派遣部队。尽管此前北约一直在向乌克兰提供武器、弹药和其他军事设备，但由于乌克兰并非北约成员国，因此无法实施任何军事行动来支持该国对抗俄罗斯的入侵。
-
-目前，欧洲和美国的军事力量正处于高度戒备状态之中，以随时应对俄罗斯有可能在欧洲发动的进一步扩张战争。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-原文链接：[Ukraine crisis: NATO vows to defend its entire territory | CTV News](https://www.ctvnews.ca/world/nato-vows-to-defend-its-entire-territory-after-russia-attack-1.5793959)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,40 @@
 ---
 
 
-## 邪恶共产主义试图奴役世界
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2064679/)
+## 俄罗斯全面出兵攻乌 中共国民恐成待宰羔羊
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2064757/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2月20日的大直播中解读了当今世界的局势，即以中共为代表的国际共产主义正试图奴役全人类，这直接导致世界陷入黑暗之中。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-85.jpg)
-郭先生解释道，在一个缺乏法制的社会中，当地民众只会人人自危。尤其在中共独裁统治下，其通过一党专政来践踏中国的法律、道德和信仰，还以洗脑剥夺了人们分析和思考问题的能力。如今，中共国内巨大的贫富差距和即将崩溃的经济已经让中国人的生存变得日益艰难。
+撰稿：纽约香草山部-Noemi
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
+2月24日，乌克兰外长称，俄罗斯总统普京已“对乌克兰发动了全面入侵”。
 
-郭先生还补充道，从2019年香港民主的殒落，到眼下祸害全球的中共病毒及其疫苗，再加上目前几乎所有国家陷入的政治和经济动荡，这一切都是由邪恶中共和达沃斯党奉行的极左共产主义试图奴役整个世界而造成的。
+据悉，当地时间24日凌晨5时，乌克兰的军事设施遭到俄导弹袭击，俄军迅速于黑海和亚速海登陆，不久突破哈尔科夫州界，乌军指挥所遭到火箭弹袭击。之后，乌克兰管理部门宣布关闭全国领空，乌克兰基辅机场组织疏散。俄乌局势持续发酵，引发全球市场巨大的震荡，全球股市遭到重挫，黄金、原油暴涨。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2364.png)图片来自：https://static.timesofisrael.com/
+此前，郭先生在大直播中就分析道，俄乌战争一旦全面开展，全球大宗商品价格将会暴增，中共国经济遭受重挫。而中共一旦顺势攻打台湾，还将遭到来自西方世界的全面制裁。而最终受害的还是无辜的中国人民。
 
-参考链接：[人类面临的一切灾难都是共产党试图要奴役这个世界造成的](https://gnews.org/zh-hans/2050631/)
+新闻来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+[【2.24日乌克兰直击】切尔诺贝利核电站被俄军控制，普京称“莫斯科别无选择”，拜登宣布美俄关系几近决裂](https://wallstreetcn.com/articles/3652716)
 
-总编: Irene木木
-编辑: 宁文静
-校正/发稿：Fei797
+[普京决定“出兵”！全球股市重挫 黄金暴涨 布油突破100美元大关](https://wallstreetcn.com/articles/3652710)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-266.png)
+
+编辑：飞虹
+
+总编：雪梨
+
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

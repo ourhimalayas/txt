@@ -2,60 +2,32 @@
 ---
 
 
-## 俄罗斯-乌克兰危机：血腥照片显示入侵后平民的苦难
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2065223/)
+## 这个世界从此再没有大佬（二）
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/2065308/)
 
-**评论：***当地时间2月24日晚，乌克兰卫生部公布的信息表示，在24日的冲突中已有57名乌克兰人死亡，169人受伤。*
+文：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-26-00.29.29.png)
+我们终将走向一个平民主义正道主义的时代。
 
-据《福克斯新闻》作者：[Jessica Chasmar](https://www.foxnews.com/person/c/jessica-chasmar)，2022年2月24日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2365-e1645806919376.png)图片来源：BBC
-据称至少有10名平民在俄罗斯入侵乌克兰的行动中死亡。
+发动战争，给全人类带来威胁，无数条生命死在战火和屠刀之下。这样的人在本世纪三四十年代叫做希特勒，在2022年，这个人叫做普京，并且他还叫做习近平。乌克兰就是被欧美遗弃的孩子，大家各扫门前雪，关起门来，平时对乌克兰和热情，一到关键时候就全跑了。乌克兰的另一个参照物就是台湾，是啊，你看美国喊得多凶，习近平你可不能打台湾，至于对打台湾的任何准备工作，我们不知道，我们也不愿意用最坏的心思去揣测什么后果，欧美的妥协一定要到一个激发点才能全部退却。但是，他们不是总在鼓吹，地球上都是一家人，乌克兰是我的家人，台湾更是我的家人，我怎么能忍受我的家人被共产党揍成这样？并且，乌克兰在俄罗斯要入侵之前就和欧美说得很清楚了，几乎是声泪俱下的求他们，你们不能让俄罗斯把炮弹发到我头上了快要爆炸了你们才开始小小地制裁啊，你们要在他到来之前就阻止一下啊。呵呵，乌克兰你真以为欧美是真对你好啊，他们跑得无影无踪好伐？这个世界就是一个修罗场，欧美平时看着高大上对吧，但到了关键时刻，他们可以解释，啊你看这是，牺牲了乌克兰，或者牺牲了台湾，啊，迎来地球更美好的明天。地球的明天美不美好我不知道，但我知道在那天到来之前，乌克兰人死伤无数，难道那些死去的人就不应该享受地球共同的美好明天吗？明明就是你们这些人的妥协害死了他们，凭什么享受美好的是所谓的拯救世界的欧美大国？
 
-俄罗斯军队周四对乌克兰发动了全面入侵，用空袭和炮击打击城市和基地，而平民则拼命逃离该国或在地铁站避难。
+是的，整个世界就是这么无耻，和平年代的这些人，无论是欧洲还是美国，都对乌克兰青睐有加，乌克兰就把这些所谓的青睐当真了，以为在危难的时候真得会有冥冥之中伸出来的援手，呵呵，你在想什么啊乌克兰。当初俄罗斯把那个美国副总统和法国签署的关于绝对不会东扩的条约公布到互联网上，这明摆着就是一种讽刺啊，乌克兰还在懵懵懂懂之中看着这一切，战争真正来临的时候，受灾受殃的永远都是这些可怜的国家，并且这些国家的某些权贵永远不会受到战争的灾难，都是那些普通的老百姓要深受此害。老百姓到底造了什么孽要被如此对待？
 
-由于俄罗斯继续入侵该国，据称至少有40名乌克兰军人和10名平民死亡，而且这一数字预计还会上升。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/下载-14.jpeg)
 
-警告：血腥的图片图像，可能引起不适。
+自从七哥从2017年开始爆料，我们看到这个世界，共产党这样的盗国贼和恶棍们，还有那些背后的邪恶势力，他们让这个世界走向了暴力疯狂和没有底线。但是地球原本的样子还是如此美妙，所以我们大可不必担心，地球从来不会因为这些改变而改变，但是，共产党和朝鲜，以及一些极端的共产主义恐怖分子，他们在研究核武器，并且，像叶利钦说的那样，我们可以毁灭地球四次，克林顿很现实地说，地球毁灭一次就没有了，为什么还要毁灭四次？因为当真正发生地球毁灭的这种事情的时候，根本没有什么是可以阻挡的，美国人的理性和科学就认为，地球毁灭一次就够了，但是俄罗斯要给这个毁灭加上一个次数，吹牛咱们也要看谁吹得厉害。这些政客所谓的国际政治，对的，就是把老百性弄在案板上当肉，咚咚咚拿菜刀砍，你流泪，太小儿科了，你流血，你血流成河都不会怎么样的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/w1200.jpeg)
+共产党自从释放了生物武器冠状病毒以后，我们就处在第三次世界大战之中，今天普京对俄罗斯的侵袭，不过就是对这次战争的一次大张旗鼓地配合。是啊，都把全人类残害成这样了，阴毒那是共产党的招，既然和共产党站在一起要挑战全世界了，尤其是挑战欧美等国，毕竟普京要打乌克兰，用的借口就是欧美不尊重明斯克协议，动不动就东扩，你让一个堂堂俄罗斯情何以堪，所以，普京还是要来点火战动作。其实人类因为打疫苗死掉的，那是共产党使出来的阴招，毕竟共产党就爱搞这些流氓动作，明面上的他就不敢搞，没那个胆子，好不容易习近平上台了，公开在明目张胆之下刷流氓了，把那套地底下的脏东西都拿到台面上来了。这么成功地让那些世界上的贪婪人类买单了，尤其使用打疫苗这个事情，让人悄无声音就死掉了，要么就得上大病，死不了，天天活在痛苦和绝望中，这个比起普京所谓的大炮轰炸来说，阴毒得很，效果也很强大，目前疫苗灾难还远远没有到来，世界上那些随地倒下的人已经随处可见了，如果真到了五月份，人类世界到处尸横遍野，那也许都是再正常不过的事情了。
 
-下面是对乌克兰人民所遭受的死亡和破坏的一瞥。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2366-e1645807086743.png)2022年2月24日，乌克兰哈尔科夫州Chuhuiv市的一座公寓楼被空袭破坏，一名受伤的妇女。
-图片来源：Wolfgang Schwan/Anadolu Agency 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2367-e1645807133411.png)2022年2月24日，乌克兰东部城镇丘吉夫被炸后，一名受伤的妇女站在医院外。
-图片来源：Aris Messinis/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2368.png)2022年2月24日，乌克兰哈尔科夫州Chuhuiv的一座公寓楼遭到空袭后，乌克兰安全部队陪同一名受伤的男子。
-图片来源：Wolfgang Schwan/Anadolu Agency 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2369.png)2022年2月24日星期四，在乌克兰马里乌波尔，一名妇女走过俄罗斯炮击后的废墟。
-图片来源：AP Photo/Evgeniy Maloletka![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2370.png)2022年2月24日，在乌克兰基辅，一位当地居民在一个基督教东正教教堂里祈祷。
-图片来源：Pierre Crom/Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2371.png)2022年2月24日，俄罗斯武装部队从多个方向入侵乌克兰，在乌克兰东部城镇楚戈夫发生爆炸后，急救单位工作人员对一名受伤男子进行了治疗。
-图片来源：Aris Messinis/AFP via Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2372.png)2022年2月24日星期四，在乌克兰基辅，警察在一次明显的俄罗斯袭击后检查该地区。
-图片来源：AP Photo/Emilio Morenatti![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2373.png)2022年2月23日，平民从亲俄分离主义分子控制下的顿涅茨克地区撤离。图片来源：Stringer/Anadolu Agency 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2374.png)2022年2月24日上午，一名宗教人士在基辅独立广场上手持十字架祈祷。图片来源：Daniel Leal/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2375.png)2022年2月24日，Lia（左）和Jasmine在基辅市中心的一个车站与他们的父母一起避难时使用电话。
-图片来源：Daniel Leal/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2376.png)2022年2月24日星期四，在乌克兰马里乌波尔市外的一个乌克兰军事设施中，可以看到被损坏的雷达、一辆车和设备。
-图片来源：AP Photo/Sergei Grits![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2377.png)2022年2月24日，乌克兰东部城镇丘吉夫发生爆炸后，一名男子在一栋被摧毁的建筑外对一具亲属的尸体悲痛不已。
-图片来源：Aris Messinis/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2378.png)2022年2月24日，乌克兰军人准备在乌克兰卢甘斯克地区击退一次攻击。图片来源：Anatolii Stepanov/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2379.png)2022年2月24日星期四，乌克兰马里乌波尔发生明显的俄罗斯袭击事件后，乌克兰军事设施在一个防空基地烧毁。
-图片来源：AP Photo/Evgeniy Maloletka![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2380.png)2022年2月24日星期四，在乌克兰基辅市外的俄罗斯炮击事件后，火焰和烟雾从一栋民房的残骸中升起。
-图片来源：AP Photo/Efrem Lukatsky![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2381.png)2022年2月24日星期四，据称是俄罗斯的军用直升机飞越乌克兰基辅郊区。
-图片来源：Ukrainian Police Department Press Service 通过 AP![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2382.png)2022年2月24日星期四，乌克兰哈尔科夫发生明显的俄罗斯袭击事件后，人们站在街上的军事装备碎片旁。
-图片来源：AP Andrew Marienko![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2383.png)2022年2月24日，妇女在逃离轰炸后哭泣着进入波兰的梅迪卡。
-图片来源：Dominika Zarzycka/NurPhoto 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2384.png)2022年2月24日星期四，在乌克兰基辅，人们逃离时看到交通堵塞。
-图片来源：AP![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2385.png)2022年2月24日星期四，在乌克兰马里乌波尔，人们排队从一台自动取款机上取钱。
-图片来源：AP Photo/Sergei Grits![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2386.png)在乌克兰首都基辅的一个当地加油站，汽车排队等候。
-图片来源：Yevhen Kotenko/ Ukrinform/Future Publishing 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2387.png)2022年2月24日，在乌克兰克拉马托尔斯克，俄罗斯的军事行动开始后，看到人们带着行李箱离开。
-图片来源：Aytac Unal/Anadolu Agency 通过 Getty Images
-原文连接：[https://www.foxnews.com/world/russia-ukraine-crisis-graphic-photos-bloodied-civilians-invasion](https://www.foxnews.com/world/russia-ukraine-crisis-graphic-photos-bloodied-civilians-invasion)
+这个世界经常就是因为有变化，所以一切事情都几乎没有绝对的好和坏，希特勒屠杀犹太人，从此以后犹太人空前团结，走到天涯海角海枯石烂也要把那些个曾经杀害犹太人的纳粹绳之以法，你杀了人你跑不掉的。但是600万死去的犹太人付出的代价，是不是太大了？人类曾几何时真正思考过他人即是地狱？今天对他人的善良可以为自己带来善良，对他人的地狱那自己也会是别人的地狱。你别说乱扔那些炮弹轰炸机炸死人，炸坏建筑物，炸到那些花花草草都是不对的呀。
 
-翻译：洛杉矶盘古农场 – TrueSky
+* * *
 
-校对：洛杉矶盘古农场 – Mike Li
+作者：骄子
+发布：骄子
 
-评论：洛杉矶盘古农场 – Mike Li
-
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场–子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

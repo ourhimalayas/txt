@@ -2,22 +2,46 @@
 ---
 
 
-## 樱花FM|捷报：伊维菌素终于被认可
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2064659/)
+## 美国最近几周CDC 数据表明：接种疫苗的人更有可能感染 COVID-19和去医院
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2064680/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/aO5p-p1CbAHaoe4NSfeh4dAYQWz9TSA6iDg1lEuu-iZm1P4kapy8GTuHB2irLMGJwA5CuzjsKvTNHK0NCZc5XVuHBJ0PBahMl0apJrlb3uRAEYxG8ur5MoGeeLVhMItwrbqnwNvk)
-东京 1月31日（路透社）报道：兴和制药公司（名古屋）1月31日表示，兴和已与北里大学完成了一项关于伊维菌素治疗中共病毒（新冠状病毒）感染的临床前研究。通过与北里大学的联合非临床研究实验，证实了伊维菌素对治疗中共病毒（新冠状病毒）感染，无论是对德尔塔（Delta）毒株还是对奥米炕（Omicron）毒株都有相同的抗病毒效果。
+编译: 真北007
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-19.png)图片来源：[https://www.theepochtimes.com](https://www.theepochtimes.com)
+来自THE EPOCH TIMES  二月二十四日的新闻报道:
 
-伊维菌素是根据北里大学名誉教授大村智先生的研究开发的，他在2015年获得了诺贝尔生理学•医学奖。伊维菌素主要在非洲国家被用作治疗寄生虫感染。
+根据疾病控制和预防中心 (CDC) 最新公布的数据，在 Omicron 病毒变种出现后，接种 COVID-19 疫苗的人群中 COVID-19 病例和住院率增加。
 
-我们新中国联邦一直在呼吁，要求用伊维菌素治疗中共病毒，现在终于得到了证实。兴和制药公司用科学实验验证了这一切。期待着今后伊维菌素在治疗中共病毒方面发挥最大的作用。
+根据全国卫生部门提交给 CDC 的数据，在 2021 年 12 月 11 日至 2022 年 1 月 8 日期间，完全接种疫苗的人群中的 COVID-19 病例率上升了 1000% 以上。
 
-文字版原文：[捷报：伊维菌素终于被认可 – GNEWS](https://gnews.org/zh-hans/1937041/)
+完全接种疫苗是指接种了两剂 Moderna 或 Pfizer COVID-19 疫苗或单剂强生疫苗的人。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+那些也接受了加强剂量的人的病例率也猛增，在同一时间段内上升了约 2,400%。
+
+虽然未接种疫苗的病例也有所增加，但接种疫苗的感染人数激增导致了两者之间的差距在缩小。
+
+根据CDC管理的监控系统的数据，接种疫苗的人中与 COVID-19 相关的住院人数也有所增加，从截至 2021 年 12 月 18 日当周完全接种疫苗的每 100,000 人中增加 1.4 人，到截至 1 月 8 日当周的每 100,000 人中 35.2 人。
+
+接受加强剂的人不太可能需要住院治疗，但从 2021 年 12 月到 1 月，接受三针的人的住院率也有所上升。
+
+在同一时间段内，因 COVID-19 导致的死亡人数在接种疫苗者中有所增加，包括在加强剂接种者中。
+
+其他数据来源也指出疫苗在 Omicron 之后表现更差，包括 CDC 在 1 月份发表的研究，该研究表明未接种疫苗和已接种疫苗的病例和住院人数之间的差距在缩小。
+
+疾病预防控制中心的数据还显示，未接种疫苗者的病例、住院率和死亡率都有所上升，但与接种疫苗者相比，增幅并不显着。
+
+最近几周，未接种疫苗和接种疫苗的病例、住院人数和死亡人数均急剧下降，促使许多州取消了 COVID-19 限制。
+
+原文链接：[https://www.theepochtimes.com/mkt\_app/vaccinated-people-more-likely-to-contract-covid-19-go-to-hospital-in-recent-weeks-cdc-data\_4300048.html](https://www.theepochtimes.com/mkt_app/vaccinated-people-more-likely-to-contract-covid-19-go-to-hospital-in-recent-weeks-cdc-data_4300048.html)
+
+编辑：LILY
+
+发布：面包飞上天
+
+20220225
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/DA2FFC16-CFD3-4CBE-A6EF-8D83D11E5A70.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

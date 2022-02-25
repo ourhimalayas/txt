@@ -2,35 +2,28 @@
 ---
 
 
-## 因乌克兰被入侵原油期货2014年来首次突破100美元
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2065206/)
+## 有声|中共党媒意外泄露俄乌报道审查指令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2065232/)
 
-**翻译：zicoround**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip因乌克兰被入侵原油期货2014年来首次突破100美元.png)图片来源：jp.reuters.com
-在俄罗斯开始入侵乌克兰的消息传出后，原油期货价格2014年来首次突破了100美元。欧洲大陆的战争带来了世界能源供给停滞的进一步担忧。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+22日，一位在中共党媒新京报旗下的地平线新闻担任主管職的微博用户，在其微博页面上发布了“如何报道俄乌之间紧张局势升温”的相关指示。根据指示，在涉及俄乌局势相关的新闻时，要求使用人民日报、新华社以及央视话题来控制舆论导向，凡是对于俄罗斯不利或倾向西方民主立场的消息均不能发布，且设有专人负责审核、发布，精准控制评论话题，只放出合适、有利的评论，屏蔽掉所有不利的评论。
 
-乌克兰外长库勒巴周三在推特上说，俄罗斯已发动对乌克兰的全面入侵，和平的城市受到了攻击。
+对於网上流传的新闻发布指引，外国媒体认为是中共严格限制新闻自由和剥夺言论自由的证据。相关人士表示，中共国根本没有真正的新闻媒体，只有党的宣传工具和喉舌，所有对外宣传口径，都必须经过严密组织审查。从俄乌局势的发展，可以确信世界对中共已经逐渐不再纵容。
 
-英国北海布伦特原油期货一度达101.34美元，上涨到2014年9月以来的最高点，格林尼治时间4：23（日本时间下午1:23），上涨4.36美元（4.5%），到101.20美元。
+文字版原文：[中共党媒意外泄露俄乌报道审查指令](https://gnews.org/zh-hans/2055923/)
 
-美国WTI（西德州中级原油）原油期货上涨4.22美元（4.6%），到达96.32美元并持续上涨，一度达到96.51美元，是2014年8月以来的最高值。
+音频处理/发稿：Daxia
 
-俄罗斯总统普京24日承认了俄罗斯军队在乌克兰东部进行的特别军事行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-ING（International Netherlands Groups，荷兰国际集团）的商品研究主管Warren Patterson分析说，俄罗斯宣布的特别军事行动触发了北海布伦特原油期货突破100美元。他还预测西方国家对俄罗斯进一步的对抗措施会加剧市场的不稳定。
-
-他补充道：“本已紧张不已的石油市场因不确定性升高，使其极易受影响， 市场价格可能会继续振荡上扬。”
-
-**新闻来源**：[jp.reuters.com][原油先物が100ドル突破、14年以来　ウクライナ侵攻開始で](https://jp.reuters.com/article/global-oil-idJPKBN2KT0AJ)
-
-* * *
-
-***审核：zicoround 
-校对：宫米叶
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

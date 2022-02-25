@@ -2,45 +2,22 @@
 ---
 
 
-## 美国更新“未经核实名单” 中共生物制药业恐慌
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2064467/)
+## 樱花FM|捷报：伊维菌素终于被认可
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2064659/)
 
-撰稿: 香草山金融部-箐苹（Apple2020）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
-尽管中共海关宣称2021年进出口总额达到6.05万亿美元，同比增长约30%，贸易顺差达6,764.3亿美元。但面对美国的贸易管制，稍有风吹草动，中共国的出口型企业和资本市场就如“惊弓之鸟”，不堪一击。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2362.png)图片来自：http://5b0988e595225.cdn.sohucs.com
-美国商务部工业与安全局2月发布了更新的“未经核实名单”，增加了33家中共公司和机构，生物制剂服务商药明生物被列入其中。尽管“未经核实名单”管制相对较弱，但药明生物股价当天从前一天收盘价格的80.6港币一度最低跌至55港币，最大跌幅超过30%，同时引发中共国CXO医药外包板块整体大跌。“未经核实名单”的贸易管制力度远低于“实体清单”，却引发了资本市场对中共国生物制药行业的恐慌，凸显了中共国出口贸易数据和相关产业链的脆弱性。
+音频：东京樱花团/战友520
+![](https://lh3.googleusercontent.com/aO5p-p1CbAHaoe4NSfeh4dAYQWz9TSA6iDg1lEuu-iZm1P4kapy8GTuHB2irLMGJwA5CuzjsKvTNHK0NCZc5XVuHBJ0PBahMl0apJrlb3uRAEYxG8ur5MoGeeLVhMItwrbqnwNvk)
+东京 1月31日（路透社）报道：兴和制药公司（名古屋）1月31日表示，兴和已与北里大学完成了一项关于伊维菌素治疗中共病毒（新冠状病毒）感染的临床前研究。通过与北里大学的联合非临床研究实验，证实了伊维菌素对治疗中共病毒（新冠状病毒）感染，无论是对德尔塔（Delta）毒株还是对奥米炕（Omicron）毒株都有相同的抗病毒效果。
 
-中共国宣传的6万亿美元的“强劲”贸易数据，是在海外市场需求强劲、全球产业链被中共病毒疫情严重破坏，加上中共国企业能提前顺利大量进口海外技术和设备的多重背景下达成的。从贸易结构细分领域来看，此次美国更新的“未经核实名单”涉及的生物医药生产设备，如生物反应器等上游核心生产设备和耗材，仍掌握在在美国和欧洲龙头企业手里。一旦欧美贸易管制加码，将对中共国缺乏核心技术的产业链，乃至贸易进出口的虚假繁荣带来重大打击。
+伊维菌素是根据北里大学名誉教授大村智先生的研究开发的，他在2015年获得了诺贝尔生理学•医学奖。伊维菌素主要在非洲国家被用作治疗寄生虫感染。
 
-参考链接：
+我们新中国联邦一直在呼吁，要求用伊维菌素治疗中共病毒，现在终于得到了证实。兴和制药公司用科学实验验证了这一切。期待着今后伊维菌素在治疗中共病毒方面发挥最大的作用。
 
-[Revisions to the Unverified List](https://www.federalregister.gov/documents/2022/02/08/2022-02536/revisions-to-the-unverified-list)
+文字版原文：[捷报：伊维菌素终于被认可 – GNEWS](https://gnews.org/zh-hans/1937041/)
 
-[內幕消息 — 被美國商務部列入未經核實名單
-及恢復買賣](https://www1.hkexnews.hk/listedco/listconews/sehk/2022/0208/2022020801848_c.pdf)
-
-[生物制药上游头部企业金仪盛世完成数亿元B+轮融资](https://www.jyssbio.com/site/news_details/213)
-
-[乐纯生物完成B轮融资](https://www.lepurechina.com/news-information-52)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-266.png)
-
-
-
-编辑: 飞虹
-
-总编: 雪梨
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
