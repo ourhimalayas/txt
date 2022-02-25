@@ -2,24 +2,29 @@
 ---
 
 
-## 中日财经爆|日本保险公司将提高乌克兰周边水域船舶保费
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062578/)
+## 有声｜美抗议者聚集白宫门前敦促拜登采取行动制止战争
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2062729/)
 
-撰稿：东京樱花团/peterwong
+By:**秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/日本保险公司将提高乌克兰周边水域船舶保费.jpg)[图片来源](https://club.6parkbbs.com/military/index.php?app=forum&amp;act=threadview&amp;tid=16346209)
+**2022-02-25**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-36.png)图片来源 华盛顿观察家报
+《华盛顿观察家报》2月24日报道，周四下午，美国大批抗议者冒着严寒聚集在白宫门口，敦促总统拜登对俄罗斯入侵乌克兰采取更严厉的措施，立即制止这场战争。
 
-为应对乌克兰局势趋紧，东京海上日动、三井住友保险、日本松保三大保险（非寿险）公司决定，从3月起将乌克兰周边的黑海和亚速海宣布为高风险的 “禁水区”。
+据报道，一位名叫凯特的乌克兰抗议者告诉记者，所有在乌克兰和在这里的乌克兰人都被吓坏了。他们感到非常愤怒，并希望拜登能采取行动，阻止这场战争。
 
-经过这些水域的船只和运输的货物的海上保险费预计会上升。保险费的增加将增加航运公司的成本负担，并可能导致货物价格上涨。
+凯特继续说道，入侵是突然的，发生在当地时间周四凌晨。当时没有人愿意相信这是真的。他们来到白宫前面是为了抗议这种侵略行为。
 
-**消息来源:**
+报道称，抗议者们高呼“站在乌克兰一边”、“立即支持乌克兰”、“立即停止战争”和“我们要求制裁”等口号。
 
-[損保大手3社、海上保険料値上げへ　ウクライナ周辺海域を通行の船舶](https://news.yahoo.co.jp/articles/28c6fe545e84b3e925e28881e47db33b1781644f)
+新闻来源[**https://www.washingtonexaminer.com/news/stand-with-ukraine-protesters-gather-at-white-house-and-call-on-biden-to-act**](https://www.washingtonexaminer.com/news/stand-with-ukraine-protesters-gather-at-white-house-and-call-on-biden-to-act)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+秘翻新闻  冰糖葫芦喵 编译报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

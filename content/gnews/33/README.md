@@ -2,56 +2,24 @@
 ---
 
 
-## 美国不参与俄乌战争，但会“严厉”制裁俄国
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2062082/)
+## 中日财经爆|俄罗斯称有足够资金确保宏观经济和金融稳定
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062438/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/22-12.png)
-据《零对冲》报道，美国当地时间2月24日拜登讲话中最重要的部分是他发誓美国军队不会在乌克兰与俄罗斯交战，但同时也再次强调美国将保卫北约的领土，此时更多的美国军队正前往德国，更多的美国战斗机部署到盟国波罗的海国家以保护北约领土。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2328.png)[图片来源](https://www.google.com.hk/search?q=%E7%BE%8E%E5%85%83%E5%85%91%E4%BF%84%E7%BD%97%E6%96%AF%E5%8D%A2%E5%B8%83&amp;newwindow=1&amp;rlz=1C1YKST_enUS900US901&amp;ei=IHQYYu27E8f_hwOa-4O4CQ&amp;oq=%E7%BE%8E%E5%85%83%E5%85%91%E4%BF%84%E7%BD%97%E6%96%AF&amp;gs_lcp=Cgdnd3Mtd2l6EAMYADIFCAAQxAIyBQgAEIAEOgcIABBHELADOgQIABBDOgcIABCABBAMOgYIABAHEB5KBAhBGABKBAhGGABQvtkFWNmRBmCqnwZoCHABeACAAf0BiAG-CpIBBTAuNi4xmAEAoAEBoAECyAEKwAEB&amp;sclient=gws-wiz)
+俄罗斯政府周四（2月24日）表示，其拥有超过4.5万亿卢布(530亿美元)的可自由支配预算资金，有足够的资源确保宏观经济稳定，并支持受到制裁打击的企业。
 
-至关重要的是，对普京本人的直接制裁目前还没有摆在桌面上，而且现在很清楚的是，将俄罗斯从SWIFT上断开连接也不是新措施的一部分。拜登说：”普京将成为国际舞台上的弃儿。
+俄罗斯军队周四从陆地、空中和海上入侵乌克兰，引发俄罗斯资产大规模抛售。
 
-拜登总统对俄国的总结：
+随着美国总统拜登宣布对包括银行在内的新的对俄制裁，俄罗斯卢布兑美元大跌4.51%，至84.96卢布，稍早创下89.986的纪录低位。
 
-- 对俄罗斯实施强有力的制裁和新的限制
-- 对美国和盟国的影响将被降至最低
-- 普京是侵略者
-- 俄罗斯的日元、欧元交易能力将受到限制
-- 将封锁俄罗斯的四家主要银行
-- 增加对俄罗斯精英的制裁
-- 将切断俄罗斯的部分进口产品
-- 称估计制裁将切断俄罗斯一半以上的高科技产品进口
-- 称美国军队不会在乌克兰作战
-- 授权向德国增派部队
-- 迅雷总是一种选择，目前没有计划使用
-- 五角大楼下令向欧洲增派约7000人的部队
-- 乌克兰卫生部长称今天有57人死亡，169人受伤
+政府在周四的声明中表示：“目前，俄罗斯有足够的财政资源来维持金融体系，以应对制裁和外部威胁。”
 
+消息来源：[俄罗斯称有超过530亿美元自由支配预算资金 可确保宏观经济和金融稳定](https://cn.reuters.com/article/russia-budget-fund-fin-stability-0225-idCNKBS2KU085?il=0)
 
-拜登也和七大工业组织的领袖谈了普京总统对乌克兰的无理攻击。根据突发新闻，英国在西方盟国中率先采取行动，推出了以下这些初步的严肃措施：
-
-- 俄罗斯将被禁止在英国市场筹集主权债务
-- 英国将立即冻结俄罗斯VTB银行的资产
-- 英国阻止俄罗斯公司在伦敦进行融资
-- 英国禁止俄航飞机在英国降落
-- 英国对100多个俄罗斯个人和实体实施制裁
-- 约翰逊：禁止向俄罗斯出口高科技部件
-
-
-以上的报道是不是七哥说的“欧洲已经跪下了 （美国是大哥）”。
-
-美俄欧的一切行动会不会是一个套，让习认为俄国拿回乌克兰的举动可以效仿，以致发动对台的攻击。制裁是否是让俄乌战争看起来很真实？七哥也说过有些制裁是不痛不痒的。
-
-**新闻来源**：https://www.zerohedge.com/political/watch-live-president-biden-unleashes-toughest-sanctions-ever-russia
-
-**相关新闻**
-
-
-
-> [胡锡进: 要习惯解放军进入台湾](https://gnews.org/zh-hans/2062077/)
-
-
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

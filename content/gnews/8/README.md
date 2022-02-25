@@ -2,56 +2,27 @@
 ---
 
 
-## 哀叹
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2062808/)
+## 有声｜俄罗斯入侵乌克兰 多个城市遭到导弹袭击
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2062869/)
 
-作者：纽约香草山教育部—蓝之灵（Hortensia)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-当蜘蛛哀叹
-结网不再安全
-蝼蚁命如草芥
-你期望的昌盛
-可还有期待
+By:**秘翻新闻**
 
-当她无助悲泣
-被锁二十四年
-全村人共同作恶
-你期望的良知
-可还在
+**2022-02-25**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-25-下午3.49.55.png)图片源自:美国之音
+据[美国之音](https://www.voachinese.com/a/russia-launches-invasion-of-ukraine-with-multiple-cities-hit-in-initial-missile-strikes-20220224/6456857.html)2月24日报道，俄罗斯星期四拂晓前向包括首都基辅在内的多个乌克兰城市发射导弹，打击防空设施和军事基础设施，俄军在乌克兰南部海岸登陆。
 
-他们
-对尊严予取予夺
-对生命予死予杀
-你只是韭菜
-血已流干
-难以醒来
-在梦里
-你过得欢快
+俄罗斯总统普京在电视上宣布他所说的“特别军事行动”后不久，乌克兰东部城市哈尔科夫可以听到激烈的火箭弹声，从基辅的郊区，首都主要的鲍里斯波尔国际机场，以及在朱利亚尼的第二个机场的方向，可以听到零星的爆炸声。
 
-多少次呼唤
-只换来白眼
-在梦里
-你过得欢快
-我们
-只好
-哀叹
-哀叹
+乌克兰领导人称，俄罗斯对乌克兰发动全面入侵。
 
-- **审稿/校对/发稿：**qiutian（邱甜）
+在导弹袭击几个小时后，俄罗斯坦克从俄罗斯、白俄罗斯，以及莫斯科2014年并吞的乌克兰半岛克里米亚越过乌克兰边界。乌克兰官员说，俄罗斯两栖部队在黑海沿岸的敖德萨附近登陆。
 
+( 秘翻新闻 宝宝 编辑报道 )
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1-2.png)
+发布:星星
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

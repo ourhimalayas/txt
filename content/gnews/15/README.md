@@ -2,36 +2,56 @@
 ---
 
 
-## 有声｜切尔诺贝利核电站已被俄罗斯军队占领
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2062611/)
+## 哀叹
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2062808/)
 
-By:**秘翻新闻**
+作者：纽约香草山教育部—蓝之灵（Hortensia)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+当蜘蛛哀叹
+结网不再安全
+蝼蚁命如草芥
+你期望的昌盛
+可还有期待
 
-**2022-02-25**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-35.png)图片来源 路透社
-据《路透社》2月24日报道，乌克兰总统办公室顾问米哈伊洛·波多利亚克周四表示，切尔诺贝利核电站已被俄罗斯军队占领。
+当她无助悲泣
+被锁二十四年
+全村人共同作恶
+你期望的良知
+可还在
 
-他表示，在俄罗斯军队攻占了切尔诺贝利核电站后，该核电站不可能是安全的，这是当今欧洲最严重的威胁之一。
+他们
+对尊严予取予夺
+对生命予死予杀
+你只是韭菜
+血已流干
+难以醒来
+在梦里
+你过得欢快
 
-据报道，俄罗斯军队在周四早些时候侵占了切尔诺贝利 “禁区” 。报道称， 俄罗斯希望控制切尔诺贝利核反应堆，以示北约不要进行军事干预。
+多少次呼唤
+只换来白眼
+在梦里
+你过得欢快
+我们
+只好
+哀叹
+哀叹
 
-1986年，在当时的苏联乌克兰发生了切尔诺贝利核灾难，殃及欧洲大部分地区。几十年后，它成为一个旅游景点。
+- **审稿/校对/发稿：**qiutian（邱甜）
 
-在俄罗斯入侵的大约一周前，游客被禁止到切尔诺贝利区。
 
-乌克兰总统沃洛基米尔·泽伦斯基在核电站被占领前不久在推特上说：“我们的保卫者正在付出他们的生命，以便1986年的悲剧不再重演。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1-2.png)
 
-泽伦斯基还指出，俄罗斯占领切尔诺贝利核电站“是对整个欧洲的宣战”。
+**更多资讯，更多关注**
 
-新闻来源
-[**https://www.reuters.com/world/europe/chernobyl-power-plant-captured-by-russian-forces-ukrainian-official-2022-02-24/**](https://www.reuters.com/world/europe/chernobyl-power-plant-captured-by-russian-forces-ukrainian-official-2022-02-24/)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-秘翻新闻 Grace 编译报道
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-发布 : 恩典
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

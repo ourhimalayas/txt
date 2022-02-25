@@ -2,42 +2,51 @@
 ---
 
 
-## 俄罗斯入侵乌克兰，全球股市跳水、卢布熔断
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2062579/)
+## 早期治疗和适当补水是预防长期COVID症状的关键（1/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2062733/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译： Jenny Ball
 
-整理：围剿维尼熊
-编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2336-edited.png)前线 COVID-19 重症监护联盟的内科医生兼联合创始人基思·伯科维茨( Keith Berkowitz )医生的屏幕截图。 （centerforbalancedhealth.com/大纪元截图）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-46.png)图片来源：The Motley Fool & 雅典娜设计组
+根据前线** COVID-19 **重症监护联盟** (FLCCC)**的内科医生和创始成员基思·伯科维茨医生的说法，通过早期治疗和适当补水，可以预防感染发展成长期 COVID 的症状。
 
+长期 COVID（也称为长期 COVID、慢性 COVID 和 SARS-CoV-2 感染的急性后遗症），是人们在感染后数周至数月内，会出现持续、复发或新的 COVID-19 症状。长时间接触刺突蛋白后会出现长期 COVID 的症状。
 
-当地时间24日，多家媒体报道，普京宣布，他已决定在顿巴斯地区进行军事行动。
+SARS-CoV-2 是导致 COVID-19 的 CCP病毒的学名。
 
-普京宣称，俄罗斯没有侵略乌克兰的计划，俄方致力于缓解乌克兰局势。鉴于北约的不断东扩，俄罗斯的安全环境不断恶化，俄罗斯不得已做出这个决定。乌克兰局势的发展导致俄罗斯无法得到安全保障，呼吁俄罗斯武装力量对威胁其国家的行为予以坚决回击。
+自大流行开始以来一直在治疗 COVID-19 患者的伯科维茨医生说，他曾经看到更多患有长期 COVID 的女性患者，现在看到男性和女性患者平等，但接受 FLCCC 的治疗方案 I-MASK+ 早期治疗的患者中较少出现。
 
-随后，乌克兰总统泽连斯基表示，乌克兰全境将进入战时状态。
+“大多数接受过早期治疗的人，我们发现，该群体中长期 COVID 的发病率要低得多，”伯科维茨告诉《大纪元时报》。
 
-有报道称，乌克兰的军事设施遭到导弹袭击，俄军登陆行动开始于黑海和亚速海。
+FLCCC 的早期治疗方案以伊维菌素为中心，因为它对 COVID-19 具有强大的抗炎和抗病毒作用。还使用了其他容易获得且价格低廉的联邦批准药物，包括维生素 C 和 D 以及锌等补充剂。
 
-目前，俄军已突破哈尔科夫州界，哈尔科夫乌军指挥所遭到火箭弹袭击。乌克兰多个城市发生一系列爆炸事件。
+美国国立卫生研究院 (NIH) 表示，没有足够的证据推荐或反对使用伊维菌素治疗 COVID-19，尽管对 15 项研究的荟萃分析得出结论：“中等质量的证据表明，大量减少使用伊维菌素可能导致 COVID-19 死亡。在临床早期使用伊维菌素，可能会减少进展为严重疾病的人数。”
 
-随着普京宣布在顿巴斯地区进行特别军事行动，美国总统拜登宣布将和盟国一起向俄罗斯施加更严厉的制裁措施。
+伯科维茨医生说，除了早期治疗外，使用“矿物质 [盐] 含量略高”的液体，特别是静脉注射液体保持水分，也可以预防长期 COVID 的症状。
 
-因俄入侵乌克兰，当日全球股市出现大跳水。俄罗斯股市（IMOEX）开盘下跌11.24%，至2737.91点。俄罗斯卢布和莫斯科证券交易所开始交易后不断下跌，目前已跌至熔断线，卢布和证券交易已暂停。
+“实际上，给予静脉输液真的可以改变游戏规则，让身体回到我所说的平衡状态，正常的状态，”伯科维茨说。 “所以，如果你经常精疲力竭，是因为你的身体必须更加努力地工作保持正常。”
 
-参考链接：[突发！乌克兰全境进入战时状态！俄罗斯卢布熔断](http://www.21jingji.com/article/20220224/herald/6c5ae23d0f02cc15cbaeaf5e7a13c1ba.html)
+没有足够的水和其他液体，人体就无法正常运作。伯科维茨说，当一个人长期脱水时，如果无法获得静脉输液，鸡汤或使用矿物质包或喜马拉雅盐，这些比白开水更好。
 
-*发布：tianzhihuan*
+政府卫生当局迟迟没有建议对 COVID-19 进行早期治疗，他们继续向对该病检测呈阳性的人传达相同的信息：在家自我监测、保持水分充足，只有在呼吸困难时才去急诊室。 2022 年 1 月，美国CDC开始建议，有严重疾病风险的人在 COVID-19 呈阳性时，寻求早期治疗，并在推特上写道：“不要拖延，必须在最初几天内开始治疗最有效。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2331.png)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2333.png)
+
+联邦卫生机构没有针对急性 COVID-19 或长期 COVID 综合症的治疗建议。
+
+文章后半部分可以看到FLCCC从临床中总结的治疗方案的治疗效果。
+
+素材链接：【theepochtimes.com】[Early Treatment and Proper Hydration Key to Preventing Long COVID Symptoms: Dr. Keith Berkowitz](https://www.theepochtimes.com/early-treatment-and-proper-hydration-key-to-preventing-long-covid-symptoms-dr-keith-berkowitz_4297412.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-02-24)
+
+* * *
+
+审核：文乐
+校对：信心满满
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
