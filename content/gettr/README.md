@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/25/2022 1:44 AM (UTC)`
+
+2/24/2022 Miles Guo’s Urgent Livestream: Numerous people will die in Communist China next year regardless of whether the CCP invades Taiwan, and the Chinese people may have to rummage through garbage for food. If the CCP invaded Taiwan, it would suffer worse economic sanctions than Russia. The CCP’s economic centers and military bases will also be devastated. Fellow fighters in Communist China should prepare for that. The New Federal State of China is the only one in the world that has revealed the evil plan of Putin and Xi Jinping to invade Ukraine and Taiwan, respectively.<br/><br/>2/24/2022 文贵紧急直播：不论打不打台湾，明年的中共国都将尸横遍野，人们可能要吃垃圾；若打了台湾，中共将遭受比俄罗斯更惨的制裁，中共经济中心和有军事基地将遭毁灭性打击请请国内战友做好准备；全人类只有新中国联邦揭露了习普的邪恶计划<br/>
+![img](https://media.gettr.com/group39/getter/2022/02/25/01/2e8f84d7-50b9-f7f4-4554-08ab913d56bc/out.jpg)
+
+---
+
 `@miles 2/25/2022 1:30 AM (UTC)`
 
 🆘🆘🆘为了集合全球战友资源救助台湾战友，联盟发放统一登记表格，请有可能提供救助资源的战友填写，表格链接：<br/><br/>https://forms.gle/pgVrayLJKqS7NMsN8<br/><br/><br/>联盟-身在台湾的战友撤离统计表单：<br/><br/>https://docs.google.com/forms/d/e/1FAIpQLScjccjoDUB3u-OhC-zeZDvvtiHqxXo1z4h6Ls_LkxxtLZEYJw/viewform<br/><br/>考虑到目前紧张局势，针对墙内战友和香港战友撤离需要寻求协助，联盟发出统一的登记表格，表格链接：<br/><br/>https://forms.gle/Xaiofs6eKWvbhLTf7 
@@ -146,13 +153,6 @@
 
 2/23/2022 Miles Guo: The Ukraine incident reflects that Vladimir Putin is a brilliant international strategist. Before the Winter Olympics, he made lots of noises to get the world’s attention that he was going to wage a war against Ukraine, and then he met with Xi to get huge profits during the Olympics, after which he pretended to withdraw his troops while luring various countries to make deals with him. However, the Nord Stream 2 is actually still supplying natural gas.<br/><br/>2/23/2022 文贵直播：乌克兰事件反映出普京是个国际战略大家，冬奥会前制造开战声势，冬奥会见习攫取中共大量利益，会后佯装撤军并吸引各国与之勾兑，北溪2号实际上仍在输送天然气
 ![img](https://media.gettr.com/group44/getter/2022/02/24/06/827eb003-cb13-847e-8392-89d83da91344/out.jpg)
-
----
-
-`@miles 2/24/2022 3:21 AM (UTC)`
-
-2/23/2022 Miles Guo: Why will the US be the biggest winner? Will Putin, who has taken trillions of dollars from the Chinese people, be able to realize his dream of the Russian Empire?<br/><br/>2/23/2022 文贵直播：为什么说美国才是最大的赢家？拿了中国人上万亿美元的普京能实现他的俄罗斯帝国梦吗？
-![img](https://media.gettr.com/group44/getter/2022/02/24/03/1871228e-2921-c4dd-385d-e10aec57f438/out.jpg)
 
 ---
 
