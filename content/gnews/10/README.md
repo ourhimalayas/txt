@@ -2,49 +2,23 @@
 ---
 
 
-## 被困在乌克兰的巴西足球运动员请求帮助
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2067582/)
+## 视频|德国保险公司揭示疫苗副作用数据远超政府报告
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2067612/)
 
-作者：日本东京方舟农场-Miyali7768(文玉）
+制作：香草山视频部
 
+据2月23日外媒报道，一家德国医疗保险公司出具的报告表明，实际的中共病毒疫苗不良反应的数据，要比德国政府披露的高很多倍。
 
+该公司对超过1090万名保户进行了分析，从2021年初到第三季度中期，共有约21.7万人涉及中共病毒疫苗副作用而接受治疗。主要不良反应体现为接种后败血症、皮疹、疫苗或生物活性并发症以及其他症状。而德国卫生部记录的数据为，总人口6140万，在14个月中只记录了不足24.5万份疫苗不良反应。该保险公司CEO绍夫贝克先生称，从保单记录的数据来推断，中共病毒疫苗产生的不良反应就医可能已达到300万人次。他呼吁德国民众在决定接种之前慎重考虑中共病毒疫苗的副作用。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+医学统计学家格特·安蒂斯说，联邦卫生系统有责任迅速核实政府报告数据与实际疫苗不良反应数据不匹配的状况。
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/AFPTV_AFP-via-Getty-Images-640x480-1.jpg)图片源自网络
-
-Breitbart News 2月24日报道： 两支乌克兰足球队的巴西球员发布了一段视频，请求他们的祖国帮助他们离开乌克兰，避开普京的入侵部队。
-
-
-来自顿涅茨克山庄和基辅迪纳摩队的球员们已经将他们的家人搬到了几家酒店，希望能在入侵中保持安全。 球员桑托斯在Instagram上发文道”我们真的很绝望，没有办法出去，我们正在经历混乱， 我们有来自我们俱乐部的支持。但这种绝望是令人痛苦的。我们等待着来自我们国家的支持。我们以所有在乌克兰的巴西人的名义发言“。
-
-其他来自巴西的球员也发布消息，恳求帮助他们逃离乌克兰。一名球员的妻子说“我们女人和孩子在一起，感觉有点被遗弃了， 巴西外交部的通讯主任莱昂纳多-戈尔古略回应称巴西没有能力组织任何疏散工作，建议居住在乌克兰东部的巴西人通过自己的方式离开该国。
-
-参考来源：[https://www.breitbart.com/sports/2022/02/24/theres-no-way-we-can-get-out-brazilian-soccer-players-trapped-ukraine-plea-help/](https://www.breitbart.com/sports/2022/02/24/theres-no-way-we-can-get-out-brazilian-soccer-players-trapped-ukraine-plea-help/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
-
-编辑/校对/发稿：Daxia
+发稿：谐趣园
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
-
-
-
-
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

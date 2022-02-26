@@ -2,63 +2,44 @@
 ---
 
 
-## 乌克兰总统警告欧盟：这可能是你最后一次看到我活着
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2067567/)
+## 疫苗灾难之下最好的生意是火葬场，美国所有教堂全满
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2067593/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+G-TV视频链接：[https://gtv.org/video/id=62049b1e585ecc15d73faa14](https://gtv.org/video/id=62049b1e585ecc15d73faa14)
 
-翻译：winsonchen
-编辑：Mttfly
+**郭文贵先生：**然后疫苗经济大家去想吧，都没人干活了，到处死人，哪个经济能好呢？什么经济能好呢？不可能的啊。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-47.png)图片来源：雅典娜设计组
+什么样的产业，现在最好的是火葬场，最好的生意是火葬场，卖骨灰盒的、烧人的。全美国所有的教堂全满。我们一个最重要的美国战友，我不能说你们都知道，最重要的美国战友，他的父亲过世了。现在要等着火葬场，这美国这么大人物要等火葬场。
 
+中国那就别提了，中国的火葬场现在火到就已经就是，烧个人得给烧的费用5倍的黑钱才能烧。这还没开始呢，到今年5月份才是第一次的打了疫苗的周期的反应。按照我们科学家说的。
 
-在社交媒体视频中，乌克兰总统弗拉基米尔·泽连斯基周四向欧洲领导人道别。并告诉他们“这可能是你们最后一次看到我还活着”。
+字幕来源：[2022年1月30日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1936606/)
 
-据《纽约邮报》报道，这位44岁的领导人周四在与欧盟领导人的视频通话中发出了令人不寒而栗的警告。在泽伦斯基公开表示自己是俄罗斯的“头号目标”前，消息人士告诉了Axios和英国《金融时报》这个消息。
+编辑整理：Jacques；
 
-其中一位参加电话会议的瑞典首相马格达莱娜·安德森（Magdalena Andersson）也告诉TT新闻，欧盟领导人在告别时就知道，他们可能再也见不到他了
+字幕文件制作：知津；
 
-泽伦斯基似乎在一个地堡里向其他领导人发表讲话，他发誓即使在基辅被围困时，也会留在基辅。并且他承认俄罗斯人“希望通过消灭国家元首以此在政治上摧毁乌克兰”。
+视频制作及上传：Cindy；
 
-在谈到自己的妻子、儿女时，他表示：“敌人将我定为头号目标，将我的家人定为二号目标。”
+G-News发布：小满；
 
-尽管泽伦斯基被俄罗斯列为“头号目标”，但他在周五晚些时候制作了一段充满反抗意味的视频。视频中他与四名主要内阁成员一起出现在基辅黑暗的街道上。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-他说：“我们在这里。我们在基辅。我们保卫乌克兰”。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-他早些时候还发布了一段室内视频，称欧洲领导人以及美国缺乏援助是可耻的。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-总统在“全面战争的第二天早上”说：“今天早上，我们独自保卫我们的国家”。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-他意指美国乔·拜登总统的政府：“就像昨天一样，世界上最强大的国家从远处看着。”
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-泽伦斯基先生直接将对他的国家的攻击，也即周五集中在首都基辅的攻击比作“欧洲在第二次世界大战期间已经目睹的纳粹德国对邻国的攻击”。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-他警告说：“欧洲曾说再也不会允许二战时的事情在欧洲发生，但我们现在处境就是如此。俄罗斯的入侵是对欧洲战争的开始。”
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-他指责欧洲国家不及时提供帮助，并敦促欧洲人民“要求你们的政府向乌克兰提供更多的财政和军事援助”。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-“当你在乌克兰如此缓慢地帮助我们时，你将如何帮助自己？”他问道。
-
-他甚至鼓励任何有“战斗经验”的欧洲人无视“政客的优柔寡断”，“来到我们的国家，加入我们保卫欧洲”。
-
-他坚持认为“欧洲有足够的力量来阻止这种侵略”，并指出一系列（欧洲）尚未使用的措施。
-
-他说：“取消俄罗斯人的签证，切断他们与SWIFT的联系，完全孤立俄罗斯，召回大使，石油禁运，实施禁飞区，这必须尽快开始行动。”
-
-除此之外，泽伦斯基高度赞扬了瑞典提供“军事，技术和人道主义援助”，称他们正在“共同建立一个反普京的联盟！”
-
-参考链接：[Ukraine’s Volodymyr Zelensky warns EU leaders ‘this might be the last time you see me alive’](https://www.news.com.au/world/europe/ukraines-volodymyr-zelensky-warns-eu-leaders-this-might-be-the-last-time-you-see-me-alive/news-story/854a0e5e117c32fa3cbf38043bd4067f)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
