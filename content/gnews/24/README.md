@@ -2,34 +2,39 @@
 ---
 
 
-## 德国保险公司揭示疫苗副作用数据远超政府报告
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2068444/)
+## 北京破坏了对俄罗斯入侵乌克兰的制裁
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2068462/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
-据2月23日外媒报道，一家德国医疗保险公司出具的报告表明，实际的中共病毒疫苗不良反应的数据，要比德国政府披露的高很多倍。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2430.png)图片来自：https://www.infowars.com/
-该公司对超过1090万名保户进行了分析，从2021年初到第三季度中期，共有约21.7万人涉及中共病毒疫苗副作用而接受治疗。主要不良反应体现为接种后败血症、皮疹、疫苗或生物活性并发症以及其他症状。而德国卫生部记录的数据为，总人口6140万，在14个月中只记录了不足24.5万份疫苗不良反应。该保险公司CEO绍夫贝克先生称，从保单记录的数据来推断，中共病毒疫苗产生的不良反应就医可能已达到300万人次。他呼吁德国民众在决定接种之前慎重考虑中共病毒疫苗的副作用。
+撰稿：小湫
 
-医学统计学家格特·安蒂斯说，联邦卫生系统有责任迅速核实政府报告数据与实际疫苗不良反应数据不匹配的状况。
+澳洲总理猛烈抨击中国开放与俄罗斯的贸易，指责北京破坏西方在乌克兰问题上的制裁，并给普京提供了一条生命线。
 
-新闻来源：[“Alarm Signal”: Number of Vaccine Side Effects Significantly Higher Than Government Reports, Insurance Company Finds](https://www.infowars.com/posts/alarm-signal-number-of-vaccine-side-effects-significantly-higher-than-government-reports-insurance-company-finds/)
+习近平和普京在2月初达成了一项协议，双方同意加强贸易关系，旨在破坏美国的全球联盟网络。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9554FD31-BB3C-46A2-AA13-7557C3EE262A.jpeg)图片来自网络
+根据该协议，中国同意取消对俄罗斯小麦和大麦的限制，中国海关直到周四正式证实，将对俄罗斯小麦开放进口。周四当天俄罗斯全面入侵乌克兰。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5-1-2.png)
+莫里森(Scott Morrison)指责中国帮助俄罗斯避免了欧洲、英国和美国在俄罗斯入侵乌克兰后实施的全面制裁的影响。此刻正直俄罗斯入侵乌克兰，中国取消了对俄罗斯的小麦限制，意图非常明显。
 
-编辑：宁文静
+尽管在被问及俄罗斯对乌克兰的军事侵略时，中国强调了主权的重要性，但它一再拒绝谴责俄罗斯对乌克兰的攻击。
 
-总编：飞虹
+周四晚上，中国外交部发言人华春莹表示，这次袭击不应该被称为“入侵”，因为俄罗斯只针对乌克兰的军事设施。
 
-校正/发稿：浪迹天涯
+中国政府代表此前也表示，俄罗斯对乌克兰加入北约有合理的担忧。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
+华春莹在北京对记者表示:“正如我们多次说过的，乌克兰问题有着非常复杂的历史背景。所以我们希望各方共同努力，有和平的机会，尽快冷却局势，通过对话、协商和谈判来维持和平。”
+
+不过，莫里森表示，中国应加入国际社会的行动，在经济上惩罚俄罗斯，而不是为其行为找借口。莫里森表示担心，中国政府的言论中有这样一种暗示，即俄罗斯入侵乌克兰是有合理的安全借口。
+
+工党领袖艾博年(Anthony Albanese)支持这些莫里森的呼吁，称中国需要用事实证明其对全球和平认真态度。中国正在做相反的事情，这是一个中国与世界其他国家一起谴责俄罗斯这一行动的机会。
+
+澳大利亚国防部长彼得·达顿(Peter Dutton)进一步表示，习近平可能是少数几个能够说服普京停止入侵的全球领导人之一。这真的非常令人不安，中国实际上是在鼓励俄罗斯。
+
+信息来源：
+
+[China accused of undermining sanctions against Russia for its invasion of Ukraine](https://www.abc.net.au/news/2022-02-25/scott-morrison-china-russia-ukraine-war-trade/100861030)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+发稿：MG6
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

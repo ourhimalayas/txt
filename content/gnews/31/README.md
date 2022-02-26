@@ -2,38 +2,32 @@
 ---
 
 
-## 推特封禁了发布俄乌战争现场的账户
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2068344/)
+## 拜登提名首位非洲裔女性大法官
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2068353/)
 
-撰稿: 银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
-2月24日，俄罗斯悍然入侵乌克兰。目前俄罗斯军队和装甲车开始进入乌克兰领土，处于东顿巴斯和卢甘斯克地区的社交媒体账号发布的图像和视频成为目前战争局势的主要讯息来源，如俄罗斯直升机飞往克里米亚和坦克前往边境的视频。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2427.png)图片来自：https://www.theverge.com
-随着冲突的加剧，OSINT的研究人员发现发布战争讯息的这些账户，竟然被社交媒体推特封禁了。封禁的账户覆盖了英语、法语、西班牙语圈，甚至还包括巴西地区。推特显示的封禁原因并不清楚。研究人员还发现大量分享他人内容的大V账户也被封禁，这在机器人算法里是不可能的，明显是人为干预的结果。
+**撰稿：日本东京方舟农场 北极**
 
-乌克兰的支持者有理由担心，这是俄罗斯所为，因为这有利于俄罗斯在乌克兰的军事行动。并且，俄罗斯此前在乌克兰进行了社交媒体虚假讯息宣传，并对乌克兰的网络、银行和政府网站进行了持续攻击。
+白宫星期五(2月25日)宣布，美国总统拜登决定提名联邦上诉法院法官凯坦吉·布朗·杰克逊(Ketanji Brown Jackson)出任最高法院大法官，杰克逊有望成为第一位任职美国最高法院大法官的黑人女性。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/001.png)杰克逊法官25日获得拜登总统提名后，在白宫面对记者（图片来自美国之音）
+杰克逊现年51岁，在迈阿密长大，毕业于哈佛大学法学院，目前是美国哥伦比亚特区联邦巡回上诉法院（U.S. Court of Appeals for the District of Columbia Circuit）法官。
 
-据悉，俄罗斯2014年吞并克里米亚期间，就曾被指控利用社交媒体宣传虚假讯息。
+她拟接替83岁的退休自由派大法官斯蒂芬·布雷耶(Stephen Breyer)，布雷耶是目前最高法院大法官中最年长的一位，他从1994年以来一直在任，目前打算在今年6月底退休卸任。
 
+美国历史上共有115人担任过最高法院大法官，其中只有过两名非洲裔法官，而且都是男性。
 
+杰克逊如果得到参议院的确认，将成为有史以来第六位女性最高法院大法官，最高法院目前有三名女法官。
 
-新闻来源：[TWITTER ACCOUNTS SHARING VIDEO FROM UKRAINE ARE BEING SUSPENDED WHEN THEY’RE NEEDED MOST](https://www.theverge.com/2022/2/23/22947769/twitter-osint-russia-ukraine-invasion-suspended-error)
+美国最高法院目前保守派占多数，与自由派为6比3的比例，其中包括前总统特朗普任命的三名法官。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-266.png)
+最高法院在美国生活中发挥不可或缺的作用。它将在未来几个月内对可能限制堕胎权和扩大枪支权利的案件作出裁决。此外，最高法院还将审理有关种族问题的案件，这可能会终止高校的平权法案，该法案用来增加黑人和西班牙裔学生人数。
 
-编辑：Ivy001
+参考链接：
+[https://www.voachinese.com/a/biden-supreme-court-nominee-jackson-20220225/6459864.html](https://www.voachinese.com/a/biden-supreme-court-nominee-jackson-20220225/6459864.html)
 
-总编：飞虹
+素材采编：北极
+编辑：老孙
+发布：Linda
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
