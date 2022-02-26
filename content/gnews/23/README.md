@@ -2,48 +2,53 @@
 ---
 
 
-## 有声|新西兰Covid-19 疫情爆炸式飙升至12,011 例新病例五人死亡引发民众暴力情绪
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2070401/)
+## 明斯克协议
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2070441/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image013-1.jpg)
-当地时间，2月25日，新西兰报告了12,011 例新的Covid-19 小区病例，另有5 人死亡。今天的数字几乎是24日报告的6137 个病例的两倍。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image014-2.jpg)
-奥克兰的新增病例最多，有1565 例PCR 检测呈阳性，6403 例RAT 结果呈阳性。其余病例分布在全国各地。
+作者：香草山教育部-雪梨
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-84.png)
+“明斯克协议”，是在顿巴斯战争爆发后，乌克兰政府与乌克兰东部的顿涅茨克人民共和国、卢甘斯克人民共和国两个政权的代表，于2014年9月5日，在白俄罗斯首都明斯克签订的停火协议。2015年2月，相关各方又签订了新明斯克协议，内容包括，根据乌克兰法律，各方就顿涅茨克和卢甘斯克的临时自治政府展开对话，并透过国会决议承认其特殊地位。
 
-新西兰目前为止已有61 人死于Covid-19。现在有237 人因感染Covid病毒住院，其中3 人在重症监护室。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/minsk.png)
 
-疫情爆炸式发展引发了民众焦虑以及暴力情绪。新西兰大型连锁超市Countdown公司事务经理Kiri Hannafin 说，人们正在向超市的员工发泄与covid病毒相关的愤怒。人们不戴口罩，辱骂超市的团队，咒骂，随地吐痰，甚至威胁要杀人，目前为止每天如此。
+2022年2月，媒体曝光了一份1991年的机密文件，文件显示，在德国统一谈判期间，英、美、法、德外交官曾向前苏联承诺，北约不会东扩。
 
-同时，他表示Countdown 的22,000 名员工令他感动，尽管“一些极少数人的行为绝对令人发指”，但是员工们还在继续工作“继续前进”。可惜有350 名超市员工因Covid 处在隔离中。超市预计本周末商店将出现肉类短缺。
+1994年12月，美国、英国、俄罗斯和乌克兰签署了《布达佩斯备忘录》。乌克兰根据该备忘录销毁了核武器和洲际导弹，意欲与美国和欧盟结盟，并通过宪法修正案，将加入欧盟和北约作为国家基本方针写入了宪法。
 
-此外，新西兰本地因疫情飙升师资不足已经引发幼教机构关闭。中共病毒引发的疫情灾难正在越来越多的显现出来！
+2022年2月21日，俄罗斯宣布承认顿涅茨克、卢甘斯克独立。
 
+2月22日，俄罗斯总统普京正式宣布，明斯克协议不复存在。
 
+2月24日，俄罗斯正式入侵乌克兰。
 
-[【援引连结】](https://www.rnz.co.nz/news/national/462259/covid-19-update-12-011-new-community-cases-in-new-zealand-today-five-deaths)
+参考链接：
+[https://zh.wikipedia.org/wiki/%E5%8C%97%E5%A4%A7%E8%A5%BF%E6%B4%8B%E5%85%AC%E7%BA%A6%E7%BB%84%E7%BB%87](https://zh.wikipedia.org/wiki/%E5%8C%97%E5%A4%A7%E8%A5%BF%E6%B4%8B%E5%85%AC%E7%BA%A6%E7%BB%84%E7%BB%87)
 
+[https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220214-%E4%B9%8C%E5%85%8B%E5%85%B0%E6%BE%84%E6%B8%85-%E5%B9%B6%E6%9C%AA%E6%89%93%E7%AE%97%E6%94%BE%E5%BC%83%E5%8A%A0%E5%85%A5%E5%8C%97%E7%BA%A6](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220214-%E4%B9%8C%E5%85%8B%E5%85%B0%E6%BE%84%E6%B8%85-%E5%B9%B6%E6%9C%AA%E6%89%93%E7%AE%97%E6%94%BE%E5%BC%83%E5%8A%A0%E5%85%A5%E5%8C%97%E7%BA%A6)
 
+[https://gnews.org/zh-hans/2055108/](https://gnews.org/zh-hans/2055108/)
 
-**推出问题，敲出真相，爆料在路上！**
+[https://sputniknews.com/20220219/1991-doc-proves-west-did-commit-to-non-expansion-of-nato-eastwards-broke-the-promise–report-1093161024.html](https://sputniknews.com/20220219/1991-doc-proves-west-did-commit-to-non-expansion-of-nato-eastwards-broke-the-promise--report-1093161024.html)
 
-**请关注和订阅我们的以下账号：**
+[https://gettr.com/post/pwv33xb61e](https://gettr.com/post/pwv33xb61e)
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+[https://gnews.org/zh-hans/2057139/](https://gnews.org/zh-hans/2057139/)
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+校对/发稿：飞虹
 
-**玫瑰看新闻YOUTUBE账号**：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-65.jpg)
 
-**玫瑰看新闻**
+**更多资讯，更多关注**
 
-**黑森林的故事**
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**ROSE NEWS**
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**【玫瑰看新闻】推特账号**：
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**ROSE NEWS (@ROSENEWS4)A**
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

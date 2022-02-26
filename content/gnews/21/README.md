@@ -2,53 +2,26 @@
 ---
 
 
-## 明斯克协议
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2070441/)
+## 樱花FM|习惯被俄虐？乌克兰总统竟呼吁西方勿制造恐慌
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2070473/)
 
-作者：香草山教育部-雪梨
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-84.png)
-“明斯克协议”，是在顿巴斯战争爆发后，乌克兰政府与乌克兰东部的顿涅茨克人民共和国、卢甘斯克人民共和国两个政权的代表，于2014年9月5日，在白俄罗斯首都明斯克签订的停火协议。2015年2月，相关各方又签订了新明斯克协议，内容包括，根据乌克兰法律，各方就顿涅茨克和卢甘斯克的临时自治政府展开对话，并透过国会决议承认其特殊地位。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-18-1.png)
+关于乌克兰的紧张局势，泽伦斯基总统说“没有必要恐慌”，并批评西方领导人过度强调俄罗斯入侵的可能性。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/minsk.png)
+1月28日，泽伦斯基总统召开新闻发布会，指出“受人尊敬的世界领导人释放信息，好像明天就会有一场战争”。他指出无需这样恐慌，并对美国和其他国家撤离使馆人员的决定作出回应，称外交官就像船长一样，应该是最后离开一艘沉船的人，乌克兰不是泰坦尼克号。
 
-2022年2月，媒体曝光了一份1991年的机密文件，文件显示，在德国统一谈判期间，英、美、法、德外交官曾向前苏联承诺，北约不会东扩。
+乌克兰正在遭受严重的经济危机，包括外国资本的外流，泽伦斯基总统希望防止因对入侵的日益担忧而造成国家的进一步不稳定。
 
-1994年12月，美国、英国、俄罗斯和乌克兰签署了《布达佩斯备忘录》。乌克兰根据该备忘录销毁了核武器和洲际导弹，意欲与美国和欧盟结盟，并通过宪法修正案，将加入欧盟和北约作为国家基本方针写入了宪法。
+这位总统是不是有受虐倾向，还是被虐得不清？看来不是要被强奸，这妥妥是要自愿送上门啊，真是哀其不幸啊！
 
-2022年2月21日，俄罗斯宣布承认顿涅茨克、卢甘斯克独立。
+文字版原文：
+[习惯被俄虐？乌克兰总统竟呼吁西方勿制造恐慌 – GNEWS](https://gnews.org/zh-hans/1933176/)
 
-2月22日，俄罗斯总统普京正式宣布，明斯克协议不复存在。
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
 
-2月24日，俄罗斯正式入侵乌克兰。
-
-参考链接：
-[https://zh.wikipedia.org/wiki/%E5%8C%97%E5%A4%A7%E8%A5%BF%E6%B4%8B%E5%85%AC%E7%BA%A6%E7%BB%84%E7%BB%87](https://zh.wikipedia.org/wiki/%E5%8C%97%E5%A4%A7%E8%A5%BF%E6%B4%8B%E5%85%AC%E7%BA%A6%E7%BB%84%E7%BB%87)
-
-[https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220214-%E4%B9%8C%E5%85%8B%E5%85%B0%E6%BE%84%E6%B8%85-%E5%B9%B6%E6%9C%AA%E6%89%93%E7%AE%97%E6%94%BE%E5%BC%83%E5%8A%A0%E5%85%A5%E5%8C%97%E7%BA%A6](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220214-%E4%B9%8C%E5%85%8B%E5%85%B0%E6%BE%84%E6%B8%85-%E5%B9%B6%E6%9C%AA%E6%89%93%E7%AE%97%E6%94%BE%E5%BC%83%E5%8A%A0%E5%85%A5%E5%8C%97%E7%BA%A6)
-
-[https://gnews.org/zh-hans/2055108/](https://gnews.org/zh-hans/2055108/)
-
-[https://sputniknews.com/20220219/1991-doc-proves-west-did-commit-to-non-expansion-of-nato-eastwards-broke-the-promise–report-1093161024.html](https://sputniknews.com/20220219/1991-doc-proves-west-did-commit-to-non-expansion-of-nato-eastwards-broke-the-promise--report-1093161024.html)
-
-[https://gettr.com/post/pwv33xb61e](https://gettr.com/post/pwv33xb61e)
-
-[https://gnews.org/zh-hans/2057139/](https://gnews.org/zh-hans/2057139/)
-
-校对/发稿：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-65.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
