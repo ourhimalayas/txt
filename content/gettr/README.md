@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gtv_edu 2/26/2022 2:58 AM (UTC)`
+
+《文贵大直播—GEDU专场》<br/><br/>主讲人：新中国联邦创始人 郭文贵先生<br/>主持：QMAY<br/>出镜老师：CanCan  平和  小皮匠   Happy 小刘老师<br/>嘉宾：甜甜<br/>导播：墨镜 小白白<br/><br/>美东时间：2/26/2022 8:30am<br/>北京时间：2/26/2022 9:30pm
+![img](https://media.gettr.com/group13/origin/2022/02/26/02/d0476025-05ce-8da1-3845-e259ea21eda4/c27f802d3e74302293ca9c6ed9201bbe.jpeg)
+
+---
+
 `@miles 2/26/2022 7:40 AM (UTC)`
 
 2/25/2022 Miles Guo: What are the two ultimate tactics for the UK to bring Russia to its knees? What is the meaning behind the US and European stock markets? The West will impose sanctions on the CCP, which will certainly be followed by military operations against the CCP. There will only be two financial systems in the future - the dollar system and the system of the New Federal State of China.<br/><br/>2/25/2022 文贵直播：英国干掉俄罗斯的两大绝招是什么？美欧股市的背后暗藏了什么玄机？西方将对中共的制裁并一定会有军事行动；未来世界的财富只有两家 - 美元系统和新中国联邦系统<br/>
@@ -146,12 +155,6 @@
 
 2/24/2022 Miles Guo’s GETTR: Ukraine is shrouded in darkness. All wars serve the interests of only a handful of people, while the innocent people would end up as victims. The war in Ukraine has become the justification for the collapse of the global economy, and the ups and downs in the financial market are bound to destroy countless families.<br/><br/>2/24/2022 文贵盖特：乌克兰阴云密布，所有战争都服务于极少数人的利益，而无辜的人们却沦为牺牲品；乌克兰战争竟成为了全球经济崩溃的理由，金融市场的震荡会让多少人家破人亡？<br/>
 ![img](https://media.gettr.com/group44/getter/2022/02/24/22/aef22370-569a-3f7a-d3ff-056212edaac7/out.jpg)
-
----
-
-`@miles 2/24/2022 10:11 PM (UTC)`
-
-🆘🆘🆘为了集合全球战友资源救助台湾战友，联盟发放统一登记表格，请有可能提供救助资源的战友填写，表格链接：<br/><br/>https://forms.gle/pgVrayLJKqS7NMsN8<br/><br/><br/>联盟-身在台湾的战友撤离统计表单：<br/><br/>https://docs.google.com/forms/d/e/1FAIpQLScjccjoDUB3u-OhC-zeZDvvtiHqxXo1z4h6Ls_LkxxtLZEYJw/viewform
 
 ---
 

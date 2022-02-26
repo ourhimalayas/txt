@@ -2,31 +2,33 @@
 ---
 
 
-## 拜登提名首位非洲裔女性大法官
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2068353/)
+## 疫苗灾难的爆发程度以及应对方法
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2068421/)
 
-**撰稿：日本东京方舟农场 北极**
+撰稿：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
+在2月23日的大直播中，郭文贵先生分析了疫苗大灾难爆发的程度，以及战友们应对的办法。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2429.png)
+郭先生指出，在全世界反对强制疫苗的抗议浪潮中，新中国联邦一直站在前列。班农战斗室、艾滋病的发现者吕克.蒙塔尼耶教授，以及各国有良知的医学家，都对反强制疫苗做出了卓越的贡献。全世界将近50亿人注射了疫苗，可能会有20亿人患病、致残或者死亡。这个数字比原先的估计要好很多。
 
-白宫星期五(2月25日)宣布，美国总统拜登决定提名联邦上诉法院法官凯坦吉·布朗·杰克逊(Ketanji Brown Jackson)出任最高法院大法官，杰克逊有望成为第一位任职美国最高法院大法官的黑人女性。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/001.png)杰克逊法官25日获得拜登总统提名后，在白宫面对记者（图片来自美国之音）
-杰克逊现年51岁，在迈阿密长大，毕业于哈佛大学法学院，目前是美国哥伦比亚特区联邦巡回上诉法院（U.S. Court of Appeals for the District of Columbia Circuit）法官。
+郭先生强调，5月份全世界疫苗灾难大爆发后，战友们要冷静对待，减少外出，尽量不要染病。另外，世界上的正义力量也在加紧研制疫苗解药。身在欧洲的科学家表示，会找出许多出人意料的解决方法。
 
-她拟接替83岁的退休自由派大法官斯蒂芬·布雷耶(Stephen Breyer)，布雷耶是目前最高法院大法官中最年长的一位，他从1994年以来一直在任，目前打算在今年6月底退休卸任。
+新闻链接：[2/23/2022 Miles Guo](https://www.gettr.com/post/pwi58meb62)
 
-美国历史上共有115人担任过最高法院大法官，其中只有过两名非洲裔法官，而且都是男性。
+编辑：宁文静
 
-杰克逊如果得到参议院的确认，将成为有史以来第六位女性最高法院大法官，最高法院目前有三名女法官。
+总编：飞虹
 
-美国最高法院目前保守派占多数，与自由派为6比3的比例，其中包括前总统特朗普任命的三名法官。
+校正/发稿：浪迹天涯
 
-最高法院在美国生活中发挥不可或缺的作用。它将在未来几个月内对可能限制堕胎权和扩大枪支权利的案件作出裁决。此外，最高法院还将审理有关种族问题的案件，这可能会终止高校的平权法案，该法案用来增加黑人和西班牙裔学生人数。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-参考链接：
-[https://www.voachinese.com/a/biden-supreme-court-nominee-jackson-20220225/6459864.html](https://www.voachinese.com/a/biden-supreme-court-nominee-jackson-20220225/6459864.html)
 
-素材采编：北极
-编辑：老孙
-发布：Linda
 
  
 

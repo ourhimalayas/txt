@@ -2,34 +2,32 @@
 ---
 
 
-## 德国保险公司揭示疫苗副作用数据远超政府报告
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2068444/)
+## 大直播后记：UBS吐钱的秘密
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2068507/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
-据2月23日外媒报道，一家德国医疗保险公司出具的报告表明，实际的中共病毒疫苗不良反应的数据，要比德国政府披露的高很多倍。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2430.png)图片来自：https://www.infowars.com/
-该公司对超过1090万名保户进行了分析，从2021年初到第三季度中期，共有约21.7万人涉及中共病毒疫苗副作用而接受治疗。主要不良反应体现为接种后败血症、皮疹、疫苗或生物活性并发症以及其他症状。而德国卫生部记录的数据为，总人口6140万，在14个月中只记录了不足24.5万份疫苗不良反应。该保险公司CEO绍夫贝克先生称，从保单记录的数据来推断，中共病毒疫苗产生的不良反应就医可能已达到300万人次。他呼吁德国民众在决定接种之前慎重考虑中共病毒疫苗的副作用。
+#### 整理：雨桐、HomeL
+编辑：小红帽
 
-医学统计学家格特·安蒂斯说，联邦卫生系统有责任迅速核实政府报告数据与实际疫苗不良反应数据不匹配的状况。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/27d4c5024cf15eb4.png)图片来源：雅典娜农场设计组（614）
 
-新闻来源：[“Alarm Signal”: Number of Vaccine Side Effects Significantly Higher Than Government Reports, Insurance Company Finds](https://www.infowars.com/posts/alarm-signal-number-of-vaccine-side-effects-significantly-higher-than-government-reports-insurance-company-finds/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5-1-2.png)
+UBS这个案子可以引出沼泽地，共产党以及世界上法律系统所有黑暗的历史。第二个，只要上庭，这件事情就会有黑暗，有过程。这会一直缠斗下去。最终由于UBS的傲慢，一定在你过程当中，就像PAG单伟建这个孙子一样，会想尽一切非法手段。像Andy Moth 这个律师，严重违背职业道德，那是犯罪。你等着，咱一定告他，一定把他这个法律牌照给拿掉，一定跟他没完。在这个事情，我们一定让美国司法部介入调查–PAG单伟建，他儿子几亿美元的房子和单伟建PAG偷盗美国养老基金。
 
-编辑：宁文静
+我就纳闷了，为什么咱们战友不去集体起诉他呢？你们在美国的居民都有权利起诉的，只要买了养老基金的。中国人就光说不行，为啥不行动呢？这些事情都可以把UBS告上法庭。像单伟建，他腐败西方，蓝金黄西方，是对西方的所有的个人利益，养老基金的和金融的最大威胁。我们要把这金融核弹给他拔除。拔除以后，最重要的是，让UBS返还这100多万亿给中国人，必须还回去。
 
-总编：飞虹
+你们没有想过怎么让UBS还钱吧？我今天告诉大家。让UBS能吐出钱的唯一办法就是知道它更多的秘密，而且这个秘密不能是偷来的。在西方，我要是把佳佳和小王子两个人双修的视频拿到网上去，不能作为证据。我说，“小王子双修四个加加了”。，人家说，“你证据哪来的”？“有视频证明”。“偷录的不算数”。证据的来源必须是合法地。这给政治财政局才有效。我们通过法庭，通过所有的deposition让它露出来。然后，我可以告诉大家，你会突然发现日本的金融跟UBS关系很深。日本的腐败资金，黑金也跟UBS连在一起，就像新加坡一样。世界上最厉害的现在就是瑞士卢森堡。新加坡是关岛藏钱最多的国家。我们一定要给它彻彻底底消灭掉，并且还给中国100多万亿，把中国人所有欠的信用卡，所有现在房地产的贷款，老百姓们的养老保险，教育保险以及教育的钱拿回来。未来100年都不用再愁心了，我们就替你们操办了。
 
-校正/发稿：浪迹天涯
+**资料来源**：[郭文贵先生2022年2月25日大直播](https://gtv.org/video/id=6218d34708ba8a07b1a341e7)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
+*发布：玉米地守望者*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
