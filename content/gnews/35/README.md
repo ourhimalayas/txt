@@ -2,42 +2,29 @@
 ---
 
 
-## 俄乌战争首日 乌克兰军民137人死亡316人受伤
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2067723/)
+## 北约首次启动反应部队NFR
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2068099/)
 
-作者：新西兰伊甸农场-玫瑰
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
-据乌克兰媒体25日报导，俄罗斯对乌克兰发动大规模军事攻击的第一天，乌克兰共有137名军民丧生，316人受伤。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2418.png)
-乌克兰国防部长表示，东部的顿巴斯仍持续面临俄罗斯的猛烈炮击。
+#### 撰稿：彩虹       
 
-乌克兰军方曾宣布，俄军北部攻势在切尔尼戈夫被挡住，至少6架敌方定翼机、2架直升机和数十辆装甲车辆被摧毁，但也指出哈尔科夫和南部重要港口刻松等区域发生了激烈战斗。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16458552131.png)图片来源：Time
+2月25日，《国会山报》报道，为应对俄罗斯对乌克兰的入侵，北约（NATO）首次启动北约反应部队（NATO Response Force – NFR）。
 
-俄罗斯国防部则发布声明称，东部部队突破乌克兰前线，乌克兰边防部队并未抵抗。
+周五，北约国家元首和政府首脑举行了联盟虚拟峰会并发布了一份联合声明，声明说：“为应对一系列突发事件和确保联盟领土安全做好准备，我们已经启动了北约的防御计划，包括动用我们的反应部队。我们现在正在向联盟的东部地区进行大量的额外防御性部队部署。我们将进行所有必要的部署，以确保现在和将来整个联盟的强大和可信的威慑和防御。”
 
-不过，俄国国防部发言人拒绝透露有多少人员伤亡。
+报道指，这一非同寻常的举动标志着北约首次启动NRF，这是一支由大约4万名陆军、空军、海军和特种作战人员组成的多国部队，联盟可以根据需要在短时间内进行部署。北约所有30个成员国都必须同意启动这支部队，他们在星期四就这样做了。
 
-参考链接：
-1、[烏克蘭戰事首日137死316傷 徵召義務役及後備人員](https://www.cna.com.tw/news/aopl/202202250019.aspx)
-2、[不斷更新／烏克蘭國防軍籲「全民從軍」　未成年也要動員起來！](https://www.ettoday.net/news/20220225/2196172.htm#ixzz7Ls8su5YI)
+值得注意的是，五角大楼在1月份就将8500名美国军队置于这种任务的高度警戒状态，随着NRF现在被激活，这些军队可能很快被命令前往欧洲，帮助支持乌克兰附近的北约国家。然而，拜登总统强调，他们不会去乌克兰，因为乌克兰不是该联盟的成员。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+峰会后，北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）对记者说，美国、加拿大和欧洲盟国已经在联盟东部地区部署了“数千名更多的部队”，有100多架喷气式飞机和120艘船只在30多个地方进行高度戒备。
 
-总编/编辑：飞虹
-校对/发稿：小野貓（文凱琳）
+截止目前，美国已经在德国、罗马尼亚和波兰等地部署或重新部署了大约15000名美国军人。
 
-**更多资讯，更多关注**
+**新闻来源**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[NATO activates response force for first time in history](https://thehill.com/policy/defense/595876-nato-activates-response-force-for-first-time-in-history)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,34 @@
 ---
 
 
-## 有声｜为规避种族歧视，美政府调整“中国行动计划”
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2068242/)
+## 美国前驻联合国大使警告 中共将攻打台湾
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2068326/)
 
-By:**秘翻新闻**
+撰稿：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
+2月24日，美国前驻联合国大使尼基·黑莉女士，在接受福克斯新闻采访时警告，中共会因为乌克兰局势而攻打台湾。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2426.png)
+在采访中，黑莉表示，中共国与俄罗斯属于重要伙伴关系，乌克兰的目前局势，会让一直叫嚣台湾是其一部分的中共国做出行动。而行动的早晚则取决于，美国是否能迅速地在乌克兰局势上做出强硬的决策，如果不能迅速而正确地处理乌克兰问题，中共一定会快速入侵台湾。
 
-**2022-02-26**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-34.png)图片来源 新唐人
-[据《新唐人》2月26日报道，美国司法部2月23日宣布，因为种族歧视问题，终止前总统川普时期发起的“中国行动计划”。](https://www.ntdtv.com/gb/2022/02/25/a103357947.html)
+郭文贵先生曾在直播中提醒，乌克兰只不过是西方政客测试和逼迫普京与习近平的工具，他们不会将乌克兰的安危放在第一位，除非习近平出现身体突发状况，否则中共一定会攻击台湾，台海危机已经迫在眉睫。我们再次提醒台湾同胞务必小心。
 
-[过去两年来，这项专门针对中共间谍活动、防止中共盗窃商业机密和先进技术的行动计划，不断遭到涉及种族主义的指控，称其不公平的针对了美国大学的华人教授，助长了反亚裔偏见。](https://www.ntdtv.com/gb/2022/02/25/a103357947.html)
+新闻链接:
 
-[拜登政府以此为由，决定对先前的“中国行动计划”进行调整，将其扩展为针对更多敌对国家，包括俄罗斯、伊朗和朝鲜等，而不再只是针对中共。](https://www.ntdtv.com/gb/2022/02/25/a103357947.html)
+[20220224美國前駐UN大使黑莉接受FOX採訪](https://www.gettr.com/post/pwp7cydace)
 
-[美国助理司法部长奥尔森称，将坚持不懈的保卫美国不受中共国影响，该部门会继续优先并积极反击中共政府伤害美国人民和机构的行为。奥尔森强调，美国关注的是中共政府及其代理人，而不是中国民众或华裔人士，因此把中共和中国人民区分开来至关重要。](https://www.ntdtv.com/gb/2022/02/25/a103357947.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-266.png)
 
-秘翻新闻 巴拉克 编辑报道
+编辑/总编: 飞虹
 
-发布 : 恩典
+校正/发稿：浪迹天涯
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

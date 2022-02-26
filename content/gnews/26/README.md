@@ -2,27 +2,40 @@
 ---
 
 
-## 有声｜习近平致金正恩，称愿在新形势下开展合作
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2068142/)
+## 视频|美国将是当前世界政治游戏的最大赢家
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2068201/)
 
-By:**秘翻新闻**
+制作：香草山视频部
 
-**2022-02-26**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-39.png)图片来源 路透社Yoan Valat/Pool via REUTERS
-[据路透社2月26日消息，朝鲜官方媒体朝中社周六报道，中共国国家主席习近平向朝鲜领导人金正恩强调了两国合作的重要性。朝中社表示，习近平向金正恩表示，中共国愿与朝方一道，在新形势下稳步发展中朝友好合作关系。但朝中社没有进一步详细说明新形势的性质。](https://www.reuters.com/world/china/chinas-xi-message-nkoreas-kim-vows-cooperation-under-new-situation-kcna-2022-02-25/https://www.reuters.com/world/russia-vetoes-un-security-action-ukraine-china-abstains-2022-02-25/)
+在2月23日的大直播中，郭文贵先生分析了当前的世界形势，指出美国才是世界政治游戏中的最大赢家。
 
-[据朝中社报道，习近平发表上述讲话是为了回应金正恩对北京冬奥会的贺电和冬奥会圆满闭幕后的口头祝贺。](https://www.reuters.com/world/china/chinas-xi-message-nkoreas-kim-vows-cooperation-under-new-situation-kcna-2022-02-25/https://www.reuters.com/world/russia-vetoes-un-security-action-ukraine-china-abstains-2022-02-25/)
+郭先生说，拜登和布林肯是真正的政治玩家，他们的一箭多雕政策非常高明。他们一再宣传俄罗斯要侵略乌克兰，让全世界感到了恐惧。这让普京误以为，他应该进行所谓的“依法”收回乌克兰，然后降伏白俄罗斯，再用中共的钱打造他梦想中的尼古拉帝国时代。
 
-[本周早些时候，金正恩在给习近平的口头信息中誓言要加强与中共国的合作，共同挫败来自美国及其盟国的威胁和敌对政策。](https://www.reuters.com/world/china/chinas-xi-message-nkoreas-kim-vows-cooperation-under-new-situation-kcna-2022-02-25/https://www.reuters.com/world/russia-vetoes-un-security-action-ukraine-china-abstains-2022-02-25/)
+事实是，美国政府已经察觉到，世界上许多国家在疏远美国，而与中俄勾兑，所以美国要用实力和策略来证明，到底谁是世界的领导者。
 
-[自1961年两国签署条约以来，中共国一直是朝鲜唯一的主要盟友。](https://www.reuters.com/world/china/chinas-xi-message-nkoreas-kim-vows-cooperation-under-new-situation-kcna-2022-02-25/https://www.reuters.com/world/russia-vetoes-un-security-action-ukraine-china-abstains-2022-02-25/)
+首先，他们利用习近平将中共国的经济和国家信用彻底搞垮了。
 
-秘翻新闻 文洋 编译报道
+其次，普京已经自绝于俄罗斯人民；目前还要应对西方经济制裁，和内部随时可能的突发事件；这使普京处于极度危险中。
 
-发布 : 恩典
+再次，那些被威胁而跟着俄罗斯的东欧国家，经济已经全面崩溃。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
+最后，欧洲和北约本来要与美国离心离德，美国却只用外交手段，就把欧洲和北约彻底拿下了。普京客观上也在帮助欧洲全面加速倒向美国。
+
+世界正面临数字经济时代的转型，美国超印的几十万亿美元，正需要有人买单。全世界出于对战争的恐惧，将把天文数字的资金注入美国。
+
+至此，美国从政治，经济，外交以及世界地位等方面，全盘皆赢。
+
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
