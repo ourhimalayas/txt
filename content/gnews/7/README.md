@@ -2,45 +2,48 @@
 ---
 
 
-## 中共说铁链女是“小花梅”，你就必须是“小花梅”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2069351/)
+## 泽连斯基需要反坦克的弹药 而不是离开他的国家。
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2069477/)
 
-**【国内新闻短评】**
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-新华网2022年2月23日发布：江苏省委省政府调查组发布“丰县生育八孩女子”事件调查处理情况通报
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2487.png)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2488.png)
-**短评：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-中共江苏省委省政府有关徐州丰县铁链女的报告出炉。其中废话、谎话一堆我们自然是见怪不怪；最关键的是铁链女身份问题，中共面对事实继续维护牠们的谎言与罪恶，虽说民愤难平，却符合中共一贯的邪恶行径。
-承认铁链女是李莹意味着中共“铜墙铁壁”的破裂。
+乌克兰总统弗拉基米尔·亚历山德罗维奇·泽连斯基（Volodymyr Oleksandrovych Zelensky）办公室在Instagram上发布了一段标题为“我们在这里，我们在基辅，我们正在保卫乌克兰”的视频，视频中，泽连斯基和他的高级官员站在乌克兰总统府旁。
 
-如果铁链女是李莹，那就意味着中共承认徐州市委市政府多次报告造假，意味着中共徐州政府承认自己自上而下的集体犯罪，意味着作为中共奴才的援藏老兵都无法保护自己的女儿，意味着“炮灰和爪丫们对中共的失望和愤怒，意味着爱党爱国粉蛆们的玻璃心破碎，也就意味着中共“铜墙铁壁”的破裂。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/zelensky-video-.jpg)
 
-**承认铁链女是李莹意味着民意的第一次胜利**
+尽管乌克兰首都基辅很快会沦陷，很多人可能和我一样，在过去并不了解乌克兰和泽连斯基，但我想信，这一刻，很多人都会欣赏他的勇气。
 
-更为严重的是，如果中共按事实承认铁链女是李莹，那么在这场近一个月的奴隶和奴隶主之间的真相正义与谎言邪恶的斗争中，奴隶将第一次取得胜利。一旦开了第一次胜利的先河，那么就会有第二次、第三次、第四次……第N次，就会让全球民众看到中共的百年谎言、邪恶与累累罪行，也就相当于在这块土地上第一次真相、正义的胜利，可能就是中共的最后一次失败。
+但中共国媒体称报道，俄方称泽连斯基早已离开基辅，所有呼吁视频都是提前拍的。
 
-**承认铁链女是李莹意味着中共的自贡**
+泽连斯基究竟是提前录制的视频还是现场拍摄的，对乌克兰人民抗击俄罗斯的入侵肯定非常重要，但此时，作为邪恶轴心国的中共，对泽连斯基任何负面报道，恐怕都不能相信。
 
-不仅如此，如果中共按事实承认铁链女是李莹，那么随着中共谎言、邪恶与罪行的公诸于世，中共自上而下的体制之恶就会血淋淋的展现在十四亿爱党爱国粉蛆们的面前，那么，中共邪恶的犯罪体制就会崩塌，就等同于中共七十多年政权统治的风雨飘摇，也就等同于中共的自贡。
+在这段视频中，泽连斯基对乌克兰人民说：“大家晚上好，各党派领袖都在这里，总统府的主要负责人都在这里，总理丹尼斯﹒什米哈尔在这里，总统办公室主任顾问米哈伊洛﹒波多利亚克在这里，总统在这里，我们都在这里。我们的军队在这里，公民和整个社会都在这里。我们都在这里捍卫我们的独立，我们的国家，它将继续如此。荣耀归于我们的捍卫者！荣耀归于我们勇敢的女性捍卫者！荣耀归于乌克兰！”。
 
-**小结**
+（”Good evening, everyone. Leader of the faction (party) is here, head of the president’s administration is here, Prime Minister (Denys) Shmyhal is here, (adviser to the head of the President’s Office Mykhailo) Podoliak is here. The president is here. We are all here. Our military is here. Citizens and society are here. We are all here defending our independence, our state and it will remain so. Glory to our defenders! Glory to our women defenders! Glory to Ukraine!”）
 
-无论是“铜墙铁壁”的破裂，还是奴隶的第一次胜利和中国犯罪体制的崩塌，都是中共绝不容许的。所以，即使再多的真相证明铁链女是李莹，中共也必须让铁链女成为“小花梅”。
+昨天，乌克兰军方表示，他们在基辅以南25英里的Vasylkiv 城附近击落了一架载有伞兵的俄罗斯军用Ilyushin Il-76重型运输机。6个小时前，两名直接了解乌克兰地面情况的美国官员称，第二架俄罗斯Ilyushin Il-76军用运输机在基辅以南50英里（85公里）的Bila Tserkva附近被击落。
 
-文章观点仅代表作者个人，与Gnews 平台无关
+目前，反对俄罗斯军队的街头战斗正在基辅进行中，乌克兰官方建议居民留在避难所，避免靠近窗户或阳台，并采取预防措施防止被碎片或子弹击中。
 
-新闻链接：
-**[http://www.news.cn/politics/2022-02/23/c\_1128407989.htm](http://www.news.cn/politics/2022-02/23/c_1128407989.htm)**
+泽连斯基24号在电话中告诉欧洲领导人，他是俄罗斯的头号目标，而且他们可能再也见不到他了，他的下落一直被保密。
 
-素材：洛杉矶盘古农场 — 心照
-评论：洛杉矶盘古农场 — 心照
-编审：洛杉矶盘古农场 — 柯震恶
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+7小时前，美联社报道，一名美国官员证实，美国准备帮助乌克兰总统泽连斯基离开基辅，以免被入侵的俄罗斯军队俘虏或杀害，然而，泽连斯基拒绝离开他的国家。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+一位直接了解谈话内容的美国高级情报官员援引泽连斯基的话说，“战斗就在这里”，他需要反坦克的弹药，而“不是逃跑”（I need ammunition, ‘not a ride’）。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/FMfarZbaAAI_QyO.jpg)
+
+参考资料：
+
+[Ukraine’s Zelensky rejects US evacuation offer: I need ammunition, ‘not a ride’](https://www.timesofisrael.com/zelensky-rejects-us-evacuation-offer-from-ukraine-i-need-ammunition-not-a-ride/)
+
+[Rejecting US evacuation offer, Zelensky says: I need anti-tank ammo, ‘not a ride’](https://www.timesofisrael.com/liveblog-february-25-2022/)
+
+[俄方称泽连斯基早已离开基辅：所有呼吁视频都是提前拍的](https://sv.baidu.com/videoui/page/videoland?context=%7B%22nid%22%3A%22sv_8186707626548131376%22%2C%22sourceFrom%22%3A%22bjh%22%7D)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

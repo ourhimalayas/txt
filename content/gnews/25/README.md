@@ -2,253 +2,59 @@
 ---
 
 
-## 中国人真的这么容易忘却吗？
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2068986/)
+## 新州政府不会强制议会成员接种新冠疫苗
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2069065/)
 
-[https://gtv.org/video/id=62197f7b1408ee3a03a4e6f4](https://gtv.org/video/id=62197f7b1408ee3a03a4e6f4)
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-76.png)图片来自网络
+《悉尼先驱晨报》近日报道，州长多米尼克·佩罗特已排除对新南威尔士州议会成员强制接种疫苗的可能性，因为有人指责自由党内未接种新冠疫苗的议员存在“阴谋集团”。
 
-我们中国人 忘记疼痛
+虽然他强烈鼓励所有国会议员接种疫苗，但佩罗特先生说他无法确认是否所有政府成员都接种了新冠疫苗。
 
-忘记痛苦 忘记灾难(的速度)
+“我不知道自由党成员的个人医疗问题和决定，”他周四表示。
 
-可能是全世界最快的
+Mulgo选区的自由党成员周四下午向《先驱晨报》证实，她有有效的医疗豁免，可以不接种新冠疫苗，而高级政府议员认为，他们的队伍中至少还有其他人未接种新冠疫苗。
 
-最爱憧憬未来 幻想未来
+戴维斯女士说：“我有有效的医疗豁免，因此我履行了众议院发布的履行我的议会职责的指导方针。”
 
-你看很多人 包括咱们战友
+“我还在每个议会开会日进行快速抗原检测，并遵守所有其他中共病毒安全要求。”
 
-就是啥事 出现了1
+反对党警方发言人沃尔特·塞科德周三下午告诉议会，有一群自由党议员尚未接种新冠疫苗。
 
-他能给你想出一个亿出来
+“不幸的是，新南威尔士州自由党的议会队伍中有一个反疫苗集团，”他告诉议会。
 
-1 到后边升无数
+“我呼吁总理对议会党内拒绝接种新冠疫苗的人采取行动。”
 
-1升无数 不用3升无数
+塞科德先生表示，新南威尔士州议会内部存在明显的双重标准，因为民选官员正在通过立法，要求为数千名工人接种疫苗，但他们并没有坚持同样的标准。
 
-幻想劲儿 极强
+塞科德先生说：“我和反对派完全支持新南威尔士州政府的新冠疫苗授权，导致超过 1100 人因为拒绝接种新冠疫苗而离开新南威尔士州公共卫生人员队伍。”
 
-但是中国人 对过去的疼痛 灾难 基本上不记得
+“我们支持为基本工人接种新冠疫苗，但我们也支持一致性。”
 
-就像那锁链女一样
+周四早上，当被问及他的队伍中是否有未接种疫苗的议员时，佩罗特先生说：“我不知道。”
 
-24年的疼(痛)
+他说：“我的期望是议会的人都接种了新冠疫苗，我收到的信息没有指向另外一个方向。”
 
-你能忘掉吗
+“我不知道自由党成员的个人医疗问题和决定。”
 
-三天前咱们一个女战友
+佩罗特先生已完全接种疫苗，并且是新冠疫苗的坚定支持者。
 
-说 七哥 你知道吗
+“在过去的八个月里，我一直在鼓励接种新冠疫苗，”他说。
 
-我11岁 就被我爸爸的同事给强奸了
+财政部长马特·基恩、就业部长斯图尔特·艾尔斯和地方政府部长温迪·塔克曼证实，他们周四在与州长举行的新闻发布会上完全接种了新冠疫苗。
 
-我到了16岁
+“我绝对可以排除自己是一名反疫苗者，我认为未接种新冠疫苗的人正在从事愚蠢和危险的行为，”基恩先生在被问到时说。
 
-我又被我哥的同事强奸
+新南威尔士州立法议会议长乔纳森·奥迪周四下午发表声明说，所有下议院议员如果完全接种新冠疫苗或获得有效的医疗豁免，都可以参加议会。
 
-我给我爸说 给我哥说
+“众议院授权我执行这些规则，去年年底对合规性进行了审计。我被告知并理解所有立法会议员都遵守了这些规则，”他说。
 
-两次都被息事宁人
+制定规则的人自己不打，却让老百姓当小白鼠，然后用工作等其他限制要挟，请问公平性在哪里呢？
 
-不要再说了 你还得嫁人呢
+参考链接：
 
-她说 七哥 我(被)忘掉了两次强奸
-
-你说这个女的被强奸24年 天天被强奸
-
-她是啥感觉
-
-我说 这就是我们中国人的根结 因和缘
-
-就因为有你这样 两次被你爸
-
-你哥的同事强奸不说
-
-它才能结出这样 24年 被轮奸
-
-生出八个孩子 这样的结果
-
-我徐州的一个好朋友
-
-昨天给我发信息 给我说什么
-
-七哥 整个徐州现在建了好几堵墙
-
-他说 你能想像
-
-这个锁链女的村旁边建上了铁墙吗
-
-你能想像那个医院里边
-
-现在警察建立了一道200多(个人的)警察墙吗
-
-就这个事 徐州咱那个哥们跟我说
-
-说 讲话内部
-
-这个事可能要折腾一个月
-
-由于西方反华势力 郭文贵
-
-以及他所谓建的犯罪集团
-
-反党反国集团
-
-新中国联邦
-
-利用所谓的锁链女事件 大肆炒作
-
-这个事情 可能要进行四周到六周的时间(来处理)
-
-严查
-
-紧急的24小时的进行网络封锁
-
-就是现在这个锁链女(事件) (预定)六周(结束)
-
-现在已经大概四周了吧 还有两周时间
-
-估计这事就过了
-
-我特别想问问中国人
-
-我们中国人真的就是这么容易忘掉(吗)
-
-被强奸两次 然后等待着
-
-很有可能 发生在你家身上的 24年的轮奸吗
-
-我们真的那么容易忘记吗
-
-The speed at which we Chinese forget pain
-
-forget suffering and forget disaster
-
-is probably the fastest in the world
-
-And the most paranoid about imagining the future
-
-Many people including our fellow warriors
-
-No matter what,as long as there is 1 appears
-
-It will be thought of a billion out for you
-
-1 then rises to infinity
-
-Goes directly from 1 to infinity skipping the middle process
-
-The impulse to fantasize is extremely strong
-
-But the Chinese do not remember the pains and disasters of the past
-
-Just like the chained girl
-
-24 years of pain
-
-Will you forget it?
-
-Three days ago, one of our female fellow warriors
-
-Said, Miles! do you know？
-
-I was raped by my father’s colleague when I was 11
-
-Then I reached the age of 16
-
-I was raped again by my brother’s colleague
-
-I told my dad, I told my brother
-
-Both times were mercilessly overshadowed
-
-“Stop saying that, otherwise how can you marry someone?
-
-She said, Miles! I was raped twice both times forgotten and covered up
-
-Then this girl has been raped for 24 years, raped every day
-
-How bad does she feel?
-
-I say, this is the root knot of our Chinese people, cause and origin
-
-Just because you were raped twice by colleagues of your father
-
-and your brother,and you didn’t to fight for your rights
-
-It is for this reason that the end of being raped for 24 years
-
-and giving birth to eight children occurred
-
-and A good friend of mine in Xuzhou
-
-sent a message to me yesterday
-
-Miles, in Xuzhou now built a number of walls
-
-He said, can you imagine
-
-that An iron wall was built around the village of this chained girl?
-
-Can you imagine the hospital where the chained girl lives
-
-now building a wall of over 200 police officers?
-
-About this event, our buddy in Xuzhou told me
-
-Internal discussion said
-
-This thing may be tossed around for a month
-
-Due to the Western anti-Chinese forces Guo Wengui
-
-and the criminal group he supposedly built
-
-the anti-party and anti-national group
-
-New Federal State of China
-
-Using the so-called chained woman event to create a lot of hype
-
-This event may take four weeks to six weeks to process
-
-Strictly investigate
-
-Emergency 24-hour blocking of the network
-
-That is, this chained girl event is scheduled to end in six weeks
-
-It’s been about 4 weeks now and two weeks to go
-
-It is estimated that this event will be over
-
-I especially want to ask the Chinese
-
-Do we Chinese really forget things that easily?
-
-Forget being raped twice and then waiting for
-
-24 years of gang rape that most likely will to happen to your family?
-
-Do we really forget that easily?
-
-* * *
-
-日期那里：02//20/2022
-原视频标题: 中国人真的这么容易忘却吗？
-Do we Chinese really forget things that easily?
-任务编号：LP008
-视频时间段 : 0:00-02:45
-英听校： 洛杉矶盘古农场 – 庚子
-翻译：洛杉矶盘古农场 – 庚子
-翻译终校：洛杉矶盘古农场 – 银龙
-字幕+视频制作：洛杉矶盘古农场-庚子
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[https://www.smh.com.au/national/nsw/anti-vax-cabal-no-vaccine-mandate-for-nsw-parliament-20220224-p59zfu.html](https://www.smh.com.au/national/nsw/anti-vax-cabal-no-vaccine-mandate-for-nsw-parliament-20220224-p59zfu.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

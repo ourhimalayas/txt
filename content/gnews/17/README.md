@@ -2,26 +2,30 @@
 ---
 
 
-## 有声｜美国白宫要求国会为乌克兰拨款64亿美元
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2069231/)
+## 有声｜美欧加大对俄制裁力度 直接针对普京
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2069261/)
 
 By:**秘翻新闻**
 
 **2022-02-26**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/226_2-1-scaled.jpg)图片来源 SPUTNIK
-据[《路透社》](https://www.reuters.com/world/us/white-house-asks-congress-64-billion-ukraine-crisis-2022-02-25/)华盛顿2月25日报道，周五，美国拜登政府和国会助手表示，白宫要求国会批准64亿美元的援助，以解决俄罗斯本周入侵乌克兰后的人道主义和安全危机。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/226_3-scaled.jpg)图片来源 路透社
+据美联社2月25日报导，美国和欧洲盟友周五表示，正在加强对俄罗斯入侵乌克兰的制裁，增加直接针对普京总统及其外交部长的措施。
 
-据报道，白宫管理和预算办公室的一名官员称，拜登政府确定，由于俄罗斯毫无理由的入侵，美国需要向乌克兰和中欧伙伴提供更多的人道主义、安全和经济援助。该请求包括29亿美元的安全和人道主义援助，以及35亿美元的国防支出，共64亿美元。
+白宫表示，美国正在准备对普京和俄外交部长拉夫罗夫、国防部长绍伊古实施制裁，可能包括旅行禁令。这一消息是在欧盟宣布打算冻结普京的资产之后几个小时宣布的，同时英国首相约翰逊称英国也将制裁普京和拉夫罗夫。
 
-在过去一年中，美国已经承诺向乌克兰提供6.5亿美元的安全援助和5200万美元的人道主义援助，以及上周宣布的10亿美元的主权贷款担保。
+美国周五的措施阻止了普京和拉夫罗夫接触美国官员可以接触到的任何资产，并禁止美国境内任何人与他们做生意。此次针对国家元首的制裁极为罕见。
 
-周五早些时候，负责监督对外援助的美国参议院小组委员会主席、民主党参议员克里斯·库恩斯表示，他将支持100亿美元或更多的资金来解决俄罗斯入侵乌克兰后的危机。
+欧盟官员们表示，仍有可能实施进一步的制裁，包括将俄罗斯赶出全球金融交易的主要系统SWIFT。
 
-（秘翻新闻  冰糖葫芦喵编译报道）
+当亚洲大多数国家团结起来支持乌克兰时，中共国却继续谴责对俄罗斯的制裁，并指责美国及其盟国对莫斯科进行挑衅，同时中共加大与俄罗斯的贸易，为其提供经济支持。
+
+(秘翻新闻 文洋 编译报导)
 
 链接
 
-[https://www.reuters.com/world/us/white-house-asks-congress-64-billion-ukraine-crisis-2022-02-25/](https://www.reuters.com/world/us/white-house-asks-congress-64-billion-ukraine-crisis-2022-02-25/)
+[https://apnews.com/article/russia-ukraine-vladimir-putin-business-china-asia-b57700241d650315db1eb0e8516ce2d6](https://apnews.com/article/russia-ukraine-vladimir-putin-business-china-asia-b57700241d650315db1eb0e8516ce2d6)
+
+[https://www.reuters.com/world/us-expected-impose-sanctions-russias-putin-soon-friday-cnn-2022-02-25/](https://www.reuters.com/world/us-expected-impose-sanctions-russias-putin-soon-friday-cnn-2022-02-25/)
 
 发布 : 文橙
 
