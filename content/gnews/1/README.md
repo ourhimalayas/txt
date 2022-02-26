@@ -2,26 +2,34 @@
 ---
 
 
-## 放在西方文明国家传统银行的存款已经不安全
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2070574/)
+## 美国驱逐俄驻美第二号外交官
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070622/)
 
-加拿大卡车司机的运动中，部分司机的个人银行账户被冻结，资产可能被没收。
+作者：首尔天池农场—追着曙光跑
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月24日，据相关媒体报道，美国国务院发言人当天发布声明表示，美国将驱逐俄罗斯驻美国大使馆的第二号外交官，用以回击俄罗斯本月驱逐美国驻莫斯科副大使的做法。
 
-这是发生在西方文明高度发达的加拿大。瞠目结舌！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/FT.jpg)
-昨天的香港，今天的加拿大！香港运动上，西方国家和政府只是动动口，毫无行动力的支持港人追求民主与自由，实际是对邪恶、专制、独裁最大的纵然！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-10.jpeg)
 
-果不其然，政府权力的无限放大，即使是西方文明社会，也一样看到了专制与暴政！
+国务院的一位高级官员指出，此举并不属于美国制裁俄罗斯入侵乌克兰行动的一部分，而是华盛顿与莫斯科之间长期有关大使馆人员配备争端中的一环。
 
-加拿大卡车司机本身不是反对疫苗，只是反对强制疫苗，加拿大政府竟然把国家公民当成暴民。加拿大人的和平游行被政府当成暴力行径，准备实施军管。
+据了解，本月早些时候，莫斯科当局无端要求美国驻俄罗斯副大使巴特-戈尔曼离境。对此，该高级官员强调，由于目前乌克兰紧张的局势，美俄关系近期极具下降，虽然美国仍然认为双方保持外交可以有助于两国之间的沟通，但美国绝不允许俄罗斯随意驱逐美国驻当地的外交代表。
 
-事情发展到这里，我们才恍然大悟，原来自己的钱放在中共的银行不安全，其实放在国外的文明社会的银行，也不安全，也会因为你参与了街头运动，被冻结！
+参考链接：[US expels Russia’s No. 2 diplomat at Washington](https://apnews.com/article/russia-ukraine-europe-russia-united-states-moscow-8630ae5a70ce81ae13feded78b9d9a0b)
 
-从这个角度看，喜币的无国界及安全性，是顺应趋势，发展不可阻挡。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-文案编辑：一念
-校对整理：面包树
+总编：Irene木木
+编辑：Jack Li文阳
+校正/发稿：谐趣园
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
