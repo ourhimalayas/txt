@@ -2,30 +2,39 @@
 ---
 
 
-## 中日财经爆┃中共经济近乎崩溃开始大规模放水
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2068399/)
+## 北京破坏了对俄罗斯入侵乌克兰的制裁
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2068462/)
 
-撰稿：东京樱花团/加一颗稻草
+撰稿：小湫
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/中日财经爆┃中共经济近乎崩溃开始大规模放水.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fn.sinaimg.cn%2Ffront%2F265%2Fw640h425%2F20181121%2F9ZLx-hmhswin6835827.jpg&amp;imgrefurl=https%3A%2F%2Fk.sina.cn%2Farticle_6434949964_17f8d8b4c00100d78w.html&amp;tbnid=WLdre3rqJzlvHM&amp;vet=12ahUKEwj8xe2L55z2AhXLBDQIHdpPBYwQMygCegUIARClAQ..i&amp;docid=SmSMqpasQ0sSKM&amp;w=640&amp;h=425&amp;q=%E5%A4%A7%E5%9D%9D%E6%94%BE%E6%B0%B4&amp;ved=2ahUKEwj8xe2L55z2AhXLBDQIHdpPBYwQMygCegUIARClAQ)
+澳洲总理猛烈抨击中国开放与俄罗斯的贸易，指责北京破坏西方在乌克兰问题上的制裁，并给普京提供了一条生命线。
 
-墙内实体经济一塌糊涂，加上国际油价和大宗商品价格高涨，流动性近乎停滞，
+习近平和普京在2月初达成了一项协议，双方同意加强贸易关系，旨在破坏美国的全球联盟网络。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9554FD31-BB3C-46A2-AA13-7557C3EE262A.jpeg)图片来自网络
+根据该协议，中国同意取消对俄罗斯小麦和大麦的限制，中国海关直到周四正式证实，将对俄罗斯小麦开放进口。周四当天俄罗斯全面入侵乌克兰。
 
-人民银行开展3000亿元逆回购操作。
+莫里森(Scott Morrison)指责中国帮助俄罗斯避免了欧洲、英国和美国在俄罗斯入侵乌克兰后实施的全面制裁的影响。此刻正直俄罗斯入侵乌克兰，中国取消了对俄罗斯的小麦限制，意图非常明显。
 
-人民银行官网公告显示，为维护月末流动性平稳，2022年2月25日人民银行以利率招标方式开展了3000亿元7天期逆回购操作，中标利率2.10%。由于25日有100亿元逆回购到期，因此当日人民银行实现公开市场净投放2900亿元。
+尽管在被问及俄罗斯对乌克兰的军事侵略时，中国强调了主权的重要性，但它一再拒绝谴责俄罗斯对乌克兰的攻击。
 
-在乌俄冲突的背景之下，中共国内粮食价格也开始上涨。对台湾的蠢蠢欲动更加使得民心惶惶。“灵活就业”人数增加到2亿，就业压力前所未有。老百姓根本没有消费能力。
+周四晚上，中国外交部发言人华春莹表示，这次袭击不应该被称为“入侵”，因为俄罗斯只针对乌克兰的军事设施。
 
-中共国的每一次放水，就像在堤坝上戳一个窟窿。如单身今的大坝已经千疮百孔，汹涌的洪水冲溃堤坝就要发生。
+中国政府代表此前也表示，俄罗斯对乌克兰加入北约有合理的担忧。
 
-消息来源：
+华春莹在北京对记者表示:“正如我们多次说过的，乌克兰问题有着非常复杂的历史背景。所以我们希望各方共同努力，有和平的机会，尽快冷却局势，通过对话、协商和谈判来维持和平。”
 
-[人民银行开展3000亿元逆回购操作](http://finance.china.com.cn/news/20220225/5752315.shtml)
+不过，莫里森表示，中国应加入国际社会的行动，在经济上惩罚俄罗斯，而不是为其行为找借口。莫里森表示担心，中国政府的言论中有这样一种暗示，即俄罗斯入侵乌克兰是有合理的安全借口。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+工党领袖艾博年(Anthony Albanese)支持这些莫里森的呼吁，称中国需要用事实证明其对全球和平认真态度。中国正在做相反的事情，这是一个中国与世界其他国家一起谴责俄罗斯这一行动的机会。
+
+澳大利亚国防部长彼得·达顿(Peter Dutton)进一步表示，习近平可能是少数几个能够说服普京停止入侵的全球领导人之一。这真的非常令人不安，中国实际上是在鼓励俄罗斯。
+
+信息来源：
+
+[China accused of undermining sanctions against Russia for its invasion of Ukraine](https://www.abc.net.au/news/2022-02-25/scott-morrison-china-russia-ukraine-war-trade/100861030)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+发稿：MG6
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
