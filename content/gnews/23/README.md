@@ -2,53 +2,68 @@
 ---
 
 
-## 明斯克协议
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2070441/)
+## 樱花FM|樱花深度报道:北京冬季奥运会的“体育洗白”宣传是柏林奥运会的翻版 维吾尔人大声疾呼中共对少数民族的残酷镇压（一）
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2070497/)
 
-作者：香草山教育部-雪梨
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-84.png)
-“明斯克协议”，是在顿巴斯战争爆发后，乌克兰政府与乌克兰东部的顿涅茨克人民共和国、卢甘斯克人民共和国两个政权的代表，于2014年9月5日，在白俄罗斯首都明斯克签订的停火协议。2015年2月，相关各方又签订了新明斯克协议，内容包括，根据乌克兰法律，各方就顿涅茨克和卢甘斯克的临时自治政府展开对话，并透过国会决议承认其特殊地位。
+音频：东京樱花团/战友520
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/minsk.png)
+（内容摘要）
 
-2022年2月，媒体曝光了一份1991年的机密文件，文件显示，在德国统一谈判期间，英、美、法、德外交官曾向前苏联承诺，北约不会东扩。
+• 北京冬奥会与希特勒 1936 年在柏林的奥运会有很多相似之处
 
-1994年12月，美国、英国、俄罗斯和乌克兰签署了《布达佩斯备忘录》。乌克兰根据该备忘录销毁了核武器和洲际导弹，意欲与美国和欧盟结盟，并通过宪法修正案，将加入欧盟和北约作为国家基本方针写入了宪法。
+• 2 月 4 日的活动笼罩在争议和抵制威胁中
 
-2022年2月21日，俄罗斯宣布承认顿涅茨克、卢甘斯克独立。
+• 维吾尔人和其他少数民族声称他们面临赛前镇压
 
-2月22日，俄罗斯总统普京正式宣布，明斯克协议不复存在。
+• 流亡的家庭成员说他们现在与亲人完全隔绝
 
-2月24日，俄罗斯正式入侵乌克兰。
+• 在国际事件之前让少数族裔保持沉默是中共的一种策略
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-19-1.png)
+（图片说明）一位专家声称，当阿道夫·希特勒（右）迫切需要将他的专制政权合法化时，他将目光投向了举办奥运会——而现在，中国自己的极权统治者习近平（左）也将这样做
 
-参考链接：
-[https://zh.wikipedia.org/wiki/%E5%8C%97%E5%A4%A7%E8%A5%BF%E6%B4%8B%E5%85%AC%E7%BA%A6%E7%BB%84%E7%BB%87](https://zh.wikipedia.org/wiki/%E5%8C%97%E5%A4%A7%E8%A5%BF%E6%B4%8B%E5%85%AC%E7%BA%A6%E7%BB%84%E7%BB%87)
+![](https://lh4.googleusercontent.com/XVJXpvWQwQPwZxEu1FkXIEerfux6rjf3YwbuXV2DWz_peR42p6fISKKmqyR_Z-VdhZ9DNmsbw9IQ6iJVey_eP2396GCbJUp-b3rRtErLtO30YxOpadcUsCy0O3iL4HYmLqYLB2qI)
 
-[https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220214-%E4%B9%8C%E5%85%8B%E5%85%B0%E6%BE%84%E6%B8%85-%E5%B9%B6%E6%9C%AA%E6%89%93%E7%AE%97%E6%94%BE%E5%BC%83%E5%8A%A0%E5%85%A5%E5%8C%97%E7%BA%A6](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220214-%E4%B9%8C%E5%85%8B%E5%85%B0%E6%BE%84%E6%B8%85-%E5%B9%B6%E6%9C%AA%E6%89%93%E7%AE%97%E6%94%BE%E5%BC%83%E5%8A%A0%E5%85%A5%E5%8C%97%E7%BA%A6)
+（图片说明）被批评者称为“种族灭绝运动会”的 2022 年冬季奥运会将于 2 月 4 日举行，尽管观察人士称该国“系统地镇压少数族裔”和侵蚀香港的民主自由
 
-[https://gnews.org/zh-hans/2055108/](https://gnews.org/zh-hans/2055108/)
+一位专家声称，当阿道夫·希特勒迫切需要将他的专制政权合法化时，他将目光投向了举办奥运会——而现在，中国共产党的极权统治者习近平也将这样做。
 
-[https://sputniknews.com/20220219/1991-doc-proves-west-did-commit-to-non-expansion-of-nato-eastwards-broke-the-promise–report-1093161024.html](https://sputniknews.com/20220219/1991-doc-proves-west-did-commit-to-non-expansion-of-nato-eastwards-broke-the-promise--report-1093161024.html)
+被批评者称为“种族灭绝运动会”的 2022 年冬季奥运会将于 2 月 4 日举行，尽管观察人士称该国“系统地镇压少数族裔”和侵蚀香港的民主自由。
 
-[https://gettr.com/post/pwv33xb61e](https://gettr.com/post/pwv33xb61e)
+流亡的中国维吾尔穆斯林人口告诉《每日邮报》澳大利亚，由于奥运会前的残酷镇压，他们与在该国西北部省份新疆的家人被切断了任何联系。
 
-[https://gnews.org/zh-hans/2057139/](https://gnews.org/zh-hans/2057139/)
+西方民主国家一直在激烈争论是否要完全抵制这一有争议的事件，就像他们在 1936 年柏林夏季奥运会之前所做的那样。
 
-校对/发稿：飞虹
+最后，纳粹运动会继续进行，这次也做出了同样的决定，担心退出只会惩罚积极训练的运动员，他们一生都在训练以获得金牌的机会。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-65.jpg)
+![](https://lh4.googleusercontent.com/T8V5KacAEOMxlvqf9ieypNVjJGqadoU5h1JDAHl-jRToqnlebKtssIIc4DshSJWTXQcPB8ptyiUvBVZMfcHNNDGxfpqrrk5WIPzP4Fdbs5M1vUAli2q7YfjqE-mGWuREpZ6kkzaR)
 
-**更多资讯，更多关注**
+(图片说明) 中国维吾尔族穆斯林流亡成员告诉《每日邮报》澳大利亚，在奥运会前夕的残酷镇压中，他们与该国西北部省份新疆的家人被切断了任何联系。图为：印度尼西亚的维吾尔抗议者
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+但美国与英国、欧盟、加拿大、澳大利亚、新西兰、日本、丹麦、立陶宛、爱沙尼亚、拉脱维亚、瑞典和荷兰确实宣布了“外交抵制”，理由是“新疆正在进行种族灭绝和危害人类罪”和“其他侵犯人权的行为”。
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+据估计，有超过一百万维吾尔人被围捕并投入劳改营，在那里他们面临酷刑、国家支持的器官摘取甚至绝育的威胁，联合国和各种人权组织声称。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+早在 30 年代，随着希特勒的法西斯政权作为一个全球大国崛起，争论的焦点是德国对犹太人的可恶待遇，以及参加奥运会是否会使竞争国家在某种程度上受到指责。
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+维多利亚大学健康与体育研究所奥林匹克研究网络联合主任理查德巴卡告诉澳大利亚每日邮报，“尽管在人权方面存在类似问题，但北京 2022 年也将继续进行，因此与 1936 年发生的事情有真正的相似之处。”
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+“我认为说宣传活动是相同的。习近平想向世界表明“我们做得很好，我们现在是世界大国之一”，而这正是希特勒在 1930 年代试图做的事情。
+
+“他想展示雅利安人的至高无上——但当然，美国黑人运动员杰西欧文斯“单枪匹马粉碎了希特勒的雅利安霸权神话”，赢得了四枚金牌。”
+
+国际奥委会一再表示，它不希望在体育运动中出现政治。但在中国这样一个一党制国家统治的地方，一个自称终身国家主席的人，体育和政治注定会正面冲突。
+
+由于担心人权倡导者、受压迫的少数民族和持不同政见者可能在事件发生前让共产党难堪，北京花了六个月的时间将数百万人与外界隔绝。
+
+（未完待续）
+
+文字版原文：
+[樱花深度报道┃北京冬季奥运会的“体育洗白”宣传是柏林奥运会的翻版 维吾尔人大声疾呼中共对少数民族的残酷镇压（一） – GNEWS](https://gnews.org/zh-hans/1933189/)
+
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+
 
  
 

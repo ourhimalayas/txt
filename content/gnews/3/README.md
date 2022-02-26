@@ -2,34 +2,38 @@
 ---
 
 
-## 美国驱逐俄驻美第二号外交官
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070622/)
+## 随着俄罗斯入侵乌克兰，黄金价格飙升至一年多来的最高水平
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2070790/)
 
-作者：首尔天池农场—追着曙光跑
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月24日，据相关媒体报道，美国国务院发言人当天发布声明表示，美国将驱逐俄罗斯驻美国大使馆的第二号外交官，用以回击俄罗斯本月驱逐美国驻莫斯科副大使的做法。
+**翻译：日本东京方舟农场 **Skyfrog
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-10.jpeg)
+现货金价周四下滑，因投资者继续评估乌克兰危机，此前俄罗斯军队在总统普京的命令下袭击了乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/017.png)（图片来源：cnbc.com）
+金价最后报每金衡盎司1,897.76美元，较前一天下跌0.5%。上午早些时候，随着投资者大举买入避险资产，全球股市暴跌，金价报每盎司1968.01美元，上涨3.17%，为2020年末以来的最高水平。石油和软大宗商品价格大幅上涨。布伦特原油价格自2014年以来首次突破100美元。
 
-国务院的一位高级官员指出，此举并不属于美国制裁俄罗斯入侵乌克兰行动的一部分，而是华盛顿与莫斯科之间长期有关大使馆人员配备争端中的一环。
+美国黄金期货下跌0.5%，至每盎司1,899.80美元。银价下跌1.5%，至每盎司24.13美元，钯价下跌1.8%。铂金下跌约3%。与此同时，铜价略高。
 
-据了解，本月早些时候，莫斯科当局无端要求美国驻俄罗斯副大使巴特-戈尔曼离境。对此，该高级官员强调，由于目前乌克兰紧张的局势，美俄关系近期极具下降，虽然美国仍然认为双方保持外交可以有助于两国之间的沟通，但美国绝不允许俄罗斯随意驱逐美国驻当地的外交代表。
+俄罗斯是钯和铂的最大生产国，也是世界第三大黄金生产国。
 
-参考链接：[US expels Russia’s No. 2 diplomat at Washington](https://apnews.com/article/russia-ukraine-europe-russia-united-states-moscow-8630ae5a70ce81ae13feded78b9d9a0b)
+美国总统拜登在当天下午举行的新闻发布会上表示:“为了将俄罗斯从世界经济中孤立出来，美国将再次对俄罗斯实施限制美元、欧元、英镑、日元交易能力的制裁。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+2月份迄今为止，黄金价格已上涨约5.5%，有望创下2020年7月以来的最大单月涨幅。美国国债收益率大跌，因投资者大举买入被视为安全资产的国债。
 
-总编：Irene木木
-编辑：Jack Li文阳
-校正/发稿：谐趣园
+普京星期四凌晨宣布了他所说的“特别军事行动”。两天前，他刚刚派遣军队进入乌克兰东部的顿涅茨克和卢甘斯克分离地区。在这一最新消息发布之前，俄罗斯在乌克兰边境附近进行了数月的军事集结，军队人数多达15万人
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+乌克兰局势正在迅速恶化，来自该国的具体报道难以证实。乌克兰外交部长库勒巴(Dmy在当地时间早上7点刚过，就报告说，这个拥有4400万人口的国家有多个城市受到俄罗斯的攻击，他呼吁国际社会果断采取行动孤立俄罗斯。
+
+在一条推特中，库勒巴呼吁“立即对俄罗斯实施毁灭性制裁，包括SWIFT（全球银行金融电信协会）”，并采取其他惩罚性措施。北约领导人誓言迅速做出反应，包括他们所说的“严厉”制裁。一些人警告说，普京的入侵可能会导致欧洲自二战以来最大的冲突。
+
+注： 此文章原載於“堅守自由研究中心”2021年的春季期刊，《平等：愛國者的夢想，暴政者的面具》。本文仅代表作者观点。
+
+原文链接：
+[https://www.cnbc.com/2022/02/24/russia-invades-ukraine-gold-jumps-to-highest-in-more-than-a-year.html](https://www.cnbc.com/2022/02/24/russia-invades-ukraine-gold-jumps-to-highest-in-more-than-a-year.html)
+
+素材採編：妙喜小油鍋
+校对：妙喜小油鍋
+发布：Linda
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
