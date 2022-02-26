@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/26/2022 3:42 PM (UTC)`
+
+2/25/2022 Miles Guo: How did the CCP and Russia form the Axis of Evil alliance? The CCP promotes the internationalization of the RMB globally and is pushing the transparency and controllability of the RMB domestically, aiming at enslaving the Chinese people and plundering their wealth. The CCP has introduced the requirement of registering the source of funds of personal deposits and withdrawals of cash over 50,000 yuan to prevent the RMB from going to the Himalaya Exchange.<br/><br/>2/25/2022 文贵直播: 中俄是如何形成邪恶轴心国同盟的？中共对外推行人民币国际化，对内实行人民币透明化和可控化，目的是奴役人民、掠夺财富；中共要求个人存取现金超5万元需登记来源就是为了防止人民币流向喜联储<br/>
+![img](https://media.gettr.com/group47/getter/2022/02/26/15/f0a2293e-7ee7-090b-1192-829b981da0af/out.jpg)
+
+---
+
 `@miles 2/26/2022 3:33 PM (UTC)`
 
 2/25/2022 Miles Guo:  The CCP's 3 tactics to attack Taiwan: 1) the so-called Taiwanese representatives request the CCP to send troops to Taiwan to eradicate Taiwan's separatists; 2) "siege but not fight", leading to the collapse of Taiwan; and 3) quickly occupy Taiwan. It's time to end the Taiwan issue. Either the CCP will be destroyed, or Taiwan will be destroyed.<br/><br/>2/25/2022 文贵直播：中共打台湾的3招：1) 所谓台胞代表请求中共派兵到台湾铲除台独分子；2) 围而不打，让台湾崩溃；3) 迅速占岛；台湾问题到了了结的时候，要么中共被灭，要么台湾被灭<br/>
@@ -150,13 +157,6 @@ Mr. Bannon 100% agree that the Wall Street has provided the capital from the pen
 
 2/24/2022 Miles Guo’s GETTR: don’t try to be a war profiteer; we must treat our Taiwan compatriots like our brothers and sisters, and try our best to help them get out of Taiwan as soon as possible，the global Farm Alliance will be having a meeting to discuss a plan; the year 2022 will be the darkest one in human history<br/><br/>2/24/2022 文贵盖特：大家千万不能发战争财；我们要像对待亲兄弟姐妹一样，尽可能帮助有需要的台湾同胞尽快撤离，全球农场联盟会开会商讨方案；2022年是人类历史上最黑暗的一年<br/>
 ![img](https://media.gettr.com/group34/getter/2022/02/25/01/e9aa178f-1ae7-77ce-0838-2b1b080d6ff5/out.jpg)
-
----
-
-`@miles 2/24/2022 11:54 PM (UTC)`
-
-2022年02月24日 文贵紧急直播： 🆘 🆘 🆘 台湾危机，请台湾同胞们尽快撤离，能够提供帮助的战友请与联盟委员会联系。为台湾同胞，乌克兰人民祈福🙏🙏🙏
-![img](https://media.gettr.com/group26/origin/2022/02/24/23/8b3ff603-269f-a5f2-ba8d-2e8145918334/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
