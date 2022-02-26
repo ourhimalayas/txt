@@ -2,28 +2,42 @@
 ---
 
 
-## 大直播后记：大卡车司机事件的结局
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2067465/)
+## 国内战友到农村和二线城市确保有现金有粮食以避开乱世
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2067530/)
 
-整理：雨桐、HomeL
-编辑：小红帽
-![文章配图](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-24-下午3.49.05.png)
-你们意识到了吗？加拿大小土豆让底层人没有了安全感。加拿大那个地方，有一点非常夸张，就是加拿大人的忠诚。忠诚的人属于中产阶级，就是卡车司机，白领，蓝领，占了将近70%。美国人所谓的中产阶级才占45%，这是西方稳定的基石。加拿大是70%。你看像日本，是65%到70%。这样的国家是很稳定的。它不像中国，一个人在上边，下边是一群一群狮子。狮子都是白皮狮子，吃不饱的白皮狮子。这样的中国人太多了。这次小土豆把下边的人给毁了，而且这大卡车司机回家后当然是跟小土豆没完没了。你别以为大卡车回去了，加拿大就完了。加拿大开启了永远的街头政治噩梦。由于加拿大的地形，气候在各个南北东西跨度很大。在多伦多，温哥华等几个边缘跨度很大的城市，它的跨度是很大的。但这跟乌克兰不一样，它聚集在一个地方就能连上大城市。它是多个城市，所以这个连锁效应会很慢。加拿大人很无聊的，在那个地方基本上就是等死了。但是这个连锁效应一旦形成起来，未来这些人就有事儿干了。我猜这次就挺不住了。很可怕。 。
+G-TV视频链接：[https://gtv.org/video/id=62049a55585ecc15d73fa9be](https://gtv.org/video/id=62049a55585ecc15d73fa9be)
 
-正义小Sara问：刚才听七哥也说了，我和家人在加拿大，本来在加拿大，人也没什么反应。但是这两天出去买菜，发现民众对于这次卡车事件，就不管你反不反疫苗，你觉得疫苗是对还是不对的，民众统一觉得这个政府完了。我有一个问题问郭叔，现在小土豆跟着美国屁股后面跑，美国不要他的时候就不要他，就是个弃子。那么这事件会不会引发这个政府军事镇压这些继续在抗争的民众呢？
+**郭文贵先生：**我再告诉国内的战友们，你们未来，只要你打了疫苗的，你不吃药，你有50%的几率得癌症和猝死。你如果共产党再打台湾，你又没钱，你还没有药，你就真的是可以抛尸街头的。那咋办呢战友们？七哥唯一的建议：农村、二线城市比城市好。在最少的电、最少的水、最好能好活下去的地方。那就是最适合你的地方，未来一两年。
 
-这是政治智慧啊。每次买菜的时候发现加拿大的政治变化。正义小Sara这感悟很深。来自青菜里的这个感悟。加拿大人很苦。你看我们现在唱的歌。“囚禁20年，我受尽了折磨”。“这个世界不要我”。你看加拿大人是啥？我听话20年，我听话100年，这个世界不要我了。他是这种感受。老老实实，任劳任怨，给你开大卡车给你种菜，你让我干啥我干啥。最听话的国民就是加拿大人，而且纳税。加拿大的成立是受英国女王文化，美国整个法律文化和来自英国的Common Law影响的。这一回一切给你打包，而且学香港。加拿大前司法部的一位副部长跟我关系特别好。他女儿在北京的时候，在盘古酒店实习。我们关系非常好。他本来要参选这个总理。但他就觉得选择权力很无聊，去旅游吧。他特别喜欢吃中国菜。他女儿在中国实习完，就在中国嫁了一个中国男人。跟我一直保持联系。他说，这个土豆简直疯了。你听美国话，你听这个所谓的经济论坛–达沃斯党的话，还有你听加拿大的几个大富豪的话。他说，你有想过加拿大这样的国家，就这么把它的底线全毁了。金融系统，你给它连根拔掉。媒体，你百分之百控制。
+我当着这今天咱们是多少战友在线的？270万的VPN，最起码现在在看的人在2000万人以上，2000万到3000万是百分之百的。这两、三千万看我直播的人，我希望兄弟姐妹们你们一定把七哥的话听进去：2022年，从现在看，比我们想象得还要坏。特别是国内，在国内最大的问题就是：钱、吃的、乱世。一定有点现金！一定有粮食！一定要能有活下去的环境！越高楼大厦，越先进、越高级的汽车，烧油的，都是坏东西。
 
-资料来源：郭文贵先生2022年2月25日大直播
+字幕来源：[2022年1月30日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1936606/)
 
-发布：tianzhihuan
+编辑整理：Jacques；
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

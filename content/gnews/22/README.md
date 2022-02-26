@@ -2,34 +2,51 @@
 ---
 
 
-## 了解HPay功用 做好HPay推广
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2067241/)
+## 敦煌画家战友女婿死于疫苗后被儿子儿媳打疫苗消息震恸
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2067349/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月23日，针对战友们近期在推广HPay过程中遇到的各种疑问，郭文贵先生在大直播中建议，战友们应该先学、后用、再推销，这样才能达到事半功倍的效果。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-25-下午10.14.18.png)
-郭先生指出，在向其他商家推广HPay系统之前，战友们需要能熟练而清楚地解决HPay使用中的各类问题，包括商家在使用过程中提现HDO的方法、使用方的税务申报、未来HPay可以接受的法币种类、大小额交易的处理以及可能涉及的法规等等。如若不然，HPay的推广工作很难取得客户的信任。
+G-TV视频链接：[https://gtv.org/video/id=62049a05585ecc15d73fa998](https://gtv.org/video/id=62049a05585ecc15d73fa998)
 
-郭先生也补充道， 目前，HPay只涉及个人的转账，币种只覆盖HDO，线下交易的商务转账系统尚未实装，任何转账既不等同于商务交易，也不涉及发票和税务事宜。此外，由于HPay具有战略意义，不同的国家对此将有不同的法律要求。
+**郭文贵先生：**所以今天我跟大家说这个直播，国内的兄弟姐妹们你们在哪儿最安全？我再给你们说，未来的就是记住你也打了疫苗了，两针以上的，你要不吃药你50%的几率会得上癌症和猝死。
 
-郭先生还鼓励战友们最近多多互相转账，以此充分熟悉HPay的使用方式。未来，随着HPay更多令人震惊的功能上线，其市场推广将更加顺利。届时，HPay也将给个人和商企带来更大利好。
+甭说你在东北、西北、新疆，敦煌，我们敦煌的战友超有钱，给我画了一个巨大的画。因为很多战友给画画，我从来不要战友的东西，这是我的原则，你们永远记住，不要给七哥寄任何东西，寄来的东西都会扔掉，一样都不会留。
 
-参考链接：[2022年2月23日 文贵大直播](https://gtv.org/video/id=62162fe908ba8a07b1a1ea8a)
+还好这个战友跟我说了：“七哥，我花了六个月画的画，一个600尺的画。” 这个是个大家，他这个画最起码卖个一两千万。咱这个战友的画是画多少卖多少，10万块钱一尺，你想想那就跟画钱一样。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+我去过敦煌他的画廊非常之漂亮，然后他跟我说：“七哥，我听了你的，我没打、闺女没打、我闺女的孩子没打，我女婿打了，不信我呀！说‘你相信那郭文贵就是个骗子，是一帮神经病、邪教，你信他干什么呀？ 女婿上周死了……”当然了我们不愿意他死啊。他说：“这个女婿死了”他说“我才闹明白，儿媳妇、儿媳妇家人全打了。”
 
-总编：Irene木木
-编辑：宁文静
-校正/发稿：呼吸的雾霾（文小呼吸）
+咱这位战友真是痛苦极了，他说：“我这孙子不能没有妈啊。”我说：“我告诉你，会比你想象得还要坏！”为什么呢？他说：“我希望我这个儿媳妇打的是假的，我们这儿很多打的是假的。”最后他专门找了打针的人说“我给你媳妇打的是最贵的、最好的，而且是250克（25微克）的。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+兄弟姐妹们，咱这个战友的痛苦，几个月以前跟我视频的那种艺术家的范儿，红光满面。在敦煌那地方，他有一个大院子，和他得知这个消息后人的苍老，真的能感受到人就是个情绪，一夜之间就把人毁了。
+
+字幕来源：[2022年1月30日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1936606/)
+
+编辑整理：Jacques；
+
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

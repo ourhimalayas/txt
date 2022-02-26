@@ -2,40 +2,28 @@
 ---
 
 
-## 有声|前美国国务卿蓬佩奥下月访问台湾
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2067190/)
+## 北约决定向东欧成员国派遣快速反应部队
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2067310/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据台湾外交部官网2022年2月21日的消息，美国前国务卿蓬佩奥（Mike Pompeo）夫妇将于3月2日至5日访问台湾，期间会见蔡英文总统。同时也会接受副总统赖清德款宴，拜会立法院长游锡堃、外交部长吴釗燮，并接受吴部长款宴。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2_.jpg)
-此外，蓬佩奥前国务卿也会应远景基金会邀请於3月4日出席演讲活动，也将与台湾政、商、学等各界人士交流互动，强化台美间的紧密友好关係。
+撰稿：东京樱花团/龟龟
 
-台湾外交部称，蓬佩奥在任内促成特朗普政府多次对台军售、解密美国对台湾的“六项保证”相关文件、宣布撤销台美交往限制等。 蓬佩奥来访充分展现美国两党一致对台湾坚若磐石的支持，以及台美全方位伙伴关系的紧密友好。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/北约决定向东欧成员国派遣快速反应部队.jpg)
 
-现年58岁的蓬佩奥曾任美国陆军军官、联邦众议员和中情局局长等职，他在2018年4月至2021年1月担任特朗普政府的国务卿。在任期间的最后一天2021年1月19日，宣布中共政府在新疆对维吾尔族及其他穆斯林少数民族犯下种族清洗与反人类罪。特朗普下台后，蓬佩奥在哈德逊研究所担任高级研究员。
+俄罗斯入侵乌克兰后，在25日紧急召开的会议上，北约领导人斯托尔滕贝格决定派出部分快速反应部队保卫东欧成员国。
 
+照斯托尔滕贝格秘书长的说法，该部队约一千人左右，由“陆、海、空三军”组成，是“集体自卫背景下的第一次出动”。
 
+北约表示不会在非成员国乌克兰驻军，但通过在邻国部署，将回应东欧盟国的关切，并迫使俄罗斯不要在地理上扩大冲突。
 
-文字版原文：[前美国国务卿蓬佩奥下月访问台湾](https://gnews.org/zh-hans/2064630/)
+另一方面，对于入侵乌克兰的俄军动向，美国国防部一名高级官员25日表示，虽然俄罗斯部队正向首都基辅进发，但乌军的反应时间比预想的要长。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+消息链接：
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[ＮＡＴＯ首脳緊急会議 東欧に即応部隊の派遣決定](https://news.yahoo.co.jp/articles/2ebf27c95883f4bb57252730069b12362a32a75a)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

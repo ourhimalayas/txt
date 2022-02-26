@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/26/2022 4:23 AM (UTC)`
+
+2/25/2022 Miles Guo: Why does UBS prevent the case I brought from being admitted to court? The UBS case is absolutely a breakthrough in revealing the collusion between the evil Swamp in the West and the CCP. A deputy governor of the People's Bank of China attempted to persuade me not to sue UBS.<br/><br/>2/25/2022 文贵直播：为什么瑞银UBS百般阻挠不让上庭？UBS案绝对是打开西方黑暗沼泽地和中共勾兑的一道口子；中共人民银行的一位副行长竟充当说客劝说文贵不告UBS<br/>
+![img](https://media.gettr.com/group50/getter/2022/02/26/04/72294058-2a4b-5769-0baa-b9cba4d8279d/out.jpg)
+
+---
+
 `@miles 2/26/2022 4:02 AM (UTC)`
 
 2/25/2022 Miles Guo: Why do Putin and Xi Jinping want to start the war? The fundamental reason is that they are not in good health and are under huge pressure from political infightings and the economy. The coronavirus and the COVID vaccines are premeditated and perfect means to commit genocide and to start the WWIII.<br/><br/>2/25/2022 文贵直播：普京和习近平为什么干这票？根本原因是他俩身体都不行了，而且内部政治和经济压力山大；冠状病毒和疫苗灾难是蓄谋已久的完美种族大屠杀，开启了第三次世界大战！<br/>
@@ -146,13 +153,6 @@
 `@globalalliance 2/24/2022 6:08 PM (UTC)`
 
 为了集合全球战友资源救助台湾战友，联盟发放统一登记表格，请有可能提供救助资源的战友填写，请各农场转发，表格链接：https://forms.gle/pgVrayLJKqS7NMsN8
-
----
-
-`@miles 2/24/2022 4:33 PM (UTC)`
-
-2/23/2022 Miles Guo: The judge went back to his hometown to deal with the women trafficking cases, but the local people offered him several kidnapped women. I will cry whenever I sing the song "The Nightmare in Chains". What the chained woman wants to say the most is "the world has abandoned me". The CCP sent people to Xuzhou to investigate and arrest anyone who is not local, but they couldn’t even find out about the identity of the chained woman. Only the CCP government is so cruel to its own people.<br/><br/>2/23/2022 文贵直播：法官回老家解决绑架女的问题反被当地人送上绑架女；文贵这首《锁链梦》唱一个字都想哭，“这个世界不要我”是锁链女最想说的话；中共派人到徐州查、抓外地人，而锁链女的身份却查不着，只有中共政府才对老百姓这么残忍！<br/>
-![img](https://media.gettr.com/group11/getter/2022/02/24/16/2dedada5-9300-99e3-e143-0df405ac9ba2/out.jpg)
 
 ---
 
