@@ -2,36 +2,49 @@
 ---
 
 
-## 国际奥委会发声明强烈谴责俄罗斯违反决议
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2067620/)
+## 美国“人民车队“前往D.C抗议强制疫苗，华盛顿增派警力应对
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2067699/)
 
-2022-02-25
+作者:日本东京方舟农场-Miyali7768(文玉）
 
-翻译：文舞两道
-![](https://assets.gnews.org/wp-content/uploads/2022/02/@RQ6BYVUTMMED_KC4.png)图片来源：https://search.yahoo.co.jp
 
-在俄罗斯军事入侵乌克兰后，国际奥委会发表声明“强烈谴责”联合国总会违反在奥运会和残奥会期间休战的决议。
 
-日本NHK2月25日消息，在俄罗斯军事入侵乌克兰后，国际奥委会发表声明“强烈谴责”联合国总会违反在奥运会和残奥会期间休战的决议。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
 
-联合国在每届奥运会召开的前一年，都会通过奥运会•残奥会期间休战的决议。北京冬奥会的决议是去年12月由包括俄罗斯在内的173个国家共同签署的，北京冬奥期间指2022年1月28日到3月20日，在此期间呼吁世界各地的冲突都进入休战状态。
 
-在这种情况下，俄罗斯24日对乌克兰发动了军事攻击。据乌方称，此次袭击不仅延伸至东部地区，还延伸至首都基辅郊区等军事设施，造成了人员的伤亡。
 
-针对这一情况，国际奥委会在其官方网站上发表声明，“我们强烈谴责俄罗斯政府违反了在奥运会和残奥会期间休战的决议”。
+每日邮电24日报道,本周三受加拿大自由车队的启示，数十名卡车司机组成的“人民车队”开始了从加利福尼亚州到华盛顿特区的为期11天的示威游行，以抗议政府强制疫苗。
 
-3月4日北京残奥会开幕，国际残奥委员会也针对俄罗斯对乌克兰的军事入侵发表了谴责声明。
+人民车队呼吁联邦政府结束在大流行开始时颁布的国家紧急状态，希望启动经济并从新开放国家。
 
-一位在东京奥运会上获得柔道铜牌的乌克兰选手比洛迪德在自己的SNS上发布了他现在的感受。比洛迪德说：“我很害怕，为我的家人和国家祈祷，俄罗斯轰炸了我们，战争开始了，我没想到会发生这种情况，为什么要毁掉人们的生活？我们要和平，我们要生活”！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-25-233301.png)
 
-信息来源：[ロシア侵攻 IOC・IPCが声明「休戦求める決議違反 強く非難」](https://search.yahoo.co.jp/amp/s/www3.nhk.or.jp/news/html/20220225/amp/k10013500521000.html%3Fusqp%3Dmq331AQIKAGwASCAAgM%253D)
+组织者声称车队跨越党派和州界，与各种肤色和信仰的人团结一致。预计约有25个独立的车队将加入华盛顿特区的”人民车队“。参加集会的Shane Class说每个人来到这里，一切都归结为同一件事：自由和人权。 
 
-编辑：LILY
-发布：肥鯮
+华盛顿特区领导人增加了该市的警察存在，在车队抵达之前将700名国民警卫队成员部署到首都。大约50辆”大型战术车”也将每天24小时驻扎在该市。
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+参考来源：[https://www.dailymail.co.uk/news/article-10541217/Nancy-Pelosi-says-shes-monitoring-freedom-trucker-convoy-heading-DC.html](https://www.dailymail.co.uk/news/article-10541217/Nancy-Pelosi-says-shes-monitoring-freedom-trucker-convoy-heading-DC.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
+
+编辑/校对/发稿：Daxia
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

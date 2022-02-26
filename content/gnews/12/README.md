@@ -2,61 +2,46 @@
 ---
 
 
-## 权威医学杂志JAMA：儿童接种 COVID-19 疫苗后心肌炎风险增加 133
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2067764/)
+## 新中国联邦打破红歌教育，创立健康教育
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2067802/)
 
-作者：香草山信息部 — NaN
+作者：纽约香草山健身部—新世界的一员
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+中共的教育不是培养人才，挖掘潜力，而是从小强力洗脑，从娃娃抓起几代如此，我们被意识形态灌输的无知，分不清是非对错，善恶美丑，才会在素未谋面的毛，周去世时，不管大人小孩都莫名其妙的伤心，觉得天塌下来了，而对身边的父母同学却缺少尊重关心，这是严重的心理失衡问题，这导致了个性的缺陷，可见中共的教育非常恶劣。
+
+在当今昂贵的学费压力下，又没有优质的师职，中共的教育施行死记硬背，重复抄写，枯燥乏味，让很多孩子产生厌学逃学，堵塞了独立思考能力，更别提什么创新精神，而着重分数的教育就是一场灾难，无论父母孩子承受中考高考的巨大煎熬，多少孩子失去了理想梦想，多少家庭承受亲情的失衡，德体智只是一句口头禅，伪斯文，中共不健全的教育制度反而把原本健康的人心压制变形，没有良好的心理素质哪来的良好品质，多的是不分善恶的红色心霾。没有基本辨别善恶真假的常识，缺少坚毅的性格，天赋被挖杀，发挥不出优秀，让中国人从小就在无意识中带有了自卑、懦弱、自私，我们的人种没有问题，这是中共喂的所有的毒。
+
+七哥在直播中数次提醒新中国联邦要重视教育，击溃中共种下的毒，提倡健康的自由的充满快乐的教育方式，创造良好的学习环境把中国人的未来和希望做好。
+
+呼吁富豪的战友支持教育，七哥邀战友一起出巨资支持教育一律免费，强调GEDU 一定要做好，鼓励挖掘优秀师职，重金聘请全球有能力的老师共同参与教育，激励GEDU的老师，发放高于新东方1.5倍的薪水，如果有特殊贡献，工资将为原工资的两倍工资。
+
+七哥在2022/2/25盖特说“决定一个人能走多远的因素往往不是智商，不是情商，而是性格。中共国的教育系统培养不出坚强的性格，可以训练自制力和毅力吗？
+
+新中国联邦打破中共的教育垄断，让人们随时随地可以享受最好的教育权利。
+
+七哥在盖特说“向着长期的目标，坚持自己的激情，即便历经失败，依然能够坚持不懈地努力下去，这种品质就叫做坚毅。如果一个孩子从小就培养出扶弱济贫有勇气，有良知的人性教育，我们每个人面对的未来都将是美好的。
+
+明天上午8:30 G EDU教育．就是场特殊专场直播。七哥引领新中国联邦共谈未来教育。
+
+共产党是彻底的完了，为了让爆二代健康成长，也让我们这一代早日洗净心霾，新中国联邦的教育提在了首位！
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-55.jpg)
+
+- **审稿/校对/发稿：**qiutian（邱甜）
 
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/download.png)图片源自网络
-
-
-
-根据 1 月 25 日发表在《美国医学会杂志》(JAMA) 上的一项研究，不同年龄的男性和女性接种基于 mRNA 的 COVID-19 疫苗后，患心肌炎的风险显着增加 。
-
-JAMA 是国际同行评审医学期刊，其影响因子为56.272 ，在 “医学：内科”（“Medicine, General & Internal”）类别的169种期刊中排名第三。上述研究的作者隶属于美国疾病控制和预防中心 (CDC)、杜克大学、美国食品和药物管理局 (FDA) 等。
-
-该研究分析了疫苗不良事件报告系统 (VAERS) 中报告的病例。 VAERS 是一种针对潜在疫苗不良事件的被动报告系统，由CDC 和 FDA 共同管理。从 2020 年 12 月（当 COVID-19 疫苗首次在美国上市时）到 2021 年 8 月，美国 192,405,448 名 12 岁以上的人总共接种了 354,100,845 剂 COVID-19 疫苗。该研究使用 2017 年至 2019 年的 IBM MarketScan 商业研究数据库数据来计算预期的心肌炎发病率。
-
-根据研究报告中的表格（见下文），12-15 岁的男性在接受第二剂后面临更高的风险，在每百万剂的 7 天风险间隔内报告的心肌炎病例为 70.73 例，而预期病例为 0.53 例。 70.73除以0.53后是133倍！
-
-还值得一提的是，由于 VAERS 是一个被动报告系统，因此报告的病例可能低于实际数量。
-
-疫苗支持者经常谈论信任科学和数据，有些人甚至将反对 COVID-19 疫苗的人标记为反科学。现在，在大规模使用 COVID-19 疫苗之后，更多的数据表明了疫苗的潜在风险。希望有更多的人在为时已晚之前对 COVID-19 疫苗说不。
-
-\*参考链接：
-1 [https://jamanetwork.com/journals/jama/fullarticle/2788346](https://jamanetwork.com/journals/jama/fullarticle/2788346) 
-2 [https://academic-accelerator.com/Impact-of-Journal/JAMA](https://academic-accelerator.com/Impact-of-Journal/JAMA)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
-
-编辑/校对/发稿：Daxia
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1-2.png)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
-
-
-
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

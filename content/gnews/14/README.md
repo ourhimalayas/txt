@@ -2,48 +2,128 @@
 ---
 
 
-## 清朝断中华文明三百年经中共再断一百年退回至前石器
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2067747/)
+## 孔子学院持续关闭，孔院实质不断被揭发
+` 经济小组` [轉載自GNews](https://gnews.org/zh-hans/2067772/)
 
-G-TV视频链接：[https://gtv.org/video/id=62089746b0af02660af30cf7](https://gtv.org/video/id=62089746b0af02660af30cf7)
+作者：香草山教育部-兰兰
 
-**郭文贵先生：**就现在我每天最大的痛苦就是看到咱们中国同胞活在真的水深火热之中。就连畜生都不如的情况下，还自我感觉良好，每天一说，都是一打一打的话往外出，你想想跟西方的文明差距有多大？
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
-就现在习太阳现在被鼓动要去弄台湾去，要跟俄罗斯共同一起干。你们去过俄罗斯吗？去俄罗斯看看去，俄罗斯人的文明和文化、生活的品味，人家历史上没怎么断代，包括斯大林都没搞断代，人家有别墅，人家有汽车，人家在欧洲有学习，人家有延承。
 
-只有中国断代，共产党给你断了100年，大清朝给中国搞了几百年，300年。元明就别提了，宋朝你想想，宋徽宗这个玩意儿全搞画去了，结果被辽国把这个皇帝全家几百口，老婆闺女全带着往东北迁，一路上就是把他老婆闺女还当他面轮奸强奸，当性奴对待。
 
-走到快到东北了，辽国人把皇帝宋徽宗去你大爷的吧，都已经是快死了，烦得慌，把他给熬成油灯了，熬成油灯，让他闺女让他老婆看着点油灯了。
+摘要：
 
-宋朝，唐宋元明清，从这个元、明、清、宋，这就完了。到了共产党，就是咱们中国人基本上到了真的是我觉得比石器时代还可怕。
+截至2022年1月18日，全球至少11个国家共关闭的孔子学院、孔子课堂或者停止一切活动的孔院数量高达122所。而美国的孔子学院一直在持续关闭中。近期，美国又关闭了3所孔子学院，截至2022年2月9日，美国一共关闭了100所孔子学院，但还剩有21所。
 
-字幕来源：[2022年1月30日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1936606/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-25.png)
 
-编辑整理：Jacques；
+孔子学院全球关闭迅猛，原因是官方报告、学者协会，以及市民团体，对孔子学院进行深度调查并发现了孔子学院的另一面。
 
-字幕文件制作：大好河山；
+1.孔子学院干扰知识自由，宣传中共的意识形态，避免涉及中共政治历史和侵犯人权行为的话题，如西藏、新疆、台湾、人权等话题；
 
-视频制作及上传：Cindy；
+2.孔子学院与海外合作大学的合同、协议等很少公开，缺乏透明度；
 
-G-News发布：小满；
+3.孔子学院由中共宣传部资助，而中共宣传部与统战部关系密切。孔子学院利用财政激励来达到目的，打击西方和其他外国关于中共国的言论，培养对中共有利的学生，传播对中共的正面看法，帮助中共合法化；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+4.孔子学院是中共海外推行统战的手段，借助孔子的名声替中共行渗透之事，服务于中共的间碟任务以及其他任何中共需要的任务；
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+5.孔子学院是中共的延伸，基于政治理由审查课程材料中的某些主题和观点，并在招聘中考虑政治忠诚。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+而中共筹备、建立孔子学院的目的，是为了宣传中共，是借着推广汉语传播文化的表象实行中共特色外交，为中共执行各种海外统战手段。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+* * *
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+* * *
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+截至2022年1月18日，全球至少11个国家共关闭的孔子学院、孔子课堂或者停止一切活动的孔院数量高达122所。而美国的孔子学院正在持续关闭中。近期，美国又关闭了3所孔子学院，截至2022年2月9日，美国一共关闭了100所孔子学院，但还剩有21所。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+孔子学院全球关闭迅猛，官方报告、学者协会，以及市民团体，对孔子学院进行深度调查时发现了孔子学院的另一面。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+2017年4月美国学者协会发表文章*Outsourced To China Confucius Institutes and Soft Power in American High Education*（《外包给中共国孔子学院和美国高等教育的软实力》），揭示了孔子学院干扰知识自由，回避敏感话题如西藏、新疆、台湾、人权等；孔子学院总部与美国大学之间的合同、协议等政策很少公开，缺乏透明度；孔子学院是与中共复杂系统等中心节点，中共用财政激励来达到目的；孔子学院进行软实力输出，避免涉及中共的政治历史和侵犯人权行为，并培养对中共有利的美国学生。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+2018年8月24日，美国国会”美中经济与安全审查委员会发表研究报告*China**’**s Overseas United Front Work*：*Background and Implications for the Unite State*（《中共国海外统战：背景及对美国的启示》），该报告长达39页，报告指出孔子学院由中共宣传部（正式隶属于统战部）资助，并由驻在中共国大使馆和领事馆的人员监督。孔子学院项目与统战部有着长期而正式的联系。孔子学院旨在传播对中共的正面看法，帮助中共合法化，从而为中共国的利益营造一个友好环境。
+
+据郭文贵先生2018年11月20日直播，海航王健先生被死亡前在法国期间的翻译来自法国孔子学院的周恬恬（音译）。而郭先生在2018年12月22日直播提到周恬恬曾经是驻法领事馆一秘。
+
+国际人权组织——Human Rights Watch（人权观察）在2019年关于中共国的报告*Resisting Chinese Government Efforts to Undermine Academic Freedom Abroad*（《抵制中共国政府破坏外国学术自由的努力》），报告中指出：“孔子学院是中共国政府的延伸，基于政治理由审查课程材料中的某些主题和观点，并在招聘中考虑政治忠诚。”
+
+2019年12月，据《布鲁塞尔时报》报道，布鲁塞尔自由大学前孔子学院院长利用个人的社会网络服务于中共的间谍需要。《布鲁塞尔时报》还指出，因间谍指控而关闭孔子学院的国家还有加拿大、日本、法国和德国。
+
+而2020年7月24日，据德国媒体Die Welt（《世界报》）发布的消息，德国汉堡大学断绝与“孔子学院”的合作关系，原因是孔子学院存在“政治影响”和“信息泄漏”的风险。
+
+2020年12月3日下午，韩国首份揭露孔子学院本质的报告书《韩国境内孔子学院本质及对策研究》发行，报告书揭露了孔子学院借助孔子的名声替中共行渗透之事的本质。孔子学院的行为是一种难以估量，难以预测影响程度的看不见的危险。
+
+2021年9月，法国国防部下属军事学院战略研究所（IRSEM）公布了一份名为*Chinese Influence Operations**—**A Machiavellian Moment*（《中共国影响力行动—谋权时代》）的报告，该报告揭露了中共通过孔子学院在海外推行统战的手段，宣传中共的意识形态。IRSEM的报告阐述了中共如何通过孔子学院渗透全球教育体系，表面上是“弘扬中国语言和文化为使命”，可实际上却是世界输出中共的意识形态。
+
+这是国际对孔子学院的深度研究以及对孔子学院实质行为的深度揭示。由此可以看出，孔子学院是假借孔子之名，抵制各种对中共负面的声音，以一种官方的态度输出中共意识形态，让外国人讲好中共故事，树立中共的“可信度”，同时孔子学院还是中共的间谍机构、服务机构，只要中共需要，孔子学院都会执行。
+
+以上对孔子学院的调查可以总结为：
+
+1.孔子学院干扰知识自由，宣传中共的意识形态，避免涉及中共政治历史和侵犯人权行为，如西藏、新疆、台湾、人权等话题；
+
+2.孔子学院与海外合作大学的合同、协议等很少公开，缺乏透明度；
+
+3.孔子学院由中共宣传部资助，而中共宣传部隶属于统战部。孔子学院利用财政激励来达到目的，打击西方和其他外国关于中共国的言论，培养对中共有利的学生，传播对中共的正面看法，帮助中共合法化；
+
+4.孔子学院是中共海外推行统战的手段，借助孔子的名声替中共行渗透之事，服务于中共的间碟任务以及其他任何中共需要的任务；
+
+5.孔子学院是中共的延伸，基于政治理由审查课程材料中的某些主题和观点，并在招聘中考虑政治忠诚。
+
+然而在中共内部，中共对孔院的定位，从来都不是单纯的“推广汉语传播文化”。
+
+2007年，时任常委李长春在孔子学院总部调研时强调“建设孔子学院是我国大外宣格局的重要组成部分。”而2018年习近平在主持全面深化改革第二次会议中提到“推进孔子学院改革发展，要围绕建设中国特色社会主义文化强国，服务中国特色大国外交”。
+
+可见孔子学院的成立是为了宣传中共，习近平点发言这进一步说明孔子学院的存在是为中共特色外交服务的，借着推广汉语传播文化的现象实行中共特色的外交，为中共执行各种海外统战手段。
+
+随着全球民众的不断觉醒，孔子学院的真面目也在逐渐地浮出水面，中共的居心叵测也不断昭显。孔子学院臭名昭著，中共一定会成为过街老鼠，全球喊打。
+
+参考来源：
+
+[How Many Confucius Institutes Are in the United States?（来自全美学者协会官网）](https://www.nas.org/blogs/article/how_many_confucius_institutes_are_in_the_united_states)
+
+[Outsourced To China Confucius Institutes and Soft Power in American High Education](https://www.nas.org/storage/app/media/Reports/Outsourced%20to%20China/NAS_confuciusInstitutes.pdf)
+
+[China’s Overseas United Front Work: Background and Implications for the United States](https://www.uscc.gov/research/chinas-overseas-united-front-work-background-and-implications-united-states)
+
+[China: Government Threats to Academic Freedom Abroad](Government%20Threats%20to%20Academic%20Freedom%20Abroad)
+
+[Resisting Chinese Government efforts to Undermine Academic Freedom Abroad](https://www.hrw.org/sites/default/files/media_2020/09/190321_china_academic_freedom_coc.pdf)
+
+[Chinese Influence Operations—A Machiavellian Moment](https://www.irsem.fr/en/report.html)
+
+[孔子学院](https://www.nfscdict.com/孔子学院)
+
+[世界各国的孔子学院陆续关闭](https://gnews.org/zh-hans/1961212/)
+
+[韩国发布首份揭露孔子学院本质报告书](https://www.epochtimes.com/gb/20/12/10/n12608597.htm)
+
+[习近平主席召开中央全面深化改革领导小组第二次会议](http://www.gov.cn/xinwen/2018-01/23/content_5259818.htm)
+
+[李长春：做好汉语推广工作 增进同世界了解和友谊](http://www.gov.cn/ldhd/2007-04/24/content_594800.htm)
+
+[比利时大学关闭孔子学院 涉间谍指控](https://www.rfa.org/mandarin/Xinwen/11-12112019152406.html)
+
+[拒绝中共政治宣传！德国汉堡大学宣布关闭孔子学院](https://cn.vot.org/2020/07/30/拒绝中共政治宣传！德国汉堡大学宣布关闭孔子学/)
+
+校对/发稿：飞虹
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+
+
+> [拒绝中共政治宣传！德国汉堡大学宣布关闭孔子学院](https://cn.vot.org/2020/07/30/%e6%8b%92%e7%bb%9d%e4%b8%ad%e5%85%b1%e6%94%bf%e6%b2%bb%e5%ae%a3%e4%bc%a0%ef%bc%81%e5%be%b7%e5%9b%bd%e6%b1%89%e5%a0%a1%e5%a4%a7%e5%ad%a6%e5%ae%a3%e5%b8%83%e5%85%b3%e9%97%ad%e5%ad%94%e5%ad%90%e5%ad%a6/)
+
+
 
  
 
