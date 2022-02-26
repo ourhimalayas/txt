@@ -2,39 +2,24 @@
 ---
 
 
-## 有声|推特封禁了发布俄乌战争现场的账户
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2070323/)
+## 樱花FM|中小学全面姓党：新设“党书记”，校长成二把手
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2070395/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月24日，俄罗斯悍然入侵乌克兰。目前俄罗斯军队和装甲车开始进入乌克兰领土，处于东顿巴斯和卢甘斯克地区的社交媒体账号发布的图像和视频成为目前战争局势的主要讯息来源，如俄罗斯直升机飞往克里米亚和坦克前往边境的视频。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2427.png)图片来自：https://www.theverge.com
-随着冲突的加剧，OSINT的研究人员发现发布战争讯息的这些账户，竟然被社交媒体推特封禁了。封禁的账户覆盖了英语、法语、西班牙语圈，甚至还包括巴西地区。推特显示的封禁原因并不清楚。研究人员还发现大量分享他人内容的大V账户也被封禁，这在机器人算法里是不可能的，明显是人为干预的结果。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-16-1.png)
+近日，中共中央办公厅印发了《关于建立中小学校党组织领导的校长负责制的意见(试行)》（以下简称“意见”），并发出通知，要求各地区各部门贯彻落实。“意见”指出，要坚持和加强党对中小学校的全面领导，建立中小学校党组织领导的校长负责。
 
-乌克兰的支持者有理由担心，这是俄罗斯所为，因为这有利于俄罗斯在乌克兰的军事行动。并且，俄罗斯此前在乌克兰进行了社交媒体虚假讯息宣传，并对乌克兰的网络、银行和政府网站进行了持续攻击。
+“意见”明确，党组织设置为党委、党总支的中小学校，党组织书记、校长一般应当分设，党组织书记一般不兼任行政领导职务，校长是中共党员的应当同时担任党组织副书记；党组织设置为党支部的中小学校，党组织书记、校长一般由一人担任，同时应当设1名专职副书记;学校行政班子副职中的党员一般应当进入党组织班子。
 
-据悉，俄罗斯2014年吞并克里米亚期间，就曾被指控利用社交媒体宣传虚假讯息。
+根据“意见”，中小学校将单独增设党组织书记一职，是学校真正的一把手，而校长担任党组织副书记，是学校的二把手。中共全面强化对中小学的管控，直接带来的是对教师和教学管控的升级，同时对学生的洗脑也必将进一步强化。
 
+文字版原文：
+[中小学全面姓党：新设“党书记”，校长成二把手 – GNEWS](https://gnews.org/zh-hans/1933682/)
 
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
 
-文字版原文：[推特封禁了发布俄乌战争现场的账户](https://gnews.org/zh-hans/2068344/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

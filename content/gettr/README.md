@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/26/2022 4:16 PM (UTC)`
+
+2/25/2022 Miles Guo: What's the story behind my cracking sunflower seeds the other day? The New Federal State of China is so awesome that the CCP’s smearing campaigns all ended up being advertising for me. My accurate revelations about Xi and Putin's plot to invade Ukraine and Taiwan respectively has made the world admire our New Federal State of China.<br/><br/>2/25/2022 文贵直播: 文贵揭露嗑瓜子背后的故事；新中国联邦太牛了，中共的造谣污蔑都是给文贵做广告；文贵对习普密谋分别侵略乌克兰和台湾的精准爆料使得全世界对新中国联邦刮目相看
+![img](https://media.gettr.com/group42/getter/2022/02/26/16/82979593-d201-ef0d-7661-dd765138b91d/out.jpg)
+
+---
+
 `@miles 2/26/2022 3:42 PM (UTC)`
 
 2/25/2022 Miles Guo: How did the CCP and Russia form the Axis of Evil alliance? The CCP promotes the internationalization of the RMB globally and is pushing the transparency and controllability of the RMB domestically, aiming at enslaving the Chinese people and plundering their wealth. The CCP has introduced the requirement of registering the source of funds of personal deposits and withdrawals of cash over 50,000 yuan to prevent the RMB from going to the Himalaya Exchange.<br/><br/>2/25/2022 文贵直播: 中俄是如何形成邪恶轴心国同盟的？中共对外推行人民币国际化，对内实行人民币透明化和可控化，目的是奴役人民、掠夺财富；中共要求个人存取现金超5万元需登记来源就是为了防止人民币流向喜联储<br/>
@@ -150,13 +157,6 @@ Mr. Bannon 100% agree that the Wall Street has provided the capital from the pen
 
 2/24/2022 Miles Guo’s Urgent Livestream: The CCP will definitely invade Taiwan! Fellow fighters, please do not take any chance. Stay away from the CCP’s military bases ASAP, and Communist China will sustain huge casualties. The CCP’s NO. 1 document means that the Lao Baixing will suffer, the CCP will return to the era of the People's Commune, and the CCP’s real estate will collapse.<br/><br/>2/24/2022 文贵紧急直播：中共一定打台湾！战友们不要投机、在军事基地周围的赶快跑，中共国将血流成河；中共1号文件意味着老百姓要遭殃、中共将回到人民公社时代、房地产会崩塌<br/>
 ![img](https://media.gettr.com/group46/getter/2022/02/25/01/e2917333-4a00-257e-1ae1-ac53f605ad17/out.jpg)
-
----
-
-`@miles 2/25/2022 1:11 AM (UTC)`
-
-2/24/2022 Miles Guo’s GETTR: don’t try to be a war profiteer; we must treat our Taiwan compatriots like our brothers and sisters, and try our best to help them get out of Taiwan as soon as possible，the global Farm Alliance will be having a meeting to discuss a plan; the year 2022 will be the darkest one in human history<br/><br/>2/24/2022 文贵盖特：大家千万不能发战争财；我们要像对待亲兄弟姐妹一样，尽可能帮助有需要的台湾同胞尽快撤离，全球农场联盟会开会商讨方案；2022年是人类历史上最黑暗的一年<br/>
-![img](https://media.gettr.com/group34/getter/2022/02/25/01/e9aa178f-1ae7-77ce-0838-2b1b080d6ff5/out.jpg)
 
 ---
 

@@ -2,26 +2,36 @@
 ---
 
 
-## 瑞士感染数量下降，即将取消大部分病毒限制
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2070218/)
+## 俄罗斯全面发动入侵乌克兰的战争
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070220/)
 
-**翻译：日本东京方舟农场 A Little Tiger**
+作者：纽约香草山健身部—Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月24日凌晨，据盖特和其他媒体消息显示，俄罗斯正在从三个主要方向对乌克兰发起大规模的入侵，且俄军采用的主要袭击方式为空袭和导弹。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-26-上午9.43.57.png)
+据悉，乌克兰已经有137名公民死亡，169人受伤。但面对俄军发起的陆、海、空全面入侵，乌克兰总统泽连斯基向全国民众呼吁，希望愿意保家卫国的乌克兰人能挺身而出，政府将为其配发武器。
 
-据美联社报道，瑞士行政部门在周三宣布因该国感染人数的下降，将会取消大部分针对中共病毒的限制。瑞士联邦委员会表示，从上周四开始，民众无需在商店、餐馆、文化展览和其他公共场所与活动中戴口罩，也不需要提供疫苗接种证。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-400.jpg)（图片来源：thehill.com）
-该委员会还表示，对员工在工作场合的口罩要求和居家工作的建议也将被取消。大规模集会的人数要求也会终止。政府表示：“流行病的情况持续往好方向发展，由于群众的高免疫力，尽管病毒传播性的增高，医疗系统也不太可能出现负担过重的情况。”进入瑞士的游客也不需要填写入境表格或提供疫苗接种证明、康复与阴性测试。
+与此同时，台湾危机成为继乌克兰之后全球关注的重点问题。对此，郭文贵先生也在当天的紧急直播中指出，共产党一定会攻打台湾，新中国联邦必须马上组织起来，全力以赴地向愿意撤出台湾的战友和台湾同胞们提供援助，在所不辞。另一方面，郭先生也呼吁墙内的同胞远离军事设施与基地，一定要保护好自己和家人的安全。
 
-据报道，对公共交通和医疗机构的戴口罩要求以及呈阳性需进行隔离的要求是唯一未被取消的限制措施。根据约翰霍普金斯大学的数据，瑞士上周二记录了20,328例新病例，低于上月底每天近90,000例的病例。 瑞士的死亡人数也有所下降，周二报告的死亡人数为12人，而上周三的人数为131 人。
+郭先生强调，台海危机一触即发，已经迫在眉睫。
 
-据美联社报道，随着与病毒相关的限制被取消，瑞士政府还将停止对受疫情严重影响的企业提供经济补贴。
+参考链接：
+1）[https://gettr.com/post/pwm1d5ab4e](https://gettr.com/post/pwm1d5ab4e)
+2）[As it happened: Ukraine deaths as battles rage on day one of Russian invasion](https://www.bbc.com/news/live/world-europe-60454795)
 
-原文链接：
-[https://thehill.com/policy/international/europe/594525-switzerland-to-lift-most-covid-19-restrictions-amid-latest-virus](https://thehill.com/policy/international/europe/594525-switzerland-to-lift-most-covid-19-restrictions-amid-latest-virus)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-素材採編：妙喜小油鍋
-校对：妙喜小油鍋
-发布：爱放飞
+总编：Irene木木
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,41 @@
 ---
 
 
-## 俄罗斯全面发动入侵乌克兰的战争
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070220/)
+## 有声|俄紧急情况代理部长称超过96,000 名顿巴斯难民越过俄罗斯边境
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2070255/)
 
-作者：纽约香草山健身部—Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月24日凌晨，据盖特和其他媒体消息显示，俄罗斯正在从三个主要方向对乌克兰发起大规模的入侵，且俄军采用的主要袭击方式为空袭和导弹。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-26-上午9.43.57.png)
-据悉，乌克兰已经有137名公民死亡，169人受伤。但面对俄军发起的陆、海、空全面入侵，乌克兰总统泽连斯基向全国民众呼吁，希望愿意保家卫国的乌克兰人能挺身而出，政府将为其配发武器。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image009-6.jpg)新华社照片，华盛顿，2021年11月16日<br>（国际）（1）拜登签署万亿美元基础设施投资法案<br>11月15日，美国总统拜登在华盛顿白宫出席基础设施投资法案签字仪式。<br>美国总统拜登15日在白宫签署总额约1万亿美元的跨党派基础设施投资法案。经济学家认为，此项法案不足以填补美国巨大的基础设施融资缺口，对经济增长的拉动作用有限。<br>新华社发（沈霆 摄）
+2 月23 日，据塔斯社消息，俄罗斯紧急情况代理部长亚历山大·丘普里扬表示，自撤离开始以来，“截至莫斯科时间，23日06:00，超过96,000人越过俄罗斯边境，”这些难民来自顿涅茨克和卢甘斯克（DPR 和LPR）。目前俄罗斯12个地区有230个临时住宿站为他们开放。
 
-与此同时，台湾危机成为继乌克兰之后全球关注的重点问题。对此，郭文贵先生也在当天的紧急直播中指出，共产党一定会攻打台湾，新中国联邦必须马上组织起来，全力以赴地向愿意撤出台湾的战友和台湾同胞们提供援助，在所不辞。另一方面，郭先生也呼吁墙内的同胞远离军事设施与基地，一定要保护好自己和家人的安全。
+俄罗斯卫星通讯社消息，白宫表示，美国愿意接纳乌克兰难民，但预计大部分难民将涌入欧洲。
 
-郭先生强调，台海危机一触即发，已经迫在眉睫。
+当地时间24日，白宫新闻秘书普萨基表示，美国已经准备好接收乌克兰难民，并准备协助乌克兰周边的欧洲国家处理更多难民流入问题。与此同时，美国总统拜登再就俄乌局势发表讲话。拜登重申，美军现在没有，将来也不会参与俄乌冲突，美军去欧洲不是为了乌克兰作战，而是为了保护北约盟国。
 
-参考链接：
-1）[https://gettr.com/post/pwm1d5ab4e](https://gettr.com/post/pwm1d5ab4e)
-2）[As it happened: Ukraine deaths as battles rage on day one of Russian invasion](https://www.bbc.com/news/live/world-europe-60454795)
+[【援引连结】](https://tass.com/society/1408769)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：Irene木木
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
