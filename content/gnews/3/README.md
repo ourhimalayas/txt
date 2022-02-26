@@ -2,29 +2,24 @@
 ---
 
 
-## 有声｜联合国要求停止攻击乌克兰 遭俄罗斯否决
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2068202/)
+## 视频|邪恶共产主义试图奴役世界
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2068306/)
 
-By:**秘翻新闻**
+制作：香草山视频部
 
-**2022-02-26**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-33.png)图片来源 AP HPOTO/JOHN MINCHILLO
-[据美联社2月26日报道，俄罗斯周五否决了联合国安理会的一项决议，该决议要求俄罗斯立即停止对乌克兰的袭击并撤出所有军队。](https://apnews.com/article/russia-ukraine-vladimir-putin-united-nations-general-assembly-europe-moscow-eafe0856be8625a27a672cab320821bb)
+郭文贵先生在2月20日的大直播中解读了当今世界的局势，即以中共为代表的国际共产主义正试图奴役全人类，这直接导致世界陷入黑暗之中。
 
-[投票结果为 11 票赞成，俄罗斯投反对票，中共国、印度和阿联酋投弃权票，这使得俄罗斯入侵乌克兰的决议失败。因俄罗斯拥有一票否决权，美国及其支持者此前就预估失败是不可避免的，但表示这将进一步使俄罗斯在全球的孤立。](https://apnews.com/article/russia-ukraine-vladimir-putin-united-nations-general-assembly-europe-moscow-eafe0856be8625a27a672cab320821bb)
+郭先生解释道，在一个缺乏法制的社会中，当地民众只会人人自危。尤其在中共独裁统治下，其通过一党专政来践踏中国的法律、道德和信仰，还以洗脑剥夺了人们分析和思考问题的能力。如今，中共国内巨大的贫富差距和即将崩溃的经济已经让中国人的生存变得日益艰难。
 
-[美国大使琳达·托马斯-格林菲尔德称，毫不奇怪，俄罗斯今天行使否决权是为了保护其在乌克兰发动的有预谋的、无端的、无理的和不合情理的战争。俄罗斯可以否决这项决议，但无法否决真相。](https://apnews.com/article/russia-ukraine-vladimir-putin-united-nations-general-assembly-europe-moscow-eafe0856be8625a27a672cab320821bb)
+郭先生还补充道，从2019年香港民主的殒落，到眼下祸害全球的中共病毒及其疫苗，再加上目前几乎所有国家陷入的政治和经济动荡，这一切都是由邪恶中共和达沃斯党奉行的极左共产主义试图奴役整个世界而造成的。
 
-[英国驻联合国大使芭芭拉伍德沃德称，俄罗斯声称采取自卫行动是荒谬的，俄罗斯唯一的自卫行为就是他们今天投了反对票。](https://apnews.com/article/russia-ukraine-vladimir-putin-united-nations-general-assembly-europe-moscow-eafe0856be8625a27a672cab320821bb)
+发稿：林礼
 
-[联合国秘书长安东尼奥·古特雷斯在会后对记者称，联合国诞生于战争，旨在结束战争。今天这个目标没有实现，但绝不能放弃。我们必须再给和平一次机会。](https://apnews.com/article/russia-ukraine-vladimir-putin-united-nations-general-assembly-europe-moscow-eafe0856be8625a27a672cab320821bb)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-秘翻新闻 文洋 编译报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

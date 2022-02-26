@@ -2,20 +2,22 @@
 ---
 
 
-## 有声｜将俄罗斯踢出SWIFT支付系统的势头越来越强
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2068104/)
+## 有声｜联合国要求停止攻击乌克兰 遭俄罗斯否决
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2068202/)
 
 By:**秘翻新闻**
 
 **2022-02-26**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-39.png)图片来源 路透社
-[据路透社2月25日报道，加拿大、美国、英国和欧盟周五表示，在为阻止俄罗斯入侵乌克兰的新一轮制裁中，可能将俄罗斯排除在SWIFT支付系统之外。](https://www.reuters.com/world/europe/momentum-grows-ban-russia-swift-payment-system-2022-02-26/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-33.png)图片来源 AP HPOTO/JOHN MINCHILLO
+[据美联社2月26日报道，俄罗斯周五否决了联合国安理会的一项决议，该决议要求俄罗斯立即停止对乌克兰的袭击并撤出所有军队。](https://apnews.com/article/russia-ukraine-vladimir-putin-united-nations-general-assembly-europe-moscow-eafe0856be8625a27a672cab320821bb)
 
-[SWIFT是一个国际银行见的信息传递系统，促进快速的跨境支付，是国际贸易融资的主要机制。将俄罗斯踢出SWIFT会打击其贸易能力，缩减其贸易收入。](https://www.reuters.com/world/europe/momentum-grows-ban-russia-swift-payment-system-2022-02-26/)
+[投票结果为 11 票赞成，俄罗斯投反对票，中共国、印度和阿联酋投弃权票，这使得俄罗斯入侵乌克兰的决议失败。因俄罗斯拥有一票否决权，美国及其支持者此前就预估失败是不可避免的，但表示这将进一步使俄罗斯在全球的孤立。](https://apnews.com/article/russia-ukraine-vladimir-putin-united-nations-general-assembly-europe-moscow-eafe0856be8625a27a672cab320821bb)
 
-[美欧官员表示，在德国和意大利的官员减缓了他们反对将俄罗斯踢出SWIFT的立场之后，这项制裁很快会发生。欧洲议会主席萝伯塔·梅措拉周五表示，禁止俄罗斯进入SWIFT可能是新一轮制裁的一部分。一直不愿意采取这一步骤的意大利周五表示，不会否决禁止俄罗斯的提案，并承诺继续与欧盟伙伴一致努力。德国财政部长克里斯蒂安-林德纳周五表示，德国是欧盟与俄罗斯贸易流量最大的国家，也对禁止俄罗斯加入SWIFT持开放态度，但必须计算对其经济的影响。](https://www.reuters.com/world/europe/momentum-grows-ban-russia-swift-payment-system-2022-02-26/)
+[美国大使琳达·托马斯-格林菲尔德称，毫不奇怪，俄罗斯今天行使否决权是为了保护其在乌克兰发动的有预谋的、无端的、无理的和不合情理的战争。俄罗斯可以否决这项决议，但无法否决真相。](https://apnews.com/article/russia-ukraine-vladimir-putin-united-nations-general-assembly-europe-moscow-eafe0856be8625a27a672cab320821bb)
 
-[欧盟外交政策负责人何塞普-博雷尔说，关于SWIFT的决定可能会在未来几天作出。这标志着西方大国本周对俄罗斯实施的协同制裁将进一步升级，包括周五针对俄罗斯总统普京和外交部长谢尔盖-拉夫罗夫个人的罕见制裁。](https://www.reuters.com/world/europe/momentum-grows-ban-russia-swift-payment-system-2022-02-26/)
+[英国驻联合国大使芭芭拉伍德沃德称，俄罗斯声称采取自卫行动是荒谬的，俄罗斯唯一的自卫行为就是他们今天投了反对票。](https://apnews.com/article/russia-ukraine-vladimir-putin-united-nations-general-assembly-europe-moscow-eafe0856be8625a27a672cab320821bb)
+
+[联合国秘书长安东尼奥·古特雷斯在会后对记者称，联合国诞生于战争，旨在结束战争。今天这个目标没有实现，但绝不能放弃。我们必须再给和平一次机会。](https://apnews.com/article/russia-ukraine-vladimir-putin-united-nations-general-assembly-europe-moscow-eafe0856be8625a27a672cab320821bb)
 
 秘翻新闻 文洋 编译报道
 

@@ -2,31 +2,27 @@
 ---
 
 
-## 秘翻在线：死亡人数‘破纪录’，韩国26日新增确诊病例16晚6209例，重症病例643例…
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2067810/)
+## 有声｜习近平致金正恩，称愿在新形势下开展合作
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2068142/)
 
-撰稿: Eric Kim
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-111.jpg)图片来源：韩国釜山日报
-26日，韩国釜山日报报道称，韩国中央防疫对策本部表示：“至26日 0时，每日新增确诊人数比前一天的16万 5890人，增加了319人，累计确诊人数达283万 1283人”
+By:**秘翻新闻**
 
-随着疫情的持续，死亡人数也在增加。前一天因感染中共病毒死亡的人数为112人，是大流行以来的峰值。从死亡年龄来看，80岁以上的人最多，达72人，其次是70~80岁 25人、60~70岁 8人、50~60岁 4人、40~50岁 2人、20~30岁 1人。累计死亡人数为7895人。
+**2022-02-26**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-39.png)图片来源 路透社Yoan Valat/Pool via REUTERS
+[据路透社2月26日消息，朝鲜官方媒体朝中社周六报道，中共国国家主席习近平向朝鲜领导人金正恩强调了两国合作的重要性。朝中社表示，习近平向金正恩表示，中共国愿与朝方一道，在新形势下稳步发展中朝友好合作关系。但朝中社没有进一步详细说明新形势的性质。](https://www.reuters.com/world/china/chinas-xi-message-nkoreas-kim-vows-cooperation-under-new-situation-kcna-2022-02-25/https://www.reuters.com/world/russia-vetoes-un-security-action-ukraine-china-abstains-2022-02-25/)
 
-重症患者比前一天的655人减少了12人，为643人。
+[据朝中社报道，习近平发表上述讲话是为了回应金正恩对北京冬奥会的贺电和冬奥会圆满闭幕后的口头祝贺。](https://www.reuters.com/world/china/chinas-xi-message-nkoreas-kim-vows-cooperation-under-new-situation-kcna-2022-02-25/https://www.reuters.com/world/russia-vetoes-un-security-action-ukraine-china-abstains-2022-02-25/)
 
-目前，在韩国中共病毒疫苗3针以下的全民接种率为86.4%，打完第3针的占全国人口的60.9%(累计人数为 3122万 8461人)。
+[本周早些时候，金正恩在给习近平的口头信息中誓言要加强与中共国的合作，共同挫败来自美国及其盟国的威胁和敌对政策。](https://www.reuters.com/world/china/chinas-xi-message-nkoreas-kim-vows-cooperation-under-new-situation-kcna-2022-02-25/https://www.reuters.com/world/russia-vetoes-un-security-action-ukraine-china-abstains-2022-02-25/)
 
-为什么疫苗接种率越高，确诊人数就越多呢？特别是打过疫苗的，潜在的无症状确诊者更是数不胜数。
+[自1961年两国签署条约以来，中共国一直是朝鲜唯一的主要盟友。](https://www.reuters.com/world/china/chinas-xi-message-nkoreas-kim-vows-cooperation-under-new-situation-kcna-2022-02-25/https://www.reuters.com/world/russia-vetoes-un-security-action-ukraine-china-abstains-2022-02-25/)
 
-韩国国民对于疫苗预防中共病毒及减少重症几率的政府话术充满了怀疑和不信任，质疑声越来越大。但韩国政府却一意孤行，为了减少新增确诊人数和重症患者，一边推广接种疫苗；一边让轻症、无症状确诊者居家隔离自我恢复，隔离7天后即使自我检测试剂显示阳性，也会被允许恢复日常生活，并谎称居家隔离后’复阴’或者显示阳性的人体内已经产生自然抗体，而且不会感染其他人，让国民放心。
+秘翻新闻 文洋 编译报道
 
-这种满嘴谎言，不负责任的政府、专家令人绝望。人在做，天在看，不是不报，是时候未到。希望这些人能得到应有的报应，让人们重新回归正常的生活。
+发布 : 恩典
 
-
-
-信息来源: [https://n.news.naver.com/article/082/0001143317?cds=news\_media\_pc](https://n.news.naver.com/article/082/0001143317?cds=news_media_pc)
-
-责编：Eric Kim
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,44 +2,34 @@
 ---
 
 
-## 壬寅年新中国联邦新春晚会七哥将唱响甜蜜蜜等三首歌曲
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2068067/)
+## “核弹级制裁”欧盟考虑将俄罗斯逐出SWIFT
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2068195/)
 
-G-TV视频链接：[https://gtv.org/video/id=620899b6b0af02660af30d8c](https://gtv.org/video/id=620899b6b0af02660af30d8c)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-25.jpg)“核弹级制裁”欧盟考虑将俄罗斯逐出SWIFT 网络图片
+据美国之音2月26日报道，在俄罗斯对乌克兰发动全面军事入侵后，西方世界对俄罗斯实施制裁，但不包括将其踢出全球银行间支付系统SWIFT。法国财政部长25日表示，欧盟在分析启用这项制裁的作用及后果。SWIFT虽然能给俄罗斯银行带来沉重打击，但也可能导致俄罗斯联手其他国家成立自己的支付系统。
 
-**郭文贵先生：**喜币现在多少了呀？哇噻，哎哟哇噻。明天，明天的也就是纽约的早上八点半，大陆的时间是九点半啊，会有提前开始了新中国联邦的对抗挑战共产党的大宣传洗脑的春节联欢晚会，明天七哥将有三首歌唱给你们，包括《甜蜜蜜》，有三首歌唱给你们，明天一定会唱出来鲍鱼就蕨菜，四川辣味的菜，还有一个就是我们要弄出来穿貂皮大衣，然后开着假奔驰“吉利”把四川榨菜、鲍鱼整明白的事，不唱瞎他们不拉倒啊。
+德国政府表示将俄罗斯踢出SWIFT在技术上很难安排，将对德国和在俄罗斯的德国企业的交易产生巨大影响，因此德国对启动SWIFT制裁保持开放态度。美国总统拜登宣布了对俄罗斯的新的制裁措施，包括对俄罗斯最大的银行和其他四家金融机构的资产冻结；禁止俄罗斯国有企业从美国和欧洲投资人手中融资；切断俄罗斯一半以上高科技进口；以及扩大对俄罗斯精英及其家族成员的制裁。但不包括将俄罗斯从SWIFT国际支付系统中排除。
 
-50.510，哎哟我的妈呀，哎哟我的妈呀，这钱“咣咣”的呀，咋弄呀这玩意，咋花呀这么多钱？你们都发财了咋办呐！Rachel：为了庆祝喜币破50，入手了G-Fashion。才买了几件，小气，哎呀，咱们中国人就是不舍得给自己花钱，是很怕的，不会花钱、不舍得花钱，最后一生，不管富有者，就像那个朱孟依一样，合生创展的，给自己买个爱马仕腰带，让自己的妈和孩子全穿上假爱马仕，可怜、可悲呀！
+SWIFT系统是一个为200多个国家和地区的11,000多家金融机构之间提供信息传递服务的机构。将俄罗斯从SWIFT金融系统中剔除，将是美国及其欧洲盟友对俄罗斯采取的最严厉的金融措施之一，会立即和长期地损害俄罗斯经济。可能会切断俄罗斯与大多数国际金融交易的联系，包括出口石油和天然气产生的利润，这些利润总共占到俄罗斯收入的40%以上。
 
-行啦，兄弟姐妹们，今天的直播到此为止，明天早上见，明天早上将开启我们真正的大直播新春联欢晚会，谢谢兄弟姐妹们，再见，再见……多少人了我的天呐，300万，哎哟，300万吗？200万200万啊，天呐！
+拉脱维亚、立陶宛和爱沙尼亚外长，包括英国首相均呼吁将俄罗斯踢出SWIFT。欧洲国家则举棋不定，尽管这么做能够给俄罗斯银行构成沉重打击，但是它牵扯到欧洲多方利益，特别是对俄罗斯天然气高度依赖的国家。德国有一半的天然气供应来自俄罗斯，整个欧盟进口的天然气超过三分之一来自俄罗斯。欧洲各国都依赖SWIFT系统向俄罗斯支付燃气费用。
 
-字幕来源：[2022年1月30日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1936606/)
+禁止某些国家使用SWIFT，也许会鼓励这些国家寻找替代方案。欧盟是否排除对俄罗斯采取SWIFT制裁的方案，最终取决于乌克兰局势的发展。普京出手毫不犹豫，打击从天而降，但实施制裁的国家却犹豫不决。前方乌克兰在流血，后方欧盟瞻前顾后、平衡利益。什么时候对待非正义和邪恶，国际社会能够迅速地”该出手时就出手”呢？
 
-编辑整理：Jacques；
+新闻参考链接：[https://www.voachinese.com/a/will-russia-be-kicking-out-of-swift-20220225/6459409.html](https://www.voachinese.com/a/will-russia-be-kicking-out-of-swift-20220225/6459409.html)
 
-字幕文件制作：知津；
+* * *
 
-视频制作及上传：Cindy；
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+编辑：【英国伦敦喜庄园编辑部】
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
