@@ -2,30 +2,24 @@
 ---
 
 
-## 英媒：俄入侵乌克兰造成198名平民死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2069513/)
+## 樱花FM|疫苗副作用对人体的伤害
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2069871/)
 
-撰稿：东京樱花团｜山顶闲人
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-1-12.png)
+截止2022年1月末，日本接种疫苗后死亡人数为1444人，重症病例为6370人，虽然大多数副作用在接种几天内发生，但随着时间推移，也许会出现各种后遗症。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/英媒：俄入侵乌克兰造成198名平民死亡.png)
+这些后遗症主要包括心肌炎、血栓形成、格里-巴利综合症、免疫功能低下、免疫力不全、ADE、自身免疫性疾病、不孕症、癌症、朊病毒-雅各布病，等。
 
-[*图片来源*](https://www.dailymail.co.uk/news/article-10553451/They-storm-tonight-Zelensky-says-Putins-forces-launch-scale-assault-Kyiv.html)*（图片为一个覆盖至少五层楼的洞被炸毁在建筑物的一侧，瓦砾散落在街道上）*
+文字版原文：
 
-**据英媒《每日电讯》2月26日消息：**
+[疫苗副作用对人体的伤害 – GNEWS](https://gnews.org/zh-hans/1935856/)
 
-***1. 俄罗斯军队杀死了包括三名儿童在内的 198 名乌克兰平民，塔楼被导弹袭击撕裂 – 因为总统泽连斯基拒绝在血腥的基辅战役中放下武器。***
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
 
-***2. 乌方官员称，朱利尼机场附近的公寓楼遭到毁灭性袭击，所幸没有造成人员伤亡。***
 
-***3. 俄罗斯军队还向乌克兰军事设施发射了一连串巡航导弹***
-
-***4. 总统泽连斯基宣布基辅将抵抗俄罗斯的进攻并誓言与普京的军队作战。***
-
-消息链接：[**Russian forces kill 198 Ukrainian civilians including three children and tower block is ripped apart by MISSILE strike – as defiant president Zelensky refuses to lay down weapons in bloody Battle for Kyiv**](https://www.dailymail.co.uk/news/article-10553451/They-storm-tonight-Zelensky-says-Putins-forces-launch-scale-assault-Kyiv.html)
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

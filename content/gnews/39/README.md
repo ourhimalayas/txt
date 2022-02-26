@@ -2,31 +2,30 @@
 ---
 
 
-## 秘翻新闻｜美欧加大对俄制裁力度 直接针对普京
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2068715/)
+## 英媒：俄入侵乌克兰造成198名平民死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2069513/)
 
-**By:秘翻新闻**
+撰稿：东京樱花团｜山顶闲人
 
-**2022-02-26**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/英媒：俄入侵乌克兰造成198名平民死亡.png)
 
-**今日主题:**
+[*图片来源*](https://www.dailymail.co.uk/news/article-10553451/They-storm-tonight-Zelensky-says-Putins-forces-launch-scale-assault-Kyiv.html)*（图片为一个覆盖至少五层楼的洞被炸毁在建筑物的一侧，瓦砾散落在街道上）*
 
-**1.中共粉红疯传撤侨影片感谢祖国 遭党媒打脸**
+**据英媒《每日电讯》2月26日消息：**
 
-**2.为规避种族歧视，美政府调整《中国行动计划》**
+***1. 俄罗斯军队杀死了包括三名儿童在内的 198 名乌克兰平民，塔楼被导弹袭击撕裂 – 因为总统泽连斯基拒绝在血腥的基辅战役中放下武器。***
 
-**3.将俄罗斯踢出SWIFT支付系统的势头越来越强**
+***2. 乌方官员称，朱利尼机场附近的公寓楼遭到毁灭性袭击，所幸没有造成人员伤亡。***
 
-**4.习近平致金正恩，称愿在新形势下开展合作 **
+***3. 俄罗斯军队还向乌克兰军事设施发射了一连串巡航导弹***
 
-**5.联合国要求停止攻击乌克兰 遭俄罗斯否决**
+***4. 总统泽连斯基宣布基辅将抵抗俄罗斯的进攻并誓言与普京的军队作战。***
 
-**🔗GTV链接：**[https://gtv.org/video/id=6219c13708ba8a07b1a3cbb3](https://gtv.org/video/id=6219c13708ba8a07b1a3cbb3)
+消息链接：[**Russian forces kill 198 Ukrainian civilians including three children and tower block is ripped apart by MISSILE strike – as defiant president Zelensky refuses to lay down weapons in bloody Battle for Kyiv**](https://www.dailymail.co.uk/news/article-10553451/They-storm-tonight-Zelensky-says-Putins-forces-launch-scale-assault-Kyiv.html)
 
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

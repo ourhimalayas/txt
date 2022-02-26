@@ -2,24 +2,26 @@
 ---
 
 
-## 樱花FM|法国扭捏表态不参加中共冬奥开幕式
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2069937/)
+## 中日财经爆┃烂尾楼威胁政权安全？法院判决购房人不用还月供
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070018/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-3-8.png)
-据巴黎时报报道：法国欧洲事务部长在1月30日，出席法国电台的节目时，就讨论2月4日开幕的中共冬奥会是否出席的问题时表示，体育部长将被派往2月4日开幕的北京冬奥会，但她不会出席开幕式，但会在奥运会期间的某个时候去当地支持鼓励法国运动员。
+撰稿：东京樱花团/知了知了
 
-欧洲事务部长还进一步强调，拒绝明确表示他不会参加关于外交抵制的辩论，强调 “外交必须是低调的”。解释说欧盟对于有于抵制问题也还在讨论中，但认为许多国家没有派人或没有让其国家元首出席开幕式是明智的决定。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/烂尾楼威胁政权安全？法院判决购房人不用还月供.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi.ytimg.com%2Fvi%2FyPyOBcmw04s%2Fmaxresdefault.jpg&amp;imgrefurl=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DyPyOBcmw04s&amp;tbnid=0yQljue-4_Pz5M&amp;vet=12ahUKEwiGoJitup32AhWNIjQIHUduAIYQMygGegUIARCqAQ..i&amp;docid=4DYXbrQ73SyfTM&amp;w=1280&amp;h=720&amp;q=%E7%83%82%E5%B0%BE%E6%A5%BC&amp;ved=2ahUKEwiGoJitup32AhWNIjQIHUduAIYQMygGegUIARCqAQ)
 
-文字版原文：
+近日，浙江省嘉兴市中级人民法院发布的一则案例引发关注，因楼盘烂尾、开发商申请破产，该法院判决商品房买卖合同被确认无效，由开发商承担剩余贷款的还款责任，而不是购房人。2015年青海出现了个类似的官司，最高法于2020年做出判决开发商向银行偿还按揭款，并于2021年发布。
 
-[法国扭捏表态不参加中共冬奥开幕式 – GNEWS](https://gnews.org/zh-hans/1935835/)
+中共国最不缺的就是烂尾楼，无论那个城市均有数栋乃至数十栋烂尾名著。自从1992年5月银行放出第一笔房贷始，只有也仅有最近两起，楼盘烂尾后，购房者与开发商购房合同失效，可以不还月供的判例。
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+一切有利于普通购房人的判决，在中共国几乎是不可能发生的事情。近期两个案件中购房者的胜诉，绝不是法治的结果，而是大量房企陷入债务危机，无力完成房屋建设和交付，届时烂尾楼遍地，会引发大量的群众事件，威胁政权安全，由此才做出了看似有利于普通购房者的判决。中共国房地产已经处于崩溃的前夕，中共政权已经在有针对性地拆卸压力，但这个雷太大，他们背不住。
 
+信息来源：
 
+[判了！楼盘烂尾后，购房人不用还月供，快看需要怎么做](https://www.163.com/dy/article/H1549RN50519C6T9.html)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

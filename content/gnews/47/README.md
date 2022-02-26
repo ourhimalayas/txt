@@ -2,46 +2,29 @@
 ---
 
 
-## 美国最近几周CDC 数据表明：接种疫苗的人更有可能感染 COVID-19和去医院
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2064680/)
+## 研究发现接种了新冠疫苗的孩子患上多系统炎症综合征
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2068597/)
 
-编译: 真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-19.png)图片来源：[https://www.theepochtimes.com](https://www.theepochtimes.com)
-来自THE EPOCH TIMES  二月二十四日的新闻报道:
+#### 翻译/撰稿：zzballack
 
-根据疾病控制和预防中心 (CDC) 最新公布的数据，在 Omicron 病毒变种出现后，接种 COVID-19 疫苗的人群中 COVID-19 病例和住院率增加。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-54.jpg)图片来源：aerzteblatt.de
+据《大纪元》2月25日报道，《柳叶刀》（Lancet）杂志本周二（2月22日）发表的一项研究显示，12-20岁年龄组的一些接种了新冠疫苗的青少年报告说，身体免疫系统超负荷运转，并出现了发烧和涉及多个器官系统的系统性炎症等症状。
 
-根据全国卫生部门提交给 CDC 的数据，在 2021 年 12 月 11 日至 2022 年 1 月 8 日期间，完全接种疫苗的人群中的 COVID-19 病例率上升了 1000% 以上。
+2020年5月14日至2021年11月30日期间，美国疾控中心（CDC）的MIS-C（儿童多器官系统炎症综合症）国家监测系统共记录了5973个MIS-C病例。MIS-C患者通常在接种疫苗后的2至6周出现症状，需要住院治疗。
 
-完全接种疫苗是指接种了两剂 Moderna 或 Pfizer COVID-19 疫苗或单剂强生疫苗的人。
+这项研究的作者调查了2020年12月14日至2021年8月31日期间的数据，并且“确定了21名在接种疫苗后出现MIS-C的患者。”这21人年龄在12至20岁之间，男性13人，女性8人。其中11人在接种第一剂疫苗后出现MIS-C症状；其余10人在接种第二针后出现这些症状。报告说：“所有21人都接受了住院治疗，其中12人住进重症监护室。之后所有人都出院回家。有实验室证据表明， 21人中有15人在过去或者最近感染过新冠，其余6人没有感染新冠。”
 
-那些也接受了加强剂量的人的病例率也猛增，在同一时间段内上升了约 2,400%。
+截至2021年8月31日，美国12岁至20岁群体总共有2100多万人至少接种了一剂新冠疫苗，这一年龄组的MIS-C报告率达到了百万分之一。在无法确认感染了新冠的人群中，每百万接种者只报告了0.3例。
 
-虽然未接种疫苗的病例也有所增加，但接种疫苗的感染人数激增导致了两者之间的差距在缩小。
+这一比率低于此前的另一项研究结果。该研究指出，11至15岁人群的MIS-C报告率为每百万人有224人，16至20岁人群的MIS-C 报告率为每百万人有164人。
 
-根据CDC管理的监控系统的数据，接种疫苗的人中与 COVID-19 相关的住院人数也有所增加，从截至 2021 年 12 月 18 日当周完全接种疫苗的每 100,000 人中增加 1.4 人，到截至 1 月 8 日当周的每 100,000 人中 35.2 人。
+研究作者写道：“MIS-C报告症状的发病机制，可能与新冠感染引起的免疫反应失调有关，宿主基因可能会被改变的更易感染MIS-C。”
 
-接受加强剂的人不太可能需要住院治疗，但从 2021 年 12 月到 1 月，接受三针的人的住院率也有所上升。
+新闻来源：
 
-在同一时间段内，因 COVID-19 导致的死亡人数在接种疫苗者中有所增加，包括在加强剂接种者中。
+[Rare Multisystem Inflammatory Syndrome Detected in Vaccinated Young: Lancet Study](https://www.theepochtimes.com/mkt_app/rare-multisystem-inflammatory-syndrome-detected-in-vaccinated-young-lancet-study_4302140.html)
 
-其他数据来源也指出疫苗在 Omicron 之后表现更差，包括 CDC 在 1 月份发表的研究，该研究表明未接种疫苗和已接种疫苗的病例和住院人数之间的差距在缩小。
-
-疾病预防控制中心的数据还显示，未接种疫苗者的病例、住院率和死亡率都有所上升，但与接种疫苗者相比，增幅并不显着。
-
-最近几周，未接种疫苗和接种疫苗的病例、住院人数和死亡人数均急剧下降，促使许多州取消了 COVID-19 限制。
-
-原文链接：[https://www.theepochtimes.com/mkt\_app/vaccinated-people-more-likely-to-contract-covid-19-go-to-hospital-in-recent-weeks-cdc-data\_4300048.html](https://www.theepochtimes.com/mkt_app/vaccinated-people-more-likely-to-contract-covid-19-go-to-hospital-in-recent-weeks-cdc-data_4300048.html)
-
-编辑：LILY
-
-发布：面包飞上天
-
-20220225
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/DA2FFC16-CFD3-4CBE-A6EF-8D83D11E5A70.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

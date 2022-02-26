@@ -2,37 +2,42 @@
 ---
 
 
-## 丹麦支持将俄罗斯排除在SWIFT之外
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2069242/)
+## 前辉瑞员工：中共病毒疫苗是人类基因编辑的工具
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2069663/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2481.png)
-图片来源：视频截图
+作者：银河系农场 — 骄子
 
-**丹麦愿意在对俄罗斯的制裁中比欧盟走得更远**
 
-2月25号周五晚上的新闻发布会上，丹麦首相梅特·弗雷德里克森（Mette Frederiksen）希望加强对俄罗斯的制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
+近日，前辉瑞员工Karen Kingston表示，中共病毒疫苗的目的是成为基因编译的工具。CDC、FDA、NIH之前对此事完全知情，他们将对疫苗造成的不良后果不负任何责任。
 
-弗雷德里克森说，现在必须把所有的努力都放在桌面上，丹麦政府希望我们在对俄罗斯的制裁上更进一步。如果那样的话，俄罗斯公司与外国的贸易就会非常困难。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-26.jpg)图片来源网络
 
-她说，我的最佳猜测是，SWIFT将被纳入第三个制裁方案。俄罗斯必须被排除在SWIFT合作之外。我们必须用绝对最严厉的经济制裁来对付普京的令人发指的行为。
+Kingston说，中共病毒疫苗能否成功进行基因编译取决于很多不同的因素，包括是否在注射后迅速死亡。疫苗的另外一个目的是创造一个不是100%人类的新物种，向人体注入人工智能和计算机系统。中共病毒疫苗的意图还有杂交，将非人类物种细胞注入人体以实现基因整合。 据悉，一些大型生物技术公司曾利用从美国NIH的大额捐款在中共北京从事了生物武器的研究。而中共目前是订购基因、定制生物武器，制造疫苗等业务的最大客户之一，且这些企业大部分被中共勾兑，中国本土拥有各种大型制造设施。 最后Kingston感叹全球人类都被欺骗，各个当权者都利用谎言去逼迫人们接种中共病毒疫苗，这是一个精心策划的人类大屠杀计划。
 
-**规划新的制裁**
-在入侵乌克兰后，美国、英国和欧盟都在周四对俄罗斯实施了新的制裁。
+相关链接：
 
-但双方都不准备使用被他们称为最强大的武器，丹麦外长Jeppe Kofod（S）称之为 “**工具箱中的大锤子**“。
+[https://newstarget.com/2022-02-21-purpose-of-covid-vaccine-is-genetic-editing.html](https://newstarget.com/2022-02-21-purpose-of-covid-vaccine-is-genetic-editing.html)
 
-反对意见来自欧盟的几个方面，尽管目前还不清楚哪些国家最反对扣动可能是最强大武器的扳机。
+![This image has an empty alt attribute; its file name is Feb-55.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
 
-据丹麦媒体Berlingske的经济编辑Ulrik Bie说，我们可以猜测，是德国、意大利、匈牙利和塞浦路斯，这些欧盟中对俄罗斯最友好的国家对此不感兴趣。
+编辑/校对/发稿：Petite abeille
 
-总部设在比利时的SWIFT系统使全球11000多家银行和金融机构能够交换电子信息和资金转移，在国家间的贸易中发挥着重要作用。
+**更多资讯，更多关注**
 
-周四西方国家的制裁方案包括打击俄罗斯金融、能源和运输部门以及一些个人的措施。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-来源：
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[Gnews](https://gnews.org/2069225/)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is good-66.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-66.png)
+
+
+
 
  
 

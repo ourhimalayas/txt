@@ -2,35 +2,24 @@
 ---
 
 
-## 美国更新“未经核实名单” 中共生物制药业恐慌
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2064467/)
+## 德国保险公司揭示疫苗副作用数据远超政府报告
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2068444/)
 
-撰稿: 香草山金融部-箐苹（Apple2020）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
-尽管中共海关宣称2021年进出口总额达到6.05万亿美元，同比增长约30%，贸易顺差达6,764.3亿美元。但面对美国的贸易管制，稍有风吹草动，中共国的出口型企业和资本市场就如“惊弓之鸟”，不堪一击。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2362.png)图片来自：http://5b0988e595225.cdn.sohucs.com
-美国商务部工业与安全局2月发布了更新的“未经核实名单”，增加了33家中共公司和机构，生物制剂服务商药明生物被列入其中。尽管“未经核实名单”管制相对较弱，但药明生物股价当天从前一天收盘价格的80.6港币一度最低跌至55港币，最大跌幅超过30%，同时引发中共国CXO医药外包板块整体大跌。“未经核实名单”的贸易管制力度远低于“实体清单”，却引发了资本市场对中共国生物制药行业的恐慌，凸显了中共国出口贸易数据和相关产业链的脆弱性。
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
+据2月23日外媒报道，一家德国医疗保险公司出具的报告表明，实际的中共病毒疫苗不良反应的数据，要比德国政府披露的高很多倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2430.png)图片来自：https://www.infowars.com/
+该公司对超过1090万名保户进行了分析，从2021年初到第三季度中期，共有约21.7万人涉及中共病毒疫苗副作用而接受治疗。主要不良反应体现为接种后败血症、皮疹、疫苗或生物活性并发症以及其他症状。而德国卫生部记录的数据为，总人口6140万，在14个月中只记录了不足24.5万份疫苗不良反应。该保险公司CEO绍夫贝克先生称，从保单记录的数据来推断，中共病毒疫苗产生的不良反应就医可能已达到300万人次。他呼吁德国民众在决定接种之前慎重考虑中共病毒疫苗的副作用。
 
-中共国宣传的6万亿美元的“强劲”贸易数据，是在海外市场需求强劲、全球产业链被中共病毒疫情严重破坏，加上中共国企业能提前顺利大量进口海外技术和设备的多重背景下达成的。从贸易结构细分领域来看，此次美国更新的“未经核实名单”涉及的生物医药生产设备，如生物反应器等上游核心生产设备和耗材，仍掌握在在美国和欧洲龙头企业手里。一旦欧美贸易管制加码，将对中共国缺乏核心技术的产业链，乃至贸易进出口的虚假繁荣带来重大打击。
+医学统计学家格特·安蒂斯说，联邦卫生系统有责任迅速核实政府报告数据与实际疫苗不良反应数据不匹配的状况。
 
-参考链接：
+新闻来源：[“Alarm Signal”: Number of Vaccine Side Effects Significantly Higher Than Government Reports, Insurance Company Finds](https://www.infowars.com/posts/alarm-signal-number-of-vaccine-side-effects-significantly-higher-than-government-reports-insurance-company-finds/)
 
-[Revisions to the Unverified List](https://www.federalregister.gov/documents/2022/02/08/2022-02536/revisions-to-the-unverified-list)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5-1-2.png)
 
-[內幕消息 — 被美國商務部列入未經核實名單
-及恢復買賣](https://www1.hkexnews.hk/listedco/listconews/sehk/2022/0208/2022020801848_c.pdf)
+编辑：宁文静
 
-[生物制药上游头部企业金仪盛世完成数亿元B+轮融资](https://www.jyssbio.com/site/news_details/213)
-
-[乐纯生物完成B轮融资](https://www.lepurechina.com/news-information-52)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-266.png)
-
-
-
-编辑: 飞虹
-
-总编: 雪梨
+总编：飞虹
 
 校正/发稿：浪迹天涯
 
@@ -40,7 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

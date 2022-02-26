@@ -2,28 +2,48 @@
 ---
 
 
-## 研究发现接种了新冠疫苗的孩子患上多系统炎症综合征
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2068597/)
+## 泽连斯基需要反坦克的弹药 而不是离开他的国家。
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2069477/)
 
-#### 翻译/撰稿：zzballack
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-54.jpg)图片来源：aerzteblatt.de
-据《大纪元》2月25日报道，《柳叶刀》（Lancet）杂志本周二（2月22日）发表的一项研究显示，12-20岁年龄组的一些接种了新冠疫苗的青少年报告说，身体免疫系统超负荷运转，并出现了发烧和涉及多个器官系统的系统性炎症等症状。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-2020年5月14日至2021年11月30日期间，美国疾控中心（CDC）的MIS-C（儿童多器官系统炎症综合症）国家监测系统共记录了5973个MIS-C病例。MIS-C患者通常在接种疫苗后的2至6周出现症状，需要住院治疗。
+乌克兰总统弗拉基米尔·亚历山德罗维奇·泽连斯基（Volodymyr Oleksandrovych Zelensky）办公室在Instagram上发布了一段标题为“我们在这里，我们在基辅，我们正在保卫乌克兰”的视频，视频中，泽连斯基和他的高级官员站在乌克兰总统府旁。
 
-这项研究的作者调查了2020年12月14日至2021年8月31日期间的数据，并且“确定了21名在接种疫苗后出现MIS-C的患者。”这21人年龄在12至20岁之间，男性13人，女性8人。其中11人在接种第一剂疫苗后出现MIS-C症状；其余10人在接种第二针后出现这些症状。报告说：“所有21人都接受了住院治疗，其中12人住进重症监护室。之后所有人都出院回家。有实验室证据表明， 21人中有15人在过去或者最近感染过新冠，其余6人没有感染新冠。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/zelensky-video-.jpg)
 
-截至2021年8月31日，美国12岁至20岁群体总共有2100多万人至少接种了一剂新冠疫苗，这一年龄组的MIS-C报告率达到了百万分之一。在无法确认感染了新冠的人群中，每百万接种者只报告了0.3例。
+尽管乌克兰首都基辅很快会沦陷，很多人可能和我一样，在过去并不了解乌克兰和泽连斯基，但我想信，这一刻，很多人都会欣赏他的勇气。
 
-这一比率低于此前的另一项研究结果。该研究指出，11至15岁人群的MIS-C报告率为每百万人有224人，16至20岁人群的MIS-C 报告率为每百万人有164人。
+但中共国媒体称报道，俄方称泽连斯基早已离开基辅，所有呼吁视频都是提前拍的。
 
-研究作者写道：“MIS-C报告症状的发病机制，可能与新冠感染引起的免疫反应失调有关，宿主基因可能会被改变的更易感染MIS-C。”
+泽连斯基究竟是提前录制的视频还是现场拍摄的，对乌克兰人民抗击俄罗斯的入侵肯定非常重要，但此时，作为邪恶轴心国的中共，对泽连斯基任何负面报道，恐怕都不能相信。
 
-新闻来源：
+在这段视频中，泽连斯基对乌克兰人民说：“大家晚上好，各党派领袖都在这里，总统府的主要负责人都在这里，总理丹尼斯﹒什米哈尔在这里，总统办公室主任顾问米哈伊洛﹒波多利亚克在这里，总统在这里，我们都在这里。我们的军队在这里，公民和整个社会都在这里。我们都在这里捍卫我们的独立，我们的国家，它将继续如此。荣耀归于我们的捍卫者！荣耀归于我们勇敢的女性捍卫者！荣耀归于乌克兰！”。
 
-[Rare Multisystem Inflammatory Syndrome Detected in Vaccinated Young: Lancet Study](https://www.theepochtimes.com/mkt_app/rare-multisystem-inflammatory-syndrome-detected-in-vaccinated-young-lancet-study_4302140.html)
+（”Good evening, everyone. Leader of the faction (party) is here, head of the president’s administration is here, Prime Minister (Denys) Shmyhal is here, (adviser to the head of the President’s Office Mykhailo) Podoliak is here. The president is here. We are all here. Our military is here. Citizens and society are here. We are all here defending our independence, our state and it will remain so. Glory to our defenders! Glory to our women defenders! Glory to Ukraine!”）
+
+昨天，乌克兰军方表示，他们在基辅以南25英里的Vasylkiv 城附近击落了一架载有伞兵的俄罗斯军用Ilyushin Il-76重型运输机。6个小时前，两名直接了解乌克兰地面情况的美国官员称，第二架俄罗斯Ilyushin Il-76军用运输机在基辅以南50英里（85公里）的Bila Tserkva附近被击落。
+
+目前，反对俄罗斯军队的街头战斗正在基辅进行中，乌克兰官方建议居民留在避难所，避免靠近窗户或阳台，并采取预防措施防止被碎片或子弹击中。
+
+泽连斯基24号在电话中告诉欧洲领导人，他是俄罗斯的头号目标，而且他们可能再也见不到他了，他的下落一直被保密。
+
+7小时前，美联社报道，一名美国官员证实，美国准备帮助乌克兰总统泽连斯基离开基辅，以免被入侵的俄罗斯军队俘虏或杀害，然而，泽连斯基拒绝离开他的国家。
+
+一位直接了解谈话内容的美国高级情报官员援引泽连斯基的话说，“战斗就在这里”，他需要反坦克的弹药，而“不是逃跑”（I need ammunition, ‘not a ride’）。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/FMfarZbaAAI_QyO.jpg)
+
+参考资料：
+
+[Ukraine’s Zelensky rejects US evacuation offer: I need ammunition, ‘not a ride’](https://www.timesofisrael.com/zelensky-rejects-us-evacuation-offer-from-ukraine-i-need-ammunition-not-a-ride/)
+
+[Rejecting US evacuation offer, Zelensky says: I need anti-tank ammo, ‘not a ride’](https://www.timesofisrael.com/liveblog-february-25-2022/)
+
+[俄方称泽连斯基早已离开基辅：所有呼吁视频都是提前拍的](https://sv.baidu.com/videoui/page/videoland?context=%7B%22nid%22%3A%22sv_8186707626548131376%22%2C%22sourceFrom%22%3A%22bjh%22%7D)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

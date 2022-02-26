@@ -2,26 +2,26 @@
 ---
 
 
-## 中日财经爆┃烂尾楼威胁政权安全？法院判决购房人不用还月供
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070018/)
+## 美参议员：习近平利用俄罗斯作为其夺取台湾计划的“侦察队进攻”
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2070123/)
 
-撰稿：东京樱花团/知了知了
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/烂尾楼威胁政权安全？法院判决购房人不用还月供.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi.ytimg.com%2Fvi%2FyPyOBcmw04s%2Fmaxresdefault.jpg&amp;imgrefurl=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DyPyOBcmw04s&amp;tbnid=0yQljue-4_Pz5M&amp;vet=12ahUKEwiGoJitup32AhWNIjQIHUduAIYQMygGegUIARCqAQ..i&amp;docid=4DYXbrQ73SyfTM&amp;w=1280&amp;h=720&amp;q=%E7%83%82%E5%B0%BE%E6%A5%BC&amp;ved=2ahUKEwiGoJitup32AhWNIjQIHUduAIYQMygGegUIARCqAQ)
+2月25日，美参议员本-萨斯（Ben Sasse）告诉美国有线电视新闻网（CNN）的吉姆-舒托（Jim Sciutto），他认为中共国独裁者习近平为俄罗斯总统弗拉基米尔-普京入侵乌克兰 “开绿灯 “了，利用俄罗斯作为其夺取台湾计划的“侦察队进攻”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/010.jpg)（图片来自GETTR）
+据《Breitbart》报道，这位内布拉斯加的美国参议员本-萨斯说：“很多可能有更多孤立主义倾向的内布拉斯加人对我说，嘿，你已经告诉我们很长时间了，我们面临的头号地缘政治威胁是中共。我们面临的第二大威胁是中共。我们面临的第三大威胁是一个扩张主义的中国共产党。因此，我们难道不应该无视普京的所作所为吗？答案是肯定不行，因为习近平为这次入侵开了绿灯。”
 
-近日，浙江省嘉兴市中级人民法院发布的一则案例引发关注，因楼盘烂尾、开发商申请破产，该法院判决商品房买卖合同被确认无效，由开发商承担剩余贷款的还款责任，而不是购房人。2015年青海出现了个类似的官司，最高法于2020年做出判决开发商向银行偿还按揭款，并于2021年发布。
+萨斯继续说道，“因为习近平想看到美国被羞辱，他想看到欧洲被破坏稳定，他想推敲网络混合战争的样子，看看美国和西方是否有意愿（阻止俄罗斯），因为他把俄罗斯作为他夺取台湾的计划的侦察队进攻。”
 
-中共国最不缺的就是烂尾楼，无论那个城市均有数栋乃至数十栋烂尾名著。自从1992年5月银行放出第一笔房贷始，只有也仅有最近两起，楼盘烂尾后，购房者与开发商购房合同失效，可以不还月供的判例。
+萨斯呼吁，拜登总统为乌克兰提供紧急防御补充资金，充分武装乌克兰人，以此向普京以及习近平证明，美国不会置之不理。
 
-一切有利于普通购房人的判决，在中共国几乎是不可能发生的事情。近期两个案件中购房者的胜诉，绝不是法治的结果，而是大量房企陷入债务危机，无力完成房屋建设和交付，届时烂尾楼遍地，会引发大量的群众事件，威胁政权安全，由此才做出了看似有利于普通购房者的判决。中共国房地产已经处于崩溃的前夕，中共政权已经在有针对性地拆卸压力，但这个雷太大，他们背不住。
+参考链接：
+[https://www.breitbart.com/clips/2022/02/25/sasse-chinas-xi-using-russia-as-a-scout-team-offense-for-his-plans-to-seize-taiwan/](https://www.breitbart.com/clips/2022/02/25/sasse-chinas-xi-using-russia-as-a-scout-team-offense-for-his-plans-to-seize-taiwan/)
 
-信息来源：
+素材采编：幽蘭自得
+编辑：青城道姑
+发布：Linda
 
-[判了！楼盘烂尾后，购房人不用还月供，快看需要怎么做](https://www.163.com/dy/article/H1549RN50519C6T9.html)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
