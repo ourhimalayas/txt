@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/26/2022 11:32 PM (UTC)`
+
+2022年2月26日 紧急直播 救援在乌克兰中国同胞和美国友人方案
+![img](https://media.gettr.com/group42/origin/2022/02/26/23/c8dbf130-c644-86ba-3602-4755572ab379/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 2/26/2022 11:17 PM (UTC)`
 
 2/26/2022 Miles Guo: The education spending and coverage claimed by the CCP are all false, and the education in Communist China belongs to the privileged class and is the root of corruption, with teachers being brainwashed and reduced to tools of the CCP. Education is a bright light in the darkness, and its goal is to set role models for children.<br/><br/>2/26/2022 文贵直播：中共宣称的教育经费和覆盖率全是假的，中共国的教育属于特权阶级，是腐败的根源，教师被洗脑沦为工具；教育是一盏黑暗中的明灯，其目的是给孩子树立榜样<br/>
@@ -155,13 +162,6 @@ Mr. Bannon 100% agree that the Wall Street has provided the capital from the pen
 
 2/25/2022 Miles Guo: Humanity has never experienced a time as dark as the year of 2022, and we will be living in turmoil for a long time. Xi Jinping and Putin had already started to make their evil plans as early as 2010. The trilateral relationship of the CCP, Russia, and the US has been swaying the course of humanity. The world order will undergo a great restructuring!<br/><br/>2/25/2022 文贵直播：人类从未像2022年如此黑暗，我们将面临着长期的乱世；习近平和普京从2010年就开始制定邪恶计划；中美俄的三角关系一直在影响着人类，世界秩序将发生大重组！<br/>
 ![img](https://media.gettr.com/group16/getter/2022/02/26/03/3e2304d6-7adc-cad0-6a5d-35a85e8efc19/out.jpg)
-
----
-
-`@miles 2/26/2022 3:22 AM (UTC)`
-
-2/25/2022 Miles Guo: The CCP under the leadership of Xi Jinping and Wang Qishan is attempting to destroy the world order on the international stage by working with Putin. This will be the rivalry between the landlocked civilizations/dictatorship and maritime civilizations/democracy and rule of law. Human beings will experience political and economic restructuring, and the Way of Righteousness will eventually become the light rays of humanity in the darkness.<br/><br/>2/25/2022 文贵直播：习王带领的中共妄图在国际上联手普京掀桌子，这是大陆文明/独裁和海洋文明/民主法治的较量，人类将经历政治、经济大重组，而正道主义终会成为人类在黑暗中的光芒<br/>
-![img](https://media.gettr.com/group7/getter/2022/02/26/03/7a8fa1b0-07e7-bb91-0940-5b48d040d057/out.jpg)
 
 ---
 
