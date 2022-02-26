@@ -2,18 +2,26 @@
 ---
 
 
-## 日本政府认定俄军事入侵系“侵略”以震慑中共国
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2069359/)
+## 英媒：俄入侵乌克兰造成198名平民死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2069513/)
 
-撰稿：东京樱花团｜麗子
+撰稿：东京樱花团｜山顶闲人
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/日本政府认定俄军事入侵系侵略以震慑中共国.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/英媒：俄入侵乌克兰造成198名平民死亡.png)
 
-2月26日据日媒报道，日本政府已将俄罗斯入侵乌克兰的行为认定为“侵略”。26日，日本和美国外长通电话后，面对记者采访，外长林芳正多次措辞用“俄军侵略”，表明了对俄罗斯的强硬立场。多位政府官员称，这一决定是基于以下事实：（1）该事件符合联合国以往决议中对“侵略”的定义；（2）包括美国在内的多个国家都将该事件描述为“侵略”。日方将与七国集团步调一致，强烈谴责俄罗斯的侵略行径。旨在威慑试图武力统一台湾的中共国。
+[*图片来源*](https://www.dailymail.co.uk/news/article-10553451/They-storm-tonight-Zelensky-says-Putins-forces-launch-scale-assault-Kyiv.html)*（图片为一个覆盖至少五层楼的洞被炸毁在建筑物的一侧，瓦砾散落在街道上）*
 
-据外务省称，林外长25日晚与乌克兰外长电话会谈时也将俄入侵行为描述为“侵略”。
+**据英媒《每日电讯》2月26日消息：**
 
-信息来源：[**日本政府、ロシア軍「侵略」認定  米と連携し非難、中国けん制も**](https://news.yahoo.co.jp/articles/4a5c12b8976ec44e2ea38665fcb0f6ec44a0e2fb)
+***1. 俄罗斯军队杀死了包括三名儿童在内的 198 名乌克兰平民，塔楼被导弹袭击撕裂 – 因为总统泽连斯基拒绝在血腥的基辅战役中放下武器。***
+
+***2. 乌方官员称，朱利尼机场附近的公寓楼遭到毁灭性袭击，所幸没有造成人员伤亡。***
+
+***3. 俄罗斯军队还向乌克兰军事设施发射了一连串巡航导弹***
+
+***4. 总统泽连斯基宣布基辅将抵抗俄罗斯的进攻并誓言与普京的军队作战。***
+
+消息链接：[**Russian forces kill 198 Ukrainian civilians including three children and tower block is ripped apart by MISSILE strike – as defiant president Zelensky refuses to lay down weapons in bloody Battle for Kyiv**](https://www.dailymail.co.uk/news/article-10553451/They-storm-tonight-Zelensky-says-Putins-forces-launch-scale-assault-Kyiv.html)
 
 *校对：东京樱花团 / 東洋武士*
 *发布：东京樱花团 / 老黑*

@@ -2,42 +2,48 @@
 ---
 
 
-## 为什么通货膨胀会造成房产的价值的下跌(而不是上升)
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2069087/)
+## JCVI承认因Covid-19疫苗而患心肌炎的儿童是未接种的815倍
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2069105/)
 
-编译：形而上
+编译： Jenny Ball
 
-2 月22日财经顾问 Costantino Forgione 报道:
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2468.png)图片来源：dailyexpose.uk
 
-众所周知 ， 由于一句 “砖头永远不会背叛” 的座右铭，意大利人偏爱投资房产，这个信仰从上一辈传承下来的，在70、 80年代的恶性通货膨胀时期，他们看到房产的名义价格持续上涨，少于通胀的价格增长使他们忽略了实际价格的亏损。
+2 月 22 日 16 日，JCVI 发布了建议，指出所有 5 至 11 岁的儿童，都应“在非紧急”情况下，接种两剂辉瑞 Covid-19 疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2476-edited.png)econopoly.ilsole24ore
+但是，在他们发表的建议的小字中，发现了一些令人震惊的信息，这些信息引起了人们对他们是如何得出结论，认为应该为孩子们提供实验性疫苗的严重担忧。
 
-这种错觉导致的结果是，50年来意大利人过度投资于房产，接近于50%的全国总财富(10000亿中的大约5000亿)。
+JCVI 承认，为了防止 5 至 11 岁儿童因 Covid-19 进入 ICU（重症监护室），需要为 190 万儿童接种 2 剂辉瑞疫苗，这意味着：需要接种**380 **万剂以预防**0.5**次**ICU **入院。
 
-由于通货膨胀再次偷偷开始，而且达到了不可忽视的程度，意大利人再一次想把钱投资到房产中以保护自己的财富受到通胀风暴的影响。
+这意味着每**100 **万剂给药，仅仅为了防止**0.13 **次**ICU **。
 
-这将可能是个严重的错误，不能重蹈覆辙。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2470.png)图片来源：dailyexpose.uk
 
-各大中央银行欧洲和美国的通胀率目标水平约为2%，而这次的通胀已经在美国达到7.5%，欧洲5%，意大利4.8%：到了一个无法接受的地步，而且没有丝毫放慢迹象。如果能源价格再次上涨，最近的国际政治版图的变化会使其更为恶化。
+但在他们发表的建议的其他地方，他们声称，儿童中的严重不良反应极为罕见，并引用了美国CDC进行的一项研究，该研究得出结论，每 100 万剂接种 Covid-19疫苗，报告了 2 例与疫苗相关的心肌炎。因此，仅这些数据就表明，因注射 Covid-19 而继续发展为心肌炎的 5 至 11 岁儿童人数，至少是因没有Covid-19 疫苗，而无法进入 ICU 的儿童人数的 16 倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2478-edited.png)econopoly.ilsole24ore
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2472.png)图片来源：dailyexpose.uk
 
-这次的通胀似乎远不如预期“短暂”，并向各国央银敲响了警钟，进而各大央行决定调高利息，也结束了2009年来的 “免费货币” 时代。
+但 CDC、FDA 和其他各种组织的科学家，最近在 JAMA 网络上发表的一项科学研究证实，每 100 万剂给药 2 例心肌炎病例，是被大大低估了。该研究的作者发现，每**100 **万剂给药的心肌炎发病率高达**105.9 **例。
 
-在未来几年再没有人去投资买房产，所以价格会慢慢的下降，加上如果政府推动执行财产税，个人不动产，银行账户等将被毫无阻力的袭击，更不要忘了未来的房产重审核会让人们雪上加霜。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2474.png)图片来源：dailyexpose.uk
 
-最后总结警告人们有多余的房产能卖就赶快卖趁现在来得及，别相信房产中介的忽悠。
+因此，实际上，由于 Covid-19 注射而继续发展为心肌炎的 5 至 11 岁儿童的数量，是因 Covid-19 而无法进入 ICU 的儿童数量的 815 倍，因为没有注射 Covid-19 疫苗。
 
-评论：这和爆料革命、郭文贵先生所预警的一样，全世界法币超发，造成通货膨胀， 对人们的又一次财富洗劫已经开始
+心肌炎是一种导致心肌发炎并降低心脏泵血能力的疾病，并可能导致快速或异常的心律。
 
-链接：【econopoly.ilsole24ore】[Perché l’inflazione farà crollare (e non salire) il valore della casa](https://www.econopoly.ilsole24ore.com/2022/02/22/casa-inflazione-tassi/?utm_term=Autofeed&amp;utm_medium=TWSole24Ore&amp;utm_source=Twitter#Echobox=1645547378)
+最终，心肌炎会削弱心脏，导致身体其他部位无法获得足够的血液。然后会在心脏中形成凝块，导致心脏病发作。该病的其他并发症包括心源性猝死。心肌炎没有温和的版本，由于心肌无法再生，因此非常严重。因此，这是一个不能恢复的损伤。
+
+那么，JCVI 到底是如何得出结论的，疫苗接种对 5 至 11 岁儿童的益处大于风险呢？
+
+**点评：JCVI利益熏心，昧没良心！**
+
+素材链接：[dailyexpose.uk][JCVI admits the No. of Children who will suffer Myocarditis due to Covid-19 Vaccination is 815x greater than the No. of Children the Jab will save from Covid-19](https://dailyexpose.uk/2022/02/23/jcvi-myocarditis-kids-covid-vaccine-huge-risk/)
 
 * * *
 
-审核：文乐
+*审核：文乐
 校对：阿伯塔
-发布：花羽
+发稿：Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-5.jpeg)
  
 

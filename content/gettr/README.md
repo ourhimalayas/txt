@@ -19,6 +19,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@gmusic 2/26/2022 11:37 AM (UTC)`
+
+《小小尼莫音乐会》今天首播，主题歌是来自13岁小Helen的作品！<br/>高清Mv首发《Treasures》
+![img](https://media.gettr.com/group30/origin/2022/02/26/11/5504eee1-af58-e51f-b644-2d77ce2e162f/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@gtv_edu 2/26/2022 2:58 AM (UTC)`
 
 《文贵大直播—GEDU专场》<br/><br/>主讲人：新中国联邦创始人 郭文贵先生<br/>主持：QMAY<br/>出镜老师：CanCan  平和  小皮匠   Happy 小刘老师<br/>嘉宾：甜甜<br/>导播：墨镜 小白白<br/><br/>美东时间：2/26/2022 8:30am<br/>北京时间：2/26/2022 9:30pm
@@ -148,13 +157,6 @@
 
 2/23/2022 Miles Guo: The CCP's technology innovations are all fake and copied from the West. Huawei's 5G technology is completely a sham. The CCP is not only making and releasing the COVID virus, but also developing the COVID vaccine and drugs to treat its side effects. Xi Jinping is attempting to engage in a post-vaccine economy, which will result in numerous vaccine factories appearing in Communist China.<br/><br/>2/23/2022 文贵直播：中共科技发明造假、全是抄袭，华为5G都是忽悠人的；中共既制毒、放毒，又搞疫苗和治副作用的药；习太阳妄图大搞疫苗后经济，疫苗厂会如雨后春笋般出现在中共国<br/>
 ![img](https://media.gettr.com/group35/getter/2022/02/24/22/3c0ff9f2-e1e1-a0e4-6cb7-b2bc87c78b5f/out.jpg)
-
----
-
-`@miles 2/24/2022 10:45 PM (UTC)`
-
-2/24/2022 Miles Guo’s GETTR: Ukraine is shrouded in darkness. All wars serve the interests of only a handful of people, while the innocent people would end up as victims. The war in Ukraine has become the justification for the collapse of the global economy, and the ups and downs in the financial market are bound to destroy countless families.<br/><br/>2/24/2022 文贵盖特：乌克兰阴云密布，所有战争都服务于极少数人的利益，而无辜的人们却沦为牺牲品；乌克兰战争竟成为了全球经济崩溃的理由，金融市场的震荡会让多少人家破人亡？<br/>
-![img](https://media.gettr.com/group44/getter/2022/02/24/22/aef22370-569a-3f7a-d3ff-056212edaac7/out.jpg)
 
 ---
 

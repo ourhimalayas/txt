@@ -2,35 +2,23 @@
 ---
 
 
-## 有声｜美欧加大对俄制裁力度 直接针对普京
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2069261/)
+## 俄罗斯总统府：乌克兰未就会谈作出回应，双方联络中断
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2069266/)
 
-By:**秘翻新闻**
+翻译：天天
 
-**2022-02-26**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/226_3-scaled.jpg)图片来源 路透社
-据美联社2月25日报导，美国和欧洲盟友周五表示，正在加强对俄罗斯入侵乌克兰的制裁，增加直接针对普京总统及其外交部长的措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2484-edited.png)news.yahoo.co.jp
 
-白宫表示，美国正在准备对普京和俄外交部长拉夫罗夫、国防部长绍伊古实施制裁，可能包括旅行禁令。这一消息是在欧盟宣布打算冻结普京的资产之后几个小时宣布的，同时英国首相约翰逊称英国也将制裁普京和拉夫罗夫。
+俄罗斯总统发言人谢尔盖-佩斯科夫周四表示，乌克兰已经有 “相当长的一段时间 “没有回应，两国之间的联络现在已经 “中断”。 乌克兰总统府顾问波多利亚克24日表示，乌克兰希望和平，并愿意与俄罗斯就北大西洋公约组织（NATO）的中立立场进行谈判。 发言人佩斯科夫称，俄罗斯人提出在白俄罗斯首都明斯克举行会谈，但乌克兰提议将波兰首都华沙作为会谈地点。 他说，此后一直没有回应，目前已经失去了联系。 另外，乌克兰还同时在主要城市的居民区部署了导弹系统，这是非常危险的迹象，但没有任何证据来证实这一说法。 乌克兰当局目前尚未发表评论。
 
-美国周五的措施阻止了普京和拉夫罗夫接触美国官员可以接触到的任何资产，并禁止美国境内任何人与他们做生意。此次针对国家元首的制裁极为罕见。
-
-欧盟官员们表示，仍有可能实施进一步的制裁，包括将俄罗斯赶出全球金融交易的主要系统SWIFT。
-
-当亚洲大多数国家团结起来支持乌克兰时，中共国却继续谴责对俄罗斯的制裁，并指责美国及其盟国对莫斯科进行挑衅，同时中共加大与俄罗斯的贸易，为其提供经济支持。
-
-(秘翻新闻 文洋 编译报导)
-
-链接
-
-[https://apnews.com/article/russia-ukraine-vladimir-putin-business-china-asia-b57700241d650315db1eb0e8516ce2d6](https://apnews.com/article/russia-ukraine-vladimir-putin-business-china-asia-b57700241d650315db1eb0e8516ce2d6)
-
-[https://www.reuters.com/world/us-expected-impose-sanctions-russias-putin-soon-friday-cnn-2022-02-25/](https://www.reuters.com/world/us-expected-impose-sanctions-russias-putin-soon-friday-cnn-2022-02-25/)
-
-发布 : 文橙
+来源：【news.yahoo.co.jp】[ウクライナからの協議巡る返答まだ、連絡中断＝ロシア大統領府](https://news.yahoo.co.jp/articles/c53b2366c7ffe868fa9487cc8bb59012aecc729b)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
+
+审核：天天 
+校对：宫米叶
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

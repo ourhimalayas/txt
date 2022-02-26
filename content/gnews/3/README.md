@@ -2,22 +2,61 @@
 ---
 
 
-## 俄罗斯不排除将境内”不友好”国家注册的公司资产国有化
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2069558/)
+## 战争与和平
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2069668/)
 
-**撰稿：日本东京方舟农场 JIHO**
+**作者：纽约香草山教育部-蓝之灵（hortênsia)**
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+你看不见
+蒙上双眼
+战争阴影笼上世界
+你和我和他
+都没有安全
+阻止战争
+争取和平
+睁开眼睛
 
-根据路透社莫斯科2月26日周六消息，俄罗斯通讯社援引俄罗斯安全委员会副主席梅德韦杰夫的话说，俄罗斯将通过扣押在俄罗斯境内的外国人和外国公司的资金来回应俄罗斯公民和俄海外公司的资金被扣押的事件。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/006-1.png)图片来自网络
-引述梅德韦杰夫的话说，莫斯科不排除将在美国、欧盟和其他“不友好司法管辖区”注册的公司的资产国有化。
+你不伸手
+援助奔走
+战火纷飞尸横遍野
+独裁者疯狂轰击
+只为私利
+赔上你和我和他性命
+年轻人失去生命
+孩子们失去父亲
+行动行动
+援助奔走
+阻止战争
+推动和平
 
-参考链接：
-[https://www.reuters.com/world/europe/russia-seize-foreigners-funds-retaliation-ria-2022-02-26/?](https://www.reuters.com/world/europe/russia-seize-foreigners-funds-retaliation-ria-2022-02-26/?)[taid=6219f449ed681a0001a11f11&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/europe/russia-seize-foreigners-funds-retaliation-ria-2022-02-26/?taid=6219f449ed681a0001a11f11&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+倾覆之下只有危卵
+生命在炮火中牺牲
+摧毁的家园
+浓烟滚滚
+坦克轰隆隆
+碾过身与心
+行动行动
+睁开眼睛
+伸出援助之手
+阻止战争
+推动和平
 
-素材采编：JIHO
-编辑：老孙
-发布：Linda
 
+
+**审稿/校对/发稿：**qiutian（邱甜）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1-2.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
