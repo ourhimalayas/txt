@@ -2,8 +2,8 @@
 ---
 
 
-## 各地重视GETU教育东方文明并无堕落
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2071628/)
+## 新中国联邦前所未有的伟大教育计划
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2071658/)
 
 #### 視頻剪輯: WinterGuo ；開智則立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蝸牛 ；牛魔王
 視頻定位：BENJ1；WEI
