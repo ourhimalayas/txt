@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/26/2022 3:22 AM (UTC)`
+
+2/25/2022 Miles Guo: The CCP under the leadership of Xi Jinping and Wang Qishan is attempting to destroy the world order on the international stage by working with Putin. This will be the rivalry between the landlocked civilizations/dictatorship and maritime civilizations/democracy and rule of law. Human beings will experience political and economic restructuring, and the Way of Righteousness will eventually become the light rays of humanity in the darkness.<br/><br/>2/25/2022 文贵直播：习王带领的中共妄图在国际上联手普京掀桌子，这是大陆文明/独裁和海洋文明/民主法治的较量，人类将经历政治、经济大重组，而正道主义终会成为人类在黑暗中的光芒<br/>
+![img](https://media.gettr.com/group7/getter/2022/02/26/03/7a8fa1b0-07e7-bb91-0940-5b48d040d057/out.jpg)
+
+---
+
 `@miles 2/26/2022 2:29 AM (UTC)`
 
 2月25号：共产党以完了…… 决定一个人能走多远的因素往往不是智商，不是情商，而是性格。我们中共国的教育系统，可以培养性格吗？可以训练自制力和毅力吗？<br/>如果你见一个孩子“能很投入地一直做一件事很久”，这就是特殊能力。<br/>“向着长期的目标，坚持自己的激情，即便历经失败，依然能够坚持不懈地努力下去，这种品质就叫做坚毅。如果一个孩子从小就培养出扶弱济贫有勇气，有良知的人性教育，我们每个人面对的未来都将是美好的。明天上午8:30 G EDU教育．特殊专场直播。我们来谈新中国联邦的未来教育。
@@ -146,13 +153,6 @@
 
 <br/>2月24号：尊敬的战友们好．世界被邪恶的共产党和魔鬼制造的战争所笼罩……7哥想说的话，都在下面的视频中了！😭😭😭😭😭😭😭😭😭😭
 ![img](https://media.gettr.com/group35/getter/2022/02/24/15/b7e522a4-8cdf-9203-a42d-c12b2b5da44c/out.jpg)
-
----
-
-`@miles 2/24/2022 3:32 PM (UTC)`
-
-2/23/2022 Miles Guo: The less developed places are less suitable for people to live in Communist China! In county, township, village, and other low government levels, several local families have taken up all the key positions such as those in the public security organs, procuratorates, and courts. The shielding among these interest groups have led to the prevalence of the incidents such as that of the chained woman in Communist China.<br/><br/>2/23/2022 文贵直播: 中共国越是底层越不适合人居住！在县乡镇村等基层单位，常常是几个家族承包了公检法等重要部门，他们之间的利益保护使类似”锁链女”这样的事件在中共国层出不穷<br/>
-![img](https://media.gettr.com/group48/getter/2022/02/24/15/8de99f36-6768-64b5-a369-b8779f6be0bc/out.jpg)
 
 ---
 

@@ -2,28 +2,40 @@
 ---
 
 
-## 日本全国日增中共病毒感染人数超6.5万
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2066968/)
+## 有声|中共“铁链女”最新调查结果再引众怒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2067007/)
 
-撰稿：东京樱花团/向海
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间2月23日，据中共媒体消息显示，江苏徐州丰县“铁链女”事件第五个版本的调查结果以通告的方式公布。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-24-%E4%B8%8A%E5%8D%8810.28.59.png)
+在这份迄今为止最长的事件报告中，中共相关机构先是否认了网络上对“铁链女”身份的猜测，并硬性将其指认为其他女子；此外，中共还试图官方定性该女子为严重的精神病患者。至于相关人员的处罚问题，中共政府仅仅将参与拐卖妇女的九名犯罪嫌疑人移交公安机关立案处理，而丰县的17位相关官员则只是被撤销职务并开除党籍。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/日本全国日增中共病毒感染人数超6.5万.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fvid.alarabiya.net%2Fimages%2F2020%2F11%2F19%2F49c143ec-03d4-45d7-9ae8-07e95d624909%2F49c143ec-03d4-45d7-9ae8-07e95d624909_16x9_1200x676.JPG%3Fwidth%3D1138&amp;imgrefurl=https%3A%2F%2Fenglish.alarabiya.net%2)
+值得注意的是，虽然中共喉舌媒体在该报告发布后大肆响应并对中共政府极力赞扬，但这一结果再度引起了中共国内民众的一片哗然：绝大多数民众对中共指鹿为马、混淆“铁链女”身份的做法表示出极大的愤怒。也有部分民众指出，纵观整篇通报，有关此事的所有责任全部被中共政府推卸给了地方官员。然而，数小时后，中共国内的社交媒体平台开始大肆审查并封锁有关“铁链女”的内容。同时，两位希望探望当事人的女子已被中共警方逮捕，且当地警方已经将事发地严密封锁，禁止任何人接近。
 
-25日，日本有６万５６６８人新感染冠状病毒病例。
+对此，有评论人士认为，中共一贯以其造假、欺骗的手段愚弄百姓，妄图掩盖自身的累累罪行，但此次“铁链女”事件的曝光却让中共国内的民众逐渐从对中共的幻想中觉醒。
 
-东京都政府昨天公布的新感染人数为1万1125人。 昨天的监测会议提供了对新感染的人数一直停留在高水平的最新分析，称感染状況“面临长期危机”。
 
-都道府县分別的公告表示岩手县为过去最多。 大阪、神奈川和爱知是仅次于东京的第二多的城市，全国感染人数为６万５６６８人。
 
-全国住院感染者中，重症1503人。 死亡人数方面，新增279人，连续四天超过200人。
+文字版原文：[中共“铁链女”最新调查结果再引众怒](https://gnews.org/zh-hans/2059446/)
 
-信息来源：
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-[新型コロナ きのうの全国の感染者６万５６６８人](https://news.yahoo.co.jp/articles/f00250ff0820be39f25559d46de65b8a708a119f)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

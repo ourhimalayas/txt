@@ -15,77 +15,77 @@
 
 ---
 
-### [七哥金句：新中国联邦的财富是干啥用的](/content/gnews/1/README.md)
+### [七哥金句：中国人需要团结起来](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句： 文贵先生的境界](/content/gnews/2/README.md)
+### [大直播后记：达沃斯党是沼泽地的狗](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [中共金融灾难会从音乐界开始](/content/gnews/3/README.md)
+### [七哥金句： 接下来世界上恐怖在哪？](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：新中国联邦的财富是干啥用的](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [美英和欧盟宣布制裁普京 冻结资产](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [七哥金句： 文贵先生的境界](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [中共金融灾难会从音乐界开始](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [乌克兰近海一艘货轮遭轰炸 疑是日本公司船舶](/content/gnews/4/README.md)
+### [乌克兰近海一艘货轮遭轰炸 疑是日本公司船舶](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|战争的残酷](/content/gnews/5/README.md)
+### [有声|中共“铁链女”最新调查结果再引众怒](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [乌总统西装换军装 誓言保卫首都](/content/gnews/6/README.md)
+### [有声|战争的残酷](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [乌总统西装换军装 誓言保卫首都](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大直播后记：乌克兰核设施的影响](/content/gnews/7/README.md)
+### [大直播后记：乌克兰核设施的影响](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [有声|人的命运冥冥中受上天掌控，但也因人的内心变化而可能改变](/content/gnews/8/README.md)
+### [有声|人的命运冥冥中受上天掌控，但也因人的内心变化而可能改变](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [日本全国日增中共病毒感染人数超6.5万](/content/gnews/9/README.md)
+### [日本全国日增中共病毒感染人数超6.5万](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新西兰多地爆发反疫苗强制令抗议,计划周六在海港大桥示威](/content/gnews/10/README.md)
+### [新西兰多地爆发反疫苗强制令抗议,计划周六在海港大桥示威](/content/gnews/15/README.md)
  ` GTV News Talk`
 
-### [大直播后记：第三次世界大战开始了](/content/gnews/11/README.md)
+### [大直播后记：第三次世界大战开始了](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [财富管理专栏：电子货币资产应该放在何处保管](/content/gnews/12/README.md)
+### [财富管理专栏：电子货币资产应该放在何处保管](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [有声|乌克兰危机下,台湾正在严阵以待](/content/gnews/13/README.md)
+### [有声|乌克兰危机下,台湾正在严阵以待](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|Facebook再次发生大规模宕机事件](/content/gnews/14/README.md)
+### [有声|Facebook再次发生大规模宕机事件](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [聚焦：美欧将开辟多条战线分化和消耗中俄](/content/gnews/15/README.md)
+### [聚焦：美欧将开辟多条战线分化和消耗中俄](/content/gnews/20/README.md)
  ` 蓝莲花农场`
 
-### [有声|俄乌危机致全球粮食价格大幅上涨](/content/gnews/16/README.md)
+### [有声|俄乌危机致全球粮食价格大幅上涨](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [乌欧美扬言制裁俄罗斯背后的猫腻](/content/gnews/17/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2/25/2022 文贵直播：乌克兰是全球最腐败的国家之一，美欧没有兑现保护乌克兰的承诺并抛弃了它，同时撕毁了对俄罗斯做出的北约不东扩、乌克兰不入欧盟的承诺，普京打乌克兰并不输理](/content/gnews/18/README.md)
- ` 秘密翻译组-北美组`
-
-### [台湾空军警告进入防空区的中共飞机](/content/gnews/19/README.md)
+### [台湾空军警告进入防空区的中共飞机](/content/gnews/22/README.md)
  ` 纽约香草山MOS02`
 
-### [联合国人权专家呼吁阻止中共等国向缅甸军政府提供武器](/content/gnews/20/README.md)
- ` 首尔天池农场`
-
-### [中日财经爆┃把俄罗斯踢出SWIFT？欧洲多国下不了手](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [每日快报：美国官员屡次敦促中共国帮助避免乌克兰战争](/content/gnews/22/README.md)
+### [每日快报：美国官员屡次敦促中共国帮助避免乌克兰战争](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：日本开始考虑对白俄罗斯支持俄罗斯的行为进行制裁](/content/gnews/23/README.md)
+### [秘翻在线：日本开始考虑对白俄罗斯支持俄罗斯的行为进行制裁](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [强国奇闻(7)](/content/gnews/24/README.md)
- ` 纽约香草山MOS03`
 
 ### [秘翻在线：美欧对国家元首实施前所未有的制裁](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`

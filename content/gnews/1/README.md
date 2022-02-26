@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：新中国联邦的财富是干啥用的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2067099/)
+## 七哥金句：中国人需要团结起来
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2067181/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/0225七哥金句-03.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/0225七哥金句-05.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 
