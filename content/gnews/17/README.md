@@ -2,25 +2,31 @@
 ---
 
 
-## 放在西方文明国家传统银行的存款已经不安全
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2070574/)
+## 中日财经爆┃“作恶”被官司缠身！脸书裁撤核心技术团队
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070610/)
 
-加拿大卡车司机的运动中，部分司机的个人银行账户被冻结，资产可能被没收。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/04-2.png)
+[图片来源](https://www.google.com.hk/imgres?imgurl=https://v2.cimg.co/news/63547/35234/snapshot.jpg&amp;imgrefurl=https://thebittimes.com/metaverse-nfts-and-gaming-token-prices-soar-as-facebook-goes-meta-tbt5490.html&amp;tbnid=P77GUyLsgQBbAM&amp;vet=12ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ..i&amp;docid=vljlOet_P-mO9M&amp;w=1012&amp;h=674&amp;q=%20Meta%20%20metaverse&amp;ved=2ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ)
 
-这是发生在西方文明高度发达的加拿大。瞠目结舌！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/FT.jpg)
-昨天的香港，今天的加拿大！香港运动上，西方国家和政府只是动动口，毫无行动力的支持港人追求民主与自由，实际是对邪恶、专制、独裁最大的纵然！
+近日，有媒体报道，全球最大社交媒体公司脸书（Meta Platforms）已经解散了一个由300多名员工组成的团队，这些员工为该公司的AR和VR设备开发操作系统。鉴于该系统是元宇宙的关键技术，这让本已官司缠身的脸书前景更加黯然。
 
-果不其然，政府权力的无限放大，即使是西方文明社会，也一样看到了专制与暴政！
+而1月5日，Meta曾回应“停止开发VR/AR系统”传闻称，其并未计划停止“为VR/AR设备开发操作系统”。
 
-加拿大卡车司机本身不是反对疫苗，只是反对强制疫苗，加拿大政府竟然把国家公民当成暴民。加拿大人的和平游行被政府当成暴力行径，准备实施军管。
+去年10月28日，脸书由FaceBook更名为Meta，宣布全面进军元宇宙(metaverse)。而脸书更名的时机，正面临用户和监管广泛的批评，并深陷“滥用管理权”、“侵犯用户隐私”等多起重大法律诉讼。
 
-事情发展到这里，我们才恍然大悟，原来自己的钱放在中共的银行不安全，其实放在国外的文明社会的银行，也不安全，也会因为你参与了街头运动，被冻结！
+自2020年初中共病毒（新冠病毒Covid-19）肆虐全球开始，脸书与推特、谷歌等社交媒体巨头，与中共为首的世界邪恶势力勾兑、为虎作伥，特别是滥用平台和数据管理的权力，对中共病毒和疫苗真相信息进行恶意压制，为强制疫苗政策推波助澜，给全人类带来重大灾难。
 
-从这个角度看，喜币的无国界及安全性，是顺应趋势，发展不可阻挡。
+郭文贵先生多次断言，脸书、推特等社交媒体必将为其作恶付出沉重代价，甚至被诉讼至破产或消失。而脸书裁撤核心技术团队是值得关注的重要标志性事件。
 
-文案编辑：一念
-校对整理：面包树
+信息来源：
+
+[Meta解散AR和VR操作系统开发团队](https://www.163.com/dy/article/H138LTGF05198CJN.html)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
+
 
  
 
