@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/26/2022 7:40 AM (UTC)`
+
+2/25/2022 Miles Guo: What are the two ultimate tactics for the UK to bring Russia to its knees? What is the meaning behind the US and European stock markets? The West will impose sanctions on the CCP, which will certainly be followed by military operations against the CCP. There will only be two financial systems in the future - the dollar system and the system of the New Federal State of China.<br/><br/>2/25/2022 文贵直播：英国干掉俄罗斯的两大绝招是什么？美欧股市的背后暗藏了什么玄机？西方将对中共的制裁并一定会有军事行动；未来世界的财富只有两家 - 美元系统和新中国联邦系统<br/>
+![img](https://media.gettr.com/group43/getter/2022/02/26/07/ab2bcf83-6a5a-cc4e-97fc-7342e0edd698/out.jpg)
+
+---
+
 `@miles 2/26/2022 5:45 AM (UTC)`
 
 2/25/2022 Miles Guo: The Himalaya Coin is going to take down the RMB! The Himalaya Exchange will attract all the money from the Chinese people. The CCP has created a huge panic by requiring the disclosure of the sources of funds of personal deposits and withdrawals of over ¥50,000 in cash, causing more money to flow into the Himalaya Exchange. The Himalaya Coin is backed by the people's support, has righteous intentions, good conscience, and a limitless future, and can circulate freely.<br/><br/>2/25/2022 文贵直播：喜币要的是人民币的命，喜联储将把中国人的钱都吸过来；中共要求存取5万以上现金必须登记来源的规定制造了恐慌，让更多钱流入喜联储；喜币是人心币、良心币、未来币、自由流通币<br/>
@@ -145,13 +152,6 @@
 `@miles 2/24/2022 10:11 PM (UTC)`
 
 🆘🆘🆘为了集合全球战友资源救助台湾战友，联盟发放统一登记表格，请有可能提供救助资源的战友填写，表格链接：<br/><br/>https://forms.gle/pgVrayLJKqS7NMsN8<br/><br/><br/>联盟-身在台湾的战友撤离统计表单：<br/><br/>https://docs.google.com/forms/d/e/1FAIpQLScjccjoDUB3u-OhC-zeZDvvtiHqxXo1z4h6Ls_LkxxtLZEYJw/viewform
-
----
-
-`@miles 2/24/2022 7:22 PM (UTC)`
-
-2月24日：这世界就是如此的残酷无情……［女儿，爸爸要去战斗了］😭😭😭😭😭😭😭
-![img](https://media.gettr.com/group50/getter/2022/02/24/19/b390cf4e-924e-5881-93cd-f9097c495ea2/out.jpg)
 
 ---
 
