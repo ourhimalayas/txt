@@ -2,23 +2,30 @@
 ---
 
 
-## 俄罗斯总统府：乌克兰未就会谈作出回应，双方联络中断
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2069266/)
+## 英媒：俄入侵乌克兰造成198名平民死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2069513/)
 
-翻译：天天
+撰稿：东京樱花团｜山顶闲人
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2484-edited.png)news.yahoo.co.jp
+![](https://assets.gnews.org/wp-content/uploads/2022/02/英媒：俄入侵乌克兰造成198名平民死亡.png)
 
-俄罗斯总统发言人谢尔盖-佩斯科夫周四表示，乌克兰已经有 “相当长的一段时间 “没有回应，两国之间的联络现在已经 “中断”。 乌克兰总统府顾问波多利亚克24日表示，乌克兰希望和平，并愿意与俄罗斯就北大西洋公约组织（NATO）的中立立场进行谈判。 发言人佩斯科夫称，俄罗斯人提出在白俄罗斯首都明斯克举行会谈，但乌克兰提议将波兰首都华沙作为会谈地点。 他说，此后一直没有回应，目前已经失去了联系。 另外，乌克兰还同时在主要城市的居民区部署了导弹系统，这是非常危险的迹象，但没有任何证据来证实这一说法。 乌克兰当局目前尚未发表评论。
+[*图片来源*](https://www.dailymail.co.uk/news/article-10553451/They-storm-tonight-Zelensky-says-Putins-forces-launch-scale-assault-Kyiv.html)*（图片为一个覆盖至少五层楼的洞被炸毁在建筑物的一侧，瓦砾散落在街道上）*
 
-来源：【news.yahoo.co.jp】[ウクライナからの協議巡る返答まだ、連絡中断＝ロシア大統領府](https://news.yahoo.co.jp/articles/c53b2366c7ffe868fa9487cc8bb59012aecc729b)
+**据英媒《每日电讯》2月26日消息：**
 
-* * *
+***1. 俄罗斯军队杀死了包括三名儿童在内的 198 名乌克兰平民，塔楼被导弹袭击撕裂 – 因为总统泽连斯基拒绝在血腥的基辅战役中放下武器。***
 
-审核：天天 
-校对：宫米叶
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-5.jpeg)
+***2. 乌方官员称，朱利尼机场附近的公寓楼遭到毁灭性袭击，所幸没有造成人员伤亡。***
+
+***3. 俄罗斯军队还向乌克兰军事设施发射了一连串巡航导弹***
+
+***4. 总统泽连斯基宣布基辅将抵抗俄罗斯的进攻并誓言与普京的军队作战。***
+
+消息链接：[**Russian forces kill 198 Ukrainian civilians including three children and tower block is ripped apart by MISSILE strike – as defiant president Zelensky refuses to lay down weapons in bloody Battle for Kyiv**](https://www.dailymail.co.uk/news/article-10553451/They-storm-tonight-Zelensky-says-Putins-forces-launch-scale-assault-Kyiv.html)
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

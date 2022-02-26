@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/26/2022 12:59 PM (UTC)`
+
+Mr. Bannon 100% agree that the Wall Street has provided the capital from the pension funds of the American deplorable to the CCP through institutions like PAG Group. Miles is under constant attacks by the CCP's people in the US capital market, which is so ridiculous.<br/><br/>Miles’ bankruptcy will become international news, will be beyond finance and markets, and will have geopolitical implications. Miles has never wavered in support of the NFSC, the Whistleblower Movement, the Rule of Law Foundation & Society. Miles is the greatest defender of LaoBaixing in the world.<br/><br/>班农先生100%同意郭先生的观点，即华尔街向中共提供资本，这些资本来源于美国老百姓的养老基金，通过PAG集团这样的中共间谍机构源源不断地输送给中共。郭先生本人受到中共在美国资本市场里安插的人的持续攻击，这已经到了荒谬的地步。<br/><br/>郭先生的个人破产将成为国际新闻，将超越金融和市场层面，且会有地缘政治的影响。他从未动摇过对新中国联邦、爆料革命和法治基金、法治社会的支持，他是这个世界上老百姓最伟大的捍卫者。
+![img](https://media.gettr.com/group22/origin/2022/02/26/12/211874d2-6517-335b-c283-0a1c8b7e1047/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gmusic 2/26/2022 11:37 AM (UTC)`
@@ -150,13 +157,6 @@
 
 2/23/2022 Miles Guo: Putin's tactics and tricks targeting Ukraine will eventually lead to sanctions against Communist China by Europe and the US citing the reason that the CCP supports Russia. This game was started by Putin and Xi, and it will end with them. The tragedy is that the Chinese people will pay for everything in the end.<br/><br/>2/23/2022 文贵直播：普京在乌克兰玩弄的招数将最终将导致欧美以中共支持俄罗斯为理由制裁中共国；这场游戏源于普京和习，也将亡于普京和习；悲剧的是，最后一切都将由中国人买单<br/>
 ![img](https://media.gettr.com/group12/getter/2022/02/24/23/3f071a75-861b-a204-4f7c-1f1f619b1b20/out.jpg)
-
----
-
-`@miles 2/24/2022 10:51 PM (UTC)`
-
-2/23/2022 Miles Guo: The CCP's technology innovations are all fake and copied from the West. Huawei's 5G technology is completely a sham. The CCP is not only making and releasing the COVID virus, but also developing the COVID vaccine and drugs to treat its side effects. Xi Jinping is attempting to engage in a post-vaccine economy, which will result in numerous vaccine factories appearing in Communist China.<br/><br/>2/23/2022 文贵直播：中共科技发明造假、全是抄袭，华为5G都是忽悠人的；中共既制毒、放毒，又搞疫苗和治副作用的药；习太阳妄图大搞疫苗后经济，疫苗厂会如雨后春笋般出现在中共国<br/>
-![img](https://media.gettr.com/group35/getter/2022/02/24/22/3c0ff9f2-e1e1-a0e4-6cb7-b2bc87c78b5f/out.jpg)
 
 ---
 

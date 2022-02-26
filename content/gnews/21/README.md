@@ -2,31 +2,27 @@
 ---
 
 
-## 有声｜美国白宫要求国会为乌克兰拨款64亿美元
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2069231/)
+## 有声|NFSC新闻、G|TV新闻访谈简报|2022年2月24日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2069395/)
 
-By:**秘翻新闻**
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-24.png)
 
-**2022-02-26**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/226_2-1-scaled.jpg)图片来源 SPUTNIK
-据[《路透社》](https://www.reuters.com/world/us/white-house-asks-congress-64-billion-ukraine-crisis-2022-02-25/)华盛顿2月25日报道，周五，美国拜登政府和国会助手表示，白宫要求国会批准64亿美元的援助，以解决俄罗斯本周入侵乌克兰后的人道主义和安全危机。
 
-据报道，白宫管理和预算办公室的一名官员称，拜登政府确定，由于俄罗斯毫无理由的入侵，美国需要向乌克兰和中欧伙伴提供更多的人道主义、安全和经济援助。该请求包括29亿美元的安全和人道主义援助，以及35亿美元的国防支出，共64亿美元。
+文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月24日早](https://gnews.org/zh-hans/2059820/)
 
-在过去一年中，美国已经承诺向乌克兰提供6.5亿美元的安全援助和5200万美元的人道主义援助，以及上周宣布的10亿美元的主权贷款担保。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-周五早些时候，负责监督对外援助的美国参议院小组委员会主席、民主党参议员克里斯·库恩斯表示，他将支持100亿美元或更多的资金来解决俄罗斯入侵乌克兰后的危机。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-（秘翻新闻  冰糖葫芦喵编译报道）
-
-链接
-
-[https://www.reuters.com/world/us/white-house-asks-congress-64-billion-ukraine-crisis-2022-02-25/](https://www.reuters.com/world/us/white-house-asks-congress-64-billion-ukraine-crisis-2022-02-25/)
-
-发布 : 文橙
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

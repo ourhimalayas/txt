@@ -2,23 +2,22 @@
 ---
 
 
-## 俄罗斯 50国联合声明称俄罗斯对安理会决议草案 “滥用否决权”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2069352/)
+## 俄罗斯不排除将境内”不友好”国家注册的公司资产国有化
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2069558/)
 
-翻译:天天
+**撰稿：日本东京方舟农场 JIHO**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2490-edited.png)news.yahoo.co.jp
+根据路透社莫斯科2月26日周六消息，俄罗斯通讯社援引俄罗斯安全委员会副主席梅德韦杰夫的话说，俄罗斯将通过扣押在俄罗斯境内的外国人和外国公司的资金来回应俄罗斯公民和俄海外公司的资金被扣押的事件。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/006-1.png)图片来自网络
+引述梅德韦杰夫的话说，莫斯科不排除将在美国、欧盟和其他“不友好司法管辖区”注册的公司的资产国有化。
 
-俄罗斯2月25日对联合国安理会谴责俄罗斯入侵乌克兰的决议行使了否决权。 作为回应，50个国家发表了一份联合声明，称俄罗斯的行为构成了对否决权的滥用。 美国驻联合国大使托马斯-格林菲尔德在安理会会议后宣读了该声明。 在他的周围是已经签名的各国代表。 托马斯-格林菲尔德说：”我们今天站在这里，相信安全理事会负有防止冲突和避免战争祸害的庄严职责和崇高目的，而俄罗斯今天滥用其权力，否决了我们强有力的决议。 11个国家对谴责俄罗斯入侵乌克兰的决议投了赞成票，而中国、印度和阿拉伯联合酋长国（UAE）投了弃权票。
+参考链接：
+[https://www.reuters.com/world/europe/russia-seize-foreigners-funds-retaliation-ria-2022-02-26/?](https://www.reuters.com/world/europe/russia-seize-foreigners-funds-retaliation-ria-2022-02-26/?)[taid=6219f449ed681a0001a11f11&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/europe/russia-seize-foreigners-funds-retaliation-ria-2022-02-26/?taid=6219f449ed681a0001a11f11&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-来源：【news.yahoo.co.jp】[５０カ国、ロシアが安保理決議案に「拒否権を乱用」と共同声明](https://news.yahoo.co.jp/articles/855085e5795bb098e67fe0ea249cc24fa330b955)
+素材采编：JIHO
+编辑：老孙
+发布：Linda
 
-* * *
-
-审核：天天
-校对：宫米叶
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

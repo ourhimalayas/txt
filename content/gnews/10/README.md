@@ -2,30 +2,30 @@
 ---
 
 
-## 英媒：俄入侵乌克兰造成198名平民死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2069513/)
+## 英国对五家俄罗斯银行和三名 &#8220;高净值 &#8220;俄罗斯人实施制裁
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2069670/)
 
-撰稿：东京樱花团｜山顶闲人
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture2-9.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/英媒：俄入侵乌克兰造成198名平民死亡.png)
+图片来自原文
 
-[*图片来源*](https://www.dailymail.co.uk/news/article-10553451/They-storm-tonight-Zelensky-says-Putins-forces-launch-scale-assault-Kyiv.html)*（图片为一个覆盖至少五层楼的洞被炸毁在建筑物的一侧，瓦砾散落在街道上）*
+2月22日早些时候，俄罗斯总统弗拉基米尔-普京（Vladimir Putin）承认乌克兰东部非政府控制的领土为独立领土，然后立即派遣俄罗斯军队占领乌克兰领土。
 
-**据英媒《每日电讯》2月26日消息：**
+2月22日早些时候，德国总理奥拉夫-肖尔茨（Olaf Scholz）表示，已经暂停了俄罗斯北溪-2号管道的认证程序，有效地阻止了它的运营。
 
-***1. 俄罗斯军队杀死了包括三名儿童在内的 198 名乌克兰平民，塔楼被导弹袭击撕裂 – 因为总统泽连斯基拒绝在血腥的基辅战役中放下武器。***
+2月22日，英国首相鲍里斯-约翰逊（Boris Johnson）在英国议会下议院发言时宣布，俄罗斯Rossiayaz银行、IS银行、General银行、Promsvyaz银行和黑海银行将受到制裁。
 
-***2. 乌方官员称，朱利尼机场附近的公寓楼遭到毁灭性袭击，所幸没有造成人员伤亡。***
+限制性措施还将影响根纳季-季姆琴科（Gennady Timchenko）、伊戈尔-罗滕伯格（Igor Rotenberg）和鲍里斯-罗滕伯格（Boris Rotenberg），他们都拥有 “非常高的个人净资产”。
 
-***3. 俄罗斯军队还向乌克兰军事设施发射了一连串巡航导弹***
+约翰逊说，他们在英国持有的任何资产都将被冻结，而且他们将被禁止在英国旅行。此外，所有英国个人和实体将被禁止与这些人做生意。
 
-***4. 总统泽连斯基宣布基辅将抵抗俄罗斯的进攻并誓言与普京的军队作战。***
+根据首相的说法，这是 “第一批”，如果普京进一步进入乌克兰，进一步的制裁将随之而来。
 
-消息链接：[**Russian forces kill 198 Ukrainian civilians including three children and tower block is ripped apart by MISSILE strike – as defiant president Zelensky refuses to lay down weapons in bloody Battle for Kyiv**](https://www.dailymail.co.uk/news/article-10553451/They-storm-tonight-Zelensky-says-Putins-forces-launch-scale-assault-Kyiv.html)
+新闻来源链接：[https://english.nv.ua/nation/russia-may-build-military-bases-in-republics-in-donbas-under-friendship-agreement-50218821.html](https://english.nv.ua/nation/russia-may-build-military-bases-in-republics-in-donbas-under-friendship-agreement-50218821.html)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+本文作者：Rebecca (一切心皆不可得！)
+上传排版：Hong
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
