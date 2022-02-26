@@ -2,26 +2,36 @@
 ---
 
 
-## 中日财经爆┃烂尾楼威胁政权安全？法院判决购房人不用还月供
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070018/)
+## 俄罗斯入侵，数千乌克兰人踊跃应征入伍：&#8221;乌克兰绝不跪下“
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2070023/)
 
-撰稿：东京樱花团/知了知了
+翻译：不要代表我Kari
+校对：小熊
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-26.png)
+据报道，在乌克兰中部城镇曼基夫卡，数百人在市政厅外排队入伍。为应对俄罗斯入侵，乌克兰最近禁止 18 至 60 岁的男性离开该国，但尚未颁布军事征兵令。 据一份报告称，成千上万的民众争先恐后应征入伍，准备为保卫家园而战。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/烂尾楼威胁政权安全？法院判决购房人不用还月供.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi.ytimg.com%2Fvi%2FyPyOBcmw04s%2Fmaxresdefault.jpg&amp;imgrefurl=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DyPyOBcmw04s&amp;tbnid=0yQljue-4_Pz5M&amp;vet=12ahUKEwiGoJitup32AhWNIjQIHUduAIYQMygGegUIARCqAQ..i&amp;docid=4DYXbrQ73SyfTM&amp;w=1280&amp;h=720&amp;q=%E7%83%82%E5%B0%BE%E6%A5%BC&amp;ved=2ahUKEwiGoJitup32AhWNIjQIHUduAIYQMygGegUIARCqAQ)
+据美国国家公共电台NPR报道，在乌克兰中部城镇曼基夫卡的市政厅外能看到数百人正在排队。”乌克兰绝不跪下，”其中一名入伍者告诉该媒体。”我们会把这些混蛋赶出我们的土地”。
 
-近日，浙江省嘉兴市中级人民法院发布的一则案例引发关注，因楼盘烂尾、开发商申请破产，该法院判决商品房买卖合同被确认无效，由开发商承担剩余贷款的还款责任，而不是购房人。2015年青海出现了个类似的官司，最高法于2020年做出判决开发商向银行偿还按揭款，并于2021年发布。
+俄罗斯入侵乌克兰：实时更新
 
-中共国最不缺的就是烂尾楼，无论那个城市均有数栋乃至数十栋烂尾名著。自从1992年5月银行放出第一笔房贷始，只有也仅有最近两起，楼盘烂尾后，购房者与开发商购房合同失效，可以不还月供的判例。
+报道称，另一名急于报名并于周五入伍的男子是沃洛迪米尔·奥梅利安Volodymyr Omelyan。”我不是天生的杀手，我从未梦想过成为那种人，”2016-2019年担任乌克兰基础设施部长的奥梅利安Omelyan告诉该媒体。奥梅利安说，他入伍主要是为了保护他的家人。他坚信，乌克兰人民将在卫国战中胜利。”我们一定会赢的，”他告诉美国国家公共电台NPR。
 
-一切有利于普通购房人的判决，在中共国几乎是不可能发生的事情。近期两个案件中购房者的胜诉，绝不是法治的结果，而是大量房企陷入债务危机，无力完成房屋建设和交付，届时烂尾楼遍地，会引发大量的群众事件，威胁政权安全，由此才做出了看似有利于普通购房者的判决。中共国房地产已经处于崩溃的前夕，中共政权已经在有针对性地拆卸压力，但这个雷太大，他们背不住。
+驻扎在兹米伊岛Zmiinyi（又称蛇岛）的13名士兵遭遇了一艘俄罗斯军舰，他们的反抗更能完美诠释乌克兰部队的战斗精神。”俄罗斯军舰，去死吧”，其中一名卫兵朝军舰的方向怒吼，当时整个事件被全程直播。
 
-信息来源：
+乌克兰总统沃洛基米尔-泽伦斯基（Volodymyr Zelenskyy）周四晚间证实，13人最终全部阵亡。
 
-[判了！楼盘烂尾后，购房人不用还月供，快看需要怎么做](https://www.163.com/dy/article/H1549RN50519C6T9.html)
+总统宣布，这13名士兵将获得 “乌克兰英雄 “的追授荣誉。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+原文链接：[https://www.foxnews.com/world/ukraine-army-enlist-russia-invasion](https://www.foxnews.com/world/ukraine-army-enlist-russia-invasion)
+
+发布：tianzhihuan
+
+更多资讯，请关注：[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

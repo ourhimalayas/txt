@@ -2,23 +2,25 @@
 ---
 
 
-## 俄罗斯 50国联合声明称俄罗斯对安理会决议草案 “滥用否决权”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2069352/)
+## 有声| 新中国联邦新闻、GTV新闻访谈简报|2022年2月23日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2069390/)
 
-翻译:天天
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-17.png)
+文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月23日晚](https://gnews.org/zh-hans/2056076/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2490-edited.png)news.yahoo.co.jp
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-俄罗斯2月25日对联合国安理会谴责俄罗斯入侵乌克兰的决议行使了否决权。 作为回应，50个国家发表了一份联合声明，称俄罗斯的行为构成了对否决权的滥用。 美国驻联合国大使托马斯-格林菲尔德在安理会会议后宣读了该声明。 在他的周围是已经签名的各国代表。 托马斯-格林菲尔德说：”我们今天站在这里，相信安全理事会负有防止冲突和避免战争祸害的庄严职责和崇高目的，而俄罗斯今天滥用其权力，否决了我们强有力的决议。 11个国家对谴责俄罗斯入侵乌克兰的决议投了赞成票，而中国、印度和阿拉伯联合酋长国（UAE）投了弃权票。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-来源：【news.yahoo.co.jp】[５０カ国、ロシアが安保理決議案に「拒否権を乱用」と共同声明](https://news.yahoo.co.jp/articles/855085e5795bb098e67fe0ea249cc24fa330b955)
-
-* * *
-
-审核：天天
-校对：宫米叶
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-5.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

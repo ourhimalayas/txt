@@ -2,12 +2,20 @@
 ---
 
 
-## 有声| 新中国联邦新闻、GTV新闻访谈简报|2022年2月23日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2069390/)
+## 有声|展望未来 光明必将战胜黑暗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2069391/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-17.png)
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月23日晚](https://gnews.org/zh-hans/2056076/)
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在2月20日的大直播中，郭文贵先生详细分析了加拿大特鲁多政府的结局以及美国未来的政治走向。
+
+鉴于对沼泽地有着深刻地了解，早在加拿大卡车游行开始之前，郭先生就曾预见，特鲁多一定会把卡车运动定义为暴乱并加以镇压。但郭先生也提到，虽然特鲁多忠于他背后的黑暗势力，但其政府最终一定会被黑暗势力消灭，因为黑暗势力只会忠诚于它自己，保护它自身利益。
+
+郭先生还展望道，在未来不超过三年的时间里，许多事情都会水落石出，但美国一定会大获全胜，并且将再次伟大。
+
+至于习近平和普京二人，郭先生指出，他们最担心的其实还是各自内部的反对力量。但郭先生也强调，中共国内的14亿人并不是都像“锁链女”一般被捆绑封口、无法反抗，还有许多像郭先生一样有实力、有勇气的战友正在默默地行动着。而在这场人类正义与邪恶的大较量中，光明必将战胜黑暗，且中共一定会被彻底消灭。
+
+文字版原文：[展望未来 光明必将战胜黑暗](https://gnews.org/zh-hans/2056372/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

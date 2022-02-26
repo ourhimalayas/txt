@@ -2,30 +2,29 @@
 ---
 
 
-## 英媒：俄入侵乌克兰造成198名平民死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2069513/)
+## 白宫要求国会为乌克兰危机拨款64亿美元
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2069545/)
 
-撰稿：东京樱花团｜山顶闲人
+翻译：冰糖葫芦喵
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/英媒：俄入侵乌克兰造成198名平民死亡.png)
+编辑与校对：灭共文明、冰糖葫芦喵
 
-[*图片来源*](https://www.dailymail.co.uk/news/article-10553451/They-storm-tonight-Zelensky-says-Putins-forces-launch-scale-assault-Kyiv.html)*（图片为一个覆盖至少五层楼的洞被炸毁在建筑物的一侧，瓦砾散落在街道上）*
+《路透社》华盛顿2月25日报道，**周五，拜登政府和国会助理表示，白宫要求国会批准64亿美元的援助，以解决俄罗斯本周入侵乌克兰后的人道主义和安全危机。**
 
-**据英媒《每日电讯》2月26日消息：**
+据报道，白宫管理和预算办公室的一名官员表示，拜登政府确定，由于俄罗斯毫无理由的入侵，**美国需要向乌克兰和中欧伙伴提供更多的人道主义、安全和经济援助。该请求包括29亿美元的安全和人道主义援助，以及35亿美元的国防部。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/白宫1-e1645881419600.jpg)美国白宫（图片来源：网络）
+国会助手表示，政府是在周五的一次简报会上提出这一要求的，与会者包括国会领导办公室和相关委员会的工作人员，其中包括制定支出的拨款委员会。
 
-***1. 俄罗斯军队杀死了包括三名儿童在内的 198 名乌克兰平民，塔楼被导弹袭击撕裂 – 因为总统泽连斯基拒绝在血腥的基辅战役中放下武器。***
+国会助手说，**国会将把为国务院和美国国际开发署(USAID)提供的29亿美元资金视为紧急法案，这笔钱还将用于执行和执行拜登为惩罚俄罗斯侵略乌克兰而实施的制裁。**
 
-***2. 乌方官员称，朱利尼机场附近的公寓楼遭到毁灭性袭击，所幸没有造成人员伤亡。***
+参议院拨款委员会主席、民主党参议员莱希说，他将与拜登政府密切合作，解决这场危机。他在一份声明中说:“美国政府需要提供必要的资源来支持我们的盟友，帮助陷入这场不必要灾难中的无辜人民。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/乌克兰战争.jpg)乌克兰战火（图片来源：BBC新闻）
+报道指出，**美国在过去一年中已经承诺向乌克兰提供6.5亿美元的安全援助和5200万美元的人道主义援助，以及上周宣布的10亿美元的主权贷款担保。**
 
-***3. 俄罗斯军队还向乌克兰军事设施发射了一连串巡航导弹***
+拜登政府的一名官员表示，随着当地局势的演变，有关资金需求的对话将发生变化。
 
-***4. 总统泽连斯基宣布基辅将抵抗俄罗斯的进攻并誓言与普京的军队作战。***
+据报道，周五早些时候，负责监督对外援助的参议院小组委员会主席、**民主党参议员克里斯·库恩斯(Chris Coons)表示，他将支持100亿美元或更多的资金来解决俄罗斯入侵乌克兰后的危机。**
 
-消息链接：[**Russian forces kill 198 Ukrainian civilians including three children and tower block is ripped apart by MISSILE strike – as defiant president Zelensky refuses to lay down weapons in bloody Battle for Kyiv**](https://www.dailymail.co.uk/news/article-10553451/They-storm-tonight-Zelensky-says-Putins-forces-launch-scale-assault-Kyiv.html)
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
