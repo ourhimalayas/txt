@@ -2,23 +2,33 @@
 ---
 
 
-## 俄罗斯总统府：乌克兰未就会谈作出回应，双方联络中断
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2069266/)
+## 有声|展望未来 光明必将战胜黑暗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2069391/)
 
-翻译：天天
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在2月20日的大直播中，郭文贵先生详细分析了加拿大特鲁多政府的结局以及美国未来的政治走向。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2484-edited.png)news.yahoo.co.jp
+鉴于对沼泽地有着深刻地了解，早在加拿大卡车游行开始之前，郭先生就曾预见，特鲁多一定会把卡车运动定义为暴乱并加以镇压。但郭先生也提到，虽然特鲁多忠于他背后的黑暗势力，但其政府最终一定会被黑暗势力消灭，因为黑暗势力只会忠诚于它自己，保护它自身利益。
 
-俄罗斯总统发言人谢尔盖-佩斯科夫周四表示，乌克兰已经有 “相当长的一段时间 “没有回应，两国之间的联络现在已经 “中断”。 乌克兰总统府顾问波多利亚克24日表示，乌克兰希望和平，并愿意与俄罗斯就北大西洋公约组织（NATO）的中立立场进行谈判。 发言人佩斯科夫称，俄罗斯人提出在白俄罗斯首都明斯克举行会谈，但乌克兰提议将波兰首都华沙作为会谈地点。 他说，此后一直没有回应，目前已经失去了联系。 另外，乌克兰还同时在主要城市的居民区部署了导弹系统，这是非常危险的迹象，但没有任何证据来证实这一说法。 乌克兰当局目前尚未发表评论。
+郭先生还展望道，在未来不超过三年的时间里，许多事情都会水落石出，但美国一定会大获全胜，并且将再次伟大。
 
-来源：【news.yahoo.co.jp】[ウクライナからの協議巡る返答まだ、連絡中断＝ロシア大統領府](https://news.yahoo.co.jp/articles/c53b2366c7ffe868fa9487cc8bb59012aecc729b)
+至于习近平和普京二人，郭先生指出，他们最担心的其实还是各自内部的反对力量。但郭先生也强调，中共国内的14亿人并不是都像“锁链女”一般被捆绑封口、无法反抗，还有许多像郭先生一样有实力、有勇气的战友正在默默地行动着。而在这场人类正义与邪恶的大较量中，光明必将战胜黑暗，且中共一定会被彻底消灭。
 
-* * *
+文字版原文：[展望未来 光明必将战胜黑暗](https://gnews.org/zh-hans/2056372/)
 
-审核：天天 
-校对：宫米叶
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-5.jpeg)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

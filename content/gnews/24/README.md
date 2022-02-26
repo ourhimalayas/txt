@@ -2,26 +2,24 @@
 ---
 
 
-## 英媒：俄入侵乌克兰造成198名平民死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2069513/)
+## 又一欧盟成员国支持把俄罗斯踢出SWIFT系统
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2069694/)
 
-撰稿：东京樱花团｜山顶闲人
+撰稿：东京樱花团｜盐和光
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/英媒：俄入侵乌克兰造成198名平民死亡.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/又一欧盟成员国支持把俄罗斯踢出SWIFT系统.png)
 
-[*图片来源*](https://www.dailymail.co.uk/news/article-10553451/They-storm-tonight-Zelensky-says-Putins-forces-launch-scale-assault-Kyiv.html)*（图片为一个覆盖至少五层楼的洞被炸毁在建筑物的一侧，瓦砾散落在街道上）*
+2月26日央视网报道，乌克兰外交部长德米特里·库列巴当地时间2月26日通过社交媒体平台发消息说，塞浦路斯已表态不反对将俄罗斯排除在SWIFT系统外。
 
-**据英媒《每日电讯》2月26日消息：**
+就在俄罗斯对乌克兰发动袭击之际，欧美等西方国家开始考虑对俄罗斯实施进一步的制裁。这些制裁可能包括阻止俄罗斯获得关键技术，例如芯片和半导体，甚至被禁用支持大多数国际汇款的SWIFT支付服务系统。
 
-***1. 俄罗斯军队杀死了包括三名儿童在内的 198 名乌克兰平民，塔楼被导弹袭击撕裂 – 因为总统泽连斯基拒绝在血腥的基辅战役中放下武器。***
+在制裁俄罗斯排问题上，德国、意大利、匈牙利和塞浦路斯四国一直持反对意见，就在今天，这个地中海小国，欧盟27个成员国之一的塞浦路斯决定支持把俄罗斯踢出SWIFT系统外。
 
-***2. 乌方官员称，朱利尼机场附近的公寓楼遭到毁灭性袭击，所幸没有造成人员伤亡。***
+SWIFT是一个国际银行间非盈利性的国际合作组织，总部设在比利时的布鲁塞尔，同时在荷兰阿姆斯特丹、美国纽约、新加坡以及中国香港分别设立交换中心。也是美元国际结算系统中的通信系统。同时也是美元跨国结算的监督机构，监督美国美元跨国结算。一旦一个国家被逐出SWIFT，那么该国家就被隔离在国际金融、贸易体系之外，无法进行国际贸易、金融交易。全球贸易的绝大部分结算都通过上述金融机构进行，这些金融机构也都是全球规模最大的金融机构，而只要是以美元结算，就几乎必然通过SWIFT进行。将俄罗斯逐出SWIFT，意味着俄罗斯被排除在国际金融贸易体系之外，俄罗斯的对外贸易（特别是与欧美国家的贸易）可能完全停摆。
 
-***3. 俄罗斯军队还向乌克兰军事设施发射了一连串巡航导弹***
+如果SWIFT完全剔除俄罗斯，将带来三方面影响：一是俄罗斯跨境金融渠道将面临瘫痪的风险，俄罗斯境内金融机构与境外同业无法开展支付、资金等业务，国际资产实质性完全冻结；二是国际投融资受阻，俄罗斯将不得不完全告别国际市场，加剧俄罗斯资本外流与金融震荡；三是对外贸易、企业国际往来乃至居民涉外收支将面临中断。
 
-***4. 总统泽连斯基宣布基辅将抵抗俄罗斯的进攻并誓言与普京的军队作战。***
-
-消息链接：[**Russian forces kill 198 Ukrainian civilians including three children and tower block is ripped apart by MISSILE strike – as defiant president Zelensky refuses to lay down weapons in bloody Battle for Kyiv**](https://www.dailymail.co.uk/news/article-10553451/They-storm-tonight-Zelensky-says-Putins-forces-launch-scale-assault-Kyiv.html)
+信息来源：[**塞浦路斯不反对将俄罗斯排除在SWIFT系统外**](http://news.yktworld.com/world/2022022608534016431368.html)
 
 *校对：东京樱花团 / 東洋武士*
 *发布：东京樱花团 / 老黑*

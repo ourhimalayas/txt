@@ -2,34 +2,23 @@
 ---
 
 
-## 荒谬：王毅让全世界重视侵略者的合理诉求
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2069238/)
+## 俄罗斯 50国联合声明称俄罗斯对安理会决议草案 “滥用否决权”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2069352/)
 
-#### 【雅典娜观察】和您一起洞察世界
+翻译:天天
 
-整理：围剿维尼熊
-编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2490-edited.png)news.yahoo.co.jp
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-40.png)图片来源：Forces & 雅典娜设计组
+俄罗斯2月25日对联合国安理会谴责俄罗斯入侵乌克兰的决议行使了否决权。 作为回应，50个国家发表了一份联合声明，称俄罗斯的行为构成了对否决权的滥用。 美国驻联合国大使托马斯-格林菲尔德在安理会会议后宣读了该声明。 在他的周围是已经签名的各国代表。 托马斯-格林菲尔德说：”我们今天站在这里，相信安全理事会负有防止冲突和避免战争祸害的庄严职责和崇高目的，而俄罗斯今天滥用其权力，否决了我们强有力的决议。 11个国家对谴责俄罗斯入侵乌克兰的决议投了赞成票，而中国、印度和阿拉伯联合酋长国（UAE）投了弃权票。
 
+来源：【news.yahoo.co.jp】[５０カ国、ロシアが安保理決議案に「拒否権を乱用」と共同声明](https://news.yahoo.co.jp/articles/855085e5795bb098e67fe0ea249cc24fa330b955)
 
-2月26日据路透社报道，中共国外长王毅周五表示，中共国坚定主张尊重和保障各国的主权和领土完整，但在北约连续五轮东扩情况下，**俄罗斯在安全方面的正当诉求理应得到重视和妥善解决。**王毅还表示，中共支持和鼓励一切有利于和平解决乌克兰危机的外交努力，欢迎俄罗斯和乌克兰尽快举行直接对话谈判。
+* * *
 
-众所周知，俄罗斯作为入侵方，之前在乌克兰边境制造了“假旗事件”为发动战争寻找借口。乌克兰政府此前一再要求与普京会晤，以解决俄乌双边的领土问题，但普京拒绝了乌方要求。
-
-而中共作为世界秩序的扰乱者，全球头号“黑社会”组织，周四当俄罗斯军队入侵乌克兰数小时后，中国海关总署宣布将取消此前因担心植物病害而对俄罗斯小麦的限制。当全世界集体制裁俄罗斯之时，中共国却对俄罗斯小麦进口大开方便之门，与全世界对着干，王公公还让全世界重视侵略者的诉求，何其荒谬？
-
-参考链接：[俄诉求也应得到重视和解决](https://cn.reuters.com/article/china-wangyi-russia-security-0226-idCNKBS2KV03H?il=0)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+审核：天天
+校对：宫米叶
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

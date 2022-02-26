@@ -2,23 +2,33 @@
 ---
 
 
-## 俄罗斯 50国联合声明称俄罗斯对安理会决议草案 “滥用否决权”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2069352/)
+## 有声|美国司法部任命国家加密货币执法团队负责人
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2069392/)
 
-翻译:天天
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2月17日，美国司法部任命Eun Young Choi担任国家加密货币执法小组NCRET的第一位团队负责人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2490-edited.png)news.yahoo.co.jp
+据悉NCET成立的目的是应对非法滥用加密货币和数字资产带来的挑战，其团队成员包括具有加密货币、网络犯罪、洗钱和没收背景的检察官。NCET将特别关注数字货币兑换、基础设施提供商和便利数字货币犯罪的实体。
 
-俄罗斯2月25日对联合国安理会谴责俄罗斯入侵乌克兰的决议行使了否决权。 作为回应，50个国家发表了一份联合声明，称俄罗斯的行为构成了对否决权的滥用。 美国驻联合国大使托马斯-格林菲尔德在安理会会议后宣读了该声明。 在他的周围是已经签名的各国代表。 托马斯-格林菲尔德说：”我们今天站在这里，相信安全理事会负有防止冲突和避免战争祸害的庄严职责和崇高目的，而俄罗斯今天滥用其权力，否决了我们强有力的决议。 11个国家对谴责俄罗斯入侵乌克兰的决议投了赞成票，而中国、印度和阿拉伯联合酋长国（UAE）投了弃权票。
+Choi主任说，NCET一直站在调查和起诉涉及数字货币的犯罪的前列，不仅在数字资产技术的增长和发展方面发挥关键作用，又加快和扩大打击各种非法滥用数字资产的行为。
 
-来源：【news.yahoo.co.jp】[５０カ国、ロシアが安保理決議案に「拒否権を乱用」と共同声明](https://news.yahoo.co.jp/articles/855085e5795bb098e67fe0ea249cc24fa330b955)
+据悉Choi主任曾起诉过复杂的欺诈和洗钱犯罪等，特别关注网络入侵、数字货币、暗网和国家安全调查。她曾成功地将暗网市场丝绸之路的创始人兼首席执行官Ross Ulbricht进行了上诉。
 
-* * *
+文字版原文：[美国司法部任命国家加密货币执法团队负责人](https://gnews.org/zh-hans/2056538/)
 
-审核：天天
-校对：宫米叶
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-5.jpeg)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
