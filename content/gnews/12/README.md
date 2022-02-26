@@ -2,37 +2,48 @@
 ---
 
 
-## 有声|应俄国军事侵略乌克兰及美国皆提升战备
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2070265/)
+## 有声|新西兰Covid-19 疫情爆炸式飙升至12,011 例新病例五人死亡引发民众暴力情绪
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2070401/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月23日，乌克兰国家安全委员会宣布全国进入紧急状态，预计将征召18至60岁的预备军人入营，以因应俄罗斯的军事侵略行动。 此征召计划将在国会批准后即刻实施，服役时间最长为一年。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2000x1333_0084523829536.jpg)[图源网络](https://facebook.com/UkrainianLandForces)
-美国也在2月21日将美军防御准备状态（Defcon）警报系统的评估等级调升到3级，此战备评估系统在和平时期为5级，在可能或已经爆发核战时为1级。在3级警戒状态下，美国空军必需达成在15分钟内可完成动员就战斗位置的要求。美国目前只有三次进入3级警戒状态的记录，分别是1973年的以阿战争、1976年的板门店事件以及2001年的911恐怖攻击事件。进入3级警戒等同是接近战争的边缘。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image013-1.jpg)
+当地时间，2月25日，新西兰报告了12,011 例新的Covid-19 小区病例，另有5 人死亡。今天的数字几乎是24日报告的6137 个病例的两倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image014-2.jpg)
+奥克兰的新增病例最多，有1565 例PCR 检测呈阳性，6403 例RAT 结果呈阳性。其余病例分布在全国各地。
 
-美国及乌克兰正严肃看待俄罗斯即将发动的侵略战争，普京的下一步行动将决定许多无辜民众的生命。
+新西兰目前为止已有61 人死于Covid-19。现在有237 人因感染Covid病毒住院，其中3 人在重症监护室。
+
+疫情爆炸式发展引发了民众焦虑以及暴力情绪。新西兰大型连锁超市Countdown公司事务经理Kiri Hannafin 说，人们正在向超市的员工发泄与covid病毒相关的愤怒。人们不戴口罩，辱骂超市的团队，咒骂，随地吐痰，甚至威胁要杀人，目前为止每天如此。
+
+同时，他表示Countdown 的22,000 名员工令他感动，尽管“一些极少数人的行为绝对令人发指”，但是员工们还在继续工作“继续前进”。可惜有350 名超市员工因Covid 处在隔离中。超市预计本周末商店将出现肉类短缺。
+
+此外，新西兰本地因疫情飙升师资不足已经引发幼教机构关闭。中共病毒引发的疫情灾难正在越来越多的显现出来！
 
 
 
-文字版原文：[应俄国军事侵略乌克兰及美国皆提升战备](https://gnews.org/zh-hans/2067473/)
+[【援引连结】](https://www.rnz.co.nz/news/national/462259/covid-19-update-12-011-new-community-cases-in-new-zealand-today-five-deaths)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**推出问题，敲出真相，爆料在路上！**
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+**请关注和订阅我们的以下账号：**
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

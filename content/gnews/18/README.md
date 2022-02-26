@@ -2,36 +2,29 @@
 ---
 
 
-## 俄罗斯全面发动入侵乌克兰的战争
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070220/)
+## 樱花FM|中日财经爆：融创多个区域商票逾期 交易者异常紧张
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2070325/)
 
-作者：纽约香草山健身部—Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月24日凌晨，据盖特和其他媒体消息显示，俄罗斯正在从三个主要方向对乌克兰发起大规模的入侵，且俄军采用的主要袭击方式为空袭和导弹。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-26-上午9.43.57.png)
-据悉，乌克兰已经有137名公民死亡，169人受伤。但面对俄军发起的陆、海、空全面入侵，乌克兰总统泽连斯基向全国民众呼吁，希望愿意保家卫国的乌克兰人能挺身而出，政府将为其配发武器。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-14-2.png)
+据财经网1月30日消息，自2021年12月下旬起，融创下属项目公司开始出现无法兑付到期商票的现象。
 
-与此同时，台湾危机成为继乌克兰之后全球关注的重点问题。对此，郭文贵先生也在当天的紧急直播中指出，共产党一定会攻打台湾，新中国联邦必须马上组织起来，全力以赴地向愿意撤出台湾的战友和台湾同胞们提供援助，在所不辞。另一方面，郭先生也呼吁墙内的同胞远离军事设施与基地，一定要保护好自己和家人的安全。
+《财经》记者从持票人处得到多张票面信息，这些商票自2021年12月28日至2022年1月21日陆续到期，票据状态显示为“提示付款已拒付”，拒付理由为“承兑人账户余额不足”。这些票面金额从10万元到80万元不等，出票公司来自三亚、成都、天津、大连等多个城市。据天眼查显示，开票公司均为融创多层控股的项目公司。
 
-郭先生强调，台海危机一触即发，已经迫在眉睫。
+融创的地产业务在全国分为北京、华北、上海、东南、华南、华中、西南七大区域。据悉，目前上海和东南两个销售状况最好的区域商票兑付正常，其余区域均有到期不兑现象。一位持有大量融创商票的保理公司人士告诉《财经》记者，融创目前的逾期规模尚可控，预计大多数机构投资者会同意展期，为融创宽限些时间。融创的真正考验在春节之后，2021年融创大量商票在2月开出，今年这些商票也将在2月集中到期。
 
-参考链接：
-1）[https://gettr.com/post/pwm1d5ab4e](https://gettr.com/post/pwm1d5ab4e)
-2）[As it happened: Ukraine deaths as battles rage on day one of Russian invasion](https://www.bbc.com/news/live/world-europe-60454795)
+一位接近融创高层的知情人估算，2022年春节结束时，融创会有20亿元左右的到期票据。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+此次融创商票风波中，已有不少商票逾期超过10天。因此，交易者还是异常紧张。来自成都和山东的持票供应商认为，融创商票已经失去了流动性。如今他们们想把未到期商票折价出手，但买家难寻。
 
-总编：Irene木木
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+文字版原文：
+[中日财经爆┃融创多个区域商票逾期 交易者异常紧张 – GNEWS](https://gnews.org/zh-hans/1933703/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

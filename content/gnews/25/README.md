@@ -2,26 +2,36 @@
 ---
 
 
-## 俄侵略乌克兰遭致体育界围剿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070174/)
+## 俄罗斯全面发动入侵乌克兰的战争
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070220/)
 
-撰稿：东京樱花团/麗子
+作者：纽约香草山健身部—Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月24日凌晨，据盖特和其他媒体消息显示，俄罗斯正在从三个主要方向对乌克兰发起大规模的入侵，且俄军采用的主要袭击方式为空袭和导弹。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-26-上午9.43.57.png)
+据悉，乌克兰已经有137名公民死亡，169人受伤。但面对俄军发起的陆、海、空全面入侵，乌克兰总统泽连斯基向全国民众呼吁，希望愿意保家卫国的乌克兰人能挺身而出，政府将为其配发武器。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/俄侵略乌克兰遭致体育界围剿.jpg)[图片来源](https://www.sponichi.co.jp/sports/news/2019/12/11/kiji/20191211s00048000066000c.html)
+与此同时，台湾危机成为继乌克兰之后全球关注的重点问题。对此，郭文贵先生也在当天的紧急直播中指出，共产党一定会攻打台湾，新中国联邦必须马上组织起来，全力以赴地向愿意撤出台湾的战友和台湾同胞们提供援助，在所不辞。另一方面，郭先生也呼吁墙内的同胞远离军事设施与基地，一定要保护好自己和家人的安全。
 
-体育界开始对侵略乌克兰的俄罗斯实施“围剿”。25日，国际奥林匹克委员会（IOC）宣布，将要求所有国际单项联合会（IF）取消在俄罗斯以及白俄罗斯举行的运动会，或另选场地举行。在足球领域，也出现了排除俄罗斯赞助商的举动。
+郭先生强调，台海危机一触即发，已经迫在眉睫。
 
-国际奥委会还要求两国国旗和国歌不得在国际比赛中使用。已决定取消IF主办的网球锦标赛、5月的柔道大满贯喀山锦标赛以及世界花样游泳比赛和跳水系列赛（4 月喀山）。
+参考链接：
+1）[https://gettr.com/post/pwm1d5ab4e](https://gettr.com/post/pwm1d5ab4e)
+2）[As it happened: Ukraine deaths as battles rage on day one of Russian invasion](https://www.bbc.com/news/live/world-europe-60454795)
 
-对比IOC无视多国外交抵制，依然在实施种族灭绝的中共国举办北京冬奥，此次对俄罗斯侵略事件处理还算符合一个国际组织的基本底线。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-信息源:
+总编：Irene木木
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[スポーツ界にロシア包囲網　大会中止、協賛解除も](https://news.yahoo.co.jp/articles/7cd2fff962d1eb375285553ca58977080daf5b18)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
