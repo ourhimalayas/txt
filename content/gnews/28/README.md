@@ -2,35 +2,36 @@
 ---
 
 
-## “核弹级制裁”欧盟考虑将俄罗斯逐出SWIFT
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2068195/)
+## 俄乌战争之际 台湾成为社交媒体全球热点
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2068230/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-25.jpg)“核弹级制裁”欧盟考虑将俄罗斯逐出SWIFT 网络图片
-据美国之音2月26日报道，在俄罗斯对乌克兰发动全面军事入侵后，西方世界对俄罗斯实施制裁，但不包括将其踢出全球银行间支付系统SWIFT。法国财政部长25日表示，欧盟在分析启用这项制裁的作用及后果。SWIFT虽然能给俄罗斯银行带来沉重打击，但也可能导致俄罗斯联手其他国家成立自己的支付系统。
+撰稿: 纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
+台湾媒体2月24日消息，在俄罗斯对乌克兰展开全面军事攻击之际，国际社会都在密切关注，中共是否会利用紧张局势对台湾发动侵略战争。而中共当局也确实在此期间持续派遣军机，对台湾继续进行武力挑衅。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2425.png)图片来自：https://news.ltn.com.tw
+据台湾国防部公布的即时动态显示，中共9架次军机于22日进入台湾西南空域防空识别区。台湾空军依照惯例，派遣空中巡逻兵力对中共军机进行了广播驱离，并使用了防空导弹追踪监控。
 
-德国政府表示将俄罗斯踢出SWIFT在技术上很难安排，将对德国和在俄罗斯的德国企业的交易产生巨大影响，因此德国对启动SWIFT制裁保持开放态度。美国总统拜登宣布了对俄罗斯的新的制裁措施，包括对俄罗斯最大的银行和其他四家金融机构的资产冻结；禁止俄罗斯国有企业从美国和欧洲投资人手中融资；切断俄罗斯一半以上高科技进口；以及扩大对俄罗斯精英及其家族成员的制裁。但不包括将俄罗斯从SWIFT国际支付系统中排除。
+当前，除了俄乌局势外，社交媒体最热点的话题就是台湾。加拿大前工业部长摩尔发推警告说：要留心台湾！美国退役空军准将、前白宫资深战略顾问斯伯丁将军推文表示：台湾将会是下一个。美国记者、政论节目主持人波索比奇的推文表示，希望台湾已经做好抵抗中共入侵的军事准备了。
 
-SWIFT系统是一个为200多个国家和地区的11,000多家金融机构之间提供信息传递服务的机构。将俄罗斯从SWIFT金融系统中剔除，将是美国及其欧洲盟友对俄罗斯采取的最严厉的金融措施之一，会立即和长期地损害俄罗斯经济。可能会切断俄罗斯与大多数国际金融交易的联系，包括出口石油和天然气产生的利润，这些利润总共占到俄罗斯收入的40%以上。
+新闻链接：
 
-拉脱维亚、立陶宛和爱沙尼亚外长，包括英国首相均呼吁将俄罗斯踢出SWIFT。欧洲国家则举棋不定，尽管这么做能够给俄罗斯银行构成沉重打击，但是它牵扯到欧洲多方利益，特别是对俄罗斯天然气高度依赖的国家。德国有一半的天然气供应来自俄罗斯，整个欧盟进口的天然气超过三分之一来自俄罗斯。欧洲各国都依赖SWIFT系统向俄罗斯支付燃气费用。
+[俄烏衝突之際 中共9架次軍機擾我西南空域](https://news.ltn.com.tw/news/politics/breakingnews/3840619)
 
-禁止某些国家使用SWIFT，也许会鼓励这些国家寻找替代方案。欧盟是否排除对俄罗斯采取SWIFT制裁的方案，最终取决于乌克兰局势的发展。普京出手毫不犹豫，打击从天而降，但实施制裁的国家却犹豫不决。前方乌克兰在流血，后方欧盟瞻前顾后、平衡利益。什么时候对待非正义和邪恶，国际社会能够迅速地”该出手时就出手”呢？
+[烏俄戰火意外引關切 「台灣」登上推特全球熱門](https://news.ltn.com.tw/news/life/breakingnews/3840238)
 
-新闻参考链接：[https://www.voachinese.com/a/will-russia-be-kicking-out-of-swift-20220225/6459409.html](https://www.voachinese.com/a/will-russia-be-kicking-out-of-swift-20220225/6459409.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5-1-1.png)
 
-* * *
+编辑/总编：飞虹
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+校正/发稿：浪迹天涯
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

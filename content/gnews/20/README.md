@@ -2,36 +2,28 @@
 ---
 
 
-## 俄乌战争之际 台湾成为社交媒体全球热点
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2068230/)
+## 北约将向东欧派遣“陆海空”快速反应部队 施压俄罗斯
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2068316/)
 
-撰稿: 纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
-台湾媒体2月24日消息，在俄罗斯对乌克兰展开全面军事攻击之际，国际社会都在密切关注，中共是否会利用紧张局势对台湾发动侵略战争。而中共当局也确实在此期间持续派遣军机，对台湾继续进行武力挑衅。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2425.png)图片来自：https://news.ltn.com.tw
-据台湾国防部公布的即时动态显示，中共9架次军机于22日进入台湾西南空域防空识别区。台湾空军依照惯例，派遣空中巡逻兵力对中共军机进行了广播驱离，并使用了防空导弹追踪监控。
+撰稿：东京樱花团/百花李香
 
-当前，除了俄乌局势外，社交媒体最热点的话题就是台湾。加拿大前工业部长摩尔发推警告说：要留心台湾！美国退役空军准将、前白宫资深战略顾问斯伯丁将军推文表示：台湾将会是下一个。美国记者、政论节目主持人波索比奇的推文表示，希望台湾已经做好抵抗中共入侵的军事准备了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/北约将向东欧派遣陆海空快速反应部队-施压俄罗斯.jpg)GWB : 0930-1250 North Atlantic Council (NAC) Summit. Prague, Czech Republic
 
-新闻链接：
+[图片来源](text=%E)
 
-[俄烏衝突之際 中共9架次軍機擾我西南空域](https://news.ltn.com.tw/news/politics/breakingnews/3840619)
+北大西洋公约组织（NATO）在25日的紧急会议上决定向东欧派遣一支快速反应部队，从而保卫东欧成员国。
 
-[烏俄戰火意外引關切 「台灣」登上推特全球熱門](https://news.ltn.com.tw/news/life/breakingnews/3840238)
+秘书长斯托尔滕贝格称，北约将向东欧成员国派遣一支由“陆海空三军”组成的数千人部队。这次派遣任务是这一组织成立以来，首次集体自卫部署行动。由此，可见其紧迫性和重要性。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5-1-1.png)
+北约已明确表示不会向非成员国乌克兰派兵，而其周边的北约成员国进行部署部队。这一被认为对东欧同盟国的一种关切性部署行为，旨在向俄罗斯施加压力，使其不要在地理上进一步扩大其冲突。
 
-编辑/总编：飞虹
+与此同时，五角大楼的一名高级官员25日表示，俄罗斯军队正在向乌克兰首都基辅推进，但由于乌克兰军队浴血奋战，使得其前进速度比预期延迟了许多。
 
-校正/发稿：浪迹天涯
+信息来源：[ＮＡＴＯ首脳緊急会議 東欧に即応部隊の派遣決定](text=)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
+*编辑：东京樱花团/逢⑦必变
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

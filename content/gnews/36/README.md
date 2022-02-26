@@ -2,38 +2,49 @@
 ---
 
 
-## 韩国、台湾将参与国际对俄罗斯的制裁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2067783/)
+## 令人不寒而栗的辉瑞疫苗儿童致死数据
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2068173/)
 
-作者：首尔天池农场—追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
-韩国媒体2月24日报道，文在寅总统针对俄罗斯入侵乌克兰表示，在任何情况下，使用武力造成无辜生命的行为都是没有道理的，并称韩国将会参与国际对俄罗斯的制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2420.png)
-文在寅指出：国家之间的冲突应该通过对话或谈判解决，而不是战争。
+![](https://childrensunion.org/wp-content/themes/yootheme/cache/ONS-Daily-Expose-ef8cab73.webp)图片来源：英国国家统计局
+一项对英国国家统计局(Office for National Statistics, ONS)数据的分析表明，儿童在接种新冠疫苗后死亡的可能性是“未接种疫苗”儿童的52倍。此外，数据显示，死亡风险对年幼儿童和接种第二针疫苗的儿童迅速增加。
 
-就在韩国发表上述表态后第二天，台湾媒体消息称，台湾总统府发言人张惇涵当日宣布，针对俄罗斯入侵乌克兰的军事行动，台湾将参与国际社会对俄罗斯的经济制裁。
+根据《每日曝光》(Daily Expose)的分析，在去年的前10个月，接种辉瑞公司疫苗的15-19岁青少年比未接种疫苗的青少年死亡的可能性高出200%。同时，10-14岁之间接种疫苗的儿童，比那些没有接种过中共病毒疫苗的儿童死亡的可能性高出1000%。
 
-张惇涵表示，台湾仍呼吁各方恢复和平对话，理性解决争端。作为国际社会的一员，对于有助于和平解决争议的努力，台湾都愿意参与。
+此外，对政府官方数据的分析表明，第二剂疫苗从根本上增加了死亡的几率。第二剂后，年龄较大的青少年的死亡风险上升到300%，14岁以下的死亡风险上升到5200%——根据每10万人年238人的死亡率计算。
 
-参考链接：[https://news.kbs.co.kr/mobile/news/view.do?ncd=5403115https://www.cna.com.tw/news/aipl/202202250047.aspx](https://news.kbs.co.kr/mobile/news/view.do?ncd=5403115https://www.cna.com.tw/news/aipl/202202250047.aspx)
+然而，由于几个原因，即使这样也严重低估了真正的风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+这些数据包括10至11岁的儿童，这个年龄组在英国没有资格接种疫苗。此外，接种疫苗后两周内的死亡人数被计入未接种疫苗的(死亡)人数，而不是接种疫苗的(死亡)人数，尽管大约一半的疫苗死亡发生在这一年龄段。
 
-总编/编辑：飞虹
-校对/发稿：小野貓（文凱琳）
+主流新闻机构没有对此进行报道本应是令人震惊的，如果它没有遵循一贯的模式，即无视所有会损害药品销售和政府政策的证据。
 
-**更多资讯，更多关注**
+此外，尽管英国国家统计局的顽固行为以及其陈述和报告中的混淆视听，《每日曝光》的分析仍然存在。据《每日曝光》报道，国家统计局在其按疫苗接种状况划分的死亡数据中，无意中地公布了有关儿童和成人死亡的足够多的细节。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+此外，英国政府对这些数据坐视不管已经一个多月，允许儿童和青少年继续接种疫苗，同时暗中继续统计由此导致的死亡人数。为了一种不会致死的疾病。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+新闻链接：
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
+> [Here is the data on child Pfizer death. It is chilling.](https://childrensunion.org/here-is-the-data-on-child-pfizer-death-it-is-chilling/)
+
+
+
+简评：
+
+在这场中共发动的中共病毒大流行病的初期，临床统计数据告诉人们：青少年以及儿童感染中共病毒的可能性远低于年长者。而随着时间的推移，无良主流媒体对疫病的渲染以及邪恶疫苗厂商无止尽的贪婪的推动，让人们逐渐忘记这一事实，从而让青少年和幼童接种中共病毒疫苗，导致青少年及儿童感染中共病毒人数急剧增加。南非尚卡拉·切蒂医生曾经提到：“在接种疫苗后的前14天，任何副作用都不能归咎于疫苗，因为所有的’过敏反应’都会在这段时间出现。”政府与医疗系统在拿人命玩数据游戏，将接种后两周内死亡的人数计入未接种疫苗的死亡，而非接种后死亡，企图掩盖疫苗致死的事实。政府、医疗系统、主流媒体、疫苗厂商的“齐心协力”与“自导自演”，让作为弱势群体的青少年儿童，不仅失去了接受教育、与他人交流的权利，承受精神上的缺失，更是通过一支支毒针，让他们失去健康的身体甚至生命，未来蒙上一层浓厚的阴影。当今世界缺乏正义的监管力量，人类的善忘和信仰的缺失主张者邪恶作祟，人类需要付出多少代价，才能觉醒，真正看清事实？
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
