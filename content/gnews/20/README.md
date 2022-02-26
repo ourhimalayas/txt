@@ -2,29 +2,47 @@
 ---
 
 
-## 美国、欧盟和英国宣布制裁俄罗斯总统普京
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2067378/)
+## 应俄国军事侵略乌克兰及美国皆提升战备
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2067473/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-24.jpg)美国、欧盟和英国宣布制裁俄罗斯总统普京 网络图片
-据美国之音2月26日报道，美国财政部25日宣布将冻结俄罗斯总统弗拉基米尔·普京和外长谢尔盖·拉夫罗夫的资产。美国这波制裁的目标是俄罗斯的银行、寡头和高科技领域，包括出口管控。欧盟对普京和拉夫罗夫的制裁更广泛，包括俄罗斯的银行、炼油厂和国防产业。英国首相呼吁把俄罗斯踢出国际银行转账系统(SWFIT)。
-
-乌克兰一直呼吁在SWIFT系统中封杀俄罗斯，并敦促欧洲对莫斯科实施更为有力的制裁。然而，一些欧洲国家，包括德国对此犹豫不决。作为对制裁的回应，俄罗斯方面也采取了制裁措施，包括禁止英国飞机飞越其领空。在此之前，英国对俄航实施了类似禁令。
-
-普京进攻乌克兰，一些国家对俄罗斯实施制裁，全球证券价格大跌，大宗商品价格蹿升，美国人的汽油价格也将会上涨。如果中共再发动对台湾的战争，全球会更加动荡不安。2022年疫苗灾难年，战争年。
-
-新闻参考链接：[https://www.voachinese.com/a/us-eu-britain-announce-sanctions-against-russian-president-20220225/6460195.html](https://www.voachinese.com/a/us-eu-britain-announce-sanctions-against-russian-president-20220225/6460195.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山医疗部—云豹
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-77.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
+当地时间2月23日，乌克兰国家安全委员会宣布全国进入紧急状态，预计将征召18至60岁的预备军人入营，以因应俄罗斯的军事侵略行动。 此征召计划将在国会批准后即刻实施，服役时间最长为一年。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2000x1333_0084523829536.jpg)[图源网络](https://facebook.com/UkrainianLandForces)
+美国也在2月21日将美军防御准备状态（Defcon）警报系统的评估等级调升到3级，此战备评估系统在和平时期为5级，在可能或已经爆发核战时为1级。在3级警戒状态下，美国空军必需达成在15分钟内可完成动员就战斗位置的要求。美国目前只有三次进入3级警戒状态的记录，分别是1973年的以阿战争、1976年的板门店事件以及2001年的911恐怖攻击事件。进入3级警戒等同是接近战争的边缘。
+
+美国及乌克兰正严肃看待俄罗斯即将发动的侵略战争，普京的下一步行动将决定许多无辜民众的生命。
+
+参考来源：
+
+[US defense readiness increased to Cuba crisis level due to Ukraine](https://www.uniindia.com/story/US-defense-readiness-increased-to-Cuban-crisis-level-due-to-Ukraine)
+
+[Defcon Level Warning System](https://www.defconlevel.com/)
+
+[烏克蘭將宣布進入緊急狀態 徵召18至60歲預備役軍人](https://www.cna.com.tw/news/aopl/202202230306.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-62.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-78.png)
 
 
  

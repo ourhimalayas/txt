@@ -2,45 +2,29 @@
 ---
 
 
-## 世卫组织与德国公司签订全球数字疫苗证书合同推行世界护照
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2067282/)
+## 美国、欧盟和英国宣布制裁俄罗斯总统普京
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2067378/)
 
-作者：纽约香草山金融部—AT
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-24.jpg)美国、欧盟和英国宣布制裁俄罗斯总统普京 网络图片
+据美国之音2月26日报道，美国财政部25日宣布将冻结俄罗斯总统弗拉基米尔·普京和外长谢尔盖·拉夫罗夫的资产。美国这波制裁的目标是俄罗斯的银行、寡头和高科技领域，包括出口管控。欧盟对普京和拉夫罗夫的制裁更广泛，包括俄罗斯的银行、炼油厂和国防产业。英国首相呼吁把俄罗斯踢出国际银行转账系统(SWFIT)。
 
+乌克兰一直呼吁在SWIFT系统中封杀俄罗斯，并敦促欧洲对莫斯科实施更为有力的制裁。然而，一些欧洲国家，包括德国对此犹豫不决。作为对制裁的回应，俄罗斯方面也采取了制裁措施，包括禁止英国飞机飞越其领空。在此之前，英国对俄航实施了类似禁令。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-75.png)
+普京进攻乌克兰，一些国家对俄罗斯实施制裁，全球证券价格大跌，大宗商品价格蹿升，美国人的汽油价格也将会上涨。如果中共再发动对台湾的战争，全球会更加动荡不安。2022年疫苗灾难年，战争年。
 
+新闻参考链接：[https://www.voachinese.com/a/us-eu-britain-announce-sanctions-against-russian-president-20220225/6460195.html](https://www.voachinese.com/a/us-eu-britain-announce-sanctions-against-russian-president-20220225/6460195.html)
 
-2月23日，世界卫生组织为推进全球统一的数字疫苗接种卡，宣布已向德国电信子公司下达订单，目的是确保疫苗接种证书的二维码可以跨国检查。该证书未来还可能被作为世界护照使用。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-74.png)
-德国电信子公司 T-Systems 收到了来自世界卫生组织的巨额订单。 未来，世界卫生组织将使用 该公司的技术框架为其 194 个成员国提供服务。新技术系统可以记录疫苗接种活动和患者信息。这无疑是全世界人类迈向数字身份的又一步。
+* * *
 
-世界卫生组织长期以来一直在研究数字疫苗接种卡，希望全球70 亿人都要随时随身携带此卡。该提议是由比尔和梅琳达·盖茨基金会、爱沙尼亚政府、博特纳基金会、科威特国和洛克菲勒基金会资助。
-
-世界卫生组织想要存储的个人信息，包括：姓名、性别、婚姻状况、出生日期和地点、原籍国、居住国、个人登记号码、职业、宗教和种族等个人资料；生物特征数据，例如照片、指纹、面部或虹膜图像等。
-
-参考来源：
-
-[WHO vergibt Auftrag an deutsche Firma: Globale einheitliche digitale Impfzertifikate kommen](https://tkp.at/2022/02/23/who-vergibt-auftrag-an-deutsche-firma-global-einheitliche-digitale-impfzertifikate-kommen/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-61.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-76.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
 
 
  

@@ -2,48 +2,23 @@
 ---
 
 
-## 应俄国军事侵略乌克兰及美国皆提升战备
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2067473/)
+## 视频|德国保险公司揭示疫苗副作用数据远超政府报告
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2067612/)
 
-作者：纽约香草山医疗部—云豹
+制作：香草山视频部
 
+据2月23日外媒报道，一家德国医疗保险公司出具的报告表明，实际的中共病毒疫苗不良反应的数据，要比德国政府披露的高很多倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-77.png)
+该公司对超过1090万名保户进行了分析，从2021年初到第三季度中期，共有约21.7万人涉及中共病毒疫苗副作用而接受治疗。主要不良反应体现为接种后败血症、皮疹、疫苗或生物活性并发症以及其他症状。而德国卫生部记录的数据为，总人口6140万，在14个月中只记录了不足24.5万份疫苗不良反应。该保险公司CEO绍夫贝克先生称，从保单记录的数据来推断，中共病毒疫苗产生的不良反应就医可能已达到300万人次。他呼吁德国民众在决定接种之前慎重考虑中共病毒疫苗的副作用。
 
+医学统计学家格特·安蒂斯说，联邦卫生系统有责任迅速核实政府报告数据与实际疫苗不良反应数据不匹配的状况。
 
-当地时间2月23日，乌克兰国家安全委员会宣布全国进入紧急状态，预计将征召18至60岁的预备军人入营，以因应俄罗斯的军事侵略行动。 此征召计划将在国会批准后即刻实施，服役时间最长为一年。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2000x1333_0084523829536.jpg)[图源网络](https://facebook.com/UkrainianLandForces)
-美国也在2月21日将美军防御准备状态（Defcon）警报系统的评估等级调升到3级，此战备评估系统在和平时期为5级，在可能或已经爆发核战时为1级。在3级警戒状态下，美国空军必需达成在15分钟内可完成动员就战斗位置的要求。美国目前只有三次进入3级警戒状态的记录，分别是1973年的以阿战争、1976年的板门店事件以及2001年的911恐怖攻击事件。进入3级警戒等同是接近战争的边缘。
-
-美国及乌克兰正严肃看待俄罗斯即将发动的侵略战争，普京的下一步行动将决定许多无辜民众的生命。
-
-参考来源：
-
-[US defense readiness increased to Cuba crisis level due to Ukraine](https://www.uniindia.com/story/US-defense-readiness-increased-to-Cuban-crisis-level-due-to-Ukraine)
-
-[Defcon Level Warning System](https://www.defconlevel.com/)
-
-[烏克蘭將宣布進入緊急狀態 徵召18至60歲預備役軍人](https://www.cna.com.tw/news/aopl/202202230306.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-62.jpg)
-
-编辑/校对/发稿：兰兰
+发稿：谐趣园
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-78.png)
-
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
