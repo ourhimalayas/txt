@@ -2,27 +2,37 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月24日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2069396/)
+## 文•贵天成——文贵先生谈孟建柱（六）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2069519/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2-3.png)
+整理：等风来
+编辑：Kelly
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/10-35.png)图片来源：雅典娜设计组（614）
 
 
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月24日晚](https://gnews.org/zh-hans/2061728/)
+郭文贵先生**2017**年**4**月**27**日
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+四月底，我们从哈尔滨开着车到北京，当时车上有一位军队的老领导，还有几个哈尔滨过去的文革主任，造反主任、造反派的头儿坐一个车上。一路上他给我们讲这个革命历史，讲到文化大革命。这一路上经历了很多的事情，在沈阳、锦州，包括在厄沟帮子吃烧鸡的时候，也发生了很多的冲突，都是支持学生的，在艺人当中发生冲突。到了北京，然后从北京我们就开车先到了河南郑州，又到了这个阜阳，后来就发生了我弟弟的事情。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+很多人捐钱，那个时候、那个情景简直是太让人家激动了，就像是昨天一样。但是这些人，没有任何人今天把这当成一个功劳、当成一个炫耀的东西，我觉得没有人这么去做（的原因是）大多数人都（认为自己）是做了本分内的事情。今天，因为我现在这个身份，偶然谈起引起大家的关注，这个非常理解，但是，希望大家能明白，它证明不了文贵的任何事情，既证明不了我伟大也证明不了我龌龊，证明不了我是骗子还是流氓，还是政治家，都没用，跟我现在爆料没关系。我还是想说那句话，今天，假如文贵就算是流氓、是骗子、是土匪也跟我今天爆料没关系，跟他们是不是盗国贼？是不是坑害了老百姓？是不是贪污腐败？是不是以银行贷款扶持大型寡头企业来偷取国家的财富、偷取老百姓辛辛苦苦存的钱？那是另外的一回事。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+我想再次声明，从昨天到现在，国内有朋友给我打电话说，当我第一次在VOA说出这两位书记“王岐山”的名字和“孟建柱”的这个名字，那两天里，中国网络上传的最多的不是我爆料这个新闻而是有关习近平主席贪污受贿850亿美元，当时我还当个笑话，觉得这怎么可能呢。然后昨天和前天又有领导跟我说，（习贪污受贿）这个传的很广，我刚才上网看了一下，我才明白了，大家可以看一看。
+
+我没开始爆料之前，这些年对我造谣诬蔑的都是什么人？国内就是胡舒立，国外就是博讯。博讯就是韦石和史诺，这两个人背后的老板是谁呢？大家都知道就是我说过的，是公安部一局。公安部、安全部的背后老板都是孟建柱书记，还有中纪委王岐山书记。所有的这些人的爆料都如出一辙，说当初我和周永康有关系、我和令计划有关系、我和郭伯雄有关系、我和张越有关系、我和马建副部长有关系，我和公安部的李东生当时也有关系。大家看到现在这些人很多都已经是判完刑，入完刑了，发现到目前为止，只有马建副部长的案情跟我有关系。那么，为什么这些人把我和他们扯在一起呢？
+
+资料来源：郭先生GTV和盖特直播视频
+
+发布：tianzhihuan
+
+**
+**更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

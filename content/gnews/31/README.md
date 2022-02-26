@@ -2,57 +2,43 @@
 ---
 
 
-## Steve Cortes认为中共入侵台湾的风险正在急剧上升
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2068947/)
+## 为什么通货膨胀会造成房产的价值的下跌(而不是上升)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2069087/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+编译：形而上
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+2 月22日财经顾问 Costantino Forgione 报道:
 
-2月25日，美国前总统川普2016和2020年竞选团队高级顾问Steve Cortes在参加Steve Bannon的[The War Room](https://warroom.org/)时，从经济的角度分析，中共入侵台湾的风险正在急剧上升。
+众所周知 ， 由于一句 “砖头永远不会背叛” 的座右铭，意大利人偏爱投资房产，这个信仰从上一辈传承下来的，在70、 80年代的恶性通货膨胀时期，他们看到房产的名义价格持续上涨，少于通胀的价格增长使他们忽略了实际价格的亏损。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/steve-cortes-taiwan-1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2476-edited.png)econopoly.ilsole24ore
 
-Steve Cortes是 1970年出生于美国伊利诺伊州（illioins）南芝加哥的哥伦比亚后裔，著名市场策略师、作家和电视节目主持人，Bloomberg Business, CNBC及Fox News评论员，Veracruz LLC.创始人。2016年和2020年，担任川普竞选团队顾问。
+这种错觉导致的结果是，50年来意大利人过度投资于房产，接近于50%的全国总财富(10000亿中的大约5000亿)。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/E2Qh5AeWQAIz6rV.jpg)
+由于通货膨胀再次偷偷开始，而且达到了不可忽视的程度，意大利人再一次想把钱投资到房产中以保护自己的财富受到通胀风暴的影响。
 
-Steve Cortes在班农节目中说，由于白宫有一个软弱的领导人，西方现在甚至不愿意对莫斯科（入侵乌克兰）采取严肃的行动，中共和俄罗斯这个邪恶轴心的兴起，中共内部越来越有底气可以在台湾采取行动。中共进攻台湾的时机可能已经成熟。
+这将可能是个严重的错误，不能重蹈覆辙。
 
-市场方面，台湾半导体（Taiwan Semiconductor Mfg. Co. Ltd.，台积电）是世界上最大的公司之一，市值5000亿美元，员工50,000人，绝对是美国和全世界的芯片生产中心。
+各大中央银行欧洲和美国的通胀率目标水平约为2%，而这次的通胀已经在美国达到7.5%，欧洲5%，意大利4.8%：到了一个无法接受的地步，而且没有丝毫放慢迹象。如果能源价格再次上涨，最近的国际政治版图的变化会使其更为恶化。
 
-台积电的股价自1月14日以来的五个星期，正式进入熊市，由当时的最高点145美元下跌到110美元，昨天甚至下探至全年最低点104美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2478-edited.png)econopoly.ilsole24ore
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-26_17-00-55.png)
+这次的通胀似乎远不如预期“短暂”，并向各国央银敲响了警钟，进而各大央行决定调高利息，也结束了2009年来的 “免费货币” 时代。
 
-Steve Cortes认为，台湾半导体绝对是一个风向标，告诉我们中共入侵台湾的风险正在急剧上升，一旦台湾开战，乌克兰局势就显得平淡无奇了，台湾将成为全世界关注的热点。
+在未来几年再没有人去投资买房产，所以价格会慢慢的下降，加上如果政府推动执行财产税，个人不动产，银行账户等将被毫无阻力的袭击，更不要忘了未来的房产重审核会让人们雪上加霜。
 
-在俄罗斯入侵乌克兰之后，美国总统拜登前天宣布，制裁4 家俄罗斯银行，但不会制裁俄罗斯石油，甚至在三天前，拜登冻结了美国所有新的石油和天然气钻探项目。
+最后总结警告人们有多余的房产能卖就赶快卖趁现在来得及，别相信房产中介的忽悠。
 
-中共外交部在回答路透社记者“为应对欧盟和美国对俄罗斯实施的制裁，中方会增加采购俄罗斯石油吗？”提问时说，“我们一贯反对任何非法单边制裁。我们要求有关方在处理乌克兰问题和对俄关系时，不得损害中方和其他方面正当权益。中俄之间本着相互尊重、平等互利的精神开展正常的贸易合作。”
+评论：这和爆料革命、郭文贵先生所预警的一样，全世界法币超发，造成通货膨胀， 对人们的又一次财富洗劫已经开始
 
-翻译成人话就是，中共反对对俄罗斯制裁，无论国际社会如何制裁，中俄邪恶轴心不会改变，中共将一如既往的向俄爹输送利益！
+链接：【econopoly.ilsole24ore】[Perché l’inflazione farà crollare (e non salire) il valore della casa](https://www.econopoly.ilsole24ore.com/2022/02/22/casa-inflazione-tassi/?utm_term=Autofeed&amp;utm_medium=TWSole24Ore&amp;utm_source=Twitter#Echobox=1645547378)
 
-2月25日下午，习猪头同俄罗斯总统普京通电话，习太阳说，中共“根据乌克兰问题本身的是非曲直决定中方立场”，要“摒弃冷战思维”！看来习猪头真想打热战！
+* * *
 
-参考数据：
-
-[Steve Cortes Reveals Major Signal of Communist China’s Move on Taiwan (VIDEO)](https://www.thegatewaypundit.com/2022/02/steve-cortes-reveals-major-signal-communist-chinas-move-taiwan-video/)
-
-[习近平同俄罗斯总统普京通电话](https://www.mfa.gov.cn/zyxw/202202/t20220225_10645684.shtml)
-
-[2022年2月25日外交部发言人汪文斌主持例行记者会](https://www.mfa.gov.cn/fyrbt_673021/202202/t20220225_10645686.shtml)
-
-[俄罗斯精锐近卫军杀进乌克兰首都基辅！中国撂下一句狠话！](https://www.163.com/dy/article/H14R7EN80552FDOB.html)
-
-[Taiwan Semiconductor Mfg. Co. Ltd.](https://www.tsmc.com/english)
-
-[Steve Cortes Biograph & Age, Wiki, Height, Weight, Girlfriend, Family & More](https://www.marathi.tv/political-analyst/steve-cortes/)
-
-[Steve Cortes CNN, CNBC, Wiki, Bio, Age, Birth Place, Wife, Kids, Trump, Salary and Net Worth](https://www.wiki.ng/en/wiki/steve-cortes-cnn-cnbc-wiki-bio-age-birth-place-wife-kids-trump-salary-and-net-worth-480614)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+审核：文乐
+校对：阿伯塔
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

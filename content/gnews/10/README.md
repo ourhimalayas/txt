@@ -2,29 +2,12 @@
 ---
 
 
-## 英国对五家俄罗斯银行和三名 &#8220;高净值 &#8220;俄罗斯人实施制裁
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2069670/)
+## “为了阻止习入侵台湾，美国必须对俄罗斯采取强硬立场”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2069819/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture2-9.png)
+02/24/2022 美国参议员汤姆·科顿：我们要立刻对俄罗斯采取强硬态度的重要原因就是习近平正在观察美国和欧洲盟友会做什么。我们的总统要和欧洲伙伴们一起将俄罗斯从全球银行间支付系统也就是SWIFT系统中排除掉。
 
-图片来自原文
-
-2月22日早些时候，俄罗斯总统弗拉基米尔-普京（Vladimir Putin）承认乌克兰东部非政府控制的领土为独立领土，然后立即派遣俄罗斯军队占领乌克兰领土。
-
-2月22日早些时候，德国总理奥拉夫-肖尔茨（Olaf Scholz）表示，已经暂停了俄罗斯北溪-2号管道的认证程序，有效地阻止了它的运营。
-
-2月22日，英国首相鲍里斯-约翰逊（Boris Johnson）在英国议会下议院发言时宣布，俄罗斯Rossiayaz银行、IS银行、General银行、Promsvyaz银行和黑海银行将受到制裁。
-
-限制性措施还将影响根纳季-季姆琴科（Gennady Timchenko）、伊戈尔-罗滕伯格（Igor Rotenberg）和鲍里斯-罗滕伯格（Boris Rotenberg），他们都拥有 “非常高的个人净资产”。
-
-约翰逊说，他们在英国持有的任何资产都将被冻结，而且他们将被禁止在英国旅行。此外，所有英国个人和实体将被禁止与这些人做生意。
-
-根据首相的说法，这是 “第一批”，如果普京进一步进入乌克兰，进一步的制裁将随之而来。
-
-新闻来源链接：[https://english.nv.ua/nation/russia-may-build-military-bases-in-republics-in-donbas-under-friendship-agreement-50218821.html](https://english.nv.ua/nation/russia-may-build-military-bases-in-republics-in-donbas-under-friendship-agreement-50218821.html)
-
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

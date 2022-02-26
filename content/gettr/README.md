@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/26/2022 1:19 PM (UTC)`
+
+2022年2月26日 《文贵大直播—GEDU专场》
+![img](https://media.gettr.com/group45/origin/2022/02/26/12/eebbcb7f-ac02-bb5e-b2a0-a4f228e409c0/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 2/26/2022 12:59 PM (UTC)`
 
 Mr. Bannon 100% agree that the Wall Street has provided the capital from the pension funds of the American deplorable to the CCP through institutions like PAG Group. Miles is under constant attacks by the CCP's people in the US capital market, which is so ridiculous.<br/><br/>Miles’ bankruptcy will become international news, will be beyond finance and markets, and will have geopolitical implications. Miles has never wavered in support of the NFSC, the Whistleblower Movement, the Rule of Law Foundation & Society. Miles is the greatest defender of LaoBaixing in the world.<br/><br/>班农先生100%同意郭先生的观点，即华尔街向中共提供资本，这些资本来源于美国老百姓的养老基金，通过PAG集团这样的中共间谍机构源源不断地输送给中共。郭先生本人受到中共在美国资本市场里安插的人的持续攻击，这已经到了荒谬的地步。<br/><br/>郭先生的个人破产将成为国际新闻，将超越金融和市场层面，且会有地缘政治的影响。他从未动摇过对新中国联邦、爆料革命和法治基金、法治社会的支持，他是这个世界上老百姓最伟大的捍卫者。
@@ -150,13 +157,6 @@ Mr. Bannon 100% agree that the Wall Street has provided the capital from the pen
 
 2/23/2022 Miles Guo: The US is the big strategic winner, letting the world know they can't live without the US. Putin has brought down the world's finance and economy at a minimal cost, and Xi the Sun thinks he can take this opportunity to invade Taiwan. However, it is the Chinese people who will unfortunately have to pay a huge price.<br/><br/>2/23/2022 文贵直播：美国是战略大赢家，让全世界知道他们离不开美国；普京用极小的成本便征服了全球的金融和经济，习太阳自以为能借此机会打台湾，但中国人却将不幸为此付出巨大代价<br/>
 ![img](https://media.gettr.com/group12/getter/2022/02/24/23/7098b2d1-ecf4-6bb3-dabb-448fc5f7ffe4/out.jpg)
-
----
-
-`@miles 2/24/2022 11:04 PM (UTC)`
-
-2/23/2022 Miles Guo: Putin's tactics and tricks targeting Ukraine will eventually lead to sanctions against Communist China by Europe and the US citing the reason that the CCP supports Russia. This game was started by Putin and Xi, and it will end with them. The tragedy is that the Chinese people will pay for everything in the end.<br/><br/>2/23/2022 文贵直播：普京在乌克兰玩弄的招数将最终将导致欧美以中共支持俄罗斯为理由制裁中共国；这场游戏源于普京和习，也将亡于普京和习；悲剧的是，最后一切都将由中国人买单<br/>
-![img](https://media.gettr.com/group12/getter/2022/02/24/23/3f071a75-861b-a204-4f7c-1f1f619b1b20/out.jpg)
 
 ---
 
