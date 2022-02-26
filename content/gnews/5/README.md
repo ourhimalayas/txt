@@ -2,35 +2,22 @@
 ---
 
 
-## 有声｜美欧加大对俄制裁力度 直接针对普京
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2069261/)
+## 日本政府认定俄军事入侵系“侵略”以震慑中共国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2069359/)
 
-By:**秘翻新闻**
+撰稿：东京樱花团｜麗子
 
-**2022-02-26**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/226_3-scaled.jpg)图片来源 路透社
-据美联社2月25日报导，美国和欧洲盟友周五表示，正在加强对俄罗斯入侵乌克兰的制裁，增加直接针对普京总统及其外交部长的措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/日本政府认定俄军事入侵系侵略以震慑中共国.png)
 
-白宫表示，美国正在准备对普京和俄外交部长拉夫罗夫、国防部长绍伊古实施制裁，可能包括旅行禁令。这一消息是在欧盟宣布打算冻结普京的资产之后几个小时宣布的，同时英国首相约翰逊称英国也将制裁普京和拉夫罗夫。
+2月26日据日媒报道，日本政府已将俄罗斯入侵乌克兰的行为认定为“侵略”。26日，日本和美国外长通电话后，面对记者采访，外长林芳正多次措辞用“俄军侵略”，表明了对俄罗斯的强硬立场。多位政府官员称，这一决定是基于以下事实：（1）该事件符合联合国以往决议中对“侵略”的定义；（2）包括美国在内的多个国家都将该事件描述为“侵略”。日方将与七国集团步调一致，强烈谴责俄罗斯的侵略行径。旨在威慑试图武力统一台湾的中共国。
 
-美国周五的措施阻止了普京和拉夫罗夫接触美国官员可以接触到的任何资产，并禁止美国境内任何人与他们做生意。此次针对国家元首的制裁极为罕见。
+据外务省称，林外长25日晚与乌克兰外长电话会谈时也将俄入侵行为描述为“侵略”。
 
-欧盟官员们表示，仍有可能实施进一步的制裁，包括将俄罗斯赶出全球金融交易的主要系统SWIFT。
+信息来源：[**日本政府、ロシア軍「侵略」認定  米と連携し非難、中国けん制も**](https://news.yahoo.co.jp/articles/4a5c12b8976ec44e2ea38665fcb0f6ec44a0e2fb)
 
-当亚洲大多数国家团结起来支持乌克兰时，中共国却继续谴责对俄罗斯的制裁，并指责美国及其盟国对莫斯科进行挑衅，同时中共加大与俄罗斯的贸易，为其提供经济支持。
-
-(秘翻新闻 文洋 编译报导)
-
-链接
-
-[https://apnews.com/article/russia-ukraine-vladimir-putin-business-china-asia-b57700241d650315db1eb0e8516ce2d6](https://apnews.com/article/russia-ukraine-vladimir-putin-business-china-asia-b57700241d650315db1eb0e8516ce2d6)
-
-[https://www.reuters.com/world/us-expected-impose-sanctions-russias-putin-soon-friday-cnn-2022-02-25/](https://www.reuters.com/world/us-expected-impose-sanctions-russias-putin-soon-friday-cnn-2022-02-25/)
-
-发布 : 文橙
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

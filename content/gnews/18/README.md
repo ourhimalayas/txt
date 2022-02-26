@@ -2,39 +2,41 @@
 ---
 
 
-## 日本去年出生率历史最低而死亡率创历史最高
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2069092/)
+## 法头号网球明星因接种中共病毒疫苗引起健康问题 被迫退赛
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2069215/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-59.png)图片来自网络
-日媒《NHK》近日报道，去年，厚生劳动省发现，日本出生的新生儿84万2897人，创下历史新低。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-27.png)
 
-根据厚生劳动省的数据，去年出生的儿童人数为842897人，这是一个初步数字。
+图片来自原文
 
-相对前年人数减少了 29786 人，即 3.4%，这是自 1902 年收集统计数据以来的最低水平。
+法国头号网球明星盖尔-蒙菲尔斯(Gael Monfils)在接种中共病毒（COVID-19）疫苗第三针后引起健康问题，将无法参加下周的戴维斯杯。
 
-出生人数连续第六年下降。
+盖尔-蒙菲尔斯目前世界网球排名第25位，他在社交媒体上发表的一份简短声明中宣布了这一消息，在声明中解释了自己最近的健康状况。
 
-另外一方面去年日本死亡人数为145万2289人，比前年增加67745人，是战后最多的。
+蒙菲尔斯在本赛季有一个强劲的开局，在阿德莱德赢得了他两年来的第一个冠军，然后进入澳大利亚公开赛的四分之一决赛。然而，他最后一次参加比赛是1月底在他的祖国法国举行的蒙彼利埃公开赛，在这次比赛中，他以6-1，6-2的比分击败了世界排名第83位的米卡尔-伊默尔，令人震惊的是周二蒙菲尔斯在社交媒体上写道，可能因接种了第三针的中共病毒疫苗，身体出现了问题。我决定听医生的建议——休息。很不幸，将无法参加下周的戴维斯杯比赛。希望能够返回美国。
 
-结果，人口数量下降，即出生人数减去死亡人数，为 609392 人，比成年人人数多 97531 人。
+蒙菲尔斯已经成为第二名因接种中共病毒（COVID）疫苗导致不良反应，而被迫离开球场的法国网球运动员。
 
-此外，结婚人数为514242人，为战后最低，比前年结婚人数少23341人。
+去年8月，网球明星杰里米-查迪（Jeremy Chardy）接种辉瑞公司的中共病毒疫苗，9月出现了严重的不良反应。
 
-有18万7854对夫妇离婚，比前年减少了8787对。
+自去年美国公开赛以来，查迪没有打过一场比赛，现在的世界排名是第138位（在查迪接种中共病毒疫苗之前排名第73位）。
 
-根据厚生劳动省的说法，“当新型冠状病毒的感染开始蔓延时，而死亡人数的增加也反映了新冠感染扩大的影响。”
+备注：
 
-这样的数据固然有日本自身社会思潮的一些体现，如少子化等。但这个时间点很难让人不向新冠疫苗和新冠病毒上联想，日本近八成民众完全接种了新冠疫苗，而且全国累计已有四百八十万人感染了新冠病毒。新冠疫苗和病毒对人生殖系统的损害，以及其副作用会直接或间接导致人死亡的案例已经屡见不鲜，而这背后一切的罪魁祸首就是中共。为了您和家人的健康，请做好病毒防护并立刻停止接种新冠疫苗。
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- Covid疫苗本身就是随时爆发的病毒
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
 
-参考链接：
 
-[https://www3.nhk.or.jp/news/html/20220225/k10013500901000.html?utm\_int=all\_side\_ranking-social\_002](https://www3.nhk.or.jp/news/html/20220225/k10013500901000.html?utm_int=all_side_ranking-social_002)
+新闻来源链接：
 
-[https://www.worldometers.info/coronavirus/country/japan/](https://www.worldometers.info/coronavirus/country/japan/)
+[https://thecovidworld.com/gael-monfils-french-no-1-tennis-star-pulls-out-after-health-problems-caused-by-covid-19-booster-shot/](https://thecovidworld.com/gael-monfils-french-no-1-tennis-star-pulls-out-after-health-problems-caused-by-covid-19-booster-shot/)
 
-[https://ourworldindata.org/covid-vaccinations](https://ourworldindata.org/covid-vaccinations)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+本文作者：Rebecca (一切心皆不可得！)
+上传排版：Hong
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
