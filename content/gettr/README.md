@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/26/2022 11:17 PM (UTC)`
+
+2/26/2022 Miles Guo: The education spending and coverage claimed by the CCP are all false, and the education in Communist China belongs to the privileged class and is the root of corruption, with teachers being brainwashed and reduced to tools of the CCP. Education is a bright light in the darkness, and its goal is to set role models for children.<br/><br/>2/26/2022 文贵直播：中共宣称的教育经费和覆盖率全是假的，中共国的教育属于特权阶级，是腐败的根源，教师被洗脑沦为工具；教育是一盏黑暗中的明灯，其目的是给孩子树立榜样<br/>
+![img](https://media.gettr.com/group36/getter/2022/02/26/23/74985589-47cd-11a3-f21c-2cb3bdf0706d/out.jpg)
+
+---
+
 `@miles 2/26/2022 11:01 PM (UTC)`
 
 2/26/2022 Miles Guo: The goal of GEDU education in the New Federal State of China is to unbind. Education cannot be kidnapped by politics and money; a series of measures should be taken to create a personalized educational environment that is conducive to student growth.<br/><br/>2/26/2022 文贵直播：新中国联邦的GEDU教育的目标就是松绑；教育不能被政治和金钱绑架；要通过一系列的措施打造个性化的有利于学生成长的教育环境。<br/>
@@ -155,13 +162,6 @@ Mr. Bannon 100% agree that the Wall Street has provided the capital from the pen
 
 2/25/2022 Miles Guo: The CCP under the leadership of Xi Jinping and Wang Qishan is attempting to destroy the world order on the international stage by working with Putin. This will be the rivalry between the landlocked civilizations/dictatorship and maritime civilizations/democracy and rule of law. Human beings will experience political and economic restructuring, and the Way of Righteousness will eventually become the light rays of humanity in the darkness.<br/><br/>2/25/2022 文贵直播：习王带领的中共妄图在国际上联手普京掀桌子，这是大陆文明/独裁和海洋文明/民主法治的较量，人类将经历政治、经济大重组，而正道主义终会成为人类在黑暗中的光芒<br/>
 ![img](https://media.gettr.com/group7/getter/2022/02/26/03/7a8fa1b0-07e7-bb91-0940-5b48d040d057/out.jpg)
-
----
-
-`@miles 2/26/2022 2:29 AM (UTC)`
-
-2月25号：共产党以完了…… 决定一个人能走多远的因素往往不是智商，不是情商，而是性格。我们中共国的教育系统，可以培养性格吗？可以训练自制力和毅力吗？<br/>如果你见一个孩子“能很投入地一直做一件事很久”，这就是特殊能力。<br/>“向着长期的目标，坚持自己的激情，即便历经失败，依然能够坚持不懈地努力下去，这种品质就叫做坚毅。如果一个孩子从小就培养出扶弱济贫有勇气，有良知的人性教育，我们每个人面对的未来都将是美好的。明天上午8:30 G EDU教育．特殊专场直播。我们来谈新中国联邦的未来教育。
-![img](https://media.gettr.com/group29/getter/2022/02/26/02/f75daac6-0537-0f43-2d15-696f79bff827/1e303ae83e2d6b01b3ce442ea4f6a1a0.jpg)
 
 ---
 

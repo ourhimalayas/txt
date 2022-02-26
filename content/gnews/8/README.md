@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦前所未有的伟大教育计划
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2071658/)
+## 我们新中国联邦教育要做什么
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2071796/)
 
 #### 視頻剪輯: WinterGuo ；開智則立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蝸牛 ；牛魔王
 視頻定位：BENJ1；WEI
