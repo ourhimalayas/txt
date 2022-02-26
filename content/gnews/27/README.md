@@ -2,25 +2,36 @@
 ---
 
 
-## 中共攻台的3个可能战略
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2070617/)
+## 温哥华发生两名华人遇害事件
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070637/)
 
-习近平已把潜水艇部队，布置在了台海周围。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月22日，据加拿大媒体报道，温哥华警方于20日在西区第八大道附近发现了两名女性死者。经调查后发现，50岁的吴淑敏和39岁的孙颖颖死于枪击事故。
 
-中共攻台的3个可能战略：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-5.jpeg)
 
-1:根据乌克兰的形式走。如利用台胞代表，在京签署对台紧急法案，宣称台湾面临台独危机，中共“名正言顺”出兵平乱。
+据悉，当天早晨8点，邻居在一辆白色的宝马SUV内发现了这两名华裔女性死者。前一天夜里，附近的其他住户也表示，听见了几声类似烟花的巨响。
 
-2.围而不打，孤立台湾。等着全球经济奔溃的同时，饿死台湾。
+资料显示，孙颖颖生前曾担任过中共国女足运动员前锋，其先后效力于大连实德女足和天津汇森女足。
 
-3.短时间内，迅速占岛。
+温哥华警方表示，该案件的事发地是温哥华治安最好的社区，警方目前怀疑这是一起有预谋的案件，并且担心可能还有更多的受害者。而该社区的居民则提到，这一案件令整个社区都处在惶恐之中。
 
-围而不打，的可能性很高。中共知道美欧联盟迟早会对其动武，挟持台湾，可以做交易谈条件。台湾的事必将有个了结，要不中共亡，要不台湾灭。
+参考链接：[Vancouver police investigate double homicide in Point Gre](https://vancouversun.com/news/crime/vancouver-police-on-scene-of-serious-incident-in-point-grey)y
 
-**视频来源: 20220225—郭先生大直播**
-**视频制作: 文星光**
-**文案:文星光，梦田**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
+总编：Irene木木
+编辑：Jack Li文阳
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

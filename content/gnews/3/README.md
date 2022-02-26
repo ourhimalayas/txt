@@ -2,21 +2,30 @@
 ---
 
 
-## 【转】2/25日止，俄乌开战要闻简报实况
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2071031/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月26日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2071104/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16459010461.png)
-俄国的装甲车被乌克兰美制标凖反装甲导弹击毁134辆，坦克被击毁64辆，战机被击落八架，无人机被摧毁6架，被俘飞行员一批（数字待确认）…
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-2.png)
 
-乌克兰国防部宣布，俄国的闪电战失败。各前线正在激战，俄方在乌克兰被俘人员超500人以上，从目前的态势看，乌克兰只有空军比较弱于俄方，其它方面表现非常出色，包括特种作战等，令侵略者俄方没有占到一丝便宜、俄方尴尬的战果及乌方的顽强抗战消息有待更新。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-26.png)
+文章仅代表作者本人观点，与Gnews无关
 
-乌克兰退役军人全部征召重新归属曾经的部队。
+视频参看：
+[2022.02.26早 《NFSC新闻》](https://gtv.org/video/id=621a2b1208ba8a07b1a3edd2)
+[2022.02.26早 G|TV《新闻访谈》](https://gtv.org/video/id=621a32f008ba8a07b1a3fa0d)
 
-在波兰方向，美欧源源不断的现代化装备运往乌克兰境内，重挫了普丁出兵的预期。欧盟国家全线对俄国航空禁飞，俄国方面从现开始，无法避免遭整个欧洲群殴的态势、美欧两个方向将给俄国史无前例的制裁！制裁方面包括制裁俄国推动战争的每个人，包括冻结了俄国国有银行，金融等在美欧境内的所有资产。也包括与俄罗斯明暗合作，支持侵略的任何国家也将波及，将迎来美欧最严励和毁灭性的制裁。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-若北约任何国家受到攻击，北约与美国即时正式出手，俄国怎么样收埸应该是凶多吉少。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-5.png)
 
-俄国境内到目前为止已经有52个州举行了大规模反战游行，制裁方面 美欧一刻不止将継续谋划出台针对俄方的严酷方案！
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

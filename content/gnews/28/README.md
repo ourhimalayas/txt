@@ -2,32 +2,34 @@
 ---
 
 
-## 中日财经爆┃“作恶”被官司缠身！脸书裁撤核心技术团队
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070610/)
+## 美国驱逐俄驻美第二号外交官
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070622/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/04-2.png)
-[图片来源](https://www.google.com.hk/imgres?imgurl=https://v2.cimg.co/news/63547/35234/snapshot.jpg&amp;imgrefurl=https://thebittimes.com/metaverse-nfts-and-gaming-token-prices-soar-as-facebook-goes-meta-tbt5490.html&amp;tbnid=P77GUyLsgQBbAM&amp;vet=12ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ..i&amp;docid=vljlOet_P-mO9M&amp;w=1012&amp;h=674&amp;q=%20Meta%20%20metaverse&amp;ved=2ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ)
+作者：首尔天池农场—追着曙光跑
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月24日，据相关媒体报道，美国国务院发言人当天发布声明表示，美国将驱逐俄罗斯驻美国大使馆的第二号外交官，用以回击俄罗斯本月驱逐美国驻莫斯科副大使的做法。
 
-近日，有媒体报道，全球最大社交媒体公司脸书（Meta Platforms）已经解散了一个由300多名员工组成的团队，这些员工为该公司的AR和VR设备开发操作系统。鉴于该系统是元宇宙的关键技术，这让本已官司缠身的脸书前景更加黯然。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-10.jpeg)
 
-而1月5日，Meta曾回应“停止开发VR/AR系统”传闻称，其并未计划停止“为VR/AR设备开发操作系统”。
+国务院的一位高级官员指出，此举并不属于美国制裁俄罗斯入侵乌克兰行动的一部分，而是华盛顿与莫斯科之间长期有关大使馆人员配备争端中的一环。
 
-去年10月28日，脸书由FaceBook更名为Meta，宣布全面进军元宇宙(metaverse)。而脸书更名的时机，正面临用户和监管广泛的批评，并深陷“滥用管理权”、“侵犯用户隐私”等多起重大法律诉讼。
+据了解，本月早些时候，莫斯科当局无端要求美国驻俄罗斯副大使巴特-戈尔曼离境。对此，该高级官员强调，由于目前乌克兰紧张的局势，美俄关系近期极具下降，虽然美国仍然认为双方保持外交可以有助于两国之间的沟通，但美国绝不允许俄罗斯随意驱逐美国驻当地的外交代表。
 
-自2020年初中共病毒（新冠病毒Covid-19）肆虐全球开始，脸书与推特、谷歌等社交媒体巨头，与中共为首的世界邪恶势力勾兑、为虎作伥，特别是滥用平台和数据管理的权力，对中共病毒和疫苗真相信息进行恶意压制，为强制疫苗政策推波助澜，给全人类带来重大灾难。
+参考链接：[US expels Russia’s No. 2 diplomat at Washington](https://apnews.com/article/russia-ukraine-europe-russia-united-states-moscow-8630ae5a70ce81ae13feded78b9d9a0b)
 
-郭文贵先生多次断言，脸书、推特等社交媒体必将为其作恶付出沉重代价，甚至被诉讼至破产或消失。而脸书裁撤核心技术团队是值得关注的重要标志性事件。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-信息来源：
+总编：Irene木木
+编辑：Jack Li文阳
+校正/发稿：谐趣园
 
-[Meta解散AR和VR操作系统开发团队](https://www.163.com/dy/article/H138LTGF05198CJN.html)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
