@@ -2,28 +2,47 @@
 ---
 
 
-## 日本全国日增中共病毒感染人数超6.5万
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2066968/)
+## 俄对乌发动全面军事行动，疼在中共
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2067182/)
 
-撰稿：东京樱花团/向海
+作者：首尔天池农场—追着曙光跑
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/日本全国日增中共病毒感染人数超6.5万.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fvid.alarabiya.net%2Fimages%2F2020%2F11%2F19%2F49c143ec-03d4-45d7-9ae8-07e95d624909%2F49c143ec-03d4-45d7-9ae8-07e95d624909_16x9_1200x676.JPG%3Fwidth%3D1138&amp;imgrefurl=https%3A%2F%2Fenglish.alarabiya.net%2)
 
-25日，日本有６万５６６８人新感染冠状病毒病例。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-71.png)
+据联合早报2月24日的报道，乌克兰外长库列巴称，乌克兰各地的军事设施都遭到俄罗斯的火箭炮的袭击。对于俄罗斯侵略性的攻击，乌克兰将捍卫国土安全直到胜利。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/26-.jpg)
+美、英、法等国驻联合国大使都谴责俄罗斯，在联合国寻求和平之际，俄罗斯却选择了战争。
 
-东京都政府昨天公布的新感染人数为1万1125人。 昨天的监测会议提供了对新感染的人数一直停留在高水平的最新分析，称感染状況“面临长期危机”。
+郭文贵先生在2月23日的大直播中指出，普京会又打又不打，美国知道普京的战术，欧洲和美国到最后都会认为这场战争的幕后凶手是中共。之后会对中共进行政治、经济和金融等一系列制裁。这场源于习太阳和普大帝，灭于习太阳和普大帝的战争，最后都会由中共国人买单！
 
-都道府县分別的公告表示岩手县为过去最多。 大阪、神奈川和爱知是仅次于东京的第二多的城市，全国感染人数为６万５６６８人。
+参考来源：
 
-全国住院感染者中，重症1503人。 死亡人数方面，新增279人，连续四天超过200人。
+[乌克兰外长：普京发动全面军事行动](https://www.zaobao.com.sg/realtime/world/story20220224-1245983)
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-59.jpg)
 
-[新型コロナ きのうの全国の感染者６万５６６８人](https://news.yahoo.co.jp/articles/f00250ff0820be39f25559d46de65b8a708a119f)
+**更多资讯，更多关注**
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-72.png)
+
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

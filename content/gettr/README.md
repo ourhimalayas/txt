@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/26/2022 3:29 AM (UTC)`
+
+2/25/2022 Miles Guo: Humanity has never experienced a time as dark as the year of 2022, and we will be living in turmoil for a long time. Xi Jinping and Putin had already started to make their evil plans as early as 2010. The trilateral relationship of the CCP, Russia, and the US has been swaying the course of humanity. The world order will undergo a great restructuring!<br/><br/>2/25/2022 文贵直播：人类从未像2022年如此黑暗，我们将面临着长期的乱世；习近平和普京从2010年就开始制定邪恶计划；中美俄的三角关系一直在影响着人类，世界秩序将发生大重组！<br/>
+![img](https://media.gettr.com/group16/getter/2022/02/26/03/3e2304d6-7adc-cad0-6a5d-35a85e8efc19/out.jpg)
+
+---
+
 `@miles 2/26/2022 3:22 AM (UTC)`
 
 2/25/2022 Miles Guo: The CCP under the leadership of Xi Jinping and Wang Qishan is attempting to destroy the world order on the international stage by working with Putin. This will be the rivalry between the landlocked civilizations/dictatorship and maritime civilizations/democracy and rule of law. Human beings will experience political and economic restructuring, and the Way of Righteousness will eventually become the light rays of humanity in the darkness.<br/><br/>2/25/2022 文贵直播：习王带领的中共妄图在国际上联手普京掀桌子，这是大陆文明/独裁和海洋文明/民主法治的较量，人类将经历政治、经济大重组，而正道主义终会成为人类在黑暗中的光芒<br/>
@@ -146,13 +153,6 @@
 
 2/23/2022 Miles Guo: Peng Liyuan's cousin bought a trafficked woman and made her his wife. Xi Jinping and Peng Liyuan know better than anyone else the miserable lives of the trafficked women in Communist China. All the world's most powerful and wealthy people envy the pleasure brought by the CCP’s highly centralized power. It is the CCP that has led the governments of various countries to go to extremes.<br/><br/>2/23/2022 文贵直播：彭丽媛的表哥买了拐卖女为妻，习近平和彭丽媛比任何人都清楚中国的被拐卖妇女的悲惨生活；世界有权有钱的人无不羡慕中共的高度集权带来的快乐，中共导致各国政府走向极端化<br/>
 ![img](https://media.gettr.com/group11/getter/2022/02/24/16/ddf56a78-b134-7c5c-2e4a-96042390610b/out.jpg)
-
----
-
-`@miles 2/24/2022 3:34 PM (UTC)`
-
-<br/>2月24号：尊敬的战友们好．世界被邪恶的共产党和魔鬼制造的战争所笼罩……7哥想说的话，都在下面的视频中了！😭😭😭😭😭😭😭😭😭😭
-![img](https://media.gettr.com/group35/getter/2022/02/24/15/b7e522a4-8cdf-9203-a42d-c12b2b5da44c/out.jpg)
 
 ---
 

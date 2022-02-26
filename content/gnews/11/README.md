@@ -2,26 +2,32 @@
 ---
 
 
-## 乌总统西装换军装 誓言保卫首都
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2066988/)
+## 郭先生解析中共病毒与疫苗的关系
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2067240/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/02/乌总统西装换军装-誓言保卫首都.jpg)
-[图片来源](https://www.ladbible.com/news/ukrainian-president-puts-on-military-uniform-to-fight-for-his-homeland-20220225)
+作者：日本方舟农场-Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在2月23日的大直播中解析了中共病毒、中共病毒疫苗以及中共正在策划的所谓针对疫苗副作用的药品之间的关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-25-下午10.14.11.png)
+郭先生将上述关系类比为墙内的贩毒团伙和缉毒团队之间的关系：尽管中共宣称其对毒品的打击力度非常强硬，但中共国内制毒、贩毒和缉毒的实际上是同一伙人，即都是中共的人。当中，未经中共许可私自制毒、贩毒的人会立刻被中共拿下，其毒品也会被中共一并私吞。也就是说，中共病毒、疫苗和疫苗解毒药品也遵循了这一模式。
 
-法新社报道，2月25日，乌克兰总统泽连斯基在首都基辅市中心发布一段自己拍摄的视频，誓言要保卫首都，防御俄罗斯的入侵。
+对此，郭先生预警道，只要中共不灭，这种模式就还将继续往复循环。另外，大家现阶段不能因为各国政府解封疫情限制，就对中共病毒放松警惕。特别是那些已经接种了两针以上中共病毒疫苗的人，他们非常容易感染那些能对大脑和神经造成永久伤害的奥密克戎毒株。
 
-泽连斯基身着绿色制服，与总理及参谋长等站在总统府前，说：“我们都在这里。军队在这里。市民在这里。我们是为了保卫我们的独立和国家留在这里。”
+参考链接：[2022年2月23日 文贵大直播](https://gtv.org/video/id=62162fe908ba8a07b1a1ea8a)
 
-这段视频表现了对来自俄罗斯总统普京压力的对抗。在莫斯科的一次电视讲话中，普京称泽连斯基政府是“恐怖分子”和“吸毒者和新纳粹分子的聚集地”，并呼吁乌克兰军队发动政变。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-信息来源：
+总编：Irene木木
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[ウクライナ大統領、首都防衛を宣言 自撮り動画公開](https://news.yahoo.co.jp/articles/81cfad1b88fdac3a6a9855b6e3eab6ef2362a0e2/images/000)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

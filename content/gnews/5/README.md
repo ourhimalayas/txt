@@ -2,22 +2,16 @@
 ---
 
 
-## 美英和欧盟宣布制裁普京 冻结资产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2067072/)
+## 安理会谴责俄罗斯决议案 中共国投弃权票
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2067296/)
 
 撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/安理会谴责俄罗斯决议案-中共国投弃权票.jpg)[图片来源](https://gnews.org/wp-admin/post-new.php#:~:text=Photos%3A%20Protesters%20around%20the%20world%20rally%20in%20support%20of%20Ukraine)
+联合国安理会25日就乌克兰局势举行会议，对安理会决议进行表决。谴责俄罗斯对乌克兰的军事入侵，并呼吁立即停止使用武力并撤军。美国和欧洲在内的11个国家对决议投了赞成票，安理会常任理事国的俄罗斯行使否决权，被否决。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/美英和欧盟宣布制裁普京-冻结资产.jpg)[图片来源](https://gnews.org/wp-admin/post-new.php#:~:text=Ukraine%20conflict%3A%20UK%20to%20impose%20sanctions%20on%20Russia%27s%20President%20Putin)
+中共国、印度和阿拉伯联合酋长国（UAE）投了弃权票。该决议草案由美国和阿尔巴尼亚起草，日本为共同提案国。
 
-美国和英国政府以及欧盟25日宣布，将对俄罗斯总统普京和外交部长拉夫罗夫实施制裁。
-
-国家元首受到制裁的情况并不常见。但随着乌克兰局势的恶化，有人呼吁必须进行更强有力的制裁。
-
-据欧盟外交人士称，普京和拉夫罗夫在该地区的资产都将被冻结。美国总统发言人萨基说，俄罗斯安全官员也将受到制裁。
-
-据欧盟外交和安全事务高级代表博雷利称，被欧盟制裁的其它国家领导人只有叙利亚总统阿萨德和白俄罗斯总统卢卡申科。
-
-信息源：[米欧、プーチン氏らの資産凍結　国家元首への制裁は異例](text)
+信息源：[ロシアが拒否権行使、安保理の非難決議案は否決…中国・インドなど３か国棄権](text=%E)
 
 *编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/老黑*
