@@ -2,13 +2,17 @@
 ---
 
 
-## 七哥金句：新中国联邦禁止做的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2066613/)
+## 20220224文贵大直播：紧急直播的三个内容
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2066645/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/0225七哥金句戰爭-01.jpg)
-整理：雅典娜农场
-发布：枫叶红了
+作者:东京樱花团小视频组
 
+校对：东京樱花团小视频组
+
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,23 +2,24 @@
 ---
 
 
-## 北京冬奥会观众有史以来最少
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2065636/)
+## 阿奎罗因心脏出了问题不能再踢球——是由新冠疫苗还是新冠病毒引起的？
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2065640/)
 
-采编/编译撰稿：薇文                      校对编辑：硫酸羟氯喹64
+#### 翻译                   意大利达芬奇农场                小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-25-alle-14.59.18.png)图片来源：eventiavversinews.it
+最近退役的前阿根廷王牌球星说：“我心脏出了问题，很突然，也很奇怪。没人知道是怎么回事，无法确定是因为新冠疫苗还是新冠病毒引起的。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/NBCBeijingWinterOlympics1.jpg)图片来源： breitbart
+退役两个月后，塞尔希奥•阿奎罗就一直被这个悬而未决的问题折磨着。是什么导致从未出现过的心律失常的这位曼彻斯特和巴塞罗那前锋剑指新冠疫苗？
 
+赛尔希奥•阿奎罗将参加卡塔尔世界杯：只差正式宣布，但他本人宣布了这一消息，显然不是作为一名球员。心脏问题迫使他退役后，他仍在阿根廷主帅斯卡罗尼的工作人员名单中，任务还有待确定。这位33岁的前锋在挂靴后正在慢慢地适应新生活，尽管他没有想到10月30日巴塞罗那队和阿拉维斯队比赛期间发生的心律失常对他的正常生活会产生如此之久的影响。
 
-美国[布莱巴特新闻] 2月23日报道称，本次在中共国举行的种族灭绝冬奥会的观众数量是有史以来最少的。
+他几天前说：“ 有时我想知道我是否还能再次参加比赛，我只是觉得我的心脏不能正常运作。”简而言之，他是现代足坛最厉害的前锋之一，他创造了曼彻斯特队的历史。他刚转到巴塞罗那队继续踢球，他甚至被禁止参加业余活动，至少目前是这样。他说：“ 如果现在我试着踢球，我会喘不过气来”。
 
-据[美国广播公司]的最新数据，比较黄金时段平均收视率，2018年韩国平昌冬奥会约为2000万，而北京冬奥会仅约1000万。去年因疫情被推迟的东京奥运会，其收视率也超过1500万。
+对于一个处于职业生涯巅峰的运动员来说，这一打击让他很难接受；如果仍然没有人能够告诉阿奎罗为什么他的心脏出了问题，那就更难了。宣布退役两个月之后，他不排除他的心脏是受了新冠疫苗或者是新冠病毒的影响。阿奎罗说“就是为了了解真相”，他会继续把事情搞明白。
 
-报道称，中共政权的种族灭绝和反人类罪行所导致各国政府的外交抵制，中共国内“新冠病毒”的肆虐，繁琐苛刻的防疫检测措施以及人身安全和自由的无保障等因素，都是本次冬奥会观众人数历史最低的主要原因。
+原文链接：[https://www.eventiavversinews.it/aguero-non-puo-piu-giocare-per-problemi-al-cuore-non-posso-piu-giocare-colpa-del-covid-o-vaccino/](https://www.eventiavversinews.it/aguero-non-puo-piu-giocare-per-problemi-al-cuore-non-posso-piu-giocare-colpa-del-covid-o-vaccino/)
 
-发稿：文明(添草灭共)
-
-原文链接： [China’s Genocide Games Drew the Smallest Olympics TV Audience in Recorded History](https://www.breitbart.com/entertainment/2022/02/23/chinas-genocide-games-drew-the-smallest-olympics-tv-audience-in-recorded-history/)
+编辑、上传： Xiao  baige
 
  
 
