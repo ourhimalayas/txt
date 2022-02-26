@@ -2,56 +2,76 @@
 ---
 
 
-## Steve Cortes认为中共入侵台湾的风险正在急剧上升
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2068947/)
+## 加拿大银行业被世界经济论坛批准领导创造数字身份证（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2069020/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+编译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-26-112435.jpg)图片来源：theconservativetreehouse.com
 
-2月25日，美国前总统川普2016和2020年竞选团队高级顾问Steve Cortes在参加Steve Bannon的[The War Room](https://warroom.org/)时，从经济的角度分析，中共入侵台湾的风险正在急剧上升。
+Beta测试正在各个国家进行，每个国家都有不同的观点和宪法限制，基于支配自由的的古老规则和法律。对于西方，或缺乏一个更好的词 “民主 “的前景，澳大利亚、新西兰、法国和欧洲的疫苗接种检查技术系统处于领先地位。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/steve-cortes-taiwan-1-1.jpg)
+纽约市也加入了疫苗检查流程，因为他们的城市现在要求疫苗接种进入所有私营企业。洛杉矶紧随其后。
 
-Steve Cortes是 1970年出生于美国伊利诺伊州（illioins）南芝加哥的哥伦比亚后裔，著名市场策略师、作家和电视节目主持人，Bloomberg Business, CNBC及Fox News评论员，Veracruz LLC.创始人。2016年和2020年，担任川普竞选团队顾问。
+澳大利亚的疫苗电子检查，本质上是手机二维码扫描符合接种疫苗要求公民的的程序。是的，有一个应用程序。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/E2Qh5AeWQAIz6rV.jpg)
+目前，疫苗状态扫描由快乐的合规工作人员、企业或场所入口处的迎宾人员执行。事实上，沃尔玛的迎宾员有一个新的小工具，可以在允许您使用购物车之前，扫描您的手机。
 
-Steve Cortes在班农节目中说，由于白宫有一个软弱的领导人，西方现在甚至不愿意对莫斯科（入侵乌克兰）采取严肃的行动，中共和俄罗斯这个邪恶轴心的兴起，中共内部越来越有底气可以在台湾采取行动。中共进攻台湾的时机可能已经成熟。
+在餐厅，主人或女主人有一个类似的疫苗合规扫描仪，用于在座位或预订确认之前检查您。
 
-市场方面，台湾半导体（Taiwan Semiconductor Mfg. Co. Ltd.，台积电）是世界上最大的公司之一，市值5000亿美元，员工50,000人，绝对是美国和全世界的芯片生产中心。
+它简单而有趣。在您的手机注册使用应用程序（也称为便携式应答器和注册设备）上提取您的二维码，然后，您的手机被扫描，并提供绿色检查响应，以确认您正确的疫苗接种状态和授权范围。
 
-台积电的股价自1月14日以来的五个星期，正式进入熊市，由当时的最高点145美元下跌到110美元，昨天甚至下探至全年最低点104美元。
+（**点评：就是中共国的疫苗二维码，但与健康和疫苗没关系，中共可以随时让它不喜欢的人的二维码变色，即使你100%，一旦二维码成为红色，就意味着中共可以随便处置你！西方民主国家的政府显然想要中共管控人民自由的极权。在手机检测公民上独裁中共和西方政客有区别吗？借病毒之名，行独裁之恶！）**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-26_17-00-55.png)
+在加拿大政府行动的帷幕里，看视频 **WATCH THIS VIDEO**:
 
-Steve Cortes认为，台湾半导体绝对是一个风向标，告诉我们中共入侵台湾的风险正在急剧上升，一旦台湾开战，乌克兰局势就显得平淡无奇了，台湾将成为全世界关注的热点。
+澳大利亚政府在联邦和州一级都与大型科技公司（渴望获得国家合同）密切合作，以评估可以在全国范围内部署的最佳通用流程。
 
-在俄罗斯入侵乌克兰之后，美国总统拜登前天宣布，制裁4 家俄罗斯银行，但不会制裁俄罗斯石油，甚至在三天前，拜登冻结了美国所有新的石油和天然气钻探项目。
+正如下面各州的所有六位州长所指出的，硬件（扫描仪）和软件（注册）系统都在进行测试，以找到最全面**/**最方便的便携式设备。与此同时，在美国，洛杉矶和纽约等城市等待**B****eta **测试结束，然后再部署他们自己版本的相同流程。
 
-中共外交部在回答路透社记者“为应对欧盟和美国对俄罗斯实施的制裁，中方会增加采购俄罗斯石油吗？”提问时说，“我们一贯反对任何非法单边制裁。我们要求有关方在处理乌克兰问题和对俄关系时，不得损害中方和其他方面正当权益。中俄之间本着相互尊重、平等互利的精神开展正常的贸易合作。”
+在欧洲，他们还在测试被称为欧盟“绿色通行证”的疫苗检查和注册程序。
 
-翻译成人话就是，中共反对对俄罗斯制裁，无论国际社会如何制裁，中俄邪恶轴心不会改变，中共将一如既往的向俄爹输送利益！
+“绿色通行证”是一种类似的技术系统，24 个月前被称为“广泛的右翼阴谋论”的东西，而现在正在顺利进行中。
 
-2月25日下午，习猪头同俄罗斯总统普京通电话，习太阳说，中共“根据乌克兰问题本身的是非曲直决定中方立场”，要“摒弃冷战思维”！看来习猪头真想打热战！
+与我们快速技术时代的所有事物一样，您不必再眯着眼就能看到地平线，并接受最终这个过程将自动化，并且会有一个小工具或扫描网关，自动授予您访问权限，而无需有人站在那里分别扫描每个手机二维码。
 
-参考数据：
+自动化过程很有意义。您很清楚您的手机已经发送了一个电子信标，您的 Uber 或 Lyft 司机只需按一下触摸屏按钮即可访问您的位置，这是您手机上的另一个便捷应用程序。那么，为什么网关不接受这种相同的可识别传输，作为您在咖啡店的符合疫苗要求的登记？
 
-[Steve Cortes Reveals Major Signal of Communist China’s Move on Taiwan (VIDEO)](https://www.thegatewaypundit.com/2022/02/steve-cortes-reveals-major-signal-communist-chinas-move-taiwan-video/)
+自动化版本比必须把手伸进口袋或钱包并在屏幕上拉出那个讨厌的二维码要容易得多，也更酷。大家笑了，大科技和大政府之间的合作伙伴关系始终存在，以使您的交通更加流畅和无缝。哎呀，你甚至不会注意到安装在入口处的电子接收器。给它几个星期，你不会记得你嘲笑亚历克斯**·**琼斯的原因，就像你记不得你为什么在机场脱鞋一样。
 
-[习近平同俄罗斯总统普京通电话](https://www.mfa.gov.cn/zyxw/202202/t20220225_10645684.shtml)
+然而，随着这个过程的创建，值得考虑的是：你正在悄悄地从一个人转变为一个产品。有些人开始担心[Beta](https://www.spectator.com.au/2021/10/freedom-day-you-have-a-barcode-on-your-forehead/)测试：
 
-[2022年2月25日外交部发言人汪文斌主持例行记者会](https://www.mfa.gov.cn/fyrbt_673021/202202/t20220225_10645686.shtml)
+如果您的状态未能正确注册，或者系统识别出某种形式的替代生活方式违规行为，可能会导致您无法进入。再说一次，这就是 Beta 测试的目的，解决所有这些技术错误和东西。不用担心…。 向前走…。
 
-[俄罗斯精锐近卫军杀进乌克兰首都基辅！中国撂下一句狠话！](https://www.163.com/dy/article/H14R7EN80552FDOB.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2464.png)图片来源：theconservativetreehouse.com
 
-[Taiwan Semiconductor Mfg. Co. Ltd.](https://www.tsmc.com/english)
+再说一遍……“对于那些被允许购物的特权阶层，请注意，以‘健康’为幌子鼓励无现金交易的 Covid 标志。在财政部试图完全取走现金之前，关于银行卡**‘**更安全**’**的信息将会增加，几乎可以肯定的是，得到公众的批准。”
 
-[Steve Cortes Biograph & Age, Wiki, Height, Weight, Girlfriend, Family & More](https://www.marathi.tv/political-analyst/steve-cortes/)
+等等，现在我们正盯着地平线上那个熟悉的形象，因为，我们知道那些控制事物的人已经谈论无现金社会有一段时间了。
 
-[Steve Cortes CNN, CNBC, Wiki, Bio, Age, Birth Place, Wife, Kids, Trump, Salary and Net Worth](https://www.wiki.ng/en/wiki/steve-cortes-cnn-cnbc-wiki-bio-age-birth-place-wife-kids-trump-salary-and-net-worth-480614)
+我们也知道，数据本身就被认为是一种主要商品。为什么您认为您在现代遇到的每个系统都需要您的电话号码，即使您没有注册任何东西？这意味着您和我们都与这个定义我们身份的现代注册系统相关联。我们还知道，系统运营商在各种零售和技术系统中买卖我们的注册身份。
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2462.png)图片来源：theconservativetreehouse.com
+
+是的，那个不透明的阴影现在变得更清晰了。
+
+也许您想买狗粮，但被拒绝进入“宠物智能店”（ Pet Smart），因为您没有更新汽车登记，或者您可能因为忘记更换您驾驶的租赁车辆的机油而被禁止进入，因为丰田与一些零售财团达成了这个奇怪的协议。您前往公民合规应用程序中方便地弹出的换油地点 – 它只有两个街区 – 他们在换油后清除警报，您就符合网关要求了。
+
+错过了你的加强针？对不起，公民，您的银行帐户被冻结，直到您恢复合规性**……**请前往最近的疫苗接种室，如您手机屏幕上方便显示的那样 ……
+
+投票给错误的候选人？参加或捐赠给卡车司机的抗议活动？
+
+是的，明白了吧，因为加拿大总理特鲁多的行为彻彻底底唤醒了群众！
+
+素材链接：[theconservativetreehouse.com][BOOM, Trudeau Reversal Motive Surfaces – Canadian Banking Association Was Approved by World Economic Forum To Lead the Digital ID Creation](https://theconservativetreehouse.com/blog/2022/02/23/boom-trudeau-reversal-motive-surfaces-canadian-banking-association-was-approved-by-world-economic-forum-to-lead-the-digital-id-creation/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-5.jpeg)
+
 
  
 
