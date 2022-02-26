@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：当敌人猖狂的时候
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2066588/)
+## 七哥金句：新中国联邦禁止做的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2066613/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5-1-6-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/0225七哥金句-06.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/0225七哥金句戰爭-01.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

@@ -2,26 +2,211 @@
 ---
 
 
-## 痛斥俄罗斯的入侵恶行
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2066452/)
+## 乔·拜登总统宣布因俄罗斯入侵乌克兰而对俄罗斯实施额外制裁
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2066489/)
 
-**撰稿：日本东京方舟农场  分界线**
+[https://gtv.org/video/id=621892f01408ee3a03a497ee](https://gtv.org/video/id=621892f01408ee3a03a497ee)
 
-一厢情愿的自我表达一切为了国家利益是流氓最为无耻的推脱之词，强词夺理的一面之词是魔鬼最善于利用去侵犯与伤害他人的借口。普京不顾生灵涂炭而铤而走险或为了个人疯狂的政治野心、或为了继续对政体的统治，于2月24日清晨发表全国讲话，宣布在乌克兰东部顿巴斯地区发起“特别军事行动”。随即不久，已经对乌克兰展开发动全面的武力入侵而震惊世界，尽管一切以假借爱国之名，却丝毫无法掩盖其经济及内政的乏善可陈。危机重重的独裁统治，到底是续命之战还是加速其政体倒台，现在不得而知！截至目前，俄罗斯对乌克兰宣战与入侵的恶行已经超过24小时，并纵深进行导弹轰炸了85处目标，地面多个方向攻入乌克兰，切尔诺贝利核电站已被占领，首都以及其它地方正遭受炮弹轰炸。据乌克兰内政部称，该国正遭受导弹和弹道行动报告的报道，基辅、哈尔科夫、哈尔科夫、波尔和第聂伯罗等主要城市附近的基础设施似乎成为俄罗斯攻击和侵略的目标。这是关于这场冲突的一些问题，它是怎样走到这一步的，俄罗斯为什么入侵，世界对此又有何反应和怎么应对，以及接下来会发生什么？我们拭目以待!
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02-2.jpg)（图片取自美国之声）
-人类社会尽管早已进入二十一世纪，还会让我们看到与佐证一个国家去当面置入地吞并另一个国家，而侵略者还是宣扬主导和平的五大常任理事国之一，极其突出且毫无遮拦地向全世界展示了他们的狼子野心。他们邪恶地以人民的名义发起战争；无耻地以公平的名义收割财富；欺骗地以正义的噱头瓜分土地；狂傲地以国家的名义垄断市场；世界上的寡头哪管什么人间百姓疾苦？致使满目疮痍的土地上只有孤苦伶仃的平民百姓，给众多无辜的人瞬间造成担惊受怕甚至生命威胁的受害者。你们在游戏，哪管我们百姓血流成河；你们在角逐，哪管我们时刻缺衣少食；你们在狞笑，哪管我们亲情骨肉分离？你们只管一心梦想让权力、金钱、美女、美食、资源、土地、名誉世代在你们之间轮回流转，丑陋地把人民与公义把玩与控制在你们的股掌之间。其实，俄罗斯并不是什么 “突破底线”的疯狂之举，而是它们从来没有底线。流氓之所以有恃无恐，同时，也是西方绥靖主义盛行的恶果！西方国家对保卫乌克兰的决心不坚定是普京决定侵略的根本原因和底气所在，至于经济制裁则是不疼不痒的无济于事。只因俄罗斯在美国、联合国和欧洲各国对暴力的严峻警告、对和平的模糊保证的外交努力之后，依然对乌克兰发动袭击而入侵邻国、网络攻击的行径而去毅然决然地破坏这个世界的秩序、也让民主制度在全球范围内节节败退，瞬间致使二十一世纪变成一个黑暗的局面，导致历史正在迅速向野蛮倒退。
+Joe Biden (U.S. President）
+乔·拜登（美国总统）
 
-乌克兰曾经是世界第三大规模的核拥有国，但是，为了人类的和平，为了世界的安宁，在1994年得到美国承诺保障乌克兰安全，同时，也是受到联合国和五大常任理事国联合保证，担保其国土安全和完整而不受他国侵犯的前提下，自愿放弃核武器的一个正义的国家。乌克兰认为，只要能够得到美国的保护就能维护本国的和平。而如今乌克兰了放弃核武器也没能实现和平的夙愿，就在今天他的国家遭到了来自他国的侵略与蹂躏。自从乌克兰放弃核武器至今，俄罗斯第一个背信弃义，悍然无视那些无辜的男人、女人和儿童的生命、乌克兰主权和领土完整以及国际法，对乌克兰发动有预谋、无端且无理的侵略与攻击。在此可以肯定的是，普京进攻乌克兰的得失，不论成功占领还是陷入长期消耗战，从经济上来讲都只有亏，赢的只有政治上的势力范围！在此也不禁要问，为什么普京如今这么强硬，西方列强如此颓废，看看俄入侵乌克兰之后西方主要国家的表现，意大利说要把奢侈品制裁排除在外，比利时说要把钻石生意排除在外，德国意大利比利时说要把银行制裁排除在外。面对二战之后，欧洲地区一个国家最大规模和残忍地入侵另一个国家，西方各国也心怀鬼胎的一盘散沙！此刻，第三次世界大战前奏已经打响！致使全世界一片慌乱！这个俄国希特勒将不断蚕食邻国，一直威风到把西方阵营被逼到墙角，和二次大战初期一模一样！而从今天的情势看，更是一副滑稽又让人悲伤的场面：乌克兰国家陷入危机，总统与外长呼吁国际组织予以支持，但西方国家则不紧不慢的细细讨论制裁政策，依然马照跑舞照跳。全世界就在这样一个轻描淡写的基因突变重，露出它张牙舞爪的狰狞模样。俄罗斯驻联合国代表还在窗明几净的安理会上争辩，这不是战争，只是一场特别行动。不知道大洋彼岸，正在慌乱逃往罗斯托夫的大批乌克兰难民们，会怎么看待这样的一句话。
+We’ve been transparent with the world
+我们一直对世界透明
 
-俄罗斯对乌克兰发动海、陆、空的全面攻击，促使乌克兰予以紧急回应。首都基辅已发布空袭警报，要求所有居民寻找地下避难所。面对强大的俄军，乌克兰孤军奋战，几乎不可能获胜；不去做正面冲突，保存力量，打全民游击战和持久战才有一线希望，让人欣慰的是，这个国家的男人，大多数的并没有逃跑与躲避，他们在国家最危难的紧急时刻，主动选择签字入伍，拿起武器去勇敢地保卫自己的家园，与国家荣辱与共。而当地部分商店仍在营业，包括超市、水果店及药店，当地人排队提款，有居民去超市购买瓶装水，市面暂时未见恐慌的场面。
+We’ve shared declassified evidence about Russia’s plans
+我们分享了有关俄罗斯计划的解密证据
 
-战争是个无情的绞肉机，冷血带走千万年轻士兵的生命，让无数家庭的普通人食不裹腹、家破人亡。有时，人类就是一个这么愚蠢的物种，不断的重蹈覆辙，永远地自相残杀。的确，战争是政治家的游戏，是战士们的坟场，是老百性的灾难；战争，是各方权势与群体利益的博弈，战争，是刽子手们寻求获得利益的角逐场。可无论怎样，最终，受到伤害最大的总是普通平民。战争的发起，往往也都是统治者一己之私利，而无论胜败，民众始终都是买单者。赢的，余生要饱受战争带来的痛苦与创伤；输的，失去财产、家园、亲人、甚至生命。正如英国作家乔治·奥威尔说：“所有的战争宣传、所有的叫嚣与跋扈、谎言和仇恨，都来自于那些从不上战场的人发起的。”因为，这里不是他们担心的世界，而是我们赖以生存的家园！在它崩溃和坍塌之后，则需要我们再去努力重建。因此，爱好正义自由的人们是永远不会被强权压服的！当自由与家园被强权剥夺时，反击就是唯一的选择！虽然，有人的地方就难免有战争发生，但是，我们也要时刻呼唤与祈愿世界和平，让和平的白鸽在空中自由翱翔，并祈祷造物主佑助那些为保护家园、家人以及和正义站在一方而战斗的人们！最终，一切反人类的恶行都将灰飞烟灭！
+and cyber attacks and false pretext
+以及网络攻击和虚假借口
 
-参考链接：
+So there could be no confusion or cover up about what Putin was doing
+因此，普京的所作所为不会引起混淆或掩盖
 
-素材采编：分界线
-编辑：老孙
-发布：Linda
+Putin is the aggressor. Putin chose this war
+普京是侵略者, 普京选择了这场战争
+
+And now he and his country will bear the consequences
+现在他和他的国家将承担后果
+
+Today I’m authorizing additional strong sanctions
+今天我授权额外的严厉制裁
+
+and new limitations on what can be exported to Russia
+以及对可以出口到俄罗斯的产品的新限制
+
+This is going to impose severe cost on the Russian economy
+这将立即和随着时间的推移
+
+both immediately and over time
+使俄罗斯经济付出沉重的代价
+
+We have purposely designed these sanctions
+我们特意设计了这些制裁措施
+
+to maximize a long term impact on Russia
+以最大限度地提高对俄罗斯的长期影响
+
+and to minimize the impact in the United States and our allies
+并尽量减少对美国和我们盟国的影响
+
+I want to be clear, the United States is not doing this alone
+我想明确一点，美国不是在单独行动
+
+For months, we’ve been building a coalition of partners representing well more than half the global economy
+几个月来，我们一直在建立一个代表全球经济一半以上的合作伙伴联盟
+
+27 members of the European Union
+27个欧盟成员国
+
+including France, Germany, Italy
+包括法国、德国、意大利
+
+as well as United Kingdom, Canada, Japan, Australia, New Zealand
+以及英国、加拿大、日本、澳大利亚、新西兰
+
+and many others to amplify the joint impact of our response
+和许多其他人，以扩大我们应对措施的共同影响
+
+I just spoke with the G7 leaders this morning
+我今天早上刚刚和七国集团领导人谈过话
+
+and we’re in full and total agreement
+并且我们完全同意
+
+We will limit Russia’s ability to do business in dollars, euros, pounds and yen
+我们将限制俄罗斯在全球经济范围内以美元、欧元、英镑和日元
+
+to be part of the global economy
+开展业务的能力
+
+will limit their ability to do that
+会限制他们这样做的能力
+
+We’re gonna stop the ability to finance and grow Russia, the Russian military
+我们将停止资助和发展俄罗斯军队的能力
+
+We’re going to impose major and we’re gonna impair their ability to compete
+我们要强加主要和我们要削弱他们的竞争能力
+
+and high tech 21st century economy
+和高科技 21 世纪经济
+
+We’ve already seen the impact of our actions on Russia’s currency and the ruble
+我们已经看到我们的行动对俄罗斯货币和卢布的影响
+
+Which, early today hit weakest level ever, ever in history
+今天早些时候，卢布达到有史以来最弱的水平，有史以来
+
+Russia stock market plunge today
+今日俄罗斯股市暴跌
+
+Russian government borrowing rates spiked by over 15%
+俄罗斯政府借款利率飙升超过 15%
+
+today’s actions, we’ve now sanctioned Russian banks
+今天的行动，我们现在已经制裁了俄罗斯银行
+
+that together hold around $1 trillion in assets
+它们共同持有约 1 万亿美元的资产
+
+We’ve cut off Russia’s largest bank
+我们切断了俄罗斯最大的银行
+
+a bank that holds more than 1/3 of Russia’s banking assets by itself
+一家单独持有俄罗斯银行资产1/3以上的银行
+
+Cut it off the US financial system
+切断它与美国金融体系的联系
+
+and today we’re also blocking four more major banks
+今天我们还封锁了另外四家主要银行
+
+That means every asset they have in America will be frozen
+这意味着他们在美国的所有资产都将被冻结
+
+This includes VTB, the second largest bank in Russia
+这包括拥有 2500 亿美元和资产的
+
+which has $250 billion, and assets
+俄罗斯第二大银行 VTB
+
+As promised, we’re also adding the names the list of Russian elites
+正如承诺的那样，我们还将添加俄罗斯精英及其家庭成员的名单
+
+and their family members that are sanctions that were sanctioned as well
+这些人也是被制裁的制裁对象
+
+As I said on Tuesday, these are people who personally gained from a criminalist policies
+正如我周二所说，这些人是从犯罪主义政策中获得个人利益的人
+
+and they should share in the pain
+他们应该承担后果
+
+We will keep up this drumbeat of those designations against corrupt billionaires in the days ahead
+在未来的日子里，我们将继续打击腐败的亿万富翁
+
+On Tuesday, we stopped the Russian government from raising money from us or European investors
+周二，我们阻止俄罗斯政府从我们或欧洲投资者那里筹集资金
+
+Now we’re going to apply the same restrictions to Russia’s largest state owned en-terprises
+现在我们将对俄罗斯最大的国有企业实施同样的限制
+
+Companies with assets that exceed $1.4 trillion dollars
+资产超过 1.4 万亿美元的公司
+
+Some of the most powerful impacts our actions will come over time
+随着时间的推移，我们的行动将产生一些最强大的影响
+
+As we squeezed Russia’s access to finances
+当我们挤压俄罗斯的融资渠道时
+
+and technology for strategic sectors of its economy
+及其经济战略部门的技术
+
+and degrade its industrial capacity for years to come
+并在未来几年降低其工业能力
+
+Between our actions and those of our allies and partners
+在我们的行动与我们的盟友和伙伴的行动之间
+
+we estimate that we’ll cut off more than half of Russia’s high tech imports
+我们估计我们将切断俄罗斯一半以上的高科技进口
+
+will strike a blow to their ability to continue to modernize their military
+将打击他们继续使军队现代化的能力
+
+It’ll degrade their aerospace industry
+它会降低他们的航空工业
+
+including their space program and hurt their ability to build ships
+包括他们的太空计划并损害他们建造船只的能力
+
+reducing their ability to compete economically
+降低他们的经济竞争能力
+
+And it will be a major hit to put in long term strategic ambitions
+实现长期战略目标将是一个重大打击
+
+**原视频链接**[https://twitter.com/cnn/status/1496924473517383686?s=24](https://twitter.com/cnn/status/1496924473517383686?s=24)
+
+Date:02/24/2022
+原视频标题:President Joe Biden announces additional sanctions against Russia over its invasion of Ukraine
+乔·拜登总统宣布因俄罗斯入侵乌克兰而对俄罗斯实施额外制裁
+原视频日期：2022/02/24
+原视频链接https://twitter.com/cnn/status/1496924473517383686?s=24
+任务编号：KE418（3844）
+视频时间段 : 0:00-3:58
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
