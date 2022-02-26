@@ -2,29 +2,38 @@
 ---
 
 
-## 有声｜中共国拒绝谴责俄罗斯入侵乌克兰 并给与经济支持
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2067725/)
+## 韩国、台湾将参与国际对俄罗斯的制裁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2067783/)
 
-**By:秘翻新闻**
+作者：首尔天池农场—追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
+韩国媒体2月24日报道，文在寅总统针对俄罗斯入侵乌克兰表示，在任何情况下，使用武力造成无辜生命的行为都是没有道理的，并称韩国将会参与国际对俄罗斯的制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2420.png)
+文在寅指出：国家之间的冲突应该通过对话或谈判解决，而不是战争。
 
-**2022-02-26**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-121.png)图片源自:原文
-据[纽约时报中文网](https://cn.nytimes.com/china/20220225/china-walks-a-fine-line-on-russia-even-after-its-invasion-of-ukraine/)2月25日报道，中共国外交部发言人本周四在例行的新闻发布会上拒绝谴责俄罗斯。发言人华春莹没有将这次袭击描述为入侵，并回避了关于这次袭击是否侵犯乌克兰主权的问题。
+就在韩国发表上述表态后第二天，台湾媒体消息称，台湾总统府发言人张惇涵当日宣布，针对俄罗斯入侵乌克兰的军事行动，台湾将参与国际社会对俄罗斯的经济制裁。
 
-中共国领导人习近平不久前宣布，将与俄罗斯总统普京建立没有上限的良好合作关系。两位独裁者都相信，美国决心阻碍两国的崛起。因此他们希望在新的世界秩序中，看到一个影响力被大大减弱的美国。
+张惇涵表示，台湾仍呼吁各方恢复和平对话，理性解决争端。作为国际社会的一员，对于有助于和平解决争议的努力，台湾都愿意参与。
 
-本周四有报道称，中共国海关开放俄罗斯全境的小麦进口，而不仅仅是之前指定的某些地区，由此可见中共与俄罗斯之间经济联系的加强。
+参考链接：[https://news.kbs.co.kr/mobile/news/view.do?ncd=5403115https://www.cna.com.tw/news/aipl/202202250047.aspx](https://news.kbs.co.kr/mobile/news/view.do?ncd=5403115https://www.cna.com.tw/news/aipl/202202250047.aspx)
 
-此举是普京最近访问北京期间签署的一系列协议中的一部分。俄罗斯是世界上最大的小麦出口国，中共国庞大的国内经济为其抵御西方制裁提供了潜在的经济支撑。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-周四，中共国大使馆没有像其他国家那样敦促在乌克兰的华人撤离，而是告诉他们应该待在家里，并建议那些开车出行的人可在车身明显处贴上中共国的国旗。从中共国大使馆向在乌华人发出的提醒中也凸显出中俄密切的关系。
+总编/编辑：飞虹
+校对/发稿：小野貓（文凱琳）
 
-（ 秘翻新闻 清风先生 编译报道 ）
+**更多资讯，更多关注**
 
-发布:星星
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
