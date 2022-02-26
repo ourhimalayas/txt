@@ -2,44 +2,34 @@
 ---
 
 
-## 习抓王岐山孟建柱党羽靠杨洁篪王毅王沪宁的好戏在后边
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2067935/)
+## 大直播后记：第三次世界大战和病毒关系
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2068103/)
 
-G-TV视频链接：[https://gtv.org/video/id=62089954b0af02660af30d79](https://gtv.org/video/id=62089954b0af02660af30d79)
+**整理：**Grace Fang、HomeL
+**编辑：**skyandmoon
+![](https://assets.gnews.org/wp-content/uploads/2022/01/12315456_4-2.png)
+风雨之中：很高兴今天来到这个大直播，再次和大家一起同框同心。除了加拿大的这个事情之外，我更关心当年的13579计划。在五眼联盟当中，我查了一下它们的数据，基本上打疫苗的比例都在80%以上。这是很高的一个比例，除了美国稍微低一点儿，在美国的军队当中基本上注射疫苗在95%。那么台海危机现在这么紧要的关头，如果发生战事，美军会不会在全体95%以上打疫苗的情况下溃不成军，出现大的混乱？想听听七哥给大家分析。
 
-**郭文贵先生：**用孟建柱的一句话说：“习近平的智商和习近平的情商，和老佛爷也就是江泽民那要比的话，那是千年的差距。用孟建柱说的话：“习近平最多当个什么？地方地市级干部的干部，也就是厅局级干部。”这是孟建柱原话。
+郭先生：风雨之中，谢谢。今天我们这个话题，在开始的时候大家一定就都在想这个问题，我昨天晚上到今天谈的很多也都是这个话题。风雨之中跟草根小哥，一开始问的话题就是世界都在关心的，全世界有脑子的人，有智慧的人，不是天天被人家洗脑、不是小粉红的人都在问一个问题：普京进攻乌克兰，现在世界这种一触即发的热战（世界第三次世界大战），它和病毒有什么关系？
 
-你想想孟建柱都说：孙力军都比习近平有政治智慧。“哈哈，所以说，搞点小海鲜啥的是吧，都是小事儿。孟建柱曾经在私下里边儿跟他江西几个人说：”哎呀你看他都能娶彭丽媛儿，他那个情商有多高啊？“是吧？这是原话。
+这个乌克兰的事情大家都知道，和冠状病毒有关系，那你说会跟疫苗有啥关系呢？ 美国都打完80%的疫苗，军人很多都打了，你现在要打仗去了。为什么早不打，晚不打，就这时候打？然后全世界上政治精英有脑子的研究社会、人、社会关系、政治关系、战争的都会问。
 
-你想想，现在习在党内搞的这些东西，王岐山的这些马仔一个一个进去，孟建柱的马仔一个一个进去，他们能跟他拉倒吗？习最依靠的这个冬奥会不就是杨洁篪和王毅嘛，还有王沪宁嘛哪个人希望习近平真的赢啊！兄弟姐妹们，不可能的。所以说，中共的好戏在后边呐！
+你说那小土豆都实行紧急法了，然后呢？ 搞不下去了，快给加拿大关国了，这是从来没有过的。加拿大的无数个第一发生，都让小土豆给干了，第一次紧急法，第一次有人抱着疑问，在民主争议中弄死（紧急法），还有马杀残疾人，也成了加拿大的第一次“辉煌”。
 
-字幕来源：[2022年1月30日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1936606/)
+而且加拿大的政府之腐败，雇佣军（队）……雇佣军，我有很多（信息），具体不说，都跟咱有关系的，有很多都是我的朋友，你们不知道你们有了世界的朋友以后多牛叉。就共产党这么大个国家，它也没你七哥的朋友遍天下。我现在啥都掌握，他们都说（小土豆）请我们、让我们去（干事）出的价格，让我们干这事，我们都觉得不可思议。是吧？ 那小土豆为啥这时候撤掉了紧急法？然后乌克兰又上去了？乌克兰不但上去，只有新中国联邦爆料革命七哥说过，咱们爆料革命说过，（俄罗斯）取乌克兰的几招，一招也没有离开我们给大家说的。
 
-编辑整理：Jacques；
+然后要法治化、国际化、合理化，也就是找借口，然后直取基辅，然后欧洲、美国都把它抛弃到一边去，不会打它。你看云溪2号【注：应为北溪2号】，德国不要脸到啥程度？你看到没有？在这之前不惩罚，打进去以后说我要法律上先暂时停止，那边正死着人流着血呢，突然提出来私下里边你还可以继续使用这个油气管道。
 
-字幕文件制作：知津；
+**资料来源：**[2022.2.25文贵先生大直播](Adobe)
 
-视频制作及上传：Cindy；
+*发布：翼族*
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

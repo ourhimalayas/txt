@@ -2,64 +2,60 @@
 ---
 
 
-## 【秘翻在线】一名乌克兰士兵为了阻止俄军的入侵而自爆
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2067742/)
+## 权威医学杂志JAMA：儿童接种 COVID-19 疫苗后心肌炎风险增加 133
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2067764/)
 
-**撰稿：Grace**
+作者：香草山信息部 — NaN
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-25-at-11.34.08-PM.jpeg)图片来源：纽约邮报
-据《太阳报》（The Sun）2月25日报道，一名英勇的乌克兰士兵为了摧毁一座桥梁并阻止俄罗斯军队从克里米亚（Crimea）冲进来而自爆。
 
-将军们称赞维塔利·斯卡昆·沃洛迪米罗维奇 （Vitaly Skakun Volodymyrovych ）的牺牲，他在赫尔松(Kherson )地区南部的赫尼切斯克(Henichesk )阻止了一列俄罗斯坦克。
 
-武装部队的一位官员说，这位勇敢的工程师自愿执行危险的任务，在桥上埋设地雷。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
 
-这是连接被吞并的俄罗斯占领的克里米亚和乌克兰大陆的一个关键战略要塞。
 
-当普京的部队向他飞奔而来时，维塔利意识到他没有时间去设置导火索和获得安全。
 
-据他的战友说，维塔利[与他们]取得了联系，并说他要炸毁大桥。
 
-“紧接着就响起了爆炸声”。
 
-报道称，军事工程师维塔利因 “大大减缓了敌人的前进速度” 而受到战友们的称赞。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/download.png)图片源自网络
 
-国防军说，这也使乌克兰军事单位能够重新组织和重新部署其防御。
 
-一位军事官员说: “俄罗斯占领者，要知道，地面将在你们的脚下燃烧！”
 
-据报道，指挥官们现在希望为维塔利的 “英雄行为” 追授荣誉称号。
+根据 1 月 25 日发表在《美国医学会杂志》(JAMA) 上的一项研究，不同年龄的男性和女性接种基于 mRNA 的 COVID-19 疫苗后，患心肌炎的风险显着增加 。
 
-报道称，俄罗斯坦克和导弹发射器因此不得不采取更长的陆路路线进入南部赫尔松省（ Kherson ）。
+JAMA 是国际同行评审医学期刊，其影响因子为56.272 ，在 “医学：内科”（“Medicine, General & Internal”）类别的169种期刊中排名第三。上述研究的作者隶属于美国疾病控制和预防中心 (CDC)、杜克大学、美国食品和药物管理局 (FDA) 等。
 
-据报道，到昨天晚上，他们控制了该地区的大部分地区。但今天在马里乌波尔港（ Mariupol ）和梅利托波尔（ Melitopol ）的一个空军基地周围发生了激烈的战斗。
+该研究分析了疫苗不良事件报告系统 (VAERS) 中报告的病例。 VAERS 是一种针对潜在疫苗不良事件的被动报告系统，由CDC 和 FDA 共同管理。从 2020 年 12 月（当 COVID-19 疫苗首次在美国上市时）到 2021 年 8 月，美国 192,405,448 名 12 岁以上的人总共接种了 354,100,845 剂 COVID-19 疫苗。该研究使用 2017 年至 2019 年的 IBM MarketScan 商业研究数据库数据来计算预期的心肌炎发病率。
 
-在整个县，在普京的入侵军队从北部、东部和南部冲入后的第一天，有130多名乌克兰士兵死亡。
+根据研究报告中的表格（见下文），12-15 岁的男性在接受第二剂后面临更高的风险，在每百万剂的 7 天风险间隔内报告的心肌炎病例为 70.73 例，而预期病例为 0.53 例。 70.73除以0.53后是133倍！
 
-基辅声称它在第一天就杀死或俘虏了800名俄罗斯军队，摧毁了30辆坦克，并击落了7架战机。
+还值得一提的是，由于 VAERS 是一个被动报告系统，因此报告的病例可能低于实际数量。
 
-今天，基辅说俄罗斯损失了2800名人员、17架飞机和直升机、80辆坦克和500多辆其他车辆。
+疫苗支持者经常谈论信任科学和数据，有些人甚至将反对 COVID-19 疫苗的人标记为反科学。现在，在大规模使用 COVID-19 疫苗之后，更多的数据表明了疫苗的潜在风险。希望有更多的人在为时已晚之前对 COVID-19 疫苗说不。
 
-据说俄罗斯纵队在东部的哈尔科夫 （ Kharkov ）地区陷入困境，该地区今天发生了第二天的激战。
+\*参考链接：
+1 [https://jamanetwork.com/journals/jama/fullarticle/2788346](https://jamanetwork.com/journals/jama/fullarticle/2788346) 
+2 [https://academic-accelerator.com/Impact-of-Journal/JAMA](https://academic-accelerator.com/Impact-of-Journal/JAMA)
 
-还有两个纵队正从白俄罗斯前往基辅，但在30英里外被拦住。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
 
-伪装成乌克兰人的破坏者在基辅的巷战中被击毙，因为守军正在挖地三尺进行围攻。
+编辑/校对/发稿：Daxia
 
-另一方面，俄罗斯声称，它在200架直升机的空袭中夺回了一个战略机场，为距离首都仅4英里的大规模部队登陆铺平了道路。
+**更多资讯，更多关注**
 
-报道称，早些时候英国国防部长本·华莱士（Ben Wallace ）说，在面临比预期更激烈的抵抗后，克里姆林宫“没有拿下任何主要目标”。
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-华莱士先生预测乌克兰在城市战斗中的防御会更加激烈，部队会认为 “让他们进入城市，然后对他们进行打击”。
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-乌克兰人被警告说，他们现在面临着 “最艰难的一天”，预计俄罗斯人将从空中、陆地和海上发起全面进攻。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-据报道，基辅已向居民发放了约10,000支枪，并下令进行总动员，以保护基辅。
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-美国情报部门现在担心普京可能在短短96小时内推翻基辅。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**新闻来源：****[A HERO Ukrainian soldier blew himself up to destroy a bridge and stop Russian forces from storming in from Crimea.](https://www.thesun.co.uk/news/17771153/ukrainian-soldier-dies-blowing-up-bridge-russian-tanks/)**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+
+
+
+
 
  
 

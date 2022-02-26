@@ -2,22 +2,20 @@
 ---
 
 
-## 有声｜美欧加大对俄制裁力度 直接针对普京
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2067946/)
+## 有声｜将俄罗斯踢出SWIFT支付系统的势头越来越强
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2068104/)
 
 By:**秘翻新闻**
 
 **2022-02-26**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5-48.png)图片来源 美联社
-[据美联社2月25日报道，美国和欧洲盟友周五表示，正在加强对俄罗斯入侵乌克兰的制裁，增加直接针对普京总统及其外交部长的措施。](https://apnews.com/article/russia-ukraine-vladimir-putin-business-china-asia-b57700241d650315db1eb0e8516ce2d6https://www.reuters.com/world/us-expected-impose-sanctions-russias-putin-soon-friday-cnn-2022-02-25/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-39.png)图片来源 路透社
+[据路透社2月25日报道，加拿大、美国、英国和欧盟周五表示，在为阻止俄罗斯入侵乌克兰的新一轮制裁中，可能将俄罗斯排除在SWIFT支付系统之外。](https://www.reuters.com/world/europe/momentum-grows-ban-russia-swift-payment-system-2022-02-26/)
 
-[白宫表示，美国正在准备对普京和俄外交部长拉夫罗夫、国防部长绍伊古实施制裁，可能包括旅行禁令。这一消息是在欧盟宣布打算冻结普京的资产之后几个小时宣布的，同时英国首相约翰逊称英国也将制裁普京和拉夫罗夫。](https://apnews.com/article/russia-ukraine-vladimir-putin-business-china-asia-b57700241d650315db1eb0e8516ce2d6https://www.reuters.com/world/us-expected-impose-sanctions-russias-putin-soon-friday-cnn-2022-02-25/)
+[SWIFT是一个国际银行见的信息传递系统，促进快速的跨境支付，是国际贸易融资的主要机制。将俄罗斯踢出SWIFT会打击其贸易能力，缩减其贸易收入。](https://www.reuters.com/world/europe/momentum-grows-ban-russia-swift-payment-system-2022-02-26/)
 
-[美国周五的措施阻止了普京和拉夫罗夫接触美国官员可以接触到的任何资产，并禁止美国境内任何人与他们做生意。此次针对国家元首的制裁极为罕见。](https://apnews.com/article/russia-ukraine-vladimir-putin-business-china-asia-b57700241d650315db1eb0e8516ce2d6https://www.reuters.com/world/us-expected-impose-sanctions-russias-putin-soon-friday-cnn-2022-02-25/)
+[美欧官员表示，在德国和意大利的官员减缓了他们反对将俄罗斯踢出SWIFT的立场之后，这项制裁很快会发生。欧洲议会主席萝伯塔·梅措拉周五表示，禁止俄罗斯进入SWIFT可能是新一轮制裁的一部分。一直不愿意采取这一步骤的意大利周五表示，不会否决禁止俄罗斯的提案，并承诺继续与欧盟伙伴一致努力。德国财政部长克里斯蒂安-林德纳周五表示，德国是欧盟与俄罗斯贸易流量最大的国家，也对禁止俄罗斯加入SWIFT持开放态度，但必须计算对其经济的影响。](https://www.reuters.com/world/europe/momentum-grows-ban-russia-swift-payment-system-2022-02-26/)
 
-[欧盟官员们表示，仍有可能实施进一步的制裁，包括将俄罗斯赶出全球金融交易的主要系统SWIFT。](https://apnews.com/article/russia-ukraine-vladimir-putin-business-china-asia-b57700241d650315db1eb0e8516ce2d6https://www.reuters.com/world/us-expected-impose-sanctions-russias-putin-soon-friday-cnn-2022-02-25/)
-
-[当亚洲大多数国家团结起来支持乌克兰时，中共国却继续谴责对俄罗斯的制裁，并指责美国及其盟国对莫斯科进行挑衅，同时中共加大与俄罗斯的贸易，为其提供经济支持。](https://apnews.com/article/russia-ukraine-vladimir-putin-business-china-asia-b57700241d650315db1eb0e8516ce2d6https://www.reuters.com/world/us-expected-impose-sanctions-russias-putin-soon-friday-cnn-2022-02-25/)
+[欧盟外交政策负责人何塞普-博雷尔说，关于SWIFT的决定可能会在未来几天作出。这标志着西方大国本周对俄罗斯实施的协同制裁将进一步升级，包括周五针对俄罗斯总统普京和外交部长谢尔盖-拉夫罗夫个人的罕见制裁。](https://www.reuters.com/world/europe/momentum-grows-ban-russia-swift-payment-system-2022-02-26/)
 
 秘翻新闻 文洋 编译报道
 

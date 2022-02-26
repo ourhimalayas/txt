@@ -2,21 +2,38 @@
 ---
 
 
-## 秘翻在线：安理会谴责决议案，中共投弃权票，并表示“对俄罗斯的制裁将造成更大的损失”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2067765/)
+## 韩国、台湾将参与国际对俄罗斯的制裁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2067783/)
 
-撰稿: Eric Kim
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-88.jpg)图片来源：韩国联合新闻
-26日，中共国CCTV报道称，中共国驻联合国大使张军于25日(当地时间)对安理会对入侵乌克兰的俄罗斯的谴责决议案投了弃权票。
+作者：首尔天池农场—追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
+韩国媒体2月24日报道，文在寅总统针对俄罗斯入侵乌克兰表示，在任何情况下，使用武力造成无辜生命的行为都是没有道理的，并称韩国将会参与国际对俄罗斯的制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2420.png)
+文在寅指出：国家之间的冲突应该通过对话或谈判解决，而不是战争。
 
-张军说道：“任何行动都应真正帮助解决危机, 而不是火上浇油。持续的制裁压力将导致更多的人员伤亡和财产损失以及与更加混乱的状况难以弥合的矛盾。这样的教训很痛苦，所以一定要深刻地接受。因此，中国对决议草案投了弃权票。”
+就在韩国发表上述表态后第二天，台湾媒体消息称，台湾总统府发言人张惇涵当日宣布，针对俄罗斯入侵乌克兰的军事行动，台湾将参与国际社会对俄罗斯的经济制裁。
 
-在这次美国主导的决议案除了谴责俄罗斯外，还包括了要求立即、完全、无条件从乌克兰撤军的内容。15个安理会理事国中有11个国家投了赞成票，俄罗斯表示反对，作为俄罗斯友邦的中共国、印度以及阿联酋(UAE)等3个国家也投了弃权票。
+张惇涵表示，台湾仍呼吁各方恢复和平对话，理性解决争端。作为国际社会的一员，对于有助于和平解决争议的努力，台湾都愿意参与。
 
-信息来源: [https://news.naver.com/main/read.naver?mode=LS2D&mid=shm&sid1=104&sid2=231&oid=011&aid=0004023540](https://news.naver.com/main/read.naver?mode=LS2D&amp;mid=shm&amp;sid1=104&amp;sid2=231&amp;oid=011&amp;aid=0004023540)
+参考链接：[https://news.kbs.co.kr/mobile/news/view.do?ncd=5403115https://www.cna.com.tw/news/aipl/202202250047.aspx](https://news.kbs.co.kr/mobile/news/view.do?ncd=5403115https://www.cna.com.tw/news/aipl/202202250047.aspx)
 
-责编：Eric Kim
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
+总编/编辑：飞虹
+校对/发稿：小野貓（文凱琳）
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
