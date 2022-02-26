@@ -2,64 +2,56 @@
 ---
 
 
-## 02/26每日播报｜社媒消息:班农战斗室 娜塔莉温特斯
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2068909/)
+## Steve Cortes认为中共入侵台湾的风险正在急剧上升
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2068947/)
 
-**BY :[秘翻新闻](https://gtv.org/video/id=6219c13708ba8a07b1a3cbb3)**
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-***[2022-02-26](https://gtv.org/video/id=6219c13708ba8a07b1a3cbb3)***
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-396.jpg)
-一、[班农战斗室2月25日在盖特发文：](https://gettr.com/post/pwus2xa1be)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-**关于俄罗斯、中共和台湾，史蒂夫·科尔特斯 (Steve Cortes)说：“由于北京和莫斯科这个新兴的轴心，中共越来越有恃无恐，认为他们可以对台湾采取行动。**
+2月25日，美国前总统川普2016和2020年竞选团队高级顾问Steve Cortes在参加Steve Bannon的[The War Room](https://warroom.org/)时，从经济的角度分析，中共入侵台湾的风险正在急剧上升。
 
-现在白宫有一个软弱的领导人，西方国家坦承现在甚至不愿意对莫斯科采取严厉行动；因此这可能是他们攻击台湾的成熟时机。”调查记者马修蒂尔曼德（Matthew Tyrmand）说：“美国人将意识到中共入侵台湾对他们的影响。如果台湾被中共控制，台湾的半导体产业被摧毁，就像香港那样，笔记本电脑一夜之间从1000美元涨到15000美元，美国人将意识到全球经济是多么地相互依存。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/steve-cortes-taiwan-1-1.jpg)
 
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-112.jpg)
-**二、**[**班农战斗室2月25日在盖特发文：**](https://gettr.com/post/pwpomw1ddb)
+Steve Cortes是 1970年出生于美国伊利诺伊州（illioins）南芝加哥的哥伦比亚后裔，著名市场策略师、作家和电视节目主持人，Bloomberg Business, CNBC及Fox News评论员，Veracruz LLC.创始人。2016年和2020年，担任川普竞选团队顾问。
 
-**皮特纳瓦罗在接受采访时说：“中共和俄罗斯在网络攻击方面比我们强得多。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/E2Qh5AeWQAIz6rV.jpg)
 
-我深深担心的一件事是，如果我们开始跟随俄罗斯的剧本，卷入俄罗斯的事务，中共将利用混乱，就像它一贯的做法，对台湾采取行动；如果事情开始失控，我们会看到台湾这个国家的地铁和火车脱轨、灯光熄灭，各种道路信号被破坏。”
+Steve Cortes在班农节目中说，由于白宫有一个软弱的领导人，西方现在甚至不愿意对莫斯科（入侵乌克兰）采取严肃的行动，中共和俄罗斯这个邪恶轴心的兴起，中共内部越来越有底气可以在台湾采取行动。中共进攻台湾的时机可能已经成熟。
 
-** 秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-77.png)
-**三、**[**娜塔莉温特斯2月26日发推说：**](https://twitter.com/nataliegwinters/status/1497319109251551236)
+市场方面，台湾半导体（Taiwan Semiconductor Mfg. Co. Ltd.，台积电）是世界上最大的公司之一，市值5000亿美元，员工50,000人，绝对是美国和全世界的芯片生产中心。
 
-**辉瑞资助了脸书的“事实核查”伙伴。 **
+台积电的股价自1月14日以来的五个星期，正式进入熊市，由当时的最高点145美元下跌到110美元，昨天甚至下探至全年最低点104美元。
 
-【推文转《国家脉动》报道，由开放社会基金会（Open Society Foundations）等机构资助的国际记者中心ICFJ，是脸书母公司Meta“新闻项目（Journalism Project）”倡议的合作伙伴。脸书依靠ICFJ资助和培训的记者，通过其有争议的事实核查行动在其平台上“打击错误信息”，特别是有关新冠病毒及其疫苗的报道。同时，脸书的事实核查合作伙伴ICFJ也得到了辉瑞的资助。ICFJ最近公布的2022年亚瑟·F·伯恩斯奖学金项目将辉瑞列为赞助商。ICFJ与辉瑞的财务关系至少可以追溯到2008年，他们联手在拉丁美洲举办了“健康问题新闻报道培训讲习班”。一份摘要解释说，“讲习班的目的是提高对该地区健康问题报道的重要性的认识，并记住在向公众宣传和指导健康问题时，媒体如何成为主导角色。”该讲习班还谈到了“心血管疾病”报道。辉瑞是该培训会议的唯一赞助商。】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-26_17-00-55.png)
 
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-59.jpg)
-**[四、Andy 再开 2月25日在盖特发文：](https://gettr.com/post/pwp7cydace)**
+Steve Cortes认为，台湾半导体绝对是一个风向标，告诉我们中共入侵台湾的风险正在急剧上升，一旦台湾开战，乌克兰局势就显得平淡无奇了，台湾将成为全世界关注的热点。
 
-**关于中俄、乌克兰和台湾问题，前美国驻联合国大使妮基·黑利2月24日接受福克斯采访时说：“造成乌克兰局势的原因之一是美国没有强硬对待俄罗斯。**
+在俄罗斯入侵乌克兰之后，美国总统拜登前天宣布，制裁4 家俄罗斯银行，但不会制裁俄罗斯石油，甚至在三天前，拜登冻结了美国所有新的石油和天然气钻探项目。
 
-中共国说拿下香港就拿下了香港，所以它们一定会攻打台湾。美国若不能尽快处理好乌克兰问题，那么很快台湾就会遭殃。”前美国国务卿蓬佩奥2月24日接受梅根·凯利 (Megyn Kelly)采访时说：“我将穷尽一生消灭世界上的共产党。普京在寻求跟西方一同存在下去的道路，但如果美国没能让它看向西方，它就会选择跟中共同流合污。普京清楚，习近平只是把他当作临时抱佛脚的对象。美国应当在中俄之间制造空隙，确保今后只对付中共这一个目标。但我担心，如果习近平像普京入侵乌克兰那样进攻台湾，全世界又只会耸耸肩当个看客。”
+中共外交部在回答路透社记者“为应对欧盟和美国对俄罗斯实施的制裁，中方会增加采购俄罗斯石油吗？”提问时说，“我们一贯反对任何非法单边制裁。我们要求有关方在处理乌克兰问题和对俄关系时，不得损害中方和其他方面正当权益。中俄之间本着相互尊重、平等互利的精神开展正常的贸易合作。”
 
-**秘翻新闻 巴拉克 编辑报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5-50.png)
-**五、[琳恩费恩医生2月24日在盖特发文：](https://gettr.com/post/pwl2lk647f)**
+翻译成人话就是，中共反对对俄罗斯制裁，无论国际社会如何制裁，中俄邪恶轴心不会改变，中共将一如既往的向俄爹输送利益！
 
-**世卫组织条约将允许在大流行病期间，世卫组织的章程优于国家宪法。所有国家都应在5月份投票并签署该条约。这让人无法接受！ **
+2月25日下午，习猪头同俄罗斯总统普京通电话，习太阳说，中共“根据乌克兰问题本身的是非曲直决定中方立场”，要“摒弃冷战思维”！看来习猪头真想打热战！
 
-【盖文转《自然健康联盟》报道，你也许已经听说了关于世卫组织似乎要成为全球治理机构的卑鄙计划的谣言。可以确定的是， 世卫组织打算“启动一个全球进程，依据《世界卫生组织组织法》起草和谈判一项公约、协议或其他国际文书，以加强大流行病的预防、准备和应对。”现实情况是，它可能是通过加强现有的《国际卫生条例》，谈判一项“大流行病条约”作为对世卫组织章程的修正，或者更有可能是两者兼而有之。在世卫组织宣布发生全球大流行病的情况下，控制权将被授予这些文书。正如我们所看到的，这很容易做到，即使没有科学或医学理由，我们现在所处的正是这种情况。美国和欧盟委员会等世卫组织成员对此提供了广泛支持。事实上，正是美国将牵头进行谈判，试图就该方法达成共识。】
+参考数据：
 
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-46.jpg)
-**六、[长岛哥2月26日在盖特发文：](https://gettr.com/post/pwuxixc042)**
+[Steve Cortes Reveals Major Signal of Communist China’s Move on Taiwan (VIDEO)](https://www.thegatewaypundit.com/2022/02/steve-cortes-reveals-major-signal-communist-chinas-move-taiwan-video/)
 
-美国和加拿大的十个农场团队已经准备就绪，在八个主要城市设有战友接待服务站，给来自台湾、香港、澳门、墙内的爆料革命战友提供全方位服务。新中国联邦一直在救人。
+[习近平同俄罗斯总统普京通电话](https://www.mfa.gov.cn/zyxw/202202/t20220225_10645684.shtml)
 
-**秘翻新闻 巴拉克 编辑报道**
+[2022年2月25日外交部发言人汪文斌主持例行记者会](https://www.mfa.gov.cn/fyrbt_673021/202202/t20220225_10645686.shtml)
 
-发布：陸柒陸捌
+[俄罗斯精锐近卫军杀进乌克兰首都基辅！中国撂下一句狠话！](https://www.163.com/dy/article/H14R7EN80552FDOB.html)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
+[Taiwan Semiconductor Mfg. Co. Ltd.](https://www.tsmc.com/english)
 
+[Steve Cortes Biograph & Age, Wiki, Height, Weight, Girlfriend, Family & More](https://www.marathi.tv/political-analyst/steve-cortes/)
+
+[Steve Cortes CNN, CNBC, Wiki, Bio, Age, Birth Place, Wife, Kids, Trump, Salary and Net Worth](https://www.wiki.ng/en/wiki/steve-cortes-cnn-cnbc-wiki-bio-age-birth-place-wife-kids-trump-salary-and-net-worth-480614)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

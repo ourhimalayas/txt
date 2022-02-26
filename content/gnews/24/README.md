@@ -2,33 +2,30 @@
 ---
 
 
-## 有声|美国司法部任命国家加密货币执法团队负责人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2069392/)
+## 英媒：俄入侵乌克兰造成198名平民死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2069513/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2月17日，美国司法部任命Eun Young Choi担任国家加密货币执法小组NCRET的第一位团队负责人。
+撰稿：东京樱花团｜山顶闲人
 
-据悉NCET成立的目的是应对非法滥用加密货币和数字资产带来的挑战，其团队成员包括具有加密货币、网络犯罪、洗钱和没收背景的检察官。NCET将特别关注数字货币兑换、基础设施提供商和便利数字货币犯罪的实体。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/英媒：俄入侵乌克兰造成198名平民死亡.png)
 
-Choi主任说，NCET一直站在调查和起诉涉及数字货币的犯罪的前列，不仅在数字资产技术的增长和发展方面发挥关键作用，又加快和扩大打击各种非法滥用数字资产的行为。
+[*图片来源*](https://www.dailymail.co.uk/news/article-10553451/They-storm-tonight-Zelensky-says-Putins-forces-launch-scale-assault-Kyiv.html)*（图片为一个覆盖至少五层楼的洞被炸毁在建筑物的一侧，瓦砾散落在街道上）*
 
-据悉Choi主任曾起诉过复杂的欺诈和洗钱犯罪等，特别关注网络入侵、数字货币、暗网和国家安全调查。她曾成功地将暗网市场丝绸之路的创始人兼首席执行官Ross Ulbricht进行了上诉。
+**据英媒《每日电讯》2月26日消息：**
 
-文字版原文：[美国司法部任命国家加密货币执法团队负责人](https://gnews.org/zh-hans/2056538/)
+***1. 俄罗斯军队杀死了包括三名儿童在内的 198 名乌克兰平民，塔楼被导弹袭击撕裂 – 因为总统泽连斯基拒绝在血腥的基辅战役中放下武器。***
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+***2. 乌方官员称，朱利尼机场附近的公寓楼遭到毁灭性袭击，所幸没有造成人员伤亡。***
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+***3. 俄罗斯军队还向乌克兰军事设施发射了一连串巡航导弹***
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+***4. 总统泽连斯基宣布基辅将抵抗俄罗斯的进攻并誓言与普京的军队作战。***
+
+消息链接：[**Russian forces kill 198 Ukrainian civilians including three children and tower block is ripped apart by MISSILE strike – as defiant president Zelensky refuses to lay down weapons in bloody Battle for Kyiv**](https://www.dailymail.co.uk/news/article-10553451/They-storm-tonight-Zelensky-says-Putins-forces-launch-scale-assault-Kyiv.html)
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
