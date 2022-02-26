@@ -2,39 +2,21 @@
 ---
 
 
-## 俄罗斯将助灭共 中国人会付出巨大代价
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2067722/)
+## 秘翻在线：安理会谴责决议案，中共投弃权票，并表示“对俄罗斯的制裁将造成更大的损失”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2067765/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月23日的大直播中，郭文贵先生指出，俄罗斯将会帮助消灭中共，但是中国人却将付出巨大代价。
+撰稿: Eric Kim
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-88.jpg)图片来源：韩国联合新闻
+26日，中共国CCTV报道称，中共国驻联合国大使张军于25日(当地时间)对安理会对入侵乌克兰的俄罗斯的谴责决议案投了弃权票。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-38.png)
+张军说道：“任何行动都应真正帮助解决危机, 而不是火上浇油。持续的制裁压力将导致更多的人员伤亡和财产损失以及与更加混乱的状况难以弥合的矛盾。这样的教训很痛苦，所以一定要深刻地接受。因此，中国对决议草案投了弃权票。”
 
-历史表明，中国人历来缺乏素质教育和精神信仰。却被各种杂教杂家在精神、文化和人性上玷污，导致各种假恶丑丛生，人民苦不堪言。中共窃国以后，又通过独裁和共产手段，将中国大地变成了人间地狱。
+在这次美国主导的决议案除了谴责俄罗斯外，还包括了要求立即、完全、无条件从乌克兰撤军的内容。15个安理会理事国中有11个国家投了赞成票，俄罗斯表示反对，作为俄罗斯友邦的中共国、印度以及阿联酋(UAE)等3个国家也投了弃权票。
 
-千年以来，中国最大的威胁来自北方和俄罗斯。游牧民族对汉族的烧、杀、抢、掠、骗、奸屡试不爽，汉人从未赢过北方的游牧民族。
+信息来源: [https://news.naver.com/main/read.naver?mode=LS2D&mid=shm&sid1=104&sid2=231&oid=011&aid=0004023540](https://news.naver.com/main/read.naver?mode=LS2D&amp;mid=shm&amp;sid1=104&amp;sid2=231&amp;oid=011&amp;aid=0004023540)
 
-而大洋彼岸的美国，从清朝就开始与中国友好交往，一直都是中国的朋友。中国没有理由与美国作对。地理位置的远近并不重要，重要的是不同文化能够真诚交融。
+责编：Eric Kim
 
-今天，历史将会重演。俄罗斯将帮助消灭中共，把中国人的内贼剪除，但同时中国人民将不可避免地付出巨大代价。
-
-参考链接：
-1）[2/23/2022 Miles Guo:](https://www.gettr.com/post/pwfva33dfd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
-
-总编：飞虹
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

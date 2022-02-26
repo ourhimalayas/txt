@@ -2,28 +2,27 @@
 ---
 
 
-## 视频｜俄乌危机致全球粮食价格大幅上涨
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2067887/)
+## 有声｜北约警告称 俄罗斯目标不只乌克兰
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2068054/)
 
-制作：香草山视频部
+By:**秘翻新闻**
 
-2月23日，据相关媒体消息显示，俄罗斯与乌克兰、美国和欧盟之间日渐加剧的危机可能会给全球粮食供应带来更大的压力。目前，小麦、玉米、葵花油等基础作物的价格正在一路攀升。
+**2022-02-26**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-48.png)图片来源 Stephanie Lecocq/EPA-EFE
+[据合众国际社2 月 25 日报道，北约秘书长斯托尔滕贝格周五指责俄罗斯的侵略和言论远远超出了乌克兰，同时北约正在紧邻乌克兰西部的地区部署部队。斯托尔滕贝格表示，北约反应部队将部署陆、海、空资源，以保护北约东翼的盟国。](https://www.upi.com/Top_News/World-News/2022/02/25/belgium-nato-emergency-meeting-russia-ukraine-joe-biden/8641645788939/)
 
-数据表明，俄罗斯和乌克兰拥有全世界80%的葵花油出口、29%的小麦出口和19%的玉米出口，中东很多国家的粮食供应都依赖于此。然而，由于近期双方战争局势的恶化，黑海的运输港口眼下已经被切断，从而导致了俄乌粮食出口的中断。
+[一些北约成员国紧邻乌克兰，也与俄罗斯接壤，他们不仅看到了乌克兰的军事集结和持续的战争，还看到了非常具有威胁性的言论，其目标远远超出了乌克兰。](https://www.upi.com/Top_News/World-News/2022/02/25/belgium-nato-emergency-meeting-russia-ukraine-joe-biden/8641645788939/)
 
-另一方面，自俄罗斯向顿涅茨克和卢甘茨克派遣军队之后，各国对其的经济制裁不断加码，这严重破坏了世界粮食供应的稳定性，而美国的粮食期货价格也因此不断飙升。另外，重度依赖粮食进口的北非、亚洲和中东地区同样被大范围影响。
+[斯托尔滕贝格补充称，俄罗斯既是对乌克兰无辜人民的攻击，也是对整个欧洲安全秩序的攻击。并表示，北约将为乌克兰提供更多武器和防空系统](https://www.upi.com/Top_News/World-News/2022/02/25/belgium-nato-emergency-meeting-russia-ukraine-joe-biden/8641645788939/)
 
-当前，乌克兰所处的黑海地区是军事冲突的聚焦点，平常繁忙的商业运输如今因军事升级而被中断。经济学家表示，该地区的粮食供应中断将会导致全球粮食价格的飞涨。
+[NRF 约有 40,000 名士兵，约为 2014 年规模的三倍。但斯托尔滕贝格表示，并非所有部队都会部署。](https://www.upi.com/Top_News/World-News/2022/02/25/belgium-nato-emergency-meeting-russia-ukraine-joe-biden/8641645788939/)
 
-发稿：小野貓（文凱琳）
+秘翻新闻 文洋 编译报道
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+发布 : 恩典
 
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

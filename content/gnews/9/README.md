@@ -2,44 +2,48 @@
 ---
 
 
-## 壬寅年新中国联邦新春晚会七哥将唱响甜蜜蜜等三首歌曲
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2068067/)
+## 令人不寒而栗的辉瑞疫苗儿童致死数据
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2068173/)
 
-G-TV视频链接：[https://gtv.org/video/id=620899b6b0af02660af30d8c](https://gtv.org/video/id=620899b6b0af02660af30d8c)
+![](https://childrensunion.org/wp-content/themes/yootheme/cache/ONS-Daily-Expose-ef8cab73.webp)图片来源：英国国家统计局
+一项对英国国家统计局(Office for National Statistics, ONS)数据的分析表明，儿童在接种新冠疫苗后死亡的可能性是“未接种疫苗”儿童的52倍。此外，数据显示，死亡风险对年幼儿童和接种第二针疫苗的儿童迅速增加。
 
-**郭文贵先生：**喜币现在多少了呀？哇噻，哎哟哇噻。明天，明天的也就是纽约的早上八点半，大陆的时间是九点半啊，会有提前开始了新中国联邦的对抗挑战共产党的大宣传洗脑的春节联欢晚会，明天七哥将有三首歌唱给你们，包括《甜蜜蜜》，有三首歌唱给你们，明天一定会唱出来鲍鱼就蕨菜，四川辣味的菜，还有一个就是我们要弄出来穿貂皮大衣，然后开着假奔驰“吉利”把四川榨菜、鲍鱼整明白的事，不唱瞎他们不拉倒啊。
+根据《每日曝光》(Daily Expose)的分析，在去年的前10个月，接种辉瑞公司疫苗的15-19岁青少年比未接种疫苗的青少年死亡的可能性高出200%。同时，10-14岁之间接种疫苗的儿童，比那些没有接种过中共病毒疫苗的儿童死亡的可能性高出1000%。
 
-50.510，哎哟我的妈呀，哎哟我的妈呀，这钱“咣咣”的呀，咋弄呀这玩意，咋花呀这么多钱？你们都发财了咋办呐！Rachel：为了庆祝喜币破50，入手了G-Fashion。才买了几件，小气，哎呀，咱们中国人就是不舍得给自己花钱，是很怕的，不会花钱、不舍得花钱，最后一生，不管富有者，就像那个朱孟依一样，合生创展的，给自己买个爱马仕腰带，让自己的妈和孩子全穿上假爱马仕，可怜、可悲呀！
+此外，对政府官方数据的分析表明，第二剂疫苗从根本上增加了死亡的几率。第二剂后，年龄较大的青少年的死亡风险上升到300%，14岁以下的死亡风险上升到5200%——根据每10万人年238人的死亡率计算。
 
-行啦，兄弟姐妹们，今天的直播到此为止，明天早上见，明天早上将开启我们真正的大直播新春联欢晚会，谢谢兄弟姐妹们，再见，再见……多少人了我的天呐，300万，哎哟，300万吗？200万200万啊，天呐！
+然而，由于几个原因，即使这样也严重低估了真正的风险。
 
-字幕来源：[2022年1月30日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1936606/)
+这些数据包括10至11岁的儿童，这个年龄组在英国没有资格接种疫苗。此外，接种疫苗后两周内的死亡人数被计入未接种疫苗的(死亡)人数，而不是接种疫苗的(死亡)人数，尽管大约一半的疫苗死亡发生在这一年龄段。
 
-编辑整理：Jacques；
+主流新闻机构没有对此进行报道本应是令人震惊的，如果它没有遵循一贯的模式，即无视所有会损害药品销售和政府政策的证据。
 
-字幕文件制作：知津；
+此外，尽管英国国家统计局的顽固行为以及其陈述和报告中的混淆视听，《每日曝光》的分析仍然存在。据《每日曝光》报道，国家统计局在其按疫苗接种状况划分的死亡数据中，无意中地公布了有关儿童和成人死亡的足够多的细节。
 
-视频制作及上传：Cindy；
+此外，英国政府对这些数据坐视不管已经一个多月，允许儿童和青少年继续接种疫苗，同时暗中继续统计由此导致的死亡人数。为了一种不会致死的疾病。
 
-G-News发布：小满；
+新闻链接：
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+> [Here is the data on child Pfizer death. It is chilling.](https://childrensunion.org/here-is-the-data-on-child-pfizer-death-it-is-chilling/)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+简评：
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+在这场中共发动的中共病毒大流行病的初期，临床统计数据告诉人们：青少年以及儿童感染中共病毒的可能性远低于年长者。而随着时间的推移，无良主流媒体对疫病的渲染以及邪恶疫苗厂商无止尽的贪婪的推动，让人们逐渐忘记这一事实，从而让青少年和幼童接种中共病毒疫苗，导致青少年及儿童感染中共病毒人数急剧增加。南非尚卡拉·切蒂医生曾经提到：“在接种疫苗后的前14天，任何副作用都不能归咎于疫苗，因为所有的’过敏反应’都会在这段时间出现。”政府与医疗系统在拿人命玩数据游戏，将接种后两周内死亡的人数计入未接种疫苗的死亡，而非接种后死亡，企图掩盖疫苗致死的事实。政府、医疗系统、主流媒体、疫苗厂商的“齐心协力”与“自导自演”，让作为弱势群体的青少年儿童，不仅失去了接受教育、与他人交流的权利，承受精神上的缺失，更是通过一支支毒针，让他们失去健康的身体甚至生命，未来蒙上一层浓厚的阴影。当今世界缺乏正义的监管力量，人类的善忘和信仰的缺失主张者邪恶作祟，人类需要付出多少代价，才能觉醒，真正看清事实？
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+* * *
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

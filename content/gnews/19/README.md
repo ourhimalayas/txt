@@ -2,33 +2,45 @@
 ---
 
 
-## 中共国在乌留学生哭诉：请墙内五毛嘴下积德
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2067918/)
+## 壬寅年新中国联邦新春晚会七哥将唱响甜蜜蜜等三首歌曲
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2068067/)
 
-撰稿：香草山教育部- Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月26日凌晨，一位身处基辅市的中籍留学生在微博上哭诉称：由于墙内“五毛”们对于乌克兰战争和当地女性的有害言论，目前乌克兰国内已经激起了强烈的排华浪潮，当地华人都不得不隐藏起自己的中共国民身份以求自保。
+G-TV视频链接：[https://gtv.org/video/id=620899b6b0af02660af30d8c](https://gtv.org/video/id=620899b6b0af02660af30d8c)
 
-据了解，自俄罗斯发起对乌克兰的全面战争以来，中共党媒就一直引导墙内舆论站在发起战争的俄罗斯一方，并不断鼓吹中共的“大一统”论调，这致使很多墙内网民都为俄罗斯的侵略行为拍手叫好，并以胜利者的姿态调侃起乌克兰众多的无辜女性。
+**郭文贵先生：**喜币现在多少了呀？哇噻，哎哟哇噻。明天，明天的也就是纽约的早上八点半，大陆的时间是九点半啊，会有提前开始了新中国联邦的对抗挑战共产党的大宣传洗脑的春节联欢晚会，明天七哥将有三首歌唱给你们，包括《甜蜜蜜》，有三首歌唱给你们，明天一定会唱出来鲍鱼就蕨菜，四川辣味的菜，还有一个就是我们要弄出来穿貂皮大衣，然后开着假奔驰“吉利”把四川榨菜、鲍鱼整明白的事，不唱瞎他们不拉倒啊。
 
-据悉，中共国不仅未对乌克兰华人真正实施营救，同时还加剧了当地的排华情绪。日前，中共国外交部还曾鼓励乌克兰华人在家中、车尾张贴中共国旗以避免被俄军误伤，这一举动更激起了乌克兰人民的反华情绪。今日，中共外交部已经改口称希望当地华人不要随意亮明中共国民身份。另有在乌华人在抖音上发帖称，一切乌克兰撤侨的消息都是假新闻，目前大家都只是填了回国的意向表。
+50.510，哎哟我的妈呀，哎哟我的妈呀，这钱“咣咣”的呀，咋弄呀这玩意，咋花呀这么多钱？你们都发财了咋办呐！Rachel：为了庆祝喜币破50，入手了G-Fashion。才买了几件，小气，哎呀，咱们中国人就是不舍得给自己花钱，是很怕的，不会花钱、不舍得花钱，最后一生，不管富有者，就像那个朱孟依一样，合生创展的，给自己买个爱马仕腰带，让自己的妈和孩子全穿上假爱马仕，可怜、可悲呀！
 
-郭文贵先生此前曾在节目中爆料，对于发动生化超限战和挑起多国战争的中共，美国一定会发起最严酷的全面制裁，而最终为俄乌战争买单的一定会是无数的墙内民众。郭先生说，只有墙内同胞们能够自行醒来，才能免遭成为中共替罪羔羊的悲惨命运。
+行啦，兄弟姐妹们，今天的直播到此为止，明天早上见，明天早上将开启我们真正的大直播新春联欢晚会，谢谢兄弟姐妹们，再见，再见……多少人了我的天呐，300万，哎哟，300万吗？200万200万啊，天呐！
 
-- 【新闻链接】[https://www.gettr.com/post/pww1x8fb07](https://www.gettr.com/post/pww1x8fb07)
-- 【撰稿日期】2022-02-26
-- 审核/编辑/发稿:qiutian（邱甜）
+字幕来源：[2022年1月30日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1936606/)
 
+编辑整理：Jacques；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-7.png)
+字幕文件制作：知津；
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

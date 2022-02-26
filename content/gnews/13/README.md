@@ -2,46 +2,27 @@
 ---
 
 
-## 习王是灭共的最佳人选
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2068024/)
+## 有声｜习近平致金正恩，称愿在新形势下开展合作
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2068142/)
 
-**整理：流氓兔、sadhu
-编辑：Candy**
+By:**秘翻新闻**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/习王.png)
+**2022-02-26**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-39.png)图片来源 路透社Yoan Valat/Pool via REUTERS
+[据路透社2月26日消息，朝鲜官方媒体朝中社周六报道，中共国国家主席习近平向朝鲜领导人金正恩强调了两国合作的重要性。朝中社表示，习近平向金正恩表示，中共国愿与朝方一道，在新形势下稳步发展中朝友好合作关系。但朝中社没有进一步详细说明新形势的性质。](https://www.reuters.com/world/china/chinas-xi-message-nkoreas-kim-vows-cooperation-under-new-situation-kcna-2022-02-25/https://www.reuters.com/world/russia-vetoes-un-security-action-ukraine-china-abstains-2022-02-25/)
 
+[据朝中社报道，习近平发表上述讲话是为了回应金正恩对北京冬奥会的贺电和冬奥会圆满闭幕后的口头祝贺。](https://www.reuters.com/world/china/chinas-xi-message-nkoreas-kim-vows-cooperation-under-new-situation-kcna-2022-02-25/https://www.reuters.com/world/russia-vetoes-un-security-action-ukraine-china-abstains-2022-02-25/)
 
-草根小哥提问：现在全世界的政治家或者说政府，利用地缘、利用种族，可以说在过去的几百年、上千年制造一次又一次人类的灾难。 我对这个政治一直以来痛恨的不得了，非常非常痛恨。（比如）疫苗灾难，人类灾难之后，各国的政府还会存在吗？ 世界政治会变得更加分裂还是更加团结？
+[本周早些时候，金正恩在给习近平的口头信息中誓言要加强与中共国的合作，共同挫败来自美国及其盟国的威胁和敌对政策。](https://www.reuters.com/world/china/chinas-xi-message-nkoreas-kim-vows-cooperation-under-new-situation-kcna-2022-02-25/https://www.reuters.com/world/russia-vetoes-un-security-action-ukraine-china-abstains-2022-02-25/)
 
-七哥：草根兄弟，毫无置疑，政府还会存在的。但是我们将面临着一个很长时间的乱世，很长时间。战友们，就像我几年前说乌克兰和台湾，你们听不懂一样， 犹犹豫豫地、晃晃荡荡到这儿来了。
+[自1961年两国签署条约以来，中共国一直是朝鲜唯一的主要盟友。](https://www.reuters.com/world/china/chinas-xi-message-nkoreas-kim-vows-cooperation-under-new-situation-kcna-2022-02-25/https://www.reuters.com/world/russia-vetoes-un-security-action-ukraine-china-abstains-2022-02-25/)
 
-（比如）入洞房，你该享受所有的美好，就怕喝醉酒之后。 这世界是很愚蠢的，一辈子就结一回婚，结果喝一肚子酒，晃晃当当进了洞房了。弄不好你进去之前人家都已经好几个都进去过了是吧？ 其实进去多美好，你也没感觉，忘了。
+秘翻新闻 文洋 编译报道
 
-就像我们爆料革命，我最不希望大家是酒后，或者慌慌张张、犹犹豫豫，醉醉的。像小sarah，每天就是个睡，然后每天都揉揉眼，醉眼朦胧地进入了爆料革命的状态，不希望这样。佳佳你看，我是跟王子他正面接触过，佳佳这个大眼睛瞪着，她每天对什么都充满了渴望，她就想冲上去。就这点，她和正义小sarah坐在一起的时候，都发现小sarah很想把事干好，但是她有那种养尊处优的感觉。
+发布 : 恩典
 
-佳佳是觉得什么事情我都想干的绝、干得好，小王子就更想干好了，觉得我要干到特别，所以才能把电源撞断了。 他因为他想干，他慌，这是一个人的状态，没办法的，所以他慌得一脚就把你电脑电源给踹断了。皮特纳瓦罗从来没忘过，这件事情的危害巨大，因为他竟然迷信。我没见过美国白人像班农和皮特（这样的人）迷信，他说这不吉利。哇塞，美国人还这样，你没办法，哎呦这个风水不好，这个风水不好，然后这离远点、离远点儿，没见过外国人那么相信迷信的。
-
-他俩很相信迷信，就让你给碰上了，黑屏，踹总电源，这是过火了，是个灾难，但是这个对小王子是好事。可是我们人类面对的是一样的问题：就是我们很多人糊里糊涂，你可能酿成大祸。你可能主动过了火，也可能酿成大祸。或者说，你根本没有体会到这个其中之奥妙、抓住这个节拍，你将被抛弃。我再说一遍，人类从来没有像2022年这么危险，人类绝对没有过像2022这么黑暗，今天你们懂了吗？
-
-还有一个，习太阳、普大帝的手段和计划是从2010年俩人就开始。2012年人家开始就是习大神来访美国洛杉矶、跟奥巴马失败之后，俩人彻底形成世界上的轴心五国。
-
-草根兄弟，你知道全亚洲人有多少人口吗？占世界多少你知道吗？全亚洲是47亿人口，它接近50%。GDP占世界多少，你知道吗？GDP还不到世界的37%，38%或者40%，美国和它的盟国包括日本已经占50%。一个人类将近一半国家的亚洲，如果俄罗斯东欧国家人口和欧洲人口加在一起，他已经占了世界百分之六、七十的人口了，GDP也达到40%几了 。如果中东伊朗，北朝鲜，非洲站在中共和俄罗斯一边，它占世界人口的多少？这个人数在地球上一划分，那不是原来的苏联半个地球，你美国3亿多人口，你欧洲是几亿人口？印度和中国各都达到14人口，28亿人口，你玩啥呢？
-
-所以说各国政府其实没有搞明白的事情：这个世界上所谓的美俄中和中美俄这个三角关系一直是影响人类的。这一次绝对是世界的一次大的重组，没有任何改变。 我2017年爆料说过，我跟胡锦涛这些人、还有中国的老常委、国安部的人（在一起），每次他们都说：中国历史上几百年回到桌子上，国际桌子上，已经接近到桌面上了。如果被人给拍下去，那就是万劫不复，回到石器时代；站到桌子上，就永远就成为世界强国。
-
-可悲的事情，他们选出了——对我们来讲是好事，选出了习太阳、王岐山这两个文化大革命的鬼魂。 我觉得是文化大革命的被害者推出了这俩人，对中国所谓的国际说了算、当大国是个灾难，对中国人是短期灾难，对灭共那是绝对的最佳的两个人物。
-
-**资料来源：2022.2.25GTV、GETTR文贵大直播**
-
-***发布：Candy***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

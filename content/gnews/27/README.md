@@ -2,24 +2,20 @@
 ---
 
 
-## 俄乌战争首日 乌克兰军民137人死亡316人受伤
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2067723/)
+## 韩国、台湾将参与国际对俄罗斯的制裁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2067783/)
 
-作者：新西兰伊甸农场-玫瑰
+作者：首尔天池农场—追着曙光跑
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
-据乌克兰媒体25日报导，俄罗斯对乌克兰发动大规模军事攻击的第一天，乌克兰共有137名军民丧生，316人受伤。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2418.png)
-乌克兰国防部长表示，东部的顿巴斯仍持续面临俄罗斯的猛烈炮击。
+韩国媒体2月24日报道，文在寅总统针对俄罗斯入侵乌克兰表示，在任何情况下，使用武力造成无辜生命的行为都是没有道理的，并称韩国将会参与国际对俄罗斯的制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2420.png)
+文在寅指出：国家之间的冲突应该通过对话或谈判解决，而不是战争。
 
-乌克兰军方曾宣布，俄军北部攻势在切尔尼戈夫被挡住，至少6架敌方定翼机、2架直升机和数十辆装甲车辆被摧毁，但也指出哈尔科夫和南部重要港口刻松等区域发生了激烈战斗。
+就在韩国发表上述表态后第二天，台湾媒体消息称，台湾总统府发言人张惇涵当日宣布，针对俄罗斯入侵乌克兰的军事行动，台湾将参与国际社会对俄罗斯的经济制裁。
 
-俄罗斯国防部则发布声明称，东部部队突破乌克兰前线，乌克兰边防部队并未抵抗。
+张惇涵表示，台湾仍呼吁各方恢复和平对话，理性解决争端。作为国际社会的一员，对于有助于和平解决争议的努力，台湾都愿意参与。
 
-不过，俄国国防部发言人拒绝透露有多少人员伤亡。
-
-参考链接：
-1、[烏克蘭戰事首日137死316傷 徵召義務役及後備人員](https://www.cna.com.tw/news/aopl/202202250019.aspx)
-2、[不斷更新／烏克蘭國防軍籲「全民從軍」　未成年也要動員起來！](https://www.ettoday.net/news/20220225/2196172.htm#ixzz7Ls8su5YI)
+参考链接：[https://news.kbs.co.kr/mobile/news/view.do?ncd=5403115https://www.cna.com.tw/news/aipl/202202250047.aspx](https://news.kbs.co.kr/mobile/news/view.do?ncd=5403115https://www.cna.com.tw/news/aipl/202202250047.aspx)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
