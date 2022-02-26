@@ -2,25 +2,32 @@
 ---
 
 
-## 韩国记录自疫情以来最高的CCP病毒感染死亡数字
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2070127/)
+## 自由之家预警 世界自由民主正在衰落
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070221/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2.26E.jpg)网络图片
-当地时间周六，韩国迎来了自CCP病毒疫情爆发以来最为致命的一天。在最近的 24 小时内，该国总共报告了 112 人死亡，即便政府正在努力应对由Omicron变体病毒引发的一轮冠状病毒感染。
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月25日，据相关媒体报道，人权组织“自由之家”当天公布了《2022年全球自由报告》。当中，该组织警告称，全球民主已经连续16年持续衰退，独裁集权越来越有可能会取代民主，成为国际上治理国家的常见模式。该报道也提到，近日，普京下令入侵乌克兰的举动更加表明了威权势力正在崛起。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-26-上午9.44.19.png)
+该报告还指出，在过去一年中，全球有60个国家遭遇了民主衰落的困境，世界上还有约38%的人口依然居住在不自由的国家中，而居住在自由过度的民众只占全球总人口的20%。
 
-韩国医疗工作者在该日诊断出总共 166,209 例新病例，接近周三创下的单日记录 171,451 例——这一数字相比 1 月中旬的每日水平增加了大约 37 倍以上。在日益严重的疫情爆发中，住院和死亡人数开始攀升，这让疲惫不堪的卫生和公共工作人员不堪重负。
+尽管全球民主现状堪忧，但报告显示，台湾的自由民主指数达到了94分的高分，在世界自由国家中排名第17，亚洲区则仅次于日本。相反的，中共国在“政治权利”方面得负2分，“公民自由”只有11分，总自由民主指数为9分，再度被列为不自由国家。另外，香港此次只获得了43分，较之去年再降9分，被认定为“部分自由”地区。
 
-韩国疾病控制和预防机构表示，当前有超过 640 名病毒患者处于严重或危急状态，而 2 月中旬约为 200-300 人。卫生部发言称，该国指定用于 CCP病毒患者的重症监护病房中已有约 44% 被占用。
+参考链接：[自由之家全球報告 台灣94高分亞洲第2、中國僅9分](https://news.ltn.com.tw/news/world/breakingnews/3840734)
 
-总理金富谦周五表示，卫生当局预计 Omicron 波将在 3 月中旬的某个时候达到顶峰，届时该国单日可能会出现约 25 万例病例。有人担心，随着学校在 3 月新学期开始，加上 3 月 9 日总统大选前的政治集会，疫情传播可能会出现恶化。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-值得注意的是，在该国超过 5100 万人口中，已经有超过 86% 的人已完全接种疫苗，约 60% 的人接受了加强注射。目前，该国仍然试图在向托儿所和长期护理机构的人们推出第四次CCP病毒疫苗接种。周三，官员们已经批准了辉瑞针对 5 至 11 岁儿童的 CCP病毒疫苗，并计划在 3 月宣布为该年龄组推出疫苗。
+总编：Irene木木
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-新闻参考链接：
-
-[S. Korea has deadliest day of pandemic amid omicron surge](https://apnews.com/article/coronavirus-pandemic-health-pandemics-seoul-coronavirus-vaccine-1fc3c63706c857d827506b4823aa9227)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

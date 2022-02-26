@@ -2,32 +2,64 @@
 ---
 
 
-## 联俄两线开火各取所需 中共加速全球自动灭共进程（五）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2069973/)
+## 樱花FM|樱花深度报道：北京冬季奥运会的“体育洗白”宣传是柏林奥运会的翻版 维吾尔人大声疾呼中共对少数民族的残酷镇压（二）
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2070137/)
 
-撰稿：东京樱花团/深藏不露
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-8-4.png)
+(图片说明)西方民主国家一直在激烈争论是否要完全抵制这一有争议的事件，就像他们在 1936 年柏林夏季奥运会之前所做的那样
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/联俄两线开火各取所需-中共加速全球自动灭共进程（五）.png)
+![](https://lh6.googleusercontent.com/hN1APqxkZFJZlmLso2R-KrJqi53yj-g9g1an92GZ0qcg_RChM9giFzaoSvNFrmo6WLlztPaXbkJYLjqWDXFdyWvNJH9MhBiae4tZwUpKwarrXRQ8de2v_Jsk8HCw2mvkehn4iRI3)
 
-普京这两天好像很失落，乌克兰全民抵抗，连总统泽连斯基都亲自穿军装上前线了，富翁拳王基辅市长维塔利·克利奇科也没有选择逃亡，而是选择了坚守阵地！真是风萧萧兮易水寒，壮士一去兮不复还！在这些高贵的腐烂政客面前，小丑演员出身的泽连斯基成了彪炳青史的英雄！ 现在即使普京拿下基辅，也很有可能深陷在乌克兰泥潭之中，战争是很耗钱的，大炮一响，黄金万两！普京正面对着国内反对派的抗议，国际上面临美欧日等国的制裁。
+(图片说明)早在 30 年代，随着希特勒的法西斯政权作为一个全球大国崛起，争论的焦点是德国对犹太人的可恶待遇，以及参加奥运会是否会使竞争国家在某种程度上受到指责。图：希特勒在 1936 年柏林奥运会上
 
-今天德国财政部长表示我们愿意迅速切断俄罗斯Swift。法国财长也表示，巴黎赞成将俄罗斯排除在全球Swift结算系统之外，以惩罚其对乌克兰的侵略。随着德法两国同意英美对俄国Swift系统的制裁，相信俄罗斯很快将会在经济上陷入深深困境！
+![](https://lh6.googleusercontent.com/BtO7qQfwUw7-zk99CYPQpoeEUlk606WiiLqfIB9YCsrlNAqdhs7Xf1frjE1lg1lwxihVvuj49ZqukZPgxIWQCYrpKx8BGVwjBQtI_E8bMSSu8cXGeTptvLiWjVb45jNVnd1kEaME)
 
-乌克兰称俄罗斯已开始在边境动员后备部队。再次证实普京的闪电战肯定是完全没有达到效果，在遇到了乌克兰军队和人民的强烈抵抗后，前线部队减员损耗肯定相当严重，现在又不得不开始动员后备部队。而乌克兰从上面的总统，到下面的普通老百姓，士气高涨斗志昂扬，还有西方源源不断的战备物质和先进武器供应，普大帝将马失前蹄 跌倒在乌克兰这块土地上了！
+(图片说明) “他想展示雅利安人的至高无上——但当然，美国黑人运动员杰西欧文斯（如图）“单枪匹马粉碎了希特勒的雅利安霸权神话”，赢得四枚金牌，”巴卡博士说
 
-刚刚，美国驳回莫斯科提出的与基辅会谈的提议，美国国务院称其为“不是真正的外交”，波兰国防部长今天也表示，他的国家已向乌克兰派遣了一支装有弹药的卡车车队！荷兰政府已经批准了向乌克兰运送200套“毒刺”地对空导弹系统。据天空新闻的报道：“包括英国和美国在内的28个国家已同意向乌克兰提供更多武器、医疗用品和其他军事援助。
+“中国的种族灭绝和种族清洗在什么时候能够引起国际社会足够重视？” ——拉米拉·查尼舍夫
 
-中共习近平幻想联俄取台湾再共同打败美国称霸世界！乌克兰是普京早就想拿的利益，病毒战后时机成熟后，狡猾的普京心中盘算有中共打台湾垫底，台湾比乌克兰重要，普京在中美间是就可以全身而退。而欧洲又被插上了天然气输血管道，不敢怎样。加上美国宣布不会出兵乌克兰！所以普京就正式深陷美国的天仙局之中了！普京大帝可能万万没想到，美国这次是一箭多雕，同时有可能将中俄一锅烩了，既转移了国内的各种矛盾，还让欧洲认识到美国才是真正的世界的老大！
+现居住在阿德莱德的澳大利亚维吾尔唐格里塔妇女协会(Australian Uyghur Tangritagh Women’s Association)主席拉米拉·查尼舍夫(Ramila Chanisheff)向《每日邮报》澳大利亚透露，海外维吾尔人“与他们的朋友和家人失去了完整的沟通”。
 
-现在大家都在聚焦习近平，个人估计习近平面临两难选择！习近平一看普京没有牵制多少西方的军力，估计会不敢轻易动手，不动手普京又逼在后面，要知道普京是不好惹的，你想毁约？普京可能会顺势同美国勾兑，联手灭掉中共！所以，现在打台湾习近平立马完蛋，不打，普京首先翻脸，加上中共江曾王孟的虎视眈眈，定将万劫不复！
+她说：“过去，很多维吾尔人能够与家人交谈，但在过去六个月左右的时间里，他们一直被切断了联系。”
 
-附：
+这也发生在2008年北京夏季奥运会之前，是专制政权在任何重大事件之前的常用策略。
 
-今日，乌克兰军方称：到目前为止击毙了 3,500 名俄罗斯军人，俘虏 200 人，摧毁 102 辆坦克、15 门火炮、一辆 Buk、14 架飞机、8 架直升机和 536 辆其他车辆。
+查尼舍夫女士说：“人们被警告不要发声，也不要与海外任何人交流，这样外界就不知道那里真正发生了什么。”
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+“我的表弟被关押在劳教所，每周只出来看望他的妻子和孩子，然后被带回。但每次他出去时，我都会试着打电话看看他是否还好，但我们被告知他不在。
+
+“一个正在犯下种族灭绝罪行的国家怎么能被授予一项享有盛誉的体育赛事？
+
+“中国的种族灭绝和种族清洗在什么时候能够引起国际社会足够的重视？”
+
+![](https://lh5.googleusercontent.com/MTdl-cG13I1LIK10LQsfbiG-sMQKQk8VJbkkLU2c-wJzeMmOiTL_g5ZlJVzAl65em23ms8C4KR1NL0eldrsigsM5_U0kqByKW7PeJRE0bsIF0XPuI6yzUGVADf9jJKHbF98mNi13)
+
+(图片说明)据估计，有超过一百万维吾尔人被围捕并投入劳改营，在那里他们面临酷刑、国家支持的器官摘取甚至绝育的威胁，联合国和各种人权组织声称。图为：习近平在山西省北京冬奥会前与居民打招呼，合影留念
+
+![](https://lh4.googleusercontent.com/3fs8B0yCpzWkuqq9bwFhcRRK5FIgv0xGQCbtxa_BqCe56U5V4-cdUWNcrNXGDTqSYTFDkD8tBm6MNOAUesLwtqINRTVPbQBLe6TUglNSpj70vRIBbpwunmlIvbirlJsxnmo2v_nf)
+
+(图片说明)中国张家口，2022 年冬奥会前夕，一名单板滑雪运动员在赛场训练中进行跳跃
+
+![](https://lh6.googleusercontent.com/X9B0Z1MOQ7K436lLyX5yeqruJTT6FBs7tkO3uKTz3nyIzR8OK0bKdBGuJ0nV9-iQJg_BP1gLJXgSgafV4pafeX3Tes_98Dmcp_aKbkq3PTzNLGG0o5Np0P_8bJcGeOYEtT8KKTny)
+
+(图片说明)中国张家口 2022 年冬奥会前，一名工人飞过赛道
+
+![](https://lh5.googleusercontent.com/JeSpWhpYozuuM1zqbqbIap20CCp42rVNqNq-DJfkyGBeCWSOESGcVR7Sa4R22lSGuZz-KO7woOcMGjEz4MzdYrh0EqPLfGKY-y_1xdnvn9NwUT-Ykt4_AUb18aiWjRbPQZE5OahK)
+
+(图片说明)中国张家口 2022 年冬奥会前，三名滑雪者在赛场上训练
+
+（未完待续）
+
+文字版原文：
+
+[樱花深度报道┃北京冬季奥运会的“体育洗白”宣传是柏林奥运会的翻版 维吾尔人大声疾呼中共对少数民族的残酷镇压（二） – GNEWS](https://gnews.org/zh-hans/1935328/)
+
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

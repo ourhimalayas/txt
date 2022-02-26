@@ -2,31 +2,26 @@
 ---
 
 
-## 有声|新加坡确诊人数再创新高 医疗系统不堪重负
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2069960/)
+## 美参议员：习近平利用俄罗斯作为其夺取台湾计划的“侦察队进攻”
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2070123/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-新加坡今天新增2万6032例中共病毒确诊例，再度突破历史记录。卫生部指出，虽然需要输氧治疗及加护病房患者人数不算多，但近来病床需求大增，主要是为了收治患有慢性病的确诊者。
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-卫生部表示，最近由于对抗原快速检测和开具医疗证明的需求剧增，导致原已面临沉重压力、负担的医疗系统不堪重负。 呼吁雇主勿坚持要求员工出示医疗证明或出示确诊后的康复证明；同时，也呼吁民众只有在紧急情况下，才到医院挂急诊；为保护当地医疗体系，将延长公共卫生防范诊所的服务时间，并在综合检测中心为有症状的确诊者提供远程医疗服务。
+2月25日，美参议员本-萨斯（Ben Sasse）告诉美国有线电视新闻网（CNN）的吉姆-舒托（Jim Sciutto），他认为中共国独裁者习近平为俄罗斯总统弗拉基米尔-普京入侵乌克兰 “开绿灯 “了，利用俄罗斯作为其夺取台湾计划的“侦察队进攻”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/010.jpg)（图片来自GETTR）
+据《Breitbart》报道，这位内布拉斯加的美国参议员本-萨斯说：“很多可能有更多孤立主义倾向的内布拉斯加人对我说，嘿，你已经告诉我们很长时间了，我们面临的头号地缘政治威胁是中共。我们面临的第二大威胁是中共。我们面临的第三大威胁是一个扩张主义的中国共产党。因此，我们难道不应该无视普京的所作所为吗？答案是肯定不行，因为习近平为这次入侵开了绿灯。”
 
-据统计，今天新增4起死亡病例，累计956人病故。截至目前，新加坡累计62万2293人确诊。
+萨斯继续说道，“因为习近平想看到美国被羞辱，他想看到欧洲被破坏稳定，他想推敲网络混合战争的样子，看看美国和西方是否有意愿（阻止俄罗斯），因为他把俄罗斯作为他夺取台湾的计划的侦察队进攻。”
 
-文字版原文：[新加坡确诊人数再创新高 医疗系统不堪重负](https://gnews.org/zh-hans/2055632/)
+萨斯呼吁，拜登总统为乌克兰提供紧急防御补充资金，充分武装乌克兰人，以此向普京以及习近平证明，美国不会置之不理。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+参考链接：
+[https://www.breitbart.com/clips/2022/02/25/sasse-chinas-xi-using-russia-as-a-scout-team-offense-for-his-plans-to-seize-taiwan/](https://www.breitbart.com/clips/2022/02/25/sasse-chinas-xi-using-russia-as-a-scout-team-offense-for-his-plans-to-seize-taiwan/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+素材采编：幽蘭自得
+编辑：青城道姑
+发布：Linda
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

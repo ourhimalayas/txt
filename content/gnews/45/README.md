@@ -2,30 +2,49 @@
 ---
 
 
-## 制裁俄罗斯 日本公司如坐针毡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2068805/)
+## 泽连斯基需要反坦克的弹药 而不是离开他的国家。
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2069477/)
 
-撰稿：东京樱花团/麗子
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/制裁俄罗斯-日本公司如坐针毡.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-在俄罗斯全面入侵乌克兰之后，七国集团（G7）宣布了追加经济和金融制裁。一系列的额外制裁和进一步的报复性措施，将带来的影响不容小觑，日本公司也更加警惕。
+乌克兰总统弗拉基米尔·亚历山德罗维奇·泽连斯基（Volodymyr Oleksandrovych Zelensky）办公室在Instagram上发布了一段标题为“我们在这里，我们在基辅，我们正在保卫乌克兰”的视频，视频中，泽连斯基和他的高级官员站在乌克兰总统府旁。
 
-在金融制裁方面，美国对俄罗斯联邦储蓄银行等主要金融机构实施了广泛制裁。日本宣布冻结三家银行的资产，其中包括俄罗斯的对外经济开发银行（VEB）。日本金融机构将被限制与被制裁的银行转移资金，这可能会对当地日本公司的资金供应造成影响。同时，负责为俄罗斯基础设施发展提供资金的VEB，也参与了日本贸易公司和政府机构主导的北冰洋资源开发项目。这次对VEB实施的制裁可能会影响这些合作项目的进展。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/zelensky-video-.jpg)
 
-美国、欧洲和日本都对高科技产品实行出口限制。日本的出口限制对象是半导体及相关技术。  三井住友银行日兴证券的经济学家表示，对俄罗斯的汽车出口和当地生产有可能受到影响。
+尽管乌克兰首都基辅很快会沦陷，很多人可能和我一样，在过去并不了解乌克兰和泽连斯基，但我想信，这一刻，很多人都会欣赏他的勇气。
 
-俄罗斯的报复措施也将带来影响。据估计，用于汽车尾气净化催化剂的钯金，世界供应量的30%来自俄罗斯。汽车行业已经面临着半导体的短缺和原材料价格的飙升。一家大型制造商的高管表示，（钯金和其他金属的）价格上涨将使行业雪上加霜。
+但中共国媒体称报道，俄方称泽连斯基早已离开基辅，所有呼吁视频都是提前拍的。
 
-金融厅也已通知全国的金融机构加强对网络攻击的应对，并呼吁以高度的紧迫感保持警惕。
+泽连斯基究竟是提前录制的视频还是现场拍摄的，对乌克兰人民抗击俄罗斯的入侵肯定非常重要，但此时，作为邪恶轴心国的中共，对泽连斯基任何负面报道，恐怕都不能相信。
 
-信息来源:
+在这段视频中，泽连斯基对乌克兰人民说：“大家晚上好，各党派领袖都在这里，总统府的主要负责人都在这里，总理丹尼斯﹒什米哈尔在这里，总统办公室主任顾问米哈伊洛﹒波多利亚克在这里，总统在这里，我们都在这里。我们的军队在这里，公民和整个社会都在这里。我们都在这里捍卫我们的独立，我们的国家，它将继续如此。荣耀归于我们的捍卫者！荣耀归于我们勇敢的女性捍卫者！荣耀归于乌克兰！”。
 
-[日本企業、報復の連鎖懸念　米欧日、対ロ制裁を強化](https://news.yahoo.co.jp/articles/8a26f5ee56f43471fb174d61378804b53103691d)
+（”Good evening, everyone. Leader of the faction (party) is here, head of the president’s administration is here, Prime Minister (Denys) Shmyhal is here, (adviser to the head of the President’s Office Mykhailo) Podoliak is here. The president is here. We are all here. Our military is here. Citizens and society are here. We are all here defending our independence, our state and it will remain so. Glory to our defenders! Glory to our women defenders! Glory to Ukraine!”）
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+昨天，乌克兰军方表示，他们在基辅以南25英里的Vasylkiv 城附近击落了一架载有伞兵的俄罗斯军用Ilyushin Il-76重型运输机。6个小时前，两名直接了解乌克兰地面情况的美国官员称，第二架俄罗斯Ilyushin Il-76军用运输机在基辅以南50英里（85公里）的Bila Tserkva附近被击落。
+
+目前，反对俄罗斯军队的街头战斗正在基辅进行中，乌克兰官方建议居民留在避难所，避免靠近窗户或阳台，并采取预防措施防止被碎片或子弹击中。
+
+泽连斯基24号在电话中告诉欧洲领导人，他是俄罗斯的头号目标，而且他们可能再也见不到他了，他的下落一直被保密。
+
+7小时前，美联社报道，一名美国官员证实，美国准备帮助乌克兰总统泽连斯基离开基辅，以免被入侵的俄罗斯军队俘虏或杀害，然而，泽连斯基拒绝离开他的国家。
+
+一位直接了解谈话内容的美国高级情报官员援引泽连斯基的话说，“战斗就在这里”，他需要反坦克的弹药，而“不是逃跑”（I need ammunition, ‘not a ride’）。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/FMfarZbaAAI_QyO.jpg)
+
+参考资料：
+
+[Ukraine’s Zelensky rejects US evacuation offer: I need ammunition, ‘not a ride’](https://www.timesofisrael.com/zelensky-rejects-us-evacuation-offer-from-ukraine-i-need-ammunition-not-a-ride/)
+
+[Rejecting US evacuation offer, Zelensky says: I need anti-tank ammo, ‘not a ride’](https://www.timesofisrael.com/liveblog-february-25-2022/)
+
+[俄方称泽连斯基早已离开基辅：所有呼吁视频都是提前拍的](https://sv.baidu.com/videoui/page/videoland?context=%7B%22nid%22%3A%22sv_8186707626548131376%22%2C%22sourceFrom%22%3A%22bjh%22%7D)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

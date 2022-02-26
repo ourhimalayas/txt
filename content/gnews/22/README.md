@@ -2,33 +2,39 @@
 ---
 
 
-## 有声|CDC隐瞒加强针数据 FDA专家敦促“说实话”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2069959/)
+## 有声|加拿大制裁俄罗斯个人实体及取消出口许可
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2070121/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-21日外媒報導，美国CDC於2月上旬公布的65岁以下成年人加强针有效性的第一批重要数据，該數據隐瞒了3300万名18-49岁族群的信息，而这族群通常被认为最不可能从加強疫苗中受益。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-25-62183840078b7-460x258-169.jpg)
+加拿大总理杜鲁道（Justin Trudeau）在本周五，即2月25日宣布对58个俄罗斯个人和实体实施制裁，并取消对俄罗斯的出口许可。
 
-爆出此爭議，CDC发言人回應道，担心这些数据会让人认为疫苗加强针无效，并且数据本身不完整，也没有经过核实，因此並未將該部分數據向公众公开。
+据中央社报导，加拿大官员警告，由于俄罗斯总统普京决定对乌克兰采取“特殊军事行动”，加拿大将会发出更多惩罚措施。这波制裁对象包括31人和27个实体，主要是俄罗斯菁英及其家人、安全官员、俄罗斯佣兵组织“瓦格那集团”（Wagner Group），以及俄罗斯的数家银行。加拿大取消了对俄罗斯的出口许可。这些出口许可涉及价值7亿加币的货物，主要在航天、信息科技、采矿业。 据悉，目前，加拿大有3500名军人在待命，准备和飞机、战舰一起被部署到欧洲。加拿大还表示，基于安全考虑，已经把外交人员从乌克兰撤离到波兰。
 
-CDC操纵数据的行為引发了科学界的愤怒，FDA顾问、疫苗专家保罗·奥菲特博士指出，由于CDC隐瞒这些信息，美国科学家不得不依赖以色列的数据。他敦促CDC说出真相，提交数据，让科学家们分析和解释数据代表的意义。流行病学家里维拉博士则说，两年来科学界一直在寻求这些数据，CDC拥有它们却选择隐瞒，这降低了了公众对他们的信任感。
+[【援引连结】](https://www.cna.com.tw/news/aopl/202202250039.aspx)
 
 
 
-文字版原文：[CDC隐瞒加强针数据 FDA专家敦促“说实话”](https://gnews.org/zh-hans/2056020/)
+**推出问题，敲出真相，爆料在路上！**
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+**请关注和订阅我们的以下账号：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,37 @@
 ---
 
 
-## 英国的通货膨胀率飙升至近30年来的最高水平
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2070144/)
+## 有声|应俄国军事侵略乌克兰及美国皆提升战备
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2070265/)
 
-**翻译：日本东京方舟农场 Skyfrog**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月23日，乌克兰国家安全委员会宣布全国进入紧急状态，预计将征召18至60岁的预备军人入营，以因应俄罗斯的军事侵略行动。 此征召计划将在国会批准后即刻实施，服役时间最长为一年。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2000x1333_0084523829536.jpg)[图源网络](https://facebook.com/UkrainianLandForces)
+美国也在2月21日将美军防御准备状态（Defcon）警报系统的评估等级调升到3级，此战备评估系统在和平时期为5级，在可能或已经爆发核战时为1级。在3级警戒状态下，美国空军必需达成在15分钟内可完成动员就战斗位置的要求。美国目前只有三次进入3级警戒状态的记录，分别是1973年的以阿战争、1976年的板门店事件以及2001年的911恐怖攻击事件。进入3级警戒等同是接近战争的边缘。
 
-截至今年的上个月，英国的通货膨胀率上升了5.5%，这是近30年来的最快速度。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-398.jpg)（图片来源：thehill.com）
-据英国国家统计局周三发布的最新数据显示，英国消费者价格指数(CPI)的涨幅创下1992年3月以来的最高纪录。英国1月份的通货膨胀率同比增长了7.1%。
+美国及乌克兰正严肃看待俄罗斯即将发动的侵略战争，普京的下一步行动将决定许多无辜民众的生命。
 
-从2021年12月到今年1月，CPI年增长率从5.5%的5.4%上升了0.1%。
 
-截止今年上个月，英国的电力价格上涨了28.3%，而电力价格上涨了19.2%。英国国家统计局表示，上涨的原因是“北爱尔兰能源价格的变化”。
 
-此外，自住住房成本在截至今年上个月增长了2.4%，租金增长了2.3%。
+文字版原文：[应俄国军事侵略乌克兰及美国皆提升战备](https://gnews.org/zh-hans/2067473/)
 
-美国目前的通货膨胀水平甚至更高，在11月中期选举前会对民主党构成持续的威胁。截至今年上个月，美国消费者价格指数同比上涨7.5%，这是1982年以来的最高涨幅。食品、电力和住房价格的上涨是通胀增长的最大推动力。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-自去年年中以来，随着美国努力从新冠大流行中复苏，通货膨胀水平一直在上升。然而，高需求与低供应、劳动力短缺、运输瓶颈和其他与疫情有关的问题发生冲突，导致全国范围内价格上涨。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-据美联社报道，英国的情况在不久的将来可能会恶化，因为该国的能源监管机构表示，4月份天然气和电力价格将上涨54%，这将影响到1500万户家庭。据美联社报道，物价上涨也将在同月产生影响，所得税将增加1.5%。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-原文链接：
-[https://thehill.com/policy/international/594556-inflation-in-uk-surges-to-fastest-rate-in-nearly-30-years](https://thehill.com/policy/international/594556-inflation-in-uk-surges-to-fastest-rate-in-nearly-30-years)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-素材採編：妙喜小油鍋
-校对：妙喜小油鍋
-发布：爱放飞
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

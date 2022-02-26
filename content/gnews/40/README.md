@@ -2,49 +2,41 @@
 ---
 
 
-## 泽连斯基需要反坦克的弹药 而不是离开他的国家。
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2069477/)
+## 乌克兰危机下的大国博弈
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2069773/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+作者:纽约香草山信息部-6zero4
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭先生在2月20日的大直播中谈到，乌克兰战争实际上三天前在双方的炮击后就开始了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+乌克兰和克里米亚的战略位置对俄罗斯非常重要，就像今天的台湾或香港一样。普京不仅仅是为了夺取克兰，而是要彻底拿下欧洲，习打台湾是想拿下整个亚洲。现在的美俄、美中和美欧之间的关系都太玄妙，普习两人都认为美国任何情况下都不会真动手跟他们打，欧洲就更不可能跟他们打了。
 
-乌克兰总统弗拉基米尔·亚历山德罗维奇·泽连斯基（Volodymyr Oleksandrovych Zelensky）办公室在Instagram上发布了一段标题为“我们在这里，我们在基辅，我们正在保卫乌克兰”的视频，视频中，泽连斯基和他的高级官员站在乌克兰总统府旁。
+乌克兰危机掌握在普京、习近平、美国总统和欧盟手里，都在玩乌克兰这张牌。美欧正利用乌克兰的国家安全消磨普习两人的意志：你们不打则被其内部政敌干掉，即使打内部政敌也一定搞死你。普习二人打乌克兰和台湾不存在任何恩怨问题，完全是两人政治安全、政治野心和政治利益的需要，跟国家利益、民族利益、民族恩怨没有任何关系！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/zelensky-video-.jpg)
+实际上被解除武装并被俄罗斯绑架而无能为力的乌克兰就是“锁链女”，俄罗斯就是贩卖人口的中共，美欧就是“锁链女”认的干爹。普京想把“锁链女”一直强霸下去，骨子里不喜欢苏俄的乌克兰从来没认真跟俄罗斯一起生活过。乌克兰和苏俄间的恩怨由来已久，但与中共国风马牛不相及，“习大帝”却怂恿并经济上支持普京打乌克兰。在这种情况下，普习达成交易并支持习打台湾，抱团取暖互相充当国际上的支持者，结果乌克兰和台湾就成了牺牲品。
 
-尽管乌克兰首都基辅很快会沦陷，很多人可能和我一样，在过去并不了解乌克兰和泽连斯基，但我想信，这一刻，很多人都会欣赏他的勇气。
+如打有约定、有限度的常规战美国一定赢，但经济上大家都会被拖垮。中俄联手后军事和经济互补情况下的局势就完全不同了，俄中军事上老二和老三的联手让美欧忌惮，真无所顾忌抡开了打时最后大家都得完蛋，这世界也就完了。
 
-但中共国媒体称报道，俄方称泽连斯基早已离开基辅，所有呼吁视频都是提前拍的。
+很不幸，普习两人这次玩大了，普京布局全球几年了，习近平放毒两年了，两人看到了美欧的懦弱与政治投机，且两人刚在北京的密谈认定美国没种，欧洲没能力。这就是普习两人嚣张得底气，因此乌克兰危机就来了，但现在谁也回不去了。如美欧在政治施压上再坚决一些并给普京一些好处和面子，让乌克兰作出一些承诺，北约也作出遵守《明斯克协议》绝对不东扩的承诺，也许普京就收手了。
 
-泽连斯基究竟是提前录制的视频还是现场拍摄的，对乌克兰人民抗击俄罗斯的入侵肯定非常重要，但此时，作为邪恶轴心国的中共，对泽连斯基任何负面报道，恐怕都不能相信。
+普京毕竟是大师级的国际政治家，其打乌克兰的姿势就玩得很高大上：我绝对打乌克兰，且打的气势就能吓死你欧盟，并给习留下作战时间，已让世界跌破眼镜。
 
-在这段视频中，泽连斯基对乌克兰人民说：“大家晚上好，各党派领袖都在这里，总统府的主要负责人都在这里，总理丹尼斯﹒什米哈尔在这里，总统办公室主任顾问米哈伊洛﹒波多利亚克在这里，总统在这里，我们都在这里。我们的军队在这里，公民和整个社会都在这里。我们都在这里捍卫我们的独立，我们的国家，它将继续如此。荣耀归于我们的捍卫者！荣耀归于我们勇敢的女性捍卫者！荣耀归于乌克兰！”。
+美国跟任何国家都有利益关系，但跟任何国家都没有长时间稳定的政治关系。在对待俄罗斯和中共这样邪恶的国家政权，没有一致性的国际政治关系延续是不管用的。但任何国际大事最终都取决于美国的态度，美国已表态侵略乌克兰的人一定被惩罚，包括跟乌克兰灾难相关的国家一个也不会放过，那不就是中共嘛！美国一定会重生并再次伟大！
 
-（”Good evening, everyone. Leader of the faction (party) is here, head of the president’s administration is here, Prime Minister (Denys) Shmyhal is here, (adviser to the head of the President’s Office Mykhailo) Podoliak is here. The president is here. We are all here. Our military is here. Citizens and society are here. We are all here defending our independence, our state and it will remain so. Glory to our defenders! Glory to our women defenders! Glory to Ukraine!”）
+新闻源于:
+[https://gtv.org/video/id=62123b3508ba8a07b19fce62](https://gtv.org/video/id=62123b3508ba8a07b19fce62)
 
-昨天，乌克兰军方表示，他们在基辅以南25英里的Vasylkiv 城附近击落了一架载有伞兵的俄罗斯军用Ilyushin Il-76重型运输机。6个小时前，两名直接了解乌克兰地面情况的美国官员称，第二架俄罗斯Ilyushin Il-76军用运输机在基辅以南50英里（85公里）的Bila Tserkva附近被击落。
+审核/编辑/发稿:qiutian（邱甜）
 
-目前，反对俄罗斯军队的街头战斗正在基辅进行中，乌克兰官方建议居民留在避难所，避免靠近窗户或阳台，并采取预防措施防止被碎片或子弹击中。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-7.png)
 
-泽连斯基24号在电话中告诉欧洲领导人，他是俄罗斯的头号目标，而且他们可能再也见不到他了，他的下落一直被保密。
-
-7小时前，美联社报道，一名美国官员证实，美国准备帮助乌克兰总统泽连斯基离开基辅，以免被入侵的俄罗斯军队俘虏或杀害，然而，泽连斯基拒绝离开他的国家。
-
-一位直接了解谈话内容的美国高级情报官员援引泽连斯基的话说，“战斗就在这里”，他需要反坦克的弹药，而“不是逃跑”（I need ammunition, ‘not a ride’）。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/FMfarZbaAAI_QyO.jpg)
-
-参考资料：
-
-[Ukraine’s Zelensky rejects US evacuation offer: I need ammunition, ‘not a ride’](https://www.timesofisrael.com/zelensky-rejects-us-evacuation-offer-from-ukraine-i-need-ammunition-not-a-ride/)
-
-[Rejecting US evacuation offer, Zelensky says: I need anti-tank ammo, ‘not a ride’](https://www.timesofisrael.com/liveblog-february-25-2022/)
-
-[俄方称泽连斯基早已离开基辅：所有呼吁视频都是提前拍的](https://sv.baidu.com/videoui/page/videoland?context=%7B%22nid%22%3A%22sv_8186707626548131376%22%2C%22sourceFrom%22%3A%22bjh%22%7D)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
