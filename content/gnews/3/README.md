@@ -2,116 +2,26 @@
 ---
 
 
-## 乌克兰危机：二战以来欧洲安全面临的最大威胁
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2066403/)
+## 痛斥俄罗斯的入侵恶行
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2066452/)
 
-**美国国务院**： 国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken)：这是二战以来欧洲安全所面临的最大威胁。 乌克兰处于危险之中。普京总统公然而粗暴地违反了几十年来维护欧洲和世界和平的法律和原则。
+**撰稿：日本东京方舟农场  分界线**
 
+一厢情愿的自我表达一切为了国家利益是流氓最为无耻的推脱之词，强词夺理的一面之词是魔鬼最善于利用去侵犯与伤害他人的借口。普京不顾生灵涂炭而铤而走险或为了个人疯狂的政治野心、或为了继续对政体的统治，于2月24日清晨发表全国讲话，宣布在乌克兰东部顿巴斯地区发起“特别军事行动”。随即不久，已经对乌克兰展开发动全面的武力入侵而震惊世界，尽管一切以假借爱国之名，却丝毫无法掩盖其经济及内政的乏善可陈。危机重重的独裁统治，到底是续命之战还是加速其政体倒台，现在不得而知！截至目前，俄罗斯对乌克兰宣战与入侵的恶行已经超过24小时，并纵深进行导弹轰炸了85处目标，地面多个方向攻入乌克兰，切尔诺贝利核电站已被占领，首都以及其它地方正遭受炮弹轰炸。据乌克兰内政部称，该国正遭受导弹和弹道行动报告的报道，基辅、哈尔科夫、哈尔科夫、波尔和第聂伯罗等主要城市附近的基础设施似乎成为俄罗斯攻击和侵略的目标。这是关于这场冲突的一些问题，它是怎样走到这一步的，俄罗斯为什么入侵，世界对此又有何反应和怎么应对，以及接下来会发生什么？我们拭目以待!
+![](https://assets.gnews.org/wp-content/uploads/2022/02/02-2.jpg)（图片取自美国之声）
+人类社会尽管早已进入二十一世纪，还会让我们看到与佐证一个国家去当面置入地吞并另一个国家，而侵略者还是宣扬主导和平的五大常任理事国之一，极其突出且毫无遮拦地向全世界展示了他们的狼子野心。他们邪恶地以人民的名义发起战争；无耻地以公平的名义收割财富；欺骗地以正义的噱头瓜分土地；狂傲地以国家的名义垄断市场；世界上的寡头哪管什么人间百姓疾苦？致使满目疮痍的土地上只有孤苦伶仃的平民百姓，给众多无辜的人瞬间造成担惊受怕甚至生命威胁的受害者。你们在游戏，哪管我们百姓血流成河；你们在角逐，哪管我们时刻缺衣少食；你们在狞笑，哪管我们亲情骨肉分离？你们只管一心梦想让权力、金钱、美女、美食、资源、土地、名誉世代在你们之间轮回流转，丑陋地把人民与公义把玩与控制在你们的股掌之间。其实，俄罗斯并不是什么 “突破底线”的疯狂之举，而是它们从来没有底线。流氓之所以有恃无恐，同时，也是西方绥靖主义盛行的恶果！西方国家对保卫乌克兰的决心不坚定是普京决定侵略的根本原因和底气所在，至于经济制裁则是不疼不痒的无济于事。只因俄罗斯在美国、联合国和欧洲各国对暴力的严峻警告、对和平的模糊保证的外交努力之后，依然对乌克兰发动袭击而入侵邻国、网络攻击的行径而去毅然决然地破坏这个世界的秩序、也让民主制度在全球范围内节节败退，瞬间致使二十一世纪变成一个黑暗的局面，导致历史正在迅速向野蛮倒退。
 
+乌克兰曾经是世界第三大规模的核拥有国，但是，为了人类的和平，为了世界的安宁，在1994年得到美国承诺保障乌克兰安全，同时，也是受到联合国和五大常任理事国联合保证，担保其国土安全和完整而不受他国侵犯的前提下，自愿放弃核武器的一个正义的国家。乌克兰认为，只要能够得到美国的保护就能维护本国的和平。而如今乌克兰了放弃核武器也没能实现和平的夙愿，就在今天他的国家遭到了来自他国的侵略与蹂躏。自从乌克兰放弃核武器至今，俄罗斯第一个背信弃义，悍然无视那些无辜的男人、女人和儿童的生命、乌克兰主权和领土完整以及国际法，对乌克兰发动有预谋、无端且无理的侵略与攻击。在此可以肯定的是，普京进攻乌克兰的得失，不论成功占领还是陷入长期消耗战，从经济上来讲都只有亏，赢的只有政治上的势力范围！在此也不禁要问，为什么普京如今这么强硬，西方列强如此颓废，看看俄入侵乌克兰之后西方主要国家的表现，意大利说要把奢侈品制裁排除在外，比利时说要把钻石生意排除在外，德国意大利比利时说要把银行制裁排除在外。面对二战之后，欧洲地区一个国家最大规模和残忍地入侵另一个国家，西方各国也心怀鬼胎的一盘散沙！此刻，第三次世界大战前奏已经打响！致使全世界一片慌乱！这个俄国希特勒将不断蚕食邻国，一直威风到把西方阵营被逼到墙角，和二次大战初期一模一样！而从今天的情势看，更是一副滑稽又让人悲伤的场面：乌克兰国家陷入危机，总统与外长呼吁国际组织予以支持，但西方国家则不紧不慢的细细讨论制裁政策，依然马照跑舞照跳。全世界就在这样一个轻描淡写的基因突变重，露出它张牙舞爪的狰狞模样。俄罗斯驻联合国代表还在窗明几净的安理会上争辩，这不是战争，只是一场特别行动。不知道大洋彼岸，正在慌乱逃往罗斯托夫的大批乌克兰难民们，会怎么看待这样的一句话。
 
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): This is the greatest threat to security in Europe since World War II. Ukraine is in danger. President Putin is blatantly and violently breaking the laws and principles that have kept the peace across Europe and around the world for decades. [https://t.co/E28ubxLTkU](https://t.co/E28ubxLTkU) [pic.twitter.com/UUtCUqD8nC](https://t.co/UUtCUqD8nC)
-> — Department of State (@StateDept) [February 25, 2022](https://twitter.com/StateDept/status/1497236405952593920?ref_src=twsrc%5Etfw)
+俄罗斯对乌克兰发动海、陆、空的全面攻击，促使乌克兰予以紧急回应。首都基辅已发布空袭警报，要求所有居民寻找地下避难所。面对强大的俄军，乌克兰孤军奋战，几乎不可能获胜；不去做正面冲突，保存力量，打全民游击战和持久战才有一线希望，让人欣慰的是，这个国家的男人，大多数的并没有逃跑与躲避，他们在国家最危难的紧急时刻，主动选择签字入伍，拿起武器去勇敢地保卫自己的家园，与国家荣辱与共。而当地部分商店仍在营业，包括超市、水果店及药店，当地人排队提款，有居民去超市购买瓶装水，市面暂时未见恐慌的场面。
 
+战争是个无情的绞肉机，冷血带走千万年轻士兵的生命，让无数家庭的普通人食不裹腹、家破人亡。有时，人类就是一个这么愚蠢的物种，不断的重蹈覆辙，永远地自相残杀。的确，战争是政治家的游戏，是战士们的坟场，是老百性的灾难；战争，是各方权势与群体利益的博弈，战争，是刽子手们寻求获得利益的角逐场。可无论怎样，最终，受到伤害最大的总是普通平民。战争的发起，往往也都是统治者一己之私利，而无论胜败，民众始终都是买单者。赢的，余生要饱受战争带来的痛苦与创伤；输的，失去财产、家园、亲人、甚至生命。正如英国作家乔治·奥威尔说：“所有的战争宣传、所有的叫嚣与跋扈、谎言和仇恨，都来自于那些从不上战场的人发起的。”因为，这里不是他们担心的世界，而是我们赖以生存的家园！在它崩溃和坍塌之后，则需要我们再去努力重建。因此，爱好正义自由的人们是永远不会被强权压服的！当自由与家园被强权剥夺时，反击就是唯一的选择！虽然，有人的地方就难免有战争发生，但是，我们也要时刻呼唤与祈愿世界和平，让和平的白鸽在空中自由翱翔，并祈祷造物主佑助那些为保护家园、家人以及和正义站在一方而战斗的人们！最终，一切反人类的恶行都将灰飞烟灭！
 
+参考链接：
 
-**参议员瑞克·斯科特**： 我们在乌克兰人民身上看到的坚强和决心是无与伦比的，但美国还是必须做得更多。我们必须发布对普京及其党羽的毁灭性的个人制裁，并聚焦于削弱俄罗斯的经济和寡头。
-
-
-
-> The strength & resolve we have seen from the Ukrainian people is incredible, but the U.S. must do more. 
-> 
-> We must issue devastating personal sanctions on Putin & his cronies & focus on crippling the Russian economy & the oligarchy.
-> — Rick Scott (@SenRickScott) [February 25, 2022](https://twitter.com/SenRickScott/status/1497205617794052098?ref_src=twsrc%5Etfw)
-
-
-
-**参议员汤姆·科顿**： 拜登白宫更可悲的弱点。 他们什么时候才能认清 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 不是我们的盟友？
-
-【转纽约时报：美国官员曾一再敦促 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 帮助避免乌克兰战争
-
-美国人向中共国官员提供了有关俄罗斯增兵的情报，希望 [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 介入，但一再遭到拒绝。据美国官员称，三个多月来，拜登政府高级官员与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 高级官员举行了六次紧急会议，美国人在会上提供了显示俄罗斯在乌克兰周围集结军队的情报，并恳求中共国告诉俄罗斯不要入侵。每次，包括外交部长和驻美大使在内的 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 官员都回绝美国人，称他们不认为入侵正在进行中。 官员们说，在去年 12 月的一次外交交流之后，美国官员得到的情报显示，[#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 已与莫斯科分享了这些信息，并告诉俄罗斯人，美国试图挑拨离间，而中共国不会阻碍俄罗斯的计划和行动。】
-
-
-
-> More pathetic weakness from the Biden White House. 
-> 
-> When will they recognize that the Chinese Communist Party is not our ally? [https://t.co/s2Rnco5TTu](https://t.co/s2Rnco5TTu)
-> — Tom Cotton (@TomCottonAR) [February 25, 2022](https://twitter.com/TomCottonAR/status/1497236882224078848?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎·布莱克本**： [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) 必须被逐出国际社会。 这是对美国和我们盟国的安全和保障的直接威胁。
-
-
-
-> Russia must be exiled from the international community. It is a direct threat to the safety and security of the United States and our allies.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 25, 2022](https://twitter.com/MarshaBlackburn/status/1497255247852544003?ref_src=twsrc%5Etfw)
-
-
-
-**前副国务卿基思·克拉奇**： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 独裁者 [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 已经明确表示他想吞并 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click)。至关重要的是,(使)他不会因普京入侵乌克兰而变得胆大妄为。我们和盟友采取强硬立场并承诺保护我们的朋友台湾比以往任何时候都更加重要。 【附视频：克拉奇接受玛丽亚采访,谈中共对台湾的威胁及美国与盟友保护台湾的重要性】
-
-
-
-> Communist dictator Xi Jinping has made it clear he wants to gobble up Taiwan. It's vital he's not emboldened by Putin's invasion of Ukraine. It's more important than ever that we and our allies take a tough stand and commit to protect our friend Taiwan. [https://t.co/7aLnTxPegU](https://t.co/7aLnTxPegU) [pic.twitter.com/Jeak9gXSGK](https://t.co/Jeak9gXSGK)
-> — Keith J. Krach (@KeithJKrach) [February 25, 2022](https://twitter.com/KeithJKrach/status/1497263939884826626?ref_src=twsrc%5Etfw)
-
-
-
-**参议员马可·卢比奥**： 普京计划的前 48 小时设想是，不要陷入城市，要占领基辅 [#Kyiv](https://twitter.com/hashtag/Kyiv?src=hashtag_click)，消灭最高政府领导人，并控制乌克兰的傀儡“最高委员会”
-
-正如一位伟大的哲学家曾经说过的那样：“每个人都有一个计划，直到他们被重重打脸”
-
-
-
-> The first 48 hours of [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)’s plan envisioned not getting bogged down in cities,capturing [#Kyiv](https://twitter.com/hashtag/Kyiv?src=hash&amp;ref_src=twsrc%5Etfw),eliminating top govt leaders & a puppet “Supreme Council” assuming control of [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> Well as a great philosopher once said “Everyone has a plan until they get punched in the face”
-> — Marco Rubio (@marcorubio) [February 25, 2022](https://twitter.com/marcorubio/status/1497269951941558274?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎·布莱克本**： 当拜登政府收到有关俄罗斯计划的情报时，他们竟直奔 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。 [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 做了什么？ 他将情报泄露给了普京。 乔·拜登的行为对我们的国家安全构成威胁，并使乌克兰失去了宝贵的时间和生命。
-
-
-
-> When the Biden administration received intel on Russia’s plans, they went straight to Communist China. What did Xi Jinping do? He leaked the intel to Putin.
-> 
-> Joe Biden’s actions are a threat to our national security and cost Ukraine precious time and lives.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 25, 2022](https://twitter.com/MarshaBlackburn/status/1497285592727621632?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克·沃尔茨**： 普京表示，他不仅要重建苏联，还要“拯救”他在前苏联共和国的俄罗斯族同胞。
-
-只要普京在 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 没有被威慑住，且欧洲仍然依赖他的天然气，他接下来很可能会进攻我们的波罗的海北约盟国。 【附视频：沃尔茨议员在福克斯新闻上谈乌克兰战争。基辅传出爆炸声，可能在几天内沦陷】
-
-
-
-> Putin's said he's not just going to reconstitute the Soviet Union, he's going to “save” his ethnic Russian brethren in former Soviet Republics.
-> 
-> As long as Putin isn't deterred in Ukraine & Europe remains dependent on his gas, he'll likely go for our Baltic NATO allies next. [pic.twitter.com/z1GdSSEbEG](https://t.co/z1GdSSEbEG)
-> — Rep. Mike Waltz (@michaelgwaltz) [February 25, 2022](https://twitter.com/michaelgwaltz/status/1497210020366147591?ref_src=twsrc%5Etfw)
-
-
-
-**美国国务院**： 国务院发言人内德·普赖斯 [@StateDeptSpox](https://twitter.com/StateDeptSpox)：美国人民与乌克兰人民站在一起，因为他们遭受了俄罗斯军队不公正、无端和有预谋的袭击。 我们对乌克兰的主权和领土完整的坚定支持不会动摇。
-
-
-
-> .[@StateDeptSpox](https://twitter.com/StateDeptSpox?ref_src=twsrc%5Etfw): The American people are standing with the people of Ukraine as they suffer an unjustified, unprovoked, and premeditated attack by Russia’s military forces. We will not falter in our resolute support for Ukraine’s sovereignty and territorial integrity. [pic.twitter.com/WAVnRb5fzw](https://t.co/WAVnRb5fzw)
-> — Department of State (@StateDept) [February 25, 2022](https://twitter.com/StateDept/status/1497294703619981327?ref_src=twsrc%5Etfw)
-
-
-
-**美国务卿安东尼·布林肯**： 俄罗斯对 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 的行为是不合情理的。 我与(乌克兰)外交部长 [@DmytroKuleba](https://twitter.com/DmytroKuleba) 就俄罗斯火箭发射，造成包括儿童在内的不断增加的平民死亡的报告进行了交谈。 所有那些犯下暴行的人都应该被追究责任。
-
-
-
-> Russia’s actions against Ukraine are unconscionable. I spoke with Foreign Minister [@DmytroKuleba](https://twitter.com/DmytroKuleba?ref_src=twsrc%5Etfw) about increasing reports of civilian deaths, including those of children, from Russian rocket launches. All who commit atrocities should be held to account.
-> — Secretary Antony Blinken (@SecBlinken) [February 25, 2022](https://twitter.com/SecBlinken/status/1497292207124099083?ref_src=twsrc%5Etfw)
-
-
+素材采编：分界线
+编辑：老孙
+发布：Linda
 
  
 
