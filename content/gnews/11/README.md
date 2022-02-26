@@ -2,44 +2,20 @@
 ---
 
 
-## 疫苗灾难之下最好的生意是火葬场，美国所有教堂全满
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2067593/)
+## 秘翻在线：安理会谴责决议案，中共投弃权票，并表示“对俄罗斯的制裁将造成更大的损失”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2067765/)
 
-G-TV视频链接：[https://gtv.org/video/id=62049b1e585ecc15d73faa14](https://gtv.org/video/id=62049b1e585ecc15d73faa14)
+撰稿: Eric Kim
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-88.jpg)图片来源：韩国联合新闻
+26日，中共国CCTV报道称，中共国驻联合国大使张军于25日(当地时间)对安理会对入侵乌克兰的俄罗斯的谴责决议案投了弃权票。
 
-**郭文贵先生：**然后疫苗经济大家去想吧，都没人干活了，到处死人，哪个经济能好呢？什么经济能好呢？不可能的啊。
+张军说道：“任何行动都应真正帮助解决危机, 而不是火上浇油。持续的制裁压力将导致更多的人员伤亡和财产损失以及与更加混乱的状况难以弥合的矛盾。这样的教训很痛苦，所以一定要深刻地接受。因此，中国对决议草案投了弃权票。”
 
-什么样的产业，现在最好的是火葬场，最好的生意是火葬场，卖骨灰盒的、烧人的。全美国所有的教堂全满。我们一个最重要的美国战友，我不能说你们都知道，最重要的美国战友，他的父亲过世了。现在要等着火葬场，这美国这么大人物要等火葬场。
+在这次美国主导的决议案除了谴责俄罗斯外，还包括了要求立即、完全、无条件从乌克兰撤军的内容。15个安理会理事国中有11个国家投了赞成票，俄罗斯表示反对，作为俄罗斯友邦的中共国、印度以及阿联酋(UAE)等3个国家也投了弃权票。
 
-中国那就别提了，中国的火葬场现在火到就已经就是，烧个人得给烧的费用5倍的黑钱才能烧。这还没开始呢，到今年5月份才是第一次的打了疫苗的周期的反应。按照我们科学家说的。
+信息来源: [https://news.naver.com/main/read.naver?mode=LS2D&mid=shm&sid1=104&sid2=231&oid=011&aid=0004023540](https://news.naver.com/main/read.naver?mode=LS2D&amp;mid=shm&amp;sid1=104&amp;sid2=231&amp;oid=011&amp;aid=0004023540)
 
-字幕来源：[2022年1月30日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1936606/)
-
-编辑整理：Jacques；
-
-字幕文件制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+责编：Eric Kim
 
  
 

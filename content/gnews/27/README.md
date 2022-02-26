@@ -2,30 +2,48 @@
 ---
 
 
-## 美国、欧盟和英国宣布制裁俄罗斯总统普京
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2067378/)
+## 战友未经授权不得以新中国联邦和农场名义参与政治游行
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2067641/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-24.jpg)美国、欧盟和英国宣布制裁俄罗斯总统普京 网络图片
-据美国之音2月26日报道，美国财政部25日宣布将冻结俄罗斯总统弗拉基米尔·普京和外长谢尔盖·拉夫罗夫的资产。美国这波制裁的目标是俄罗斯的银行、寡头和高科技领域，包括出口管控。欧盟对普京和拉夫罗夫的制裁更广泛，包括俄罗斯的银行、炼油厂和国防产业。英国首相呼吁把俄罗斯踢出国际银行转账系统(SWFIT)。
+G-TV视频链接：[https://gtv.org/video/id=620896e0b0af02660af30cdd](https://gtv.org/video/id=620896e0b0af02660af30cdd)
 
-乌克兰一直呼吁在SWIFT系统中封杀俄罗斯，并敦促欧洲对莫斯科实施更为有力的制裁。然而，一些欧洲国家，包括德国对此犹豫不决。作为对制裁的回应，俄罗斯方面也采取了制裁措施，包括禁止英国飞机飞越其领空。在此之前，英国对俄航实施了类似禁令。
+**郭文贵先生：**所以说兄弟姐妹们，一定要有心理准备，2022年经济糟糕、安全糟糕、生存环境糟糕，我们要做好防范。特别像加拿大大卡车抗议，最终我相信会成为暴力的，一定会成为暴力的。
 
-普京进攻乌克兰，一些国家对俄罗斯实施制裁，全球证券价格大跌，大宗商品价格蹿升，美国人的汽油价格也将会上涨。如果中共再发动对台湾的战争，全球会更加动荡不安。2022年疫苗灾难年，战争年。
+所以我们新中国联邦人千万你不能参与，别拿自己当根葱，你别拿自己弄太重要。而且任何农场，未经联盟委员会公开授权，谁打着旗子、新中国联邦的旗子，打着农场的名义参与这种政治抗议的，你都会被清理出新中国联邦委员会，你都会被清理出农场，你自己爱怎么去怎么去，你不能打着新中国联邦的名义和农场的名义。
 
-新闻参考链接：[https://www.voachinese.com/a/us-eu-britain-announce-sanctions-against-russian-president-20220225/6460195.html](https://www.voachinese.com/a/us-eu-britain-announce-sanctions-against-russian-president-20220225/6460195.html)
+因为共产党和西方的邪恶势力，最响的就是那个Isobel Yeung吃狗肉的，HBO这个家伙，把我们新中国联邦说成邪教。按照中国共产党的旨意把中国人、海外的华人都变成邪教、暴力分子。这两天Isobel Yeung的揭穿她真相的视频越来越少了，兄弟姐妹们，这是极为危险的。
 
-* * *
+任何人、新中国联邦和各农场，未经授权，任何人不能使用新中国联邦的旗子和爆料革命和各农场的名义，参加任何这当地政治游行。你像去年的川普总统的11.6国会山事件，
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+如果当时七哥不是在提前直播呼吁：我反对参加。你看这个事多大。结果我提前，七哥就这么聪明是吧，反对大家去，结果没给咱带上政治帽子。大家一定要小心，因为在海外的反华事件会非常夸张地发生。
 
+字幕来源：[2022年1月30日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1936606/)
 
-编辑：【英国伦敦喜庄园编辑部】
+编辑整理：Jacques；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+字幕文件制作：大好河山；
 
+视频制作及上传：Cindy；
 
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,25 +2,19 @@
 ---
 
 
-## 英国冻结普京财产 美国跟随
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2067427/)
+## 视频|揭露HBO VICE精心编织的谎言 Part-13
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2067672/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-87.jpg)
-图片来源： www.163.com
+制作：香草山视频部
 
-零对冲网2月25日报道，英国对俄罗斯总统弗拉第米尔·普京施行制裁，冻结其财产以惩罚他侵略乌克兰。
+HBO VICE记者杨贝贝在采访郭先生的过程中，依据一些伪类无中生有的说法，就一些根本不存在的问题向郭先生提问，试图诋毁郭先生欺骗投资者。播放的视频在混乱剪辑后，则只留下郭先生不断称杨贝贝撒谎的片段，故意贬低郭先生的形象。这里我们用原始采访进行反击，以揭露HBO利用虚假剪辑和问题陷阱构造谣言的卑鄙手段。
 
-据CNN报道美国预计今天将跟随此举。
+发稿：谐趣园
 
-欧盟周五正在计划冻结普京和其外交部长拉夫罗夫的财产作为新的制裁一揽子计划。
-
-该制裁一揽子计划预计今天下午获得批准，还包括一些俄罗斯工业和银行的账户。
-新的制裁不限制普京和拉夫罗夫的旅行，提示欧盟愿意维持可能的外交途径以解决俄罗斯在乌克兰的行动。
-
-从公开财务报表来看，普京本人几乎不拥有这些地方的任何财产，他每年收入1千万卢布，拥有三辆车和一套公寓房。
-
-##### 新闻来源： [UK Freezes Putin Assets, US To Follow](https://www.zerohedge.com/geopolitical/eu-set-freeze-putin-lavrov-assets)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
