@@ -2,57 +2,62 @@
 ---
 
 
-## 简述乌克兰民族独特性及危机来源
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2070063/)
+## 樱花FM|樱花深度报道：北京冬季奥运会的“体育洗白”宣传是柏林奥运会的翻版 维吾尔人大声疾呼中共对少数民族的残酷镇压（二）
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2070137/)
 
-作者：香草山农场—静言
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-8-4.png)
+(图片说明)西方民主国家一直在激烈争论是否要完全抵制这一有争议的事件，就像他们在 1936 年柏林夏季奥运会之前所做的那样
 
+![](https://lh6.googleusercontent.com/hN1APqxkZFJZlmLso2R-KrJqi53yj-g9g1an92GZ0qcg_RChM9giFzaoSvNFrmo6WLlztPaXbkJYLjqWDXFdyWvNJH9MhBiae4tZwUpKwarrXRQ8de2v_Jsk8HCw2mvkehn4iRI3)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-84.png)
+(图片说明)早在 30 年代，随着希特勒的法西斯政权作为一个全球大国崛起，争论的焦点是德国对犹太人的可恶待遇，以及参加奥运会是否会使竞争国家在某种程度上受到指责。图：希特勒在 1936 年柏林奥运会上
 
+![](https://lh6.googleusercontent.com/BtO7qQfwUw7-zk99CYPQpoeEUlk606WiiLqfIB9YCsrlNAqdhs7Xf1frjE1lg1lwxihVvuj49ZqukZPgxIWQCYrpKx8BGVwjBQtI_E8bMSSu8cXGeTptvLiWjVb45jNVnd1kEaME)
 
-当前，乌克兰危机重重，烟幕弥漫，时刻牵动着世界的脉搏。它的独特地理位置与历史，是了解目前状况的重要因素。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1123.001.jpeg)图源网络
-乌克兰地处欧亚大草原断层线，是东西方相交之处，自古以来都是通往欧洲的门户。当发生战争和冲突之时，乌克兰成为阻挡东来或西来侵略者的屏障；而当欧洲之门开启，乌克兰又成为连接欧亚或东西方的枢纽。
+(图片说明) “他想展示雅利安人的至高无上——但当然，美国黑人运动员杰西欧文斯（如图）“单枪匹马粉碎了希特勒的雅利安霸权神话”，赢得四枚金牌，”巴卡博士说
 
-从希罗多德时代开始，乌克兰经历了两千年来帝国的起起落落，世界秩序在这一片土地上多次变更。定居民族和游牧民族，东正教与天主教等不同文明在此碰撞，塑造出乌克兰独特的边境身份。从罗马帝国到奥斯曼帝国，从哈布斯堡王朝到罗曼诺夫王朝，甚至到希特勒的第三帝国，每个帝国、王朝时期都索求乌克兰的土地与财富，期望在这片土地上留下些印记。直到今日，乌克兰仍是东西方力量冲突的焦点。
+“中国的种族灭绝和种族清洗在什么时候能够引起国际社会足够重视？” ——拉米拉·查尼舍夫
 
-乌克兰是多民族聚居地，除乌克兰人以外还有波兰人、犹太人和俄罗斯人。乌克兰文化向来都与其他文化共享生存空间，更是在夹缝中求生。从文化趋势来看，当代乌克兰是两条移动中的边界相互作用的产物。一条边界由欧亚大草原和东欧稀树草原的分界线确定，这同时还是定居人口与游牧人口之间的分界线，最终将基督教世界与伊斯兰教世界分隔开来。另一条边界则由东方基督教和西方基督教的分界线确定，这可以回溯到罗马和君士坦丁堡对罗马帝国的分裂。这条边界是欧洲东部和西部政治文化差异的标志。
+现居住在阿德莱德的澳大利亚维吾尔唐格里塔妇女协会(Australian Uyghur Tangritagh Women’s Association)主席拉米拉·查尼舍夫(Ramila Chanisheff)向《每日邮报》澳大利亚透露，海外维吾尔人“与他们的朋友和家人失去了完整的沟通”。
 
-现代乌克兰人的先辈，曾在数十个公国、王国和帝国统治下生活。在时间的长河中他们获得了各种各样的名称和身份。到了19世纪，乌克兰民族的缔造者们终结混乱，将他们与其他居民尤其是俄罗斯人区别开来，采用乌克兰这个名称。直到1991年独立建立乌克兰国家开始，这个国家的公民不管其族群背景，都被称为“乌克兰人”。
+她说：“过去，很多维吾尔人能够与家人交谈，但在过去六个月左右的时间里，他们一直被切断了联系。”
 
-如果说一个民族在人类历史长河中有其独特贡献，乌克兰人绝对值得大写一笔。 仅就近现代几次世界历史巨变，就有乌克兰人的独有贡献。
+这也发生在2008年北京夏季奥运会之前，是专制政权在任何重大事件之前的常用策略。
 
-1991年12月，乌克兰公民选择独立，这在世界造成了巨大反响，改变了历史的走向：乌克兰公投之后一个星期，强大的苏联就解体了，美国总统乔治布什随之宣布，西方在漫长而艰难的冷战中取得了最后胜利。记住，就在1991年，乌克兰成为冷战宣告落幕之地。
+查尼舍夫女士说：“人们被警告不要发声，也不要与海外任何人交流，这样外界就不知道那里真正发生了什么。”
 
-2004年这一年，身着橙色衣衫的乌克兰群众挤满了基辅的广场与街道，要求举行公平的选举，并最终达到了目的。这一活动被称为“橙色革命”。随后诸多国家发生撼动威权统治的“颜色革命”。
+“我的表弟被关押在劳教所，每周只出来看望他的妻子和孩子，然后被带回。但每次他出去时，我都会试着打电话看看他是否还好，但我们被告知他不在。
 
-2013年11月到12月间，乌克兰人们再次走上基辅大街，支持国家与欧盟建立更紧密的联系。此时正值欧盟各成员国对联盟的热情降至低点，乌克兰人却不顾严寒，日复一日、月复一月地在街上游行坚守，令西欧和中欧国家的公民们感到震惊和鼓舞。
+“一个正在犯下种族灭绝罪行的国家怎么能被授予一项享有盛誉的体育赛事？
 
-2014年年初，乌克兰国内形势出现了意外而悲剧性的转折，抗议者与政府部队之间发生暴力对抗，防暴警察和当局的狙击手向抗议者开枪，导致数十名亲欧盟抗议者死伤。同年，俄罗斯对克里米亚的吞并企图，以及乌克兰东部顿巴斯地区策动的混合战，亲俄分离主义者更是将这场俄乌冲突，变成了一场真正的国际冲突。乌克兰局势的发展对欧洲和国际事务产生了巨大的冲击，政客们开始谈论“为欧洲的未来而战”和回到冷战的话题。这也是延续至今，被世界所关注的乌克兰危机的历史沿革，更被俄中两个独裁政权利用威胁美国与欧洲的成因。
+“中国的种族灭绝和种族清洗在什么时候能够引起国际社会足够的重视？”
 
-参考来源：
+![](https://lh5.googleusercontent.com/MTdl-cG13I1LIK10LQsfbiG-sMQKQk8VJbkkLU2c-wJzeMmOiTL_g5ZlJVzAl65em23ms8C4KR1NL0eldrsigsM5_U0kqByKW7PeJRE0bsIF0XPuI6yzUGVADf9jJKHbF98mNi13)
 
-《欧洲之门：乌克兰2000年史》（作者：浦洛基）
+(图片说明)据估计，有超过一百万维吾尔人被围捕并投入劳改营，在那里他们面临酷刑、国家支持的器官摘取甚至绝育的威胁，联合国和各种人权组织声称。图为：习近平在山西省北京冬奥会前与居民打招呼，合影留念
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-65.jpg)
+![](https://lh4.googleusercontent.com/3fs8B0yCpzWkuqq9bwFhcRRK5FIgv0xGQCbtxa_BqCe56U5V4-cdUWNcrNXGDTqSYTFDkD8tBm6MNOAUesLwtqINRTVPbQBLe6TUglNSpj70vRIBbpwunmlIvbirlJsxnmo2v_nf)
 
-编辑/校对/发稿：兰兰
+(图片说明)中国张家口，2022 年冬奥会前夕，一名单板滑雪运动员在赛场训练中进行跳跃
 
-**更多资讯，更多关注**
+![](https://lh6.googleusercontent.com/X9B0Z1MOQ7K436lLyX5yeqruJTT6FBs7tkO3uKTz3nyIzR8OK0bKdBGuJ0nV9-iQJg_BP1gLJXgSgafV4pafeX3Tes_98Dmcp_aKbkq3PTzNLGG0o5Np0P_8bJcGeOYEtT8KKTny)
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+(图片说明)中国张家口 2022 年冬奥会前，一名工人飞过赛道
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+![](https://lh5.googleusercontent.com/JeSpWhpYozuuM1zqbqbIap20CCp42rVNqNq-DJfkyGBeCWSOESGcVR7Sa4R22lSGuZz-KO7woOcMGjEz4MzdYrh0EqPLfGKY-y_1xdnvn9NwUT-Ykt4_AUb18aiWjRbPQZE5OahK)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+(图片说明)中国张家口 2022 年冬奥会前，三名滑雪者在赛场上训练
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（未完待续）
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+文字版原文：
 
+[樱花深度报道┃北京冬季奥运会的“体育洗白”宣传是柏林奥运会的翻版 维吾尔人大声疾呼中共对少数民族的残酷镇压（二） – GNEWS](https://gnews.org/zh-hans/1935328/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-85.png)
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
 
 
  

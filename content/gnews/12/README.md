@@ -2,26 +2,32 @@
 ---
 
 
-## 俄侵略乌克兰遭致体育界围剿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070174/)
+## 自由之家预警 世界自由民主正在衰落
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070221/)
 
-撰稿：东京樱花团/麗子
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月25日，据相关媒体报道，人权组织“自由之家”当天公布了《2022年全球自由报告》。当中，该组织警告称，全球民主已经连续16年持续衰退，独裁集权越来越有可能会取代民主，成为国际上治理国家的常见模式。该报道也提到，近日，普京下令入侵乌克兰的举动更加表明了威权势力正在崛起。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-26-上午9.44.19.png)
+该报告还指出，在过去一年中，全球有60个国家遭遇了民主衰落的困境，世界上还有约38%的人口依然居住在不自由的国家中，而居住在自由过度的民众只占全球总人口的20%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/俄侵略乌克兰遭致体育界围剿.jpg)[图片来源](https://www.sponichi.co.jp/sports/news/2019/12/11/kiji/20191211s00048000066000c.html)
+尽管全球民主现状堪忧，但报告显示，台湾的自由民主指数达到了94分的高分，在世界自由国家中排名第17，亚洲区则仅次于日本。相反的，中共国在“政治权利”方面得负2分，“公民自由”只有11分，总自由民主指数为9分，再度被列为不自由国家。另外，香港此次只获得了43分，较之去年再降9分，被认定为“部分自由”地区。
 
-体育界开始对侵略乌克兰的俄罗斯实施“围剿”。25日，国际奥林匹克委员会（IOC）宣布，将要求所有国际单项联合会（IF）取消在俄罗斯以及白俄罗斯举行的运动会，或另选场地举行。在足球领域，也出现了排除俄罗斯赞助商的举动。
+参考链接：[自由之家全球報告 台灣94高分亞洲第2、中國僅9分](https://news.ltn.com.tw/news/world/breakingnews/3840734)
 
-国际奥委会还要求两国国旗和国歌不得在国际比赛中使用。已决定取消IF主办的网球锦标赛、5月的柔道大满贯喀山锦标赛以及世界花样游泳比赛和跳水系列赛（4 月喀山）。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-对比IOC无视多国外交抵制，依然在实施种族灭绝的中共国举办北京冬奥，此次对俄罗斯侵略事件处理还算符合一个国际组织的基本底线。
+总编：Irene木木
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-信息源:
-
-[スポーツ界にロシア包囲網　大会中止、協賛解除も](https://news.yahoo.co.jp/articles/7cd2fff962d1eb375285553ca58977080daf5b18)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

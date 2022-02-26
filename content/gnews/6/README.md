@@ -2,36 +2,25 @@
 ---
 
 
-## 合法运用HCoin和HPay的非凡流通能力
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070219/)
+## 樱花FM|中日财经爆：大发疫苗血财之后，智飞生物向员工派股
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2070268/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2月25日大直播中再次解析了HCoin和HPay所具有的抗通胀和保值能力。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-26-上午9.43.49.png)
-郭先生表示，未来，世界将长期陷入动荡局势之中，民众游行抗议活动频发，其所造成的后果就是物价飞涨，而这势必将影响到各国政府的统治。彼时，基于国家主权的法币将不再占据某地区的垄断地位，数字货币将与法币共存。在此情况下，人们对货币的选择只会基于区域性、民族性和行业性，数字货币将满足不同人士、不同族群之间的流通需要。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-12-2.png)
+1月28日晚间，智飞生物(300122)发布公告，在当日召开的董事会上，审议并通过了《共同富裕之员工持股计划草案(2022)》，此次计划筹集资金总额不超过16亿元，计划份额合计不超过16亿份，每份额金额为1元。
 
-郭先生还补充道，过去一百年中人类社会的灾难导致货币具有不稳定和不安全的特性，但HCoin和HPay可以完美解决这些痛点。因此，喜联储将会成为未来数字货币时代的规则制订者。
+此次智飞生物员工持股计划规定，参加对象总人数不超过2000人。其中，参加其中参加员工持股计划的董、监、高人员共计14人，合计认购份额不超过5.42亿份，占员工持股计划总份额的比例不超过33.88%；其他员工合计认购份额不超过10.58亿份，占员工持股计划总份额的比例不超过66.13%；员工持股计划的参加对象在认购计划份额后即成为计划的份额持有人，资金来源为其合法薪酬、自筹资金和法律、行政法规允许的其他方式。
 
-另一方面，郭先生也提醒战友们遵守喜联储的法律规则并坚持唯真不破。尤其在HPay的市场推广过程中，参与的商家一定要拥有合法的账户才能进行商业性的交易，任何人绝不能伤害喜联储的信誉。此外，战友私人之间的转账必须完全依照双方的约定进行。
+草案指出，员工持股计划的存续期为48个月，自[股东](http://data.eastmoney.com/gdfx/)大会审议通过员工持股计划并且员工持股计划认购之日起计算，存续期满可展期；员工持股计划所涉及的标的股票锁定期届满，且员工持股计划资产均为货币资金时，经管理委员会同意，员工持股计划可提前终止；员工持股计划的锁定期为12个月，自智飞生物公告最后一笔标的股票过户时起算。1月24日晚间，智飞生物已发布公告，预计2021年净利润99亿元~105.6亿元，同比增长200%~220%。
 
-郭先生最后强调，HPay是最快、最安全且合法无痕的个人转账系统，其将成为流通方式中的上佳之选。为此，战友们一定要在法律和规则的框架下充分发挥HCoin和HPay非凡的自由流通性。
+文字版原文：
+[中日财经爆┃大发疫苗血财之后，智飞生物向员工派股 – GNEWS](https://gnews.org/zh-hans/1933737/)
 
-参考链接：[2022年2月25日 文贵大直播](https://gtv.org/video/id=6218d34708ba8a07b1a341e7)
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：Irene木木
-编辑：宁文静
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

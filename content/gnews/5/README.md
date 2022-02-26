@@ -2,36 +2,31 @@
 ---
 
 
-## 俄罗斯全面发动入侵乌克兰的战争
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070220/)
+## 樱花FM|中日财经爆：房企2022年美元债兑付高峰将至 暴雷名单近期逐一揭晓
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2070289/)
 
-作者：纽约香草山健身部—Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月24日凌晨，据盖特和其他媒体消息显示，俄罗斯正在从三个主要方向对乌克兰发起大规模的入侵，且俄军采用的主要袭击方式为空袭和导弹。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-26-上午9.43.57.png)
-据悉，乌克兰已经有137名公民死亡，169人受伤。但面对俄军发起的陆、海、空全面入侵，乌克兰总统泽连斯基向全国民众呼吁，希望愿意保家卫国的乌克兰人能挺身而出，政府将为其配发武器。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-13-2.png)
+Wind数据显示，2022—2025年是房企美元债兑付高峰期，房企海外债到期余额分别为273.25亿美元、182.8亿美元、190.32亿美元及179.94亿美元，其中2022年偿债压力集中于上半年。
 
-与此同时，台湾危机成为继乌克兰之后全球关注的重点问题。对此，郭文贵先生也在当天的紧急直播中指出，共产党一定会攻打台湾，新中国联邦必须马上组织起来，全力以赴地向愿意撤出台湾的战友和台湾同胞们提供援助，在所不辞。另一方面，郭先生也呼吁墙内的同胞远离军事设施与基地，一定要保护好自己和家人的安全。
+据不完全统计，截至一季度末，上市房企共有43只存量美元债券到期，涉及41家房企，发行总额超157亿美元。
 
-郭先生强调，台海危机一触即发，已经迫在眉睫。
+其中，1月到期的债券数量最多，共有21只，即将到来的3月偿债压力也不小，偿还额度近70亿美元，已经深陷债务泥沼的中国恒大将迎来一笔20.25亿美元债的到期。
 
-参考链接：
-1）[https://gettr.com/post/pwm1d5ab4e](https://gettr.com/post/pwm1d5ab4e)
-2）[As it happened: Ukraine deaths as battles rage on day one of Russian invasion](https://www.bbc.com/news/live/world-europe-60454795)
+但截至目前，仅旭辉、中梁、上坤等几家企业对外宣称，已将1月到期美元债的兑付资金汇至投资者指定账户。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+对于大多数房企来说，当前这个节点，偿债依然是难以跨越的障碍，甚至有房企直接选择“躺平”。1月19日，中国奥园公告称，其将不会为即将于2022年1月20日本金总额为1.88亿美元及1月23日到期本金总额为5亿美元的美元票据支付余下本金及最后一期利息；此外，在30天宽限期届满后，其也将不会支付于2023年6月到期本金总额为2亿美元、2024年6月到期本金总额为2亿美元的美元票据项下的最新一期利息。
 
-总编：Irene木木
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+除了奥园外，新力也公告称1月24日到期的2.42亿美元发生交叉违约。 截至1月28日，一季度美元债超过5亿美元主体还有中国金茂、雅居乐、融信中国、盈大地产、中骏集团等，20.25亿美元的到期债券也将令恒大的债务难题雪上加霜，这些美元债将何去何从，答案将在近期逐一揭晓。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+文字版原文：
+[中日财经爆┃房企2022年美元债兑付高峰将至 暴雷名单近期逐一揭晓 – GNEWS](https://gnews.org/zh-hans/1933720/)
+
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

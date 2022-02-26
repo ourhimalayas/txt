@@ -2,26 +2,51 @@
 ---
 
 
-## 中日财经爆┃烂尾楼威胁政权安全？法院判决购房人不用还月供
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070018/)
+## 有声|俄罗斯总统普京宣布在乌克兰开展军事行动
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2070019/)
 
-撰稿：东京樱花团/知了知了
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image003-20.jpg)
+据美联社于2022 年2 月24 日报道：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/烂尾楼威胁政权安全？法院判决购房人不用还月供.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi.ytimg.com%2Fvi%2FyPyOBcmw04s%2Fmaxresdefault.jpg&amp;imgrefurl=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DyPyOBcmw04s&amp;tbnid=0yQljue-4_Pz5M&amp;vet=12ahUKEwiGoJitup32AhWNIjQIHUduAIYQMygGegUIARCqAQ..i&amp;docid=4DYXbrQ73SyfTM&amp;w=1280&amp;h=720&amp;q=%E7%83%82%E5%B0%BE%E6%A5%BC&amp;ved=2ahUKEwiGoJitup32AhWNIjQIHUduAIYQMygGegUIARCqAQ)
+俄罗斯总统普京(Vladimir Putin)周四宣布在乌克兰开展军事行动，普京警告其他国家，任何干涉俄罗斯行动的企图都将导致“他们从未见过的后果”。
 
-近日，浙江省嘉兴市中级人民法院发布的一则案例引发关注，因楼盘烂尾、开发商申请破产，该法院判决商品房买卖合同被确认无效，由开发商承担剩余贷款的还款责任，而不是购房人。2015年青海出现了个类似的官司，最高法于2020年做出判决开发商向银行偿还按揭款，并于2021年发布。
+普京在电视讲话中指责美国及其盟友无视俄罗斯阻止乌克兰加入北约，并向莫斯科提供安全保证的要求。他说，俄罗斯的目标不是占领乌克兰。
 
-中共国最不缺的就是烂尾楼，无论那个城市均有数栋乃至数十栋烂尾名著。自从1992年5月银行放出第一笔房贷始，只有也仅有最近两起，楼盘烂尾后，购房者与开发商购房合同失效，可以不还月供的判例。
+美国总统乔·拜登谴责对乌克兰的“无端和无理”袭击，并表示世界将“追究俄罗斯的责任”。
 
-一切有利于普通购房人的判决，在中共国几乎是不可能发生的事情。近期两个案件中购房者的胜诉，绝不是法治的结果，而是大量房企陷入债务危机，无力完成房屋建设和交付，届时烂尾楼遍地，会引发大量的群众事件，威胁政权安全，由此才做出了看似有利于普通购房者的判决。中共国房地产已经处于崩溃的前夕，中共政权已经在有针对性地拆卸压力，但这个雷太大，他们背不住。
+就在普京讲话时，基辅、哈尔科夫和乌克兰其他地区都听到了巨大的爆炸声。
 
-信息来源：
+就此，联合国秘书长安东尼奥·古特雷斯告诉俄罗斯总统普京不要派遣俄罗斯军队对抗乌克兰，并且，称要“给和平一个机会”。
 
-[判了！楼盘烂尾后，购房人不用还月供，快看需要怎么做](https://www.163.com/dy/article/H1549RN50519C6T9.html)
+根据周四消息，目前乌克兰全境的领空已被禁止民用空中交通。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+俄乌冲突以及对俄罗斯的制裁可能会在全世界产生影响，波及欧洲的能源供应，震动全球金融市场。
+
+
+
+[【援引链接】](https://apnews.com/article/russia-ukraine-business-new-zealand-australia-europe-08ae29f98152817b1b503b4b957c63f1)
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
