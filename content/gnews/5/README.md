@@ -2,10 +2,10 @@
 ---
 
 
-## 美国不会派军前往乌克兰
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2068731/)
+## 欧盟领导人对俄罗斯实施金融制裁和技术限制
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2068733/)
 
-02/24/2022 拜登总统：美国军队现在和将来都不会参与到与俄罗斯在乌克兰的冲突中去，而只是为捍卫我们北约的盟友。
+02/24/2022 欧盟将制裁70%的俄罗斯银行市场，宣布对半导体、能源和航空航天部门实施签证限制和技术遏制。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
