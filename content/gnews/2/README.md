@@ -2,29 +2,56 @@
 ---
 
 
-## 中共官场的特色治理 “零目标”
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2068814/)
+## Steve Cortes认为中共入侵台湾的风险正在急剧上升
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2068947/)
 
-**撰稿：蓝莲花农场 | NFSC小兆**
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-从中共国的疫情出现后，不管是当地哪个城市。他们首要做的政治手段就是“清零政策”！不去管社会的问题和百姓的疾苦，就是一股脑的要达到政治上的清理目标。最令人大跌眼镜的是，在陕西发生疫情后，当地官方就很快开始着手清理计划，而他们的计划是就把所谓的确诊患者转移到偏僻的地方或者当地的隔离点，这样就算是他们所说的清零了，这就是中共一惯使用的手段数字造假、人工清零。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-273.png)图片来源：微博&网易
+2月25日，美国前总统川普2016和2020年竞选团队高级顾问Steve Cortes在参加Steve Bannon的[The War Room](https://warroom.org/)时，从经济的角度分析，中共入侵台湾的风险正在急剧上升。
 
-除了这些疫情时期出现的荒唐清零政策以外，还有零信访、零事故、零案件、零矛盾、零贫困等等荒唐滑稽的政策。这就是中共治下的国家，整个社会混乱不堪。有冤的人去上访伸冤，反而被当地中共的恶霸给暴打和囚禁。在这些所谓清零政绩下，全都是以老百姓的苦难堆积而成的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/steve-cortes-taiwan-1-1.jpg)
 
-再是所谓的贫困清零，用的招式手段也是如出一辙。下级瞒上级，地方官员互相坑骗脱贫款，这里面的所有的钱全都是老百姓的纳税钱被他们挥霍。而中共所说的脱贫到底是多少才算脱贫呢？我在山西省政府的官网里查到，在2020年公布的当地一个脱贫标准为，年收入4000元人民币，换算成每月是333元人民币。这就是共产党所说的脱贫标准，就算能达到吃喝的最低程度，但是只要随便发生一场大病那么这全家都会破产，根本没有余钱来看病，更别提生活上的其他必需品，连孩子上学费用都不够，这就是中共每天喊的所谓的脱贫！
+Steve Cortes是 1970年出生于美国伊利诺伊州（illioins）南芝加哥的哥伦比亚后裔，著名市场策略师、作家和电视节目主持人，Bloomberg Business, CNBC及Fox News评论员，Veracruz LLC.创始人。2016年和2020年，担任川普竞选团队顾问。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-106.png)图片来源：微博&山西政府网
+![](https://assets.gnews.org/wp-content/uploads/2022/02/E2Qh5AeWQAIz6rV.jpg)
 
-中共的疫情清零，上访清零，贫困清零等等清零，全都是中共为了面子工程、为了政绩好看而做出的荒唐政策手段，对老百姓来说是百害而无一利。由于中共掌握了媒体，每天宣传自己的伟光正，很多老百姓不明真相，中共说什么他们就信什么，最终被洗脑是不可避免的，但还是有一些百姓看清了中共的真面目。在如今网络发达的时代， 不像过去做什么丑陋的事遮掩住，外面人就不知道了。但是现在人人都有手机，人人都能接收资讯，中共现在做的所有丑事恶事全都会曝光于网络。那些看清中共真相的人只会越来越多，而中共想苟延残喘续命的机会只会越来越少。
+Steve Cortes在班农节目中说，由于白宫有一个软弱的领导人，西方现在甚至不愿意对莫斯科（入侵乌克兰）采取严肃的行动，中共和俄罗斯这个邪恶轴心的兴起，中共内部越来越有底气可以在台湾采取行动。中共进攻台湾的时机可能已经成熟。
 
-校对/发布：一叶知秋
+市场方面，台湾半导体（Taiwan Semiconductor Mfg. Co. Ltd.，台积电）是世界上最大的公司之一，市值5000亿美元，员工50,000人，绝对是美国和全世界的芯片生产中心。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+台积电的股价自1月14日以来的五个星期，正式进入熊市，由当时的最高点145美元下跌到110美元，昨天甚至下探至全年最低点104美元。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-26_17-00-55.png)
+
+Steve Cortes认为，台湾半导体绝对是一个风向标，告诉我们中共入侵台湾的风险正在急剧上升，一旦台湾开战，乌克兰局势就显得平淡无奇了，台湾将成为全世界关注的热点。
+
+在俄罗斯入侵乌克兰之后，美国总统拜登前天宣布，制裁4 家俄罗斯银行，但不会制裁俄罗斯石油，甚至在三天前，拜登冻结了美国所有新的石油和天然气钻探项目。
+
+中共外交部在回答路透社记者“为应对欧盟和美国对俄罗斯实施的制裁，中方会增加采购俄罗斯石油吗？”提问时说，“我们一贯反对任何非法单边制裁。我们要求有关方在处理乌克兰问题和对俄关系时，不得损害中方和其他方面正当权益。中俄之间本着相互尊重、平等互利的精神开展正常的贸易合作。”
+
+翻译成人话就是，中共反对对俄罗斯制裁，无论国际社会如何制裁，中俄邪恶轴心不会改变，中共将一如既往的向俄爹输送利益！
+
+2月25日下午，习猪头同俄罗斯总统普京通电话，习太阳说，中共“根据乌克兰问题本身的是非曲直决定中方立场”，要“摒弃冷战思维”！看来习猪头真想打热战！
+
+参考数据：
+
+[Steve Cortes Reveals Major Signal of Communist China’s Move on Taiwan (VIDEO)](https://www.thegatewaypundit.com/2022/02/steve-cortes-reveals-major-signal-communist-chinas-move-taiwan-video/)
+
+[习近平同俄罗斯总统普京通电话](https://www.mfa.gov.cn/zyxw/202202/t20220225_10645684.shtml)
+
+[2022年2月25日外交部发言人汪文斌主持例行记者会](https://www.mfa.gov.cn/fyrbt_673021/202202/t20220225_10645686.shtml)
+
+[俄罗斯精锐近卫军杀进乌克兰首都基辅！中国撂下一句狠话！](https://www.163.com/dy/article/H14R7EN80552FDOB.html)
+
+[Taiwan Semiconductor Mfg. Co. Ltd.](https://www.tsmc.com/english)
+
+[Steve Cortes Biograph & Age, Wiki, Height, Weight, Girlfriend, Family & More](https://www.marathi.tv/political-analyst/steve-cortes/)
+
+[Steve Cortes CNN, CNBC, Wiki, Bio, Age, Birth Place, Wife, Kids, Trump, Salary and Net Worth](https://www.wiki.ng/en/wiki/steve-cortes-cnn-cnbc-wiki-bio-age-birth-place-wife-kids-trump-salary-and-net-worth-480614)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
