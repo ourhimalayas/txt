@@ -2,88 +2,76 @@
 ---
 
 
-## 中共丰县“失守”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2066262/)
+## 安东尼·布林肯宣布，我们将向北约东翼增派部队，以阻止和防御任何针对我们盟国的俄罗斯侵略
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2066413/)
 
-作者：木林
+[https://gtv.org/video/id=621891231408ee3a03a49758](https://gtv.org/video/id=621891231408ee3a03a49758)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/233d0345-52af-4ac8-ba11-2221600fae43.jpg)图片来源：gettr.com
+Antony Blinken (Secretary of State)
+安东尼·布林肯（国务卿）
 
-【接上篇：[“锁链女”到底是谁？](https://gnews.org/zh-hans/2058766/)】
+just as the President said we would do
+就像总统说的我们会做的那样
 
-丰县地方政府，想凭借短短的一篇“情况说明”让刚刚发生的“八孩妈妈”事件草草了事。但是“锁链女”的真实身份依旧是扑朔迷离。虽然国内的大部分网友早已习惯了中共各级政府那种颐指气使、高高在上的“官老爷”的姿态。但网友们并不傻，网友们的良心也并没有泯灭。面对如此草菅人命的作为，千千万万个网友们在继续挖掘、“研究”、探索着这件事情的真相。而良心泯灭的中共政权，依旧在继续进行着它们那愚蠢、拙劣的表演……
+Today the Department of Defense announced
+今天国防部宣布
 
-**中共丰县“失守”**
+that we will be sending additional forces to NATO’s eastern flank
+我们将向北约东翼增派部队
 
-自1996年“李莹”失踪一案被网友们“扒”出之后，事件继续发酵。时隔两日，丰县地方政府于2022年1月30日，又忙不迭的以“丰县联合调查组”的名义发出了第二份通报。
+to deter and defend against any Russian aggression directed at our allies
+来阻止和防御任何针对我们盟国的俄罗斯侵略
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-1-29.png)
+We also made clear that if Russia invaded Ukraine
+我们还明确表示，如果俄罗斯入侵乌克兰
 
-这一篇明显比第一次的“情况说明”多了很多字数的“调查通报”，简单的来说，无非便是：“当事人是捡来的，我们查过了，不要瞎猜了，当事人有精神疾病……”文末，无耻的丰县政府还没忘记宣扬了一下它们对这个贫困家庭的救助。
+we would act with Germany to ensure
+我们将与德国合作以确保
 
-面对一份这样的漏洞百出、通篇扯谎、“自己抽自己嘴巴”的“通报”，全国关心此事件的网友，难道就能接受这样一个交代吗？
+that the Nord Stream 2 pipeline does not move forward
+Nord Stream 2（北溪2）管道不会继续推进
 
-答案显然是否定的，“锁链女”的舆情更加火热了……
+Today, Chancellor Scholtz announced the German government
+今天，德国总理舒尔茨宣布德国政府
 
-不久，便有网友曝出了“八个孩子的爸爸”董志民的结婚证书。
+is suspending that pipeline indefinitely
+正在无限期暂停该管道
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-3-18.png)
+We’ve been in close consultation with Germany throughout this process
+在整个过程中，我们一直与德国密切协商
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-2-19.png)
+We welcome the swift and decisive action
+我们欢迎迅速果断的行动
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-4-13.png)
+And we’re executing a plan in close coordination with allies
+我们正在与盟友密切协调执行一项计划
 
-从网友爆料的结婚证书照片我们可以很清楚的看到，“锁链女”在丰县登记的名字叫做“杨庆侠”（结婚证书中所手写的“扬”后被中共官方称之为笔误）。登记的出生日期为1969年6月6日。
+and partners to secure the stability of global energy supplies
+和合作伙伴确保全球能源供应的稳定
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-5-13.png)
+which is in all of our interests
+这符合我们所有人的利益
 
-该证书所登记的时间是1998年8月2日。可以很明显的看出，前面日期的字体，和后面日期的字体是不同的。并且1998年8月2日，正好是星期日，按照国内的习惯，星期日民政部门是不上班的。
+**原视频链接**[https://twitter.com/statedept/status/1496333999555424262?s=24](https://twitter.com/statedept/status/1496333999555424262?s=24)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-6-10.png)
+Date:02/24/2022
+原视频标题:Antony Blinken announced that we would be sending additional forces to NATO’s eastern flank to deter and defend against any Russian aggression directed at our Allies
+安东尼·布林肯宣布，我们将向北约东翼增派部队，以阻止和防御任何针对我们盟国的俄罗斯侵略
+原视频日期：2022/02/24
+原视频链接https://twitter.com/statedept/status/1496333999555424262?s=24
+任务编号：KE417（3835）
+视频时间段 : 0:00-0:44
 
-并且，这份结婚登记证书中，没有民政编号，没有登记身份证号码。
+英听校：洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-7-10.png)
-
-更加过分的是，明眼人都能看得出两个人的照片明显不是合影，而是两张照片拼到一起的！
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-8-6.png)
-
-最令人无法接受的是，照片中所谓“杨庆侠”的女人，被中共政府认定为“锁链女”……
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-9-6.png)
-
-是中共官员们的眼睛瞎了？还是它们的心瞎了？
-
-国内网友们的眼睛并没有“失明”，任何一个有良知的人，都不会昧了良心的认为杨庆侠就是“锁链女”。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-10-6.png)
-
-就这样一份漏洞百出的结婚证书，是怎样发下来的，又是怎样上传到民政的系统中的？
-
-面对中共政府这种厚颜无耻的扯谎，于是事件再次发酵，全网展开了激烈的讨论和“研究”~！
-
-网友们不但找出了李莹父母的照片，还把“锁链女”几个孩子们的照片放在一起，进行了详细的比对。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-11-5.png)
-
-看来中共政府那帮子官员们是真“瞎”了！
-
-照片中的杨庆侠是谁？背后的真相到底是什么？
-
-舆情继续火爆~！
-
-中共的丰县“失守”了，接下来徐州市政府该出马了……
-
-【接下篇：】
-
-* * *
-
-*审核：Bryan
-校对：信心满满
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

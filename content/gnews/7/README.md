@@ -2,76 +2,71 @@
 ---
 
 
-## 安东尼·布林肯宣布，我们将向北约东翼增派部队，以阻止和防御任何针对我们盟国的俄罗斯侵略
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2066413/)
+## 2022年2月25日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2066587/)
 
-[https://gtv.org/video/id=621891231408ee3a03a49758](https://gtv.org/video/id=621891231408ee3a03a49758)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot_副本-6.jpg)
+盖特连接：[2022年2月25日 文贵大直播：乌克兰形势与第三次世界大战；加停止紧急状态法与疫苗灾难；中共攻台进入即时戰备状态；世界经济如何面对战争与病毒](https://gettr.com/streaming/pwroklf1f7)
 
-Antony Blinken (Secretary of State)
-安东尼·布林肯（国务卿）
+G-TV连接：[2022年2月25日 文贵大直播：乌克兰形势与第三次世界大战；加停止紧急状态法与疫苗灾难；中共攻台进入即时戰备状态；世界经济如何面对战争与病毒](https://gtv.org/video/id=6218d34708ba8a07b1a341e7)
 
-just as the President said we would do
-就像总统说的我们会做的那样
+1、乌克兰战争和疫苗有必然的联系，乌克兰战争是疫苗 新冠病毒操作的结果；
 
-Today the Department of Defense announced
-今天国防部宣布
+2、习近平打台湾普金打乌克兰主要原因是，两人身体都不好和两人内部危机、经济压力大；
 
-that we will be sending additional forces to NATO’s eastern flank
-我们将向北约东翼增派部队
+3、小土豆听命于达沃斯 美国，损害加拿大基层人民的利益，加拿大运动会没完没了；
 
-to deter and defend against any Russian aggression directed at our allies
-来阻止和防御任何针对我们盟国的俄罗斯侵略
+4、达沃斯不是沼泽地，就是沼泽地的一条狗，或者尿盆；
 
-We also made clear that if Russia invaded Ukraine
-我们还明确表示，如果俄罗斯入侵乌克兰
+5、沼泽地的人和蔼可亲，不浪费时间，不会露面的，不在乎世界怎么看，没有正义和邪恶的分别，觉得是地球的主人；
 
-we would act with Germany to ensure
-我们将与德国合作以确保
+6、习近平打台湾，普京拿乌克兰计划2010就开始；
 
-that the Nord Stream 2 pipeline does not move forward
-Nord Stream 2（北溪2）管道不会继续推进
+7、中国银行副行长认为文贵先生挑战UBS就是挑战全人类精英，文贵先生就是要通过法庭让UBS交出真相，要UBS吐出偷走的中国人的钱；
 
-Today, Chancellor Scholtz announced the German government
-今天，德国总理舒尔茨宣布德国政府
+8、H-Pay的使用方法：无痕迹的合法活动、不受监管的自由流通、非商业性互转、有执照的支付；
 
-is suspending that pipeline indefinitely
-正在无限期暂停该管道
+9、3月1日人民币5万限制的根本原因就是喜币喜联储；
 
-We’ve been in close consultation with Germany throughout this process
-在整个过程中，我们一直与德国密切协商
+10、喜币自由流通的前提。是不要变成为犯罪的工具；
 
-We welcome the swift and decisive action
-我们欢迎迅速果断的行动
+11、普京正式进入作战中心，就是那天文贵先生嗑瓜子的原因；
 
-And we’re executing a plan in close coordination with allies
-我们正在与盟友密切协调执行一项计划
+12、美国对俄罗斯说制裁，没有任何行动；欧洲元首都叫唤，没有行动；
 
-and partners to secure the stability of global energy supplies
-和合作伙伴确保全球能源供应的稳定
+13、美国对中共的制裁绝对不会不行动，而且一定有军事行动，会超出所有人的想象；
 
-which is in all of our interests
-这符合我们所有人的利益
+14、台湾：迅速占领台湾或围而不打；
 
-**原视频链接**[https://twitter.com/statedept/status/1496333999555424262?s=24](https://twitter.com/statedept/status/1496333999555424262?s=24)
+15、这次要不台湾灭，要不共产党灭；
 
-Date:02/24/2022
-原视频标题:Antony Blinken announced that we would be sending additional forces to NATO’s eastern flank to deter and defend against any Russian aggression directed at our Allies
-安东尼·布林肯宣布，我们将向北约东翼增派部队，以阻止和防御任何针对我们盟国的俄罗斯侵略
-原视频日期：2022/02/24
-原视频链接https://twitter.com/statedept/status/1496333999555424262?s=24
-任务编号：KE417（3835）
-视频时间段 : 0:00-0:44
+16、星期六GEDU直播；
 
-英听校：洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+**注：大直播音频正在制作和上传中，敬请关注****——**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

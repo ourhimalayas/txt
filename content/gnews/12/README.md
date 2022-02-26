@@ -2,20 +2,12 @@
 ---
 
 
-## 切尔诺贝利的真实影响
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2066361/)
+## 2月25日文贵大直播摘要（图片1-5）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2066466/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
-
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/02/F1CE03A7-E95C-4ECE-A3C8-2CA8D183EE99.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/044B76C4-980B-4625-9EFA-E9F8A8BAF3F8.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/17056315-8081-4E87-BCF1-14C6C96CCE0B.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/1E33FA11-6A21-46DE-A009-1927BF6EC212.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/06724CEE-C291-49B2-8C22-D86FD7EC2D38.jpeg)
+发布：水涨船高
 
  
 
