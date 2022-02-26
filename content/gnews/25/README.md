@@ -2,8 +2,8 @@
 ---
 
 
-## 20220225文贵大直播：第三次世界大战是完美有计划的种族大屠杀
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2068336/)
+## 20220225文贵大直播：用确凿的证据通过法庭把财富还给中国人
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2068388/)
 
 作者：东京樱花团小视频组
 
@@ -12,7 +12,7 @@
 编辑发布：东京樱花团小视频组
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
+![此图像的alt属性为空；文件名为IMG_0887.png](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
