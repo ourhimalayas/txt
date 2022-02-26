@@ -17,6 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@qifeng 2/26/2022 6:00 AM (UTC)`
+
+2020年俄罗斯最火的反战歌曲<br/>https://youtu.be/RqincLouHsE?t=24
+
+---
+
+`@miles 2/26/2022 9:58 PM (UTC)`
+
+2月26日：这是真的吗？［同学抱怨中国撤侨，其他国家是半个月前就撤走了，中国目前为止还没什么动作。<br/>昨天我给她发我看到的消息，中国开始是着手撤侨了。<br/>她说撤侨的号码收到了，号码排四千左右，据说总共六千多号。我开玩笑说还没等到你撤，战争早就结束了。撤侨这事儿国家层面动作缓慢，基本上没什么进展。身边乌克兰人问她，其他国家半个月前就撤侨了，你们中国为什么不撤侨？中国是不是不行了？她不知道怎么回答好。中国人群体本身存在严重的分裂。<br/><br/><br/>目前是各省各市各地区自行解决该地区在乌克兰华人的撤侨问题。比较富裕的省市甚至有办法搞来大巴车把他们城市的人接走到安全的邻国，有的省份城市包了带有地下掩体的酒店再用大巴车把该城市的人接过去，钱是该省市华侨协会等组织自行筹集的资金。甚至福州市的在任市长亲自加入了乌克兰福州聊天群里面，我同学有截屏给我看。这些资源是不向外地人开放的。有些省市聊天群会把非本城市的中国人踢出群，有价值信息就只有本地人共享了，不分享给来自其他城市的人。他们主要是怕该省市派大巴接人的时候，非本省市的人得到时间地点消息后也过去挤占稀缺的大巴车位置并造成混乱。<br/><br/><br/>有些经济实力弱的省市或者在乌克兰人数很少的省市的中国人就倒霉了，因为人数太少无法组成有效的群落，被有人数规模的其他省市的人从聊天群里踢出群，得不到及时有效的信息，被排挤，没人管，非常惨，我同学就是被踢出群了的。她赞扬了一个地方，就是河南。她说河南比较好，不排挤外地人，给予不少帮助和有效信息。七哥您好! 这是一些网友分享的乌克兰现场情况。无法核实信息真假，但很明显中共根本就没撤侨。什么统计发号只是拖延的借口。而且，物价相当惊人，而且非常缺乏。了不］
+![img](https://media.gettr.com/group26/getter/2022/02/26/21/7b3555db-3c6c-65f8-2b9a-56fed65d0cc0/out.jpg)
+
+---
+
 `@miles 2/26/2022 9:50 PM (UTC)`
 
 G-EDU立志为世界培养优秀人才，提供优质、前沿的学习机会和发展前景。现面向全球招募热爱教育事业的专业人才，加入我们的团队。同时欢迎世界各地的孩子们来G-EDU报名上课，感受我们的教育理念和专业课堂，共同成长。<br/>G-EDU is an educational organization founded by NFSC in November 2021. We are taking the initiative to build quality teaching platforms. We hereby invite qualified educators who are dedicated to the future of our kids to join our team. <br/><br/>主教老师申请表：<br/>https://docs.google.com/forms/d/e/1FAIpQLSdg7wLDkncI3QuuynWhz7cQScYjV33XzQgB5-z_OpqzM7rYNg/viewform<br/><br/>学生入学申请表：<br/>https://docs.google.com/forms/d/e/1FAIpQLSfG5AInGN7kj2KkbKLq1ZtuazqnJkife1Fvrj3mnKllATNUFw/viewform <br/><br/>apply, please click the link below:<br/>https://docs.google.com/forms/d/e/1FAIpQLSffXsCK9t2rPeY3roFiMGJvWbP3eoukP9d4jMs7_ma6EMjsuQ/viewform?usp=pp_url <br/><br/>欢迎加入G-EDU官方工作平台<br/>Welcome to G-EDU:<br/>https://discord.gg/Dq7p9knV
@@ -147,20 +162,6 @@ Mr. Bannon 100% agree that the Wall Street has provided the capital from the pen
 
 2/25/2022 Miles Guo: What does Putin attacking Ukraine at this time have to do with the CCP virus and COVID vaccines? How does that relate to Trudeau's implementing the Emergencies Act and hiring foreign mercenaries? Why are the Western countries bluffing when it comes to Russia’s invasion of Ukraine? International diplomatic relations are all about strength and self-interest.<br/><br/>2/25/2022 文贵直播：普京此时打乌克兰和病毒、疫苗有啥关系？这和加拿大土豆实施紧急状态法、使用雇佣军又有啥关系？西方各国为何咋呼？实力和自我利益是国际外交关系的核心<br/>
 ![img](https://media.gettr.com/group38/getter/2022/02/25/22/5c8e33e6-8dfc-c13e-e3fb-2146abb969f8/out.jpg)
-
----
-
-`@miles 2/25/2022 1:02 PM (UTC)`
-
-2022年2月25日 文贵大直播：乌克兰形势与第三次世界大战；加停止紧急状态法与疫苗灾难；中共攻台进入即时戰备状态；世界经济如何面对战争与病毒
-![img](https://media.gettr.com/group24/origin/2022/02/25/12/e050aab1-2303-1b62-ffc1-a063efd8605b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 2/25/2022 1:44 AM (UTC)`
-
-2/24/2022 Miles Guo’s Urgent Livestream: Numerous people will die in Communist China next year regardless of whether the CCP invades Taiwan, and the Chinese people may have to rummage through garbage for food. If the CCP invaded Taiwan, it would suffer worse economic sanctions than Russia. The CCP’s economic centers and military bases will also be devastated. Fellow fighters in Communist China should prepare for that. The New Federal State of China is the only one in the world that has revealed the evil plan of Putin and Xi Jinping to invade Ukraine and Taiwan, respectively.<br/><br/>2/24/2022 文贵紧急直播：不论打不打台湾，明年的中共国都将尸横遍野，人们可能要吃垃圾；若打了台湾，中共将遭受比俄罗斯更惨的制裁，中共经济中心和有军事基地将遭毁灭性打击请请国内战友做好准备；全人类只有新中国联邦揭露了习普的邪恶计划<br/>
-![img](https://media.gettr.com/group39/getter/2022/02/25/01/2e8f84d7-50b9-f7f4-4554-08ab913d56bc/out.jpg)
 
 ---
 
