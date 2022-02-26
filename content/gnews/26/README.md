@@ -2,58 +2,34 @@
 ---
 
 
-## 樱花FM|樱花深度报道：北京冬季奥运会的“体育洗白”宣传是柏林奥运会的翻版 维吾尔人大声疾呼中共对少数民族的残酷镇压（二）
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2070137/)
+## 樱花FM|“翻云覆雨”定能胜天？ 惊爆北京市人工影响天气办公室
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2070172/)
 
 音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-8-4.png)
-(图片说明)西方民主国家一直在激烈争论是否要完全抵制这一有争议的事件，就像他们在 1936 年柏林夏季奥运会之前所做的那样
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-9-2.png)
+北京冬奥在即，中共为确保奥运期间一切顺利，对天气状态也要进行控制，因此引发争议，让外界不禁质疑，“一个国家有权利改变天气吗？”
 
-![](https://lh6.googleusercontent.com/hN1APqxkZFJZlmLso2R-KrJqi53yj-g9g1an92GZ0qcg_RChM9giFzaoSvNFrmo6WLlztPaXbkJYLjqWDXFdyWvNJH9MhBiae4tZwUpKwarrXRQ8de2v_Jsk8HCw2mvkehn4iRI3)
+美国之音1月29日报导，中共长久以来试图通过播云（Cloud-seeding，俗称人工降雨或雪）来改变天气。而北京政府用来揽住气候缰绳的机构是“北京市人工影响天气办公室”，即“中国气象局天气改变中心”的下属单位。
 
-(图片说明)早在 30 年代，随着希特勒的法西斯政权作为一个全球大国崛起，争论的焦点是德国对犹太人的可恶待遇，以及参加奥运会是否会使竞争国家在某种程度上受到指责。图：希特勒在 1936 年柏林奥运会上
+中共中央政府官网一篇“奥运史上首次实现成功人工消雨”文章称，2008年8月8日北京夏季奥运开幕当天，气象预报显示“午后会有阵雨或雷阵雨”，但北京市人工影响天气办公室当天下午至近午夜，指挥进行了9个小时的持续干预，致使奥运得以在晴空下揭幕。
 
-![](https://lh6.googleusercontent.com/BtO7qQfwUw7-zk99CYPQpoeEUlk606WiiLqfIB9YCsrlNAqdhs7Xf1frjE1lg1lwxihVvuj49ZqukZPgxIWQCYrpKx8BGVwjBQtI_E8bMSSu8cXGeTptvLiWjVb45jNVnd1kEaME)
+《华盛顿邮报》报导，“本次冬奥会，北京将在多大范围使用这套（改变天气）技术，目前还不得而知”，但过去3个月，至少已向张家口附近的云层发射了250枚炮弹，还有12架云催化飞机随时待命当地机场。专家们预计，这次北京冬奥将会有大于2008奥运会规模的人造“风云”行动。
 
-(图片说明) “他想展示雅利安人的至高无上——但当然，美国黑人运动员杰西欧文斯（如图）“单枪匹马粉碎了希特勒的雅利安霸权神话”，赢得四枚金牌，”巴卡博士说
+《华邮》还称，中共透过向云层发射装满碘化银的炮弹和火箭来催雨（stimulate rainfall），已持续了很长一段时间。
 
-“中国的种族灭绝和种族清洗在什么时候能够引起国际社会足够重视？” ——拉米拉·查尼舍夫
+值得一提的是，中共官方1月24日曾发出警告，在北京冬奥会和冬残奥会举办期间很可能会遇到严重的空气污染，但官方同时也强调，会采取紧急措施，确保赛事不会受到影响。
 
-现居住在阿德莱德的澳大利亚维吾尔唐格里塔妇女协会(Australian Uyghur Tangritagh Women’s Association)主席拉米拉·查尼舍夫(Ramila Chanisheff)向《每日邮报》澳大利亚透露，海外维吾尔人“与他们的朋友和家人失去了完整的沟通”。
+北京1月24日的空气污染达到瑞士科技公司IQAir指数达到每立方米218微克，属于“非常不健康”的中度污染程度。
 
-她说：“过去，很多维吾尔人能够与家人交谈，但在过去六个月左右的时间里，他们一直被切断了联系。”
+路透社指出，近日北京笼罩在厚浊的烟雾中，24日的空气污染指数至少达到每立方米205微克，超过世卫正常标准的6倍。
 
-这也发生在2008年北京夏季奥运会之前，是专制政权在任何重大事件之前的常用策略。
+去年7月1日中共建党百年，7万人出席了在天安门广场的庆典，当时晴空万里。后来，据北京清华大学研究人员透露，官方前一天晚上向云层发射了火箭，引发的降雨洗尽了笼罩在北京上空的污染和雾霾。这个套路在业内称为“庆典蓝”。
 
-查尼舍夫女士说：“人们被警告不要发声，也不要与海外任何人交流，这样外界就不知道那里真正发生了什么。”
-
-“我的表弟被关押在劳教所，每周只出来看望他的妻子和孩子，然后被带回。但每次他出去时，我都会试着打电话看看他是否还好，但我们被告知他不在。
-
-“一个正在犯下种族灭绝罪行的国家怎么能被授予一项享有盛誉的体育赛事？
-
-“中国的种族灭绝和种族清洗在什么时候能够引起国际社会足够的重视？”
-
-![](https://lh5.googleusercontent.com/MTdl-cG13I1LIK10LQsfbiG-sMQKQk8VJbkkLU2c-wJzeMmOiTL_g5ZlJVzAl65em23ms8C4KR1NL0eldrsigsM5_U0kqByKW7PeJRE0bsIF0XPuI6yzUGVADf9jJKHbF98mNi13)
-
-(图片说明)据估计，有超过一百万维吾尔人被围捕并投入劳改营，在那里他们面临酷刑、国家支持的器官摘取甚至绝育的威胁，联合国和各种人权组织声称。图为：习近平在山西省北京冬奥会前与居民打招呼，合影留念
-
-![](https://lh4.googleusercontent.com/3fs8B0yCpzWkuqq9bwFhcRRK5FIgv0xGQCbtxa_BqCe56U5V4-cdUWNcrNXGDTqSYTFDkD8tBm6MNOAUesLwtqINRTVPbQBLe6TUglNSpj70vRIBbpwunmlIvbirlJsxnmo2v_nf)
-
-(图片说明)中国张家口，2022 年冬奥会前夕，一名单板滑雪运动员在赛场训练中进行跳跃
-
-![](https://lh6.googleusercontent.com/X9B0Z1MOQ7K436lLyX5yeqruJTT6FBs7tkO3uKTz3nyIzR8OK0bKdBGuJ0nV9-iQJg_BP1gLJXgSgafV4pafeX3Tes_98Dmcp_aKbkq3PTzNLGG0o5Np0P_8bJcGeOYEtT8KKTny)
-
-(图片说明)中国张家口 2022 年冬奥会前，一名工人飞过赛道
-
-![](https://lh5.googleusercontent.com/JeSpWhpYozuuM1zqbqbIap20CCp42rVNqNq-DJfkyGBeCWSOESGcVR7Sa4R22lSGuZz-KO7woOcMGjEz4MzdYrh0EqPLfGKY-y_1xdnvn9NwUT-Ykt4_AUb18aiWjRbPQZE5OahK)
-
-(图片说明)中国张家口 2022 年冬奥会前，三名滑雪者在赛场上训练
-
-（未完待续）
+与天斗其乐无穷，与地斗其乐无穷，中共斗天胜地的豪迈究竟说明了其英明还是无知?与自然和谐相处是人生的最高境界，共匪一向以打败别人来突显自己的正确，这种自以为是的思想毒瘤是人类和世界的癌症，是思想极度不成熟的一种表现，是人类的悲哀。中共在一向自以为是的成功和骄人业绩中摘的永远是“青苹果”，从来都是苦涩的，青苹果多了也是会有毒的，最终毒死的是自己。
 
 文字版原文：
 
-[樱花深度报道┃北京冬季奥运会的“体育洗白”宣传是柏林奥运会的翻版 维吾尔人大声疾呼中共对少数民族的残酷镇压（二） – GNEWS](https://gnews.org/zh-hans/1935328/)
+[“翻云覆雨”定能胜天？ 惊爆北京市人工影响天气办公室 – GNEWS](https://gnews.org/zh-hans/1935295/)
 
 编辑：东京樱花团/asket
 发布：东京樱花团/yuxingcao01

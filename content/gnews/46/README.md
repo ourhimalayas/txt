@@ -2,37 +2,56 @@
 ---
 
 
-## 丹麦支持将俄罗斯排除在SWIFT之外
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2069242/)
+## Steve Cortes认为中共入侵台湾的风险正在急剧上升
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2068947/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2481.png)
-图片来源：视频截图
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-**丹麦愿意在对俄罗斯的制裁中比欧盟走得更远**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-2月25号周五晚上的新闻发布会上，丹麦首相梅特·弗雷德里克森（Mette Frederiksen）希望加强对俄罗斯的制裁。
+2月25日，美国前总统川普2016和2020年竞选团队高级顾问Steve Cortes在参加Steve Bannon的[The War Room](https://warroom.org/)时，从经济的角度分析，中共入侵台湾的风险正在急剧上升。
 
-弗雷德里克森说，现在必须把所有的努力都放在桌面上，丹麦政府希望我们在对俄罗斯的制裁上更进一步。如果那样的话，俄罗斯公司与外国的贸易就会非常困难。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/steve-cortes-taiwan-1-1.jpg)
 
-她说，我的最佳猜测是，SWIFT将被纳入第三个制裁方案。俄罗斯必须被排除在SWIFT合作之外。我们必须用绝对最严厉的经济制裁来对付普京的令人发指的行为。
+Steve Cortes是 1970年出生于美国伊利诺伊州（illioins）南芝加哥的哥伦比亚后裔，著名市场策略师、作家和电视节目主持人，Bloomberg Business, CNBC及Fox News评论员，Veracruz LLC.创始人。2016年和2020年，担任川普竞选团队顾问。
 
-**规划新的制裁**
-在入侵乌克兰后，美国、英国和欧盟都在周四对俄罗斯实施了新的制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/E2Qh5AeWQAIz6rV.jpg)
 
-但双方都不准备使用被他们称为最强大的武器，丹麦外长Jeppe Kofod（S）称之为 “**工具箱中的大锤子**“。
+Steve Cortes在班农节目中说，由于白宫有一个软弱的领导人，西方现在甚至不愿意对莫斯科（入侵乌克兰）采取严肃的行动，中共和俄罗斯这个邪恶轴心的兴起，中共内部越来越有底气可以在台湾采取行动。中共进攻台湾的时机可能已经成熟。
 
-反对意见来自欧盟的几个方面，尽管目前还不清楚哪些国家最反对扣动可能是最强大武器的扳机。
+市场方面，台湾半导体（Taiwan Semiconductor Mfg. Co. Ltd.，台积电）是世界上最大的公司之一，市值5000亿美元，员工50,000人，绝对是美国和全世界的芯片生产中心。
 
-据丹麦媒体Berlingske的经济编辑Ulrik Bie说，我们可以猜测，是德国、意大利、匈牙利和塞浦路斯，这些欧盟中对俄罗斯最友好的国家对此不感兴趣。
+台积电的股价自1月14日以来的五个星期，正式进入熊市，由当时的最高点145美元下跌到110美元，昨天甚至下探至全年最低点104美元。
 
-总部设在比利时的SWIFT系统使全球11000多家银行和金融机构能够交换电子信息和资金转移，在国家间的贸易中发挥着重要作用。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-26_17-00-55.png)
 
-周四西方国家的制裁方案包括打击俄罗斯金融、能源和运输部门以及一些个人的措施。
+Steve Cortes认为，台湾半导体绝对是一个风向标，告诉我们中共入侵台湾的风险正在急剧上升，一旦台湾开战，乌克兰局势就显得平淡无奇了，台湾将成为全世界关注的热点。
 
-来源：
+在俄罗斯入侵乌克兰之后，美国总统拜登前天宣布，制裁4 家俄罗斯银行，但不会制裁俄罗斯石油，甚至在三天前，拜登冻结了美国所有新的石油和天然气钻探项目。
 
-[Gnews](https://gnews.org/2069225/)
+中共外交部在回答路透社记者“为应对欧盟和美国对俄罗斯实施的制裁，中方会增加采购俄罗斯石油吗？”提问时说，“我们一贯反对任何非法单边制裁。我们要求有关方在处理乌克兰问题和对俄关系时，不得损害中方和其他方面正当权益。中俄之间本着相互尊重、平等互利的精神开展正常的贸易合作。”
+
+翻译成人话就是，中共反对对俄罗斯制裁，无论国际社会如何制裁，中俄邪恶轴心不会改变，中共将一如既往的向俄爹输送利益！
+
+2月25日下午，习猪头同俄罗斯总统普京通电话，习太阳说，中共“根据乌克兰问题本身的是非曲直决定中方立场”，要“摒弃冷战思维”！看来习猪头真想打热战！
+
+参考数据：
+
+[Steve Cortes Reveals Major Signal of Communist China’s Move on Taiwan (VIDEO)](https://www.thegatewaypundit.com/2022/02/steve-cortes-reveals-major-signal-communist-chinas-move-taiwan-video/)
+
+[习近平同俄罗斯总统普京通电话](https://www.mfa.gov.cn/zyxw/202202/t20220225_10645684.shtml)
+
+[2022年2月25日外交部发言人汪文斌主持例行记者会](https://www.mfa.gov.cn/fyrbt_673021/202202/t20220225_10645686.shtml)
+
+[俄罗斯精锐近卫军杀进乌克兰首都基辅！中国撂下一句狠话！](https://www.163.com/dy/article/H14R7EN80552FDOB.html)
+
+[Taiwan Semiconductor Mfg. Co. Ltd.](https://www.tsmc.com/english)
+
+[Steve Cortes Biograph & Age, Wiki, Height, Weight, Girlfriend, Family & More](https://www.marathi.tv/political-analyst/steve-cortes/)
+
+[Steve Cortes CNN, CNBC, Wiki, Bio, Age, Birth Place, Wife, Kids, Trump, Salary and Net Worth](https://www.wiki.ng/en/wiki/steve-cortes-cnn-cnbc-wiki-bio-age-birth-place-wife-kids-trump-salary-and-net-worth-480614)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

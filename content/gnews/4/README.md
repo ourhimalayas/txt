@@ -2,37 +2,35 @@
 ---
 
 
-## 有声|美国前驻联合国大使警告 中共将攻打台湾
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2070290/)
+## 在中共国将有更多企业加入到一个旨在发展元宇宙的本国行业
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2070328/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月24日，美国前驻联合国大使尼基·黑莉女士，在接受福克斯新闻采访时警告，中共会因为乌克兰局势而攻打台湾。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2426.png)
-在采访中，黑莉表示，中共国与俄罗斯属于重要伙伴关系，乌克兰的目前局势，会让一直叫嚣台湾是其一部分的中共国做出行动。而行动的早晚则取决于，美国是否能迅速地在乌克兰局势上做出强硬的决策，如果不能迅速而正确地处理乌克兰问题，中共一定会快速入侵台湾。
+**翻译：日本东京方舟农场 Skyfrog**
 
-郭文贵先生曾在直播中提醒，乌克兰只不过是西方政客测试和逼迫普京与习近平的工具，他们不会将乌克兰的安危放在第一位，除非习近平出现身体突发状况，否则中共一定会攻击台湾，台海危机已经迫在眉睫。我们再次提醒台湾同胞务必小心。
+中共国一个旨在开发中共国元宇宙应用的行业组织加入了一批新公司，该组织正在推动最新的技术热潮。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-275.png)（圖片來源：cnbc.com）
+元宇宙目前还没有一个明确的定义，但通常指的是虚拟现实等技术，以及人们可能在虚拟世界中游戏和生活的理念。
 
+周三，有政府背景的中共国移动通信协会元宇宙委员会又增加了17家公司。该行业共有112家公司或个人。
 
+最新一批上市公司包括在上海上市的英利传媒和在深圳上市的北京拓新信息科技等上市公司。
 
-文字版原文：[美国前驻联合国大使警告 中共将攻打台湾](https://gnews.org/zh-hans/2068326/)
+中共国移动通信协会是在中共国外交部注册的，由华为和电信运营商中共国移动等主要技术公司支持。其元宇宙委员会于10月成立，其任务是围绕元宇宙开发标准和技术。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+通常情况下，中共国设立这样的委员会目的希望快速开发并发挥领先技术的作用，比如区块链技术。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+这个元宇宙委员会的成立，也可能表明中共国正在寻求对其发展中的技术进行监管。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+“中共国传统的互联网业务首先发展起来，然后受到监管。像元宇宙行业在建设时就要进行监管。”中共国移动通信协会元宇宙行业委员会负责人杜正平1月对路透表示。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+像美国科技巨头一样，从腾讯到阿里巴巴等中共国公司都在探索开发元宇宙应用。但分析师表示，中共国元市场的发展很可能受到高度监管，不太可能以加密货币为特色，当局对加密货币采取了强硬立场。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+原文链接：
+[https://www.cnbc.com/2022/02/16/china-adds-firms-to-industry-body-developing-the-countrys-metaverse-.html](https://www.cnbc.com/2022/02/16/china-adds-firms-to-industry-body-developing-the-countrys-metaverse-.html)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+素材採編：妙喜小油鍋
+校对：妙喜小油鍋
+发布：爱放飞
 
  
 

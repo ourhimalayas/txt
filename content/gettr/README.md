@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/26/2022 3:33 PM (UTC)`
+
+2/25/2022 Miles Guo:  The CCP's 3 tactics to attack Taiwan: 1) the so-called Taiwanese representatives request the CCP to send troops to Taiwan to eradicate Taiwan's separatists; 2) "siege but not fight", leading to the collapse of Taiwan; and 3) quickly occupy Taiwan. It's time to end the Taiwan issue. Either the CCP will be destroyed, or Taiwan will be destroyed.<br/><br/>2/25/2022 文贵直播：中共打台湾的3招：1) 所谓台胞代表请求中共派兵到台湾铲除台独分子；2) 围而不打，让台湾崩溃；3) 迅速占岛；台湾问题到了了结的时候，要么中共被灭，要么台湾被灭<br/>
+![img](https://media.gettr.com/group30/getter/2022/02/26/15/dfbfe113-7aa0-47ea-2dd8-cb76be04e57d/out.jpg)
+
+---
+
 `@miles 2/26/2022 1:19 PM (UTC)`
 
 2022年2月26日 《文贵大直播—GEDU专场》
@@ -150,13 +157,6 @@ Mr. Bannon 100% agree that the Wall Street has provided the capital from the pen
 
 2022年02月24日 文贵紧急直播： 🆘 🆘 🆘 台湾危机，请台湾同胞们尽快撤离，能够提供帮助的战友请与联盟委员会联系。为台湾同胞，乌克兰人民祈福🙏🙏🙏
 ![img](https://media.gettr.com/group26/origin/2022/02/24/23/8b3ff603-269f-a5f2-ba8d-2e8145918334/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 2/24/2022 11:27 PM (UTC)`
-
-2/23/2022 Miles Guo: The US is the big strategic winner, letting the world know they can't live without the US. Putin has brought down the world's finance and economy at a minimal cost, and Xi the Sun thinks he can take this opportunity to invade Taiwan. However, it is the Chinese people who will unfortunately have to pay a huge price.<br/><br/>2/23/2022 文贵直播：美国是战略大赢家，让全世界知道他们离不开美国；普京用极小的成本便征服了全球的金融和经济，习太阳自以为能借此机会打台湾，但中国人却将不幸为此付出巨大代价<br/>
-![img](https://media.gettr.com/group12/getter/2022/02/24/23/7098b2d1-ecf4-6bb3-dabb-448fc5f7ffe4/out.jpg)
 
 ---
 

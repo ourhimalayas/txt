@@ -2,35 +2,38 @@
 ---
 
 
-## 俄罗斯入侵，数千乌克兰人踊跃应征入伍：&#8221;乌克兰绝不跪下“
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2070023/)
+## 有声|加拿大制裁俄罗斯个人实体及取消出口许可
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2070121/)
 
-翻译：不要代表我Kari
-校对：小熊
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-26.png)
-据报道，在乌克兰中部城镇曼基夫卡，数百人在市政厅外排队入伍。为应对俄罗斯入侵，乌克兰最近禁止 18 至 60 岁的男性离开该国，但尚未颁布军事征兵令。 据一份报告称，成千上万的民众争先恐后应征入伍，准备为保卫家园而战。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-25-62183840078b7-460x258-169.jpg)
+加拿大总理杜鲁道（Justin Trudeau）在本周五，即2月25日宣布对58个俄罗斯个人和实体实施制裁，并取消对俄罗斯的出口许可。
 
-据美国国家公共电台NPR报道，在乌克兰中部城镇曼基夫卡的市政厅外能看到数百人正在排队。”乌克兰绝不跪下，”其中一名入伍者告诉该媒体。”我们会把这些混蛋赶出我们的土地”。
+据中央社报导，加拿大官员警告，由于俄罗斯总统普京决定对乌克兰采取“特殊军事行动”，加拿大将会发出更多惩罚措施。这波制裁对象包括31人和27个实体，主要是俄罗斯菁英及其家人、安全官员、俄罗斯佣兵组织“瓦格那集团”（Wagner Group），以及俄罗斯的数家银行。加拿大取消了对俄罗斯的出口许可。这些出口许可涉及价值7亿加币的货物，主要在航天、信息科技、采矿业。 据悉，目前，加拿大有3500名军人在待命，准备和飞机、战舰一起被部署到欧洲。加拿大还表示，基于安全考虑，已经把外交人员从乌克兰撤离到波兰。
 
-俄罗斯入侵乌克兰：实时更新
+[【援引连结】](https://www.cna.com.tw/news/aopl/202202250039.aspx)
 
-报道称，另一名急于报名并于周五入伍的男子是沃洛迪米尔·奥梅利安Volodymyr Omelyan。”我不是天生的杀手，我从未梦想过成为那种人，”2016-2019年担任乌克兰基础设施部长的奥梅利安Omelyan告诉该媒体。奥梅利安说，他入伍主要是为了保护他的家人。他坚信，乌克兰人民将在卫国战中胜利。”我们一定会赢的，”他告诉美国国家公共电台NPR。
 
-驻扎在兹米伊岛Zmiinyi（又称蛇岛）的13名士兵遭遇了一艘俄罗斯军舰，他们的反抗更能完美诠释乌克兰部队的战斗精神。”俄罗斯军舰，去死吧”，其中一名卫兵朝军舰的方向怒吼，当时整个事件被全程直播。
 
-乌克兰总统沃洛基米尔-泽伦斯基（Volodymyr Zelenskyy）周四晚间证实，13人最终全部阵亡。
+**推出问题，敲出真相，爆料在路上！**
 
-总统宣布，这13名士兵将获得 “乌克兰英雄 “的追授荣誉。
+**请关注和订阅我们的以下账号：**
 
-原文链接：[https://www.foxnews.com/world/ukraine-army-enlist-russia-invasion](https://www.foxnews.com/world/ukraine-army-enlist-russia-invasion)
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
 
-发布：tianzhihuan
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
 
-更多资讯，请关注：[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 
