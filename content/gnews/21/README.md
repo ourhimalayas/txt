@@ -2,211 +2,45 @@
 ---
 
 
-## 乔·拜登总统宣布因俄罗斯入侵乌克兰而对俄罗斯实施额外制裁
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2066489/)
+## 【楚辞新作】九叹：1 &gt;8大主义——正道主义的新中国联邦走在时代前列（二）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2066659/)
 
-[https://gtv.org/video/id=621892f01408ee3a03a497ee](https://gtv.org/video/id=621892f01408ee3a03a497ee)
+作者：蝴蝶泉
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-46-1-3.jpg)
+前言：从2018年8月16日，文贵先生在短视频中谈及“正道主义”开始，屡次直播解读，直至2022年2月18日直播再次论及。尽管我们对“正道主义”的理解十分有限，但从文贵先生不厌其烦地讲解中，我们明白，人类历史进程中，产生至少八大主义，但各有优劣，而正道主义兼容各种主义之优势，又有发展，是人类最新最优的管理模式，是文明前进的必然选择，而新中国联邦以此为基石，走在时代前列！
 
-Joe Biden (U.S. President）
-乔·拜登（美国总统）
+辞释意：
 
-We’ve been transparent with the world
-我们一直对世界透明
+神权主义
 
-We’ve shared declassified evidence about Russia’s plans
-我们分享了有关俄罗斯计划的解密证据
+世俗的政治权利与宗教领袖的合一，或者政治主张从属于宗教层级领导下的主张。比如早期有圣经记载的摩西，中国的“三皇五帝”等；中期有西方中世纪天主教教宗；近代有传统西藏的达赖喇嘛，伊朗的政教合一。【特征】民众信仰某种神灵，相信宗教领袖是神赐下的仆人，具有大能，代传预言，举行祭祀，管理服务大众。【优势】如果宗教领袖真正与神合一，那么能够教化、服务、爱护民众。【缺点】如果宗教领袖被邪灵诱惑，那么政治和教会就变成奴役人民的工具，传假话、行邪术、独裁统治。
 
-and cyber attacks and false pretext
-以及网络攻击和虚假借口
+皇权主义
 
-So there could be no confusion or cover up about what Putin was doing
-因此，普京的所作所为不会引起混淆或掩盖
+皇帝个人的独裁专权。【特征】扭曲神权，皇帝自称天子，拥有至高无上的权力。在中央集权专制制度下，皇帝对全国土地、财富的管理权，以及行政、军事、立法、司法、文教等专权。朝堂上的官员是奴才，民间草民是贱民。皇帝嬉笑怒骂间人头落地，无法无天。比如中国秦始皇建立封建制。【缺点】这是人类管理中最黑暗的奴隶制，中外历史上很难有好皇帝，被奴役下的百姓，蝼蚁偷生。普天之下，都是凡胎俗夫，都是父母生得血肉之躯，都会生老病死，百姓哪有获得半点平等？
 
-Putin is the aggressor. Putin chose this war
-普京是侵略者, 普京选择了这场战争
+人权主义
 
-And now he and his country will bear the consequences
-现在他和他的国家将承担后果
+人权是与生俱有的权利，物极必反，在极权压榨下，人类自我觉醒而产生。1948年12月10日聯合國大會通過了《世界人權宣言》，人权已被全人类重视，并在不断完善中。【特征】目前达成共识的有生命权、自由权、财产权、尊严权、公正权、发展权和民族自决权。【优点】人类的基本权利、自然权利得到保障，尤其是弱势群里的生存状况变得更好，遏制了独裁霸权的力量。【缺点】争取人权道路是曲折的，总有妖魔鬼怪千方百计侵犯人权，甚至穿着各种马甲，用假骗偷的方式奴役他人。
 
-Today I’m authorizing additional strong sanctions
-今天我授权额外的严厉制裁
+政府主义
 
-and new limitations on what can be exported to Russia
-以及对可以出口到俄罗斯的产品的新限制
+政府是一套政治体系，废除皇权的个人极权，实行集体负责制，更大程度体现人权。【民主政府】一人一票选举总统，尊重民主。三权分立，舆论监督为第四权。各地区实行联邦制，民权天下，民主、法制、信仰和言论自由。目前美国和日本的民主制度相对优越。【极权政府】中共国是党天下、家天下，甚至梦想个人天下，是极权政府代表，是变相的奴隶制。【缺点】即使是最好的美国民主政府制，也很多不完美，发展中遇到了瓶颈，比如黑资本和黑科技操纵选举，控制媒体，被邪恶势力引诱和利用，破坏民主法制。加拿大的卡车司机运动中，民主政府甚至变成了镇压民主运动的暴政。的确，当下的民主制度有很多漏洞，被邪恶势力趁虚而入，需要完善。
 
-This is going to impose severe cost on the Russian economy
-这将立即和随着时间的推移
+资本主义
 
-both immediately and over time
-使俄罗斯经济付出沉重的代价
+是生产资料私有制为基础的社会制度。【特征】经济上以私营经济为主，政府不干预或者少干预。政治上，资产阶级政党掌权，或者实行资产阶级民主政治制度。市场自由开放，价格开放，可以竞争，劳动力付钱购买。制定法律，保护私产。遵循契约精神，互利互惠。【优点】释放了生产力，促进了产业繁荣。极大地调动了民众的能动性，促进了科学文化的进步。【缺点】如果没有信仰的维护，贪婪的人会堕入金钱至上、唯利是图的陷阱，出现黑资本操控选举，黑资本绑架科学，黑资本控制媒体，使金钱货币成为了奴役人民的工具。
 
-We have purposely designed these sanctions
-我们特意设计了这些制裁措施
+社会主义
 
-to maximize a long term impact on Russia
-以最大限度地提高对俄罗斯的长期影响
+自称社会共有生产资料可以通过国家拥有、集体拥有、工人自治、劳工合成、甚至公民持股达成。中共国的特色社会主义，是一个四不像的怪胎，本质上是几大家族控制的山寨版奴隶制度，是旧封建的延续。【特征】由中共一党专制独裁，管天管地管空气，中间还管生殖器。法制不健全，黑警执法。高官争当盗国贼，假公济私，藏钱海外。选举制度形同虚设，官员上位都是暗箱操作，老百姓没有资格一人一票选举政府官员、党委官员。自诩无产阶级，结果藏钱万亿；自称无神论，结果嘴迷信鬼神；自称人民公仆，结果是党天下家天下骑百姓头上。说自由开放，结果建起高高的防火墙。人类步入太空文明时代，他还在做皇权梦；妄想为世界把脉，实现大一统，缺出现了锁链女；无法的中国梦，原来是步入地域之梦！【优点缺点】无优点只有缺点，社会主义的存在是文明的退步，是对人类智商的侮辱，应该尽快开出地球籍。
 
-and to minimize the impact in the United States and our allies
-并尽量减少对美国和我们盟国的影响
+宗教主义
 
-I want to be clear, the United States is not doing this alone
-我想明确一点，美国不是在单独行动
+宗是最本源、最自然、最重要的，是对神灵和对自然的尊敬和敬拜，教是教育、教化、启发。【特征】世界有六大主要宗教，另外还有其他新教和民族宗教。有教义、教仪和教团，教团里有教职人员。相信万物皆有灵，相信万神万佛的存在。探求宇宙生命的起源，探索生命的意义。【优点】为信仰的建立提供源泉和养分，但宗教并不等同于信仰。信仰是个人与万神万佛建立的关系，以及对天道良心的坚持；而宗教是教育教化的组织和机构。【缺点】宗教里有组织就容易出现控制，有群体就易出现矛盾抗争，有供养制就易出现贪婪占有。
 
-For months, we’ve been building a coalition of partners representing well more than half the global economy
-几个月来，我们一直在建立一个代表全球经济一半以上的合作伙伴联盟
-
-27 members of the European Union
-27个欧盟成员国
-
-including France, Germany, Italy
-包括法国、德国、意大利
-
-as well as United Kingdom, Canada, Japan, Australia, New Zealand
-以及英国、加拿大、日本、澳大利亚、新西兰
-
-and many others to amplify the joint impact of our response
-和许多其他人，以扩大我们应对措施的共同影响
-
-I just spoke with the G7 leaders this morning
-我今天早上刚刚和七国集团领导人谈过话
-
-and we’re in full and total agreement
-并且我们完全同意
-
-We will limit Russia’s ability to do business in dollars, euros, pounds and yen
-我们将限制俄罗斯在全球经济范围内以美元、欧元、英镑和日元
-
-to be part of the global economy
-开展业务的能力
-
-will limit their ability to do that
-会限制他们这样做的能力
-
-We’re gonna stop the ability to finance and grow Russia, the Russian military
-我们将停止资助和发展俄罗斯军队的能力
-
-We’re going to impose major and we’re gonna impair their ability to compete
-我们要强加主要和我们要削弱他们的竞争能力
-
-and high tech 21st century economy
-和高科技 21 世纪经济
-
-We’ve already seen the impact of our actions on Russia’s currency and the ruble
-我们已经看到我们的行动对俄罗斯货币和卢布的影响
-
-Which, early today hit weakest level ever, ever in history
-今天早些时候，卢布达到有史以来最弱的水平，有史以来
-
-Russia stock market plunge today
-今日俄罗斯股市暴跌
-
-Russian government borrowing rates spiked by over 15%
-俄罗斯政府借款利率飙升超过 15%
-
-today’s actions, we’ve now sanctioned Russian banks
-今天的行动，我们现在已经制裁了俄罗斯银行
-
-that together hold around $1 trillion in assets
-它们共同持有约 1 万亿美元的资产
-
-We’ve cut off Russia’s largest bank
-我们切断了俄罗斯最大的银行
-
-a bank that holds more than 1/3 of Russia’s banking assets by itself
-一家单独持有俄罗斯银行资产1/3以上的银行
-
-Cut it off the US financial system
-切断它与美国金融体系的联系
-
-and today we’re also blocking four more major banks
-今天我们还封锁了另外四家主要银行
-
-That means every asset they have in America will be frozen
-这意味着他们在美国的所有资产都将被冻结
-
-This includes VTB, the second largest bank in Russia
-这包括拥有 2500 亿美元和资产的
-
-which has $250 billion, and assets
-俄罗斯第二大银行 VTB
-
-As promised, we’re also adding the names the list of Russian elites
-正如承诺的那样，我们还将添加俄罗斯精英及其家庭成员的名单
-
-and their family members that are sanctions that were sanctioned as well
-这些人也是被制裁的制裁对象
-
-As I said on Tuesday, these are people who personally gained from a criminalist policies
-正如我周二所说，这些人是从犯罪主义政策中获得个人利益的人
-
-and they should share in the pain
-他们应该承担后果
-
-We will keep up this drumbeat of those designations against corrupt billionaires in the days ahead
-在未来的日子里，我们将继续打击腐败的亿万富翁
-
-On Tuesday, we stopped the Russian government from raising money from us or European investors
-周二，我们阻止俄罗斯政府从我们或欧洲投资者那里筹集资金
-
-Now we’re going to apply the same restrictions to Russia’s largest state owned en-terprises
-现在我们将对俄罗斯最大的国有企业实施同样的限制
-
-Companies with assets that exceed $1.4 trillion dollars
-资产超过 1.4 万亿美元的公司
-
-Some of the most powerful impacts our actions will come over time
-随着时间的推移，我们的行动将产生一些最强大的影响
-
-As we squeezed Russia’s access to finances
-当我们挤压俄罗斯的融资渠道时
-
-and technology for strategic sectors of its economy
-及其经济战略部门的技术
-
-and degrade its industrial capacity for years to come
-并在未来几年降低其工业能力
-
-Between our actions and those of our allies and partners
-在我们的行动与我们的盟友和伙伴的行动之间
-
-we estimate that we’ll cut off more than half of Russia’s high tech imports
-我们估计我们将切断俄罗斯一半以上的高科技进口
-
-will strike a blow to their ability to continue to modernize their military
-将打击他们继续使军队现代化的能力
-
-It’ll degrade their aerospace industry
-它会降低他们的航空工业
-
-including their space program and hurt their ability to build ships
-包括他们的太空计划并损害他们建造船只的能力
-
-reducing their ability to compete economically
-降低他们的经济竞争能力
-
-And it will be a major hit to put in long term strategic ambitions
-实现长期战略目标将是一个重大打击
-
-**原视频链接**[https://twitter.com/cnn/status/1496924473517383686?s=24](https://twitter.com/cnn/status/1496924473517383686?s=24)
-
-Date:02/24/2022
-原视频标题:President Joe Biden announces additional sanctions against Russia over its invasion of Ukraine
-乔·拜登总统宣布因俄罗斯入侵乌克兰而对俄罗斯实施额外制裁
-原视频日期：2022/02/24
-原视频链接https://twitter.com/cnn/status/1496924473517383686?s=24
-任务编号：KE418（3844）
-视频时间段 : 0:00-3:58
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+审核校对：Barry Jack
+上传排版：F
 
  
 

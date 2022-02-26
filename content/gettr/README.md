@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/26/2022 2:29 AM (UTC)`
+
+2月25号：共产党以完了…… 决定一个人能走多远的因素往往不是智商，不是情商，而是性格。我们中共国的教育系统，可以培养性格吗？可以训练自制力和毅力吗？<br/>如果你见一个孩子“能很投入地一直做一件事很久”，这就是特殊能力。<br/>“向着长期的目标，坚持自己的激情，即便历经失败，依然能够坚持不懈地努力下去，这种品质就叫做坚毅。如果一个孩子从小就培养出扶弱济贫有勇气，有良知的人性教育，我们每个人面对的未来都将是美好的。明天上午8:30 G EDU教育．特殊专场直播。我们来谈新中国联邦的未来教育。
+![img](https://media.gettr.com/group29/getter/2022/02/26/02/f75daac6-0537-0f43-2d15-696f79bff827/1e303ae83e2d6b01b3ce442ea4f6a1a0.jpg)
+
+---
+
 `@miles 2/25/2022 10:45 PM (UTC)`
 
 2/25/2022 Miles Guo: Ukraine is one of the most corrupt countries on earth. The US and EU failed to fulfill their promises to protect Ukraine and have abandoned it, while also tearing up their promises made to Russia that NATO would not expand eastward and Ukraine would not join the EU. So, Putin’s war on Ukraine is not entirely unjustifiable.<br/><br/>2/25/2022 文贵直播：乌克兰是全球最腐败的国家之一，美欧没有兑现保护乌克兰的承诺并抛弃了它，同时撕毁了对俄罗斯做出的北约不东扩、乌克兰不入欧盟的承诺，普京打乌克兰并不输理<br/>
@@ -146,13 +153,6 @@
 
 2/23/2022 Miles Guo: The less developed places are less suitable for people to live in Communist China! In county, township, village, and other low government levels, several local families have taken up all the key positions such as those in the public security organs, procuratorates, and courts. The shielding among these interest groups have led to the prevalence of the incidents such as that of the chained woman in Communist China.<br/><br/>2/23/2022 文贵直播: 中共国越是底层越不适合人居住！在县乡镇村等基层单位，常常是几个家族承包了公检法等重要部门，他们之间的利益保护使类似”锁链女”这样的事件在中共国层出不穷<br/>
 ![img](https://media.gettr.com/group48/getter/2022/02/24/15/8de99f36-6768-64b5-a369-b8779f6be0bc/out.jpg)
-
----
-
-`@miles 2/24/2022 1:48 PM (UTC)`
-
-印媒WION：西方在俄乌问题上的软弱会鼓励中共侵占台湾<br/><br/>Indian WION: The West's weakness in Russia and Ukraine will encourage CCP to annex Taiwan.<br/>
-![img](https://media.gettr.com/group46/getter/2022/02/24/13/682f4384-af91-7888-7798-304004cfa62c/out.jpg)
 
 ---
 

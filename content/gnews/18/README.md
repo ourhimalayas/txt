@@ -2,72 +2,39 @@
 ---
 
 
-## 2022年2月25日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2066587/)
+## 北京考虑普京与台湾的例子
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2066690/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot_副本-6.jpg)
-盖特连接：[2022年2月25日 文贵大直播：乌克兰形势与第三次世界大战；加停止紧急状态法与疫苗灾难；中共攻台进入即时戰备状态；世界经济如何面对战争与病毒](https://gettr.com/streaming/pwroklf1f7)
+编译: 七龙珠
 
-G-TV连接：[2022年2月25日 文贵大直播：乌克兰形势与第三次世界大战；加停止紧急状态法与疫苗灾难；中共攻台进入即时戰备状态；世界经济如何面对战争与病毒](https://gtv.org/video/id=6218d34708ba8a07b1a341e7)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2416-edited.png)abc.es
 
-1、乌克兰战争和疫苗有必然的联系，乌克兰战争是疫苗 新冠病毒操作的结果；
+人们的注意力集中在欧洲，但习近平在秋季有一项关键的任命，以使自己的权力得以延续。
 
-2、习近平打台湾普金打乌克兰主要原因是，两人身体都不好和两人内部危机、经济压力大；
+北京2022年冬奥会刚一结束，俄罗斯对乌克兰的战争就开始了。就在三周前，在“鸟巢”的开幕典礼上，普京是习近平主席最高贵的客人，与沙特阿拉伯王储本-萨勒曼一起，众所周知萨勒曼涉嫌在伊斯坦布尔的领事馆残忍地谋杀和肢解记者贾马尔-卡舒吉。几家媒体随后援引美国的情报报道说，习近平要求普京不要发起攻击，至少在奥运会结束之前。当然，中共国一如既往的否认，这些报告已经警告说俄罗斯将入侵数周，这就是最终发生的事情。
 
-3、小土豆听命于达沃斯 美国，损害加拿大基层人民的利益，加拿大运动会没完没了；
+普京和习近平除了出席奥运会开幕式，为奥林匹克运动所代表的“和平与和谐”的喝彩外，还签署了一份宣言，倡导不同于西方民主国家所体现的世界新秩序。随着对北约的批评、对彼此要求的相互支持以及一份丰厚的天然气合同，世界上两个最威权的领导人在乌克兰问题、北京在新疆和香港的镇压以及对台湾的威胁等紧张局势下收紧了他们的联盟。
 
-4、达沃斯不是沼泽地，就是沼泽地的一条狗，或者尿盆；
+对乌克兰的入侵，中共国避免谴责，甚至不给它下定义。这是对这个事实上独立的台湾岛的警告，但自七十年前内战结束后，它就被共产党政权威胁挟持。在普京的大胆行为的鼓励下，最顽固和反西方的中共国民粹主义者已经在社交媒体上摩拳擦掌，宣布台湾将是下一个。
 
-5、沼泽地的人和蔼可亲，不浪费时间，不会露面的，不在乎世界怎么看，没有正义和邪恶的分别，觉得是地球的主人；
+鉴于中俄之间的“友好关系”，习近平是否敢于像普京现在在乌克兰以及2014年在克里米亚所做的那样，发动攻势来征服这个台湾？随着西方大国在东欧的开放战线，这个时机似乎很完美。但现实要复杂得多，尤其是在中共国。
 
-6、习近平打台湾，普京拿乌克兰计划2010就开始；
+优点和缺点
 
-7、中国银行副行长认为文贵先生挑战UBS就是挑战全人类精英，文贵先生就是要通过法庭让UBS交出真相，要UBS吐出偷走的中国人的钱；
+尽管它与美国的“新冷战”以及与欧盟的冲突，务实的北京政权的首要任务是继续保持增长，而这场战争将进一步损害已经被冠状病毒大流行严重耗尽的全球经济。虽然中共国是俄罗斯的盟友，但它在乌克兰也有巨大的商业利益，乌克兰是其新丝绸之路上通往欧洲的门户之一。随着经济交流已经超过100亿美元（约90亿欧元），中共国两年前取代俄罗斯成为乌克兰的主要贸易伙伴。
 
-8、H-Pay的使用方法：无痕迹的合法活动、不受监管的自由流通、非商业性互转、有执照的支付；
+此外，习近平在秋天要召开中共第二十次代表大会，预计他将继续执政，他现在最不希望看到的是全球不稳定的焦点，可能在他的国家引发紧张局势。而且，矛盾的是，普京对引发这场战争的乌克兰东部分离主义和亲俄地区的承认，与北京对台湾的立场相冲突，北京要求承认“一个中共国”，甚至有一部反分裂法，授权其在该岛正式宣布独立时使用军事力量。当然，该政权也可以使用与俄罗斯相同的安全理由，甚至声称台湾是“中共国的顿巴斯”，正如其宣传中已经暗示的那样。
 
-9、3月1日人民币5万限制的根本原因就是喜币喜联储；
+尽管如此，很少有人相信习近平现在敢于入侵台湾，就像直到昨天还认为普京对乌克兰所做的那样。
 
-10、喜币自由流通的前提。是不要变成为犯罪的工具；
+链接：【abc.es】[Pekín pondera la posibilidad de imitar el ejemplo de Putin con Taiwán](https://www.abc.es/internacional/abci-pekin-pondera-posibilidad-imitar-ejemplo-putin-taiwan-202202250028_noticia.html)
 
-11、普京正式进入作战中心，就是那天文贵先生嗑瓜子的原因；
+* * *
 
-12、美国对俄罗斯说制裁，没有任何行动；欧洲元首都叫唤，没有行动；
-
-13、美国对中共的制裁绝对不会不行动，而且一定有军事行动，会超出所有人的想象；
-
-14、台湾：迅速占领台湾或围而不打；
-
-15、这次要不台湾灭，要不共产党灭；
-
-16、星期六GEDU直播；
-
-**注：大直播音频正在制作和上传中，敬请关注****——**
-
-**（大直播音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+审核：Aries的星
+校对：信心满满
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
