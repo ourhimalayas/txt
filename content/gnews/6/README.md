@@ -2,22 +2,26 @@
 ---
 
 
-## 联合国人权专家呼吁阻止中共等国向缅甸军政府提供武器
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2066843/)
+## 乌总统西装换军装 誓言保卫首都
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2066988/)
 
-撰稿/翻译：zzballack
-上传：追着曙光跑
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/02/乌总统西装换军装-誓言保卫首都.jpg)
+[图片来源](https://www.ladbible.com/news/ukrainian-president-puts-on-military-uniform-to-fight-for-his-homeland-20220225)
 
-据英国《每日邮报》（Daily Mail）2月23日报道，联合国缅甸人权状况特别报告员汤姆·安德鲁斯(Tom Andrews) 2月22日发表报告说，俄罗斯和中共仍在继续向缅甸军政府提供战斗机等用来屠杀平民的武器，他催促联合国安理会阻止这些用于暴行的武器流入缅甸。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-26-at-11.05.53.jpeg)图片来源：原新闻
-安德鲁斯表示，中共、俄罗斯和塞尔维亚自2018年以来一直在向军政府提供用于袭击平民的武器，这些武器包括喷气式战斗机、装甲车、弹道导弹系统和移动防御系统。报告说，这些国家“完全知道这些武器将被用于攻击平民”。
+法新社报道，2月25日，乌克兰总统泽连斯基在首都基辅市中心发布一段自己拍摄的视频，誓言要保卫首都，防御俄罗斯的入侵。
 
-联合国引述一位活动人士的话说，至少有1500名平民被军政府杀害，军方和武装反对派在农村的冲突导致30多万人流离失所，对罗兴亚（Rohingya）穆斯林少数民族血腥镇压后，数十万人逃往邻国孟加拉。
+泽连斯基身着绿色制服，与总理及参谋长等站在总统府前，说：“我们都在这里。军队在这里。市民在这里。我们是为了保卫我们的独立和国家留在这里。”
 
-安德鲁斯说：“用于杀害平民的武器不应再被转让给缅甸，这一点应该是无可争议的。这些武器确实震撼了良知。阻止军政府的暴行首先要阻止他们获得武器。世界越是拖延采取行动，缅甸就会有越来越多无辜民众死亡，包括儿童。”报告呼吁安理会和各成员国采取紧急行动，停止向缅甸军政府出售武器以及切断其收入来源，削弱军政府攻击和恐吓缅甸人民的能力。
+这段视频表现了对来自俄罗斯总统普京压力的对抗。在莫斯科的一次电视讲话中，普京称泽连斯基政府是“恐怖分子”和“吸毒者和新纳粹分子的聚集地”，并呼吁乌克兰军队发动政变。
 
-信息来源：[Russia and China are providing Myanmar military junta with fighter jets used to slaughter civilians: UN demands an end to flow of weapons used to carry out atrocities](https://www.dailymail.co.uk/news/article-10542121/Russia-China-providing-Myanmar-military-junta-fighter-jets-used-slaughter-civilians.html)
+信息来源：
 
+[ウクライナ大統領、首都防衛を宣言 自撮り動画公開](https://news.yahoo.co.jp/articles/81cfad1b88fdac3a6a9855b6e3eab6ef2362a0e2/images/000)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,20 +2,35 @@
 ---
 
 
-## 秘翻在线：美欧对国家元首实施前所未有的制裁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2066744/)
+## 有声|乌克兰危机下,台湾正在严阵以待
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2066933/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-390.jpg)（图片源自本文链接）
-2月26日共同通讯社消息：欧盟（EU）以及美国、英国和加拿大政府25日宣布，将对俄罗斯总统弗拉基米尔-普京和外交部长谢尔盖-拉夫罗夫持续侵略乌克兰的行为实施制裁。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月23日，台北官员表示，台湾担心中共利用乌克兰日益紧张的态势来侵略台湾，尽管目前中共军方并未采取不同寻常的举动。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-25-2.jpg)图片来源网络
+台湾在上个月成立了国家安全委员会下属的乌克兰工作组，蔡英文周三表示台湾必须加强军事活动监视，避免错误讯息。目前乌克兰与台湾问题已经被捆绑在一起，且中共近日举行了频繁的军事演习，乌克兰危机之时，中共极有可能对台湾不利。 自1949年以来，台湾一直处在中共的威胁之中。习近平与普京的军事联合使得这种威胁愈发加大，且习近平采取了和普京类似的战略。目前的乌克兰危机之下，西方欧美等国积极给予俄罗斯各种制裁，习近平虽未对台湾采取任何不同的举动，但台湾的危机犹如暴风雨前的宁静，一触即发。
 
-国家元首受到制裁，实属异例。随着乌克兰局势的恶化，人们呼吁加强制裁的呼声不断。 然而，来自俄罗斯的反击也是不可避免的。
 
-据美国财政部称，除普京和拉夫罗夫外，国防部长绍伊古和武装部队总参谋长格拉西莫夫在美国的资产也已被冻结。参议院议长马特维延科和苏联安全局局长纳利什金也被追加列入制裁名单。
 
-信息源：[DeepL翻訳：世界一高精度な翻訳ツール](https://www.deepl.com/ja/translator)
+文字版原文：[乌克兰危机下,台湾正在严阵以待](https://gnews.org/zh-hans/2065945/)
 
-校对：Eric Kim
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
