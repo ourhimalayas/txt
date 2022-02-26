@@ -2,56 +2,252 @@
 ---
 
 
-## Steve Cortes认为中共入侵台湾的风险正在急剧上升
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2068947/)
+## 中国人真的这么容易忘却吗？
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2068986/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+[https://gtv.org/video/id=62197f7b1408ee3a03a4e6f4](https://gtv.org/video/id=62197f7b1408ee3a03a4e6f4)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+我们中国人 忘记疼痛
 
-2月25日，美国前总统川普2016和2020年竞选团队高级顾问Steve Cortes在参加Steve Bannon的[The War Room](https://warroom.org/)时，从经济的角度分析，中共入侵台湾的风险正在急剧上升。
+忘记痛苦 忘记灾难(的速度)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/steve-cortes-taiwan-1-1.jpg)
+可能是全世界最快的
 
-Steve Cortes是 1970年出生于美国伊利诺伊州（illioins）南芝加哥的哥伦比亚后裔，著名市场策略师、作家和电视节目主持人，Bloomberg Business, CNBC及Fox News评论员，Veracruz LLC.创始人。2016年和2020年，担任川普竞选团队顾问。
+最爱憧憬未来 幻想未来
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/E2Qh5AeWQAIz6rV.jpg)
+你看很多人 包括咱们战友
 
-Steve Cortes在班农节目中说，由于白宫有一个软弱的领导人，西方现在甚至不愿意对莫斯科（入侵乌克兰）采取严肃的行动，中共和俄罗斯这个邪恶轴心的兴起，中共内部越来越有底气可以在台湾采取行动。中共进攻台湾的时机可能已经成熟。
+就是啥事 出现了1
 
-市场方面，台湾半导体（Taiwan Semiconductor Mfg. Co. Ltd.，台积电）是世界上最大的公司之一，市值5000亿美元，员工50,000人，绝对是美国和全世界的芯片生产中心。
+他能给你想出一个亿出来
 
-台积电的股价自1月14日以来的五个星期，正式进入熊市，由当时的最高点145美元下跌到110美元，昨天甚至下探至全年最低点104美元。
+1 到后边升无数
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-26_17-00-55.png)
+1升无数 不用3升无数
 
-Steve Cortes认为，台湾半导体绝对是一个风向标，告诉我们中共入侵台湾的风险正在急剧上升，一旦台湾开战，乌克兰局势就显得平淡无奇了，台湾将成为全世界关注的热点。
+幻想劲儿 极强
 
-在俄罗斯入侵乌克兰之后，美国总统拜登前天宣布，制裁4 家俄罗斯银行，但不会制裁俄罗斯石油，甚至在三天前，拜登冻结了美国所有新的石油和天然气钻探项目。
+但是中国人 对过去的疼痛 灾难 基本上不记得
 
-中共外交部在回答路透社记者“为应对欧盟和美国对俄罗斯实施的制裁，中方会增加采购俄罗斯石油吗？”提问时说，“我们一贯反对任何非法单边制裁。我们要求有关方在处理乌克兰问题和对俄关系时，不得损害中方和其他方面正当权益。中俄之间本着相互尊重、平等互利的精神开展正常的贸易合作。”
+就像那锁链女一样
 
-翻译成人话就是，中共反对对俄罗斯制裁，无论国际社会如何制裁，中俄邪恶轴心不会改变，中共将一如既往的向俄爹输送利益！
+24年的疼(痛)
 
-2月25日下午，习猪头同俄罗斯总统普京通电话，习太阳说，中共“根据乌克兰问题本身的是非曲直决定中方立场”，要“摒弃冷战思维”！看来习猪头真想打热战！
+你能忘掉吗
 
-参考数据：
+三天前咱们一个女战友
 
-[Steve Cortes Reveals Major Signal of Communist China’s Move on Taiwan (VIDEO)](https://www.thegatewaypundit.com/2022/02/steve-cortes-reveals-major-signal-communist-chinas-move-taiwan-video/)
+说 七哥 你知道吗
 
-[习近平同俄罗斯总统普京通电话](https://www.mfa.gov.cn/zyxw/202202/t20220225_10645684.shtml)
+我11岁 就被我爸爸的同事给强奸了
 
-[2022年2月25日外交部发言人汪文斌主持例行记者会](https://www.mfa.gov.cn/fyrbt_673021/202202/t20220225_10645686.shtml)
+我到了16岁
 
-[俄罗斯精锐近卫军杀进乌克兰首都基辅！中国撂下一句狠话！](https://www.163.com/dy/article/H14R7EN80552FDOB.html)
+我又被我哥的同事强奸
 
-[Taiwan Semiconductor Mfg. Co. Ltd.](https://www.tsmc.com/english)
+我给我爸说 给我哥说
 
-[Steve Cortes Biograph & Age, Wiki, Height, Weight, Girlfriend, Family & More](https://www.marathi.tv/political-analyst/steve-cortes/)
+两次都被息事宁人
 
-[Steve Cortes CNN, CNBC, Wiki, Bio, Age, Birth Place, Wife, Kids, Trump, Salary and Net Worth](https://www.wiki.ng/en/wiki/steve-cortes-cnn-cnbc-wiki-bio-age-birth-place-wife-kids-trump-salary-and-net-worth-480614)
+不要再说了 你还得嫁人呢
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+她说 七哥 我(被)忘掉了两次强奸
+
+你说这个女的被强奸24年 天天被强奸
+
+她是啥感觉
+
+我说 这就是我们中国人的根结 因和缘
+
+就因为有你这样 两次被你爸
+
+你哥的同事强奸不说
+
+它才能结出这样 24年 被轮奸
+
+生出八个孩子 这样的结果
+
+我徐州的一个好朋友
+
+昨天给我发信息 给我说什么
+
+七哥 整个徐州现在建了好几堵墙
+
+他说 你能想像
+
+这个锁链女的村旁边建上了铁墙吗
+
+你能想像那个医院里边
+
+现在警察建立了一道200多(个人的)警察墙吗
+
+就这个事 徐州咱那个哥们跟我说
+
+说 讲话内部
+
+这个事可能要折腾一个月
+
+由于西方反华势力 郭文贵
+
+以及他所谓建的犯罪集团
+
+反党反国集团
+
+新中国联邦
+
+利用所谓的锁链女事件 大肆炒作
+
+这个事情 可能要进行四周到六周的时间(来处理)
+
+严查
+
+紧急的24小时的进行网络封锁
+
+就是现在这个锁链女(事件) (预定)六周(结束)
+
+现在已经大概四周了吧 还有两周时间
+
+估计这事就过了
+
+我特别想问问中国人
+
+我们中国人真的就是这么容易忘掉(吗)
+
+被强奸两次 然后等待着
+
+很有可能 发生在你家身上的 24年的轮奸吗
+
+我们真的那么容易忘记吗
+
+The speed at which we Chinese forget pain
+
+forget suffering and forget disaster
+
+is probably the fastest in the world
+
+And the most paranoid about imagining the future
+
+Many people including our fellow warriors
+
+No matter what,as long as there is 1 appears
+
+It will be thought of a billion out for you
+
+1 then rises to infinity
+
+Goes directly from 1 to infinity skipping the middle process
+
+The impulse to fantasize is extremely strong
+
+But the Chinese do not remember the pains and disasters of the past
+
+Just like the chained girl
+
+24 years of pain
+
+Will you forget it?
+
+Three days ago, one of our female fellow warriors
+
+Said, Miles! do you know？
+
+I was raped by my father’s colleague when I was 11
+
+Then I reached the age of 16
+
+I was raped again by my brother’s colleague
+
+I told my dad, I told my brother
+
+Both times were mercilessly overshadowed
+
+“Stop saying that, otherwise how can you marry someone?
+
+She said, Miles! I was raped twice both times forgotten and covered up
+
+Then this girl has been raped for 24 years, raped every day
+
+How bad does she feel?
+
+I say, this is the root knot of our Chinese people, cause and origin
+
+Just because you were raped twice by colleagues of your father
+
+and your brother,and you didn’t to fight for your rights
+
+It is for this reason that the end of being raped for 24 years
+
+and giving birth to eight children occurred
+
+and A good friend of mine in Xuzhou
+
+sent a message to me yesterday
+
+Miles, in Xuzhou now built a number of walls
+
+He said, can you imagine
+
+that An iron wall was built around the village of this chained girl?
+
+Can you imagine the hospital where the chained girl lives
+
+now building a wall of over 200 police officers?
+
+About this event, our buddy in Xuzhou told me
+
+Internal discussion said
+
+This thing may be tossed around for a month
+
+Due to the Western anti-Chinese forces Guo Wengui
+
+and the criminal group he supposedly built
+
+the anti-party and anti-national group
+
+New Federal State of China
+
+Using the so-called chained woman event to create a lot of hype
+
+This event may take four weeks to six weeks to process
+
+Strictly investigate
+
+Emergency 24-hour blocking of the network
+
+That is, this chained girl event is scheduled to end in six weeks
+
+It’s been about 4 weeks now and two weeks to go
+
+It is estimated that this event will be over
+
+I especially want to ask the Chinese
+
+Do we Chinese really forget things that easily?
+
+Forget being raped twice and then waiting for
+
+24 years of gang rape that most likely will to happen to your family?
+
+Do we really forget that easily?
+
+* * *
+
+日期那里：02//20/2022
+原视频标题: 中国人真的这么容易忘却吗？
+Do we Chinese really forget things that easily?
+任务编号：LP008
+视频时间段 : 0:00-02:45
+英听校： 洛杉矶盘古农场 – 庚子
+翻译：洛杉矶盘古农场 – 庚子
+翻译终校：洛杉矶盘古农场 – 银龙
+字幕+视频制作：洛杉矶盘古农场-庚子
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

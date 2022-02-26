@@ -15,71 +15,71 @@
 
 ---
 
-### [漫谈“长津湖战役”(17—19)](/content/gnews/1/README.md)
- ` Longbeach`
-
-### [Steve Cortes认为中共入侵台湾的风险正在急剧上升](/content/gnews/2/README.md)
- ` 温哥华扬帆农场`
-
-### [茉莉花革命—人民争取自由民主，发动街头抗争的革命](/content/gnews/3/README.md)
- ` 纽约香草山MOS03`
-
-### [俄罗斯航天局局长威胁说要让国际空间站落到美欧境内](/content/gnews/4/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [俄罗斯反战抗议爆发](/content/gnews/5/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [中共官场的特色治理 “零目标”](/content/gnews/6/README.md)
- ` 蓝莲花农场`
-
-### [制裁俄罗斯 日本公司如坐针毡](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [关于乌克兰的一些关键事实](/content/gnews/8/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [欧盟领导人对俄罗斯实施金融制裁和技术限制](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国不会派军前往乌克兰](/content/gnews/10/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [斯科特·莫里森宣布对俄罗斯的另一套制裁措施](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [世界领导人谴责俄罗斯对乌克兰的“野蛮”攻击](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [普京称他别无选择只能进攻乌克兰](/content/gnews/13/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [秘翻新闻｜美欧加大对俄制裁力度 直接针对普京](/content/gnews/14/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [联邦法官裁定维州精英高中招生改革 构成歧视亚裔](/content/gnews/15/README.md)
- ` 日本東京方舟農場`
-
-### [乌克兰请不要放弃-自由陪伴着你](/content/gnews/16/README.md)
- ` 澳喜农场`
-
-### [欧盟官员称可能切断俄罗斯与SWIFT的联系](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [50国声明：谴责俄罗斯滥用否决权](/content/gnews/18/README.md)
- ` 日本東京方舟農場`
-
-### [枷锁](/content/gnews/19/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [大直播后记：喜币可冲掉通货膨胀和货币的不稳定](/content/gnews/20/README.md)
+### [大直播后记：新的帝国即将诞生](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [20220225文贵大直播：UBS案子可以揭开沼泽地和共产党在世界法律系统里的所有黑暗历史](/content/gnews/21/README.md)
- ` Tokyo Sakura Video Group`
+### [中国人真的这么容易忘却吗？](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [20220225文贵大直播：加拿大将是崛起的新帝国！](/content/gnews/22/README.md)
- ` Tokyo Sakura Video Group`
+### [习普联盟或引发全球排华](/content/gnews/3/README.md)
+ ` 澳喜农场`
+
+### [揭秘中共各种人祸政策成因](/content/gnews/4/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [漫谈“长津湖战役”(17—19)](/content/gnews/5/README.md)
+ ` Longbeach`
+
+### [Steve Cortes认为中共入侵台湾的风险正在急剧上升](/content/gnews/6/README.md)
+ ` 温哥华扬帆农场`
+
+### [茉莉花革命—人民争取自由民主，发动街头抗争的革命](/content/gnews/7/README.md)
+ ` 纽约香草山MOS03`
+
+### [俄罗斯航天局局长威胁说要让国际空间站落到美欧境内](/content/gnews/8/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [俄罗斯反战抗议爆发](/content/gnews/9/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [中共官场的特色治理 “零目标”](/content/gnews/10/README.md)
+ ` 蓝莲花农场`
+
+### [制裁俄罗斯 日本公司如坐针毡](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [关于乌克兰的一些关键事实](/content/gnews/12/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [欧盟领导人对俄罗斯实施金融制裁和技术限制](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国不会派军前往乌克兰](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [斯科特·莫里森宣布对俄罗斯的另一套制裁措施](/content/gnews/15/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [世界领导人谴责俄罗斯对乌克兰的“野蛮”攻击](/content/gnews/16/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [普京称他别无选择只能进攻乌克兰](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [秘翻新闻｜美欧加大对俄制裁力度 直接针对普京](/content/gnews/18/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [联邦法官裁定维州精英高中招生改革 构成歧视亚裔](/content/gnews/19/README.md)
+ ` 日本東京方舟農場`
+
+### [乌克兰请不要放弃-自由陪伴着你](/content/gnews/20/README.md)
+ ` 澳喜农场`
+
+### [欧盟官员称可能切断俄罗斯与SWIFT的联系](/content/gnews/21/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [文贵直播大事记——Q配合HBO VICE，中共5年下大棋（一）](/content/gnews/22/README.md)
+ ` GNotes真.贵.记.录`
 
 ### [《接种疫苗后导致318名运动员心脏骤停》案例汇总（六） （完）](/content/gnews/23/README.md)
  ` 喜马拉雅农场新西兰站`
