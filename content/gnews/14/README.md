@@ -2,8 +2,8 @@
 ---
 
 
-## 教育捐款不是希望是绝望
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2071666/)
+## 普鲁士和芬兰教育的核心
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2071828/)
 
 #### 視頻剪輯: WinterGuo ；開智則立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蝸牛 ；牛魔王
 視頻定位：BENJ1；WEI

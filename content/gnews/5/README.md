@@ -2,8 +2,8 @@
 ---
 
 
-## 普鲁斯教育成了工业文明之后最好的教育
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2071822/)
+## 什么样的教育体制适合我们
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2071886/)
 
 #### 視頻剪輯: WinterGuo ；開智則立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蝸牛 ；牛魔王
 視頻定位：BENJ1；WEI

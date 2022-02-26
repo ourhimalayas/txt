@@ -2,8 +2,8 @@
 ---
 
 
-## 香港富豪对教育的态度
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2071810/)
+## 教育不是国家的基石,是把人畜分开、认知文明、创造文明和给予文明的一个重要手段
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2071867/)
 
 #### 視頻剪輯: WinterGuo ；開智則立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蝸牛 ；牛魔王
 視頻定位：BENJ1；WEI

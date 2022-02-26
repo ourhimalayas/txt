@@ -2,8 +2,8 @@
 ---
 
 
-## 中国教育是政治需要
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2071784/)
+## 教育本质是提供一个学习的环境
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2071854/)
 
 #### 視頻剪輯: WinterGuo ；開智則立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蝸牛 ；牛魔王
 視頻定位：BENJ1；WEI

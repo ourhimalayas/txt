@@ -15,86 +15,86 @@
 
 ---
 
-### [中国人的教育不是目的,而是工具](/content/gnews/1/README.md)
+### [新中国联邦教育超级规划始于见识（二）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [河北衡水中学是房地产、性交易场所、虐童的地方](/content/gnews/2/README.md)
+### [新中国联邦教育超级规划始于见识（一）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [英国教育成了全世界主流](/content/gnews/3/README.md)
+### [2/26/2022 文贵直播：中共宣称的教育经费和覆盖率全是假的，中共国的教育属于特权阶级，是腐败的根源，教师被洗脑沦为工具](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
+
+### [如何找到好校长找到好老师是GEDU教育成功第一的关键](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [普鲁士和芬兰教育的核心](/content/gnews/4/README.md)
+### [什么样的教育体制适合我们](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [普鲁斯教育成了工业文明之后最好的教育](/content/gnews/5/README.md)
+### [邪恶的国家里，教育是统治者的工具](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [中共不能让企业家参与教育](/content/gnews/6/README.md)
+### [教育不是国家的基石,是把人畜分开、认知文明、创造文明和给予文明的一个重要手段](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [香港富豪对教育的态度](/content/gnews/7/README.md)
+### [2/26/2022 文贵直播：新中国联邦的GEDU教育的目标就是松绑；教育不能被政治和金钱绑架](/content/gnews/8/README.md)
+ ` 秘密翻译组-北美组`
+
+### [共台办“三点强调”谈推进奴役台湾进程](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [教育本质是提供一个学习的环境](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [我们新中国联邦教育要做什么](/content/gnews/8/README.md)
+### [中国人的教育不是目的,而是工具](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [有感而发郭文贵先生的“性，早看早有用，早看早有影响！”](/content/gnews/9/README.md)
- ` mayflowertranslate`
-
-### [中国教育是政治需要](/content/gnews/10/README.md)
+### [河北衡水中学是房地产、性交易场所、虐童的地方](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [麦考尔众议员谴责中共支持俄罗斯入侵乌克兰](/content/gnews/11/README.md)
- ` 华盛顿DC-Russian`
-
-### [2022年02月26日G教育大直播速记精萃](/content/gnews/12/README.md)
+### [英国教育成了全世界主流](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [战争来临时如何选择避难所——供台湾同胞参考](/content/gnews/13/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [教育捐款不是希望是绝望](/content/gnews/14/README.md)
+### [普鲁士和芬兰教育的核心](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [德国向基辅交付 1000 枚反坦克武器和 500 枚毒刺导弹](/content/gnews/15/README.md)
+### [普鲁斯教育成了工业文明之后最好的教育](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [中共不能让企业家参与教育](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [德国向基辅交付 1000 枚反坦克武器和 500 枚毒刺导弹](/content/gnews/17/README.md)
  ` Shuizhuyu`
 
-### [秘翻在线：美再向乌克兰提供数亿美元武器装备](/content/gnews/16/README.md)
+### [秘翻在线：美再向乌克兰提供数亿美元武器装备](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|美国指责中俄联手打造极不自由的世界秩序](/content/gnews/17/README.md)
+### [有声|美国指责中俄联手打造极不自由的世界秩序](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|了解HPay功用 做好HPay推广](/content/gnews/18/README.md)
+### [有声|了解HPay功用 做好HPay推广](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|台湾空军警告进入防空区的中共飞机](/content/gnews/19/README.md)
+### [有声|台湾空军警告进入防空区的中共飞机](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [2022/02/26 英喜时事速递](/content/gnews/20/README.md)
+### [2022/02/26 英喜时事速递](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月26日早](/content/gnews/21/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月26日早](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [关于俄罗斯-乌克兰的话题（持续更新中）](/content/gnews/22/README.md)
+### [关于俄罗斯-乌克兰的话题（持续更新中）](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [G教育——替天行教](/content/gnews/23/README.md)
+### [G教育——替天行教](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [【转】2/25日止，俄乌开战要闻简报实况](/content/gnews/24/README.md)
+### [【转】2/25日止，俄乌开战要闻简报实况](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文贵先生破产助灭共](/content/gnews/25/README.md)
+### [文贵先生破产助灭共](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [新的货币金融体系正在形成 未来数字货币将会和新型法币并存](/content/gnews/26/README.md)
- ` 焦點20分`
-
-### [世界局势动荡 是中西方宗教 文化 政治体系的大碰撞 新中国联邦是黑暗中的灯塔](/content/gnews/27/README.md)
- ` 焦點20分`
 
 ### [2022年2月26日，全球中共病毒疫情情况汇总](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
