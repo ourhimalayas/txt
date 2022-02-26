@@ -2,8 +2,8 @@
 ---
 
 
-## 小土豆为什么撤销紧急法
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2066368/)
+## 加拿大会是未来新的伟大国家
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2066383/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
