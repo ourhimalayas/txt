@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/26/2022 9:50 PM (UTC)`
+
+G-EDU立志为世界培养优秀人才，提供优质、前沿的学习机会和发展前景。现面向全球招募热爱教育事业的专业人才，加入我们的团队。同时欢迎世界各地的孩子们来G-EDU报名上课，感受我们的教育理念和专业课堂，共同成长。<br/>G-EDU is an educational organization founded by NFSC in November 2021. We are taking the initiative to build quality teaching platforms. We hereby invite qualified educators who are dedicated to the future of our kids to join our team. <br/><br/>主教老师申请表：<br/>https://docs.google.com/forms/d/e/1FAIpQLSdg7wLDkncI3QuuynWhz7cQScYjV33XzQgB5-z_OpqzM7rYNg/viewform<br/><br/>学生入学申请表：<br/>https://docs.google.com/forms/d/e/1FAIpQLSfG5AInGN7kj2KkbKLq1ZtuazqnJkife1Fvrj3mnKllATNUFw/viewform <br/><br/>apply, please click the link below:<br/>https://docs.google.com/forms/d/e/1FAIpQLSffXsCK9t2rPeY3roFiMGJvWbP3eoukP9d4jMs7_ma6EMjsuQ/viewform?usp=pp_url <br/><br/>欢迎加入G-EDU官方工作平台<br/>Welcome to G-EDU:<br/>https://discord.gg/Dq7p9knV
+![img](https://media.gettr.com/group42/getter/2022/02/26/21/8ffc942f-421a-028e-3501-ed22a2e4e3ae/2b46448b9e228cccaa161c19571b5f01.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@milesguolive 2/26/2022 11:31 AM (UTC)`
@@ -154,12 +161,6 @@ Mr. Bannon 100% agree that the Wall Street has provided the capital from the pen
 
 2/24/2022 Miles Guo’s Urgent Livestream: Numerous people will die in Communist China next year regardless of whether the CCP invades Taiwan, and the Chinese people may have to rummage through garbage for food. If the CCP invaded Taiwan, it would suffer worse economic sanctions than Russia. The CCP’s economic centers and military bases will also be devastated. Fellow fighters in Communist China should prepare for that. The New Federal State of China is the only one in the world that has revealed the evil plan of Putin and Xi Jinping to invade Ukraine and Taiwan, respectively.<br/><br/>2/24/2022 文贵紧急直播：不论打不打台湾，明年的中共国都将尸横遍野，人们可能要吃垃圾；若打了台湾，中共将遭受比俄罗斯更惨的制裁，中共经济中心和有军事基地将遭毁灭性打击请请国内战友做好准备；全人类只有新中国联邦揭露了习普的邪恶计划<br/>
 ![img](https://media.gettr.com/group39/getter/2022/02/25/01/2e8f84d7-50b9-f7f4-4554-08ab913d56bc/out.jpg)
-
----
-
-`@miles 2/25/2022 1:30 AM (UTC)`
-
-🆘🆘🆘为了集合全球战友资源救助台湾战友，联盟发放统一登记表格，请有可能提供救助资源的战友填写，表格链接：<br/><br/>https://forms.gle/pgVrayLJKqS7NMsN8<br/><br/><br/>联盟-身在台湾的战友撤离统计表单：<br/><br/>https://docs.google.com/forms/d/e/1FAIpQLScjccjoDUB3u-OhC-zeZDvvtiHqxXo1z4h6Ls_LkxxtLZEYJw/viewform<br/><br/>考虑到目前紧张局势，针对墙内战友和香港战友撤离需要寻求协助，联盟发出统一的登记表格，表格链接：<br/><br/>https://forms.gle/Xaiofs6eKWvbhLTf7 
 
 ---
 

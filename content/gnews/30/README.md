@@ -2,36 +2,28 @@
 ---
 
 
-## 温哥华发生两名华人遇害事件
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070637/)
+## 2022.2.26大直播 郭先生谈对新中国联邦教育的设想
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2070848/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月22日，据加拿大媒体报道，温哥华警方于20日在西区第八大道附近发现了两名女性死者。经调查后发现，50岁的吴淑敏和39岁的孙颖颖死于枪击事故。
+撰稿：大浪小水花
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-5.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-26-at-9.28.30-PM.jpeg)
 
-据悉，当天早晨8点，邻居在一辆白色的宝马SUV内发现了这两名华裔女性死者。前一天夜里，附近的其他住户也表示，听见了几声类似烟花的巨响。
 
-资料显示，孙颖颖生前曾担任过中共国女足运动员前锋，其先后效力于大连实德女足和天津汇森女足。
+郭文贵先生在2022年2月26日大直播中，讲到了对新中国联邦GEDU的设想。
 
-温哥华警方表示，该案件的事发地是温哥华治安最好的社区，警方目前怀疑这是一起有预谋的案件，并且担心可能还有更多的受害者。而该社区的居民则提到，这一案件令整个社区都处在惶恐之中。
+郭先生提到新中国联邦的教育第一个目标就是松绑教育，把教育从人类历史上的政治教育转变回正常的教育。
 
-参考链接：[Vancouver police investigate double homicide in Point Gre](https://vancouversun.com/news/crime/vancouver-police-on-scene-of-serious-incident-in-point-grey)y
+第二，我们要在全世界开启一个新的、人类上从来没有的松绑的金钱教育，我们必须松绑金钱教育，不允许老师和学生在这里有任何钱的味道，要彻底铲除。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+第三，新中国联邦教育教育就是提供适合一个人对自己有利、对他人有利的生长环境。
 
-总编：Irene木木
-编辑：Jack Li文阳
-校正/发稿：谐趣园
+郭先生指出教育的本质就是培养一个人的性格，可启迪一个人的兴趣，激发他的潜质。要允许他犯错误，把错误变成能力和体验，而不是死在错误里。教育是人畜分开的一个最重要的手段，也是人类认知文明、创造文明和给予文明的必要的手段。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭先生强调，一个国家、一个社会对教育的定位一旦不清楚、不健康，全部工具化，这个社会一定走向灾难。我们不能把新中国联邦教育的目标和新中国联邦追求的政治目标、思想目标混淆。新中国联邦教育，一切都是育人，为新中国联邦人提供成长的环境。
+
+参考链接：[2022年2月27日文贵大直播 GEDU专场](https://gtv.org/video/id=621a28c808ba8a07b1a3e95b)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

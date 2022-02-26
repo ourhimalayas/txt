@@ -2,46 +2,29 @@
 ---
 
 
-## 一号文件
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2070527/)
+## 俄罗斯趁势胁芬兰和瑞典 加入北约会有严重后果
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070597/)
 
-作者：香草山教育部-雪梨
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-85.png)
-“一号文件”，即中共每年发布的第一份文件，是中共发布的关于农村问题的专有名词。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/03-4.png)
+[图片链接](https://news.yahoo.co.jp/articles/f9a2bc1c7ffea342ac7f127c5856349897b4007c/images/000)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/a2f56b3eac7e2871.png)
+俄罗斯以加入北约将威胁其安全为由全面入侵乌克兰，现在又威胁芬兰和瑞典如果加入北约将带来军事和政治的负面后果。
 
-二战期间，中共绑架战区老百姓抗日，老百姓别无选择。
+据福克斯新闻报道，俄罗斯外交部发言人在一次新闻发布会上说，“芬兰和瑞典正试图加入北约，并威胁到俄罗斯的安全”，“如果他们真的加入北约，就将面临严重的军事和政治后果”。
 
-篡权后，中共“打土豪，分田地”，农民再次沦为中共抢夺土地的牺牲品。
+俄罗斯外交部还通过推特警告说，“如果芬兰加入北约，它可能变得像乌克兰一样。”
 
-20世纪50年代，中共施行“人民公社”“大锅饭”，中华大地饿殍遍野。
+在乌克兰事件之后，北欧和东欧国家得出结论，他们需要加入北约，以保护自己不受俄罗斯的影响。
 
-而后的“责任承包制”“三农”政策，使农民负担加重，收益减少，土地变成商品被出售，农业土地面积越来越少。
+信息源：
 
-2月22日，中共再次发布“一号文件”，强调全力加强粮食生产。
+[ロシア、今度はフィンランドとスウェーデンを「強迫」…「NATOに加入すれば深刻な結果に」](https://news.yahoo.co.jp/articles/923b742e3bbf78775191af62b41f9d09fdb2eab5)
 
-近年来，爆料革命一直警示中共国面临着巨大的粮食危机。根据郭文贵先生2月25日大直播爆料，中共国粮食供应将出大问题，中共在半年前已经做好重回“人民公社”“大锅饭”的准备。粮食将再一次成为中共控制人民的工具。
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
 
-参考链接：
-
-[https://gnews.org/zh-hans/2066007/](https://gnews.org/zh-hans/2066007/)
-
-校对/发稿：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-64.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

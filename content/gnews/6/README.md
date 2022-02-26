@@ -2,33 +2,72 @@
 ---
 
 
-## 有声|了解HPay功用 做好HPay推广
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2071233/)
+## 灭共者之郭氏情报站（30）2022/02/25 文贵大直播
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/2071582/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月23日，针对战友们近期在推广HPay过程中遇到的各种疑问，郭文贵先生在大直播中建议，战友们应该先学、后用、再推销，这样才能达到事半功倍的效果。
+设计者：纽约香草山设计部 — 喜马拉雅大喵儿，天马星空J
 
-郭先生指出，在向其他商家推广HPay系统之前，战友们需要能熟练而清楚地解决HPay使用中的各类问题，包括商家在使用过程中提现HDO的方法、使用方的税务申报、未来HPay可以接受的法币种类、大小额交易的处理以及可能涉及的法规等等。如若不然，HPay的推广工作很难取得客户的信任。
 
-郭先生也补充道， 目前，HPay只涉及个人的转账，币种只覆盖HDO，线下交易的商务转账系统尚未实装，任何转账既不等同于商务交易，也不涉及发票和税务事宜。此外，由于HPay具有战略意义，不同的国家对此将有不同的法律要求。
 
-郭先生还鼓励战友们最近多多互相转账，以此充分熟悉HPay的使用方式。未来，随着HPay更多令人震惊的功能上线，其市场推广将更加顺利。届时，HPay也将给个人和商企带来更大利好。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-文字版原文：[了解HPay功用 做好HPay推广](https://gnews.org/zh-hans/2067241/)
 
-音频处理：Fei797
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+
+
+
+
+
+
+**灭共者-郭氏情报站**
+**2022年2月25日 文贵大直播**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-277.png)
+
+1、习近平王岐山，这两个文化大革命的鬼魂，登上世界的桌子就开始掀桌子，对中国人是灾难，但对灭共是重要人物。习太阳，普大帝，2010年就开始世界轴心5国的计划。陆地文明和海洋文明的大冲撞，东西方文化，杂教和西方宗教，独裁和民主之间的大PK。人类最大的冲突期会持续10-20年，甚至更长时间。新中国联邦会成为人类最大的光芒。
+
+2、内部危机是习近平打台湾的根本原因，习近平和普京身体都不好，打着国家和民族的名义，干一票。悲剧的是，人类所有的所谓国家民族名义，实际上都是为某几个人的一己私利。
+
+3、达沃斯论坛不是沼泽地，是沼泽地的一条狗，或者尿盆。 沼泽地的人和蔼可亲，不浪费时间，不会露面的，不在乎世界怎么看，没有正义和邪恶的分别，觉得是地球的主人。
+
+4、战争来临，稀有金属，黄金没有大涨，作为锚定物已经过时了。数字货币才是未来。共产党高官认为文贵挑战UBS就是挑战全人类。未来国家主权的法币，会逐步转变为区域通币，有区域性、行业性、民族性的数字货币。战友要明白HPay 的使用方法。区分好非商业性互转，和有执照的支付之间的区别。自由流通的财富，才是最高的境界。
+
+5、5万人民币限制的根本原因就是喜币、喜联储！国内认为喜联储影响不了人民币，但是会偷走小钱。郭先生回应，小钱不偷，大钱不要，要的是人民币的命。喜币会拿走共产党所有的钱。喜币是良心币，自由币。
+
+6、普京有20个作战中心，普金正式进入作战中心，就是那天七哥嗑瓜子的原因。对付普京的招数：1）swift切掉，俄罗斯绝对完蛋；2）驱逐英国的俄罗斯人，内部人就会干掉普京。
+
+7、美国对俄罗斯说制裁，没有任何行动；欧洲元首都叫唤，没有行动。但是对中共的制裁绝对不会不行动，而且一定有军事行动，会超出所有人的想象。到时候，世界财富只有2个系统，美联储和喜联储。
+
+**上一期：**
+
+**[灭共者之郭氏情报站（29）2022/02/23 文贵大直播 – GNEWS](https://gnews.org/zh-hans/2056208/)**
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-124.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
