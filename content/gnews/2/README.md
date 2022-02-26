@@ -2,14 +2,11 @@
 ---
 
 
-## 2022年2月26日《樱花简报》：旅日乌克兰人抗议俄罗斯入侵乌克兰
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2066697/)
+## 2/25/2022 文贵直播：普京此时打乌克兰和病毒、疫苗有啥关系？这和加拿大土豆实施紧急状态法、使用雇佣军又有啥关系？
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2066789/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220226简报-scaled.jpg)
+秘密翻译组-北美组
 
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

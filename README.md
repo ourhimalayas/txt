@@ -15,89 +15,89 @@
 
 ---
 
-### [2022年2月26日《樱花快报》：美英欧盟联合制裁俄罗斯总统普京](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [秘翻在线：日本开始考虑对白俄罗斯支持俄罗斯的行为进行制裁](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [2022年2月26日《樱花简报》：旅日乌克兰人抗议俄罗斯入侵乌克兰](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [2/25/2022 文贵直播：普京此时打乌克兰和病毒、疫苗有啥关系？这和加拿大土豆实施紧急状态法、使用雇佣军又有啥关系？](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
 
-### [北京考虑普京与台湾的例子](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [秘翻在线：美欧对国家元首实施前所未有的制裁](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [DC大中华时事：习近平同俄罗斯总统普京通电话](/content/gnews/4/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2/26 银河快讯: 岸田首相发表对俄三项制裁强化案；俄国大使发表对日制裁对抗措施声明](/content/gnews/5/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [【楚辞新作】九叹：1 &gt;8大主义——正道主义的新中国联邦走在时代前列（二）](/content/gnews/6/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [20220224文贵大直播：紧急直播的三个内容](/content/gnews/7/README.md)
- ` Tokyo Sakura Video Group`
-
-### [大直播后记：世界将大变，Hpay成最大赢家](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [文•贵天成——文贵先生谈“正道主义”（五）](/content/gnews/9/README.md)
+### [乌克兰警告：俄罗斯占领切尔诺贝利会引发严重后果](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥金句：新中国联邦禁止做的](/content/gnews/10/README.md)
+### [大直播后记：国际政治就是黑社会](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [英雄！乌克兰一士兵为挡俄军进基辅，手动引爆炸桥殉国](/content/gnews/11/README.md)
- ` 蓝莲花农场`
+### [2022年2月26日《樱花快报》：美英欧盟联合制裁俄罗斯总统普京](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥金句：当敌人猖狂的时候](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
+### [2022年2月26日《樱花简报》：旅日乌克兰人抗议俄罗斯入侵乌克兰](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年2月25日文贵先生直播摘要及音频—银河系农场](/content/gnews/13/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [【楚辞新作】九叹：1 &gt;8大主义——正道主义的新中国联邦走在时代前列（一）](/content/gnews/14/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [美国终于醒来和《酒灭中共》一样“不达目的誓不休”](/content/gnews/15/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2月25日文贵大直播摘要（图片6-10）](/content/gnews/16/README.md)
- ` 波士顿五月花农场`
-
-### [乔·拜登总统宣布因俄罗斯入侵乌克兰而对俄罗斯实施额外制裁](/content/gnews/17/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [痛斥俄罗斯的入侵恶行](/content/gnews/18/README.md)
- ` 日本東京方舟農場`
-
-### [乌克兰危机：二战以来欧洲安全面临的最大威胁](/content/gnews/19/README.md)
- ` 美国政要直译推`
-
-### [有声|坚决反对战争](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [Stew Peters Show: 辉瑞公司的肮脏秘密-英国卫生当局隐藏儿童死亡率](/content/gnews/21/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [西媒头条 — 第180期](/content/gnews/22/README.md)
+### [北京考虑普京与台湾的例子](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加拿大授权以植物为原料所制造的疫苗](/content/gnews/23/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [自由卡车车队支持者，加拿大原住民Candice Sero接受采访谈抗议现场皇家骑警马匹踩踏事件](/content/gnews/24/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [澳洲护士在社区演讲中问到人们是否认识因疫苗而受到伤害的人时，看看有多少人举起了手](/content/gnews/25/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [新中国联邦将在今年底迎来各项重大利好](/content/gnews/26/README.md)
- ` 扬帆枫叶快讯`
-
-### [斯托尔滕贝格称北约盟国将向乌克兰提供更多武器](/content/gnews/27/README.md)
- ` Shuizhuyu`
-
-### [《历史的今天》2022.02.25](/content/gnews/28/README.md)
+### [DC大中华时事：习近平同俄罗斯总统普京通电话](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
+
+### [2/26 银河快讯: 岸田首相发表对俄三项制裁强化案；俄国大使发表对日制裁对抗措施声明](/content/gnews/10/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [【楚辞新作】九叹：1 &gt;8大主义——正道主义的新中国联邦走在时代前列（二）](/content/gnews/11/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [20220224文贵大直播：紧急直播的三个内容](/content/gnews/12/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [大直播后记：世界将大变，Hpay成最大赢家](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [文•贵天成——文贵先生谈“正道主义”（五）](/content/gnews/14/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [七哥金句：新中国联邦禁止做的](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [英雄！乌克兰一士兵为挡俄军进基辅，手动引爆炸桥殉国](/content/gnews/16/README.md)
+ ` 蓝莲花农场`
+
+### [七哥金句：当敌人猖狂的时候](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
+
+### [2022年2月25日文贵先生直播摘要及音频—银河系农场](/content/gnews/18/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [【楚辞新作】九叹：1 &gt;8大主义——正道主义的新中国联邦走在时代前列（一）](/content/gnews/19/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [美国终于醒来和《酒灭中共》一样“不达目的誓不休”](/content/gnews/20/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [乔·拜登总统宣布因俄罗斯入侵乌克兰而对俄罗斯实施额外制裁](/content/gnews/21/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [痛斥俄罗斯的入侵恶行](/content/gnews/22/README.md)
+ ` 日本東京方舟農場`
+
+### [乌克兰危机：二战以来欧洲安全面临的最大威胁](/content/gnews/23/README.md)
+ ` 美国政要直译推`
+
+### [有声|坚决反对战争](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [Stew Peters Show: 辉瑞公司的肮脏秘密-英国卫生当局隐藏儿童死亡率](/content/gnews/25/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [西媒头条 — 第180期](/content/gnews/26/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [自由卡车车队支持者，加拿大原住民Candice Sero接受采访谈抗议现场皇家骑警马匹踩踏事件](/content/gnews/27/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [澳洲护士在社区演讲中问到人们是否认识因疫苗而受到伤害的人时，看看有多少人举起了手](/content/gnews/28/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
 
 ### [2022年2月25日大直播速记精萃](/content/gnews/29/README.md)
  ` 雅典娜GNotes`
