@@ -2,47 +2,31 @@
 ---
 
 
-## 专家公开宣称，“飞行员被谋杀或自杀”导致马航370失踪
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2070606/)
+## 中日财经爆┃“作恶”被官司缠身！脸书裁撤核心技术团队
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070610/)
 
-**翻译：日本东京方舟农场** 文龍杰克
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/04-2.png)
+[图片来源](https://www.google.com.hk/imgres?imgurl=https://v2.cimg.co/news/63547/35234/snapshot.jpg&amp;imgrefurl=https://thebittimes.com/metaverse-nfts-and-gaming-token-prices-soar-as-facebook-goes-meta-tbt5490.html&amp;tbnid=P77GUyLsgQBbAM&amp;vet=12ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ..i&amp;docid=vljlOet_P-mO9M&amp;w=1012&amp;h=674&amp;q=%20Meta%20%20metaverse&amp;ved=2ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ)
 
-马航 370 究竟发生了什么？它在哪？坊间有几百种阴谋论都在尝试解读2014 年的马航失踪事件，当时机上载有 239 人消失在印度洋上空。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/016.jpg)（图片来源：wionews.com）
-根据重磅消息透露，马航MH370 是因为“飞行员被谋杀或自杀”导致失踪。天空新闻纪录片“MH370：最后搜寻”中，两名空难调查员也提到了飞行员有自杀的可能性。
+近日，有媒体报道，全球最大社交媒体公司脸书（Meta Platforms）已经解散了一个由300多名员工组成的团队，这些员工为该公司的AR和VR设备开发操作系统。鉴于该系统是元宇宙的关键技术，这让本已官司缠身的脸书前景更加黯然。
 
-这部纪录片于周三晚上播出。退休飞行员约翰考克斯作为顶级航空安全调查员说，MH370失踪不是事故。
+而1月5日，Meta曾回应“停止开发VR/AR系统”传闻称，其并未计划停止“为VR/AR设备开发操作系统”。
 
-2014年3月8日国际客运航班 MH370 从马来西亚吉隆坡国际机场起飞，飞行目的地是中国北京首都国际机场。
+去年10月28日，脸书由FaceBook更名为Meta，宣布全面进军元宇宙(metaverse)。而脸书更名的时机，正面临用户和监管广泛的批评，并深陷“滥用管理权”、“侵犯用户隐私”等多起重大法律诉讼。
 
-机组人员与空管 (ATC) 最后一次联系大约是在起飞后38分钟，当时航班正飞越南海。
+自2020年初中共病毒（新冠病毒Covid-19）肆虐全球开始，脸书与推特、谷歌等社交媒体巨头，与中共为首的世界邪恶势力勾兑、为虎作伥，特别是滥用平台和数据管理的权力，对中共病毒和疫苗真相信息进行恶意压制，为强制疫苗政策推波助澜，给全人类带来重大灾难。
 
-此后，飞机便从空管雷达屏幕上消失了，随后发现该飞机在被军用雷达追踪一小时后向西偏离原定航线。
+郭文贵先生多次断言，脸书、推特等社交媒体必将为其作恶付出沉重代价，甚至被诉讼至破产或消失。而脸书裁撤核心技术团队是值得关注的重要标志性事件。
 
-考克斯告诉天空新闻，当飞机偏离航线时，扭曲的飞行路线表明该航班已被一名机长强制征用。
+信息来源：
 
-《每日邮报》援引他告诉澳大利亚新闻集团：“我认为有超多证据证实，如果没有外力强制牵引下，飞机按原路线飞行中是不能做出各种转弯的。
+[Meta解散AR和VR操作系统开发团队](https://www.163.com/dy/article/H138LTGF05198CJN.html)
 
-考克斯指出，这个飞行路线必须是由非常专业的飞行人员驾驶。对于副机长和飞行员负责驾驶该路线飞行表示怀疑
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
 
-MH370 机长 Zaharie Ahmad Shah 与副机长 Fariq Abdul Hamid 一起驾驶这架飞机。
-
-考克斯说，Shah可能关禁用了飞行数据链系统，他是该机上唯一拥有相关经验和知识的人。
-
-然而，他认为自己理论不大可能得到证实，因为马来空难调查需要的是确定性。
-
-与此前有人宣称飞行员试图劫持飞机的说法相比，这并非是全新理论。马航 370 的失踪案是最大的航空谜团之一。
-
-两年来在南印度洋耗资了2亿澳元始终未能搜寻到该失踪航班，马来西亚、中国和澳大利亚取消了水下搜寻行动。
-
-第二次为期三个月的搜寻行动由美国 Ocean Infinity公司牵头发起同样于 2018 年 5 月结束。
-
-原文链接：
-[https://www.wionews.com/world/malaysia-airlines-flight-370-was-lost-in-murder-suicide-plot-expert-claims-455578](https://www.wionews.com/world/malaysia-airlines-flight-370-was-lost-in-murder-suicide-plot-expert-claims-455578)
-
-素材採編：妙喜小油鍋
-校对：妙喜小油鍋
-发布：Linda
 
  
 
