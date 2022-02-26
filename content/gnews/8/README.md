@@ -2,22 +2,33 @@
 ---
 
 
-## 【转】2/25日止，俄乌开战要闻简报实况
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2071031/)
+## 有声|台湾空军警告进入防空区的中共飞机
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2071203/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16459010461.png)
-俄国的装甲车被乌克兰美制标凖反装甲导弹击毁134辆，坦克被击毁64辆，战机被击落八架，无人机被摧毁6架，被俘飞行员一批（数字待确认）…
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据[布赖特巴特新闻网](https://www.breitbart.com/asia/2022/02/24/taiwan-air-force-warns-chinese-aircraft-entered-defense-zone/) 2月24日报道，台湾国防部周四宣布，当9架中共飞机进入其空中防卫区时，台湾战斗机紧急升空进行抵御，并部署了防空导弹来监视其活动。
 
-乌克兰国防部宣布，俄国的闪电战失败。各前线正在激战，俄方在乌克兰被俘人员超500人以上，从目前的态势看，乌克兰只有空军比较弱于俄方，其它方面表现非常出色，包括特种作战等，令侵略者俄方没有占到一丝便宜、俄方尴尬的战果及乌方的顽强抗战消息有待更新。
+台湾国防部公布了中共军机飞行路线的图片以及飞机的档案照片。资料显示，中共在过去的两年内频繁对台执行此类入侵活动。
 
-乌克兰退役军人全部征召重新归属曾经的部队。
+本月早些时候，美国已同意与台湾达成1亿美元的军售协议，允许台湾获得“爱国者空中导弹防御系统”，以帮助其应对中共日益增长的威胁，为台湾空域提供必要的安全保障。
 
-在波兰方向，美欧源源不断的现代化装备运往乌克兰境内，重挫了普丁出兵的预期。欧盟国家全线对俄国航空禁飞，俄国方面从现开始，无法避免遭整个欧洲群殴的态势、美欧两个方向将给俄国史无前例的制裁！制裁方面包括制裁俄国推动战争的每个人，包括冻结了俄国国有银行，金融等在美欧境内的所有资产。也包括与俄罗斯明暗合作，支持侵略的任何国家也将波及，将迎来美欧最严励和毁灭性的制裁。
+在俄罗斯入侵乌克兰的形势下，中共对台湾的威胁迫在眉睫，台海战事一触即发。
 
-若北约任何国家受到攻击，北约与美国即时正式出手，俄国怎么样收埸应该是凶多吉少。
+文字版原文：[台湾空军警告进入防空区的中共飞机](https://gnews.org/zh-hans/2066848/)
 
-俄国境内到目前为止已经有52个州举行了大规模反战游行，制裁方面 美欧一刻不止将継续谋划出台针对俄方的严酷方案！
+音频处理：Fei797
+发稿：Fei797
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,14 +2,30 @@
 ---
 
 
-## 新的货币金融体系正在形成 未来数字货币将会和新型法币并存
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2071028/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月26日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2071104/)
 
-目前全世界有300多万亿美元国际债务，货币超发260万亿。战争的发动，并没有带起稀有金属、黄金价格的大涨。贵金属作为锚定物已经过时了，未来数字货币将会和新型法币并存。未来国家主权法币，会逐步转变为区域性、行业性、民族性流通的货币和数字货币，同时必须要有满足不同的族群和人士需要的能力。喜币，喜支付的使用，是未来解锁财富的密码。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-2.png)
 
-**视频来源****: 20220225—****郭先生大直播**
-**视频制作****: ****文星光**
-**文案****:****文星光，梦田**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-26.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.02.26早 《NFSC新闻》](https://gtv.org/video/id=621a2b1208ba8a07b1a3edd2)
+[2022.02.26早 G|TV《新闻访谈》](https://gtv.org/video/id=621a32f008ba8a07b1a3fa0d)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-5.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

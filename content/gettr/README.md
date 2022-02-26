@@ -17,6 +17,16 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@milesguolive 2/26/2022 11:31 AM (UTC)`
+
+Stop the War!
+> `@pandarolling 2/26/2022 6:35 AM (UTC)`<br/>与孩子们告别<br/>Farewell to the children
+![img](https://media.gettr.com/group37/getter/2022/02/26/06/7a871245-151e-b2d8-85e1-04e3b05f67b2/out.jpg)
+
+---
+
 `@miles 2/26/2022 4:16 PM (UTC)`
 
 2/25/2022 Miles Guo: What's the story behind my cracking sunflower seeds the other day? The New Federal State of China is so awesome that the CCP’s smearing campaigns all ended up being advertising for me. My accurate revelations about Xi and Putin's plot to invade Ukraine and Taiwan respectively has made the world admire our New Federal State of China.<br/><br/>2/25/2022 文贵直播: 文贵揭露嗑瓜子背后的故事；新中国联邦太牛了，中共的造谣污蔑都是给文贵做广告；文贵对习普密谋分别侵略乌克兰和台湾的精准爆料使得全世界对新中国联邦刮目相看
@@ -150,13 +160,6 @@ Mr. Bannon 100% agree that the Wall Street has provided the capital from the pen
 `@miles 2/25/2022 1:30 AM (UTC)`
 
 🆘🆘🆘为了集合全球战友资源救助台湾战友，联盟发放统一登记表格，请有可能提供救助资源的战友填写，表格链接：<br/><br/>https://forms.gle/pgVrayLJKqS7NMsN8<br/><br/><br/>联盟-身在台湾的战友撤离统计表单：<br/><br/>https://docs.google.com/forms/d/e/1FAIpQLScjccjoDUB3u-OhC-zeZDvvtiHqxXo1z4h6Ls_LkxxtLZEYJw/viewform<br/><br/>考虑到目前紧张局势，针对墙内战友和香港战友撤离需要寻求协助，联盟发出统一的登记表格，表格链接：<br/><br/>https://forms.gle/Xaiofs6eKWvbhLTf7 
-
----
-
-`@miles 2/25/2022 1:18 AM (UTC)`
-
-2/24/2022 Miles Guo’s Urgent Livestream: The CCP will definitely invade Taiwan! Fellow fighters, please do not take any chance. Stay away from the CCP’s military bases ASAP, and Communist China will sustain huge casualties. The CCP’s NO. 1 document means that the Lao Baixing will suffer, the CCP will return to the era of the People's Commune, and the CCP’s real estate will collapse.<br/><br/>2/24/2022 文贵紧急直播：中共一定打台湾！战友们不要投机、在军事基地周围的赶快跑，中共国将血流成河；中共1号文件意味着老百姓要遭殃、中共将回到人民公社时代、房地产会崩塌<br/>
-![img](https://media.gettr.com/group46/getter/2022/02/25/01/e2917333-4a00-257e-1ae1-ac53f605ad17/out.jpg)
 
 ---
 
