@@ -2,32 +2,40 @@
 ---
 
 
-## 中日财经爆┃“作恶”被官司缠身！脸书裁撤核心技术团队
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070610/)
+## 追述台海两岸关系的变迁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070746/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/04-2.png)
-[图片来源](https://www.google.com.hk/imgres?imgurl=https://v2.cimg.co/news/63547/35234/snapshot.jpg&amp;imgrefurl=https://thebittimes.com/metaverse-nfts-and-gaming-token-prices-soar-as-facebook-goes-meta-tbt5490.html&amp;tbnid=P77GUyLsgQBbAM&amp;vet=12ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ..i&amp;docid=vljlOet_P-mO9M&amp;w=1012&amp;h=674&amp;q=%20Meta%20%20metaverse&amp;ved=2ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ)
+作者：纽约香草山-静言
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1945年，国民党政府接管了台湾，并以“中华民国”为号建立了独立的国家。此时，中共占据大陆，与台湾开始了漫长的两岸僵持时期。直至1949年3月，中共新华社在一篇社论中首次提出了所谓“解放台湾”的口号。作为回应，中华民国政府也表示要“消灭共匪，解救同胞”。两岸至此进入了隔绝对立阶段。其后，台海地区先后爆发了多次战役，国共双方互有胜负。
 
-近日，有媒体报道，全球最大社交媒体公司脸书（Meta Platforms）已经解散了一个由300多名员工组成的团队，这些员工为该公司的AR和VR设备开发操作系统。鉴于该系统是元宇宙的关键技术，这让本已官司缠身的脸书前景更加黯然。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-7.jpeg)
 
-而1月5日，Meta曾回应“停止开发VR/AR系统”传闻称，其并未计划停止“为VR/AR设备开发操作系统”。
+到了1979年，中共对台的态度从强硬趋向缓和：人大在《告台湾同胞书》中以所谓“和平统一、一国两制”的方案取代了原先的硬性解放口号。次年，蒋经国回应了一则“三民主义统一中国”的政策。1981年，第一家台资企业在福州落户。随即，台湾开放当地民众到大陆探亲，两岸民间的经贸活动也迅速升温。
 
-去年10月28日，脸书由FaceBook更名为Meta，宣布全面进军元宇宙(metaverse)。而脸书更名的时机，正面临用户和监管广泛的批评，并深陷“滥用管理权”、“侵犯用户隐私”等多起重大法律诉讼。
+1991年，台湾海基会与大陆海协会相继投入运作。两年后，双边还在“九二共识”的基础上举行汪辜会谈。虽然当时中共的总书记江泽民提出了推进所谓“中国和平统一”的进程，但台湾总统李登辉认为，台湾与中国大陆的关系是“国家与国家”。
 
-自2020年初中共病毒（新冠病毒Covid-19）肆虐全球开始，脸书与推特、谷歌等社交媒体巨头，与中共为首的世界邪恶势力勾兑、为虎作伥，特别是滥用平台和数据管理的权力，对中共病毒和疫苗真相信息进行恶意压制，为强制疫苗政策推波助澜，给全人类带来重大灾难。
+2000年，民进党首次担任中华民国的执政党，陈水扁就职时表示，只要中共无意对台动武，其在任期内保证台湾既不会宣布独立，也不会更改国号。八年后，国民党重掌台湾，马英九主张不统、不独、不武。
 
-郭文贵先生多次断言，脸书、推特等社交媒体必将为其作恶付出沉重代价，甚至被诉讼至破产或消失。而脸书裁撤核心技术团队是值得关注的重要标志性事件。
+2014年，台湾太阳花学运遏制了两岸经济一体化的势头。次年，习近平与马英九代表中共和中华民国在新加坡首次进行会面。然而，在此之后，中共开始展露其妄图统治台湾的野心：习近平多次公开声称，要谋求所谓的“国家统一”。为此，中共解放军不断在台海地区进行军事演练，共机数次升空进入台湾领空挑衅。
 
-信息来源：
+如今，俄乌危机爆发，新中国联邦创始人郭文贵先生多次呼吁，台海危机已经不可避免，战争已是箭在弦上，一触即发。
 
-[Meta解散AR和VR操作系统开发团队](https://www.163.com/dy/article/H138LTGF05198CJN.html)
+参考链接：[臺灣海峽兩岸關係史](https://zh.m.wikipedia.org/wiki/臺灣海峽兩岸關係史)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

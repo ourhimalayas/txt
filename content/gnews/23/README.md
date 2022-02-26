@@ -2,24 +2,31 @@
 ---
 
 
-## 【G时新闻】俄乌危机致全球粮食价格大幅上涨
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2070553/)
+## 中日财经爆┃“作恶”被官司缠身！脸书裁撤核心技术团队
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070610/)
 
-加拿大温哥华扬帆农场   播报：文广   视频制作: Gracelshan
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/04-2.png)
+[图片来源](https://www.google.com.hk/imgres?imgurl=https://v2.cimg.co/news/63547/35234/snapshot.jpg&amp;imgrefurl=https://thebittimes.com/metaverse-nfts-and-gaming-token-prices-soar-as-facebook-goes-meta-tbt5490.html&amp;tbnid=P77GUyLsgQBbAM&amp;vet=12ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ..i&amp;docid=vljlOet_P-mO9M&amp;w=1012&amp;h=674&amp;q=%20Meta%20%20metaverse&amp;ved=2ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ)
 
-2月23日，据相关媒体消息显示。俄罗斯与乌克兰、美国和欧盟之间日渐加剧的危机可能会给全球粮食供应带来更大的压力。
+近日，有媒体报道，全球最大社交媒体公司脸书（Meta Platforms）已经解散了一个由300多名员工组成的团队，这些员工为该公司的AR和VR设备开发操作系统。鉴于该系统是元宇宙的关键技术，这让本已官司缠身的脸书前景更加黯然。
 
-目前，小麦、玉米、葵花油等基础作物的价格正在一路攀升。数据表明，俄罗斯和乌克兰拥有全世界80%的葵花油出口、29%的小麦出口和9%的玉米出口，中东很多国家的粮食供应都依赖于此。
+而1月5日，Meta曾回应“停止开发VR/AR系统”传闻称，其并未计划停止“为VR/AR设备开发操作系统”。
 
-然而，由于近期双方战争局势的恶化，黑海的运输港口眼下已经被切断，从而导致了俄乌粮食出口的中断
+去年10月28日，脸书由FaceBook更名为Meta，宣布全面进军元宇宙(metaverse)。而脸书更名的时机，正面临用户和监管广泛的批评，并深陷“滥用管理权”、“侵犯用户隐私”等多起重大法律诉讼。
 
-另一方面，自俄罗斯向顿涅茨克和卢甘茨克派遣军队之后，各国对其的经济制裁不断加码。这严重破坏了世界粮食供应的稳定性，而美国的粮食期货价格也因此不断飙升。
+自2020年初中共病毒（新冠病毒Covid-19）肆虐全球开始，脸书与推特、谷歌等社交媒体巨头，与中共为首的世界邪恶势力勾兑、为虎作伥，特别是滥用平台和数据管理的权力，对中共病毒和疫苗真相信息进行恶意压制，为强制疫苗政策推波助澜，给全人类带来重大灾难。
 
-另外，重度依赖粮食进口的北非、亚洲和中东地区同样被大范围影响。当前，乌克兰所处的黑海地区是军事冲突的聚焦点，平常繁忙的商业运输如今因军事升级而被中断。经济学家表示，该地区的粮食供应中断将会导致全球粮食价格的飞涨。
+郭文贵先生多次断言，脸书、推特等社交媒体必将为其作恶付出沉重代价，甚至被诉讼至破产或消失。而脸书裁撤核心技术团队是值得关注的重要标志性事件。
 
-听写/翻译：LuLu1312
-字幕：圣骑士
-编辑/上传：圣骑士
+信息来源：
+
+[Meta解散AR和VR操作系统开发团队](https://www.163.com/dy/article/H138LTGF05198CJN.html)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
+
 
  
 

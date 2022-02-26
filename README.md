@@ -15,110 +15,110 @@
 
 ---
 
-### [《恶匪遗恨》](/content/gnews/1/README.md)
+### [世界局势动荡 是中西方宗教 文化 政治体系的大碰撞 新中国联邦是黑暗中的灯塔](/content/gnews/1/README.md)
+ ` 焦點20分`
+
+### [习近平攻台的根本原因是因为共产党内部危机 第三次世界大战已经打响](/content/gnews/2/README.md)
+ ` 焦點20分`
+
+### [5万人民币取现管制触发破窗效应 中共半年已做好了人民公社的准备](/content/gnews/3/README.md)
+ ` 焦點20分`
+
+### [中共百年杀戮之（7）第二次国共合作——西安事变（续）](/content/gnews/4/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [文贵大直播（G-EDU专场）要点（2022年2月26日）](/content/gnews/2/README.md)
+### [2022年2月26日，全球中共病毒疫情情况汇总](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [《恶匪遗恨》](/content/gnews/6/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [文贵大直播（G-EDU专场）要点（2022年2月26日）](/content/gnews/7/README.md)
  ` 波士顿五月花农场`
 
-### [灾难！尽管意大利疫苗接种率极高，但是其新冠病毒死亡率位居欧洲第二](/content/gnews/3/README.md)
+### [灾难！尽管意大利疫苗接种率极高，但是其新冠病毒死亡率位居欧洲第二](/content/gnews/8/README.md)
  ` xiaobaige`
 
-### [2022年2月26日文贵先生直播摘要及音频—银河系农场](/content/gnews/4/README.md)
+### [2022年2月26日文贵先生直播摘要及音频—银河系农场](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2/25/2022 文贵直播： 文贵对习普密谋分别侵略乌克兰和台湾的精准爆料使得全世界对新中国联邦刮目相看](/content/gnews/5/README.md)
+### [2/25/2022 文贵直播： 文贵对习普密谋分别侵略乌克兰和台湾的精准爆料使得全世界对新中国联邦刮目相看](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [2022.2.26大直播 郭先生谈对新中国联邦教育的设想](/content/gnews/6/README.md)
+### [2022.2.26大直播 郭先生谈对新中国联邦教育的设想](/content/gnews/11/README.md)
  ` 秘密翻译组-原创组`
 
-### [2/25/2022 文贵直播：中俄是如何形成邪恶轴心国同盟的？中共对外推行人民币国际化，对内实行人民币透明化和可控化，目的是奴役人民、掠夺财富](/content/gnews/7/README.md)
+### [2/25/2022 文贵直播：中俄是如何形成邪恶轴心国同盟的？中共对外推行人民币国际化，对内实行人民币透明化和可控化，目的是奴役人民、掠夺财富](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
 
-### [新冠病毒的一段代码与莫德纳公司三年前的专利序列匹配](/content/gnews/8/README.md)
+### [新冠病毒的一段代码与莫德纳公司三年前的专利序列匹配](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2/25/2022 文贵直播：中共打台湾的3招：1) 所谓台胞代表请求中共派兵到台湾铲除台独分子；2) 围而不打，让台湾崩溃；3) 迅速占岛；台湾问题到了了结的时候，要么中共被灭，要么台湾被灭](/content/gnews/9/README.md)
+### [2/25/2022 文贵直播：中共打台湾的3招：1) 所谓台胞代表请求中共派兵到台湾铲除台独分子；2) 围而不打，让台湾崩溃；3) 迅速占岛；台湾问题到了了结的时候，要么中共被灭，要么台湾被灭](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [随着俄罗斯入侵乌克兰，黄金价格飙升至一年多来的最高水平](/content/gnews/10/README.md)
+### [随着俄罗斯入侵乌克兰，黄金价格飙升至一年多来的最高水平](/content/gnews/15/README.md)
  ` 日本東京方舟農場`
 
-### [02/26/22 香港快讯 本港新增17063宗新冠病毒确诊个案](/content/gnews/11/README.md)
+### [02/26/22 香港快讯 本港新增17063宗新冠病毒确诊个案](/content/gnews/16/README.md)
  ` 英喜-粵語組`
 
-### [追述台海两岸关系的变迁](/content/gnews/12/README.md)
+### [追述台海两岸关系的变迁](/content/gnews/17/README.md)
  ` NFSC News`
 
-### [德国电视二台的长期雇员不愿继续撒谎](/content/gnews/13/README.md)
+### [德国电视二台的长期雇员不愿继续撒谎](/content/gnews/18/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [2/25/2022 文贵直播：英国干掉俄罗斯的两大绝招是什么？美欧股市的背后暗藏了什么玄机？西方将对中共的制裁并一定会有军事行动](/content/gnews/14/README.md)
+### [2/25/2022 文贵直播：英国干掉俄罗斯的两大绝招是什么？美欧股市的背后暗藏了什么玄机？西方将对中共的制裁并一定会有军事行动](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [温哥华发生两名华人遇害事件](/content/gnews/15/README.md)
+### [温哥华发生两名华人遇害事件](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [美国驱逐俄驻美第二号外交官](/content/gnews/16/README.md)
+### [美国驱逐俄驻美第二号外交官](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [中日财经爆┃“作恶”被官司缠身！脸书裁撤核心技术团队](/content/gnews/17/README.md)
+### [中共攻台的3个可能战略](/content/gnews/22/README.md)
+ ` 焦點20分`
+
+### [中日财经爆┃“作恶”被官司缠身！脸书裁撤核心技术团队](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [专家公开宣称，“飞行员被谋杀或自杀”导致马航370失踪](/content/gnews/18/README.md)
+### [专家公开宣称，“飞行员被谋杀或自杀”导致马航370失踪](/content/gnews/24/README.md)
  ` 日本東京方舟農場`
 
-### [俄罗斯趁势胁芬兰和瑞典 加入北约会有严重后果](/content/gnews/19/README.md)
+### [俄罗斯趁势胁芬兰和瑞典 加入北约会有严重后果](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [放在西方文明国家传统银行的存款已经不安全](/content/gnews/20/README.md)
+### [放在西方文明国家传统银行的存款已经不安全](/content/gnews/26/README.md)
  ` 焦點20分`
 
-### [中日财经爆┃乌克兰局势引发恐慌 佳能加快全面关闭珠海工厂](/content/gnews/21/README.md)
+### [中日财经爆┃乌克兰局势引发恐慌 佳能加快全面关闭珠海工厂](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本对俄实施出口管制 涉及半导体等尖端产品技术](/content/gnews/22/README.md)
+### [日本对俄实施出口管制 涉及半导体等尖端产品技术](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【G时新闻】俄乌危机致全球粮食价格大幅上涨](/content/gnews/23/README.md)
- ` G-时新闻`
-
-### [未来人造艾滋爆发不可避免](/content/gnews/24/README.md)
+### [未来人造艾滋爆发不可避免](/content/gnews/29/README.md)
  ` 焦點20分`
 
-### [疫苗的科学主义](/content/gnews/25/README.md)
+### [疫苗的科学主义](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新中国联邦要实现中国人的信仰 自由 法制 要让中国人有干干净净的思想和未来](/content/gnews/26/README.md)
- ` 焦點20分`
-
-### [一号文件](/content/gnews/27/README.md)
+### [一号文件](/content/gnews/31/README.md)
  ` 纽约香草山MOS03`
 
-### [2022/02/25文贵先生直播精要](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [医疗法西斯主义：FDA与USPS合作阻止救命药伊维菌素的运输](/content/gnews/29/README.md)
- ` 日本東京方舟農場`
-
-### [樱花FM|机器人外科医生成功！复杂的手术没有人类的帮助](/content/gnews/30/README.md)
+### [樱花FM|机器人外科医生成功！复杂的手术没有人类的帮助](/content/gnews/32/README.md)
  ` 樱花FM`
 
-### [有声|新西兰Covid-19 疫情爆炸式飙升至12,011 例新病例五人死亡引发民众暴力情绪](/content/gnews/31/README.md)
+### [有声|新西兰Covid-19 疫情爆炸式飙升至12,011 例新病例五人死亡引发民众暴力情绪](/content/gnews/33/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|乌克兰危机升级引发中共国及美国股市下跌](/content/gnews/32/README.md)
+### [有声|乌克兰危机升级引发中共国及美国股市下跌](/content/gnews/34/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [2022年2月26日郭先生大直播 文字同步精要](/content/gnews/33/README.md)
+### [2022年2月26日郭先生大直播 文字同步精要](/content/gnews/35/README.md)
  ` 焦點20分`
-
-### [美国及世界疫情简报（02-26-2022）](/content/gnews/34/README.md)
- ` 波士顿五月花农场`
-
-### [瑞士感染数量下降，即将取消大部分病毒限制](/content/gnews/35/README.md)
- ` 日本东京方舟农场`
 
 ### [俄罗斯入侵，数千乌克兰人踊跃应征入伍：&#8221;乌克兰绝不跪下“](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`

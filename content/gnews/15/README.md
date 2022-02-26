@@ -2,36 +2,38 @@
 ---
 
 
-## 温哥华发生两名华人遇害事件
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070637/)
+## 随着俄罗斯入侵乌克兰，黄金价格飙升至一年多来的最高水平
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2070790/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月22日，据加拿大媒体报道，温哥华警方于20日在西区第八大道附近发现了两名女性死者。经调查后发现，50岁的吴淑敏和39岁的孙颖颖死于枪击事故。
+**翻译：日本东京方舟农场 **Skyfrog
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-5.jpeg)
+现货金价周四下滑，因投资者继续评估乌克兰危机，此前俄罗斯军队在总统普京的命令下袭击了乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/017.png)（图片来源：cnbc.com）
+金价最后报每金衡盎司1,897.76美元，较前一天下跌0.5%。上午早些时候，随着投资者大举买入避险资产，全球股市暴跌，金价报每盎司1968.01美元，上涨3.17%，为2020年末以来的最高水平。石油和软大宗商品价格大幅上涨。布伦特原油价格自2014年以来首次突破100美元。
 
-据悉，当天早晨8点，邻居在一辆白色的宝马SUV内发现了这两名华裔女性死者。前一天夜里，附近的其他住户也表示，听见了几声类似烟花的巨响。
+美国黄金期货下跌0.5%，至每盎司1,899.80美元。银价下跌1.5%，至每盎司24.13美元，钯价下跌1.8%。铂金下跌约3%。与此同时，铜价略高。
 
-资料显示，孙颖颖生前曾担任过中共国女足运动员前锋，其先后效力于大连实德女足和天津汇森女足。
+俄罗斯是钯和铂的最大生产国，也是世界第三大黄金生产国。
 
-温哥华警方表示，该案件的事发地是温哥华治安最好的社区，警方目前怀疑这是一起有预谋的案件，并且担心可能还有更多的受害者。而该社区的居民则提到，这一案件令整个社区都处在惶恐之中。
+美国总统拜登在当天下午举行的新闻发布会上表示:“为了将俄罗斯从世界经济中孤立出来，美国将再次对俄罗斯实施限制美元、欧元、英镑、日元交易能力的制裁。”
 
-参考链接：[Vancouver police investigate double homicide in Point Gre](https://vancouversun.com/news/crime/vancouver-police-on-scene-of-serious-incident-in-point-grey)y
+2月份迄今为止，黄金价格已上涨约5.5%，有望创下2020年7月以来的最大单月涨幅。美国国债收益率大跌，因投资者大举买入被视为安全资产的国债。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+普京星期四凌晨宣布了他所说的“特别军事行动”。两天前，他刚刚派遣军队进入乌克兰东部的顿涅茨克和卢甘斯克分离地区。在这一最新消息发布之前，俄罗斯在乌克兰边境附近进行了数月的军事集结，军队人数多达15万人
 
-总编：Irene木木
-编辑：Jack Li文阳
-校正/发稿：谐趣园
+乌克兰局势正在迅速恶化，来自该国的具体报道难以证实。乌克兰外交部长库勒巴(Dmy在当地时间早上7点刚过，就报告说，这个拥有4400万人口的国家有多个城市受到俄罗斯的攻击，他呼吁国际社会果断采取行动孤立俄罗斯。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在一条推特中，库勒巴呼吁“立即对俄罗斯实施毁灭性制裁，包括SWIFT（全球银行金融电信协会）”，并采取其他惩罚性措施。北约领导人誓言迅速做出反应，包括他们所说的“严厉”制裁。一些人警告说，普京的入侵可能会导致欧洲自二战以来最大的冲突。
+
+注： 此文章原載於“堅守自由研究中心”2021年的春季期刊，《平等：愛國者的夢想，暴政者的面具》。本文仅代表作者观点。
+
+原文链接：
+[https://www.cnbc.com/2022/02/24/russia-invades-ukraine-gold-jumps-to-highest-in-more-than-a-year.html](https://www.cnbc.com/2022/02/24/russia-invades-ukraine-gold-jumps-to-highest-in-more-than-a-year.html)
+
+素材採編：妙喜小油鍋
+校对：妙喜小油鍋
+发布：Linda
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

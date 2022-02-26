@@ -2,26 +2,36 @@
 ---
 
 
-## 放在西方文明国家传统银行的存款已经不安全
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2070574/)
+## 温哥华发生两名华人遇害事件
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070637/)
 
-加拿大卡车司机的运动中，部分司机的个人银行账户被冻结，资产可能被没收。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月22日，据加拿大媒体报道，温哥华警方于20日在西区第八大道附近发现了两名女性死者。经调查后发现，50岁的吴淑敏和39岁的孙颖颖死于枪击事故。
 
-这是发生在西方文明高度发达的加拿大。瞠目结舌！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/FT.jpg)
-昨天的香港，今天的加拿大！香港运动上，西方国家和政府只是动动口，毫无行动力的支持港人追求民主与自由，实际是对邪恶、专制、独裁最大的纵然！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-5.jpeg)
 
-果不其然，政府权力的无限放大，即使是西方文明社会，也一样看到了专制与暴政！
+据悉，当天早晨8点，邻居在一辆白色的宝马SUV内发现了这两名华裔女性死者。前一天夜里，附近的其他住户也表示，听见了几声类似烟花的巨响。
 
-加拿大卡车司机本身不是反对疫苗，只是反对强制疫苗，加拿大政府竟然把国家公民当成暴民。加拿大人的和平游行被政府当成暴力行径，准备实施军管。
+资料显示，孙颖颖生前曾担任过中共国女足运动员前锋，其先后效力于大连实德女足和天津汇森女足。
 
-事情发展到这里，我们才恍然大悟，原来自己的钱放在中共的银行不安全，其实放在国外的文明社会的银行，也不安全，也会因为你参与了街头运动，被冻结！
+温哥华警方表示，该案件的事发地是温哥华治安最好的社区，警方目前怀疑这是一起有预谋的案件，并且担心可能还有更多的受害者。而该社区的居民则提到，这一案件令整个社区都处在惶恐之中。
 
-从这个角度看，喜币的无国界及安全性，是顺应趋势，发展不可阻挡。
+参考链接：[Vancouver police investigate double homicide in Point Gre](https://vancouversun.com/news/crime/vancouver-police-on-scene-of-serious-incident-in-point-grey)y
 
-文案编辑：一念
-校对整理：面包树
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
+总编：Irene木木
+编辑：Jack Li文阳
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
