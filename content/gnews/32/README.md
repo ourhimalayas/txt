@@ -2,34 +2,41 @@
 ---
 
 
-## 德国保险公司揭示疫苗副作用数据远超政府报告
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2068444/)
+## 欧盟官员称可能切断俄罗斯与SWIFT的联系
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2068700/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
-据2月23日外媒报道，一家德国医疗保险公司出具的报告表明，实际的中共病毒疫苗不良反应的数据，要比德国政府披露的高很多倍。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2430.png)图片来自：https://www.infowars.com/
-该公司对超过1090万名保户进行了分析，从2021年初到第三季度中期，共有约21.7万人涉及中共病毒疫苗副作用而接受治疗。主要不良反应体现为接种后败血症、皮疹、疫苗或生物活性并发症以及其他症状。而德国卫生部记录的数据为，总人口6140万，在14个月中只记录了不足24.5万份疫苗不良反应。该保险公司CEO绍夫贝克先生称，从保单记录的数据来推断，中共病毒疫苗产生的不良反应就医可能已达到300万人次。他呼吁德国民众在决定接种之前慎重考虑中共病毒疫苗的副作用。
+**整理/编辑：MSGZ**
 
-医学统计学家格特·安蒂斯说，联邦卫生系统有责任迅速核实政府报告数据与实际疫苗不良反应数据不匹配的状况。
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-新闻来源：[“Alarm Signal”: Number of Vaccine Side Effects Significantly Higher Than Government Reports, Insurance Company Finds](https://www.infowars.com/posts/alarm-signal-number-of-vaccine-side-effects-significantly-higher-than-government-reports-insurance-company-finds/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/ekathim-1.png)图片来源：ekathimerini
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5-1-2.png)
 
-编辑：宁文静
+欧洲议会主席罗伯塔·梅措拉(Roberta Metsola)周五表示，欧盟可能在新一轮制裁中把俄罗斯排除在SWIFT全球银行间支付系统之外。她说，“普京想要战争。但人们想要和平、自由和做出选择的权利。進一步，大規模的製裁很重要，我們可以做更多的事情， 包括將俄羅斯排除在 SWIFT 系統之外。”
 
-总编：飞虹
+周五早些时候，德国外交部长安娜莱娜·贝尔博克（Annalena Baerbock ）曾认为，欧盟正在实施的一揽子银行业制裁将比将俄罗斯排除在SWIFT系统之外更能打击普京的政府。
 
-校正/发稿：浪迹天涯
+她在布鲁塞尔对ARD公共电视台说，将俄罗斯排除在SWIFT之外将使人们无法从国外支持俄罗斯的民权团体，也无法让海外的俄罗斯学生寄钱帮助他们的祖母，她说：“看起来最硬的剑不一定是最聪明的剑；” “
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
+欧盟选择不遏制俄罗斯的能源进口，或者在德国、匈牙利、意大利和塞浦路斯的反对下切断俄罗斯与SWIFT的联系。
+
+法国财政部长布鲁诺·勒梅尔(Bruno Le Maire)在巴黎主持了一次欧盟同行的会议，讨论经济影响，他说将俄罗斯从SWIFT中剔除仍然是一个选择，但只是作为最后的 “金融核武器”。
+
+他说，一些欧盟国家，除法国对这一步骤持保留意见外，预计欧洲央行将在未来几小时内 就采取这一措施的后果做出分析。
+
+贝尔博克还说，俄罗斯提出的与乌克兰在明斯克举行会谈的建议甚至没有在她参加的欧盟外长会议上得到讨论，因为这是一个 “有毒的提议”。
+
+**原文链接：**[EU could cut Russia off SWIFT, official says](https://www.ekathimerini.com/economy/1178426/eu-could-cut-russia-off-swift-official-says/)
+
+*发布: 玉米地守望者*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

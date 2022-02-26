@@ -2,39 +2,40 @@
 ---
 
 
-## 日本去年出生率历史最低而死亡率创历史最高
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2069092/)
+## 中俄联盟给世界敲响警钟
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2069239/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-59.png)图片来自网络
-日媒《NHK》近日报道，去年，厚生劳动省发现，日本出生的新生儿84万2897人，创下历史新低。
+撰稿：东京樱花团/Calvin
 
-根据厚生劳动省的数据，去年出生的儿童人数为842897人，这是一个初步数字。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/中俄联盟给世界敲响警钟.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg.i-scmp.com%2Fcdn-cgi%2Fimage%2Ffit%3Dcontain%2Cwidth%3D1098%2Cformat%3Dauto%2Fsites%2Fdefault%2Ffiles%2Fstyles%2F1200x800%2Fpublic%2Fd8%2Fimages%2Fcanvas%2F2021%2F11%2F24%2Fa95c9502-bcf9-4305-8001-2)
 
-相对前年人数减少了 29786 人，即 3.4%，这是自 1902 年收集统计数据以来的最低水平。
+澳大利亚国防部长Peter Dutton呼吁中共政权领导人习近平，他说习近平拥有就俄罗斯入侵乌克兰向普京施压的权力，但是他选择“不这样做”。
 
-出生人数连续第六年下降。
+Dutton在2月25号的《澳大利亚天空新闻》的采访中表示：“世界一致的谴责俄罗斯总统普京，遗憾的是，中共政府除外”。
 
-另外一方面去年日本死亡人数为145万2289人，比前年增加67745人，是战后最多的。
+“中共和俄罗斯的建立的这个联盟会让世界上其他各个地区的国家感到不安”。
 
-结果，人口数量下降，即出生人数减去死亡人数，为 609392 人，比成年人人数多 97531 人。
+Dutton说：”习近平的沉默令他在公开谴责普京的世界领导人中显得很突出，尽管他有“权力和关系”可以给普京施压，可以迫使普京在对乌克兰的军事行动上“收回并重新考虑”。
 
-此外，结婚人数为514242人，为战后最低，比前年结婚人数少23341人。
+“世界应该非常关注并且密切地观察这一点”，Dutton在对“Nine’s Today”节目的类似的评论中说。
 
-有18万7854对夫妇离婚，比前年减少了8787对。
+“中共和俄罗斯的这个联盟真的应该为世界敲响了警钟。我们要团结在一起，西方世界要至少要像冷战一样强大”他说。
 
-根据厚生劳动省的说法，“当新型冠状病毒的感染开始蔓延时，而死亡人数的增加也反映了新冠感染扩大的影响。”
+Dutton和助理国防部长Andrew Hastie都表示俄罗斯入侵乌克兰将会有很多无辜的受害者。
 
-这样的数据固然有日本自身社会思潮的一些体现，如少子化等。但这个时间点很难让人不向新冠疫苗和新冠病毒上联想，日本近八成民众完全接种了新冠疫苗，而且全国累计已有四百八十万人感染了新冠病毒。新冠疫苗和病毒对人生殖系统的损害，以及其副作用会直接或间接导致人死亡的案例已经屡见不鲜，而这背后一切的罪魁祸首就是中共。为了您和家人的健康，请做好病毒防护并立刻停止接种新冠疫苗。
+Hastie在2月24日接受澳大利亚天空新闻采访时表示：“普京正在将肮脏的战争乌云吹遍整个欧洲。无辜的人将死于他的肮脏之手，我们今天以最强烈的措辞谴责。”
 
-参考链接：
+Hastie说，总理Scott Morrison早在2020年就在他的《国防战略更新》中发出了反对独裁势力崛起的警告，“我们今天看到了这一点”。
 
-[https://www3.nhk.or.jp/news/html/20220225/k10013500901000.html?utm\_int=all\_side\_ranking-social\_002](https://www3.nhk.or.jp/news/html/20220225/k10013500901000.html?utm_int=all_side_ranking-social_002)
+他说：“这确实是一个非常黑暗的日子。”
 
-[https://www.worldometers.info/coronavirus/country/japan/](https://www.worldometers.info/coronavirus/country/japan/)
+与此同时，Dutton在采访中表示，乌克兰正在发生的事情是一场“人类悲剧”，并提出了一个问题：“问题是世界还能做什么？”
 
-[https://ourworldindata.org/covid-vaccinations](https://ourworldindata.org/covid-vaccinations)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+信息來源：[China-Russia Alliance an ‘Alarm Bell for the World’](https://www.theepochtimes.com/china-russia-alliance-an-alarm-bell-for-the-world-australian-defence-minister_4300915.htmll)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

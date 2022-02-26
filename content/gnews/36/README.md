@@ -2,26 +2,20 @@
 ---
 
 
-## 推特封禁了发布俄乌战争现场的账户
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2068344/)
+## 疫苗灾难的爆发程度以及应对方法
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2068421/)
 
-撰稿: 银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
-2月24日，俄罗斯悍然入侵乌克兰。目前俄罗斯军队和装甲车开始进入乌克兰领土，处于东顿巴斯和卢甘斯克地区的社交媒体账号发布的图像和视频成为目前战争局势的主要讯息来源，如俄罗斯直升机飞往克里米亚和坦克前往边境的视频。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2427.png)图片来自：https://www.theverge.com
-随着冲突的加剧，OSINT的研究人员发现发布战争讯息的这些账户，竟然被社交媒体推特封禁了。封禁的账户覆盖了英语、法语、西班牙语圈，甚至还包括巴西地区。推特显示的封禁原因并不清楚。研究人员还发现大量分享他人内容的大V账户也被封禁，这在机器人算法里是不可能的，明显是人为干预的结果。
+撰稿：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
+在2月23日的大直播中，郭文贵先生分析了疫苗大灾难爆发的程度，以及战友们应对的办法。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2429.png)
+郭先生指出，在全世界反对强制疫苗的抗议浪潮中，新中国联邦一直站在前列。班农战斗室、艾滋病的发现者吕克.蒙塔尼耶教授，以及各国有良知的医学家，都对反强制疫苗做出了卓越的贡献。全世界将近50亿人注射了疫苗，可能会有20亿人患病、致残或者死亡。这个数字比原先的估计要好很多。
 
-乌克兰的支持者有理由担心，这是俄罗斯所为，因为这有利于俄罗斯在乌克兰的军事行动。并且，俄罗斯此前在乌克兰进行了社交媒体虚假讯息宣传，并对乌克兰的网络、银行和政府网站进行了持续攻击。
+郭先生强调，5月份全世界疫苗灾难大爆发后，战友们要冷静对待，减少外出，尽量不要染病。另外，世界上的正义力量也在加紧研制疫苗解药。身在欧洲的科学家表示，会找出许多出人意料的解决方法。
 
-据悉，俄罗斯2014年吞并克里米亚期间，就曾被指控利用社交媒体宣传虚假讯息。
+新闻链接：[2/23/2022 Miles Guo](https://www.gettr.com/post/pwi58meb62)
 
-
-
-新闻来源：[TWITTER ACCOUNTS SHARING VIDEO FROM UKRAINE ARE BEING SUSPENDED WHEN THEY’RE NEEDED MOST](https://www.theverge.com/2022/2/23/22947769/twitter-osint-russia-ukraine-invasion-suspended-error)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-266.png)
-
-编辑：Ivy001
+编辑：宁文静
 
 总编：飞虹
 
@@ -29,11 +23,13 @@
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

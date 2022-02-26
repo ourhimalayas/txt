@@ -2,57 +2,59 @@
 ---
 
 
-## Steve Cortes认为中共入侵台湾的风险正在急剧上升
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2068947/)
+## 新州政府不会强制议会成员接种新冠疫苗
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2069065/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-76.png)图片来自网络
+《悉尼先驱晨报》近日报道，州长多米尼克·佩罗特已排除对新南威尔士州议会成员强制接种疫苗的可能性，因为有人指责自由党内未接种新冠疫苗的议员存在“阴谋集团”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+虽然他强烈鼓励所有国会议员接种疫苗，但佩罗特先生说他无法确认是否所有政府成员都接种了新冠疫苗。
 
-2月25日，美国前总统川普2016和2020年竞选团队高级顾问Steve Cortes在参加Steve Bannon的[The War Room](https://warroom.org/)时，从经济的角度分析，中共入侵台湾的风险正在急剧上升。
+“我不知道自由党成员的个人医疗问题和决定，”他周四表示。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/steve-cortes-taiwan-1-1.jpg)
+Mulgo选区的自由党成员周四下午向《先驱晨报》证实，她有有效的医疗豁免，可以不接种新冠疫苗，而高级政府议员认为，他们的队伍中至少还有其他人未接种新冠疫苗。
 
-Steve Cortes是 1970年出生于美国伊利诺伊州（illioins）南芝加哥的哥伦比亚后裔，著名市场策略师、作家和电视节目主持人，Bloomberg Business, CNBC及Fox News评论员，Veracruz LLC.创始人。2016年和2020年，担任川普竞选团队顾问。
+戴维斯女士说：“我有有效的医疗豁免，因此我履行了众议院发布的履行我的议会职责的指导方针。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/E2Qh5AeWQAIz6rV.jpg)
+“我还在每个议会开会日进行快速抗原检测，并遵守所有其他中共病毒安全要求。”
 
-Steve Cortes在班农节目中说，由于白宫有一个软弱的领导人，西方现在甚至不愿意对莫斯科（入侵乌克兰）采取严肃的行动，中共和俄罗斯这个邪恶轴心的兴起，中共内部越来越有底气可以在台湾采取行动。中共进攻台湾的时机可能已经成熟。
+反对党警方发言人沃尔特·塞科德周三下午告诉议会，有一群自由党议员尚未接种新冠疫苗。
 
-市场方面，台湾半导体（Taiwan Semiconductor Mfg. Co. Ltd.，台积电）是世界上最大的公司之一，市值5000亿美元，员工50,000人，绝对是美国和全世界的芯片生产中心。
+“不幸的是，新南威尔士州自由党的议会队伍中有一个反疫苗集团，”他告诉议会。
 
-台积电的股价自1月14日以来的五个星期，正式进入熊市，由当时的最高点145美元下跌到110美元，昨天甚至下探至全年最低点104美元。
+“我呼吁总理对议会党内拒绝接种新冠疫苗的人采取行动。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-26_17-00-55.png)
+塞科德先生表示，新南威尔士州议会内部存在明显的双重标准，因为民选官员正在通过立法，要求为数千名工人接种疫苗，但他们并没有坚持同样的标准。
 
-Steve Cortes认为，台湾半导体绝对是一个风向标，告诉我们中共入侵台湾的风险正在急剧上升，一旦台湾开战，乌克兰局势就显得平淡无奇了，台湾将成为全世界关注的热点。
+塞科德先生说：“我和反对派完全支持新南威尔士州政府的新冠疫苗授权，导致超过 1100 人因为拒绝接种新冠疫苗而离开新南威尔士州公共卫生人员队伍。”
 
-在俄罗斯入侵乌克兰之后，美国总统拜登前天宣布，制裁4 家俄罗斯银行，但不会制裁俄罗斯石油，甚至在三天前，拜登冻结了美国所有新的石油和天然气钻探项目。
+“我们支持为基本工人接种新冠疫苗，但我们也支持一致性。”
 
-中共外交部在回答路透社记者“为应对欧盟和美国对俄罗斯实施的制裁，中方会增加采购俄罗斯石油吗？”提问时说，“我们一贯反对任何非法单边制裁。我们要求有关方在处理乌克兰问题和对俄关系时，不得损害中方和其他方面正当权益。中俄之间本着相互尊重、平等互利的精神开展正常的贸易合作。”
+周四早上，当被问及他的队伍中是否有未接种疫苗的议员时，佩罗特先生说：“我不知道。”
 
-翻译成人话就是，中共反对对俄罗斯制裁，无论国际社会如何制裁，中俄邪恶轴心不会改变，中共将一如既往的向俄爹输送利益！
+他说：“我的期望是议会的人都接种了新冠疫苗，我收到的信息没有指向另外一个方向。”
 
-2月25日下午，习猪头同俄罗斯总统普京通电话，习太阳说，中共“根据乌克兰问题本身的是非曲直决定中方立场”，要“摒弃冷战思维”！看来习猪头真想打热战！
+“我不知道自由党成员的个人医疗问题和决定。”
 
-参考数据：
+佩罗特先生已完全接种疫苗，并且是新冠疫苗的坚定支持者。
 
-[Steve Cortes Reveals Major Signal of Communist China’s Move on Taiwan (VIDEO)](https://www.thegatewaypundit.com/2022/02/steve-cortes-reveals-major-signal-communist-chinas-move-taiwan-video/)
+“在过去的八个月里，我一直在鼓励接种新冠疫苗，”他说。
 
-[习近平同俄罗斯总统普京通电话](https://www.mfa.gov.cn/zyxw/202202/t20220225_10645684.shtml)
+财政部长马特·基恩、就业部长斯图尔特·艾尔斯和地方政府部长温迪·塔克曼证实，他们周四在与州长举行的新闻发布会上完全接种了新冠疫苗。
 
-[2022年2月25日外交部发言人汪文斌主持例行记者会](https://www.mfa.gov.cn/fyrbt_673021/202202/t20220225_10645686.shtml)
+“我绝对可以排除自己是一名反疫苗者，我认为未接种新冠疫苗的人正在从事愚蠢和危险的行为，”基恩先生在被问到时说。
 
-[俄罗斯精锐近卫军杀进乌克兰首都基辅！中国撂下一句狠话！](https://www.163.com/dy/article/H14R7EN80552FDOB.html)
+新南威尔士州立法议会议长乔纳森·奥迪周四下午发表声明说，所有下议院议员如果完全接种新冠疫苗或获得有效的医疗豁免，都可以参加议会。
 
-[Taiwan Semiconductor Mfg. Co. Ltd.](https://www.tsmc.com/english)
+“众议院授权我执行这些规则，去年年底对合规性进行了审计。我被告知并理解所有立法会议员都遵守了这些规则，”他说。
 
-[Steve Cortes Biograph & Age, Wiki, Height, Weight, Girlfriend, Family & More](https://www.marathi.tv/political-analyst/steve-cortes/)
+制定规则的人自己不打，却让老百姓当小白鼠，然后用工作等其他限制要挟，请问公平性在哪里呢？
 
-[Steve Cortes CNN, CNBC, Wiki, Bio, Age, Birth Place, Wife, Kids, Trump, Salary and Net Worth](https://www.wiki.ng/en/wiki/steve-cortes-cnn-cnbc-wiki-bio-age-birth-place-wife-kids-trump-salary-and-net-worth-480614)
+参考链接：
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+[https://www.smh.com.au/national/nsw/anti-vax-cabal-no-vaccine-mandate-for-nsw-parliament-20220224-p59zfu.html](https://www.smh.com.au/national/nsw/anti-vax-cabal-no-vaccine-mandate-for-nsw-parliament-20220224-p59zfu.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

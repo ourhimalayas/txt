@@ -2,43 +2,34 @@
 ---
 
 
-## 为什么通货膨胀会造成房产的价值的下跌(而不是上升)
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2069087/)
+## 荒谬：王毅让全世界重视侵略者的合理诉求
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2069238/)
 
-编译：形而上
+#### 【雅典娜观察】和您一起洞察世界
 
-2 月22日财经顾问 Costantino Forgione 报道:
+整理：围剿维尼熊
+编辑：文泓
 
-众所周知 ， 由于一句 “砖头永远不会背叛” 的座右铭，意大利人偏爱投资房产，这个信仰从上一辈传承下来的，在70、 80年代的恶性通货膨胀时期，他们看到房产的名义价格持续上涨，少于通胀的价格增长使他们忽略了实际价格的亏损。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-40.png)图片来源：Forces & 雅典娜设计组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2476-edited.png)econopoly.ilsole24ore
 
-这种错觉导致的结果是，50年来意大利人过度投资于房产，接近于50%的全国总财富(10000亿中的大约5000亿)。
+2月26日据路透社报道，中共国外长王毅周五表示，中共国坚定主张尊重和保障各国的主权和领土完整，但在北约连续五轮东扩情况下，**俄罗斯在安全方面的正当诉求理应得到重视和妥善解决。**王毅还表示，中共支持和鼓励一切有利于和平解决乌克兰危机的外交努力，欢迎俄罗斯和乌克兰尽快举行直接对话谈判。
 
-由于通货膨胀再次偷偷开始，而且达到了不可忽视的程度，意大利人再一次想把钱投资到房产中以保护自己的财富受到通胀风暴的影响。
+众所周知，俄罗斯作为入侵方，之前在乌克兰边境制造了“假旗事件”为发动战争寻找借口。乌克兰政府此前一再要求与普京会晤，以解决俄乌双边的领土问题，但普京拒绝了乌方要求。
 
-这将可能是个严重的错误，不能重蹈覆辙。
+而中共作为世界秩序的扰乱者，全球头号“黑社会”组织，周四当俄罗斯军队入侵乌克兰数小时后，中国海关总署宣布将取消此前因担心植物病害而对俄罗斯小麦的限制。当全世界集体制裁俄罗斯之时，中共国却对俄罗斯小麦进口大开方便之门，与全世界对着干，王公公还让全世界重视侵略者的诉求，何其荒谬？
 
-各大中央银行欧洲和美国的通胀率目标水平约为2%，而这次的通胀已经在美国达到7.5%，欧洲5%，意大利4.8%：到了一个无法接受的地步，而且没有丝毫放慢迹象。如果能源价格再次上涨，最近的国际政治版图的变化会使其更为恶化。
+参考链接：[俄诉求也应得到重视和解决](https://cn.reuters.com/article/china-wangyi-russia-security-0226-idCNKBS2KV03H?il=0)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2478-edited.png)econopoly.ilsole24ore
+*发布：tianzhihuan*
 
-这次的通胀似乎远不如预期“短暂”，并向各国央银敲响了警钟，进而各大央行决定调高利息，也结束了2009年来的 “免费货币” 时代。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-在未来几年再没有人去投资买房产，所以价格会慢慢的下降，加上如果政府推动执行财产税，个人不动产，银行账户等将被毫无阻力的袭击，更不要忘了未来的房产重审核会让人们雪上加霜。
-
-最后总结警告人们有多余的房产能卖就赶快卖趁现在来得及，别相信房产中介的忽悠。
-
-评论：这和爆料革命、郭文贵先生所预警的一样，全世界法币超发，造成通货膨胀， 对人们的又一次财富洗劫已经开始
-
-链接：【econopoly.ilsole24ore】[Perché l’inflazione farà crollare (e non salire) il valore della casa](https://www.econopoly.ilsole24ore.com/2022/02/22/casa-inflazione-tassi/?utm_term=Autofeed&amp;utm_medium=TWSole24Ore&amp;utm_source=Twitter#Echobox=1645547378)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
