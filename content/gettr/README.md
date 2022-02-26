@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/26/2022 11:01 PM (UTC)`
+
+2/26/2022 Miles Guo: The goal of GEDU education in the New Federal State of China is to unbind. Education cannot be kidnapped by politics and money; a series of measures should be taken to create a personalized educational environment that is conducive to student growth.<br/><br/>2/26/2022 文贵直播：新中国联邦的GEDU教育的目标就是松绑；教育不能被政治和金钱绑架；要通过一系列的措施打造个性化的有利于学生成长的教育环境。<br/>
+![img](https://media.gettr.com/group32/getter/2022/02/26/23/8c795aab-309d-c5ff-82fa-ab5168c0c962/out.jpg)
+
+---
+
+`@miles 2/26/2022 10:56 PM (UTC)`
+
+2月26日：尊敬的战友们好，马上将开始大直播。关于去乌克兰对新中国联邦的战友和亲人……家人。所有的中国同胞……美国🇺🇸人在乌克兰战区被困的朋友们的紧急救援行动！
+![img](https://media.gettr.com/group47/getter/2022/02/26/22/2db0f82b-6695-0c88-fdf6-49aa850900d4/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@qifeng 2/26/2022 6:00 AM (UTC)`
@@ -148,20 +162,6 @@ Mr. Bannon 100% agree that the Wall Street has provided the capital from the pen
 
 2月25号：共产党以完了…… 决定一个人能走多远的因素往往不是智商，不是情商，而是性格。我们中共国的教育系统，可以培养性格吗？可以训练自制力和毅力吗？<br/>如果你见一个孩子“能很投入地一直做一件事很久”，这就是特殊能力。<br/>“向着长期的目标，坚持自己的激情，即便历经失败，依然能够坚持不懈地努力下去，这种品质就叫做坚毅。如果一个孩子从小就培养出扶弱济贫有勇气，有良知的人性教育，我们每个人面对的未来都将是美好的。明天上午8:30 G EDU教育．特殊专场直播。我们来谈新中国联邦的未来教育。
 ![img](https://media.gettr.com/group29/getter/2022/02/26/02/f75daac6-0537-0f43-2d15-696f79bff827/1e303ae83e2d6b01b3ce442ea4f6a1a0.jpg)
-
----
-
-`@miles 2/25/2022 10:45 PM (UTC)`
-
-2/25/2022 Miles Guo: Ukraine is one of the most corrupt countries on earth. The US and EU failed to fulfill their promises to protect Ukraine and have abandoned it, while also tearing up their promises made to Russia that NATO would not expand eastward and Ukraine would not join the EU. So, Putin’s war on Ukraine is not entirely unjustifiable.<br/><br/>2/25/2022 文贵直播：乌克兰是全球最腐败的国家之一，美欧没有兑现保护乌克兰的承诺并抛弃了它，同时撕毁了对俄罗斯做出的北约不东扩、乌克兰不入欧盟的承诺，普京打乌克兰并不输理<br/>
-![img](https://media.gettr.com/group9/getter/2022/02/25/22/036fff60-9285-67ee-a836-7ba8ef829373/out.jpg)
-
----
-
-`@miles 2/25/2022 10:07 PM (UTC)`
-
-2/25/2022 Miles Guo: What does Putin attacking Ukraine at this time have to do with the CCP virus and COVID vaccines? How does that relate to Trudeau's implementing the Emergencies Act and hiring foreign mercenaries? Why are the Western countries bluffing when it comes to Russia’s invasion of Ukraine? International diplomatic relations are all about strength and self-interest.<br/><br/>2/25/2022 文贵直播：普京此时打乌克兰和病毒、疫苗有啥关系？这和加拿大土豆实施紧急状态法、使用雇佣军又有啥关系？西方各国为何咋呼？实力和自我利益是国际外交关系的核心<br/>
-![img](https://media.gettr.com/group38/getter/2022/02/25/22/5c8e33e6-8dfc-c13e-e3fb-2146abb969f8/out.jpg)
 
 ---
 

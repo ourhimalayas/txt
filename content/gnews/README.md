@@ -15,50 +15,50 @@
 
 ---
 
-### [麦考尔众议员谴责中共支持俄罗斯入侵乌克兰](/content/gnews/1/README.md)
+### [我们新中国联邦教育要做什么](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [中国教育是政治需要](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [麦考尔众议员谴责中共支持俄罗斯入侵乌克兰](/content/gnews/3/README.md)
  ` 华盛顿DC-Russian`
 
-### [2022年02月26日G教育大直播速记精萃](/content/gnews/2/README.md)
+### [2022年02月26日G教育大直播速记精萃](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [2月26日勿忘香港（图片1-10）](/content/gnews/3/README.md)
+### [2月26日勿忘香港（图片1-10）](/content/gnews/5/README.md)
  ` 波士顿五月花农场`
 
-### [战争来临时如何选择避难所——供台湾同胞参考](/content/gnews/4/README.md)
+### [战争来临时如何选择避难所——供台湾同胞参考](/content/gnews/6/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [新中国联邦前所未有的伟大教育计划](/content/gnews/5/README.md)
+### [教育捐款不是希望是绝望](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [我们G教育的目标](/content/gnews/6/README.md)
+### [新中国联邦前所未有的伟大教育计划](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [各地重视GETU教育东方文明并无堕落](/content/gnews/7/README.md)
+### [我们G教育的目标](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [世界各处对G教育的反应](/content/gnews/8/README.md)
+### [各地重视GETU教育东方文明并无堕落](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [德国向基辅交付 1000 枚反坦克武器和 500 枚毒刺导弹](/content/gnews/9/README.md)
+### [世界各处对G教育的反应](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [德国向基辅交付 1000 枚反坦克武器和 500 枚毒刺导弹](/content/gnews/12/README.md)
  ` Shuizhuyu`
 
-### [灭共者之郭氏情报站（31）2022/02/26 文贵大直播-EDU专场](/content/gnews/10/README.md)
+### [灭共者之郭氏情报站（31）2022/02/26 文贵大直播-EDU专场](/content/gnews/13/README.md)
  ` MOS Designer香草山设计部`
 
-### [灭共者之郭氏情报站（30）2022/02/25 文贵大直播](/content/gnews/11/README.md)
+### [灭共者之郭氏情报站（30）2022/02/25 文贵大直播](/content/gnews/14/README.md)
  ` MOS Designer香草山设计部`
 
-### [第一次GEDU教育，七哥的感想](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [从“三家分晋”历史重演看现今中国之大变局](/content/gnews/13/README.md)
+### [从“三家分晋”历史重演看现今中国之大变局](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [锁链恨](/content/gnews/14/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [我的第一次](/content/gnews/15/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [秘翻在线：美再向乌克兰提供数亿美元武器装备](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`

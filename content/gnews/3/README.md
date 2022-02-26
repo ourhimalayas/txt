@@ -2,12 +2,31 @@
 ---
 
 
-## 2月26日勿忘香港（图片1-10）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2071683/)
+## 麦考尔众议员谴责中共支持俄罗斯入侵乌克兰
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/2071715/)
 
-设计 五月花农场 企鹅
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9CDD2AC9-5F93-413F-A64C-2AA3226B0F37.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/E78203B4-826F-41AB-89F9-09B3D04B619D.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/D3C8F151-BE23-4548-84B0-714F1ED5649F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/FA1965CD-330D-4D68-AE0F-E749CEFA06D7.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/BBF391E6-7AD0-4DC5-9762-E0AE2C2EB17F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/C7694730-C79B-44A4-89BD-66B25E88152F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/E02EFB0F-64B2-4D81-9953-98FBB5F1FEA9.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/4D245CEE-E184-4C82-997B-127996BA3FAB.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/99C5F8A6-ECD7-476C-B5B1-3154D2E81380.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/2A1080CE-A560-40D9-9B51-062934271C91.jpeg)
-发布：水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-27_01-04-21.jpg)[united-london.uk](https://united-london.uk/business/china-to-benefit-from-anti-russian-sanctions-analyst-rt-business-news/)
+德克萨斯州共和党众议员迈克尔·麦考尔（Michael McCaul）在2月25日晚些时候的一份声明中说：“中共对普京侵略行为的令人厌恶的支持，是迄今为止自由世界正在与一个新的暴君轴心作战的最明显迹象。习近平总书记并没有努力限制无辜的乌克兰人流血事件，而是与普京在奥运会上肩并肩地团结起来反对民主政体，并拒绝了和平解决的企图。显然，习和普京选择暴力而不是理性，不能信任。在所谓的共同利益领域与暴徒合作是不现实的，在美国严肃的对华政策中也没有一席之地。”
+
+麦考尔接着说，“里根总统说得好，‘自由的消失永远不会超过一代’，美国、我们的盟友，以及伙伴必须决定我们的历史地位。”
+
+麦考尔众议员看到了俄罗斯入侵的本质，意识到了中共的角色，发出了呼吁，希望这是美国大多数立法者的共识。只有认清中共的邪恶，才能出台遏制邪恶、铲除邪恶的措施。
+
+来自《福克斯新闻》报道的乌克兰局势的动态（摘译）：
+
+1、美国批准向乌克兰提供3.5亿美元国防援助，包括“反装甲和防空系统”。
+
+新的军事援助包括“反装甲和防空系统、小型武器和各种口径弹药、防弹衣和相关设备。”
+
+2、欧洲接近批准SWIFT，但德国仍保持担忧。
+
+3、波兰向乌克兰运送弹药以抵抗俄罗斯的入侵。
+
+有关链接：https://www.foxnews.com/live-news/ukraine-russia-invasion-news
+
+华盛顿DC 望七星
+
+编辑发布  银河
 
  
 
