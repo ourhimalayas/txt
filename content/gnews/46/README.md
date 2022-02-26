@@ -2,30 +2,57 @@
 ---
 
 
-## 制裁俄罗斯 日本公司如坐针毡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2068805/)
+## Steve Cortes认为中共入侵台湾的风险正在急剧上升
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2068947/)
 
-撰稿：东京樱花团/麗子
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/制裁俄罗斯-日本公司如坐针毡.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-在俄罗斯全面入侵乌克兰之后，七国集团（G7）宣布了追加经济和金融制裁。一系列的额外制裁和进一步的报复性措施，将带来的影响不容小觑，日本公司也更加警惕。
+2月25日，美国前总统川普2016和2020年竞选团队高级顾问Steve Cortes在参加Steve Bannon的[The War Room](https://warroom.org/)时，从经济的角度分析，中共入侵台湾的风险正在急剧上升。
 
-在金融制裁方面，美国对俄罗斯联邦储蓄银行等主要金融机构实施了广泛制裁。日本宣布冻结三家银行的资产，其中包括俄罗斯的对外经济开发银行（VEB）。日本金融机构将被限制与被制裁的银行转移资金，这可能会对当地日本公司的资金供应造成影响。同时，负责为俄罗斯基础设施发展提供资金的VEB，也参与了日本贸易公司和政府机构主导的北冰洋资源开发项目。这次对VEB实施的制裁可能会影响这些合作项目的进展。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/steve-cortes-taiwan-1-1.jpg)
 
-美国、欧洲和日本都对高科技产品实行出口限制。日本的出口限制对象是半导体及相关技术。  三井住友银行日兴证券的经济学家表示，对俄罗斯的汽车出口和当地生产有可能受到影响。
+Steve Cortes是 1970年出生于美国伊利诺伊州（illioins）南芝加哥的哥伦比亚后裔，著名市场策略师、作家和电视节目主持人，Bloomberg Business, CNBC及Fox News评论员，Veracruz LLC.创始人。2016年和2020年，担任川普竞选团队顾问。
 
-俄罗斯的报复措施也将带来影响。据估计，用于汽车尾气净化催化剂的钯金，世界供应量的30%来自俄罗斯。汽车行业已经面临着半导体的短缺和原材料价格的飙升。一家大型制造商的高管表示，（钯金和其他金属的）价格上涨将使行业雪上加霜。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/E2Qh5AeWQAIz6rV.jpg)
 
-金融厅也已通知全国的金融机构加强对网络攻击的应对，并呼吁以高度的紧迫感保持警惕。
+Steve Cortes在班农节目中说，由于白宫有一个软弱的领导人，西方现在甚至不愿意对莫斯科（入侵乌克兰）采取严肃的行动，中共和俄罗斯这个邪恶轴心的兴起，中共内部越来越有底气可以在台湾采取行动。中共进攻台湾的时机可能已经成熟。
 
-信息来源:
+市场方面，台湾半导体（Taiwan Semiconductor Mfg. Co. Ltd.，台积电）是世界上最大的公司之一，市值5000亿美元，员工50,000人，绝对是美国和全世界的芯片生产中心。
 
-[日本企業、報復の連鎖懸念　米欧日、対ロ制裁を強化](https://news.yahoo.co.jp/articles/8a26f5ee56f43471fb174d61378804b53103691d)
+台积电的股价自1月14日以来的五个星期，正式进入熊市，由当时的最高点145美元下跌到110美元，昨天甚至下探至全年最低点104美元。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-26_17-00-55.png)
+
+Steve Cortes认为，台湾半导体绝对是一个风向标，告诉我们中共入侵台湾的风险正在急剧上升，一旦台湾开战，乌克兰局势就显得平淡无奇了，台湾将成为全世界关注的热点。
+
+在俄罗斯入侵乌克兰之后，美国总统拜登前天宣布，制裁4 家俄罗斯银行，但不会制裁俄罗斯石油，甚至在三天前，拜登冻结了美国所有新的石油和天然气钻探项目。
+
+中共外交部在回答路透社记者“为应对欧盟和美国对俄罗斯实施的制裁，中方会增加采购俄罗斯石油吗？”提问时说，“我们一贯反对任何非法单边制裁。我们要求有关方在处理乌克兰问题和对俄关系时，不得损害中方和其他方面正当权益。中俄之间本着相互尊重、平等互利的精神开展正常的贸易合作。”
+
+翻译成人话就是，中共反对对俄罗斯制裁，无论国际社会如何制裁，中俄邪恶轴心不会改变，中共将一如既往的向俄爹输送利益！
+
+2月25日下午，习猪头同俄罗斯总统普京通电话，习太阳说，中共“根据乌克兰问题本身的是非曲直决定中方立场”，要“摒弃冷战思维”！看来习猪头真想打热战！
+
+参考数据：
+
+[Steve Cortes Reveals Major Signal of Communist China’s Move on Taiwan (VIDEO)](https://www.thegatewaypundit.com/2022/02/steve-cortes-reveals-major-signal-communist-chinas-move-taiwan-video/)
+
+[习近平同俄罗斯总统普京通电话](https://www.mfa.gov.cn/zyxw/202202/t20220225_10645684.shtml)
+
+[2022年2月25日外交部发言人汪文斌主持例行记者会](https://www.mfa.gov.cn/fyrbt_673021/202202/t20220225_10645686.shtml)
+
+[俄罗斯精锐近卫军杀进乌克兰首都基辅！中国撂下一句狠话！](https://www.163.com/dy/article/H14R7EN80552FDOB.html)
+
+[Taiwan Semiconductor Mfg. Co. Ltd.](https://www.tsmc.com/english)
+
+[Steve Cortes Biograph & Age, Wiki, Height, Weight, Girlfriend, Family & More](https://www.marathi.tv/political-analyst/steve-cortes/)
+
+[Steve Cortes CNN, CNBC, Wiki, Bio, Age, Birth Place, Wife, Kids, Trump, Salary and Net Worth](https://www.wiki.ng/en/wiki/steve-cortes-cnn-cnbc-wiki-bio-age-birth-place-wife-kids-trump-salary-and-net-worth-480614)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

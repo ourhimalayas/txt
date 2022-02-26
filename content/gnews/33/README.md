@@ -2,48 +2,46 @@
 ---
 
 
-## 有声|新西兰Covid-19 疫情爆炸式飙升至12,011 例新病例五人死亡引发民众暴力情绪
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2070401/)
+## 一号文件
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2070527/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image013-1.jpg)
-当地时间，2月25日，新西兰报告了12,011 例新的Covid-19 小区病例，另有5 人死亡。今天的数字几乎是24日报告的6137 个病例的两倍。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image014-2.jpg)
-奥克兰的新增病例最多，有1565 例PCR 检测呈阳性，6403 例RAT 结果呈阳性。其余病例分布在全国各地。
+作者：香草山教育部-雪梨
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-85.png)
+“一号文件”，即中共每年发布的第一份文件，是中共发布的关于农村问题的专有名词。
 
-新西兰目前为止已有61 人死于Covid-19。现在有237 人因感染Covid病毒住院，其中3 人在重症监护室。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/a2f56b3eac7e2871.png)
 
-疫情爆炸式发展引发了民众焦虑以及暴力情绪。新西兰大型连锁超市Countdown公司事务经理Kiri Hannafin 说，人们正在向超市的员工发泄与covid病毒相关的愤怒。人们不戴口罩，辱骂超市的团队，咒骂，随地吐痰，甚至威胁要杀人，目前为止每天如此。
+二战期间，中共绑架战区老百姓抗日，老百姓别无选择。
 
-同时，他表示Countdown 的22,000 名员工令他感动，尽管“一些极少数人的行为绝对令人发指”，但是员工们还在继续工作“继续前进”。可惜有350 名超市员工因Covid 处在隔离中。超市预计本周末商店将出现肉类短缺。
+篡权后，中共“打土豪，分田地”，农民再次沦为中共抢夺土地的牺牲品。
 
-此外，新西兰本地因疫情飙升师资不足已经引发幼教机构关闭。中共病毒引发的疫情灾难正在越来越多的显现出来！
+20世纪50年代，中共施行“人民公社”“大锅饭”，中华大地饿殍遍野。
 
+而后的“责任承包制”“三农”政策，使农民负担加重，收益减少，土地变成商品被出售，农业土地面积越来越少。
 
+2月22日，中共再次发布“一号文件”，强调全力加强粮食生产。
 
-[【援引连结】](https://www.rnz.co.nz/news/national/462259/covid-19-update-12-011-new-community-cases-in-new-zealand-today-five-deaths)
+近年来，爆料革命一直警示中共国面临着巨大的粮食危机。根据郭文贵先生2月25日大直播爆料，中共国粮食供应将出大问题，中共在半年前已经做好重回“人民公社”“大锅饭”的准备。粮食将再一次成为中共控制人民的工具。
 
+参考链接：
 
+[https://gnews.org/zh-hans/2066007/](https://gnews.org/zh-hans/2066007/)
 
-**推出问题，敲出真相，爆料在路上！**
+校对/发稿：飞虹
 
-**请关注和订阅我们的以下账号：**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-64.jpg)
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+**更多资讯，更多关注**
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**玫瑰看新闻YOUTUBE账号**：
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**玫瑰看新闻**
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**黑森林的故事**
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
