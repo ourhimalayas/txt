@@ -2,36 +2,38 @@
 ---
 
 
-## 美国指责中俄联手打造极不自由的世界秩序
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2067242/)
+## 中共外交部的表态暗藏对台杀机
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/2067382/)
 
-作者：纽约香草山农场 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月23日，据有关媒体报道，美国指责中共和俄罗斯正在共同铸造一个“极度不自由”的新世界秩序，其中，莫斯科当局对乌克兰的行动只是计划中的一部分。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-25-下午10.14.24.png)
-美国国务院发言人内德-普莱斯当天表示，中共和俄罗斯本月公布了升级版的“无限制”伙伴关系。在该体系下，二者将针对美国和西方世界展开更多合作，但这一发展方向令国际社会非常担忧。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-26_06-39-11.jpg)[newshub.co.nz](https://www.newshub.co.nz/home/world/2022/02/china-says-taiwan-is-not-ukraine-as-island-nation-raises-alert-level.html)
+文贵先生一再警告台湾危矣，敦促台湾人民作好准备的同时，更是威慑中共，“邪魔，你的花招世人已了如指掌，切勿轻举妄动！”
 
-普莱斯补充道，俄罗斯和中共正在试图建立一个新的世界秩序，但这是一个极度不自由的秩序，其与世界各国在过去七十年里建立的民主体系形成了鲜明的对比，该秩序更将对人类社会极具破坏性。
+受文贵先生的提示，查阅了中共歪叫部的官网，华大妈的言论有明显的指向，暗藏着杀机：【1】
 
-此外，普莱斯也明确指出中共恶意操控舆论的行为：中共表面上敦促在乌克兰对峙中的各方保持克制，但私下却责令其喉舌媒体严禁发布任何不利于俄罗斯的言论。普莱斯认为，中共当局自相矛盾的立场以及其与俄罗斯的升级版协议推动了普京在乌克兰问题上的进一步扩张。
+“……近代以来，中国遭受过八国联军和外国殖民侵略，有着对于丧权辱国的刻骨铭心的悲惨记忆。就在并不遥远的20多年前，中国驻南联盟使馆被北约轰炸、造成3名中国记者牺牲，多人受伤。北约还欠着中国人民的血债。
 
-另据专家分析，如果俄罗斯入侵乌克兰，中共国或将在外交或经济上给予支持。为此，白宫警告中共国企业称，在俄罗斯入侵乌克兰的情况下，中共企业任何违反对莫斯科出口管制的行为都将面临严重的后果。
+……中国也还是唯一一个还没有实现祖国完全统一的安理会常任理事国。
 
-参考链接：[U.S. says China and Russia seek ‘profoundly illiberal’ world order](https://www.reuters.com/world/us-says-china-russia-seek-profoundly-illiberal-world-order-2022-02-23/?taid=6216caa100131e0001dd4865&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+……美方暗示俄罗斯有中国背后支持才行动，相信俄方会很不高兴听到这种说法。俄罗斯是安理会常任理事国，是独立自主的大国，俄方完全基于自身判断和国家利益独立自主制定并实施自己的外交战略。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+……
 
-总编：Irene木木
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+至于中俄联合声明，我们建议美方再认真仔细阅读一下。中俄加强战略沟通协调，坚定维护联合国在国际事务中发挥核心协调作用的国际体系，坚定维护包括《联合国宪章》宗旨和原则在内的以国际法为基础的国际秩序，恰恰是负责任的表现，是维护国际战略安全与稳定的积极因素。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+王毅在几小时前最新的表态中，除了官话、套话，更有为普京站台、开脱的表达：“在北约连续五轮东扩情况下，俄罗斯在安全方面的正当诉求理应得到重视和妥善解决。”【2】
+
+距离行为上迎合普京越来越近了，也就是中共的死期不远了，只不过中共选用哪种方式去死而已。
+
+有关链接：
+
+- [https://www.mfa.gov.cn/web/wjdt\_674879/fyrbt\_674889/202202/t20220224\_10645295.shtml](https://www.mfa.gov.cn/web/wjdt_674879/fyrbt_674889/202202/t20220224_10645295.shtml)
+- [https://www.fmprc.gov.cn/wjbzhd/202202/t20220226\_10645790.shtml](https://www.fmprc.gov.cn/wjbzhd/202202/t20220226_10645790.shtml)
+
+
+华盛顿DC 望七星
+
+编辑发布  银河
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

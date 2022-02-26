@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/26/2022 4:02 AM (UTC)`
+
+2/25/2022 Miles Guo: Why do Putin and Xi Jinping want to start the war? The fundamental reason is that they are not in good health and are under huge pressure from political infightings and the economy. The coronavirus and the COVID vaccines are premeditated and perfect means to commit genocide and to start the WWIII.<br/><br/>2/25/2022 文贵直播：普京和习近平为什么干这票？根本原因是他俩身体都不行了，而且内部政治和经济压力山大；冠状病毒和疫苗灾难是蓄谋已久的完美种族大屠杀，开启了第三次世界大战！<br/>
+![img](https://media.gettr.com/group25/getter/2022/02/26/04/1b6871f0-be52-9381-db91-aa555c17883d/out.jpg)
+
+---
+
 `@miles 2/26/2022 3:29 AM (UTC)`
 
 2/25/2022 Miles Guo: Humanity has never experienced a time as dark as the year of 2022, and we will be living in turmoil for a long time. Xi Jinping and Putin had already started to make their evil plans as early as 2010. The trilateral relationship of the CCP, Russia, and the US has been swaying the course of humanity. The world order will undergo a great restructuring!<br/><br/>2/25/2022 文贵直播：人类从未像2022年如此黑暗，我们将面临着长期的乱世；习近平和普京从2010年就开始制定邪恶计划；中美俄的三角关系一直在影响着人类，世界秩序将发生大重组！<br/>
@@ -146,13 +153,6 @@
 
 2/23/2022 Miles Guo: The judge went back to his hometown to deal with the women trafficking cases, but the local people offered him several kidnapped women. I will cry whenever I sing the song "The Nightmare in Chains". What the chained woman wants to say the most is "the world has abandoned me". The CCP sent people to Xuzhou to investigate and arrest anyone who is not local, but they couldn’t even find out about the identity of the chained woman. Only the CCP government is so cruel to its own people.<br/><br/>2/23/2022 文贵直播：法官回老家解决绑架女的问题反被当地人送上绑架女；文贵这首《锁链梦》唱一个字都想哭，“这个世界不要我”是锁链女最想说的话；中共派人到徐州查、抓外地人，而锁链女的身份却查不着，只有中共政府才对老百姓这么残忍！<br/>
 ![img](https://media.gettr.com/group11/getter/2022/02/24/16/2dedada5-9300-99e3-e143-0df405ac9ba2/out.jpg)
-
----
-
-`@miles 2/24/2022 4:02 PM (UTC)`
-
-2/23/2022 Miles Guo: Peng Liyuan's cousin bought a trafficked woman and made her his wife. Xi Jinping and Peng Liyuan know better than anyone else the miserable lives of the trafficked women in Communist China. All the world's most powerful and wealthy people envy the pleasure brought by the CCP’s highly centralized power. It is the CCP that has led the governments of various countries to go to extremes.<br/><br/>2/23/2022 文贵直播：彭丽媛的表哥买了拐卖女为妻，习近平和彭丽媛比任何人都清楚中国的被拐卖妇女的悲惨生活；世界有权有钱的人无不羡慕中共的高度集权带来的快乐，中共导致各国政府走向极端化<br/>
-![img](https://media.gettr.com/group11/getter/2022/02/24/16/ddf56a78-b134-7c5c-2e4a-96042390610b/out.jpg)
 
 ---
 
