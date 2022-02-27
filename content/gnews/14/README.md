@@ -2,21 +2,30 @@
 ---
 
 
-## 视频|再次揭露HBO精心编织的谎言Part11
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2073974/)
+## 今日盖特大V推荐 — 马克·R·莱文（Mark R. Levin）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2074055/)
 
-制作：香草山视频部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2569.png)
+盖特链接：https://gettr.com/user/marklevinshow
 
-近年来，中共通过蓝金黄等手段控制了世界上大部分的主流媒体和社交媒体，人们被迫只能接收到错误的信息和谎言，更甚者，中共还通过操控媒体掩盖其伤人、杀人的恶行。鉴于此种情形，郭文贵先生建立的GTV平台作为一个揭露中共邪恶的媒体，其一直在与目前世界上的所有虚假信息抗争。
+马克·R·莱文自述：
 
-然而，在HBO Vice 的剪辑视频中，杨贝贝将爆料革命战友对GTV的投资抹黑为一项欺诈计划。在此，我们将通过本期视频回顾中共对媒体的操控以及其对GTV投资者的迫害，来揭穿杨贝贝的这一污蔑。请收看揭露HBO精心编织的谎言第十一部分。
+这是《马克· 莱文秀》的盖特官方页面。免费下载我的播客 [**http://www.marklevinshow.com/audio-**](http://www.marklevinshow.com/audio-)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2573.png)图片来源：网络
+**马克·R·莱文简介：**
 
-发稿：林礼
+马克·R·莱文（Mark Reed Levin 生于1957年9月21日）是美国律师，作家和电台名人。
+马克·莱文是联合广播节目《 马克·莱文秀》以及福克斯新闻《生命，自由与莱文》的主持人。莱文曾在罗纳德·里根总统的行政部门工作，并曾担任司法部长埃德温·米斯 ( Edwin Meese ) 的幕僚长。
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+莱文是纽约时报畅销书七本书的作者，并为国家评论在线等媒体发表评论。自2015年以来，莱文一直担任《保守派评论》的主编，并以他的评论而闻名。
+
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

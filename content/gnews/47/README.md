@@ -2,41 +2,22 @@
 ---
 
 
-## 前辉瑞员工：中共病毒疫苗是人类基因编辑的工具
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2069663/)
+## 樱花FM|法国扭捏表态不参加中共冬奥开幕式
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2069937/)
 
-作者：银河系农场 — 骄子
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-3-8.png)
+据巴黎时报报道：法国欧洲事务部长在1月30日，出席法国电台的节目时，就讨论2月4日开幕的中共冬奥会是否出席的问题时表示，体育部长将被派往2月4日开幕的北京冬奥会，但她不会出席开幕式，但会在奥运会期间的某个时候去当地支持鼓励法国运动员。
 
+欧洲事务部长还进一步强调，拒绝明确表示他不会参加关于外交抵制的辩论，强调 “外交必须是低调的”。解释说欧盟对于有于抵制问题也还在讨论中，但认为许多国家没有派人或没有让其国家元首出席开幕式是明智的决定。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
-近日，前辉瑞员工Karen Kingston表示，中共病毒疫苗的目的是成为基因编译的工具。CDC、FDA、NIH之前对此事完全知情，他们将对疫苗造成的不良后果不负任何责任。
+文字版原文：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-26.jpg)图片来源网络
+[法国扭捏表态不参加中共冬奥开幕式 – GNEWS](https://gnews.org/zh-hans/1935835/)
 
-Kingston说，中共病毒疫苗能否成功进行基因编译取决于很多不同的因素，包括是否在注射后迅速死亡。疫苗的另外一个目的是创造一个不是100%人类的新物种，向人体注入人工智能和计算机系统。中共病毒疫苗的意图还有杂交，将非人类物种细胞注入人体以实现基因整合。 据悉，一些大型生物技术公司曾利用从美国NIH的大额捐款在中共北京从事了生物武器的研究。而中共目前是订购基因、定制生物武器，制造疫苗等业务的最大客户之一，且这些企业大部分被中共勾兑，中国本土拥有各种大型制造设施。 最后Kingston感叹全球人类都被欺骗，各个当权者都利用谎言去逼迫人们接种中共病毒疫苗，这是一个精心策划的人类大屠杀计划。
-
-相关链接：
-
-[https://newstarget.com/2022-02-21-purpose-of-covid-vaccine-is-genetic-editing.html](https://newstarget.com/2022-02-21-purpose-of-covid-vaccine-is-genetic-editing.html)
-
-![This image has an empty alt attribute; its file name is Feb-55.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
-
-编辑/校对/发稿：Petite abeille
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is good-66.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-66.png)
-
-
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
 
 
  

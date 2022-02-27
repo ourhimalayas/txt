@@ -2,41 +2,14 @@
 ---
 
 
-## 德国向基辅交付 1000 枚反坦克武器和 500 枚毒刺导弹
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2071596/)
+## 新中国联邦对在乌中国同胞和美国友人展开紧急救援
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2071995/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+**撰稿：日本东京方舟农场 文顺**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/KN6ZT3OLMJPA5GNVABXUWSLRDI.jpg)
-
-
-图片来源：路透社
-
-总理奥拉夫·舒尔茨正在改变他对向乌克兰运送武器的立场：这位社民党政客宣布，他将从德国联邦国防军的库存中向基辅运送 1000 枚反坦克武器和 500 枚毒刺导弹。荷兰和爱沙尼亚获得出口许可证。联邦政府正在从德国联邦国防军库存中向乌克兰运送武器。
-
-舒尔茨在推特上写道：“俄罗斯的袭击标志着一个转折点。我们有责任尽最大努力支持乌克兰抵御普京的入侵军队。这就是我们向乌克兰的朋友提供 1000 枚反坦克武器和 500 枚毒刺导弹的原因。”
-
-
-
-> Germany has just announced the provision of anti-tank grenade launchers and stinger missiles to Ukraine. Keep it up, Chancellor [@OlafScholz](https://twitter.com/OlafScholz?ref_src=twsrc%5Etfw)! Anti-war coalition in action!
-> — Володимир Зеленський (@ZelenskyyUa) [February 26, 2022](https://twitter.com/ZelenskyyUa/status/1497639060063469571?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> The Russian invasion marks a turning point. It is our duty to support Ukraine to the best of our ability in defending against Putin's invading army. That is why we are delivering 1000 anti-tank weapons and 500 [#Stinger](https://twitter.com/hashtag/Stinger?src=hash&amp;ref_src=twsrc%5Etfw) missiles to our friends in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw).
-> — Bundeskanzler Olaf Scholz (@Bundeskanzler) [February 26, 2022](https://twitter.com/Bundeskanzler/status/1497638225200001029?ref_src=twsrc%5Etfw)
-
-
-
-此前，联邦政府已批准荷兰和爱沙尼亚向乌克兰出口火箭榴弹和火炮。联邦政府同意将 400 枚火箭榴弹从荷兰转移到乌克兰。
-
-此外，根据德新社的消息，爱沙尼亚已获准从东德旧有库存向乌克兰运送多枚火炮。德国曾经将武器交付给荷兰人。由于所谓的最终用途条款，该材料只有在柏林批准的情况下才能传递。
-
-🔗 [德国向基辅交付 1000 枚反坦克武器和 500 枚毒刺导弹](https://www.welt.de/politik/deutschland/article237174823/Deutschland-liefert-Panzerfaeuste-und-Stinger-Rakten-der-Bundeswehr-an-Kiew.html)
-
-编辑发表： Shuizhuyu
+2月26日，郭文贵先生在紧急直播中宣布，新中国联邦将与联合国救援组织一道，对在乌中国同胞和美国友人展开紧急救援，第一批救援将派出2驾运输机赴乌，后将陆续派出10驾飞机。本次行动由法制基金、法治社会发起，不涉及政治立场，无政治角色，并展开以中国同胞、美国友人为优先的无区别救助。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/捕获-3.png)
+信息来源：[https://www.gettr.com/streaming/px2p2d8aec](https://www.gettr.com/streaming/px2p2d8aec)
 
  
 
