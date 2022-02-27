@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/27/2022 5:39 AM (UTC)`
+
+2/26/2022 Miles Guo’s Urgent Livestream: The CCP has only rescued its family members and illegitimate children in Ukraine without taking any concrete action to withdraw or save any ordinary Chinese people. The priority of the New Federal State of China is to save the families of the citizens of the follow fighters of the New Federal State of China and the American friends by working with the UN relief organizations under the direction of the Rule of Law Foundation and Rule of Law Society, and we will help rescue as many of the expatriates from all other countries in Ukraine as we can.<br/><br/>2/26/2022 文贵紧急直播：中共只顾自己在乌克兰的家人和私生子，丝毫没有进行撤侨和任何救助普通华人的行动。新中国联邦将和联合国救援组织合作，在法治基金和法治社会的主导下优先救助新中国联邦战友的家人和美国朋友，并尽可能救助在乌克兰的所有国家的人。<br/>
+![img](https://media.gettr.com/group39/getter/2022/02/27/05/a0a03b93-9ce8-81fa-7ec5-86ffd0169a8e/out.jpg)
+
+---
+
+`@miles 2/27/2022 5:29 AM (UTC)`
+
+2/26/2022 Miles Guo’s Urgent Livestream: Everyone participating in the Ukrainian rescue operation of the NFSC must obey commands. <br/><br/>2/26/2022 文贵紧急直播：参与新中国联邦的乌克兰救援行动的所有人都要服从命令
+![img](https://media.gettr.com/group32/getter/2022/02/27/05/e3282653-0e81-c9fe-47e3-698a3c192b73/out.jpg)
+
+---
+
 `@miles 2/27/2022 3:10 AM (UTC)`
 
 2/26/2022 Miles Guo’s Urgent Livestream:  Palau is an ideal place for rescuing Taiwanese fellow fighters and compatriots; everybody must follow arrangements and comply with  instructions or rules of international rescue<br/><br/>2/26/2022 文贵紧急直播：帕劳是个非常好的营救台湾战友和同胞的一个基地；大家要听从统一安排，遵守国际营救规则
@@ -148,20 +162,6 @@ Mr. Bannon 100% agree that the Wall Street has provided the capital from the pen
 
 2/25/2022 Miles Guo: What are the two ultimate tactics for the UK to bring Russia to its knees? What is the meaning behind the US and European stock markets? The West will impose sanctions on the CCP, which will certainly be followed by military operations against the CCP. There will only be two financial systems in the future - the dollar system and the system of the New Federal State of China.<br/><br/>2/25/2022 文贵直播：英国干掉俄罗斯的两大绝招是什么？美欧股市的背后暗藏了什么玄机？西方将对中共的制裁并一定会有军事行动；未来世界的财富只有两家 - 美元系统和新中国联邦系统<br/>
 ![img](https://media.gettr.com/group43/getter/2022/02/26/07/ab2bcf83-6a5a-cc4e-97fc-7342e0edd698/out.jpg)
-
----
-
-`@miles 2/26/2022 5:45 AM (UTC)`
-
-2/25/2022 Miles Guo: The Himalaya Coin is going to take down the RMB! The Himalaya Exchange will attract all the money from the Chinese people. The CCP has created a huge panic by requiring the disclosure of the sources of funds of personal deposits and withdrawals of over ¥50,000 in cash, causing more money to flow into the Himalaya Exchange. The Himalaya Coin is backed by the people's support, has righteous intentions, good conscience, and a limitless future, and can circulate freely.<br/><br/>2/25/2022 文贵直播：喜币要的是人民币的命，喜联储将把中国人的钱都吸过来；中共要求存取5万以上现金必须登记来源的规定制造了恐慌，让更多钱流入喜联储；喜币是人心币、良心币、未来币、自由流通币<br/>
-![img](https://media.gettr.com/group14/getter/2022/02/26/05/4041743f-ca3d-5392-d526-66962061b9d2/out.jpg)
-
----
-
-`@miles 2/26/2022 4:23 AM (UTC)`
-
-2/25/2022 Miles Guo: Why does UBS prevent the case I brought from being admitted to court? The UBS case is absolutely a breakthrough in revealing the collusion between the evil Swamp in the West and the CCP. A deputy governor of the People's Bank of China attempted to persuade me not to sue UBS.<br/><br/>2/25/2022 文贵直播：为什么瑞银UBS百般阻挠不让上庭？UBS案绝对是打开西方黑暗沼泽地和中共勾兑的一道口子；中共人民银行的一位副行长竟充当说客劝说文贵不告UBS<br/>
-![img](https://media.gettr.com/group50/getter/2022/02/26/04/72294058-2a4b-5769-0baa-b9cba4d8279d/out.jpg)
 
 ---
 

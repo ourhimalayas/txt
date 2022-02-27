@@ -2,39 +2,20 @@
 ---
 
 
-## 爱尔兰宣布取消对乌克兰人的签证要求
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2072511/)
+## 秘翻在线：禁止俄罗斯银行使用SWIFT系统&#8230;能否成为&#8221;金融核武器&#8221;？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2072621/)
 
-**翻译：Little lamp
-编辑：文泓**
+撰稿: Eric Kim
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-60.jpg)图片来源：韩国联合新闻资料库
+据韩国联合新闻27日报道称，当地时间2月26日，美国与欧盟、英国和加拿大发表共同声明，宣布禁止俄罗斯一些特定银行使用环球同业银行金融电讯协会（SWIFT）国际结算系统，对俄罗斯进行经济制裁。
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+禁止使用SWIFT系统一直被比喻为”金融核武器”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2528.png)图片来源：Techjaun & 雅典娜设计组
+西方国家希望这一措施能使入侵乌克兰的俄罗斯立即遭受经济打击。只是欧洲等其他国家也可能受到影响，《华尔街日报》(WSJ)指出，该项措施有可能使全球金融体系有所削弱。
 
+信息来源:[https://news.naver.com/main/read.naver?mode=LS2D&mid=shm&sid1=104&sid2=232&oid=001&aid=0013015615](https://news.naver.com/main/read.naver?mode=LS2D&amp;mid=shm&amp;sid1=104&amp;sid2=232&amp;oid=001&amp;aid=0013015615)
 
-当地时间周五，乌克兰司法部在紧急命令中宣布，为显示欧盟的团结，乌克兰人前往爱尔兰的签证要求正在取消。
-
-爱尔兰司法部长海伦·麦肯蒂表示，她“对俄罗斯入侵乌克兰感到震惊”，并表示将发布紧急命令，协助在乌克兰的爱尔兰公民及其家人，他们最近几天面临俄罗斯军方的袭击。
-
-紧急措施同意也适用于所有希望在冲突期间前往爱尔兰的乌克兰人。
-
-据爱尔兰政府的旅游网站称，爱尔兰此前曾建议在乌克兰的爱尔兰公民和乌克兰人不要前往爱尔兰，基于他们监测与俄罗斯的持续紧张局势，官方的旅行建议是“就地避难”。
-
-在麦肯蒂部长发布新公告前一天更新的旅行咨询中，有意愿离开的乌克兰的公民被告知，只有在基于他们的“位置和主要情况”安全的情况下才能离开。 根据最新信息，司法部长麦肯蒂已宣布立即取消乌克兰和爱尔兰之间的签证要求。这将简化和支持爱尔兰公民的乌克兰家庭成员，以及居住在爱尔兰的乌克兰人的家庭成员的迅速退出战地。
-
-**参考链接：**
-1、[Ireland cancels visa requirements for Ukrainians](https://www.rt.com/news/550643-ireland-ukraine-visa-requirements/)
-2、[Irish Minister for Justice Helen McEntee announces immediate lifting of visa requirements between Ukraine and Ireland](https://visasandtravels.com/irish-minister-for-justice-helen-mcentee-announces-immediate-lifting-of-visa-requirements-between-ukraine-and-ireland/)
-
-*发布：玉米地守望者*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责编：Eric Kim
 
  
 
