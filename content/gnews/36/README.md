@@ -2,36 +2,45 @@
 ---
 
 
-## 新中国联邦G教育的三个目标
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2073595/)
+## 将俄罗斯排除在SWIFT系统之外的呼声渐涨或在未来几天做出决定
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2074306/)
 
-作者：首尔天池农场 追着曙光跑
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-27-at-9.40.59-PM.png)
-2月26日，郭文贵先生在G教育专题大直播中，强调G教育的三个目标：
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image003-21.jpg)
+**25**日，据路透社报道** **，** **加拿大、美国、英国和欧盟在周五表示，它们可能在新一轮制裁中采取行动，将俄罗斯排除在**SWIFT**全球银行间支付系统之外，以阻止俄罗斯入侵乌克兰。**
 
-- **松绑政治教育**：
-当前东西方教育体系，都存在一个悲哀的教育现象，即“政治教育”。G教育首先要解除全世界被政治绑架的教育，要创造一个正常的、适合人性发展的教育。
-- **松绑金钱教育**：
-全世界，包括最好的院校在内，教育都在向金钱低头。G教育必须松绑金钱对教育的绑架，不仅允许老师和学生在教育里图谋金钱，而且要彻底铲除。 G教育用强大的资金实力提供高质量的免费教育。
-- **教育是教人长大，辨别世界**：
-G教育提供利己利他的教育环境，让孩子学会自我认知，和辨别真假善恶的良知。为世界培养造福人类的无国界人才。
+**美国和欧洲官员说，未来几天在德国和意大利官员软化立场后，可能实施这一举措。这两个持保留意见的欧洲国家此前反对将俄罗斯踢出世界主要国际支付网络。**
+
+**这将标志着西方大国本周对俄罗斯实施的协同制裁进一步升级，包括周五针对俄罗斯总统普京和外交部长拉夫罗夫的罕见制裁。**
+
+**欧盟外交政策负责人博雷利说，关于**SWIFT**的决定可能在**”**未来几天**”**做出。**
+
+**另一位未获授权公开发言的美国官员说，如果乌克兰首都基辅沦陷，预计西方会有进一步的制裁。西方官员现在认为沦陷可能在几天内发生。
+
+[【援引连结】](https://cn.reuters.com/article/west-swift-us-russia-sanction-0226-idCNKBS2KV079)
 
 
-参考链接：[2022年2月26日 《文贵大直播—GEDU专场》](https://gtv.org/broadcast/watch/621a28c808ba8a07b1a3e95c)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
+**推出问题，敲出真相，爆料在路上！**
 
-编辑：文真
-总编：Zion文恩
-校正/发稿：我不在这里
+**请关注和订阅我们的以下账号：**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

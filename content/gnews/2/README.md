@@ -2,28 +2,35 @@
 ---
 
 
-## 全球各国民众上街声援乌克兰 谴责俄罗斯入侵行径
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2075488/)
+## 有声|疫苗次生灾害加剧，美小型飞机坠落事故频发
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2075609/)
 
-**撰稿：日本东京方舟农场  海星**
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+近日据外媒报道，某外媒网站将近期在美发生的一系列小型飞机坠毁的新闻报道或片段编辑成视频，用短短的4分钟的视频记录了数十个惨烈时刻和死亡案例。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-25-3.jpg)图片来源网络
+年初据路透社报道，同样的， 对于大型商务飞机而言，2020年尽管全球航空运输量因疫情锐减了42%，但因大型商业飞机坠毁的死亡人数却增加了。 我们在震惊痛心之余，这样的结果却更引人质疑：为什么自推打疫苗以来，飞行作为安全性最高的出行方式，机毁人亡事故却屡见不鲜？答案只有一个，那就是郭文贵先生早在几个月前预警的因疫苗副作用而产生的次生灾害已逐一显现出来，在交通运输系统，由于疫苗副作用可能导致驾驶员身体出现的突发状况将成为广大民众出行安全的一大隐患。
 
-2月27日，全球各国民众上街游行声援乌克兰，并谴责俄罗斯的入侵行径。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-411.jpg)（图片来源：欧新社）
-据《自由时报》报导，针对俄罗斯正在侵略乌克兰的暴行，瑞士、芬兰、西班牙、英国等各国民众纷纷上街游行声援乌克兰，呼吁当地政府尽快制止俄罗斯的入侵行径，结束这场战争。
 
-报导指出，瑞士有数千人聚集在联合国日內瓦总部前方的巨型木雕「断掉的三角椅」（Broken Chair）旁边，部分民众身披乌克兰的黄蓝色国旗，要求瑞士当局对俄罗斯采取更为严厉的制裁措施，而非采取“中立”态度。
 
-不仅有瑞士民众上街示威游行，芬兰首都赫尔辛基（Helsinki）也有上千民众聚集，高举着“俄罗斯滚！普京下台！（Russia out, down with Putin!）”的标语。此外，意大利罗马、西班牙巴塞罗那、英国伦敦以及法国巴黎等地皆出现了抗议人潮。
+文字版原文：[疫苗次生灾害加剧，美小型飞机坠落事故频发](https://gnews.org/zh-hans/2066171/)
 
-稍早前，针对俄罗斯日趋残暴的侵略行为，欧盟委员会、法国、德国、意大利、英国、加拿大和美国共同发布了一份联合声明，承诺在未来几天内将对俄罗斯实施金融制裁，从SWIFT系统中剔除其部分银行。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-参考链接：
-1.[https://news.ltn.com.tw/news/world/breakingnews/3842646](https://news.ltn.com.tw/news/world/breakingnews/3842646)
-2.[https://gnews.org/zh-hans/2072270/](https://gnews.org/zh-hans/2072270/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-素材采编：海星
-编辑：青城道姑
-发布：爱放飞
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

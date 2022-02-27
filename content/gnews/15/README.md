@@ -2,23 +2,44 @@
 ---
 
 
-## 妓女是卖淫者还是性工作从事者？
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2075129/)
+## 突尼斯茉莉花革命始末
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2075515/)
 
-#### **加拿大温哥华扬帆农场蓝枫法律**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-27-at-21.31.12.png)
-**在中国，人们把妓女的工作叫做卖淫，但在西方社会学界和各大NGO组织倾向于把她们叫成一个性工作者，它其实是一个为了生计而通过性服务来换成物质的一个职业，所以性工作者不应该被污名化和歧视化，因为大家也知道没有人会把这种职业看成是一个很美好的事情，更没有人天生就想把它当成一个工作。**
+作者：纽约香草山-静言
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2010年末至2011年初，北非突尼斯发生了一场反政府示威运动，導致突国政權倒台，此次运动因茉莉花是其國花而被称茉莉花革命。
 
-** 有一句名话说：We don’t do sex work because we are poor. We do sex work because  to end our poverty.（我们从事性工作的原因不是穷，是因为我们想改变贫穷的状况。）**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-5.jpeg)
 
-**可见，性工作者和贫穷息息相关，但是，他们做这个事情是在为摆脱贫穷而付出努力。 不论是在经济上还是生理上，他们都是弱势群体，他们更容易受到各类犯罪和性传播疾病的袭击，并且心灵容易受创伤，同时社会地位也会非常低下，尤其是在中共国和俄罗斯对女性的歧视，所以大赦国际和WHO都推荐用性产业的去犯罪化来增加性工作者保护性。**
+2010年12月17日，一名26歲青年穆罕默德·布瓦吉吉自焚，觸發境内大规模街頭示威游行，及争取民主活動。導致時任總統本·阿里政權倒台，成為阿拉伯國家中第一場因人民起義導致推翻現政權的革命。對北部非洲及中东產生了極大的影響，其示威抗議的模式亦受一些國家的民眾所效法，如阿爾及利亞、埃及等，导致反政府的示威浪潮在一个月内席卷整个北部非洲与中東地區。突尼斯此後成立過渡政府，並成為阿拉伯之春中，唯一達成和平過渡完成民主轉型的國家。
 
-直播视频：
+本·阿里于1987年發動同樣稱作「茉莉花革命」的不流血政變而上台。統治突尼斯23年，貪污腐敗，警察治國。每40個國民就有一個警察，當中三分之二是便衣，民众連私下論政也不敢。经济尤其旅游业发展下滑，失业率居高不下，尤其年轻人达百分之52失业。通貨膨脹，民众生活极度困难。
 
-[第四十一期 初探性产业及法律规范](https://gtv.org/video/id=61f5d81881ce0a3ac2a15dcb)
+还有一个原因是互联网的力量。維基解密揭露，本·阿里家族及其兄弟手足與掌管該國經濟的一名黑道份子勾結，第一夫人勒伊拉泽魯·本·阿里，靠兴建貴族學校賺取利益。這起网络揭露事件也成為骚乱爆發的重要导火索。
 
-编辑/发文：蓝枫法律栏目
+独裁者统治下的百姓光景何其相似，它的结局也应该一样。茉莉花革命一直在影响着其他受独裁统治欺压下的民众，起来推翻独裁者。
 
+茉莉花革命创造出不流血，和平推翻独裁专制政体的一种平民民主运动方式。中共出于对其影响力的惧怕，将“茉莉花”设定为禁词，在中共网络和媒体平台上广泛屏蔽，由此开启了中共国所谓的“敏感词”严酷管控时代。
+
+参考链接：
+1. [茉莉花革命](https://zh.wikipedia.org/zh-hant/茉莉花革命)
+2. **[茉莉花革命　見證人民力量](https://www.mdnkids.com/nie/nie_indicate/unit7/W-1000228-15/W-1000228-15.htm)**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Zion文恩
+编辑：Ivy001
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

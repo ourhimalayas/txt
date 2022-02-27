@@ -2,42 +2,24 @@
 ---
 
 
-## 北京冬奥会速滑冠军抗议中共国侵犯人权行为
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2075455/)
+## 樱花FM|日本队启程前往北京 创纪录的124人参加海外冬奥会
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2075584/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据《纽约时报》报道，瑞典速滑运动员范德波尔，将他在北京冬奥会万米速滑项目上赢得的金牌，授予一名女子安吉拉，以纪念她的父亲。据悉，安吉拉的父亲因出版批评中共政府侵犯人权行为的书而被中共当局逮捕。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-8-5.png)
+据日媒ABEMA TIMES报道，距离北京冬季奥运会开幕还有5天，日本选手团今日早上从羽田机场出发前往北京。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-11.jpeg)
+日本选手团的着装是海军蓝西装外套，系着红色领带，左胸上闪耀着日本队的徽章。这件西装外套将用于开幕式和闭幕式，此次北京“纳粹奥运会”的开幕式将于2月4日举行，整个冬奥会将历时17天至2月20日结束。
 
-安吉拉的父亲桂敏海是一位出生于中共国的瑞典出版商，在出版批评中国政府的书籍后，于2015年从泰国的家中失踪。当他再次出现在中共国广播中，声称他由于几年前的车祸自愿回国服刑10年。
+加上新项目跳台滑雪混和组，15个竞技种类共109个项目，为冬季赛事历史上最多。冰壶等一些比赛将于2月2日开始。本次北京冬奥会的运动员出场人数将达到124人，是国外冬奥会参赛的最高人数。女子冰球队已经进入奥运村，今天约有80名球员离开日本。
 
-在北京奥运会开幕前，范德波尔读到安吉拉及其有关情况，他对持有瑞典公民身份的人因公开反对中共政府而被绑架和监禁感到惊讶。
+文字版原文：
 
-据福克斯新闻报道，冬奥会后，范德波尔在一家瑞典报纸上批评道，在一个侵犯人权的国家举办奥运会是非常不负责任的。
+[日本队启程前往北京 创纪录的124人参加海外冬奥会 – GNEWS](https://gnews.org/zh-hans/1932697/)
 
-据大赦国际报道，范德波尔还认为，他和他的奥运同胞被中共政府用作政治武器来使其政权合法化。
-
-据悉，这位25岁的运动员一直公开倡导释放拥有瑞典公民身份的桂敏海。
-
-参考链接：
-1.[https://www.google.com/amp/s/www.nytimes.com/2022/02/25/world/asia/nils-van-der-poel-olympic-protest.amp.html](https://www.google.com/amp/s/www.nytimes.com/2022/02/25/world/asia/nils-van-der-poel-olympic-protest.amp.html)
-2. [Speed skater gives away his Beijing Winter Olympics gold medal to protest China’s human rights violations](https://www.yahoo.com/news/speed-skater-gives-away-beijing-230354471.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Zion文恩
-编辑：Zion文恩
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
 
 
  
