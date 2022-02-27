@@ -2,34 +2,30 @@
 ---
 
 
-## UBS案揭示西方黑暗沼泽地与中共勾兑的卑略行径
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2073594/)
+## 俄乌小麦出口占全球25% 战争令粮价飙涨
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2073593/)
 
-作者：银河系农场 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月25日，郭文贵先生在大直播中再次讲述，诉UBS案经历的艰难曲折的过程。
+撰稿：日本东京方舟农场 北极
 
-郭先生的股票以极不合理的价格被卖掉，UBS几乎在同时顺利拿到了中共的第一个外国银行独立牌照。以“蓝金黄”手段，横行霸道世界的中共唯独对USB低头。这样超乎常理的交易背后必定是无法告人的阴谋。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-27-at-9.15.12-PM.png)
-郭先生称，中共国锁链女事件背后涉及无数个共产党官员及其家人，各种肮脏交易超出常人认知。UBS案正如锁链女事件一样，一旦开始调查，中共和西方邪恶势力深层勾结的细节都会水落石出。世人将会看清原来这些披着神秘伪装的银行，内里腐败堕落。不仅控制全人类的财富，还做着邪恶不可告人的各种交易。此事若披露将是西方黑暗势力不可承受之重。UBS案是打开共产党和西方黑暗沼泽地勾兑的一扇大门。
+援引2021年美国农业部统计数据，俄罗斯和乌克兰两国小麦出口占据全球总出口量的25%，如今俄乌战争导致粮价飙涨，对发展中国家的粮食安全造成严重威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/111-5.png)俄罗斯和乌克兰是全球出口小麦的主要国家。（图片来自大纪元）
+本周早些时，芝加哥期货交易所（Chicago Board of Trade）的小麦期货飙升6%，至每蒲式耳（Bushel）约9.34美元，为九年来的最高水平。今年以来，小麦期货已大涨逾10%。
 
-因此，UBS设置了重重阻碍企图阻止郭先生诉讼，不允许不可控的法院接受此案。还派遣不同人士游说郭先生，并开出巨大的交易作为诱惑，全部被郭先生拒绝。天行有常，正如郭先生所说，成功起诉UBS案，一切都是刚刚开始。
+乌克兰小麦大约35%在乌克兰东部种植，该地区位于乌克兰首都基辅与俄罗斯边境分离主义地区之间的土地上，最容易受到俄罗斯入侵的破坏。
 
-参考链接：[2/25/2022 Miles Guo: Why does UBS prevent the case I brought from being admitted to court?](https://gettr.com/post/pwx2li0fa6)
+据美国农业研究员亚历克斯·史密斯（Alex Smith）预测，乌克兰在过去20年已经成为世界主要粮仓之一，尤其对发展中国家是关键的进口货，如今俄乌冲突对这些国家的粮食安全造成严重威胁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
+据中共国海关数据，2021年12月中国70%的玉米进口来自乌克兰，已取代美国成为中共国最大的玉米供应国。此外，中共国2021年64%的葵花籽油进口量也来自乌克兰。
 
-编辑：文真
-总编：Zion文恩
-校正/发稿：我不在这里
+据一家农业市场分析公司（SovEcon）的总经理安德烈·西佐夫（Andrey Sizov）预测，以2014年俄罗斯吞并克里米亚所导致的全球粮食价格飙升为例，单是小麦价格就上涨约20%，如今看来乌俄战争爆发只会让全球粮食价格飙高的情况更加恶化。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+参考链接：
+[https://www.epochtimes.com/gb/22/2/25/n13605894.htm](https://www.epochtimes.com/gb/22/2/25/n13605894.htm)
+
+素材采编：北极
+编辑：老孙
+发布：Linda
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

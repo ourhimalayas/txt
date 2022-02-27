@@ -2,30 +2,36 @@
 ---
 
 
-## 俄乌小麦出口占全球25% 战争令粮价飙涨
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2073593/)
+## G教育：用教育改变社会的不平等现象
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2073591/)
 
-撰稿：日本东京方舟农场 北极
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月26日，郭文贵先生在G教育首次专场大直播中，谈到他认为G教育该达成的目的在于，利用教育，消除中共国、乃至整个世界的社会不平等。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-27-at-9.50.56-PM.png)
+郭先生指出，教育并不是中共所宣称的“社会发展的基石”，而是区分人和畜生的工具。好的教育不是一味的灌输知识，而是拓展眼界、激发学生探索的兴趣。好的教育要为解决社会问题提供帮助。
 
-援引2021年美国农业部统计数据，俄罗斯和乌克兰两国小麦出口占据全球总出口量的25%，如今俄乌战争导致粮价飙涨，对发展中国家的粮食安全造成严重威胁。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/111-5.png)俄罗斯和乌克兰是全球出口小麦的主要国家。（图片来自大纪元）
-本周早些时，芝加哥期货交易所（Chicago Board of Trade）的小麦期货飙升6%，至每蒲式耳（Bushel）约9.34美元，为九年来的最高水平。今年以来，小麦期货已大涨逾10%。
+郭先生举例称，读书不如去参观博物馆；在课堂里被灌输书本知识，不如去现在的乌克兰见识在那里发生的事。
 
-乌克兰小麦大约35%在乌克兰东部种植，该地区位于乌克兰首都基辅与俄罗斯边境分离主义地区之间的土地上，最容易受到俄罗斯入侵的破坏。
+郭先生特别强调，中共国的教育是失败的，因为它非但没有解决社会问题，反而加剧了贫富悬殊，造成社会阶级等级林立的不公现状，最终造成了中共教育体制下，反社会反人格的邪教模式。
 
-据美国农业研究员亚历克斯·史密斯（Alex Smith）预测，乌克兰在过去20年已经成为世界主要粮仓之一，尤其对发展中国家是关键的进口货，如今俄乌冲突对这些国家的粮食安全造成严重威胁。
+新中国联邦的G教育，就是要为中共国、甚至全世界，消除包括贫富差距在内，各类社会不平等问题，为全世界提供人才和先行者。
 
-据中共国海关数据，2021年12月中国70%的玉米进口来自乌克兰，已取代美国成为中共国最大的玉米供应国。此外，中共国2021年64%的葵花籽油进口量也来自乌克兰。
+参考链接：[2022年2月26日 《文贵大直播—GEDU专场》](https://gtv.org/broadcast/watch/621a28c808ba8a07b1a3e95c)
 
-据一家农业市场分析公司（SovEcon）的总经理安德烈·西佐夫（Andrey Sizov）预测，以2014年俄罗斯吞并克里米亚所导致的全球粮食价格飙升为例，单是小麦价格就上涨约20%，如今看来乌俄战争爆发只会让全球粮食价格飙高的情况更加恶化。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
-参考链接：
-[https://www.epochtimes.com/gb/22/2/25/n13605894.htm](https://www.epochtimes.com/gb/22/2/25/n13605894.htm)
+编辑：文真
+总编：Zion文恩
+校正/发稿：我不在这里
 
-素材采编：北极
-编辑：老孙
-发布：Linda
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

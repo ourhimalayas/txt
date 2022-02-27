@@ -2,22 +2,20 @@
 ---
 
 
-## 新中国联邦G教育的三个目标
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2073595/)
+## UBS案揭示西方黑暗沼泽地与中共勾兑的卑略行径
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2073594/)
 
-作者：首尔天池农场 追着曙光跑
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-27-at-9.40.59-PM.png)
-2月26日，郭文贵先生在G教育专题大直播中，强调G教育的三个目标：
+作者：银河系农场 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月25日，郭文贵先生在大直播中再次讲述，诉UBS案经历的艰难曲折的过程。
 
-- **松绑政治教育**：
-当前东西方教育体系，都存在一个悲哀的教育现象，即“政治教育”。G教育首先要解除全世界被政治绑架的教育，要创造一个正常的、适合人性发展的教育。
-- **松绑金钱教育**：
-全世界，包括最好的院校在内，教育都在向金钱低头。G教育必须松绑金钱对教育的绑架，不仅允许老师和学生在教育里图谋金钱，而且要彻底铲除。 G教育用强大的资金实力提供高质量的免费教育。
-- **教育是教人长大，辨别世界**：
-G教育提供利己利他的教育环境，让孩子学会自我认知，和辨别真假善恶的良知。为世界培养造福人类的无国界人才。
+郭先生的股票以极不合理的价格被卖掉，UBS几乎在同时顺利拿到了中共的第一个外国银行独立牌照。以“蓝金黄”手段，横行霸道世界的中共唯独对USB低头。这样超乎常理的交易背后必定是无法告人的阴谋。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-27-at-9.15.12-PM.png)
+郭先生称，中共国锁链女事件背后涉及无数个共产党官员及其家人，各种肮脏交易超出常人认知。UBS案正如锁链女事件一样，一旦开始调查，中共和西方邪恶势力深层勾结的细节都会水落石出。世人将会看清原来这些披着神秘伪装的银行，内里腐败堕落。不仅控制全人类的财富，还做着邪恶不可告人的各种交易。此事若披露将是西方黑暗势力不可承受之重。UBS案是打开共产党和西方黑暗沼泽地勾兑的一扇大门。
 
+因此，UBS设置了重重阻碍企图阻止郭先生诉讼，不允许不可控的法院接受此案。还派遣不同人士游说郭先生，并开出巨大的交易作为诱惑，全部被郭先生拒绝。天行有常，正如郭先生所说，成功起诉UBS案，一切都是刚刚开始。
 
-参考链接：[2022年2月26日 《文贵大直播—GEDU专场》](https://gtv.org/broadcast/watch/621a28c808ba8a07b1a3e95c)
+参考链接：[2/25/2022 Miles Guo: Why does UBS prevent the case I brought from being admitted to court?](https://gettr.com/post/pwx2li0fa6)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
