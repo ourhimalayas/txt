@@ -15,98 +15,98 @@
 
 ---
 
-### [有声|班农先生呼吁中国卡车司机为自由而战](/content/gnews/1/README.md)
+### [有声|25日英美加表示继续加大对俄罗斯的制裁力度](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [明是非 守道义](/content/gnews/2/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [有声|灭共者之郭氏情报站（31）2022/02/26 文贵大直播-EDU专场](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [俄罗斯入侵乌克兰后，欧足联将欧洲冠军联赛决赛从圣彼德堡移至巴黎](/content/gnews/4/README.md)
+### [在乌克兰蛇岛的士兵有可能还活着](/content/gnews/2/README.md)
  ` Itana`
 
-### [埃隆-马斯克称：SpaceX 星链 卫星在乌克兰激活](/content/gnews/5/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [世界会看到我们新中国联邦的力量](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [乌克兰最强大的武器是其总统](/content/gnews/7/README.md)
- ` Shuizhuyu`
-
-### [文贵爆料 2.27：俄乌战争——普京一个人的战争](/content/gnews/8/README.md)
- ` 秘密翻译组-原创组`
-
-### [三年前扮演总统的喜剧演员, 今日领军对抗俄军](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [MV版Hcoin To the Moon上线80天第20次位列匈牙利iTunes热门MV榜首](/content/gnews/10/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [有声|灭共者之郭氏情报站（30）2022/02/25 文贵大直播](/content/gnews/11/README.md)
+### [有声|蓬佩奥计划近期访台，再次挑动中共神经](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [新中国联邦紧急启动人道救援行动](/content/gnews/12/README.md)
+### [俄罗斯和乌克兰同意谈判](/content/gnews/4/README.md)
+ ` Shuizhuyu`
+
+### [有声|班农先生呼吁中国卡车司机为自由而战](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [2022年2月27日大直播速记精萃](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [明是非 守道义](/content/gnews/7/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [有声|灭共者之郭氏情报站（31）2022/02/26 文贵大直播-EDU专场](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [俄罗斯入侵乌克兰后，欧足联将欧洲冠军联赛决赛从圣彼德堡移至巴黎](/content/gnews/9/README.md)
+ ` Itana`
+
+### [埃隆-马斯克称：SpaceX 星链 卫星在乌克兰激活](/content/gnews/10/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [世界会看到我们新中国联邦的力量](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [乌克兰最强大的武器是其总统](/content/gnews/12/README.md)
+ ` Shuizhuyu`
+
+### [文贵爆料 2.27：俄乌战争——普京一个人的战争](/content/gnews/13/README.md)
+ ` 秘密翻译组-原创组`
+
+### [三年前扮演总统的喜剧演员, 今日领军对抗俄军](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声|灭共者之郭氏情报站（30）2022/02/25 文贵大直播](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [新中国联邦紧急启动人道救援行动](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [2/28/2022日本快讯：因俄罗斯被排除出SWIFT将导致日本石油和小麦价格继续上涨；乐天公司董事长兼总裁三谷浩史向乌克兰捐赠10亿日元](/content/gnews/13/README.md)
+### [2/28/2022日本快讯：因俄罗斯被排除出SWIFT将导致日本石油和小麦价格继续上涨；乐天公司董事长兼总裁三谷浩史向乌克兰捐赠10亿日元](/content/gnews/17/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [2022年2月27日，全球中共病毒疫情情况汇总](/content/gnews/14/README.md)
+### [2022年2月27日，全球中共病毒疫情情况汇总](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [伊隆.马斯克在乌克兰启动星联互联网](/content/gnews/15/README.md)
+### [伊隆.马斯克在乌克兰启动星联互联网](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [喜悦辣评](/content/gnews/16/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [樱花FM|秦刚就新疆种族灭绝问题的狡辩真是无耻至极](/content/gnews/17/README.md)
+### [樱花FM|秦刚就新疆种族灭绝问题的狡辩真是无耻至极](/content/gnews/20/README.md)
  ` 樱花FM`
 
-### [樱花FM|美国和欧盟就能源安全问题发表联合声明](/content/gnews/18/README.md)
+### [樱花FM|马克龙与普京就乌克兰局势通电话](/content/gnews/21/README.md)
  ` 樱花FM`
 
-### [樱花FM|中共国凑数自嗨冬奥史上最大代表团](/content/gnews/19/README.md)
+### [樱花FM|台湾宣布，其代表团不参加北京冬奥的会开幕和闭幕式](/content/gnews/22/README.md)
  ` 樱花FM`
 
-### [樱花FM|马克龙与普京就乌克兰局势通电话](/content/gnews/20/README.md)
- ` 樱花FM`
-
-### [樱花FM|台湾宣布，其代表团不参加北京冬奥的会开幕和闭幕式](/content/gnews/21/README.md)
- ` 樱花FM`
-
-### [文贵先生直播精要-GEDU专场 2022/02/26](/content/gnews/22/README.md)
+### [文贵先生直播精要-GEDU专场 2022/02/26](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国称支持入侵乌克兰的俄罗斯并支持普京声称的已准备好进行谈判](/content/gnews/23/README.md)
+### [中共国称支持入侵乌克兰的俄罗斯并支持普京声称的已准备好进行谈判](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [完全接种疫苗的人正在脱落石墨烯，并感染未接种疫苗的人](/content/gnews/24/README.md)
+### [完全接种疫苗的人正在脱落石墨烯，并感染未接种疫苗的人](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [要闻（27/02/2022）：普京让俄罗斯核力量进入警戒状态](/content/gnews/25/README.md)
+### [要闻（27/02/2022）：普京让俄罗斯核力量进入警戒状态](/content/gnews/26/README.md)
  ` mayflowertranslate`
 
-### [樱花FM|全球243个非政府组织呼吁各国政府外交抵制北京冬奥会](/content/gnews/26/README.md)
+### [樱花FM|全球243个非政府组织呼吁各国政府外交抵制北京冬奥会](/content/gnews/27/README.md)
  ` 樱花FM`
 
-### [2022/02/23 墙内世界](/content/gnews/27/README.md)
+### [2022/02/23 墙内世界](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022/02/25 墙内世界](/content/gnews/28/README.md)
+### [2022/02/25 墙内世界](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【秘翻在线】乌克兰百姓自制燃烧瓶应对俄军入侵](/content/gnews/29/README.md)
+### [【秘翻在线】乌克兰百姓自制燃烧瓶应对俄军入侵](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [世界粮仓中的战争让粮食大买家开始寻找替代供应](/content/gnews/30/README.md)
+### [世界粮仓中的战争让粮食大买家开始寻找替代供应](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [《新中国联邦》一人一票投票法(三)](/content/gnews/31/README.md)
- ` 纽约香草山MOS03`
 
 ### [俄乌战争｜普京亮出核武器选项 泽连斯基让步于白俄边境谈判](/content/gnews/32/README.md)
  ` 關注組`

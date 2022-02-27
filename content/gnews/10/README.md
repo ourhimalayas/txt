@@ -2,36 +2,24 @@
 ---
 
 
-## MV版Hcoin To the Moon上线80天第20次位列匈牙利iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2076602/)
+## 埃隆-马斯克称：SpaceX 星链 卫星在乌克兰激活
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2076722/)
 
-2/27/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线80天第20次位列匈牙利iTunes热门音乐视频榜榜首，第32次位列前三名
+供稿：北城老王
+编辑发稿：am夏天
+德国纽伦堡正义农场
 
-* * *
+新闻来源：
 
-[【PDF 下载】Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+[https://www.newsbreak.com/news/2526962260332/elon-musk-says-spacex-s-starlink-satellites-active-over-ukraine-after-request-from-embattled-country-s-leaders?noAds=1&\_f=app\_share&s=i16](https://www.newsbreak.com/news/2526962260332/elon-musk-says-spacex-s-starlink-satellites-active-over-ukraine-after-request-from-embattled-country-s-leaders?noAds=1&amp;_f=app_share&amp;s=i16)
 
-* * *
+翻译内容精华：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
-
-
-[【PDF 下载】Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+普京的入侵导致乌克兰部分地区没有互联网，而SpaceX已经发射了数千颗通信卫星，将互联网带到世界宽带不能触及的地区。
+“Starlink服务现在在乌克兰很活跃。更多的终端正在路上，”埃隆-马斯克周六在推特上说。
+而此举是在乌克兰副总理费多罗夫请求马斯克先生帮助他们之后发生的，同时他还呼吁Facebook、Instagram、YouTube、Netflix和谷歌封锁俄罗斯账户，以回应入侵。
+一个企业家的善良之举，有可能改变一场战争的进程，让那些受到不公的人民发出自己的声音，得以让世人知晓更多战争的真相与残酷。希望更多有良知和正义的企业家加入到这个队伍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
