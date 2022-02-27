@@ -2,28 +2,39 @@
 ---
 
 
-## 所有已经遭到制裁的俄罗斯银行均将被剔除出SWIFT系统
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2073078/)
+## 确诊人数激增，香港将实行大规模核酸检测
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2073127/)
 
-编译：玫瑰新闻组
+作者：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-77.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2273.jpeg) (路透社)
 
-2022年2月27日, 据俄罗斯塔斯社及卫星通讯社报道，德国联邦政府新闻处在26日晚间西方各国谈判结束后发布消息，所有已经遭到西方国家制裁的俄罗斯银行均将被剔除出环球同业银行金融电讯协会（SWIFT）系统。此外，还计划冻结俄罗斯央行的资产。
-加强制裁的决定是由美国、法国、加拿大、意大利、英国、德国和欧盟委员会做出的。
-西方国家还决定限制俄罗斯央行通过国际金融交易支持卢布汇率的机会。
-欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）表示，俄罗斯央行的交易将遭到冻结。
-俄罗斯富人通过投资换取欧洲公民身份的机会也将被取消。
-冯德莱恩说，欧盟和伙伴们还打算剥夺俄罗斯“寡头们”动用其国际金融资产的机会。
-德国财政部补充说，在俄罗斯拒绝终止在乌克兰的特别行动的情况下，可能会追加额外的制裁措施。
+据路透社报道，香港特首林郑月娥22日表示，将从 3 月中旬开始，对香港 740 万居民实施中共病毒强制检测。 她说，严格的冠状病毒规定将一直实施到 4 月中旬，学校将在夏季提前放假，并在 8 月开始新的学年，现在确诊病例的激增已经使医疗保健系统不堪重负。
 
-新闻链接：
-1. [Western nations agree to disconnect Russian banks from SWIFT](https://tass.com/economy/1412191)
+林正月娥表示在强制测试计划下，居民将需要进行三次测试，每天的测试能力达到一百万。她说，包括校园在内的场所可用于检测和隔离，她还透露中共将在香港建造一座临时医院。这些措施是香港在中共病毒爆发两年后实施的最严厉的措施。
 
-2. [所有已經遭到制裁的俄羅斯銀行均將被剔除出SWIFT系統](https://big5.sputniknews.cn/20220227/1039595101.html)
+香港卫生当局报告了 6,211 例新病例，32 人死亡，另有 9,369 例在初步检测中呈阳性。他们说，这些数据并不能反映全部的真实情况。 香港大学的研究人员预测，到 3 月下旬每天的死亡人数可能达到接近 100 人的峰值，到 5 月中旬，累计死亡人数可能上升到 3,206 人左右。感染人数可能达到每天 180,000 人的高峰。
 
-**审核校对：玫瑰天空
-上传排版：V在途中**
+该研究预计，7天隔离的感染人数可能达到60万以上，而7天隔离的密切接触者人数可能达到180万，恐将导致社会严重混乱。
+
+
+
+参考链接：
+
+[https://www.reuters.com/world/asia-pacific/hong-kong-finds-covid-samples-packaging-pork-beef-imports-2022-02-22/](https://www.reuters.com/world/asia-pacific/hong-kong-finds-covid-samples-packaging-pork-beef-imports-2022-02-22/)
+
+编辑/校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-43.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0-9.png)
+
 
  
 
