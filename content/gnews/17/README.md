@@ -2,36 +2,31 @@
 ---
 
 
-## 中共攻台的三个方案
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2073197/)
+## 中共国在乌留学生哭诉：请墙内“粉红”嘴下积德
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2073306/)
 
-撰稿: 香草山新世界的一员
+撰稿：纽约香草山农场- Noemi
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
-在2月25日的大直播中，郭文贵先生爆料称，习近平在普京攻乌克兰之前，已把潜水艇部队布置在了台海周边。中共攻台可能有三个方案。
+当地时间2月26日凌晨，一位身处基辅市的中共国籍留学生在微博上哭诉称：由于墙内以下所谓爱国者对于乌克兰战争和当地女性的有害言论，目前乌克兰国内已经激起了强烈的排华浪潮，当地华人都不得不隐藏起自己的中共国民身份以求自保。该帖目前已获得将近85万次点赞。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2546.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2549.png)微博截图
 
-第一，模仿乌克兰的模式，实行普京战略。让人大和政协的台湾所谓代表提出议案，宣称台湾面临台独危机，台独欲借邪恶势力分裂台湾，破坏中国领土完整，请求大陆出兵支援。然后中共可以“名正言顺”地出兵平乱。
+据了解，自俄罗斯发起对乌克兰的全面战争以来，中共党媒就一直引导墙内舆论站在发起战争的俄罗斯一方，并不断鼓吹中共的“大一统”论调，致使很多墙内网民都为俄罗斯的侵略行为拍手叫好，并以胜利者的姿态调侃起乌克兰众多的无辜女性。
 
-第二，围而不打，把所有的台岛孤立化。同样声称有台独分子，或者人为制造动乱，然后派出所谓维和部队，对台湾围而不打，破坏台湾的贸易，等全球经济崩溃时，让台湾不攻自破。
+同时，中共国政府并未对乌克兰华人真正实施他们所宣传的营救，相反还加剧了当地的排华情绪。有在乌华人在抖音上发帖称，一切乌克兰撤侨的消息都是假新闻。而中共国外交部日前还曾鼓励乌克兰华人在家中、车尾张贴中共国旗，以避免被俄军误伤，这一举动更激起了乌克兰人民的反华情绪。目前，中共外交部已经改口称希望当地华人不要随意亮明中共国民身份。
 
-第三，短时间内， 迅速占岛。
-
-无论采取何种方案，这一次台湾的事情一定会有个了结，或者中共灭亡，或者台湾灭亡。
-
-新闻链接: [2022年2月25日 文贵大直播](https://gtv.org/video/id=6218d34708ba8a07b1a341e7)
+新闻链接: [中共国在乌留学生哭诉：请国内五毛嘴下积德](https://www.gettr.com/post/pww1x8fb07)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5-1-2.png)
 
 编辑/总编: 飞虹
-
-校正/发稿：浪迹天涯
+校正/发稿：浪迹天
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
  
