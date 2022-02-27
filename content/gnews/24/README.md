@@ -2,31 +2,35 @@
 ---
 
 
-## 樱花FM|又一名人被中共病毒？中共病毒疫苗？夺走了生命
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2075434/)
+## 俄乌最新消息：普京下令俄罗斯核威慑力量进入高度戒备
+` 军情启示录` [轉載自GNews](https://gnews.org/zh-hans/2075478/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-5-6.png)
-1月30日CNN消息：曾出演热门美剧《海军陆战队：洛杉矶-卧底》的演员巴蒂克-曼加萨里安因中共病毒(新冠病毒Covid-19)感染引起并发症而死亡，享年78岁。他的经纪人透露了这一消息，并说他已经接种了中共病毒疫苗。
+翻译：AWAC (新西兰伊甸农场)
 
-作为一名出色的演员，巴蒂克-曼加萨里安先生曾出演《海军罪案调查处》、电视剧《超感警探》、《拉里的中年危机》。他还主持过自己的节目，在电台和电视台播出。
+发布：AWAC (新西兰伊甸农场)
 
-最近，他还与女演员莉莉-汤姆林（Lily Tomlin）和简-方达（Jane Fonda）一起拍摄电影《继续前进》，并在脸书上分享了自己与她们的合影。
+俄罗斯总统弗拉基米尔·普京已下令其军方将该国的核威慑力量置于高度戒备状态，以回应北约国家的”侵略性声明”。
 
-曼加萨里安先生是出生于伊朗的亚美尼亚人，年轻时搬到美国洛杉矶。在他还是个普通服务员的1978年，得到了他人生中出演第一个电影角色的机会。
+该命令由塔斯社宣布，是在普京，国防部长谢尔盖绍伊古和俄罗斯武装部队总参谋长瓦列里格拉西莫夫之间的会议上宣布的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-20.jpg)
+*普京周日下令俄罗斯核威慑力量处于高度戒备状态。摄影：Alexei Nikolsky/美联社*
+*原文图片*
 
-笔者前几天发表了有关最近常常看到名人死亡，但却都没有是否接种疫苗的报道之内容的稿件。之后，仍是几乎每天都能在网上看到名人死亡的消息。其中像这样直言是否接种过疫苗的报道实属罕见。当人们没有意识到疫苗的危害时，死亡原因很有可能都被归结于中共病毒感染、心肌炎、心包炎等等。政府不作为、媒体不报道，使得绝大多数普通民众不知真相、不知道自己的亲人很可能就是疫苗致死。
+普京在声明中说，”北约主要国家的高级官员也允许对我国发表侵略性言论，因此我命令国防部长和总参谋长（俄罗斯武装部队）将俄罗斯军队的威慑力量转移到特殊的战斗任务模式.” 国营塔斯社援引了该声明。
 
-文字版原文：
-[又一名人被中共病毒？中共病毒疫苗？夺走了生命 – GNEWS](https://gnews.org/zh-hans/1932708/)
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+目前尚不清楚”特殊战斗任务模式”意味着什么。普京警告外国不要干涉他正在进行的入侵乌克兰行动，称这可能导致”他们从未见过的后果”。他在白俄罗斯部署了防空导弹和其他先进导弹系统，并将他的舰队部署到黑海，以防止西方干预乌克兰。
 
+俄罗斯的入侵已造成数百人死亡。俄罗斯对基辅，哈尔科夫和其他乌克兰主要城市的建筑物发动了导弹袭击，因为俄罗斯威胁要发动自第二次世界大战以来前所未有的全面袭击。
 
 
 
+> Putin: "Western countries aren't only taking unfriendly economic actions against our country, but leaders of major Nato countries are making aggressive statements about our country. So I order to move Russia's deterrence forces to a special regime of duty." [pic.twitter.com/AC1yHncqZc](https://t.co/AC1yHncqZc)
+> — max seddon (@maxseddon) [February 27, 2022](https://twitter.com/maxseddon/status/1497923042101575685?ref_src=twsrc%5Etfw)
 
+
+
+**原文链接:**
+[Russia-Ukraine latest news: Putin orders nuclear deterrence forces on high alert; Kharkiv claims to have repelled Russian forces](https://www.theguardian.com/world/live/2022/feb/27/russia-ukraine-latest-news-missile-strikes-on-oil-facilities-reported-as-some-russian-banks-cut-off-from-swift-system-live?CMP=Share_iOSApp_Other)
 
  
 

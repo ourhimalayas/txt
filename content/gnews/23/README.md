@@ -2,41 +2,44 @@
 ---
 
 
-## 德国支持将俄踢出SWIFT并向乌克兰运送武器
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2075471/)
+## 突尼斯茉莉花革命始末
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2075515/)
 
-**翻译**：**Lulumi**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip德国支持将俄踢出SWIFT并向乌克兰运送武器.png)奥拉夫·肖尔茨，德国已经宣布支持将俄罗斯挡在SWIFT之外（图片:Getty）
-德国最终宣布支持对俄罗斯实施SWIFT“有针对性的和功能性的”限制。但是，德国没有支持完全禁止俄罗斯参与金融电信计划。在一个历史性的政策变化中，柏林还宣布，他们将向乌克兰提供军事武器。
+作者：纽约香草山-静言
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2010年末至2011年初，北非突尼斯发生了一场反政府示威运动，導致突国政權倒台，此次运动因茉莉花是其國花而被称茉莉花革命。
 
-外交部长安娜莱娜·贝尔博克和经济部长罗伯特·哈贝克在一份联合声明中说。“我们正在紧急研究如何限制与SWIFT脱钩的附带损害，以使其影响到正确的人。”“我们需要的是对SWIFT的有针对性和功能性的限制”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-5.jpeg)
 
-在乌克兰大使的恳求下，德国总理奥拉夫·肖尔茨也表示，将从联邦国防军中派出1000件反坦克武器和500枚毒刺地对空导弹来帮忙。柏林已经允许这些武器通过荷兰运往乌克兰。
+2010年12月17日，一名26歲青年穆罕默德·布瓦吉吉自焚，觸發境内大规模街頭示威游行，及争取民主活動。導致時任總統本·阿里政權倒台，成為阿拉伯國家中第一場因人民起義導致推翻現政權的革命。對北部非洲及中东產生了極大的影響，其示威抗議的模式亦受一些國家的民眾所效法，如阿爾及利亞、埃及等，导致反政府的示威浪潮在一个月内席卷整个北部非洲与中東地區。突尼斯此後成立過渡政府，並成為阿拉伯之春中，唯一達成和平過渡完成民主轉型的國家。
 
-他在推特上说：“俄罗斯对乌克兰的入侵标志着一个转折点。我们有责任尽最大努力支持乌克兰抵御普京的入侵军队”。
+本·阿里于1987年發動同樣稱作「茉莉花革命」的不流血政變而上台。統治突尼斯23年，貪污腐敗，警察治國。每40個國民就有一個警察，當中三分之二是便衣，民众連私下論政也不敢。经济尤其旅游业发展下滑，失业率居高不下，尤其年轻人达百分之52失业。通貨膨脹，民众生活极度困难。
 
-德国因没有效仿其他西方盟国提供军事援助而受到批评，并因在入侵前向乌克兰发送5000顶军用头盔而受到广泛嘲讽。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip乌克兰建筑遭俄罗斯军队空袭.png)乌克兰建筑遭俄罗斯军队空袭（图片:Getty）
-在支持禁止俄罗斯使用SWIFT系统之前，欧盟集团因没有跟随英国和美国的步伐禁止俄罗斯使用其货币而受到了抨击。
+还有一个原因是互联网的力量。維基解密揭露，本·阿里家族及其兄弟手足與掌管該國經濟的一名黑道份子勾結，第一夫人勒伊拉泽魯·本·阿里，靠兴建貴族學校賺取利益。這起网络揭露事件也成為骚乱爆發的重要导火索。
 
-周四，美国财政部宣布制裁，针对俄罗斯近80%的银行资产，其中包括该国最大的两家银行。
+独裁者统治下的百姓光景何其相似，它的结局也应该一样。茉莉花革命一直在影响着其他受独裁统治欺压下的民众，起来推翻独裁者。
 
-英国也紧随其后，鲍里斯·约翰逊宣布所有主要的俄罗斯银行将被冻结资产，并被排除在英国金融体系之外。
+茉莉花革命创造出不流血，和平推翻独裁专制政体的一种平民民主运动方式。中共出于对其影响力的惧怕，将“茉莉花”设定为禁词，在中共网络和媒体平台上广泛屏蔽，由此开启了中共国所谓的“敏感词”严酷管控时代。
 
-然而，虽然欧盟的制裁包括俄罗斯银行市场的70%，但它还没有涵盖欧元结算。
-
-**新闻来源**：[express.co.uk][Germany breaks historic post-WW2 rules to send weapons to Ukraine ‘It’s our duty’](https://www.express.co.uk/news/world/1572474/Russia-news-Germany-swift-restrictions-block-ukraine-war-eu-latest-update)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-9.jpeg)
+参考链接：
+1. [茉莉花革命](https://zh.wikipedia.org/zh-hant/茉莉花革命)
+2. **[茉莉花革命　見證人民力量](https://www.mdnkids.com/nie/nie_indicate/unit7/W-1000228-15/W-1000228-15.htm)**
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Zion文恩
+编辑：Ivy001
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

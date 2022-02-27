@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/27/2022 3:52 PM (UTC)`
+
+2/26/2022 Miles Guo’s Urgent Livestream: We, the Chinese of the New Federal State of China acting in solidarity in time like this and extend their hands to all Chinese in Ukraine is making me emotional. <br/><br/>2/26/2022 文贵紧急直播：我们新中国联邦的中国人在这样的时候团结一致地行动，向所有华人伸出双手救援，让我很感动。
+![img](https://media.gettr.com/group28/getter/2022/02/27/15/35db733c-081a-9976-6fcc-513063c32763/out.jpg)
+
+---
+
 `@miles 2/27/2022 1:16 PM (UTC)`
 
 Announcement of New Federal State of China & Rule of Law Foundation on Emergency Rescue of Ukraine<br/><br/>https://gnews.org/2074988/<br/><br/>新中国联邦和法治基金关于紧急救援乌克兰的通知<br/><br/>https://gnews.org/zh-hans/2074877/<br/><br/>Заголовка: Уведомление по оказанию чрезвычайной помощи Новой Китайской Федерации и Фонда «Верховенство закона»<br/><br/>https://gnews.org/2074974/
@@ -147,16 +154,6 @@ February 26th, 2022, Mr. Miles Guo’s Urgent Livestream: our rescue operation i
 
 G-EDU立志为世界培养优秀人才，提供优质、前沿的学习机会和发展前景。现面向全球招募热爱教育事业的专业人才，加入我们的团队。同时欢迎世界各地的孩子们来G-EDU报名上课，感受我们的教育理念和专业课堂，共同成长。<br/>G-EDU is an educational organization founded by NFSC in November 2021. We are taking the initiative to build quality teaching platforms. We hereby invite qualified educators who are dedicated to the future of our kids to join our team. <br/><br/>主教老师申请表：<br/>https://docs.google.com/forms/d/e/1FAIpQLSdg7wLDkncI3QuuynWhz7cQScYjV33XzQgB5-z_OpqzM7rYNg/viewform<br/><br/>学生入学申请表：<br/>https://docs.google.com/forms/d/e/1FAIpQLSfG5AInGN7kj2KkbKLq1ZtuazqnJkife1Fvrj3mnKllATNUFw/viewform <br/><br/>apply, please click the link below:<br/>https://docs.google.com/forms/d/e/1FAIpQLSffXsCK9t2rPeY3roFiMGJvWbP3eoukP9d4jMs7_ma6EMjsuQ/viewform?usp=pp_url <br/><br/>欢迎加入G-EDU官方工作平台<br/>Welcome to G-EDU:<br/>https://discord.gg/Dq7p9knV
 ![img](https://media.gettr.com/group42/getter/2022/02/26/21/8ffc942f-421a-028e-3501-ed22a2e4e3ae/2b46448b9e228cccaa161c19571b5f01.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@milesguolive 2/26/2022 11:31 AM (UTC)`
-
-Stop the War!
-> `@pandarolling 2/26/2022 6:35 AM (UTC)`<br/>与孩子们告别<br/>Farewell to the children
-![img](https://media.gettr.com/group37/getter/2022/02/26/06/7a871245-151e-b2d8-85e1-04e3b05f67b2/out.jpg)
 
 ---
 
