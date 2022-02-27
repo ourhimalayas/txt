@@ -2,52 +2,30 @@
 ---
 
 
-## 世界各地成千上万的抗议者站出来表达对乌克兰人民的支持
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2072504/)
+## 大批乌克兰人逃离战火之时中共告诉其在乌克兰的国民不要撤离
+` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/2072549/)
 
-素材来源：波士顿五月花Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-27-at-11.40.17-AM.png)**图片来源: AP; LNP; Reuters; EPA**
-伦敦、纽约、悉尼和东京的街道已经变成了黄色和蓝色的海洋，人们呼吁各国政府采取更多措施帮助乌克兰。
+By：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2531.png)图片来自网络
+自从俄罗斯在上周四入侵乌克兰以来，已有近15万乌克兰人逃往邻国，去往波兰、匈牙利、摩尔多瓦、斯洛伐克和罗马尼亚等国。还有数以千计的人仍在试图通过堵塞的边境。
 
-在悉尼，数百人冒着大雨游行，高呼 “乌克兰必胜”。
+很多国家，如美国、英国、韩国、日本和以色列一直在建议其公民离开乌克兰或准备撤离。
 
-而在东京，抗议者呼吁将俄罗斯从联合国安理会驱逐出去。
+然而，在俄罗斯对乌克兰发动攻击后，中共国驻乌克兰大使馆建议那里的中共国公民呆在家里。如果必须外出，就在车上挂上中共国国旗。这表明中共与俄罗斯已结成邪恶同盟。
 
-欧洲也有数千人走上街头，在伦敦、尼科西亚、柏林、雅典、赫尔辛基、马德里和米兰举行集会。人们谈到他们对战争重返欧洲大陆的震惊。
+中共国外交部拒绝将俄罗斯的攻击描述为入侵，并指示中共国媒体不要发布任何对俄罗斯入侵不利的内容。
 
-在整个欧洲大陆，生活在国外的乌克兰人和他们的支持者披挂着国旗，举着 “停止战争 “的标语牌。
+乌克兰已禁止所有18 至60 岁的乌克兰男子离开乌克兰，以便他们为自己的国家而战，表明了乌克兰抗击俄罗斯入侵的决心。
 
-在瑞士首都伯尔尼，估计有2万人集会，呼吁政府对俄罗斯采取更严厉的行动。
+在乌克兰边境，出现了一些素不相识的乌克兰人互相帮助的感人故事。一名38 岁的乌克兰男子将他年幼的儿子和女儿托付给了一位素未谋面的女人，让她协助把孩子带出乌克兰，交给正在从意大利赶来接他们的孩子的母亲。这位男子把母亲的手机号码和孩子的护照给了这位妇女，然后和孩子们道别。
 
-在日内瓦，数百人在联合国总部前示威，举着 “让乌克兰现在成为北约成员 “和 “对普京说不 “等标语。
+面对战争，中共对其侨民表现出的是冷漠无情。
 
-瓦莱里-布拉格(Valery Bragar)说：”我在这里是因为我对我的出生国感到非常羞耻，”他是土生土长的俄罗斯人，在瑞士生活了15年，现在是瑞士公民。
+消息来源：[Russia-Ukraine war updates: Kyiv placed under strict curfew to enable ‘more effective defense of the capital’ as it happened](https://www.abc.net.au/news/2022-02-26/russia-ukraine-war-live-blog-saturday-feb-26/100863590)
 
-周六，爱丁堡苏格兰议会外的人群高呼’请帮助乌克兰’和’slava Ukraini’（乌克兰的荣耀）。
+[Ukrainians flee to European countries, including some that previously spurned refugees](https://www.washingtonpost.com/world/2022/02/26/europe-welcomes-refugees-ukraine-russia/)
 
-参加示威的还有弗拉达-克伦，她来自乌克兰，但现在住在爱丁堡。
-
-这位40岁的老人在抗议活动中说：”世界，请伸出援手”。
-
-“不要等着普京来攻击你们，因为如果像乌克兰那样容易，我敢肯定他不会停留在乌克兰，他将攻击世界其他地方。”
-
-“我们需要真正的支持，而不仅仅是言语。”
-
-周六下午伦敦，数百人聚集在一起，呼吁普京撤出乌克兰，在伦敦西部肯辛顿的俄罗斯大使馆以及唐宁街外举行示威。
-
-抗议者们挥舞着旗帜、横幅和标语牌，唱着乌克兰国歌，高呼 “普京停止战争”、”普京回家 “和 “自由乌克兰”。
-
-有人向俄罗斯大使馆投掷鸡蛋，肯辛顿宫花园的墙壁上布满了粉笔写的信息、飞溅的鸡蛋和假血。
-
-抗议活动是在过去几天里世界各地的其他示威活动之后发生的，包括在俄罗斯本身。
-
-数以千计的反战抗议者不顾俄罗斯当局的警告，表达他们对普京入侵乌克兰的愤怒，超过1600人因其行动而被捕。
-
-参考链接：[Protesters take to cities across the world to show their support for Ukraine](https://metro.co.uk/2022/02/26/protesters-take-to-cities-across-the-world-to-show-support-for-ukraine-16180363/)
-
-* * *
-
-*编辑&发布：Vicky*
+[China told its citizens who are currently in Ukraine to ‘stay at home’ or display the Chinese flag on their cars amid Russia attacks](https://www.businessinsider.com.au/china-ukraine-stay-home-display-chinese-flag-embassy-2022-2)
 
  
 
