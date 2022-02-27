@@ -2,16 +2,62 @@
 ---
 
 
-## 俄乌战争和台海危机 给世界的经济金融市场带来了什么？
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2075091/)
+## 《明斯克协议》与普京入侵乌克兰
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2075335/)
 
-文贵大直播20220227
+作者：香草山农场—静言
 
-撰稿：蚂蚁的城堡（新西兰）
 
-美工：长颈鹿（雅典娜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-4.png)
-*发布：Theodosia*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-86.png)
+
+
+《明斯克协议》是顿巴斯战争爆发后，乌克兰政府与乌克兰东部的顿涅茨克人民共和国、卢甘斯克人民共和国两个政权之代表在2014年9月5日于白俄罗斯首都明斯克签订的停火协议。该协议签署后，乌克兰政府同意给予东南部两州的自治权，但两州仍留在乌克兰领土内。东南部地区领导人仍多次表示不会放弃争取独立。9月16日，乌克兰通过一项赋予顿巴斯地区特殊自治地位的法律。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1232.001.jpeg)[图源网络](https://zh.m.wikipedia.org/wiki/顿巴斯战争)
+顿巴斯战争又称东乌克兰战争，指2014年2月至今，在乌克兰东南部斯巴顿，由俄罗斯控制的位于乌克兰东部和南部俄语地区的亲俄势力于乌克兰政府军发生交战而引起的战争。
+
+2015年2月12日，白俄罗斯、俄罗斯、德国、法国和乌克兰的元首在白俄罗斯首都明斯克举行峰会。这谈判中制定了明斯克协议，规定双方车里所有重型武器并后撤相同距离，以创造至少50公里的军事缓冲区。
+
+2019年4月24日，俄罗斯总统普京签署有关简化乌克兰卢甘斯克州和顿涅茨克州顿巴斯地区居民获得俄罗斯护照的命令。这些居民可以在不放弃乌克兰国旗的情况下申请俄罗斯国际。此举引发乌克兰和美国抗议。
+
+2019年10月1日，乌克兰问题三方联络小组：乌克兰、欧洲安全与合作组织、俄罗斯及乌东部武装代表在白俄罗斯首都明斯克举行会议，各方以书面形式确认同意施泰因迈尔模式文本，即2015年德国外长施泰因迈尔提出的政治解决方案，指在符合乌克兰法律和欧洲安全与合作组织的监督下，在乌东部武装控制的领土上举行选举并实行自治。
+
+2020年的冠状病毒大流行使冲突地区的生活条件恶化，冲突有所增加。顿涅茨克人民共和国引入了新规定，与俄罗斯边界完全重新开放。
+
+2021年2月22日，乌克兰东部发生交火。4月，乌克兰总统泽伦斯基表示希望透过外交终止冲突。
+
+2022年1月，乌克兰东部局势冲突危机严重加剧，俄罗斯军队已在与乌克兰接壤的顿巴斯地区边境、及白俄罗斯与乌克兰的边境屯兵数十万名军事武装人员及大量的装甲、坦克军。
+
+2022年2月15日，随着俄乌危机的发生，俄罗斯国家杜马以351票赞成，16票反对，1废票通过了承认顿涅茨克和卢甘斯克人民共和国的法案，并要求俄罗斯总统普京即刻签署该法案。乌克兰外长称此举是对明斯克协议的重大破坏。
+
+2022年2月21日晚间，普京宣布承认两个分离地区为独立国家。
+
+2022年2月24日，普京随即以“维和任务”对名义派遣俄军进入该地区，并从海陆空三军全面入侵乌克兰。
+
+参考来源：
+
+[斯巴顿战争](https://zh.m.wikipedia.org/wiki/顿巴斯战争)
+
+[明斯克协议](https://zh.m.wikipedia.org/wiki/明斯克協議)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-66.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-87.png)
+
 
  
 

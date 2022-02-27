@@ -2,42 +2,37 @@
 ---
 
 
-## 有声|被困在乌克兰的巴西足球运动员请求帮助
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2075546/)
+## 有声|追述台海两岸关系的变迁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2075629/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+1945年，国民党政府接管了台湾，并以“中华民国”为号建立了独立的国家。此时，中共占据大陆，与台湾开始了漫长的两岸僵持时期。直至1949年3月，中共新华社在一篇社论中首次提出了所谓“解放台湾”的口号。作为回应，中华民国政府也表示要“消灭共匪，解救同胞”。两岸至此进入了隔绝对立阶段。其后，台海地区先后爆发了多次战役，国共双方互有胜负。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/AFPTV_AFP-via-Getty-Images-640x480-1-1.jpg)
+到了1979年，中共对台的态度从强硬趋向缓和：人大在《告台湾同胞书》中以所谓“和平统一、一国两制”的方案取代了原先的硬性解放口号。次年，蒋经国回应了一则“三民主义统一中国”的政策。1981年，第一家台资企业在福州落户。随即，台湾开放当地民众到大陆探亲，两岸民间的经贸活动也迅速升温。
 
+1991年，台湾海基会与大陆海协会相继投入运作。两年后，双边还在“九二共识”的基础上举行汪辜会谈。虽然当时中共的总书记江泽民提出了推进所谓“中国和平统一”的进程，但台湾总统李登辉认为，台湾与中国大陆的关系是“国家与国家”。
 
-Breitbart News 2月24日报道： 两支乌克兰足球队的巴西球员发布了一段视频，请求他们的祖国帮助他们离开乌克兰，避开普京的入侵部队。
+2000年，民进党首次担任中华民国的执政党，陈水扁就职时表示，只要中共无意对台动武，其在任期内保证台湾既不会宣布独立，也不会更改国号。八年后，国民党重掌台湾，马英九主张不统、不独、不武。
 
-来自顿涅茨克山庄和基辅迪纳摩队的球员们已经将他们的家人搬到了几家酒店，希望能在入侵中保持安全。 球员桑托斯在Instagram上发文道”我们真的很绝望，没有办法出去，我们正在经历混乱， 我们有来自我们俱乐部的支持。但这种绝望是令人痛苦的。我们等待着来自我们国家的支持。我们以所有在乌克兰的巴西人的名义发言“。
+2014年，台湾太阳花学运遏制了两岸经济一体化的势头。次年，习近平与马英九代表中共和中华民国在新加坡首次进行会面。然而，在此之后，中共开始展露其妄图统治台湾的野心：习近平多次公开声称，要谋求所谓的“国家统一”。为此，中共解放军不断在台海地区进行军事演练，共机数次升空进入台湾领空挑衅。
 
-其他来自巴西的球员也发布消息，恳求帮助他们逃离乌克兰。一名球员的妻子说“我们女人和孩子在一起，感觉有点被遗弃了， 巴西外交部的通讯主任莱昂纳多-戈尔古略回应称巴西没有能力组织任何疏散工作，建议居住在乌克兰东部的巴西人通过自己的方式离开该国。
+如今，俄乌危机爆发，新中国联邦创始人郭文贵先生多次呼吁，台海危机已经不可避免，战争已是箭在弦上，一触即发。
 
+文字版原文：[追述台海两岸关系的变迁](https://gnews.org/zh-hans/2070746/)
 
+音频处理：Fei797
+发稿：Fei797
 
-文字版原文：[被困在乌克兰的巴西足球运动员请求帮助](https://gnews.org/zh-hans/2067582/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

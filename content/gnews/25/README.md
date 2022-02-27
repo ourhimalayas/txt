@@ -2,16 +2,29 @@
 ---
 
 
-## 俄乌谈判破裂 世界进入危局
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2075096/)
+## 日本防卫省：朝鮮导彈飞行距离可能为300公里 最大高度可迏600公里
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2075388/)
 
-文贵大直播20220227
+作者：新西兰伊甸农场-玫瑰
+![](https://assets.gnews.org/wp-content/uploads/2022/02/56CD64F4-2FD2-41B1-B493-628D2913E2DE.jpeg)
+据俄罗斯卫星通讯社2月27日报道，当地时间27日7时59分（北京时间6时59分）日本海上保安厅发布了有关朝鲜可能进行导弹发射的警报。半小时后，海岸警卫队网站上出现了炮弹已经坠落的消息，呼吁海上的船只保持谨慎，如果有物体落入水中，请勿靠近。
+如果有关发射的消息将得到证实，这将已经是平壤方面自今年年初以来第八次武器试射。
 
-撰稿：烟火（樱花）天天打包包（新西兰）dingding（香草山）
+日本防卫大臣岸信夫表示，疑似朝鲜方面发射的导弹飞行距离约为300公里，最大飞行高度达到600公里。
+岸信夫指出，关于朝鲜导弹发射仍在对细节进行分析。据推测，其落在了日本专属经济区之外。
+NHK电视台对新闻发布会进行了转播。
+岸信夫表示：“日本政府强烈谴责”朝鲜的行为。
+日本防卫大臣指出：“这是一个不可原谅的行为”，并且强调，东京将首先与美国以及“与国际社会密切合作。”。
 
-美工：健身建心（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-9.png)
-*发布：Theodosia*
+[備注/飞虹] 理順內容
+
+编輯/校正/发稿：玫瑰圓
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2CC3B8A0-EB83-4DA2-8D4E-4A48211F5BED.jpeg)
+
+[援引链接] [https://sputniknews.cn/20220227/1039596100.html](https://sputniknews.cn/20220227/1039596100.html)
+
+
 
  
 

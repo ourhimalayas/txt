@@ -2,29 +2,35 @@
 ---
 
 
-## 日本防卫省：朝鮮导彈飞行距离可能为300公里 最大高度可迏600公里
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2075388/)
+## 俄乌最新消息：普京下令俄罗斯核威慑力量进入高度戒备
+` 军情启示录` [轉載自GNews](https://gnews.org/zh-hans/2075478/)
 
-作者：新西兰伊甸农场-玫瑰
-![](https://assets.gnews.org/wp-content/uploads/2022/02/56CD64F4-2FD2-41B1-B493-628D2913E2DE.jpeg)
-据俄罗斯卫星通讯社2月27日报道，当地时间27日7时59分（北京时间6时59分）日本海上保安厅发布了有关朝鲜可能进行导弹发射的警报。半小时后，海岸警卫队网站上出现了炮弹已经坠落的消息，呼吁海上的船只保持谨慎，如果有物体落入水中，请勿靠近。
-如果有关发射的消息将得到证实，这将已经是平壤方面自今年年初以来第八次武器试射。
+翻译：AWAC (新西兰伊甸农场)
 
-日本防卫大臣岸信夫表示，疑似朝鲜方面发射的导弹飞行距离约为300公里，最大飞行高度达到600公里。
-岸信夫指出，关于朝鲜导弹发射仍在对细节进行分析。据推测，其落在了日本专属经济区之外。
-NHK电视台对新闻发布会进行了转播。
-岸信夫表示：“日本政府强烈谴责”朝鲜的行为。
-日本防卫大臣指出：“这是一个不可原谅的行为”，并且强调，东京将首先与美国以及“与国际社会密切合作。”。
+发布：AWAC (新西兰伊甸农场)
 
-[備注/飞虹] 理順內容
+俄罗斯总统弗拉基米尔·普京已下令其军方将该国的核威慑力量置于高度戒备状态，以回应北约国家的”侵略性声明”。
 
-编輯/校正/发稿：玫瑰圓
+该命令由塔斯社宣布，是在普京，国防部长谢尔盖绍伊古和俄罗斯武装部队总参谋长瓦列里格拉西莫夫之间的会议上宣布的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-20.jpg)
+*普京周日下令俄罗斯核威慑力量处于高度戒备状态。摄影：Alexei Nikolsky/美联社*
+*原文图片*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2CC3B8A0-EB83-4DA2-8D4E-4A48211F5BED.jpeg)
+普京在声明中说，”北约主要国家的高级官员也允许对我国发表侵略性言论，因此我命令国防部长和总参谋长（俄罗斯武装部队）将俄罗斯军队的威慑力量转移到特殊的战斗任务模式.” 国营塔斯社援引了该声明。
 
-[援引链接] [https://sputniknews.cn/20220227/1039596100.html](https://sputniknews.cn/20220227/1039596100.html)
+目前尚不清楚”特殊战斗任务模式”意味着什么。普京警告外国不要干涉他正在进行的入侵乌克兰行动，称这可能导致”他们从未见过的后果”。他在白俄罗斯部署了防空导弹和其他先进导弹系统，并将他的舰队部署到黑海，以防止西方干预乌克兰。
+
+俄罗斯的入侵已造成数百人死亡。俄罗斯对基辅，哈尔科夫和其他乌克兰主要城市的建筑物发动了导弹袭击，因为俄罗斯威胁要发动自第二次世界大战以来前所未有的全面袭击。
 
 
+
+> Putin: "Western countries aren't only taking unfriendly economic actions against our country, but leaders of major Nato countries are making aggressive statements about our country. So I order to move Russia's deterrence forces to a special regime of duty." [pic.twitter.com/AC1yHncqZc](https://t.co/AC1yHncqZc)
+> — max seddon (@maxseddon) [February 27, 2022](https://twitter.com/maxseddon/status/1497923042101575685?ref_src=twsrc%5Etfw)
+
+
+
+**原文链接:**
+[Russia-Ukraine latest news: Putin orders nuclear deterrence forces on high alert; Kharkiv claims to have repelled Russian forces](https://www.theguardian.com/world/live/2022/feb/27/russia-ukraine-latest-news-missile-strikes-on-oil-facilities-reported-as-some-russian-banks-cut-off-from-swift-system-live?CMP=Share_iOSApp_Other)
 
  
 
