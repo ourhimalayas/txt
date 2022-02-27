@@ -2,32 +2,54 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月26日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2072387/)
+## 聚焦：乌克兰台海危机助攻美国减债和振兴（下）
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2072437/)
 
-作者：香草山翻译部
+作者：丁过
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-5.png)
+编辑与校对：冰糖葫芦喵、丁过
 
+通过俄乌冲突，已经看到普京的目标不仅仅是乌克兰，而是要颠覆欧洲现状，尽管美欧一直克制不参战，但不管乌克兰战争是俄罗斯失败或胜利收场，美国及其盟友对俄罗斯的制裁将是最顶格的，是永久的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-1-6.png)
-校对：Stay文苑
+其中打击俄罗斯的能源产业是美国及其盟友主要的制裁手段。俄罗斯的石油和天然气出口额达到2400亿美元，其中欧洲35%的天然气依赖俄罗斯。
 
-编辑：Stay文苑
+摩根大通的研究报告显示，俄乌战争将导致油价“实质性大涨”，油价可能升至每桶150美元，通胀率将提高超过一倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/油价.png)WTI原油价格（网上截屏）
+由于油气价格上涨，能源已经占商品及生活成本约50%。在高通胀时期，油气、粮食和黄金一样具备货币即硬通货属性，美国作为油气和粮食净出口国，在囯际动荡时期有巨大的优势。
 
-发稿：Stay文苑
+这要从两方面来说：
 
-新闻：[https://gtv.org/broadcast/watch/621ad472a391e321a0c88234](https://gtv.org/broadcast/watch/621ad472a391e321a0c88234)
-访谈：[https://gtv.org/broadcast/watch/621adcf4a391e321a0c8940a](https://gtv.org/broadcast/watch/621adcf4a391e321a0c8940a)
+一、据美国能源信息署（EIA）提供的数据，2021年11月，美国石油产量增至1709.7万桶/日，美国的天然气生产和出口量均居世界第一，2022年美国油气产量都将创下新纪录。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4-1.png)
+也就是说，美国具备潜在的产能取代俄罗斯在囯际能源市场上的部分份额，特别是减少欧洲对俄罗斯能源依赖的意义尤其重大，虽然欧洲从美国进口油气由于运距成本更高，但总比向俄罗斯输送战争经费和被俄罗斯能源讹诈好得多，而且一旦启动制裁，欧洲必须逐步放弃购买俄罗斯能源。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+通过通胀减轻债务负担需要长期、可控、较国际环境更低的通胀，否则无法达到目标。
+
+而美国通过出口能源降低贸易逆差，获取比较优势和想要的通胀率，达到控制通胀和让美元坚挺的目的，同时有利于在北约确立主导权。
+
+二、郭文贵先生指出，乌克兰战争导致的能源危机、粮食危机及大宗商品价格暴涨对中共最不利，因为中共国是以上商品的最大进口国。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/直播-1-e1645933630670.png)郭文贵先生在大直播中
+美国的产业大量外迁，原因除了错误的政策导向，还因为美国的能源一度不能自足，而中低端产业需要充足的廉价能源。大量的产业外迁导致美国税源和就业大量流失。
+
+川普上台后重构了美国的战略：把产业和工作带回家。而这个战略的支点是传统油气产业，拜登现在得以在油气上发力，是在吃川普的老本。
+
+美国及其盟友对俄罗斯的制裁已成定局，长期严重通胀的趋势已经定型，美国的优势已经确立，产业从能源贫乏、通胀更严重、社会不稳定的国家比如中共国转移到北美的趋势已经形成。
+
+一旦中共攻打台湾，由于核心利益在印太，美国肯定对中共全面出击，中共的“世界工厂”将崩溃，产业将争先恐后涌向北美，美国的财政将得到整固，债务率将下降，美元将重新坚挺，这个过程可能是几年甚至更长，到时美国所利用的通胀将逐渐退出。
+
+如果因为对俄罗斯（能源）和中共（商品）制裁推升了通胀，美国民众对政府的容忍也会大大提高，因为制裁甚至交战都是迫不得已的、正义的，拜登政府已经最大限度将内部矛盾外溢到外部环境。
+
+所谓战略高手，莫过于此！
+
+**新闻链接：**
+
+[https://www.dw.com/zh/%E6%B0%B8%E6%81%92%E8%AF%B1%E6%83%91%E5%9B%BD%E5%AE%B6%E6%80%8E%E6%A0%B7%E5%88%A9%E7%94%A8%E9%80%9A%E8%83%80%E6%9D%A5%E5%87%8F%E5%80%BA/a-16292178](https://www.dw.com/zh/%E6%B0%B8%E6%81%92%E8%AF%B1%E6%83%91%E5%9B%BD%E5%AE%B6%E6%80%8E%E6%A0%B7%E5%88%A9%E7%94%A8%E9%80%9A%E8%83%80%E6%9D%A5%E5%87%8F%E5%80%BA/a-16292178)
+
+[https://www.bbc.com/zhongwen/simp/business-60345552](https://www.bbc.com/zhongwen/simp/business-60345552)
+
+[https://www.reuters.com/article/graphic-ukraine-russia-crisis-market-022-idCNKBS2KQ071](https://www.reuters.com/article/graphic-ukraine-russia-crisis-market-022-idCNKBS2KQ071)
+
+[https://3g.163.com/dy/article/H08SHV6J05509P99.html?referFrom=google&spss=adap\_dy](https://3g.163.com/dy/article/H08SHV6J05509P99.html?referFrom=google&amp;spss=adap_dy)
 
  
 

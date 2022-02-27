@@ -2,28 +2,31 @@
 ---
 
 
-## 美欧多国发表联合声明 将俄罗斯踢出SWIFT系统
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2072441/)
+## 【秘翻在线】俄军不仅袭击了一个民用油库还炸毁了一条天然气管道
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2072497/)
 
-撰稿：东京樱花团/龟龟
+**撰稿：Grace**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/美欧多国发表联合声明-将俄罗斯踢出SWIFT系统.jpg)[图片来源](https://www.stvincenttimes.com/euus-and-allies-agree-to-remove-russian-banks-from-swift/)
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-26-at-10.39.48-PM.jpeg)图片来源：newsnationusa
+据《福克斯新闻》2月26日报道，乌克兰官员说，当地时间周日清晨，在俄罗斯总统弗拉基米尔·普京入侵乌克兰的第四天即将开始之际，一枚疑似俄罗斯的导弹袭击了在基辅附近的一个民用油库。
 
-欧盟、法国、德国、意大利、英国、加拿大和美国周六（2月26日）发表一份联合声明，将俄罗斯踢出环球银行金融电信协会（SWIFT）。
+乌克兰议员安娜·普尔托娃（ Anna Purtova ）在该地区凌晨2点左右表示，“基辅附近的瓦西尔科夫（Vasilkov ）的油库受到了导弹袭击”。
 
-同时，这些欧美国家也将施加多项限制，阻止俄罗斯中央银行使用国际储备。
+据报道，瓦西尔科夫位于基辅以南约24英里处。该市也是一个乌克兰军事基地的所在地。
 
-SWIFT成立于1973年，总部设在布鲁塞尔，是一个连接全球逾万家金融机构的高度安全网络。金融机构通过它来发送安全信息和支付指令，并支持国际贸易的快速跨境转账付款。如果俄罗斯被排除在此体系之外，俄罗斯企业的经贸业务可能受影响。
+安娜把这场袭击描述为一场 “生态灾难”。
 
-制裁将切断俄罗斯与大多数国际金融交易的联系，包括出口石油和天然气产生的利润，这些利润总共占到俄罗斯收入的40%以上。
+她还呼吁美国和欧盟在乌克兰领空实施禁飞区。
 
-“我们和乌克兰政府以及乌克兰人民反抗俄罗斯入侵的英勇努力站在一起，” 声明说。“我们会让俄罗斯为此负责，并集体保证这场战争成为普京的一场战略失败。”
+报道称，福克斯新闻的特雷·英斯特（ Trey Yingst ）在基辅报道，他分享了一张图片，显示燃烧的工厂的光芒照亮了几英里外的夜空。
 
-信息来源：[西方国家将众多俄罗斯银行踢出Swift结算系统](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220227-%E8%A5%BF%E6%96%B9%E5%9B%BD%E5%AE%B6%E5%B0%86%E4%BC%97%E5%A4%9A%E4%BF%84%E7%BD%97%E6%96%AF%E9%93%B6%E8%A1%8C%E8%B8%A2%E5%87%BAswift%E7%BB%93%E7%AE%97%E7%B3%BB%E7%BB%9F)
+乌克兰英文报纸《基辅邮报》（The Kyiv Post ）谴责这次袭击是 “又一次战争罪行”，并分享了在现场附近拍摄的视频，显示烟雾飘向夜空。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+几个小时后，美联社报道说，俄罗斯军队还炸毁了哈尔科夫（Kharkiv ）的一条天然气管道，哈尔科夫是靠近乌克兰-俄罗斯边境的一个大型人口中心，乌克兰国防军在那里坚守阵地。
+
+**新闻来源：**** [Russian missile strikes Ukrainian civilian oil depot south of Kyiv, official says](https://www.foxnews.com/world/russian-missile-ukrainian-oil-depot-vasilkov)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

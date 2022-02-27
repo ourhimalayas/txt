@@ -2,30 +2,44 @@
 ---
 
 
-## 大批乌克兰人逃离战火之时中共告诉其在乌克兰的国民不要撤离
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/2072549/)
+## 俄罗斯在周五暂停后从各方面恢复了对乌克兰的进攻
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2072578/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2531.png)图片来自网络
-自从俄罗斯在上周四入侵乌克兰以来，已有近15万乌克兰人逃往邻国，去往波兰、匈牙利、摩尔多瓦、斯洛伐克和罗马尼亚等国。还有数以千计的人仍在试图通过堵塞的边境。
+据《新闻大全》作者埃里克·麦克 （Eric Mack）2022 年 2 月 26 报道
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image002-8.jpg)图片来自网络
+在俄罗斯暂停其行动之前包围了乌克兰基辅的报道之后，周六出现了新的升级和进攻的迹象。
 
-很多国家，如美国、英国、韩国、日本和以色列一直在建议其公民离开乌克兰或准备撤离。
+俄新社援引俄罗斯国防部的说法，在周五暂停后，乌克兰的所有俄罗斯部队周六都得到命令从各个方向恢复进攻。
 
-然而，在俄罗斯对乌克兰发动攻击后，中共国驻乌克兰大使馆建议那里的中共国公民呆在家里。如果必须外出，就在车上挂上中共国国旗。这表明中共与俄罗斯已结成邪恶同盟。
+与克里姆林宫的类似评论相呼应，国防部表示周五的暂停是因为预期莫斯科和基辅之间的会谈，但在乌克兰拒绝谈判后，攻势恢复。
 
-中共国外交部拒绝将俄罗斯的攻击描述为入侵，并指示中共国媒体不要发布任何对俄罗斯入侵不利的内容。
+据 Politico 报道，乌克兰得到了北约成员国的支持，包括法国阻止了一艘俄罗斯船只，德国取消了禁止向乌克兰转让致命武器的禁令，从荷兰向乌克兰发送了 400 枚火箭推进榴弹（RPG）。
 
-乌克兰已禁止所有18 至60 岁的乌克兰男子离开乌克兰，以便他们为自己的国家而战，表明了乌克兰抗击俄罗斯入侵的决心。
+此外，由于确认的网络攻击，克里姆林宫报告说其网站于周六关闭。
 
-在乌克兰边境，出现了一些素不相识的乌克兰人互相帮助的感人故事。一名38 岁的乌克兰男子将他年幼的儿子和女儿托付给了一位素未谋面的女人，让她协助把孩子带出乌克兰，交给正在从意大利赶来接他们的孩子的母亲。这位男子把母亲的手机号码和孩子的护照给了这位妇女，然后和孩子们道别。
+**法国扣押俄罗斯货船**
 
-面对战争，中共对其侨民表现出的是冷漠无情。
+法国周六在英吉利海峡扣押了一艘运输汽车的货船，华盛顿称这艘货船与一名前俄罗斯间谍头目的儿子有关，这是西方对莫斯科入侵乌克兰实施制裁的第一个可见措施。法国海事局的船长维罗尼克·马宁（Veronique Magnin）告诉路透社，这艘 “波罗的海领导人”原定前往圣彼得堡，但在东部时间凌晨 3 点至凌晨 4 点之间被转移到法国北部的滨海布洛涅港（Boulogne-sur-Mer ）。
 
-消息来源：[Russia-Ukraine war updates: Kyiv placed under strict curfew to enable ‘more effective defense of the capital’ as it happened](https://www.abc.net.au/news/2022-02-26/russia-ukraine-war-live-blog-saturday-feb-26/100863590)
+她说，这艘船“被强烈怀疑与制裁所针对的俄罗斯利益有关”。
 
-[Ukrainians flee to European countries, including some that previously spurned refugees](https://www.washingtonpost.com/world/2022/02/26/europe-welcomes-refugees-ukraine-russia/)
+**没有欧盟国家反对将俄罗斯踢出****Swift**
 
-[China told its citizens who are currently in Ukraine to ‘stay at home’ or display the Chinese flag on their cars amid Russia attacks](https://www.businessinsider.com.au/china-ukraine-stay-home-display-chinese-flag-embassy-2022-2)
+一位法国总统官员周六表示，欧盟成员国之间关于将俄罗斯排除在 Swift （环球银行金融电信协会）国际支付系统之外的讨论已接近成功。
+
+这位不愿透露姓名的官员表示，没有欧盟成员国反对将俄罗斯排除在该系统之外，但谈判仍在进行中。
+
+英国国防部周六表示，俄罗斯进军乌克兰的行动暂时放缓，可能是因为后勤问题并遭遇了强大抵抗。
+
+俄罗斯国防部在推特上发布的定期情报更新中说：“可能由于严重的后勤困难和乌克兰的强烈抵抗，俄罗斯推进的速度暂时放缓。”
+
+“俄罗斯军队正在绕过主要的乌克兰人口中心，同时让部队包围和隔离他们。基辅的夜间冲突可能涉及数量有限的预先部署的俄罗斯团体。占领基辅仍然是俄罗斯的主要军事目标。”
+
+本报告通篇使用了来自路透社的信息。
+
+原文链接：[https://www.newsmax.com/world/globaltalk/kyiv-invasion-defense-ministry-diplomacy/2022/02/26/id/1058633/](https://www.newsmax.com/world/globaltalk/kyiv-invasion-defense-ministry-diplomacy/2022/02/26/id/1058633/)
+
+翻译：Nick｜校对：JS709｜编辑&发布：断播
 
  
 
