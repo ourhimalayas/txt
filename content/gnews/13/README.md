@@ -2,32 +2,40 @@
 ---
 
 
-## 有声|袍泽情
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2076252/)
+## 樱花FM|北京冬奥前闭环内外疫情燃烧，特大安全套或是最佳体验
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2076254/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月24日七哥紧急直播，因俄乌开战，导致台湾战争一触即发，深爱战友的七哥担心台湾战友们，国内战友们的安危，紧急通知台湾同胞墙内战友尽快做好安全措施和撤离准备工作，七哥在直播中多次呼吁台湾战友，国内战友远离中共的战争地区，军事地点，保护自己，保护家人。提醒联盟把中共军事基地详细地址一览发放战友传阅，早日做出防范措施，避免成为土共的炮灰。在这世界经济危机临近崩溃时刻，普习利用一场战争来掩盖经济危机和缓解个人危机的目标非常明确，独裁为维护政治地位，不惜挑起战争，加剧人类灾难。随着乌克兰的局势紧张，对台蓄谋已久的中共会随时对台发生战争，七哥担心战友们安危，要求各农场紧急召开会议，协助、帮助台湾同胞尽快安置到安全地区，聚集战友的力量起到互相扶持互相呼应。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-4-8.png)
+**北京冬奥在即，“闭环”内外疫情燃烧，带给运动员最佳体验的或许是特大号安全套，这可在隔离时解燃煤之急。不过，习近平已经决定在冬奥会开幕式举办盛大宴席。对于国际社会如何追责北京反人类罪？联合国人权委员会配合北京冬奥会，将不会在近期发布涉疆“人权报告”。**
 
-长岛伟哥和联盟考虑到目前紧张局势，针对墙内战友和香港、台湾战友撤离需要寻求协助，迅速直播安排各农场开展救缓工作，集合全球有救助资源的战友，为台湾战友，墙内战友做最好的安全部署，联盟公告一出，提供救助资源的战友纷纷行动，提供吃住用行的资源力量层出不穷，到25 号美、各地区十个农场团队已经准备就绪，在八个主要城市设有战友接待服务站，给来自台湾、香港、澳门、墙内的爆料革命战友提供全方位的服务。
+据[路透社](https://gulfnews.com/sport/olympics/beijing-olympics-china-reports-36-new-covid-19-cases-among-olympics-related-personnel-1.85289422)北京时间29日消息称：“北京 2022 年冬奥组委会今天表示，1 月 28 日，在奥运会相关人员中发现 了36 例新的 COVID-19 感染者。”其中19 名运动员或球队官员在周五抵达机场后检测呈阳性。在新机场抵达者中发现了 29 人，在运动员与公众隔离的“闭环”气泡中也已经发现了 7 例感染者。
 
-同时纽约香草山及时紧急【热点播报】传播保命，保财！警告远离军事基地！公布了详细的军事设施位置图，要求战友们务必保护自己及家人做出相应的安全措施
-这才刚过去二十几个小时，各农场已经具备了良好的扶持接应工作，新中国联邦的执行力度势不可挡，亿万的团结精神和互爱互助，给这个凉薄的乱世带来了春光，带来了希望，带来了温暖，共同的信仰铸造成强大的力量，加快了灭共的脚步，2022年势必让中共在世界的舞台上成为最后的表演，快速的落幕！
+另据《[看中国](http://cn.secretchina.com/news/gb/2022/01/27/996269.html)》27日消息透露，将于2月4日开幕的冬奥尚未开始，涉奥人员已检测出129人阳性。同时，北京“环外”疫情也在燃烧。1月23日正式启动的 “泡泡”型“闭环”管理难阻奥密克戎（Omicron）病毒肆虐。
 
-文字版原文：[袍泽情](https://gnews.org/zh-hans/2067162/)
+- **延展阅读：**[**中共国在冬奥会前一周悄悄封锁120万人的雄安新区**](https://www.ndtv.com/world-news/beijing-winter-olympics-china-quietly-locks-down-area-near-beijing-a-week-before-winter-olympics-2734478)
 
-音频处理：Fei797
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+毋庸置疑，北京在奥密克戎（Omicron）肆虐下，一场危机四伏的冬奥会即将拉开序幕。但北京强调，“[按照传统，北京冬奥组委会将免费向运动员发放安全套，但不鼓励拥抱](https://7news.com.au/sport/winter-olympics/free-condoms-at-beijing-winter-olympics-but-hugs-discouraged-c-5474922)。”该消息称，尽管奥委会有严格的与社会隔离的 COVID-19 协议，但主办方仍提供免费安全套。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+路透社记者在位于闭环内的贵州宾馆入住时，在每个房间内发现了五个单独包装的安全套，**避孕套是“特大号”**。它们分别装在带有不同颜色中国灯笼形象的信封中。
+
+- **延展阅读：**[**习近平将出席北京冬奥会开幕式**](http://news.cnr.cn/native/gd/20220128/t20220128_525728626.shtml)
+- **延展阅读：**[**习近平为北京冬奥来访领导人设宴招待**](https://www.news18.com/news/sports/china-president-xi-jinping-to-host-banquet-for-visiting-leaders-at-beijing-winter-olympics-4708502.html)
+
+
+不知特大号安全套是否可以罩住在新疆犯下的“反人类罪”？但“路透社28日援引《南华早报》未具名消息人士的话报道，“[中国已同意让联合国人权事务高级专员在北京冬奥会后的 2022 年上半年访问新疆](https://www.arabnews.com/%E8%8A%82%E7%82%B9/2013701/%E4%B8%96%E7%95%8C)。”与此同时，[法新社](https://www.news18.com/news/world/un-says-no-rights-report-on-chinas-xinjiang-before-beijing-winter-olympics-4709741.html)表示，“联合国称不会在北京冬奥会前发布关于中国新疆的人权报告”。
+
+2021年1月29日
+
+文字版原文：
+[北京冬奥前闭环内外疫情燃烧，特大安全套或是最佳体验 – GNEWS](https://gnews.org/zh-hans/1928139/)
+
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
