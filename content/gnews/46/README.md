@@ -2,35 +2,31 @@
 ---
 
 
-## 俄罗斯入侵，数千乌克兰人踊跃应征入伍：&#8221;乌克兰绝不跪下“
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2070023/)
+## 中日财经爆┃“作恶”被官司缠身！脸书裁撤核心技术团队
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070610/)
 
-翻译：不要代表我Kari
-校对：小熊
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-26.png)
-据报道，在乌克兰中部城镇曼基夫卡，数百人在市政厅外排队入伍。为应对俄罗斯入侵，乌克兰最近禁止 18 至 60 岁的男性离开该国，但尚未颁布军事征兵令。 据一份报告称，成千上万的民众争先恐后应征入伍，准备为保卫家园而战。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/04-2.png)
+[图片来源](https://www.google.com.hk/imgres?imgurl=https://v2.cimg.co/news/63547/35234/snapshot.jpg&amp;imgrefurl=https://thebittimes.com/metaverse-nfts-and-gaming-token-prices-soar-as-facebook-goes-meta-tbt5490.html&amp;tbnid=P77GUyLsgQBbAM&amp;vet=12ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ..i&amp;docid=vljlOet_P-mO9M&amp;w=1012&amp;h=674&amp;q=%20Meta%20%20metaverse&amp;ved=2ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ)
 
-据美国国家公共电台NPR报道，在乌克兰中部城镇曼基夫卡的市政厅外能看到数百人正在排队。”乌克兰绝不跪下，”其中一名入伍者告诉该媒体。”我们会把这些混蛋赶出我们的土地”。
+近日，有媒体报道，全球最大社交媒体公司脸书（Meta Platforms）已经解散了一个由300多名员工组成的团队，这些员工为该公司的AR和VR设备开发操作系统。鉴于该系统是元宇宙的关键技术，这让本已官司缠身的脸书前景更加黯然。
 
-俄罗斯入侵乌克兰：实时更新
+而1月5日，Meta曾回应“停止开发VR/AR系统”传闻称，其并未计划停止“为VR/AR设备开发操作系统”。
 
-报道称，另一名急于报名并于周五入伍的男子是沃洛迪米尔·奥梅利安Volodymyr Omelyan。”我不是天生的杀手，我从未梦想过成为那种人，”2016-2019年担任乌克兰基础设施部长的奥梅利安Omelyan告诉该媒体。奥梅利安说，他入伍主要是为了保护他的家人。他坚信，乌克兰人民将在卫国战中胜利。”我们一定会赢的，”他告诉美国国家公共电台NPR。
+去年10月28日，脸书由FaceBook更名为Meta，宣布全面进军元宇宙(metaverse)。而脸书更名的时机，正面临用户和监管广泛的批评，并深陷“滥用管理权”、“侵犯用户隐私”等多起重大法律诉讼。
 
-驻扎在兹米伊岛Zmiinyi（又称蛇岛）的13名士兵遭遇了一艘俄罗斯军舰，他们的反抗更能完美诠释乌克兰部队的战斗精神。”俄罗斯军舰，去死吧”，其中一名卫兵朝军舰的方向怒吼，当时整个事件被全程直播。
+自2020年初中共病毒（新冠病毒Covid-19）肆虐全球开始，脸书与推特、谷歌等社交媒体巨头，与中共为首的世界邪恶势力勾兑、为虎作伥，特别是滥用平台和数据管理的权力，对中共病毒和疫苗真相信息进行恶意压制，为强制疫苗政策推波助澜，给全人类带来重大灾难。
 
-乌克兰总统沃洛基米尔-泽伦斯基（Volodymyr Zelenskyy）周四晚间证实，13人最终全部阵亡。
+郭文贵先生多次断言，脸书、推特等社交媒体必将为其作恶付出沉重代价，甚至被诉讼至破产或消失。而脸书裁撤核心技术团队是值得关注的重要标志性事件。
 
-总统宣布，这13名士兵将获得 “乌克兰英雄 “的追授荣誉。
+信息来源：
 
-原文链接：[https://www.foxnews.com/world/ukraine-army-enlist-russia-invasion](https://www.foxnews.com/world/ukraine-army-enlist-russia-invasion)
+[Meta解散AR和VR操作系统开发团队](https://www.163.com/dy/article/H138LTGF05198CJN.html)
 
-发布：tianzhihuan
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
 
-更多资讯，请关注：[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

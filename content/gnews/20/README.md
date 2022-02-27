@@ -2,30 +2,21 @@
 ---
 
 
-## 欧盟和美国同意将俄罗斯银行踢出SWIFT
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2073938/)
+## 视频|再次揭露HBO精心编织的谎言Part11
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2073974/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-41.jpg)
-图片来源：6do.news
+制作：香草山视频部
 
-零对冲网2月26日报道，最近的大动作是，周六下午欧洲国家与美国联合起来发表联合声明，宣布下列经济限制措施：
+近年来，中共通过蓝金黄等手段控制了世界上大部分的主流媒体和社交媒体，人们被迫只能接收到错误的信息和谎言，更甚者，中共还通过操控媒体掩盖其伤人、杀人的恶行。鉴于此种情形，郭文贵先生建立的GTV平台作为一个揭露中共邪恶的媒体，其一直在与目前世界上的所有虚假信息抗争。
 
-1. 实施针对”被选择的俄罗斯银行”移除SWIFT系统，“这将使这些银行脱离国际金融系统并损害他们对全球的操纵能力”。
+然而，在HBO Vice 的剪辑视频中，杨贝贝将爆料革命战友对GTV的投资抹黑为一项欺诈计划。在此，我们将通过本期视频回顾中共对媒体的操控以及其对GTV投资者的迫害，来揭穿杨贝贝的这一污蔑。请收看揭露HBO精心编织的谎言第十一部分。
 
-2. 实施加强“限制性措施将防止俄罗斯中央银行试图妨碍我们的制裁而部署其国际联储。
+发稿：林礼
 
-3. 实施针对那些帮助打乌克兰战争的个人和企业的行动，包括限制那些人的买卖，即与俄罗斯政府有联系的富有的已成为公民的俄罗斯人，又称金护照。
-
-4.实施“跨大西洋任务力量以确保金融制裁措施得到有效的执行，在我们的司法管辖范围内针对相应的个人和企业实行财产冻结。
-
-5. 加紧并协调针对混合战争中的虚假信息和其他形式的行动。
-
-欧盟委员会主席乌苏拉·冯德莱恩说普京旨在毁掉乌克兰，但他事实上正在做的是毁掉自己国家的未来。
-
-一位曾在川普任上的财政部制裁部门官员说：” 拜登政府逐渐开始采纳真正有力量的制裁，其实前几天就应该这样做了。”
-
-##### 新闻来源： [EU, US Agree To Expel “Selected Russian Banks” From SWIFT, Sanction Russian Central Bank](https://www.zerohedge.com/geopolitical/devastating-move-us-weighs-sanctions-russias-central-bank-germany-backs-targeted)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
