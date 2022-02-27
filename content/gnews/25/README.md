@@ -2,51 +2,110 @@
 ---
 
 
-## 俄罗斯威胁芬兰和瑞典:若加入北约可能面临严重后果
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2071792/)
+## 必须立即在财政和外交上切断俄罗斯
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2071981/)
 
-**翻译：不要代表我Kari
-编辑：Candy**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/俄乌.png)图片来源：BBC网
+**参议员玛莎·布莱克本**： 必须立即在财政和外交上切断俄罗斯。 这就是为什么我提出决议案，以帮助鼓励我们的北约伙伴和联合国将俄罗斯从SWIFT银行系统和联合国安理会中除名。 【附视频，玛莎在福克斯上谈到她提出决议案要将俄罗斯踢出SWIFT系统，以阻止俄对其战争的支撑，并阻止中共对俄的经济支持。另外指出中、俄、伊朗、朝鲜 为新的邪恶轴心国。】
 
 
-**有30个联盟国成员没有参与俄乌冲突**
 
-一名俄罗斯官员周五向芬兰和瑞典发出警告及威胁：如果这两个国家打算加入北约，将产生 “严重的军事和政治影响”。
+> Russia must be cut off financially and diplomatically immediately. 
+> 
+> That’s why I’m introducing resolutions to help encourage our NATO partners and the UN to remove Russia from the SWIFT banking system and UN Security Council. [pic.twitter.com/FNtuk5KxvQ](https://t.co/FNtuk5KxvQ)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 26, 2022](https://twitter.com/MarshaBlackburn/status/1497702216001630216?ref_src=twsrc%5Etfw)
 
-在一次新闻发布会上，俄罗斯外交部发言人玛丽亚·扎哈罗娃（Maria Zakharova）发表了上述言论，因为俄罗斯军队在无端入侵邻国后继续与乌克兰军队作战。
 
-她在一个视频短片中说：“芬兰和瑞典不应该把他们的安全建立在损害其他国家安全的基础上，他们加入北约可能会面临一些军事和政治上不利的后果。”
 
-俄外交部后来在Twitter上发布了同样的威胁。该推文写道：“我们认为芬兰政府对军事不结盟政策的承诺是确保北欧安全和稳定的一个重要因素，芬兰加入NATO将产生严重的军事和政治影响。”
+**众议员李·泽尔丁**： 这个男人，乌克兰总统沃洛德米尔·泽连斯基，作为世界历史上最优秀、最勇敢的领导人之一，瞬间浮现在我们眼前。
 
-芬兰大使米科·豪塔拉（Mikko Hautala）在一条推文中说，与北约的伙伴关系 “非常重要”。他写道：“与该联盟的伙伴关系对我们非常重要。在保持强大的国防防御力量的同时，我们保留申请加入的机会，就其安全政策作出决定是每个国家的主权权利。”
 
-乌克兰领导人表达了加入北约的愿望，但俄罗斯表示强烈反对扩大这个有着30个成员国的联盟，特别是在俄罗斯的邻国乌克兰的边界。
 
-截至周五，俄罗斯军队正在逼近乌克兰首都基辅，但美国情报专家表示，乌克兰的抵抗力度比预期的要大。为了保卫国家，政府已经向志愿加入战斗的公民发放了武器。
+> This man, Ukraine President Volodymyr Zelenskyy, is instantly emerging before our eyes as one of history’s best and most courageous leaders in the world. [pic.twitter.com/6Ix7qmmHCV](https://t.co/6Ix7qmmHCV)
+> — Lee Zeldin (@RepLeeZeldin) [February 26, 2022](https://twitter.com/RepLeeZeldin/status/1497595866420555778?ref_src=twsrc%5Etfw)
 
-北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）周四表示，如果莫斯科发动攻击，联盟将保卫其成员国。
 
-周五他表示：在俄罗斯总统弗拉基米尔·普京（Vladimir Putin）威胁北约，要求北约成员国撤军，否则会面临严重后果后，北约部署了其集体安全反应部队。
 
-斯托尔滕贝格（Stoltenberg）说：“这远远超出了乌克兰问题，这是关于俄罗斯如何实际挑战、争夺我们安全的核心价值。然后警告说，北约应该从我们几乎一半的成员中撤出所有部队和基础设施。
+**参议员汤姆·科顿**： 倒掉所有俄罗斯伏特加酒，将空瓶子连同弹药和导弹一起送到乌克兰，用来制作燃烧瓶。 【转纽约邮报：俄罗斯伏特加从美国、加拿大酒吧和酒类商店的货架上撤下：“每一件小事都会带来不同”】
 
-北约没有参与冲突，也没有派遣任何部队帮助保卫乌克兰。周四拜登总统说，如果俄罗斯军队进入北约成员国，美国可能会介入。”
 
-他谈到普京时说：“如果他真的进入北约成员国，我们将参与其中，我们将参与其中。”
 
-原文链接：[Russia says Finland, Sweden could face consequences if countries move to join NATO](https://www.foxnews.com/world/russia-finland-sweden-nato)
+> Dump all the Russian vodka and, alongside ammo and missiles, send the empty bottles to Ukraine to use for Molotov cocktails. [https://t.co/Md5MlDcmXn](https://t.co/Md5MlDcmXn)
+> — Tom Cotton (@TomCottonAR) [February 26, 2022](https://twitter.com/TomCottonAR/status/1497585395114127367?ref_src=twsrc%5Etfw)
 
-***发布：Candy***
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+**参议员瑞克·斯科特**: 我正在敦促美国证券交易委员会[@SECGov](https://twitter.com/SECGov) 主席加里·根斯(Gary Gensler)解决在美国交易所运营的 [#中共](https://twitter.com/hashtag/中共?src=hashtag_click) 控制的公司所构成的威胁。我们必须利用一切资源保护美国投资者和我们的市场。 【附参议院官网：斯科特议员呼吁美证券交易委员会主席保护美国投资者免遭中共控制的公司带来的风险】
+
+
+
+> I’m urging [@SECGov](https://twitter.com/SECGov?ref_src=twsrc%5Etfw) Chair Gary Gensler to address the threats posed by Communist Chinese-controlled companies operating on U.S. exchanges. We must use every resource to protect American investors & our markets. [https://t.co/ZE1Q6ODfiA](https://t.co/ZE1Q6ODfiA)
+> — Rick Scott (@SenRickScott) [February 26, 2022](https://twitter.com/SenRickScott/status/1497622724532912141?ref_src=twsrc%5Etfw)
+
+
+
+**参议员汤姆·科顿**： 我们应该立即将俄罗斯逐出 SWIFT 系统，并制裁俄罗斯的中央银行。
+
+
+
+> We should expel Russia from SWIFT immediately, and sanction Russia's central bank.
+> — Tom Cotton (@SenTomCotton) [February 26, 2022](https://twitter.com/SenTomCotton/status/1497596909778718727?ref_src=twsrc%5Etfw)
+
+
+
+**美国务卿布林肯**： 今天，我授权国防部 [@DeptofDefense](https://twitter.com/DeptofDefense) 立即向乌克兰提供额外的 3.5 亿美元军事援助，以帮助保护其自己免受俄罗斯无端又无理的战争侵害。 [#与乌克兰团结一致](https://twitter.com/hashtag/与乌克兰团结一致?src=hashtag_click)[#UnitedWithUkraine](https://twitter.com/hashtag/UnitedWithUkraine?src=hashtag_click)
+
+
+
+> Today I authorized the [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) to provide an additional $350 million in immediate military assistance to Ukraine to help defend itself from Russia’s unprovoked and unjustified war. [#UnitedWithUkraine](https://twitter.com/hashtag/UnitedWithUkraine?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Secretary Antony Blinken (@SecBlinken) [February 26, 2022](https://twitter.com/SecBlinken/status/1497562842735812608?ref_src=twsrc%5Etfw)
+
+
+
+**众议员迈克·沃尔茨**： 谢谢荷兰。这些毒刺导弹早就应该使用了。 【转路透社：荷兰向乌克兰提供反坦克防空火箭 荷兰政府周六在致议会的信中表示，荷兰将向乌克兰提供防空火箭和反坦克系统。 信中说，荷兰同意乌克兰的要求，迅速运送200枚毒刺防空火箭和50枚配备400枚火箭的“Panzerfaust 3”反坦克武器。 并说，荷兰还正在与德国联合考虑向斯洛伐克的一个北约战斗群派遣爱国者防空系统。】
+
+
+
+> Thank you Netherlands. These Stinger missiles are long overdue. [https://t.co/YHiNtKTBk5](https://t.co/YHiNtKTBk5)
+> — Rep. Mike Waltz (@michaelgwaltz) [February 26, 2022](https://twitter.com/michaelgwaltz/status/1497609254588633092?ref_src=twsrc%5Etfw)
+
+
+
+**参议员泰德·克鲁兹**： 让我提出一个简单的原则：大就是坏。 大政府、大科技、大好莱坞、大大学，都很糟糕。 任何权力的累积和集中对个人自由都是极其危险的。 [#CPAC2022](https://twitter.com/hashtag/CPAC2022?src=hashtag_click)
+
+
+
+> Let me suggest a simple principle: Big is bad.
+> 
+> Big Government, Big Tech, Big Hollywood, Big Universities suck.
+> 
+> Any accumulation and centralization of power is fundamentally dangerous for individual liberty. [#CPAC2022](https://twitter.com/hashtag/CPAC2022?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YqglyHcHWz](https://t.co/YqglyHcHWz)
+> — Ted Cruz (@tedcruz) [February 26, 2022](https://twitter.com/tedcruz/status/1497584596568969223?ref_src=twsrc%5Etfw)
+
+
+
+**众议员马乔里·泰勒·格林**： 美国未来外交政策唯一的选择，就是迅速重回让美国伟大的道路。 不再依赖全球经济。 不再与 [#中共国](https://twitter.com/hashtag/中共国?src=hashtag_click) 和俄罗斯进行重要供给品的贸易，他们结盟起来反对我们。 现在正是美国优先的时候！
+
+
+
+> America’s only option for foreign policy going forward should be to rapidly move to return to American greatness.
+> 
+> No more dependance on the global economy.
+> 
+> No more trade for critical supplies with China and Russia, who are aligned against us.
+> 
+> The time is now for America First!
+> — Rep. Marjorie Taylor Greene (@RepMTG) [February 26, 2022](https://twitter.com/RepMTG/status/1497560984323596292?ref_src=twsrc%5Etfw)
+
+
+
+**众议员兰斯.古登**： 立即禁止俄罗斯使用 SWIFT 系统 — 而不是几天后！
+
+
+
+> Ban Russia from SWIFT now — not days from now!
+> — Lance Gooden (@Lancegooden) [February 26, 2022](https://twitter.com/Lancegooden/status/1497653898932375559?ref_src=twsrc%5Etfw)
+
+
 
  
 

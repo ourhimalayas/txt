@@ -2,35 +2,39 @@
 ---
 
 
-## 大直播后记：战争疫苗灾难恶性通胀，民不聊生导致排华
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2072120/)
+## 有声|面对
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072190/)
 
-整理：流氓兔、sadhu
-编辑：文泓
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我希望世界和平！我希望世界没有战争！我希望各国人民安居乐业！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-49.png)图片来源：雅典娜设计组
+也许不少人与我有同样的愿望，但往往事与愿违。随着中共病毒的肆虐，加拿大卡车司机反疫苗运动，俄乌战争的残酷爆发，在有人类生存的土地上都弥漫着生离死别的揪心场景⋯⋯，然而面对着恐惧，坚强的民众没有退缩，继续为自由民主努力抗争！
+
+从一则视频反观自己民族人性的口德展现，作为同族我真感无地自容。落井下石，幸灾乐祸，口出恶言都不足以形容对那些小粉红的厌恶。
+
+在这风云变幻无常的残酷世界，文贵先生领导新中国联邦人团结一心，伸出援手救助有需要的人，以一个全新美好健康的形象展现在世人面前。见证历史，坚守我们的信念，新中国联邦明天充满希望！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/0219-4-c-1-768x432-1.jpg)
 
 
-嘉宾提问：
+文字版原文：[面对](https://gnews.org/zh-hant/2071117/)
 
-我们住在纽约，现在所有日常用品物价都在大涨，无论是超市商品，还是日常的水电费账单。供电公司还给我们发了一封邮件，为调整账单而抱歉，原因是因为资源价格持续上涨。现在乌克兰战争期间，如果中共再攻打台湾的话，价格将继续上涨，届时美国人因目前的高失业率，是否因为生活非常困难而上街最终演变成街头政治？今年5月份的疫苗灾难到来之际会不会逐渐演变成一种强烈的反华情绪，从这个街头政治演变成排华运动？
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-郭先生答复：
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-这两样你问的都会发生的，那是一定会发生的，不仅是在美国，而是在全世界。给你们举两个最简单的例子吧。兄弟姐妹们你们身上穿的（衣服）布料，所有全世界的布料生产地方几乎75%来自亚洲，不光是所有的布料，包括现在的目前我们生活中的一些东西都在亚洲生产，因为亚洲有世界50%的人口，甚至达60%人口都生活在亚洲，世界上高科技产品40%到50%的需求在亚洲，而生活必须品、轻工产品亚洲提供世界70%到80%。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-那么，在这种情况下，我们看到高科技产品所需要的一些必须原料，稀土、铜矿产品75%到80%来自于亚洲，来自这些动荡地区。全世界的供应链里边最重要的是海运，占了（运输量）70%以上，然而这所有的海域都是被动荡地区给裹进去了（供应链影响很大）。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-现在疫苗这个问题，它对人类的生产力的影响几乎是30%，就是说现在物价涨50%，是非常公平的。因为疫苗危机影响生产力30%，导致所有的成本都提高了。随着5月份疫苗危机爆发后负面影响进一步的提高，它的影响可能是50%，所有的产品（成本）都涨了50%，人家给你涨价一倍也不高。如果再遇上供应链和街头政治运动的反抗和动荡，供应链最核心就是人工时间和人工（工资），还有是基本的物理成本，这三样东西时间成本高了，人工成本高了，关键的问题，它的物理成本，因为动荡它也高了，这三样加在一起，最后谁也无法控制的住，商家给你加一倍，加三倍都是正常的。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-资料来源：[2022年2月25日 文贵大直播](https://gettr.com/streaming/pwroklf1f7)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
