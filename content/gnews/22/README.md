@@ -2,16 +2,14 @@
 ---
 
 
-## 俄罗斯爆发大规模反战示威 3000多人被拘捕
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2074727/)
+## 日本正式决定将部分俄罗斯银行从SWIFT剔除
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2074748/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-8.jpg)[图片来源](https://jp.reuters.com/article/ukraine-crisis-russia-protests-idJPKBN2KT3FQ)
-据莫斯科法新社时事报道，俄罗斯人权组织OVD Info 26日表示，在普京24日开始入侵乌克兰后的三天内，至少有3052名俄罗斯人因反战活动被当局拘留。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片6-5.jpg)
+27日晚，岸田首相声明，将数家俄罗斯银行从SWIFT剔除。
 
-OVD 信息，根据推特上的一篇帖子，仅26日就有467人在34个城市被拘留。
-
-信息来源：[反戦活動で3000人超拘束　ロシア（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/8991fd0ff0aa5d50112f6bdc82eafc7e2bf52042)
+27日晚，岸田首相声明，由于俄罗斯侵略乌克兰，日俄关系也已难回到从前。日本将与七国集团与国际社会保持一致，对俄罗斯采取更严厉的制裁；西方国家今天上午发表的声明指出，将俄罗斯孤立于国际金融体系和全球经济之外，包括将某些俄罗斯银行排除在SWIFT之外，日本也将采取同样措施。同时，岸田首相强调，日本一直在与国际社会，包括七国集团保持密切合作，这一立场不会改变。
 
 *校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*
