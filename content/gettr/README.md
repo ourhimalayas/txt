@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/27/2022 5:08 PM (UTC)`
+
+2月27号：我尺R你共产党人八倍祖宗，救你们的家人就安全有条件！救我们老百姓就是条件不允许？【为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。<br/><br/>救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。<br/><br/>24小时救援联系方式如下：<br/><br/>邮箱：<br/>ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO<br/>电话和短信：+1 720-657-6776 或 +1 719-224-4232<br/><br/>新中国联邦<br/>法治基金 <br/>2022年2月26日<br/><br/><br/>In response to the current Ukraine crisis, the New Federal State of China and the Rule of Law Foundation are to cooperate with UN aid organizations to offer international humanitarian rescue assistance to those in need of voluntary evacuation. Free of charge flights will be arranged to help evacuate persons in need to certain safe transit countries, and accommodation without charge will be offered for up to 30 days. Eligible persons may 】
+![img](https://media.gettr.com/group11/getter/2022/02/27/17/b2ce0bc4-eb24-7827-bd47-eae8d877a53f/out.jpg)
+
+---
+
+`@miles 2/27/2022 5:01 PM (UTC)`
+
+2月27号：肉窝饼来了……吃饭饭喽……
+![img](https://media.gettr.com/group26/getter/2022/02/27/17/76ad0984-9b03-860b-097e-e98a4ca16203/out.jpg)
+
+---
+
 `@miles 2/27/2022 4:37 PM (UTC)`
 
 2月27号：中国人的被洗脑和奴隶教育的结果，所造成的危害⚠️是无法想象的。［七哥您好! 中共对在乌中国人不管不顾，已经变成国际性的丑闻。🙏🙏🙏🙏 ］<br/><br/><br/>https://www.voachinese.com/a/china-postpones-evacuation-of-citizens-in-ukraine-20220227/6461796.html?utm_source=twitter&utm_medium=social&utm_campaign=dlvr.it&s=08
@@ -137,21 +151,6 @@ February 26th, 2022, Mr. Miles Guo’s Urgent Livestream: our rescue operation i
 
 2/26/2022 Miles Guo: The goal of GEDU education in the New Federal State of China is to unbind. Education cannot be kidnapped by politics and money; a series of measures should be taken to create a personalized educational environment that is conducive to student growth.<br/><br/>2/26/2022 文贵直播：新中国联邦的GEDU教育的目标就是松绑；教育不能被政治和金钱绑架；要通过一系列的措施打造个性化的有利于学生成长的教育环境。<br/>
 ![img](https://media.gettr.com/group32/getter/2022/02/26/23/8c795aab-309d-c5ff-82fa-ab5168c0c962/out.jpg)
-
----
-
-`@miles 2/26/2022 10:56 PM (UTC)`
-
-2月26日：尊敬的战友们好，马上将开始大直播。关于去乌克兰对新中国联邦的战友和亲人……家人。所有的中国同胞……美国🇺🇸人在乌克兰战区被困的朋友们的紧急救援行动！
-![img](https://media.gettr.com/group47/getter/2022/02/26/22/2db0f82b-6695-0c88-fdf6-49aa850900d4/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@qifeng 2/26/2022 6:00 AM (UTC)`
-
-2020年俄罗斯最火的反战歌曲<br/>https://youtu.be/RqincLouHsE?t=24
 
 ---
 

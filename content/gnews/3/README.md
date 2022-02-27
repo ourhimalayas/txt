@@ -2,29 +2,32 @@
 ---
 
 
-## 【秘翻在线】乌克兰百姓自制燃烧瓶应对俄军入侵
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2076148/)
+## 有声|袍泽情
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2076252/)
 
-#### 翻译/撰稿：zzballack
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2月24日七哥紧急直播，因俄乌开战，导致台湾战争一触即发，深爱战友的七哥担心台湾战友们，国内战友们的安危，紧急通知台湾同胞墙内战友尽快做好安全措施和撤离准备工作，七哥在直播中多次呼吁台湾战友，国内战友远离中共的战争地区，军事地点，保护自己，保护家人。提醒联盟把中共军事基地详细地址一览发放战友传阅，早日做出防范措施，避免成为土共的炮灰。在这世界经济危机临近崩溃时刻，普习利用一场战争来掩盖经济危机和缓解个人危机的目标非常明确，独裁为维护政治地位，不惜挑起战争，加剧人类灾难。随着乌克兰的局势紧张，对台蓄谋已久的中共会随时对台发生战争，七哥担心战友们安危，要求各农场紧急召开会议，协助、帮助台湾同胞尽快安置到安全地区，聚集战友的力量起到互相扶持互相呼应。
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2595.png)   图片来源：自由欧洲电台
-《布雷特巴特新闻网》（Breitbart News）2月27日报道说，根据全球多家媒体机构的大量报道，当俄军坦克包围乌克兰首都基辅的时候，驻扎在地铁区的乌克兰百姓正在自制燃烧瓶(Molotov cocktail，莫洛托夫的鸡尾酒)，以抵御俄军入侵。
+长岛伟哥和联盟考虑到目前紧张局势，针对墙内战友和香港、台湾战友撤离需要寻求协助，迅速直播安排各农场开展救缓工作，集合全球有救助资源的战友，为台湾战友，墙内战友做最好的安全部署，联盟公告一出，提供救助资源的战友纷纷行动，提供吃住用行的资源力量层出不穷，到25 号美、各地区十个农场团队已经准备就绪，在八个主要城市设有战友接待服务站，给来自台湾、香港、澳门、墙内的爆料革命战友提供全方位的服务。
 
-英国BBC周日（2月27日）[报道](https://www.bbc.com/news/live/world-europe-60542877)说：“在普京下令其军队入侵乌克兰的那一天，英语老师阿丽娜（Arina）计划在下班后上一堂舞蹈课，然后参加一个派对。但三天后，她却在一个公园里制作燃烧瓶。她和其他几十名妇女一起蹲在草地上，把聚苯乙烯（Polystyrene）块当作奶酪一样磨碎，把床单撕成破布，用于制作瓶子炸弹（bottle-bombs）。这样的场景对欧洲的大多数人来说是无法想象的，即使在这里，这样的情景也是无法想象的。”
+同时纽约香草山及时紧急【热点播报】传播保命，保财！警告远离军事基地！公布了详细的军事设施位置图，要求战友们务必保护自己及家人做出相应的安全措施
+这才刚过去二十几个小时，各农场已经具备了良好的扶持接应工作，新中国联邦的执行力度势不可挡，亿万的团结精神和互爱互助，给这个凉薄的乱世带来了春光，带来了希望，带来了温暖，共同的信仰铸造成强大的力量，加快了灭共的脚步，2022年势必让中共在世界的舞台上成为最后的表演，快速的落幕！
 
-《洛杉矶时报》2月26日也[报道](https://www.latimes.com/world-nation/story/2022-02-26/russia-attack-ukraine-kyiv-civilians-arms-molotov-cocktails)了类似事件：“星期六，乌克兰首都一条安静、不起眼的街道上的一个三层地下室里，24岁的奥尔加将大块的泡沫塑料(Styrofoam)捏碎，将她手中的白色卵石放入摆在她面前的混合了桑格利亚（sangría）酒、必富达金酒（Beefeater gin）、啤酒和葡萄酒的瓶子里。奥尔加是一家制图公司的项目经理，为了安全，她要求不公布她的全名。她是一个由五人组成的燃烧瓶组装小组的一员。当她和另一名妇女压碎泡沫塑料时，她们身边的一男一女小心翼翼地将燃料和油倒入一个漏斗，将混合液渗入瓶子。在他们旁边，一个人将由桌布和窗帘的碎布制成的灯芯沾满燃油，然后用一小段麻绳将灯芯紧紧绑在瓶口上。”
+文字版原文：[袍泽情](https://gnews.org/zh-hans/2067162/)
 
-奥尔加说：“我两周前辞去了旧工作，本该在周一开始新工作。我从来没有想到我会干这个。相比于这个，我肯定愿意从事新工作。但目前制作燃烧瓶更为重要。”
+音频处理：Fei797
+发稿：Fei797
 
-乌克兰国防部2月25日通过其官方推特呼吁民众制作燃烧瓶，以协助国防。他们在推特上发布了一个教学视频，指导人们如何自制这种武器。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-纵览古今中外，战争最大的受害者往往都是无辜百姓。人类的贪婪和欲望导致纷争不止、战乱无数，真诚祈祷世界和平。
-
-新闻来源：[Ukrainian Civilians Make Molotov Cocktails to Fight Russia](https://www.breitbart.com/europe/2022/02/27/ukrainian-civilians-make-molotov-cocktails-to-fight-russia/)
-
-[Making Molotov Cocktails, Ukrainian Civilians Prepare To Defend Homes](https://www.rferl.org/a/ukraine-molotov-cocktail-russia/31725286.html)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
