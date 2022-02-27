@@ -2,20 +2,26 @@
 ---
 
 
-## 邪恶的国家里，教育是统治者的工具
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2071875/)
+## 俄乌快讯：德国和西方盟友同意将俄罗斯踢出SWIFT系统
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2071950/)
 
-#### 視頻剪輯: WinterGuo ；開智則立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蝸牛 ；牛魔王
-視頻定位：BENJ1；WEI
+翻译：冰糖葫芦喵
 
-*发布：陶子*
+编辑与校对：冰糖葫芦喵
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+《路透社》柏林2月26日报道，**周六，德国政府发言人表示，德国及其西方盟友同意将俄罗斯排除在SWIFT全球支付系统之外，这是旨在阻止俄罗斯入侵乌克兰的第三项制裁措施。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德国总理.jpg)**德国总理朔尔茨（Olaf Scholz）**（图片来源：网络）
+报道指出，**与美国、法国、加拿大、意大利、英国和欧盟委员会达成协议的制裁措施还包括限制俄罗斯央行支持卢布的能力。**
+
+这位德国发言人说，**制裁还将结束俄罗斯富人及其家人的“黄金护照”，并将针对俄罗斯和其他地方支持对乌克兰战争的个人和机构。**
+
+他补充说:“如果俄罗斯不停止对乌克兰的攻击，进而破坏欧洲的和平秩序，他们愿意采取进一步更严厉的措施。
+
+**新闻链接：**
+
+[Germany and Western allies agree cutting Russia out of SWIFT | Reuters](https://www.reuters.com/world/germany-western-allies-agree-cutting-russia-out-swift-2022-02-26/)
+
+
 
  
 

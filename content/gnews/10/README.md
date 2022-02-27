@@ -2,8 +2,8 @@
 ---
 
 
-## 最好的教育是消除社会不平等的工具
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2071927/)
+## 找到稳定校长和老师
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2072019/)
 
 #### 視頻剪輯: WinterGuo ；開智則立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蝸牛 ；牛魔王
 視頻定位：BENJ1；WEI
