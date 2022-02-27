@@ -2,38 +2,26 @@
 ---
 
 
-## 美国医学专家反对全面疫苗计划
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2072863/)
+## 居家隔离！港共政府预备了逾10万条电子手环
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2072903/)
 
-作者：纽台湾宝岛农场 – dobi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒2月26日报导，在1月24日一个与疫苗有关的座谈会上，美国多位前线医生、医学专家和疫苗受害者，都针对中共病毒疫苗的安全性，即是否应强制人民打疫苗以及孩童是否需要打疫苗等问题表示出高度质疑。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-25.jpg)
-原尔湾分校精神病学副教授和医学伦理学项目主任认为，相关公共卫生部门不想承认政策失败，但事实是大规模接种疫苗并没有抑制病毒传播，甚至奥密克戎变种出现后，美国的感染人数大幅提高了。
+香港疫情大爆发，上周港共政府准备实施「疫苗通行证」，为了加强推行毒疫苗注射，来对港人的出行进行限制。
 
-一位曾经的疫苗计划推手则表示，他并不支持全面的疫苗计划，尤其是不能让孩童接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/LDjgQvzdZL82yYpbU0x93oWPXwCUitlCG9r2hxva9oc.jpg)图片来源：香港01
 
-评论人士认为：所有勇于揭露或试图力挽疫苗灾难狂澜、有良知的科学家、医生、学者或是疫苗受害者等都是值得肯定的，邪恶的疫苗计划必须尽快摧毁，以避免更大的人类灾难。
+如今香港感染中共病毒人数日日攀升，医院病人爆满，港共政府以“防止进一步拖垮医疗系统”为由，开始推行“居家隔离”计划。创新及科技局局长薛永恒27日表示，港共政府预备了逾10万条电子手环，亦会订购更多，强调手环供应以应付需求，但即使已不断安排人手派发，惟确诊数目上升需要更多时间。
 
-参考链接：
+简评：中共吃香港，为了动台湾！中共侵台在即，香港有着重要的地理位置，港共政府从“疫苗通行证”到“居家隔离”与“电子手环”，借疫情对港人的管控越来越严格。港人保重，中共远比疫情可怕，中共不灭没有人安全！
 
-- [醫學家雲集 談自然免疫和接種疫苗免疫（上）](https://www.epochtimes.com/b5/22/2/26/n13606046.htm)
-- [來自頂級免疫學家的怒吼—“歷史必將對疫苗狂人進行審判”](https://gnews.org/zh-hant/1854776/)
+新闻来源：[香港01](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/740822/%E5%B1%85%E5%AE%B6%E9%9A%94%E9%9B%A2-%E5%B7%B2%E5%82%99%E9%80%BE10%E8%90%AC%E6%A2%9D%E9%9B%BB%E5%AD%90%E6%89%8B%E7%92%B0-%E8%96%9B%E6%B0%B8%E6%81%92-%E6%9C%AA%E4%BE%86%E4%B8%8D%E6%96%B7%E6%9B%B4%E6%96%B0%E5%AE%89%E5%BF%83%E5%87%BA%E8%A1%8C)
 
+撰稿/发布：一叶知秋
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

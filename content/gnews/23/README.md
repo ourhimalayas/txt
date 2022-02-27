@@ -2,60 +2,49 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“双龙计划”（三）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2072771/)
+## 一周疫情、疫苗信息汇总
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2072839/)
 
-整理：tianzhihuan
-编辑：新世纪
+作者：香草山医疗部 – Zion文恩；DC农场 – 火来；香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年2月15日至2月22日，除中共国外，全球新增中共病毒确诊患者1247万例，同比上周下降了13.16%，已经连续三周呈现下降趋势;  此外，本周新增确诊死亡病例67521例，同比上周下降了5.94%，进入2022年一季度以来，全球每周新增“中共病毒”死亡出现第二周下降。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1927.png)图片来源：墨尔本雅典娜设计组（614）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/11-37.png)
+
+截至2月22日，除中共国外，全球累计接种了76.1亿剂中共病毒疫苗，同比2月15日的接种数据增长了1.87%.
+
+本周，欧洲方面，瑞士政府宣布取消大部分卫生防疫限制，只要求在医疗中心和公共交通工具上戴口罩。瑞士同时也取消了疫苗接种证明等入境要求，但是对于来自高感染地区的游客，仍然实施较为严格的入境限制。奥地利政府也将在3月5日取消几乎所有的防疫限制。
+
+中东地区，以色列计划于3月1日取消病毒防疫限制措施，但是仍然决定为60岁以上的以色列人接种第四针疫苗。
+
+北美地区，2月21日，美国疾病预防控制中心CDC被媒体爆出，隐瞒了3,300万18-49岁美国人施打的加强针数据，理由是担心它可能显示对这一年龄段的加强针无效，此举引发公众强烈反响。同在北美地区的加拿大，在2月23日，强行清理掉国会山抗议的卡车，逮捕、遣返司机，冻结部分抗议者与捐款者银行账户之后，加拿大总理特鲁多宣布撤销紧急状态法。
+
+此外，英国政府内部越来越倾向认定中共病毒来自武汉实验室泄露。2月20日，英国白金汉宫发布皇室声明，英国女王伊丽莎白二世中共病毒检测呈阳性，并出现了类似轻微感冒的症状。白金汉宫表示，女王将继续在温莎城堡履行轻松的公务，并接受医疗护理。
+
+参考链接：
+
+- [Suiza, Austria e Israel eliminan todas las restricciones, incluido pasaporte Covid y mascarilla](https://www.expansion.com/economia/2022/02/17/620e38a8468aeba46d8b467f.html)
+- [Israel to allow in all tourists regardless of COVID vaccination status](https://news.yahoo.com/israel-allow-tourists-regardless-covid-142826422.html)
+- [CDC is refusing to publish data it has collected on booster effectiveness for 33 MILLION Americans aged 18-49 over fears it might show the vaccines as ineffective: FDA expert tells CDC to ‘tell the truth’](https://www.dailymail.co.uk/news/article-10537161/CDC-refusing-publish-data-collected-booster-effectiveness-aged-18-49.html)
+- [UK government believes Wuhan lab leak most likely COVID-19 origin: report](https://www.foxnews.com/world/uk-government-covid-origins-wuhan-lab)
+- [Queen Elizabeth II tests positive for coronavirus, is experiencing ‘mild cold like symptoms,’ palace says](https://www.washingtonpost.com/world/2022/02/20/queen-elizabeth-covid-positive/)
+- [Trudeau revokes Emergencies Act, saying existing laws are enough to deal with protesters](https://edition.cnn.com/2022/02/23/americas/canada-trudeau-revokes-emergencies-act/index.html)
+- [The Queen tests positive for Covid](https://www.bbc.co.uk/news/uk-60453566)
 
 
-**资料来源：郭文贵2020年4月22日视频**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-但是，孙力军从2000~2012年，十八大以后，是陪着习近平、王岐山、孟建柱、许其亮、丁薛祥这些核心人物的。他是能够把中国的体制改变的最重要的一把刀，而且是具体的执行人，也是重要的知情人之一。
+总编：飞虹
+编辑：Ivy001；Zion文恩
+校正/发稿：海阔天空1
 
-孙力军在国家安全委员会，对习，包括习的秘书-朱雪峰这些人，包括总参和军科这些人，他都是完全可以监听的。对他来说，那完全是“参谋长吃西瓜”—那是军事的需要。
-
-他完全是监听来掌控国际、国内情报、技术；包括他管的政保一局，以及香港、台湾、海外整个情报网，他是核心的合法领导人。一带一路、2025、2035、2049所有的，他是合法的知情人。中共海外秘密军事基地的位置、数量，这些情报的掌握和运作，他是合法知情人。
-
-不但如此，对台湾“双龙计划”，香港他是主要执行人。对美国网络攻击、3F计划、BGY计划，参与人、执行人，这些方面王立军算个毛啊！王立军不管从那个角度来跟孙力军比，那都是侮辱了孙力军。
-
-**郭文贵2020年5月5日视频**
-
-我们所有听爆料革命的战友，你们心中有数，别糊弄你自己，你信不信你知道。这个世界上最可怕的是，信你不相信的东西；嘴上说你不信，但是你心理却相信它，那是悲剧、那是折磨、那是痛苦。
-
-从2017年我站出来的那一刻起，共产党死亡已经倒计数啦！这绝不是共产党有多娄，也不是郭文贵有多牛，也不是爆料革命有多了不起，这是天意！！就我说的，戴永革和曾伟、孙力军和吴征、杨娘娘、孟建柱、傅政华这样的人，能登大雅之堂，那这个国家就一点儿希望都没有了！这个党就更是烂到家了！上天就是让他们来灭共。严格讲，习主席，习近平同志是我们最好的战友。
-
-你看人家从2006年一上来，搞奥运会，然后十八大干掉令计划，干掉共青团；然后以“反腐运动”的名义搞掉百万党员，结果建立了党内最大的仇恨；然后在全世界搞2025、2035、2049，让全世界恐惧；人民币国际化把美国人给吓倒；扶持华为偷盗全世界技术，让美国，让全世界感到恐惧；然后建立最高的防火墙，让中国人变成傻子、聋子；然后这种爆发，反作用力都出来吧。
-
-这还不算数，搞香港、打台湾、搞“双龙计划”，玩擀面杖的经济；
-
-把王岐山弄成永久副主席，自己终身执政，当皇帝；把斯大林、希特勒、毛泽东三个人没干成的事儿我全干了！这还不算数，还在中东，全世界建立军事基地，把第一岛链五千公里到八千公里，提升到一万五千公里，打到美国去！潜水艇出现在曼哈顿，搞太空计划，区块链；大力发展卫星，北极星系统。
-
-然后让一切都归党，把私人企业家全部国有化，共产化；再把共产化的企业都我们这几家化，家族化；然后充分利用坏人王岐山、孟建柱、孙力军、吴征，用坏人整好人。建立党的仇恨、人民的仇恨；把私营企业家整死的整死，杀掉的杀掉，抓起来的抓起来，把企业的股权全部给拿回来。
-
-谁敢干这事儿啊，只有人家习主席啊！我那天不是说……然后了嘛，然后，然后挑战美国，直接挑战白宫，挑战川普总统。美国大选不是你们内部的事，两党竞争，是“我和你”的选择。现在，川普总统意识到了，对吧。
-
-然后骂班农、骂彭培、骂奥彭佩奥，大家注意到了吗？这次中央电视台骂的时候排第一号不是现任的国务卿彭佩奥，而是班农！所以，我前天告诉班农：你看了视频了吗？他说看了。我说，这意味着什么呢？啊，这是他们疯狂了！我说你根本不懂，核心的价值是你排在了第一位，连国务卿彭佩奥，哈佛第一名都排在了第二位。班农才反应过来说，哦,原来是这个！我说秘密在这儿呢，骂班农、骂彭佩奥、骂卢比奥、骂川普总统，然后骂Tom Cotton，所有人都骂，还骂彼得·纳瓦罗。
-
-到海外派潜伏的特务，举红旗，坚决支持党，不听话的抓；香港有人写书，抓！香港抓的、杀的一万多人，全是无怀疑的跳海死！然后马上过几天5.10，已经批了，5.10必须是停止香港运动的最后一天。啥意思啊？战友们，你看习主席多有魄力啊！马上下一周，香港的手足们，战友们，中央已经批示了，要把香港的5.10变成香港运动的最后一天。上街要你们要小心啊！
-
-战友们，你看看，这习主席是不是，咱最大的战友？是吧！咱咋能反习主席啊，你看看，谁能干得了这事啊，干不了啊！然后意识到问题了，把孙力军抓了、傅政华也抓了、孟建柱也抓了、杨娘娘也抓了，王毅这小子也不是好东西，也可能被抓。
-
-往期回顾：
-[文•贵天成——郭文贵先生谈“双龙计划”（一）](https://gnews.org/zh-hans/2027072/)
-[文•贵天成——郭文贵先生谈“双龙计划”（二）](https://gnews.org/zh-hans/2039172/)
-
-*发布：tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

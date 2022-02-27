@@ -2,28 +2,247 @@
 ---
 
 
-## 有声|财富的意义在于回归本源
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072965/)
+## 每日快报：文贵紧急直播，救援在乌克兰中国同胞和美国友人方案
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2073014/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月25日，郭文贵先生在大直播中与战友们分享了有关财富意义的话题。
+*作者：GSeries*
 
-郭先生表示，当一个人拥有的财富达到了取之不尽的地步，那财富就可能成为枷锁，让人产生恐惧，甚至随时可能因为财富丢了性命。但如果一个人能够跳出这个枷锁，学会放开和给予，比如帮助别人或救助动物，或者过一种默默无闻的生活，那财富就会帮他找回自己的本源，使其获得更加美妙的人生体验。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-文字版原文：[财富的意义在于回归本源](https://gnews.org/zh-hans/2068411/)
+# ***今日摘要***
 
-音频处理/发稿：Daxia
+1. **[救援在乌克兰中国同胞和美国友人方案](https://gtv.org/video/id=621ab888a391e321a0c853e5)**
+2. **[美国政府刚刚承认这是一场将决定谁将统治新世界秩序的战争](https://www.zerohedge.com/geopolitical/us-govt-just-admitted-war-will-determine-who-will-rule-new-world-order)**
+3. **[在普京破坏乌克兰的互联网后，埃隆-马斯克向乌克兰提供星链服务](https://www.thegatewaypundit.com/2022/02/breaking-elon-musk-makes-starlink-stations-available-ukraine-putin-disrupts-internet-capabilities/)**
+4. **[拜登和欧盟使用 “金融核选择”，将俄罗斯银行从SWIFT网络中移除](https://www.dailymail.co.uk/news/article-10555745/The-allies-promise-remove-Russian-banks-SWIFT-network.html)**
+5. **[欧洲准备迎接乌克兰难民潮](https://thehill.com/policy/international/595918-europe-braces-for-wave-of-ukrainian-refugees)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+# 重要事件
+
+**[02.27. GTV/Gettr：文贵紧急直播：救援在乌克兰中国同胞和美国友人方案](https://gtv.org/video/id=621ab888a391e321a0c853e5)**
+
+这是新中国联邦第一次参加国际救援，在联合国救援组织下，不涉及政治立场的，由法治基金和法治社会主导，到 乌克兰救援，包括 中国同胞、 美国 朋友，以及 国际友人。
+
+第一批将派出2架 飞机，陆续10架飞机会参加 救援。飞机上会标有 国际救援组织、 新中国联邦、 法治基金 和 法治社会 的标志和旗帜。飞机会返回：美国或欧洲某国（ 免签 的）。
+
+救援行动负责人安排，以 文贵先生 联盟 公告为准。草根小哥负责G系列后勤保障；老班长全面联络；大卫负责前线；长岛哥总协调；唐平，小福利负责直播；如水负责财务，以及法治基金财务对接。小李归大卫调度。文疯而动，文斌，飞飞进入直播组。
+
+七哥强调对救援行动小组的 3个要求：
+
+1. 准备一点当地的现金（碎钱），主要是欧元和美元；
+2. 千万不要好心当坏事，别做花里胡哨的的活，做实事；
+3. 不求名不求利，只求多救人，行动结果是最终评价的标准。
+
+
+救援 以：1.新中国联邦的 战友及亲友优先；美国友人；国际友人。包括小粉红，救援是不分种族，政治立场，宗教信仰，只要需要帮助的，就是救援的目标。 如果不能离开乌克兰的，我们也会给予 救援物资。10架飞机参加救援，以乌克兰首都 基辅 和 基辅周围 的几个机场为降落点， 下周5前会到达，之后每天2架。
+
+这个时候共产党渗透会非常严重，务必小心。安全很重要，不要用whatapp，文贵先生提供的单独软件，任何加入救援小组的都要绝对可靠。不容许私自外传，一旦出现异常，没收所有g币。这是救人，希望大家全力以赴。接受信息，由 联盟委员会 统一协调，24小时为战友服务。法制基金、 法制社会、联盟委员会也将提供至少30天的吃住用的补助，之后有需要会发起统一募捐。Gnews，gettr，GTV发文 务必准确。战争时候，一个错误的信息会造成很严重的后果。如果不准确，宁可不发！新闻发布 以 文贵先生GETTR，GTV为准。英文，中文，俄文是发文的 3种主要语言。
+
+联盟委员会， 紧急救援小组 的 联系方式 之后会公布在GETTR、GTV、GNEWS上，以 官方发布信息为准。全球想参与救援的战友，请简单扼要的与联盟联系。最重要的是，战友要 量力而为， 不要冒险。任何私自参与救援的行为，都是不被接受的，所有参与的人员必须遵循国际联合宪章和新中国联邦宣言。战友们，接下来就是高效的 行动。0伤害，0风险。无私，无我。让世界看到爆料革命，新中国联邦是未来世界的希望，新中国联邦人反对战争，爱好和平！
+
+- **[02.27. ZeroHedge：美国政府刚刚承认这是一场将决定谁将统治新世界秩序的战争 US Govt Just Admitted This Is A War That Will Determine Who Will Rule The New World Order](https://www.zerohedge.com/geopolitical/us-govt-just-admitted-war-will-determine-who-will-rule-new-world-order)**
+
+
+我们现在有一场我们绝大多数人都不想要的战争。 我们所有的生活都将被颠覆，全球经济将被彻底摧毁，无数人将会死去。 我对弗拉基米尔-普京和俄罗斯人发动全面入侵感到非常愤怒，因为这不需要发生。 我也对拜登政府感到非常愤怒，因为本来很容易找到解决这场危机的外交途径。 不幸的是，外交的时间现在已经结束，第三次世界大战已经开始。
+
+周四，国务院发言人内德-普莱斯就这场战争的真正目的做出了惊人的承认。据普莱斯说，俄罗斯和中国 “也想要一个世界秩序”，但他警告说，如果他们获胜，他们的世界秩序 “将是深刻的不自由”…
+
+根据美国官员的判断，中国对俄罗斯总统弗拉基米尔-普京最近对乌克兰的入侵给予了 “默许”，作为破坏美国和盟国领导人在二战后几十年里为减少冲突而建立的机构的共同努力的一部分。”俄罗斯和中国也想要一个世界秩序，”国务院发言人内德-普莱斯周三说。”但这是一个现在和将来都非常不自由的秩序。……在许多方面，这是一个具有破坏性而非增加性的秩序。”
+
+- **[02.26. Gateway Pundit：在普京破坏乌克兰的互联网后，埃隆-马斯克向乌克兰提供星链服务](https://www.thegatewaypundit.com/2022/02/breaking-elon-musk-makes-starlink-stations-available-ukraine-putin-disrupts-internet-capabilities/)**
+
+
+乌克兰副总理兼乌克兰数字转型部长Mykhailo Fedorov在Twitter上要求Elon Musk为乌克兰提供Starlink站，因为俄罗斯人在入侵期间破坏了他们的互联网。几小时内，埃隆-马斯克作出回应。Starlink服务现已在乌克兰启动。更多的终端正在路上。
+
+虽然部署成本极高，但卫星技术可以为居住在光纤电缆和手机信号塔无法到达的农村或难以服务的地方的人们提供互联网。当飓风或其他自然灾害破坏通信时，该技术也可以成为一个重要的后盾。马斯克在1月15日说，SpaceX有1469颗Starlink卫星在运行，272颗卫星即将进入运行轨道。
+
+- **[02.27. Daily Mail：拜登和欧盟使用 “金融核选择”，将俄罗斯银行从SWIFT网络中移除 Biden and EU use ‘financial nuclear option’ and REMOVES Russian banks from SWIFT network](https://www.dailymail.co.uk/news/article-10555745/The-allies-promise-remove-Russian-banks-SWIFT-network.html)**
+
+
+美国及其西方盟友周六宣布对莫斯科实施一系列新的破坏性制裁，他们承诺禁止俄罗斯主要银行进入国际SWIFT银行网络，并对俄罗斯中央银行实施限制。拜登政府的一位高级官员说，他们还将成立一个跨大西洋工作队，以追捕被制裁的寡头，”他们的游艇、豪华公寓、他们的钱和他们把孩子送到西方的高级大学的能力。”
+
+美国官员说，这些措施旨在使卢布陷入’自由落体’，并引发俄罗斯经济中的通货膨胀飙升。这些举措将受到乌克兰的欢迎，乌克兰认为孤立俄罗斯银行是扼杀融资和惩罚莫斯科入侵的一个关键途径。这一宣布是在俄罗斯军队与乌克兰军队在首都基辅郊区交战时作出的。官员们说，将俄罗斯银行从系统中切断将阻止他们在全球范围内进行大部分金融交易，并有效地阻止俄罗斯的出口和进口。
+
+欧盟委员会主席乌尔苏拉-冯德莱恩说，这将阻止普京使用他的’战利品’。美国、欧盟委员会、法国、德国、意大利、英国和加拿大在一份联合声明中说：’我们将追究俄罗斯的责任，共同确保这场战争是普京的战略失败。他们说，未来几天将实施一系列的措施。’首先，我们承诺确保将选定的俄罗斯银行从SWIFT报文系统中删除。这将确保这些银行与国际金融体系脱节，并损害其在全球运作的能力，’他们继续说道。第二，我们承诺实施限制性措施，防止俄罗斯中央银行以破坏我们制裁的影响的方式部署其国际储备。在华盛顿，一位高级政府官员说，政府正在效仿’伊朗模式’，切断莫斯科的银行。
+
+- **[02.26. The Hill：欧洲准备迎接乌克兰难民潮 Europe braces for wave of Ukrainian refugees](https://thehill.com/policy/international/595918-europe-braces-for-wave-of-ukrainian-refugees)**
+
+
+即使在欧洲承诺援助逃离俄罗斯入侵的难民时，乌克兰人的大规模流亡仍有可能使邻国的资源不堪重负。美国情报机构评估，随着俄罗斯军队从北部、南部和东部进入乌克兰，可能有100万至500万乌克兰人流离失所。
+
+这是一场可能远远超过乌克兰邻国能力的运动，其中一些邻国由于有抵制接受难民的历史而资源有限。”如果没有美国和更广泛的国际社会的支持，这些国家不太可能成功地支持数百万难民的激增，”负责安置难民的路德教会移民和难民服务社(Lutheran Immigration and Refugee Service)主席克里希-奥马拉-维尼亚拉贾(Krish O’Mara Vignarajah)告诉国会。
+
+罗马尼亚说它可以接受多达50万名难民，匈牙利说它正准备接受数万名难民，摩尔多瓦承诺向乌克兰人开放其边界。波兰是乌克兰西部难民的一个可能的目的地，它承诺接收100万难民，但该国自己的数据表明，其安置难民的空间不到3000个。
+
+# 每日文贵说
+![](https://assets.gnews.org/wp-content/uploads/2021/03/4-82-1536x864.jpg)
+# 更多要闻链接
+
+1. [西方国家将众多俄罗斯银行踢出Swift结算系统](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220227-%E8%A5%BF%E6%96%B9%E5%9B%BD%E5%AE%B6%E5%B0%86%E4%BC%97%E5%A4%9A%E4%BF%84%E7%BD%97%E6%96%AF%E9%93%B6%E8%A1%8C%E8%B8%A2%E5%87%BAswift%E7%BB%93%E7%AE%97%E7%B3%BB%E7%BB%9F)
+2. [全球聚焦乌克兰之际 朝鲜再次试射导弹](https://www.voachinese.com/a/with-world-s-eyes-on-ukraine-north-korea-launches-another-missile-20200226/6461211.html)
+3. [布林肯向俄罗斯人民喊话 乌克兰战争毫无意义](https://www.rfi.fr/cn/%E5%B8%83%E6%9E%97%E8%82%AF%E5%90%91%E4%BF%84%E7%BD%97%E6%96%AF%E4%BA%BA%E6%B0%91%E5%96%8A%E8%AF%9D-%E4%B9%8C%E5%85%8B%E5%85%B0%E6%88%98%E4%BA%89%E6%AF%AB%E6%97%A0%E6%84%8F%E4%B9%89)
+4. [江苏调查报告引爆质疑潮 四高校八百校友要求信息公开](https://www.voachinese.com/a/chained-woman-more-crackdown-on-public-outcry-than-truth-finding-as-ccp-tries-to-cover-up-key-facts-20220224/6458614.html)
+5. [中国驻乌克兰大使馆连忙改口为哪般？](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E9%A9%BB%E4%B9%8C%E5%85%8B%E5%85%B0%E5%A4%A7%E4%BD%BF%E9%A6%86%E8%BF%9E%E5%BF%99%E6%94%B9%E5%8F%A3%E4%B8%BA%E5%93%AA%E8%88%AC/a-60929373)
+6. [有关俄国入侵乌克兰 中国答不出的三个问题](https://www.dw.com/zh/%E6%9C%89%E9%97%9C%E4%BF%84%E5%9C%8B%E5%85%A5%E4%BE%B5%E7%83%8F%E5%85%8B%E8%98%AD-%E4%B8%AD%E5%9C%8B%E7%AD%94%E4%B8%8D%E5%87%BA%E7%9A%84%E4%B8%89%E5%80%8B%E5%95%8F%E9%A1%8C/a-60908866)
+
+
+# 每日推特文摘
+
+
+
+新中国联邦马上派十架大型（大力神）飞机，飞机上有新中国联邦和法治基金、法制社会的标志，和联合国组织合作，到乌克兰基辅附近紧急救援，带着衣服、食物等物质去，优先带回新中国联邦战友，及华人同胞包括美国人，根据个人情况，到美国和欧…
+
+
+
+
+
+> 💥💥💥七哥紧急直播：
+> 新中国联邦马上派十架大型（大力神）飞机，飞机上有新中国联邦和法治基金、法制社会的标志，和联合国组织合作，到乌克兰基辅附近紧急救援，带着衣服、食物等物质去，优先带回新中国联邦战友，及华人同胞包括美国人，根据个人情况，到美国和欧…[https://t.co/BpHl3Jtuep](https://t.co/BpHl3Jtuep)
+> — 淘喵先生 (@Baoliaogeming64) [February 26, 2022](https://twitter.com/Baoliaogeming64/status/1497722107194576896?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+🚨🚨🚨乌克兰人加油！
+
+根据情报显示👉俄罗斯总参谋部已下令部队在周一之前拿下基辅，不计伤亡
+
+
+
+
+
+> 据报，今天乌克兰开始向全世界招募志愿军，今天曼彻斯特市中心有乌克兰欧洲招募志愿兵的报名点，有很多英国年轻人踊跃报名，据说今天下午，很多德国人也踊跃报名，欧洲志愿军从欧洲各地今天下午进入乌克兰，乌克兰今天突然拒绝与俄罗斯谈判。战争激烈进行，退役的德国士兵也穿上了乌克兰军装。 [pic.twitter.com/axI8cHTkDv](https://t.co/axI8cHTkDv)
+> — chenchen (@chehchen8787) [February 26, 2022](https://twitter.com/chehchen8787/status/1497679977373790211?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 🚨🚨🚨乌克兰人加油！
+> 
+> 根据情报显示👉俄罗斯总参谋部已下令部队在周一之前拿下基辅，不计伤亡 [https://t.co/lG5L2i11NS](https://t.co/lG5L2i11NS)
+> — 艾布拉姆斯🇺🇸 (@SuTNkwfrFkMhHsG) [February 27, 2022](https://twitter.com/SuTNkwfrFkMhHsG/status/1497785828273430535?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+俄国被赶出SWIFT全球结算系统！俄中央银行6430亿美元资产已被全部冻结！俄境内V维萨和万事达信用卡即将无法正常使用！ ​NBC驻莫斯科记者Raf Sanchez刚刚说，他在莫斯科俄宾馆要求他赶紧结账，因为一旦SWIFT被禁用，所有信用卡都将无法使用！
+
+
+
+
+
+> 俄国被赶出SWIFT全球结算系统！俄中央银行6430亿美元资产已被全部冻结！俄境内V维萨和万事达信用卡即将无法正常使用！
+> ​NBC驻莫斯科记者Raf Sanchez刚刚说，他在莫斯科俄宾馆要求他赶紧结账，因为一旦SWIFT被禁用，所有信用卡都将无法使用！ [pic.twitter.com/5COssRGBvH](https://t.co/5COssRGBvH)
+> — Allen (@allenyuan905) [February 27, 2022](https://twitter.com/allenyuan905/status/1497764727224627202?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+有报道称，乌克兰国防部现已证实，俄罗斯-车臣部队将军 Magomed Tushayev 在今天霍斯托梅勒附近的激战中丧生。
+喵评：乌克兰军队看来不好惹😜
+
+
+
+
+
+> 有报道称，乌克兰国防部现已证实，俄罗斯-车臣部队将军 Magomed Tushayev 在今天霍斯托梅勒附近的激战中丧生。
+> 喵评：乌克兰军队看来不好惹😜[https://t.co/bQNXTdO65W](https://t.co/bQNXTdO65W)
+> — 淘喵先生 (@Baoliaogeming64) [February 26, 2022](https://twitter.com/Baoliaogeming64/status/1497676247362510849?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+[#新中国联邦](https://twitter.com/hashtag/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1497750818904494081%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhimalayawashingtondc.org%2Fwp-admin%2Fpost.php%3Fpost%3D10654action%3Dedit&amp;src=hashtag_click) 将要发起一场拯救在乌克兰战火中的中国同胞、国际友人的重大行动！
+
+CCP ≠ Chinese People CCP ≠ China Take Down The CCP
+
+КПК ≠ Китайський народ КПК ≠ Китай Знищити КПК
+
+
+
+
+
+> [#新中国联邦](https://twitter.com/hashtag/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6?src=hash&amp;ref_src=twsrc%5Etfw) 将要发起一场拯救在乌克兰战火中的中国同胞、国际友人的重大行动！
+> 
+> CCP ≠ Chinese People 
+> CCP ≠ China 
+> Take Down The CCP
+> 
+> КПК ≠ Китайський народ
+> КПК ≠ Китай
+> Знищити КПК [pic.twitter.com/KQqIRawqz2](https://t.co/KQqIRawqz2)
+> — 500 𝕸𝖎𝖑𝖊𝖘 (@SafeGuard009) [February 27, 2022](https://twitter.com/SafeGuard009/status/1497750818904494081?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+2022.2.20 战争已经开始 [#文贵](https://twitter.com/hashtag/%E6%96%87%E8%B4%B5?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1497784369699717123%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhimalayawashingtondc.org%2Fwp-admin%2Fpost.php%3Fpost%3D10654action%3Dedit&amp;src=hashtag_click) 给西方世界的警告 
+如果习跟他之间没有着惊天的秘密，不可能这样影响 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1497784369699717123%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhimalayawashingtondc.org%2Fwp-admin%2Fpost.php%3Fpost%3D10654action%3Dedit&amp;src=hashtag_click) ，普京要跟他没有惊天的秘密，不可能这影响习。 干 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1497784369699717123%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhimalayawashingtondc.org%2Fwp-admin%2Fpost.php%3Fpost%3D10654action%3Dedit&amp;src=hashtag_click) 是假，用乌克兰和 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1497784369699717123%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhimalayawashingtondc.org%2Fwp-admin%2Fpost.php%3Fpost%3D10654action%3Dedit&amp;src=hashtag_click) 干掉 [#美国](https://twitter.com/hashtag/%E7%BE%8E%E5%9B%BD?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1497784369699717123%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhimalayawashingtondc.org%2Fwp-admin%2Fpost.php%3Fpost%3D10654action%3Dedit&amp;src=hashtag_click) ，干掉 [#欧洲](https://twitter.com/hashtag/%E6%AC%A7%E6%B4%B2?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1497784369699717123%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhimalayawashingtondc.org%2Fwp-admin%2Fpost.php%3Fpost%3D10654action%3Dedit&amp;src=hashtag_click) 是真。
+
+[#喜马拉雅华盛顿DC农场](https://twitter.com/hashtag/%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E5%8D%8E%E7%9B%9B%E9%A1%BFDC%E5%86%9C%E5%9C%BA?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1497784369699717123%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhimalayawashingtondc.org%2Fwp-admin%2Fpost.php%3Fpost%3D10654action%3Dedit&amp;src=hashtag_click)
+
+
+
+
+
+> [https://t.co/FGXpts75wm](https://t.co/FGXpts75wm)
+> 2022.2.120 战争已经开始 [#文贵](https://twitter.com/hashtag/%E6%96%87%E8%B4%B5?src=hash&amp;ref_src=twsrc%5Etfw) 给西方世界的警告
+> 
+> 如果习跟他之间没有着惊天的秘密，不可能这样影响 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hash&amp;ref_src=twsrc%5Etfw) ，普京要跟他没有惊天的秘密，不可能这影响习。 干 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hash&amp;ref_src=twsrc%5Etfw) 是假，用乌克兰和 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hash&amp;ref_src=twsrc%5Etfw) 干掉 [#美国](https://twitter.com/hashtag/%E7%BE%8E%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) ，干掉 [#欧洲](https://twitter.com/hashtag/%E6%AC%A7%E6%B4%B2?src=hash&amp;ref_src=twsrc%5Etfw) 是真。[#喜马拉雅华盛顿DC农场](https://twitter.com/hashtag/%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E5%8D%8E%E7%9B%9B%E9%A1%BFDC%E5%86%9C%E5%9C%BA?src=hash&amp;ref_src=twsrc%5Etfw)
+> — 喜马拉雅华盛顿DC2 (@Dc235284371Dc2) [February 27, 2022](https://twitter.com/Dc235284371Dc2/status/1497784369699717123?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+
+
+
+*编辑： GSeries
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

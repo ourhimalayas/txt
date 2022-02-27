@@ -2,32 +2,17 @@
 ---
 
 
-## 有声|一号文件
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072982/)
+## 秘翻在线：乌克兰政府，俄军正在进攻第二大城市哈尔科夫，紧张局势加剧！
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2073031/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-85.png)
-“一号文件”，即中共每年发布的第一份文件，是中共发布的关于农村问题的专有名词。
+撰稿: Eric Kim
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-406.jpg)图片来源：韩国News1最新报道
+据韩国News1 27日最新报道称，乌克兰政府宣布俄军正在进攻第二大城市哈尔科夫，该地区发生最猛烈炮战，紧张局势进一步加剧！
 
-二战期间，中共绑架战区老百姓抗日，老百姓别无选择。
+信息来源: [https://news.naver.com/main/read.naver?mode=LS2D&mid=shm&sid1=104&sid2=233&oid=421&aid=0005934037](https://news.naver.com/main/read.naver?mode=LS2D&amp;mid=shm&amp;sid1=104&amp;sid2=233&amp;oid=421&amp;aid=0005934037)
 
-篡权后，中共“打土豪，分田地”，农民再次沦为中共抢夺土地的牺牲品。
+责编：Eric Kim
 
-20世纪50年代，中共施行“人民公社”“大锅饭”，中华大地饿殍遍野。
-
-文字版原文：[一号文件](https://gnews.org/zh-hans/2070527/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

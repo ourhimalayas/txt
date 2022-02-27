@@ -2,29 +2,22 @@
 ---
 
 
-## 联合国人权专家呼吁阻止中俄等国向缅甸军政府提供武器
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2072862/)
+## 有声|俄乌战争首日 乌克兰军民137人死亡316人受伤
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072896/)
 
-作者：首尔天池农场 – zzballack
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据英国媒体2月23日报道，联合国缅甸人权状况特别报告员汤姆·安德鲁斯指出，俄罗斯和中共仍在继续向缅甸军政府提供战斗机等用来屠杀平民的武器，并催促联合国安理会阻止这些用于暴行的武器流入缅甸。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
+据乌克兰媒体25日报导，俄罗斯对乌克兰发动大规模军事攻击的第一天，乌克兰共有137名军民丧生，316人受伤。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-36.png)
+乌克兰国防部长表示，东部的顿巴斯仍持续面临俄罗斯的猛烈炮击。
 
-安德鲁斯表示，中共、俄罗斯和塞尔维亚自2018年以来一直在向缅甸军政府提供用于袭击平民的武器，这些武器包括喷气式战斗机、装甲车、弹道导弹系统和移动防御系统。报告说，这些国家“完全知道这些武器将被用于攻击平民”。
+乌克兰军方曾宣布，俄军北部攻势在切尔尼戈夫被挡住，至少6架敌方定翼机、2架直升机和数十辆装甲车辆被摧毁，但也指出哈尔科夫和南部重要港口刻松等区域发生了激烈战斗。
 
-联合国引述一位活动人士的话说，至少有1500名平民被军政府杀害，军方和武装反对派在农村的冲突导致30多万人流离失所，在对罗兴亚穆斯林少数民族进行血腥镇压后，数十万人逃往邻国孟加拉国。
+文字版原文：[俄乌战争首日 乌克兰军民137人死亡316人受伤](https://gnews.org/zh-hans/2067723/)
 
-参考链接：
+音频处理/发稿：Daxia
 
-- [Russia and China are providing Myanmar military junta with fighter jets used to slaughter civilians: UN demands an end to flow of weapons used to carry out atrocities](https://www.dailymail.co.uk/news/article-10542121/Russia-China-providing-Myanmar-military-junta-fighter-jets-used-slaughter-civilians.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
-
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -32,7 +25,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
