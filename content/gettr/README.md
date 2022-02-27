@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/27/2022 10:15 PM (UTC)`
+
+2月27日号：尊敬的战友们好．你们见识了吗？传播台湾危机，拯救乌克兰战区的同胞们的信息了吗？一切都已经开始！
+![img](https://media.gettr.com/group11/getter/2022/02/27/22/48af2f38-025a-7c16-9aa1-aca8d59fe54b/out.jpg)
+
+---
+
+`@miles 2/27/2022 10:13 PM (UTC)`
+
+2/27/2022 Miles Guo: Ukraine’s president has set a precedent in the international political arena: 1) by standing up as a truly elected president, neither he nor his family has fled the country; 2) by not turning his back on the West when the US and EU ignored him. That’s why he is recognized as a "political gentleman".<br/><br/>2/27/2022 文贵直播：乌克兰总统开创了国际政坛的先河：1）作为真正的民选总统，他挺身而出，他和他家人都没跑路；2）在美欧不理他的时候，他并未和西方翻脸，所以被评为“政治绅士”<br/>
+![img](https://media.gettr.com/group23/getter/2022/02/27/22/62f15a84-6ad7-87b2-905e-2dc938adc0ea/out.jpg)
+
+---
+
 `@miles 2/27/2022 10:09 PM (UTC)`
 
 2/27/2022 Miles Guo: The Russian invasion of Ukraine has given Xi Jinping confidence to attack Taiwan, and he will surely implement his third battle plan. That is, Xi will use quasi-nuclear weapons to bomb Taiwan, which will definetely fight back against the CCP by destroying its coastal military bases.<br/><br/>2/27/2022 文贵直播：俄罗斯打乌克兰给了“习太阳”攻台的信心，他一定会采用第三套作战方案，即用准核武器狂轰滥炸台湾，台湾也一定会奋力反击并摧毁中共国沿海军事基地<br/>
@@ -137,20 +151,6 @@ February 26th, 2022, Mr. Miles Guo’s Urgent Livestream: our rescue operation i
 
 2/26/2022 Miles Guo’s Urgent Livestream: The New Federal State of China is dedicated to upholding the image of the Chinese as kind, courageous, and peace-loving people! The world needs peace, and we will work with the people of the world to fight against dictatorships and evil forces to maintain the safety and human rights of the Chinese people!<br/><br/>2/26/2022 文贵紧急直播：新中国联邦致力于维护中国人善良、勇敢和爱好和平的形象！世界需要和平，我们要和全世界人民一起跟独裁和邪恶势力战斗，维护中国人的安全和人权！
 ![img](https://media.gettr.com/group27/getter/2022/02/27/02/df9aa76e-09a9-1ae9-9fc5-4896165d2b35/out.jpg)
-
----
-
-`@miles 2/26/2022 11:32 PM (UTC)`
-
-2022年2月26日 紧急直播 救援在乌克兰中国同胞和美国友人方案
-![img](https://media.gettr.com/group42/origin/2022/02/26/23/c8dbf130-c644-86ba-3602-4755572ab379/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 2/26/2022 11:17 PM (UTC)`
-
-2/26/2022 Miles Guo: The education spending and coverage claimed by the CCP are all false, and the education in Communist China belongs to the privileged class and is the root of corruption, with teachers being brainwashed and reduced to tools of the CCP. Education is a bright light in the darkness, and its goal is to set role models for children.<br/><br/>2/26/2022 文贵直播：中共宣称的教育经费和覆盖率全是假的，中共国的教育属于特权阶级，是腐败的根源，教师被洗脑沦为工具；教育是一盏黑暗中的明灯，其目的是给孩子树立榜样<br/>
-![img](https://media.gettr.com/group36/getter/2022/02/26/23/74985589-47cd-11a3-f21c-2cb3bdf0706d/out.jpg)
 
 ---
 
