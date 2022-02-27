@@ -15,85 +15,85 @@
 
 ---
 
-### [乌克兰工程师利用社交媒体呼吁欧洲清楚俄罗斯的SWIFT](/content/gnews/1/README.md)
+### [中国人的教育不是目的,而是工具](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [2022年2月27日文贵先生直播摘要及音频—银河系农场](/content/gnews/2/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [乌克兰战友被中共抛弃](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [美国可能会怎么反击中共](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [中共可能会怎么打台湾](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [台湾如果被攻打守不住20小时](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [世界上第一个AI参与的战争，示弱](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [政治绅士的两招](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [2/27/2022 文贵直播：俄罗斯打乌克兰给了“习太阳”攻台的信心，他一定会采用第三套作战方案，即用准核武器狂轰滥炸台湾，台湾也一定会奋力反击并摧毁中共国沿海军事基地](/content/gnews/9/README.md)
+### [2/27/2022 文贵直播：乌克兰总统开创了国际政坛的先河：1）作为真正的民选总统，他挺身而出，他和他家人都没跑路；2）在美欧不理他的时候，他并未和西方翻脸，所以被评为“政治绅士”](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [邪恶的中共政权才是万恶之源（三）](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭文贵精品视频-我们现在正处在第三次世界大战中](/content/gnews/11/README.md)
- ` cindy`
-
-### [国际柔道联合会暂停普京“黑带”名誉主席职务](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [人性的伟大，乌克兰母亲将陌生人的孩子带到安全地带](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄罗斯科学界反战信：“俄罗斯被孤立于世界之外”](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [禁止俄罗斯部分银行使用SWIFT对日本影响多大？](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [马斯克在乌克兰启动“星链”服务 支持抗俄](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [岸田首相对俄罗斯SWIFT制裁 冻结普京资产](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [8架中共国军机进入台湾的非军事区](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|明斯克协议](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [有声|俄罗斯全面发动入侵乌克兰的战争](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [新中国联邦首次进行国际人道救援](/content/gnews/21/README.md)
+### [中国人对事物判断的愚蠢](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [【秘翻在线】救国心切！海外乌克兰人纷纷回国驰援](/content/gnews/22/README.md)
- ` 秘密翻譯組G-Translators`
+### [乌克兰战争的智慧](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
 
-### [疫苗灾难致使香港疫情失控之际，中共借机进一步控制香港](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [七哥保财保命报仇的意义](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
 
-### [雅典娜时报-第216期](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
+### [乌克兰展示了新型战争](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
 
-### [雅典娜时报-第217期](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
+### [乌克兰用针刺导弹对付俄罗斯入侵的坦克](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
 
-### [有声|2月26日白宫发布美欧关于SWIFT制裁俄罗斯的声明全文](/content/gnews/26/README.md)
+### [文贵先生直播重点大纲2022/02/27](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [解除疫苗政策的根本原因](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2/27/2022 文贵直播：俄罗斯打乌克兰给了“习太阳”攻台的信心，他一定会采用第三套作战方案，即用准核武器狂轰滥炸台湾，台湾也一定会奋力反击并摧毁中共国沿海军事基地](/content/gnews/10/README.md)
+ ` 秘密翻译组-北美组`
+
+### [邪恶的中共政权才是万恶之源（三）](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [郭文贵精品视频-我们现在正处在第三次世界大战中](/content/gnews/12/README.md)
+ ` cindy`
+
+### [国际柔道联合会暂停普京“黑带”名誉主席职务](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [人性的伟大，乌克兰母亲将陌生人的孩子带到安全地带](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [俄罗斯科学界反战信：“俄罗斯被孤立于世界之外”](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [禁止俄罗斯部分银行使用SWIFT对日本影响多大？](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [马斯克在乌克兰启动“星链”服务 支持抗俄](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [岸田首相对俄罗斯SWIFT制裁 冻结普京资产](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [8架中共国军机进入台湾的非军事区](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|明斯克协议](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|25日英美加表示继续加大对俄罗斯的制裁力度](/content/gnews/27/README.md)
+### [有声|俄罗斯全面发动入侵乌克兰的战争](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [新中国联邦首次进行国际人道救援](/content/gnews/22/README.md)
+ ` 雅典娜GNotes`
+
+### [【秘翻在线】救国心切！海外乌克兰人纷纷回国驰援](/content/gnews/23/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [疫苗灾难致使香港疫情失控之际，中共借机进一步控制香港](/content/gnews/24/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [雅典娜时报-第216期](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [雅典娜时报-第217期](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|2月26日白宫发布美欧关于SWIFT制裁俄罗斯的声明全文](/content/gnews/27/README.md)
  ` MOSREC`
 
 ### [2022年2月27日大直播速记精萃](/content/gnews/28/README.md)

@@ -2,8 +2,8 @@
 ---
 
 
-## 世界上第一个AI参与的战争，示弱
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2077503/)
+## 乌克兰用针刺导弹对付俄罗斯入侵的坦克
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2077552/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

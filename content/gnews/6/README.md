@@ -2,8 +2,8 @@
 ---
 
 
-## 台湾如果被攻打守不住20小时
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2077514/)
+## 乌克兰展示了新型战争
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2077563/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

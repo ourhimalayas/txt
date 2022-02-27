@@ -2,8 +2,8 @@
 ---
 
 
-## 乌克兰工程师利用社交媒体呼吁欧洲清楚俄罗斯的SWIFT
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2077547/)
+## 中国人的教育不是目的,而是工具
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2077597/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

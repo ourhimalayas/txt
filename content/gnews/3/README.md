@@ -2,8 +2,8 @@
 ---
 
 
-## 乌克兰战友被中共抛弃
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2077539/)
+## 中国人对事物判断的愚蠢
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2077579/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
