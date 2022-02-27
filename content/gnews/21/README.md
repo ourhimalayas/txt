@@ -2,50 +2,41 @@
 ---
 
 
-## 新中国联邦国际救缓部署，文贵先生紧急直播之要点
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2072319/)
+## 乌克兰激烈抵抗俄军再次轰炸基辅
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2072426/)
 
-作者：香草山健身部-新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-9.png)
+##### 整理：围剿维尼熊
+编辑：Mttfly
 
-2022/2/27文贵先生紧急直播，这是新中国联邦第一次参加国际救援，在联合国救援组织下，不涉及政治立场的，由法制基金和法制社会主导，到 乌克兰救援，包括 中国同胞、 美国 朋友，以及 国际友人。
-第一批将派出2架 飞机，陆续10架飞机会参加 救援。飞机上会标有 国际救援组织、 新中国联邦、 法制基金 和 法制社会 的标志和旗帜。
-飞机会返回：美国或欧洲某国（ 免签 的）。
-救援行动负责人安排，以 文贵先生 联盟 公告为准。草根小哥负责G系列后勤保障；老班长全面联络；大卫负责前线；长岛哥总协调；唐平，小福利负责直播；如水负责财务，以及法治基金财务对接。小李归大卫调度。文疯而动，文斌，飞飞进入直播组。
+**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/基辅周六.jpg)星期六，一名乌克兰士兵在基辅的一条街道上走过，一辆军用卡车的残骸还在燃烧。图片：Efrem Lukatsky / AP &雅典娜设计组
+根据纽约时报中文网2月27日报道，俄罗斯入侵乌克兰的战事进入第三天，乌克兰国防军和平民志愿者与俄军在街头展开激烈战斗。
 
-七哥强调对救援行动小组的 3个要求：
+周六晚，俄罗斯军队再次轰炸乌克兰首都基辅，此前双方武装在该市周围已经进行了一天的激战。美国官员表示，集结在乌克兰周围的逾15万俄罗斯军队中的大多数现在都在该国作战，但这些部队面临着乌克兰的顽强抵抗。
 
-1. 准备一点当地的现金（碎钱），主要是欧元和美元；
-2. 千万不要好心当坏事，别做花里胡哨的的活，做实事；
-3. 不求名不求利，只求多救人，行动结果是最终评价的标准。
-救援 以：1.新中国联邦的 战友及亲友优先；美国友人；国际友人。包括小粉红，救援是不分种族，政治立场，宗教信仰，只要需要帮助的，就是救援的目标。 如果不能离开乌克兰的，我们也会给予 救援物资。
-10架飞机参加救援，以乌克兰首都 基辅 和 基辅周围 的几个机场为降落点， 下周5前会到达，之后每天2架。
-这个时候共产党渗透会非常严重，务必小心。安全很重要，不要用whatapp，文贵先生提供的单独软件，任何加入救援小组的都要绝对可靠。不容许私自外传，一旦出现异常，没收所有g币。这是救人，希望大家全力以赴。
-接受信息，由 联盟委员会 统一协调，24小时为战友服务。
-法制基金、 法制社会、联盟委员会也将提供至少30天的吃住用的补助，之后有需要会发起统一募捐。
-Gnews，gettr，GTV发文 务必准确。战争时候，一个错误的信息会造成很严重的后果。如果不准确，宁可不发！新闻发布 以 文贵先生GETTR，GTV为准。英文，中文，俄文是发文的 3种主要语言。
-联盟委员会， 紧急救援小组 的 联系方式 之后会公布在GETTR、GTV、GNEWS上，以 官方发布信息为准。全球想参与救援的战友，请简单扼要的与联盟联系。
-最重要的是，战友要 量力而为， 不要冒险。任何私自参与救援的行为，都是不被接受的，所有参与的人员必须遵循国际联合宪章和新中国联邦宣言。
-战友们，接下来就是高效的 行动。0伤害，0风险。无私，无我。让世界看到爆料革命，新中国联邦是未来世界的希望，新中国联邦人反对战争，爱好和平！
+美国和主要欧洲盟友周六宣布，它们将把某几家俄罗斯银行从SWIFT金融信息系统中移除，基本上禁止它们进行国际交易。
 
+据乌克兰国民警卫队称，俄罗斯军队已造成至少198人死亡，其中包括三名儿童，另有包括33名儿童在内的1115人受伤。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-59.jpg)
+根据联合国的数据，本周有超过15万难民逃离乌克兰，其中许多人正前往波兰边境口岸。
 
-- 新闻链接：[https://gettr.com/streaming/px2p2d8aec](https://gettr.com/streaming/px2p2d8aec)
+周六，抗议者在世界各地聚集支持乌克兰，并呼吁俄罗斯停止入侵。在圣彼得堡，俄罗斯警方本周拘留了数百名抗议者。
 
+谷歌旗下的YouTube周六表示，将暂停今日俄罗斯(RT)和其他俄罗斯国有媒体在其频道上销售广告。
 
-审核/编辑/发稿:qiutian（邱甜）
+Twitter表示，它正限制对俄罗斯的一些人提供服务。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-7.png)
+参考链接：[乌克兰最新战局：俄军再次轰炸基辅，遭遇激烈抵抗](https://cn.nytimes.com/world/20220227/ukrainian-forces-fight-back-as-russia-pushes-on-three-cities/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*发布：Mttfly*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

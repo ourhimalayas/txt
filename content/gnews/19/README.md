@@ -2,34 +2,28 @@
 ---
 
 
-## 中共习近平和俄罗斯普京通话
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2072340/)
+## 美欧多国发表联合声明 将俄罗斯踢出SWIFT系统
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2072441/)
 
-作者：银河系农场—骄子
+撰稿：东京樱花团/龟龟
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/美欧多国发表联合声明-将俄罗斯踢出SWIFT系统.jpg)[图片来源](https://www.stvincenttimes.com/euus-and-allies-agree-to-remove-russian-banks-from-swift/)
 
+欧盟、法国、德国、意大利、英国、加拿大和美国周六（2月26日）发表一份联合声明，将俄罗斯踢出环球银行金融电信协会（SWIFT）。
 
-2月25日下午，习近平和俄罗斯普京通话。这是俄罗斯入侵乌克兰之后第一个与其通话的国家。中共大外宣报道说普京祝贺冬奥会圆满成功，且对自己此次入侵乌克兰的原因进行了一番解释，其原因主要是欧美和北约等国背弃明斯克协定不断东扩，对俄罗斯的国家安全造成了巨大的影响，所以俄罗斯就对乌克兰进行了入侵，对无辜的乌克兰老百姓进行了战争大屠杀。
+同时，这些欧美国家也将施加多项限制，阻止俄罗斯中央银行使用国际储备。
 
-习近平表示普京此举打得好，彰显了俄罗斯作为共产党亲爹的大国风范。但是明明就是欧美不遵守规则，俄罗斯不去找欧美等国家解决，反而选择去揍最弱小的乌克兰，难道乌克兰的人命就不是人命，就应该被揍？习近平还表示国际社会，尤其是和欧美等国，不可能再寻求一种和平发展的态势了，现在就是你死我活的状态，并且会沿袭和俄罗斯一样的战略，挑那个最弱小的揍，下一个就是台湾。
+SWIFT成立于1973年，总部设在布鲁塞尔，是一个连接全球逾万家金融机构的高度安全网络。金融机构通过它来发送安全信息和支付指令，并支持国际贸易的快速跨境转账付款。如果俄罗斯被排除在此体系之外，俄罗斯企业的经贸业务可能受影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-417.jpeg)图片来源：路透社/法新社
+制裁将切断俄罗斯与大多数国际金融交易的联系，包括出口石油和天然气产生的利润，这些利润总共占到俄罗斯收入的40%以上。
 
-参考链接：[https://www.sohu.com/a/525491410\_362042](https://www.sohu.com/a/525491410_362042)
+“我们和乌克兰政府以及乌克兰人民反抗俄罗斯入侵的英勇努力站在一起，” 声明说。“我们会让俄罗斯为此负责，并集体保证这场战争成为普京的一场战略失败。”
 
-编辑/校对/发稿：文敬
+信息来源：[西方国家将众多俄罗斯银行踢出Swift结算系统](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220227-%E8%A5%BF%E6%96%B9%E5%9B%BD%E5%AE%B6%E5%B0%86%E4%BC%97%E5%A4%9A%E4%BF%84%E7%BD%97%E6%96%AF%E9%93%B6%E8%A1%8C%E8%B8%A2%E5%87%BAswift%E7%BB%93%E7%AE%97%E7%B3%BB%E7%BB%9F)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,36 @@
 ---
 
 
-## 乌克兰激烈抵抗俄军再次轰炸基辅
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2072426/)
+## 爱尔兰宣布取消对乌克兰人的签证要求
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2072511/)
 
-##### 整理：围剿维尼熊
-编辑：Mttfly
+**翻译：Little lamp
+编辑：文泓**
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/基辅周六.jpg)星期六，一名乌克兰士兵在基辅的一条街道上走过，一辆军用卡车的残骸还在燃烧。图片：Efrem Lukatsky / AP &雅典娜设计组
-根据纽约时报中文网2月27日报道，俄罗斯入侵乌克兰的战事进入第三天，乌克兰国防军和平民志愿者与俄军在街头展开激烈战斗。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-周六晚，俄罗斯军队再次轰炸乌克兰首都基辅，此前双方武装在该市周围已经进行了一天的激战。美国官员表示，集结在乌克兰周围的逾15万俄罗斯军队中的大多数现在都在该国作战，但这些部队面临着乌克兰的顽强抵抗。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2528.png)图片来源：Techjaun & 雅典娜设计组
 
-美国和主要欧洲盟友周六宣布，它们将把某几家俄罗斯银行从SWIFT金融信息系统中移除，基本上禁止它们进行国际交易。
 
-据乌克兰国民警卫队称，俄罗斯军队已造成至少198人死亡，其中包括三名儿童，另有包括33名儿童在内的1115人受伤。
+当地时间周五，乌克兰司法部在紧急命令中宣布，为显示欧盟的团结，乌克兰人前往爱尔兰的签证要求正在取消。
 
-根据联合国的数据，本周有超过15万难民逃离乌克兰，其中许多人正前往波兰边境口岸。
+爱尔兰司法部长海伦·麦肯蒂表示，她“对俄罗斯入侵乌克兰感到震惊”，并表示将发布紧急命令，协助在乌克兰的爱尔兰公民及其家人，他们最近几天面临俄罗斯军方的袭击。
 
-周六，抗议者在世界各地聚集支持乌克兰，并呼吁俄罗斯停止入侵。在圣彼得堡，俄罗斯警方本周拘留了数百名抗议者。
+紧急措施同意也适用于所有希望在冲突期间前往爱尔兰的乌克兰人。
 
-谷歌旗下的YouTube周六表示，将暂停今日俄罗斯(RT)和其他俄罗斯国有媒体在其频道上销售广告。
+据爱尔兰政府的旅游网站称，爱尔兰此前曾建议在乌克兰的爱尔兰公民和乌克兰人不要前往爱尔兰，基于他们监测与俄罗斯的持续紧张局势，官方的旅行建议是“就地避难”。
 
-Twitter表示，它正限制对俄罗斯的一些人提供服务。
+在麦肯蒂部长发布新公告前一天更新的旅行咨询中，有意愿离开的乌克兰的公民被告知，只有在基于他们的“位置和主要情况”安全的情况下才能离开。 根据最新信息，司法部长麦肯蒂已宣布立即取消乌克兰和爱尔兰之间的签证要求。这将简化和支持爱尔兰公民的乌克兰家庭成员，以及居住在爱尔兰的乌克兰人的家庭成员的迅速退出战地。
 
-参考链接：[乌克兰最新战局：俄军再次轰炸基辅，遭遇激烈抵抗](https://cn.nytimes.com/world/20220227/ukrainian-forces-fight-back-as-russia-pushes-on-three-cities/)
+**参考链接：**
+1、[Ireland cancels visa requirements for Ukrainians](https://www.rt.com/news/550643-ireland-ukraine-visa-requirements/)
+2、[Irish Minister for Justice Helen McEntee announces immediate lifting of visa requirements between Ukraine and Ireland](https://visasandtravels.com/irish-minister-for-justice-helen-mcentee-announces-immediate-lifting-of-visa-requirements-between-ukraine-and-ireland/)
 
-*发布：Mttfly*
+*发布：玉米地守望者*
 
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

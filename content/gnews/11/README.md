@@ -2,28 +2,31 @@
 ---
 
 
-## 日本海运商船将暂停乌克兰海域港口停靠
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2072454/)
+## 大批乌克兰人逃离战火之时中共告诉其在乌克兰的国民不要撤离
+` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/2072549/)
 
-撰稿：东京樱花团/道来
+By：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2531.png)图片来自网络
+自从俄罗斯在上周四入侵乌克兰以来，已有近15万乌克兰人逃往邻国，去往波兰、匈牙利、摩尔多瓦、斯洛伐克和罗马尼亚等国。还有数以千计的人仍在试图通过堵塞的边境。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/日本海运商船将暂停乌克兰海域港口停靠.jpg)[图片来源](https://www.catchasia-medianetwork.com/Companies/NYK/profile.html)
+很多国家，如美国、英国、韩国、日本和以色列一直在建议其公民离开乌克兰或准备撤离。
 
-受俄罗斯对乌克兰军事进攻的影响，日本三大海运业务公司之一日本邮船株式会社（日本邮船）宣布将通过业务调整，暂停乌克兰海域内港口的停靠。
+然而，在俄罗斯对乌克兰发动攻击后，中共国驻乌克兰大使馆建议那里的中共国公民呆在家里。如果必须外出，就在车上挂上中共国国旗。这表明中共与俄罗斯已结成邪恶同盟。
 
-乌克兰南部的黑海海域是粮食，铁矿石等货物的主要运输航道。由于俄罗斯对乌克兰进行军事攻击的形势恶化程度无法预测，日本邮船表示通过与相关业主协商，暂时停止乌克兰海域内的港口停靠。
+中共国外交部拒绝将俄罗斯的攻击描述为入侵，并指示中共国媒体不要发布任何对俄罗斯入侵不利的内容。
 
-为了保证商船及相关人员的安全，日本邮船对在乌克兰海域内停靠中的运输商船发出危险回避的指示。同时，受爱媛县今冶市的海运公司的商船在乌克兰南部海域被炮击事件的影响，日本邮船表示为了保证海运商船及相关人员的安全的，除了暂停乌克兰海域港口的停靠以外，也考虑暂停整个黑海海域的所有海运业务。
+乌克兰已禁止所有18 至60 岁的乌克兰男子离开乌克兰，以便他们为自己的国家而战，表明了乌克兰抗击俄罗斯入侵的决心。
 
-据公开资料显示，日本邮船株式会社（NIPPON YUSEN KAISHA）是日本三大海运业务会社之一。 1885年创立，目前在世界350个港口城市，拥有684艘海运船舶。相关海运业务纯利润居日本第一，世顶级海运公司排行中居于前列。
+在乌克兰边境，出现了一些素不相识的乌克兰人互相帮助的感人故事。一名38 岁的乌克兰男子将他年幼的儿子和女儿托付给了一位素未谋面的女人，让她协助把孩子带出乌克兰，交给正在从意大利赶来接他们的孩子的母亲。这位男子把母亲的手机号码和孩子的护照给了这位妇女，然后和孩子们道别。
 
-信息来源：
+面对战争，中共对其侨民表现出的是冷漠无情。
 
-[ウクライナに寄港中止へ…日本郵船](https://www.yomiuri.co.jp/economy/20220226-OYT1T50223/)
+消息来源：[Russia-Ukraine war updates: Kyiv placed under strict curfew to enable ‘more effective defense of the capital’ as it happened](https://www.abc.net.au/news/2022-02-26/russia-ukraine-war-live-blog-saturday-feb-26/100863590)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+[Ukrainians flee to European countries, including some that previously spurned refugees](https://www.washingtonpost.com/world/2022/02/26/europe-welcomes-refugees-ukraine-russia/)
+
+[China told its citizens who are currently in Ukraine to ‘stay at home’ or display the Chinese flag on their cars amid Russia attacks](https://www.businessinsider.com.au/china-ukraine-stay-home-display-chinese-flag-embassy-2022-2)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

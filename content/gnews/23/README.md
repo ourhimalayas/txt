@@ -2,33 +2,32 @@
 ---
 
 
-## 美英欧盟：同意将俄罗斯主要银行从SWIFT剔除
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2072270/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月26日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2072387/)
 
-**撰稿：日本东京方舟农场 子辰**
+作者：香草山翻译部
 
-据大纪元2月27日报道，俄罗斯入侵乌克兰以来，尽管多国和国际组织对其进行了一系列的制裁行动，但是依然没有阻止俄罗斯的入侵步伐。2月26日美英欧盟宣布同意将俄罗斯的主要银行剔除SWIFT国际支付系统。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-5.png)
 
-这项决议由欧盟委员会、法国、德国、意大利、英国、加拿大和美国在一份联合声明中共同所表示，其中还包括限制俄罗斯央行的国际储备，并将在未来几天内实施。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-26.jpeg)（图片来自大纪元）
-欧盟委员会主席冯德莱恩（Ursula von der Leyen）在给媒体的一份声明中说，将承诺确保一定数量的俄罗斯银行从SWIFT系统中移除。并确保这些俄罗斯银行与国际金融体系脱节，同时损害它们在全球运营的能力。
 
-冯德莱恩说，将俄罗斯银行从SWIFT系统中剔除，将阻止它们在全球范围内进行大部分金融交易，并有效地阻止俄罗斯的进出口。盟友将阻止俄罗斯动用其战争基金，使其中央银行资产瘫痪，冻结其交易，并使中央银行无法清算其资产。她说，“最后，我们将努力禁止俄罗斯寡头在我们的市场上使用他们的金融资产。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-1-6.png)
+校对：Stay文苑
 
-另据，美国一名高级政府官员对CNBC说，你将立即看到对俄罗斯银行业的寒蝉效应，它甚至超出了已经发生的情况。这位人士补充说，我们现在已经瞄准了俄罗斯所有10家最大的金融机构，它们持有俄罗斯银行业总资产的近80%。
+编辑：Stay文苑
 
-这位美国官员还补充说，不让与克里姆林宫有联系的富有俄罗斯人成为其他国家公民，从而进入某些金融系统。所以还将追查俄罗斯相关人的游艇以及他们的豪华公寓和他们的钱以及他们送孩子去西方名牌大学的能力。
+发稿：Stay文苑
 
-声明发出后，多位经济学者认为，制裁俄罗斯央行，将对其经济和银行体系产生巨大影响。这可能会导致大规模的银行挤兑和美元化，伴随着大幅抛售、储备枯竭可能直接导致俄罗斯金融体系全面崩溃。
+新闻：[https://gtv.org/broadcast/watch/621ad472a391e321a0c88234](https://gtv.org/broadcast/watch/621ad472a391e321a0c88234)
+访谈：[https://gtv.org/broadcast/watch/621adcf4a391e321a0c8940a](https://gtv.org/broadcast/watch/621adcf4a391e321a0c8940a)
 
-此外，联合声明中写道，承诺将在下周启动一个跨大西洋特别工作组，通过查明和冻结在我们管辖范围内的受制裁个人和公司的资产，确保有效实施我们的金融制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4-1.png)
 
-参考链接：
-[https://www.epochtimes.com/b5/22/2/26/n13607712.htm](https://www.epochtimes.com/b5/22/2/26/n13607712.htm)
-
-素材采编：子辰
-编辑：青城道姑
-发布：文曦
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
