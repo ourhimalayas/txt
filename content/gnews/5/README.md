@@ -2,44 +2,26 @@
 ---
 
 
-## 有声|明斯克协议
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2077307/)
+## 俄罗斯科学界反战信：“俄罗斯被孤立于世界之外”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2077361/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-“明斯克协议”，是在顿巴斯战争爆发后，乌克兰政府与乌克兰东部的顿涅茨克人民共和国、卢甘斯克人民共和国两个政权的代表，于2014年9月5日，在白俄罗斯首都明斯克签订的停火协议。2015年2月，相关各方又签订了新明斯克协议，内容包括，根据乌克兰法律，各方就顿涅茨克和卢甘斯克的临时自治政府展开对话，并透过国会决议承认其特殊地位。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/minsk.png)
-2022年2月，媒体曝光了一份1991年的机密文件，文件显示，在德国统一谈判期间，英、美、法、德外交官曾向前苏联承诺，北约不会东扩。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片7-4.png)[图片链接](https://www.sankei.com/article/20220208-XJZY7BTTQFNENDWXS64VEXFINQ/photo/T2TKSWBUHJK6HLO2ZVEP2YJRZQ/)
+在俄罗斯入侵乌克兰之后，科学界也站出来谴责俄罗斯。
 
-1994年12月，美国、英国、俄罗斯和乌克兰签署了《布达佩斯备忘录》。乌克兰根据该备忘录销毁了核武器和洲际导弹，意欲与美国和欧盟结盟，并通过宪法修正案，将加入欧盟和北约作为国家基本方针写入了宪法。
+24日，俄罗斯独立科学网站TrV Nauka发表了一封俄罗斯科学家和科学记者的公开信，反对俄罗斯的入侵。 它呼吁立即停止所有军事行动。
 
-2022年2月21日，俄罗斯宣布承认顿涅茨克、卢甘斯克独立。
+信中指出，战争的责任完全在于俄罗斯，很明显，乌克兰没有威胁到俄罗斯的安全，战争是不公平和无意义的。
 
-2月22日，俄罗斯总统普京正式宣布，明斯克协议不复存在。
+这场战争将使俄罗斯在世界范围内被孤立，成为一个弃儿。这将意味着我们的科学家将无法进行正常工作。如果不与其他国家的同事合作，继续进行研究是不可想象的。俄罗斯的文化和技术将被进一步延缓。
 
-2月24日，俄罗斯正式入侵乌克兰。
+信息源：
 
+[ロシア科学者や科学記者が反戦書簡　「ロシアは世界から孤立する」](https://news.yahoo.co.jp/articles/4cd9a9c2d6d099f34fe92f421e9d24198bca75c5)
 
-
-文字版原文：[明斯克协议](https://gnews.org/zh-hans/2070441/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
