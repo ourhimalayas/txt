@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/27/2022 7:11 AM (UTC)`
+
+2/26/2022 Miles Guo’s Urgent Livestream: At this time, our GNews, GTV, and Gettr's postings must be accurate; and we will save anyone as long as we can, but our NFSC citizens and our families and friends come first.<br/><br/>2/26/2022 文贵紧急直播：我们的这个时候的GNews的和GTV还有盖特的发文一定要准确；只要能救的，我们都会救，但新中国联邦和家人朋友是第一的。<br/>
+![img](https://media.gettr.com/group7/getter/2022/02/27/07/2c32ee71-76b7-1168-2e46-b55953c1406e/out.jpg)
+
+---
+
 `@miles 2/27/2022 7:05 AM (UTC)`
 
 February 26th, 2022, Mr. Miles Guo’s Urgent Livestream: our rescue operation is based on the financial strength and international relations from G Series, ROL Foundation and ROL Society. Any fellow fighters shall not make any personal decisions to initiate any donations or so-called financial support of any kind at this time. The CCP’s infiltration will be very severe at this time and we must be careful<br/><br/>2/26/2022 文贵紧急直播：我们的救援来自G系列、法治基金、法治社会的经济实力和国际关系。任何战友此时不能做任何捐和所谓各种支持的私自决定。此时共产党的渗透会很严重，我们务必要小心<br/>
@@ -153,15 +160,6 @@ Mr. Bannon 100% agree that the Wall Street has provided the capital from the pen
 
 《小小尼莫音乐会》今天首播，主题歌是来自13岁小Helen的作品！<br/>高清Mv首发《Treasures》
 ![img](https://media.gettr.com/group30/origin/2022/02/26/11/5504eee1-af58-e51f-b644-2d77ce2e162f/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gtv_edu 2/26/2022 2:58 AM (UTC)`
-
-《文贵大直播—GEDU专场》<br/><br/>主讲人：新中国联邦创始人 郭文贵先生<br/>主持：QMAY<br/>出镜老师：CanCan  平和  小皮匠   Happy 小刘老师<br/>嘉宾：甜甜<br/>导播：墨镜 小白白<br/><br/>美东时间：2/26/2022 8:30am<br/>北京时间：2/26/2022 9:30pm
-![img](https://media.gettr.com/group13/origin/2022/02/26/02/d0476025-05ce-8da1-3845-e259ea21eda4/c27f802d3e74302293ca9c6ed9201bbe.jpeg)
 
 ---
 

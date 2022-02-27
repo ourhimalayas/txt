@@ -2,16 +2,20 @@
 ---
 
 
-## 有声|财富的意义在于回归本源
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072965/)
+## 有声|一号文件
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072982/)
 
 配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月25日，郭文贵先生在大直播中与战友们分享了有关财富意义的话题。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-85.png)
+“一号文件”，即中共每年发布的第一份文件，是中共发布的关于农村问题的专有名词。
 
-郭先生表示，当一个人拥有的财富达到了取之不尽的地步，那财富就可能成为枷锁，让人产生恐惧，甚至随时可能因为财富丢了性命。但如果一个人能够跳出这个枷锁，学会放开和给予，比如帮助别人或救助动物，或者过一种默默无闻的生活，那财富就会帮他找回自己的本源，使其获得更加美妙的人生体验。
+二战期间，中共绑架战区老百姓抗日，老百姓别无选择。
 
-文字版原文：[财富的意义在于回归本源](https://gnews.org/zh-hans/2068411/)
+篡权后，中共“打土豪，分田地”，农民再次沦为中共抢夺土地的牺牲品。
+
+20世纪50年代，中共施行“人民公社”“大锅饭”，中华大地饿殍遍野。
+
+文字版原文：[一号文件](https://gnews.org/zh-hans/2070527/)
 
 音频处理/发稿：Daxia
 
