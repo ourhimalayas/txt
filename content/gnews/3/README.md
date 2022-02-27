@@ -2,33 +2,37 @@
 ---
 
 
-## 有声|25日英美加表示继续加大对俄罗斯的制裁力度
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2076865/)
+## 北约的第4条是什么，为什么人们在谈论它？
+` Itana` [轉載自GNews](https://gnews.org/zh-hans/2076896/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月25日，美国财政部表示，会对俄罗斯总统普京、外交部长拉夫罗夫、国防部长绍伊古和总参谋长格拉西莫夫实施制裁。
+翻译/整理：意大利罗马达芬奇农场- 阿娜意大利
 
-美财政部长表示会让俄罗斯因入侵乌克兰而付出惨重的经济和外交代价，白宫发言人还表示将会对俄罗斯的主权投资基金实施全面封锁和制裁。
+北约已经召开会议，讨论对俄罗斯入侵乌克兰的回应。该组织的条约第4条可能发挥关键作用。
 
-同一日，英国发表声明，冻结俄罗斯普京和外交部长拉夫罗夫的英国资产。被冻结的俄罗斯公司和个人将无法进入英国，与英国进行任何金融与商业活动，包括货币结算与进出口等。
+北约条约第4条涵盖了当一个成员国感到受到另一个国家或恐怖组织威胁的时候，北约30个成员国就会响应受到威胁的成员国的要求而开始正式磋商。会谈研究其成员国是否存在威胁以及如何应对威胁，并一致作出决定。然而，第4条并不意味着将会有直接的压力来采取行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-27-21.28.16.jpeg)图片：卫报
+在北约的历史上，这种协商机制已经被触发了几次。例如，一年前，土耳其士兵在来自叙利亚的袭击中丧生，就由土耳其触发。当时，北约决定进行协商，但没有采取任何行动。
 
-当天，加拿大总理特鲁多表示，该国政府支持将俄罗斯逐出环球银行金融电信协会，即SWIFT系统，以示俄罗斯公然对乌克兰武装侵略的惩罚。他认为此举能对俄罗斯的经济造成比制裁更大的损失，并表示，加拿大正在与欧洲盟友就相关问题进行相对话，盟友正在谨慎考虑加国的建议。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/60703809_7.png)
 
-文字版原文：[25日英美加表示继续加大对俄罗斯的制裁力度](https://gnews.org/zh-hans/2073275/)
+**对俄罗斯入侵的反应**
 
-音频处理：Fei797
-发稿：Fei797
+俄罗斯入侵乌克兰后，北约成员国爱沙尼亚、拉脱维亚、立陶宛和波兰触发了第四条。与斯洛伐克、匈牙利和罗马尼亚一起，这些国家是北约 “东翼” 的一部分，目前正在用大约6000名美国士兵、1000名英国士兵和350名德国士兵以及其他北约成员的部队来加强东翼。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+第4条与《北约宪章》的第5条不同。后者规定了如果一个成员国受到攻击，整个联盟的军事援助。唯一一次使用第5条是在2001年基地组织对美国的袭击之后，那次袭击造成3000多人死亡。当美国随后攻击阿富汗时，北约在旁边派出了一个特派团。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+北约条约只适用于成员国。鉴于乌克兰不是该联盟的一部分，它既不能触发第4条也不能触发第5条。
+
+参考新闻： [https://www.dw.com/en/whats-natos-article-4-and-why-are-people-talking-about-it/a-60898860?maca=en-AS-content-outbrain](https://www.dw.com/en/whats-natos-article-4-and-why-are-people-talking-about-it/a-60898860?maca=en-AS-content-outbrain)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-27_16.51.13.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-27_16.51.34.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-27_16.51.45-1.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-27_16-1.51.13.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

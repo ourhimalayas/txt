@@ -2,34 +2,33 @@
 ---
 
 
-## 俄罗斯和乌克兰同意谈判
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2076833/)
+## 有声|25日英美加表示继续加大对俄罗斯的制裁力度
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2076865/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2月25日，美国财政部表示，会对俄罗斯总统普京、外交部长拉夫罗夫、国防部长绍伊古和总参谋长格拉西莫夫实施制裁。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0067.jpg)
+美财政部长表示会让俄罗斯因入侵乌克兰而付出惨重的经济和外交代价，白宫发言人还表示将会对俄罗斯的主权投资基金实施全面封锁和制裁。
 
+同一日，英国发表声明，冻结俄罗斯普京和外交部长拉夫罗夫的英国资产。被冻结的俄罗斯公司和个人将无法进入英国，与英国进行任何金融与商业活动，包括货币结算与进出口等。
 
-图片来源： 路透社
+当天，加拿大总理特鲁多表示，该国政府支持将俄罗斯逐出环球银行金融电信协会，即SWIFT系统，以示俄罗斯公然对乌克兰武装侵略的惩罚。他认为此举能对俄罗斯的经济造成比制裁更大的损失，并表示，加拿大正在与欧洲盟友就相关问题进行相对话，盟友正在谨慎考虑加国的建议。
 
-美国表示，普京正在以“完全不可接受”的方式升级战争，因为有迹象表明，自二战以来对欧洲国家的最大攻击并没有带来迅速的战场胜利，而是产生了影响深远且一致的西方反应。
+文字版原文：[25日英美加表示继续加大对俄罗斯的制裁力度](https://gnews.org/zh-hans/2073275/)
 
-乌克兰总统办公室表示，与莫斯科的谈判将在白俄罗斯和乌克兰边境举行，没有任何先决条件。
+音频处理：Fei797
+发稿：Fei797
 
-“我真的不相信这次会议的结果，但让他们尝试一下，以便后来没有一个乌克兰公民怀疑我作为总统试图制止战争，”总统泽连斯基说。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-克里姆林宫表示谈判已经开始。
-
-随着导弹袭击乌克兰城市，近 40 万乌克兰平民（主要是妇女和儿童）逃往邻国。周日，数百人被困在基辅，等待火车将他们带到西部，远离战斗。
-
-首都仍掌握在乌克兰政府手中，尽管俄罗斯炮击民用基础设施，但泽连斯基每天都在召集他的人民。
-
-入侵开始仅三天后，就引发了西方在政治、战略、经济和企业方面的反应，其程度和协调程度是前所未有的。
-
-🔗 [俄罗斯和乌克兰同意谈判](https://www.reuters.com/world/india/war-with-ukraine-putin-puts-nuclear-deterrence-forces-alert-2022-02-27/)
-
-编辑发表： Shuizhuyu
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
