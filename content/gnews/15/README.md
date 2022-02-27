@@ -2,16 +2,20 @@
 ---
 
 
-## 有声|韩国、台湾将参与国际对俄罗斯的制裁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072923/)
+## 有声|一号文件
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072982/)
 
 配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
-韩国媒体2月24日报道，文在寅总统针对俄罗斯入侵乌克兰表示，在任何情况下，使用武力造成无辜生命的行为都是没有道理的，并称韩国将会参与国际对俄罗斯的制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-85.png)
+“一号文件”，即中共每年发布的第一份文件，是中共发布的关于农村问题的专有名词。
 
-文在寅指出：国家之间的冲突应该通过对话或谈判解决，而不是战争。
+二战期间，中共绑架战区老百姓抗日，老百姓别无选择。
 
-文字版原文：[韩国、台湾将参与国际对俄罗斯的制裁](https://gnews.org/zh-hans/2067783/)
+篡权后，中共“打土豪，分田地”，农民再次沦为中共抢夺土地的牺牲品。
+
+20世纪50年代，中共施行“人民公社”“大锅饭”，中华大地饿殍遍野。
+
+文字版原文：[一号文件](https://gnews.org/zh-hans/2070527/)
 
 音频处理/发稿：Daxia
 
@@ -24,8 +28,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,20 @@
 ---
 
 
-## 美国医学专家反对全面疫苗计划
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2072863/)
+## 有声|中共国在乌留学生哭诉：请墙内五毛嘴下积德
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072935/)
 
-作者：纽台湾宝岛农场 – dobi
+配音：香草山巡管部– 文凯琳
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒2月26日报导，在1月24日一个与疫苗有关的座谈会上，美国多位前线医生、医学专家和疫苗受害者，都针对中共病毒疫苗的安全性，即是否应强制人民打疫苗以及孩童是否需要打疫苗等问题表示出高度质疑。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-25.jpg)
-原尔湾分校精神病学副教授和医学伦理学项目主任认为，相关公共卫生部门不想承认政策失败，但事实是大规模接种疫苗并没有抑制病毒传播，甚至奥密克戎变种出现后，美国的感染人数大幅提高了。
+当地时间2月26日凌晨，一位身处基辅市的中籍留学生在微博上哭诉称：由于墙内“五毛”们对于乌克兰战争和当地女性的有害言论，目前乌克兰国内已经激起了强烈的排华浪潮，当地华人都不得不隐藏起自己的中共国民身份以求自保。
 
-一位曾经的疫苗计划推手则表示，他并不支持全面的疫苗计划，尤其是不能让孩童接种疫苗。
+据了解，自俄罗斯发起对乌克兰的全面战争以来，中共党媒就一直引导墙内舆论站在发起战争的俄罗斯一方，并不断鼓吹中共的“大一统”论调，这致使很多墙内网民都为俄罗斯的侵略行为拍手叫好，并以胜利者的姿态调侃起乌克兰众多的无辜女性。
 
-评论人士认为：所有勇于揭露或试图力挽疫苗灾难狂澜、有良知的科学家、医生、学者或是疫苗受害者等都是值得肯定的，邪恶的疫苗计划必须尽快摧毁，以避免更大的人类灾难。
+文字版原文：[中共国在乌留学生哭诉：请墙内五毛嘴下积德](https://gnews.org/zh-hans/2067918/)
 
-参考链接：
+音频处理/发稿：Daxia
 
-- [醫學家雲集 談自然免疫和接種疫苗免疫（上）](https://www.epochtimes.com/b5/22/2/26/n13606046.htm)
-- [來自頂級免疫學家的怒吼—“歷史必將對疫苗狂人進行審判”](https://gnews.org/zh-hant/1854776/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
-
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -33,7 +23,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

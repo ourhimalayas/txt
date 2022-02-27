@@ -2,38 +2,24 @@
 ---
 
 
-## 新中国联邦战友致“粉红兄”的一封信——俄乌大战之人性考验
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2072854/)
+## 俄乌战争｜英国王室罕有发表政治取态：“我们与乌克兰站在一起”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2072895/)
 
-作者：香草山教育部-九妹
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-85.png)
-粉红兄，你觉得对阵那些吻别爱人和女儿义无反顾冲锋陷阵的男人；对阵一个亡命天涯时哪怕是无衣遮体也要带上狗狗的民族，外加一个脱下西装换战装无畏捐躯的总统，俄罗斯会赢吗？你真的觉得毫不退缩、拿起枪捍卫祖国领土完整的灵魂会输掉信念吗？
+**撰文/ 港台前线｜发布日期/ 27/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/英國王室罕有發表政治取態「我們與烏克蘭站在一起」.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/fe8a0a6eaftype_jpeg_size_640_178_end.jpeg)
+英国王室因恪守宪政规范维持政治中立，向来对政治议题取态谨慎，惟针对眼下正发生的俄乌战争，王室成员罕有地就该政治事件公开表态。
 
-粉红兄，你有必要知道当乌克兰男人们保卫自己的家园和女人的时候，中国男人在忙着调戏这些英雄的妻女。我们“厉害国”的“键盘大军”所向披靡，横扫互联网。他们不但调侃战争，嘲笑英勇无畏的乌克兰总统泽林斯基是喜剧演员出身，为俄罗斯侵略者摇旗呐喊，而且还当着自己女人的面散布关于乌克兰女性的不当言论，将中国人最丑陋的一面曝光于世，无形中煽动排华，置中国在乌同胞安危于不顾。哦，对了，蛇岛十三壮士竟然有一个女兵，意不意外？此时此刻，如果键盘侠们还是个人，不知作何感想……
+英国威廉王子（Prince William）和妻子凯特（Kate）今日（27日）在社群网站推特（Twitter）表示，在乌克兰英勇对抗俄罗斯入侵之际，会同乌克兰总统泽连斯基和乌克兰全体国民站在一起。
 
-另外，粉红兄你也有必要知道作为俄罗斯盟友的我们的“厉害国”，其实一点也不“厉害”，既没有在俄乌开战前及时撤侨，也没有在开战后及时救援。当美国民营企业家马斯克在乌克兰上空部署星链卫星保护乌克兰网络、助阵正义的时候，我们那个承诺过乌克兰销毁核弹后对乌实施保护的伟大、英明、正义的共产党，默默地在联合国安理会15个常任理事国关于乌克兰局势决议草案的会议上投了弃权票。
+他们写道：“2020年10月，我们有幸会见（乌克兰）总统泽伦斯基（Volodymyr Zelensky）与第一夫人，了解他们对乌克兰未来的乐观态度和希望。”“今天，当乌克兰英勇为未来奋战时，我们和泽伦斯基总统与乌国全体民众站在一起。”
 
-粉红兄，你更有必要知道，与此同时，新中国联邦的创始人Miles郭先生，在大洋彼岸紧急召开直播会议，发动全体战友，向在乌克兰战友、华人华侨及美国友人展开全球救援行动。此次救援不但针对战友及华人华侨，还兼顾了美国友人，更令人为之感动的是Miles郭在直播中强调，在战争面前新中国联邦发扬人道主义精神“有救无类”，一视同仁救援包括小粉红在内的所有中国人。除了万神万佛，只有新中国联邦才能发出这样慈悲的感召！
+白金汉宫（Buckingham Palace）今日亦表示，女王伊丽莎白二世已接受外交大臣特拉斯（Liz Truss）的建议，将原订下周三（3月2日）在温莎古堡（Windsor Castle）接见驻英外交使节一事延期。
 
-没有人天生粉红，当你知道真相，我知道粉红兄你一定也是战友，醒来吧！我们在新中国联邦等你！
+另外，早前已卸下王室头衔的哈利王子（Prince Harry）和妻子梅根（MEghan）也在社交网站声援乌克兰，强调力挺乌克兰人民抵抗（俄罗斯）违反国际和人道法的举动。
 
-校对/发稿：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-63.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+来源｜[路透社](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;cad=rja&amp;uact=8&amp;ved=2ahUKEwi-hoeHkp_2AhUhD0QIHcGeAF4QxfQBKAB6BAgPEAI&amp;url=https%3A%2F%2Fwww.reuters.com%2Fworld%2Fuk%2Fuks-prince-william-wife-say-they-stand-with-ukraine-2022-02-26%2F&amp;usg=AOvVaw1bu_tapKNlE4yJgzztxNS8)
 
  
 

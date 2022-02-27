@@ -2,49 +2,39 @@
 ---
 
 
-## 一周疫情、疫苗信息汇总
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2072839/)
+## 新中国联邦战友致“粉红兄”的一封信——俄乌大战之人性考验
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2072854/)
 
-作者：香草山医疗部 – Zion文恩；DC农场 – 火来；香草山 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年2月15日至2月22日，除中共国外，全球新增中共病毒确诊患者1247万例，同比上周下降了13.16%，已经连续三周呈现下降趋势;  此外，本周新增确诊死亡病例67521例，同比上周下降了5.94%，进入2022年一季度以来，全球每周新增“中共病毒”死亡出现第二周下降。
+作者：香草山教育部-九妹
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-85.png)
+粉红兄，你觉得对阵那些吻别爱人和女儿义无反顾冲锋陷阵的男人；对阵一个亡命天涯时哪怕是无衣遮体也要带上狗狗的民族，外加一个脱下西装换战装无畏捐躯的总统，俄罗斯会赢吗？你真的觉得毫不退缩、拿起枪捍卫祖国领土完整的灵魂会输掉信念吗？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-37.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/fe8a0a6eaftype_jpeg_size_640_178_end.jpeg)
 
-截至2月22日，除中共国外，全球累计接种了76.1亿剂中共病毒疫苗，同比2月15日的接种数据增长了1.87%.
+粉红兄，你有必要知道当乌克兰男人们保卫自己的家园和女人的时候，中国男人在忙着调戏这些英雄的妻女。我们“厉害国”的“键盘大军”所向披靡，横扫互联网。他们不但调侃战争，嘲笑英勇无畏的乌克兰总统泽林斯基是喜剧演员出身，为俄罗斯侵略者摇旗呐喊，而且还当着自己女人的面散布关于乌克兰女性的不当言论，将中国人最丑陋的一面曝光于世，无形中煽动排华，置中国在乌同胞安危于不顾。哦，对了，蛇岛十三壮士竟然有一个女兵，意不意外？此时此刻，如果键盘侠们还是个人，不知作何感想……
 
-本周，欧洲方面，瑞士政府宣布取消大部分卫生防疫限制，只要求在医疗中心和公共交通工具上戴口罩。瑞士同时也取消了疫苗接种证明等入境要求，但是对于来自高感染地区的游客，仍然实施较为严格的入境限制。奥地利政府也将在3月5日取消几乎所有的防疫限制。
+另外，粉红兄你也有必要知道作为俄罗斯盟友的我们的“厉害国”，其实一点也不“厉害”，既没有在俄乌开战前及时撤侨，也没有在开战后及时救援。当美国民营企业家马斯克在乌克兰上空部署星链卫星保护乌克兰网络、助阵正义的时候，我们那个承诺过乌克兰销毁核弹后对乌实施保护的伟大、英明、正义的共产党，默默地在联合国安理会15个常任理事国关于乌克兰局势决议草案的会议上投了弃权票。
 
-中东地区，以色列计划于3月1日取消病毒防疫限制措施，但是仍然决定为60岁以上的以色列人接种第四针疫苗。
+粉红兄，你更有必要知道，与此同时，新中国联邦的创始人Miles郭先生，在大洋彼岸紧急召开直播会议，发动全体战友，向在乌克兰战友、华人华侨及美国友人展开全球救援行动。此次救援不但针对战友及华人华侨，还兼顾了美国友人，更令人为之感动的是Miles郭在直播中强调，在战争面前新中国联邦发扬人道主义精神“有救无类”，一视同仁救援包括小粉红在内的所有中国人。除了万神万佛，只有新中国联邦才能发出这样慈悲的感召！
 
-北美地区，2月21日，美国疾病预防控制中心CDC被媒体爆出，隐瞒了3,300万18-49岁美国人施打的加强针数据，理由是担心它可能显示对这一年龄段的加强针无效，此举引发公众强烈反响。同在北美地区的加拿大，在2月23日，强行清理掉国会山抗议的卡车，逮捕、遣返司机，冻结部分抗议者与捐款者银行账户之后，加拿大总理特鲁多宣布撤销紧急状态法。
+没有人天生粉红，当你知道真相，我知道粉红兄你一定也是战友，醒来吧！我们在新中国联邦等你！
 
-此外，英国政府内部越来越倾向认定中共病毒来自武汉实验室泄露。2月20日，英国白金汉宫发布皇室声明，英国女王伊丽莎白二世中共病毒检测呈阳性，并出现了类似轻微感冒的症状。白金汉宫表示，女王将继续在温莎城堡履行轻松的公务，并接受医疗护理。
+校对/发稿：飞虹
 
-参考链接：
-
-- [Suiza, Austria e Israel eliminan todas las restricciones, incluido pasaporte Covid y mascarilla](https://www.expansion.com/economia/2022/02/17/620e38a8468aeba46d8b467f.html)
-- [Israel to allow in all tourists regardless of COVID vaccination status](https://news.yahoo.com/israel-allow-tourists-regardless-covid-142826422.html)
-- [CDC is refusing to publish data it has collected on booster effectiveness for 33 MILLION Americans aged 18-49 over fears it might show the vaccines as ineffective: FDA expert tells CDC to ‘tell the truth’](https://www.dailymail.co.uk/news/article-10537161/CDC-refusing-publish-data-collected-booster-effectiveness-aged-18-49.html)
-- [UK government believes Wuhan lab leak most likely COVID-19 origin: report](https://www.foxnews.com/world/uk-government-covid-origins-wuhan-lab)
-- [Queen Elizabeth II tests positive for coronavirus, is experiencing ‘mild cold like symptoms,’ palace says](https://www.washingtonpost.com/world/2022/02/20/queen-elizabeth-covid-positive/)
-- [Trudeau revokes Emergencies Act, saying existing laws are enough to deal with protesters](https://edition.cnn.com/2022/02/23/americas/canada-trudeau-revokes-emergencies-act/index.html)
-- [The Queen tests positive for Covid](https://www.bbc.co.uk/news/uk-60453566)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
-
-总编：飞虹
-编辑：Ivy001；Zion文恩
-校正/发稿：海阔天空1
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-63.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

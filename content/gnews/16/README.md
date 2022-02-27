@@ -2,25 +2,20 @@
 ---
 
 
-## 居家隔离！港共政府预备了逾10万条电子手环
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2072903/)
+## 台湾｜中共频放高空气球穿过领空 台国防部表示正严密监控
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2072980/)
 
-香港疫情大爆发，上周港共政府准备实施「疫苗通行证」，为了加强推行毒疫苗注射，来对港人的出行进行限制。
+**撰文/ 港台前线｜发布日期/ 27/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/中共頻放高空氣球穿過領空-台國防部表示正嚴密監控.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/LDjgQvzdZL82yYpbU0x93oWPXwCUitlCG9r2hxva9oc.jpg)图片来源：香港01
+台湾国防部26日证实指，中共近期针对台湾北部、中部上空施放至少四批高空气球。
 
-如今香港感染中共病毒人数日日攀升，医院病人爆满，港共政府以“防止进一步拖垮医疗系统”为由，开始推行“居家隔离”计划。创新及科技局局长薛永恒27日表示，港共政府预备了逾10万条电子手环，亦会订购更多，强调手环供应以应付需求，但即使已不断安排人手派发，惟确诊数目上升需要更多时间。
+经台湾空军雷达侦获，高空气球飞行路径分别穿越基隆、桃园、新竹、台中上空。这些区域分别有海军（基隆）、陆军（桃园）、空军（新竹）、大型导弹基地（台中）等重要军事设施。
 
-简评：中共吃香港，为了动台湾！中共侵台在即，香港有着重要的地理位置，港共政府从“疫苗通行证”到“居家隔离”与“电子手环”，借疫情对港人的管控越来越严格。港人保重，中共远比疫情可怕，中共不灭没有人安全！
+国防部发言人史顺文表示，空军对于气球的动向都有掌握，研判气球是气象或科研的用途，后续会严密来监控。
 
-新闻来源：[香港01](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/740822/%E5%B1%85%E5%AE%B6%E9%9A%94%E9%9B%A2-%E5%B7%B2%E5%82%99%E9%80%BE10%E8%90%AC%E6%A2%9D%E9%9B%BB%E5%AD%90%E6%89%8B%E7%92%B0-%E8%96%9B%E6%B0%B8%E6%81%92-%E6%9C%AA%E4%BE%86%E4%B8%8D%E6%96%B7%E6%9B%B4%E6%96%B0%E5%AE%89%E5%BF%83%E5%87%BA%E8%A1%8C)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+来源｜[ETToday](https://www.ettoday.net/news/20220227/2197407.htm)、[雅虎](https://tw.sports.yahoo.com/news/%E8%A7%A3%E6%94%BE%E8%BB%8D%E9%AB%98%E7%A9%BA%E6%B0%A3%E7%90%83%E9%A3%84%E9%80%B2%E5%8F%B0%E7%81%A3%E4%B8%8A%E7%A9%BA-%E5%9C%8B%E9%98%B2%E9%83%A8-%E6%B0%A3%E8%B1%A1%E7%A7%91%E7%A0%94%E7%94%A8-024242035.html)
 
  
 
