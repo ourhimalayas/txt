@@ -2,41 +2,25 @@
 ---
 
 
-## 有声|被困在乌克兰的巴西足球运动员请求帮助
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2075546/)
+## 樱花FM|日本队启程前往北京 创纪录的124人参加海外冬奥会
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2075584/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-8-5.png)
+据日媒ABEMA TIMES报道，距离北京冬季奥运会开幕还有5天，日本选手团今日早上从羽田机场出发前往北京。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/AFPTV_AFP-via-Getty-Images-640x480-1-1.jpg)
+日本选手团的着装是海军蓝西装外套，系着红色领带，左胸上闪耀着日本队的徽章。这件西装外套将用于开幕式和闭幕式，此次北京“纳粹奥运会”的开幕式将于2月4日举行，整个冬奥会将历时17天至2月20日结束。
 
+加上新项目跳台滑雪混和组，15个竞技种类共109个项目，为冬季赛事历史上最多。冰壶等一些比赛将于2月2日开始。本次北京冬奥会的运动员出场人数将达到124人，是国外冬奥会参赛的最高人数。女子冰球队已经进入奥运村，今天约有80名球员离开日本。
 
-Breitbart News 2月24日报道： 两支乌克兰足球队的巴西球员发布了一段视频，请求他们的祖国帮助他们离开乌克兰，避开普京的入侵部队。
+文字版原文：
 
-来自顿涅茨克山庄和基辅迪纳摩队的球员们已经将他们的家人搬到了几家酒店，希望能在入侵中保持安全。 球员桑托斯在Instagram上发文道”我们真的很绝望，没有办法出去，我们正在经历混乱， 我们有来自我们俱乐部的支持。但这种绝望是令人痛苦的。我们等待着来自我们国家的支持。我们以所有在乌克兰的巴西人的名义发言“。
+[日本队启程前往北京 创纪录的124人参加海外冬奥会 – GNEWS](https://gnews.org/zh-hans/1932697/)
 
-其他来自巴西的球员也发布消息，恳求帮助他们逃离乌克兰。一名球员的妻子说“我们女人和孩子在一起，感觉有点被遗弃了， 巴西外交部的通讯主任莱昂纳多-戈尔古略回应称巴西没有能力组织任何疏散工作，建议居住在乌克兰东部的巴西人通过自己的方式离开该国。
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
 
-
-
-文字版原文：[被困在乌克兰的巴西足球运动员请求帮助](https://gnews.org/zh-hans/2067582/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

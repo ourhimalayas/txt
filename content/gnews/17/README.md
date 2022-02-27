@@ -2,35 +2,24 @@
 ---
 
 
-## 俄乌最新消息：普京下令俄罗斯核威慑力量进入高度戒备
-` 军情启示录` [轉載自GNews](https://gnews.org/zh-hans/2075478/)
+## 樱花FM|“轻石沉甸”解决！福工大的准教授们发明了新思路
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2075541/)
 
-翻译：AWAC (新西兰伊甸农场)
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-7-4.png)
+受小笠原群岛海底火山喷发的影响，冲绳县等海岸周边大量轻石流入，对当地的渔业和旅游业造成了巨大损失。需要迅速、持续的对应措施情况下，福冈工业大学（福冈东区）的准教授等2名提出了有助于解决问题的新处理方法。我们来听听是什么方法。
 
-发布：AWAC (新西兰伊甸农场)
+轻石处理法的是福工大学生命环境化学系久保研究室的久保裕也准教授和下条光浩讲师。通过新闻得知冲绳的轻石问题后，两人互相询问有没有什么好点子。研究室主要致力于“金属精炼”“废弃物再利用”，探索对地球友善且降低成本的资源提取法。尤其关注“碾碎”和“用重量分开”，此次处理方法的重点也是这两点。 问题在于大量漂浮的轻石漂浮在海面上。轻石的比重本来就比海水重，但成为问题的轻石，在岩浆凝结、体积收缩的过程中内部含有了微细气体。久保研究室主要研究的方法是，将轻石放入减压器中，形成真空状态，然后排出内部气体。处理后会出现水浸入的路径，含水的轻石就沉入海底。减压时间约为5分钟，再浸泡5分钟左右，恢复大气压。将轻石碾碎至直径2毫米左右后，70~80%会下沉。排出气体并浸入海水的轻石，即使内部残留有微小的气泡，也会承受水压至下沉的程度，因此不会再次浮上来。
 
-俄罗斯总统弗拉基米尔·普京已下令其军方将该国的核威慑力量置于高度戒备状态，以回应北约国家的”侵略性声明”。
+回收的轻石在陆地上再利用时，需去除轻石中含有的盐分。如果继续这样下去，会造成土壤的盐害，如果用水泥使用，可能会引起建材的腐蚀。今后如果轻石继续漂流，运输及清洗处理所需的人力及成本也会增加。本次方法是将减压处理的轻石“返海”，可望降低处理成本。实现时，设想用装有大型减压容器的船进行海上处理，扔到不会对海洋生物产生不良影响的海底。关于通过一系列的研究获得的成果申请了专利，正在向冲绳县提供创意。进行研究的久保准教授说：“希望目前的处理方法平衡利害，减压处理能有所成效。期待冲绳的各方生活能尽早恢复原状。”
 
-该命令由塔斯社宣布，是在普京，国防部长谢尔盖绍伊古和俄罗斯武装部队总参谋长瓦列里格拉西莫夫之间的会议上宣布的。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-20.jpg)
-*普京周日下令俄罗斯核威慑力量处于高度戒备状态。摄影：Alexei Nikolsky/美联社*
-*原文图片*
+文字版原文：
+[“轻石沉甸”解决！福工大的准教授们发明了新思路 – GNEWS](https://gnews.org/zh-hans/1932698/)
 
-普京在声明中说，”北约主要国家的高级官员也允许对我国发表侵略性言论，因此我命令国防部长和总参谋长（俄罗斯武装部队）将俄罗斯军队的威慑力量转移到特殊的战斗任务模式.” 国营塔斯社援引了该声明。
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
 
-目前尚不清楚”特殊战斗任务模式”意味着什么。普京警告外国不要干涉他正在进行的入侵乌克兰行动，称这可能导致”他们从未见过的后果”。他在白俄罗斯部署了防空导弹和其他先进导弹系统，并将他的舰队部署到黑海，以防止西方干预乌克兰。
-
-俄罗斯的入侵已造成数百人死亡。俄罗斯对基辅，哈尔科夫和其他乌克兰主要城市的建筑物发动了导弹袭击，因为俄罗斯威胁要发动自第二次世界大战以来前所未有的全面袭击。
-
-
-
-> Putin: "Western countries aren't only taking unfriendly economic actions against our country, but leaders of major Nato countries are making aggressive statements about our country. So I order to move Russia's deterrence forces to a special regime of duty." [pic.twitter.com/AC1yHncqZc](https://t.co/AC1yHncqZc)
-> — max seddon (@maxseddon) [February 27, 2022](https://twitter.com/maxseddon/status/1497923042101575685?ref_src=twsrc%5Etfw)
-
-
-
-**原文链接:**
-[Russia-Ukraine latest news: Putin orders nuclear deterrence forces on high alert; Kharkiv claims to have repelled Russian forces](https://www.theguardian.com/world/live/2022/feb/27/russia-ukraine-latest-news-missile-strikes-on-oil-facilities-reported-as-some-russian-banks-cut-off-from-swift-system-live?CMP=Share_iOSApp_Other)
 
  
 
