@@ -2,24 +2,39 @@
 ---
 
 
-## 【秘翻在线】救国心切！海外乌克兰人纷纷回国驰援
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2077117/)
+## 有声|俄罗斯全面发动入侵乌克兰的战争
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2077291/)
 
-#### 翻译/撰稿：zzballack
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间2月24日凌晨，据盖特和其他媒体消息显示，俄罗斯正在从三个主要方向对乌克兰发起大规模的入侵，且俄军采用的主要袭击方式为空袭和导弹。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-26-%E4%B8%8A%E5%8D%889.43.57.png)
+据悉，乌克兰已经有137名公民死亡，169人受伤。但面对俄军发起的陆、海、空全面入侵，乌克兰总统泽连斯基向全国民众呼吁，希望愿意保家卫国的乌克兰人能挺身而出，政府将为其配发武器。
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16459958871.png)        图片来源：美联社
-据《Newsmax》2月27日报道，当数十万难民在俄罗斯入侵乌克兰之际离开乌克兰时，一些海外乌克兰人正从欧洲各地返回家乡，协助保卫他们的祖国。
+与此同时，台湾危机成为继乌克兰之后全球关注的重点问题。对此，郭文贵先生也在当天的紧急直播中指出，共产党一定会攻打台湾，新中国联邦必须马上组织起来，全力以赴地向愿意撤出台湾的战友和台湾同胞们提供援助，在所不辞。另一方面，郭先生也呼吁墙内的同胞远离军事设施与基地，一定要保护好自己和家人的安全。
 
-波兰边防军2月27日表示，自2月24日俄罗斯入侵乌克兰以来，约有22000人入境乌克兰。2月27日早些时候，在波兰东南部梅迪卡(Medyka)的检查站，许多人正排队等候进入乌克兰。
+郭先生强调，台海危机一触即发，已经迫在眉睫。
 
-一个由20多名乌克兰卡车司机组成的团体正驶往检查站等候入境。一个留着小胡子的男子说道，他们从欧洲各地赶来返回乌克兰。另一名男子说，害怕的应该是俄罗斯人而不是我们。
 
-一位一直在波兰工作的名叫丹尼斯（Denis）的20多岁男子说：“我在波兰孤身一人，而乌克兰有我的一切，所以我要回家。”一位名叫莱萨（Lesa）的30多岁妇女说：“我很害怕，但我是一个母亲，想和我的孩子在一起。现状很可怕，但我不得不回国。”另一位年轻妇女也是为了照顾她的孩子而回国，这样乌克兰的男人就可以保卫国家。
 
-乌克兰总统弗拉基米尔·泽连斯基 (Volodymyr Zelenskyy)留在了首都基辅，激励乌克兰士兵对抗正在逼近基辅的俄军。乌克兰当局已禁止18至60岁的男性公民出境，另外呼吁外国志愿者前往乌克兰协助作战。联合国难民署周日表示，在俄罗斯入侵后，至少有20万人逃离乌克兰，前往波兰和其他邻国。
+文字版原文：[俄罗斯全面发动入侵乌克兰的战争](https://gnews.org/zh-hans/2070220/)
 
-新闻来源：[Ukrainians Return from Abroad to Fight Russian Invasion](https://www.newsmax.com/world/europe/ukraine-invasion-going-back/2022/02/27/id/1058699/)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

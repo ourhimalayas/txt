@@ -2,40 +2,28 @@
 ---
 
 
-## 有声|俄罗斯全面发动入侵乌克兰的战争
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2077291/)
+## 8架中共国军机进入台湾的非军事区
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2077334/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间2月24日凌晨，据盖特和其他媒体消息显示，俄罗斯正在从三个主要方向对乌克兰发起大规模的入侵，且俄军采用的主要袭击方式为空袭和导弹。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-26-%E4%B8%8A%E5%8D%889.43.57.png)
-据悉，乌克兰已经有137名公民死亡，169人受伤。但面对俄军发起的陆、海、空全面入侵，乌克兰总统泽连斯基向全国民众呼吁，希望愿意保家卫国的乌克兰人能挺身而出，政府将为其配发武器。
+撰稿：东京樱花团/英语组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-58.jpg)图片来源于网络![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-21.jpg)2月26日中共国飞机飞行路径（MND图片）
+台北（台湾新闻），8架中共国军机周六（2月26日）进入台湾防空识别区，这是本月的第15次入侵。
 
-与此同时，台湾危机成为继乌克兰之后全球关注的重点问题。对此，郭文贵先生也在当天的紧急直播中指出，共产党一定会攻打台湾，新中国联邦必须马上组织起来，全力以赴地向愿意撤出台湾的战友和台湾同胞们提供援助，在所不辞。另一方面，郭先生也呼吁墙内的同胞远离军事设施与基地，一定要保护好自己和家人的安全。
+据台湾国防部称，四架中共国人民解放军空军沈阳歼-11战斗机、两架沈阳歼-16战斗机和两架陕西运-8反潜战机飞入防空识别区西南角。作为回应，台湾派出飞机，发出无线电警告，并部署国防资源来追踪它们。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-12.jpg)中共国歼-16战斗机（MND照片）
+防空识别区是一个国家领空以外的区域，空中交通管制员要求飞入飞机表明身份。
 
-郭先生强调，台海危机一触即发，已经迫在眉睫。
+本月到目前为止，中共国一共派出61架军机进入台湾的识别区，包括40架战斗机，20架侦察机和一架直升机。
 
+自2020年9月以来，中共国增加了对灰色地带战术的使用，经常派飞机进入防空识别区，大部分事件发生在西南角。根据台湾国防部的数据，2021年，中共国军用飞机在239天内有961次进入防空识别区。
 
+灰色地带战术被定义为 “超越稳态威慑和保证的努力或一系列努力，试图在不诉诸直接和大量使用武力的情况下实现自己的安全目标。”
 
-文字版原文：[俄罗斯全面发动入侵乌克兰的战争](https://gnews.org/zh-hans/2070220/)
+[原文链接](https://www.taiwannews.com.tw/en/news/4456789)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
