@@ -2,32 +2,15 @@
 ---
 
 
-## 中日财经爆┃“作恶”被官司缠身！脸书裁撤核心技术团队
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070610/)
+## 关于俄罗斯-乌克兰的话题（持续更新中）
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2071068/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/04-2.png)
-[图片来源](https://www.google.com.hk/imgres?imgurl=https://v2.cimg.co/news/63547/35234/snapshot.jpg&amp;imgrefurl=https://thebittimes.com/metaverse-nfts-and-gaming-token-prices-soar-as-facebook-goes-meta-tbt5490.html&amp;tbnid=P77GUyLsgQBbAM&amp;vet=12ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ..i&amp;docid=vljlOet_P-mO9M&amp;w=1012&amp;h=674&amp;q=%20Meta%20%20metaverse&amp;ved=2ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ)
+#### 采集：瑞 H
 
-近日，有媒体报道，全球最大社交媒体公司脸书（Meta Platforms）已经解散了一个由300多名员工组成的团队，这些员工为该公司的AR和VR设备开发操作系统。鉴于该系统是元宇宙的关键技术，这让本已官司缠身的脸书前景更加黯然。
+#### 发布：白夜
 
-而1月5日，Meta曾回应“停止开发VR/AR系统”传闻称，其并未计划停止“为VR/AR设备开发操作系统”。
-
-去年10月28日，脸书由FaceBook更名为Meta，宣布全面进军元宇宙(metaverse)。而脸书更名的时机，正面临用户和监管广泛的批评，并深陷“滥用管理权”、“侵犯用户隐私”等多起重大法律诉讼。
-
-自2020年初中共病毒（新冠病毒Covid-19）肆虐全球开始，脸书与推特、谷歌等社交媒体巨头，与中共为首的世界邪恶势力勾兑、为虎作伥，特别是滥用平台和数据管理的权力，对中共病毒和疫苗真相信息进行恶意压制，为强制疫苗政策推波助澜，给全人类带来重大灾难。
-
-郭文贵先生多次断言，脸书、推特等社交媒体必将为其作恶付出沉重代价，甚至被诉讼至破产或消失。而脸书裁撤核心技术团队是值得关注的重要标志性事件。
-
-信息来源：
-
-[Meta解散AR和VR操作系统开发团队](https://www.163.com/dy/article/H138LTGF05198CJN.html)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
-
-
+##### 得道多助，失道寡助，从国际社会几乎一边倒地俄罗斯的谴责，对乌克兰的同情和支持，我们可以看到，集权政府的末日已经来临，和平平等的新秩序即将开启！战友们一定要保护好自己，安全地度过这黎明前的黑暗！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16459021861.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/5e3ceece5b34b55194246a52cfb8aef.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459022741.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459023271.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459061441.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459061921.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459063931.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459064691.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459064891.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459065201.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459065581.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459065911.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459067291.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459101271.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459106111.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459106431.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459106941.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459107401.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459107931.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459108071.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459108381.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459109261.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459109521.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459109821.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459112811.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459113081.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459113301.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459113481.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459113781.png)![](https://gnews.org/e39ea185-c622-4e71-a005-49bd61eb3982)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

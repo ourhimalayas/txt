@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/27/2022 12:06 PM (UTC)`
+
+为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。<br/><br/>救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。<br/><br/>24小时救援联系方式如下：<br/><br/>邮箱：<br/>ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO<br/>电话和短信：+1 720-657-6776 或 +1 719-224-4232<br/><br/>新中国联邦<br/>法治基金 <br/>2022年2月26日
+![img](https://media.gettr.com/group6/getter/2022/02/27/12/4934204f-f5da-3930-61bd-4b111c3b7482/c36b13dfc2ad94a2feb97d6ca8dae462.jpg)
+
+---
+
 `@miles 2/27/2022 8:38 AM (UTC)`
 
 2/26/2022 Miles Guo:  Education is not the cornerstone of a country, but a means to differentiate humans from animals; GEDU education includes both online and offline courses, we do not indoctrinate, but create an environment for students to engage with people and the physical world<br/><br/>2/26/2022 文贵直播：教育不是国家的基石，而是区分人和动物的手段；GEDU教育包括线上和线下课程，我们没有灌输，而是为学生创造与人与物接触的环境<br/>
@@ -151,13 +158,6 @@ Stop the War!
 
 2/25/2022 Miles Guo: How did the CCP and Russia form the Axis of Evil alliance? The CCP promotes the internationalization of the RMB globally and is pushing the transparency and controllability of the RMB domestically, aiming at enslaving the Chinese people and plundering their wealth. The CCP has introduced the requirement of registering the source of funds of personal deposits and withdrawals of cash over 50,000 yuan to prevent the RMB from going to the Himalaya Exchange.<br/><br/>2/25/2022 文贵直播: 中俄是如何形成邪恶轴心国同盟的？中共对外推行人民币国际化，对内实行人民币透明化和可控化，目的是奴役人民、掠夺财富；中共要求个人存取现金超5万元需登记来源就是为了防止人民币流向喜联储<br/>
 ![img](https://media.gettr.com/group47/getter/2022/02/26/15/f0a2293e-7ee7-090b-1192-829b981da0af/out.jpg)
-
----
-
-`@miles 2/26/2022 3:33 PM (UTC)`
-
-2/25/2022 Miles Guo:  The CCP's 3 tactics to attack Taiwan: 1) the so-called Taiwanese representatives request the CCP to send troops to Taiwan to eradicate Taiwan's separatists; 2) "siege but not fight", leading to the collapse of Taiwan; and 3) quickly occupy Taiwan. It's time to end the Taiwan issue. Either the CCP will be destroyed, or Taiwan will be destroyed.<br/><br/>2/25/2022 文贵直播：中共打台湾的3招：1) 所谓台胞代表请求中共派兵到台湾铲除台独分子；2) 围而不打，让台湾崩溃；3) 迅速占岛；台湾问题到了了结的时候，要么中共被灭，要么台湾被灭<br/>
-![img](https://media.gettr.com/group30/getter/2022/02/26/15/dfbfe113-7aa0-47ea-2dd8-cb76be04e57d/out.jpg)
 
 ---
 
