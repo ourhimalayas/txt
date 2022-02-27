@@ -2,16 +2,16 @@
 ---
 
 
-## 有声|韩国、台湾将参与国际对俄罗斯的制裁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072923/)
+## 有声|中共国在乌留学生哭诉：请墙内五毛嘴下积德
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072935/)
 
 配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
-韩国媒体2月24日报道，文在寅总统针对俄罗斯入侵乌克兰表示，在任何情况下，使用武力造成无辜生命的行为都是没有道理的，并称韩国将会参与国际对俄罗斯的制裁。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月26日凌晨，一位身处基辅市的中籍留学生在微博上哭诉称：由于墙内“五毛”们对于乌克兰战争和当地女性的有害言论，目前乌克兰国内已经激起了强烈的排华浪潮，当地华人都不得不隐藏起自己的中共国民身份以求自保。
 
-文在寅指出：国家之间的冲突应该通过对话或谈判解决，而不是战争。
+据了解，自俄罗斯发起对乌克兰的全面战争以来，中共党媒就一直引导墙内舆论站在发起战争的俄罗斯一方，并不断鼓吹中共的“大一统”论调，这致使很多墙内网民都为俄罗斯的侵略行为拍手叫好，并以胜利者的姿态调侃起乌克兰众多的无辜女性。
 
-文字版原文：[韩国、台湾将参与国际对俄罗斯的制裁](https://gnews.org/zh-hans/2067783/)
+文字版原文：[中共国在乌留学生哭诉：请墙内五毛嘴下积德](https://gnews.org/zh-hans/2067918/)
 
 音频处理/发稿：Daxia
 
@@ -24,8 +24,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
