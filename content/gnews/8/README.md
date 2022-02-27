@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦教育超级规划始于见识（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2071914/)
+## 新中国联邦人都应该掌握3到4种语言
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2071935/)
 
 #### 視頻剪輯: WinterGuo ；開智則立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蝸牛 ；牛魔王
 視頻定位：BENJ1；WEI
