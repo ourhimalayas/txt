@@ -2,42 +2,35 @@
 ---
 
 
-## 2/28/2022日本快讯：因俄罗斯被排除出SWIFT将导致日本石油和小麦价格继续上涨；乐天公司董事长兼总裁三谷浩史向乌克兰捐赠10亿日元
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2076498/)
+## MV版Hcoin To the Moon上线80天第20次位列匈牙利iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2076602/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/000245593_640.jpeg)
-[图片来源](https://www.nagoyatv.com/news/keizai.html?id=000245593)
+2/27/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线80天第20次位列匈牙利iTunes热门音乐视频榜榜首，第32次位列前三名
 
-**1.俄罗斯被排除出SWIF导致日本石油和小麦价格继续上涨**
+* * *
 
-[据产经新闻2月27号报道，因入侵乌克兰，美国和欧洲决定将俄罗斯金融机构排除在国际支付网络SWIFT之外，这导致了一些日用品进一步涨价的。俄罗斯是一个向世界出口原油、小麦和其他商品的主要国家，额外的制裁增加了出口中断和市场价格上涨的可能性。俄罗斯的军事侵略正开始影响到约8000公里外的日本人民的生活。](https://news.yahoo.co.jp/articles/5cec6a52fc2755cdd4f5b588713f055f288ebe0e)
+[【PDF 下载】Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-**2.乐天公司董事长兼总裁三谷浩史向乌克兰捐赠10亿日元**
+* * *
 
-[据体育报知2月27号报道，乐天公司董事长兼总裁三谷浩史27日在其推特账户上宣布，他将向遭受俄罗斯入侵的乌克兰捐赠10亿日元。这是对乌克兰人民的信任，看到这样一个美丽、和平和民主的国家经历这样的事情，确实令人心碎。他在推特上说：”我希望日本政府能采取坚定的立场。”](https://news.yahoo.co.jp/articles/568c9b9e4015ca53a1c526740986b6e9a5070d8f)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
 
-**3.岸田首相宣布日本参与SWIFT制裁**
 
-[据产经新闻2月27号报道，首相岸田文雄周三宣布，日本将加入美国和欧洲国家商定的制裁措施，将俄罗斯银行排除在国际结算网络SWIFT之外，以回应俄罗斯对乌克兰的入侵。日本还决定实施制裁，包括对总统普京在内的俄罗斯官员进行资产冻结。日本还将向乌克兰提供1亿美元的紧急援助。岸田总理说：”俄罗斯的这一侵略行为动摇了国际秩序的基础，国际社会不能再像以前那样继续与俄罗斯保持关系。”](https://news.yahoo.co.jp/articles/bc62a7f1734127e71fe158a83552a6bf5088077d)
+[【PDF 下载】Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-27-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-**
-4.在日本的乌克兰人和俄罗斯人在涩谷参加反对军事入侵抗议集会**
-
-[据NEWS WEB 2月27号报道，由于俄罗斯对乌克兰的军事入侵造成包括平民在内的许多人死伤，居住在日本的来自乌克兰和俄罗斯的人在东京涩谷参加了社交媒体号召的集会，他们高呼 “不要战争”。集会于27日在东京的JR涩谷站前举行，据组织者称，约有1000人参加了集会，他们手持写有 “阻止普京 “的日语和英语标语牌，以及写有 “为乌克兰争取和平 “的横幅，并高呼 “反对战争”。](https://www3.nhk.or.jp/news/html/20220227/k10013504241000.html?utm_int=news-social_contents_list-items_003)
-
-**5.日本政府担心俄罗斯的军事侵略助长了中共国的霸权主义**
-
-[据NHK 2月27号报道，关于俄罗斯对乌克兰的军事入侵，日本外相于26日与美国国务卿布林肯进行了电话交谈，他们同意严厉谴责入侵行为，认为这是严重违反国际法的行为，侵犯了主权和领土完整，是不可接受的。日本外相说：”这种侵略动摇了国际秩序的基础，俄罗斯试图用武力改变现状，可能会助长中共在台湾海峡和东海的霸权主义行动，并可能影响亚洲的区域秩序。](https://www3.nhk.or.jp/news/html/20220227/k10013503121000.html?utm_int=news-politics_contents_list-items_008)
-
-**6.NYK货船停靠乌克兰，无望撤离该国**
-
-[据NEWS WEB 2月27号报道，航运巨头日本邮船公司（NYK）透露，由于对停靠在乌克兰港口的三艘货船的离港限制，它无法撤离。在俄罗斯军事入侵乌克兰后，日本邮船于本月24日决定将其停靠在乌克兰港口的三艘货船撤离到该国以外更安全的水域，并一直在为撤离做准备。然而，据该公司称，港口管理部门没有批准离开港口的许可，截至26日，所有货船仍无法离开港口。](https://www3.nhk.or.jp/news/html/20220227/k10013503121000.html?utm_int=news-politics_contents_list-items_008)
-
-【日本银河系农场-阿尔法星球】
-
-作者 返朴归真
-
-校对 Totoro
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

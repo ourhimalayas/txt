@@ -2,15 +2,14 @@
 ---
 
 
-## 喜悦辣评
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2076461/)
+## 2022年2月27日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2076468/)
 
-制作：蚂蚁兄弟
+制作：DT新闻组
 
-该来的总要来，只是希望少一点儿献血
-该走的总要走，只是希望少一点儿眼泪
+**中共的杀戮还在继续……**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/xm220225.001-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/316EBD14-7F24-4A16-95B8-A14575E37C65.jpg)
 
 发稿：信心的选择
 
