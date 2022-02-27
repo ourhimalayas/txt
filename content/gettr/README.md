@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/27/2022 7:05 AM (UTC)`
+
+February 26th, 2022, Mr. Miles Guo’s Urgent Livestream: our rescue operation is based on the financial strength and international relations from G Series, ROL Foundation and ROL Society. Any fellow fighters shall not make any personal decisions to initiate any donations or so-called financial support of any kind at this time. The CCP’s infiltration will be very severe at this time and we must be careful<br/><br/>2/26/2022 文贵紧急直播：我们的救援来自G系列、法治基金、法治社会的经济实力和国际关系。任何战友此时不能做任何捐和所谓各种支持的私自决定。此时共产党的渗透会很严重，我们务必要小心<br/>
+![img](https://media.gettr.com/group21/getter/2022/02/27/07/f83a8949-f53c-3662-d7bb-33e33856a449/out.jpg)
+
+---
+
 `@miles 2/27/2022 5:39 AM (UTC)`
 
 2/26/2022 Miles Guo’s Urgent Livestream: The CCP has only rescued its family members and illegitimate children in Ukraine without taking any concrete action to withdraw or save any ordinary Chinese people. The priority of the New Federal State of China is to save the families of the citizens of the follow fighters of the New Federal State of China and the American friends by working with the UN relief organizations under the direction of the Rule of Law Foundation and Rule of Law Society, and we will help rescue as many of the expatriates from all other countries in Ukraine as we can.<br/><br/>2/26/2022 文贵紧急直播：中共只顾自己在乌克兰的家人和私生子，丝毫没有进行撤侨和任何救助普通华人的行动。新中国联邦将和联合国救援组织合作，在法治基金和法治社会的主导下优先救助新中国联邦战友的家人和美国朋友，并尽可能救助在乌克兰的所有国家的人。<br/>
@@ -155,13 +162,6 @@ Mr. Bannon 100% agree that the Wall Street has provided the capital from the pen
 
 《文贵大直播—GEDU专场》<br/><br/>主讲人：新中国联邦创始人 郭文贵先生<br/>主持：QMAY<br/>出镜老师：CanCan  平和  小皮匠   Happy 小刘老师<br/>嘉宾：甜甜<br/>导播：墨镜 小白白<br/><br/>美东时间：2/26/2022 8:30am<br/>北京时间：2/26/2022 9:30pm
 ![img](https://media.gettr.com/group13/origin/2022/02/26/02/d0476025-05ce-8da1-3845-e259ea21eda4/c27f802d3e74302293ca9c6ed9201bbe.jpeg)
-
----
-
-`@miles 2/26/2022 7:40 AM (UTC)`
-
-2/25/2022 Miles Guo: What are the two ultimate tactics for the UK to bring Russia to its knees? What is the meaning behind the US and European stock markets? The West will impose sanctions on the CCP, which will certainly be followed by military operations against the CCP. There will only be two financial systems in the future - the dollar system and the system of the New Federal State of China.<br/><br/>2/25/2022 文贵直播：英国干掉俄罗斯的两大绝招是什么？美欧股市的背后暗藏了什么玄机？西方将对中共的制裁并一定会有军事行动；未来世界的财富只有两家 - 美元系统和新中国联邦系统<br/>
-![img](https://media.gettr.com/group43/getter/2022/02/26/07/ab2bcf83-6a5a-cc4e-97fc-7342e0edd698/out.jpg)
 
 ---
 
