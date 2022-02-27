@@ -2,21 +2,28 @@
 ---
 
 
-## 视频|再次揭露HBO精心编织的谎言Part11
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2073974/)
+## 丹麦芬兰对俄罗斯飞机关闭领空
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2074005/)
 
-制作：香草山视频部
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图像-1-8.jpg)
+图片来源：视频截图
 
-近年来，中共通过蓝金黄等手段控制了世界上大部分的主流媒体和社交媒体，人们被迫只能接收到错误的信息和谎言，更甚者，中共还通过操控媒体掩盖其伤人、杀人的恶行。鉴于此种情形，郭文贵先生建立的GTV平台作为一个揭露中共邪恶的媒体，其一直在与目前世界上的所有虚假信息抗争。
+2022年2月27号，在刚刚结束的新闻发布会上，丹麦外交部长Jeppe Kofod说：丹麦正在向俄罗斯飞机关闭其领空， 我们已经做出了决定，现在只需要执行。他说，那将是今天。他强调**该禁令也适用于俄罗斯私人飞机**。
 
-然而，在HBO Vice 的剪辑视频中，杨贝贝将爆料革命战友对GTV的投资抹黑为一项欺诈计划。在此，我们将通过本期视频回顾中共对媒体的操控以及其对GTV投资者的迫害，来揭穿杨贝贝的这一污蔑。请收看揭露HBO精心编织的谎言第十一部分。
+Jeppe Kofod 没有谈论丹麦将如何在俄罗斯飞机违反禁令时拒绝它们，但强调丹麦将执行禁令。 他说，将不会有俄罗斯飞机飞入我们的领空。
 
-发稿：林礼
+芬兰也效仿丹麦，将对俄罗斯飞机关闭领空。在俄罗斯入侵乌克兰之后，芬兰现在也将成为不断扩大的欧洲防空墙的一部分。芬兰与俄罗斯有 1,300 公里的边界，“正准备对俄罗斯空中交通关闭领空”。
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+英国、罗马尼亚、保加利亚、捷克共和国、波兰和三个波罗的海国家拉脱维亚、爱沙尼亚和立陶宛也对俄罗斯飞机关闭了领空。
+
+新闻来源：
+
+[TV2.dk](https://nyheder.tv2.dk/politik/2022-02-27-danmark-lukker-luftrummet-for-russiske-fly)
+
+[Berlingske.dk](https://www.berlingske.dk/internationalt/finland-forbereder-sig-paa-at-lukke-luftrum-for-russiske-fly?referrer=RSS)
+
+
 
  
 
