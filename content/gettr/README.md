@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/27/2022 2:57 AM (UTC)`
+
+2/26/2022 Miles Guo’s Urgent Livestream: The New Federal State of China is dedicated to upholding the image of the Chinese as kind, courageous, and peace-loving people! The world needs peace, and we will work with the people of the world to fight against dictatorships and evil forces to maintain the safety and human rights of the Chinese people!<br/><br/>2/26/2022 文贵紧急直播：新中国联邦致力于维护中国人善良、勇敢和爱好和平的形象！世界需要和平，我们要和全世界人民一起跟独裁和邪恶势力战斗，维护中国人的安全和人权！
+![img](https://media.gettr.com/group27/getter/2022/02/27/02/df9aa76e-09a9-1ae9-9fc5-4896165d2b35/out.jpg)
+
+---
+
 `@miles 2/26/2022 11:32 PM (UTC)`
 
 2022年2月26日 紧急直播 救援在乌克兰中国同胞和美国友人方案
@@ -155,13 +162,6 @@ Mr. Bannon 100% agree that the Wall Street has provided the capital from the pen
 
 2/25/2022 Miles Guo: Why do Putin and Xi Jinping want to start the war? The fundamental reason is that they are not in good health and are under huge pressure from political infightings and the economy. The coronavirus and the COVID vaccines are premeditated and perfect means to commit genocide and to start the WWIII.<br/><br/>2/25/2022 文贵直播：普京和习近平为什么干这票？根本原因是他俩身体都不行了，而且内部政治和经济压力山大；冠状病毒和疫苗灾难是蓄谋已久的完美种族大屠杀，开启了第三次世界大战！<br/>
 ![img](https://media.gettr.com/group25/getter/2022/02/26/04/1b6871f0-be52-9381-db91-aa555c17883d/out.jpg)
-
----
-
-`@miles 2/26/2022 3:29 AM (UTC)`
-
-2/25/2022 Miles Guo: Humanity has never experienced a time as dark as the year of 2022, and we will be living in turmoil for a long time. Xi Jinping and Putin had already started to make their evil plans as early as 2010. The trilateral relationship of the CCP, Russia, and the US has been swaying the course of humanity. The world order will undergo a great restructuring!<br/><br/>2/25/2022 文贵直播：人类从未像2022年如此黑暗，我们将面临着长期的乱世；习近平和普京从2010年就开始制定邪恶计划；中美俄的三角关系一直在影响着人类，世界秩序将发生大重组！<br/>
-![img](https://media.gettr.com/group16/getter/2022/02/26/03/3e2304d6-7adc-cad0-6a5d-35a85e8efc19/out.jpg)
 
 ---
 

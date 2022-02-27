@@ -2,8 +2,8 @@
 ---
 
 
-## 20220225文贵大直播：世界的动荡将导致与法币共存的区域数字货币
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2072035/)
+## 20220225文贵大直播：这次是海洋文明与陆地文明的再一次重创与PK！
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2072013/)
 
 作者:东京樱花团小视频组
 

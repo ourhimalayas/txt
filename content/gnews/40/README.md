@@ -2,36 +2,24 @@
 ---
 
 
-## 温哥华发生两名华人遇害事件
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070637/)
+## 樱花FM|法国扭捏表态不参加中共冬奥开幕式
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2069937/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月22日，据加拿大媒体报道，温哥华警方于20日在西区第八大道附近发现了两名女性死者。经调查后发现，50岁的吴淑敏和39岁的孙颖颖死于枪击事故。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-3-8.png)
+据巴黎时报报道：法国欧洲事务部长在1月30日，出席法国电台的节目时，就讨论2月4日开幕的中共冬奥会是否出席的问题时表示，体育部长将被派往2月4日开幕的北京冬奥会，但她不会出席开幕式，但会在奥运会期间的某个时候去当地支持鼓励法国运动员。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-5.jpeg)
+欧洲事务部长还进一步强调，拒绝明确表示他不会参加关于外交抵制的辩论，强调 “外交必须是低调的”。解释说欧盟对于有于抵制问题也还在讨论中，但认为许多国家没有派人或没有让其国家元首出席开幕式是明智的决定。
 
-据悉，当天早晨8点，邻居在一辆白色的宝马SUV内发现了这两名华裔女性死者。前一天夜里，附近的其他住户也表示，听见了几声类似烟花的巨响。
+文字版原文：
 
-资料显示，孙颖颖生前曾担任过中共国女足运动员前锋，其先后效力于大连实德女足和天津汇森女足。
+[法国扭捏表态不参加中共冬奥开幕式 – GNEWS](https://gnews.org/zh-hans/1935835/)
 
-温哥华警方表示，该案件的事发地是温哥华治安最好的社区，警方目前怀疑这是一起有预谋的案件，并且担心可能还有更多的受害者。而该社区的居民则提到，这一案件令整个社区都处在惶恐之中。
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
 
-参考链接：[Vancouver police investigate double homicide in Point Gre](https://vancouversun.com/news/crime/vancouver-police-on-scene-of-serious-incident-in-point-grey)y
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Irene木木
-编辑：Jack Li文阳
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

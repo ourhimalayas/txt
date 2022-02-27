@@ -2,8 +2,8 @@
 ---
 
 
-## 20220225文贵大直播：新中国联邦给的财富是让人看清真相解决贪嗔痴慢疑
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2072054/)
+## 20220225文贵大直播：世界的动荡将导致与法币共存的区域数字货币
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2072035/)
 
 作者:东京樱花团小视频组
 

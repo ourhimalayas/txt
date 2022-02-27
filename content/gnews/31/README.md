@@ -2,15 +2,22 @@
 ---
 
 
-## 关于俄罗斯-乌克兰的话题（持续更新中）
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2071068/)
+## 【转】2/25日止，俄乌开战要闻简报实况
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2071031/)
 
-#### 采集：瑞 H
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16459010461.png)
+俄国的装甲车被乌克兰美制标凖反装甲导弹击毁134辆，坦克被击毁64辆，战机被击落八架，无人机被摧毁6架，被俘飞行员一批（数字待确认）…
 
-#### 发布：白夜
+乌克兰国防部宣布，俄国的闪电战失败。各前线正在激战，俄方在乌克兰被俘人员超500人以上，从目前的态势看，乌克兰只有空军比较弱于俄方，其它方面表现非常出色，包括特种作战等，令侵略者俄方没有占到一丝便宜、俄方尴尬的战果及乌方的顽强抗战消息有待更新。
 
-##### 得道多助，失道寡助，从国际社会几乎一边倒地俄罗斯的谴责，对乌克兰的同情和支持，我们可以看到，集权政府的末日已经来临，和平平等的新秩序即将开启！战友们一定要保护好自己，安全地度过这黎明前的黑暗！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16459021861.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/5e3ceece5b34b55194246a52cfb8aef.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459022741.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459023271.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459061441.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459061921.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459063931.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459064691.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459064891.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459065201.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459065581.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459065911.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459067291.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459101271.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459106111.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459106431.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459106941.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459107401.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459107931.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459108071.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459108381.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459109261.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459109521.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459109821.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459112811.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459113081.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459113301.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459113481.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459113781.png)![](https://gnews.org/e39ea185-c622-4e71-a005-49bd61eb3982)
+乌克兰退役军人全部征召重新归属曾经的部队。
+
+在波兰方向，美欧源源不断的现代化装备运往乌克兰境内，重挫了普丁出兵的预期。欧盟国家全线对俄国航空禁飞，俄国方面从现开始，无法避免遭整个欧洲群殴的态势、美欧两个方向将给俄国史无前例的制裁！制裁方面包括制裁俄国推动战争的每个人，包括冻结了俄国国有银行，金融等在美欧境内的所有资产。也包括与俄罗斯明暗合作，支持侵略的任何国家也将波及，将迎来美欧最严励和毁灭性的制裁。
+
+若北约任何国家受到攻击，北约与美国即时正式出手，俄国怎么样收埸应该是凶多吉少。
+
+俄国境内到目前为止已经有52个州举行了大规模反战游行，制裁方面 美欧一刻不止将継续谋划出台针对俄方的严酷方案！
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

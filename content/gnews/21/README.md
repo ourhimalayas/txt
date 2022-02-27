@@ -2,29 +2,34 @@
 ---
 
 
-## 针对俄罗斯制裁 YouTube暂停了俄罗斯主要频道的广告收入
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2072030/)
+## 班农先生呼吁中国卡车司机为自由而战
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2072012/)
 
-翻译：冰糖葫芦喵
+作者：香草山健身部-新世界的一员
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+班农先生是我们新中国联邦伟大的创始人之一，他是个虔诚的信徒，心地善良，智勇兼备，是我们坚决灭共的紧密盟友，他一直把中国人和中国人民分开，他说中国人民是世界上最勤劳最善良的民族，是被反人类的独裁共产党奴役着的人民，中国共产党不等于中国人。
 
-编辑与校对：灭共文明
+2022/2/25他在战斗室谈加的自由车队得到了來自Vigano大主教的支援，他说他1000%認同，他认为Vigano大主教在世界经济论坛和达沃斯党的問題上是世界上最聰明的人之一在教会问题上只有香港的樞機主教陳日君在他之上，他完全懂得共产党的事。
 
-《路透社》2月26日报道，**周六，YouTube禁止俄罗斯国有电视新闻网（RT）和其他俄罗斯频道中播放广告，并收取广告费。**
+他还说我完全支持（加拿大）卡车司机，就像我支持这个新的正在美国西海岸形成的自由车队向东行驶，我想看到的是美国华裔卡车司机把他们的大卡车开到前沿去，因为我真正想看到的自由车队是中国的自由车队，如果來自老百姓的卡車司機說 “我們忍無可忍了”然后大家都把车开去北京，那麼中國共产党在30天內就會瓦解。
 
-据报道，YouTube以“特殊情况”为由表示，它正在**暂停与制裁有关的几个俄罗斯频道。**YouTube发言人Farshad Shadloo说，受影响频道的视频在推荐中出现的频率也会降低。他还说，应乌克兰政府的要求，RT和其他几个频道将无法在乌克兰使用。
+如果老百姓在后勤上卡住他们的脖子，他们撑不过30天就垮了，要记住，老百姓才是拥有一切权利的，他们只是没有意识到他们有权利，共产党只有9200万党员，真正有权利的只是极少数，绝大多数的共产党会转眼加入到老百姓的行列，老百姓才是拥有一切权利，他虔诚的祈祷，希望中国人能通过gnews，gtv，穿过防火墙，看到美国和加拿大发生的事，并且意识到，停断后勤补给链的权利完完全全在卡车司机他们手里，如果他们坚决不参与共产党的所作所为，就像掐断了共产党的喉咙，脖子，那共产党就结束了，中国共产党可能就会在30天内瓦解，没有任何东西能阻挡中国的自由车队。
 
-周三，欧盟宣布对包括对RT的主编玛格丽塔·西蒙尼安(Margarita Simonyan)在内的个人实施制裁，她是俄罗斯宣传的“核心人物”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/RT-主编.jpeg)RT的主编玛格丽塔·西蒙尼（图片来源：网络）
-报道称，**乌克兰副总理兼数字转型部长米哈伊洛·费多罗夫周六早些时候发推文称，他联系了YouTube，“以屏蔽俄罗斯宣传频道，如俄罗斯24频道、塔斯社、俄新社等。”**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/乌克兰副总理米哈伊洛·费多罗夫Mykhailo-Fedorov.jpg)**乌克兰副总理兼数字转型部长米哈伊洛·费多罗夫**
-数字研究人员奥米勒斯当时告诉路透社，在截至2018年12月的两年期间，俄罗斯从其支持的26个YouTube频道的广告中获得了估计700万至3200万美元。
+班农先生希望中国的卡车司机能看到这边的，澳大利亚的，世界各地的车队受到鼓舞，明白他们（对当权者的）危险性为其他行动要高1000倍，呼吁中国的卡车司机去站起来与中共对抗。
 
-周五，Facebook的所有者元平台公司(Meta platform Inc)禁止俄罗斯国家媒体在全球任何地方的服务上运行广告或通过广告创收。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-57.jpg)
 
-[YouTube blocks RT, other Russian channels from earning ad dollars | Reuters](https://www.reuters.com/technology/youtube-blocks-rt-other-russian-channels-generating-revenue-2022-02-26/)
+审核/编辑/发稿:qiutian（邱甜）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-7.png)
 
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

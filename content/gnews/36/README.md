@@ -2,27 +2,31 @@
 ---
 
 
-## 2022.2.26大直播 郭先生谈对新中国联邦教育的设想
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2070848/)
+## 中日财经爆┃“作恶”被官司缠身！脸书裁撤核心技术团队
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070610/)
 
-撰稿：大浪小水花
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/04-2.png)
+[图片来源](https://www.google.com.hk/imgres?imgurl=https://v2.cimg.co/news/63547/35234/snapshot.jpg&amp;imgrefurl=https://thebittimes.com/metaverse-nfts-and-gaming-token-prices-soar-as-facebook-goes-meta-tbt5490.html&amp;tbnid=P77GUyLsgQBbAM&amp;vet=12ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ..i&amp;docid=vljlOet_P-mO9M&amp;w=1012&amp;h=674&amp;q=%20Meta%20%20metaverse&amp;ved=2ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-26-at-9.28.30-PM.jpeg)
+近日，有媒体报道，全球最大社交媒体公司脸书（Meta Platforms）已经解散了一个由300多名员工组成的团队，这些员工为该公司的AR和VR设备开发操作系统。鉴于该系统是元宇宙的关键技术，这让本已官司缠身的脸书前景更加黯然。
 
+而1月5日，Meta曾回应“停止开发VR/AR系统”传闻称，其并未计划停止“为VR/AR设备开发操作系统”。
 
-郭文贵先生在2022年2月26日大直播中，讲到了对新中国联邦GEDU的设想。
+去年10月28日，脸书由FaceBook更名为Meta，宣布全面进军元宇宙(metaverse)。而脸书更名的时机，正面临用户和监管广泛的批评，并深陷“滥用管理权”、“侵犯用户隐私”等多起重大法律诉讼。
 
-郭先生提到新中国联邦的教育第一个目标就是松绑教育，把教育从人类历史上的政治教育转变回正常的教育。
+自2020年初中共病毒（新冠病毒Covid-19）肆虐全球开始，脸书与推特、谷歌等社交媒体巨头，与中共为首的世界邪恶势力勾兑、为虎作伥，特别是滥用平台和数据管理的权力，对中共病毒和疫苗真相信息进行恶意压制，为强制疫苗政策推波助澜，给全人类带来重大灾难。
 
-第二，我们要在全世界开启一个新的、人类上从来没有的松绑的金钱教育，我们必须松绑金钱教育，不允许老师和学生在这里有任何钱的味道，要彻底铲除。
+郭文贵先生多次断言，脸书、推特等社交媒体必将为其作恶付出沉重代价，甚至被诉讼至破产或消失。而脸书裁撤核心技术团队是值得关注的重要标志性事件。
 
-第三，新中国联邦教育教育就是提供适合一个人对自己有利、对他人有利的生长环境。
+信息来源：
 
-郭先生指出教育的本质就是培养一个人的性格，可启迪一个人的兴趣，激发他的潜质。要允许他犯错误，把错误变成能力和体验，而不是死在错误里。教育是人畜分开的一个最重要的手段，也是人类认知文明、创造文明和给予文明的必要的手段。
+[Meta解散AR和VR操作系统开发团队](https://www.163.com/dy/article/H138LTGF05198CJN.html)
 
-郭先生强调，一个国家、一个社会对教育的定位一旦不清楚、不健康，全部工具化，这个社会一定走向灾难。我们不能把新中国联邦教育的目标和新中国联邦追求的政治目标、思想目标混淆。新中国联邦教育，一切都是育人，为新中国联邦人提供成长的环境。
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
 
-参考链接：[2022年2月27日文贵大直播 GEDU专场](https://gtv.org/video/id=621a28c808ba8a07b1a3e95b)
 
  
 

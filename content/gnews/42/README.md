@@ -2,30 +2,41 @@
 ---
 
 
-## 中日财经爆┃“作恶”被官司缠身！脸书裁撤核心技术团队
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070610/)
+## 前辉瑞员工：中共病毒疫苗是人类基因编辑的工具
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2069663/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/04-2.png)
-[图片来源](https://www.google.com.hk/imgres?imgurl=https://v2.cimg.co/news/63547/35234/snapshot.jpg&amp;imgrefurl=https://thebittimes.com/metaverse-nfts-and-gaming-token-prices-soar-as-facebook-goes-meta-tbt5490.html&amp;tbnid=P77GUyLsgQBbAM&amp;vet=12ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ..i&amp;docid=vljlOet_P-mO9M&amp;w=1012&amp;h=674&amp;q=%20Meta%20%20metaverse&amp;ved=2ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ)
+作者：银河系农场 — 骄子
 
-近日，有媒体报道，全球最大社交媒体公司脸书（Meta Platforms）已经解散了一个由300多名员工组成的团队，这些员工为该公司的AR和VR设备开发操作系统。鉴于该系统是元宇宙的关键技术，这让本已官司缠身的脸书前景更加黯然。
 
-而1月5日，Meta曾回应“停止开发VR/AR系统”传闻称，其并未计划停止“为VR/AR设备开发操作系统”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
+近日，前辉瑞员工Karen Kingston表示，中共病毒疫苗的目的是成为基因编译的工具。CDC、FDA、NIH之前对此事完全知情，他们将对疫苗造成的不良后果不负任何责任。
 
-去年10月28日，脸书由FaceBook更名为Meta，宣布全面进军元宇宙(metaverse)。而脸书更名的时机，正面临用户和监管广泛的批评，并深陷“滥用管理权”、“侵犯用户隐私”等多起重大法律诉讼。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-26.jpg)图片来源网络
 
-自2020年初中共病毒（新冠病毒Covid-19）肆虐全球开始，脸书与推特、谷歌等社交媒体巨头，与中共为首的世界邪恶势力勾兑、为虎作伥，特别是滥用平台和数据管理的权力，对中共病毒和疫苗真相信息进行恶意压制，为强制疫苗政策推波助澜，给全人类带来重大灾难。
+Kingston说，中共病毒疫苗能否成功进行基因编译取决于很多不同的因素，包括是否在注射后迅速死亡。疫苗的另外一个目的是创造一个不是100%人类的新物种，向人体注入人工智能和计算机系统。中共病毒疫苗的意图还有杂交，将非人类物种细胞注入人体以实现基因整合。 据悉，一些大型生物技术公司曾利用从美国NIH的大额捐款在中共北京从事了生物武器的研究。而中共目前是订购基因、定制生物武器，制造疫苗等业务的最大客户之一，且这些企业大部分被中共勾兑，中国本土拥有各种大型制造设施。 最后Kingston感叹全球人类都被欺骗，各个当权者都利用谎言去逼迫人们接种中共病毒疫苗，这是一个精心策划的人类大屠杀计划。
 
-郭文贵先生多次断言，脸书、推特等社交媒体必将为其作恶付出沉重代价，甚至被诉讼至破产或消失。而脸书裁撤核心技术团队是值得关注的重要标志性事件。
+相关链接：
 
-信息来源：
+[https://newstarget.com/2022-02-21-purpose-of-covid-vaccine-is-genetic-editing.html](https://newstarget.com/2022-02-21-purpose-of-covid-vaccine-is-genetic-editing.html)
 
-[Meta解散AR和VR操作系统开发团队](https://www.163.com/dy/article/H138LTGF05198CJN.html)
+![This image has an empty alt attribute; its file name is Feb-55.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
+编辑/校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is good-66.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-66.png)
+
+
 
 
  
