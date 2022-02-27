@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/27/2022 1:02 PM (UTC)`
+
+2022年2月27日 文贵大直播：俄乌战争预测台海；普京嚣张中共角色；世界经济金融市场；台湾沦陷如何应对
+![img](https://media.gettr.com/group33/origin/2022/02/27/12/8d19658e-04a0-1128-bace-7314dbab3afb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 2/27/2022 12:06 PM (UTC)`
 
 为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。<br/><br/>救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。<br/><br/>24小时救援联系方式如下：<br/><br/>邮箱：<br/>ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO<br/>电话和短信：+1 720-657-6776 或 +1 719-224-4232<br/><br/>新中国联邦<br/>法治基金 <br/>2022年2月26日
@@ -151,13 +158,6 @@ Stop the War!
 
 2/25/2022 Miles Guo: What's the story behind my cracking sunflower seeds the other day? The New Federal State of China is so awesome that the CCP’s smearing campaigns all ended up being advertising for me. My accurate revelations about Xi and Putin's plot to invade Ukraine and Taiwan respectively has made the world admire our New Federal State of China.<br/><br/>2/25/2022 文贵直播: 文贵揭露嗑瓜子背后的故事；新中国联邦太牛了，中共的造谣污蔑都是给文贵做广告；文贵对习普密谋分别侵略乌克兰和台湾的精准爆料使得全世界对新中国联邦刮目相看
 ![img](https://media.gettr.com/group42/getter/2022/02/26/16/82979593-d201-ef0d-7661-dd765138b91d/out.jpg)
-
----
-
-`@miles 2/26/2022 3:42 PM (UTC)`
-
-2/25/2022 Miles Guo: How did the CCP and Russia form the Axis of Evil alliance? The CCP promotes the internationalization of the RMB globally and is pushing the transparency and controllability of the RMB domestically, aiming at enslaving the Chinese people and plundering their wealth. The CCP has introduced the requirement of registering the source of funds of personal deposits and withdrawals of cash over 50,000 yuan to prevent the RMB from going to the Himalaya Exchange.<br/><br/>2/25/2022 文贵直播: 中俄是如何形成邪恶轴心国同盟的？中共对外推行人民币国际化，对内实行人民币透明化和可控化，目的是奴役人民、掠夺财富；中共要求个人存取现金超5万元需登记来源就是为了防止人民币流向喜联储<br/>
-![img](https://media.gettr.com/group47/getter/2022/02/26/15/f0a2293e-7ee7-090b-1192-829b981da0af/out.jpg)
 
 ---
 

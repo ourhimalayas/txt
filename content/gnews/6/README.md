@@ -2,24 +2,27 @@
 ---
 
 
-## 受制裁影响 俄富豪将卸任英超切尔西管理层
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2074763/)
+## 新中国联邦和法治基金关于紧急救援乌克兰的通知
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2074877/)
 
-撰稿：东京樱花团/麗子
+[【PDF 下载：新中国联邦和法治基金关于紧急救援乌克兰的通知】](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦和法治基金关于紧急救援乌克兰的通知-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦和法治基金关于紧急救援乌克兰的通知-1.pdf)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/受制裁影响-俄富豪将卸任英超切尔西管理层.png)
+为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。
 
-英格兰超级联赛足球俱乐部切尔西26日宣布，其俄罗斯老板罗曼-阿布拉莫维奇将从管理层卸任。据说他与俄罗斯总统普京关系密切，一些媒体报道，在俄罗斯军事入侵乌克兰之后，本人可能会在英国受到制裁，包括扣押资产。
+救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。
 
-根据俱乐部发布的声明，阿布拉莫维奇将把管理权移交给俱乐部慈善基金会的董事。他于2003年接管切尔西俱乐部，并花费巨资加强俱乐部建设，赢得了数个冠军，包括上赛季的欧洲冠军联赛。
+24小时救援联系方式如下：
 
-信息源：
+邮箱：
+[\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection)
+电话和短信：+1 720-657-6776 或 +1 719-224-4232
 
-[プーチン氏と親密な富豪、英チェルシー経営から退く…資産差し押さえの可能性報道](https://news.yahoo.co.jp/articles/2201a91e80409107c18313b9b62e56efab645c90)
+新中国联邦
+法治基金
+2022年2月26日
+![](https://assets.gnews.org/wp-content/uploads/2022/02/c36b13dfc2ad94a2feb97d6ca8dae462.jpeg)
+[【PDF 下载：新中国联邦和法治基金关于紧急救援乌克兰的通知】](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦和法治基金关于紧急救援乌克兰的通知-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦和法治基金关于紧急救援乌克兰的通知-1.pdf)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
