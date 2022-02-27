@@ -16,6 +16,14 @@
 ---
 ## 頁面 9/40 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [40](/content/README-40.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
 
+[全文字版郭文贵先生2021年6月14日多方连线直播测试](/content/2021/06/20210614-1324537.md)
+
+[全文字版2021年6月14日郭文贵先生第一次G-TV直播](/content/2021/06/20210614-1324215.md)
+
+[全文字版郭文贵先生2021年6月13日G-TV直播](/content/2021/06/20210613-1321859.md)
+
+[全文字版2021年6月11日郭文贵先生G-TV直播](/content/2021/06/20210611-1316955.md)
+
 [全文字版2021年6月7日郭文贵先生G-TV直播](/content/2021/06/20210607-1306651.md)
 
 [全文字版2021年6月4日郭文贵先生G-TV直播](/content/2021/06/20210604-1301563.md)
@@ -57,14 +65,6 @@
 [2021年3月5日 郭文贵先生直播重点【文字版】](/content/2021/03/20210305-953022.md)
 
 [2021年3月5日 郭文贵先生直播速记【文字版】](/content/2021/03/20210305-951891.md)
-
-[郭先生2021年2月18日直播精要文字版](/content/2021/02/20210218-916824.md)
-
-[郭先生2021年2月16日直播精要文字版](/content/2021/02/20210216-911930.md)
-
-[文字版2021年1月12日郭先生GTV直播](/content/2021/01/20210112-769872.md)
-
-[文字版2021年1月10日郭先生GTV直播](/content/2021/01/20210110-769545.md)
 
 
 ## 頁面 9/40 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [40](/content/README-40.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
