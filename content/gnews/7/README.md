@@ -2,25 +2,30 @@
 ---
 
 
-## 视频|俄罗斯全面发动入侵乌克兰的战争
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2073998/)
+## 今日盖特大V推荐 — 马克·R·莱文（Mark R. Levin）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2074055/)
 
-制作：香草山视频部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2569.png)
+盖特链接：https://gettr.com/user/marklevinshow
 
-当地时间2月24日凌晨，据盖特和其他媒体消息显示，俄罗斯正在从三个主要方向对乌克兰发起大规模的入侵，且俄军采用的主要袭击方式为空袭和导弹。
+马克·R·莱文自述：
 
-据悉，乌克兰已经有137名公民死亡，169人受伤。但面对俄军发起的陆、海、空全面入侵，乌克兰总统泽连斯基向全国民众呼吁，希望愿意保家卫国的乌克兰人能挺身而出，政府将为其配发武器。
+这是《马克· 莱文秀》的盖特官方页面。免费下载我的播客 [**http://www.marklevinshow.com/audio-**](http://www.marklevinshow.com/audio-)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2573.png)图片来源：网络
+**马克·R·莱文简介：**
 
-与此同时，台湾危机成为继乌克兰之后全球关注的重点问题。对此，郭文贵先生也在当天的紧急直播中指出，共产党一定会攻打台湾，新中国联邦必须马上组织起来，全力以赴地向愿意撤出台湾的战友和台湾同胞们提供援助，在所不辞。另一方面，郭先生也呼吁墙内的同胞远离军事设施与基地，一定要保护好自己和家人的安全。
+马克·R·莱文（Mark Reed Levin 生于1957年9月21日）是美国律师，作家和电台名人。
+马克·莱文是联合广播节目《 马克·莱文秀》以及福克斯新闻《生命，自由与莱文》的主持人。莱文曾在罗纳德·里根总统的行政部门工作，并曾担任司法部长埃德温·米斯 ( Edwin Meese ) 的幕僚长。
 
-郭先生强调，台海危机一触即发，已经迫在眉睫。
+莱文是纽约时报畅销书七本书的作者，并为国家评论在线等媒体发表评论。自2015年以来，莱文一直担任《保守派评论》的主编，并以他的评论而闻名。
 
-发稿：林礼
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
