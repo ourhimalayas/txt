@@ -2,37 +2,42 @@
 ---
 
 
-## 联合国人权专家呼吁阻止中俄等国向缅甸军政府提供武器
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2072862/)
+## 心墙
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2072888/)
 
-作者：首尔天池农场 – zzballack
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据英国媒体2月23日报道，联合国缅甸人权状况特别报告员汤姆·安德鲁斯指出，俄罗斯和中共仍在继续向缅甸军政府提供战斗机等用来屠杀平民的武器，并催促联合国安理会阻止这些用于暴行的武器流入缅甸。
+撰稿：东京樱花团/加一根稻草
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-36.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/心墙.jpg)
 
-安德鲁斯表示，中共、俄罗斯和塞尔维亚自2018年以来一直在向缅甸军政府提供用于袭击平民的武器，这些武器包括喷气式战斗机、装甲车、弹道导弹系统和移动防御系统。报告说，这些国家“完全知道这些武器将被用于攻击平民”。
+脚下的雪“咯吱咯吱”的提醒我还在路上，远方的山告诉我家的方向。寂静的森林里偶尔的声响让我无比紧张，于是我拿起树枝作为我防卫的屏障，然后笑着对自己说：我很勇敢、坚强！
 
-联合国引述一位活动人士的话说，至少有1500名平民被军政府杀害，军方和武装反对派在农村的冲突导致30多万人流离失所，在对罗兴亚穆斯林少数民族进行血腥镇压后，数十万人逃往邻国孟加拉国。
+这段是我前半生的路程的描写，脆弱、孤独且凄凉。身在墙内的我，见证了太多的凄惨故事，在无边无际的“内卷”的漩涡中，没有同伴可依靠，没有信仰可向往。我只有高高的筑起“心墙”，来守卫我藏在心底里的那一丝丝希望。
 
-参考链接：
+“心墙”的建立与我受到的教育和生存的环境以及经历有关。那些受高等教育的精英或许安全感会好一些吧！我对此并不乐观。可以想象，在一个互害的环境里存在一个不知道保护自己的白痴会是怎样的后果。
 
-- [Russia and China are providing Myanmar military junta with fighter jets used to slaughter civilians: UN demands an end to flow of weapons used to carry out atrocities](https://www.dailymail.co.uk/news/article-10542121/Russia-China-providing-Myanmar-military-junta-fighter-jets-used-slaughter-civilians.html)
+然而适得其反，把与生俱来就向往自由的心关在墙内。不能抑制住来自血液里澎湃动力的跳动！上天让我来到这个世界上，一定有要我完成的使命，我要证明我没有白来这人世一场。
 
+小时候我们喜欢问为什么。那时候的问题是那么的多，以至于让大人们烦恼焦躁。那是我们对未知世界的探索的渴望，是充满无畏勇气和活力的探索。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+后来，当我们自以为掌握了这个世界的规则又或者觉得自己已经能够适应这个世界的时候，很多人结束了这个应该终生坚持的过程。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+很多事情的发生告诉我们，我们的一生都必须不断的学习才能够有利于社会的发展。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+一只蝴蝶煽动美丽的翅膀，画家被它的美丽感动，画出来栩栩如生的画作；作家被它翩翩起舞的身姿感动，创作出梁山伯与祝英台的爱情故事；生物学家被他的美丽感动，发现了破茧化蝶的过程；哲学家被它的美丽感动，创造出蝴蝶效应的理论……
+
+这个例子使很多人迷失了方向，当我们要刨根问底的时候，在我们眼前仿佛有很多岔路口，那么我们要终其一生探求的根到底在哪里？
+
+答案很简单，就在那堵心墙的里面。
+
+答案就在我们自己的心里。每个人都有适合自己的答案。这个答案源自于自己的思考，源自于灵魂深处的智慧。
+
+或许你现在满意的答案，并不是你很多年以后的答案，但是请不要去推翻它。它必然是你必须经历的过程，就像脚下的楼梯。
+
+如果你看能完上面的内容，那么请加入我们“新中国联邦”，她会使你行走在人生的路上不再孤单，有无数的人在这个旅程中帮助你或等待你的帮助。无论你是什么肤色，无论你是那个民族。这里有你想要的自由的思想，有尊守契约的战友和能使你真正强大起来的信仰。
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

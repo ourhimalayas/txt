@@ -2,28 +2,38 @@
 ---
 
 
-## 好莱坞明星米拉公开谴责俄罗斯入侵乌克兰
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2072842/)
+## 美国医学专家反对全面疫苗计划
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2072863/)
 
-撰稿：东京樱花团/百花李香
+作者：纽台湾宝岛农场 – dobi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒2月26日报导，在1月24日一个与疫苗有关的座谈会上，美国多位前线医生、医学专家和疫苗受害者，都针对中共病毒疫苗的安全性，即是否应强制人民打疫苗以及孩童是否需要打疫苗等问题表示出高度质疑。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-25.jpg)
+原尔湾分校精神病学副教授和医学伦理学项目主任认为，相关公共卫生部门不想承认政策失败，但事实是大规模接种疫苗并没有抑制病毒传播，甚至奥密克戎变种出现后，美国的感染人数大幅提高了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/好莱坞明星米拉公开谴责俄罗斯入侵乌克兰.jpg)[图片来源](http://red.ap.teacup.com/soliloquy/img/1300278395.jpg)
+一位曾经的疫苗计划推手则表示，他并不支持全面的疫苗计划，尤其是不能让孩童接种疫苗。
 
-好莱坞明星，原苏联时期出生在乌克兰基辅的米拉-乔沃维奇，2月25日在Instagram上投稿，对俄罗斯军事入侵乌克兰发表声明。
+评论人士认为：所有勇于揭露或试图力挽疫苗灾难狂澜、有良知的科学家、医生、学者或是疫苗受害者等都是值得肯定的，邪恶的疫苗计划必须尽快摧毁，以避免更大的人类灾难。
 
-米拉在声明中写道：对本周在我的祖国乌克兰发生的事件感到心碎和沮丧，我正在努力理解这些新闻。我的国家和生活在那里的人们都被轰炸了，我的朋友和家人都躲起来了。我在俄罗斯和乌克兰都有根。国家被摧毁，人们无家可归，他们原有的生活被粉碎。看到如此恐怖的景象，我被撕成了两半。这让我想起了我父亲的故乡前南斯拉夫的战争，以及我的家人告诉我的创伤和恐怖的事情。战争，永远是战争。不能带来和平的领导人，帝国主义的力量永无止境，而付出血与泪代价的总是人民。
+参考链接：
 
-国家被摧毁，家庭无家可归，他们的生活像木炭一样散落在周围。我被这些可怕的场面撕成了两半。这让我想起了我父亲的故乡–前南斯拉夫的战争，以及我的家人告诉我的创伤和恐怖的事情。战争。永远是战争，不能带来和平的领导者们。帝国主义的力量永无止境。而付出血与泪代价的总是人民。
+- [醫學家雲集 談自然免疫和接種疫苗免疫（上）](https://www.epochtimes.com/b5/22/2/26/n13606046.htm)
+- [來自頂級免疫學家的怒吼—“歷史必將對疫苗狂人進行審判”](https://gnews.org/zh-hant/1854776/)
 
-米拉还在她的个人资料中加入了一个带有 “帮助乌克兰 “标签的链接，以支持乌克兰的团体和组织，包括联合国紧急基金。
 
-信息源：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-[**ウクライナ出身のミラ・ジョヴォヴィッチ、ロシアの軍事侵攻に声明を発表**](https://news.yahoo.co.jp/articles/e05ec73e03ed062c6b5fcae584ac8ac8b786b6e0)
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

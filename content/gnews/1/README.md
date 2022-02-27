@@ -2,27 +2,41 @@
 ---
 
 
-## 有声|自由之家预警 世界自由民主正在衰落
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072950/)
+## 莫里森宣布澳大利亚对俄罗斯新一轮制裁
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2072999/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月25日，据相关媒体报道，人权组织“自由之家”当天公布了《2022年全球自由报告》。当中，该组织警告称，全球民主已经连续16年持续衰退，独裁集权越来越有可能会取代民主，成为国际上治理国家的常见模式。该报道也提到，近日，普京下令入侵乌克兰的举动更加表明了威权势力正在崛起。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-该报告还指出，在过去一年中，全球有60个国家遭遇了民主衰落的困境，世界上还有约38%的人口依然居住在不自由的国家中，而居住在自由过度的民众只占全球总人口的20%。
+整理：围剿维尼熊
+编辑：文泓
 
-文字版原文：[自由之家预警 世界自由民主正在衰落](https://gnews.org/zh-hans/2070221/)
-音频处理/发稿：Daxia
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/rferfe.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+图片来源：ABCNews & 雅典娜设计组
+
+
+当地时间2月25日根据《澳大利亚人报》报道，莫里森总理宣布了新一轮的制裁，让俄罗斯为其对乌克兰的侵略付出代价。
+
+早期前几轮澳洲的制裁对俄罗斯的影响微乎其微，总理说他正在与北约合作，向乌克兰提供非致命的军事装备和医疗用品，此外还呼吁抵制俄罗斯的所有体育赛事。因白俄罗斯是俄罗斯的主要支持者，澳大利亚还将扩大对白俄罗斯的制裁。
+
+莫里斯说，制裁将针对俄罗斯的寡头，他再次呼吁中国应谴责普京对乌克兰的战争。莫里森指责中国在俄罗斯入侵乌克兰后不到24小时就取消了对俄实施的小麦进口限制，北京放宽贸易限制是“完全不可接受的”。
+
+莫里森指出，目前澳大利亚不能单方面切断俄罗斯与SWIFT（环球银行间金融电信协会）网络的联系，要求其他国家，特别是那些参与SWIFT的国家，加入这一呼吁，拒绝俄罗斯进入该支付系统。
+
+最新消息，白宫已经出台进一步限制性措施，切断俄罗斯SWIFT系统。
+
+参考链接：[Scott Morrison宣布对俄罗斯新制裁](https://cn.theaustralian.com.au/2022/02/25/63960/)
+
+*发布：*星谕
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

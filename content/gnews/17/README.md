@@ -2,20 +2,29 @@
 ---
 
 
-## 有声|大直播–为灭共什么都可以失去！
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072841/)
+## 联合国人权专家呼吁阻止中俄等国向缅甸军政府提供武器
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2072862/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-63.png)
-郭先生在2022年2月16日的大直播中谈到，自己不想拥有财富，就像灭共后郭先生不想拥有政治权力一样坚决！想到爆料革命和新中国联邦的队伍越来越强大，郭先生哪有个人破产的恐惧？唯有破产后轻装上阵加快灭共的轻松和喜悦！
+作者：首尔天池农场 – zzballack
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据英国媒体2月23日报道，联合国缅甸人权状况特别报告员汤姆·安德鲁斯指出，俄罗斯和中共仍在继续向缅甸军政府提供战斗机等用来屠杀平民的武器，并催促联合国安理会阻止这些用于暴行的武器流入缅甸。
 
-郭先生推崇的是遇难呈祥，在危机中找到生机。虽然这个过程是痛苦和无奈的，但只要你不放弃，就能实现人生的伟大目标。塞翁失马，焉知非福？天下道路不只一条！一切苦难都是走向甘甜和幸福的开始与基础。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-36.png)
 
-文字版原文：[大直播–为灭共什么都可以失去！](https://gnews.org/zh-hans/2064530/)
+安德鲁斯表示，中共、俄罗斯和塞尔维亚自2018年以来一直在向缅甸军政府提供用于袭击平民的武器，这些武器包括喷气式战斗机、装甲车、弹道导弹系统和移动防御系统。报告说，这些国家“完全知道这些武器将被用于攻击平民”。
 
-音频处理/发稿：Daxia
+联合国引述一位活动人士的话说，至少有1500名平民被军政府杀害，军方和武装反对派在农村的冲突导致30多万人流离失所，在对罗兴亚穆斯林少数民族进行血腥镇压后，数十万人逃往邻国孟加拉国。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+参考链接：
+
+- [Russia and China are providing Myanmar military junta with fighter jets used to slaughter civilians: UN demands an end to flow of weapons used to carry out atrocities](https://www.dailymail.co.uk/news/article-10542121/Russia-China-providing-Myanmar-military-junta-fighter-jets-used-slaughter-civilians.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -23,7 +32,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,20 @@
 ---
 
 
-## 有声|韩国、台湾将参与国际对俄罗斯的制裁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072923/)
+## 台湾｜中共频放高空气球穿过领空 台国防部表示正严密监控
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2072980/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
-韩国媒体2月24日报道，文在寅总统针对俄罗斯入侵乌克兰表示，在任何情况下，使用武力造成无辜生命的行为都是没有道理的，并称韩国将会参与国际对俄罗斯的制裁。
+**撰文/ 港台前线｜发布日期/ 27/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/中共頻放高空氣球穿過領空-台國防部表示正嚴密監控.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-文在寅指出：国家之间的冲突应该通过对话或谈判解决，而不是战争。
+台湾国防部26日证实指，中共近期针对台湾北部、中部上空施放至少四批高空气球。
 
-文字版原文：[韩国、台湾将参与国际对俄罗斯的制裁](https://gnews.org/zh-hans/2067783/)
+经台湾空军雷达侦获，高空气球飞行路径分别穿越基隆、桃园、新竹、台中上空。这些区域分别有海军（基隆）、陆军（桃园）、空军（新竹）、大型导弹基地（台中）等重要军事设施。
 
-音频处理/发稿：Daxia
+国防部发言人史顺文表示，空军对于气球的动向都有掌握，研判气球是气象或科研的用途，后续会严密来监控。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
+来源｜[ETToday](https://www.ettoday.net/news/20220227/2197407.htm)、[雅虎](https://tw.sports.yahoo.com/news/%E8%A7%A3%E6%94%BE%E8%BB%8D%E9%AB%98%E7%A9%BA%E6%B0%A3%E7%90%83%E9%A3%84%E9%80%B2%E5%8F%B0%E7%81%A3%E4%B8%8A%E7%A9%BA-%E5%9C%8B%E9%98%B2%E9%83%A8-%E6%B0%A3%E8%B1%A1%E7%A7%91%E7%A0%94%E7%94%A8-024242035.html)
 
  
 

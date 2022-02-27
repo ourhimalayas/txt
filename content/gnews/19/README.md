@@ -2,28 +2,37 @@
 ---
 
 
-## 新中国联邦紧急开展乌克兰人道大救援
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2072785/)
+## 乌克兰版“六四坦克人”视频曝光
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2072840/)
 
-撰稿：东京樱花团/小小星
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据台湾媒体2月26日报道，在俄罗斯大举侵略乌克兰的时刻，一名乌克兰人以肉身阻挡俄罗斯装甲车的视频在网络疯传，其画面让人不禁联想到北京“八九六四”事件中，著名的“坦克人”场景。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦紧急开展乌克兰人道大救援-.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-40.jpg)
 
-2月27人，郭文贵先生临时紧急直播，向全球战友发出号召，新中国联邦要与国际救援组织一同前往乌克兰，救助那些被战争困住的人们！
+该视频画面显示，一排俄罗斯装甲车队正行驶在乌克兰街头，一名疑似乌克兰平民的男子站在车队的必经路线上，试图以肉身阻挡进犯的敌军。该男子除了阻挡装甲车以外，还用类似石块等的物体向装甲车抛掷。随后他还攀上了一辆装甲车的左前侧部位，试图阻止车辆行进。其它俄军装甲车见状急忙躲避，并未与该男子发生碰撞。
 
-“我们没有任何政治立场。就是本着救出生命，不分国籍不分肤色，能救的都救。我们拯救的是同类，人类！是一个个的生命！新中国联邦的战友们，我们现在是告诉世界，我们中国人种没问题，我们不等同于共产党”。郭文贵先生还强调，“在这场救援中，任何一个战友，都不要有为名为利的想法。一定要有一颗无我的心”。
+视频中该男子虽然未对俄国军车造成有效伤害，但乌克兰人在绝望中尝试保卫家园的精神，已传遍网络，并引发了全球网友热议。
 
-各个农场的负责人和联盟负责人，铁血组的成员。还有郝海东，叶钊颖夫妇都第一时间表示，全力以赴，用我们的实力，智慧和国际形象进行救助！
+参考链接：
 
-多少人在默默付出，特别是国内的战友。多少有正义感和良知的人站在一起。我们看到了世界正在因为我们的努力而醒来！加油新中国联邦人！
+- [絕望！烏克蘭人肉身擋俄軍裝甲車 激似「六四坦克人」影片曝光](https://news.ltn.com.tw/news/world/breakingnews/3841945)
 
-信息来源：
 
-[2022年2月26日 紧急直播：救援乌克兰和台湾战友的方案](https://gtv.org/video/id=621ab888a391e321a0c853e5)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
