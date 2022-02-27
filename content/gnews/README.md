@@ -15,65 +15,65 @@
 
 ---
 
-### [有声|25日英美加表示继续加大对俄罗斯的制裁力度](/content/gnews/1/README.md)
- ` MOSREC`
-
-### [在乌克兰蛇岛的士兵有可能还活着](/content/gnews/2/README.md)
- ` Itana`
-
-### [有声|蓬佩奥计划近期访台，再次挑动中共神经](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [俄罗斯和乌克兰同意谈判](/content/gnews/4/README.md)
- ` Shuizhuyu`
-
-### [有声|班农先生呼吁中国卡车司机为自由而战](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [2022年2月27日大直播速记精萃](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [明是非 守道义](/content/gnews/7/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [有声|灭共者之郭氏情报站（31）2022/02/26 文贵大直播-EDU专场](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [俄罗斯入侵乌克兰后，欧足联将欧洲冠军联赛决赛从圣彼德堡移至巴黎](/content/gnews/9/README.md)
- ` Itana`
-
-### [埃隆-马斯克称：SpaceX 星链 卫星在乌克兰激活](/content/gnews/10/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [世界会看到我们新中国联邦的力量](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [乌克兰最强大的武器是其总统](/content/gnews/12/README.md)
- ` Shuizhuyu`
-
-### [文贵爆料 2.27：俄乌战争——普京一个人的战争](/content/gnews/13/README.md)
- ` 秘密翻译组-原创组`
-
-### [三年前扮演总统的喜剧演员, 今日领军对抗俄军](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|灭共者之郭氏情报站（30）2022/02/25 文贵大直播](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [新中国联邦紧急启动人道救援行动](/content/gnews/16/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [2/28/2022日本快讯：因俄罗斯被排除出SWIFT将导致日本石油和小麦价格继续上涨；乐天公司董事长兼总裁三谷浩史向乌克兰捐赠10亿日元](/content/gnews/17/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [2022年2月27日，全球中共病毒疫情情况汇总](/content/gnews/18/README.md)
+### [中共和世经论坛的银行业武器化的战略有很大缺陷（2/2）](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [伊隆.马斯克在乌克兰启动星联互联网](/content/gnews/19/README.md)
+### [有声|2月26日白宫发布美欧关于SWIFT制裁俄罗斯的声明全文](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [有声|25日英美加表示继续加大对俄罗斯的制裁力度](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [在乌克兰蛇岛的士兵有可能还活着](/content/gnews/4/README.md)
+ ` Itana`
+
+### [有声|蓬佩奥计划近期访台，再次挑动中共神经](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [俄罗斯和乌克兰同意谈判](/content/gnews/6/README.md)
+ ` Shuizhuyu`
+
+### [有声|班农先生呼吁中国卡车司机为自由而战](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [2022年2月27日大直播速记精萃](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [明是非 守道义](/content/gnews/9/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [有声|灭共者之郭氏情报站（31）2022/02/26 文贵大直播-EDU专场](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [俄罗斯入侵乌克兰后，欧足联将欧洲冠军联赛决赛从圣彼德堡移至巴黎](/content/gnews/11/README.md)
+ ` Itana`
+
+### [埃隆-马斯克称：SpaceX 星链 卫星在乌克兰激活](/content/gnews/12/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [世界会看到我们新中国联邦的力量](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [文贵爆料 2.27：俄乌战争——普京一个人的战争](/content/gnews/14/README.md)
+ ` 秘密翻译组-原创组`
+
+### [三年前扮演总统的喜剧演员, 今日领军对抗俄军](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花FM|秦刚就新疆种族灭绝问题的狡辩真是无耻至极](/content/gnews/20/README.md)
- ` 樱花FM`
+### [有声|灭共者之郭氏情报站（30）2022/02/25 文贵大直播](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [新中国联邦紧急启动人道救援行动](/content/gnews/17/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [2/28/2022日本快讯：因俄罗斯被排除出SWIFT将导致日本石油和小麦价格继续上涨；乐天公司董事长兼总裁三谷浩史向乌克兰捐赠10亿日元](/content/gnews/18/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [2022年2月27日，全球中共病毒疫情情况汇总](/content/gnews/19/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [伊隆.马斯克在乌克兰启动星联互联网](/content/gnews/20/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [樱花FM|马克龙与普京就乌克兰局势通电话](/content/gnews/21/README.md)
  ` 樱花FM`

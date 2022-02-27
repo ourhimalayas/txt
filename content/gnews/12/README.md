@@ -2,26 +2,24 @@
 ---
 
 
-## 乌克兰最强大的武器是其总统
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2076686/)
+## 埃隆-马斯克称：SpaceX 星链 卫星在乌克兰激活
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2076722/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+供稿：北城老王
+编辑发稿：am夏天
+德国纽伦堡正义农场
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/This-screen-grab-taken-from-a-video-2.jpg)
+新闻来源：
 
+[https://www.newsbreak.com/news/2526962260332/elon-musk-says-spacex-s-starlink-satellites-active-over-ukraine-after-request-from-embattled-country-s-leaders?noAds=1&\_f=app\_share&s=i16](https://www.newsbreak.com/news/2526962260332/elon-musk-says-spacex-s-starlink-satellites-active-over-ukraine-after-request-from-embattled-country-s-leaders?noAds=1&amp;_f=app_share&amp;s=i16)
 
-图片来源： 德新社
+翻译内容精华：
 
-他指挥着图像和社交媒体的力量：沃洛季米尔-泽连斯基的表演让乌克兰保持活力。他的语言让人联想到经典电影，文化和爱情的力量有一种瞬间的效果。他证明了没有什么是原来的样子。
-
-他只穿绿色-米色的衣服，让人联想到制服，但不是制服。沃洛迪米尔-泽连斯基不是一个军人。他是一个平民，他原来的职业可能是与士兵的职业相差最远的：在当选国家总统之前，这位44岁的人是一个喜剧演员，也是一个导演和演员以及歌舞表演艺术家。然而，现在，在他的国家被俄罗斯暴君普京残酷入侵的这些日子里，他是他的国家的第一个士兵，没有怜悯，没有理由。
-
-简评： 就像郭先生在2月27日的直播中说的， 泽连斯基这次的表现可圈可点， 他充分利用了互联网和社交媒体。 乌克兰可以为他骄傲， 他不但没有逃跑，而是穿上军装， 成为保卫乌克兰的第一个士兵。
-
-🔗 [乌克兰最强大的武器是其总统](https://www.welt.de/debatte/kommentare/plus237181693/Ukraine-Selenskyj-ist-die-maechtigste-Waffe-der-Ukraine.html)
-
-编辑发表： Shuizhuyu
-
+普京的入侵导致乌克兰部分地区没有互联网，而SpaceX已经发射了数千颗通信卫星，将互联网带到世界宽带不能触及的地区。
+“Starlink服务现在在乌克兰很活跃。更多的终端正在路上，”埃隆-马斯克周六在推特上说。
+而此举是在乌克兰副总理费多罗夫请求马斯克先生帮助他们之后发生的，同时他还呼吁Facebook、Instagram、YouTube、Netflix和谷歌封锁俄罗斯账户，以回应入侵。
+一个企业家的善良之举，有可能改变一场战争的进程，让那些受到不公的人民发出自己的声音，得以让世人知晓更多战争的真相与残酷。希望更多有良知和正义的企业家加入到这个队伍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
