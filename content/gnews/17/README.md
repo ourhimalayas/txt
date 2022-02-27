@@ -2,39 +2,24 @@
 ---
 
 
-## 有声|世卫组织与德国公司签订全球数字疫苗证书合同推行世界护照
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2075891/)
+## 樱花FM|联合国安理会将公开举行会议讨论乌克兰局势
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2076000/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-2月23日，世界卫生组织为推进全球统一的数字疫苗接种卡，宣布已向德国电信子公司下达订单，目的是确保疫苗接种证书的二维码可以跨国检查。该证书未来还可能被作为世界护照使用。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-74.png)
-德国电信子公司 T-Systems 收到了来自世界卫生组织的巨额订单。 未来，世界卫生组织将使用 该公司的技术框架为其 194 个成员国提供服务。新技术系统可以记录疫苗接种活动和患者信息。这无疑是全世界人类迈向数字身份的又一步。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-18-2.png)
+联合国安全理事会将于1月31日开会讨论乌克兰局势。要求召开会议的美国计划公开举行会议，并在互联网上现场直播。美国及其盟友包括英国和法国将谴责俄罗斯，同时对公众舆论进行正向导向。
 
-世界卫生组织长期以来一直在研究数字疫苗接种卡，希望全球70 亿人都要随时随身携带此卡。该提议是由比尔和梅琳达·盖茨基金会、爱沙尼亚政府、博特纳基金会、科威特国和洛克菲勒基金会资助。
+据安全理事会的消息来源称，一些相关人士对公开举行会议持谨慎态度，认为多国指责俄罗斯反而会加剧紧张局势。
 
-世界卫生组织想要存储的个人信息，包括：姓名、性别、婚姻状况、出生日期和地点、原籍国、居住国、个人登记号码、职业、宗教和种族等个人资料；生物特征数据，例如照片、指纹、面部或虹膜图像等。
+线上公开会议需要征得安理会15个成员国中至少9个成员国的同意，美国几周来一直在事前疏通，似乎有信心举行一次公开会议。美国驻联合国大使托马斯-格林菲尔德28日告诉记者，很期待31日的会议。大使批评俄罗斯在乌克兰边界部署了10多万军队，是对和平与安全的明显威胁。
 
+文字版原文：
+[联合国安理会将公开举行会议讨论乌克兰局势 – GNEWS](https://gnews.org/zh-hans/1928756/)
 
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
 
-文字版原文：[世卫组织与德国公司签订全球数字疫苗证书合同推行世界护照](https://gnews.org/zh-hans/2067282/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
