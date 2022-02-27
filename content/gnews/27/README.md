@@ -2,24 +2,30 @@
 ---
 
 
-## 俄乌战争｜英国王室罕有发表政治取态：“我们与乌克兰站在一起”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2072895/)
+## 中共驻乌大使称撤侨还需等待 新中国联邦已启动救援计划
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2072987/)
 
-**撰文/ 港台前线｜发布日期/ 27/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/英國王室罕有發表政治取態「我們與烏克蘭站在一起」.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+撰稿：日本东京方舟农场 Kevin wang
 
-英国王室因恪守宪政规范维持政治中立，向来对政治议题取态谨慎，惟针对眼下正发生的俄乌战争，王室成员罕有地就该政治事件公开表态。
+2月27日， 时值俄乌战乱加剧之际，乌克兰国内反华情绪又因中共在联合国安理会针对俄乌战争投下弃权票而高涨，在乌中国人急需撤离乌克兰，然而在乌中国人并未等到来自中共政府的撤侨飞机，甚至有消息称中共驻乌克兰大使范先荣已经提前逃离了乌克兰。所幸，在美成立的新中国联邦于27日早晨紧急启动了乌克兰救援计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/023.png)（图片来自网络）
+据中央社报道，中共驻乌克兰大使范先荣27日否认了他已提前逃离乌克兰的消息，但撤侨之事仍需要再等。
 
-英国威廉王子（Prince William）和妻子凯特（Kate）今日（27日）在社群网站推特（Twitter）表示，在乌克兰英勇对抗俄罗斯入侵之际，会同乌克兰总统泽连斯基和乌克兰全体国民站在一起。
+报道称，在俄乌战争爆发后，部分中国小粉红网友发文调侃戏谑，甚至表示要「收留乌克兰美女」。内容传到乌克兰后疑出现反华情绪，有中国留学生被当街泼水，还有人遭到不友善对待甚至威胁。
 
-他们写道：“2020年10月，我们有幸会见（乌克兰）总统泽伦斯基（Volodymyr Zelensky）与第一夫人，了解他们对乌克兰未来的乐观态度和希望。”“今天，当乌克兰英勇为未来奋战时，我们和泽伦斯基总统与乌国全体民众站在一起。”
+令人欣慰的是，在美成立的新中国联邦于27日早晨紧急启动了乌克兰救援计划。
 
-白金汉宫（Buckingham Palace）今日亦表示，女王伊丽莎白二世已接受外交大臣特拉斯（Liz Truss）的建议，将原订下周三（3月2日）在温莎古堡（Windsor Castle）接见驻英外交使节一事延期。
+新中国联邦创始人郭文贵先生在紧急直播中宣布，新中国联邦将与联合国救援组织一道，在乌克兰展开以中国同胞、美国友人为优先的无差别救援。第一批救援将派出2驾运输机预计下周五抵达乌克兰，后将陆续派出共计10驾运输机。本次行动由法制基金、法治社会发起，不涉及政治立场，无政治角色。
 
-另外，早前已卸下王室头衔的哈利王子（Prince Harry）和妻子梅根（MEghan）也在社交网站声援乌克兰，强调力挺乌克兰人民抵抗（俄罗斯）违反国际和人道法的举动。
+此外，新中国联邦各农场联盟委员会将建立紧急救援小组，所有需要救援的人员请与联盟委员会联系，二十四小时内将得到回复。被救人员到欧洲后三十天内的吃穿用住全部由联盟委员会 法治基金、法治社会全面负责，三十天后需自理。此外，从第一批救援开始，新联邦将为临时滞乌人员安排物资发放。
 
-来源｜[路透社](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;cad=rja&amp;uact=8&amp;ved=2ahUKEwi-hoeHkp_2AhUhD0QIHcGeAF4QxfQBKAB6BAgPEAI&amp;url=https%3A%2F%2Fwww.reuters.com%2Fworld%2Fuk%2Fuks-prince-william-wife-say-they-stand-with-ukraine-2022-02-26%2F&amp;usg=AOvVaw1bu_tapKNlE4yJgzztxNS8)
+参考链接：
+1：[https://www.cna.com.tw/news/aopl/202202270034.aspx](https://www.cna.com.tw/news/aopl/202202270034.aspx)
+2：[https://gnews.org/zh-hans/2071995/](https://gnews.org/zh-hans/2071995/)
+
+素材采编：Kevin wang
+编辑：老孙
+发布：Linda
 
  
 

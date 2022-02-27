@@ -2,33 +2,27 @@
 ---
 
 
-## 中共国在乌留学生哭诉：请墙内“粉红”嘴下积德
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2073306/)
+## 叙利亚难民的处境依然艰难
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2073354/)
 
-撰稿：纽约香草山农场- Noemi
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
-当地时间2月26日凌晨，一位身处基辅市的中共国籍留学生在微博上哭诉称：由于墙内以下所谓爱国者对于乌克兰战争和当地女性的有害言论，目前乌克兰国内已经激起了强烈的排华浪潮，当地华人都不得不隐藏起自己的中共国民身份以求自保。该帖目前已获得将近85万次点赞。
+撰稿：红杉
+![](https://assets.gnews.org/wp-content/uploads/2022/02/272-2.png)图片来源：联合国网站
+在乌克兰百姓跨过边境寻求安全的同时，在这个疫情中的冬季，一些叙利亚难民的处境更加困难。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2549.png)微博截图
+1月份暴风雪袭击了中东和欧洲部分地区。在叙利亚北部难民营地，大雪压垮帐篷，雪水流进帐篷里。有援助机构在报告中说，有十多名儿童被冻死，包括至少三名婴儿。在黎巴嫩，政府继续推行旨在迫使叙利亚难民离开的政策，同时经济崩溃加剧了黎巴嫩人的反难民情绪。去年政府取消补贴后，燃料价格飙升，尤其难民更加无力承担。
 
-据了解，自俄罗斯发起对乌克兰的全面战争以来，中共党媒就一直引导墙内舆论站在发起战争的俄罗斯一方，并不断鼓吹中共的“大一统”论调，致使很多墙内网民都为俄罗斯的侵略行为拍手叫好，并以胜利者的姿态调侃起乌克兰众多的无辜女性。
+去年，约旦向叙利亚难民发放了高达6.2万份工作许可证。难民已经能够在所有对非约旦人开放的部门获得工作。在此之前，大多只被允许在农业、建筑业和制造业工作。尽管如此，挑战依然存在。在约旦高达23%失业率的情况下，许多持有工作许可证的难民仍然难以找到工作来养家糊口。而且只有在约旦的叙利亚难民才能被合法地允许工作。来自其他国家的难民，包括伊拉克、也门、苏丹和索马里，不能申请许可证。
 
-同时，中共国政府并未对乌克兰华人真正实施他们所宣传的营救，相反还加剧了当地的排华情绪。有在乌华人在抖音上发帖称，一切乌克兰撤侨的消息都是假新闻。而中共国外交部日前还曾鼓励乌克兰华人在家中、车尾张贴中共国旗，以避免被俄军误伤，这一举动更激起了乌克兰人民的反华情绪。目前，中共外交部已经改口称希望当地华人不要随意亮明中共国民身份。
+在丹麦，一些难民的居留许可被注销，因当局认为大马士革及周边区域不在危险。土耳其也有难民被驱逐返回的报道。然而，返回者仍面临着许多导致他们逃离叙利亚的危险。包括在叙利亚安全机构和政府附属民兵手中的迫害和虐待，例如任意逮捕、非法拘留、酷刑、法外处决、绑架以及广泛的贿赂和勒索等。
 
-新闻链接: [中共国在乌留学生哭诉：请国内五毛嘴下积德](https://www.gettr.com/post/pww1x8fb07)
+新闻参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5-1-2.png)
+[https://news.un.org/zh/story/2022/01/1098192](https://news.un.org/zh/story/2022/01/1098192)
 
-编辑/总编: 飞虹
-校正/发稿：浪迹天
+[https://gulfnews.com/opinion/op-eds/will-the-world-answer-syrian-childrens-call-for-help-1.85475976](https://gulfnews.com/opinion/op-eds/will-the-world-answer-syrian-childrens-call-for-help-1.85475976)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

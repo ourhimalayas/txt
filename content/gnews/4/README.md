@@ -2,8 +2,8 @@
 ---
 
 
-## 20220226 文贵紧急直播：这场救援的目标不求名不求利只求能多救一个是一个
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2073307/)
+## 20220226 文贵紧急直播：新中国联邦致力于维护世界和平，不参与中俄引发的战争，让世界知道中国人不等同于中国共产党
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2073362/)
 
 作者:东京樱花团小视频组
 

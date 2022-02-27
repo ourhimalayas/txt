@@ -2,8 +2,8 @@
 ---
 
 
-## 20220226 文贵紧急直播：爆料革命发起的人道主义救援对日本三农场的要求
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2073323/)
+## 20220226 文贵紧急直播：国内战友什么都不需要做，未来国内是重灾区，保护好家人
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2073490/)
 
 作者:东京樱花团小视频组
 

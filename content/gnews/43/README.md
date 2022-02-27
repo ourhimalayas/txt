@@ -2,31 +2,21 @@
 ---
 
 
-## 中日财经爆┃“作恶”被官司缠身！脸书裁撤核心技术团队
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070610/)
+## 【转】2/25日止，俄乌开战要闻简报实况
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2071031/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/04-2.png)
-[图片来源](https://www.google.com.hk/imgres?imgurl=https://v2.cimg.co/news/63547/35234/snapshot.jpg&amp;imgrefurl=https://thebittimes.com/metaverse-nfts-and-gaming-token-prices-soar-as-facebook-goes-meta-tbt5490.html&amp;tbnid=P77GUyLsgQBbAM&amp;vet=12ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ..i&amp;docid=vljlOet_P-mO9M&amp;w=1012&amp;h=674&amp;q=%20Meta%20%20metaverse&amp;ved=2ahUKEwj9wqK23p32AhX1xIsBHfjNDrQQMygUegUIARDfAQ)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16459010461.png)
+俄国的装甲车被乌克兰美制标凖反装甲导弹击毁134辆，坦克被击毁64辆，战机被击落八架，无人机被摧毁6架，被俘飞行员一批（数字待确认）…
 
-近日，有媒体报道，全球最大社交媒体公司脸书（Meta Platforms）已经解散了一个由300多名员工组成的团队，这些员工为该公司的AR和VR设备开发操作系统。鉴于该系统是元宇宙的关键技术，这让本已官司缠身的脸书前景更加黯然。
+乌克兰国防部宣布，俄国的闪电战失败。各前线正在激战，俄方在乌克兰被俘人员超500人以上，从目前的态势看，乌克兰只有空军比较弱于俄方，其它方面表现非常出色，包括特种作战等，令侵略者俄方没有占到一丝便宜、俄方尴尬的战果及乌方的顽强抗战消息有待更新。
 
-而1月5日，Meta曾回应“停止开发VR/AR系统”传闻称，其并未计划停止“为VR/AR设备开发操作系统”。
+乌克兰退役军人全部征召重新归属曾经的部队。
 
-去年10月28日，脸书由FaceBook更名为Meta，宣布全面进军元宇宙(metaverse)。而脸书更名的时机，正面临用户和监管广泛的批评，并深陷“滥用管理权”、“侵犯用户隐私”等多起重大法律诉讼。
+在波兰方向，美欧源源不断的现代化装备运往乌克兰境内，重挫了普丁出兵的预期。欧盟国家全线对俄国航空禁飞，俄国方面从现开始，无法避免遭整个欧洲群殴的态势、美欧两个方向将给俄国史无前例的制裁！制裁方面包括制裁俄国推动战争的每个人，包括冻结了俄国国有银行，金融等在美欧境内的所有资产。也包括与俄罗斯明暗合作，支持侵略的任何国家也将波及，将迎来美欧最严励和毁灭性的制裁。
 
-自2020年初中共病毒（新冠病毒Covid-19）肆虐全球开始，脸书与推特、谷歌等社交媒体巨头，与中共为首的世界邪恶势力勾兑、为虎作伥，特别是滥用平台和数据管理的权力，对中共病毒和疫苗真相信息进行恶意压制，为强制疫苗政策推波助澜，给全人类带来重大灾难。
+若北约任何国家受到攻击，北约与美国即时正式出手，俄国怎么样收埸应该是凶多吉少。
 
-郭文贵先生多次断言，脸书、推特等社交媒体必将为其作恶付出沉重代价，甚至被诉讼至破产或消失。而脸书裁撤核心技术团队是值得关注的重要标志性事件。
-
-信息来源：
-
-[Meta解散AR和VR操作系统开发团队](https://www.163.com/dy/article/H138LTGF05198CJN.html)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
-
+俄国境内到目前为止已经有52个州举行了大规模反战游行，制裁方面 美欧一刻不止将継续谋划出台针对俄方的严酷方案！
 
  
 

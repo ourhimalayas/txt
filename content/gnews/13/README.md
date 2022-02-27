@@ -2,26 +2,32 @@
 ---
 
 
-## 中共攻台的三个方案
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2073197/)
+## 25日英美加表示继续加大对俄罗斯的制裁力度
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2073275/)
 
-撰稿: 香草山新世界的一员
+撰稿: 银河系农场—骄子；纽约磐石农场—在远方
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
-在2月25日的大直播中，郭文贵先生爆料称，习近平在普京攻乌克兰之前，已把潜水艇部队布置在了台海周边。中共攻台可能有三个方案。
+2月25日，美国财政部表示，会对俄罗斯总统普京、外交部长拉夫罗夫、国防部长绍伊古和总参谋长格拉西莫夫实施制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2546.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2548.png)图片来自：Reuters
 
-第一，模仿乌克兰的模式，实行普京战略。让人大和政协的台湾所谓代表提出议案，宣称台湾面临台独危机，台独欲借邪恶势力分裂台湾，破坏中国领土完整，请求大陆出兵支援。然后中共可以“名正言顺”地出兵平乱。
+美财政部长表示会让俄罗斯因入侵乌克兰而付出惨重的经济和外交代价，白宫发言人还表示将会对俄罗斯的主权投资基金实施全面封锁和制裁。
 
-第二，围而不打，把所有的台岛孤立化。同样声称有台独分子，或者人为制造动乱，然后派出所谓维和部队，对台湾围而不打，破坏台湾的贸易，等全球经济崩溃时，让台湾不攻自破。
+同一日，英国发表声明，冻结俄罗斯普京和外交部长拉夫罗夫的英国资产。被冻结的俄罗斯公司和个人将无法进入英国，与英国进行任何金融与商业活动，包括货币结算与进出口等。
 
-第三，短时间内， 迅速占岛。
+当天，加拿大总理特鲁多表示，该国政府支持将俄罗斯逐出环球银行金融电信协会，即SWIFT系统，以示俄罗斯公然对乌克兰武装侵略的惩罚。他认为此举能对俄罗斯的经济造成比制裁更大的损失，并表示，加拿大正在与欧洲盟友就相关问题进行相对话，盟友正在谨慎考虑加国的建议。
 
-无论采取何种方案，这一次台湾的事情一定会有个了结，或者中共灭亡，或者台湾灭亡。
+新闻来源:
 
-新闻链接: [2022年2月25日 文贵大直播](https://gtv.org/video/id=6218d34708ba8a07b1a341e7)
+[UK imposes asset freeze on Russia’s Putin and Lavrov](https://www.reuters.com/world/europe/uk-imposes-asset-freeze-russias-putin-lavrov-2022-02-25/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5-1-2.png)
+[U.S. imposes sanctions on Putin and other Russian leaders](https://www.reuters.com/world/us-impose-blocking-sanctions-state-owned-russia-direct-investment-fund-2022-02-25/)
+
+[UK Government sanctions Vladimir Putin and Sergey Lavrov](https://www.gov.uk/government/news/uk-government-sanctions-vladimir-putin-and-sergey-lavrov)
+
+[俄羅斯入侵烏克蘭 加拿大支持將俄逐出SWIFT](https://ec.ltn.com.tw/article/breakingnews/3842000)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-12.png)
 
 编辑/总编: 飞虹
 
