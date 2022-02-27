@@ -2,32 +2,31 @@
 ---
 
 
-## 有声|一号文件
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072982/)
+## 中共驻乌大使称撤侨还需等待 新中国联邦已启动救援计划
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2072987/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-85.png)
-“一号文件”，即中共每年发布的第一份文件，是中共发布的关于农村问题的专有名词。
+撰稿：日本东京方舟农场 Kevin wang
 
-二战期间，中共绑架战区老百姓抗日，老百姓别无选择。
+2月27日， 时值俄乌战乱加剧之际，乌克兰国内反华情绪又因中共在联合国安理会针对俄乌战争投下弃权票而高涨，在乌中国人急需撤离乌克兰，然而在乌中国人并未等到来自中共政府的撤侨飞机，甚至有消息称中共驻乌克兰大使范先荣已经提前逃离了乌克兰。所幸，在美成立的新中国联邦于27日早晨紧急启动了乌克兰救援计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/023.png)（图片来自网络）
+据中央社报道，中共驻乌克兰大使范先荣27日否认了他已提前逃离乌克兰的消息，但撤侨之事仍需要再等。
 
-篡权后，中共“打土豪，分田地”，农民再次沦为中共抢夺土地的牺牲品。
+报道称，在俄乌战争爆发后，部分中国小粉红网友发文调侃戏谑，甚至表示要「收留乌克兰美女」。内容传到乌克兰后疑出现反华情绪，有中国留学生被当街泼水，还有人遭到不友善对待甚至威胁。
 
-20世纪50年代，中共施行“人民公社”“大锅饭”，中华大地饿殍遍野。
+令人欣慰的是，在美成立的新中国联邦于27日早晨紧急启动了乌克兰救援计划。
 
-文字版原文：[一号文件](https://gnews.org/zh-hans/2070527/)
+新中国联邦创始人郭文贵先生在紧急直播中宣布，新中国联邦将与联合国救援组织一道，在乌克兰展开以中国同胞、美国友人为优先的无差别救援。第一批救援将派出2驾运输机预计下周五抵达乌克兰，后将陆续派出共计10驾运输机。本次行动由法制基金、法治社会发起，不涉及政治立场，无政治角色。
 
-音频处理/发稿：Daxia
+此外，新中国联邦各农场联盟委员会将建立紧急救援小组，所有需要救援的人员请与联盟委员会联系，二十四小时内将得到回复。被救人员到欧洲后三十天内的吃穿用住全部由联盟委员会 法治基金、法治社会全面负责，三十天后需自理。此外，从第一批救援开始，新联邦将为临时滞乌人员安排物资发放。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+参考链接：
+1：[https://www.cna.com.tw/news/aopl/202202270034.aspx](https://www.cna.com.tw/news/aopl/202202270034.aspx)
+2：[https://gnews.org/zh-hans/2071995/](https://gnews.org/zh-hans/2071995/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+素材采编：Kevin wang
+编辑：老孙
+发布：Linda
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

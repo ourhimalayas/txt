@@ -15,107 +15,107 @@
 
 ---
 
-### [乌克兰组建网络部队 将对俄罗斯能源及金融目标发动网络战](/content/gnews/1/README.md)
- ` 日本东京方舟农场`
+### [新中国联邦的喜帀将要人民币的命](/content/gnews/1/README.md)
+ ` NFSC News`
 
-### [中共百年杀戮之（8）第二次国共合作——西安事变后记](/content/gnews/2/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
+### [人类将经历大重组 正道主义将像太阳一样被世人接受](/content/gnews/2/README.md)
+ ` NFSC News`
 
-### [大直播后记：七哥谈铸币权](/content/gnews/3/README.md)
+### [大直播后记：G-Edu教育目标是找到好老师](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [为乌克兰提供网络支持 马斯克：启动了星链服务](/content/gnews/4/README.md)
+### [乌克兰组建网络部队 将对俄罗斯能源及金融目标发动网络战](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
+
+### [中共百年杀戮之（8）第二次国共合作——西安事变后记](/content/gnews/5/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [大直播后记：七哥谈铸币权](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [为乌克兰提供网络支持 马斯克：启动了星链服务](/content/gnews/7/README.md)
  ` 日本東京方舟農場`
 
-### [确诊人数激增，香港将实行大规模核酸检测](/content/gnews/5/README.md)
+### [确诊人数激增，香港将实行大规模核酸检测](/content/gnews/8/README.md)
  ` GTV News Talk`
 
-### [2022年2月23日文贵大直播节选-对疫苗灾难的预估比之前乐观 （带视频）](/content/gnews/6/README.md)
+### [2022年2月23日文贵大直播节选-对疫苗灾难的预估比之前乐观 （带视频）](/content/gnews/9/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [COVID-19 最新情报｜纽西兰高等法院煞停疫苗强制令：这是对人权的严重侵犯](/content/gnews/7/README.md)
+### [COVID-19 最新情报｜纽西兰高等法院煞停疫苗强制令：这是对人权的严重侵犯](/content/gnews/10/README.md)
  ` 關注組`
 
-### [2022年2月23日文贵大直播节选- 预警omicron的危险 （带视频）](/content/gnews/8/README.md)
+### [2022年2月23日文贵大直播节选- 预警omicron的危险 （带视频）](/content/gnews/11/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [日本开放外国人入境许可的网上申请](/content/gnews/9/README.md)
+### [日本开放外国人入境许可的网上申请](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [隔空取钱：重新定义货币总量与经济总量](/content/gnews/10/README.md)
+### [隔空取钱：重新定义货币总量与经济总量](/content/gnews/13/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [大直播后记：人的教育核心](/content/gnews/11/README.md)
+### [大直播后记：人的教育核心](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [所有已经遭到制裁的俄罗斯银行均将被剔除出SWIFT系统](/content/gnews/12/README.md)
+### [所有已经遭到制裁的俄罗斯银行均将被剔除出SWIFT系统](/content/gnews/15/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [俄乌开战中国社交媒体出现“俘虏乌克兰美女”等言论 中国官媒呼吁理性发言](/content/gnews/13/README.md)
+### [俄乌开战中国社交媒体出现“俘虏乌克兰美女”等言论 中国官媒呼吁理性发言](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [滴滴出行改口宣布不会退出俄罗斯市场](/content/gnews/14/README.md)
+### [在俄乌战争下，中共军机再入台湾领空](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [在俄乌战争下，中共军机再入台湾领空](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [见识和经历是最好的老师](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [多国人权人士发起联署公开信 强烈要求取消彭丽媛联合国妇女特使称号](/content/gnews/17/README.md)
+### [多国人权人士发起联署公开信 强烈要求取消彭丽媛联合国妇女特使称号](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [“乌克兰人很无畏，他们没有退缩” 美国有线电视新闻网唐·雷檬对乌克兰士兵保卫黑海蛇岛免受俄罗斯军舰逼近的音频做出反应](/content/gnews/18/README.md)
+### [“乌克兰人很无畏，他们没有退缩” 美国有线电视新闻网唐·雷檬对乌克兰士兵保卫黑海蛇岛免受俄罗斯军舰逼近的音频做出反应](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共驻乌大使称撤侨还需等待 新中国联邦已启动救援计划](/content/gnews/19/README.md)
+### [中共驻乌大使称撤侨还需等待 新中国联邦已启动救援计划](/content/gnews/20/README.md)
  ` 日本東京方舟農場`
 
-### [有声|一号文件](/content/gnews/20/README.md)
+### [有声|一号文件](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [台湾｜中共频放高空气球穿过领空 台国防部表示正严密监控](/content/gnews/21/README.md)
+### [台湾｜中共频放高空气球穿过领空 台国防部表示正严密监控](/content/gnews/22/README.md)
  ` 關注組`
 
-### [有声|财富的意义在于回归本源](/content/gnews/22/README.md)
+### [有声|财富的意义在于回归本源](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|自由之家预警 世界自由民主正在衰落](/content/gnews/23/README.md)
+### [有声|自由之家预警 世界自由民主正在衰落](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|中共国在乌留学生哭诉：请墙内五毛嘴下积德](/content/gnews/24/README.md)
+### [有声|中共国在乌留学生哭诉：请墙内五毛嘴下积德](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [有声|韩国、台湾将参与国际对俄罗斯的制裁](/content/gnews/25/README.md)
+### [有声|韩国、台湾将参与国际对俄罗斯的制裁](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [俄乌战争｜英国王室罕有发表政治取态：“我们与乌克兰站在一起”](/content/gnews/26/README.md)
+### [俄乌战争｜英国王室罕有发表政治取态：“我们与乌克兰站在一起”](/content/gnews/27/README.md)
  ` 關注組`
 
-### [新中国联邦战友致“粉红兄”的一封信——俄乌大战之人性考验](/content/gnews/27/README.md)
+### [新中国联邦战友致“粉红兄”的一封信——俄乌大战之人性考验](/content/gnews/28/README.md)
  ` 纽约香草山MOS03`
 
-### [新中国联邦紧急开展乌克兰人道大救援](/content/gnews/28/README.md)
+### [新中国联邦紧急开展乌克兰人道大救援](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾｜俄乌战争阴影笼罩台海 中共宣布今起在南海执行军事任务](/content/gnews/29/README.md)
+### [台湾｜俄乌战争阴影笼罩台海 中共宣布今起在南海执行军事任务](/content/gnews/30/README.md)
  ` 關注組`
 
-### [紧急！新中国联邦第一次参与国际人道救援行动](/content/gnews/30/README.md)
+### [紧急！新中国联邦第一次参与国际人道救援行动](/content/gnews/31/README.md)
  ` YALUN 亚伦`
 
-### [乌克兰外长呼吁世界各国将俄罗斯逐出SWIFT系统](/content/gnews/31/README.md)
+### [乌克兰外长呼吁世界各国将俄罗斯逐出SWIFT系统](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2月26日白宫发布美欧关于SWIFT制裁俄罗斯的声明全文](/content/gnews/32/README.md)
+### [2月26日白宫发布美欧关于SWIFT制裁俄罗斯的声明全文](/content/gnews/33/README.md)
  ` 经济小组`
 
-### [论中国共产党对中国人民的暴力统治](/content/gnews/33/README.md)
+### [论中国共产党对中国人民的暴力统治](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [乌克兰独立后的几个关键词](/content/gnews/34/README.md)
- ` 纽约香草山MOS03`
 
 ### [美欧多国发表联合声明 将俄罗斯踢出SWIFT系统](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

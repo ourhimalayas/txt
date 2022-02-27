@@ -2,167 +2,38 @@
 ---
 
 
-## “乌克兰人很无畏，他们没有退缩” 美国有线电视新闻网唐·雷檬对乌克兰士兵保卫黑海蛇岛免受俄罗斯军舰逼近的音频做出反应
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2073021/)
+## 多国人权人士发起联署公开信 强烈要求取消彭丽媛联合国妇女特使称号
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2073043/)
 
-[**https://gtv.org/video/id=621ac4714353d33974c2bdfc**](https://gtv.org/video/id=621ac4714353d33974c2bdfc)
+**撰稿：日本东京方舟农场  老孙**
 
-Don Lemon (CNN host)
-唐·雷檬（CNN主持人）
+2月25日，来自多个国家的人权活动人士发表联署公开信，对被授予联合国教科文组织特使称号的中共国第一夫人彭丽媛女士在铁链女事件中的态度极其不满，强烈要求联合国教科文组织取消其促进女童和妇女教育特使称号。
 
-Oren Liebermann, let me bring you back
-奥伦·利伯曼，重新加入进来
+公开信全文如下：
 
-Let me ask about with this audio tape
-让我问一下关于这个录音带（的事）
+**联合国教科文组织总干事奥德蕾·****阿祖莱阁下:**
 
-that has emerged purporting to be an exchange
-声称是守卫黑海岛屿的乌克兰士兵
+2014年3月27日，中国国家主席习近平的夫人彭丽媛女士被联合国教科文组织授予“促进女童和妇女教育特使”。
 
-between Ukrainian soldiers defending an island the Black Sea cussing at a Russian warship
-与俄罗斯军舰之间的交流
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-29.jpeg)（图片取自自由亚洲）
 
-before being killed in battle
-在他们战死之前
+从2021年12月5日徐州铁链女事件爆发以来，虽然整个世界都已为之震惊悲愤，中国官方也已经就此事件发布了五个公告，但是迄今为止，彭丽媛女士作为联合国教科文组织授予的“促进女童和妇女教育特使”，对这位自幼被凌辱、苦难中度过二十余载的八孩母亲竟然未置一词。
 
-Listen to this
-听听这个
+中国每年被贩卖、虐待的妇女、儿童多达上万，却从未见过彭丽媛女士对如此严重的侵犯妇女和女童权益的恶性人权事件表达过任何关切。彭女士未能敦促中国政府遵守和落实“消除对妇女一切形式歧视公约”和“儿童权利公约”，和中国关于保护妇女儿童的相关法律，在这些方面完全未见她做任何努力。
 
-I am a Russian Military ship
-我是俄罗斯军舰
+由此可见，彭女士已完全不适合担当联合国教科文组织授予的促进女童和妇女教育特使了。如果再让彭女士担任女童和妇女特使，将会严重辱没联合国教科文组织的名声，也会让彭丽媛的女童和妇女特使沦为世人的笑柄。
 
-repeat I am a Russian Military ship
-重复我是一艘俄罗斯军舰
+有鉴于此，我们一群关心妇女和女童权益的人士发起全球公开联署，促请联合国教科文组织免去彭丽媛女士“促进女童和妇女教育特使”称号并发布公告，昭告天下，以儆效尤。
 
-proposing to put down arms immediately
-建议立即放下武器
+截止本文发稿，已有45名多国知名人权人士联署，第一批联署名单将于2022年3月5日中华人民共和国第十三届全国人民代表大会第五次会议召开之日发送联合国教科文组织（法国巴黎）、联合国人权理事会（瑞士日内瓦）、中国全国人大、全国政协、全国妇联和一些国际人权组织。
 
-to avoid bloodshed
-以避免流血
+参考链接：
+1. [https://wqw2010.blogspot.com/2022/02/joint-letter-urging-unesco-to-revoke.html](https://wqw2010.blogspot.com/2022/02/joint-letter-urging-unesco-to-revoke.html)
+2.[https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/cm2-02252022101104.html](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/cm2-02252022101104.html)
 
-and unjustified deaths
-和无谓的死亡
-
-In worst case
-在最坏的情况下
-
-you will be hit with a bomb strike
-你会被炸弹袭击
-
-I am repeating
-我在重复
-
-I am Russian Military Ship
-我是俄罗斯军舰
-
-proposing to put down arms
-建议放下武器
-
-or you will be hit
-否则你会被击中
-
-Acknowledge
-确认
-
-(Male voice, not through the radio)
-（男声，不是通过收音机）
-F\*\*\* it as well
-滚一边去
-
-(Female voice whispers)
-（女声低语）
-Just in case
-以防万一
-
-Russian warship, go f\*\*\* yourself
-俄罗斯军舰，去你妈的
-
-Don Lemon
-唐·雷檬
-
-Wow, Ukrainians are defiant
-哇，乌克兰人很无畏
-
-They aren’t back and down
-他们没有退缩
-
-Oren Liebermann (CNN Pentagon Correspondent)
-奥伦·利伯曼（美国有线电视新闻网五角大楼通讯员）
-
-Two things were certain going into this and this is what the US had assessed
-有两件事可以肯定，这就是美国所评估的
-
-first that Russia had the massively superior military
-首先，俄罗斯拥有强大的军事优势
-
-and the armed forces built up around Ukraine
-以及在乌克兰周围建立的武装部队
-
-and that Ukraine’s military might not be able to hold out all that long
-乌克兰军队可能撑不了那么久
-
-whether that’s days or weeks is unclear
-是几天还是几周还不清楚
-
-and the Pentagon wasn’t going to get into
-而且五角大楼不会介入
-
-how this was going for the Russians
-这对俄罗斯人来说是会怎样
-
-But the other thing that was clear was that
-但另一件很清楚的事情是
-
-if the Russian chose to become an occupying force after this invasion
-如果俄国人在这次入侵后选择成为占领军
-
-Ukrainians would put up one hell of a fight an insurgency against the Russian occupation
-乌克兰人将与俄罗斯占领者进行一场激烈的战斗
-
-perhaps against a Russian puppet government
-也许将会是与俄罗斯组建的傀儡政府战斗
-
-and that spirit there that will to fight that
-和那种精神，那种战斗的意志
-
-will to stand back against Russia and to be Ukrainians
-那种反抗俄罗斯的乌克兰人的意志
-
-That’s what you’re hearing in that video
-这就是你在那个视频中听到的
-
-And that’s what you’re hearing from our correspondents who are in Ukraine
-这就是你从我们在乌克兰的记者那里听到的
-
-and talking to Ukrainians on the ground there
-并在那里与当地的乌克兰人交谈
-
-Don Lemon
-唐·雷檬
-
-And our understanding, again, is that those folks that were killed
-我们所了解的是，这些勇敢的人最后牺牲了
-
-* * *
-
-Date:02/25/2022
-原视频标题: “Ukrainians are defiant. They aren’t backing down.” CNN’s
-DonLemon reacts to audio of Ukrainian soldiers defending Snake Island in the Black Sea from an approaching Russian warship
-“乌克兰人很无畏，他们没有退缩” 美国有线电视新闻网唐·雷檬对乌克兰士兵保卫黑海蛇岛免受俄罗斯军舰逼近的音频做出反应
-原视频日期：2022/02/25
-原视频链接[**https://twitter.com/quicktake/status/1497067710131417088?s=24**](https://twitter.com/quicktake/status/1497067710131417088?s=24)
-任务编号：KE422（3851）
-视频时间段 : 0:00-1:58
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**素材采编：**老孙
+**编辑： ** 青城道姑
+**发布：  **文曦
 
  
 
