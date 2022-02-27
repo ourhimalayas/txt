@@ -2,8 +2,8 @@
 ---
 
 
-## 20220226文贵大直播：河北衡水中学不是教育 是性交易的场所 是虐童的地方
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2076042/)
+## 20220226文贵大直播：GEDU不会接受商业合作不需要战友捐钱
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2076045/)
 
 作者：东京樱花团小视频组
 

@@ -2,39 +2,29 @@
 ---
 
 
-## 有声|茉莉花革命—人民争取自由民主，发动街头抗争的革命
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2076072/)
+## 【秘翻在线】乌克兰百姓自制燃烧瓶应对俄军入侵
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2076148/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2010年末至2011年初，北非突尼西亚发生了一场反政府示威运动，导致突国政府倒台。因茉莉花是突国国花，此次运动被称为茉莉花革命。
+#### 翻译/撰稿：zzballack
 
-2010年12月17日，一名26岁青年穆罕默德·布瓦吉吉自焚，触发突国境内大规模街头示威游行活动以争取民主。这导致时任总统本·阿里政权倒台，成为阿拉伯国家中第一场因人民起义导致推翻现有政权的革命。突尼西亚此后成立过渡政府，并成为阿拉伯之春中唯一达成和平过渡完成民主转型的国家。
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2595.png)   图片来源：自由欧洲电台
+《布雷特巴特新闻网》（Breitbart News）2月27日报道说，根据全球多家媒体机构的大量报道，当俄军坦克包围乌克兰首都基辅的时候，驻扎在地铁区的乌克兰百姓正在自制燃烧瓶(Molotov cocktail，莫洛托夫的鸡尾酒)，以抵御俄军入侵。
 
-茉莉花革命对非洲北部及中东地区产生了极大的影响。茉莉花革命示威抗议的模式亦被一些国家的民众所效仿，如阿尔及利亚、埃及等，反政府的示威浪潮中一个月内席卷整个非洲北部与中东地区。
+英国BBC周日（2月27日）[报道](https://www.bbc.com/news/live/world-europe-60542877)说：“在普京下令其军队入侵乌克兰的那一天，英语老师阿丽娜（Arina）计划在下班后上一堂舞蹈课，然后参加一个派对。但三天后，她却在一个公园里制作燃烧瓶。她和其他几十名妇女一起蹲在草地上，把聚苯乙烯（Polystyrene）块当作奶酪一样磨碎，把床单撕成破布，用于制作瓶子炸弹（bottle-bombs）。这样的场景对欧洲的大多数人来说是无法想象的，即使在这里，这样的情景也是无法想象的。”
 
-2010年末至2011年初的茉莉花革命并非是突国历史上第一次革命。1987年本·阿里发动同样称作“茉莉花革命”的不流血政变而上台。但是在本·阿里统治突尼西亚的23年期间，本·阿里政府贪污腐败、警察治国，美40个国民就有一个警察，其中三分之二是便衣警察，民众连私下论政也不敢。在这23年期间，突国经济，尤其旅游业发展下滑，失业率居高不下，年轻人失业率达52%。此外，通货膨胀也让民众生活极端困难。
+《洛杉矶时报》2月26日也[报道](https://www.latimes.com/world-nation/story/2022-02-26/russia-attack-ukraine-kyiv-civilians-arms-molotov-cocktails)了类似事件：“星期六，乌克兰首都一条安静、不起眼的街道上的一个三层地下室里，24岁的奥尔加将大块的泡沫塑料(Styrofoam)捏碎，将她手中的白色卵石放入摆在她面前的混合了桑格利亚（sangría）酒、必富达金酒（Beefeater gin）、啤酒和葡萄酒的瓶子里。奥尔加是一家制图公司的项目经理，为了安全，她要求不公布她的全名。她是一个由五人组成的燃烧瓶组装小组的一员。当她和另一名妇女压碎泡沫塑料时，她们身边的一男一女小心翼翼地将燃料和油倒入一个漏斗，将混合液渗入瓶子。在他们旁边，一个人将由桌布和窗帘的碎布制成的灯芯沾满燃油，然后用一小段麻绳将灯芯紧紧绑在瓶口上。”
 
-导致2010年末至2011年初的茉莉花革命除上述原因之外，还有一个原因是网际网络的力量。维基解密揭露：本·阿里家族及其兄弟手足与掌管该国经济的一名黑道分子勾结，第一夫人勒伊拉泽鲁·本·阿里靠兴建贵族学校赚取利益。这起网络揭露事件也成为骚乱爆发的重要导火索。
+奥尔加说：“我两周前辞去了旧工作，本该在周一开始新工作。我从来没有想到我会干这个。相比于这个，我肯定愿意从事新工作。但目前制作燃烧瓶更为重要。”
 
-历史总是惊人地相似，靠“茉莉花革命”不流血推翻前任政权的本·阿里，却被第二次“茉莉花革命”推翻。
+乌克兰国防部2月25日通过其官方推特呼吁民众制作燃烧瓶，以协助国防。他们在推特上发布了一个教学视频，指导人们如何自制这种武器。
 
-独裁者统治下的百姓光景又何尝不相似？独裁者的结局也应该一样地被推翻。茉莉花革命一直在影响着其他受独裁统治欺压下的民众，民众定会站起来亲手推翻独裁者政权。
+纵览古今中外，战争最大的受害者往往都是无辜百姓。人类的贪婪和欲望导致纷争不止、战乱无数，真诚祈祷世界和平。
 
-文字版原文：[茉莉花革命—人民争取自由民主，发动街头抗争的革命](https://gnews.org/zh-hans/2068923/)
+新闻来源：[Ukrainian Civilians Make Molotov Cocktails to Fight Russia](https://www.breitbart.com/europe/2022/02/27/ukrainian-civilians-make-molotov-cocktails-to-fight-russia/)
 
-音频处理：Fei797
-发稿：Fei797
+[Making Molotov Cocktails, Ukrainian Civilians Prepare To Defend Homes](https://www.rferl.org/a/ukraine-molotov-cocktail-russia/31725286.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,8 +2,8 @@
 ---
 
 
-## 20220226文贵大直播：人类的文明和发明都来自偶然的错误
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2076044/)
+## 20220226文贵大直播：教育的本质是什么
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2076046/)
 
 作者：东京樱花团小视频组
 

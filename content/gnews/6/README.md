@@ -2,80 +2,38 @@
 ---
 
 
-## 一对纽约夫妇因比特币洗钱遭指控
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2076183/)
+## 樱花FM|北京冬奥前闭环内外疫情燃烧，特大安全套或是最佳体验
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2076254/)
 
-作者：香草山金融部-Opal
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-4-8.png)
+**北京冬奥在即，“闭环”内外疫情燃烧，带给运动员最佳体验的或许是特大号安全套，这可在隔离时解燃煤之急。不过，习近平已经决定在冬奥会开幕式举办盛大宴席。对于国际社会如何追责北京反人类罪？联合国人权委员会配合北京冬奥会，将不会在近期发布涉疆“人权报告”。**
 
+据[路透社](https://gulfnews.com/sport/olympics/beijing-olympics-china-reports-36-new-covid-19-cases-among-olympics-related-personnel-1.85289422)北京时间29日消息称：“北京 2022 年冬奥组委会今天表示，1 月 28 日，在奥运会相关人员中发现 了36 例新的 COVID-19 感染者。”其中19 名运动员或球队官员在周五抵达机场后检测呈阳性。在新机场抵达者中发现了 29 人，在运动员与公众隔离的“闭环”气泡中也已经发现了 7 例感染者。
 
+另据《[看中国](http://cn.secretchina.com/news/gb/2022/01/27/996269.html)》27日消息透露，将于2月4日开幕的冬奥尚未开始，涉奥人员已检测出129人阳性。同时，北京“环外”疫情也在燃烧。1月23日正式启动的 “泡泡”型“闭环”管理难阻奥密克戎（Omicron）病毒肆虐。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-6.jpeg)
-
-
-
-
-
-据路透社报道，美国司法部2月8日周二表示，它已经解开了有史以来最大的加密货币盗窃案，查封了与2016年数字货币交易所Bitfinex被黑事件有关的创纪录的36亿美元的比特币，并以洗钱指控逮捕了一对夫妻的团伙。
+- **延展阅读：**[**中共国在冬奥会前一周悄悄封锁120万人的雄安新区**](https://www.ndtv.com/world-news/beijing-winter-olympics-china-quietly-locks-down-area-near-beijing-a-week-before-winter-olympics-2734478)
 
 
+毋庸置疑，北京在奥密克戎（Omicron）肆虐下，一场危机四伏的冬奥会即将拉开序幕。但北京强调，“[按照传统，北京冬奥组委会将免费向运动员发放安全套，但不鼓励拥抱](https://7news.com.au/sport/winter-olympics/free-condoms-at-beijing-winter-olympics-but-hugs-discouraged-c-5474922)。”该消息称，尽管奥委会有严格的与社会隔离的 COVID-19 协议，但主办方仍提供免费安全套。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Fin-News-021222.jpg)
+路透社记者在位于闭环内的贵州宾馆入住时，在每个房间内发现了五个单独包装的安全套，**避孕套是“特大号”**。它们分别装在带有不同颜色中国灯笼形象的信封中。
 
-检察官说，34岁的Ilya “Dutch” Lichtenstein利希滕斯坦和他的妻子Heather Morgan（31岁）是纽约人，周二上午在曼哈顿被捕，利希滕斯坦和摩根夫妇面临密谋洗钱以及欺诈美国的指控，他们在一名黑客入侵Bitfinex并发起2000多笔未经授权的交易后，密谋清洗119,754个比特币。当时的交易价值为7100万美元的比特币，但随着货币价值的上升，现在的价值超过45亿美元。他们将非法所得用于购买从黄金和不可伪造的代币到500美元的沃尔玛礼品卡等物品。
-
-司法部副部长丽莎-摩纳哥说，这是司法部最大的一次金融查封行动，这表明加密货币 “不是犯罪分子的安全港”。
-
-数字货币交易所Bitfinex在一份声明中说，它正在与司法部合作，”确定我们归还被盗比特币的权利”。
-
-资料显示，2016年8月，著称于维京岛、总部位于香港的数字货币交易所Bitfinex（译为：绿叶交易所）遭到黑客攻击，被偷走119,754 个比特币，当时一个比特币价格不到$600 ，119,754 个比特币价格7100万美元（$70 million），当时消息出来后，导致比特币的价格急剧下降。
-
-这个案子当时一直没有破，但是2017年FBI破获了一个用来洗钱的地下数字市场AlphaBay，这是一个设在暗网上的类似eBay的百无禁忌版本。上面什么都有卖，毒品、武器、骇客工具、非法产品和非法服务都有。这次行动是全球联手行动，因为好几个服务器分布在全球各地，抓捕了当时25岁居住在泰国的加拿大人。2016年偷盗案中的盗卖比特币的一些钱被转移到AlphaBay，当该网站被关闭时，它可能允许当局访问AlphaBay的内部交易记录，并将其与利希滕斯坦名下的加密货币账户联系起来，找到关键的线索了。
-
-自从去年10月份，司法部副部长丽萨-摩纳哥宣布该部门启动一个新的由反洗钱和网络安全专家组成的国家加密货币执法小组之后，加强对加密货币犯罪打击的力度。因为随着比特币的价格不断上涨，与之相关的偷盗、洗钱等犯罪也越来越猖狂。
-
-不管从去年6月初，美国司法部破获了骇客用勒索软件对殖民管道公司的网络攻击，追回了支付给黑客的大约230万美元的加密货币赎金，这一案件来看；还是从上面讲的这一对纽约夫妇的比特币洗钱被破获这一案来看，司法部都可以在区块链上追踪资金，就像他们一直在传统金融系统内追踪资金一样，他们有这样的技术，可以做到的。
-
-2009年比特币推出时，价格是0，2010年10月$0.10 ，当下2022年2月12日价格为$42,000。用了12年，完成了价格飙升，现在价格是原来的420,000倍。比特币由于自身的缺陷，比如说它用的公有链区块链技术、去中心化特性，它没有像我们的Himalaya Exchange那么严格的KYC程序等等，注定它会被用作犯罪工具，也注定它没有很好的发展前途，当然它还会存在相当一段时间。
-
-我想强调的是，我们的喜币HCoin只用了3个月的时间就从0.10 元涨到现在50多块，是初始价格的500倍，这还是在机构投资还未进场、美加日地区还没有开放的情形下。现在上市的喜支付HPay ，目前虽为1.0版本，相当于礼品卡的系统，但是它已经和喜Dollar、喜币，以及其他G系列串联起来，成为了一个王国；加上有强大的新中国联邦作为后盾，不久就会一飞冲天！
-
-（本文仅代表作者个人观点）
-
-直播链接：
-
-[https://www.gtv.org/video/id=6207c320a1fe5e57a42763b5](https://www.gtv.org/video/id=6207c320a1fe5e57a42763b5)
-
-图片来源：
-
-[www.tookitaki.ai](http://www.tookitaki.ai/)
-
-参考：
-
-[https://www.reuters.com/technology/us-arrests-couple-allegedly-laundering-45-bln-crypto-tied-bitfinex-hack-2022-02-08/](https://www.reuters.com/technology/us-arrests-couple-allegedly-laundering-45-bln-crypto-tied-bitfinex-hack-2022-02-08/)
-
-[https://www.fbi.gov/news/stories/alphabay-takedown](https://www.fbi.gov/news/stories/alphabay-takedown)
+- **延展阅读：**[**习近平将出席北京冬奥会开幕式**](http://news.cnr.cn/native/gd/20220128/t20220128_525728626.shtml)
+- **延展阅读：**[**习近平为北京冬奥来访领导人设宴招待**](https://www.news18.com/news/sports/china-president-xi-jinping-to-host-banquet-for-visiting-leaders-at-beijing-winter-olympics-4708502.html)
 
 
+不知特大号安全套是否可以罩住在新疆犯下的“反人类罪”？但“路透社28日援引《南华早报》未具名消息人士的话报道，“[中国已同意让联合国人权事务高级专员在北京冬奥会后的 2022 年上半年访问新疆](https://www.arabnews.com/%E8%8A%82%E7%82%B9/2013701/%E4%B8%96%E7%95%8C)。”与此同时，[法新社](https://www.news18.com/news/world/un-says-no-rights-report-on-chinas-xinjiang-before-beijing-winter-olympics-4709741.html)表示，“联合国称不会在北京冬奥会前发布关于中国新疆的人权报告”。
 
+2021年1月29日
 
+文字版原文：
+[北京冬奥前闭环内外疫情燃烧，特大安全套或是最佳体验 – GNEWS](https://gnews.org/zh-hans/1928139/)
 
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2CC3B8A0-EB83-4DA2-8D4E-4A48211F5BED.jpeg)
-
-
-
-编辑/校对/发稿：遵从内心
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
 
 
  
