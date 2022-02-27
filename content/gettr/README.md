@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/27/2022 11:14 PM (UTC)`
+
+2/27/2022 Miles Guo: Taiwan will win if it can withstand the CCP’s attack for 3 hours, and then the US, Japan, and Australia will even directly participate in the war. The US can destroy the CCP’s 30,000 military bases in 3 minutes. Although the CCP may threaten with nuclear weapons, the Taiwanese troops will definitely fight with all its might.<br/><br/>2/27/2022 文贵直播：台湾能抵挡住中共3小时的攻击就赢了，美日澳甚至会直接参战，美国3分钟可解决3万个共匪基地；虽然共匪可能会用核武器威胁，但台湾军队必将大战一场
+![img](https://media.gettr.com/group28/getter/2022/02/27/23/b953aea5-ab45-8e28-526e-662e6ba2df43/out.jpg)
+
+---
+
 `@miles 2/27/2022 10:15 PM (UTC)`
 
 2月27日号：尊敬的战友们好．你们见识了吗？传播台湾危机，拯救乌克兰战区的同胞们的信息了吗？一切都已经开始！
@@ -144,13 +151,6 @@ February 26th, 2022, Mr. Miles Guo’s Urgent Livestream: our rescue operation i
 
 2/26/2022 Miles Guo’s Urgent Livestream:  Palau is an ideal place for rescuing Taiwanese fellow fighters and compatriots; everybody must follow arrangements and comply with  instructions or rules of international rescue<br/><br/>2/26/2022 文贵紧急直播：帕劳是个非常好的营救台湾战友和同胞的一个基地；大家要听从统一安排，遵守国际营救规则
 ![img](https://media.gettr.com/group36/getter/2022/02/27/03/ab232354-ed59-9b26-4830-ed14bd22aa77/out.jpg)
-
----
-
-`@miles 2/27/2022 2:57 AM (UTC)`
-
-2/26/2022 Miles Guo’s Urgent Livestream: The New Federal State of China is dedicated to upholding the image of the Chinese as kind, courageous, and peace-loving people! The world needs peace, and we will work with the people of the world to fight against dictatorships and evil forces to maintain the safety and human rights of the Chinese people!<br/><br/>2/26/2022 文贵紧急直播：新中国联邦致力于维护中国人善良、勇敢和爱好和平的形象！世界需要和平，我们要和全世界人民一起跟独裁和邪恶势力战斗，维护中国人的安全和人权！
-![img](https://media.gettr.com/group27/getter/2022/02/27/02/df9aa76e-09a9-1ae9-9fc5-4896165d2b35/out.jpg)
 
 ---
 
