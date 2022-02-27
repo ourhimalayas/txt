@@ -2,30 +2,12 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月27日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2077013/)
+## 2月27日文贵大直播要点（图片1-4）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2077070/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-5.png)
-
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-27.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.02.27早 《NFSC新闻》](https://gtv.org/video/id=621b8bfd4353d33974c379a8)
-[2022.02.27早 G|TV《新闻访谈》](https://gtv.org/video/id=621b8a12019ef64da6521e40)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-768x1056-1.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6C63D15C-44A1-4140-A368-A167BF49B4BB.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/88390930-6F75-4F12-B9A4-CC10847B5D86.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/5D591BE1-3662-4CC2-A079-8BAA13C50657.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/A0229237-C072-4427-8728-27F7718C9894.jpeg)
+发布：水涨船高
 
  
 
