@@ -2,21 +2,31 @@
 ---
 
 
-## 视频|再次揭露HBO精心编织的谎言Part11
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2073974/)
+## 今日盖特大V推荐 — 罗伯特·马龙（Robert Malone）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2074002/)
 
-制作：香草山视频部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2566.png)
+盖特链接：[**https://gettr.com/user/rwmalonemd**](https://gettr.com/user/rwmalonemd)
 
-近年来，中共通过蓝金黄等手段控制了世界上大部分的主流媒体和社交媒体，人们被迫只能接收到错误的信息和谎言，更甚者，中共还通过操控媒体掩盖其伤人、杀人的恶行。鉴于此种情形，郭文贵先生建立的GTV平台作为一个揭露中共邪恶的媒体，其一直在与目前世界上的所有虚假信息抗争。
+罗伯特·马龙自述：
 
-然而，在HBO Vice 的剪辑视频中，杨贝贝将爆料革命战友对GTV的投资抹黑为一项欺诈计划。在此，我们将通过本期视频回顾中共对媒体的操控以及其对GTV投资者的迫害，来揭穿杨贝贝的这一污蔑。请收看揭露HBO精心编织的谎言第十一部分。
+mRNA疫苗和RNA药物的发明者。 科学家。 医师。 临床疫苗和生物制剂咨询。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2567.png)图片来源：网络
+罗伯特·马龙简介：
 
-发稿：林礼
+罗伯特·华莱士·马龙（生于1959年）是美国医生和生物化学家。他早期的工作集中在mRNA技术、药物和药物再利用研究。
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+在COVID-19大流行期间，马龙因提出了有关COVID-19疫苗安全性和有效性的质疑而受到主流媒体指责打压，其中包括声称某些COVID-19疫苗产生的刺突蛋白具有毒性。马龙推广伊维菌素用于治疗新冠。他在推特上发布了其他人质疑疫苗安全性的研究, 他的推特账户被封。
+
+2022 年 1 月 23 日，马龙在华盛顿特区林肯纪念堂前举行的反新冠疫苗和反新冠疫苗授权集会上发表讲话。
+
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

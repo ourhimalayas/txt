@@ -2,31 +2,21 @@
 ---
 
 
-## 今日盖特大V推荐 — 肖恩·汉尼蒂 （Sean Hannity）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2073939/)
+## 视频|再次揭露HBO精心编织的谎言Part11
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2073974/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2562.png)
-盖特链接：[**https://gettr.com/user/seanhannity**](https://gettr.com/user/seanhannity)
+制作：香草山视频部
 
-肖恩·汉尼蒂自述：
+近年来，中共通过蓝金黄等手段控制了世界上大部分的主流媒体和社交媒体，人们被迫只能接收到错误的信息和谎言，更甚者，中共还通过操控媒体掩盖其伤人、杀人的恶行。鉴于此种情形，郭文贵先生建立的GTV平台作为一个揭露中共邪恶的媒体，其一直在与目前世界上的所有虚假信息抗争。
 
-电视主持人，福克斯新闻频道，美东晚上9点。全国联合电台主持人，美东下午3点至6点。https://hannity.com转推，关注而不是背书！由于黑客攻击，没有D…
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2563.png)图片来源：网络
-**肖恩·汉尼蒂简介：**
+然而，在HBO Vice 的剪辑视频中，杨贝贝将爆料革命战友对GTV的投资抹黑为一项欺诈计划。在此，我们将通过本期视频回顾中共对媒体的操控以及其对GTV投资者的迫害，来揭穿杨贝贝的这一污蔑。请收看揭露HBO精心编织的谎言第十一部分。
 
-肖恩·帕特里克·汉尼蒂（Sean Patrick Hannity 生于1961年12月30日），保守派，美国脱口秀主持人，政治评论员，作家和宣传家。
+发稿：林礼
 
-汉尼蒂是脱口秀《肖恩·汉尼蒂秀》节目的主持人，并且自2009年以来还主持了《福克斯新闻》的评论节目。据《福布斯》报道，到 2018 年，汉尼提已成为有线电视新闻中收视率最高的主持人之一，谈话电台中收听率最高的主持人之一。
-
-汉尼蒂获得了多项奖项和荣誉，包括自由大学的荣誉学位。同时，他还是《纽约时报》三本畅销书的作者。
-
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
