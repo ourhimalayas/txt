@@ -2,29 +2,30 @@
 ---
 
 
-## 俄罗斯支付卡停止使用Apple Pay和Google Play服务
-` Itana` [轉載自GNews](https://gnews.org/zh-hans/2073588/)
+## 应对SWIFT封杀 俄石油和航空企业启用人民币结算
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2073679/)
 
-翻译/整理：意大利罗马达芬奇农场- 阿娜意大利
+撰稿：东京樱花团/皓月当空郭
 
-一些受到西方制裁的俄罗斯银行的支付卡将停止使用ApplePay和GooglePay服务
+![](https://assets.gnews.org/wp-content/uploads/2022/02/应对SWIFT封杀-俄石油和航空企业启用人民币结算.jpg)[图片来源](https://warsawinstitute.org/gazprom-neft-reaches-record-hydrocarbon-output-2021/)
 
-据俄罗斯中央银行称，这些银行是VTB、Sovcombank、Novikombank、Promsvyazbank和Otkritie。
+据俄罗斯卫星通讯社25日报道：俄罗斯天然气工业石油公司(Gazprom Neft)新闻部门发布消息称，该公司成为首家俄罗斯各航空公司在中国境内加油时将相互结算完全转换为人民币的俄罗斯公司。
 
-需要注意的是，这些银行的客户将不能在国外用卡支付，也不能用卡在支持反俄制裁的国家注册的网店和服务综合体支付服务费用。
+消息指出，这一项目根据俄中政府间能源合作委员会的决定实施，目的是提高两国之间的空中运输强度。
 
-俄罗斯中央银行说这些银行的卡将不能使用Apple Pay或Google Pay服务外，在俄罗斯各地依旧可以使用。
+根据计划，到2022年底，俄罗斯天然气工业石油公司计划在俄罗斯机场为中国各航空公司的飞机加油结算转换为卢布。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/56-2.jpg)
+俄罗斯入侵乌克兰，全世界各国制裁俄罗斯，特别是将俄罗斯踢出SWIFT，很多国家关闭俄罗斯飞机进入领空，以及其它各种经济政治制裁，但是联合国针对俄罗斯入侵乌克兰草案进行投票时，中共却弃权，中共全面开放对俄罗斯小麦的进口，给俄罗斯输血经济。
 
-另外据 bloomberg 27日报道美国和欧盟将一些俄罗斯银行从SWIFT中剔除，并将矛头指向俄罗斯中央银行。此举以前只适用于伊朗等国家。西方国家同意启动新的制裁措施，进一步孤立俄罗斯的经济和金融体系。
+而现在俄罗斯公司与中共的各种交易用人民币或卢布结算，还有俄罗斯的货运飞机往来中共的繁忙运输，可以看出背后中共对俄罗斯入侵乌克兰背后的支持，结合冬奥会期间普京和习近平的亲密，习和他的中共就是俄罗斯入侵乌克兰的最大帮凶！
 
-参考新闻：
-1 [https://www.bloomberg.com/news/articles/2022-02-26/u-s-weighs-sanctions-on-russia-s-central-bank-over-ukraine](https://www.bloomberg.com/news/articles/2022-02-26/u-s-weighs-sanctions-on-russia-s-central-bank-over-ukraine) 
-2 [https://www.elrisala.com/2022/02/25/russian-payment-cards-stop-working-with-apple-pay-and-google-play-services/](https://www.elrisala.com/2022/02/25/russian-payment-cards-stop-working-with-apple-pay-and-google-play-services/)
+信息来源：
 
+[俄气石油公司将在华用人民币结算俄各航司加油业务](https://www.sohu.com/a/525437843_313745)
 
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
