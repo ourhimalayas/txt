@@ -2,33 +2,22 @@
 ---
 
 
-## 有声|25日英美加表示继续加大对俄罗斯的制裁力度
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2076865/)
+## 雅典娜时报-第217期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2076908/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月25日，美国财政部表示，会对俄罗斯总统普京、外交部长拉夫罗夫、国防部长绍伊古和总参谋长格拉西莫夫实施制裁。
+#### 《雅典娜时报》汇聚全球新闻时事
 
-美财政部长表示会让俄罗斯因入侵乌克兰而付出惨重的经济和外交代价，白宫发言人还表示将会对俄罗斯的主权投资基金实施全面封锁和制裁。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/947387426438008862/155_8.png?width=762&amp;height=1135)![圖片](https://media.discordapp.net/attachments/825592691433668612/947387426760978442/155_9.png?width=762&amp;height=1135)
+*发布：陶子*
 
-同一日，英国发表声明，冻结俄罗斯普京和外交部长拉夫罗夫的英国资产。被冻结的俄罗斯公司和个人将无法进入英国，与英国进行任何金融与商业活动，包括货币结算与进出口等。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-当天，加拿大总理特鲁多表示，该国政府支持将俄罗斯逐出环球银行金融电信协会，即SWIFT系统，以示俄罗斯公然对乌克兰武装侵略的惩罚。他认为此举能对俄罗斯的经济造成比制裁更大的损失，并表示，加拿大正在与欧洲盟友就相关问题进行相对话，盟友正在谨慎考虑加国的建议。
-
-文字版原文：[25日英美加表示继续加大对俄罗斯的制裁力度](https://gnews.org/zh-hans/2073275/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

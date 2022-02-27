@@ -2,21 +2,12 @@
 ---
 
 
-## 雅典娜时报-第216期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2076947/)
+## 2月27日文贵大直播要点（图片1-4）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2077070/)
 
-#### 《雅典娜时报》汇聚全球新闻时事
-
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/825592691433668612/946941346906771566/155_3-2.png?width=762&amp;height=1135)![圖片](https://media.discordapp.net/attachments/825592691433668612/946941347779207209/155_4-1.png?width=762&amp;height=1135)
-*发布：陶子*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6C63D15C-44A1-4140-A368-A167BF49B4BB.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/88390930-6F75-4F12-B9A4-CC10847B5D86.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/5D591BE1-3662-4CC2-A079-8BAA13C50657.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/A0229237-C072-4427-8728-27F7718C9894.jpeg)
+发布：水涨船高
 
  
 

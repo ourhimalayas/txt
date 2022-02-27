@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/27/2022 10:09 PM (UTC)`
+
+2/27/2022 Miles Guo: The Russian invasion of Ukraine has given Xi Jinping confidence to attack Taiwan, and he will surely implement his third battle plan. That is, Xi will use quasi-nuclear weapons to bomb Taiwan, which will definetely fight back against the CCP by destroying its coastal military bases.<br/><br/>2/27/2022 文贵直播：俄罗斯打乌克兰给了“习太阳”攻台的信心，他一定会采用第三套作战方案，即用准核武器狂轰滥炸台湾，台湾也一定会奋力反击并摧毁中共国沿海军事基地<br/>
+![img](https://media.gettr.com/group26/getter/2022/02/27/22/1f694f02-870a-ee8b-f0d2-7d9b05bce5e2/out.jpg)
+
+---
+
 `@miles 2/27/2022 5:08 PM (UTC)`
 
 2月27号：我尺R你共产党人八倍祖宗，救你们的家人就安全有条件！救我们老百姓就是条件不允许？【为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。<br/><br/>救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。<br/><br/>24小时救援联系方式如下：<br/><br/>邮箱：<br/>ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO<br/>电话和短信：+1 720-657-6776 或 +1 719-224-4232<br/><br/>新中国联邦<br/>法治基金 <br/>2022年2月26日<br/><br/><br/>In response to the current Ukraine crisis, the New Federal State of China and the Rule of Law Foundation are to cooperate with UN aid organizations to offer international humanitarian rescue assistance to those in need of voluntary evacuation. Free of charge flights will be arranged to help evacuate persons in need to certain safe transit countries, and accommodation without charge will be offered for up to 30 days. Eligible persons may 】
@@ -144,13 +151,6 @@ February 26th, 2022, Mr. Miles Guo’s Urgent Livestream: our rescue operation i
 
 2/26/2022 Miles Guo: The education spending and coverage claimed by the CCP are all false, and the education in Communist China belongs to the privileged class and is the root of corruption, with teachers being brainwashed and reduced to tools of the CCP. Education is a bright light in the darkness, and its goal is to set role models for children.<br/><br/>2/26/2022 文贵直播：中共宣称的教育经费和覆盖率全是假的，中共国的教育属于特权阶级，是腐败的根源，教师被洗脑沦为工具；教育是一盏黑暗中的明灯，其目的是给孩子树立榜样<br/>
 ![img](https://media.gettr.com/group36/getter/2022/02/26/23/74985589-47cd-11a3-f21c-2cb3bdf0706d/out.jpg)
-
----
-
-`@miles 2/26/2022 11:01 PM (UTC)`
-
-2/26/2022 Miles Guo: The goal of GEDU education in the New Federal State of China is to unbind. Education cannot be kidnapped by politics and money; a series of measures should be taken to create a personalized educational environment that is conducive to student growth.<br/><br/>2/26/2022 文贵直播：新中国联邦的GEDU教育的目标就是松绑；教育不能被政治和金钱绑架；要通过一系列的措施打造个性化的有利于学生成长的教育环境。<br/>
-![img](https://media.gettr.com/group32/getter/2022/02/26/23/8c795aab-309d-c5ff-82fa-ab5168c0c962/out.jpg)
 
 ---
 

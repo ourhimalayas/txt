@@ -15,68 +15,68 @@
 
 ---
 
-### [2月27日勿忘香港（图片1-10）](/content/gnews/1/README.md)
+### [喜币支付傲群雄](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声|明斯克协议](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [有声|俄罗斯全面发动入侵乌克兰的战争](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [2月27日勿忘香港（图片1-10）](/content/gnews/4/README.md)
  ` 波士顿五月花农场`
 
-### [香草山翻译部周刊|2022年2月27日第37期](/content/gnews/2/README.md)
+### [香草山翻译部周刊|2022年2月27日第37期](/content/gnews/5/README.md)
  ` 纽约香草山MOS01`
 
-### [【秘翻在线】救国心切！海外乌克兰人纷纷回国驰援](/content/gnews/3/README.md)
+### [【秘翻在线】救国心切！海外乌克兰人纷纷回国驰援](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2月27日文贵大直播要点（图片1-4）](/content/gnews/4/README.md)
+### [2月27日文贵大直播要点（图片1-4）](/content/gnews/7/README.md)
  ` 波士顿五月花农场`
 
-### [疫苗灾难致使香港疫情失控之际，中共借机进一步控制香港](/content/gnews/5/README.md)
+### [疫苗灾难致使香港疫情失控之际，中共借机进一步控制香港](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月27日早](/content/gnews/6/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月27日早](/content/gnews/9/README.md)
  ` 纽约香草山MOS01`
 
-### [雅典娜时报-第216期](/content/gnews/7/README.md)
+### [雅典娜时报-第216期](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《共产党统治中国的150个家族》之“习近平”篇（三）](/content/gnews/8/README.md)
+### [《共产党统治中国的150个家族》之“习近平”篇（三）](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [雅典娜时报-第217期](/content/gnews/9/README.md)
+### [雅典娜时报-第217期](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [北约的第4条是什么，为什么人们在谈论它？](/content/gnews/10/README.md)
+### [有声|2月26日白宫发布美欧关于SWIFT制裁俄罗斯的声明全文](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [有声|25日英美加表示继续加大对俄罗斯的制裁力度](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [在乌克兰蛇岛的士兵有可能还活着](/content/gnews/15/README.md)
  ` Itana`
 
-### [有声|2月26日白宫发布美欧关于SWIFT制裁俄罗斯的声明全文](/content/gnews/11/README.md)
+### [有声|蓬佩奥计划近期访台，再次挑动中共神经](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|25日英美加表示继续加大对俄罗斯的制裁力度](/content/gnews/12/README.md)
+### [有声|班农先生呼吁中国卡车司机为自由而战](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [在乌克兰蛇岛的士兵有可能还活着](/content/gnews/13/README.md)
- ` Itana`
-
-### [有声|蓬佩奥计划近期访台，再次挑动中共神经](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [有声|班农先生呼吁中国卡车司机为自由而战](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [2022年2月27日大直播速记精萃](/content/gnews/16/README.md)
+### [2022年2月27日大直播速记精萃](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [有声|灭共者之郭氏情报站（31）2022/02/26 文贵大直播-EDU专场](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [世界会看到我们新中国联邦的力量](/content/gnews/18/README.md)
+### [世界会看到我们新中国联邦的力量](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [文贵爆料 2.27：俄乌战争——普京一个人的战争](/content/gnews/19/README.md)
+### [文贵爆料 2.27：俄乌战争——普京一个人的战争](/content/gnews/20/README.md)
  ` 秘密翻译组-原创组`
 
-### [三年前扮演总统的喜剧演员, 今日领军对抗俄军](/content/gnews/20/README.md)
+### [三年前扮演总统的喜剧演员, 今日领军对抗俄军](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [有声|灭共者之郭氏情报站（30）2022/02/25 文贵大直播](/content/gnews/21/README.md)
- ` MOSREC`
 
 ### [新中国联邦紧急启动人道救援行动](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
