@@ -2,22 +2,18 @@
 ---
 
 
-## 乌克兰将组建外国军队，呼吁国外志愿者加入
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2074703/)
+## 俄罗斯军队已包围乌克兰的赫尔松和别尔江斯克两个城市
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2074738/)
 
 撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片5-9.png)（图片源自本文链接）
+2月27日法新社消息：俄罗斯国防部伊戈尔-科纳申科夫报道官27日, 通过媒体发表了一份声明表示，其军队在过去24小时内已 “完全包围 “了乌克兰南部城市赫尔松和东南部城市别尔江斯克。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/乌克兰将组建外国军队，呼吁国外志愿者加入.png)（图片源自本文链接）
+信息来源：[ウクライナ2都市「完全包囲」 ロシア国防省（ＡＦＰ＝時事） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/782e3f3af99d3414f130a3f60d1f2450d3daaac3)
 
-2月27日路透社基辅消息： 2月27日，乌克兰总统泽伦斯基27日表示，国家正在被俄罗斯军队入侵，他将组建一支由其它国家志愿者组成的国际部队。
-
-总统泽伦斯基说：这将是你们支持我们国家的一个重要标志。
-
-信息来源：[ウクライナ、外国人部隊編成へ　国外から志願募集（ロイター） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/f43412a138ccc9bf66a0cd8bca50b0a2ed43d646)
-
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,42 +2,35 @@
 ---
 
 
-## 前辉瑞员工：中共病毒疫苗是人类基因编辑的工具
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2069663/)
+## 俄罗斯入侵，数千乌克兰人踊跃应征入伍：&#8221;乌克兰绝不跪下“
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2070023/)
 
-作者：银河系农场 — 骄子
+翻译：不要代表我Kari
+校对：小熊
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-26.png)
+据报道，在乌克兰中部城镇曼基夫卡，数百人在市政厅外排队入伍。为应对俄罗斯入侵，乌克兰最近禁止 18 至 60 岁的男性离开该国，但尚未颁布军事征兵令。 据一份报告称，成千上万的民众争先恐后应征入伍，准备为保卫家园而战。
 
+据美国国家公共电台NPR报道，在乌克兰中部城镇曼基夫卡的市政厅外能看到数百人正在排队。”乌克兰绝不跪下，”其中一名入伍者告诉该媒体。”我们会把这些混蛋赶出我们的土地”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
-近日，前辉瑞员工Karen Kingston表示，中共病毒疫苗的目的是成为基因编译的工具。CDC、FDA、NIH之前对此事完全知情，他们将对疫苗造成的不良后果不负任何责任。
+俄罗斯入侵乌克兰：实时更新
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-26.jpg)图片来源网络
+报道称，另一名急于报名并于周五入伍的男子是沃洛迪米尔·奥梅利安Volodymyr Omelyan。”我不是天生的杀手，我从未梦想过成为那种人，”2016-2019年担任乌克兰基础设施部长的奥梅利安Omelyan告诉该媒体。奥梅利安说，他入伍主要是为了保护他的家人。他坚信，乌克兰人民将在卫国战中胜利。”我们一定会赢的，”他告诉美国国家公共电台NPR。
 
-Kingston说，中共病毒疫苗能否成功进行基因编译取决于很多不同的因素，包括是否在注射后迅速死亡。疫苗的另外一个目的是创造一个不是100%人类的新物种，向人体注入人工智能和计算机系统。中共病毒疫苗的意图还有杂交，将非人类物种细胞注入人体以实现基因整合。 据悉，一些大型生物技术公司曾利用从美国NIH的大额捐款在中共北京从事了生物武器的研究。而中共目前是订购基因、定制生物武器，制造疫苗等业务的最大客户之一，且这些企业大部分被中共勾兑，中国本土拥有各种大型制造设施。 最后Kingston感叹全球人类都被欺骗，各个当权者都利用谎言去逼迫人们接种中共病毒疫苗，这是一个精心策划的人类大屠杀计划。
+驻扎在兹米伊岛Zmiinyi（又称蛇岛）的13名士兵遭遇了一艘俄罗斯军舰，他们的反抗更能完美诠释乌克兰部队的战斗精神。”俄罗斯军舰，去死吧”，其中一名卫兵朝军舰的方向怒吼，当时整个事件被全程直播。
 
-相关链接：
+乌克兰总统沃洛基米尔-泽伦斯基（Volodymyr Zelenskyy）周四晚间证实，13人最终全部阵亡。
 
-[https://newstarget.com/2022-02-21-purpose-of-covid-vaccine-is-genetic-editing.html](https://newstarget.com/2022-02-21-purpose-of-covid-vaccine-is-genetic-editing.html)
+总统宣布，这13名士兵将获得 “乌克兰英雄 “的追授荣誉。
 
-![This image has an empty alt attribute; its file name is Feb-55.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
+原文链接：[https://www.foxnews.com/world/ukraine-army-enlist-russia-invasion](https://www.foxnews.com/world/ukraine-army-enlist-russia-invasion)
 
-编辑/校对/发稿：Petite abeille
+发布：tianzhihuan
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is good-66.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-66.png)
-
-
-
+更多资讯，请关注：[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

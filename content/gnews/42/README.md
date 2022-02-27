@@ -2,41 +2,99 @@
 ---
 
 
-## 论中国共产党对中国人民的暴力统治
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2072579/)
+## 2月26日白宫发布美欧关于SWIFT制裁俄罗斯的声明全文
+` 经济小组` [轉載自GNews](https://gnews.org/zh-hans/2072612/)
 
-编者：WLQF
+翻譯：日本東京方舟農場  感謝郭叔
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2535-edited.png)![](https://gnews.org/6565cb17-d641-4d82-8019-75726a4eb999)bing.com
+![](https://assets.gnews.org/wp-content/uploads/2021/05/s2.jpg)
 
-中国共产党靠诉诸暴力维持中国的政治与社会现状，以剥削中国14亿廉价劳动力为经济发展模式。这是共产党实行其专制统治的根本手段。共产主义自诞生之日起就具有暴力性质的种子与基因，正如在《共产党宣言》中说道：“共产党人不屑于隐瞒自己的观点和意图。他们公开宣布：他们的目的只有用暴力推翻全部现存的社会制度才能达到。”
 
-挪威社会学家，和平理论研究的著名学者约翰·文森特·加尔通将暴力划分为了“直接暴力”、“制度暴力”和“文化暴力”三种主要形式。其中，直接暴力是指直接造成肉体或心理伤害的作为，是中断或限制满足人类基本需求如生存、幸福、认同、自由的一种显然可见的暴力；制度暴力是一种不易被觉察、不明显但却广泛存在的暴力形式，是一种可“杀人不见血”的暴力。文化暴力则指依靠对文化、教育以及媒体上的控制，主导意义的诠释权以规范是非对错。中国共产党深谙暴力之道，将这三种暴力形式可谓是发挥到了淋漓尽致。
 
-1949年中国共产党执政以来，掀起了无数次政治、经济和文化运动。杀戮、残害、监禁、管制、奴役成为了这些运动主旋律。中共在执政初期的三四十年里诉诸的直接暴力可畏触目惊心。1950年代，以毛泽东为首的中国共产党高层发动了土地改革运动。这次土改剥夺了农村乡绅阶层的土地和一切财产，造成了100万到500万人的非正常死亡，彻底消灭了农村的精英阶层，改变了中国农村的社会结构和传统文化。同年代，中共在全国范围内开启了镇压反革命运动。镇反运动中，有100万到200万人被处死。1955年至1957年中共开展的肃清暗藏的反革命分子运动造成了140多万知识分子和干部被迫害，5.3万人的非正常死亡。1959–1961期间，由于大跃进和人民公社化运动引发的3年大饥荒共计造成了约4000万人的非正常死亡。1966年5月16日由中共领导人毛泽东发起的文化大革命一直持续到了1976年10月6日，时间长达十年之久。这场革命造成了约2000万人的非正常死亡。1989年六四天安门事件，中共屠杀了约1万多名平民。
+摘要：欧盟委员会、法国、德国、意大利、英国、加拿大和美国的领导人与乌克兰政府和乌克兰人民站在一起，谴责普京选择战争。俄罗斯需要为这场战争付出代价。
 
-1978年，中共十一届三中全会召开，邓小平等人提出了“对内改革、对外开放”的号召，1992年邓小平南巡期间改革开放被确立为中国的基本国策。1979年美国正式与中国建交后，随着中国改革开放的深入以及中美关系的持续发展，中国在美国的帮助下于2001年加入了世界贸易组织，使得中国的经济逐步融入全球经济体系中。这时的中共相对建政初期，暴力统治的形式也发生了较大的变化，旧时极权的赤裸裸的暴力和血腥手段相对得到了收敛。但这并不代表中共在专制统治上有所放松，更不代表中共在民主道路上越走越近。没错，时代变了，中共暴力统治的形式也发生了一些变化。中共在表面上与程序上给了人们一些所谓的“自由”，比如共产党的人民代表大会制度与政治协商制度，但事实证明这些所谓的自由都是装在套子里的自由，是假自由。即便是这样，还是有很多五毛党、小粉红以及很多被愚弄的老百姓认为这是共产党程序民主的典范。在经济上，中共也学的更加聪明了，不再封闭守贫，切断与世界的联系。他们懂得通过利用不平等贸易策略开展国际贸易活动、偷盗以美国为首的西方国家知识产权、强制外企技术转让、蓝金黄外国政要对西方进行渗透，从而使其获得源源不断的统治资源，却不会失去自己对中国14亿人民的独裁统治权。
+随着俄罗斯军队对基辅和其他乌克兰城市发动攻击，欧盟委员会、法国、德国、意大利、英国、加拿大和美国的领导人与乌克兰政府和乌克兰人民站在一起，决定：1、把选定的俄罗斯银行踢出SWIFT系统；2、采取限制性措施，防止俄罗斯中央银行破坏制裁影响的方式；3、对助长乌克兰战争和俄罗斯政府有害活动的个人和实体采取行动，限制向其出售公民身份，阻止其进入我们国家的金融系统；4、在下周启动一个跨大西洋特别工作组，查明和冻结在我们管辖范围内的受制裁个人和公司的资产。制裁更多的俄罗斯官员和与俄罗斯政府关系密切的精英及其家人以及他们的推动者，识别和冻结他们在我们管辖范围内持有的资产，以及和其他政府合作，阻止被制裁者在世界各地隐藏资产；5、加强或协调打击虚假信息和其他形式的混合战争。
 
-直接暴力作为中共统治的最典型特征，一直在持续着，一刻都未曾停止。但比直接暴力更隐秘的专制制度暴力是共产党对中国人民施加暴力的更高级别的形式。共产党的制度暴力主要表现在以下四个方面：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7b4829a39d5042af8d286fe6a5e68c34_th.jpeg)
 
-第一，剥削之暴力；中共绑架中国14亿人民，使他们沦为全球最大的廉价劳动力市场与全球最大的消费市场，并以此作为要挟西方文明国家的市场工具。中共统治中国几十年来催生了全球最大的经济泡沫，使中国社会产生了巨大的贫富悬殊，使14亿中国人都沦为了车奴与房奴，人民被一种无声的暴力压榨与迫害着。这是共产党利用专制制度造成的必然结果对中国14亿人民进行全面剥削的一种制度暴力行为。
+* * *
 
-第二，渗透之暴力；中共建立互联网防火墙防止人民接触到西方民主、自由与法治文明，将人民牢牢地控制在共产党的宣传边界当中。中国共产党统治中国70多年来始终对中国人民进行思想控制，以求达到「统一思想，统一认识」的目的。中共在全国只允许使用同一版教材，只允许人们接受共产党的红色教育，不允许其他教育思想的进入。这导致中国根本不存在学术与思想自由。
+* * *
 
-第三，分裂之暴力；中共鼓励人民之间互相监督、互相举报之风气，在人民群众之间制造矛盾，对人民实行分而治之的策略。现如今，中共对中国人民实行网格化管理，对社会及人民的生活进行全面监控，以达到 “进村入户，落实到人”的极端化要求。此外，中共还在中国多民族治理中输出对立思想，对各民族也同样进行分而治之。
+### 关于进一步限制性经济措施的联合声明
 
-第四，排斥之暴力；中共独裁统治造成了中国社会巨大的贫富悬殊与阶级对立。共产党对中国人民实行严厉的恐怖统治，口头上将人民置于最高地位，实际上是将人民置于边缘地位。在共产党的眼里，14亿中国老百姓不过是其榨取财富与获得资源的肉票，不过是其玩弄于股掌之间的提线木偶。
+我们，欧盟委员会、法国、德国、意大利、英国、加拿大和美国的领导人，谴责普京选择的战争以及对乌克兰主权国家和人民的攻击。我们与乌克兰政府和乌克兰人民站在一起，支持他们英勇抵抗俄罗斯入侵。俄罗斯的战争是对自第二次世界大战以来盛行的基本国际规则和规范的攻击，我们致力于捍卫这些规则和规范。我们将追究俄罗斯的责任，并共同确保这场战争是普京的失败战略。
 
-中国共产党通过专制独裁的政治、社会与经济体制对中国14亿人民施加的制度暴力更加地隐秘与丑陋，共产党的邪恶简直是登峰造极，无处不在。
+过去一周，除了我们为保卫我们自己的边境和协助乌克兰政府和人民战斗的外交努力和集体努力之外，我们以及我们在世界各地的其他盟国和合作伙伴对俄罗斯的主要机构、银行和这场战争的策划者们采取了严厉措施，包括俄罗斯总统弗拉基米尔·普京（Vladimir Putin）。
 
-除了直接暴力与制度暴力之外，共产党最邪恶是对中国人民实行的文化暴力，这是直接暴力与制度暴力之所以长期存在而不受反抗的根本原因。中共在文化上宣扬无神论与党文化，让中国人民丧失人的信仰与判断善恶标准的能力；在教育上实行愚民教育，对人民进行思想意识形态的绝对控制；在媒体上实行互联网全面监控。在中共治下，中国14亿人民既没有言论自由，也没有受教育的自由，更没有信仰自由。直接暴力叠加制度暴力与文化暴力构成了中共专制独裁政权的暴力体系。
+随着俄罗斯军队对基辅和其他乌克兰城市发动攻击，我们决心继续对俄罗斯施加代价，这将进一步将俄罗斯与国际金融体系和我们的经济隔离开来。我们将在未来几天内实施这些措施。
 
-有多少醒着的人试图战斗与反抗，有多少沉睡的人还在默默忍受着共产党暴力统治带来的折磨。这是一个最黑暗的时代，但又是一个最光明的时代。对于那些醒着的人，我们不再觉得孤独与无力，因为有爆料革命这艘巨船在等待着我们登陆，有新中国联邦在为我们保驾护航；对于那些还在沉睡忍受着痛楚的人们，你们也不再感觉到脱离苦海的希望渺茫，因为已经有无数爆料革命的战友正在试图唤醒你们，为你们祛除思想上的枷锁。消灭中共是打碎中国人民的奴隶枷锁和真正实现世界和平之必需。没有中共的新中国联邦，是全体人民和世界繁荣之必需。
+具体而言，我们承诺采取以下措施：
 
-审核：阿伯塔
-校对：信心满满
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-5.jpeg)
+首先，我们承诺确保将选定的俄罗斯的银行从 SWIFT 信息系统（SWIFT massaging system）中删除。这将确保这些银行与国际金融体系脱节，并损害其在全球运营的能力。
+
+其次，我们承诺采取限制性措施，防止俄罗斯中央银行利用其国际储备以破坏我们制裁影响的方式。
+
+第三，我们承诺对助长乌克兰战争和俄罗斯政府有害活动的个人和实体采取行动。具体来说，我们承诺采取措施限制出售公民身份——所谓的黄金护照——让与俄罗斯政府有联系的富有的俄罗斯人成为我们国家的公民并进入我们的金融系统。
+
+第四，我们承诺在下周启动一个跨大西洋特别工作组，通过查明和冻结在我们管辖范围内的受制裁个人和公司的资产，确保有效实施我们的金融制裁。作为这项工作的一部分，我们致力于对更多的俄罗斯官员和与俄罗斯政府关系密切的精英及其家人以及他们的推动者采取制裁和其他金融和执法措施，以识别和冻结他们在我们管辖范围内持有的资产. 我们还将与其他政府合作，努力发现和破坏不义之财的流动，并阻止这些人将其资产隐藏在世界各地的司法管辖区。
+
+最后，我们将加强或协调打击虚假信息和其他形式的混合战争。
+
+在这个黑暗的时刻，我们与乌克兰人民站在一起。除了我们今天宣布的措施之外，我们还准备采取进一步措施，让俄罗斯为其对乌克兰的袭击负责。
+
+参考链接：
+
+[https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/26/joint-statement-on-further-restrictive-economic-measures/](https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/26/joint-statement-on-further-restrictive-economic-measures/)
+
+* * *
+
+* * *
+
+以下为英文原文：
+
+### **Joint Statement on Further Restrictive Economic Measures**
+
+We, the leaders of the European Commission, France, Germany, Italy, the United Kingdom, Canada, and the United States condemn Putin’s war of choice and attacks on the sovereign nation and people of Ukraine. We stand with the Ukrainian government and the Ukrainian people in their heroic efforts to resist Russia’s invasion. Russia’s war represents an assault on fundamental international rules and norms that have prevailed since the Second World War, which we are committed to defending. We will hold Russia to account and collectively ensure that this war is a strategic failure for Putin.
+
+This past week, alongside our diplomatic efforts and collective work to defend our own borders and to assist the Ukrainian government and people in their fight, we, as well as our other allies and partners around the world, imposed severe measures on key Russian institutions and banks, and on the architects of this war, including Russian President Vladimir Putin.
+
+As Russian forces unleash their assault on Kyiv and other Ukrainian cities, we are resolved to continue imposing costs on Russia that will further isolate Russia from the international financial system and our economies. We will implement these measures within the coming days.
+
+Specifically, we commit to undertake the following measures:
+
+First, we commit to ensuring that selected Russian banks are removed from the SWIFT messaging system. This will ensure that these banks are disconnected from the international financial system and harm their ability to operate globally.
+
+Second, we commit to imposing restrictive measures that will prevent the Russian Central Bank from deploying its international reserves in ways that undermine the impact of our sanctions.
+
+Third, we commit to acting against the people and entities who facilitate the war in Ukraine and the harmful activities of the Russian government. Specifically, we commit to taking measures to limit the sale of citizenship—so called golden passports—that let wealthy Russians connected to the Russian government become citizens of our countries and gain access to our financial systems.
+
+Fourth, we commit to launching this coming week a transatlantic task force that will ensure the effective implementation of our financial sanctions by identifying and freezing the assets of sanctioned individuals and companies that exist within our jurisdictions. As a part of this effort we are committed to employing sanctions and other financial and enforcement measures on additional Russian officials and elites close to the Russian government, as well as their families, and their enablers to identify and freeze the assets they hold in our jurisdictions. We will also engage other governments and work to detect and disrupt the movement of ill-gotten gains, and to deny these individuals the ability to hide their assets in jurisdictions across the world.
+
+Finally, we will step up or coordination against disinformation and other forms of hybrid warfare.
+
+We stand with the Ukrainian people in this dark hour. Even beyond the measures we are announcing today, we are prepared to take further measures to hold Russia to account for its attack on Ukraine.
+
+Reference：
+
+[https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/26/joint-statement-on-further-restrictive-economic-measures/](https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/26/joint-statement-on-further-restrictive-economic-measures/)
+
+编辑：纽约香草山农场 ILOVE战神
+
+校对/发稿：飞虹
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
