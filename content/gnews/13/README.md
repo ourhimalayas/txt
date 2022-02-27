@@ -2,63 +2,77 @@
 ---
 
 
-## 普京打响乌克兰战争第一枪威胁世界和平（一）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2075065/)
+## 接种疫苗 相当于心甘情愿的被判死缓！
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2075318/)
 
-编译:  the world , weiwei
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2592-edited.png) YouTube
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-在乌克兰发生的事情，无论其规模如何，这个问题现在还不完全清楚，但无论它是什么样的，都是一场悲剧，因为战争总是一场悲剧。
+南非医生Philippe van Welbergen博士2月12日在参加南非一家社交媒体节目“Loving Life TV”时展示了近100张“接种疫苗”和未接种疫苗的患者的血液在显微镜下的近100张照片。
 
-而且你离得战争越近，它就越显得可怕。  这是人类所做过的最丑陋的事情之一。弗拉基米尔-普京发动了这场战争，因此，无论他做出这个决定的背景是什么，他做出来了，他打响了第一枪。  他应该为我们今晚在乌克兰看到的情况负责。
+这些照片显示，健康的血液图像应该是什么样子，红细胞里面没有凝结物或异物。
 
-美国应该如何回应他的所作所为？在昨晚战争爆发的几分钟内，主流媒体上常见的骗子就开始利用这一悲剧来获取他们党派的政治利益。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Dr.-Philippe-Blood-Slides-1.jpg)
 
-如果你曾经看过学校枪击事件的新闻报道，你就会熟悉他们的行为方式。是非常可耻的，但我们今晚要忽略这些人，因为有太多其他实际重要的事情已经发生了。
+而注射了实验性 Covid-19病毒疫苗的人的血液中，畸形的红细胞聚集在一起。
 
-在任何的危机当中，最重要的事情是决定什么是最重要的，建立一个关注度的等级制度。  因此，直到昨天晚上，我们外交政策的主要目的是防止俄罗斯入侵乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Dr.-Philippe-Blood-Slides-2.jpg)
 
-显然，它失败了。我们以后应该找出原因，但我们现在的首要目标有好几个，以下是前三个：
+从上图可以看到，仅剩下被黄圈圈住的一个还算正常的红细胞！
 
-首先，也是最明显的一条，我们应该避免与拥有核武器的对手发生全面战争。公平地说，在华盛顿很少有人希望发生这样的事情。  与俄罗斯的战争显然是个坏主意，但这并不意味着我们不会被卷入战争。
+Philippe van Welbergen博士是南非生物医学诊所有限公司（[Biomedical Clinics Limited](https://biomedclinics.wixsite.com/biomedical/about-us)）的医学负责人，也是去年第一批通过发布显微镜下的血液样本图像来警告公众注射Covid-19病毒“疫苗”对血液造成损害的人之一。
 
-战争往往是意外爆发的，或者在更多的时候是逐渐升级的。一旦你放松了警惕，你一睁开眼睛，突然就死了好几千人。现在，乌克兰的枪声已经响起，不管他们向你保证什么，美国人完全有可能在东欧受到伤害。
+去年7月初，Philippe博士第一次在“Loving Life TV”节目中接受了采访时说，当他的病人开始抱怨慢性疲劳、头晕、记忆力问题，甚至有时瘫痪，60多岁以上的女性月经过多时，他采集了这些病人的血液样本。发现他们的血液中有不寻常的管状结构，一些颗粒会发光，还有许多受损的细胞。几乎没有可见的健康细胞。而在这之前三个月以前，他还从未在血液中见过这种结构。
 
-我们应该防止这种情况，但防止这种情况需要智慧、远见和情绪控制。而所有品质在华盛顿从来都不存在，尤其是现在大家都有理由感到不安，俄罗斯的所作所为是可怕的。
+他发现，在这之前的一次荷兰医学会议上，专家们正在讨论类似的血液问题，一些血液样本甚至显示出不是有机物的蓝色和红色细胞，将这些线索联系起来，他发现这些病人的共同点是都接种了Covid-19病毒“疫苗”，而这些管状结构就是石墨烯。
 
-但我们的行为仍然可能使情况变得更糟。参议院情报委员会主席马克-华纳刚刚宣布，俄罗斯可能会触发所谓的北约联盟的第五条准则，这是一个集体防御原则。
+之后，Philippe博士经常在“Loving Life TV”节目中揭发实验性的Covid-19病毒“疫苗”的推出，提供有关随着时间的推移，实验性Covid-19病毒“疫苗”对血液造成的日益增加的损害的最新信息，尤其是英国和南非的Covid-19病毒“疫苗”情况的最新信息。
 
-如果俄罗斯对乌克兰发动网络攻击，华纳解释说，这种攻击如果影响到附近的北约成员，如波兰和立陶宛，那么每个北约国家，包括我们美国，都有义务向俄罗斯宣战。
+几周前，Philippe博士开始注意到随着Covid-19病毒“疫苗”进入人体的石墨烯纤维不同侧面的磁化或电极效应。
 
-他在这里解释说。  我严重关切的一件事是，如果俄罗斯对乌克兰释放其全部网络攻击力量，一旦你把恶意软件放到互联网里面，因为你知道，病毒不会区分地域界限。
+在下图中，在纤维的右侧，细胞被凝结，在左侧是看起来像一个间隙或大致向后的“C”形间距。菲利普博士说，以前从未见过这种现象，但现在，突然之间，几乎每个注射疫苗后的血液样本中都可以看到这种现象。这表明，石墨烯进入血液系统后，与周围的血红细胞反应而产生这种现象，但目前尚不清楚产生这种间隙或大致向后的“C”形间距的根本原因。
 
-因此，如果俄罗斯人决定他们将尝试关闭电力，关闭整个乌克兰的所有电力，很可能会波及到波兰东部和罗马尼亚东部的电力，这可能会影响到我们的部队，如果医院突然被关闭，如果那些北约部队和美国部队因为指示灯突然停止工作而发生车祸。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Dr.-Philippe-Blood-Slides-3.jpg)
 
-我们就会突然处于一个第五条原则被触发的领域，即一个北约国家收到了攻击，我们都必须互相援助。   因此，华纳肯定是对的，他概述的假设可能会发生任何对乌克兰的网络攻击都可能影响东欧国家的基础设施。
+通过上图，您还可以看到石墨烯纤维是含有红细胞的中空结构，这种尺寸的中空纤维会阻塞毛细血管。
 
-这将是糟糕的；这将是一种犯罪行为；文明世界会唾弃它。但第五条原则不是一个机械的机制，人们必须决定是不是要去启动它。  而问题是，真正的问题是什么？
+在2月12日的视频中，Philippe博士还提到，石墨烯已从“接种疫苗”的父母传给未接种疫苗的孩子。
 
-参议员刚刚描述了一些可能导致核武器冲突的情况，而这是一个我们应该停下来，以尽可能清醒的方式思考的问题。我们希望我们的领导人是清醒的，但不是所有的人现在看起来都是清醒的。
+下图是来自未接种疫苗的三岁儿童血液样本。它显示了在这些血液样本中，存在脱落的石墨烯碎片。这些碎片很可能由已从“接种疫苗”的父母传给未接种疫苗的孩子。
 
-他们中的一些人似乎很鲁莽，而且像往常一样的无知。  例如，伊利诺伊州的议员亚当-金赛尔，他花了很多时间在有线电视上谈论世界事务。他似乎是个专家，然而从他的气质上看，他肯定是你最不想让接近核武器按钮的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Dr.-Philippe-Blood-Slides-4.jpg)
 
-而今天，金赛尔告诉我们，俄罗斯扣押并已停止工作的切尔诺贝利设施可能会引用他说的话，触发第五条原则。  好吧，你当然可以在嘴上说说它会触发北约第五条，但是然后会发生什么事情？显然，亚当-金赛尔没有想过这个问题，根本就没有。
+下图是一名未接种疫苗，但右臂和右上腿基本瘫痪，大腿已经不能正常活动的8岁儿童的血液样本，该儿童的血液应当是被他/她周围注射过Covid-19病毒“疫苗”的人的石墨烯传播和感染。
 
-所以你就看到了这里的问题，问题不在于谁是错误的。  我们可以说，弗拉基米尔-普京在昨晚发动的战争行为是错误的，但是然后呢？  而这才是更大的问题。一旦冲突开始，特别是当这种冲突被电视无线的转播时，真的很难知道接下来会发生什么。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Dr.-Philippe-Blood-Slides-5.jpg)
 
-因此，任何认为入侵乌克兰不可能成为一场世界大战的人，要么缺乏想象力，要么就是在对你撒谎。  它当然可能成为一场世界大战，所以这是第一个目标，不要让一件可怕的事情变得更可怕。
+Philippe博士并不是发现疫苗中氧化石墨烯对人体血红细胞影响的唯一一个人。
 
-【接下篇：[普京打响侵入乌克兰战争第一枪威胁世界和平（二）](https://gnews.org/zh-hans/2075114/)】
+去年8月，德国Bärbel Ghitalla博士和他的同事Axel Bolland以及两名律师Holger Fischer和Elmar Becker，就用显微镜观察到注射过COVID-19病毒“疫苗”和强生COVID-19病毒“疫苗”中，发现氧化石墨烯。
 
-来源：【youtube.com】[Tucker: This is what we should be worried about](https://www.youtube.com/watch?v=SnKez4bL0po)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-27_21-34-40.png)
 
-* * *
+瑞士Armin Koroknay发现，接种Covid-19病毒“疫苗”会在微观水平上引起即时凝血，第二次注射后对人体血液的影响最为严重。
 
-审核：阿伯塔
-校对：小东
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-9.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-27_21-36-48.png)
+
+英国微生物学家Sucharit Bhakdi（巴克迪）博士在接受The Daily Expose采访时说，“如果父母允许他们的孩子接种Covid-19病毒“疫苗”，相当于心甘情愿地让他们的孩子被杀害”。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2020-04-10_00685.jpg)
+
+援引一个网友的评论，接种Covid-19病毒“疫苗”，相当于心甘情愿的被判“死缓”！
+
+参考数据：
+
+[Graphene Is Being Transmitted from the “Vaccinated” to Vaccine-Free People](https://dailyexpose.uk/2022/02/24/graphene-is-being-transmitted-from-vaccinated/)
+
+[German Doctors and Lawyers Assess Blood Smears from People Who Have Had Covid Injections: “For me this is euthanasia. For me this is mass murder, a crime on a grand scale”](https://dailyexpose.uk/2021/08/31/german-doctors-and-lawyers-assess-blood-smears-from-people-who-have-had-covid-injections-for-me-this-is-euthanasia-for-me-this-is-mass-murder-a-crime-on-a-grand-scale/)
+
+[Exclusive Interview with Dr Bhakdi – “Parents are willingly allowing their children to be killed if they allow them to have the Covid Vaccine”](https://dailyexpose.uk/2021/05/16/exclusive-interview-with-dr-bhakdi-parents-are-willingly-allowing-their-children-to-be-killed-if-they-allow-them-to-have-the-covid-vaccine/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
