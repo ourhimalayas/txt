@@ -2,23 +2,38 @@
 ---
 
 
-## 要闻（27/02/2022）：普京让俄罗斯核力量进入警戒状态
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2076178/)
+## 樱花FM|北京冬奥前闭环内外疫情燃烧，特大安全套或是最佳体验
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2076254/)
 
-编译：波士顿五月花—-思澈
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-4-8.png)
+**北京冬奥在即，“闭环”内外疫情燃烧，带给运动员最佳体验的或许是特大号安全套，这可在隔离时解燃煤之急。不过，习近平已经决定在冬奥会开幕式举办盛大宴席。对于国际社会如何追责北京反人类罪？联合国人权委员会配合北京冬奥会，将不会在近期发布涉疆“人权报告”。**
 
-普京今天周日发表电视讲话发出信号已将俄罗斯的核武力置于高度警戒状态
+据[路透社](https://gulfnews.com/sport/olympics/beijing-olympics-china-reports-36-new-covid-19-cases-among-olympics-related-personnel-1.85289422)北京时间29日消息称：“北京 2022 年冬奥组委会今天表示，1 月 28 日，在奥运会相关人员中发现 了36 例新的 COVID-19 感染者。”其中19 名运动员或球队官员在周五抵达机场后检测呈阳性。在新机场抵达者中发现了 29 人，在运动员与公众隔离的“闭环”气泡中也已经发现了 7 例感染者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/D49C434B-89AD-4685-8E34-FE027781B47A.jpeg)
+另据《[看中国](http://cn.secretchina.com/news/gb/2022/01/27/996269.html)》27日消息透露，将于2月4日开幕的冬奥尚未开始，涉奥人员已检测出129人阳性。同时，北京“环外”疫情也在燃烧。1月23日正式启动的 “泡泡”型“闭环”管理难阻奥密克戎（Omicron）病毒肆虐。
 
-2022年2月27日星期日俄罗斯总统普京在与他的高级顾问举行的会议上宣布将该国核力量置于警戒状态，这次会议通过电视转播。俄罗斯国防部长和总参谋部长已接到普京的指示，将核威慑力量置于 “特殊管理”的战斗准备状态。他没有明确提到核武器。据美国驻联合国大使琳达-托马斯-格林菲尔德称，普京的指示表明，俄罗斯正在以一种不可接受的方式使冲突升级。
-
-素材来源：[https://www.welt.de/politik/ausland/article237183387/Ukraine-Krieg-Putin-versetzt-russische-Atomstreitkraefte-in-Alarmbereitschaft.html](https://www.welt.de/politik/ausland/article237183387/Ukraine-Krieg-Putin-versetzt-russische-Atomstreitkraefte-in-Alarmbereitschaft.html)
-
-*发布：思澈*
+- **延展阅读：**[**中共国在冬奥会前一周悄悄封锁120万人的雄安新区**](https://www.ndtv.com/world-news/beijing-winter-olympics-china-quietly-locks-down-area-near-beijing-a-week-before-winter-olympics-2734478)
 
 
+毋庸置疑，北京在奥密克戎（Omicron）肆虐下，一场危机四伏的冬奥会即将拉开序幕。但北京强调，“[按照传统，北京冬奥组委会将免费向运动员发放安全套，但不鼓励拥抱](https://7news.com.au/sport/winter-olympics/free-condoms-at-beijing-winter-olympics-but-hugs-discouraged-c-5474922)。”该消息称，尽管奥委会有严格的与社会隔离的 COVID-19 协议，但主办方仍提供免费安全套。
 
+路透社记者在位于闭环内的贵州宾馆入住时，在每个房间内发现了五个单独包装的安全套，**避孕套是“特大号”**。它们分别装在带有不同颜色中国灯笼形象的信封中。
+
+- **延展阅读：**[**习近平将出席北京冬奥会开幕式**](http://news.cnr.cn/native/gd/20220128/t20220128_525728626.shtml)
+- **延展阅读：**[**习近平为北京冬奥来访领导人设宴招待**](https://www.news18.com/news/sports/china-president-xi-jinping-to-host-banquet-for-visiting-leaders-at-beijing-winter-olympics-4708502.html)
+
+
+不知特大号安全套是否可以罩住在新疆犯下的“反人类罪”？但“路透社28日援引《南华早报》未具名消息人士的话报道，“[中国已同意让联合国人权事务高级专员在北京冬奥会后的 2022 年上半年访问新疆](https://www.arabnews.com/%E8%8A%82%E7%82%B9/2013701/%E4%B8%96%E7%95%8C)。”与此同时，[法新社](https://www.news18.com/news/world/un-says-no-rights-report-on-chinas-xinjiang-before-beijing-winter-olympics-4709741.html)表示，“联合国称不会在北京冬奥会前发布关于中国新疆的人权报告”。
+
+2021年1月29日
+
+文字版原文：
+[北京冬奥前闭环内外疫情燃烧，特大安全套或是最佳体验 – GNEWS](https://gnews.org/zh-hans/1928139/)
+
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
 
 
  
