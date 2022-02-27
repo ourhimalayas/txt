@@ -2,35 +2,34 @@
 ---
 
 
-## 有声|紧急救助指引
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2075730/)
+## 乌克兰基辅民众自发组织抗击俄罗斯的入侵
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2075920/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-- 全球农场的战友们好，在当前国际形势严峻的情况下，为使需要救助的台湾同胞，香港同胞和墙内同胞能随时查看救助信息，新中国联邦词典编辑了紧急救助专题，希望能帮到更多的战友。链接如下。
-- [https://www.nfscdict.com/%E7%B4%A7%E6%80%A5%E6%95%91%E5%8A%A9%E4%B8%93%E9%A2%98](https://www.nfscdict.com/%E7%B4%A7%E6%80%A5%E6%95%91%E5%8A%A9%E4%B8%93%E9%A2%98)
+乌克兰普通民众武装起来抵抗俄罗斯的入侵者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_1-24.png)
+**计算机程序员,**** ****赫利卜·邦达连科:**** **
 
+我们正在排队等待， 拿到武器来对抗俄罗斯侵略者，没有理由相信他们会很快停下来，至少在我看来，他们的目标显然是要，占领我的整个国家，并摧毁我所热爱的一切。我只是一个普通的市民，我与战争或其他方面没有任何关系，任何其他类似的事情无关。我真的不想参与这样的事情，但我真的别无选择因为这是我的家，我的动机很简单。
 
-文字版原文：[紧急救助指引](https://gnews.org/zh-hans/2067362/)
+**演员，扎哈尔·内奇波尔**
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+总比坐在家里等着什么来打你要好，除了我们还有谁？
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**业务经理：**
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+当我听到爆炸声时，我决定我准备好了。我是成年女性，我很健康，这是我的责任。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+**斯捷潘，学生：**
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+现在，因为我们与基辅的特定地区联系在一起，我们正在为巷战做准备，他们告诉我们如何团队行动，独自行动。应对什么和如何应对？
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+**塞尔吉:**
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+人们很支持，他们在鼓励我们。我还没有看到有人对我们有武器而感到紧张，相反，现在有更多的乌克兰人武装起来，我们的人民会睡得更好。
+
+靠左，指挥官向左走，好的，跟着我，前进。
+
+视频剪辑：翻译：烟波浩淼 | 视频制作+字幕：刀锋舞者|编辑&发布：闪电训练
 
  
 

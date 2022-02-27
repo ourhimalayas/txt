@@ -2,41 +2,27 @@
 ---
 
 
-## 有声|新西兰多地爆发反疫苗强制令抗议,计划周六在海港大桥示威
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2075777/)
+## 视频|新中国联邦的喜帀将要人民币的命
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2075935/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据英文《先驱报》报道，目前新西兰除惠灵顿外，在奥克兰、陶朗加、内皮尔、尼尔森、基督城等地都爆发了反疫苗强制令抗议活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/092160.png)
-抗议者要求在3月1日取消疫苗强制令，抗议者计划在本周六，即2月26日走上奥克兰海港大桥示威。这座横跨奥克兰CBD和北岸的桥梁是新西兰最繁忙的高速公路之一。
+制作：香草山视频部
 
-新西兰交通局（NZTA）发言人表示，该部门没有关闭海港大桥的计划。奥克兰交通局还表示，大桥上的任何中断都可能影响到数千名依靠公交服务出行的乘客。
+郭文贵先生在2月25日大直播中向中共宣告，新中国联邦的喜币会要了人民币的命。
 
-警方则表示将努力阻止任何人从奥克兰海港大桥上行走，他们担心这将引起混乱，造成干扰，危及生命。
+据郭先生透露，几个月前人民银行有人对他说，喜币只能偷人民币的小钱，不会造成人民币的致命伤害。但郭先生只是一笑了之，因为中共根本没有看到人民币面临的真正困境，以及喜币的真正优势。
 
-另据RNZ报道，在抗议活动现场工作的一些警员感染了中共病毒。虽然没有说这与抗议者有关，但病毒在那儿是“合乎道理”的。此外，新西兰警察局长安德鲁科斯特表示，虽然降级是首选，但不排除使用武力清除议会场地的可能性，那里的抗议活动已经持续了两个多星期，并且变得越来越暴力。科斯特还呼吁那些试图保持和平的抗议者离开。
+郭先生认为，中共加紧限制人民币的使用自由，逃窗效应一定会出现。钱是跟着人心走的，新中国联邦的喜币是人心币，中国人的钱只能来到喜币才是最佳选择，最终喜币会要了人民币的命。详情请看郭先生的爆料视频。
 
+发稿：Daxia
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-文字版原文：[新西兰多地爆发反疫苗强制令抗议,计划周六在海港大桥示威](https://gnews.org/zh-hans/2066966/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
