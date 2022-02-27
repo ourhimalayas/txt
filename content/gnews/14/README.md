@@ -2,37 +2,102 @@
 ---
 
 
-## 有声|面对
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072190/)
+## 《沙漠之花》 —— 献给G-EDU
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2072267/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-我希望世界和平！我希望世界没有战争！我希望各国人民安居乐业！
+作者：香草山商业部—自由清风
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-85.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9bd7-iskepxt7343163.jpg)
 
-也许不少人与我有同样的愿望，但往往事与愿违。随着中共病毒的肆虐，加拿大卡车司机反疫苗运动，俄乌战争的残酷爆发，在有人类生存的土地上都弥漫着生离死别的揪心场景⋯⋯，然而面对着恐惧，坚强的民众没有退缩，继续为自由民主努力抗争！
+你失学了
 
-从一则视频反观自己民族人性的口德展现，作为同族我真感无地自容。落井下石，幸灾乐祸，口出恶言都不足以形容对那些小粉红的厌恶。
+在你最金色的年华里
 
-在这风云变幻无常的残酷世界，文贵先生领导新中国联邦人团结一心，伸出援手救助有需要的人，以一个全新美好健康的形象展现在世人面前。见证历史，坚守我们的信念，新中国联邦明天充满希望！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/0219-4-c-1-768x432-1.jpg)
+莫名其妙地
+
+就被那红色的恶魔偷走了两年时光
 
 
-文字版原文：[面对](https://gnews.org/zh-hant/2071117/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+你清澈而不解的眼神
+
+拷问着这个荒唐的世界
+
+也考验着我的智慧
+
+
+
+你很多次的失望
+
+每天像鞭子一样抽打着我的神经
+
+
+
+孩子啊
+
+这么多次的失望、希望、再失望……
+
+你依然相信妈妈
+
+你知不知道，我是有多么地感激你？
+
+可是你知道吗？
+
+连我自己都不知道何时能将你带出那沙漠！
+
+
+
+那浩瀚的沙海啊
+
+曾经承载了我无尽的忧伤
+
+我一度以为
+
+自己已经不可能走出那荒漠
+
+
+
+就在我们已经精疲力竭的时候
+
+绿洲，那绿洲出现了！
+
+在它的上面
+
+居然还开放着沙漠的花朵！
+
+
+
+花儿说
+
+这里是适合我生长的地方
+
+我是一朵在沙漠里都能盛开的花儿
+
+因为，这里的下面有甘泉
+
+
+
+孩子，我的孩子啊
+
+这沙漠中的绿洲
+
+这生长着沙漠之花的绿洲
+
+可不就是我们梦寐以求的家园么？！
+
+
+
+编辑/审核/发稿：Bronx Bombers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-65.jpg)
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 

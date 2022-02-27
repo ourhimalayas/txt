@@ -2,38 +2,36 @@
 ---
 
 
-## 乌克兰副总理请求苹果和谷歌停止在俄服务 希望马斯克提供星链服务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2072254/)
+## 俄乌快讯：马斯克表示提供星链服务帮助乌克兰
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2072283/)
 
-撰稿：东京樱花团/盖特第一批注册
+翻译：冰糖葫芦喵
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/乌克兰副总理请求苹果和谷歌停止在俄服务-希望马斯克提供星链服务.jpg)[图片来源](https://dime.jp/genre/1168939/)
+编辑与校对：冰糖葫芦喵、灭共文明
 
-乌克兰副总理费多罗夫2月26日在推特上表示，他已要求苹果公司首席执行官蒂姆-库克停止在俄罗斯提供产品和服务。
+《路透社》旧金山2月26日报道，**乌克兰的互联网遭受俄罗斯入侵而中断，美国太空探索技术公司(SpaceX)的CEO埃隆•马斯克(Elon Musk)周六表示，该公司的星链(Starlink)卫星宽带服务可以在乌克兰使用，并且将向乌克兰输送更多终端。**
 
-费多罗夫说：“现代技术是对付坦克、火箭和导弹的最佳对策之一。我已经要求几家科技巨头帮助我们阻止来自俄罗斯联邦的这种无耻的攻击。”
+据报道，**乌克兰副总理**米哈伊洛·费多罗夫(Mykhailo Fedorov)发推文称：**“@马斯克，当你试图殖民火星时，俄罗斯试图占领乌克兰!”当你们的火箭从太空成功着陆时，俄罗斯的火箭攻击乌克兰人民!”**
 
-他在推特上说，他已经向谷歌、Netflix和YouTube（谷歌拥有的）提出了类似请求。
 
-在给SpaceX首席执行官埃隆-马斯克的推文中，他呼吁马斯克通过Starlink向乌克兰提供卫星宽带。“ 你们在试图殖民火星，俄罗斯在试图占领乌克兰!　SpaceX的火箭正在进行成功的太空飞行，但俄罗斯的火箭正在攻击乌克兰公民！”
 
-马斯克先生在大约10小时后回复说：“我们已经在乌克兰建立了星际链接并运行”。
+> Starlink service is now active in Ukraine. More terminals en route.
+> — Elon Musk (@elonmusk) [February 26, 2022](https://twitter.com/elonmusk/status/1497701484003213317?ref_src=twsrc%5Etfw)
 
-YouTube告诉路透社，它已经暂停了几个俄罗斯频道的广告收入功能。
 
-Meta（原Facebook）安全政策主管26日在推特上表示，该公司已暂停俄罗斯国家媒体在其平台上的广告收入。
+**乌克兰副总理**米哈伊洛·费多罗夫发推文@马斯克。
+马斯克在回应费多罗夫的推特时表示，**星链服务现在在乌克兰很活跃，还有更多的航站楼在路上。**该官员要求马斯克为这个陷入困境的国家提供星链站。
 
-推特公司26日表示已经停止在俄罗斯创建新账户。
+周六，互联网监控人员表示，乌克兰的互联网连接受到了俄罗斯入侵的影响，特别是在该国战斗最激烈的南部和东部地区。
 
-目前还没有关于苹果、谷歌或Netflix任何行动的具体报道。
+尽管部署成本极高，但卫**星技术可以为生活在农村或光纤电缆和手机信号塔无法到达的难以服务的地区的人们提供互联网。**当飓风或其他自然灾害破坏通信时，这项技术也可以成为关键的后盾。
 
-信息源：
+据报道，在2021年1月15日，马斯克表示**，SpaceX有1469颗星链卫星处于活动状态，272颗即将进入运行轨道。**
 
-[ウクライナ副首相、AppleやGoogleにロシアでのサービス停止を、マスク氏にはStarlinkを要請](https://news.yahoo.co.jp/articles/cddc1981deff522652395b41d4e1d622aed58bfb)
+**新闻链接：**
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+[Musk says Starlink active in Ukraine as Russian invasion disrupts internet | Reuters](https://www.reuters.com/technology/musk-says-starlink-active-ukraine-russian-invasion-disrupts-internet-2022-02-27/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

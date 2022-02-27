@@ -15,86 +15,86 @@
 
 ---
 
-### [切尔诺贝利：为什么俄罗斯军队控制了臭名昭著的核灾难现场？—官员说，俄军在火灾后控制了乌克兰北部地区](/content/gnews/1/README.md)
- ` 喜马拉雅农场新西兰站`
+### [2/26/2022 文贵紧急直播：新中国联邦致力于维护中国人善良、勇敢和爱好和平的形象](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
 
-### [10万乌克兰人逃离家园 德国正准备接收难民](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [文贵紧急直播（乌克兰救援）要点（2022年2月26日）](/content/gnews/2/README.md)
+ ` 波士顿五月花农场`
 
-### [从喜剧演员到民族英雄 泽连斯基在战火中转身](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美欧发布声明 将俄罗斯几家特定银行移出SWIFT系统](/content/gnews/4/README.md)
- ` 日本东京方舟农场`
-
-### [新中国联邦紧急措施](/content/gnews/5/README.md)
+### [中共习近平和俄罗斯普京通话](/content/gnews/3/README.md)
  ` GTV News Talk`
 
-### [俄乌快讯：马斯克表示提供星链服务帮助乌克兰](/content/gnews/6/README.md)
- ` 蓝莲花农场`
-
-### [美英欧盟：同意将俄罗斯主要银行从SWIFT剔除](/content/gnews/7/README.md)
- ` 日本东京方舟农场`
-
-### [乌克兰首都发生激烈交火 俄罗斯否决安理会撤军决议](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [《沙漠之花》 —— 献给G-EDU](/content/gnews/9/README.md)
- ` 纽约香草山MOS03`
-
-### [大直播后记：新中国联邦的币就是人心币和良心币](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [乌克兰副总理请求苹果和谷歌停止在俄服务 希望马斯克提供星链服务](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [大直播后记：未来新中国联邦的灭共实力](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [大直播后记：新中国联邦人展示了中国人是有心的竹子](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [有声|面对](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [有声|温哥华发生两名华人遇害事件](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [有声|美国驱逐俄驻美第二号外交官](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [2022年2月27日《樱花简报》：日本第六轮疫情恐致5500余人死亡](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [20220225文贵大直播：新中国联邦给的财富是让人看清真相解决贪嗔痴慢疑](/content/gnews/18/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220225文贵大直播：世界的动荡将导致与法币共存的区域数字货币](/content/gnews/19/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220225文贵大直播：这次是海洋文明与陆地文明的再一次重创与PK！](/content/gnews/20/README.md)
- ` Tokyo Sakura Video Group`
-
-### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/21/README.md)
- ` 纽约香草山MOS02`
-
-### [新中国联邦对在乌中国同胞和美国友人展开紧急救援](/content/gnews/22/README.md)
- ` 日本东京方舟农场`
-
-### [必须立即在财政和外交上切断俄罗斯](/content/gnews/23/README.md)
- ` 美国政要直译推`
-
-### [俄罗斯威胁芬兰和瑞典:若加入北约可能面临严重后果](/content/gnews/24/README.md)
+### [跟随欧盟，瑞士制裁俄罗斯银行和政客](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [德国向基辅交付 1000 枚反坦克武器和 500 枚毒刺导弹](/content/gnews/25/README.md)
+### [新中国联邦国际救缓部署，文贵先生紧急直播之要点](/content/gnews/5/README.md)
+ ` 纽约香草山MOS02`
+
+### [切尔诺贝利：为什么俄罗斯军队控制了臭名昭著的核灾难现场？—官员说，俄军在火灾后控制了乌克兰北部地区](/content/gnews/6/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [10万乌克兰人逃离家园 德国正准备接收难民](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [从喜剧演员到民族英雄 泽连斯基在战火中转身](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美欧发布声明 将俄罗斯几家特定银行移出SWIFT系统](/content/gnews/9/README.md)
+ ` 日本东京方舟农场`
+
+### [新中国联邦紧急措施](/content/gnews/10/README.md)
+ ` GTV News Talk`
+
+### [俄乌快讯：马斯克表示提供星链服务帮助乌克兰](/content/gnews/11/README.md)
+ ` 蓝莲花农场`
+
+### [美英欧盟：同意将俄罗斯主要银行从SWIFT剔除](/content/gnews/12/README.md)
+ ` 日本东京方舟农场`
+
+### [乌克兰首都发生激烈交火 俄罗斯否决安理会撤军决议](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [《沙漠之花》 —— 献给G-EDU](/content/gnews/14/README.md)
+ ` 纽约香草山MOS03`
+
+### [大直播后记：新中国联邦的币就是人心币和良心币](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [乌克兰副总理请求苹果和谷歌停止在俄服务 希望马斯克提供星链服务](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|面对](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [有声|温哥华发生两名华人遇害事件](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [有声|美国驱逐俄驻美第二号外交官](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [2022年2月27日《樱花简报》：日本第六轮疫情恐致5500余人死亡](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [20220225文贵大直播：新中国联邦给的财富是让人看清真相解决贪嗔痴慢疑](/content/gnews/21/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220225文贵大直播：世界的动荡将导致与法币共存的区域数字货币](/content/gnews/22/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/23/README.md)
+ ` 纽约香草山MOS02`
+
+### [新中国联邦对在乌中国同胞和美国友人展开紧急救援](/content/gnews/24/README.md)
+ ` 日本东京方舟农场`
+
+### [必须立即在财政和外交上切断俄罗斯](/content/gnews/25/README.md)
+ ` 美国政要直译推`
+
+### [俄罗斯威胁芬兰和瑞典:若加入北约可能面临严重后果](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [德国向基辅交付 1000 枚反坦克武器和 500 枚毒刺导弹](/content/gnews/27/README.md)
  ` Shuizhuyu`
-
-### [秘翻在线：美再向乌克兰提供数亿美元武器装备](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2022/02/26 英喜时事速递](/content/gnews/27/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [NFSC新闻、G|TV新闻访谈简报|2022年2月26日早](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`

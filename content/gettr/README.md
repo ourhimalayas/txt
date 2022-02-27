@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/27/2022 3:10 AM (UTC)`
+
+2/26/2022 Miles Guo’s Urgent Livestream:  Palau is an ideal place for rescuing Taiwanese fellow fighters and compatriots; everybody must follow arrangements and comply with  instructions or rules of international rescue<br/><br/>2/26/2022 文贵紧急直播：帕劳是个非常好的营救台湾战友和同胞的一个基地；大家要听从统一安排，遵守国际营救规则
+![img](https://media.gettr.com/group36/getter/2022/02/27/03/ab232354-ed59-9b26-4830-ed14bd22aa77/out.jpg)
+
+---
+
 `@miles 2/27/2022 2:57 AM (UTC)`
 
 2/26/2022 Miles Guo’s Urgent Livestream: The New Federal State of China is dedicated to upholding the image of the Chinese as kind, courageous, and peace-loving people! The world needs peace, and we will work with the people of the world to fight against dictatorships and evil forces to maintain the safety and human rights of the Chinese people!<br/><br/>2/26/2022 文贵紧急直播：新中国联邦致力于维护中国人善良、勇敢和爱好和平的形象！世界需要和平，我们要和全世界人民一起跟独裁和邪恶势力战斗，维护中国人的安全和人权！
@@ -155,13 +162,6 @@ Mr. Bannon 100% agree that the Wall Street has provided the capital from the pen
 
 2/25/2022 Miles Guo: Why does UBS prevent the case I brought from being admitted to court? The UBS case is absolutely a breakthrough in revealing the collusion between the evil Swamp in the West and the CCP. A deputy governor of the People's Bank of China attempted to persuade me not to sue UBS.<br/><br/>2/25/2022 文贵直播：为什么瑞银UBS百般阻挠不让上庭？UBS案绝对是打开西方黑暗沼泽地和中共勾兑的一道口子；中共人民银行的一位副行长竟充当说客劝说文贵不告UBS<br/>
 ![img](https://media.gettr.com/group50/getter/2022/02/26/04/72294058-2a4b-5769-0baa-b9cba4d8279d/out.jpg)
-
----
-
-`@miles 2/26/2022 4:02 AM (UTC)`
-
-2/25/2022 Miles Guo: Why do Putin and Xi Jinping want to start the war? The fundamental reason is that they are not in good health and are under huge pressure from political infightings and the economy. The coronavirus and the COVID vaccines are premeditated and perfect means to commit genocide and to start the WWIII.<br/><br/>2/25/2022 文贵直播：普京和习近平为什么干这票？根本原因是他俩身体都不行了，而且内部政治和经济压力山大；冠状病毒和疫苗灾难是蓄谋已久的完美种族大屠杀，开启了第三次世界大战！<br/>
-![img](https://media.gettr.com/group25/getter/2022/02/26/04/1b6871f0-be52-9381-db91-aa555c17883d/out.jpg)
 
 ---
 

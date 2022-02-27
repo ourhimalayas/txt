@@ -2,38 +2,38 @@
 ---
 
 
-## 有声|美国驱逐俄驻美第二号外交官
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072167/)
+## 乌克兰副总理请求苹果和谷歌停止在俄服务 希望马斯克提供星链服务
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2072254/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月24日，据相关媒体报道，美国国务院发言人当天发布声明表示，美国将驱逐俄罗斯驻美国大使馆的第二号外交官，用以回击俄罗斯本月驱逐美国驻莫斯科副大使的做法。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-10.jpeg)
-国务院的一位高级官员指出，此举并不属于美国制裁俄罗斯入侵乌克兰行动的一部分，而是华盛顿与莫斯科之间长期有关大使馆人员配备争端中的一环。
+撰稿：东京樱花团/盖特第一批注册
 
-据了解，本月早些时候，莫斯科当局无端要求美国驻俄罗斯副大使巴特-戈尔曼离境。对此，该高级官员强调，由于目前乌克兰紧张的局势，美俄关系近期极具下降，虽然美国仍然认为双方保持外交可以有助于两国之间的沟通，但美国绝不允许俄罗斯随意驱逐美国驻当地的外交代表。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/乌克兰副总理请求苹果和谷歌停止在俄服务-希望马斯克提供星链服务.jpg)[图片来源](https://dime.jp/genre/1168939/)
 
+乌克兰副总理费多罗夫2月26日在推特上表示，他已要求苹果公司首席执行官蒂姆-库克停止在俄罗斯提供产品和服务。
 
+费多罗夫说：“现代技术是对付坦克、火箭和导弹的最佳对策之一。我已经要求几家科技巨头帮助我们阻止来自俄罗斯联邦的这种无耻的攻击。”
 
-文字版原文：[美国驱逐俄驻美第二号外交官](https://gnews.org/zh-hans/2070622/)
+他在推特上说，他已经向谷歌、Netflix和YouTube（谷歌拥有的）提出了类似请求。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+在给SpaceX首席执行官埃隆-马斯克的推文中，他呼吁马斯克通过Starlink向乌克兰提供卫星宽带。“ 你们在试图殖民火星，俄罗斯在试图占领乌克兰!　SpaceX的火箭正在进行成功的太空飞行，但俄罗斯的火箭正在攻击乌克兰公民！”
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+马斯克先生在大约10小时后回复说：“我们已经在乌克兰建立了星际链接并运行”。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+YouTube告诉路透社，它已经暂停了几个俄罗斯频道的广告收入功能。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+Meta（原Facebook）安全政策主管26日在推特上表示，该公司已暂停俄罗斯国家媒体在其平台上的广告收入。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+推特公司26日表示已经停止在俄罗斯创建新账户。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+目前还没有关于苹果、谷歌或Netflix任何行动的具体报道。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+信息源：
 
+[ウクライナ副首相、AppleやGoogleにロシアでのサービス停止を、マスク氏にはStarlinkを要請](https://news.yahoo.co.jp/articles/cddc1981deff522652395b41d4e1d622aed58bfb)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

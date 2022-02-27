@@ -2,29 +2,37 @@
 ---
 
 
-## 美欧发布声明 将俄罗斯几家特定银行移出SWIFT系统
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2072292/)
+## 跟随欧盟，瑞士制裁俄罗斯银行和政客
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2072337/)
 
-**日本东京方舟农场 Kevin wang**
+**整理：Little lamp
+编辑：文泓**
 
-2月26日，美国与欧盟等西方国家发布联合声明称，将对俄罗斯实施最为严厉的制裁和经济限制政策，将把俄罗斯几家特定银行从SWIFT国际结算系统中移除。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据中央社报道，该声明表示，盟国决心让俄罗斯付出代价，因此决定将在未来数天内，将几家特定俄罗斯银行从SWIFT系统剔除，确保这些银行与国际金融体系断开，以损害这些银行在全球的营运能力。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2527.png)图片来源：oakmarkglobalvision & 雅典娜设计组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-2-8.jpeg)（图片来自网络）
 
-此外，欧美国家承诺将对俄罗斯中央银行采取限制措施，以防止俄中央银行透过国际储备破坏西方国家的制裁影响力。并将在未来一周启动一个跨大西洋特别工作小组，以查明与冻结管辖范围内的受制裁个人与企业资产，确保金融制裁有效施行。
+当地时间周四，瑞士联邦主席伊格纳齐奥·卡西斯在新闻发布会上宣布：瑞士将对三家俄罗斯银行实施金融制裁，并对361名俄罗斯国家杜马代表实施旅行限制。
 
-该声明还承诺将对与俄政府关系密切的个人与实体采取限制措施，包括限制所谓的黄金护照，让与俄政府关系密切的俄罗斯富豪无法成为欧美国家公民，并阻止其进入欧美国家金融系统。
+他没有提供有关目标银行的详细信息，但他表示：因为是乌克兰危机，伯尔尼将加强其在2014年对俄罗斯实施的强制措施。
 
-截至目前，美欧等国并未公布被SWIFT系统移除的俄罗斯特定银行名单。
+“出于中立的原因，瑞士当时没有直接采取制裁措施。今天，政府加大了应对力度……昨天发布的欧盟制裁将以反规避措施的形式纳入该条例，尤其是在金融领域，个别措施将收紧。”卡西斯解释说。
 
-参考链接：
-[https://www.cna.com.tw/news/aopl/202202275002.aspx](https://www.cna.com.tw/news/aopl/202202275002.aspx)
+他补充说，政府将调整其法规，使瑞士不能被用来规避欧盟对俄罗斯实施的制裁，原则上将采用欧盟制裁的人员名单。
 
-素材采编：Kevin wang
-编辑： 老孙
-发布：文曦
+根据国际法，瑞士有义务执行联合国安理会实施的制裁。
+
+**参考链接：**[Switzerland sanctions Russian banks, politicians — RT Business News](https://www.rt.com/business/550522-switzerland-sanctions-russian-banks-politicians/)
+
+*发布：玉米地守望者*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
