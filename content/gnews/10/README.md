@@ -2,48 +2,40 @@
 ---
 
 
-## 聚焦：乌克兰台海危机助攻美国减债和振兴（上）
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2072343/)
+## 乌克兰激烈抵抗俄军再次轰炸基辅
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2072426/)
 
-作者：丁过
+##### 整理：围剿维尼熊
+编辑：Mttfly
 
-编辑与校对：冰糖葫芦喵
+**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/基辅周六.jpg)星期六，一名乌克兰士兵在基辅的一条街道上走过，一辆军用卡车的残骸还在燃烧。图片：Efrem Lukatsky / AP &雅典娜设计组
+根据纽约时报中文网2月27日报道，俄罗斯入侵乌克兰的战事进入第三天，乌克兰国防军和平民志愿者与俄军在街头展开激烈战斗。
 
-著名经济学家、德国马普学院公共财政研究所所长康拉德指出，一个国家的负债越多，借助通货膨胀来减轻债务负担的吸引力就越大。
+周六晚，俄罗斯军队再次轰炸乌克兰首都基辅，此前双方武装在该市周围已经进行了一天的激战。美国官员表示，集结在乌克兰周围的逾15万俄罗斯军队中的大多数现在都在该国作战，但这些部队面临着乌克兰的顽强抵抗。
 
-假如通货膨胀率提高两个百分点，那么这个国家的债务负担就能减轻大约10%。康拉德说，这个手段对于一个政府来说是有多么诱人！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-19.jpg)图片来源：DW.
-当今世界几乎所有的国家都深陷于债务漩涡中无法自拔，以美国为例，至去年底联邦债务逼近30万亿美元，与GDP之比高达130%，远高于60%的安全线，去年用于支付国债利息的支出竟高达4214亿美元。
+美国和主要欧洲盟友周六宣布，它们将把某几家俄罗斯银行从SWIFT金融信息系统中移除，基本上禁止它们进行国际交易。
 
-欧盟、日本等主要经济体的债务状况比美国更严重。
+据乌克兰国民警卫队称，俄罗斯军队已造成至少198人死亡，其中包括三名儿童，另有包括33名儿童在内的1115人受伤。
 
-美国自50年代开始出现政府支出大于收入的结构性问题，债务率不断上升表明收支失衡的状况越来越严重。
+根据联合国的数据，本周有超过15万难民逃离乌克兰，其中许多人正前往波兰边境口岸。
 
-两年多以来中共病毒肆虐又加重了全球的债务危机。
+周六，抗议者在世界各地聚集支持乌克兰，并呼吁俄罗斯停止入侵。在圣彼得堡，俄罗斯警方本周拘留了数百名抗议者。
 
-还是用数据来涚话：2月10日，美国劳工部（BLS）发布的数据显示，美国2022年1月CPI同比上涨7.5%，创40年以来的新高，CPI连续第二个月突破7%。
+谷歌旗下的YouTube周六表示，将暂停今日俄罗斯(RT)和其他俄罗斯国有媒体在其频道上销售广告。
 
-对于债券、证券、现金持有者而言，这样的严重通胀无异于被洗劫，但这丝毫不影响美国纵容通胀的行动。
+Twitter表示，它正限制对俄罗斯的一些人提供服务。
 
-众所周知，美联储吸取2008年次贷危机的教训，于2012年实行2%的“对称式通胀目标”，其中的要害就是要将通胀控制在2%以内，即在通胀率达到2%目标区间时，美联储启动政策工具进行加息或减少货币供应量来控制通胀。
+参考链接：[乌克兰最新战局：俄军再次轰炸基辅，遭遇激烈抵抗](https://cn.nytimes.com/world/20220227/ukrainian-forces-fight-back-as-russia-pushes-on-three-cities/)
 
-但是，在2020年的全球央行年会上，[美联](http://quote.eastmoney.com/us/METX.html?Market=NASDAQ)储主席鲍威尔宣布正式引入“平均通胀目标”，简单说就是美联储在“一段时间内”允许通胀率超出2%。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/0_202007220805311Z3QB.jpg)美联储（图片来源:网络）
-其深层原因就是美联储需要通过纵容通胀来为美国政府减轻债务负担。当然，私营部门的债务负担也很大，也需要稀释，股市也需要通胀环境。
+*发布：Mttfly*
 
-回顾历史，总是看到美国是天生的战略高手：二战后美国就成功地通过一种经济强劲增长和较高
-
-而乌克兰战争和即将爆发的台海战争，为美国减轻债务和重新振兴提供了契机，美国不会浪费这样的宝贵机会。
-
-**新闻链接：**
-
-[https://www.dw.com/zh/%E6%B0%B8%E6%81%92%E8%AF%B1%E6%83%91%E5%9B%BD%E5%AE%B6%E6%80%8E%E6%A0%B7%E5%88%A9%E7%94%A8%E9%80%9A%E8%83%80%E6%9D%A5%E5%87%8F%E5%80%BA/a-16292178](https://www.dw.com/zh/%E6%B0%B8%E6%81%92%E8%AF%B1%E6%83%91%E5%9B%BD%E5%AE%B6%E6%80%8E%E6%A0%B7%E5%88%A9%E7%94%A8%E9%80%9A%E8%83%80%E6%9D%A5%E5%87%8F%E5%80%BA/a-16292178)
-
-[https://www.bbc.com/zhongwen/simp/business-60345552](https://www.bbc.com/zhongwen/simp/business-60345552)
-
-[https://www.reuters.com/article/graphic-ukraine-russia-crisis-market-022-idCNKBS2KQ071](https://www.reuters.com/article/graphic-ukraine-russia-crisis-market-022-idCNKBS2KQ071)
-
-[https://3g.163.com/dy/article/H08SHV6J05509P99.html?referFrom=google&spss=adap\_dy](https://3g.163.com/dy/article/H08SHV6J05509P99.html?referFrom=google&amp;spss=adap_dy)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

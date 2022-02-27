@@ -15,116 +15,116 @@
 
 ---
 
-### [日本海运商船将暂停乌克兰海域港口停靠](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [中国人人心的冷漠超过CCP的邪恶](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [美欧多国发表联合声明 将俄罗斯踢出SWIFT系统](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [2/27 银河快讯: 日本政府定性俄军为“侵略”；日本企业担忧连锁报复](/content/gnews/2/README.md)
+ ` 日本银河系农场-阿尔法星球`
 
-### [乌克兰激烈抵抗俄军再次轰炸基辅](/content/gnews/3/README.md)
+### [爱尔兰宣布取消对乌克兰人的签证要求](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2/26/2022 文贵紧急直播：帕劳是个非常好的营救台湾战友和同胞的一个基地；大家要听从统一安排，遵守国际营救规则](/content/gnews/4/README.md)
- ` 秘密翻译组-北美组`
+### [世界各地成千上万的抗议者站出来表达对乌克兰人民的支持](/content/gnews/4/README.md)
+ ` 波士顿五月花农场金融部`
 
-### [日本数千人举行反战集会 抗议俄罗斯入侵乌克兰](/content/gnews/5/README.md)
+### [【秘翻在线】俄军不仅袭击了一个民用油库还炸毁了一条天然气管道](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [战争已经开始文贵给西方世界的警告](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [日本海运商船将暂停乌克兰海域港口停靠](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [联俄两线开火各取所需 中共加速全球自动灭共进程（六）](/content/gnews/6/README.md)
+### [美欧多国发表联合声明 将俄罗斯踢出SWIFT系统](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2/26/2022 文贵紧急直播：新中国联邦致力于维护中国人善良、勇敢和爱好和平的形象](/content/gnews/7/README.md)
- ` 秘密翻译组-北美组`
-
-### [文贵紧急直播（乌克兰救援）要点（2022年2月26日）](/content/gnews/8/README.md)
- ` 波士顿五月花农场`
-
-### [港共抗疫灾不断！香港疫情单日确诊连破万](/content/gnews/9/README.md)
+### [聚焦：乌克兰台海危机助攻美国减债和振兴（下）](/content/gnews/9/README.md)
  ` 蓝莲花农场`
 
-### [聚焦：乌克兰台海危机助攻美国减债和振兴（上）](/content/gnews/10/README.md)
- ` 蓝莲花农场`
-
-### [中共习近平和俄罗斯普京通话](/content/gnews/11/README.md)
- ` GTV News Talk`
-
-### [跟随欧盟，瑞士制裁俄罗斯银行和政客](/content/gnews/12/README.md)
+### [乌克兰激烈抵抗俄军再次轰炸基辅](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新中国联邦国际救缓部署，文贵先生紧急直播之要点](/content/gnews/13/README.md)
- ` 纽约香草山MOS02`
+### [2/26/2022 文贵紧急直播：帕劳是个非常好的营救台湾战友和同胞的一个基地；大家要听从统一安排，遵守国际营救规则](/content/gnews/11/README.md)
+ ` 秘密翻译组-北美组`
 
-### [10万乌克兰人逃离家园 德国正准备接收难民](/content/gnews/14/README.md)
+### [日本数千人举行反战集会 抗议俄罗斯入侵乌克兰](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [从喜剧演员到民族英雄 泽连斯基在战火中转身](/content/gnews/15/README.md)
+### [联俄两线开火各取所需 中共加速全球自动灭共进程（六）](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美欧发布声明 将俄罗斯几家特定银行移出SWIFT系统](/content/gnews/16/README.md)
- ` 日本东京方舟农场`
-
-### [美英欧盟：同意将俄罗斯主要银行从SWIFT剔除](/content/gnews/17/README.md)
- ` 日本东京方舟农场`
-
-### [乌克兰首都发生激烈交火 俄罗斯否决安理会撤军决议](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [大直播后记：新中国联邦的币就是人心币和良心币](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [大直播后记：未来新中国联邦的灭共实力](/content/gnews/20/README.md)
- ` 雅典娜GNotes`
-
-### [有声|面对](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [有声|温哥华发生两名华人遇害事件](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [有声|美国驱逐俄驻美第二号外交官](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [2022年2月27日《樱花简报》：日本第六轮疫情恐致5500余人死亡](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [20220225文贵大直播：新中国联邦给的财富是让人看清真相解决贪嗔痴慢疑](/content/gnews/25/README.md)
- ` Tokyo Sakura Video Group`
-
-### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/26/README.md)
- ` 纽约香草山MOS02`
-
-### [新中国联邦对在乌中国同胞和美国友人展开紧急救援](/content/gnews/27/README.md)
- ` 日本东京方舟农场`
-
-### [俄罗斯威胁芬兰和瑞典:若加入北约可能面临严重后果](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [德国向基辅交付 1000 枚反坦克武器和 500 枚毒刺导弹](/content/gnews/29/README.md)
- ` Shuizhuyu`
-
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月26日早](/content/gnews/30/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年2月26日晚](/content/gnews/14/README.md)
  ` 纽约香草山MOS01`
 
-### [关于俄罗斯-乌克兰的话题（持续更新中）](/content/gnews/31/README.md)
+### [2/26/2022 文贵紧急直播：新中国联邦致力于维护中国人善良、勇敢和爱好和平的形象](/content/gnews/15/README.md)
+ ` 秘密翻译组-北美组`
+
+### [文贵紧急直播（乌克兰救援）要点（2022年2月26日）](/content/gnews/16/README.md)
+ ` 波士顿五月花农场`
+
+### [中共习近平和俄罗斯普京通话](/content/gnews/17/README.md)
+ ` GTV News Talk`
+
+### [跟随欧盟，瑞士制裁俄罗斯银行和政客](/content/gnews/18/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [新中国联邦国际救缓部署，文贵先生紧急直播之要点](/content/gnews/19/README.md)
+ ` 纽约香草山MOS02`
+
+### [10万乌克兰人逃离家园 德国正准备接收难民](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [从喜剧演员到民族英雄 泽连斯基在战火中转身](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美欧发布声明 将俄罗斯几家特定银行移出SWIFT系统](/content/gnews/22/README.md)
+ ` 日本东京方舟农场`
+
+### [美英欧盟：同意将俄罗斯主要银行从SWIFT剔除](/content/gnews/23/README.md)
+ ` 日本东京方舟农场`
+
+### [有声|面对](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [有声|温哥华发生两名华人遇害事件](/content/gnews/25/README.md)
+ ` MOSREC`
+
+### [有声|美国驱逐俄驻美第二号外交官](/content/gnews/26/README.md)
+ ` MOSREC`
+
+### [2022年2月27日《樱花简报》：日本第六轮疫情恐致5500余人死亡](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [20220225文贵大直播：新中国联邦给的财富是让人看清真相解决贪嗔痴慢疑](/content/gnews/28/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/29/README.md)
+ ` 纽约香草山MOS02`
+
+### [新中国联邦对在乌中国同胞和美国友人展开紧急救援](/content/gnews/30/README.md)
+ ` 日本东京方舟农场`
+
+### [德国向基辅交付 1000 枚反坦克武器和 500 枚毒刺导弹](/content/gnews/31/README.md)
+ ` Shuizhuyu`
+
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月26日早](/content/gnews/32/README.md)
+ ` 纽约香草山MOS01`
+
+### [关于俄罗斯-乌克兰的话题（持续更新中）](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [G教育——替天行教](/content/gnews/32/README.md)
+### [G教育——替天行教](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`
 
-### [【转】2/25日止，俄乌开战要闻简报实况](/content/gnews/33/README.md)
+### [【转】2/25日止，俄乌开战要闻简报实况](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022年2月26日，全球中共病毒疫情情况汇总](/content/gnews/34/README.md)
+### [2022年2月26日，全球中共病毒疫情情况汇总](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [灾难！尽管意大利疫苗接种率极高，但是其新冠病毒死亡率位居欧洲第二](/content/gnews/35/README.md)
+### [灾难！尽管意大利疫苗接种率极高，但是其新冠病毒死亡率位居欧洲第二](/content/gnews/37/README.md)
  ` xiaobaige`
-
-### [2022.2.26大直播 郭先生谈对新中国联邦教育的设想](/content/gnews/36/README.md)
- ` 秘密翻译组-原创组`
-
-### [追述台海两岸关系的变迁](/content/gnews/37/README.md)
- ` NFSC News`
 
 ### [中日财经爆┃“作恶”被官司缠身！脸书裁撤核心技术团队](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

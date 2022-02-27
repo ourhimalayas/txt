@@ -2,30 +2,14 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月26日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2071104/)
+## 新中国联邦对在乌中国同胞和美国友人展开紧急救援
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2071995/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-2.png)
+**撰稿：日本东京方舟农场 文顺**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-26.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.02.26早 《NFSC新闻》](https://gtv.org/video/id=621a2b1208ba8a07b1a3edd2)
-[2022.02.26早 G|TV《新闻访谈》](https://gtv.org/video/id=621a32f008ba8a07b1a3fa0d)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-5.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+2月26日，郭文贵先生在紧急直播中宣布，新中国联邦将与联合国救援组织一道，对在乌中国同胞和美国友人展开紧急救援，第一批救援将派出2驾运输机赴乌，后将陆续派出10驾飞机。本次行动由法制基金、法治社会发起，不涉及政治立场，无政治角色，并展开以中国同胞、美国友人为优先的无区别救助。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/捕获-3.png)
+信息来源：[https://www.gettr.com/streaming/px2p2d8aec](https://www.gettr.com/streaming/px2p2d8aec)
 
  
 

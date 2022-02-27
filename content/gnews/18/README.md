@@ -2,28 +2,38 @@
 ---
 
 
-## 乌克兰首都发生激烈交火 俄罗斯否决安理会撤军决议
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2072269/)
+## 跟随欧盟，瑞士制裁俄罗斯银行和政客
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2072337/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/02/乌克兰首都发生激烈交火-俄罗斯否决安理会撤军决议-.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fmcs%2Fmedia%2Fimages%2F73993000%2Fjpg%2F_73993480_73993479.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fnews%2Fworld-europe-26868119&amp;tbnid=JsPAEBZUVAalgM&amp;vet=12ahUKEwiQi6HE6)
-乌克兰首都基辅2月26日爆发多起战斗，且在一夜之间加剧。在基辅东郊圣三一主教堂地区也发生了激烈战斗。
+**整理：Little lamp
+编辑：文泓**
 
-乌克兰国家通讯局在脸书上写道，乌军正试图击退俄军的攻击。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-乌媒体《基辅独立报》也报道说，在基辅的贝雷斯特斯卡地铁站附近发生了激烈的枪战。数千名居民在防空洞和地铁站过夜。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2527.png)图片来源：oakmarkglobalvision & 雅典娜设计组
 
-另外乌克兰军方表示，已击落一架载有伞兵的俄伊尔-76运输机。乌方声称，这是对2014年一架载有乌克兰伞兵的飞机在卢甘斯克机场被击落的报复。
 
-俄军方未对该事件进行评论。联合国安理会在纽约时间周五（2月25日）未能通过一项谴责俄罗斯入侵乌克兰并要求其无条件撤军的决议草案。作为安理会五个常任理事国之一的俄罗斯使用了否决权来阻止该决议。中共国、阿联酋和印度投了弃权票。其余11个安理会成员投了赞成票。在投票前，美国预期该决议不会通过，这将凸显目前俄罗斯在国际上被孤立。
+当地时间周四，瑞士联邦主席伊格纳齐奥·卡西斯在新闻发布会上宣布：瑞士将对三家俄罗斯银行实施金融制裁，并对361名俄罗斯国家杜马代表实施旅行限制。
 
-信息来源：
+他没有提供有关目标银行的详细信息，但他表示：因为是乌克兰危机，伯尔尼将加强其在2014年对俄罗斯实施的强制措施。
 
-[乌克兰首都传激烈枪战 俄罗斯否决安理会决议](https://www.dw.com/zh/%E7%83%8F%E5%85%8B%E8%98%AD%E9%A6%96%E9%83%BD%E5%82%B3%E6%BF%80%E7%83%88%E6%A7%8D%E6%88%B0-%E4%BF%84%E7%BE%85%E6%96%AF%E5%90%A6%E6%B1%BA%E5%AE%89%E7%90%86%E6%9C%83%E6%B1%BA%E8%AD%B0/a-60925415)
+“出于中立的原因，瑞士当时没有直接采取制裁措施。今天，政府加大了应对力度……昨天发布的欧盟制裁将以反规避措施的形式纳入该条例，尤其是在金融领域，个别措施将收紧。”卡西斯解释说。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+他补充说，政府将调整其法规，使瑞士不能被用来规避欧盟对俄罗斯实施的制裁，原则上将采用欧盟制裁的人员名单。
+
+根据国际法，瑞士有义务执行联合国安理会实施的制裁。
+
+**参考链接：**[Switzerland sanctions Russian banks, politicians — RT Business News](https://www.rt.com/business/550522-switzerland-sanctions-russian-banks-politicians/)
+
+*发布：玉米地守望者*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
