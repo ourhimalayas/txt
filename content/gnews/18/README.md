@@ -2,8 +2,8 @@
 ---
 
 
-## 20220225文贵大直播：3月1日人民币5万限制的根本原因就是喜币喜联储
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2071988/)
+## 20220225文贵大直播：全球战友的联合作战是一场演习 展示了我们新中国联邦的雏形
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2071999/)
 
 作者:东京樱花团小视频组
 

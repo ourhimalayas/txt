@@ -2,8 +2,8 @@
 ---
 
 
-## 20220225文贵大直播：全球战友的联合作战是一场演习 展示了我们新中国联邦的雏形
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2071999/)
+## 20220225文贵大直播：这次是海洋文明与陆地文明的再一次重创与PK！
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2072013/)
 
 作者:东京樱花团小视频组
 

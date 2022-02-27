@@ -15,74 +15,74 @@
 
 ---
 
-### [父母就是第一个被孩子超越的人（二）](/content/gnews/1/README.md)
+### [大直播后记：中共可能对台湾围而不打](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [父母就是第一个被孩子超越的人（一）](/content/gnews/2/README.md)
+### [大直播后记：战争疫苗灾难恶性通胀，民不聊生导致排华](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [2022年2月27日《樱花简报》：日本第六轮疫情恐致5500余人死亡](/content/gnews/3/README.md)
+### [父母就是第一个被孩子超越的人（二）](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [父母就是第一个被孩子超越的人（一）](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [2022年2月27日《樱花简报》：日本第六轮疫情恐致5500余人死亡](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥隐居山林就是全心搞教育](/content/gnews/4/README.md)
+### [七哥隐居山林就是全心搞教育](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [GEDU是国际化教育](/content/gnews/5/README.md)
+### [GEDU是国际化教育](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [GEDU没有任何利益谋图之心](/content/gnews/6/README.md)
+### [GEDU没有任何利益谋图之心](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [GEDU教育基金](/content/gnews/7/README.md)
+### [GEDU教育基金](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [GEDU校长和老师的福利待遇](/content/gnews/8/README.md)
+### [GEDU校长和老师的福利待遇](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [20220225文贵大直播：新中国联邦给的财富是让人看清真相解决贪嗔痴慢疑](/content/gnews/9/README.md)
+### [20220225文贵大直播：新中国联邦给的财富是让人看清真相解决贪嗔痴慢疑](/content/gnews/11/README.md)
  ` Tokyo Sakura Video Group`
 
-### [老师是替天行道者](/content/gnews/10/README.md)
+### [老师是替天行道者](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [行政管理和教育团队必须分离](/content/gnews/11/README.md)
+### [行政管理和教育团队必须分离](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [20220225文贵大直播：世界的动荡将导致与法币共存的区域数字货币](/content/gnews/12/README.md)
+### [20220225文贵大直播：世界的动荡将导致与法币共存的区域数字货币](/content/gnews/14/README.md)
  ` Tokyo Sakura Video Group`
 
-### [找到稳定校长和老师](/content/gnews/13/README.md)
+### [找到稳定校长和老师](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [20220225文贵大直播：这次是海洋文明与陆地文明的再一次重创与PK！](/content/gnews/14/README.md)
+### [20220225文贵大直播：这次是海洋文明与陆地文明的再一次重创与PK！](/content/gnews/16/README.md)
  ` Tokyo Sakura Video Group`
 
-### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/15/README.md)
+### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [20220225文贵大直播：全球战友的联合作战是一场演习 展示了我们新中国联邦的雏形](/content/gnews/16/README.md)
+### [20220225文贵大直播：全球战友的联合作战是一场演习 展示了我们新中国联邦的雏形](/content/gnews/18/README.md)
  ` Tokyo Sakura Video Group`
 
-### [新中国联邦对在乌中国同胞和美国友人展开紧急救援](/content/gnews/17/README.md)
+### [新中国联邦对在乌中国同胞和美国友人展开紧急救援](/content/gnews/19/README.md)
  ` 日本东京方舟农场`
 
-### [20220225文贵大直播：3月1日人民币5万限制的根本原因就是喜币喜联储](/content/gnews/18/README.md)
+### [20220225文贵大直播：3月1日人民币5万限制的根本原因就是喜币喜联储](/content/gnews/20/README.md)
  ` Tokyo Sakura Video Group`
 
-### [必须立即在财政和外交上切断俄罗斯](/content/gnews/19/README.md)
+### [必须立即在财政和外交上切断俄罗斯](/content/gnews/21/README.md)
  ` 美国政要直译推`
 
-### [20220225文贵大直播： 人民币五万限制导致破窗效应](/content/gnews/20/README.md)
+### [20220225文贵大直播： 人民币五万限制导致破窗效应](/content/gnews/22/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220225文贵大直播：中共对台湾很可能是“围而不打”](/content/gnews/21/README.md)
- ` Tokyo Sakura Video Group`
-
-### [俄乌快讯：德国和西方盟友同意将俄罗斯踢出SWIFT系统](/content/gnews/22/README.md)
+### [俄乌快讯：德国和西方盟友同意将俄罗斯踢出SWIFT系统](/content/gnews/23/README.md)
  ` 蓝莲花农场`
-
-### [文贵先生直播—GEDU专场重点大纲](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [俄罗斯威胁芬兰和瑞典:若加入北约可能面临严重后果](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
