@@ -2,15 +2,31 @@
 ---
 
 
-## 关于俄罗斯-乌克兰的话题（持续更新中）
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2071068/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月26日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2071104/)
 
-#### 采集：瑞 H
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-2.png)
 
-#### 发布：白夜
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-26.png)
+文章仅代表作者本人观点，与Gnews无关
 
-##### 得道多助，失道寡助，从国际社会几乎一边倒地俄罗斯的谴责，对乌克兰的同情和支持，我们可以看到，集权政府的末日已经来临，和平平等的新秩序即将开启！战友们一定要保护好自己，安全地度过这黎明前的黑暗！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16459021861.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/5e3ceece5b34b55194246a52cfb8aef.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459022741.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459023271.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459061441.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459061921.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459063931.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459064691.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459064891.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459065201.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459065581.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459065911.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459067291.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459101271.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459106111.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459106431.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459106941.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459107401.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459107931.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459108071.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459108381.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459109261.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459109521.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459109821.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459112811.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459113081.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459113301.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459113481.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16459113781.png)![](https://gnews.org/e39ea185-c622-4e71-a005-49bd61eb3982)
+视频参看：
+[2022.02.26早 《NFSC新闻》](https://gtv.org/video/id=621a2b1208ba8a07b1a3edd2)
+[2022.02.26早 G|TV《新闻访谈》](https://gtv.org/video/id=621a32f008ba8a07b1a3fa0d)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-5.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

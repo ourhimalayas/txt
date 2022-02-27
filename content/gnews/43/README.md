@@ -2,28 +2,35 @@
 ---
 
 
-## 美国正考虑将俄罗斯从SWIFT支付系统中剔除
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2069941/)
+## 俄罗斯入侵，数千乌克兰人踊跃应征入伍：&#8221;乌克兰绝不跪下“
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2070023/)
 
-**撰稿：日本东京方舟农场 海星**
+翻译：不要代表我Kari
+校对：小熊
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-26.png)
+据报道，在乌克兰中部城镇曼基夫卡，数百人在市政厅外排队入伍。为应对俄罗斯入侵，乌克兰最近禁止 18 至 60 岁的男性离开该国，但尚未颁布军事征兵令。 据一份报告称，成千上万的民众争先恐后应征入伍，准备为保卫家园而战。
 
-2月26日，有知情人士透露，美国拜登政府正在考虑将俄罗斯从环球银行金融电信协会（SWIFT）支付系统中剔除。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/009.jpg)（图片来源：路透社）
-据《自由时报》报导，有一位知情人士透露，美国拜登政府的官员目前正与监管机构联准会（Fed）商讨是否要将俄罗斯从SWIFT支付系统中剔除。此外，美国政府就该制裁方案也已经与欧盟委员会开始进行谈话。
+据美国国家公共电台NPR报道，在乌克兰中部城镇曼基夫卡的市政厅外能看到数百人正在排队。”乌克兰绝不跪下，”其中一名入伍者告诉该媒体。”我们会把这些混蛋赶出我们的土地”。
 
-知情人士指出，虽然从SWIFT中剔除俄罗斯的制裁方案一直飘忽不定，但随着俄罗斯对乌克兰的入侵范围日趋增加，这项制裁方案将很有可能会被实施。
+俄罗斯入侵乌克兰：实时更新
 
-稍早前，荷兰、加拿大总理以及英国国防大臣已公开表示，支持将俄罗斯从SWIFT中除名。
+报道称，另一名急于报名并于周五入伍的男子是沃洛迪米尔·奥梅利安Volodymyr Omelyan。”我不是天生的杀手，我从未梦想过成为那种人，”2016-2019年担任乌克兰基础设施部长的奥梅利安Omelyan告诉该媒体。奥梅利安说，他入伍主要是为了保护他的家人。他坚信，乌克兰人民将在卫国战中胜利。”我们一定会赢的，”他告诉美国国家公共电台NPR。
 
-据悉，SWIFT系统内拥有近1.1万成员，其中包括近300家俄罗斯银行。专门代理国际制裁事务的律师奥利维尔·多甘斯表示，俄罗斯因对外出口贸易额巨大而严重依赖SWIFT系统，若禁止其使用该系统，俄罗斯银行将会变得非常贫穷。
+驻扎在兹米伊岛Zmiinyi（又称蛇岛）的13名士兵遭遇了一艘俄罗斯军舰，他们的反抗更能完美诠释乌克兰部队的战斗精神。”俄罗斯军舰，去死吧”，其中一名卫兵朝军舰的方向怒吼，当时整个事件被全程直播。
 
-参考链接：
-1.[https://ec.ltn.com.tw/article/breakingnews/3842212](https://ec.ltn.com.tw/article/breakingnews/3842212)
-2. [https://chinese.aljazeera.net/behind-the-news/2022/2/23/%E7%A6%81%E7%94%A8swift%E7%BB%93%E7%AE%97%E7%B3%BB%E7%BB%9F%E4%B8%A2%E5%90%91%E4%BF%84%E7%BD%97%E6%96%AF%E7%9A%84%E6%A0%B8%E6%AD%A6%E5%99%A8](https://chinese.aljazeera.net/behind-the-news/2022/2/23/%E7%A6%81%E7%94%A8swift%E7%BB%93%E7%AE%97%E7%B3%BB%E7%BB%9F%E4%B8%A2%E5%90%91%E4%BF%84%E7%BD%97%E6%96%AF%E7%9A%84%E6%A0%B8%E6%AD%A6%E5%99%A8)
+乌克兰总统沃洛基米尔-泽伦斯基（Volodymyr Zelenskyy）周四晚间证实，13人最终全部阵亡。
 
-素材采编：海星
-编辑：老孙
-发布：Linda
+总统宣布，这13名士兵将获得 “乌克兰英雄 “的追授荣誉。
+
+原文链接：[https://www.foxnews.com/world/ukraine-army-enlist-russia-invasion](https://www.foxnews.com/world/ukraine-army-enlist-russia-invasion)
+
+发布：tianzhihuan
+
+更多资讯，请关注：[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

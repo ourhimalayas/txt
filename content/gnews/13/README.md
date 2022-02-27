@@ -2,14 +2,20 @@
 ---
 
 
-## 新中国联邦对在乌中国同胞和美国友人展开紧急救援
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2071995/)
+## 找到稳定校长和老师
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2072019/)
 
-**撰稿：日本东京方舟农场 文顺**
+#### 視頻剪輯: WinterGuo ；開智則立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蝸牛 ；牛魔王
+視頻定位：BENJ1；WEI
 
-2月26日，郭文贵先生在紧急直播中宣布，新中国联邦将与联合国救援组织一道，对在乌中国同胞和美国友人展开紧急救援，第一批救援将派出2驾运输机赴乌，后将陆续派出10驾飞机。本次行动由法制基金、法治社会发起，不涉及政治立场，无政治角色，并展开以中国同胞、美国友人为优先的无区别救助。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/捕获-3.png)
-信息来源：[https://www.gettr.com/streaming/px2p2d8aec](https://www.gettr.com/streaming/px2p2d8aec)
+*发布：陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

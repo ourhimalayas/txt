@@ -2,35 +2,29 @@
 ---
 
 
-## 俄罗斯入侵，数千乌克兰人踊跃应征入伍：&#8221;乌克兰绝不跪下“
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2070023/)
+## 俄罗斯趁势胁芬兰和瑞典 加入北约会有严重后果
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2070597/)
 
-翻译：不要代表我Kari
-校对：小熊
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-26.png)
-据报道，在乌克兰中部城镇曼基夫卡，数百人在市政厅外排队入伍。为应对俄罗斯入侵，乌克兰最近禁止 18 至 60 岁的男性离开该国，但尚未颁布军事征兵令。 据一份报告称，成千上万的民众争先恐后应征入伍，准备为保卫家园而战。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/03-4.png)
+[图片链接](https://news.yahoo.co.jp/articles/f9a2bc1c7ffea342ac7f127c5856349897b4007c/images/000)
 
-据美国国家公共电台NPR报道，在乌克兰中部城镇曼基夫卡的市政厅外能看到数百人正在排队。”乌克兰绝不跪下，”其中一名入伍者告诉该媒体。”我们会把这些混蛋赶出我们的土地”。
+俄罗斯以加入北约将威胁其安全为由全面入侵乌克兰，现在又威胁芬兰和瑞典如果加入北约将带来军事和政治的负面后果。
 
-俄罗斯入侵乌克兰：实时更新
+据福克斯新闻报道，俄罗斯外交部发言人在一次新闻发布会上说，“芬兰和瑞典正试图加入北约，并威胁到俄罗斯的安全”，“如果他们真的加入北约，就将面临严重的军事和政治后果”。
 
-报道称，另一名急于报名并于周五入伍的男子是沃洛迪米尔·奥梅利安Volodymyr Omelyan。”我不是天生的杀手，我从未梦想过成为那种人，”2016-2019年担任乌克兰基础设施部长的奥梅利安Omelyan告诉该媒体。奥梅利安说，他入伍主要是为了保护他的家人。他坚信，乌克兰人民将在卫国战中胜利。”我们一定会赢的，”他告诉美国国家公共电台NPR。
+俄罗斯外交部还通过推特警告说，“如果芬兰加入北约，它可能变得像乌克兰一样。”
 
-驻扎在兹米伊岛Zmiinyi（又称蛇岛）的13名士兵遭遇了一艘俄罗斯军舰，他们的反抗更能完美诠释乌克兰部队的战斗精神。”俄罗斯军舰，去死吧”，其中一名卫兵朝军舰的方向怒吼，当时整个事件被全程直播。
+在乌克兰事件之后，北欧和东欧国家得出结论，他们需要加入北约，以保护自己不受俄罗斯的影响。
 
-乌克兰总统沃洛基米尔-泽伦斯基（Volodymyr Zelenskyy）周四晚间证实，13人最终全部阵亡。
+信息源：
 
-总统宣布，这13名士兵将获得 “乌克兰英雄 “的追授荣誉。
+[ロシア、今度はフィンランドとスウェーデンを「強迫」…「NATOに加入すれば深刻な結果に」](https://news.yahoo.co.jp/articles/923b742e3bbf78775191af62b41f9d09fdb2eab5)
 
-原文链接：[https://www.foxnews.com/world/ukraine-army-enlist-russia-invasion](https://www.foxnews.com/world/ukraine-army-enlist-russia-invasion)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
 
-发布：tianzhihuan
-
-更多资讯，请关注：[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
