@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/27/2022 8:38 AM (UTC)`
+
+2/26/2022 Miles Guo:  Education is not the cornerstone of a country, but a means to differentiate humans from animals; GEDU education includes both online and offline courses, we do not indoctrinate, but create an environment for students to engage with people and the physical world<br/><br/>2/26/2022 文贵直播：教育不是国家的基石，而是区分人和动物的手段；GEDU教育包括线上和线下课程，我们没有灌输，而是为学生创造与人与物接触的环境<br/>
+![img](https://media.gettr.com/group9/getter/2022/02/27/08/99a1a710-2482-1a35-9e89-9efa238ed80f/out.jpg)
+
+---
+
+`@miles 2/27/2022 8:35 AM (UTC)`
+
+2/25/2022 Miles Guo: I will expose the collusion between the swamp and the CCP and the darkness of the global justice system by using the UBS case, and we will eradicate the CCP's greatest threat to Western pension funds and financial sectors. How can we return the $100 trillion from UBS to the Chinese people?<br/><br/>2/25/2022 文贵直播：文贵将用UBS案揭露沼泽地和中共的勾兑以及全球司法系统的黑幕，我们将铲除中共对西方养老金和金融的最大威胁；我们如何把UBS的100万亿美元还给中国人呢？<br/>
+![img](https://media.gettr.com/group37/getter/2022/02/27/08/08c667b4-d6be-892a-58aa-c9530f349f57/out.jpg)
+
+---
+
+`@miles 2/27/2022 8:32 AM (UTC)`
+
+2/26/2022 Miles Guo’s Urgent Livestream: Everyone participating in the Ukrainian rescue operation of the NFSC must be professional and responsive, and lay a good foundation for our NFSC to carry out international cooperations.<br/><br/>2/26/2022 文贵紧急直播：参与新中国联邦的乌克兰救援行动的所有人都要专业化、反应迅速，为我们新中国联邦在国际合作上打下良好的基础
+![img](https://media.gettr.com/group33/getter/2022/02/27/08/6ef9307a-0477-c529-9390-01a67ab99958/out.jpg)
+
+---
+
 `@miles 2/27/2022 7:11 AM (UTC)`
 
 2/26/2022 Miles Guo’s Urgent Livestream: At this time, our GNews, GTV, and Gettr's postings must be accurate; and we will save anyone as long as we can, but our NFSC citizens and our families and friends come first.<br/><br/>2/26/2022 文贵紧急直播：我们的这个时候的GNews的和GTV还有盖特的发文一定要准确；只要能救的，我们都会救，但新中国联邦和家人朋友是第一的。<br/>
@@ -137,29 +158,6 @@ Stop the War!
 
 2/25/2022 Miles Guo:  The CCP's 3 tactics to attack Taiwan: 1) the so-called Taiwanese representatives request the CCP to send troops to Taiwan to eradicate Taiwan's separatists; 2) "siege but not fight", leading to the collapse of Taiwan; and 3) quickly occupy Taiwan. It's time to end the Taiwan issue. Either the CCP will be destroyed, or Taiwan will be destroyed.<br/><br/>2/25/2022 文贵直播：中共打台湾的3招：1) 所谓台胞代表请求中共派兵到台湾铲除台独分子；2) 围而不打，让台湾崩溃；3) 迅速占岛；台湾问题到了了结的时候，要么中共被灭，要么台湾被灭<br/>
 ![img](https://media.gettr.com/group30/getter/2022/02/26/15/dfbfe113-7aa0-47ea-2dd8-cb76be04e57d/out.jpg)
-
----
-
-`@miles 2/26/2022 1:19 PM (UTC)`
-
-2022年2月26日 《文贵大直播—GEDU专场》
-![img](https://media.gettr.com/group45/origin/2022/02/26/12/eebbcb7f-ac02-bb5e-b2a0-a4f228e409c0/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 2/26/2022 12:59 PM (UTC)`
-
-Mr. Bannon 100% agree that the Wall Street has provided the capital from the pension funds of the American deplorable to the CCP through institutions like PAG Group. Miles is under constant attacks by the CCP's people in the US capital market, which is so ridiculous.<br/><br/>Miles’ bankruptcy will become international news, will be beyond finance and markets, and will have geopolitical implications. Miles has never wavered in support of the NFSC, the Whistleblower Movement, the Rule of Law Foundation & Society. Miles is the greatest defender of LaoBaixing in the world.<br/><br/>班农先生100%同意郭先生的观点，即华尔街向中共提供资本，这些资本来源于美国老百姓的养老基金，通过PAG集团这样的中共间谍机构源源不断地输送给中共。郭先生本人受到中共在美国资本市场里安插的人的持续攻击，这已经到了荒谬的地步。<br/><br/>郭先生的个人破产将成为国际新闻，将超越金融和市场层面，且会有地缘政治的影响。他从未动摇过对新中国联邦、爆料革命和法治基金、法治社会的支持，他是这个世界上老百姓最伟大的捍卫者。
-![img](https://media.gettr.com/group22/origin/2022/02/26/12/211874d2-6517-335b-c283-0a1c8b7e1047/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gmusic 2/26/2022 11:37 AM (UTC)`
-
-《小小尼莫音乐会》今天首播，主题歌是来自13岁小Helen的作品！<br/>高清Mv首发《Treasures》
-![img](https://media.gettr.com/group30/origin/2022/02/26/11/5504eee1-af58-e51f-b644-2d77ce2e162f/out.jpg)
 
 ---
 

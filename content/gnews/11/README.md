@@ -2,24 +2,26 @@
 ---
 
 
-## 新中国联邦的喜帀将要人民币的命
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2073166/)
+## 24日白宫网站发表制裁俄罗斯声明
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2073237/)
 
-撰稿：纽约香草山农场-恩永存
+撰稿：日本东京方舟农场-感谢郭叔
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
-郭文贵先生在2月25日大直播中向中共宣告，新中国联邦的喜币会要了人民币的命。
+2月24日，美国白宫网站发表声明称，针对俄罗斯发动的对乌克兰的战争，美国和盟国合作伙伴决定对俄罗斯施加严重而直接的经济制裁，包括全面的金融制裁和严格的出口管制。这将对俄罗斯如今单一的经济结构、脆弱的金融体系以及尖端技术的获取造成深远的影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2545.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2547.png)
 
-据郭先生透露，几个月前人民银行有人对他说，喜币只能偷人民币的小钱，不会造成人民币的致命伤害。但郭先生只是一笑了之，因为中共根本没有看到人民币面临的真正困境，以及喜币的真正优势。
+制裁措施主要包括：切断俄罗斯多家银行和金融机构与美国金融系统的联系，对俄罗斯精英及其家人的全面封锁制裁扩大了范围，制裁 24 名白俄罗斯个人和实体，限制在俄罗斯范围内使用美国原产软件、技术或设备，以及在外国生产的敏感美国技术。
 
-郭先生认为，中共加紧限制人民币的使用自由，逃窗效应一定会出现。钱是跟着人心走的，新中国联邦的喜币是人心币，中国人的钱只能来到喜币才是最佳选择，最终喜币会要了人民币的命。详情请看郭先生的爆料视频。
+声明认为，这些措施会增加俄罗斯继续进行战争的代价。
 
-新闻链接: [2/25/2022 Miles Guo](https://gettr.com/post/pwxhs34326)
+新闻链接:
+
+[FACT SHEET: Joined by Allies and Partners, the United States Imposes Devastating Costs on Russia](https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/24/fact-sheet-joined-by-allies-and-partners-the-united-states-imposes-devastating-costs-on-russia/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5-1-2.png)
 
-编辑/总编: 飞虹
+编辑/总编:飞虹
 
 校正/发稿：浪迹天涯
 

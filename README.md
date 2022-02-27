@@ -15,83 +15,83 @@
 
 ---
 
-### [20220226 文贵紧急直播：这场救援的目标不求名不求利只求能多救一个是一个](/content/gnews/1/README.md)
+### [20220226 文贵紧急直播：爆料革命发起的人道主义救援对日本三农场的要求](/content/gnews/1/README.md)
  ` Tokyo Sakura Video Group`
 
-### [台湾｜日本前首相安倍呼吁 美国应抛弃对台战略模糊的政策](/content/gnews/2/README.md)
- ` 關注組`
+### [大直播后记： 共产党的教育造假](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
 
-### [25日英美加表示继续加大对俄罗斯的制裁力度](/content/gnews/3/README.md)
+### [20220226 文贵紧急直播：救人是人性、人权的需要，不在乎谁是你的祖国，而在乎谁是你的同类](/content/gnews/3/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220226 文贵紧急直播：这场救援的目标不求名不求利只求能多救一个是一个](/content/gnews/4/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [中共国在乌留学生哭诉：请墙内“粉红”嘴下积德](/content/gnews/5/README.md)
  ` NFSC News`
 
-### [德国能源供应的困局](/content/gnews/4/README.md)
+### [大直播后记：七哥捐助过希望小学](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [中共火速建三堵墙，全力封杀“铁链女”事件](/content/gnews/7/README.md)
+ ` GTV News Talk`
+
+### [25日英美加表示继续加大对俄罗斯的制裁力度](/content/gnews/8/README.md)
+ ` NFSC News`
+
+### [德国能源供应的困局](/content/gnews/9/README.md)
  ` 澳喜特战旅Gnews`
 
-### [俄乌战争将影响全球粮食供应](/content/gnews/5/README.md)
+### [俄乌战争将影响全球粮食供应](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [24日白宫网站发表制裁俄罗斯声明](/content/gnews/6/README.md)
+### [24日白宫网站发表制裁俄罗斯声明](/content/gnews/11/README.md)
  ` NFSC News`
 
-### [大直播后记： 新中国联邦松绑全世界的教育](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [新西兰政府计划限制招收9年级以下国际学生](/content/gnews/8/README.md)
+### [新西兰政府计划限制招收9年级以下国际学生](/content/gnews/12/README.md)
  ` GTV News Talk`
 
-### [中共攻台的三个方案](/content/gnews/9/README.md)
+### [中共攻台的三个方案](/content/gnews/13/README.md)
  ` NFSC News`
 
-### [2/27/2022国内经济财经周报：怕挤兑，中共暂缓实施5万新政；化肥贵，今年春耕可否有保障？](/content/gnews/10/README.md)
+### [人类文明新的起点： GEDU教育系列横空出世](/content/gnews/14/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [2/27/2022国内经济财经周报：怕挤兑，中共暂缓实施5万新政；化肥贵，今年春耕可否有保障？](/content/gnews/15/README.md)
  ` 秘密翻译组金融团队`
 
-### [新中国联邦的喜帀将要人民币的命](/content/gnews/11/README.md)
+### [新中国联邦的喜帀将要人民币的命](/content/gnews/16/README.md)
  ` NFSC News`
 
-### [人类将经历大重组 正道主义将像太阳一样被世人接受](/content/gnews/12/README.md)
- ` NFSC News`
-
-### [大直播后记：G-Edu教育目标是找到好老师](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [最新动态：新中国联邦战时紧急救援的意义](/content/gnews/14/README.md)
- ` 澳喜农场`
-
-### [确诊人数激增，香港将实行大规模核酸检测](/content/gnews/15/README.md)
+### [确诊人数激增，香港将实行大规模核酸检测](/content/gnews/17/README.md)
  ` GTV News Talk`
 
-### [大直播后记：GEDU教育受到各界大力支持](/content/gnews/16/README.md)
+### [大修复 第3集](/content/gnews/18/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [大直播后记：GEDU教育受到各界大力支持](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [COVID-19 最新情报｜纽西兰高等法院煞停疫苗强制令：这是对人权的严重侵犯](/content/gnews/17/README.md)
+### [COVID-19 最新情报｜纽西兰高等法院煞停疫苗强制令：这是对人权的严重侵犯](/content/gnews/20/README.md)
  ` 關注組`
 
-### [日本开放外国人入境许可的网上申请](/content/gnews/18/README.md)
+### [日本开放外国人入境许可的网上申请](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [多国人权人士发起联署公开信 强烈要求取消彭丽媛联合国妇女特使称号](/content/gnews/19/README.md)
+### [多国人权人士发起联署公开信 强烈要求取消彭丽媛联合国妇女特使称号](/content/gnews/22/README.md)
  ` 日本东京方舟农场`
 
-### [“乌克兰人很无畏，他们没有退缩” 美国有线电视新闻网唐·雷檬对乌克兰士兵保卫黑海蛇岛免受俄罗斯军舰逼近的音频做出反应](/content/gnews/20/README.md)
+### [“乌克兰人很无畏，他们没有退缩” 美国有线电视新闻网唐·雷檬对乌克兰士兵保卫黑海蛇岛免受俄罗斯军舰逼近的音频做出反应](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共驻乌大使称撤侨还需等待 新中国联邦已启动救援计划](/content/gnews/21/README.md)
+### [中共驻乌大使称撤侨还需等待 新中国联邦已启动救援计划](/content/gnews/24/README.md)
  ` 日本東京方舟農場`
 
-### [有声|一号文件](/content/gnews/22/README.md)
+### [有声|一号文件](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [台湾｜中共频放高空气球穿过领空 台国防部表示正严密监控](/content/gnews/23/README.md)
+### [台湾｜中共频放高空气球穿过领空 台国防部表示正严密监控](/content/gnews/26/README.md)
  ` 關注組`
-
-### [有声|财富的意义在于回归本源](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [有声|自由之家预警 世界自由民主正在衰落](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [有声|中共国在乌留学生哭诉：请墙内五毛嘴下积德](/content/gnews/26/README.md)
- ` MOSREC`
 
 ### [俄乌战争｜英国王室罕有发表政治取态：“我们与乌克兰站在一起”](/content/gnews/27/README.md)
  ` 關注組`

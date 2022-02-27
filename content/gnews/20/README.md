@@ -2,167 +2,30 @@
 ---
 
 
-## “乌克兰人很无畏，他们没有退缩” 美国有线电视新闻网唐·雷檬对乌克兰士兵保卫黑海蛇岛免受俄罗斯军舰逼近的音频做出反应
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2073021/)
+## COVID-19 最新情报｜纽西兰高等法院煞停疫苗强制令：这是对人权的严重侵犯
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2073107/)
 
-[**https://gtv.org/video/id=621ac4714353d33974c2bdfc**](https://gtv.org/video/id=621ac4714353d33974c2bdfc)
+**撰文｜疫情关注组 / 发布时间｜27/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/紐西蘭高等法院煞停疫苗強制令-這是對人權的嚴重侵犯.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
 
-Don Lemon (CNN host)
-唐·雷檬（CNN主持人）
+纽西兰高等法院大法官弗朗西斯·库克周五（25日）对总理辛达·阿德恩（Jacinda Ardern）颁布的疫苗强制措施作出里程碑式裁定，判词指出，要求前线警员和国防部士兵必须接种 COVID-19 疫苗，违者将被解雇的决定显然违反了《权利法案》，库克法官形容，这一决定“严重侵犯人权”。
 
-Oren Liebermann, let me bring you back
-奥伦·利伯曼，重新加入进来
+纽西兰总理则表示对该判决感到极度“震惊”。
 
-Let me ask about with this audio tape
-让我问一下关于这个录音带（的事）
+早前，37名国防部士兵及警员联名撰写书面诉状，对政府当局向前线雇员下达的疫苗强制令的合法性提出质疑。安全部长 Michael Wood、副警务专员 Tania Kura 和 NZDF 首席人事官 Matthew Weston 向法院提交诉状并代为辩护。
 
-that has emerged purporting to be an exchange
-声称是守卫黑海岛屿的乌克兰士兵
+虽然库克法官未有接纳更为广泛的主张，但就他们根据《权利法案》下的第11及15条提出的申诉表示认同。库克法官提到：“疫苗强制令限制了《纽西兰权利法案》承认的自由拒绝医疗的权利（包括因为它限制了人们可继续就业的权利），并限制了那些拒绝接受治疗的人表达宗教信仰的权利。”
 
-between Ukrainian soldiers defending an island the Black Sea cussing at a Russian warship
-与俄罗斯军舰之间的交流
+他在判词中指出，“政府有义务接受一个人反对并拒绝接种疫苗，因为疫苗在人类胎儿（可能是流产胎儿）的细胞上进行了试验，这一做法显然违背了某些人的宗教信仰。另一方面，虽然政府并没有明确强逼警察和国防士兵违背自己的意愿接种疫苗，但拒绝疫苗等同放弃就业的关联，给他们个人意愿带来不少压力。”
 
-before being killed in battle
-在他们战死之前
+另外，库克法官还就该授权是否属于《Covid-19 公共卫生应对法》中的定义作出解释。他认为，虽然有观点证实接种疫苗在减少严重疾病、住院和死亡方面有着显著的正面效果，然而，与其他 Covid-19 变体相比，它在减少 Omicron 的感染和传播方面效果较差。
 
-Listen to this
-听听这个
+库克法官表示：“强制警察和国防人员接种疫苗的本质是为了确保公共服务的连续性，并提高公众对这些服务的信心，而不是阻止 Covid-19 的传播。但我不认同用命令来推进这些服务的连续性。因为 Omicron 变体特别具有传染性，所以Covid-19 对警卫服务的连续性构成威胁。但是，实质上，无论是否接种疫苗都存在这种威胁。”
 
-I am a Russian Military ship
-我是俄罗斯军舰
+纽西兰警方及国防部发言人在当天下午的两份类似声明中表示，在政府考虑该裁决期间，将暂停因疫苗接种令而终止员工合同的任何举措。
 
-repeat I am a Russian Military ship
-重复我是一艘俄罗斯军舰
-
-proposing to put down arms immediately
-建议立即放下武器
-
-to avoid bloodshed
-以避免流血
-
-and unjustified deaths
-和无谓的死亡
-
-In worst case
-在最坏的情况下
-
-you will be hit with a bomb strike
-你会被炸弹袭击
-
-I am repeating
-我在重复
-
-I am Russian Military Ship
-我是俄罗斯军舰
-
-proposing to put down arms
-建议放下武器
-
-or you will be hit
-否则你会被击中
-
-Acknowledge
-确认
-
-(Male voice, not through the radio)
-（男声，不是通过收音机）
-F\*\*\* it as well
-滚一边去
-
-(Female voice whispers)
-（女声低语）
-Just in case
-以防万一
-
-Russian warship, go f\*\*\* yourself
-俄罗斯军舰，去你妈的
-
-Don Lemon
-唐·雷檬
-
-Wow, Ukrainians are defiant
-哇，乌克兰人很无畏
-
-They aren’t back and down
-他们没有退缩
-
-Oren Liebermann (CNN Pentagon Correspondent)
-奥伦·利伯曼（美国有线电视新闻网五角大楼通讯员）
-
-Two things were certain going into this and this is what the US had assessed
-有两件事可以肯定，这就是美国所评估的
-
-first that Russia had the massively superior military
-首先，俄罗斯拥有强大的军事优势
-
-and the armed forces built up around Ukraine
-以及在乌克兰周围建立的武装部队
-
-and that Ukraine’s military might not be able to hold out all that long
-乌克兰军队可能撑不了那么久
-
-whether that’s days or weeks is unclear
-是几天还是几周还不清楚
-
-and the Pentagon wasn’t going to get into
-而且五角大楼不会介入
-
-how this was going for the Russians
-这对俄罗斯人来说是会怎样
-
-But the other thing that was clear was that
-但另一件很清楚的事情是
-
-if the Russian chose to become an occupying force after this invasion
-如果俄国人在这次入侵后选择成为占领军
-
-Ukrainians would put up one hell of a fight an insurgency against the Russian occupation
-乌克兰人将与俄罗斯占领者进行一场激烈的战斗
-
-perhaps against a Russian puppet government
-也许将会是与俄罗斯组建的傀儡政府战斗
-
-and that spirit there that will to fight that
-和那种精神，那种战斗的意志
-
-will to stand back against Russia and to be Ukrainians
-那种反抗俄罗斯的乌克兰人的意志
-
-That’s what you’re hearing in that video
-这就是你在那个视频中听到的
-
-And that’s what you’re hearing from our correspondents who are in Ukraine
-这就是你从我们在乌克兰的记者那里听到的
-
-and talking to Ukrainians on the ground there
-并在那里与当地的乌克兰人交谈
-
-Don Lemon
-唐·雷檬
-
-And our understanding, again, is that those folks that were killed
-我们所了解的是，这些勇敢的人最后牺牲了
-
-* * *
-
-Date:02/25/2022
-原视频标题: “Ukrainians are defiant. They aren’t backing down.” CNN’s
-DonLemon reacts to audio of Ukrainian soldiers defending Snake Island in the Black Sea from an approaching Russian warship
-“乌克兰人很无畏，他们没有退缩” 美国有线电视新闻网唐·雷檬对乌克兰士兵保卫黑海蛇岛免受俄罗斯军舰逼近的音频做出反应
-原视频日期：2022/02/25
-原视频链接[**https://twitter.com/quicktake/status/1497067710131417088?s=24**](https://twitter.com/quicktake/status/1497067710131417088?s=24)
-任务编号：KE422（3851）
-视频时间段 : 0:00-1:58
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+来源：[nzherald](https://www.nzherald.co.nz/nz/not-demonstrably-justified-high-court-upholds-challenge-to-police-and-nzdf-vaccination-mandates-terminations-suspended/LMAUM7LZWV6FFQWAKKJFLKYLIE/)
 
  
 

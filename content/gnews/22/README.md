@@ -2,32 +2,39 @@
 ---
 
 
-## 有声|一号文件
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072982/)
+## 多国人权人士发起联署公开信 强烈要求取消彭丽媛联合国妇女特使称号
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2073043/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-85.png)
-“一号文件”，即中共每年发布的第一份文件，是中共发布的关于农村问题的专有名词。
+**撰稿：日本东京方舟农场  老孙**
 
-二战期间，中共绑架战区老百姓抗日，老百姓别无选择。
+2月25日，来自多个国家的人权活动人士发表联署公开信，对被授予联合国教科文组织特使称号的中共国第一夫人彭丽媛女士在铁链女事件中的态度极其不满，强烈要求联合国教科文组织取消其促进女童和妇女教育特使称号。
 
-篡权后，中共“打土豪，分田地”，农民再次沦为中共抢夺土地的牺牲品。
+公开信全文如下：
 
-20世纪50年代，中共施行“人民公社”“大锅饭”，中华大地饿殍遍野。
+**联合国教科文组织总干事奥德蕾·****阿祖莱阁下:**
 
-文字版原文：[一号文件](https://gnews.org/zh-hans/2070527/)
+2014年3月27日，中国国家主席习近平的夫人彭丽媛女士被联合国教科文组织授予“促进女童和妇女教育特使”。
 
-音频处理/发稿：Daxia
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-29.jpeg)（图片取自自由亚洲）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+从2021年12月5日徐州铁链女事件爆发以来，虽然整个世界都已为之震惊悲愤，中国官方也已经就此事件发布了五个公告，但是迄今为止，彭丽媛女士作为联合国教科文组织授予的“促进女童和妇女教育特使”，对这位自幼被凌辱、苦难中度过二十余载的八孩母亲竟然未置一词。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+中国每年被贩卖、虐待的妇女、儿童多达上万，却从未见过彭丽媛女士对如此严重的侵犯妇女和女童权益的恶性人权事件表达过任何关切。彭女士未能敦促中国政府遵守和落实“消除对妇女一切形式歧视公约”和“儿童权利公约”，和中国关于保护妇女儿童的相关法律，在这些方面完全未见她做任何努力。
+
+由此可见，彭女士已完全不适合担当联合国教科文组织授予的促进女童和妇女教育特使了。如果再让彭女士担任女童和妇女特使，将会严重辱没联合国教科文组织的名声，也会让彭丽媛的女童和妇女特使沦为世人的笑柄。
+
+有鉴于此，我们一群关心妇女和女童权益的人士发起全球公开联署，促请联合国教科文组织免去彭丽媛女士“促进女童和妇女教育特使”称号并发布公告，昭告天下，以儆效尤。
+
+截止本文发稿，已有45名多国知名人权人士联署，第一批联署名单将于2022年3月5日中华人民共和国第十三届全国人民代表大会第五次会议召开之日发送联合国教科文组织（法国巴黎）、联合国人权理事会（瑞士日内瓦）、中国全国人大、全国政协、全国妇联和一些国际人权组织。
+
+参考链接：
+1. [https://wqw2010.blogspot.com/2022/02/joint-letter-urging-unesco-to-revoke.html](https://wqw2010.blogspot.com/2022/02/joint-letter-urging-unesco-to-revoke.html)
+2.[https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/cm2-02252022101104.html](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/cm2-02252022101104.html)
+
+**素材采编：**老孙
+**编辑： ** 青城道姑
+**发布：  **文曦
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

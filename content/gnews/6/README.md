@@ -2,36 +2,30 @@
 ---
 
 
-## 24日白宫网站发表制裁俄罗斯声明
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2073237/)
+## 大直播后记：七哥捐助过希望小学
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2073304/)
 
-撰稿：日本东京方舟农场-感谢郭叔
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
-2月24日，美国白宫网站发表声明称，针对俄罗斯发动的对乌克兰的战争，美国和盟国合作伙伴决定对俄罗斯施加严重而直接的经济制裁，包括全面的金融制裁和严格的出口管制。这将对俄罗斯如今单一的经济结构、脆弱的金融体系以及尖端技术的获取造成深远的影响。
+**整理：Rianna、奮鬥
+编辑：玉米地守望者**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2547.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/dazhibohouji_common-1.png)图片来源：雅典娜设计组
 
-制裁措施主要包括：切断俄罗斯多家银行和金融机构与美国金融系统的联系，对俄罗斯精英及其家人的全面封锁制裁扩大了范围，制裁 24 名白俄罗斯个人和实体，限制在俄罗斯范围内使用美国原产软件、技术或设备，以及在外国生产的敏感美国技术。
 
-声明认为，这些措施会增加俄罗斯继续进行战争的代价。
+（七哥）去过中国最贫困的地方甘肃，我捐过很多很多希望小学，到后来我知道没有1分钱可以说变成了希望，都变成了绝望，这是很痛苦的。我从清风看守所出来之后，我不是说第2天就有钱了，我（想起）很穷的时候，我离开西曹营时，从荆门派出所（的时候）。
 
-新闻链接:
+在一星期前两星期吧，你7嫂提醒我，她说：你记得你离开那家那天多少钱吗？ 我当时愣在那儿了。她说咱娘给了咱俩48块钱，咱爹是赶着咱旁边邻居的牛车。但是你不是出去就坐着车哎。我说我突然想起来了，我是我爹赶着牛车把我送到了高码头乡，离我们家（大概）10公里的地方。然后我们是拿一个被单卷着我，我和我太太还有郭强郭美的被子，还有一个家里人一起。我们5口人坐上了高码头的到濮阳的车，从濮阳换车到达郑州，好像中间新换车。到了郑州下来以后，我扛着那些被子找了个3轮车，3轮车就去。 我们当时同看守所的一个朋友的家，临时住在家住的，晚上他妈还老骂我们孩子，说我们是寄生虫。那些天我再去东北去做生意的时候，见那些老朋友的时候，48块钱。我现在想起来。我回来之后。我第一笔钱拿到，我就捐给了别人的学校的钱。但是后来知道这些钱都是没有用的。
 
-[FACT SHEET: Joined by Allies and Partners, the United States Imposes Devastating Costs on Russia](https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/24/fact-sheet-joined-by-allies-and-partners-the-united-states-imposes-devastating-costs-on-russia/)
+资料来源：[2022年2月26日 《文贵大直播—GEDU专场》](https://gtv.org/video/id=621a28c808ba8a07b1a3e95b)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5-1-2.png)
+*发布：玉米地守望者*
 
-编辑/总编:飞虹
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

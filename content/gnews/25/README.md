@@ -2,16 +2,21 @@
 ---
 
 
-## 有声|自由之家预警 世界自由民主正在衰落
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072950/)
+## 有声|一号文件
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072982/)
 
 配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月25日，据相关媒体报道，人权组织“自由之家”当天公布了《2022年全球自由报告》。当中，该组织警告称，全球民主已经连续16年持续衰退，独裁集权越来越有可能会取代民主，成为国际上治理国家的常见模式。该报道也提到，近日，普京下令入侵乌克兰的举动更加表明了威权势力正在崛起。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-85.png)
+“一号文件”，即中共每年发布的第一份文件，是中共发布的关于农村问题的专有名词。
 
-该报告还指出，在过去一年中，全球有60个国家遭遇了民主衰落的困境，世界上还有约38%的人口依然居住在不自由的国家中，而居住在自由过度的民众只占全球总人口的20%。
+二战期间，中共绑架战区老百姓抗日，老百姓别无选择。
 
-文字版原文：[自由之家预警 世界自由民主正在衰落](https://gnews.org/zh-hans/2070221/)
+篡权后，中共“打土豪，分田地”，农民再次沦为中共抢夺土地的牺牲品。
+
+20世纪50年代，中共施行“人民公社”“大锅饭”，中华大地饿殍遍野。
+
+文字版原文：[一号文件](https://gnews.org/zh-hans/2070527/)
+
 音频处理/发稿：Daxia
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)

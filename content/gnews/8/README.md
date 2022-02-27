@@ -2,38 +2,44 @@
 ---
 
 
-## 新西兰政府计划限制招收9年级以下国际学生
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2073205/)
+## 25日英美加表示继续加大对俄罗斯的制裁力度
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2073275/)
 
-作者：新西兰伊甸农场.玫瑰
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-78.png)
+撰稿: 银河系农场—骄子；纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
+2月25日，美国财政部表示，会对俄罗斯总统普京、外交部长拉夫罗夫、国防部长绍伊古和总参谋长格拉西莫夫实施制裁。
 
-![Happy kids at elementary school](https://www.rnz.co.nz/assets/news/261668/eight_col_kids.jpg?1619150611)(Photo: 123RF)
-据新西兰本地媒体综合报道，新西兰政府计划限制中小学招收国际生，但这一计划遭到了校长们的反对。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2548.png)图片来自：Reuters
 
-新西兰教育部在一份咨询文件中称，应限制学校招收9年级以下的国际生，因为这对不招收外国学生的学校不公平，而且增加了住房市场和教师供给压力，并可能减弱学校对新西兰儿童的关注。
+美财政部长表示会让俄罗斯因入侵乌克兰而付出惨重的经济和外交代价，白宫发言人还表示将会对俄罗斯的主权投资基金实施全面封锁和制裁。
 
-但校长们则表示，这个提议没有意义，而且在边境重开后，外国家庭正排队让他们的孩子入学。 虽然该文件说明的是“限制入学”，但多位校长表示，该计划实际上将“完全禁止”国际学生的招生。 新西兰国际教育商业协会（SIEBA）首席执行官John van der Zwan表示，由于政策的不确定性，学校无法开展明年的招生工作。 这项提案的咨询工作将于3月11日结束。
+同一日，英国发表声明，冻结俄罗斯普京和外交部长拉夫罗夫的英国资产。被冻结的俄罗斯公司和个人将无法进入英国，与英国进行任何金融与商业活动，包括货币结算与进出口等。
 
-参考链接：
+当天，加拿大总理特鲁多表示，该国政府支持将俄罗斯逐出环球银行金融电信协会，即SWIFT系统，以示俄罗斯公然对乌克兰武装侵略的惩罚。他认为此举能对俄罗斯的经济造成比制裁更大的损失，并表示，加拿大正在与欧洲盟友就相关问题进行相对话，盟友正在谨慎考虑加国的建议。
 
-[https://www.rnz.co.nz/news/national/461952/government-plans-to-restrict-enrolment-of-international-students](https://www.rnz.co.nz/news/national/461952/government-plans-to-restrict-enrolment-of-international-studentshttps://www.chineseherald.co.nz/news/education/restrict-enrolment/http://m.go.skykiwi.com/news/nnewsDetail?f_info_id=440693&amp;modelid=3)
+新闻来源:
 
-[https://www.chineseherald.co.nz/news/education/restrict-enrolment/](https://www.rnz.co.nz/news/national/461952/government-plans-to-restrict-enrolment-of-international-studentshttps://www.chineseherald.co.nz/news/education/restrict-enrolment/http://m.go.skykiwi.com/news/nnewsDetail?f_info_id=440693&amp;modelid=3)
+[UK imposes asset freeze on Russia’s Putin and Lavrov](https://www.reuters.com/world/europe/uk-imposes-asset-freeze-russias-putin-lavrov-2022-02-25/)
 
-[http://m.go.skykiwi.com/news/nnewsDetail?f\_info\_id=440693&modelid=3](https://www.rnz.co.nz/news/national/461952/government-plans-to-restrict-enrolment-of-international-studentshttps://www.chineseherald.co.nz/news/education/restrict-enrolment/http://m.go.skykiwi.com/news/nnewsDetail?f_info_id=440693&amp;modelid=3)
+[U.S. imposes sanctions on Putin and other Russian leaders](https://www.reuters.com/world/us-impose-blocking-sanctions-state-owned-russia-direct-investment-fund-2022-02-25/)
 
-编辑/校对/发稿：有莫举名
+[UK Government sanctions Vladimir Putin and Sergey Lavrov](https://www.gov.uk/government/news/uk-government-sanctions-vladimir-putin-and-sergey-lavrov)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-415.jpeg)
+[俄羅斯入侵烏克蘭 加拿大支持將俄逐出SWIFT](https://ec.ltn.com.tw/article/breakingnews/3842000)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-12.png)
+
+编辑/总编: 飞虹
+
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0-9.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

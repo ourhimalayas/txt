@@ -2,34 +2,38 @@
 ---
 
 
-## 大直播后记：G-Edu教育目标是找到好老师
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2073148/)
+## 中共攻台的三个方案
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2073197/)
 
-整理：枫叶红了、奮鬥
-编辑：wenly
+撰稿: 香草山新世界的一员
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
+在2月25日的大直播中，郭文贵先生爆料称，习近平在普京攻乌克兰之前，已把潜水艇部队布置在了台海周边。中共攻台可能有三个方案。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-30.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2546.png)
 
+第一，模仿乌克兰的模式，实行普京战略。让人大和政协的台湾所谓代表提出议案，宣称台湾面临台独危机，台独欲借邪恶势力分裂台湾，破坏中国领土完整，请求大陆出兵支援。然后中共可以“名正言顺”地出兵平乱。
 
-什么的，老师合格？我告诉大家，不是你有热情，你有激情，就给参加G-Edu教育。参加基础教育分3个层次：后勤，管理——就是行政人员，然后前线的是老师。
+第二，围而不打，把所有的台岛孤立化。同样声称有台独分子，或者人为制造动乱，然后派出所谓维和部队，对台湾围而不打，破坏台湾的贸易，等全球经济崩溃时，让台湾不攻自破。
 
-就像今天的乌克兰打仗一样，为什么乌克兰敢跟俄罗斯打？ 因为他有打坦克的专家，打飞机的专家，他是创始者，他就是原来前苏联的一部分，后面他们有一个当年苏联预备役，预备役的词就跟当年的基辅有关系。所以他们才有这一个，用一个真的是极小的力量，他得有能力才能对付现在入侵的俄罗斯，因为他有前线的专业人士。还有后勤的预备役和行政供给系统，还有这个资源。这个不是你看到在抖音上、YouTube上，几个所谓美女帅哥出去抖两下，就敢怼俄罗斯去了。他是有从小学习这种职业，还有专业的培训的结果。像我这号人，到了咱们基地教育，除了拿钱之外，就去擦地板，就去给大家拎书包，给老师递纸巾的，这就是我的身份。我们如何找到好校长，找到好老师是G-Edu教育成功第一的关键。
+第三，短时间内， 迅速占岛。
 
-第2，如何让老师和校长和学生之间是一个最健康，百分之百超越夫妻间的信任关系，和愉悦的环境，和有利于教育的环境，是否能培养成功，那是我们第2重要的因素。
+无论采取何种方案，这一次台湾的事情一定会有个了结，或者中共灭亡，或者台湾灭亡。
 
-第3，线上线下的结合是现代教育必不可少。必须要重视的叫未来教育，和现代教育的根本手段。
+新闻链接: [2022年2月25日 文贵大直播](https://gtv.org/video/id=6218d34708ba8a07b1a341e7)
 
-那我刚才我说线下多重要。如果现在任何人到乌克兰带着孩子走一圈，比他未来可能100年见识社会重要。战争就这么残酷！如果我们那儿线上线下的，甭说孩子成年人，现在大家去看一看俄罗斯、乌克兰、再一个到台湾感受，感受平和老师的那种担忧和恐惧。我认为比什么教育都重要。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5-1-2.png)
 
-发布：tianzhihuan
+编辑/总编: 飞虹
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+校正/发稿：浪迹天涯
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
