@@ -2,39 +2,56 @@
 ---
 
 
-## 樱花FM|北京冬奥前闭环内外疫情燃烧，特大安全套或是最佳体验
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2076254/)
+## 中共国称支持入侵乌克兰的俄罗斯并支持普京声称的已准备好进行谈判
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2076324/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-4-8.png)
-**北京冬奥在即，“闭环”内外疫情燃烧，带给运动员最佳体验的或许是特大号安全套，这可在隔离时解燃煤之急。不过，习近平已经决定在冬奥会开幕式举办盛大宴席。对于国际社会如何追责北京反人类罪？联合国人权委员会配合北京冬奥会，将不会在近期发布涉疆“人权报告”。**
+***评论：**中共国支持俄罗斯入侵乌克兰，就是和俄罗斯一起站到了西方国家的对立面。*
 
-据[路透社](https://gulfnews.com/sport/olympics/beijing-olympics-china-reports-36-new-covid-19-cases-among-olympics-related-personnel-1.85289422)北京时间29日消息称：“北京 2022 年冬奥组委会今天表示，1 月 28 日，在奥运会相关人员中发现 了36 例新的 COVID-19 感染者。”其中19 名运动员或球队官员在周五抵达机场后检测呈阳性。在新机场抵达者中发现了 29 人，在运动员与公众隔离的“闭环”气泡中也已经发现了 7 例感染者。
+据《福克斯新闻》作者：[Caitlin McFall](https://www.foxnews.com/person/m/caitlin-mcfall)，2022年2月25日报道：
 
-另据《[看中国](http://cn.secretchina.com/news/gb/2022/01/27/996269.html)》27日消息透露，将于2月4日开幕的冬奥尚未开始，涉奥人员已检测出129人阳性。同时，北京“环外”疫情也在燃烧。1月23日正式启动的 “泡泡”型“闭环”管理难阻奥密克戎（Omicron）病毒肆虐。
+泽伦斯基恳请北约国家允许乌克兰加入联盟，因为基辅受到俄罗斯军队的打击
 
-- **延展阅读：**[**中共国在冬奥会前一周悄悄封锁120万人的雄安新区**](https://www.ndtv.com/world-news/beijing-winter-olympics-china-quietly-locks-down-area-near-beijing-a-week-before-winter-olympics-2734478)
+在俄罗斯军队轰炸乌克兰之际，中共国国家主席习近平周五向俄罗斯总统弗拉基米尔-普京提供了他的“支持”。
+
+根据这两个盟国之间的通话记录，习近平表示拒绝“冷战思维”的重要性，并表示他“认真对待并尊重所有国家的合理安全关切”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2600-e1645981241507.png)中共国国家主席习近平和俄罗斯总统普京在俄罗斯入侵乌克兰时举行通话。(Li Xueren/Xinhua via Getty Images) | Mikhail Svetlov/Getty Images)
+普京试图通过谎称基辅构成严重的军事威胁来为其对乌克兰的致命入侵辩护–此后他声称北约也构成威胁，尽管该联盟一再试图寻找外交解决方案。
+
+中共国外交部提供的信息说，普京解释了“乌克兰问题的历史背景”，并声称，“美国和北约长期以来对俄罗斯的合法安全关切视而不见。”
+
+在俄罗斯入侵之前，北约断然拒绝了普京关于禁止乌克兰加入这个有30个成员的联盟的一再要求。
+
+乌克兰没有被允许加入该联盟，理由是它需要得到成员国的一致同意，而像美国这样的伙伴则质疑基辅是否符合所需标准。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2601-e1645981280209.png)2022年2月25日星期五，在乌克兰基辅，一名乌克兰军队士兵检查一架被击落飞机的碎片。(AP Photo/Vadim Zamirovsky)
+在拜登和乌克兰总统沃洛德米尔-泽伦斯基9月的一次会议后，新闻秘书詹-普萨基说：“乌克兰需要采取一些措施”。
+
+她补充说，“他们对这些非常熟悉：努力推进法治改革，使其国防部门现代化，并扩大经济增长。”
+
+在周四晚上对乌克兰人的讲话中，泽伦斯基说他给27个北约国家打电话，要求他们允许基辅加入联盟，这将使基辅得到30个国家的保护和军事武器。
+
+他说：“每个人都在害怕，没有人回答”。
+
+中共国在谴责俄罗斯入侵乌克兰方面一直守口如瓶，只是重复谈话要点，并声称它尊重“所有国家的主权和领土完整”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2603-e1645981316461.png)(乌克兰总统办公室)
+文章观点仅代表作者个人，与Gnews平台无关。
+
+原文连接：[https://www.foxnews.com/politics/china-supports-russia-amid-ukraine-invasion-backs-putins-ready-negotiations](https://www.foxnews.com/politics/china-supports-russia-amid-ukraine-invasion-backs-putins-ready-negotiations)
+
+翻译：洛杉矶盘古农场 – TrueSky
+
+校对：洛杉矶盘古农场 – Mike Li
+
+评论：洛杉矶盘古农场 – 傻小子
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
 
 
-毋庸置疑，北京在奥密克戎（Omicron）肆虐下，一场危机四伏的冬奥会即将拉开序幕。但北京强调，“[按照传统，北京冬奥组委会将免费向运动员发放安全套，但不鼓励拥抱](https://7news.com.au/sport/winter-olympics/free-condoms-at-beijing-winter-olympics-but-hugs-discouraged-c-5474922)。”该消息称，尽管奥委会有严格的与社会隔离的 COVID-19 协议，但主办方仍提供免费安全套。
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-路透社记者在位于闭环内的贵州宾馆入住时，在每个房间内发现了五个单独包装的安全套，**避孕套是“特大号”**。它们分别装在带有不同颜色中国灯笼形象的信封中。
-
-- **延展阅读：**[**习近平将出席北京冬奥会开幕式**](http://news.cnr.cn/native/gd/20220128/t20220128_525728626.shtml)
-- **延展阅读：**[**习近平为北京冬奥来访领导人设宴招待**](https://www.news18.com/news/sports/china-president-xi-jinping-to-host-banquet-for-visiting-leaders-at-beijing-winter-olympics-4708502.html)
-
-
-不知特大号安全套是否可以罩住在新疆犯下的“反人类罪”？但“路透社28日援引《南华早报》未具名消息人士的话报道，“[中国已同意让联合国人权事务高级专员在北京冬奥会后的 2022 年上半年访问新疆](https://www.arabnews.com/%E8%8A%82%E7%82%B9/2013701/%E4%B8%96%E7%95%8C)。”与此同时，[法新社](https://www.news18.com/news/world/un-says-no-rights-report-on-chinas-xinjiang-before-beijing-winter-olympics-4709741.html)表示，“联合国称不会在北京冬奥会前发布关于中国新疆的人权报告”。
-
-2021年1月29日
-
-文字版原文：
-[北京冬奥前闭环内外疫情燃烧，特大安全套或是最佳体验 – GNEWS](https://gnews.org/zh-hans/1928139/)
-
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
