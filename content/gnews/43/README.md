@@ -2,26 +2,27 @@
 ---
 
 
-## 中国数位历史学家要求普京停战的联合声明被中共“秒删”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2074712/)
+## 新中国联邦和法治基金关于紧急救援乌克兰的通知
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2074877/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-20.jpg)[图片来源](https://mobile.twitter.com/wombie_w)
-26日，针对俄罗斯军事入侵乌克兰事件，中国数位历史学家联名发表了一份联合声明，呼吁俄罗斯政府和普京总统停止战争。
+[【PDF 下载：新中国联邦和法治基金关于紧急救援乌克兰的通知】](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦和法治基金关于紧急救援乌克兰的通知-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦和法治基金关于紧急救援乌克兰的通知-1.pdf)
 
-这份题为“俄罗斯入侵乌克兰与我们的态度”的声明是由南京大学孙江教授等五位历史学家联名在中国SNS上发出的。声明写道，我们强烈反对俄罗斯对乌克兰发动的战争，强烈谴责以武力入侵一个主权国家的行为，无论俄罗斯出于何种原因，其行为都是对现有国际安全体系的颠覆；我们坚决支持乌克兰人民的自卫行动，并强烈呼吁俄罗斯政府和普京总统停止战争，通过谈判解决冲突。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-21.png)
-该声明在社交媒体上疯传，但原文已无法查看，据信已被中共删除。
+为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。
 
-25日，联合国安理会就美国等其他国家提交的要求俄罗斯军队立即撤出乌克兰的决议进行表决，中共国投了弃权票。
+救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。
 
-秒删反战言论，相信中共的司马昭之心已世人皆知了！在世界各地人民都在为乌克兰人呐喊要求停战之时，中共国又一次无情地封上了同胞的嘴，活生生地把14亿同胞绑上死亡战车。
+24小时救援联系方式如下：
 
-信息源:[中国歴史学者ら 戦争停止求める声明を発表](https://news.yahoo.co.jp/articles/fc5c3bbb58b29e06549e7336386ba911259eef38)
+邮箱：
+[\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection)
+电话和短信：+1 720-657-6776 或 +1 719-224-4232
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+新中国联邦
+法治基金
+2022年2月26日
+![](https://assets.gnews.org/wp-content/uploads/2022/02/c36b13dfc2ad94a2feb97d6ca8dae462.jpeg)
+[【PDF 下载：新中国联邦和法治基金关于紧急救援乌克兰的通知】](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦和法治基金关于紧急救援乌克兰的通知-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦和法治基金关于紧急救援乌克兰的通知-1.pdf)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,21 @@
 ---
 
 
-## 人性的伟大，乌克兰母亲将陌生人的孩子带到安全地带
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2077365/)
+## 中共可能会怎么打台湾
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2077524/)
 
-撰稿：东京樱花团/英语组
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-23.jpg)图片来源于本文链接![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/图片5-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/图片6-6.jpg)
-匈牙利拜赖格舒拉尼（BEREGSURANY），2月26日（路透社），周六，娜塔莉亚.阿波利耶娃攥着一个她从未见过的女人的手机号码，从乌克兰越过边境进入匈牙利，有人委托她携带一件珍贵的东西——一个陌生人的孩子。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-在乌克兰一侧的边境口岸等待时，阿波利耶娃遇到了一个来自她的家乡卡米亚涅茨·波迪尔斯基的绝望的38岁男子，带着他年幼的儿子和女儿。边防军不会让他通过。乌克兰禁止所有18至60岁的乌克兰男子离开，让他们为自己的国家而战。
+*发布：陶子*
 
-58岁的阿波利耶娃说：“他们的父亲简单地把两个孩子交给了我，信任我，把他们的护照给我，让我把他们带过来。”
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-孩子们的乌克兰母亲正从意大利赶来接他们，并把他们带到安全的地方，孩子的父亲说。他把孩子们母亲的手机号码给了阿波利耶娃，并与孩子们告别，他们穿着厚厚的外套，戴着帽子，抵御寒冷。
-
-阿波利耶娃把自己两个长大的孩子留在了乌克兰。一个是警察，另一个是护士，根据动员令，他们都不能离开乌克兰。
-
-她拉着两个小孩的手，一起越过了边界。
-
-在匈牙利一侧的贝雷格苏拉尼，他们坐在为源源不断涌入边境的难民搭建的帐篷附近的长椅上等待。小男孩正在哭，他的手机响了，是他的母亲，她快到边境站了。
-
-当33岁的安娜.塞缪克到达时，她的金发被刮成马尾，她拥抱了她的儿子，然后去找她的女儿，她的女儿疲惫地靠在一辆汽车的后座里，身上裹着一条粉红色的毯子。
-
-然后塞缪克感谢了阿波利耶娃。站在寒冷的灌木丛中，两个女人拥抱了几分钟，开始哭泣。
-
-“我现在能对我的孩子们说的是，一切都会好起来的，”塞缪克说。“再过一两个星期，我们就可以回家了。”
-
-[原文链接](https://www.reuters.com/world/europe/ukrainian-border-mother-brings-strangers-children-safety-2022-02-26/)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,40 +2,36 @@
 ---
 
 
-## 有声|俄罗斯全面发动入侵乌克兰的战争
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2077291/)
+## 人性的伟大，乌克兰母亲将陌生人的孩子带到安全地带
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2077365/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间2月24日凌晨，据盖特和其他媒体消息显示，俄罗斯正在从三个主要方向对乌克兰发起大规模的入侵，且俄军采用的主要袭击方式为空袭和导弹。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-26-%E4%B8%8A%E5%8D%889.43.57.png)
-据悉，乌克兰已经有137名公民死亡，169人受伤。但面对俄军发起的陆、海、空全面入侵，乌克兰总统泽连斯基向全国民众呼吁，希望愿意保家卫国的乌克兰人能挺身而出，政府将为其配发武器。
+撰稿：东京樱花团/英语组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-23.jpg)图片来源于本文链接![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/图片5-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/图片6-6.jpg)
+匈牙利拜赖格舒拉尼（BEREGSURANY），2月26日（路透社），周六，娜塔莉亚.阿波利耶娃攥着一个她从未见过的女人的手机号码，从乌克兰越过边境进入匈牙利，有人委托她携带一件珍贵的东西——一个陌生人的孩子。
 
-与此同时，台湾危机成为继乌克兰之后全球关注的重点问题。对此，郭文贵先生也在当天的紧急直播中指出，共产党一定会攻打台湾，新中国联邦必须马上组织起来，全力以赴地向愿意撤出台湾的战友和台湾同胞们提供援助，在所不辞。另一方面，郭先生也呼吁墙内的同胞远离军事设施与基地，一定要保护好自己和家人的安全。
+在乌克兰一侧的边境口岸等待时，阿波利耶娃遇到了一个来自她的家乡卡米亚涅茨·波迪尔斯基的绝望的38岁男子，带着他年幼的儿子和女儿。边防军不会让他通过。乌克兰禁止所有18至60岁的乌克兰男子离开，让他们为自己的国家而战。
 
-郭先生强调，台海危机一触即发，已经迫在眉睫。
+58岁的阿波利耶娃说：“他们的父亲简单地把两个孩子交给了我，信任我，把他们的护照给我，让我把他们带过来。”
 
+孩子们的乌克兰母亲正从意大利赶来接他们，并把他们带到安全的地方，孩子的父亲说。他把孩子们母亲的手机号码给了阿波利耶娃，并与孩子们告别，他们穿着厚厚的外套，戴着帽子，抵御寒冷。
 
+阿波利耶娃把自己两个长大的孩子留在了乌克兰。一个是警察，另一个是护士，根据动员令，他们都不能离开乌克兰。
 
-文字版原文：[俄罗斯全面发动入侵乌克兰的战争](https://gnews.org/zh-hans/2070220/)
+她拉着两个小孩的手，一起越过了边界。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+在匈牙利一侧的贝雷格苏拉尼，他们坐在为源源不断涌入边境的难民搭建的帐篷附近的长椅上等待。小男孩正在哭，他的手机响了，是他的母亲，她快到边境站了。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+当33岁的安娜.塞缪克到达时，她的金发被刮成马尾，她拥抱了她的儿子，然后去找她的女儿，她的女儿疲惫地靠在一辆汽车的后座里，身上裹着一条粉红色的毯子。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+然后塞缪克感谢了阿波利耶娃。站在寒冷的灌木丛中，两个女人拥抱了几分钟，开始哭泣。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+“我现在能对我的孩子们说的是，一切都会好起来的，”塞缪克说。“再过一两个星期，我们就可以回家了。”
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[原文链接](https://www.reuters.com/world/europe/ukrainian-border-mother-brings-strangers-children-safety-2022-02-26/)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

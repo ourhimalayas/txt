@@ -2,26 +2,16 @@
 ---
 
 
-## 新中国联邦和法治基金关于紧急救援乌克兰的通知
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2074877/)
+## 俄乌战争｜继西方国家后 日本将俄踢出swift
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2075613/)
 
-[【PDF 下载：新中国联邦和法治基金关于紧急救援乌克兰的通知】](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦和法治基金关于紧急救援乌克兰的通知-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦和法治基金关于紧急救援乌克兰的通知-1.pdf)
+**撰文/ 港台前線｜發佈日期/ 27/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Music-Clip-5.png)
+日媒27日晚间报导，岸田首相宣布已向俄罗斯追加制裁，并称“这暴力行为必须付出高昂的代价”。日本政府对俄罗斯追加的制裁，包括将冻结普丁总统在内的俄罗斯政府官员资产，并跟随美欧政府制裁措施，将俄罗斯从日本的“SWIFT系统”中排除。此外，岸田首相表示将向乌克兰提供额外1亿美元的人道主义援助。
 
-为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。
+俄乌战争爆发至今，多国逐渐联合对俄罗斯进行相关制裁，27日早间[多个西方国家发表联合声明](https://gnews.org/zh-hant/2072576/)，确认将俄罗斯踢出SWIFT，包括美国、欧盟、法国、德国、意大利、英国、加拿大。西方国家宣布的制裁新措施将在未来几天内实施，其中还包括对俄罗斯央行外汇储备的限制，目的为阻止普丁动用俄罗斯央行6300亿美元外汇储备作为入侵乌克兰和保卫卢布货币提供资金。
 
-救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。
-
-24小时救援联系方式如下：
-
-邮箱：
-[\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection)
-电话和短信：+1 720-657-6776 或 +1 719-224-4232
-
-新中国联邦
-法治基金
-2022年2月26日
-![](https://assets.gnews.org/wp-content/uploads/2022/02/c36b13dfc2ad94a2feb97d6ca8dae462.jpeg)
-[【PDF 下载：新中国联邦和法治基金关于紧急救援乌克兰的通知】](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦和法治基金关于紧急救援乌克兰的通知-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦和法治基金关于紧急救援乌克兰的通知-1.pdf)
+来源｜[YAHOO JAPAN](https://news.yahoo.co.jp/articles/daa4b84b5c607e30869dda611b048b5e070778cb)
 
  
 
