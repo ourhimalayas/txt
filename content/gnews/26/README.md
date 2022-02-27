@@ -2,52 +2,34 @@
 ---
 
 
-## 俄罗斯威胁芬兰和瑞典:若加入北约可能面临严重后果
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2071792/)
+## 班农先生呼吁中国卡车司机为自由而战
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2072012/)
 
-**翻译：不要代表我Kari
-编辑：Candy**
+作者：香草山健身部-新世界的一员
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+班农先生是我们新中国联邦伟大的创始人之一，他是个虔诚的信徒，心地善良，智勇兼备，是我们坚决灭共的紧密盟友，他一直把中国人和中国人民分开，他说中国人民是世界上最勤劳最善良的民族，是被反人类的独裁共产党奴役着的人民，中国共产党不等于中国人。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/俄乌.png)图片来源：BBC网
+2022/2/25他在战斗室谈加的自由车队得到了來自Vigano大主教的支援，他说他1000%認同，他认为Vigano大主教在世界经济论坛和达沃斯党的問題上是世界上最聰明的人之一在教会问题上只有香港的樞機主教陳日君在他之上，他完全懂得共产党的事。
 
+他还说我完全支持（加拿大）卡车司机，就像我支持这个新的正在美国西海岸形成的自由车队向东行驶，我想看到的是美国华裔卡车司机把他们的大卡车开到前沿去，因为我真正想看到的自由车队是中国的自由车队，如果來自老百姓的卡車司機說 “我們忍無可忍了”然后大家都把车开去北京，那麼中國共产党在30天內就會瓦解。
 
-**有30个联盟国成员没有参与俄乌冲突**
+如果老百姓在后勤上卡住他们的脖子，他们撑不过30天就垮了，要记住，老百姓才是拥有一切权利的，他们只是没有意识到他们有权利，共产党只有9200万党员，真正有权利的只是极少数，绝大多数的共产党会转眼加入到老百姓的行列，老百姓才是拥有一切权利，他虔诚的祈祷，希望中国人能通过gnews，gtv，穿过防火墙，看到美国和加拿大发生的事，并且意识到，停断后勤补给链的权利完完全全在卡车司机他们手里，如果他们坚决不参与共产党的所作所为，就像掐断了共产党的喉咙，脖子，那共产党就结束了，中国共产党可能就会在30天内瓦解，没有任何东西能阻挡中国的自由车队。
 
-一名俄罗斯官员周五向芬兰和瑞典发出警告及威胁：如果这两个国家打算加入北约，将产生 “严重的军事和政治影响”。
+班农先生希望中国的卡车司机能看到这边的，澳大利亚的，世界各地的车队受到鼓舞，明白他们（对当权者的）危险性为其他行动要高1000倍，呼吁中国的卡车司机去站起来与中共对抗。
 
-在一次新闻发布会上，俄罗斯外交部发言人玛丽亚·扎哈罗娃（Maria Zakharova）发表了上述言论，因为俄罗斯军队在无端入侵邻国后继续与乌克兰军队作战。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-57.jpg)
 
-她在一个视频短片中说：“芬兰和瑞典不应该把他们的安全建立在损害其他国家安全的基础上，他们加入北约可能会面临一些军事和政治上不利的后果。”
+审核/编辑/发稿:qiutian（邱甜）
 
-俄外交部后来在Twitter上发布了同样的威胁。该推文写道：“我们认为芬兰政府对军事不结盟政策的承诺是确保北欧安全和稳定的一个重要因素，芬兰加入NATO将产生严重的军事和政治影响。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-7.png)
 
-芬兰大使米科·豪塔拉（Mikko Hautala）在一条推文中说，与北约的伙伴关系 “非常重要”。他写道：“与该联盟的伙伴关系对我们非常重要。在保持强大的国防防御力量的同时，我们保留申请加入的机会，就其安全政策作出决定是每个国家的主权权利。”
-
-乌克兰领导人表达了加入北约的愿望，但俄罗斯表示强烈反对扩大这个有着30个成员国的联盟，特别是在俄罗斯的邻国乌克兰的边界。
-
-截至周五，俄罗斯军队正在逼近乌克兰首都基辅，但美国情报专家表示，乌克兰的抵抗力度比预期的要大。为了保卫国家，政府已经向志愿加入战斗的公民发放了武器。
-
-北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）周四表示，如果莫斯科发动攻击，联盟将保卫其成员国。
-
-周五他表示：在俄罗斯总统弗拉基米尔·普京（Vladimir Putin）威胁北约，要求北约成员国撤军，否则会面临严重后果后，北约部署了其集体安全反应部队。
-
-斯托尔滕贝格（Stoltenberg）说：“这远远超出了乌克兰问题，这是关于俄罗斯如何实际挑战、争夺我们安全的核心价值。然后警告说，北约应该从我们几乎一半的成员中撤出所有部队和基础设施。
-
-北约没有参与冲突，也没有派遣任何部队帮助保卫乌克兰。周四拜登总统说，如果俄罗斯军队进入北约成员国，美国可能会介入。”
-
-他谈到普京时说：“如果他真的进入北约成员国，我们将参与其中，我们将参与其中。”
-
-原文链接：[Russia says Finland, Sweden could face consequences if countries move to join NATO](https://www.foxnews.com/world/russia-finland-sweden-nato)
-
-***发布：Candy***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

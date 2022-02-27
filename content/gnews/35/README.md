@@ -2,40 +2,25 @@
 ---
 
 
-## 追述台海两岸关系的变迁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2070746/)
+## 灾难！尽管意大利疫苗接种率极高，但是其新冠病毒死亡率位居欧洲第二
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2070923/)
 
-作者：纽约香草山-静言
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1945年，国民党政府接管了台湾，并以“中华民国”为号建立了独立的国家。此时，中共占据大陆，与台湾开始了漫长的两岸僵持时期。直至1949年3月，中共新华社在一篇社论中首次提出了所谓“解放台湾”的口号。作为回应，中华民国政府也表示要“消灭共匪，解救同胞”。两岸至此进入了隔绝对立阶段。其后，台海地区先后爆发了多次战役，国共双方互有胜负。
+#### 翻译                        意大利达芬奇农场                         小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-26-alle-15.32.11.png)图片来源：eventiavversinews.it 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-7.jpeg)
 
-到了1979年，中共对台的态度从强硬趋向缓和：人大在《告台湾同胞书》中以所谓“和平统一、一国两制”的方案取代了原先的硬性解放口号。次年，蒋经国回应了一则“三民主义统一中国”的政策。1981年，第一家台资企业在福州落户。随即，台湾开放当地民众到大陆探亲，两岸民间的经贸活动也迅速升温。
+世界卫生组织最近一个星期的报告
 
-1991年，台湾海基会与大陆海协会相继投入运作。两年后，双边还在“九二共识”的基础上举行汪辜会谈。虽然当时中共的总书记江泽民提出了推进所谓“中国和平统一”的进程，但台湾总统李登辉认为，台湾与中国大陆的关系是“国家与国家”。
+世界新冠病毒死亡人数继续下降。在2月14日到20日在全球范围内有超过一千二百万人人感染新冠病毒。比7天以前减少了21%，死亡人数也呈下降趋势，下降了8%，上周达到6.7万多人。
 
-2000年，民进党首次担任中华民国的执政党，陈水扁就职时表示，只要中共无意对台动武，其在任期内保证台湾既不会宣布独立，也不会更改国号。八年后，国民党重掌台湾，马英九主张不统、不独、不武。
+世界卫生组织的周报是这样报道的。在欧洲，意大利的受害者人数排名第二，本周有2024人死亡， 即每10万居民中有3.4人死亡。
 
-2014年，台湾太阳花学运遏制了两岸经济一体化的势头。次年，习近平与马英九代表中共和中华民国在新加坡首次进行会面。然而，在此之后，中共开始展露其妄图统治台湾的野心：习近平多次公开声称，要谋求所谓的“国家统一”。为此，中共解放军不断在台海地区进行军事演练，共机数次升空进入台湾领空挑衅。
+在全球范围内， 自疫情大流行开始以来，新冠病毒病例已超过4.22亿， 死亡人数超过580万。 本周唯一报告增加的地区是西太平洋地区增加29%，而所有其他地区的报告感染率是减少：东地中海地区下降34%，美洲下降29%，欧洲地区下降26%，非洲下降22%，东南亚下降17%。西太平洋增加21%，非洲增加20%，美洲新增死亡人数增加，东南亚下降37%，美洲下降9%，欧洲地区下降5%，东地中海下降4%。
 
-如今，俄乌危机爆发，新中国联邦创始人郭文贵先生多次呼吁，台海危机已经不可避免，战争已是箭在弦上，一触即发。
+原文链接：[https://www.eventiavversinews.it/disastro-italia-seconda-per-numero-decessi-covid-al-mondo-nonostante-gli-altissimi-tassi-di-vaccinazione/](https://www.eventiavversinews.it/disastro-italia-seconda-per-numero-decessi-covid-al-mondo-nonostante-gli-altissimi-tassi-di-vaccinazione/)
 
-参考链接：[臺灣海峽兩岸關係史](https://zh.m.wikipedia.org/wiki/臺灣海峽兩岸關係史)
+编辑、上传： Xiao  baige
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

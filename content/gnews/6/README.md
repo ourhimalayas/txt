@@ -2,54 +2,34 @@
 ---
 
 
-## 切尔诺贝利：为什么俄罗斯军队控制了臭名昭著的核灾难现场？—官员说，俄军在火灾后控制了乌克兰北部地区
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2072316/)
+## 联俄两线开火各取所需 中共加速全球自动灭共进程（六）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2072401/)
 
-翻译：sherryok(水云间)
+撰稿：东京樱花团/深藏不露
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2271.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/联俄两线开火各取所需-中共加速全球自动灭共进程（六）.png)
 
+2月26日晚，白宫发出欧盟委员会、法国、德国、意大利、英国、加拿大和美国联合声明。
 
+声明表示：“我们，欧盟委员会、法国、德国、意大利、英国、加拿大和美国的领导人，谴责普京的选择战争和对乌克兰主权国家和人民的袭击，我们承诺确保选定的俄罗斯银行从SWIFT 消息系统中删除。这将确保这些银行与国际金融体系脱节，并损害其在全球运营的能力”。
 
-它是世界上最严重的核灾难的发生地，现在乌克兰官员表示，[切尔诺贝利](https://www-independent-co-uk.translate.goog/topic/chernobyl?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)[核反应堆](https://www-independent-co-uk.translate.goog/topic/nuclear-reactor?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)周围的地区在俄罗斯的控制之下。
+据美国消息人士称，俄罗斯一直无法维持足够的供应线。 据悉，SWIFT系统内拥有近1.1万成员，其中包括近300家俄罗斯银行。专门代理国际制裁事务的律师奥利维尔·多甘斯表示，俄罗斯因对外出口贸易额巨大而严重依赖SWIFT系统，若禁止其使用该系统，俄罗斯银行将会变得非常贫穷。打仗时，兵马一动，粮草必须畅通无阻得到保证，如果无法维持，俄罗斯普京大帝那就一定会败得一塌糊涂！
 
-1986 年 4 月，切尔诺贝利核电站的反应堆在一次测试中丢人现眼地意外熔化，将[欧洲](https://www-independent-co-uk.translate.goog/topic/europe?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)大部分地区覆盖在放射性云中。
+得道多助 失道寡助！据消息人士透露，土耳其要关闭海峡来支持乌克兰，如果土耳其要是关闭海峡，俄罗斯的黑海舰队就废了，俄罗斯的影响力依靠黑海舰队经过土耳其的达达尼尔海峡和博斯普鲁斯海峡，及希腊的爱琴海到达地中海和欧洲。
 
-当时，[乌克兰](https://www-independent-co-uk.translate.goog/topic/ukraine?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)仍然是苏联的一部分，直到今天，该地点周围还存在一个高度保护的 20 英里禁区，其中埋藏着大量危险的核材料。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/联俄两线开火各取所需-中共加速全球自动灭共进程（六）-2.png)
 
-那么，为什么弗拉基米尔·普京（Vladimir Putin）会优先考虑由他的推进部队占领和控制该地区呢？
+如果土耳其的这两条海峡关闭，俄罗斯基本就没有出海口了，北约就关门打熊了！乌克兰总统泽连斯基推特上说：我感谢我的朋友埃尔多安和土耳其人民的强烈支持。禁止俄罗斯军舰通过黑海以及对乌克兰的重大军事和人道主义支持在今天是极其重要的。乌克兰人民将永远不会忘记这一点!
 
-俄罗斯国王学院冲突与安全方面的教授 Tracey German 告诉*《独立报》* ，这可能与该地点的位置有关。
+据NEXTA电视频道提供的最新消息显示，5000名士兵拒绝接受普京的命令，去乌克兰境内作战！俄罗斯白俄罗斯发生了军事起义。士兵们拒绝参加对乌克兰的入侵！
 
-“它位于从白俄罗斯到基辅的直接路线上，是从北方入侵的俄罗斯军队的必经之路，”她说。“如果它不在这个位置，我认为俄罗斯军队不会寻求占领它。”
+普京从习近平那里得到钱后，普京估计最多24小时拿下乌克兰！万万没想到，补给不足的俄军会陷入深深的泥潭之中！乌克兰顶住了俄军攻势，民族英雄总统泽连斯基和拳王市长，还有无数的战斗英雄和正义人士，士气高涨斗志昂扬，加上西方源源不断的战备物质和先进武器供应，狡黠的普京大帝将马失前蹄 兵败滑铁卢！
 
-废弃的核设施位于乌克兰北部，距边界仅几英里，距[陷入困境的乌克兰首都](https://www-independent-co-uk.translate.goog/news/world/europe/russia-invasion-ukraine-kyiv-latest-war-b2023118.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)以北约 80 英里。
+一念天堂，一念地狱。再次奉劝中共“战略家”习近平立即放弃攻打台湾，解体邪恶的中共政权，用事实见证江山是人民的善良初心，抛弃中国人民的宿敌北极熊，开启与美国重回友好的通道，真真正正给中国人民一人一票的选举的权力！
 
-“切尔诺贝利是从[俄罗斯](https://www-independent-co-uk.translate.goog/topic/russia?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)到基辅的最短路线。设施不是目标，”CNN 分析师和国家安全专家 Juliette Kayyem 在推特上写道。
-
-乌克兰观察家还说，切尔诺贝利位于普里皮亚季河的西侧，该河与基辅以北的第聂伯河汇合。因此，如果俄罗斯军队想包围城市，该地点对俄军西侧具有重要的战略意义。
-
-伦敦国王学院战争研究系研究员罗斯·皮尔博士表示[，战争](https://www-independent-co-uk.translate.goog/news/world/europe/russia-ukraine-war-map-invasion-b2022826.html?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)带来的威胁也可能是原因之一。
-
-“我认为主要动机是他们希望确保该地区的安全。它根本不发电，也没有我能想到的任何价值——我认为主要动机是他们希望保护它免受任何可能破坏它的东西的影响，”他告诉*《独立报*》 。
-
-“该地区的长期战斗只会造成保护罩被破坏和辐射泄漏的危险，因此他们希望防止任何事情发生。”
-
-但乌克兰核机构和内政部周五表示，他们记录到废弃核电站现场的辐射水平增加。
-
-国家核机构的专家表示，这一变化是由于该地区重型军事设备的移动将放射性尘埃带到了空气中。
-
-内政部表示：“目前这对基辅来说并不重要，但我们正在监控。”
-
-其他观察家表示，俄罗斯希望获得切尔诺贝利核电站的控制权，该核电站为白俄罗斯和俄罗斯西部部分地区提供能源。
-
-曾在美国驻基辅大使馆工作的 Shane Partlow 表示，这可能是控制切尔诺贝利地区的目的，因为该核电站“对该地区的电力供应至关重要，包括白俄罗斯和俄罗斯”。
-
-新闻链接： [Chernobyl: Why did Russian troops take control of infamous nuclear disaster site? | The Independent](https://www.independent.co.uk/news/world/europe/chernobyl-nuclear-power-plant-russia-why-b2023833.html)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,40 @@
 ---
 
 
-## 中共习近平和俄罗斯普京通话
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2072340/)
+## 乌克兰激烈抵抗俄军再次轰炸基辅
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2072426/)
 
-作者：银河系农场—骄子
+##### 整理：围剿维尼熊
+编辑：Mttfly
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/基辅周六.jpg)星期六，一名乌克兰士兵在基辅的一条街道上走过，一辆军用卡车的残骸还在燃烧。图片：Efrem Lukatsky / AP &雅典娜设计组
+根据纽约时报中文网2月27日报道，俄罗斯入侵乌克兰的战事进入第三天，乌克兰国防军和平民志愿者与俄军在街头展开激烈战斗。
 
+周六晚，俄罗斯军队再次轰炸乌克兰首都基辅，此前双方武装在该市周围已经进行了一天的激战。美国官员表示，集结在乌克兰周围的逾15万俄罗斯军队中的大多数现在都在该国作战，但这些部队面临着乌克兰的顽强抵抗。
 
-2月25日下午，习近平和俄罗斯普京通话。这是俄罗斯入侵乌克兰之后第一个与其通话的国家。中共大外宣报道说普京祝贺冬奥会圆满成功，且对自己此次入侵乌克兰的原因进行了一番解释，其原因主要是欧美和北约等国背弃明斯克协定不断东扩，对俄罗斯的国家安全造成了巨大的影响，所以俄罗斯就对乌克兰进行了入侵，对无辜的乌克兰老百姓进行了战争大屠杀。
+美国和主要欧洲盟友周六宣布，它们将把某几家俄罗斯银行从SWIFT金融信息系统中移除，基本上禁止它们进行国际交易。
 
-习近平表示普京此举打得好，彰显了俄罗斯作为共产党亲爹的大国风范。但是明明就是欧美不遵守规则，俄罗斯不去找欧美等国家解决，反而选择去揍最弱小的乌克兰，难道乌克兰的人命就不是人命，就应该被揍？习近平还表示国际社会，尤其是和欧美等国，不可能再寻求一种和平发展的态势了，现在就是你死我活的状态，并且会沿袭和俄罗斯一样的战略，挑那个最弱小的揍，下一个就是台湾。
+据乌克兰国民警卫队称，俄罗斯军队已造成至少198人死亡，其中包括三名儿童，另有包括33名儿童在内的1115人受伤。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-417.jpeg)图片来源：路透社/法新社
+根据联合国的数据，本周有超过15万难民逃离乌克兰，其中许多人正前往波兰边境口岸。
 
-参考链接：[https://www.sohu.com/a/525491410\_362042](https://www.sohu.com/a/525491410_362042)
+周六，抗议者在世界各地聚集支持乌克兰，并呼吁俄罗斯停止入侵。在圣彼得堡，俄罗斯警方本周拘留了数百名抗议者。
 
-编辑/校对/发稿：文敬
+谷歌旗下的YouTube周六表示，将暂停今日俄罗斯(RT)和其他俄罗斯国有媒体在其频道上销售广告。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+Twitter表示，它正限制对俄罗斯的一些人提供服务。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+参考链接：[乌克兰最新战局：俄军再次轰炸基辅，遭遇激烈抵抗](https://cn.nytimes.com/world/20220227/ukrainian-forces-fight-back-as-russia-pushes-on-three-cities/)
 
+*发布：Mttfly*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

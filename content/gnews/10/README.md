@@ -2,42 +2,48 @@
 ---
 
 
-## 新中国联邦紧急措施
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2072289/)
+## 聚焦：乌克兰台海危机助攻美国减债和振兴（上）
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2072343/)
 
-作者：香草山-新世界的一员
+作者：丁过
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+编辑与校对：冰糖葫芦喵
 
+著名经济学家、德国马普学院公共财政研究所所长康拉德指出，一个国家的负债越多，借助通货膨胀来减轻债务负担的吸引力就越大。
 
-2月24日郭先生紧急直播，因俄乌开战，担心台湾战争一触即发，心系台湾战友们，国内战友们的安危，呼吁台湾同胞战友尽快做好安全措施和撤离准备工作，呼吁国内战友远离中共的战争地区，军事地点，保护自己，保护家人。提醒联盟把中共军事基地详细地址一览发放战友传阅，早日做出防范措施，避免成为土共的炮灰。要求各农场紧急召开会议，协助、帮助台湾同胞尽快安置到安全地区，聚集战友的力量起到互相扶持互相呼应。
+假如通货膨胀率提高两个百分点，那么这个国家的债务负担就能减轻大约10%。康拉德说，这个手段对于一个政府来说是有多么诱人！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-19.jpg)图片来源：DW.
+当今世界几乎所有的国家都深陷于债务漩涡中无法自拔，以美国为例，至去年底联邦债务逼近30万亿美元，与GDP之比高达130%，远高于60%的安全线，去年用于支付国债利息的支出竟高达4214亿美元。
 
-香草山农场主长岛伟哥火速集结联盟，考虑到目前紧张局势，针对墙内战友和香港、台湾战友撤离需要寻求协助，迅速直播安排各农场开展救缓工作，集合全球有救助资源的战友，为台湾战友，墙内战友做最好的安全部署，联盟公告一出，提供救助资源的战友纷纷行动，提供吃住用行的资源力量层出不穷。
+欧盟、日本等主要经济体的债务状况比美国更严重。
 
-同时纽约香草山及时紧急【热点播报】传播保命，保财！警告远离军事基地！公布了详细的军事设施位置图，要求战友们务必保护自己及家人做出相应的安全措施。
+美国自50年代开始出现政府支出大于收入的结构性问题，债务率不断上升表明收支失衡的状况越来越严重。
 
-二十几个小时，各农场就已经具备了良好的扶持接应工作，美、加地区十个农场团队已经准备就绪，在八个主要城市设有战友接待服务站，给来自台湾、香港、澳门、墙内的爆料革命战友提供全方位的服务。
-新中国联邦为各地战友们及时开启了安全通道！
+两年多以来中共病毒肆虐又加重了全球的债务危机。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-416.jpeg)
+还是用数据来涚话：2月10日，美国劳工部（BLS）发布的数据显示，美国2022年1月CPI同比上涨7.5%，创40年以来的新高，CPI连续第二个月突破7%。
 
-参考链接：[https://gettr.com/post/pwuxixc042](https://gettr.com/post/pwuxixc042)
+对于债券、证券、现金持有者而言，这样的严重通胀无异于被洗劫，但这丝毫不影响美国纵容通胀的行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-415.jpeg)
+众所周知，美联储吸取2008年次贷危机的教训，于2012年实行2%的“对称式通胀目标”，其中的要害就是要将通胀控制在2%以内，即在通胀率达到2%目标区间时，美联储启动政策工具进行加息或减少货币供应量来控制通胀。
 
-编辑/校对/发稿：文敬
+但是，在2020年的全球央行年会上，[美联](http://quote.eastmoney.com/us/METX.html?Market=NASDAQ)储主席鲍威尔宣布正式引入“平均通胀目标”，简单说就是美联储在“一段时间内”允许通胀率超出2%。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/0_202007220805311Z3QB.jpg)美联储（图片来源:网络）
+其深层原因就是美联储需要通过纵容通胀来为美国政府减轻债务负担。当然，私营部门的债务负担也很大，也需要稀释，股市也需要通胀环境。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+回顾历史，总是看到美国是天生的战略高手：二战后美国就成功地通过一种经济强劲增长和较高
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+而乌克兰战争和即将爆发的台海战争，为美国减轻债务和重新振兴提供了契机，美国不会浪费这样的宝贵机会。
 
+**新闻链接：**
 
+[https://www.dw.com/zh/%E6%B0%B8%E6%81%92%E8%AF%B1%E6%83%91%E5%9B%BD%E5%AE%B6%E6%80%8E%E6%A0%B7%E5%88%A9%E7%94%A8%E9%80%9A%E8%83%80%E6%9D%A5%E5%87%8F%E5%80%BA/a-16292178](https://www.dw.com/zh/%E6%B0%B8%E6%81%92%E8%AF%B1%E6%83%91%E5%9B%BD%E5%AE%B6%E6%80%8E%E6%A0%B7%E5%88%A9%E7%94%A8%E9%80%9A%E8%83%80%E6%9D%A5%E5%87%8F%E5%80%BA/a-16292178)
 
+[https://www.bbc.com/zhongwen/simp/business-60345552](https://www.bbc.com/zhongwen/simp/business-60345552)
+
+[https://www.reuters.com/article/graphic-ukraine-russia-crisis-market-022-idCNKBS2KQ071](https://www.reuters.com/article/graphic-ukraine-russia-crisis-market-022-idCNKBS2KQ071)
+
+[https://3g.163.com/dy/article/H08SHV6J05509P99.html?referFrom=google&spss=adap\_dy](https://3g.163.com/dy/article/H08SHV6J05509P99.html?referFrom=google&amp;spss=adap_dy)
 
  
 

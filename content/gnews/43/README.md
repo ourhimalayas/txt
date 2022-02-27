@@ -2,56 +2,38 @@
 ---
 
 
-## Steve Cortes认为中共入侵台湾的风险正在急剧上升
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2068947/)
+## 新英格兰卡车司机组队抗议政府政策
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2069895/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+撰稿：玄鸟
+校对：Streamline
+上传：无明逆流
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+来自新英格兰六个州的快速组建的卡车车队，将很快沿着该地区的海岸线前进，与华盛顿的其他卡车司机一起，抗议“与新冠病毒有关的强制令”和其他无数联邦政府指令，以及一些地方指令。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2491.png)图片来源：Mario Tama/Getty Images
+卡车抗议活动的组织者告诉《大纪元时报》，他们组建的“东北自由车队”（Freedom Convoy Northeast）将于3月2日从缅因州北部出发，计划与佛蒙特州，新罕布什尔州，马萨诸塞州，康涅狄格州和罗德岛州的车队会面。
 
-2月25日，美国前总统川普2016和2020年竞选团队高级顾问Steve Cortes在参加Steve Bannon的[The War Room](https://warroom.org/)时，从经济的角度分析，中共入侵台湾的风险正在急剧上升。
+卡车司机兼该组织的主要组织者詹姆斯·安布罗西诺（James Ambrosino），在接受《大纪元时报》独家采访时表示，纽约和宾夕法尼亚州的卡车司机也将成为东北车队的一部分。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/steve-cortes-taiwan-1-1.jpg)
+安布罗西诺说，抗议的原因是为了夺回美国。
 
-Steve Cortes是 1970年出生于美国伊利诺伊州（illioins）南芝加哥的哥伦比亚后裔，著名市场策略师、作家和电视节目主持人，Bloomberg Business, CNBC及Fox News评论员，Veracruz LLC.创始人。2016年和2020年，担任川普竞选团队顾问。
+“我们的政府长期以来一直与美国人民脱节，无论是左翼还是右翼，他们都与工人阶级脱节，”他说。 “人们厌倦了被政府告知如何生活和做什么，特别是当他们被告知‘5岁的孩子如果想上学必须戴口罩时’。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/E2Qh5AeWQAIz6rV.jpg)
+安布罗西诺说，卡车司机正在举行抗议活动，他们意识到抗议活动能够引起政府的注意。
 
-Steve Cortes在班农节目中说，由于白宫有一个软弱的领导人，西方现在甚至不愿意对莫斯科（入侵乌克兰）采取严肃的行动，中共和俄罗斯这个邪恶轴心的兴起，中共内部越来越有底气可以在台湾采取行动。中共进攻台湾的时机可能已经成熟。
+“没有卡车，就没有供应，”他说。
 
-市场方面，台湾半导体（Taiwan Semiconductor Mfg. Co. Ltd.，台积电）是世界上最大的公司之一，市值5000亿美元，员工50,000人，绝对是美国和全世界的芯片生产中心。
+安布罗西诺强调，卡车司机们正在组织一次有规则的和平的游行，计划在限速内行驶，彼此保持安全距离，在最右边的车道上单线行驶，并为路上的其他驾驶者让路。
 
-台积电的股价自1月14日以来的五个星期，正式进入熊市，由当时的最高点145美元下跌到110美元，昨天甚至下探至全年最低点104美元。
+据安布罗西诺说，卡车司机的主要倡议是向联邦政府施加压力，要求废除“紧急使用授权（EUA）”，该授权被政府用来快速跟踪新冠疫苗，然后强制人们接种。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-26_17-00-55.png)
+他谈到了“紧急使用授权（EUA）”，在9/11之后的 “反恐战争 ”下是如何起源的，以及原本打算利用EUA来“加速保护美国士兵免受敌方的生物恐怖主义威胁的意图”。
 
-Steve Cortes认为，台湾半导体绝对是一个风向标，告诉我们中共入侵台湾的风险正在急剧上升，一旦台湾开战，乌克兰局势就显得平淡无奇了，台湾将成为全世界关注的热点。
+“EUA在设立之初，美国政府从来没有打算用它来绕过法律，宪法，并像现在这样来控制民众，”安布罗西诺说。
 
-在俄罗斯入侵乌克兰之后，美国总统拜登前天宣布，制裁4 家俄罗斯银行，但不会制裁俄罗斯石油，甚至在三天前，拜登冻结了美国所有新的石油和天然气钻探项目。
+东北车队正在规划一条路线：从缅因州的班戈开始，然后沿着该州300英里长的95号州际公路前进。
 
-中共外交部在回答路透社记者“为应对欧盟和美国对俄罗斯实施的制裁，中方会增加采购俄罗斯石油吗？”提问时说，“我们一贯反对任何非法单边制裁。我们要求有关方在处理乌克兰问题和对俄关系时，不得损害中方和其他方面正当权益。中俄之间本着相互尊重、平等互利的精神开展正常的贸易合作。”
-
-翻译成人话就是，中共反对对俄罗斯制裁，无论国际社会如何制裁，中俄邪恶轴心不会改变，中共将一如既往的向俄爹输送利益！
-
-2月25日下午，习猪头同俄罗斯总统普京通电话，习太阳说，中共“根据乌克兰问题本身的是非曲直决定中方立场”，要“摒弃冷战思维”！看来习猪头真想打热战！
-
-参考数据：
-
-[Steve Cortes Reveals Major Signal of Communist China’s Move on Taiwan (VIDEO)](https://www.thegatewaypundit.com/2022/02/steve-cortes-reveals-major-signal-communist-chinas-move-taiwan-video/)
-
-[习近平同俄罗斯总统普京通电话](https://www.mfa.gov.cn/zyxw/202202/t20220225_10645684.shtml)
-
-[2022年2月25日外交部发言人汪文斌主持例行记者会](https://www.mfa.gov.cn/fyrbt_673021/202202/t20220225_10645686.shtml)
-
-[俄罗斯精锐近卫军杀进乌克兰首都基辅！中国撂下一句狠话！](https://www.163.com/dy/article/H14R7EN80552FDOB.html)
-
-[Taiwan Semiconductor Mfg. Co. Ltd.](https://www.tsmc.com/english)
-
-[Steve Cortes Biograph & Age, Wiki, Height, Weight, Girlfriend, Family & More](https://www.marathi.tv/political-analyst/steve-cortes/)
-
-[Steve Cortes CNN, CNBC, Wiki, Bio, Age, Birth Place, Wife, Kids, Trump, Salary and Net Worth](https://www.wiki.ng/en/wiki/steve-cortes-cnn-cnbc-wiki-bio-age-birth-place-wife-kids-trump-salary-and-net-worth-480614)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+信息来源：[New England Truckers Getting Ready to Protest Against Government Policies](https://www.ntd.com/new-england-truckers-getting-ready-to-protest-against-government-policies_744843.html)
 
  
 
