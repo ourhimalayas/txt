@@ -2,41 +2,18 @@
 ---
 
 
-## 毁掉中华民族传统道德文化的文革“破四旧”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2075542/)
+## 秘翻在线：朝鲜寻求拥核正当化
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2075561/)
 
-作者：纽约香草山农场教育部-马克文、朱丽叶
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-新中国联邦近期推出G-EDU，目的在于利用教育来消除中共国乃至整个世界的社会不平等。在本期节目中，我们将顾中共“破四旧” 的历史，揭露中共消灭中国传统文化，反社会反人格的邪教真相：
+撰稿：文贺JP
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-412.jpg)图片来源：本文链接
+朝鲜以俄罗斯入侵乌克兰为时机，进一步向核开发迈进，并宣言不要重蹈乌克兰的覆辙。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide13-2.jpeg)
+全世界新的军备竞赛恐拉开序幕。
 
-1966年6月1日，中共在其喉舌《人民日报》发表社论《横扫一切牛鬼蛇神》，提出“无产阶级文化革命，宣称要彻底破除几千年来，一切剥削阶级所设计的毒害人民的旧思想、旧文化、旧风俗、旧习惯”的口号。8月8日，《十六条》明确规定“破四旧”、“立四新”是文革的重要目标。在中共“破四旧”的号召下，红卫兵把中华几千年留下的文物古迹、庙宇、字画、道德文化损毁殆尽。
+信息来源：[https://www.sankei.com/article/20220227-YIGHDQ3KLZKONDBPAJSFFOUXLM/](https://www.sankei.com/article/20220227-YIGHDQ3KLZKONDBPAJSFFOUXLM/)
 
-1966年8月17日夜,北京二中红卫兵草拟大字报，宣布要“砸烂一切旧思想、旧文化、旧风俗、旧习惯”。8月18日，毛泽东在天安门接见红卫兵，并鼓动红卫兵走上街头，将街道改名，冲击寺院、焚毁古迹，捣烂神佛塑像、石碑、牌坊，破坏文物。随后，红卫兵开始大规模的抄家行动，查抄、焚烧藏书、名家字画，红卫兵强迫市民交出他们积攒的所有黄金和白银。甚至，开始无故打人、抄家，用暴力驱逐所谓的地主、富农、反革命、坏分子、右派“五类分子”回原籍，造成巨大的社会混乱和“红色恐怖”。
-
-中共1966年8月23日，《人民日报》发表社论《好得很》，高度评价“破四旧”，倡导全国各地红卫兵迅速效仿。”破四旧”狂潮蔓延全国，同时揪斗学者、文学家、艺术家、科学家等 “资产阶级反动学术权威”等暴力行为成风。
-
-在全国“破四旧”达到高潮时，中华传统文化古迹和国家级文物被毁坏殆尽。全国甚至出现了掘墓潮，中华民族的始祖黄帝陵遭到永久性的毁灭，岳飞坟被捣毁，岳武穆被焚骨扬灰；明代名臣海瑞的坟也被砸掉，一代清官的遗骨被挖出游街示众。中共还禁止信奉宗教，强迫僧尼还俗。
-
-中共窃取政权后，为让青年相信共产主义谎言，有意引导红卫兵毁掉文物古迹，恶意抨击中华民族几千年的道德文化和礼仪风俗、五千年文明毁于一旦。
-
-参考链接：[破四旧](https://zh.wikipedia.org/wiki/破四旧)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Zion文恩
-编辑：Zion文恩
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+责编：Eric Kim
 
  
 

@@ -17,6 +17,18 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/27/2022 4:37 PM (UTC)`
+
+2月27号：中国人的被洗脑和奴隶教育的结果，所造成的危害⚠️是无法想象的。［七哥您好! 中共对在乌中国人不管不顾，已经变成国际性的丑闻。🙏🙏🙏🙏 ］<br/><br/><br/>https://www.voachinese.com/a/china-postpones-evacuation-of-citizens-in-ukraine-20220227/6461796.html?utm_source=twitter&utm_medium=social&utm_campaign=dlvr.it&s=08
+
+---
+
+`@miles 2/27/2022 4:33 PM (UTC)`
+
+2月27号：所有的这些核讹诈最终的结局是什么呢？https://www.politico.com/news/2022/02/27/russia-putin-nuclear-weaponry-00012108
+
+---
+
 `@miles 2/27/2022 3:52 PM (UTC)`
 
 2/26/2022 Miles Guo’s Urgent Livestream: We, the Chinese of the New Federal State of China acting in solidarity in time like this and extend their hands to all Chinese in Ukraine is making me emotional. <br/><br/>2/26/2022 文贵紧急直播：我们新中国联邦的中国人在这样的时候团结一致地行动，向所有华人伸出双手救援，让我很感动。
@@ -140,20 +152,6 @@ February 26th, 2022, Mr. Miles Guo’s Urgent Livestream: our rescue operation i
 `@qifeng 2/26/2022 6:00 AM (UTC)`
 
 2020年俄罗斯最火的反战歌曲<br/>https://youtu.be/RqincLouHsE?t=24
-
----
-
-`@miles 2/26/2022 9:58 PM (UTC)`
-
-2月26日：这是真的吗？［同学抱怨中国撤侨，其他国家是半个月前就撤走了，中国目前为止还没什么动作。<br/>昨天我给她发我看到的消息，中国开始是着手撤侨了。<br/>她说撤侨的号码收到了，号码排四千左右，据说总共六千多号。我开玩笑说还没等到你撤，战争早就结束了。撤侨这事儿国家层面动作缓慢，基本上没什么进展。身边乌克兰人问她，其他国家半个月前就撤侨了，你们中国为什么不撤侨？中国是不是不行了？她不知道怎么回答好。中国人群体本身存在严重的分裂。<br/><br/><br/>目前是各省各市各地区自行解决该地区在乌克兰华人的撤侨问题。比较富裕的省市甚至有办法搞来大巴车把他们城市的人接走到安全的邻国，有的省份城市包了带有地下掩体的酒店再用大巴车把该城市的人接过去，钱是该省市华侨协会等组织自行筹集的资金。甚至福州市的在任市长亲自加入了乌克兰福州聊天群里面，我同学有截屏给我看。这些资源是不向外地人开放的。有些省市聊天群会把非本城市的中国人踢出群，有价值信息就只有本地人共享了，不分享给来自其他城市的人。他们主要是怕该省市派大巴接人的时候，非本省市的人得到时间地点消息后也过去挤占稀缺的大巴车位置并造成混乱。<br/><br/><br/>有些经济实力弱的省市或者在乌克兰人数很少的省市的中国人就倒霉了，因为人数太少无法组成有效的群落，被有人数规模的其他省市的人从聊天群里踢出群，得不到及时有效的信息，被排挤，没人管，非常惨，我同学就是被踢出群了的。她赞扬了一个地方，就是河南。她说河南比较好，不排挤外地人，给予不少帮助和有效信息。七哥您好! 这是一些网友分享的乌克兰现场情况。无法核实信息真假，但很明显中共根本就没撤侨。什么统计发号只是拖延的借口。而且，物价相当惊人，而且非常缺乏。了不］
-![img](https://media.gettr.com/group26/getter/2022/02/26/21/7b3555db-3c6c-65f8-2b9a-56fed65d0cc0/out.jpg)
-
----
-
-`@miles 2/26/2022 9:50 PM (UTC)`
-
-G-EDU立志为世界培养优秀人才，提供优质、前沿的学习机会和发展前景。现面向全球招募热爱教育事业的专业人才，加入我们的团队。同时欢迎世界各地的孩子们来G-EDU报名上课，感受我们的教育理念和专业课堂，共同成长。<br/>G-EDU is an educational organization founded by NFSC in November 2021. We are taking the initiative to build quality teaching platforms. We hereby invite qualified educators who are dedicated to the future of our kids to join our team. <br/><br/>主教老师申请表：<br/>https://docs.google.com/forms/d/e/1FAIpQLSdg7wLDkncI3QuuynWhz7cQScYjV33XzQgB5-z_OpqzM7rYNg/viewform<br/><br/>学生入学申请表：<br/>https://docs.google.com/forms/d/e/1FAIpQLSfG5AInGN7kj2KkbKLq1ZtuazqnJkife1Fvrj3mnKllATNUFw/viewform <br/><br/>apply, please click the link below:<br/>https://docs.google.com/forms/d/e/1FAIpQLSffXsCK9t2rPeY3roFiMGJvWbP3eoukP9d4jMs7_ma6EMjsuQ/viewform?usp=pp_url <br/><br/>欢迎加入G-EDU官方工作平台<br/>Welcome to G-EDU:<br/>https://discord.gg/Dq7p9knV
-![img](https://media.gettr.com/group42/getter/2022/02/26/21/8ffc942f-421a-028e-3501-ed22a2e4e3ae/2b46448b9e228cccaa161c19571b5f01.jpg)
 
 ---
 
