@@ -2,28 +2,30 @@
 ---
 
 
-## 好莱坞明星米拉公开谴责俄罗斯入侵乌克兰
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2072842/)
+## 有声|俄乌战争首日 乌克兰军民137人死亡316人受伤
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2072896/)
 
-撰稿：东京樱花团/百花李香
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
+据乌克兰媒体25日报导，俄罗斯对乌克兰发动大规模军事攻击的第一天，乌克兰共有137名军民丧生，316人受伤。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/好莱坞明星米拉公开谴责俄罗斯入侵乌克兰.jpg)[图片来源](http://red.ap.teacup.com/soliloquy/img/1300278395.jpg)
+乌克兰国防部长表示，东部的顿巴斯仍持续面临俄罗斯的猛烈炮击。
 
-好莱坞明星，原苏联时期出生在乌克兰基辅的米拉-乔沃维奇，2月25日在Instagram上投稿，对俄罗斯军事入侵乌克兰发表声明。
+乌克兰军方曾宣布，俄军北部攻势在切尔尼戈夫被挡住，至少6架敌方定翼机、2架直升机和数十辆装甲车辆被摧毁，但也指出哈尔科夫和南部重要港口刻松等区域发生了激烈战斗。
 
-米拉在声明中写道：对本周在我的祖国乌克兰发生的事件感到心碎和沮丧，我正在努力理解这些新闻。我的国家和生活在那里的人们都被轰炸了，我的朋友和家人都躲起来了。我在俄罗斯和乌克兰都有根。国家被摧毁，人们无家可归，他们原有的生活被粉碎。看到如此恐怖的景象，我被撕成了两半。这让我想起了我父亲的故乡前南斯拉夫的战争，以及我的家人告诉我的创伤和恐怖的事情。战争，永远是战争。不能带来和平的领导人，帝国主义的力量永无止境，而付出血与泪代价的总是人民。
+文字版原文：[俄乌战争首日 乌克兰军民137人死亡316人受伤](https://gnews.org/zh-hans/2067723/)
 
-国家被摧毁，家庭无家可归，他们的生活像木炭一样散落在周围。我被这些可怕的场面撕成了两半。这让我想起了我父亲的故乡–前南斯拉夫的战争，以及我的家人告诉我的创伤和恐怖的事情。战争。永远是战争，不能带来和平的领导者们。帝国主义的力量永无止境。而付出血与泪代价的总是人民。
+音频处理/发稿：Daxia
 
-米拉还在她的个人资料中加入了一个带有 “帮助乌克兰 “标签的链接，以支持乌克兰的团体和组织，包括联合国紧急基金。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-信息源：
-
-[**ウクライナ出身のミラ・ジョヴォヴィッチ、ロシアの軍事侵攻に声明を発表**](https://news.yahoo.co.jp/articles/e05ec73e03ed062c6b5fcae584ac8ac8b786b6e0)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

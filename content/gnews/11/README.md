@@ -2,34 +2,38 @@
 ---
 
 
-## 俄乌开战之际美导弹驱逐舰驶过台湾海峡
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2072746/)
+## 美国医学专家反对全面疫苗计划
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2072863/)
 
-**撰稿：**日本东京方舟农场 子辰
+作者：纽台湾宝岛农场 – dobi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒2月26日报导，在1月24日一个与疫苗有关的座谈会上，美国多位前线医生、医学专家和疫苗受害者，都针对中共病毒疫苗的安全性，即是否应强制人民打疫苗以及孩童是否需要打疫苗等问题表示出高度质疑。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-25.jpg)
+原尔湾分校精神病学副教授和医学伦理学项目主任认为，相关公共卫生部门不想承认政策失败，但事实是大规模接种疫苗并没有抑制病毒传播，甚至奥密克戎变种出现后，美国的感染人数大幅提高了。
 
-据大纪元2月27日报道，俄乌开战之际，台海关系备受关注。26日美国“约翰逊”号导弹驱逐舰驶过台湾海峡，被中共称其为“挑衅”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/021.jpg)（图片来自大纪元）
-美国第七舰队发言人尼古拉斯·林戈（Nicholas Lingo）在一份声明中说，驱逐舰通过台湾海峡，表明美国对自由和开放的印太地区的承诺。美国军队是在国际法允许的任何地方飞行、航行和行动。
+一位曾经的疫苗计划推手则表示，他并不支持全面的疫苗计划，尤其是不能让孩童接种疫苗。
 
-对此，中方声称其为挑衅行为，并对这条通道实施了监控。
-
-随后台湾国防部表示，该船向北航行通过海峡，其部队已监视其通过，表示并没有观察到任何异常情况。
-
-值此俄罗斯入侵乌克兰之际，台湾目前处于高度戒备状态，担心中共可能会试图利用这种情况在台湾采取行动。
-
-据悉，仅在26日就有八架中共飞机包括六架战斗机和歼11战机4架次，歼16有2架次，以及两架运8反潜机飞入台湾防空识别区，该防空识别区位于台湾控制的南海顶端普拉塔斯群岛的东北部。
-
-鉴于此，外界评论，台湾与中国大陆相隔约90英里的水域，如果中共想借此机会入侵台湾，这将给入侵行动带来挑战。而且相比俄罗斯在乌克兰对边境集结来看，中共方面的集结比较缓慢。
-
-此外，外界普遍认为，尽管台湾没有针对防御任务进行优化，但它的攻击机和军舰，更适合对抗中共的两栖部队。
+评论人士认为：所有勇于揭露或试图力挽疫苗灾难狂澜、有良知的科学家、医生、学者或是疫苗受害者等都是值得肯定的，邪恶的疫苗计划必须尽快摧毁，以避免更大的人类灾难。
 
 参考链接：
-[https://www.epochtimes.com/b5/22/2/26/n13607653.htm](https://www.epochtimes.com/b5/22/2/26/n13607653.htm)
 
-素材采编：子辰
-编辑：老孙
-发布：Linda
+- [醫學家雲集 談自然免疫和接種疫苗免疫（上）](https://www.epochtimes.com/b5/22/2/26/n13606046.htm)
+- [來自頂級免疫學家的怒吼—“歷史必將對疫苗狂人進行審判”](https://gnews.org/zh-hant/1854776/)
 
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,98 +2,44 @@
 ---
 
 
-## 2月26日白宫发布美欧关于SWIFT制裁俄罗斯的声明全文
-` 经济小组` [轉載自GNews](https://gnews.org/zh-hans/2072612/)
+## 乌克兰外长呼吁世界各国将俄罗斯逐出SWIFT系统
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2072657/)
 
-翻譯：日本東京方舟農場  感謝郭叔
+![SWIFT](https://www.newsmax.com/CMSPages/GetFile.aspx?guid=1fe53ca5-7bc2-4803-b821-7f13e8bd9b6b&amp;SiteName=Newsmax&amp;maxsidesize=600)资料图
+来源于《新闻极限》网站2022年02月25日的报道，美国和欧洲官员正在保留对俄罗斯的一项关键的金融制裁，选择不把俄罗斯从全球金融交易的主导系统“环球银行金融电信协会”(SWIFT)中除名。
+周四，俄罗斯对乌克兰的入侵引发了一系列新的金融制裁。从长远来看，制裁旨在长期孤立、惩罚并使俄罗斯陷入贫困。拜登总统宣布限制对俄罗斯的出口，并对俄罗斯银行和国有企业实施制裁。
+但拜登刻意地淡化了阻止俄罗斯进入SWIFT的必要性，称虽然它“始终”仍然是一种选择，但“目前这不是欧洲其他国家希望采取的立场”。他还表示，正在实施的制裁措施将更加有效。
+乌克兰外交部长周四敦促各国禁止俄罗斯进入SWIFT全球银行间支付系统——这是西方可能实施的最严厉的非军事制裁之一——以惩罚俄罗斯向乌克兰派遣军队。
+事实上，包括英国在内的一些欧洲领导人赞成采取额外措施，阻止俄罗斯进入 SWIFT，这是一家总部位于比利时的财团，被银行和其他金融机构用作全球商业的关键通信渠道。去年，这个SWIFT系统平均每天发送4200万条信息以实现支付。该名称是“环球银行金融电信协会”(Society for Worldwide Interbank Financial Telecommunications)的首字母缩写，所有跨境高价值支付中约有一半通过其平台进行。
+英国政府表示，首相鲍里斯·约翰逊(Boris Johnson)周四在七国集团世界领导人的一次视频会议上推动将俄罗斯踢出SWIFT。它说“没有阻力”，但一致认为需要进行更多讨论。英国官员不愿证实德国正在抵制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/05/s2.jpg)
+美国国会议员呼吁拜登部署一切可用的金融制裁措施，参议院共和党领袖米奇·麦康奈尔(Mitch McConnell)周四表示，美国应该“一路加大制裁力度。不要退缩。每一个可用的严厉制裁都应该被采用，而且现在就应该被采用。”
+但参议院外交关系委员会共和党领袖、爱达荷州参议员吉姆·里施（Jim Risch）表示，SWIFT 禁令将是复杂且耗时的，部分原因是美国无法控制该决定。
+问题是，禁止俄罗斯进入SWIFT可能不会像支持者认为的那样干净利落地将其与全球经济隔离开来。此外，这也可能会对国际经济增长放缓带来反弹。竞争对手的通信系统可能会以削弱美元实力的方式获得用户——所有这些都让SWIFT成为待部署的制裁。
+另一个风险是各国可能将其机构迁移到SWIFT以外的平台，例如中共国开发的系统。这将增加全球商业的摩擦——损害增长——并使监控恐怖组织的财务变得更加困难。
+2014年，伊朗因其核计划而被SWIFT系统拒之门外。2019年，时任俄罗斯总理德米特里·梅德韦杰夫(Dmitry Medvedev)表示，失去对SWIFT的访问权限将类似于对俄罗斯宣战。梅德韦杰夫的声明表明，俄罗斯将该平台视为一个致命弱点，并开发了限制任何经济损失的变通方法。
+前财政部高级顾问阿里·雷德博德(Ari Redbord)表示，他预计俄罗斯领导层将通过增加使用加密货币来绕过限制其参与全球金融体系能力的金融处罚。“如果俄罗斯银行完全脱离美国和欧洲的金融系统，那将大大削弱这些银行和俄罗斯经济。”他说，即使有来自欧盟和美国的削弱性制裁，俄罗斯政府也会使用替代手段与其他国家进行贸易。
+简评：
+俄国侵略乌克兰，世界各国不仅没有派兵增援乌克兰，甚至在对俄罗斯的经济制裁上也是不痛不痒。美国参议院共和党领袖米奇·麦康奈尔表示，针对俄罗斯，美国每一个可用的严厉制裁措施都应该被采用，加大制裁力度……而现状却是美国及欧洲的政客还在讨论和争执是否需要将俄罗斯踢出SWIFT系统。
+俄国入侵乌克兰是很多国家和利益集团所希望的，这不仅能掩盖各国因新冠病毒被打垮的国内经济现状，同时大资本家、金融大鳄、军火商还能从中捞钱。正如美国前国务卿彭佩奥在福克斯说的那样，乌克兰战事原本可以避免。回想川普执政四年，俄乌没有战争，中东局势稳定，以色列增多个穆斯林邦交国，北韩也没发射飞弹。恐怖分子头目被斩首，伊朗也有收敛，这种局面如今已然不在。
+现在世界各国对俄罗斯的制裁，都将直接影响到中共对台湾的态度。今天联合国安理会表决谴责俄国入侵乌克兰，俄国动用了否决权。明明是公然侵略，却因它自己拥有否决权，导致威胁到其利益的任何提案都很难通过。如此，将来中共武力犯台，联合国也将同样没法阻止。希望以美国为首的西方国家看懂，如果纵容中共和俄罗斯为所欲为，当下基于规则的国际秩序被颠覆将成为一种必然，覆巢之下，未有完卵。对整个世界秩序的破坏，将祸及全世界各个国家和人民，美欧也不会例外。世界各国需要早日做出决定，彻底制止中俄极权主义扩张的步伐，不可因短视而导致未来全世界人民为此付出更大的代价！
 
+新闻链接：[https://www.newsmax.com/finance/streettalk/ukraine-invasion-russia-u-s-swift/2022/02/25/id/1058456/](https://www.newsmax.com/finance/streettalk/ukraine-invasion-russia-u-s-swift/2022/02/25/id/1058456/)
 
+翻译/简评：Brianchow
 
-摘要：欧盟委员会、法国、德国、意大利、英国、加拿大和美国的领导人与乌克兰政府和乌克兰人民站在一起，谴责普京选择战争。俄罗斯需要为这场战争付出代价。
-
-随着俄罗斯军队对基辅和其他乌克兰城市发动攻击，欧盟委员会、法国、德国、意大利、英国、加拿大和美国的领导人与乌克兰政府和乌克兰人民站在一起，决定：1、把选定的俄罗斯银行踢出SWIFT系统；2、采取限制性措施，防止俄罗斯中央银行破坏制裁影响的方式；3、对助长乌克兰战争和俄罗斯政府有害活动的个人和实体采取行动，限制向其出售公民身份，阻止其进入我们国家的金融系统；4、在下周启动一个跨大西洋特别工作组，查明和冻结在我们管辖范围内的受制裁个人和公司的资产。制裁更多的俄罗斯官员和与俄罗斯政府关系密切的精英及其家人以及他们的推动者，识别和冻结他们在我们管辖范围内持有的资产，以及和其他政府合作，阻止被制裁者在世界各地隐藏资产；5、加强或协调打击虚假信息和其他形式的混合战争。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7b4829a39d5042af8d286fe6a5e68c34_th.jpeg)
-
-* * *
-
-* * *
-
-### 关于进一步限制性经济措施的联合声明
-
-我们，欧盟委员会、法国、德国、意大利、英国、加拿大和美国的领导人，谴责普京选择的战争以及对乌克兰主权国家和人民的攻击。我们与乌克兰政府和乌克兰人民站在一起，支持他们英勇抵抗俄罗斯入侵。俄罗斯的战争是对自第二次世界大战以来盛行的基本国际规则和规范的攻击，我们致力于捍卫这些规则和规范。我们将追究俄罗斯的责任，并共同确保这场战争是普京的失败战略。
-
-过去一周，除了我们为保卫我们自己的边境和协助乌克兰政府和人民战斗的外交努力和集体努力之外，我们以及我们在世界各地的其他盟国和合作伙伴对俄罗斯的主要机构、银行和这场战争的策划者们采取了严厉措施，包括俄罗斯总统弗拉基米尔·普京（Vladimir Putin）。
-
-随着俄罗斯军队对基辅和其他乌克兰城市发动攻击，我们决心继续对俄罗斯施加代价，这将进一步将俄罗斯与国际金融体系和我们的经济隔离开来。我们将在未来几天内实施这些措施。
-
-具体而言，我们承诺采取以下措施：
-
-首先，我们承诺确保将选定的俄罗斯的银行从 SWIFT 信息系统（SWIFT massaging system）中删除。这将确保这些银行与国际金融体系脱节，并损害其在全球运营的能力。
-
-其次，我们承诺采取限制性措施，防止俄罗斯中央银行利用其国际储备以破坏我们制裁影响的方式。
-
-第三，我们承诺对助长乌克兰战争和俄罗斯政府有害活动的个人和实体采取行动。具体来说，我们承诺采取措施限制出售公民身份——所谓的黄金护照——让与俄罗斯政府有联系的富有的俄罗斯人成为我们国家的公民并进入我们的金融系统。
-
-第四，我们承诺在下周启动一个跨大西洋特别工作组，通过查明和冻结在我们管辖范围内的受制裁个人和公司的资产，确保有效实施我们的金融制裁。作为这项工作的一部分，我们致力于对更多的俄罗斯官员和与俄罗斯政府关系密切的精英及其家人以及他们的推动者采取制裁和其他金融和执法措施，以识别和冻结他们在我们管辖范围内持有的资产. 我们还将与其他政府合作，努力发现和破坏不义之财的流动，并阻止这些人将其资产隐藏在世界各地的司法管辖区。
-
-最后，我们将加强或协调打击虚假信息和其他形式的混合战争。
-
-在这个黑暗的时刻，我们与乌克兰人民站在一起。除了我们今天宣布的措施之外，我们还准备采取进一步措施，让俄罗斯为其对乌克兰的袭击负责。
-
-参考链接：
-
-[https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/26/joint-statement-on-further-restrictive-economic-measures/](https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/26/joint-statement-on-further-restrictive-economic-measures/)
+PR：Harvey（叶知秋）
 
 * * *
 
-* * *
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-以下为英文原文：
 
-### **Joint Statement on Further Restrictive Economic Measures**
+编辑：【英国伦敦喜庄园编辑部】
 
-We, the leaders of the European Commission, France, Germany, Italy, the United Kingdom, Canada, and the United States condemn Putin’s war of choice and attacks on the sovereign nation and people of Ukraine. We stand with the Ukrainian government and the Ukrainian people in their heroic efforts to resist Russia’s invasion. Russia’s war represents an assault on fundamental international rules and norms that have prevailed since the Second World War, which we are committed to defending. We will hold Russia to account and collectively ensure that this war is a strategic failure for Putin.
-
-This past week, alongside our diplomatic efforts and collective work to defend our own borders and to assist the Ukrainian government and people in their fight, we, as well as our other allies and partners around the world, imposed severe measures on key Russian institutions and banks, and on the architects of this war, including Russian President Vladimir Putin.
-
-As Russian forces unleash their assault on Kyiv and other Ukrainian cities, we are resolved to continue imposing costs on Russia that will further isolate Russia from the international financial system and our economies. We will implement these measures within the coming days.
-
-Specifically, we commit to undertake the following measures:
-
-First, we commit to ensuring that selected Russian banks are removed from the SWIFT messaging system. This will ensure that these banks are disconnected from the international financial system and harm their ability to operate globally.
-
-Second, we commit to imposing restrictive measures that will prevent the Russian Central Bank from deploying its international reserves in ways that undermine the impact of our sanctions.
-
-Third, we commit to acting against the people and entities who facilitate the war in Ukraine and the harmful activities of the Russian government. Specifically, we commit to taking measures to limit the sale of citizenship—so called golden passports—that let wealthy Russians connected to the Russian government become citizens of our countries and gain access to our financial systems.
-
-Fourth, we commit to launching this coming week a transatlantic task force that will ensure the effective implementation of our financial sanctions by identifying and freezing the assets of sanctioned individuals and companies that exist within our jurisdictions. As a part of this effort we are committed to employing sanctions and other financial and enforcement measures on additional Russian officials and elites close to the Russian government, as well as their families, and their enablers to identify and freeze the assets they hold in our jurisdictions. We will also engage other governments and work to detect and disrupt the movement of ill-gotten gains, and to deny these individuals the ability to hide their assets in jurisdictions across the world.
-
-Finally, we will step up or coordination against disinformation and other forms of hybrid warfare.
-
-We stand with the Ukrainian people in this dark hour. Even beyond the measures we are announcing today, we are prepared to take further measures to hold Russia to account for its attack on Ukraine.
-
-Reference：
-
-[https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/26/joint-statement-on-further-restrictive-economic-measures/](https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/26/joint-statement-on-further-restrictive-economic-measures/)
-
-编辑：纽约香草山农场 ILOVE战神
-
-校对/发稿：飞虹
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

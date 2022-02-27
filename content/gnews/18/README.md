@@ -2,26 +2,37 @@
 ---
 
 
-## 俄军残杀乌克兰平民！瑞莎悲痛怒呛：天啊！俄罗斯你们够了没？
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2072670/)
+## 乌克兰版“六四坦克人”视频曝光
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2072840/)
 
-俄罗斯总统普京24日下令入侵乌克兰，对乌克兰首都基辅等城市展开砲火攻击，引起国际关注。来自乌克兰的女星瑞莎接到家乡惨遭攻击的噩耗后，十分担心。她近日在关注乌克兰当地战况，25日更转发一则俄罗斯战机攻击乌克兰平民住宅的影片，崩溃写下：天啊！俄罗斯你们够了没？
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据台湾媒体2月26日报道，在俄罗斯大举侵略乌克兰的时刻，一名乌克兰人以肉身阻挡俄罗斯装甲车的视频在网络疯传，其画面让人不禁联想到北京“八九六四”事件中，著名的“坦克人”场景。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/phpoVvSiK.jpg)图片来源：自由时报
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-40.jpg)
 
-瑞莎先前也和失联的乌克兰家人联系上，坦言自己相当担心，她说：一直不敢相信这么善良的乌克兰人会遇到这种事，奶奶前一天晚上自己打来了，然后一直哭，没听过她哭，我第一次听到了，她一直问为什么？ 为什么要这样？ 问我们该怎么办，我们完全不知道该怎么帮他们，奶奶目前都在家裡，不敢出门买菜，担心过几天就会没食物了，他们也不敢去捷运站里的防空洞。
+该视频画面显示，一排俄罗斯装甲车队正行驶在乌克兰街头，一名疑似乌克兰平民的男子站在车队的必经路线上，试图以肉身阻挡进犯的敌军。该男子除了阻挡装甲车以外，还用类似石块等的物体向装甲车抛掷。随后他还攀上了一辆装甲车的左前侧部位，试图阻止车辆行进。其它俄军装甲车见状急忙躲避，并未与该男子发生碰撞。
 
-简评：家乡受难，起身站出来义不容辞，为乌克兰女星瑞莎点赞！针对俄乌危机的人道救援，新中国联邦立刻成立了紧急救援小组，遵循国际联合宪章和新中国联邦宣言，尽可能的救助战火中的人们，提供生活所必须的援助。救人第一，刻不容缓！
+视频中该男子虽然未对俄国军车造成有效伤害，但乌克兰人在绝望中尝试保卫家园的精神，已传遍网络，并引发了全球网友热议。
 
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1076986)
+参考链接：
 
-撰稿/发布：一叶知秋
+- [絕望！烏克蘭人肉身擋俄軍裝甲車 激似「六四坦克人」影片曝光](https://news.ltn.com.tw/news/world/breakingnews/3841945)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
