@@ -15,131 +15,131 @@
 
 ---
 
-### [有声|美国驱逐俄驻美第二号外交官](/content/gnews/1/README.md)
+### [大直播后记：新中国联邦人展示了中国人是有心的竹子](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|面对](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [大直播后记：中共可能对台湾围而不打](/content/gnews/2/README.md)
+### [有声|温哥华发生两名华人遇害事件](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [有声|美国驱逐俄驻美第二号外交官](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [大直播后记：中共可能对台湾围而不打](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [大直播后记：战争疫苗灾难恶性通胀，民不聊生导致排华](/content/gnews/3/README.md)
+### [大直播后记：战争疫苗灾难恶性通胀，民不聊生导致排华](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [父母就是第一个被孩子超越的人（二）](/content/gnews/4/README.md)
+### [父母就是第一个被孩子超越的人（二）](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [父母就是第一个被孩子超越的人（一）](/content/gnews/5/README.md)
+### [父母就是第一个被孩子超越的人（一）](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [2022年2月27日《樱花简报》：日本第六轮疫情恐致5500余人死亡](/content/gnews/6/README.md)
+### [2022年2月27日《樱花简报》：日本第六轮疫情恐致5500余人死亡](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥隐居山林就是全心搞教育](/content/gnews/7/README.md)
+### [七哥隐居山林就是全心搞教育](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [GEDU是国际化教育](/content/gnews/8/README.md)
+### [GEDU是国际化教育](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [GEDU没有任何利益谋图之心](/content/gnews/9/README.md)
+### [GEDU没有任何利益谋图之心](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [GEDU教育基金](/content/gnews/10/README.md)
+### [GEDU教育基金](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [GEDU校长和老师的福利待遇](/content/gnews/11/README.md)
+### [GEDU校长和老师的福利待遇](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [20220225文贵大直播：新中国联邦给的财富是让人看清真相解决贪嗔痴慢疑](/content/gnews/12/README.md)
+### [20220225文贵大直播：新中国联邦给的财富是让人看清真相解决贪嗔痴慢疑](/content/gnews/15/README.md)
  ` Tokyo Sakura Video Group`
 
-### [老师是替天行道者](/content/gnews/13/README.md)
+### [老师是替天行道者](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [行政管理和教育团队必须分离](/content/gnews/14/README.md)
+### [行政管理和教育团队必须分离](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [20220225文贵大直播：世界的动荡将导致与法币共存的区域数字货币](/content/gnews/15/README.md)
+### [20220225文贵大直播：世界的动荡将导致与法币共存的区域数字货币](/content/gnews/18/README.md)
  ` Tokyo Sakura Video Group`
 
-### [找到稳定校长和老师](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [20220225文贵大直播：这次是海洋文明与陆地文明的再一次重创与PK！](/content/gnews/17/README.md)
- ` Tokyo Sakura Video Group`
-
-### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/18/README.md)
- ` 纽约香草山MOS02`
-
-### [20220225文贵大直播：全球战友的联合作战是一场演习 展示了我们新中国联邦的雏形](/content/gnews/19/README.md)
- ` Tokyo Sakura Video Group`
-
-### [新中国联邦对在乌中国同胞和美国友人展开紧急救援](/content/gnews/20/README.md)
- ` 日本东京方舟农场`
-
-### [20220225文贵大直播：3月1日人民币5万限制的根本原因就是喜币喜联储](/content/gnews/21/README.md)
- ` Tokyo Sakura Video Group`
-
-### [必须立即在财政和外交上切断俄罗斯](/content/gnews/22/README.md)
- ` 美国政要直译推`
-
-### [俄乌快讯：德国和西方盟友同意将俄罗斯踢出SWIFT系统](/content/gnews/23/README.md)
+### [针对俄罗斯制裁 YouTube暂停了俄罗斯主要频道的广告收入](/content/gnews/19/README.md)
  ` 蓝莲花农场`
 
-### [俄罗斯威胁芬兰和瑞典:若加入北约可能面临严重后果](/content/gnews/24/README.md)
+### [找到稳定校长和老师](/content/gnews/20/README.md)
+ ` 雅典娜GNotes`
+
+### [20220225文贵大直播：这次是海洋文明与陆地文明的再一次重创与PK！](/content/gnews/21/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/22/README.md)
+ ` 纽约香草山MOS02`
+
+### [新中国联邦对在乌中国同胞和美国友人展开紧急救援](/content/gnews/23/README.md)
+ ` 日本东京方舟农场`
+
+### [必须立即在财政和外交上切断俄罗斯](/content/gnews/24/README.md)
+ ` 美国政要直译推`
+
+### [俄罗斯威胁芬兰和瑞典:若加入北约可能面临严重后果](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [德国向基辅交付 1000 枚反坦克武器和 500 枚毒刺导弹](/content/gnews/25/README.md)
+### [德国向基辅交付 1000 枚反坦克武器和 500 枚毒刺导弹](/content/gnews/26/README.md)
  ` Shuizhuyu`
 
-### [秘翻在线：美再向乌克兰提供数亿美元武器装备](/content/gnews/26/README.md)
+### [秘翻在线：美再向乌克兰提供数亿美元武器装备](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022/02/26 英喜时事速递](/content/gnews/27/README.md)
+### [2022/02/26 英喜时事速递](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月26日早](/content/gnews/28/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月26日早](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
 
-### [关于俄罗斯-乌克兰的话题（持续更新中）](/content/gnews/29/README.md)
+### [关于俄罗斯-乌克兰的话题（持续更新中）](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [G教育——替天行教](/content/gnews/30/README.md)
+### [G教育——替天行教](/content/gnews/31/README.md)
  ` 秘密翻译组-原创组`
 
-### [【转】2/25日止，俄乌开战要闻简报实况](/content/gnews/31/README.md)
+### [【转】2/25日止，俄乌开战要闻简报实况](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022年2月26日，全球中共病毒疫情情况汇总](/content/gnews/32/README.md)
+### [2022年2月26日，全球中共病毒疫情情况汇总](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [灾难！尽管意大利疫苗接种率极高，但是其新冠病毒死亡率位居欧洲第二](/content/gnews/33/README.md)
+### [灾难！尽管意大利疫苗接种率极高，但是其新冠病毒死亡率位居欧洲第二](/content/gnews/34/README.md)
  ` xiaobaige`
 
-### [2022.2.26大直播 郭先生谈对新中国联邦教育的设想](/content/gnews/34/README.md)
+### [2022.2.26大直播 郭先生谈对新中国联邦教育的设想](/content/gnews/35/README.md)
  ` 秘密翻译组-原创组`
 
-### [新冠病毒的一段代码与莫德纳公司三年前的专利序列匹配](/content/gnews/35/README.md)
+### [新冠病毒的一段代码与莫德纳公司三年前的专利序列匹配](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [02/26/22 香港快讯 本港新增17063宗新冠病毒确诊个案](/content/gnews/36/README.md)
+### [02/26/22 香港快讯 本港新增17063宗新冠病毒确诊个案](/content/gnews/37/README.md)
  ` 英喜-粵語組`
 
-### [追述台海两岸关系的变迁](/content/gnews/37/README.md)
+### [追述台海两岸关系的变迁](/content/gnews/38/README.md)
  ` NFSC News`
 
-### [温哥华发生两名华人遇害事件](/content/gnews/38/README.md)
+### [温哥华发生两名华人遇害事件](/content/gnews/39/README.md)
  ` NFSC News`
 
-### [美国驱逐俄驻美第二号外交官](/content/gnews/39/README.md)
+### [美国驱逐俄驻美第二号外交官](/content/gnews/40/README.md)
  ` NFSC News`
 
-### [中日财经爆┃“作恶”被官司缠身！脸书裁撤核心技术团队](/content/gnews/40/README.md)
+### [中日财经爆┃“作恶”被官司缠身！脸书裁撤核心技术团队](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯趁势胁芬兰和瑞典 加入北约会有严重后果](/content/gnews/41/README.md)
+### [俄罗斯趁势胁芬兰和瑞典 加入北约会有严重后果](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [疫苗的科学主义](/content/gnews/42/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [俄罗斯入侵，数千乌克兰人踊跃应征入伍：&#8221;乌克兰绝不跪下“](/content/gnews/43/README.md)
  ` 墨尔本雅典娜农场`
