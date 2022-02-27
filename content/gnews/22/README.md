@@ -2,18 +2,26 @@
 ---
 
 
-## 日本正式决定将部分俄罗斯银行从SWIFT剔除
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2074748/)
+## 乌克兰总统拒绝了在白俄罗斯与俄举行会谈
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2074773/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片6-5.jpg)
-27日晚，岸田首相声明，将数家俄罗斯银行从SWIFT剔除。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-57.jpg)[图片来自网站](https://www.aljazeera.com/gallery/2022/2/24/photos-protesters-rally-around-the-world-in-support-of-ukraine#:~:text=Photos%3A%20Protesters%20around%20the%20world%20rally%20in%20support%20of%20Ukraine)
+路透社报道，乌克兰总统泽连斯基27日拒绝了俄罗斯关于在白俄罗斯举行会谈的提议。白俄罗斯是俄入侵乌克兰的同谋。
 
-27日晚，岸田首相声明，由于俄罗斯侵略乌克兰，日俄关系也已难回到从前。日本将与七国集团与国际社会保持一致，对俄罗斯采取更严厉的制裁；西方国家今天上午发表的声明指出，将俄罗斯孤立于国际金融体系和全球经济之外，包括将某些俄罗斯银行排除在SWIFT之外，日本也将采取同样措施。同时，岸田首相强调，日本一直在与国际社会，包括七国集团保持密切合作，这一立场不会改变。
+与此同时，据国际文传电讯社和其它新闻机构报道，俄罗斯总统发言人佩斯科夫27日表示，自2月24日攻击开始以来，第一个与乌克兰谈判的代表团已抵达白俄罗斯戈梅利，现在正在等待乌克兰方面的到来。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
+乌克兰总统府顾问波多利亚克指责该代表团只不过是一次宣传作秀而已，他们明知道这毫无意义，就来到戈梅利，说我们在等待。波多利亚克重申，乌克兰总统泽连斯基的立场没有改变，我们只想要真正的谈判，而不是最后通牒。
+
+信息源：
+
+[ウクライナ、対ロ協議はベラルーシで行わず　「真の交渉を」](https://news.yahoo.co.jp/articles/4ceda271a657050e16af5a773606c6b5e785d21d#:~:text=)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

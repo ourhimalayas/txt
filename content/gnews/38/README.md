@@ -2,19 +2,34 @@
 ---
 
 
-## 俄乌战争｜配合美国制裁 台积电停止向俄国提供晶片
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2073486/)
+## UBS案揭示西方黑暗沼泽地与中共勾兑的卑略行径
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2073594/)
 
-**撰文/ 港台前线｜发布日期/ 27/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Music-Clip-4.png)**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
-针对俄罗斯对乌克兰的战争行为，美国拜登政府宣布将采取全面制裁，美国、其盟友和合作伙伴将联手阻断俄罗斯取得半导体关键零部件。据白宫列出的首波制裁项目，俄国陆海空军力都将无法取得尖端科技，外国制造的美国敏感技术亦同，类别涵盖半导体、通讯、加密、雷射、导航、感测、航空电子、海事科技等。
+作者：银河系农场 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月25日，郭文贵先生在大直播中再次讲述，诉UBS案经历的艰难曲折的过程。
 
-晶片制造商GlobalFoundries宣布已开始遵守制裁规则，且明确表示“俄罗斯买家的销售规模”对他们来说“并不重要”。美国半导体协会相关人士则认为，实施的晶片管制虽然可以对俄国带来伤害，但俄国直接消费的半导体产量仅占全球晶片采购的0.1%（世界半导体贸易统计组织统计数据）。
+郭先生的股票以极不合理的价格被卖掉，UBS几乎在同时顺利拿到了中共的第一个外国银行独立牌照。以“蓝金黄”手段，横行霸道世界的中共唯独对USB低头。这样超乎常理的交易背后必定是无法告人的阴谋。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-27-at-9.15.12-PM.png)
+郭先生称，中共国锁链女事件背后涉及无数个共产党官员及其家人，各种肮脏交易超出常人认知。UBS案正如锁链女事件一样，一旦开始调查，中共和西方邪恶势力深层勾结的细节都会水落石出。世人将会看清原来这些披着神秘伪装的银行，内里腐败堕落。不仅控制全人类的财富，还做着邪恶不可告人的各种交易。此事若披露将是西方黑暗势力不可承受之重。UBS案是打开共产党和西方黑暗沼泽地勾兑的一扇大门。
 
-此外，半导体领域由台湾、韩国、美国、欧洲及日本主导，27日台湾政府决定基于俄国侵犯乌克兰的行为，将配合美国制裁，台积电已停止对俄国的供货。据媒体引述消息人士指出，俄国军方与安全部门的运算设备仰赖俄国品牌Elbrus，该厂商失去台积电供货冲击巨大。
+因此，UBS设置了重重阻碍企图阻止郭先生诉讼，不允许不可控的法院接受此案。还派遣不同人士游说郭先生，并开出巨大的交易作为诱惑，全部被郭先生拒绝。天行有常，正如郭先生所说，成功起诉UBS案，一切都是刚刚开始。
 
-来源｜[The Washington Post](https://www.washingtonpost.com/technology/2022/02/25/ukraine-russia-chips-sanctions-tsmc/)
+参考链接：[2/25/2022 Miles Guo: Why does UBS prevent the case I brought from being admitted to court?](https://gettr.com/post/pwx2li0fa6)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
+
+编辑：文真
+总编：Zion文恩
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
