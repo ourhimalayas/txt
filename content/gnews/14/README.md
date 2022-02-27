@@ -2,30 +2,49 @@
 ---
 
 
-## 大批乌克兰人逃离战火之时中共告诉其在乌克兰的国民不要撤离
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/2072549/)
+## 切断俄罗斯SWIFT系统，白宫出台进一步限制性措施
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2072633/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2531.png)图片来自网络
-自从俄罗斯在上周四入侵乌克兰以来，已有近15万乌克兰人逃往邻国，去往波兰、匈牙利、摩尔多瓦、斯洛伐克和罗马尼亚等国。还有数以千计的人仍在试图通过堵塞的边境。
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-很多国家，如美国、英国、韩国、日本和以色列一直在建议其公民离开乌克兰或准备撤离。
+翻译：不要代表我Kari
+编辑：文泓
 
-然而，在俄罗斯对乌克兰发动攻击后，中共国驻乌克兰大使馆建议那里的中共国公民呆在家里。如果必须外出，就在车上挂上中共国国旗。这表明中共与俄罗斯已结成邪恶同盟。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-78.png)图片来源：Providers’Council & 雅典娜设计组
 
-中共国外交部拒绝将俄罗斯的攻击描述为入侵，并指示中共国媒体不要发布任何对俄罗斯入侵不利的内容。
 
-乌克兰已禁止所有18 至60 岁的乌克兰男子离开乌克兰，以便他们为自己的国家而战，表明了乌克兰抗击俄罗斯入侵的决心。
+在美国时间2月26日，白宫发布针对俄罗斯的限制性措施：
 
-在乌克兰边境，出现了一些素不相识的乌克兰人互相帮助的感人故事。一名38 岁的乌克兰男子将他年幼的儿子和女儿托付给了一位素未谋面的女人，让她协助把孩子带出乌克兰，交给正在从意大利赶来接他们的孩子的母亲。这位男子把母亲的手机号码和孩子的护照给了这位妇女，然后和孩子们道别。
+我们，欧盟委员会、法国、德国、意大利、英国、加拿大和美国的领导人，在此一致谴责普京选择的战争以及对主权国家乌克兰和其人民的侵略行为。我们与乌克兰政府和乌克兰人民站在一起，支持他们勇敢抵抗俄罗斯入侵的英勇行为。俄罗斯的战争代表着对第二次世界大战以来普遍存在的基本国际规则和规范的攻击与践踏，我们致力于捍卫这些普世价值。我们将追究俄罗斯的责任，并共同确保这是普京一场战略上失败的战争。
 
-面对战争，中共对其侨民表现出的是冷漠无情。
+过去一周，除了我们的外交努力和集体工作，以保卫我们自己的边界并协助乌克兰政府和人民进行斗争之外，我们以及我们在世界各地的其他盟国和伙伴，对俄罗斯的主要机构和银行以及包括俄罗斯总统弗拉基米尔·普京在内的这场战争的策划者实施了严厉制裁措施。
 
-消息来源：[Russia-Ukraine war updates: Kyiv placed under strict curfew to enable ‘more effective defense of the capital’ as it happened](https://www.abc.net.au/news/2022-02-26/russia-ukraine-war-live-blog-saturday-feb-26/100863590)
+俄罗斯军队对基辅和其他乌克兰城市发动了侵略攻击，我们决心继续对俄罗斯施加压力，进一步将俄罗斯从国际金融体系和我们的经济中隔离开来。我们将在未来几天内实施这些制裁措施。
 
-[Ukrainians flee to European countries, including some that previously spurned refugees](https://www.washingtonpost.com/world/2022/02/26/europe-welcomes-refugees-ukraine-russia/)
+我们承诺采取以下具体措施：
 
-[China told its citizens who are currently in Ukraine to ‘stay at home’ or display the Chinese flag on their cars amid Russia attacks](https://www.businessinsider.com.au/china-ukraine-stay-home-display-chinese-flag-embassy-2022-2)
+首先，**我们承诺确保将选定的俄罗斯银行从环球银行金融电讯协会（SWIFT）系统中删除，这将确保这些银行与国际金融体系脱节，并损害其在全球范围内运营的能力**。
+
+其次，我们承诺采取限制性措施，防止俄罗斯中央银行以破坏我们制裁影响的方式部署其国际储备。
+
+第三，我们承诺对助长乌克兰战争和俄罗斯政府有害行为中参与破坏活动的个人和实体采取制裁行动。具体而言，**我们承诺采取措施限制出售公民身份，即所谓的黄金护照——杜绝与俄罗斯政府有联系的富有俄罗斯人成为我们国家的公民并获得进入我们金融体系的机会**。
+
+第四，**我们承诺在本周启动一个跨大西洋工作组，该工作组将通过识别和冻结存在于我们管辖范围内的受制裁个人和公司的资产，确保我们的金融制裁得到有效执行。**作为这一努力的一部分，我们致力于对更多的俄罗斯官员和接近俄罗斯政府的精英，以及他们的家人和他们的支持者采取制裁和其他金融和执法措施，以识别和冻结他们在我们管辖范围内持有的资产。我们还将与其他国家政府接触，努力发现和阻止不义之财的流动，并使这些人没有能力在世界各地的司法管辖区隐藏其资产。
+
+最后，我们将加强和协调打击虚假信息和其他形式的复合战争。
+
+在这个至暗时刻，我们与乌克兰人民并肩作战。除了我们今天宣布的措施之外，我们还准备采取进一步措施，让俄罗斯为其袭击乌克兰的侵略行为承担后果。
+
+原文链接：[Joint Statement on Further Restrictive Economic Measures | The WhiteHouse](https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/26/joint-statement-on-further-restrictive-economic-measures/)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
