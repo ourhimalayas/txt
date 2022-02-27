@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/27/2022 1:16 PM (UTC)`
+
+Announcement of New Federal State of China & Rule of Law Foundation on Emergency Rescue of Ukraine<br/><br/>https://gnews.org/2074988/<br/><br/>新中国联邦和法治基金关于紧急救援乌克兰的通知<br/><br/>https://gnews.org/zh-hans/2074877/<br/><br/>Заголовка: Уведомление по оказанию чрезвычайной помощи Новой Китайской Федерации и Фонда «Верховенство закона»<br/><br/>https://gnews.org/2074974/
+
+---
+
 `@miles 2/27/2022 1:02 PM (UTC)`
 
 2022年2月27日 文贵大直播：俄乌战争预测台海；普京嚣张中共角色；世界经济金融市场；台湾沦陷如何应对
@@ -151,13 +157,6 @@ G-EDU立志为世界培养优秀人才，提供优质、前沿的学习机会和
 Stop the War!
 > `@pandarolling 2/26/2022 6:35 AM (UTC)`<br/>与孩子们告别<br/>Farewell to the children
 ![img](https://media.gettr.com/group37/getter/2022/02/26/06/7a871245-151e-b2d8-85e1-04e3b05f67b2/out.jpg)
-
----
-
-`@miles 2/26/2022 4:16 PM (UTC)`
-
-2/25/2022 Miles Guo: What's the story behind my cracking sunflower seeds the other day? The New Federal State of China is so awesome that the CCP’s smearing campaigns all ended up being advertising for me. My accurate revelations about Xi and Putin's plot to invade Ukraine and Taiwan respectively has made the world admire our New Federal State of China.<br/><br/>2/25/2022 文贵直播: 文贵揭露嗑瓜子背后的故事；新中国联邦太牛了，中共的造谣污蔑都是给文贵做广告；文贵对习普密谋分别侵略乌克兰和台湾的精准爆料使得全世界对新中国联邦刮目相看
-![img](https://media.gettr.com/group42/getter/2022/02/26/16/82979593-d201-ef0d-7661-dd765138b91d/out.jpg)
 
 ---
 
