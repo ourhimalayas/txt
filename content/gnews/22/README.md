@@ -2,28 +2,24 @@
 ---
 
 
-## 中共取消俄罗斯所有小麦进口限制
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2081143/)
+## 乌克兰总统向日本表示谢意
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2081218/)
 
-采编：风云小哥      翻译：文莱
+撰稿：东京樱花团｜百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/乌克兰总统向日本表示谢意1-1.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220228-090946_Word2.jpg)图片来源：breitbart.com
+[*图片来源*](https://previews.123rf.com/images/argus456/argus4561605/argus456160515133/56704554-ukraine-flag-combined-with-japan-flag.jpg)
+乌克兰总统泽连斯基28日在推特上发文称，他与日本首相岸田文雄进行了电话交谈。
 
+推文上写道，我与日本首相岸田进行了交谈，感谢他对乌克兰的大力支持。日本承诺对乌克兰追加1亿美元的援助，并完全支持对俄罗斯实施严厉制裁。谢谢！一个真正的全球反战联盟正在发挥力量。推文使用了乌克兰语和英语。
 
-据【布莱特巴特新闻】2月25日报道，在美国和英国当天宣布对俄罗斯实施金融制裁的同时，中共国取消了对俄罗斯小麦的进口限制。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/乌克兰总统向日本表示谢意2.jpg)
 
-报道称，俄罗斯对中共国的小麦出口此前曾受双方限制，在中共取消与俄罗斯某些特殊地区的谷物贸易限制之后，将提高俄罗斯派遣大型船只通过黑海的能力。
+信息来源：[**【速報中】ウクライナ大統領、日本に「ありがとう!」ツイッター投稿**](https://www.asahi.com/articles/ASQ2X1QD8Q2WUHBI04Q.html?oai=AS)
 
-此外，自2021年起，俄中的双边贸易同比增长27%，达到1500亿美元。俄罗斯对中共国的食用油、大麦和牛肉出口激增。 同时，习近平和普京正在继续寻找潜在的贸易机会。而此次小麦交易是在2月4日冬奥会期间宣布的，并将在2022-23年度开始。
-
-尽管中共当局表示，这项在俄军入侵乌克兰当天所宣布的决定，与俄乌局势无关，但中共对俄罗斯的支持与欧美及G7成员国的制裁相比，形成了鲜明的对立。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-原文链接：[China Lifts All Wheat Import Restrictions on Russia amid Ukraine Crisis (breitbart.com)](https://www.breitbart.com/asia/2022/02/25/china-lifts-all-wheat-import-restrictions-russia-ukraine-crisis/)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

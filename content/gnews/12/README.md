@@ -2,41 +2,38 @@
 ---
 
 
-## 独裁者要争霸世界必将失败
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2081251/)
+## 有声|中共对内对外愈发邪恶 阻止人民币流向喜联储
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2081375/)
 
-作者：紐約香草山福音部Melisa
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-俄罗斯普京发动战争侵占乌克兰面临国内国际的反抗与制裁已经骑虎难下。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月25日的大直播中，郭文贵先生揭秘了中俄邪恶轴心的形成过程，以及中共全力阻止人民币流向喜联储的企图。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2744.png)
+郭先生解释，中共的外交部经历了六四事件之后的“示弱部”，到“外援部”，再到今天“战狼部”的过程。自中共2001年加入WTO、2008年举办奥运之后，美国华尔街给其输送了海量资金，习近平野心膨胀，开始幻想与美国“共同”治理世界，并与俄罗斯结成所谓的“全天候兄弟战略伙伴关系”，五个邪恶轴心国联盟自此形成。
 
-中共面临更大的麻烦。
+之后，中共开始推行人民币国际化，试图奴役和殖民更多海外民众。对内则试图使人民币透明化、可控制化，即掠夺和控制中国人民财富。中共原想在3月1日推行的5万元人民币限制规定，根本目的就是试图防止人民币流向喜币和喜联储。
 
-1，不打台湾背叛习普同盟，曾江饶不了习猪头。
 
-2，若打台湾国际社会必灭习特勒。
 
-3，党内反对派必把习猪头炖肉吃。
+文字版原文：[中共对内对外愈发邪恶 阻止人民币流向喜联储](https://gnews.org/zh-hans/2080320/)
 
-4，习猪头现在头痛。心痛。肝痛、脾痛,全身痛。
-
-习太，普大帝难兄难弟共同站在一条战船上，必将被自由人权的国际社会所抛弃，死于无葬身之地。
-
-2022年2月28日
-
-**审稿/校对/发稿：**qiutian（邱甜）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1-2.png)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

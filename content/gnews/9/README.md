@@ -2,37 +2,36 @@
 ---
 
 
-## 2022年2月28日澳洲股市简报
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2081295/)
+## 切断SWIFT支付将对中共造成致命打击
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2081404/)
 
-**撰稿：云彩**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
-ASX 200 指数上涨0.7% ， 7049点收盘。 不过，涨幅远低于华尔街标准普尔500指数2.2%和欧洲市场的3%。
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月27日，郭文贵先生在大直播中，详细讲解了切断中共使用SWIFT支付系统，对灭共起到关键作用。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-94.jpg)
+首先，SWIFT系统不仅是美元支付系统，更重要的作用是国家信用评级。切断SWIFT支付系统，意味着与50%以上的世界国家经济体断绝经济合作。目前，停止俄罗斯银行使用SWIFT系统，是历史上首次针对主权国家停用。一旦开启SWIFT制裁先例，即使中共不对台开战，停止中共银行使用SWIFT系统，仅是时间问题。
 
-**矿业股领涨**
+郭先生透露，目前有三个理由对中共实施SWIFT制裁：第一，对新疆实施种族灭绝大屠杀；第二，镇压香港民主运动，杀害无辜的香港平民；第三，制造和释放中共病毒，对全世界发动生化战争。
 
-矿砂矿商Illuka Resources 上涨5.3%，稀土生产商Lynas 上涨6.9%，金矿生产商Gold Road Resources上涨5.5% 。
+郭先生进一步强调，当SWIFT系统停止中共银行使用后，中国银行28万亿国际业务顷刻消失；中共所有海外贷款和借款，全部立刻停止；建行、招行、农行等所有上市银行股票价格，立刻跌倒零；15万亿GDP化为乌有；中共40%粮食进口和68%外向行经济都将结束。
 
-大型多元化矿商BHP和RIO 上涨4.4%和3.2% 。
+中共常委的家人在海外均藏匿巨额家族信托资产，一旦被经济制裁，这些人会联手消灭习近平。切断SWIFT系统是对中共釜底抽薪的致命打击。
 
-**能源股继续攀升**
+参考链接：[2022年2月27日大直播速记精萃](https://gnews.org/zh-hans/2076806/)
 
-石油公司Woodside Petroleum上涨 2.1%。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-**澳大利亚谷物处理巨头 Graincorp 股价上涨 5% 至 8.40 美元**
+总编: 文真
+编辑: Jack Li文阳  
+校正/发稿：Fei797
 
-市场担忧俄罗斯对乌克兰的入侵影响乌克兰谷物播种季节，导致澳大利亚谷物的需求和价格上涨。
-
-**保险公司股票被大量抛售**
-
-因昆士兰州东南部和新南威尔士州北部洪水造成的巨大损失，保险公司Insurance Australia Group 下跌 4%，Suncorp 下跌 3.2% 。
-
-参考资料：
-
-[ASX gains ground even as analysts warn of Russian’ financial collapes’ and possible European recession](https://www.abc.net.au/news/2022-02-28/asx-share-market-wrap-monday-february-28/100867112)
-
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

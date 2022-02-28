@@ -2,26 +2,38 @@
 ---
 
 
-## 欧盟一致向乌克兰提供武器采购支持并禁止俄国有媒体运营
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2081181/)
+## 有声|中国驻乌克兰大使表示推迟公民撤离
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2081299/)
 
-撰稿：东京樱花团︱麗子
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据国外媒体2月27日报道，中共国驻乌克兰大使范宪荣当天表示，目前的情况太不安全，无法疏散公民，并表示只要满足安全条件，就会做出适当的安排。但就在几天前，大使馆曾表示将制定计划，帮助人们在俄罗斯入侵后离开。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/欧盟一致向乌克兰提供武器采购支持并禁止俄国有媒体运营.png)
+前几周，因为对战争的担忧加剧，包括英国、美国和日本在内的多个国家撤离了外交官，并敦促公民离开。
 
-2月27日，欧盟（EU）举行了一次外交部长在线会议，讨论俄罗斯对乌克兰的军事入侵，并同意向乌克兰提供财政援助以购买武器，这是欧盟首次向冲突中的国家支援采购武器。
+而在整个危机期间，中共国一直没有谴责俄罗斯，直到2月24日才宣布将准备包机撤离其公民。但乌克兰以战争风险为由，于同一天关闭了领空。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/images-9.jpg)
 
-在会后的新闻发布会上，欧盟外交和安全政策高级代表博雷尔表示，欧盟将提供4.5亿欧元（约577亿日元）资助乌克兰的武器采购，提供5000万欧元（约64亿日元）采购医疗用品等其他物品。声明中，博雷尔表示欧盟支持军购是首例。
 
-欧盟国家已经向乌克兰提供了武器等其他援助。就连严格控制向冲突地区出口武器的德国也一改常态，在26日宣布将向乌克兰提供武器。
+文字版原文：[中国驻乌克兰大使表示推迟公民撤离](https://gnews.org/zh-hans/2078295/)
 
-各国部长一致同意禁止俄罗斯国有新闻机构RT和Sputnik在欧盟运营，因其传播 “虚假信息 “为俄罗斯侵略行径辩护。欧盟还将对白俄罗斯实施新的制裁，暂停进口其木材、水泥和钢铁。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-信息来源：[**EU「タブーに踏み込む」覚悟でウクライナ支援  初の武器調達援助**](https://news.yahoo.co.jp/articles/c97f8fb1a58930db60f5c9969f8b5b4ba2d26588)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
