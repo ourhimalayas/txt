@@ -2,34 +2,22 @@
 ---
 
 
-## 私营银行提议帮助墨西哥创建数字货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2079358/)
+## 前乌克兰小姐穿上戎装加入抵抗俄军行列
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2079371/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿/翻译：zzballack
+上传：追着曙光跑
 
-#### 翻译/编辑：小红帽
+据《布雷特巴特新闻网》（Breitbart News）2月27日报道，在俄罗斯大举入侵乌克兰之际，乌克兰各行各业的人纷纷加入了抵抗俄军的战斗，其中包括选美皇后。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-28-at-16.32.58.jpeg)图片来源：原新闻
+作为2015年的乌克兰小姐冠军，会说 5 种语言、并担任过翻译和公关经理的安娜塔西娅·蕾娜（Anastasiia Lenna）现在像其他许多乌克兰人那样，穿上戎装、手持步枪，阻止那些试图入侵乌克兰的人。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a3fa1b9059e69050.jpg)图片来源： /www.centralbanking.com
+蕾娜最近在Instagram上发布了一张自己的持枪戎装照，并附带了“与乌克兰在一起”和“不要碰乌克兰”的标签。她一直在大声呼吁人们捐款资助军队，以便能够击退俄军。
 
+据新闻网站《TMZ》报道，蕾娜向普京的军队放话说：“所有越过乌克兰边境试图入侵的人都将被干掉！”另外，蕾娜称赞乌克兰总统弗拉基米尔·泽连斯基 (Volodymyr Zelenskyy)是一位真正的和强硬的领导人。泽连斯基上周呼吁乌克兰人拿起武器反抗俄罗斯入侵者，并承诺向那些愿意为乌克兰而战的人提供枪支。
 
-根据Bitcoin.com 2月28日报道，墨西哥的私营银行希望与该国中央银行共同努力，创建一种新的数字货币。墨西哥银行协会（ABM）主席会见了墨西哥银行行长，为未来创建国家数字货币提供了私营银行集团的帮助。
-
-墨西哥银行协会的成员已经表示，他们打算帮助该国中央银行设计和发行潜在的中央银行数字货币（CBDC）。该协会主席丹尼尔·贝克尔（Daniel Becker）会见了墨西哥银行行长维多利亚·罗德里格斯·塞哈（Victoria Rodríguez Ceja），审查了一些使墨西哥公民更容易获得银行有关服务的重要因素。
-
-关于这次会面，贝克尔表示：“如果墨西哥确定银行的意见可以帮助其建立更好的元素或加密货币，请依据我们和最好的银行建议，这样才能激发并拥有更有效和更强大的金融系统，从而达到更多墨西哥人使用的目的”。
-
-贝克尔还欢迎引入数字货币以降低交易成本，并利用区块链实现更好的互操作性。
-
-参考链接：[Private Banks Propose to Help Design Digital Currency in Mexico](https://news.bitcoin.com/private-banks-propose-to-help-design-digital-currency-in-mexico/)
-
-*发布：*Frank2021
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+信息来源：[Former Miss Ukraine Takes Up Arms Against Russia](https://www.breitbart.com/entertainment/2022/02/27/former-miss-ukraine-takes-up-arms-against-russia/)
+[MISS GRAND UKRAINEBEAUTY QUEEN NOW A SOLDIER …Warns Russia, We’ll Shoot To Kill](https://www.tmz.com/2022/02/27/miss-grand-ukraine-joins-military-soldier-russian-invasion/)
 
  
 

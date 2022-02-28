@@ -2,35 +2,20 @@
 ---
 
 
-## “55天法则” 明天到期
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2079000/)
+## 白俄罗斯将很快加入对乌克兰的侵略战争
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2079014/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-28.png)图片来自网络
-**据《Zubu兄弟》2022年2月27日的文章**：
+#### 撰稿：彩虹
 
-大多数人没有意识到，1929年的崩盘和1987年的崩盘都正好发生在股市见顶后的55个日历日那天。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-28-163406-2.png)图片来源：天空新闻
+据澳大利亚《天空新闻台》2月28日的报道，美国情报官员相信白俄罗斯将很快加入俄罗斯针对乌克兰的军事入侵行动。
 
-本文中的所有价格都是参考的那一天的收盘价。
+报道说，一名美国政府官员告诉记者，白俄罗斯军队将可能最早于明天开始部署行动。
 
-1929年：道琼斯指数在9月3日达到峰值，当时收于381.17点。9月3日之后的55个日历日，是10月28日（星期一）。这正是1929年崩盘日，道指下跌40.58点，或者说13.5%。
-1987年：道琼斯指数在8月25日达到最高点2722.42点。
-55个日历日之后是10月19日（星期一），道指在一天之内狂跌了507.99点，即22.6%！这一天，道指的最高点是2722.42。
+**新闻来源**
 
-**今年，道琼斯指数在1月4日达到顶峰，而…**
-
-**55天后是2月28日星期一（！）。**
-
-1929年和1987年，在崩盘前的一周，市场出现了急剧下跌，所以这也是需要注意的。这些崩盘并不是凭空出现的。
-
-原文链接：
-
-
-
-> ['The 55 Day Rule' Expires Tomorrow](https://zububrothers.com/2022/02/27/the-55-day-rule-expires-tomorrow/)
-
-
-
-翻译：烟波浩淼 | 校对：雨山溪桥客 | 编辑&发布：*闪电训练*
+[US believes Belarus will join Russia in Ukraine invasion](https://www.skynews.com.au/world-news/global-affairs/us-believes-belarus-will-join-russia-in-ukraine-invasion/video/f954cff87000ece19de17065bc7de387)
 
  
 

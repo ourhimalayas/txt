@@ -2,25 +2,39 @@
 ---
 
 
-## 有声｜中共国舆论导向“挺俄贬乌”压制反战声音
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2079171/)
+## 台湾军方：在台湾领空发现中共气象气球
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2079181/)
 
-By:**秘翻新闻**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**2022-02-28**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-62.png)图片来源   AFP
-[据自由亚洲2月27日报道，俄罗斯入侵乌克兰，多数中共国网友力挺俄罗斯贬损乌克兰的怪象令全球侧目，而网络上反对俄罗斯及同情乌克兰的声音受到压制。](https://www.rfa.org/mandarin/Xinwen/10-02272022161157.html)
+翻译/编辑：小红帽
 
-[从乌克兰危机酝酿到战争爆发，在中共国网络空间，不论从一般网友、网路写手到媒体人乃至于学者，被认为一面倒地力挺俄罗斯，并对乌克兰大加贬损，其背后隐含着官方主导的反美、反西方的思路。](https://www.rfa.org/mandarin/Xinwen/10-02272022161157.html)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-35.png)图片来源：www.globaltimes.cn
 
-[报道指出，虽然反战声音遭到压制，仍然有少数中国网民选择低调地站在乌克兰一边，表达同情和对战争的厌恶。同时，这些网民毫不保留地表达反主流的“挺乌贬俄”立场，抨击中共官方“嘴上不说，脚上和心里早就站到了俄罗斯一边。“](https://www.rfa.org/mandarin/Xinwen/10-02272022161157.html)
 
-秘翻新闻 二丫编辑报道
+根据中新社 2月27日报道，台湾军方周日证实了媒体的报道，中共军方使用的多个气象气球在农历新年假期后不久飞越台湾，但军方强调象气球不构成安全威胁，只用于气象观测。
 
-发布 : 恩典
+“空军完全掌握了（这些气球）的动向”。台湾军方发言人史顺文告诉中新社记者：“据信它们被用于气象观测”。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
+《联合早报》（UDN）周六报道，中国人民解放军驻福建第72集团军的一个炮兵旅下属的远程火箭部队向大气层释放了最后四组数量不详的气象气球。
+
+《联合早报》报告称，2月中旬农历新年假期结束后的某个时候，台湾空军的雷达系统在基隆、桃园和新竹上空发现了这些气球，高度为9,000-10,000英尺（2,743-3,048米）。
+
+**中国的气象气球引起了人们的关注，特别是在俄罗斯正在入侵乌克兰的情况下，以及在蔡英文总统下令国家武装部队应保持高度戒备的情况下。**
+
+由台湾政府资助的国防与安全研究所的分析师苏紫云周日表示，即使这些气球是出于军事目的，它们也可能是为了为解放军东部战区司令部探测大气密度，不构成直接的安全威胁。
+
+参考链接：[Chinese weather balloons identified in Taiwan airspace: military](https://focustaiwan.tw/cross-strait/202202270007)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,40 +2,48 @@
 ---
 
 
-## UBS是沼泽地的核心,郭文贵先生诉UBS是沼泽地第一仗
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2079114/)
+## 郭文贵大直播—GEDU专场摘要和音频 2022.02.26
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2079150/)
 
-G-TV视频链接：[https://gtv.org/video/id=62164b201408ee3a03a3c89b](https://gtv.org/video/id=62164b201408ee3a03a3c89b)
+摘要撰稿人：文俊
 
-**郭文贵先生**：UBS是唯一的，大家要记住啊，是唯一的，永远要记住是唯一的一个，被中国共产党建国以来批准的海外的外国银行，有外国独立经营牌照的。大家一定要记住，它这个意义太大了，太大了，太大了！
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/02/0b7985cf-5400-4e92-8927-3379c86846c9.jpg)
+### 视频链接：
 
-那么我跟你说，国民党当年，还有台湾，在UBS的钱是当时，是一分都没有给了，然后就是帮了、当时把台湾黑得很大，跟了共产党。这个孙子，咱们要不把它，这就是沼泽地的核心，这一仗是沼泽地的第一仗。记住我说的话啊，我第一次说这话。
+[https://gtv.org/video/id=621a28c808ba8a07b1a3e95b](https://gtv.org/video/id=621a28c808ba8a07b1a3e95b)
 
-编辑整理：Jacques；
+### 音频链接：
 
-字幕文件制作：兵嫂；
+### 摘要：
 
-视频制作及上传：Cindy；
+- GEDU：松绑政治教育、松绑金钱教育、健康的环境、金钱促进教育、金钱和教育分开的教育
+- 卢森堡每个学生800美金教育费，中国学生实际连80美金都没有
+- 中共不允许私人企业家参与教育
+- 衡水中学农村孩子只有2% ，中共的教育就是特权阶级，是腐败的根源
+- 衡水中学 那不是教育，是房地产，性交易场所，是虐童的地方
+- 最好的教育是：芬兰、英国、美国
+- GEDU做好教育重点：：1.找到好校长，好老师；2. 创造愉悦环境；3. 线下和线上教育的结合
+- GEDU教育未来的校长工资税后300万美元以上，副校长200-300，各校区负责人50万以上，校长老师的合同终身
+- 线上AI教育，线下教育和人接触和环境接触（见识为主）
+- 喜联储 盖特上市前股份自动给与GEDU教育基金
+- GEDU教育完全免费，线下99%免费但是例如参观共济会必须支付1美金，这个钱必须自己出
+- 七哥已经在美国、澳洲，新西兰、日本等国购买土地和租赁知名校区
+- GEDU出来的学生应该是没有国没有家没有民族观念的；永远成为贡献者，不应该成为社会的奴隶和欲望的工具，消除不公平探索文明的领导者；勇气正义善良和文明的使者，没有这些不配做GEDU学生
+- 区块链教育：分配资源、信息公开、教育透明、教育公平
+- 教育的关注度，给你30天体验期，在确定你的兴趣
+- 应聘GEDU老师和学生，看七哥GETTR公告
+- GEDU教育，开始就是欧洲私人贵族教育模式
+- GEDU教育：爆料革命重大贡献者，爆料革命战友优先
+- 残疾人教育，是区块链数字化技术最重要的，目前就有很多技术做的很好，首先做好统计
+- 教育就是铲除不公平，让人类和平
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UC_h8BevH-vN6xUKQBeLKnMg) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UC9UOGnhaE8rHrz8Ds_-zZHQ)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+编辑发布：闪电训练
 
  
 

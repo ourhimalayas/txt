@@ -2,22 +2,24 @@
 ---
 
 
-## 有声｜亚裔现身南北加州乌克兰裔集会 抨击中俄两国当局
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2079182/)
+## 有声｜美国抨击普京核命令不可接受，将考虑进一步制裁
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2079224/)
 
 By:**秘翻新闻**
 
 **2022-02-28**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5-56.png)图片来源 （孙诚拍摄）
-[据自由亚洲2月27日报道，在2月26日中午，旧金山渡轮大厦前有约千人参加的支持乌克兰集会中，有数十名香港人来到现场，举起了一条写有“香港人与乌克兰站在一起”的象征乌克兰的蓝黄两色横幅。](https://www.rfa.org/mandarin/yataibaodao/gangtai/sc-02272022152819.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-55.png)图片来源 路透社
+[《路透社》华盛顿2月27日报道，周日，美国和北约谴责俄罗斯总统普京，将核武器置于高度警戒状态的命令是危险和不可接受的，同时白宫表示不排除对俄罗斯的能源部门实施新的制裁。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
 
-[报道称，来自香港的湾区居民戴（Tai）先生表示，站出来支持乌克兰人与他的族裔身份无关。因为这是正义与邪恶的关系，我不会只因为香港的事情出来的。在美国这么自由的社会，我们能来这里，就更加要为公义站出来。”](https://www.rfa.org/mandarin/yataibaodao/gangtai/sc-02272022152819.html)
+[据报道，稍早些时候，俄罗斯总统普京下达了，提高俄罗斯核武器戒备的级别，以对抗西方对其发动对乌侵略战争的一连串报复。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
 
-[据报道，参加本次集会的人士，有来自乌克兰、白俄罗斯、波兰、阿塞拜疆、哈萨克斯坦等许多国家的人士。人们在集会中齐唱乌克兰国歌，挥舞着多国的国旗和反对普京的标语，并上台发表演说。](https://www.rfa.org/mandarin/yataibaodao/gangtai/sc-02272022152819.html)
+[美国驻联合国大使琳达.格林菲尔德在哥伦比亚广播公司的 “面对全国 “节目中说：“普京的行动使冲突升级，是不可接受的。美国正在研究针对俄罗斯新的、甚至更严厉的制裁措施”。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
 
-[美国香港人会馆代表布鲁斯上台演讲，向台下的民众发出了“战斗，战斗，战斗！”的呼吁，引起了人们的欢呼。这已经不是该团体首次参与支持乌克兰的集会。此前，在2月24日旧金山市政厅前的支持乌克兰集会中，也有十余名手持“光复香港，时代革命”旗帜的港人参加。](https://www.rfa.org/mandarin/yataibaodao/gangtai/sc-02272022152819.html)
+[报道还称，在五角大楼，一位美国高级国防官员也将普京的核命令描述为升级，并说它正在产生影响，如果出现误判，可能会使事情变得非常危险。北约秘书长延斯-斯托尔滕贝格也称，普京的核命令具有侵略性，是不负责任的。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
 
-秘翻新闻 二丫编辑报道
+[白宫新闻秘书普萨基说，普京是在对一个不存在的威胁做出反应。她补充说，俄罗斯从来没有受到北约的威胁，也没有受到乌克兰的威胁。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
+
+秘翻新闻 冰糖葫芦喵 编译报道
 
 发布 : 恩典
 
