@@ -2,8 +2,8 @@
 ---
 
 
-## 如何专业推广Hpay
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2078773/)
+## HDO、 H-coin、GTV、GNEWs、Gettr、Gfashion 是灭共力量
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2078797/)
 
 台灣寶島農場
 

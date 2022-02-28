@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/28/2022 6:00 AM (UTC)`
+
+2/27/2022 Miles Guo: On the issue of war in the Taiwan Strait, if the U.S. wants to maintain the current international order, it must take bold actions. If the U.S. intends to re-establish the world order, then all of humanity will have to pay a huge price. The U.S. must make a choice!<br/><br/>2/27/2022 文贵直播: 在台海战争问题上，若美国要维持国际秩序就必须大胆动手；若美国意在重建世界秩序，则全世界人类要付出巨大代价！重整亦或维持国际秩序，这是美国必须要做出的选择。<br/>
+![img](https://media.gettr.com/group31/getter/2022/02/28/06/2225ecc4-8b4f-6478-0bfe-d90ce90d3a18/out.jpg)
+
+---
+
 `@miles 2/28/2022 5:51 AM (UTC)`
 
 2/27/2022 Miles Guo: it is possible that the outcome of the war between Russia and Ukraine will be a reconciliation between the two countries, but if Russia does launches nuclear weapons, the war will have a ridiculous outcome. Whatever the outcome, Russia will have no future at least for a short time<br/><br/>2/27/2022文贵直播: 俄乌之战的结果可能会是两国达成和解，但若俄罗斯真的放了核武器，战争会出现滑稽的结果！无论最终是哪种结果，俄罗斯至少短时间内都已没有未来可言！<br/>
@@ -144,13 +151,6 @@ Announcement of New Federal State of China & Rule of Law Foundation on Emergency
 
 2/26/2022 Miles Guo’s Urgent Livestream: Everyone participating in the Ukrainian rescue operation of the NFSC must be professional and responsive, and lay a good foundation for our NFSC to carry out international cooperations.<br/><br/>2/26/2022 文贵紧急直播：参与新中国联邦的乌克兰救援行动的所有人都要专业化、反应迅速，为我们新中国联邦在国际合作上打下良好的基础
 ![img](https://media.gettr.com/group33/getter/2022/02/27/08/6ef9307a-0477-c529-9390-01a67ab99958/out.jpg)
-
----
-
-`@miles 2/27/2022 7:11 AM (UTC)`
-
-2/26/2022 Miles Guo’s Urgent Livestream: At this time, our GNews, GTV, and Gettr's postings must be accurate; and we will save anyone as long as we can, but our NFSC citizens and our families and friends come first.<br/><br/>2/26/2022 文贵紧急直播：我们的这个时候的GNews的和GTV还有盖特的发文一定要准确；只要能救的，我们都会救，但新中国联邦和家人朋友是第一的。<br/>
-![img](https://media.gettr.com/group7/getter/2022/02/27/07/2c32ee71-76b7-1168-2e46-b55953c1406e/out.jpg)
 
 ---
 
