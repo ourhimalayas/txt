@@ -2,28 +2,110 @@
 ---
 
 
-## 中日财经爆|民众担忧国际制裁 俄罗斯国内现挤兑潮
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2080090/)
+## 锁链女的事件引发争论，担责的应该是谁，是江泽民、胡锦涛还是现在的习近平，这在中共内部已成为政治事件
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2080238/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2738.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi.insider.com%2F621c4061bea1240018a8e126%3Fwidth%3D1136%26format%3Djpeg&amp;imgrefurl=https%3A%2F%2Fwww.businessinsider.com%2Fruble-hits-record-low-russians-rush-withdraw-us-dollars-atms-2022-2&amp;tbnid=ooYDLB)
-俄罗斯总统普京2月24日下令挥军入侵乌克兰，俄国民众因担忧西方制裁俄罗斯，周日在自动柜员机（ATM）前大排长龙提领现金，卢布兑美元重贬近3成。
+[https://gtv.org/video/id=621c390b4353d33974c3b5ed](https://gtv.org/video/id=621c390b4353d33974c3b5ed)
 
-西方国家除将俄罗斯踢出SWIFT支付系统，欧盟、美国、英国、加拿大也已宣布冻结俄罗斯央行的资产。尽管俄罗斯当局和银行试图缓和紧张情绪，但阻断特定俄国银行进入SWIFT支付系统，并冻结俄国央行外汇存底的举措，势将对俄罗斯经济造成严重打击；法国财长勒麦尔（Bruno Le Maire）先前则称SWIFT是“金融核武”。
+**郭文贵
+Miles Guo**
 
-俄罗斯民众因担心金融卡失灵或银行限制提领而在ATM前出现领钱人龙。俄国圣彼得堡市民彼得（Pyotr）说：“24日以来，每个人都在ATM间来回奔走以领取现金。有些人很幸运（领到钱），有些人则不。”
+锁链女这个背后的故事
+The story behind this Chained Girl
 
-俄国央行建议民众随身携带银行卡，称移动支付系统在遭制裁银行运营的终端或网路商店，可能无法运作，让一些已习惯移动支付、很少在用现金的俄国民众叫苦。
+引发了江（泽民）、胡（锦涛）包括现在和习之间的这种到底谁该负责
+It has evoked such this matter of who should be responsible for this (Chained Girl incident) among Jiang Zemin, Hu Jintao and the current Xi Jinping
 
-尽管俄罗斯官员称SWIFT制裁对俄国国内支付行动构不成威胁，但前总理卡西亚诺夫（Mikhail Kasyanov）在表示，最重要的是西方正在冻结俄国央行（外汇）储备。“没有（储备金）支撑卢布。他们将打开印钞机。恶性通膨和经济重灾就不远了。”
+然后党内对这个事情已经成政治了
+and then this matter within the (communist) party has become a political issue
 
-在西方祭出新一轮更严厉的制裁后，俄国卢布兑美元27日重贬近30%。卢布兑美元跌至117.817比1。
+说这事你凭什么找习近平负责？
+saying that why do you hold Xi Jinping to be responsible for it?
 
-消息来源：[普丁揮軍烏克蘭效應！俄羅斯爆ATM擠兌潮 盧布兌美元重貶](https://tw.news.yahoo.com/%E6%99%AE%E4%B8%81%E6%8F%AE%E8%BB%8D%E7%83%8F%E5%85%8B%E8%98%AD%E6%95%88%E6%87%89%EF%BC%81%E4%BF%84%E7%BE%85%E6%96%AF%E7%88%86atm%E6%93%A0%E5%85%8C%E6%BD%AE-%E7%9B%A7%E5%B8%83%E5%85%8C%E7%BE%8E%E5%85%83%E9%87%8D%E8%B2%B6-041553785)
+都是江、胡干的
+It was done by Jiang Zemin and Hu Jintao
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+那江、胡时代的官员没人敢说话呀
+None of the officials in the Jiang Zemin and Hu Jintao eras dared to speak up
+
+实际上下边是不服的。
+In fact, the officials under them were dissatisfied
+
+说那个地方每年死掉大概在40到60个人，就无名女尸
+There are about 40 to 60 female died in that place (same place as the Chained Girl) every year who are unidentified female corpse
+
+查了一下过去大概30年
+I have checked the record in the past 30 years
+
+那个地方死掉的无名女尸达几千具尸体，近万人
+and the number of unidentified female corpses that died in that place reached thousands, nearly 10,000
+
+说这些人平均年龄15岁到17岁
+the average age of these female was 15 to 17 years old
+
+这吓人吧？这吓人吧？
+Isn’t that scary?
+
+然后你再看这种事情没人报道
+Then you consider again there has no one reported this kind of thing
+
+我最早在2017年说过
+I have said as early as 2017
+
+我去宁夏、我去西藏，还有黄河（边）上
+I went to Ningxia, Tibet, and the Yellow River side
+
+当地人说我们就是打捞尸体的
+Those locals claimed that their job is salvaging the bodies
+
+我说还有打捞尸体这活儿？
+I said there is still have this as a job?
+
+他说每年（河里）都有这个尸体，而且都是年轻人
+He said that there are corpses in the river every year, and they are all young people
+
+记得我这一段吧？曾经直播过
+Do you remember this part? Which I had have live broadcasted
+
+就中国人
+As far as the Chinese are concerned
+
+这种人（被）扔到——像小福利、微蓝，是吧？像你神奇四侠
+people like Little Benefit, Weilan and Fantastic Four
+
+给你扔到河里边去你就是个尸体
+if you were tossed into the river you were a corpse
+
+你再漂亮也没用
+no matter how beautiful you are it would be useless
+
+咱见太多了
+We have seen too much of it
+
+悲哀的事情是它没人听啊
+However the sad thing is that there is no one wants to listen
+
+* * *
+
+Date: 02/21/2022
+原视频标题:
+锁链女的事件引发争论，担责的应该是谁，是江泽民、胡锦涛还是现在的习近平，这在中共内部已成为政治事件。其实这种拐卖妇女儿童，导致她们残疾、惨死、甚至消失得无影无踪的事件，在中共国已经由来已久，时常发生，毫不新鲜，中共政府根本无人无暇关心过问。The Chained Girl incident has sparked debate over who should be held responsible, Jiang Zemin, Hu Jintao or the current Xi Jinping. This has become a political matter within the CCP. In fact, this kind of abduction and trafficking of women and children, resulting in their disability, tragic death, or even disappearance without a trace, has been around for a long time in China, and it happens frequently. No one cares at all for this matter in the Chinese government.
+
+原视频日期：2022/02/18
+原视频链接: [**https://gettr.com/post/pw0q8xc84b**](https://gettr.com/post/pw0q8xc84b)
+任务编号：KC469（3820）
+视频时间段 : 0:00-01:26
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

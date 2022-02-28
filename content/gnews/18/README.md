@@ -2,10 +2,10 @@
 ---
 
 
-## 比尔·格茨：若普京不败于乌克兰，习近平将试图夺取台湾
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079970/)
+## 美驻联合国大使：俄罗斯是侵略者，这事没有中间地带
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079988/)
 
-02/25/2022 比尔·格茨：如果普京不能在乌克兰被击败，习近平将试图夺取台湾
+02/25/2022 美国驻联合国大使琳达·托马斯-格林菲尔德：俄罗斯正入侵乌克兰，俄罗斯是侵略者，这事没有中间地带
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
