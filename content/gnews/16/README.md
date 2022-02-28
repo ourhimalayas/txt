@@ -2,19 +2,25 @@
 ---
 
 
-## 基辅美丽的公路变成了废墟
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2080545/)
+## 乌克兰因中共言行出现排华危机
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2080853/)
 
-视频剪辑：Smile77
+采编撰稿： 自由法兰西 校对编辑：硫酸羟氯喹64
 
-发布：tianzhihuan
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220228-081905_Samsung-Internet.jpg)图片来源：ETtoday
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+据台湾新闻《ETtoday》2月26日报道，随着俄乌战况愈演愈烈，在中共国内社交媒体上开始出现了大量“收留乌克兰美女”等趁火打劫式的恶俗言论之后，引发了国际社会特别是乌克兰当地民众的强烈愤慨。
+
+报道称，中共国内以上的恶毒嘲讽言论被乌克兰大量媒体进行了广泛报道，并随即导致了当地出现的强烈反华情绪。据悉，目前已有中国留学生在外出购物时被当地人追踪、威胁和恐吓。
+
+对此，当地华人恳求中共网民不要再把同胞往火坑里推，并斥责道：小粉红们恶毒的调侃已导致乌克兰的华侨无法和当地人一起进入防空洞避难！因此，华人不得不把表露自己是中国人的一切特征都刻意隐藏起来。
+
+评论指出，在全球都在制裁和谴责俄罗斯入侵乌克兰之际，唯有中共墙内掀起狂欢浪潮，而将海外华人置于危险境地。中共此时却纵容所谓“言论自由”，更彰显其险恶用心。在该暴政的推波助澜下，排华危机将一触即发！
+
+发稿：文明(添草灭共)
+
+新闻链接：[https://www.ettoday.net/news/20220226/2197211.htm](https://www.ettoday.net/news/20220226/2197211.htm)
 
  
 

@@ -2,22 +2,34 @@
 ---
 
 
-## 港闻｜民主派初选案未审先囚一周年 审讯日期一再押后 遥遥无期
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2079256/)
+## 私营银行提议帮助墨西哥创建数字货币
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2079358/)
 
-**撰文/ 港台前线｜发布日期/ 28/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/民主派初選案未審先囚一週年-審訊日期一再押後-遙遙無期.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-因参与2020年民主派“35+”初选的47位议员或社运成员去年2月28日被控串谋颠覆国家政权罪，今早（29日）其中9名被告于西九龙法院再次提堂，另有多名被告到庭列席旁听，还有3名被告因囚仓出现疫情未能到庭。
+#### 翻译/编辑：小红帽
 
-由于今日刚好是该案件落案一周年，大部分被告不获保释，被还押至今。因此在离开法庭时有人高呼：“坐了一年啦”；“我坐了24个月了”，其中，吴政亨步出法庭时争取时间与旁听席的家人朋友打招呼，“疫情严重，多留在家，我有物资，不用担心！”；谭凯邦则大叫“阿Ben(钟锦麟)同徐子见囚仓有疫情， “阿廷(林卓廷）的五仓也有事”，相信是该3人均未到庭的原因。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a3fa1b9059e69050.jpg)图片来源： /www.centralbanking.com
 
-提讯期间，控方指，初步有约9至10名被告打算认罪，需要时间为他们整理案情，故申请押后。国安法指定法官署理总裁判官罗德泉表示，定下认罪限期 ，有意认罪的被告须在限期前表达意向。对此，辩方质疑，在部分被告缺席下定下限期并不公平，惟罗德泉仍然决定将案件押后至本周五再提堂。
 
-今日一共有逾20名被告出庭应讯，包括审讯案件表上在列的戴耀廷、杨岳桥、区诺轩、谭文豪、胡志伟、尹兆坚、郭家麒、赵家贤，其中钟锦麟虽在表上但未有到庭。而到庭列席旁听的被告有吴政亨、袁嘉蔚、梁晃维、黄之锋、谭得志、吴敏儿、谭凯邦、刘颖匡、邹家成、梁国雄、岑敖晖等。另早前获准保释的杨雪盈、黄碧云均有到听列席。
+根据Bitcoin.com 2月28日报道，墨西哥的私营银行希望与该国中央银行共同努力，创建一种新的数字货币。墨西哥银行协会（ABM）主席会见了墨西哥银行行长，为未来创建国家数字货币提供了私营银行集团的帮助。
 
-来源｜[now新聞](https://news.now.com/home/local/player?newsId=468000)
+墨西哥银行协会的成员已经表示，他们打算帮助该国中央银行设计和发行潜在的中央银行数字货币（CBDC）。该协会主席丹尼尔·贝克尔（Daniel Becker）会见了墨西哥银行行长维多利亚·罗德里格斯·塞哈（Victoria Rodríguez Ceja），审查了一些使墨西哥公民更容易获得银行有关服务的重要因素。
+
+关于这次会面，贝克尔表示：“如果墨西哥确定银行的意见可以帮助其建立更好的元素或加密货币，请依据我们和最好的银行建议，这样才能激发并拥有更有效和更强大的金融系统，从而达到更多墨西哥人使用的目的”。
+
+贝克尔还欢迎引入数字货币以降低交易成本，并利用区块链实现更好的互操作性。
+
+参考链接：[Private Banks Propose to Help Design Digital Currency in Mexico](https://news.bitcoin.com/private-banks-propose-to-help-design-digital-currency-in-mexico/)
+
+*发布：*Frank2021
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

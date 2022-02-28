@@ -2,21 +2,43 @@
 ---
 
 
-## 韩国政府向乌克兰提供1000万美元用于人道救援
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2080490/)
+## 俄乌阶段性战况汇总
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2080820/)
 
-撰稿：追着曙光跑
+作者：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-78.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/phprM8oVA.jpg)图片来源：法新社 
+台湾媒体2月26日报道，美国政府为阻止俄军的斩首行动，准备帮助乌克兰总统泽连斯基从基辅撤离，但泽连斯基拒绝离开基辅。
 
-据韩国KBS新闻2月28日的报道，韩国外交部今天（28日）宣布，韩国决定向乌克兰提供1000万美元的紧急人道主义援助，用于帮助乌克兰政府、民众和难民。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-28-at-21.31.10.jpeg)图片来源：原新闻
-外交部指出，将通过与乌克兰及其周边国家政府和国际组织协商，确保援助尽快到位。
+长期追踪俄罗斯军队动态的美国麦克萨科技公司卫星图像显示，有俄罗斯军队正在波兰边境集结，虽然尚不清楚原因，但美国国务卿布林肯表示，担心俄罗斯可能有乌克兰以外的目标。
 
-联合国难民事务高级专员估计，将有超过 400 万乌克兰难民逃往波兰、匈牙利、罗马尼亚和斯洛伐克等周边国家。
+乌克兰副总理费多罗夫致信苹果CEO库克，希望苹果公司能响应美国政府制裁，停止在俄罗斯销售产品，并关闭在俄罗斯的苹果商店应用程序，或有助于激发俄罗斯年轻人反对普京的侵略行动。
 
-外交部表示，希望韩国政府的支持能够为乌克兰民众和难民提供切实帮助，政府并计划为解决乌克兰人道主义危机作出积极力量。
+俄罗斯驻美大使证实，俄军在攻占车诺比核电站之后，挟持了92名职员作为人质。 联合国安理会表决谴责俄罗斯入侵乌克兰、要求俄国立即撤军的决议，遭到安理会轮值国主席俄罗斯的否决。
 
-信息来源：**[외교부, 우크라이나 국민·피난민에 1천만 달러 지원](https://news.kbs.co.kr/mobile/news/view.do?ncd=5405763)**
+中共国、印度和阿联酋3国弃权。 欧盟27个会员国通过了对俄罗斯的第2轮制裁方案，宣布冻结普京和俄罗斯外交部长拉夫罗夫在外国的资产，美国和加拿大也宣布了类似的制裁方案。欧盟外交官指出，该制裁行动是一个重要的政治信号。
 
+北约秘书长斯托尔滕贝格宣布，北约在部署部分战备反应部队，以强化其东侧防御，并持续向乌克兰输送防空系统等武器。这是北约首次在集体防御的背景下，部署反应部队。
+
+新闻链接：[https://news.ltn.com.tw/news/world/breakingnews/3841859](https://news.ltn.com.tw/news/world/breakingnews/3841859)
+
+编辑：飞虹
+
+校对/发稿：小小安
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-415.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-78.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
