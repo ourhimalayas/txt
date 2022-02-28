@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯表示俄方愿在乌克兰投降的基础上与乌方进行谈判
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079687/)
+## 墙内一开智网民谈为何支持乌克兰
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079691/)
 
-02/25/2022 据路透社报道，俄罗斯准备在乌克兰投降的基础上，派代表团前往白俄罗斯首都明斯克与乌方进行谈判。
+02/24/2022 墙内一开智网民谈为何支持乌克兰。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

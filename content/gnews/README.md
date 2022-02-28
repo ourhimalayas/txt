@@ -15,80 +15,80 @@
 
 ---
 
-### [日本加入国际支付网的排俄行列 冻结普京资产，援助乌克兰1亿美元](/content/gnews/1/README.md)
+### [大直播后记：停掉SWIFT对中共国的影响](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [俄外交部：俄罗斯在世界上有朋友 特别是中共国！](/content/gnews/2/README.md)
+ ` 蓝莲花农场`
+
+### [日本加入国际支付网的排俄行列 冻结普京资产，援助乌克兰1亿美元](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国防部为攻打台湾造势](/content/gnews/2/README.md)
+### [中共国防部为攻打台湾造势](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共外交部称美国没资格告诉中方如何尊重国家主权](/content/gnews/3/README.md)
+### [中共外交部称美国没资格告诉中方如何尊重国家主权](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大新斯科舍省将终止所有中共病毒限制措施](/content/gnews/4/README.md)
+### [加拿大新斯科舍省将终止所有中共病毒限制措施](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [卢布疯狂贬值 俄罗斯民众排队提现](/content/gnews/5/README.md)
+### [卢布疯狂贬值 俄罗斯民众排队提现](/content/gnews/7/README.md)
  ` 日本東京方舟農場`
 
-### [乌克兰泽连斯总统基要求联合国剥夺俄罗斯在安理会的投票权](/content/gnews/6/README.md)
+### [乌克兰泽连斯总统基要求联合国剥夺俄罗斯在安理会的投票权](/content/gnews/8/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [P&amp;G抨击美国种族主义后对中共国保持沉默](/content/gnews/7/README.md)
+### [P&amp;G抨击美国种族主义后对中共国保持沉默](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄罗斯外交官为袭击乌克兰道歉](/content/gnews/8/README.md)
+### [俄罗斯外交官为袭击乌克兰道歉](/content/gnews/10/README.md)
  ` Shuizhuyu`
 
-### [北约历史上首次启动应对部队](/content/gnews/9/README.md)
+### [北约历史上首次启动应对部队](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [墙内一开智网民谈为何支持乌克兰](/content/gnews/10/README.md)
+### [墙内一开智网民谈为何支持乌克兰](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国是俄罗斯的经济靠山](/content/gnews/11/README.md)
+### [中共国是俄罗斯的经济靠山](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [俄罗斯表示俄方愿在乌克兰投降的基础上与乌方进行谈判](/content/gnews/12/README.md)
+### [俄罗斯表示俄方愿在乌克兰投降的基础上与乌方进行谈判](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [无论在军事上发生什么状况普京都不会赢](/content/gnews/13/README.md)
+### [无论在军事上发生什么状况普京都不会赢](/content/gnews/15/README.md)
  ` 美国政要直译推`
 
-### [戏谈中共疫情](/content/gnews/14/README.md)
+### [戏谈中共疫情](/content/gnews/16/README.md)
  ` 首尔天池农场`
 
-### [普京威胁动用核武器，警告西方国家不要动兵干预](/content/gnews/15/README.md)
+### [普京威胁动用核武器，警告西方国家不要动兵干预](/content/gnews/17/README.md)
  ` 首尔天池农场`
 
-### [网络上发表言论的时候不要拿战争来开玩笑](/content/gnews/16/README.md)
+### [网络上发表言论的时候不要拿战争来开玩笑](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌克兰总统表示基辅仍在掌控之中](/content/gnews/17/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [白宫呼吁中共国谴责俄罗斯的入侵行为](/content/gnews/18/README.md)
+### [白宫呼吁中共国谴责俄罗斯的入侵行为](/content/gnews/19/README.md)
  ` 日本东京方舟农场`
 
-### [俄乌战争｜白俄罗斯修宪为普京核部署铺路 空降部队启程进攻乌克兰](/content/gnews/19/README.md)
+### [俄乌战争｜白俄罗斯修宪为普京核部署铺路 空降部队启程进攻乌克兰](/content/gnews/20/README.md)
  ` 關注組`
 
-### [乌克兰官方：俄罗斯的潜伏特工标记目标建筑物以提高空袭准确性](/content/gnews/20/README.md)
+### [乌克兰官方：俄罗斯的潜伏特工标记目标建筑物以提高空袭准确性](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [前乌克兰小姐穿上戎装加入抵抗俄军行列](/content/gnews/21/README.md)
+### [前乌克兰小姐穿上戎装加入抵抗俄军行列](/content/gnews/22/README.md)
  ` 首尔天池农场`
 
-### [私营银行提议帮助墨西哥创建数字货币](/content/gnews/22/README.md)
+### [私营银行提议帮助墨西哥创建数字货币](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [02/13文贵大直播：大卡车运动来源于文贵策划的香港运动（粤语配音）](/content/gnews/23/README.md)
+### [02/13文贵大直播：大卡车运动来源于文贵策划的香港运动（粤语配音）](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻新闻｜俄罗斯遭踢出SWIFT系统 乌克兰有望加入欧盟](/content/gnews/24/README.md)
+### [秘翻新闻｜俄罗斯遭踢出SWIFT系统 乌克兰有望加入欧盟](/content/gnews/25/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [郭文贵直播摘要和音频 2022.02.27](/content/gnews/25/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [港闻｜民主派初选案未审先囚一周年 审讯日期一再押后 遥遥无期](/content/gnews/26/README.md)
  ` 關注組`

@@ -2,20 +2,31 @@
 ---
 
 
-## 俄乌战争｜白俄罗斯修宪为普京核部署铺路 空降部队启程进攻乌克兰
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2079515/)
+## 白宫呼吁中共国谴责俄罗斯的入侵行为
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2079526/)
 
-**撰文/ 港台前线｜发布日期/ 28/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/白俄羅斯修憲為普京核部署鋪路-空降部隊啟程進攻烏克蘭.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+**撰稿：日本东京方舟农场 北极**
 
-**白俄罗斯周日（27日）通过公投同意废除宪法订明国内不部署、不发展核武的中立原则，即正式撤销核中立地位，为俄罗斯利用境内核武部署以威胁欧洲大陆大开绿灯。**
+白宫周日（2月27日）呼吁中共国谴责俄罗斯对乌克兰的入侵行为。
 
-另外，经多间外媒确认，白罗斯军队在当地时间今日（28日）正式联同俄罗斯军方入侵乌克兰。空降部队已于凌晨时分登上俄军运输机，前往出发进入乌克兰境内。
+北京拒绝将莫斯科的行为称为“入侵”，并敦促各方保持克制。拜登上周对此进行了不点名批评：“普京会成为被国际舞台遗弃的人。任何认可俄罗斯对乌克兰赤裸裸的侵略的国家都会被连累。”
 
-白罗斯总统卢卡申科（Alexander Lukashenko）早前表示，该国军队只会在境内为俄军提供补给后勤工作，今日就出尔反尔，动用军力支持俄军进攻，加上先前被发现放任俄军于其领空发射导弹袭击乌克兰，白俄罗斯已被欧盟列为另一入侵者并实施制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-31.jpeg)白宫新闻发言人莎琪（图片来自美国之音）
 
-来源｜[ALJazeera](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwjm5sv286H2AhWlIUQIHZ3OCQQQxfQBKAB6BAgEEAI&amp;url=https%3A%2F%2Fwww.aljazeera.com%2Fnews%2F2022%2F2%2F27%2Fbelarus-holds-referendum-to-renounce-non-nuclear-status&amp;usg=AOvVaw2aESAvzB5EcEdlllaxMw03)
+莎琪在周日做出的评论则更为直接，她在微软全国广播公司（MSNBC）的采访中表示，“这不是旁观的时候，现在是发声并谴责普京总统的入侵行为，中共国领导层需要审视他们自己的立场。”
+
+她表示美国总统拜登最近还未和中共党魁习近平通话，但不排除在未来通话的可能性。
+
+中共国是俄罗斯进出口方面的最大贸易伙伴。2020年，中共国购买了俄罗斯三分之一的出口原油，同时中共国也向俄罗斯供应制造产品，如手机、电脑、玩具、服装。
+
+美国、英国、日本、加拿大、澳大利亚和欧盟上周在针对俄罗斯惩罚的基础上出台了更多制裁措施，包括德国暂停了对来自俄罗斯价值110亿美元的天然气管道的认证。
+
+参考链接：
+[https://www.voachinese.com/a/6462062.html](https://www.voachinese.com/a/6462062.html)
+
+素材采编：北极
+编辑： 老孙
+发布：文曦
 
  
 

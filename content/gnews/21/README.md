@@ -2,22 +2,22 @@
 ---
 
 
-## 前乌克兰小姐穿上戎装加入抵抗俄军行列
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2079371/)
+## 乌克兰官方：俄罗斯的潜伏特工标记目标建筑物以提高空袭准确性
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2079497/)
 
-撰稿/翻译：zzballack
-上传：追着曙光跑
+#### 翻译/撰稿：zzballack
 
-据《布雷特巴特新闻网》（Breitbart News）2月27日报道，在俄罗斯大举入侵乌克兰之际，乌克兰各行各业的人纷纷加入了抵抗俄军的战斗，其中包括选美皇后。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-28-at-16.32.58.jpeg)图片来源：原新闻
-作为2015年的乌克兰小姐冠军，会说 5 种语言、并担任过翻译和公关经理的安娜塔西娅·蕾娜（Anastasiia Lenna）现在像其他许多乌克兰人那样，穿上戎装、手持步枪，阻止那些试图入侵乌克兰的人。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-17.jpg)图片来源：路透社
+据《新闻极限》（Newsmax）2月27日报道，自俄罗斯2月24日入侵乌克兰后不久，乌克兰所有主要城市开始出现“X”涂标，这些“X”标记旁边往往有看起来像手握镜的物体。
 
-蕾娜最近在Instagram上发布了一张自己的持枪戎装照，并附带了“与乌克兰在一起”和“不要碰乌克兰”的标签。她一直在大声呼吁人们捐款资助军队，以便能够击退俄军。
+乌克兰消息人士告诉Newsmax，就在轰炸开始前，这些标记就已经“遍地都是”。现在，乌克兰国防军知道，普京早在战争开始前就向乌克兰各城市派遣潜伏特工，他们用发光标记物标记建筑物、道路和重要基础设施，以提高空袭的准确性。显然，俄罗斯针对平民和城市中其他目标的秘密计划早在数月前就制定好了。乌克兰西部的利沃夫（Lviv）州政府说，俄罗斯的潜伏特工早在去年12月就开始渗透到各大城市，然后他们等着分配任务。
 
-据新闻网站《TMZ》报道，蕾娜向普京的军队放话说：“所有越过乌克兰边境试图入侵的人都将被干掉！”另外，蕾娜称赞乌克兰总统弗拉基米尔·泽连斯基 (Volodymyr Zelenskyy)是一位真正的和强硬的领导人。泽连斯基上周呼吁乌克兰人拿起武器反抗俄罗斯入侵者，并承诺向那些愿意为乌克兰而战的人提供枪支。
+当地新闻机构、独立基层记者、普通公民、军队人员和民兵拍摄的视频和照片记录了乌克兰各地的此类破坏活动。新闻机构和基层记者利用社交媒体、新闻报道和Telegram通知市民，并告诫他们保持警惕，销毁标记物。市民向地方当局报告了这些情况，由政府集体武装的民兵继续抓捕和审讯破坏者。乌克兰立法机构的一份声明说：”这些潜伏人员被用于提高俄军空袭的准确性和破坏行动。”
 
-信息来源：[Former Miss Ukraine Takes Up Arms Against Russia](https://www.breitbart.com/entertainment/2022/02/27/former-miss-ukraine-takes-up-arms-against-russia/)
-[MISS GRAND UKRAINEBEAUTY QUEEN NOW A SOLDIER …Warns Russia, We’ll Shoot To Kill](https://www.tmz.com/2022/02/27/miss-grand-ukraine-joins-military-soldier-russian-invasion/)
+一段视频显示，一名男子在一栋居民楼的天然气管道上做了标记，这可能是为了确保导弹袭击能造成最大破坏。乌克兰中西部城市文尼察 (Vinnytsia)的警察说，潜伏特工一直在通过手机调整他们的策略。警方声明说：“敌人知道乌克兰人正在摧毁这些标记。现在，他们正在使用打开了定位服务的手机。我们恳请大家关闭你的位置，这十分重要，因为打开定位服务可能会让你失去生命。”
+
+新闻来源：[Russia’s Sleeper Agents in Ukraine Identified](https://www.newsmax.com/headline/russia-sleeper-agents-ukraine/2022/02/27/id/1058756/)
 
  
 
