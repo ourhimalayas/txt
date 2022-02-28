@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/28/2022 10:43 PM (UTC)`
+
+2/28/2022 Miles Guo’s GETTR: Encountering the humanitarian disaster in Ukraine, the CCP not only rescues its own people while leaving Lao Baixing behind, but also is trying to defame and block the professional and legitimate rescue organized by the New Federal State of China; the evil nature of the rogue CCP is completely exposed to the world!<br/><br/>2/28/2022 文贵盖特：面对乌克兰人道灾难，中共不光不管老百姓，只救自己人；还企图抹黑、阻止新中国联邦专业、合法地救援，中共的邪恶流氓本性暴露无遗！<br/>
+![img](https://media.gettr.com/group6/getter/2022/02/28/22/43f52e13-84b1-7fe9-4ea8-ad0652a2dc73/out.jpg)
+
+---
+
 `@miles 2/28/2022 3:18 PM (UTC)`
 
 2/27/2022 Miles Guo: There won’t be information warfare in the war between Taiwan and the CCP. The advantage of the Taiwanese military is fighting technology warfare and electronic warfare. What are the differences between the mindset of the Taiwanese soldiers and that of the CCP’s soldiers? Why are Taiwanese traitors one of the biggest problems of Taiwan?<br/><br/>2/27/2022 文贵直播: 台海战争中不会打信息战，台湾军队相对于共军的优势是技术战、电子战；台湾士兵的心态和共匪士兵有何区别？为什么台湾最大的问题之一是其内部的卖台贼？
@@ -144,13 +151,6 @@ Announcement of New Federal State of China & Rule of Law Foundation on Emergency
 
 为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。<br/><br/>救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。<br/><br/>24小时救援联系方式如下：<br/><br/>邮箱：<br/>ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO<br/>电话和短信：+1 720-657-6776 或 +1 719-224-4232<br/><br/>新中国联邦<br/>法治基金 <br/>2022年2月26日
 ![img](https://media.gettr.com/group6/getter/2022/02/27/12/4934204f-f5da-3930-61bd-4b111c3b7482/c36b13dfc2ad94a2feb97d6ca8dae462.jpg)
-
----
-
-`@miles 2/27/2022 8:38 AM (UTC)`
-
-2/26/2022 Miles Guo:  Education is not the cornerstone of a country, but a means to differentiate humans from animals; GEDU education includes both online and offline courses, we do not indoctrinate, but create an environment for students to engage with people and the physical world<br/><br/>2/26/2022 文贵直播：教育不是国家的基石，而是区分人和动物的手段；GEDU教育包括线上和线下课程，我们没有灌输，而是为学生创造与人与物接触的环境<br/>
-![img](https://media.gettr.com/group9/getter/2022/02/27/08/99a1a710-2482-1a35-9e89-9efa238ed80f/out.jpg)
 
 ---
 
