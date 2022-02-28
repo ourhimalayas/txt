@@ -2,20 +2,38 @@
 ---
 
 
-## 俄乌战争｜金融制裁效果初现 全球最大主权基金即时冻结旗下俄罗斯资产
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2079091/)
+## 全球各国对乌克兰的游行支持
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2079130/)
 
-**撰文/ 港台前线｜发布日期/ 28/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/金融制裁效果初現-全球最大主權基金即時凍結旗下俄羅斯資產.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2月27日，多家媒体报道，俄罗斯入侵乌克兰，引发了强烈的全球民众抗议。世界多个国家的老百姓都举行了大规模游行，谴责战争。
 
-随着俄乌战局持续严峻，多国接连对俄罗斯实行更严厉的金融制裁，继早前同意将部分俄罗斯银行踢出SWIFT全球支付系统之后，全球最大主权基金——挪威主权财富基金（挪威主权基金）27日宣布即时冻结并抛售旗下俄罗斯资产，估计市值超过30亿美元。
+从俄罗斯本土，到伦敦、纽约、德黑兰，从欧洲到美洲，数千人走上街头，支持乌克兰，抨击俄罗斯。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture00-3.jpg)
+民众自制的标语包括，支持乌克兰，要求普京下台，并把普京比作希特勒纳粹，敦促世界各国政府加强对俄罗斯的制裁。据不完全统计，上街游行的地区有意大利的罗马、瑞士、奥地利的维也纳、芬兰、法国的马赛和蒙彼利埃、西班牙的巴萨罗那、英国、以色列、爱沙尼亚、格鲁吉亚、阿根廷、加拿大等等，甚至在中共国墙内，都有勇士举着支持乌克兰的旗子。
 
-挪威总理乔纳斯·加尔·斯托尔（Jonas Gahr Stoere）在新闻发布会上表示：““我们已决定即时停止所有涉及俄罗斯企业股份的买卖，挪威财政部会联手基金开展撤出俄罗斯市场的部署工作”。不过，他没有透露具体的执行时间表。
+俄罗斯驻各国大使馆的俄罗斯人也有人积极加入当地的反战游行，和本土的俄罗斯人一样为这个国家对乌克兰发动的战争表示谴责和耻辱，称这是全人类的灾难。
 
-未加入欧盟的挪威属欧洲经济区成员，今次对俄乌战争的态度明确，不仅跟从欧盟决定对俄罗斯封锁领空及配合联合制裁，还拨款20亿挪威克朗（约2.23亿美金）作人道援助。
+参考链接：
+1. [全球各国对乌克兰的游行支持](https://mb.com.ph/2022/02/27/russia-out-worldwide-protests-in-solidarity-with-ukraine/)
+2. [全球各国对乌克兰的游行支持](https://gettr.com/post/px49u7764b)
+3. [全球各国对乌克兰的游行支持](https://gettr.com/post/px47541993)
 
-來源｜[路透社](https://www.reuters.com/world/europe/norway-says-its-sovereign-fund-will-divest-russia-2022-02-27/)
+![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
+
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

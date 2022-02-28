@@ -2,12 +2,37 @@
 ---
 
 
-## 2月28日勿忘香港（图片1-10）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2083107/)
+## 大直播后记： 保命、保财、报仇——战争心理学
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2083200/)
 
-设计 五月花农场 企鹅
-![](https://assets.gnews.org/wp-content/uploads/2022/02/A1776C27-ACF3-4048-B207-E43DC5D23CD5.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/CCE7874B-5D73-4076-A842-CBA6BA363DAC.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/45D89846-4A43-4BF2-8BBF-954305EBED46.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/76AAA2E9-E9A7-4A6F-8551-3F5819502A45.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/560E794B-6252-4835-A3A9-243AA587AEDB.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/C1D1543A-7236-4C5C-9E63-7F7138C9A8A7.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/99CC5A05-7AF4-4CA0-96DE-F0AB421E92C9.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/26760E3F-0A01-461A-AD99-21EBE8659A2D.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/5E5A64D7-E841-4635-8DF3-A6371A93BEB7.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/FFD0D609-71C7-46AC-8102-824AA2199EBE.jpeg)
-发布 水涨船高
+#### 整理：清水冷香、Lucy Liu
+编辑：Mohegayer K. Simon
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-36.png)图片来源：墨尔本雅典娜农场设计组
+那个记者叫什么Marton John（音译：人名），那个傻货，他懂个屁呀！他觉得他在客厅是宣布主权一样，根本不知道我们过去干了啥，不知道现在共产党多怕我们，不知道为什么盘古龙头变成龟头了，因为他无知！他是在酒杯里边见世界。所以当时我说的保命，谁不想保命？保财，谁不捂住自己的钱包？谁不捂着自己的脑袋？你告诉我！报仇，你捂着脑袋捂着钱包，你不想想这谁让我抱脑袋报仇的？当然是共产党，那就找共产党，还用说吗？这就是一个战争心理学，你必须具备的素质。启发人的本能和消除人的本能。
+
+七哥从第一天直播开始，你看明镜傻乎乎地问，他当时连直播的基本常识都没有，现在你看到我那时整个的直播，就从我直播之后他们才有了所谓直播设备，你拿个手机采访直播，你是疯子简直是。但是感谢他，我永远感谢明镜，不管他以后怎么说我，就感谢他。但是共产党没想明白的是，七哥当年用的社交媒体这一招，就像过去这几年七哥打仗，都在谈论我们的主体战争的时候，我们从侧面包围过去了。
+
+我崇拜中国的霍去病和卫青式的战争——以少胜多，出其不意，转移你的注意力，然后一举歼灭。我喜欢这个。我恨的就是共产党的所谓的三大战争，全是欺骗战争，就拿人去死去，就像越南战争，孩子没玩过枪就送到越南去了。今天你看到乌克兰人，他能不骄傲吗？看看我们中共国，上越南去的时候，60%是孩子，是学生，从来没摸过枪，上了火车才给你枪让你搂两下子。人家乌克兰咋不骄傲呢？
+
+人家卫青、霍去病冲到你背后，匈奴人还在前面冲呢，突然发现他后面那波人来了，这是谁呀？还没落完又一波，三波，打着打着，突然间主将才出来了，直接把刀放在你脸上了，现在结束，一刀下去，所有士兵的心理崩溃啊。这就叫宣判式心理学。——你们的头儿在在我的刀刃下呢，你们还要战吗？哎呀，不打了，不打了，你本身就筋疲力尽，全部跪下。这时候大将一挥手，长袍又往后一挥，崛起战马到安全地带去了，下边士兵收拾战场。
+
+中共国呢？把人弄到了越南去，冲啊，把子弹打光，死了再上，就是靠死人。淮海战役，你看过淮海战役的真相吗？你看过整个当时东北的几场战役吗？全是老百姓，全是饿死人。你再看看平津湖，看看北朝鲜，你再比比乌克兰，我们说实在话，把自己的头塞到裤裆里，都觉得羞愧难当啊！
+
+资料来源：[2022年2月27日文贵大直播](https://gtv.org/video/id=621b7633019ef64da651ee6c)
+
+发布：wenly
+
+更多资讯，请关注：
+
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

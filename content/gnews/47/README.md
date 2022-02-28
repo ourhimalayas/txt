@@ -2,22 +2,39 @@
 ---
 
 
-## 港闻｜民主派初选案未审先囚一周年 审讯日期一再押后 遥遥无期
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2079256/)
+## 美欧同意将部分俄罗斯银行从SWIFT系统中剔除
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2079146/)
 
-**撰文/ 港台前线｜发布日期/ 28/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/民主派初選案未審先囚一週年-審訊日期一再押後-遙遙無期.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+作者：香草山农场-我不在這裡/日本东京方舟农场—Miyali7768(文玉）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2月26日，在乌克兰及国际多种力量的努力争取之后，美国联合加拿大、欧盟和英国等达成协意，对俄罗斯金融部门实施严厉的制裁，包括阻止其进入全球SWIFT金融体系，并首次对俄罗斯中央银行进行限制，以惩罚其对乌克兰的入侵。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture00-2.jpg)
+2 月 26 日，欧洲已开始为俄罗斯与 SWIFT 支付系统断开连接进行技术准备。SWIFT 的中断被称为“经济的核武器”。
 
-因参与2020年民主派“35+”初选的47位议员或社运成员去年2月28日被控串谋颠覆国家政权罪，今早（29日）其中9名被告于西九龙法院再次提堂，另有多名被告到庭列席旁听，还有3名被告因囚仓出现疫情未能到庭。
+这些制裁将使俄罗斯的银行不再能为贸易和金融活动进行支付，有效地阻止该国出口石油、煤炭和天然气等商品。也将使俄罗斯无法进口关键技术，如半导体和本国工业的机械。
 
-由于今日刚好是该案件落案一周年，大部分被告不获保释，被还押至今。因此在离开法庭时有人高呼：“坐了一年啦”；“我坐了24个月了”，其中，吴政亨步出法庭时争取时间与旁听席的家人朋友打招呼，“疫情严重，多留在家，我有物资，不用担心！”；谭凯邦则大叫“阿Ben(钟锦麟)同徐子见囚仓有疫情， “阿廷(林卓廷）的五仓也有事”，相信是该3人均未到庭的原因。
+在这些措施中，对俄罗斯央行的限制针对的是克里姆林宫掌握的6000多亿美元的储备，以有效限制俄罗斯在西方制裁收紧的情况下支持卢布的能力。
 
-提讯期间，控方指，初步有约9至10名被告打算认罪，需要时间为他们整理案情，故申请押后。国安法指定法官署理总裁判官罗德泉表示，定下认罪限期 ，有意认罪的被告须在限期前表达意向。对此，辩方质疑，在部分被告缺席下定下限期并不公平，惟罗德泉仍然决定将案件押后至本周五再提堂。
+参考链接：
+1. [美欧同意将部分俄罗斯银行从SWIFT系统中剔除](https://www.cbsnews.com/news/swift-banking-system-russian-banks-removed-by-us-uk-eu/)
+2. [美欧同意将部分俄罗斯银行从SWIFT系统中剔除](https://www.usatoday.com/story/money/2022/02/24/swift-russia-banking-system-sanctions/6930931001/)
+3. [美欧同意将部分俄罗斯银行从SWIFT系统中剔除](https://asia.nikkei.com/Politics/Ukraine-conflict/Removal-of-Russian-banks-from-SWIFT-system-5-things-to-know)
+4. [美欧同意将部分俄罗斯银行从SWIFT系统中剔除](https://www.ukrinform.net/rubric-ato/3414072-zelensky-ukrainian-diplomats-worked-247-for-eu-countries-to-agree-on-decision-to-cut-russia-off-from-swift.html)
 
-今日一共有逾20名被告出庭应讯，包括审讯案件表上在列的戴耀廷、杨岳桥、区诺轩、谭文豪、胡志伟、尹兆坚、郭家麒、赵家贤，其中钟锦麟虽在表上但未有到庭。而到庭列席旁听的被告有吴政亨、袁嘉蔚、梁晃维、黄之锋、谭得志、吴敏儿、谭凯邦、刘颖匡、邹家成、梁国雄、岑敖晖等。另早前获准保释的杨雪盈、黄碧云均有到听列席。
+![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-来源｜[now新聞](https://news.now.com/home/local/player?newsId=468000)
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

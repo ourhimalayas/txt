@@ -2,24 +2,36 @@
 ---
 
 
-## 2022年2月27日郭先生盖特 — 视频1「3分26秒」
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/2079010/)
+## 欧洲一些国家对乌克兰提供军事援助
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2079127/)
 
-听写：洛杉矶盘古农场 — Antsee-GTV
+作者：银河系农场 — 骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2月26日，俄罗斯对乌克兰的侵略行动仍在继续。三个北约盟国捷克共和国、荷兰和葡萄牙表示，将帮助乌克兰同俄罗斯作战。捷克共和国会运送武器，包括机枪、冲锋枪、狙击步枪和相应弹药，葡萄牙承诺会派遣超过175名军人，荷兰表示会提供200枚高射刺客导弹以及其他国防武器，目前这些战略物资和人员正被紧急运送到乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture00-1.jpg)
+德国也表示将向乌克兰提供武器，包括1000枚反坦克武器和500枚对空导弹。德国总理表示会尽最大努力帮助乌克兰抵御普京的入侵。
 
-Video link: https://gettr.com/post/px9tgede10
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1D48083C-9447-4610-BBE3-0A497BBF092E.jpeg)
-兄弟姐妹们，现在是28号（美东时间27号）下午6点，你健身了吗？
+法国则积极参与了制裁俄罗斯的行动，对俄罗斯在英吉利海峡的船只进行了扣押。据悉该船只与俄罗斯间谍头目的家人有关，属于受到美国制裁的俄罗斯实体。
 
-兄弟姐妹们，虽然…兄弟姐妹们，我这苹果上还在开着会，我把声音屏蔽了，然后健身，开会，录视频「同时进行」。救人很重要，先把自己救了，不管任何理由都要健身呐！希望兄弟姐妹们能看昨天的紧急大直播关于乌克兰救人 — 救人是我们现在的唯一目标。但是别着急，跟我们没有缘分的，没有姻缘的，结不成姻缘。别着急！
+参考链接：
+1. [欧洲一些国家对乌克兰提供军事援助](https://opoyi.com/english/czech-republic-netherlands-portugal-to-help-ukraine-fight-russia)
+2. [欧洲一些国家对乌克兰提供军事援助](https://www.reuters.com/world/europe/france-seizes-ship-suspected-violating-russia-sanctions-official-2022-02-26/)
+3. [欧洲一些国家对乌克兰提供军事援助](https://www.reuters.com/world/europe/germany-supply-ukraine-with-anti-tank-weapons-missiles-scholz-2022-02-26/)
 
-疯了，太多人想救了！在乌克兰原来以为6000多人，现在就知道的已经20000多了。别说10架飞机了，光中国人30架都不够 — 太可怕了，30架到50架都不够，太疯狂了！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-共产党这帮王八蛋听说以后马上通告不要上当受骗。你见过有开全世界最大的大力神飞机 — 一趟最起码物资就可能是几百万美元 — 去骗你去？去骗你一无分文，身在战区，素不相识的中国人吗？
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-共产党：我R你八辈祖宗啊！你们这么骗老百姓啊？！你能不能拿几万美金开着你的拖拉机到乌克兰救救那在水深火热中的同胞？别只救你们的小姨子，你们的小舅子 — 行不行？！我R你八辈祖宗啊！天看着呢，作吧！老天会灭了你们的。太可怕了，兄弟姐妹们。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-我们就是要行动和结果，要结果！啥都不说了。
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
