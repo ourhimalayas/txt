@@ -2,10 +2,10 @@
 ---
 
 
-## 乌克兰总统泽伦斯基发誓要继续战斗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079442/)
+## 川普在保守党政治行动大会上谴责俄罗斯对乌克兰的袭击
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079448/)
 
-02/26/2022 乌克兰总统泽伦斯基发誓要继续战斗，他在推特上发布了一段视频，要求乌克兰人不要相信关于乌克兰军队投降的“假消息”。
+02/26/2022 川普在保守党政治行动大会上谴责俄罗斯对乌克兰的袭击。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

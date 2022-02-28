@@ -2,39 +2,27 @@
 ---
 
 
-## 台湾军方：在台湾领空发现中共气象气球
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2079181/)
+## 俄罗斯总统弗拉基米尔·普京已下令其核准备就绪
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2079215/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：随心所在
+![](https://assets.gnews.org/wp-content/uploads/2022/02/281.jpg)图片来自网络
+俄罗斯入侵乌克兰后，国际紧张局势已经升温，普京指责西方国家对俄罗斯采取敌对行动。普京的命令可能会增加警报空间，俄罗斯拥有世界第二大核武库和大量弹道导弹。
 
-翻译/编辑：小红帽
+普京对法新社说：“我已命令国防部长和俄罗斯武装部队总司令将俄罗斯军队的威慑力量置于特别战备状态。”普京还称西方对俄罗斯实施的制裁是非法的。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-35.png)图片来源：www.globaltimes.cn
+据英国广播公司安全记者称，该命令将促进核武器的部署，但这并不意味着它会完成。普京警告西方国家如果干涉俄罗斯在乌克兰的行动，要为“历史上前所未有的后果”做好准备。
 
+国防学院的讲解员斯特凡·福斯说，俄罗斯周日宣布提高核威慑力量以提高警戒状态可能是模糊的。福尔西认为，从历史上看，提高准备状态一直是为冲突的另一方对国家形成核威胁做准备。然而，福斯说，目前没有任何国家用核武器威胁俄罗斯。
 
-根据中新社 2月27日报道，台湾军方周日证实了媒体的报道，中共军方使用的多个气象气球在农历新年假期后不久飞越台湾，但军方强调象气球不构成安全威胁，只用于气象观测。
+据他介绍，以核武器相威胁等方式应对经济制裁是前所未有的。福斯说，面对这样的威胁，俄罗斯应该被告知，这些威胁并不是理所当然的。
 
-“空军完全掌握了（这些气球）的动向”。台湾军方发言人史顺文告诉中新社记者：“据信它们被用于气象观测”。
+新闻链接：
 
-《联合早报》（UDN）周六报道，中国人民解放军驻福建第72集团军的一个炮兵旅下属的远程火箭部队向大气层释放了最后四组数量不详的气象气球。
+[Putin määräsi Venäjän ydinasevalmiuden hälytystilaan, Naton pääsihteeri kutsuu päätöstä vaaralliseksi ja vastuuttomaksi](https://www.msn.com/fi-fi/uutiset/ulkomaat/putin-m%c3%a4%c3%a4r%c3%a4si-ven%c3%a4j%c3%a4n-ydinasevalmiuden-h%c3%a4lytystilaan-ydinasetuntija-ven%c3%a4j%c3%a4-bluffaa/ar-AAUn7SI?bncnt=BroadcastNews_BreakingNews&amp;ocid=UCPNC2)
 
-《联合早报》报告称，2月中旬农历新年假期结束后的某个时候，台湾空军的雷达系统在基隆、桃园和新竹上空发现了这些气球，高度为9,000-10,000英尺（2,743-3,048米）。
-
-**中国的气象气球引起了人们的关注，特别是在俄罗斯正在入侵乌克兰的情况下，以及在蔡英文总统下令国家武装部队应保持高度戒备的情况下。**
-
-由台湾政府资助的国防与安全研究所的分析师苏紫云周日表示，即使这些气球是出于军事目的，它们也可能是为了为解放军东部战区司令部探测大气密度，不构成直接的安全威胁。
-
-参考链接：[Chinese weather balloons identified in Taiwan airspace: military](https://focustaiwan.tw/cross-strait/202202270007)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

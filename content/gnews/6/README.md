@@ -2,27 +2,27 @@
 ---
 
 
-## 乌克兰向国际法庭提出诉讼 指控俄罗斯种族灭
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2079484/)
+## 在大流行上，政府和他们的顾问集体在欺骗我们
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2079487/)
 
-**撰稿：日本东京方舟农场 子辰**
+##### 素材：小菠萝
+翻译：Julia Gao
+校对：Lish
+字幕：向上James
+编辑：Kari
 
-2月27日，乌克兰向联合国国际法院（Iinternational Court of Justice）提交了针对俄罗斯的诉讼申请，指控俄罗斯犯种族灭绝罪，要求国际法院命令俄罗斯立即停止其军事活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/025.jpg)（图片来自大纪元）
-据悉，乌克兰的诉讼是基于1948年《防止及惩治灭绝种族罪公约》（简称种族灭绝公约）的解释、适用和履行，对俄罗斯提起诉讼。
+越来越多有良知的正义人士已经向我们人类发出警告：病毒并不可怕，完全可以通过正确治疗方法治愈。真正可怕的是极权政府对待疫情的极端防疫措施，通过谎言，疫苗护照和封锁实现对自己本国民众的独裁统治。他们已经完全枉故作为一个民主国家的民选政府应尽神圣义务，而代之以谎言欺骗愚弄那些轻易相信他们的选民，在以下这个视频中迈克·耶顿博士（Mike Yeadon）是这些勇敢的医生的典范，他非常支持加拿大人勇敢的抗争行为，独裁政府不会施舍自由，民众不要被动等待。正如先贤们所讲：“历史是不能容纳谎言的”。
 
-乌克兰在其诉状中说，俄罗斯谎称乌克兰的卢甘斯克州和顿涅茨克州发生了种族灭绝行为，并且承认了所谓的“顿涅茨克人民共和国”和“卢甘斯克人民共和国”，然后宣布并实施了针对乌克兰的特殊军事行动。
+视频链接：[“If we don’t peacefully rise up and throw off this oppressive regime, I just don’t think we’ll ever recover our freedom.”](https://twitter.com/vigilantfox/status/1493388206288560129?s=21)
 
-诉状说，乌克兰坚决否认曾发生过此类种族灭绝事件，并指责俄罗斯，正在乌克兰进行种族灭绝行为，并称俄罗斯故意杀害并严重伤害乌克兰籍公民。
+*发布：Mttfly*
 
-乌克兰总统泽连斯基在推特上透露，乌克兰已经向国际法院提交了针对俄罗斯的申请。俄罗斯必须对其操纵种族灭绝概念为侵略辩护的行为负责。我们要求作出紧急决定，命令俄罗斯现在就停止军事活动，并期待下周开始的审判。
-
-参考链接：
-[https://www.epochtimes.com/b5/22/2/28/n13609759.htm](https://www.epochtimes.com/b5/22/2/28/n13609759.htm)
-
-素材采编：子辰
-编辑：老孙
-发布：Linda
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

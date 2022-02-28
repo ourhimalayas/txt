@@ -2,27 +2,20 @@
 ---
 
 
-## 在大流行上，政府和他们的顾问集体在欺骗我们
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2079487/)
+## 俄乌战争｜白俄罗斯修宪为普京核部署铺路 空降部队启程进攻乌克兰
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2079515/)
 
-##### 素材：小菠萝
-翻译：Julia Gao
-校对：Lish
-字幕：向上James
-编辑：Kari
+**撰文/ 港台前线｜发布日期/ 28/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/白俄羅斯修憲為普京核部署鋪路-空降部隊啟程進攻烏克蘭.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-越来越多有良知的正义人士已经向我们人类发出警告：病毒并不可怕，完全可以通过正确治疗方法治愈。真正可怕的是极权政府对待疫情的极端防疫措施，通过谎言，疫苗护照和封锁实现对自己本国民众的独裁统治。他们已经完全枉故作为一个民主国家的民选政府应尽神圣义务，而代之以谎言欺骗愚弄那些轻易相信他们的选民，在以下这个视频中迈克·耶顿博士（Mike Yeadon）是这些勇敢的医生的典范，他非常支持加拿大人勇敢的抗争行为，独裁政府不会施舍自由，民众不要被动等待。正如先贤们所讲：“历史是不能容纳谎言的”。
+**白俄罗斯周日（27日）通过公投同意废除宪法订明国内不部署、不发展核武的中立原则，即正式撤销核中立地位，为俄罗斯利用境内核武部署以威胁欧洲大陆大开绿灯。**
 
-视频链接：[“If we don’t peacefully rise up and throw off this oppressive regime, I just don’t think we’ll ever recover our freedom.”](https://twitter.com/vigilantfox/status/1493388206288560129?s=21)
+另外，经多间外媒确认，白罗斯军队在当地时间今日（28日）正式联同俄罗斯军方入侵乌克兰。空降部队已于凌晨时分登上俄军运输机，前往出发进入乌克兰境内。
 
-*发布：Mttfly*
+白罗斯总统卢卡申科（Alexander Lukashenko）早前表示，该国军队只会在境内为俄军提供补给后勤工作，今日就出尔反尔，动用军力支持俄军进攻，加上先前被发现放任俄军于其领空发射导弹袭击乌克兰，白俄罗斯已被欧盟列为另一入侵者并实施制裁。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+来源｜[ALJazeera](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwjm5sv286H2AhWlIUQIHZ3OCQQQxfQBKAB6BAgEEAI&amp;url=https%3A%2F%2Fwww.aljazeera.com%2Fnews%2F2022%2F2%2F27%2Fbelarus-holds-referendum-to-renounce-non-nuclear-status&amp;usg=AOvVaw2aESAvzB5EcEdlllaxMw03)
 
  
 
