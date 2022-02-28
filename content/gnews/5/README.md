@@ -2,20 +2,24 @@
 ---
 
 
-## 中日财经爆|台湾半导体产业配合国际制裁俄罗斯
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2080089/)
+## 中日财经爆|民众担忧国际制裁 俄罗斯国内现挤兑潮
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2080090/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2736.png)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fprod-upp-image-read.ft.com%2Fc4b2970a-fcbd-11e9-a354-36acbbb0d9b6&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2F6ab43e94-fca8-11e9-a354-36acbbb0d9b6&amp;tbnid=q11AGr4e5Kyw9M&amp;vet=12ahUKEwiOoIKuk6L2AhWQuJQKHY)
-俄罗斯对乌克兰的侵略暴行，引发国际制裁，除了对俄罗斯的金融制裁，美国政府要限制俄国的高科技发展，因此台积电（TSMC）已完全停止供货给俄国及其上游供应商，就连英特尔（Intel）和超微半导体（AMD）都跟进！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2738.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi.insider.com%2F621c4061bea1240018a8e126%3Fwidth%3D1136%26format%3Djpeg&amp;imgrefurl=https%3A%2F%2Fwww.businessinsider.com%2Fruble-hits-record-low-russians-rush-withdraw-us-dollars-atms-2022-2&amp;tbnid=ooYDLB)
+俄罗斯总统普京2月24日下令挥军入侵乌克兰，俄国民众因担忧西方制裁俄罗斯，周日在自动柜员机（ATM）前大排长龙提领现金，卢布兑美元重贬近3成。
 
-台湾经济部长王美花25日表示，「按照瓦圣纳协议的规定，对相关的出口做严厉的审查，我们会跟相关盟友协调，来共同协调再进一步采取措施。」
+西方国家除将俄罗斯踢出SWIFT支付系统，欧盟、美国、英国、加拿大也已宣布冻结俄罗斯央行的资产。尽管俄罗斯当局和银行试图缓和紧张情绪，但阻断特定俄国银行进入SWIFT支付系统，并冻结俄国央行外汇存底的举措，势将对俄罗斯经济造成严重打击；法国财长勒麦尔（Bruno Le Maire）先前则称SWIFT是“金融核武”。
 
-经济部长王美花也证实，包含台积电等国内半导体大厂，都将配合政府制裁措施，切断对俄国供货，不过看看台湾在电子零组件、电脑设备上，输出俄国占比低于1%，资通讯及视听设备也只有0.6%，去年对俄的半导体出口，只有5.6亿元台币，占比更是只有0.01%，因此对台影响有限。
+俄罗斯民众因担心金融卡失灵或银行限制提领而在ATM前出现领钱人龙。俄国圣彼得堡市民彼得（Pyotr）说：“24日以来，每个人都在ATM间来回奔走以领取现金。有些人很幸运（领到钱），有些人则不。”
 
-台湾半导体产业配合国际制裁，可提升我国声望，但俄国是半导体原料-钯的重要生产国，目前各厂商分散采购管道，加上库存约有6个月，暂时不受影响，就在全球对俄制裁席卷而来，中共官媒却爆料，俄国当局将财富透过加密货币形式藏匿，央视财经主播指出，“俄罗斯可能还有一些隐藏的盾牌，可以帮助其抵御制裁。”
+俄国央行建议民众随身携带银行卡，称移动支付系统在遭制裁银行运营的终端或网路商店，可能无法运作，让一些已习惯移动支付、很少在用现金的俄国民众叫苦。
 
-消息来源：[俄國侵略引國際制裁 台積電.英特爾停止供貨](https://tw.news.yahoo.com/%E4%BF%84%E5%9C%8B%E4%BE%B5%E7%95%A5%E5%BC%95%E5%9C%8B%E9%9A%9B%E5%88%B6%E8%A3%81-%E5%8F%B0%E7%A9%8D%E9%9B%BB-%E8%8B%B1%E7%89%B9%E7%88%BE%E5%81%9C%E6%AD%A2%E4%BE%9B%E8%B2%A8-054004921.html)
+尽管俄罗斯官员称SWIFT制裁对俄国国内支付行动构不成威胁，但前总理卡西亚诺夫（Mikhail Kasyanov）在表示，最重要的是西方正在冻结俄国央行（外汇）储备。“没有（储备金）支撑卢布。他们将打开印钞机。恶性通膨和经济重灾就不远了。”
+
+在西方祭出新一轮更严厉的制裁后，俄国卢布兑美元27日重贬近30%。卢布兑美元跌至117.817比1。
+
+消息来源：[普丁揮軍烏克蘭效應！俄羅斯爆ATM擠兌潮 盧布兌美元重貶](https://tw.news.yahoo.com/%E6%99%AE%E4%B8%81%E6%8F%AE%E8%BB%8D%E7%83%8F%E5%85%8B%E8%98%AD%E6%95%88%E6%87%89%EF%BC%81%E4%BF%84%E7%BE%85%E6%96%AF%E7%88%86atm%E6%93%A0%E5%85%8C%E6%BD%AE-%E7%9B%A7%E5%B8%83%E5%85%8C%E7%BE%8E%E5%85%83%E9%87%8D%E8%B2%B6-041553785)
 
 *编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*

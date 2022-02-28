@@ -2,24 +2,30 @@
 ---
 
 
-## 中日财经爆|民众担忧国际制裁 俄罗斯国内现挤兑潮
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2080090/)
+## 俄罗斯足球队遭抵制 或无缘世界杯
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2080115/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2738.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi.insider.com%2F621c4061bea1240018a8e126%3Fwidth%3D1136%26format%3Djpeg&amp;imgrefurl=https%3A%2F%2Fwww.businessinsider.com%2Fruble-hits-record-low-russians-rush-withdraw-us-dollars-atms-2022-2&amp;tbnid=ooYDLB)
-俄罗斯总统普京2月24日下令挥军入侵乌克兰，俄国民众因担忧西方制裁俄罗斯，周日在自动柜员机（ATM）前大排长龙提领现金，卢布兑美元重贬近3成。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2739.png)[图片来源](https://www.lindaikejisblog.com/2022/2/russias-national-team-ordered-by-fifa-to-play-their-matches-in-neutral-countries-without-their-flag-national-anthem-or-fans-under-the-name-football-union-of-russia.html)
+国际足联警告，他们正考虑对俄罗斯实施最终制裁，作为他们血腥入侵乌克兰的惩罚。俄罗斯足球队或将无缘参加本届世界杯足球赛
 
-西方国家除将俄罗斯踢出SWIFT支付系统，欧盟、美国、英国、加拿大也已宣布冻结俄罗斯央行的资产。尽管俄罗斯当局和银行试图缓和紧张情绪，但阻断特定俄国银行进入SWIFT支付系统，并冻结俄国央行外汇存底的举措，势将对俄罗斯经济造成严重打击；法国财长勒麦尔（Bruno Le Maire）先前则称SWIFT是“金融核武”。
+在俄罗斯军事入侵乌克兰3天后，国际足联命令俄罗斯在中立场地举行国际赛的主场赛事，而他们的国旗和国歌将被禁止。俄罗斯国家队将被称为俄罗斯足联(Football Union of Russia)。
 
-俄罗斯民众因担心金融卡失灵或银行限制提领而在ATM前出现领钱人龙。俄国圣彼得堡市民彼得（Pyotr）说：“24日以来，每个人都在ATM间来回奔走以领取现金。有些人很幸运（领到钱），有些人则不。”
+然而，就在宣布的几分钟内，波兰足球协会(Polish FA)坚持，无论场地在哪里，他们都不会在原定的世界杯附加赛中对阵俄罗斯。
 
-俄国央行建议民众随身携带银行卡，称移动支付系统在遭制裁银行运营的终端或网路商店，可能无法运作，让一些已习惯移动支付、很少在用现金的俄国民众叫苦。
+波兰足联主席库莱萨(Cezary Kulesza)在推特上表示：“今天国际足联的决定令人完全无法接受。我们没有兴趣参加这场比赛。我们的立场始终如一：波兰国家队将不会与俄罗斯比赛，无论球队的名字是什么。”
 
-尽管俄罗斯官员称SWIFT制裁对俄国国内支付行动构不成威胁，但前总理卡西亚诺夫（Mikhail Kasyanov）在表示，最重要的是西方正在冻结俄国央行（外汇）储备。“没有（储备金）支撑卢布。他们将打开印钞机。恶性通膨和经济重灾就不远了。”
+波兰预计在3月24日前往莫斯科比赛，获胜者将在5天后对决捷克或瑞典。世界杯足球赛的决赛抽签将在4月1日举行，决赛则在11月和12月于卡达举办。
 
-在西方祭出新一轮更严厉的制裁后，俄国卢布兑美元27日重贬近30%。卢布兑美元跌至117.817比1。
+瑞典与捷克都仿效这个做法。
 
-消息来源：[普丁揮軍烏克蘭效應！俄羅斯爆ATM擠兌潮 盧布兌美元重貶](https://tw.news.yahoo.com/%E6%99%AE%E4%B8%81%E6%8F%AE%E8%BB%8D%E7%83%8F%E5%85%8B%E8%98%AD%E6%95%88%E6%87%89%EF%BC%81%E4%BF%84%E7%BE%85%E6%96%AF%E7%88%86atm%E6%93%A0%E5%85%8C%E6%BD%AE-%E7%9B%A7%E5%B8%83%E5%85%8C%E7%BE%8E%E5%85%83%E9%87%8D%E8%B2%B6-041553785)
+瑞典足球协会主席艾利克尼尔森(Karl-Erik Nilsson)说：“我们之前已经表明，在(入侵)这种情况下，我们不想面对俄罗斯，这种情况将一直存在，直到另行通知。”
+
+捷克足球协会(Czech FA)表示：“捷克国家队的立场将不会改变。”
+
+国际足联在一份声明中回应，他们“非常关心波兰足协、捷克足协和瑞典足协通过社交媒体表达的立场。国际足联将保持密切联系，共同寻求适当和可接受的解决方案。”
+
+消息来源：[俄羅斯遭歐洲對手抵制 世足賽未來岌岌可危](https://tw.news.yahoo.com/%E4%BF%84%E7%BE%85%E6%96%AF%E9%81%AD%E6%AD%90%E6%B4%B2%E5%B0%8D%E6%89%8B%E6%8A%B5%E5%88%B6-%E4%B8%96%E8%B6%B3%E8%B3%BD%E6%9C%AA%E4%BE%86%E5%B2%8C%E5%B2%8C%E5%8F%AF%E5%8D%B1-055403744.html)
 
 *编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*

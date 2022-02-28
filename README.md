@@ -15,62 +15,62 @@
 
 ---
 
-### [秘翻在线：俄罗斯利用媒体故作积极进行停火谈判的样子](/content/gnews/1/README.md)
+### [乌克兰显排华迹象 在乌华人谎称自己为日本人以求自保](/content/gnews/1/README.md)
+ ` 日本東京方舟農場`
+
+### [秘翻在线：俄罗斯利用媒体故作积极进行停火谈判的样子](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新西兰财经G乐部2022年2月28日:财经新闻整理](/content/gnews/2/README.md)
+### [新西兰财经G乐部2022年2月28日:财经新闻整理](/content/gnews/3/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [俄罗斯足球队遭抵制 或无缘世界杯](/content/gnews/3/README.md)
+### [俄罗斯足球队遭抵制 或无缘世界杯](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|民众担忧国际制裁 俄罗斯国内现挤兑潮](/content/gnews/4/README.md)
+### [中日财经爆|民众担忧国际制裁 俄罗斯国内现挤兑潮](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|台湾半导体产业配合国际制裁俄罗斯](/content/gnews/5/README.md)
+### [中日财经爆|台湾半导体产业配合国际制裁俄罗斯](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [欧盟委员会主席表态 支持乌克兰加入欧盟](/content/gnews/6/README.md)
+### [欧盟委员会主席表态 支持乌克兰加入欧盟](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃中共统计严重造假！国人年收入8万元？](/content/gnews/7/README.md)
+### [中日财经爆┃中共统计严重造假！国人年收入8万元？](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [普京将核威慑力置于警戒状态；西方给俄罗斯经济施压](/content/gnews/8/README.md)
+### [普京将核威慑力置于警戒状态；西方给俄罗斯经济施压](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声｜欧盟委员会主席表示 欧盟“希望”看到乌克兰加入](/content/gnews/9/README.md)
+### [有声｜欧盟委员会主席表示 欧盟“希望”看到乌克兰加入](/content/gnews/10/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [人权活动人士要求联合国取消彭丽媛妇女特使称号](/content/gnews/10/README.md)
+### [人权活动人士要求联合国取消彭丽媛妇女特使称号](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新西兰政客怒怼主媒，示威群众无惧声波武器](/content/gnews/11/README.md)
+### [新西兰政客怒怼主媒，示威群众无惧声波武器](/content/gnews/12/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共反驳SWIFT制裁俄罗斯等同“核武级”金融制裁](/content/gnews/12/README.md)
+### [中共反驳SWIFT制裁俄罗斯等同“核武级”金融制裁](/content/gnews/13/README.md)
  ` 儒为`
 
-### [大直播后记：SWIFT是中共的死穴](/content/gnews/13/README.md)
+### [大直播后记：SWIFT是中共的死穴](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [意大利政府向基辅提供1.1亿欧元的援助](/content/gnews/14/README.md)
+### [意大利政府向基辅提供1.1亿欧元的援助](/content/gnews/15/README.md)
  ` xiaobaige`
 
-### [有声｜乌克兰和俄罗斯将在白俄罗斯边境举行 &#8220;无先决条件 &#8220;的会谈](/content/gnews/15/README.md)
+### [有声｜乌克兰和俄罗斯将在白俄罗斯边境举行 &#8220;无先决条件 &#8220;的会谈](/content/gnews/16/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美驻联合国大使：俄罗斯是侵略者，这事没有中间地带](/content/gnews/16/README.md)
+### [美驻联合国大使：俄罗斯是侵略者，这事没有中间地带](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [比尔·格茨：若普京不败于乌克兰，习近平将试图夺取台湾](/content/gnews/17/README.md)
+### [比尔·格茨：若普京不败于乌克兰，习近平将试图夺取台湾](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声｜台湾灯会的双主场以蓝黄灯光秀声援乌克兰](/content/gnews/18/README.md)
+### [有声｜台湾灯会的双主场以蓝黄灯光秀声援乌克兰](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [再谈人工降雨的危害](/content/gnews/19/README.md)
- ` 首尔天池农场`
 
 ### [[G时新闻】2022年2月27日文贵先生直播大雨围城速记](/content/gnews/20/README.md)
  ` G-时新闻`
