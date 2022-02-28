@@ -2,36 +2,40 @@
 ---
 
 
-## 你看谁来？
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2082280/)
+## 美驻俄大使馆要求美国公民立即撤离
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2082379/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约香草山农场 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月27日，美国驻莫斯科大使馆发布安全公告，警示所有美国公民 “立即 “撤离俄罗斯。
 
-2022-02-23直播摘录
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-9.jpeg)
 
-你看谁来？巴西来、德国肖尔茨来，是吧，马克龙来，马克龙，是吧。咱不说，我叫做“泽连锁基”，“泽连锁基”，乌克兰总统，咱叫“锁基”好了，不要叫泽连斯基。泽连锁基，可怜的泽连锁基：“这咱们赶快拜俄大哥帮帮忙吧”，是吧？都在那儿说情，是不是？马克龙，马克龙小姐亲自到了俄罗斯。俄罗斯说 “这是我的女人，我要拿走，不行”，是吧。到了巴西说，“哥儿们，你来转一圈挺好，是吧？咱多谈点粮食的事，其它事你就别管了，你也管不了”。那意思是说，你个农民，非洲的你跑这儿得瑟啥？滚一边儿，是吧？给你面子又握手又吃饭的，我给你弄点事，是吧？
+公告提醒，越来越多的航空公司正在取消进出俄罗斯的航班，许多国家已经对俄罗斯的航空公司关闭了他们的空域。  美国公民应随时关注信息，并考虑立即通过目前可用的商业航班离开俄罗斯。
 
-这都是普京叫前菜，玩儿的前菜，就让你美国、叫你欧洲让你吆喝，然后就欧洲就喊，“我要把’‘北溪2号’给你停了”，是吧？德国肖尔茨说，“我要停止向国会申请的‘北溪2号’”，就是开始供气。气都铺完了，天天都已经供气了。大家别忘了，法律上，德国把这个管道弄完了，他可以说法律不通过，但是私下里面放气你没有人管的，没有监督机构的。
+公告称，莫斯科和圣彼得堡等主要城市，以及在俄罗斯与乌克兰边境紧张局势加剧的地区，可能出现针对购物中心、铁路和地铁站以及其他公共集会场所的攻击威胁。另外，美国国务院对俄罗斯的旅行建议级别已调至四级，即不要旅行。
 
-据我所知，每天的气一点不少卖。气都建完了，去年就建完了，都开始供气了。48%的所有的欧洲、德国的、外来的气都要是从这儿来，1号、2号气，谁舍得把它炸了去？不可能，都是政治程序。然后，普京这一折腾，马上拜登找人去了，是吧，德国开会：你别打！你别打！大家你们看到最重要的事情，全人类上有史以来，比希特勒当年认为德国人最大的耻辱，比巴黎的一战的所谓的这个《停战协定》，就是希特勒发动第二次世界大战最大的一个，1919年的、1913年的最大的协议，叫《巴黎协议》签署的，德国人赔地、赔款，不能超过10万部队。这一幕你知道已经演完了，你知道啥时候演的吗？我想问雷蒙、Ping、鹿克思。
+该警报是在普京将俄罗斯的核威慑力量置于最高戒备状态后发出的。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+华盛顿特区安全政策中心专家伊拉里奥诺夫说，现在的局势令人难以置信的严重。他呼吁，美国和北约必须立即作出回应，否则，美国和整个欧洲将受到直接的核威胁。
 
-**关注我们**
+参考链接：
+1. [US Embassy: US Nationals Should Leave Russia ‘Immediately’](https://www.newsmax.com/us/moscow-kremlin-embassy-diplomats/2022/02/27/id/1058748/)
+2. [Security Alert: Limited Flights Into and Out of Russia](https://ru.usembassy.gov/security-alert-u-s-mission-russia/)
 
-Discord 账号
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+总编：文真
+编辑：Jack Li文阳   
+校正/发稿：谐趣园
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

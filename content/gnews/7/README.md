@@ -2,34 +2,36 @@
 ---
 
 
-## 普京企图利用核讹诈对抗美欧经济制裁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2082305/)
+## 我们很多人脑子太空白、太无知
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2082421/)
 
-作者：纽约香草山农场-文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月27日，外媒报道，普京已下令俄罗斯核威慑力量进入高度戒备状态。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-10.jpeg)
+2022-02-23直播摘录
 
-据报道，普京在与高级官员举行的会议上说，北约主要大国发表了 “侵略性声明”，同时西方国家联合对俄罗斯实施了严厉的金融制裁。普京已命令俄罗斯国防部长和军方总参谋长，将核威慑力量置于 “特别战斗值班制度”中。普京以此暗示，会以核威胁来应对西方国家的制裁。
+就她那两下子，我那天我看到报道我特想笑，结果她说：“我为什么离开了法治基金啊？因为我不能说谎，我不能说那上面有几亿美元。” 我们法治基金账上有多少钱每月都是公布的，大家都可以查的。谁说我有几亿美元了？她离开法治基金原因是要拍电影占有战友的几千万美元，不是几百万她才离开的。
 
-郭文贵先生在27日大直播中特别强调，俄罗斯完全低估了乌克兰的实力，用最传统的战争方式进攻乌克兰，企图用最短的时间占领基辅，却遭到乌克兰人的顽强抵抗，使俄军损失惨重，也令世界跌破眼镜。俄方接下来会不惜一切代价，甚至可能动用核武器。如果不能停战，乌克兰的局势将会非常惨烈。
+“路大脑袋”这个孙子是要花三十几万要建他自己的所谓的音乐间，他会什么音乐？万里约炮的音乐？跟“蛇妖闫”吐痰，“咯咯”这样的音乐？就这谎言他也敢撒，我就他他想笑。“火鸡龚”你不用准备两杆枪，你把这两个脚丫子从窗户一伸出来，我们战友全都跑了，我估计全跑到澳大利亚当袋鼠去了，你那两个脚丫子比枪管用。我笑晕了，她说“我准备两杆枪，他们来我就毙了他”，我想告诉“火鸡龚”你根本不需要，弄一只火鸡挂在门口，我们人都是远远避之，飞机都从这不敢路过。比北朝鲜金正日的枪都管用，一打飞机下来了是吧？你那两只脚丫子只要一露出来，挂个照片，我们都跑得抱头鼠窜知道吗？就这谎她也敢撒！
 
-参考链接：[2月27号：所有的这些核讹诈最终的结局是什么呢？](https://www.gettr.com/post/px7x6sfff0)
+就像“路大脑袋”他要灭共，你靠啥灭共呢？你靠啥灭共呢？靠你老婆？还有给你生了孩子你不养的媳妇？靠你愚蠢的头和结结巴巴的嘴？靠你那个炒了10个黄鸡蛋的叫“鸡蛋闫”、“蛇妖闫”？就这谎也有人听！为什么你知道吗？我们很多人脑子太空白、太无知。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-总编：文真
-编辑：Ivy001
-校正/发稿：谐趣园
+**关注我们**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

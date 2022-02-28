@@ -2,23 +2,25 @@
 ---
 
 
-## 前国务卿蓬佩奥警告习攻击台湾将重创经济
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2082230/)
+## 雅虎彻底终止在中共国所有服务
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2082275/)
 
-作者：日本方舟农场-Andy5
+作者：纽约磐石农场-在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月26日，美国前国务卿蓬佩奥在接受采访时表示，习近平很可能看到美国在阿富汗和乌克兰事件上的表现，利用当前的乌克兰局势侵略台湾。由于台湾是重要的芯片生产地，这将重挫包括贸易和制造业在内的经济发展。
+台媒2月27日报道，美国网络服务公司雅虎在去年宣布退出中共国市场后，近日再度宣布，将于2月28日停止中共国的电子信箱服务。此举标志着，雅虎彻底终止在中共国的所有业务。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-14.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-12.jpeg)
 
-蓬佩奥还强调，乌克兰局势让独裁者们看到，即使实施侵略也没有被严厉追责，希望美国政府能够展现出更多威慑力，来防止事态进一步恶化。
+2021年，雅虎在退出中共国的声明中指出，有鉴于中共当局日益严酷的商业和法律环境，该公司的整套服务自2021年11月1日起，将无法在中共国大陆使用。
 
-参考链接：[20220226蓬佩奧國務卿接受Sean Spicer採訪](https://www.gettr.com/post/px5vfle49a)
+雅虎官方表示，在2月28日之后雅虎邮箱将无法再从中共国接受或发送电子邮件。据悉，中共当局去年对多个产业实施范围广泛的监管，以加强对经济的掌控，而跨国科技公司首当其冲。
+
+参考链接：[雅虎徹底退出中國 228起關閉電子信箱服務](https://cn.rti.org.tw/news/view/id/2125720)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-总编：文真  
-编辑：文真  
+总编：文真
+编辑：文真
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
