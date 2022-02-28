@@ -2,35 +2,39 @@
 ---
 
 
-## 有声｜乌克兰和俄罗斯将在白俄罗斯边境举行 &#8220;无先决条件 &#8220;的会谈
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2080001/)
+## 人权活动人士要求联合国取消彭丽媛妇女特使称号
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2080048/)
 
-By:**秘翻新闻**
+#### 【雅典娜观察】和您一起洞察世界
 
-**2022-02-28**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-42.png)图片来源 Reuters
-[据英国的《地铁》，简称Metro 2月27日报道，乌克兰总统办公室证实，他们的外交官将与俄罗斯代表团会面。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
+**整理/编辑：文泓**
 
-[据报道，俄罗斯早些时候表示，在袭击乌克兰后，它已经 “准备好 “进行讨论，并已向白俄罗斯派出一个代表团。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/15-9.png)图片来源：UN News
 
-[据说会谈是在没有先决条件的情况下，在白俄罗斯的边界上进行的。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
 
-[乌克兰总统沃洛基米尔·泽伦斯基曾在一个视频信息中告诉他的国家，他准备开始会谈，但不是在白俄罗斯，那里是入侵的集结地。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
+丰县“锁链女”案持续升温，近日多个国家人权活动人士联署一份公开信，表示中共国第一夫人彭丽媛对这位遭到拐卖、虐待的“锁链女”未置一词，要求联合国教科文组织取消彭丽媛的“促进女童和妇女教育特使”称号。
 
-[泽伦斯基把华沙、布拉迪斯拉发、伊斯坦布尔、布达佩斯或巴库列为可能的替代地点，并明确表示其他地点也有可能。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
+江苏徐州丰县“锁链女”案自去年十二月被揭发至今，世界舆论关注度不减。尽管江苏省先前宣布成立调查组，前后公布了五份通报，却因自相矛盾、仅有低层干部受罚，遭网民质疑和反弹。
 
-[尽管泽伦斯基提出了要求，俄罗斯还是已经派官员前往白俄罗斯的戈梅利市。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
+来自不同国家的四十五位人权活动人士，2月25日联署致信给联合国教科文组织总干事奥德蕾・阿祖莱，表示中共国每年被贩卖、虐待的妇女、儿童多达上万，却从未见过彭丽媛对如此严重的侵犯妇女和女童权益的恶性人权事件表达过任何关切，要求取消该组织八年前授予彭丽媛的“促进女童和妇女教育特使”称号。
 
-[据报道，周日泽伦斯基的办公室在Telegram上说，双方将在白俄罗斯边境的一个未指定的地点会面，但它没有给出会面的确切时间。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
+首批联署名单及公开信将于3月5日中共国两会开幕时，寄给法国巴黎的联合国教科文组织、位于瑞士日内瓦的联合国人权理事会以及中国人大、政协中国妇联和国际人权组织等。这份公开信除了中英版本之外，也译有法文等国语言。
 
-[另外，此前不久，普京下令俄罗斯核力量进入高度戒备状态，以回应他所谓的北约主要大国的 “侵略性声明”。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
+信上写道，彭丽媛未能敦促中国政府遵守和落实“消除对妇女一切形式歧视公约”和“儿童权利公约”和中国关于保护妇女儿童的相关法律，在这些方面完全未见她做任何努力，并指由此可见彭丽媛已不适合担当促进女童和妇女教育特使，若持续下去，将会严重辱没联合国教科文组织的名声，也会让彭丽媛特使沦为世人的笑柄。
 
-秘翻新闻 Grace编译报道
+联合国教科文组织在记者截稿前并未回复置评请求。
 
-发布 : 恩典
+参考链接：[多国人权活动人士发起联署 要求联合国取消彭丽媛妇女特使称号](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/cm2-02252022101104.html)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

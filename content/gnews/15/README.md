@@ -2,29 +2,35 @@
 ---
 
 
-## 新加坡将对俄罗斯实施包括银行交易等制裁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2079859/)
+## 有声｜乌克兰和俄罗斯将在白俄罗斯边境举行 &#8220;无先决条件 &#8220;的会谈
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2080001/)
 
-#### 撰稿：JIHO
+By:**秘翻新闻**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Singapore_Foreign_Minister_Vivian_Balakrishnan_speaks_at_the_East_Asia_Summit_-99654563_cropped.jpg)图片来源：wikipedia
-2月28日，根据新加坡路透社消息，新加坡外交部长周一表示，新加坡将对俄罗斯实施“适当的制裁和限制”，包括银行和金融措施，以及对可能被用作对付乌克兰人民的武器等物品的出口管制。
+**2022-02-28**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-42.png)图片来源 Reuters
+[据英国的《地铁》，简称Metro 2月27日报道，乌克兰总统办公室证实，他们的外交官将与俄罗斯代表团会面。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
 
-这个小城邦是亚洲金融中心和重要的国际航运枢纽，遵守联合国安理会的决议，但很少对其他国家实施自己的制裁。
+[据报道，俄罗斯早些时候表示，在袭击乌克兰后，它已经 “准备好 “进行讨论，并已向白俄罗斯派出一个代表团。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
 
-“新加坡打算与许多其他志同道合的国家协同行动，对俄罗斯实施适当的制裁和限制，”外交部长维文 (Vivian Balakrishnan)告诉议会，称俄罗斯的入侵是不可接受的，严重违反了国际准则。
+[据说会谈是在没有先决条件的情况下，在白俄罗斯的边界上进行的。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
 
-他说，制裁是由于局势“前所未有的严重性”以及俄罗斯上周否决了安理会决议草案。
+[乌克兰总统沃洛基米尔·泽伦斯基曾在一个视频信息中告诉他的国家，他准备开始会谈，但不是在白俄罗斯，那里是入侵的集结地。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
 
-他说：“特别是，我们将对可以在乌克兰直接用作武器以造成伤害或征服乌克兰人的物品实施出口管制。”他补充说：“我们还将阻止某些与俄罗斯有关的俄罗斯银行和金融交易。”
+[泽伦斯基把华沙、布拉迪斯拉发、伊斯坦布尔、布达佩斯或巴库列为可能的替代地点，并明确表示其他地点也有可能。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
 
-维文说，具体措施正在制定中，很快就会宣布。
+[尽管泽伦斯基提出了要求，俄罗斯还是已经派官员前往白俄罗斯的戈梅利市。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
 
-新加坡的举措是其区域邻国中的第一个举措，并且独立于它所属的东南亚国家联盟（ASEAN）的 10 个成员。
+[据报道，周日泽伦斯基的办公室在Telegram上说，双方将在白俄罗斯边境的一个未指定的地点会面，但它没有给出会面的确切时间。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
 
-新闻来源：[Singapore to impose sanctions on Russia, including bank transactions](https://www.reuters.com/world/asia-pacific/singapore-impose-appropriate-sanctions-restrictions-russia-2022-02-28/?taid=621c8813af8d2b00015713de&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+[另外，此前不久，普京下令俄罗斯核力量进入高度戒备状态，以回应他所谓的北约主要大国的 “侵略性声明”。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
 
+秘翻新闻 Grace编译报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
