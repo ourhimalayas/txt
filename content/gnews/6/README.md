@@ -2,42 +2,28 @@
 ---
 
 
-## 有声|中共火速建三堵墙，全力封杀“铁链女”事件
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2078050/)
+## 日本新增病毒感染近6.3万人死亡142 人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2078098/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+撰稿：东京樱花团/向海
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/F588BDBA-FCBB-4B38-81CD-ED6CAFA3EB37-scaled-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/日本新增病毒感染近6.3万人死亡142-人.jpg)[图片来源](https://www.digitalmarketingforasia.com/the-impact-of-the-covid-19-pandemic-on-advertisers-in-japan/)
 
+27日夜间，日本新型冠状病毒公布了6万3703例新感染病例。
 
-郭先生在2月20日的大直播中谈到，一位徐州战友说，现在整个徐州针对“铁链女”事件建了三堵墙：地方政府围绕发生“铁链女”事件的丰县董集村建了一堵铁皮墙，将整个村围得水泄不通；“铁链女”目前所在的徐州精神病医院建了一道200多人的“警察墙”，将任何试图靠近“铁链女”了解情况的媒体和民间人士隔离在外；由通信部门的技术人员、公安部门的政保警察和国安部门的国保警察在整个徐州范围内建立网络防火墙，严密监控和封锁与“铁链女”相关的负面消息。
+东京都政府当日宣布新增感染1万0321 人。 比上周日减少2614人，连续8天低于前一周同一天。过去 7 天的平均新增感染人数为 1万1141 人，约为上周的 75%。
 
-恶贯满盈的中共向来不花哪怕亿分之一的精力、时间和警力解决问题本身，而是不惜成本解决提出问题的人。这次他们以火箭速度在徐州范围内建立了三堵墙，试图将真相永远禁锢在黑暗之中。
+另一方面，根据 JNN 的摘要，全国宣布的新感染人数为 6万3703 人。 按都道府县划分，东京以外顺次多的城市是大阪、神奈川和埼玉。
 
-从冬奥会腾出手来的中共高层专门针对“铁链女”事件发表内部讲话，其中破天荒地首次直接提到“郭文贵”和新中国联邦。郭先生在直播中警告中南坑，将会有更多的“铁链女”事件被曝光，中共的邪恶必将大白于天下！
+此外，全国已住院的感染者中有1482人病情严重，新增死亡病例142人。
 
+信息来源：
 
+[新型コロナ 全国の新規感染者数6万3703人 死者142人](https://news.yahoo.co.jp/articles/bb48983d623c96bec05d98453e165532012f0c2f)
 
-文字版原文：[中共火速建三堵墙，全力封杀“铁链女”事件](https://gnews.org/zh-hans/2073291/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

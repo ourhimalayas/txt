@@ -2,37 +2,56 @@
 ---
 
 
-## 俄罗斯实施新一轮袭击，大批乌克兰民众逃往邻国
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2077739/)
+## 中共称美国军舰在台湾海峡航行是“挑衅”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2077760/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/02/60b8ea1c-04cc-4203-96f4-3fe569063ef0-1.jpg)网络图片
+摘要翻译：
+来源于《新闻极限》网站2022年02月26日的报道，
 
-翻译：Little lamp
-编辑：文泓
+周六，一艘美国军舰驶过敏感的台湾海峡，这是美国军方称之为常规活动的一部分，但中共称其为“挑衅”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-41.png)图片来源：The Guardian & 雅典娜设计组
+美国海军第七舰队表示，阿利·伯克（Arleigh Burke）级导弹驱逐舰拉尔夫·约翰逊 （Ralph Johnson）号正在国际水域进行“例行”过境。
+
+第七舰队发言人尼古拉斯·林戈(Nicholas Lingo)在一份声明中说：“该舰穿过台湾海峡的举动，表明了美国对自由和开放的印太地区的承诺。” “美国军队在国际法允许的任何地方飞行、航行和行动。”
+
+中共国人民解放军东部战区司令部监控了这条通道，其发言人在一份声明中称这是“挑衅行为”。
+
+台湾国防部表示，这艘船舰向北航行穿过海峡，其部队对这艘船的航行进行了监控，并没有观察到任何异常情况。
+
+由于俄罗斯入侵乌克兰，台湾目前处于高度警戒状态，虽然政府已经报告说中共没有任何异常军事行动，但担心中共可能会试图利用这种局势对台湾采取行动。
+
+台湾国防部表示，周六，八架中共国飞机（六架战斗机和两架反潜机）飞入其防空识别区（ADIZ），该防空识别区位于台湾控制的南海顶端普拉塔斯（Pratas）群岛的东北部。
+
+中共称台湾是中美关系中最敏感、最重要的问题。
+
+与大多数国家一样，美国与台湾没有正式的外交关系，但却是其最重要的国际支持者和武器供应国。
+
+**简评：**
+正当俄罗斯入侵乌克兰的战事紧张之际，中共解放军宣布27日起将在南海举行军事演习，与此同时，被中共称“具有挑衅性”的美国海军一艘驱逐舰，正在穿越台湾海峡。不管中共是在寻找入侵台湾的理由，还是中美都在测试自己的界限。台海是否可能爆发战事？纵观当初中共对香港的暴行，那么其恶行及野心则昭然若揭。尤其中共国内经济处在崩溃边缘，习皇将谋求连任，如果能够一举拿下台湾，对内可为连任造势， 对外又可以攻为守，同时将美国也拖入战争的旋涡。
+
+不过通过俄-乌战事，看到的是世界各国对俄罗斯的经济制裁，及对乌克兰的各种援助。如果中共对台动武，对习近平来说一定是“首战即终战”，因为世界各国可以直接翻版对俄罗斯的制裁，对中共的制裁连考虑和讨论都不需要。
+
+希望能看清战争对敌我双方都是残酷的，中共国老百姓及子弟兵们，不要去响应习皇对台动武的号召，对习皇的穷兵黩武说不。
+
+新闻链接：[China Says US Warship Sailing in Taiwan Strait ‘Provocative’](https://www.newsmax.com/world/globaltalk/taiwan/2022/02/26/id/1058653/)
+
+*翻译/简评：Brianchow*
+
+*校对：Julia Win*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-当地时间周日，据美联社乌克兰基辅报道，俄罗斯对乌克兰发动了一波针对民用机场和燃料设施的袭击，由于遭遇激烈的抵抗而减慢了速度。美国和欧盟为人数众多的乌克兰人提供了武器和弹药，并采取强有力的制裁措施，旨在进一步孤立莫斯科。
+编辑：【英国伦敦喜庄园编辑部】
 
-周日早些时候，巨大的爆炸照亮了首都基辅以南的天空，人们躲在家里、地下车库和地铁站里。预计俄罗斯军队将发起全面进攻。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-据该镇市长称，瓦西尔科夫空军基地附近的一个油库在黎明前燃起大火，那里发生了激烈的战斗。泽连斯基总统办公室表示，另一起爆炸发生在朱利安尼民用机场。
 
-泽连斯基办公室还表示，俄罗斯军队炸毁了该国第二大城市哈尔科夫的一条天然气管道，促使政府警告人们用湿布或纱布遮住窗户，以保护自己免受烟雾影响。
-
-惊恐的民众带着女人和孩子在室内和地下寻求安全，政府维持了39小时的宵禁，以阻止人们上街。已有超过15万乌克兰人[逃往波兰、摩尔多瓦和其他邻国](https://apnews.com/article/russia-ukraine-europe-poland-migration-united-nations-c3af8a01b6abdfafb022930d9749efa0)。联合国警告说，如果战斗升级，这一数字可能会增加到400万。
-
-参考链接：[Russia hits Ukraine fuel supplies, airfields in new attacks | AP News](https://apnews.com/article/russia-ukraine-volodymyr-zelenskyy-kyiv-europe-united-nations-edc6df79755195b29473cfd6d38b1ebb)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
