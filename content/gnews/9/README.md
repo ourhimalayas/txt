@@ -2,23 +2,35 @@
 ---
 
 
-## 对俄罗斯关闭SWIFT系统将对其经济带来灭顶之灾
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2077877/)
+## 俄乌战争信息战对抗影响
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2077887/)
 
-撰稿：西枫westca
+作者：香草山健身部-文鹰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月27日文贵大直播，郭文贵先生评述俄乌战争中，提到双方“信息战”事件。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-3-2.jpg)图片来源：网络照片
-据路透社2月27日报道，美国及其盟友因俄国军事入侵乌克兰，周六采取联合行动阻止部分俄罗斯银行进入SWIFT国际支付系统，俄罗斯从石油、金属到谷物的所有大宗商品出口会受到严重破坏，对俄罗斯经济造成打击。 同时因价格和通胀飙升而影响全球经济。
+信息战是军事行动中的一种作战形式。它是指在现代战争中，大量使用信息技术和信息武器的基础上，争夺战场信息控制权，进而影响和决定战争的胜负。
+信息战的范围包括战场网络战、电子战、情报战、心理战、经济战及电脑病毒战。
+俄军对乌克兰开战前，利用网络攻击瘫痪了乌克兰政府网站。第一波攻击，用地-地中程导弹和空、海基巡航飞弹，摧毁了乌克兰防空雷达、机场等诸多军事设施，地面部队随即分三路向乌克兰境内攻击。
 
-SWIFT是一个安全的信息系统，它促进了快速的跨境支付，每年转移数万亿美元，这已成为国际贸易融资的主要机制。俄罗斯生产全球 10% 的石油，供应欧洲 40% 的天然气。它是世界上最大的谷物和化肥出口国、最大的钯和镍生产国、第三大煤炭和钢铁出口国以及第五大木材出口国。
+战争爆发后，乌克兰总统泽连斯基没有抛弃人民，不畏强敌、誓死抵抗，指挥军队并重创俄军。俄军散播泽连斯基逃跑国外，乌军投降等战场假信息，企图瓦解乌克兰抵抗意志，但没有达到预期效果。
 
-将这个世界第 11 大经济体——以及六分之一大宗商品的供应商——全部排除在贸易体系之外的努力，在全球化时代是史无前例的。
+乌总统在这一场不对称战争中，用社交自媒体进行信息反击。向世界发布现场图片、语音视频、音乐歌曲，及时公布战斗进展实时战果，揭穿俄军虚假信息宣传。引发国际社会高度同情，并得到道义上和物质上大量支援。同时激起俄罗斯国内的民众反战情绪。对侵乌的俄军部队产生严重心理影响。
+这一场战争中的信息战胜负结果，毫无疑问是站在了正义的乌克兰一边。
 
-俄罗斯官员曾表示，如果流向西方的流量中断，俄罗斯的能源和大宗商品可以改变出口流向，特别是流向中国。中国和俄罗斯都在开发 SWIFT 的替代方案。北京一直在鼓励使用其本土的替代方案，即 CIPS 清算和结算服务系统，而莫斯科则建立了自己的银行信息系统，即 SPFS。但仅有10多个外国银行使用SPFS， 这意味着它在国际支付转账上，无法全力使用。
+新闻衔接：[http://\[https://gtv.org/video/id=621b7633019ef64da651ee6c\]](http://[https://gtv.org/video/id=621b7633019ef64da651ee6c])
 
-**新闻来源：**[https://www.reuters.com/business/russia-faces-major-disruptions-oil-commodities-flows-without-swift-2022-02-27/](https://www.reuters.com/business/russia-faces-major-disruptions-oil-commodities-flows-without-swift-2022-02-27/)
+审核/编辑/发稿:qiutian（邱甜）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-7.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

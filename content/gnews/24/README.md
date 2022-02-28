@@ -2,39 +2,88 @@
 ---
 
 
-## 大直播后记：乌克兰紧急救援行动
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2077676/)
+## 人民车队开始抗议强制疫苗的旅程
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2077712/)
 
-#### 整理：文晋、sadhu
-编辑：新世纪
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-27.png)图片来源：墨尔本雅典娜农场设计组
+[https://gtv.org/video/id=621bb8c14353d33974c38a8e](https://gtv.org/video/id=621bb8c14353d33974c38a8e)
 
+Allen Kelly (American truck owner and operator for 28 years)
+艾伦·凯利（美国卡车车主和经营者 28 年）
 
-今天这个直播，我们全球的农场主都会轮流参加。今天，大家看到画面上都是我们铁血组成员。大家都认识的王雪冰、长岛哥、大卫、海东兄弟、颖妹妹。还有我们的福利导演猫本、还有政清、飞象、Rachel。今天大家都在，全世界屏住呼吸，关注着过去几天发生的俄乌战争。我相信大家都看了，在盖特上GNEWS、GTV以及所有的社交媒体上，看到了这个战争的残酷。
+Oh my gosh, I couldn’t feel prouder today
+哦，我的天哪，我今天感到无比自豪
 
-我想在这里重申几点：第一条，我们新中国联邦是一个还没有被各国政府认可的，称为所谓的流亡组织，但我们自己认为，我们是合法组织。我们也并没有被联合国认可，我们没有任何法人资格。我们新中国联邦，当时是由我和班农站在船上共同宣布的。郝海东先生宣读的《新中国联邦宣言》，已经阐明了，我们对世界和平，以及中国人在世界上扮演的角色，包括追求建设一个没有中国共产党的，信仰自由、独立、法治、民主，维护人权的这样一个未来，要和世界人民和平共处的，一个由人民一人一票选出的政权。这是我们的理想和目标，更是我们必定实现的信仰。
+I couldn’t believe the turnout that we had back there
+我简直不敢相信对我们的支持是如此的好
 
-随后，我们看到在世界上，被这个共产党的冠状病毒和疫苗灾难，将所有人置于极度危险当中，超过上百万人的死亡，几亿人处在病毒之中。这给世界的经济带来了前所未有的巨大的压力！甚至是让全球经济面临破产。在这种情况下，我们看到了，中、俄做出了决定，就是我们最早爆料的：俄罗斯进入乌克兰，中国共产党要把台湾彻底给打散打烂，或者是用所谓的各种编造的理由将台湾收回。
+The people that come out to support us, the trucks that showed up
+人们出来支持我们，卡车出来了
 
-至于说，这两场战争的定义和政治动力，我们没有资格，也不想评价，我们也不想参与。但我们在全世界大声呼吁：中国共产党不能等同于中国人；中国共产党不代表中国人。冠状病毒和疫苗灾难，是共产党的所有事情，在世界查清真相后，再做出决定。那么，我们新中国联邦人要致力于，在世界上维护中国人良好的、和平的、善良的、勤劳的形象，维护中国人在过去人类历史上，几千年创造的文明和文化。
+and trucks that are waiting to join the convoy all the way back across the country
+和一路上全国各地等待加入车队的卡车
 
-我们要向全世界人民，彰显出中国人的善良和爱好和平；彰显出我们的勇敢和被共产党奴役后的这种勇气和团结。我们决心要和全世界人民在一起，同全世界的独裁和邪恶的势力做斗争，维护中国人的财富安全、人身安全和基本的人权。包括我们现在在全世界正在推进的，大家都看到的维护中国人的经济安全。在这个俄罗斯普京参加了中国共产党，搞了这个所谓的滑稽荒唐的冬奥会之后，大家看到了，俄罗斯发动了对乌克兰的战争。而战争中最受苦的，都是贫穷的老百姓！
+I mean, we’re just funnels two or 300 trucks
+我的意思是，我们已经组成了200到300 辆卡车的车队
 
-我们一会成立一个国际化的联络小组。整个救援行动，总负责人就是长岛哥。老班长负责整个的协调，后勤的补给。我们这个媒体组要找出一个负责人，特别是跟一些国际组织联系。你要赶快找专家给你们上课，比如联系方式、提供文件、资金划转等等。紧急情况下，这些都是需要的。前线一定要记住，大卫有决定权。大卫和文耀，从他们两个来开始，欧洲的文可、七雄都加入进来。所有的沟通都这里了。大家一定要记住小组的负责人，一会选出来一个。现在Rachel我还不知道和王子、小飞象、小飞侠能不能顶住。在这个基地上，救援出来到基地后，后勤老班长全面负责。救援完以后，救援出来的人到场了，服务吃喝拉撒出问题你负责。
+I mean all over the place that are ready to join in
+我的意思是所有人都准备加入车队
 
-整个救援之间的媒体大直播这一块就是小福利负责，小福利你要全力以赴。我们澳大利亚，还有新西兰要做好准备。据我了解，乌克兰很多人有澳大利亚和新西兰的签证，这个需要救援的时候会到现场去。在整个救援过程中，草根小哥负责整个铁血组日常安排和G系列的一切协调；如水是整个行动小组的财务总负责；木兰跟福利做好秘密翻译组，随时信息给你，你全面配合。
+It’s just it’s just people bringing out Bibles
+就像人们拿着圣经
 
-这个时候，大家千万不要乱。一定要记住长岛哥是这里的总指挥，任何情况下长岛哥发出的都是我们最后的决定，这一点大家一定要记住！草根小哥这个时候一定不要乱。我们到前线救援去了，后面所有的G系列不能乱，法治基金捐款的事情必须安排好，由草根小哥来负责；文耀跟大卫在前线，文耀、文科、文可、七雄就是拎包付钱，安排联络，这个是一定不能乱的！你不能道歉，说不能往前走。前面大卫做出了决定，你必须无条件服从。这是你必须要明白的。大家统一对外发布信息、统一联络，最后结果经过确认，这是关键中的关键！
+and church groups and families and children
+和教会团体、家庭和儿童
 
-资料来源：[2022年2月26日七哥大直播](https://gtv.org/video/id=621ab888a391e321a0c853e5)
+and the notes and like Maureen said
+和字条，就像莫琳说的
 
-发布：wenly
+the cookies and stuff like that
+像饼干之类的东西
 
-更多资讯，请关注：
-[澳大利亚墨尔本阿西娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本阿西娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本阿西娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本阿西娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本阿西娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+I can tell you, I heard your your story about Nancy Pelosi earlier
+我可以告诉你，我早些时候听说过关于南希·佩洛西的故事
+
+that’s just more waste of taxpayers money
+那只是在浪费纳税人的钱
+
+because I can tell you this is the most peaceful convoy
+因为我可以告诉你这是最和平的车队
+
+that you could ever be and it’s the People’s Convoy
+是人民的车队
+
+there’s gonna be no trouble here
+这里不会有问题
+
+And all we want is we want the Emergency Powers Act ended
+我们想要的只是我们希望《紧急权力法》结束
+
+and we want our constitution back
+我们希望捍卫我们的宪法
+
+that’s all this is about
+这就是全部诉求
+
+**原视频链接**[https://twitter.com/newsmax/status/1496606040577744901?s=24](https://twitter.com/newsmax/status/1496606040577744901?s=24)
+
+Date:02/25/2022
+原视频标题:People’s Convoy kicks off its journey to protest vaccine mandates
+人民车队开始抗议强制疫苗的旅程
+原视频日期：2022/02/24
+原视频链接https://twitter.com/newsmax/status/1496606040577744901?s=24
+任务编号：KC419（3837）
+视频时间段 : 0:00-0:50
+
+英听校: 杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

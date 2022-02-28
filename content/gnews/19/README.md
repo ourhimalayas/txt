@@ -2,22 +2,35 @@
 ---
 
 
-## 乌克兰总统向国际法院申诉要求俄方停止军事入侵
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2077729/)
+## 有声|中共攻台的三个方案
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2077752/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2699.png)[图片来源](https://www.nikkei.com/article/DGXZQOGR25D6B0V20C22A2000000/)
-27日，乌克兰总统泽伦斯基在推特上宣布，已向国际法院（International Court of Justice）提出申诉，要求俄罗斯停止其军事活动。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+在2月25日的大直播中，郭文贵先生爆料称，习近平在普京攻乌克兰之前，已把潜水艇部队布置在了台海周边。中共攻台可能有三个方案。
 
-27日，泽伦斯基总统在推特上发布消息，已向国际法院提出申诉，要求作出紧急裁决，命令俄罗斯停止其军事活动，并表示俄罗斯必须为“正当化”其侵略行径负责。
+第一，模仿乌克兰的模式，实行普京战略。让人大和政协的台湾所谓代表提出议案，宣称台湾面临台独危机，台独欲借邪恶势力分裂台湾，破坏中国领土完整，请求大陆出兵支援。然后中共可以“名正言顺”地出兵平乱。
 
-国际法院的听证会定于下周开始。
+第二，围而不打，把所有的台岛孤立化。同样声称有台独分子，或者人为制造动乱，然后派出所谓维和部队，对台湾围而不打，破坏台湾的贸易，等全球经济崩溃时，让台湾不攻自破。
 
-信息源：[【速報】“ロシアをICJに提訴”ウクライナ大統領表明](https://news.yahoo.co.jp/articles/b248b892d0ae650e5922a4d9c3e85c337c11053b)
+第三，短时间内， 迅速占岛。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+无论采取何种方案，这一次台湾的事情一定会有个了结，或者中共灭亡，或者台湾灭亡。
+
+文字版原文：[中共攻台的三个方案](https://gnews.org/zh-hans/2073197/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

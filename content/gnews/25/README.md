@@ -2,25 +2,33 @@
 ---
 
 
-## 面对西方制裁，普京下令“核威慑”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2077661/)
+## 有声|中共国在乌留学生哭诉：请墙内五毛嘴下积德
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2077699/)
 
-撰稿：西枫westca
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间2月26日凌晨，一位身处基辅市的中籍留学生在微博上哭诉称：由于墙内“五毛”们对于乌克兰战争和当地女性的有害言论，目前乌克兰国内已经激起了强烈的排华浪潮，当地华人都不得不隐藏起自己的中共国民身份以求自保。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-19.jpg)图片来源：网络照片
-据Newsmax 2月27日报道， 俄罗斯入侵乌克兰导致东西方紧张局势急剧升级， 普京周日下令俄罗斯核力量高度戒备，此举将俄罗斯的核武器置于更高的发射准备状态的指令引发了人们对危机可能演变为核战争的担忧。
+据了解，自俄罗斯发起对乌克兰的全面战争以来，中共党媒就一直引导墙内舆论站在发起战争的俄罗斯一方，并不断鼓吹中共的“大一统”论调，这致使很多墙内网民都为俄罗斯的侵略行为拍手叫好，并以胜利者的姿态调侃起乌克兰众多的无辜女性。
 
-与此同时，欧盟27国集团计划对俄罗斯航空公司关闭其领空，并为乌克兰购买武器提供资金。欧盟委员会主席冯德莱恩说：“有史以来，欧盟将资助购买和运送武器和其他设备给受到攻击的国家”。
+据悉，中共国不仅未对乌克兰华人真正实施营救，同时还加剧了当地的排华情绪。日前，中共国外交部还曾鼓励乌克兰华人在家中、车尾张贴中共国旗以避免被俄军误伤，这一举动更激起了乌克兰人民的反华情绪。今日，中共外交部已经改口称希望当地华人不要随意亮明中共国民身份。另有在乌华人在抖音上发帖称，一切乌克兰撤侨的消息都是假新闻，目前大家都只是填了回国的意向表。
 
-美国、欧盟和英国还同意阻止选定的俄罗斯银行进入 SWIFT 系统，该系统在全球数千家银行和其他金融机构中转移资金。他们还采取行动对俄罗斯央行施加限制。
+郭文贵先生此前曾在节目中爆料，对于发动生化超限战和挑起多国战争的中共，美国一定会发起最严酷的全面制裁，而最终为俄乌战争买单的一定会是无数的墙内民众。郭先生说，只有墙内同胞们能够自行醒来，才能免遭成为中共替罪羔羊的悲惨命运。
 
-俄罗斯声称其对乌克兰的攻击仅针对军事目标，但桥梁、学校和居民区都遭到了袭击。
+文字版原文：[中共国在乌留学生哭诉：请墙内五毛嘴下积德](https://gnews.org/zh-hans/2067918/)
 
-在日益紧张的局势中， 乌克兰宣布将与俄罗斯官员会面进行会谈，但具体时间和地点还未公布。
+音频处理：Fei797
+发稿：Fei797
 
-**新闻来源：**[https://www.newsmax.com/headline/putin-nuclear-alert-pentagon-more/2022/02/27/id/1058729/](https://www.newsmax.com/headline/putin-nuclear-alert-pentagon-more/2022/02/27/id/1058729/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,8 +2,8 @@
 ---
 
 
-## 20220226文贵大直播：G-EDU的待遇基准
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2077737/)
+## 20220226文贵大直播： 新中国联邦紧急国际救援的具体流程和救援方案
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2077753/)
 
 作者:东京樱花团小视频组
 
