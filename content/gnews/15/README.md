@@ -2,8 +2,8 @@
 ---
 
 
-## 20220227郭文贵大直播 ：台湾最大优势是技术战 电子战和保卫家园的战争决心
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2080894/)
+## 20220227郭文贵大直播 ：美国更希望中共攻打台湾 然后以正义的身份参与进这场战争
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2080941/)
 
 作者：东京樱花团小视频组
 

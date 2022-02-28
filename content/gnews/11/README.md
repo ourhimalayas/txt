@@ -2,8 +2,8 @@
 ---
 
 
-## 20220227郭文贵大直播 ：美国更希望中共攻打台湾 然后以正义的身份参与进这场战争
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2080941/)
+## 20220227郭文贵大直播 ：美国参与台湾战事中共一定想动用核武器 极有可能引发世界大战 美国要在维持原国际秩序和重整世界秩序之间做出选择
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2080964/)
 
 作者：东京樱花团小视频组
 
