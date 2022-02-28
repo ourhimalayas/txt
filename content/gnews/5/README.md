@@ -2,44 +2,42 @@
 ---
 
 
-## 乌克兰政府呼吁民众捐赠加密货币已筹资1000万美元加密货币
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2081456/)
+## 金融核武器——SWIFT
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2081601/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image014-3.jpg)
-2月18日，据英为财情Investing.com报导，由于俄乌地缘局势不明朗致使加密货币走势动荡，比特币、以太坊遭遇“过山车”行情，震荡明显。
+作者：香草山教育部-雪梨
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-86.png)
+SWIFT，全称环球银行金融电信协会，为全球银行金融交易和支付提供服务。基于标准化的报文体系，SWIFT系统已成为国际间金融数据传递和交换的标准语言。目前，SWIFT已覆盖全球200多个国家和地区的11000多家金融机构，每天处理的金融信息高达数千万条，SWIFT掌握了全球绝大部分资金的划转信息。
 
-比特币24小时下跌1.02%，报37871美元。上周，比特币下跌1.7%。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/swift-scaled.jpg)FILE PHOTO: Swift logo is seen in this illustration taken, Bosnia and Herzegovina, February 25, 2022. REUTERS/Dado Ruvic/Illustration
 
-以太坊24小时下跌2.76%，报2635美元。上周，以太坊下跌0.11%。
+2月27日的大直播中，郭文贵先生称，SWIFT系统不仅仅是处理支付的系统，最重要的是，它是对整个国家的信用评级。
 
-比特币与美股走势趋同，投资者遭受重创。上周，比特币振幅达到6000美元左右，币价最高达到40090美元，最低为34350美元。
+2014年克里米亚事件，SWIFT制裁俄罗斯，俄罗斯GDP腰斩。
 
-区块链分析公司Elliptic称，乌克兰政府此前在社交媒体上呼吁人们捐赠比特币和其他数字代币来支持他们，现在已经筹集了超过1000万美元的加密货币。
+2022年2月26日，鉴于俄罗斯对乌克兰发动的战争，美国、欧盟等国家发布联合声明，宣布将选定的俄罗斯银行从SWIFT通讯系统中移除。
 
-此前，乌克兰官方发布消息呼吁人们捐赠加密货币，并且还发布了比特币、以太坊等代币的数字钱包地址。
+郭先生数次提到，如果中共攻打台湾，必被踢出SWIFT系统。届时，中国银行、中国建设银行、招商银行等上市公司的股票将跌至谷底，中共国所谓的15万亿GDP也将随之消失。即使中共不打台湾，因为新疆大屠杀、香港大屠杀、中共病毒溯源，中共也会被踢出SWIFT体系，中共的内斗也将加速中共的灭亡。
 
-[【援引连结】](https://cn.investing.com/news/cryptocurrency-news/article-2085104)
+参考链接：
 
-**推出问题，敲出真相，爆料在路上！**
+[https://gnews.org/zh-hans/2076806/](https://gnews.org/zh-hans/2076806/)
 
-**请关注和订阅我们的以下账号：**
+*校对/发稿：飞虹*
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-64.jpg)
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+**更多资讯，更多关注**
 
-**玫瑰看新闻YOUTUBE账号**：
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**玫瑰看新闻**
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**黑森林的故事**
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**ROSE NEWS**
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

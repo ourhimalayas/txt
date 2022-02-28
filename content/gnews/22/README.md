@@ -2,24 +2,36 @@
 ---
 
 
-## 乌克兰总统向日本表示谢意
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2081218/)
+## 切断SWIFT支付将对中共造成致命打击
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2081404/)
 
-撰稿：东京樱花团｜百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/乌克兰总统向日本表示谢意1-1.jpg)
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月27日，郭文贵先生在大直播中，详细讲解了切断中共使用SWIFT支付系统，对灭共起到关键作用。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-94.jpg)
+首先，SWIFT系统不仅是美元支付系统，更重要的作用是国家信用评级。切断SWIFT支付系统，意味着与50%以上的世界国家经济体断绝经济合作。目前，停止俄罗斯银行使用SWIFT系统，是历史上首次针对主权国家停用。一旦开启SWIFT制裁先例，即使中共不对台开战，停止中共银行使用SWIFT系统，仅是时间问题。
 
-[*图片来源*](https://previews.123rf.com/images/argus456/argus4561605/argus456160515133/56704554-ukraine-flag-combined-with-japan-flag.jpg)
-乌克兰总统泽连斯基28日在推特上发文称，他与日本首相岸田文雄进行了电话交谈。
+郭先生透露，目前有三个理由对中共实施SWIFT制裁：第一，对新疆实施种族灭绝大屠杀；第二，镇压香港民主运动，杀害无辜的香港平民；第三，制造和释放中共病毒，对全世界发动生化战争。
 
-推文上写道，我与日本首相岸田进行了交谈，感谢他对乌克兰的大力支持。日本承诺对乌克兰追加1亿美元的援助，并完全支持对俄罗斯实施严厉制裁。谢谢！一个真正的全球反战联盟正在发挥力量。推文使用了乌克兰语和英语。
+郭先生进一步强调，当SWIFT系统停止中共银行使用后，中国银行28万亿国际业务顷刻消失；中共所有海外贷款和借款，全部立刻停止；建行、招行、农行等所有上市银行股票价格，立刻跌倒零；15万亿GDP化为乌有；中共40%粮食进口和68%外向行经济都将结束。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/乌克兰总统向日本表示谢意2.jpg)
+中共常委的家人在海外均藏匿巨额家族信托资产，一旦被经济制裁，这些人会联手消灭习近平。切断SWIFT系统是对中共釜底抽薪的致命打击。
 
-信息来源：[**【速報中】ウクライナ大統領、日本に「ありがとう!」ツイッター投稿**](https://www.asahi.com/articles/ASQ2X1QD8Q2WUHBI04Q.html?oai=AS)
+参考链接：[2022年2月27日大直播速记精萃](https://gnews.org/zh-hans/2076806/)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+总编: 文真
+编辑: Jack Li文阳  
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

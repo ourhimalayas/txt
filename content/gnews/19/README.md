@@ -2,38 +2,32 @@
 ---
 
 
-## 有声|中国驻乌克兰大使表示推迟公民撤离
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2081299/)
+## 一旦对台开战 中共将断网断电关闭领空
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2081471/)
 
-配音：香草山佛教部 – 李傻
+作者：纽约香草山农场 -文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据国外媒体2月27日报道，中共国驻乌克兰大使范宪荣当天表示，目前的情况太不安全，无法疏散公民，并表示只要满足安全条件，就会做出适当的安排。但就在几天前，大使馆曾表示将制定计划，帮助人们在俄罗斯入侵后离开。
+在2月27日大直播中，郭文贵先生非常肯定地指出，如果对台开战，中共一定会关闭领空，断网断电。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-68.jpg)
+从朝鲜战争，文化大革命，到越南战争，无论天灾还是人祸，中共永远都是牺牲中国人的生命，而从不考虑老百姓的死活，所有的问题就靠洗脑宣传解决。在中共眼里，中国老百姓连猪狗都不如。
 
-前几周，因为对战争的担忧加剧，包括英国、美国和日本在内的多个国家撤离了外交官，并敦促公民离开。
+战争时，中共会以”国家需要“和”爱国“的名义，实施禁飞、断网、不让取钱等手段，让老百姓困在家里、饿死在家里。中共国老百姓的财产会被中共全部夺走。中共一直以骗治国，绑架老百姓。中共充分利用人性的仇恨，让中国人互相憎恨，互相斗争。中共认为，必须让老百姓的生活接近黑暗和死亡，才会驯服于它的独裁统治。
 
-而在整个危机期间，中共国一直没有谴责俄罗斯，直到2月24日才宣布将准备包机撤离其公民。但乌克兰以战争风险为由，于同一天关闭了领空。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/images-9.jpg)
+参考链接：[2022年2月27日大直播速记精萃](https://gnews.org/zh-hans/2076806/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-文字版原文：[中国驻乌克兰大使表示推迟公民撤离](https://gnews.org/zh-hans/2078295/)
+总编: 文真
+编辑: Ivy001
+校正/发稿：Fei797
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

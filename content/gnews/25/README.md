@@ -2,28 +2,34 @@
 ---
 
 
-## 中共取消俄罗斯所有小麦进口限制
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2081143/)
+## 美国斩首中共七常委是代价最小的灭共途径
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2081329/)
 
-采编：风云小哥      翻译：文莱
+作者：纽约香草山农场 -云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月27日大直播中，郭文贵先生表示，根据当前国际局势判断，不管中共最后是否会打台湾，中共都会被消灭。但是，对大陆同胞及亚洲各国最有利、牺牲最少的方式，是美国以斩首战术消灭中共的七位常委，以促使中共政权的迅速瓦解。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-123.jpg)
+美国政府原来的策略是在等中共先出手打台湾，造成台湾重创，世界晶片缺货，让全世界人在情感上及经济上受到强烈冲击后，美国再以正义之师的名义一举灭掉中共，维护美国本身最大的利益。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220228-090946_Word2.jpg)图片来源：breitbart.com
+前些时候，美方内部人士向郭先生征询打击中共的最佳方式。 郭先生提出，将中共银行踢出SWIFT系统，可以迅速瓦解中共的经济。而且，美国采用斩首中共七位常委的方式，直接让中共政权溃散。
 
+台湾因为过去几十年的努力，与世界享有共同的普世价值观，而且在世界经济、科技、制造业方面均有重要作用。台湾的安危牵动着世界的和平。因此，为有机会避免台海战争，“斩首中南坑“是目前最有利的灭共方案。
 
-据【布莱特巴特新闻】2月25日报道，在美国和英国当天宣布对俄罗斯实施金融制裁的同时，中共国取消了对俄罗斯小麦的进口限制。
+参考链接：[2022年2月27日 文贵大直播：新中国联邦和法治基金与联合国救援组织启动国际人道救援行动；俄乌战争预测台海；普京嚣张中共角色；世界经济金融市场](https://gtv.org/video/id=621b7633019ef64da651ee6c)
 
-报道称，俄罗斯对中共国的小麦出口此前曾受双方限制，在中共取消与俄罗斯某些特殊地区的谷物贸易限制之后，将提高俄罗斯派遣大型船只通过黑海的能力。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-此外，自2021年起，俄中的双边贸易同比增长27%，达到1500亿美元。俄罗斯对中共国的食用油、大麦和牛肉出口激增。 同时，习近平和普京正在继续寻找潜在的贸易机会。而此次小麦交易是在2月4日冬奥会期间宣布的，并将在2022-23年度开始。
+总编: 文真
+编辑: 谐趣园     
+校正/发稿：Fei797
 
-尽管中共当局表示，这项在俄军入侵乌克兰当天所宣布的决定，与俄乌局势无关，但中共对俄罗斯的支持与欧美及G7成员国的制裁相比，形成了鲜明的对立。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-原文链接：[China Lifts All Wheat Import Restrictions on Russia amid Ukraine Crisis (breitbart.com)](https://www.breitbart.com/asia/2022/02/25/china-lifts-all-wheat-import-restrictions-russia-ukraine-crisis/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

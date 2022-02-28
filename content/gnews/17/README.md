@@ -2,34 +2,21 @@
 ---
 
 
-## 美国斩首中共七常委是代价最小的灭共途径
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2081329/)
+## 首尔：北韩发射一枚不明弹药
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2081486/)
 
-作者：纽约香草山农场 -云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月27日大直播中，郭文贵先生表示，根据当前国际局势判断，不管中共最后是否会打台湾，中共都会被消灭。但是，对大陆同胞及亚洲各国最有利、牺牲最少的方式，是美国以斩首战术消灭中共的七位常委，以促使中共政权的迅速瓦解。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-123.jpg)
-美国政府原来的策略是在等中共先出手打台湾，造成台湾重创，世界晶片缺货，让全世界人在情感上及经济上受到强烈冲击后，美国再以正义之师的名义一举灭掉中共，维护美国本身最大的利益。
+#### 翻译                           意大利达芬奇农场                     小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-28-alle-16.18.36.png)图片来源：rainews.it 
+这是平壤自今年年初开始的第八次导弹试验
 
-前些时候，美方内部人士向郭先生征询打击中共的最佳方式。 郭先生提出，将中共银行踢出SWIFT系统，可以迅速瓦解中共的经济。而且，美国采用斩首中共七位常委的方式，直接让中共政权溃散。
+据安莎社2月27日报道，朝鲜向东发射了一枚“ 不明弹药”。
 
-台湾因为过去几十年的努力，与世界享有共同的普世价值观，而且在世界经济、科技、制造业方面均有重要作用。台湾的安危牵动着世界的和平。因此，为有机会避免台海战争，“斩首中南坑“是目前最有利的灭共方案。
+这是首尔军方报道的。根据韩国联合参谋部的简短说明， 这是自今年年初以来的第八次此类举措。由于与美国的核谈判长期陷入僵局， 平壤在1月份进行了包括弹道导弹的七次导弹试验，其中包括自2017年以来最强的一次，但在奥运期间停止了所有活动。分析人士指出这一决定是为了尊重中国。最后一次测试可以追溯到1月底，是在解除几年前决定的自行暂停远程核试验和导弹试验的威胁后，仅仅几天就由一艘中程弹道航母发射而出。让人们对北韩重新不断地挑衅活动感到恐惧。
 
-参考链接：[2022年2月27日 文贵大直播：新中国联邦和法治基金与联合国救援组织启动国际人道救援行动；俄乌战争预测台海；普京嚣张中共角色；世界经济金融市场](https://gtv.org/video/id=621b7633019ef64da651ee6c)
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2022/02/27/corea-del-nord-seul-lanciato-un-proiettile-non-identificato\_9d866ef3-4388-4b1c-9a00-d6f6e4bdc76f.html](https://www.ansa.it/sito/notizie/topnews/2022/02/27/corea-del-nord-seul-lanciato-un-proiettile-non-identificato_9d866ef3-4388-4b1c-9a00-d6f6e4bdc76f.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+编辑、上传： Xiao  baige
 
-总编: 文真
-编辑: 谐趣园     
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

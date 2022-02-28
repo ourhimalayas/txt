@@ -2,37 +2,37 @@
 ---
 
 
-## 有声|马斯克开通乌克兰上空星链服务
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2081257/)
+## 日本奥密克戎后遗症患者正在迅速增加
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2081459/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月26日，在俄罗斯入侵乌克兰、乌国境内网络遭到中断后，乌克兰副总理在推特上公开向马斯克喊话：当你试图殖民火星时，俄罗斯在试图占领乌克兰！当你的火箭成功从太空着陆时，俄罗斯的火箭袭击了乌克兰平民！我们要求您向乌克兰提供星链服务。
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-426.jpg)
+[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdni0.trtworld.com%2Fw960%2Fh540%2Fq75%2F123179_japancovid_1642178802251.jpg&amp;imgrefurl=https%3A%2F%2Fwww.trtworld.com%2Flife%2Fomicron-pushes-japan-s-cases-to-highest-in-four-months-latest-updates-53636)
 
-10个小时后，马斯克在乌副总理的推特下回应，已经为乌克兰开通星链互联网服务，并且有更多的接收天线正在运往乌克兰的途中 。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-10.jpg)
-网络观察人士表示，部署卫星科技虽然成本极高，但能给生活在乡村或光纤电缆及行动通讯基地台无法到达、难以提供服务的地区提供网络服务。当飓风或其他天灾中断通讯时，这项技术也能为通讯提供保障。
+虽然新冠病毒的新感染人数正在减少，但是患有奥密克戎毒株后遗症的人数正在迅速增加。
 
+有媒体采访了东京一家致力于后遗症治疗的诊所。
 
+涩谷区平畑诊所的新冠后遗症门诊上周检查了约 350 名患者。
 
-文字版原文：[马斯克开通乌克兰上空星链服务](https://gnews.org/zh-hans/2078280/)
+自1月下旬以来，患者人数增加了约1.5倍。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+一位40多岁的患者说：“我早上起来只洗了衣服，很快就觉得累了……” 医生问：“如果你继续做下去，会觉得不舒服吗？” 病人说：“我只是在早上能活动一些，下午会有发烧等不适症状”。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+一名女性在1月下旬感染了奥密克戎后出现了类似感冒的症状。但是， 发病后约10天，开始出现胸痛等症状，曾经重返工作岗位，但现在却因病情加重被迫休职。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+另一40多岁的女士“似病愈后复工第4天，突然感觉非常难受，站立不起来，只好早退，耳朵虽可听见，脑子有意识，但是活动不了，真的很吓人。”
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+平畑光一院长称，感染后，会突然出现强烈的倦怠、疲劳感，而且症状可能会在短时间内恶化或病情延长，呼吁人们理解那些抱怨后遗症的人。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+平畑院长说：“肌肉疼痛性脑脊髓炎和慢性疲劳综合症两者病情症状非常接近。而且常见持续时间长达二周，奥密克戎感染初期症状虽然较轻，但是之后会发生什么事完全不可预测，所以我认为有必要采取严格的措施来预防感染。”
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+信息来源：[オミクロン後遺症”患者が急増　治療する都内クリニックは](https://www.fnn.jp/articles/-/322217)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+
 
  
 

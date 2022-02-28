@@ -2,33 +2,46 @@
 ---
 
 
-## 新中国联邦和法制基金对乌克兰救援行动正式公告
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2081239/)
+## 欧盟决定强化援助乌克兰首次提供武器支援
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2081447/)
 
-作者：首尔天池农场 – 追着曙光跑
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月26日，新中国联邦与法治基金联合发布公告，应对乌克兰的局势，启动紧急救援计划。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-425.jpg)
-公告详细内容如下：
+翻译：宫米叶
 
-为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。救援对象，包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1017480371-800x433-1.jpg)图片来源：dgzdcn.com
 
-目前，提供24小时救援服务的团队已成立，并设立专门的邮箱和电话联系方式。
+随着俄罗斯持续军事入侵乌克兰，欧盟（EU）已决定强化对乌克兰的支持，并首次予以武器援助。
 
-参考链接：[为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。](https://gettr.com/post/px6utt349a)
+欧盟（EU）27日召开线上外长会议就支援乌克兰等问题进行磋商。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+在会议之后的新闻发布会上，欧盟外长高级代表博雷利说：“乌克兰正在发生一场全面战争，我们愿为乌克兰提供任何支援。“，表示将提供高达5亿欧元(日元约650亿日元)的军事支援。其中4亿5000万欧元将用于提供武器，欧盟将承担各成员国向乌克兰运输武器的费用。
 
-总编/编辑: 文真
-校正/发稿：Fei797
+博雷利说：“不仅仅是弹药，我们还准备提供战斗机。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这是欧盟首次向非欧盟国提供军事支援。
+
+外长会议还决定，作为对俄罗斯的追加制裁，欧盟境内将采取禁航俄罗斯航空公司等措施。
+
+**取消俄罗斯航班的行动开始扩大**
+
+此前，以德法为首的主要成员国及英国等国采取措施禁飞俄罗斯航班，欧洲各国此后将形成一致的步调。
+
+与此同时，俄罗斯也以欧洲航空公司为对象，实施领空内阶段性限飞。
+
+因此，在欧洲航空公司之间，取消俄罗斯航班的行动规模正在扩大。
+
+而且，包括欧洲和日本在内，由于连接亚洲的许多航班要飞经俄罗斯领空，因此可能被迫重新规划航线。
+
+法国航空27日宣布，在研究避开俄罗斯领空的飞行计划期间，暂停往返日本、中国和韩国的航班，因此亚洲的航班也开始受到影响。
+
+**参考资料**：[www3.nhk.or.jp][EUがウクライナに初の兵器供与 支援強化決める](https://www3.nhk.or.jp/news/html/20220228/k10013504761000.html?utm_int=news-international_contents_list-items_001)
+
+* * *
+
+*审核/校对：zicoround*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-9.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
