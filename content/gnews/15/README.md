@@ -2,30 +2,32 @@
 ---
 
 
-## 【转】截至2.28 俄乌战事汇总（2）
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2082078/)
+## 前国务卿蓬佩奥警告习攻击台湾将重创经济
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2082230/)
 
-#### 采集：文洋
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-115.jpg)
-1. 波兰总理：俄罗斯警告要断开与乌克兰的边境连接。
-2. 乌克兰财政部长：乌克兰将于3月1日拍卖首批战争债券。
-3. 法国工业转型部长：欧盟能源部长今天的首要任务是支持乌克兰。
-4. 瑞士国防部长：我们已经得出结论，使用俄罗斯核武器的可能性相对较小，民众不应该害怕。
-5. 英国石油取消了从俄罗斯黑海港口装载燃油的计划。
-6. 巴基斯坦总理：巴基斯坦必须从俄罗斯进口小麦和天然气。
-7. 据日经新闻：日本央行将冻结俄罗斯储备资产。
-8. 欧盟委员会副主席兼“外长”博雷利：开始认为我们应该（就制裁）做得更多。
-9. 消息人士：国际足联正在讨论暂停俄罗斯参加国际足球比赛。
-10. 据卫星新闻：北约秘书长斯托尔滕贝格排除了在乌克兰上空设立禁飞区的可能性。
-11. 欧盟亚洲事务常务委员：希望在联合国大会上得到印度-太平洋国家对乌克兰决议的支持。
-12. MSCI指数政策委员会主席：很明显俄罗斯股市已经关闭，“不可投资”。
-13. 乌克兰总统顾问：与俄罗斯的谈判仍在进行中。
-14. 法国总统府：法国总统马克龙周一与俄罗斯总统普京通话。
-15. 法国总统府：法国马克龙向俄罗斯总统普京提出在未来几天保持联系，俄罗斯总统普京同意了。
-16. 俄罗斯央行：3月1日至5日上午和晚上莫斯科交易所都不会开市。
-17. 欧盟委员会副主席兼“外长”博雷利：我们已经动员马德里的卫星中心向乌克兰提供情报支持。
+作者：日本方舟农场-Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月26日，美国前国务卿蓬佩奥在接受采访时表示，习近平很可能看到美国在阿富汗和乌克兰事件上的表现，利用当前的乌克兰局势侵略台湾。由于台湾是重要的芯片生产地，这将重挫包括贸易和制造业在内的经济发展。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-14.jpeg)
 
+蓬佩奥还强调，乌克兰局势让独裁者们看到，即使实施侵略也没有被严厉追责，希望美国政府能够展现出更多威慑力，来防止事态进一步恶化。
+
+参考链接：[20220226蓬佩奧國務卿接受Sean Spicer採訪](https://www.gettr.com/post/px5vfle49a)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：文真  
+编辑：文真  
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

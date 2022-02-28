@@ -2,32 +2,36 @@
 ---
 
 
-## 核战风险升至高点 美国“末日军机”E-6B升空
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2081886/)
+## 有声|新中国联邦G教育的三个目标
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2081973/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-124.jpg)
-E-6B被侦测到的航行轨迹图（图片来自网络）
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2月26日，郭文贵先生在G教育专题大直播中，强调G教育的三个目标：
 
-俄罗斯日前在全面侵犯乌克兰的行动中受阻，并遭到全世界的谴责和制裁。在此被动情况之下，俄罗斯总统普京丧心病狂地发出了“核威胁”，令全球陷入极度紧张状态。
+- **松绑政治教育**：
+当前东西方教育体系，都存在一个悲哀的教育现象，即“政治教育”。G教育首先要解除全世界被政治绑架的教育，要创造一个正常的、适合人性发展的教育。
+- **松绑金钱教育**：
+全世界，包括最好的院校在内，教育都在向金钱低头。G教育必须松绑金钱对教育的绑架，不仅允许老师和学生在教育里图谋金钱，而且要彻底铲除。 G教育用强大的资金实力提供高质量的免费教育。
+- **教育是教人长大，辨别世界**：
+G教育提供利己利他的教育环境，让孩子学会自我认知，和辨别真假善恶的良知。为世界培养造福人类的无国界人才。
 
-据《阿波罗新闻网》2月28日报道，俄罗斯总统普京2月27日签署执行令，要求核威慑部队进入“特别警戒任务”。此举拉高了核战态势。
 
-美国总统拜登此前对俄罗斯发动侵略乌克兰的战争一直坚持不出兵的原则，仅实施与经贸有关的制裁与喊话。不过，28日，美国E-6B水星通信中继机（E-6B Mercury）被侦测到升空，并且网络上还出现了升空侦测图。此消息瞬间在推特上被热传，使得全球核战风险再度被拉高。
+文字版原文：[新中国联邦G教育的三个目标](https://gnews.org/zh-hans/2073595/)
 
-有“末日军机”（doomsday plane）之称的E-6B水星通信中继机（E-6B Mercury）可将美国总统下达的核武攻击命令，传递到在全球海洋巡弋的核武潜舰。
+音频处理：Fei797
+发稿：Fei797
 
-波音E-6B的前期型号是E-6A。E-6A最初进入美国海军服役时，其作用是将美国最高指挥官的指令传达至弹道导弹潜艇。E-6B型于随后入役，它保留了E-6A的原有功能，并增加了远程控制陆基“民兵”导弹的能力。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-《阿波罗新闻网》的报道指出，如果美军加入战局，不仅会打破拜登先前不出兵的原则，同时也会增加战局的复杂程度。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-不过，有关“末日军机”E-6B升空的用意，目前官方仍未对外正式公布。
-
-新闻链接：
-
-[https://www.aboluowang.com/2022/0228/1714589.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2022/0228/1714589.html?utm_source=dlvr.it&amp;utm_medium=twitter)
-
-* * *
 
  
 

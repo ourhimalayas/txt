@@ -2,36 +2,34 @@
 ---
 
 
-## 整个的双向战略
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2082261/)
+## 普京企图利用核讹诈对抗美欧经济制裁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2082305/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约香草山农场-文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月27日，外媒报道，普京已下令俄罗斯核威慑力量进入高度戒备状态。
 
-2022-02-24直播摘录
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-10.jpeg)
 
-就是现在“习大神”、“普大帝”俩人玩儿的是什么？欲取欲夺，突然袭击，整个的双向战略：你取乌克兰，我取台湾。习就是这个冬奥会开幕式完以后那几天，消失那几天，然后做手术。很多人竟然、竟然有大外宣出来忽悠全世界人民说：七常委深夜，深夜，听这词，深夜，紧急开会7天，应对乌克兰的政策，对我们怎么有利、没利。你说这话、这谎能撒到什么？就直接说，Ping啊，Ping是男的，Ping是泰国的人妖，你就这么说得了，是吧。只有中国人会相信说，哎哟~~Ping是人妖，超级美女，你什么超级美女？主播大美女，媒体大美女。一定这么想。就中国人就爱相信假话，不相信真话。你觉得中共如果跟普京这次见面，两个多小时见面，普京9个小时离开，要开7个小时常委会对付一个乌克兰危机，你觉得这共产党不早就完球蛋了吗？所有的7天就是跟普京做完以后，一系列的军事部署、情报部署、战略部署，然后习把自己手术给做了，他受不了，他疼，他不疼他不做，是吧。
+据报道，普京在与高级官员举行的会议上说，北约主要大国发表了 “侵略性声明”，同时西方国家联合对俄罗斯实施了严厉的金融制裁。普京已命令俄罗斯国防部长和军方总参谋长，将核威慑力量置于 “特别战斗值班制度”中。普京以此暗示，会以核威胁来应对西方国家的制裁。
 
-那么这个事情你能看得出来，就是普京玩儿的啥游戏？普京你看，超级牛叉的战略大赢家，你能看得出来。全世界你看，我先把兵给你弄过去，我把兵让你看见，弄过去。把舆论在冬奥会之前造出来，让你全世界都知道：我要揍他，我要揍他，真刀真枪全摆出来。这前面摆着什么，是不是，剔骨刀、剔肉刀、割耳刀、心脏刀，一排，是吧，真家伙，刀刀要命。全世界说：哎哟~~真来啦，真来啦！
+郭文贵先生在27日大直播中特别强调，俄罗斯完全低估了乌克兰的实力，用最传统的战争方式进攻乌克兰，企图用最短的时间占领基辅，却遭到乌克兰人的顽强抵抗，使俄军损失惨重，也令世界跌破眼镜。俄方接下来会不惜一切代价，甚至可能动用核武器。如果不能停战，乌克兰的局势将会非常惨烈。
 
-你看咋呼最多的就是美国：哎哟！了不得啦！俄罗斯要去打乌克兰啦！，真的要打喽！快撤吧！喊最多的。然后欧洲说：真可能打，真可能打。你要打，我们就要制裁你，经济制裁。你听着，经济制裁。然后普京就去北京开冬奥会去了，是吧，开冬奥会去了。到了习那儿，俩人是不是？两个多小时，原来是50个小时、48小时，最后20个小时，最后9个小时。“你看我这全都染病了，还死人了，我得走”，是吧。谁知道普京团队第一个全世界公告染病的？咱们，爆料革命，是吧。谁呀？咱第一个向全世界公告的。咱说13，他说6个，是吧。他不说死人的事，“咵”就走了。你说他跟习两个半小时用的翻译器、抠脚趾头讲的啥，谁知道？就咱知道，是吧。包括要签署的最关键的协议都没公布，包括人民币，利用、使用人民币，包括运黄金的事情。谁知道？没人知道，但是现在你们都知道了。普京回去了，回去以后人家玩儿的啥招？发现了吗？我撤兵、撤兵，撤兵，到处撤兵，这叫外交的游戏。你看谁来？
+参考链接：[2月27号：所有的这些核讹诈最终的结局是什么呢？](https://www.gettr.com/post/px7x6sfff0)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-**关注我们**
+总编：文真
+编辑：Ivy001
+校正/发稿：谐趣园
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

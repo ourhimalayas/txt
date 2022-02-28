@@ -2,32 +2,23 @@
 ---
 
 
-## 前国务卿蓬佩奥警告习攻击台湾将重创经济
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2082230/)
+## 秘翻在线 :美国前海军上将将于3月1日率团访台
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2082300/)
 
-作者：日本方舟农场-Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月26日，美国前国务卿蓬佩奥在接受采访时表示，习近平很可能看到美国在阿富汗和乌克兰事件上的表现，利用当前的乌克兰局势侵略台湾。由于台湾是重要的芯片生产地，这将重挫包括贸易和制造业在内的经济发展。
+#### 撰稿：William
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-14.jpeg)
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16460724031.png)[图片来源](http://www.taiwannews.com.tw)
+根据路透社(Reuters)的独家报导，美国总统乔·拜登（Joe Biden）周一将派遣一个由前高级国防和安全官员组成的代表团访问台湾。值此俄罗斯入侵乌克兰之际访台，这表明是对遭到中共威吓的台湾的支持。这次访问由曾担任参谋长联席会议( Joint Chiefs of Staff)主席的迈克·马伦(Mike Mullen)率领，堤防中共利用西方国家于乌克兰战事无瑕之际对台湾采取行动。
 
-蓬佩奥还强调，乌克兰局势让独裁者们看到，即使实施侵略也没有被严厉追责，希望美国政府能够展现出更多威慑力，来防止事态进一步恶化。
+有消息说，美国退役海军上将马伦将由布什政府的前副国家安全顾问梅根·奥沙利文和前副国务卿米歇尔·弗洛诺伊(Meghan O‘Sullivan)陪同访台。两位前国家安全委员会亚洲高级主管迈克·格林(Mike Green )和埃文·梅代罗斯(Evan Medeiros)也将出访，目的是“展示我们对台湾的持续有力支持”。
 
-参考链接：[20220226蓬佩奧國務卿接受Sean Spicer採訪](https://www.gettr.com/post/px5vfle49a)
+代表团预计将于周二下午抵达台湾，并停留至周三晚上，期间他们将与台湾总统蔡英文、国防部长邱国正等高级官员会面。台湾总统府证实了蔡英文的访问和会晤，称其在乌克兰危机期间的时机显示了台美关系。关系“坚如磐石”。这位官员补充说，华盛顿将“任何以非和平方式决定台湾未来的努力都是对西太平洋和平与安全的威胁”。这位官员说：“美国将保持抵抗任何诉诸武力或其他形式的胁迫的能力，因为这会危及台湾人民的安全或社会或经济制度。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+马伦的代表团是自2021年4月美国前参议员克里斯·多德(Chris Dodd)、前副国务卿理查德·阿米蒂奇(Richard Armitage)和詹姆斯·斯坦伯格(James Steinberg)前往台湾并与蔡英文会面以来，拜登邀请的一批前官员首次公开访问台湾。北京指责蔡英文意图寻求台湾独立。
 
-总编：文真  
-编辑：文真  
-校正/发稿：谐趣园
+[新闻来源](https://www.reuters.com/world/china/exclusive-biden-sends-former-top-defense-officials-taiwan-show-support-2022-02-28/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

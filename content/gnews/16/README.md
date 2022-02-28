@@ -2,36 +2,52 @@
 ---
 
 
-## Hcoin To the Moon上线88天第33次位列香港iTunes摇滚音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2082072/)
+## 【转】截至2.28 俄乌战事汇总（5）
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2082199/)
 
-2/28/2022 郭文贵先生的歌曲Hcoin To the Moon上线88天第33次位列香港iTunes摇滚音乐榜首
+#### 采集：文洋
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-19.jpg)
+1. 俄罗斯钢铁出口自入侵乌克兰以来大幅下降；德国买家显著减少了俄罗斯钢铁的购买。
+2. 德国核安全部长：在危机时期核电站变得脆弱。
+3. 联合国大会主席呼吁乌克兰立即停火。
+4. 欧盟委员会副主席兼“外长”博雷利称：能源市场将出现动荡。
+5. 英国首相办公室表示：英国首相向乌克兰总统泽连斯基更新了英国向乌克兰提供军事支持的最新情况；承诺在未来几小时和几天内提供更多。
+6. 德国核安全部长：不可能延长核电站的寿命。
+7. 联合国秘书长古特雷斯：联合国有可信的证据表明，乌克兰的住宅楼、关键民用基础设施和其他非军事目标遭受了严重破坏。
+8. 据俄新社：普京在电话中告诉马克龙，俄罗斯对与乌克兰的会谈持开放态度，并希望会谈能产生所需的结果。
+9. 当地时间2月28日下午，俄罗斯与乌克兰在白俄罗斯举行的第三轮谈判已经开始，预计将是最终轮。（央视）
+10.美国官员：有迹象表明俄罗斯的瓦格纳集团可能卷入了乌克兰冲突。
+10. 联合国秘书长古特雷斯称：俄罗斯处于高度戒备状态的核力量是一个令人毛骨悚然的存在，核冲突的想法使人不寒而栗；我们很可能面临欧洲几十年来最严重的人道主义和难民危机。
+11. 据日经新闻：日本央行与七国集团(G7)合作冻结俄罗斯外汇储备。
+12. 克里姆林宫：俄罗斯总统普京认为解决问题需要达成以下条件，即承认俄罗斯对克里米亚的主权；乌克兰非军事化，去纳粹化；保持乌克兰的中立地位。（卫星新闻）
+13. 立陶宛部长要求谷歌和苹果在立陶宛应用商店移除俄罗斯打车软件Yandex。
+14. 美国国防部官员：美国认为俄罗斯还没有在乌克兰取得空中优势。
+15. 美国国防部官员：认为俄罗斯对基辅的主要推进仍然速度缓慢，从昨天开始推进了5公里。
+16. 美国国防部官员：俄罗斯将在未来几天内试图包围基辅。
+17. 英国外交大臣特拉斯：普京被国际社会的集体反应搞糊涂了。
+18. 英国外交大臣特拉斯：乌克兰未来几天可能会更加艰难。
+19. 克里姆林宫：普京签署关于针对美国及其盟友采取特别经济措施的法令。
+20. 美国国防部官员：普京已将其已集结战斗力的近75%投入乌克兰。
+21. 美国国防部官员：俄罗斯向乌克兰目标发射了380枚导弹。
+22. 摩根大通、丹斯克银行冻结了有俄罗斯资产敞口的资金。
+24.俄罗斯驻联合国代表辩称：俄罗斯并没有在乌克兰开展敌对行动，敌对行动是由乌克兰当局对顿巴斯居民发动的。
+23. 美国国防部官员：美国尽可能密切地监视着俄罗斯的核力量，但没有看到普京发出警报后出现任何具体的行动。
+24. 乌克兰官员：乌克兰要求欧盟国家提供防空系统。
+25. 英国外交部长特拉斯：一旦立法生效，将对俄罗斯联邦储蓄银行实施新的制裁。
+26. 据卫星新闻：普京签署的法令要求，从3月1日起禁止居民根据贷款协议向非居民提供外汇。
+27. 英国外交大臣特拉斯：又冻结了俄罗斯三家银行的资产。
+28. 美国国防部官员：没有迹象表明白俄罗斯军队准备进入乌克兰。
+29. 据卫星新闻：普京签署的法令要求，从3月1日起禁止俄罗斯居民将外币转移到他们的账户或在外国银行的存款中。
+30. 美国国防部官员：俄罗斯军队试图包围哈尔科夫时遭遇了猛烈交火。
+33.德国能源巨头Uniper：我们目前观察到俄罗斯天然气公司Gazprom已签约的天然气输送没有减少。
+31. 市场消息：俄罗斯央行将尽其所能保护俄罗斯联邦储蓄银行(Sberbank)和其储户，其他较小的银行可能会倒闭。
+32. 【行情】在西方国家实施重大制裁后，俄罗斯5年期信贷违约掉期（CDS）从早些时候的573个基点飙升至创纪录的1200个基点。
+33. 俄罗斯驻联合国代表：俄罗斯军队不会对平民构成威胁。
+34. 美国官员：俄罗斯并没有试图阻止西方武器流入乌克兰。
+35. 市场消息：意大利政府表示将向乌克兰提供军事装备。
+36. 美国官员：过去24小时内美俄没有军事联系。
+37. 市场消息：意大利政府表示，如果有必要，将减少发电站的天然气消耗，促进包括可再生能源在内的其他能源的使用。
 
-* * *
-
-[【PDF 下载】Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_78.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
-
-
-[【PDF 下载】Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-28-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
