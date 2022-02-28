@@ -2,22 +2,21 @@
 ---
 
 
-## 白俄罗斯助纣为虐 日本政府将对其实施制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2080869/)
+## 教宗致电乌总统为乌克兰战争深感痛苦
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2080896/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/白俄罗斯助纣为虐-日本政府将对其实施制裁.jpg)[图片来源](https://www.bbc.com/zhongwen/simp/world-54162824)
-日本内阁官房长官松野博一28日在记者会上强烈谴责白俄罗斯利用其领土支持俄罗斯侵略乌克兰的战争行为。为此，日方正与七国集团合作，商讨对白俄罗斯实施制裁事宜。
+素材整理：波士顿五月花背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-28-at-9.29.27-PM-1.png)图片来源：梵蒂冈新闻网
+教宗方济各2月26日与乌克兰总统弗拉基米尔·泽连斯基（Volodymyr Zelenskyi）进行了一次电话谈话。圣座新闻室主任布鲁尼证实了这个消息。在这次交谈的同时，从战斗前线不断传出悲惨消息，在基辅也在进行着巷战。
 
-松野博一强调，白俄罗斯通过修改宪法，允许俄罗斯等国家部署核武装备，此举势必加剧局势的进一步恶化。对此，日方保持高度警惕并密切关注其事态发展。
+乌克兰驻圣座大使馆在推文中写道，教宗方济各“对在我们国家正在发生的悲惨事件”表示“深感痛苦”。此外，泽连斯基总统也在推文中写道：“我感谢教宗方济各为在乌克兰的和平及停火祈祷。乌克兰人民感受到教宗在精神上的支持。”[【1】](https://www.vaticannews.va/zh/pope/news/2022-02/pope-ukraine-president-zelenskyy-russia-war-telephone-call.html)
 
-此外，由于美国等七国集团将要对白俄罗斯实施金融制裁，同时对其政府高级官员进行资产冻结等严厉措施，因此日方也正在商讨采取同样的制裁举措。
+[【1】教宗与泽连斯基通电话：为在乌克兰的战争深感痛苦](https://www.vaticannews.va/zh/pope/news/2022-02/pope-ukraine-president-zelenskyy-russia-war-telephone-call.html)
 
-信息来源：[松野長官、ベラルーシを「強く非難」制裁検討進める](https://news.yahoo.co.jp/articles/36ef4926aeec2f4262a1861e14147547e9b988dd)
+* * *
 
-*编辑：东京樱花团/逢⑦必变
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+*编辑&发布：Vicky*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

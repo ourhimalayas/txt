@@ -2,8 +2,8 @@
 ---
 
 
-## 20220227郭文贵大直播 ：乌克兰战争中的信息战
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2080852/)
+## 20220227郭文贵大直播 ：乌克兰战争中的AI技术与示弱公关和唯真不破
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2080868/)
 
 作者：东京樱花团小视频组
 

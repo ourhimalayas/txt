@@ -2,26 +2,26 @@
 ---
 
 
-## 俄罗斯被踢出SWIFT全球支付系统
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2080960/)
+## 澳大利亚、挪威等主权财富基金表明将减持或抛售俄资产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2080986/)
 
-采编：文莱      编译撰稿：文明(添草灭共)
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2751.png)[图片来源](https://news.yahoo.co.jp/byline/kubotahiroyuki/20220228-00284286)
+28日、澳大利亚主权财富基金 “未来基金 “表示，将减少对俄罗斯上市公司的投资。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Biden-Putin-SWIFT.jpg)图片来源：thepostmillennia
+该基金管理着2040亿澳元（1470亿美元）的资产。广泛投资于海外股票、债券、货币和基础设施市场。基金总价值的约0.1%，约2亿澳元（1.44亿美元），投资于俄罗斯证券交易所上市的公司。
 
+该基金一位发言人透露，在市场条件允许的情况下，将减少剩余的风险敞口（目前没有受到制裁的出售对象）。
 
-据加拿大媒体《 后千禧年》2月26日报道，欧盟委员会、法、德、意大利、英国、加拿大和美国当天发布联合声明，将选定的俄罗斯银行从［SWIFT国际结算系统］中剔除。此举将对俄方的外贸和国际金融结算形成重大打击。
+该基金决定不投资俄罗斯债券，并表示正在投入大量资源来遵守响应澳大利亚、美国和欧盟（EU）的所有制裁措施。
 
-报道称，由于部分欧盟国家对俄经贸关系比美国更为密切，德，法，意大利等国此前一直都不愿将“SWIFT”纳入制裁选项。但随着俄军对乌克兰全面入侵所导致整个欧洲局势的持续恶化，欧美等国最终达成一致，被迫对俄罗斯实行了该项严厉制裁措施。
+日前，挪威主权财富基金也决定出售价值约250亿挪威克朗（28.3亿美元）的俄罗斯资产。
 
-对此，文贵先生在2月27日GTV直播中指出，欧美各国对俄罗斯欲擒故纵，将其剔除出SWIFT国际金融系统只是制裁的开始，更严厉的政治和军事反击将紧随其后。同时，针对中共政权及其盗国贼集团的SWIFT制裁也将如期而至。习近平在其党内政敌和普京的蛊惑下入侵台湾，必将加速该暴政的自取灭亡。
+信息来源:[豪政府系ファンド、ロシア投資縮小へ　ウクライナ侵攻で](https://news.yahoo.co.jp/articles/361051bcb6630c79a9e3a6ec6c9b1c484222fcfd)
 
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-原文链接： [https://thepostmillennial.com/breaking-us-allies-to-remove-selected-russian-banks-swift](https://thepostmillennial.com/breaking-us-allies-to-remove-selected-russian-banks-swift)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
