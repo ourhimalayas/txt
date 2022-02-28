@@ -2,31 +2,35 @@
 ---
 
 
-## 有声|爆料让世界对新中国联邦刮目相看
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2081988/)
+## 丰田汽车公司3月1日关闭日本所有工厂 零件供应商疑遭网络攻击
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2082074/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-在2月25日的《文贵大直播》节目中，郭文贵先生表示，爆料革命精准掌握习近平与普京的战争密谋，这一情报爆料能力，让全世界对新中国联邦事业刮目相看。
+翻译：天天
 
-郭先生表示，爆料革命早已精准掌握习普二人的 “双头鹰”计划。不仅如此，早在2017年，郭先生就警告说黑暗已经笼罩世界，并相继揭露了爆料革命所掌握的中共3F计划——搞弱美国、搞乱美国、搞跨美国；以及中共长期的海外渗透等的布局关系，这些情报无不一一验证。更是在2019年底疫情爆发前，爆料革命向世界预警中共病毒和疫苗灾难。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/phpDSEwdv-edited.jpg)图片来源：彭博
 
-郭先生分析，普京是否下令入侵乌克兰，直接决定着两个独裁政府的命运，更影响灭共事业的进展。据郭先生所述，当得知“普京已经前往作战中心”这一确切情报时，世界的格局将发生根本变化，自由世界的人民将与新中国联邦站在一起，粉碎独裁邪恶轴心的战争图谋。
+丰田汽车公司宣布，它将于3月1日停止其在日本的所有工厂的运营。
 
-文字版原文：[爆料让世界对新中国联邦刮目相看](https://gnews.org/zh-hans/2078399/)
+原因是一个零部件供应商的系统发生故障，也可能是网络攻击造成。
 
-音频处理：Fei797
-发稿：Fei797
+据丰田公司称，3月1日将关闭日本境内全部14家工厂共28条生产线。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+提供汽车内饰零件的公司小岛冲压工业在2月26日遭遇系统故障，导致预定3月1日使用的零件无法调配完成。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据小岛冲压工业公司称，26日的系统故障可能是由于病毒邮件或网络攻击造成，他们从27日开始着手关闭所有的服务器。
+
+丰田在日本的生产量约为每天13,000台，工厂是否会在3月2日之后重新投入运营目前还无法确定。
+
+**参考资料：**[news.yahoo.co.jp][トヨタ自動車が3月1日に国内の全工場を稼働停止に　部品供給メーカーにサイバー攻撃か](https://news.yahoo.co.jp/articles/b58b5ed676bbc5ef5a15d838cf07ca430188aa78)
+
+* * *
+
+*审核：天天*
+*校对：宫米叶*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-9.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

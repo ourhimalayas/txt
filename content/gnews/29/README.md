@@ -2,21 +2,39 @@
 ---
 
 
-## 首尔：北韩发射一枚不明弹药
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2081486/)
+## “锁链女”被从性奴变成政治奴隶！
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2081703/)
 
-#### 翻译                           意大利达芬奇农场                     小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-28-alle-16.18.36.png)图片来源：rainews.it 
-这是平壤自今年年初开始的第八次导弹试验
+作者：纽约香草山-信息部 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-75.png)
+郭先生在2月23日的大直播中谈到，彭丽媛老家山东郓城的亲表哥就是买的拐卖女为生育工具，习和彭会不知道吗？曾经一位有点地位的法官回江苏老家解救拐卖女，结果当地官员送上三个长相不错的拐卖女贿赂他。这位法官让自己闺女出国了，不想让其在国内被绑架和拐卖，就这是中共国的法官！
 
-据安莎社2月27日报道，朝鲜向东发射了一枚“ 不明弹药”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/f5392219-84a4-445e-ba48-a0d7e16d7a48.jpg)
 
-这是首尔军方报道的。根据韩国联合参谋部的简短说明， 这是自今年年初以来的第八次此类举措。由于与美国的核谈判长期陷入僵局， 平壤在1月份进行了包括弹道导弹的七次导弹试验，其中包括自2017年以来最强的一次，但在奥运期间停止了所有活动。分析人士指出这一决定是为了尊重中国。最后一次测试可以追溯到1月底，是在解除几年前决定的自行暂停远程核试验和导弹试验的威胁后，仅仅几天就由一艘中程弹道航母发射而出。让人们对北韩重新不断地挑衅活动感到恐惧。
+有上万拐卖女的丰县已封城，外来人员一律先搜查手机，再把可疑人员抓和关起来，并在全国范围内捂盖子，情况比想象的严重得多。“锁链女”牙齿被拔掉、舌头被割、锁都生锈了，邻居和地方官员都是人口贩子，并成为性奴被轮奸了24年。
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2022/02/27/corea-del-nord-seul-lanciato-un-proiettile-non-identificato\_9d866ef3-4388-4b1c-9a00-d6f6e4bdc76f.html](https://www.ansa.it/sito/notizie/topnews/2022/02/27/corea-del-nord-seul-lanciato-un-proiettile-non-identificato_9d866ef3-4388-4b1c-9a00-d6f6e4bdc76f.html)
+在全网疯传的情况下，至今“锁链女”的名字与来历当局还在胡编乱造，当局用国家力量把她压在下面而变成了共产党的政治奴隶。但若你骂一句习近平或“灭盗国贼”，则立马被抓并将你祖宗八辈查得清清楚楚！中共国令人发指的黑暗，老百姓丧尽天良的冷漠，让“锁连女”喃喃自语：“这个世界不要我！”
 
-编辑、上传： Xiao  baige
+新闻链接：
 
+[https://gtv.org/video/id=62162fe908ba8a07b1a1ea8a](https://gtv.org/video/id=62162fe908ba8a07b1a1ea8a)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-40.jpg)
+
+编辑/校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-73.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

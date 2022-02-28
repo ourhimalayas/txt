@@ -2,33 +2,47 @@
 ---
 
 
-## 乌克兰用无人机摧毁俄罗斯导弹系统
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2081855/)
+## 西方同意将俄罗斯主要银行踢出SWIFT
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2081940/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-427.jpg)
-土耳其Bayraktar TB2无人机（图片来自AFP）
+作者：纽约香草山教育部-Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-74.png)
+周六，美国、欧洲盟国和加拿大同意将俄罗斯的主要银行从SWIFT 中移除，这一举措将把俄罗斯从全球金融体系的大部分地区中分离出来。
 
-乌克兰军方2月27日公布了一段无人机摧毁俄罗斯导弹系统的视频。该视频被包括《福克斯新闻》在内的多家媒体广泛转发，引来人们对于现代战争中无人机作用的进一步关注。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_2672.jpg)
 
-《大纪元》2月28日引述CNN的消息报道称，乌克兰武装部队公布了一架无人机摧毁俄罗斯装甲设施的视频。据称，这是针对俄罗斯BUK地对空导弹系统进行的袭击，该袭击发生在基辅西北100公里（约62英里）的马林镇附近。
+虽然美国和欧洲官员明确表示，他们仍在制定如何实施最新制裁的机制，并避免影响俄罗斯的石油和天然气出口，但总的来说，这些制裁有可能成为对一个国最严厉的制裁。如果按计划全面实施，这些措施将严重损害俄罗斯经济，并明显限制其进出口货物的能力。
 
-据报道，乌克兰政府自去年开始从土耳其购入Bayraktar TB2无人机。该无人机是在土耳其制造，并配备国际零件。2020年，在土耳其支持的阿塞拜疆与俄罗斯盟友亚美尼亚之间的冲突，以及涉及俄罗斯顾问或军队在利比亚和叙利亚的冲突中，这款无人机均发挥了重要作用。
+美国官员表示这一举措将导致俄罗斯卢布大幅贬值，并推动俄罗斯经济的通胀飙升，由此产生的经济混乱可能会让普京在国内面临政治动荡。
 
-《华尔街日报》2月12日曾报道称，去年10月，莫斯科支持的分离主义分子用发射炮弹袭击了乌克兰的一个机械化旅。乌克兰随即用一架土耳其制造的无人机发射了一枚导弹，并击落了俄罗斯提供的榴弹炮。那一次是乌克兰军队在战斗中首次发动无人机袭击。
+宣布这一消息后，乌克兰总理什米哈尔对这项措施表示欢迎。
 
-有国防分析人士称，TB2的摄像头可以激光定位大约12英里外的目标，以协调炮击。基辅国防专家尤里·布图索夫（Yuriy Butusov）指出，俄罗斯防空系统无法在这么远的距离发现TB2。乌克兰已将其摄像头连接到战斗管理系统，可以远距离观察，而俄罗斯却无法将其击落。
+此外，美国及其盟国宣布将实施限制性措施，以防止俄罗斯央行以可能破坏制裁的方式部署其国际储备。
 
-除了侦察和瞄准之外，TB2还可以发射自己的导弹。它可以安静地在高空停留24小时，最高高度约为25000英尺。在理想条件下，远程操作员可以从最远185英里的地方操纵无人机。制造商称，TB2还可以从道路上起飞，而不仅仅只是机场跑道。
-
-土耳其总统埃尔多安（Erdogan ）在2月份访问基辅时，与乌克兰总统泽连斯基（Zelensky）正式达成协议，在基辅以南建立一个联合区域中心，以生产和服务土耳其无人机，从而显著降低制造成本。乌克兰航空航天公司Ivchenko-Progress已同意为新型无人机Bayraktar Acinci提供发动机。
+一位高级政府官员在周六晚间与记者的电话中表示，俄罗斯将立即感受到这些制裁的影响。
 
 新闻链接：
 
-[https://www.epochtimes.com/gb/22/2/28/n13610320.htm](https://www.epochtimes.com/gb/22/2/28/n13610320.htm)
+[https://www.cnbc.com/2022/02/26/eu-uk-canada-us-pledge-to-remove-selected-russian-banks-from-swift.html](https://www.cnbc.com/2022/02/26/eu-uk-canada-us-pledge-to-remove-selected-russian-banks-from-swift.html)[https://www.usnews.com/news/business/articles/2022-02-26/nations-pledge-to-remove-selected-russian-banks-from-swift](https://www.usnews.com/news/business/articles/2022-02-26/nations-pledge-to-remove-selected-russian-banks-from-swift)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-58.jpg)
 
+编辑：飞虹
+
+校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-76.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

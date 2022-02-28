@@ -2,31 +2,31 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月28日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2082019/)
+## 有声|成千上万的民众走上街头反战游行 支持乌克兰
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2082081/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-5.png)
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2022年2月27日，全球都有反战抗议者举行大规模集会游行，支持乌克兰。在柏林、罗马、布拉格、伊斯坦布尔和其他城市，甚至莫斯科和圣彼得堡等俄罗斯城市，走上街头，要求结束这场二战以来欧洲大陆最大的地面攻势。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-28.png)
-文章仅代表作者本人观点，与Gnews无关
+数万人穿上黄色和蓝色的衣服，乌克兰国旗的颜色，在柏林的勃兰登堡门前集结，举行“共同维护和平”的示威活动，支持乌克兰，反对俄罗斯发动战争。集会上，一名反对俄罗斯入侵乌克兰的反战抗议者，挥舞着带有反核标志的旗帜。还有一些人手持海报，上面写着 “不要碰乌克兰”、”坦克到风车 “和 “普京，去治疗，让乌克兰和世界和平 “等标语。
 
-视频参看：
-[2022.02.28早 《NFSC新闻》](https://gtv.org/video/id=621ccdfd019ef64da652e017)
-[2022.02.28早 G|TV《新闻访谈》](https://gtv.org/video/id=621cd642019ef64da652e45c)
+尽管俄罗斯大使馆被警察封锁，但一些抗议者聚集在前面，高呼 “荣耀归于乌克兰 “并唱着乌克兰歌曲。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+文字版原文：[成千上万的民众走上街头反战游行 支持乌克兰](https://gnews.org/zh-hans/2078451/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4-5.png)
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
 **更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
