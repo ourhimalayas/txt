@@ -2,29 +2,32 @@
 ---
 
 
-## 新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2078209/)
+## 新中国联邦救援乌克兰行动影响了世界
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2078267/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2282.jpg)
+作者：纽约香草山教育部-春草
 
-为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。
+2022年2月28日
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年2月26日，《新中国联邦》的发起人、缔造者一一郭文贵先生，向全世界公布了救援乌克兰的方案。这一决定引起了世界的关注，并影响了很多国家，改变了观望的态度。如德国180度转弯开始对乌克兰军事援助，俄罗斯被踢出了swift及所有交易系统，欧盟对俄关闭了所有领空及港口，众多外国志愿者加入了志愿军赴乌参加保卫战，英美等几十个国家把大量的武器和药品送到乌克兰……。就连被中共洗脑的部分中国人民也醒悟了，由原来的赞扬普京支持俄罗斯的侵略战争，改为支持乌克兰的正义的战争。
 
-救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。
+一个新兴起的、代表中国人民利益的、还未被国际承认的新中国联邦，在其它国家遭受外敌侵略、其国人生灵涂碳的危难之际，代表中国人民毫不犹豫地伸出援助之手，送去急需的物资和药品，解救陷于危险的本国和友邦的人员，多么感人的行动啊。这就是伟大的国际主义精神，用实际行动向全世界宣告：中国人民不是自私自利的，中国人民不等于中国共产党，中国人民和全世界爱好和平的人民一样，愿意共同建设维护大家的安全美好的家园，决不允许任何独裁者、妄图称霸世界、奴役世界人民的邪恶组织和个人，欺压和屠杀无辜的平民，必须将他们彻底地消灭，连根铲除，全世界爱好和平的人民才能过上平安、幸福、美好的生活。
 
-24小时救援联系方式如下：
+中国人不等于中共，彻底消灭共产党！
 
-邮箱：
-[\[email protected\]](/cdn-cgi/l/email-protection) 或 
-[\[email protected\]](/cdn-cgi/l/email-protection)
-电话和短信：+1 720-657-6776 或 +1 719-224-4232
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-59.jpg)
 
-新中国联邦
-法治基金
-2022年2月26日
+审核/编辑/发稿:qiutian（邱甜）
 
-**审核校对：Barry Jack
-上传排版：V在途中**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-7.png)
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

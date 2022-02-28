@@ -2,39 +2,29 @@
 ---
 
 
-## 台湾军方：在台湾领空发现中共气象气球
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2079181/)
+## 有声｜美国抨击普京核命令不可接受，将考虑进一步制裁
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2079224/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+By:**秘翻新闻**
 
-翻译/编辑：小红帽
+**2022-02-28**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-55.png)图片来源 路透社
+[《路透社》华盛顿2月27日报道，周日，美国和北约谴责俄罗斯总统普京，将核武器置于高度警戒状态的命令是危险和不可接受的，同时白宫表示不排除对俄罗斯的能源部门实施新的制裁。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-35.png)图片来源：www.globaltimes.cn
+[据报道，稍早些时候，俄罗斯总统普京下达了，提高俄罗斯核武器戒备的级别，以对抗西方对其发动对乌侵略战争的一连串报复。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
 
+[美国驻联合国大使琳达.格林菲尔德在哥伦比亚广播公司的 “面对全国 “节目中说：“普京的行动使冲突升级，是不可接受的。美国正在研究针对俄罗斯新的、甚至更严厉的制裁措施”。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
 
-根据中新社 2月27日报道，台湾军方周日证实了媒体的报道，中共军方使用的多个气象气球在农历新年假期后不久飞越台湾，但军方强调象气球不构成安全威胁，只用于气象观测。
+[报道还称，在五角大楼，一位美国高级国防官员也将普京的核命令描述为升级，并说它正在产生影响，如果出现误判，可能会使事情变得非常危险。北约秘书长延斯-斯托尔滕贝格也称，普京的核命令具有侵略性，是不负责任的。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
 
-“空军完全掌握了（这些气球）的动向”。台湾军方发言人史顺文告诉中新社记者：“据信它们被用于气象观测”。
+[白宫新闻秘书普萨基说，普京是在对一个不存在的威胁做出反应。她补充说，俄罗斯从来没有受到北约的威胁，也没有受到乌克兰的威胁。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
 
-《联合早报》（UDN）周六报道，中国人民解放军驻福建第72集团军的一个炮兵旅下属的远程火箭部队向大气层释放了最后四组数量不详的气象气球。
+秘翻新闻 冰糖葫芦喵 编译报道
 
-《联合早报》报告称，2月中旬农历新年假期结束后的某个时候，台湾空军的雷达系统在基隆、桃园和新竹上空发现了这些气球，高度为9,000-10,000英尺（2,743-3,048米）。
+发布 : 恩典
 
-**中国的气象气球引起了人们的关注，特别是在俄罗斯正在入侵乌克兰的情况下，以及在蔡英文总统下令国家武装部队应保持高度戒备的情况下。**
-
-由台湾政府资助的国防与安全研究所的分析师苏紫云周日表示，即使这些气球是出于军事目的，它们也可能是为了为解放军东部战区司令部探测大气密度，不构成直接的安全威胁。
-
-参考链接：[Chinese weather balloons identified in Taiwan airspace: military](https://focustaiwan.tw/cross-strait/202202270007)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
