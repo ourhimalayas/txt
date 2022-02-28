@@ -15,101 +15,101 @@
 
 ---
 
-### [大直播后记：停掉SWIFT对中共国的影响](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
-
-### [俄外交部：俄罗斯在世界上有朋友 特别是中共国！](/content/gnews/2/README.md)
- ` 蓝莲花农场`
-
-### [日本加入国际支付网的排俄行列 冻结普京资产，援助乌克兰1亿美元](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共国防部为攻打台湾造势](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共外交部称美国没资格告诉中方如何尊重国家主权](/content/gnews/5/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [加拿大新斯科舍省将终止所有中共病毒限制措施](/content/gnews/6/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [卢布疯狂贬值 俄罗斯民众排队提现](/content/gnews/7/README.md)
+### [芬兰超市和酒类公司停止销售俄罗斯产品](/content/gnews/1/README.md)
  ` 日本東京方舟農場`
 
-### [乌克兰泽连斯总统基要求联合国剥夺俄罗斯在安理会的投票权](/content/gnews/8/README.md)
- ` 喜马拉雅农场新西兰站`
+### [坑爹不倦的中共](/content/gnews/2/README.md)
+ ` 银河勇气之星`
 
-### [P&amp;G抨击美国种族主义后对中共国保持沉默](/content/gnews/9/README.md)
- ` 墨尔本雅典娜农场`
-
-### [俄罗斯外交官为袭击乌克兰道歉](/content/gnews/10/README.md)
- ` Shuizhuyu`
-
-### [北约历史上首次启动应对部队](/content/gnews/11/README.md)
+### [乌克兰前总统波罗申科：普京将面临地狱，乌克兰人民绝不屈服](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [墙内一开智网民谈为何支持乌克兰](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共国是俄罗斯的经济靠山](/content/gnews/13/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [俄罗斯表示俄方愿在乌克兰投降的基础上与乌方进行谈判](/content/gnews/14/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [无论在军事上发生什么状况普京都不会赢](/content/gnews/15/README.md)
- ` 美国政要直译推`
-
-### [戏谈中共疫情](/content/gnews/16/README.md)
- ` 首尔天池农场`
-
-### [普京威胁动用核武器，警告西方国家不要动兵干预](/content/gnews/17/README.md)
- ` 首尔天池农场`
-
-### [网络上发表言论的时候不要拿战争来开玩笑](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [白宫呼吁中共国谴责俄罗斯的入侵行为](/content/gnews/19/README.md)
- ` 日本东京方舟农场`
-
-### [俄乌战争｜白俄罗斯修宪为普京核部署铺路 空降部队启程进攻乌克兰](/content/gnews/20/README.md)
- ` 關注組`
-
-### [乌克兰官方：俄罗斯的潜伏特工标记目标建筑物以提高空袭准确性](/content/gnews/21/README.md)
+### [新加坡将对俄罗斯实施包括银行交易等制裁](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [前乌克兰小姐穿上戎装加入抵抗俄军行列](/content/gnews/22/README.md)
- ` 首尔天池农场`
-
-### [私营银行提议帮助墨西哥创建数字货币](/content/gnews/23/README.md)
+### [制裁升级，西方多国禁止俄罗斯航空进入空域](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [02/13文贵大直播：大卡车运动来源于文贵策划的香港运动（粤语配音）](/content/gnews/24/README.md)
+### [[G时新闻】2022年2月27日文贵先生直播大雨围城速记](/content/gnews/6/README.md)
+ ` G-时新闻`
+
+### [成功者的特质](/content/gnews/7/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [大直播后记：停掉SWIFT对中共国的影响](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [俄外交部：俄罗斯在世界上有朋友 特别是中共国！](/content/gnews/9/README.md)
+ ` 蓝莲花农场`
+
+### [日本加入国际支付网的排俄行列 冻结普京资产，援助乌克兰1亿美元](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共国防部为攻打台湾造势](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻新闻｜俄罗斯遭踢出SWIFT系统 乌克兰有望加入欧盟](/content/gnews/25/README.md)
+### [中共外交部称美国没资格告诉中方如何尊重国家主权](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [加拿大新斯科舍省将终止所有中共病毒限制措施](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [卢布疯狂贬值 俄罗斯民众排队提现](/content/gnews/14/README.md)
+ ` 日本東京方舟農場`
+
+### [乌克兰泽连斯总统基要求联合国剥夺俄罗斯在安理会的投票权](/content/gnews/15/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [P&amp;G抨击美国种族主义后对中共国保持沉默](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [北约历史上首次启动应对部队](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [墙内一开智网民谈为何支持乌克兰](/content/gnews/18/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共国是俄罗斯的经济靠山](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [俄罗斯表示俄方愿在乌克兰投降的基础上与乌方进行谈判](/content/gnews/20/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [无论在军事上发生什么状况普京都不会赢](/content/gnews/21/README.md)
+ ` 美国政要直译推`
+
+### [戏谈中共疫情](/content/gnews/22/README.md)
+ ` 首尔天池农场`
+
+### [普京威胁动用核武器，警告西方国家不要动兵干预](/content/gnews/23/README.md)
+ ` 首尔天池农场`
+
+### [乌克兰官方：俄罗斯的潜伏特工标记目标建筑物以提高空袭准确性](/content/gnews/24/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [私营银行提议帮助墨西哥创建数字货币](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻新闻｜俄罗斯遭踢出SWIFT系统 乌克兰有望加入欧盟](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [港闻｜民主派初选案未审先囚一周年 审讯日期一再押后 遥遥无期](/content/gnews/26/README.md)
+### [港闻｜民主派初选案未审先囚一周年 审讯日期一再押后 遥遥无期](/content/gnews/27/README.md)
  ` 關注組`
 
-### [专家称普京入侵乌克兰可能玩过头了：巨大的误判](/content/gnews/27/README.md)
+### [专家称普京入侵乌克兰可能玩过头了：巨大的误判](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [郭先生怒责中国共产党在乌俄战争中把同胞无情的抛弃](/content/gnews/28/README.md)
+### [郭先生怒责中国共产党在乌俄战争中把同胞无情的抛弃](/content/gnews/29/README.md)
  ` 纽约香草山MOS02`
 
-### [俄乌战争｜金融制裁效果初现 全球最大主权基金即时冻结旗下俄罗斯资产](/content/gnews/29/README.md)
+### [俄乌战争｜金融制裁效果初现 全球最大主权基金即时冻结旗下俄罗斯资产](/content/gnews/30/README.md)
  ` 關注組`
 
-### [“55天法则” 明天到期](/content/gnews/30/README.md)
+### [“55天法则” 明天到期](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [澳洲反腐调查认定新州工党的捐款来自悉尼星亿赌场](/content/gnews/31/README.md)
+### [澳洲反腐调查认定新州工党的捐款来自悉尼星亿赌场](/content/gnews/32/README.md)
  ` 走进澳洲`
-
-### [【秘翻北美时评周日特别节目】文贵大直播分享](/content/gnews/32/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [乌克兰救援行动体现了新中国联邦的力量](/content/gnews/33/README.md)
  ` 雅典娜GNotes`

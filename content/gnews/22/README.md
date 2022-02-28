@@ -2,23 +2,35 @@
 ---
 
 
-## 前乌克兰小姐穿上戎装加入抵抗俄军行列
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2079371/)
+## 戏谈中共疫情
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2079608/)
 
-撰稿/翻译：zzballack
-上传：追着曙光跑
+撰稿—天池水多多
+校对/上传—无明逆流
 
-据《布雷特巴特新闻网》（Breitbart News）2月27日报道，在俄罗斯大举入侵乌克兰之际，乌克兰各行各业的人纷纷加入了抵抗俄军的战斗，其中包括选美皇后。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-28-at-16.32.58.jpeg)图片来源：原新闻
-作为2015年的乌克兰小姐冠军，会说 5 种语言、并担任过翻译和公关经理的安娜塔西娅·蕾娜（Anastasiia Lenna）现在像其他许多乌克兰人那样，穿上戎装、手持步枪，阻止那些试图入侵乌克兰的人。
+这是一场戏，
+一场通过抖音推送的粗制滥造的戏。
 
-蕾娜最近在Instagram上发布了一张自己的持枪戎装照，并附带了“与乌克兰在一起”和“不要碰乌克兰”的标签。她一直在大声呼吁人们捐款资助军队，以便能够击退俄军。
+首先，对返乡人员进行核酸检测，从中找出一个做背锅侠，这个人的活动轨迹一定要符合拥有许多密接者的特征，要检测出合阳性。（废话，打了那么多疫苗，谁不是阳性？）
+对，经过大数据的分析，锁定德保许某。
+于是这个人走过的地方，密接者走过的地方，二次密接者走过的地方，一夜之间都要封锁；全员核酸检测，一波又一波的戏顺理成章上演了。
 
-据新闻网站《TMZ》报道，蕾娜向普京的军队放话说：“所有越过乌克兰边境试图入侵的人都将被干掉！”另外，蕾娜称赞乌克兰总统弗拉基米尔·泽连斯基 (Volodymyr Zelenskyy)是一位真正的和强硬的领导人。泽连斯基上周呼吁乌克兰人拿起武器反抗俄罗斯入侵者，并承诺向那些愿意为乌克兰而战的人提供枪支。
+先制造一波仇恨情绪，煽动民众互斗，转移对民众对共政府的矛盾。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/W.31.jpeg)
+再演一段苦情戏，让韭菜感动感动，这是一场过度的表演。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/W31.jpeg)
+精神极度空虚的民众也找到了一种仪式感。
+不明真相的他们开始封村堵路，爱国爱党，发抖音。
+中共政府让抖音推送有利于制造疫情氛围和塑造政府形象的视频。
 
-信息来源：[Former Miss Ukraine Takes Up Arms Against Russia](https://www.breitbart.com/entertainment/2022/02/27/former-miss-ukraine-takes-up-arms-against-russia/)
-[MISS GRAND UKRAINEBEAUTY QUEEN NOW A SOLDIER …Warns Russia, We’ll Shoot To Kill](https://www.tmz.com/2022/02/27/miss-grand-ukraine-joins-military-soldier-russian-invasion/)
-
+不明真相的群众积极配合，就像配合打疫苗一样。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2728.png)
+对于上了年纪的人来说，真是活久见了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2729.png)
+最后，中共从核酸检测里划走了医保基金，收获了民意，把疫苗灾难转嫁给了疫情，解封后，被洗脑的民众又开始高呼我党万岁！
+咦！为什么突出中共党旗？
+你猜对了，这都是中共干的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/W-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

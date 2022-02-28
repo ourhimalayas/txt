@@ -2,35 +2,28 @@
 ---
 
 
-## 戏谈中共疫情
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2079608/)
+## P&amp;G抨击美国种族主义后对中共国保持沉默
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2079731/)
 
-撰稿—天池水多多
-校对/上传—无明逆流
+##### 素材：小菠萝
+翻译：Annabelle
+校对：精靈藍
+字幕：清净
+编辑：慕纱公子
 
-这是一场戏，
-一场通过抖音推送的粗制滥造的戏。
+美国充斥着唯利是图、道德虚伪的企业，众议员迈克•华尔兹在福克斯节目中言辞犀利的抨击了NBC、可口可乐、宝杰、爱彼迎、英特尔一面在美国宣扬社会正义，一面却和犯下种族灭绝罪行的中共关系密切。他称，宝杰公司曾指责美国人是系统性种族主义。却对中共的罪行保持了沉默。他指出，这些公司忽略了他们制造的产品是依托于中共国的现代奴隶制。所以，人们应该抵制这些沾满罪恶的商品。
 
-首先，对返乡人员进行核酸检测，从中找出一个做背锅侠，这个人的活动轨迹一定要符合拥有许多密接者的特征，要检测出合阳性。（废话，打了那么多疫苗，谁不是阳性？）
-对，经过大数据的分析，锁定德保许某。
-于是这个人走过的地方，密接者走过的地方，二次密接者走过的地方，一夜之间都要封锁；全员核酸检测，一波又一波的戏顺理成章上演了。
+视频链接：[It’s time we hold them accountable. If you see ‘Made in China,’ put it down.](https://twitter.com/michaelgwaltz/status/1491541166453526529?s=21)
 
-先制造一波仇恨情绪，煽动民众互斗，转移对民众对共政府的矛盾。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/W.31.jpeg)
-再演一段苦情戏，让韭菜感动感动，这是一场过度的表演。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/W31.jpeg)
-精神极度空虚的民众也找到了一种仪式感。
-不明真相的他们开始封村堵路，爱国爱党，发抖音。
-中共政府让抖音推送有利于制造疫情氛围和塑造政府形象的视频。
+*发布：Mttfly*
 
-不明真相的群众积极配合，就像配合打疫苗一样。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2728.png)
-对于上了年纪的人来说，真是活久见了。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2729.png)
-最后，中共从核酸检测里划走了医保基金，收获了民意，把疫苗灾难转嫁给了疫情，解封后，被洗脑的民众又开始高呼我党万岁！
-咦！为什么突出中共党旗？
-你猜对了，这都是中共干的。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/W-5.jpeg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
