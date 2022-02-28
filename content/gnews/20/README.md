@@ -2,36 +2,27 @@
 ---
 
 
-## 郭先生怒责中国共产党在乌俄战争中把同胞无情的抛弃
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2079144/)
+## 俄罗斯总统弗拉基米尔·普京已下令其核准备就绪
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2079215/)
 
-作者：香草山健身部-新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022/2/27号郭先生在盖特爆料，滞留在乌克兰的中国人就现在得到的消息人数就两万多，比原来的6000左右多出几倍，他怒责中国共产党在战争的危机中抛弃了为它卖命的中国人民。
+撰稿：随心所在
+![](https://assets.gnews.org/wp-content/uploads/2022/02/281.jpg)图片来自网络
+俄罗斯入侵乌克兰后，国际紧张局势已经升温，普京指责西方国家对俄罗斯采取敌对行动。普京的命令可能会增加警报空间，俄罗斯拥有世界第二大核武库和大量弹道导弹。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-10.png)
+普京对法新社说：“我已命令国防部长和俄罗斯武装部队总司令将俄罗斯军队的威慑力量置于特别战备状态。”普京还称西方对俄罗斯实施的制裁是非法的。
 
-这是继2022/2/26 在联合国国际救援组织下，与国际NGO组织合作，安排新中国联邦由法治基金和法治社会主导的对中国同胞和美国友人的紧急救援行动，郭先生直播部署乌克兰救援工作后的又一个惊人信息，那个比爹亲娘亲的党，置几万人命于不顾，所有外国人16号之前都撒的差不多了，连非洲的学生都撒完了，为什么中国人还没有回国的路？郭先生曾说过有人托他救护他的小姨子，就闭口不提那些为他小姨子身边的人，及她的工作人员和工作人员的家人，很多共产党都是打着救人的幌子，其实只救自己亲的近的人，完全没有要救老百姓的意思。
+据英国广播公司安全记者称，该命令将促进核武器的部署，但这并不意味着它会完成。普京警告西方国家如果干涉俄罗斯在乌克兰的行动，要为“历史上前所未有的后果”做好准备。
 
-郭先生说，原定的十架飞机进行救援，现在看光中国人三四架飞机都不够，太多人需要救援了，共产党这帮王八蛋，太可怕，太疯狂了，在听说新中国联邦的救援行动信息以后还马上发通告骗老百姓，说不要上当，不要受骗，开着全世界最大的大力神飞机，几百万美元的物资送去资助俄罗斯，骗身无分文的老百姓，共产党太恶毒了，你们能拿几万美金，开个拖拉机救救在水深火热的战争中的同胞，别只救你们的小姨子，小舅子，如此作恶，老天会灭了你们的，我们新中国联邦就是要救人，要行动，行动！
+国防学院的讲解员斯特凡·福斯说，俄罗斯周日宣布提高核威慑力量以提高警戒状态可能是模糊的。福尔西认为，从历史上看，提高准备状态一直是为冲突的另一方对国家形成核威胁做准备。然而，福斯说，目前没有任何国家用核武器威胁俄罗斯。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-65.jpg)
+据他介绍，以核武器相威胁等方式应对经济制裁是前所未有的。福斯说，面对这样的威胁，俄罗斯应该被告知，这些威胁并不是理所当然的。
 
-中共的眼里只有它利用的工具，奴役的韭菜，只有新中国联邦尊重人权，救人第一，力创和平，保命保财保平安，就在新中国联邦！
+新闻链接：
 
-盖特链接：[https://gettr.com/post/px9tgede10](https://gettr.com/post/px9tgede10)
+[Putin määräsi Venäjän ydinasevalmiuden hälytystilaan, Naton pääsihteeri kutsuu päätöstä vaaralliseksi ja vastuuttomaksi](https://www.msn.com/fi-fi/uutiset/ulkomaat/putin-m%c3%a4%c3%a4r%c3%a4si-ven%c3%a4j%c3%a4n-ydinasevalmiuden-h%c3%a4lytystilaan-ydinasetuntija-ven%c3%a4j%c3%a4-bluffaa/ar-AAUn7SI?bncnt=BroadcastNews_BreakingNews&amp;ocid=UCPNC2)
 
-审核/编辑/发稿:qiutian（邱甜）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-7.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

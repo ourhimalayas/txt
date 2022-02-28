@@ -2,22 +2,20 @@
 ---
 
 
-## 前乌克兰小姐穿上戎装加入抵抗俄军行列
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2079371/)
+## 俄乌战争｜白俄罗斯修宪为普京核部署铺路 空降部队启程进攻乌克兰
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2079515/)
 
-撰稿/翻译：zzballack
-上传：追着曙光跑
+**撰文/ 港台前线｜发布日期/ 28/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/白俄羅斯修憲為普京核部署鋪路-空降部隊啟程進攻烏克蘭.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-据《布雷特巴特新闻网》（Breitbart News）2月27日报道，在俄罗斯大举入侵乌克兰之际，乌克兰各行各业的人纷纷加入了抵抗俄军的战斗，其中包括选美皇后。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-28-at-16.32.58.jpeg)图片来源：原新闻
-作为2015年的乌克兰小姐冠军，会说 5 种语言、并担任过翻译和公关经理的安娜塔西娅·蕾娜（Anastasiia Lenna）现在像其他许多乌克兰人那样，穿上戎装、手持步枪，阻止那些试图入侵乌克兰的人。
+**白俄罗斯周日（27日）通过公投同意废除宪法订明国内不部署、不发展核武的中立原则，即正式撤销核中立地位，为俄罗斯利用境内核武部署以威胁欧洲大陆大开绿灯。**
 
-蕾娜最近在Instagram上发布了一张自己的持枪戎装照，并附带了“与乌克兰在一起”和“不要碰乌克兰”的标签。她一直在大声呼吁人们捐款资助军队，以便能够击退俄军。
+另外，经多间外媒确认，白罗斯军队在当地时间今日（28日）正式联同俄罗斯军方入侵乌克兰。空降部队已于凌晨时分登上俄军运输机，前往出发进入乌克兰境内。
 
-据新闻网站《TMZ》报道，蕾娜向普京的军队放话说：“所有越过乌克兰边境试图入侵的人都将被干掉！”另外，蕾娜称赞乌克兰总统弗拉基米尔·泽连斯基 (Volodymyr Zelenskyy)是一位真正的和强硬的领导人。泽连斯基上周呼吁乌克兰人拿起武器反抗俄罗斯入侵者，并承诺向那些愿意为乌克兰而战的人提供枪支。
+白罗斯总统卢卡申科（Alexander Lukashenko）早前表示，该国军队只会在境内为俄军提供补给后勤工作，今日就出尔反尔，动用军力支持俄军进攻，加上先前被发现放任俄军于其领空发射导弹袭击乌克兰，白俄罗斯已被欧盟列为另一入侵者并实施制裁。
 
-信息来源：[Former Miss Ukraine Takes Up Arms Against Russia](https://www.breitbart.com/entertainment/2022/02/27/former-miss-ukraine-takes-up-arms-against-russia/)
-[MISS GRAND UKRAINEBEAUTY QUEEN NOW A SOLDIER …Warns Russia, We’ll Shoot To Kill](https://www.tmz.com/2022/02/27/miss-grand-ukraine-joins-military-soldier-russian-invasion/)
+来源｜[ALJazeera](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwjm5sv286H2AhWlIUQIHZ3OCQQQxfQBKAB6BAgEEAI&amp;url=https%3A%2F%2Fwww.aljazeera.com%2Fnews%2F2022%2F2%2F27%2Fbelarus-holds-referendum-to-renounce-non-nuclear-status&amp;usg=AOvVaw2aESAvzB5EcEdlllaxMw03)
 
  
 
