@@ -2,10 +2,37 @@
 ---
 
 
-## 史蒂夫-科尔特斯揭示了中共对台湾采取行动的主要信号
-` Itana` [轉載自GNews](https://gnews.org/zh-hans/2082723/)
+## 有声|人类将经历大重组 正道主义将像太阳一样被世人接受
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2082830/)
 
-视频编辑：意大利罗马达芬奇农场- 阿娜意大利
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2月25日，郭文贵先生在大直播中指出，当今世界，习近平和普京基于个人私欲以及各自的内部政治、经济压力，利用病毒和疫苗灾难导致世界经济崩塌，然后整合全世界所有的中弱国家形成了一股势力，试图对抗西方的基督文明、民主自由和资本主义社会。这是一次陆地文明和海洋文明的重大对决，不仅显出东西方文化、政治利益的大碰撞，而且显示出一个杂教或无教国家与西方天主教、基督教文明的一场大对决，更重要的是东西方出现的独裁制度和民主制度的大对决。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2543.png)
+郭先生指出，从这次大对决中，要么催生新中国联邦追求的正道主义的西方政治文明，要么目前的西方文明政治会变成所谓的过渡型独裁政治。因为西方各国当前社会秩序都非常乱，政治也就显得很弱。而东方的伊朗、中共、俄罗斯等国家都想搞独裁政权，人类可能未来10年20年甚至更长事件，都要面临着人类的经济政治大冲突，最后形成人类的新的文明。
+
+而新中国联邦的正道主义，将会成为永远的光芒，像黑暗中的光芒和太阳一样，被世人所接受。
+
+
+
+文字版原文：[人类将经历大重组 正道主义将像太阳一样被世人接受](https://gnews.org/zh-hans/2073153/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

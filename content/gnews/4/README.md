@@ -2,35 +2,25 @@
 ---
 
 
-## 2022/02/28 文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2082945/)
+## 中共将会采用第三套方案攻台
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2083057/)
 
-[![](https://express.adobe.com/page/Uy2Nsk5bGyzvE/images/b1e4a825-38fb-4ad3-81e0-c848ac9568da.png?asset_id=db2d07ba-df86-4fe7-bc6d-db0905a1c1a8&amp;img_etag=%2253c26e7f1e09f471edbe9b8be052976d%22&amp;size=2560)](https://express.adobe.com/page/Uy2Nsk5bGyzvE/images/b1e4a825-38fb-4ad3-81e0-c848ac9568da.png?asset_id=db2d07ba-df86-4fe7-bc6d-db0905a1c1a8&amp;img_etag=%2253c26e7f1e09f471edbe9b8be052976d%22&amp;size=1024)
-**[GETTR视频链接](https://gettr.com/post/pxe68rf460)**
+撰稿：紐約磐石农场-在逺方
 
-1. 俄罗斯和乌克兰持续激烈交战之际，全球关注中共对台动作，中共扰乱世界。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8D6818EA-3DFB-4072-9592-29A03CBAD1CB.jpeg)
 
-2. 中共救他们“自己人”无条件，救老百姓却有条件。
+在2月27日的大直播中，郭文贵先生表示，中共将会吸取俄罗斯的教训，使用第三套方案攻打台湾。
+郭先生说，如果没有美军或者其他联军参战，即使台湾的领导人拥有像乌克兰总统泽连斯基那样的政治智慧和勇气，以及全民共同抗击侵略者的决心，台湾最多能也只能抵抗中共20个小时的攻击。俄乌战争中，俄罗斯的表现让全世界跌破眼镜。在现代人工智能辅助的战争模式下，俄军却运用了传统的进攻战术，导致了惨重的失败。相反乌克兰却运用各种智慧策略和战略战术，成功地支撑到现在。然而，乌克兰将会遭受更加惨烈的打击，孤注一掷的普京政权有使用核武器的可能。
+当前中共正在密切关注俄乌战争事态的发展，习近平一定会从俄罗斯的失败中吸取教训，而采用第三套方案攻打台湾——即不顾及人道、人权和百姓伤亡，用导弹、甚至用准核武器，在最短的时间内，把台湾的东半岛和台中地区，所有的军事设施和政府机构完全摧毁。而台湾的国军部队，也一定会对中共的大连、福建、上海、广东、江西的基地进行反击，甚至可能还会占有优势。
 
-3. 最近在宣传“新中国联邦救助信息”上需要加强。营救行动惹恼中共，中共内部开会警惕新中国联邦营救行动，并派出两台客车营救中共“自己人”去波兰。
+[新闻链接][https://www.gettr.com/post/px94dece36](https://www.gettr.com/post/px94dece36)
 
-4. 新中国联邦营救行动提供“大力神”飞机、联合国专业保卫机构、并不收取任何费用。中共无耻“呼吁”大众不要上当，置国人生命安全于不顾。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5CAB052F-A9F3-4B5C-9328-C3A74E709F0A.jpeg)
 
-5. 营救行动吸引国际多方机构与新中国联邦合作。
+编輯/校正/发稿：玫瑰圓
 
-6. 媒体、编辑组注意！绝不允许传递一条假信息。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6319C6AD-B91B-4B6F-A6AE-F5F20C941B31.jpeg)
 
-7. 后勤老班长、全面指挥长岛哥、G系列服务草根小哥、大卫组织前线队伍、财务如水、直播和信息把握木兰小福利微蓝唐平。两个团队从美国和欧洲飞往前线。感谢所有辛苦付出的兄弟姐妹们。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*听写：* *call me uncle* *| 校对：乐禧禧 | Page：我是球大哥*
-[![](https://express.adobe.com/page/Uy2Nsk5bGyzvE/images/6f7d1e61-4a08-4822-8ef2-ebfe30c3fee0.jpg?asset_id=885950a2-4f24-4fda-a943-7478a4ed841d&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/Uy2Nsk5bGyzvE/images/6f7d1e61-4a08-4822-8ef2-ebfe30c3fee0.jpg?asset_id=885950a2-4f24-4fda-a943-7478a4ed841d&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
