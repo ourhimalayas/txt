@@ -2,24 +2,35 @@
 ---
 
 
-## 视频|精准爆料让世界对新中国联邦刮目相看
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2080472/)
+## 中共与北韩再度狼狈为奸挑战世界
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2080583/)
 
-制作：香草山视频部
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/23cd3448f4b6fc19e20567e72de7dca4.jpg)
+据朝鲜官媒2月26日报道称，近日中共党魁习近平强调，中共要与朝鲜，在所谓的“新形势”下展开重要合作。
 
-在2月25日的《文贵大直播》节目中，郭文贵先生表示，爆料革命精准掌握习近平与普京的战争密谋，这一情报爆料能力，让全世界对新中国联邦事业刮目相看。
+朝鲜中央通讯社表示，在习近平在给金正恩的信息中说，中共当局已经准备就绪，要在一种“新形势”下，发展中共国与朝鲜的友谊与合作关系。由于和美国的谈判陷入僵局，朝鲜在2022年1月，进行了史无前例的7次武器试射，包括自2017年以来的最强力导弹试射。平壤因为核武器计划，遭受多项国际制裁而被孤立。中共国与朝鲜的贸易总额，则超过了朝鲜对外贸易的90%。
 
-郭先生表示，爆料革命早已精准掌握习普二人的 “双头鹰”计划。不仅如此，早在2017年，郭先生就警告说黑暗已经笼罩世界，并相继揭露了爆料革命所掌握的中共3F计划——搞弱美国、搞乱美国、搞跨美国；以及中共长期的海外渗透等的布局关系，这些情报无不一一验证。更是在2019年底疫情爆发前，爆料革命向世界预警中共病毒和疫苗灾难。
+2020年至今，由于中共病毒疫情，朝鲜实施了自我封锁，经济面临崩溃，在上个月不得不重启了与北京的跨境贸易。而中共是朝鲜最重要的盟友和金主，此关系则始于1950年的朝鲜侵略韩国之战。
 
-郭先生分析，普京是否下令入侵乌克兰，直接决定着两个独裁政府的命运，更影响灭共事业的进展。据郭先生所述，当得知“普京已经前往作战中心”这一确切情报时，世界的格局将发生根本变化，自由世界的人民将与新中国联邦站在一起，粉碎独裁邪恶轴心的战争图谋。
+新闻链接：[https://cn.rti.org.tw/news/view/id/2125636](https://cn.rti.org.tw/news/view/id/2125636)
 
-发稿：林礼
+编辑/校对/发稿：文留
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpeg)
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
