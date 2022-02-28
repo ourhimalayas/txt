@@ -2,32 +2,21 @@
 ---
 
 
-## 一旦对台开战 中共将断网断电关闭领空
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2081471/)
+## 首尔：北韩发射一枚不明弹药
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2081486/)
 
-作者：纽约香草山农场 -文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月27日大直播中，郭文贵先生非常肯定地指出，如果对台开战，中共一定会关闭领空，断网断电。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-68.jpg)
-从朝鲜战争，文化大革命，到越南战争，无论天灾还是人祸，中共永远都是牺牲中国人的生命，而从不考虑老百姓的死活，所有的问题就靠洗脑宣传解决。在中共眼里，中国老百姓连猪狗都不如。
+#### 翻译                           意大利达芬奇农场                     小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-28-alle-16.18.36.png)图片来源：rainews.it 
+这是平壤自今年年初开始的第八次导弹试验
 
-战争时，中共会以”国家需要“和”爱国“的名义，实施禁飞、断网、不让取钱等手段，让老百姓困在家里、饿死在家里。中共国老百姓的财产会被中共全部夺走。中共一直以骗治国，绑架老百姓。中共充分利用人性的仇恨，让中国人互相憎恨，互相斗争。中共认为，必须让老百姓的生活接近黑暗和死亡，才会驯服于它的独裁统治。
+据安莎社2月27日报道，朝鲜向东发射了一枚“ 不明弹药”。
 
-参考链接：[2022年2月27日大直播速记精萃](https://gnews.org/zh-hans/2076806/)
+这是首尔军方报道的。根据韩国联合参谋部的简短说明， 这是自今年年初以来的第八次此类举措。由于与美国的核谈判长期陷入僵局， 平壤在1月份进行了包括弹道导弹的七次导弹试验，其中包括自2017年以来最强的一次，但在奥运期间停止了所有活动。分析人士指出这一决定是为了尊重中国。最后一次测试可以追溯到1月底，是在解除几年前决定的自行暂停远程核试验和导弹试验的威胁后，仅仅几天就由一艘中程弹道航母发射而出。让人们对北韩重新不断地挑衅活动感到恐惧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2022/02/27/corea-del-nord-seul-lanciato-un-proiettile-non-identificato\_9d866ef3-4388-4b1c-9a00-d6f6e4bdc76f.html](https://www.ansa.it/sito/notizie/topnews/2022/02/27/corea-del-nord-seul-lanciato-un-proiettile-non-identificato_9d866ef3-4388-4b1c-9a00-d6f6e4bdc76f.html)
 
-总编: 文真
-编辑: Ivy001
-校正/发稿：Fei797
+编辑、上传： Xiao  baige
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

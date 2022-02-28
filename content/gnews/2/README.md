@@ -2,14 +2,36 @@
 ---
 
 
-## 台湾的战友请注意 新中国联邦正在帛琉共和國（Republic of Palau）建设基地
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2081917/)
+## 有声|新中国联邦G教育的三个目标
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2081973/)
 
-[新中国联邦](//hashtag/%2523新中国联邦)，与[台湾农场](//hashtag/%2523台湾农场)，也会马上在[帛琉共和國](//hashtag/%2523帛琉共和國)（Republic of [Palau](https://www.gettr.com/hashtag/%23Palau)）建设基地，以应对随时可能爆发的[台海战争](//hashtag/%2523台海战争)。同样，所有台湾的战友到帛琉后，至少30天的吃穿住行，将由新中国联邦、法制基金和法制社会负责。到帛琉后，我们会想办法和其他国家协调，安排没有证件的战友及亲友到各个国家去。我们也会派[救援飞机](//hashtag/%2523救援飞机)，每架350-500人，请战友们[按规矩撤离](//hashtag/%2523按规矩撤离)，并且准备好相应的[法律文件](//hashtag/%2523法律文件)。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2月26日，郭文贵先生在G教育专题大直播中，强调G教育的三个目标：
 
-**视频来源****: 20220226—****郭先生紧急救援乌克兰****🇺🇦****大直播**
-**视频制作****: ****文星光**
-**文案****:****文星光**
+- **松绑政治教育**：
+当前东西方教育体系，都存在一个悲哀的教育现象，即“政治教育”。G教育首先要解除全世界被政治绑架的教育，要创造一个正常的、适合人性发展的教育。
+- **松绑金钱教育**：
+全世界，包括最好的院校在内，教育都在向金钱低头。G教育必须松绑金钱对教育的绑架，不仅允许老师和学生在教育里图谋金钱，而且要彻底铲除。 G教育用强大的资金实力提供高质量的免费教育。
+- **教育是教人长大，辨别世界**：
+G教育提供利己利他的教育环境，让孩子学会自我认知，和辨别真假善恶的良知。为世界培养造福人类的无国界人才。
+
+
+文字版原文：[新中国联邦G教育的三个目标](https://gnews.org/zh-hans/2073595/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

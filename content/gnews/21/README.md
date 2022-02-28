@@ -2,37 +2,23 @@
 ---
 
 
-## 有声|乌克兰版“六四坦克人”视频曝光
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2081578/)
+## 新中国联邦以行动向世界诠释正道主义
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2081642/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据台湾媒体2月26日报道，在俄罗斯大举侵略乌克兰的时刻，一名乌克兰人以肉身阻挡俄罗斯装甲车的视频在网络疯传，其画面让人不禁联想到北京“八九六四”事件中，著名的“坦克人”场景。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-40.jpg)
-该视频画面显示，一排俄罗斯装甲车队正行驶在乌克兰街头，一名疑似乌克兰平民的男子站在车队的必经路线上，试图以肉身阻挡进犯的敌军。该男子除了阻挡装甲车以外，还用类似石块等的物体向装甲车抛掷。随后他还攀上了一辆装甲车的左前侧部位，试图阻止车辆行进。其它俄军装甲车见状急忙躲避，并未与该男子发生碰撞。
+采编/编辑撰稿：  文所未闻                   校对编辑：硫酸羟氯喹64
 
-视频中该男子虽然未对俄国军车造成有效伤害，但乌克兰人在绝望中尝试保卫家园的精神，已传遍网络，并引发了全球网友热议。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-3-5.jpg)图片来源：Gettr
 
 
+据本台记者2月27日报道，在日前的《救援乌克兰》紧急直播中，文贵先生一再强调，在本次与联合国专业援救组织的共同行动中，一定要向世界展示新中国联邦高效、高质量的团队作战能力和完全无私的新中国联邦人的形象。
 
-文字版原文：[乌克兰版“六四坦克人”视频曝光](https://gnews.org/zh-hans/2072840/)
+对此，文贵先生指出，要以行动来给世界展示爆料革命是正义的需要，新中国联邦能给世界带来和平和希望。本次前往乌克兰前线的行动，成功的救援结果最为重要，任何人都不能以功名或利益为目的。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+据悉，救援行动的三个核心部署分别是[前线组织]，[后勤供应]和[媒体宣传]。在保障最低风险情况下，全力救援在乌克兰被战火围困的新中国联邦战友及家人、华人同胞、美国及各国友人。文贵先生最后表示，没有任何战争是正义的，无论任何种族，肤色或国籍的人民都是同类。新中国联邦爱好和平，反对战争！
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+发稿：文明(添草灭共)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+消息来源： [https://gettr.com/post/px8x781fd6](https://gettr.com/post/px8x781fd6)
 
  
 
