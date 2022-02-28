@@ -2,23 +2,47 @@
 ---
 
 
-## 新中国联邦将参与乌克兰救援，及注意事项2
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2081892/)
+## 西方同意将俄罗斯主要银行踢出SWIFT
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2081940/)
 
-[救援](//hashtag/%2523救援)以：
+作者：纽约香草山教育部-Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-74.png)
+周六，美国、欧洲盟国和加拿大同意将俄罗斯的主要银行从SWIFT 中移除，这一举措将把俄罗斯从全球金融体系的大部分地区中分离出来。
 
-1.新中国联邦的[战友及亲友](//hashtag/%2523战友及亲友)，[优先](//hashtag/%2523优先)；
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_2672.jpg)
 
-2.美国友人；
+虽然美国和欧洲官员明确表示，他们仍在制定如何实施最新制裁的机制，并避免影响俄罗斯的石油和天然气出口，但总的来说，这些制裁有可能成为对一个国最严厉的制裁。如果按计划全面实施，这些措施将严重损害俄罗斯经济，并明显限制其进出口货物的能力。
 
-3.国际友人。
+美国官员表示这一举措将导致俄罗斯卢布大幅贬值，并推动俄罗斯经济的通胀飙升，由此产生的经济混乱可能会让普京在国内面临政治动荡。
 
-救援是不分种族，政治立场，宗教信仰，只要需要帮助的，就是救援的目标。如果不能离开乌克兰的，我们也会给予[救援物资](//hashtag/%2523救援物资)。将有10架飞机参加救援，以乌克兰首都[基辅](//hashtag/%2523基辅)和[基辅周围](//hashtag/%2523基辅周围) 的几个机场为降落点，[下周5前会到达](//hashtag/%2523下周5前会到达)，之后每天2架。接受信息，由[联盟委员会](//hashtag/%2523联盟委员会)统一协调，24小时为战友服务。[法制基金](//hashtag/%2523法制基金)、[法制社会](//hashtag/%2523法制社会)、联盟委员会也将提供至少30天的吃住用的补助，之后有需要会发起统一募捐。
+宣布这一消息后，乌克兰总理什米哈尔对这项措施表示欢迎。
 
-**视频来源****: 20220226—****郭先生紧急救援乌克兰****🇺🇦****大直播**
-**视频制作****: ****文星光**
-**文案****:****文星光**
+此外，美国及其盟国宣布将实施限制性措施，以防止俄罗斯央行以可能破坏制裁的方式部署其国际储备。
 
+一位高级政府官员在周六晚间与记者的电话中表示，俄罗斯将立即感受到这些制裁的影响。
+
+新闻链接：
+
+[https://www.cnbc.com/2022/02/26/eu-uk-canada-us-pledge-to-remove-selected-russian-banks-from-swift.html](https://www.cnbc.com/2022/02/26/eu-uk-canada-us-pledge-to-remove-selected-russian-banks-from-swift.html)[https://www.usnews.com/news/business/articles/2022-02-26/nations-pledge-to-remove-selected-russian-banks-from-swift](https://www.usnews.com/news/business/articles/2022-02-26/nations-pledge-to-remove-selected-russian-banks-from-swift)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-58.jpg)
+
+编辑：飞虹
+
+校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-76.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

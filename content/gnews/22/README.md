@@ -2,30 +2,26 @@
 ---
 
 
-## 金融核武器——SWIFT
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2081601/)
+## “锁链女”被从性奴变成政治奴隶！
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2081703/)
 
-作者：香草山教育部-雪梨
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-86.png)
-SWIFT，全称环球银行金融电信协会，为全球银行金融交易和支付提供服务。基于标准化的报文体系，SWIFT系统已成为国际间金融数据传递和交换的标准语言。目前，SWIFT已覆盖全球200多个国家和地区的11000多家金融机构，每天处理的金融信息高达数千万条，SWIFT掌握了全球绝大部分资金的划转信息。
+作者：纽约香草山-信息部 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-75.png)
+郭先生在2月23日的大直播中谈到，彭丽媛老家山东郓城的亲表哥就是买的拐卖女为生育工具，习和彭会不知道吗？曾经一位有点地位的法官回江苏老家解救拐卖女，结果当地官员送上三个长相不错的拐卖女贿赂他。这位法官让自己闺女出国了，不想让其在国内被绑架和拐卖，就这是中共国的法官！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/swift-scaled.jpg)FILE PHOTO: Swift logo is seen in this illustration taken, Bosnia and Herzegovina, February 25, 2022. REUTERS/Dado Ruvic/Illustration
+![](https://assets.gnews.org/wp-content/uploads/2022/02/f5392219-84a4-445e-ba48-a0d7e16d7a48.jpg)
 
-2月27日的大直播中，郭文贵先生称，SWIFT系统不仅仅是处理支付的系统，最重要的是，它是对整个国家的信用评级。
+有上万拐卖女的丰县已封城，外来人员一律先搜查手机，再把可疑人员抓和关起来，并在全国范围内捂盖子，情况比想象的严重得多。“锁链女”牙齿被拔掉、舌头被割、锁都生锈了，邻居和地方官员都是人口贩子，并成为性奴被轮奸了24年。
 
-2014年克里米亚事件，SWIFT制裁俄罗斯，俄罗斯GDP腰斩。
+在全网疯传的情况下，至今“锁链女”的名字与来历当局还在胡编乱造，当局用国家力量把她压在下面而变成了共产党的政治奴隶。但若你骂一句习近平或“灭盗国贼”，则立马被抓并将你祖宗八辈查得清清楚楚！中共国令人发指的黑暗，老百姓丧尽天良的冷漠，让“锁连女”喃喃自语：“这个世界不要我！”
 
-2022年2月26日，鉴于俄罗斯对乌克兰发动的战争，美国、欧盟等国家发布联合声明，宣布将选定的俄罗斯银行从SWIFT通讯系统中移除。
+新闻链接：
 
-郭先生数次提到，如果中共攻打台湾，必被踢出SWIFT系统。届时，中国银行、中国建设银行、招商银行等上市公司的股票将跌至谷底，中共国所谓的15万亿GDP也将随之消失。即使中共不打台湾，因为新疆大屠杀、香港大屠杀、中共病毒溯源，中共也会被踢出SWIFT体系，中共的内斗也将加速中共的灭亡。
+[https://gtv.org/video/id=62162fe908ba8a07b1a1ea8a](https://gtv.org/video/id=62162fe908ba8a07b1a1ea8a)
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-40.jpg)
 
-[https://gnews.org/zh-hans/2076806/](https://gnews.org/zh-hans/2076806/)
-
-*校对/发稿：飞虹*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-64.jpg)
+编辑/校对/发稿：遍地开花
 
 **更多资讯，更多关注**
 
@@ -35,10 +31,10 @@ SWIFT，全称环球银行金融电信协会，为全球银行金融交易和支
 
 [**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-73.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

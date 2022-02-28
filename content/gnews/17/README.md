@@ -2,23 +2,32 @@
 ---
 
 
-## 视频|战友在救援中务必小心中共的渗透
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2081817/)
+## 核战风险升至高点 美国“末日军机”E-6B升空
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2081886/)
 
-制作：香草山视频部
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-124.jpg)
+E-6B被侦测到的航行轨迹图（图片来自网络）
 
-2月26日，郭文贵先生在紧急大直播中动员战友们参与新中国联邦的救助行动时，郑重提醒大家：我们的救援来自G系列、法治基金、法治社会的经济实力和国际关系。任何战友此时不能做任何捐和所谓各种支持的私自决定。此时共产党的渗透会很严重，我们务必要小心。（请播放视频：00:00-00:56 [https://www.gettr.com/post/px50uybaa9](https://www.gettr.com/post/px50uybaa9) 视频时长
+俄罗斯日前在全面侵犯乌克兰的行动中受阻，并遭到全世界的谴责和制裁。在此被动情况之下，俄罗斯总统普京丧心病狂地发出了“核威胁”，令全球陷入极度紧张状态。
 
-发稿：Daxia
+据《阿波罗新闻网》2月28日报道，俄罗斯总统普京2月27日签署执行令，要求核威慑部队进入“特别警戒任务”。此举拉高了核战态势。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+美国总统拜登此前对俄罗斯发动侵略乌克兰的战争一直坚持不出兵的原则，仅实施与经贸有关的制裁与喊话。不过，28日，美国E-6B水星通信中继机（E-6B Mercury）被侦测到升空，并且网络上还出现了升空侦测图。此消息瞬间在推特上被热传，使得全球核战风险再度被拉高。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+有“末日军机”（doomsday plane）之称的E-6B水星通信中继机（E-6B Mercury）可将美国总统下达的核武攻击命令，传递到在全球海洋巡弋的核武潜舰。
+
+波音E-6B的前期型号是E-6A。E-6A最初进入美国海军服役时，其作用是将美国最高指挥官的指令传达至弹道导弹潜艇。E-6B型于随后入役，它保留了E-6A的原有功能，并增加了远程控制陆基“民兵”导弹的能力。
+
+《阿波罗新闻网》的报道指出，如果美军加入战局，不仅会打破拜登先前不出兵的原则，同时也会增加战局的复杂程度。
+
+不过，有关“末日军机”E-6B升空的用意，目前官方仍未对外正式公布。
+
+新闻链接：
+
+[https://www.aboluowang.com/2022/0228/1714589.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2022/0228/1714589.html?utm_source=dlvr.it&amp;utm_medium=twitter)
+
+* * *
 
  
 

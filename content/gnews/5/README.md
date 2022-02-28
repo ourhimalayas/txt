@@ -2,14 +2,30 @@
 ---
 
 
-## 台湾的战友请注意 新中国联邦正在帛琉共和國（Republic of Palau）建设基地
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2081917/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月28日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2082019/)
 
-[新中国联邦](//hashtag/%2523新中国联邦)，与[台湾农场](//hashtag/%2523台湾农场)，也会马上在[帛琉共和國](//hashtag/%2523帛琉共和國)（Republic of [Palau](https://www.gettr.com/hashtag/%23Palau)）建设基地，以应对随时可能爆发的[台海战争](//hashtag/%2523台海战争)。同样，所有台湾的战友到帛琉后，至少30天的吃穿住行，将由新中国联邦、法制基金和法制社会负责。到帛琉后，我们会想办法和其他国家协调，安排没有证件的战友及亲友到各个国家去。我们也会派[救援飞机](//hashtag/%2523救援飞机)，每架350-500人，请战友们[按规矩撤离](//hashtag/%2523按规矩撤离)，并且准备好相应的[法律文件](//hashtag/%2523法律文件)。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-5.png)
 
-**视频来源****: 20220226—****郭先生紧急救援乌克兰****🇺🇦****大直播**
-**视频制作****: ****文星光**
-**文案****:****文星光**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-28.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.02.28早 《NFSC新闻》](https://gtv.org/video/id=621ccdfd019ef64da652e017)
+[2022.02.28早 G|TV《新闻访谈》](https://gtv.org/video/id=621cd642019ef64da652e45c)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4-5.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
