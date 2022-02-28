@@ -2,19 +2,31 @@
 ---
 
 
-## 美国总统拜登派资深代表团访台，以行动坚定支持台湾
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2081983/)
+## 有声|爆料让世界对新中国联邦刮目相看
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2081988/)
 
-根据路透社报导，俄罗斯攻打乌克兰的同时，美国总统拜登政府高级官表示，拜登指派由前国防及安全事务高官组成的跨党派资深代表团访问台湾，传达守护台湾的讯息。代表团将于3月1日至2日搭乘行政专机访问台湾，期间计划拜会蔡英文总统、国防部长邱国正等。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/National-Security-Council.jpg)
-代表团由美国前参谋首长联席会议主席穆伦（Mike Mullen）率领。穆伦是退役海军上将，曾在前总统小布什（George W. Bush）和欧巴马（Barack Obama）任内担任参谋首长联席会议主席，随行者还包括小布什政府任内的副国安顾问欧苏利文（Meghan O’Sullivan），以及欧巴马政府任内的国防部次长佛洛诺伊（Michele Flournoy），前国家安全委员会（National Security Council）亚洲事务资深主任葛林（Michael Green）和麦艾文（Evan Medeiros），美方将藉由这次行程，「展示我们持续坚定支持台湾」，美国前总统川普任内的国务卿蓬佩奥（Mike Pompeo）也将于3月2至5日访台，期间将拜会蔡总统。拜登政府拒绝评论蓬佩奥的访台行程。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+在2月25日的《文贵大直播》节目中，郭文贵先生表示，爆料革命精准掌握习近平与普京的战争密谋，这一情报爆料能力，让全世界对新中国联邦事业刮目相看。
 
-2019年9月1日文贵先生直播爆料，中共与俄罗斯的双龙计划，趁俄罗斯攻打乌克兰的同时，中共利用在福建的50万解放军，迅速对台湾发动斩首行动，收复台湾，台湾目前三军已提高一级战备，防止中共做出不利台湾的军事举动，台湾正面临紧张的时刻，美国政府以行动持续坚守台湾，在此感谢美国两党和拜登政府的努力。
+郭先生表示，爆料革命早已精准掌握习普二人的 “双头鹰”计划。不仅如此，早在2017年，郭先生就警告说黑暗已经笼罩世界，并相继揭露了爆料革命所掌握的中共3F计划——搞弱美国、搞乱美国、搞跨美国；以及中共长期的海外渗透等的布局关系，这些情报无不一一验证。更是在2019年底疫情爆发前，爆料革命向世界预警中共病毒和疫苗灾难。
 
-[总统府证实拜登指派跨党派访团 蔡英文2日接见与设宴](https://news.ltn.com.tw/news/politics/breakingnews/3844080)
+郭先生分析，普京是否下令入侵乌克兰，直接决定着两个独裁政府的命运，更影响灭共事业的进展。据郭先生所述，当得知“普京已经前往作战中心”这一确切情报时，世界的格局将发生根本变化，自由世界的人民将与新中国联邦站在一起，粉碎独裁邪恶轴心的战争图谋。
 
-审核:Athena雅典娜 撰稿发布:Amitofu
+文字版原文：[爆料让世界对新中国联邦刮目相看](https://gnews.org/zh-hans/2078399/)
 
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
