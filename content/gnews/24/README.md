@@ -2,43 +2,32 @@
 ---
 
 
-## 俄罗斯央行紧急提高利率至20%，指示企业出售外汇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2081358/)
+## 一旦对台开战 中共将断网断电关闭领空
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2081471/)
 
-翻译：天天、宫米叶
+作者：纽约香草山农场 -文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月27日大直播中，郭文贵先生非常肯定地指出，如果对台开战，中共一定会关闭领空，断网断电。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-68.jpg)
+从朝鲜战争，文化大革命，到越南战争，无论天灾还是人祸，中共永远都是牺牲中国人的生命，而从不考虑老百姓的死活，所有的问题就靠洗脑宣传解决。在中共眼里，中国老百姓连猪狗都不如。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220228-00000102-reut-000-3-view-edited.jpg)图片来源：路透社
+战争时，中共会以”国家需要“和”爱国“的名义，实施禁飞、断网、不让取钱等手段，让老百姓困在家里、饿死在家里。中共国老百姓的财产会被中共全部夺走。中共一直以骗治国，绑架老百姓。中共充分利用人性的仇恨，让中国人互相憎恨，互相斗争。中共认为，必须让老百姓的生活接近黑暗和死亡，才会驯服于它的独裁统治。
 
-俄罗斯央行28日将其关键政策利率从9.5%提高到20%。卢布跌向新低过程中，尽管陆续发布了一系列支撑国内市场的措施，但仍然采取紧急加息之措。
+参考链接：[2022年2月27日大直播速记精萃](https://gnews.org/zh-hans/2076806/)
 
-此外，俄罗斯央行和财政部指示各公司出售其80%的外汇收入。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-央行在声明中说，”俄罗斯经济的外部环境已发生重大变化”，”通过提高政策利率，我们将确保其能够覆盖高通胀风险等其他因素的影响。这是支持金融和价格稳定、防止国民存款贬值的必要步骤。”
+总编: 文真
+编辑: Ivy001
+校正/发稿：Fei797
 
-受普京总统27日下令军队司令部将包括核武力量在内的核威慑部队置于高度警戒态势影响，卢布汇率在EBS电子交易平台跌至1美元兑120卢布。
-
-美国、英国、欧洲和加拿大26日同意将俄罗斯部分银行排除在国际银行间汇款和结算系统SWIFT之外，并限制俄罗斯央行外汇储备的使用。
-
-受此影响，俄罗斯央行27日宣布了一系列支撑国内市场的措施。包括恢复国内市场的黄金购买、通过回购协议提供无限的资金供应，以及放松银行外汇持有量的限制。
-
-央行表示通胀率的目标是4% 。很明显为了确保金融稳定，他们已经不择手段。
-
-2014年吞并克里米亚时的政策利率也仅为17%。
-
-BCS全球市场在报告中指出：“这一系列措施可能有助于缓解市场上日益高涨的警戒感，但以通胀目标和灵活汇率为支柱的货币政策根基将被侵蚀。”
-
-报告说：“在无法指望外部环境的情况下，俄罗斯的金融政策变得不可持续。不排除发生继续升息以及不可预料的人为操纵市场发生的可能性。”
-
-**参考资料：**[news.yahoo.co.jp][ロシア中銀、20％に緊急利上げ　企業に外貨売却指示](https://news.yahoo.co.jp/articles/cfe577c53433e8d23c0c90f6d3be684f4af8d910)
-
-* * *
-
-*审核：天天*
-*发稿：信心的选择*
-*校对：zicoround、宫米叶*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-9.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

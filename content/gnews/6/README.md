@@ -2,25 +2,24 @@
 ---
 
 
-## 视频|一名乌克兰士兵为了阻止俄军的入侵而自我引爆
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2081619/)
+## 视频|新中国联邦致力于维护中国人的安全和人权
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2081813/)
 
 制作：香草山视频部
 
-据国外媒体2月25日报道，一名英勇的乌克兰士兵为了摧毁一座桥梁，并阻止俄罗斯军队从克里米亚冲入而自我引爆。
+2月26日，郭文贵先生在GTV和盖特紧急直播，重申了新中国联邦追求世界和平的目标，以及新中国联邦人致力于建社一个没有共产党、拥有民主自由法治、与世界和平共处、一人一票选举政权的理想。重申新中国联邦致力于维护中国人善良、勇敢和爱好和平的形象！我们要和全世界人民一起跟独裁和邪恶势力战斗，维护中国人的人身、经济安全以及人权.
+（请播放视频：00:00-2:29 [https://www.gettr.com/post/px3peq0349](https://www.gettr.com/post/px3peq0349) 视频时长： 2’29” ）
 
-维塔利·斯卡昆·沃洛迪米罗维奇是一位军事工程师，他勇敢地自愿接受了一项危险的任务——在一座大桥上埋设地雷，这是连接被俄罗斯吞并的克里米亚和乌克兰大陆的一个关键战略要塞。
+发稿：Daxia
 
-当普京的部队向他冲来时，维塔利意识到他没有时间去设置导火索并逃离，于是勇敢地进行了“自我引爆”。他的牺牲阻止了冲向赫尔松地区南部赫尼切斯克的一列俄罗斯坦克，大大减缓了敌人的前进速度，也使乌克兰的军事单位能够重新组织和重新部署其防御能力。俄罗斯的坦克和导弹发射器不得不因此采取更长的陆路路线进入南部的赫尔松省。
-
-乌克兰指挥官们希望为维塔利的 “英雄行为” 追授荣誉称号。
-
-发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

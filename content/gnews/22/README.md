@@ -2,36 +2,21 @@
 ---
 
 
-## 切断SWIFT支付将对中共造成致命打击
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2081404/)
+## 首尔：北韩发射一枚不明弹药
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2081486/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月27日，郭文贵先生在大直播中，详细讲解了切断中共使用SWIFT支付系统，对灭共起到关键作用。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-94.jpg)
-首先，SWIFT系统不仅是美元支付系统，更重要的作用是国家信用评级。切断SWIFT支付系统，意味着与50%以上的世界国家经济体断绝经济合作。目前，停止俄罗斯银行使用SWIFT系统，是历史上首次针对主权国家停用。一旦开启SWIFT制裁先例，即使中共不对台开战，停止中共银行使用SWIFT系统，仅是时间问题。
+#### 翻译                           意大利达芬奇农场                     小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-28-alle-16.18.36.png)图片来源：rainews.it 
+这是平壤自今年年初开始的第八次导弹试验
 
-郭先生透露，目前有三个理由对中共实施SWIFT制裁：第一，对新疆实施种族灭绝大屠杀；第二，镇压香港民主运动，杀害无辜的香港平民；第三，制造和释放中共病毒，对全世界发动生化战争。
+据安莎社2月27日报道，朝鲜向东发射了一枚“ 不明弹药”。
 
-郭先生进一步强调，当SWIFT系统停止中共银行使用后，中国银行28万亿国际业务顷刻消失；中共所有海外贷款和借款，全部立刻停止；建行、招行、农行等所有上市银行股票价格，立刻跌倒零；15万亿GDP化为乌有；中共40%粮食进口和68%外向行经济都将结束。
+这是首尔军方报道的。根据韩国联合参谋部的简短说明， 这是自今年年初以来的第八次此类举措。由于与美国的核谈判长期陷入僵局， 平壤在1月份进行了包括弹道导弹的七次导弹试验，其中包括自2017年以来最强的一次，但在奥运期间停止了所有活动。分析人士指出这一决定是为了尊重中国。最后一次测试可以追溯到1月底，是在解除几年前决定的自行暂停远程核试验和导弹试验的威胁后，仅仅几天就由一艘中程弹道航母发射而出。让人们对北韩重新不断地挑衅活动感到恐惧。
 
-中共常委的家人在海外均藏匿巨额家族信托资产，一旦被经济制裁，这些人会联手消灭习近平。切断SWIFT系统是对中共釜底抽薪的致命打击。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2022/02/27/corea-del-nord-seul-lanciato-un-proiettile-non-identificato\_9d866ef3-4388-4b1c-9a00-d6f6e4bdc76f.html](https://www.ansa.it/sito/notizie/topnews/2022/02/27/corea-del-nord-seul-lanciato-un-proiettile-non-identificato_9d866ef3-4388-4b1c-9a00-d6f6e4bdc76f.html)
 
-参考链接：[2022年2月27日大直播速记精萃](https://gnews.org/zh-hans/2076806/)
+编辑、上传： Xiao  baige
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-总编: 文真
-编辑: Jack Li文阳  
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
