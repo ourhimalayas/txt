@@ -2,10 +2,10 @@
 ---
 
 
-## 2/27/2022 文贵直播：中共的战争一向打的都是无数人的生命，毫无战略可言；乌克兰完美地运用了战争心理学，不但交了朋友还赢得了朋友的支持
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2078758/)
+## HDO、 H-coin、GTV、GNEWs、Gettr、Gfashion 是灭共力量
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2078797/)
 
-秘密翻译组-北美组
+台灣寶島農場
 
  
 

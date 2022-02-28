@@ -2,40 +2,24 @@
 ---
 
 
-## 俄战争狂人指出当中共国缺粮时中国饥民连子弹钱都不值
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2078900/)
+## 2022年2月27日郭先生盖特 — 视频1「3分26秒」
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/2079010/)
 
-G-TV视频链接：[https://gtv.org/video/id=621648081408ee3a03a3c842](https://gtv.org/video/id=621648081408ee3a03a3c842)
+听写：洛杉矶盘古农场 — Antsee-GTV
 
-还有一句说：“当中共国没有粮食的时候，中国的暴民叫饥民——饥饿的“饥”民、还有那些连文明、连人和性还没有开化的……” 说中国五千年文明连开化都没有，就说那东北人，他说：“他连一颗子弹钱都不值，他冲进俄罗斯怎么办？”
+Video link: https://gettr.com/post/px9tgede10
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1D48083C-9447-4610-BBE3-0A497BBF092E.jpeg)
+兄弟姐妹们，现在是28号（美东时间27号）下午6点，你健身了吗？
 
-为啥今天我们谈这个话题兄弟姐妹们，上直播你们一定要做准备，我没有时间准备你们要准备，这都是我俄罗斯的哥们儿，就人家说“你连个子弹钱都不如——杀你的子弹钱都不如”，这些没有饭吃的东北人就是“文艺”、就是“文贵”，是吧？窜到人家俄罗斯去，人家觉得连我杀你一枪都不值，就这哥儿们这是个战争狂人，就把战争机器做到了艺术化程度的狂人，要叫普京辞职的狂人。
+兄弟姐妹们，虽然…兄弟姐妹们，我这苹果上还在开着会，我把声音屏蔽了，然后健身，开会，录视频「同时进行」。救人很重要，先把自己救了，不管任何理由都要健身呐！希望兄弟姐妹们能看昨天的紧急大直播关于乌克兰救人 — 救人是我们现在的唯一目标。但是别着急，跟我们没有缘分的，没有姻缘的，结不成姻缘。别着急！
 
-编辑整理：Jacques；
+疯了，太多人想救了！在乌克兰原来以为6000多人，现在就知道的已经20000多了。别说10架飞机了，光中国人30架都不够 — 太可怕了，30架到50架都不够，太疯狂了！
 
-字幕文件制作：大好河山；
+共产党这帮王八蛋听说以后马上通告不要上当受骗。你见过有开全世界最大的大力神飞机 — 一趟最起码物资就可能是几百万美元 — 去骗你去？去骗你一无分文，身在战区，素不相识的中国人吗？
 
-视频制作及上传：Cindy；
+共产党：我R你八辈祖宗啊！你们这么骗老百姓啊？！你能不能拿几万美金开着你的拖拉机到乌克兰救救那在水深火热中的同胞？别只救你们的小姨子，你们的小舅子 — 行不行？！我R你八辈祖宗啊！天看着呢，作吧！老天会灭了你们的。太可怕了，兄弟姐妹们。
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UC_h8BevH-vN6xUKQBeLKnMg) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UC9UOGnhaE8rHrz8Ds_-zZHQ)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+我们就是要行动和结果，要结果！啥都不说了。
 
  
 

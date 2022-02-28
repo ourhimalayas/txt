@@ -2,54 +2,50 @@
 ---
 
 
-## 【秘翻在线】实时更新：乌克兰抵抗俄军
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2078815/)
+## 俄战争狂人私下表态要鼓动中国打台湾但坚决不打乌克兰
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2078973/)
 
-**撰稿：Grace**
+G-TV视频链接：[https://gtv.org/video/id=621648921408ee3a03a3c855](https://gtv.org/video/id=621648921408ee3a03a3c855)
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-27-at-11.25.08-PM.jpeg)图片来源：politicalhotwire
-**22分钟前** **乌克兰无人机似乎击落了俄罗斯导弹系统**
+人家私下就说了：“我们要鼓动中国去打台湾，但我们坚决不能打乌克兰。” 看似你知道爱米粒妹妹、文艺，这句话是多歹毒啊！多歹毒啊！这就像那个Isobel Yeung——所有的中国人在海外的，都属于有暴力倾向、邪教基因。
 
-据《福克斯新闻》 2月27日报道， 一名乌克兰官员发布的录像似乎显示，一架乌克兰无人机击落了一个俄罗斯导弹系统。
+所有那单伟建PAG的那个老板在美国从90亿美元弄400亿，弄1000亿美元，全来自于西方，而且说你胆小的去中国投资不了。
 
-周日早些时候，**乌克兰武装部队发布了对俄罗斯损失的最新估计，**包括1个防空导弹系统。乌克兰官方账户还列出了4300名人员（死亡和受伤），200名战俘，46架飞机，26架直升机，146辆坦克，以及706辆各类装甲车。
+你想过单伟建PAG投资1000亿美国的一个基金，或者400亿美元基金，5%的管理费一年多少管理费呀？赔了赚了他都拿5%，赚了拿你20%。所以他为了所谓根本不存在3000万美元的官司来告七哥，花掉了八九千万美元律师费，你觉得是干啥的？
 
-1小时前** 白俄罗斯可能最快于周一加入俄罗斯的入侵行动**
+对咱来讲八九千万美元真的现在像爱米粒（战友名字）拔根毛一样，是不是？我说的是在头上拔，你别想象，没说让你在别的地方拔，在头上拔根毛一样是吧，就这么简单是吧，随便掉根毛。是不是你郭文贵，你别想多了爱米粒。
 
-拜登政府的一位官员周日表示，**白俄罗斯的部队可能最快在周一加入俄罗斯对乌克兰的入侵战斗。**
+所以说这帮孙子他就是来搞你这个来了，他就是来搞你来了。这种歹毒之心你没发现，他拿他一根毛要你的命，让你天天为这打官司。
 
-1 小时前 选美皇后加入乌克兰军队，警告俄罗斯入侵者将被杀死
+Isobel Yeung让她吃狗肉，她让全世界说你是邪教。不管男女，不管老少。文艺的家人，爱米粒的家人，Tex的家人，不管你远在新西兰，还是在日本，还是在哪里。Nick，这是很吓人的，多歹毒哇！
 
-据《纽约邮报》报道，曾在2015年代表乌克兰参加国际大小姐选美比赛的选美皇后阿纳斯塔西娅·伦娜（ Anastasia Lenna ）周六在她的Instagram的帖子中说：“所有越过乌克兰边境并意图入侵的人都将被杀死！” 报道称，帖子中包括武装士兵封锁一条道路的照片。
+鼓励你去打台湾，人家知道你一打台湾你就死球的了，是吧？我要你的命呢。
 
-1 小时前 **泽伦斯基认为未来24小时对乌克兰至关重要**
+编辑整理：Jacques；
 
-乌克兰总统沃洛基米尔·泽伦斯基告诉英国首相鲍里斯·约翰逊，**未来****24****小时将是乌克兰对抗俄罗斯入侵的关键。**
+字幕文件制作：大好河山；
 
-约翰逊告诉泽伦斯基，英国和北约盟国将尽其所能，向乌克兰提供军事援助。
+视频制作及上传：Cindy；
 
-2小时前 **美国国防部高级官员认为乌克兰上空的空域仍在争夺中**
+G-News发布：小满；
 
-据美国国防部一位高级官员周日说，随着乌克兰军队继续反击俄罗斯的入侵，乌克兰上空的空域仍在争夺。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-这位官员在国防部发布的非公开新闻发布会上说：“这意味着乌克兰人仍然在使用飞机，以及他们自己的空中和导弹防御系统，我们认为这些系统仍然是完整的，仍然是可行的。” 这位官员还表示，“俄罗斯人已经有了一些退化”。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-该官员说，位于边界沿线的大约三分之二的俄罗斯部队现在已经投入到乌克兰境内，比24小时前增加了，当时这些部队中大约有一半投入到该国境内。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-#### 3 小时前 **白俄罗斯放弃了无核地位**
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-白俄罗斯周日批准了一部新宪法，以结束该国的无核地位。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UC_h8BevH-vN6xUKQBeLKnMg) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UC9UOGnhaE8rHrz8Ds_-zZHQ)；
 
-据路透社的报道，参加投票的人中有65%以上的人赞成这一措施。这次投票是在这个前苏联共和国成为俄罗斯入侵乌克兰的发射点之后进行的，**这将标志着自苏联解体以来该国首次可以在其领土上拥有核武器。**
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-#### 4 小时前 **俄罗斯领导的部队控制了尼古拉耶夫卡**
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-俄罗斯领导的部队已经控制了具有历史意义的尼古拉耶夫卡镇 （Nikolayevka ），**第二次世界大战期间，苏联军队在这里爆发了斯大林格勒战役。**
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-分析人士称，俄罗斯军队现在可以开始巩固并取得成果，从而使他们能够向黑海推进。
-
-**新闻来源：**** **[Ukraine battles Russian forces: LIVE UPDATES](https://www.foxnews.com/live-news/russia-continues-ukraine-invasion-live-updates)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

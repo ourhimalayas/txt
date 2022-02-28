@@ -2,42 +2,39 @@
 ---
 
 
-## 冬奥会现场轻哼灭共的雪与旁边为何我要灭共战友对暗号
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2078860/)
+## 澳洲反腐调查认定新州工党的捐款来自悉尼星亿赌场
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2078990/)
 
-G-TV视频链接：[https://gtv.org/video/id=621647761408ee3a03a3c82e](https://gtv.org/video/id=621647761408ee3a03a3c82e)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**郭文贵先生：**而且这个冬奥会这次大家一定要记住啊，冬奥会啊特别我唱这个《灭共的雪》的时候，大家要看到那个你别小看这两首歌，就咱们很多战友在现场，轻轻试试，——我爱你，灭共的雪，轰轰烈烈漫山遍野。你看文艺，七哥在你面前、你这样儿的嗓子面前敢这么唱，就这勇气，你说是吧？这不是一般的厉害吧，是吧？大早上起来第一嗓子。
+#### 整理：围剿维尼熊
+编辑：小红帽
 
-**文艺**：厉害，太厉害了！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/sfx254573.jpg)图片来源：TICKETEK
 
-**郭文贵先生**：厉害啊！这个咱们战友们有人在现场试，参加冬奥会义工的，他说：“七哥，很多人马上有感觉：‘哎，一切都是刚刚开始’，那旁边儿说‘甜蜜蜜’然后对上暗号了，对上了，哈哈；然后旁边儿说有个女士也哼着‘为何我要灭共？是谁带来苦痛？’”——哇！马上有要双修的感觉啊就来了，真的！这直接就要双修的感觉，这是真的！这个力量它无处不在。
 
-编辑整理：Jacques；
+根据澳大利亚人报中文网2月28日报道，新州反腐败独立委员会（ICAC）认定，新州工党接受的一笔非法的10万元的现金捐款来自于中共国的亿万富豪黄向墨。
 
-字幕文件制作：大好河山；
+ICAC还认定，前新州上议院议员王国忠（Ernest Wong）在一项规避选举资金法律的计划中，滥用其作为州立法会成员的特权，从事了严重的腐败行为。
 
-视频制作及上传：Cindy；
+ICAC的“Aero行动”对一项涉嫌非法的计划展开调查。该计划为新州工党和乡村工党争取到的现金捐款，是在2015年新州选举前举行的筹款晚宴中收到的。该调查还审查了参与所涉计划的个人是否合谋作假证，试图阻止新州选举委员会和ICAC曝光该计划。
 
-G-News发布：小满；
+最后，ICAC认定这笔捐款来自黄向墨在悉尼星亿赌场（The Star）的“junket中介账户”。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+根据新州法律，作为房地产开发商，黄向墨被禁止向新州政党提供任何资金。黄向墨拒绝配合ICAC对涉嫌非法捐款进行的调查，但否认作出任何不适当的政治捐款。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+ICAC正在就是否应该启动任何起诉征求公诉检控局（Director of Public Prosecutions）的意见，称应该考虑起诉黄向墨、王国忠以及其他十几个人和实体。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+参考链接：[突发！ICAC反腐调查认定对新州工党的10万现金捐款来自黄向墨的悉尼赌场账户](https://cn.theaustralian.com.au/2022/02/28/64057/)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+*发布：*Frank2021
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UC_h8BevH-vN6xUKQBeLKnMg) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UC9UOGnhaE8rHrz8Ds_-zZHQ)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

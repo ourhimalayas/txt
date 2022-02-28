@@ -2,8 +2,8 @@
 ---
 
 
-## 习和普在冬奥委会上的密谋
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2078712/)
+## 如何专业推广Hpay
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2078773/)
 
 台灣寶島農場
 

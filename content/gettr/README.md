@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/28/2022 5:51 AM (UTC)`
+
+2/27/2022 Miles Guo: it is possible that the outcome of the war between Russia and Ukraine will be a reconciliation between the two countries, but if Russia does launches nuclear weapons, the war will have a ridiculous outcome. Whatever the outcome, Russia will have no future at least for a short time<br/><br/>2/27/2022文贵直播: 俄乌之战的结果可能会是两国达成和解，但若俄罗斯真的放了核武器，战争会出现滑稽的结果！无论最终是哪种结果，俄罗斯至少短时间内都已没有未来可言！<br/>
+![img](https://media.gettr.com/group31/getter/2022/02/28/05/c27103a9-f490-c060-c4f0-ca649de6f887/out.jpg)
+
+---
+
 `@miles 2/28/2022 3:27 AM (UTC)`
 
 2/27/2022 Miles Guo:  The CCP’s wars have always costed the lives of countless people with no strategy at all; Ukraine has perfectly used the psychology of war, not only making friends but also winning their support; the US seems to be silent in the war in Ukraine, but they are actually aiming at the instigator CCP<br/><br/>2/27/2022  文贵直播：中共的战争一向打的都是无数人的生命，毫无战略可言；乌克兰完美地运用了战争心理学，不但交了朋友还赢得了朋友的支持；美国在乌克兰战事上看似不动声色，其实已瞄准了背后的中共<br/>
@@ -144,13 +151,6 @@ Announcement of New Federal State of China & Rule of Law Foundation on Emergency
 
 2/26/2022 Miles Guo’s Urgent Livestream: At this time, our GNews, GTV, and Gettr's postings must be accurate; and we will save anyone as long as we can, but our NFSC citizens and our families and friends come first.<br/><br/>2/26/2022 文贵紧急直播：我们的这个时候的GNews的和GTV还有盖特的发文一定要准确；只要能救的，我们都会救，但新中国联邦和家人朋友是第一的。<br/>
 ![img](https://media.gettr.com/group7/getter/2022/02/27/07/2c32ee71-76b7-1168-2e46-b55953c1406e/out.jpg)
-
----
-
-`@miles 2/27/2022 7:05 AM (UTC)`
-
-February 26th, 2022, Mr. Miles Guo’s Urgent Livestream: our rescue operation is based on the financial strength and international relations from G Series, ROL Foundation and ROL Society. Any fellow fighters shall not make any personal decisions to initiate any donations or so-called financial support of any kind at this time. The CCP’s infiltration will be very severe at this time and we must be careful<br/><br/>2/26/2022 文贵紧急直播：我们的救援来自G系列、法治基金、法治社会的经济实力和国际关系。任何战友此时不能做任何捐和所谓各种支持的私自决定。此时共产党的渗透会很严重，我们务必要小心<br/>
-![img](https://media.gettr.com/group21/getter/2022/02/27/07/f83a8949-f53c-3662-d7bb-33e33856a449/out.jpg)
 
 ---
 

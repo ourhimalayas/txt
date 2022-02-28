@@ -2,36 +2,34 @@
 ---
 
 
-## 欧盟委员会主席宣布一系列对俄罗斯的制裁
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2078672/)
+## 乌克兰救援行动体现了新中国联邦的力量
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2078745/)
 
-【撰稿】纽约香草山健身部—Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2022年2月27日，在布鲁塞尔，欧盟委员会主席乌苏拉-冯德莱恩宣布，欧盟已经对俄罗斯飞机实施了全面的飞行禁令。
+**整理/编辑：**翼族
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-27.png)
+备战是避免战争最好的方式，台湾人已经做到了，这么多年从来没有服过（中共）。我们新中国联邦人更是如此！
 
-冯德莱恩说：”我们正在关闭俄罗斯拥有的、俄罗斯注册的或俄罗斯控制的飞机的欧盟空域。所有这些飞机，包括寡头的私人飞机，现在将不能在任何欧盟国家降落、起飞或飞越。”
+俄乌战争，七哥能在瞬间（发起救援行动）？咱们新中国联邦调动这个力量去救援、人道救援，你觉得是我是昨天晚上发梦了？我梦能有行动吗？谁给你租飞机？你有钱吗？有钱，钱哪来的？在美国你有钱你不能（随便）用的，法治基金、法治社会有用了吧。
 
-俄罗斯飞机也被禁止进入英国领空。
+法治基金，法治社会（是）在国际唯一能跟NGO组织签（约）的。我有Karen A公司，（人家）搭都不搭理你，你凭什么？你有什么资格跟我签（约）前线救援去啊？我有千羽什么开发集团，人家一脚把你蹬一边去了，继续开发去吧。卡丽熙念念经：我有钱我有币，一边呆着去吧。你好好先生有金砖来也不要你的，它有规则，你没有全面的布局（不行）。新中国联邦人，（人家）在国际上认可咱是干啥的。
 
-欧盟还将禁止克里姆林宫的媒体机器——国有的 “今日俄罗斯 “和 “斯普特尼克”，以及它们的子公司。它们一直在传播谎言，为普京的战争辩护，并在我们的联盟中播撒分裂，这必须要禁止。
+出资有处，来之有因，有合法平台，还有正当理由，而且是和平正义的，这几个问题如果没有过去几年（的行动），你能一夜之间做成？关键，（即使）你有钱，你有关系吗？凭什么（美军）大力神飞机给你飞过去啊？你以为你有钱，你有钱你给路大脑袋蛇妖闫火鸡龚，你给他们五倍钱看能找到不？
 
-同时，欧盟还将为乌克兰提供武器。欧盟委员会主席乌苏拉-冯德莱恩还表示，”有史以来第一次，欧盟将资助购买和运送武器和其他设备给一个正在遭受攻击的国家”。
+美国所有的军事飞机和军事器皿，租用有几个前提条件，它必须是在联合国的框架组织下租用，而且使用者的身份是最重要的。Karen你再有钱也不能去租飞机，说，我去约男朋友去，那对美军是个耻辱，怎么可能？谁租你飞机那他要下台了。
 
-冯德莱恩补充说，欧盟将针对白俄罗斯总统亚历山大-卢卡申科支持俄罗斯在乌克兰广泛开展的军事行动。将制定新的制裁措施打击卢卡申科政权。
+你不具备这些条件，你的钱不是钱，你的钱是纸。这就是新中国联邦的力量，如果你没有国际化的组织概念，没有国际化的法律概念和国际政治概念，（没有）国际关系概念，没有地域政治和地域宗教的概念，没有经历过战争和战争的概念，你不懂得这些，你一样都不可能。
 
-新闻链接：[https://www.bbc.com/news/world-europe-60539303 https://www.cbsnews.com/news/ukraine-russia-european-union-airspace-rt-sputnik/](https://www.bbc.com/news/world-europe-60539303%20https://www.cbsnews.com/news/ukraine-russia-european-union-airspace-rt-sputnik/)
+就像推流一样，它是一整套的工作程序，缺一不可。今天咱们新中国联邦的大救援，是对世界政治、局势、战争、军事、经济、国际关系、社会管理、社会的精英全面的一个体现！说的容易，做起来太难了。十四亿中国人有几个能做到的？从过去从来没有过，中国人发起的救中国人的大救援，国内一片沸腾。
 
-审核/编辑/发稿:qiutian（邱甜）
+*发布：翼族*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-7.png)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

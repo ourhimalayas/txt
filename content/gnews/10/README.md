@@ -2,41 +2,44 @@
 ---
 
 
-## 紧急直播：新中国联邦：乌克兰救援不分种族、不分宗教，能救就救
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2078848/)
+## 伊朗、土耳其、巴铁、安哥拉、塞浦路斯等政要通通缺席
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2078983/)
 
-整理：Lucy Liu、sadhu
-编辑：小鱼儿
+G-TV视频链接：[https://gtv.org/video/id=621648d11408ee3a03a3c858](https://gtv.org/video/id=621648d11408ee3a03a3c858)
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/02/dazhibohouji_common-1.png)图片来源：雅典娜农场设计组（614）
+所以说战友们看到冬奥会，为啥沙特王子都在名单中没有了？还有十几个元首都没来呀。他专门写上外交部正式发言，欢迎什么什么皇族，皇族，国家领导人，人民什么议长，你发现、你们好好看看，所以咱们战友现在做G-TV，文艺你发现没有，咱真不动脑子，张嘴就来，就没人用心。
 
+就我刚才给你们留十条我还没说，那里面有很重要的几个人我都没给你们说，没来。所签的商务合同没签，所谓“习普”单独会谈没有，所谓的两千亿突然性的友好投资没发生，所谓人民币成为俄罗斯法币没有，所谓跟沙特建立的三七、石化、炼油系统、还有葫芦岛的汽油厂、炼油厂没有，福建、厦门、昆仑、还有伊朗整个系统没有。伊朗的人呐？伊朗的人呐？巴基斯坦的巴铁关系呢？伊朗的哈梅内伊呢？
 
-七哥：宁南，要全力以赴地，在媒体上、在前线上配合好大卫。然后，你把所有的智慧、聪明都用在整个前线上、整个总指挥这块，各方面调遣。希望能发挥到独特的优势，有很好的结果出来。非常感谢宁南。
+包括最夸张的所谓自己最亲密的非洲的安哥拉桑帕斯总统呢？占了你25%的油在哪儿呢？桑巴斯的女儿呢？安妮桑巴斯呢？安妮呢？都有十几架空客私人飞机了，哪儿去了？安妮都不来了，哎呦我的妈呀，是吧？土耳其呢？土耳其不是派人来吗？哪儿呢？还有杨洁篪亲自跑去的塞浦路斯，是吧？塞浦路斯呢？就这样的小国家都没去。真的是，真的一点没夸张。
 
-现在我们的Longwood，你和阿炳DC农场一定要记住，除了在美国做好整个联盟总指挥的调遣之外。你就加入，到小福利和唐平的媒体组，全力以赴做好。请Longwood说几句，谢谢。
+中国有句笑话，真的是个蛋的都没参加这个蛋的会，是吧？不是球蛋的全来参加了蛋的会，这就是今天冬奥会开幕式，而且每个人都知道这个不是蛋的来了开了蛋的会，关键这个蛋的会一结束，蛋的会结不了束的蛋的会，你还叫闭幕蛋会，咋闭幕哇？一个人都没了，现在我想知道，怎么结束这个蛋的会？是吧？
 
-Longwood：我帮阿炳带一条信息——阿炳说，DC农场的视频组，会全力支持反战视频；另外，DC的所有主播，会全部待命，随时用于战情播报。然后，DC对于在DC落地的战友，会全力以赴的接应，谢谢。
+编辑整理：Jacques；
 
-七哥：好，谢谢Longwood兄弟。这回要把你的智慧，整天攒着的劲儿怎么能为新中国联邦、为中国人做事情。在这个事上一定要记住，特别像你们年轻的战友们，我们（新中国联邦）救援是不分种族、不分宗教。有优先前后，但是绝对是不分的，能救就救。第二，不管是小粉红还是小深红，能救的中国同胞一定要救，一定记住啊。特别像你们罗伊，你是整个媒体播报组，直播这块儿你归小福利、归唐平。你们跟正义小Shara、Longwood，好好地策划、好好地直播、好好地做。你有什么？说几句。请，谢谢。
+字幕文件制作：大好河山；
 
-罗伊：我觉得现在最重要，这次总动员就是我们要坚决的、绝对的服从指挥。然后这个时候，是最考验我们能否做到无我，能否做到背靠背的时候。然后，我们会全力的配合，无论在线上、线下。谢谢！
+视频制作及上传：Cindy；
 
-七哥： 好，谢谢。我再说，我看到有战友留言，国内的战友能做什么？我再重申一遍，如果你是国内战友的话，如果你是有正常智慧的话，你一定要听七哥的话，你什么都不要做。在国内的战友，你能保护好你自己，再保护好你老婆孩子、你老公你家人、你兄弟姐妹、父母，就是对新中国联邦最大的贡献。因为，国内未来会是重、重灾区，不会是一般的灾难，一定要记住我说的话。国内的战友，你要做好准备。
+G-News发布：小满；
 
-（新中国联邦）下一步，就是救你们（国内战友）。但是，我们现在能力有限，我们的国际救援组织的飞机，飞不到中共国；能飞到乌克兰，就飞不到中共国，这就是共产党的邪恶。从昨天到今天，中国的无数个专列、所有的货运机、中国的几个大机场，战略物资都在往乌克兰俄罗斯调。这是中国人的血汗，中国人可以饿死，可以有无数个杨改兰。而他们（共产党），却在救援资助这场战争，随即就是台湾。国内的战友，你唯一能做的，就是保护好你的家人、你自己和救更多的人。这就是，七哥对国内战友要说的。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-七哥：现在文科，你身在欧洲，你归大卫直接调遣领导。你和你们文戈七雄，做好一切，特别是你办了很多很多事了。接下来就是，联络小组确定乌克兰有多少人，报名需要救助？然后，（被救的人）分散到欧洲的免签国的这个方面，你跟大卫和老班长全面协调。特别是，你听从前线大卫的调遣，但主要你应该是被老班长调遣。听老班长的，你的直接领导是老班长。老班长给你安排好，叫你去哪儿就去哪儿，好不好！然后听从联盟的安排。谢谢！
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-资料来源：[2022年2月26日 紧急直播](https://gettr.com/streaming/px2p2d8aec)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-发布：tianzhihuan
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UC_h8BevH-vN6xUKQBeLKnMg) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UC9UOGnhaE8rHrz8Ds_-zZHQ)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
