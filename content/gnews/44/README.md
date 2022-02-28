@@ -2,10 +2,10 @@
 ---
 
 
-## 比尔·格茨：若普京不败于乌克兰，习近平将试图夺取台湾
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079970/)
+## 中共国防部为攻打台湾造势
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079779/)
 
-02/25/2022 比尔·格茨：如果普京不能在乌克兰被击败，习近平将试图夺取台湾
+02/24/2022 中共国防部发言人开始为攻打台湾造势，以打击台独分裂势力为由为未来的对台军事行动铺路。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

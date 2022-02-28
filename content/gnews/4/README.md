@@ -2,18 +2,16 @@
 ---
 
 
-## 中日财经爆┃滴滴被逼表态：不会关闭俄罗斯业务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2083176/)
+## 中共做贼心虚 B站急删俄乌局势言论
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2083198/)
 
 撰稿：东京樱花团︱喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0-1-7.png)[*图片来源*](https://img.i-scmp.com/cdn-cgi/image/fit=contain,width=1098,format=auto/sites/default/files/styles/1200x800/public/d8/images/canvas/2022/02/27/19d3be60-27ec-4e82-914b-497f377efc71_0f06648b.jpg?itok=9ORCllEl&amp;v=1645963262)
-2月26日，滴滴官微发文表示，不会关闭俄罗斯当地的业务，未来将在俄罗斯继续运营并持续服务好司机和乘客。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0-2-3.png)[*图片来源*](https://d5ttlem47o98b.cloudfront.net/s3fs-public/styles/banner/public/news_cover/1641372646_5V.JPG?itok=KwyD8jQz)
+2月27日消息，哔哩哔哩（俗称“B站”）社区发布公告称，已经就“俄乌之间的国际局势”处理有关不良信息 1642 条，并视情节严重程度对其中 57 个账号进行了禁言封禁处理。
 
-就在26日当天，美国、欧盟、英国、加拿大等西方国家决定把众多俄罗斯银行排除出Swift国际结算系统。
+众所周知，中共是支持俄罗斯入侵乌克兰的背后黑手，急删俄乌局势言论，实则是做贼心虚。
 
-自俄罗斯入侵乌克兰以来，美欧不断升级对俄罗斯的经济制裁，全球众多企业不断跟进落实有关制裁规则。作为中共权贵民企的滴滴，此时的表态颇有无奈站队之意。
-
-信息来源：[**滴滴出行：不会关闭俄罗斯业务**](https://www.sohu.com/a/525665134_222256)
+信息来源：[**B站处置部分涉国际局势言论，倡议理性发布涉国际热点事件信息**](https://www.ithome.com/0/605/032.htm)
 
 *校对：东京樱花团/東洋武士*
 *发布：东京樱花团/tdownc2p*

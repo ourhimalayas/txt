@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国防部为攻打台湾造势
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079779/)
+## 中共外交部称美国没资格告诉中方如何尊重国家主权
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079777/)
 
-02/24/2022 中共国防部发言人开始为攻打台湾造势，以打击台独分裂势力为由为未来的对台军事行动铺路。
+02/24/2022 中共外交部战狼式发言人华春莹：关于如何尊重国家主权和领土完整，美方恐怕没有资格来告诉中方怎么做。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

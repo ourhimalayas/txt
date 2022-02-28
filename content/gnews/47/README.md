@@ -2,24 +2,23 @@
 ---
 
 
-## 美欧同意将部分俄罗斯银行从SWIFT系统中剔除
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2079146/)
+## 世界各国政要名人对俄罗斯表示谴责
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2079131/)
 
-作者：香草山农场-我不在這裡/日本东京方舟农场—Miyali7768(文玉）
+作者：银河系农场—骄子/新西兰伊甸农场-玫瑰
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月26日，在乌克兰及国际多种力量的努力争取之后，美国联合加拿大、欧盟和英国等达成协意，对俄罗斯金融部门实施严厉的制裁，包括阻止其进入全球SWIFT金融体系，并首次对俄罗斯中央银行进行限制，以惩罚其对乌克兰的入侵。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture00-2.jpg)
-2 月 26 日，欧洲已开始为俄罗斯与 SWIFT 支付系统断开连接进行技术准备。SWIFT 的中断被称为“经济的核武器”。
+近日，针对乌克兰危机，世界各国政要相继表示了对俄罗斯的谴责。
 
-这些制裁将使俄罗斯的银行不再能为贸易和金融活动进行支付，有效地阻止该国出口石油、煤炭和天然气等商品。也将使俄罗斯无法进口关键技术，如半导体和本国工业的机械。
-
-在这些措施中，对俄罗斯央行的限制针对的是克里姆林宫掌握的6000多亿美元的储备，以有效限制俄罗斯在西方制裁收紧的情况下支持卢布的能力。
+英国的威廉王子和凯特王妃表示会和世界各地支持乌克兰的人民坚定地站在一起，这是英国王室罕见的政治声明。英国军情六处情报局长表示，俄罗斯在对待乌克兰的战争上必将失败。美国参议员卢比奥提醒美国人自由是多么宝贵，同时对奋起反击的乌克兰人表示赞扬。拜登总统则强调了与欧洲和其他国家合作实施制裁的重要性。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture00-4.jpg)
+除了政要，还有一些名人也发表了看法，好莱坞明星肖恩潘表示，如果美国不加入反抗俄罗斯的队伍，就会失去美国的灵魂。传奇导演大卫·林奇表示，普京发动对乌克兰的战争，造成死亡和毁灭，都一定会被加倍地偿还回来，这是自然法则。
 
 参考链接：
-1. [美欧同意将部分俄罗斯银行从SWIFT系统中剔除](https://www.cbsnews.com/news/swift-banking-system-russian-banks-removed-by-us-uk-eu/)
-2. [美欧同意将部分俄罗斯银行从SWIFT系统中剔除](https://www.usatoday.com/story/money/2022/02/24/swift-russia-banking-system-sanctions/6930931001/)
-3. [美欧同意将部分俄罗斯银行从SWIFT系统中剔除](https://asia.nikkei.com/Politics/Ukraine-conflict/Removal-of-Russian-banks-from-SWIFT-system-5-things-to-know)
-4. [美欧同意将部分俄罗斯银行从SWIFT系统中剔除](https://www.ukrinform.net/rubric-ato/3414072-zelensky-ukrainian-diplomats-worked-247-for-eu-countries-to-agree-on-decision-to-cut-russia-off-from-swift.html)
+1. [世界各国政要名人对俄罗斯表示谴责](https://www.westernjournal.com/prince-william-kate-make-rare-political-declaration-amid-russian-siege-ukraine/)
+2. [世界各国政要名人对俄罗斯表示谴责](https://www.dailymail.co.uk/news/article-10554269/Ukraine-DESTROYS-Russian-convoy-Zelenskys-troops-derail-Kremlin-push-Kyiv.html)
+3. [世界各国政要名人对俄罗斯表示谴责](https://www.breitbart.com/entertainment/2022/02/26/sean-penn-says-our-soul-as-america-is-lost-if-we-dont-join-ukraines-fight-against-russia/)
+4. [世界各国政要名人对俄罗斯表示谴责](https://www.breitbart.com/entertainment/2022/02/26/director-david-lynch-blasts-putin-all-this-death-and-destruction-will-come-back-to-visit-you/)
+5. [世界各国政要名人对俄罗斯表示谴责](https://www.breitbart.com/politics/2022/02/26/sen-marco-rubio-ukraine-invasion-should-remind-us-how-precious-freedom-is/)
 
 ![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
