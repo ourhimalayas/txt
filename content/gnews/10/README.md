@@ -2,22 +2,30 @@
 ---
 
 
-## 有声｜台湾灯会的双主场以蓝黄灯光秀声援乌克兰
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2079947/)
+## 有声｜乌克兰和俄罗斯将在白俄罗斯边境举行 &#8220;无先决条件 &#8220;的会谈
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2080001/)
 
 By:**秘翻新闻**
 
 **2022-02-28**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-45.png)图片来源 （袁世钢／大纪元）
-[据大纪元2月27日报道，2022台湾灯会接近尾声，恰逢二二八长周末，吸引大批游客赴高雄光荣码头欣赏无人机表演。正值俄乌战争爆发，高雄市政府26日在卫武营、爱河湾双主场以象征乌克兰国旗的蓝色、黄色灯光作为灯光秀的一个环节。](https://www.epochtimes.com/gb/22/2/27/n13608970.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-42.png)图片来源 Reuters
+[据英国的《地铁》，简称Metro 2月27日报道，乌克兰总统办公室证实，他们的外交官将与俄罗斯代表团会面。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
 
-[报道称，市长陈其迈27日强调，期盼借此声援乌克兰，表达台湾追求和平的意志与决心。](https://www.epochtimes.com/gb/22/2/27/n13608970.htm)
+[据报道，俄罗斯早些时候表示，在袭击乌克兰后，它已经 “准备好 “进行讨论，并已向白俄罗斯派出一个代表团。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
 
-[陈其迈表示，市政府26日中午就与灯会工程师商讨，以象征乌克兰的国旗的蓝色、黄色，来声援乌克兰人民在抵抗侵略时的勇气。无论是台北101或高雄的台湾灯会，都展现了台湾人民反侵略、追求和平的决心，也表达支持乌克兰人民的意志。他还表示：“我相信，和平是人类普世的价值”。](https://www.epochtimes.com/gb/22/2/27/n13608970.htm)
+[据说会谈是在没有先决条件的情况下，在白俄罗斯的边界上进行的。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
 
-[陈其迈也在脸书中、以中英双语发文表示，对于俄罗斯片面展开军事行动，以武力入侵乌克兰破坏和平，市政府予以严正谴责。台湾作为国际社会民主阵营的一员，坚定捍卫民主自由与人权的核心价值不变，因此，高雄以蓝黄灯光秀声援乌克兰，象征与乌克兰人民站在一起，祈愿和平。](https://www.epochtimes.com/gb/22/2/27/n13608970.htm)
+[乌克兰总统沃洛基米尔·泽伦斯基曾在一个视频信息中告诉他的国家，他准备开始会谈，但不是在白俄罗斯，那里是入侵的集结地。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
 
-秘翻新闻 二丫 编辑报道
+[泽伦斯基把华沙、布拉迪斯拉发、伊斯坦布尔、布达佩斯或巴库列为可能的替代地点，并明确表示其他地点也有可能。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
+
+[尽管泽伦斯基提出了要求，俄罗斯还是已经派官员前往白俄罗斯的戈梅利市。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
+
+[据报道，周日泽伦斯基的办公室在Telegram上说，双方将在白俄罗斯边境的一个未指定的地点会面，但它没有给出会面的确切时间。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
+
+[另外，此前不久，普京下令俄罗斯核力量进入高度戒备状态，以回应他所谓的北约主要大国的 “侵略性声明”。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
+
+秘翻新闻 Grace编译报道
 
 发布 : 恩典
 

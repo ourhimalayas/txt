@@ -2,10 +2,10 @@
 ---
 
 
-## 乌克兰总统：愿来这里保家卫国者，我们会给你武器
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079907/)
+## 比尔·格茨：若普京不败于乌克兰，习近平将试图夺取台湾
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079970/)
 
-02/26/2022 乌克兰总统泽连斯基：所有想来这里保卫我们国家的人，请过来，我们会给你武器
+02/25/2022 比尔·格茨：如果普京不能在乌克兰被击败，习近平将试图夺取台湾
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

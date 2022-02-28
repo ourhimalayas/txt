@@ -2,48 +2,28 @@
 ---
 
 
-## 制裁升级，西方多国禁止俄罗斯航空进入空域
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2079853/)
+## 新加坡将对俄罗斯实施包括银行交易等制裁
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2079859/)
 
-#### **【雅典娜快讯】紧贴时代脉搏**
+#### 撰稿：JIHO
 
-整理/编辑：文泓
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Singapore_Foreign_Minister_Vivian_Balakrishnan_speaks_at_the_East_Asia_Summit_-99654563_cropped.jpg)图片来源：wikipedia
+2月28日，根据新加坡路透社消息，新加坡外交部长周一表示，新加坡将对俄罗斯实施“适当的制裁和限制”，包括银行和金融措施，以及对可能被用作对付乌克兰人民的武器等物品的出口管制。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/14-12.png)图片来源：Republic wordld & 雅典娜设计组
+这个小城邦是亚洲金融中心和重要的国际航运枢纽，遵守联合国安理会的决议，但很少对其他国家实施自己的制裁。
 
+“新加坡打算与许多其他志同道合的国家协同行动，对俄罗斯实施适当的制裁和限制，”外交部长维文 (Vivian Balakrishnan)告诉议会，称俄罗斯的入侵是不可接受的，严重违反了国际准则。
 
-2月28日俄罗斯的旗舰航空公司将停飞其大部分机队，因为世界多国禁止其飞机进入空域，作为对俄罗斯入侵乌克兰的惩罚。
+他说，制裁是由于局势“前所未有的严重性”以及俄罗斯上周否决了安理会决议草案。
 
-俄罗斯国际航空表示，当地时间周日晚间，在欧盟对所有俄罗斯飞机关闭其领空后，该公司将暂停飞往欧洲的航班。
+他说：“特别是，我们将对可以在乌克兰直接用作武器以造成伤害或征服乌克兰人的物品实施出口管制。”他补充说：“我们还将阻止某些与俄罗斯有关的俄罗斯银行和金融交易。”
 
-“俄罗斯国际航空将从2022年2月28日起暂停欧洲航线网络的航班，直至另行通知，”该公司在其网站上表示。
+维文说，具体措施正在制定中，很快就会宣布。
 
-目前，欧盟的领空禁令禁止所有俄罗斯飞机（包括私人飞机）进入或飞越欧盟领空，欧盟27个国家中的许多国家已分别宣布对俄罗斯航班关闭领空。
+新加坡的举措是其区域邻国中的第一个举措，并且独立于它所属的东南亚国家联盟（ASEAN）的 10 个成员。
 
-作为回应，俄罗斯已禁止来自英国、拉脱维亚、立陶宛、爱沙尼亚、斯洛文尼亚、保加利亚、波兰和捷克共和国等多个国家的航班。
-
-由于商业航空公司继续取消在俄罗斯的航班，美国已要求其在俄罗斯的公民立即离开。
-
-美国驻莫斯科大使馆在一份声明中说，越来越多的航空公司取消进出俄罗斯的航班，许多国家对俄罗斯航空公司关闭了领空，呼吁其公民考虑通过仍然可用的商业航班立即离开俄罗斯。在今年一月份美国大使馆对俄罗斯实施了四级“请勿旅行”警告。
-
-加拿大也对所有俄罗斯航空公司关闭了领空，以抗议俄罗斯的入侵行为。
-
-立即生效的关闭令加拿大与绝大多数欧洲国家保持一致。同时，俄罗斯利益集团拥有、包机或使用的任何航班——包括私人航班——现在都被禁止在加拿大上空飞行。
-
-在周四，英国禁止俄罗斯国际航空公司的航班，这是第一个禁止俄罗斯航空进入的国家。
-
-周五，美国达美航空也暂停了与俄罗斯国际航空的代码共享安排。
-
-参考链接：[Russian airline Aeroflot banned from landing around the world as war with Ukraine continues | news.com.au — Australia’s leading news site](https://www.news.com.au/travel/travel-advice/flights/russian-airline-aeroflot-banned-from-landing-around-the-world-as-war-with-ukraine-continues/news-story/2497e262442820370bc25485956ce6ba)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Singapore to impose sanctions on Russia, including bank transactions](https://www.reuters.com/world/asia-pacific/singapore-impose-appropriate-sanctions-restrictions-russia-2022-02-28/?taid=621c8813af8d2b00015713de&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
  
 

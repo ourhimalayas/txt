@@ -2,35 +2,25 @@
 ---
 
 
-## 有声｜乌克兰和俄罗斯将在白俄罗斯边境举行 &#8220;无先决条件 &#8220;的会谈
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2080001/)
+## 中共反驳SWIFT制裁俄罗斯等同“核武级”金融制裁
+` 儒为` [轉載自GNews](https://gnews.org/zh-hans/2080028/)
 
-By:**秘翻新闻**
+作者：意大利罗马达芬奇农场-儒为
+![](https://assets.gnews.org/wp-content/uploads/2022/02/SWIFT.jpeg)封面来源：网络图片
+新华社北京2022年2月28日报道，美国白宫26日发表声明说，美国与欧盟委员会、德国、法国、英国、意大利、加拿大领导人决定将部分俄罗斯银行排除在环球银行间金融通信协会（SWIFT）系统之外，并对俄罗斯央行实施限制措施，以防其配置国际储备削弱制裁措施造成的影响。
 
-**2022-02-28**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-42.png)图片来源 Reuters
-[据英国的《地铁》，简称Metro 2月27日报道，乌克兰总统办公室证实，他们的外交官将与俄罗斯代表团会面。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
+中共称，鉴于西方肆意操控，SWIFT的公信力受到质疑，国际上“去SWIFT化”的尝试从来没有停止过。鉴于SWIFT系统在世界贸易中扮演的不可撼动的霸主地位，我们不能完全绕开，那就局部绕开。针对国际观察人士惊呼SWIFT制裁举动为“核武级”金融制裁，中共反驳称，SWIFT制裁等同“核武级”金融制裁？也未必！
 
-[据报道，俄罗斯早些时候表示，在袭击乌克兰后，它已经 “准备好 “进行讨论，并已向白俄罗斯派出一个代表团。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
+中共称，俄罗斯央行2014年开发了本土版金融信息传输系统SPFS。据统计，目前有23家外资银行与SPFS系统连接。截至2021年5月，20%的俄罗斯境内转账通过SPFS系统完成。鉴于目前部分俄罗斯银行被SWIFT剔除，今后或许有更多外资银行加入该支付系统。此外，伊朗也在积极推进“去SWIFT化”，开发了“伊朗版SWIFT系统”SEPAM。
 
-[据说会谈是在没有先决条件的情况下，在白俄罗斯的边界上进行的。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
+七哥在直播中说，我亲身经历看过多次，这些给干掉SWIFT系统后的惨剧，但那都不是最惨的。中共，你是请来所有人来开PARTY的，我把火给你熄了，今天的PARTY就成为你的噩梦，一切都将结束。中共想玩啥你知道吗？我有跟俄罗斯的黄金储备，我用人民币系统，我是世界唯一个所谓物流和生活物资、战备物资能自给自足的国家。
 
-[乌克兰总统沃洛基米尔·泽伦斯基曾在一个视频信息中告诉他的国家，他准备开始会谈，但不是在白俄罗斯，那里是入侵的集结地。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
+俄罗斯强大的是军工产品，强大的是石油天然气的出口，生活物资是完全匮乏的，企图依靠自己邪恶轴心国内这些小弟小妹完成内循环，然来再来挑战威胁欧美民主阵营那都是自己在骗自己而已。中共金融系统68%是引用外来型的，粮食40%进口，科技几乎是零，只要SWIFT系统也把中共干掉，共产党必死无疑。
 
-[泽伦斯基把华沙、布拉迪斯拉发、伊斯坦布尔、布达佩斯或巴库列为可能的替代地点，并明确表示其他地点也有可能。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
+新闻来源：🔗[SWIFT制裁等同“核武级”金融制裁？也未必！](http://www.news.cn/world/2022-02/28/c_1211590525.htm)
 
-[尽管泽伦斯基提出了要求，俄罗斯还是已经派官员前往白俄罗斯的戈梅利市。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
+*编辑/校对/发稿：意大利罗马达芬奇农场-儒为*
 
-[据报道，周日泽伦斯基的办公室在Telegram上说，双方将在白俄罗斯边境的一个未指定的地点会面，但它没有给出会面的确切时间。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
-
-[另外，此前不久，普京下令俄罗斯核力量进入高度戒备状态，以回应他所谓的北约主要大国的 “侵略性声明”。](https://metro.co.uk/2022/02/27/ukraine-and-russia-to-meet-on-belarus-border-for-talks-without-preconditions-16182591/)
-
-秘翻新闻 Grace编译报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

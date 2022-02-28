@@ -2,10 +2,10 @@
 ---
 
 
-## 加拿大新斯科舍省将终止所有中共病毒限制措施
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079775/)
+## 中共国防部为攻打台湾造势
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079779/)
 
-02/23/2022 加拿大新斯科舍省省长蒂姆·休斯顿宣布只要“一切保持正常”，该省将于3月21日终止所有中共病毒限制措施。
+02/24/2022 中共国防部发言人开始为攻打台湾造势，以打击台独分裂势力为由为未来的对台军事行动铺路。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

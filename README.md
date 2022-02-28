@@ -15,80 +15,80 @@
 
 ---
 
-### [有声｜欧盟委员会主席表示 欧盟“希望”看到乌克兰加入](/content/gnews/1/README.md)
+### [中日财经爆|台湾半导体产业配合国际制裁俄罗斯](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [欧盟委员会主席表态 支持乌克兰加入欧盟](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中日财经爆┃中共统计严重造假！国人年收入8万元？](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声｜欧盟委员会主席表示 欧盟“希望”看到乌克兰加入](/content/gnews/4/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [人权活动人士要求联合国取消彭丽媛妇女特使称号](/content/gnews/2/README.md)
+### [人权活动人士要求联合国取消彭丽媛妇女特使称号](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新西兰政客怒怼主媒，示威群众无惧声波武器](/content/gnews/3/README.md)
+### [新西兰政客怒怼主媒，示威群众无惧声波武器](/content/gnews/6/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共反驳SWIFT制裁俄罗斯等同“核武级”金融制裁](/content/gnews/4/README.md)
+### [中共反驳SWIFT制裁俄罗斯等同“核武级”金融制裁](/content/gnews/7/README.md)
  ` 儒为`
 
-### [大直播后记：SWIFT是中共的死穴](/content/gnews/5/README.md)
+### [大直播后记：SWIFT是中共的死穴](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [意大利政府向基辅提供1.1亿欧元的援助](/content/gnews/6/README.md)
+### [意大利政府向基辅提供1.1亿欧元的援助](/content/gnews/9/README.md)
  ` xiaobaige`
 
-### [有声｜乌克兰和俄罗斯将在白俄罗斯边境举行 &#8220;无先决条件 &#8220;的会谈](/content/gnews/7/README.md)
+### [有声｜乌克兰和俄罗斯将在白俄罗斯边境举行 &#8220;无先决条件 &#8220;的会谈](/content/gnews/10/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美驻联合国大使：俄罗斯是侵略者，这事没有中间地带](/content/gnews/8/README.md)
+### [美驻联合国大使：俄罗斯是侵略者，这事没有中间地带](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [比尔·格茨：若普京不败于乌克兰，习近平将试图夺取台湾](/content/gnews/9/README.md)
+### [比尔·格茨：若普京不败于乌克兰，习近平将试图夺取台湾](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声｜台湾灯会的双主场以蓝黄灯光秀声援乌克兰](/content/gnews/10/README.md)
+### [有声｜台湾灯会的双主场以蓝黄灯光秀声援乌克兰](/content/gnews/13/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [坑爹不倦的中共](/content/gnews/11/README.md)
+### [坑爹不倦的中共](/content/gnews/14/README.md)
  ` 银河勇气之星`
 
-### [乌克兰总统：愿来这里保家卫国者，我们会给你武器](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新加坡将对俄罗斯实施包括银行交易等制裁](/content/gnews/13/README.md)
+### [新加坡将对俄罗斯实施包括银行交易等制裁](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [再谈人工降雨的危害](/content/gnews/14/README.md)
+### [再谈人工降雨的危害](/content/gnews/16/README.md)
  ` 首尔天池农场`
 
-### [制裁升级，西方多国禁止俄罗斯航空进入空域](/content/gnews/15/README.md)
+### [制裁升级，西方多国禁止俄罗斯航空进入空域](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [[G时新闻】2022年2月27日文贵先生直播大雨围城速记](/content/gnews/16/README.md)
+### [[G时新闻】2022年2月27日文贵先生直播大雨围城速记](/content/gnews/18/README.md)
  ` G-时新闻`
 
-### [成功者的特质](/content/gnews/17/README.md)
+### [成功者的特质](/content/gnews/19/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [日本加入国际支付网的排俄行列 冻结普京资产，援助乌克兰1亿美元](/content/gnews/18/README.md)
+### [日本加入国际支付网的排俄行列 冻结普京资产，援助乌克兰1亿美元](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国防部为攻打台湾造势](/content/gnews/19/README.md)
+### [中共国防部为攻打台湾造势](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共外交部称美国没资格告诉中方如何尊重国家主权](/content/gnews/20/README.md)
+### [中共外交部称美国没资格告诉中方如何尊重国家主权](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大新斯科舍省将终止所有中共病毒限制措施](/content/gnews/21/README.md)
+### [加拿大新斯科舍省将终止所有中共病毒限制措施](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌克兰泽连斯总统基要求联合国剥夺俄罗斯在安理会的投票权](/content/gnews/22/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [墙内一开智网民谈为何支持乌克兰](/content/gnews/23/README.md)
+### [墙内一开智网民谈为何支持乌克兰](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [无论在军事上发生什么状况普京都不会赢](/content/gnews/24/README.md)
+### [无论在军事上发生什么状况普京都不会赢](/content/gnews/25/README.md)
  ` 美国政要直译推`
-
-### [乌克兰官方：俄罗斯的潜伏特工标记目标建筑物以提高空袭准确性](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [私营银行提议帮助墨西哥创建数字货币](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
