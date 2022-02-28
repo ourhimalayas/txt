@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/28/2022 2:39 PM (UTC)`
+
+2月28号：尊敬的战友们好！俄乌战争正在走向不确定的危险之中。共产党正在蠢蠢欲动。侵占台湾……新中国联邦人的乌克兰人道救援大行动震撼了世界。此时此刻，我们的战友们更要坚持住我们唯真不破．维护建立新中国人的形象的原则，一切都已经开始！
+![img](https://media.gettr.com/group46/getter/2022/02/28/14/bf2a89ee-2884-f72b-7a9d-3e827bc58f15/out.jpg)
+
+---
+
 `@miles 2/28/2022 6:00 AM (UTC)`
 
 2/27/2022 Miles Guo: On the issue of war in the Taiwan Strait, if the U.S. wants to maintain the current international order, it must take bold actions. If the U.S. intends to re-establish the world order, then all of humanity will have to pay a huge price. The U.S. must make a choice!<br/><br/>2/27/2022 文贵直播: 在台海战争问题上，若美国要维持国际秩序就必须大胆动手；若美国意在重建世界秩序，则全世界人类要付出巨大代价！重整亦或维持国际秩序，这是美国必须要做出的选择。<br/>
@@ -144,13 +151,6 @@ Announcement of New Federal State of China & Rule of Law Foundation on Emergency
 
 2/25/2022 Miles Guo: I will expose the collusion between the swamp and the CCP and the darkness of the global justice system by using the UBS case, and we will eradicate the CCP's greatest threat to Western pension funds and financial sectors. How can we return the $100 trillion from UBS to the Chinese people?<br/><br/>2/25/2022 文贵直播：文贵将用UBS案揭露沼泽地和中共的勾兑以及全球司法系统的黑幕，我们将铲除中共对西方养老金和金融的最大威胁；我们如何把UBS的100万亿美元还给中国人呢？<br/>
 ![img](https://media.gettr.com/group37/getter/2022/02/27/08/08c667b4-d6be-892a-58aa-c9530f349f57/out.jpg)
-
----
-
-`@miles 2/27/2022 8:32 AM (UTC)`
-
-2/26/2022 Miles Guo’s Urgent Livestream: Everyone participating in the Ukrainian rescue operation of the NFSC must be professional and responsive, and lay a good foundation for our NFSC to carry out international cooperations.<br/><br/>2/26/2022 文贵紧急直播：参与新中国联邦的乌克兰救援行动的所有人都要专业化、反应迅速，为我们新中国联邦在国际合作上打下良好的基础
-![img](https://media.gettr.com/group33/getter/2022/02/27/08/6ef9307a-0477-c529-9390-01a67ab99958/out.jpg)
 
 ---
 
