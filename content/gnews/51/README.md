@@ -2,18 +2,27 @@
 ---
 
 
-## 日本正式决定将部分俄罗斯银行从SWIFT剔除
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2074748/)
+## 新中国联邦和法治基金关于紧急救援乌克兰的通知
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2074877/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片6-5.jpg)
-27日晚，岸田首相声明，将数家俄罗斯银行从SWIFT剔除。
+[【PDF 下载：新中国联邦和法治基金关于紧急救援乌克兰的通知】](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦和法治基金关于紧急救援乌克兰的通知-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦和法治基金关于紧急救援乌克兰的通知-1.pdf)
 
-27日晚，岸田首相声明，由于俄罗斯侵略乌克兰，日俄关系也已难回到从前。日本将与七国集团与国际社会保持一致，对俄罗斯采取更严厉的制裁；西方国家今天上午发表的声明指出，将俄罗斯孤立于国际金融体系和全球经济之外，包括将某些俄罗斯银行排除在SWIFT之外，日本也将采取同样措施。同时，岸田首相强调，日本一直在与国际社会，包括七国集团保持密切合作，这一立场不会改变。
+为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。
+
+24小时救援联系方式如下：
+
+邮箱：
+[\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection)
+电话和短信：+1 720-657-6776 或 +1 719-224-4232
+
+新中国联邦
+法治基金
+2022年2月26日
+![](https://assets.gnews.org/wp-content/uploads/2022/02/c36b13dfc2ad94a2feb97d6ca8dae462.jpeg)
+[【PDF 下载：新中国联邦和法治基金关于紧急救援乌克兰的通知】](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦和法治基金关于紧急救援乌克兰的通知-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦和法治基金关于紧急救援乌克兰的通知-1.pdf)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

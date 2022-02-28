@@ -2,42 +2,44 @@
 ---
 
 
-## 中共弃侨，新中国联邦的人道救援
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2078996/)
+## 一个忘掉痛苦忘掉灾难不深思的民族必有巨大灾难等着你
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2079029/)
 
-#### 【雅典娜观察】与您一起洞察世界
+G-TV视频链接：[https://gtv.org/video/id=62164aaa1408ee3a03a3c88e](https://gtv.org/video/id=62164aaa1408ee3a03a3c88e)
 
-**作者/编辑：幕紗公子**
+所以今天我说爆料革命，TEX，我说这种TEX、爱米粒、文艺，你们听着好像你们半点感觉都没有，我都看不出你4个有任何感觉。只要你没打疫苗，兄弟姐妹们，你们就是天下最大的赢家，失去什么都不重要。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-34.png)图片来源：FM.ml
+七哥每天最大的痛苦就是听到，你们听不到的，多少人死了，多少家人死了，你都不知道有多震撼，那都是人命啊。还有个七哥说的5月份开始，疫苗大灾难。现在到5月份了吗？没到5月份，你看全世界的疫苗成啥了？
 
+所以战友们，当你不懂得感恩的时候，当你像中国共产党教育中国人，死你也是三天，最多一星期痛苦你忘掉；车祸你也是一星期忘掉；64天安门三星期忘掉，最多3年；香港万人被奸被杀，你不超过三个月你忘掉；郑州水灾你不超过半年你忘掉。一个忘掉痛苦，忘掉灾难不深思的民族，必定有巨大的灾难的等待着你。
 
-当乌克兰人直面战争带来的死亡威胁的同时，另外有一场巨大人道危机也在乌克兰发生。这是有一个主权国家主动舍弃本国人民所带来的的危机。毫无疑问，这就是有中国共产党把持的国家所作出的不耻行为。
+你既不懂得感恩，你又不懂得既是灾难，那你就一定你会活在灾难之中。我们要永远牢记记住郑州水灾，西藏大焚烧、新疆大屠杀，64坦克，和共产党的杀地主运动，和三反五反，文化大革命，大跃进，死掉亿万个中国人直接生命，加上这个当年的非法堕胎，一胎政策4亿多胎儿，我们5亿中国同胞被共产党给杀了。
 
-在别国发生战争或动乱时，当设涉及本国人民的生命受到威胁时，如果该国政府选择弃侨是一件难以想象的事情。这种不负责任的行为不光要受到本国人民的谴责，也将遭到国际社会的唾弃。
+编辑整理：Jacques；
 
-弃侨这种残忍和卑鄙的事情，只能发生在像中共这种反人性的独裁政体国家里。用之即丢，一直是中共的传统。平时用民族主义、国家情怀等专制意识形态工具愚化民众，使他们成为廉价的炮灰。悲哀的是，当死亡真的即将降临在他们身上时，也能使他们产生为国家和民族献身的浪漫主义情怀。这就是中共政权的邪恶。
+字幕文件制作：兵嫂；
 
-在当下，当中国同胞身陷乌克兰战地举步维艰时，当乌克兰人民保守战争蹂躏时，中共在国内控制着偏执的舆论输出，以体现普京侵略乌克兰的历史正当性，用扭曲事实歪曲和淡化乌克兰反击侵略的积极形象。在中共国的社交媒体上充斥着被洗脑的人发表的对乌克兰不幸遭遇的调侃、嘲笑、讽刺的评论，而对普京的侵略行为则是予以推崇和赞赏。叠加习共与普京狼狈为奸的侵略背景，更加剧了在乌克兰的排华风险。
+视频制作及上传：Cindy；
 
-同时，对本国同胞在异国他乡的现实处境居然没有见诸媒体或舆论，更无从获得人们的关心。这是中共一贯的对新闻、舆论进行审查所导致种结果。更令人悲哀的是，洗脑已经颠覆了中国人的基础认知和人权意识，彻底沦为了独裁政权的拥趸。虽然可恨，但他们却是独裁政权的受害者
+G-News发布：小满；
 
-面对在乌克兰华人所处的危险处境，新中国联邦毅然担负起新中国人的形象，践行新中国联邦宣言表达的正道主义。基于对人权的尊重和对人性的关怀，新中国联邦将对在乌克兰的新中共国联邦人、中国人、美国人以及其他国家的人士展开无偿救援和协助撤离行动。在面对很多需要救援的中国人中，特别是那些为中共政权效力的机构、企业人员，包括哪些一贯对新中国联邦敌视的人（小粉红）不计前嫌，都将予以救助。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-然而在新中国联邦发出救援行动消息时。在乌克兰的华人网络圈里，中共立即展开了舆论维稳，极力诋毁新中国联邦展开本次救援的良好意愿。欲继续使中国人身陷在乌克兰战争的泥沼。这种卑鄙、毫无人性行为已经到了令人发指的程度。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-深思这样的弃侨行为，其实国际社会不能以正常的国家或政府这个认知角度去审视中共政权的行为。但凡具有对国家义务的基本认知和有效的民意监督时，这样的事也定然不可能发生。因此，这从另一个侧面揭示了中共政权实则是一个由多个权贵家族聚合形成的虚假合法政体。他们只有在主观需要时才会表现的像一个国家政府一样去发布政令，对民众强调服务意识和义务。当他们觉得不重要时，对于像滞留在乌克兰的中国人，需要他们付出金钱时，这些家族就表现的极其责任分化与自私。这充分印证了中共政权是“家天下”（家族化政体）的性质。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-通过对中共的罪恶、丑陋、虚假的揭露，希望中国人民和国际社会更加认清中共政权的邪恶本质吗，不要对其抱有任何的幻想。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-*发布：tianzhihuan*
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UC_h8BevH-vN6xUKQBeLKnMg) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UC9UOGnhaE8rHrz8Ds_-zZHQ)；
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
