@@ -2,31 +2,47 @@
 ---
 
 
-## 纽约市计划放弃学校的疫苗护照，企业随后
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2078005/)
+## 有声|美司法部准备修改川普任内制定的反间谍项目
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2078091/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1358832581.jpg)图片来源：NBC New York
-根据《NBC NewYork》2月27日报道，在纽约人日常生活中必不可少的两样东西，口罩和疫苗护照，可能很快就会成为过去。这对曾经是COVID-19大流行病震中的纽约市来说是一个重大的逆转。
-
-周日，市长埃里克-亚当斯宣布，他打算取消该市的 “Key2NYC “政策，该政策要求5岁以上的人在大多数公共场所提供疫苗护照。他还说，学校将不再要求学生和工作人员在室内戴口罩。
-
-这些步骤是纽约市走向恢复大流行前生活的一些最大步骤，将于3月7日星期一开始。
-
-市长在一份声明中说：”在本周结束时，我们将评估数字，并在星期五作出最后宣布。如果我们没有看到不可预见的高峰，而且我们的数字继续显示低水平的风险，纽约市将取消对公立学校儿童的室内口罩强制，从下周一，即3月7日开始“。
-
-在结束疫苗强制之前，市长的团队还将审查该市的COVID指标。只要这些指标 “显示出低水平的风险，并且我们在本周没有看到任何意外”，结束疫苗强制这一举措也将继续进行。
-
-市长还说，在疫苗强制结束前给企业主一周的时间，将使他们有 “时间适应”。
-
-我们继续关注结束疫苗强制。
-
-原文链接：
-[https://www.nbcnewyork.com/news/coronavirus/once-the-epicenter-new-york-city-plans-to-drop-vaccine-mandate-and-masks-in-schools/3574239/](https://www.nbcnewyork.com/news/coronavirus/once-the-epicenter-new-york-city-plans-to-drop-vaccine-mandate-and-masks-in-schools/3574239/)
-
-编辑，发稿 Spirit
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/China-Initiative.jpg)
+
+
+知情人士透露，美国司法部将很快宣布修改“中国计划”(China Initiative)。“中国计划”是特朗普时代为应对中共国国家安全威胁而做的一项努力。此前，美国司法部国家安全部门负责人马修·奥尔森已对该计划进行了三个月的评估，将要进行的修改包括不再使用“中国计划”这一名称。
+
+FBI局长克里斯托弗·雷上个月表示，联邦调查局对中国窃取美国信息和技术的行为进行了2000多项公开调查，大约每12小时就有一起与中国情报行动有关的新案件。“没有哪个国家像中国那样，对我们的思想、创新和经济安全构成广泛威胁” 。
+
+长期以来，共和党和民主党政府一直担心北京从美国窃取宝贵机密，包括利用中国的“千人计划”等研究合作项目窃取信息。雷在2020年的一次演讲中表示，中国政府利用这些“人才招聘计划”来“诱使科学家秘密地将我们的知识和创新带回中国” 。
+
+这些担忧引起了特朗普总统的首位司法部长、来自阿拉巴马州的前共和党参议员杰夫·塞申斯的共鸣。塞申斯在2018年宣布该计划的演讲中表示，“今天，我们看到中国的间谍活动不仅针对我们的国防和情报机构等传统目标，还针对研究实验室和大学等目标”。
+
+随着司法部准备重新给该计划定位，并对涉及研究人员的案件采取新的处理方法，现任和前任官员表示，川普政府所做的工作已经产生了塞申斯寻求的威慑效果。各大学已经改善了它们的合规计划，以确保掌握哪些员工接受了外国资金，此外还设立了培训项目，对最佳实践进行整理。资助机构也提高了对寻求资助者的要求。
+
+
+
+文字版原文：[美司法部准备修改川普任内制定的反间谍项目](https://gnews.org/zh-hans/2073341/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

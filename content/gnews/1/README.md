@@ -2,8 +2,8 @@
 ---
 
 
-## 美国如果再拖就是世界大战
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2078220/)
+## 新中国联邦大救援
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2078325/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
