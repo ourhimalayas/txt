@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/28/2022 11:30 PM (UTC)`
+
+2/28/2022 Miles Guo’s GETTR: Fellow fighters of our media team, please always keep in mind that under no circumstances should you make any fake videos or post any fake information. Everything is just beginning! We shall let our fellow Chinese currently in Ukraine know that we are rescuing all Chinese, no matter who they are.<br/><br/>2/28/2022 文贵盖特：请咱们媒体组的战友们千万记住，千万不能做假视频或传递假消息！一切才刚刚开始，我们要让在乌克兰的中国同胞都知道，不论是谁，只要是中国人咱统统救！<br/>
+![img](https://media.gettr.com/group26/getter/2022/02/28/23/91a93827-1429-b492-93ef-56115a6da17f/out.jpg)
+
+---
+
 `@miles 2/28/2022 10:43 PM (UTC)`
 
 2/28/2022 Miles Guo’s GETTR: Encountering the humanitarian disaster in Ukraine, the CCP not only rescues its own people while leaving Lao Baixing behind, but also is trying to defame and block the professional and legitimate rescue organized by the New Federal State of China; the evil nature of the rogue CCP is completely exposed to the world!<br/><br/>2/28/2022 文贵盖特：面对乌克兰人道灾难，中共不光不管老百姓，只救自己人；还企图抹黑、阻止新中国联邦专业、合法地救援，中共的邪恶流氓本性暴露无遗！<br/>
@@ -144,13 +151,6 @@ Announcement of New Federal State of China & Rule of Law Foundation on Emergency
 
 2022年2月27日 文贵大直播：俄乌战争预测台海；普京嚣张中共角色；世界经济金融市场；台湾沦陷如何应对
 ![img](https://media.gettr.com/group33/origin/2022/02/27/12/8d19658e-04a0-1128-bace-7314dbab3afb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 2/27/2022 12:06 PM (UTC)`
-
-为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。<br/><br/>救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。<br/><br/>24小时救援联系方式如下：<br/><br/>邮箱：<br/>ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO<br/>电话和短信：+1 720-657-6776 或 +1 719-224-4232<br/><br/>新中国联邦<br/>法治基金 <br/>2022年2月26日
-![img](https://media.gettr.com/group6/getter/2022/02/27/12/4934204f-f5da-3930-61bd-4b111c3b7482/c36b13dfc2ad94a2feb97d6ca8dae462.jpg)
 
 ---
 

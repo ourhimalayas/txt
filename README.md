@@ -15,71 +15,71 @@
 
 ---
 
-### [新中国联邦以行动向世界诠释正道主义](/content/gnews/1/README.md)
+### [大直播后记：针刺导弹可以改变战争结果以及人类的命运](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [新中国联邦以行动向世界诠释正道主义](/content/gnews/2/README.md)
  ` 扬帆枫叶快讯`
 
-### [新中国联邦紧急启动人道救援行动](/content/gnews/2/README.md)
+### [新中国联邦紧急启动人道救援行动](/content/gnews/3/README.md)
  ` 扬帆枫叶快讯`
 
-### [德国保险公司数据显示疫苗伤害被严重低估](/content/gnews/3/README.md)
+### [德国保险公司数据显示疫苗伤害被严重低估](/content/gnews/4/README.md)
  ` 扬帆枫叶快讯`
 
-### [中共取消俄罗斯所有小麦进口限制](/content/gnews/4/README.md)
+### [新中国联邦在乌克兰的救援行动](/content/gnews/5/README.md)
+ ` 纽约香草山MOS02`
+
+### [中共取消俄罗斯所有小麦进口限制](/content/gnews/6/README.md)
  ` 扬帆枫叶快讯`
 
-### [白宫：普京人为制造并不存在的威胁,为进一步侵略乌克兰寻找理由](/content/gnews/5/README.md)
+### [白宫：普京人为制造并不存在的威胁,为进一步侵略乌克兰寻找理由](/content/gnews/7/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [俄罗斯被踢出SWIFT全球支付系统](/content/gnews/6/README.md)
+### [俄罗斯被踢出SWIFT全球支付系统](/content/gnews/8/README.md)
  ` 扬帆枫叶快讯`
 
-### [乌克兰因中共言行出现排华危机](/content/gnews/7/README.md)
+### [乌克兰因中共言行出现排华危机](/content/gnews/9/README.md)
  ` 扬帆枫叶快讯`
 
-### [有声|香草山翻译部周刊|2022年2月27日第37期](/content/gnews/8/README.md)
+### [有声|香草山翻译部周刊|2022年2月27日第37期](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [美国计划将俄罗斯加密货币纳入制裁清单](/content/gnews/9/README.md)
+### [美国计划将俄罗斯加密货币纳入制裁清单](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
 
-### [2/28/2022 文贵盖特：面对乌克兰人道灾难，中共不光不管老百姓，只救自己人；还企图抹黑、阻止新中国联邦专业、合法地救援](/content/gnews/10/README.md)
+### [2/28/2022 文贵盖特：面对乌克兰人道灾难，中共不光不管老百姓，只救自己人；还企图抹黑、阻止新中国联邦专业、合法地救援](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
 
-### [泽连斯基 VS 普京：乌克兰完胜！至少在公关领域](/content/gnews/11/README.md)
+### [泽连斯基 VS 普京：乌克兰完胜！至少在公关领域](/content/gnews/13/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [有声|《新中国联邦》一人一票投票法(三)](/content/gnews/12/README.md)
+### [有声|《新中国联邦》一人一票投票法(三)](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [“我们将摧毁占领者”：泽连斯基向普京发出警告](/content/gnews/13/README.md)
+### [一旦对台开战，台湾可能采取的反击方案](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [“我们将摧毁占领者”：泽连斯基向普京发出警告](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新中国联邦在乌克兰的救援行动](/content/gnews/14/README.md)
+### [新中国联邦在乌克兰的救援行动](/content/gnews/17/README.md)
  ` 纽约香草山MOS03`
 
-### [大直播后记： 保命、保财、报仇——战争心理学](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [中共做贼心虚 B站急删俄乌局势言论](/content/gnews/16/README.md)
+### [中共做贼心虚 B站急删俄乌局势言论](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共双标救援政策放任中国同胞自灭，还试图阻止新中国联邦实施救援](/content/gnews/17/README.md)
+### [中共双标救援政策放任中国同胞自灭，还试图阻止新中国联邦实施救援](/content/gnews/19/README.md)
  ` YALUN 亚伦`
 
-### [郭文贵精品视频-新中国联邦人紧急无条件救援乌克兰战区同胞](/content/gnews/18/README.md)
+### [郭文贵精品视频-新中国联邦人紧急无条件救援乌克兰战区同胞](/content/gnews/20/README.md)
  ` cindy`
 
-### [中共专家谈基因武器](/content/gnews/19/README.md)
+### [中共专家谈基因武器](/content/gnews/21/README.md)
  ` XINYUAN`
 
-### [部分俄罗斯银行正被从SWIFT银行信息系统中剔除](/content/gnews/20/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [200岁的听诊器进化版：超听诊器](/content/gnews/21/README.md)
+### [200岁的听诊器进化版：超听诊器](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [乌克兰战争是一场混合型高智商战争](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
 
 ### [中共将会采用第三套方案攻台](/content/gnews/23/README.md)
  ` 纽约香草山MOS02`
@@ -144,42 +144,45 @@
 ### [2/28/2022国际财经快讯：西方采取行动切断俄罗斯与SWIFT的联系；冲突加剧，股市将迎来痛苦的一周](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [俄乌两国在周一将会在白俄罗斯举行谈判](/content/gnews/44/README.md)
+### [教育是新中国联邦天大的事（三）](/content/gnews/44/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [俄乌两国在周一将会在白俄罗斯举行谈判](/content/gnews/45/README.md)
  ` 澳喜农场`
 
-### [新西兰财经G乐部2022年2月28日:财经新闻整理](/content/gnews/45/README.md)
+### [新西兰财经G乐部2022年2月28日:财经新闻整理](/content/gnews/46/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [比尔·格茨：若普京不败于乌克兰，习近平将试图夺取台湾](/content/gnews/46/README.md)
+### [比尔·格茨：若普京不败于乌克兰，习近平将试图夺取台湾](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国防部为攻打台湾造势](/content/gnews/47/README.md)
+### [中共国防部为攻打台湾造势](/content/gnews/48/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共外交部称美国没资格告诉中方如何尊重国家主权](/content/gnews/48/README.md)
+### [中共外交部称美国没资格告诉中方如何尊重国家主权](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [墙内一开智网民谈为何支持乌克兰](/content/gnews/49/README.md)
+### [墙内一开智网民谈为何支持乌克兰](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [世界各国政要名人对俄罗斯表示谴责](/content/gnews/50/README.md)
+### [世界各国政要名人对俄罗斯表示谴责](/content/gnews/51/README.md)
  ` NFSC News`
 
-### [俄乌战争｜金融制裁效果初现 全球最大主权基金即时冻结旗下俄罗斯资产](/content/gnews/51/README.md)
+### [俄乌战争｜金融制裁效果初现 全球最大主权基金即时冻结旗下俄罗斯资产](/content/gnews/52/README.md)
  ` 關注組`
 
-### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/52/README.md)
+### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/53/README.md)
  ` 纽约香草山MOS02`
 
-### [Steve Cortes认为中共入侵台湾的风险正在急剧上升](/content/gnews/53/README.md)
+### [Steve Cortes认为中共入侵台湾的风险正在急剧上升](/content/gnews/54/README.md)
  ` 温哥华扬帆农场`
 
-### [共产主义者是最善于出卖自己的盟友的](/content/gnews/54/README.md)
+### [共产主义者是最善于出卖自己的盟友的](/content/gnews/55/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [追求自由：加州卡车司机将组队前往DC](/content/gnews/55/README.md)
+### [追求自由：加州卡车司机将组队前往DC](/content/gnews/56/README.md)
  ` 日本东京方舟农场`
 
-### [流氓媒体Vice不失时机地对班农和郭文贵先生进行负面报道](/content/gnews/56/README.md)
+### [流氓媒体Vice不失时机地对班农和郭文贵先生进行负面报道](/content/gnews/57/README.md)
  ` 秘密翻譯組G-Translators`
 

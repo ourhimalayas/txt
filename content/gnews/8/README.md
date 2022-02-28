@@ -2,27 +2,21 @@
 ---
 
 
-## 有声|香草山翻译部周刊|2022年2月27日第37期
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2083378/)
+## 俄罗斯被踢出SWIFT全球支付系统
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2083416/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS-1.jpg)
+加拿大温哥华扬帆农场    平民正道
 
-文字版原文：[香草山翻译部周刊|2022年2月27日第37期](https://gnews.org/zh-hans/2077212/)
+据加拿大媒体《 后千禧年》2月26日报道，欧盟委员会、法、德、意大利、英国、加拿大和美国当天发布联合声明，将选定的俄罗斯银行从［SWIFT国际结算系统］中剔除。此举将对俄方的外贸和国际金融结算形成重大打击。
 
-音频处理：Fei797
-发稿：Fei797
+报道称，由于部分欧盟国家对俄经贸关系比美国更为密切，德，法，意大利等国此前一直都不愿将“SWIFT”纳入制裁选项。但随着俄军对乌克兰全面入侵所导致整个欧洲局势的持续恶化，欧美等国最终达成一致，被迫对俄罗斯实行了该项严厉制裁措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+对此，文贵先生在2月27日GTV直播中指出，欧美各国对俄罗斯欲擒故纵，将其剔除出SWIFT国际金融系统只是制裁的开始，更严厉的政治和军事反击将紧随其后。同时，针对中共政权及其盗国贼集团的SWIFT制裁也将如期而至。习近平在其党内政敌和普京的蛊惑下入侵台湾，必将加速该暴政的自取灭亡。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+编辑： 平民正道    发布：平民正道
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
