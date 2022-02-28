@@ -2,28 +2,28 @@
 ---
 
 
-## 新加坡将对俄罗斯实施包括银行交易等制裁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2079859/)
+## 芬兰超市和酒类公司停止销售俄罗斯产品
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2079937/)
 
-#### 撰稿：JIHO
+**撰稿：日本东京方舟农场 JIHO**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Singapore_Foreign_Minister_Vivian_Balakrishnan_speaks_at_the_East_Asia_Summit_-99654563_cropped.jpg)图片来源：wikipedia
-2月28日，根据新加坡路透社消息，新加坡外交部长周一表示，新加坡将对俄罗斯实施“适当的制裁和限制”，包括银行和金融措施，以及对可能被用作对付乌克兰人民的武器等物品的出口管制。
+S Group 是一家由客户拥有的芬兰零售和服务行业公司网络，在芬兰拥有 1,800 多家网点。
 
-这个小城邦是亚洲金融中心和重要的国际航运枢纽，遵守联合国安理会的决议，但很少对其他国家实施自己的制裁。
+据S集团称，今天上午，S集团已从其选择的芬兰超市中删除了俄罗斯原产的产品。 大约 50 种产品将停产。 其中包括食品以及个人运动器材、纺织品和其他消费品。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-136.png)图片来自S集团网站
+S Group 的决定是基于乌克兰的情况，该连锁店认为这种情况令人震惊且完全应受谴责。
 
-“新加坡打算与许多其他志同道合的国家协同行动，对俄罗斯实施适当的制裁和限制，”外交部长维文 (Vivian Balakrishnan)告诉议会，称俄罗斯的入侵是不可接受的，严重违反了国际准则。
+在爱沙尼亚开展业务的 S Group Prisms 周五也做出了类似的决定。
 
-他说，制裁是由于局势“前所未有的严重性”以及俄罗斯上周否决了安理会决议草案。
+此外，芬兰国有垄断公司 ALKO 拥有在芬兰零售酒精含量超过 5.5% 的饮料的专有权，今天将暂停在其商店和网上商店销售俄罗斯产品。
 
-他说：“特别是，我们将对可以在乌克兰直接用作武器以造成伤害或征服乌克兰人的物品实施出口管制。”他补充说：“我们还将阻止某些与俄罗斯有关的俄罗斯银行和金融交易。”
+参考链接：
+1.[https://s-ryhma.fi/uutinen/s-ryhma-poistaa-venalaiset-tuotteet-marketiensa-va/5dCNawnNxofypjmiN5DIQX](https://s-ryhma.fi/uutinen/s-ryhma-poistaa-venalaiset-tuotteet-marketiensa-va/5dCNawnNxofypjmiN5DIQX)
+2.[https://www.is.fi/taloussanomat/art-2000008647182.html](https://www.is.fi/taloussanomat/art-2000008647182.html)
 
-维文说，具体措施正在制定中，很快就会宣布。
-
-新加坡的举措是其区域邻国中的第一个举措，并且独立于它所属的东南亚国家联盟（ASEAN）的 10 个成员。
-
-新闻来源：[Singapore to impose sanctions on Russia, including bank transactions](https://www.reuters.com/world/asia-pacific/singapore-impose-appropriate-sanctions-restrictions-russia-2022-02-28/?taid=621c8813af8d2b00015713de&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+素材采编：JIHO
+编辑：老孙
+发布：小斐
 
  
 

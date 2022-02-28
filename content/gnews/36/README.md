@@ -2,28 +2,16 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月27日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2078298/)
+## 怕被制裁，中国银行新加坡分行停止为俄罗斯石油贸易融资
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2078388/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Gnews-image-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-19.png)
-校对：Stay文苑
+#### 翻译:Steven Hu
 
-编辑：Stay文苑
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16460186251.png)图片来源：谷歌图片
+据路透2月28日 从一位知情人士的消息报道：由于担心俄罗斯入侵乌克兰后西方制裁，中国银行新加坡分行已停止为涉及俄罗斯石油和俄罗斯公司的交易提供融资。
 
-发稿：Stay文苑
-
-新闻：[https://gtv.org/broadcast/watch/621c253d019ef64da65297c9](https://gtv.org/broadcast/watch/621c253d019ef64da65297c9)
-访谈：[https://gtv.org/broadcast/watch/621c2c9e019ef64da6529d27](https://gtv.org/broadcast/watch/621c2c9e019ef64da6529d27)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-768x1056-1.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+原文链接：[https://mobile.reuters.com/article/amp/idCNL4N2V30WC](https://mobile.reuters.com/article/amp/idCNL4N2V30WC)
 
  
 
