@@ -2,24 +2,28 @@
 ---
 
 
-## 白宫发布美欧关于SWIFT制裁俄罗斯的声明
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2078401/)
+## 欧盟委员会主席宣布一系列对俄罗斯的制裁
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2078672/)
 
-作者：日本东京方舟农场-感谢郭叔
+【撰稿】纽约香草山健身部—Ivy001
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月26日，美国白宫网站，发表美国及其盟国针对俄罗斯进行制裁的最新声明，声明大致内容如下。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-27-下午10.27.06.png)
-欧盟委员会、法国、德国、意大利、英国、加拿大和美国的领导人与乌克兰政府和乌克兰人民站在一起，谴责普京选择战争。俄罗斯需要为这场战争付出代价。
+当地时间2022年2月27日，在布鲁塞尔，欧盟委员会主席乌苏拉-冯德莱恩宣布，欧盟已经对俄罗斯飞机实施了全面的飞行禁令。
 
-随着俄罗斯军队对基辅和其他乌克兰城市发动攻击，欧盟委员会、法国、德国、意大利、英国、加拿大和美国的领导人与乌克兰政府和乌克兰人民站在一起，决定：1、把选定的俄罗斯银行踢出SWIFT系统；2、采取限制性措施，防止俄罗斯中央银行利用其国际储备破坏制裁的影响；3、对助长乌克兰战争和俄罗斯政府有害活动的个人和实体采取行动，限制向其出售公民身份，阻止其进入我们国家的金融系统；4、在下周启动一个跨大西洋特别工作组，查明和冻结在我们管辖范围内的受制裁个人和公司的资产。制裁更多的俄罗斯官员和与俄罗斯政府关系密切的精英及其家人以及他们的推动者，识别和冻结他们在我们管辖范围内持有的资产，以及和其他政府合作，阻止被制裁者在世界各地隐藏资产；5、加强或协调打击虚假信息和其他形式的混合战争。
+冯德莱恩说：”我们正在关闭俄罗斯拥有的、俄罗斯注册的或俄罗斯控制的飞机的欧盟空域。所有这些飞机，包括寡头的私人飞机，现在将不能在任何欧盟国家降落、起飞或飞越。”
 
-参考链接：[Joint Statement on Further Restrictive Economic Measures](https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/26/joint-statement-on-further-restrictive-economic-measures/)
+俄罗斯飞机也被禁止进入英国领空。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+欧盟还将禁止克里姆林宫的媒体机器——国有的 “今日俄罗斯 “和 “斯普特尼克”，以及它们的子公司。它们一直在传播谎言，为普京的战争辩护，并在我们的联盟中播撒分裂，这必须要禁止。
 
-总编：Zion文恩
-编辑：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
+同时，欧盟还将为乌克兰提供武器。欧盟委员会主席乌苏拉-冯德莱恩还表示，”有史以来第一次，欧盟将资助购买和运送武器和其他设备给一个正在遭受攻击的国家”。
+
+冯德莱恩补充说，欧盟将针对白俄罗斯总统亚历山大-卢卡申科支持俄罗斯在乌克兰广泛开展的军事行动。将制定新的制裁措施打击卢卡申科政权。
+
+新闻链接：[https://www.bbc.com/news/world-europe-60539303 https://www.cbsnews.com/news/ukraine-russia-european-union-airspace-rt-sputnik/](https://www.bbc.com/news/world-europe-60539303%20https://www.cbsnews.com/news/ukraine-russia-european-union-airspace-rt-sputnik/)
+
+审核/编辑/发稿:qiutian（邱甜）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-7.png)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

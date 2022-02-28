@@ -2,38 +2,72 @@
 ---
 
 
-## “坦克人”再现 乌克兰男子肉身挡军车
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2078400/)
+## 宝贝，别哭！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2078644/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日乌克兰新闻媒体HB发布一段长约30秒视频，画面显示有一名男子奋不顾身站立在俄罗斯军用车队前，犹如当年在天安门广场，以血肉之躯阻装甲车的“坦克人”。影片目前在网络热传。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-27-下午10.27.00.png)
-据报道，军车试着绕过这名男子，但他随着车子行径方向移动至路旁，意图阻挡车队前进。
+撰稿：东京樱花团/华夏伊人
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2718.png)
+宝贝，对不起！
 
-乌克兰媒体HB在推特发文说：“这名乌克兰人奋不顾身直冲敌人军备，让占领者无法通行。“
+是我们的贪婪和懦弱让你流泪，
 
-自由撰稿记者蓝斯顿在推特发文说：“这名勇气异于常人的乌克兰男子，就像是天安门广场的”坦克人“，试图以肉身挡车，阻挡俄罗斯的军车。“
+你的世界里不应该有枪声和炮火，
 
-画面显示，一辆军用卡车试着绕开站在路中央的男子，同时收录了民众在一旁喊叫的声音，另一辆车为了通过，则是开到了路旁。
+你的童年记忆应该是游戏和玩具。
 
-这段影片的拍摄地点无法确知。但影片中超过10辆车组成的车队，许多车身清晰可见大写字母Z。俄罗斯大军之前在乌克兰边界集结，有目击者发现俄罗斯的军卡车身就打印着Z字符号。
+宝贝，对不起！
 
-参考链接：[Video of Ukrainian ‘tank man’ trying to block Russian military convoy goes viral](https://www.theguardian.com/world/2022/feb/25/ukraine-tank-man-video-clip)
+战争让你恐惧，让你面对骨肉分离，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+你不应该离开家和父母一起逃亡，
 
-总编：Zion文恩
-编辑：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+你应该在和平的充满爱的世界里长大。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+宝贝，请先闭上眼睛！
+
+这个世界病了，
+
+不要让残酷血腥的场面伤害你，
+
+不要让漫长的黑夜令你恐惧。
+
+宝贝，别哭！
+
+全世界有良知有正义的人们正在醒来，
+
+不分肤色、不分种族、不分年龄、不分性别，
+
+走上街头高喊：不要战争！不要战争！不要战争！
+
+宝贝，别哭！
+
+世界没有抛弃你，没有抛弃你的祖国—乌克兰，
+
+台湾101大厦、日本东京塔、法国诶菲尔塔为乌克兰点亮，
+
+世界的每一个角落，热爱和平的人们正在为乌克兰祈祷。
+
+宝贝，别哭！
+
+让我抱紧你，让你不再孤单，
+
+请把你的小手交给我，把你的伤痛也给我。
+
+我们会用生命去守护你！
+
+宝贝，别哭！
+
+当你再次睁开眼睛的时候，
+
+黑夜就会过去，我们一起找到回家的路，
+
+亲亲你，我的宝贝！
+
+
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
