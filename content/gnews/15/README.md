@@ -2,34 +2,21 @@
 ---
 
 
-## 私营银行提议帮助墨西哥创建数字货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2079358/)
+## 普京威胁动用核武器，警告西方国家不要动兵干预
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2079584/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：韩国天池农场战友
+上传：追着曙光跑
 
-#### 翻译/编辑：小红帽
+据网易新闻2月28日报道，俄罗斯总统普京暗示他可能会向任何干涉他在乌克兰军事行动的国家发射核武器。现在的问题是，西方应该如何认真对待这种威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-28-at-17.42.27.jpeg)图片来源：网络
+今日中共国墙内社交媒体刷屏，又是泾渭分明的两波观念交锋了，毫无例外脑残粉红们又在赞美它们的普京爹有气概，是爷们儿！有脑子的人类们都在谴责普京这个人渣！人类惊恐地发现，昨晚是全球七十亿人类，第一次陪着打开保险的核导弹一起入眠！全人类在一个战争狂魔的核威摄下生存着。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a3fa1b9059e69050.jpg)图片来源： /www.centralbanking.com
+此前，普京多次发表演讲的视频中就表示，若北约在黑海挑衅，将“使用核武器回击”。他曾经说过这样的话：“如果俄罗斯没有了，还要这地球干嘛?”、“如果矛盾真的到了无法调和，我不介意亲手结束人类文明。”现在看来，普京骑虎难下又输不起，准备要与人类地球同归于尽！恐怖！
 
+与普京相比，塔利班、本拉登就是小儿科！普京的逻辑是：如果俄罗斯完了，要世界有何用？如果普金完了，要俄罗斯有何用？如今，打不过又输不起的普京威胁要动用核武器毁灭世界，把全人类当人质，当然也包括墙内老小粉红的身家性命！俄罗斯人都在反战游行示威，要求普京下台，试问墙内普京的孝子贤孙们，你们还要支持普京吗？还觊觎乌克兰美女吗？果然如此，你们还是人类吗？
 
-根据Bitcoin.com 2月28日报道，墨西哥的私营银行希望与该国中央银行共同努力，创建一种新的数字货币。墨西哥银行协会（ABM）主席会见了墨西哥银行行长，为未来创建国家数字货币提供了私营银行集团的帮助。
-
-墨西哥银行协会的成员已经表示，他们打算帮助该国中央银行设计和发行潜在的中央银行数字货币（CBDC）。该协会主席丹尼尔·贝克尔（Daniel Becker）会见了墨西哥银行行长维多利亚·罗德里格斯·塞哈（Victoria Rodríguez Ceja），审查了一些使墨西哥公民更容易获得银行有关服务的重要因素。
-
-关于这次会面，贝克尔表示：“如果墨西哥确定银行的意见可以帮助其建立更好的元素或加密货币，请依据我们和最好的银行建议，这样才能激发并拥有更有效和更强大的金融系统，从而达到更多墨西哥人使用的目的”。
-
-贝克尔还欢迎引入数字货币以降低交易成本，并利用区块链实现更好的互操作性。
-
-参考链接：[Private Banks Propose to Help Design Digital Currency in Mexico](https://news.bitcoin.com/private-banks-propose-to-help-design-digital-currency-in-mexico/)
-
-*发布：*Frank2021
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参考信息：[突发！普京威胁动用核武器！警告西方国家：不要动兵干预](https://c.m.163.com/news/a/H161PFLD0552QDEA.html?spss=newsapp)
 
  
 

@@ -2,22 +2,29 @@
 ---
 
 
-## 邪恶的中共政权才是万恶之源（三）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2077403/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月27日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2078298/)
 
-撰稿：东京樱花团/深藏不露
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片10-4.png)
-自小时候起，大人们就经常教育说，人要分是非好歹。这是我们老百姓所接受的最朴素的教育。邪恶的俄罗斯总统普京为了个人私利悍然发动战争，世界正义的国家都纷纷严厉谴责，并且还给予乌克兰各种支援，这就是明辨是非！反之，就是不分是非！邪恶的中共习近平因为跟俄罗斯总统普京的利益关系，不仅不谴责，反而为普京入侵乌克兰喝彩，为普京提供各种支援！还有更可怕的事，在中共邪恶的商鞅五术荼毒下的中国老百姓不仅没有明辨是非，反而在热论如何占有饱受战乱痛苦的乌克兰女人！
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Gnews-image-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-19.png)
+校对：Stay文苑
 
-为什么有些中国人距离文明越来越远，越来越被这个世界厌弃？原因就是邪恶的中共让老百姓眼中永远只看利益，而从不分是非！是非不分的人，没有基本的同情心，没有道义，只是一群行走着的动物，他们没正常人的思维，眼中只有盗国贼留下的一点点残羹剩饭！
+编辑：Stay文苑
 
-可怜的中共国老百姓从小就饱受邪恶的商鞅五术的荼毒，人生每走一步都充满艰辛，却总是站在割韭菜者的角度去思考，以为自己也手握锋利镰刀，可以潇洒收割别人，却从不想想，为什么自己一生那么难，为什么总是被割来割去？
+发稿：Stay文苑
 
-战友们，行动、行动、深挖中共的邪恶，广泛传播中共的“假骗偷”，中共必将被醒来的人民摧毁消灭到历史的垃圾堆里！请千万放弃对中共的任何幻想，中共一日不铲除,何有我民族复兴和天下太平之日?团结起来，站立起来，邪恶的中共只相信拳头，赶快加入新中国联邦，一起干掉中共这个邪恶政权，让中共这个邪恶势力在地球上永远消失！
+新闻：[https://gtv.org/broadcast/watch/621c253d019ef64da65297c9](https://gtv.org/broadcast/watch/621c253d019ef64da65297c9)
+访谈：[https://gtv.org/broadcast/watch/621c2c9e019ef64da6529d27](https://gtv.org/broadcast/watch/621c2c9e019ef64da6529d27)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-768x1056-1.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

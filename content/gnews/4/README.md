@@ -2,10 +2,10 @@
 ---
 
 
-## 乌克兰总统表示基辅仍在掌控之中
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079532/)
+## 加拿大新斯科舍省将终止所有中共病毒限制措施
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079775/)
 
-02/26/2022 尽管有报道称基辅的战斗持续了一夜，乌克兰总统泽伦斯基表示，基辅仍在掌控之中。
+02/23/2022 加拿大新斯科舍省省长蒂姆·休斯顿宣布只要“一切保持正常”，该省将于3月21日终止所有中共病毒限制措施。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

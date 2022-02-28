@@ -2,28 +2,35 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月27日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2078298/)
+## “55天法则” 明天到期
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2079000/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Gnews-image-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-19.png)
-校对：Stay文苑
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-28.png)图片来自网络
+**据《Zubu兄弟》2022年2月27日的文章**：
 
-编辑：Stay文苑
+大多数人没有意识到，1929年的崩盘和1987年的崩盘都正好发生在股市见顶后的55个日历日那天。
 
-发稿：Stay文苑
+本文中的所有价格都是参考的那一天的收盘价。
 
-新闻：[https://gtv.org/broadcast/watch/621c253d019ef64da65297c9](https://gtv.org/broadcast/watch/621c253d019ef64da65297c9)
-访谈：[https://gtv.org/broadcast/watch/621c2c9e019ef64da6529d27](https://gtv.org/broadcast/watch/621c2c9e019ef64da6529d27)
+1929年：道琼斯指数在9月3日达到峰值，当时收于381.17点。9月3日之后的55个日历日，是10月28日（星期一）。这正是1929年崩盘日，道指下跌40.58点，或者说13.5%。
+1987年：道琼斯指数在8月25日达到最高点2722.42点。
+55个日历日之后是10月19日（星期一），道指在一天之内狂跌了507.99点，即22.6%！这一天，道指的最高点是2722.42。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-768x1056-1.jpeg)
+**今年，道琼斯指数在1月4日达到顶峰，而…**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**55天后是2月28日星期一（！）。**
+
+1929年和1987年，在崩盘前的一周，市场出现了急剧下跌，所以这也是需要注意的。这些崩盘并不是凭空出现的。
+
+原文链接：
+
+
+
+> ['The 55 Day Rule' Expires Tomorrow](https://zububrothers.com/2022/02/27/the-55-day-rule-expires-tomorrow/)
+
+
+
+翻译：烟波浩淼 | 校对：雨山溪桥客 | 编辑&发布：*闪电训练*
 
  
 

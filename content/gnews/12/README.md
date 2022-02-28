@@ -2,10 +2,10 @@
 ---
 
 
-## 川普在保守党政治行动大会上谴责俄罗斯对乌克兰的袭击
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079448/)
+## 俄罗斯表示俄方愿在乌克兰投降的基础上与乌方进行谈判
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079687/)
 
-02/26/2022 川普在保守党政治行动大会上谴责俄罗斯对乌克兰的袭击。
+02/25/2022 据路透社报道，俄罗斯准备在乌克兰投降的基础上，派代表团前往白俄罗斯首都明斯克与乌方进行谈判。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

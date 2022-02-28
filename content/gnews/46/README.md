@@ -2,28 +2,56 @@
 ---
 
 
-## 【秘翻在线】乌克兰百姓自制燃烧瓶应对俄军入侵
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2076148/)
+## 中共国称支持入侵乌克兰的俄罗斯并支持普京声称的已准备好进行谈判
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2076324/)
 
-#### 翻译/撰稿：zzballack
+***评论：**中共国支持俄罗斯入侵乌克兰，就是和俄罗斯一起站到了西方国家的对立面。*
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2595.png)   图片来源：自由欧洲电台
-《布雷特巴特新闻网》（Breitbart News）2月27日报道说，根据全球多家媒体机构的大量报道，当俄军坦克包围乌克兰首都基辅的时候，驻扎在地铁区的乌克兰百姓正在自制燃烧瓶(Molotov cocktail，莫洛托夫的鸡尾酒)，以抵御俄军入侵。
+据《福克斯新闻》作者：[Caitlin McFall](https://www.foxnews.com/person/m/caitlin-mcfall)，2022年2月25日报道：
 
-英国BBC周日（2月27日）[报道](https://www.bbc.com/news/live/world-europe-60542877)说：“在普京下令其军队入侵乌克兰的那一天，英语老师阿丽娜（Arina）计划在下班后上一堂舞蹈课，然后参加一个派对。但三天后，她却在一个公园里制作燃烧瓶。她和其他几十名妇女一起蹲在草地上，把聚苯乙烯（Polystyrene）块当作奶酪一样磨碎，把床单撕成破布，用于制作瓶子炸弹（bottle-bombs）。这样的场景对欧洲的大多数人来说是无法想象的，即使在这里，这样的情景也是无法想象的。”
+泽伦斯基恳请北约国家允许乌克兰加入联盟，因为基辅受到俄罗斯军队的打击
 
-《洛杉矶时报》2月26日也[报道](https://www.latimes.com/world-nation/story/2022-02-26/russia-attack-ukraine-kyiv-civilians-arms-molotov-cocktails)了类似事件：“星期六，乌克兰首都一条安静、不起眼的街道上的一个三层地下室里，24岁的奥尔加将大块的泡沫塑料(Styrofoam)捏碎，将她手中的白色卵石放入摆在她面前的混合了桑格利亚（sangría）酒、必富达金酒（Beefeater gin）、啤酒和葡萄酒的瓶子里。奥尔加是一家制图公司的项目经理，为了安全，她要求不公布她的全名。她是一个由五人组成的燃烧瓶组装小组的一员。当她和另一名妇女压碎泡沫塑料时，她们身边的一男一女小心翼翼地将燃料和油倒入一个漏斗，将混合液渗入瓶子。在他们旁边，一个人将由桌布和窗帘的碎布制成的灯芯沾满燃油，然后用一小段麻绳将灯芯紧紧绑在瓶口上。”
+在俄罗斯军队轰炸乌克兰之际，中共国国家主席习近平周五向俄罗斯总统弗拉基米尔-普京提供了他的“支持”。
 
-奥尔加说：“我两周前辞去了旧工作，本该在周一开始新工作。我从来没有想到我会干这个。相比于这个，我肯定愿意从事新工作。但目前制作燃烧瓶更为重要。”
+根据这两个盟国之间的通话记录，习近平表示拒绝“冷战思维”的重要性，并表示他“认真对待并尊重所有国家的合理安全关切”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2600-e1645981241507.png)中共国国家主席习近平和俄罗斯总统普京在俄罗斯入侵乌克兰时举行通话。(Li Xueren/Xinhua via Getty Images) | Mikhail Svetlov/Getty Images)
+普京试图通过谎称基辅构成严重的军事威胁来为其对乌克兰的致命入侵辩护–此后他声称北约也构成威胁，尽管该联盟一再试图寻找外交解决方案。
 
-乌克兰国防部2月25日通过其官方推特呼吁民众制作燃烧瓶，以协助国防。他们在推特上发布了一个教学视频，指导人们如何自制这种武器。
+中共国外交部提供的信息说，普京解释了“乌克兰问题的历史背景”，并声称，“美国和北约长期以来对俄罗斯的合法安全关切视而不见。”
 
-纵览古今中外，战争最大的受害者往往都是无辜百姓。人类的贪婪和欲望导致纷争不止、战乱无数，真诚祈祷世界和平。
+在俄罗斯入侵之前，北约断然拒绝了普京关于禁止乌克兰加入这个有30个成员的联盟的一再要求。
 
-新闻来源：[Ukrainian Civilians Make Molotov Cocktails to Fight Russia](https://www.breitbart.com/europe/2022/02/27/ukrainian-civilians-make-molotov-cocktails-to-fight-russia/)
+乌克兰没有被允许加入该联盟，理由是它需要得到成员国的一致同意，而像美国这样的伙伴则质疑基辅是否符合所需标准。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2601-e1645981280209.png)2022年2月25日星期五，在乌克兰基辅，一名乌克兰军队士兵检查一架被击落飞机的碎片。(AP Photo/Vadim Zamirovsky)
+在拜登和乌克兰总统沃洛德米尔-泽伦斯基9月的一次会议后，新闻秘书詹-普萨基说：“乌克兰需要采取一些措施”。
 
-[Making Molotov Cocktails, Ukrainian Civilians Prepare To Defend Homes](https://www.rferl.org/a/ukraine-molotov-cocktail-russia/31725286.html)
+她补充说，“他们对这些非常熟悉：努力推进法治改革，使其国防部门现代化，并扩大经济增长。”
+
+在周四晚上对乌克兰人的讲话中，泽伦斯基说他给27个北约国家打电话，要求他们允许基辅加入联盟，这将使基辅得到30个国家的保护和军事武器。
+
+他说：“每个人都在害怕，没有人回答”。
+
+中共国在谴责俄罗斯入侵乌克兰方面一直守口如瓶，只是重复谈话要点，并声称它尊重“所有国家的主权和领土完整”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2603-e1645981316461.png)(乌克兰总统办公室)
+文章观点仅代表作者个人，与Gnews平台无关。
+
+原文连接：[https://www.foxnews.com/politics/china-supports-russia-amid-ukraine-invasion-backs-putins-ready-negotiations](https://www.foxnews.com/politics/china-supports-russia-amid-ukraine-invasion-backs-putins-ready-negotiations)
+
+翻译：洛杉矶盘古农场 – TrueSky
+
+校对：洛杉矶盘古农场 – Mike Li
+
+评论：洛杉矶盘古农场 – 傻小子
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
