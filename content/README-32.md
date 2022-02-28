@@ -16,6 +16,10 @@
 ---
 ## 頁面 32/40 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) ... [40](/content/README-40.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)
 
+[文字版8月13日：西方国家正在形成正义联盟共同反击中共的纳谇主义扩张](/content/2018/08/20180814-4681495316347763859.md)
+
+[文字版：August 13th 2018：大连政法委书记于德泉．检察长吴喆！在几个小时前在京哈高速上．将盘古公司副总经理贾鑫及妻子两个孩子绑架至大连！](/content/2018/08/20180814-2211522547668099731.md)
+
 [文字版： August 9th 2018](/content/2018/08/20180810-4219843988347833039.md)
 
 [文字版：2018年8月6日晚上文贵致王健夫人及兄王伟先生的提示法国这个与王健一起最后晚餐的女人！](/content/2018/08/20180809-4256963212298749895.md)
@@ -61,10 +65,6 @@
 [翻译：“中华文春砲”郭文贵与29年无果的民主运动家的不同作者：李小牧 2018年6月2日](/content/2018/06/20180607-8000393637108456093.md)
 
 [文字版：6月2日接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术](/content/2018/06/20180605-3544664024044691633.md)
-
-[文字版6月1日．文贵视频为什么成为盗国贼的精神艾滋！](/content/2018/06/20180602-4228988724633844641.md)
-
-[文字版531．不要将六．四悲剧变喜剧！马航客机失事新动向！](/content/2018/05/20180531-5466761042269971935.md)
 
 
 ## 頁面 32/40 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) ... [40](/content/README-40.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)
