@@ -2,30 +2,56 @@
 ---
 
 
-## 2022/02/23 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2076154/)
+## 中共国称支持入侵乌克兰的俄罗斯并支持普京声称的已准备好进行谈判
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2076324/)
 
-1. 江苏徐州八孩锁链母亲视频
-2. 普通的一个微信对话证明了中国比地狱还悲惨的过去七十年！
-3. 2月21日，九年来，河北邯郸市雯旋的妈妈一直在寻找其被人贩子拐卖的孩子。中共国强大的监控系统在中国普通老百姓需要的时候总是会失效。
-4. 2月21日，湖北黄冈。因中共政府通报湖北武汉出现新冠病毒确诊案例，武汉周边城市所有往返途径武汉的市民都被连夜要求做核酸检测。
-5. 2月23日，河南郑州一高层楼房发生火灾，火焰从底层贯穿蔓延至高层。
-6. 近日杭州，男子全身挂满袜子进景区被保安拦住，男子称这只是行为艺术。
-7. 九十岁夫妻拉板车步行20里赶集榨油！凌晨3点出发上午10点才能到，需步行7小时。
-8. 2月21日，河南郑州。86岁奶奶舍不得花儿女的钱，把钱按¥5000一捆存放进烟盒中保存。
-9. 2021年长沙停工、延期交房28319套,全国排名第一， 中共国品牌大开发商的建筑工地全部都在持续暴雷中。
+***评论：**中共国支持俄罗斯入侵乌克兰，就是和俄罗斯一起站到了西方国家的对立面。*
+
+据《福克斯新闻》作者：[Caitlin McFall](https://www.foxnews.com/person/m/caitlin-mcfall)，2022年2月25日报道：
+
+泽伦斯基恳请北约国家允许乌克兰加入联盟，因为基辅受到俄罗斯军队的打击
+
+在俄罗斯军队轰炸乌克兰之际，中共国国家主席习近平周五向俄罗斯总统弗拉基米尔-普京提供了他的“支持”。
+
+根据这两个盟国之间的通话记录，习近平表示拒绝“冷战思维”的重要性，并表示他“认真对待并尊重所有国家的合理安全关切”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2600-e1645981241507.png)中共国国家主席习近平和俄罗斯总统普京在俄罗斯入侵乌克兰时举行通话。(Li Xueren/Xinhua via Getty Images) | Mikhail Svetlov/Getty Images)
+普京试图通过谎称基辅构成严重的军事威胁来为其对乌克兰的致命入侵辩护–此后他声称北约也构成威胁，尽管该联盟一再试图寻找外交解决方案。
+
+中共国外交部提供的信息说，普京解释了“乌克兰问题的历史背景”，并声称，“美国和北约长期以来对俄罗斯的合法安全关切视而不见。”
+
+在俄罗斯入侵之前，北约断然拒绝了普京关于禁止乌克兰加入这个有30个成员的联盟的一再要求。
+
+乌克兰没有被允许加入该联盟，理由是它需要得到成员国的一致同意，而像美国这样的伙伴则质疑基辅是否符合所需标准。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2601-e1645981280209.png)2022年2月25日星期五，在乌克兰基辅，一名乌克兰军队士兵检查一架被击落飞机的碎片。(AP Photo/Vadim Zamirovsky)
+在拜登和乌克兰总统沃洛德米尔-泽伦斯基9月的一次会议后，新闻秘书詹-普萨基说：“乌克兰需要采取一些措施”。
+
+她补充说，“他们对这些非常熟悉：努力推进法治改革，使其国防部门现代化，并扩大经济增长。”
+
+在周四晚上对乌克兰人的讲话中，泽伦斯基说他给27个北约国家打电话，要求他们允许基辅加入联盟，这将使基辅得到30个国家的保护和军事武器。
+
+他说：“每个人都在害怕，没有人回答”。
+
+中共国在谴责俄罗斯入侵乌克兰方面一直守口如瓶，只是重复谈话要点，并声称它尊重“所有国家的主权和领土完整”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2603-e1645981316461.png)(乌克兰总统办公室)
+文章观点仅代表作者个人，与Gnews平台无关。
+
+原文连接：[https://www.foxnews.com/politics/china-supports-russia-amid-ukraine-invasion-backs-putins-ready-negotiations](https://www.foxnews.com/politics/china-supports-russia-amid-ukraine-invasion-backs-putins-ready-negotiations)
+
+翻译：洛杉矶盘古农场 – TrueSky
+
+校对：洛杉矶盘古农场 – Mike Li
+
+评论：洛杉矶盘古农场 – 傻小子
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
 
 
-* * *
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

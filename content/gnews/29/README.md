@@ -2,28 +2,16 @@
 ---
 
 
-## 新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2078209/)
+## 怕被制裁，中国银行新加坡分行停止为俄罗斯石油贸易融资
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2078388/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2282.jpg)
+#### 翻译:Steven Hu
 
-为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16460186251.png)图片来源：谷歌图片
+据路透2月28日 从一位知情人士的消息报道：由于担心俄罗斯入侵乌克兰后西方制裁，中国银行新加坡分行已停止为涉及俄罗斯石油和俄罗斯公司的交易提供融资。
 
-救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。
-
-24小时救援联系方式如下：
-
-邮箱：
-[\[email protected\]](/cdn-cgi/l/email-protection) 或 
-[\[email protected\]](/cdn-cgi/l/email-protection)
-电话和短信：+1 720-657-6776 或 +1 719-224-4232
-
-新中国联邦
-法治基金
-2022年2月26日
-
-**审核校对：Barry Jack
-上传排版：V在途中**
+原文链接：[https://mobile.reuters.com/article/amp/idCNL4N2V30WC](https://mobile.reuters.com/article/amp/idCNL4N2V30WC)
 
  
 

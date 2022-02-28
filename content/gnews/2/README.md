@@ -2,20 +2,24 @@
 ---
 
 
-## 有声｜中共国舆论导向“挺俄贬乌”压制反战声音
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2079171/)
+## 有声｜美国抨击普京核命令不可接受，将考虑进一步制裁
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2079224/)
 
 By:**秘翻新闻**
 
 **2022-02-28**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-62.png)图片来源   AFP
-[据自由亚洲2月27日报道，俄罗斯入侵乌克兰，多数中共国网友力挺俄罗斯贬损乌克兰的怪象令全球侧目，而网络上反对俄罗斯及同情乌克兰的声音受到压制。](https://www.rfa.org/mandarin/Xinwen/10-02272022161157.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-55.png)图片来源 路透社
+[《路透社》华盛顿2月27日报道，周日，美国和北约谴责俄罗斯总统普京，将核武器置于高度警戒状态的命令是危险和不可接受的，同时白宫表示不排除对俄罗斯的能源部门实施新的制裁。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
 
-[从乌克兰危机酝酿到战争爆发，在中共国网络空间，不论从一般网友、网路写手到媒体人乃至于学者，被认为一面倒地力挺俄罗斯，并对乌克兰大加贬损，其背后隐含着官方主导的反美、反西方的思路。](https://www.rfa.org/mandarin/Xinwen/10-02272022161157.html)
+[据报道，稍早些时候，俄罗斯总统普京下达了，提高俄罗斯核武器戒备的级别，以对抗西方对其发动对乌侵略战争的一连串报复。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
 
-[报道指出，虽然反战声音遭到压制，仍然有少数中国网民选择低调地站在乌克兰一边，表达同情和对战争的厌恶。同时，这些网民毫不保留地表达反主流的“挺乌贬俄”立场，抨击中共官方“嘴上不说，脚上和心里早就站到了俄罗斯一边。“](https://www.rfa.org/mandarin/Xinwen/10-02272022161157.html)
+[美国驻联合国大使琳达.格林菲尔德在哥伦比亚广播公司的 “面对全国 “节目中说：“普京的行动使冲突升级，是不可接受的。美国正在研究针对俄罗斯新的、甚至更严厉的制裁措施”。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
 
-秘翻新闻 二丫编辑报道
+[报道还称，在五角大楼，一位美国高级国防官员也将普京的核命令描述为升级，并说它正在产生影响，如果出现误判，可能会使事情变得非常危险。北约秘书长延斯-斯托尔滕贝格也称，普京的核命令具有侵略性，是不负责任的。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
+
+[白宫新闻秘书普萨基说，普京是在对一个不存在的威胁做出反应。她补充说，俄罗斯从来没有受到北约的威胁，也没有受到乌克兰的威胁。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
+
+秘翻新闻 冰糖葫芦喵 编译报道
 
 发布 : 恩典
 

@@ -2,29 +2,27 @@
 ---
 
 
-## 原油跳涨而卢布暴跌至历史低点
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2079058/)
+## 有声｜西方制裁俄罗斯 德媒称不能漏了中共
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2079145/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-26.jpg)原油跳涨而卢布暴跌至历史低点 网络图片
-据路透社2月28日报道，原油周一跳涨，俄罗斯卢布兑美元暴跌近30%，至纪录低位119卢布。创下纪录新低。西方国家因俄罗斯入侵乌克兰而对其实施新的制裁，包括将部分银行剔除出环球银行金融电信协会(SWIFT)。
+By:**秘翻新闻**
 
-俄罗斯总统普京周日将核威慑力量置于高度警戒状态。紧张局势升级加剧了对世界第二大产油国俄罗斯的石油供应可能中断的担忧，推动布兰特原油上涨4.21美元或4.3%，至每桶102.14美元。美国西德克萨斯中质油(WTI)期货上涨4.58美元或5.0%，报每桶96.17美元。
+**2022-02-28**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-82.png)图片来源  AFP
+[据《新唐人》2月27日报道，俄罗斯入侵乌克兰，国际社会普遍谴责和制裁。2月26日，美国、加拿大、欧盟委员会、英国、法国、德国和意大利，共同发表声明，将俄罗斯主要银行从SWIFT国际支付系统中剔除。](https://www.ntdtv.com/gb/2022/02/27/a103359395.html)
 
-新闻参考链接： [https://cn.reuters.com/article/global-market-asia-stocks-ukraine-0228-idCNKBS2KX05W](https://cn.reuters.com/article/global-market-asia-stocks-ukraine-0228-idCNKBS2KX05W)
+[声明说，“我们和乌克兰政府以及乌克兰人民反抗俄罗斯入侵的英勇努力站在一起，我们会让俄罗斯为此负责，并集体保证这场战争成为普京的一场战略失败。”](https://www.ntdtv.com/gb/2022/02/27/a103359395.html)
+
+[与此同时，中共一直对俄乌战争不明确表态，中共外交部发言人拒绝谴责俄罗斯，甚至拒绝将俄罗斯的军事行动称为“入侵”。](https://www.ntdtv.com/gb/2022/02/27/a103359395.html)
+
+[因此，德语媒体报导说，西方在制裁俄罗斯时，不能忘了制裁中共。](https://www.ntdtv.com/gb/2022/02/27/a103359395.html)
+
+秘翻新闻 二丫编辑报道
+
+发布 : 恩典
 
 * * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

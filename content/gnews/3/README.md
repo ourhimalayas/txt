@@ -2,27 +2,27 @@
 ---
 
 
-## 有声｜西方制裁俄罗斯 德媒称不能漏了中共
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2079145/)
+## 俄罗斯总统弗拉基米尔·普京已下令其核准备就绪
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2079215/)
 
-By:**秘翻新闻**
+撰稿：随心所在
+![](https://assets.gnews.org/wp-content/uploads/2022/02/281.jpg)图片来自网络
+俄罗斯入侵乌克兰后，国际紧张局势已经升温，普京指责西方国家对俄罗斯采取敌对行动。普京的命令可能会增加警报空间，俄罗斯拥有世界第二大核武库和大量弹道导弹。
 
-**2022-02-28**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-82.png)图片来源  AFP
-[据《新唐人》2月27日报道，俄罗斯入侵乌克兰，国际社会普遍谴责和制裁。2月26日，美国、加拿大、欧盟委员会、英国、法国、德国和意大利，共同发表声明，将俄罗斯主要银行从SWIFT国际支付系统中剔除。](https://www.ntdtv.com/gb/2022/02/27/a103359395.html)
+普京对法新社说：“我已命令国防部长和俄罗斯武装部队总司令将俄罗斯军队的威慑力量置于特别战备状态。”普京还称西方对俄罗斯实施的制裁是非法的。
 
-[声明说，“我们和乌克兰政府以及乌克兰人民反抗俄罗斯入侵的英勇努力站在一起，我们会让俄罗斯为此负责，并集体保证这场战争成为普京的一场战略失败。”](https://www.ntdtv.com/gb/2022/02/27/a103359395.html)
+据英国广播公司安全记者称，该命令将促进核武器的部署，但这并不意味着它会完成。普京警告西方国家如果干涉俄罗斯在乌克兰的行动，要为“历史上前所未有的后果”做好准备。
 
-[与此同时，中共一直对俄乌战争不明确表态，中共外交部发言人拒绝谴责俄罗斯，甚至拒绝将俄罗斯的军事行动称为“入侵”。](https://www.ntdtv.com/gb/2022/02/27/a103359395.html)
+国防学院的讲解员斯特凡·福斯说，俄罗斯周日宣布提高核威慑力量以提高警戒状态可能是模糊的。福尔西认为，从历史上看，提高准备状态一直是为冲突的另一方对国家形成核威胁做准备。然而，福斯说，目前没有任何国家用核武器威胁俄罗斯。
 
-[因此，德语媒体报导说，西方在制裁俄罗斯时，不能忘了制裁中共。](https://www.ntdtv.com/gb/2022/02/27/a103359395.html)
+据他介绍，以核武器相威胁等方式应对经济制裁是前所未有的。福斯说，面对这样的威胁，俄罗斯应该被告知，这些威胁并不是理所当然的。
 
-秘翻新闻 二丫编辑报道
+新闻链接：
 
-发布 : 恩典
+[Putin määräsi Venäjän ydinasevalmiuden hälytystilaan, Naton pääsihteeri kutsuu päätöstä vaaralliseksi ja vastuuttomaksi](https://www.msn.com/fi-fi/uutiset/ulkomaat/putin-m%c3%a4%c3%a4r%c3%a4si-ven%c3%a4j%c3%a4n-ydinasevalmiuden-h%c3%a4lytystilaan-ydinasetuntija-ven%c3%a4j%c3%a4-bluffaa/ar-AAUn7SI?bncnt=BroadcastNews_BreakingNews&amp;ocid=UCPNC2)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

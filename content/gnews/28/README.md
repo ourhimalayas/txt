@@ -2,32 +2,35 @@
 ---
 
 
-## 新中国联邦救援乌克兰行动影响了世界
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2078267/)
+## 樱花数据分析┃三针接种者成最易感染人群 丹麦政府下架感染数据
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2078590/)
 
-作者：纽约香草山教育部-春草
+撰稿：东京樱花团/TV
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2712.png)
+自2月14日以来，丹麦政府每日更新的每十万人感染者数据中[1]，三针接种者已经完全超越两针接种者，成为最易感染人群。最近一期数据显示，相比未接种者，两针接种者感染风险为1.3倍，三针接种者达到了1.93倍！丹麦政府在这种数据持续公布数日之后，于23日选择下架感染人数数据。
 
-2022年2月28日
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年2月26日，《新中国联邦》的发起人、缔造者一一郭文贵先生，向全世界公布了救援乌克兰的方案。这一决定引起了世界的关注，并影响了很多国家，改变了观望的态度。如德国180度转弯开始对乌克兰军事援助，俄罗斯被踢出了swift及所有交易系统，欧盟对俄关闭了所有领空及港口，众多外国志愿者加入了志愿军赴乌参加保卫战，英美等几十个国家把大量的武器和药品送到乌克兰……。就连被中共洗脑的部分中国人民也醒悟了，由原来的赞扬普京支持俄罗斯的侵略战争，改为支持乌克兰的正义的战争。
+他们的理由为：“由于在未接种疫苗的人、一针接种的人、两针接种的人和三针接种的人之间的检测活动已变得如此明显不同，以至于关于确诊病例的结果不再像以前那样具有可比性”。但是，究竟各个接种状况的人检测活动如何不同，具不具有普遍性，未加任何说明。
 
-一个新兴起的、代表中国人民利益的、还未被国际承认的新中国联邦，在其它国家遭受外敌侵略、其国人生灵涂碳的危难之际，代表中国人民毫不犹豫地伸出援助之手，送去急需的物资和药品，解救陷于危险的本国和友邦的人员，多么感人的行动啊。这就是伟大的国际主义精神，用实际行动向全世界宣告：中国人民不是自私自利的，中国人民不等于中国共产党，中国人民和全世界爱好和平的人民一样，愿意共同建设维护大家的安全美好的家园，决不允许任何独裁者、妄图称霸世界、奴役世界人民的邪恶组织和个人，欺压和屠杀无辜的平民，必须将他们彻底地消灭，连根铲除，全世界爱好和平的人民才能过上平安、幸福、美好的生活。
+“三针接种者比未接种者更易感染”并不稀奇，已由一些国家的统计数据得到证明。但是真正让政府慌忙下架数据的，恐怕是三针接种感染风险大幅超越两针接种。因为这直接证明了政府推广加强针的政策失误。
 
-中国人不等于中共，彻底消灭共产党！
+关于这个现象的原因，一条新闻引起了我们的注意，瑞典存在大量“混合接种”的情况[2]，比如阿斯利康+辉瑞/摩德纳。类似的情况也在加拿大阿尔伯塔省数据观察到，三针接种者成为最易感染人群[3]。而加拿大也是很早推荐混合接种的国家[4]。“混合接种”有可能是形成“三针接种者最易感染”的原因。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2713.png)制图：chuansang
+除此以外，三针接种对人体免疫力造成了更大的伤害，是另外一个可能。 丹麦是继苏格兰之后又一个慌忙下架疫情数据的国家/地区，疫苗推进国的数据乱象丛生，而这一切应该只是刚刚开始。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-59.jpg)
+（注：本文为《樱花数据分析》第十六期）
 
-审核/编辑/发稿:qiutian（邱甜）
+数据来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-7.png)
+- [Statens Serum Institut – Gennembrudsinfektioner](https://experience.arcgis.com/experience/aa41b29149f24e20a4007a0c4e13db1d/page/page_5/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[2] [Sweden will give different second vaccine dose to people under 65 who had first dose of AstraZeneca](https://www.cnnphilippines.com/world/2021/4/21/Sweden-to-give-different-second-dose-to-people-under-65-who-first-had-AstraZeneca.html)
+
+[3] COVID-19 Alberta statistics
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

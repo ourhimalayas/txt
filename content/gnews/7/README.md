@@ -2,60 +2,79 @@
 ---
 
 
-## 耶~~~~2月9日确认郭先生诉UBS官司在伦敦正式立案
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2079096/)
+## 专家称普京入侵乌克兰可能玩过头了：巨大的误判
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2079179/)
 
-G-TV视频链接：[https://gtv.org/video/id=62164b0a1408ee3a03a3c899](https://gtv.org/video/id=62164b0a1408ee3a03a3c899)
+**评论：***入侵乌克兰不仅不会为俄罗斯的称霸世界铺平道路，反而会使普京声名狼藉，让他的国家在面对更强大、更团结的西方联盟时，在外交上被孤立、经济上被瘫痪、战略上变得更加脆弱。乌克兰之战将极有可能成为普京的滑铁卢！*
 
-**郭文贵先生**：耶~~~~（大喊）
+据《福克斯新闻》作者：Rebecca Rosenberg，2022年2月24日报道：
 
-**Nick:** 都没打疫苗。发生什么事了吗？
+俄罗斯总统弗拉基米尔·普京正面临对乌克兰战争的大规模抗议
 
-**郭文贵先生：**我现在发给你们啊。
+专家告诉福克斯新闻频道，普京总统入侵乌克兰可能已经玩过头了，因为俄罗斯国内对这场战争的反对声音越来越大。
 
-**爱米粒：**七哥！
+威斯康星大学麦迪逊分校教授吉子·埃雷拉说：“这是一个巨大的误判。”他是美俄关系专家。“昨天的这个行动只是另一种程度的疯狂。这是对俄罗斯几十年的摧残，对乌克兰的损害如此之大，对周围的代价如此之大。”
 
-**Tex****：**哎呦呦呦
+据俄罗斯人权组织OVD Info称，俄罗斯有超过1700名抗议无端攻击乌克兰的示威者被逮捕。
 
-文艺：七哥有好消息？
+埃雷拉说，在一个激烈压制异议的国家，这些示威活动尤其值得注意。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2723-e1646029712124.png)2021年10月21日，俄罗斯总统弗拉基米尔·普京在俄罗斯索契举行的瓦尔代讨论俱乐部全体会议上发言。
+图片来源： 盖蒂图片社 （Mikhail Svetlov/Getty Images）
+她告诉福克斯新闻数字频道，“正在上街的人知道他们很可能最终会被关进监狱，我的看法是，在俄罗斯，这将是一场极其不受欢迎的战争，即使是对亲普京的人来说。”
 
-**Nick****：**有大事。
+她说，普京的支持率在1月份为69%，但鉴于他限制了其他政治选择，这个数字具有误导性。
 
-**爱米粒：**什么东西？
+从历史上看，俄罗斯和乌克兰的敌对程度并没有达到可以证明这种暴力入侵的地步。赫雷拉说，乌克兰已经选出了亲俄罗斯的领导人，而且这两个国家认为自己更像是兄弟而不是敌人。
 
-**郭文贵先生：**我们很重要的一关，很重要的一关，今天其中一个，这个是我们告UBS的这个官司，UBS这个官司在伦敦正式立案了，这对我们来讲很大很大。头两天说，听说共产党啊，共产党啊。共产党啊，共产党说“不惜一切代价”，又来了，共产党动不动就不惜一切代价。不惜一切代价不能……
+这位学者解释说，“有很多种族间的画面，乌克兰家庭、乌克兰人被杀的画面，你的普通俄罗斯家庭是不会接受的。”
 
-我说实话在直播前我就不知道这件事情，你们知道这个不是500个million啊。我怎么发给你们？我看看。哎呀，这个事很大呀！你知道这个事儿多大吗兄弟姐妹们？
+自周三攻击开始以来，已有超过57人被杀，169人受伤。除了制裁之外，入侵事件还产生了巨大的社会影响，俄罗斯航空公司被禁止飞往英国，欧洲足球协会联盟将欧洲冠军联赛决赛从圣彼得堡撤走。
 
-**Nick****：**共产党的海外资产要被冻结了。
+埃雷拉说，考虑到普京在入侵顿巴斯地区后基本上取得了胜利，分离主义分子和乌克兰人已经在那里战斗了八年，普京的决定甚至“更加令人费解”。
 
-**郭文贵先生：**UBS咱给它干掉，咱把UBS拿下，拿下共产党的半个财富帝国，半个吧。
+他于周一承认了所谓的顿涅茨克和卢甘斯克人民共和国，并向那里派遣了被他委婉地称为“维和人员”的部队。
 
-编辑整理：Jacques；
+埃雷拉说，“截至上周，他已经实现了很多目标，让大家暂停让乌克兰加入北约”，他指的是美国领导的北约，一个旨在保证其成员安全的政府间军事联盟。
 
-字幕文件制作：兵嫂；
+担任战争研究所主席的美国陆军将军杰克·基恩说，普京的明显目标是占领乌克兰首都基辅并建立一个亲俄政府。
 
-视频制作及上传：Cindy；
+普京说，他不想占领乌克兰，而是想使其“非军事化”。堪萨斯大学助理教授、俄罗斯问题专家Valery Dzutsati说，这位专制的领导人对与一个民主的斯拉夫国家接壤感到不舒服，这个国家看向西方而不是莫斯科。
 
-G-News发布：小满；
+他说：“如果乌克兰是一个蓬勃发展的民主国家，那么它对俄罗斯来说就是一个非常糟糕的例子。普京受到社会革命的威胁，而乌克兰有推翻不受欢迎的政权的历史。”
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+Dzutsati预测说，还有很大一部分俄罗斯人怀念苏联，他们会庆祝让乌克兰回到祖国的怀抱——如果能迅速完成，而且流血事件有限的话。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2724-e1646029766125.png)2022年2月19日星期六，一名乌克兰士兵在乌克兰卢甘斯克地区的Novoluhanske村经过房屋。 (AP Photo/Oleksandr Ratushniak)
+乌克兰是苏联的创始国之一，1991年苏联解体时获得独立。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+但Dzutsati不认为普京的战争野心会止于乌克兰的边界。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+Dzutsati告诉福克斯新闻频道，“假设普京非常迅速地拿下乌克兰，并在几周内迅速建立控制，然后他将继续前进，下一个目标也许将是波罗的海国家之一。”
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+普京的军事行动可能不会像他预期的那样顺利。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UC_h8BevH-vN6xUKQBeLKnMg) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UC9UOGnhaE8rHrz8Ds_-zZHQ)；
+他说：“乌克兰军队已经成为一支更加强大的力量，会有很多战斗和民间抵抗。人民不会轻易屈服。”
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+他补充说，普京控制乌克兰这个拥有4000万人口的国家的唯一方法是通过“大规模的、斯大林式的镇压”。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+Dzutsati预测说：“如果普京失败了，如果他被迫退缩，那么他就完了，他将很快被废黜。”
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+原文连接：[https://www.foxnews.com/us/putin-made-have-overplayed-his-hand-by-invading-ukraine-experts](https://www.foxnews.com/us/putin-made-have-overplayed-his-hand-by-invading-ukraine-experts)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+翻译：洛杉矶盘古农场 – TrueSky
+
+校对：洛杉矶盘古农场 – Mike Li
+
+评论：洛杉矶盘古农场 – Wendy
+
+编辑：洛杉矶盘古农场 – Wendy
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

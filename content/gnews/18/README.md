@@ -2,39 +2,60 @@
 ---
 
 
-## 澳洲反腐调查认定新州工党的捐款来自悉尼星亿赌场
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2078990/)
+## 中共威胁下台湾人70年战战兢兢, 下金蛋的香港被灭掉
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2079071/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+G-TV视频链接：[https://gtv.org/video/id=62164ac31408ee3a03a3c890](https://gtv.org/video/id=62164ac31408ee3a03a3c890)
 
-#### 整理：围剿维尼熊
-编辑：小红帽
+**郭文贵先生：**台湾人活在战战兢兢，裤子都提不上的，吓成70年如一日。让欲占……，按，七哥怎么唱的？是不是？他会–,怎么唱?我唱不起来，调不起来,文艺啊。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/sfx254573.jpg)图片来源：TICKETEK
+（郭先生唱《一帘幽梦》）
 
+为何我要灭共，是谁带来苦痛，
 
-根据澳大利亚人报中文网2月28日报道，新州反腐败独立委员会（ICAC）认定，新州工党接受的一笔非法的10万元的现金捐款来自于中共国的亿万富豪黄向墨。
+多少愤恨在心中，唯有战友能懂，
 
-ICAC还认定，前新州上议院议员王国忠（Ernest Wong）在一项规避选举资金法律的计划中，滥用其作为州立法会成员的特权，从事了严重的腐败行为。
+它毁香港圣城，犯下罪孽深重，
 
-ICAC的“Aero行动”对一项涉嫌非法的计划展开调查。该计划为新州工党和乡村工党争取到的现金捐款，是在2015年新州选举前举行的筹款晚宴中收到的。该调查还审查了参与所涉计划的个人是否合谋作假证，试图阻止新州选举委员会和ICAC曝光该计划。
+欲占台湾大一统，终是黄粱一梦，
 
-最后，ICAC认定这笔捐款来自黄向墨在悉尼星亿赌场（The Star）的“junket中介账户”。
+谁与七哥灭共，打破千年的牢笼，
 
-根据新州法律，作为房地产开发商，黄向墨被禁止向新州政党提供任何资金。黄向墨拒绝配合ICAC对涉嫌非法捐款进行的调查，但否认作出任何不适当的政治捐款。
+中华儿女多英雄，今朝盘古必相逢。
 
-ICAC正在就是否应该启动任何起诉征求公诉检控局（Director of Public Prosecutions）的意见，称应该考虑起诉黄向墨、王国忠以及其他十几个人和实体。
+**郭文贵先生：**哎呀，唱起来了吧？台湾就喊出来了吧。文艺，七哥这嗓子，我文艺是我的第二个老师啊。唐平、威廉王，后来文艺真的，我跟真文艺学了很多很多，我特别感谢。她这种执着，她的认真，唱了很多歌，她很多好歌没推起来，但是她做了很多很多，特别特别感谢文艺。
 
-参考链接：[突发！ICAC反腐调查认定对新州工党的10万现金捐款来自黄向墨的悉尼赌场账户](https://cn.theaustralian.com.au/2022/02/28/64057/)
+所以说你看看，它还要把它“欲占台湾大一统” 。 “谁与七哥灭共？”这句话是我100%我写的啊，“欲占台湾”这是我说，这首歌我唱给台湾。然后“香港犯下罪行”，这是我写的。这三句话，是这个歌词我改的核心，“为何我要灭共？”写给台湾，“欲占台湾”，“毁掉香港圣城”，这是100%我写的。这个歌的来路它就这么来的。而且这个歌，咱那个战友，把我唱得掉眼泪的战友，哭着唱给我的战友，这一系列的原因。
 
-*发布：*Frank2021
+你想到这个共产党对台湾这种威胁，你能想过70年来，五六十年，台湾国民党，你看看这大陆给它造谣编造的谎言。有谁还在乎共产党编了国民党那些谣言呢？有谁想过国民党走之后它杀地主、灭地主，要给大家每人都分土地，还都当地主的，都可以睡地主老婆和闺女。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+你啥时候想过今天的台湾人民是来自大陆，过上这个世界人民所尊重的生活，民主自由的生活。你什么时候想过，它能敢把香港的下蛋的老金鸡给灭成这样呢？
+
+编辑整理：Jacques；
+
+字幕文件制作：兵嫂；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UC_h8BevH-vN6xUKQBeLKnMg) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UC9UOGnhaE8rHrz8Ds_-zZHQ)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

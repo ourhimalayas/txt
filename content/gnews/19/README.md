@@ -2,41 +2,28 @@
 ---
 
 
-## 联合国将针对俄乌局势召开本世纪首次紧急会议
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2078913/)
+## 原油跳涨而卢布暴跌至历史低点
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2079058/)
 
-##### 整理：围剿维尼熊
-编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-26.jpg)原油跳涨而卢布暴跌至历史低点 网络图片
+据路透社2月28日报道，原油周一跳涨，俄罗斯卢布兑美元暴跌近30%，至纪录低位119卢布。创下纪录新低。西方国家因俄罗斯入侵乌克兰而对其实施新的制裁，包括将部分银行剔除出环球银行金融电信协会(SWIFT)。
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/安理会就乌克兰局势举行会议.jpg)本月27日，安理会就乌克兰局势举行会议。图片：UN Photo/Loey Felipe & 雅典娜设计组
+俄罗斯总统普京周日将核威慑力量置于高度警戒状态。紧张局势升级加剧了对世界第二大产油国俄罗斯的石油供应可能中断的担忧，推动布兰特原油上涨4.21美元或4.3%，至每桶102.14美元。美国西德克萨斯中质油(WTI)期货上涨4.58美元或5.0%，报每桶96.17美元。
 
-据德国之声中文网2月28日报道，联合国安理会周日投票决定，将在本周针对俄乌战争召开一次联合国大会的紧急会议。
+新闻参考链接： [https://cn.reuters.com/article/global-market-asia-stocks-ukraine-0228-idCNKBS2KX05W](https://cn.reuters.com/article/global-market-asia-stocks-ukraine-0228-idCNKBS2KX05W)
 
-联合国大会自1950年以来，只举行过11次紧急会议。安理会的15个成员国中，有11个成员国针对会议的决议投了赞成票，俄罗斯投了反对票，中共国（PRC）、印度与阿拉伯联合酋长国则投了弃权票。
+* * *
 
-西方国家还计划本周在联合国针对俄罗斯入侵乌克兰一事采取其他外交行动。联合国安理会将于28日举行会议，讨论在乌克兰严峻的人道主义情势。联合国的最高难民和紧急援助官员将在同一天向安理会通报情况。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-俄罗斯大使涅本齐亚（Vassily Nebenzia）指责西方国家搞阴谋诡计，向各国施压，推动针对俄罗斯的行动，而不是寻找共识。
 
-乌克兰驻联合国大使基斯利茨亚（Sergiy Kyslytsya）则说，乌克兰一直希望进行和平谈判，该国一个代表团正试图找到一条前往白俄罗斯边境的安全路线进行谈判。
+编辑：【英国伦敦喜庄园编辑部】
 
-欧盟委员会主席冯德莱恩（Ursula von der Leyon）表示，欧盟在历史上首次为一个受到攻击的国家购买武器。周日欧盟外长同意为乌克兰购买武器和设备编列4.5亿欧元的预算，波兰也同意作为运送武器的物流中心。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-冯德莱恩表示，欧盟将对俄罗斯拥有的、注册的或控制的飞机关闭其领空，而该禁令将适用于俄罗斯寡头的私人飞机。此外，欧盟将采取措施阻止俄罗斯的媒体机器在欧盟营运。
 
-欧盟外交政策负责人博雷尔（Josep Borrell）表示，欧盟此举的目的是关闭俄罗斯在欧洲发布虚假信息的源头。
-
-参考链接：[俄乌情势：联合国将开紧急会议 欧盟军援乌克兰](https://www.dw.com/zh/%E4%BF%84%E7%83%8F%E6%83%85%E5%8B%A2%E8%81%AF%E5%90%88%E5%9C%8B%E5%B0%87%E9%96%8B%E7%B7%8A%E6%80%A5%E6%9C%83%E8%AD%B0-%E6%AD%90%E7%9B%9F%E8%BB%8D%E6%8F%B4%E7%83%8F%E5%85%8B%E8%98%AD/a-60939862) | [安理会决定就乌克兰局势召开本世纪第一届联大紧急特别会议](https://news.un.org/zh/story/2022/02/1099842)
-
-*发布：Mttfly*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

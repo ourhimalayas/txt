@@ -2,41 +2,27 @@
 ---
 
 
-## UBS是沼泽地的核心,郭文贵先生诉UBS是沼泽地第一仗
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2079114/)
+## 有声｜亚裔现身南北加州乌克兰裔集会 抨击中俄两国当局
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2079182/)
 
-G-TV视频链接：[https://gtv.org/video/id=62164b201408ee3a03a3c89b](https://gtv.org/video/id=62164b201408ee3a03a3c89b)
+By:**秘翻新闻**
 
-**郭文贵先生**：UBS是唯一的，大家要记住啊，是唯一的，永远要记住是唯一的一个，被中国共产党建国以来批准的海外的外国银行，有外国独立经营牌照的。大家一定要记住，它这个意义太大了，太大了，太大了！
+**2022-02-28**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5-56.png)图片来源 （孙诚拍摄）
+[据自由亚洲2月27日报道，在2月26日中午，旧金山渡轮大厦前有约千人参加的支持乌克兰集会中，有数十名香港人来到现场，举起了一条写有“香港人与乌克兰站在一起”的象征乌克兰的蓝黄两色横幅。](https://www.rfa.org/mandarin/yataibaodao/gangtai/sc-02272022152819.html)
 
-那么我跟你说，国民党当年，还有台湾，在UBS的钱是当时，是一分都没有给了，然后就是帮了、当时把台湾黑得很大，跟了共产党。这个孙子，咱们要不把它，这就是沼泽地的核心，这一仗是沼泽地的第一仗。记住我说的话啊，我第一次说这话。
+[报道称，来自香港的湾区居民戴（Tai）先生表示，站出来支持乌克兰人与他的族裔身份无关。因为这是正义与邪恶的关系，我不会只因为香港的事情出来的。在美国这么自由的社会，我们能来这里，就更加要为公义站出来。”](https://www.rfa.org/mandarin/yataibaodao/gangtai/sc-02272022152819.html)
 
-编辑整理：Jacques；
+[据报道，参加本次集会的人士，有来自乌克兰、白俄罗斯、波兰、阿塞拜疆、哈萨克斯坦等许多国家的人士。人们在集会中齐唱乌克兰国歌，挥舞着多国的国旗和反对普京的标语，并上台发表演说。](https://www.rfa.org/mandarin/yataibaodao/gangtai/sc-02272022152819.html)
 
-字幕文件制作：兵嫂；
+[美国香港人会馆代表布鲁斯上台演讲，向台下的民众发出了“战斗，战斗，战斗！”的呼吁，引起了人们的欢呼。这已经不是该团体首次参与支持乌克兰的集会。此前，在2月24日旧金山市政厅前的支持乌克兰集会中，也有十余名手持“光复香港，时代革命”旗帜的港人参加。](https://www.rfa.org/mandarin/yataibaodao/gangtai/sc-02272022152819.html)
 
-视频制作及上传：Cindy；
+秘翻新闻 二丫编辑报道
 
-G-News发布：小满；
+发布 : 恩典
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UC_h8BevH-vN6xUKQBeLKnMg) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UC9UOGnhaE8rHrz8Ds_-zZHQ)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
