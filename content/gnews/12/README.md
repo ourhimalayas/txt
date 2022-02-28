@@ -2,10 +2,10 @@
 ---
 
 
-## 欧盟将切断部分俄罗斯银行与SWIFT的联系
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079444/)
+## 川普在保守党政治行动大会上谴责俄罗斯对乌克兰的袭击
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079448/)
 
-02/26/2022 爆炸性新闻：欧盟委员会主席乌苏拉·冯德莱恩宣布，欧盟、英国和美国已承诺切断几家俄罗斯银行同SWIFT全球银行间支付系统的联系。
+02/26/2022 川普在保守党政治行动大会上谴责俄罗斯对乌克兰的袭击。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

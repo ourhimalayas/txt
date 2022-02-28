@@ -2,34 +2,23 @@
 ---
 
 
-## 私营银行提议帮助墨西哥创建数字货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2079358/)
+## 02/13文贵大直播：大卡车运动来源于文贵策划的香港运动（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079354/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+2022 年 2 月 13 日文贵大直播:
 
-#### 翻译/编辑：小红帽
+1. 大卡车运动来源于文贵先生在香港策划的香港运动，这开启了人类和平对抗暴政的方法
+2. 芯片产业、大型货运、石油产品、俄罗斯有关的金属产品都会暴涨，虚拟货币是大赢家
+3. 制造芯片的八大材料有 3 个来自俄罗斯
+4. 乌克兰、德国、挪威、丹麦、立陶宛、拉脱维亚都欢迎美军入驻
+5. 所有去北京奥运会的运动员都会被清算，他们只能骂
+6. 由共产党加入开始，奥林匹克完全是犯罪组织，WTO、WHO 全部都是犯罪组织，联合国人权委员会竟然让共产党说了算
+7. 1989 年开始文贵从来没在乎过荣誉和面子，我只在乎战友，世界媒体从来没帮郭文贵说话一句真话
+8. 从灭共那一天开始，我就没想过拥有钱，我就想把我的智慧和创造财富的能力成为灭共的工具，从来没想过变成我谋财的工具
+9.我们是无苗灭共者
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a3fa1b9059e69050.jpg)图片来源： /www.centralbanking.com
 
-
-根据Bitcoin.com 2月28日报道，墨西哥的私营银行希望与该国中央银行共同努力，创建一种新的数字货币。墨西哥银行协会（ABM）主席会见了墨西哥银行行长，为未来创建国家数字货币提供了私营银行集团的帮助。
-
-墨西哥银行协会的成员已经表示，他们打算帮助该国中央银行设计和发行潜在的中央银行数字货币（CBDC）。该协会主席丹尼尔·贝克尔（Daniel Becker）会见了墨西哥银行行长维多利亚·罗德里格斯·塞哈（Victoria Rodríguez Ceja），审查了一些使墨西哥公民更容易获得银行有关服务的重要因素。
-
-关于这次会面，贝克尔表示：“如果墨西哥确定银行的意见可以帮助其建立更好的元素或加密货币，请依据我们和最好的银行建议，这样才能激发并拥有更有效和更强大的金融系统，从而达到更多墨西哥人使用的目的”。
-
-贝克尔还欢迎引入数字货币以降低交易成本，并利用区块链实现更好的互操作性。
-
-参考链接：[Private Banks Propose to Help Design Digital Currency in Mexico](https://news.bitcoin.com/private-banks-propose-to-help-design-digital-currency-in-mexico/)
-
-*发布：*Frank2021
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
