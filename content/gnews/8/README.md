@@ -2,38 +2,27 @@
 ---
 
 
-## 大直播后记：现代化战争是智慧的战争
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2083171/)
+## 有声|香草山翻译部周刊|2022年2月27日第37期
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2083378/)
 
-#### 整理：清水冷香、Lucy Liu
-编辑：Mohegayer K. Simon
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-35.png)图片来源：墨尔本雅典娜农场设计组
-心理学、社交学、人际关系学、政治学、国际政治关系学，特别是现代社交媒体里边，最重要的就是战争心理研究的战争逻辑。乌克兰玩绝了，而且这个时候人家交了一大堆朋友——波兰、捷克。你们的战争就是我们的战争。你不要小看了，这是俄罗斯的死敌呀。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS-1.jpg)
 
-你看咱们中国人海外的欺民贼、民运。我们要灭共，这帮孙子要灭我们，他就没闹明白共产党是你们这帮人的敌人，都啥时候了，你还怎么取利弊呢？在生死面前是没有利没有弊的，只有敌我的关系。
+文字版原文：[香草山翻译部周刊|2022年2月27日第37期](https://gnews.org/zh-hans/2077212/)
 
-乌克兰充分的利用这一条，让人认识到我的威胁就是你的威胁，我的战争就是你的战争，甚至让欧联盟在全世界面前一下子羞愧难当。马克龙说，哎呀，对不起，哥们儿，我这真是帮不了你。英国说，哥们儿，真对不起啊。连美国都说，你看这事确实不关美国事儿，咱也不是北约组织，也不是欧洲成员，我美国也没有帮助你的权利。美国这时候在旁边说，你们先打吗？你们打打嘛，叫你们背后老板出来嘛，就是中共嘛。你们先打。美国人在后面别着枪，在这儿一直掩藏后面那两杆枪，是吧，就等着，打嘛，瞄着后面那个人，是谁让他打的，谁戳动他打的，谁给他钱的。
+音频处理：Fei797
+发稿：Fei797
 
-老美太聪明了，你这一比兄弟，就咱中国人什么天天“美帝国主义，打倒美帝国主义，美国到处死人啦，都不行了”。中国人，你但凡到美国来转一圈你就知道，你就别说过去，也别说现在，也不是明天，就今天你认为强大的中国在任何角度跟美国比，是太阳和地球的差距，不是银河和地球的差距，不是银河无限大，地球一粒沙，你连个毛都不是。美国这个社会的科学能力，整个的经济能力，创新能力，还有人家的战略，人家整个国际战略，还有整个的宗教信仰。你跟人家比是啥呀？
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-就像国内的，我回到老家啊，我们老家那人，从小跟我一起长大的，坐那儿给他随便吃烧鸡喝酒，他会问出我很多话出来，哎呀，老七啊，这个你这钱也不够花的吧？你这也是缺钱吧啊。你说他问这话，我缺钱，我缺啥钱？你缺的是啥钱是吧？你在老家的地方吃只鸡就很大的事了。他天天惦记着我缺钱，我说我缺钱，天天缺钱，很缺钱。嗯啊，是吧？你那个楼能盖完吗？那得需要好几千好几万，是吧？我说是，需要好几十亿呢。哪里要那么多钱呢？还不如在老家种地好呢，你老家种地多好啊，我这很轻松。你睡得着觉吗？我说我睡不着觉，你想哪咋能睡着觉呢，是吧？就老家这种人来衡量我，他就不知道啊。
-
-资料来源：[2022年2月27日文贵大直播](https://gtv.org/video/id=621b7633019ef64da651ee6c)
-
-发布：wenly
-
-更多资讯，请关注：
-
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

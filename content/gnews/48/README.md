@@ -2,38 +2,12 @@
 ---
 
 
-## 全球各国对乌克兰的游行支持
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2079130/)
+## 中共外交部称美国没资格告诉中方如何尊重国家主权
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2079777/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月27日，多家媒体报道，俄罗斯入侵乌克兰，引发了强烈的全球民众抗议。世界多个国家的老百姓都举行了大规模游行，谴责战争。
+02/24/2022 中共外交部战狼式发言人华春莹：关于如何尊重国家主权和领土完整，美方恐怕没有资格来告诉中方怎么做。
 
-从俄罗斯本土，到伦敦、纽约、德黑兰，从欧洲到美洲，数千人走上街头，支持乌克兰，抨击俄罗斯。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture00-3.jpg)
-民众自制的标语包括，支持乌克兰，要求普京下台，并把普京比作希特勒纳粹，敦促世界各国政府加强对俄罗斯的制裁。据不完全统计，上街游行的地区有意大利的罗马、瑞士、奥地利的维也纳、芬兰、法国的马赛和蒙彼利埃、西班牙的巴萨罗那、英国、以色列、爱沙尼亚、格鲁吉亚、阿根廷、加拿大等等，甚至在中共国墙内，都有勇士举着支持乌克兰的旗子。
-
-俄罗斯驻各国大使馆的俄罗斯人也有人积极加入当地的反战游行，和本土的俄罗斯人一样为这个国家对乌克兰发动的战争表示谴责和耻辱，称这是全人类的灾难。
-
-参考链接：
-1. [全球各国对乌克兰的游行支持](https://mb.com.ph/2022/02/27/russia-out-worldwide-protests-in-solidarity-with-ukraine/)
-2. [全球各国对乌克兰的游行支持](https://gettr.com/post/px49u7764b)
-3. [全球各国对乌克兰的游行支持](https://gettr.com/post/px47541993)
-
-![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
-
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
