@@ -2,8 +2,8 @@
 ---
 
 
-## 如何专业推广Hpay
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2078773/)
+## Hpay现在是转账系统 非商业系统
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2078788/)
 
 台灣寶島農場
 

@@ -2,29 +2,28 @@
 ---
 
 
-## 新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2078209/)
+## 日本新增病毒感染近6.3万人死亡142 人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2078098/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2282.jpg)
+撰稿：东京樱花团/向海
 
-为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/日本新增病毒感染近6.3万人死亡142-人.jpg)[图片来源](https://www.digitalmarketingforasia.com/the-impact-of-the-covid-19-pandemic-on-advertisers-in-japan/)
 
-救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。
+27日夜间，日本新型冠状病毒公布了6万3703例新感染病例。
 
-24小时救援联系方式如下：
+东京都政府当日宣布新增感染1万0321 人。 比上周日减少2614人，连续8天低于前一周同一天。过去 7 天的平均新增感染人数为 1万1141 人，约为上周的 75%。
 
-邮箱：
-[\[email protected\]](/cdn-cgi/l/email-protection) 或 
-[\[email protected\]](/cdn-cgi/l/email-protection)
-电话和短信：+1 720-657-6776 或 +1 719-224-4232
+另一方面，根据 JNN 的摘要，全国宣布的新感染人数为 6万3703 人。 按都道府县划分，东京以外顺次多的城市是大阪、神奈川和埼玉。
 
-新中国联邦
-法治基金
-2022年2月26日
+此外，全国已住院的感染者中有1482人病情严重，新增死亡病例142人。
 
-**审核校对：Barry Jack
-上传排版：V在途中**
+信息来源：
 
+[新型コロナ 全国の新規感染者数6万3703人 死者142人](https://news.yahoo.co.jp/articles/bb48983d623c96bec05d98453e165532012f0c2f)
+
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

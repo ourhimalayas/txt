@@ -2,8 +2,8 @@
 ---
 
 
-## Hpay现在是转账系统 非商业系统
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2078788/)
+## HDO、 H-coin、GTV、GNEWs、Gettr、Gfashion 是灭共力量
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2078797/)
 
 台灣寶島農場
 

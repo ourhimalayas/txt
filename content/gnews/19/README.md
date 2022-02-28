@@ -2,11 +2,17 @@
 ---
 
 
-## 习和普在冬奥委会上的密谋
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2078712/)
+## 20220226郭文贵紧急直播：在生死面前，新中国联邦什么人都救！
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2078679/)
 
-台灣寶島農場
+作者：东京樱花团小视频组
 
+校对：东京樱花团小视频组
+
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

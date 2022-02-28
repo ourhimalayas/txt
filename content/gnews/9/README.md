@@ -2,26 +2,21 @@
 ---
 
 
-## 美国敦促在俄罗斯的美国公民“立即”离开该国
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2078810/)
+## 雅典娜时报-第218期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2078856/)
 
-#### 撰稿：彩虹
+#### 《雅典娜时报》汇聚全球新闻时事
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-61.jpg)图片来源：Xpert Times
-据《国会山报》2月27日报道，面对莫斯科正在入侵乌克兰，美国正在敦促目前仍在俄罗斯的（美国）公民考虑“立即”离开该国。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/947688847624531988/155_10.png?width=762&amp;height=1135)![圖片](https://media.discordapp.net/attachments/825592691433668612/947688848043966504/155_11.png?width=762&amp;height=1135)
+*发布：陶子*
 
-据路透社报道，这一安全警报的发出，正值更多国家对俄罗斯航空公司关闭其领空之际，这些国家包括英国、波兰、捷克共和国和罗马尼亚。
-
-周日，美国驻俄罗斯大使馆在一份安全警报中写道：“越来越多的航空公司正在取消进出俄罗斯的航班，许多国家已经对俄罗斯的航空公司关闭了领空。美国公民应该考虑立即通过仍然可用的商业选择离开俄罗斯。”
-
-文章说，俄罗斯军队于周日进入乌克兰第二大城市哈尔科夫（Kharkiv）。然而，俄罗斯的入侵因乌克兰军队和公民个人的抵抗而放缓。
-
-报道指，乌克兰和俄罗斯现在定于参加在乌克兰和白俄罗斯边境举行的和平谈判，但是，普京同时已经命令俄罗斯的核力量处于高度戒备状态。
-
-**新闻来源**
-
-[US urges citizens in Russia to consider leaving ‘immediately’](https://thehill.com/policy/international/596055-us-urges-citizens-in-russia-to-consider-leaving-immediately)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
