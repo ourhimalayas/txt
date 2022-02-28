@@ -15,59 +15,59 @@
 
 ---
 
-### [2/27/2022 文贵直播： 台海战争中不会打信息战，台湾军队相对于共军的优势是技术战、电子战；台湾士兵的心态和共匪士兵有何区别？](/content/gnews/1/README.md)
+### [视频|俄罗斯否决联合国谴责性决议 中共投弃权票](/content/gnews/1/README.md)
+ ` MOSVIDEO`
+
+### [2/27/2022 文贵直播： 台海战争中不会打信息战，台湾军队相对于共军的优势是技术战、电子战；台湾士兵的心态和共匪士兵有何区别？](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [新中国联邦启动乌克兰人道主义救援行动](/content/gnews/2/README.md)
+### [新中国联邦启动乌克兰人道主义救援行动](/content/gnews/3/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [新的货币金融体系正在形成 未来数字货币将会和新型法币并存](/content/gnews/3/README.md)
- ` 焦點20分`
-
-### [视频|一名乌克兰士兵为了阻止俄军的入侵而自我引爆](/content/gnews/4/README.md)
- ` MOSVIDEO`
-
-### [金融核武器——SWIFT](/content/gnews/5/README.md)
- ` 纽约香草山MOS03`
-
-### [有声|UBS案揭示西方黑暗沼泽地与中共勾兑的卑略行径](/content/gnews/6/README.md)
- ` MOSREC`
-
-### [视频|马斯克开通乌克兰上空星链服务](/content/gnews/7/README.md)
- ` MOSVIDEO`
-
-### [世界局势动荡 是中西方宗教 文化 政治体系的大碰撞 新中国联邦是黑暗中的灯塔](/content/gnews/8/README.md)
- ` 焦點20分`
-
-### [美国及世界疫情简报（02-28-2022）](/content/gnews/9/README.md)
- ` 波士顿五月花农场`
-
-### [视频|世界各国政要名人对俄罗斯表示谴责](/content/gnews/10/README.md)
- ` MOSVIDEO`
-
-### [澳洲东部暴雨洪灾累计4死2失踪](/content/gnews/11/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [习近平攻台的根本原因是因为共产党内部危机 第三次世界大战已经打响](/content/gnews/12/README.md)
- ` 焦點20分`
-
-### [世界银行行长警告：俄罗斯入侵乌克兰的行动将给全球金融带来可怕后果](/content/gnews/13/README.md)
- ` 首尔天池农场`
-
-### [新中国联邦紧急启动人道救援行动](/content/gnews/14/README.md)
+### [新中国联邦以行动向世界诠释正道主义](/content/gnews/4/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [核爆炸应急指南](/content/gnews/15/README.md)
+### [新的货币金融体系正在形成 未来数字货币将会和新型法币并存](/content/gnews/5/README.md)
+ ` 焦點20分`
+
+### [视频|一名乌克兰士兵为了阻止俄军的入侵而自我引爆](/content/gnews/6/README.md)
+ ` MOSVIDEO`
+
+### [金融核武器——SWIFT](/content/gnews/7/README.md)
  ` 纽约香草山MOS03`
 
-### [有声|新中国联邦将在乌克兰参与国际救援行动](/content/gnews/16/README.md)
+### [有声|UBS案揭示西方黑暗沼泽地与中共勾兑的卑略行径](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [首尔：北韩发射一枚不明弹药](/content/gnews/17/README.md)
- ` xiaobaige`
+### [视频|马斯克开通乌克兰上空星链服务](/content/gnews/9/README.md)
+ ` MOSVIDEO`
 
-### [2/27/2022 文贵直播：在台海战争问题上，若美国要维持国际秩序就必须大胆动手；若美国意在重建世界秩序，则全世界人类要付出巨大代价](/content/gnews/18/README.md)
- ` 秘密翻译组-北美组`
+### [世界局势动荡 是中西方宗教 文化 政治体系的大碰撞 新中国联邦是黑暗中的灯塔](/content/gnews/10/README.md)
+ ` 焦點20分`
+
+### [美国及世界疫情简报（02-28-2022）](/content/gnews/11/README.md)
+ ` 波士顿五月花农场`
+
+### [视频|世界各国政要名人对俄罗斯表示谴责](/content/gnews/12/README.md)
+ ` MOSVIDEO`
+
+### [澳洲东部暴雨洪灾累计4死2失踪](/content/gnews/13/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [世界银行行长警告：俄罗斯入侵乌克兰的行动将给全球金融带来可怕后果](/content/gnews/14/README.md)
+ ` 首尔天池农场`
+
+### [新中国联邦紧急启动人道救援行动](/content/gnews/15/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [核爆炸应急指南](/content/gnews/16/README.md)
+ ` 纽约香草山MOS03`
+
+### [有声|新中国联邦将在乌克兰参与国际救援行动](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [首尔：北韩发射一枚不明弹药](/content/gnews/18/README.md)
+ ` xiaobaige`
 
 ### [一旦对台开战 中共将断网断电关闭领空](/content/gnews/19/README.md)
  ` NFSC News`
@@ -117,47 +117,47 @@
 ### [俄乌两国在周一将会在白俄罗斯举行谈判](/content/gnews/34/README.md)
  ` 澳喜农场`
 
-### [新西兰财经G乐部2022年2月28日:财经新闻整理](/content/gnews/35/README.md)
+### [医院遗体堆积 议员倡加快处理流程](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新西兰财经G乐部2022年2月28日:财经新闻整理](/content/gnews/36/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [比尔·格茨：若普京不败于乌克兰，习近平将试图夺取台湾](/content/gnews/36/README.md)
+### [比尔·格茨：若普京不败于乌克兰，习近平将试图夺取台湾](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国防部为攻打台湾造势](/content/gnews/37/README.md)
+### [中共国防部为攻打台湾造势](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共外交部称美国没资格告诉中方如何尊重国家主权](/content/gnews/38/README.md)
+### [中共外交部称美国没资格告诉中方如何尊重国家主权](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [墙内一开智网民谈为何支持乌克兰](/content/gnews/39/README.md)
+### [墙内一开智网民谈为何支持乌克兰](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻新闻｜俄罗斯遭踢出SWIFT系统 乌克兰有望加入欧盟](/content/gnews/40/README.md)
+### [秘翻新闻｜俄罗斯遭踢出SWIFT系统 乌克兰有望加入欧盟](/content/gnews/41/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [港闻｜民主派初选案未审先囚一周年 审讯日期一再押后 遥遥无期](/content/gnews/41/README.md)
+### [港闻｜民主派初选案未审先囚一周年 审讯日期一再押后 遥遥无期](/content/gnews/42/README.md)
  ` 關注組`
 
-### [俄乌战争｜金融制裁效果初现 全球最大主权基金即时冻结旗下俄罗斯资产](/content/gnews/42/README.md)
+### [俄乌战争｜金融制裁效果初现 全球最大主权基金即时冻结旗下俄罗斯资产](/content/gnews/43/README.md)
  ` 關注組`
 
-### [2022年2月27日郭先生盖特 — 视频1「3分26秒」](/content/gnews/43/README.md)
+### [2022年2月27日郭先生盖特 — 视频1「3分26秒」](/content/gnews/44/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [“55天法则” 明天到期](/content/gnews/44/README.md)
+### [“55天法则” 明天到期](/content/gnews/45/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国将制裁普京、拉夫罗夫和其他俄罗斯官员](/content/gnews/45/README.md)
+### [美国将制裁普京、拉夫罗夫和其他俄罗斯官员](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [喜币支付傲群雄](/content/gnews/46/README.md)
+### [喜币支付傲群雄](/content/gnews/47/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【秘翻在线】救国心切！海外乌克兰人纷纷回国驰援](/content/gnews/47/README.md)
+### [【秘翻在线】救国心切！海外乌克兰人纷纷回国驰援](/content/gnews/48/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [2022年2月27日大直播速记精萃](/content/gnews/48/README.md)
- ` 雅典娜GNotes`
 
 ### [三年前扮演总统的喜剧演员, 今日领军对抗俄军](/content/gnews/49/README.md)
  ` 秘密翻譯組G-Translators`
