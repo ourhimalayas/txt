@@ -2,43 +2,29 @@
 ---
 
 
-## 有声|明斯克协议
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2077307/)
+## 马斯克在乌克兰启动“星链”服务 支持抗俄
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2077348/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-“明斯克协议”，是在顿巴斯战争爆发后，乌克兰政府与乌克兰东部的顿涅茨克人民共和国、卢甘斯克人民共和国两个政权的代表，于2014年9月5日，在白俄罗斯首都明斯克签订的停火协议。2015年2月，相关各方又签订了新明斯克协议，内容包括，根据乌克兰法律，各方就顿涅茨克和卢甘斯克的临时自治政府展开对话，并透过国会决议承认其特殊地位。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/minsk.png)
-2022年2月，媒体曝光了一份1991年的机密文件，文件显示，在德国统一谈判期间，英、美、法、德外交官曾向前苏联承诺，北约不会东扩。
+撰稿：东京樱花团/闻雨
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-130.png)
+应乌克兰政府的要求，SpaceX公司负责人伊隆-马斯克2月26日表示，他的公司已经在乌克兰推出了Starlink互联网通信卫星服务。
 
-1994年12月，美国、英国、俄罗斯和乌克兰签署了《布达佩斯备忘录》。乌克兰根据该备忘录销毁了核武器和洲际导弹，意欲与美国和欧盟结盟，并通过宪法修正案，将加入欧盟和北约作为国家基本方针写入了宪法。
+马斯克在Twitter上写道：”Starlink服务现已在乌克兰提供。我们正在运载更多的终端”。
 
-2022年2月21日，俄罗斯宣布承认顿涅茨克、卢甘斯克独立。
+该服务的推出是应乌克兰副总理兼数字转型部长Mykhailo Fedorov的要求。在马斯克先生发帖前10小时，这位副总理在Twitter上写道：”当你试图殖民火星的时候，俄罗斯正试图占领乌克兰！”。 当你们的火箭弹成功着陆时，俄罗斯的火箭弹正在攻击乌克兰公民！”。
 
-2月22日，俄罗斯总统普京正式宣布，明斯克协议不复存在。
+根据监测世界各地互联网连接的英国组织NetBlocks的数据，自俄罗斯入侵以来，乌克兰已经出现了一些互联网中断的情况。
 
-2月24日，俄罗斯正式入侵乌克兰。
+支持乌克兰有很多方法。G7各国将俄罗斯的银行排除在SWIFT之外，像SpaceX这样的民间企业提供帮助，还有我们每一个有良知的人可以用笔、用键盘或一部智能手机来抗议独裁者。
 
+为乌克兰的和平祈祷！
 
+信息来源：[マスク氏、ウクライナで衛星ネットサービス開始Ａ](https://news.yahoo.co.jp/pickup/6419516)
 
-文字版原文：[明斯克协议](https://gnews.org/zh-hans/2070441/)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

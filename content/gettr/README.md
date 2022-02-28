@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/27/2022 11:59 PM (UTC)`
+
+2/27/2022 Miles Guo: 2/27/2022 Miles Guo: By reporting on the brutality of the war and the atrocities committed by the Russian troops, Ukraine's president has managed to get Russia into the Tacitus trap by launching information warfare using social media, and he also got Europe to help with Ukraine's GPS and cyber control. This is the world's first AI-involved war!<br/><br/>2/27/2022 文贵直播：乌克兰总统通过报道战争的残酷和俄军暴行，用社交媒体信息战让俄罗斯进入塔西佗陷阱，并让欧洲为其GPS和网络控制提供了帮助，这是世界上第一次AI参与的战争！<br/>
+![img](https://media.gettr.com/group46/getter/2022/02/27/23/71d9b5f7-cca5-a6b1-9dd7-c1c0ac7c9429/out.jpg)
+
+---
+
 `@miles 2/27/2022 11:14 PM (UTC)`
 
 2/27/2022 Miles Guo: Taiwan will win if it can withstand the CCP’s attack for 3 hours, and then the US, Japan, and Australia will even directly participate in the war. The US can destroy the CCP’s 30,000 military bases in 3 minutes. Although the CCP may threaten with nuclear weapons, the Taiwanese troops will definitely fight with all its might.<br/><br/>2/27/2022 文贵直播：台湾能抵挡住中共3小时的攻击就赢了，美日澳甚至会直接参战，美国3分钟可解决3万个共匪基地；虽然共匪可能会用核武器威胁，但台湾军队必将大战一场
@@ -144,13 +151,6 @@ February 26th, 2022, Mr. Miles Guo’s Urgent Livestream: our rescue operation i
 
 2/26/2022 Miles Guo’s Urgent Livestream: Everyone participating in the Ukrainian rescue operation of the NFSC must obey commands. <br/><br/>2/26/2022 文贵紧急直播：参与新中国联邦的乌克兰救援行动的所有人都要服从命令
 ![img](https://media.gettr.com/group32/getter/2022/02/27/05/e3282653-0e81-c9fe-47e3-698a3c192b73/out.jpg)
-
----
-
-`@miles 2/27/2022 3:10 AM (UTC)`
-
-2/26/2022 Miles Guo’s Urgent Livestream:  Palau is an ideal place for rescuing Taiwanese fellow fighters and compatriots; everybody must follow arrangements and comply with  instructions or rules of international rescue<br/><br/>2/26/2022 文贵紧急直播：帕劳是个非常好的营救台湾战友和同胞的一个基地；大家要听从统一安排，遵守国际营救规则
-![img](https://media.gettr.com/group36/getter/2022/02/27/03/ab232354-ed59-9b26-4830-ed14bd22aa77/out.jpg)
 
 ---
 

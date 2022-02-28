@@ -2,20 +2,10 @@
 ---
 
 
-## 乌克兰用针刺导弹对付俄罗斯入侵的坦克
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2077552/)
+## 2/27/2022 文贵直播：乌克兰总统开创了国际政坛的先河：1）作为真正的民选总统，他挺身而出，他和他家人都没跑路；2）在美欧不理他的时候，他并未和西方翻脸，所以被评为“政治绅士”
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2077587/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
-
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+秘密翻译组-北美组
 
  
 

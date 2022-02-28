@@ -2,39 +2,25 @@
 ---
 
 
-## 有声|俄罗斯全面发动入侵乌克兰的战争
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2077291/)
+## 岸田首相对俄罗斯SWIFT制裁 冻结普京资产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2077335/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间2月24日凌晨，据盖特和其他媒体消息显示，俄罗斯正在从三个主要方向对乌克兰发起大规模的入侵，且俄军采用的主要袭击方式为空袭和导弹。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-26-%E4%B8%8A%E5%8D%889.43.57.png)
-据悉，乌克兰已经有137名公民死亡，169人受伤。但面对俄军发起的陆、海、空全面入侵，乌克兰总统泽连斯基向全国民众呼吁，希望愿意保家卫国的乌克兰人能挺身而出，政府将为其配发武器。
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-59.jpg)[图片来源](https://news.yahoo.co.jp/articles/1ba03f0c3eb122831a8cfbfa685eeffe775c5fa6/images/000)
+27日晚，岸田文雄首相表示，为了加强对持续入侵乌克兰俄罗斯的制裁，部分俄罗斯银行将被排除在全球银行结算网络“国际银行间通信协会（SWIFT）”之外。日本将参与和美国，欧盟（EU）共同制裁。
 
-与此同时，台湾危机成为继乌克兰之后全球关注的重点问题。对此，郭文贵先生也在当天的紧急直播中指出，共产党一定会攻打台湾，新中国联邦必须马上组织起来，全力以赴地向愿意撤出台湾的战友和台湾同胞们提供援助，在所不辞。另一方面，郭先生也呼吁墙内的同胞远离军事设施与基地，一定要保护好自己和家人的安全。
+还宣布将冻结包括普京总统在内的俄罗斯政府官员的资产。他还表示将向乌克兰提供1亿美元的紧急人道主义援助。
 
-郭先生强调，台海危机一触即发，已经迫在眉睫。
+首相在首相府向记者强调，“现在我们必须团结起来，坚决行动，以维护国际秩序的基础。这表明暴力会付出了高昂代价的。” “我们不能再像以前那样维持与俄罗斯的关系，”他说。日本与西方国家步调一致，对俄罗斯加大施压的立场十分明确。
 
+信息来源：
 
+[国際決済網ロシア排除に日本参加　プーチン氏の資産凍結　ウクライナ支援に1億ドル](https://news.yahoo.co.jp/articles/742f73394ba1b11f5f82d81dec8450b76184dc84)
 
-文字版原文：[俄罗斯全面发动入侵乌克兰的战争](https://gnews.org/zh-hans/2070220/)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

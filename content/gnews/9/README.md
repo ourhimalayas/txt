@@ -2,126 +2,81 @@
 ---
 
 
-## 解除疫苗政策的根本原因
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2077499/)
+## 乌克兰总统弗拉基米尔·泽连斯基表示“敌人将我列为第一目标，”他说，“我的家人列为第二目标”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2077575/)
 
-[https://gtv.org/video/id=621b1c5e4353d33974c31d9e](https://gtv.org/video/id=621b1c5e4353d33974c31d9e)
+[https://gtv.org/video/id=621b8fa04353d33974c37a80](https://gtv.org/video/id=621b8fa04353d33974c37a80)
 
-政府让你出去
-Si el gobierno permite tu salida
+Volodymyr Zelensky (Ukraine’s president)
+弗拉基米尔·泽连斯基 (乌克兰总统)
 
-让你可限制的解除限制
-Permite desactivar las restricciones
+Today, I have asked 27 European leaders whether Ukraine will be in NATO
+今天，我已经询问了 27 位欧洲领导人，乌克兰是否会加入北约
 
-解除疫苗护照、开放学校，根本问题是经济撑不住了
-Eliminan el pasaporte de COVID-19, abren las escuelas; el problema fundamental es que la economía no se puede sostener
+I have asked directly – everyone is afraid, no one answers
+我已经直接问过了—大家都害怕，没有人回答
 
-第二是政治上撑不住了
-El segundo es que la política ya es insostenible
+But we are not afraid, we are not afraid of anything
+但我们不怕，我们什么都不怕
 
-第三才说是病毒撑不住了
-En tercer lugar, es que dicen por el virus
+We are not afraid to defend our country, we are not afraid of Russia
+我们不怕保卫我们的国家，我们不怕俄罗斯
 
-病毒确实减弱
-El virus si ha debilitado
+We are not afraid to talk to Russia, we are not afraid to talk about anything
+我们不怕与俄罗斯交谈，我们不怕谈论任何事情
 
-如果大家现在这个时候你就得不勒瑟就出去了，你试试
-Pero si todos ahora en estos momentos, quieres salir para presumir, hazlo
+about security guarantees for our country
+关于我们国家的安全保障
 
-我不希望给任何战友说希望你死慢一点儿
-Yo no espero decirle a ningún compañero luchador: “espero mueras más lento”
+we are not afraid of talking about neutrality
+我们不怕谈论中立
 
-你这个时候一定要冷静
-En estos momentos tienes que calmarte
+We are not NATO members at the moment
+我们目前不是北约成员
 
-我告诉大家你怎么也得撑到五月份
-Yo le digo a todos, pase lo que pase tienes que aguantar hasta mayo
+But what guarantees will we get?
+但是我们会得到什么保证呢？
 
-听七哥的，撑到五月份
-Escucha mi consejo, aguanta hasta mayo
+And most importantly, which countries will give us those guarantees?
+最重要的是，哪些国家会给我们这些保证？
 
-我什么都说对了为什么不信我这一次呢
-Si todo lo que dije fue correcto, por qué no crees en mi esta vez
+I remain in the capital, may family is also in Ukraine
+我留在首都，我的家人也在乌克兰
 
-对吧
-Cierto
+My children are in Ukraine
+我的孩子们在乌克兰
 
-五月份你才能看到疫苗灾难死亡才大开始
-En mayo es que empezarás a ver el desastre de la muerte por la vacuna
+my family are not traitors, they are citizens of Ukraine
+我的家人不是叛徒，他们是乌克兰公民
 
-现在疫苗死亡没开始呢
-Ahorita no ha empezado la muerte de la vacuna
+where exactly they are, I have no right to say
+他们到底在哪里，我无权说
 
-你慌啥
-¿Por qué te desesperas?
+according to the available intelligence, the enemy marked me as a target No. 1
+根据现有情报，敌人将我标记为第一目标
 
-那飞飞把孩子送到学校去
-La Feifei mandó al niño a la escuela
+My family as the target No. 2
+我的家人作为第二号目标
 
-你怎么知道
-Cómo sabes
+They want to destroy Ukraine politically by destroying the head of the state
+他们想通过摧毁国家元首在政治上摧毁乌克兰
 
-去学校的路上的车就不发生疫苗患者死亡的事件，坏了孩子呢
-Que en camino al colegio el carro no suceda un paciente fallecido por la vacuna, y perjudique al niño
+原视频链接[https://twitter.com/nytimes/status/1497066350715490317?s=24](https://twitter.com/nytimes/status/1497066350715490317?s=24)
 
-我看到日本的一个朋友给我发信息说
-Vi el mensaje que me envió un amigo que está en Japón diciendo
+Date:02/26/2022
+原视频标题: Ukraine’s president, Volodymyr Zelensky, said that he remained in the country despite rumors that he had fled. “The enemy has marked me as target No. 1,” he said, “my family as target No. 2”
+乌克兰总统弗拉基米尔·泽连斯基表示，尽管有传言称他已经逃离，但他仍留在该国。 “敌人将我列为第一目标，”他说，“我的家人列为第二目标”
+原视频日期：2022/02/26
+原视频链接https://twitter.com/nytimes/status/1497066350715490317?s=24
+任务编号：KE423（3863）
+视频时间段 : 0:00-1:26
 
-哎呀我的孩子终于可以现在出去了
-“¡Ay! Por fin mis hijos ya pueden salir”
-
-我的孩子车已经开始现在发动启动
-Ya mis hijos están empezando a prender el carro
-
-我们好好出去溜溜去了
-Ya podemos salir a dar un paseo
-
-我说 是啊
-Yo dije: si claro
-
-你没打疫苗你不会撞别人
-Tu a lo mejor no le chocas al otro porque no te vacunaste
-
-那些疫苗死亡的会不会撞你呢
-¿Pero esos que fallecen por la vacuna te chocarán a ti?
-
-全家说有道理有道理
-Toda su familia acertaron
-
-我说老老实实的在家待着
-Yo les dije que se fueran honestos y se queden quietos en la casa
-
-可以比以前生活放开
-Pueden vivir más abierto que antes
-
-该正常生活、该出去出去，还要戴口罩
-Salir cuando es necesario, vivir una vida normal, pero hay que usar mascarillas
-
-然后还要洗手消毒
-Tienen que lavar y desinfectar las manos
-
-基本的心中要有数啊 兄弟姐妹们
-Hermanos y hermanas deben tener al menos el concepto básico
-
-生命只有一次，七哥今天开篇就说到这儿
-La vida es una sola, hasta aquí doy la introducción de hoy
-
-**原视频网址：**[https://gettr.com/post/pvn4sj4130](https://gettr.com/post/pvn4sj4130)
-
-日期：02/24/2022
-原视频标题：解除疫苗政策的根本原因
-La causa fundamental para eliminar la política de la vacuna
-原视频日期：02/20/2022
-原视频网址：https://gettr.com/post/pvn4sj4130
-任务编号：KC468（3815）
-视频时间段：0:00-1:43
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-咕噜咕噜
 审片：洛杉矶盘古农场-银龙
-發佈：洛杉磯盤古農場 – 彩虹 Rainbow
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
