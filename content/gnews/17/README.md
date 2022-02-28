@@ -2,110 +2,24 @@
 ---
 
 
-## 锁链女的事件引发争论，担责的应该是谁，是江泽民、胡锦涛还是现在的习近平，这在中共内部已成为政治事件
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2080238/)
+## 医院遗体堆积 议员倡加快处理流程
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2080313/)
 
-[https://gtv.org/video/id=621c390b4353d33974c3b5ed](https://gtv.org/video/id=621c390b4353d33974c3b5ed)
+作者：东京樱花团︱阿恩
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/医院遗体堆积-议员倡加快处理流程.jpg)
 
-锁链女这个背后的故事
-The story behind this Chained Girl
+医管局昨日承认，部分公立医院的急症室因近日死亡人数增加致使遗体未能及时运走，民建联立法会议员陈恒镔提出，以冷冻柜作为临时停尸间，又建议港府开辟地方，让死者家属作简单拜祭后直接将遗体送去火化，加快流程。
 
-引发了江（泽民）、胡（锦涛）包括现在和习之间的这种到底谁该负责
-It has evoked such this matter of who should be responsible for this (Chained Girl incident) among Jiang Zemin, Hu Jintao and the current Xi Jinping
+香港的死亡个案不断增加，昨日有83人死亡，大部分是长者，今日出现多宗猝死个案。港府推行强制防疫措施，2人限聚令，高额罚款和牢狱之灾的威胁，加上随时杀到的围封，家属为应付防疫疲于奔命。香港人对生老病死都十分重视，尤其尊重死者的安葬仪式，香港的殡葬行业由几个家族垄断，丧礼套餐的价格丰简由人，从星光熠熠的人物，到草根阶层，都能提供非常完善的服务。在疫情前，殡仪馆轮候时间一般需要超过两个月，在如今的强制防疫政策下，虽然港府豁免送葬的限聚令，但因为死亡人数不断增加，轮候殡仪馆的时间只有更长。近日，殡仪业的工作人员也出现诸多感染个案被隔离，职员怀疑是处理染疫的尸体时被感染了病毒，因此有殡仪馆公布拒绝接受新冠病毒死亡的尸体，引起社会舆论批评，今日相关殡仪馆提出区别处理方案，将新冠死者隔离在地下室，派专人处理，但因风险的关系，需要增加保护设施和津贴，预计这些增加的成本将会转嫁于家属。
 
-然后党内对这个事情已经成政治了
-and then this matter within the (communist) party has become a political issue
+目前香港有六个火葬场，每天可处理尸体量不足200具。港府推算预计未来十年死亡人数将增加至每年6万人，未来二十年死亡人数将进一步增至逾7.5万人，并预计在2023年至2026年、2033年至2038年间，会出现火化时段不足情况。以目前香港仍在推高的新冠疫苗注射率可知，港府预计的死亡量和火化问题将如期出现。今日有建制议员提出要加快尸体处理的速度，要求家属简化拜祭程序，尽快火化。我们还记得武汉爆发新冠病毒的惨况，中共为掩盖焚尸暴露死亡量，改用流动气化尸体设备毁尸灭迹。中共要求香港切实贯彻强制防疫，强行打开了香港的医疗大门，大量内地医务人员被豁免资格审查涌入香港医疗系统，同时深圳海关强制隔离中港货车司司机，将中港共享的陆路物资运输肥肉交予中共的海路运输独享，被香港几个家族垄断的殡葬行业也会被中共以效率地下的借口进行“支持”而接管，在新冠疫苗的毒害下，香港人的生命散发出愈来愈浓的死亡气息，武汉的悲剧恐在香港重演。
 
-说这事你凭什么找习近平负责？
-saying that why do you hold Xi Jinping to be responsible for it?
+资料来源：[**医院遗体未能及时送走 陈恒镔倡放冷冻柜暂存**](https://hd.stheadline.com/news/realtime/hk/2313384/%E5%8D%B3%E6%99%82-%E6%B8%AF%E8%81%9E-%E7%96%AB%E6%83%85%E6%B6%88%E6%81%AF-%E9%86%AB%E9%99%A2%E9%81%BA%E9%AB%94%E6%9C%AA%E8%83%BD%E5%8F%8A%E6%99%82%E9%80%81%E8%B5%B0-%E9%99%B3%E6%81%92%E9%91%8C%E5%80%A1%E6%94%BE%E5%86%B7%E5%87%8D%E6%AB%83%E6%9A%AB%E5%AD%98)
 
-都是江、胡干的
-It was done by Jiang Zemin and Hu Jintao
-
-那江、胡时代的官员没人敢说话呀
-None of the officials in the Jiang Zemin and Hu Jintao eras dared to speak up
-
-实际上下边是不服的。
-In fact, the officials under them were dissatisfied
-
-说那个地方每年死掉大概在40到60个人，就无名女尸
-There are about 40 to 60 female died in that place (same place as the Chained Girl) every year who are unidentified female corpse
-
-查了一下过去大概30年
-I have checked the record in the past 30 years
-
-那个地方死掉的无名女尸达几千具尸体，近万人
-and the number of unidentified female corpses that died in that place reached thousands, nearly 10,000
-
-说这些人平均年龄15岁到17岁
-the average age of these female was 15 to 17 years old
-
-这吓人吧？这吓人吧？
-Isn’t that scary?
-
-然后你再看这种事情没人报道
-Then you consider again there has no one reported this kind of thing
-
-我最早在2017年说过
-I have said as early as 2017
-
-我去宁夏、我去西藏，还有黄河（边）上
-I went to Ningxia, Tibet, and the Yellow River side
-
-当地人说我们就是打捞尸体的
-Those locals claimed that their job is salvaging the bodies
-
-我说还有打捞尸体这活儿？
-I said there is still have this as a job?
-
-他说每年（河里）都有这个尸体，而且都是年轻人
-He said that there are corpses in the river every year, and they are all young people
-
-记得我这一段吧？曾经直播过
-Do you remember this part? Which I had have live broadcasted
-
-就中国人
-As far as the Chinese are concerned
-
-这种人（被）扔到——像小福利、微蓝，是吧？像你神奇四侠
-people like Little Benefit, Weilan and Fantastic Four
-
-给你扔到河里边去你就是个尸体
-if you were tossed into the river you were a corpse
-
-你再漂亮也没用
-no matter how beautiful you are it would be useless
-
-咱见太多了
-We have seen too much of it
-
-悲哀的事情是它没人听啊
-However the sad thing is that there is no one wants to listen
-
-* * *
-
-Date: 02/21/2022
-原视频标题:
-锁链女的事件引发争论，担责的应该是谁，是江泽民、胡锦涛还是现在的习近平，这在中共内部已成为政治事件。其实这种拐卖妇女儿童，导致她们残疾、惨死、甚至消失得无影无踪的事件，在中共国已经由来已久，时常发生，毫不新鲜，中共政府根本无人无暇关心过问。The Chained Girl incident has sparked debate over who should be held responsible, Jiang Zemin, Hu Jintao or the current Xi Jinping. This has become a political matter within the CCP. In fact, this kind of abduction and trafficking of women and children, resulting in their disability, tragic death, or even disappearance without a trace, has been around for a long time in China, and it happens frequently. No one cares at all for this matter in the Chinese government.
-
-原视频日期：2022/02/18
-原视频链接: [**https://gettr.com/post/pw0q8xc84b**](https://gettr.com/post/pw0q8xc84b)
-任务编号：KC469（3820）
-视频时间段 : 0:00-01:26
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
