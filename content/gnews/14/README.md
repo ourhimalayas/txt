@@ -2,22 +2,86 @@
 ---
 
 
-## 邪恶的中共政权才是万恶之源（三）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2077403/)
+## 乌克兰总统弗拉基米尔·泽连斯基表示“敌人将我列为第一目标，”他说，“我的家人列为第二目标”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2077575/)
 
-撰稿：东京樱花团/深藏不露
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片10-4.png)
-自小时候起，大人们就经常教育说，人要分是非好歹。这是我们老百姓所接受的最朴素的教育。邪恶的俄罗斯总统普京为了个人私利悍然发动战争，世界正义的国家都纷纷严厉谴责，并且还给予乌克兰各种支援，这就是明辨是非！反之，就是不分是非！邪恶的中共习近平因为跟俄罗斯总统普京的利益关系，不仅不谴责，反而为普京入侵乌克兰喝彩，为普京提供各种支援！还有更可怕的事，在中共邪恶的商鞅五术荼毒下的中国老百姓不仅没有明辨是非，反而在热论如何占有饱受战乱痛苦的乌克兰女人！
+[https://gtv.org/video/id=621b8fa04353d33974c37a80](https://gtv.org/video/id=621b8fa04353d33974c37a80)
 
-为什么有些中国人距离文明越来越远，越来越被这个世界厌弃？原因就是邪恶的中共让老百姓眼中永远只看利益，而从不分是非！是非不分的人，没有基本的同情心，没有道义，只是一群行走着的动物，他们没正常人的思维，眼中只有盗国贼留下的一点点残羹剩饭！
+Volodymyr Zelensky (Ukraine’s president)
+弗拉基米尔·泽连斯基 (乌克兰总统)
 
-可怜的中共国老百姓从小就饱受邪恶的商鞅五术的荼毒，人生每走一步都充满艰辛，却总是站在割韭菜者的角度去思考，以为自己也手握锋利镰刀，可以潇洒收割别人，却从不想想，为什么自己一生那么难，为什么总是被割来割去？
+Today, I have asked 27 European leaders whether Ukraine will be in NATO
+今天，我已经询问了 27 位欧洲领导人，乌克兰是否会加入北约
 
-战友们，行动、行动、深挖中共的邪恶，广泛传播中共的“假骗偷”，中共必将被醒来的人民摧毁消灭到历史的垃圾堆里！请千万放弃对中共的任何幻想，中共一日不铲除,何有我民族复兴和天下太平之日?团结起来，站立起来，邪恶的中共只相信拳头，赶快加入新中国联邦，一起干掉中共这个邪恶政权，让中共这个邪恶势力在地球上永远消失！
+I have asked directly – everyone is afraid, no one answers
+我已经直接问过了—大家都害怕，没有人回答
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+But we are not afraid, we are not afraid of anything
+但我们不怕，我们什么都不怕
+
+We are not afraid to defend our country, we are not afraid of Russia
+我们不怕保卫我们的国家，我们不怕俄罗斯
+
+We are not afraid to talk to Russia, we are not afraid to talk about anything
+我们不怕与俄罗斯交谈，我们不怕谈论任何事情
+
+about security guarantees for our country
+关于我们国家的安全保障
+
+we are not afraid of talking about neutrality
+我们不怕谈论中立
+
+We are not NATO members at the moment
+我们目前不是北约成员
+
+But what guarantees will we get?
+但是我们会得到什么保证呢？
+
+And most importantly, which countries will give us those guarantees?
+最重要的是，哪些国家会给我们这些保证？
+
+I remain in the capital, may family is also in Ukraine
+我留在首都，我的家人也在乌克兰
+
+My children are in Ukraine
+我的孩子们在乌克兰
+
+my family are not traitors, they are citizens of Ukraine
+我的家人不是叛徒，他们是乌克兰公民
+
+where exactly they are, I have no right to say
+他们到底在哪里，我无权说
+
+according to the available intelligence, the enemy marked me as a target No. 1
+根据现有情报，敌人将我标记为第一目标
+
+My family as the target No. 2
+我的家人作为第二号目标
+
+They want to destroy Ukraine politically by destroying the head of the state
+他们想通过摧毁国家元首在政治上摧毁乌克兰
+
+原视频链接[https://twitter.com/nytimes/status/1497066350715490317?s=24](https://twitter.com/nytimes/status/1497066350715490317?s=24)
+
+Date:02/26/2022
+原视频标题: Ukraine’s president, Volodymyr Zelensky, said that he remained in the country despite rumors that he had fled. “The enemy has marked me as target No. 1,” he said, “my family as target No. 2”
+乌克兰总统弗拉基米尔·泽连斯基表示，尽管有传言称他已经逃离，但他仍留在该国。 “敌人将我列为第一目标，”他说，“我的家人列为第二目标”
+原视频日期：2022/02/26
+原视频链接https://twitter.com/nytimes/status/1497066350715490317?s=24
+任务编号：KE423（3863）
+视频时间段 : 0:00-1:26
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-咕噜咕噜
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
