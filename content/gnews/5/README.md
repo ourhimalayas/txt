@@ -2,23 +2,14 @@
 ---
 
 
-## 视频|战友在救援中务必小心中共的渗透
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2081817/)
+## 新中国联邦将参与乌克兰救援，及注意事项3
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2081909/)
 
-制作：香草山视频部
+[联盟委员会](//hashtag/%2523联盟委员会)，[紧急救援小组](//hashtag/%2523紧急救援小组)的[联系方式](//hashtag/%2523联系方式)之后会公布在GETTR、GTV、GNEWS上，以[官方发布信息为准](//hashtag/%2523官方发布信息为准)。全球想参与救援的战友，请简单扼要的与联盟联系。最重要的是，战友要[量力而为](//hashtag/%2523量力而为)，[不要冒险](//hashtag/%2523不要冒险)。任何私自参与救援的行为，都是不被接受的，所有参与的人员必须遵循国际联合宪章和新中国联邦宣言。
 
-2月26日，郭文贵先生在紧急大直播中动员战友们参与新中国联邦的救助行动时，郑重提醒大家：我们的救援来自G系列、法治基金、法治社会的经济实力和国际关系。任何战友此时不能做任何捐和所谓各种支持的私自决定。此时共产党的渗透会很严重，我们务必要小心。（请播放视频：00:00-00:56 [https://www.gettr.com/post/px50uybaa9](https://www.gettr.com/post/px50uybaa9) 视频时长
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**视频来源****: 20220226—****郭先生紧急救援乌克兰****🇺🇦****大直播**
+**视频制作****: ****文星光**
+**文案****:****文星光**
 
  
 

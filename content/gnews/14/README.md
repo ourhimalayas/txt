@@ -2,23 +2,23 @@
 ---
 
 
-## 新中国联邦以行动向世界诠释正道主义
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2081642/)
+## 视频|战友在救援中务必小心中共的渗透
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2081817/)
 
-采编/编辑撰稿：  文所未闻                   校对编辑：硫酸羟氯喹64
+制作：香草山视频部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-3-5.jpg)图片来源：Gettr
+2月26日，郭文贵先生在紧急大直播中动员战友们参与新中国联邦的救助行动时，郑重提醒大家：我们的救援来自G系列、法治基金、法治社会的经济实力和国际关系。任何战友此时不能做任何捐和所谓各种支持的私自决定。此时共产党的渗透会很严重，我们务必要小心。（请播放视频：00:00-00:56 [https://www.gettr.com/post/px50uybaa9](https://www.gettr.com/post/px50uybaa9) 视频时长
 
+发稿：Daxia
 
-据本台记者2月27日报道，在日前的《救援乌克兰》紧急直播中，文贵先生一再强调，在本次与联合国专业援救组织的共同行动中，一定要向世界展示新中国联邦高效、高质量的团队作战能力和完全无私的新中国联邦人的形象。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-对此，文贵先生指出，要以行动来给世界展示爆料革命是正义的需要，新中国联邦能给世界带来和平和希望。本次前往乌克兰前线的行动，成功的救援结果最为重要，任何人都不能以功名或利益为目的。
-
-据悉，救援行动的三个核心部署分别是[前线组织]，[后勤供应]和[媒体宣传]。在保障最低风险情况下，全力救援在乌克兰被战火围困的新中国联邦战友及家人、华人同胞、美国及各国友人。文贵先生最后表示，没有任何战争是正义的，无论任何种族，肤色或国籍的人民都是同类。新中国联邦爱好和平，反对战争！
-
-发稿：文明(添草灭共)
-
-消息来源： [https://gettr.com/post/px8x781fd6](https://gettr.com/post/px8x781fd6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

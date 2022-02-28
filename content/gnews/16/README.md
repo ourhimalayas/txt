@@ -2,42 +2,36 @@
 ---
 
 
-## 金融核武器——SWIFT
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2081601/)
+## 西方对潜在核冲突的担忧在加剧
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2081805/)
 
-作者：香草山教育部-雪梨
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-86.png)
-SWIFT，全称环球银行金融电信协会，为全球银行金融交易和支付提供服务。基于标准化的报文体系，SWIFT系统已成为国际间金融数据传递和交换的标准语言。目前，SWIFT已覆盖全球200多个国家和地区的11000多家金融机构，每天处理的金融信息高达数千万条，SWIFT掌握了全球绝大部分资金的划转信息。
+#### 撰稿：彩虹       
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/swift-scaled.jpg)FILE PHOTO: Swift logo is seen in this illustration taken, Bosnia and Herzegovina, February 25, 2022. REUTERS/Dado Ruvic/Illustration
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2756.png)图片来源：雅虎新闻
+周日，俄罗斯总统弗拉基米尔·普京（Vladimir Putin）命令俄罗斯包括核武器在内的威慑力量进入更高的警戒状态，2月27日，《国会山报》对此做了报道。
 
-2月27日的大直播中，郭文贵先生称，SWIFT系统不仅仅是处理支付的系统，最重要的是，它是对整个国家的信用评级。
+周四的时候，普京在对乌克兰发动攻击时不惜炫耀莫斯科的核力量，他在演讲中警告说，干涉俄罗斯行动的国家将面临“你们从未见过的后果”。
 
-2014年克里米亚事件，SWIFT制裁俄罗斯，俄罗斯GDP腰斩。
+对普京的命令, 一位美国高级国防官员周日说：“显然，从本质上讲，这是在展示力量，如果出现误判，可能会使事情变得更加、更加危险。”美国“没有理由”怀疑普京的新命令，这个命令是“不必要的”，会加速局势恶化。
 
-2022年2月26日，鉴于俄罗斯对乌克兰发动的战争，美国、欧盟等国家发布联合声明，宣布将选定的俄罗斯银行从SWIFT通讯系统中移除。
+这一威胁引发了人们的担忧，即如果局势升级，有恃无恐的俄罗斯可能会使用核武器。专家说，这样的举动可能会迅速将美国拉入冲突，并最终使这两个最大的核武国家相互对立。
 
-郭先生数次提到，如果中共攻打台湾，必被踢出SWIFT系统。届时，中国银行、中国建设银行、招商银行等上市公司的股票将跌至谷底，中共国所谓的15万亿GDP也将随之消失。即使中共不打台湾，因为新疆大屠杀、香港大屠杀、中共病毒溯源，中共也会被踢出SWIFT体系，中共的内斗也将加速中共的灭亡。
+全球无核组织（Global Zero）的领导人德里克·约翰逊（Derek Johnson）在一份声明中说：“俄罗斯政府决定派遣军队进入乌克兰，这有可能导致更广泛的冲突，产生不可预测和深远的影响。今天，使用核的最大风险来自于常规冲突的非计划或意外升级。由于北约和俄罗斯部队在近距离行动，在近距离接触或军事演习中出现一个错误、误解或误判的威胁，就会增加升级为直接冲突和潜在核使用的风险。”
 
-参考链接：
+报道指，虽然美国和俄罗斯还没有直接冲突，拜登总统坚持认为美国军队不会在乌克兰作战，但美国政府已经命令超过14,000名美国军队前往欧洲各地，以应对蔓延到邻近联盟国家的情况。
 
-[https://gnews.org/zh-hans/2076806/](https://gnews.org/zh-hans/2076806/)
+同时，北约也在历史上首次启动了其反应部队，该部队由大约4万名多国陆军、空军、海军和特种作战人员组成，联盟可以根据需要在短时间内进行部署。
 
-*校对/发稿：飞虹*
+周日，北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）表示，普京下令将俄罗斯的核武器置于高度警戒状态是“危险言论”，这正是联盟采取行动加强防御的原因。他说：“如果你把这种言论与他们在乌克兰本土的所作所为结合起来，他们对一个独立的主权国家发动战争，对乌克兰进行全面入侵，增加了局势的严重性。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-64.jpg)
+根据美国科学家联合会（Federation of American Scientists）的核信息项目（Nuclear Information Project），俄罗斯估计有大约4477枚弹头，用于远程发射器和短程战术核武器，其中近1590枚部署在陆基导弹、潜艇发射的导弹和轰炸机上。
 
-**更多资讯，更多关注**
+报道说，在过去的几年里，俄罗斯通过无数次演习，包括模拟核武器发射，来炫耀其核能力。最近一次这样的试验发生在俄罗斯入侵乌克兰前不到一周。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**新闻来源**
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[Russia’s nuclear weapons threat raises Western fears](https://thehill.com/policy/international/596047-russias-nuclear-weapons-threat-raises-western-fears?rl=1)
 
  
 

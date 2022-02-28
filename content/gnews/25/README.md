@@ -2,37 +2,20 @@
 ---
 
 
-## 日本奥密克戎后遗症患者正在迅速增加
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2081459/)
+## 首尔：北韩发射一枚不明弹药
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2081486/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-426.jpg)
-[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdni0.trtworld.com%2Fw960%2Fh540%2Fq75%2F123179_japancovid_1642178802251.jpg&amp;imgrefurl=https%3A%2F%2Fwww.trtworld.com%2Flife%2Fomicron-pushes-japan-s-cases-to-highest-in-four-months-latest-updates-53636)
+#### 翻译                           意大利达芬奇农场                     小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-28-alle-16.18.36.png)图片来源：rainews.it 
+这是平壤自今年年初开始的第八次导弹试验
 
-虽然新冠病毒的新感染人数正在减少，但是患有奥密克戎毒株后遗症的人数正在迅速增加。
+据安莎社2月27日报道，朝鲜向东发射了一枚“ 不明弹药”。
 
-有媒体采访了东京一家致力于后遗症治疗的诊所。
+这是首尔军方报道的。根据韩国联合参谋部的简短说明， 这是自今年年初以来的第八次此类举措。由于与美国的核谈判长期陷入僵局， 平壤在1月份进行了包括弹道导弹的七次导弹试验，其中包括自2017年以来最强的一次，但在奥运期间停止了所有活动。分析人士指出这一决定是为了尊重中国。最后一次测试可以追溯到1月底，是在解除几年前决定的自行暂停远程核试验和导弹试验的威胁后，仅仅几天就由一艘中程弹道航母发射而出。让人们对北韩重新不断地挑衅活动感到恐惧。
 
-涩谷区平畑诊所的新冠后遗症门诊上周检查了约 350 名患者。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2022/02/27/corea-del-nord-seul-lanciato-un-proiettile-non-identificato\_9d866ef3-4388-4b1c-9a00-d6f6e4bdc76f.html](https://www.ansa.it/sito/notizie/topnews/2022/02/27/corea-del-nord-seul-lanciato-un-proiettile-non-identificato_9d866ef3-4388-4b1c-9a00-d6f6e4bdc76f.html)
 
-自1月下旬以来，患者人数增加了约1.5倍。
-
-一位40多岁的患者说：“我早上起来只洗了衣服，很快就觉得累了……” 医生问：“如果你继续做下去，会觉得不舒服吗？” 病人说：“我只是在早上能活动一些，下午会有发烧等不适症状”。
-
-一名女性在1月下旬感染了奥密克戎后出现了类似感冒的症状。但是， 发病后约10天，开始出现胸痛等症状，曾经重返工作岗位，但现在却因病情加重被迫休职。
-
-另一40多岁的女士“似病愈后复工第4天，突然感觉非常难受，站立不起来，只好早退，耳朵虽可听见，脑子有意识，但是活动不了，真的很吓人。”
-
-平畑光一院长称，感染后，会突然出现强烈的倦怠、疲劳感，而且症状可能会在短时间内恶化或病情延长，呼吁人们理解那些抱怨后遗症的人。
-
-平畑院长说：“肌肉疼痛性脑脊髓炎和慢性疲劳综合症两者病情症状非常接近。而且常见持续时间长达二周，奥密克戎感染初期症状虽然较轻，但是之后会发生什么事完全不可预测，所以我认为有必要采取严格的措施来预防感染。”
-
-信息来源：[オミクロン後遺症”患者が急増　治療する都内クリニックは](https://www.fnn.jp/articles/-/322217)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
-
+编辑、上传： Xiao  baige
 
  
 
