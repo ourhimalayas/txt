@@ -2,30 +2,33 @@
 ---
 
 
-## 普京安排400多雇佣军刺客企图暗杀泽连斯基
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2082406/)
+## Omicron对脑部神经刺激是永远的
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2082703/)
 
-翻译播报：billwilliam
+文编：Hima
+听写：叮叮
+视频：七哥
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-4-1.jpg)图源：dailywire.com
-据《每日邮报》报道，普京从非洲调集400多名俄罗斯雇佣军企图暗杀乌克兰总统泽连斯基以及23名乌政府要员。使用暗杀手段非常下流。
+2022-02-23直播摘录
 
-据称在普京的命令下，一支名为瓦格纳团（Wagner Group）的私人雇佣军五周前被从非洲调往乌克兰。普京的亲密盟友、俄罗斯寡头叶夫根尼·普里戈津（Yevgeny Prigozhin）负责指挥雇佣军，并承诺丰厚的奖赏。据称该雇佣军正在等待克里姆林宫下令出击，除了总统泽连斯基外，暗杀名单包括乌克兰总理、整个内阁、基辅市长、以及市长的兄弟。但是当暗杀团上周六上午接近乌克兰政府高层时，行动计划败露。
+染上Omicron一定不会告诉全村人：“我染上了Omicron了”。因为他就会被隔离，他要利用他的权利，让你全部去核糖核酸去，老子啥事儿没有，就这帮流氓的共产党！所以回答你的问题，鹿克思，非常简单，非常简单，没有什么真相，而且Omicron不要…….黄先生说的绝对不对的，这绝对可以致命的。而且西方选择了集体感染，它是没有选择的选择，因为整个疫苗压力他们已经有预期了，再弄下去经济崩溃了、政治崩溃了，那你就集体感染去吧。最起码他不是“嘎嘣”死，慢慢死，而且确确实实现在看来，凡是不打疫苗的人，或打了一针的人，对Omicron的抗力是打过疫苗的N倍，而且Omicron最大的问题是Omicron加疫苗就反应极坏——脑梗、心梗、眼梗、肛门梗。
 
-暗杀事件被挫败后，基辅市宣布36小时强制宵禁，所有人必须呆在家中，而乌克兰士兵将沿街排查俄罗斯刺客。乌克兰公民被告知不要出门，否则会被当做敌人。
+没打疫苗的毕竟占了一半儿，打了疫苗少于三针的多过一半儿。你不要忘了，全世界四十几亿人打疫苗，真正的打三针的可没那么多，所以说咱还要积极地看，这对Omicron的抗力是很好的。但是千万别迷信，染上Omicron最可怕的是对你的脑部神经刺激是永远的。谢谢！
 
-有消息称瓦格纳团有2000-4000名雇佣兵在一月份潜入乌克兰，执行不同的任务。他们中有些人被送往叛军占据的顿涅茨克和卢甘斯克。负责暗杀泽连斯基的400人则从白俄罗斯启程进入基辅。暗杀团通过手机信号追踪泽连斯基和乌克兰官员的位置。有消息来源认为，普京叫停了暗杀行动，因为俄乌要进行和平谈判。但是据称和谈只是烟雾弹，因为普京不打算达成协议。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-勇敢的泽连斯基总统并不害怕暗杀行动，并且拒绝离开乌克兰。他承认自己是头号目标，而且俄罗斯特种部队正在追杀他。
+**关注我们**
 
-瓦格纳团在非洲和中东（包括叙利亚）执行过秘密任务。近期他们为俄罗斯坦克进军基辅充当向导。前特种部队指挥官理查德·巴伦斯爵士（Richard Barrons）认为，这支雇佣兵很有效，因为很难被逮住，他们可以从暗影中突然出现，进行暴力袭击，然后消失。同时雇佣兵和俄罗斯政府没有直接联系，普京在背后可以矢口否认。据称雇佣兵在去年12月就收到普京的作战计划。
+Discord 账号
 
-郭文贵先生曾爆料，普京和习太阳之间早就制定了俄罗斯取乌克兰，而中共打台湾的双龙计划。普习之间使用翻译器的2.5小时单独谈话藏有惊天的秘密。普京早就想暗杀乌克兰总统。同时，俄罗斯侵略军遭到乌克兰人民激烈抵抗，乌克兰使用反坦克导弹和防空导弹击毁上百辆坦克和数十架战机。在国际制裁和俄罗斯国内反战情绪高涨的双重压力下，普京居然试图进行卑鄙的暗杀手段。为泽连斯基总统和乌克兰人民祈祷，祈祷他们平安度过难关，战胜侵略者。同时应该加强泽连斯基总统身边的安保措施。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-新闻来源：
+Gettr 账号
 
-[https://www.dailymail.co.uk/news/article-10558749/Kremlin-sends-400-mercenaries-Kyiv-assassinate-President-Zelensky.html](https://www.dailymail.co.uk/news/article-10558749/Kremlin-sends-400-mercenaries-Kyiv-assassinate-President-Zelensky.html)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

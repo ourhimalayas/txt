@@ -2,40 +2,31 @@
 ---
 
 
-## 美驻俄大使馆要求美国公民立即撤离
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2082379/)
+## 乌克兰释放有军事经验的囚犯帮助打击俄罗斯
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2082655/)
 
-作者：纽约香草山农场 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月27日，美国驻莫斯科大使馆发布安全公告，警示所有美国公民 “立即 “撤离俄罗斯。
+#### 编译: Cran
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-9.jpeg)
+#### 责编: 白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16460794661.png)Source: 美国之音: 烏克蘭軍隊保衛首都基輔的一條道路
+据美国周刊2月28日报道, 乌克兰总统沃罗德米尔· (Volodymyr Zelensky) 表示，那些有军事经验的囚犯将被释放，使他们能够为国家抗击俄罗斯而战， 同时呼吁驻扎在乌克兰的俄罗斯士兵放下武器，”离开这里, 缴枪不杀！”
 
-公告提醒，越来越多的航空公司正在取消进出俄罗斯的航班，许多国家已经对俄罗斯的航空公司关闭了他们的空域。  美国公民应随时关注信息，并考虑立即通过目前可用的商业航班离开俄罗斯。
+泽伦斯基说, 他将释放所有具“实战经验”的囚犯，使他们能够在战斗最激烈的地方来赎他们的罪过. 所有能够“加入抗击侵略者的斗争的人都必须参与进去.
 
-公告称，莫斯科和圣彼得堡等主要城市，以及在俄罗斯与乌克兰边境紧张局势加剧的地区，可能出现针对购物中心、铁路和地铁站以及其他公共集会场所的攻击威胁。另外，美国国务院对俄罗斯的旅行建议级别已调至四级，即不要旅行。
+泽伦斯基说, “对一些参与恐怖活动罪犯的所有制裁都将被取消。” 他说, 从道德角度来看，这是一个艰难的决定，但现在的关键是保卫国家。
 
-该警报是在普京将俄罗斯的核威慑力量置于最高戒备状态后发出的。
+他说：“当我担任总统时，我说我们每个人都是总统。因为我们都对我们的国家负责。对我们美丽的乌克兰负责。现在我们每个人都是一名战士。”
 
-华盛顿特区安全政策中心专家伊拉里奥诺夫说，现在的局势令人难以置信的严重。他呼吁，美国和北约必须立即作出回应，否则，美国和整个欧洲将受到直接的核威胁。
+泽伦斯基还呼吁俄罗斯军队停止战斗，理由是有报道称，在乌克兰冲突中已有4500多名士兵丧生。他对俄军喊话说, “放弃你的装备, 离开这里, 不要相信你的指挥官, 不要相信你的宣传者, 拯救你的生命吧！ ”
 
-参考链接：
-1. [US Embassy: US Nationals Should Leave Russia ‘Immediately’](https://www.newsmax.com/us/moscow-kremlin-embassy-diplomats/2022/02/27/id/1058748/)
-2. [Security Alert: Limited Flights Into and Out of Russia](https://ru.usembassy.gov/security-alert-u-s-mission-russia/)
+此前，泽伦斯基在周六发表讲话中再次敦促欧盟允许乌克兰加入欧盟。“被导弹和大炮摧毁的住宅楼, 是世界与我们一起阻止这场入侵的最后理由。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+“乌克兰人民理应该并有权成为欧盟成员，我们的目标是与所有欧洲人团结在一起。”
 
-总编：文真
-编辑：Jack Li文阳   
-校正/发稿：谐趣园
+[信息来源](https://www.newsweek.com/ukraine-releases-prisoners-combat-experience-war-russia-volodymyr-zelensky-1683175)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
