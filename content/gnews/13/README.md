@@ -2,32 +2,72 @@
 ---
 
 
-## 白宫发布美欧关于SWIFT制裁俄罗斯的声明
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2078401/)
+## 宝贝，别哭！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2078644/)
 
-作者：日本东京方舟农场-感谢郭叔
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月26日，美国白宫网站，发表美国及其盟国针对俄罗斯进行制裁的最新声明，声明大致内容如下。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-27-下午10.27.06.png)
-欧盟委员会、法国、德国、意大利、英国、加拿大和美国的领导人与乌克兰政府和乌克兰人民站在一起，谴责普京选择战争。俄罗斯需要为这场战争付出代价。
+撰稿：东京樱花团/华夏伊人
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2718.png)
+宝贝，对不起！
 
-随着俄罗斯军队对基辅和其他乌克兰城市发动攻击，欧盟委员会、法国、德国、意大利、英国、加拿大和美国的领导人与乌克兰政府和乌克兰人民站在一起，决定：1、把选定的俄罗斯银行踢出SWIFT系统；2、采取限制性措施，防止俄罗斯中央银行利用其国际储备破坏制裁的影响；3、对助长乌克兰战争和俄罗斯政府有害活动的个人和实体采取行动，限制向其出售公民身份，阻止其进入我们国家的金融系统；4、在下周启动一个跨大西洋特别工作组，查明和冻结在我们管辖范围内的受制裁个人和公司的资产。制裁更多的俄罗斯官员和与俄罗斯政府关系密切的精英及其家人以及他们的推动者，识别和冻结他们在我们管辖范围内持有的资产，以及和其他政府合作，阻止被制裁者在世界各地隐藏资产；5、加强或协调打击虚假信息和其他形式的混合战争。
+是我们的贪婪和懦弱让你流泪，
 
-参考链接：[Joint Statement on Further Restrictive Economic Measures](https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/26/joint-statement-on-further-restrictive-economic-measures/)
+你的世界里不应该有枪声和炮火，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+你的童年记忆应该是游戏和玩具。
 
-总编：Zion文恩
-编辑：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
+宝贝，对不起！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+战争让你恐惧，让你面对骨肉分离，
+
+你不应该离开家和父母一起逃亡，
+
+你应该在和平的充满爱的世界里长大。
+
+宝贝，请先闭上眼睛！
+
+这个世界病了，
+
+不要让残酷血腥的场面伤害你，
+
+不要让漫长的黑夜令你恐惧。
+
+宝贝，别哭！
+
+全世界有良知有正义的人们正在醒来，
+
+不分肤色、不分种族、不分年龄、不分性别，
+
+走上街头高喊：不要战争！不要战争！不要战争！
+
+宝贝，别哭！
+
+世界没有抛弃你，没有抛弃你的祖国—乌克兰，
+
+台湾101大厦、日本东京塔、法国诶菲尔塔为乌克兰点亮，
+
+世界的每一个角落，热爱和平的人们正在为乌克兰祈祷。
+
+宝贝，别哭！
+
+让我抱紧你，让你不再孤单，
+
+请把你的小手交给我，把你的伤痛也给我。
+
+我们会用生命去守护你！
+
+宝贝，别哭！
+
+当你再次睁开眼睛的时候，
+
+黑夜就会过去，我们一起找到回家的路，
+
+亲亲你，我的宝贝！
+
+
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
