@@ -2,27 +2,28 @@
 ---
 
 
-## 中共取消俄罗斯所有小麦进口限制
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2081143/)
+## 欧盟5亿美元为乌克兰购买武器； 土耳其巳准备关闭俄罗斯海军的海峡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2081235/)
 
-采编：风云小哥      翻译：文莱
+翻译：Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-422.jpg)
+图片来源：《零对冲》
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220228-090946_Word2.jpg)图片来源：breitbart.com
+2022 年 2 月 28 日《零对冲》：在有报道基辅附近有大批地面和装甲部队正在基辅靠近，并且乌克兰其他地区的战斗愈演愈烈的同时，欧盟内部巳就有关向乌克兰提供武器达成共识。法新社报道说：“欧盟成员国周日同意为成员国提供 4.5 亿欧元（5 亿美元）的资金，为乌克兰购买武器，”欧盟外交政策负责人何塞普·博雷尔（Josep Borrell）说。
 
+“该措施是欧盟 27 国同意的一揽子支持和制裁措施的一部分。博雷尔表示，他们还正式批准了一项禁止与俄罗斯中央银行进行任何交易的举措。” 与此同时，未经证实的报道表明，普京可能对俄罗斯军队的进展慢于预期感到沮丧。
 
-据【布莱特巴特新闻】2月25日报道，在美国和英国当天宣布对俄罗斯实施金融制裁的同时，中共国取消了对俄罗斯小麦的进口限制。
+同样在周日，土耳其首次发出信号，它已经准备好了封锁俄罗斯海军进入黑海……
 
-报道称，俄罗斯对中共国的小麦出口此前曾受双方限制，在中共取消与俄罗斯某些特殊地区的谷物贸易限制之后，将提高俄罗斯派遣大型船只通过黑海的能力。
+“土耳其外交部长周日表示，乌克兰局势已演变成一场战争，而这种变化从法律为上安卡拉可能禁止俄罗斯军舰通过战略要塞进入黑海铺平了道路，”《华尔街日报》报道。 现在预计将触发 1936 年《蒙特勒公约》Montreux Convention的条款。 土耳其外交部长梅夫吕特·恰武什奥卢在接受 有线电视新闻网采访时说：
 
-此外，自2021年起，俄中的双边贸易同比增长27%，达到1500亿美元。俄罗斯对中共国的食用油、大麦和牛肉出口激增。 同时，习近平和普京正在继续寻找潜在的贸易机会。而此次小麦交易是在2月4日冬奥会期间宣布的，并将在2022-23年度开始。
+“我们得出的结论是，乌克兰局势已经演变成一场战争”，这意味着“我们将透明地执行蒙特勒的所有条款”。
 
-尽管中共当局表示，这项在俄军入侵乌克兰当天所宣布的决定，与俄乌局势无关，但中共对俄罗斯的支持与欧美及G7成员国的制裁相比，形成了鲜明的对立。
+上周四 ，在俄罗斯全面入侵的第一天，乌克兰政府敦促土耳其关闭博斯普鲁斯海峡和达达尼尔海峡，以阻止所有俄罗斯军舰通过。
 
-校对编辑：硫酸羟氯喹64
+与此同时，就西方秘密支持乌克兰的抵和反对俄罗斯在乌克兰的推进和存在而言，事情可能正在暗中升级。
 
-发稿：文明(添草灭共)
-
-原文链接：[China Lifts All Wheat Import Restrictions on Russia amid Ukraine Crisis (breitbart.com)](https://www.breitbart.com/asia/2022/02/25/china-lifts-all-wheat-import-restrictions-russia-ukraine-crisis/)
+原文链接：[https://www.zerohedge.com/geopolitical/ukraine-president-agrees-hold-talks-without-preconditions-russia-belarus-border](https://www.zerohedge.com/geopolitical/ukraine-president-agrees-hold-talks-without-preconditions-russia-belarus-border)
 
  
 

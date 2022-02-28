@@ -2,25 +2,27 @@
 ---
 
 
-## 俄罗斯被踢出SWIFT全球支付系统
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2080960/)
+## 中共取消俄罗斯所有小麦进口限制
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2081143/)
 
-采编：文莱      编译撰稿：文明(添草灭共)
+采编：风云小哥      翻译：文莱
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Biden-Putin-SWIFT.jpg)图片来源：thepostmillennia
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220228-090946_Word2.jpg)图片来源：breitbart.com
 
 
-据加拿大媒体《 后千禧年》2月26日报道，欧盟委员会、法、德、意大利、英国、加拿大和美国当天发布联合声明，将选定的俄罗斯银行从［SWIFT国际结算系统］中剔除。此举将对俄方的外贸和国际金融结算形成重大打击。
+据【布莱特巴特新闻】2月25日报道，在美国和英国当天宣布对俄罗斯实施金融制裁的同时，中共国取消了对俄罗斯小麦的进口限制。
 
-报道称，由于部分欧盟国家对俄经贸关系比美国更为密切，德，法，意大利等国此前一直都不愿将“SWIFT”纳入制裁选项。但随着俄军对乌克兰全面入侵所导致整个欧洲局势的持续恶化，欧美等国最终达成一致，被迫对俄罗斯实行了该项严厉制裁措施。
+报道称，俄罗斯对中共国的小麦出口此前曾受双方限制，在中共取消与俄罗斯某些特殊地区的谷物贸易限制之后，将提高俄罗斯派遣大型船只通过黑海的能力。
 
-对此，文贵先生在2月27日GTV直播中指出，欧美各国对俄罗斯欲擒故纵，将其剔除出SWIFT国际金融系统只是制裁的开始，更严厉的政治和军事反击将紧随其后。同时，针对中共政权及其盗国贼集团的SWIFT制裁也将如期而至。习近平在其党内政敌和普京的蛊惑下入侵台湾，必将加速该暴政的自取灭亡。
+此外，自2021年起，俄中的双边贸易同比增长27%，达到1500亿美元。俄罗斯对中共国的食用油、大麦和牛肉出口激增。 同时，习近平和普京正在继续寻找潜在的贸易机会。而此次小麦交易是在2月4日冬奥会期间宣布的，并将在2022-23年度开始。
+
+尽管中共当局表示，这项在俄军入侵乌克兰当天所宣布的决定，与俄乌局势无关，但中共对俄罗斯的支持与欧美及G7成员国的制裁相比，形成了鲜明的对立。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文明(添草灭共)
 
-原文链接： [https://thepostmillennial.com/breaking-us-allies-to-remove-selected-russian-banks-swift](https://thepostmillennial.com/breaking-us-allies-to-remove-selected-russian-banks-swift)
+原文链接：[China Lifts All Wheat Import Restrictions on Russia amid Ukraine Crisis (breitbart.com)](https://www.breitbart.com/asia/2022/02/25/china-lifts-all-wheat-import-restrictions-russia-ukraine-crisis/)
 
  
 

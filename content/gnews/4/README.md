@@ -2,37 +2,50 @@
 ---
 
 
-## 有声|中共与北韩再度狼狈为奸挑战世界
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2081217/)
+## 新西兰承诺提供200万美元援助乌克兰
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2081357/)
 
-配音：纽约香草山农场 -Rita七号小青蛙
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/新西兰.jpg)
+当地时间，2月28日下午，据RNZ报导，新西兰将拨出 200 万美元用于人道主义援助，以帮助乌克兰人民。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/23cd3448f4b6fc19e20567e72de7dca4-2.jpg)
-据朝鲜官媒2月26日报道称，近日中共党魁习近平强调，中共要与朝鲜，在所谓的“新形势”下展开重要合作。
+这笔资金将用于支持乌克兰当地的卫生设施并提供基本需求，例如食品和卫生用品。
 
-朝鲜中央通讯社表示，在习近平在给金正恩的信息中说，中共当局已经准备就绪，要在一种“新形势”下，发展中共国与朝鲜的友谊与合作关系。由于和美国的谈判陷入僵局，朝鲜在2022年1月，进行了史无前例的7次武器试射，包括自2017年以来的最强力导弹试射。平壤因为核武器计划，遭受多项国际制裁而被孤立。中共国与朝鲜的贸易总额，则超过了朝鲜对外贸易的90%。
+在宣布提供资金的声明中，外交部长纳奈亚·马胡塔再次呼吁俄罗斯停止在乌克兰的军事行动，并且立即撤出。
 
-2020年至今，由于中共病毒疫情，朝鲜实施了自我封锁，经济面临崩溃，在上个月不得不重启了与北京的跨境贸易。而中共是朝鲜最重要的盟友和金主，此关系则始于1950年的朝鲜侵略韩国之战。
+马胡塔表示，这场冲突造成的伤亡人数不断增加令人深感不安。乌克兰平民流离失所，或受苦的悲惨画面充分说明这是一场正在上演的悲剧，这是俄罗斯无端侵略的后果。
 
-文字版原文：[中共与北韩再度狼狈为奸挑战世界](https://gnews.org/zh-hans/2080583/)
+她还补充说：
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+“我们与国际伙伴一起再次呼吁俄罗斯停止在乌克兰的军事行动，并立即永久撤军，以避免无辜生命的灾难性和毫无意义的损失。”
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+马胡塔还表示，俄罗斯应根据国际法采取一切可能措施保护平民，并恢复外交谈判以缓和冲突。新西兰将继续密切关注事态发展。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[【援引连结】](https://www.rnz.co.nz/news/world/462443/new-zealand-pledges-2m-for-ukraine-aid)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

@@ -2,26 +2,37 @@
 ---
 
 
-## 欧盟一致向乌克兰提供武器采购支持并禁止俄国有媒体运营
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2081181/)
+## 2022年2月28日澳洲股市简报
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2081295/)
 
-撰稿：东京樱花团︱麗子
+**撰稿：云彩**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
+ASX 200 指数上涨0.7% ， 7049点收盘。 不过，涨幅远低于华尔街标准普尔500指数2.2%和欧洲市场的3%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/欧盟一致向乌克兰提供武器采购支持并禁止俄国有媒体运营.png)
+**矿业股领涨**
 
-2月27日，欧盟（EU）举行了一次外交部长在线会议，讨论俄罗斯对乌克兰的军事入侵，并同意向乌克兰提供财政援助以购买武器，这是欧盟首次向冲突中的国家支援采购武器。
+矿砂矿商Illuka Resources 上涨5.3%，稀土生产商Lynas 上涨6.9%，金矿生产商Gold Road Resources上涨5.5% 。
 
-在会后的新闻发布会上，欧盟外交和安全政策高级代表博雷尔表示，欧盟将提供4.5亿欧元（约577亿日元）资助乌克兰的武器采购，提供5000万欧元（约64亿日元）采购医疗用品等其他物品。声明中，博雷尔表示欧盟支持军购是首例。
+大型多元化矿商BHP和RIO 上涨4.4%和3.2% 。
 
-欧盟国家已经向乌克兰提供了武器等其他援助。就连严格控制向冲突地区出口武器的德国也一改常态，在26日宣布将向乌克兰提供武器。
+**能源股继续攀升**
 
-各国部长一致同意禁止俄罗斯国有新闻机构RT和Sputnik在欧盟运营，因其传播 “虚假信息 “为俄罗斯侵略行径辩护。欧盟还将对白俄罗斯实施新的制裁，暂停进口其木材、水泥和钢铁。
+石油公司Woodside Petroleum上涨 2.1%。
 
-信息来源：[**EU「タブーに踏み込む」覚悟でウクライナ支援  初の武器調達援助**](https://news.yahoo.co.jp/articles/c97f8fb1a58930db60f5c9969f8b5b4ba2d26588)
+**澳大利亚谷物处理巨头 Graincorp 股价上涨 5% 至 8.40 美元**
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+市场担忧俄罗斯对乌克兰的入侵影响乌克兰谷物播种季节，导致澳大利亚谷物的需求和价格上涨。
+
+**保险公司股票被大量抛售**
+
+因昆士兰州东南部和新南威尔士州北部洪水造成的巨大损失，保险公司Insurance Australia Group 下跌 4%，Suncorp 下跌 3.2% 。
+
+参考资料：
+
+[ASX gains ground even as analysts warn of Russian’ financial collapes’ and possible European recession](https://www.abc.net.au/news/2022-02-28/asx-share-market-wrap-monday-february-28/100867112)
+
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/28/2022 3:18 PM (UTC)`
+
+2/27/2022 Miles Guo: There won’t be information warfare in the war between Taiwan and the CCP. The advantage of the Taiwanese military is fighting technology warfare and electronic warfare. What are the differences between the mindset of the Taiwanese soldiers and that of the CCP’s soldiers? Why are Taiwanese traitors one of the biggest problems of Taiwan?<br/><br/>2/27/2022 文贵直播: 台海战争中不会打信息战，台湾军队相对于共军的优势是技术战、电子战；台湾士兵的心态和共匪士兵有何区别？为什么台湾最大的问题之一是其内部的卖台贼？
+![img](https://media.gettr.com/group27/getter/2022/02/28/15/4b776fe7-e693-3424-3f2f-b8517199f0c1/out.jpg)
+
+---
+
 `@miles 2/28/2022 2:39 PM (UTC)`
 
 2月28号：尊敬的战友们好！俄乌战争正在走向不确定的危险之中。共产党正在蠢蠢欲动。侵占台湾……新中国联邦人的乌克兰人道救援大行动震撼了世界。此时此刻，我们的战友们更要坚持住我们唯真不破．维护建立新中国人的形象的原则，一切都已经开始！
@@ -144,13 +151,6 @@ Announcement of New Federal State of China & Rule of Law Foundation on Emergency
 
 2/26/2022 Miles Guo:  Education is not the cornerstone of a country, but a means to differentiate humans from animals; GEDU education includes both online and offline courses, we do not indoctrinate, but create an environment for students to engage with people and the physical world<br/><br/>2/26/2022 文贵直播：教育不是国家的基石，而是区分人和动物的手段；GEDU教育包括线上和线下课程，我们没有灌输，而是为学生创造与人与物接触的环境<br/>
 ![img](https://media.gettr.com/group9/getter/2022/02/27/08/99a1a710-2482-1a35-9e89-9efa238ed80f/out.jpg)
-
----
-
-`@miles 2/27/2022 8:35 AM (UTC)`
-
-2/25/2022 Miles Guo: I will expose the collusion between the swamp and the CCP and the darkness of the global justice system by using the UBS case, and we will eradicate the CCP's greatest threat to Western pension funds and financial sectors. How can we return the $100 trillion from UBS to the Chinese people?<br/><br/>2/25/2022 文贵直播：文贵将用UBS案揭露沼泽地和中共的勾兑以及全球司法系统的黑幕，我们将铲除中共对西方养老金和金融的最大威胁；我们如何把UBS的100万亿美元还给中国人呢？<br/>
-![img](https://media.gettr.com/group37/getter/2022/02/27/08/08c667b4-d6be-892a-58aa-c9530f349f57/out.jpg)
 
 ---
 
