@@ -2,25 +2,38 @@
 ---
 
 
-## 野外生存的神器 –––MMS矿物质溶液
-` XINYUAN` [轉載自GNews](https://gnews.org/zh-hans/2080250/)
+## 中共对内对外愈发邪恶 阻止人民币流向喜联储
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2080320/)
 
-转载 : XINYUAN
+作者：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-GTV-Gnews-HEADER-1-2.png)
+在2月25日的大直播中，郭文贵先生揭秘了中俄邪恶轴心的形成过程，以及中共全力阻止人民币流向喜联储的企图。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2744.png)
+郭先生解释，中共的外交部经历了六四事件之后的“示弱部”，到“外援部”，再到今天“战狼部”的过程。自中共2001年加入WTO、2008年举办奥运之后，美国华尔街给其输送了海量资金，习近平野心膨胀，开始幻想与美国“共同”治理世界，并与俄罗斯结成所谓的“全天候兄弟战略伙伴关系”，五个邪恶轴心国联盟自此形成。
 
-自从上次发布有关MMS溶液的文章，有战友询问更详细的方法，下面是我转发的使用手册，现在全球处于非常时期，为了自己和家人的健康，花时间学习一下还是很值得的，这个方法也适用于野外作战或生活时对水质进行处理，对伤口进行消毒。或不小心染上痢疾等等，都可以使用，甚至还可以处理蛇咬伤。可以说是一款难得的护身神器。希望朋友们多了解，多使用，多分享。
+之后，中共开始推行人民币国际化，试图奴役和殖民更多海外民众。对内则试图使人民币透明化、可控制化，即掠夺和控制中国人民财富。中共原想在3月1日推行的5万元人民币限制规定，根本目的就是试图防止人民币流向喜币和喜联储。
 
-MMS是Miracle Mineral Solution/Supplement英文字头的缩写，可以译作“神奇的矿物质溶液/补充剂”,最初（1996年）是由美国冶金工程师吉姆?汉伯 （Jim Humble）发明的，是一种亚氯酸钠水溶液（MMS1）和次氯酸钙(MMS2)粉末。食用后可以在体内分别产生二氧化氯和次氯酸，杀灭体内各种致病菌，缓解或治疗多种疾病，特别是一些疑难杂症甚至绝症，例如艾滋病、癌症等。自从MMS问世以来，在世界各地引起极大反响。他的著作已被翻译成11种语言。虽然美国FDA 2010年发出禁用警告，医药公司和主流医学家们纷纷质疑，但其发展势头愈加猛烈，在非洲和南美受到欢迎，受惠的老百姓愈来愈多，近来我国普通百姓特别是面临死亡威胁的癌症病人或艾滋病患者也开始了解研究、购买试用这种产品，绝望的疑难杂症患者纷纷发文求助。 并取得了非常的效果。
+（请播放视频：00:00-2:38   https://www.gettr.com/post/pwzoas1b98  2’38” ）
 
-以下MMS矿物质溶液手册可以打开阅读或下载保存。也附上MMS矿物质溶液中文与英文网址供大家学习参考。
+参考链接：[中俄是如何形成邪恶轴心国同盟的？](https://www.gettr.com/post/pwzoas1b98)
 
-[MMS中国网](http://www.1ahausmeister.com/mms-cn.net/index.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-[英文官网](https://jimhumble.co/)
+总编/编辑：飞虹
+校对/发稿：小野貓（文凱琳）
 
-[MMS使用手册](https://assets.gnews.org/wp-content/uploads/2022/02/MMS使用手册2021.8.25-1.pdf)[Download](https://assets.gnews.org/wp-content/uploads/2022/02/MMS使用手册2021.8.25-1.pdf)
+**更多资讯，更多关注**
 
-(本文仅代表个人观点)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
