@@ -2,36 +2,86 @@
 ---
 
 
-## 人性的伟大，乌克兰母亲将陌生人的孩子带到安全地带
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2077365/)
+## 乌克兰总统弗拉基米尔·泽连斯基表示“敌人将我列为第一目标，”他说，“我的家人列为第二目标”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2077575/)
 
-撰稿：东京樱花团/英语组
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-23.jpg)图片来源于本文链接![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/图片5-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/图片6-6.jpg)
-匈牙利拜赖格舒拉尼（BEREGSURANY），2月26日（路透社），周六，娜塔莉亚.阿波利耶娃攥着一个她从未见过的女人的手机号码，从乌克兰越过边境进入匈牙利，有人委托她携带一件珍贵的东西——一个陌生人的孩子。
+[https://gtv.org/video/id=621b8fa04353d33974c37a80](https://gtv.org/video/id=621b8fa04353d33974c37a80)
 
-在乌克兰一侧的边境口岸等待时，阿波利耶娃遇到了一个来自她的家乡卡米亚涅茨·波迪尔斯基的绝望的38岁男子，带着他年幼的儿子和女儿。边防军不会让他通过。乌克兰禁止所有18至60岁的乌克兰男子离开，让他们为自己的国家而战。
+Volodymyr Zelensky (Ukraine’s president)
+弗拉基米尔·泽连斯基 (乌克兰总统)
 
-58岁的阿波利耶娃说：“他们的父亲简单地把两个孩子交给了我，信任我，把他们的护照给我，让我把他们带过来。”
+Today, I have asked 27 European leaders whether Ukraine will be in NATO
+今天，我已经询问了 27 位欧洲领导人，乌克兰是否会加入北约
 
-孩子们的乌克兰母亲正从意大利赶来接他们，并把他们带到安全的地方，孩子的父亲说。他把孩子们母亲的手机号码给了阿波利耶娃，并与孩子们告别，他们穿着厚厚的外套，戴着帽子，抵御寒冷。
+I have asked directly – everyone is afraid, no one answers
+我已经直接问过了—大家都害怕，没有人回答
 
-阿波利耶娃把自己两个长大的孩子留在了乌克兰。一个是警察，另一个是护士，根据动员令，他们都不能离开乌克兰。
+But we are not afraid, we are not afraid of anything
+但我们不怕，我们什么都不怕
 
-她拉着两个小孩的手，一起越过了边界。
+We are not afraid to defend our country, we are not afraid of Russia
+我们不怕保卫我们的国家，我们不怕俄罗斯
 
-在匈牙利一侧的贝雷格苏拉尼，他们坐在为源源不断涌入边境的难民搭建的帐篷附近的长椅上等待。小男孩正在哭，他的手机响了，是他的母亲，她快到边境站了。
+We are not afraid to talk to Russia, we are not afraid to talk about anything
+我们不怕与俄罗斯交谈，我们不怕谈论任何事情
 
-当33岁的安娜.塞缪克到达时，她的金发被刮成马尾，她拥抱了她的儿子，然后去找她的女儿，她的女儿疲惫地靠在一辆汽车的后座里，身上裹着一条粉红色的毯子。
+about security guarantees for our country
+关于我们国家的安全保障
 
-然后塞缪克感谢了阿波利耶娃。站在寒冷的灌木丛中，两个女人拥抱了几分钟，开始哭泣。
+we are not afraid of talking about neutrality
+我们不怕谈论中立
 
-“我现在能对我的孩子们说的是，一切都会好起来的，”塞缪克说。“再过一两个星期，我们就可以回家了。”
+We are not NATO members at the moment
+我们目前不是北约成员
 
-[原文链接](https://www.reuters.com/world/europe/ukrainian-border-mother-brings-strangers-children-safety-2022-02-26/)
+But what guarantees will we get?
+但是我们会得到什么保证呢？
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+And most importantly, which countries will give us those guarantees?
+最重要的是，哪些国家会给我们这些保证？
+
+I remain in the capital, may family is also in Ukraine
+我留在首都，我的家人也在乌克兰
+
+My children are in Ukraine
+我的孩子们在乌克兰
+
+my family are not traitors, they are citizens of Ukraine
+我的家人不是叛徒，他们是乌克兰公民
+
+where exactly they are, I have no right to say
+他们到底在哪里，我无权说
+
+according to the available intelligence, the enemy marked me as a target No. 1
+根据现有情报，敌人将我标记为第一目标
+
+My family as the target No. 2
+我的家人作为第二号目标
+
+They want to destroy Ukraine politically by destroying the head of the state
+他们想通过摧毁国家元首在政治上摧毁乌克兰
+
+原视频链接[https://twitter.com/nytimes/status/1497066350715490317?s=24](https://twitter.com/nytimes/status/1497066350715490317?s=24)
+
+Date:02/26/2022
+原视频标题: Ukraine’s president, Volodymyr Zelensky, said that he remained in the country despite rumors that he had fled. “The enemy has marked me as target No. 1,” he said, “my family as target No. 2”
+乌克兰总统弗拉基米尔·泽连斯基表示，尽管有传言称他已经逃离，但他仍留在该国。 “敌人将我列为第一目标，”他说，“我的家人列为第二目标”
+原视频日期：2022/02/26
+原视频链接https://twitter.com/nytimes/status/1497066350715490317?s=24
+任务编号：KE423（3863）
+视频时间段 : 0:00-1:26
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-咕噜咕噜
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

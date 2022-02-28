@@ -2,59 +2,88 @@
 ---
 
 
-## 中共对马云蚂蚁集团的新调查标志着更多监管的回归
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2077657/)
+## 人民车队开始抗议强制疫苗的旅程
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2077712/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-22T083501Z_2_LYNXMPEI1L09C_RTROPTP_4_ALIBABA-SURVEILLANCE-1-700x420-1.jpg)2020 年 11 月 23 日，在中国浙江省乌镇举行的世界互联网大会上，阿里巴巴集团的标志。（Aly Song摄/路透社）
-摘要翻译：
+[https://gtv.org/video/id=621bb8c14353d33974c38a8e](https://gtv.org/video/id=621bb8c14353d33974c38a8e)
 
-来源于《大纪元时报》网站2022年02月24日的报道，
+Allen Kelly (American truck owner and operator for 28 years)
+艾伦·凯利（美国卡车车主和经营者 28 年）
 
-据报道，中共政府主导的对马云的蚂蚁集团的监管打击卷土重来，为中国金融科技行业敲响了警钟。
+Oh my gosh, I couldn’t feel prouder today
+哦，我的天哪，我今天感到无比自豪
 
-据彭博社周一首次报道中援引接近此事的消息人士的话，阿里巴巴集团的支付子公司蚂蚁金服正面临更多的国家干预，中共政府要求银行和国有企业在1月份之前对其与该集团的财务风险和其他联系进行新一轮检查。
+I couldn’t believe the turnout that we had back there
+我简直不敢相信对我们的支持是如此的好
 
-这一最新举措再次让投资者关注中共政府对该国科技行业的全面审查，这与去年对娱乐、教育和游戏等一系列行业进行的更广泛打击相呼应。
+The people that come out to support us, the trucks that showed up
+人们出来支持我们，卡车出来了
 
-随着中共政府重新强调“共同富裕”—共产党人吹捧的口号是社会主义的最终目标—长达一年的打压已经结束了一些拥有数十年历史的公司的成功故事，而阿里巴巴则自2020年底以来一年内损失了近一半的市值。
+and trucks that are waiting to join the convoy all the way back across the country
+和一路上全国各地等待加入车队的卡车
 
-“中国共产党的焦点不是马云这个人，而是他背后的资金链，”台湾经济学家吴家龙(Wu Jialong，音译)说。“中央政府有意将其业务国有化，因为它希望加强对金融部门的控制，”他说，鉴于这家中共国最大的支付服务提供商，拥有超过10亿用户，已经侵犯了国有银行。
+I mean, we’re just funnels two or 300 trucks
+我的意思是，我们已经组成了200到300 辆卡车的车队
 
-北京大学法学院前院长、现居澳大利亚的持不同政见者袁红兵称，此举是对私营企业“事实上但变相没收财富”，以应对该国目前迫在眉睫的经济危机。
+I mean all over the place that are ready to join in
+我的意思是所有人都准备加入车队
 
-袁先生在周三的采访时表示，鉴于马云与习近平的主要竞争对手前领导人江泽民的派系相熟，对马云的行动与其说是企业创始人和中共领导人习近平之间的个人恩怨，不如说是习近平与其政治对手之间的权力斗争。
+It’s just it’s just people bringing out Bibles
+就像人们拿着圣经
 
-这位亿万富翁的商业帝国在去年之前就受到了审查。蚂蚁金服首先在2020年11月遭遇了被取消的首次公开募股。当局随后于2021年4月因垄断问题对阿里巴巴处以创纪录的28亿美元罚款。中共政府推动的重组计划进一步脱离了蚂蚁金服的主营业务及其贷款部门，并引入外部股东。
+and church groups and families and children
+和教会团体、家庭和儿童
 
-吴先生说，中共政府“非常不透明”的监管政策和金融部门的“高度不确定性”进一步削弱了人们对私人投资的信心。
+and the notes and like Maureen said
+和字条，就像莫琳说的
 
-该政权最近的举动周二引发了科技股的抛售。作为其中的一部分，阿里巴巴的股价只是下跌，其季度利润预计将受到重创，有人说是高达60%。
+the cookies and stuff like that
+像饼干之类的东西
 
-**简评：**
-中共政府正在通过各种手段对私营企业进行整肃，如监管部门突然在高科技企业中发现了名目繁多的各类问题：行业垄断，危害国家安全，违背数据保护条例等等，让蚂蚁金服、滴滴出行和游戏巨头腾讯成为完美的替罪羊，致使这些上市公司的股价一路猛跌，也让其他科技公司乖乖就范，以便对这些高科技企业进行更好的控制，同时私营企业富豪们的好日子也似乎已经到了尽头。
+I can tell you, I heard your your story about Nancy Pelosi earlier
+我可以告诉你，我早些时候听说过关于南希·佩洛西的故事
 
-郭文贵先生爆料初期就曾经说过中共国的私人企业就是小姐(妓女)，私人企业就是捞钱的工具。所以哪怕以马云、马化腾等为代表的富豪们慷慨解囊，甚至去井冈山表忠心，指望能以此换取党和政府对他们网开一面，可结局依然是肖建华的被捕，王健的惨死……
+that’s just more waste of taxpayers money
+那只是在浪费纳税人的钱
 
-中共国的私人企业家们只有完全打破对中共的幻想，像郭文贵先生一样站出来对中共说不，推翻中共的独裁统治，才能彻底改变不被压制盘剥的命运。
+because I can tell you this is the most peaceful convoy
+因为我可以告诉你这是最和平的车队
 
-新闻链接：[China’s New Probe of Jack Ma’s Ant Group Flags the Return of More Regulatory Crackdowns](https://www.theepochtimes.com/chinas-new-probe-of-jack-mas-ant-group-flags-the-return-of-more-regulatory-crackdowns_4298885.html)
+that you could ever be and it’s the People’s Convoy
+是人民的车队
 
-*翻译/简评：Brianchow*
+there’s gonna be no trouble here
+这里不会有问题
 
-*校对：感恩*
+And all we want is we want the Emergency Powers Act ended
+我们想要的只是我们希望《紧急权力法》结束
 
-* * *
+and we want our constitution back
+我们希望捍卫我们的宪法
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+that’s all this is about
+这就是全部诉求
 
+**原视频链接**[https://twitter.com/newsmax/status/1496606040577744901?s=24](https://twitter.com/newsmax/status/1496606040577744901?s=24)
 
-编辑：【英国伦敦喜庄园编辑部】
+Date:02/25/2022
+原视频标题:People’s Convoy kicks off its journey to protest vaccine mandates
+人民车队开始抗议强制疫苗的旅程
+原视频日期：2022/02/24
+原视频链接https://twitter.com/newsmax/status/1496606040577744901?s=24
+任务编号：KC419（3837）
+视频时间段 : 0:00-0:50
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+英听校: 杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

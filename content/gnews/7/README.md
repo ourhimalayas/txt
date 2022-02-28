@@ -2,29 +2,38 @@
 ---
 
 
-## 有声|中共习近平和俄罗斯普京通话
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2077678/)
+## 俄罗斯实施新一轮袭击，大批乌克兰民众逃往邻国
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2077739/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月25日下午，习近平和俄罗斯普京通话。这是俄罗斯入侵乌克兰之后第一个与其通话的国家。中共大外宣报道说普京祝贺冬奥会圆满成功，且对自己此次入侵乌克兰的原因进行了一番解释，其原因主要是欧美和北约等国背弃明斯克协定不断东扩，对俄罗斯的国家安全造成了巨大的影响，所以俄罗斯就对乌克兰进行了入侵，对无辜的乌克兰老百姓进行了战争大屠杀。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-习近平表示普京此举打得好，彰显了俄罗斯作为共产党亲爹的大国风范。但是明明就是欧美不遵守规则，俄罗斯不去找欧美等国家解决，反而选择去揍最弱小的乌克兰，难道乌克兰的人命就不是人命，就应该被揍？习近平还表示国际社会，尤其是和欧美等国，不可能再寻求一种和平发展的态势了，现在就是你死我活的状态，并且会沿袭和俄罗斯一样的战略，挑那个最弱小的揍，下一个就是台湾。
+翻译：Little lamp
+编辑：文泓
 
-文字版原文：[中共习近平和俄罗斯普京通话](https://gnews.org/zh-hans/2072340/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-41.png)图片来源：The Guardian & 雅典娜设计组
 
-音频处理：Fei797
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+当地时间周日，据美联社乌克兰基辅报道，俄罗斯对乌克兰发动了一波针对民用机场和燃料设施的袭击，由于遭遇激烈的抵抗而减慢了速度。美国和欧盟为人数众多的乌克兰人提供了武器和弹药，并采取强有力的制裁措施，旨在进一步孤立莫斯科。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+周日早些时候，巨大的爆炸照亮了首都基辅以南的天空，人们躲在家里、地下车库和地铁站里。预计俄罗斯军队将发起全面进攻。
+
+据该镇市长称，瓦西尔科夫空军基地附近的一个油库在黎明前燃起大火，那里发生了激烈的战斗。泽连斯基总统办公室表示，另一起爆炸发生在朱利安尼民用机场。
+
+泽连斯基办公室还表示，俄罗斯军队炸毁了该国第二大城市哈尔科夫的一条天然气管道，促使政府警告人们用湿布或纱布遮住窗户，以保护自己免受烟雾影响。
+
+惊恐的民众带着女人和孩子在室内和地下寻求安全，政府维持了39小时的宵禁，以阻止人们上街。已有超过15万乌克兰人[逃往波兰、摩尔多瓦和其他邻国](https://apnews.com/article/russia-ukraine-europe-poland-migration-united-nations-c3af8a01b6abdfafb022930d9749efa0)。联合国警告说，如果战斗升级，这一数字可能会增加到400万。
+
+参考链接：[Russia hits Ukraine fuel supplies, airfields in new attacks | AP News](https://apnews.com/article/russia-ukraine-volodymyr-zelenskyy-kyiv-europe-united-nations-edc6df79755195b29473cfd6d38b1ebb)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

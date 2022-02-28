@@ -2,88 +2,56 @@
 ---
 
 
-## 人民车队开始抗议强制疫苗的旅程
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2077712/)
+## 中共称美国军舰在台湾海峡航行是“挑衅”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2077760/)
 
-[https://gtv.org/video/id=621bb8c14353d33974c38a8e](https://gtv.org/video/id=621bb8c14353d33974c38a8e)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/60b8ea1c-04cc-4203-96f4-3fe569063ef0-1.jpg)网络图片
+摘要翻译：
+来源于《新闻极限》网站2022年02月26日的报道，
 
-Allen Kelly (American truck owner and operator for 28 years)
-艾伦·凯利（美国卡车车主和经营者 28 年）
+周六，一艘美国军舰驶过敏感的台湾海峡，这是美国军方称之为常规活动的一部分，但中共称其为“挑衅”。
 
-Oh my gosh, I couldn’t feel prouder today
-哦，我的天哪，我今天感到无比自豪
+美国海军第七舰队表示，阿利·伯克（Arleigh Burke）级导弹驱逐舰拉尔夫·约翰逊 （Ralph Johnson）号正在国际水域进行“例行”过境。
 
-I couldn’t believe the turnout that we had back there
-我简直不敢相信对我们的支持是如此的好
+第七舰队发言人尼古拉斯·林戈(Nicholas Lingo)在一份声明中说：“该舰穿过台湾海峡的举动，表明了美国对自由和开放的印太地区的承诺。” “美国军队在国际法允许的任何地方飞行、航行和行动。”
 
-The people that come out to support us, the trucks that showed up
-人们出来支持我们，卡车出来了
+中共国人民解放军东部战区司令部监控了这条通道，其发言人在一份声明中称这是“挑衅行为”。
 
-and trucks that are waiting to join the convoy all the way back across the country
-和一路上全国各地等待加入车队的卡车
+台湾国防部表示，这艘船舰向北航行穿过海峡，其部队对这艘船的航行进行了监控，并没有观察到任何异常情况。
 
-I mean, we’re just funnels two or 300 trucks
-我的意思是，我们已经组成了200到300 辆卡车的车队
+由于俄罗斯入侵乌克兰，台湾目前处于高度警戒状态，虽然政府已经报告说中共没有任何异常军事行动，但担心中共可能会试图利用这种局势对台湾采取行动。
 
-I mean all over the place that are ready to join in
-我的意思是所有人都准备加入车队
+台湾国防部表示，周六，八架中共国飞机（六架战斗机和两架反潜机）飞入其防空识别区（ADIZ），该防空识别区位于台湾控制的南海顶端普拉塔斯（Pratas）群岛的东北部。
 
-It’s just it’s just people bringing out Bibles
-就像人们拿着圣经
+中共称台湾是中美关系中最敏感、最重要的问题。
 
-and church groups and families and children
-和教会团体、家庭和儿童
+与大多数国家一样，美国与台湾没有正式的外交关系，但却是其最重要的国际支持者和武器供应国。
 
-and the notes and like Maureen said
-和字条，就像莫琳说的
+**简评：**
+正当俄罗斯入侵乌克兰的战事紧张之际，中共解放军宣布27日起将在南海举行军事演习，与此同时，被中共称“具有挑衅性”的美国海军一艘驱逐舰，正在穿越台湾海峡。不管中共是在寻找入侵台湾的理由，还是中美都在测试自己的界限。台海是否可能爆发战事？纵观当初中共对香港的暴行，那么其恶行及野心则昭然若揭。尤其中共国内经济处在崩溃边缘，习皇将谋求连任，如果能够一举拿下台湾，对内可为连任造势， 对外又可以攻为守，同时将美国也拖入战争的旋涡。
 
-the cookies and stuff like that
-像饼干之类的东西
+不过通过俄-乌战事，看到的是世界各国对俄罗斯的经济制裁，及对乌克兰的各种援助。如果中共对台动武，对习近平来说一定是“首战即终战”，因为世界各国可以直接翻版对俄罗斯的制裁，对中共的制裁连考虑和讨论都不需要。
 
-I can tell you, I heard your your story about Nancy Pelosi earlier
-我可以告诉你，我早些时候听说过关于南希·佩洛西的故事
+希望能看清战争对敌我双方都是残酷的，中共国老百姓及子弟兵们，不要去响应习皇对台动武的号召，对习皇的穷兵黩武说不。
 
-that’s just more waste of taxpayers money
-那只是在浪费纳税人的钱
+新闻链接：[China Says US Warship Sailing in Taiwan Strait ‘Provocative’](https://www.newsmax.com/world/globaltalk/taiwan/2022/02/26/id/1058653/)
 
-because I can tell you this is the most peaceful convoy
-因为我可以告诉你这是最和平的车队
+*翻译/简评：Brianchow*
 
-that you could ever be and it’s the People’s Convoy
-是人民的车队
+*校对：Julia Win*
 
-there’s gonna be no trouble here
-这里不会有问题
+* * *
 
-And all we want is we want the Emergency Powers Act ended
-我们想要的只是我们希望《紧急权力法》结束
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-and we want our constitution back
-我们希望捍卫我们的宪法
 
-that’s all this is about
-这就是全部诉求
+编辑：【英国伦敦喜庄园编辑部】
 
-**原视频链接**[https://twitter.com/newsmax/status/1496606040577744901?s=24](https://twitter.com/newsmax/status/1496606040577744901?s=24)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-Date:02/25/2022
-原视频标题:People’s Convoy kicks off its journey to protest vaccine mandates
-人民车队开始抗议强制疫苗的旅程
-原视频日期：2022/02/24
-原视频链接https://twitter.com/newsmax/status/1496606040577744901?s=24
-任务编号：KC419（3837）
-视频时间段 : 0:00-0:50
 
-英听校: 杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
