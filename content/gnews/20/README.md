@@ -2,31 +2,37 @@
 ---
 
 
-## 纽约市计划放弃学校的疫苗护照，企业随后
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2078005/)
+## 有声|联合国人权专家呼吁阻止中俄等国向缅甸军政府提供武器
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2078147/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1358832581.jpg)图片来源：NBC New York
-根据《NBC NewYork》2月27日报道，在纽约人日常生活中必不可少的两样东西，口罩和疫苗护照，可能很快就会成为过去。这对曾经是COVID-19大流行病震中的纽约市来说是一个重大的逆转。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据英国媒体2月23日报道，联合国缅甸人权状况特别报告员汤姆·安德鲁斯指出，俄罗斯和中共仍在继续向缅甸军政府提供战斗机等用来屠杀平民的武器，并催促联合国安理会阻止这些用于暴行的武器流入缅甸。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-36.png)
+安德鲁斯表示，中共、俄罗斯和塞尔维亚自2018年以来一直在向缅甸军政府提供用于袭击平民的武器，这些武器包括喷气式战斗机、装甲车、弹道导弹系统和移动防御系统。报告说，这些国家“完全知道这些武器将被用于攻击平民”。
 
-周日，市长埃里克-亚当斯宣布，他打算取消该市的 “Key2NYC “政策，该政策要求5岁以上的人在大多数公共场所提供疫苗护照。他还说，学校将不再要求学生和工作人员在室内戴口罩。
-
-这些步骤是纽约市走向恢复大流行前生活的一些最大步骤，将于3月7日星期一开始。
-
-市长在一份声明中说：”在本周结束时，我们将评估数字，并在星期五作出最后宣布。如果我们没有看到不可预见的高峰，而且我们的数字继续显示低水平的风险，纽约市将取消对公立学校儿童的室内口罩强制，从下周一，即3月7日开始“。
-
-在结束疫苗强制之前，市长的团队还将审查该市的COVID指标。只要这些指标 “显示出低水平的风险，并且我们在本周没有看到任何意外”，结束疫苗强制这一举措也将继续进行。
-
-市长还说，在疫苗强制结束前给企业主一周的时间，将使他们有 “时间适应”。
-
-我们继续关注结束疫苗强制。
-
-原文链接：
-[https://www.nbcnewyork.com/news/coronavirus/once-the-epicenter-new-york-city-plans-to-drop-vaccine-mandate-and-masks-in-schools/3574239/](https://www.nbcnewyork.com/news/coronavirus/once-the-epicenter-new-york-city-plans-to-drop-vaccine-mandate-and-masks-in-schools/3574239/)
-
-编辑，发稿 Spirit
+联合国引述一位活动人士的话说，至少有1500名平民被军政府杀害，军方和武装反对派在农村的冲突导致30多万人流离失所，在对罗兴亚穆斯林少数民族进行血腥镇压后，数十万人逃往邻国孟加拉国。
 
 
+
+文字版原文：[联合国人权专家呼吁阻止中俄等国向缅甸军政府提供武器](https://gnews.org/zh-hans/2072862/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

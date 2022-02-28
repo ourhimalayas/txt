@@ -2,8 +2,8 @@
 ---
 
 
-## 中国没有信仰，没有道德 人心烂了
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2078259/)
+## 法制基金法治社会的力量
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2078312/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

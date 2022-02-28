@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/28/2022 3:27 AM (UTC)`
+
+2/27/2022 Miles Guo:  The CCP’s wars have always costed the lives of countless people with no strategy at all; Ukraine has perfectly used the psychology of war, not only making friends but also winning their support; the US seems to be silent in the war in Ukraine, but they are actually aiming at the instigator CCP<br/><br/>2/27/2022  文贵直播：中共的战争一向打的都是无数人的生命，毫无战略可言；乌克兰完美地运用了战争心理学，不但交了朋友还赢得了朋友的支持；美国在乌克兰战事上看似不动声色，其实已瞄准了背后的中共<br/>
+![img](https://media.gettr.com/group3/getter/2022/02/28/03/51d2f168-ff56-8bff-f735-c27679c42e6e/out.jpg)
+
+---
+
 `@miles 2/28/2022 1:12 AM (UTC)`
 
 2/27/2022  Miles Guo: President Zelenskyy is a wise world-class leader. He upholds the truth and is defeating Russia's disinformation war with the strategy of showing weakness; Zelenskyy will be a legend.<br/><br/>2/27/2022 文贵直播：乌克兰总统泽连斯基是个智慧的世界级领导人，他用唯真不破的示弱战略正在击败俄罗斯的虚假信息战；泽连斯基将是个传奇<br/>
@@ -144,13 +151,6 @@ Announcement of New Federal State of China & Rule of Law Foundation on Emergency
 
 February 26th, 2022, Mr. Miles Guo’s Urgent Livestream: our rescue operation is based on the financial strength and international relations from G Series, ROL Foundation and ROL Society. Any fellow fighters shall not make any personal decisions to initiate any donations or so-called financial support of any kind at this time. The CCP’s infiltration will be very severe at this time and we must be careful<br/><br/>2/26/2022 文贵紧急直播：我们的救援来自G系列、法治基金、法治社会的经济实力和国际关系。任何战友此时不能做任何捐和所谓各种支持的私自决定。此时共产党的渗透会很严重，我们务必要小心<br/>
 ![img](https://media.gettr.com/group21/getter/2022/02/27/07/f83a8949-f53c-3662-d7bb-33e33856a449/out.jpg)
-
----
-
-`@miles 2/27/2022 5:39 AM (UTC)`
-
-2/26/2022 Miles Guo’s Urgent Livestream: The CCP has only rescued its family members and illegitimate children in Ukraine without taking any concrete action to withdraw or save any ordinary Chinese people. The priority of the New Federal State of China is to save the families of the citizens of the follow fighters of the New Federal State of China and the American friends by working with the UN relief organizations under the direction of the Rule of Law Foundation and Rule of Law Society, and we will help rescue as many of the expatriates from all other countries in Ukraine as we can.<br/><br/>2/26/2022 文贵紧急直播：中共只顾自己在乌克兰的家人和私生子，丝毫没有进行撤侨和任何救助普通华人的行动。新中国联邦将和联合国救援组织合作，在法治基金和法治社会的主导下优先救助新中国联邦战友的家人和美国朋友，并尽可能救助在乌克兰的所有国家的人。<br/>
-![img](https://media.gettr.com/group39/getter/2022/02/27/05/a0a03b93-9ce8-81fa-7ec5-86ffd0169a8e/out.jpg)
 
 ---
 

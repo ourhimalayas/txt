@@ -2,35 +2,40 @@
 ---
 
 
-## 俄乌战争信息战对抗影响
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2077887/)
+## 有声|确诊人数激增，香港将实行大规模核酸检测
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2078109/)
 
-作者：香草山健身部-文鹰
+配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月27日文贵大直播，郭文贵先生评述俄乌战争中，提到双方“信息战”事件。
+据路透社报道，香港特首林郑月娥22日表示，将从 3 月中旬开始，对香港 740 万居民实施中共病毒强制检测。 她说，严格的冠状病毒规定将一直实施到 4 月中旬，学校将在夏季提前放假，并在 8 月开始新的学年，现在确诊病例的激增已经使医疗保健系统不堪重负。
 
-信息战是军事行动中的一种作战形式。它是指在现代战争中，大量使用信息技术和信息武器的基础上，争夺战场信息控制权，进而影响和决定战争的胜负。
-信息战的范围包括战场网络战、电子战、情报战、心理战、经济战及电脑病毒战。
-俄军对乌克兰开战前，利用网络攻击瘫痪了乌克兰政府网站。第一波攻击，用地-地中程导弹和空、海基巡航飞弹，摧毁了乌克兰防空雷达、机场等诸多军事设施，地面部队随即分三路向乌克兰境内攻击。
+林正月娥表示在强制测试计划下，居民将需要进行三次测试，每天的测试能力达到一百万。她说，包括校园在内的场所可用于检测和隔离，她还透露中共将在香港建造一座临时医院。这些措施是香港在中共病毒爆发两年后实施的最严厉的措施。
 
-战争爆发后，乌克兰总统泽连斯基没有抛弃人民，不畏强敌、誓死抵抗，指挥军队并重创俄军。俄军散播泽连斯基逃跑国外，乌军投降等战场假信息，企图瓦解乌克兰抵抗意志，但没有达到预期效果。
+香港卫生当局报告了 6,211 例新病例，32 人死亡，另有 9,369 例在初步检测中呈阳性。他们说，这些数据并不能反映全部的真实情况。 香港大学的研究人员预测，到 3 月下旬每天的死亡人数可能达到接近 100 人的峰值，到 5 月中旬，累计死亡人数可能上升到 3,206 人左右。感染人数可能达到每天 180,000 人的高峰。
 
-乌总统在这一场不对称战争中，用社交自媒体进行信息反击。向世界发布现场图片、语音视频、音乐歌曲，及时公布战斗进展实时战果，揭穿俄军虚假信息宣传。引发国际社会高度同情，并得到道义上和物质上大量支援。同时激起俄罗斯国内的民众反战情绪。对侵乌的俄军部队产生严重心理影响。
-这一场战争中的信息战胜负结果，毫无疑问是站在了正义的乌克兰一边。
+该研究预计，7天隔离的感染人数可能达到60万以上，而7天隔离的密切接触者人数可能达到180万，恐将导致社会严重混乱。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/c2eb0000-0aff-0242-a74b-08d9eb058bfc_w408_r1_s.jpg)
 
-新闻衔接：[http://\[https://gtv.org/video/id=621b7633019ef64da651ee6c\]](http://[https://gtv.org/video/id=621b7633019ef64da651ee6c])
 
-审核/编辑/发稿:qiutian（邱甜）
+文字版原文：[确诊人数激增，香港将实行大规模核酸检测](https://gnews.org/zh-hans/2073127/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-7.png)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

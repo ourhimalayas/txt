@@ -2,8 +2,8 @@
 ---
 
 
-## 灭掉七个老杂毛，世界解放
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2078246/)
+## 美国保护台湾最好的方法就是 把7个老杂毛干掉
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2078305/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

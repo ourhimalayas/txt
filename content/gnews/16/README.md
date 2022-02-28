@@ -2,40 +2,32 @@
 ---
 
 
-## 有声|确诊人数激增，香港将实行大规模核酸检测
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2078109/)
+## 新中国联邦救援乌克兰行动影响了世界
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2078267/)
 
-配音：香草山佛教部 – 李傻
+作者：纽约香草山教育部-春草
+
+2022年2月28日
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据路透社报道，香港特首林郑月娥22日表示，将从 3 月中旬开始，对香港 740 万居民实施中共病毒强制检测。 她说，严格的冠状病毒规定将一直实施到 4 月中旬，学校将在夏季提前放假，并在 8 月开始新的学年，现在确诊病例的激增已经使医疗保健系统不堪重负。
+2022年2月26日，《新中国联邦》的发起人、缔造者一一郭文贵先生，向全世界公布了救援乌克兰的方案。这一决定引起了世界的关注，并影响了很多国家，改变了观望的态度。如德国180度转弯开始对乌克兰军事援助，俄罗斯被踢出了swift及所有交易系统，欧盟对俄关闭了所有领空及港口，众多外国志愿者加入了志愿军赴乌参加保卫战，英美等几十个国家把大量的武器和药品送到乌克兰……。就连被中共洗脑的部分中国人民也醒悟了，由原来的赞扬普京支持俄罗斯的侵略战争，改为支持乌克兰的正义的战争。
 
-林正月娥表示在强制测试计划下，居民将需要进行三次测试，每天的测试能力达到一百万。她说，包括校园在内的场所可用于检测和隔离，她还透露中共将在香港建造一座临时医院。这些措施是香港在中共病毒爆发两年后实施的最严厉的措施。
+一个新兴起的、代表中国人民利益的、还未被国际承认的新中国联邦，在其它国家遭受外敌侵略、其国人生灵涂碳的危难之际，代表中国人民毫不犹豫地伸出援助之手，送去急需的物资和药品，解救陷于危险的本国和友邦的人员，多么感人的行动啊。这就是伟大的国际主义精神，用实际行动向全世界宣告：中国人民不是自私自利的，中国人民不等于中国共产党，中国人民和全世界爱好和平的人民一样，愿意共同建设维护大家的安全美好的家园，决不允许任何独裁者、妄图称霸世界、奴役世界人民的邪恶组织和个人，欺压和屠杀无辜的平民，必须将他们彻底地消灭，连根铲除，全世界爱好和平的人民才能过上平安、幸福、美好的生活。
 
-香港卫生当局报告了 6,211 例新病例，32 人死亡，另有 9,369 例在初步检测中呈阳性。他们说，这些数据并不能反映全部的真实情况。 香港大学的研究人员预测，到 3 月下旬每天的死亡人数可能达到接近 100 人的峰值，到 5 月中旬，累计死亡人数可能上升到 3,206 人左右。感染人数可能达到每天 180,000 人的高峰。
+中国人不等于中共，彻底消灭共产党！
 
-该研究预计，7天隔离的感染人数可能达到60万以上，而7天隔离的密切接触者人数可能达到180万，恐将导致社会严重混乱。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/c2eb0000-0aff-0242-a74b-08d9eb058bfc_w408_r1_s.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-59.jpg)
 
+审核/编辑/发稿:qiutian（邱甜）
 
-文字版原文：[确诊人数激增，香港将实行大规模核酸检测](https://gnews.org/zh-hans/2073127/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-7.png)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

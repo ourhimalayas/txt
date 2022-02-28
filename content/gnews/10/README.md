@@ -2,28 +2,20 @@
 ---
 
 
-## 新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2078209/)
+## 习打了台湾，带着中国人的标签，甚至亚洲人都会为此买单
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2078299/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2282.jpg)
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。
+*发布：陶子*
 
-救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。
-
-24小时救援联系方式如下：
-
-邮箱：
-[\[email protected\]](/cdn-cgi/l/email-protection) 或 
-[\[email protected\]](/cdn-cgi/l/email-protection)
-电话和短信：+1 720-657-6776 或 +1 719-224-4232
-
-新中国联邦
-法治基金
-2022年2月26日
-
-**审核校对：Barry Jack
-上传排版：V在途中**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

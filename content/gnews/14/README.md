@@ -2,39 +2,45 @@
 ---
 
 
-## 有声|美国医学专家反对全面疫苗计划
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2078131/)
+## 马斯克开通乌克兰上空星链服务
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2078280/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据外媒2月26日报导，在1月24日一个与疫苗有关的座谈会上，美国多位前线医生、医学专家和疫苗受害者，都针对中共病毒疫苗的安全性，即是否应强制人民打疫苗以及孩童是否需要打疫苗等问题表示出高度质疑。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-25.jpg)
-原尔湾分校精神病学副教授和医学伦理学项目主任认为，相关公共卫生部门不想承认政策失败，但事实是大规模接种疫苗并没有抑制病毒传播，甚至奥密克戎变种出现后，美国的感染人数大幅提高了。
-
-一位曾经的疫苗计划推手则表示，他并不支持全面的疫苗计划，尤其是不能让孩童接种疫苗。
-
-评论人士认为：所有勇于揭露或试图力挽疫苗灾难狂澜、有良知的科学家、医生、学者或是疫苗受害者等都是值得肯定的，邪恶的疫苗计划必须尽快摧毁，以避免更大的人类灾难。
+作者：纽约香草山金融部 – AT，纽约香草山教育部 – Naughty(文行)
 
 
 
-文字版原文：[美国医学专家反对全面疫苗计划](https://gnews.org/zh-hans/2072863/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+
+
+2月26日，在俄罗斯入侵乌克兰、乌国境内网络遭到中断后，乌克兰副总理在推特上公开向马斯克喊话：当你试图殖民火星时，俄罗斯在试图占领乌克兰！当你的火箭成功从太空着陆时，俄罗斯的火箭袭击了乌克兰平民！我们要求您向乌克兰提供星链服务。
+
+10个小时后，马斯克在乌副总理的推特下回应，已经为乌克兰开通星链互联网服务，并且有更多的接收天线正在运往乌克兰的途中 。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-10.jpg)
+网络观察人士表示，部署卫星科技虽然成本极高，但能给生活在乡村或光纤电缆及行动通讯基地台无法到达、难以提供服务的地区提供网络服务。当飓风或其他天灾中断通讯时，这项技术也能为通讯提供保障。
+
+参考链接：
+1. [Elon Musk Twitter: Starlink service is now active in Ukraine. More terminals en route.](https://twitter.com/elonmusk/status/1497701484003213317?t=2l1w1bS2nWsHiFVyUPG4wQ&amp;s=19)
+2. [乌克兰副总理请求马斯克为乌克兰提供星链服务，马斯克回应，已经为乌克兰开通星链互联网服务，并且有更多的接收天线正在运往乌克兰的途中](https://twitter.com/jsdfposjpqyuee1/status/1497774285036810240?t=OAUOrhc-2bLWGAgcFyUUcg&amp;s=19)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
