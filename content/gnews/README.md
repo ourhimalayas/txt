@@ -15,31 +15,31 @@
 
 ---
 
-### [卖毒和抓毒都是一伙人](/content/gnews/1/README.md)
+### [中共国听到的全是强奸的声音](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [中国人权律师团就铁链女事件发声明](/content/gnews/2/README.md)
+### [卖毒和抓毒都是一伙人](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [中国越底层越不适合人居住](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [中国人权律师团就铁链女事件发声明](/content/gnews/4/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [国际志愿军团加入乌克兰抗击俄罗斯入侵](/content/gnews/3/README.md)
+### [国际志愿军团加入乌克兰抗击俄罗斯入侵](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [五月份疫苗灾难爆发](/content/gnews/4/README.md)
+### [五月份疫苗灾难爆发](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [“疫苗经济”](/content/gnews/5/README.md)
+### [“疫苗经济”](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [西方准备新制裁措施 乌石油和天然气设施被毁](/content/gnews/6/README.md)
+### [西方准备新制裁措施 乌石油和天然气设施被毁](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [共产党命丧黄泉，没有人可以阻止](/content/gnews/7/README.md)
- ` MG FARM`
-
-### [最大的经济赢家——美国](/content/gnews/8/README.md)
- ` MG FARM`
-
-### [哨子的故事](/content/gnews/9/README.md)
+### [共产党命丧黄泉，没有人可以阻止](/content/gnews/9/README.md)
  ` MG FARM`
 
 ### [中共百年杀戮之（9）第二次国共合作——抗日战争](/content/gnews/10/README.md)
