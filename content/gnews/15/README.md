@@ -2,142 +2,32 @@
 ---
 
 
-## 前乌克兰总统向CNN表示，普京应该“感觉自己身处地狱”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2077783/)
+## 大直播后记：乌克兰紧急救援行动的前线联络和传播
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2077941/)
 
-[https://gtv.org/video/id=621bb95a4353d33974c38acc](https://gtv.org/video/id=621bb95a4353d33974c38acc)
+整理：奮鬥、sadhu
+编辑：skyandmoon
 
-John Berman (CNN host)
-约翰·伯曼（CNN 主持人）
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/02/dazhibohouji_common-1.png)图片来源：雅典娜设计组
 
-Mr. President, can you tell me what you in the group you’re with right now
-总统先生，你能告诉我你现在所在的小组是什么人吗？
 
-there are armed with, in what’s your intention is if the Russians
-武装的是什么吗？如果俄罗斯人出现，你的倾向是什么？
+我再次重申一下，这一次从现在，没有公开召集之前，任何人不能募捐，任何人不能捐款捐物。任何人不能独自持有任何这种思维，不管你是出自于善心还是什么目的，都是不被接受，都不允许。 这就是刚才草根小哥上来了，我们就是联盟这块都已经安排好任务，草根兄弟就是负责把G系列运营下去。所有的这些币复核，股票复核还有资金的各方面你配合好，后面不要乱了，你要做好这个。
 
-Petro Poroshenko (Former President of Ukraine)
-彼得·波罗申科（乌克兰前总统）
+老班长负责接来所有人的整个服务和安全保障。长岛哥是总协调。新闻这块儿就是已经说的很清楚了，有小福利和木兰他们来做整个财务这块儿。如水从这一刻起就是法治基金，法治社会。经济行动，如水是总负责。还有拉姆，文佳都会加入进来这个队伍，让他们来去做。然后整个欧洲是最重要的，救人来，现场协调，还有可能要到现场去。因为接下来2架飞机，我们要跟人家申请，人家同意以后，我们可能就是大卫要带着。
 
-this is just my assistance here
-这里只是我的助理
+要往那去飞，这个时候有独立的前线联络方式。文耀，我稍后可以告诉大家我们要有独特的，绝对的，军事化的安全联络方式。这个时候，我们前线就有一系列的救急安排，例如有妇女，有老人，有孩子。如果是我们需要上飞机，跟着飞机来回飞行的，包括到现场来不了的，我们给一些战友特定的一些供给物资。这个是大卫英喜和文耀安排的，包括取现金，比如带现金过去，照顾一些人，这都是你们要前线安排的。但是这前线一定要记住，要在总指挥部的安全的整个指挥之下。
 
-This is the short Kalashnikov
-这是短卡拉什尼科夫冲锋枪
+这个时候我们海东兄弟和颖妹妹可能要多上直播，把即时的情况，你两个告诉这个全世界和国内的同胞们。我们最重要的事情，千万记住，那小粉红你也得救。你不要以为那是小粉红你不救，在这事情上不分红不分绿，只要是同胞就救。让更多的同胞得救，救他命的，他愿意来，咱也不是绑他来，只要上飞机，是同胞咱都得让他上。 前线大卫这块儿和文耀，如何把握很重要。它有各种的变化。 知道吗？所以说，我们会把大卫和整个文耀，你们和文科，文戈七雄可能要到某个地方去，能聚集的地方。因为我们现在是在这个东欧，还有在欧洲，我们有2个救援的紧急点已安排好，大家要记住。这个稍后再公开，直播是不易多说的，是独立的通信和加密的军事级别的安保系统和前线后勤保障 ，和整个G系列的正常运行。GTV整个正常运行，咱们分工非常清楚，大家一定不要乱。
 
-We have just let me see it
-我们刚刚让我看看
+资料来源：[2022年2月26日七哥大直播](https://gtv.org/video/id=621ab888a391e321a0c853e5)
 
-maybe four Enloe on the 300 members of the battalion of the territorial defense
-领土防御营的300名成员中可能有四支Enloe
+发布：tianzhihuan
 
-and we have two machine gun and we have that’s it
-我们有两挺机枪，就是这样
-
-We don’t have any heavy artillery
-我们没有重型火炮
-
-we don’t have a tanks
-我们没有坦克
-
-We don’t have any personal carrier
-我们没有任何私人渠道
-
-because we launched this process just a couple of days ago
-因为我们几天前才启动了这个民兵机制
-
-but and we create that for the two days
-但是我们在两天内创造了它
-
-This is the long line of the people who want to enlisted in the battalion
-这是想要入伍的人的长队
-
-but we don’t have enough boms for that
-但我们没有足够的炸弹
-
-and this is the only limit why the simple depends the normal ordinary people
-就是这么简单，普通人也能捍卫自己的国家
-
-sometimes never been in the Army
-很多是从未参过军的人
-
-stay in line now to join us
-现在排队加入我们
-
-This is extremely touchable an extremely great demonstration
-这是一个可以做到的模式，是一个非常棒的演示
-
-How Ukrainian people hate Putin
-表达了乌克兰人多么讨厌普京
-
-and how we against Russian aggression
-以及我们如何反对俄罗斯的侵略
-
-This is very clear.
-这是很明显的
-
-John Berman
-约翰·伯曼
-
-How long do you think you can hold out?
-你觉得你能坚持多久？
-
-Petro Poroshenko
-彼得·波罗申科
-
-Forever
-永远
-
-I think that the Putin never will catch Ukraine
-我认为无论如何，普京永远不会占领乌克兰
-
-despite no matter how many soldiers he has
-无论他有多少士兵
-
-how many missiles he has
-他有多少导弹
-
-how many nuclear weapons he has
-他有多少核武器
-
-We Ukraine are free people with a great European future
-我们乌克兰是自由的人民，有着伟大的欧洲未来
-
-This is definitely like that
-这绝对是这样
-
-John Berman
-约翰·伯曼
-
-The former president of Ukraine Petro Poroshenko
-乌克兰前总统彼得·波罗申科
-
-Thank you for being with us
-感谢您与我们在一起
-
-Please stay safe
-请注意安全
-
-**原视频链接**[https://twitter.com/cnn/status/1497189957395488778?s=24](https://twitter.com/cnn/status/1497189957395488778?s=24)
-
-Date:02/25/2022
-原视频标题:Ex-Ukrainian president to CNN, Putin should “feel himself in hell”
-前乌克兰总统向CNN表示，普京应该“感觉自己身处地狱”
-原视频日期：2022/02/24
-原视频链接https://twitter.com/cnn/status/1497189957395488778?s=24
-任务编号：KC470（3849）
-视频时间段 : 0:00-1:55
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本阿西娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本阿西娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本阿西娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本阿西娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本阿西娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
