@@ -2,40 +2,32 @@
 ---
 
 
-## 有声|确诊人数激增，香港将实行大规模核酸检测
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2078109/)
+## 中共备战台湾 加强中小学洗脑控制
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2078185/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据路透社报道，香港特首林郑月娥22日表示，将从 3 月中旬开始，对香港 740 万居民实施中共病毒强制检测。 她说，严格的冠状病毒规定将一直实施到 4 月中旬，学校将在夏季提前放假，并在 8 月开始新的学年，现在确诊病例的激增已经使医疗保健系统不堪重负。
+撰稿：东京樱花团/加一根稻草
 
-林正月娥表示在强制测试计划下，居民将需要进行三次测试，每天的测试能力达到一百万。她说，包括校园在内的场所可用于检测和隔离，她还透露中共将在香港建造一座临时医院。这些措施是香港在中共病毒爆发两年后实施的最严厉的措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/中共备战台湾-加强中小学洗脑控制-.jpg)Students are pictured during a Chinese class at Changchun Street Primary School of Wuhan during a government-organized media tour following the coronavirus disease (COVID-19) outbreak, in Wuhan, Hubei province, China, September 4, 2020. REUTERS/Aly Song
 
-香港卫生当局报告了 6,211 例新病例，32 人死亡，另有 9,369 例在初步检测中呈阳性。他们说，这些数据并不能反映全部的真实情况。 香港大学的研究人员预测，到 3 月下旬每天的死亡人数可能达到接近 100 人的峰值，到 5 月中旬，累计死亡人数可能上升到 3,206 人左右。感染人数可能达到每天 180,000 人的高峰。
+[图片来源](https://boxun.com/archives/104120)
 
-该研究预计，7天隔离的感染人数可能达到60万以上，而7天隔离的密切接触者人数可能达到180万，恐将导致社会严重混乱。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/c2eb0000-0aff-0242-a74b-08d9eb058bfc_w408_r1_s.jpg)
+近日，中共以加强治安的名义派30万警察入驻各中小学任副校长。教师队伍已经成为他们监控的重点。对孩子们的洗脑教育变本加厉，妄图在战争爆发时利用孩子们当炮灰。
 
+中共在他们统治中国人的这70多年里，把教育变成了他们洗脑的工具。强行向孩子们灌输仇恨的思想，虚假的历史。编造出一大堆虚构的，所谓爱党的英雄人物，给孩子们培养出扭曲的价值观。利用“邱少云、黄继光、赖宁”这类荒唐至极的故事，欺骗孩子们给他们当炮灰。布置了超出孩子承受能力的学习任务，让孩子们没有时间接触课堂以外的知识，使孩子们认知能力丧失。联合国制定的必修科目之一“逻辑学”，在中共国的教育体系中竟然全部删除，导致孩子们不会思考。中共在这70多年整整毁了3代人，造成了拥有5000年文明的中华大地前所未有的文化断代。
 
-文字版原文：[确诊人数激增，香港将实行大规模核酸检测](https://gnews.org/zh-hans/2073127/)
+无论在那个国家，那个时代，孩子都是人类的希望。孩子的健康和安全永远是最最重要的。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+孩子进入学校首先要学习的是如何保护自己，如何获得帮助以及如何帮助他人。其次才是学习文化知识，激发孩子们的好奇心，提高主动学习的能力。只有这样才能使孩子们发挥自己的潜能，拥有自由的思想。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+新中国联邦灭掉中国共产党以后的教育任重而道远。我们所面对的将是前所未有的挑战，是涉及到学校教育、社会教育、家庭教育所有问题。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+家庭教育和社会教育是学校教育的补充。家长和社会上成人的认知水平和孩子们在学校里学习的知识，将会产生巨大的冲突。这种冲突预计会持续消耗2代人的时间。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+共匪在中华大地上做的恶罄竹难书！
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
