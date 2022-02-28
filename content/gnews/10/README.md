@@ -2,27 +2,23 @@
 ---
 
 
-## 有声|香草山翻译部周刊|2022年2月27日第37期
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2083378/)
+## 中共取消俄罗斯所有小麦进口限制
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2083424/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS-1.jpg)
+加拿大温哥华扬帆农场    平民正道
 
-文字版原文：[香草山翻译部周刊|2022年2月27日第37期](https://gnews.org/zh-hans/2077212/)
+据【布莱特巴特新闻】2月25日报道，在美国和英国当天宣布对俄罗斯实施金融制裁的同时，中共国取消了对俄罗斯小麦的进口限制。
 
-音频处理：Fei797
-发稿：Fei797
+报道称，俄罗斯对中共国的小麦出口此前曾受双方限制，在中共取消与俄罗斯某些特殊地区的谷物贸易限制之后，将提高俄罗斯派遣大型船只通过黑海的能力。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+此外，自2021年起，俄中的双边贸易同比增长27%，达到1500亿美元。俄罗斯对中共国的食用油、大麦和牛肉出口激增。 同时，习近平和普京正在继续寻找潜在的贸易机会。而此次小麦交易是在2月4日冬奥会期间宣布的，并将在2022-23年度开始。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+尽管中共当局表示，这项在俄军入侵乌克兰当天所宣布的决定，与俄乌局势无关，但中共对俄罗斯的支持与欧美及G7成员国的制裁相比，形成了鲜明的对立。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

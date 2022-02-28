@@ -2,23 +2,23 @@
 ---
 
 
-## 世界各国政要名人对俄罗斯表示谴责
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2079131/)
+## 全球各国对乌克兰的游行支持
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2079130/)
 
-作者：银河系农场—骄子/新西兰伊甸农场-玫瑰
+作者：银河系农场—骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-近日，针对乌克兰危机，世界各国政要相继表示了对俄罗斯的谴责。
+2月27日，多家媒体报道，俄罗斯入侵乌克兰，引发了强烈的全球民众抗议。世界多个国家的老百姓都举行了大规模游行，谴责战争。
 
-英国的威廉王子和凯特王妃表示会和世界各地支持乌克兰的人民坚定地站在一起，这是英国王室罕见的政治声明。英国军情六处情报局长表示，俄罗斯在对待乌克兰的战争上必将失败。美国参议员卢比奥提醒美国人自由是多么宝贵，同时对奋起反击的乌克兰人表示赞扬。拜登总统则强调了与欧洲和其他国家合作实施制裁的重要性。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture00-4.jpg)
-除了政要，还有一些名人也发表了看法，好莱坞明星肖恩潘表示，如果美国不加入反抗俄罗斯的队伍，就会失去美国的灵魂。传奇导演大卫·林奇表示，普京发动对乌克兰的战争，造成死亡和毁灭，都一定会被加倍地偿还回来，这是自然法则。
+从俄罗斯本土，到伦敦、纽约、德黑兰，从欧洲到美洲，数千人走上街头，支持乌克兰，抨击俄罗斯。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture00-3.jpg)
+民众自制的标语包括，支持乌克兰，要求普京下台，并把普京比作希特勒纳粹，敦促世界各国政府加强对俄罗斯的制裁。据不完全统计，上街游行的地区有意大利的罗马、瑞士、奥地利的维也纳、芬兰、法国的马赛和蒙彼利埃、西班牙的巴萨罗那、英国、以色列、爱沙尼亚、格鲁吉亚、阿根廷、加拿大等等，甚至在中共国墙内，都有勇士举着支持乌克兰的旗子。
+
+俄罗斯驻各国大使馆的俄罗斯人也有人积极加入当地的反战游行，和本土的俄罗斯人一样为这个国家对乌克兰发动的战争表示谴责和耻辱，称这是全人类的灾难。
 
 参考链接：
-1. [世界各国政要名人对俄罗斯表示谴责](https://www.westernjournal.com/prince-william-kate-make-rare-political-declaration-amid-russian-siege-ukraine/)
-2. [世界各国政要名人对俄罗斯表示谴责](https://www.dailymail.co.uk/news/article-10554269/Ukraine-DESTROYS-Russian-convoy-Zelenskys-troops-derail-Kremlin-push-Kyiv.html)
-3. [世界各国政要名人对俄罗斯表示谴责](https://www.breitbart.com/entertainment/2022/02/26/sean-penn-says-our-soul-as-america-is-lost-if-we-dont-join-ukraines-fight-against-russia/)
-4. [世界各国政要名人对俄罗斯表示谴责](https://www.breitbart.com/entertainment/2022/02/26/director-david-lynch-blasts-putin-all-this-death-and-destruction-will-come-back-to-visit-you/)
-5. [世界各国政要名人对俄罗斯表示谴责](https://www.breitbart.com/politics/2022/02/26/sen-marco-rubio-ukraine-invasion-should-remind-us-how-precious-freedom-is/)
+1. [全球各国对乌克兰的游行支持](https://mb.com.ph/2022/02/27/russia-out-worldwide-protests-in-solidarity-with-ukraine/)
+2. [全球各国对乌克兰的游行支持](https://gettr.com/post/px49u7764b)
+3. [全球各国对乌克兰的游行支持](https://gettr.com/post/px47541993)
 
 ![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
