@@ -2,109 +2,35 @@
 ---
 
 
-## 锁链女的事件引发争论，担责的应该是谁，是江泽民、胡锦涛还是现在的习近平，这在中共内部已成为政治事件
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2080238/)
+## 大直播后记：全球招募赏金猎人干掉中南坑
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2080400/)
 
-[https://gtv.org/video/id=621c390b4353d33974c3b5ed](https://gtv.org/video/id=621c390b4353d33974c3b5ed)
+整理：流氓兔、hys
+编辑：Mohegayer K. Simon
 
-**郭文贵
-Miles Guo**
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-27.png)图片来源：墨尔本雅典娜农场设计组
 
-锁链女这个背后的故事
-The story behind this Chained Girl
 
-引发了江（泽民）、胡（锦涛）包括现在和习之间的这种到底谁该负责
-It has evoked such this matter of who should be responsible for this (Chained Girl incident) among Jiang Zemin, Hu Jintao and the current Xi Jinping
+昨天美国还有欧洲的大佬们说，Miles你觉得美国人避免它打台湾最好的方法是什么，我说最好的方法就把七个老杂毛干了。停止台湾战争。而且我说你们现在就应该像对待萨达姆一样给中共内部放话，通过你们的CIA的所有情报，只要能斩掉七个常委，能挽救这局面的，你要给他万亿的奖励，不是千亿是万亿的奖励。全家人生下来自动成为美国人，受美国保护。对这些凡是造反的将军一律全家移民美国。甚至在美国给他永久拥有土地。
 
-然后党内对这个事情已经成政治了
-and then this matter within the (communist) party has become a political issue
+他说只要真能做到美国一定会干的。为啥不干呢，维护美国最高的利益啊。维持你以美国为首的国际秩序对你美国利益千秋万代啊。几百万亿美元的印的钞票全都变成真的了。美国房地产、美国股票都会暴涨啊，黄金会暴跌呀。美国人会成为世界上真正的让人尊重的和平的力量啊。多少人呐！45亿亚洲人会感谢美国。美国拯救了可能是几亿人的生命。我说那剩下中东、亚非拉的国家都会从此永别共产党。多好啊！
 
-说这事你凭什么找习近平负责？
-saying that why do you hold Xi Jinping to be responsible for it?
+你觉得我天真吗？据我所知这件事情在进行中，台湾还是有机会的。但是最好的避免战争方式就是备战。就像现在的乌克兰。备战是避免战争最好的方式。而且台湾人已经做到了。这么多年，台湾人从来没有服过。我们新中国联邦人更是如此。俄乌战争，咱们新中国联邦能在瞬间调动这个力量去人道救援。你觉得是我昨天晚上做梦吗？我做梦能有行动吗？谁给你租飞机呀？你有钱吗？有钱，钱哪来的？美国是有规则的，在美国，你有钱你不说，在美国不能用的，法治基金和法治社会就是个合法的平台。
 
-都是江、胡干的
-It was done by Jiang Zemin and Hu Jintao
+台湾到今天跟乌克兰最大的不同是什么？台湾的实力已经和全人类的安全、经济、科技、命运、世界秩序，紧紧地联系在了一起。他绝对不是香港。这回共产党在台湾的问题上，打与不打，我今天最后回答你们这个问题，结果都是一样的了，你不打你内部人弄死你，你打了全球把你直接快点弄死，是让内部人弄死你呢？还是让全球人把你弄死呢？
 
-那江、胡时代的官员没人敢说话呀
-None of the officials in the Jiang Zemin and Hu Jintao eras dared to speak up
+如果这两样都弄不死的话，那习太阳就真的是太阳了，那不是龙之子了，不是盘古之子了，他就是神，但是他会郁闷死。一个人要受这种羞辱的时候他会郁闷，但是如果他脸皮厚，不要脸不要腚了是吧，屎都喷脸上都不在乎，郁闷还不死的话。普京俄罗斯会把他弄死，如果他还是命大，真龙天子，盘龙的儿子，现在盘古的龙头变成龟头了，他有超自然力量又活下来了。但是他有一件事他绝对活不了，那就是老天不会让他活下去，他身体撑不住。记住他身体绝对撑不住了。如果他能逃脱这五道阎王关，那七哥愿意隐居夜总会，过上纸醉金迷的生活，我不灭共了，隐居深山。
 
-实际上下边是不服的。
-In fact, the officials under them were dissatisfied
+资料来源：2022年2月27日文贵大直播
 
-说那个地方每年死掉大概在40到60个人，就无名女尸
-There are about 40 to 60 female died in that place (same place as the Chained Girl) every year who are unidentified female corpse
+发布：tianzhihuan
 
-查了一下过去大概30年
-I have checked the record in the past 30 years
-
-那个地方死掉的无名女尸达几千具尸体，近万人
-and the number of unidentified female corpses that died in that place reached thousands, nearly 10,000
-
-说这些人平均年龄15岁到17岁
-the average age of these female was 15 to 17 years old
-
-这吓人吧？这吓人吧？
-Isn’t that scary?
-
-然后你再看这种事情没人报道
-Then you consider again there has no one reported this kind of thing
-
-我最早在2017年说过
-I have said as early as 2017
-
-我去宁夏、我去西藏，还有黄河（边）上
-I went to Ningxia, Tibet, and the Yellow River side
-
-当地人说我们就是打捞尸体的
-Those locals claimed that their job is salvaging the bodies
-
-我说还有打捞尸体这活儿？
-I said there is still have this as a job?
-
-他说每年（河里）都有这个尸体，而且都是年轻人
-He said that there are corpses in the river every year, and they are all young people
-
-记得我这一段吧？曾经直播过
-Do you remember this part? Which I had have live broadcasted
-
-就中国人
-As far as the Chinese are concerned
-
-这种人（被）扔到——像小福利、微蓝，是吧？像你神奇四侠
-people like Little Benefit, Weilan and Fantastic Four
-
-给你扔到河里边去你就是个尸体
-if you were tossed into the river you were a corpse
-
-你再漂亮也没用
-no matter how beautiful you are it would be useless
-
-咱见太多了
-We have seen too much of it
-
-悲哀的事情是它没人听啊
-However the sad thing is that there is no one wants to listen
-
-* * *
-
-Date: 02/21/2022
-原视频标题:
-锁链女的事件引发争论，担责的应该是谁，是江泽民、胡锦涛还是现在的习近平，这在中共内部已成为政治事件。其实这种拐卖妇女儿童，导致她们残疾、惨死、甚至消失得无影无踪的事件，在中共国已经由来已久，时常发生，毫不新鲜，中共政府根本无人无暇关心过问。The Chained Girl incident has sparked debate over who should be held responsible, Jiang Zemin, Hu Jintao or the current Xi Jinping. This has become a political matter within the CCP. In fact, this kind of abduction and trafficking of women and children, resulting in their disability, tragic death, or even disappearance without a trace, has been around for a long time in China, and it happens frequently. No one cares at all for this matter in the Chinese government.
-
-原视频日期：2022/02/18
-原视频链接: [**https://gettr.com/post/pw0q8xc84b**](https://gettr.com/post/pw0q8xc84b)
-任务编号：KC469（3820）
-视频时间段 : 0:00-01:26
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
