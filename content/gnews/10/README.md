@@ -2,49 +2,27 @@
 ---
 
 
-## 制裁升级，西方多国禁止俄罗斯航空进入空域
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2079853/)
+## 有声｜台湾灯会的双主场以蓝黄灯光秀声援乌克兰
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2079947/)
 
-#### **【雅典娜快讯】紧贴时代脉搏**
+By:**秘翻新闻**
 
-整理/编辑：文泓
+**2022-02-28**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-45.png)图片来源 （袁世钢／大纪元）
+[据大纪元2月27日报道，2022台湾灯会接近尾声，恰逢二二八长周末，吸引大批游客赴高雄光荣码头欣赏无人机表演。正值俄乌战争爆发，高雄市政府26日在卫武营、爱河湾双主场以象征乌克兰国旗的蓝色、黄色灯光作为灯光秀的一个环节。](https://www.epochtimes.com/gb/22/2/27/n13608970.htm)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/14-12.png)图片来源：Republic wordld & 雅典娜设计组
+[报道称，市长陈其迈27日强调，期盼借此声援乌克兰，表达台湾追求和平的意志与决心。](https://www.epochtimes.com/gb/22/2/27/n13608970.htm)
 
+[陈其迈表示，市政府26日中午就与灯会工程师商讨，以象征乌克兰的国旗的蓝色、黄色，来声援乌克兰人民在抵抗侵略时的勇气。无论是台北101或高雄的台湾灯会，都展现了台湾人民反侵略、追求和平的决心，也表达支持乌克兰人民的意志。他还表示：“我相信，和平是人类普世的价值”。](https://www.epochtimes.com/gb/22/2/27/n13608970.htm)
 
-2月28日俄罗斯的旗舰航空公司将停飞其大部分机队，因为世界多国禁止其飞机进入空域，作为对俄罗斯入侵乌克兰的惩罚。
+[陈其迈也在脸书中、以中英双语发文表示，对于俄罗斯片面展开军事行动，以武力入侵乌克兰破坏和平，市政府予以严正谴责。台湾作为国际社会民主阵营的一员，坚定捍卫民主自由与人权的核心价值不变，因此，高雄以蓝黄灯光秀声援乌克兰，象征与乌克兰人民站在一起，祈愿和平。](https://www.epochtimes.com/gb/22/2/27/n13608970.htm)
 
-俄罗斯国际航空表示，当地时间周日晚间，在欧盟对所有俄罗斯飞机关闭其领空后，该公司将暂停飞往欧洲的航班。
+秘翻新闻 二丫 编辑报道
 
-“俄罗斯国际航空将从2022年2月28日起暂停欧洲航线网络的航班，直至另行通知，”该公司在其网站上表示。
+发布 : 恩典
 
-目前，欧盟的领空禁令禁止所有俄罗斯飞机（包括私人飞机）进入或飞越欧盟领空，欧盟27个国家中的许多国家已分别宣布对俄罗斯航班关闭领空。
-
-作为回应，俄罗斯已禁止来自英国、拉脱维亚、立陶宛、爱沙尼亚、斯洛文尼亚、保加利亚、波兰和捷克共和国等多个国家的航班。
-
-由于商业航空公司继续取消在俄罗斯的航班，美国已要求其在俄罗斯的公民立即离开。
-
-美国驻莫斯科大使馆在一份声明中说，越来越多的航空公司取消进出俄罗斯的航班，许多国家对俄罗斯航空公司关闭了领空，呼吁其公民考虑通过仍然可用的商业航班立即离开俄罗斯。在今年一月份美国大使馆对俄罗斯实施了四级“请勿旅行”警告。
-
-加拿大也对所有俄罗斯航空公司关闭了领空，以抗议俄罗斯的入侵行为。
-
-立即生效的关闭令加拿大与绝大多数欧洲国家保持一致。同时，俄罗斯利益集团拥有、包机或使用的任何航班——包括私人航班——现在都被禁止在加拿大上空飞行。
-
-在周四，英国禁止俄罗斯国际航空公司的航班，这是第一个禁止俄罗斯航空进入的国家。
-
-周五，美国达美航空也暂停了与俄罗斯国际航空的代码共享安排。
-
-参考链接：[Russian airline Aeroflot banned from landing around the world as war with Ukraine continues | news.com.au — Australia’s leading news site](https://www.news.com.au/travel/travel-advice/flights/russian-airline-aeroflot-banned-from-landing-around-the-world-as-war-with-ukraine-continues/news-story/2497e262442820370bc25485956ce6ba)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
