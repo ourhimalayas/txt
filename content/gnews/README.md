@@ -15,74 +15,74 @@
 
 ---
 
-### [紧急直播：新中国联邦：乌克兰救援不分种族、不分宗教，能救就救](/content/gnews/1/README.md)
+### [俄战争狂人定调普习关系为狮子与老鼠游戏要求普京辞职](/content/gnews/1/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [世界看清以假为真的冬奥会本质后要解决的是如何终结它](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [西方制裁加码 油价跳涨逾7美元](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [冬奥会现场轻哼灭共的雪与旁边为何我要灭共战友对暗号](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [雅典娜时报-第218期](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [紧急直播：新中国联邦：乌克兰救援不分种族、不分宗教，能救就救](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [把人类上万年来最难的灭共视为相当然或必然是极端错误](/content/gnews/2/README.md)
+### [把人类上万年来最难的灭共视为相当然或必然是极端错误](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【秘翻在线】实时更新：乌克兰抵抗俄军](/content/gnews/3/README.md)
+### [【秘翻在线】实时更新：乌克兰抵抗俄军](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国敦促在俄罗斯的美国公民“立即”离开该国](/content/gnews/4/README.md)
+### [美国敦促在俄罗斯的美国公民“立即”离开该国](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [打不打乌克兰中国人都是牺牲品,欧洲版竞争法案箭在弦上](/content/gnews/5/README.md)
+### [打不打乌克兰中国人都是牺牲品,欧洲版竞争法案箭在弦上](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [“两个维护”是习近平称帝昭告和中共党内残酷绞杀的显现](/content/gnews/6/README.md)
+### [“两个维护”是习近平称帝昭告和中共党内残酷绞杀的显现](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [HDO、 H-coin、GTV、GNEWs、Gettr、Gfashion 是灭共力量](/content/gnews/7/README.md)
+### [HDO、 H-coin、GTV、GNEWs、Gettr、Gfashion 是灭共力量](/content/gnews/12/README.md)
  ` G-NEWS TAIWAN`
 
-### [Hpay现在是转账系统 非商业系统](/content/gnews/8/README.md)
+### [Hpay现在是转账系统 非商业系统](/content/gnews/13/README.md)
  ` G-NEWS TAIWAN`
 
-### [如何专业推广Hpay](/content/gnews/9/README.md)
+### [如何专业推广Hpay](/content/gnews/14/README.md)
  ` G-NEWS TAIWAN`
 
-### [俄乌战争下，白俄罗斯镇压抗议者，强行修宪公投](/content/gnews/10/README.md)
+### [俄乌战争下，白俄罗斯镇压抗议者，强行修宪公投](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [普京告诉跪求别打乌克兰的马克龙俄罗斯没兴趣跟中共玩](/content/gnews/11/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [2/27/2022 文贵直播：中共的战争一向打的都是无数人的生命，毫无战略可言；乌克兰完美地运用了战争心理学，不但交了朋友还赢得了朋友的支持](/content/gnews/12/README.md)
+### [2/27/2022 文贵直播：中共的战争一向打的都是无数人的生命，毫无战略可言；乌克兰完美地运用了战争心理学，不但交了朋友还赢得了朋友的支持](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [恼羞成怒，普京下令核力量保持高度戒备](/content/gnews/13/README.md)
+### [恼羞成怒，普京下令核力量保持高度戒备](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [普京看透冬奥会现场根本没人的真相后一分钟都不想多呆](/content/gnews/14/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [乌克兰救援行动体现了新中国联邦的力量](/content/gnews/15/README.md)
+### [乌克兰救援行动体现了新中国联邦的力量](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [大直播后记：行动时服从和没有私心很重要](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [习和普在冬奥委会上的密谋](/content/gnews/17/README.md)
+### [习和普在冬奥委会上的密谋](/content/gnews/19/README.md)
  ` G-NEWS TAIWAN`
 
-### [20220226郭文贵紧急直播：在生死面前，新中国联邦什么人都救！](/content/gnews/18/README.md)
+### [20220226郭文贵紧急直播：在生死面前，新中国联邦什么人都救！](/content/gnews/20/README.md)
  ` Tokyo Sakura Video Group`
 
-### [欧盟委员会主席宣布一系列对俄罗斯的制裁](/content/gnews/19/README.md)
+### [欧盟委员会主席宣布一系列对俄罗斯的制裁](/content/gnews/21/README.md)
  ` 纽约香草山MOS02`
 
-### [宝贝，别哭！](/content/gnews/20/README.md)
+### [樱花数据分析┃三针接种者成最易感染人群 丹麦政府下架感染数据](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花数据分析┃三针接种者成最易感染人群 丹麦政府下架感染数据](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [怕被制裁，中国银行新加坡分行停止为俄罗斯石油贸易融资](/content/gnews/22/README.md)
+### [怕被制裁，中国银行新加坡分行停止为俄罗斯石油贸易融资](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [在乌克兰与俄罗斯人作战，美国人如何报名](/content/gnews/23/README.md)
- ` 喜马拉雅农场新西兰站`
 
 ### [新中国联邦新闻、GTV新闻访谈简报|2022年2月27日晚](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
