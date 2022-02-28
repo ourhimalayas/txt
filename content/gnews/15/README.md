@@ -2,61 +2,25 @@
 ---
 
 
-## 耶~~~~2月9日确认郭先生诉UBS官司在伦敦正式立案
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2079096/)
+## 有声｜担心排华威胁生命，滞留乌克兰的中国留学生谎称是日本人
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2079097/)
 
-G-TV视频链接：[https://gtv.org/video/id=62164b0a1408ee3a03a3c899](https://gtv.org/video/id=62164b0a1408ee3a03a3c899)
+By:**秘翻新闻**
 
-**郭文贵先生**：耶~~~~（大喊）
+**2022-02-28**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-115.png)图片来源 新华社
+[据《阿波罗新闻网》2月28日报道，由于中共国的一些网友对俄军入侵乌克兰拍手叫好，引发了乌克兰人对中共国的不满，现在已传出有中国人被枪杀。在乌克兰的中国人表示，为了保命，现在必须隐瞒自己的中国人身份，假装成日本人。](https://www.aboluowang.com/2022/0228/1714279.html)
 
-**Nick:** 都没打疫苗。发生什么事了吗？
+[报道称，一名中共国留学生在推特上发布了一段影片，批评中共国网友竟然调侃“乌克兰战争打得好，死得人越多越好，以便娶到乌克兰的漂亮女性。”他表示，网友不负责任的调侃，经过乌克兰媒体翻译报导后，乌克兰人都已经知道了。](https://www.aboluowang.com/2022/0228/1714279.html)
 
-**郭文贵先生：**我现在发给你们啊。
+[据报道，在基辅的防空洞里、地铁里，人们直接追问中共国留学生是不是真的这样。现在，中共国留学生已经不敢搭乘地铁，在路上被追问国籍时，都说自己是日本人，连是中国人都不敢承认。已经听闻有中国人被枪杀的情况，以后在这里的中国人被打死、被枪杀全都拜这些网络键盘侠所赐。](https://www.aboluowang.com/2022/0228/1714279.html)
 
-**爱米粒：**七哥！
+秘翻新闻 巴拉克 编辑报道
 
-**Tex****：**哎呦呦呦
+发布 : 恩典
 
-文艺：七哥有好消息？
-
-**Nick****：**有大事。
-
-**爱米粒：**什么东西？
-
-**郭文贵先生：**我们很重要的一关，很重要的一关，今天其中一个，这个是我们告UBS的这个官司，UBS这个官司在伦敦正式立案了，这对我们来讲很大很大。头两天说，听说共产党啊，共产党啊。共产党啊，共产党说“不惜一切代价”，又来了，共产党动不动就不惜一切代价。不惜一切代价不能……
-
-我说实话在直播前我就不知道这件事情，你们知道这个不是500个million啊。我怎么发给你们？我看看。哎呀，这个事很大呀！你知道这个事儿多大吗兄弟姐妹们？
-
-**Nick****：**共产党的海外资产要被冻结了。
-
-**郭文贵先生：**UBS咱给它干掉，咱把UBS拿下，拿下共产党的半个财富帝国，半个吧。
-
-编辑整理：Jacques；
-
-字幕文件制作：兵嫂；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UC_h8BevH-vN6xUKQBeLKnMg) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UC9UOGnhaE8rHrz8Ds_-zZHQ)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

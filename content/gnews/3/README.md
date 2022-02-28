@@ -2,27 +2,29 @@
 ---
 
 
-## 俄罗斯总统弗拉基米尔·普京已下令其核准备就绪
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2079215/)
+## 有声｜美国抨击普京核命令不可接受，将考虑进一步制裁
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2079224/)
 
-撰稿：随心所在
-![](https://assets.gnews.org/wp-content/uploads/2022/02/281.jpg)图片来自网络
-俄罗斯入侵乌克兰后，国际紧张局势已经升温，普京指责西方国家对俄罗斯采取敌对行动。普京的命令可能会增加警报空间，俄罗斯拥有世界第二大核武库和大量弹道导弹。
+By:**秘翻新闻**
 
-普京对法新社说：“我已命令国防部长和俄罗斯武装部队总司令将俄罗斯军队的威慑力量置于特别战备状态。”普京还称西方对俄罗斯实施的制裁是非法的。
+**2022-02-28**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-55.png)图片来源 路透社
+[《路透社》华盛顿2月27日报道，周日，美国和北约谴责俄罗斯总统普京，将核武器置于高度警戒状态的命令是危险和不可接受的，同时白宫表示不排除对俄罗斯的能源部门实施新的制裁。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
 
-据英国广播公司安全记者称，该命令将促进核武器的部署，但这并不意味着它会完成。普京警告西方国家如果干涉俄罗斯在乌克兰的行动，要为“历史上前所未有的后果”做好准备。
+[据报道，稍早些时候，俄罗斯总统普京下达了，提高俄罗斯核武器戒备的级别，以对抗西方对其发动对乌侵略战争的一连串报复。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
 
-国防学院的讲解员斯特凡·福斯说，俄罗斯周日宣布提高核威慑力量以提高警戒状态可能是模糊的。福尔西认为，从历史上看，提高准备状态一直是为冲突的另一方对国家形成核威胁做准备。然而，福斯说，目前没有任何国家用核武器威胁俄罗斯。
+[美国驻联合国大使琳达.格林菲尔德在哥伦比亚广播公司的 “面对全国 “节目中说：“普京的行动使冲突升级，是不可接受的。美国正在研究针对俄罗斯新的、甚至更严厉的制裁措施”。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
 
-据他介绍，以核武器相威胁等方式应对经济制裁是前所未有的。福斯说，面对这样的威胁，俄罗斯应该被告知，这些威胁并不是理所当然的。
+[报道还称，在五角大楼，一位美国高级国防官员也将普京的核命令描述为升级，并说它正在产生影响，如果出现误判，可能会使事情变得非常危险。北约秘书长延斯-斯托尔滕贝格也称，普京的核命令具有侵略性，是不负责任的。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
 
-新闻链接：
+[白宫新闻秘书普萨基说，普京是在对一个不存在的威胁做出反应。她补充说，俄罗斯从来没有受到北约的威胁，也没有受到乌克兰的威胁。](https://www.reuters.com/world/europe/us-nato-condemn-putin-nuclear-alert-order-2022-02-27/)
 
-[Putin määräsi Venäjän ydinasevalmiuden hälytystilaan, Naton pääsihteeri kutsuu päätöstä vaaralliseksi ja vastuuttomaksi](https://www.msn.com/fi-fi/uutiset/ulkomaat/putin-m%c3%a4%c3%a4r%c3%a4si-ven%c3%a4j%c3%a4n-ydinasevalmiuden-h%c3%a4lytystilaan-ydinasetuntija-ven%c3%a4j%c3%a4-bluffaa/ar-AAUn7SI?bncnt=BroadcastNews_BreakingNews&amp;ocid=UCPNC2)
+秘翻新闻 冰糖葫芦喵 编译报道
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

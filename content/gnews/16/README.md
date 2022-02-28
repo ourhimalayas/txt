@@ -2,20 +2,60 @@
 ---
 
 
-## 俄乌战争｜金融制裁效果初现 全球最大主权基金即时冻结旗下俄罗斯资产
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2079091/)
+## 耶~~~~2月9日确认郭先生诉UBS官司在伦敦正式立案
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2079096/)
 
-**撰文/ 港台前线｜发布日期/ 28/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/金融制裁效果初現-全球最大主權基金即時凍結旗下俄羅斯資產.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+G-TV视频链接：[https://gtv.org/video/id=62164b0a1408ee3a03a3c899](https://gtv.org/video/id=62164b0a1408ee3a03a3c899)
 
-随着俄乌战局持续严峻，多国接连对俄罗斯实行更严厉的金融制裁，继早前同意将部分俄罗斯银行踢出SWIFT全球支付系统之后，全球最大主权基金——挪威主权财富基金（挪威主权基金）27日宣布即时冻结并抛售旗下俄罗斯资产，估计市值超过30亿美元。
+**郭文贵先生**：耶~~~~（大喊）
 
-挪威总理乔纳斯·加尔·斯托尔（Jonas Gahr Stoere）在新闻发布会上表示：““我们已决定即时停止所有涉及俄罗斯企业股份的买卖，挪威财政部会联手基金开展撤出俄罗斯市场的部署工作”。不过，他没有透露具体的执行时间表。
+**Nick:** 都没打疫苗。发生什么事了吗？
 
-未加入欧盟的挪威属欧洲经济区成员，今次对俄乌战争的态度明确，不仅跟从欧盟决定对俄罗斯封锁领空及配合联合制裁，还拨款20亿挪威克朗（约2.23亿美金）作人道援助。
+**郭文贵先生：**我现在发给你们啊。
 
-來源｜[路透社](https://www.reuters.com/world/europe/norway-says-its-sovereign-fund-will-divest-russia-2022-02-27/)
+**爱米粒：**七哥！
+
+**Tex****：**哎呦呦呦
+
+文艺：七哥有好消息？
+
+**Nick****：**有大事。
+
+**爱米粒：**什么东西？
+
+**郭文贵先生：**我们很重要的一关，很重要的一关，今天其中一个，这个是我们告UBS的这个官司，UBS这个官司在伦敦正式立案了，这对我们来讲很大很大。头两天说，听说共产党啊，共产党啊。共产党啊，共产党说“不惜一切代价”，又来了，共产党动不动就不惜一切代价。不惜一切代价不能……
+
+我说实话在直播前我就不知道这件事情，你们知道这个不是500个million啊。我怎么发给你们？我看看。哎呀，这个事很大呀！你知道这个事儿多大吗兄弟姐妹们？
+
+**Nick****：**共产党的海外资产要被冻结了。
+
+**郭文贵先生：**UBS咱给它干掉，咱把UBS拿下，拿下共产党的半个财富帝国，半个吧。
+
+编辑整理：Jacques；
+
+字幕文件制作：兵嫂；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UC_h8BevH-vN6xUKQBeLKnMg) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UC9UOGnhaE8rHrz8Ds_-zZHQ)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
