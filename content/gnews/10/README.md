@@ -2,40 +2,20 @@
 ---
 
 
-## 美驻俄大使馆要求美国公民立即撤离
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2082379/)
+## 中共百年杀戮之（9）第二次国共合作——抗日战争
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2082436/)
 
-作者：纽约香草山农场 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月27日，美国驻莫斯科大使馆发布安全公告，警示所有美国公民 “立即 “撤离俄罗斯。
+作者： 顽童
+发稿：am夏天
+德国纽伦堡正义农场
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-9.jpeg)
 
-公告提醒，越来越多的航空公司正在取消进出俄罗斯的航班，许多国家已经对俄罗斯的航空公司关闭了他们的空域。  美国公民应随时关注信息，并考虑立即通过目前可用的商业航班离开俄罗斯。
 
-公告称，莫斯科和圣彼得堡等主要城市，以及在俄罗斯与乌克兰边境紧张局势加剧的地区，可能出现针对购物中心、铁路和地铁站以及其他公共集会场所的攻击威胁。另外，美国国务院对俄罗斯的旅行建议级别已调至四级，即不要旅行。
-
-该警报是在普京将俄罗斯的核威慑力量置于最高戒备状态后发出的。
-
-华盛顿特区安全政策中心专家伊拉里奥诺夫说，现在的局势令人难以置信的严重。他呼吁，美国和北约必须立即作出回应，否则，美国和整个欧洲将受到直接的核威胁。
-
-参考链接：
-1. [US Embassy: US Nationals Should Leave Russia ‘Immediately’](https://www.newsmax.com/us/moscow-kremlin-embassy-diplomats/2022/02/27/id/1058748/)
-2. [Security Alert: Limited Flights Into and Out of Russia](https://ru.usembassy.gov/security-alert-u-s-mission-russia/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：文真
-编辑：Jack Li文阳   
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+抗日战争，指20世纪30年代至40年代中国与日本之间的战争。战争时间若从1941年12月9日国民政府对日正式宣战算起仅4年，自1937年7月7日日本全面侵华的七七事变算起则有8年，因国民政府的宣战文告中有“之前四年余神圣抗战”一句，故称“八年抗战”。而中共在2017年将抗战定为14年，就是从1931年九一八事变入侵中国东北算起，至1945年8月15日日本投降止。而1931年至1936年间，中共还在逃亡西北陕甘的路上。
+1931年9月18日，日本关东军制造“柳条湖事变”，当日半夜，日本关东军将南满铁路柳条沟段铁桥炸毁，并诬指为东北军所为，开始攻进东北军驻地沈阳北大营，九一八”事变爆发。日本在然后的100天内占领了整个中国东北地区。
+1931年至1937年间，中日之间发生几次大的战役，但是尚未全面开战。第一次淞沪会战，发生于1932年1月28日， “九一八事变”后，日方为转移国际视线，并压迫国民政府屈服，在上海不断挑起事端。1932年1月28日晚，日军向上海闸北区等地进犯，国民革命军第十九路军遂奋起抵抗。3月2日，日军在太仓浏河登陆，其后日军占领真如、南翔，宣布停战。3月19日，中国在上海英国领事馆与日方举行会议，5月5日签订《淞沪停战协定》。
+1933年1月1日，日军进攻山海关，中国守军何柱国所部安德馨营英勇抵抗，经两昼夜激战，全部殉国。1月3日，日军攻陷山海关。此后，日军继续进攻，突破中国守军的长城防线。北平、天津受到威胁，因而签订《塘沽协定》，中国军队撤到长城以南。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
