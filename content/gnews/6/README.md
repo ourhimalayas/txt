@@ -2,8 +2,8 @@
 ---
 
 
-## 打不打台湾习太阳都得死
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2078345/)
+## 停了中共的SWIFT
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2078424/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

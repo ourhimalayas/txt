@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯否决联合国谴责性决议 中共投弃权票
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2078288/)
+## 俄罗斯威胁让国际空间站坠毁到美国
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2078304/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山信息部 – 6zero4
 
 
 
@@ -13,17 +13,14 @@
 
 
 
-据国外媒体2月25日报道，当天美国等国家在联合国安理会提起了一项谴责俄罗斯入侵乌克兰的决议草案，共有11个国家投了赞成票，俄罗斯投了唯一的反对票，中共国、印度和阿联酋投了弃权票。西方国家普遍认为，这实际上使俄罗斯在世界大国中处于更加孤立的境地。
+2月26日，针对最近拜登政府主导对俄罗斯侵略乌克兰实施的一系列强有力制裁，俄航天局总干事罗戈津发出威胁：如美国想避免国际空间站落在美国或欧洲，就必须与俄罗斯合作，否则一个500吨重的空间站主体将坠入美国或欧洲。
 
-该草案谴责俄罗斯2月23日宣布对乌克兰开展的“特别军事行动”，以最强烈的措辞对俄罗斯违反《联合国宪章》对乌克兰进行侵略表示痛惜；决定俄罗斯应立即停止对乌克兰使用武力；俄罗斯应立即、完全和无条件地将其军队撤出乌克兰领土。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-6.jpg)
-中共国驻联合国大使张军在弃权后虚伪地表示，中共国支持俄罗斯联邦和乌克兰通过谈判解决问题，力挺俄罗斯的态度显而易见。
-
-据悉，会议开始前，来自27个欧洲国家的代表以及乌克兰驻联合国大使高举乌克兰国旗，表达对乌克兰的声援。
+地缘政治和空间专家韦切特表示，俄罗斯在太空探索方面比美国有10到12年的优势，美国没有办法应对俄罗斯构成的挑战。美国很快会在太空中遭受无法及时恢复的重创，美国在地球上输掉的第一场战争可能就是这场太空战。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-5.jpg)
+韦切特批评美国政客没有在冷战后的太空探索中击退竞争对手的远见，他们总是认为美国将永远占据主导地位，自信没有人会疯狂到挑战美国，因此永远不需要任何预防性的太空安全措施。但在30年后的今天，俄罗斯、中共国、朝鲜甚至伊朗都在向美国表明：这是一个错误的假设。
 
 参考链接：
-1. [Russia vetoes U.N. Security action on Ukraine as China abstains](https://www.reuters.com/world/russia-vetoes-un-security-action-ukraine-china-abstains-2022-02-25/)
-2. [Gunfire and explosions reported in Kyiv as Ukraine’s leader accuses Putin of waging “war against Europe”](https://www.cbsnews.com/live-updates/russia-ukraine-invasion-donbas-troops/)
+[Russia warns that Biden’s sanctions could cause it to drop the International Space Station on the United States](https://www.theblaze.com/news/russia-warns-that-biden-s-sanctions-could-cause-it-to-drop-the-international-space-station-on-the-united-states)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 

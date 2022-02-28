@@ -2,24 +2,20 @@
 ---
 
 
-## 普京认为制裁升级不可接受并警告要准备核威慑
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2078346/)
+## 中国共产党的石油公司全敲诈伊朗
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2078438/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-417.jpg)
-图片来源： dushi.singtao.ca
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-零对冲网2月27日报道，俄罗斯总统普京认为北约领导人的制裁性陈述不可接受，随后发出警告，将俄罗斯的核威慑力调至“特殊”警备状态。
+*发布：陶子*
 
-普京说：“ 西方国家不仅对我们国家采取不友好的行动，而且是非法的制裁，然而，北约高级领导人还对我们国家发出攻击性言论。为此，我命令国防部和总参谋长将核威慑力上调至战斗任务状态。”
-
-本月早些时候，普京进行了核力量的演习包括导弹发射试验。将核威慑调至高度警备状态包括核武器和常规武器的应用，俄罗斯军事定义核威慑是用于阻止针对俄罗斯和其盟国的侵略和击败侵略。这说明普京基本上针对美国和欧盟宣布制裁俄罗斯中央银行后威胁要动用核武器。
-
-欧盟主席警告说普京的核威胁是既危险又是不负责任的。五角大楼说俄罗斯的核姿态变化是事态升级的步骤，并警告说这种威胁是打错了算盘。
-
-##### 新闻来源： [In “Unacceptable Escalation”, Putin Orders “Nuclear Deterrence” Forces On Alert](https://www.zerohedge.com/geopolitical/russia-orders-nuclear-deterrence-high-alert-nato-warns-unacceptable-escalation)
-
-#  
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
