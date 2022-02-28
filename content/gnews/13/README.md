@@ -2,45 +2,32 @@
 ---
 
 
-## 俄罗斯威胁让国际空间站坠毁到美国
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2078304/)
+## 白宫发布美欧关于SWIFT制裁俄罗斯的声明
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2078401/)
 
-作者：纽约香草山信息部 – 6zero4
+作者：日本东京方舟农场-感谢郭叔
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月26日，美国白宫网站，发表美国及其盟国针对俄罗斯进行制裁的最新声明，声明大致内容如下。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-27-下午10.27.06.png)
+欧盟委员会、法国、德国、意大利、英国、加拿大和美国的领导人与乌克兰政府和乌克兰人民站在一起，谴责普京选择战争。俄罗斯需要为这场战争付出代价。
 
+随着俄罗斯军队对基辅和其他乌克兰城市发动攻击，欧盟委员会、法国、德国、意大利、英国、加拿大和美国的领导人与乌克兰政府和乌克兰人民站在一起，决定：1、把选定的俄罗斯银行踢出SWIFT系统；2、采取限制性措施，防止俄罗斯中央银行利用其国际储备破坏制裁的影响；3、对助长乌克兰战争和俄罗斯政府有害活动的个人和实体采取行动，限制向其出售公民身份，阻止其进入我们国家的金融系统；4、在下周启动一个跨大西洋特别工作组，查明和冻结在我们管辖范围内的受制裁个人和公司的资产。制裁更多的俄罗斯官员和与俄罗斯政府关系密切的精英及其家人以及他们的推动者，识别和冻结他们在我们管辖范围内持有的资产，以及和其他政府合作，阻止被制裁者在世界各地隐藏资产；5、加强或协调打击虚假信息和其他形式的混合战争。
 
+参考链接：[Joint Statement on Further Restrictive Economic Measures](https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/26/joint-statement-on-further-restrictive-economic-measures/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-
-
-2月26日，针对最近拜登政府主导对俄罗斯侵略乌克兰实施的一系列强有力制裁，俄航天局总干事罗戈津发出威胁：如美国想避免国际空间站落在美国或欧洲，就必须与俄罗斯合作，否则一个500吨重的空间站主体将坠入美国或欧洲。
-
-地缘政治和空间专家韦切特表示，俄罗斯在太空探索方面比美国有10到12年的优势，美国没有办法应对俄罗斯构成的挑战。美国很快会在太空中遭受无法及时恢复的重创，美国在地球上输掉的第一场战争可能就是这场太空战。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-5.jpg)
-韦切特批评美国政客没有在冷战后的太空探索中击退竞争对手的远见，他们总是认为美国将永远占据主导地位，自信没有人会疯狂到挑战美国，因此永远不需要任何预防性的太空安全措施。但在30年后的今天，俄罗斯、中共国、朝鲜甚至伊朗都在向美国表明：这是一个错误的假设。
-
-参考链接：
-[Russia warns that Biden’s sanctions could cause it to drop the International Space Station on the United States](https://www.theblaze.com/news/russia-warns-that-biden-s-sanctions-could-cause-it-to-drop-the-international-space-station-on-the-united-states)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
+总编：Zion文恩
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

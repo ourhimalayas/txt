@@ -2,42 +2,32 @@
 ---
 
 
-## 有声|台湾亲共团体长期充当中共代理人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2078207/)
+## 新中国联邦救援乌克兰行动影响了世界
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2078267/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-自从1987年11月2日蒋经国宣布开放两岸探亲，大陆、台湾开始往来后，中共运用大量“蓝、金、黄”手段对台湾进行了全面渗透，控制了多个政党、民间组织、媒体等，统称亲共团体。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-14.jpg)
-台湾的亲共团体，也称亲共派、泛红阵营、台湾红统或红统，他们支持中国共产党，极力推崇中共主张的“一个中国”政策。
+作者：纽约香草山教育部-春草
 
-根据中共叛逃海外间谍揭露，中共培养亲共团体的手段包括但不限于以下几种：1）组织网军专门攻击民进党。2）花巨资大量购买广告收买媒体。3）组织中共国学生统战台湾学校的学生。4）安排信徒到中共国和香港旅游，对台湾宗教宫庙进行统战。5）投资收购餐厅酒楼、网路IT公司等建立中共间谍据点。6）组织台湾的各个村里长到中共国旅游，接受国台办及统战部官员招待。7）资助亲共的国民党候选人在地方选举中获胜。8）试图采取措施让总统蔡英文下台，让亲北京的总统候选人当选。
+2022年2月28日
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年2月26日，《新中国联邦》的发起人、缔造者一一郭文贵先生，向全世界公布了救援乌克兰的方案。这一决定引起了世界的关注，并影响了很多国家，改变了观望的态度。如德国180度转弯开始对乌克兰军事援助，俄罗斯被踢出了swift及所有交易系统，欧盟对俄关闭了所有领空及港口，众多外国志愿者加入了志愿军赴乌参加保卫战，英美等几十个国家把大量的武器和药品送到乌克兰……。就连被中共洗脑的部分中国人民也醒悟了，由原来的赞扬普京支持俄罗斯的侵略战争，改为支持乌克兰的正义的战争。
 
-由于这些亲共团体长期与中共保持紧密的联系，一旦中共军队成功入侵台湾，这些亲共派一定会站出来表明立场，承认中共国并接受管辖，让台湾成为中共国的一个省或一个特区。
+一个新兴起的、代表中国人民利益的、还未被国际承认的新中国联邦，在其它国家遭受外敌侵略、其国人生灵涂碳的危难之际，代表中国人民毫不犹豫地伸出援助之手，送去急需的物资和药品，解救陷于危险的本国和友邦的人员，多么感人的行动啊。这就是伟大的国际主义精神，用实际行动向全世界宣告：中国人民不是自私自利的，中国人民不等于中国共产党，中国人民和全世界爱好和平的人民一样，愿意共同建设维护大家的安全美好的家园，决不允许任何独裁者、妄图称霸世界、奴役世界人民的邪恶组织和个人，欺压和屠杀无辜的平民，必须将他们彻底地消灭，连根铲除，全世界爱好和平的人民才能过上平安、幸福、美好的生活。
 
-2月24日，普京入侵乌克兰后，新中国联邦创建人郭文贵先生再次发出警告：如无意外，中共独裁者习近平很快会派兵入侵台湾。台湾民众一定要保持高度警惕，必要的话，应暂时离开台湾，出国避难。
+中国人不等于中共，彻底消灭共产党！
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-59.jpg)
 
+审核/编辑/发稿:qiutian（邱甜）
 
-文字版原文：[台湾亲共团体长期充当中共代理人](https://gnews.org/zh-hans/2072838/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-7.png)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
