@@ -2,39 +2,25 @@
 ---
 
 
-## 有声|确诊人数激增，香港将实行大规模核酸检测
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2081182/)
+## 哈萨克斯坦封锁俄罗斯电视台
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2081259/)
 
-配音：纽约香草山农场 -Rita七号小青蛙
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据路透社报道，香港特首林郑月娥22日表示，将从 3 月中旬开始，对香港 740 万居民实施中共病毒强制检测。 她说，严格的冠状病毒规定将一直实施到 4 月中旬，学校将在夏季提前放假，并在 8 月开始新的学年，现在确诊病例的激增已经使医疗保健系统不堪重负。
+**撰稿：日本东京方舟农场 JIHO**
 
-林正月娥表示在强制测试计划下，居民将需要进行三次测试，每天的测试能力达到一百万。她说，包括校园在内的场所可用于检测和隔离，她还透露中共将在香港建造一座临时医院。这些措施是香港在中共病毒爆发两年后实施的最严厉的措施。
+2 月 28 日,根据路透社阿拉木图的消息，一家在哈萨克斯坦的一个省份提供互联网和电视服务的公司周一表示，已屏蔽了所有俄罗斯电视台对俄罗斯入侵乌克兰的报道。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-423.jpg)（图片来自于reuters.com）
+“我们反对战争，反对战争宣传”位于哈萨克斯坦中部 Shakhtinsk 镇的 Remstroyservice 公司在一份声明中说，并补充说，它正在运行哈萨克斯坦国家电视台，以取代所有主要的俄罗斯电视台。
 
-香港卫生当局报告了 6,211 例新病例，32 人死亡，另有 9,369 例在初步检测中呈阳性。他们说，这些数据并不能反映全部的真实情况。 香港大学的研究人员预测，到 3 月下旬每天的死亡人数可能达到接近 100 人的峰值，到 5 月中旬，累计死亡人数可能上升到 3,206 人左右。感染人数可能达到每天 180,000 人的高峰。
+哈萨克斯坦避免批评俄罗斯入侵一个前苏联共和国的举动，但同时也没有站在俄罗斯一边，承认莫斯科支持的乌克兰东部分裂主义国家的独立。
 
-该研究预计，7天隔离的感染人数可能达到60万以上，而7天隔离的密切接触者人数可能达到180万，恐将导致社会严重混乱。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/c2eb0000-0aff-0242-a74b-08d9eb058bfc_w408_r1_s.jpg)
+这个石油出口中亚国家的坚戈周一与俄罗斯卢布一起受到重创，而由于欧洲国家实施的禁令，许多俄罗斯航空公司不得不改航，因此通过其领空的航班数量增加了两倍。
 
+参考链接：
+1.[https://www.reuters.com/world/kazakh-provider-blocks-russian-tv-stations-over-ukraine-war-2022-02-28/?taid=621cb9533cade000010144b7&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/kazakh-provider-blocks-russian-tv-stations-over-ukraine-war-2022-02-28/?taid=621cb9533cade000010144b7&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-文字版原文：[确诊人数激增，香港将实行大规模核酸检测](https://gnews.org/zh-hans/2073127/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+素材采编：JIHO
+编辑：青城道姑
+发布：爱放飞
 
  
 

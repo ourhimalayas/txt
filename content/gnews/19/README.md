@@ -2,8 +2,8 @@
 ---
 
 
-## 20220227郭文贵大直播 ：美国更希望中共攻打台湾 然后以正义的身份参与进这场战争
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2080941/)
+## 20220227郭文贵大直播 ：共产党一打仗必定断电 断网 抢光老百姓的财物 分裂人心
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2081032/)
 
 作者：东京樱花团小视频组
 
