@@ -2,106 +2,35 @@
 ---
 
 
-## 约翰·米尔斯海默在 2015 年谈到了西方、北约、乌克兰和俄罗斯
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2077665/)
+## 有声|中共攻台的三个方案
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2077752/)
 
-[https://gtv.org/video/id=621b90ea4353d33974c37acc](https://gtv.org/video/id=621b90ea4353d33974c37acc)
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+在2月25日的大直播中，郭文贵先生爆料称，习近平在普京攻乌克兰之前，已把潜水艇部队布置在了台海周边。中共攻台可能有三个方案。
 
-John Mearsheimer
-约翰·米尔斯海默
+第一，模仿乌克兰的模式，实行普京战略。让人大和政协的台湾所谓代表提出议案，宣称台湾面临台独危机，台独欲借邪恶势力分裂台湾，破坏中国领土完整，请求大陆出兵支援。然后中共可以“名正言顺”地出兵平乱。
 
-What’s going on here is that the West is leading Ukraine down the primrose path
-这里发生的事情是，西方正在带领乌克兰走上报春花之路
+第二，围而不打，把所有的台岛孤立化。同样声称有台独分子，或者人为制造动乱，然后派出所谓维和部队，对台湾围而不打，破坏台湾的贸易，等全球经济崩溃时，让台湾不攻自破。
 
-and the end result is that Ukraine is going to get wrecked
-而且最终的结果是乌克兰将被摧毁
+第三，短时间内， 迅速占岛。
 
-and I believe that the policy that I’m advocating which is
-并且我相信我所倡导的政策是
+无论采取何种方案，这一次台湾的事情一定会有个了结，或者中共灭亡，或者台湾灭亡。
 
-neutralizing Ukraine and then building it up economically
-中立的乌克兰，然后在经济上建立它
+文字版原文：[中共攻台的三个方案](https://gnews.org/zh-hans/2073197/)
 
-and getting it out of the competition between Russia on one side and NATO on the other side
-并使其摆脱一方面俄罗斯与另一方面北约之间的竞争
+音频处理：Fei797
+发稿：Fei797
 
-Is the best thing that could happen to the Ukrainians
-是乌克兰人可能发生的最好的事情
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-What we’re doing is encouraging the Ukrainians to play tough with the Russians
-我们正在做的是鼓励乌克兰人对俄罗斯人采取强硬态度
-
-we’re encouraging the Ukrainians to think
-我们鼓励乌克兰人思考
-
-that they will ultimately become part of the West
-他们最终将成为西方的一部分
-
-because we will ultimately defeat Putin
-因为我们最终会打败普京
-
-and we will ultimately get our way
-我们最终会如愿以偿
-
-time is on our side
-时间在我们这边
-
-And of course the Ukrainians are playing along with this
-当然，乌克兰人也喜欢这个方向
-
-And the Ukrainians are almost completely unwilling
-乌克兰人几乎完全不愿意
-
-to compromise with the Russians
-与俄罗斯人妥协
-
-and instead want to pursue a hardline policy
-而是想奉行对俄强硬政策
-
-Well, as I said to you before if they do that
-好吧，就像我之前对你说的那样，如果他们这样做
-
-the end result is that their country is going to be wrecked
-最终的结果是他们的国家将被摧毁
-
-And what we’re doing is in effect encouraging that outcome
-我们所做的实际上是在鼓励这一结果
-
-I think it would make much more sense for us to neutral …
-我认为中立对我们来说更有意义……
-
-to work to create a neutral Ukraine
-努力建立一个中立的乌克兰
-
-It would be in our (USA) interest to bury this crisis as quickly as possible
-尽快埋葬这场危机符合我们（美国）的利益
-
-It certainly would be in Russia’s interest to do so and most importantly
-这样做当然符合俄罗斯的利益，最重要的是
-
-it would be in Ukraine’s interest to put an end to the crisis
-结束危机符合乌克兰的利益
-
-**原视频链接**[https://twitter.com/maajidnawaz/status/1497541168866992131](https://twitter.com/maajidnawaz/status/1497541168866992131)
-
-Date:02/26/2022
-原视频标题: John Mearsheimer talked about the West, NATO, Ukraine & Russia in 2015
-约翰·米尔斯海默在 2015 年谈到了西方、北约、乌克兰和俄罗斯
-原视频日期：2022/02/26
-**原视频链接**https://twitter.com/maajidnawaz/status/1497541168866992131?s=24任务编号：KE424（3864）
-视频时间段 : 0:00-1:33
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-咕噜咕噜
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,85 +2,68 @@
 ---
 
 
-## 乌克兰总统弗拉基米尔·泽连斯基表示“敌人将我列为第一目标，”他说，“我的家人列为第二目标”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2077575/)
+## 2022年的中共国是世界上最不自由的国家之一
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2077688/)
 
-[https://gtv.org/video/id=621b8fa04353d33974c37a80](https://gtv.org/video/id=621b8fa04353d33974c37a80)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1214305597-700x420-1.jpg)2020 年 5 月 21 日在北京举行的中国人民政治协商会议开幕式前，一名警察在运送代表的车队经过路段之前阻止其他车辆。（NICOLAS ASFOURI摄 / 法新社/盖蒂图片社）
+摘要翻译：
 
-Volodymyr Zelensky (Ukraine’s president)
-弗拉基米尔·泽连斯基 (乌克兰总统)
+《大纪元时报》2022年2月25日报道，
 
-Today, I have asked 27 European leaders whether Ukraine will be in NATO
-今天，我已经询问了 27 位欧洲领导人，乌克兰是否会加入北约
+根据倡导组织“自由之家”于2月24日发布的年度《世界自由》报告，中共国当今是世界上政治自由和言论自由水平最低的国家之一。
 
-I have asked directly – everyone is afraid, no one answers
-我已经直接问过了—大家都害怕，没有人回答
+在一份根据言论自由、政治参与权和法律面前人人平等进行排名的210个国家和地区的名单中，中共国仅获得9分(满分100分)，并被列为“不自由”国家。
 
-But we are not afraid, we are not afraid of anything
-但我们不怕，我们什么都不怕
+中共国的得分低于苏丹(10分)和伊朗(14分)，并且与利比亚、缅甸和阿塞拜疆等国家的得分相同。只有十几个国家的得分更低，包括叙利亚(1)、土库曼斯坦(2)、朝鲜(3)、厄立特里亚(3)、赤道几内亚(5)、中非共和国(7)和沙特阿拉伯(7)。
 
-We are not afraid to defend our country, we are not afraid of Russia
-我们不怕保卫我们的国家，我们不怕俄罗斯
+“自由之家”在阐述其对中共国排名的原因时表示，中国共产党(Chinese Communist Party, CCP)的统治在过去几年里变得越来越专制。
 
-We are not afraid to talk to Russia, we are not afraid to talk about anything
-我们不怕与俄罗斯交谈，我们不怕谈论任何事情
+报告指出：“中国共产党继续加强对生活和治理的各个方面的控制，包括国家官僚机构、媒体、网上言论、宗教活动、大学、企业和民间社会团体，它破坏了早期的一系列法治改革。”
 
-about security guarantees for our country
-关于我们国家的安全保障
+该报告特别批评了领导人习近平的行为。报告指出：“中国共产党领导人和国家主席习近平巩固个人权力，达到了中共国几十年来前所未有的程度。人权律师和活动家继续发声，尽管他们付出了巨大的个人代价。”
 
-we are not afraid of talking about neutrality
-我们不怕谈论中立
+**政治现实**
 
-We are not NATO members at the moment
-我们目前不是北约成员
+报告详述了中共国公民不能参加国家领导职位的直接选举或投票。中国共产党的全国代表大会选举该党的领导人，任期五年。政府和中共的所有政策和做法，都要遵循习近平作为领导人和七人政治局常委领导的指令。毫不奇怪，习近平在2017年10月的中共十九大上获得了中共总书记的第二个五年任期，并且看起来将在2022年秋季举行的党的下届全国代表大会上，获得前所未有的第三个任期。
 
-But what guarantees will we get?
-但是我们会得到什么保证呢？
+正如报告所说，中共充分利用这种自上而下的专制结构“垄断”所有政治活动，并压制任何真正的竞争。中国人民政治协商会议(Chinese People’s Political Consultative Conference, CPPCC)是中共的政治咨询机构，其中的八个非共产党小党派如果想继续存在，就必须服从中共的指令。
 
-And most importantly, which countries will give us those guarantees?
-最重要的是，哪些国家会给我们这些保证？
+“寻求建立真正独立的政党或倡导民主的公民，几乎都在监狱中，被监禁，或流亡中。”报告指出，2021年中共官员拘留了支持民主的律师和活动人士。报告指出，“新公民运动”的创始人许志勇自2020年2月以来一直被监禁，以“颠覆罪”被正式起诉。报告分析说，中共国境内没有任何有组织的政治反对机制，这使得中国共产党自1949年在国共内战中，击败了国民党民族主义者后，就一直在统治中共国。
 
-I remain in the capital, may family is also in Ukraine
-我留在首都，我的家人也在乌克兰
+中共的专制权力，使其能够在中共国西部地区实施政策，报告明确指出，其目的是减少少数民族人口。这方面的例子包括，将100多万维吾尔人和其他穆斯林少数民族关押在拘留营和强迫劳动营中。报告还引用了越来越多关于维吾尔族人在集中营内外遭受酷刑、性虐待和强制绝育的报告。
 
-My children are in Ukraine
-我的孩子们在乌克兰
+**言论自由**
 
-my family are not traitors, they are citizens of Ukraine
-我的家人不是叛徒，他们是乌克兰公民
+与上文详述的专制和压制的特征一致，中共国是报告所称的地球上最严格的限制媒体领域之一。
 
-where exactly they are, I have no right to say
-他们到底在哪里，我无权说
+中共还维持着一个高度复杂的审查和压制新闻报道的系统。它维护这一体系的手段包括监督记者的资格认证，媒体机构的直接所有权，以及对任何敢于批评中共或其官员的人实施严厉惩罚。中共还向出版物和网站发布关于如何报道突发新闻事件的指令。
 
-according to the available intelligence, the enemy marked me as a target No. 1
-根据现有情报，敌人将我标记为第一目标
+此外，报告还详细说明，中共对电信基础设施的管理有助于封锁网站、从市场上没收智能手机应用程序，以及删除社交媒体帖子和用户帐户。近年来，网上封锁的受害者包括油管、推特、脸书、《纽约时报》和《英国广播公司》。
 
-My family as the target No. 2
-我的家人作为第二号目标
+该报告援引保护记者委员会的数据指出，截至去年12月，中共国有50名记者被关押在监狱里，但报告很快明确说明，因违背政权意愿分享信息而被监禁的实际人数要多得多。
 
-They want to destroy Ukraine politically by destroying the head of the state
-他们想通过摧毁国家元首在政治上摧毁乌克兰
+**简评：**
 
-原视频链接[https://twitter.com/nytimes/status/1497066350715490317?s=24](https://twitter.com/nytimes/status/1497066350715490317?s=24)
+中共国没有言论自由、民主议事、政治参与权，整个国家无法律无法治，不是一天两天了，而是自从共产主义邪魔来到这片土地上，这所有的一切都被剥夺了。长达百年的压迫中，一直都有中共国人在为自由发声，然而由于力量的单薄以及人心之恶被中共完全激发，令这些声音被无视、被掩盖。而现在，新中国联邦、爆料革命五年来坚持不懈的积累实力、唯真不破的揭示中共的邪恶，让中共通过蓝金黄得到的伪善面具逐渐被揭开，让中共的贪婪与邪恶曝光于世界的目光之下，就如本报告中，将中共国甚至放在伊朗之后。新疆种族大屠杀、锁链女、冬奥会的假骗、血洗香港，到目前的俄-乌局势恶化，台海局势濒危，这一切的一切的罪恶，背后都是中国共产党。正义可能会迟到但永远不会不到，这个盘踞在中华大地的吸血鬼，必会被正义的阳光照耀显出原形，直至灰飞烟灭。
 
-Date:02/26/2022
-原视频标题: Ukraine’s president, Volodymyr Zelensky, said that he remained in the country despite rumors that he had fled. “The enemy has marked me as target No. 1,” he said, “my family as target No. 2”
-乌克兰总统弗拉基米尔·泽连斯基表示，尽管有传言称他已经逃离，但他仍留在该国。 “敌人将我列为第一目标，”他说，“我的家人列为第二目标”
-原视频日期：2022/02/26
-原视频链接https://twitter.com/nytimes/status/1497066350715490317?s=24
-任务编号：KE423（3863）
-视频时间段 : 0:00-1:26
+新闻链接：[China in 2022 One of the Least Free Countries in the World: Report](https://www.theepochtimes.com/china-in-2022-one-of-the-least-free-countries-in-the-world-report_4302833.html)
 
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-咕噜咕噜
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*翻译/简评：milkcat*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*校对：Julia Win*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

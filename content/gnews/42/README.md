@@ -2,16 +2,28 @@
 ---
 
 
-## 俄乌战争｜继西方国家后 日本将俄踢出swift
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2075613/)
+## 【秘翻在线】乌克兰百姓自制燃烧瓶应对俄军入侵
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2076148/)
 
-**撰文/ 港台前線｜發佈日期/ 27/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Music-Clip-5.png)
-日媒27日晚间报导，岸田首相宣布已向俄罗斯追加制裁，并称“这暴力行为必须付出高昂的代价”。日本政府对俄罗斯追加的制裁，包括将冻结普丁总统在内的俄罗斯政府官员资产，并跟随美欧政府制裁措施，将俄罗斯从日本的“SWIFT系统”中排除。此外，岸田首相表示将向乌克兰提供额外1亿美元的人道主义援助。
+#### 翻译/撰稿：zzballack
 
-俄乌战争爆发至今，多国逐渐联合对俄罗斯进行相关制裁，27日早间[多个西方国家发表联合声明](https://gnews.org/zh-hant/2072576/)，确认将俄罗斯踢出SWIFT，包括美国、欧盟、法国、德国、意大利、英国、加拿大。西方国家宣布的制裁新措施将在未来几天内实施，其中还包括对俄罗斯央行外汇储备的限制，目的为阻止普丁动用俄罗斯央行6300亿美元外汇储备作为入侵乌克兰和保卫卢布货币提供资金。
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2595.png)   图片来源：自由欧洲电台
+《布雷特巴特新闻网》（Breitbart News）2月27日报道说，根据全球多家媒体机构的大量报道，当俄军坦克包围乌克兰首都基辅的时候，驻扎在地铁区的乌克兰百姓正在自制燃烧瓶(Molotov cocktail，莫洛托夫的鸡尾酒)，以抵御俄军入侵。
 
-来源｜[YAHOO JAPAN](https://news.yahoo.co.jp/articles/daa4b84b5c607e30869dda611b048b5e070778cb)
+英国BBC周日（2月27日）[报道](https://www.bbc.com/news/live/world-europe-60542877)说：“在普京下令其军队入侵乌克兰的那一天，英语老师阿丽娜（Arina）计划在下班后上一堂舞蹈课，然后参加一个派对。但三天后，她却在一个公园里制作燃烧瓶。她和其他几十名妇女一起蹲在草地上，把聚苯乙烯（Polystyrene）块当作奶酪一样磨碎，把床单撕成破布，用于制作瓶子炸弹（bottle-bombs）。这样的场景对欧洲的大多数人来说是无法想象的，即使在这里，这样的情景也是无法想象的。”
+
+《洛杉矶时报》2月26日也[报道](https://www.latimes.com/world-nation/story/2022-02-26/russia-attack-ukraine-kyiv-civilians-arms-molotov-cocktails)了类似事件：“星期六，乌克兰首都一条安静、不起眼的街道上的一个三层地下室里，24岁的奥尔加将大块的泡沫塑料(Styrofoam)捏碎，将她手中的白色卵石放入摆在她面前的混合了桑格利亚（sangría）酒、必富达金酒（Beefeater gin）、啤酒和葡萄酒的瓶子里。奥尔加是一家制图公司的项目经理，为了安全，她要求不公布她的全名。她是一个由五人组成的燃烧瓶组装小组的一员。当她和另一名妇女压碎泡沫塑料时，她们身边的一男一女小心翼翼地将燃料和油倒入一个漏斗，将混合液渗入瓶子。在他们旁边，一个人将由桌布和窗帘的碎布制成的灯芯沾满燃油，然后用一小段麻绳将灯芯紧紧绑在瓶口上。”
+
+奥尔加说：“我两周前辞去了旧工作，本该在周一开始新工作。我从来没有想到我会干这个。相比于这个，我肯定愿意从事新工作。但目前制作燃烧瓶更为重要。”
+
+乌克兰国防部2月25日通过其官方推特呼吁民众制作燃烧瓶，以协助国防。他们在推特上发布了一个教学视频，指导人们如何自制这种武器。
+
+纵览古今中外，战争最大的受害者往往都是无辜百姓。人类的贪婪和欲望导致纷争不止、战乱无数，真诚祈祷世界和平。
+
+新闻来源：[Ukrainian Civilians Make Molotov Cocktails to Fight Russia](https://www.breitbart.com/europe/2022/02/27/ukrainian-civilians-make-molotov-cocktails-to-fight-russia/)
+
+[Making Molotov Cocktails, Ukrainian Civilians Prepare To Defend Homes](https://www.rferl.org/a/ukraine-molotov-cocktail-russia/31725286.html)
 
  
 
