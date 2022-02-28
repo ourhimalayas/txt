@@ -2,19 +2,19 @@
 ---
 
 
-## 视频｜加拿大人心中的怒火
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2080659/)
+## 来自乌克兰的歌声：战争是邪恶的
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2080755/)
 
-制作：香草山视频部
+视频剪辑：Smile77
 
-加拿大政府开始对和平示威的抗议民众动手了，民众的怒火开始燃烧。加拿大卡车司机抗议强制疫苗的“自由车队”行动旷日持久，并且得到了相当大的民意支持。在强制疫苗越来越不得人心的今天，特鲁多政府仍然一意孤行、不肯改弦更张调整政策，反倒采用强制手段对付抗议活动，这不仅改变不了困局，只会进一步激化矛盾，制造出更大的反对浪潮。
+发布：tianzhihuan
 
-发稿：小野貓（文凱琳）
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

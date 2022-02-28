@@ -2,39 +2,45 @@
 ---
 
 
-## 美国、欧盟等国宣布禁止俄罗斯使用SWIFT国际结算系统
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2080507/)
+## 台湾特技女星在特殊情况下加入中国国籍
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2080547/)
 
-作者：韩国天池农场 − 八木
-![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/https3A2F2Fs3-ap-northeast-1.amazonaws.com2Fpsh-ex-ftnikkei-3937bb42Fimages2F72F52F92F52F39145957-3-eng-GB2FCropped-16459253342022-02-25T184316Z_1232082253_RC23RS9ENP93_RTRMADP_3_UKRAINE-CRISIS-BA.png)
-2月27日，美国与欧盟、英国和加拿大发表共同声明，宣布禁止俄罗斯使用环球同业银行金融电信协会（SWIFT）国际结算系统。
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-63.png)图片来自网络
+《海峡时报》近日报道，台湾特技演员陈竹音本月初在中国社交媒体微博上宣布，她准备放弃台湾户口，正在申请大陆户口。
 
-美国白宫发表声明表示，为应对俄罗斯在乌克兰的军事侵略行动，美国、英国和欧盟等国领导人决定将大部分俄罗斯银行排除在环球同业银行金融电信协会（SWIFT）国际结算系统之外，为增加制裁的有效力，美欧同时对俄罗斯央行采取了限制措施。
+她在 2 月 7 日的帖子中说：“我也放弃了在台湾的医疗保健，并期待尽快获得中华人民共和国身份证。”
 
-欧盟委员会主席冯德莱恩在26日的新闻发布会上表示，将俄罗斯的多家银行排除SWIFT系统，这将阻止它们在全球范围内开展大部分金融交易，并有效阻止俄罗斯的进出口。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/0D02684440FE6859FD068E96ACF7421D3E003F91_size182_w960_h667.jpeg)
-SWIFT结算体系作为全球金融机构传递金融信息服务的主要渠道，其报文传送平台对接全球超过11000家银行、证券机构；市场基础设施和企业用户已覆盖全球200多个国家和地区。此次俄罗斯百分之七十的银行机构被踢出SWIFT系统，将对俄罗斯产生深远影响。
+30多岁的陈女士在圈内享有盛誉，曾为台湾女演员舒淇、陈奕涵以及香港女演员乐基儿表演过绝技，过去四年一直生活在中国大陆。年。
 
-美国和欧盟最新的制裁手段将切断俄罗斯金融机构与全球金融体系的联系，届时，俄罗斯将无法与欧洲国家进行能源结算，而占到俄罗斯经济收入40%的石油和天然气出口将受到重大打击；俄罗斯其他对外贸易与经济往来也将陷入停滞。
+她在微博上写道：“在中国生活的这些年，我感受到了祖国是如何保护14亿人民的……祖国必须统一，统一后台湾社会的混乱无疑会停止。”
 
-新闻链接：[https://news.rthk.hk/rthk/ch/component/k2/1636101-20220227.htm](https://news.rthk.hk/rthk/ch/component/k2/1636101-20220227.htm)
+陈女士的声明是一个罕见的案例。她是娱乐圈第一个公开宣布要入籍的人。
 
-编辑/校对/发稿：文留
+根据海峡两岸的法律，一个人不能持有双重户籍和护照。台湾的户籍赋予一个人在选举、罢免和公投中的投票权；在公职和军队任职；并获得负担得起的全民医疗保健。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpeg)
+台湾陆委会副部长邱垂正表示：“由于（海峡两岸）以户籍确定公民身份，当局将取消陈竹音在台湾的户籍。”
 
-**更多资讯，更多关注**
+网民对陈女士的声明表示愤怒。在 PTT（相当于台湾的 Reddit 在线论坛）上，一位用户写道：“利用这种策略向‘小粉红’投降并背叛了你的出生地”。 “小粉红”指的是民族主义的网络战士。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+“既然你这么急着要回‘祖国’， 一路好走！”另一个人写道。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+陈女士是很多想赢得更多粉丝的而在中国展开事业的台湾艺人之一。有的人也类似地公开表示支持中共国。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+2016年，中国古装剧演员林心如和霍建华在微博上抗议国际法庭对南海的裁决，该裁决以压倒性优势在菲律宾与中国的领土争端中作出裁决。水域。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+去年国庆期间，杨丞琳、张韶涵、彭于晏、胡安、吴奇隆、林志颖等近30位台湾名人在社交媒体上发文庆祝。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
+虽然台湾和中国都庆祝农历新年，但在中央电视台播出的一年一度的春节联欢晚会上看到台湾歌手表演的现象越来越普遍。
+
+台湾演员方芳一月底接受中国媒体采访时说她欢迎中国“教训台湾”-小孩不讲理，有的时候真的是打两巴掌他才知道厉害。
+
+自愿放弃批评自己国家和领导的权力，自愿放弃免费医疗的权利、自愿放弃浏览推特、油管等网站的权力，等等。对于她个人来说确实有这个权力，但有些东西是拥有的时候浑然不觉，用到的时候没有才知其可贵。
+
+参考链接：
+
+[https://www.straitstimes.com/asia/east-asia/taiwan-stuntwoman-opts-for-chinese-citizenship-in-rare-case](https://www.straitstimes.com/asia/east-asia/taiwan-stuntwoman-opts-for-chinese-citizenship-in-rare-case)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
