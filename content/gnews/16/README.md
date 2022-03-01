@@ -2,32 +2,67 @@
 ---
 
 
-## 江泽民评价共产党
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2083641/)
+## 俄罗斯已表示将通过扣押在俄罗斯的外国人的资金来应对扣押俄罗斯的资金
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2083646/)
 
-**整理：GHope、hys
-编辑：Candy**
+[https://gtv.org/video/id=621caf1e4353d33974c3dda3](https://gtv.org/video/id=621caf1e4353d33974c3dda3)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/江.png)
+This Just in also from Moscow and Russia is saying
+这刚刚也来自莫斯科而且俄罗斯说
 
+that it will respond to the seizure of money of Russian citizens and companies
+它将回应扣押俄罗斯公民和公司的钱
 
-共产党自成立以来就是骗、撒谎……乌克兰是大平原，地广人稀，得大面铺开；台湾不就是一小岛吗？ 是不是那不就咱裤裆里边拔根毛吹掉吗？ （一听）很有道理啊。所以它互相骗、互相忽悠……最后习太阳就成了裤裆那个毛了，就把它吹了。 大家都知道，你知道吗？都很清楚！所以说这时候大家看看谁骗过谁，可能共产党最后要为这个骗付出一个巨大的代价。
+abroad by seizing funds of foreigners and foreign companies in Russia
+通过在俄罗斯扣押外国人和外国公司的资金到国外
 
-我亲耳听过当时江泽民骂身边的一个人，说：你他妈就是骗，共产党吃亏就吃在这骗上了，还在那儿胡说八道！江泽民那个嗓门啊，生活中洪亮至极啊。他那个肚子里边不知道咋回事儿，我在外边（都能听得很清楚）。然后他那个秘书小宋说快走吧快走吧。
+so tit for tat on that one
+所以以牙还牙
 
-本来我是这么被拉去（做）顾问给他家中南海装修，给他当顾问去了。快走，我特别识时务，一扭头开着车我就走了，但是这一幕让我记住：江泽民知道共产党就是个假大空。胡锦涛我也看过就骂人，也是说你们就会造假，党就毁在你们的假上了，他也知道共产党就是假来了。
+That’s according to the RIA News Agency
+这是根据 RIA 通讯社的报道
 
-这一回，这个假会毁掉共产党啊，这也是上天给我们的礼物，这叫轮回吧？！卡丽熙，我们俩在这有共同语言，我们相信这是轮回。行，谢谢Karen。
+quoting the deputy head of Russia’s security council Dmitry Medvedev
+根据俄罗斯安全委员会副主席德米特里·梅德韦杰夫
 
-资料来源：2022.2.27文贵大直播
+He says Moscow does not rule out
+他说莫斯科不排除
 
-***发布：Candy***
+nationalizing the assets of companies registered in the United States European Un-ion
+将在美国、欧盟注册的公司的资产国有化
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+and what he calls other unfriendly jurisdictions
+以及他所谓的其他不友好的司法管辖区
+
+So what is happening with the the war here
+那么这里的战争发生了什么
+
+the hot war, as you might say
+正如你所说，热战
+
+could be followed by some sort of economic war as well
+之后也可能发生某种经济战争
+
+**原视频链接**[https://twitter.com/skynews/status/1497513596217135105?s=24](https://twitter.com/skynews/status/1497513596217135105?s=24)
+
+Date:02/27/2022
+原视频标题: Russia has said it will respond to the seizure of Russian money by seizing the funds of foreigners in Russia
+俄罗斯已表示将通过扣押在俄罗斯的外国人的资金来应对扣押俄罗斯的资金
+原视频日期：2022/02/26
+原视频链接https://twitter.com/skynews/status/1497513596217135105?s=24
+任务编号：3872
+视频时间段 : 0:00-1:00
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
