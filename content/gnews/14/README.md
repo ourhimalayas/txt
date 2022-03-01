@@ -2,25 +2,29 @@
 ---
 
 
-## 有声｜乌驻美大使指控俄军投放禁用武器热压弹
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2087466/)
+## 秘翻在线： 中共在俄乌战争中再次威胁世界
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2087490/)
 
-By:**秘翻新闻**
+**撰稿：葛大饼**
 
-**2022-03-01**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-1.png)图片来源 网络
-[综合外媒3月1日消息，乌克兰驻美大使马卡罗法于当地时间周一指控俄罗斯称，俄军对乌国使用了《日内瓦公约》明定禁用的热压弹，试图让乌克兰承受巨大毁灭。](https://www.reuters.com/world/europe/ukraines-ambassador-us-says-russia-used-vacuum-bomb-monday-2022-02-28/https://www.abc.net.au/news/2022-03-01/ukraine-ambassador-to-us-says-russia-used-a-vacuum-bomb/100870638)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/33.jpg)
+根据2022年3月1日 凤凰新闻报道，俄罗斯日增确诊20万，  是世界上疫情最严重的国家之一。
 
-[此外，国际特赦组织和人权组织都表示，俄罗斯军队似乎使用了被广泛禁止的集束弹药，并且袭击了乌克兰东北部一所供平民避难的学校。](https://www.reuters.com/world/europe/ukraines-ambassador-us-says-russia-used-vacuum-bomb-monday-2022-02-28/https://www.abc.net.au/news/2022-03-01/ukraine-ambassador-to-us-says-russia-used-a-vacuum-bomb/100870638)
+新闻称由于俄乌战争，疫情不再是俄罗斯要重点面对的问题， 此外俄罗斯境内出现了反战游行、聚会，这也必然给病毒的传播带来机会，战争是会让疫情更严重，蒙古、满州里是其外溢“重灾区” ，除了满洲里，黑龙江绥芬河边境口，同样受到邻国疫情的压力。
 
-[据悉，热压弹在爆炸时会释放大量热能，同时消耗该区域氧气，主要的毁灭效果是由超音速震波与超高温所造成，所有活生生的物体都会化为乌有，被称为威力最强大的非核武器之一。俄国于2007年成功测试，称其为「炸弹之父」，也有报道指出热压弹或为人类拥有的最厉害最残忍的武器之一。](https://www.reuters.com/world/europe/ukraines-ambassador-us-says-russia-used-vacuum-bomb-monday-2022-02-28/https://www.abc.net.au/news/2022-03-01/ukraine-ambassador-to-us-says-russia-used-a-vacuum-bomb/100870638)
+公卫专家担忧俄乌战争可能加剧中共新冠病毒的传播，乌克兰和俄罗斯目前正处于奥密克戎最新一波疫情的最高峰，而俄乌战争使两国的疫情检测几乎停滞。 联合国预计，这场战争可能导致多达500万乌克兰人逃往国外,而这将在欧洲引发70多年来最严重的难民危机，有专家已预警，乌克兰周边国家，近期内将会爆发新一轮的中共新冠疫情，以及可能的脊髓灰质炎病毒感染。
 
-秘翻新闻 明澈 编辑报道
+新闻提醒民众：接种中共病毒（Covid）疫苗，可以大大降低感染后死亡的风险，但是在残酷战争中，是没有疫苗可以减少死亡的。随着俄军占领了乌克兰首都基辅的切尔诺贝利核电站，这个消息引起了周边国家的紧张，另一方面在前苏联时期，乌克兰有着大规模杀伤武器实验室和研究人员，那里保存着一些病原体，如果战争导致停电、实验室安全系统的破坏，病原体就有可能泄漏。
 
-发布 : 恩典
+中共官媒想表达的是：战争很残酷，谁都有可能会死，中共病毒和疫苗致死率和战争比起来都是小事，大家不要纠结了！为马上爆发的疫苗灾难甩锅！顺带还威胁了下大家，我们还有很多病毒要放出来，还有核武器，核泄漏的手段！
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+**[新闻来源](https://news.ifeng.com/c/8E1r8keRxdN)**
+
+
+
+#  
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

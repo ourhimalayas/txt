@@ -2,29 +2,45 @@
 ---
 
 
-## 有声｜美国和盟国考虑释放6000万桶石油应对供应紧张
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2087349/)
+## 澳大利亚承诺向乌克兰提供军事援助
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2087351/)
 
-By:**秘翻新闻**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**2022-03-01**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-2.jpg)图片来源 路透社
-[《路透社》](https://www.reuters.com/business/energy/us-allies-weigh-oil-reserves-release-iea-meet-sources-2022-02-28/)2月28日报道，据知情人士透露，美国及其盟国正在考虑释放石油储备，以应对油价飙升和俄罗斯入侵乌克兰后石油供应紧张的局面。据彭博社报道，这些国家正在考虑释放约6千万桶石油。
+#### 整理/编辑：文泓
 
-报道指出，在俄乌战争之际，以及西方盟国将俄罗斯踢出SWIFT结算系统之后，油价达到了自2014年以来的最高水平，国际基准布伦特原油期货一度涨至每桶105.08美元。将俄罗斯踢出SWIFT系统干扰了石油供给，一些买家已经在回避俄罗斯原油。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片10.png)
 
-俄罗斯是世界上最大的石油生产国之一，每天出口大约400到500万桶原油，另外出口200- 300万桶成品油。中共国、欧盟、韩国、印度和日本是其主要买家。
+**图片来源：InDally & 雅典娜设计组**
 
-报道称，国际能源署总干事法提赫·比罗尔表示，国际能源署成员最早可能在周一或者周二，对开发战略石油储备达成一致。该国际会议将由美国能源部长格兰霍姆主持。
 
-截至发稿，国际基准布伦特原油期货每桶报价98美元。
+3月1日堪培拉消息，莫里森政府已经签署了5000万美元（7000万澳元）的协议，为乌克兰抵抗军提供包括导弹和弹药在内的武器。
 
-（秘翻新闻  冰糖葫芦喵编译报道）
+当前俄罗斯与乌克兰的冲突仍在继续中，斯科特·莫里森周二在内阁国家安全委员会会议后确认了上述资金承诺。
 
-发布 : 文橙
+“我们将投入5000万美元用于支持致命和非致命弹药。其中绝大多数将属于致命类别，”莫里森先生告诉记者。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+就在乌克兰抵抗力量在武器不足的情况下继续反抗莫斯科之际，莫里森总理对援助乌克兰泽连斯基总统的国际社会表示敬意，但警告说国际社会统一的反应可能会导致莫斯科“更暴力的反应”。
+
+“（总价值）绝大部分将属于致命类别武器，我们谈论的是导弹和弹药，我们谈论的是支持他们保卫自己在乌克兰的家园，我们将与北约合作这样做”，他说：“我不打算详细说明，因为我不打算让俄罗斯政府提前了解即将发生的事情。”
+
+同时，莫里森先生还宣布了2500万美元（3400万澳元）的“初步援助”，用于向致力于为流离失所者提供水、食物、住所和教育的国际组织提供人道主义支持。
+
+参考链接：
+
+1、[澳大利亚承诺向乌克兰提供致命和非致命支持](https://cn.theaustralian.com.au/2022/03/01/64112/)
+
+2、[Scott Morrison announces $70m in Australian military aid for Ukraine | news.com.au — Australia’s leading news site](https://www.news.com.au/national/politics/australia-commits-50m-usd-for-ammunition-to-support-ukraine/news-story/4a1db7e4f9e24fcc36782c246b797edc)
+
+*发布：wenly*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

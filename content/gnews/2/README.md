@@ -2,8 +2,8 @@
 ---
 
 
-## 疫苗的灾难将远超战争
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2087681/)
+## 七哥对七嫂的真诚
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2087734/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

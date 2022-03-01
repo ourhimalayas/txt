@@ -2,38 +2,27 @@
 ---
 
 
-## 韩国政府向乌克兰提供1000万美元用于人道救援
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2087298/)
+## 有声｜纽交所和纳斯达克暂停俄罗斯公司股票交易
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2087315/)
 
-作者：首尔天池农场—追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-71.png)
-2月28日，韩国外交部宣布，韩国决定向乌克兰提供1000万美元的紧急人道主义援助，用于帮助乌克兰政府、民众和难民。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-31.png)
-外交部指出，将通过与乌克兰及其周边国家政府和国际组织协商，确保援助尽快到位。
+By:**秘翻新闻**
 
-联合国难民事务高级专员估计，将有超过 400 万乌克兰难民逃往波兰、匈牙利、罗马尼亚和斯洛伐克等周边国家。
+**2022-03-01**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4-scaled.jpg)图片来源 路透社
+据[《路透社》](https://www.reuters.com/business/nyse-nasdaq-halt-trading-stocks-russia-based-companies-2022-02-28/)纽约2月28日报道，在全球对俄罗斯展开大规模经济制裁之际，纳斯达克和洲际交易所已经暂停俄罗斯上市公司股票交易。
 
-外交部表示，希望韩国政府的支持能够为乌克兰民众和难民提供切实帮助，政府并计划为解决乌克兰人道主义危机作出积极力量。
+据报道，洲际交易所还表示，不仅拒绝受到制裁的俄罗斯实体发行的任何新债券，而且受制裁的实体现有债务将在3月31日被剔除。
 
-参考链接：[外交部向烏克蘭公民和難民提供1000萬美元](https://news.kbs.co.kr/news/view.do?ncd=5405763)
+另外，美国场外交易集团，简称OTC，表示，它正在寻求有关俄罗斯和美国存托凭证交易的监管信息。OTC在一份电子邮件声明中表示，OTC正在监测并与联邦监管机构合作，一旦获得信息，将根据他们的指导和指示采取行动，”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+报道还指出，全世界最大的证券交易行业组织、美国存托与结算公司也表示，它正在评估针对俄罗斯的制裁行动对全球金融体系和市场波动的潜在影响。
 
-总编/编辑：DM
-校对/发稿：小野貓（文凱琳）
+(秘翻新闻 冰糖葫芦喵编译报道)
 
-**更多资讯，更多关注**
+发布 : 文橙
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-71.png)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
