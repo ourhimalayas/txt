@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/1/2022 12:57 AM (UTC)`
+
+2/28/2022 Miles Guo’s GETTR: The New Federal State of China's Ukraine rescue operation has touched the world! The actions of our fellow fighters have far exceeded what the CCP has done. The only trustworthy Chinese voice in Ukraine comes from the New Federal State of China, and we will devote our whole lives to saving people!<br/><br/>2/28/2022 文贵盖特：新中国联邦的乌克兰救援行动感动了世界！我们战友的行动远超中共的所做作为；乌克兰唯一可信赖的中国人的声音来自新中国联邦，我们将把一生投入到救人中去！<br/>
+![img](https://media.gettr.com/group5/getter/2022/03/01/00/393e4132-822a-3a48-ca58-2ac9ee27903c/out.jpg)
+
+---
+
 `@miles 2/28/2022 11:30 PM (UTC)`
 
 2/28/2022 Miles Guo’s GETTR: Fellow fighters of our media team, please always keep in mind that under no circumstances should you make any fake videos or post any fake information. Everything is just beginning! We shall let our fellow Chinese currently in Ukraine know that we are rescuing all Chinese, no matter who they are.<br/><br/>2/28/2022 文贵盖特：请咱们媒体组的战友们千万记住，千万不能做假视频或传递假消息！一切才刚刚开始，我们要让在乌克兰的中国同胞都知道，不论是谁，只要是中国人咱统统救！<br/>
@@ -144,13 +151,6 @@
 `@miles 2/27/2022 1:16 PM (UTC)`
 
 Announcement of New Federal State of China & Rule of Law Foundation on Emergency Rescue of Ukraine<br/><br/>https://gnews.org/2074988/<br/><br/>新中国联邦和法治基金关于紧急救援乌克兰的通知<br/><br/>https://gnews.org/zh-hans/2074877/<br/><br/>Заголовка: Уведомление по оказанию чрезвычайной помощи Новой Китайской Федерации и Фонда «Верховенство закона»<br/><br/>https://gnews.org/2074974/
-
----
-
-`@miles 2/27/2022 1:02 PM (UTC)`
-
-2022年2月27日 文贵大直播：俄乌战争预测台海；普京嚣张中共角色；世界经济金融市场；台湾沦陷如何应对
-![img](https://media.gettr.com/group33/origin/2022/02/27/12/8d19658e-04a0-1128-bace-7314dbab3afb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

@@ -2,67 +2,41 @@
 ---
 
 
-## 俄罗斯已表示将通过扣押在俄罗斯的外国人的资金来应对扣押俄罗斯的资金
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2083646/)
+## 3/01/2022日本快讯：由于网络攻击，丰田暂停工厂运作；日本加入全球支付网络排除俄罗斯制裁行动
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2083807/)
 
-[https://gtv.org/video/id=621caf1e4353d33974c3dda3](https://gtv.org/video/id=621caf1e4353d33974c3dda3)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/000246261_640.jpeg)
+[图片来源](https://gnews.org/zh-hans/2083807/)
 
-This Just in also from Moscow and Russia is saying
-这刚刚也来自莫斯科而且俄罗斯说
+**1. 由于供应商受到网络攻击，丰田明天开始将暂停国内所有工厂的运作**
 
-that it will respond to the seizure of money of Russian citizens and companies
-它将回应扣押俄罗斯公民和公司的钱
+[据NEWS WEB 2月28号报道，丰田汽车公司宣布，从3月1日起它将暂停在日本的所有工厂的运营。由于一个主要的供应商遭受了网络攻击，导致零部件采购出现问题。公司正在调查其原因,并决定暂停的国内所有14家工厂的28条生产线。遭到了网络攻击的是位于爱知县丰田市的一家生产汽车内部和外部零件的制造商。](https://www3.nhk.or.jp/news/html/20220228/k10013505951000.html)
 
-abroad by seizing funds of foreigners and foreign companies in Russia
-通过在俄罗斯扣押外国人和外国公司的资金到国外
+**2. 日本加入全球支付网络排除俄罗斯制裁行动，冻结俄罗斯总理普京资产**
 
-so tit for tat on that one
-所以以牙还牙
+[据时事通讯社 2月27号报道，日本首相岸田文雄11月27日晚宣布，为了加强对俄罗斯的制裁，日本将加入美国和欧盟的“将俄罗斯银行排除在全球银行支付和交易网络–环球银行间资金转账协会（SWIFT）之外”的行动。将向乌克兰提供1亿美元的紧急人道主义援助。总理在他的官邸告诉记者：”现在是采取坚定和团结行动以保护国际秩序基础的时候。我们将表明，暴力是要付出高昂代价的。日本已经明确表示，它将与西方国家一起加强对俄罗斯的制裁。](https://news.yahoo.co.jp/articles/742f73394ba1b11f5f82d81dec8450b76184dc84)
 
-That’s according to the RIA News Agency
-这是根据 RIA 通讯社的报道
+**3. 岸田首相考虑对白俄罗斯实施制裁，目标是包括政府高级官员在内的个人**
 
-quoting the deputy head of Russia’s security council Dmitry Medvedev
-根据俄罗斯安全委员会副主席德米特里·梅德韦杰夫
+[据时事通讯社 2月28号报道，参议院预算委员会于28日上午审议了2022年预算草案，首相岸田文雄和相关部长出席了会议。岸田首相说，他将考虑对白俄罗斯支持俄罗斯入侵乌克兰的行为进行制裁，并将尽快做出决定。在提到美国和七国集团宣布的对白俄罗斯的制裁时，首相强调说：”我们也将采取坚定的行动。](https://news.yahoo.co.jp/articles/f7d5367865fd7565ec878db8b0e9aab7f925ffa2)
 
-He says Moscow does not rule out
-他说莫斯科不排除
+**4. 岸田首相决定限制与俄罗斯央行的交易作为额外制裁**
 
-nationalizing the assets of companies registered in the United States European Un-ion
-将在美国、欧盟注册的公司的资产国有化
+[据NHK 2月28号报道，岸田首相于28日晚7点后与乌克兰总统泽伦斯基进行了俄罗斯军事入侵乌克兰后第一次电话交谈。会见结束后，岸田首相在首相官邸对记者说：”我向他转达了日本与乌克兰站在一起，我对俄罗斯侵略的受害者表示诚挚的慰问，并对乌克兰的主权和领土完整表示坚定支持。”日本已决定冻结俄罗斯作为外汇储备放在日本银行的日元。](https://www3.nhk.or.jp/news/html/20220228/k10013506111000.html)
 
-and what he calls other unfriendly jurisdictions
-以及他所谓的其他不友好的司法管辖区
+**5. 经济产业省敦促电力和天然气公司确保燃料，以应对乌克兰的局势**
 
-So what is happening with the the war here
-那么这里的战争发生了什么
+[据NEWS WEB 2月28号报道，随着美国、欧洲和日本加强对俄罗斯军事入侵乌克兰的经济制裁，有迹象表明，俄罗斯可能会削减能源供应作为反制措施。在此背景下，经济产业省（METI）与主要的电力和天然气公司一起，于28日举行了一次非正式联络会议，讨论未来的发展方向。在会议期间，经济产业省解释说，截至3月20日，日本各地有182万吨液化天然气（LNG）库存，这些天然气被用作火力发电的燃料，电力的稳定供应在两三个星期之内不会立即出现重大问题。](https://www3.nhk.or.jp/news/html/20220228/k10013506051000.html)
 
-the hot war, as you might say
-正如你所说，热战
+**6.对俄罗斯的经济制裁可能影响到与俄罗斯有贸易往来日本公司**
 
-could be followed by some sort of economic war as well
-之后也可能发生某种经济战争
+[据NEWS WEB 2月28号报道，一家位于东京千代田区的专业贸易公司，与大约20家俄罗斯公司进行交易。本月25日，当打算用美元支付它从一家俄罗斯公司购买的鱼饲料时，它用来结算的日本银行拒绝汇款。这是因为俄罗斯客户的账户在VTB银行，受到美国和其他国家的经济制裁。 28日，该公司在另一家目前不受制裁的俄罗斯金融机构完成了付款。日本银行表示随着各国收紧对俄罗斯的制裁，他们不知道今后能否顺利完成转账等业务。](https://www3.nhk.or.jp/news/html/20220228/k10013505881000.html?utm_int=news-business_contents_list-items_006)
 
-**原视频链接**[https://twitter.com/skynews/status/1497513596217135105?s=24](https://twitter.com/skynews/status/1497513596217135105?s=24)
+【日本银河系农场-阿尔法星球】
 
-Date:02/27/2022
-原视频标题: Russia has said it will respond to the seizure of Russian money by seizing the funds of foreigners in Russia
-俄罗斯已表示将通过扣押在俄罗斯的外国人的资金来应对扣押俄罗斯的资金
-原视频日期：2022/02/26
-原视频链接https://twitter.com/skynews/status/1497513596217135105?s=24
-任务编号：3872
-视频时间段 : 0:00-1:00
+作者 返朴归真
 
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+校对 Totoro
 
  
 
