@@ -2,33 +2,20 @@
 ---
 
 
-## 《锁链梦》这个歌一定会震动世界
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2090283/)
+## 加拿大宣布对俄罗斯关闭领空
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2090287/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大温哥华扬帆农场    平民正道
 
-2022-02-23直播摘录
+据加拿大[CTV新闻]2月27日报道，交通部长奥马尔当天宣布，加拿大即刻对所有俄罗斯航空运营商关闭该国领空。
 
-我们每个人都可以富有地活着，你可以找各种理由让自己懦弱下去，你让自己可以苟且偷生地活下去，但是我们知道的时候，当知道这个事情的时候不能再这样活着，这就是爆料革命的力量。
+报道称，在加拿大宣布关闭其领空之前，[俄罗斯国际航空公司]每天都有多架航班需要穿越加拿大领空飞往美国和世界其它地区。此前，德国、奥地利、意大利、捷克、波兰等欧洲国家已在俄军入侵乌克兰后，禁止所有俄罗斯航班飞越其领空。
 
-我们今天不作为，共产党的恶魔就会作为我们的亲人，作为我们的家人，就会让我们的家人变为”“锁链女”、“锁链男”。我们已经是……中国人已经是锁链上的中国，思想上已经都是”锁链上”的中共国。啊，我们要像“美帝国主义”一样，不是“这个世界不要我”，是“这个世界需要我”，我们一定要唱出来，（唱）“这个世界需要我”。这个正义的世界需要我。《锁链梦》这个歌一定会震动世界。兄弟姐妹们，天给了我们无穷无尽的力量，我不知道你们信不信，我真的很难相信我会唱出这样的歌出来，但我一下就唱出来了，而且越唱越好。你听到唐平的那个按在地上的想喊喊不出来的声音的时候，代表了所有的女性，你看每个歌词你会找到感觉的。我们现在把这个话题说完，我们说说Hcoin、Hpay。
+据悉，除关闭领空外，加拿大也已与盟国一起宣布了对俄罗斯实施的多项制裁措施，特别是针对总统普京和外交部长拉夫罗夫。并支持欧美将俄罗斯从全球SWIFT金融系统中剔除。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+* * *
 
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑： 平民正道    发布：平民正道
 
  
 

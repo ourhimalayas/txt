@@ -15,56 +15,56 @@
 
 ---
 
-### [3月1日勿忘香港（图片1-8）](/content/gnews/1/README.md)
+### [俄罗斯警告基辅居民逃离](/content/gnews/1/README.md)
+ ` Shuizhuyu`
+
+### [3月1日勿忘香港（图片1-8）](/content/gnews/2/README.md)
  ` 波士顿五月花农场`
 
-### [3/1/2022 文贵盖特：据说，普京大怒，打电话催习近平对台湾动手；面对俄乌战事，中共非但救援却疯狂控制舆论，我们救了多少大使馆人员？](/content/gnews/2/README.md)
+### [3/1/2022 文贵盖特：据说，普京大怒，打电话催习近平对台湾动手；面对俄乌战事，中共非但救援却疯狂控制舆论，我们救了多少大使馆人员？](/content/gnews/3/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共国对战乱中的同胞弃之不顾](/content/gnews/3/README.md)
+### [中共国对战乱中的同胞弃之不顾](/content/gnews/4/README.md)
  ` 扬帆枫叶快讯`
 
-### [共产党一贯的打法](/content/gnews/4/README.md)
+### [共产党一贯的打法](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [加拿大和欧洲国家对乌克兰难民提供人道援助](/content/gnews/5/README.md)
+### [加拿大和欧洲国家对乌克兰难民提供人道援助](/content/gnews/6/README.md)
  ` 扬帆枫叶快讯`
 
-### [乌克兰成为欧盟首次军事援助的国家](/content/gnews/6/README.md)
+### [乌克兰成为欧盟首次军事援助的国家](/content/gnews/7/README.md)
  ` 扬帆枫叶快讯`
 
-### [郭文贵先生揭露习近平面临的五个危机](/content/gnews/7/README.md)
+### [郭文贵先生揭露习近平面临的五个危机](/content/gnews/8/README.md)
  ` NFSC News`
 
-### [加拿大宣布对俄罗斯关闭领空](/content/gnews/8/README.md)
+### [加拿大宣布对俄罗斯关闭领空](/content/gnews/9/README.md)
  ` 扬帆枫叶快讯`
 
-### [《锁链梦》这个歌一定会震动世界](/content/gnews/9/README.md)
+### [《锁链梦》这个歌一定会震动世界](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [中国能呆70年执政，真是我们中国人的不幸](/content/gnews/10/README.md)
+### [中国能呆70年执政，真是我们中国人的不幸](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [加拿大萨省宣布结束所有防疫措施](/content/gnews/11/README.md)
+### [加拿大萨省宣布结束所有防疫措施](/content/gnews/12/README.md)
  ` 扬帆枫叶快讯`
 
-### [莫德纳承认病毒来源于实验室泄漏](/content/gnews/12/README.md)
+### [莫德纳承认病毒来源于实验室泄漏](/content/gnews/13/README.md)
  ` 扬帆枫叶快讯`
 
-### [中国人的冷漠，自私，懦弱](/content/gnews/13/README.md)
+### [中国人的冷漠，自私，懦弱](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [4.人类历史上首次使用AI与心理学多角度协同作战](/content/gnews/14/README.md)
+### [4.人类历史上首次使用AI与心理学多角度协同作战](/content/gnews/15/README.md)
  ` NFSC News`
 
-### [美国的选择决定人类的命运](/content/gnews/15/README.md)
+### [美国的选择决定人类的命运](/content/gnews/16/README.md)
  ` NFSC News`
 
-### [中共对台湾的侵略将引发浩劫](/content/gnews/16/README.md)
+### [中共对台湾的侵略将引发浩劫](/content/gnews/17/README.md)
  ` NFSC News`
-
-### [中共作为强迫劳动重灾区贼喊捉贼甩锅美国](/content/gnews/17/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [文贵先生盖特精要- 2022/03/01](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

@@ -2,16 +2,20 @@
 ---
 
 
-## 中共对台湾的侵略将引发浩劫
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2090072/)
+## 美国的选择决定人类的命运
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2090074/)
 
-作者：澳大利亚雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00.jpg)
-爆料革命一路走来，郭文贵先生的情报一次又一次地得到验证。俄罗斯在西线制造乌克兰危机，是配合中共在东线对台湾的动手。又是郭先生早早把习近平和普京二人合演的这台大戏，提前剧透了内幕，把这场危机的实质提前报告给了世人。 现在郭先生再一次发出警报，中共侵台战争随时爆发。中共对台湾的大冒险不仅会给台湾人民带来深重的灾难，也同样会让中共自身走向房倒屋塌、自取灭亡的可悲下场。
+作者：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在2月27日的大直播中，郭文贵先生表示，美国在台海战争问题上的选择，将决定人类的命运。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-2.jpg)
+郭先生说，美国和日本比中共更希望台海战争的发生。美国为了出师有名，意欲让全世界看到中共公然侵略台湾，造成油价和芯片价格上涨，供应链断裂，并让韩国、印度和东南亚等国感受到中共的致命威胁，此时美国会组织包括澳大利亚在内的盟军部队来灭共。但是，这种战争的结果会很残酷，因为只要有美国参与灭共，中共就一定会联合朝鲜和伊朗，并极有可能会使用核武器。
 
-参考链接：[中共对台湾的侵略将引发浩劫](https://gtv.org/video/id=621b7633019ef64da651ee6c%EF%BC%88)
+郭先生认为，如果美国按部就班的先从联合国得到“战争执照”授权，然后再开始灭共，说明美国希望发生世界大战而重整秩序；如果美国在中共侵略台湾刚开始时，就选择出手灭共，则说明美国希望维持原有的国际秩序。选择后者，美国就需要大胆对中共提前动手；选择前者，人类将要付出巨大代价，不仅会造成大量人员伤亡，而且由于中共使用核武器，会导致很多无人区的出现。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+参考链接：[美国的选择决定人类的命运](https://www.gettr.com/post/pxc1jt8397)
+
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
 总编：DM
 编辑：DM
