@@ -2,26 +2,25 @@
 ---
 
 
-## 加拿大萨省宣布结束所有防疫措施
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2088345/)
+## 乌克兰驻联合国大使骂普京若想死只需像当年希特勒那样
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2088551/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-5.png)
+（图片源自本文链接）
 
-采编：文莱       编译撰稿：硫酸羟氯喹64
+3月1日消息：乌克兰驻联合国大使谢尔盖-基斯利察在2月28日的联合国大会特别紧急会议上强烈批评俄罗斯总统弗拉基米尔-普京，把他比作”1945年5月在柏林的一个地堡里自杀的人”希特勒。
 
+乌克兰驻联合国大使基斯利察先生说，这场战争不是爆发的，而是由现在坐在地堡里的人选择的。我们所有人都知道1945年5月坐在柏林的一个地堡里那个人的结局是什么。寻求扩大其地缘政治影响力的军事化大国正在发动大规模的军事进攻，在入侵较小的邻国。当俄罗斯军队从他们自己的国家、白俄罗斯和乌克兰的被占领土顿巴斯和克里米亚越过乌克兰边境时，破坏性的炮弹被投向乌克兰各地的平民头上。它看起来不是很像那个时候吗？是的，确实如此。 这不是与第二次世界大战的开始非常相似吗？
 
-![Saqib Shahab, chief medical health officer, speaks at a COVID-19 news update at the legislative building in Regina on Wednesday March 18, 2020.](https://smartcdn.gprod.postmedia.digital/torontosun/wp-content/uploads/2022/02/CP21105235-scaled-e1646064225721.jpg?quality=90&amp;strip=all&amp;w=288&amp;h=216)图片来源：https://torontosun.com/
-据【多伦多太阳报】2月28日报道，萨省政府当天取消了在室内公共场所强制配戴口罩，以及要求病毒感染者自我隔离五天的规定。
+普京先生已将核威慑力量置于高度警戒状态。真是疯了！如果你想自杀，你不需要使用核武器，你只需要像1945年5月那个人在柏林的地堡里做的那样。
 
-报道称，在2月14日终止了疫苗护照的使用后，萨省目前不仅已成为加拿大第一个取消所有疫情限制的省份，而且正在过渡到将“新冠病毒”视为一种常见呼吸道疾病的阶段。
+信息来源：[「自殺したいなら地下壕で」　ウクライナ国連大使、プーチン氏をヒトラーにたとえる（ロイター） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/57e047108bfad3f316ad780731c4eaa1113672d6)
 
-对此，萨省卫生部门表示，尽管一半以上的成年居民都接种了疫苗加强剂，但当局仍计划通过疫苗接种和抗病毒药物来控制疫情，而非依赖破坏心理健康和经济的强制公共卫生措施。
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
 
-校对编辑：硫酸羟氯喹6
-
-发稿：青青
-
-原文链接： https://torontosun.com/news/national/saskatchewan-ends-all-covid-19-health-measures
 
  
 

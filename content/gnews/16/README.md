@@ -2,30 +2,23 @@
 ---
 
 
-## 车臣将军遭乌克兰军队击杀
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2088273/)
+## 阿提哈德航空公司2021年度亏损达 4.78 亿美元
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2088502/)
 
-撰稿：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1.png)
-台媒2月27日报道，在车臣领导人卡迪罗夫宣布出兵1万人，帮助俄罗斯侵略乌克兰的第二天，就遭受重大损失，其二号人物图沙耶夫将军遭到乌军击杀。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-1-2.png)图片来自：https://news.ltn.com.tw/
-据悉，在车臣宣布参战后，派出卡迪罗夫亲卫队第141机动团，攻打距离基辅7公里的霍斯托梅，企图夺取机场。其指挥官为卡迪罗夫得力助手、外号“战争之王”的将军图沙耶夫，不料在派兵的第二日，图沙耶夫就被乌克兰精锐部队阿尔法小组击毙。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/03/302.jpg)图片来自网络
+阿布扎比的阿提哈德航空公司周二宣布，2021 年亏损高达 4.78 亿美元，这一数字突显了全球航空公司面临的持续挑战。
 
-《基辅独立报》记者波诺马连科推文表示，图沙耶夫已经在霍斯托梅阵亡，目前阿尔法小组正在机场与车臣军队作战。
+阿提哈德航空公司表示：它在 2021 年载客 350 万人次，在阿联酋冬季旅游旺季的下半年，载客量翻了一番。尽管如此，其整体客运收入与前一年相比下降了 14%。
 
-链接： [https://news.ltn.com.tw/news/world/breakingnews/3842684](https://news.ltn.com.tw/news/world/breakingnews/3842684)
+尽管存在财务困境，但阿提哈德航空仍然是阿拉伯联合酋长国和中东顶级航空公司的两家主要航空公司之一。相较于该公司在 2020 年亏损的 17 亿美元，4.78亿这一数字或表示公司在核心运营的亏损方面已有显著减少。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-5.jpg)
+阿提哈德航空与迪拜的老牌航空公司阿联酋航空相媲美，尽管后者拥有更大的机队和广泛的网络。阿联酋航空从距离阿布扎比首都仅 115 公里（70 英里）的迪拜国际机场起飞。两家航空公司在长途航空公司市场上展开竞争，利用其国家的位置作为重要的东西方中转点，从而获得优势。
 
-校正/发稿：浪迹天涯
+新闻参考链接：[AP News](https://apnews.com/article/coronavirus-pandemic-business-health-travel-airlines-de425c1f6e8065476b86c95db71f5568)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1.png)
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

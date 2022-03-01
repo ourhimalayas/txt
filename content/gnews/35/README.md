@@ -2,15 +2,24 @@
 ---
 
 
-## 美国总统拜登特使团16：13抵达台湾
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2086719/)
+## 纽约或将纽约或将停止疫苗强制接种政策疫苗强制接种政策
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2088023/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Michael-Glenn-Mullen.jpg)
-美国总统拜登指派前参谋首长联席会议主席穆伦率团访问台湾。访问团搭乘湾流5型行政专机自安克拉治往返，于3月1日下午4时13分左右抵达松山机场，外交部长吴钊燮前往接机，并和穆伦等人击肘致意。访团将在台停留约30小时，3月2日晚间10时离台，期间计划拜会蔡英文总统、国防部长邱国正等。此访团成员均具国安或军事背景，在俄罗斯侵略乌克兰之际访台，表达美国对台湾的支持。
+加拿大温哥华杨帆农场 枫叶快讯
 
-[拜登特使团16：13抵台外交部长接机 明拜会总统、苏揆和国防部长](https://news.ltn.com.tw/news/politics/breakingnews/3844406)
+采编撰稿：   Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-35.png)图片来源：www.nbcnewyork.com
+据美国《NBC》2月27日报道，纽约市长亚当斯当天宣布，不久将取消配戴口罩和疫苗护照等现行防疫措施。
 
-审核:Athena雅典娜 发布:Amitofu
+报道称，尽管目前进出纽约市大多数公共场所都必须出示疫苗护照，但从3月7日开始，学校将不再要求其学生和工作人员在室内配戴口罩。
+
+对此，纽约市政府表示，如果疫情稳定，也将逐步取消疫苗护照政策。但具体执行时间未定。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源：[https://www.nbcnewyork.com/news/coronavirus/once-the-epicenter-new-york-city-plans-to-drop-vaccine-mandate-and-masks-in-schools/3574239/](https://www.nbcnewyork.com/news/coronavirus/once-the-epicenter-new-york-city-plans-to-drop-vaccine-mandate-and-masks-in-schools/3574239/)
 
  
 

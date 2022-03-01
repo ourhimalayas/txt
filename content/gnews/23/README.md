@@ -2,24 +2,37 @@
 ---
 
 
-## 莫德纳承认病毒来源于实验室泄漏
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2088155/)
+## 有声|普京企图利用核讹诈对抗美欧经济制裁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2088363/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2月27日，外媒报道，普京已下令俄罗斯核威慑力量进入高度戒备状态。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-10.jpeg)
+据报道，普京在与高级官员举行的会议上说，北约主要大国发表了 “侵略性声明”，同时西方国家联合对俄罗斯实施了严厉的金融制裁。普京已命令俄罗斯国防部长和军方总参谋长，将核威慑力量置于 “特别战斗值班制度”中。普京以此暗示，会以核威胁来应对西方国家的制裁。
 
-采编: UCool(优酷)     编译撰稿：苦尽甜来 (文來）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-38.png)图片来源：https://www.infowars.com/
-据美国媒体【信息战】2月27日报道，面对福克斯节目主持人玛丽亚提问：为何疫苗生产商[莫德纳]在疫情爆发的三年前就获得了“新冠病毒”中的部分DNA基因序列时，[莫德纳]首席执行官班塞尔无言以对。
+郭文贵先生在27日大直播中特别强调，俄罗斯完全低估了乌克兰的实力，用最传统的战争方式进攻乌克兰，企图用最短的时间占领基辅，却遭到乌克兰人的顽强抵抗，使俄军损失惨重，也令世界跌破眼镜。俄方接下来会不惜一切代价，甚至可能动用核武器。如果不能停战，乌克兰的局势将会非常惨烈。
 
-报道指出，班塞尔为了掩盖真相，不得不间接承认该病毒是武汉实验室人工制造并可能被意外泄漏。据著名医学刊物【病毒学前沿】最近发表的一项研究报告显示，在“新冠病毒”基因中包含的遗传密码与[莫德纳]在2016年所获得专利的基因序列部分相同。
 
-该研究还强调，[莫德纳]的该专利基因序列在天然冠状病毒中的发生概率几乎是零，这意味着该基因序列不可能通过自然突变出现在“新冠病毒”中。
 
-校对编辑：硫酸羟氯喹64
+文字版原文：[普京企图利用核讹诈对抗美欧经济制裁](https://gnews.org/zh-hans/2082305/)
 
-发稿：青青
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-新闻来源：[https://www.nbcnewyork.com/news/coronavirus/once-the-epicenter-new-york-city-plans-to-drop-vaccine-mandate-and-masks-in-schools/3574239/](https://www.nbcnewyork.com/news/coronavirus/once-the-epicenter-new-york-city-plans-to-drop-vaccine-mandate-and-masks-in-schools/3574239/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

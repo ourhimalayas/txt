@@ -2,33 +2,28 @@
 ---
 
 
-## 澳大利亚总理被检测出CCP病毒阳性
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2088390/)
+## 福克斯塔克尔：特鲁多宣布加拿大为独裁国家
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2088615/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/03/301.jpg)图片来自网络
-据澳大利亚第九新闻、悉尼晨报以及澳大利亚广播公司的最新消息，澳大利亚总理莫里森在CCP病毒检测中被发现结果呈阳性。
+##### 素材：麦克阿Sir
+翻译：Sophie
+校对：Lish
+字幕：小强
+编辑：幕紗公子
 
-莫里森总理表示，过去几天的时间他一直出现类似于流感的症状，但先前每天的检测结果都呈阴性。他在 Facebook 上透露，经过一段时间的发烧之后，他于今天接受了 CCP病毒的PCR 测试，结果呈阳性。
+当前，加拿大总理特鲁多对和平抗议的民众施加极端的政策这一举动引人关注。福克斯主持人卡尔森在节目中对其大加抨击。称特鲁多使加拿大成为了类似于斯大林主义独裁式的国家。塔克尔指出，目前的抗议活动不是紧急情况，而特鲁多却视之为恐怖活动。因此，《紧急情况法》不合时宜的援引，进一步的剥夺了加拿大人民追求自由的权力。一卡车司机表示，“为什么要由这1-200人决定3000万人的生活。”人民有投票的权力。
 
-莫里森总理在当地时间3月1日晚间发布推文称：“今晚我的 COVID-19 检测呈阳性。我出现了类似流感的症状，将在下周康复……从周日开始，我每天都进行自我测试，包括今天早上，此前所有测试都返回阴性结果。”
+视频链接：[Tucker- Trudeau has declared Canada a dictatorship](https://video.foxnews.com/v/6297540053001#sp=show-clips)
 
-总理同时表示将继续遵守健康指南，并在悉尼的家中隔离。他的家人与孩子目前的检测结果仍为阴性，但同样也将作为密切接触者在家中隔离七天的时间。
+*发布：Mttfly*
 
-目前莫里森总理的病情似乎尚未影响到他的正常工作，他表示会在接下来几天通过远程办公的方式处理政务，包括新南威尔士州和昆士兰州的洪水问题、针对俄乌冲突的反应以及预算计划。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-至于本周总理的行动轨迹，他于周一出现在布里斯班，与该市市长就洪水问题进行了“广泛讨论”。周二，总理还在堪培拉参加了内阁国家安全委员会议并与曾感染过CCP病毒的国防部长彼得·达顿（Peter Dutton）一起举行了联合新闻发布会。目前尚不清楚是否有其他部长在CCP病毒检测中呈现阳性。
-
-新闻参考链接：
-
-[9 News](https://www.9news.com.au/national/covid19-scott-morrison-prime-minister-tests-positive/321d78b1-ebab-4624-b107-24214688e805)
-
-[SMH News](https://www.smh.com.au/politics/federal/prime-minister-scott-morrison-tests-positive-for-covid-19-20220301-p5a0tx.html)
-
-[Twitter](https://twitter.com/ScottMorrisonMP/status/1498637154012246020?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1498637154012246020%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.9news.com.au%2Fnational%2Fcovid19-scott-morrison-prime-minister-tests-positive%2F321d78b1-ebab-4624-b107-24214688e805)
-
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

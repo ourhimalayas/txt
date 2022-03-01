@@ -2,46 +2,29 @@
 ---
 
 
-## H币打破共产党的围堵让老百姓可以有第二个渠道化钱
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2088430/)
+## 国际影视、体育界加入制裁俄罗斯行列
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2088666/)
 
-G-TV视频链接：https://gtv.org/video/id=62164c671408ee3a03a3c8ec
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-4.jpg)
+[图片来源](https://www.google.com.hk/search?q=Disney+Sanctions+Russia&amp;newwindow=1&amp;sxsrf=APq-WBuFRtTta3XdCL-7nItekZkbHc65pQ:1646145755876&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwiR6pvokqX2AhVsHKYKHRJ0ADkQ_AUoAnoECAEQBA&amp;biw=1707&amp;bih=770&amp;dpr=1.13#imgrc=sUSfUlalok3b_M)
 
-**郭文贵先生：**那么今天H币最可怕在哪里？打破了他一个，糊着很久的一个，老百姓可以有第二个渠道让自己可以花钱，可以买尿不湿，也可以去到夜总会，听听我们的裕达的妈咪给你讲一讲“爱情是可以相信的，要找到伙伴的”，给你讲一讲。也可以买到很好吃的地瓜土豆，也可以买猪头肉。就这个币管用，除了人民币还有其他币。
+中华网报3月1道，据美国消费者新闻与商业频道（CNBC）报道，在俄罗斯对乌克兰采取特别军事行动后，美国华特迪士尼公司（简称迪士尼公司）宣布，将停止在俄罗斯的所有影院上映迪士尼电影。
 
-那么这个时候，更夸张的事情，原来中国人以为这个币只能在自己国家花，你从来没相信过，也没有幻想过，你的人民币到国外花去。到国外花人民币是共产党人家的专利，哪是你们奴才的专利。中国人已经习惯了，如果中国人拿着人民币到国外花，感觉自己不可思议：“本来我的钱就不应该在国外花”。就是中国人，被人家说成“你是猪，你是猪，你是猪”，我就是猪了。当发现自己不用像猪一样的吃猪食的时候，不习惯
+迪士尼公司在2月28日发布的一份声明表示，由于俄罗斯“无端‘入侵’乌克兰和（造成的）悲惨的人道主义危机”，迪士尼将暂停在俄罗斯上映电影。
 
-—— “我是猪啊，我怎么能不和猪一样吃猪食呢？”
+就在迪士尼决定暂停俄罗斯上映电影之际，美国娱乐公司在参与抵制行动。流媒体巨头美国奈飞公司（netflix）表示，在俄乌局势不断升级的情况下，其平台将下架俄罗斯新闻频道。奈飞公司发言人2月28日告诉CNBC：“鉴于目前的情况，我们没有计划将这些频道添加到我们的服务中。”
 
-那么这个喜币告诉你，不，你不是猪，你可以到全世界上，你是人，你和人家一样。你可以拥有自己的财富，自己的人格，自己的独立的财富。
+此外，国际体育组织也出现了抵制俄罗斯的行动。国际足球联合会（FIFA）与欧洲足球联合会联盟一起，宣布将禁止俄罗斯球队参加包括2022年卡塔尔世界杯在内的国际赛事。
 
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
+俄罗斯入侵乌克兰离心离德，导致亲俄的原苏联波罗的海三国，和世界无争的中立国瑞士瑞典也加入了制裁俄罗斯的行列。
 
-编辑整理：Jacques；
+信息来源：[迪士尼等多家公司暂停新片在俄上映 新片已被叫停\_中华网](https://3g.china.com/act/ent/11015422/20220301/41499474.html)
 
-字幕档制作：兵嫂；
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
 
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
 
  
 

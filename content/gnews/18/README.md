@@ -2,29 +2,46 @@
 ---
 
 
-## 秘翻在线：卫星影像曝俄军车绵延64公里袭基輔 乌东亲俄叛军领袖：今日包围马里乌波尔
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2088248/)
+## H币打破共产党的围堵让老百姓可以有第二个渠道化钱
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2088430/)
 
-**翻译：明澈**
+G-TV视频链接：https://gtv.org/video/id=62164c671408ee3a03a3c8ec
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-01-222707.jpg)
-综合外媒3月1日消息，美国民间企业马萨尔科技（Maxar Technologies）表示，今天的卫星影像显示，俄罗斯军车队伍出现在乌克兰首都基辅北方绵延长达约64公里。白俄罗斯南部也可看到，在位于乌克兰边境北方不到32公里处，已经部署了更多地面部队和地面攻击直升机队。美方预估俄军将在近日包围基辅。有报道指出，此前因为进度缓慢而感到挫败的俄军可能会更有侵略性。
+**郭文贵先生：**那么今天H币最可怕在哪里？打破了他一个，糊着很久的一个，老百姓可以有第二个渠道让自己可以花钱，可以买尿不湿，也可以去到夜总会，听听我们的裕达的妈咪给你讲一讲“爱情是可以相信的，要找到伙伴的”，给你讲一讲。也可以买到很好吃的地瓜土豆，也可以买猪头肉。就这个币管用，除了人民币还有其他币。
 
-俄罗斯入侵乌克兰已进入第6天，乌克兰哈尔科夫州（Kharkiv）州长西涅古波夫（Oleg Synegubov）表示，俄军飞弹击中乌克兰第二大城市哈尔科夫市中心，俄罗斯炮击造成数十名包含儿童在内的平民死亡。俄军对哈尔科夫市发射格勒式火箭（GRAD）和巡弋飞弹，击中住宅区和州政府大楼，但乌方坚持守住这座城市。这类攻击是对乌克兰人民的大屠杀，对平民百姓犯下战争罪！此外，他还分享了一段哈尔科夫州政府大楼遭飞弹击中爆炸的影片。
+那么这个时候，更夸张的事情，原来中国人以为这个币只能在自己国家花，你从来没相信过，也没有幻想过，你的人民币到国外花去。到国外花人民币是共产党人家的专利，哪是你们奴才的专利。中国人已经习惯了，如果中国人拿着人民币到国外花，感觉自己不可思议：“本来我的钱就不应该在国外花”。就是中国人，被人家说成“你是猪，你是猪，你是猪”，我就是猪了。当发现自己不用像猪一样的吃猪食的时候，不习惯
 
-乌克兰马里乌波尔市市长周二上午表示，随着俄罗斯的入侵，这座南部港口城市不断遭到炮击，导致平民死亡，基础设施受损，就连民宅区也难逃战火摧残，被炮击五天。俄罗斯出动炮兵、导弹和空军部队持续向平民发动攻击。平民建筑设施，如学校和房屋等被毁坏。很多人受伤，还有妇女和孩子被杀害。
+—— “我是猪啊，我怎么能不和猪一样吃猪食呢？”
 
-据最新消息显示，由于面临俄罗斯军队的进攻，马里乌波尔市已经遭断电。乌国东部亲俄叛军领袖更直言，今日任务为直接包围这座城市。
+那么这个喜币告诉你，不，你不是猪，你可以到全世界上，你是人，你和人家一样。你可以拥有自己的财富，自己的人格，自己的独立的财富。
 
-随着战争的推进俄罗斯受到各种制裁，包括冻结俄罗斯高官财产、将卢布踢出SWIFT国际支付系统、欧洲能源业巨擘壳牌和英国石油将退出俄罗斯等。这一系列制裁引发全球期货股市波动，法国天然气苏伊士集团（Engie）股价今天在巴黎股市早盘应声重挫5%。
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-此外，欧洲足球管理机构欧足联取消了俄罗斯国家天然气巨头Gazprom的赞助，据称该公司每个赛季的赞助费为4000万欧元，欧足联和国际足联FIFA暂停了所有俄罗斯球队的比赛，直至进一步通知。
+编辑整理：Jacques；
 
-相反，乌克兰得到了意料之外的支持，除了各国提供资金、武器、加密货币、国际知名骇客组织匿名者更对俄罗斯公开宣战，瘫痪俄国多个官方网站、公布其国防资料等。美国高科技公司微软表示，它已经向乌克兰官员提供了有关一系列相关情报及防御的建议，并向乌克兰政府提供了有关网络数据盗窃企图的建议。
-**
-新闻来源：**[https://www.straitstimes.com/world/russia-pounds-ukraines-second-biggest-city-as-fighting-rages-on](https://www.straitstimes.com/world/russia-pounds-ukraines-second-biggest-city-as-fighting-rages-on)
-[https://www.dailyfreeman.com/2022/02/28/live-updates-satellite-photos-show-much-longer-convoy/](https://www.dailyfreeman.com/2022/02/28/live-updates-satellite-photos-show-much-longer-convoy/)
+字幕档制作：兵嫂；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

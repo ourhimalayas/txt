@@ -2,36 +2,43 @@
 ---
 
 
-## 俄乌战争的两个结局和俄罗斯的未来
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2088395/)
+## UBS需要解释为啥二十秒把七哥和家族股票卖给两个基金
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2088631/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月27日的大直播中，郭文贵先生分析了俄乌战争的两个结局，以及俄罗斯的未来。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-6.jpg)
-郭先生认为，现在美国还没有实际参与俄乌战争，是在等待重要机会，只要中共侵略台湾，美国就会出手灭共。普京发动侵略战争，已使俄罗斯断送了未来。有两件事已经不可逆转：
+G-TV视频链接：https://gtv.org/video/id=62164c7b1408ee3a03a3c8ef
 
-一，全世界已普遍认为俄罗斯是和平的破坏者。在普京时代，国际社会已无法重新接纳俄罗斯为正常的主权国家；
+**郭文贵先生：**这个官司你知道UBS会让共产党怎么解释吗？只要咱开始上庭询问，它就必须解释你为啥把郭文贵的股票和他家族股票卖给了这两个基金？二十秒你就找到买家了，几亿美元，你咋认识他的？你咋通的电话呀？是吧？二十秒，你想想，就是咱们大家都坚持的二十秒，二十秒内找到了几亿几十亿的买家，你跟他咋联络方式啊？你们怎么谈的价格啊？是吧？
 
-二，俄罗斯人民在世界范围内的各类正常经济活动，将会受到空前的制裁。
+不但如此，最重要的事情，你买完的股票去哪儿了？然后这些股东是谁呀？——共产党!  那你怎么跟共产党联系的？最后这些人得出庭。这些人出庭以后，他必须解释，你的股票现在去哪了？你跟共产党这些机关怎么联系的？叫Downstate（注：同音字），Downstate 是福建政府的公司，贾庆林是中共中央委员，李伯潭是(其)女婿是茅台酒厂，所有的是叫福建省国资委。你们啥关系啊？Astick（注：同音字）Downstate、Astick ，Astick是怎么签的合同啊？为什么在深圳签合同？
 
-俄乌战争也将面临两个结局，一是双方和解。二是乌克兰在美国的帮助下重击俄罗斯，迫使普京动用核武器；或者普京被内部反对势力消灭。俄乌之战一定会突然出现上述两种滑稽的结局之一，但是俄罗斯未来的命运却已经注定，不可逆转。
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-参考链接：[2/27/2022文贵直播: 俄乌之战的结果可能会是两国达成和解，但若俄罗斯真的放了核武器，战争会出现滑稽的结果！无论最终是哪种结果，俄罗斯至少短时间内都已没有未来可言！](https://www.gettr.com/post/pxbwm28170)
+编辑整理：Jacques；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+字幕档制作：兵嫂；
 
-总编: Zion文恩
-编辑: 静言 
-校正/发稿：Fei797
+视频制作及上传：Cindy；
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
