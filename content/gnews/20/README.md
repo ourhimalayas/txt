@@ -2,34 +2,46 @@
 ---
 
 
-## 喜支付三大核心功能及喜支付和喜交所的定位
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2088611/)
+## UBS需要提供王贯中与郭文贵先生的英文通话记录
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2088714/)
 
-#### **加拿大温哥华扬帆农场蓝枫法律**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-01-at-22.56.11.png)
-第一：Scan功能，它类似于微信上的扫码，是配合商户专用的喜交所POS机来做的，这个POS机应该跟平时的那种POS机不一样，不需要刷卡，就是一个扫码的机器，完成与喜交所绑定的商户的交易；
+G-TV视频链接：https://gtv.org/video/id=62164c901408ee3a03a3c8f3
 
-第二：电话号码和Email转帐功能，使用时输入相关信息就可以了，它的名字叫Send，就是对外转账；
+**郭文贵先生：**为什么原来UBS的王贯中是中国唯一一个私人银行UBS私人银行的所有的经理？私人银行只给什么？就中南坑嘛，就是Tex你有权利加入私人银行吗？文艺你有吗？是不是？你跟人家双修一万次都不让你加入私人银行，是不是？只能在床上待着，你不能下，不能去，私人银行是有权力有钱的。
 
-第三：内部转账Transfer功能，它是实现从喜支付与喜交所转账间的功能，支持HDO和HCN；
+王贯中一个人就玩了几千亿上万亿，而这个人从来不让我们跟UBS任何人接触，只让我给他们UBS大佬打电话。我这英文郭式英文你知道，人家说：“Miles ,how are you?”然后我给人家回复：“你吃了吗？”人家说：“Miles,I love you.”“你这个得多少钱啊？” 就我那英文能沟通吗？然后人家告诉我这是伦敦大佬。伦敦大佬，就是我们伦敦的叫Brunch（注：同音字）是吧？我说：“你是伦敦的，是村长是吗？”人家说：“我是伦敦啊……”讲半天，咱就是瞎胡抡在那，是吧？
 
-比较有意思是喜支付App的用户界面有两种设计，有很多统一的VI设计和管理，可以根据客户喜好自己选择。
+我说：“欢迎你到北京啊，One world同一个世界，同一个梦想，同一个梦同一个世界。”人家说：“好好好，我去，我去。” 钱拿走了，就这。
 
-那么对比一下喜支付和喜交所的定位。
+就是这哥们儿要上法庭，这哥们儿要上法庭，是吧？你说我们俩这英文当年咋对话的？人家法官肯定问：“你拿人家几十亿美元，你就没见过这个人，然后你俩咋通话的？郭文贵当时英文说的啥呀？他说‘同一个梦想’中文的时候你懂吗？他说‘喝了吗？吃了吗’你听得懂吗？”“听不懂。”“那你怎么就拿他钱了呢？”是吧？这是最简单的道理。
 
-喜支付更像是一个钱包，首次登陆的时候需要两方验证，跟登陆喜交所一样，它的界面是弹到一个网页上去，然后要输入对应的喜交所密码，再就是手机验证短信或者邮箱的验证码，但经过首次登录之后再次登陆使用这个App时，每次只需要输入一个6位的PIN码就可以了。可见这里简化了使用的安全性，安全性和便捷性是一个高另一个就低，也就是说便捷性高，安全性就会低，就跟支付宝和微信一样，或平时在加拿大用的信用卡，账户的余额或者透支的额度不是很高，且喜支付的核心有一个点对点的付款和收款属性，类似这种平时要用的零花钱就适合放到喜支付里。
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-对于喜交所，它就像是一个保险柜，因为每次登陆喜交所都需要两方的验证，未来还要加上人脸识别，七哥也说到跟生物技术相关，比如DNA，所以大额的钱适合放在喜交所，小钱放在喜支付。
+编辑整理：Jacques；
 
-喜支付核心是有以下七个支付的维度：付款人、收款人、币种、金额、时间、附言/摘要和支付渠道（现在支付渠道是通过个人、公司、组织这几个渠道）。
+字幕档制作：兵嫂；
 
-目前全球的支付体系是一个非常复杂低效的网络，严重依赖SWIFT，包括ACH、银联、VISA、Mastercard，而且这里面是有中间节点的，完全是中心化的，比如说像什么HSBC汇丰或者JP摩根或者花旗银行，比如从巴西汇款到中国或美国，中间会有很多的中间行来收取手续费，并而国际汇款通常耗时几天或是很长。但是我们的喜交所和喜支付贴现的费率是零，同时喜支付转账付款是实时到账，并且没有手续费，这将颠覆整个全球金融支付体系。
+视频制作及上传：Cindy；
 
-直播视频：
+G-News发布：海贼王M.D.LUFFY；
 
-[第四十二期 金融税务专题及喜支付(H Pay)功能介绍](https://gtv.org/video/id=61ff154d96ba5d73e0c39083)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-编辑/发文：蓝枫法律栏目
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

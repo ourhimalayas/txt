@@ -2,39 +2,63 @@
 ---
 
 
-## 有声|美欧同意将部分俄罗斯银行从SWIFT系统中剔除
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2088713/)
+## 辉瑞科学家承认，天然抗体“可能比疫苗接种更好
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2088776/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月26日，在乌克兰及国际多种力量的努力争取之后，美国联合加拿大、欧盟和英国等达成协意，对俄罗斯金融部门实施严厉的制裁，包括阻止其进入全球SWIFT金融体系，并首次对俄罗斯中央银行进行限制，以惩罚其对乌克兰的入侵。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture00-2.jpg)
-2 月 26 日，欧洲已开始为俄罗斯与 SWIFT 支付系统断开连接进行技术准备。SWIFT 的中断被称为“经济的核武器”。
+撰稿：东京樱花团/Calvin
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-2.png)
+[图片来源](https://dreddymd.com/2021/10/08/pfizer-scientist-admits-that-natural-antibodies-are-probably-better-than-vaccination/)
 
-这些制裁将使俄罗斯的银行不再能为贸易和金融活动进行支付，有效地阻止该国出口石油、煤炭和天然气等商品。也将使俄罗斯无法进口关键技术，如半导体和本国工业的机械。
+Veritas项目是其“新冠病毒疫苗暴露”系列的最新一期，发布了一个新的10分钟视频，描绘了辉瑞科学家讲述其公司武汉冠状病毒（Covid-19）“疫苗”令人不安的真相。
 
-在这些措施中，对俄罗斯央行的限制针对的是克里姆林宫掌握的6000多亿美元的储备，以有效限制俄罗斯在西方制裁收紧的情况下支持卢布的能力。
+Nick Karl向采访者解释说，在预防中共病毒感染方面，人们的天然抗体“可能比辉瑞的mRNA注射更好”
 
+Karl承认：“当某人天生免疫时——比如他们感染了新冠病毒——他们可能有更多的病毒抗体。”
 
+“当你真正感染病毒时，你将开始产生针对多种病毒的抗体……因此，你的抗体在那时可能比[新冠病毒]疫苗接种更好。”
 
-文字版原文：[美欧同意将部分俄罗斯银行从SWIFT系统中剔除](https://gnews.org/zh-hans/2079146/)
+Karl接着解释说，“疫苗护照”的全部意义不是保护人们的安全，而是让它“对未接种疫苗的人如此不方便”，以至于他们只是服从。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+事实证明，合规性是中共病毒疫苗注射计划的全部意义。没有证据表明这些疫苗有助于对任何疾病产生持久的免疫力。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+辉瑞高级副科学家告诉Veritas记者不要接种疫苗
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+另一位名叫Chris Croce的辉瑞高级助理科学家附和了Karl的观点，他解释说，与疫苗相比，自然获得对流通的免疫力的人受到“可能更多”的保护。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+“所以，我（有抗体）受到很好的保护？”Veritas记者问Croce。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+“是的”，Croce回答。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+“就像疫苗一样吗？”Veritas记者回应道。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+“可能更多”，Croce回答说，当被问及“由于有自然反应，你最有可能受到更长时间的保护。”
+
+几乎令人难以置信的是，Croce继续告诉Veritas记者“等待”接种疫苗，直到自然免疫力下降——即使如此的话。一个人在康复后可能会永久免疫，不需要任何进一步的干预。
+
+另一位辉瑞科学家Rahul Khandke向Veritas记者进一步透露，公司高管向低级别员工施压，要求他们向公众隐瞒定罪数据和其他“负面信息”。
+
+“我们被培养并被教导说，‘疫苗比实际感染新冠病毒更安全’。”老实说，我们不得不就此举办这么多研讨会。你不知道。Khandke说，我们必须在那里坐几个小时，听——就像“你不能在公共场合谈论这件事”，他同意天然抗体比疫苗接种更可取的观点。
+
+他补充说：“如果你积累了[新冠病毒]抗体，你应该能够证明你积累了这些抗体。”
+
+据Croce称，目前辉瑞正在进行测试，看看其mRNA中共病毒疫苗是否导致年轻人患心肌炎。
+
+Croce进一步说：“所以，是的，我们正在做，我们刚刚发送了大约3000名患者的样本，以测试肌钙蛋白水平升高（检测心脏病发作），看看它是否基于疫苗。”
+
+由于这三个人的身份现在都公开了，他们坦率地录取会发生什么还有待观察。我们的猜测是，辉瑞的高层对这些公开披露不满意。
+
+Zero Hedge的一位评论员写道：“整个骗局都被揭露了。”“这些罪犯，包括福奇，需要被勒死。”
+
+另一个回答说，每个人都应该祈祷Veritas项目的James O’Keefe因勇敢地揭露这一切而受到保护。
+
+信息来源：
+
+[Pfizer scientist admits that natural antibodies are “probably better than vaccination”](https://dreddymd.com/2021/10/08/pfizer-scientist-admits-that-natural-antibodies-are-probably-better-than-vaccination/)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+
 
  
 

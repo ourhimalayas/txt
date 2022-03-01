@@ -2,8 +2,8 @@
 ---
 
 
-## 台海危机 台湾优势为何
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2088753/)
+## 中共侵台 美日等将加入战争
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2088823/)
 
 台灣寶島農場
 

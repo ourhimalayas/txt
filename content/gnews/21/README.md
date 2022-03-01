@@ -2,16 +2,39 @@
 ---
 
 
-## 北约：我们不寻求与俄罗斯冲突
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2088592/)
+## 有声|美欧同意将部分俄罗斯银行从SWIFT系统中剔除
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2088713/)
 
-#### 翻译                     意大利达芬奇农场                             小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-01-alle-15.20.23-1.png)图片来源：imolaoggi.it
-据安莎社3月1日来自布鲁塞尔的报道， 在这几个小时内，“我们第一次部署北约反应部队， 法国军队抵达罗马尼亚。我们将保护和保卫任何北约领土。我们是一个防御联盟。我们不是在寻找与俄罗斯的冲突， 后者必须立即停止战争并回到外交上来”。这是北约秘书长延斯•斯托尔滕贝格（Stoltenberg）在波兰拉斯克军事基地举行的新闻发布会上所说的。他还表示：“普京的战争影响到每一个人， 北约盟国要团结一致”。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月26日，在乌克兰及国际多种力量的努力争取之后，美国联合加拿大、欧盟和英国等达成协意，对俄罗斯金融部门实施严厉的制裁，包括阻止其进入全球SWIFT金融体系，并首次对俄罗斯中央银行进行限制，以惩罚其对乌克兰的入侵。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture00-2.jpg)
+2 月 26 日，欧洲已开始为俄罗斯与 SWIFT 支付系统断开连接进行技术准备。SWIFT 的中断被称为“经济的核武器”。
 
-原文链接：[https://www.imolaoggi.it/2022/03/01/nato-non-cerchiamo-il-conflitto-con-la-russia/](https://www.imolaoggi.it/2022/03/01/nato-non-cerchiamo-il-conflitto-con-la-russia/)
+这些制裁将使俄罗斯的银行不再能为贸易和金融活动进行支付，有效地阻止该国出口石油、煤炭和天然气等商品。也将使俄罗斯无法进口关键技术，如半导体和本国工业的机械。
 
-编辑、上传： Xiao  baige
+在这些措施中，对俄罗斯央行的限制针对的是克里姆林宫掌握的6000多亿美元的储备，以有效限制俄罗斯在西方制裁收紧的情况下支持卢布的能力。
+
+
+
+文字版原文：[美欧同意将部分俄罗斯银行从SWIFT系统中剔除](https://gnews.org/zh-hans/2079146/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

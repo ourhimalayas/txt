@@ -2,37 +2,35 @@
 ---
 
 
-## 有声|欧洲一些国家对乌克兰提供军事援助
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2088646/)
+## 乌欧关系上新台阶：欧盟历史上首次帮助乌克兰购买和运送武器
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2088741/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月26日，俄罗斯对乌克兰的侵略行动仍在继续。三个北约盟国捷克共和国、荷兰和葡萄牙表示，将帮助乌克兰同俄罗斯作战。捷克共和国会运送武器，包括机枪、冲锋枪、狙击步枪和相应弹药，葡萄牙承诺会派遣超过175名军人，荷兰表示会提供200枚高射刺客导弹以及其他国防武器，目前这些战略物资和人员正被紧急运送到乌克兰。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture00-1.jpg)
-德国也表示将向乌克兰提供武器，包括1000枚反坦克武器和500枚对空导弹。德国总理表示会尽最大努力帮助乌克兰抵御普京的入侵。
+**撰稿：东京樱花团/Calvin**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6-4.png)
+[**图片来源**](https://news.yahoo.com/watershed-moment-eu-purchase-deliver-190453709.html)
 
-法国则积极参与了制裁俄罗斯的行动，对俄罗斯在英吉利海峡的船只进行了扣押。据悉该船只与俄罗斯间谍头目的家人有关，属于受到美国制裁的俄罗斯实体。
+**欧盟将资助购买价值 5 亿美元的武器并将其运送到乌克兰，这是欧盟历史上首次向受攻击国家运送武器。**
 
+**为什么重要的原因：由于弗拉基米尔·普京对乌克兰的无端攻击，欧盟长期存在的政策禁忌正在消失。**
 
+**新武器计划将通过欧洲和平基金提供资金，该计划于周日宣布，同时对俄罗斯飞机、官方媒体和白俄罗斯经济实施新制裁。**
 
-文字版原文：[欧洲一些国家对乌克兰提供军事援助](https://gnews.org/zh-hans/2079127/)
+**最新消息：欧盟外交政策负责人约瑟夫·博雷尔在新闻发布会的问答环节中表示，成员国将向乌克兰提供战斗机，而不仅仅是弹药。**
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+**[****乌克兰外交部] 库莱巴部长一直在问我们，他们需要乌克兰军队能够操作的那种战斗机。 我们知道什么样的飞机，一些成员国有这种飞机。**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**Borrell****宣布：“我今天将提议将欧洲和平基金用于两项紧急援助措施——为乌克兰军队供应致命物资以及急需的燃料，防护设备和医疗用品提供资金。”**
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**泽连斯基总统的领导力和勇气，以及乌克兰人民的韧性，都是杰出和令人印象深刻的。欧盟委员会主席Ursula von der Leyen 说：“他们激励了我们所有人。” “他称新政策为“分水岭时刻”。**
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+**乌克兰官方电报频道对这一消息进行了庆祝，该频道赞扬这是西方世界团结起来反对普及侵略的另一个迹象。**
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**信息来源：**[**“This is a watershed moment”: EU to purchase and deliver weapons to Ukraine in historic first**](https://news.yahoo.com/watershed-moment-eu-purchase-deliver-190453709.html)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+**编辑：东京樱花团/喜马拉雅的微尘**
+**发布：东京樱花团/**yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,29 +2,18 @@
 ---
 
 
-## 国际影视、体育界加入制裁俄罗斯行列
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2088666/)
+## 秘翻在线：约翰逊：英国可以接纳20万乌克兰难民
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2088749/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-4.jpg)
-[图片来源](https://www.google.com.hk/search?q=Disney+Sanctions+Russia&amp;newwindow=1&amp;sxsrf=APq-WBuFRtTta3XdCL-7nItekZkbHc65pQ:1646145755876&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwiR6pvokqX2AhVsHKYKHRJ0ADkQ_AUoAnoECAEQBA&amp;biw=1707&amp;bih=770&amp;dpr=1.13#imgrc=sUSfUlalok3b_M)
+撰稿：文贺JP
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-10.jpg)图片来源：本文链接
+鲍里斯.约翰逊说：英国可以接纳20万乌克兰难民。关于西侧扩大行动的失败原因，乌克兰记者指责鲍里斯，乌克兰民众要求北约设立禁飞区，以保护妇女儿童。但鲍里斯将其排除在外，延误了救援。
 
-中华网报3月1道，据美国消费者新闻与商业频道（CNBC）报道，在俄罗斯对乌克兰采取特别军事行动后，美国华特迪士尼公司（简称迪士尼公司）宣布，将停止在俄罗斯的所有影院上映迪士尼电影。
+信息来源：
 
-迪士尼公司在2月28日发布的一份声明表示，由于俄罗斯“无端‘入侵’乌克兰和（造成的）悲惨的人道主义危机”，迪士尼将暂停在俄罗斯上映电影。
+[https://www.theguardian.com/politics/live/2022/mar/01/uk-politics-live-dominic-raab-russia-war-crimes-warning-ukraine-invasion?page=with:block-621dfbbd8f0856e8c524e489#block-621dfbbd8f0856e8c524e489](https://www.theguardian.com/politics/live/2022/mar/01/uk-politics-live-dominic-raab-russia-war-crimes-warning-ukraine-invasion?page=with:block-621dfbbd8f0856e8c524e489#block-621dfbbd8f0856e8c524e489)
 
-就在迪士尼决定暂停俄罗斯上映电影之际，美国娱乐公司在参与抵制行动。流媒体巨头美国奈飞公司（netflix）表示，在俄乌局势不断升级的情况下，其平台将下架俄罗斯新闻频道。奈飞公司发言人2月28日告诉CNBC：“鉴于目前的情况，我们没有计划将这些频道添加到我们的服务中。”
-
-此外，国际体育组织也出现了抵制俄罗斯的行动。国际足球联合会（FIFA）与欧洲足球联合会联盟一起，宣布将禁止俄罗斯球队参加包括2022年卡塔尔世界杯在内的国际赛事。
-
-俄罗斯入侵乌克兰离心离德，导致亲俄的原苏联波罗的海三国，和世界无争的中立国瑞士瑞典也加入了制裁俄罗斯的行列。
-
-信息来源：[迪士尼等多家公司暂停新片在俄上映 新片已被叫停\_中华网](https://3g.china.com/act/ent/11015422/20220301/41499474.html)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
-
+责编：待命（文晓）
 
  
 

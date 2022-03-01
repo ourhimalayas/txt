@@ -2,35 +2,27 @@
 ---
 
 
-## 乌欧关系上新台阶：欧盟历史上首次帮助乌克兰购买和运送武器
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2088741/)
+## 加拿大政府是否会镇压民权运动，逮捕马丁·路德·金？
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2088803/)
 
-**撰稿：东京樱花团/Calvin**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-4.png)
-[**图片来源**](https://news.yahoo.com/watershed-moment-eu-purchase-deliver-190453709.html)
+##### 素材：精靈藍
+翻译：Lish
+校对：枳实
+字幕：蛮吉
+编辑：幕紗公子
 
-**欧盟将资助购买价值 5 亿美元的武器并将其运送到乌克兰，这是欧盟历史上首次向受攻击国家运送武器。**
+随着加拿大政府针对大卡车反抗运动的群体的国家主义行为，成为了使人关注的一个焦点。福克斯新闻就这种国家主义行为展开了讨论，法学教授Jonathan Turley表示，当前卡车运动类似上个世纪六十年代美国的民权运动，政府应该放低姿态和放弃极端手段。如果一味展示官僚体系的傲慢和暴力，只会激起更大的反抗。
 
-**为什么重要的原因：由于弗拉基米尔·普京对乌克兰的无端攻击，欧盟长期存在的政策禁忌正在消失。**
+视频链接：[Fox News legal analyst Jonathan Turley, on Canada PM Justin Trudeau invoking emergency powers to deal with the “Freedom Convoy” blockade:](https://twitter.com/justinbaragona/status/1493704292317999106)
 
-**新武器计划将通过欧洲和平基金提供资金，该计划于周日宣布，同时对俄罗斯飞机、官方媒体和白俄罗斯经济实施新制裁。**
+*发布：Mttfly*
 
-**最新消息：欧盟外交政策负责人约瑟夫·博雷尔在新闻发布会的问答环节中表示，成员国将向乌克兰提供战斗机，而不仅仅是弹药。**
-
-**[****乌克兰外交部] 库莱巴部长一直在问我们，他们需要乌克兰军队能够操作的那种战斗机。 我们知道什么样的飞机，一些成员国有这种飞机。**
-
-**Borrell****宣布：“我今天将提议将欧洲和平基金用于两项紧急援助措施——为乌克兰军队供应致命物资以及急需的燃料，防护设备和医疗用品提供资金。”**
-
-**泽连斯基总统的领导力和勇气，以及乌克兰人民的韧性，都是杰出和令人印象深刻的。欧盟委员会主席Ursula von der Leyen 说：“他们激励了我们所有人。” “他称新政策为“分水岭时刻”。**
-
-**乌克兰官方电报频道对这一消息进行了庆祝，该频道赞扬这是西方世界团结起来反对普及侵略的另一个迹象。**
-
-**信息来源：**[**“This is a watershed moment”: EU to purchase and deliver weapons to Ukraine in historic first**](https://news.yahoo.com/watershed-moment-eu-purchase-deliver-190453709.html)
-
-**编辑：东京樱花团/喜马拉雅的微尘**
-**发布：东京樱花团/**yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
-
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

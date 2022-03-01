@@ -2,38 +2,32 @@
 ---
 
 
-## 欧盟主席称望乌克兰成为成员国
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2088525/)
+## 美国政府跨党派使团抵台 美台加深合作抗击中共
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2088712/)
 
-作者：纽约香草山教育部 – Naughty(文行)，银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据路透社报道，欧盟首席执行官2月27日表示明确支持乌克兰成为欧盟的成员，称这个目前受到俄罗斯攻击的国家是 “我们中的一员”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-3.jpg)
-欧盟委员会主席冯德莱恩表示，欧盟有史以来首次决定向处于战争状态的国家提供武器，欧盟将向乌克兰运送 4.5 亿欧元，折合5.07 亿美元的武器，。
+撰稿人：东京樱花团/山顶闲人
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6-1.jpg)
+**[图片来源](https://tw.news.yahoo.com/%E6%8B%9C%E7%99%BB%E8%B6%85%E9%87%8D%E9%87%8F%E7%B4%9A%E7%89%B9%E4%BD%BF%E5%9C%98%E6%8A%B5%E5%8F%B0-%E5%90%B3%E9%87%97%E7%87%AE%E8%A6%AA%E8%87%AA%E6%8E%A5%E6%A9%9F-090224038.html%20)**
 
-欧盟还宣布乌克兰难民将在 3 年内在其成员国受到欢迎而无需申请庇护，并表示将对俄罗斯的入侵实施严厉制裁。
+据台湾《自由时报》3月1日报道，美国总统拜登（Joe Biden）指派前参谋首长联席会议主席穆伦（Michael Glenn Mullen）率团访台，今天（1日）下午4时13分飞抵松山机场，外交部长吴钊燮亲自接机。访团在台期间将晋见总统蔡英文、副总统赖清德、拜会行政院长苏贞昌及国防部长邱国正，并接受外交部长吴钊燮午宴与蔡总统晚宴。
 
-当地时间2月28日中午，乌克兰总统弗拉基米尔·泽连斯基，正式签署了加入欧盟的申请书。他希望欧盟启动特别程序允许乌克兰加入欧盟；并指出，乌克兰希望和欧洲人平等地站在一起，欧盟值得拥有乌克兰。
+美国总统拜登指派跨党派资深代表团搭乘行政专机访问我国。访团由前参谋首长联席会议主席穆伦率领，成员包括前国防部政策次长弗洛伊（Michèle A. Flournoy）、前白宫副国安顾问欧苏利文（Meghan L. O’Sullivan）、前白宫国安会亚洲事务资深主任格林（Michael Green）及前白宫国安会亚洲事务资深主任麦艾文（Evan S. Medeiros）。访团预计2日上午前往总统府拜会总统蔡英文，下午分别拜会行政院长苏贞昌与国防部长邱国正，晚上由蔡总统设宴款待后，即于晚间10时搭乘专机离台。
 
-参考链接：
-1). [EU chief says bloc wants Ukraine as member](https://www.reuters.com/world/europe/eu-chief-says-bloc-wants-ukraine-member-they-are-one-us-2022-02-28/)
-2). [Ukrainian president signs formal request to join the European Union](https://www.reuters.com/world/europe/ukrainian-president-signs-formal-request-join-european-union-2022-02-28/)
-3). [Ukraine president asks for fast-track EU membership](https://www.reuters.com/world/europe/ukraine-president-asks-fast-track-eu-membership-2022-02-28/)
-4). [President Zelensky signed an application of Ukraine to EU membership](https://gettr.com/post/pxdxqx2a10)
+吴钊燮今日下午代表我国政府前往接机。外交部对穆伦前主席率重要访团抵访台湾表达诚挚欢迎。外交部说明，访团在台期间将晋见总统蔡英文、副总统赖清德、拜会行政院长苏贞昌及国防部长邱国正，并接受外交部长吴钊燮午宴与蔡总统晚宴；双方将就台美关系各项重要议题交换意见。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+，此次美国政府美国使团不仅包括了美国民主、共和两党卸任的高层官员，而且使团成员均具国安或军事背景。使团成员穆伦于2007年至2011年担任美军参谋首长联席会议主席，军事经验丰富；傅洛依曾于2014年及2015年两度率领新美国安全中心（CNAS）「下一世代国安领袖计画」（NextGen）访团来台；欧苏莉文现为哈佛大学国际实务教授，曾于2004年至2007年于小布什政府时期国安会主管伊拉克及阿富汗议题；葛林及麦艾文先后为小布什及奥巴马政府时期的白宫国安会亚洲事务资深主任，负责处理台湾议题事务，均曾多次访问台湾。
 
-总编: Zion文恩
-编辑: 谐趣园 
-校正/发稿：Fei797
+俄军大举入侵乌克兰后，世界再一次被笼罩在“热战”阴影之下，根据郭文贵先生早前爆料，俄罗斯与中共已达成协议，俄军出兵乌克兰之际，中共将执行“双龙”计划直取台湾。在台海形势显得越发危急情况下，美国使团访台显示了美台合作共抗中共的决心，也给以习近平为首的中共主战派挡头一棒，加之，俄罗斯近来接连受到SWIFT限制等西方国家为主体国际组织一系列制裁，相信解放军一旦攻台，国际组织对中共制裁力度一定毁灭性的。顺便提醒，墙内民众应该远离军事设施，尽皁屯粮屯药储备物资，以防战争到来遭遇不测。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**信息来源：**
+
+**[拜登使团抵台！明会蔡、赖、苏与国防、外交部长](https://news.ltn.com.tw/news/politics/breakingnews/3845065)**
+
+**编辑：东京樱花团/喜马拉雅的微尘**
+**发布：东京樱花团/**yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
