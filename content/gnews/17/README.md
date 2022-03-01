@@ -2,20 +2,27 @@
 ---
 
 
-## 马斯克硬气回复俄罗斯的太空威胁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2088822/)
+## 纽约市华裔女子被刺死，犯罪宽松政策急需改革
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2088963/)
 
-**采编：意翎 ****    **
+##### 素材：麦克阿Sir
+翻译：文法
+校对：精靈藍
+字幕：蛮吉
+编辑：Mttfly
 
-**责编：白夜**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16461485351.png)
-《零对冲》资深记者泰勒·杜登（Tyler Dutton）周二报道,对于俄罗斯航天局关于国际空间站（ISS）将存在危险的警告，埃隆·马斯克（Elon Mask）表示，如果俄罗斯试图蓄意破坏，SpaceX将拯救空间站。
+据福克斯新闻报道，华裔女子在公寓里被一名25岁的犯罪嫌疑人刺死。据被害者的房东布莱恩·金表示，自1970年代以来，从没发生过这样严重的事情。前雇主伊莱·克莱恩说：“克里斯蒂娜是我所认识的最善良、最真诚、最勤奋、最可爱、最独立的人之一。”犯罪嫌疑人阿萨德·纳什25岁，从以前的所有案件中都被保释出来了，包括一个攻击案件，三个未结案件。房东表示，现在我们很害怕，但我们也非常愤怒，不仅是对这个犯罪分子，而且对这个屡次让我们失望的系统。
 
-俄罗斯航天局总干事迪米特·罗戈津（Dmitry Rogzin）发推威胁，如果美司和俄罗斯在太空合作崩溃，“谁会把ISS从不受控制的轨道上拯救出来？ ……”他傲慢地针对马斯克说：“你们这些天才商人在近地轨道乱扔垃圾，全靠我们俄罗斯货船“进步号”引擎。”马斯克用SpaceX标志的图片回应罗戈津的威胁。这位亿万富翁回复了多个推特用户，其中一个人问他，这是否表示SpaceX将防止ISS坠落到地球，马克斯肯定地回答：“是的”。美国国家航空航天局(NASA)的一位编缉发布了一条帖子，上面有一张关于ISS的照片，上面没有附加的俄罗斯（引擎）部件，还有一头SpaceX巨龙停靠在该空间站上，以提供给它再发射的能力并控制其姿式。马斯克说这是一条“好线索”。
+视频链接：[NYC woman stabbed to death in apartment, repeat offender arrested: ‘Tragedy of epic proportions’](https://www.foxnews.com/us/nyc-christina-yuna-lee-stabbed-death-repeat-offender-assamad-nash)
 
-上周四，美国总统乔·拜登（Joe Biden）宣布了新的制裁措施，将“削弱”俄罗斯的航空航天工业，包括他们的太空计划等等。ISS是美国、俄罗斯、日本、加拿大和欧洲航天局合作的空间站，目前有2名俄罗斯宇航员、4名美国宇航员和1名欧洲宇航员在上面生活并合作完成工作。俄罗斯已经表示将在2025年撤出ISS，并且他们已经在建造一个新的空间站。
+*发布：Mttfly*
 
-**[原文链接](https://www.zerohedge.com/technology/elon-musk-suggests-spacex-will-rescue-space-station-if-russia-attempts-sabotage)**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,41 +2,44 @@
 ---
 
 
-## 国会黑人核心小组与中共游说团体合作
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2088987/)
+## 郭文贵先生怕的不是共产党而是阿猫阿狗九指妖路大脑袋
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2089032/)
 
-#### 撰稿：彩虹 
+G-TV视频链接：https://gtv.org/video/id=62164cf31408ee3a03a3c8fe
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-42.png)图片来源：国家脉动
-2月28日，《国家脉动》调查记者娜塔莉·温特斯（Natalie Winters）发布文章，披露国会黑人核心小组（The Congressional Black Caucus）与一个中共游说团体合作，该团体在一次虚拟电话会议讨论中探讨“经济和贸易合作”，努力恶性影响美国政府政策。
+**郭文贵先生：**在美国安保都一样，而且我到哪国去都是国家，肯定是我跟英国政府不谈好我肯定不去，没有英国政府保护我，我肯定不去，个人保安是不可能让你安全的——在任何地方。
 
-国会黑人核心小组（CBC）的成员来自国会中大多数非裔美国人的民选官员，包括马克辛·沃特斯（Maxine Waters）议员和科里·布克（Cory Booker）参议员等高调代表。其他成员包括原籍索马里的伊尔汗·奥马尔（Ilhan Omar）议员、1月6日委员会主席本尼·汤普森（Bennie Thompson）议员，以及在成为副总统之前，原籍印度和牙买加的卡马拉·哈里斯（Kamala Harris）。
+我们不怕共产党，怕谁你知道吗？怕那些流氓、怕“九指妖”过来拿九个手指头捅我一下子 “嘶”是吧？“九指妖”、“九指魔”来了，我担心这个你知道吗？我还不能还手是吧？九指“唰”就来两下子是吧？那多恐惧呀，那我得挡是吧？我得挡，那九指“啪啪啪啪”，然后人家旁边儿英国的M16说：“哎，这是一个特殊人才不能还手啊。
 
-该核心小组声称要解决种族主义和“边缘化”问题，但正如《国家脉动》之前披露的那样，该小组却与历史上最具种族主义、压迫性和种族灭绝性的政权中国共产党合作。
+哇噻！然后“路大脑袋”到那儿“咔咔”两口痰“哼哼哼”——哎呀哇噻！弄得我受不了！我担心这！再一个就是“蛇妖闫”晃着肩过来了（演示晃肩走路的动作）“嘚嘚嘚嘚”，她来回咱受不了啊！她一来咱浑身发抖，你还不能还击，咱怕这你知道吗？不怕共产党，怕共产党派来的叫做什么“阿猫”、“阿狗”、“蝇蝇”、“狗狗”来骚扰咱。
 
-国会黑人小组除了让学生时代的选民参与中共国举办的宣传旅行外，还在2021年12月让其工作人员参加了与中国人民外交学会（Chinese People’s Institute of Foreign Affairs – CPIFA）举办的“电话会议”。
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-文章指出，美中安全与经济审查委员会（China Security and Economic Review Commission）认为，中共统战部（China’s United Front Work Department）的职能是“收编和化解可能反对中共执政的政策和权威的来源”，并“影响外国政府采取支持北京的行动或立场”，而中国人民外交学会（CPIFA）则是其职能机构之一。
+编辑整理：Jacques；
 
-文章披露，如下九个代表CBC小组的成员参加了此电话会议，分别是：
+字幕档制作：兵嫂；
 
-1. 马特·霍尔科姆（Matt Holcombe）：众议员德怀特·埃文斯（Dwight Evans）的立法通讯员；
-2. 凯文·戴蒙德（Kevin Diamond）。议员众丽莎·布朗特·罗切斯特（Lisa Blunt Rochester）的办公室副主任；
-3. 克里斯托弗·德沃尔夫（Christopher DeVore）: 众议员阿尔玛·亚当斯（Alma Adams）的立法主任，前疾病控制和预防中心的分析师；
-4. 罗德尼·卡兹布维（Rodney Kazibwe）:众议员科林·艾尔雷德（Colin Allred）的立法助理，前参议员查克·舒默（Chuck Schumer）的立法助理；
-5. 拉赫蒙·罗斯（Rahmon Ross）：众议员唐纳德·麦克伊钦（Donald McEachin）的立法助理；
-6. 弗朗切斯科·巴巴奇（Francesco Barbacci）：参议员柯瑞·布克（Cory Booker）的外交政策研究员；
-7. 德利亚·卡沙特（Delia Kashat）。众议员布伦达·劳伦斯（Brenda Lawrence）的高级政策顾问；
-8. 卡乌拉·凯泽（Khaula Kaiser）: 众议员汉克·约翰逊（Hank Johnson）的立法主任；
-9. 瑞科·多思（Rico Doss）：CBC立法主任。
+视频制作及上传：Cindy；
 
+G-News发布：海贼王M.D.LUFFY；
 
-作者指出，讽刺的是，虽然国会黑人小组指责美国是一个系统性的种族主义国家，但它却不指责中共对人权的侵犯和剥削性贸易的做法。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-**新闻来源**
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[Congressional Black Caucus Partners With Chinese Communist Party Influence Group](https://thenationalpulse.com/2022/02/28/cbc-partners-with-chinese-influence-group-on-virtual-visit/)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

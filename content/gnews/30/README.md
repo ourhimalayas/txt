@@ -2,25 +2,27 @@
 ---
 
 
-## 【秘翻新视野】新中国联邦对在乌华人展开紧急救援行动
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2088323/)
+## 加拿大萨省宣布结束所有防疫措施
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2088345/)
 
-**By:[秘翻新视野](https://gtv.org/broadcast/watch/621d8b51019ef64da653174c)**
+加拿大温哥华杨帆农场 枫叶快讯
 
-**[2022-03-01](https://gtv.org/broadcast/watch/621d8b51019ef64da653174c)**
+采编：文莱       编译撰稿：硫酸羟氯喹64
 
-**今日主题：**
 
-**1. 中共说目前局势危险不能撤离在乌侨胞**
+![Saqib Shahab, chief medical health officer, speaks at a COVID-19 news update at the legislative building in Regina on Wednesday March 18, 2020.](https://smartcdn.gprod.postmedia.digital/torontosun/wp-content/uploads/2022/02/CP21105235-scaled-e1646064225721.jpg?quality=90&amp;strip=all&amp;w=288&amp;h=216)图片来源：https://torontosun.com/
+据【多伦多太阳报】2月28日报道，萨省政府当天取消了在室内公共场所强制配戴口罩，以及要求病毒感染者自我隔离五天的规定。
 
-**2. 新中国联邦对在乌华人展开紧急救援行动**
+报道称，在2月14日终止了疫苗护照的使用后，萨省目前不仅已成为加拿大第一个取消所有疫情限制的省份，而且正在过渡到将“新冠病毒”视为一种常见呼吸道疾病的阶段。
 
-**🔗GTV链接：**[https://gtv.org/broadcast/watch/621d8b51019ef64da653174c](https://gtv.org/broadcast/watch/621d8b51019ef64da653174c)
+对此，萨省卫生部门表示，尽管一半以上的成年居民都接种了疫苗加强剂，但当局仍计划通过疫苗接种和抗病毒药物来控制疫情，而非依赖破坏心理健康和经济的强制公共卫生措施。
 
-发布:星星
+校对编辑：硫酸羟氯喹6
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+发稿：青青
+
+原文链接： https://torontosun.com/news/national/saskatchewan-ends-all-covid-19-health-measures
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,27 @@
 ---
 
 
-## 纽约市华裔女子被刺死，犯罪宽松政策急需改革
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2088963/)
+## 美国宣布驱逐俄罗斯驻联合国使团 因其从事间谍活动
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2089012/)
 
-##### 素材：麦克阿Sir
-翻译：文法
-校对：精靈藍
-字幕：蛮吉
-编辑：Mttfly
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-据福克斯新闻报道，华裔女子在公寓里被一名25岁的犯罪嫌疑人刺死。据被害者的房东布莱恩·金表示，自1970年代以来，从没发生过这样严重的事情。前雇主伊莱·克莱恩说：“克里斯蒂娜是我所认识的最善良、最真诚、最勤奋、最可爱、最独立的人之一。”犯罪嫌疑人阿萨德·纳什25岁，从以前的所有案件中都被保释出来了，包括一个攻击案件，三个未结案件。房东表示，现在我们很害怕，但我们也非常愤怒，不仅是对这个犯罪分子，而且对这个屡次让我们失望的系统。
+2月28日，鉴于常驻纽约联合国使团的12名俄罗斯外交官从事间谍活动，美国宣布将其驱逐出境。
 
-视频链接：[NYC woman stabbed to death in apartment, repeat offender arrested: ‘Tragedy of epic proportions’](https://www.foxnews.com/us/nyc-christina-yuna-lee-stabbed-death-repeat-offender-assamad-nash)
+据《美国之音》报道，美国驻联合国使团发言人奥莉维亚·达尔顿(Olivia Dalton)在一项声明中表示，美国已通知联合国和俄罗斯常驻联合国使团，已开始驱逐来自俄罗斯使团的12名情报特工的程序，他们被控利用自己居住在美国的特权从事违反美国国家安全利益的间谍活动。
 
-*发布：Mttfly*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-1.jpg)图为纽约联合国总部一处出入口（图片来自网络）
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+奥莉维亚·达尔顿还表示，这项行动是依据联合国总部协定采取的，该行动已经酝酿了几个月。
+
+据悉，美国要求这12名俄罗斯外交官在3月7日前离境。
+
+参考链接：
+[https://www.voachinese.com/a/us-to-expel-12-russian-diplomats-at-un-mission-for-spying-20220228/6464126.html](https://www.voachinese.com/a/us-to-expel-12-russian-diplomats-at-un-mission-for-spying-20220228/6464126.html)
+
+素材采编：幽蘭自得
+编辑：老孙
+发布：小斐
 
  
 

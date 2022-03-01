@@ -2,33 +2,31 @@
 ---
 
 
-## 有声|全球各国对乌克兰的游行支持
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2088808/)
+## 国际刑事法庭将对俄罗斯在乌克兰犯下的战争罪展开调查
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2088887/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月27日，多家媒体报道，俄罗斯入侵乌克兰，引发了强烈的全球民众抗议。世界多个国家的老百姓都举行了大规模游行，谴责战争。
+#### 撰稿：彩虹 
 
-从俄罗斯本土，到伦敦、纽约、德黑兰，从欧洲到美洲，数千人走上街头，支持乌克兰，抨击俄罗斯。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-41.png)图片来源：阿纳多卢通讯社
+2月28日，《国会山报》报道，周一，国际刑事法院（ICC）的一名检察官宣布，他将对俄罗斯在乌克兰可能犯下的战争罪展开调查。
 
-民众自制的标语包括，支持乌克兰，要求普京下台，并把普京比作希特勒纳粹，敦促世界各国政府加强对俄罗斯的制裁。据不完全统计，上街游行的地区有意大利的罗马、瑞士、奥地利的维也纳、芬兰、法国的马赛和蒙彼利埃、西班牙的巴萨罗那、英国、以色列、爱沙尼亚、格鲁吉亚、阿根廷、加拿大等等，甚至在中共国墙内，都有勇士举着支持乌克兰的旗子。
+检察官卡里姆-A-A-可汗（Karim A. A. Khan）说：“我已经审查了办公室对乌克兰局势进行初步审查后得出的结论，确认有合理的依据可以开始调查。特别是，我感到满意的是，有合理的理由相信，与本办公室在初步审查期间已经评估的事件，即有关的所谓战争罪和危害人类罪已经在乌克兰实施。”
 
-俄罗斯驻各国大使馆的俄罗斯人也有人积极加入当地的反战游行，和本土的俄罗斯人一样为这个国家对乌克兰发动的战争表示谴责和耻辱，称这是全人类的灾难。
+可汗说：随着俄乌冲突的继续，他的调查将扩大到包括属于国际刑事法院管辖的任何潜在的未来罪行。
 
-文字版原文：[全球各国对乌克兰的游行支持](https://gnews.org/zh-hans/2079130/)
+报道指出，乌克兰不是国际刑事法院《罗马规约》的123个缔约国之一，该规约规定种族灭绝罪、反人类罪、战争罪和侵略罪为非法。然而，在俄罗斯以前的侵略期间，该国已接受国际刑事法院对其领土的管辖权。
 
-音频处理：Fei797
-发稿：Fei797
+但是，可汗在他的声明中要求获得“在我的办公室开始调查时，所有缔约国和整个国际社会的支持”。 他的办公室将需要预算支持、自愿捐款和人员。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+值得注意的是，周一，美国国务院发言人内德·普莱斯（Ned Price）向参与乌克兰入侵的俄罗斯人发出通知。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他在一次简报中告诉记者：“俄罗斯政府和所有参与这些行动的俄罗斯人员应该知道，美国正在支持国际多边努力，以发现和记录潜在的侵犯人权行为或违反国际人道主义法的行为。我们同样致力于支持利用一切可用的工具，包括在适当的时候进行刑事起诉，对侵犯人权、违反国际人道主义法、潜在的战争罪和其他潜在的暴行进行追责。”
+
+**新闻来源**
+
+[ICC prosecutor to open probe into possible war crimes in Ukraine](https://thehill.com/policy/international/russia/596179-icc-prosecutor-to-open-probe-into-possible-war-crimes-in-ukraine?rl=1)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
