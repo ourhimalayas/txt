@@ -16,6 +16,12 @@
 ---
 ## 頁面 12/40 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [40](/content/README-40.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
 
+[文字版:2020年9月20日郭先生GTV直播](/content/2020/09/20200926-3423558412983946225.md)
+
+[文字版:2020年9月19日郭先生GTV直播](/content/2020/09/20200926-954028387970316580.md)
+
+[文字版:2020年9月17日郭先生GTV直播](/content/2020/09/20200926-1150166459194589190.md)
+
 [文字版:2020年9月13日郭先生GTV直播](/content/2020/09/20200926-5663801126723482334.md)
 
 [文字版:2020年9月9日郭先生GTV直播](/content/2020/09/20200926-1971840848005876799.md)
@@ -59,12 +65,6 @@
 [【文字版】2020年8月7日文贵先生直播视频](/content/2020/08/20200814-1685166699558420781.md)
 
 [文字版：2020年8月5日郭先生GTV盖特视频](/content/2020/08/20200814-7866344919726272257.md)
-
-[【文字版】2020年8月4日文贵先生直播视频](/content/2020/08/20200814-4721687325348689489.md)
-
-[文字版:2020年7月30日郭先生GTV连线朴昌海先生及韩国战友团](/content/2020/08/20200805-753892440282858627.md)
-
-[【文字版】2020年8月2日郭先生直播视频](/content/2020/08/20200805-2636896334085187647.md)
 
 
 ## 頁面 12/40 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [40](/content/README-40.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
