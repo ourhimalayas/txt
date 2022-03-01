@@ -2,32 +2,31 @@
 ---
 
 
-## 日本将制裁包括普京在内的俄政府官员
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2084868/)
+## 柏林的俄罗斯宣传机器面临大量员工辞职
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2085054/)
 
-作者：首尔天池农场-八木
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月27日，日本首相岸田文雄在记者会上表示，决定对俄罗斯总统普京和主要俄政府官员，采取冻结金融资产等制裁措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-28-下午10.56.46.png)
-岸田文雄称，俄罗斯对乌克兰的入侵行动，是单方面企图用武力改变现状，这动摇了国际秩序的基础。日方将坚决和美欧等国一道阻止俄罗斯被制裁的银行机构，进入SWIFT国际结算系统。
+翻译：灭共文明
 
-据悉，日本政府还将继续向乌克兰提供紧急人道主义援助。
+编辑与校对：冰糖葫芦喵
 
-参考链接：[Japan freezes Putin’s assets, joins SWIFT sanction](https://www3.nhk.or.jp/nhkworld/en/news/20220227_27/amp.html)
+《路透社》柏林2月28日报道，**柏林的俄罗斯国有新闻机构Ruptly，在俄罗斯入侵乌克兰后，面临着员工大量出走，俄罗斯全球新闻帝国正面临着整体收缩。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+Ruptly，成立于2013年，**是俄罗斯国有新闻机构《今日俄罗斯》（RT）下属的国际新闻视频通讯社。**为俄罗斯国有国际广播公司RT和其他客户提供新闻，提供来自世界各地的视频和直播。
 
-总编：文真
-编辑：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+根据路透社听到的电话录音，员工们在一次全体员工电话会议上抱怨说，他们被告知将入侵描述为“俄罗斯在乌克兰的军事部署是一项 “特别行动”，并告诫当地媒体要使用这一术语。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+报道指出，一位要求匿名的Ruptly工作人员说，**截至周一，该机构至少有三名高级编辑辞职。其中一位是策划部主任卡捷琳娜-亚历山大里迪，**她向路透社证实了自己的离职。其他人无法立即联系上。
+
+据报道，**Ruptly的首席营销官肖恩-林恩的邮件自动回复说，从2022年2月25日起，我将不再担任Ruptly的首席营销官。”**
+
+周日，**欧盟委员会主席乌苏拉-冯德莱恩宣布，由西蒙尼扬经营的两家俄罗斯国家新闻机构RT和Sputnik将被禁止进入欧盟，而西蒙尼扬则作为俄罗斯宣传机器的 “核心人物 “受到了制裁。**
+
+周一，一个介绍26名高级员工的页面已从网站上删除。**这些离职人员是对俄罗斯国际广播网络宣传机器的最新打击。**
+
+**新闻来源链接：**
+
+[EXCLUSIVE Russian news agency in Berlin faces staff exodus over Ukraine invasion | Reuters](https://www.reuters.com/world/europe/exclusive-russian-news-agency-berlin-faces-staff-exodus-over-ukraine-invasion-2022-02-28/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
