@@ -2,42 +2,30 @@
 ---
 
 
-## 美国敦促其公民考虑立即离开俄罗斯
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2089527/)
+## NFSC新闻、G|TV新闻访谈简报|2022年3月1日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2089693/)
 
-**【简评】***鉴于乌克兰局势的不可预测，紧张态势不断升级，双方除了大打信息战外，各种军事动作也接二连三，令世界越发担忧。身处俄乌边境地带或计划前往相关地区的外国公民应考虑当地局势的危险性和不可预测性。*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO.jpg)
 
-据《路透社》2022年2月27日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-87-e1646154949107.png)在俄罗斯莫斯科的美国大使馆和国旗。图片来源：美联社
-美国国务院周日表示，美国公民应考虑立即乘坐商业航班离开俄罗斯，理由是越来越多的航空公司取消航班，而且在俄罗斯入侵乌克兰后，对俄罗斯航空公司关闭空域的国家也越来越多。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_.png)
+文章仅代表作者本人观点，与Gnews无关
 
-“美国公民应考虑通过目前仍然可用的商业渠道，立即离开俄罗斯，”美国驻莫斯科大使馆网站上发布的日期为2月27日的安全警报称。
+视频参看：
+[2022.03.01早 《NFSC新闻》](http://中共将会采用第三套方案攻台；俄乌战争的两个结局和俄罗斯的未来)
+[2022.03.01早 G|TV《新闻访谈》](https://gtv.org/video/id=621e27cf019ef64da6534f27)
 
-它已经要求美国公民制定“不依赖美国政府援助的应急计划”。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-俄罗斯入侵乌克兰，是二战以来对欧洲国家的最大军事袭击，引发了西方的一连串报复，美国和欧洲政府对俄罗斯银行和金融机构实施制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3.jpeg)
 
-俄罗斯总统普京称这次袭击是一次“特别行动”，他旨在通过该行动使莫斯科的南部邻国非军事化。
-
-美国国务院对俄罗斯的旅行警告级别定为“第4级（最高级）：请勿旅行”。2月20日，美国驻莫斯科大使馆建议在该国的美国人应制定撤离计划，理由是莫斯科和俄罗斯与乌克兰边境沿线的袭击威胁。
-
-文章来源：[https://www.voanews.com/a/6462107.html](https://www.voanews.com/a/6462107.html)
-
-翻译：洛杉矶盘古农场 – maru
-
-校对：洛杉矶盘古农场 – Mike Li
-
-评论：洛杉矶盘古农场 – maru
-
-编辑：洛杉矶盘古农场 – 傻小子
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

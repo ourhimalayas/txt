@@ -2,40 +2,33 @@
 ---
 
 
-## 文贵先生盖特精要- 2022/03/01
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2090066/)
+## 美国的选择决定人类的命运
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2090074/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/030101.png)[盖特直播链接](https://gettr.com/post/pxllrkc2fd)
+作者：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在2月27日的大直播中，郭文贵先生表示，美国在台海战争问题上的选择，将决定人类的命运。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-2.jpg)
+郭先生说，美国和日本比中共更希望台海战争的发生。美国为了出师有名，意欲让全世界看到中共公然侵略台湾，造成油价和芯片价格上涨，供应链断裂，并让韩国、印度和东南亚等国感受到中共的致命威胁，此时美国会组织包括澳大利亚在内的盟军部队来灭共。但是，这种战争的结果会很残酷，因为只要有美国参与灭共，中共就一定会联合朝鲜和伊朗，并极有可能会使用核武器。
 
-1. 据说普京打电话给习近平询问何时落实密谈内容（对台湾动手），普京因习不讲信用暴怒。
-2. 中共老杂毛党内紧急通知各大使馆做好海外学生侨界等联络，微信派出关于“俄乌战争”安全信息官。
-3. 中共完全不知晓大使馆人员携款跑路情况、新中国联邦解救大使馆人员数量、新中国联邦最终将拯救中国人数量。
-4. 新中国联邦花费几百、上千万美元去前线营救中国人，中共造谣营救行动会窃取中国人信息。中国人将意识到真正的正义力量。
-5. “俄乌战争”导致中国人被“恨”，有被营救战友跑出来因中国人身份险些被排斥。
-6. 营救行动很快将有在乌克兰周围飞机起飞开展救援，目的飞往美国和东南亚免签国。飞机配置含概波音747、757、大力神等机型。
-7. 全世界不再相信中共，中共不再相信习近平，习近平和普京谁也不相信，只有新中国联邦值得信赖。
-8. 中共洗脑中国人，营救行动将有很多“无缘人”。
-9. 世界大变进行时，七哥成功“预测”2022年5月前暂停疫苗强制。当务之急救援深处战火中同胞。
+郭先生认为，如果美国按部就班的先从联合国得到“战争执照”授权，然后再开始灭共，说明美国希望发生世界大战而重整秩序；如果美国在中共侵略台湾刚开始时，就选择出手灭共，则说明美国希望维持原有的国际秩序。选择后者，美国就需要大胆对中共提前动手；选择前者，人类将要付出巨大代价，不仅会造成大量人员伤亡，而且由于中共使用核武器，会导致很多无人区的出现。
 
+参考链接：[美国的选择决定人类的命运](https://www.gettr.com/post/pxc1jt8397)
 
-*听写：call me uncle*
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-*校对: 乐禧禧*
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
 
-* * *
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
-
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

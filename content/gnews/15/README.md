@@ -2,39 +2,33 @@
 ---
 
 
-## 4.人类历史上首次使用AI与心理学多角度协同作战
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2090075/)
+## 《锁链梦》这个歌一定会震动世界
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2090283/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月27日，郭文贵先生在大直播中，与战友分享了乌克兰人高明的战争智慧。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-此次俄罗斯的入侵，从心理战方面，有乌克兰人本能的拼死抵抗，作为被侵略方的正义和恰到好处的示弱。从战争技术方面，人类战争史上首次有社交媒体、AI技术以及针刺导弹的参与。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-5.jpg)
-郭先生称赞乌克兰此次对社交媒体的操作运用达到了极致，泽连斯基的现场直播击溃了俄罗斯大外宣假新闻带风向的可能，此招数来自爆料革命的唯真不破。另外还有无数个乌克兰网红给世界各个宗教首领、诺贝尔得奖者以及各种NGO组织连续发送带有个人美照的求救讯息。社交媒体疯传乌克兰美女和小孩在战争毁坏家园时的悲伤和抵抗，唤醒了更多善良的人，并将俄罗斯带入非正义的塔西陀陷阱之中。
+2022-02-23直播摘录
 
-郭先生此前直播中说过对俄罗斯最致命的方法就是切断SWIFT，此讯息同样很快以各种语言传遍社交网络，并且点对点传播到了人,我们也看到第二天欧美等国就开始切断俄罗斯的SWIFT。
+我们每个人都可以富有地活着，你可以找各种理由让自己懦弱下去，你让自己可以苟且偷生地活下去，但是我们知道的时候，当知道这个事情的时候不能再这样活着，这就是爆料革命的力量。
 
-乌克兰的代码工程师是全世界最顶尖的，他们用强大的AI数据和网络功能在背后积极协助前线。在前线作战的，大多数是使用郭先生早在2017年就爆料过的针刺导弹，这种武器几乎能够完全改变人类战争的形态，它可以自动找到敌方武器的最核心部位进行攻击，如车辆的GPRS、手机芯片等。
+我们今天不作为，共产党的恶魔就会作为我们的亲人，作为我们的家人，就会让我们的家人变为”“锁链女”、“锁链男”。我们已经是……中国人已经是锁链上的中国，思想上已经都是”锁链上”的中共国。啊，我们要像“美帝国主义”一样，不是“这个世界不要我”，是“这个世界需要我”，我们一定要唱出来，（唱）“这个世界需要我”。这个正义的世界需要我。《锁链梦》这个歌一定会震动世界。兄弟姐妹们，天给了我们无穷无尽的力量，我不知道你们信不信，我真的很难相信我会唱出这样的歌出来，但我一下就唱出来了，而且越唱越好。你听到唐平的那个按在地上的想喊喊不出来的声音的时候，代表了所有的女性，你看每个歌词你会找到感觉的。我们现在把这个话题说完，我们说说Hcoin、Hpay。
 
-郭先生感慨道，乌克兰在此战中是高智商混合型作战方式。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-参考链接：[人类历史上首次使用AI与心理学多角度协同作战](https://gtv.org/video/id=621b7633019ef64da651ee6c)
+**关注我们**
 
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+Discord 账号
 
-总编：DM
-编辑：DM
-校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+Gettr 账号
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

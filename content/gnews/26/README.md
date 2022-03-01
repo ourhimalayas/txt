@@ -2,43 +2,35 @@
 ---
 
 
-## 纽约市将取消对室内商业餐饮和活动的强制疫苗接种规定
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2089747/)
+## 文·贵天成——文贵先生谈“疫苗”（六十）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2089797/)
 
-翻译：peacelv
+**整理：BENJ1
+编辑：Candy**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1626-1.jpg)图片来源：thegatewaypundit.com
-
-纽约市市长埃里克**·**亚当斯将解除该市对室内商业、餐饮和活动的强制疫苗接种规定，如果**Covid-19**病例继续呈下降趋势。
-
-“纽约市的病例数字逐日下降，所以，只要Covid指标显示低水平的风险，不出意外这周，在星期一，３月７日我们将会取消Key2NYC规定。”亚当斯宣布。“这将给企业主时间去适应，且也允许我们保证我们是在为纽约人民做最好的公共卫生决定。” NBC新闻报道。
-
-纽约市是美国第一个要求在室内接种疫苗的大城市，它将在未来几天取消对室内商业、餐饮和活动的授权。
-
-埃里克-亚当斯星期天宣布他的管理团队将在３月７日结束疫苗强制接种规定只要Covid-19病例数量持续下降。他加入了最近几周在西雅图和波士顿等城市做出类似决定的公共官员行列。亚当斯说，只要没有出现意外的高峰，公立学校的室内口罩强制规定也将在同一天取消。
-
-纽约针对工人的疫苗强制接种规定仍然有效。
-
-ESPN:由于纽约市市长埃里克·亚当斯的宣布，一个城市官员告诉WABC-TV 篮球明星凯里·欧文仍将不能在3月7日在巴克莱中心比赛，因为城市针对工人的疫苗强制接种规定仍然有效。
-
-滑稽荒诞。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/文贵天成.png)
 
 
+**郭文贵****先生****2021****年****9****月****10****日直播**
 
-> Despite NYC Mayor Eric Adams' announcement, a city official told WABC-TV that Kyrie Irving would still not be able to play at the Barclays Center on March 7 as the city's vaccine mandate for workers remains in effect. [pic.twitter.com/te7ILzsH8y](https://t.co/te7ILzsH8y)
-> — ESPN (@espn) [February 27, 2022](https://twitter.com/espn/status/1498067769908154370?ref_src=twsrc%5Etfw)
+今天在这个疫苗上，大家有什么感受了吗？我最大的感受就是：总是认为别人会感染，我们不会感染；只会死别人，不会死我们。现在大卫满血复归了，三百年的飞飞复归了，Angelia复归了，还有我们每时每刻的战友复归了。我们现在救太多太多战友了。
 
+那我现在我想问一句话，昨天的早上我问了一个我们在台湾的战友。我说：你不加入到台湾农场，你也没有投资G系列，你要药给你药了，全家你也都救回来了。我想问你几个很深刻的问题：台湾买药有这么难吗？你就买不着药吗？第二，你跟爆料革命这么几年，你真的就相信了爆料革命了吗？那你为什么不去吃羟氯喹加锌？你没打疫苗，很多人打疫苗。
 
+一定记住战友们：是因为不是被骗，不是被强迫的，是因为死亡的恐惧和无知造成的。一定是这样的，90%都是这样的。我想告诉大家的事情，打疫苗的人90%以上的人是无知，他对起码的科学的无知。第二就是怕死。一会儿就（和我）吃午饭的这个国家领导人，他打了三针了。今天晚上（和我）吃饭的领导人也打了三针了。因为七哥现在跟他吃饭，我戴口罩，我不能吃。我说：他来了，我就戴口罩，为了你的安全，我的安全，我不能摘口罩。他是怕死。
 
-**参考资料：**[thegatewaypundit][New York City to Lift Vaccine Mandate For Indoor Businesses, Dining and Events](https://www.thegatewaypundit.com/2022/02/new-york-city-lift-vaccine-mandate-indoor-businesses-dining-events/)
+然后你看到现在这个世界上，共产党组织了这么大一批砸郭的，包括策反路大脑骗、蛇妖闫，包括找爹博、癌症丽，就是因为我们说出了真相，又有国内的战友冒着生命危险告诉我们解药，这触痛了黑暗的势力。绝对这场病毒和疫苗是全世界、不仅仅是共产党，是全人类的黑暗势力和共产党的一次大的计划，那不会只死几百万人、几十万人的。你认为美国现在每九个人中一个染上病的，八个人中一个染上病的，下一个不是你吗？
 
-* * *
+我求求大家了，一定要有一个时间长度的准备，有个基本的符合逻辑、现实的思想来思考这个问题。现在拜登让打(疫苗)的政府(官员)、还有国防承包商，你是国防承包商吗？你是美国政府官员吗？他逼这些人还有军队打药，那是上天给咱的礼物。人家去反抗有效，咱去反抗有效吗？在美国战友加一起100万人，你去上大街抗议去试试，抗议一个月都有没个屁用，搭都不搭理你。只有这些国防承包商、政府官员、部队、上亿人口，人家才管用，这是多大的礼物啊？！
 
-*审核：文乐*
-*校对：阿伯塔*
-*发稿：信心的选择*
+***发布：Candy***
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-5.jpeg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
