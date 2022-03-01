@@ -15,65 +15,65 @@
 
 ---
 
-### [新中国联邦救援行动](/content/gnews/1/README.md)
+### [先熟悉HPay,再推广HPay](/content/gnews/1/README.md)
+ ` MG FARM`
+
+### [什么是“影子银行”](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [俄罗斯网络黑客科技是最厉害的](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [正道主义，贡献给全人类](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [新中国联邦救援行动](/content/gnews/5/README.md)
  ` MOSVIDEO`
 
-### [日本冻结俄罗斯总统普京等的资产](/content/gnews/2/README.md)
+### [日本冻结俄罗斯总统普京等的资产](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [泽连斯基要求俄罗斯在停火谈判之前须“停止轰炸”](/content/gnews/3/README.md)
+### [布莱恩：这个世界已经变了_完完全全地变了](/content/gnews/7/README.md)
+ ` mayflowertranslate`
+
+### [泽连斯基要求俄罗斯在停火谈判之前须“停止轰炸”](/content/gnews/8/README.md)
  ` Shuizhuyu`
 
-### [中共加紧用毒疫苗荼毒人民](/content/gnews/4/README.md)
+### [中共加紧用毒疫苗荼毒人民](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [俄罗斯警告基辅居民逃离](/content/gnews/5/README.md)
+### [俄罗斯警告基辅居民逃离](/content/gnews/10/README.md)
  ` Shuizhuyu`
 
-### [3月1日勿忘香港（图片1-8）](/content/gnews/6/README.md)
- ` 波士顿五月花农场`
-
-### [一定要了解喜币，善用喜币](/content/gnews/7/README.md)
+### [我们要真正的以善制暴，以实力制暴！](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [3/1/2022 文贵盖特：据说，普京大怒，打电话催习近平对台湾动手；面对俄乌战事，中共非但救援却疯狂控制舆论，我们救了多少大使馆人员？](/content/gnews/8/README.md)
+### [一定要了解喜币，善用喜币](/content/gnews/12/README.md)
+ ` MG FARM`
+
+### [3/1/2022 文贵盖特：据说，普京大怒，打电话催习近平对台湾动手；面对俄乌战事，中共非但救援却疯狂控制舆论，我们救了多少大使馆人员？](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共国对战乱中的同胞弃之不顾](/content/gnews/9/README.md)
+### [中共国对战乱中的同胞弃之不顾](/content/gnews/14/README.md)
  ` 扬帆枫叶快讯`
 
-### [共产党一贯的打法](/content/gnews/10/README.md)
- ` MG FARM`
-
-### [加拿大和欧洲国家对乌克兰难民提供人道援助](/content/gnews/11/README.md)
+### [加拿大和欧洲国家对乌克兰难民提供人道援助](/content/gnews/15/README.md)
  ` 扬帆枫叶快讯`
 
-### [乌克兰成为欧盟首次军事援助的国家](/content/gnews/12/README.md)
+### [乌克兰成为欧盟首次军事援助的国家](/content/gnews/16/README.md)
  ` 扬帆枫叶快讯`
 
-### [郭文贵先生揭露习近平面临的五个危机](/content/gnews/13/README.md)
+### [郭文贵先生揭露习近平面临的五个危机](/content/gnews/17/README.md)
  ` NFSC News`
 
-### [加拿大宣布对俄罗斯关闭领空](/content/gnews/14/README.md)
- ` 扬帆枫叶快讯`
-
-### [《锁链梦》这个歌一定会震动世界](/content/gnews/15/README.md)
- ` MG FARM`
-
-### [中国能呆70年执政，真是我们中国人的不幸](/content/gnews/16/README.md)
- ` MG FARM`
-
-### [4.人类历史上首次使用AI与心理学多角度协同作战](/content/gnews/17/README.md)
+### [4.人类历史上首次使用AI与心理学多角度协同作战](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [美国的选择决定人类的命运](/content/gnews/18/README.md)
+### [美国的选择决定人类的命运](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [中共对台湾的侵略将引发浩劫](/content/gnews/19/README.md)
+### [中共对台湾的侵略将引发浩劫](/content/gnews/20/README.md)
  ` NFSC News`
-
-### [文贵先生盖特精要- 2022/03/01](/content/gnews/20/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [【圆成原创】止战！紧急呼吁传播俄罗斯入侵乌克兰的战争的真相！](/content/gnews/21/README.md)
  ` 温哥华圆成农场🇨🇦`
