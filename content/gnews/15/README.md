@@ -2,34 +2,35 @@
 ---
 
 
-## 拜登指派跨党派代表团于3月1日访台
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2089288/)
+## 俄罗斯军队使用大规模杀伤性武器袭击主要城市的平民
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2089486/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月28日晚，台湾总统府发言人张惇涵表示，美国跨党派代表团将于3月1日至2日，搭乘行政专机来台湾访问。
+翻译：zicoround
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/https___imgix-proxy.n8s.jp_DSXZQO1653552001032022000000-1-edited.jpg)图片来源：路透社
 
-该代表团将由美国前参谋首长联席会议主席穆伦率领，成员中包括前国防部政策次长佛洛诺伊、前白宫副国安顾问欧苏利文、前白宫国安会亚洲事务资深主任葛林，及前白宫国安会亚洲事务资深主任麦艾文，显示出两党派对印太区域及台湾安全议题的高度共识与重视。
+在正受到俄罗斯入侵的乌克兰，两军的攻防势态还在增强。据信， 在首都基辅以及第二大的哈尔科夫等主要城市，俄军使用导弹等武器对平民进行的无差别攻击正在扩大。
 
-张惇涵称，蔡总统将于3月2日与代表会谈，双方将就台美关系及国际区域局势等各项重要议题交换意见。此次台美交流将促进双边关系的稳健发展，共同维护区域的和平稳定，也突显台美关系「坚若盘石」的深远意义。
+1日，乌克兰独立新闻社报道，俄罗斯军队向基辅附近的一家妇产医院发射了炮弹。
 
-参考链接：[拜登指派跨黨派代表團3/1訪台 府：彰顯台美關係堅若磐石](https://www.cna.com.tw/news/aipl/202202285010.aspx)
+据美国CNN等新闻社报道，哈尔科夫市官员指责俄军的入侵是“对乌克兰人的大屠杀”。1日，该市中心的政府大楼与住宅区等也受到导弹袭击，而且攻击愈演愈烈。据路透社报道，乌克兰政府官员表示这起袭击至少造成10名遇难者身亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+俄罗斯军队将继续入侵。据互联网通讯社报道，俄罗斯国防部3月1日警告称，将攻击位于基辅的乌克兰当局治安设施，并呼吁周边居民避难。塔斯社报道，俄罗斯国防部长绍伊古1日说，“我们将继续进行特别军事作战，直到预期目标达成为止。”
 
-总编：Zion文恩
-编辑：宁文静
-校正/发稿：谐趣园
+乌克兰驻美国大使周四告诉路透社等多个媒体，俄军在入侵乌克兰时使用了温压弹，这是一种被认为可造成非人道伤害的大规模毁灭性武器。大使批这是“受国际条约限制”的炸弹
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+俄罗斯、乌克兰两国2月28日就停火问题在白俄罗斯进行了五个小时的谈判。 有消息称下次谈判将会于3月2日进行，虽然以达成共识为目的但却有很深的鸿沟。一方面乌克兰要求撤出所有俄罗斯军队，而俄罗斯一方则强硬地要求乌克兰的非军事化并保持中立，以及追究现任政府的责任。
+
+**参考资料：**[nikkei][ロシア軍、主要都市で民間人攻撃　大量破壊兵器も使用か](https://www.nikkei.com/article/DGXZQOGR016U80R00C22A3000000/)
+
+* * *
+
+*审核：天天*
+*校对：宫米叶*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
