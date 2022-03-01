@@ -2,44 +2,74 @@
 ---
 
 
-## 郭文贵先生怕的不是共产党而是阿猫阿狗九指妖路大脑袋
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2089032/)
+## 【短访谈】乌克兰负责数位转型的副部长Alex Bornyakov，说明他的国家是如何利用 &#8220;IT军队 &#8220;，来对抗俄罗斯的虚假信息和网络攻击。
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2089098/)
 
-G-TV视频链接：https://gtv.org/video/id=62164cf31408ee3a03a3c8fe
+作者：香草山信息组 — 我不在這裡
 
-**郭文贵先生：**在美国安保都一样，而且我到哪国去都是国家，肯定是我跟英国政府不谈好我肯定不去，没有英国政府保护我，我肯定不去，个人保安是不可能让你安全的——在任何地方。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
 
-我们不怕共产党，怕谁你知道吗？怕那些流氓、怕“九指妖”过来拿九个手指头捅我一下子 “嘶”是吧？“九指妖”、“九指魔”来了，我担心这个你知道吗？我还不能还手是吧？九指“唰”就来两下子是吧？那多恐惧呀，那我得挡是吧？我得挡，那九指“啪啪啪啪”，然后人家旁边儿英国的M16说：“哎，这是一个特殊人才不能还手啊。
 
-哇噻！然后“路大脑袋”到那儿“咔咔”两口痰“哼哼哼”——哎呀哇噻！弄得我受不了！我担心这！再一个就是“蛇妖闫”晃着肩过来了（演示晃肩走路的动作）“嘚嘚嘚嘚”，她来回咱受不了啊！她一来咱浑身发抖，你还不能还击，咱怕这你知道吗？不怕共产党，怕共产党派来的叫做什么“阿猫”、“阿狗”、“蝇蝇”、“狗狗”来骚扰咱。
 
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-编辑整理：Jacques；
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-01-17.55.50.png)图片来源:MSNBC morning. joe
+&lt;主持人&gt;:
 
-字幕档制作：兵嫂；
+我们一直在对这一计划进行討论：普京仍然认为这是一场类似于1975年的战争，他不明白情况到底是如何发生了如此彻底的变化。说到发布信息的重要性，不仅是美国人，全世界的人们都被你们的总统泽伦斯基和他的内阁部长们，在俄罗斯入侵的第一个晚上，于基辅的街头发表的讲话所震惊。他说：”我们仍然在这里，我们不会离开”。
 
-视频制作及上传：Cindy；
+你们所做的一切非常的重要！ 這不仅是对乌克兰人说，也是对全世界的盟友说。
 
-G-News发布：海贼王M.D.LUFFY；
+&lt;亚历克斯-鲍尔尼亚科夫&gt;：
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+是的，极其重要。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+我认为，在与俄罗斯的战役中，数位化的轉型主要的应用是，打击来自俄罗斯方面的虚假信息、他们传播假新闻和图像。他们只是在撒谎。他们创造的形象是，这是一个拯救人民的特别行动，其实不然。我们这里的每个人都反对，敌方没有想到会是这样的结果。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+精神上的支持是非常重要的，我们所做的也是如此。我们把他们所有的信息告知国人，以及关于我们军队的发展和最近的發生的事情，我们尽可能多地传播给我们的人民。我们需要聯合在一起，保持团结，保持坚强。人民对我们说谢谢，因为他们看到了我们的军队是如何反击，并向他们提供支持的。他们知道什么时候该躲起来，所以就像我个人一样，我连续几天每隔几个小时就会听到警报声，所以我们有几个频道会宣布这些导弹袭击，这样我们就可以躲起来。现在有沟通真的很重要。当我们看到总统尽其所能，与内阁的部长们，与我们的军队團結在一起，这真的让我们很振奋。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+&lt;主持人&gt;：
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+美国官员认为，乌克兰人毫无疑问正在赢得信息战，赢得宣传战。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+这场战争是在社交媒体时代进行的，它有助于凝聚乌克兰公民和盟友的力量。 的问题是这样的。我们当然知道俄罗斯人和那些在俄罗斯活动的团体，知道黑客會试图破坏设备，破坏社交网络，破坏互联网，攻击政府网站。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+你们是如何抵制这种行为的？
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+&lt;亚历克斯-鲍尔尼亚科夫&gt;：
 
-G-TV：日本银河系农场。
+是的，他们立即试图这样做。我们有一个独立的部门是负责处理网络攻击问题的。此外，我们创建了IT军队，所以我们呼吁世界上每一个乌克兰公民加入其中。到目前为止，约有12万人加入我们的阵营，以提供打击俄罗斯人的网络威胁。这是一个很好的現象，在此同时，我们不仅可以保护自己，我們还开始策略性的干擾了俄罗斯当地政府的线上服务。因为乌克兰的IT军队的攻擊，他们的金融基础系统现在已经斷线了，我们已經开始在他们的领土上成功的进行了反击。所以结果是，我们摧毁了他们的股票市场，导致他们无法运行。他们的ATM机器坏了，YouTube频道也在关闭。
+
+我们与谷歌、亚马逊、Facebook和其他国际平台Twitter、Instagram合作，并阻止那些传播错误信息的渠道。所以现在有很多数位化转型的任务已经在做。但是，是的，我们主要的任务还是保卫。我們所有的政府服务都是稳定的。像在無法工作的地区的人，他们仍然可以交税，仍然可以使用政府基础设施。所以一切都在运作。
+
+原文链接:[https://www.msnbc.com/morning-joe/watch/how-ukraine-is-using-an-it-army-to-win-the-war-online-134198853882](https://www.msnbc.com/morning-joe/watch/how-ukraine-is-using-an-it-army-to-win-the-war-online-134198853882)
+
+MSNBC.com
+
+How Ukraine is using an ‘IT army’ to win the war online Ukraine’s Deputy Minister for Digital Transformation Alex Bornyakov joins Joe Scarborough and Mika Brzezinski to discuss how his country is using an “IT Army” to fight Russian disinformation and cyber attacks
+
+2022年3月1日
+
+（本文仅代表作者个人观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-2.jpg)
+
+*编辑 /校对*：*Yuki*jiang
+
+*发稿：Yuki*jiang
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

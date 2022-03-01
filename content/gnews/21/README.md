@@ -2,16 +2,18 @@
 ---
 
 
-## 中共对台湾的侵略将引发浩劫
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2090072/)
+## 郭文贵先生揭露习近平面临的五个危机
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2090298/)
 
-作者：澳大利亚雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00.jpg)
-爆料革命一路走来，郭文贵先生的情报一次又一次地得到验证。俄罗斯在西线制造乌克兰危机，是配合中共在东线对台湾的动手。又是郭先生早早把习近平和普京二人合演的这台大戏，提前剧透了内幕，把这场危机的实质提前报告给了世人。 现在郭先生再一次发出警报，中共侵台战争随时爆发。中共对台湾的大冒险不仅会给台湾人民带来深重的灾难，也同样会让中共自身走向房倒屋塌、自取灭亡的可悲下场。
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在2月27日的大直播中，郭文贵先生揭露了习近平接下来将面临五个危机。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-1.jpg)
+首先在台海问题上，如果习近平是选择侵略，将会招致海外各国尤其是美日两国的反击。相反，如果习近平放弃攻台，则会面临极其惨烈的内部斗争，这是习将面临的第二种危机。即使习能够在这两个结局之后得以苟延残喘，也会因为台海问题上受到的羞辱，而郁闷至死。第四，普京因为在乌克兰事件中被世界孤立，一定也不会放过习近平。最后一点，也是郭先生一直提到的，习近平的身体每况愈下，能撑多久都是未知数。
 
-参考链接：[中共对台湾的侵略将引发浩劫](https://gtv.org/video/id=621b7633019ef64da651ee6c%EF%BC%88)
+参考链接：[郭文贵先生揭露习近平面临的五个危机](https://gtv.org/video/id=621b7633019ef64da651ee6c（)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
 总编：DM
 编辑：DM
