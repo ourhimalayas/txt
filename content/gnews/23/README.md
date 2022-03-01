@@ -2,24 +2,32 @@
 ---
 
 
-## 视频｜日本将制裁包括普京在内的俄政府官员
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2086338/)
+## 有声|疫苗灾难的爆发程度以及应对方法
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2086368/)
 
-制作：香草山视频部
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在2月23日的大直播中，郭文贵先生分析了疫苗大灾难爆发的程度，以及战友们应对的办法。
 
-当地时间2月27日，日本首相岸田文雄在记者会上表示，决定对俄罗斯总统普京和主要俄政府官员，采取冻结金融资产等制裁措施。
+郭先生指出，在全世界反对强制疫苗的抗议浪潮中，新中国联邦一直站在前列。班农战斗室、艾滋病的发现者吕克.蒙塔尼耶教授，以及各国有良知的医学家，都对反强制疫苗做出了卓越的贡献。全世界将近50亿人注射了疫苗，可能会有20亿人患病、致残或者死亡。这个数字比原先的估计要好很多。
 
-岸田文雄称，俄罗斯对乌克兰的入侵行动，是单方面企图用武力改变现状，这动摇了国际秩序的基础。日方将坚决和美欧等国一道阻止俄罗斯被制裁的银行机构，进入SWIFT国际结算系统。
+郭先生强调，5月份全世界疫苗灾难大爆发后，战友们要冷静对待，减少外出，尽量不要染病。另外，世界上的正义力量也在加紧研制疫苗解药。身在欧洲的科学家表示，会找出许多出人意料的解决方法。
 
-据悉，日本政府还将继续向乌克兰提供紧急人道主义援助。
 
-发稿：小野貓（文凱琳）
+
+文字版原文：[疫苗灾难的爆发程度以及应对方法](https://gnews.org/zh-hans/2068421/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

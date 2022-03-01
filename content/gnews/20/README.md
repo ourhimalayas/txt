@@ -2,32 +2,24 @@
 ---
 
 
-## 有声|疫苗灾难的爆发程度以及应对方法
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2086368/)
+## 视频|雅虎彻底终止在中共国所有服务
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2086450/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在2月23日的大直播中，郭文贵先生分析了疫苗大灾难爆发的程度，以及战友们应对的办法。
+制作：香草山视频部
 
-郭先生指出，在全世界反对强制疫苗的抗议浪潮中，新中国联邦一直站在前列。班农战斗室、艾滋病的发现者吕克.蒙塔尼耶教授，以及各国有良知的医学家，都对反强制疫苗做出了卓越的贡献。全世界将近50亿人注射了疫苗，可能会有20亿人患病、致残或者死亡。这个数字比原先的估计要好很多。
+台媒2月27日报道，美国网络服务公司雅虎在去年宣布退出中共国市场后，近日再度宣布，将于2月28日停止中共国的电子信箱服务。此举标志着，雅虎彻底终止在中共国的所有业务。
 
-郭先生强调，5月份全世界疫苗灾难大爆发后，战友们要冷静对待，减少外出，尽量不要染病。另外，世界上的正义力量也在加紧研制疫苗解药。身在欧洲的科学家表示，会找出许多出人意料的解决方法。
+2021年，雅虎在退出中共国的声明中指出，有鉴于中共当局日益严酷的商业和法律环境，该公司的整套服务自2021年11月1日起，将无法在中共国大陆使用。
 
+雅虎官方表示，在2月28日之后雅虎邮箱将无法再从中共国接受或发送电子邮件。据悉，中共当局去年对多个产业实施范围广泛的监管，以加强对经济的掌控，而跨国科技公司首当其冲。
 
-
-文字版原文：[疫苗灾难的爆发程度以及应对方法](https://gnews.org/zh-hans/2068421/)
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
+发稿：林礼
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

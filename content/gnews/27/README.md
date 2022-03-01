@@ -2,28 +2,20 @@
 ---
 
 
-## 新中国联邦救援行动，只为行于“正道”
-` 新西兰伊甸农场听写编辑组` [轉載自GNews](https://gnews.org/zh-hans/2086200/)
+## 法制基金法治社会的力量
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2086305/)
 
-作者：Avaliu（老刘）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/救援1.png)
-赞，新中国联邦
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-——无关政治、无关立场，只行“正道”！
+*发布：陶子*
 
-2022年2月24日，俄罗斯总统普京发动了侵略乌克兰的战争，点燃了侵略战争的火焰！
-
-一时间，乌克兰有飞弹轰炸，坦克横行；有火雾弥漫冲天，房倒楼塌；有一串串死亡数字报现；有帅气的小伙、妙龄的美人儿横尸街头；有即将参军抗暴的父亲埋头在小女儿的胸口，泪水喷涌；有老妇人站在街口哭诉：我们怎样活？……
-
-这一切，让历史上一次次侵略战争的惨绝人寰再现！一股股怒火在我胸中升腾！满了胸膛，刺破喉咙！
-
-2月26日，郭文贵先生发出紧急动员令！新中国联邦宣布：营救！营救！营救！在联合国国际救援组织下，与国际NGO组织合作；法治基金营救资金到位；飞机、物资齐备；各救援小组科学配备；救援的战士们整装待发，个个精神百倍！去乌克兰！救出我们的战友和家人；救出被中共抛弃的中国同胞；救出美国友人；也要救助那些爱党的红粉。
-
-新中国联邦的救援行动，无关政治，无关立场，只为行于“正道”。赞！赞！赞！
-
-校对：面包树/一念
-
-上传：一念
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

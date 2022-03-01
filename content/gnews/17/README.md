@@ -2,24 +2,22 @@
 ---
 
 
-## 视频|雅虎彻底终止在中共国所有服务
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2086450/)
+## 日本众议院通过&#8221;最强烈地谴责&#8221;俄罗斯入侵乌克兰的决议
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2086494/)
 
-制作：香草山视频部
+撰稿：东京樱花团/百花李香
 
-台媒2月27日报道，美国网络服务公司雅虎在去年宣布退出中共国市场后，近日再度宣布，将于2月28日停止中共国的电子信箱服务。此举标志着，雅虎彻底终止在中共国的所有业务。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/日本众议院通过最强烈地谴责俄罗斯入侵乌克兰的决议.jpg)[图片来源](https://www.google.com/search?q=Japan+Ukraine&amp;tbm=isch&amp;ved=2ahUKEwiRg4PQpaT2AhVVSfUHHXeCCJIQ2-cCegQIABAA&amp;oq=Japan+Ukraine&amp;gs_lcp=CgNpbWcQAzIECAAQHjIGCAAQCBAeUABYAGDyBWgAcAB4AIABYIgBYJIBATGYAQCgAQGqAQtnd3Mtd2l6LWltZ8ABAQ&amp;sclient=img&amp;ei=Xb4dYtHgKNWS1e8P94Sik)
 
-2021年，雅虎在退出中共国的声明中指出，有鉴于中共当局日益严酷的商业和法律环境，该公司的整套服务自2021年11月1日起，将无法在中共国大陆使用。
+日本众议院在3月1日的全体会议上通过了一项”最强烈谴责”俄罗斯入侵乌克兰的决议。除令和新选组外，大多数执政党和反对党都赞成该决议，呼吁俄罗斯立即停止攻击并撤出其部队。
 
-雅虎官方表示，在2月28日之后雅虎邮箱将无法再从中共国接受或发送电子邮件。据悉，中共当局去年对多个产业实施范围广泛的监管，以加强对经济的掌控，而跨国科技公司首当其冲。
+该决议将俄罗斯的行动定性为”侵略”，谴责其侵犯了乌克兰的主权和领土完整，严重违反了禁止使用武力的国际法。决议敦促日本政府尽最大努力确保生活在乌克兰的日本国民的安全，并采取 “严厉措施”，包括制裁。该决议由两党议员组成的小组提交。
 
-发稿：林礼
+信息来源：[衆院、ロシア侵攻を「最も強い言葉で非難」…れいわ新選組除く与野党の賛成多数で可決](text=)
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

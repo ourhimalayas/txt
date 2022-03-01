@@ -2,43 +2,43 @@
 ---
 
 
-## 郭先生等PAG宣布后再出手,要查清PAG投资来龙去脉
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2086334/)
+## 有声|新中国联邦打破红歌教育，创立健康教育
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2086366/)
 
-G-TV视频链接：https://gtv.org/video/id=62164b6a1408ee3a03a3c8b4
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+中共的教育不是培养人才，挖掘潜力，而是从小强力洗脑，从娃娃抓起几代如此，我们被意识形态灌输的无知，分不清是非对错，善恶美丑，才会在素未谋面的毛，周去世时，不管大人小孩都莫名其妙的伤心，觉得天塌下来了，而对身边的父母同学却缺少尊重关心，这是严重的心理失衡问题，这导致了个性的缺陷，可见中共的教育非常恶劣。
 
-**郭文贵先生：**好，好啊，PAG的官司就这样，PAG等他们宣布，等他们宣布。然后咱们再出手，再采取任何行动。
+在当今昂贵的学费压力下，又没有优质的师职，中共的教育施行死记硬背，重复抄写，枯燥乏味，让很多孩子产生厌学逃学，堵塞了独立思考能力，更别提什么创新精神，而着重分数的教育就是一场灾难，无论父母孩子承受中考高考的巨大煎熬，多少孩子失去了理想梦想，多少家庭承受亲情的失衡，德体智只是一句口头禅，伪斯文，中共不健全的教育制度反而把原本健康的人心压制变形，没有良好的心理素质哪来的良好品质，多的是不分善恶的红色心霾。没有基本辨别善恶真假的常识，缺少坚毅的性格，天赋被挖杀，发挥不出优秀，让中国人从小就在无意识中带有了自卑、懦弱、自私，我们的人种没有问题，这是中共喂的所有的毒。
 
-然后我们会听到PAG官司，就是太平联盟官司在美国。对我们很不利的判决，但是恰恰，我们会因此继续跟它打下去。我们跟PAG官司打得不仅仅是钱，我们要打得是PAG的单伟建，和单伟建整个太平联盟他所有的投资，和投资来源和他投资去向。跟瑞银是一样的。
+七哥在直播中数次提醒新中国联邦要重视教育，击溃中共种下的毒，提倡健康的自由的充满快乐的教育方式，创造良好的学习环境把中国人的未来和希望做好。
 
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
+呼吁富豪的战友支持教育，七哥邀战友一起出巨资支持教育一律免费，强调GEDU 一定要做好，鼓励挖掘优秀师职，重金聘请全球有能力的老师共同参与教育，激励GEDU的老师，发放高于新东方1.5倍的薪水，如果有特殊贡献，工资将为原工资的两倍工资。
 
-编辑整理：Jacques；
+七哥在2022/2/25盖特说“决定一个人能走多远的因素往往不是智商，不是情商，而是性格。中共国的教育系统培养不出坚强的性格，可以训练自制力和毅力吗？
 
-字幕档制作：兵嫂；
+新中国联邦打破中共的教育垄断，让人们随时随地可以享受最好的教育权利。
 
-视频制作及上传：Cindy；
+七哥在盖特说“向着长期的目标，坚持自己的激情，即便历经失败，依然能够坚持不懈地努力下去，这种品质就叫做坚毅。如果一个孩子从小就培养出扶弱济贫有勇气，有良知的人性教育，我们每个人面对的未来都将是美好的。
 
-G-News发布：海贼王M.D.LUFFY；
+明天上午8:30 G EDU教育．就是场特殊专场直播。七哥引领新中国联邦共谈未来教育。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+共产党是彻底的完了，为了让爆二代健康成长，也让我们这一代早日洗净心霾，新中国联邦的教育提在了首位！
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+文字版原文：[新中国联邦打破红歌教育，创立健康教育](https://gnews.org/zh-hans/2067802/)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

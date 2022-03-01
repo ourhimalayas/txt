@@ -2,23 +2,24 @@
 ---
 
 
-## 乌克兰将发行战争债券为抗俄武装部队筹集资金
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2086505/)
+## 美国爱彼迎公司为乌克兰难民提供住宿援助
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2086531/)
 
-#### 翻译/撰稿：zzballack
+撰稿：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2022/03/45.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fmedia-cldnry.s-nbcnews.com%2Fimage%2Fupload%2Frockcms%2F2022-02%2Fairbnb-ukraine-refugee-mc-2x1-220228-3fa27d.jpg&amp;imgrefurl=https%3A%2F%2Fwww.today.com%2Fnews%2Fnews%2Frussia-ukraine-crisis-airbnb-offer)
+据朝日新闻报道：2月28日，美国公司爱彼迎（Airbnb）租房网站宣布表示，将为来自被俄罗斯入侵的乌克兰的10万名难民暂时提供免费住房。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1.jpg)图片来源：金融时报
-据《雅虎财经》2月28日报道，乌克兰将发行战争债券为其抗俄武装部队筹集资金，乌克兰政府希望从国际债券投资者那里筹集到13.6亿美元的资金。
+该公告指出，乌克兰接壤的欧洲国家的领导人，包括波兰、罗马尼亚和匈牙利等国家领导人提出愿意帮助。而据法新社报道，自俄罗斯入侵乌克兰开始以来，约有40万乌克兰人进入欧盟。其中近一半的人已经逃到了波兰。
 
-以乌克兰货币格里夫纳（hryvnia）发行的战争债券将于本周二（3月1日）开始拍卖。债券为一年期，回报率将在拍卖时确定。
+该公司在去年8月伊斯兰教塔利班在阿富汗夺取政权时，也提供了人道救援，为来自该国的2万名难民提供了住房。
 
-乌克兰财政部说：“在俄罗斯进行军事侵略的时候，财政部向公民、企业和外国投资者提供投资政府战争债券的机会以支持乌克兰的预算。”乌克兰宣布发行战争债券的当天，俄罗斯卢布汇价因西方国家加大对俄制裁力度而重挫29%。
+信息来源：
 
-乌克兰已得到了多国的军事支持。德国决定向乌克兰提供1000枚反坦克武器和500枚“毒刺”防空导弹，打破了其从不向冲突地区输送武器的承诺。欧盟表示，它将向乌克兰军队提供价值4.5亿欧元的武器装备和其他军用物资。
+[エアビー、ウクライナ難民10万人に住居提供　欧州首脳に支援申し出](https://www.asahi.com/sp/articles/ASQ31057QQ2XOIPE03K.html?ref=gunosy)
 
-新闻来源：[Ukraine to auction war bonds to fund armed forces](https://uk.finance.yahoo.com/news/ukraine-to-auction-war-bonds-to-fund-armed-forces-173623142.html)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

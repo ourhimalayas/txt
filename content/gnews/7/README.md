@@ -2,24 +2,30 @@
 ---
 
 
-## 美国爱彼迎公司为乌克兰难民提供住宿援助
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2086531/)
+## 中日财经爆|日经指数3月1日收于26,844 点 连续3个交易日上涨
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2086553/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2022/03/45.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fmedia-cldnry.s-nbcnews.com%2Fimage%2Fupload%2Frockcms%2F2022-02%2Fairbnb-ukraine-refugee-mc-2x1-220228-3fa27d.jpg&amp;imgrefurl=https%3A%2F%2Fwww.today.com%2Fnews%2Fnews%2Frussia-ukraine-crisis-airbnb-offer)
-据朝日新闻报道：2月28日，美国公司爱彼迎（Airbnb）租房网站宣布表示，将为来自被俄罗斯入侵的乌克兰的10万名难民暂时提供免费住房。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-3.jpg)
+[图片来源](https://www.nasdaq.com/articles/tokyos-nikkei-share-average-rises-2.01-pct)
 
-该公告指出，乌克兰接壤的欧洲国家的领导人，包括波兰、罗马尼亚和匈牙利等国家领导人提出愿意帮助。而据法新社报道，自俄罗斯入侵乌克兰开始以来，约有40万乌克兰人进入欧盟。其中近一半的人已经逃到了波兰。
+东京证券交易所3月1日，日经平均指数（225只成分股）收盘价较前一交易日上涨317.90点，收盘报26,844.72点，连续3个交易日上涨。
 
-该公司在去年8月伊斯兰教塔利班在阿富汗夺取政权时，也提供了人道救援，为来自该国的2万名难民提供了住房。
+俄罗斯和乌克兰之间继续进行停火谈判的前景支持了投资者情绪。半导体相关股因前日美股高科技股上涨而上涨，买盘在各行各业蔓延。主要证券公司认为，“俄罗斯的袭击仍在继续，股价趋于不稳定”。
 
-信息来源：
+东京证券交易所指数（TOPIX）显示东京证券交易所第一部整个价格走势，收盘报 1897.17点，上涨 10.24 点。
 
-[エアビー、ウクライナ難民10万人に住居提供　欧州首脳に支援申し出](https://www.asahi.com/sp/articles/ASQ31057QQ2XOIPE03K.html?ref=gunosy)
+消息来源:
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+[日経平均、一時２万７千円台を回復…半導体関連株が上昇](https://www.yomiuri.co.jp/economy/20220301-OYT1T50119/)
+
+[日経平均終値、３１７円高の２万６８４４円…３営業日連続で上昇](https://www.yomiuri.co.jp/economy/20220301-OYT1T50205/)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
