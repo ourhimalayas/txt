@@ -2,28 +2,50 @@
 ---
 
 
-## 秘翻在线： 中共在俄乌战争中再次威胁世界
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2087490/)
+## UBS立案前的去年11月份七哥拒绝与江志成等海外接触
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2087611/)
 
-**撰稿：葛大饼**
+G-TV视频链接：https://gtv.org/video/id=62164bec1408ee3a03a3c8d2
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/33.jpg)
-根据2022年3月1日 凤凰新闻报道，俄罗斯日增确诊20万，  是世界上疫情最严重的国家之一。
+**郭文贵先生：**我这个官司在去年11月份的时候，共产党曾经派出官方的绝对代表团，中国银行、中国的人民银行几大银行的，就是过去很牛的人找到欧洲的某前领导人，因为这个我们签了NDA，永远不能说的。
 
-新闻称由于俄乌战争，疫情不再是俄罗斯要重点面对的问题， 此外俄罗斯境内出现了反战游行、聚会，这也必然给病毒的传播带来机会，战争是会让疫情更严重，蒙古、满州里是其外溢“重灾区” ，除了满洲里，黑龙江绥芬河边境口，同样受到邻国疫情的压力。
+找他来，跟我说理，包括当时是江家江志成是里面成员。就是本来说要跟我接触或跟我家人在海外接触，或者跟我的代表接触，我们全都拒绝了。
 
-公卫专家担忧俄乌战争可能加剧中共新冠病毒的传播，乌克兰和俄罗斯目前正处于奥密克戎最新一波疫情的最高峰，而俄乌战争使两国的疫情检测几乎停滞。 联合国预计，这场战争可能导致多达500万乌克兰人逃往国外,而这将在欧洲引发70多年来最严重的难民危机，有专家已预警，乌克兰周边国家，近期内将会爆发新一轮的中共新冠疫情，以及可能的脊髓灰质炎病毒感染。
+但是他跟欧洲这个领导人——法国的一个前总理，他说：“只要郭文贵和解，所有现在在香港查封资产、国内资产，全部还给他，管的基金的，包括UBS官司损失的钱一分不少的给他，前提是永远不能再对UBS起诉；第二，在香港查封的资产，他永远不追究查封的后果责任。”
 
-新闻提醒民众：接种中共病毒（Covid）疫苗，可以大大降低感染后死亡的风险，但是在残酷战争中，是没有疫苗可以减少死亡的。随着俄军占领了乌克兰首都基辅的切尔诺贝利核电站，这个消息引起了周边国家的紧张，另一方面在前苏联时期，乌克兰有着大规模杀伤武器实验室和研究人员，那里保存着一些病原体，如果战争导致停电、实验室安全系统的破坏，病原体就有可能泄漏。
+我们光在新加坡的那个叫什么银行？DBS光那一个账就几十亿现金，光资产都是几百个亿。你想想共产党宣传到现在就是“七哥没钱了”，头两天还黑盖特：“七哥没钱了”。
 
-中共官媒想表达的是：战争很残酷，谁都有可能会死，中共病毒和疫苗致死率和战争比起来都是小事，大家不要纠结了！为马上爆发的疫苗灾难甩锅！顺带还威胁了下大家，我们还有很多病毒要放出来，还有核武器，核泄漏的手段！
+你见过真正的中国人有像七哥这么，曾经有财富有钱有几个？你告诉我，包括马云，他吹“狼蛋”呢，他比现金他差远了，任何一个中国企业负债率上真正的没有一个能比得上七哥的企业，一个都没有，就是我们的家族企业，一个都没有。从纯现金到今年玩儿的这几年，你看，我们是最牛的！
 
-**[新闻来源](https://news.ifeng.com/c/8E1r8keRxdN)**
+那么当时来这个代表说一句话，其中一个人跟我很熟的，就是刘彦平很好的一个哥们儿，他说：“刘彦平这个事情，跟你打交道，老郭，对你佩服得五体投地。”
 
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
+编辑整理：Jacques；
 
-#  
+字幕档制作：兵嫂；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

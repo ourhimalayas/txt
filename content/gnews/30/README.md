@@ -2,36 +2,38 @@
 ---
 
 
-## 卢布暴跌，俄罗斯央行大幅上调基准利率
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2086760/)
+## 韩国政府向乌克兰提供1000万美元用于人道救援
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2087298/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：首尔天池农场—追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-71.png)
+2月28日，韩国外交部宣布，韩国决定向乌克兰提供1000万美元的紧急人道主义援助，用于帮助乌克兰政府、民众和难民。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-31.png)
+外交部指出，将通过与乌克兰及其周边国家政府和国际组织协商，确保援助尽快到位。
 
-#### 整理：围剿维尼熊
-编辑：文泓
+联合国难民事务高级专员估计，将有超过 400 万乌克兰难民逃往波兰、匈牙利、罗马尼亚和斯洛伐克等周边国家。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片9.png)
+外交部表示，希望韩国政府的支持能够为乌克兰民众和难民提供切实帮助，政府并计划为解决乌克兰人道主义危机作出积极力量。
 
+参考链接：[外交部向烏克蘭公民和難民提供1000萬美元](https://news.kbs.co.kr/news/view.do?ncd=5405763)
 
-当地时间2月28日，据德国之声报道，为应对卢布贬值，俄罗斯央行将基准利率大幅上调至20%，同时出台一系列措施，防止卢布继续暴跌及国内爆发高通胀。这一前所未有的举措可能给俄罗斯金融带来破坏性后果。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-除了上调基准利率外，俄罗斯央行还下令采取一系列措施帮助银行应对危机，包括向金融系统注入更多资金并放宽银行业务限制。俄罗斯央行暂时禁止非俄罗斯居民出售政府债券，防止外国投资者急于套现使卢布承受更大压力。
+总编/编辑：DM
+校对/发稿：小野貓（文凱琳）
 
-位于奥地利的俄罗斯联邦储蓄银行欧洲公司（Sberbank Europe AG）及其在克罗地亚和斯洛文尼亚的子公司声誉受到地缘政治影响，出现大量存款外流。
+**更多资讯，更多关注**
 
-欧洲央行（ECB）周一表示，在西方祭出制裁后，俄罗斯国有银行俄罗斯联邦储蓄银行（Sberbank）的欧洲分支机构正面临破产。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-参考链接：[卢布暴跌 俄罗斯上调基准利率至20%](https://www.dw.com/zh/%E5%8D%A2%E5%B8%83%E6%9A%B4%E8%B7%8C-%E4%BF%84%E7%BD%97%E6%96%AF%E4%B8%8A%E8%B0%83%E5%9F%BA%E5%87%86%E5%88%A9%E7%8E%87%E8%87%B320/a-60944143)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-发布：*wenly*
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-71.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

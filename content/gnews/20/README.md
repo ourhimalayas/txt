@@ -2,24 +2,49 @@
 ---
 
 
-## 欧盟对乌克兰的入盟申请持冷淡态度
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2087465/)
+## 2022年2月9日与沼泽地法庭较量/将赴英日/一无所有
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2087571/)
 
-撰稿：东京樱花团/盖特第一批注册
+G-TV视频链接：https://gtv.org/video/id=62164bd71408ee3a03a3c8ce
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/欧盟对乌克兰的入盟申请持冷淡态度.jpg)[图片链接](https://www.yomiuri.co.jp/pluralphoto/20220301-OYT1I50097/)
+**郭文贵先生：**所以今天三件大事：第一，我们第一次打开了和沼泽地真正的在法庭上公开较量、找回中国人在西方被共产党藏匿的财富，第一道大门打开了，这是一个；
 
-2月27日，欧盟委员会主席乌苏拉-冯德莱恩在接受欧洲新闻网采访时说：”乌克兰是我们的一员。 我们希望它能够加入进来”。作为回应，沃洛季米尔-泽伦斯基总统于2月28日签署了一份申请乌克兰加入欧盟的正式文件。并呼吁 “希望通过一个新的特别程序立即予以承认”。他补充说：”在平等的基础上，我们的目标是与所有欧洲人联合起来，我们相信，这是可行的，也是有希望的”。
+第二个，七哥宣布七哥将离开美国，到伦敦和日本生活，直接面对共产党，从现在的美国，“以美灭共”“以共灭共”，长距离灭共，直接接触，这是第二个宣布；
 
-同一天，波兰外交部长兹比格涅夫-劳在推特上发帖称，”由于乌克兰正在勇敢地捍卫自己，顽强抵抗俄罗斯的侵略，因此当下是欢迎乌克兰加入欧盟的最佳时候”，为此波兰将为乌克兰的加入进程提供一切必要的支持”。到目前为止，已有八位东欧国家的总统签署一封信，一致称乌克兰值得加入欧盟。并敦促其他成员国采取措施，给予实现乌克兰的立即加入。
+第三个，七哥正在法律上申请变得一无所有。做好一切最坏的事情发生，万一共产党弄个导弹导到日本去呢？万一下毒毒死我呢？我都会准备好。
 
-然而，2月28日，欧盟外交和安全事务高级代表何塞普-博雷尔却说，加入欧盟将需要 “许多年”。与此同时，欧盟委员会发言人收回了冯德莱恩先生的声明，并解释道，“他的意思是乌克兰是欧洲的一部分，而不是欧盟的一部分，他希望欢迎乌克兰加入欧洲”。
+然后我会让这些76个案子的缠诉，我让他们彻彻底底的到另外一个阶段去。
 
-信息源：[EU、ウクライナの加盟申請に冷や水](https://news.yahoo.co.jp/articles/927e2f09059c28c98f45768be876aff101627a29)
+所以说兄弟姐妹们，这是第三个大事儿。因为今天法律程序没完，我在等着，等着今天PAG的关于那天的开庭，初二开庭完结果出来，然后我的法律程序再进行完，就开始对PAG的真正的全面作战，全面开始。让这些PAG所有的案件揭开对美国司法腐败、对美国黑暗控制——黑金的一个全面的对西方的“蓝金黄”的一个大战，揭露的开始。所以说那个时候七哥，你将看到会出现在日本。
 
-*编辑：东京樱花团/逢⑦必变
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
+
+编辑整理：Jacques；
+
+字幕档制作：兵嫂；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

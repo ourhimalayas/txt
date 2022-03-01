@@ -2,20 +2,22 @@
 ---
 
 
-## 盖特发不实信息将封号：你可以不干事，但不能干假事
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2087776/)
+## 悲剧：5岁孩子接种辉瑞疫苗十天后阴道大出血
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2087865/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+#### 翻译                        意大利达芬奇农场                       小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-01-alle-13.03.02.png)图片来源：eventiavversinews.it
+一位5岁的女孩在接种完第一剂辉瑞疫苗以后， 阴道大出血， 这是由VAERS网站报道的。
 
-*发布：陶子*
+这位女孩是于2022年1月14日在药房接受的第一剂辉瑞疫苗（ BNT162 B2）。10后阴道大出血并去看了妇科医生。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据VAERS报道， 这位5岁的女孩， 以前并未有过阴道疾病， 只是在接种了辉瑞疫苗之后，才出现问题。
+
+她的医生们正在给她治疗非正常出血问题。女孩的病例显示她在四个星期内没有接受过任何其他疫苗，两星期内没有服过任何药物， 在接受新冠疫苗之前没接受过任何其他疫苗， 也没有任何过敏记载。
+
+原文链接：   [https://www.eventiavversinews.it/tragico-bambina-di-5-anni-soffre-di-emorragia-vaginale-10-giorni-dopo-aver-ricevuto-il-vaccino-pfizer-covid-19](https://www.eventiavversinews.it/tragico-bambina-di-5-anni-soffre-di-emorragia-vaginale-10-giorni-dopo-aver-ricevuto-il-vaccino-pfizer-covid-19)
+
+编辑、上传：  Xiao   baige
 
  
 
