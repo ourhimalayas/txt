@@ -2,23 +2,22 @@
 ---
 
 
-## 视频|俄对乌部署大规模杀伤性武器引民愤
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2085259/)
+## 秘翻在线：纽约强制疫苗措施正在逐步取消
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2085330/)
 
-制作：香草山视频部
+**翻译：Hakunamatata**
 
-2月26日下午，一家国外媒体在乌克兰别尔哥罗德市人口密集的郊区，发现了俄军部署的温压武器系统，即TOS-1A重型火焰喷射器，装备了“非制导温压弹头火箭炮”。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/22.png)
+如果中共病毒（Covid – 19）病例继续呈下降趋势，纽约市市长埃里克·亚当斯(Eric Adams)表示，将开始取对该市的公司、餐饮等行业强制接种疫苗的规定。
 
-温压弹头含有高爆炸性化学混合物，通过高温高压作用实现对目标的整体破坏，为步兵和坦克提供火力支持，在各种攻防战斗中可摧毁敌方火力，让轻型装甲车和运输工具瘫痪。温压炸弹就是真空炸弹，会在爆炸中吸入氧气，可对肌体尤其是肺部造成严重伤害，且能发出超音速冲击波，将建筑物和人体撕裂，使用一次可杀死上万人。
+亚当斯宣布，纽约市的中共病毒感染数字每天都在继续下降，因此，只要指标显示出传播风险是较低的，没有意外的话，从下周3月7日（周一），纽约将会取消强制令，也将确保政府为纽约人民做出最好的公共卫生决策。
 
-根据国际共识，温压武器不能滥用于居民区，但俄罗斯在车臣和叙利亚曾使用过它。如今俄军再次将其从军械库拿出并部署到乌克兰境内，外界普遍担心遭受乌克兰顽强抵抗而挫败的俄军，会向基辅等城市滥用这些武器，这将给平民带来非常恐怖的死伤后果。
+纽约市是美国第一个要求在室内工作员工强制接种疫苗的大都市，未来几天将取消对室内商业、餐饮强制接种疫苗的要求。周日市长亚当斯宣布，最近几周在西雅图和波士顿等城市的政府官员也做出类似决定，他也将加入他们的行列，同时他表示公立学校也将取消在室内必须佩戴口罩的规定。
 
-发稿：谐趣园
+目前为止，纽约市强制其他领域人员接种疫苗的规定将继续有效。相信未来其他领域的强制措施也都会陆续取消。
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+**[原文链接](https://nam12.safelinks.protection.outlook.com/?url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2022%2F02%2Fnew-york-city-lift-vaccine-mandate-indoor-businesses-dining-events%2F&amp;data=04%7C01%7C%7C253a094cd20645f0bd3608d9fb2832e4%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637816972360185284%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=6WbrUDqek2xHsjWX2qJKy%2Fw40aYuwwqg%2BQoDaHB92XI%3D&amp;reserved=0)**
 
  
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥保财保命报仇的意义
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2085838/)
+## 俄罗斯已经完了
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2085944/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

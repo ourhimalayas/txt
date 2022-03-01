@@ -2,8 +2,8 @@
 ---
 
 
-## 20220226文贵大直播：GEDU起点就是欧洲私人贵族学校的等级，并且全免费
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2085858/)
+## 20220227文贵大直播：动台湾对中国人一点好处都没有
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2085946/)
 
 作者:东京樱花团小视频组
 

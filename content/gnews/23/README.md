@@ -2,63 +2,26 @@
 ---
 
 
-## 澳大利亚情报人员对俄罗斯人的位置“了如指掌”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2085335/)
+## 乌克兰积极寻求欧盟的支持
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2085525/)
 
-#### 【雅典娜观察】和您一起洞察世界
+作者：香草山农场教育部—霍比特人
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据乌克兰媒体MFA of Ukraine2022年3月1日报道，乌克兰外长德米特里·库列巴发出呼吁：“鉴于局势的特别紧迫性，我们谨请求国际法院尽快就乌克兰的请求举行听证会，并呼吁俄罗斯立即停止在乌克兰的所有军事活动。”之前，他与欧盟委员会副主席何塞·波瑞尔·丰特列斯通了电话，他表示：“俄罗斯最近在乌克兰犯下的战争罪行，包括对哈尔科夫的民用基础设施进行残酷不分青红皂白的炮击，导致多名平民伤亡。HR/VP向我汇报了欧盟进一步加强对俄罗斯制裁的坚决措施。”
 
-#### 翻译/编辑：文泓
+参考链接：[https://twitter.com/DmytroKuleba/status/1498424127451025408](https://twitter.com/DmytroKuleba/status/1498424127451025408)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/fengmian.jpg)图片来源：The Guardian & 雅典娜设计组
+审核/编辑/发稿:qiutian（邱甜）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-澳大利亚内阁的国家安全委员会是监督战争的机构，本周二将开会讨论、分析和了解俄罗斯入侵乌克兰的情况。
-
-会议由总理斯科特·莫里森主持，对于澳大利亚的情报机构及其新领导人安德鲁·希勒来说，这将是一个重要时刻。
-
-在一个信息爆炸的时代，谷歌地图早在周四的俄罗斯首次攻击之前就发现其军车在通往基辅的道路上集结，谷歌地区将被期望提供比互联网上的信息更深入的见解。
-
-国安委会议议程是保密的，预计莫里森先生去年10月任命的国家情报局局长希勒先生和国防部两个情报部门之一的国防情报局的一名代表将向委员会介绍情况。
-
-内阁委员会周二的任务之一是考虑澳大利亚将提供哪些军事援助给乌克兰武装力量。可能是基于有关战争进展的情报通报，以及乌克兰人最需要什么样的武器或弹药再作出决定。
-
-据两位前澳大利亚陆军情报官员尼尔·詹姆斯和艾伦·杜邦称，**希勒先生可以获得美国和英国收集的有关战场事件的大部分信息，这些信息可能包括个别俄罗斯部队的位置。**
-
-“我们会知道相当多的事情，包括在战场上的战术层面，”现在是私人顾问的杜邦先生说：“有很多情况可以告诉，诸如坦克和部队在哪里。”
-
-**五眼情报共享联盟的密切合作将使希勒先生和他的工作人员能够获得乌克兰境内的卫星图像、无人机镜头、雷达资料和各种截获的通信信息。**
-
-詹姆斯先生和杜邦先生说，莫里森总理和他的高级部长们可能会比公众更好地了解俄罗斯入侵的进展情况，而公众只能依靠官方和非官方的媒体来源，
-
-关注基辅和哈尔科夫成功防守的媒体报道，可能让人误以为俄罗斯正在输掉这场战争。
-
-一些分析人士担心，从克里米亚推进的俄罗斯军队可能会切断东部顿巴斯地区的大量乌克兰士兵，这可能会让几个俄罗斯军队集团从东部向首都推进。
-
-普通人使用拍照手机来记录和传播录像，以及平民（可以）获得卫星照片，给情报部门带来了竞争。
-
-情报部门知道他们正在与所谓的公开来源的各种信息竞争，因此在解释（战场）数据方面变得更加复杂。杜邦先生说，能够将大量信息提炼成短小精悍的备忘录的分析师受到高度重视。
-
-詹姆斯先生说，国防情报组织的分析员可以获得被称为“共同行动画面”的数字信息资料，该资料显示了乌克兰境内军事力量的动向。分析师们的挑战之一是不要过于沉迷于个别战斗（胜利）。
-
-作为游说团体澳大利亚国防协会的执行董事，詹姆斯先生说：“你必须要有纪律，不要被战术层面的问题所干扰”。
-
-国家情报局负责监督澳大利亚政府的所有情报收集工作，这使得希勒先生成为政府的主要情报顾问。
-
-杜邦先生说，他有可能由澳大利亚秘密情报局的一名代表陪同参加国家安全委员会的会议，该局向外国派遣间谍。
-
-内阁的国家安全委员会有八名成员，除了担任主席的总理之外，委员会还包括副总理、财政部长、总检察长以及国防部长、外交部长、财政部长和内政部长。
-
-参考链接：[Russia-Ukraine conflict: Prime Minister Scott Morrison to be briefed on Russian advances (afr.com)](https://www.afr.com/policy/foreign-affairs/australian-spies-know-location-of-russians-almost-to-the-tank-20220301-p5a0i5)
-
-发布：Frank2021
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,8 +2,8 @@
 ---
 
 
-## 20220226文贵大直播：GEDU松绑政治教育 金钱教育提供健康的环境 用金钱促进教育把金钱和教育分开
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2085857/)
+## 20220227文贵大直播：佛教是一种哲学，「贪嗔痴慢疑」是揭开大自然的密码
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2085945/)
 
 作者:东京樱花团小视频组
 
