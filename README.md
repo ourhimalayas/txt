@@ -15,65 +15,65 @@
 
 ---
 
-### [3/1/2022文贵盖特：俄乌打仗，被共产党到处拉仇恨的中国人成了被恨的对象，中国人咋还相信让领导先走的共产党？可悲啊！](/content/gnews/1/README.md)
+### [3/1/2022文贵盖特：俄乌战争中最被人恨的是中国人，新中国联邦会在乌克兰周围安排飞机分别飞往美国、中国免签国或东南亚，具体请见公告](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [为抗议中共国卑劣人权问题，瑞典运动员将冬奥金牌赠予被囚书商之女](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [文•贵天成——文贵先生谈“普京”（八）](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [比特币（BTC）的估值现在高于俄罗斯卢布（RUB）](/content/gnews/3/README.md)
+### [乌克兰现在接受 Polkadot 捐赠的 DOT 代币](/content/gnews/3/README.md)
  ` 纽约香草山MOS03`
 
-### [6000同胞受困，“厉害国”去哪了？阳痿了？](/content/gnews/4/README.md)
+### [3/1/2022文贵盖特：俄乌打仗，被共产党到处拉仇恨的中国人成了被恨的对象，中国人咋还相信让领导先走的共产党？可悲啊！](/content/gnews/4/README.md)
+ ` 秘密翻译组-北美组`
+
+### [为抗议中共国卑劣人权问题，瑞典运动员将冬奥金牌赠予被囚书商之女](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [避重就轻? 8孩案嫌犯被认定“虐待罪”最多判2年](/content/gnews/5/README.md)
+### [比特币（BTC）的估值现在高于俄罗斯卢布（RUB）](/content/gnews/6/README.md)
+ ` 纽约香草山MOS03`
+
+### [6000同胞受困，“厉害国”去哪了？阳痿了？](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰总统泽连斯基就职演说全文：乌克兰人选我当总统是因厌倦了政客](/content/gnews/6/README.md)
+### [避重就轻? 8孩案嫌犯被认定“虐待罪”最多判2年](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [乌克兰总统泽连斯基就职演说全文：乌克兰人选我当总统是因厌倦了政客](/content/gnews/9/README.md)
  ` MOS香港部`
 
-### [郭文贵精品视频—“龙主”出手了！](/content/gnews/7/README.md)
+### [郭文贵精品视频—“龙主”出手了！](/content/gnews/10/README.md)
  ` cindy`
 
-### [每日快报：国际刑事法院将调查在乌克兰的战争罪行指控](/content/gnews/8/README.md)
+### [每日快报：国际刑事法院将调查在乌克兰的战争罪行指控](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [不同国家有不同的政策，我们有我们的对策](/content/gnews/9/README.md)
+### [不同国家有不同的政策，我们有我们的对策](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [G贷款、G存款、G保险](/content/gnews/10/README.md)
+### [G贷款、G存款、G保险](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [先熟悉HPay,再推广HPay](/content/gnews/11/README.md)
+### [先熟悉HPay,再推广HPay](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [什么是“影子银行”](/content/gnews/12/README.md)
+### [俄罗斯网络黑客科技是最厉害的](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [俄罗斯网络黑客科技是最厉害的](/content/gnews/13/README.md)
- ` MG FARM`
-
-### [正道主义，贡献给全人类](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [乌俄战争之际美前军事官员赴台湾表支持](/content/gnews/15/README.md)
+### [乌俄战争之际美前军事官员赴台湾表支持](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新中国联邦救援行动](/content/gnews/16/README.md)
+### [新中国联邦救援行动](/content/gnews/17/README.md)
  ` MOSVIDEO`
 
-### [日本冻结俄罗斯总统普京等的资产](/content/gnews/17/README.md)
+### [日本冻结俄罗斯总统普京等的资产](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [布莱恩：这个世界已经变了_完完全全地变了](/content/gnews/18/README.md)
+### [布莱恩：这个世界已经变了_完完全全地变了](/content/gnews/19/README.md)
  ` mayflowertranslate`
 
-### [中共加紧用毒疫苗荼毒人民](/content/gnews/19/README.md)
+### [中共加紧用毒疫苗荼毒人民](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [3/1/2022 文贵盖特：据说，普京大怒，打电话催习近平对台湾动手；面对俄乌战事，中共非但救援却疯狂控制舆论，我们救了多少大使馆人员？](/content/gnews/20/README.md)
- ` 秘密翻译组-北美组`
 
 ### [郭文贵先生揭露习近平面临的五个危机](/content/gnews/21/README.md)
  ` NFSC News`
