@@ -2,26 +2,24 @@
 ---
 
 
-## 加拿大和欧洲国家对乌克兰难民提供人道援助
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2089155/)
+## 中共对战乱中的同胞弃之不顾
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2089299/)
 
 加拿大温哥华杨帆农场 枫叶快讯
 
-采编：文莱       翻译编辑：文所未闻
-![Ukrainian refugees](https://www.ctvnews.ca/polopoly_fs/1.5796010.1645804566!/httpImage/image.jpg_gen/derivatives/landscape_960/image.jpg)图片来源：https://www.ctvnews.ca/
-据加拿大《CTV新闻》2月25日报道，加拿大国防部长阿南德当天表示，有150名该国军人组成的武装部队正在波兰待命，随时准备提供战争援助，以帮助乌克兰难民安全越过边境进入欧洲邻国。
+采编/编辑撰稿：    Quitman
+![](https://cdn.discordapp.com/attachments/759954055299858513/948271621460861058/d11133f4-8aa2-4919-8d65-06d025f39163.jpg)图片来源：GETTR
+据2月27日盖特新闻，中共住乌克兰大使范先荣当天公开表示，由于乌克兰正与俄罗斯交战，情况危殆。但在没有安全保障的情况下，中共政府暂时不能对身处战乱中的同胞实施救援，必须等到局势安全之后再安排撤侨工作。
 
-报道称，在对乌克兰多个城市和军事基地发动空袭后，俄军目前已推进到首都基辅附近，并导致成千上万的乌克兰人涌入欧洲中部和邻国地区避难。
-
-据悉，帮助难民前往加拿大是后续救援措施之一。加拿大政府正在就如何优先、快捷处理乌克兰人的移民申请制定方案。于此同时，欧盟也在为大量战争难民的涌入做准备。
-
-此外，新中国联邦和法治基金也已与联合国救援组织合作，共同启动了国际人道救援行动。并投入巨大资源无偿安排专机协助有需要的人士撤离到安全中转国。反观中共政府，懦夫嘴脸毕现，竟以“不安全”为借口拒绝实施救援，置其惶恐国民于炮火中而不顾。正义和邪暴立见，真善和假恶分明。
+然而，新中国联邦刚成立不到两年，尽管目前还没有得到世界任何国家的正式承认。但新中国联邦人率先与联合国救援组织密切合作，紧锣密鼓地开始救助被困在乌克兰战火中的中国同胞。迅速动员和集中一切力量和资源，并首批租赁美国最先进的大力神军用运输机10架次甚至更多来进行本次援救工作。 相比处处作恶的中共暴政以及信口雌黄，谎言连篇的大使范先荣，新中国联邦对待中国同胞的态度和所采取的措施实属天壤之别！
 
 校对编辑：硫酸羟氯喹64
 
 发稿：青青
 
-消息来源： [https://www.ctvnews.ca/politics/canada-european-countries-preparing-for-influx-of-ukrainian-refugees-1.5795900](https://www.ctvnews.ca/politics/canada-european-countries-preparing-for-influx-of-ukrainian-refugees-1.5795900)
+原文链接：1，[https://gettr.com/post/px7wihe4ab](https://gettr.com/post/px7wihe4ab)
+
+2，[https://gettr.com/post/px6utt349a](https://gettr.com/post/px6utt349a)
 
  
 

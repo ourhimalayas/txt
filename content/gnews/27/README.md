@@ -2,44 +2,25 @@
 ---
 
 
-## 新西兰财经G乐部2022年2月29日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2089971/)
+## 【圆成原创】止战！紧急呼吁传播俄罗斯入侵乌克兰的战争的真相！
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2089980/)
 
-采集整理：蚂蚁的城堡
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-124.png)
-**1、房地产企业融创中国惊现股债双杀**
-![img](https://media.gettr.com/group7/origin/2022/03/01/01/252db202-0070-882c-1707-6fc20842eea8/69f3e96e1d3e2fe24a4491da97a805fb_500x0.png)
-融创中国开盘后就一路下杀，盘中跌幅超过17%，收盘跌幅也达到16.34%，此外旗下物业公司融创服务收跌近8%。多笔债券杀跌，境内债“21融创03”跌10%，美元债“SUNAC 7 1/2 02/01/24”等跌幅超过6%。消息面上，多位债权人在微博等社交平台投诉融创中国商票逾期未兑付，涉及全国多个区域，金额从几万元到上百万不等。早在春节前就有媒体报道融创中国商票逾期，甚至被供应商堵门，还有上市公司通过公告“讨债”。
+2022-03-01
 
-参考链接：[https://finance.sina.com.cn/chanjing/gsnews/2022-03-01/doc-imcwipih5925971.shtml](https://finance.sina.com.cn/chanjing/gsnews/2022-03-01/doc-imcwipih5925971.shtml)
+**作者：天空的鸿雁**
 
-**2、12万股民懵了：“踩雷”恒大近29亿！兆驰股份净利狂跌81%！**
-![img](https://media.gettr.com/group11/origin/2022/03/01/01/10b14cf2-77c4-37bf-d2ca-0175bd6b82e4/83e88bcba0e5cb9b2c0ce97ac84afb23_500x0.png)
-28日晚间，兆驰股份几则公告，让12万股民都懵了。一是“爆雷”了：其披露2021年业绩预告和关于持有恒大集团及其成员企业开具的商业承兑汇票的风险提示公告：供应链“踩雷”近29亿元，净利狂跌超81%。
+今天俄罗斯入侵乌克兰的战争已进入第六天。据西方卫星图片，大批俄罗斯坦克、装甲车、火炮正在基辅周围集结，距基辅市中心只有约25公里。2月28日，俄罗斯国防部发言人科纳申科夫敦促基辅平民撤离基辅。这预示着基辅大战在即，现在可能是大战来临前的平静，这将可能是21世纪欧洲最惨烈的一幕。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/A16D021A-1AFA-4B67-941D-F638FEADA98B.jpeg)图片来源：网络
+如果有一天您不想因战火而失去自己的家园！如果有一天您不想以这样的方式和您的孩子分离！如果有一天您不想让自己的亲人生活在战争的恐惧中！如果您愿意帮助从俄乌战争中挽救无数无辜的人们的鲜活的生命！那么请加入我们的行列，动动您的手指，一起来阻止俄乌战争的继续！让我们一起努力把真相传播给更多的人们，让全世界了解更多的俄罗斯入侵乌克兰的真相，让全世界一起努力，阻止俄罗斯这种灭绝人性残暴的强权强盗行径！同时请尽力去帮助那些身受战火煎熬的无辜的平民和孩子们！愿上天保佑那些无辜的孩子远离战火！
 
-参考链接： [https://finance.sina.com.cn/stock/s/2022-03-01/doc-imcwipih5886399.shtml](https://finance.sina.com.cn/stock/s/2022-03-01/doc-imcwipih5886399.shtml)
+**编辑：卢卡斯**
 
-**3、苹果供应链巨头蓝思科技：年报净利腰斩，市值蒸发逾1300亿**
-![img](https://media.gettr.com/group50/origin/2022/03/01/01/d0252e9e-3b4c-8368-a583-bdf7c5617151/dfc265db08ae76337958e74981429b65_500x0.png)
-2月28日，蓝思科技披露年度业绩快报，公司2021年实现营业收入452.86亿元，同比增长22.60%；实现归属于上市公司股东的净利润20.88亿元，同比下降57.36%；实现扣非净利润13.17亿元，同比减少70.64%。分季度来看，蓝思科技去年各季度归母净利润分别为12.06亿元、11.02亿元、9.89亿元及-12.09亿元。公司去年业绩逐季递减，在第三季度出现同比下滑34.97%后，终在第四季度出现大额亏损。相较于2021年年初创下的41.05元/股的历史高点，公司股价累计跌幅65%，市值蒸发约1318亿元。
+**发布：歪桑**
 
-参考链接：[https://finance.sina.com.cn/jjxw/2022-03-01/doc-imcwiwss3478617.shtml](https://finance.sina.com.cn/jjxw/2022-03-01/doc-imcwiwss3478617.shtml)
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
 
-**4、美国关闭驻白俄罗斯大使馆，允许驻俄罗斯大使馆工作人员撤离**
-![img](https://media.gettr.com/group5/origin/2022/03/01/01/2d9e0de8-f936-a303-e47c-333eaa32d644/81aaa2cfcf221cc9a751d822159ad3d6_500x0.png)
-路透华盛顿2月28日 – 美国周一关闭了驻白俄罗斯首都明斯克大使馆，并允许非紧急雇员和家属离开驻莫斯科大使馆。俄罗斯对乌克兰的入侵行动仍在继续，这是自二战以来欧洲一个国家对另一个国家发起的最大规模攻击。美国国务卿布林肯说:“我们采取这些措施，是因为俄罗斯军队在乌克兰无端和不正当的攻击引发的安全问题。”
-
-参考链接：[https://cn.reuters.com/article/usa-belarus-embassy-closing-0228-mon-idCNKBS2KY31H?il=0](https://cn.reuters.com/article/usa-belarus-embassy-closing-0228-mon-idCNKBS2KY31H?il=0)
-
-**5、由于通胀来袭，USDT兑俄罗斯卢布汇率创历史新高**
-![img](https://media.gettr.com/group30/origin/2022/03/01/01/96095dae-cb48-6e42-d55a-0be133bc51d8/9fc6b8913e99fbb3a8ceb86b95473956_500x0.png)
-与美元挂钩的稳定币Tether (USDT)对俄罗斯卢布的汇率在5天内飙升了30%以上，凸显了正在进行的战争对传统金融体系的负面和直接影响。据Cointelegraph报道，主要加密货币交易所Kuna的交易量在2月21日还不到100万美元，但在三天内飙升至近410万美元。乌克兰国家银行也实施了现金限制，包括取款限制，并禁止跨境外汇购买和直接取款。
-
-参考链接：[https://cointelegraphcn.com/news/usdt-records-new-all-time-high-against-russian-ruble-as-inflation-hits](https://cointelegraphcn.com/news/usdt-records-new-all-time-high-against-russian-ruble-as-inflation-hits)
-
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
-
-上传排版：文勇
 
  
 
