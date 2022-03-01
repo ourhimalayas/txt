@@ -2,24 +2,27 @@
 ---
 
 
-## 美国爱彼迎公司为乌克兰难民提供住宿援助
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2086531/)
+## 有声｜中共国撤侨最新手段曝光 鼓励自行前往邻国
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2086703/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2022/03/45.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fmedia-cldnry.s-nbcnews.com%2Fimage%2Fupload%2Frockcms%2F2022-02%2Fairbnb-ukraine-refugee-mc-2x1-220228-3fa27d.jpg&amp;imgrefurl=https%3A%2F%2Fwww.today.com%2Fnews%2Fnews%2Frussia-ukraine-crisis-airbnb-offer)
-据朝日新闻报道：2月28日，美国公司爱彼迎（Airbnb）租房网站宣布表示，将为来自被俄罗斯入侵的乌克兰的10万名难民暂时提供免费住房。
+**By:秘翻新闻**
 
-该公告指出，乌克兰接壤的欧洲国家的领导人，包括波兰、罗马尼亚和匈牙利等国家领导人提出愿意帮助。而据法新社报道，自俄罗斯入侵乌克兰开始以来，约有40万乌克兰人进入欧盟。其中近一半的人已经逃到了波兰。
+**2022-03-1**
 
-该公司在去年8月伊斯兰教塔利班在阿富汗夺取政权时，也提供了人道救援，为来自该国的2万名难民提供了住房。
+[据《苹果新闻网》2月28日报导，近日乌克兰情势令国际忧心，各国纷纷完成撤侨行动，但中共国不但慢半拍，规划的包机撤侨也无法执行，如今中共国驻乌克兰大使馆公布的最新办法，竟是鼓励中国公民自己前往乌克兰邻国，出发前可以知会使馆。](https://tw.appledaily.com/international/20220228/56NGGICLOFDXFG2K3JHLOXHXTQ/)
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-01-下午5.12.03.png)图片:源自原文
 
-[エアビー、ウクライナ難民10万人に住居提供　欧州首脳に支援申し出](https://www.asahi.com/sp/articles/ASQ31057QQ2XOIPE03K.html?ref=gunosy)
+[中共国驻乌使馆今天下午指出，已经与中共国驻摩尔多瓦、罗马尼亚、斯洛伐克、匈牙利、波兰等使馆协调，鼓励中国公民为自前往上述国家，也希望在出发前先将相关资料传讯通知，并提醒沿途注意安全。](https://tw.appledaily.com/international/20220228/56NGGICLOFDXFG2K3JHLOXHXTQ/)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+[中共国外交部今天在记者会被问及撤侨一事，发言人汪文斌表示，还在研究制定让中国公民安全撤离的一切可行方案，表示目前乌克兰境内交通安全形势极不稳定，呼吁中国公民保持冷静、防范安全。此时俄乌战争已打响将近一周时间。](https://tw.appledaily.com/international/20220228/56NGGICLOFDXFG2K3JHLOXHXTQ/)
+
+（ 秘翻新闻 文洋 编辑报道 ）
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

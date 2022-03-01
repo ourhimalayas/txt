@@ -2,41 +2,58 @@
 ---
 
 
-## 有声|乌克兰危机下的大国博弈
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2086370/)
+## （卫星图像）显示40英里长的俄罗斯军事机动部队在向基辅推进，乌克兰呼吁设立禁飞区 ！
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2086511/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-郭先生在2月20日的大直播中谈到，乌克兰战争实际上三天前在双方的炮击后就开始了。
+作者：Nicole Werbeck
+发布日期：美国东部时间2022 年 2 月 28 日晚上 10:31
+新闻来源：https://www.npr.org/ 和 https://www.sbs.com.au/
+翻译：V 在途中
 
-乌克兰和克里米亚的战略位置对俄罗斯非常重要，就像今天的台湾或香港一样。普京不仅仅是为了夺取克兰，而是要彻底拿下欧洲，习打台湾是想拿下整个亚洲。现在的美俄、美中和美欧之间的关系都太玄妙，普习两人都认为美国任何情况下都不会真动手跟他们打，欧洲就更不可能跟他们打了。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3014-scaled.jpg)
 
-乌克兰危机掌握在普京、习近平、美国总统和欧盟手里，都在玩乌克兰这张牌。美欧正利用乌克兰的国家安全消磨普习两人的意志：你们不打则被其内部政敌干掉，即使打内部政敌也一定搞死你。普习二人打乌克兰和台湾不存在任何恩怨问题，完全是两人政治安全、政治野心和政治利益的需要，跟国家利益、民族利益、民族恩怨没有任何关系！
+新的卫星图像显示，乌克兰基辅以北的一支大型军事车队绵延近 40 英里。
 
-实际上被解除武装并被俄罗斯绑架而无能为力的乌克兰就是“锁链女”，俄罗斯就是贩卖人口的中共，美欧就是“锁链女”认的干爹。普京想把“锁链女”一直强霸下去，骨子里不喜欢苏俄的乌克兰从来没认真跟俄罗斯一起生活过。乌克兰和苏俄间的恩怨由来已久，但与中共国风马牛不相及，“习大帝”却怂恿并经济上支持普京打乌克兰。在这种情况下，普习达成交易并支持习打台湾，抱团取暖互相充当国际上的支持者，结果乌克兰和台湾就成了牺牲品。
+它比 Maxar Technologies 今天早上最初报道的 17 英里长得多。
 
-如打有约定、有限度的常规战美国一定赢，但经济上大家都会被拖垮。中俄联手后军事和经济互补情况下的局势就完全不同了，俄中军事上老二和老三的联手让美欧忌惮，真无所顾忌抡开了打时最后大家都得完蛋，这世界也就完了。
+根据收集到的其他图像，俄罗斯军用车队从南部的安东诺夫机场附近延伸到车队的北端普里比尔斯克附近。
 
-很不幸，普习两人这次玩大了，普京布局全球几年了，习近平放毒两年了，两人看到了美欧的懦弱与政治投机，且两人刚在北京的密谈认定美国没种，欧洲没能力。这就是普习两人嚣张得底气，因此乌克兰危机就来了，但现在谁也回不去了。如美欧在政治施压上再坚决一些并给普京一些好处和面子，让乌克兰作出一些承诺，北约也作出遵守《明斯克协议》绝对不东扩的承诺，也许普京就收手了。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3015-scaled.jpg)
 
-普京毕竟是大师级的国际政治家，其打乌克兰的姿势就玩得很高大上：我绝对打乌克兰，且打的气势就能吓死你欧盟，并给习留下作战时间，已让世界跌破眼镜。
+沿路的部分路段，一些车辆相距相当远，而在其他路段，军事装备和部队在乌克兰因万科夫以北的道路上并排行驶两三辆车。
 
-美国跟任何国家都有利益关系，但跟任何国家都没有长时间稳定的政治关系。在对待俄罗斯和中共这样邪恶的国家政权，没有一致性的国际政治关系延续是不管用的。但任何国际大事最终都取决于美国的态度，美国已表态侵略乌克兰的人一定被惩罚，包括跟乌克兰灾难相关的国家一个也不会放过，那不就是中共嘛！美国一定会重生并再次伟大！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3017-1-scaled.jpg)
 
-文字版原文：[乌克兰危机下的大国博弈](https://gnews.org/zh-hans/2069773/)
+Maxar Technologies 还表示，在白俄罗斯南部距离乌克兰边境以北不到 32 公里的地方看到了额外的地面部队部署和地面攻击直升机部队。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+Maxar 数周来一直在追踪俄罗斯军队的集结情况。路透社无法独立核实其图像。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
+它说，该纵队覆盖了从距首都约 29 公里的安东诺夫机场附近到普里比尔斯克镇的整条道路——距离约为 65 公里。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+麦克萨说，“沿路的部分路段，一些车辆间隔相当远，而在其他路段，军事装备和部队在路上并排行驶两三辆车”。
+
+它补充说：“在伊万科夫北部和西北部，在车队行驶的道路附近，可以看到许多房屋和建筑物在燃烧。”
+
+俄罗斯总统泽连斯基周一敦促西方国家考虑在乌克兰上空设立俄罗斯飞机禁飞区，此前莫斯科轰炸了乌克兰第二大城市，引发了美国及其盟国的新制裁。
+
+俄罗斯因入侵乌克兰而面临越来越多的国际孤立，双方周一进行数小时的谈判未能取得突破以制止战斗。
+
+乌克兰官员表示，俄罗斯在拥有 140 万人口的城市哈尔科夫发动袭击，造成包括儿童在内的平民死亡。泽连斯基在视频讲话中表示，现在是阻止俄罗斯导弹、飞机和直升机进入乌克兰领空的时候了。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3018.jpg)022 年 2 月 28 日，基辅附近安东诺夫机场边缘的大型军事车队的卫星图像。来源：AAP / Maxar/DigitalGlobe
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3019.jpg)Maxar Technologies 提供的这张卫星图像显示了 2022 年 2 月 28 日星期一乌克兰基辅西北部伊万科夫东南部的车队北端。来源：美联社/美联社
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/30191.jpg)Maxar Technologies 提供的卫星图像显示了地面部队在基辅西北部 Zdvyzhivka 的部署情况。来源：麦克萨/美联社
+
+新闻链接：
+[Satellite images show 40-mile-long Russian military convoy nearing Kyiv](https://www.npr.org/sections/pictureshow/2022/02/28/1083650286/satellite-images-show-40-mile-long-russian-military-convoy-nearing-kyiv)
+
+[New images appear to show Russian convoy advancing on Kyiv as Ukraine calls for no-fly zone](https://www.sbs.com.au/news/article/new-images-appear-to-show-russian-convoy-advancing-on-kyiv-as-ukraine-calls-for-no-fly-zone/gvx8lmgyl)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

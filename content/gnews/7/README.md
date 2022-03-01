@@ -2,29 +2,42 @@
 ---
 
 
-## 中日财经爆|日经指数3月1日收于26,844 点 连续3个交易日上涨
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2086553/)
+## 2022年2月9日是打开沼泽地与中共勾兑大门的大日子
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2086733/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-3.jpg)
-[图片来源](https://www.nasdaq.com/articles/tokyos-nikkei-share-average-rises-2.01-pct)
+G-TV视频链接：https://gtv.org/video/id=62164b9b1408ee3a03a3c8c7
 
-东京证券交易所3月1日，日经平均指数（225只成分股）收盘价较前一交易日上涨317.90点，收盘报26,844.72点，连续3个交易日上涨。
+**郭文贵先生：**所以说兄弟姐妹们今天对咱又是个大日子，打开了沼泽地与中共的邪恶的勾兑大门。而且我深信不疑，疫苗、冠状病毒是一个绝对和这些藏了这些黑钱的人有勾结，他们就希望这些人都死干净才好。这些人可最想收益，什么UBS啊，什么德意志啊，希望人类上人少一半才好呢，没人来拿它的钱了。
 
-俄罗斯和乌克兰之间继续进行停火谈判的前景支持了投资者情绪。半导体相关股因前日美股高科技股上涨而上涨，买盘在各行各业蔓延。主要证券公司认为，“俄罗斯的袭击仍在继续，股价趋于不稳定”。
+全人类的一大半的黑钱都在它手里边了，过去几百年的黑钱，从大清朝的黑钱到共产党的黑钱全在它那了，但它不认账啊，这才是邪恶的。
 
-东京证券交易所指数（TOPIX）显示东京证券交易所第一部整个价格走势，收盘报 1897.17点，上涨 10.24 点。
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-消息来源:
+编辑整理：Jacques；
 
-[日経平均、一時２万７千円台を回復…半導体関連株が上昇](https://www.yomiuri.co.jp/economy/20220301-OYT1T50119/)
+字幕档制作：兵嫂；
 
-[日経平均終値、３１７円高の２万６８４４円…３営業日連続で上昇](https://www.yomiuri.co.jp/economy/20220301-OYT1T50205/)
+视频制作及上传：Cindy；
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+G-News发布：海贼王M.D.LUFFY；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 
