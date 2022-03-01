@@ -2,29 +2,47 @@
 ---
 
 
-## 中共宠物专家：比俄强10倍能力攻打台湾,一颗导弹不到30万毛币!
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2087852/)
+## 世界各地民众游行声援乌克兰
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2088025/)
 
-中共畜养的所谓“宠物专家”总是为了迎合中共时不时的放狠话！这不一个所谓的通信业知名观察家、智能互联网研究专家项立刚又放话了，声称美国一个爱国者导弹300万美元，在中共国不到30万人民币，解放军可以比俄罗斯强10倍的力道攻打台湾！
+纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1.png)
+莫斯科的入侵引发全球哗然，西方国家纷纷祭出制裁行动，部分措施直接针对俄国总统普京本人。 如今全球各地城市民众纷纷进行示威活动谴责俄罗斯对其邻国的攻击行动。
+![Demonstrators take part in an anti-war protest.](https://www.aljazeera.com/wp-content/uploads/2022/02/2022-02-27T143656Z_187409282_RC2ESS9D6ISH_RTRMADP_3_UKRAINE-CRISIS-GERMANY-PROTEST.jpg?resize=770%2C513)图片来自：https://www.aljazeera.com/news
+瑞士各地约有数千人上街游行，其中在联合国日内瓦总部前就有约1000人聚集，要求政府施加更严厉的制裁。
 
-项立刚在微博夸下海口，认为要比俄罗斯强10倍的力道攻打台湾，这句话的基本逻辑：武器很便宜的！当然便宜没好货，好货不便宜，中共的这破烂便宜货还跟美国比，真是狂犬吠日不知天高地厚了！
+在法国，3000多人聚集在欧洲理事会人权组织所在地史特拉斯堡，拿着怒斥普京是凶手的字板，要求结束战争。法国其他城市如巴黎、蒙贝列与马赛，都有群众示威。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-3.png)图片来源：微博
+在俄国邻国芬兰，数以千计人聚集首都赫尔辛基，怒斥“俄罗斯滚，普京下台！”奥地利的维也纳也有约3000人聚集，拿着写有“停止战争”等讯息的字板示威。 意大利罗马则有1000多人响应贸易工会与非政府组织呼吁，走上市中心街头抗议俄罗斯入侵乌克兰。
 
-项立刚语出惊人表示：“解放台湾，这是历史赋于我们的重任，是中华民族复兴的重大标志，是十几亿人民的共同心声。” 这下十几亿中国人民又被这垃圾宠物专家给代表了。
+西班牙巴塞罗那有1000人左右上街示威，英国有数以百计民众前往俄国驻伦敦大使馆抗议，澳洲悉尼数百人冒着大雨游行，日本东京则有示威者要求将俄国逐出联合国安理会。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-2.png)图片来源：微博
+据郭文贵先生爆料，俄乌危机期间，乌克兰通过社交媒体向世界展示了乌克兰的团结、顽强和机智，博得了全世界的同情和支持，也让普京闪电战的幻想破灭。
 
-普京狂妄自大穷兵黷武，对乌克兰发动战争后至今未有重大进展，也面临欧美国家等“核弹级”的经济制裁。中俄关係唇亡齿寒，中共的宠物专家如此叫嚣，除了为侵略者擦脂抹粉忧心俄罗斯战败外，估计也感觉到中共时日无多，通过叫嚣来壮下怂人胆吧！
+27日俄罗斯向基輔表示，愿同乌克兰在白俄罗斯进行谈判，同一天乌克兰总统办公室表示愿与俄罗斯谈判。
 
-新闻来源：[yahoo](https://tw.news.yahoo.com/%E6%AF%94%E4%BF%84%E7%BE%85%E6%96%AF%E5%BC%B710%E5%80%8D%E7%9A%84%E5%8A%9B%E9%81%93%E6%94%BB%E6%89%93%E5%8F%B0%E7%81%A3-%E4%B8%AD%E5%9C%8B%E5%B0%88%E5%AE%B6-%E9%A1%86%E5%B0%8E%E5%BD%88%E4%B8%8D%E7%94%A830%E8%90%AC%E4%BA%BA%E6%B0%91%E5%B9%A3-115649526.html)
+链接:
 
-撰稿/发布：一叶知秋
+[Huge crowds in Europe, US march in solidarity with Ukraine](https://www.aljazeera.com/news/2022/2/27/thousands-attend-ukraine-solidarity-march-in-berlin)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+[‘Glory to Ukraine’: hundreds of thousands march against Russian invasion](https://www.france24.com/en/live-news/20220227-glory-to-ukraine-hundreds-of-thousands-march-against-russian-invasion)
+
+[‘Russia out, down with Putin!’: Worldwide protests held in solidarity with Ukraine](https://www.timesofisrael.com/russia-out-down-with-putin-worldwide-protests-in-solidarity-with-ukraine/)
+
+[Large crowds gather in downtown Toronto for ‘mega march’ in solidarity with Ukraine](https://globalnews.ca/news/8649308/ukraine-solidarity-mega-march-toronto/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-5.jpg)
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1.png)
+
 
  
 
