@@ -2,31 +2,22 @@
 ---
 
 
-## 【秘翻北美时评】中共不仅欺骗华人还阻挠我们的施救行动
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2085571/)
+## 乌克兰副总理发推称，星链终端已到达
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2085762/)
 
-**BY:[秘翻北美时评](https://gtv.org/broadcast/watch/621d7127019ef64da6530999)**
+撰稿：追着曙光跑
 
-***[2022-02-28](https://gtv.org/broadcast/watch/621d7127019ef64da6530999)***
+3月1日，乌克兰副总理兼数字化改造部长米哈伊洛·费奥多罗夫今天（1日）发推特称，星链（Starlink）终端已经到达。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-01-at-16.09.09.jpeg)图片来源自费奥多罗夫推特
+他在推特上发布了一张照片，是一辆卡车装着几十箱设备，并对马斯克表示感谢。马斯克用“不用客气”回应他。
 
+SpaceX公司已经成功向乌克兰交付了连接该公司星链卫星网络服务的终端。
 
+上周末，费奥多罗夫在发推请求马斯克提供星链服务。马斯克回应他说，星链服务在乌克兰已经可以使用，更多终端在运输途中。
 
-**今日主题： **
+信息来源：[Starlink — here. Thanks](https://twitter.com/fedorovmykhailo/status/1498392515262746630?s=21)
+[while you try to colonize Mars — Russia try to occupy Ukraine!](https://twitter.com/fedorovmykhailo/status/1497543633293266944?s=21)
 
-**1.核战风险升至高点 美国“末日军机”E-6B升空**
-
-**2.泽连斯基要求让乌克兰“立即”加入欧盟 **
-
-**3.中共不仅欺骗华人，还阻挠我们的施救行动**
-
-
-
-🔗链接：[https://gtv.org/broadcast/watch/621d7127019ef64da6530999](https://gtv.org/broadcast/watch/621d7127019ef64da6530999)
-
-发布：陸柒陸捌
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

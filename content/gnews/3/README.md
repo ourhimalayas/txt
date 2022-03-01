@@ -2,8 +2,8 @@
 ---
 
 
-## 台湾50万专业军人,军事专业性的意义
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2085996/)
+## 习不打台湾国内的经济崩塌（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2086123/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

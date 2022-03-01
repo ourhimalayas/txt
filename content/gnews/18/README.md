@@ -2,17 +2,17 @@
 ---
 
 
-## 秘翻在线：台湾蔡英文总统，面对中共国施压表示：“应团结一致，应对即将到来的局势变化”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2085745/)
+## 20220227文贵大直播：佛教是一种哲学，「贪嗔痴慢疑」是揭开大自然的密码
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2085945/)
 
-撰稿: Eric Kim
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1.jpg)图片来源：韩国联合新闻资料库-台湾228纪念日75周年庆演讲视频截图
-据韩国联合新闻3月1日报道称，在台湾228纪念日75周年庆之际，台湾蔡英文总统借俄罗斯入侵乌克兰，国际社会对台湾的安全状况非常关注的契机，呼吁全国民众团结一致应对即将到来的局势变化。
+作者:东京樱花团小视频组
 
-信息来源: [https://news.naver.com/main/read.naver?mode=LS2D&mid=shm&sid1=104&sid2=231&oid=001&aid=0013020487](https://news.naver.com/main/read.naver?mode=LS2D&amp;mid=shm&amp;sid1=104&amp;sid2=231&amp;oid=001&amp;aid=0013020487)
+校对：东京樱花团小视频组
 
-责编：Eric Kim
+编辑发布：东京樱花团小视频组
 
+* * *
+![此图像的alt属性为空；文件名为IMG_0887.png](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
