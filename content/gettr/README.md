@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/1/2022 9:53 PM (UTC)`
+
+3/1/2022 Miles Guo’s GETTR: It is said Putin was furious, he called and urged Xi Jinping to take actions against Taiwan; As the Russia-Ukraine war continues, instead of rescuing its own people, the CCP has been insanely trying to control public opinion; The New Federal State of China has rescued many Chinese Embassy staff, and will demonstrate with actions and results who really care about the Chinese people!<br/><br/>3/1/2022 文贵盖特：据说，普京大怒，打电话催习近平对台湾动手；面对俄乌战事，中共非但救援却疯狂控制舆论，我们救了多少大使馆人员？新中国联邦用行动结果证明谁在关爱中国人！<br/>
+![img](https://media.gettr.com/group3/getter/2022/03/01/21/698bc3c7-a49d-567e-5d16-a862a47f9899/out.jpg)
+
+---
+
 `@miles 3/1/2022 3:04 PM (UTC)`
 
 3月1号：尊敬的战友们好，俄乌战争已经彻底的改变了世界……非常可悲的事情，中国人成了全世界最被恨的人，甚至要成为最孤立最被仇恨的族类，这是什么原因呢？
@@ -147,13 +154,6 @@
 
 2/27/2022 Miles Guo: The Russian invasion of Ukraine has given Xi Jinping confidence to attack Taiwan, and he will surely implement his third battle plan. That is, Xi will use quasi-nuclear weapons to bomb Taiwan, which will definetely fight back against the CCP by destroying its coastal military bases.<br/><br/>2/27/2022 文贵直播：俄罗斯打乌克兰给了“习太阳”攻台的信心，他一定会采用第三套作战方案，即用准核武器狂轰滥炸台湾，台湾也一定会奋力反击并摧毁中共国沿海军事基地<br/>
 ![img](https://media.gettr.com/group26/getter/2022/02/27/22/1f694f02-870a-ee8b-f0d2-7d9b05bce5e2/out.jpg)
-
----
-
-`@miles 2/27/2022 5:08 PM (UTC)`
-
-2月27号：我尺R你共产党人八倍祖宗，救你们的家人就安全有条件！救我们老百姓就是条件不允许？【为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。<br/><br/>救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。<br/><br/>24小时救援联系方式如下：<br/><br/>邮箱：<br/>ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO<br/>电话和短信：+1 720-657-6776 或 +1 719-224-4232<br/><br/>新中国联邦<br/>法治基金 <br/>2022年2月26日<br/><br/><br/>In response to the current Ukraine crisis, the New Federal State of China and the Rule of Law Foundation are to cooperate with UN aid organizations to offer international humanitarian rescue assistance to those in need of voluntary evacuation. Free of charge flights will be arranged to help evacuate persons in need to certain safe transit countries, and accommodation without charge will be offered for up to 30 days. Eligible persons may 】
-![img](https://media.gettr.com/group11/getter/2022/02/27/17/b2ce0bc4-eb24-7827-bd47-eae8d877a53f/out.jpg)
 
 ---
 
