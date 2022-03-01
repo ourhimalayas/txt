@@ -2,57 +2,44 @@
 ---
 
 
-## （卫星图像）显示40英里长的俄罗斯军事机动部队在向基辅推进，乌克兰呼吁设立禁飞区 ！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2086511/)
+## 澳大利亚承诺向乌克兰提供军事援助
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2087351/)
 
-作者：Nicole Werbeck
-发布日期：美国东部时间2022 年 2 月 28 日晚上 10:31
-新闻来源：https://www.npr.org/ 和 https://www.sbs.com.au/
-翻译：V 在途中
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3014-scaled.jpg)
+#### 整理/编辑：文泓
 
-新的卫星图像显示，乌克兰基辅以北的一支大型军事车队绵延近 40 英里。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片10.png)
 
-它比 Maxar Technologies 今天早上最初报道的 17 英里长得多。
+**图片来源：InDally & 雅典娜设计组**
 
-根据收集到的其他图像，俄罗斯军用车队从南部的安东诺夫机场附近延伸到车队的北端普里比尔斯克附近。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3015-scaled.jpg)
+3月1日堪培拉消息，莫里森政府已经签署了5000万美元（7000万澳元）的协议，为乌克兰抵抗军提供包括导弹和弹药在内的武器。
 
-沿路的部分路段，一些车辆相距相当远，而在其他路段，军事装备和部队在乌克兰因万科夫以北的道路上并排行驶两三辆车。
+当前俄罗斯与乌克兰的冲突仍在继续中，斯科特·莫里森周二在内阁国家安全委员会会议后确认了上述资金承诺。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3017-1-scaled.jpg)
+“我们将投入5000万美元用于支持致命和非致命弹药。其中绝大多数将属于致命类别，”莫里森先生告诉记者。
 
-Maxar Technologies 还表示，在白俄罗斯南部距离乌克兰边境以北不到 32 公里的地方看到了额外的地面部队部署和地面攻击直升机部队。
+就在乌克兰抵抗力量在武器不足的情况下继续反抗莫斯科之际，莫里森总理对援助乌克兰泽连斯基总统的国际社会表示敬意，但警告说国际社会统一的反应可能会导致莫斯科“更暴力的反应”。
 
-Maxar 数周来一直在追踪俄罗斯军队的集结情况。路透社无法独立核实其图像。
+“（总价值）绝大部分将属于致命类别武器，我们谈论的是导弹和弹药，我们谈论的是支持他们保卫自己在乌克兰的家园，我们将与北约合作这样做”，他说：“我不打算详细说明，因为我不打算让俄罗斯政府提前了解即将发生的事情。”
 
-它说，该纵队覆盖了从距首都约 29 公里的安东诺夫机场附近到普里比尔斯克镇的整条道路——距离约为 65 公里。
+同时，莫里森先生还宣布了2500万美元（3400万澳元）的“初步援助”，用于向致力于为流离失所者提供水、食物、住所和教育的国际组织提供人道主义支持。
 
-麦克萨说，“沿路的部分路段，一些车辆间隔相当远，而在其他路段，军事装备和部队在路上并排行驶两三辆车”。
+参考链接：
 
-它补充说：“在伊万科夫北部和西北部，在车队行驶的道路附近，可以看到许多房屋和建筑物在燃烧。”
+1、[澳大利亚承诺向乌克兰提供致命和非致命支持](https://cn.theaustralian.com.au/2022/03/01/64112/)
 
-俄罗斯总统泽连斯基周一敦促西方国家考虑在乌克兰上空设立俄罗斯飞机禁飞区，此前莫斯科轰炸了乌克兰第二大城市，引发了美国及其盟国的新制裁。
+2、[Scott Morrison announces $70m in Australian military aid for Ukraine | news.com.au — Australia’s leading news site](https://www.news.com.au/national/politics/australia-commits-50m-usd-for-ammunition-to-support-ukraine/news-story/4a1db7e4f9e24fcc36782c246b797edc)
 
-俄罗斯因入侵乌克兰而面临越来越多的国际孤立，双方周一进行数小时的谈判未能取得突破以制止战斗。
+*发布：wenly*
 
-乌克兰官员表示，俄罗斯在拥有 140 万人口的城市哈尔科夫发动袭击，造成包括儿童在内的平民死亡。泽连斯基在视频讲话中表示，现在是阻止俄罗斯导弹、飞机和直升机进入乌克兰领空的时候了。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3018.jpg)022 年 2 月 28 日，基辅附近安东诺夫机场边缘的大型军事车队的卫星图像。来源：AAP / Maxar/DigitalGlobe
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3019.jpg)Maxar Technologies 提供的这张卫星图像显示了 2022 年 2 月 28 日星期一乌克兰基辅西北部伊万科夫东南部的车队北端。来源：美联社/美联社
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/30191.jpg)Maxar Technologies 提供的卫星图像显示了地面部队在基辅西北部 Zdvyzhivka 的部署情况。来源：麦克萨/美联社
-
-新闻链接：
-[Satellite images show 40-mile-long Russian military convoy nearing Kyiv](https://www.npr.org/sections/pictureshow/2022/02/28/1083650286/satellite-images-show-40-mile-long-russian-military-convoy-nearing-kyiv)
-
-[New images appear to show Russian convoy advancing on Kyiv as Ukraine calls for no-fly zone](https://www.sbs.com.au/news/article/new-images-appear-to-show-russian-convoy-advancing-on-kyiv-as-ukraine-calls-for-no-fly-zone/gvx8lmgyl)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

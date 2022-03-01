@@ -2,43 +2,31 @@
 ---
 
 
-## 纽约市将取消对室内商业餐饮和活动的强制疫苗接种规定
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2089747/)
+## 新中国联邦在俄乌战火中崛起
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2089871/)
 
-翻译：peacelv
+加拿大温哥华扬帆农场  硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1626-1.jpg)图片来源：thegatewaypundit.com
-
-纽约市市长埃里克**·**亚当斯将解除该市对室内商业、餐饮和活动的强制疫苗接种规定，如果**Covid-19**病例继续呈下降趋势。
-
-“纽约市的病例数字逐日下降，所以，只要Covid指标显示低水平的风险，不出意外这周，在星期一，３月７日我们将会取消Key2NYC规定。”亚当斯宣布。“这将给企业主时间去适应，且也允许我们保证我们是在为纽约人民做最好的公共卫生决定。” NBC新闻报道。
-
-纽约市是美国第一个要求在室内接种疫苗的大城市，它将在未来几天取消对室内商业、餐饮和活动的授权。
-
-埃里克-亚当斯星期天宣布他的管理团队将在３月７日结束疫苗强制接种规定只要Covid-19病例数量持续下降。他加入了最近几周在西雅图和波士顿等城市做出类似决定的公共官员行列。亚当斯说，只要没有出现意外的高峰，公立学校的室内口罩强制规定也将在同一天取消。
-
-纽约针对工人的疫苗强制接种规定仍然有效。
-
-ESPN:由于纽约市市长埃里克·亚当斯的宣布，一个城市官员告诉WABC-TV 篮球明星凯里·欧文仍将不能在3月7日在巴克莱中心比赛，因为城市针对工人的疫苗强制接种规定仍然有效。
-
-滑稽荒诞。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a-edited.jpg)图片来源：盖特
 
 
+据3月1日盖特消息，文贵先生当天透露，普京日前再次敦促习近平必须按双方此前的约定，立即出兵攻打台湾。试图以此转移国际社会对俄乌战争的注意力，减轻其内外较困的政治压力，并对习近平背信食言，迟迟不愿出兵台湾雷霆震怒。
 
-> Despite NYC Mayor Eric Adams' announcement, a city official told WABC-TV that Kyrie Irving would still not be able to play at the Barclays Center on March 7 as the city's vaccine mandate for workers remains in effect. [pic.twitter.com/te7ILzsH8y](https://t.co/te7ILzsH8y)
-> — ESPN (@espn) [February 27, 2022](https://twitter.com/espn/status/1498067769908154370?ref_src=twsrc%5Etfw)
+消息称，针对新中国联邦的战争救援行动，中共党内已紧急通知驻各国大使馆做好与海外华侨团体及其负责人的联络工作，并向微信派驻大量所谓安全信息官员以实施关于乌克兰战争的言论控制。
 
+对此，文贵先生指出，目前大量中共驻外大使官员已携巨款潜逃。同时，新中国联邦也已救出众多大使外交要员，并将在不久后展示对战乱中同胞的救援结果。以事实来揭露中共流氓政权的邪恶本质，唤醒所有尚存良知的中国人站起来，不再被该暴政所奴役。
 
+此外，由于习近平对普京血腥入侵乌克兰的公然支持，以及中共正在进行的欺骗性政治宣传，导致中国人当前已成为乌克兰乃至整个欧洲最受憎恨的族群，全球排华危机已近在咫尺。
 
-**参考资料：**[thegatewaypundit][New York City to Lift Vaccine Mandate For Indoor Businesses, Dining and Events](https://www.thegatewaypundit.com/2022/02/new-york-city-lift-vaccine-mandate-indoor-businesses-dining-events/)
+目前，新中国联邦的具体营救行动正在紧张进行之中，多架波音747，757飞机以及军用大力神运输机也都到位并准备就绪。但无论局势如何瞬息万变，全世界此刻已经无人再相信中共和习近平，中共内部也无人再相信习近平。更为重要的是，习近平谁也不相信。这就与“全世界无人再相信普京，普京再也不相信任何人”的情况如出一辙。
+
+自此，世界格局将因此被彻底改变，而新中国联邦将荣获来自西方民主国家越来越多的信任和支持，并最终成为今后在没有共产党统治下的中国，实现一人一票民主选举制度的最主要推动者，倡导者和监督者。
 
 * * *
 
-*审核：文乐*
-*校对：阿伯塔*
-*发稿：信心的选择*
+编辑撰稿，发稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-5.jpeg)
+新闻来源：https://gettr.com/post/pxllrkc2fd
 
  
 

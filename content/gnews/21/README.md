@@ -2,42 +2,38 @@
 ---
 
 
-## 美国敦促其公民考虑立即离开俄罗斯
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2089527/)
+## 马斯克：俄罗斯入侵并扰乱互联网 星链在乌克兰使用活跃
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2089783/)
 
-**【简评】***鉴于乌克兰局势的不可预测，紧张态势不断升级，双方除了大打信息战外，各种军事动作也接二连三，令世界越发担忧。身处俄乌边境地带或计划前往相关地区的外国公民应考虑当地局势的危险性和不可预测性。*
+编译: Mandel
 
-据《路透社》2022年2月27日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-87-e1646154949107.png)在俄罗斯莫斯科的美国大使馆和国旗。图片来源：美联社
-美国国务院周日表示，美国公民应考虑立即乘坐商业航班离开俄罗斯，理由是越来越多的航空公司取消航班，而且在俄罗斯入侵乌克兰后，对俄罗斯航空公司关闭空域的国家也越来越多。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-3.jpg)图片来源: REUTERS/Mike Blake, 2019年6月13日，在美国加利福尼亚州洛杉矶举行的E3游戏大会上，SpaceX老板兼特斯拉CEO埃隆-马斯克在与传奇游戏设计师托德·霍华德（未照出）的对话中发言。
 
-“美国公民应考虑通过目前仍然可用的商业渠道，立即离开俄罗斯，”美国驻莫斯科大使馆网站上发布的日期为2月27日的安全警报称。
+旧金山，2月26日（路透社）- SpaceX亿万富翁埃隆·马斯克周六表示，该公司的星链卫星宽带服务已在乌克兰开通，SpaceX正在向该国发送更多终端。该国的互联网因俄罗斯的入侵而中断。
 
-它已经要求美国公民制定“不依赖美国政府援助的应急计划”。
+“星链服务现在在乌克兰是活跃的。更多的终端正在路上。”马斯克在推特上说。
 
-俄罗斯入侵乌克兰，是二战以来对欧洲国家的最大军事袭击，引发了西方的一连串报复，美国和欧洲政府对俄罗斯银行和金融机构实施制裁。
+他这是在回应一位乌克兰政府官员的推文，该官员要求马斯克为这个陷入困境的国家提供星链站。
 
-俄罗斯总统普京称这次袭击是一次“特别行动”，他旨在通过该行动使莫斯科的南部邻国非军事化。
+“@elonmusk，当你试图殖民火星的时候——俄罗斯试图占领乌克兰！当你的火箭从太空成功着陆时——俄罗斯的火箭正在攻击乌克兰的平民！” 乌克兰副总理Mykhailo Fedorov在推特上说。
 
-美国国务院对俄罗斯的旅行警告级别定为“第4级（最高级）：请勿旅行”。2月20日，美国驻莫斯科大使馆建议在该国的美国人应制定撤离计划，理由是莫斯科和俄罗斯与乌克兰边境沿线的袭击威胁。
+互联网监测人员周六表示，乌克兰的互联网连接已经受到俄罗斯入侵的影响，特别是在该国战斗最激烈的南部和东部地区。[点击阅读全文。](https://www.reuters.com/world/europe/internet-ukraine-disrupted-russian-troops-advance-2022-02-26/)
 
-文章来源：[https://www.voanews.com/a/6462107.html](https://www.voanews.com/a/6462107.html)
+虽然部署成本极高，但卫星技术可以为居住在光纤电缆和手机信号塔无法到达的农村或难以服务的地方的人们提供互联网。当飓风或其他自然灾害扰乱通信时，该技术也可以成为重要的后盾。
 
-翻译：洛杉矶盘古农场 – maru
+马斯克在1月15日说，SpaceX有1469颗星链卫星在运行，272颗卫星即将进入运行轨道。
 
-校对：洛杉矶盘古农场 – Mike Li
+由Hyunjoo Jin于2022年2月27日报道，Leslie Adler编辑。
 
-评论：洛杉矶盘古农场 – maru
+**参考资料：**[reuters][Musk says Starlink active in Ukraine as Russian invasion disrupts internet](https://www.reuters.com/technology/musk-says-starlink-active-ukraine-russian-invasion-disrupts-internet-2022-02-27/)
 
-编辑：洛杉矶盘古农场 – 傻小子
+* * *
 
-发布：洛杉矶盘古农场 – 子萍
+*审核：文乐*
+*校对：阿伯塔*
+*发稿：信心的选择*
 
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜.jpeg)
 
  
 
