@@ -2,20 +2,20 @@
 ---
 
 
-## 有声｜乌驻美大使指控俄军投放禁用武器热压弹
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2087466/)
+## 有声｜壳牌公司正在撤出俄罗斯，抛弃俄罗斯天然气公司的交易
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2087575/)
 
 By:**秘翻新闻**
 
 **2022-03-01**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-1.png)图片来源 网络
-[综合外媒3月1日消息，乌克兰驻美大使马卡罗法于当地时间周一指控俄罗斯称，俄军对乌国使用了《日内瓦公约》明定禁用的热压弹，试图让乌克兰承受巨大毁灭。](https://www.reuters.com/world/europe/ukraines-ambassador-us-says-russia-used-vacuum-bomb-monday-2022-02-28/https://www.abc.net.au/news/2022-03-01/ukraine-ambassador-to-us-says-russia-used-a-vacuum-bomb/100870638)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-1.png)图片来源 Reuters/Nozim Kalandarov
+[据《福克斯新闻》2月28日报道，壳牌石油公司（Shell ）在俄罗斯停止营业，并宣布计划退出与俄罗斯天然气公司及相关实体的关系。首席执行官本·范伯登在周一的一份声明中公布了这一决定。](https://www.foxbusiness.com/markets/shell-is-pulling-out-of-russia-dumping-gazprom-deal)
 
-[此外，国际特赦组织和人权组织都表示，俄罗斯军队似乎使用了被广泛禁止的集束弹药，并且袭击了乌克兰东北部一所供平民避难的学校。](https://www.reuters.com/world/europe/ukraines-ambassador-us-says-russia-used-vacuum-bomb-monday-2022-02-28/https://www.abc.net.au/news/2022-03-01/ukraine-ambassador-to-us-says-russia-used-a-vacuum-bomb/100870638)
+[范博登表示，退出俄罗斯是我们坚定不移的决定。我们不能–我们也不会袖手旁观。当前的重点是在乌克兰的员工的安全和在俄罗斯的员工。在与世界各国政府的讨论中，我们也将克服详细的商业影响，包括在遵守相关制裁的情况下向欧洲和其他市场提供安全的能源供应的重要性。”](https://www.foxbusiness.com/markets/shell-is-pulling-out-of-russia-dumping-gazprom-deal)
 
-[据悉，热压弹在爆炸时会释放大量热能，同时消耗该区域氧气，主要的毁灭效果是由超音速震波与超高温所造成，所有活生生的物体都会化为乌有，被称为威力最强大的非核武器之一。俄国于2007年成功测试，称其为「炸弹之父」，也有报道指出热压弹或为人类拥有的最厉害最残忍的武器之一。](https://www.reuters.com/world/europe/ukraines-ambassador-us-says-russia-used-vacuum-bomb-monday-2022-02-28/https://www.abc.net.au/news/2022-03-01/ukraine-ambassador-to-us-says-russia-used-a-vacuum-bomb/100870638)
+[据报道，解除的合资企业包括 “萨哈林-II液化天然气设施的27.5%股份，其在萨利姆石油开发公司和吉丹能源企业的50%股份”。另外，报道称，壳牌还打算结束参与北溪2号管道项目。](https://www.foxbusiness.com/markets/shell-is-pulling-out-of-russia-dumping-gazprom-deal)
 
-秘翻新闻 明澈 编辑报道
+秘翻新闻 Grace 编译报道
 
 发布 : 恩典
 
