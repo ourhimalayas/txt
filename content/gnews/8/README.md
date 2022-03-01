@@ -2,25 +2,43 @@
 ---
 
 
-## 有声｜为摆脱对俄天然气依赖 德拟推清洁能源法案
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2087216/)
+## 2022年3月1日澳洲股市简报
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2087234/)
 
-By:**秘翻新闻**
+**撰稿：云彩**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian 
+ASX200 指数上涨0.7%，收盘7097点。期间，石油天然气股ˎ科技股和银行股推高指数上涨，但收盘时回落。
 
-**2022-03-01**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-1.png)图片来源 Julian Stratenschulte/ DPA
-[综合媒体3月1日消息，欧洲各国高度仰赖从俄罗斯进口的天然气，其中德国的依赖程度高达55%。有报道指出，普京利用天然气为地缘政治工具勒索欧洲，近年更不时出现断气或减少运量的情况，让各国苦不堪言。](https://www.spiegel.de/wirtschaft/soziales/oekostrom-regierung-will-vollversorgung-bis-2035-a-7b55d5fb-91ef-4c20-9c2e-4f11c3517417https://de.marketscreener.com/boerse-nachrichten/nachrichten/UPDATE-Ministerium-will-Stromversorgung-schon-2035-klimaneutral-machen--39606793/?utm_medium=RSS&amp;utm_content=20220228)
+澳大利亚储备银行（RBA）将官方利率维持在 0.1%，RBA行长Philip Lowe 表示，乌克兰战争是“主要的新不确定性”。
 
-[德国国会27日为俄罗斯出兵举行特别会议，德国经济暨能源部长哈柏克强调，能源供应就是国家安全，为减少对俄罗斯石油、天然气和煤炭的依赖，他近日将提出新法，全力推动再生能源和绿色氢气。此外，德国财政部长林德纳表示，德国的能源安全规划必须面对俄国入侵乌克兰的新现实，再生能源不仅可确保能源供应，还能摆脱对外依赖，因此可称之为「自由的能源」。](https://www.spiegel.de/wirtschaft/soziales/oekostrom-regierung-will-vollversorgung-bis-2035-a-7b55d5fb-91ef-4c20-9c2e-4f11c3517417https://de.marketscreener.com/boerse-nachrichten/nachrichten/UPDATE-Ministerium-will-Stromversorgung-schon-2035-klimaneutral-machen--39606793/?utm_medium=RSS&amp;utm_content=20220228)
+布伦特原油期货上涨 1. 2% 至每桶 98.11 澳元， 现货金下跌 0.05% 至每盎司 1906.83 澳元（澳大利亚东部夏令时间下午 4:50）
 
-[据「南德日报」取得的草案，德国政府计划修改「再生能源法」，准备在未来几年大幅扩充风力和太阳能的发电容量，将原本2050年前完全依赖再生能源的目标，提前在2035年前完成。](https://www.spiegel.de/wirtschaft/soziales/oekostrom-regierung-will-vollversorgung-bis-2035-a-7b55d5fb-91ef-4c20-9c2e-4f11c3517417https://de.marketscreener.com/boerse-nachrichten/nachrichten/UPDATE-Ministerium-will-Stromversorgung-schon-2035-klimaneutral-machen--39606793/?utm_medium=RSS&amp;utm_content=20220228)
+**股价上涨的公司**
 
-秘翻新闻 明澈 编辑报道
+银行CBA表示，将以18亿美元的价格出售中国银行杭州银行10%的股份。其股价上涨 1.4% 至 94.82 澳元。
 
-发布 : 恩典
+体外受精服务商Virtus Health 收到CapVest Partners 收购要约后，股价上涨4.7%
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+支付公司Block 上涨12.8%
+
+在线博彩公司Pointsbet 上涨17.5%
+
+铀公司Paladin Energy 上涨13%
+
+**股价下跌的公司**
+
+铜矿商 Sandfire Resources 下跌11.64%
+
+金矿商 Perseus Mining 下跌7.4%
+
+先买后付公司 Zip 下跌6.3%
+
+参考资料：
+
+[ASX gains , Russia doubles interest rates](https://www.abc.net.au/news/2022-03-01/asx-wall-street-markets-currencies-commodities/100870276)
+
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

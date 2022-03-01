@@ -2,20 +2,34 @@
 ---
 
 
-## 以骗治国将会在对台战争中付出巨大代价
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2087224/)
+## 英国壳牌公司退出俄罗斯天然气“萨哈林2号项目” 三井物产、三菱商事对策引关注
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2087240/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+翻译：宫米叶
 
-*发布：陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-30-edited.png)yomiuri.co.jp
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+英国石油巨头壳牌(前荷兰皇家壳牌)28日宣布，将退出俄罗斯远东地区地区萨哈林天然气业务“萨哈林2号项目”。该公司判断，由于俄罗斯入侵乌克兰，业务很难继续。这是一个日本大型商社也参与其中的大规模项目，因而日本企业方面如何应对也备受关注。
+
+萨哈林2号项目除壳牌和俄罗斯国营燃气公司Gazprom（俄罗斯天然气工业股份公司）外，还由日本三井物产、三菱商事出资运营。壳牌等公司称，萨哈林2号项目液化天然气产量每年约1000万吨。其中很多出口到日本，从保障日本能源安全的角度来看也是重要的业务。
+
+三菱商事评论称：“我们将分析包括壳牌公司发布内容等细节，并与政府及相关人士就应对措施展开讨论。”
+
+除了萨哈林2号项目，壳牌还将退出Gazprom涉及的多项能源业务。也将停止参与连接俄罗斯和德国的天然气管道业务“北溪2号”。
+
+壳牌首席执行官本·范伯登(CEO)在声明中严厉谴责俄罗斯入侵乌克兰“是威胁欧洲安全、毫无意义的军事侵略”，并说道：“ 我们(在俄罗斯业务撤出后) 将对在欧洲和其他市场的能源稳定供应进行检验。”
+
+随着企业撤离俄罗斯，27日英国石油巨头BP也表示将撤出俄罗斯业务。在能源领域之外，瑞典汽车巨头沃尔沃汽车目前表示，“不会向俄罗斯市场供应汽车”。德国报纸称，德国戴姆勒卡车也将解除与俄罗斯装甲车巨头卡玛兹的合作。
+
+来源：【yomiuri.co.jp】[露の天然ガス事業「サハリン２」から英シェル撤退、三井物産・三菱商事の対応に注目](https://www.yomiuri.co.jp/pluralphoto/20220301-OYT1I50031/)
+
+* * *
+
+审核：天天
+校对：zicoround
+发布：花羽
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜.jpeg)
 
  
 

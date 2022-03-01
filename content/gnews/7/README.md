@@ -2,8 +2,8 @@
 ---
 
 
-## 习和中共军队打台的战略分析
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2087217/)
+## 对台战争将会导致国内各种灾难的发生
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2087238/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

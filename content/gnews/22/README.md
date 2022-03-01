@@ -2,26 +2,51 @@
 ---
 
 
-## 欧盟冷漠对待战火中的乌克兰，还有哪个国际组织可信？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2086855/)
+## 七哥将在英国迎战UBS在日本开启24小时全面作战平台
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2086913/)
 
-撰稿：东京樱花团/待命（文晓）
+G-TV视频链接：https://gtv.org/video/id=62164bac1408ee3a03a3c8ca
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/欧盟冷漠对待战火中的乌克兰，还有哪个国际组织可信？-.jpg)[图片源自](https://www.bbc.com/zhongwen/simp/uk-50208721)
+**郭文贵先生：**七哥等有一天上你们家要饭的时候，我就希望战友们记住：给七哥尊严的一碗饭。我不是开玩笑，爱米粒、文艺真的，Tex还有 Nick，所有战友做好准备。七哥很有可能不在美国生活，很快我有可能去两个地方：一个是伦敦，一个日本。这是今天的重大宣布，我可能要去伦敦英国和日本生活。
 
-3月1日时事通信社消息：据法新社报道，２月２８日，欧盟（EU）向乌克兰申请立即加入该集团的希望泼了冷水。
+我到英国去，我就是为了这个官司，UBS的官司，我要去到英国去，基本上安排妥当，任何时间都可能。也有可能明天，也有可能下个月，也可能两个月，但一定今年我会去英国去生活，就去准备打这个官司。
 
-2月27日，欧盟委员会主席乌苏拉-冯德莱恩（Ursula von der Leyen）在接受欧洲新闻网采访时说：乌克兰是我们的一员。我们希望乌克兰能加入我们。然而，欧盟外交和安全事务高级代表何塞普-博雷尔却说，乌克兰加入欧盟将需要 “许多年”。
+第二个去了英国生活，我就要肯定要日本，日本是对中国那块儿作战，亚洲唯一安全的地方，所以文艺啊，是吧？到时候给我叫“想流水找七哥”，到时候我到日本去下飞机的口号就是：“想流水找七哥，中介联络人文艺”。爱米粒：“想过来，见七哥，隔海流水请来看七哥”。我可以告诉大家我就“隔海流水请来看七哥”。
 
-欧盟委员会发言人埃里克-马默（Eric Mamer）撤回了冯德莱恩先生的声明，并解释道，他的意思是乌克兰是欧洲的一部分，而不是欧盟的一部分，他希望欢迎乌克兰加入欧洲。
+我可以告诉大家，我就住哪啊？我到那就住在…….之前我在日本东京我有个大酒店，就在帝国酒店对面，一整栋楼，咱们爆料革命的楼。我在去那里之前有三个事必须要干的：首先，七哥必须变得一无所有，一无所有。有些话聪明人都懂，一无所有我才去这里。
 
-众所周知，乌克兰地处欧洲，哪里还存在加入欧洲之说！哪里用得着欧盟委员会主席说欢迎加入欧洲？联合国、国际刑警组织、国际奥委会、国际卫生组织等国际机构，按理说在大是大非面前应该做出表率作用才是。然而，遗憾的是自从中共病毒（新冠病毒）在全世界爆发以来，国际组织的决定，一次次的令人失望！
+我到伦敦、我到日本我就变得一无所有啊，真正的我让大家知道我真的一分钱没有，一毛钱没有，这是在法律面前庄严的说话。全靠家族和基金的支持，未来这肯定是更是要靠这些支持啊，但我要变得更加一无所有，绝对是全身心的，在伦敦以沼泽地、以这些黑暗找回中国人的财富，然后切断共产党最后的所有的它想东山再起的那黑色的财富。
 
-信息来源：[EU、ウクライナの加盟申請に冷や水（ＡＦＰ＝時事） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/927e2f09059c28c98f45768be876aff101627a29)
+到日本去就近距离作战，组织起我们真正的各种力量在日本建立个大平台24小时全面作战，我们就是想办法能让大陆的每个角落都能听到七哥直接的声音。共产党你有种你暗杀我，到时候共产党有本事暗杀我，我们不想诱使它犯罪，但它有种它过来。那么我在申请一个法律程序，法律程序完以后我再公布，那时又是个大事儿。
 
-*编辑：东京樱花团/逢⑦必变
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
+
+编辑整理：Jacques；
+
+字幕档制作：兵嫂；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

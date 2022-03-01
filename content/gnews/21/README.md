@@ -2,34 +2,35 @@
 ---
 
 
-## 人权组织和乌克兰外交部指控俄罗斯使用“真空弹”
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2086884/)
+## 香港新冠病毒确诊数大幅上升连创单日新高
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2086994/)
 
-**撰稿：**日本东京方舟农场 子辰
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-2月28日，人权组织和乌克兰外交部指控俄罗斯在入侵战争中使用了波及平民百姓的杀伤性武器。
+整理：围剿维尼熊
+编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/028.jpg)（图片来自大纪元）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-2.png)图片来源：AJ Jazeera & 雅典娜设计组
 
-援引路透社报道，大赦国际（Amnesty International）和人权观察（Human Rights Watch）都表示并谴责，俄军可能使用了被广泛禁止的集束导弹（cluster bombs）。俄罗斯袭击了乌克兰东北部的一所学校，当时平民正在里面避难。
 
-集束导弹被称为具有大面积杀伤性武器，它是在弹体中装入数个至数百个的子炸弹，以对目标进行地毯式轰炸。该武器特别容易误伤平民，且容易出现未爆弹，可能造成非预期的死伤。
+根据路透社2月28日报道，因奥密克戎肆虐，周一香港新增逾3.4万例新冠确诊病例，已连续六天创单日新高，较上日增逾三成。卫生防护中心官员预期日新增确诊病例会继续上升。
 
-乌克兰驻美国大使奥克萨娜·马尔卡洛娃（Oksana Markarova）在与美国国会议员会面后告诉记者，俄罗斯在入侵乌克兰时，有可能使用了一种被称为“真空弹”（又称热压弹）的武器。
+据当日发布的数据，单日报告新增34466例新冠病毒确诊病例，其中有4例输入病例，其余34462例为本地感染。
 
-据悉，真空弹是一种热压武器，炸弹会在半空中爆炸，释放大量热能与超音速震波，同时消耗该区域氧气，其高温足以蒸发人体，被称为威力最强大的非核武器之一。该武器已被《日内瓦公约》所禁止。
+卫生防护中心传染病处首席医生欧家荣表示，根据对四百多宗死亡病例的分析，死亡年龄的中位数为84岁，60岁或以上的占比92%；四宗0至4岁的个案死亡率为0.04%，80岁或以上的死亡率为66%。
 
-目前为止，俄军使用真空弹的消息，尚未获得正式确认。但是CNN报导称，有记者在乌克兰边境附近发现了俄罗斯真空弹发射器。
+林郑月娥表示，港共政府正在各个环节加强抗疫能力，未来两、三个月是稳控疫情的关键时刻，正在筹备在3月内推行全民强制检测。
 
-大赦国际表示，国际人道法禁止使用集束弹药等滥杀武器。发动滥杀、滥伤平民的袭击，将构成战争罪。
+参考链接：[香港增逾3.4万宗新冠病毒确诊数再创单日新高](https://cn.reuters.com/article/hk-covid19-situation-cases-0228-mon-idCNKBS2KX14T?il=0)
 
-参考链接：
-1、 [https://www.epochtimes.com/b5/22/3/1/n13612836.htm](https://www.epochtimes.com/b5/22/3/1/n13612836.htm)
-2、[https://www.cna.com.tw/news/aopl/202203010088.aspx](https://www.cna.com.tw/news/aopl/202203010088.aspx)
+*发布：tianzhihuan*
 
-素材采编：子辰
-编辑：青城道姑
-发布：Linda
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

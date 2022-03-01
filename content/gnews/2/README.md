@@ -2,25 +2,38 @@
 ---
 
 
-## 有声｜普京令俄罗斯核威慑力量保持戒备状态
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2087255/)
+## 韩国政府向乌克兰提供1000万美元用于人道救援
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2087298/)
 
-By:**秘翻新闻**
+作者：首尔天池农场—追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-71.png)
+2月28日，韩国外交部宣布，韩国决定向乌克兰提供1000万美元的紧急人道主义援助，用于帮助乌克兰政府、民众和难民。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-31.png)
+外交部指出，将通过与乌克兰及其周边国家政府和国际组织协商，确保援助尽快到位。
 
-**2022-03-01**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-1.png)图片来源 THE ASSOCIATED PRESS
-[综合新闻2月28日报道，在北约与西方多国一起对俄罗斯实施严厉的金融制裁后，普京发表了咄咄逼人的声明。俄罗斯总统普京已下令，使其核威慑力量在入侵乌克兰之际保持高度戒备。他的命令再次提高了战争的级别。](https://www.politico.com/news/2022/02/27/russia-putin-nuclear-weaponry-00012108)
+联合国难民事务高级专员估计，将有超过 400 万乌克兰难民逃往波兰、匈牙利、罗马尼亚和斯洛伐克等周边国家。
 
-[普京命令俄罗斯国防部长和军队总参谋长将核威慑力量置于特殊的战斗职责。普京的命令提加强了本次俄乌战争对世界的威胁，即西方参与乌克兰地区的紧张局势可能导致俄罗斯使用核武器。](https://www.politico.com/news/2022/02/27/russia-putin-nuclear-weaponry-00012108)
+外交部表示，希望韩国政府的支持能够为乌克兰民众和难民提供切实帮助，政府并计划为解决乌克兰人道主义危机作出积极力量。
 
-[报道还称，普京本周威胁要严厉报复任何直接干预俄乌冲突的国家。](https://www.politico.com/news/2022/02/27/russia-putin-nuclear-weaponry-00012108)
+参考链接：[外交部向烏克蘭公民和難民提供1000萬美元](https://news.kbs.co.kr/news/view.do?ncd=5405763)
 
-秘翻新闻 StevenZ 编辑报道
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-发布 : 恩典
+总编/编辑：DM
+校对/发稿：小野貓（文凱琳）
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-71.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

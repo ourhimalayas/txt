@@ -2,17 +2,23 @@
 ---
 
 
-## 俄乌战争｜美国防部新闻秘书称 战争亡魂直接归因于普京
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2087106/)
+## 有声｜欧盟继续扩大对俄制裁名单
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2087166/)
 
-**撰文/ 港台前线｜发布日期/ 01/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-4.png)**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))**
-本日，据美国国防部官方网站新闻指出，对俄罗斯入侵乌克兰所造成的伤亡，美国国防部五角大厦新闻秘书约翰·F·柯比(John F. Kirby)于记者会强调“因战争而牺牲的人命都直接归因于俄罗斯总统普京(Vladimir Putin)。”
-制作：港台前线/关注组 （翻译仅供参考，取用请附上来源）
-科比表示，俄罗斯想占领基辅，预计一个长达17英里的俄罗斯军队将继续前进乌克兰首都基辅。
+By:**秘翻新闻**
 
-来源｜[U.S. Department of Defense](https://www.defense.gov/News/News-Stories/Article/Article/2949452/dod-in-ukraine-every-lost-soul-is-on-putin/)
+**2022-03-01**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-1.png)图片来源 hk01
+[综合新闻2月28日报道，欧盟宣布就乌克兰问题进一步扩大对俄罗斯制裁，继制裁普京等俄国政要后，此次将俄罗斯总统新闻秘书佩斯科夫（Dmitry Peskov）及副总理切尔内申科等人纳入制裁名单内。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/741448/%E7%83%8F%E5%85%8B%E8%98%AD%E5%B1%80%E5%8B%A2-%E6%AD%90%E7%9B%9F%E6%93%B4%E5%A4%A7%E5%B0%8D%E4%BF%84%E5%88%B6%E8%A3%81-%E5%A4%9A%E5%90%8D%E5%AE%98%E5%93%A1-%E4%BC%81%E6%A5%AD%E5%AE%B6%E7%B4%8D%E5%85%A5%E5%88%B6%E8%A3%81%E5%90%8D%E5%96%AE)
 
+[最新被纳入制裁名单还包括多名俄国官员、国家杜马议员、4名俄军高层、企业家、银行总裁，甚至记者和电视主持，有关决定在公布后立即生效。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/741448/%E7%83%8F%E5%85%8B%E8%98%AD%E5%B1%80%E5%8B%A2-%E6%AD%90%E7%9B%9F%E6%93%B4%E5%A4%A7%E5%B0%8D%E4%BF%84%E5%88%B6%E8%A3%81-%E5%A4%9A%E5%90%8D%E5%AE%98%E5%93%A1-%E4%BC%81%E6%A5%AD%E5%AE%B6%E7%B4%8D%E5%85%A5%E5%88%B6%E8%A3%81%E5%90%8D%E5%96%AE)
+
+秘翻新闻 StevenZ 编辑报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

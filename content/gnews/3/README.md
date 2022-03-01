@@ -2,8 +2,8 @@
 ---
 
 
-## 打台湾等于把自家的房子烧掉
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2087254/)
+## 人类长时间的和平培养出了邪恶国家
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2087265/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

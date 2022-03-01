@@ -2,36 +2,20 @@
 ---
 
 
-## 俄电视主持人疯狂叫嚣“核毁灭”美国
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2087181/)
+## 习和中共军队打台的战略分析
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2087217/)
 
-翻译：Steven Hu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-7.jpg)
-图片来源：《零对冲》
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-《零对冲》报道：一位被称为“普京的首席宣传员”的俄罗斯电视主持人公然威胁要对美国和北约国家进行核毁灭，并问道：“如果俄罗斯都不存在了，为什么我们还需要世界？”
+*发布：陶子*
 
-就在普京总统宣布将其核威慑力量置于高度戒备状态几个小时后，德米特里·基谢廖夫（Dmitry Kiselyov）在国家电视台发表了上述评论。
-
-“我们的潜艇可以发射超过 500 枚核弹头，”基谢廖夫表示，并补充说，“这将保证摧毁美国和所有其他北约国家。”
-
-这位电视主持人暗示，如果俄罗斯不复存在，地球上的生命就没有继续存在的意义断言，“按照原则，如果没有俄罗斯，我们为什么需要世界？”
-
-基谢廖夫继续大肆宣传莫斯科核武库的实力，吹嘘说：“俄罗斯的核武器是由世界上最快的战略轰炸机投放的。”
-
-”这甚至没有提到俄罗斯战略导弹部队。 俄罗斯的核力量是世界上最强的。”
-
-基谢廖夫还猛烈抨击英国外交大臣利兹特拉斯（Liz Truss）暗示俄罗斯在乌克兰的行动可能会激发与北约的直接军事对抗。
-
-”俄罗斯和北约之间在乌克兰问题上发生冲突？以前从未有过这样的说法，”他说。
-
-昨天，普京下令他的核力量采取“特殊待命状态”以回应他所谓的北约领导人的“侵略性声明”和经济制裁。
-
-北约代表将此举称是将危险进一步升级的举动。秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）回应说：“这是危险的用辞。”
-
-译者：从共产制度演变成独裁的俄罗斯，同中共一样，狂妄自大；能力够本无法匹配其野心与欲望；而扼杀个性和创造力的制度使它同世界文明和科技发展的距离越来越远。从入侵乌克兰开始至今所遇到的挫折证明了这一点。随着西方支持乌的强度越来越大甚至最后导致西方直接军事介入，俄的惨败只是时间问题而已。至于核威胁能否阻止西方？恐怕普京自己都不相信。
-
-原文链接：https://www.zerohedge.com/geopolitical/russian-tv-host-threatens-nuclear-destruction-america
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
