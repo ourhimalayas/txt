@@ -2,28 +2,38 @@
 ---
 
 
-## 乌克兰开监狱大门释放囚犯！为国家而战！为自由而战！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2084625/)
+## 欧盟宣布对俄罗斯飞机实施全面飞行禁令
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2084864/)
 
-俄罗斯入侵乌克兰，首都基辅市长克里契科透露，基辅已遭到俄军包围，透过卫星图也可看到大量军用车辆开往基辅。乌克兰持续征兵，现在就连监狱内有军事经验的囚犯也将被释放，打算为国家而战。
+作者：纽约香草山健身部—Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月27日，欧盟委员会主席乌苏拉-冯德莱恩在布鲁塞尔宣布，欧盟已经对俄罗斯飞机实施了全面的飞行禁令。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-28-下午10.56.51.png)
+冯德莱恩说，该禁飞令针对俄罗斯拥有、注册或控制的飞机。所有这些飞机，包括寡头的私人飞机，现在将不能在任何欧盟国家降落、起飞或飞越。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/canvas-4.png)图片来源：unsplash.com
+在欧盟正式宣布这一决定前，欧洲国家已经在逐一对俄罗斯关闭其领空。德国说其禁令将持续三个月。英国也禁止俄罗斯飞机进入其领空。
 
-乌克兰检察官办公室官员辛纽克指出，有关释放大多数普通囚犯的问题仍在商讨中，不过他并未具体说明这是否适用于所有级别罪行的受刑人。包括受刑人的军事经验及对犯罪的悔意都在考虑范围内。
+莫斯科多莫杰多沃机场和谢列梅捷沃机场的出发牌显示，周日有几十个航班被取消，包括前往巴黎、维也纳和加里宁格勒的航班。
 
-乌克兰总统泽伦斯基则说：我们正在为我们的国家而战，为我们的自由而战，因为我们有权这样做。
+俄罗斯S7航空公司在Facebook上说，它将取消前往许多欧洲目的地的航班，至少到3月13日。
 
-简评：为国家而战，为自由而战，身为乌克兰的公民人人有责，监狱里的囚犯也不例外。为国效力，捍卫自由，抵抗侵略者，也正是犯过错误的囚犯们一个为自身赎罪的机会。为了不让乌克兰变为“大监狱”，囚犯们走出“小监狱”为国家为自由而战吧！
+欧盟还将禁止俄罗斯的国有新闻机构，它们被广泛视为克里姆林宫的喉舌。据悉，欧盟正在开发工具，以禁止这些新闻机构在欧洲发布有毒和有害的虚假信息。
 
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1077707)
+参考链接：[EU closes airspace to Russian planes, bans pro-Kremlin media outlets and pledges arms to Ukraine](https://www.cbsnews.com/news/ukraine-russia-european-union-airspace-rt-sputnik/)
 
-撰稿/发布：一叶知秋
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+总编：Jack Li文阳
+编辑：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

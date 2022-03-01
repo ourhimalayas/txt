@@ -2,21 +2,41 @@
 ---
 
 
-## 美国驱逐12名驻纽约联合国总部俄外交人员 称其从事间谍活动
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2083861/)
+## 俄乌战事胶着 朝鲜试射导弹
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2084289/)
 
-撰稿：追着曙光跑
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据华尔街日报3月1日的报道，美国正在驱逐俄罗斯派驻纽约联合国的12名外交官人员，称他们是情报人员。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-03-01-at-10.27.57.jpeg)图片来源：网络
-美国驻联合国大使琳达·托马斯-格林菲尔德的发言人称，美国正在开始驱逐俄罗斯代表团的12名情报人员，他们滥用在美国的居住特权，从事不利于美国国家安全的间谍活动。
+#### 整理：围剿维尼熊
+编辑：花岗岩
 
-另外，他指出，驱逐行动已经开展了几个月，这一行动是根据允许美国作为联合国总部东道国的协议进行的。
-
-信息来源：[美国驱逐12名俄罗斯驻联合国外交官，称其从事间谍活动](https://cn.wsj.com/amp/articles/%E7%BE%8E%E5%9B%BD%E9%A9%B1%E9%80%9012%E5%90%8D%E4%BF%84%E7%BD%97%E6%96%AF%E9%A9%BB%E8%81%94%E5%90%88%E5%9B%BD%E5%A4%96%E4%BA%A4%E5%AE%98-%E7%A7%B0%E5%85%B6%E4%BB%8E%E4%BA%8B%E9%97%B4%E8%B0%8D%E6%B4%BB%E5%8A%A8-11646089862)
-[12 members of Russia’s UN mission expelled from US: Russian ambassador](https://insiderpaper.com/12-members-of-russias-un-mission-expelled-from-us-russian-ambassador/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-15.png)
 
 
+根据德国之声中文网2月28日报道，在全球聚焦俄罗斯入侵乌克兰之际，朝鲜周日进行2022年以来第8次的导弹试射。
+
+韩国参谋长联席会议报告说，朝鲜从平壤国际机场所在的顺安附近向其东海岸的海域发射了一枚疑似弹道导弹的物体。
+
+参谋长联席会议说，周日发射的导弹最大飞行高度约为620公里，射程约为300公里。专家指出，飞行数据与早先的测试不大吻合，并暗示这可能是一枚中程弹道导弹。
+
+日本防卫大臣岸信夫说，朝鲜频繁进行导弹试射，而且朝鲜正在继续迅速发展其弹道导弹技术。朝鲜正威胁著日本、该地区和国际社会的安全。
+
+美国军方印太司令部说，美国谴责朝鲜最新的导弹试射，并呼吁朝鲜停止破坏区域稳定的行为。不过，美国也表示，这次试验并不构成直接威胁。
+
+青瓦台的一份声明表示，韩国国家安全委员会召开了一次紧急会议，讨论周日朝鲜的导弹试射。
+
+韩国延世大学教授德鲁里（John Delury）在推特上写道：“普京的战争现在几乎主导了所有的地缘政治，而该危机在金正恩的计算中也占据一定的位置。但强调朝鲜利用俄乌危机来分散国际社会对其的注意力似乎是假设过了头，因为朝鲜在战前已经在积极地进行导弹试射了。”
+
+参考链接：[朝鲜第8次导弹试射 美日韩齐声谴责](https://www.dw.com/zh/北韓第8次導彈試射-美日韓齊聲譴責/a-60940155)
+
+*发布：wenly*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
