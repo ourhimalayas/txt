@@ -2,34 +2,27 @@
 ---
 
 
-## 纽约市计划放弃学校和企业的口罩和疫苗强制
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2089168/)
+## 美支付公司万事达、VISA禁止多家俄罗斯金融机构使用其支付网络
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2089274/)
 
-作者：加拿大温哥华扬帆农场 Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月27日，据NBC-纽约报道，纽约市长埃里克-亚当斯宣布，他计划于3月7日起，取消该市 5岁以上人士在公共场合需提供疫苗接种证明的政策，学校也将不再要求学生和工作人员在室内配戴口罩。
+**撰稿：日本东京方舟农场 海星**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11.jpeg)
+2月28日，美国知名支付公司万事达卡与VISA发布声明表示，他们已禁止多家俄罗斯金融机构使用其支付网络。
 
-在结束疫苗强制之前，纽约市长办公室的团队还将审查该市的“中共病毒”感染指标，一旦这些指标在未来几周持续低于高危风险的界限，疫苗强制政策的废止将如期推进。
+据《中央社》报导，Visa公司（Visa Inc）在2月28日的声明中表示，该公司遵循制裁措施，已停止对多家俄罗斯金融机构进行服务，未来可能还会有进一步的制裁行动。万事达卡公司（Mastercard Inc）也在声明中表示，该公司已对俄罗斯实施了相应的制裁措施，未来几天还将持续和监管机构合作，并将捐出200万美元向乌克兰提供人道救援。
 
-自2021年以来，纽约市一贯采取相对激进的防疫措施，包括在餐馆、学校等公共场所出示“中共病毒”疫苗的接种证明，强制配戴口罩。分析人士指出，强制防疫措施并未及时遏制2022年年初“奥米克戎”毒株在纽约市的爆发，反而引发民众的普遍反感，以及大规模的反“强制疫苗”游行活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-3.jpg)（图片来源：Pixabay图库）
 
-参考链接：[Adams Plans to Drop Key2NYC Vaccine Mandate, Masks in School; Final Decision Due Friday](https://www.nbcnewyork.com/news/coronavirus/once-the-epicenter-new-york-city-plans-to-drop-vaccine-mandate-and-masks-in-schools/3574239/)
+此前，在俄罗斯入侵乌克兰后，美国电子支付公司Apple Pay和Google Pay立即停止了部分俄罗斯银行卡使用他们的支付功能，导致这些银行的客户将无法在国外刷卡，也无法向被制裁国家的注册公司进行线上支付。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+参考链接：
+1. [https://www.cna.com.tw/news/aopl/202203010229.aspx](https://www.cna.com.tw/news/aopl/202203010229.aspx)
+2. [https://ec.ltn.com.tw/article/breakingnews/3842175](https://ec.ltn.com.tw/article/breakingnews/3842175)
 
-总编：Zion文恩
-编辑：Zion文恩
-校正/发稿：谐趣园
+素材采编：海星
+编辑：老孙
+发布：小斐
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,27 @@
 ---
 
 
-## 有声|独裁者要争霸世界必将失败
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2089105/)
+## 加拿大和欧洲国家对乌克兰难民提供人道援助
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2089155/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-俄罗斯普京发动战争侵占乌克兰面临国内国际的反抗与制裁已经骑虎难下。
+加拿大温哥华杨帆农场 枫叶快讯
 
-中共面临更大的麻烦。
+采编：文莱       翻译编辑：文所未闻
+![Ukrainian refugees](https://www.ctvnews.ca/polopoly_fs/1.5796010.1645804566!/httpImage/image.jpg_gen/derivatives/landscape_960/image.jpg)图片来源：https://www.ctvnews.ca/
+据加拿大《CTV新闻》2月25日报道，加拿大国防部长阿南德当天表示，有150名该国军人组成的武装部队正在波兰待命，随时准备提供战争援助，以帮助乌克兰难民安全越过边境进入欧洲邻国。
 
-1，不打台湾背叛习普同盟，曾江饶不了习猪头。
+报道称，在对乌克兰多个城市和军事基地发动空袭后，俄军目前已推进到首都基辅附近，并导致成千上万的乌克兰人涌入欧洲中部和邻国地区避难。
 
-2，若打台湾国际社会必灭习特勒。
+据悉，帮助难民前往加拿大是后续救援措施之一。加拿大政府正在就如何优先、快捷处理乌克兰人的移民申请制定方案。于此同时，欧盟也在为大量战争难民的涌入做准备。
 
-3，党内反对派必把习猪头炖肉吃。
+此外，新中国联邦和法治基金也已与联合国救援组织合作，共同启动了国际人道救援行动。并投入巨大资源无偿安排专机协助有需要的人士撤离到安全中转国。反观中共政府，懦夫嘴脸毕现，竟以“不安全”为借口拒绝实施救援，置其惶恐国民于炮火中而不顾。正义和邪暴立见，真善和假恶分明。
 
-4，习猪头现在头痛。心痛。肝痛、脾痛,全身痛。
+校对编辑：硫酸羟氯喹64
 
-习太，普大帝难兄难弟共同站在一条战船上，必将被自由人权的国际社会所抛弃，死于无葬身之地。
+发稿：青青
 
-文字版原文：[独裁者要争霸世界必将失败](https://gnews.org/zh-hans/2081251/)
+消息来源： [https://www.ctvnews.ca/politics/canada-european-countries-preparing-for-influx-of-ukrainian-refugees-1.5795900](https://www.ctvnews.ca/politics/canada-european-countries-preparing-for-influx-of-ukrainian-refugees-1.5795900)
 
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
