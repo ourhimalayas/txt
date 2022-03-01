@@ -15,89 +15,89 @@
 
 ---
 
-### [先熟悉HPay,再推广HPay](/content/gnews/1/README.md)
+### [每日快报：国际刑事法院将调查在乌克兰的战争罪行指控](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [不同国家有不同的政策，我们有我们的对策](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [什么是“影子银行”](/content/gnews/2/README.md)
+### [G贷款、G存款、G保险](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [俄罗斯网络黑客科技是最厉害的](/content/gnews/3/README.md)
+### [先熟悉HPay,再推广HPay](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [正道主义，贡献给全人类](/content/gnews/4/README.md)
+### [什么是“影子银行”](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [新中国联邦救援行动](/content/gnews/5/README.md)
+### [俄罗斯网络黑客科技是最厉害的](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [正道主义，贡献给全人类](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [乌俄战争之际美前军事官员赴台湾表支持](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [新中国联邦救援行动](/content/gnews/9/README.md)
  ` MOSVIDEO`
 
-### [日本冻结俄罗斯总统普京等的资产](/content/gnews/6/README.md)
+### [日本冻结俄罗斯总统普京等的资产](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [布莱恩：这个世界已经变了_完完全全地变了](/content/gnews/7/README.md)
+### [布莱恩：这个世界已经变了_完完全全地变了](/content/gnews/11/README.md)
  ` mayflowertranslate`
 
-### [泽连斯基要求俄罗斯在停火谈判之前须“停止轰炸”](/content/gnews/8/README.md)
- ` Shuizhuyu`
-
-### [中共加紧用毒疫苗荼毒人民](/content/gnews/9/README.md)
+### [中共加紧用毒疫苗荼毒人民](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [俄罗斯警告基辅居民逃离](/content/gnews/10/README.md)
- ` Shuizhuyu`
-
-### [我们要真正的以善制暴，以实力制暴！](/content/gnews/11/README.md)
+### [我们要真正的以善制暴，以实力制暴！](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [一定要了解喜币，善用喜币](/content/gnews/12/README.md)
- ` MG FARM`
-
-### [3/1/2022 文贵盖特：据说，普京大怒，打电话催习近平对台湾动手；面对俄乌战事，中共非但救援却疯狂控制舆论，我们救了多少大使馆人员？](/content/gnews/13/README.md)
+### [3/1/2022 文贵盖特：据说，普京大怒，打电话催习近平对台湾动手；面对俄乌战事，中共非但救援却疯狂控制舆论，我们救了多少大使馆人员？](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共国对战乱中的同胞弃之不顾](/content/gnews/14/README.md)
+### [中共国对战乱中的同胞弃之不顾](/content/gnews/15/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大和欧洲国家对乌克兰难民提供人道援助](/content/gnews/15/README.md)
+### [加拿大和欧洲国家对乌克兰难民提供人道援助](/content/gnews/16/README.md)
  ` 扬帆枫叶快讯`
 
-### [乌克兰成为欧盟首次军事援助的国家](/content/gnews/16/README.md)
+### [乌克兰成为欧盟首次军事援助的国家](/content/gnews/17/README.md)
  ` 扬帆枫叶快讯`
 
-### [郭文贵先生揭露习近平面临的五个危机](/content/gnews/17/README.md)
+### [郭文贵先生揭露习近平面临的五个危机](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [4.人类历史上首次使用AI与心理学多角度协同作战](/content/gnews/18/README.md)
+### [4.人类历史上首次使用AI与心理学多角度协同作战](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [美国的选择决定人类的命运](/content/gnews/19/README.md)
+### [美国的选择决定人类的命运](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [中共对台湾的侵略将引发浩劫](/content/gnews/20/README.md)
+### [中共对台湾的侵略将引发浩劫](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [【圆成原创】止战！紧急呼吁传播俄罗斯入侵乌克兰的战争的真相！](/content/gnews/21/README.md)
+### [【圆成原创】止战！紧急呼吁传播俄罗斯入侵乌克兰的战争的真相！](/content/gnews/22/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美国疫苗接种率暴跌](/content/gnews/22/README.md)
+### [美国疫苗接种率暴跌](/content/gnews/23/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [新西兰财经G乐部2022年2月29日:财经新闻整理](/content/gnews/23/README.md)
+### [新西兰财经G乐部2022年2月29日:财经新闻整理](/content/gnews/24/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [新中国联邦在俄乌战火中崛起](/content/gnews/24/README.md)
+### [新中国联邦在俄乌战火中崛起](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [2022年3月1日，全球中共病毒疫情情况汇总](/content/gnews/25/README.md)
+### [2022年3月1日，全球中共病毒疫情情况汇总](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文·贵天成——文贵先生谈“疫苗”（六十）](/content/gnews/26/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（六十）](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [马斯克：俄罗斯入侵并扰乱互联网 星链在乌克兰使用活跃](/content/gnews/27/README.md)
+### [马斯克：俄罗斯入侵并扰乱互联网 星链在乌克兰使用活跃](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [NFSC新闻、G|TV新闻访谈简报|2022年3月1日早](/content/gnews/28/README.md)
- ` 纽约香草山MOS01`
 
 ### [美国敦促其公民考虑立即离开俄罗斯](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
