@@ -2,39 +2,52 @@
 ---
 
 
-## 有声|韩国政府向乌克兰提供1000万美元用于人道救援
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2088959/)
+## 共产党如果想要杀郭文贵先生的话在美国白宫也能杀掉
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2088982/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月28日，韩国外交部宣布，韩国决定向乌克兰提供1000万美元的紧急人道主义援助，用于帮助乌克兰政府、民众和难民。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-31.png)
-外交部指出，将通过与乌克兰及其周边国家政府和国际组织协商，确保援助尽快到位。
+G-TV视频链接：https://gtv.org/video/id=62164cdb1408ee3a03a3c8f9
 
-联合国难民事务高级专员估计，将有超过 400 万乌克兰难民逃往波兰、匈牙利、罗马尼亚和斯洛伐克等周边国家。
+**郭文贵先生：**因为现在呢，现在一定要这么想啊，就共产党想杀我的话，在美国就我待在白宫它也能把我杀了，你一定要懂得，就是这个常识，一定大家记住。
 
-外交部表示，希望韩国政府的支持能够为乌克兰民众和难民提供切实帮助，政府并计划为解决乌克兰人道主义危机作出积极力量。
+就是为啥我说我们战友们，有的战友说：“我的个人信息什么…..”战友们，它是个国家，你说你个人信息（共产党）想知道你，那是分分钟钟容易的事儿，特别是科技的时代。
 
+第二个，就共产党想杀掉你这个人，你待在白宫把我搁在地下室，也能把我杀了，一定能做到的，因为什么？它买通的美国人多了去了，它不用说习近平来杀你，这太容易了，你这一点……但是需不需要杀你？它杀我有啥意义？它杀了我成就我是个英雄，然后杀了我以后，咱爆料革命只能是越来越大，会有无数个郭文贵出来的。
 
+就像当年蒋经国，你在美国你搞那一把“江南事件”，你直接你“江南事件”你搞了一下子，直接把蒋介石把蒋家干掉了，台湾迎来民主了。美国直接跟台湾说：你只有俩选择，要不你滚蛋，要不你开放，要不然我就把你全弄死个球的了。
 
-文字版原文：[韩国政府向乌克兰提供1000万美元用于人道救援](https://gnews.org/zh-hans/2087298/)
+那么在英国，你看看俄罗斯当时就毒死了当时格维切夫（注：同音字）这个家伙。你看看他格维切夫被毒死以后在英国，从二零一四年、二零一五年你看看整个俄罗斯，俄罗斯今天这个国家付出的一切代价其中就是因为这个，那可不是用钱能衡量的，整个俄罗斯国家到今天被欧洲给排斥在外。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+再一个想想当年1977年、1978年还是79年？萨达姆就把他的一个能源大臣去到了伦敦，第一次打了一枪把他老婆打死了，第二次把他枪杀了——在车上，萨达姆最后是被整个美国给干掉。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+就这故事讲的不能再讲了，就是太多了。像那英国、日本、美国，记住都一样，想杀我那是肯定能杀了。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+编辑整理：Jacques；
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+字幕档制作：兵嫂；
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+视频制作及上传：Cindy；
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 
