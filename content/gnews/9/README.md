@@ -2,31 +2,20 @@
 ---
 
 
-## 瑞士放弃中立承诺 跟进欧盟对俄制裁 并冻结普京资产
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2086030/)
+## 美国保护台湾最好的方法就是 把7个老杂毛干掉
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2086190/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-2月28 日，瑞士表示将全面采纳欧盟的制裁措施，并冻结俄国总统普京等人资产，罕见放弃自二战以来的的中立承诺。
+*发布：陶子*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/027.png)（图片来自网络）
-
-中央社报道，瑞士政府声明表示，瑞士将与欧盟协调制裁俄国，制裁措施主要针对货物与金融方面，也包括冻结个人与企业资产。
-
-声明还表示：瑞士这么做，是针对那些应为严重违反国际法负责的个人，采取因应行动。
-
-瑞士总统卡西斯（Ignazio Cassis）在记者会中说：对瑞士而言，这是跨出了一大步。
-
-日前，美欧等国已将俄罗斯移出swift支付系统，瑞士此次放弃中立承诺，跟进对俄制裁，无疑使美欧等国的制裁对俄形成了更大的压力。
-
-截至目前，俄罗斯并未对此事做出任何回应。
-
-参考链接：
-1：[https://www.cna.com.tw/news/aopl/202203010043.aspx](https://www.cna.com.tw/news/aopl/202203010043.aspx)
-
-素材采编：Kevin wang
-编辑： 青城道姑
-发布：Linda
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
