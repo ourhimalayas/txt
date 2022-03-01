@@ -2,28 +2,38 @@
 ---
 
 
-## 视频｜美驻俄大使馆要求美国公民立即撤离
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2086232/)
+## 珍惜生命 尽快撤离
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2086316/)
 
-制作：香草山视频部
+**作者：文明明**
+[![](https://express.adobe.com/page/azUv2CgfRQYi9/images/9814f37c-547d-48a8-9de9-c4d0958a4fd3.png?asset_id=7ae3f8a4-61d5-4e9c-a6a1-58354c8f0c0f&amp;img_etag=%22f1608e50282346ca1365480289409f45%22&amp;size=1024)](https://express.adobe.com/page/azUv2CgfRQYi9/images/9814f37c-547d-48a8-9de9-c4d0958a4fd3.png?asset_id=7ae3f8a4-61d5-4e9c-a6a1-58354c8f0c0f&amp;img_etag=%22f1608e50282346ca1365480289409f45%22&amp;size=1024)
+2月27日，普京用提高核战备来威胁乌克兰，使乌克兰战事的紧张状态更近一步。
 
-2月27日，美国驻莫斯科大使馆发布安全公告，警示所有美国公民 “立即 “撤离俄罗斯。
+滞留在异国他乡的您，此时此刻不知是否还能拨通中共驻乌克兰大使馆的电话，如果幸运地接通了电话，不知大使馆会立即安排“战狼”带您离开战火硝烟，回到“祖国”的怀抱，还是让您在惶恐和绝望中等待。毕竟，血淋淋的现实与电影和洗脑宣传不同。
 
-公告提醒，越来越多的航空公司正在取消进出俄罗斯的航班，许多国家已经对俄罗斯的航空公司关闭了他们的空域。  美国公民应随时关注信息，并考虑立即通过目前可用的商业航班离开俄罗斯。
+据中共喉舌《环球时报》27日报道，中共驻乌克兰大使馆认为“由于当地实施严格的空中管制措施，空中时常遭遇炮击和导弹，如果在包机撤离中遇到危险，后果将不堪设想，因此现阶段包机撤侨的方案很难执行”。
 
-公告称，莫斯科和圣彼得堡等主要城市，以及在俄罗斯与乌克兰边境紧张局势加剧的地区，可能出现针对购物中心、铁路和地铁站以及其他公共集会场所的攻击威胁。另外，美国国务院对俄罗斯的旅行建议级别已调至四级，即不要旅行。
+与此同时，2月26日，郭文贵先生宣布，新中国联邦（NFSC）和法制基金（Role of Law Foundation) 将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿。
 
-该警报是在普京将俄罗斯的核威慑力量置于最高戒备状态后发出的。
+求生是人的本能，两相比较，谁是真心诚意救助了然于胸。滞留在乌克兰命悬一线的同胞们，您是父母的孩子，是爱人的伴侣，是儿女的家长，是家庭的顶梁柱，您的生命安全是您全家最牵肠挂肚的，不要被洗脑的宣传愚弄，与您逃生的机会失之交臂。战火中的生命是最无常、最脆弱的，谁都无法预测下一秒的世界，为了您的家人，请珍惜生命，在性命攸关之际做出明智的选择。
 
-华盛顿特区安全政策中心专家伊拉里奥诺夫说，现在的局势令人难以置信的严重。他呼吁，美国和北约必须立即作出回应，否则，美国和整个欧洲将受到直接的核威胁。
+新中国联邦（NFSC）和法制基金（Rule of Law Foundation) 人道救援24小时联系方式如下：
 
-发稿：小野貓（文凱琳）
+**邮箱：**
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+**[\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection)**
 
+**电话和短信：+1 720-657-6776 或 +1 719-224-4232**
+[![](https://express.adobe.com/page/azUv2CgfRQYi9/images/3d8e5b42-315e-40a1-85e2-43af948c8a28.png?asset_id=73e7a5b6-dc05-45b7-8721-d8d6321500ff&amp;img_etag=%222bdcd298ed96ec1bd91f55736b70d6fc%22&amp;size=1024)](https://express.adobe.com/page/azUv2CgfRQYi9/images/3d8e5b42-315e-40a1-85e2-43af948c8a28.png?asset_id=73e7a5b6-dc05-45b7-8721-d8d6321500ff&amp;img_etag=%222bdcd298ed96ec1bd91f55736b70d6fc%22&amp;size=1024)
+*编辑：【英国伦敦喜庄园编辑部】*
+
+校对/审核：仙女儿-文善 | *Page: Daoiii*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[![](https://express.adobe.com/page/azUv2CgfRQYi9/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://express.adobe.com/page/azUv2CgfRQYi9/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

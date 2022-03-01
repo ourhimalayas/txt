@@ -2,23 +2,37 @@
 ---
 
 
-## 视频｜普京企图利用核讹诈对抗美欧经济制裁
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2086176/)
+## 俄乌战争｜各国响应乌克兰国际志愿军 乌总统定调为民主而战
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2086231/)
 
-制作：香草山视频部
+**撰文/ 港台前線｜發佈日期/ 01/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-3.png)**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pwkty7e61c))**
+乌克兰对俄罗斯的侵略行为，总统泽伦斯基27日签署完乌克兰加入欧盟申请后，公开号招外国志愿者组成国际防御兵团。 泽伦斯基声明“（俄罗斯的行为）是一场针对欧洲、针对民主、针对基本人权、针对全球法律、规则与和平秩序的战争。”
 
-2月27日，外媒报道，普京已下令俄罗斯核威慑力量进入高度戒备状态。
+据乌克兰国防部副部长Hanna Maliar脸书透漏，目前已有上千人挺身而出。 路透社报道称，有多位美加公民响应加入志愿军，其中不乏有美国公民具备服役经验，甚至是精锐部队82空降师的退役老兵。
 
-据报道，普京在与高级官员举行的会议上说，北约主要大国发表了 “侵略性声明”，同时西方国家联合对俄罗斯实施了严厉的金融制裁。普京已命令俄罗斯国防部长和军方总参谋长，将核威慑力量置于 “特别战斗值班制度 “中。普京以此暗示，会以核威胁来应对西方国家的制裁。
+路透社采访部分志愿者：
 
-郭文贵先生在27日大直播中特别强调，俄罗斯完全低估了乌克兰的实力，用最传统的战争方式进攻乌克兰，企图用最短的时间占领基辅，却遭到乌克兰人的顽强抵抗，使俄军损失惨重，也令世界跌破眼镜。俄方接下来会不惜一切代价，甚至可能动用核武器。如果不能停战，乌克兰的局势将会非常惨烈。
 
-发稿：小野貓（文凱琳）
+> 看到乌克兰受伤妇孺的照片后，我觉得我必须作点什么。
+> -加拿大公民伍尔希（Bryson Woolsey）
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
+
+> 我无法忍受让欧洲再度陷入战爭。
+> -28歲的美国公民海德（Hyde，化名）
+
+
+
+> 如果乌克兰人愿意捍卫民主，那我认为我们这些从民主社会中受益的人有义务支持他们。
+> -在德州奥斯汀担任软体工程师的一名美国人
+
+
+据采访，部分志愿者参与志愿军，本身并未受过军事训练，但仍希望为乌克兰提供一己之力。 有军事专家表示，有必要避免没有经验的平民前往冲突地区，但伴随而来的是无法对乌克兰地面部队提供即时的支持。 此外，并不是所有志愿者都是为参与战斗，有志愿者为提供中立的人道救援行动而参与。
+
+丹麦，周日由首相梅特·弗雷德里克森在新闻发布会上宣布，允许国民加入国际志愿军。 丹麦首相在俄罗斯驻哥本哈根大使馆前表示「受到俄罗斯威胁的是你们所有人（丹麦）和整个欧洲。」 此外，[芬兰](https://www.defmin.fi/en/topical/press_releases_and_news/finland_sends_additional_aid_to_ukraine.12482.news#6a94dd01)宣布军援乌克兰，是二战后首见。
+
+来源｜[芬蘭官方網站](https://www.defmin.fi/en/topical/press_releases_and_news/finland_sends_additional_aid_to_ukraine.12482.news#6a94dd01)、[衛報](https://www.theguardian.com/world/2022/feb/27/ukraine-appeals-for-foreign-volunteers-to-join-fight-against-russia)、[路透](https://www.reuters.com/world/americans-canadians-answer-ukraine-call-foreign-fighters-2022-03-01/)
 
  
 

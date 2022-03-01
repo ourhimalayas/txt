@@ -15,68 +15,68 @@
 
 ---
 
-### [国际足联表态反对俄罗斯 足球迷称其处罚不够严厉 没有骨气](/content/gnews/1/README.md)
+### [视频|切断SWIFT支付将对中共造成致命打击](/content/gnews/1/README.md)
+ ` MOSVIDEO`
+
+### [珍惜生命 尽快撤离](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [视频|美国斩首中共七常委是代价最小的灭共途径](/content/gnews/3/README.md)
+ ` MOSVIDEO`
+
+### [法制基金法治社会的力量](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [视频｜欧盟宣布对俄罗斯飞机实施全面飞行禁令](/content/gnews/5/README.md)
+ ` MOSVIDEO`
+
+### [视频|新中国联邦和法制基金对乌克兰救援行动正式公告](/content/gnews/6/README.md)
+ ` MOSVIDEO`
+
+### [俄罗斯发起侵略后，美国将派前军方高层访台以示支持](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [国际足联表态反对俄罗斯 足球迷称其处罚不够严厉 没有骨气](/content/gnews/8/README.md)
  ` topnews`
 
-### [视频｜美驻俄大使馆要求美国公民立即撤离](/content/gnews/2/README.md)
+### [视频｜美驻俄大使馆要求美国公民立即撤离](/content/gnews/9/README.md)
  ` MOSVIDEO`
 
-### [俄乌战争｜各国响应乌克兰国际志愿军 乌总统定调为民主而战](/content/gnews/3/README.md)
+### [俄乌战争｜各国响应乌克兰国际志愿军 乌总统定调为民主而战](/content/gnews/10/README.md)
  ` 關注組`
 
-### [美国对台湾战争的态度](/content/gnews/4/README.md)
+### [美国对台湾战争的态度](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [2022/02/26 英国停止俄罗斯SWIFT金融支付系统](/content/gnews/5/README.md)
+### [2022/02/26 英国停止俄罗斯SWIFT金融支付系统](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022/02/26 英国人民与乌克兰站在一起，荣归乌克兰！](/content/gnews/6/README.md)
+### [2022/02/26 英国人民与乌克兰站在一起，荣归乌克兰！](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022/02/27 普京发出俄军队最高级别威慑力量-核战级别](/content/gnews/7/README.md)
+### [2022/02/27 普京发出俄军队最高级别威慑力量-核战级别](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新中国联邦救援行动，只为行于“正道”](/content/gnews/8/README.md)
+### [新中国联邦救援行动，只为行于“正道”](/content/gnews/15/README.md)
  ` 新西兰伊甸农场听写编辑组`
 
-### [美国保护台湾最好的方法就是 把7个老杂毛干掉](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [视频｜普京企图利用核讹诈对抗美欧经济制裁](/content/gnews/10/README.md)
+### [视频｜普京企图利用核讹诈对抗美欧经济制裁](/content/gnews/16/README.md)
  ` MOSVIDEO`
 
-### [大直播后记：共产党让百姓和全世界作对](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [彭丽媛的江青梦](/content/gnews/12/README.md)
- ` 首尔天池农场`
-
-### [台湾如果被攻打守不住20小时](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [俄罗斯在乌战争升级正导致人道危机](/content/gnews/14/README.md)
+### [俄罗斯在乌战争升级正导致人道危机](/content/gnews/17/README.md)
  ` 波士顿五月花农场金融部`
 
-### [乌克兰总统泽连斯基已成为世界传奇人物](/content/gnews/15/README.md)
+### [乌克兰总统泽连斯基已成为世界传奇人物](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [乌克兰总统签署申请加入欧盟文件](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄对乌部署大规模杀伤性武器引民愤](/content/gnews/17/README.md)
+### [俄对乌部署大规模杀伤性武器引民愤](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [身在东京的乌克兰歌手为家乡祈福](/content/gnews/18/README.md)
+### [身在东京的乌克兰歌手为家乡祈福](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [俄罗斯贸易因西方制裁受阻，正低价出售原油](/content/gnews/19/README.md)
+### [俄罗斯贸易因西方制裁受阻，正低价出售原油](/content/gnews/21/README.md)
  ` NFSC News`
-
-### [20220227文贵大直播：新中国联邦会成为拯救台湾的最重要力量之一](/content/gnews/20/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220227文贵大直播：停止SWIFT中共必死无疑](/content/gnews/21/README.md)
- ` Tokyo Sakura Video Group`
 
 ### [2月9号UBS立案标志郭文贵先生和爆料革命进入新阶段](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
@@ -93,35 +93,35 @@
 ### [乌克兰积极寻求欧盟的支持](/content/gnews/26/README.md)
  ` 纽约香草山MOS02`
 
-### [澳大利亚情报人员对俄罗斯人的位置“了如指掌”](/content/gnews/27/README.md)
- ` 走进澳洲`
-
-### [秘翻在线：纽约强制疫苗措施正在逐步取消](/content/gnews/28/README.md)
+### [秘翻在线：纽约强制疫苗措施正在逐步取消](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [联盟工作汇报文字版2022.2.27](/content/gnews/29/README.md)
+### [联盟工作汇报文字版2022.2.27](/content/gnews/28/README.md)
  ` 纽约香草山MOS02`
 
-### [美国财政部制裁全文：禁止与俄罗斯中央银行进行交易并对俄罗斯财富的主要来源实施制裁](/content/gnews/30/README.md)
+### [美国财政部制裁全文：禁止与俄罗斯中央银行进行交易并对俄罗斯财富的主要来源实施制裁](/content/gnews/29/README.md)
  ` 经济小组`
 
-### [俄乌战争 中共立场致在乌华人危险 遭媒体点名指责](/content/gnews/31/README.md)
+### [俄乌战争 中共立场致在乌华人危险 遭媒体点名指责](/content/gnews/30/README.md)
  ` 日本東京方舟農場`
 
-### [在乌克兰的同胞们，新中国联邦来救你们了](/content/gnews/32/README.md)
+### [在乌克兰的同胞们，新中国联邦来救你们了](/content/gnews/31/README.md)
  ` 银河勇气之星`
 
-### [日本昨日新增病毒感染者5万 感染总数已超500万](/content/gnews/33/README.md)
+### [日本昨日新增病毒感染者5万 感染总数已超500万](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大议会前的抗议被清场，但抗议者说会卷土重来](/content/gnews/34/README.md)
+### [加拿大议会前的抗议被清场，但抗议者说会卷土重来](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌克兰救援将向世界展示新中国联邦的实力和形象](/content/gnews/35/README.md)
+### [乌克兰救援将向世界展示新中国联邦的实力和形象](/content/gnews/34/README.md)
  ` 波士顿五月花农场`
 
-### [台湾|拜登公开派遣前国防官员访台 称表达对台湾主权的支持](/content/gnews/36/README.md)
+### [台湾|拜登公开派遣前国防官员访台 称表达对台湾主权的支持](/content/gnews/35/README.md)
  ` 關注組`
+
+### [伊朗拒绝接受核谈判设定最后期限](/content/gnews/36/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [美国驱逐12名驻纽约联合国总部俄外交人员 称其从事间谍活动](/content/gnews/37/README.md)
  ` 首尔天池农场`
