@@ -2,36 +2,34 @@
 ---
 
 
-## Hcoin To the Moon上线89天第31次位列新加坡iTunes摇滚音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2088403/)
+## 喜支付三大核心功能及喜支付和喜交所的定位
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2088611/)
 
-3/1/2022 郭文贵先生的歌曲Hcoin To the Moon上线89天第31次位列新加坡iTunes摇滚音乐榜首
+#### **加拿大温哥华扬帆农场蓝枫法律**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-01-at-22.56.11.png)
+第一：Scan功能，它类似于微信上的扫码，是配合商户专用的喜交所POS机来做的，这个POS机应该跟平时的那种POS机不一样，不需要刷卡，就是一个扫码的机器，完成与喜交所绑定的商户的交易；
 
-* * *
+第二：电话号码和Email转帐功能，使用时输入相关信息就可以了，它的名字叫Send，就是对外转账；
 
-[【PDF 下载】Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+第三：内部转账Transfer功能，它是实现从喜支付与喜交所转账间的功能，支持HDO和HCN；
 
-* * *
+比较有意思是喜支付App的用户界面有两种设计，有很多统一的VI设计和管理，可以根据客户喜好自己选择。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_102.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
+那么对比一下喜支付和喜交所的定位。
 
+喜支付更像是一个钱包，首次登陆的时候需要两方验证，跟登陆喜交所一样，它的界面是弹到一个网页上去，然后要输入对应的喜交所密码，再就是手机验证短信或者邮箱的验证码，但经过首次登录之后再次登陆使用这个App时，每次只需要输入一个6位的PIN码就可以了。可见这里简化了使用的安全性，安全性和便捷性是一个高另一个就低，也就是说便捷性高，安全性就会低，就跟支付宝和微信一样，或平时在加拿大用的信用卡，账户的余额或者透支的额度不是很高，且喜支付的核心有一个点对点的付款和收款属性，类似这种平时要用的零花钱就适合放到喜支付里。
 
-[【PDF 下载】Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-1-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+对于喜交所，它就像是一个保险柜，因为每次登陆喜交所都需要两方的验证，未来还要加上人脸识别，七哥也说到跟生物技术相关，比如DNA，所以大额的钱适合放在喜交所，小钱放在喜支付。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+喜支付核心是有以下七个支付的维度：付款人、收款人、币种、金额、时间、附言/摘要和支付渠道（现在支付渠道是通过个人、公司、组织这几个渠道）。
+
+目前全球的支付体系是一个非常复杂低效的网络，严重依赖SWIFT，包括ACH、银联、VISA、Mastercard，而且这里面是有中间节点的，完全是中心化的，比如说像什么HSBC汇丰或者JP摩根或者花旗银行，比如从巴西汇款到中国或美国，中间会有很多的中间行来收取手续费，并而国际汇款通常耗时几天或是很长。但是我们的喜交所和喜支付贴现的费率是零，同时喜支付转账付款是实时到账，并且没有手续费，这将颠覆整个全球金融支付体系。
+
+直播视频：
+
+[第四十二期 金融税务专题及喜支付(H Pay)功能介绍](https://gtv.org/video/id=61ff154d96ba5d73e0c39083)
+
+编辑/发文：蓝枫法律栏目
 
  
 

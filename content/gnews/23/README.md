@@ -2,42 +2,35 @@
 ---
 
 
-## UBS需要解释为啥二十秒把七哥和家族股票卖给两个基金
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2088631/)
+## 乌欧关系上新台阶：欧盟历史上首次帮助乌克兰购买和运送武器
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2088741/)
 
-G-TV视频链接：https://gtv.org/video/id=62164c7b1408ee3a03a3c8ef
+**撰稿：东京樱花团/Calvin**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6-4.png)
+[**图片来源**](https://news.yahoo.com/watershed-moment-eu-purchase-deliver-190453709.html)
 
-**郭文贵先生：**这个官司你知道UBS会让共产党怎么解释吗？只要咱开始上庭询问，它就必须解释你为啥把郭文贵的股票和他家族股票卖给了这两个基金？二十秒你就找到买家了，几亿美元，你咋认识他的？你咋通的电话呀？是吧？二十秒，你想想，就是咱们大家都坚持的二十秒，二十秒内找到了几亿几十亿的买家，你跟他咋联络方式啊？你们怎么谈的价格啊？是吧？
+**欧盟将资助购买价值 5 亿美元的武器并将其运送到乌克兰，这是欧盟历史上首次向受攻击国家运送武器。**
 
-不但如此，最重要的事情，你买完的股票去哪儿了？然后这些股东是谁呀？——共产党!  那你怎么跟共产党联系的？最后这些人得出庭。这些人出庭以后，他必须解释，你的股票现在去哪了？你跟共产党这些机关怎么联系的？叫Downstate（注：同音字），Downstate 是福建政府的公司，贾庆林是中共中央委员，李伯潭是(其)女婿是茅台酒厂，所有的是叫福建省国资委。你们啥关系啊？Astick（注：同音字）Downstate、Astick ，Astick是怎么签的合同啊？为什么在深圳签合同？
+**为什么重要的原因：由于弗拉基米尔·普京对乌克兰的无端攻击，欧盟长期存在的政策禁忌正在消失。**
 
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
+**新武器计划将通过欧洲和平基金提供资金，该计划于周日宣布，同时对俄罗斯飞机、官方媒体和白俄罗斯经济实施新制裁。**
 
-编辑整理：Jacques；
+**最新消息：欧盟外交政策负责人约瑟夫·博雷尔在新闻发布会的问答环节中表示，成员国将向乌克兰提供战斗机，而不仅仅是弹药。**
 
-字幕档制作：兵嫂；
+**[****乌克兰外交部] 库莱巴部长一直在问我们，他们需要乌克兰军队能够操作的那种战斗机。 我们知道什么样的飞机，一些成员国有这种飞机。**
 
-视频制作及上传：Cindy；
+**Borrell****宣布：“我今天将提议将欧洲和平基金用于两项紧急援助措施——为乌克兰军队供应致命物资以及急需的燃料，防护设备和医疗用品提供资金。”**
 
-G-News发布：海贼王M.D.LUFFY；
+**泽连斯基总统的领导力和勇气，以及乌克兰人民的韧性，都是杰出和令人印象深刻的。欧盟委员会主席Ursula von der Leyen 说：“他们激励了我们所有人。” “他称新政策为“分水岭时刻”。**
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+**乌克兰官方电报频道对这一消息进行了庆祝，该频道赞扬这是西方世界团结起来反对普及侵略的另一个迹象。**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+**信息来源：**[**“This is a watershed moment”: EU to purchase and deliver weapons to Ukraine in historic first**](https://news.yahoo.com/watershed-moment-eu-purchase-deliver-190453709.html)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**编辑：东京樱花团/喜马拉雅的微尘**
+**发布：东京樱花团/**yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
 
  
 

@@ -2,46 +2,63 @@
 ---
 
 
-## UBS需要提供王贯中与郭文贵先生的英文通话记录
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2088714/)
+## 辉瑞科学家承认，天然抗体“可能比疫苗接种更好
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2088776/)
 
-G-TV视频链接：https://gtv.org/video/id=62164c901408ee3a03a3c8f3
+撰稿：东京樱花团/Calvin
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-2.png)
+[图片来源](https://dreddymd.com/2021/10/08/pfizer-scientist-admits-that-natural-antibodies-are-probably-better-than-vaccination/)
 
-**郭文贵先生：**为什么原来UBS的王贯中是中国唯一一个私人银行UBS私人银行的所有的经理？私人银行只给什么？就中南坑嘛，就是Tex你有权利加入私人银行吗？文艺你有吗？是不是？你跟人家双修一万次都不让你加入私人银行，是不是？只能在床上待着，你不能下，不能去，私人银行是有权力有钱的。
+Veritas项目是其“新冠病毒疫苗暴露”系列的最新一期，发布了一个新的10分钟视频，描绘了辉瑞科学家讲述其公司武汉冠状病毒（Covid-19）“疫苗”令人不安的真相。
 
-王贯中一个人就玩了几千亿上万亿，而这个人从来不让我们跟UBS任何人接触，只让我给他们UBS大佬打电话。我这英文郭式英文你知道，人家说：“Miles ,how are you?”然后我给人家回复：“你吃了吗？”人家说：“Miles,I love you.”“你这个得多少钱啊？” 就我那英文能沟通吗？然后人家告诉我这是伦敦大佬。伦敦大佬，就是我们伦敦的叫Brunch（注：同音字）是吧？我说：“你是伦敦的，是村长是吗？”人家说：“我是伦敦啊……”讲半天，咱就是瞎胡抡在那，是吧？
+Nick Karl向采访者解释说，在预防中共病毒感染方面，人们的天然抗体“可能比辉瑞的mRNA注射更好”
 
-我说：“欢迎你到北京啊，One world同一个世界，同一个梦想，同一个梦同一个世界。”人家说：“好好好，我去，我去。” 钱拿走了，就这。
+Karl承认：“当某人天生免疫时——比如他们感染了新冠病毒——他们可能有更多的病毒抗体。”
 
-就是这哥们儿要上法庭，这哥们儿要上法庭，是吧？你说我们俩这英文当年咋对话的？人家法官肯定问：“你拿人家几十亿美元，你就没见过这个人，然后你俩咋通话的？郭文贵当时英文说的啥呀？他说‘同一个梦想’中文的时候你懂吗？他说‘喝了吗？吃了吗’你听得懂吗？”“听不懂。”“那你怎么就拿他钱了呢？”是吧？这是最简单的道理。
+“当你真正感染病毒时，你将开始产生针对多种病毒的抗体……因此，你的抗体在那时可能比[新冠病毒]疫苗接种更好。”
 
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
+Karl接着解释说，“疫苗护照”的全部意义不是保护人们的安全，而是让它“对未接种疫苗的人如此不方便”，以至于他们只是服从。
 
-编辑整理：Jacques；
+事实证明，合规性是中共病毒疫苗注射计划的全部意义。没有证据表明这些疫苗有助于对任何疾病产生持久的免疫力。
 
-字幕档制作：兵嫂；
+辉瑞高级副科学家告诉Veritas记者不要接种疫苗
 
-视频制作及上传：Cindy；
+另一位名叫Chris Croce的辉瑞高级助理科学家附和了Karl的观点，他解释说，与疫苗相比，自然获得对流通的免疫力的人受到“可能更多”的保护。
 
-G-News发布：海贼王M.D.LUFFY；
+“所以，我（有抗体）受到很好的保护？”Veritas记者问Croce。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+“是的”，Croce回答。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+“就像疫苗一样吗？”Veritas记者回应道。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+“可能更多”，Croce回答说，当被问及“由于有自然反应，你最有可能受到更长时间的保护。”
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+几乎令人难以置信的是，Croce继续告诉Veritas记者“等待”接种疫苗，直到自然免疫力下降——即使如此的话。一个人在康复后可能会永久免疫，不需要任何进一步的干预。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+另一位辉瑞科学家Rahul Khandke向Veritas记者进一步透露，公司高管向低级别员工施压，要求他们向公众隐瞒定罪数据和其他“负面信息”。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+“我们被培养并被教导说，‘疫苗比实际感染新冠病毒更安全’。”老实说，我们不得不就此举办这么多研讨会。你不知道。Khandke说，我们必须在那里坐几个小时，听——就像“你不能在公共场合谈论这件事”，他同意天然抗体比疫苗接种更可取的观点。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+他补充说：“如果你积累了[新冠病毒]抗体，你应该能够证明你积累了这些抗体。”
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+据Croce称，目前辉瑞正在进行测试，看看其mRNA中共病毒疫苗是否导致年轻人患心肌炎。
 
-G-TV：日本银河系农场。
+Croce进一步说：“所以，是的，我们正在做，我们刚刚发送了大约3000名患者的样本，以测试肌钙蛋白水平升高（检测心脏病发作），看看它是否基于疫苗。”
+
+由于这三个人的身份现在都公开了，他们坦率地录取会发生什么还有待观察。我们的猜测是，辉瑞的高层对这些公开披露不满意。
+
+Zero Hedge的一位评论员写道：“整个骗局都被揭露了。”“这些罪犯，包括福奇，需要被勒死。”
+
+另一个回答说，每个人都应该祈祷Veritas项目的James O’Keefe因勇敢地揭露这一切而受到保护。
+
+信息来源：
+
+[Pfizer scientist admits that natural antibodies are “probably better than vaccination”](https://dreddymd.com/2021/10/08/pfizer-scientist-admits-that-natural-antibodies-are-probably-better-than-vaccination/)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+
 
  
 

@@ -2,39 +2,31 @@
 ---
 
 
-## 有声|美欧同意将部分俄罗斯银行从SWIFT系统中剔除
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2088713/)
+## 世界第二大石油公司宣布全面切断与俄业务
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2088756/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月26日，在乌克兰及国际多种力量的努力争取之后，美国联合加拿大、欧盟和英国等达成协意，对俄罗斯金融部门实施严厉的制裁，包括阻止其进入全球SWIFT金融体系，并首次对俄罗斯中央银行进行限制，以惩罚其对乌克兰的入侵。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture00-2.jpg)
-2 月 26 日，欧洲已开始为俄罗斯与 SWIFT 支付系统断开连接进行技术准备。SWIFT 的中断被称为“经济的核武器”。
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-这些制裁将使俄罗斯的银行不再能为贸易和金融活动进行支付，有效地阻止该国出口石油、煤炭和天然气等商品。也将使俄罗斯无法进口关键技术，如半导体和本国工业的机械。
+2月28日，世界第二大石油公司“荷兰皇家壳牌”（Shell）宣布，鉴于俄罗斯入侵乌克兰，壳牌将全面切断与俄罗斯的业务往来，其中包含一家规模巨大的天然气液化工厂。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-14.jpg)（图片来自网络）
+据《德国之声》报道，壳牌在声明中表示，将退出其与“俄罗斯天然气工业公司”（Gazprom）合资的液化天然气工厂“萨哈林2号”（Sakhalin 2 LNG）。
 
-在这些措施中，对俄罗斯央行的限制针对的是克里姆林宫掌握的6000多亿美元的储备，以有效限制俄罗斯在西方制裁收紧的情况下支持卢布的能力。
+位于库页岛的萨哈林2号，规模巨大。其每年生产约1,150万吨的液化天然气，出口到包括中共国、日本在内的主要市场。
 
+据了解，壳牌持有该厂27.5%的股份，俄罗斯Gazprom持股50%。截至2021年底，壳牌对俄罗斯的投资，非流动资产已达30亿美元。
 
+壳牌执行长范柏登（Ben van Beurden）在声明中表示，“对于乌克兰的生命损失深感震惊遗憾”，并称俄罗斯的“军事进犯”是“威胁欧洲安全、无意义的举动。”
 
-文字版原文：[美欧同意将部分俄罗斯银行从SWIFT系统中剔除](https://gnews.org/zh-hans/2079146/)
+此外，壳牌还将退出与Gazprom的另一家合资企业“Salym石油开发公司”（Salym Petroleum Development），并计画撤出对“北溪2号”（Nord Stream 2）天然气管道的融资。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+另据悉，在壳牌抵制俄罗斯之前，作为俄罗斯最大海外投资者的“英国石油”公司（BP）已于27日宣布，将脱手“俄罗斯国营石油公司 ”（Rosneft）近20%的持股以制裁俄罗斯。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参考链接：
+1.[https://www.dw.com/zh/%E7%9F%B3%E6%B2%B9%E5%B7%A8%E9%A0%AD%E8%B7%9F%E9%80%B2%E6%8A%B5%E5%88%B6-%E7%BE%8E%E5%8A%A0%E5%88%87%E6%96%B7%E8%88%87%E4%BF%84%E5%A4%AE%E8%A1%8C%E5%BE%80%E4%BE%86/a-60954972](https://www.dw.com/zh/%E7%9F%B3%E6%B2%B9%E5%B7%A8%E9%A0%AD%E8%B7%9F%E9%80%B2%E6%8A%B5%E5%88%B6-%E7%BE%8E%E5%8A%A0%E5%88%87%E6%96%B7%E8%88%87%E4%BF%84%E5%A4%AE%E8%A1%8C%E5%BE%80%E4%BE%86/a-60954972)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+素材采编：幽蘭自得
+编辑：老孙
+发布：爱放飞
 
  
 

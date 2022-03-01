@@ -2,10 +2,10 @@
 ---
 
 
-## NFSC法治基金联合国救援组织乌克兰国际人道大救援
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2088874/)
+## 共产党打或不打台湾的代价
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2089033/)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+台灣寶島農場
 
  
 

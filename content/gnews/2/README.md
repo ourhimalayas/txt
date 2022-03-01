@@ -2,31 +2,31 @@
 ---
 
 
-## 国际刑事法庭将对俄罗斯在乌克兰犯下的战争罪展开调查
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2088887/)
+## 有声|一旦对台开战 中共将断网断电关闭领空
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2089050/)
 
-#### 撰稿：彩虹 
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+在2月27日大直播中，郭文贵先生非常肯定地指出，如果对台开战，中共一定会关闭领空，断网断电。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-41.png)图片来源：阿纳多卢通讯社
-2月28日，《国会山报》报道，周一，国际刑事法院（ICC）的一名检察官宣布，他将对俄罗斯在乌克兰可能犯下的战争罪展开调查。
+从朝鲜战争，文化大革命，到越南战争，无论天灾还是人祸，中共永远都是牺牲中国人的生命，而从不考虑老百姓的死活，所有的问题就靠洗脑宣传解决。在中共眼里，中国老百姓连猪狗都不如。
 
-检察官卡里姆-A-A-可汗（Karim A. A. Khan）说：“我已经审查了办公室对乌克兰局势进行初步审查后得出的结论，确认有合理的依据可以开始调查。特别是，我感到满意的是，有合理的理由相信，与本办公室在初步审查期间已经评估的事件，即有关的所谓战争罪和危害人类罪已经在乌克兰实施。”
+战争时，中共会以”国家需要“和”爱国“的名义，实施禁飞、断网、不让取钱等手段，让老百姓困在家里、饿死在家里。中共国老百姓的财产会被中共全部夺走。中共一直以骗治国，绑架老百姓。中共充分利用人性的仇恨，让中国人互相憎恨，互相斗争。中共认为，必须让老百姓的生活接近黑暗和死亡，才会驯服于它的独裁统治。
 
-可汗说：随着俄乌冲突的继续，他的调查将扩大到包括属于国际刑事法院管辖的任何潜在的未来罪行。
+文字版原文：[一旦对台开战 中共将断网断电关闭领空](https://gnews.org/zh-hans/2081471/)
 
-报道指出，乌克兰不是国际刑事法院《罗马规约》的123个缔约国之一，该规约规定种族灭绝罪、反人类罪、战争罪和侵略罪为非法。然而，在俄罗斯以前的侵略期间，该国已接受国际刑事法院对其领土的管辖权。
+音频处理：Fei797
+发稿：Fei797
 
-但是，可汗在他的声明中要求获得“在我的办公室开始调查时，所有缔约国和整个国际社会的支持”。 他的办公室将需要预算支持、自愿捐款和人员。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-值得注意的是，周一，美国国务院发言人内德·普莱斯（Ned Price）向参与乌克兰入侵的俄罗斯人发出通知。
-
-他在一次简报中告诉记者：“俄罗斯政府和所有参与这些行动的俄罗斯人员应该知道，美国正在支持国际多边努力，以发现和记录潜在的侵犯人权行为或违反国际人道主义法的行为。我们同样致力于支持利用一切可用的工具，包括在适当的时候进行刑事起诉，对侵犯人权、违反国际人道主义法、潜在的战争罪和其他潜在的暴行进行追责。”
-
-**新闻来源**
-
-[ICC prosecutor to open probe into possible war crimes in Ukraine](https://thehill.com/policy/international/russia/596179-icc-prosecutor-to-open-probe-into-possible-war-crimes-in-ukraine?rl=1)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
