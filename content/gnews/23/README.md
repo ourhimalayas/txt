@@ -2,24 +2,22 @@
 ---
 
 
-## 秘翻在线：中共倒打一耙敦促美国解决自身严重人权问题
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2085234/)
+## 秘翻在线：纽约强制疫苗措施正在逐步取消
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2085330/)
 
-**撰稿：葛大饼**
+**翻译：Hakunamatata**
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-03-01-125934.jpg)图片来源： 微博
-根据2022年2月28日新浪报道， 国新办针对美国侵犯人权的状况，发表了《2021年美国侵犯人权报告》。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/22.png)
+如果中共病毒（Covid – 19）病例继续呈下降趋势，纽约市市长埃里克·亚当斯(Eric Adams)表示，将开始取对该市的公司、餐饮等行业强制接种疫苗的规定。
 
-报告全文约1万5千字，除序言外，包括六个部分，分别为：操弄疫情防控付出惨痛代价；固守暴力思维威胁生命安全；玩弄虚假民主践踏政治权利；放纵种族歧视加剧社会不公；背离人道主义制造移民危机；滥用武力制裁侵犯他国人权。
+亚当斯宣布，纽约市的中共病毒感染数字每天都在继续下降，因此，只要指标显示出传播风险是较低的，没有意外的话，从下周3月7日（周一），纽约将会取消强制令，也将确保政府为纽约人民做出最好的公共卫生决策。
 
-报告指出，众多国家在联合国人权理事会第四十八届会议上谴责美国是“世界人权事业最大的破坏者”，并敦促美国解决自身严重人权问题。
+纽约市是美国第一个要求在室内工作员工强制接种疫苗的大都市，未来几天将取消对室内商业、餐饮强制接种疫苗的要求。周日市长亚当斯宣布，最近几周在西雅图和波士顿等城市的政府官员也做出类似决定，他也将加入他们的行列，同时他表示公立学校也将取消在室内必须佩戴口罩的规定。
 
-8964被坦克碾压的民主斗士们，新疆西藏种族大屠杀，香港街头被中共党卫军屠杀上万人，活摘器官，被拐卖的妇女儿童…这些统统发生在被中共统治的中共国！中共国的老百姓没有人权，被迫像猪狗一样活着！乌克兰几千华人留学生被中共抛弃，中共战狼怎么不包机接孩子们回家呐？！中共才需要解决自身的严重人权问题，要么自己我解体，要么被全世界灭！
+目前为止，纽约市强制其他领域人员接种疫苗的规定将继续有效。相信未来其他领域的强制措施也都会陆续取消。
 
-**[新闻来源](https://news.sina.cn/gn/2022-02-28/detail-imcwipih5810689.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)**
-
-
+**[原文链接](https://nam12.safelinks.protection.outlook.com/?url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2022%2F02%2Fnew-york-city-lift-vaccine-mandate-indoor-businesses-dining-events%2F&amp;data=04%7C01%7C%7C253a094cd20645f0bd3608d9fb2832e4%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637816972360185284%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=6WbrUDqek2xHsjWX2qJKy%2Fw40aYuwwqg%2BQoDaHB92XI%3D&amp;reserved=0)**
 
  
 

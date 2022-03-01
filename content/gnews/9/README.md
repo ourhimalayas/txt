@@ -2,19 +2,20 @@
 ---
 
 
-## 视频|HBO VICE ISOBEL YEUNG的采访是对郭文贵先生有计划的诽谤 Part-15
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2085443/)
+## 中共可能会怎么打台湾
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2085693/)
 
-制作：香草山视频部
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-过去两周，针对HBO VICE 播放亲共背景记者ISOBEL YEUNG恶意诋毁郭文贵先生的采访视频，我们通过还原真相进行了有力回击。新中国联邦创始人郭先生带领的爆料革命，向西方世界揭露中共CCP的邪恶并多次发出警告，最终得到验证，展示了新中国联邦和郭先生的真实实力。这是HBO，也是世界上任何一个流氓媒体无法掩盖和诋毁的真相。今天，让我们揭露亲共者ISOBEL YEUNG真实的面目，作为这个系列视频的结尾。
+*发布：陶子*
 
-发稿：谐趣园
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

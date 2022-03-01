@@ -2,26 +2,21 @@
 ---
 
 
-## 乌克兰积极寻求欧盟的支持
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2085525/)
+## 乌克兰工程师利用社交媒体呼吁欧洲清楚俄罗斯的SWIFT
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2085735/)
 
-作者：香草山农场教育部—霍比特人
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据乌克兰媒体MFA of Ukraine2022年3月1日报道，乌克兰外长德米特里·库列巴发出呼吁：“鉴于局势的特别紧迫性，我们谨请求国际法院尽快就乌克兰的请求举行听证会，并呼吁俄罗斯立即停止在乌克兰的所有军事活动。”之前，他与欧盟委员会副主席何塞·波瑞尔·丰特列斯通了电话，他表示：“俄罗斯最近在乌克兰犯下的战争罪行，包括对哈尔科夫的民用基础设施进行残酷不分青红皂白的炮击，导致多名平民伤亡。HR/VP向我汇报了欧盟进一步加强对俄罗斯制裁的坚决措施。”
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-参考链接：[https://twitter.com/DmytroKuleba/status/1498424127451025408](https://twitter.com/DmytroKuleba/status/1498424127451025408)
+*发布：陶子*
 
-审核/编辑/发稿:qiutian（邱甜）
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

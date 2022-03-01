@@ -2,22 +2,35 @@
 ---
 
 
-## 秘翻在线：纽约强制疫苗措施正在逐步取消
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2085330/)
+## 美国驱逐12名俄罗斯驻联合国外交官
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2085501/)
 
-**翻译：Hakunamatata**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/22.png)
-如果中共病毒（Covid – 19）病例继续呈下降趋势，纽约市市长埃里克·亚当斯(Eric Adams)表示，将开始取对该市的公司、餐饮等行业强制接种疫苗的规定。
+整理：围剿维尼熊
+编辑：文泓
 
-亚当斯宣布，纽约市的中共病毒感染数字每天都在继续下降，因此，只要指标显示出传播风险是较低的，没有意外的话，从下周3月7日（周一），纽约将会取消强制令，也将确保政府为纽约人民做出最好的公共卫生决策。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-1.png)图片来源：YouYube & 雅典娜设计组
 
-纽约市是美国第一个要求在室内工作员工强制接种疫苗的大都市，未来几天将取消对室内商业、餐饮强制接种疫苗的要求。周日市长亚当斯宣布，最近几周在西雅图和波士顿等城市的政府官员也做出类似决定，他也将加入他们的行列，同时他表示公立学校也将取消在室内必须佩戴口罩的规定。
 
-目前为止，纽约市强制其他领域人员接种疫苗的规定将继续有效。相信未来其他领域的强制措施也都会陆续取消。
+当地时间3月1日，据路透社报道，美国以国家安全考虑为由，已经驱逐了12名俄罗斯驻联合国外交官。
 
-**[原文链接](https://nam12.safelinks.protection.outlook.com/?url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2022%2F02%2Fnew-york-city-lift-vaccine-mandate-indoor-businesses-dining-events%2F&amp;data=04%7C01%7C%7C253a094cd20645f0bd3608d9fb2832e4%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637816972360185284%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=6WbrUDqek2xHsjWX2qJKy%2Fw40aYuwwqg%2BQoDaHB92XI%3D&amp;reserved=0)**
+美国驻联合国代表团称，这些俄罗斯外交官是情报人员，一直在从事不利于美国国家安全的间谍活动。
+
+俄罗斯常驻联合国代表瓦西里·涅本贾告诉记者，这些外交官被要求在3月7日前离开，并表示俄罗斯将对此举作出回应。
+
+美国驻联合国副代表小理查德·米尔斯回应说：“这些外交官被要求离境，这样他们就不会危害东道国的国家安全，这一决定完全符合联合国总部的协议。”
+
+参考链接：[美国以国家安全考虑为由驱逐12名俄罗斯驻联合国外交官](https://cn.reuters.com/article/usa-expelling-russian-diplomats-0228-mon-idCNKBS2KY321?il=0)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
