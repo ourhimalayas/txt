@@ -2,249 +2,42 @@
 ---
 
 
-## 每日快报：拜登派遣前国防高级官员到台湾
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2083668/)
+## DC大中华时事：中共称人民币国际化借冬奥“拿下一分”
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2083731/)
 
-*作者：*文鸣
+*编辑：西北风 / 作图：*信正
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
-# ***今日摘要***
+#   墙国妄语每日驳
 
-1. **[在中国说“这不是乌克兰”之后，拜登派遣前国防高级官员到台湾](https://www.zerohedge.com/markets/biden-dispatches-former-top-defense-officials-taiwan-after-china-said-its-not-ukraine)**
-2. **[历史性违反中立，瑞士加入欧盟制裁俄罗斯](https://www.zerohedge.com/markets/historic-breach-neutrality-switzerland-joins-eu-sanctions-russia)**
-3. **[俄罗斯中央银行禁止外国人出售俄罗斯证券](https://www.zerohedge.com/markets/russia-central-bank-bans-selling-russian-securities-foreigners)**
-4. **[白俄罗斯的卢卡申科称西方正在将俄罗斯推入“第三次世界大战”](https://www.zerohedge.com/geopolitical/belarus-lukashenko-says-west-pushing-russia-third-world-war)**
+### **0**2.27.2022
 
+[港媒：人民币国际化借冬奥“拿下一分”\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/finance/20220222/2469979.shtml)
 
-# 重要事件
+***简评：***理解很丰满，现实很骨感，中共项庄舞剑，意在未来数字加货币，中共觉得几十年的全世界蓝金黄，3F计划，对世界产业链的控制和影响使中共有实力挑战现有国际经济金融秩序，从而主导未来铸币权独霸地位，世界是不会让中共通过数字货币来使中共狂印乱发的冥币绝处逢生的，中共想要用数字货币洗劫国际财富来为自身续命那只能是妄想了。
 
-- **[02.28 zerohedge：在中国说“这不是乌克兰”之后，拜登派遣前国防高级官员到台湾](https://www.zerohedge.com/markets/biden-dispatches-former-top-defense-officials-taiwan-after-china-said-its-not-ukraine)**
+### 02.27.2022
 
+[外媒：俄乌谈判仍在继续，已持续3小时\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/ckkx/kuaixun20220228/2470854.shtml)
 
-正如一位高级官员所引述的那样，拜登政府可能在应对俄乌冲突中迅速发展的危机时勉强应付，但它可能会介入另一场危机，因为它将在周一以“支持的姿态”派遣一个高级别美国代表团前往台湾。路透社说 的。
+***简评：***俄罗斯和欧洲的分歧和矛盾要追溯到罗马时代，当时东西罗马分治，罗马帝国最终因对基督的教义的解读分岐而东西罗马产生对抗和分歧最终形成西罗马以基督教为国教，东罗马以东正教为国教，而双头鹰的俄罗斯自认为就是东罗马东政教正统继承者，罗马帝国从未消失，只不过以另外一种形式存在，今天的英德法的欧洲和俄罗斯的东欧对抗从未停止。其目标就是是欧洲人的欧洲还是俄罗斯的欧洲。但是有一点我们得清楚，俄罗斯和欧洲再怎么缠斗，但他们同属基本督教文化，在精神内核上他们都是罗马人，有分歧但同源同种，谁知道也吃不了谁，但俄罗斯和中国那不同文不同种，在国内家利益面前绝对是天然敌对的，无论中共给了俄罗斯多少钱，给了多多少领土。
 
-布什和奥巴马总统任期内的前参谋长联席会议主席迈克·马伦（Mike Mullen）将领导该团队，并由布什政府的前副国家安全顾问米歇尔·弗洛诺伊（Michele Flournoy）和梅根·奥沙利文（Meghan O’Sullivan）陪同。另外两名官员是前国家安全委员会亚洲事务高级主管，埃文·梅代罗斯和迈克·格林也将随行。“这是为了表明我们对台湾的支持，”一位拜登官员告诉路透社。另外台湾最近透露，特朗普的前国务卿蓬佩奥将于3月的第一周访问台北，与拜登官方代表团无关；相反，据说蓬佩奥是以“私人公民”的身份来访——尽管毫无疑问，这将被北京视为挑衅。
+### 02.27.2022
 
-根据路透社的详细信息：预计他们将于周二下午抵达台湾，并在此逗留至周三晚上。在此期间，他们打算会见台湾总统蔡英文和国防部长邱国诚，以及其他高级官员。据该官员称，由于对乌克兰的持续入侵，他无法确认俄罗斯是否影响了他的访问。
+[台当局开始盘点防空避难所\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/tw/20220228/2470803.shtml)
 
-台湾上周表示，美国前国务卿蓬佩奥将于 3 月 2 日至 5 日访问台湾，并会见蔡英文。一位白宫官员被引述称，五名被选中的官员代表“美国两党致力于台湾民主与和平的重要信号，它表明拜登政府如何在更大的意义上继续致力于台湾。”
+***简评：***都说俄罗斯和中共是不结盟的结盟国，无论现在世界局势怎么发展下去，所有人都感觉到中国将是这个动荡时局最终买单者。如果做为俄罗斯总统普京能以进攻乌克兰不惜同族互残而让中国入局台海战争，从而引起中国内乱甚至内战甚至国际势力参与而分裂中国，这笔真正的买卖无论从那个角度来看都是划算的，这将永久的彻底的真正消除俄罗斯来自东方长远的威胁，俄罗斯当然要重新崛起，那得是有前提的，谁说这笔买卖不划算呢，普京不了解中共国实际国情吗，俄罗斯那可是中共祖宗，普京不了解国际吗？普京克格勃出生年青时就在欧洲的东德。世界都在等待请君入瓮，焦急的等待着习太阳出手，好像全世界都在讲：赶紧吧，还磨叽啥呢。
 
-尽管世界和特别是西方媒体最近一直关注乌克兰危机，但一些专家评论说，如果北京想在这个北约和东欧紧张的时刻对台湾采取行动，它可能会在很少的情况下这样做。鉴于西方领导人完全关注乌克兰，最初的通知。这也许是拜登派代表团的部分理由……发送一个信息说：“我们仍在密切关注”。就在几天前，美国还驾驶一艘军舰通过台湾海峡，这已经成为半常态。“这位官员表示，美国将继续能够抵制使用武力和其他胁迫手段来威胁台湾人民的安全或社会制度或经济，”路透社援引一位高级官员的话说。
+#   港台资讯
+![](https://media.discordapp.net/attachments/858887785507323904/947348712437477386/DC2.26.2022-3.jpg?width=961&amp;height=541)![](https://media.discordapp.net/attachments/858887785507323904/947348718473080852/DC2.26.2022-1.jpg?width=961&amp;height=541)![](https://media.discordapp.net/attachments/858887785507323904/947348721501343805/DC2.26.2022-2.jpg?width=961&amp;height=541)
 
-上周，随着乌克兰战争的爆发，中国外交部挑衅地表示，台湾“不是乌克兰”。正如日经 所描述的：中国外交部周三表示，台湾“不是乌克兰”，一直是中国不可分割的一部分，台湾总统蔡英文呼吁台湾加强对军事活动的警惕，以应对危机。英国首相鲍里斯·约翰逊上周警告称，如果西方国家未能兑现支持乌克兰独立的承诺，将对全球造成破坏性后果，这将给台湾带来风险。更广泛地说，许多西方官员担心莫斯科和北京越来越多地采取一致行动的新兴情景。本月早些时候，中国对北约在东欧的扩张发出了前所未有的严厉批评——与莫斯科的观点完全一致——同时敦促满足俄罗斯的合法安全利益。
 
-- **[02.28 zerohedge：历史性违反中立，瑞士加入欧盟制裁俄罗斯](https://www.zerohedge.com/markets/historic-breach-neutrality-switzerland-joins-eu-sanctions-russia)**
 
 
-瑞士历史上的中立已不复存在：不久前，路透社报道称，瑞士政府已加入欧盟，对俄罗斯实施制裁，冻结目标公司和人员的资产，立即生效：瑞士政府表示通过欧盟对俄罗斯的制裁；瑞士政府表示立即冻结目标个人和公司的资产；瑞士政府表示将对普京总统和其他俄罗斯官员实施金融制裁。
-
-瑞士总统伊格纳齐奥·卡西斯（Ignazio Cassis）表示，欧盟对俄罗斯实施制裁是一个独特而艰难的步骤，需要仔细考虑。此前，他在周日表示，如果乌克兰和俄罗斯官员在白俄罗斯边境的谈判没有成功，例如达成停战协议，瑞士必须保持中立，并随时准备提供外交斡旋。“这并不妨碍我们直言不讳，”他说。
-
-瑞士在表现出与西方的团结和保持其传统的中立性之间走了一条曲折的道路，政府称这可能使其成为潜在的调解人。但它面临着越来越大的压力，要明确站在西方反对莫斯科并采取惩罚性的欧盟制裁措施。迄今为止，政府只表示不会让瑞士被用作规避欧盟制裁的平台。在数十年来最大规模的和平游行中，周六约有 20,000 人在首都伯尔尼举行示威，支持乌克兰，一些人对政府的谨慎政策发出嘘声。卡西斯周日表示，逃离冲突的乌克兰人将在“过渡时期受到欢迎，我们希望过渡时期尽可能短”。
-
-司法部长卡琳·凯勒-萨特单独表示，瑞士已准备好接纳需要保护的人，并支持受影响的邻国。“我们不会让人们陷入困境，”她说。瑞士政府上周修改了其观察名单，将欧盟列入制裁名单以惩罚莫斯科的 363 名个人和四家公司包括在内。瑞士国家银行的数据显示，2020 年，俄罗斯人在瑞士持有近 104 亿瑞士法郎（112.4 亿美元）。
-
-- **[02.28 zerohedge：俄罗斯中央银行禁止外国人出售俄罗斯证券](https://www.zerohedge.com/markets/russia-central-bank-bans-selling-russian-securities-foreigners)**
-
-
-随着西方对试图摧毁俄罗斯经济的制裁施加制裁，不久前路透社报道称，俄罗斯已确保至少那些投资俄罗斯资本市场的外国人将不得不留下来顺风顺水。
-
-据路透社报道，俄罗斯央行——美国和欧盟决定对其进行制裁，因此所有交易都将被禁止——已命令市场参与者从格林威治标准时间周一 0400 开始拒绝外国客户出售俄罗斯证券的投标。路透社看到的央行文件。
-
-随着针锋相对升级到前所未有的程度，预计俄罗斯将采取更多报复措施，包括将其能源出口武器化。尽管俄罗斯的行动范围可能有限，无法对西方造成多大的损害，但纽约联储前工作人员 Zoltan Pozsar 警告称，即使俄罗斯不采取直接行动，市场也可能面临一场史无前例的危机，即将到来的雷曼周末在范围上，或者正如彭博社的 Nikos Chrysoloras所说的那样：“我们似乎正在陷入混乱。我以前曾报道过危机，但没有什么比这更接近了。”
-
-- **[02.28 zerohedge：白俄罗斯的卢卡申科称西方正在将俄罗斯推入“第三次世界大战”](https://www.zerohedge.com/geopolitical/belarus-lukashenko-says-west-pushing-russia-third-world-war)**
-
-
-白俄罗斯总统亚历山大·卢卡申科回应了对莫斯科的严厉制裁，因为西方越来越团结一致，阻止俄罗斯的 SWIFT 进入并对其中央银行采取措施。他周日警告说，北约国家正在将俄罗斯推入“第三次世界大战”。
-
-就在普京周日将他的核力量姿态置于“高度戒备”状态，以应对他所谓的北约高级官员的“咄咄逼人的声明”之际，这一令人震惊的言论出现了。联合国随后发表声明称核冲突的可能性“不可思议”。
-
-卢卡申科在其最新的周日评论中说，地区媒体引用并翻译了他的言论：“现在有很多针对银行业的言论。天然气、石油、SWIFT。这比战争更糟糕。这正在将俄罗斯推入第三次世界大战。”他指出，如果西方不开始从这些极端措施中退缩，结局可能会导致核冲突。他呼吁在这方面“克制”，尽管在导致乌克兰战争的过去两个月的紧张局势中，他向普京发出了在白俄罗斯领土上主持俄罗斯核武器的邀请。
-
-“我们需要在这里克制，以免惹上麻烦。因为核战争是一切的终结。”“我们有经验。我们不止一次地与普京讨论过这个主题。我们会活下来。不可能把我们饿死， ”卢卡申科说。他誓言白俄罗斯和俄罗斯都准备好采取报复措施，他称这些措施“非常切实”，但表示明斯克和莫斯科将“非常仔细地”考虑这些措施。但他警告说，如果西方或北约国家将核武器转移到与俄罗斯接壤的国家，莫斯科将作出回应——尤其是通过将核武器转移到白俄罗斯。目前，预计乌克兰和俄罗斯将在白俄罗斯边境附近“无条件”开始初步会谈。
-
-# 每日文宣
-![](http://himalayawashingtondc.org/wp-content/uploads/2022/02/7d923f75b9c5c53397215aa5161e8e5c-1024x576.jpeg)
-# 更多要闻链接
-
-1. **[随着五角大楼监控核力量运动，普京释放经济“对策”](https://www.zerohedge.com/geopolitical/ukraine-frustrated-low-level-russian-delegation-ceasefire-talks-kick-belarus)**
-2. **[SWIFT 禁令对俄罗斯和世界的影响](https://www.zerohedge.com/geopolitical/impact-swift-ban-russia-and-world)**
-3. **[美国禁止与俄罗斯央行的交易，冻结了俄罗斯近一半的 6300 亿美元储备](https://www.zerohedge.com/markets/us-bans-transactions-russian-central-bank-freezing-nearly-half-russias-630bn-reserves)**
-4. **[尽管SWIFT禁令，美国，德国继续允许与俄罗斯进行天然气交易](https://www.zerohedge.com/energy/germany-acknowledges-excluding-russia-swift-wont-stop-gas-bills-being-paid)**
-5. **[俄罗斯将利率提高一倍以上至 20% 以阻止卢布崩盘，暂停莫斯科交易所的股票交易](https://www.zerohedge.com/markets/russia-more-doubles-interest-rate-20-halt-rouble-collapse-suspends-stock-trading-moscow)**
-6. **[普京“数十亿”的隐性财富 去防美国、欧盟的金融制裁](https://www.zerohedge.com/geopolitical/putins-billions-hidden-wealth-de-fangs-us-financial-sanctions)**
-7. **[欧盟提议制裁俄罗斯最富有的大亨](https://www.zerohedge.com/geopolitical/proposed-eu-sanctions-would-hit-russias-wealthiest-tycoons)**
-8. **[俄罗斯军队在乌克兰摧毁世界上最大的飞机](https://www.zerohedge.com/military/russian-forces-destroy-worlds-largest-aircraft-ukraine)**
-9. **[欧盟提供5亿美元为乌克兰购买武器；土耳其准备关闭俄罗斯海军的海峡](https://www.zerohedge.com/geopolitical/ukraine-president-agrees-hold-talks-without-preconditions-russia-belarus-border)**
-
-
-# 每日推特文摘
-
-
-
-中国银行怕了！要知道中国银行在国际上的业务28万亿美元！同时，如果建行、招行、农行敢支持俄罗斯，股票会直接跌倒0！
-
-
-
-
-
-> 中国银行怕了！要知道中国银行在国际上的业务28万亿美元！同时，如果建行、招行、农行敢支持俄罗斯，股票会直接跌倒0！ [pic.twitter.com/KTBYgbfgjV](https://t.co/KTBYgbfgjV)
-> — HCNtoMoon (@HCNtoMoon) [February 28, 2022](https://twitter.com/HCNtoMoon/status/1498211670635819011?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-俄罗斯宣布，多家银行加入中共国CIPS系统！
-
-
-
-
-
-> [pic.twitter.com/rciew74fzN](https://t.co/rciew74fzN)
-> — 婦女之友-電-8 舊號已封 (@Dcc6S) [February 28, 2022](https://twitter.com/Dcc6S/status/1498134190683922434?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-面对生死，滞留在乌克兰的同胞们应该清醒了。包机只会保障领导们的家人安全撤离。中国驻乌克兰使馆已明确表示，撤侨工作困难很多，是一个努力实现的目标。
-而新中国联邦已在第一时间，以最快的速度，集结全球各地有着共同信仰的人们，以信誉，人脉和实力做好了营救深陷战火的各人士的准备。
-
-
-
-
-
-> 面对生死，滞留在乌克兰的同胞们应该清醒了。包机只会保障领导们的家人安全撤离。中国驻乌克兰使馆已明确表示，撤侨工作困难很多，是一个努力实现的目标。
-> 而新中国联邦已在第一时间，以最快的速度，集结全球各地有着共同信仰的人们，以信誉，人脉和实力做好了营救深陷战火的各人士的准备。 [pic.twitter.com/bmZQbFhQSV](https://t.co/bmZQbFhQSV)
-> — Shoppr (澳喜特战旅） (@Shoppr12) [February 28, 2022](https://twitter.com/Shoppr12/status/1498175524035694595?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-尽管正在进行和平谈判，俄罗斯仍继续攻击乌克兰
-
-
-
-
-
-> [https://t.co/QepvAwmX55](https://t.co/QepvAwmX55)
-> 尽管正在进行和平谈判，俄罗斯仍继续攻击乌克兰 – GNEWS
-> — 意大利罗马达芬奇农场 (@mWrezXvRl8NKmbv) [February 28, 2022](https://twitter.com/mWrezXvRl8NKmbv/status/1498334359916527618?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-呼吁在乌克兰的各华人商会，同乡会，民间组织成员。你们不要以为你们曾经挥动过几次小红旗，唱过几次红歌就是赵家人了，在他们眼里你们只是使用过的“卫生巾”用完就丢。所有国家的人该撤的都完撤了，留下20000多华人是最好的证明。醒醒吧同胞们！选择错误就永留乌克兰了！
-
-
-
-
-
-> 呼吁在乌克兰的各华人商会，同乡会，民间组织成员。你们不要以为你们曾经挥动过几次小红旗，唱过几次红歌就是赵家人了，在他们眼里你们只是使用过的“卫生巾”用完就丢。所有国家的人该撤的都完撤了，留下20000多华人是最好的证明。醒醒吧同胞们！选择错误就永留乌克兰了！ [pic.twitter.com/wtw134wthn](https://t.co/wtw134wthn)
-> — Pablo (@Peru76774691) [February 28, 2022](https://twitter.com/Peru76774691/status/1498244964349792260?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-联合国周一召开罕见的紧急特别大会，讨论俄罗斯入侵Ukraine ，为冲突中遇难者默哀一分钟
-
-
-
-
-
-> [#UPDATE](https://twitter.com/hashtag/UPDATE?src=hash&amp;ref_src=twsrc%5Etfw) The United Nations opened a rare emergency special session of the General Assembly on Monday to discuss Russia's invasion of [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) by observing a minute of silence for those killed in the conflict [https://t.co/8L430dAjr8](https://t.co/8L430dAjr8) [#UNGA](https://twitter.com/hashtag/UNGA?src=hash&amp;ref_src=twsrc%5Etfw)
-> — AFP News Agency (@AFP) [February 28, 2022](https://twitter.com/AFP/status/1498333500440813573?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-烏克蘭公布最新一波戰報：粗估俄軍陣亡已達5300人
-另損失191輛主戰車、816輛裝甲車、291輛軍用車輛以及60輛油罐車、74門火砲、21門122mm多管火箭炮、3架無人機、2艘船艦等
-
-
-
-
-
-> 稱5300俄軍陣亡！ 烏克蘭公布俄國侵略「累計損失數據」[https://t.co/nIOzxuxb6u](https://t.co/nIOzxuxb6u)
-> 烏克蘭公布最新一波戰報：粗估俄軍陣亡已達5300人
-> 另損失191輛主戰車、816輛裝甲車、291輛軍用車輛以及60輛油罐車、74門火砲、21門122mm多管火箭炮、3架無人機、2艘船艦等
-> 
-> 圖:烏克蘭總參謀部 [pic.twitter.com/wCEjV8Flbu](https://t.co/wCEjV8Flbu)
-> — 新台灣國防軍事網 (@Military\_idv\_tw) [February 28, 2022](https://twitter.com/Military_idv_tw/status/1498288889857187844?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-祖国在身后，使馆在旁边，炮火就在眼前。不要再等待空泛的承诺，快快联络新中国联邦的人道救援组织!
-
-
-
-
-
-> 祖国在身后，使馆在旁边，炮火就在眼前。不要再等待空泛的承诺，快快联络新中国联邦的人道救援组织! [pic.twitter.com/GJt3uT41GS](https://t.co/GJt3uT41GS)
-> — Shoppr (澳喜特战旅） (@Shoppr12) [February 28, 2022](https://twitter.com/Shoppr12/status/1498220321001721858?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-乌克兰总统泽连斯基在他身后有室内路障的办公桌前签署欧盟成员资格申请。
-
-
-
-
-
-> 乌克兰总统泽连斯基在他身后有室内路障的办公桌前签署欧盟成员资格申请。 [https://t.co/opbIARS5se](https://t.co/opbIARS5se)
-> — The last straw (@starstuded11) [February 28, 2022](https://twitter.com/starstuded11/status/1498333959918346248?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-丹麦成为第一个允许志愿者加入乌克兰外国旅的欧洲国家。
-
-
-
-
-
-> 丹麦🇩🇰成为第一个允许志愿者加入乌克兰外国旅的欧洲国家🇺🇦 。
-> 正义有良知的男人就是帅，女人就是靓呀😍 [pic.twitter.com/UfBJtDA1HK](https://t.co/UfBJtDA1HK)
-> — 丫丫小色魔 (@YYA9y) [February 27, 2022](https://twitter.com/YYA9y/status/1498075078491267076?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-*编辑：文鸣
-审核发布：文顾*
+*编辑：*西北风
+*作图：信正
+发布：文顾*
 
  
 

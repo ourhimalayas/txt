@@ -2,10 +2,10 @@
 ---
 
 
-## 世界各地人民走上街头抗议俄罗斯入侵乌克兰
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2083615/)
+## 疾控中心是白宫政治部门；乌克兰冲突结束了大流行吗？
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2083648/)
 
-02/26/2022 世界各地人民走上街头抗议俄罗斯入侵乌克兰，展示他们与乌克兰站在一起
+02/26/2022 班农战斗室：疾控中心现在是白宫的政治部门，自从这场冲突在乌克兰开始后，突然间大流行似乎已经结束了。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

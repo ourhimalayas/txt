@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国键盘侠拿战争开玩笑，置乌克兰的华人于危险之中
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2083574/)
+## 世界各地人民走上街头抗议俄罗斯入侵乌克兰
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2083615/)
 
-02/26/2022 一些国内键盘侠拿乌克兰战争开玩笑，并散播仇恨言论，已经置所有在乌克兰的华人于危险之中
+02/26/2022 世界各地人民走上街头抗议俄罗斯入侵乌克兰，展示他们与乌克兰站在一起
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
