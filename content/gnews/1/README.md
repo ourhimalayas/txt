@@ -2,23 +2,43 @@
 ---
 
 
-## 视频|雅虎彻底终止在中共国所有服务
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2086450/)
+## 全球疫情更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2086614/)
 
-制作：香草山视频部
+整理：枳实
+美工：精灵蓝
 
-台媒2月27日报道，美国网络服务公司雅虎在去年宣布退出中共国市场后，近日再度宣布，将于2月28日停止中共国的电子信箱服务。此举标志着，雅虎彻底终止在中共国的所有业务。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片：雅典娜农场设计组 精灵蓝
 
-2021年，雅虎在退出中共国的声明中指出，有鉴于中共当局日益严酷的商业和法律环境，该公司的整套服务自2021年11月1日起，将无法在中共国大陆使用。
 
-雅虎官方表示，在2月28日之后雅虎邮箱将无法再从中共国接受或发送电子邮件。据悉，中共当局去年对多个产业实施范围广泛的监管，以加强对经济的掌控，而跨国科技公司首当其冲。
+雅典娜疫情更新（2022年 3月1日）
 
-发稿：林礼
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-1.png)
+数据来源：
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

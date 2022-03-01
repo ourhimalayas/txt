@@ -2,27 +2,28 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月25日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2086364/)
+## 中日财经爆|日本对俄罗斯的追加制裁 即日生效
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2086500/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-18.png)
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.nippon.com%2Fen%2Fncommon%2Fcontents%2Fnews%2F1608864%2F1608864.jpg&amp;imgrefurl=https%3A%2F%2Fwww.nippon.com%2Fen%2Fnews%2Fntv20220228003%2F&amp;tbnid=vWnljKN7vadHOM&amp;vet=12ahUKEwils6fWtqT2AhW5y4sBHSUyASEQ)
+日本政府在3月1日上午的内阁会议上，批准了对俄罗斯入侵乌克兰的追加制裁：冻结俄罗斯总统普京、外长维克洛夫等6人的资产，以及俄罗斯中央银行的资产冻结均于同日生效。对包括军事相关公司在内的49个组织的事实上的出口禁令也将于8日实施。
+
+此外，包括国有对外经济开发银行（VEB）在内的两家银行的资产将于31日被冻结。再加上已经决定冻结资产的“俄罗斯银行”，制裁对象将是三家银行。
+
+日本央行将限制俄罗斯央行持有的日元外汇储备交易，并阻止支持俄罗斯购买卢布的外汇干预。据日本政府称，截至去年6月，俄罗斯中央银行在日本银行持有的以日元计价的外汇储备估计约为3.8万亿日元。
+
+日本还准备禁止出口可能增强俄罗斯军事能力包括半导体在内的通用焊料，为了提高制裁的有效性，政府正在与美国和欧洲保持一致。
+
+消息来源:
+
+[政府、対ロシア追加制裁を閣議了解…プーチン氏ら６人の資産凍結など即日発動](https://www.yomiuri.co.jp/politics/20220301-OYT1T50109/)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
 
 
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月25日晚](https://gnews.org/zh-hans/2067173/)
-
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

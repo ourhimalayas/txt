@@ -2,26 +2,29 @@
 ---
 
 
-## 乌克兰积极寻求欧盟的支持
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2085525/)
+## 新中国联邦救援行动，只为行于“正道”
+` 新西兰伊甸农场听写编辑组` [轉載自GNews](https://gnews.org/zh-hans/2086200/)
 
-作者：香草山农场教育部—霍比特人
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据乌克兰媒体MFA of Ukraine2022年3月1日报道，乌克兰外长德米特里·库列巴发出呼吁：“鉴于局势的特别紧迫性，我们谨请求国际法院尽快就乌克兰的请求举行听证会，并呼吁俄罗斯立即停止在乌克兰的所有军事活动。”之前，他与欧盟委员会副主席何塞·波瑞尔·丰特列斯通了电话，他表示：“俄罗斯最近在乌克兰犯下的战争罪行，包括对哈尔科夫的民用基础设施进行残酷不分青红皂白的炮击，导致多名平民伤亡。HR/VP向我汇报了欧盟进一步加强对俄罗斯制裁的坚决措施。”
+作者：Avaliu（老刘）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/救援1.png)
+赞，新中国联邦
 
-参考链接：[https://twitter.com/DmytroKuleba/status/1498424127451025408](https://twitter.com/DmytroKuleba/status/1498424127451025408)
+——无关政治、无关立场，只行“正道”！
 
-审核/编辑/发稿:qiutian（邱甜）
+2022年2月24日，俄罗斯总统普京发动了侵略乌克兰的战争，点燃了侵略战争的火焰！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+一时间，乌克兰有飞弹轰炸，坦克横行；有火雾弥漫冲天，房倒楼塌；有一串串死亡数字报现；有帅气的小伙、妙龄的美人儿横尸街头；有即将参军抗暴的父亲埋头在小女儿的胸口，泪水喷涌；有老妇人站在街口哭诉：我们怎样活？……
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这一切，让历史上一次次侵略战争的惨绝人寰再现！一股股怒火在我胸中升腾！满了胸膛，刺破喉咙！
+
+2月26日，郭文贵先生发出紧急动员令！新中国联邦宣布：营救！营救！营救！在联合国国际救援组织下，与国际NGO组织合作；法治基金营救资金到位；飞机、物资齐备；各救援小组科学配备；救援的战士们整装待发，个个精神百倍！去乌克兰！救出我们的战友和家人；救出被中共抛弃的中国同胞；救出美国友人；也要救助那些爱党的红粉。
+
+新中国联邦的救援行动，无关政治，无关立场，只为行于“正道”。赞！赞！赞！
+
+校对：面包树/一念
+
+上传：一念
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

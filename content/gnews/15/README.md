@@ -2,43 +2,30 @@
 ---
 
 
-## 郭先生等PAG宣布后再出手,要查清PAG投资来龙去脉
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2086334/)
+## 中日财经爆| 壳牌撤出俄罗斯能源项目 合作方三井和三菱备受关注
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2086486/)
 
-G-TV视频链接：https://gtv.org/video/id=62164b6a1408ee3a03a3c8b4
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-2.jpg)[图片来源](https://www.offshore-technology.com/comment/royal-dutch-shell-poised-for-growth-through-to-2020/)
+英国石油巨头壳牌（Shell）2月28日宣布，将退出俄罗斯远东地区库页岛的天然气业务“库页岛2号”。由于俄罗斯入侵乌克兰，决定继续开展业务将变得困难。这是日本大型商社也参与的大型项目，日本企业的反应备受瞩目。
 
-**郭文贵先生：**好，好啊，PAG的官司就这样，PAG等他们宣布，等他们宣布。然后咱们再出手，再采取任何行动。
+“库页岛2号”由壳牌、俄罗斯国有天然气公司 Gazprom、日本三井物产和三菱公司出资和运营。据壳牌等公司介绍，该项目液化天然气年产量约为1000万吨。其中大部分出口到日本，从日本能源安全的角度来看，这是一项重要的业务。
 
-然后我们会听到PAG官司，就是太平联盟官司在美国。对我们很不利的判决，但是恰恰，我们会因此继续跟它打下去。我们跟PAG官司打得不仅仅是钱，我们要打得是PAG的单伟建，和单伟建整个太平联盟他所有的投资，和投资来源和他投资去向。跟瑞银是一样的。
+三菱商事评论说：“我们将分析包括壳牌公告内容在内的细节，并与政府和相关方讨论应对措施。”
 
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
+除了“库页岛2号”，壳牌还将退出涉及 Gazprom 的几家能源业务。它还将停止参与连接俄罗斯和德国的天然气管道业务“北溪二号”。
 
-编辑整理：Jacques；
+壳牌首席执行官本·范布尔登在一份声明中抨击俄罗斯对乌克兰的入侵是“威胁欧洲安全的毫无意义的军事入侵”，“（由于俄罗斯业务的撤出）。我们将检查欧洲和其他市场的稳定能源供应。”
 
-字幕档制作：兵嫂；
+企业纷纷撤离俄罗斯，27日，英国石油巨头BP也宣布退出俄罗斯业务。除能源外，瑞典汽车巨头沃尔沃汽车表示，暂时不会向俄罗斯市场供应汽车。据德国报纸报道，德国戴姆勒卡车将解散与俄罗斯装甲车巨头卡玛兹的联盟。
 
-视频制作及上传：Cindy；
+消息来源:
 
-G-News发布：海贼王M.D.LUFFY；
+[露の天然ガス事業「サハリン２」から英シェル撤退、三井物産・三菱商事の対応に注目](https://www.yomiuri.co.jp/economy/20220301-OYT1T50092/)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

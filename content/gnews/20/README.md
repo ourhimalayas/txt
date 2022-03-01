@@ -2,29 +2,32 @@
 ---
 
 
-## 新中国联邦救援行动，只为行于“正道”
-` 新西兰伊甸农场听写编辑组` [轉載自GNews](https://gnews.org/zh-hans/2086200/)
+## 有声|疫苗灾难的爆发程度以及应对方法
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2086368/)
 
-作者：Avaliu（老刘）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/救援1.png)
-赞，新中国联邦
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在2月23日的大直播中，郭文贵先生分析了疫苗大灾难爆发的程度，以及战友们应对的办法。
 
-——无关政治、无关立场，只行“正道”！
+郭先生指出，在全世界反对强制疫苗的抗议浪潮中，新中国联邦一直站在前列。班农战斗室、艾滋病的发现者吕克.蒙塔尼耶教授，以及各国有良知的医学家，都对反强制疫苗做出了卓越的贡献。全世界将近50亿人注射了疫苗，可能会有20亿人患病、致残或者死亡。这个数字比原先的估计要好很多。
 
-2022年2月24日，俄罗斯总统普京发动了侵略乌克兰的战争，点燃了侵略战争的火焰！
+郭先生强调，5月份全世界疫苗灾难大爆发后，战友们要冷静对待，减少外出，尽量不要染病。另外，世界上的正义力量也在加紧研制疫苗解药。身在欧洲的科学家表示，会找出许多出人意料的解决方法。
 
-一时间，乌克兰有飞弹轰炸，坦克横行；有火雾弥漫冲天，房倒楼塌；有一串串死亡数字报现；有帅气的小伙、妙龄的美人儿横尸街头；有即将参军抗暴的父亲埋头在小女儿的胸口，泪水喷涌；有老妇人站在街口哭诉：我们怎样活？……
 
-这一切，让历史上一次次侵略战争的惨绝人寰再现！一股股怒火在我胸中升腾！满了胸膛，刺破喉咙！
 
-2月26日，郭文贵先生发出紧急动员令！新中国联邦宣布：营救！营救！营救！在联合国国际救援组织下，与国际NGO组织合作；法治基金营救资金到位；飞机、物资齐备；各救援小组科学配备；救援的战士们整装待发，个个精神百倍！去乌克兰！救出我们的战友和家人；救出被中共抛弃的中国同胞；救出美国友人；也要救助那些爱党的红粉。
+文字版原文：[疫苗灾难的爆发程度以及应对方法](https://gnews.org/zh-hans/2068421/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-新中国联邦的救援行动，无关政治，无关立场，只为行于“正道”。赞！赞！赞！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
 
-校对：面包树/一念
-
-上传：一念
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

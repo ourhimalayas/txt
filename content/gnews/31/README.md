@@ -2,31 +2,44 @@
 ---
 
 
-## 俄乌战争 中共立场致在乌华人危险 遭媒体点名指责
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2084962/)
+## 郭文贵先生诉UBS案目的是一定要打开UBS的数据大门
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2085583/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+G-TV視頻鏈接：https://gtv.org/video/id=62164b201408ee3a03a3c89b
 
-近日，俄乌战乱持续，中共政府从乌国撤侨的计划未有任何实质进展，并加强与俄亲密关系，中共党媒报道时仍宣传亲俄观点，致在乌华人危险，中共政府对俄乌危机的处置方式随即遭到媒体点名指责。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-147.png)（图片来自网络）
-据中央社援引CNN报道称，俄乌开战至今，中共政府从乌国撤侨的计划未有任何实质进展，但中共政府官媒仍宣传亲俄观点 ，至今未公开谴责俄国，网络上支持乌克兰及其总统泽伦斯基的贴文则遭到审查，中共政府此举可能致在乌华人于危险之中。
+**郭文貴先生：**这个是大事，你知道昨天下午，你知道我们旁边人，我们所有的我要组织上干仗的人，我们上百个人的队伍跟我说，他说“我可以告诉你郭先生，你所做的一切都是奇迹，但这件事情不可能发生”。
 
-报道指出，有别于许多他国公民，这些中国公民在俄乌开战前未收到离开乌克兰的指示，当美国及其盟友警告俄国攻击迫在眉睫时，中共政府官员拒绝听从。
+我说“为什么呢？”他说“ UBS要让你在伦敦告了”，这个很简单，让你立了这个案子，就说明你告它是有事实依据的，就是多少它都得输。但是不管多少它都是输，它就两样它必须做到，就我想要的。
 
-中共政府还放任受其监管的自媒体发布羞辱乌克兰女性的信息，让当地华人倍感恐惧，对自身安危表达担忧。
+大家记住我想要什么，我想要的是：UBS双方我们都提供所有的事情的信息，也就是UBS数据大门一定要被我们打开。它把我们，你七哥的当年的股票给卖了去哪儿了，那个基金的背后一查这基金背后是谁？UBS他们为了躲这个案子，罚掉高管，让这高管不去伦敦，不去开分行，关掉分行，把北京申请的这些东西，所谓的都重新搞。
 
-报道称，旅居乌克兰的华裔影片部落客孙光表示：我不认为，乌克兰现今局势对中国人是安全的，当他们看到我的中国脸孔时，马上认为我是在当地进行破坏，或是觉得我支持俄罗斯。
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-孙光还表示，他当天早些时候外出采买杂货时，遭到几名当地居民拦阻及质问。孙光已在乌克兰定居20年，娶乌克兰人为妻，并在当地成家立业。
+编辑整理：Jacques；
 
-据悉，新中国联邦创始人郭文贵27日早上宣布，为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。 救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人，并留下了联系方式。
+字幕文件制作：兵嫂；
 
-参考链接：
-[https://www.cna.com.tw/news/aopl/202201270035.aspx](https://www.cna.com.tw/news/aopl/202201270035.aspx)
+视频制作及上传：Cindy；
 
-素材采编：Kevin wang
-编辑： 老孙
-发布：小斐
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 
