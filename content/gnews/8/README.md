@@ -2,23 +2,25 @@
 ---
 
 
-## 中共迫于压力开始从乌克兰撤侨
-` 儒为` [轉載自GNews](https://gnews.org/zh-hans/2087097/)
+## 有声｜为摆脱对俄天然气依赖 德拟推清洁能源法案
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2087216/)
 
-作者：意大利罗马达芬奇农场-儒为
-![](https://assets.gnews.org/wp-content/uploads/2022/03/撤侨.jpeg)封面来源：网络图片
-中新网2022年3月1日报道，乌克兰时间2月28日，中共国驻乌使馆消息称，当天中共国开始从乌克兰撤出首批公民。当日，基辅第一批留学生从基辅大学红楼出发，前往摩尔多瓦。中共国驻乌克兰使(领)馆协调当地警方提供安全护卫。明天还将组织大批留学生撤离。
+By:**秘翻新闻**
 
-2022年2月11日，美国总统拜登发出通知，号召在乌克兰的美国公民立即离开。随后，英国、澳大利亚等国也发出撤侨通知。直到2月24日，俄乌战事爆发，中共政府也只是通知华人做统计报名工作。中共驻乌克兰大使馆通知在乌华人在车身上贴上中共国旗后又说不安全，接着又说天上有飞机、地上有大炮，等安全了再撤离，总之就是谎话连篇。
+**2022-03-01**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-1.png)图片来源 Julian Stratenschulte/ DPA
+[综合媒体3月1日消息，欧洲各国高度仰赖从俄罗斯进口的天然气，其中德国的依赖程度高达55%。有报道指出，普京利用天然气为地缘政治工具勒索欧洲，近年更不时出现断气或减少运量的情况，让各国苦不堪言。](https://www.spiegel.de/wirtschaft/soziales/oekostrom-regierung-will-vollversorgung-bis-2035-a-7b55d5fb-91ef-4c20-9c2e-4f11c3517417https://de.marketscreener.com/boerse-nachrichten/nachrichten/UPDATE-Ministerium-will-Stromversorgung-schon-2035-klimaneutral-machen--39606793/?utm_medium=RSS&amp;utm_content=20220228)
 
-**2022年2月26日，文贵大直播发出通知，为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。救援对象包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。**
+[德国国会27日为俄罗斯出兵举行特别会议，德国经济暨能源部长哈柏克强调，能源供应就是国家安全，为减少对俄罗斯石油、天然气和煤炭的依赖，他近日将提出新法，全力推动再生能源和绿色氢气。此外，德国财政部长林德纳表示，德国的能源安全规划必须面对俄国入侵乌克兰的新现实，再生能源不仅可确保能源供应，还能摆脱对外依赖，因此可称之为「自由的能源」。](https://www.spiegel.de/wirtschaft/soziales/oekostrom-regierung-will-vollversorgung-bis-2035-a-7b55d5fb-91ef-4c20-9c2e-4f11c3517417https://de.marketscreener.com/boerse-nachrichten/nachrichten/UPDATE-Ministerium-will-Stromversorgung-schon-2035-klimaneutral-machen--39606793/?utm_medium=RSS&amp;utm_content=20220228)
 
-2022年2月28日，中共驻乌克兰大使馆微信公众号发出紧急通知称，警惕境外反华组织发布虚假乌克兰撤侨信息，矛头直指新中国联邦。七哥之后在自己盖特揭露中共的虚伪嘴脸，中共太邪恶了，他们自己把老百姓当成奴隶一样弃如敝履，还不让别人去救助，中共只派了两辆大客车演戏，这时中共怎么不说危险了先不撤侨？七哥说，我们这次不管能救多少人，只要我们能促成中共多救一些人也是好的，这就体现了竞争的好处。
+[据「南德日报」取得的草案，德国政府计划修改「再生能源法」，准备在未来几年大幅扩充风力和太阳能的发电容量，将原本2050年前完全依赖再生能源的目标，提前在2035年前完成。](https://www.spiegel.de/wirtschaft/soziales/oekostrom-regierung-will-vollversorgung-bis-2035-a-7b55d5fb-91ef-4c20-9c2e-4f11c3517417https://de.marketscreener.com/boerse-nachrichten/nachrichten/UPDATE-Ministerium-will-Stromversorgung-schon-2035-klimaneutral-machen--39606793/?utm_medium=RSS&amp;utm_content=20220228)
 
-新闻来源：🔗[中国开始从乌克兰撤出首批公民](https://www.chinanews.com.cn/gj/shipin/cns-d/2022/03-01/news918230.shtml)
+秘翻新闻 明澈 编辑报道
 
-*编辑/校对/发稿：意大利罗马达芬奇农场-儒为*
+发布 : 恩典
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

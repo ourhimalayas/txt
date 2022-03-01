@@ -2,36 +2,40 @@
 ---
 
 
-## 乌克兰请求快速加入欧盟
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2086521/)
+## 全球疫情更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2086614/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+整理：枳实
+美工：精灵蓝
 
-#### 整理：围剿维尼熊
-编辑：5m
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0126.jpg)
-
-图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片：雅典娜农场设计组 精灵蓝
 
 
-根据德国之声中文网2月28日报道，乌克兰总统泽连斯基2月18日通过社交媒体表示，欧盟应当特事特办，加急吸纳乌克兰成为成员国。
+雅典娜疫情更新（2022年 3月1日）
 
-波罗的海三国也公开呼吁欧盟至少应当立即将乌克兰纳入“候选国”范围。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-1.png)
+数据来源：
 
-欧盟委员会主席冯德莱恩也对此做出了积极回应。冯德莱恩强调，欧盟和乌克兰目前已经在多个领域展开了合作。
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-捷克总理菲亚拉(Petr Fiala)也说，眼下欧盟必须发出一个明确的讯号：欧洲民主国家共同体欢迎乌克兰。
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-欧盟委员会还透露，计划将乌克兰的电网也纳入整个欧洲大陆的电网。欧盟能源委员西姆森(Kadri Simson)通过推特表示，她已经和ENTSO-E(欧洲输电系统运营商联盟)的代表探讨了这一提议，并且会在当天晚些时候的欧盟各国能源部长紧急会议上提请各成员国支持欧乌电力并网计划。
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-参考链接：[乌克兰谋求“火线入盟” 欧盟称“或可办理”](https://www.dw.com/zh/%E4%B9%8C%E5%85%8B%E5%85%B0%E8%B0%8B%E6%B1%82%E7%81%AB%E7%BA%BF%E5%85%A5%E7%9B%9F-%E6%AC%A7%E7%9B%9F%E7%A7%B0%E6%88%96%E5%8F%AF%E5%8A%9E%E7%90%86/a-60948387)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-*发布：wenly*
+[covidlive.com.au](https://covidlive.com.au/)
 
-更多资讯，请关注：**
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

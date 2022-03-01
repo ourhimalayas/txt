@@ -2,44 +2,34 @@
 ---
 
 
-## 2022年2月9日郭文贵先生开启名下零财富灭共新时代
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2086845/)
+## 人权组织和乌克兰外交部指控俄罗斯使用“真空弹”
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2086884/)
 
-G-TV视频链接：https://gtv.org/video/id=62164bac1408ee3a03a3c8ca
+**撰稿：**日本东京方舟农场 子辰
 
-**郭文贵先生：**所以说我们，七哥上半生，今年一个52岁的七哥，52岁之前我挣钱，我赚钱，我也享受人生，我也准备了，我也挑战了，我也受尽了天下苦，人间的凄凉，我都受到了。
+2月28日，人权组织和乌克兰外交部指控俄罗斯在入侵战争中使用了波及平民百姓的杀伤性武器。
 
-那么我从今年开始起，七哥将走向一个，我永远我不想拥有任何一分钱、一分财富。我就是要灭它共产党，而且我要把中国人失去的这个70年的财富和尊严和公正我要找回来。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/028.jpg)（图片来自大纪元）
 
-这个我要有个很重要的仪式感，你们现在还没有，今天我说的，刚才大家没有意识到，我还有很重要的仪式感要准备着，今天不是重点，还不能告诉你们，我现在在法院还申请另外一个东西。
+援引路透社报道，大赦国际（Amnesty International）和人权观察（Human Rights Watch）都表示并谴责，俄军可能使用了被广泛禁止的集束导弹（cluster bombs）。俄罗斯袭击了乌克兰东北部的一所学校，当时平民正在里面避难。
 
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
+集束导弹被称为具有大面积杀伤性武器，它是在弹体中装入数个至数百个的子炸弹，以对目标进行地毯式轰炸。该武器特别容易误伤平民，且容易出现未爆弹，可能造成非预期的死伤。
 
-编辑整理：Jacques；
+乌克兰驻美国大使奥克萨娜·马尔卡洛娃（Oksana Markarova）在与美国国会议员会面后告诉记者，俄罗斯在入侵乌克兰时，有可能使用了一种被称为“真空弹”（又称热压弹）的武器。
 
-字幕档制作：兵嫂；
+据悉，真空弹是一种热压武器，炸弹会在半空中爆炸，释放大量热能与超音速震波，同时消耗该区域氧气，其高温足以蒸发人体，被称为威力最强大的非核武器之一。该武器已被《日内瓦公约》所禁止。
 
-视频制作及上传：Cindy；
+目前为止，俄军使用真空弹的消息，尚未获得正式确认。但是CNN报导称，有记者在乌克兰边境附近发现了俄罗斯真空弹发射器。
 
-G-News发布：海贼王M.D.LUFFY；
+大赦国际表示，国际人道法禁止使用集束弹药等滥杀武器。发动滥杀、滥伤平民的袭击，将构成战争罪。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+参考链接：
+1、 [https://www.epochtimes.com/b5/22/3/1/n13612836.htm](https://www.epochtimes.com/b5/22/3/1/n13612836.htm)
+2、[https://www.cna.com.tw/news/aopl/202203010088.aspx](https://www.cna.com.tw/news/aopl/202203010088.aspx)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+素材采编：子辰
+编辑：青城道姑
+发布：Linda
 
  
 
