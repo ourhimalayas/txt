@@ -2,27 +2,155 @@
 ---
 
 
-## 在乌克兰的同胞们，新中国联邦来救你们了
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/2084938/)
+## 美国财政部制裁全文：禁止与俄罗斯中央银行进行交易并对俄罗斯财富的主要来源实施制裁
+` 经济小组` [轉載自GNews](https://gnews.org/zh-hans/2085146/)
 
-BY：银河系农场|天雷滚滚
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Lockheed_C_130_Hercules-military_aircraft_HD_Wallpaper_1366x768.jpg)
-中华民国台湾在俄乌战争的第四天，历经50个小时，把六名滞留在乌克兰的留学生安全撤离到波兰首都华沙。也在同一天，中国驻乌克兰大使在镜头前读一封致在乌克兰留学生的一封信，他在视频中首先辟谣自己没有逃离乌克兰，然后又解释为何现在撤侨太不安全，称“只要安全条件具备，大家的安全有保障，我们就会做出适当的安排。但总得条件够了才行”。共匪也真是够无耻的，“大家的安全有保障”了，他们就会做出安排。安全了，也就是战争都结束了，要你来安排撤离，华侨自己不会走吗？
+翻译：日本東京方舟農場 感謝郭叔
 
-刚前几天，共匪还在墙内大肆宣传，在乌克兰的华侨只要贴上五星红旗，就会有安全保障，甚至还说，为此五星红旗脱销，有些国人只好用口红来制作。谎言说得细节都有，搞得像真的一样。没过两天，驻乌大使馆2月26日凌晨在微信公众号上发布紧急通知，要求“不要随意亮明身份及展示具有识别性的标识”。这条自打嘴巴的提醒语，主要是墙内不少“缺老婆”的太监在网上发贴，称，愿意保护乌克兰10-26岁身高165CM以上的美女，并且还说，乌克兰战争后这些女孩缺男人，而他们正好缺女人。这种毫无人性的言论被翻译成乌克兰文字并得到广泛传播，从而激起了乌克兰人排华情绪。其实不要说是乌克兰人，只要是人性尚存的中国人都是非常的愤怒，一个言论管制如此严厉的中共国让这样的帖子广为传播，如果说没有中共政府的纵容，鬼都不信。就这样，被滞留在乌克兰的华人成了众矢之的。许多在乌华侨在网络上带着哭腔怒斥脑残小粉红，并对共匪宣传的包机撤侨进行了回应，戳穿了他们的谎言，有一个人甚至在网上隐约指责中共阻断了华侨回家的路。
+![](https://assets.gnews.org/wp-content/uploads/2021/05/s2.jpg)
 
-中共有没有撤侨？有。他们先把自己的小姨子、二奶、小三等七大姑八大姨优先撤走，其他的华侨让各省自己各扫门前雪。经济发达一点的省份，在乌克兰的人比较多，费用分担起来比较少，他们可能大部分都撤走了。那些经济比较落后省份的同胞，在那边的人比较少，就只能自生自灭了。更加邪恶的是，即使那些能撤的在乌华人，他们的家属如果不是中国执照，照样不给撤，让他们留在当地自生自灭，这就出现了中国籍的丈夫乘着大巴走了，而他的乌克兰籍的妻子追着丈夫坐的车跑，让全世界人都惊掉下巴。一个男人要多无奈，才能把自己的妻子扔在了战乱的国家，而自己不得不带着小孩撤离；一个国家有多无耻才能做到眼睁睁看着自己国家的公民妻离子散而无动于衷？
 
-早在十六号的时候，所有的国家哪怕是非常穷的非洲国家都把自己的侨民撤走了，即使因为各种原因滞留的，哪怕只有六个，哪怕走上两天，像台湾，他的外交部人员也冒着极大的人身安全把留学生撤到了波兰。反观中共国，跟乌克兰的死敌俄罗斯交往甚密，却在乌克兰宣布关闭领空时宣布包机撤侨，然后又以安全为由，让华侨呆在原地，做戏给谁看呢？空中不能飞，陆地就不能跑吗？台湾人都跑出去了，非洲国家的人也撤走了，中共国的政府在战争没开始之前就置他们声称的6000多同胞（郭先生说实际上30架大力神飞机都不够坐）的生命于不顾，这样的政府，不是无能可以涵盖的，他们就是不为。不管无能还是不为，他们不配管理14亿人口的中国，他们也不配在地球上跟人类一起生存，他们应该跟他的俄爹普京一样，受到全世界人的唾弃，并接受审判。
 
-当然，我们的同胞还是幸运的，因为我们还有一个新中国联邦，我们的郭先生联系了国际救援组织，联系了几十架美国的大力神飞机，派了专业的军人护航，免费包机接各位同胞及各国友人到欧洲、美洲、澳洲中转，免费提供一个月以内的食宿，具体联系方式gettr平台上都有，请各位在乌克兰的同胞们千万不要错过，不要相信中共的虚假宣传，这是唯一能救你们的机会了。愿万佛万神保佑乌克兰，愿万佛万神保佑世界和平安宁！
+摘要：2月28日，在与盟国和合作伙伴的协调下，美国财政部外国资产控制办公室（*OFAC*）限制了俄罗斯中央银行、俄罗斯主权财富基金和俄罗斯财政部获得数十亿美元资产，这一行动在财政上限制了俄罗斯维持其战争的能力，进一步打击了已经迅速贬值的卢布，并贯彻了美国与合作伙伴及盟友在2月26日做出的承诺，即采取限制性措施，防止俄罗斯联邦中央银行通过部署其国际储备削弱美国制裁影响。财政部同时制裁了三家与俄罗斯主权财富基金关系密切的实体：俄罗斯直接投资基金（*Russian Direct Investment Fund*）、俄罗斯直接投资基金的股份公司管理公司（*JSC RDIF*）和有限责任公司RVC管理公司 *(LLC RVC)*，并对普京的亲密好友，RDIF和JSC RDIF的CEO——基里尔·德米特里耶夫 *(Kirill Dmitriev)*，进行个人制裁。
 
-作者：天雷滚滚
+* * *
 
-发布：天雷滚滚
+* * *
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/345-1-1-1.jpg)
+#### 在与盟国和合作伙伴的协调下，财政部的行动限制了对中央银行资产和主权财富基金的数十亿美元的获取 
+
+#### 财政部制裁俄罗斯直接投资基金(Direct Investment Fund)——俄罗斯盗贼统治的象征
+
+#### 美国及其伙伴和盟国继续追究俄罗斯联邦政府对其有预谋和无端入侵乌克兰的责任
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1200px-Seal_of_the_United_States_Department_of_the_Treasury.png)
+
+华盛顿——今天，美国财政部外国资产控制办公室（OFAC）禁止美国人与俄罗斯联邦中央银行、俄罗斯联邦国家财富基金和俄罗斯联邦财政部进行交易。这一行动有效地冻结了俄罗斯联邦中央银行在美国或由美国人持有的任何资产，无论位于何处。
+
+此外，根据拜登总统上周的指示，OFAC 制裁了一个重要的与美国金融体系有联系的俄罗斯主权财富基金——俄罗斯直接投资基金 (Russian Direct Investment Fund, RDIF)，以及其首席执行官 (CEO) 基里尔·德米特里耶夫 (Kirill Dmitriev)——众所周知的普京盟友。最近被任命的俄罗斯总统弗拉基米尔·普京和他的亲信圈子长期以来一直依靠 RDIF 和德米特里耶夫在国外筹集资金，包括在美国。通过进一步限制这些个人和实体进入美国金融体系，美国继续表明其支持乌克兰的坚定承诺，对普京的核心圈子或与普京及其选择的战争有关的人施加成本，并阻止普京政权筹集资本为其入侵乌克兰和其他优先事项提供资金。
+
+美国并没有单独采取这一行动。2022 年 2 月 26 日，[合作伙伴和盟国承诺](https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/26/joint-statement-on-further-restrictive-economic-measures/)实施限制性措施，以防止俄罗斯联邦中央银行通过部署其国际储备以削弱美国制裁的影响。昨晚，欧盟跟进对俄的限制措施。我们的行动表明了全球对乌克兰的支持，并承诺让俄罗斯威胁性的独裁统治者对其令人发指的行为负责。
+
+财政部长珍妮特·L·耶伦（Janet L. Yellen）说：”我们今天采取的史无前例的行动将大大限制俄罗斯利用资产为其破坏稳定的活动提供资金的能力，并针对使普京及其核心圈子能够入侵乌克兰所依赖的资金。今天，在与合作伙伴和盟友的协调下，我们正在落实限制俄罗斯获得这些宝贵资源的关键承诺。”
+
+根据第 14024 号行政命令 (E.O.) 采取今天的行动，因其有害外国的活动，该行政命令授权制裁俄罗斯，包括其对公认的国际法原则的违反，例如尊重其他国家的主权和领土完整。
+
+#### 在财政上限制俄罗斯维持其战争的能力 
+
+今天，OFAC 根据 E.O. 14024 发布了新指令 4，“禁止涉及俄罗斯联邦中央银行、俄罗斯联邦国家财富基金和俄罗斯联邦财政部的交易”（涉俄主权交易指示）。根据与俄罗斯有关的主权交易指令，美国人被禁止参与涉及俄罗斯联邦中央银行、俄罗斯联邦国家财富基金或俄罗斯联邦财政部的任何交易。
+
+这一行动贯彻了合作伙伴和盟友在2月26日做出的承诺，即采取限制性措施，防止俄罗斯联邦中央银行通过部署其国际储备削弱美国制裁影响。
+
+与俄罗斯有关的主权交易指令将通过限制卢布的全球供应和俄罗斯可能试图兑换储备金以支持卢布的途径，扰乱俄罗斯支撑其迅速贬值的货币的企图。
+
+在发布该指令的同时，外国资产管制处正在发布一项一般许可，授权与俄罗斯联邦中央银行进行某些与能源有关的交易，并将根据需要进行其他授权和指导。
+
+#### 瞄准俄罗斯直接投资基金
+
+OFAC 还指认了对管理俄罗斯的一个重要主权财富基金至关重要的三个实体： 俄罗斯直接投资基金（RDIF），其管理公司，以及管理公司的一个子公司。 通过封锁这些实体，OFAC正在终止俄罗斯从进入美国金融系统中受益的另一条途径。
+
+**俄罗斯直接投资基金 ****(RDIF)**于 2011 年由当时的俄罗斯总统德米特里·梅德韦杰夫（Dmitry Medvedev）和当时的俄罗斯总理弗拉基米尔·普京（Vladimir Putin）下令创建。RDIF 在保险和金融服务等多个行业开展业务。RDIF 创建的目的之一是与国际投资者建立关系，以便在俄罗斯进行直接投资。虽然官方称其为主权财富基金，但 RDIF 被广泛地被认为是总统弗拉基米尔·普京 (Vladimir Putin) 的行贿基金，更广泛地被认为是是俄罗斯盗贼统治的象征。
+
+OFAC 根据 E.O. 14024 指定 RDIF 由俄罗斯政府 (GoR) 直接或间接拥有或控制，或行事或声称行事或代表俄罗斯政府 (GoR)。RDIF 也于2022年2月24日被加拿大制裁。
+
+**俄罗斯直接投资基金的股份公司管理公司（****JSC RDIF****）**是 RDIF 的管理公司。为应对俄罗斯2014 年对乌克兰的无端攻击，OFAC 于 2015 年根据 E.O. 13662 的指令 1 对 JSC RDIF 的前身，俄罗斯直接投资基金管理公司，发布了债务和股权限制。今天的行动扩大该项制裁到这个实体，即该公司现在已被封锁。OFAC 根据 E.O. 14024 指定 JSC RDIF 由 GoR 直接或间接拥有或控制，或行事或声称行事或代表 GoR，以及在俄罗斯联邦的金融服务部门经营或曾经经营。
+
+**有限责任公司****RVC****管理公司 ****(LLC RVC)**是 JSC RDIF 的子公司。LLC RVC 是一家从事存款银行业务、投资基金管理、单位投资信托、保险和私人养老基金业务的公司。
+
+OFAC 根据 E.O. 14024 指定 LLC RVC RDIF 为由 JSC RDIF 直接或间接拥有或控制，或作为或声称代表或代表 JSC RDIF，以及在俄罗斯的金融服务部门经营或曾经经营。
+
+#### 基里尔·德米特里耶夫 (Kirill Dmitriev)
+
+基里尔·亚历山德罗维奇·德米特里耶夫 (Kirill Aleksandrovich Dmitriev)是普京的亲密盟友，也是 RDIF 和 JSC RDIF 的首席执行官。德米特里耶夫是美国大学的校友，与美国咨询和金融服务公司有联系。他利用自己与美国大学和组织的关系，担任俄罗斯总统在美国机构的代表，从而提供了获得美国关键经济机会的机会。
+
+在俄罗斯精英中，德米特里耶夫是普京的亲密伙伴，他和他的妻子也被认为与普京的女儿卡特琳娜·蒂霍诺娃（Katerina Tikhonova）和她的前夫亿万富翁基里尔·沙马洛夫（Kirill Shamalov）关系密切。根据 E.O. 13662，沙马洛夫于 2018 年 4 月被指定在俄罗斯联邦经济的能源部门开展业务。
+
+OFAC 根据 E.O. 14024 指定 德米特里耶夫是或曾经是 GoR 的领导人、官员、高级执行官或董事会成员。德米特里耶夫也于2022年2月24日受到加拿大的制裁。
+
+有关[今天被制裁的个人的识别信息，请单击此处](https://home.treasury.gov/policy-issues/financial-sanctions/recent-actions/20220228)。
+
+参考链接：
+
+[https://home.treasury.gov/news/press-releases/jy0612](https://home.treasury.gov/news/press-releases/jy0612)
+
+[https://www.federalregister.gov/executive-order/14024](https://www.federalregister.gov/executive-order/14024)
+
+* * *
+
+#### **Treasury Prohibits Transactions with Central Bank of Russia and Imposes Sanctions on Key Sources of Russia****’****s Wealth**
+
+#### In Coordination with Allies and Partners, Treasury Actions Restrict Access to Billions in Central Bank Assets and Sovereign Wealth Fund 
+
+#### Treasury Sanctions Russian Direct Investment Fund – A Symbol of Russian Kleptocracy
+
+United States and its Partners and Allies Continue to Hold the Government of the Russian Federation Accountable for its Premeditated and Unprovoked Invasion of Ukraine
+
+WASHINGTON – Today, the U.S. Department of the Treasury’s Office of Foreign Assets Control (OFAC) prohibited United States persons from engaging in transactions with the Central Bank of the Russian Federation, the National Wealth Fund of the Russian Federation, and the Ministry of Finance of the Russian Federation. This action effectively immobilizes any assets of the Central Bank of the Russian Federation held in the United States or by U.S. persons, wherever located.
+
+In addition, as directed by President Biden last week, OFAC sanctioned a key Russian sovereign wealth fund, the Russian Direct Investment Fund (RDIF), with exposure to the United States financial system and its Chief Executive Officer (CEO), Kirill Dmitriev – a known Putin ally. Recently designated Russian President Vladimir Putin and his inner circle of cronies have long relied on RDIF and Dmitriev to raise funds abroad, including in the United States. By further restricting these persons and entities from the U.S. financial system, the United States continues to demonstrate its unwavering commitment to support Ukraine, impose costs on Putin’s inner circle or those connected to Putin and his war of choice, and to prevent Putin’s regime from raising capital to fund its invasion of Ukraine and other priorities.
+
+The United States has not taken this action alone. On February 26, 2022, partners and allies committed to imposing restrictive measures that will prevent the Central Bank of the Russian Federation from deploying its international reserves in ways that would undermine the impact of United States sanctions and the European Union followed up with their restrictions last night. Our actions demonstrate global support for Ukraine and the commitment to hold Russia’s threatening, authoritarian rulers responsible for their heinous actions.
+
+“The unprecedented action we are taking today will significantly limit Russia’s ability to use assets to finance its destabilizing activities, and target the funds Putin and his inner circle depend on to enable his invasion of Ukraine,” said Secretary of the Treasury Janet L. Yellen. “Today, in coordination with partners and allies, we are following through on key commitments to restrict Russia’s access to these valuable resources.”
+
+Today’s actions were taken pursuant to Executive Order (E.O.) 14024, which authorizes sanctions against Russia for its harmful foreign activities, including violating well-established principles of international law, such as respect for the sovereignty and territorial integrity of other states.
+
+#### **RESTRICTING RUSSIA****’****S ABILITY TO FINANCIALLY SUSTAIN ITS WAR**** **
+
+Today, OFAC issued new Directive 4 under E.O. 14024, “Prohibitions Related to Transactions Involving the Central Bank of the Russian Federation, the National Wealth Fund of the Russian Federation, and the Ministry of Finance of the Russian Federation” (Russia-related Sovereign Transactions Directive).  Pursuant to the Russia-related Sovereign Transactions Directive, United States persons are prohibited from engaging in any transaction involving the Central Bank of the Russian Federation, the National Wealth Fund of the Russian Federation, or the Ministry of Finance of the Russian Federation.
+
+This action follows through on partners’ and allies’ commitment made on February 26 to impose restrictive measures to prevent the Central Bank of the Russian Federation from deploying its international reserves in a way that would undermine the impact of U.S. sanctions.
+
+The Russia-related Sovereign Transactions Directive will disrupt Russia’s attempts to prop up its rapidly depreciating currency by restricting global supplies of the ruble and access to reserves that Russia may try to exchange to support the ruble.
+
+Contemporaneously with the issuance of this directive, OFAC is issuing a general license to authorize certain energy-related transactions with the Central Bank of the Russian Federation and will follow with other authorizations and guidance as needed.
+
+#### **TARGETING RUSSIAN DIRECT INVESTMENT FUND**
+
+OFAC also designated three entities critical to managing one of Russia’s key sovereign wealth funds:  Russian Direct Investment Fund (RDIF), its management company, and one of the managing company’s subsidiaries.  By blocking these entities, OFAC is terminating yet another route through which Russia has benefitted from access to the U.S. financial system. 
+ 
+**The Russian Direct Investment Fund (RDIF)** was created in 2011 by order of then-President of Russia, Dmitry Medvedev, and then Prime Minister of Russia, Vladimir Putin. RDIF operates in a number of industries, such as insurance and financial services. One of the purposes behind RDIF’s creation was to develop relationships with international investors for direct investment in Russia. While officially a sovereign wealth fund, RDIF is widely considered a slush fund for President Vladimir Putin and is emblematic of Russia’s broader kleptocracy.
+
+OFAC designated RDIF pursuant to E.O. 14024 for being owned or controlled by, or for acting or purporting to act for or on behalf of, directly or indirectly, the Government of Russia (GoR). RDIF was also sanctioned by Canada on February 24, 2022.
+
+**Joint Stock Company Management Company of the Russian Direct Investment Fund (JSC RDIF)**** **is RDIF’s management company. In response to Russia’s 2014 unprovoked attack on Ukraine, OFAC issued debt and equity restrictions in 2015 on JSC RDIF’s predecessor, the Russian Direct Investment Fund Management Company, pursuant to Directive 1 under E.O. 13662. Today’s action expands the sanctions on this entity, which is now blocked.
+
+OFAC designated JSC RDIF pursuant to E.O. 14024 for being owned or controlled by, or for acting or purporting to act for or on behalf of, directly or indirectly, the GoR, and for operating or having operated in the financial services sector of the Russian Federation economy.
+
+**Limited Liability Company RVC Management Company (LLC RVC)** is a subsidiary of JSC RDIF. LLC RVC is a company that operates in deposit banking, management of investment funds, unit investment trusts, insurance, and private pension funds.
+
+OFAC designated LLC RVC RDIF pursuant to E.O. 14024 for being owned or controlled by, or for acting or purporting to act for or on behalf of, directly or indirectly, JSC RDIF, and for operating or having operated in the financial services sector of the Russian Federation economy.
+
+#### **KIRILL DMITRIEV**** **
+
+**Kirill Aleksandrovich Dmitriev (Dmitriev)** is a close ally of Putin and the CEO of RDIF and JSC RDIF. Dmitriev is an alumnus of American universities and has links to American consulting and financial services firms. He has leveraged his ties to universities and organizations in the United States to serve as a representative for the Russian president to American institutions, thereby providing access to key economic opportunities in the United States.
+
+Among the Russian elite, Dmitriev is a close associate of Putin and he and his wife are also believed to be close to one of Putin’s daughters, Katerina Tikhonova, and her former husband, billionaire Kirill Shamalov. Shamalov was designated in April 2018 pursuant to E.O. 13662 for operating in the energy sector of the Russian Federation economy.
+
+OFAC designated Dmitriev pursuant to E.O. 14024 for being or having been a leader, official, senior executive officer, or member of the board of directors of the GoR. Dmitriev was also sanctioned by Canada on February 24, 2022.
+
+For [identifying information on the individuals sanctioned today, click here](https://home.treasury.gov/policy-issues/financial-sanctions/recent-actions/20220228).
+
+Reference link:
+
+[https://home.treasury.gov/news/press-releases/jy0612](https://home.treasury.gov/news/press-releases/jy0612)
+
+编辑：香草山金融部 ILOVE战神
+
+校对/发稿：飞虹
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
