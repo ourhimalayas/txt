@@ -2,46 +2,37 @@
 ---
 
 
-## 乌克兰总统泽连斯基已成为世界传奇人物
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2086009/)
+## 俄乌战争｜各国响应乌克兰国际志愿军 乌总统定调为民主而战
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2086231/)
 
-作者：银河系农场 – 骄子
+**撰文/ 港台前線｜發佈日期/ 01/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-3.png)**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pwkty7e61c))**
+乌克兰对俄罗斯的侵略行为，总统泽伦斯基27日签署完乌克兰加入欧盟申请后，公开号招外国志愿者组成国际防御兵团。 泽伦斯基声明“（俄罗斯的行为）是一场针对欧洲、针对民主、针对基本人权、针对全球法律、规则与和平秩序的战争。”
+
+据乌克兰国防部副部长Hanna Maliar脸书透漏，目前已有上千人挺身而出。 路透社报道称，有多位美加公民响应加入志愿军，其中不乏有美国公民具备服役经验，甚至是精锐部队82空降师的退役老兵。
+
+路透社采访部分志愿者：
 
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-2月27日，郭先生在大直播中，与战友分享了乌克兰总统泽连斯基在抵抗俄罗斯入侵时的杰出表现，已经让他成为世界政治领袖。
-
-泽连斯基是一个标准的平民总统，没有钱没有背后金主，在当总统之前是一个喜剧演员。在东欧男性普遍的苦大仇深不苟言笑中，他独有的幽默成为了压抑时代中的亮色，让他顺利选上了总统。
-
-在此次对抗俄罗斯的战争中，他以及家人都留在乌克兰，与乌克兰共生死，和那些战争一来就跑路的各国首领形成了鲜明对比。在此之前，乌克兰因欧美等国答应保护而很配合地销毁了武器，但战争一来，各国全部食言，让乌克兰承受了本不该承受的灾难。但是，泽连斯基并没有选择抱怨和谴责，只是发动本国民众积极抵抗，这让本来就理亏的欧美等国更加不安。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5.jpg)
-在应对战争方面，他智慧地把社交媒体讯息战运用到了极致，唯真不破，恰当示弱。乌克兰的民族爱国情绪全部被调动起来，无所畏惧，维护正义，保家卫国，乃至全世界善良的人们都在积极声援乌克兰。北约的各个盟国都成为了乌克兰的死党，尤其是俄罗斯的死对头波兰。
-
-参考链接：
-[2022年2月27日 文贵大直播：新中国联邦和法治基金与联合国救援组织启动国际人道救援行动；俄乌战争预测台海；普京嚣张中共角色；世界经济金融市场 （17:12开始）](https://gtv.org/video/id=621b7633019ef64da651ee6c)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+> 看到乌克兰受伤妇孺的照片后，我觉得我必须作点什么。
+> -加拿大公民伍尔希（Bryson Woolsey）
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+> 我无法忍受让欧洲再度陷入战爭。
+> -28歲的美国公民海德（Hyde，化名）
 
 
+
+> 如果乌克兰人愿意捍卫民主，那我认为我们这些从民主社会中受益的人有义务支持他们。
+> -在德州奥斯汀担任软体工程师的一名美国人
+
+
+据采访，部分志愿者参与志愿军，本身并未受过军事训练，但仍希望为乌克兰提供一己之力。 有军事专家表示，有必要避免没有经验的平民前往冲突地区，但伴随而来的是无法对乌克兰地面部队提供即时的支持。 此外，并不是所有志愿者都是为参与战斗，有志愿者为提供中立的人道救援行动而参与。
+
+丹麦，周日由首相梅特·弗雷德里克森在新闻发布会上宣布，允许国民加入国际志愿军。 丹麦首相在俄罗斯驻哥本哈根大使馆前表示「受到俄罗斯威胁的是你们所有人（丹麦）和整个欧洲。」 此外，[芬兰](https://www.defmin.fi/en/topical/press_releases_and_news/finland_sends_additional_aid_to_ukraine.12482.news#6a94dd01)宣布军援乌克兰，是二战后首见。
+
+来源｜[芬蘭官方網站](https://www.defmin.fi/en/topical/press_releases_and_news/finland_sends_additional_aid_to_ukraine.12482.news#6a94dd01)、[衛報](https://www.theguardian.com/world/2022/feb/27/ukraine-appeals-for-foreign-volunteers-to-join-fight-against-russia)、[路透](https://www.reuters.com/world/americans-canadians-answer-ukraine-call-foreign-fighters-2022-03-01/)
 
  
 

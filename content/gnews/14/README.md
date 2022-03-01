@@ -2,30 +2,23 @@
 ---
 
 
-## 2022/02/27 普京发出俄军队最高级别威慑力量-核战级别
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2086203/)
+## 视频|一旦对台开战 中共将断网断电关闭领空
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2086346/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-01-0844172.jpg)
-**简评：**由于认为西方国家在经济方制裁俄罗斯，而且北约主要国家的高级官员发表了攻击性声明。俄罗斯总统普京命令国防部长和总参谋长让俄罗斯军队的威慑力量处于高度战斗状态，即相当于核战级别。
+制作：香草山视频部
 
-GETTR视频链接：[https://gettr.com/post/pxc0dfa376](https://gettr.com/post/pxc0dfa376)
+在2月27日大直播中，郭文贵先生非常肯定地指出，如果对台开战，中共一定会关闭领空，断网断电。
 
-GTV视频链接：[https://gtv.org/video/id=621d3d294353d33974c40f0e](https://gtv.org/video/id=621d3d294353d33974c40f0e)
+从朝鲜战争，文化大革命，到越南战争，无论天灾还是人祸，中共永远都是牺牲中国人的生命，而从不考虑老百姓的死活，所有的问题就靠洗脑宣传解决。在中共眼里，中国老百姓连猪狗都不如。
 
-**视频字幕：**
+战争时，中共会以”国家需要“和”爱国“的名义，实施禁飞、断网、不让取钱等手段，让老百姓困在家里、饿死在家里。中共国老百姓的财产会被中共全部夺走。中共一直以骗治国，绑架老百姓。中共充分利用人性的仇恨，让中国人互相憎恨，互相斗争。中共认为，必须让老百姓的生活接近黑暗和死亡，才会驯服于它的独裁统治。
 
-亲爱的同事们，你们可以看到，西方国家不仅在经济方面对我国采取不友好的措施。我的意思是大家都很清楚的非法制裁，而且北约主要国家的高级官员也对我国发表攻击性的声明。这就是为什么我命令国防部长和总参谋长让俄罗斯军队的威慑力量处于高度战斗状态。
+发稿：林礼
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

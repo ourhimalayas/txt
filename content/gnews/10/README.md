@@ -2,38 +2,43 @@
 ---
 
 
-## 俄乌战争｜各国响应乌克兰国际志愿军 乌总统定调为民主而战
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2086231/)
+## 有声|新中国联邦打破红歌教育，创立健康教育
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2086366/)
 
-**撰文/ 港台前線｜發佈日期/ 01/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-3.png)**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pwkty7e61c))**
-乌克兰对俄罗斯的侵略行为，总统泽伦斯基27日签署完乌克兰加入欧盟申请后，公开号招外国志愿者组成国际防御兵团。 泽伦斯基声明“（俄罗斯的行为）是一场针对欧洲、针对民主、针对基本人权、针对全球法律、规则与和平秩序的战争。”
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+中共的教育不是培养人才，挖掘潜力，而是从小强力洗脑，从娃娃抓起几代如此，我们被意识形态灌输的无知，分不清是非对错，善恶美丑，才会在素未谋面的毛，周去世时，不管大人小孩都莫名其妙的伤心，觉得天塌下来了，而对身边的父母同学却缺少尊重关心，这是严重的心理失衡问题，这导致了个性的缺陷，可见中共的教育非常恶劣。
 
-据乌克兰国防部副部长Hanna Maliar脸书透漏，目前已有上千人挺身而出。 路透社报道称，有多位美加公民响应加入志愿军，其中不乏有美国公民具备服役经验，甚至是精锐部队82空降师的退役老兵。
+在当今昂贵的学费压力下，又没有优质的师职，中共的教育施行死记硬背，重复抄写，枯燥乏味，让很多孩子产生厌学逃学，堵塞了独立思考能力，更别提什么创新精神，而着重分数的教育就是一场灾难，无论父母孩子承受中考高考的巨大煎熬，多少孩子失去了理想梦想，多少家庭承受亲情的失衡，德体智只是一句口头禅，伪斯文，中共不健全的教育制度反而把原本健康的人心压制变形，没有良好的心理素质哪来的良好品质，多的是不分善恶的红色心霾。没有基本辨别善恶真假的常识，缺少坚毅的性格，天赋被挖杀，发挥不出优秀，让中国人从小就在无意识中带有了自卑、懦弱、自私，我们的人种没有问题，这是中共喂的所有的毒。
 
-路透社采访部分志愿者：
+七哥在直播中数次提醒新中国联邦要重视教育，击溃中共种下的毒，提倡健康的自由的充满快乐的教育方式，创造良好的学习环境把中国人的未来和希望做好。
 
+呼吁富豪的战友支持教育，七哥邀战友一起出巨资支持教育一律免费，强调GEDU 一定要做好，鼓励挖掘优秀师职，重金聘请全球有能力的老师共同参与教育，激励GEDU的老师，发放高于新东方1.5倍的薪水，如果有特殊贡献，工资将为原工资的两倍工资。
 
-> 看到乌克兰受伤妇孺的照片后，我觉得我必须作点什么。
-> -加拿大公民伍尔希（Bryson Woolsey）
+七哥在2022/2/25盖特说“决定一个人能走多远的因素往往不是智商，不是情商，而是性格。中共国的教育系统培养不出坚强的性格，可以训练自制力和毅力吗？
 
+新中国联邦打破中共的教育垄断，让人们随时随地可以享受最好的教育权利。
 
+七哥在盖特说“向着长期的目标，坚持自己的激情，即便历经失败，依然能够坚持不懈地努力下去，这种品质就叫做坚毅。如果一个孩子从小就培养出扶弱济贫有勇气，有良知的人性教育，我们每个人面对的未来都将是美好的。
 
-> 我无法忍受让欧洲再度陷入战爭。
-> -28歲的美国公民海德（Hyde，化名）
+明天上午8:30 G EDU教育．就是场特殊专场直播。七哥引领新中国联邦共谈未来教育。
 
+共产党是彻底的完了，为了让爆二代健康成长，也让我们这一代早日洗净心霾，新中国联邦的教育提在了首位！
 
+文字版原文：[新中国联邦打破红歌教育，创立健康教育](https://gnews.org/zh-hans/2067802/)
 
-> 如果乌克兰人愿意捍卫民主，那我认为我们这些从民主社会中受益的人有义务支持他们。
-> -在德州奥斯汀担任软体工程师的一名美国人
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
 
-据采访，部分志愿者参与志愿军，本身并未受过军事训练，但仍希望为乌克兰提供一己之力。 有军事专家表示，有必要避免没有经验的平民前往冲突地区，但伴随而来的是无法对乌克兰地面部队提供即时的支持。 此外，并不是所有志愿者都是为参与战斗，有志愿者为提供中立的人道救援行动而参与。
-
-丹麦，周日由首相梅特·弗雷德里克森在新闻发布会上宣布，允许国民加入国际志愿军。 丹麦首相在俄罗斯驻哥本哈根大使馆前表示「受到俄罗斯威胁的是你们所有人（丹麦）和整个欧洲。」 此外，[芬兰](https://www.defmin.fi/en/topical/press_releases_and_news/finland_sends_additional_aid_to_ukraine.12482.news#6a94dd01)宣布军援乌克兰，是二战后首见。
-
-来源｜[芬蘭官方網站](https://www.defmin.fi/en/topical/press_releases_and_news/finland_sends_additional_aid_to_ukraine.12482.news#6a94dd01)、[衛報](https://www.theguardian.com/world/2022/feb/27/ukraine-appeals-for-foreign-volunteers-to-join-fight-against-russia)、[路透](https://www.reuters.com/world/americans-canadians-answer-ukraine-call-foreign-fighters-2022-03-01/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

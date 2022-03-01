@@ -2,44 +2,28 @@
 ---
 
 
-## 身在东京的乌克兰歌手为家乡祈福
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2085963/)
+## 新中国联邦救援行动，只为行于“正道”
+` 新西兰伊甸农场听写编辑组` [轉載自GNews](https://gnews.org/zh-hans/2086200/)
 
-作者：银河系农场 – 骄子
+作者：Avaliu（老刘）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/救援1.png)
+赞，新中国联邦
 
+——无关政治、无关立场，只行“正道”！
 
+2022年2月24日，俄罗斯总统普京发动了侵略乌克兰的战争，点燃了侵略战争的火焰！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+一时间，乌克兰有飞弹轰炸，坦克横行；有火雾弥漫冲天，房倒楼塌；有一串串死亡数字报现；有帅气的小伙、妙龄的美人儿横尸街头；有即将参军抗暴的父亲埋头在小女儿的胸口，泪水喷涌；有老妇人站在街口哭诉：我们怎样活？……
 
+这一切，让历史上一次次侵略战争的惨绝人寰再现！一股股怒火在我胸中升腾！满了胸膛，刺破喉咙！
 
+2月26日，郭文贵先生发出紧急动员令！新中国联邦宣布：营救！营救！营救！在联合国国际救援组织下，与国际NGO组织合作；法治基金营救资金到位；飞机、物资齐备；各救援小组科学配备；救援的战士们整装待发，个个精神百倍！去乌克兰！救出我们的战友和家人；救出被中共抛弃的中国同胞；救出美国友人；也要救助那些爱党的红粉。
 
-外媒2月28日报道，身在东京的44岁乌克兰歌剧歌手奥克萨娜.斯捷潘纽克，正在为祖国和平和家人的安危祈祷。
+新中国联邦的救援行动，无关政治，无关立场，只为行于“正道”。赞！赞！赞！
 
-歌手斯捷潘纽克的父母住在乌克兰的一个村庄，俄罗斯入侵时周围的警报器吓坏了母亲，没多久俄罗斯军用飞机开始在当地飞行，每天的战争情况都在变化。在与母亲通话后她表示非常想冲到家人身边，并希望战争能够即刻结束。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7.jpg)
-据悉斯捷潘纽克也是乌克兰民间弦乐器bandura的著名演奏者。乌克兰是一个拥有自由和文化成熟的独立国家，该国产生了很多才华横溢的音乐家和作曲家，如出生在基辅的著名古典钢琴大师弗拉基米尔·霍洛维茨。俄罗斯和乌克兰在历史上有很多渊源，两国人民时常通婚。而如今俄罗斯悍然入侵乌克兰，斯捷潘纽克说她为和平和爱而歌唱而祈祷，希望每个人都能得救。
+校对：面包树/一念
 
-参考链接：
-[Tokyo-based Ukrainian singer prays for peace, family’s safety](https://english.kyodonews.net/news/2022/02/b1b8b3859fc6-tokyo-based-ukrainian-singer-prays-for-peace-familys-safety.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+上传：一念
 
  
 

@@ -2,31 +2,43 @@
 ---
 
 
-## 2022/02/26 英国人民与乌克兰站在一起，荣归乌克兰！
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2086204/)
+## 有声|美国将是当前世界政治游戏的最大赢家
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2086363/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-01-084417.jpg)
-**简评：**英国首相约翰逊表示，英国人民与乌克兰站在一起，’荣归乌克兰’！普京发动的这场血腥的战争正导致俄罗斯被国际社会所孤立和排斥，会受到巨大的经济制裁。这场战争已经造成了两国无数的人失去了生命。这场战争不是以俄罗斯人的名义进行的，这是俄罗斯和乌克兰两国共同的悲剧。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在2月23日的大直播中，郭文贵先生分析了当前的世界形势，指出美国才是世界政治游戏中的最大赢家。
 
-GETTR视频链接：[https://gettr.com/post/pxaq7i81f4](https://gettr.com/post/pxaq7i81f4)
+郭先生说，拜登和布林肯是真正的政治玩家，他们的一箭多雕政策非常高明。他们一再宣传俄罗斯要侵略乌克兰，让全世界感到了恐惧。这让普京误以为，他应该进行所谓的“依法”收回乌克兰，然后降伏白俄罗斯，再用中共的钱打造他梦想中的尼古拉帝国时代。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2428.png)
+事实是，美国政府已经察觉到，世界上许多国家在疏远美国，而与中俄勾兑，所以美国要用实力和策略来证明，到底谁是世界的领导者。
 
-GTV视频链接：[https://gtv.org/video/id=621d3c2a4353d33974c40ec1](https://gtv.org/video/id=621d3c2a4353d33974c40ec1)
+首先，他们利用习近平将中共国的经济和国家信用彻底搞垮了。
 
-**视频字幕：**
+其次，普京已经自绝于俄罗斯人民；目前还要应对西方经济制裁，和内部随时可能的突发事件；这使普京处于极度危险中。
 
-**英国首相约翰逊：**面对这种对你们祖国的无理攻击，英国人民与我们的乌克兰兄弟姐妹站在一起。我们向贵国政府、军队和人民的勇敢和爱国主义精神致敬。我与泽伦斯基总统保持着密切联系，作为首相，我再次代表我们所有英国人说，‘荣归乌克兰’。这是乌克兰的悲剧，同样，这也是俄罗斯的悲剧。但普京的行为正导致俄罗斯完全被孤立，被国际社会其他国家所回避，会受到巨大的经济制裁，并面临一场不必要的血腥战争，而这场战争已经造成了无数的生命损失。从无辜的乌克兰人民到俄罗斯士兵，他们将永远看不到他们的家人。对于我的俄罗斯朋友，我不相信这场战争是以你们的名义进行的。
+再次，那些被威胁而跟着俄罗斯的东欧国家，经济已经全面崩溃。
 
-* * *
+最后，欧洲和北约本来要与美国离心离德，美国却只用外交手段，就把欧洲和北约彻底拿下了。普京客观上也在帮助欧洲全面加速倒向美国。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+世界正面临数字经济时代的转型，美国超印的几十万亿美元，正需要有人买单。全世界出于对战争的恐惧，将把天文数字的资金注入美国。
 
+至此，美国从政治，经济，外交以及世界地位等方面，全盘皆赢。
 
-编辑：【英国伦敦喜庄园编辑部】
+文字版原文：[美国将是当前世界政治游戏的最大赢家](https://gnews.org/zh-hans/2068386/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

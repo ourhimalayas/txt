@@ -2,20 +2,21 @@
 ---
 
 
-## 法制基金法治社会的力量
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2086305/)
+## 视频|前国务卿蓬佩奥警告习攻击台湾将重创经济
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2086436/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+制作：香草山视频部
 
-*发布：陶子*
+2月26日，美国前国务卿蓬佩奥在接受采访时表示，习近平很可能看到美国在阿富汗和乌克兰事件上的表现，利用当前的乌克兰局势侵略台湾。由于台湾是重要的芯片生产地，这将重挫包括贸易和制造业在内的经济发展。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+蓬佩奥还强调，乌克兰局势让独裁者们看到，即使实施侵略也没有被严厉追责，希望美国政府能够展现出更多威慑力，来防止事态进一步恶化。
+
+发稿：林礼
+
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

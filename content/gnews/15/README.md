@@ -2,28 +2,42 @@
 ---
 
 
-## 新中国联邦救援行动，只为行于“正道”
-` 新西兰伊甸农场听写编辑组` [轉載自GNews](https://gnews.org/zh-hans/2086200/)
+## 郭先生等PAG宣布后再出手,要查清PAG投资来龙去脉
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2086334/)
 
-作者：Avaliu（老刘）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/救援1.png)
-赞，新中国联邦
+G-TV视频链接：https://gtv.org/video/id=62164b6a1408ee3a03a3c8b4
 
-——无关政治、无关立场，只行“正道”！
+**郭文贵先生：**好，好啊，PAG的官司就这样，PAG等他们宣布，等他们宣布。然后咱们再出手，再采取任何行动。
 
-2022年2月24日，俄罗斯总统普京发动了侵略乌克兰的战争，点燃了侵略战争的火焰！
+然后我们会听到PAG官司，就是太平联盟官司在美国。对我们很不利的判决，但是恰恰，我们会因此继续跟它打下去。我们跟PAG官司打得不仅仅是钱，我们要打得是PAG的单伟建，和单伟建整个太平联盟他所有的投资，和投资来源和他投资去向。跟瑞银是一样的。
 
-一时间，乌克兰有飞弹轰炸，坦克横行；有火雾弥漫冲天，房倒楼塌；有一串串死亡数字报现；有帅气的小伙、妙龄的美人儿横尸街头；有即将参军抗暴的父亲埋头在小女儿的胸口，泪水喷涌；有老妇人站在街口哭诉：我们怎样活？……
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-这一切，让历史上一次次侵略战争的惨绝人寰再现！一股股怒火在我胸中升腾！满了胸膛，刺破喉咙！
+编辑整理：Jacques；
 
-2月26日，郭文贵先生发出紧急动员令！新中国联邦宣布：营救！营救！营救！在联合国国际救援组织下，与国际NGO组织合作；法治基金营救资金到位；飞机、物资齐备；各救援小组科学配备；救援的战士们整装待发，个个精神百倍！去乌克兰！救出我们的战友和家人；救出被中共抛弃的中国同胞；救出美国友人；也要救助那些爱党的红粉。
+字幕档制作：兵嫂；
 
-新中国联邦的救援行动，无关政治，无关立场，只为行于“正道”。赞！赞！赞！
+视频制作及上传：Cindy；
 
-校对：面包树/一念
+G-News发布：海贼王M.D.LUFFY；
 
-上传：一念
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 
