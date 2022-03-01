@@ -2,22 +2,26 @@
 ---
 
 
-## 有声｜为摆脱对俄天然气依赖 德拟推清洁能源法案
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2087216/)
+## 有声｜美国和盟国考虑释放6000万桶石油应对供应紧张
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2087349/)
 
 By:**秘翻新闻**
 
 **2022-03-01**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-1.png)图片来源 Julian Stratenschulte/ DPA
-[综合媒体3月1日消息，欧洲各国高度仰赖从俄罗斯进口的天然气，其中德国的依赖程度高达55%。有报道指出，普京利用天然气为地缘政治工具勒索欧洲，近年更不时出现断气或减少运量的情况，让各国苦不堪言。](https://www.spiegel.de/wirtschaft/soziales/oekostrom-regierung-will-vollversorgung-bis-2035-a-7b55d5fb-91ef-4c20-9c2e-4f11c3517417https://de.marketscreener.com/boerse-nachrichten/nachrichten/UPDATE-Ministerium-will-Stromversorgung-schon-2035-klimaneutral-machen--39606793/?utm_medium=RSS&amp;utm_content=20220228)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-2.jpg)图片来源 路透社
+[《路透社》](https://www.reuters.com/business/energy/us-allies-weigh-oil-reserves-release-iea-meet-sources-2022-02-28/)2月28日报道，据知情人士透露，美国及其盟国正在考虑释放石油储备，以应对油价飙升和俄罗斯入侵乌克兰后石油供应紧张的局面。据彭博社报道，这些国家正在考虑释放约6千万桶石油。
 
-[德国国会27日为俄罗斯出兵举行特别会议，德国经济暨能源部长哈柏克强调，能源供应就是国家安全，为减少对俄罗斯石油、天然气和煤炭的依赖，他近日将提出新法，全力推动再生能源和绿色氢气。此外，德国财政部长林德纳表示，德国的能源安全规划必须面对俄国入侵乌克兰的新现实，再生能源不仅可确保能源供应，还能摆脱对外依赖，因此可称之为「自由的能源」。](https://www.spiegel.de/wirtschaft/soziales/oekostrom-regierung-will-vollversorgung-bis-2035-a-7b55d5fb-91ef-4c20-9c2e-4f11c3517417https://de.marketscreener.com/boerse-nachrichten/nachrichten/UPDATE-Ministerium-will-Stromversorgung-schon-2035-klimaneutral-machen--39606793/?utm_medium=RSS&amp;utm_content=20220228)
+报道指出，在俄乌战争之际，以及西方盟国将俄罗斯踢出SWIFT结算系统之后，油价达到了自2014年以来的最高水平，国际基准布伦特原油期货一度涨至每桶105.08美元。将俄罗斯踢出SWIFT系统干扰了石油供给，一些买家已经在回避俄罗斯原油。
 
-[据「南德日报」取得的草案，德国政府计划修改「再生能源法」，准备在未来几年大幅扩充风力和太阳能的发电容量，将原本2050年前完全依赖再生能源的目标，提前在2035年前完成。](https://www.spiegel.de/wirtschaft/soziales/oekostrom-regierung-will-vollversorgung-bis-2035-a-7b55d5fb-91ef-4c20-9c2e-4f11c3517417https://de.marketscreener.com/boerse-nachrichten/nachrichten/UPDATE-Ministerium-will-Stromversorgung-schon-2035-klimaneutral-machen--39606793/?utm_medium=RSS&amp;utm_content=20220228)
+俄罗斯是世界上最大的石油生产国之一，每天出口大约400到500万桶原油，另外出口200- 300万桶成品油。中共国、欧盟、韩国、印度和日本是其主要买家。
 
-秘翻新闻 明澈 编辑报道
+报道称，国际能源署总干事法提赫·比罗尔表示，国际能源署成员最早可能在周一或者周二，对开发战略石油储备达成一致。该国际会议将由美国能源部长格兰霍姆主持。
 
-发布 : 恩典
+截至发稿，国际基准布伦特原油期货每桶报价98美元。
+
+（秘翻新闻  冰糖葫芦喵编译报道）
+
+发布 : 文橙
 
 * * *
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)

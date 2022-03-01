@@ -2,43 +2,23 @@
 ---
 
 
-## 2022年3月1日澳洲股市简报
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2087234/)
+## 有声｜乌总统已签加入欧盟申请书　并呼吁立即通过
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2087363/)
 
-**撰稿：云彩**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian 
-ASX200 指数上涨0.7%，收盘7097点。期间，石油天然气股ˎ科技股和银行股推高指数上涨，但收盘时回落。
+By:**秘翻新闻**
 
-澳大利亚储备银行（RBA）将官方利率维持在 0.1%，RBA行长Philip Lowe 表示，乌克兰战争是“主要的新不确定性”。
+**2022-03-01**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-2.jpg)图片来源 香港01
+[综合新闻](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/741451/%E7%83%8F%E5%85%8B%E8%98%AD%E5%B1%80%E5%8B%A2-%E6%BE%A4%E9%80%A3%E6%96%AF%E5%9F%BA%E5%B7%B2%E7%B0%BD%E5%8A%A0%E5%85%A5%E6%AD%90%E7%9B%9F%E7%94%B3%E8%AB%8B%E6%9B%B8-%E7%B1%B2%E5%95%9F%E7%89%B9%E6%AE%8A%E7%A8%8B%E5%BA%8F%E7%AB%8B%E5%8D%B3%E9%80%9A%E9%81%8E)2月28日报道，俄乌战事在3月1日进入第六天。乌克兰总统新闻秘书尼基福罗夫28日表示，乌克兰总统泽连斯基已在首都基辅签署乌克兰申请加入欧盟的文件。
 
-布伦特原油期货上涨 1. 2% 至每桶 98.11 澳元， 现货金下跌 0.05% 至每盎司 1906.83 澳元（澳大利亚东部夏令时间下午 4:50）
+尼基福罗夫在社交媒体上发文，指有关文件对乌克兰来说具有历史意义。泽连斯基较早前亦发表讲话，呼吁欧盟启动特殊程序，立即同意乌克兰加入欧盟。
 
-**股价上涨的公司**
+（秘翻新闻StevenZ编辑报道）
 
-银行CBA表示，将以18亿美元的价格出售中国银行杭州银行10%的股份。其股价上涨 1.4% 至 94.82 澳元。
+发布 : 文橙
 
-体外受精服务商Virtus Health 收到CapVest Partners 收购要约后，股价上涨4.7%
-
-支付公司Block 上涨12.8%
-
-在线博彩公司Pointsbet 上涨17.5%
-
-铀公司Paladin Energy 上涨13%
-
-**股价下跌的公司**
-
-铜矿商 Sandfire Resources 下跌11.64%
-
-金矿商 Perseus Mining 下跌7.4%
-
-先买后付公司 Zip 下跌6.3%
-
-参考资料：
-
-[ASX gains , Russia doubles interest rates](https://www.abc.net.au/news/2022-03-01/asx-wall-street-markets-currencies-commodities/100870276)
-
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,23 +2,38 @@
 ---
 
 
-## 有声｜欧盟继续扩大对俄制裁名单
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2087166/)
+## 韩国政府向乌克兰提供1000万美元用于人道救援
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2087298/)
 
-By:**秘翻新闻**
+作者：首尔天池农场—追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-71.png)
+2月28日，韩国外交部宣布，韩国决定向乌克兰提供1000万美元的紧急人道主义援助，用于帮助乌克兰政府、民众和难民。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-31.png)
+外交部指出，将通过与乌克兰及其周边国家政府和国际组织协商，确保援助尽快到位。
 
-**2022-03-01**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-1.png)图片来源 hk01
-[综合新闻2月28日报道，欧盟宣布就乌克兰问题进一步扩大对俄罗斯制裁，继制裁普京等俄国政要后，此次将俄罗斯总统新闻秘书佩斯科夫（Dmitry Peskov）及副总理切尔内申科等人纳入制裁名单内。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/741448/%E7%83%8F%E5%85%8B%E8%98%AD%E5%B1%80%E5%8B%A2-%E6%AD%90%E7%9B%9F%E6%93%B4%E5%A4%A7%E5%B0%8D%E4%BF%84%E5%88%B6%E8%A3%81-%E5%A4%9A%E5%90%8D%E5%AE%98%E5%93%A1-%E4%BC%81%E6%A5%AD%E5%AE%B6%E7%B4%8D%E5%85%A5%E5%88%B6%E8%A3%81%E5%90%8D%E5%96%AE)
+联合国难民事务高级专员估计，将有超过 400 万乌克兰难民逃往波兰、匈牙利、罗马尼亚和斯洛伐克等周边国家。
 
-[最新被纳入制裁名单还包括多名俄国官员、国家杜马议员、4名俄军高层、企业家、银行总裁，甚至记者和电视主持，有关决定在公布后立即生效。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/741448/%E7%83%8F%E5%85%8B%E8%98%AD%E5%B1%80%E5%8B%A2-%E6%AD%90%E7%9B%9F%E6%93%B4%E5%A4%A7%E5%B0%8D%E4%BF%84%E5%88%B6%E8%A3%81-%E5%A4%9A%E5%90%8D%E5%AE%98%E5%93%A1-%E4%BC%81%E6%A5%AD%E5%AE%B6%E7%B4%8D%E5%85%A5%E5%88%B6%E8%A3%81%E5%90%8D%E5%96%AE)
+外交部表示，希望韩国政府的支持能够为乌克兰民众和难民提供切实帮助，政府并计划为解决乌克兰人道主义危机作出积极力量。
 
-秘翻新闻 StevenZ 编辑报道
+参考链接：[外交部向烏克蘭公民和難民提供1000萬美元](https://news.kbs.co.kr/news/view.do?ncd=5405763)
 
-发布 : 恩典
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+总编/编辑：DM
+校对/发稿：小野貓（文凱琳）
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-71.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
