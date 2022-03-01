@@ -2,30 +2,30 @@
 ---
 
 
-## 西方不得不承认在武器帮助乌克兰方面 “太晚了”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2089646/)
+## NFSC新闻、G|TV新闻访谈简报|2022年3月1日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2089693/)
 
-#### 编译：Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO.jpg)
 
-#### 责编：白夜 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16461556101.png)Image source: DW
-据美国3月1日CNBC 报道, 周一拍摄的卫星图像显示,一支庞大的俄罗斯军事车队在乌克兰首都基辅以北, 绵延约64公里长, 正驶向乌克兰首都基辅。由于乌克兰的局势快速发展, 现在的状况可能比周一图片中所看到的更严重。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_.png)
+文章仅代表作者本人观点，与Gnews无关
 
-五角大楼指出, 尽管乌克兰进行了顽强的抵抗, 克里姆林宫仍然希望其军队占领基辅。 一旦发动更猛烈的袭击, 乌克兰武装部队和平民抵抗力量将如何应对就更不确定了。
+视频参看：
+[2022.03.01早 《NFSC新闻》](http://中共将会采用第三套方案攻台；俄乌战争的两个结局和俄罗斯的未来)
+[2022.03.01早 G|TV《新闻访谈》](https://gtv.org/video/id=621e27cf019ef64da6534f27)
 
-伦敦皇家联合军种研究所（Royal United Services Institute）陆战研究员杰克·沃特林（Jack Watling）周一对记者表示,  西方不得不承认, 它试图在武器供应等方面帮助乌克兰, 但是“太晚了”。 他描述了基辅及其剩余居民和抵抗战士的黯淡前景, 以及即将到来的俄罗斯军队可能对该市采取的战术。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-沃特林说: “这个警告在几个月前就已经发出”。 过去几天里所发出的武器, 正在波兰集结，在它们被送往国防军手中之前, 必须保障不被俄罗斯的飞机击中, 所以需要时间。他指出, 如果这座城市被包围, 那么关键的公用设施会被占领, 所以俄罗斯人将会控制着水和电的供应. 然后他们会对抵抗集中的地区进行密集炮击。随后是装甲, 工程师和步兵的联合武器攻击。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3.jpeg)
 
-英国副总理多米尼克 · 拉伯(Dominic Raab) 星期二表示, 英国将尽一切可能拖延基辅被攻破. 英国广播公司 (BBC) 周二上午报道称, 车队距离基辅17英里，但很难估计军事纵队到达该市的速度。
-
-俄罗斯和乌克兰代表周一在邻国白俄罗斯, 举行了一轮没有取得任何突破结果的和谈。外交部长德米特罗·库列巴 (Dmytro Kuleba) 周一对NBC记者说, 作为一名外交官, 他希望谈判成功, 但与此同时, 他希望对俄罗斯实施更多制裁, 给乌克兰带来更多武器, 并在国际舞台上尽可能孤立俄罗斯。
-
-库列巴说:”我们不仅代表我们自己, 而且代表我们都知道的世界秩序。” “这是一场反对俄罗斯侵略的, 真正的人民战争”。 乌克兰报告称, 数百名公民其中包括一些儿童, 在俄罗斯的袭击中丧生。
-
-尽管许多人留下来保卫自己的家园和国家, 这次入侵导致大量乌克兰人试图逃离乌克兰, 前往东欧寻求安全。联合国难民署(UNHCR) 发言人周二向NBC新闻证实，在过去六天里, 超过66万人从乌克兰逃到邻国。
-
-[Source](https://www.cnbc.com/2022/03/01/huge-convoy-of-russian-vehicles-approaching-kyiv.html)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

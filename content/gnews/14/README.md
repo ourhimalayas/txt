@@ -2,35 +2,27 @@
 ---
 
 
-## 有声|切断SWIFT支付将对中共造成致命打击
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2089267/)
+## 美支付公司万事达、VISA禁止多家俄罗斯金融机构使用其支付网络
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2089274/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月27日，郭文贵先生在大直播中，详细讲解了切断中共使用SWIFT支付系统，对灭共起到关键作用。
+**撰稿：日本东京方舟农场 海星**
 
-首先，SWIFT系统不仅是美元支付系统，更重要的作用是国家信用评级。切断SWIFT支付系统，意味着与50%以上的世界国家经济体断绝经济合作。目前，停止俄罗斯银行使用SWIFT系统，是历史上首次针对主权国家停用。一旦开启SWIFT制裁先例，即使中共不对台开战，停止中共银行使用SWIFT系统，仅是时间问题。
+2月28日，美国知名支付公司万事达卡与VISA发布声明表示，他们已禁止多家俄罗斯金融机构使用其支付网络。
 
-郭先生透露，目前有三个理由对中共实施SWIFT制裁：第一，对新疆实施种族灭绝大屠杀；第二，镇压香港民主运动，杀害无辜的香港平民；第三，制造和释放中共病毒，对全世界发动生化战争。
+据《中央社》报导，Visa公司（Visa Inc）在2月28日的声明中表示，该公司遵循制裁措施，已停止对多家俄罗斯金融机构进行服务，未来可能还会有进一步的制裁行动。万事达卡公司（Mastercard Inc）也在声明中表示，该公司已对俄罗斯实施了相应的制裁措施，未来几天还将持续和监管机构合作，并将捐出200万美元向乌克兰提供人道救援。
 
-郭先生进一步强调，当SWIFT系统停止中共银行使用后，中国银行28万亿国际业务顷刻消失；中共所有海外贷款和借款，全部立刻停止；建行、招行、农行等所有上市银行股票价格，立刻跌倒零；15万亿GDP化为乌有；中共40%粮食进口和68%外向行经济都将结束。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-3.jpg)（图片来源：Pixabay图库）
 
-中共常委的家人在海外均藏匿巨额家族信托资产，一旦被经济制裁，这些人会联手消灭习近平。切断SWIFT系统是对中共釜底抽薪的致命打击。
+此前，在俄罗斯入侵乌克兰后，美国电子支付公司Apple Pay和Google Pay立即停止了部分俄罗斯银行卡使用他们的支付功能，导致这些银行的客户将无法在国外刷卡，也无法向被制裁国家的注册公司进行线上支付。
 
-文字版原文：[切断SWIFT支付将对中共造成致命打击](https://gnews.org/zh-hans/2081404/)
+参考链接：
+1. [https://www.cna.com.tw/news/aopl/202203010229.aspx](https://www.cna.com.tw/news/aopl/202203010229.aspx)
+2. [https://ec.ltn.com.tw/article/breakingnews/3842175](https://ec.ltn.com.tw/article/breakingnews/3842175)
 
-音频处理：Fei797
-发稿：Fei797
+素材采编：海星
+编辑：老孙
+发布：小斐
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

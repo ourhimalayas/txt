@@ -2,27 +2,35 @@
 ---
 
 
-## 加拿大和欧洲国家对乌克兰难民提供人道援助
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2089155/)
+## 有声|切断SWIFT支付将对中共造成致命打击
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2089267/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2月27日，郭文贵先生在大直播中，详细讲解了切断中共使用SWIFT支付系统，对灭共起到关键作用。
 
-采编：文莱       翻译编辑：文所未闻
-![Ukrainian refugees](https://www.ctvnews.ca/polopoly_fs/1.5796010.1645804566!/httpImage/image.jpg_gen/derivatives/landscape_960/image.jpg)图片来源：https://www.ctvnews.ca/
-据加拿大《CTV新闻》2月25日报道，加拿大国防部长阿南德当天表示，有150名该国军人组成的武装部队正在波兰待命，随时准备提供战争援助，以帮助乌克兰难民安全越过边境进入欧洲邻国。
+首先，SWIFT系统不仅是美元支付系统，更重要的作用是国家信用评级。切断SWIFT支付系统，意味着与50%以上的世界国家经济体断绝经济合作。目前，停止俄罗斯银行使用SWIFT系统，是历史上首次针对主权国家停用。一旦开启SWIFT制裁先例，即使中共不对台开战，停止中共银行使用SWIFT系统，仅是时间问题。
 
-报道称，在对乌克兰多个城市和军事基地发动空袭后，俄军目前已推进到首都基辅附近，并导致成千上万的乌克兰人涌入欧洲中部和邻国地区避难。
+郭先生透露，目前有三个理由对中共实施SWIFT制裁：第一，对新疆实施种族灭绝大屠杀；第二，镇压香港民主运动，杀害无辜的香港平民；第三，制造和释放中共病毒，对全世界发动生化战争。
 
-据悉，帮助难民前往加拿大是后续救援措施之一。加拿大政府正在就如何优先、快捷处理乌克兰人的移民申请制定方案。于此同时，欧盟也在为大量战争难民的涌入做准备。
+郭先生进一步强调，当SWIFT系统停止中共银行使用后，中国银行28万亿国际业务顷刻消失；中共所有海外贷款和借款，全部立刻停止；建行、招行、农行等所有上市银行股票价格，立刻跌倒零；15万亿GDP化为乌有；中共40%粮食进口和68%外向行经济都将结束。
 
-此外，新中国联邦和法治基金也已与联合国救援组织合作，共同启动了国际人道救援行动。并投入巨大资源无偿安排专机协助有需要的人士撤离到安全中转国。反观中共政府，懦夫嘴脸毕现，竟以“不安全”为借口拒绝实施救援，置其惶恐国民于炮火中而不顾。正义和邪暴立见，真善和假恶分明。
+中共常委的家人在海外均藏匿巨额家族信托资产，一旦被经济制裁，这些人会联手消灭习近平。切断SWIFT系统是对中共釜底抽薪的致命打击。
 
-校对编辑：硫酸羟氯喹64
+文字版原文：[切断SWIFT支付将对中共造成致命打击](https://gnews.org/zh-hans/2081404/)
 
-发稿：青青
+音频处理：Fei797
+发稿：Fei797
 
-消息来源： [https://www.ctvnews.ca/politics/canada-european-countries-preparing-for-influx-of-ukrainian-refugees-1.5795900](https://www.ctvnews.ca/politics/canada-european-countries-preparing-for-influx-of-ukrainian-refugees-1.5795900)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
