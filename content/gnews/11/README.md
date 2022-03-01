@@ -2,38 +2,38 @@
 ---
 
 
-## 有声|欧盟宣布对俄罗斯飞机实施全面飞行禁令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2089710/)
+## 马斯克：俄罗斯入侵并扰乱互联网 星链在乌克兰使用活跃
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2089783/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间2月27日，欧盟委员会主席乌苏拉-冯德莱恩在布鲁塞尔宣布，欧盟已经对俄罗斯飞机实施了全面的飞行禁令。
+编译: Mandel
 
-冯德莱恩说，该禁飞令针对俄罗斯拥有、注册或控制的飞机。所有这些飞机，包括寡头的私人飞机，现在将不能在任何欧盟国家降落、起飞或飞越。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-3.jpg)图片来源: REUTERS/Mike Blake, 2019年6月13日，在美国加利福尼亚州洛杉矶举行的E3游戏大会上，SpaceX老板兼特斯拉CEO埃隆-马斯克在与传奇游戏设计师托德·霍华德（未照出）的对话中发言。
 
-在欧盟正式宣布这一决定前，欧洲国家已经在逐一对俄罗斯关闭其领空。德国说其禁令将持续三个月。英国也禁止俄罗斯飞机进入其领空。
+旧金山，2月26日（路透社）- SpaceX亿万富翁埃隆·马斯克周六表示，该公司的星链卫星宽带服务已在乌克兰开通，SpaceX正在向该国发送更多终端。该国的互联网因俄罗斯的入侵而中断。
 
-莫斯科多莫杰多沃机场和谢列梅捷沃机场的出发牌显示，周日有几十个航班被取消，包括前往巴黎、维也纳和加里宁格勒的航班。
+“星链服务现在在乌克兰是活跃的。更多的终端正在路上。”马斯克在推特上说。
 
-俄罗斯S7航空公司在Facebook上说，它将取消前往许多欧洲目的地的航班，至少到3月13日。
+他这是在回应一位乌克兰政府官员的推文，该官员要求马斯克为这个陷入困境的国家提供星链站。
 
-欧盟还将禁止俄罗斯的国有新闻机构，它们被广泛视为克里姆林宫的喉舌。据悉，欧盟正在开发工具，以禁止这些新闻机构在欧洲发布有毒和有害的虚假信息。
+“@elonmusk，当你试图殖民火星的时候——俄罗斯试图占领乌克兰！当你的火箭从太空成功着陆时——俄罗斯的火箭正在攻击乌克兰的平民！” 乌克兰副总理Mykhailo Fedorov在推特上说。
 
-文字版原文：[欧盟宣布对俄罗斯飞机实施全面飞行禁令](https://gnews.org/zh-hans/2084864/)
+互联网监测人员周六表示，乌克兰的互联网连接已经受到俄罗斯入侵的影响，特别是在该国战斗最激烈的南部和东部地区。[点击阅读全文。](https://www.reuters.com/world/europe/internet-ukraine-disrupted-russian-troops-advance-2022-02-26/)
 
-音频处理：Fei797
-发稿：Fei797
+虽然部署成本极高，但卫星技术可以为居住在光纤电缆和手机信号塔无法到达的农村或难以服务的地方的人们提供互联网。当飓风或其他自然灾害扰乱通信时，该技术也可以成为重要的后盾。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+马斯克在1月15日说，SpaceX有1469颗星链卫星在运行，272颗卫星即将进入运行轨道。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+由Hyunjoo Jin于2022年2月27日报道，Leslie Adler编辑。
 
+**参考资料：**[reuters][Musk says Starlink active in Ukraine as Russian invasion disrupts internet](https://www.reuters.com/technology/musk-says-starlink-active-ukraine-russian-invasion-disrupts-internet-2022-02-27/)
+
+* * *
+
+*审核：文乐*
+*校对：阿伯塔*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜.jpeg)
 
  
 

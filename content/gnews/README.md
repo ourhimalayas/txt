@@ -15,131 +15,131 @@
 
 ---
 
-### [乌克兰救援注意事项4 新中国联邦反对战争 爱好和平](/content/gnews/1/README.md)
+### [俄罗斯已经没有未来了 俄乌战争或许会以非常态的方式结束](/content/gnews/1/README.md)
  ` 焦點20分`
 
-### [中共没有安排从乌克兰撤侨 反而从国内运输大量物资支援俄罗斯发动战争](/content/gnews/2/README.md)
+### [中共攻台很可能采用快战战略 甚至可能动用核武](/content/gnews/2/README.md)
  ` 焦點20分`
 
-### [2022年3月1日，全球中共病毒疫情情况汇总](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [新中国联邦在俄乌战火中崛起](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [台湾的战友请注意 新中国联邦正在帛琉共和國（Republic of Palau）建设基地](/content/gnews/4/README.md)
+### [乌克兰救援注意事项4 新中国联邦反对战争 爱好和平](/content/gnews/4/README.md)
  ` 焦點20分`
 
-### [新中国联邦将参与乌克兰救援 及注意事项3](/content/gnews/5/README.md)
+### [中共没有安排从乌克兰撤侨 反而从国内运输大量物资支援俄罗斯发动战争](/content/gnews/5/README.md)
  ` 焦點20分`
 
-### [新中国联邦将参与乌克兰救援 及注意事项2](/content/gnews/6/README.md)
+### [2022年3月1日，全球中共病毒疫情情况汇总](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [台湾的战友请注意 新中国联邦正在帛琉共和國（Republic of Palau）建设基地](/content/gnews/7/README.md)
  ` 焦點20分`
 
-### [马斯克：俄罗斯入侵并扰乱互联网 星链在乌克兰使用活跃](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [新中国联邦将参与乌克兰救援 及注意事项3](/content/gnews/8/README.md)
+ ` 焦點20分`
 
-### [囯际足联提议対俄罗斯进行处罚](/content/gnews/8/README.md)
- ` 纽约香草山MOS03`
-
-### [纽约市将取消对室内商业餐饮和活动的强制疫苗接种规定](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|俄对乌部署大规模杀伤性武器引民愤](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [有声|欧盟宣布对俄罗斯飞机实施全面飞行禁令](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [NFSC新闻、G|TV新闻访谈简报|2022年3月1日早](/content/gnews/12/README.md)
- ` 纽约香草山MOS01`
-
-### [西方不得不承认在武器帮助乌克兰方面 “太晚了”](/content/gnews/13/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国敦促其公民考虑立即离开俄罗斯](/content/gnews/14/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [俄罗斯军队使用大规模杀伤性武器袭击主要城市的平民](/content/gnews/15/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【秘翻时评】卫星影像曝俄军车绵延64公里 美估近日包围基辅](/content/gnews/16/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [2/27/2022 文贵直播: 习近平执意打台湾和开两会并不矛盾；乌克兰的媒体信息战、科技战和网络战的成功对中共触动很大，进而影响到中共对台作战的战略](/content/gnews/17/README.md)
- ` 秘密翻译组-北美组`
-
-### [中共对战乱中的同胞弃之不顾](/content/gnews/18/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [2/27/2022 文贵直播: 邪恶的中共丝毫不在乎乌克兰华人的死活；文贵是第一个呼吁将俄罗斯踢出SWIFT系统的人](/content/gnews/19/README.md)
- ` 秘密翻译组-北美组`
-
-### [加拿大和欧洲国家对乌克兰难民提供人道援助](/content/gnews/20/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [UBS案将面对中共巨大政治压力及栽赃抹黑和全球消声](/content/gnews/21/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [【短访谈】乌克兰负责数位转型的副部长Alex Bornyakov，说明他的国家是如何利用 &#8220;IT军队 &#8220;，来对抗俄罗斯的虚假信息和网络攻击。](/content/gnews/22/README.md)
- ` 纽约香草山MOS02`
-
-### [3/1/2022国际财经快讯：美国在最新制裁行动中瞄准俄罗斯中央银行；俄罗斯最大银行欧洲分支因被制裁面临关闭](/content/gnews/23/README.md)
- ` 秘密翻译组金融团队`
-
-### [中共将在日本对七哥发起诉讼战及造谣抹黑和发起遣返](/content/gnews/24/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [郭文贵先生怕的不是共产党而是阿猫阿狗九指妖路大脑袋](/content/gnews/25/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [共产党如果想要杀郭文贵先生的话在美国白宫也能杀掉](/content/gnews/26/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [日本知名政治评论家：日本打疫苗可能死了几万人](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [NFSC法治基金联合国救援组织乌克兰国际人道大救援](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国情智部门促使中共国和俄罗斯连手](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国政府跨党派使团抵台 美台加深合作抗击中共](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【转】截至3.1 俄乌战事汇总（9）](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [加拿大萨省宣布结束所有防疫措施](/content/gnews/32/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [秘翻在线：卫星影像曝俄军车绵延64公里袭基輔 乌东亲俄叛军领袖：今日包围马里乌波尔](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [03/01/22 香港快讯 今日新增32597宗新冠病毒确诊　117人不治](/content/gnews/34/README.md)
- ` 英喜-粵語組`
-
-### [3/1/2022国际财经快讯：银行业游说团体认为战争持续俄主权债违约可能性大；乌克兰被入侵后的空域关闭使全球供应链陷入困境](/content/gnews/35/README.md)
- ` 秘密翻译组金融团队`
-
-### [乌克兰总统：俄罗斯的入侵已经出现种族灭绝的迹象](/content/gnews/36/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共国驻乌克兰大使的无耻谎言](/content/gnews/37/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【殓房爆满】新冠疫苗次生灾害正在起步](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [西媒头条 — 第182期](/content/gnews/39/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共撤侨行动无果 对待国民如同难民](/content/gnews/40/README.md)
- ` 秘密翻译组-原创组`
-
-### [澳大利亚承诺向乌克兰提供军事援助](/content/gnews/41/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（六十）](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵视角2.27：中共的五种死法](/content/gnews/42/README.md)
+### [新中国联邦将参与乌克兰救援 及注意事项2](/content/gnews/10/README.md)
+ ` 焦點20分`
+
+### [马斯克：俄罗斯入侵并扰乱互联网 星链在乌克兰使用活跃](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [囯际足联提议対俄罗斯进行处罚](/content/gnews/12/README.md)
+ ` 纽约香草山MOS03`
+
+### [纽约市将取消对室内商业餐饮和活动的强制疫苗接种规定](/content/gnews/13/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|俄对乌部署大规模杀伤性武器引民愤](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [NFSC新闻、G|TV新闻访谈简报|2022年3月1日早](/content/gnews/15/README.md)
+ ` 纽约香草山MOS01`
+
+### [西方不得不承认在武器帮助乌克兰方面 “太晚了”](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国敦促其公民考虑立即离开俄罗斯](/content/gnews/17/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [俄罗斯军队使用大规模杀伤性武器袭击主要城市的平民](/content/gnews/18/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2/27/2022 文贵直播: 习近平执意打台湾和开两会并不矛盾；乌克兰的媒体信息战、科技战和网络战的成功对中共触动很大，进而影响到中共对台作战的战略](/content/gnews/19/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中共对战乱中的同胞弃之不顾](/content/gnews/20/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [2/27/2022 文贵直播: 邪恶的中共丝毫不在乎乌克兰华人的死活；文贵是第一个呼吁将俄罗斯踢出SWIFT系统的人](/content/gnews/21/README.md)
+ ` 秘密翻译组-北美组`
+
+### [加拿大和欧洲国家对乌克兰难民提供人道援助](/content/gnews/22/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [UBS案将面对中共巨大政治压力及栽赃抹黑和全球消声](/content/gnews/23/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [【短访谈】乌克兰负责数位转型的副部长Alex Bornyakov，说明他的国家是如何利用 &#8220;IT军队 &#8220;，来对抗俄罗斯的虚假信息和网络攻击。](/content/gnews/24/README.md)
+ ` 纽约香草山MOS02`
+
+### [3/1/2022国际财经快讯：美国在最新制裁行动中瞄准俄罗斯中央银行；俄罗斯最大银行欧洲分支因被制裁面临关闭](/content/gnews/25/README.md)
+ ` 秘密翻译组金融团队`
+
+### [中共将在日本对七哥发起诉讼战及造谣抹黑和发起遣返](/content/gnews/26/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [郭文贵先生怕的不是共产党而是阿猫阿狗九指妖路大脑袋](/content/gnews/27/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [共产党如果想要杀郭文贵先生的话在美国白宫也能杀掉](/content/gnews/28/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [日本知名政治评论家：日本打疫苗可能死了几万人](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [NFSC法治基金联合国救援组织乌克兰国际人道大救援](/content/gnews/30/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国情智部门促使中共国和俄罗斯连手](/content/gnews/31/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国政府跨党派使团抵台 美台加深合作抗击中共](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【转】截至3.1 俄乌战事汇总（9）](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [加拿大萨省宣布结束所有防疫措施](/content/gnews/34/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [秘翻在线：卫星影像曝俄军车绵延64公里袭基輔 乌东亲俄叛军领袖：今日包围马里乌波尔](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [03/01/22 香港快讯 今日新增32597宗新冠病毒确诊　117人不治](/content/gnews/36/README.md)
+ ` 英喜-粵語組`
+
+### [3/1/2022国际财经快讯：银行业游说团体认为战争持续俄主权债违约可能性大；乌克兰被入侵后的空域关闭使全球供应链陷入困境](/content/gnews/37/README.md)
+ ` 秘密翻译组金融团队`
+
+### [乌克兰总统：俄罗斯的入侵已经出现种族灭绝的迹象](/content/gnews/38/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共国驻乌克兰大使的无耻谎言](/content/gnews/39/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【殓房爆满】新冠疫苗次生灾害正在起步](/content/gnews/40/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共撤侨行动无果 对待国民如同难民](/content/gnews/41/README.md)
  ` 秘密翻译组-原创组`
+
+### [澳大利亚承诺向乌克兰提供军事援助](/content/gnews/42/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [中日财经爆|丰田因供应商遭网络攻击全国停产 或与制裁俄罗斯有关](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

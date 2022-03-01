@@ -2,30 +2,43 @@
 ---
 
 
-## 西方不得不承认在武器帮助乌克兰方面 “太晚了”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2089646/)
+## 纽约市将取消对室内商业餐饮和活动的强制疫苗接种规定
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2089747/)
 
-#### 编译：Cran
+翻译：peacelv
 
-#### 责编：白夜 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16461556101.png)Image source: DW
-据美国3月1日CNBC 报道, 周一拍摄的卫星图像显示,一支庞大的俄罗斯军事车队在乌克兰首都基辅以北, 绵延约64公里长, 正驶向乌克兰首都基辅。由于乌克兰的局势快速发展, 现在的状况可能比周一图片中所看到的更严重。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1626-1.jpg)图片来源：thegatewaypundit.com
 
-五角大楼指出, 尽管乌克兰进行了顽强的抵抗, 克里姆林宫仍然希望其军队占领基辅。 一旦发动更猛烈的袭击, 乌克兰武装部队和平民抵抗力量将如何应对就更不确定了。
+纽约市市长埃里克**·**亚当斯将解除该市对室内商业、餐饮和活动的强制疫苗接种规定，如果**Covid-19**病例继续呈下降趋势。
 
-伦敦皇家联合军种研究所（Royal United Services Institute）陆战研究员杰克·沃特林（Jack Watling）周一对记者表示,  西方不得不承认, 它试图在武器供应等方面帮助乌克兰, 但是“太晚了”。 他描述了基辅及其剩余居民和抵抗战士的黯淡前景, 以及即将到来的俄罗斯军队可能对该市采取的战术。
+“纽约市的病例数字逐日下降，所以，只要Covid指标显示低水平的风险，不出意外这周，在星期一，３月７日我们将会取消Key2NYC规定。”亚当斯宣布。“这将给企业主时间去适应，且也允许我们保证我们是在为纽约人民做最好的公共卫生决定。” NBC新闻报道。
 
-沃特林说: “这个警告在几个月前就已经发出”。 过去几天里所发出的武器, 正在波兰集结，在它们被送往国防军手中之前, 必须保障不被俄罗斯的飞机击中, 所以需要时间。他指出, 如果这座城市被包围, 那么关键的公用设施会被占领, 所以俄罗斯人将会控制着水和电的供应. 然后他们会对抵抗集中的地区进行密集炮击。随后是装甲, 工程师和步兵的联合武器攻击。
+纽约市是美国第一个要求在室内接种疫苗的大城市，它将在未来几天取消对室内商业、餐饮和活动的授权。
 
-英国副总理多米尼克 · 拉伯(Dominic Raab) 星期二表示, 英国将尽一切可能拖延基辅被攻破. 英国广播公司 (BBC) 周二上午报道称, 车队距离基辅17英里，但很难估计军事纵队到达该市的速度。
+埃里克-亚当斯星期天宣布他的管理团队将在３月７日结束疫苗强制接种规定只要Covid-19病例数量持续下降。他加入了最近几周在西雅图和波士顿等城市做出类似决定的公共官员行列。亚当斯说，只要没有出现意外的高峰，公立学校的室内口罩强制规定也将在同一天取消。
 
-俄罗斯和乌克兰代表周一在邻国白俄罗斯, 举行了一轮没有取得任何突破结果的和谈。外交部长德米特罗·库列巴 (Dmytro Kuleba) 周一对NBC记者说, 作为一名外交官, 他希望谈判成功, 但与此同时, 他希望对俄罗斯实施更多制裁, 给乌克兰带来更多武器, 并在国际舞台上尽可能孤立俄罗斯。
+纽约针对工人的疫苗强制接种规定仍然有效。
 
-库列巴说:”我们不仅代表我们自己, 而且代表我们都知道的世界秩序。” “这是一场反对俄罗斯侵略的, 真正的人民战争”。 乌克兰报告称, 数百名公民其中包括一些儿童, 在俄罗斯的袭击中丧生。
+ESPN:由于纽约市市长埃里克·亚当斯的宣布，一个城市官员告诉WABC-TV 篮球明星凯里·欧文仍将不能在3月7日在巴克莱中心比赛，因为城市针对工人的疫苗强制接种规定仍然有效。
 
-尽管许多人留下来保卫自己的家园和国家, 这次入侵导致大量乌克兰人试图逃离乌克兰, 前往东欧寻求安全。联合国难民署(UNHCR) 发言人周二向NBC新闻证实，在过去六天里, 超过66万人从乌克兰逃到邻国。
+滑稽荒诞。
 
-[Source](https://www.cnbc.com/2022/03/01/huge-convoy-of-russian-vehicles-approaching-kyiv.html)
+
+
+> Despite NYC Mayor Eric Adams' announcement, a city official told WABC-TV that Kyrie Irving would still not be able to play at the Barclays Center on March 7 as the city's vaccine mandate for workers remains in effect. [pic.twitter.com/te7ILzsH8y](https://t.co/te7ILzsH8y)
+> — ESPN (@espn) [February 27, 2022](https://twitter.com/espn/status/1498067769908154370?ref_src=twsrc%5Etfw)
+
+
+
+**参考资料：**[thegatewaypundit][New York City to Lift Vaccine Mandate For Indoor Businesses, Dining and Events](https://www.thegatewaypundit.com/2022/02/new-york-city-lift-vaccine-mandate-indoor-businesses-dining-events/)
+
+* * *
+
+*审核：文乐*
+*校对：阿伯塔*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-5.jpeg)
 
  
 

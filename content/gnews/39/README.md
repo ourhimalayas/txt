@@ -2,18 +2,12 @@
 ---
 
 
-## 西媒头条 — 第182期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2087840/)
+## 中共国驻乌克兰大使的无耻谎言
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2088104/)
 
-**制作：蚂蚁兄弟**
+02/27/2022 中共政府将同胞置于炮火纷飞的乌克兰不闻不问，而中共驻乌克兰大使却仍在大放阙词，声称 “中共国是世界上最安全的地方，祖国就在你们身后… 但是现在条件不具备，不能送你们回国”。
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220301.001.jpeg)
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜.jpeg)
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
