@@ -2,37 +2,18 @@
 ---
 
 
-## 伊朗拒绝接受核谈判设定最后期限
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2084384/)
+## 台湾|拜登公开派遣前国防官员访台 称表达对台湾主权的支持
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2084481/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**撰文/ 港台前線｜發佈日期/ 01/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Music-Clip-6.png)更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pl6w8he0b9))
+路透社28日报导，美国拜登政府宣布将派遣代表团到台湾，曾任美国参谋首长联席会议主席穆伦（Mike Mullen）率团，成员包括前任美国国防与国安官员，目的为表达对台湾拥有主权的支持。
 
-#### 整理：围剿维尼熊
-编辑：花岗岩
+此次代表团预计本日下午抵达台湾，并于明日晚间离开，期间将与台湾总统、国防部长等高级官员会面。 据了解，此次美国代表团抵台是为表达对台湾及民主承诺的重要信号。 拜登政府表示，对台的承诺坚若磐石，美国将保持抵制任何诉诸武力或其他形式的胁迫，因为这会危急台湾人民的安全或经济制度。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/图片5-11.png)
+美国前任国务卿则预计在本次代表团离开后，3月2日紧接着访台。
 
-
-根据路透社2月27日讯，据伊朗国家电视台报导，伊朗周日表示不会接受西方为恢复2015年核协议而设定的任何最后期限。
-
-伊朗和美国为恢复2015年核协议而进行的间接会谈的症结之一，似乎是国际原子能机构（IAEA）在伊朗原有但未申报的地点发现铀痕迹而提出的疑问。
-
-伊朗外交部发言人赛义德·哈提布扎德（Saeed Khatibzadeh）称，IAEA的问题或出于政治动机的说法，这些说法是毫无根据的。
-
-针对媒体报导的美国已经为维也纳核谈判设定最后期限，哈提布扎德说：“伊朗不接受任何最后期限。”
-
-伊朗新闻机构周五援引伊朗原子能组织主席穆罕默德·埃斯拉米（Mohammad Eslami）的话说，即使解除对伊朗的制裁，并且恢复2015年核协议，伊朗仍将继续提高浓缩铀丰度至20%的相关工作。
-
-参考链接：[伊朗拒绝接受核谈判设定最后期限 希望IAEA放弃“出于政治动机”的说法](https://cn.reuters.com/article/iran-nuclear-talks-0227-sun-idCNKBS2KX05O?il=0)
-
-*发布：wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+來源｜[ETtoday](https://www.ettoday.net/news/20220228/2198279.htm?from=fb_et_news&amp;fbclid=IwAR0mq56Ptanh-6uFoCuRMAdJCG5h9aSFzwV_eNqAq8EDPDiNQ2BsJ9_8y6w)
 
  
 
