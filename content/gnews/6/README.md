@@ -2,42 +2,31 @@
 ---
 
 
-## UBS需要解释为啥二十秒把七哥和家族股票卖给两个基金
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2088631/)
+## 世界第二大石油公司宣布全面切断与俄业务
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2088756/)
 
-G-TV视频链接：https://gtv.org/video/id=62164c7b1408ee3a03a3c8ef
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-**郭文贵先生：**这个官司你知道UBS会让共产党怎么解释吗？只要咱开始上庭询问，它就必须解释你为啥把郭文贵的股票和他家族股票卖给了这两个基金？二十秒你就找到买家了，几亿美元，你咋认识他的？你咋通的电话呀？是吧？二十秒，你想想，就是咱们大家都坚持的二十秒，二十秒内找到了几亿几十亿的买家，你跟他咋联络方式啊？你们怎么谈的价格啊？是吧？
+2月28日，世界第二大石油公司“荷兰皇家壳牌”（Shell）宣布，鉴于俄罗斯入侵乌克兰，壳牌将全面切断与俄罗斯的业务往来，其中包含一家规模巨大的天然气液化工厂。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-14.jpg)（图片来自网络）
+据《德国之声》报道，壳牌在声明中表示，将退出其与“俄罗斯天然气工业公司”（Gazprom）合资的液化天然气工厂“萨哈林2号”（Sakhalin 2 LNG）。
 
-不但如此，最重要的事情，你买完的股票去哪儿了？然后这些股东是谁呀？——共产党!  那你怎么跟共产党联系的？最后这些人得出庭。这些人出庭以后，他必须解释，你的股票现在去哪了？你跟共产党这些机关怎么联系的？叫Downstate（注：同音字），Downstate 是福建政府的公司，贾庆林是中共中央委员，李伯潭是(其)女婿是茅台酒厂，所有的是叫福建省国资委。你们啥关系啊？Astick（注：同音字）Downstate、Astick ，Astick是怎么签的合同啊？为什么在深圳签合同？
+位于库页岛的萨哈林2号，规模巨大。其每年生产约1,150万吨的液化天然气，出口到包括中共国、日本在内的主要市场。
 
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
+据了解，壳牌持有该厂27.5%的股份，俄罗斯Gazprom持股50%。截至2021年底，壳牌对俄罗斯的投资，非流动资产已达30亿美元。
 
-编辑整理：Jacques；
+壳牌执行长范柏登（Ben van Beurden）在声明中表示，“对于乌克兰的生命损失深感震惊遗憾”，并称俄罗斯的“军事进犯”是“威胁欧洲安全、无意义的举动。”
 
-字幕档制作：兵嫂；
+此外，壳牌还将退出与Gazprom的另一家合资企业“Salym石油开发公司”（Salym Petroleum Development），并计画撤出对“北溪2号”（Nord Stream 2）天然气管道的融资。
 
-视频制作及上传：Cindy；
+另据悉，在壳牌抵制俄罗斯之前，作为俄罗斯最大海外投资者的“英国石油”公司（BP）已于27日宣布，将脱手“俄罗斯国营石油公司 ”（Rosneft）近20%的持股以制裁俄罗斯。
 
-G-News发布：海贼王M.D.LUFFY；
+参考链接：
+1.[https://www.dw.com/zh/%E7%9F%B3%E6%B2%B9%E5%B7%A8%E9%A0%AD%E8%B7%9F%E9%80%B2%E6%8A%B5%E5%88%B6-%E7%BE%8E%E5%8A%A0%E5%88%87%E6%96%B7%E8%88%87%E4%BF%84%E5%A4%AE%E8%A1%8C%E5%BE%80%E4%BE%86/a-60954972](https://www.dw.com/zh/%E7%9F%B3%E6%B2%B9%E5%B7%A8%E9%A0%AD%E8%B7%9F%E9%80%B2%E6%8A%B5%E5%88%B6-%E7%BE%8E%E5%8A%A0%E5%88%87%E6%96%B7%E8%88%87%E4%BF%84%E5%A4%AE%E8%A1%8C%E5%BE%80%E4%BE%86/a-60954972)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+素材采编：幽蘭自得
+编辑：老孙
+发布：爱放飞
 
  
 

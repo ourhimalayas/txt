@@ -2,29 +2,18 @@
 ---
 
 
-## 日本捐款20亿日元用于人道主义援助
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2088613/)
+## 秘翻在线：约翰逊：英国可以接纳20万乌克兰难民
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2088749/)
 
-撰稿：东京樱花团 /文小白
+撰稿：文贺JP
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-10.jpg)图片来源：本文链接
+鲍里斯.约翰逊说：英国可以接纳20万乌克兰难民。关于西侧扩大行动的失败原因，乌克兰记者指责鲍里斯，乌克兰民众要求北约设立禁飞区，以保护妇女儿童。但鲍里斯将其排除在外，延误了救援。
 
-据NHK3月1日消息，乌克兰驻日本大使科尔松斯基与日本立宪民主党代表泉会见，感谢日本捐款约20亿日元，将用于人道主义援助和重建项目。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-2.png)
-照片来源：消息来源链接
+信息来源：
 
-科尔松斯基说，有6万多人向大使馆上个月25日开设的日本援助窗口的银行账户捐赠了共计约20亿日元，并对日本人民的支持表示感谢。
+[https://www.theguardian.com/politics/live/2022/mar/01/uk-politics-live-dominic-raab-russia-war-crimes-warning-ukraine-invasion?page=with:block-621dfbbd8f0856e8c524e489#block-621dfbbd8f0856e8c524e489](https://www.theguardian.com/politics/live/2022/mar/01/uk-politics-live-dominic-raab-russia-war-crimes-warning-ukraine-invasion?page=with:block-621dfbbd8f0856e8c524e489#block-621dfbbd8f0856e8c524e489)
 
-他补充说：”学校、医院和政府机构被毁，需要大量资金进行重建。所有捐款都将用于人道主义援助和重建项目”。
-
-科尔松斯基大使请泉代表转告日本政府，日本将在重建项目中发挥主导作用，并希望日本政府做好接收希望撤离乌克兰的人员。
-
-会后，泉告诉记者：”大使用了’生命签证’一词”。我们将简化赴日手续，加强撤离人员的接待机制。
-
-消息来源：[ウクライナ駐日大使 日本からの寄付約20億円 人道支援などに](https://www3.nhk.or.jp/news/html/20220301/k10013508201000.html?utm_int=news-international_contents_list-items_004)
-
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
-
+责编：待命（文晓）
 
  
 

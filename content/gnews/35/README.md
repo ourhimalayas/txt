@@ -2,24 +2,12 @@
 ---
 
 
-## 纽约或将纽约或将停止疫苗强制接种政策疫苗强制接种政策
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2088023/)
+## 中共国驻乌克兰大使的无耻谎言
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2088104/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+02/27/2022 中共政府将同胞置于炮火纷飞的乌克兰不闻不问，而中共驻乌克兰大使却仍在大放阙词，声称 “中共国是世界上最安全的地方，祖国就在你们身后… 但是现在条件不具备，不能送你们回国”。
 
-采编撰稿：   Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-35.png)图片来源：www.nbcnewyork.com
-据美国《NBC》2月27日报道，纽约市长亚当斯当天宣布，不久将取消配戴口罩和疫苗护照等现行防疫措施。
-
-报道称，尽管目前进出纽约市大多数公共场所都必须出示疫苗护照，但从3月7日开始，学校将不再要求其学生和工作人员在室内配戴口罩。
-
-对此，纽约市政府表示，如果疫情稳定，也将逐步取消疫苗护照政策。但具体执行时间未定。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源：[https://www.nbcnewyork.com/news/coronavirus/once-the-epicenter-new-york-city-plans-to-drop-vaccine-mandate-and-masks-in-schools/3574239/](https://www.nbcnewyork.com/news/coronavirus/once-the-epicenter-new-york-city-plans-to-drop-vaccine-mandate-and-masks-in-schools/3574239/)
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

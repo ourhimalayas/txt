@@ -2,37 +2,46 @@
 ---
 
 
-## 有声|普京企图利用核讹诈对抗美欧经济制裁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2088363/)
+## H币打破共产党的围堵让老百姓可以有第二个渠道化钱
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2088430/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-2月27日，外媒报道，普京已下令俄罗斯核威慑力量进入高度戒备状态。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-10.jpeg)
-据报道，普京在与高级官员举行的会议上说，北约主要大国发表了 “侵略性声明”，同时西方国家联合对俄罗斯实施了严厉的金融制裁。普京已命令俄罗斯国防部长和军方总参谋长，将核威慑力量置于 “特别战斗值班制度”中。普京以此暗示，会以核威胁来应对西方国家的制裁。
+G-TV视频链接：https://gtv.org/video/id=62164c671408ee3a03a3c8ec
 
-郭文贵先生在27日大直播中特别强调，俄罗斯完全低估了乌克兰的实力，用最传统的战争方式进攻乌克兰，企图用最短的时间占领基辅，却遭到乌克兰人的顽强抵抗，使俄军损失惨重，也令世界跌破眼镜。俄方接下来会不惜一切代价，甚至可能动用核武器。如果不能停战，乌克兰的局势将会非常惨烈。
+**郭文贵先生：**那么今天H币最可怕在哪里？打破了他一个，糊着很久的一个，老百姓可以有第二个渠道让自己可以花钱，可以买尿不湿，也可以去到夜总会，听听我们的裕达的妈咪给你讲一讲“爱情是可以相信的，要找到伙伴的”，给你讲一讲。也可以买到很好吃的地瓜土豆，也可以买猪头肉。就这个币管用，除了人民币还有其他币。
 
+那么这个时候，更夸张的事情，原来中国人以为这个币只能在自己国家花，你从来没相信过，也没有幻想过，你的人民币到国外花去。到国外花人民币是共产党人家的专利，哪是你们奴才的专利。中国人已经习惯了，如果中国人拿着人民币到国外花，感觉自己不可思议：“本来我的钱就不应该在国外花”。就是中国人，被人家说成“你是猪，你是猪，你是猪”，我就是猪了。当发现自己不用像猪一样的吃猪食的时候，不习惯
 
+—— “我是猪啊，我怎么能不和猪一样吃猪食呢？”
 
-文字版原文：[普京企图利用核讹诈对抗美欧经济制裁](https://gnews.org/zh-hans/2082305/)
+那么这个喜币告诉你，不，你不是猪，你可以到全世界上，你是人，你和人家一样。你可以拥有自己的财富，自己的人格，自己的独立的财富。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+编辑整理：Jacques；
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+字幕档制作：兵嫂；
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+视频制作及上传：Cindy；
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+G-News发布：海贼王M.D.LUFFY；
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

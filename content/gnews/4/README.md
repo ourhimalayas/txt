@@ -2,24 +2,58 @@
 ---
 
 
-## 国际影视、体育界加入制裁俄罗斯行列
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2088666/)
+## 辉瑞科学家承认，天然抗体“可能比疫苗接种更好
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2088776/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-4.jpg)
-[图片来源](https://www.google.com.hk/search?q=Disney+Sanctions+Russia&amp;newwindow=1&amp;sxsrf=APq-WBuFRtTta3XdCL-7nItekZkbHc65pQ:1646145755876&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwiR6pvokqX2AhVsHKYKHRJ0ADkQ_AUoAnoECAEQBA&amp;biw=1707&amp;bih=770&amp;dpr=1.13#imgrc=sUSfUlalok3b_M)
+撰稿：东京樱花团/Calvin
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-2.png)
+[图片来源](https://dreddymd.com/2021/10/08/pfizer-scientist-admits-that-natural-antibodies-are-probably-better-than-vaccination/)
 
-中华网报3月1道，据美国消费者新闻与商业频道（CNBC）报道，在俄罗斯对乌克兰采取特别军事行动后，美国华特迪士尼公司（简称迪士尼公司）宣布，将停止在俄罗斯的所有影院上映迪士尼电影。
+Veritas项目是其“新冠病毒疫苗暴露”系列的最新一期，发布了一个新的10分钟视频，描绘了辉瑞科学家讲述其公司武汉冠状病毒（Covid-19）“疫苗”令人不安的真相。
 
-迪士尼公司在2月28日发布的一份声明表示，由于俄罗斯“无端‘入侵’乌克兰和（造成的）悲惨的人道主义危机”，迪士尼将暂停在俄罗斯上映电影。
+Nick Karl向采访者解释说，在预防中共病毒感染方面，人们的天然抗体“可能比辉瑞的mRNA注射更好”
 
-就在迪士尼决定暂停俄罗斯上映电影之际，美国娱乐公司在参与抵制行动。流媒体巨头美国奈飞公司（netflix）表示，在俄乌局势不断升级的情况下，其平台将下架俄罗斯新闻频道。奈飞公司发言人2月28日告诉CNBC：“鉴于目前的情况，我们没有计划将这些频道添加到我们的服务中。”
+Karl承认：“当某人天生免疫时——比如他们感染了新冠病毒——他们可能有更多的病毒抗体。”
 
-此外，国际体育组织也出现了抵制俄罗斯的行动。国际足球联合会（FIFA）与欧洲足球联合会联盟一起，宣布将禁止俄罗斯球队参加包括2022年卡塔尔世界杯在内的国际赛事。
+“当你真正感染病毒时，你将开始产生针对多种病毒的抗体……因此，你的抗体在那时可能比[新冠病毒]疫苗接种更好。”
 
-俄罗斯入侵乌克兰离心离德，导致亲俄的原苏联波罗的海三国，和世界无争的中立国瑞士瑞典也加入了制裁俄罗斯的行列。
+Karl接着解释说，“疫苗护照”的全部意义不是保护人们的安全，而是让它“对未接种疫苗的人如此不方便”，以至于他们只是服从。
 
-信息来源：[迪士尼等多家公司暂停新片在俄上映 新片已被叫停\_中华网](https://3g.china.com/act/ent/11015422/20220301/41499474.html)
+事实证明，合规性是中共病毒疫苗注射计划的全部意义。没有证据表明这些疫苗有助于对任何疾病产生持久的免疫力。
+
+辉瑞高级副科学家告诉Veritas记者不要接种疫苗
+
+另一位名叫Chris Croce的辉瑞高级助理科学家附和了Karl的观点，他解释说，与疫苗相比，自然获得对流通的免疫力的人受到“可能更多”的保护。
+
+“所以，我（有抗体）受到很好的保护？”Veritas记者问Croce。
+
+“是的”，Croce回答。
+
+“就像疫苗一样吗？”Veritas记者回应道。
+
+“可能更多”，Croce回答说，当被问及“由于有自然反应，你最有可能受到更长时间的保护。”
+
+几乎令人难以置信的是，Croce继续告诉Veritas记者“等待”接种疫苗，直到自然免疫力下降——即使如此的话。一个人在康复后可能会永久免疫，不需要任何进一步的干预。
+
+另一位辉瑞科学家Rahul Khandke向Veritas记者进一步透露，公司高管向低级别员工施压，要求他们向公众隐瞒定罪数据和其他“负面信息”。
+
+“我们被培养并被教导说，‘疫苗比实际感染新冠病毒更安全’。”老实说，我们不得不就此举办这么多研讨会。你不知道。Khandke说，我们必须在那里坐几个小时，听——就像“你不能在公共场合谈论这件事”，他同意天然抗体比疫苗接种更可取的观点。
+
+他补充说：“如果你积累了[新冠病毒]抗体，你应该能够证明你积累了这些抗体。”
+
+据Croce称，目前辉瑞正在进行测试，看看其mRNA中共病毒疫苗是否导致年轻人患心肌炎。
+
+Croce进一步说：“所以，是的，我们正在做，我们刚刚发送了大约3000名患者的样本，以测试肌钙蛋白水平升高（检测心脏病发作），看看它是否基于疫苗。”
+
+由于这三个人的身份现在都公开了，他们坦率地录取会发生什么还有待观察。我们的猜测是，辉瑞的高层对这些公开披露不满意。
+
+Zero Hedge的一位评论员写道：“整个骗局都被揭露了。”“这些罪犯，包括福奇，需要被勒死。”
+
+另一个回答说，每个人都应该祈祷Veritas项目的James O’Keefe因勇敢地揭露这一切而受到保护。
+
+信息来源：
+
+[Pfizer scientist admits that natural antibodies are “probably better than vaccination”](https://dreddymd.com/2021/10/08/pfizer-scientist-admits-that-natural-antibodies-are-probably-better-than-vaccination/)
 
 编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01

@@ -2,25 +2,39 @@
 ---
 
 
-## 乌克兰驻联合国大使骂普京若想死只需像当年希特勒那样
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2088551/)
+## 有声|美欧同意将部分俄罗斯银行从SWIFT系统中剔除
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2088713/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-5.png)
-（图片源自本文链接）
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月26日，在乌克兰及国际多种力量的努力争取之后，美国联合加拿大、欧盟和英国等达成协意，对俄罗斯金融部门实施严厉的制裁，包括阻止其进入全球SWIFT金融体系，并首次对俄罗斯中央银行进行限制，以惩罚其对乌克兰的入侵。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture00-2.jpg)
+2 月 26 日，欧洲已开始为俄罗斯与 SWIFT 支付系统断开连接进行技术准备。SWIFT 的中断被称为“经济的核武器”。
 
-3月1日消息：乌克兰驻联合国大使谢尔盖-基斯利察在2月28日的联合国大会特别紧急会议上强烈批评俄罗斯总统弗拉基米尔-普京，把他比作”1945年5月在柏林的一个地堡里自杀的人”希特勒。
+这些制裁将使俄罗斯的银行不再能为贸易和金融活动进行支付，有效地阻止该国出口石油、煤炭和天然气等商品。也将使俄罗斯无法进口关键技术，如半导体和本国工业的机械。
 
-乌克兰驻联合国大使基斯利察先生说，这场战争不是爆发的，而是由现在坐在地堡里的人选择的。我们所有人都知道1945年5月坐在柏林的一个地堡里那个人的结局是什么。寻求扩大其地缘政治影响力的军事化大国正在发动大规模的军事进攻，在入侵较小的邻国。当俄罗斯军队从他们自己的国家、白俄罗斯和乌克兰的被占领土顿巴斯和克里米亚越过乌克兰边境时，破坏性的炮弹被投向乌克兰各地的平民头上。它看起来不是很像那个时候吗？是的，确实如此。 这不是与第二次世界大战的开始非常相似吗？
+在这些措施中，对俄罗斯央行的限制针对的是克里姆林宫掌握的6000多亿美元的储备，以有效限制俄罗斯在西方制裁收紧的情况下支持卢布的能力。
 
-普京先生已将核威慑力量置于高度警戒状态。真是疯了！如果你想自杀，你不需要使用核武器，你只需要像1945年5月那个人在柏林的地堡里做的那样。
 
-信息来源：[「自殺したいなら地下壕で」　ウクライナ国連大使、プーチン氏をヒトラーにたとえる（ロイター） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/57e047108bfad3f316ad780731c4eaa1113672d6)
 
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+文字版原文：[美欧同意将部分俄罗斯银行从SWIFT系统中剔除](https://gnews.org/zh-hans/2079146/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

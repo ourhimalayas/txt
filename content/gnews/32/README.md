@@ -2,25 +2,28 @@
 ---
 
 
-## 莫德纳承认病毒来源于实验室泄漏
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2088155/)
+## 不战，把中南坑填上，人类迎来新的曙光
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2088185/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+撰稿：首尔天池农场—追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1.png)
+2月27日，郭文贵先生在大直播上爆料，他在回答什么是美国人的最大利益时指出，不是对美国人，是对中国人和全世界人民最有利益事情是：不战，把（中南）坑填上，就会迎来人类新的曙光。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-36.png)
+郭先生具体解释，只要把中南坑的七个常委灭了、或者让内部人把中南坑灭了，中共就不用发动对台湾的战争，台湾、美国也不用死人。 然后用中南坑的七个常委的非法所得把人类过去100年来欠下的债填平，世界经济就不会崩塌。 最后，台湾、香港、新疆、西藏人得到解放，中国人民全面自由解放，美国可以维持以美国为中心的世界秩序。
 
-采编: UCool(优酷)     编译撰稿：苦尽甜来 (文來）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-38.png)图片来源：https://www.infowars.com/
-据美国媒体【信息战】2月27日报道，面对福克斯节目主持人玛丽亚提问：为何疫苗生产商[莫德纳]在疫情爆发的三年前就获得了“新冠病毒”中的部分DNA基因序列时，[莫德纳]首席执行官班塞尔无言以对。
+新闻链接：[2022年2月27日 文贵大直播](https://gettr.com/streaming/px6plf36f1)
 
-报道指出，班塞尔为了掩盖真相，不得不间接承认该病毒是武汉实验室人工制造并可能被意外泄漏。据著名医学刊物【病毒学前沿】最近发表的一项研究报告显示，在“新冠病毒”基因中包含的遗传密码与[莫德纳]在2016年所获得专利的基因序列部分相同。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-5.jpg)
 
-该研究还强调，[莫德纳]的该专利基因序列在天然冠状病毒中的发生概率几乎是零，这意味着该基因序列不可能通过自然突变出现在“新冠病毒”中。
+校正/发稿：浪迹天涯
 
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源：[https://www.nbcnewyork.com/news/coronavirus/once-the-epicenter-new-york-city-plans-to-drop-vaccine-mandate-and-masks-in-schools/3574239/](https://www.nbcnewyork.com/news/coronavirus/once-the-epicenter-new-york-city-plans-to-drop-vaccine-mandate-and-masks-in-schools/3574239/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
