@@ -2,36 +2,25 @@
 ---
 
 
-## 卢布暴跌，俄罗斯央行大幅上调基准利率
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2086760/)
+## 有声｜乌驻美大使指控俄军投放禁用武器热压弹
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2087466/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+By:**秘翻新闻**
 
-#### 整理：围剿维尼熊
-编辑：文泓
+**2022-03-01**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-1.png)图片来源 网络
+[综合外媒3月1日消息，乌克兰驻美大使马卡罗法于当地时间周一指控俄罗斯称，俄军对乌国使用了《日内瓦公约》明定禁用的热压弹，试图让乌克兰承受巨大毁灭。](https://www.reuters.com/world/europe/ukraines-ambassador-us-says-russia-used-vacuum-bomb-monday-2022-02-28/https://www.abc.net.au/news/2022-03-01/ukraine-ambassador-to-us-says-russia-used-a-vacuum-bomb/100870638)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片9.png)
+[此外，国际特赦组织和人权组织都表示，俄罗斯军队似乎使用了被广泛禁止的集束弹药，并且袭击了乌克兰东北部一所供平民避难的学校。](https://www.reuters.com/world/europe/ukraines-ambassador-us-says-russia-used-vacuum-bomb-monday-2022-02-28/https://www.abc.net.au/news/2022-03-01/ukraine-ambassador-to-us-says-russia-used-a-vacuum-bomb/100870638)
 
+[据悉，热压弹在爆炸时会释放大量热能，同时消耗该区域氧气，主要的毁灭效果是由超音速震波与超高温所造成，所有活生生的物体都会化为乌有，被称为威力最强大的非核武器之一。俄国于2007年成功测试，称其为「炸弹之父」，也有报道指出热压弹或为人类拥有的最厉害最残忍的武器之一。](https://www.reuters.com/world/europe/ukraines-ambassador-us-says-russia-used-vacuum-bomb-monday-2022-02-28/https://www.abc.net.au/news/2022-03-01/ukraine-ambassador-to-us-says-russia-used-a-vacuum-bomb/100870638)
 
-当地时间2月28日，据德国之声报道，为应对卢布贬值，俄罗斯央行将基准利率大幅上调至20%，同时出台一系列措施，防止卢布继续暴跌及国内爆发高通胀。这一前所未有的举措可能给俄罗斯金融带来破坏性后果。
+秘翻新闻 明澈 编辑报道
 
-除了上调基准利率外，俄罗斯央行还下令采取一系列措施帮助银行应对危机，包括向金融系统注入更多资金并放宽银行业务限制。俄罗斯央行暂时禁止非俄罗斯居民出售政府债券，防止外国投资者急于套现使卢布承受更大压力。
+发布 : 恩典
 
-位于奥地利的俄罗斯联邦储蓄银行欧洲公司（Sberbank Europe AG）及其在克罗地亚和斯洛文尼亚的子公司声誉受到地缘政治影响，出现大量存款外流。
-
-欧洲央行（ECB）周一表示，在西方祭出制裁后，俄罗斯国有银行俄罗斯联邦储蓄银行（Sberbank）的欧洲分支机构正面临破产。
-
-参考链接：[卢布暴跌 俄罗斯上调基准利率至20%](https://www.dw.com/zh/%E5%8D%A2%E5%B8%83%E6%9A%B4%E8%B7%8C-%E4%BF%84%E7%BD%97%E6%96%AF%E4%B8%8A%E8%B0%83%E5%9F%BA%E5%87%86%E5%88%A9%E7%8E%87%E8%87%B320/a-60944143)
-
-发布：*wenly*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

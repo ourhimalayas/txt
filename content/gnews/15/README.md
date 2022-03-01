@@ -2,50 +2,47 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“正道主义”（七）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2087938/)
+## 世界各地民众游行声援乌克兰
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2088025/)
 
-整理：BENJ1
-编辑：Kelly
-![文章配图](https://assets.gnews.org/wp-content/uploads/2022/02/819f1e9e6501f175-1.png)
-郭文贵先生**2020**年**4**月**19**日直播
+纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1.png)
+莫斯科的入侵引发全球哗然，西方国家纷纷祭出制裁行动，部分措施直接针对俄国总统普京本人。 如今全球各地城市民众纷纷进行示威活动谴责俄罗斯对其邻国的攻击行动。
+![Demonstrators take part in an anti-war protest.](https://www.aljazeera.com/wp-content/uploads/2022/02/2022-02-27T143656Z_187409282_RC2ESS9D6ISH_RTRMADP_3_UKRAINE-CRISIS-GERMANY-PROTEST.jpg?resize=770%2C513)图片来自：https://www.aljazeera.com/news
+瑞士各地约有数千人上街游行，其中在联合国日内瓦总部前就有约1000人聚集，要求政府施加更严厉的制裁。
 
-前天，有一个国内的战友说：“文贵，马上到419了，现在看来我们这个组织是真要被灭了，七十年了，我支持爆料革命，我也希望被灭；七十年了，一想到被灭我还是很难受的。”说得很实在，是我们战友。我说：“在历史的长河中，必将出现一个伟大的、新的组织，就是我们爆料革命追求的正道主义。”
+在法国，3000多人聚集在欧洲理事会人权组织所在地史特拉斯堡，拿着怒斥普京是凶手的字板，要求结束战争。法国其他城市如巴黎、蒙贝列与马赛，都有群众示威。
 
-国内现在整个是乌烟瘴气，人与人之间、人与大自然关系、人心、污染、上下代的关系、道德、人和社会关系、人在社会上生存基本原则和畜生之间的分别、法律、人和上天的关系、信仰丧失殆尽！
+在俄国邻国芬兰，数以千计人聚集首都赫尔辛基，怒斥“俄罗斯滚，普京下台！”奥地利的维也纳也有约3000人聚集，拿着写有“停止战争”等讯息的字板示威。 意大利罗马则有1000多人响应贸易工会与非政府组织呼吁，走上市中心街头抗议俄罗斯入侵乌克兰。
 
-我说共产党在历史的长河中就是一个臭屁，这个臭屁不会有人记住，它就是个臭屁。历史只会记住一个在这个时代诞生的伟大的、人类上的正道主义，这个是谁也挡不住。
+西班牙巴塞罗那有1000人左右上街示威，英国有数以百计民众前往俄国驻伦敦大使馆抗议，澳洲悉尼数百人冒着大雨游行，日本东京则有示威者要求将俄国逐出联合国安理会。
 
-从现在往回数百年、千年，只有一个爆料革命、正道主义说出了中国人心中所有的怀疑和问题，并给予了答案，这就叫爆料革命。
+据郭文贵先生爆料，俄乌危机期间，乌克兰通过社交媒体向世界展示了乌克兰的团结、顽强和机智，博得了全世界的同情和支持，也让普京闪电战的幻想破灭。
 
-郭文贵先生**2020**年**4**月**22**日直播
+27日俄罗斯向基輔表示，愿同乌克兰在白俄罗斯进行谈判，同一天乌克兰总统办公室表示愿与俄罗斯谈判。
 
-共产党的倒塌就是“嘣”，甚至连声音都没有，“噼——”，它就成为了历史中的一个屁，诞生的就是我们正道主义，一定是这结局！共产党的倒塌绝对不是像大家想象的稀稀拉拉的倒，绝对不是。
+链接:
 
-郭文贵先生**2020**年**4**月**23**日直播
+[Huge crowds in Europe, US march in solidarity with Ukraine](https://www.aljazeera.com/news/2022/2/27/thousands-attend-ukraine-solidarity-march-in-berlin)
 
-我这些观念跟所有欧洲、美国的官员说，他们都极为认可，就是一人一票选出的政权和宪法与世界合作、与国际社会共同合作、相互监督下完成我们真真正正的正道主义。
+[‘Glory to Ukraine’: hundreds of thousands march against Russian invasion](https://www.france24.com/en/live-news/20220227-glory-to-ukraine-hundreds-of-thousands-march-against-russian-invasion)
 
-郭文贵先生**2020**年**5**月**8**日直播
+[‘Russia out, down with Putin!’: Worldwide protests held in solidarity with Ukraine](https://www.timesofisrael.com/russia-out-down-with-putin-worldwide-protests-in-solidarity-with-ukraine/)
 
-中国未来就是我一直说的正道主义，没有共产党的新中国，中国人第一个要有信仰。一个没有信仰的民族跟动物世界或者对面山林里的野生动物没有任何两样。
+[Large crowds gather in downtown Toronto for ‘mega march’ in solidarity with Ukraine](https://globalnews.ca/news/8649308/ukraine-solidarity-mega-march-toronto/)
 
-郭文贵先生**2020**年**6**月**6**日直播
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-5.jpg)
 
-**“**郭文贵，一定要基督立国。”我特别不爱听什么一定要基督立国，凭什么一定要基督立国啊？我们正道主义不能立国吗？当然能。正道主义包含了基督，我们要包容，凡是说什么一定要基督、一定要天主、一定要佛祖、一定要穆罕穆德的，你就LOW了，跟共产党一个样了。凭啥就你啊？凭啥就一定啊？你凭啥一定啊？动不动就一定一定，你这个脑子有问题啊！
+校正/发稿：浪迹天涯
 
-我们的正道主义就是万佛万神！包含一切，只要是对上天的尊敬，我们敬天敬地，要让天下都有信仰的自由，凭啥就你基督一家？你凭啥这样说话？你太共产党了。凡是说话一定的、一定一定的、必须的，都是脑子有问题的。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1.png)
 
-资料来源：郭先生GTV和盖特直播视频
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
