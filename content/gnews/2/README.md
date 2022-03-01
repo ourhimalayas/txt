@@ -2,43 +2,32 @@
 ---
 
 
-## 苹果停止在俄罗斯销售产品
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2090994/)
+## 国家疫苗通行证已悄然推出
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2091022/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+***评论：似乎还未见到疫苗强制接种结束的苗头。***
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1112.jpg)
+据《福布斯》作者：Suzanne Rowan Kelleher，2022年2月26日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/af6gy-tfegv.jpg)疫苗核查的国家标准已经在全国范围内悄然展开。图片来源：Pavlo Gonchar/SOPA Images和LightRocket通过Getty
+即使奥密克戎变体对世界的影响有所缓解，各地仍然要求旅行者出示疫苗接种证明。但是，越来越多的人认为，CDC的纸质疫苗接种卡是不合适的。
 
+虽然美国政府没有发布联邦数字疫苗通行证，但已经出现一个国家标准。迄今为止，有21个州、哥伦比亚特区和波多黎各提供SMART健康卡。这是一种可核查的数字疫苗接种证明，由疫苗接种凭证计划（VCI）开发，该计划是一个由公共和私人利益相关者组成的全球联盟，包括微软、Salesforce、甲骨文、梅奥诊所和其他健康和技术界的重量级人物。
 
-图片来源：路透社
+很快，至少还有四个州将推出SMART健康卡的使用。VCI的联合创始人、MITRE的首席数字健康医生布莱恩-安德森博士说：“我们已经看到，正式推出公共门户网站州的数量明显增多，个人可以通过带有二维码的SMART健康卡获得可核实的疫苗接种证书。”
 
-由于乌克兰的入侵，包括苹果、谷歌和哈雷戴维森在内的美国大品牌周二削减了销售，并与俄罗斯保持距离，加入了越来越多的公司名单，从船运到汽车制造商再到能源公司都在回避该国。
+在美国，SMART健康卡已经有了令人印象深刻的普及。超过2亿美国人现在可以下载、打印或以二维码的形式存储他们的疫苗接种记录。当二维码被调出时，只有个人的姓名、出生日期和疫苗接种信息可见。没有其他医疗信息或个人数据被共享。这个代码也是经过数字签名的，以确保该卡是由一个经过验证的地点签发的，并防止伪造。
 
-苹果公司 (AAPL.O) 表示，它已停止在俄罗斯销售 iPhone 和其他产品，哈雷戴维森公司也暂停了其自行车的业务和发货。
+文章来源：[https://www.forbes.com/sites/suzannerowankelleher/2022/02/24/national-vaccine-quietly-rolled-out/?sh=13e047676be6](https://www.forbes.com/sites/suzannerowankelleher/2022/02/24/national-vaccine-quietly-rolled-out/?sh=13e047676be6)
 
-世界上最大的航运公司MSC和马士基（MAERSKb.CO）周二暂停了往返俄罗斯的集装箱运输，加深了俄罗斯的孤立。
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 轰炸机
+评论：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-西方对俄罗斯实施了严格限制，将其经济与全球金融体系隔离开来，迫使企业停止销售、切断联系并倾销价值数百亿美元的投资。
-
-“我们对俄罗斯入侵乌克兰深表关切，并与所有因暴力事件而遭受痛苦的人站在一起，”苹果公司在一份声明中表示，宣布暂停在俄罗斯的销售，并采取其他措施，包括限制 Apple Pay 和放弃在俄罗斯境外下载 RT 新闻的能力。
-
-它补充说：“作为对乌克兰公民的安全和预防措施，我们在乌克兰的 Apple Maps 中禁用了交通和实时事件。”
-
-与此同时，Alphabet Inc (GOOGL.O) 的谷歌周二证实，它已将 RT 等俄罗斯国家资助的出版商从其新闻相关功能中删除。
-
-MSC 和马士基的举动意味着俄罗斯——世界第十一大经济体和六分之一的商品供应国——现在实际上被切断了全球大部分航运能力。
-
-为了阻止踩踏事件，莫斯科周二表示将暂时限制外国投资者出售俄罗斯资产，但能源公司 BP Plc 和 Royal Dutch Shell Plc 已决定放弃其俄罗斯业务，而主要银行、航空公司、汽车制造商等也已削减出货量并结束了伙伴关系。
-
-两名知情人士告诉路透社，奥地利的 Raiffeisen Bank International (RBIV.VI) (RBI) 正在考虑离开俄罗斯，此举将使其成为入侵以来第一家这样做的欧洲银行。
-
-矿业和大宗商品集团嘉能可 (GLEN.L) 表示，它正在审查在俄罗斯的所有业务活动，包括在 EN+ 和俄罗斯石油公司的股权。
-
-“企业界正在建造一座堡垒，将俄罗斯与国际社会隔离开来，”Hargreaves Lansdown 高级投资和市场分析师 Susannah Streeter 说。
-
-🔗 [苹果停止在俄罗斯销售产品](https://www.reuters.com/world/uk/western-companies-pullout-russia-expected-accelerate-2022-03-01/)
-
-编辑发表： Shuizhuyu
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
