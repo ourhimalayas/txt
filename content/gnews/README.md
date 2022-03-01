@@ -15,71 +15,71 @@
 
 ---
 
-### [2/27/2022 文贵直播: 习近平执意打台湾和开两会并不矛盾；乌克兰的媒体信息战、科技战和网络战的成功对中共触动很大，进而影响到中共对台作战的战略](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
+### [加拿大生活美谈 2022-02-24第四十四期](/content/gnews/1/README.md)
+ ` canadalifetalk`
 
-### [2/27/2022 文贵直播: 邪恶的中共丝毫不在乎乌克兰华人的死活；文贵是第一个呼吁将俄罗斯踢出SWIFT系统的人](/content/gnews/2/README.md)
- ` 秘密翻译组-北美组`
-
-### [美支付公司万事达、VISA禁止多家俄罗斯金融机构使用其支付网络](/content/gnews/3/README.md)
- ` 日本東京方舟農場`
-
-### [没有人愿意帮助新西兰警察局长把自由车队的汽车拖走](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|切断SWIFT支付将对中共造成致命打击](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [俄乌首轮谈判未果 普京提三诉求三承诺](/content/gnews/6/README.md)
+### [俄军大队正往基辅推进 乌克兰过百平民死亡](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纽约市计划放弃学校和企业的口罩和疫苗强制](/content/gnews/7/README.md)
+### [2/27/2022 文贵直播: 习近平执意打台湾和开两会并不矛盾；乌克兰的媒体信息战、科技战和网络战的成功对中共触动很大，进而影响到中共对台作战的战略](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
+
+### [拜登指派跨党派代表团于3月1日访台](/content/gnews/4/README.md)
  ` NFSC News`
 
-### [加拿大和欧洲国家对乌克兰难民提供人道援助](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [2/27/2022 文贵直播: 邪恶的中共丝毫不在乎乌克兰华人的死活；文贵是第一个呼吁将俄罗斯踢出SWIFT系统的人](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
 
-### [视频|乌克兰总统泽连斯基已成为世界传奇人物](/content/gnews/9/README.md)
- ` MOSVIDEO`
-
-### [视频|俄罗斯贸易因西方制裁受阻，正低价出售原油](/content/gnews/10/README.md)
- ` MOSVIDEO`
-
-### [视频|人类历史上首次使用AI与心理学多角度协同作战](/content/gnews/11/README.md)
- ` MOSVIDEO`
-
-### [UBS案将面对中共巨大政治压力及栽赃抹黑和全球消声](/content/gnews/12/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [有声|独裁者要争霸世界必将失败](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [新中国联邦法治基金救援指示牌](/content/gnews/14/README.md)
- ` 纽约香草山MOS02`
-
-### [中共将在日本对七哥发起诉讼战及造谣抹黑和发起遣返](/content/gnews/15/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [乌克兰总统泽伦斯基呼吁对俄罗斯进行战争罪调查](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [郭文贵先生怕的不是共产党而是阿猫阿狗九指妖路大脑袋](/content/gnews/17/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [美国宣布驱逐俄罗斯驻联合国使团 因其从事间谍活动](/content/gnews/18/README.md)
+### [美支付公司万事达、VISA禁止多家俄罗斯金融机构使用其支付网络](/content/gnews/6/README.md)
  ` 日本東京方舟農場`
 
-### [共产党如果想要杀郭文贵先生的话在美国白宫也能杀掉](/content/gnews/19/README.md)
- ` 喜马拉雅日本银河系农场`
+### [没有人愿意帮助新西兰警察局长把自由车队的汽车拖走](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [有声|韩国政府向乌克兰提供1000万美元用于人道救援](/content/gnews/20/README.md)
+### [有声|切断SWIFT支付将对中共造成致命打击](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [日本知名政治评论家：日本打疫苗可能死了几万人](/content/gnews/21/README.md)
+### [俄乌首轮谈判未果 普京提三诉求三承诺](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际刑事法庭将对俄罗斯在乌克兰犯下的战争罪展开调查](/content/gnews/22/README.md)
+### [纽约市计划放弃学校和企业的口罩和疫苗强制](/content/gnews/10/README.md)
+ ` NFSC News`
+
+### [加拿大和欧洲国家对乌克兰难民提供人道援助](/content/gnews/11/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [视频|乌克兰总统泽连斯基已成为世界传奇人物](/content/gnews/12/README.md)
+ ` MOSVIDEO`
+
+### [视频|俄罗斯贸易因西方制裁受阻，正低价出售原油](/content/gnews/13/README.md)
+ ` MOSVIDEO`
+
+### [UBS案将面对中共巨大政治压力及栽赃抹黑和全球消声](/content/gnews/14/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [有声|独裁者要争霸世界必将失败](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [新中国联邦法治基金救援指示牌](/content/gnews/16/README.md)
+ ` 纽约香草山MOS02`
+
+### [中共将在日本对七哥发起诉讼战及造谣抹黑和发起遣返](/content/gnews/17/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [乌克兰总统泽伦斯基呼吁对俄罗斯进行战争罪调查](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [郭文贵先生怕的不是共产党而是阿猫阿狗九指妖路大脑袋](/content/gnews/19/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [共产党如果想要杀郭文贵先生的话在美国白宫也能杀掉](/content/gnews/20/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [有声|韩国政府向乌克兰提供1000万美元用于人道救援](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [日本知名政治评论家：日本打疫苗可能死了几万人](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [NFSC法治基金联合国救援组织乌克兰国际人道大救援](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

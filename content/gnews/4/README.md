@@ -2,28 +2,34 @@
 ---
 
 
-## 没有人愿意帮助新西兰警察局长把自由车队的汽车拖走
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2089269/)
+## 拜登指派跨党派代表团于3月1日访台
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2089288/)
 
-##### 素材：小菠萝
-翻译：奮鬥
-校对：精靈藍
-字幕：向上James
-编辑：守望黎明
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月28日晚，台湾总统府发言人张惇涵表示，美国跨党派代表团将于3月1日至2日，搭乘行政专机来台湾访问。
 
-各国卡车司机抗议强制疫苗的“自由车队”行动方兴未艾，新西兰的卡车车队也上街了。新西兰政府要对“自由车队”动手，下令清场要拖走这些卡车，结果闹出了笑话。在西方民主体制下，民意才是社会的根本。一个活动一旦得到民意的同情和支持，任何势力硬要与之对抗，都很难有好果子吃。如今，反对强制疫苗的民意已经成了气候，并且势头越来越猛。在这种形势下，任何人一意孤行、还想着继续强推疫苗，都是太不识时务了！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12.jpeg)
 
-视频链接：[No one wants to help New Zealand’s police commissioner tow cars from the Freedom Convoy away. Not even the military.](https://twitter.com/stillgray/status/1493527702317371393?s=21)
+该代表团将由美国前参谋首长联席会议主席穆伦率领，成员中包括前国防部政策次长佛洛诺伊、前白宫副国安顾问欧苏利文、前白宫国安会亚洲事务资深主任葛林，及前白宫国安会亚洲事务资深主任麦艾文，显示出两党派对印太区域及台湾安全议题的高度共识与重视。
 
-*发布**：**Mttfly*
+张惇涵称，蔡总统将于3月2日与代表会谈，双方将就台美关系及国际区域局势等各项重要议题交换意见。此次台美交流将促进双边关系的稳健发展，共同维护区域的和平稳定，也突显台美关系「坚若盘石」的深远意义。
 
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参考链接：[拜登指派跨黨派代表團3/1訪台 府：彰顯台美關係堅若磐石](https://www.cna.com.tw/news/aipl/202202285010.aspx)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
+总编：Zion文恩
+编辑：宁文静
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
