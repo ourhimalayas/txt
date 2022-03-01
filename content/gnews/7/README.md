@@ -2,20 +2,12 @@
 ---
 
 
-## 打不打台湾习太阳都得死
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2086874/)
+## 乌克兰妈妈在防空洞求助：普京不会停止杀戮乌克兰人
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2086977/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+02/26/2022 乌克兰妈妈在防空洞里恳求帮助：普京不会停止杀戮乌克兰人，除非他被军事干预所阻止，因为如果最糟糕的情况如此轻易发生在欧洲中心地带的乌克兰，那么战火很快会蔓延到你的家门口
 
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,29 +2,43 @@
 ---
 
 
-## 视频｜《明斯克协议》与普京入侵乌克兰
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2086507/)
+## 全球疫情更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2086614/)
 
-制作：香草山视频部
+整理：枳实
+美工：精灵蓝
 
-关于俄乌战争的历史背景，首先要了解顿巴斯战争，或称东乌克兰战争，是指2014年2月，在乌克兰东南部顿巴斯，由俄罗斯控制的、位于乌克兰东部和南部俄语地区的亲俄势力，与乌克兰政府軍发生交战而引起的战争。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片：雅典娜农场设计组 精灵蓝
 
-《明斯克协议》是顿巴斯战争爆发后，乌克兰政府与乌克兰东部的顿涅茨克人民共和国、卢甘斯克人民共和国两个政权之代表，在2014年9月5日，乌克兰总统波罗申科于白俄罗斯首都明斯克签订的停火协议。乌克兰政府同意給予东南部两州的自治权。但这两个州仍留在乌克兰领土內。9月16日，乌克兰国会通过一项赋予顿巴斯地区特殊自治地位的法律。
 
-2015年2月12日，白俄罗斯，俄罗斯，德国，法国和乌克兰的元首在白俄罗斯首都明斯克举行峰会，制定了明斯克协议Ⅱ。规定双方撤离所有重型武器，并后撤相同距离，以创造至少50公里的军事缓冲区。
+雅典娜疫情更新（2022年 3月1日）
 
-2019年10月1日，乌克兰问题三方联络小组及乌东部武裝代表，在白俄罗斯首都明斯克举行会议，各方以书面形式，确认同意施泰因迈尔模式文本，指在符合乌克兰法律和欧洲安全与合作组织的监督下，在乌东部武裝控制的领土上举行选举并实行自治。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-1.png)
+数据来源：
 
-2022年2月15日，随着俄乌危机的发生，俄罗斯国家杜马以351票赞成，16票反对，1废票，通过了承认顿涅茨克和卢甘斯克人民共和国的法案，并要求俄罗斯总统普京即刻签署该法案。 乌克兰外长称，此举是对明斯克协议的重大破坏。
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-2月21日晚间，普京宣布承认两个分离地区为独立国家 。2月24日，普京隨即以「维和任务」的名义派遣俄军進入该地区。随后，从海陆空三军全面入侵乌克兰。
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-发稿：小野貓（文凱琳）
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

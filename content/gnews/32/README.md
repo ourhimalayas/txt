@@ -2,32 +2,28 @@
 ---
 
 
-## 有声|疫苗灾难的爆发程度以及应对方法
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2086368/)
+## 纽约州政府：辉瑞疫苗对5-11岁感染预防效果只有12%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2086466/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在2月23日的大直播中，郭文贵先生分析了疫苗大灾难爆发的程度，以及战友们应对的办法。
+撰稿：东京樱花团/立正道
 
-郭先生指出，在全世界反对强制疫苗的抗议浪潮中，新中国联邦一直站在前列。班农战斗室、艾滋病的发现者吕克.蒙塔尼耶教授，以及各国有良知的医学家，都对反强制疫苗做出了卓越的贡献。全世界将近50亿人注射了疫苗，可能会有20亿人患病、致残或者死亡。这个数字比原先的估计要好很多。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/纽约州政府：辉瑞疫苗对5-11岁感染预防效果只有12-.jpg)[图片来源](https://www.bbc.com/news/health-60131986)
 
-郭先生强调，5月份全世界疫苗灾难大爆发后，战友们要冷静对待，减少外出，尽量不要染病。另外，世界上的正义力量也在加紧研制疫苗解药。身在欧洲的科学家表示，会找出许多出人意料的解决方法。
+据纽约时事消息，关于美国大药厂辉瑞公司的新冠病毒疫苗，在新冠变异株传播期间，5–11岁的感染预防效果明显逊于12–17岁奥密克戎（Omicron）毒株。
 
+2月28日，纽约州卫生当局进行的一项调查显示。 5–11岁的疫苗中有效成分的量是12岁以上疫苗有效成分量的三分之一，因此接种人数可能会有影响。
 
+该研究将纽约区域接种2次疫苗， 5-11 岁和 12-17 岁与未接种疫苗的年龄相应者进行了比较， 去年12月中旬，12–17岁的感染预防效果为66%，但今年1月下旬降至51%。 另一方面，5 –11 岁的人在同一时期从 68% 大幅下降至 12%。
 
-文字版原文：[疫苗灾难的爆发程度以及应对方法](https://gnews.org/zh-hans/2068421/)
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+该调查没有公布接种疫苗与未接种疫苗者的数据分析，不知原因何在？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
+信息来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[小児接種、一部自治体で開始　５～１１歳、３月本格化―新型コロナワクチン](https://www.jiji.com/sp/article?k=2022030100495&amp;g=int)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
