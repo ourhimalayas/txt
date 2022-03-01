@@ -2,34 +2,43 @@
 ---
 
 
-## 【秘翻在线】乌克兰总统已正式提出乌克兰加入欧盟的请求
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2083938/)
+## 有声|西方同意将俄罗斯主要银行踢出SWIFT
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2084107/)
 
-**撰稿：Grace**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+周六，美国、欧洲盟国和加拿大同意将俄罗斯的主要银行从SWIFT 中移除，这一举措将把俄罗斯从全球金融体系的大部分地区中分离出来。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_2672.jpg)
+虽然美国和欧洲官员明确表示，他们仍在制定如何实施最新制裁的机制，并避免影响俄罗斯的石油和天然气出口，但总的来说，这些制裁有可能成为对一个国最严厉的制裁。如果按计划全面实施，这些措施将严重损害俄罗斯经济，并明显限制其进出口货物的能力。
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-28-at-8.31.43-PM.jpeg)图片来源：slobodenpecat
-据《新闻周刊》(Newsweek) 2月28日报道，乌克兰总统沃洛基米尔·泽伦斯基已正式提出乌克兰加入欧盟的请求。
+美国官员表示这一举措将导致俄罗斯卢布大幅贬值，并推动俄罗斯经济的通胀飙升，由此产生的经济混乱可能会让普京在国内面临政治动荡。
 
-据路透社报道，在乌克兰持续抵抗俄军的入侵中，泽伦斯基要求按照特殊程序快速加入该集团。
+宣布这一消息后，乌克兰总理什米哈尔对这项措施表示欢迎。
 
-他在从乌克兰首都基辅转播的一次演讲中说：“我们的目标是与所有欧洲人在一起，最重要的是，要平等。我确信这很公平。我确信我们值得拥有它。”
+此外，美国及其盟国宣布将实施限制性措施，以防止俄罗斯央行以可能破坏制裁的方式部署其国际储备。
 
-据自由欧洲电台报道，德国外交部长安娜莱娜·贝尔博克(Annalena Baerbock)在泽伦斯基讲话数小时后说，加入欧盟不是几个月就能实现的事情，并补充说，乌克兰是 “欧洲之家” 的一部分，并受到欢迎。
+一位高级政府官员在周六晚间与记者的电话中表示，俄罗斯将立即感受到这些制裁的影响。
 
-报道称，欧盟的成员资格有几个关键的好处，如单一市场，“使大多数货物、服务、资金和人员能够在整个欧洲大陆的大部分地区自由流动”。
 
-而且，所有欧盟公民都可以在任何成员国学习、工作或退休，而所有欧盟国家都必须在 “就业、社会保障和税收方面 ”对外国公民与本国公民一视同仁。
 
-欧盟的单一通用货币–欧元，也减轻了货币波动的风险，避免了货币兑换的额外费用。
+文字版原文：[西方同意将俄罗斯主要银行踢出SWIFT](https://gnews.org/zh-hans/2081940/)
 
-另一方面，报道称，自俄罗斯入侵以来，已有数十万乌克兰人逃离该国，而且这一数字可能会进一步增长。据《新闻周刊》此前的报道，联合国机构估计，俄军的入侵可能导致约500万难民从乌克兰逃离。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-大多数已经逃离的乌克兰公民已经进入摩尔多瓦、波兰和罗马尼亚等邻国。波兰和罗马尼亚都是欧盟的一部分。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-报道认为，乌克兰公民在欧洲国家自由流动的能力可能是对泽伦斯基和其他领导人的一个特别强大的吸引力。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**新闻来源：**** **[Zelensky Files Application for Ukraine to Join European Union](https://www.newsweek.com/zelensky-files-application-ukraine-join-european-union-1683310)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
