@@ -2,18 +2,12 @@
 ---
 
 
-## 2022年2月28日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2082765/)
+## 疾控中心是白宫政治部门；乌克兰冲突结束了大流行吗？
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2083648/)
 
-制作：DT新闻组
+02/26/2022 班农战斗室：疾控中心现在是白宫的政治部门，自从这场冲突在乌克兰开始后，突然间大流行似乎已经结束了。
 
-**中共的杀戮还在继续……**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7F93BB00-0EC3-4DD4-B8DC-64995A04C2E5.jpg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-9.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

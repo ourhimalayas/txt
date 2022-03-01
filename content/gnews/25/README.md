@@ -2,24 +2,20 @@
 ---
 
 
-## 中共将会采用第三套方案攻台
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2083057/)
+## SpaceX公司的卫星互联网服务设备已抵达乌克兰
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2083847/)
 
-撰稿：紐約磐石农场-在逺方
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8D6818EA-3DFB-4072-9592-29A03CBAD1CB.jpeg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-20.jpg)图片来源：twitter
+据美联社2月28日报道，乌克兰数字转型部长Mykhailo Fedorov说SpaceX公司Starlink卫星互联网服务的设备已经抵达他的国家。他在推特上感谢SpaceX创始人Elon Musk提供的设备，并附上了一张卡车后面的箱子的照片。
 
-在2月27日的大直播中，郭文贵先生表示，中共将会吸取俄罗斯的教训，使用第三套方案攻打台湾。
-郭先生说，如果没有美军或者其他联军参战，即使台湾的领导人拥有像乌克兰总统泽连斯基那样的政治智慧和勇气，以及全民共同抗击侵略者的决心，台湾最多能也只能抵抗中共20个小时的攻击。俄乌战争中，俄罗斯的表现让全世界跌破眼镜。在现代人工智能辅助的战争模式下，俄军却运用了传统的进攻战术，导致了惨重的失败。相反乌克兰却运用各种智慧策略和战略战术，成功地支撑到现在。然而，乌克兰将会遭受更加惨烈的打击，孤注一掷的普京政权有使用核武器的可能。
-当前中共正在密切关注俄乌战争事态的发展，习近平一定会从俄罗斯的失败中吸取教训，而采用第三套方案攻打台湾——即不顾及人道、人权和百姓伤亡，用导弹、甚至用准核武器，在最短的时间内，把台湾的东半岛和台中地区，所有的军事设施和政府机构完全摧毁。而台湾的国军部队，也一定会对中共的大连、福建、上海、广东、江西的基地进行反击，甚至可能还会占有优势。
+马斯克用自己的推特回复说。”不客气。并说在乌克兰公开要求提供该服务之后更多的设备也在路上。
 
-[新闻链接][https://www.gettr.com/post/px94dece36](https://www.gettr.com/post/px94dece36)
+乌克兰的互联网因俄罗斯的入侵而中断。 而Starlink是一个基于卫星的互联网系统，SpaceX公司多年来一直在建设这个系统，为世界上服务不足的地区提供互联网接入。它将自己推销为 “非常适合 “互联网服务不可靠或无法使用的地区“。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5CAB052F-A9F3-4B5C-9328-C3A74E709F0A.jpeg)
-
-编輯/校正/发稿：玫瑰圓
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6319C6AD-B91B-4B6F-A6AE-F5F20C941B31.jpeg)
+**新闻来源：**[Live updates: Ukraine says Starlink equipment has arrived | AP News](https://apnews.com/article/russia-ukraine-war-live-updates-ee7cdf19bdab43a22cb1391c98c62b4d)
 
  
 

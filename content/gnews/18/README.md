@@ -2,32 +2,43 @@
 ---
 
 
-## 江泽民评价共产党
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2083641/)
+## 有声|西方同意将俄罗斯主要银行踢出SWIFT
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2084107/)
 
-**整理：GHope、hys
-编辑：Candy**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+周六，美国、欧洲盟国和加拿大同意将俄罗斯的主要银行从SWIFT 中移除，这一举措将把俄罗斯从全球金融体系的大部分地区中分离出来。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_2672.jpg)
+虽然美国和欧洲官员明确表示，他们仍在制定如何实施最新制裁的机制，并避免影响俄罗斯的石油和天然气出口，但总的来说，这些制裁有可能成为对一个国最严厉的制裁。如果按计划全面实施，这些措施将严重损害俄罗斯经济，并明显限制其进出口货物的能力。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/江.png)
+美国官员表示这一举措将导致俄罗斯卢布大幅贬值，并推动俄罗斯经济的通胀飙升，由此产生的经济混乱可能会让普京在国内面临政治动荡。
+
+宣布这一消息后，乌克兰总理什米哈尔对这项措施表示欢迎。
+
+此外，美国及其盟国宣布将实施限制性措施，以防止俄罗斯央行以可能破坏制裁的方式部署其国际储备。
+
+一位高级政府官员在周六晚间与记者的电话中表示，俄罗斯将立即感受到这些制裁的影响。
 
 
-共产党自成立以来就是骗、撒谎……乌克兰是大平原，地广人稀，得大面铺开；台湾不就是一小岛吗？ 是不是那不就咱裤裆里边拔根毛吹掉吗？ （一听）很有道理啊。所以它互相骗、互相忽悠……最后习太阳就成了裤裆那个毛了，就把它吹了。 大家都知道，你知道吗？都很清楚！所以说这时候大家看看谁骗过谁，可能共产党最后要为这个骗付出一个巨大的代价。
 
-我亲耳听过当时江泽民骂身边的一个人，说：你他妈就是骗，共产党吃亏就吃在这骗上了，还在那儿胡说八道！江泽民那个嗓门啊，生活中洪亮至极啊。他那个肚子里边不知道咋回事儿，我在外边（都能听得很清楚）。然后他那个秘书小宋说快走吧快走吧。
+文字版原文：[西方同意将俄罗斯主要银行踢出SWIFT](https://gnews.org/zh-hans/2081940/)
 
-本来我是这么被拉去（做）顾问给他家中南海装修，给他当顾问去了。快走，我特别识时务，一扭头开着车我就走了，但是这一幕让我记住：江泽民知道共产党就是个假大空。胡锦涛我也看过就骂人，也是说你们就会造假，党就毁在你们的假上了，他也知道共产党就是假来了。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-这一回，这个假会毁掉共产党啊，这也是上天给我们的礼物，这叫轮回吧？！卡丽熙，我们俩在这有共同语言，我们相信这是轮回。行，谢谢Karen。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-资料来源：2022.2.27文贵大直播
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-***发布：Candy***
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
