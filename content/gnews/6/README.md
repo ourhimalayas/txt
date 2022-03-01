@@ -2,63 +2,32 @@
 ---
 
 
-## 寻找天然猫屎咖啡之旅
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2091011/)
+## 俄称将对美国在联合国驱逐12名外交官进行报复
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2091094/)
 
-作者：**喜玛拉雅2020**
+翻译：灭共文明
 
-在十八世纪的荷兰殖民地时代, 印度尼西亚的咖啡农场主是不准当地农民或工人拿走任何咖啡果实。他们只能收集这种亚洲棕榈猫 的粪便加工处理后当日常饮用。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-15.jpg)
-亚洲棕榈
-世界十大咖啡, 印度尼西亚独占四种。除了猫屎咖啡以外，然而这种世界上最贵的咖啡直到上世纪九十年代初才开始为大众所知。
+编辑与校对：冰糖葫芦喵、灭共文明
 
-亚洲棕榈猫的生产的猫屎咖啡供不应求，当地农民开始笼养喂食咖啡果实。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-7.jpg)
-“聪明”的农民开始想到用以下方法增加产量。
+《路透社》与《纽约时报》3月1日综合报道，**俄罗斯周二表示，它将对美国以涉嫌间谍罪驱逐其12名驻联合国外交官进行报复。**俄罗斯外交部发言人玛丽亚·扎哈罗娃（Maria Zakharova）说，美国的行动 “不会在没有适当的反应和回复的情况下继续下去，不一定是对等的”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯报复.jpg)俄罗斯外交部发言人玛丽亚.扎哈罗娃（图片来源：路透社）
+**美国周一表示，将把12名俄罗斯外交官驱逐出莫斯科驻联合国使团**，**指控他们利用在美国生活工作之便，一直从事不利于美国国家安全间谍活动。**
 
-当地农民就用这种熊狸来替代“生产”。它的臭味,让你站在它的笼子旁一分钟之内一定会吐。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.jpg)
-还有大部分农民会用这种猫狸来“生产”猫屎咖啡, 因为它吃的多, 拉的多。一句话，产量大。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-4.jpg)
-更有些调皮的农民会用牛粪、羊粪或其他动物的粪便把咖啡豆混在一起, 最后加工处理才卖给客户。这里就不上图了，如果《亲！》喝了以上所述“聪明”农民的“猫屎”咖啡， 只能说句: 《祝您平安！》 在他乡寻找猫屎咖啡的故事, 老实说己经被《平安》了很多次。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-2.jpg)
-开车前往咖啡农场
-从一开始就坚持不养〝猫〞、也不生产咖啡，只收集猫屎；
+美国驻联合国发言人达尔顿表示，**这次的驱逐是符合联合国的规定的，同时已经酝酿了好几个月了。**
 
-当地农户是大自然的清洁工。农户伙伴正在咖啡庄园的树林寻
+美国驻联合国副代表理查德·米尔斯说：“**因此，根据《总部协定》第13条，他们（俄罗斯）已经得到了离开美国的要求**，以免他们损害东道国的国家安全。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/驱逐俄外交官.jpg)俄罗斯驻连个托代表瓦西里·涅边贾（图片来源：路透社）
+俄罗斯常驻联合国常驻代表瓦西里·涅边贾确认了这一消息，**说这12名外交官在3月7日前，被要求离开美国。**
 
-找猫屎，他可能是最富有的拾粪者。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-3.jpg)
-就是这个了，有屎以来最贵的大便。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/9.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/10.jpg)
-经过每天约七小时《拾金》的工作，运气好的话，只能找到
+因俄罗斯入侵乌克兰，**美国和欧盟对俄罗斯的制裁在升级，紧张关系在加剧。据报道，周二，俄军包围了乌克兰两大城市，冲突进一步升级。**
 
-约几百 克猫屎咖啡原料。
+**新闻来源链接：**
 
-传统的猫屎咖啡制作流程
+[U.S. Expels 12 Russian Diplomats for Spying – The New York Times (nytimes.com)](https://www.nytimes.com/2022/02/28/world/europe/us-russian-diplomats-un.html)
 
-先把猫屎咖啡原料晾晒，不说不知，人们知道猫屎很臭；但晒
+[Russia to retaliate for U.S. expulsion of 12 diplomats at U.N. | Reuters](https://www.reuters.com/world/russia-retaliate-us-expulsion-12-diplomats-un-2022-03-01/)
 
-干的这个〝猫〞屎不臭。用山泉水浸泡，冲洗七次，全部人手
-
-完成，不用机器。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/12-1.jpg)
-然后把天然猫屎咖啡生豆晾晒、去皮，除去杂质和不合格品。
-
-大多数供货商不会做以下程序，他们不知道也不懂。客户要什
-
-么认证，就去做什么认证，只是给钱就可以。但当地农户仍然
-
-沿着 十八 世纪以来制作猫屎咖啡的传统。伙伴们要把已经
-
-处理好的猫屎咖啡生豆经长老带进咖啡庄园邻近的清真寺。把
-
-猫屎咖啡生豆放进大鼓里，两手敲打；再经过诵经程序就完成
-
-了。这就是从十    八     世纪传承下来的制作传统猫屎咖啡的仪式。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/13.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/14.jpg)
-审核校对：Barry Jack
-上传排版：F
+[Russia bombards Ukraine urban areas as armed convoy stalls | Reuters](https://www.reuters.com/world/europe/russian-isolation-intensifies-ukraine-fighting-rages-2022-03-01/)
 
  
 
