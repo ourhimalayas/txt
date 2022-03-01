@@ -2,25 +2,37 @@
 ---
 
 
-## 有声｜香港中共病毒确诊数再创单日新高 增逾3.4万宗
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2086999/)
+## 莫德纳CEO表示病毒可能来自实验室意外逃逸
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2087034/)
 
-**By:秘翻新闻**
+[![](https://express.adobe.com/page/2s0JoXAppu2vk/images/13c46a3b-14b2-477c-8aab-aa7c5ce2be69.png?asset_id=f70e1179-ac01-4261-a3e2-989b66a8477d&amp;img_etag=%22efb5a948ba3de624f9f8cee1ad03ad90%22&amp;size=2560)](https://express.adobe.com/page/2s0JoXAppu2vk/images/13c46a3b-14b2-477c-8aab-aa7c5ce2be69.png?asset_id=f70e1179-ac01-4261-a3e2-989b66a8477d&amp;img_etag=%22efb5a948ba3de624f9f8cee1ad03ad90%22&amp;size=1024)
+**简评：**
 
-**2021-03-01**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/18F82B4F-583B-4538-AA0F-651E2747863B.jpeg)图片:源自网络
-[据路透社2月28日报道，香港周一单日报告新增34,466宗中共病毒确诊个案，其中有4宗输入性个案，其余34,462宗为本地感染。数量连续六天创单日新高，较周日增逾三成。香港卫生防护中心官员称，病例每两三日就倍增一次，并预期还会继续上升。](https://cn.reuters.com/article/hk-covid19-situation-cases-0228-mon-idCNKBS2KX14T)
+每日邮报证据表明，COVID是在实验室完成的。科学家发现病毒包含的一小段DNA，与大流行3年之前莫德纳癌症研究专利的基因序列相匹配。莫德纳公司CEO表示，病毒可能从实验室意外逃逸。也许中共国武汉实验室在进行病毒增强或基因改造时有人意外感染，并传给家人和朋友。科学家在仔细查看基因序列，核实信息的准确性。
 
-[医院管理局总行政经理李立业表示，截至今天凌晨零时的过去24小时共有87名病人在公立医院离世，年龄介乎51至100岁，多数为长者；另外有49名病人危殆，66名病人情况严重。](https://cn.reuters.com/article/hk-covid19-situation-cases-0228-mon-idCNKBS2KX14T)
+[**GETTR视频链接**](https://gettr.com/post/pxajyled40)
 
-[连同本月稍早滞后报告的37宗死亡个案，自第五波疫情于去年底爆发以来，共有636人在公立医院离世；疫情逾两年来累计有841人死亡。](https://cn.reuters.com/article/hk-covid19-situation-cases-0228-mon-idCNKBS2KX14T)
+[**GTV视频链接**](https://gtv.org/video/id=621d3bd54353d33974c40ea9)
 
-（ 秘翻新闻 玫瑰 编辑报导）
+**视频字幕：**
 
-发布:星星
+**主持人Maria**：让我来问问你，每日邮报报导更多的证据表明，COVID是实验室完成的。现在科学家发现病毒包含一小段DNA与大流行3年之前莫德纳的专利序列相匹配。你的看法，斯特凡，你能告诉我们什么？
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+**Stefan**：我们的科学家正在研究那些数据，核实信息的准确性。正如我以前所说，病毒意外逃逸实验室的假设是可能的，人是会犯错误的。那么中共国武汉实验室是否有可能在进行病毒增强或基因改造时。实验室有人意外感染，并传给家人和朋友？你上面提到的那种说法是可能的，科学家正在分析其是否真实。
+
+**主持人Maria**：让我吃惊的是，它与莫德纳癌症研究专利的基因序列相匹配。斯特凡。
+
+**Stefan**：是的，科学家团队正在非常仔细地查看基因序列，了解其是否真实。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕：雨中漫步* *| 听写：云岭 | 翻译：Roberts* *| PR：Blue**|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+[![](https://express.adobe.com/page/2s0JoXAppu2vk/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/2s0JoXAppu2vk/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

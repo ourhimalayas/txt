@@ -2,36 +2,31 @@
 ---
 
 
-## 香港新冠病毒确诊数大幅上升连创单日新高
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2086994/)
+## 中共国在乌克兰战争的另一边运作
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2087032/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+[![](https://express.adobe.com/page/BOuhYK1OOFyDs/images/bf9d1e9d-4e17-4ae1-8b4c-2d0126d76dfb.png?asset_id=19a29df4-4a87-415e-9384-4e54f55048fb&amp;img_etag=%2291b7e342a68d26a3e5d4bdd68d287973%22&amp;size=2560)](https://express.adobe.com/page/BOuhYK1OOFyDs/images/bf9d1e9d-4e17-4ae1-8b4c-2d0126d76dfb.png?asset_id=19a29df4-4a87-415e-9384-4e54f55048fb&amp;img_etag=%2291b7e342a68d26a3e5d4bdd68d287973%22&amp;size=1024)
+**简评：**
 
-整理：围剿维尼熊
-编辑：文泓
+俄罗斯和乌克兰在打仗，另一边的中共国在运作下一步动作。麦克凯利议员提出要给中共国写信，告诉中共不要对台湾动武。另外，在南美洲、中美洲、(百慕大)三角区、古巴的深水港口和巴拿马运河的两端，还有非洲，中共在那里有很大的影响力。如果把乌克兰战争当作目前唯一的问题而忽视中共，那就错了。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-2.png)图片来源：AJ Jazeera & 雅典娜设计组
+[**GETTR视频链接**](https://gettr.com/post/pxhi8rfd93)
+
+[**GTV视频链接**](https://gtv.org/video/id=621d3d724353d33974c40f22)
+
+**视频字幕：**
+
+**Mike Kelly议员**：当你目睹在乌克兰发生的事情时，你必然会觉得，这绝对是件可怕的事。但是记住，就在我们目睹乌克兰发生的一切时，另一边的中共国正在运作着。下一步，我们会做的是给中共国写一封信，告诉他们请不要在台湾动粗，我们希望你们不会对我们做那样的事。我要向你们指出另一件事，并且全世界都在看着，我们西半球正遭受猛烈的攻击，而我发现没有人谈论。在南美洲、中美洲、(百慕大)三角区，不要忘记古巴的深水港口和巴拿马运河的两端，谁在那里有很大的影响力。然后我们再去看看非洲那里发生的一切—中共国。如果认为乌克兰是目前我们日程表上唯一的问题的话，很不幸，那我们就错了。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
-根据路透社2月28日报道，因奥密克戎肆虐，周一香港新增逾3.4万例新冠确诊病例，已连续六天创单日新高，较上日增逾三成。卫生防护中心官员预期日新增确诊病例会继续上升。
+*编辑：【英国伦敦喜庄园编辑部】*
 
-据当日发布的数据，单日报告新增34466例新冠病毒确诊病例，其中有4例输入病例，其余34462例为本地感染。
-
-卫生防护中心传染病处首席医生欧家荣表示，根据对四百多宗死亡病例的分析，死亡年龄的中位数为84岁，60岁或以上的占比92%；四宗0至4岁的个案死亡率为0.04%，80岁或以上的死亡率为66%。
-
-林郑月娥表示，港共政府正在各个环节加强抗疫能力，未来两、三个月是稳控疫情的关键时刻，正在筹备在3月内推行全民强制检测。
-
-参考链接：[香港增逾3.4万宗新冠病毒确诊数再创单日新高](https://cn.reuters.com/article/hk-covid19-situation-cases-0228-mon-idCNKBS2KX14T?il=0)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*字幕：雨中漫步* *| 听写：云岭 | 翻译：nights* *| PR：Blue* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+[![](https://express.adobe.com/page/BOuhYK1OOFyDs/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/BOuhYK1OOFyDs/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
