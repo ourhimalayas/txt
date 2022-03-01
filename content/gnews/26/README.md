@@ -2,36 +2,38 @@
 ---
 
 
-## 香港新冠病毒确诊数大幅上升连创单日新高
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2086994/)
+## 韩国政府向乌克兰提供1000万美元用于人道救援
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2087298/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：首尔天池农场—追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-71.png)
+2月28日，韩国外交部宣布，韩国决定向乌克兰提供1000万美元的紧急人道主义援助，用于帮助乌克兰政府、民众和难民。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-31.png)
+外交部指出，将通过与乌克兰及其周边国家政府和国际组织协商，确保援助尽快到位。
 
-整理：围剿维尼熊
-编辑：文泓
+联合国难民事务高级专员估计，将有超过 400 万乌克兰难民逃往波兰、匈牙利、罗马尼亚和斯洛伐克等周边国家。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-2.png)图片来源：AJ Jazeera & 雅典娜设计组
+外交部表示，希望韩国政府的支持能够为乌克兰民众和难民提供切实帮助，政府并计划为解决乌克兰人道主义危机作出积极力量。
 
+参考链接：[外交部向烏克蘭公民和難民提供1000萬美元](https://news.kbs.co.kr/news/view.do?ncd=5405763)
 
-根据路透社2月28日报道，因奥密克戎肆虐，周一香港新增逾3.4万例新冠确诊病例，已连续六天创单日新高，较上日增逾三成。卫生防护中心官员预期日新增确诊病例会继续上升。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-据当日发布的数据，单日报告新增34466例新冠病毒确诊病例，其中有4例输入病例，其余34462例为本地感染。
+总编/编辑：DM
+校对/发稿：小野貓（文凱琳）
 
-卫生防护中心传染病处首席医生欧家荣表示，根据对四百多宗死亡病例的分析，死亡年龄的中位数为84岁，60岁或以上的占比92%；四宗0至4岁的个案死亡率为0.04%，80岁或以上的死亡率为66%。
+**更多资讯，更多关注**
 
-林郑月娥表示，港共政府正在各个环节加强抗疫能力，未来两、三个月是稳控疫情的关键时刻，正在筹备在3月内推行全民强制检测。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-参考链接：[香港增逾3.4万宗新冠病毒确诊数再创单日新高](https://cn.reuters.com/article/hk-covid19-situation-cases-0228-mon-idCNKBS2KX14T?il=0)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*发布：tianzhihuan*
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-71.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,27 @@
 ---
 
 
-## 70名乌克兰士兵在哈尔科夫附近的炮击中丧生
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2086374/)
+## 中日财经爆|日本对俄罗斯的追加制裁 即日生效
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2086500/)
 
-编译：雄起
-酷翻组
-采集：玫瑰新闻组
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.nippon.com%2Fen%2Fncommon%2Fcontents%2Fnews%2F1608864%2F1608864.jpg&amp;imgrefurl=https%3A%2F%2Fwww.nippon.com%2Fen%2Fnews%2Fntv20220228003%2F&amp;tbnid=vWnljKN7vadHOM&amp;vet=12ahUKEwils6fWtqT2AhW5y4sBHSUyASEQ)
+日本政府在3月1日上午的内阁会议上，批准了对俄罗斯入侵乌克兰的追加制裁：冻结俄罗斯总统普京、外长维克洛夫等6人的资产，以及俄罗斯中央银行的资产冻结均于同日生效。对包括军事相关公司在内的49个组织的事实上的出口禁令也将于8日实施。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3013.png)
+此外，包括国有对外经济开发银行（VEB）在内的两家银行的资产将于31日被冻结。再加上已经决定冻结资产的“俄罗斯银行”，制裁对象将是三家银行。
 
-当地官员说，俄罗斯军队袭击了乌克兰东部哈尔科夫附近的一个军事基地，造成至少70名乌克兰士兵死亡，这是自战争开始以来最致命的袭击。
+日本央行将限制俄罗斯央行持有的日元外汇储备交易，并阻止支持俄罗斯购买卢布的外汇干预。据日本政府称，截至去年6月，俄罗斯中央银行在日本银行持有的以日元计价的外汇储备估计约为3.8万亿日元。
 
-袭击发生在周一（28/2/22）下午，俄罗斯大炮击中了奥赫蒂尔卡的一个军事基地，这个小城市距离俄罗斯边境约49公里（30英里），在哈尔科夫西北部100公里（62英里）。
+日本还准备禁止出口可能增强俄罗斯军事能力包括半导体在内的通用焊料，为了提高制裁的有效性，政府正在与美国和欧洲保持一致。
 
-苏梅地区行政长官德米特罗-兹维茨基周二上午说：”尸体被陆续从废墟下被拉出来，墓地正在为大约70名死亡的乌克兰士兵准备位置”。
+消息来源:
 
-关于周一袭击的其他细节并未立即为人所知，但兹维茨基发布的照片和视频显示，多座建筑被摧毁或严重损坏。
+[政府、対ロシア追加制裁を閣議了解…プーチン氏ら６人の資産凍結など即日発動](https://www.yomiuri.co.jp/politics/20220301-OYT1T50109/)
 
-他补充说：”敌人也受到了它应有的报应，” 同时展示了4具尸体的照片，他说这些尸体是俄罗斯士兵的。
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
 
-自俄罗斯发动对乌克兰的全面入侵以来，已有数百名士兵和平民被杀。奥赫蒂尔卡事件似乎是战争开始以来最致命的一次袭击。
-
-新闻链接：
-
-[https://bnonews.com/index.php/2022/03/70-ukrainian-soldiers-killed-in-artillery-attack-near-kharkiv/](https://bnonews.com/index.php/2022/03/70-ukrainian-soldiers-killed-in-artillery-attack-near-kharkiv/)
-
-**校对：sherryok (水云间)
-审核校对：Barry Jack
-上传排版：V在途中**
 
  
 

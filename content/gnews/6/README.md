@@ -2,8 +2,8 @@
 ---
 
 
-## 疫苗的灾难将远超战争
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2087681/)
+## 盖特发不实信息将封号：你可以不干事，但不能干假事
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2087776/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

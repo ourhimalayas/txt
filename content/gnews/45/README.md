@@ -2,21 +2,18 @@
 ---
 
 
-## 美国驱逐12名驻纽约联合国总部俄外交人员 称其从事间谍活动
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2083861/)
+## 台湾|拜登公开派遣前国防官员访台 称表达对台湾主权的支持
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2084481/)
 
-撰稿：追着曙光跑
+**撰文/ 港台前線｜發佈日期/ 01/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Music-Clip-6.png)更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pl6w8he0b9))
+路透社28日报导，美国拜登政府宣布将派遣代表团到台湾，曾任美国参谋首长联席会议主席穆伦（Mike Mullen）率团，成员包括前任美国国防与国安官员，目的为表达对台湾拥有主权的支持。
 
-据华尔街日报3月1日的报道，美国正在驱逐俄罗斯派驻纽约联合国的12名外交官人员，称他们是情报人员。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-03-01-at-10.27.57.jpeg)图片来源：网络
-美国驻联合国大使琳达·托马斯-格林菲尔德的发言人称，美国正在开始驱逐俄罗斯代表团的12名情报人员，他们滥用在美国的居住特权，从事不利于美国国家安全的间谍活动。
+此次代表团预计本日下午抵达台湾，并于明日晚间离开，期间将与台湾总统、国防部长等高级官员会面。 据了解，此次美国代表团抵台是为表达对台湾及民主承诺的重要信号。 拜登政府表示，对台的承诺坚若磐石，美国将保持抵制任何诉诸武力或其他形式的胁迫，因为这会危急台湾人民的安全或经济制度。
 
-另外，他指出，驱逐行动已经开展了几个月，这一行动是根据允许美国作为联合国总部东道国的协议进行的。
+美国前任国务卿则预计在本次代表团离开后，3月2日紧接着访台。
 
-信息来源：[美国驱逐12名俄罗斯驻联合国外交官，称其从事间谍活动](https://cn.wsj.com/amp/articles/%E7%BE%8E%E5%9B%BD%E9%A9%B1%E9%80%9012%E5%90%8D%E4%BF%84%E7%BD%97%E6%96%AF%E9%A9%BB%E8%81%94%E5%90%88%E5%9B%BD%E5%A4%96%E4%BA%A4%E5%AE%98-%E7%A7%B0%E5%85%B6%E4%BB%8E%E4%BA%8B%E9%97%B4%E8%B0%8D%E6%B4%BB%E5%8A%A8-11646089862)
-[12 members of Russia’s UN mission expelled from US: Russian ambassador](https://insiderpaper.com/12-members-of-russias-un-mission-expelled-from-us-russian-ambassador/)
-
-
+來源｜[ETtoday](https://www.ettoday.net/news/20220228/2198279.htm?from=fb_et_news&amp;fbclid=IwAR0mq56Ptanh-6uFoCuRMAdJCG5h9aSFzwV_eNqAq8EDPDiNQ2BsJ9_8y6w)
 
  
 

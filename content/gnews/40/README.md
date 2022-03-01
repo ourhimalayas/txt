@@ -2,21 +2,31 @@
 ---
 
 
-## 乌克兰副总理发推称，星链终端已到达
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2085762/)
+## 瑞士放弃中立承诺 跟进欧盟对俄制裁 并冻结普京资产
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2086030/)
 
-撰稿：追着曙光跑
+**撰稿：日本东京方舟农场 Kevin wang**
 
-3月1日，乌克兰副总理兼数字化改造部长米哈伊洛·费奥多罗夫今天（1日）发推特称，星链（Starlink）终端已经到达。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-01-at-16.09.09.jpeg)图片来源自费奥多罗夫推特
-他在推特上发布了一张照片，是一辆卡车装着几十箱设备，并对马斯克表示感谢。马斯克用“不用客气”回应他。
+2月28 日，瑞士表示将全面采纳欧盟的制裁措施，并冻结俄国总统普京等人资产，罕见放弃自二战以来的的中立承诺。
 
-SpaceX公司已经成功向乌克兰交付了连接该公司星链卫星网络服务的终端。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/027.png)（图片来自网络）
 
-上周末，费奥多罗夫在发推请求马斯克提供星链服务。马斯克回应他说，星链服务在乌克兰已经可以使用，更多终端在运输途中。
+中央社报道，瑞士政府声明表示，瑞士将与欧盟协调制裁俄国，制裁措施主要针对货物与金融方面，也包括冻结个人与企业资产。
 
-信息来源：[Starlink — here. Thanks](https://twitter.com/fedorovmykhailo/status/1498392515262746630?s=21)
-[while you try to colonize Mars — Russia try to occupy Ukraine!](https://twitter.com/fedorovmykhailo/status/1497543633293266944?s=21)
+声明还表示：瑞士这么做，是针对那些应为严重违反国际法负责的个人，采取因应行动。
+
+瑞士总统卡西斯（Ignazio Cassis）在记者会中说：对瑞士而言，这是跨出了一大步。
+
+日前，美欧等国已将俄罗斯移出swift支付系统，瑞士此次放弃中立承诺，跟进对俄制裁，无疑使美欧等国的制裁对俄形成了更大的压力。
+
+截至目前，俄罗斯并未对此事做出任何回应。
+
+参考链接：
+1：[https://www.cna.com.tw/news/aopl/202203010043.aspx](https://www.cna.com.tw/news/aopl/202203010043.aspx)
+
+素材采编：Kevin wang
+编辑： 青城道姑
+发布：Linda
 
  
 
