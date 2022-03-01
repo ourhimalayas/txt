@@ -2,20 +2,12 @@
 ---
 
 
-## 加拿大萨省宣布结束所有防疫措施
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2090274/)
+## 3月1日勿忘香港（图片1-8）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2090467/)
 
-加拿大温哥华扬帆农场    平民正道
-
-据【多伦多太阳报】2月28日报道，萨省政府当天取消了在室内公共场所强制配戴口罩，以及要求病毒感染者自我隔离五天的规定。
-
-报道称，在2月14日终止了疫苗护照的使用后，萨省目前不仅已成为加拿大第一个取消所有疫情限制的省份，而且正在过渡到将“新冠病毒”视为一种常见呼吸道疾病的阶段。
-
-对此，萨省卫生部门表示，尽管一半以上的成年居民都接种了疫苗加强剂，但当局仍计划通过疫苗接种和抗病毒药物来控制疫情，而非依赖破坏心理健康和经济的强制公共卫生措施。
-
-* * *
-
-编辑： 平民正道    发布：平民正道
+设计 五月花农场 企鹅
+![](https://assets.gnews.org/wp-content/uploads/2022/03/B6E46F8A-54DD-44A2-AFF8-90F4E48CDF36.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/33B59F5E-9978-44DA-BF2B-FE3C7956D334.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/6761E053-0BCA-46EA-96B1-4ACE2CBC54D9.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/4DFAD744-F32D-493D-98C5-118E1E016D98.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/B7C500B5-0919-4B0F-B401-7DFD263F4C9A.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/DDCD20DE-0FF9-4E73-8AB9-FD339A17A656.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/8A0476FE-1E9E-4B65-A3D1-8531BF63BA37.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/FD50BBE3-3EA7-4FF5-8163-C6108A857F0A.jpeg)
+发布 水涨船高
 
  
 

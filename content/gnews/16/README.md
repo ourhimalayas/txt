@@ -2,20 +2,29 @@
 ---
 
 
-## 台湾最大威胁之一是卖台贼 美国须在“维持世界秩序”和“重整世界秩序”之间作出决定
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2089920/)
+## 中共对台湾的侵略将引发浩劫
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2090072/)
 
-台湾有近50万的专业军人，在军事方面的能力和专业性均比共军高出一筹。
+作者：澳大利亚雅典娜农场
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00.jpg)
+爆料革命一路走来，郭文贵先生的情报一次又一次地得到验证。俄罗斯在西线制造乌克兰危机，是配合中共在东线对台湾的动手。又是郭先生早早把习近平和普京二人合演的这台大戏，提前剧透了内幕，把这场危机的实质提前报告给了世人。 现在郭先生再一次发出警报，中共侵台战争随时爆发。中共对台湾的大冒险不仅会给台湾人民带来深重的灾难，也同样会让中共自身走向房倒屋塌、自取灭亡的可悲下场。
 
-如果开战台湾只能打技术战，包括GPS通信技术，电子战。
+参考链接：[中共对台湾的侵略将引发浩劫](https://gtv.org/video/id=621b7633019ef64da651ee6c%EF%BC%88)
 
-台湾现在最大的威胁是：内部的卖台贼。蓝绿两党均有内鬼和中共勾兑买好。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-美欧日等国联军一旦参与台海战争，共产党就会有动核武器的心，一定联合北朝鲜，伊朗，巴基斯坦，俄罗斯干战。美国现在必须要在“维持世界秩序”还是“重整世界秩序 “之间作出决定。如果选择前者，美国现在必须大胆提前动手；如果选择后者，世界大战，全人类将为之付出巨大的代价。
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
 
-视频来源: 20220227—郭先生大直播
-视频制作: 文星光
-文案:文星光
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

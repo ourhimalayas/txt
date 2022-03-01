@@ -2,24 +2,30 @@
 ---
 
 
-## 中共对战乱中的同胞弃之不顾
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2089299/)
+## NFSC新闻、G|TV新闻访谈简报|2022年3月1日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2089693/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO.jpg)
 
-采编/编辑撰稿：    Quitman
-![](https://cdn.discordapp.com/attachments/759954055299858513/948271621460861058/d11133f4-8aa2-4919-8d65-06d025f39163.jpg)图片来源：GETTR
-据2月27日盖特新闻，中共住乌克兰大使范先荣当天公开表示，由于乌克兰正与俄罗斯交战，情况危殆。但在没有安全保障的情况下，中共政府暂时不能对身处战乱中的同胞实施救援，必须等到局势安全之后再安排撤侨工作。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_.png)
+文章仅代表作者本人观点，与Gnews无关
 
-然而，新中国联邦刚成立不到两年，尽管目前还没有得到世界任何国家的正式承认。但新中国联邦人率先与联合国救援组织密切合作，紧锣密鼓地开始救助被困在乌克兰战火中的中国同胞。迅速动员和集中一切力量和资源，并首批租赁美国最先进的大力神军用运输机10架次甚至更多来进行本次援救工作。 相比处处作恶的中共暴政以及信口雌黄，谎言连篇的大使范先荣，新中国联邦对待中国同胞的态度和所采取的措施实属天壤之别！
+视频参看：
+[2022.03.01早 《NFSC新闻》](http://中共将会采用第三套方案攻台；俄乌战争的两个结局和俄罗斯的未来)
+[2022.03.01早 G|TV《新闻访谈》](https://gtv.org/video/id=621e27cf019ef64da6534f27)
 
-校对编辑：硫酸羟氯喹64
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-发稿：青青
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3.jpeg)
 
-原文链接：1，[https://gettr.com/post/px7wihe4ab](https://gettr.com/post/px7wihe4ab)
-
-2，[https://gettr.com/post/px6utt349a](https://gettr.com/post/px6utt349a)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
