@@ -2,26 +2,27 @@
 ---
 
 
-## 纽约市计划放弃学校和企业的口罩和疫苗强制
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2089168/)
+## 有声|切断SWIFT支付将对中共造成致命打击
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2089267/)
 
-作者：加拿大温哥华扬帆农场 Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月27日，据NBC-纽约报道，纽约市长埃里克-亚当斯宣布，他计划于3月7日起，取消该市 5岁以上人士在公共场合需提供疫苗接种证明的政策，学校也将不再要求学生和工作人员在室内配戴口罩。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2月27日，郭文贵先生在大直播中，详细讲解了切断中共使用SWIFT支付系统，对灭共起到关键作用。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11.jpeg)
+首先，SWIFT系统不仅是美元支付系统，更重要的作用是国家信用评级。切断SWIFT支付系统，意味着与50%以上的世界国家经济体断绝经济合作。目前，停止俄罗斯银行使用SWIFT系统，是历史上首次针对主权国家停用。一旦开启SWIFT制裁先例，即使中共不对台开战，停止中共银行使用SWIFT系统，仅是时间问题。
 
-在结束疫苗强制之前，纽约市长办公室的团队还将审查该市的“中共病毒”感染指标，一旦这些指标在未来几周持续低于高危风险的界限，疫苗强制政策的废止将如期推进。
+郭先生透露，目前有三个理由对中共实施SWIFT制裁：第一，对新疆实施种族灭绝大屠杀；第二，镇压香港民主运动，杀害无辜的香港平民；第三，制造和释放中共病毒，对全世界发动生化战争。
 
-自2021年以来，纽约市一贯采取相对激进的防疫措施，包括在餐馆、学校等公共场所出示“中共病毒”疫苗的接种证明，强制配戴口罩。分析人士指出，强制防疫措施并未及时遏制2022年年初“奥米克戎”毒株在纽约市的爆发，反而引发民众的普遍反感，以及大规模的反“强制疫苗”游行活动。
+郭先生进一步强调，当SWIFT系统停止中共银行使用后，中国银行28万亿国际业务顷刻消失；中共所有海外贷款和借款，全部立刻停止；建行、招行、农行等所有上市银行股票价格，立刻跌倒零；15万亿GDP化为乌有；中共40%粮食进口和68%外向行经济都将结束。
 
-参考链接：[Adams Plans to Drop Key2NYC Vaccine Mandate, Masks in School; Final Decision Due Friday](https://www.nbcnewyork.com/news/coronavirus/once-the-epicenter-new-york-city-plans-to-drop-vaccine-mandate-and-masks-in-schools/3574239/)
+中共常委的家人在海外均藏匿巨额家族信托资产，一旦被经济制裁，这些人会联手消灭习近平。切断SWIFT系统是对中共釜底抽薪的致命打击。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+文字版原文：[切断SWIFT支付将对中共造成致命打击](https://gnews.org/zh-hans/2081404/)
 
-总编：Zion文恩
-编辑：Zion文恩
-校正/发稿：谐趣园
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

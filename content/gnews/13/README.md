@@ -2,25 +2,26 @@
 ---
 
 
-## 视频|俄罗斯贸易因西方制裁受阻，正低价出售原油
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2089135/)
+## 加拿大和欧洲国家对乌克兰难民提供人道援助
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2089155/)
 
-制作：香草山视频部
+加拿大温哥华杨帆农场 枫叶快讯
 
-据外媒2月28日报道，俄罗斯目前正在以超低折扣出售原油。目前来自盛产石油区乌拉尔山脉的原油，每桶价格已经低于布伦特原油期货11.6美元。
+采编：文莱       翻译编辑：文所未闻
+![Ukrainian refugees](https://www.ctvnews.ca/polopoly_fs/1.5796010.1645804566!/httpImage/image.jpg_gen/derivatives/landscape_960/image.jpg)图片来源：https://www.ctvnews.ca/
+据加拿大《CTV新闻》2月25日报道，加拿大国防部长阿南德当天表示，有150名该国军人组成的武装部队正在波兰待命，随时准备提供战争援助，以帮助乌克兰难民安全越过边境进入欧洲邻国。
 
-据悉，这是俄罗斯近11年以来的最低折扣价格，然而市场上并未有买主买入。俄罗斯的原油爆跌引发了市场的连锁反应，新加坡、哈萨克斯坦、挪威等地的石油交易都受到波及。分析师称，欧洲炼油厂曾在开战前大量购入乌拉尔原油。
+报道称，在对乌克兰多个城市和军事基地发动空袭后，俄军目前已推进到首都基辅附近，并导致成千上万的乌克兰人涌入欧洲中部和邻国地区避难。
 
-美英日、欧盟等国家因俄罗斯对乌克兰的入侵相继对其进行了严厉的经济制裁，并且因战事的扩张，黑海的港口运输极有可能中断，因此石油交易员避免选择俄罗斯原油交易。分析师称目前买入俄罗斯原油的可能是亚洲买家。
+据悉，帮助难民前往加拿大是后续救援措施之一。加拿大政府正在就如何优先、快捷处理乌克兰人的移民申请制定方案。于此同时，欧盟也在为大量战争难民的涌入做准备。
 
-发稿：Daxia
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+此外，新中国联邦和法治基金也已与联合国救援组织合作，共同启动了国际人道救援行动。并投入巨大资源无偿安排专机协助有需要的人士撤离到安全中转国。反观中共政府，懦夫嘴脸毕现，竟以“不安全”为借口拒绝实施救援，置其惶恐国民于炮火中而不顾。正义和邪暴立见，真善和假恶分明。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+消息来源： [https://www.ctvnews.ca/politics/canada-european-countries-preparing-for-influx-of-ukrainian-refugees-1.5795900](https://www.ctvnews.ca/politics/canada-european-countries-preparing-for-influx-of-ukrainian-refugees-1.5795900)
 
  
 
