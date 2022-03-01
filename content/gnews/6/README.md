@@ -2,20 +2,32 @@
 ---
 
 
-## 新中国联邦以行动向世界诠释正道主义
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2083469/)
+## 短视频：个人享有自由和人权，不受政府和任何组织约束
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2083585/)
 
-加拿大温哥华扬帆农场    平民正道
+翻译：Annabelle
+校对：Lish
+字幕：qingjing
+编辑：文泓
 
-据本台记者2月27日报道，在日前的《救援乌克兰》紧急直播中，文贵先生一再强调，在本次与联合国专业援救组织的共同行动中，一定要向世界展示新中国联邦高效、高质量的团队作战能力和完全无私的新中国联邦人的形象。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-39.png)图片来源：视频截屏
 
-对此，文贵先生指出，要以行动来给世界展示爆料革命是正义的需要，新中国联邦能给世界带来和平和希望。本次前往乌克兰前线的行动，成功的救援结果最为重要，任何人都不能以功名或利益为目的。
 
-据悉，救援行动的三个核心部署分别是[前线组织]，[后勤供应]和[媒体宣传]。在保障最低风险情况下，全力救援在乌克兰被战火围困的新中国联邦战友及家人、华人同胞、美国及各国友人。文贵先生最后表示，没有任何战争是正义的，无论任何种族，肤色或国籍的人民都是同类。新中国联邦爱好和平，反对战争！
+我们不会允许这个在北美洲北部的国家再堕落下去，因为有人对权利的饥渴，抛弃了我们每个人拥有的自由。
 
-* * *
+它们（自由）属于我们，我们每一个人都不一样，这就是为什么每个人的权力和自由都是那么的重要，对吧？
 
-编辑： 平民正道    发布：平民正道
+因为你代表你这个人，你是一个个体，而不是一个家庭，也不是一个团体；你不是其他组织的一部分，你不是省的一部分，而你是作为一个独立的加拿大人来拥有这些权利。这才是最重要的！
+
+视频链接：[𝙍𝙄𝙎𝙀𝙈𝙀𝙇𝘽𝙊𝙐𝙍𝙉𝙀 在 Twitter: “Victoria Canada 🇨🇦 This is one Epic Speech 💣 Former Politician Brian Peckford 💣🔥👊 https://t.co/SfRNmnO3Xn” / Twitter](https://twitter.com/risemelbourne/status/1492983608474169345?t=98is_v8fiZNX49MIz0iblA&amp;s=19)
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
