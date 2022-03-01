@@ -2,25 +2,104 @@
 ---
 
 
-## 视频|中共对台湾的侵略将引发浩劫
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2089000/)
+## 新中国联邦法治基金救援指示牌
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2089094/)
 
-制作：香草山视频部
+作者：香草山健身部-正道新闻
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+新中国联邦和法治基金在乌克兰救援指示牌
 
-爆料革命一路走来，郭文贵先生的情报一次又一次地得到验证。俄罗斯在西线制造乌克兰危机，是配合中共在东线对台湾的动手。又是郭先生早早把习近平和普京二人合演的这台大戏，提前剧透了内幕，把这场危机的实质提前报告给了世人。
+В Украине Новая Китайская Федерация и Фонд Верховенства закона спасательная табличка.
 
-现在郭先生再一次发出警报，中共侵台战争随时爆发。中共对台湾的大冒险不仅会给台湾人民带来深重的灾难，也同样会让中共自身走向房倒屋塌、自取灭亡的可悲下场。
+![](https://cdn.discordapp.com/attachments/902205163622776852/948252622945673286/copy.jpg)
 
-发稿：Daxia
 
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
+出发
+
+Departures
+
+Вылеты
+
+出口
+
+Exit
+
+Выход
+
+入口
+
+Entrance
+
+Вход
+
+![](https://cdn.discordapp.com/attachments/902205163622776852/948252662103703593/copy.jpg)
+
+值机台
+
+Check-in Desks
+
+Стойки регистрации
+
+海关检查
+
+Customs Control
+
+Таможенный контроль
+
+登机口
+
+Gates
+
+Выходы на посадку
+
+洗手间
+
+Toilets
+
+Туалеты
+
+吸烟室
+
+Smoking area
+
+Место для курения
+
+行李
+
+Baggage
+
+Багаж
+
+急救站
+
+Nursing stations
+
+Медпункты
+
+问询台
+
+Information Desks
+
+Стойки информации
+
+集合点A、B、C、D
+
+Set point A、B、C、D
+
+Заданная точка A、B、C、D
+
+发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.jpg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

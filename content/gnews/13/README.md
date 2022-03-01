@@ -2,28 +2,39 @@
 ---
 
 
-## 美国宣布驱逐俄罗斯驻联合国使团 因其从事间谍活动
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2089012/)
+## 有声|独裁者要争霸世界必将失败
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2089105/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+俄罗斯普京发动战争侵占乌克兰面临国内国际的反抗与制裁已经骑虎难下。
 
-2月28日，鉴于常驻纽约联合国使团的12名俄罗斯外交官从事间谍活动，美国宣布将其驱逐出境。
+中共面临更大的麻烦。
 
-据《美国之音》报道，美国驻联合国使团发言人奥莉维亚·达尔顿(Olivia Dalton)在一项声明中表示，美国已通知联合国和俄罗斯常驻联合国使团，已开始驱逐来自俄罗斯使团的12名情报特工的程序，他们被控利用自己居住在美国的特权从事违反美国国家安全利益的间谍活动。
+1，不打台湾背叛习普同盟，曾江饶不了习猪头。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-1.jpg)图为纽约联合国总部一处出入口（图片来自网络）
+2，若打台湾国际社会必灭习特勒。
 
-奥莉维亚·达尔顿还表示，这项行动是依据联合国总部协定采取的，该行动已经酝酿了几个月。
+3，党内反对派必把习猪头炖肉吃。
 
-据悉，美国要求这12名俄罗斯外交官在3月7日前离境。
+4，习猪头现在头痛。心痛。肝痛、脾痛,全身痛。
 
-参考链接：
-[https://www.voachinese.com/a/us-to-expel-12-russian-diplomats-at-un-mission-for-spying-20220228/6464126.html](https://www.voachinese.com/a/us-to-expel-12-russian-diplomats-at-un-mission-for-spying-20220228/6464126.html)
+习太，普大帝难兄难弟共同站在一条战船上，必将被自由人权的国际社会所抛弃，死于无葬身之地。
 
-素材采编：幽蘭自得
-编辑：老孙
-发布：小斐
+文字版原文：[独裁者要争霸世界必将失败](https://gnews.org/zh-hans/2081251/)
 
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

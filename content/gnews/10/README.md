@@ -2,44 +2,25 @@
 ---
 
 
-## 郭文贵先生怕的不是共产党而是阿猫阿狗九指妖路大脑袋
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2089032/)
+## 视频|俄罗斯贸易因西方制裁受阻，正低价出售原油
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2089135/)
 
-G-TV视频链接：https://gtv.org/video/id=62164cf31408ee3a03a3c8fe
+制作：香草山视频部
 
-**郭文贵先生：**在美国安保都一样，而且我到哪国去都是国家，肯定是我跟英国政府不谈好我肯定不去，没有英国政府保护我，我肯定不去，个人保安是不可能让你安全的——在任何地方。
+据外媒2月28日报道，俄罗斯目前正在以超低折扣出售原油。目前来自盛产石油区乌拉尔山脉的原油，每桶价格已经低于布伦特原油期货11.6美元。
 
-我们不怕共产党，怕谁你知道吗？怕那些流氓、怕“九指妖”过来拿九个手指头捅我一下子 “嘶”是吧？“九指妖”、“九指魔”来了，我担心这个你知道吗？我还不能还手是吧？九指“唰”就来两下子是吧？那多恐惧呀，那我得挡是吧？我得挡，那九指“啪啪啪啪”，然后人家旁边儿英国的M16说：“哎，这是一个特殊人才不能还手啊。
+据悉，这是俄罗斯近11年以来的最低折扣价格，然而市场上并未有买主买入。俄罗斯的原油爆跌引发了市场的连锁反应，新加坡、哈萨克斯坦、挪威等地的石油交易都受到波及。分析师称，欧洲炼油厂曾在开战前大量购入乌拉尔原油。
 
-哇噻！然后“路大脑袋”到那儿“咔咔”两口痰“哼哼哼”——哎呀哇噻！弄得我受不了！我担心这！再一个就是“蛇妖闫”晃着肩过来了（演示晃肩走路的动作）“嘚嘚嘚嘚”，她来回咱受不了啊！她一来咱浑身发抖，你还不能还击，咱怕这你知道吗？不怕共产党，怕共产党派来的叫做什么“阿猫”、“阿狗”、“蝇蝇”、“狗狗”来骚扰咱。
+美英日、欧盟等国家因俄罗斯对乌克兰的入侵相继对其进行了严厉的经济制裁，并且因战事的扩张，黑海的港口运输极有可能中断，因此石油交易员避免选择俄罗斯原油交易。分析师称目前买入俄罗斯原油的可能是亚洲买家。
 
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
-
-编辑整理：Jacques；
-
-字幕档制作：兵嫂；
-
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+发稿：Daxia
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

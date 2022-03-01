@@ -2,32 +2,26 @@
 ---
 
 
-## 乌克兰总统泽伦斯基呼吁对俄罗斯进行战争罪调查
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2089037/)
+## 加拿大和欧洲国家对乌克兰难民提供人道援助
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2089155/)
 
-#### 撰稿：彩虹       
+加拿大温哥华杨帆农场 枫叶快讯
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-43.png)图片来源：CNN
-2月28日，《国会山报》报道，周二，乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelensky）呼吁对俄罗斯的战争罪行进行调查。
+采编：文莱       翻译编辑：文所未闻
+![Ukrainian refugees](https://www.ctvnews.ca/polopoly_fs/1.5796010.1645804566!/httpImage/image.jpg_gen/derivatives/landscape_960/image.jpg)图片来源：https://www.ctvnews.ca/
+据加拿大《CTV新闻》2月25日报道，加拿大国防部长阿南德当天表示，有150名该国军人组成的武装部队正在波兰待命，随时准备提供战争援助，以帮助乌克兰难民安全越过边境进入欧洲邻国。
 
-在乌克兰第二大城市哈尔科夫（Kharkiv）遭到袭击后，他发出了此呼声，目前哈尔科夫的袭击造成至少10人死亡，35人受伤。
+报道称，在对乌克兰多个城市和军事基地发动空袭后，俄军目前已推进到首都基辅附近，并导致成千上万的乌克兰人涌入欧洲中部和邻国地区避难。
 
-根据BBC（英国广播公司）报道，泽伦斯基说：“这是自由的代价，这是对乌克兰的恐怖行为。广场上没有军事目标，在哈尔科夫那些受到火箭炮轰击的居民区里也没有（军事目标）。”
+据悉，帮助难民前往加拿大是后续救援措施之一。加拿大政府正在就如何优先、快捷处理乌克兰人的移民申请制定方案。于此同时，欧盟也在为大量战争难民的涌入做准备。
 
-对于俄罗斯的入侵，美联社报道说：“没有人会原谅。没有人会忘记。… 这是俄罗斯联邦的国家恐怖主义。”
+此外，新中国联邦和法治基金也已与联合国救援组织合作，共同启动了国际人道救援行动。并投入巨大资源无偿安排专机协助有需要的人士撤离到安全中转国。反观中共政府，懦夫嘴脸毕现，竟以“不安全”为借口拒绝实施救援，置其惶恐国民于炮火中而不顾。正义和邪暴立见，真善和假恶分明。
 
-报道说，俄罗斯在攻击哈尔科夫的同时，还对乌克兰使用了集束炸弹（cluster bombs），而这是国际条约所禁止的。
+校对编辑：硫酸羟氯喹64
 
-美联社指出，俄罗斯否认在入侵乌克兰期间以平民为目标或犯下战争罪行。
+发稿：青青
 
-值得注意的是，周二，泽伦斯基在基辅的讲话中恳求帮助，欧洲议会成员起立鼓掌。
-
-另据报道，美国情报部门称，乌克兰对入侵的抵抗比预期的要强，俄罗斯仍未占领首都基辅。
-
-**新闻来源**
-
-[Ukraine’s Zelensky calls for war crimes investigation over Russian attack](https://thehill.com/policy/international/596245-ukraines-zelensky-calls-for-war-crimes-investigation-over-russian-attack)
+消息来源： [https://www.ctvnews.ca/politics/canada-european-countries-preparing-for-influx-of-ukrainian-refugees-1.5795900](https://www.ctvnews.ca/politics/canada-european-countries-preparing-for-influx-of-ukrainian-refugees-1.5795900)
 
  
 
