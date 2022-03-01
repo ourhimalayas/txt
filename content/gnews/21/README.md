@@ -2,35 +2,59 @@
 ---
 
 
-## 【秘翻在线】乌克兰总统已正式提出乌克兰加入欧盟的请求
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2083938/)
+## 2022年3月1日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2084143/)
 
-**撰稿：Grace**
+撰稿人：文远Bruce
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-37.jpg)
+**新中国联邦在行动救人**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-6.jpg)
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-28-at-8.31.43-PM.jpeg)图片来源：slobodenpecat
-据《新闻周刊》(Newsweek) 2月28日报道，乌克兰总统沃洛基米尔·泽伦斯基已正式提出乌克兰加入欧盟的请求。
 
-据路透社报道，在乌克兰持续抵抗俄军的入侵中，泽伦斯基要求按照特殊程序快速加入该集团。
+**1.瑞士冻结俄罗斯资产**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-6.jpg)
+**2.纳斯达克禁止俄罗斯股票交易**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-5.jpg)
+**3.美国财政部冻结俄罗斯央行在美国资产**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-7.jpg)
+**4.BP巨亏250亿美元，仍然坚持退出俄罗斯石油公司**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-8.jpg)
+**5. 中共国两大银行停止发放给俄罗斯美元信用证。中南坑老杂毛正在瑟瑟发抖，下一个就是他们。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-15.jpg)
 
-他在从乌克兰首都基辅转播的一次演讲中说：“我们的目标是与所有欧洲人在一起，最重要的是，要平等。我确信这很公平。我确信我们值得拥有它。”
 
-据自由欧洲电台报道，德国外交部长安娜莱娜·贝尔博克(Annalena Baerbock)在泽伦斯基讲话数小时后说，加入欧盟不是几个月就能实现的事情，并补充说，乌克兰是 “欧洲之家” 的一部分，并受到欢迎。
+**6.** **台积电停止向俄罗斯交付芯片**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-15.jpg)
+**7.莫斯科禁止股票交易**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-11.jpg)
 
-报道称，欧盟的成员资格有几个关键的好处，如单一市场，“使大多数货物、服务、资金和人员能够在整个欧洲大陆的大部分地区自由流动”。
 
-而且，所有欧盟公民都可以在任何成员国学习、工作或退休，而所有欧盟国家都必须在 “就业、社会保障和税收方面 ”对外国公民与本国公民一视同仁。
+**8.欧元兑美元多仓规模增长到84亿美元，为2021年8月以来最大看涨押注。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-9.jpg)
 
-欧盟的单一通用货币–欧元，也减轻了货币波动的风险，避免了货币兑换的额外费用。
 
-另一方面，报道称，自俄罗斯入侵以来，已有数十万乌克兰人逃离该国，而且这一数字可能会进一步增长。据《新闻周刊》此前的报道，联合国机构估计，俄军的入侵可能导致约500万难民从乌克兰逃离。
+**9.** **马斯克紧急开通乌克兰星链服务**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-7.jpg)
+**10. 德国继5000顶头盔之后向乌克兰提供1000枚反坦克导弹**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-6.jpg)
 
-大多数已经逃离的乌克兰公民已经进入摩尔多瓦、波兰和罗马尼亚等邻国。波兰和罗马尼亚都是欧盟的一部分。
 
-报道认为，乌克兰公民在欧洲国家自由流动的能力可能是对泽伦斯基和其他领导人的一个特别强大的吸引力。
+**11.德国数十万民众游行支持乌克兰，德国宣布增加国防预算**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide13-6.jpg)
 
-**新闻来源：**** **[Zelensky Files Application for Ukraine to Join European Union](https://www.newsweek.com/zelensky-files-application-ukraine-join-european-union-1683310)
 
+**12.普京命令俄罗斯核武器做好准备，局势升级**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide14-6.jpg)
+
+
+**13.** **俄罗斯攻击乌克兰机场，世界最大货机Mriya被摧毁**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide15-3.jpg)
+**13.MIT工程师发明比钢坚固的塑料**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide16-2.jpg)
+
+
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

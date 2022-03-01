@@ -2,21 +2,43 @@
 ---
 
 
-## 美国驱逐12名驻纽约联合国总部俄外交人员 称其从事间谍活动
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2083861/)
+## 有声|西方同意将俄罗斯主要银行踢出SWIFT
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2084107/)
 
-撰稿：追着曙光跑
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+周六，美国、欧洲盟国和加拿大同意将俄罗斯的主要银行从SWIFT 中移除，这一举措将把俄罗斯从全球金融体系的大部分地区中分离出来。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_2672.jpg)
+虽然美国和欧洲官员明确表示，他们仍在制定如何实施最新制裁的机制，并避免影响俄罗斯的石油和天然气出口，但总的来说，这些制裁有可能成为对一个国最严厉的制裁。如果按计划全面实施，这些措施将严重损害俄罗斯经济，并明显限制其进出口货物的能力。
 
-据华尔街日报3月1日的报道，美国正在驱逐俄罗斯派驻纽约联合国的12名外交官人员，称他们是情报人员。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-03-01-at-10.27.57.jpeg)图片来源：网络
-美国驻联合国大使琳达·托马斯-格林菲尔德的发言人称，美国正在开始驱逐俄罗斯代表团的12名情报人员，他们滥用在美国的居住特权，从事不利于美国国家安全的间谍活动。
+美国官员表示这一举措将导致俄罗斯卢布大幅贬值，并推动俄罗斯经济的通胀飙升，由此产生的经济混乱可能会让普京在国内面临政治动荡。
 
-另外，他指出，驱逐行动已经开展了几个月，这一行动是根据允许美国作为联合国总部东道国的协议进行的。
+宣布这一消息后，乌克兰总理什米哈尔对这项措施表示欢迎。
 
-信息来源：[美国驱逐12名俄罗斯驻联合国外交官，称其从事间谍活动](https://cn.wsj.com/amp/articles/%E7%BE%8E%E5%9B%BD%E9%A9%B1%E9%80%9012%E5%90%8D%E4%BF%84%E7%BD%97%E6%96%AF%E9%A9%BB%E8%81%94%E5%90%88%E5%9B%BD%E5%A4%96%E4%BA%A4%E5%AE%98-%E7%A7%B0%E5%85%B6%E4%BB%8E%E4%BA%8B%E9%97%B4%E8%B0%8D%E6%B4%BB%E5%8A%A8-11646089862)
-[12 members of Russia’s UN mission expelled from US: Russian ambassador](https://insiderpaper.com/12-members-of-russias-un-mission-expelled-from-us-russian-ambassador/)
+此外，美国及其盟国宣布将实施限制性措施，以防止俄罗斯央行以可能破坏制裁的方式部署其国际储备。
+
+一位高级政府官员在周六晚间与记者的电话中表示，俄罗斯将立即感受到这些制裁的影响。
 
 
+
+文字版原文：[西方同意将俄罗斯主要银行踢出SWIFT](https://gnews.org/zh-hans/2081940/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

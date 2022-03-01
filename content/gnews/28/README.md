@@ -2,20 +2,20 @@
 ---
 
 
-## 欧盟提出将俄罗斯银行踢出SWIFT的计划
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2083757/)
+## SpaceX公司的卫星互联网服务设备已抵达乌克兰
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2083847/)
 
-欧盟委员会主席乌尔苏拉·冯德莱恩周六宣布计划在俄罗斯入侵乌克兰期间将几家俄罗斯银行从 SWIFT 国际银行系统中剔除
-https://theglobalherald.com/business/eu-lays-out-plans-to-kick-russian-banks-out-of-swift/
-欧盟提出将俄罗斯银行踢出SWIFT的计划。我将向欧盟领导人提议采取以下措施。
+撰稿：西枫westca
 
-首先，我们承诺确保一定数量的俄罗斯银行。从SWIFT中剔除。确保这些银行与国际金融系统脱钩，并削弱其在全球范围内的营运能力。SWIFT是主导全球银行间的支付系统。切断银行将阻止俄罗斯进行大部分在世界各地的金融交易。有效地阻止俄罗斯的进出口。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-20.jpg)图片来源：twitter
+据美联社2月28日报道，乌克兰数字转型部长Mykhailo Fedorov说SpaceX公司Starlink卫星互联网服务的设备已经抵达他的国家。他在推特上感谢SpaceX创始人Elon Musk提供的设备，并附上了一张卡车后面的箱子的照片。
 
-第二，我们将阻止普京使用他的战争资金。我们将瘫痪俄罗斯中央银行的资产。这将冻结其交易并使中央银行不可能清算资产。最后，我们将努力禁止俄罗斯的寡头们在我们的市场上使用他们的金融资产。所有这些措施将大大削弱普京为其战争融资的能力将对俄罗斯的经济产生严重的削弱影响。
+马斯克用自己的推特回复说。”不客气。并说在乌克兰公开要求提供该服务之后更多的设备也在路上。
 
-普京走上了一条摧毁乌克兰的道路，但他实际上也是在摧毁他自己国家的未来。
+乌克兰的互联网因俄罗斯的入侵而中断。 而Starlink是一个基于卫星的互联网系统，SpaceX公司多年来一直在建设这个系统，为世界上服务不足的地区提供互联网接入。它将自己推销为 “非常适合 “互联网服务不可靠或无法使用的地区“。
 
-视频剪辑/翻译：烟波浩淼 | 校对： Polaris| 视频制作/字幕：芥末 | 编辑：FiLa文新心 |发布：断播
+**新闻来源：**[Live updates: Ukraine says Starlink equipment has arrived | AP News](https://apnews.com/article/russia-ukraine-war-live-updates-ee7cdf19bdab43a22cb1391c98c62b4d)
 
  
 

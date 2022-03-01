@@ -2,43 +2,33 @@
 ---
 
 
-## 有声|西方同意将俄罗斯主要银行踢出SWIFT
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2084107/)
+## 大直播后记：七哥担心家人同事朋友的安危
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2084269/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-周六，美国、欧洲盟国和加拿大同意将俄罗斯的主要银行从SWIFT 中移除，这一举措将把俄罗斯从全球金融体系的大部分地区中分离出来。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_2672.jpg)
-虽然美国和欧洲官员明确表示，他们仍在制定如何实施最新制裁的机制，并避免影响俄罗斯的石油和天然气出口，但总的来说，这些制裁有可能成为对一个国最严厉的制裁。如果按计划全面实施，这些措施将严重损害俄罗斯经济，并明显限制其进出口货物的能力。
+#### 整理：流氓兔、hys
+编辑：Mohegayer K. Simon
 
-美国官员表示这一举措将导致俄罗斯卢布大幅贬值，并推动俄罗斯经济的通胀飙升，由此产生的经济混乱可能会让普京在国内面临政治动荡。
-
-宣布这一消息后，乌克兰总理什米哈尔对这项措施表示欢迎。
-
-此外，美国及其盟国宣布将实施限制性措施，以防止俄罗斯央行以可能破坏制裁的方式部署其国际储备。
-
-一位高级政府官员在周六晚间与记者的电话中表示，俄罗斯将立即感受到这些制裁的影响。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-43.png)
 
 
+几天有时候想想我的国内的同事家人，我都不知道怎么好，我也没办法都弄出来。怎么让这些人平安呢？像我的同事，杨英，我最近老梦见她，为什么，还带着脚镣手铐呢，就是电子脚镣呢，带了五、六年了，在里边呆了三、四年。她一个财务会计上哪儿去找工作。中国人有多现实，哪有像西方人还有个勇敢的人士站出来。中国人是一面倒的懦弱，自私，欺负弱小，杨英能有工作吗？她咋活呢？
 
-文字版原文：[西方同意将俄罗斯主要银行踢出SWIFT](https://gnews.org/zh-hans/2081940/)
+我们原来的跟我出来的马成，杨克，赵广东，吕涛，这些高管都在监狱待了四、五年才出来。他们过去跟着我混都有一个亿呀、8000万的，几千万的个人资产，但是一旦这个事情发生以后，你这些钱不是钱了，他们咋活呀？还有我这些家人，哥哥嫂子侄子的，还有这所有的这些亲人，还有这些裕达、盘古这些老员工。都有点儿钱，但是都被抢走了，以后怎么活呢？我是愁这些事情。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+另外一个确确实实担心的，就是台湾我有很多的朋友，这个台湾战争来了以后，他们咋办？他们不都是有钱的，很多原来跟我认识，都是台湾普普通通的过着很稳定的日子，但战争一来他们咋办？你知道李祖原大师都七八十岁了，他不出来咋办呢？在台湾，他那个人是个佛教徒，天真的跟孩子一样。真要发生战争，他会很惨的。这是七哥担心的。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+但是我不相信中国有多少人能醒过来。更大的悲剧是中国人在一片叫好，很多人以为我能打台湾，打台湾管你个鸟事。对你半点好处都没有，对你只是有坏处。对任何中国人，你动了台湾了，说实在话它就像一个诅咒一样。你动了台湾，大家全完。台湾只有好好呆在那儿，符合所有人的利益。台湾好，所有人都好，全世界都好。中国人每个人都好。但是很悲剧，可能很多人要付出代价。全家永远地彻底地被消灭的代价。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+资料来源：[2022年2月27日文贵大直播](https://gtv.org/video/id=621b7633019ef64da651ee6c)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+发布：*wenly*
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

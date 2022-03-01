@@ -2,59 +2,53 @@
 ---
 
 
-## 2022年3月1日新闻集
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2084143/)
+## 全球最大黑客组织“匿名者”向俄罗斯宣战
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2084319/)
 
-撰稿人：文远Bruce
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-37.jpg)
-**新中国联邦在行动救人**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-6.jpg)
+![Anonymous hacks Russian website, Linux terminal, and nearly ignites gas control system](https://image.taiwannews.com.tw/photos/2022/02/27/1645954702-621b468ef164c.png)污损的 Linux 终端。 （匿名截图）
+台湾英文新闻2022年02月27日台北报道，为了回应俄罗斯对乌克兰的入侵，去中心化国际黑客组织“匿名者”入侵了俄罗斯的网站和Linux终端，几乎引爆了一个工业燃气控制系统。
 
+周六（2月26日），“匿名者”在两天内第二次入侵古迹保护中心网站，并上传了一个以乌克兰国旗的蓝色和黄色为特色的流氓页面，并包含一些毁损，包括俄罗斯的一个Linux终端和俄罗斯境内北奥塞梯共和国的一个工业燃气控制系统的截图。在发表文章时，这个被篡改的网页仍在网上，但如果它被删除，匿名者已在互联网档案馆(Web Archive)保存了一个存档的版本。
 
-**1.瑞士冻结俄罗斯资产**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-6.jpg)
-**2.纳斯达克禁止俄罗斯股票交易**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-5.jpg)
-**3.美国财政部冻结俄罗斯央行在美国资产**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-7.jpg)
-**4.BP巨亏250亿美元，仍然坚持退出俄罗斯石油公司**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-8.jpg)
-**5. 中共国两大银行停止发放给俄罗斯美元信用证。中南坑老杂毛正在瑟瑟发抖，下一个就是他们。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-15.jpg)
+出现的第一张图片是“匿名者”的徽标，紧接着是一张盖伊·福克斯(Guy Fawkes)的面具图片。接下来是一段视频，显示了乌克兰总统沃洛基米尔·泽伦斯基(Volodymyr Zelenskyy)在周五（2月25日）上传的一段反抗性演讲，以回应前一天开始的俄罗斯的入侵行为。
 
+然后，该组织用亮蓝色的文字解释说，它已经入侵了一个俄罗斯的Linux终端，并附上一张截图，显示与保护古迹中心网站类似的毁损。据一位与台湾新闻网联系的匿名者代表说，他们还访问了北奥塞梯诺吉尔的一个燃气控制系统。
 
-**6.** **台积电停止向俄罗斯交付芯片**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-15.jpg)
-**7.莫斯科禁止股票交易**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-11.jpg)
+从一系列13张截图中可以看出，黑客们成功地访问了俄罗斯南部共和国的燃气控制系统，该系统由意大利公司Fornovo Gas制造。“匿名者”表示，他们已经修改了系统上的数据，“几乎使其燃气压力变得高到可以变成烟花！”
 
+然而，他们指出，一个“行动迅速的人类控制器”已经设法重写了“匿名者”篡改的设置，防止了一场灾难性的事故。在燃气控制软件应用程序的前端，他们在名为“E-mailing”的一栏中添加了以下标语：“我们是匿名者。我们是军团。我们不原谅。我们不忘记。期待我们。”
 
-**8.欧元兑美元多仓规模增长到84亿美元，为2021年8月以来最大看涨押注。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-9.jpg)
+在右侧另一列名为“SMS”的栏目中，该组织添加了几个主题标签，包括“#光荣属于乌克兰(#SlavaUkraini), 反对俄罗斯(#OpRussia)，普京(#OpRussia, Putin)#史诗般的失败(#EpikFAil),/r/opukraine”，后者是[红迪](https://www.reddit.com/r/OpUkraine/)(Reddit)页面的位置，列出了“匿名者”在网络战争中对俄罗斯的最新攻击，以报复其对乌克兰的入侵。
 
+在提议就乌克兰采取中立立场进行谈判时，黑客们声称仅让乌克兰保持中立是不公平的，而是呼吁建立一个“夹在北约和俄罗斯之间”的国家的“中立集团”，其中包括乌克兰、芬兰、白俄罗斯、格鲁吉亚、亚美尼亚、阿塞拜疆和摩尔多瓦。该组织认为，这条“中立安全地带”可以作为一个类似于北约或独联体集体安全条约组织(CSTO)的联盟，声称这样一个集团将作为一个警戒线，“在北约不失面子的情况下缓解俄罗斯的恐惧”。
 
-**9.** **马斯克紧急开通乌克兰星链服务**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-7.jpg)
-**10. 德国继5000顶头盔之后向乌克兰提供1000枚反坦克导弹**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-6.jpg)
+在一段嵌入的油管(YouTube)视频中，一个戴着盖伊·福克斯面具的蒙面人要求在乌克兰的顿巴斯地区就其最终命运举行公投。该人物建议就是否“遵循和平协议或将顿巴斯的领土移交给联合国维和部队管理部门”举行公投。
 
+这位发言人建议，随着时间的推移，可以就顿巴斯地区是否会“以北爱尔兰式的地位”与乌克兰统一、成为一个独立国家或者加入俄罗斯举行全民公决。至于北约在保加利亚和罗马尼亚的部队，他们建议恢复《开放天空条约》的概念，以“帮助确保部队部署在彼此可容忍的水平上”。
 
-**11.德国数十万民众游行支持乌克兰，德国宣布增加国防预算**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide13-6.jpg)
+然而，该视频警告说，如果乌克兰的局势继续恶化，“我们可以挟持工业控制系统”。该代表指着俄罗斯说，“如果我们就此升级，唯一应该受到指责的一方将是一开始就以增兵、幼稚的威胁和一波又一波不合理的最后通牒开始它的一方”。
 
+简评：
 
-**12.普京命令俄罗斯核武器做好准备，局势升级**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide14-6.jpg)
+乌克兰战局不利，普京命令核威慑力量进入特殊战备状态，俄罗斯反应越强烈，代表俄罗斯的处境越糟糕。这场俄罗斯入侵乌克兰的战争中，参战的不仅仅只有俄罗斯和乌克兰的军民，还包括其他各国家的普通民众。在欧洲，美国，日本甚至俄罗斯本国，都有许多人站出来反对俄罗斯入侵乌克兰，并呼吁自己的政府制裁俄罗斯，援助乌克兰。国际黑客组织“匿名者”的做法是普通民众对乌克兰抵抗俄罗斯战争的一场网络援助。虽然俄罗斯从中共政府手里拿走了巨额的战争资金，但美欧各国对俄罗斯的金融制裁，已经使俄罗斯卢布下跌了近40%。再加上乌克兰人民的不屈不挠，奋勇抗争，如果俄罗斯不能短时间内结束这场战争，其因此遭受的长期经济损失无法估量。现在俄罗斯人民应该认真思考，俄罗斯是否有必要付出如此大的代价侵略乌克兰？或者俄罗斯人民是否有必要推翻普京的独裁统治，重修俄罗斯与北约以及其他国家的和平关系。
+
+新闻链接:[https://www.taiwannews.com.tw/en/news/4457026](https://www.taiwannews.com.tw/en/news/4457026)
+
+翻译/简评: kkoto(芬兰大灰狼)
+
+PR: Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-**13.** **俄罗斯攻击乌克兰机场，世界最大货机Mriya被摧毁**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide15-3.jpg)
-**13.MIT工程师发明比钢坚固的塑料**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide16-2.jpg)
+编辑：【英国伦敦喜庄园编辑部】
 
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
