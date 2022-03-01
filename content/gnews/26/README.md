@@ -2,18 +2,12 @@
 ---
 
 
-## 西媒头条 — 第182期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2087840/)
+## 拜登谈对俄政策的两个选项
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2088096/)
 
-**制作：蚂蚁兄弟**
+02/27/2022 拜登在谈到对俄政策时表示：你有两个选择，发动第三次世界大战，与俄罗斯开战；或者确保一个如此违反国际法的国家最终为其行为付出代价。
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220301.001.jpeg)
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜.jpeg)
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

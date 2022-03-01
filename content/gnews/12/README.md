@@ -2,34 +2,38 @@
 ---
 
 
-## 普京启动核武威慑 东西方世界局势恶化
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2088113/)
+## 有声|普京企图利用核讹诈对抗美欧经济制裁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2088363/)
 
-撰稿：纽约香草山农场 – 文鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1.png)
-2月27日据外媒报道，普京启动俄国防战略威慑力量，核武器进入高等级战略值班。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2月27日，外媒报道，普京已下令俄罗斯核威慑力量进入高度戒备状态。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-10.jpeg)
+据报道，普京在与高级官员举行的会议上说，北约主要大国发表了 “侵略性声明”，同时西方国家联合对俄罗斯实施了严厉的金融制裁。普京已命令俄罗斯国防部长和军方总参谋长，将核威慑力量置于 “特别战斗值班制度”中。普京以此暗示，会以核威胁来应对西方国家的制裁。
 
-当日，普京听取俄国防部长和俄军总参谋长汇报后，下令核武器战略力量进入高等级战斗状态。该条令依据2021年7月3日俄罗斯联邦颁布的《俄罗斯联邦国家安全战略》，允许俄罗斯政府在其国土遭到外部入侵或国家核心利益遭到威胁时，保留使用核武器权力。
-![](https://x0.ifengimg.com/ucms/2022_10/C7C315088347C62F1F2B4B8AF9E1039B965AC649_size96_w690_h388.jpg)图片来自：https://mil.ifeng.com/
-普京发动的侵略乌克兰战争，已经造成乌克兰人道危机灾难，乌克兰军民的顽强抵抗，让俄军伤亡惨重军事行动受阻。
+郭文贵先生在27日大直播中特别强调，俄罗斯完全低估了乌克兰的实力，用最传统的战争方式进攻乌克兰，企图用最短的时间占领基辅，却遭到乌克兰人的顽强抵抗，使俄军损失惨重，也令世界跌破眼镜。俄方接下来会不惜一切代价，甚至可能动用核武器。如果不能停战，乌克兰的局势将会非常惨烈。
 
-分析人士指出，普京如果出现误判，事情会更危险。俄核武器的威慑，只会恶化东西方世界局势。
 
-新闻链接：[Putin puts nuclear forces on high alert, escalating tensions](https://apnews.com/article/russia-ukraine-kyiv-business-europe-moscow-2e4e1cf784f22b6afbe5a2f936725550)
 
-[前哨站｜普京宣布“俄战略威慑力量转入特殊战备状态”意味着什么？](https://mil.ifeng.com/c/8Dz5UX4ssvJ)
+文字版原文：[普京企图利用核讹诈对抗美欧经济制裁](https://gnews.org/zh-hans/2082305/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-5.jpg)
-
-校正/发稿：浪迹天涯
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

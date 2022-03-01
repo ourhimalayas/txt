@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/1/2022 3:04 PM (UTC)`
+
+3月1号：尊敬的战友们好，俄乌战争已经彻底的改变了世界……非常可悲的事情，中国人成了全世界最被恨的人，甚至要成为最孤立最被仇恨的族类，这是什么原因呢？
+![img](https://media.gettr.com/group21/getter/2022/03/01/15/4574b527-9873-34da-1daf-0684bc268d91/out.jpg)
+
+---
+
 `@miles 3/1/2022 6:44 AM (UTC)`
 
 2/27/2022 Miles Guo: Xi’s determination to invade Taiwan does not contradict his holding the Two Sessions. The success of Ukraine’s media information warfare, technology warfare, and cyber warfare has had a huge impact on the CCP, which further affected the CCP’s choice of the military strategy to attack Taiwan. The CCP will be destroyed by its falsification and deception.<br/><br/>2/27/2022 文贵直播: 习近平执意打台湾和开两会并不矛盾；乌克兰的媒体信息战、科技战和网络战的成功对中共触动很大，进而影响到中共对台作战的战略；中共将毁于它的假和骗！<br/>
@@ -147,13 +154,6 @@
 
 2月27号：我尺R你共产党人八倍祖宗，救你们的家人就安全有条件！救我们老百姓就是条件不允许？【为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。<br/><br/>救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。<br/><br/>24小时救援联系方式如下：<br/><br/>邮箱：<br/>ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO<br/>电话和短信：+1 720-657-6776 或 +1 719-224-4232<br/><br/>新中国联邦<br/>法治基金 <br/>2022年2月26日<br/><br/><br/>In response to the current Ukraine crisis, the New Federal State of China and the Rule of Law Foundation are to cooperate with UN aid organizations to offer international humanitarian rescue assistance to those in need of voluntary evacuation. Free of charge flights will be arranged to help evacuate persons in need to certain safe transit countries, and accommodation without charge will be offered for up to 30 days. Eligible persons may 】
 ![img](https://media.gettr.com/group11/getter/2022/02/27/17/b2ce0bc4-eb24-7827-bd47-eae8d877a53f/out.jpg)
-
----
-
-`@miles 2/27/2022 5:01 PM (UTC)`
-
-2月27号：肉窝饼来了……吃饭饭喽……
-![img](https://media.gettr.com/group26/getter/2022/02/27/17/76ad0984-9b03-860b-097e-e98a4ca16203/out.jpg)
 
 ---
 

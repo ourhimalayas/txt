@@ -2,38 +2,29 @@
 ---
 
 
-## 纽约市将取消对企业、活动的疫苗接种强制令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2088060/)
+## 秘翻在线：卫星影像曝俄军车绵延64公里袭基輔 乌东亲俄叛军领袖：今日包围马里乌波尔
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2088248/)
 
-##### 翻译：攀登者
-编辑：Mttfly
+**翻译：明澈**
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/埃里克·亚当斯.jpg)纽约市市长埃里克·亚当斯在纽约举行的纽约州民主大会上发言，2022.2.17。 （AP Photo/Seth Wenig）& 雅典娜设计组
-纽约市是美国第一个要求室内场所必须接种疫苗的大都市，但是现在将在未来几天取消对室内商业、餐饮和活动的接种要求。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-01-222707.jpg)
+综合外媒3月1日消息，美国民间企业马萨尔科技（Maxar Technologies）表示，今天的卫星影像显示，俄罗斯军车队伍出现在乌克兰首都基辅北方绵延长达约64公里。白俄罗斯南部也可看到，在位于乌克兰边境北方不到32公里处，已经部署了更多地面部队和地面攻击直升机队。美方预估俄军将在近日包围基辅。有报道指出，此前因为进度缓慢而感到挫败的俄军可能会更有侵略性。
 
-市长埃里克·亚当斯（Eric Adams）周日（2月27日）宣布，只要新冠病毒病例数量继续下降，他的政府将于3月7日结束疫苗强制接种要求。他也加入了最近几周在西雅图和波士顿等城市做出类似决定的政府官员的行列中。并表示，如果没有意外激增，公立学校也将在同一天取消室内强制戴口罩的规定。
+俄罗斯入侵乌克兰已进入第6天，乌克兰哈尔科夫州（Kharkiv）州长西涅古波夫（Oleg Synegubov）表示，俄军飞弹击中乌克兰第二大城市哈尔科夫市中心，俄罗斯炮击造成数十名包含儿童在内的平民死亡。俄军对哈尔科夫市发射格勒式火箭（GRAD）和巡弋飞弹，击中住宅区和州政府大楼，但乌方坚持守住这座城市。这类攻击是对乌克兰人民的大屠杀，对平民百姓犯下战争罪！此外，他还分享了一段哈尔科夫州政府大楼遭飞弹击中爆炸的影片。
 
-亚当斯宣布：“纽约市的感染数字日复一日地下降，所以只要新冠病毒指标显示风险水平较低，而且我们本周没有看到任何意外，我们也会在3月7日星期一取消‘Key to NYC’的要求。”这将给企业主适应的时间，并使我们能够确保我们为纽约人民做出最好的公共卫生决策。
+乌克兰马里乌波尔市市长周二上午表示，随着俄罗斯的入侵，这座南部港口城市不断遭到炮击，导致平民死亡，基础设施受损，就连民宅区也难逃战火摧残，被炮击五天。俄罗斯出动炮兵、导弹和空军部队持续向平民发动攻击。平民建筑设施，如学校和房屋等被毁坏。很多人受伤，还有妇女和孩子被杀害。
 
-“Key to NYC”指，18岁及以上的人还需要在出示身份证明的同时，出示他们的疫苗接种证明。这些要求也意味着在这些地方工作的雇员必须接种疫苗。
+据最新消息显示，由于面临俄罗斯军队的进攻，马里乌波尔市已经遭断电。乌国东部亲俄叛军领袖更直言，今日任务为直接包围这座城市。
 
-虽然疫苗接种要求并不总是得到执行，但疫苗接种要求适用于餐厅、酒吧、夜总会、咖啡店、快餐店、室内健身场所、电影院、音乐和音乐会场所、博物馆、体育场馆和体育场馆、剧院和台球馆等。
+随着战争的推进俄罗斯受到各种制裁，包括冻结俄罗斯高官财产、将卢布踢出SWIFT国际支付系统、欧洲能源业巨擘壳牌和英国石油将退出俄罗斯等。这一系列制裁引发全球期货股市波动，法国天然气苏伊士集团（Engie）股价今天在巴黎股市早盘应声重挫5%。
 
-亚当斯表示，他正在周三的经济发展新闻发布会上急切地计划结束这场疫情。他说，他每天都会见卫生专家，他们提供了该市在结束疫情、恢复正常状态之前应该达到的结构和基准。
+此外，欧洲足球管理机构欧足联取消了俄罗斯国家天然气巨头Gazprom的赞助，据称该公司每个赛季的赞助费为4000万欧元，欧足联和国际足联FIFA暂停了所有俄罗斯球队的比赛，直至进一步通知。
 
-Adams说：“我们不能再封锁城市了，我不会冒险做一些再次关闭这座城市的事情。我们的经济无法应付。我们没有110亿美元的钱可以再次复苏经济。我们必须明智地做这件事。”
-
-新闻链接：[New York City to lift vaccination mandate for businesses, events](https://www.nbcnews.com/news/us-news/new-york-city-lifts-vaccine-mandate-businesses-events-rcna17415)
-
-*发布：Mttfly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+相反，乌克兰得到了意料之外的支持，除了各国提供资金、武器、加密货币、国际知名骇客组织匿名者更对俄罗斯公开宣战，瘫痪俄国多个官方网站、公布其国防资料等。美国高科技公司微软表示，它已经向乌克兰官员提供了有关一系列相关情报及防御的建议，并向乌克兰政府提供了有关网络数据盗窃企图的建议。
+**
+新闻来源：**[https://www.straitstimes.com/world/russia-pounds-ukraines-second-biggest-city-as-fighting-rages-on](https://www.straitstimes.com/world/russia-pounds-ukraines-second-biggest-city-as-fighting-rages-on)
+[https://www.dailyfreeman.com/2022/02/28/live-updates-satellite-photos-show-much-longer-convoy/](https://www.dailyfreeman.com/2022/02/28/live-updates-satellite-photos-show-much-longer-convoy/)
 
  
 
