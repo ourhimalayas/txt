@@ -2,10 +2,10 @@
 ---
 
 
-## 西方在俄乌问题上的软弱会鼓励中共侵占台湾
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2084521/)
+## 乌克兰公民同坦克燃料耗尽的俄罗斯士兵对峙
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2084574/)
 
-02/23/2022 印媒WION：西方在俄乌问题上的软弱会鼓励中共侵占台湾
+02/26/2022 一名乌克兰公民在俄罗斯士兵的装甲车在靠近俄罗斯边境的苏米地区的一条乡村道路上抛锚后与俄罗斯士兵的幽默对话
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 

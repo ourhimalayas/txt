@@ -2,21 +2,23 @@
 ---
 
 
-## 雅典娜时报-第219期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2084928/)
+## 郭文贵精品视频-习近平放下屠刀为时不晚，否则几种死法等着他
+` cindy` [轉載自GNews](https://gnews.org/zh-hans/2084985/)
 
-#### 《雅典娜时报》汇聚全球新闻时事
+**撰稿：澳喜：cindy**
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/825592691433668612/947885567306252288/155.png?width=763&amp;height=1136)![圖片](https://media.discordapp.net/attachments/825592691433668612/947885567809577020/155_1.png?width=763&amp;height=1136)
-*发布：陶子*
+习近平、普京从2010年就已经开始的谋划，几天前由普京开始实施，打响了第一炮-入侵乌克兰。从郭先生得到的情报，知道习近平将很快跟进入侵台湾！
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+郭先生说：“中共打台湾可能有3招：1) 所谓台胞代表请求中共派兵到台湾铲除台独分子；2) 围而不打，让台湾崩溃；3) 迅速占岛。
+
+从这几天普京入侵乌克兰的局势来看，习普原来的设想并没有那么顺利，遇到了顽强的抵抗。乌克兰的总统并没有被吓跑，而令人刮目相看的却是他展现出的大国领袖的风范，既不怨天尤人，埋怨欧美对他们的背信弃义，而是用真情打动国际社会的良心政要。他用具有新意的媒体战法带领国人击退了俄军一次次的炮弹的袭击，赢得了国际社会的赞赏，都纷纷积极的出台各种对普京的强有力的金融制裁-欧美多国切断了普京及主要头目的SWIFT资金流通渠道。
+
+西方国家对侵略者普京的切断金融支付渠道已经开了先河，只要习近平再效仿普京，毫无疑问会得到同样的下场。你纵然有你自己的数字人民币，那只能在你的国内内部流通，最多和你那几个狐朋狗友的小兄弟国家流通一点。14亿人口的粮食、高科技的芯片等各种贸易所需的支付都将无法解决。最后就是死路一条。现在立即放下屠刀，悬崖勒马回头是岸！否则上面列举的几种死法等着“习太阳”去体验。
+
+*编辑：cindy*
+
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
 
  
 

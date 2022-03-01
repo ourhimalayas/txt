@@ -2,30 +2,12 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月28日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2084514/)
+## 本届政府的领导力让普京相信，他再造苏联的梦想是可以实现的
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2084536/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Gnews-image-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-20.png)
+02/22/2022 麦克·彭培奥：普京复辟大苏联和制造个人影响力的远见从未改变，而那将需要一个团结的欧洲共同面对这个问题。
 
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gtv.org/broadcast/watch/621d7c43019ef64da6530f17](https://gtv.org/broadcast/watch/621d7c43019ef64da6530f17)
-访谈：[https://gtv.org/broadcast/watch/621d8434019ef64da65313cd](https://gtv.org/broadcast/watch/621d8434019ef64da65313cd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4-5.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

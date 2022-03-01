@@ -2,32 +2,32 @@
 ---
 
 
-## 日本将制裁包括普京在内的俄政府官员
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2084868/)
+## 俄乌战争 中共立场致在乌华人危险 遭媒体点名指责
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2084962/)
 
-作者：首尔天池农场-八木
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月27日，日本首相岸田文雄在记者会上表示，决定对俄罗斯总统普京和主要俄政府官员，采取冻结金融资产等制裁措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-28-下午10.56.46.png)
-岸田文雄称，俄罗斯对乌克兰的入侵行动，是单方面企图用武力改变现状，这动摇了国际秩序的基础。日方将坚决和美欧等国一道阻止俄罗斯被制裁的银行机构，进入SWIFT国际结算系统。
+**撰稿：日本东京方舟农场 Kevin wang**
 
-据悉，日本政府还将继续向乌克兰提供紧急人道主义援助。
+近日，俄乌战乱持续，中共政府从乌国撤侨的计划未有任何实质进展，并加强与俄亲密关系，中共党媒报道时仍宣传亲俄观点，致在乌华人危险，中共政府对俄乌危机的处置方式随即遭到媒体点名指责。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-147.png)（图片来自网络）
+据中央社援引CNN报道称，俄乌开战至今，中共政府从乌国撤侨的计划未有任何实质进展，但中共政府官媒仍宣传亲俄观点 ，至今未公开谴责俄国，网络上支持乌克兰及其总统泽伦斯基的贴文则遭到审查，中共政府此举可能致在乌华人于危险之中。
 
-参考链接：[Japan freezes Putin’s assets, joins SWIFT sanction](https://www3.nhk.or.jp/nhkworld/en/news/20220227_27/amp.html)
+报道指出，有别于许多他国公民，这些中国公民在俄乌开战前未收到离开乌克兰的指示，当美国及其盟友警告俄国攻击迫在眉睫时，中共政府官员拒绝听从。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+中共政府还放任受其监管的自媒体发布羞辱乌克兰女性的信息，让当地华人倍感恐惧，对自身安危表达担忧。
 
-总编：文真
-编辑：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+报道称，旅居乌克兰的华裔影片部落客孙光表示：我不认为，乌克兰现今局势对中国人是安全的，当他们看到我的中国脸孔时，马上认为我是在当地进行破坏，或是觉得我支持俄罗斯。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+孙光还表示，他当天早些时候外出采买杂货时，遭到几名当地居民拦阻及质问。孙光已在乌克兰定居20年，娶乌克兰人为妻，并在当地成家立业。
+
+据悉，新中国联邦创始人郭文贵27日早上宣布，为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。 救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人，并留下了联系方式。
+
+参考链接：
+[https://www.cna.com.tw/news/aopl/202201270035.aspx](https://www.cna.com.tw/news/aopl/202201270035.aspx)
+
+素材采编：Kevin wang
+编辑： 老孙
+发布：小斐
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

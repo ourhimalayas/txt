@@ -2,28 +2,32 @@
 ---
 
 
-## 大直播后记：中华优良传统在台湾，打台湾就是自己打自己
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2084822/)
+## 日本将制裁包括普京在内的俄政府官员
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2084868/)
 
-整理：馨馨、铁血丹心
-编辑：花岗岩
+作者：首尔天池农场-八木
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月27日，日本首相岸田文雄在记者会上表示，决定对俄罗斯总统普京和主要俄政府官员，采取冻结金融资产等制裁措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-28-下午10.56.46.png)
+岸田文雄称，俄罗斯对乌克兰的入侵行动，是单方面企图用武力改变现状，这动摇了国际秩序的基础。日方将坚决和美欧等国一道阻止俄罗斯被制裁的银行机构，进入SWIFT国际结算系统。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-28.png)图片来源：奥雅设计组（614）
+据悉，日本政府还将继续向乌克兰提供紧急人道主义援助。
 
+参考链接：[Japan freezes Putin’s assets, joins SWIFT sanction](https://www3.nhk.or.jp/nhkworld/en/news/20220227_27/amp.html)
 
-你打台湾打回台湾，关你个鸟事！这一句话不是我说的，是当年的炮兵部的部长说的。我说中国咋不把台湾收回来呀？你们俩为啥不说收不了啊？ 人（家）一句话，小子为什么要收回台湾？收回台湾管你个鸟事儿！我在后面，这勤务员背着水，我说首长你不想收台湾? 收台湾管你个鸟事！说了4遍，老头脸都绿红了，我说你们家人都在台湾? 没有！你怕打台湾? 不是！你没能力? 不是！好好学习（吧），打越南是他去的，他说你知道吗？打台湾就是自己打自己，严格讲不是打亲兄弟姐妹，他说就是把自己家房子烧了，把自己爹妈给害掉。他说所有的中国现在这些文化，好的东西优良传统都在台湾！中国是一个文化的断代，我们唯一能接上这个断代的补充就是台湾！你把台湾打了对中国有什么好处？ 中国能富裕吗？台湾人就服了吗？ 世界就尊重我们了吗？根不在台湾，我们没有一样毛病来自台湾的。说台湾影响这个世界上我们的战略地位？他胡扯，中国人不去打世界国家，没有人敢打中国，除非你自己找别人去（打仗）。我脑子一下就醒了，这个时候的七哥再进清风看守所修炼出来，就昨天我谈G-edu教育，什么叫教育的核心？就是给一个适合你的生存环境，即使死亡谷都能长出遍地绿叶，什么叫教育？ 启迪你的个性，塑造你的性格，启发你的潜能，让你成为铲除不公平，减少不公平的力量，然后实现你的人生价值！我们中国人的教育是让你吃屎，吃共产党的屎，当它的奴隶，就像那个小粉红。培养出这么多奴隶吃屎的党和国家，你觉得会有希望吗？打越南的总指挥告诉我打台湾，碍你个球的事儿，拿回台湾关你个球的事！就中国老百姓，拿回台湾干你个球的事，人家打乌克兰碍你个球的事呢！是你哪痒痒了需要挠呀，你要去打台、打乌克兰，跟你个毛的事呀！记住兄弟姐妹们，人类绝对是和平时间太长了，（从来）没有这么长过，由于“美帝国主义”在二战以后领导全世界，真是伟大的美国，让世界上从来没有过万年没有过，战争，自然灾害，死亡人数是平均率最低的，人类享受的和平时间，单和平时间最长的，全球没有大规模战争。人类的科技和文明对大自然，对整个人类的对外的探索，是发展最快的，还诞生了信息互联网时代。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-资料来源：[2022年2月27日文贵大直播](https://gtv.org/video/id=621b7633019ef64da651ee6c)
+总编：文真
+编辑：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
