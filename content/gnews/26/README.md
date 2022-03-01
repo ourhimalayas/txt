@@ -2,30 +2,22 @@
 ---
 
 
-## 中日财经爆| 壳牌撤出俄罗斯能源项目 合作方三井和三菱备受关注
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2086486/)
+## 日本众议院通过&#8221;最强烈地谴责&#8221;俄罗斯入侵乌克兰的决议
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2086494/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-2.jpg)[图片来源](https://www.offshore-technology.com/comment/royal-dutch-shell-poised-for-growth-through-to-2020/)
-英国石油巨头壳牌（Shell）2月28日宣布，将退出俄罗斯远东地区库页岛的天然气业务“库页岛2号”。由于俄罗斯入侵乌克兰，决定继续开展业务将变得困难。这是日本大型商社也参与的大型项目，日本企业的反应备受瞩目。
+撰稿：东京樱花团/百花李香
 
-“库页岛2号”由壳牌、俄罗斯国有天然气公司 Gazprom、日本三井物产和三菱公司出资和运营。据壳牌等公司介绍，该项目液化天然气年产量约为1000万吨。其中大部分出口到日本，从日本能源安全的角度来看，这是一项重要的业务。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/日本众议院通过最强烈地谴责俄罗斯入侵乌克兰的决议.jpg)[图片来源](https://www.google.com/search?q=Japan+Ukraine&amp;tbm=isch&amp;ved=2ahUKEwiRg4PQpaT2AhVVSfUHHXeCCJIQ2-cCegQIABAA&amp;oq=Japan+Ukraine&amp;gs_lcp=CgNpbWcQAzIECAAQHjIGCAAQCBAeUABYAGDyBWgAcAB4AIABYIgBYJIBATGYAQCgAQGqAQtnd3Mtd2l6LWltZ8ABAQ&amp;sclient=img&amp;ei=Xb4dYtHgKNWS1e8P94Sik)
 
-三菱商事评论说：“我们将分析包括壳牌公告内容在内的细节，并与政府和相关方讨论应对措施。”
+日本众议院在3月1日的全体会议上通过了一项”最强烈谴责”俄罗斯入侵乌克兰的决议。除令和新选组外，大多数执政党和反对党都赞成该决议，呼吁俄罗斯立即停止攻击并撤出其部队。
 
-除了“库页岛2号”，壳牌还将退出涉及 Gazprom 的几家能源业务。它还将停止参与连接俄罗斯和德国的天然气管道业务“北溪二号”。
+该决议将俄罗斯的行动定性为”侵略”，谴责其侵犯了乌克兰的主权和领土完整，严重违反了禁止使用武力的国际法。决议敦促日本政府尽最大努力确保生活在乌克兰的日本国民的安全，并采取 “严厉措施”，包括制裁。该决议由两党议员组成的小组提交。
 
-壳牌首席执行官本·范布尔登在一份声明中抨击俄罗斯对乌克兰的入侵是“威胁欧洲安全的毫无意义的军事入侵”，“（由于俄罗斯业务的撤出）。我们将检查欧洲和其他市场的稳定能源供应。”
+信息来源：[衆院、ロシア侵攻を「最も強い言葉で非難」…れいわ新選組除く与野党の賛成多数で可決](text=)
 
-企业纷纷撤离俄罗斯，27日，英国石油巨头BP也宣布退出俄罗斯业务。除能源外，瑞典汽车巨头沃尔沃汽车表示，暂时不会向俄罗斯市场供应汽车。据德国报纸报道，德国戴姆勒卡车将解散与俄罗斯装甲车巨头卡玛兹的联盟。
-
-消息来源:
-
-[露の天然ガス事業「サハリン２」から英シェル撤退、三井物産・三菱商事の対応に注目](https://www.yomiuri.co.jp/economy/20220301-OYT1T50092/)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

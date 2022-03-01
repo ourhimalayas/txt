@@ -2,24 +2,43 @@
 ---
 
 
-## 白俄公投允许在本国部署俄罗斯的核武器和军队
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2086545/)
+## 全球疫情更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2086614/)
 
-#### 翻译/撰稿：zzballack
+整理：枳实
+美工：精灵蓝
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-2.jpg)图片来源：美联社
-据《Newsmax》2月28日报道，周一（2月28日）公布的全民公投结果显示，白俄罗斯人允许在本国永久部署俄罗斯的核武器和军队。欧盟称此举将导致走上一条“非常危险的道路”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片：雅典娜农场设计组 精灵蓝
 
-作为该国一揽子宪法改革的一部分，这次公投另外延长了总统亚历山大·卢卡申科（Alexander Lukashenko）的执政任期。65%的公投参与者投票赞成宪法修正案，10%投了反对票。
 
-欧盟委员会主席乌尔苏拉·冯德莱恩 (Ursula von der Leyen)周日表示：“我们将对这场战争中的另一个侵略者–卢卡申科政权，采取新的一揽子制裁措施，打击他们最重要的行业。”
+雅典娜疫情更新（2022年 3月1日）
 
-自1994年以来一直掌权的卢卡申科上周允许俄罗斯军队借道白俄罗斯从北部入侵乌克兰。卢卡申科2月28日警告说，西方的制裁正在把俄罗斯推向“第三次世界大战”。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-1.png)
+数据来源：
 
-欧盟外交政策负责人何塞·博雷利（Josep Borrell）2月28日表示：“这意味着俄罗斯将在白俄罗斯部署核武器，这是一条非常危险的道路。”据报道，俄罗斯拥有世界上最大的核武器库。
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-新闻来源：[Belarus Votes to Host Russian Nukes](https://www.newsmax.com/globaltalk/vladimir-putin-nuclear-weapons-belarus-troops/2022/02/28/id/1058927/)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

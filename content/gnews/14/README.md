@@ -2,43 +2,27 @@
 ---
 
 
-## 全球疫情更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2086614/)
+## 视频｜率领乌克兰卫国之战的平民总统泽连斯基
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2086720/)
 
-整理：枳实
-美工：精灵蓝
+制作：香草山视频部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片：雅典娜农场设计组 精灵蓝
+现任乌克兰总统，弗拉基米尔·亚历山德罗维奇·泽连斯基，生于1978年1月25日，曾任“人民公仆”党首任精神领袖。
 
+2019年5月20日，泽连斯基宣誓就任总统，表示自己将 “保卫乌克兰独立和主权完整” ， “只有在俄罗斯归还乌克兰领土，并遣返战俘的情况下，才会和俄罗斯展开政治对话” 。
 
-雅典娜疫情更新（2022年 3月1日）
+2022年2月25日，在俄罗斯入侵乌克兰后，泽连斯基宣布成立最高统帅部，并任主席兼武装部队最高统帅。他率领乌克兰军队和平民的坚决抵抗，巧妙利用AI智能化信息战和网络战，阻止了普京快速占领基辅的计划。泽连斯基拒绝普京用武力发出的 “最后通牒” ，并表示只接受全面谈判。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-1.png)
-数据来源：
+新中国联邦创建人郭文贵先生评价说：乌克兰人民选出了一个没有钱，没有贪污行为，具有幽默感的平民总统。战争之时，泽连斯基全家无人离境，用以身殉国的精神与乌克兰人民一起坚决抵抗入侵者。他巧妙利用社交媒体，呼吁国际社会援护乌克兰。与西方各国政府保持友好，赢得了“政治绅士先生”的赞誉。泽连斯基已成了改变世界格局的重要政治领袖。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+开战以来，泽连斯基与乌克兰人民上下一心保卫国家的行为，让西方各国政府的绥靖政策，变为积极地开始全面制裁俄罗斯。美国与欧盟出台了一系列严厉制裁俄罗斯方案，包括将俄罗斯银行排除在SWIFT支付系统之外。
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+发稿：小野貓（文凱琳）
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

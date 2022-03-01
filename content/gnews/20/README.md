@@ -2,39 +2,24 @@
 ---
 
 
-## 乌克兰请求快速加入欧盟
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2086521/)
+## 白俄公投允许在本国部署俄罗斯的核武器和军队
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2086545/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 翻译/撰稿：zzballack
 
-#### 整理：围剿维尼熊
-编辑：5m
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-2.jpg)图片来源：美联社
+据《Newsmax》2月28日报道，周一（2月28日）公布的全民公投结果显示，白俄罗斯人允许在本国永久部署俄罗斯的核武器和军队。欧盟称此举将导致走上一条“非常危险的道路”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0126.jpg)
+作为该国一揽子宪法改革的一部分，这次公投另外延长了总统亚历山大·卢卡申科（Alexander Lukashenko）的执政任期。65%的公投参与者投票赞成宪法修正案，10%投了反对票。
 
-图片来源：雅典娜设计组
+欧盟委员会主席乌尔苏拉·冯德莱恩 (Ursula von der Leyen)周日表示：“我们将对这场战争中的另一个侵略者–卢卡申科政权，采取新的一揽子制裁措施，打击他们最重要的行业。”
 
+自1994年以来一直掌权的卢卡申科上周允许俄罗斯军队借道白俄罗斯从北部入侵乌克兰。卢卡申科2月28日警告说，西方的制裁正在把俄罗斯推向“第三次世界大战”。
 
-根据德国之声中文网2月28日报道，乌克兰总统泽连斯基2月18日通过社交媒体表示，欧盟应当特事特办，加急吸纳乌克兰成为成员国。
+欧盟外交政策负责人何塞·博雷利（Josep Borrell）2月28日表示：“这意味着俄罗斯将在白俄罗斯部署核武器，这是一条非常危险的道路。”据报道，俄罗斯拥有世界上最大的核武器库。
 
-波罗的海三国也公开呼吁欧盟至少应当立即将乌克兰纳入“候选国”范围。
-
-欧盟委员会主席冯德莱恩也对此做出了积极回应。冯德莱恩强调，欧盟和乌克兰目前已经在多个领域展开了合作。
-
-捷克总理菲亚拉(Petr Fiala)也说，眼下欧盟必须发出一个明确的讯号：欧洲民主国家共同体欢迎乌克兰。
-
-欧盟委员会还透露，计划将乌克兰的电网也纳入整个欧洲大陆的电网。欧盟能源委员西姆森(Kadri Simson)通过推特表示，她已经和ENTSO-E(欧洲输电系统运营商联盟)的代表探讨了这一提议，并且会在当天晚些时候的欧盟各国能源部长紧急会议上提请各成员国支持欧乌电力并网计划。
-
-参考链接：[乌克兰谋求“火线入盟” 欧盟称“或可办理”](https://www.dw.com/zh/%E4%B9%8C%E5%85%8B%E5%85%B0%E8%B0%8B%E6%B1%82%E7%81%AB%E7%BA%BF%E5%85%A5%E7%9B%9F-%E6%AC%A7%E7%9B%9F%E7%A7%B0%E6%88%96%E5%8F%AF%E5%8A%9E%E7%90%86/a-60948387)
-
-*发布：wenly*
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Belarus Votes to Host Russian Nukes](https://www.newsmax.com/globaltalk/vladimir-putin-nuclear-weapons-belarus-troops/2022/02/28/id/1058927/)
 
  
 

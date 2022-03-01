@@ -2,43 +2,32 @@
 ---
 
 
-## 郭先生等PAG宣布后再出手,要查清PAG投资来龙去脉
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2086334/)
+## 有声|疫苗灾难的爆发程度以及应对方法
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2086368/)
 
-G-TV视频链接：https://gtv.org/video/id=62164b6a1408ee3a03a3c8b4
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在2月23日的大直播中，郭文贵先生分析了疫苗大灾难爆发的程度，以及战友们应对的办法。
 
-**郭文贵先生：**好，好啊，PAG的官司就这样，PAG等他们宣布，等他们宣布。然后咱们再出手，再采取任何行动。
+郭先生指出，在全世界反对强制疫苗的抗议浪潮中，新中国联邦一直站在前列。班农战斗室、艾滋病的发现者吕克.蒙塔尼耶教授，以及各国有良知的医学家，都对反强制疫苗做出了卓越的贡献。全世界将近50亿人注射了疫苗，可能会有20亿人患病、致残或者死亡。这个数字比原先的估计要好很多。
 
-然后我们会听到PAG官司，就是太平联盟官司在美国。对我们很不利的判决，但是恰恰，我们会因此继续跟它打下去。我们跟PAG官司打得不仅仅是钱，我们要打得是PAG的单伟建，和单伟建整个太平联盟他所有的投资，和投资来源和他投资去向。跟瑞银是一样的。
+郭先生强调，5月份全世界疫苗灾难大爆发后，战友们要冷静对待，减少外出，尽量不要染病。另外，世界上的正义力量也在加紧研制疫苗解药。身在欧洲的科学家表示，会找出许多出人意料的解决方法。
 
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-编辑整理：Jacques；
 
-字幕档制作：兵嫂；
+文字版原文：[疫苗灾难的爆发程度以及应对方法](https://gnews.org/zh-hans/2068421/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-视频制作及上传：Cindy；
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
 
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

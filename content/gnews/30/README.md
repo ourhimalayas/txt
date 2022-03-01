@@ -2,41 +2,55 @@
 ---
 
 
-## 有声|乌克兰危机下的大国博弈
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2086370/)
+## 对UBS和PAG我们要真正的核心数据和勾兑共产党数据
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2086400/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-郭先生在2月20日的大直播中谈到，乌克兰战争实际上三天前在双方的炮击后就开始了。
+G-TV视频链接：https://gtv.org/video/id=62164b841408ee3a03a3c8bd
 
-乌克兰和克里米亚的战略位置对俄罗斯非常重要，就像今天的台湾或香港一样。普京不仅仅是为了夺取克兰，而是要彻底拿下欧洲，习打台湾是想拿下整个亚洲。现在的美俄、美中和美欧之间的关系都太玄妙，普习两人都认为美国任何情况下都不会真动手跟他们打，欧洲就更不可能跟他们打了。
+**郭文贵先生：**把这两官司打完了，战友们不是赢多少钱，千万记住我们要的是真正的核心的数据和共产党勾兑的数据。瑞银一个100万亿的一个大银行，这是真正的阿里巴巴的秘密神洞啊。
 
-乌克兰危机掌握在普京、习近平、美国总统和欧盟手里，都在玩乌克兰这张牌。美欧正利用乌克兰的国家安全消磨普习两人的意志：你们不打则被其内部政敌干掉，即使打内部政敌也一定搞死你。普习二人打乌克兰和台湾不存在任何恩怨问题，完全是两人政治安全、政治野心和政治利益的需要，跟国家利益、民族利益、民族恩怨没有任何关系！
+这个干完了绝对一切它完了，而且英国的这个法官太了不起了，你知道法官听取之后，我们是干了两三年，大家别忘了。走到这一步将近三年，不是今年已经4年了，2015年哪止4年了？就7年了，7年战友们。从2015年之后纽约开始告他嘛，我们告到现在，是7年时间，走到成功在伦敦我们走了几年啊？
 
-实际上被解除武装并被俄罗斯绑架而无能为力的乌克兰就是“锁链女”，俄罗斯就是贩卖人口的中共，美欧就是“锁链女”认的干爹。普京想把“锁链女”一直强霸下去，骨子里不喜欢苏俄的乌克兰从来没认真跟俄罗斯一起生活过。乌克兰和苏俄间的恩怨由来已久，但与中共国风马牛不相及，“习大帝”却怂恿并经济上支持普京打乌克兰。在这种情况下，普习达成交易并支持习打台湾，抱团取暖互相充当国际上的支持者，结果乌克兰和台湾就成了牺牲品。
+人家法官面色不改，就对方和我们所有人都说“Miles你没有任何可能”，他说“如果宣布了，这个事让你立上这个案子，就说明承认了你有索赔的事实，”他说“那对方，咱只要能把对方门打开就行了”。我们会让世界看到它有多少中国的脏钱，你怎么拿到这中国的特殊的、唯一的、建国以来的，外国银行独立经营牌照？
 
-如打有约定、有限度的常规战美国一定赢，但经济上大家都会被拖垮。中俄联手后军事和经济互补情况下的局势就完全不同了，俄中军事上老二和老三的联手让美欧忌惮，真无所顾忌抡开了打时最后大家都得完蛋，这世界也就完了。
+而且它把咱的股票卖给了瑞银的合作者，你为什么把海通的一个最有影响的，当时是17块钱买的，事实是我们的合作者基金是提前约定60块钱一股，那我们赔掉多少钱呢？我们赔掉了大概几十亿美元，所以我们哪儿是要5亿美元呢，我们要百亿美元都不拉倒，索赔。
 
-很不幸，普习两人这次玩大了，普京布局全球几年了，习近平放毒两年了，两人看到了美欧的懦弱与政治投机，且两人刚在北京的密谈认定美国没种，欧洲没能力。这就是普习两人嚣张得底气，因此乌克兰危机就来了，但现在谁也回不去了。如美欧在政治施压上再坚决一些并给普京一些好处和面子，让乌克兰作出一些承诺，北约也作出遵守《明斯克协议》绝对不东扩的承诺，也许普京就收手了。
+这个未来让事实说话去，然后再看到你必须公布，你怎么的这个关系和你拿到中国的银行牌照什么关系？那些基金就出来了，基金包括PAG，PAG1000多亿的投资，全投到了中国。然后单伟建，文化大革命穿着军装，然后到外国留学。
 
-普京毕竟是大师级的国际政治家，其打乌克兰的姿势就玩得很高大上：我绝对打乌克兰，且打的气势就能吓死你欧盟，并给习留下作战时间，已让世界跌破眼镜。
+你怎么到外国？你到美国来的时候，单伟建你填写过你的历史，你是军人吗？你填写了你家人历史吗？他儿子单博在美国买房，全现金，都纳税了吗？单博、还有单伟建的钱，在海外有没有其它钱呢？为什么PAG在英国的几百亿的公司下线了呢？微信、腾讯音乐100%的股权是怎么回事呢？你跟海航的融资，几笔大融资，海航都破产了，你的钱呢？你们怎么签的合同？吴征，投了5亿美元给吴征，吴征是怎么认识你的呢？
 
-美国跟任何国家都有利益关系，但跟任何国家都没有长时间稳定的政治关系。在对待俄罗斯和中共这样邪恶的国家政权，没有一致性的国际政治关系延续是不管用的。但任何国际大事最终都取决于美国的态度，美国已表态侵略乌克兰的人一定被惩罚，包括跟乌克兰灾难相关的国家一个也不会放过，那不就是中共嘛！美国一定会重生并再次伟大！
+为什么单伟建从TPG、PAG那么多美国养老保险的钱，昨天约翰·摩根先生给我发信息说：“真的Miles，我们原来完全没想到”，他说“你这个揭发太好了，隐藏在美国太深、太危害了。”我说：“摩根先生，最关键的是他偷掉了美国老人的未来”。我们一定会让美国人知道PAG骗了多少美国人、以色列人的钱，单伟建为什么能从TPG到PAG，都是G系列了是吧？你为什么那么喜欢G系列？是吧？
 
-文字版原文：[乌克兰危机下的大国博弈](https://gnews.org/zh-hans/2069773/)
+然后造假合同，造假谣，来黑咱。然后用了美国最大的律师，几个律师事务所，用了Edward Moss，Edward Moss竟然是严重违反道德，严格讲他有没有犯罪呢？我们一定会让Edward Moss的律师执照给它取消了，你走着看。早着呢，他的律师事务所，必须给他告下去。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
+编辑整理：Jacques；
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+字幕档制作：兵嫂；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
