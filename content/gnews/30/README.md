@@ -2,30 +2,44 @@
 ---
 
 
-## 中日财经爆|丰田因供应商遭网络攻击全国停产 或与制裁俄罗斯有关
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2086519/)
+## 全球疫情更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2086614/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5.jpg)[图片来源](https://www.republicworld.com/business-news/international-business/toyotas-japan-production-halted-over-suspected-cyberattack-articleshow.html)
-丰田汽车公司3月1日停止了日本国内所有工厂的生产。作为丰田主要客户的零部件供应商可能受到了网络攻击。而日本经济产业省呼吁日本公司鉴于乌克兰紧张局势加强安全。
+整理：枳实
+美工：精灵蓝
 
-丰田汽车公司宣布，包括子公司大发工业公司和日野汽车公司在内，日本国内14家工厂、28条生产线1日临时停工，约1万3000辆汽车因此而无法生产。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片：雅典娜农场设计组 精灵蓝
 
-丰田本次停工是由于其主要客户、零部件供应商小岛冲压工业公司出现系统故障，导致无法进行供货数据管理。丰田认为小岛冲压工业有可能受到了网络攻击，正在调查问题原因，希望能在2日恢复生产。
 
-上月23日，当日本政府宣布对俄罗斯实施经济制裁时，日本经济产业省表示网络攻击的威胁正在增加，并重新审视了国内系统中的通信监控和分析系统。
+雅典娜疫情更新（2022年 3月1日）
 
-这一事件与俄罗斯入侵乌克兰之间的联系尚不清楚。然而，据信息安全公司“S&J”（东京）总裁 Nobuo Miwa 称，过去一周，有关网络攻击造成的损害的咨询数量急剧增加。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-1.png)
+数据来源：
 
-消息来源:
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-[丰田宣布暂停国内所有工厂生产](https://www3.nhk.or.jp/nhkworld/zh/news/352043/)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-[トヨタ関連会社へのサイバー攻撃、経産省の注意喚起中に発生…被害相談は１週間で急増](https://www.yomiuri.co.jp/economy/20220301-OYT1T50134/)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

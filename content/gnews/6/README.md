@@ -2,33 +2,51 @@
 ---
 
 
-## 俄乌战争：美驱逐俄驻联大代表团，中共表遗憾求美别关门
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2087411/)
+## UBS立案前的去年11月份七哥拒绝与江志成等海外接触
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2087611/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh3.googleusercontent.com/Nr8S3j9ZHuYX_vlX-vOkuEm1294Ik7cZhLdsVUTU6OxdKc9g-gtJPSU9RiMPGEtCAMnexvj_BxKUebMKZBRU3NwJedxBlWXBYltx2v8e9vMu4zCO7xtFOIwuoEHvsosdYgeyekzQ)[*图片来源*](https://news.abplive.com/news/world/russian-declares-war-against-ukraine-live-updates-russian-president-vladimir-putin-ukraine-president-zelensky-peace-talks-in-belarus-1515950)
-**俄乌战争加剧，美国下令驱逐俄罗斯驻联合国外交官一事引发外交、军事冲突升级，中共国预感事态不妙，战狼外交官王毅在同一天发表了纪念中美《上海公报》签署50周年的讲话，恳求中美不要关门。**
+G-TV视频链接：https://gtv.org/video/id=62164bec1408ee3a03a3c8d2
 
-据中共国新华社3月1日消息称，美国当地时间联合国2月28日，俄罗斯常驻联合国代表瓦西里·涅边贾28日下午作为轮值主席主持安理会关于乌克兰人道局势会议前夕，美国宣布驱逐12名俄常驻联合国代表团成员。
+**郭文贵先生：**我这个官司在去年11月份的时候，共产党曾经派出官方的绝对代表团，中国银行、中国的人民银行几大银行的，就是过去很牛的人找到欧洲的某前领导人，因为这个我们签了NDA，永远不能说的。
 
-另据UPI网站28日的消息证实，[美国以“间谍活动”为由将12名外交官驱逐出俄罗斯联合国代表团](https://www.upi.com/Top_News/World-News/2022/02/28/us-closes-embassy-belarus-authorizes-diplomats-leave-russia/1901646065481/)，理由是他们在入侵乌克兰的余波中涉嫌“从事间谍活动”。美国驻联合国代表团发言人奥利维亚·道尔顿解释称，“此举是根据联合国总部与美国达成的协议采取的，并且‘已经进行了几个月的工作’。美国已通知俄罗斯使团，我们正在开始将12名情报人员驱逐出俄罗斯使团，他们滥用了在美国的居留权，从事不利于我们国家安全的间谍活动。”
+找他来，跟我说理，包括当时是江家江志成是里面成员。就是本来说要跟我接触或跟我家人在海外接触，或者跟我的代表接触，我们全都拒绝了。
 
-该消息称，2月28日当五大常任理事国中国、法国、英国、美国和俄罗斯在联合国召开“罕见的紧急特别会议”讨论乌克兰危机而俄罗斯代表利用一票否决权否决了决议导致无法采取一致行动时美国才下达的驱逐令。联合国自1950年以来，联大只召开了10次紧急会议，周日当俄罗斯否决了该措施时，安理会未能对乌克兰入侵提出谴责。
+但是他跟欧洲这个领导人——法国的一个前总理，他说：“只要郭文贵和解，所有现在在香港查封资产、国内资产，全部还给他，管的基金的，包括UBS官司损失的钱一分不少的给他，前提是永远不能再对UBS起诉；第二，在香港查封的资产，他永远不追究查封的后果责任。”
 
-- ***延展阅读：***[***俄罗斯乌克兰危机要闻 | 俄乌将举行第二轮谈判***](https://news.abplive.com/news/world/russian-declares-war-against-ukraine-live-updates-russian-president-vladimir-putin-ukraine-president-zelensky-peace-talks-in-belarus-1515950)
-- ***延展阅读：***[***白宫发言人普萨基说总统不想在乌克兰上空设禁飞区，那意味着美军会直接参战***](https://www.pravda.com.ua/news/2022/03/1/7327036/)
-- ***延展阅读：***[***美国关闭中共国间谍盗窃美国技术的大门***](https://www.chemistryworld.com/news/us-ends-anti-espionage-china-initiative/4015301.article)
+我们光在新加坡的那个叫什么银行？DBS光那一个账就几十亿现金，光资产都是几百个亿。你想想共产党宣传到现在就是“七哥没钱了”，头两天还黑盖特：“七哥没钱了”。
 
+你见过真正的中国人有像七哥这么，曾经有财富有钱有几个？你告诉我，包括马云，他吹“狼蛋”呢，他比现金他差远了，任何一个中国企业负债率上真正的没有一个能比得上七哥的企业，一个都没有，就是我们的家族企业，一个都没有。从纯现金到今年玩儿的这几年，你看，我们是最牛的！
 
-该事件对中共国具有敲山震虎作用，中共因为资助俄罗斯入侵乌克兰的经费，被美国怀疑后自觉心虚，战狼外交头目王毅在同一天（28日）以视频的方式紧急发表“纪念《上海公报》发表50周年的讲话”，讲话中王毅奇怪地说，“中美两国人民都是伟大的人民，中美关系的大门既然已经打开，就不应该再关上。”这是指的美国“[授权撤离](https://kesq.com/news/2022/01/25/us-embassy-in-china-asks-state-department-to-let-diplomats-leave-over-covid-restrictions/)”驻北京大使馆？美国至今没有驱逐中共国驻美大使。
+那么当时来这个代表说一句话，其中一个人跟我很熟的，就是刘彦平很好的一个哥们儿，他说：“刘彦平这个事情，跟你打交道，老郭，对你佩服得五体投地。”
 
-随着乌克兰战争局势发展，台湾处于高度戒备状态，中共国在美间谍活动一定是加剧而不是减少，美国因此驱逐中共外交使团随时有发生的可能，这应该正是王毅所担心的事。王毅上述讲话是再次得到美方驱逐外交官的警告吗？中共深知，2019年12月，美国国家安全报告称“[美国秘密驱逐开车前往军事基地的中国官员](https://www.theguardian.com/us-news/2019/dec/15/us-expelled-chinese-officials-military-base-new-york-times)”。
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-2022年3月1日
+编辑整理：Jacques；
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+字幕档制作：兵嫂；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

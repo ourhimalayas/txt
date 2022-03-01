@@ -2,28 +2,30 @@
 ---
 
 
-## 中日财经爆|日本对俄罗斯的追加制裁 即日生效
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2086500/)
+## 中日财经爆|丰田因供应商遭网络攻击全国停产 或与制裁俄罗斯有关
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2086519/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.nippon.com%2Fen%2Fncommon%2Fcontents%2Fnews%2F1608864%2F1608864.jpg&amp;imgrefurl=https%3A%2F%2Fwww.nippon.com%2Fen%2Fnews%2Fntv20220228003%2F&amp;tbnid=vWnljKN7vadHOM&amp;vet=12ahUKEwils6fWtqT2AhW5y4sBHSUyASEQ)
-日本政府在3月1日上午的内阁会议上，批准了对俄罗斯入侵乌克兰的追加制裁：冻结俄罗斯总统普京、外长维克洛夫等6人的资产，以及俄罗斯中央银行的资产冻结均于同日生效。对包括军事相关公司在内的49个组织的事实上的出口禁令也将于8日实施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5.jpg)[图片来源](https://www.republicworld.com/business-news/international-business/toyotas-japan-production-halted-over-suspected-cyberattack-articleshow.html)
+丰田汽车公司3月1日停止了日本国内所有工厂的生产。作为丰田主要客户的零部件供应商可能受到了网络攻击。而日本经济产业省呼吁日本公司鉴于乌克兰紧张局势加强安全。
 
-此外，包括国有对外经济开发银行（VEB）在内的两家银行的资产将于31日被冻结。再加上已经决定冻结资产的“俄罗斯银行”，制裁对象将是三家银行。
+丰田汽车公司宣布，包括子公司大发工业公司和日野汽车公司在内，日本国内14家工厂、28条生产线1日临时停工，约1万3000辆汽车因此而无法生产。
 
-日本央行将限制俄罗斯央行持有的日元外汇储备交易，并阻止支持俄罗斯购买卢布的外汇干预。据日本政府称，截至去年6月，俄罗斯中央银行在日本银行持有的以日元计价的外汇储备估计约为3.8万亿日元。
+丰田本次停工是由于其主要客户、零部件供应商小岛冲压工业公司出现系统故障，导致无法进行供货数据管理。丰田认为小岛冲压工业有可能受到了网络攻击，正在调查问题原因，希望能在2日恢复生产。
 
-日本还准备禁止出口可能增强俄罗斯军事能力包括半导体在内的通用焊料，为了提高制裁的有效性，政府正在与美国和欧洲保持一致。
+上月23日，当日本政府宣布对俄罗斯实施经济制裁时，日本经济产业省表示网络攻击的威胁正在增加，并重新审视了国内系统中的通信监控和分析系统。
+
+这一事件与俄罗斯入侵乌克兰之间的联系尚不清楚。然而，据信息安全公司“S&J”（东京）总裁 Nobuo Miwa 称，过去一周，有关网络攻击造成的损害的咨询数量急剧增加。
 
 消息来源:
 
-[政府、対ロシア追加制裁を閣議了解…プーチン氏ら６人の資産凍結など即日発動](https://www.yomiuri.co.jp/politics/20220301-OYT1T50109/)
+[丰田宣布暂停国内所有工厂生产](https://www3.nhk.or.jp/nhkworld/zh/news/352043/)
+
+[トヨタ関連会社へのサイバー攻撃、経産省の注意喚起中に発生…被害相談は１週間で急増](https://www.yomiuri.co.jp/economy/20220301-OYT1T50134/)
 
 *校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,24 @@
 ---
 
 
-## 韩国政府向乌克兰提供1000万美元用于人道救援
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2087298/)
+## 欧盟对乌克兰的入盟申请持冷淡态度
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2087465/)
 
-作者：首尔天池农场—追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-71.png)
-2月28日，韩国外交部宣布，韩国决定向乌克兰提供1000万美元的紧急人道主义援助，用于帮助乌克兰政府、民众和难民。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-31.png)
-外交部指出，将通过与乌克兰及其周边国家政府和国际组织协商，确保援助尽快到位。
+撰稿：东京樱花团/盖特第一批注册
 
-联合国难民事务高级专员估计，将有超过 400 万乌克兰难民逃往波兰、匈牙利、罗马尼亚和斯洛伐克等周边国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/欧盟对乌克兰的入盟申请持冷淡态度.jpg)[图片链接](https://www.yomiuri.co.jp/pluralphoto/20220301-OYT1I50097/)
 
-外交部表示，希望韩国政府的支持能够为乌克兰民众和难民提供切实帮助，政府并计划为解决乌克兰人道主义危机作出积极力量。
+2月27日，欧盟委员会主席乌苏拉-冯德莱恩在接受欧洲新闻网采访时说：”乌克兰是我们的一员。 我们希望它能够加入进来”。作为回应，沃洛季米尔-泽伦斯基总统于2月28日签署了一份申请乌克兰加入欧盟的正式文件。并呼吁 “希望通过一个新的特别程序立即予以承认”。他补充说：”在平等的基础上，我们的目标是与所有欧洲人联合起来，我们相信，这是可行的，也是有希望的”。
 
-参考链接：[外交部向烏克蘭公民和難民提供1000萬美元](https://news.kbs.co.kr/news/view.do?ncd=5405763)
+同一天，波兰外交部长兹比格涅夫-劳在推特上发帖称，”由于乌克兰正在勇敢地捍卫自己，顽强抵抗俄罗斯的侵略，因此当下是欢迎乌克兰加入欧盟的最佳时候”，为此波兰将为乌克兰的加入进程提供一切必要的支持”。到目前为止，已有八位东欧国家的总统签署一封信，一致称乌克兰值得加入欧盟。并敦促其他成员国采取措施，给予实现乌克兰的立即加入。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+然而，2月28日，欧盟外交和安全事务高级代表何塞普-博雷尔却说，加入欧盟将需要 “许多年”。与此同时，欧盟委员会发言人收回了冯德莱恩先生的声明，并解释道，“他的意思是乌克兰是欧洲的一部分，而不是欧盟的一部分，他希望欢迎乌克兰加入欧洲”。
 
-总编/编辑：DM
-校对/发稿：小野貓（文凱琳）
+信息源：[EU、ウクライナの加盟申請に冷や水](https://news.yahoo.co.jp/articles/927e2f09059c28c98f45768be876aff101627a29)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-71.png)
+*编辑：东京樱花团/逢⑦必变
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

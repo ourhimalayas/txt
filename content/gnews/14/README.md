@@ -2,20 +2,20 @@
 ---
 
 
-## 有声｜乌总统泽连斯基民调支持率飙升至90%
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2087311/)
+## 有声｜乌驻美大使指控俄军投放禁用武器热压弹
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2087466/)
 
 By:**秘翻新闻**
 
 **2022-03-01**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10.png)图片来源 美聯社
-[综合新闻2月28日报道，最新民调显示，乌克兰总统泽连斯基支持率飙升至90%以上，比2021年12月增加了三倍。](https://www.wenweipo.com/a/202202/28/AP621c4888e4b036dce9981099.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-1.png)图片来源 网络
+[综合外媒3月1日消息，乌克兰驻美大使马卡罗法于当地时间周一指控俄罗斯称，俄军对乌国使用了《日内瓦公约》明定禁用的热压弹，试图让乌克兰承受巨大毁灭。](https://www.reuters.com/world/europe/ukraines-ambassador-us-says-russia-used-vacuum-bomb-monday-2022-02-28/https://www.abc.net.au/news/2022-03-01/ukraine-ambassador-to-us-says-russia-used-a-vacuum-bomb/100870638)
 
-[报道称，一个社会学小组针对2000名乌克兰民众进行了民意调查，结果显示，91%的受访者支持泽连斯基，不支持率仅有6%，3%的人没有表态。](https://www.wenweipo.com/a/202202/28/AP621c4888e4b036dce9981099.html)
+[此外，国际特赦组织和人权组织都表示，俄罗斯军队似乎使用了被广泛禁止的集束弹药，并且袭击了乌克兰东北部一所供平民避难的学校。](https://www.reuters.com/world/europe/ukraines-ambassador-us-says-russia-used-vacuum-bomb-monday-2022-02-28/https://www.abc.net.au/news/2022-03-01/ukraine-ambassador-to-us-says-russia-used-a-vacuum-bomb/100870638)
 
+[据悉，热压弹在爆炸时会释放大量热能，同时消耗该区域氧气，主要的毁灭效果是由超音速震波与超高温所造成，所有活生生的物体都会化为乌有，被称为威力最强大的非核武器之一。俄国于2007年成功测试，称其为「炸弹之父」，也有报道指出热压弹或为人类拥有的最厉害最残忍的武器之一。](https://www.reuters.com/world/europe/ukraines-ambassador-us-says-russia-used-vacuum-bomb-monday-2022-02-28/https://www.abc.net.au/news/2022-03-01/ukraine-ambassador-to-us-says-russia-used-a-vacuum-bomb/100870638)
 
-
-秘翻新闻 StevenZ 编辑报道
+秘翻新闻 明澈 编辑报道
 
 发布 : 恩典
 
