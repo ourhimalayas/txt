@@ -2,21 +2,31 @@
 ---
 
 
-## 我们是金融界的太阳
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2086972/)
+## 中共国在乌克兰战争的另一边运作
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2087032/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+[![](https://express.adobe.com/page/BOuhYK1OOFyDs/images/bf9d1e9d-4e17-4ae1-8b4c-2d0126d76dfb.png?asset_id=19a29df4-4a87-415e-9384-4e54f55048fb&amp;img_etag=%2291b7e342a68d26a3e5d4bdd68d287973%22&amp;size=2560)](https://express.adobe.com/page/BOuhYK1OOFyDs/images/bf9d1e9d-4e17-4ae1-8b4c-2d0126d76dfb.png?asset_id=19a29df4-4a87-415e-9384-4e54f55048fb&amp;img_etag=%2291b7e342a68d26a3e5d4bdd68d287973%22&amp;size=1024)
+**简评：**
 
-*发布：陶子*
+俄罗斯和乌克兰在打仗，另一边的中共国在运作下一步动作。麦克凯利议员提出要给中共国写信，告诉中共不要对台湾动武。另外，在南美洲、中美洲、(百慕大)三角区、古巴的深水港口和巴拿马运河的两端，还有非洲，中共在那里有很大的影响力。如果把乌克兰战争当作目前唯一的问题而忽视中共，那就错了。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**GETTR视频链接**](https://gettr.com/post/pxhi8rfd93)
 
+[**GTV视频链接**](https://gtv.org/video/id=621d3d724353d33974c40f22)
+
+**视频字幕：**
+
+**Mike Kelly议员**：当你目睹在乌克兰发生的事情时，你必然会觉得，这绝对是件可怕的事。但是记住，就在我们目睹乌克兰发生的一切时，另一边的中共国正在运作着。下一步，我们会做的是给中共国写一封信，告诉他们请不要在台湾动粗，我们希望你们不会对我们做那样的事。我要向你们指出另一件事，并且全世界都在看着，我们西半球正遭受猛烈的攻击，而我发现没有人谈论。在南美洲、中美洲、(百慕大)三角区，不要忘记古巴的深水港口和巴拿马运河的两端，谁在那里有很大的影响力。然后我们再去看看非洲那里发生的一切—中共国。如果认为乌克兰是目前我们日程表上唯一的问题的话，很不幸，那我们就错了。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕：雨中漫步* *| 听写：云岭 | 翻译：nights* *| PR：Blue* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+[![](https://express.adobe.com/page/BOuhYK1OOFyDs/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/BOuhYK1OOFyDs/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

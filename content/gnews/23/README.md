@@ -2,59 +2,43 @@
 ---
 
 
-## 03/01每日播报｜社媒消息:蓬佩奥 班农先生
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2086621/)
+## 2022年2月9日是打开沼泽地与中共勾兑大门的大日子
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2086733/)
 
-**BY：[秘翻新闻](https://gtv.org/broadcast/watch/621db5ae019ef64da653286c)**
+G-TV视频链接：https://gtv.org/video/id=62164b9b1408ee3a03a3c8c7
 
-***[2022-03-01](https://gtv.org/broadcast/watch/621db5ae019ef64da653286c)***
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-6.jpg)
-**一、[蓬佩奥2月28日在盖特发文：](https://gettr.com/post/pxef516f6d)**
+**郭文贵先生：**所以说兄弟姐妹们今天对咱又是个大日子，打开了沼泽地与中共的邪恶的勾兑大门。而且我深信不疑，疫苗、冠状病毒是一个绝对和这些藏了这些黑钱的人有勾结，他们就希望这些人都死干净才好。这些人可最想收益，什么UBS啊，什么德意志啊，希望人类上人少一半才好呢，没人来拿它的钱了。
 
-** 即使在普京破坏乌克兰人民的生活、家庭和宗教传统的时候，乌克兰东正教会已经证明并将继续证明是他们自由和信仰的堡垒。我们亲爱的朋友奥列格·斯克纳（Oleg Sknar）神父就是这场抵抗运动的其中一位英雄。**
+全人类的一大半的黑钱都在它手里边了，过去几百年的黑钱，从大清朝的黑钱到共产党的黑钱全在它那了，但它不认账啊，这才是邪恶的。
 
-【盖文转《纽约邮报》报道，今天，即使无数导弹和火箭弹纷纷在基辅周边地区引爆，奥列格神父仍在为他的教友们、为所有乌克兰人以及全球人民祈祷，希望他们团结起来，反抗暴政，反对现在俄乌冲突所酿成的悲剧。事实上，他也在为俄罗斯人民祈祷，因为他们在暴徒手下生活了太久。另外，奥列格神父还在他的教堂大楼旁边建立和运营一家军事医院，以照顾从前线返回的伤员。因此，他为他所爱的人们提供精神和物质支持。奥列格神父曾被俄罗斯东正教会威胁说，如果他向对抗俄罗斯傀儡政权的乌克兰人提供救助和医疗帮助，他将被追责。这些威胁不仅来自俄罗斯的政治领导人，也来自俄罗斯东正教的领导人。对普京来说，教会只不过是另一种权力工具。普京把基督教作为传播宣传和恐惧的前线阵地，他利用教会来建立他的帝国主义议程，而真正忠诚的基督徒不希望看到这些–他们想敬拜主，而不是普京。面对这些威胁，奥列格神父的祈祷和服务，拯救了许多生命和灵魂。】
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-4.jpg)
-**二、[班农先生3月1日在盖特发文：](https://gettr.com/post/pxfiome4c2)**
+编辑整理：Jacques；
 
-** **我们在首次播出《战斗室》节目时就说过，这场大流行会导致经济危机、金融危机、资本市场危机，并最终导致地缘政治危机。而我们现在正处于地缘政治危机的中心。
+字幕档制作：兵嫂；
 
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-2.jpg)
-**三、[班农先生3月1日在盖特发文：](https://gettr.com/post/pxf5uza55d)**
+视频制作及上传：Cindy；
 
-**由于缺乏行动的勇气，美国政府已经摧毁了工薪阶层的生活，甚至连高盛也预测通货膨胀会加剧。**
+G-News发布：海贼王M.D.LUFFY；
 
-【盖文转《美国有线电视新闻网》报道，高盛经济学家2月27日在一份客户报告中警告说，与许多人预测的相反，美国今年的通货膨胀危机可能会进一步加剧。“正如我们所预期的那样，今年冬天的通胀情况已经恶化，而今年晚些时候会有多大程度的改善仍是个问题。”鉴于这种不确定性，高盛调高了其通胀预期。它预计，美联储首选的价格指标—核心PCE通胀率将在今年年底减速至3.7%，高于之前预测的3.1%，几乎是美联储估计的2%的两倍。报告补充说：“如果俄罗斯入侵乌克兰导致能源价格飙升或供应链破坏，通胀预期可能从已经非常高的水平再进一步上升。”】
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-1.jpg)
-**四、[娜塔莉温特斯3月1日在盖特发文：](https://gettr.com/post/pxg72ya51f)**
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**美国国会黑人核心小组CBC是中共影响力团体的合作伙伴。 **
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-【盖文转《国家脉动》报道，国会黑人核心小组声称要解决种族主义和“边缘化”问题，但它却与历史上最具种族主义、压迫性和种族灭绝性的政权之一中国共产党合作。CBC及其成员批评美国是一个系统性的种族主义国家，却不谴责中共的人权侵犯和掠夺性贸易行为。CBC成员除了让其学生选民参加中共资助的访华旅行，该组织还在2021年12月让其成员参加了由中国人民外交学会CPIFA和美亚研究所联合主办的“视频访问”。中国人民外交学会在其官网介绍说，“双方就美中关系、美中经贸合作和气候变化等问题交换了意见”。CPIFA是中共统战部的一部分，美国国务院将统战部比作是中共政权推进其有利政策的法宝，它们通过多种方法来影响海外华人社区、外国政府和其他行为者，令他们采取措施支持中共政策。】
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-1.jpg)
-**五、[罗伯特马龙博士3月1日转发推文：](https://gettr.com/post/pxec99399f)**
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-苏查里特·巴克迪 (Sucharit Bhakdi)博士警告说，世卫组织即将在“防备大流行病”的幌子下实行全球独裁，这将推翻各国政府，最终奴役全人类。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6.jpg)
-**六、[郭文贵先生3月1日在盖特发文：](https://gettr.com/post/pxh1rg7572)**
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-邪恶的中共，如果你们能救中国同胞，就不用在乎任何一个有意愿、有能力和真心想救中国人民于战火之中的人是谁！人权和人民高于任何政治！在此时此刻还以政治理由为借口拒绝撤离在战火中的同胞就是犯罪。救人不是共产党的专利，而是共产党的责任，共产党无权禁止任何人去拯救无辜和受战火威胁的生命。相信共产党的人们请远离我们！在生命面临战火威胁之下，是个人信息重要，还是生死存亡重要？在数千中国同胞面临战火和生死威胁之下，还玩弄这种低级的欺骗伎俩，让世界人民笑掉大牙。这一次救援行动会让中国人民看到一个有竞争的社会和一个独裁政党之间的真正区别。在战乱和生死存亡面临考验的时候，最有资格发言的是那些急需帮助和拯救以及那些被遗忘、被抛弃的人！让那些从乌克兰战火中被救出来的人和牺牲在战场上的人的家人来做出最后的裁决吧，结果会给我们答案，一切都已经开始！
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-**秘翻新闻 巴拉克 编辑报道**
+G-TV：日本银河系农场。
 
-发布：陸柒陸捌
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
