@@ -2,34 +2,43 @@
 ---
 
 
-## 俄罗斯军队使用大规模杀伤性武器袭击主要城市的平民
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2089486/)
+## 纽约市将取消对室内商业餐饮和活动的强制疫苗接种规定
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2089747/)
 
-翻译：zicoround
+翻译：peacelv
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/https___imgix-proxy.n8s.jp_DSXZQO1653552001032022000000-1-edited.jpg)图片来源：路透社
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1626-1.jpg)图片来源：thegatewaypundit.com
 
-在正受到俄罗斯入侵的乌克兰，两军的攻防势态还在增强。据信， 在首都基辅以及第二大的哈尔科夫等主要城市，俄军使用导弹等武器对平民进行的无差别攻击正在扩大。
+纽约市市长埃里克**·**亚当斯将解除该市对室内商业、餐饮和活动的强制疫苗接种规定，如果**Covid-19**病例继续呈下降趋势。
 
-1日，乌克兰独立新闻社报道，俄罗斯军队向基辅附近的一家妇产医院发射了炮弹。
+“纽约市的病例数字逐日下降，所以，只要Covid指标显示低水平的风险，不出意外这周，在星期一，３月７日我们将会取消Key2NYC规定。”亚当斯宣布。“这将给企业主时间去适应，且也允许我们保证我们是在为纽约人民做最好的公共卫生决定。” NBC新闻报道。
 
-据美国CNN等新闻社报道，哈尔科夫市官员指责俄军的入侵是“对乌克兰人的大屠杀”。1日，该市中心的政府大楼与住宅区等也受到导弹袭击，而且攻击愈演愈烈。据路透社报道，乌克兰政府官员表示这起袭击至少造成10名遇难者身亡。
+纽约市是美国第一个要求在室内接种疫苗的大城市，它将在未来几天取消对室内商业、餐饮和活动的授权。
 
-俄罗斯军队将继续入侵。据互联网通讯社报道，俄罗斯国防部3月1日警告称，将攻击位于基辅的乌克兰当局治安设施，并呼吁周边居民避难。塔斯社报道，俄罗斯国防部长绍伊古1日说，“我们将继续进行特别军事作战，直到预期目标达成为止。”
+埃里克-亚当斯星期天宣布他的管理团队将在３月７日结束疫苗强制接种规定只要Covid-19病例数量持续下降。他加入了最近几周在西雅图和波士顿等城市做出类似决定的公共官员行列。亚当斯说，只要没有出现意外的高峰，公立学校的室内口罩强制规定也将在同一天取消。
 
-乌克兰驻美国大使周四告诉路透社等多个媒体，俄军在入侵乌克兰时使用了温压弹，这是一种被认为可造成非人道伤害的大规模毁灭性武器。大使批这是“受国际条约限制”的炸弹
+纽约针对工人的疫苗强制接种规定仍然有效。
 
-俄罗斯、乌克兰两国2月28日就停火问题在白俄罗斯进行了五个小时的谈判。 有消息称下次谈判将会于3月2日进行，虽然以达成共识为目的但却有很深的鸿沟。一方面乌克兰要求撤出所有俄罗斯军队，而俄罗斯一方则强硬地要求乌克兰的非军事化并保持中立，以及追究现任政府的责任。
+ESPN:由于纽约市市长埃里克·亚当斯的宣布，一个城市官员告诉WABC-TV 篮球明星凯里·欧文仍将不能在3月7日在巴克莱中心比赛，因为城市针对工人的疫苗强制接种规定仍然有效。
 
-**参考资料：**[nikkei][ロシア軍、主要都市で民間人攻撃　大量破壊兵器も使用か](https://www.nikkei.com/article/DGXZQOGR016U80R00C22A3000000/)
+滑稽荒诞。
+
+
+
+> Despite NYC Mayor Eric Adams' announcement, a city official told WABC-TV that Kyrie Irving would still not be able to play at the Barclays Center on March 7 as the city's vaccine mandate for workers remains in effect. [pic.twitter.com/te7ILzsH8y](https://t.co/te7ILzsH8y)
+> — ESPN (@espn) [February 27, 2022](https://twitter.com/espn/status/1498067769908154370?ref_src=twsrc%5Etfw)
+
+
+
+**参考资料：**[thegatewaypundit][New York City to Lift Vaccine Mandate For Indoor Businesses, Dining and Events](https://www.thegatewaypundit.com/2022/02/new-york-city-lift-vaccine-mandate-indoor-businesses-dining-events/)
 
 * * *
 
-*审核：天天*
-*校对：宫米叶*
+*审核：文乐*
+*校对：阿伯塔*
 *发稿：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-5.jpeg)
 
  
 

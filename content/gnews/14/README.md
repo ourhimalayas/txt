@@ -2,31 +2,15 @@
 ---
 
 
-## 有声|俄对乌部署大规模杀伤性武器引民愤
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2089746/)
+## 台湾的战友请注意 新中国联邦正在帛琉共和國（Republic of Palau）建设基地
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2089804/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月26日下午，一家国外媒体在乌克兰别尔哥罗德市人口密集的郊区，发现了俄军部署的温压武器系统，即TOS-1A重型火焰喷射器，装备了“非制导温压弹头火箭炮”。
+[新中国联邦](//hashtag/%2523新中国联邦)，与[台湾农场](//hashtag/%2523台湾农场)，也会马上在[帛琉共和國](//hashtag/%2523帛琉共和國)（Republic of [Palau](https://www.gettr.com/hashtag/%23Palau)）建设基地，以应对随时可能爆发的[台海战争](//hashtag/%2523台海战争)。同样，所有台湾的战友到帛琉后，至少30天的吃穿住行，将由新中国联邦、法制基金和法制社会负责。到帛琉后，我们会想办法和其他国家协调，安排没有证件的战友及亲友到各个国家去。我们也会派[救援飞机](//hashtag/%2523救援飞机)，每架350-500人，请战友们[按规矩撤离](//hashtag/%2523按规矩撤离)，并且准备好相应的[法律文件](//hashtag/%2523法律文件)。
 
-温压弹头含有高爆炸性化学混合物，通过高温高压作用实现对目标的整体破坏，为步兵和坦克提供火力支持，在各种攻防战斗中可摧毁敌方火力，让轻型装甲车和运输工具瘫痪。温压炸弹就是真空炸弹，会在爆炸中吸入氧气，可对肌体尤其是肺部造成严重伤害，且能发出超音速冲击波，将建筑物和人体撕裂，使用一次可杀死上万人。
+**視頻來源****: 20220226—****郭先生緊急救援烏克蘭****🇺🇦****大直播**
+**視頻製作****: ****文星光**
+**文案****:****文星光**
 
-根据国际共识，温压武器不能滥用于居民区，但俄罗斯在车臣和叙利亚曾使用过它。如今俄军再次将其从军械库拿出并部署到乌克兰境内，外界普遍担心遭受乌克兰顽强抵抗而挫败的俄军，会向基辅等城市滥用这些武器，这将给平民带来非常恐怖的死伤后果。
-
-文字版原文：[俄对乌部署大规模杀伤性武器引民愤](https://gnews.org/zh-hans/2085964/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
