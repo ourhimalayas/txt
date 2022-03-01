@@ -2,25 +2,33 @@
 ---
 
 
-## 【圆成原创】止战！紧急呼吁传播俄罗斯入侵乌克兰的战争的真相！
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2089980/)
+## 美国的选择决定人类的命运
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2090074/)
 
-2022-03-01
+作者：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在2月27日的大直播中，郭文贵先生表示，美国在台海战争问题上的选择，将决定人类的命运。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-2.jpg)
+郭先生说，美国和日本比中共更希望台海战争的发生。美国为了出师有名，意欲让全世界看到中共公然侵略台湾，造成油价和芯片价格上涨，供应链断裂，并让韩国、印度和东南亚等国感受到中共的致命威胁，此时美国会组织包括澳大利亚在内的盟军部队来灭共。但是，这种战争的结果会很残酷，因为只要有美国参与灭共，中共就一定会联合朝鲜和伊朗，并极有可能会使用核武器。
 
-**作者：天空的鸿雁**
+郭先生认为，如果美国按部就班的先从联合国得到“战争执照”授权，然后再开始灭共，说明美国希望发生世界大战而重整秩序；如果美国在中共侵略台湾刚开始时，就选择出手灭共，则说明美国希望维持原有的国际秩序。选择后者，美国就需要大胆对中共提前动手；选择前者，人类将要付出巨大代价，不仅会造成大量人员伤亡，而且由于中共使用核武器，会导致很多无人区的出现。
 
-今天俄罗斯入侵乌克兰的战争已进入第六天。据西方卫星图片，大批俄罗斯坦克、装甲车、火炮正在基辅周围集结，距基辅市中心只有约25公里。2月28日，俄罗斯国防部发言人科纳申科夫敦促基辅平民撤离基辅。这预示着基辅大战在即，现在可能是大战来临前的平静，这将可能是21世纪欧洲最惨烈的一幕。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/A16D021A-1AFA-4B67-941D-F638FEADA98B.jpeg)图片来源：网络
-如果有一天您不想因战火而失去自己的家园！如果有一天您不想以这样的方式和您的孩子分离！如果有一天您不想让自己的亲人生活在战争的恐惧中！如果您愿意帮助从俄乌战争中挽救无数无辜的人们的鲜活的生命！那么请加入我们的行列，动动您的手指，一起来阻止俄乌战争的继续！让我们一起努力把真相传播给更多的人们，让全世界了解更多的俄罗斯入侵乌克兰的真相，让全世界一起努力，阻止俄罗斯这种灭绝人性残暴的强权强盗行径！同时请尽力去帮助那些身受战火煎熬的无辜的平民和孩子们！愿上天保佑那些无辜的孩子远离战火！
+参考链接：[美国的选择决定人类的命运](https://www.gettr.com/post/pxc1jt8397)
 
-**编辑：卢卡斯**
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-**发布：歪桑**
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

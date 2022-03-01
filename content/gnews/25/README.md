@@ -2,31 +2,42 @@
 ---
 
 
-## 郭文贵先生揭露习近平面临的五个危机
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2090298/)
+## 中共加紧用毒疫苗荼毒人民
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2090565/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在2月27日的大直播中，郭文贵先生揭露了习近平接下来将面临五个危机。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-1.jpg)
-首先在台海问题上，如果习近平是选择侵略，将会招致海外各国尤其是美日两国的反击。相反，如果习近平放弃攻台，则会面临极其惨烈的内部斗争，这是习将面临的第二种危机。即使习能够在这两个结局之后得以苟延残喘，也会因为台海问题上受到的羞辱，而郁闷至死。第四，普京因为在乌克兰事件中被世界孤立，一定也不会放过习近平。最后一点，也是郭先生一直提到的，习近平的身体每况愈下，能撑多久都是未知数。
+**【国内新闻短评】**
 
-参考链接：[郭文贵先生揭露习近平面临的五个危机](https://gtv.org/video/id=621b7633019ef64da651ee6c（)
+**新京报2022年02月26日发布：国家卫健委：疫苗接种仍是疫情防控关键手段，符合条件尽快加强免疫**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/99aqp47-80ct9-1.jpg)**图片来源：网络**![](https://assets.gnews.org/wp-content/uploads/2022/03/xk1.jpg)
+***短评：***
 
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+中共2月26日，国务院联防联控机制召开新闻发布会，介绍疫情防控和疫苗接种工作有关情况。
 
-总编：DM
-编辑：DM
-校对/发稿：Hetangyuese
+中共继续并加紧用毒疫苗杀戮人民
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+文中称：截至2月25日，全国累计报告接种新冠病毒疫苗31亿1462.2万剂次，疫苗接种总人数达到12亿6930.2万，已完成全程接种12亿3454万人，完成加强免疫接种5亿5472.8万人。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+疫苗不仅对冠状病毒无效，而且会对身体健康与生命安全造成不可挽回的危害，这几乎已是全球共识，然而，就在在世界各国开始陆续结束疫苗接种的现实面前，面对已经如此高的接种率，中共却依然由官方大张旗鼓地宣称“疫苗接种仍是疫情防控关键手段“，并继续“指导各地稳妥有序推进新冠病毒疫苗的接种工作”。可见，为了个别盗国集团的经济利益，为了更全面的荼毒人民，中共统一部署、统一行动，加紧推进毒疫苗接种的恶行还不会收手。
+
+**60岁以上老人是中共毒疫苗重点对象**
+
+中共卫健委疾控局副局长称：“截至2月25日，60岁以上老年人新冠病毒疫苗接种人数达到2亿1991.1万人，完成全程接种2亿1106.6万人“。“近期重点针对60岁以上的老年人和加强免疫接种工作开展了多项的工作部署，同时启动了序贯加强免疫接种。请60岁以上特别是80岁以上的无禁忌的老年朋友积极主动接种疫苗，为保护自身身体健康、为尽快控制疫情贡献力量”。
+
+2亿1991.1万60岁以上老人接种毒疫苗，完成全程接种60岁以上老人2亿1106.6万人。而中共国家统计局公布第七次全国人口普查（2021年5月）数据显示是“60岁及以上人口为2.6402亿人”。以此计算，60岁以上老人接种率83.3%，完成全程接种60岁以上老人约80%。如此高的60岁以上老人接种率中共还嫌不够，还发文说：“近期重点针对60岁以上的老年人和加强免疫接种工作开展了多项的工作部署，同时启动了序贯加强免疫接种，为群众提供了多种加强接种的选择。”由此推断，中共此次发布会，给60岁以上老人接种毒疫苗是接下来的重点；并且，中共已不再掩饰其尽快借毒疫苗消灭老龄人口之险恶用心。
+
+***文章观点仅代表作者个人，与Gnews 平台无关***
+
+新闻链接：
+[https://wap.bjd.com.cn/news/2022/02/26/10047542.shtml](https://wap.bjd.com.cn/news/2022/02/26/10047542.shtml)
+
+素材：洛杉矶盘古农场 — 心照
+评论：洛杉矶盘古农场 — 心照
+编审：洛杉矶盘古农场 — 柯震恶
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
