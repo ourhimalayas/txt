@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/1/2022 9:57 PM (UTC)`
+
+3/1/2022 Miles Guo’s GETTR: Although it is a war between Russia and Ukraine, the Chinese people have become the target of hatred due to the fact that the CCP has been spreading malice all over the world; It is so pathetic that the Chinese people still believe the CCP, who always care about themselves rather than ordinary people; even so, we will still try our best to rescue our fellow Chinese from the war zone, and awaken more Chinese people.<br/><br/>3/1/2022文贵盖特：俄乌打仗，被共产党到处拉仇恨的中国人成了被恨的对象，中国人咋还相信让领导先走的共产党？可悲啊！即便如此，我们也还要救战火中的中国同胞、唤醒更多的中国人<br/>
+![img](https://media.gettr.com/group39/getter/2022/03/01/21/e67a919d-7839-c315-b0ab-5cabd807f466/out.jpg)
+
+---
+
 `@miles 3/1/2022 9:53 PM (UTC)`
 
 3/1/2022 Miles Guo’s GETTR: It is said Putin was furious, he called and urged Xi Jinping to take actions against Taiwan; As the Russia-Ukraine war continues, instead of rescuing its own people, the CCP has been insanely trying to control public opinion; The New Federal State of China has rescued many Chinese Embassy staff, and will demonstrate with actions and results who really care about the Chinese people!<br/><br/>3/1/2022 文贵盖特：据说，普京大怒，打电话催习近平对台湾动手；面对俄乌战事，中共非但救援却疯狂控制舆论，我们救了多少大使馆人员？新中国联邦用行动结果证明谁在关爱中国人！<br/>
@@ -147,13 +154,6 @@
 
 2/27/2022 Miles Guo: Ukraine’s president has set a precedent in the international political arena: 1) by standing up as a truly elected president, neither he nor his family has fled the country; 2) by not turning his back on the West when the US and EU ignored him. That’s why he is recognized as a "political gentleman".<br/><br/>2/27/2022 文贵直播：乌克兰总统开创了国际政坛的先河：1）作为真正的民选总统，他挺身而出，他和他家人都没跑路；2）在美欧不理他的时候，他并未和西方翻脸，所以被评为“政治绅士”<br/>
 ![img](https://media.gettr.com/group23/getter/2022/02/27/22/62f15a84-6ad7-87b2-905e-2dc938adc0ea/out.jpg)
-
----
-
-`@miles 2/27/2022 10:09 PM (UTC)`
-
-2/27/2022 Miles Guo: The Russian invasion of Ukraine has given Xi Jinping confidence to attack Taiwan, and he will surely implement his third battle plan. That is, Xi will use quasi-nuclear weapons to bomb Taiwan, which will definetely fight back against the CCP by destroying its coastal military bases.<br/><br/>2/27/2022 文贵直播：俄罗斯打乌克兰给了“习太阳”攻台的信心，他一定会采用第三套作战方案，即用准核武器狂轰滥炸台湾，台湾也一定会奋力反击并摧毁中共国沿海军事基地<br/>
-![img](https://media.gettr.com/group26/getter/2022/02/27/22/1f694f02-870a-ee8b-f0d2-7d9b05bce5e2/out.jpg)
 
 ---
 
