@@ -2,155 +2,293 @@
 ---
 
 
-## 美国财政部制裁全文：禁止与俄罗斯中央银行进行交易并对俄罗斯财富的主要来源实施制裁
-` 经济小组` [轉載自GNews](https://gnews.org/zh-hans/2085146/)
+## 战场清创术和创伤急救
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2085121/)
 
-翻译：日本東京方舟農場 感謝郭叔
+### **作者：dingding**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-10.png)
+## **清 创 术**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/05/s2.jpg)
+#### **（一）伤  口**
 
+•**伤口描述：**创面、创缘、创腔、创底四个部分。
 
+•**伤口性质：**
+ –边缘不齐—钝器伤 
+–边缘整齐—利器伤 
+–伤口小深—锐器刺伤 
+–创口周围有褐色灼伤—火器伤
 
-摘要：2月28日，在与盟国和合作伙伴的协调下，美国财政部外国资产控制办公室（*OFAC*）限制了俄罗斯中央银行、俄罗斯主权财富基金和俄罗斯财政部获得数十亿美元资产，这一行动在财政上限制了俄罗斯维持其战争的能力，进一步打击了已经迅速贬值的卢布，并贯彻了美国与合作伙伴及盟友在2月26日做出的承诺，即采取限制性措施，防止俄罗斯联邦中央银行通过部署其国际储备削弱美国制裁影响。财政部同时制裁了三家与俄罗斯主权财富基金关系密切的实体：俄罗斯直接投资基金（*Russian Direct Investment Fund*）、俄罗斯直接投资基金的股份公司管理公司（*JSC RDIF*）和有限责任公司RVC管理公司 *(LLC RVC)*，并对普京的亲密好友，RDIF和JSC RDIF的CEO——基里尔·德米特里耶夫 *(Kirill Dmitriev)*，进行个人制裁。
+**•出血鉴别：** 
+–动脉出血—鲜红，出血急促，搏动性喷射状 
+–静脉出血—黯红色，流出缓慢                                    
+–大出血—肤色苍白，四肢厥冷，心烦口渴，胸闷恶心，尿少等休克现象
 
-* * *
+#### **（二）清 创 术**
 
-* * *
+•**概念：**清除伤口内的异物、坏死组织和细菌，使污染伤口转为干净伤口，缝合后使之能一期愈合。
 
-#### 在与盟国和合作伙伴的协调下，财政部的行动限制了对中央银行资产和主权财富基金的数十亿美元的获取 
+•**伤口处理：**伤后6-8小时内的伤口彻底清创后可一期愈合（战伤和火器伤除外）。 •伤后8-24小时（或超过24小时）的伤口，如果尚未感染配合抗菌素，仍可清创。
 
-#### 财政部制裁俄罗斯直接投资基金(Direct Investment Fund)——俄罗斯盗贼统治的象征
+•**伤口是否缝合、顺利愈合的条件：**
+–受伤环境是否干净、侵入细菌多少和毒力大小、有无异物及异物多少、坏死组织多少与死腔大小、损伤处的血循环好坏、伤口组织是否新鲜和抗病能力的强弱等。 –取决于治疗是否及时正确、清创是否彻底和术后处理是否得当。
 
-#### 美国及其伙伴和盟国继续追究俄罗斯联邦政府对其有预谋和无端入侵乌克兰的责任
+•**感染伤口，不能清创或清创不彻底处理：** 
+–**敞开伤口** 
+–**清除死组织，血块和异物** 
+–**引流、冲洗** 
+–**更换敷料** 
+–**等待延期缝合或植皮**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/844d15e299584af13408a08b356e4f81-1.jpg)
+### **清 创 术 步 骤**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1200px-Seal_of_the_United_States_Department_of_the_Treasury.png)
+**•准备：**
+**麻醉后，无菌纱覆盖伤口，剃除伤口周围毛发、污物，刷洗伤口周围皮肤3次。双氧水泡洗伤口，再用生理盐水反复冲洗。消毒伤口周围的皮肤，铺无菌巾。**
 
-华盛顿——今天，美国财政部外国资产控制办公室（OFAC）禁止美国人与俄罗斯联邦中央银行、俄罗斯联邦国家财富基金和俄罗斯联邦财政部进行交易。这一行动有效地冻结了俄罗斯联邦中央银行在美国或由美国人持有的任何资产，无论位于何处。
+•**清创：**不宜使用止血带，以免健康组织缺血。 
+**–充分显露创腔 
+–彻底止血 
+–彻底切除坏死组织 
+–充分冲洗和引流 **
 
-此外，根据拜登总统上周的指示，OFAC 制裁了一个重要的与美国金融体系有联系的俄罗斯主权财富基金——俄罗斯直接投资基金 (Russian Direct Investment Fund, RDIF)，以及其首席执行官 (CEO) 基里尔·德米特里耶夫 (Kirill Dmitriev)——众所周知的普京盟友。最近被任命的俄罗斯总统弗拉基米尔·普京和他的亲信圈子长期以来一直依靠 RDIF 和德米特里耶夫在国外筹集资金，包括在美国。通过进一步限制这些个人和实体进入美国金融体系，美国继续表明其支持乌克兰的坚定承诺，对普京的核心圈子或与普京及其选择的战争有关的人施加成本，并阻止普京政权筹集资本为其入侵乌克兰和其他优先事项提供资金。
+•**修复伤口：**尽量保护和修复重要的神经血管等组织器官，恢复其正常的解剖关系。
 
-美国并没有单独采取这一行动。2022 年 2 月 26 日，[合作伙伴和盟国承诺](https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/26/joint-statement-on-further-restrictive-economic-measures/)实施限制性措施，以防止俄罗斯联邦中央银行通过部署其国际储备以削弱美国制裁的影响。昨晚，欧盟跟进对俄的限制措施。我们的行动表明了全球对乌克兰的支持，并承诺让俄罗斯威胁性的独裁统治者对其令人发指的行为负责。
+**术 后 处 理** 
+•维持适当固定； 
+•适当抬高患肢和更换敷料； 
+•观察患肢运端血液循环及神经功能； 
+•正确使用抗生素； 
+•术后感染的处理； 
+•内治法。
 
-财政部长珍妮特·L·耶伦（Janet L. Yellen）说：”我们今天采取的史无前例的行动将大大限制俄罗斯利用资产为其破坏稳定的活动提供资金的能力，并针对使普京及其核心圈子能够入侵乌克兰所依赖的资金。今天，在与合作伙伴和盟友的协调下，我们正在落实限制俄罗斯获得这些宝贵资源的关键承诺。”
+## **创伤急救**
 
-根据第 14024 号行政命令 (E.O.) 采取今天的行动，因其有害外国的活动，该行政命令授权制裁俄罗斯，包括其对公认的国际法原则的违反，例如尊重其他国家的主权和领土完整。
+### **概  论**
 
-#### 在财政上限制俄罗斯维持其战争的能力 
+**创 伤:**是指各种物理、化学和生物等致伤因素作用于机体，造成组织结构完整性损害或功能障碍
 
-今天，OFAC 根据 E.O. 14024 发布了新指令 4，“禁止涉及俄罗斯联邦中央银行、俄罗斯联邦国家财富基金和俄罗斯联邦财政部的交易”（涉俄主权交易指示）。根据与俄罗斯有关的主权交易指令，美国人被禁止参与涉及俄罗斯联邦中央银行、俄罗斯联邦国家财富基金或俄罗斯联邦财政部的任何交易。
+**创伤急救:**是急诊医学的重要组成部分，反映了现代医学进步和经济发展的必然需求
 
-这一行动贯彻了合作伙伴和盟友在2月26日做出的承诺，即采取限制性措施，防止俄罗斯联邦中央银行通过部署其国际储备削弱美国制裁影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-132139-1.jpg)
 
-与俄罗斯有关的主权交易指令将通过限制卢布的全球供应和俄罗斯可能试图兑换储备金以支持卢布的途径，扰乱俄罗斯支撑其迅速贬值的货币的企图。
+#### **第一节   急救技术**
 
-在发布该指令的同时，外国资产管制处正在发布一项一般许可，授权与俄罗斯联邦中央银行进行某些与能源有关的交易，并将根据需要进行其他授权和指导。
+•**目的：**维持伤员生命，避免继发性损伤，防止伤口感染
 
-#### 瞄准俄罗斯直接投资基金
+**•急救原则：**
+先抢后救
+先重后轻
+先急后缓
+先近后远
+连续监护　　　          
+救治同步
 
-OFAC 还指认了对管理俄罗斯的一个重要主权财富基金至关重要的三个实体： 俄罗斯直接投资基金（RDIF），其管理公司，以及管理公司的一个子公司。 通过封锁这些实体，OFAC正在终止俄罗斯从进入美国金融系统中受益的另一条途径。
+#### **创伤急救五项技术**
 
-**俄罗斯直接投资基金 ****(RDIF)**于 2011 年由当时的俄罗斯总统德米特里·梅德韦杰夫（Dmitry Medvedev）和当时的俄罗斯总理弗拉基米尔·普京（Vladimir Putin）下令创建。RDIF 在保险和金融服务等多个行业开展业务。RDIF 创建的目的之一是与国际投资者建立关系，以便在俄罗斯进行直接投资。虽然官方称其为主权财富基金，但 RDIF 被广泛地被认为是总统弗拉基米尔·普京 (Vladimir Putin) 的行贿基金，更广泛地被认为是是俄罗斯盗贼统治的象征。
+#### •**复苏** 
+•**通气** 
+•**止血 ** 
+•**包扎 ** 
+•**固定 ** 
+•**搬运**
 
-OFAC 根据 E.O. 14024 指定 RDIF 由俄罗斯政府 (GoR) 直接或间接拥有或控制，或行事或声称行事或代表俄罗斯政府 (GoR)。RDIF 也于2022年2月24日被加拿大制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-132526-2.jpg)
 
-**俄罗斯直接投资基金的股份公司管理公司（****JSC RDIF****）**是 RDIF 的管理公司。为应对俄罗斯2014 年对乌克兰的无端攻击，OFAC 于 2015 年根据 E.O. 13662 的指令 1 对 JSC RDIF 的前身，俄罗斯直接投资基金管理公司，发布了债务和股权限制。今天的行动扩大该项制裁到这个实体，即该公司现在已被封锁。OFAC 根据 E.O. 14024 指定 JSC RDIF 由 GoR 直接或间接拥有或控制，或行事或声称行事或代表 GoR，以及在俄罗斯联邦的金融服务部门经营或曾经经营。
+#### **复 苏**
 
-**有限责任公司****RVC****管理公司 ****(LLC RVC)**是 JSC RDIF 的子公司。LLC RVC 是一家从事存款银行业务、投资基金管理、单位投资信托、保险和私人养老基金业务的公司。
+对有呼吸困难或呼吸停止的，应紧急开放气道，保证呼吸道通畅及进行呼吸支持，对心脏骤停者进行连续心脏按压
 
-OFAC 根据 E.O. 14024 指定 LLC RVC RDIF 为由 JSC RDIF 直接或间接拥有或控制，或作为或声称代表或代表 JSC RDIF，以及在俄罗斯的金融服务部门经营或曾经经营。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-132825.jpg)
 
-#### 基里尔·德米特里耶夫 (Kirill Dmitriev)
+#### **通  气**
 
-基里尔·亚历山德罗维奇·德米特里耶夫 (Kirill Aleksandrovich Dmitriev)是普京的亲密盟友，也是 RDIF 和 JSC RDIF 的首席执行官。德米特里耶夫是美国大学的校友，与美国咨询和金融服务公司有联系。他利用自己与美国大学和组织的关系，担任俄罗斯总统在美国机构的代表，从而提供了获得美国关键经济机会的机会。
+**•清除口鼻咽喉中的堵塞物 
+•处理舌后坠等 
+•气管切开**
 
-在俄罗斯精英中，德米特里耶夫是普京的亲密伙伴，他和他的妻子也被认为与普京的女儿卡特琳娜·蒂霍诺娃（Katerina Tikhonova）和她的前夫亿万富翁基里尔·沙马洛夫（Kirill Shamalov）关系密切。根据 E.O. 13662，沙马洛夫于 2018 年 4 月被指定在俄罗斯联邦经济的能源部门开展业务。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-133154.jpg)
 
-OFAC 根据 E.O. 14024 指定 德米特里耶夫是或曾经是 GoR 的领导人、官员、高级执行官或董事会成员。德米特里耶夫也于2022年2月24日受到加拿大的制裁。
+#### **止 血**
 
-有关[今天被制裁的个人的识别信息，请单击此处](https://home.treasury.gov/policy-issues/financial-sanctions/recent-actions/20220228)。
+•**止血** 
+•止血不及时或不彻底是引起伤员休克甚至死亡的常见原因。因此及时而彻底地止血是现场急救的又一重要原则。常有的有包扎压迫止血，知名动脉压迫止血，止血带止血和钳夹结扎止血4种。
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-133845.jpg)
 
-[https://home.treasury.gov/news/press-releases/jy0612](https://home.treasury.gov/news/press-releases/jy0612)
+（1）加压包扎止血    用消毒或干净敷料填塞伤口，再用绷带缠绕压迫，即可止血。本方法操作简单，效果好，并发症少，是行之有效、安全可靠的止血方法。
 
-[https://www.federalregister.gov/executive-order/14024](https://www.federalregister.gov/executive-order/14024)
+（2）知名动脉压迫止血   用手指压迫伤口近端的知名动脉止血。如在上臂的上段内侧用手指向肱骨方向压迫**肱动脉**，使上肢伤口止血；在腹股沟前方向股骨方向压迫**股动脉**，使下肢伤口止血等。**方法简单有效，但只能暂时性止血。**
 
-* * *
+（3）止血带止血     止血效果确实，但如使用不当，可引起严重并发症，应慎用，使用时应注意：
 
-#### **Treasury Prohibits Transactions with Central Bank of Russia and Imposes Sanctions on Key Sources of Russia****’****s Wealth**
+•  A、**止血带束扎部位：手指在指根，上肢在上臂上1/3，下肢在大腿中上段。**
 
-#### In Coordination with Allies and Partners, Treasury Actions Restrict Access to Billions in Central Bank Assets and Sovereign Wealth Fund 
+•  B、**安放止血带部位应衬以一定宽度、厚度、平坦柔软的衬垫。**
 
-#### Treasury Sanctions Russian Direct Investment Fund – A Symbol of Russian Kleptocracy
+•  C、**止血带束扎部位要松紧适度，以能止血为限。**过紧易引起神经损伤，过松则只阻断静脉而加重出血。
 
-United States and its Partners and Allies Continue to Hold the Government of the Russian Federation Accountable for its Premeditated and Unprovoked Invasion of Ukraine
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-134231.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-134303.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-134515.jpg)
 
-WASHINGTON – Today, the U.S. Department of the Treasury’s Office of Foreign Assets Control (OFAC) prohibited United States persons from engaging in transactions with the Central Bank of the Russian Federation, the National Wealth Fund of the Russian Federation, and the Ministry of Finance of the Russian Federation. This action effectively immobilizes any assets of the Central Bank of the Russian Federation held in the United States or by U.S. persons, wherever located.
 
-In addition, as directed by President Biden last week, OFAC sanctioned a key Russian sovereign wealth fund, the Russian Direct Investment Fund (RDIF), with exposure to the United States financial system and its Chief Executive Officer (CEO), Kirill Dmitriev – a known Putin ally. Recently designated Russian President Vladimir Putin and his inner circle of cronies have long relied on RDIF and Dmitriev to raise funds abroad, including in the United States. By further restricting these persons and entities from the U.S. financial system, the United States continues to demonstrate its unwavering commitment to support Ukraine, impose costs on Putin’s inner circle or those connected to Putin and his war of choice, and to prevent Putin’s regime from raising capital to fund its invasion of Ukraine and other priorities.
+#### **止血带法**
 
-The United States has not taken this action alone. On February 26, 2022, partners and allies committed to imposing restrictive measures that will prevent the Central Bank of the Russian Federation from deploying its international reserves in ways that would undermine the impact of United States sanctions and the European Union followed up with their restrictions last night. Our actions demonstrate global support for Ukraine and the commitment to hold Russia’s threatening, authoritarian rulers responsible for their heinous actions.
+•D、**止血带不宜过窄，以防压坏深部组织。**如现场找不到合适的止血带，也可用粗弹性橡皮管或布带替代：后者将布带在束扎部位绕好打结，结下插入一短棒，旋转布带至伤口不再出血为准。
 
-“The unprecedented action we are taking today will significantly limit Russia’s ability to use assets to finance its destabilizing activities, and target the funds Putin and his inner circle depend on to enable his invasion of Ukraine,” said Secretary of the Treasury Janet L. Yellen. “Today, in coordination with partners and allies, we are following through on key commitments to restrict Russia’s access to these valuable resources.”
+•E、**准确地记录束扎止血带的时间，每小时（最长不得超过2小时）放松一次，通血15分钟后，如需要可重复束扎。**有大出血或可能引起出血性休克危险时，不可轻易放松止血带，尽快将伤员送到医院并向接诊大夫说明止血带的使用情况。
 
-Today’s actions were taken pursuant to Executive Order (E.O.) 14024, which authorizes sanctions against Russia for its harmful foreign activities, including violating well-established principles of international law, such as respect for the sovereignty and territorial integrity of other states.
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-135159.jpg)
 
-#### **RESTRICTING RUSSIA****’****S ABILITY TO FINANCIALLY SUSTAIN ITS WAR**** **
+（4）钳夹结扎止血   止血确实，但易损伤组织。较大血管损伤出血，在上述止血方法不易奏效时考虑使用。**钳夹时应避免损伤正常血管，尽可能保留血管长度，以利血管的吻接或修复。**
 
-Today, OFAC issued new Directive 4 under E.O. 14024, “Prohibitions Related to Transactions Involving the Central Bank of the Russian Federation, the National Wealth Fund of the Russian Federation, and the Ministry of Finance of the Russian Federation” (Russia-related Sovereign Transactions Directive).  Pursuant to the Russia-related Sovereign Transactions Directive, United States persons are prohibited from engaging in any transaction involving the Central Bank of the Russian Federation, the National Wealth Fund of the Russian Federation, or the Ministry of Finance of the Russian Federation.
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-135500.jpg)
 
-This action follows through on partners’ and allies’ commitment made on February 26 to impose restrictive measures to prevent the Central Bank of the Russian Federation from deploying its international reserves in a way that would undermine the impact of U.S. sanctions.
+#### **包扎伤口 **
 
-The Russia-related Sovereign Transactions Directive will disrupt Russia’s attempts to prop up its rapidly depreciating currency by restricting global supplies of the ruble and access to reserves that Russia may try to exchange to support the ruble.
+（1）**用急救包内的灭菌纱布，如无现成的灭菌纱布可权宜用洁净的毛巾、衣服、布类覆盖创面，外用绷带或布条包扎。**创面大的烧伤用大块灭菌纱布或洁净的被单包扎，包扎时不要弄破创面的水泡。 **毛巾是灾害现场中容易得到的东西**，可将其叠成条状，对角折成三角状，或四角扎上布代形成多头敷料，以代替绷带敷料、三角巾或多头带。
 
-Contemporaneously with the issuance of this directive, OFAC is issuing a general license to authorize certain energy-related transactions with the Central Bank of the Russian Federation and will follow with other authorizations and guidance as needed.
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-135940.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-140004.jpg)
 
-#### **TARGETING RUSSIAN DIRECT INVESTMENT FUND**
 
-OFAC also designated three entities critical to managing one of Russia’s key sovereign wealth funds:  Russian Direct Investment Fund (RDIF), its management company, and one of the managing company’s subsidiaries.  By blocking these entities, OFAC is terminating yet another route through which Russia has benefitted from access to the U.S. financial system. 
- 
-**The Russian Direct Investment Fund (RDIF)** was created in 2011 by order of then-President of Russia, Dmitry Medvedev, and then Prime Minister of Russia, Vladimir Putin. RDIF operates in a number of industries, such as insurance and financial services. One of the purposes behind RDIF’s creation was to develop relationships with international investors for direct investment in Russia. While officially a sovereign wealth fund, RDIF is widely considered a slush fund for President Vladimir Putin and is emblematic of Russia’s broader kleptocracy.
+（2）**颅脑伤**用敷料或其他布类作成一大于伤口的圆环，放在伤口周围，然后包扎，以免颅骨骨折片包扎时陷入颅内。
 
-OFAC designated RDIF pursuant to E.O. 14024 for being owned or controlled by, or for acting or purporting to act for or on behalf of, directly or indirectly, the Government of Russia (GoR). RDIF was also sanctioned by Canada on February 24, 2022.
+（3）**胸部伤之有开放性气胸者**（伤口有气体呼噜呼噜进出），要包扎紧密，阻断气体从伤口进出。
 
-**Joint Stock Company Management Company of the Russian Direct Investment Fund (JSC RDIF)**** **is RDIF’s management company. In response to Russia’s 2014 unprovoked attack on Ukraine, OFAC issued debt and equity restrictions in 2015 on JSC RDIF’s predecessor, the Russian Direct Investment Fund Management Company, pursuant to Directive 1 under E.O. 13662. Today’s action expands the sanctions on this entity, which is now blocked.
+（4）**多处、多根肋骨骨折的胸部伤，胸壁失去支持，不能作有效的呼吸，对伤员的生命威胁很大**，可用衣物、枕头、沙袋等压迫包扎于伤侧，以避免胸壁浮动，现场无适当物品可用时，可将伤员侧卧在伤侧。
 
-OFAC designated JSC RDIF pursuant to E.O. 14024 for being owned or controlled by, or for acting or purporting to act for or on behalf of, directly or indirectly, the GoR, and for operating or having operated in the financial services sector of the Russian Federation economy.
+（5）**外露的骨折端不要还纳，如包扎过程中自行还纳，应在后送文件（如伤票）上注明。**
 
-**Limited Liability Company RVC Management Company (LLC RVC)** is a subsidiary of JSC RDIF. LLC RVC is a company that operates in deposit banking, management of investment funds, unit investment trusts, insurance, and private pension funds.
+（6）**有内脏（多为小肠或大网膜）脱出的腹部伤，不要还纳脱出的内脏，可先用大块灭菌纱布盖好，再用凹形物（如饭碗等）扣上，或用纱布卷、毛巾作成环状保护圈，**注意扣上的保护物不要扣压在内脏上，再用绷带或三角巾将之包扎，以免内脏继续脱出。
 
-OFAC designated LLC RVC RDIF pursuant to E.O. 14024 for being owned or controlled by, or for acting or purporting to act for or on behalf of, directly or indirectly, JSC RDIF, and for operating or having operated in the financial services sector of the Russian Federation economy.
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-140220.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-140318.jpg)
 
-#### **KIRILL DMITRIEV**** **
 
-**Kirill Aleksandrovich Dmitriev (Dmitriev)** is a close ally of Putin and the CEO of RDIF and JSC RDIF. Dmitriev is an alumnus of American universities and has links to American consulting and financial services firms. He has leveraged his ties to universities and organizations in the United States to serve as a representative for the Russian president to American institutions, thereby providing access to key economic opportunities in the United States.
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-140355-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-140424-1.jpg)
 
-Among the Russian elite, Dmitriev is a close associate of Putin and he and his wife are also believed to be close to one of Putin’s daughters, Katerina Tikhonova, and her former husband, billionaire Kirill Shamalov. Shamalov was designated in April 2018 pursuant to E.O. 13662 for operating in the energy sector of the Russian Federation economy.
 
-OFAC designated Dmitriev pursuant to E.O. 14024 for being or having been a leader, official, senior executive officer, or member of the board of directors of the GoR. Dmitriev was also sanctioned by Canada on February 24, 2022.
+#### **固 定**
 
-For [identifying information on the individuals sanctioned today, click here](https://home.treasury.gov/policy-issues/financial-sanctions/recent-actions/20220228).
+•**固定伤肢** 
+•** 有骨折的或有严重软组织伤的肢体要用夹板或就地取材，用木板、竹枝或受伤战士的枪支将伤肢固定，固定应超过伤口上下方的关节，在没有可用的物品时，可将上肢固定于胸前，下肢固定于健腿。**
 
-Reference link:
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-140911.jpg)
 
-[https://home.treasury.gov/news/press-releases/jy0612](https://home.treasury.gov/news/press-releases/jy0612)
+#### **固定材料 **
 
-编辑：香草山金融部 ILOVE战神
+**① 夹 板**
 
-校对/发稿：飞虹
+**② 敷 料**
+
+**③ 颈托、颈围或器具**
+
+**④ 就地取材，如木棒、树枝**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-141158.jpg)
+
+#### **固定方法**
+
+**① 夹板固定法 **
+
+**② 自体固定法 **
+
+**③ 锁骨骨折固定 **
+
+**④ 常见的四肢骨折固定  **
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-141537.jpg)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-141612.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-141715.jpg)
+
+
+#### **搬  运**
+
+•**伤员运送**
+
+•**1、急救固定** •**搬动与转运伤员前，应先将伤部固定，使伤员在搬动时或转运途中能安全、舒适，避免因颠簸、震动而增加疼痛、出血与继发损伤，急救固定原则：** **（1）伤部必须确实固定。**
+
+**（2）肢体的固定要求包括伤部上、下两个关节。**
+
+**（3）骨折仅需要作“原位固定”，要求躯干或肢体纵轴对线，切忌强求解剖复位，开放性骨折尤应如此。**
+
+**（4） 固定材料不可强求规格、型式，可就地取材，利用一切可用之物做固定材料，在缺乏任何材料时，可将上肢固定于躯干，或将两下肢捆在一起，利用健肢固定伤肢。**
+
+•**2、伤员运送 •伤员经现场急救后，需迅速运送至附近的医疗机构，有些伤员还要运送至有专科设置的医疗单位，运送伤员力求快速，尽量缩短受伤至确定性治疗的间隔时间，伤后至确定性手术间隔时间与死亡率成正比，重危伤员每延迟30分钟死亡率可增加3倍。**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-142034.jpg)
+
+**在灾害现场有大量伤员时，应根据伤情和参考“创伤指数”定出运送的先后次序，设法将伤员人数和伤情通知收治医院，如可能，伤员应交替送往几所医院，要避免一时间内大量伤员涌入一所医院。** •**   根据当时当地具体情况，采用下述运送方法：**
+
+**（1） 徒手搬运 ** •**徒手搬运适用于战地前沿将伤员从火线搬运至安全地区，在山区不能采用其他方法时也可使用。**
+
+•** A、单人徒手搬运   将伤员抱着或背上搬运。**
+
+**徒手搬运方法（1）**
+
+**（1）扶行法**
+**（2）背负法**
+**（3）拖行法**
+**（4）轿杠式**
+**（5）双人拉车式 **
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-142815.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-142849.jpg)
+
+
+•**B、双人徒手搬运   2人用手搭成椅子状抬运或将伤员平托搬运。平托搬运时不可一人抱胸一人抱腿搬运。**
+
+**（2）担架搬运  ** •**担架搬运是最常用的搬运方法。伤员在担架上可以人力抬运或放在汽车、飞机上转运。无特制担架时，可就地取材制成简易担架或用木板代替。不能排除脊椎伤伤员，搬运时要特别小心，以免引起脊髓损伤，造成伤员即时死亡或终身残废，脊椎伤员上下担架时需要3-4人搬运，担架最好时硬质木板。**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-143040.jpg)
+
+•**A、颈椎伤搬运   **
+
+**1人负责牵引伤员头部，保持伤员的头与躯干成直线，另3人在伤员左侧，1人抱住下肢，1人抱住臀腰部，1人抱住肩背部，在口令指挥下，协同动作，将伤员搬上下担架。 **
+
+•**B、胸腰椎伤搬运法   **
+
+**搬运胸腰椎伤伤员时，3人同在伤员右侧，1人托住肩背部，1人托住腰臀部，1人抱持住伤员的两下肢，在一人的口令下，协同将伤员搬上下担架。在担架上伤员可取仰卧位并固定于担架上，腰部垫一约10cm高的小枕。**
+
+•**C、昏迷或有窒息危险伤员搬运法    昏迷或有窒息危险伤员搬运应采取侧俯卧位以免搬运时呕吐物被吸入呼吸道。**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-143303-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-143327-1.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-143415-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-143455-2.jpg)
+
+
+#### **器械搬运**
+
+**5．器械搬运及各部位损伤搬运法**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-01-143828.jpg)
+
+**车辆运送  **
+
+•**只要道路情况允许都可用救护车运送伤员，如无救护车可用普通卡车载运，为了减轻空车颠簸，车内可垫上沙子、稻草或棉被。大批伤员车辆运送时，可将不同伤情伤员搭配在一起，如上肢伤伤员与下肢伤、脊椎伤伤员搭配。上肢伤取坐位，下肢伤和脊椎伤取卧位，这样安排每一卡车约可载运14-15名伤员。较远距离的运送，特别时大批伤员要运送时，也可根据条件，利用火车9卫生列车）或（船舶）转运伤员，在卫生列车和船舶上还可开展必要的救治工作。 **
+
+发稿：文留
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

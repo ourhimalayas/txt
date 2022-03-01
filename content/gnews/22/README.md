@@ -2,23 +2,35 @@
 ---
 
 
-## 视频|俄罗斯3日亡乌计划破产并遭曝光
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2085334/)
+## 美国驱逐12名俄罗斯驻联合国外交官
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2085501/)
 
-制作：香草山视频部
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-台湾媒体2月27日报道，美国情报委员会主席、参议员卢比奥，揭露了普京妄图3日灭亡乌克兰政权的计划。
+整理：围剿维尼熊
+编辑：文泓
 
-卢比奥发表的推文显示，普京计划在开战12小时取得制空权，36小时摧毁乌克兰的军事通讯，绕过主要都会区，切割乌克兰东部守军，在开战48小时内包围基辅，迫使乌克兰政府流亡，然后在72小时内扶植亲俄的傀儡政权。卢比奥还讽刺普京说，目前为止他的计划一项也没有完成。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-1.png)图片来源：YouYube & 雅典娜设计组
 
-乌克兰国防部长列兹尼科夫也发表推文称，72小时过去后，乌克兰依然坚强地站立着，并自信地与俄罗斯战斗。我们向世界表明了一定会击退俄国侵略军的决心。
 
-发稿：谐趣园
+当地时间3月1日，据路透社报道，美国以国家安全考虑为由，已经驱逐了12名俄罗斯驻联合国外交官。
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+美国驻联合国代表团称，这些俄罗斯外交官是情报人员，一直在从事不利于美国国家安全的间谍活动。
+
+俄罗斯常驻联合国代表瓦西里·涅本贾告诉记者，这些外交官被要求在3月7日前离开，并表示俄罗斯将对此举作出回应。
+
+美国驻联合国副代表小理查德·米尔斯回应说：“这些外交官被要求离境，这样他们就不会危害东道国的国家安全，这一决定完全符合联合国总部的协议。”
+
+参考链接：[美国以国家安全考虑为由驱逐12名俄罗斯驻联合国外交官](https://cn.reuters.com/article/usa-expelling-russian-diplomats-0228-mon-idCNKBS2KY321?il=0)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

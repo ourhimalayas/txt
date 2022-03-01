@@ -15,77 +15,77 @@
 
 ---
 
-### [秘翻在线：中共国CIPS，俄罗斯被踢出SWIFT后，中共国的‘人民币跨境支付系统’备受关注](/content/gnews/1/README.md)
+### [俄乌战争让中共国损失惨重](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中国人对事物判断的愚蠢](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [秘翻在线：日本政府刚刚通过了一项非常日本式的决议！](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2月9号UBS立案标志郭文贵先生和爆料革命进入新阶段](/content/gnews/2/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [乌克兰展示了新型战争](/content/gnews/3/README.md)
+### [乌克兰战争的智慧](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [秘翻在线：台湾蔡英文总统，面对中共国施压表示：“应团结一致，应对即将到来的局势变化”](/content/gnews/4/README.md)
+### [20220226文贵大直播：如果老师成为政治工具，社会一定走向灾难](/content/gnews/5/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220226文贵大直播：教育里的政治问题，AI分配GEDU资源的必要性](/content/gnews/6/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220226文贵大直播：GEDU起点就是欧洲私人贵族学校的等级，并且全免费](/content/gnews/7/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220226文贵大直播：GEDU松绑政治教育 金钱教育提供健康的环境 用金钱促进教育把金钱和教育分开](/content/gnews/8/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [七哥保财保命报仇的意义](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [秘翻在线：中共国CIPS，俄罗斯被踢出SWIFT后，中共国的‘人民币跨境支付系统’备受关注](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌克兰用针刺导弹对付俄罗斯入侵的坦克](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [乌克兰工程师利用社交媒体呼吁欧洲清楚俄罗斯的SWIFT](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [乌克兰战友被中共抛弃](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [美国可能会怎么反击中共](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [中共可能会怎么打台湾](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [郭先生提醒战友不要违法使用HPAY](/content/gnews/10/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [郭文贵先生诉UBS案目的是一定要打开UBS的数据大门](/content/gnews/11/README.md)
+### [2月9号UBS立案标志郭文贵先生和爆料革命进入新阶段](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [参议员马可·卢比奥：长期来看,中共国的危险性要高出普京50倍](/content/gnews/12/README.md)
+### [乌克兰展示了新型战争](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [秘翻在线：台湾蔡英文总统，面对中共国施压表示：“应团结一致，应对即将到来的局势变化”](/content/gnews/13/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [乌克兰用针刺导弹对付俄罗斯入侵的坦克](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [2022年2月26日《文贵大直播&#8211;乌克兰救援紧急直播》全文字版](/content/gnews/15/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [郭文贵先生诉UBS案目的是一定要打开UBS的数据大门](/content/gnews/16/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [参议员马可·卢比奥：长期来看,中共国的危险性要高出普京50倍](/content/gnews/17/README.md)
  ` 美国政要直译推`
 
-### [【秘翻在线】如果战争继续，俄罗斯极有可能出现外债违约](/content/gnews/13/README.md)
+### [【秘翻北美时评】中共不仅欺骗华人还阻挠我们的施救行动](/content/gnews/18/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [【秘翻在线】如果战争继续，俄罗斯极有可能出现外债违约](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄乌战争｜美国授权撤离莫斯科大使馆 暂停驻白俄罗斯大使馆业务](/content/gnews/14/README.md)
+### [俄乌战争｜美国授权撤离莫斯科大使馆 暂停驻白俄罗斯大使馆业务](/content/gnews/20/README.md)
  ` 關注組`
 
-### [乌克兰积极寻求欧盟的支持](/content/gnews/15/README.md)
+### [乌克兰积极寻求欧盟的支持](/content/gnews/21/README.md)
  ` 纽约香草山MOS02`
 
-### [美国驱逐12名俄罗斯驻联合国外交官](/content/gnews/16/README.md)
+### [美国驱逐12名俄罗斯驻联合国外交官](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭先生对中共与习终局的分析](/content/gnews/17/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [视频|HBO VICE ISOBEL YEUNG的采访是对郭文贵先生有计划的诽谤 Part-15](/content/gnews/18/README.md)
- ` MOSVIDEO`
-
-### [普京在入侵乌克兰严重误判](/content/gnews/19/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [视频|疫苗护照会导致人们进入电子集中营式的奴隶制系统](/content/gnews/20/README.md)
- ` MOSVIDEO`
-
-### [澳大利亚情报人员对俄罗斯人的位置“了如指掌”](/content/gnews/21/README.md)
+### [澳大利亚情报人员对俄罗斯人的位置“了如指掌”](/content/gnews/23/README.md)
  ` 走进澳洲`
 
-### [视频|俄罗斯3日亡乌计划破产并遭曝光](/content/gnews/22/README.md)
- ` MOSVIDEO`
-
-### [秘翻在线：纽约强制疫苗措施正在逐步取消](/content/gnews/23/README.md)
+### [秘翻在线：纽约强制疫苗措施正在逐步取消](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [视频|韩国政府向乌克兰提供1000万美元用于人道救援](/content/gnews/24/README.md)
- ` MOSVIDEO`
 
 ### [视频|俄对乌部署大规模杀伤性武器引民愤](/content/gnews/25/README.md)
  ` MOSVIDEO`
@@ -93,11 +93,11 @@
 ### [联盟工作汇报文字版2022.2.27](/content/gnews/26/README.md)
  ` 纽约香草山MOS02`
 
-### [视频|身在东京的乌克兰歌手为家乡祈福](/content/gnews/27/README.md)
- ` MOSVIDEO`
-
-### [美国财政部制裁全文：禁止与俄罗斯中央银行进行交易并对俄罗斯财富的主要来源实施制裁](/content/gnews/28/README.md)
+### [美国财政部制裁全文：禁止与俄罗斯中央银行进行交易并对俄罗斯财富的主要来源实施制裁](/content/gnews/27/README.md)
  ` 经济小组`
+
+### [战场清创术和创伤急救](/content/gnews/28/README.md)
+ ` 纽约香草山MOS02`
 
 ### [俄乌战争 中共立场致在乌华人危险 遭媒体点名指责](/content/gnews/29/README.md)
  ` 日本東京方舟農場`

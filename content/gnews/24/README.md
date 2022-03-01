@@ -2,25 +2,22 @@
 ---
 
 
-## 视频|韩国政府向乌克兰提供1000万美元用于人道救援
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2085292/)
+## 秘翻在线：纽约强制疫苗措施正在逐步取消
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2085330/)
 
-制作：香草山视频部
+**翻译：Hakunamatata**
 
-2月28日，韩国外交部宣布，韩国决定向乌克兰提供1000万美元的紧急人道主义援助，用于帮助乌克兰政府、民众和难民。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/22.png)
+如果中共病毒（Covid – 19）病例继续呈下降趋势，纽约市市长埃里克·亚当斯(Eric Adams)表示，将开始取对该市的公司、餐饮等行业强制接种疫苗的规定。
 
-外交部指出，将通过与乌克兰及其周边国家政府和国际组织协商，确保援助尽快到位。
+亚当斯宣布，纽约市的中共病毒感染数字每天都在继续下降，因此，只要指标显示出传播风险是较低的，没有意外的话，从下周3月7日（周一），纽约将会取消强制令，也将确保政府为纽约人民做出最好的公共卫生决策。
 
-联合国难民事务高级专员估计，将有超过 400 万乌克兰难民逃往波兰、匈牙利、罗马尼亚和斯洛伐克等周边国家。
+纽约市是美国第一个要求在室内工作员工强制接种疫苗的大都市，未来几天将取消对室内商业、餐饮强制接种疫苗的要求。周日市长亚当斯宣布，最近几周在西雅图和波士顿等城市的政府官员也做出类似决定，他也将加入他们的行列，同时他表示公立学校也将取消在室内必须佩戴口罩的规定。
 
-外交部表示，希望韩国政府的支持能够为乌克兰民众和难民提供切实帮助，政府并计划为解决乌克兰人道主义危机作出积极力量。
+目前为止，纽约市强制其他领域人员接种疫苗的规定将继续有效。相信未来其他领域的强制措施也都会陆续取消。
 
-发稿：谐趣园
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+**[原文链接](https://nam12.safelinks.protection.outlook.com/?url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2022%2F02%2Fnew-york-city-lift-vaccine-mandate-indoor-businesses-dining-events%2F&amp;data=04%7C01%7C%7C253a094cd20645f0bd3608d9fb2832e4%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637816972360185284%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=6WbrUDqek2xHsjWX2qJKy%2Fw40aYuwwqg%2BQoDaHB92XI%3D&amp;reserved=0)**
 
  
 
