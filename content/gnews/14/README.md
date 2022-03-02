@@ -2,60 +2,32 @@
 ---
 
 
-## 新数据显示COVID疫苗对年轻人只有风险没有好处（3/3）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2095657/)
+## 俄联储退出欧洲，其伦敦证券交易所暴跌95%
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2095735/)
 
-编译：Jenny Ball
+#### 编译： Cran
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-209-edited.png)图片来源：childrenshealthdefense.org
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16462490231.png)Image source：Reuters
+据法国国际广播电台（RFI）3月2日报道，俄罗斯最大的银行俄罗斯联邦储蓄银行（Sberbank）周三表示，在西方针对俄罗斯国有银行实施制裁后，该银行将离开欧洲市场。
 
-**关键的设计缺陷**
+俄联储在伦敦周三的股价下跌94.24%，跌至0.01美元。自今年年初以来，该银行已经损失了99.9%的价值。
 
-在 2021 年 8 月的 Substack 文章中，英国网络安全研究员埃登·比伯（Ehden Biber）重点关注了使用假尿苷优化密码子的潜在风险。
+在俄罗斯通讯社发布的一份声明中表示，“在当前环境下，俄联储已决定退出欧洲市场” 。声明补充称，俄联储的欧洲子公司正经历“异常现金流出”，并对其员工和财产的安全表示担忧。
 
-COVID 注射不包含在 SARS-CoV-2 病毒中发现的相同 mRNA。mRNA 已经在一个称为“密码子优化”的过程中进行了基因操作，而这个过程实际上会产生意想不到的有害副作用。
+奥地利金融市场管理局（Financial Market Authority）周三表示，欧洲央行（ECB）下令关闭俄罗斯联邦储蓄银行（Sberbank）的欧洲分支，并于2022年3月1日晚上11:59立即生效。这表明该银行在俄罗斯入侵乌克兰后引发了存款挤兑，“正在倒闭或可能倒闭”。
 
-**“**辉瑞、莫德纳、阿斯利康、强生等公司，为何使用他们和监管机构都知道会导致未知结果的技术？” 比伯问道。使用密码子优化的原因，是因为通过注射 mRNA很难让你的身体产生给定的蛋白质。
+周三，其他在伦敦上市的俄罗斯主要股票也出现了类似的下跌，包括卢克石油、诺瓦泰克和俄罗斯石油公司。在俄罗斯，由于当局试图阻止资产流失，莫斯科股市已连续三天关闭。俄联储表示，它将无法确保其子公司的流动性，但客户的存款根据当地法律得到了保险，
 
-这是一个缓慢且通常效率低下的过程。为了使注射起作用，它们需要比自然可能的更高水平的蛋白质表达。科学家通过在遗传指令中进行替换来绕过这个问题。
+欧洲银行监管机构周二表示，俄联储的欧洲子公司将被清盘。单一处置委员会（Single Resolution Board）表示，位于奥地利的俄联储的德国分行（Sberbank Europe AG）将获准进入“正常的破产程序”。该银行拥有近4000名员工。俄联储在克罗地亚和斯洛文尼亚的子公司，被出售给了当地银行。
 
-他们发现，你可以换掉某些核苷酸（三个核苷酸组成一个密码子），最终仍然会得到相同的蛋白质。但提高效率的代价是可怕的。
+俄联储在瑞士的发言人，波琳娜 · 特里佐诺娃（Polina Trizonova）在一份声明中说，该分行没有受到该措施的影响，并继续正常运作，因为它不是俄联储在欧洲的分部。
 
-当以这种方式替换部分代码时，生成的蛋白质很容易被错误折叠，这与多种慢性疾病有关，包括阿尔茨海默病、帕金森病和心力衰竭。正如比伯所解释的：
+星期三，俄联储公布了2021的强劲业绩，净利润为1兆2460亿卢布（按现汇率位为120亿美元）。自2021秋季以来，俄联储市值已下降了近95%。
 
-“事实证明，当密码子优化时产生的蛋白质具有不同的折叠方式和不同的 3D 形状，例如，它可能会导致免疫原性，直到后期临床试验，甚至批准后才会出现。” 此声明与正常批准周期有关。COVID 疫苗是通过了加速疫苗批准。”
+在采取这些措施之前，西方盟友在周六加大了制裁力度，将俄罗斯大型银行从主要的全球支付系统SWIFT中驱逐出去，并宣布了其他措施，以限制莫斯科在俄罗斯入侵乌克兰后使用6300亿美元的战争资金来破坏制裁。
 
-现在，自 2011 年以来，FDA 已经充分意识到了这些问题，当时 FDA 的首席研究员 查瓦·金木奇·萨法蒂(Chava Kimchi Sarfaty )博士表示：“我们不相信你可以优化密码子，并让蛋白质表现得像它，以它的原生形式工作。”
-
-她接着警告说，“例如，改变的形式可能会导致免疫原性，直到后期临床试验，甚至批准后才能看到。”
-
-如果 FDA 早在 2011 年就知道这一切，为什么他们没有反对在 COVID 疫苗中使用密码子优化？ 需要向澳大利亚** ****TGA **提出同样的问题。
-
-FOIA 请求者可能在考虑 2021 年 3 月的论文“BNT162b2 疫苗：可能的密码子误读、蛋白质合成错误和可变剪接异常”，因为该论文强调了辉瑞公司使用假尿苷进行的广泛密码子优化，不利影响，以及使用 3′-UTR 序列，其后果仍然未知。
-
-TGA 没有关于这些修改风险的数据的事实只能表明，他们和美国 FDA 一样，实际上并没有努力确保这些疫苗的安全。他们在保护制药公司的利润。
-
-辉瑞甚至在其提交给 FDA 以获得 EUA 的 BNT162b2/Comirnaty 风险管理计划中承认，他们所做的密码子优化导致 γ-谷氨酰转移酶 (GGT) 升高，这是心力衰竭的早期标志物。
-
-GGT 升高也是胰岛素抵抗[insulin resistance](https://pubmed.ncbi.nlm.nih.gov/23945039/)、心脏代谢疾病、肝病[liver disease](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC4620378/)和慢性肾病的指标[kidney disease](https://pubmed.ncbi.nlm.nih.gov/28659657/)。
-
-仅此一项就应该提出一些问题，FDA是否真的在关注公众健康。总而言之，有比以往任何时候都更多的理由质疑 COVID 疫苗的规定，以及这些疫苗在儿童身上的使用。
-
-**点评：从暗黑势力极力违法违宪强制接种mRNA实验毒药的过程中，细思极恐的是：这是“关键的设计缺陷”，还是特意如此设计？**
-
-**参考资料：**[childrenshealthdefense.org][COVID Vaccines: All Risk, No Benefit for Kids and Young Adults, New Data Show](https://childrenshealthdefense.org/defender/covid-vaccines-all-risk-no-benefit-kids-young-adults/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=802493ff-397e-46d1-8d8c-f5b50cb8275d)
-
-请阅读相关文章：
-[新数据显示COVID疫苗对年轻人只有风险没有好处（1/3）](https://gnews.org/zh-hans/2095456/)
-[新数据显示COVID疫苗对年轻人只有风险没有好处（2/3）](https://gnews.org/zh-hans/2095586/)
-
-* * *
-
-*审核：文乐
-校对：小东
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
+Source:[1](https://www.rfi.fr/en/russia-s-largest-lender-sberbank-quits-europe) [2](https://www.cnbc.com/2022/03/02/russias-sberbank-collapses-95percent-on-london-exchange-as-it-exits-europe.html) [3](https://financialpost.com/pmn/business-pmn/austrian-watchdog-imposes-moratorium-at-sberbank-europe)
 
  
 

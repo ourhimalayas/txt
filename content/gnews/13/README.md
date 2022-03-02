@@ -2,10 +2,16 @@
 ---
 
 
-## 3/2/2022 文贵直播：新中国联邦乌克兰救援行动首战告捷，100%成功搭救战友，四位战友及三个家庭已顺利到达波兰
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2095685/)
+## 五月花简报（03/02/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2095780/)
 
-秘密翻译组-北美组
+编辑：波士顿五月花—-冲天一怒
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6FC71DC0-8827-4A99-BD5C-265FC9DC16C3.jpeg)
+
+*发布：思澈*
+
+
 
  
 
