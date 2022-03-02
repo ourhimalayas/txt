@@ -15,68 +15,68 @@
 
 ---
 
-### [3/2/2022 文贵直播：在乌克兰的华人无须提供任何个人信息即可享受新中国联邦安排的免费机票和30天食宿，需要多少飞机就安排多少](/content/gnews/1/README.md)
+### [3月2号勿忘香港（图片1-9）](/content/gnews/1/README.md)
+ ` 波士顿五月花农场`
+
+### [3月2日文贵大直播要点（图片1-4）](/content/gnews/2/README.md)
+ ` 波士顿五月花农场`
+
+### [3/2/2022 文贵直播：在乌克兰的华人无须提供任何个人信息即可享受新中国联邦安排的免费机票和30天食宿，需要多少飞机就安排多少](/content/gnews/3/README.md)
  ` 秘密翻译组-北美组`
 
-### [俄罗斯银行挤兑开始 提醒所有人银行稳定性](/content/gnews/2/README.md)
+### [俄罗斯银行挤兑开始 提醒所有人银行稳定性](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [五月花简报（03/02/2022）](/content/gnews/3/README.md)
+### [新中国联邦人是天使](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [五月花简报（03/02/2022）](/content/gnews/6/README.md)
  ` mayflowertranslate`
 
-### [地球上只有一个类，只有“类”，没有“国”，叫人类](/content/gnews/4/README.md)
+### [地球上只有一个类，只有“类”，没有“国”，叫人类](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [俄联储退出欧洲，其伦敦证券交易所暴跌95%](/content/gnews/5/README.md)
+### [西喜时事新闻简报—美国时事篇](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [俄联储退出欧洲，其伦敦证券交易所暴跌95%](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [下一个被停SWIFT的就是中国](/content/gnews/6/README.md)
+### [下一个被停SWIFT的就是中国](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [全世界都想了解郭文贵](/content/gnews/7/README.md)
- ` MG FARM`
+### [文贵爆料3.02：被打死的乌克兰华人已有二十多，共产党不让报道不让说](/content/gnews/11/README.md)
+ ` 秘密翻译组-原创组`
 
-### [美国要下决心重整秩序还是维持原来秩序](/content/gnews/8/README.md)
- ` MG FARM`
-
-### [普京入侵乌克兰使得周边国家人民感到恐惧和愤怒](/content/gnews/9/README.md)
+### [普京入侵乌克兰使得周边国家人民感到恐惧和愤怒](/content/gnews/12/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [金融武器化威胁美元本位制的未来](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美日希望这场战争](/content/gnews/11/README.md)
- ` MG FARM`
-
-### [3/2/2022 文贵直播：新中国联邦乌克兰救援行动首战告捷，100%成功搭救战友，四位战友及三个家庭已顺利到达波兰](/content/gnews/12/README.md)
+### [3/2/2022 文贵直播：新中国联邦乌克兰救援行动首战告捷，100%成功搭救战友，四位战友及三个家庭已顺利到达波兰](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [新数据显示COVID疫苗对年轻人只有风险没有好处（3/3）](/content/gnews/13/README.md)
+### [新数据显示COVID疫苗对年轻人只有风险没有好处（3/3）](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [SWIFT是中共的命门 关了SWIFT就等于断了共产党的生命线](/content/gnews/14/README.md)
+### [SWIFT是中共的命门 关了SWIFT就等于断了共产党的生命线](/content/gnews/15/README.md)
  ` 焦點20分`
 
-### [台湾最大威胁之一是卖台贼 美国须在“维持世界秩序”和“重整世界秩序”之间作出决定](/content/gnews/15/README.md)
+### [台湾最大威胁之一是卖台贼 美国须在“维持世界秩序”和“重整世界秩序”之间作出决定](/content/gnews/16/README.md)
  ` 焦點20分`
 
-### [俄罗斯已经没有未来了 俄乌战争或许会以非常态的方式结束](/content/gnews/16/README.md)
+### [俄罗斯已经没有未来了 俄乌战争或许会以非常态的方式结束](/content/gnews/17/README.md)
  ` 焦點20分`
 
-### [中共攻台很可能采用快战战略 甚至可能动用核武](/content/gnews/17/README.md)
+### [中共攻台很可能采用快战战略 甚至可能动用核武](/content/gnews/18/README.md)
  ` 焦點20分`
 
-### [新数据显示COVID疫苗对年轻人只有风险没有好处（2/3）](/content/gnews/18/README.md)
+### [新数据显示COVID疫苗对年轻人只有风险没有好处（2/3）](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵爆料 3.2：俄乌战争——国际格局脱胎换骨的转折点](/content/gnews/19/README.md)
+### [文贵爆料 3.2：俄乌战争——国际格局脱胎换骨的转折点](/content/gnews/20/README.md)
  ` 秘密翻译组-原创组`
 
-### [撤侨谎言——被遗忘在乌克兰的中国同胞们](/content/gnews/20/README.md)
+### [撤侨谎言——被遗忘在乌克兰的中国同胞们](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
-
-### [前乌克兰小姐身着戎装 加入抵抗俄军行列](/content/gnews/21/README.md)
- ` NFSC News`
 
 ### [中共战狼拒绝躲在地下室里在乌克兰中国留学生的求救](/content/gnews/22/README.md)
  ` mayflowertranslate`

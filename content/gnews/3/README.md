@@ -2,16 +2,10 @@
 ---
 
 
-## 五月花简报（03/02/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2095780/)
+## 3/2/2022 文贵直播：在乌克兰的华人无须提供任何个人信息即可享受新中国联邦安排的免费机票和30天食宿，需要多少飞机就安排多少
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2095843/)
 
-编辑：波士顿五月花—-冲天一怒
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6FC71DC0-8827-4A99-BD5C-265FC9DC16C3.jpeg)
-
-*发布：思澈*
-
-
+秘密翻译组-北美组
 
  
 
