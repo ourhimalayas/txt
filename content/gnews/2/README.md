@@ -2,82 +2,27 @@
 ---
 
 
-## 奈杰尔·法拉奇：普京做出了一个绝对灾难性的决定
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2091180/)
+## 苹果制裁俄罗斯！暂停在俄所有产品销售
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2091228/)
 
-[https://gtv.org/video/id=621df1b94353d33974c44673](https://gtv.org/video/id=621df1b94353d33974c44673)
+俄罗斯入侵乌克兰引起了国际社会的强烈愤慨，西方政府和大企业已切断与俄罗斯的往来，或进行惩罚性制裁。苹果公司3月1日宣布，停止在俄罗斯的所有产品销售。
 
-Nigel Farage
-奈杰尔·法拉奇
+![](https://assets.gnews.org/wp-content/uploads/2022/03/202202261813-main.jpg)图片来源：VOL
 
-Yeah, I mean, look, what they’re doing is remarkable
-是的，我的意思是，看，他们正在做的事情很了不起
+苹果发表声明指出，我们已经暂停了在俄罗斯的所有产品销售。上周，我们停止在俄罗斯销售管道的所有出口。苹果支付(Apple Pay) 和其他服务将受到限制，而俄罗斯国营RT电视台和卫星通讯社(Sputnik)的新闻在俄罗斯境外已无法下载。
 
-I think we all thought that actually here would fall in no time at all
-我想我们都认为实际上基辅很快就会沦陷
+苹果在声明中说，「我们对俄罗斯入侵乌克兰深感关切，并与所有因暴力事件而遭受苦难的人站在一起」，「我们正支持人道努力，为正在蔓延的难民危机提供援助」。
 
-that Russia would so heavily out gun to Ukrainian forces
-俄罗斯会如猛烈地向乌克兰军队进攻
+简评：流氓无赖，人皆弃之！普京的疯狂举动拖累了全体俄罗斯人民，全球制裁俄罗斯的浪潮下，这下俄罗斯人民连苹果手机都买不上了。一个独裁者的疯狂，全体人民遭罪，而全体人民要拿下一个独裁者，只需每个人站出来行动与发声！愿俄罗斯人民早日摆脱普京的魔爪，世界欢迎你们融入全球大家庭！
 
-but no, people are fighting for their homelands
-但不，人们正在为自己的家园而战
+新闻来源：[yahoo](https://tw.news.yahoo.com/%E8%98%8B%E6%9E%9C%E5%AE%A3%E5%B8%83-%E6%9A%AB%E5%81%9C%E5%9C%A8%E4%BF%84%E7%BE%85%E6%96%AF%E7%9A%84%E6%89%80%E6%9C%89%E7%94%A2%E5%93%81%E9%8A%B7%E5%94%AE-220318943.html)
 
-And it says this to you, even if the Russians do militarily conquer Ukraine
-它对你说，即使俄罗斯人确实在军事上征服了乌克兰
+撰稿/发布：一叶知秋
 
-there’ll be a civil war
-将会有一场内战
-
-There’ll be a fight back going on there for years and years and years
-将会有一场反击持续多年，年复一年的战斗
-
-All this tells me that Vladimir Putin has made an absolutely disastrous decision
-这一切都告诉我，弗拉基米尔·普京做出了一个绝对灾难性的决定
-
-It makes me begin to wonder whether this man still possesses the rational function
-这让我开始怀疑这个人是否还具有理性的功能
-
-And you know, if he carries on the way he is
-你知道，如果他继续他现在的样子
-
-well, what next? is Poland? Is the Baltic states
-好吧，接下来呢？ 是波兰吗？ 是波罗的海国家吗?
-
-so I think all of us in NATO must stand firm against this
-所以我认为我们北约所有人都必须坚决反对
-
-and the breaking developments
-并且突破性的发展
-
-that Turkey have blocked Russian naval vessels this morning
-今早土耳其已经挡住了俄罗斯海军舰艇
-
-is a very good sign because it’s also and don’t forgets this
-是一个非常好的迹象，因为它也是并且不要忘记这一点
-
-but Turkey is a NATO member
-土耳其是一个北约成员国
-
-原视频链接[https://twitter.com/newsmax/status/1497667457439477763?s=24](https://twitter.com/newsmax/status/1497667457439477763?s=24)
-
-Date:02/27/2022
-原视频标题: Nigel Farage: Putin has made an absolutely disastrous decision
-奈杰尔·法拉奇：普京做出了一个绝对灾难性的决定
-原视频日期：2022/02/26
-原视频链接https://twitter.com/newsmax/status/1497667457439477763?s=24
-任务编号：KE429（3874）
-视频时间段 : 0:00-0:55
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

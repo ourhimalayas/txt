@@ -2,18 +2,88 @@
 ---
 
 
-## 【粤语配音】2022年3月1日：人类正在大变革中
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2091147/)
+## 前中央情报局官员：普京“大规模情报失败”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2091201/)
 
-紐約香草山-香港部
+[https://gtv.org/video/id=621df21c4353d33974c44689](https://gtv.org/video/id=621df21c4353d33974c44689)
 
-据说普京给习打电话，第一句话问，还玩不玩了？干不干呐？意思是吧，台湾你还不动手？是吧，给我牵住国际上各种批评啊，听说普京大怒，嗷嗷地喊，说你们记住知道你们中国人了解中国人，我们是讲信用的，普京啊普京 走着看吧。
+Scott Uelingher (CIA Operations Officer)
+斯科特·乌林格（中央情报局行动官）
 
-还有共产党那些老杂毛，昨天在党内紧急通知，做好所有的各大使馆的，海外的所有的海外学生、侨领的联络和宣传控制，我告诉你老杂毛，共产党，你记住，我会让你看到在俄乌战争当中，你以为在我们爆料革命当中，你渗透了人你掌握情况，是吗？我会让你看到，有多少你们的所谓大使馆人员，是卷款卷钱，使用特殊权力跑出去了，又有多少你大使馆的人，是我们给救出来的，他不会再回国了，你们懂的，第三个你会看到我们新中国联邦，能救多少中国人，以结果说了算。
+I think that right now, Putin is contemplating
+我认为现在，普京正在考虑
 
-让中国人看一看，你们拥有一个14亿奴隶的中国共产党，这种流氓政权，我们啥也没有，我们是被你们定为，郭骗子、郭强奸、郭三秒的一帮疯子，是吧，我们救多少人，我们是疯子、是骗子、是三秒，我们要救人，你说跟这有啥球关系呢，我会让中国人看到，到底儿是谁在心疼中国人，谁在爱中国人，你觉得在这个时候说，个人信息重要不要被我们骗，我们要你任何人信息了吗？要信息我们当饭吃？你见过一个人拿着几百万、几千万美元，冒着生命危险到战场上要你的个人信息？那不是疯了嘛，在乌克兰战场的人，你把你的信息给共产党，看它能不能救你出去，你把你的信息给俄罗斯，看它能不能救你出去，整个乌克兰现在俄乌战争，最恨的什么人？中国人，在大街上在周围国家，一说中国人我们不接，中国人混到这份儿上，人家打仗，咋恨你呢？，就这时候还撒谎，还个人信息呢。
+what is a Russian massive intelligence failure
+这就是俄罗斯大规模情报失败的原因
 
-什么叫战争知道吗？战争是人的生命、安全、人权第一，这时候你还搞政治宣传，最终结局是什么？现在最起码全世界人民，不再相信习近平和共产党，中国共产党里面没人相信习近平，更重要的是习近平谁也不相信，就像全世界不相信普京，普京不相信身边任何人一样，这就是人类大变了。
+when it comes to the attack on Ukraine
+当谈到对乌克兰的袭击时
+
+Now, that’s not to say that this war
+现在，这并不是说这场战争
+
+that this operation the Russians have undertaken will not ultimately be successful
+俄罗斯人进行的这次行动最终不会成功
+
+However, there have been a huge amount of intelligence errors made
+然而，已经出现了大量的情报错误
+
+First of all, I think Putin has fallen into the spell
+首先，我认为普京已经陷入了魔咒
+
+that a lot of dictators have after many decades
+许多独裁者在几十年后
+
+and that he starts to believe his own propaganda
+并且他开始相信自己的宣传
+
+He convinced himself that the Ukrainians will be a rollover operation
+他说服自己，乌克兰人将被吓跑
+
+much like Georgia in the past
+很像过去的格鲁吉亚发生的一样
+
+or even parts of Syria were where the Russian forces met with success after success
+甚至叙利亚的部分地区都是俄罗斯军队取得了一次又一次的成功
+
+This has not happened, and this is also allowed
+在乌克兰没有发生，这也是允许的
+
+This is also exposed the weak part of the Russian military
+这也暴露了俄军的薄弱环节
+
+and that is logistics, tanks running out of fuel
+那就是后勤，油箱耗尽燃料
+
+Everything seemed predicated on a massive blitzkrieg
+一切似乎都基于一场大规模的
+
+that would decide things in 72 hours and when that didn’t happen
+将在 72 小时内完成的闪电战，而当这没有发生时
+
+Then we have the situation that Russia is in right now
+我们看到俄罗斯现在的情况
+
+原视频链接[https://twitter.com/newsmax/status/1498040672053510151?s=24](https://twitter.com/newsmax/status/1498040672053510151?s=24)
+
+Date:02/28/2022
+原视频标题: Ex-CIA officer: Putin had a ‘massive intelligence failure’
+前中央情报局官员：普京“大规模情报失败”
+原视频日期：2022/02/28
+原视频链接https://twitter.com/newsmax/status/1498040672053510151?s=24
+任务编号：KE430（3887）
+视频时间段 : 0:00-1:01
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
