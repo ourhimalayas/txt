@@ -2,24 +2,38 @@
 ---
 
 
-## 秘翻在线：医疗体系崩溃，乌克兰儿童医院…“患者都没能接收治疗就死了”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2093225/)
+## 乌克兰总统拒当逃兵，领导民众智慧抗敌
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2093336/)
 
-撰稿: Eric Kim
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-25.jpg)图片来源：AFP=韩国MT新闻
-据韩国MT新闻3月1日报道称，正在遭受俄罗斯空袭的乌克兰人陷入危机的不仅仅是侵略者。许多病人处于濒危状态, 因得不到有效的治疗而濒临死亡。特别是儿童医院，更加惨不忍睹。
+作者: 纽约香草山信息部 6zero4
 
-乌克兰医生们表示：“包括基辅在内的国内空袭将全面展开，儿童和成人都会出现大量伤亡”。
 
-目前，被俄罗斯侵略的乌克兰国内医疗环境非常恶劣，漫天炮火也波及到了医院，重症患者及伤患也无法轻易转移，战局的僵持让乌克兰的医疗体系逐步走向崩溃。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-9.png)
+2月26日，在俄罗斯对乌克兰的侵略进入第三天时，乌克兰首都基辅发生了激烈的战斗但仍未沦陷。普京原计划围困拥有300万人口的基辅，以活活饿死其市民，迫使乌克兰总统投降，但未能如愿。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/220225192804-ukrainian-president-zelensky-full-169.jpeg)图片来源: The Guardian
+乌克兰人为这场关系到国家生死存亡的战争一直在勇敢而团结地抗争，24.5万现役军人与22万预备役军人全部投入战斗，700万适龄男子拿起武器参与战斗，老年人和妇女拿到武器后也加入战斗，可谓全民皆兵。美国曾提出协助乌克兰总统泽连斯基撤离乌克兰，但他直接回答:“战斗就在这里，我需要的是弹药，而不是撤离！”
 
-基辅的地铁被用作防空洞，公共交通系统也面临崩溃，医院的医生和其他员工上班也困难重重，但他们依然在自己的岗位上为需要救治的同胞以及妇孺进行治疗，有时也会在医院的地下室睡觉。志愿者们也在竭尽所能为这些手脚被束缚的可敬的人们提供食物和水，以及日常所需物资。
+同时，泽连斯基通过报道战争的残酷和俄军暴行，用社交媒体信息战让俄罗斯进入塔西佗陷阱，并让欧洲为其GPS和网络控制提供了帮助，智慧地领导世界上第一次AI参与的战争，并赢得了世界的尊重与支持，被尊称为“战争绅士”。
 
-无论是出于什么原因，战争发起者没有任何正义可言，受伤的永远是那些无辜的老弱妇孺、平民百姓。为一己私欲挑起战争，只会让发起者遭人唾弃，遗臭万年！
+新闻链接: [https://thefederalist.com/2022/02/26/ukrainian-president-zelenskyy-declines-to-evacuate-i-need-ammunition-not-a-ride/?utm\_source=rss&utm\_medium=rss&utm\_campaign=ukrainian-president-zelenskyy-declines-to-evacuate-i-need-ammunition-not-a-ride https://gettr.com/post/px9ufd7b73](https://thefederalist.com/2022/02/26/ukrainian-president-zelenskyy-declines-to-evacuate-i-need-ammunition-not-a-ride/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=ukrainian-president-zelenskyy-declines-to-evacuate-i-need-ammunition-not-a-ride%20https://gettr.com/post/px9ufd7b73)
 
-信息来源: [https://news.naver.com/main/read.naver?mode=LS2D&mid=shm&sid1=104&sid2=232&oid=008&aid=0004714992](https://news.naver.com/main/read.naver?mode=LS2D&amp;mid=shm&amp;sid1=104&amp;sid2=232&amp;oid=008&amp;aid=0004714992)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
 
-责编：Eric Kim
+
+
+编辑/校对/发稿: 卡夫卡的甲壳虫
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,33 +2,44 @@
 ---
 
 
-## 澳大利亚提供1.05亿美元援助乌克兰 赞成把俄罗斯赶出G20
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2093315/)
+## 新西兰高等法院驳回了对所有国防军人员和警察的疫苗接种授权
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2093362/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-4.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-5.png)
 
-[图片来源](https://cdn.sputniknews.cn/img/101898/58/1018985858_0:267:2000:1067_1920x0_80_0_0_168b92e18353bf27dbf83b3ded2a5de8.jpg)
+图片来自原文
 
-澳大利亚总理斯科特-莫里森(Scott Morrison)宣布向乌克兰提供1.05亿澳元的一揽子军事和人道主义援助。该援助计划包括7000万美元的致命和非致命援助以及3500万美元的人道主义援助。
+新西兰因实施世界上最严厉的中共病毒（COVID）禁令而闻名，引发了一场 “结束中共病毒（COVID-19）强制限制令 “的车队抗议活动，其灵感来自加拿大的卡车司机自由车队。
 
-人道主义援助将用于国际组织的住房、食品、医疗、水和教育支持。
+2月25日，周五，新西兰高等法院驳回了总理杰辛达-阿登（Jacinda Arden）对所有国防军人员和警察接种疫苗的授权。
 
-通过北约提供的军事援助将包括导弹和弹药。莫里森说，他不会提供进一步的细节，”因为我不打算给俄罗斯政府提个醒，让他们知道会有什么。
+该授权要求所有国防军和警察在2022年3月1日之前根据《Covid-19公共卫生应对法案》接种两针中共病毒（COVID）疫苗。
 
-当被问及俄罗斯的20国集团成员资格时，莫里森表示将支持把俄罗斯赶出20国集团（G20）。
+弗朗西斯-库克（Francis Cooke）法官支持对这项授权的质疑。库克认为，该授权对 《新西兰权利法案》保护的基本权利施加了不合理的限制。所侵犯的相关权利是 “自由拒绝医疗的权利 “和 “表达宗教信仰的权利”，同时承认 “工作权 “也通过 “被迫辞职的相关压力 “受到间接限制。
 
-将俄罗斯从G20中驱逐出去需要在主席国的指导下达成共识，今年的主席国是印度尼西亚。中共国也是20国集团的成员，估计会反对将俄罗斯驱逐出去。
+库克引用在法庭上提供的专家证据，写道：”我不认为该命令会带来实质性的变化”。这包括 “强制接种疫苗无助于防止工人……感染中共病毒（COVID-19），或将其传播给他人 “的证据。
 
-乌克兰已经敦促其他国家的人加入其对抗入侵的俄罗斯人的斗争。”乌克兰总统泽连斯基(Volodymyr Zelenskyy)说：”任何想加入乌克兰、欧洲和世界防务的人都可以来，与乌克兰人并肩作战，对抗俄罗斯战犯“。
+代表警察和国防人员挑战强制令的律师马修-海格（Matthew Hague）说，他们应该立即能够返回工作岗位。
 
-但莫里森警告，不要认为去打仗是一种合法行为。从澳大利亚去为乌克兰作战，这可能是非法的，也是自杀性的。
+《新西兰先驱报》分享了警方和新西兰国防军发言人的 “两个独立但相同的声明”，其中他们对法院判决的决定性反应并不明确。由于司法裁决刚刚公布，我们将花时间考虑这一决定。我们将与员工沟通下一步措施。在此期间，终止雇佣关系的工作目前不会进行。
 
-根据澳大利亚法律，除了在另一个国家的官方部队中作战外，非正式民兵到该国作战是不合法的。
+工作场所关系和安全部长Michael Wood、副警察局长Tania Kura和新西兰国防军首席人事官Matthew Weston准将提交了宣誓书，为该任务辩护。
 
-新闻来源链接：[https://theconversation.com/morrison-would-favour-expelling-russia-from-g20-as-australia-provides-105-million-for-ukraine-assistance-178165](https://theconversation.com/morrison-would-favour-expelling-russia-from-g20-as-australia-provides-105-million-for-ukraine-assistance-178165)
+备注：
 
-本文作者：Rebecca (一切心皆不可得！)
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- Covid疫苗本身就是随时爆发的病毒
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
+
+
+新闻来源链接：[https://www.lifesitenews.com/news/new-zealand-victory-high-court-strikes-down-vax-mandate-for-police-and-defense-force/?utm\_source=top\_news&utm\_campaign=usa](https://www.lifesitenews.com/news/new-zealand-victory-high-court-strikes-down-vax-mandate-for-police-and-defense-force/?utm_source=top_news&amp;utm_campaign=usa)
+
+本文作者：Rebecca (一切心皆不可得！)  
 上传排版：Hong
+
+
 
  
 
