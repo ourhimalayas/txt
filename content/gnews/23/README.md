@@ -2,38 +2,40 @@
 ---
 
 
-## 2022/02/28 比尔·格茨接受班农采访谈乌克兰核战、网络战
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2093508/)
+## 疫苗让台湾付出比共产党更大的代价给香港带来巨大灾难
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2093613/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-02-111047.jpg)
-**简评：**俄乌战争期间，普京将核力量置于戒备状态。俄罗斯既是核武器超级大国，也是网络超级大国。中共国既没有谴责俄罗斯对乌克兰发动的战争，也没有称之为“入侵”。俄罗斯和中共有各种秘密协议，包括分享情报。2012年，习近平与乌克兰签署核合作协议，答应将为乌克兰提供核保护伞。现在普京提高核武器的警戒状态，他们可能将在更短的时间内使用核武器。
+G-TV视频链接：[https://gtv.org/video/id=62164ada1408ee3a03a3c892](https://gtv.org/video/id=62164ada1408ee3a03a3c892)
 
-中共国和俄罗斯是网络攻击的两个超级大国。在网络进攻能力上，俄罗斯比美国厉害。2017年6月，俄罗斯的网络攻击瘫痪了乌克兰的整个网络。中共国和俄罗斯很多年前就潜入了美国的工业控制网络内部。美国16个关键的基础设施都依赖于电网。拜登表示，如果俄罗斯网络攻击美国的关键基础设施，美国有能力使莫斯科断电。
+**郭文贵先生：**香港的菜价，超市价现在几倍的涨，香港人现在这被隔离那被隔离。香港人就活在一个豪华的监狱里，进大陆整死你，查你再查，怎么去威胁你。出香港是大海，到了国外去怎么那么容易生存呢？这个豪华的监狱和所谓的冰冷的监狱它都叫监狱。
 
-GETTR视频链接：[https://gettr.com/post/pxj4gua4d7](https://gettr.com/post/pxj4gua4d7)
+现在是台湾和香港和大陆之间，大家想到了疫苗的问题，台湾为打的疫苗，一定会付出比共产党还要大的代价。香港的疫苗你会看到，香港的灾难一定因为疫苗巨大灾难，因为香港的供应链不产什么，更加脆弱。它不用大卡车罢工，没人开船没人运输了，香港一个月就惨了，就臭港了，台湾一样的。
 
-GTV视频链接：[https://gtv.org/video/id=621e252a4353d33974c4582f](https://gtv.org/video/id=621e252a4353d33974c4582f)
+编辑整理：Jacques；
 
-**视频字幕：**
+字幕文件制作：兵嫂；
 
-**班农先生：**让我们请上比尔·格茨，他是中共问题的优秀分析家，最好的军事分析家之一。金融时报今天的题目，普京将核力量置于戒备状态，我们昨天在盖特谈到过这个问题。俄罗斯是超级大国，不仅在于核武器，它在其他的事情上更危险，是网络超级大国。你一直在关注中国，给我们说说你最近的一篇文章和你对当下所发生之事的判断。
+视频制作及上传：Cindy；
 
-**比尔****·****格茨：**就像在朝鲜问题上一样，中共国试图在最近俄罗斯入侵乌克兰事件中玩两面派的花招。他们对此没有谴责，没有称之为“入侵”，他们之间有各种各样的秘密协议，包括分享情报，其中一件有趣的事情我没有报导过。2012年，习近平与时任乌克兰总理尤先科，他当时是亲俄罗斯的，签署了核合作协议。在那个协议中，中共国在其头条新闻中称，中共国将为乌克兰提供核保护伞。现在普京提高其核武器的警戒状态，这样的动作在俄罗斯称为“升级到降级”。这基本上意味着，由于他们的常规力量比核力量弱，他们将在更短的时间内使用核武器，由此引发很多关切。现在的问题是，中共国会支援乌克兰吗？当然我们知道，这将是习近平违反的另一个国际协议。
+G-News发布：小满；
 
-**班农先生：**我想很快说说网络。 你是最好的台湾观察家。（中国和俄罗斯）是网络攻击的两个超级大国。实际上，人们认为，在网络进攻能力上，俄罗斯比美国厉害。人们忘记了乌克兰的情况，2017年6月，俄罗斯的网络攻击瘫痪了乌克兰的整个网络。之后不久，美国国家安全局泄露的网络武器代码被俄罗斯拿到，我记得好像是丰田因为大规模的网络攻击关闭了整个生产线。比尔·格茨，就莫斯科政权网络攻击的可能性，因为他们穷途末路，我们国家的人们应该如何对应？还有习近平准备占领台湾。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-**比尔·格茨：**真正让华盛顿顶级网络安全人员心焦的是：我们至少在10年前就知道，中共国和俄罗斯都潜入我们的工业控制网络内部。当然，有16个关键的基础设施，我们都知道这些基础设施都依赖于电网。中共国和俄罗斯进入这些网络的事实引起了真正的恐惧，因为他们都是私有的。因此，历届政府都推动私营企业采取更多措施来清理和保护，尤其是我们的电网，非常脆弱。当然，我们也有强大的网络能力。那天拜登宣布说，如果俄罗斯网络攻击我们的关键基础设施，我们一定会予以回击。我知道，美国有能力使莫斯科断电，所以，是的，情况可能升级为非常混乱的局面。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-* * *
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-编辑：【英国伦敦喜庄园编辑部】
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

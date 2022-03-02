@@ -2,51 +2,35 @@
 ---
 
 
-## 新州持续强降雨一处大坝濒临垮塌，下游居民紧急疏散
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2093770/)
+## 谷歌从其新闻功能中删除了俄出版社RT及其他俄媒
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2093960/)
 
-#### 了解澳洲时事焦点，尽在雅典娜【聚焦澳洲】
+编译： Jenny Ball
 
-翻译/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-181.png)在 2022 年2月28日拍摄的这张插图中，可以在智能手机上的徽标前看到 RT 应用程序。REUTERS/Dado Ruvic/Illustration
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-13.png)图片来源：ABCNews & 雅典娜设计组
+**RT**电视台（Russia Today），是俄罗斯国营电视台，定位国际新闻频道，也是第一家全数字化的俄罗斯电视频道，通过卫星、有线电视及网络播出。 **RT**以英语、阿拉伯语和西班牙语向全球播出。
 
+加利福尼亚州奥克兰，3 月 1 日（路透社）—— 谷歌字母公司（Alphabet Inc GOOGL.O) 周二证实，它已将俄罗斯国家资助的出版商（如 RT）从其新闻相关功能中删除，包括谷歌新闻搜索工具，因其入侵乌克兰对俄罗斯进行各种制裁。
 
-3月2日，据多家媒体报道，澳大利亚新南威尔士州当局已向生活在去年悉尼洪水影响地区的人们发出警告——今天将是一个艰难的夜晚，他们现在应该撤离。
+周二早些时候，谷歌全球事务总裁肯特·沃克（Kent Walker）在一篇博客文章中表示，“在这场非同寻常的危机中，我们正在采取非同寻常的措施来阻止错误信息的传播，并破坏在线虚假信息活动。”
 
-官员们预计北里士满的雷德班克大坝即将垮塌，并已下令疏散其下方的街道居民，今天早些时候，有600千兆升的水从大坝上涌过。
+谷歌已经限制俄罗斯政府资助的新闻公司使用 YouTube 上的广告工具和某些功能。
 
-澳洲气象局已对该地区发布了重大洪水警告，预计霍克斯伯里和尼皮恩的洪水将达到与2021年3月起的洪水相似的水平，并延伸到里士满和彭里斯
+RT 副总编辑安娜·贝尔金娜（ Anna Belkina） 周二在一份声明中表示，削减其网点发行量的科技公司并未指出“有任何证据表明 RT 近来报道并继续报道的内容并非真实。”
 
-新南威尔士州已下达了31个疏散令。
+声明说：“这个集体‘机构’似乎害怕任何外部声音的存在，因为害怕失去他们历史上被俘虏的观众，怕观众遇到不同的观点，”声明说。
 
-当日，搜救局专员卡琳·约克表示，将有数十万人持续受到影响，紧急服务部门希望该地区的每个人都做好撤离的准备。
+点评：科技被邪恶操纵，就会导致极度灾难；科技为正义而为，就能让邪恶早日消除！
 
-“您不必立即撤离，但必须做好准备”，她说：“我们正在尽可能给您更多的信息，以便于您（早日）撤离。”
+素材链接：【reuters.com】[Google drops RT, other Russian state media from its news features](https://www.reuters.com/technology/exclusive-google-drops-rt-other-russian-state-media-its-news-features-2022-03-01/?utm_source=newsletter&amp;utm_medium=email&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
 
-包括霍克斯伯里、里士满和彭里斯在内的悉尼西区居民已经发布了疏散令，预计一夜之间会有强降雨，霍克斯伯里和尼皮恩河的洪水水位预计将持续上升。
+* * *
 
-当局认为北里士满的雷德班克大坝可能会倒塌并淹没其下方的财产。
-
-49分钟前，在搜救局（SES）志愿者在新南威尔士州南部的一个被洪水淹没的公寓中发现一名70多岁男子的尸体后，另发现有四人在新州北部的利斯莫尔洪水中丧生。
-
-一小时前，彭里斯附近的穆尔戈阿小镇的道路已经被洪水切断，该地区的居民被告知收拾行李离开。
-
-三小时前，搜救局已告知居住在北里士满14条街道上的居民撤离，因为他们担心雷德班克大坝会倒塌并淹没他们的房产。当局已经关闭了北里士满的桥梁，也可能关闭温莎大桥。
-
-参考链接：[NSW Ballina floods UPDATES LIVE: SES tells people in 2021 Sydney flood areas to evacuate (afr.com)](https://www.afr.com/politics/federal/second-lismore-death-ballina-hospital-evacuated-20220302-p5a0ux)
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+审核：文乐
+校对：阿伯塔
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

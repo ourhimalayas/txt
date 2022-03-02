@@ -2,28 +2,26 @@
 ---
 
 
-## BKKProVita保险经理被解雇——曾指控新冠疫苗的副作用大
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2093843/)
+## 秘翻在线：统计局表示中共国2021年经济增长对全球贡献达四分之一
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2094036/)
 
-#### 翻译/简评                            意大利达芬奇农场                     小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-02-alle-12.20.20.png)图片来源：eventiavversinews.it
-两周前，BKKProVita总裁Andreas Schöfbeck，他就账单信息里泄露出疫苗副作用高发生率一事致函德国疫苗监管机构Paul-Ehrlich-Institut,  此事引起了轰动。
+**撰稿：葛大饼**
 
-我们在这里谈论过这个话题：拥有1100用户的德国健康保险：新冠疫苗的副作用比政府报告的要大得多。
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-02-200518.jpg)图片来源：新浪
+根据2022年2月28日新浪报道， 中共国家统计局发布的《2021年国民经济和社会发展统计公报》数据显示，中共国内经济形势“一片大好”。
 
-Schöfbeck 被叫去要求替他写的信进行辩护，但一个小时的公司会议后， 他被解雇了。
+据称2021年中共国经济规模突破110万亿元，达到114.4万亿元，稳居全球第二大经济体。人均GDP突破8万元，达到80976元，按年平均汇率折算达12551美元，超过世界人均GDP水平。
 
-Paul-Ehrlich-Institut 的代表，包括其主席 Klaus Cichutek, 已同意同一天下午与Schöfbeck和其他BKK官员会面，讨论他们的担忧， 但这显然是不可能的。
+2021年第一产业增加值比上年增长7.1%，制造业发展向好，农业生产稳中有进 ，主要工业产品产量稳居世界首位，服务业逐步恢复，同时国际影响力继续扩大，2021年中共国对世界经济增长的贡献率达到25%左右，在货物贸易额、外汇储备，消费市场规模、对外投资方面均居世界首位。
 
-解雇Schöfbeck 是事先无耻地计划好的，是为了阻止他参加那个会议，事实上那次会议没有他也照样举行了。
+中共国经济到底好不好，问问老百姓最清楚，中共国的统计局是最擅长造假的地方。当然中共国过去两年利用疫情大搞疫苗经济，某些产业也的确大赚不少黑心钱。统计局用中共国的巨大经济体量强调对其全球经济的影响举足轻重，以此来提醒“西方某些敌对势力”，如果敢制裁中共国把经济拖下水，这四分之一的“贡献”不但会打水漂，中共国还会鱼死网破，让全世界都别想过好日子！这样的流氓政府还是早点从地球消失，还世界一个太平吧，没有中共，中国和世界的经济只会更好！
 
-这就是对新冠疫苗“安全性和有效性充满信心”的人的行为， 但这样做却越来越不可逆转地损害了公众的利益。
+**[新闻来源](https://news.sina.cn/2022-02-28/detail-imcwiwss3397852.d.html)**
 
-当世界的注意力都集中在乌克兰的时候， 我们不要忘了我们每一个人都身处乌克兰， 因为新冠疫苗的灾难无处不在, 而主流媒体及政府闭口不谈疫苗带来的严重副作用。这是一场战争，热战已开始，而疫苗战 、媒体战、信息战也正如火如荼地展开…..
 
-原文链接：[https://www.eventiavversinews.it/il-dirigente-assicurativo-tedesco-della-bkk-provita-che-ha-denunciato-lalto-tasso-di-effetti-collaterali-del-vaccino-rivelato-da](https://www.eventiavversinews.it/il-dirigente-assicurativo-tedesco-della-bkk-provita-che-ha-denunciato-lalto-tasso-di-effetti-collaterali-del-vaccino-rivelato-da)
 
-编辑、上传： Xiao    baige
+#  
 
  
 
