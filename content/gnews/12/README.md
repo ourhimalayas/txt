@@ -2,27 +2,39 @@
 ---
 
 
-## 香港疫情｜市民抢购物品，超市未能及时补货接近抢空
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2091708/)
+## 有声|郭先生怒责中国共产党在乌俄战争中把同胞无情的抛弃
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2091736/)
 
-随着香港疫情的持续严重，港共政府正在商讨全民检测计划，有传将同时引入「禁足令」加强检测成效。导致香港市民近日纷纷到超市抢购生鲜食品、日用品以及药物，致使有的超市货架亦因未能即时补货而被清空。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2022/2/27号郭先生在盖特爆料，滞留在乌克兰的中国人就现在得到的消息人数就两万多，比原来的6000左右多出几倍，他怒责中国共产党在战争的危机中抛弃了为它卖命的中国人民。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-10.png)
+这是继2022/2/26 在联合国国际救援组织下，与国际NGO组织合作，安排新中国联邦由法治基金和法治社会主导的对中国同胞和美国友人的紧急救援行动，郭先生直播部署乌克兰救援工作后的又一个惊人信息，那个比爹亲娘亲的党，置几万人命于不顾，所有外国人16号之前都撒的差不多了，连非洲的学生都撒完了，为什么中国人还没有回国的路？郭先生曾说过有人托他救护他的小姨子，就闭口不提那些为他小姨子身边的人，及她的工作人员和工作人员的家人，很多共产党都是打着救人的幌子，其实只救自己亲的近的人，完全没有要救老百姓的意思。
 
-全民检测，禁足，抢购，跟大陆抗疫时的情形那么相似。还记得西安疫情时，很多西安人在家里禁足没有食物吗？还记得西安人被逼的物物交换吗？前事不忘，后事之师！中共是不可相信的，望港人多多保重！
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-19.jpg)图片来源：星岛网
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2.jpeg)图片来源：星岛网
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-1.jpeg)图片来源：星岛网
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-02-at-9.52.51-AM.jpeg)图片来源：星岛网
+郭先生说，原定的十架飞机进行救援，现在看光中国人三四架飞机都不够，太多人需要救援了，共产党这帮王八蛋，太可怕，太疯狂了，在听说新中国联邦的救援行动信息以后还马上发通告骗老百姓，说不要上当，不要受骗，开着全世界最大的大力神飞机，几百万美元的物资，骗身无分文的老百姓，共产党太恶毒了，你们能拿几万美金，开个拖拉机救救在水深火热的战争中的同胞，别只救你们的小姨子，小舅子，如此作恶，老天会灭了你们的，我们新中国联邦就是要救人，要行动，行动！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-65.jpg)
+中共的眼里只有它利用的工具，奴役的韭菜，只有新中国联邦尊重人权，救人第一，力创和平，保命保财保平安，就在新中国联邦！
 
 
-新闻来源：[星岛网](https://std.stheadline.com/realtime/article/1814133/%E5%8D%B3%E6%99%82-%E6%B8%AF%E8%81%9E-%E7%96%AB%E6%83%85%E6%B6%88%E6%81%AF-%E5%B8%82%E6%B0%91%E6%90%B6%E8%B3%BC%E5%BE%8C%E6%9C%AA%E5%8F%8A%E8%A3%9C%E8%B2%A8-%E8%B6%85%E5%B8%82%E8%B2%A8%E6%9E%B6%E6%97%A9%E4%B8%8A%E4%BB%8D%E6%B8%85%E7%A9%BA)
 
-撰稿/发布：一叶知秋
+文字版原文：[郭先生怒责中国共产党在乌俄战争中把同胞无情的抛弃](https://gnews.org/zh-hans/2079144/)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

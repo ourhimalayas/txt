@@ -2,49 +2,48 @@
 ---
 
 
-## 有声|俄乌阶段性战况汇总
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2091537/)
+## 西雅图圣地亚哥德国英国日本等地对华人的愤怒令人恐惧
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2091552/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+G-TV视频链接：https://gtv.org/video/id=62164e231408ee3a03a3c931
 
+**郭文贵先生：**那么西雅图，西雅图的好多华人在那儿，而且很多美国人看到了“螃蟹”、所谓那个“吃狗杨”那个视频，他们说：“你看看这个人竟然如此之荒唐，你给他了钱，他骗了你的钱，他竟然如此之荒唐。”人家非常之看不起，然后他说“你知道我们周围的华人有多奇怪吗？”他说“讲着完全听不懂的英文，说我们伟大的国家”，他说“伟大的国家你回你们中国去”，这是西雅图。
 
+在圣地亚哥，我说的都是美国朋友，他说“我看到圣地亚哥任何亚裔人，我觉得都是来窃、看我们的航空母舰、潜水艇”。这话弄得我毛骨悚然，我说“你不能这么看，亚洲人是无辜的，共产党，是共产党”，哎我这一说我头皮都发麻。圣地亚哥是很多美国军事基地的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phprM8oVA-768x511-1.jpg)
+然后德国、英国，日本就更惨了，我日本的朋友丰田的人说：“你知道我现在很害怕”他说“我们丰田内部日本人看中国人所有的眼神都变了，不是右翼人在大街上喊，叫‘肮脏的中国人，滚回中国去’喊了几十年，他说那都知道是右翼，他说”关键是在我这都是跟中国很友好的人，一看到中国人这个眼神都变了“，这个文艺你是很有感觉的。
 
+我台湾的高雄的哥儿们在日本有家有业的，最近说要搬回台湾去，为什么呀？他说“七哥你知道我现在啥感受吗？跟我很好的这个人说‘你在台湾，你是台湾人，你支持共产党吗？’说‘我恨共产党，不支持共产党’，那你为什么不打倒蔡英文呢？“他说”我也不支持蔡英文“，”那你不支持蔡英文就支持共产党“。这个日本人糊涂，他说”我就没法在这儿待了“，他说”我真得回台湾去了“。
 
-台湾媒体2月26日报道，美国政府为阻止俄军的斩首行动，准备帮助乌克兰总统泽连斯基从基辅撤离，但泽连斯基拒绝离开基辅。
+无处不在，最惨的、最危险的我认为三个国家：俄罗斯，就东欧国家排华会超出你想象。还有一个再次会席卷印尼东南亚。然后就是共产党给了无数个处女让人家睡觉的非洲，非洲是太危险了！太危险了！非洲、东南亚、东欧俄罗斯。七哥在这个问题上一点儿信心都没有，我们努力吧，谢谢！
 
-长期追踪俄罗斯军队动态的美国麦克萨科技公司卫星图像显示，有俄罗斯军队正在波兰边境集结，虽然尚不清楚原因，但美国国务卿布林肯表示，担心俄罗斯可能有乌克兰以外的目标。
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-乌克兰副总理费多罗夫致信苹果CEO库克，希望苹果公司能响应美国政府制裁，停止在俄罗斯销售产品，并关闭在俄罗斯的苹果商店应用程序，或有助于激发俄罗斯年轻人反对普京的侵略行动。
+编辑整理：Jacques；
 
-俄罗斯驻美大使证实，俄军在攻占车诺比核电站之后，挟持了92名职员作为人质。 联合国安理会表决谴责俄罗斯入侵乌克兰、要求俄国立即撤军的决议，遭到安理会轮值国主席俄罗斯的否决。
+字幕档制作：兵嫂；
 
-中共国、印度和阿联酋3国弃权。 欧盟27个会员国通过了对俄罗斯的第2轮制裁方案，宣布冻结普京和俄罗斯外交部长拉夫罗夫在外国的资产，美国和加拿大也宣布了类似的制裁方案。欧盟外交官指出，该制裁行动是一个重要的政治信号。
+视频制作及上传：Cindy；
 
-北约秘书长斯托尔滕贝格宣布，北约在部署部分战备反应部队，以强化其东侧防御，并持续向乌克兰输送防空系统等武器。这是北约首次在集体防御的背景下，部署反应部队。
+G-News发布：海贼王M.D.LUFFY；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-文字版原文：[俄乌阶段性战况汇总](https://gnews.org/zh-hans/2080820/)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+G-TV：日本银河系农场。
 
 
 
