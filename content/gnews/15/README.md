@@ -2,40 +2,43 @@
 ---
 
 
-## 美国对俄罗斯增加数字货币制裁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2091549/)
+## 乌克兰指控白俄罗斯参与战争罪行
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2091622/)
 
-作者：银河系农场 – 骄子
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+作者：纽约磐石农场—在远方
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-6.png)
 
-外媒3月1日报道，美国财政部在网站上公布了针对俄罗斯进行制裁的一系列新规，禁止美国人向某些俄罗斯寡头和实体提供任何支持，其中包括：不得进行欺骗性交易，以转移、支付、出口、撤回或其他处理方式，来规避美国的任何制裁，包括通过数字货币或数字资产、实体资产等。这些规定也适用于总部位于美国的实体。 据悉，财政部官员已要求世界各地的加密交易所防止俄罗斯实体使用加密货币逃避制裁，例如要求Binance、FTX和Coinbase屏蔽受制裁人员和地址，其中Binance和FTX的总部不在美国。 有几家交易所公开表示不会屏蔽所有俄罗斯用户和地址，而共产党背景的Binance交易所则表示至少可以屏蔽财政部外国资产控制办公室制裁名单上个人的钱包。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3.jpg)
-参考链接：
-[US Treasury Department Formally Adds Crypto Rules to Russian Sanctions Guidance](https://www.coindesk.com/policy/2022/02/28/us-treasury-department-formally-adds-crypto-rules-to-russian-sanctions-guidance/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+台媒2月27日报道，据乌克兰空军发布的信息指出，他们击落了一枚从白俄罗斯发射的巡航导弹，指控白俄罗斯也加入了俄罗斯侵犯乌克兰的行列。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phpNHsLKJ.jpg)图源法新社
+据乌克兰空军司令部脸书信息称，稍前乌克兰一架TU-22军机击落了从白俄罗斯领土发射，攻击乌克兰首都基辅的导弹。乌克兰空军司令部指控，这是又一起白俄罗斯和俄罗斯犯下的战争罪行。
 
-总编：天滅中共
-编辑：飞虹
-校对/发稿：为真不破20
+另据美国麦克萨太空科技公司的卫星图像显示，25日拍到白俄罗斯斯霍伊尼基附近，出现大量地面部队与直升机部队集结。
+
+参考来源：
+
+[攔截一枚巡弋飛彈！ 烏克蘭指控入侵行動白俄羅斯也有份](https://news.ltn.com.tw/news/world/breakingnews/3843067)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-3.jpg)
+
+编辑/校对/发稿：兰兰
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-7.png)
 
 
  

@@ -2,23 +2,26 @@
 ---
 
 
-## 尽管俄罗斯原油价格便宜但买家回避
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2091656/)
+## 美国贸易报告敦促遏制中国的强迫劳动
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2091731/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-9.jpg)
-图片来源： finance.sina.com.cn
-零对冲网3月1日报道，在美国和西方盟友对俄罗斯进行广泛制裁之时，原油市场已经表现出来了，能源就好像是西方制裁的准线，练油厂已经回避购买俄罗斯原油，银行也拒绝对俄罗斯货物的金融转账。
+撰稿：东京樱花团/盖特第一批注册
 
-这种自我禁运能有效地阻止绝大多数俄罗斯原油运输，使得全球能源价格升高，这在俄罗斯入侵乌克兰之前就已发生。同时，俄罗斯发动战争所需要金融系统的收入已陷混乱，促使各大公司购买最贵重的物品。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/美国贸易报告敦促遏制中国的强迫劳动.jpg)
 
-来自俄罗斯的原油价格一度下跌$18.6，但尽管如此还是找不到买家。俄罗斯能源出口占世界7.5%，以美国为首的西方国家将俄罗斯部分银行踢出SWIFT系统，但还留有支付油气的金融转账。目前还不能说完全没有买家，像印度公司上周购入了700万桶乌拉尔原油，尽管如此，那里的公司也将陷入有限制裁范围。
+[图片来源](US-TradeRepresentative-Seal.svg)
 
-值得注意的是中共国，当初美国制裁伊朗前中共国曾大量购入伊朗原油，但这次并没有大量买入俄罗斯便宜原油，可能因为北京正在小心翼翼地避免踩踏外交红线。
-在这场俄罗斯与西方的较量中，俄罗斯目前正经历着剧痛，而西方目前虽然原油价格便宜，但很快这波原油用完后价格将飙升， 可能会出现70年代中期经历的石油危机甚至更严重。
+美国贸易代表办公室（USTR）于3月1日发布了其年度贸易政策报告。 报告指出，美国将 “探索所有途径，并在必要时寻求新的措施”，以打击中国侵犯知识产权和各种不公平做法。 报告重申了将采取严厉措施遏制新疆维吾尔自治区强迫劳动。
 
-##### 新闻来源： [“The Market Is Starting To Fail”: Buyers Balk At Russian Oil Purchases Despite Record Discounts, Sanction Carve Outs](https://www.zerohedge.com/markets/market-starting-fail-buyers-balk-buying-russian-oil-despite-record-discounts)
+报告认为，”美国和中国这两个经济大国之间的双边关系不仅对两国而且对整个世界都有影响”，但 “中国的贸易做法正在引起摩擦”。
 
+压低工资导致的低成本是企业选择在中国生产的一个原因。对新疆少数民族的强迫劳动是侵犯人权的行为。
+
+信息源：[中国のウイグル強制労働抑制へ厳格方針　米、通商報告](https://www.sankei.com/article/20220302-YCRCXHAKAJNUHJSRMAHXHCZGGU/)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

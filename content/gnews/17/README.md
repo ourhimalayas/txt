@@ -2,44 +2,43 @@
 ---
 
 
-## 芬兰放下「中立」宣布军事援助乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2091547/)
+## 有声|欧盟委员会主席宣布一系列对俄罗斯的制裁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2091583/)
 
-作者：纽约磐石农场 – 在远方
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间2022年2月27日，在布鲁塞尔，欧盟委员会主席乌苏拉-冯德莱恩宣布，欧盟已经对俄罗斯飞机实施了全面的飞行禁令。
+
+冯德莱恩说：”我们正在关闭俄罗斯拥有的、俄罗斯注册的或俄罗斯控制的飞机的欧盟空域。所有这些飞机，包括寡头的私人飞机，现在将不能在任何欧盟国家降落、起飞或飞越。”
+
+俄罗斯飞机也被禁止进入英国领空。
+
+欧盟还将禁止克里姆林宫的媒体机器——国有的 “今日俄罗斯 “和 “斯普特尼克”，以及它们的子公司。它们一直在传播谎言，为普京的战争辩护，并在我们的联盟中播撒分裂，这必须要禁止。
+
+同时，欧盟还将为乌克兰提供武器。欧盟委员会主席乌苏拉-冯德莱恩还表示，”有史以来第一次，欧盟将资助购买和运送武器和其他设备给一个正在遭受攻击的国家”。
+
+冯德莱恩补充说，欧盟将针对白俄罗斯总统亚历山大-卢卡申科支持俄罗斯在乌克兰广泛开展的军事行动。将制定新的制裁措施打击卢卡申科政权。
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+文字版原文：[欧盟委员会主席宣布一系列对俄罗斯的制裁](https://gnews.org/zh-hans/2078672/)
 
-
-
-台媒3月1日消息，芬兰总理马林（Sanna Marin）28日宣布，芬兰将向乌克兰运送武器和弹药。 马林形容这是历史性的决定，并保证对乌克兰军援不会削弱芬兰自身的防御能力。这是芬兰自二战以来首次转变“中立”态度，参与战事援助。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-2.jpg)
-芬兰国防部长凯克宁表示，预计自3月1日至2日起，分别向乌克兰援助2500支步枪、15万发子弹、1500件反装甲武器和7万份野战口粮。
-
-不久前，俄罗斯政府曾经威胁芬兰不准加入北大西洋公约组织，并警告，如果芬兰政府打破“军事不结盟政策”，北欧的安全和稳定将面临严重的军事、政治后果。
-
-参考链接：
-[二戰後首次立場轉變！ 芬蘭宣布軍援烏克蘭](https://news.ltn.com.tw/news/world/breakingnews/3844211)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑：天滅中共
-校对/发稿：为真不破20
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

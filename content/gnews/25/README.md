@@ -2,31 +2,24 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月28日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2091405/)
+## 美总统拜登与乌总统泽连斯基通电话表支持
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2091457/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-20-1187x1536-1.png)
+作者：波士顿五月花背靠背（frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-02-at-9.43.33-AM.png)图片来源：互联网
+3月1日，美国总统与乌克兰总统泽连斯基通电话，拜登强调对乌克兰继续支持，泽连斯基呼吁：“必须尽快阻止侵略者。”
 
+白宫发布的新闻稿称，美国在乌克兰保卫自己免受俄罗斯侵略时继续支持乌克兰。拜登总统强调对乌克兰的持续帮助，包括持续提供安全援助、经济支持和人道主义援助。讨论了如何追究俄罗斯的责任包括已对俄罗斯经济的制裁，还讨论俄罗斯对乌平民袭击升级事件，包括在巴宾亚尔大屠杀纪念馆附近发生的爆炸事件。【1】
 
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月28日晚](https://gnews.org/zh-hans/2084514/)
+拜登总统发推文称，将对乌克兰的持续支持包括安全援助和人道主义援助，抵抗俄罗斯的侵略，追究俄罗斯的责任，并表示对俄罗斯制裁已经产生了毁灭性的影响。
+![pastedGraphic.png](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-02-at-9.45.23-AM.png)
+随后乌克兰总统泽连斯基发推文呼吁：“我们必须尽快阻止侵略者。“
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-02-at-9.45.35-AM.png)
+参考链接：【1】**[拜登总统与乌克兰总统泽连斯基的通话宣读](https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/01/readout-of-president-bidens-call-with-president-zelenskyy-of-ukraine-5/)**
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+* * *
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*编辑&发布：Vicky*
 
  
 

@@ -2,52 +2,49 @@
 ---
 
 
-## 唱灭共的雪时感觉头上有人捏着让嗓子顶着鼻子找到感觉
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2091449/)
+## 有声|俄乌阶段性战况汇总
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2091537/)
 
-G-TV视频链接：https://gtv.org/video/id=62164dc71408ee3a03a3c925
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
-**郭文贵先生：**哎呀，——我爱你，塞北的雪，轰轰烈烈，满山遍野，你用自己那无暇的身躯，净化被谎言笼罩的世界，你把真相传递给了人间，唤醒了无尽的黑暗，沉睡的心田。
 
-你看我说着我能唱上去，唱A调我还能唱完，这，不简单，不简单不简单。
 
-就是我第一次唱《塞北的雪》的时候，我连哼都哼不出来，甭说唱了。特别是，就是这个，（唱）“我爱你，塞北的雪”，我就这样：塞北的雪，完了，就转不了弯儿。你知道吗？
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phprM8oVA-768x511-1.jpg)
 
-然后“飘飘洒洒”就这块儿“飘飘洒洒”（唱）“飘飘洒洒漫山遍野”，你知道我这，Tex你知道吗？飘飘洒洒，我说我咋回事儿，我就使劲掐我脖子，我说你这是红的，Miles Guo你就把它唱成豫剧了——飘飘洒洒，漫山遍野。
 
-但是就是咱们国内的战友跟我说：“七哥你把嗓音顶到鼻子上。”然后唐平给我喊，唐平说你唱G调，七哥你别唱AB调;然后Q May在那儿说你唱G调，你慢点儿唱，然后战友给我比划一下，是吧？（唱）“飘飘洒洒漫山遍野”。哎呀！一下把豫剧改成歌曲了，哎呀！感觉牛了，来感觉了！然后这是，——“你的舞姿是那样的美呀”——哎呀！这感觉就来了！她说：你知道为啥，七哥？这个歌曲的来源，就是最早东北“二人转”，这个写词的人取决于东北“二人转”，还有江苏的什么昆剧。特别是那个，——“你的舞姿是那样的轻盈”，他说这是江苏昆剧，“二人转”和昆剧的结合。
+台湾媒体2月26日报道，美国政府为阻止俄军的斩首行动，准备帮助乌克兰总统泽连斯基从基辅撤离，但泽连斯基拒绝离开基辅。
 
-“哎呀！”我说“行啊！”找到感觉！从豫剧又改成咱东北小时候哼的“二人转”，这个时候我特别就是，改歌词我唱的时候啊，特别是有句话，就是“净化被谎言笼罩的世界”，真的太难了，你知道我唱的真的有千遍，我待在洗手间里，（唱）“你净化被谎言”，我一唱我就高了就没了，一下就走了，一下就过去了。特别我唱到那，（唱）“轰轰烈烈漫山遍野”——哎呀，我找到感觉了，来了！
+长期追踪俄罗斯军队动态的美国麦克萨科技公司卫星图像显示，有俄罗斯军队正在波兰边境集结，虽然尚不清楚原因，但美国国务卿布林肯表示，担心俄罗斯可能有乌克兰以外的目标。
 
-你说太对了，Tex，你说我觉得什么？我给人说人要觉得我放屁。Tex你说你信不信？七哥给你说实话，我就那天晚上我就感觉我头上就有个人捏着，就在后面捏着我，就这样后面捏着我。就他让我嗓子顶着鼻子感觉的时候，就哼的时候，我就一下子觉得找到感觉了，一下找到感觉了啊。
+乌克兰副总理费多罗夫致信苹果CEO库克，希望苹果公司能响应美国政府制裁，停止在俄罗斯销售产品，并关闭在俄罗斯的苹果商店应用程序，或有助于激发俄罗斯年轻人反对普京的侵略行动。
 
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
+俄罗斯驻美大使证实，俄军在攻占车诺比核电站之后，挟持了92名职员作为人质。 联合国安理会表决谴责俄罗斯入侵乌克兰、要求俄国立即撤军的决议，遭到安理会轮值国主席俄罗斯的否决。
 
-编辑整理：Jacques；
+中共国、印度和阿联酋3国弃权。 欧盟27个会员国通过了对俄罗斯的第2轮制裁方案，宣布冻结普京和俄罗斯外交部长拉夫罗夫在外国的资产，美国和加拿大也宣布了类似的制裁方案。欧盟外交官指出，该制裁行动是一个重要的政治信号。
 
-字幕档制作：兵嫂；
+北约秘书长斯托尔滕贝格宣布，北约在部署部分战备反应部队，以强化其东侧防御，并持续向乌克兰输送防空系统等武器。这是北约首次在集体防御的背景下，部署反应部队。
 
-视频制作及上传：Cindy；
 
-G-News发布：海贼王M.D.LUFFY；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+文字版原文：[俄乌阶段性战况汇总](https://gnews.org/zh-hans/2080820/)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 

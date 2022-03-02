@@ -2,24 +2,44 @@
 ---
 
 
-## 美总统拜登与乌总统泽连斯基通电话表支持
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2091457/)
+## 芬兰放下「中立」宣布军事援助乌克兰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2091547/)
 
-作者：波士顿五月花背靠背（frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-02-at-9.43.33-AM.png)图片来源：互联网
-3月1日，美国总统与乌克兰总统泽连斯基通电话，拜登强调对乌克兰继续支持，泽连斯基呼吁：“必须尽快阻止侵略者。”
+作者：纽约磐石农场 – 在远方
 
-白宫发布的新闻稿称，美国在乌克兰保卫自己免受俄罗斯侵略时继续支持乌克兰。拜登总统强调对乌克兰的持续帮助，包括持续提供安全援助、经济支持和人道主义援助。讨论了如何追究俄罗斯的责任包括已对俄罗斯经济的制裁，还讨论俄罗斯对乌平民袭击升级事件，包括在巴宾亚尔大屠杀纪念馆附近发生的爆炸事件。【1】
 
-拜登总统发推文称，将对乌克兰的持续支持包括安全援助和人道主义援助，抵抗俄罗斯的侵略，追究俄罗斯的责任，并表示对俄罗斯制裁已经产生了毁灭性的影响。
-![pastedGraphic.png](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-02-at-9.45.23-AM.png)
-随后乌克兰总统泽连斯基发推文呼吁：“我们必须尽快阻止侵略者。“
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-02-at-9.45.35-AM.png)
-参考链接：【1】**[拜登总统与乌克兰总统泽连斯基的通话宣读](https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/01/readout-of-president-bidens-call-with-president-zelenskyy-of-ukraine-5/)**
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-*编辑&发布：Vicky*
+
+
+台媒3月1日消息，芬兰总理马林（Sanna Marin）28日宣布，芬兰将向乌克兰运送武器和弹药。 马林形容这是历史性的决定，并保证对乌克兰军援不会削弱芬兰自身的防御能力。这是芬兰自二战以来首次转变“中立”态度，参与战事援助。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-2.jpg)
+芬兰国防部长凯克宁表示，预计自3月1日至2日起，分别向乌克兰援助2500支步枪、15万发子弹、1500件反装甲武器和7万份野战口粮。
+
+不久前，俄罗斯政府曾经威胁芬兰不准加入北大西洋公约组织，并警告，如果芬兰政府打破“军事不结盟政策”，北欧的安全和稳定将面临严重的军事、政治后果。
+
+参考链接：
+[二戰後首次立場轉變！ 芬蘭宣布軍援烏克蘭](https://news.ltn.com.tw/news/world/breakingnews/3844211)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑：天滅中共
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
