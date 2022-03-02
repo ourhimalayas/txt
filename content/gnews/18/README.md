@@ -2,30 +2,48 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月2日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2096095/)
+## 俄入侵乌克兰被视为世经论坛发起“网络大流行”的绝佳机会
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2096137/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO.jpg)
+**翻译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip俄入侵乌克兰被视为世经论坛发起网络大流行的绝佳机会.png)图片来源：naturalnews.com
+自然新闻 – 本周在线发布的一份报告称，俄罗斯总统普京周四入侵西方邻国乌克兰，这为世界经济论坛（World Economic Forum）提供了一个一次性的机会，可以发动一场“网络大流行”，这将真正改变全球金融系统，只需按一下按钮。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-1.png)
-文章仅代表作者本人观点，与Gnews无关
+根据“奇怪的声音”网站：
 
-视频参看：
-[2022.03.02早 《NFSC新闻》](https://gtv.org/video/id=621f715d019ef64da653c7f1)
-[2022.03.02早 G|TV《新闻访谈》](https://gtv.org/video/id=621f7944019ef64da653d746)
+2020 年 7 月，[世经论坛创始人] 克劳斯·施瓦布（Klaus Schwab）警告世界，一场毁灭性的全面网络攻击将破坏金融体系（告别存款、养老金、共同基金、保险单）、公用事业（告别水、气、电）， 交通（告别飞机、空中交通管制、智能汽车、红绿灯、货船、火车等）、教育、医疗保健、工业、惩教设施、互联网本身，以及发达国家大多数人认为理所当然的几乎所有东西。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+这些担忧随后导致世经论坛推出了名为“网络多边形”（CyberPolygon）的201活动LARP，该活动于 2020 年和 2021 年举行，预计将在今年某个时候再次举行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March.jpeg)
+报告继续指出，2020 年 12 月，“俄罗斯人”入侵了 “太阳风”（SolarWinds） 和五眼联盟 （FireEye），这些软件渗透到包括美国在内的数十个国家的政府机构，并让攻击者获得了一些最好的黑客工具，以及后门进入所有作为这两家“网络安全”公司客户的公司。这些客户包括几乎所有财富** 500 **强公司、许多主要城市和政府机构。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+第二年，“俄罗斯人”与“中共国”黑客以及“匿名”集体入侵了一条主要管道和几家公司，包括肉食品加工商 JBS 食品公司、云运用（Accellion）、卡西亚（Kaseya）、美国第二大啤酒厂（Molson Coors）、史诗域名系统（Epik DNS） ，甚至微软。12 月，包括美国、英国、阿拉伯联合酋长国、以色列、瑞士、奥地利、德国、意大利、泰国和荷兰在内的“集体力量”成员与国际清算银行、国际货币基金组织和世行，模拟严重削弱全球金融体系的网络攻击的影响。
+
+然后，本月早些时候，基督教众筹平台“给予送你”（ GiveSendGo） 也遭到了黑客攻击，对加拿大“自由车队”卡车司机的捐助者及其支持者公开发动了一次攻击，这绝对有利于总理特鲁多的专制政府。
+
+但总而言之，进行这些黑客攻击的人，“没有把心思用于去找出吉斯兰·麦克斯韦（ Ghislaine Maxwell ）的黑皮书内容，或去调查任何其他‘危及我们的民主’的问题，包括有争议的美国选举，甚至是泄露 FDA 和辉瑞（Pfizer）试图再向人类隐藏 75 年的试验数据，”“奇怪声音” 在其报告中进一步指出。
+
+而现在，正如澳大利亚 ABC 新闻报道的那样，在俄罗斯入侵乌克兰之后，“无名氏/匿名者”突然又回来了，向莫斯科宣布“网络战争”：
+
+黑客团体“无名氏”（ Anonymous）已经禁用了几个俄罗斯政府网站，包括国家控制的今日俄罗斯新闻服务。
+
+与无名氏集体认同的黑客宣布，他们发起了网络行动，短暂关闭了RT.com，以及克里姆林宫、俄罗斯政府和俄罗斯国防部的网站。
+
+“奇怪声音” 的作者指出：“我不是赌徒，但在“201行动 LARP” 结束仅 2 个月后就成为现实后，我的直觉告诉我，这次网络升级将为释放真正的网络提供完美的掩护。将大流行归咎于俄罗斯人。
+
+“确保‘你将一无所有并快乐’成为现实的最快方法是什么？摧毁所有非物质财富。是的，加密货币也不能幸免，因为当交易所、保管人，甚至互联网都无法正常工作时，它们的价值为零，”该帖子继续说道。
+
+施瓦布统治的宇宙主宰们，是否会利用当前的大国冲突作为使地球贫困化的手段，以便他们能够统治它？该评估表明了这种明显的可能性。
+
+**新闻来源**：[naturalnews.com][Russia’s invasion of Ukraine seen as perfect opportunity for World Economic Forum to launch its ‘Cyber Pandemic’](https://www.naturalnews.com/2022-03-01-russias-invasion-of-ukraine-perfect-opportunity-for-cyber-pandemic.html)
+
+* * *
+
+***审核：文乐
+校对：小东
+发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
 
  
 

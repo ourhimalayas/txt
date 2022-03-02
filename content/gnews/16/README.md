@@ -2,30 +2,40 @@
 ---
 
 
-## 韩囯单日新增确诊病例突破21万例
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2096152/)
+## 小男孩泪流满面地描述逃离乌克兰,因为他父亲留下来保护国家
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2096279/)
 
-撰稿 ：首尔天池农场-追著曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/38151096-0F42-489A-BD73-2C5E5FF5E1C0.jpeg)
+[https://gtv.org/video/id=621f4a1b4353d33974c4aea0](https://gtv.org/video/id=621f4a1b4353d33974c4aea0)
 
+We left dad in Kyiv
+我们把爸爸留在了基辅
 
+And dad will be selling things and helping our heroes, our army
+爸爸会卖些东西，帮助我们的英雄，我们的军队
 
+he might even fight
+他甚至可能会去战斗
 
-据韩KBS新闻3月2日的报道， 韩国中央防疫对策本部通报，截至今天（2日）零时，单日新增中共病毒确诊病例21万9241例，创历史新高。
+**原视频链接**[**: **https://twitter.com/foxnews/status/1498145939432767491?s=24](https://twitter.com/foxnews/status/1498145939432767491?s=24)
 
-单日新增较前一天增加8万例。较上周的同一天17万例，增加近5万例。重症患者增加35人至762人，新增96例死亡病例，累计死亡8266例，平均致死率0.24%。
+Date:03/01/2022
+原视频标题:‘WE LEFT DAD IN KYIV’: Little boy tearfully describes fleeing Ukraine as his father stays behind to protect country
+“我们把爸爸留在了基辅”：小男孩泪流满面地描述逃离乌克兰，因为他的父亲留下来保护国家
+原视频日期：2022/02/28
+原视频链接https://twitter.com/foxnews/status/1498145939432767491?s=24
+任务编号：KE431（3888）
+视频时间段 : 0:00-0:30
 
-另外，60岁以上确诊病例3.3万例，约占总数的15%。18岁以下的确诊病例达到5万例，约占总数的23.8%。
+英听校: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-韩国的疫苗接种率，首针接种率为87%，完全接种率为86%，第三针加强针接种率61%。从上月15日开始给免疫力低下人群接种第四针剂。
-
-参考鏈接：
-
-[https://news.kbs.co.kr/mobile/news/view.do?ncd=5407136](https://news.kbs.co.kr/mobile/news/view.do?ncd=5407136)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
-编輯/校正/发稿：玫瑰圓
-![](https://assets.gnews.org/wp-content/uploads/2022/03/881431E2-E7D0-4E40-899B-1897B5116BFB.jpeg)
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
