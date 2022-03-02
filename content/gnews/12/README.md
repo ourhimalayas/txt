@@ -2,56 +2,40 @@
 ---
 
 
-## 服药睡眠后被妻子偷打疫苗导致嘴歪眼斜大便失禁的战友
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2093583/)
+## 欧盟发布持乌克兰快速入盟
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2093651/)
 
-G-TV视频链接：[https://gtv.org/video/id=62164a781408ee3a03a3c888](https://gtv.org/video/id=62164a781408ee3a03a3c888)
+作者: 台湾宝岛农场 dobi
 
-**郭文贵先生：**兄弟姐妹们，疫苗这件事情体验了人心，人的洞察能力，体验了所有中国人对事情的看法。
 
-前天直播中间刚直播完，有战友跟我发信息，他的姐姐27岁，说：“我怎么劝她，都跟我好说‘我信你的，我绝对不打’，一针；‘我绝对不打’，‘啪’二针；‘我吃青蒿素’，三针。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-9.png)
+即使28日的俄乌停火会谈双方未能顺利取得共识的情况下，俄乌战火仍持续延烧中，但继乌克兰有效阻止俄军攻占首都基辅，让普京速战速决的预期落空后，欧盟对于乌克兰的声援也在28日更加积极、更趋于明朗化，多个欧盟国成员强烈主张应尽快批准乌克兰加入欧盟。
 
-他说：“回来以后发现（姐姐）不正常，然后说‘我要吃青蒿素，我要吃青蒿素’，四针，死了。”咱心疼啊！咱这位战友把姐姐当亲妈照顾，因为姐姐为了他，打工让他上大学。
+据外媒报导指出，28日晚间，爱沙尼亚、保加利亚、捷克、拉脱维亚、立陶宛、波兰、斯洛伐克和斯洛文尼亚八个欧盟国的领导人发表了公开信，信中强烈表达力挺乌克兰的决定，大力敦促欧盟应立即给予乌克兰获得加入欧盟的机会，同时也呼吁欧盟其他成员国应加强对乌克兰的支持，对乌克兰及其人民充分声援。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_EF8ED507E9D0-1.jpeg)图片来源: 网络
+欧盟委员会主席冯德莱恩（Ursula von der Leyen）也于28日与乌克兰总统泽连斯基（Volodymyr Zelensky）通话后表示，欢迎乌克兰加入欧盟。随即，泽连斯基签署了一份申请书，正式要求加入欧盟，同时也疾呼欧盟应立即给予他的国家成员资格，协助乌克兰抵御俄罗斯的入侵。
 
-咱另外一位战友是在新加坡的，在新加坡工业区给人家做一个很高科端的一个工厂的管理人，车间管理人，很有钱。他睡着觉了，他睡着觉老婆能给他偷扎一针。大家想想这有多恐惧？你听着这是，我真的感到无比的恐惧啊！老婆让……
+目前俄乌双方仍处于激战中，但从欧盟和西方国家陆续给予乌克兰军事援助、人道救援物资、科技网络、情报分析等情势来看，俄罗斯虽然迄今仍未出现停战的迹象，但其在国际的地位似乎已陷入了空前孤立的境地。且美参议员卢比奥（Marco Rubio）认为俄已超出了他们自己预期在72小时内控制基辅的时间表了，这些似乎早已透露普京这次可能失算了。
 
-他晚上睡觉喝一种类似安眠药的药，他老婆给他加了两倍，睡了八九个小时，老婆给他扎一针，他老婆说只扎了一针。他醒来的时候吓坏了，她说给他扎了一针，但是他觉得老婆给他扎了肯定不止一针。
+新闻链接: [https://www.epochtimes.com/gb/22/2/28/n13609967.htm](https://www.epochtimes.com/gb/22/2/28/n13609967.htm)
 
-你知道咱这位战友现在怎么着了吗？我希望……他答应我了要出来也要直播，我说：“希望有一天你要能活着出来直播。”真的是嘴歪眼斜啊，而且最让人恐怖的事情是大便失禁，就在新加坡。就七哥听完以后我就觉得，我就慌了，我手里拿着手机我不知道往哪儿找手机，我就一下头就懵了。还有这种事情？偷着给打针的，把他打成这样。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
 
-老婆不认账，说“不是打针的事，是你打得太少，你应该再打个两三针”。而且展示出来，国内的人说“你看咱老家的人都打了多少针？两针三针啥事没有”。又是我们东北人。
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
-你文艺这号在国内100%给打上去了，你今天看到的文艺可能就已经没了。就是咱东北那个地方不但人穷，他这个无知愚蠢到了极点。他所谓都被那些一本正经的，扯淡的严肃媒体全给骗了。
+**更多资讯，更多关注**
 
-而且所有东北人是看全世界官方媒体最多的地方，东北经济最差，经济最穷，最相信共产党这个大骗子的就是东北，甘肃、东北、广西。所以这个疫苗绝对是对人类上一种智慧还是愚蠢的一次经纬分明的惩罚。
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-能偷着给老公打针，打完嘴歪眼斜了、大便失禁了，还不认为是自己错了。这姐姐一本正经地相信、偏弟弟，深爱自己的弟弟，最后把自己打死拉倒。
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-编辑整理：Jacques；
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-字幕文件制作：兵嫂；
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-视频制作及上传：Cindy；
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,57 +2,44 @@
 ---
 
 
-## 美国可同时专注于两个战区—印太和欧洲战争
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2093571/)
+## 疫苗灾难远未开始,不要心存侥幸,不打疫苗是最大收获
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2093630/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-9.png)2019 年 6 月 5 日，俄罗斯总统弗拉基米尔·普京（Vladimir Putin）和中国国家主席习近平在俄罗斯莫斯科举行的签字仪式上。路透社/叶甫根尼娅·新任真娜（REUTERS/Evgenia Novozhenina)
-据《路透社》作者大卫·布伦斯特伦（David Brunnstrom ）和迈克尔·玛蒂娜（Michael Martina）20221 年 2 月 28 日报道：
+G-TV视频链接：[https://gtv.org/video/id=62164aee1408ee3a03a3c895](https://gtv.org/video/id=62164aee1408ee3a03a3c895)
 
-路透社华盛顿2月28日 – 白宫印太政策协调员周一表示，尽管发生乌克兰危机，美国仍将重点关注印太地区，并称华盛顿此前曾同时深度参与两个区域，包括在第二次世界大战和冷战时期。
+**郭文贵先生：**我想告诉大家疫苗，你们千万别以为，我今天要重点说三句话，战友们：疫苗灾难远远没有来。疫苗灾难没有任何侥幸，绝对是比我说的比你们想象得要大得多得多，你一定要做好准备。第三个，你没打疫苗是你一生中做的唯一的最大的、最正确的决定，你永远牢记永远要懂得感恩。
 
-官员库尔特·坎贝尔（Kurt Campbell）在一次由美国德国马歇尔基金会主办的活动中说：“这很困难。它很昂贵。但这也是必不可少的，我相信我们正在进入一个时期，这是美国和这一代美国人所需要做的” 。
+这是新中国联邦、爆料革命，给你的什么币、给你什么样的东西，它都没这个比，因为它是你的一切，你死了烧成灰了一切跟你没关系。就像我们的朋友，他说“他姐姐死之前就是使劲喊，说我不想死，我不想死”，她说“让我干啥都可以，我不想死，我看到了美好的世界，让我活下来”，但是她就死了。我不希望任何战友们，到时候你真的发现你要死的时候大声喊着，没有人能拉住你的，拉不住你的。
 
-坎贝尔说：“在政府内部，在白宫，有一种深刻的认识和意图，要维持我们在印太地区参与的每一个要素。”
+没打疫苗，家人没打疫苗，是最重要的。打了疫苗赶快吃青蒿素，兄弟姐妹们。我先说了疫苗，兄弟姐妹们，国际上的政治疫苗运动，经济疫苗运动，政治疫苗灾难，经济疫苗灾难，包括你生存的环境，那就是超出你想象的N倍、N倍、N倍，世界因此绝对大改变。
 
-坎贝尔表示，未来几个月将显示美国 “决心” 维持该地区的高度参与，总统乔·拜登（Joe Biden）已宣布将反击中共国不断扩大的影响力的政策和资源，作为优先事项。
+就这一条我告诉大家，咱不灭共产党，共产党都把自己灭了，他百分之一万会被灭得干干净净，走着看，永远记住！
 
-拜登计划在 3 月与东南亚领导人举行峰会，并在 5 月出席美国、澳大利亚、日本和印度四国集团的峰会。  坎贝尔表示，拜登今年也将前往参加涉及东南亚国家的会议。
+编辑整理：Jacques；
 
-拜登周一还派出一个前高级安全官员代表团前往台湾，以表示对该岛的支持，因为担心中国可能会利用心烦意乱的西方来对抗它。
+字幕文件制作：兵嫂；
 
-坎贝尔说：“你将看到一系列全面的活动，包括外交、制度……投资，以及经济和贸易。”
+视频制作及上传：Cindy；
 
-白宫国家安全委员会美国印太战略主任米拉·拉普·胡珀（Mira Rapp Hooper）表示，她相信俄罗斯入侵乌克兰不会偏离美国的印太目标。
+G-News发布：小满；
 
-“有一种方式，我们现在向乌克兰发送的资源实际上与我们在印太战略上试图做的完全分开，”她说。  “这并不意味着我们一刻也不会感到资源稀缺，但这确实意味着我们可以同时规划两者。”
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-坎贝尔和拉普·胡珀表示，世界正在密切关注中国对俄罗斯入侵的立场，这次入侵就发生在中共和莫斯科宣布加强战略伙伴关系三周后。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-白宫呼吁中共国谴责俄罗斯的行动，这是二战以来对欧洲国家的最大攻击。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-坎贝尔说，中共国处于尴尬境地，但华盛顿希望保持与中共的沟通渠道畅通。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-他说，他相信中共领导人“一直在关注” 美国的盟友和伙伴的团结以及俄罗斯入侵的“残暴”。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-“不可否认的是，现在中共国正处于一个尴尬的关系中，他们试图在其中维持与俄罗斯的深厚而根本的关系。”
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-坎贝尔说，现在说中共国会得出什么结论还为时过早，但华盛顿已经提前向中共解释了与俄罗斯入侵相关的风险。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-“从我们的角度来看，很明显，俄罗斯和中共国之间如此公开和如此深入的联系现在确实让人不舒服。”
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-中共在很大程度上避免批评莫斯科，但强调了其在尊重主权和领土完整的必要性方面的传统立场，并于上周在联合国就一项谴责俄罗斯入侵的决议投票中投了弃权票。
-
-在同一活动中，欧盟外交部门亚洲政策负责人贡纳尔·韦根（Gunnar Wiegand）也强调需要保持与中共国的谈判渠道畅通，而欧盟印度太平洋事务特使加布里埃尔·维森廷（Gabriele Visentin）则表示乌克兰的事件将鼓励欧盟加强与亚洲的接触。
-
-原文链接：
-
-[https://www.reuters.com/world/china/us-can-focus-two-theaters-indo-pacific-war-europe-official-says-2022-02-28/](https://www.reuters.com/world/china/us-can-focus-two-theaters-indo-pacific-war-europe-official-says-2022-02-28/)
-
-
-
-
-
-翻译：Nick｜校对：JS709｜编辑&发布：闪电训练
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
