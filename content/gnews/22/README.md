@@ -2,23 +2,28 @@
 ---
 
 
-## 视频｜纽约市计划放弃学校和企业的口罩和疫苗强制
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2093713/)
+## BKKProVita保险经理被解雇——曾指控新冠疫苗的副作用大
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2093843/)
 
-制作：香草山视频部
+#### 翻译/简评                            意大利达芬奇农场                     小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-02-alle-12.20.20.png)图片来源：eventiavversinews.it
+两周前，BKKProVita总裁Andreas Schöfbeck，他就账单信息里泄露出疫苗副作用高发生率一事致函德国疫苗监管机构Paul-Ehrlich-Institut,  此事引起了轰动。
 
-2月27日，据NBC-纽约报道，纽约市长埃里克-亚当斯宣布，他计划于3月7日起，取消该市 5岁以上人士在公共场合需提供疫苗接种证明的政策，学校也将不再要求学生和工作人员在室内配戴口罩。
+我们在这里谈论过这个话题：拥有1100用户的德国健康保险：新冠疫苗的副作用比政府报告的要大得多。
 
-在结束疫苗强制之前，纽约市长办公室的团队还将审查该市的“中共病毒”感染指标，一旦这些指标在未来几周持续低于高危风险的界限，疫苗强制政策的废止将如期推进。
+Schöfbeck 被叫去要求替他写的信进行辩护，但一个小时的公司会议后， 他被解雇了。
 
-自2021年以来，纽约市一贯采取相对激进的防疫措施，包括在餐馆、学校等公共场所出示“中共病毒”疫苗的接种证明，强制配戴口罩。分析人士指出，强制防疫措施并未及时遏制2022年年初“奥米克戎”毒株在纽约市的爆发，反而引发民众的普遍反感，以及大规模的反“强制疫苗”游行活动。
+Paul-Ehrlich-Institut 的代表，包括其主席 Klaus Cichutek, 已同意同一天下午与Schöfbeck和其他BKK官员会面，讨论他们的担忧， 但这显然是不可能的。
 
-发稿：小野貓（文凱琳）
+解雇Schöfbeck 是事先无耻地计划好的，是为了阻止他参加那个会议，事实上那次会议没有他也照样举行了。
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+这就是对新冠疫苗“安全性和有效性充满信心”的人的行为， 但这样做却越来越不可逆转地损害了公众的利益。
+
+当世界的注意力都集中在乌克兰的时候， 我们不要忘了我们每一个人都身处乌克兰， 因为新冠疫苗的灾难无处不在, 而主流媒体及政府闭口不谈疫苗带来的严重副作用。这是一场战争，热战已开始，而疫苗战 、媒体战、信息战也正如火如荼地展开…..
+
+原文链接：[https://www.eventiavversinews.it/il-dirigente-assicurativo-tedesco-della-bkk-provita-che-ha-denunciato-lalto-tasso-di-effetti-collaterali-del-vaccino-rivelato-da](https://www.eventiavversinews.it/il-dirigente-assicurativo-tedesco-della-bkk-provita-che-ha-denunciato-lalto-tasso-di-effetti-collaterali-del-vaccino-rivelato-da)
+
+编辑、上传： Xiao    baige
 
  
 
