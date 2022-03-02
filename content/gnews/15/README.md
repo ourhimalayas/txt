@@ -2,27 +2,44 @@
 ---
 
 
-## 台外交部迎接美国跨党派资深代表团访台
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2093346/)
+## 新西兰高等法院驳回了对所有国防军人员和警察的疫苗接种授权
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2093362/)
 
-**撰稿：日本东京方舟农场 灭毒战疫** **子辰**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-5.png)
 
-3月1日，由美国总统拜登指派，前参谋长联席会议主席穆伦（Michael Glenn Mullen）率领的美国跨党派资深代表团乘专机访问台湾。台外交部长吴钊燮前往机场迎接。
+图片来自原文
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/N1.png)（图片来自台湾外交部官方Twitter 账号）
+新西兰因实施世界上最严厉的中共病毒（COVID）禁令而闻名，引发了一场 “结束中共病毒（COVID-19）强制限制令 “的车队抗议活动，其灵感来自加拿大的卡车司机自由车队。
 
-据悉，这是美国代表团时隔不到一年的再次到访。担任此次访台的领队穆伦将军于2007年至2011年担任美军参谋首长联席会议主席，各人军事经验非常丰富。另外其他访台的成员大都曾担任过美国防及国安要职。包括前国防部政策次长傅洛依（Michèle A. Flournoy）、前白宫副国安顾问欧苏莉文（Meghan L. O’Sullivan）、前白宫国安会亚洲事务资深主任葛林（Michael Green）及前白宫国安会亚洲事务资深主任麦艾文（Evan S. Medeiros）。
+2月25日，周五，新西兰高等法院驳回了总理杰辛达-阿登（Jacinda Arden）对所有国防军人员和警察接种疫苗的授权。
 
-此次美方代表团访台期间将拜见总统蔡英文、副总统赖清德等台方政要，双方就美台关系各项重要议题展开讨论并交换意见。
+该授权要求所有国防军和警察在2022年3月1日之前根据《Covid-19公共卫生应对法案》接种两针中共病毒（COVID）疫苗。
 
-该代表团成员涵盖民主、共和两党，拜登总统再度派遣这个重量级且极具代表性的团队访台，凸显美国内部对台湾的高度共识与坚定支持，也再次彰显美国对台湾的承诺“坚如盘石”。
+弗朗西斯-库克（Francis Cooke）法官支持对这项授权的质疑。库克认为，该授权对 《新西兰权利法案》保护的基本权利施加了不合理的限制。所侵犯的相关权利是 “自由拒绝医疗的权利 “和 “表达宗教信仰的权利”，同时承认 “工作权 “也通过 “被迫辞职的相关压力 “受到间接限制。
 
-参考链接：
- [https://www.mofa.gov.tw/News\_Content.aspx?n=95&sms=73&s=97444](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;sms=73&amp;s=97444)
+库克引用在法庭上提供的专家证据，写道：”我不认为该命令会带来实质性的变化”。这包括 “强制接种疫苗无助于防止工人……感染中共病毒（COVID-19），或将其传播给他人 “的证据。
 
-素材采编：灭毒战疫
-编辑：老孙
-发布：Linda
+代表警察和国防人员挑战强制令的律师马修-海格（Matthew Hague）说，他们应该立即能够返回工作岗位。
+
+《新西兰先驱报》分享了警方和新西兰国防军发言人的 “两个独立但相同的声明”，其中他们对法院判决的决定性反应并不明确。由于司法裁决刚刚公布，我们将花时间考虑这一决定。我们将与员工沟通下一步措施。在此期间，终止雇佣关系的工作目前不会进行。
+
+工作场所关系和安全部长Michael Wood、副警察局长Tania Kura和新西兰国防军首席人事官Matthew Weston准将提交了宣誓书，为该任务辩护。
+
+备注：
+
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- Covid疫苗本身就是随时爆发的病毒
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
+
+
+新闻来源链接：[https://www.lifesitenews.com/news/new-zealand-victory-high-court-strikes-down-vax-mandate-for-police-and-defense-force/?utm\_source=top\_news&utm\_campaign=usa](https://www.lifesitenews.com/news/new-zealand-victory-high-court-strikes-down-vax-mandate-for-police-and-defense-force/?utm_source=top_news&amp;utm_campaign=usa)
+
+本文作者：Rebecca (一切心皆不可得！)  
+上传排版：Hong
+
+
 
  
 
