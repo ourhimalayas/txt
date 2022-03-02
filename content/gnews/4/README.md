@@ -2,72 +2,56 @@
 ---
 
 
-## 盘点被媒体广传的俄乌战争“虚假”故事
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2093168/)
+## 中共及美国内部的敌人—福奇篇（一）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2093279/)
 
-#### 翻译/撰稿：zzballack
+编译：the world , weiwei
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-1.jpg)图片来源：Republic World
-俄罗斯入侵乌克兰后，媒体上出现了许多有关俄乌战争的故事、图片和视频，但其中一些内容最终被证明是虚假的，下面一一列举：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-02-100037.jpg)图片来源：dailywire.com
 
-1. 蛇岛（Snake Island）烈士
+嗨，我的名字是李-史密斯。 我做了30多年的记者。我在中东生活了多年，几十年来一直在报道境外势力对美国的威胁。
 
-据[媒体报道](https://www.youtube.com/watch?v=tKSFewA9rdQ)，在俄罗斯入侵初期，驻扎在黑海蛇岛上的13名乌克兰边防人员被俄军杀害。一段据称是他们最后时刻的[录音](https://www.independent.co.uk/news/world/europe/ukraine-soldiers-snake-island-russia-warship-b2023039.html)在社交媒体上疯传：一艘俄罗斯军舰对乌克兰人说：“放下武器并投降，以避免流血和不必要的伤亡。否则，你们将被炸死。”乌克兰人回应说：“俄罗斯军舰去死吧。”西方媒体和乌克兰总统弗拉基米尔·泽连斯基 (Volodymyr Zelenskyy)随后说这13人全部遇难，泽连斯基随后承诺为每一位士兵授予“乌克兰英雄”称号。但是数天后，乌克兰海军透露这13人[没有死](https://nypost.com/2022/02/28/snake-island-ukrainian-guards-captured-by-russia-still-alive/)，他们被俄军活捉成了俘虏。媒体和乌克兰政府后来都不情愿地承认了此说法，因此这才可能是真相。
+在我的一生中，美国人几乎每次都会联合起来对抗我们伟大的国家所面临的威胁，包括我们在政治、媒体、商业、学术和文化方面的精英们。 但是今天，我们的生活方式、我们的安全和我们的稳定受到了新的威胁。
 
-2. 基辅幽灵（THE GHOST OF KIEV）
+那就是在中国的独裁主义，在习近平和中国共产党的领导下，出现了一个敌对美国的新的世界大国。美国以前曾多次战胜强大的对手，但今天则不同了。
 
-上周五（2月25日）英语媒体报道说，一架在基辅上空巡逻的乌克兰米格-29战斗机 (MiG-29)在不到两天的空中战斗中击落了6架俄罗斯战机，媒体将驾驶该飞机的飞行员称为“基辅幽灵”。但问题是，几乎没有任何证据表明此事发生过，引用《[新闻周刊](https://www.newsweek.com/who-ghost-kyiv-ukraine-fighter-pilot-mig-29-russian-fighter-jets-combat-1682651)》的话说，“没有证据表明‘基辅幽灵’存在”。俄乌双方都无法证实俄罗斯总共损失了六架飞机，更不用说在一天之内被一个人所击毙。在社交媒体上疯传的一段据称是“基辅幽灵”飞机的[视频](https://twitter.com/ItsOlegi21/status/1497164782952239104)最终也被证实是用2008年发售的视频游戏“数字战斗模拟器”（Digital Combat Simulator）制作的，通过[YouTube](https://www.youtube.com/watch?v=SBBJ_JzV8u4)首次分享该视频的原始发帖人也承认了这一点。
+美国的统治阶级这次没有站在美国人的一边。 相反，他们因过度依赖一个强大的中国共产党而被中共所控制。 因此，现在领导着我们国家安全的最大威胁是我们社会的精英而不是中国。
 
-3. 在基辅上空飞行的俄军飞机（RUSSIAN PLANES FLYING OVER KIEV）
+因此，在我们国家的历史上第一次，美国的精英阶层成功削弱了美国。 这里就是美国的统治阶级如何依附于一个外国势力—中国共产党，以牺牲美国的利益来让自己富有的故事。他们就是内部的敌人
 
-很多人都分享了一段据称是俄罗斯飞机在基辅上空低空飞行的[短视频](https://twitter.com/Aknc35624923/status/1496724320567050241)，英国《泰晤士报》也在他们一篇题为《制裁能阻止俄罗斯的炮弹吗？》的报道中使用了该视频的一张截图。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-6.png)
-实际上，这段视频不是发生在基辅而是莫斯科，也不是在最近发生，很可能是2020年莫斯科胜利日阅兵游行的[彩排镜头](https://www.youtube.com/watch?v=JQkO5XsQMag)。
+从大流行病的早期，我们就被告知，新冠病毒来于中国武汉的一个海鲜市场，它从蝙蝠传播了企鹅身上，然后又传播到人类身上。 它是如此难以预见，以至于很难惩罚任何人或让任何人对发生的事情负责。
 
-4. 泽连斯基拜访军队
+甚至连美国政府应对COVID-19的公众人物安东尼-福奇Anthony- Fauci博士也告诉我们，它来自武汉的湿货市场。 福奇博士：“ 这让我摸不着头脑，当我们有这么多的疾病从那个不寻常的人类和动物的聚集地中散发出来时，我们为什么不直接关闭它，我不知道还必须要发生什么才能重视起来。”
 
-很多人在社交媒体上分享泽连斯基穿着作战服与部队并肩作战的照片，但这些照片大多拍摄于[2021年4月](https://www.dailymail.co.uk/news/article-9463259/Ukraines-president-visits-line-trenches-Russian-TV-warns-nation-one-step-war.html)他访问部队的时候。历史上可能没有哪个政客像泽连斯基那样迅速进行公关改造，上周还是一位普通总统，这周就成了战争英雄，有人甚至说要为他立雕像。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-1.png)
-5. 俄罗斯空袭卢甘斯克发电厂
+人们开始指出这一理论的荒谬之处，即数十万人因一碗糟糕的蝙蝠汤而患病。 保罗：“第一，没有任何动物宿主能感染Covid 19病毒。我们在湿货市场上测试的数千只动物中，没有发现任何一只有COVID-19。 ”
 
-2月24日，有网友在推特上分享了一段据称是“[卢甘斯克的一个发电厂在被俄罗斯导弹击中后爆炸](https://twitter.com/OakRedhammer/status/1496716492276002816)”的视频，该视频随后被数百个账户分享，获得了10万多次的浏览量，连主要的新闻网络也分享了它。但最终证实该视频实际上是[2015年的天津港危化品仓库爆炸事故](https://www.youtube.com/watch?v=ONsmJAyFAAw)。
+而当一些科学家、记者和政治领导人开始指出，在武汉这个拥有1100万人口的城市实际上有一个研究蝙蝠冠状病毒的实验室时，他们被指控为阴谋论者。
 
-6. 乌克兰地面部队击落俄军飞机
+国家过敏和传染病研究所所长安东尼-福奇（Anthony Fauci）是在电视上名列前茅的人之一，每天至少两次或者三次，驳斥实验室理论是荒谬的，许多人甚至指责他在2021年5月的证词中直接向参议院撒谎，否认他的机构资助武汉实验室的功能增强研究的这一危险的实验。
 
-这段据称是[乌克兰地面部队击落俄罗斯飞机](https://twitter.com/RealtorCristyB/status/1497318770699739136)的录像也被疯传，甚至出现在西班牙电视新闻中。但该视频实际上取自视频游戏《[武装行动3](https://kotaku.com/ukraine-invasion-war-russia-arma-3-iii-bohemia-video-ga-1848591313)》(ARMA 3)。
+任何挑战海鲜市场泄露理论的人都遭到了嘲笑，任何注意到在武汉市中心有一个实验室对蝙蝠冠状病毒进行研究的人都被抹黑为阴谋论者。
 
-7. 乌克兰无人机摧毁俄军车辆
+这当然包括当时的美国总统唐纳德-川普，共和党高级官员，如参议员汤姆-科顿和特德-克鲁兹，都被不同的新闻媒体嘲笑。美国记者嘲笑任何说我们应该调查武汉实验室的人。
 
-乌克兰官方账户分享的一段据称是由无人机拍摄的俄军车辆列被摧毁的画面，实际上是2020年土耳其无人机在叙利亚的袭击。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-1.png)
-同时，其他账户在 #与乌克兰站在一起（StandWithUkraine）的标签下分享了利比亚的战斗视频或者以色列对加沙的轰炸。[中东眼](https://www.middleeasteye.net/news/russia-ukraine-war-videos-misinformation-middle-east) (Middle East Eye)网站列出了一份清单详细说明。
+相反，他们指责川普政府对新冠病毒covid19的应对。 那么问题是，为什么？为什么美国的精英们在嘲笑一直以来对COVID-19的起源当中 最可能的一个解释？
 
-8. 虚假的告别（The Fake Farewell）
+为什么他们和他们当中最有名的那个福奇，推广中国共产党的宣传，即COVID-19来自一个湿货市场？ 而这应该引起更多的问题。 例如，为什么武汉实验室一开始就在对蝙蝠冠状病毒进行危险的研究？
 
-两名乌克兰儿童送别将与俄罗斯人作战的士兵的照片在社交媒体上迅速走红，推特上包含该图片的帖子获得了数万个赞。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5.jpg)
-支持战争的美国众议员[亚当·金辛格](https://twitter.com/AdamKinzinger/status/1497401568425132036) (Adam Kinzinger)分享了这张图片。实际上，这张图片可以追溯到[2016年](https://www.unn.com.ua/uk/news/1557781-seriyu-fotografiy-diti-viyni-opublikuvalo-minoboroni)，并且从那时起就已出现在了多个新闻报道当中。
+还有，为什么福奇的组织要资助它？ 为什么现在美国的精英们还在为中国共产党提供掩护？ 事实证明，他们不仅仅是在为中国共产党掩盖真相，他们也在为自己掩盖真相。 我们的精英们对中国共产党的力量比对美国的进步更感兴趣，这到底是怎么一回事？
 
-9. 前乌克兰小姐参军抗俄
+美国与中国的关系：美国对中国的理解可以追溯到100多年前。 中国在1949年落入共产党的手里。1972年2月，随着理查德-M-尼克松的中国之行，美中关系得以重启，他是中国成为共产主义国家后第一位访问中国的美国总统。
 
-前乌克兰小姐安娜塔西娅·蕾娜（Anastasiia Lenna）加入乌克兰军队对抗俄罗斯的故事也被证明是虚假的。蕾娜2月23日在其Instagram上分享了一张[持枪照](https://www.instagram.com/p/CaSsOdyr4FA/)，并表示支持乌克兰对抗俄军，但这张照片中的枪实际上是一支气枪。蕾娜不得不在2月28日[发帖澄清](https://www.instagram.com/p/CahaUb4D8SK/)说：“我不是军人，只是一个普通人，是一个多年的气枪玩家。我的这些照片只是为了激励人们反抗俄罗斯的侵略，没有任何宣传，只是为了展示我们乌克兰女性的坚强、自信和强大。”
+新闻来源：[dailywire.com][Lee explores the history of the politics surrounding Covid-19, and reveals shocking details about both Anthony Fauci’s role in hiding critical information from the American people as well as worrisome unanswered questions surrounding the origins of the virus.](https://www.dailywire.com/episode/1-fauci)
 
-10. 乌克兰士兵与爱人吻别
+【接下篇：[中共及美国内部的敌人—福奇篇（二）](https://gnews.org/zh-hans/2093337/)】
 
-迅速走红的据说是乌克兰士兵在即将奔赴前线对抗俄军前，与亲人吻别的[片段](https://twitter.com/nasersadeghi19/status/1496828539789795336)实际上取自2017年的一部乌克兰纪录片“[嵌合体之战（Війна химер）](https://www.youtube.com/watch?v=8uCrNixmNZ4&amp;t=9s)“。
+* * *
 
-11. 假冒黑客组织匿名者 (Anonymous)
+*审核：阿伯塔
+校对：花羽
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
 
-在社交媒体上广传一段据称是由臭名昭著的黑客组织“匿名者”制作的视频，该视频威胁说要发动大规模网络攻击，并清空那些拒绝抗议普京的俄罗斯公民的银行账户：“2022年3月3日，所有的钱都将从你们的银行账户中扣除，并转给乌克兰武装部队。”然而，[乌克兰数字转型部](https://twitter.com/KyivIndependent/status/1498385468689461248)（Ministry of Digital Transformation）承认，该视频实际上并非由匿名者制作。
-
-我个人百分百反对侵犯其他国家主权的侵略战争。但俄乌战争爆发后不久就出现了如此多的虚假故事，而上述这些只是冰山一角，其中一些可以归咎于失误，但更多的可能是故意欺骗，以煽动人们的恐惧、焦虑和仇恨情绪。因为当人们情绪激动的时候，不太可能进行批判性思考，很容易被宣传操纵和影响，这在过去两年的新冠大流行中已被充分证明。我们不应仅仅因为俄罗斯入侵在先，就盲目接受乌克兰方面的说法。俄乌双方都在宣传，片面怀疑主义（one-eyed skepticism）只不过是另一种偏见。简而言之，当你看到一些旨在煽动情绪的东西时，永远不要被叙述所淹没，始终秉持自我、保持冷静并提出合理问题，这是你保持思想自由的唯一方法。
-
-新闻来源：
-
-[7 FAKE NEWS Stories Coming Out Of Ukraine](https://thecovidworld.com/7-fake-news-stories-coming-out-of-ukraine/)
-
-[DEBUNKED: Corporate Media’s Top Trending Ukraine Stories Turn Out To Be Complete Fakes.](https://thenationalpulse.com/2022/02/28/pro-ukraine-propaganda-floods-social-media/)
 
  
 

@@ -2,45 +2,33 @@
 ---
 
 
-## IEA成员国释放石油储备，应对俄乌局势下的油价急升
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2093278/)
+## 澳大利亚提供1.05亿美元援助乌克兰 赞成把俄罗斯赶出G20
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2093315/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-4.png)
 
-翻译/编辑：文泓
+[图片来源](https://cdn.sputniknews.cn/img/101898/58/1018985858_0:267:2000:1067_1920x0_80_0_0_168b92e18353bf27dbf83b3ded2a5de8.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-5.png)图片来源：aa.com.tr & 雅典娜设计组
+澳大利亚总理斯科特-莫里森(Scott Morrison)宣布向乌克兰提供1.05亿澳元的一揽子军事和人道主义援助。该援助计划包括7000万美元的致命和非致命援助以及3500万美元的人道主义援助。
 
+人道主义援助将用于国际组织的住房、食品、医疗、水和教育支持。
 
-路透社东京3月1日消息，周二包括美国在内的国际能源署(IEA)成员国同意释放6,000万桶石油储备，为因俄罗斯入侵乌克兰而急升的油价降温。
+通过北约提供的军事援助将包括导弹和弹药。莫里森说，他不会提供进一步的细节，”因为我不打算给俄罗斯政府提个醒，让他们知道会有什么。
 
-但此举似乎给油价带来了相反的影响，消息公布后，布兰特原油期货升至每桶近107美元，为2014年以来最高，因西方制裁而避免购买俄罗斯石油，减少了供应。
+当被问及俄罗斯的20国集团成员资格时，莫里森表示将支持把俄罗斯赶出20国集团（G20）。
 
-美国能源部在IEA31个成员国的特别部长级会议后告诉记者，在这6,000万桶油储中，一半将来自美国。IEA主要代表工业化国家。
+将俄罗斯从G20中驱逐出去需要在主席国的指导下达成共识，今年的主席国是印度尼西亚。中共国也是20国集团的成员，估计会反对将俄罗斯驱逐出去。
 
-著名在线交易平台OANDA高级市场分析师表示，“释放油储值得关注，但正如我们在去年11月看到的那样，这个根本不被视为一种能改变游戏规则的方式。”
+乌克兰已经敦促其他国家的人加入其对抗入侵的俄罗斯人的斗争。”乌克兰总统泽连斯基(Volodymyr Zelenskyy)说：”任何想加入乌克兰、欧洲和世界防务的人都可以来，与乌克兰人并肩作战，对抗俄罗斯战犯“。
 
-IEA署长比罗尔表示，“全球能源安全正受到威胁，使世界经济在复苏的脆弱阶段面临风险，”他在一份声明中补充道，声明称成员国将考虑根据需要进一步释放储备。
+但莫里森警告，不要认为去打仗是一种合法行为。从澳大利亚去为乌克兰作战，这可能是非法的，也是自杀性的。
 
-日本经济产业大臣萩生田光一表示，各成员国在此轮释放中的具体占比将在未来几天确定，且一些成员国同意向乌克兰提供石化产品。
+根据澳大利亚法律，除了在另一个国家的官方部队中作战外，非正式民兵到该国作战是不合法的。
 
-美国能源部长格兰霍姆主持了此次IEA会议，该组织过去曾协调过三次紧急石油储备释放。
+新闻来源链接：[https://theconversation.com/morrison-would-favour-expelling-russia-from-g20-as-australia-provides-105-million-for-ukraine-assistance-178165](https://theconversation.com/morrison-would-favour-expelling-russia-from-g20-as-australia-provides-105-million-for-ukraine-assistance-178165)
 
-IEA成立于1974年，总部位于巴黎，是一个能源监督机构，其主要职责之一是帮助“协调针对石油供应重大干扰的集体反应”。
-
-去年11月，美国宣布从战略石油储备(SPR)中释放5,000万桶石油，这一举措是与中国、印度和日本等石油消费国协调后采取的。
-
-世界第二大消费国和最大进口国中国从未正式承诺释放石油储备，而是一直在购买更多石油，增加储备。
-
-参考链接：[焦点：IEA成员国同意释出6,000万桶石油储备](https://cn.reuters.com/article/iea-members-oil-reserve-0302-idCNKBS2KZ06I)
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+本文作者：Rebecca (一切心皆不可得！)
+上传排版：Hong
 
  
 

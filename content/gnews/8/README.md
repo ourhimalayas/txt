@@ -2,35 +2,34 @@
 ---
 
 
-## 41万人从乌克兰蜂拥撤离到波兰
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2093137/)
+## 埃隆-马斯克通过星链为乌克兰建立紧急互联网
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2093163/)
 
-**撰稿：文舞两道**
+**整个世界建立一个卫星互联网。乌克兰现在正在联网，以便与俄罗斯脱钩。**
 
-据波兰内务部消息称，自2月24日俄罗斯军事入侵乌克兰以来，截至3月1日下午3:00，已有约41万人从乌克兰逃往邻国波兰。
+作者：ctu
 
-由于乌克兰防御态势的加强，18~60岁的男性被限制离境，因此撤离到波兰的大多数民众为带着孩子的女性和老人。
-![](https://www3.nhk.or.jp/news/html/20220302/K10013508981_2203020634_2203020635_01_03.jpg)图片来源：[NHK新闻](https://www3.nhk.or.jp/news/html/20220302/k10013508981000.html)
-3月1日上午，从乌克兰来的火车抵达靠近边境的普热梅希尔市车站，很多乘客显得非常疲惫，原因是从逃难开始他们花了好几天时间才到达这里。一名带着女儿从首都基辅撤离了几天才到达这里的女性（35岁）说：“很高兴能够安全到达这里，我的女儿已经7岁了，我真的很想逃离。”
+翻译：Luckycky/校对:  幺蛾子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image1.tif)图片：Schutterstock
+如果乌克兰的互联网崩溃，那里的用户现在显然可以依靠来自埃隆-马斯克的独家技术：来自基辅的工程师Oleg Kutov说，他已经在家里成功测试了马斯克公司SpaceX星链（Starlink）的卫星互联网。
 
-“撤离过程中，空袭警报响起，情况非常危险，我们没有水，只能和孩子一起逃往避难所。 2022年是不应该发生这种事情的”一位撤离者流着泪说。
+马斯克希望到明年年中，他的星链卫星互联网服务能有大约50万用户。随着不断发射，马斯克的太空公司SpaceX预计在8月之前能够从太空向世界大部分地区提供互联网。
 
-在车站附近的商业设施中设立了避难者支援中心，人们带着疲惫的表情在这里休息。许多波兰志愿者赶到支援中心，在停车场搭起帐篷，为孩子们提供食物、药品、冬衣和尿布。此外，越来越多的志愿者将自家汽车停到边境口岸公共汽车站，并写上要去的城市，以帮助撤离者到达他们的目的地。
+Kutov在脸书上写道：“SpaceX的星链在乌克兰的基辅正常运行！接收器就放在我的窗外，即使不做调整，在发动机关闭的情况下也是如此”。Kutov说，最高传输速度有时会达到每秒200兆比特。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image2.jpeg)开通了!
+SpaceX的 “星链 “在乌克兰的基辅开始运行! 
+Dishy（接收器）就放在我的窗外，即使没有调整，在电机断开的情况下……
+显示更多（[Mehr anzeigen](https://www.facebook.com/olegkutkov.me/posts/pfbid02tcniXCMb7mCbpAu9Ng448PoLXtYYJaBhSySTrP2YgviTfjkkK19U3DMwACTs38sgl)）
+SpaceX创始人埃隆-马斯克此前为正受俄罗斯攻击的乌克兰开通了他的星链卫星互联网服务。现在，据媒体报道，这位科技亿万富翁也向乌克兰发送了相应的终端。 乌克兰（原文：匈牙利）数字化部长Mykhailo Fedorov通过Twitter确认收到了这些设备。同时，Kutov在其帖子下的评论中报告说，他拥有这种设备很长时间而一直无法使用，因为乌克兰还没有授权开通星链星互联网服务。
 
-一名34岁妇女带着她5岁和9岁孩子逃离乌克兰南部城市赫尔松，在1日抵达了波兰东南部的一个流离失所者援助中心，她说：“感谢志愿者们的热情欢迎。这里没有战争和枪炮，孩子们可以放心地呆在这里。”
+当这位来自基辅的工程师听说可以使用时，他就决定测试该设备。起初并不奏效，为此他联系了SpaceX。在问题得到了解决后，Kotev就启用了星链卫星互联网服务。到目前为止，尚无法独立验证卫星互联网服务是否真正能正常运行。
 
-还有一位在边境送别丈夫后回到乌克兰的妇女，她说，我丈夫已经60多岁了，他不在18~60岁受离境限制的男性之列。前一天他和家人撤离去了波兰，现在他要回到乌克兰去帮助他的国家。
+原文链接：[https://www.berliner-zeitung.de/welt-nationen/elon-musk-errichtet-fuer-ukraine-not-internet-via-starlink-li.214562](https://www.berliner-zeitung.de/welt-nationen/elon-musk-errichtet-fuer-ukraine-not-internet-via-starlink-li.214562)
 
-**信息来源：
-**[NHK：ウクライナからポーランドへの避難41万人 国境には大勢の人々](https://www3.nhk.or.jp/news/html/20220302/k10013508981000.html)
+发布：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
 
-**编辑：卢卡斯**
 
-**发布：MQ**
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

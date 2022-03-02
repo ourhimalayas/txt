@@ -2,24 +2,17 @@
 ---
 
 
-## 美国访台代表团会见蔡英文总统
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2093110/)
+## 俄乌战争｜美国追加制裁 禁止俄国飞机进入美国领空
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2093138/)
 
-撰稿：东京樱花团/百花李香
+**撰文/ 港台前線｜發佈日期/ 02/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-8.png)更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
+继欧盟和加拿大宣布将对俄罗斯航空公司和俄罗斯富人的私人飞机关闭领空后，美国也跟进此制裁措施。美国总统拜登于周二晚间的国情咨文中，宣布美国将禁止俄罗斯飞机进入美国领空。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/美国访台代表团会见蔡英文总统.jpg)[图片来源](https://gnews.org/wp-admin/post-new.php#:~:text=China%20repeats%20threat%20to%20sanction%20US%20companies%20over%20Taiwan%20arms%20sales)
+此外，据《彭博社》报导，拜登总统在国情咨文中称俄罗斯总统普京为“独裁者”并誓言支持乌克兰。
 
-俄罗斯入侵乌克兰之后，以及中共国加强对台湾的 “信息战 “之际，由前美国军方高层和跨党派人员组成的访台代表团于2日在台北的总统府会见了蔡英文总统，并表示坚定不移地支持台湾。
+來源｜[Bloomberg](https://www.bloomberg.com/news/articles/2022-03-02/five-takeaways-from-biden-s-state-of-the-union-speech)、[YAHOO](https://news.yahoo.com/biden-banning-all-russian-aircraft-from-entering-us-airspace-in-retaliation-for-invasion-of-ukraine-023444915.html)
 
-该代表团由美国前参谋长联席会议主席威廉-马伦率领，包括五名高级军事官员和负责国家安全的政府官员。马伦表示，台湾海峡的稳定不仅符合美国的利益，也符合世界的利益。通过这次访问，我们不仅要向台湾，同时也向其它盟国表明，美国正在参与印度-太平洋地区的事务。
-
-对此，蔡英文表示，感谢美国拜登政府对台湾的支持，从乌克兰问题来看，民主阵营的合作对地区稳定是十分必要的。
-
-信息源**：**[訪台の米軍元高官、蔡総統と会談　対中国、「米国の関与を示したい」](text=)
-
-*编辑：东京樱花团/逢⑦必变
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
