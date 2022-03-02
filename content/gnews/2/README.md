@@ -2,42 +2,10 @@
 ---
 
 
-## 寒夜明志
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2096183/)
+## 3/2/2022 文贵直播：新中国联邦的营救不分种族和国家，不要你一分钱，不图你任何利益和回报，只为拯救在战区所有需要救助的生命
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2096332/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/030206.jpg)
-作者：紫苏公子
-
-秦朝鹿马今朝现，
-
-暗夜千年此夜寒。
-
-虎豹豺狼高处踞，
-
-蛆蛙蚺蟒井中盘。
-
-毒魁巨骗金章戴，
-
-义士仁人铁链拴。
-
-共产商鞅合帝制，
-
-除魔灭党迎新天。
-
-*校对/审核：仙女儿-文善*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+秘密翻译组-北美组
 
  
 

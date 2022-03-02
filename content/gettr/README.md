@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/2/2022 10:08 PM (UTC)`
+
+03/02/2022 Miles Guo: The fellow fighters of the New Federal State of China are flying to Poland and other Eastern European countries to set up rescue bases;  the rescue led by the New Federal State of China does not distinguish between races and nations, we neither ask for money or seek any profit, nor expect any returns, the only goal is to save all the lives in need in the war zone.<br/><br/>3/2/2022 文贵直播：新中国联邦人正在飞往波兰等东欧国家，将在那里建立营救基地；新中国联邦的营救不分种族和国家，不要你一分钱，不图你任何利益和回报，只为拯救在战区所有需要救助的生命。<br/>
+![img](https://media.gettr.com/group33/getter/2022/03/02/22/cfd469ad-2cf1-7462-7c38-4ec741e0c6ee/out.jpg)
+
+---
+
+`@miles 3/2/2022 10:00 PM (UTC)`
+
+3/2/2022 Miles Guo: The Chinese people in Ukraine can enjoy free flights, and complimentary food and accommodation for 30 days arranged by the New Federal State of China without having to provide any personal information. We will arrange as many flights as they need. Can the CCP save the Chinese people this way? Only the New Federal State of China can save our fellow Chinese people like this!<br/><br/>3/2/2022 文贵直播：在乌克兰的华人无须提供任何个人信息即可享受新中国联邦安排的免费机票和30天食宿，需要多少飞机就安排多少；中共能这样救人吗？只有新中国联邦才能这样救自己的同胞<br/>
+![img](https://media.gettr.com/group33/getter/2022/03/02/22/fb74cb5f-bc09-c7af-3646-530b8d599991/out.jpg)
+
+---
+
 `@miles 3/2/2022 9:54 PM (UTC)`
 
 3/2/2022 Miles Guo: The New Federal State of China on Emergency Rescue of Ukraine has just accomplished the first mission. We successfully rescued four of our fellow fighters along with three families, and they arrived in Poland safely.<br/><br/>3/2/2022 文贵直播：新中国联邦乌克兰救援行动首战告捷，100%成功搭救战友，四位战友及三个家庭已顺利到达波兰。<br/>
@@ -138,20 +152,6 @@
 
 2月28号：尊敬的战友们好！俄乌战争正在走向不确定的危险之中。共产党正在蠢蠢欲动。侵占台湾……新中国联邦人的乌克兰人道救援大行动震撼了世界。此时此刻，我们的战友们更要坚持住我们唯真不破．维护建立新中国人的形象的原则，一切都已经开始！
 ![img](https://media.gettr.com/group46/getter/2022/02/28/14/bf2a89ee-2884-f72b-7a9d-3e827bc58f15/out.jpg)
-
----
-
-`@miles 2/28/2022 6:00 AM (UTC)`
-
-2/27/2022 Miles Guo: On the issue of war in the Taiwan Strait, if the U.S. wants to maintain the current international order, it must take bold actions. If the U.S. intends to re-establish the world order, then all of humanity will have to pay a huge price. The U.S. must make a choice!<br/><br/>2/27/2022 文贵直播: 在台海战争问题上，若美国要维持国际秩序就必须大胆动手；若美国意在重建世界秩序，则全世界人类要付出巨大代价！重整亦或维持国际秩序，这是美国必须要做出的选择。<br/>
-![img](https://media.gettr.com/group31/getter/2022/02/28/06/2225ecc4-8b4f-6478-0bfe-d90ce90d3a18/out.jpg)
-
----
-
-`@miles 2/28/2022 5:51 AM (UTC)`
-
-2/27/2022 Miles Guo: it is possible that the outcome of the war between Russia and Ukraine will be a reconciliation between the two countries, but if Russia does launches nuclear weapons, the war will have a ridiculous outcome. Whatever the outcome, Russia will have no future at least for a short time<br/><br/>2/27/2022文贵直播: 俄乌之战的结果可能会是两国达成和解，但若俄罗斯真的放了核武器，战争会出现滑稽的结果！无论最终是哪种结果，俄罗斯至少短时间内都已没有未来可言！<br/>
-![img](https://media.gettr.com/group31/getter/2022/02/28/05/c27103a9-f490-c060-c4f0-ca649de6f887/out.jpg)
 
 ---
 

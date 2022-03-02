@@ -2,31 +2,39 @@
 ---
 
 
-## 这就是新中国联邦的力量
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2096067/)
+## 乌克兰卫国战争再现“坦克人”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2096100/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2022/03/77apzgj-874k8-2.jpg)6·4天安门“坦克人”（图片来源：网络）
+“坦克人”不是一款游戏，不是坦克机器人，也不是开坦克的人（比如动画片《舒克和贝塔》中驾驶坦克的小老鼠）。“坦克人”是：以肉体之身阻止坦克前进的英雄。
 
-2022-02-27直播摘录
+中国人第一次认识“坦克人”是在1989年的64事件。一名外媒记者拍下了实时画面：一位身穿白衬衫，黑长裤的中国男性挡在了一辆绿色八一坦克前面。此时，中共高层已经决定动用武力镇压来自民众的示威，用实弹射击民众，用坦克碾压民众。面对庞然大物的战争机器，这位”坦克人”勇敢的冲上去阻挡。同时期，前立陶宛人也出现了”坦克人”，以肉身抵挡苏联坦克车。而这些“坦克人”都有个共性：普通民众用自己的血肉之躯，对抗来自于暴政或侵略者的武力。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/cfj.png)立陶宛“坦克人”（图片来源：https://gnews.org/zh-hans/1801027/）
+而今天，俄罗斯入侵乌克兰的战争中，再次出现了“坦克人”壮举。在社交媒体上，多位乌克兰”坦克人”阻挡俄罗斯坦克和装甲车前进的视频被广泛传播。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/123xcf.png)（图片来源：https://gettr.com/post/px0w369279）
+（图片来源：https://gettr.com/post/px0y5wa807 ）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9ikbhyk1.jpg)
+为什么会有人做出这样的“傻事”？
 
-美国所有的军事飞机和军事机密商用它有几个前提条件：它必须是在联合国的框架组织下你租用，而且使用者你的身份是最重要的。Karen你再有钱你也不能去租飞机，说我去干嘛去，我要干点什么其他事去，我约我男朋友去。那是对美国、美军是个耻辱，怎么可能啊？谁租给你飞机他下台了，是不是？你不具备这些条件，你的钱不是钱，你的钱是纸。这就是大家兄弟要明白的，这就是新中国联邦的力量。如果你没有国际化的组织概念、没有国际化的法律概念和国际的政治概念、国际的关系概念，没有地域政治和地域宗教的概念，你没有经历过战争和战争中的概念，你不懂得这些，你一样都不可能。这就像直播一样。
+我们没有见过被坦克碾压过的人，但是我看过被碾压的汽车。无论怎么吹嘘自身结构多么安全的汽车，在坦克面前都不堪一压，瞬间被压成车饼。我们可以想象如果一个人被坦克碾压，后果会是怎样！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/vfn.jpg)（图片来源：网络）
+坦克号称陆战之王，是爱国者保卫国家的利器。但是如果被用到屠杀人民和侵略它国，坦克就是恃强凌弱的象征。用肉体阻挡坦克是一种无奈之举。”坦克人”深知，如果不阻挡坦克的前进，他的家人、同胞、朋友都会受到伤害。前进的中共坦克是为了屠杀中国同胞，而俄罗斯坦克是为了入侵乌克兰。“坦克人”没有国籍、肤色和信仰之分，只有正义与邪恶之分。“坦克人”是用忘我的勇敢行为，来告诉全世界发生在乌克兰战场上的真相。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+“坦克人”不是傻，而是勇敢无畏和崇尚正义。乌克兰”坦克人”站在俄罗斯坦克面前，是为了阻止杀戮！阻止自己的同胞被杀，也阻止俄罗斯的坦克葬身于火海。相比于调侃战争和歌颂战争的狂热战争分子，这些勇敢的乌克兰”坦克人”让人肃然起敬。
 
-**关注我们**
+没有战争，就不会有“坦克人”。只要还有战争，还会出现类似的“汽车人”、“飞机人”、“大炮人”。为了世界和平，必须制止操纵和发起战争的行为，坚决阻止战争的发生。如今，乌克兰发生的一切，不是一场游戏，不是一场军事演习。战争很残酷，请珍惜和平，更不能为战争叫好。
 
-Discord 账号
+为“坦克人”祈福，为乌克兰和俄罗斯双方因战争死去的人们默哀！愿和平尽快回归乌克兰！
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+***【文章观点仅代表作者个人，与Gnews平台无关】***
 
-Gettr 账号
+作者：洛杉矶盘古农场-文如
+编辑：洛杉矶盘古农场-柯镇恶
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
