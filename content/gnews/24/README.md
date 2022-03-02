@@ -2,42 +2,30 @@
 ---
 
 
-## 澳洲推荐把Novavax新冠疫苗作为加强针使用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2092408/)
+## 国际法院即将审理乌克兰战争种族灭绝罪
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2092377/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-1.jpg)国际法院即将审理乌克兰战争种族灭绝罪 网络图片
+据台湾中央广播电台3月2日报道，在俄罗斯采取军事行动后，乌克兰已经向国际法院控告俄罗斯犯下“种族灭绝罪”，要求俄罗斯立即停止入侵。联合国海牙国际法院将在3月7日至8日，就乌克兰战争的种族灭绝举行听证会，专门讨论乌克兰提出的请求。
 
-#### 翻译/编辑：小红帽
+乌克兰人口约4,400万。联合国难民署表示，已经有超过66万乌克兰人逃往国外，估计另有100万人在境内流离失所。未来几个月可能会有多达400万难民需要帮助，乌克兰国内则将有1,200万难民等待救援。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Novavax.jpg)
+海牙国际法院无权对入侵行动的幕后元凶、俄罗斯领导人提出刑事指控。但它是解决国家之间涉嫌违反国际法的法律投诉世界最高法院。俄罗斯无视国际禁令、抵制和制裁，继续对乌克兰发动攻势，宣称其目的是捍卫乌克兰的俄语人口，以及推翻乌克兰的领导层。俄罗斯和中共国这样的国家和领导人都有一种共产主义者天然的傲慢和邪恶。乌克兰和台湾都是独立的主权国家，其他国家没有权利插手。悍然发动战争，除了给参战国带来士兵和平民的生命和财产损失，不能解决任何问题。
 
-图片来源：路透社
+新闻参考链接：[https://www.rti.org.tw/news/view/id/2125983](https://www.rti.org.tw/news/view/id/2125983)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-根据天空新闻网3月2日报道，本周，澳大利亚免疫技术咨询小组（ATAGI）建议将Novavax新冠疫苗作为加强针使用。该建议适用于不适合接种mRNA新冠疫苗的18岁以上的澳大利亚人。
+编辑：【英国伦敦喜庄园编辑部】
 
-当局称，18岁以上的澳大利亚人可以选择辉瑞和莫德纳新冠疫苗作为他们的加强针。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-阿斯利康新冠疫苗只在有mRNA新冠疫苗医疗禁忌症的情况下，才作为加强针。
 
-卫生部长格雷格-亨特（Greg Hunt）在一份声明中表示：“治疗用品管理局目前正在考虑申请，将Novavax 新冠疫苗作为辉瑞或莫德纳 mRNA疫苗或阿斯利康疫苗两剂疗程后的加强针。Novavax 新冠疫苗将给全部人群使用。
-
-Novavax是第一个由治疗用品管理局临时批准的，基于蛋白质的新冠疫苗。
-
-至今，澳大利亚已经获得5100万剂量的Novavax新冠疫苗。
-
-超过1160万澳大利亚人已经接受了加强针接种，大约94.5%的人已经完成了初级接种计划。
-
-参考链接：[Novavax vaccine recommended for use as a COVID-19 booster by ATAGI for Australians aged over 18 where mRNA jab is not suitable](https://www.skynews.com.au/world-news/novavax-vaccine-recommended-for-use-as-a-covid19-booster-by-atagi-for-australians-aged-over-18-where-mrna-jab-is-not-suitable/news-story/4feeac1c71c79a333eb25f35e3458b91)
-
-*发布：wenly*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

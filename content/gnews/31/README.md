@@ -2,28 +2,83 @@
 ---
 
 
-## 美国跨党派参访团，支持捍卫43年台湾关系法
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2091898/)
+## 也许是时候世界支持台湾合法政府的独立了
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2091836/)
 
-美国总统拜登指派由前参谋首长联席会议主席穆伦率领的跨党派访问团昨抵台，特使团今日上午先后晋见蔡英文总统与副总统赖清德。面对乌克兰情势，蔡总统说，对侵略行为冷眼姑息，就是为自己制造更多威胁。乌克兰经验告诉我们民主国家相互合作与积极作为，是至为关键。穆伦则表示，美国反对片面改变现状行为，透过访台向区域伙伴传达美国坚定维持承诺。
+参议员马可.卢比奥： 由于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click) 支持承认俄罗斯在 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 的傀儡的独立，也许是时候世界支持 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) 合法政府的独立了
 
-这是拜登第二度派遣特使团访台，去年4月拜登派好友前参议员托德率团访台。这次访团由穆伦率领，成员有前国防部政策次长傅洛依、前白宫副国安顾问欧苏莉文、前白宫国安会亚洲事务资深主任葛林及麦艾文。
 
-蔡英文首先致词表示，在全球密切关注乌克兰情势此刻，拜登政府指派跨党派资深访团来台，说明对台美伙伴关系的重视，并凸显台湾在区域与国际社会角色，而国际民主社群必须更加团结。
 
-她接着说，俄罗斯入侵乌克兰严重破坏国际和平与秩序，对于侵略行为，台湾作为国际社会一员，除了严厉谴责，也参与制裁俄罗斯行动，对乌克兰人道救援也已经启动。这坚定表达台湾与乌克兰站在一起，与自由民主站在一起，只要有助于国际社会和平安全与区域稳定繁荣，台湾愿意善尽国际责任与所有国家一起投注努力。
+> Since [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) supports recognizing the independence of Russian puppets in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) maybe its time the world supports the independence of the legitimate government of [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Marco Rubio (@marcorubio) [March 2, 2022](https://twitter.com/marcorubio/status/1498825760924176391?ref_src=twsrc%5Etfw)
 
-蔡总统说，历史经验告诉我们，对侵略行为冷眼姑息，就是为自己制造更多威胁。这是全球民主国家团结的时刻，台湾也不能缺席。尤其乌克兰人民捍卫自由民主信念与保护自己国家的决心，让身处民主国家的台湾感同身受，当前中国对台海与区域军事威胁持续升高，**无论打压台湾国际空间，进行认知作战并操作错假讯息分化台湾社会与侵蚀民主，这些动作没有一天停止，而台湾人民没有因此放弃坚持。**我们愿意投入更多努力让台湾成为更具韧性的民主之岛。
 
-总统强调，我们要告诉全世界，台湾有坚定自我防卫决心，也会守护民主生活方式，而区域稳定安全从来不是单一国家课题，乌克兰经验告诉我们民主国家相互合作与积极作为，是至为关键。面对台海与区域安全威胁，除期待与美国与区域各方能有更多紧密合作，共同压制各种型态可能冲击安全单边行为，以维持区域和平稳定。也**感谢拜登政府以实际行动依据台湾关系法以及六项保证履行对台湾安全承诺，而拜登政府公布印太战略指台湾是重要伙伴**，而台湾不只是重要伙伴，更是最值得信任的伙伴，拥有更多支持的台湾将会更具贡献，她期待台美伙伴关系更加紧密，为印太区域与全世界和平稳定做出更多贡献。
 
-接着致词的穆伦说，在蔡总统有力领导下，不仅在台湾，区域和平的重要性更胜以往。他率领代表团是表达对美台伙伴关系的支持，在此关键时刻访台，如同拜登总统指民主面临艰难挑战，乌克兰即是，此刻更需要捍卫民主。他并肯定能访问世界上最具民主活力的地方之一，台湾无论对疫情与假讯息的挑战，在因应之余都能兼顾民主价值。
+参议员玛莎·布莱克本： 在对乌克兰采取了令人发指的行动后，俄罗斯不配获得联合国安理会的席位。
 
-**穆伦还说，这次访团反映美国跨党派对台的强健支持，这并符合美国与全球利益，也说明美国继续反对片面改变现状行为，并持续支持符合台湾人民意愿与最佳方式和平解决两岸议题，透过访问也向区域伙伴传达美国坚定维持承诺。他并提到****4****月是台湾关系法签署****43****周年，拜登当年在议员任内投下赞成票，美台关系将比以往更能强健合作。**
 
-**[接见拜登特使团 总统︰台湾有坚定防卫决心 期待与美更紧密合作](https://news.ltn.com.tw/news/politics/breakingnews/3845642)**
 
-审核:Athena雅典娜 发布:Amitofu
+> Russia does not deserve a seat on the UN Security Council after its egregious actions toward Ukraine. [pic.twitter.com/qz24oQcHMK](https://t.co/qz24oQcHMK)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 2, 2022](https://twitter.com/MarshaBlackburn/status/1498829680509693954?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎.布莱克本： 联合国必须剥夺俄罗斯在安理会的否决权。
+
+
+
+> The UN must strip Russia of its ability to veto in the security council.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 1, 2022](https://twitter.com/MarshaBlackburn/status/1498787977719431172?ref_src=twsrc%5Etfw)
+
+
+
+拜登总统： 普京总统认为他可以顺利挺进乌克兰——世界将会接受。 相反，他遇到了他从未想到过的强力阻击。 他遇到了(强大的)乌克兰人民。
+
+
+
+> President Putin thought he could roll into Ukraine — and the world would roll over.
+>  
+> Instead, he met a wall of strength he never imagined.
+>  
+> He met the Ukrainian people.
+> — President Biden (@POTUS) [March 2, 2022](https://twitter.com/POTUS/status/1498843134721150979?ref_src=twsrc%5Etfw)
+
+
+
+拜登总统： 美国司法部正在组建一个专门的工作组来追查俄罗斯寡头的罪行。 我们正与我们的欧洲盟友一起寻找并没收他们的游艇、豪华公寓和私人飞机。 我们不会放过他们的不义之财。
+
+
+
+> The U.S. Department of Justice is assembling a dedicated task force to go after the crimes of Russian oligarchs.
+>  
+> We are joining with our European allies to find and seize their yachts, their luxury apartments, their private jets. 
+>  
+> We are coming for their ill-begotten gains.
+> — President Biden (@POTUS) [March 2, 2022](https://twitter.com/POTUS/status/1498844556300886022?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨: 拜登今晚没有提到要让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对传播导致大流行的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 负责。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 放出致命病毒，是邪恶的，必须承担责任，否则北京将制造更多致命的瘟疫。
+
+
+
+> Biden tonight made no mention of holding Communst China accountable for spreading the virus that caused the pandemic. The CCP unleashed the deadly virus, is evil, and must be held responsible or Beijing will create even more deadly plagues
+> — Bill Gertz (@BillGertz) [March 2, 2022](https://twitter.com/BillGertz/status/1498854110472278016?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 同意劳拉·英格拉汉姆[@IngrahamAngle](https://twitter.com/IngrahamAngle) – 拜登必须制裁 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 支持俄罗斯入侵乌克兰的行径。 俄罗斯、[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)、伊朗和北朝鲜是新的邪恶轴心国。 必须阻止他们。
+
+
+
+> Agree with [@IngrahamAngle](https://twitter.com/IngrahamAngle?ref_src=twsrc%5Etfw) – Biden must sanction Communist China for bolstering Russia’s invasion of Ukraine.
+>  
+> Russia, China, Iran and North Korea are the new axis of evil.
+>  
+> They must be stopped. [https://t.co/dmx0r74mcE](https://t.co/dmx0r74mcE)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 2, 2022](https://twitter.com/MarshaBlackburn/status/1498835382389125120?ref_src=twsrc%5Etfw)
+
+
 
  
 
