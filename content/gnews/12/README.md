@@ -2,26 +2,49 @@
 ---
 
 
-## 《历史的今天》 2022.03.02
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2096339/)
+## 有声|乌克兰总统泽连斯基就职演说全文
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2096674/)
 
-作者：虎子哥
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片来源-2.jpg)[图片来源](https://www.google.com.sg)
-1. 1901年：美国国会通过普拉特修正案，把古巴变成美国的保护国。
-2. 1943年：第二次世界大战：澳洲和美国空军在俾斯麦海针对日本海军的运输船队展开轰炸，造成至少3,000人死亡。
-3. 1946年：胡志明被选为北越国家主席。
-4. 1946年：第一次中东战争：外约旦与以色列签订停战协定。
-5. 1956年：摩洛哥王国独立。
-6. 1962年：缅甸军事将领吴奈温发动政变夺取政权，成为缅甸最高领导人。
-7. 1962年：NBA球星威尔特•张伯伦对战尼克的比赛中拿下100分，为历史纪录。
-8. 1969年：中共国和苏联的边防部队因为乌苏里江珍宝岛的归属问题在岛上发生武装冲突。
-9. 1970年：津巴布韦脱离英国殖民统治，宣布成立津巴布韦共和国。
-10. 1995年：全球互联网服务公司Yahoo!成立。
+配音：MOS 媒体部 – Gtv abeilles
 
 
-* * *
 
-*发布：Theodosia*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/logo-s2.png)
+
+
+
+![](https://gnews.org/a1588711-b252-416b-94e5-f719a0066b0c)
+
+
+
+乌克兰总统泽连斯基就职演说全文：乌克兰人选我当总统是因厌倦了政客 “亲爱的人民，在我的一生中，我一直努力让乌克兰人笑起来。我由衷感到，这不仅仅是我的工作，也是我的使命。在接下来的五年里，我会尽我所能让乌克兰人不再哭泣。谢谢。“
+
+**文字版原文：[乌克兰总统泽连斯基就职演说全文：乌克兰人选我当总统是因厌倦了政客 – GNEWS](https://gnews.org/zh-hans/2090816/)**
+
+音频处理：小鹿
+发稿：小鹿
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![](https://gnews.org/a1588711-b252-416b-94e5-f719a0066b0c)
+
+
+
+
 
  
 

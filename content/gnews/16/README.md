@@ -2,40 +2,29 @@
 ---
 
 
-## 小男孩泪流满面地描述逃离乌克兰,因为他父亲留下来保护国家
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2096279/)
+## 欧洲议会建议给予乌克兰欧盟候选国地位
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2096627/)
 
-[https://gtv.org/video/id=621f4a1b4353d33974c4aea0](https://gtv.org/video/id=621f4a1b4353d33974c4aea0)
+翻译：sherryok（水云间）
 
-We left dad in Kyiv
-我们把爸爸留在了基辅
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3031.jpg)
 
-And dad will be selling things and helping our heroes, our army
-爸爸会卖些东西，帮助我们的英雄，我们的军队
+欧洲议会支持给予乌克兰欧盟候选人地位的决议。据乌克兰独立新闻社（UNIAN）[报道。](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.unian.net/politics/evroparlament-podderzhal-rezolyuciyu-o-predostavlenii-ukraine-statusa-strany-kandidata-na-vstuplenie-v-es-novosti-ukraina-11724439.html)
 
-he might even fight
-他甚至可能会去战斗
+欧洲议会主席罗伯塔·梅佐拉宣布了相应决议的投票结果。其中，637 名议员投了赞成票，13 人投了反对票，26 人弃权。
 
-**原视频链接**[**: **https://twitter.com/foxnews/status/1498145939432767491?s=24](https://twitter.com/foxnews/status/1498145939432767491?s=24)
+“该决议将提交给有权做出相关决定的欧盟机构和所有成员国。该文件本质上是咨询性的，因此欧洲议会支持授予乌克兰成为欧盟成员候选人的地位这一事实并不表明这一定会发生，” 声明说。
 
-Date:03/01/2022
-原视频标题:‘WE LEFT DAD IN KYIV’: Little boy tearfully describes fleeing Ukraine as his father stays behind to protect country
-“我们把爸爸留在了基辅”：小男孩泪流满面地描述逃离乌克兰，因为他的父亲留下来保护国家
-原视频日期：2022/02/28
-原视频链接https://twitter.com/foxnews/status/1498145939432767491?s=24
-任务编号：KE431（3888）
-视频时间段 : 0:00-0:30
+今天是乌克兰战争的第七天。2022 年 2 月 24 日，俄罗斯总统弗拉基米尔·普京宣布开始一项特别军事行动。这被乌克兰和西方视为全面入侵。2月25日，俄罗斯开始实施严厉的经济制裁。两国军人和平民的伤亡人数都在增加。逃往欧洲的乌克兰难民人数正在增加。反对俄罗斯行动的抗议活动正在世界许多国家发生。
 
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+到2月27日晚，几乎所有欧洲国家都对俄罗斯航空公司关闭了领空。北约国家和美国不仅增加了对乌克兰的财政援助，还开始提供武器。对俄罗斯实施了严厉的制裁。一揽子制裁措施每天都在增加。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+2月28日，敌对双方行动仍在继续。在此背景下，俄罗斯与乌克兰举行了第一轮[会谈](https://24-kg.translate.goog/english/225708_Situation_in_Ukraine_Ukrainian_delegation_arrives_in_Belarus_for_talks/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)。细节没有报道。双方将与领导层协商并确定第二轮会谈的日期。
+
+新闻链接：[https://24.kg/english/225925\_European\_Parliament\_recommends\_giving\_Ukraine\_EU\_candidate\_status\_\_/](https://24.kg/english/225925_European_Parliament_recommends_giving_Ukraine_EU_candidate_status__/)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 
