@@ -2,20 +2,16 @@
 ---
 
 
-## 文贵大直播 3/2 原来是一个人的战争
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2094516/)
+## 中共的邪恶置全球华人于险境
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2094538/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/snapshot.jpg)图片来源 GTV
-3月2日文贵大直播惊爆俄乌战争骇人内幕。连美国总统都被震到：已经核实的俄罗斯在美国的资产规模达17万亿美元。
+文贵大直播20220302
 
-爆料革命发起人郭文贵先生告诉世人，这场战争无关正义，就是独裁者一个人的战争！人类财富的集中和垄断是所有平民百姓们无法想象的。俄罗斯每年GDP才1万亿，中共国每年GDP15万亿，藏在美国的又有多少？？？！！！
+撰稿：Poplar（盘古）Lakeman（文仁）（雅典娜）待命（文晓）（樱花）
 
-郭先生郑重告诉现场嘉宾和千万观众，这场侵略战争的所有参与者都是非法的。
-
-直播开始不到一个小时，现场嘉宾画面即被黑。
-
-【来源链接】https://gtv.org/broadcast/watch/621f6ab7019ef64da653b4ff
+美工：健身建心（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片9.png)
+*发布：Theodosia*
 
  
 

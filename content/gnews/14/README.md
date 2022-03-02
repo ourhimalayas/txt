@@ -2,31 +2,25 @@
 ---
 
 
-## 有声|俄罗斯3日亡乌计划破产并遭曝光
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2094755/)
+## 拜登呼吁国会尽快提交提高美国与中共国竞争力的法案
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2094911/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-台湾媒体2月27日报道，美国情报委员会主席、参议员卢比奥，揭露了普京妄图3日灭亡乌克兰政权的计划。
+#### 撰稿：彩虹 
 
-卢比奥发表的推文显示，普京计划在开战12小时取得制空权，36小时摧毁乌克兰的军事通讯，绕过主要都会区，切割乌克兰东部守军，在开战48小时内包围基辅，迫使乌克兰政府流亡，然后在72小时内扶植亲俄的傀儡政权。卢比奥还讽刺普京说，目前为止他的计划一项也没有完成。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-203.png)图片来源：卫报
+据《国会山报》3月1日报道，在周二的国情咨文中，拜登总统呼吁国会将一项旨在提高美国对中共国的竞争力的法案送到他的办公桌上。拜登认为，这项立法将有助于创造公平的竞争环境，“对新兴技术和美国制造业进行创纪录的投资”。
 
-乌克兰国防部长列兹尼科夫也发表推文称，72小时过去后，乌克兰依然坚强地站立着，并自信地与俄罗斯战斗。我们向世界表明了一定会击退俄国侵略军的决心。
+报道认为，该立法将加强美国国内供应链和科学研究，使美国在与中共国等国家的竞争中更具竞争力。
 
-文字版原文：[俄罗斯3日亡乌计划破产并遭曝光](https://gnews.org/zh-hans/2087209/)
+上个月，众议院通过了其版本的法案。参议院于2021年6月份也通过了自己的立法版本，其中有18名共和党人支持此版本。
 
-音频处理：Fei797
-发稿：Fei797
+根据程序，众议院和参议院必须调和他们相互竞争的版本，并达成一项至少有10名参议院共和党人投票支持的投票版本，因为该立法将需要（参议院）至少60票才能通过。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**新闻来源**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[Biden calls on Congress to pass China competition bill](https://thehill.com/homenews/administration/596444-biden-calls-on-congress-to-pass-china-competition-bill?rl=1)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

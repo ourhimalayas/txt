@@ -2,34 +2,30 @@
 ---
 
 
-## 基辅出现几十年来首次食品药品短缺
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2094684/)
+## 乌克兰诉俄罗斯，国际法院下周举行公开听证会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2094863/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 撰稿：彩虹       
 
-整理：围剿维尼熊
-编辑：木木木mmmmm
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-6.png)
-根据德国之声中文网3月2日报道，俄罗斯大规模进攻乌克兰，基辅的守军似乎已经成功地将俄罗斯的进攻者逼退到乌克兰首都郊外。而在城内，乌克兰军方正在追捕俄罗斯破坏者。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-202.png)图片来源：路透社
+据《国会山报》3月1日报道，周二，国际法院（International Court of Justice – ICJ）发表一份声明，称将于3月7日和3月8日举行“关于《防止及惩治危害种族罪公约》下的种族灭绝指控（乌克兰诉俄罗斯联邦）”的公开听证。
 
-对于平民百姓来说，现在已经到了为基本生存奋斗的阶段。令人担忧的是，这是几十年来基辅首次出现药品、面包和其他基本食品短缺。
+根据声明，3月7日将进行乌克兰的口头辩论，3月8日将进行俄罗斯联邦的辩论。诉讼程序将在海牙的和平宫（Peace Palace）进行。
 
-市政府表示，他们已向商店运送食品，但整座城市还是缺乏基本物资。在基辅市中心，当地人需要在超市前排队长达2小时。既没有面包，也没有新鲜水果和蔬菜。唯一还能买到的乳制品是那些保质期较长的产品。在许多超市里，只有蛋糕、糕点和烟草以及酒类产品可供选择。
+周日，乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelensky）宣布，乌克兰已经向国际法院提交了针对俄罗斯的诉讼。泽伦斯基在一条推文中写道：“俄罗斯必须对操纵种族灭绝的概念为侵略行为辩护负责。”
 
-大多数购物者对他们无法得到自己想要的东西表示理解，但也非常关心这个拥有300万人口的城市要如何继续获得杂货供应。
+在周六提交的诉讼申请中，乌克兰说俄罗斯“谎称在顿涅茨克人民共和国和卢甘斯克人民共和国发生了种族灭绝行为。”俄罗斯“宣布并实施了针对乌克兰的‘特别军事行动’，其明确目的是防止和惩罚没有事实依据的所谓种族灭绝行为。根据这一错误的指控，俄罗斯现在正在对乌克兰进行军事入侵，涉及严重和广泛地侵犯乌克兰人民的人权”。
 
-到目前为止，基辅的市政当局设法在很大程度上保持城市服务运作。
+文章说，国际法院是联合国的主要司法机构。人们依靠它来解决各国提交的国际法律争端。该机构由15名法官组成，他们由联合国大会（U.N. General Assembly）和安全理事会（Security Council）选举产生，任期9年。
 
-参考链接：[战争现场:俄大军逼近 基辅居民恐慌无助](https://www.dw.com/zh/%E6%88%B0%E7%88%AD%E7%8F%BE%E5%A0%B4%E4%BF%84%E5%A4%A7%E8%BB%8D%E9%80%BC%E8%BF%91-%E5%9F%BA%E8%BC%94%E5%B1%85%E6%B0%91%E6%81%90%E6%85%8C%E7%84%A1%E5%8A%A9/a-60977234)
+另据《新闻极限》的报道，乌克兰要求法官下令采取“临时措施”来保护乌克兰。报道说，联合国最高法院审理的案件通常需要数年时间，但关于临时措施的听证会一般在提出申请后数周内举行。
 
-*发布：tianzhihuan*
+**新闻来源** [1](https://thehill.com/policy/international/596415-international-court-of-justice-will-hold-public-hearings-on-allegations?rl=1) [2](https://www.newsmax.com/newsfront/international-court-of-justice-hague-genocide/2022/03/01/id/1059154/)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+
 
  
 

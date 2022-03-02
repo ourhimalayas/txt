@@ -2,17 +2,38 @@
 ---
 
 
-## 西媒头条 — 第183期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2094787/)
+## 有声|中共将会采用第三套方案攻台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2094913/)
 
-**制作：蚂蚁兄弟**
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+在2月27日的大直播中，郭文贵先生表示，中共将会吸取俄罗斯的教训，使用第三套方案攻打台湾。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-11.jpg)
+郭先生说，如果没有美军或者其他联军参战，即使台湾的领导人拥有像乌克兰总统泽连斯基那样的政治智慧和勇气，以及全民共同抗击侵略者的决心，台湾最多能也只能抵抗中共20个小时的攻击。俄乌战争中，俄罗斯的表现让全世界跌破眼镜。在现代人工智能辅助的战争模式下，俄军却运用了传统的进攻战术，导致了惨重的失败。相反乌克兰却运用各种智慧策略和战略战术，成功地支撑到现在。然而，乌克兰将会遭受更加惨烈的打击，孤注一掷的普京政权有使用核武器的可能。
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+当前中共正在密切关注俄乌战争事态的发展，习近平一定会从俄罗斯的失败中吸取教训，而采用第三套方案攻打台湾——即不顾及人道、人权和百姓伤亡，用导弹、甚至用准核武器，在最短的时间内，把台湾的东半岛和台中地区，所有的军事设施和政府机构完全摧毁。而台湾的国军部队，也一定会对中共的大连、福建、上海、广东、江西的基地进行反击，甚至可能还会占有优势。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip西媒头条-1.png)
 
-***发稿：信心满满***
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
+
+文字版原文：[中共将会采用第三套方案攻台](https://gnews.org/zh-hans/2088365/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

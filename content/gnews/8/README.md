@@ -2,31 +2,40 @@
 ---
 
 
-## 有声|俄罗斯贸易因西方制裁受阻，正低价出售原油
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2094845/)
+## 有声|欧盟主席称望乌克兰成为成员国
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2094964/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据外媒2月28日报道，俄罗斯目前正在以超低折扣出售原油。目前来自盛产石油区乌拉尔山脉的原油，每桶价格已经低于布伦特原油期货11.6美元。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据路透社报道，欧盟首席执行官2月27日表示明确支持乌克兰成为欧盟的成员，称这个目前受到俄罗斯攻击的国家是 “我们中的一员”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-3.jpg)
+欧盟委员会主席冯德莱恩表示，欧盟有史以来首次决定向处于战争状态的国家提供武器，欧盟将向乌克兰运送 4.5 亿欧元，折合5.07 亿美元的武器，。
 
-据悉，这是俄罗斯近11年以来的最低折扣价格，然而市场上并未有买主买入。俄罗斯的原油爆跌引发了市场的连锁反应，新加坡、哈萨克斯坦、挪威等地的石油交易都受到波及。分析师称，欧洲炼油厂曾在开战前大量购入乌拉尔原油。
+欧盟还宣布乌克兰难民将在 3 年内在其成员国受到欢迎而无需申请庇护，并表示将对俄罗斯的入侵实施严厉制裁。
 
-美英日、欧盟等国家因俄罗斯对乌克兰的入侵相继对其进行了严厉的经济制裁，并且因战事的扩张，黑海的港口运输极有可能中断，因此石油交易员避免选择俄罗斯原油交易。分析师称目前买入俄罗斯原油的可能是亚洲买家。
+当地时间2月28日中午，乌克兰总统弗拉基米尔·泽连斯基，正式签署了加入欧盟的申请书。他希望欧盟启动特别程序允许乌克兰加入欧盟；并指出，乌克兰希望和欧洲人平等地站在一起，欧盟值得拥有乌克兰。
 
-文字版原文：[俄罗斯贸易因西方制裁受阻，正低价出售原油](https://gnews.org/zh-hans/2085962/)
 
-音频处理：Fei797
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+文字版原文：[欧盟主席称望乌克兰成为成员国](https://gnews.org/zh-hans/2088525/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
