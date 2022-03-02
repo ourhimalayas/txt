@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/2/2022 12:15 AM (UTC)`
+
+3/1/2022 Miles Guo’s GETTR: In a war, life always comes first. However, the CCP is launching a disinformation campaign to smear the New Federal State of China for collecting personal information in the name of rescuing the Chinese people in Ukraine. The Chinese have unfortunately turned out to be hated the most in the Russia-Ukraine war. The New Federal State of China will arrange flights taking off from the neighboring countries of Ukraine to the US, Chinese visa-free countries, or Southeast Asia respectively, please see the upcoming announcements for detailed information.<br/><br/>3/1/2022 文贵盖特：战争中生命第一，而中共却造假污蔑新中国联邦收集个人信息；俄乌战争中最被人恨的是中国人；新中国联邦会在乌克兰周围安排飞机分别飞往美国、中国免签国或东南亚，具体请见公告<br/>
+![img](https://media.gettr.com/group37/getter/2022/03/02/00/7c9cfc7f-0f13-8a02-22e4-6d75004935ec/out.jpg)
+
+---
+
 `@miles 3/1/2022 9:57 PM (UTC)`
 
 3/1/2022 Miles Guo’s GETTR: Although it is a war between Russia and Ukraine, the Chinese people have become the target of hatred due to the fact that the CCP has been spreading malice all over the world; It is so pathetic that the Chinese people still believe the CCP, who always care about themselves rather than ordinary people; even so, we will still try our best to rescue our fellow Chinese from the war zone, and awaken more Chinese people.<br/><br/>3/1/2022文贵盖特：俄乌打仗，被共产党到处拉仇恨的中国人成了被恨的对象，中国人咋还相信让领导先走的共产党？可悲啊！即便如此，我们也还要救战火中的中国同胞、唤醒更多的中国人<br/>
@@ -147,13 +154,6 @@
 
 2月27日号：尊敬的战友们好．你们见识了吗？传播台湾危机，拯救乌克兰战区的同胞们的信息了吗？一切都已经开始！
 ![img](https://media.gettr.com/group11/getter/2022/02/27/22/48af2f38-025a-7c16-9aa1-aca8d59fe54b/out.jpg)
-
----
-
-`@miles 2/27/2022 10:13 PM (UTC)`
-
-2/27/2022 Miles Guo: Ukraine’s president has set a precedent in the international political arena: 1) by standing up as a truly elected president, neither he nor his family has fled the country; 2) by not turning his back on the West when the US and EU ignored him. That’s why he is recognized as a "political gentleman".<br/><br/>2/27/2022 文贵直播：乌克兰总统开创了国际政坛的先河：1）作为真正的民选总统，他挺身而出，他和他家人都没跑路；2）在美欧不理他的时候，他并未和西方翻脸，所以被评为“政治绅士”<br/>
-![img](https://media.gettr.com/group23/getter/2022/02/27/22/62f15a84-6ad7-87b2-905e-2dc938adc0ea/out.jpg)
 
 ---
 

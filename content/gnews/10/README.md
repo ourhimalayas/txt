@@ -2,28 +2,25 @@
 ---
 
 
-## 国家疫苗通行证已悄然推出
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2091022/)
+## 今日盖特大V推荐 — 韦韦恩· 埃林·鲁特（Wayne Allyn Root）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2091064/)
 
-***评论：似乎还未见到疫苗强制接种结束的苗头。***
+![](https://assets.gnews.org/wp-content/uploads/2022/03/69aqp47-80ct9.jpg)
+盖特链接：[https://gettr.com/user/WayneRoot](https://gettr.com/user/WayneRoot)
 
-据《福布斯》作者：Suzanne Rowan Kelleher，2022年2月26日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/af6gy-tfegv.jpg)疫苗核查的国家标准已经在全国范围内悄然展开。图片来源：Pavlo Gonchar/SOPA Images和LightRocket通过Getty
-即使奥密克戎变体对世界的影响有所缓解，各地仍然要求旅行者出示疫苗接种证明。但是，越来越多的人认为，CDC的纸质疫苗接种卡是不合适的。
+**韦韦恩· 埃林·鲁特自述：**
 
-虽然美国政府没有发布联邦数字疫苗通行证，但已经出现一个国家标准。迄今为止，有21个州、哥伦比亚特区和波多黎各提供SMART健康卡。这是一种可核查的数字疫苗接种证明，由疫苗接种凭证计划（VCI）开发，该计划是一个由公共和私人利益相关者组成的全球联盟，包括微软、Salesforce、甲骨文、梅奥诊所和其他健康和技术界的重量级人物。
+美国广播电台的全国联合电台主持人，Newsmax TV 的前主持人，全国报纸专栏作家，保守派畅销书作家，川普斗士。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/lop.jpg)图片来源：网络
+**韦韦恩· 埃林·鲁特简介：**
 
-很快，至少还有四个州将推出SMART健康卡的使用。VCI的联合创始人、MITRE的首席数字健康医生布莱恩-安德森博士说：“我们已经看到，正式推出公共门户网站州的数量明显增多，个人可以通过带有二维码的SMART健康卡获得可核实的疫苗接种证书。”
+韦韦恩· 埃林·鲁特Wayne Allyn Root（生于 1961 年 7 月 20 日）是美国的一位商人，电视和广播主持人, 作家, 活动家和右派政治评论员，共和党人。他是 KBET 和美国广播网播出的每日全国联合节目 Wayne Allyn Root Show的主持人，之前在 Newsmax TV 上担任主持人。 Root 是 Las Vegas Review-Journal 的意见专栏作家。
 
-在美国，SMART健康卡已经有了令人印象深刻的普及。超过2亿美国人现在可以下载、打印或以二维码的形式存储他们的疫苗接种记录。当二维码被调出时，只有个人的姓名、出生日期和疫苗接种信息可见。没有其他医疗信息或个人数据被共享。这个代码也是经过数字签名的，以确保该卡是由一个经过验证的地点签发的，并防止伪造。
+Root是《川普规则》（TRUMP RULES）等畅销书的作者。
 
-文章来源：[https://www.forbes.com/sites/suzannerowankelleher/2022/02/24/national-vaccine-quietly-rolled-out/?sh=13e047676be6](https://www.forbes.com/sites/suzannerowankelleher/2022/02/24/national-vaccine-quietly-rolled-out/?sh=13e047676be6)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 轰炸机
-评论：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
+编撰：洛杉矶盘古农场 —郭友(文苏)
+校审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

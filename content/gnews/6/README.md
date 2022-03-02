@@ -2,44 +2,158 @@
 ---
 
 
-## 伦敦三案齐立打消UBS伦敦丢块肉在瑞士本部作战计谋
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2091113/)
+## 微信、抖音等中共软件是如何充当间谍软件的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2091118/)
 
-G-TV视频链接：https://gtv.org/video/id=62164d3f1408ee3a03a3c90d
+[https://gtv.org/video/id=621df0fc4353d33974c44643](https://gtv.org/video/id=621df0fc4353d33974c44643)
 
-**郭文贵先生：**你想想现在这个在英国三案齐立呀，这里边儿有三个案子啊——down state、estate、Miles Guo这三个不同的独立法庭。人家UBS一上来就说：哎哎哎，这个down state的事我就不管了，你可以在英国管，但是estate还有Miles Guo这个事儿到瑞士去，就是我让你在英国拿点儿钱给你个几亿美元，然后到瑞士去我把你给灭了，我让你拿不着、只要你跟我妥协，因为瑞士我说了算。你看它有多夸张啊！
+所以马化腾这个微信
+Por eso WeChat de Ma Huateng
 
-接下来你想想这个打架呢是吧？现在我已经做好了给你一大块儿肉，你要一块儿肉我给你一只牛，你要一只牛我给你一个农场，我都做好给你了，但是我要让你保证不能找到我的秘密。
+能在西方开通, 能在这流行
+Puede ser circulado y popularizado en el occidente
 
-就这英国、法国最后决定：不行，全在这儿。这下傻眼了、全傻眼了，这三个全在这儿。所以说你可见它未来的疯狂得有多可怕啊。政治、媒体、经济，就是你最后看到就是”宇宙无限大，地球是一粒沙”中的咱这粒“沙”跟它挑战，谢谢。
+你真的觉得西方真是让人大跌眼镜的
+Realmente ¿crees que el occidente es alucinante?
 
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
+真的是个人都知道它是共产党的情报软件
+Cualquiera que sea persona sabe que este es un software de inteligencia del Partido Comunista
 
-编辑整理：Jacques；
+你只要下载了微信
+Tan sólo descargas WeChat
 
-字幕档制作：兵嫂；
+你下载了什么知乎这种软件
+Si descargas la aplicación como Zhihu
 
-视频制作及上传：Cindy；
+你只要上中国百度获着香港凤凰网
+Si accedes a Baidu de China para obtener la Red Phoenix de Hong Kong
 
-G-News发布：海贼王M.D.LUFFY；
+手机, 你手机就废了
+El celular, tú celular será muerto
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+你走到天涯海角
+Así vayas al extremo de la tierra
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+你开机关机它都知道你在哪
+Esa cosa lo sabrá, esté prendido o apagado el celular
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+而且是自然报告
+Y le informa de manera natural
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+在北京的西山, 西山的西部在凤凰岭
+En Xishan de Beijing, al oeste de Xishan en Fenghuangling
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+那是几十万人就盯着美国的手机
+Son cientos de miles de personas mirando teléfonos celulares de Estados Unidos
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+美国的所有手机他都能监听, 一点秘密都没有
+Pueden monitorear todos los celulares de EE. UU, no existen secretos
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+所以说微信是一个技术的武器
+Por eso WeChat es un arma tecnológica
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+叫技术网路核武器
+Se llama tecnología cibernética nuclear
 
-G-TV：日本银河系农场。
+你谁沾就是自作死亡
+Quien la toca será un suicidio
+
+第二, 现在只要共产党的软件
+Segundo, ahora sólo el software del Partido Comunista
+
+美国, 印度各国已经公告过了
+EE. UU e India y otros países ya han anunciado
+
+所有中国软件都不安全
+Todos los softwares de China son inseguros
+
+但你要用, 你觉得他啥都知道了
+Si lo vas a usar, si crees que ya todo lo sabe
+
+你觉得你个人信息还重要吗
+¿Crees que seguirá siendo importante tus informaciones personales?
+
+因为微信在全世界打开你手机视频
+Porque WeChat abrirá el video de tu celular en todo el mundo
+
+就给你啪就是你的视频给你打开
+De una vez lo abre
+
+它可以缓打
+Puede ralentizar
+
+缓打啥意思你知道吗
+Qué significa ralentizar, ¿lo sabes?
+
+自动的它给你录下来
+Graba automáticamente
+
+而且定期的传到云数据
+Y sube regularmente los datos a la nube
+
+由于它一直录, 数据太大
+Como sigue grabando sin cesar, los datos son demasiado grandes
+
+它就把它想要的东西
+Entonces ésta toma lo que quiere
+
+涉及到, 比如说我说到微蓝
+Cualquier cosa que involucre, por ejemplo, cuando mencione a Weilan
+
+我说到神奇四侠, 它不录
+Si yo hablo de Los 4 Fantásticos entonces no lo graba
+
+我说神奇四侠脱光屁股, 它就录了
+De lo contrario, si digo “Los 4 Fantásticos se desnudaron”, ahí si grabará
+
+微蓝搞搞双修就录了
+Si “Weilan está teniendo relaciones sexuales”, grabará
+
+它自动就给你传到云数据去
+Este será automáticamente subido a los datos en la nube
+
+然后老马是坏蛋它就录了
+Luego “Laoma es un ser malo”, lo graba
+
+老马是好人不录
+Laoma es una buena persona, no lo graba
+
+就是敏感筛选是自动录上
+Es decir, la detección sensible se registra automáticamente
+
+你说这样得多恐怖
+Mira lo temeroso que es
+
+你手机你以为你关机了
+Crees que apagaste tu celular
+
+但它一直在一个敏感的数据状态下
+Pero siempre está bajo un estado de datos sensibles
+
+你还能安全吗
+¿Sigues siendo seguro?
+
+日期：02/25/2022
+原视频标题：微信、抖音等中共软件是如何充当间谍软件的
+Cómo WeChat, TikTok y otras aplicaciones del PCCh actúan como spyware
+
+**原视频网址：**[https://gettr.com/post/pvnb3j1760](https://gettr.com/post/pvnb3j1760)
+
+原视频日期：02/20/2022
+原视频网址：https://gettr.com/post/pvnb3j1760
+任务编号：KC471（3816）
+视频时间段：0:00-02:05
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
