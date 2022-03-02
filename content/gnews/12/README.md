@@ -2,22 +2,45 @@
 ---
 
 
-## 港大中大为新冠疫苗甩锅
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2094292/)
+## 与中共疫苗作战的加拿大人居然遭遇中国人千元加币索赔
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2094392/)
 
-作者：东京樱花团︱阿恩
-![](https://lh4.googleusercontent.com/VBP_PNPJPEZa1Be8eyAQ6Zxr4NDNuWSi1k-8akJwDciRGWdZJjhhNxMR5wTW78CzN5T4vn0r6_0MOkiSVDxOJO_v3XP_zel7866MKhzewffF__ko4p3unh_WJ5gUvXjcFhh0I7d0)[*图片来源*](https://news.rthk.hk/rthk/ch/component/k2/1636740-20220302.htm)
-港大及中大医学院的联合研究发现，吸烟会增加患上新冠肺炎的风险19%，而患上严重新冠肺炎的风险亦会增加48%。港大医学院公共卫生学院流行病和生物统计学助理教授欧阳兆伦表示，未来可将患上新冠肺炎列为吸烟的坏处。 中大医学院赛马会公共卫生及基层医疗学院助理教授郭健安说，由于吸烟人士有很大风险感染新冠病毒，并引发重症，因此尽快接种新冠疫苗是非常重要。
+G-TV视频链接：https://gtv.org/video/id=62164e0c1408ee3a03a3c930
 
-截至3月1日， 已有601万港人注射了新冠疫苗。昨日港府公布染新冠肺炎人数为5万与人。其中，死亡人数为117人，突发的晕倒、堕楼、车祸等个案也不少。面对如此失控的疫情，港府和大部分专家们依旧坚持要求港人注射新冠疫苗，遗憾的是仅有个别专家提醒感染新冠病毒痊愈后的市民不要着急注射。
+**郭文贵先生：**你像加拿大那个所谓起诉大卡车司机的事情，好多加拿大的白人给我发信息，他说：“Miles Guo，你们中国人疯了吧？我们在跟共产党的疫苗作战，你们中国人来告我们，要一千加币这个赔偿。”这哥们很愤怒。我跟他说，你知道那不是我们新联邦中国人，那是共产党的中国人。新中国联邦的中国人不会有一个这样的人的。
 
-香港的各大学正在着手掩盖新冠疫苗的次生灾害工作。具体而言，早前曾发布研究报告，指新冠病毒是导致血管炎症的元凶。之后又有卫生部门提出，本港艾滋病毒传染率将增加，并提醒市民关注艾滋病毒引起的免疫系统丧失。而今日有大学又公布新的研究，声称吸烟会增加新冠肺炎的风险。相信这些大学将会陆续推出不同的研究报告，从而证明即将在香港人身上大规模出现的恶行病症，与新冠疫苗无关。港府的专家不断玩弄专业知识，迷惑港人转移关注新冠疫苗的毒害，他们用尽毕生所学的学问，全部用来服务于财团和黑暗势力，这些象牙塔中的精英们已成为屠戮同胞的工具，受害的不仅是普通的香港市民，还有跟随他们的莘莘学子们。
+这个人是每天跟我说，我要告那个高冰尘“黄河边”如何如何的……我阻止我说:“你别浪费你的时间，他不值得让你打，他一泡屎一泡尿都不是，他在那儿挺好”我说“我们每天都上厕所，他在……提醒我去厕所，我说你放心我上厕所的时候喊他名字尿两下子。”但这个人就是对高冰尘恼火，现在看到这个女的所谓调查，非常恼火。他说：“Miles，你一定要记住，我在加拿大对这样的人一定要算账的。”
 
-数据来源：[**港大中大研究發現吸煙添患新冠肺炎風險**](https://news.rthk.hk/rthk/ch/component/k2/1636740-20220302.htm)
+这个人是谁知道吗？这个人是加拿大当时是跟中国所谓的两国之间军事合作局局长——这个加拿大人，当时亲共亲到没辙，自从我爆料革命参加以后，自从我爆料革命参加以后，我在加拿大跟他喝酒，在加拿大的一个中国餐厅，我讲述了我的一切以后，这哥儿们彻底地开始反共。他震惊到加拿大华人如此之堕落，他说“我现在再到温哥华所有的华人我看到都觉得很奇怪”，这是很吓人的兄弟姐妹们，这是很吓人的！
 
-*校对：东京樱花团 / 逢⑦必变*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
+
+编辑整理：Jacques；
+
+字幕档制作：兵嫂；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

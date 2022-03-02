@@ -2,29 +2,52 @@
 ---
 
 
-## 今日盖特大V推荐 — 澳大利亚天空新闻(Sky News Australia)
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2094177/)
+## 拉希姆因违反推特“黑客材料”政策被封号
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2094293/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-191.png)
-盖特链接：**[https://gettr.com/user/skynewsaust](https://gettr.com/user/skynewsaust)**
+翻译：**Lulumi**
 
-**澳大利亚天空新闻自述：**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-6.jpg)图片来源：thepostmillennial.com
 
-真实的新闻，诚实的观点。在https://SkyNews.com.au/Flash（在澳大利亚）或https://watch.australiachannel.com.au（在世界各地）上播放澳大利亚天空新闻。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-192.png)图片来源：网络
-**澳大利亚天空新闻简介：**
+卡萨姆告诉《千禧年邮报》：“我从未发布过’黑客材料’，我认为这一指控至少是诽谤性的，目的是明确地造成伤害。”
 
-澳大利亚天空新闻于1996年2月19日下午5点开播，是一个澳大利亚右翼24小时有线电视和卫星频道，也是澳大利亚第一个电视台制作的电视新闻频道。
+《国家脉动》主编拉希姆·卡萨姆周二因他的一条推文“违反”了该平台的“黑客材料”政策，被推特封锁账号。
 
-澳大利亚天空新闻持有保守的政治观点, 意识形态和政策主张。该平台可在Foxtel和Optus电视订购平台上使用，也可以在澳大利亚各地和非都会区域的免费电视上使用。在新西兰的天空电视台（Sky Television）和沃达丰（Vodafone）上也可以使用它。该平台直属于澳大利亚新闻集团所有。与英国天空公司无关联。
+卡萨姆周二上午在推特上写道：“福克斯新闻的内部邮件似乎表明他们的高级记者认为克格勃仍然存在，”并加上了表情符号。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Raheem-tweet-Twitter-lockout.jpg)图片来自原文
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+卡萨姆的推文展示了福克斯新闻记者吉利安·特纳泄露的电子邮件，标题为“紧急：泽伦斯基的可追溯性”。她写道：“我们被告知，即使电话被加密，克格勃仍然可以追踪手机和固定电话”。
+
+推特通知卡萨姆，该推文违反了该大科技网站的“传播黑客材料”政策。“我们不允许使用我们的服务直接传播通过黑客攻击获得的内容，这些内容包含私人信息，可能使人受到身体伤害或危险，或者包含商业秘密，”推特的通知要求卡萨姆删除这条推特。
+
+“通过点击删除，你承认你的推文违反了推特的规则，”推特的消息指示卡萨姆，同时还建议：“如果你认为我们犯了一个错误，请向我们提交上诉。请注意，如果你这样做，在我们审查你的上诉时，你的账户将继续锁定”。
+
+在所谓的违规事件发生后，卡萨姆的账户功能在接下来的12小时内被置于临时限制之下。卡萨姆在被关押在推特监狱期间，被限制向推特粉丝发送直接信息（DMs）。
+
+倒计时在卡萨姆删除违规的推文后开始，在处罚窗口期过后，卡萨姆的账户将被恢复到完整功能。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Raheem-notification-Twitter-lockout.jpg)图片来自原文
+
+卡萨姆在支持自由言论的另一网站GETTR上发表了他的抱怨。
+
+卡萨姆星期二下午在GETTR上发帖说：“目前因发布‘黑客材料’而被推特‘封号’，这实际上是福克斯新闻内部人士发给我的主要来源邮件。请记住，对卡车司机的支持者进行攻击的人并没有被封号。但发布福克斯新闻的电子邮件就被封号吗？”
+
+在基督教众筹网站GiveSendGo上为“自由车队”筹款的捐款者被左翼活动分子诽谤。
+
+主流媒体紧随其后，《华盛顿邮报》也试图对捐款人进行挖苦和羞辱。
+
+《千禧年邮报》联系了卡萨姆，他说：“我从未贴过‘黑客材料’，我认为这一指控至少是诽谤性的，目的是明确地造成伤害。但我确实注意到，当人们利用实际的黑客材料对加拿大卡车司机进行诽谤时，Twitter没有采取任何行动。也许更关键的是，这次暂停是由于我们最近揭露了一些鼓吹战争宣传的虚假信息。我们将拭目以待，因为我们将继续报道此事，直到我们得到真正的答案”。
+
+**参考资料：**[thepostmillennial][BREAKING: Journalist Raheem Kassam suspended by Twitter for violating ‘hacked materials’ policy](https://thepostmillennial.com/breaking-journalist-raheem-kassam-suspended-from-twitter)
+
+* * *
+
+*审核：文乐*
+*校对：阿伯塔*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
 
  
 

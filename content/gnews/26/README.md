@@ -2,45 +2,24 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2093803/)
+## 秘翻在线：中共表示要确保乌克兰华人的“安全撤离”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2093906/)
 
-**整理：枳实**
-**美工：精灵蓝**
+**撰稿：葛大饼**
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片：雅典娜农场设计组 精灵蓝
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-02-195321.jpg)图片来源：  搜狐
+根据2022年3月2日新浪报道，中共国务委员兼外长王毅在同乌克兰外长库列巴通电话时表示要确保中共国公民在乌克兰的安全，督促乌方承担相应国际责任。
 
+据报道，2月28日，敖德萨和基辅分别撤离了400名和200名留学生。隔天还有从基辅和敖德萨前往摩尔多瓦方向的大规模撤侨安排。第一批从基辅撤离的留学生刘同学接受 《环球时报》记者采访表示：在使馆的护送下，一路顺利。据悉这一轮撤侨，中共国驻乌使领馆将先组织撤离年纪较小的留学生，再撤离其他愿意离开乌克兰的华侨华人。
 
-雅典娜疫情更新（2022年 3月2日）
+除此之外还有自行撤离的中国留学生，而外交部领事保护中心3月2日通报说已有一名中共国公民在自行撤离途中遭遇枪击受伤，但目前脱离了生命危险。新闻称目前撤离难度最大的是被困在乌克兰第二大城市哈尔科夫的华人。大概是受到新中国联邦发出的救援公告的“压力”， 今天中共国驻乌大使馆要求所有基辅及周边华侨都去指定地点集合统一坐大巴前往摩尔多瓦。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-15.png)
-[2022年3月2日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月2日改进.pdf)
+生死关头，所谓的“安全撤离”当然是指那些得到使馆护送待遇撤离的中共领导自己的亲属，私生子女，而老百姓的孩子只能自己想办法冒险自行撤离！王毅开国际玩笑，自己国家老百姓的安危自己不管，反倒还要敦促乌克兰负责，这种危机时刻，是骡子是马，可以拉出来遛遛PK一下了！新中国联邦拿出实际行动，展示我们的实力，派出包机去乌克兰拯救中国同胞和国际友人！
 
-数据来源：
+**[新闻来源](https://news.sina.cn/gn/2022-03-02/detail-imcwiwss3668488.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)**
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+#  
 
  
 

@@ -2,22 +2,48 @@
 ---
 
 
-## 欧洲铁幕又落下，这个世界将彻底重组
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2094242/)
+## 参加好声音的加拿大华人让孩子打了疫苗怎能不被排华
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2094335/)
 
-**撰稿：Eva**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-02-205409.jpg)
-俄罗斯对乌克兰的战争爆发短短四天，世界走完了几十年的路。未来的世界是截然不同的世界。近几天发生的事，将改变未来五十年这个世界的道路。
+G-TV视频链接：https://gtv.org/video/id=62164df61408ee3a03a3c92c
 
-德国朝野经过四天对默克尔路线的批判反思之后刚刚宣布，紧急追加额外1000亿欧元国防预算，成为第三个国防预算超千亿的国家，要知道，2021年德国国防预算为仅为520亿美元。德国政府在声明中说，德国将跃升式提高国防预算，目标是“打造高效、超现代、先进的国防军”。一头虎重生了，德国正式开始武装，而这正是美国一直要求、而默克尔一直拒绝做的。俄乌战争短短几天就达成美国无法达成的使命。德国同时宣布，将逐步减少至不再依赖俄罗斯能源，并向乌克兰提供武器。
+**郭文贵先生：**我接着说完刚才那个反华的事情，就是排华。我的歌也是一个很好的例子，就好几个海外的华人带着孩子参加了《好声音》，到了那块又吃又喝的，有没有被睡咱不知道，就也没弄成个啥。头两天就我这个歌出来以后啊，特别是《塞北的雪》、《一帘幽梦》、《甜蜜蜜》，找到我，说我们一直看你直播，我们孩子想要参加《我是英雄》。
 
-不出意外，下一个上千亿国防预算的国家将是日本，这是另一头豹。撩拨了十几年，全球军备竞赛终于开始了。
+（他说）我们也很喜欢唐平，唐平她老公是秃头。我也不知道。他说他那个秃头老公……我说：“是吗？唐平老公是秃头我不知道。”——什么搞什么“零点乐队”的啊。
 
-欧盟对俄罗斯关闭其领空，不允许俄罗斯航空器（包括民用航空）进入欧盟领空。美国、欧盟、英国、日本加拿大、意大利共同宣布，将俄罗斯踢出SWIFT全球金融结算体系，这意味着，从此之后俄罗斯不能使用美元、欧元、英镑和日元进行国家支付和结算。十年后，俄罗斯将成为大号的朝鲜。波兰、瑞典和捷克国家足球队宣布将不参加在俄罗斯领土上举行的世界杯预选赛，这意味着自动放弃参赛资格。估计还有更多国家跟进，包括足球在内各种竞技比赛都不跟你玩了。
+他说：但是，七哥，我们想要币。说实在话，他想参加爆料革命，他想来唱歌，他不说我也会给她币，但是他说完这话一秒钟没打顿儿，哪怕唱歌给我打个顿儿，给我说这个面子就过来了是吧？她说：“你得给我币。”我二话我也没给她任何一秒钟有想的机会，我说：“门儿都没有。”
 
-欧洲铁幕也正在落下，从波罗的海到黑海。乌克兰正在用民族的生命搏斗，争取留在铁幕西边。数十个西方国家的军事装备源源不断运进乌克兰，土，英、德等国的志愿人员进入乌克兰，参与自由与奴役的对决。
+我说：“你能保护好你自己的命就不错。”我说“我能问你个问题，请教个问题：旧金山那地方你打了疫苗了吗？她说：‘打了’”。我说：“你孩子打了吗？他说：‘打了’”我说：“那你孩子没有机会参加爆料革命了，再见吧，沙由那拉！（音：日本语：再见）。”
 
-西方三十年累积的分歧，四天就搞定。全球化和重商主义终于被安全和价值观所替代。土耳其，匈牙利，问题迎刃而解，因为接下来是简单的选边站。是的，这个世界肯定将彻底重组，包括已经腐朽失效的联合国，WTO，WHO… …
+就是咱们华人在海外二三十年，他们家也是被共产党残害的，孩子长大，带着孩子回中国去参加《好声音》，大家可以查查那两期，扯着嗓子喊。现在看爆料革命三四年来了，看咱爆料革命长大了，要币来了，我告诉你——还打了疫苗，兄弟姐妹们，你去想想，她怎么能不被排华呢？
+
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
+
+编辑整理：Jacques；
+
+字幕档制作：兵嫂；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 
