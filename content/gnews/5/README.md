@@ -2,20 +2,33 @@
 ---
 
 
-## SWIFT是中共的命门 关了SWIFT就等于断了共产党的生命线
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2095648/)
+## 美国要下决心重整秩序还是维持原来秩序
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2095720/)
 
-如果共产党不打台湾，国内的经济必然崩塌，西方世界再和共产党经济合作，已绝不可能了。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-如果关了中共的SWIFT，68%的出口型经济将瞬间崩塌，共产党也绝不可能再从其他国家购买粮食。那么中国人只剩下一条路就是推翻共产党，这样才有饭吃。
+2022-02-27直播摘录
 
-更重要的是SWIFT是国家信用评级，停了SWIFT也就意味，与至少50%的世界经济体不会再合作了。SWIFT如果制裁中共，仅中国银行 28万亿美元国际业务、所有的海外贷款、海外借款等等，将全部停止，到时候中共就直接完了。所以SWIFT是中共的命门。
+如果美国还玩外交战、合理性，到联合国取得一个所谓的战争执照。这些事想去干的话，美国就想玩什么？美国那就想那真的等着世界大战起来，重整秩序。如果美国压根就对台湾，一动手我就开干的话，美国就要维持原来国际秩序。重整国际秩序和维持国际秩序，这是美国两个一定要下决心的。维持现在的国际秩序，美国必须大胆动手；如果要重整世界秩序的话，那这个世界的人们要付出巨大的代价，要很多人死，很多地方形成了无人区，无人烟区，甚至百年、千年、万年都是这样，一定会有核弹发生。
 
-仅韩正海外至少几百亿美元，更不用说七个老杂毛的私产了，SWIFT一停，立马归零，所以他们也都不会放过习近平。
+但是不管如何，只要台湾一战，我告诉大家：世界经济的崩溃，七哥将成为人类历史上超过所有的巫师、大师、经济师，凡是什么师的，都在七哥面前都是“毛贼“啦！七哥就成为人类上有史以来最大的战略大师，那是肯定了！是吧？对经济的预测，两战，是不是？台、乌的战场的预测，是吧？货币金融、世界秩序。
 
-视频来源: 20220227—郭先生大直播
-视频制作: 文星光
-文案:文星光
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

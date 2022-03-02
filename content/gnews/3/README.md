@@ -2,60 +2,35 @@
 ---
 
 
-## 新数据显示COVID疫苗对年轻人只有风险没有好处（3/3）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2095657/)
+## 下一个被停SWIFT的就是中国
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2095734/)
 
-编译：Jenny Ball
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-209-edited.png)图片来源：childrenshealthdefense.org
+2022-02-27直播摘录
 
-**关键的设计缺陷**
+我希望是习怎么样？我希望他不打，我希望他真的放下屠刀、立地成佛。但这是有点很幻想，相当于一个三岁的政治水平。但是我是人，我站在台湾同胞上，站在中国人长远利益上，如果我是习近平我今天，或者我是习近平身边的人，我就把他做掉，我一定把他做掉。他甭说是“习太阳”，他就是我亲爹、他就是我亲哥，我一定手起刀落把他头给砍下来。因为我砍下他的头，我能拯救14亿中国人，我能拯救2300万人。我绝对能做到，这点你们相不相信？我绝对能做到。我没有刀，我咬他也得把他脖子咬断，因为它拯救他自己、拯救人类。他不打什么结果呢？他不打，国内的经济崩塌，为什么经济崩塌？美国、欧洲再跟共产党搞经济合作是绝不可能。到今天为止，这可能是新中国联邦人最好的消息。
 
-在 2021 年 8 月的 Substack 文章中，英国网络安全研究员埃登·比伯（Ehden Biber）重点关注了使用假尿苷优化密码子的潜在风险。
+SWIFT，人类历史上第一次大面积地停止对主权国家的使用，开启了先河。有一就有二，这个先河开启，SWIFT，就是下个共产党，你一点都不用担心，一定会是共产党。它占不占台湾都会给它停，只是理由，而且我们已经准备好了三个理由：新疆大屠杀，你不停SWIFT吗？香港的这么多人消失，难道不会有料儿、有视频出来吗？杀孩子、奸孩子，你不给它停SWIFT吗？好！这两样你美国人利益都不敢；冠状病毒溯源要出来，你要不要停SWIFT？他制造了病毒。疫苗在全世界到处倒地死人的时候、社会动乱的时候，大卡车司机无处不在的时候，美国人要不要找个替死鬼？谁能当你的替死鬼？美国人买单吗？只有停掉SWIFT。
 
-COVID 注射不包含在 SARS-CoV-2 病毒中发现的相同 mRNA。mRNA 已经在一个称为“密码子优化”的过程中进行了基因操作，而这个过程实际上会产生意想不到的有害副作用。
+共产党，只要停掉SWIFT，68%的出口型经济瞬间崩塌，进口的粮食完全扯淡。中国人的粮食，就是过去东北冬天的时候，叫吃两顿饭，不吃三顿饭，我小时候经历过，你不干活在家待着，像我们家有时候吃一顿饭。未来就整个中国是什么？一星期只能吃两三顿饭，你不消灭共产党你就没饭吃，只有推翻共产党你才真正有饭吃。你还打台湾吗？在这种情况下，中国人就得救了。只要消灭了共产党，中国人就会成为世界上一定是全球的投资者都会涌向中国。
 
-**“**辉瑞、莫德纳、阿斯利康、强生等公司，为何使用他们和监管机构都知道会导致未知结果的技术？” 比伯问道。使用密码子优化的原因，是因为通过注射 mRNA很难让你的身体产生给定的蛋白质。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-这是一个缓慢且通常效率低下的过程。为了使注射起作用，它们需要比自然可能的更高水平的蛋白质表达。科学家通过在遗传指令中进行替换来绕过这个问题。
+**关注我们**
 
-他们发现，你可以换掉某些核苷酸（三个核苷酸组成一个密码子），最终仍然会得到相同的蛋白质。但提高效率的代价是可怕的。
+Discord 账号
 
-当以这种方式替换部分代码时，生成的蛋白质很容易被错误折叠，这与多种慢性疾病有关，包括阿尔茨海默病、帕金森病和心力衰竭。正如比伯所解释的：
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-“事实证明，当密码子优化时产生的蛋白质具有不同的折叠方式和不同的 3D 形状，例如，它可能会导致免疫原性，直到后期临床试验，甚至批准后才会出现。” 此声明与正常批准周期有关。COVID 疫苗是通过了加速疫苗批准。”
+Gettr 账号
 
-现在，自 2011 年以来，FDA 已经充分意识到了这些问题，当时 FDA 的首席研究员 查瓦·金木奇·萨法蒂(Chava Kimchi Sarfaty )博士表示：“我们不相信你可以优化密码子，并让蛋白质表现得像它，以它的原生形式工作。”
-
-她接着警告说，“例如，改变的形式可能会导致免疫原性，直到后期临床试验，甚至批准后才能看到。”
-
-如果 FDA 早在 2011 年就知道这一切，为什么他们没有反对在 COVID 疫苗中使用密码子优化？ 需要向澳大利亚** ****TGA **提出同样的问题。
-
-FOIA 请求者可能在考虑 2021 年 3 月的论文“BNT162b2 疫苗：可能的密码子误读、蛋白质合成错误和可变剪接异常”，因为该论文强调了辉瑞公司使用假尿苷进行的广泛密码子优化，不利影响，以及使用 3′-UTR 序列，其后果仍然未知。
-
-TGA 没有关于这些修改风险的数据的事实只能表明，他们和美国 FDA 一样，实际上并没有努力确保这些疫苗的安全。他们在保护制药公司的利润。
-
-辉瑞甚至在其提交给 FDA 以获得 EUA 的 BNT162b2/Comirnaty 风险管理计划中承认，他们所做的密码子优化导致 γ-谷氨酰转移酶 (GGT) 升高，这是心力衰竭的早期标志物。
-
-GGT 升高也是胰岛素抵抗[insulin resistance](https://pubmed.ncbi.nlm.nih.gov/23945039/)、心脏代谢疾病、肝病[liver disease](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC4620378/)和慢性肾病的指标[kidney disease](https://pubmed.ncbi.nlm.nih.gov/28659657/)。
-
-仅此一项就应该提出一些问题，FDA是否真的在关注公众健康。总而言之，有比以往任何时候都更多的理由质疑 COVID 疫苗的规定，以及这些疫苗在儿童身上的使用。
-
-**点评：从暗黑势力极力违法违宪强制接种mRNA实验毒药的过程中，细思极恐的是：这是“关键的设计缺陷”，还是特意如此设计？**
-
-**参考资料：**[childrenshealthdefense.org][COVID Vaccines: All Risk, No Benefit for Kids and Young Adults, New Data Show](https://childrenshealthdefense.org/defender/covid-vaccines-all-risk-no-benefit-kids-young-adults/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=802493ff-397e-46d1-8d8c-f5b50cb8275d)
-
-请阅读相关文章：
-[新数据显示COVID疫苗对年轻人只有风险没有好处（1/3）](https://gnews.org/zh-hans/2095456/)
-[新数据显示COVID疫苗对年轻人只有风险没有好处（2/3）](https://gnews.org/zh-hans/2095586/)
-
-* * *
-
-*审核：文乐
-校对：小东
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

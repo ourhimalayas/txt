@@ -2,32 +2,36 @@
 ---
 
 
-## 战争宣判心理学
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2095464/)
+## 前乌克兰小姐身着戎装 加入抵抗俄军行列
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2095474/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月27日，据相关媒体消息显示，在眼下俄罗斯大举入侵乌克兰之际，乌克兰各行各业的民众纷纷加入了抵抗俄军的战斗队伍中，这其中也包括前任乌克兰选美冠军——安娜塔西娅·蕾娜。
 
-2022-02-27直播摘录
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3.jpeg)
 
-俄罗斯这个事，杀老人、杀孩子、杀无辜、侵略战争、普京一个人的战争。哇塞，这种心里是很吓人的。俄罗斯抓了乌克兰好多士兵，没有一个视频出来的。但是乌克兰最早几个小时出一个，俄罗斯的士兵横尸在坦克旁边，拿着视频在录，光着屁股，还有女孩，那个俄罗斯士兵多漂亮的女孩，死可惜呀，是吧。然后你看到这真是太残忍了，然后看俄罗斯士兵被俘虏。这种在战争心理学叫什么，知道吗大家？这是不可抗拒的，是不可抗拒的，这叫战争宣判心理学，这叫宣判心理学。你这做，这就是你，你就死了，你就躺在这了，你就光着屁股了，你就完了。对对方的心理打击叫宣判，你就已经死了，没有人不受影响的。这是为什么现在俄罗斯的部队不允许看手机，完全不知道前方发生了什么。如果都能看到，马上就走了。
+作为2015年的乌克兰小姐，蕾娜会说 5 种语言，曾担任过翻译和公关经理；而现在，她则像许多其他乌克兰人那样穿上戎装并手持步枪，全力阻止那些试图入侵乌克兰的俄罗斯军队。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+据悉，乌克兰总理泽连斯基在上周呼吁该国民众拿起武器，对抗那些俄罗斯入侵者。截止目前，乌克兰政府已经向参与战斗的平民分发了一万件自动武器。对此，蕾娜在社交媒体上称赞泽连斯基总统是一位真正的、强硬的领导人。同时，蕾娜还喊话普京的军队称，任何人都休想试图越过乌克兰边境行入侵之举。
 
-**关注我们**
+参考链接：
+1. [UPDATE: Former Miss Ukraine Says Her Militaristic Photos with Apparent Airsoft Gun Are for Inspiration](Former%20Miss%20Ukraine%20Says%20Her%20Militaristic%20Photos%20with%20Apparent%20Airsoft%20Gun%20Are%20for%20Inspiration)
+2. [MISS GRAND UKRAINEBEAUTY QUEEN NOW A SOLDIER …Warns Russia, We’ll Shoot To Kill](https://www.tmz.com/2022/02/27/miss-grand-ukraine-joins-military-soldier-russian-invasion/)
 
-Discord 账号
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+总编：Irene木木
+编辑：飞虹
+校正/发稿：谐趣园
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

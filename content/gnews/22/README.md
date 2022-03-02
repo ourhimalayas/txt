@@ -2,38 +2,42 @@
 ---
 
 
-## 新中国联邦展开紧急行动救援乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2095413/)
+## 明年习太阳和普大帝将不复存在
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2095342/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月1日，郭文贵先生在盖特平台上发布消息称，新中国联邦在乌克兰的救援行动感动了世界，战友们的行动远远超过中共的所作所为。
+**整理：Anita、Lucy Liu
+编辑：Candy**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/联邦.png)图片来源：墨尔本雅典娜设计组
 
-郭先生解释道，在此次乌克兰的救援行动中，新中国联邦与世界上很多国家和机构建立了对等合作和相互信任的关系。此外，许多其他友好力量也开始了与新中国联邦的合作。
 
-郭先生还提到，乌克兰某团体这次也向新中国联邦发出了求救，随后，新中国联邦毫不犹豫的肯定答复和完全不求任何回报的行为让乌克兰人民极为感动，也让世界看到了新中国联邦的大爱精神。
+有这样的战争，人类第一次被抬到桌子上，连美国总统都第一次说：美国要做好大合唱的准备。你见过人类上有谁把核武器当成常规武器来考虑吗？你见过病毒和这一切都在这种情况下吗？你见过人类上最黑暗的时候吗？
 
-郭先生也补充道，新中国联邦用事实和实力向世界证明，我们是真的在救人。目前，乌克兰境内唯一可信赖的、来自中国人的声音，就是新中国联邦发出的救援信号。
+但是这个时候、真的在黑暗中，最最弱小的，但最明亮的就是我们新中国联邦，而且习太阳会很快不存在。不是我一个人说的，中南海整个高层，在长安街上，只要是真的有参与决策权、知情权的人都知道，明年不可能有习太阳、普大帝。这就是人类、我们遇到了现在最大的挑战，最多美好，我们太幸福了。
 
-眼下，新中国联邦对乌克兰的紧急救援行动正在战友们地努力下快速而有条不紊地进行着。
+我们在面临着人类的最大转折时刻，新中国联邦一定要搂住，坚持唯真不破。你不要在鲜花开放前让你的生命枯萎了，成了鲜花开放的沃土。我们不需要成为沃土，我们要欣赏鲜花开放，看到蝴蝶满天飞，孕育万物，我们成为享受阳光、鲜花和美丽的人群，那就叫新中国联邦。我们要打扫这个战场，我们要参与这个战场后的重建。不管发生多少事情，都不要忘了这两个主题。
 
-参考链接：[2/28/2022 文贵盖特](https://www.gettr.com/post/pxhex43bfc)
+任何到前线救战友的像大卫，还有要飞到前线的：你们掉一根汗毛，你不会看到共产党的那个形式，让你成为英雄，绝对不可能，（否则）七哥会很冷酷地把你踢出去。一个救援行动都让你把毛（掉）没了，要参与战争的话，你还不把命丢了吗？我们不鼓励任何人当英雄和死去的英雄，我们只要救人的实际效果：无我的救人，不要有表演，不要有自己的私心。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+昨天下午我们的律师团队说，“郭先生，我在法庭呢，要租飞机，租多大的？租什么飞机？”（七哥）：“你不要再说了，新中国联邦把权力交给老班长、长岛哥和大卫、如水，交给他们去，让他们去订。要几个就订几个，不低于十个，上不封顶。但前提是，你们找的这个组织要是影响了我战友的安全，我是不愿意的，必须保证安全。”
 
-总编：Irene木木
-编辑：Ivy001
-校正/发稿：谐趣园
+最后是救援组织（说）：如果你们让我到基辅市中心，到里边把人救出来，出来50%的可能是被炸掉，我们救人的人和被救的人可能都成为尸体，所以救一个人1000万美元。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我回来（以后）长岛哥说：七哥，给你报告好消息，所有的战友已经都出来了，百分之百（都就出来了）！
+
+这就是天意！
+
+资料来源：2022.3.2文贵大直播
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,71 +15,71 @@
 
 ---
 
-### [3/2/2022 文贵直播：新中国联邦乌克兰救援行动首战告捷，100%成功搭救战友，四位战友及三个家庭已顺利到达波兰](/content/gnews/1/README.md)
+### [地球上只有一个类，只有“类”，没有“国”，叫人类](/content/gnews/1/README.md)
+ ` MG FARM`
+
+### [俄联储退出欧洲，其伦敦证券交易所暴跌95%](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [下一个被停SWIFT的就是中国](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [全世界都想了解郭文贵](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [美国要下决心重整秩序还是维持原来秩序](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [普京入侵乌克兰使得周边国家人民感到恐惧和愤怒](/content/gnews/6/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [金融武器化威胁美元本位制的未来](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美日希望这场战争](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [3/2/2022 文贵直播：新中国联邦乌克兰救援行动首战告捷，100%成功搭救战友，四位战友及三个家庭已顺利到达波兰](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [战争心理研究的战争逻辑](/content/gnews/2/README.md)
+### [农民和知识分子的差距](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [新数据显示COVID疫苗对年轻人只有风险没有好处（3/3）](/content/gnews/3/README.md)
+### [新数据显示COVID疫苗对年轻人只有风险没有好处（3/3）](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共打仗靠死人](/content/gnews/4/README.md)
- ` MG FARM`
-
-### [SWIFT是中共的命门 关了SWIFT就等于断了共产党的生命线](/content/gnews/5/README.md)
+### [SWIFT是中共的命门 关了SWIFT就等于断了共产党的生命线](/content/gnews/12/README.md)
  ` 焦點20分`
 
-### [台湾最大威胁之一是卖台贼 美国须在“维持世界秩序”和“重整世界秩序”之间作出决定](/content/gnews/6/README.md)
+### [台湾最大威胁之一是卖台贼 美国须在“维持世界秩序”和“重整世界秩序”之间作出决定](/content/gnews/13/README.md)
  ` 焦點20分`
 
-### [战争宣判心理学 2](/content/gnews/7/README.md)
- ` MG FARM`
-
-### [俄罗斯已经没有未来了 俄乌战争或许会以非常态的方式结束](/content/gnews/8/README.md)
+### [俄罗斯已经没有未来了 俄乌战争或许会以非常态的方式结束](/content/gnews/14/README.md)
  ` 焦點20分`
 
-### [中共攻台很可能采用快战战略 甚至可能动用核武](/content/gnews/9/README.md)
+### [中共攻台很可能采用快战战略 甚至可能动用核武](/content/gnews/15/README.md)
  ` 焦點20分`
 
-### [生死面前是没有利没有弊的，只有敌我的关系](/content/gnews/10/README.md)
- ` MG FARM`
-
-### [战争心理学](/content/gnews/11/README.md)
- ` MG FARM`
-
-### [新数据显示COVID疫苗对年轻人只有风险没有好处（2/3）](/content/gnews/12/README.md)
+### [新数据显示COVID疫苗对年轻人只有风险没有好处（2/3）](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵爆料 3.2：俄乌战争——国际格局脱胎换骨的转折点](/content/gnews/13/README.md)
+### [文贵爆料 3.2：俄乌战争——国际格局脱胎换骨的转折点](/content/gnews/17/README.md)
  ` 秘密翻译组-原创组`
 
-### [利用一切黑科技让俄罗斯人内部瓦解](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [混合型的高智商战争](/content/gnews/15/README.md)
- ` MG FARM`
-
-### [撤侨谎言——被遗忘在乌克兰的中国同胞们](/content/gnews/16/README.md)
+### [撤侨谎言——被遗忘在乌克兰的中国同胞们](/content/gnews/18/README.md)
  ` 秘密翻译组-原创组`
 
-### [前乌克兰小姐身着戎装 加入抵抗俄军行列](/content/gnews/17/README.md)
+### [前乌克兰小姐身着戎装 加入抵抗俄军行列](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [中共战狼拒绝躲在地下室里在乌克兰中国留学生的求救](/content/gnews/18/README.md)
+### [中共战狼拒绝躲在地下室里在乌克兰中国留学生的求救](/content/gnews/20/README.md)
  ` mayflowertranslate`
 
-### [战争宣判心理学](/content/gnews/19/README.md)
- ` MG FARM`
-
-### [新数据显示COVID疫苗对年轻人只有风险没有好处（1/3）](/content/gnews/20/README.md)
+### [新数据显示COVID疫苗对年轻人只有风险没有好处（1/3）](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [星链终端目前已经抵达乌克兰](/content/gnews/21/README.md)
- ` NFSC News`
-
-### [新中国联邦展开紧急行动救援乌克兰](/content/gnews/22/README.md)
- ` NFSC News`
+### [明年习太阳和普大帝将不复存在](/content/gnews/22/README.md)
+ ` 雅典娜GNotes`
 
 ### [基辅市长称城市被包围，后来又收回了这一说法](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`

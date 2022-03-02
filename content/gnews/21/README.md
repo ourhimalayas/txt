@@ -2,37 +2,42 @@
 ---
 
 
-## 星链终端目前已经抵达乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2095450/)
+## 新数据显示COVID疫苗对年轻人只有风险没有好处（1/3）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2095456/)
 
-作者：首尔天池农场-追着曙光跑，纽约香草山农场-Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月28日，据有关媒体报道，乌克兰已经收到了由SpaceX捐赠的星链卫星互联网终端。随后，乌克兰副总理兼数字化改造部部长米哈伊洛·费奥多罗夫也在社交媒体平台上向埃隆-马斯克表示了感谢。同时，费奥多罗夫还公布了一张装满终端设备的军用卡车的照片。
+翻译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-209.png)图片来源：childrenshealthdefense.org
 
-报道提及，此前，乌克兰的互联网曾因俄罗斯的入侵而中断，而这些表面上看起来像家庭卫星电视天线的终端设备，可以通过接入低轨道上的一组卫星阵列向乌克兰民众提供相对快速的互联网服务。
+根据斯蒂芬妮·塞内夫（Stephanie Seneff ）博士和独立研究员凯西·多普（ Kathy Dopp ）的成本效益分析，对于 80 岁以下的人来说，COVID-19 疫苗比 COVID 病毒本身更致命，并且，对儿童和年轻的成年人提供的只有风险。
 
-然而，多伦多大学公民实验室项目的一位高级研究员也在社交媒体平台上提醒道，这些终端可能会成为俄罗斯攻击的目标。
+故事概览：
 
-参考链接：
-1. [https://twitter.com/fedorovmykhailo/status/1498392515262746630?s=21](https://twitter.com/fedorovmykhailo/status/1498392515262746630?s=21)
-2. [https://twitter.com/fedorovmykhailo/status/1497543633293266944?s=21](https://twitter.com/fedorovmykhailo/status/1497543633293266944?s=21)
-3. [Ukraine gets Starlink internet terminals – and friendly warning about safety](https://www.reuters.com/technology/ukraine-gets-starlink-internet-terminals-friendly-warning-about-safety-2022-02-28/)
+- 最近的数据分析显示，对于 80 岁以下的人来说，COVID 疫苗比 COVID-19 病毒本身更致命。对于年轻人和儿童来说，没有好处，只有风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-总编：Irene木木
-编辑：飞虹
-校正/发稿：谐趣园
+- 与未接种疫苗的人死于 COVID-19 的风险相比，所有 50 岁以下的年龄组，在接受 COVID 疫苗后死亡的风险更大。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+- 对于 18 岁以下的人，COVID 疫苗会增加他们死于 COVID-19 的风险。如果接种疫苗，他们死于疫苗的可能性也比死于**COVID**病毒的可能性高**51 **倍。
+
+
+- 只有当您进入 60 岁及以上时，疫苗和 COVID 病毒感染之间的风险才会变得差不多。在 60 至 69 岁的年龄组中，疫苗注射每挽救一个死于 COVID 的人，就会杀死一个人，因此，对于任何人来说，疫苗是否值得，这是一个争论。
+
+
+- 数据表明，向 VAERS 报告的美国死亡人数被低估了 20 倍。
+
+
+详细新数据分析，请见下文。
+
+素材链接：[childrenshealthdefense.org] [COVID Vaccines: All Risk, No Benefit for Kids and Young Adults, New Data Show](https://childrenshealthdefense.org/defender/covid-vaccines-all-risk-no-benefit-kids-young-adults/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=802493ff-397e-46d1-8d8c-f5b50cb8275d)
+
+* * *
+
+*审核：文乐
+校对：小东
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
