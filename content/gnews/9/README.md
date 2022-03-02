@@ -2,48 +2,37 @@
 ---
 
 
-## 皮尔的高级公共卫生官员表示，他不太可能建议将当地的口罩规定延长到 3 月底之后
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2095347/)
+## 星链终端目前已经抵达乌克兰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2095450/)
 
-作者：Chris Fox
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/03/22_123945352.png)
-虽然安省公共卫生部尚未宣布何时取消口罩令，皮尔区首席公共卫生官近日率先表态称，不建议在三月底继续延长当地的强制口罩要求。
+作者：首尔天池农场-追着曙光跑，纽约香草山农场-Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月28日，据有关媒体报道，乌克兰已经收到了由SpaceX捐赠的星链卫星互联网终端。随后，乌克兰副总理兼数字化改造部部长米哈伊洛·费奥多罗夫也在社交媒体平台上向埃隆-马斯克表示了感谢。同时，费奥多罗夫还公布了一张装满终端设备的军用卡车的照片。
 
-省长福特日前表示，距离取消全省范围内的强制口罩令“不远了”。这项口罩令自2020年7月开始实施以来一直持续至今。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2.jpeg)
 
-不过各地市政的公共卫生部门也有独立的法规可要求居民在室内场所佩戴口罩。
+报道提及，此前，乌克兰的互联网曾因俄罗斯的入侵而中断，而这些表面上看起来像家庭卫星电视天线的终端设备，可以通过接入低轨道上的一组卫星阵列向乌克兰民众提供相对快速的互联网服务。
 
-在周三上午，皮尔区公共卫生部首席卫生官Dr. Lawrence Loh表示，在病毒高度传播时期，佩戴口罩是“有保证”的，但是皮尔区的强制口罩令即将于三月底过期，他不建议继续延长口罩要求。
+然而，多伦多大学公民实验室项目的一位高级研究员也在社交媒体平台上提醒道，这些终端可能会成为俄罗斯攻击的目标。
 
-“在目前皮尔区以及安省其他地区的住院人数都呈现出下降趋势的情况下，我可以说，如果到那时我们仍然继续保持现在这种趋势，那么我不建议延长口罩令。当然我们需要的是继续密切观察这种趋势，” 他表示。
+参考链接：
+1. [https://twitter.com/fedorovmykhailo/status/1498392515262746630?s=21](https://twitter.com/fedorovmykhailo/status/1498392515262746630?s=21)
+2. [https://twitter.com/fedorovmykhailo/status/1497543633293266944?s=21](https://twitter.com/fedorovmykhailo/status/1497543633293266944?s=21)
+3. [Ukraine gets Starlink internet terminals – and friendly warning about safety](https://www.reuters.com/technology/ukraine-gets-starlink-internet-terminals-friendly-warning-about-safety-2022-02-28/)
 
-密西沙加市和宾顿市都在疫情刚开始的阶段就已经实施了室内口罩法规，后来这项要求被延长了数次。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-此前安省首席公共卫生官Dr. Kieran Moore表示，口罩令会在一些高危场所继续有效，包括医院、长期护理院和公共交通设施。不过他也会表示，其他大部分场所的口罩要求会被“同步”取消，包括学校。
+总编：Irene木木
+编辑：飞虹
+校正/发稿：谐趣园
 
-宾顿市长Patrick Brown也在周三早上表示，“我希望孩子们能回到正常生活，我和其他一些大城市的市长一起呼吁让孩子们回到学校学习。我真的感觉到这是很重要的。此前有人批评说这会导致住院人数暴增，但是现在的实际情况并非如此，因此我认为整个社会都回到正常生活是很重要的。”
-
-目前加拿大一些省份已经宣布取消了强制口罩要求，包括阿省。阿省省府已经宣布计划通过立法来限制各市政独立推行口罩令的权力。
-
-多伦多市政府表示，预计会在四月的议会上讨论是否要取消强制口罩要求。
-
-来源：https://www.cp24.com/news/peel-s-top-public-health-official-says-he-is-unlikely-to-recommend-extension-of-local-mask-mandates-beyond-the-end-of-march-1.5802379
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,48 +2,43 @@
 ---
 
 
-## 基辅市长称城市被包围，后来又收回了这一说法
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2095304/)
+## 被多伦多警方通缉的男子涉嫌获得超过1000万元的欺诈性抵押贷款
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2095445/)
 
-**评论：***致敬乌克兰人“我没有别的选择，我必须这么做，我将进行战斗。”*
+作者：Abby Neufeld
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_0T62R08.jpg)
+多伦多警方称，一名多伦多居民被控从贷款骗局中获利超过1000万加元，警方在全国范围内发出通缉令，同时警告公众注意抵押贷款欺诈骗局。
 
-据《华盛顿观察家》 作者：克里斯托弗-赫顿，2022年2月27日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-207.png)基辅市长表示，该市已被俄罗斯军队包围。
-市长维塔利-克里琴科最初声称，该市已被包围，他们已无法从该市疏散平民，只是后来又否认了这一说法。
+多伦多警方称，23岁的傅远森（Yuansen Fu，音译）与一名女性贷款经纪合作，瞄准了一些华人社区的律师事务所。
 
-克里琴科周日告诉美联社：“我们不能这样做，因为所有的路都被封锁了，现在我们被包围了。”
+据警方称，傅远森使用“Lucas”这个名字，并使用虚假身份证明，虚构贷方、借款人和公司来获得私人抵押贷款。
 
-据《基辅独立报》报道，克里琴科的发言人后来否认了基辅被包围的说法。该发言人称，这一说法是“谎言和操纵”。
+警方说，傅远森随后使用一些真人的假身份证明，在这些人不知情的情况下用他们的名义办理欺诈性抵押贷款。
 
-这位乌克兰市长还表达了对食物和水的担忧。他说：“我们正处于一场人道主义灾难的边缘。现在，我们有电，现在，我们的房子里有水和暖气。但是运送食物和药品的基础设施被破坏了。”
+迄今为止，他已经获得了超过一千万元的抵押贷款，该骗局针对大多伦多地区的几家华人律师事务所。
 
-星期四，基辅市长引起了人们的注意，他告诉ITV的《早安英国》节目，他将与该市的居民和士兵一起战斗。
+警方已对傅远森发出了全加拿大范围的通缉令。他被控一项共谋犯下可公诉的罪行、一项超过5,000元的欺诈罪和一项伪造文件罪。目前这些指控尚未在法庭上得到证实。
 
-这位前世界重量级冠军说：“我没有别的选择，我必须这么做，我将进行战斗。”
+警方称，记录显示傅远森经常光顾温哥华，据信他持有武器并且很危险。警方建议不要接近他，如果看到他立即联系当地警方。
 
-欧洲官员对普京针对基辅的行动表示关切。
+警方建议公众，特别是抵押贷款和法律专业人士，仔细检查所有身份证明，并在确认房地产交易中个人的身份时保持警惕。
 
-不过，他们认为，如果基辅能以入侵中挺过星期一，这是一个值得注意的胜利。
+来源：https://www.cp24.com/news/man-wanted-by-toronto-police-allegedly-obtained-more-than-10-million-dollars-in-fraudulent-mortgages-1.5801761
 
-文章观点仅代表作者个人，与Gnews平台无关。
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-文章来源: [https://www.washingtonexaminer.com/news/kyiv-mayor-city-is-surrounded-making-evacuation-impossible](https://www.washingtonexaminer.com/news/kyiv-mayor-city-is-surrounded-making-evacuation-impossible)
+**关注我们**
 
-翻译：洛杉矶盘古农场 – Mike Li
+Discord 账号
 
-校对：洛杉矶盘古农场 -轰炸机
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-评论：洛杉矶盘古农场 – 轰炸机
+Gettr 账号
 
-编辑：洛杉矶盘古农场 – 傻小子
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U+2](https://discord.gg/2vuvRm7z6U+2)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
