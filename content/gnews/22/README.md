@@ -2,47 +2,45 @@
 ---
 
 
-## 拜登发表《国情咨文》 中共断章起义说“美军不会进入乌克兰作战”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2094270/)
+## 与中共疫苗作战的加拿大人居然遭遇中国人千元加币索赔
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2094392/)
 
-作者：东京樱花团｜捆绑CCP 一千年
+G-TV视频链接：https://gtv.org/video/id=62164e0c1408ee3a03a3c930
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/拜登发表《国情咨文》-中共断章起义说美军不会进入乌克兰作战.png)
+**郭文贵先生：**你像加拿大那个所谓起诉大卡车司机的事情，好多加拿大的白人给我发信息，他说：“Miles Guo，你们中国人疯了吧？我们在跟共产党的疫苗作战，你们中国人来告我们，要一千加币这个赔偿。”这哥们很愤怒。我跟他说，你知道那不是我们新联邦中国人，那是共产党的中国人。新中国联邦的中国人不会有一个这样的人的。
 
-**中共国对拜登总统《国情咨文》中的讲话断章取义，说“美军不会进入乌克兰与俄军作战”，却不敢报道另一句至关重要的讲话，“告诉习近平，与美国人民对赌从来都不是好赌注。”**
+这个人是每天跟我说，我要告那个高冰尘“黄河边”如何如何的……我阻止我说:“你别浪费你的时间，他不值得让你打，他一泡屎一泡尿都不是，他在那儿挺好”我说“我们每天都上厕所，他在……提醒我去厕所，我说你放心我上厕所的时候喊他名字尿两下子。”但这个人就是对高冰尘恼火，现在看到这个女的所谓调查，非常恼火。他说：“Miles，你一定要记住，我在加拿大对这样的人一定要算账的。”
 
-据中共国新华社2日下午消息称，“美国总统拜登3月1日在国会发表任内首次国情咨文演讲时重申，美军不会进入乌克兰与俄军作战。”另一篇报道称，“当地时间3月2日，俄罗斯国防部表示，俄军已经完全控制乌克兰南部城市赫尔松。”
+这个人是谁知道吗？这个人是加拿大当时是跟中国所谓的两国之间军事合作局局长——这个加拿大人，当时亲共亲到没辙，自从我爆料革命参加以后，自从我爆料革命参加以后，我在加拿大跟他喝酒，在加拿大的一个中国餐厅，我讲述了我的一切以后，这哥儿们彻底地开始反共。他震惊到加拿大华人如此之堕落，他说“我现在再到温哥华所有的华人我看到都觉得很奇怪”，这是很吓人的兄弟姐妹们，这是很吓人的！
 
-中共国似乎对拜登总统表态“不进欧洲作战”欣喜若狂，并一再声称美国总统拜登“再次重申美国军队现在没有，将来也不会在乌克兰与俄罗斯军队发生冲突”。
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-- ***延展阅读：***[***直播乌克兰战争最新消息：普京的军队降落在哈尔科夫***](https://www.theguardian.com/world/live/2022/mar/02/ukraine-news-russia-war-kyiv-kharkiv-russian-invasion-vladimir-putin-joe-biden-latest-live-updates)
+编辑整理：Jacques；
 
+字幕档制作：兵嫂；
 
-从中共官媒消极的避重就轻的虚假宣传看，中共正在这场俄乌战争中失去信心。根据[美国五角大楼](https://www.defense.gov/News/News-Stories/Article/Article/2951409/us-stands-with-ukraine-biden-says-in-state-of-the-union/)1日对总统的《[国情咨文](https://www.whitehouse.gov/state-of-the-union-2022/)》的解读表示，美国与乌克兰站在一起，并且强调拜登在国情咨文中明确地说“美国将反对独裁者”。
+视频制作及上传：Cindy；
 
-从总统演讲可见，对于捍卫民主自由，美国立场明确，并继续强调，“普京试图动摇自由世界的基础，他认为他可以让自由世界屈服于他的威胁性方式，但他严重误判。他以为他可以滚进乌克兰世界就会翻滚。相反，他遇到了一堵他从未想象过的力量之墙：他遇到了乌克兰人民。”
+G-News发布：海贼王M.D.LUFFY；
 
-美国总统以一个高龄老人的弱者形象向世界证明了民主的外柔内刚的坚毅和捍卫自由的决心，俄乌战争实况证明了拜登总统内心的坚毅。正如拜登总统所言，普京严重误判，独裁者从来都是误判文明的力量，认为民主总是软弱可欺，却因此高看自己所谓的强大。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-- ***延展阅读：***[***拜登代表团见蔡英文 蓬佩奥接力访台***](https://www.dw.com/zh/%E6%8B%9C%E7%99%BB%E4%BB%A3%E8%A1%A8%E5%9B%A2%E8%A7%81%E8%94%A1%E8%8B%B1%E6%96%87-%E8%93%AC%E4%BD%A9%E5%A5%A5%E6%8E%A5%E5%8A%9B%E8%AE%BF%E5%8F%B0/a-60947528)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-“身着乌克兰国旗颜色”的美国国会众议员以此表达了对乌克兰支持和立场。在演讲前，拜登要求与会的立法者为乌克兰人民的勇敢站立鼓掌，显示了这是一个“两党合作的时刻”。此时此刻，拜登总统告诉世界，“当独裁者不为他们的侵略付出代价时，他们会造成更多的混乱。”这就是为什么盟国在二战的灰烬中建立北约联盟的原因。防御联盟旨在为饱受战争蹂躏的大陆带来稳定与和平，那里有数百万人死于希特勒的疯狂战争。对此，总统强调，“北约仍然是统一反对普京和他的入侵。”拜登继续表示，“美国的外交重要，但美国人的决心更重要。”
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-拜登谴责普京拒绝在外交方面努力，认为普京继续错判北约和美国的决心，以为西方和北约不会做出回应。拜登说：“他认为他可以在家里分裂我们，普京错了，我们已经准备好了战斗。”
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-- ***延展阅读：***[***他决定毁灭整个世界”：关于普京入侵乌克兰的六个全球声音***](https://www.cnn.com/2022/03/02/opinions/global-expats-putin-war-ukraine-opinions/index.html)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-拜登认为，“如果普京决定继续向西移动，我们的部队虽然不会前往乌克兰作战，但美国会保卫我们的北约盟国。为此，我们动员了美国地面部队、空军中队和舰艇部署来保护包括波兰、罗马尼亚、拉脱维亚、立陶宛和爱沙尼亚在内的北约国家。”中共却抓住这一点狂欢，而这正是北约和美军的战略要点。现代化战争制服敌人的方式从来都不是肉搏上阵，正如中国《孙子兵法》所言，“决胜于千里之外”。
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-不过，拜登总统警告了习近平，他说，“尤其是中国，正如我告诉习近平的那样，与美国人民对赌从来都不是好赌注。”
+G-TV：日本银河系农场。
 
-2022年3月2日
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

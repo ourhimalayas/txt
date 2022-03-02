@@ -2,45 +2,33 @@
 ---
 
 
-## 攻击乌克兰两大城市遇阻，俄军发动导弹袭击
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2094419/)
+## 概述美国对中国的帮助——清政府时期
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2094561/)
 
-#### **【雅典娜观察】和您一起洞察世界**
+作者：纽约香草山农场 – 静言
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+回顾近现代历史，中国在遭逢每一个难关时，都得到了来自美国的极大帮助。即使是邓小平也不得不承认：这几十年来，凡是和美国搞好关系的国家都富起来了。于中国而言，美国更是中国人民真正的朋友。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-2.jpg)
+早在清朝末年，中国大厦将倾，而美国此时已经明白，中国的衰弱只是因为其科学知识的缺乏。于是，美国促使一批又一批的中国学生赴美学习先进技术，中国才得以逐渐走上现代化的道路。
 
-**翻译/编辑：文泓**
+另一方面，美国将庚子赔款用于在中国建造学校，这当中也包括目前中国的最高学府——清华大学。为了培养人才，当时，清华大学的优秀学生可以在毕业后免费前往美国深造。此外，美国人还在中国建立了12所教会大学，而赫赫有名的燕京大学，即北京大学前身也在其中。至于中国现在的大型医院，其医学院的前身几乎都是教会医院，包括协和医院和华西医院等等，甚至是后来的中国军医医院的人才和医疗体系都莫不出自教会医院。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-12.png)图片来源：Associated Press & The Times of Israel
+彼时，美国的举动还让许多国家纷纷效仿，他们大多退还或停止了清政府的庚子赔款。
 
+参考链接：[历史上美国曾七次帮助中国度过难关](http://www.usaphoenixnews.com/news_show.php?id=344974)
 
-随着周二俄军对基辅的一座电视广播塔和哈尔科夫的主要政府行政大楼发动导弹袭击，似乎是在对入侵城市遇阻停滞后作出的一种战术调整。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-现场视频显示，早上哈尔科夫中央自由广场（被导弹击中）发生大爆炸。乌克兰政府表示，现场有七人死亡，这次袭击的时间、地点和建筑物知名度表明，俄军旨在证明他们可以随意袭击乌克兰全国。
+总编/编辑: Irene木木
+校正/发稿：Fei797
 
-基辅电视塔遇袭暂时使乌克兰中央电视频道瘫痪，这是乌克兰政府继续运作的重要标志。
-
-则连斯基总统办公室报告说，与电视塔相邻的基辅纳粹大屠杀纪念馆遗址遭到导弹袭击。另[据媒体报道](https://www.afr.com/world/europe/russian-bombs-pound-ukraine-as-zelensky-urges-eu-to-prove-itself-20220302-p5a0u0)，俄罗斯士兵周二没有进一步攻入首都，距离市中心约27公里。
-
-分析人士说，在上周四入侵开始后普京未能速战速决将乌克兰政府赶下台后，普京正试图投入更多的士兵、武器和装备转移到基辅附近。一名美国政府官员在华盛顿告诉记者，分配给入侵行动的部队中约80%已到位。
-
-这位美国官员说，出于某种原因，基辅以北一支65公里长的坦克和战车车队周二停止了行动，对此可能有多种解释。
-
-网上发布的图片显示，乌克兰军队在基辅西北约24公里的布查镇附近进行了伏击。图像显示了布查住宅区俄罗斯坦克和装甲运兵车的残骸。
-
-英国国防部在推特上发文称，俄罗斯正在对基辅、哈尔科夫和基辅卫星城切尔尼戈夫使用更多火炮。
-
-大炮、火箭、导弹和炸弹可以用来杀死保卫城市的乌克兰人，他们还可能杀死和伤害许多平民，破坏民用基础设施，将进一步损害俄罗斯的国际声誉，并在乌克兰内部对入侵者产生更大的愤怒。
-
-参考链接：[Russia-Ukraine war: Russia adjusts tactics as it is stalled outside two big Ukrainian cities (afr.com)](https://www.afr.com/policy/foreign-affairs/stalled-outside-two-big-ukrainian-cities-russia-adjusts-tactics-20220302-p5a0vh)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

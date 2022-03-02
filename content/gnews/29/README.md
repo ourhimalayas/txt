@@ -2,45 +2,23 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2093803/)
+## 70名日本人报名义勇军
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2094106/)
 
-**整理：枳实**
-**美工：精灵蓝**
+作者：华夏的文丽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-02-201641.jpg)
+据日本每日新闻报道，日本人看到俄罗斯侵略乌克兰战争的残酷和不愿意看到乌克兰的年轻人在战争中死去，于是报名参加义勇队支援乌克兰，70位报名者中有50名退役自卫军人。乌克兰的紧急救援队允许外国人参加志愿者队伍。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片：雅典娜农场设计组 精灵蓝
+日本政府把乌克兰定位危险区域，划分为4级，不建议前往和劝退地区，林芳正外相在记者招待会上说，在日本的乌克兰大使馆希望国际力量前往帮助，但不支持日本国民前往有风险的地区和国家。乌克兰政府只能希望更多的力量去乌克兰进行人道主义支援。
+
+感悟：一般民众代表的正义力量正在集结，日本平民的义勇让人敬佩，新中国联邦和其他国际救援组织在危急关头实行救援计划和行动。世界人民一定都站在正义的一边，邪恶一定灰飞烟灭。
+
+参考链接：[ウクライナ「義勇兵」に日本人70人が志願　50人が元自衛官](https://mainichi.jp/articles/20220301/k00/00m/030/165000c)
 
 
-雅典娜疫情更新（2022年 3月2日）
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-15.png)
-[2022年3月2日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月2日改进.pdf)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+审核校对：Barry Jack
+上传排版：F
 
  
 
