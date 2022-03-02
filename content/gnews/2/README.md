@@ -2,28 +2,32 @@
 ---
 
 
-## 日本暂时关闭驻基辅大使馆撤离工作人员
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2091345/)
+## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月28日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2091405/)
 
-撰稿：东京樱花团 文小白
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-20-1187x1536-1.png)
 
-据日本媒体3月2日最新消息，随着俄罗斯对乌克兰的军事入侵，乌克兰局势迅速紧张，日本外务省决定今天（2日）暂时关闭了日本驻乌克兰首都基辅的大使馆。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/日本暂时关闭驻基辅大使馆撤离工作人员.jpg)照片来源于本文链接
+文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月28日晚](https://gnews.org/zh-hans/2084514/)
 
-俄罗斯在乌克兰各地持续进行军事进攻，造成局势迅速紧张，3月1日首都基辅电视塔遭到袭击，造成人员伤亡。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-为此，日本外交部宣布2日暂时关闭日本驻基辅大使馆。留守大使馆的工作人员也已经疏散。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-外务省表示将继续确保约120名日本民众的安全，并在乌克兰西部利沃夫的临时联络处协助民众办理离开乌克兰的手续。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-消息来源：
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**外務省 キエフの日本大使館を一時閉鎖 大使館員も退避**](https://www3.nhk.or.jp/news/html/20220302/k10013509011000.html)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

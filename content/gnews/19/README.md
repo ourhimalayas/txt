@@ -2,37 +2,158 @@
 ---
 
 
-## 普京威胁启动核威慑警戒
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2090979/)
+## 微信、抖音等中共软件是如何充当间谍软件的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2091118/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+[https://gtv.org/video/id=621df0fc4353d33974c44643](https://gtv.org/video/id=621df0fc4353d33974c44643)
 
-整理：围剿维尼熊
-编辑：5m
+所以马化腾这个微信
+Por eso WeChat de Ma Huateng
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-6.png)图片来源：雅典娜设计组&星岛日报
+能在西方开通, 能在这流行
+Puede ser circulado y popularizado en el occidente
 
+你真的觉得西方真是让人大跌眼镜的
+Realmente ¿crees que el occidente es alucinante?
 
-根据路透社报道，美国一名国防部高层官员周一表示，在俄罗斯总统普京周末宣布将核威慑力量置于高度警戒状态之后，美国仍然没有看到任何明显动作。
+真的是个人都知道它是共产党的情报软件
+Cualquiera que sea persona sabe que este es un software de inteligencia del Partido Comunista
 
-但是，一些前美国官员和专家警告说，如果普京在乌克兰战争中陷入困境，或者战争蔓延到北约，他有可能决定升级到使用核武器。
+你只要下载了微信
+Tan sólo descargas WeChat
 
-这位美国官员说，在普京公开宣布之前，美国军方领导人并未获悉有关核威慑的决定，而目前为止，俄方尚未因为普京的指示而出现武器或部队的重大调动。
+你下载了什么知乎这种软件
+Si descargas la aplicación como Zhihu
 
-俄罗斯国防部周一表示，核导弹部队、北方舰队和太平洋舰队已进入“强化”战斗任务状态。
+你只要上中国百度获着香港凤凰网
+Si accedes a Baidu de China para obtener la Red Phoenix de Hong Kong
 
-白宫认为目前没有改变美国核警报级别，拜登表示美国民众无需担心核战争。
+手机, 你手机就废了
+El celular, tú celular será muerto
 
-参考链接：[普京启动核威慑警戒后 未见俄罗斯有明显动作–美国官员](https://cn.reuters.com/article/russia-usa-nuclear-comments-0228-mon-idCNKBS2KY31T?il=0)
+你走到天涯海角
+Así vayas al extremo de la tierra
 
-*发布：tianzhihuan*
+你开机关机它都知道你在哪
+Esa cosa lo sabrá, esté prendido o apagado el celular
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+而且是自然报告
+Y le informa de manera natural
+
+在北京的西山, 西山的西部在凤凰岭
+En Xishan de Beijing, al oeste de Xishan en Fenghuangling
+
+那是几十万人就盯着美国的手机
+Son cientos de miles de personas mirando teléfonos celulares de Estados Unidos
+
+美国的所有手机他都能监听, 一点秘密都没有
+Pueden monitorear todos los celulares de EE. UU, no existen secretos
+
+所以说微信是一个技术的武器
+Por eso WeChat es un arma tecnológica
+
+叫技术网路核武器
+Se llama tecnología cibernética nuclear
+
+你谁沾就是自作死亡
+Quien la toca será un suicidio
+
+第二, 现在只要共产党的软件
+Segundo, ahora sólo el software del Partido Comunista
+
+美国, 印度各国已经公告过了
+EE. UU e India y otros países ya han anunciado
+
+所有中国软件都不安全
+Todos los softwares de China son inseguros
+
+但你要用, 你觉得他啥都知道了
+Si lo vas a usar, si crees que ya todo lo sabe
+
+你觉得你个人信息还重要吗
+¿Crees que seguirá siendo importante tus informaciones personales?
+
+因为微信在全世界打开你手机视频
+Porque WeChat abrirá el video de tu celular en todo el mundo
+
+就给你啪就是你的视频给你打开
+De una vez lo abre
+
+它可以缓打
+Puede ralentizar
+
+缓打啥意思你知道吗
+Qué significa ralentizar, ¿lo sabes?
+
+自动的它给你录下来
+Graba automáticamente
+
+而且定期的传到云数据
+Y sube regularmente los datos a la nube
+
+由于它一直录, 数据太大
+Como sigue grabando sin cesar, los datos son demasiado grandes
+
+它就把它想要的东西
+Entonces ésta toma lo que quiere
+
+涉及到, 比如说我说到微蓝
+Cualquier cosa que involucre, por ejemplo, cuando mencione a Weilan
+
+我说到神奇四侠, 它不录
+Si yo hablo de Los 4 Fantásticos entonces no lo graba
+
+我说神奇四侠脱光屁股, 它就录了
+De lo contrario, si digo “Los 4 Fantásticos se desnudaron”, ahí si grabará
+
+微蓝搞搞双修就录了
+Si “Weilan está teniendo relaciones sexuales”, grabará
+
+它自动就给你传到云数据去
+Este será automáticamente subido a los datos en la nube
+
+然后老马是坏蛋它就录了
+Luego “Laoma es un ser malo”, lo graba
+
+老马是好人不录
+Laoma es una buena persona, no lo graba
+
+就是敏感筛选是自动录上
+Es decir, la detección sensible se registra automáticamente
+
+你说这样得多恐怖
+Mira lo temeroso que es
+
+你手机你以为你关机了
+Crees que apagaste tu celular
+
+但它一直在一个敏感的数据状态下
+Pero siempre está bajo un estado de datos sensibles
+
+你还能安全吗
+¿Sigues siendo seguro?
+
+日期：02/25/2022
+原视频标题：微信、抖音等中共软件是如何充当间谍软件的
+Cómo WeChat, TikTok y otras aplicaciones del PCCh actúan como spyware
+
+**原视频网址：**[https://gettr.com/post/pvnb3j1760](https://gettr.com/post/pvnb3j1760)
+
+原视频日期：02/20/2022
+原视频网址：https://gettr.com/post/pvnb3j1760
+任务编号：KC471（3816）
+视频时间段：0:00-02:05
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

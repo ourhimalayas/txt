@@ -2,88 +2,41 @@
 ---
 
 
-## 前中央情报局官员：普京“大规模情报失败”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2091201/)
+## 拜登政府派代表团前往台湾以示支持
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2091282/)
 
-[https://gtv.org/video/id=621df21c4353d33974c44689](https://gtv.org/video/id=621df21c4353d33974c44689)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-Scott Uelingher (CIA Operations Officer)
-斯科特·乌林格（中央情报局行动官）
+整理：围剿维尼熊
+编辑：文泓
 
-I think that right now, Putin is contemplating
-我认为现在，普京正在考虑
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-11.png)图片来源：Greenwichtime & 雅典娜设计组
 
-what is a Russian massive intelligence failure
-这就是俄罗斯大规模情报失败的原因
 
-when it comes to the attack on Ukraine
-当谈到对乌克兰的袭击时
+当地时间3月1日，多家媒体报道，美国拜登政府派遣的一个由前高级国防官员和安全官员组成的代表团，已于周二抵达台湾，这表明在中共国迫在眉睫的威胁下，台美双方加强了沟通。
 
-Now, that’s not to say that this war
-现在，这并不是说这场战争
+此次访问由曾任美国参谋长联席会议主席的迈克·马伦率领五人代表团，在为期两天的访问期间代表团将会见蔡英文总统等台湾高级官员。台湾外交部长吴钊燮在台北松山机场迎接他们，并与小组成员撞肘。这次访问正值俄罗斯入侵乌克兰、台湾加强戒备之际。
 
-that this operation the Russians have undertaken will not ultimately be successful
-俄罗斯人进行的这次行动最终不会成功
+蔡英文办公室表示，代表团是由美国总统拜登任命的，此次访问将“就台美各领域合作问题深入交换意见”，台湾希望双方“继续深化台美关系稳步发展，继续共同维护地区和平稳定，继续共同为世界和平与繁荣作出贡献”。
 
-However, there have been a huge amount of intelligence errors made
-然而，已经出现了大量的情报错误
+台湾政府周一表示，把台湾的情况与乌克兰的情况联系起来是不合适的，指责有人借机炒作所谓的“今日乌克兰，明日台湾”言论。
 
-First of all, I think Putin has fallen into the spell
-首先，我认为普京已经陷入了魔咒
+台湾行政院发言人罗秉成说，台湾与乌克兰情势完全不同，包括台湾具国际地缘政治“重要性”、地理环境有200公里海峡区隔“特殊性”，及高科技产业居国际供应链“关键性”等三大显著差异。两者不能相提并论。
 
-that a lot of dictators have after many decades
-许多独裁者在几十年后
+参考链接：
 
-and that he starts to believe his own propaganda
-并且他开始相信自己的宣传
+1、[拜登派前国防高官前往台湾以示支持](https://www.dw.com/zh/%E6%8B%9C%E7%99%BB%E6%B4%BE%E5%89%8D%E5%9B%BD%E9%98%B2%E9%AB%98%E5%AE%98%E5%89%8D%E5%BE%80%E5%8F%B0%E6%B9%BE%E4%BB%A5%E7%A4%BA%E6%94%AF%E6%8C%81/a-60947528)
 
-He convinced himself that the Ukrainians will be a rollover operation
-他说服自己，乌克兰人将被吓跑
+2、[Former top US defense officials visit Taiwan amid tensions | AP News](https://apnews.com/article/china-taiwan-mike-pompeo-tsai-ing-wen-joint-chiefs-of-staff-ef5f97eb86d61a011576e09523295ca2)
 
-much like Georgia in the past
-很像过去的格鲁吉亚发生的一样
+*发布：tianzhihuan*
 
-or even parts of Syria were where the Russian forces met with success after success
-甚至叙利亚的部分地区都是俄罗斯军队取得了一次又一次的成功
-
-This has not happened, and this is also allowed
-在乌克兰没有发生，这也是允许的
-
-This is also exposed the weak part of the Russian military
-这也暴露了俄军的薄弱环节
-
-and that is logistics, tanks running out of fuel
-那就是后勤，油箱耗尽燃料
-
-Everything seemed predicated on a massive blitzkrieg
-一切似乎都基于一场大规模的
-
-that would decide things in 72 hours and when that didn’t happen
-将在 72 小时内完成的闪电战，而当这没有发生时
-
-Then we have the situation that Russia is in right now
-我们看到俄罗斯现在的情况
-
-原视频链接[https://twitter.com/newsmax/status/1498040672053510151?s=24](https://twitter.com/newsmax/status/1498040672053510151?s=24)
-
-Date:02/28/2022
-原视频标题: Ex-CIA officer: Putin had a ‘massive intelligence failure’
-前中央情报局官员：普京“大规模情报失败”
-原视频日期：2022/02/28
-原视频链接https://twitter.com/newsmax/status/1498040672053510151?s=24
-任务编号：KE430（3887）
-视频时间段 : 0:00-1:01
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

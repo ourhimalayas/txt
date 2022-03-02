@@ -2,28 +2,46 @@
 ---
 
 
-## 【图组】乌克兰国际救援行动！救人第一，请广传！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2091312/)
+## 中共从乌克兰撤侨小粉红嚷得欢，实际根本没有去接
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2091349/)
 
-乌克兰危机！新中国联邦发起乌克兰国际人道救援行动，无偿协助撤离到安全中转国，并提供30天以内的免费食宿。救人第一！不要一分钱，任何条件都没有，能多救一个是一个！
-
-救援对象：包括在乌克兰所有华人同胞，美国及各国友人！
-
-联系电话：+17206576776/+17192244232
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-9.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-7.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/wertyu.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/wertyui.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-5.jpg)
+作者：银河系农场—骄子
 
 
-撰稿/发布：一叶知秋
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good.png)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+
+近日俄乌危机让乌克兰当地很多中国的老百姓深陷其中，既忍受俄罗斯的侵袭，又避免着共产党煽动的排华运动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/226-3.jpg)
+战火纷飞之际，所有的中国人都渴望中共国的撤侨飞机能够营救自己。然而中共驻乌克兰大使讲话中将此事推脱得一干二净，找各种各样的借口，比如条件不允许，时机不安全，在老百姓最需要祖国最需要国家力量营救的时候掉链子。中共喉舌媒体更是口头上说得比唱得好听，就是没有任何实质性行动，中共国的小粉红更是将没有成行的撤侨计划吹嘘成已经撤侨，已经把困在乌克兰的华人安全接回了母国，在互联网上到处散播假讯息帮着中共大外宣洗脑，而那些真正处在乌克兰的中国老百姓并没有等到中共撤侨的飞机，还被困在当地。
+
+反观新中国联邦，紧急直播后已经有10-12架飞机参与营救。
+
+参考来源：
+
+[【独家】中国驻乌克兰使馆：除包机撤侨外，还在协调中国公民以其他方式离开](https://world.huanqiu.com/article/46zOhJqF4kQ)
+
+[https://gettr.com/post/px5k8n5144](https://gettr.com/post/px5k8n5144)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-1.png)
+
 
  
 

@@ -2,44 +2,27 @@
 ---
 
 
-## 伦敦三案齐立打消UBS伦敦丢块肉在瑞士本部作战计谋
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2091113/)
+## 苹果制裁俄罗斯！暂停在俄所有产品销售
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2091228/)
 
-G-TV视频链接：https://gtv.org/video/id=62164d3f1408ee3a03a3c90d
+俄罗斯入侵乌克兰引起了国际社会的强烈愤慨，西方政府和大企业已切断与俄罗斯的往来，或进行惩罚性制裁。苹果公司3月1日宣布，停止在俄罗斯的所有产品销售。
 
-**郭文贵先生：**你想想现在这个在英国三案齐立呀，这里边儿有三个案子啊——down state、estate、Miles Guo这三个不同的独立法庭。人家UBS一上来就说：哎哎哎，这个down state的事我就不管了，你可以在英国管，但是estate还有Miles Guo这个事儿到瑞士去，就是我让你在英国拿点儿钱给你个几亿美元，然后到瑞士去我把你给灭了，我让你拿不着、只要你跟我妥协，因为瑞士我说了算。你看它有多夸张啊！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/202202261813-main.jpg)图片来源：VOL
 
-接下来你想想这个打架呢是吧？现在我已经做好了给你一大块儿肉，你要一块儿肉我给你一只牛，你要一只牛我给你一个农场，我都做好给你了，但是我要让你保证不能找到我的秘密。
+苹果发表声明指出，我们已经暂停了在俄罗斯的所有产品销售。上周，我们停止在俄罗斯销售管道的所有出口。苹果支付(Apple Pay) 和其他服务将受到限制，而俄罗斯国营RT电视台和卫星通讯社(Sputnik)的新闻在俄罗斯境外已无法下载。
 
-就这英国、法国最后决定：不行，全在这儿。这下傻眼了、全傻眼了，这三个全在这儿。所以说你可见它未来的疯狂得有多可怕啊。政治、媒体、经济，就是你最后看到就是”宇宙无限大，地球是一粒沙”中的咱这粒“沙”跟它挑战，谢谢。
+苹果在声明中说，「我们对俄罗斯入侵乌克兰深感关切，并与所有因暴力事件而遭受苦难的人站在一起」，「我们正支持人道努力，为正在蔓延的难民危机提供援助」。
 
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
+简评：流氓无赖，人皆弃之！普京的疯狂举动拖累了全体俄罗斯人民，全球制裁俄罗斯的浪潮下，这下俄罗斯人民连苹果手机都买不上了。一个独裁者的疯狂，全体人民遭罪，而全体人民要拿下一个独裁者，只需每个人站出来行动与发声！愿俄罗斯人民早日摆脱普京的魔爪，世界欢迎你们融入全球大家庭！
 
-编辑整理：Jacques；
+新闻来源：[yahoo](https://tw.news.yahoo.com/%E8%98%8B%E6%9E%9C%E5%AE%A3%E5%B8%83-%E6%9A%AB%E5%81%9C%E5%9C%A8%E4%BF%84%E7%BE%85%E6%96%AF%E7%9A%84%E6%89%80%E6%9C%89%E7%94%A2%E5%93%81%E9%8A%B7%E5%94%AE-220318943.html)
 
-字幕档制作：兵嫂；
+撰稿/发布：一叶知秋
 
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
