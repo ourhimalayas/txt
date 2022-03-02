@@ -2,20 +2,22 @@
 ---
 
 
-## 俄乌开战导致全球原油和天然气价格飙升
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2094996/)
+## 志愿者向乌克兰捐赠百万美元加密货币
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2094997/)
 
 作者：日本方舟农场-Miyale7768(文玉)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月26日，据美国媒体报道，鉴于目前俄罗斯对乌克兰发动的全面攻势，全球原油价格首次飙升至每桶100美元以上。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-02-上午10.56.29.png)
-数据显示，作为全球石油基准的布伦特原油指数在24日上午达到了每桶101.66美元，增幅超过4%。同时，美国WTI原油指数也在当天飙升了近7%，涨至每桶98.69美元，这也是自2014年以来美国石油价格的最新峰值。
+当地时间2月26日，据西班牙媒体报道，一家区块链分析公司的数据显示，截至目前，为了应对俄罗斯对乌克兰的入侵，非营利组织和志愿者团体已经筹集了近 470 万美元的加密货币捐款。其中，最大的一笔捐赠款项高达300 万美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-02-上午10.56.39.png)
+据了解，在过去十年的俄乌冲突中，这些支持乌克兰的志愿者团体陆陆续续地使用银行转账和支付应用程序等方式向乌克兰捐赠了数百万美元。另一方面，加密资产如今已成为了一种重要的金融交易替代方式，其不仅使快速跨境捐款成为可能，还可以使捐款者避开那些可能干扰这些捐赠的金融机构。
 
-此外，PVM石油协会的高级分析师在25日的一份简要报告中表示，由于当前的紧张局势，全球的股票和石油市场短期内将仍有波动。此外，即使是东欧当地的局势得以缓解，相关产品的紧张也可能会使石油价格在未来几个月内依然保持在高位状态。其原因在于，俄罗斯是全球石油市场的主要参与者，也是欧洲地区最大的石油供应国。
+此外，该区块链分析公司的首席科学家指出，加密货币捐赠方式特别适合国际筹款，因为这种方式没有国界且不接受审查，所以没有任何第三方机构可以阻止此类交易。
 
-另一方面，石油价格是天然气价格的最大决定因素。美国能源信息管理局的数据显示，本周美国天然气的平均价格达到每加仑3.53美元，处于自2014年7月以来的最高水平。
+报道也提到，志愿者的捐款，尤其是加密货币的部分在目前的俄乌冲突中发挥了关键作用，这也显示出了加密货币不可替代的地位。
 
-参考链接：[Gas Prices Set to Skyrocket After Oil Soars Beyond $100 for the First Time Since 2014](https://georgiastarnews.com/2022/02/25/gas-prices-set-to-skyrocket-after-oil-soars-beyond-100-for-the-first-time-since-2014/)
+参考链接：
+1）[https://gettr.com/post/px8g1u54d2](https://gettr.com/post/px8g1u54d2)
+2）[Más de $4.7 millones en criptomonedas donados al ejército de Ucrania desde que inició la invasión rusa](https://elamerican.com/millones-en-criptomonedas-ejercito-ucrania/?lang=es)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 

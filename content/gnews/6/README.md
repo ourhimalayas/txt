@@ -2,37 +2,26 @@
 ---
 
 
-## 有声|乌克兰总统拒当逃兵，领导民众智慧抗敌
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2095048/)
+## 新中国联邦在乌克兰战火中崛起
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2095076/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月26日，在俄罗斯对乌克兰的侵略进入第三天时，乌克兰首都基辅发生了激烈的战斗但仍未沦陷。普京原计划围困拥有300万人口的基辅，以活活饿死其市民，迫使乌克兰总统投降，但未能如愿。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/220225192804-ukrainian-president-zelensky-full-169.jpeg)图片来源: The Guardian
-乌克兰人为这场关系到国家生死存亡的战争一直在勇敢而团结地抗争，24.5万现役军人与22万预备役军人全部投入战斗，700万适龄男子拿起武器参与战斗，老年人和妇女拿到武器后也加入战斗，可谓全民皆兵。美国曾提出协助乌克兰总统泽连斯基撤离乌克兰，但他直接回答:“战斗就在这里，我需要的是弹药，而不是撤离！”
+采编/编辑撰稿： 硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/03/06-image.png)
+据3月1日盖特消息，文贵先生当天透露，普京日前再次敦促习近平必须按双方此前约定，立即出兵攻打台湾。试图以此转移国际社会对俄乌战争的注意力，减轻其内外交困的政治压力。
 
-同时，泽连斯基通过报道战争的残酷和俄军暴行，用社交媒体信息战让俄罗斯进入塔西佗陷阱，并让欧洲为其GPS和网络控制提供了帮助，智慧地领导世界上第一次AI参与的战争，并赢得了世界的尊重与支持，被尊称为“战争绅士”。
+据悉，针对新中国联邦的战争救援行动，中共已紧急通知驻各国大使馆做好与海外华侨团体负责人的联络工作，并严格监控微信关于新中国联邦救援乌克兰的言论。
 
+目前，大量中共驻外大使官员已携巨款潜逃。而新中国联邦将在不久后展示对同胞的救援成效，以事实结果来揭露中共流氓政权的邪恶本质，唤醒所有尚存良知的中国人。
 
+此外，由于习近平对普京血腥入侵乌克兰的公然支持，以及中共正在进行的欺骗性政治宣传，导致中国人如今已成为乌克兰乃至整个欧洲最受憎恨的族群，全球排华危机已近在咫尺。
 
-文字版原文：[乌克兰总统拒当逃兵，领导民众智慧抗敌](https://gnews.org/zh-hans/2093336/)
+战争局势瞬息万变，但全世界此刻已无人再相信中共的习近平和俄罗斯的普京，而世界格局也将因此被彻底改变。同时，新中国联邦已荣获来自西方民主国家更多的信任和支持，并最终成为今后在没有共产党的中国，实现一人一票民主选举制度的推动者，倡导者和监督者。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+校对编辑：硫酸羟氯喹64
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+发稿：苦尽甜来 (文来）
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源：[https://gettr.com/post/pxllrkc2fd](https://gettr.com/post/pxllrkc2fd)
 
  
 

@@ -2,22 +2,37 @@
 ---
 
 
-## 新中国联邦珍惜生命热爱和平
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2095014/)
+## 有声|中共抹黑新中国联邦在乌克兰的救援行动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2095029/)
 
-编稿： Quitman            编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/03/05-image.png)
-据2月28日文贵先生盖特消息，目前俄军入侵乌克兰已造成严重人道灾难。【新中国联邦】正不惜一切代价与联合国救援组织紧密合作，无条件救助在乌克兰的中国同胞和任何需要逃离战火的难民。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**郭文贵先生28日在盖特贴出了中共对乌克兰留学中心公众号的**“**紧急公告”，称境外反华组织**“**XXX联邦”发布虚假撤侨文件，目的是搜集在乌华人信息。 **
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-167.png)
+**对此，郭先生撰文指出，中共刻意隐去**“**新中国**“**三个字，连新中国联邦的全名都不敢公布，是在恐惧华人知道有新中国联邦的存在。 郭先生重申，这次新中国联邦的大救援，是与国际救援组织合作，完全向国际公开，所有参与救援的团队、飞机、经费、物资都是可以经得起任何检查，并符合法律规定的。 **
 
-据悉，尽管中共当局在得知【新中国联邦】的救援行动后，立即通过第三方发布虚假通告，试图对此加以阻挠。但文贵先生表示，无论不同的政治观点，肤色和种族，紧急救助受困于乌克兰的同胞、友人和难民为目下第一要务。并希望本次行动可促使中共或任何其他国家都能去乌克兰战场参与救助。[新中国联邦]将以此向世界展示其珍惜生命，尊重人权，热爱和平的精神。
+**郭先生批评，如果中共真心想救助中国人，在几千个同胞受到战争炮火威胁的生死存亡之际，中共不应该寻找种种借口逃避救助同胞的责任，把时间和精力耗费在玩弄低级伎俩去误导、欺骗同胞，阻止他们获得救助，中共这种严重的犯罪行为，应受到全世界正义的谴责和审判。**
 
-评论指出，在无数同胞生死攸关的危难时刻，中共仍沉迷于玩弄流氓政治手段，愚弄无辜百姓。不仅编织谎言拒绝撤侨，还黔驴技穷地阻止海外华人得到最可靠、最及时和最安全的生命救助,天灭中共已无人可挡!
 
-校对编辑：硫酸羟氯喹64
 
-发稿：苦尽甜来 (文来）
+文字版原文：[中共抹黑新中国联邦在乌克兰的救援行动](https://gnews.org/zh-hans/2093526/)
 
-原资料链接：[https://gettr.com/post/pxet5c34c2](https://gettr.com/post/pxet5c34c2)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

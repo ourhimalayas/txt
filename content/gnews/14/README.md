@@ -2,30 +2,34 @@
 ---
 
 
-## 世界最大飞机在俄罗斯入侵乌克兰时被毁
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2094995/)
+## 俄乌开战导致全球原油和天然气价格飙升
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2094996/)
 
-**撰稿：日本东京方舟农场  Miyali7768(文玉)  幽蘭自得**
+作者：日本方舟农场-Miyale7768(文玉)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月26日，据美国媒体报道，鉴于目前俄罗斯对乌克兰发动的全面攻势，全球原油价格首次飙升至每桶100美元以上。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-02-上午10.56.29.png)
+数据显示，作为全球石油基准的布伦特原油指数在24日上午达到了每桶101.66美元，增幅超过4%。同时，美国WTI原油指数也在当天飙升了近7%，涨至每桶98.69美元，这也是自2014年以来美国石油价格的最新峰值。
 
-据《THE HILL》2月28日报道，世界上最大的飞机安东诺夫-225货机（Antonov An-225 Mriya）被俄罗斯军队催毁，该消息得到了乌克兰外交部长的证实。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-15.png)（图片来自网络）
-据乌克兰国营新闻组织《Ukroboronprom》报道，这架被称为 “Mriya “或 “梦想 “的飞机在基辅附近的戈斯托梅尔(Gostomel)机场被毁，当时它正在维修中。
+此外，PVM石油协会的高级分析师在25日的一份简要报告中表示，由于当前的紧张局势，全球的股票和石油市场短期内将仍有波动。此外，即使是东欧当地的局势得以缓解，相关产品的紧张也可能会使石油价格在未来几个月内依然保持在高位状态。其原因在于，俄罗斯是全球石油市场的主要参与者，也是欧洲地区最大的石油供应国。
 
-另据美国有线电视新闻网（CNN）报道，根据Maxar技术公司的卫星图像显示，存放AN-225飞机的部分机库遭到了严重破坏。美国国家航空航天局的资源管理系统的火灾信息也检测到机场有多处火灾，包括存放飞机的机库。
+另一方面，石油价格是天然气价格的最大决定因素。美国能源信息管理局的数据显示，本周美国天然气的平均价格达到每加仑3.53美元，处于自2014年7月以来的最高水平。
 
-乌克兰外交部长库莱巴（Ukroboronprom）27日在他的推特账户上证实了飞机被毁的这一消息，并表示“俄罗斯可能已经摧毁了我们的‘Mriya’。但他们永远无法摧毁我们建立一个强大、自由和民主的欧洲国家的梦想，我们将获胜！”
+参考链接：[Gas Prices Set to Skyrocket After Oil Soars Beyond $100 for the First Time Since 2014](https://georgiastarnews.com/2022/02/25/gas-prices-set-to-skyrocket-after-oil-soars-beyond-100-for-the-first-time-since-2014/)
 
-据悉，修复这架飞机的费用将超过30亿美元，修复工作将需要五年左右的时间。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
-乌克兰国营新闻组织《Ukroboronprom》表示，”我们的任务是确保这些费用由俄罗斯联邦承担，因为它对乌克兰的航空和航空货运部门造成了故意损害”。
+总编：Irene木木
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-参考链接：
-1.[https://thehill.com/policy/international/596094-worlds-largest-plane-destroyed-in-russian-invasion-of-ukraine](https://thehill.com/policy/international/596094-worlds-largest-plane-destroyed-in-russian-invasion-of-ukraine)
-
-素材采编：Miyali7768(文玉)  幽蘭自得
-编辑：老孙
-发布：爱放飞
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
