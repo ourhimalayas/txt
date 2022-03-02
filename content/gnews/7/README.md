@@ -2,12 +2,39 @@
 ---
 
 
-## 3月2号勿忘香港（图片1-9）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2095914/)
+## 乌克兰卫国战争再现“坦克人”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2096100/)
 
-设计 五月花农场 企鹅
-![](https://assets.gnews.org/wp-content/uploads/2022/03/B22C073D-A699-4A8F-8C3F-C8E440C435F7.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/45DF80AB-6606-482C-8F71-17AABA29E9AE.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/649F8981-F4C4-4DF5-A65D-75243A7662B2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/C6283D1B-D6B1-463D-85E5-C983C8CB4159.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/357AE12C-D370-4D3F-BABC-F1C7E148BD15.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/A3A1913E-6C26-4A67-8E2F-9B0E9A87CC34.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/BFCA6372-4517-4473-BB74-FECC0A3AAFE6.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/4A19301D-EBA3-437F-A711-0C44E09C62FB.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/06ABA0DD-E89D-427C-B063-DD16DF7B72A1.jpeg)
-发布：水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/03/77apzgj-874k8-2.jpg)6·4天安门“坦克人”（图片来源：网络）
+“坦克人”不是一款游戏，不是坦克机器人，也不是开坦克的人（比如动画片《舒克和贝塔》中驾驶坦克的小老鼠）。“坦克人”是：以肉体之身阻止坦克前进的英雄。
+
+中国人第一次认识“坦克人”是在1989年的64事件。一名外媒记者拍下了实时画面：一位身穿白衬衫，黑长裤的中国男性挡在了一辆绿色八一坦克前面。此时，中共高层已经决定动用武力镇压来自民众的示威，用实弹射击民众，用坦克碾压民众。面对庞然大物的战争机器，这位”坦克人”勇敢的冲上去阻挡。同时期，前立陶宛人也出现了”坦克人”，以肉身抵挡苏联坦克车。而这些“坦克人”都有个共性：普通民众用自己的血肉之躯，对抗来自于暴政或侵略者的武力。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/cfj.png)立陶宛“坦克人”（图片来源：https://gnews.org/zh-hans/1801027/）
+而今天，俄罗斯入侵乌克兰的战争中，再次出现了“坦克人”壮举。在社交媒体上，多位乌克兰”坦克人”阻挡俄罗斯坦克和装甲车前进的视频被广泛传播。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/123xcf.png)（图片来源：https://gettr.com/post/px0w369279）
+（图片来源：https://gettr.com/post/px0y5wa807 ）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9ikbhyk1.jpg)
+为什么会有人做出这样的“傻事”？
+
+我们没有见过被坦克碾压过的人，但是我看过被碾压的汽车。无论怎么吹嘘自身结构多么安全的汽车，在坦克面前都不堪一压，瞬间被压成车饼。我们可以想象如果一个人被坦克碾压，后果会是怎样！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/vfn.jpg)（图片来源：网络）
+坦克号称陆战之王，是爱国者保卫国家的利器。但是如果被用到屠杀人民和侵略它国，坦克就是恃强凌弱的象征。用肉体阻挡坦克是一种无奈之举。”坦克人”深知，如果不阻挡坦克的前进，他的家人、同胞、朋友都会受到伤害。前进的中共坦克是为了屠杀中国同胞，而俄罗斯坦克是为了入侵乌克兰。“坦克人”没有国籍、肤色和信仰之分，只有正义与邪恶之分。“坦克人”是用忘我的勇敢行为，来告诉全世界发生在乌克兰战场上的真相。
+
+“坦克人”不是傻，而是勇敢无畏和崇尚正义。乌克兰”坦克人”站在俄罗斯坦克面前，是为了阻止杀戮！阻止自己的同胞被杀，也阻止俄罗斯的坦克葬身于火海。相比于调侃战争和歌颂战争的狂热战争分子，这些勇敢的乌克兰”坦克人”让人肃然起敬。
+
+没有战争，就不会有“坦克人”。只要还有战争，还会出现类似的“汽车人”、“飞机人”、“大炮人”。为了世界和平，必须制止操纵和发起战争的行为，坚决阻止战争的发生。如今，乌克兰发生的一切，不是一场游戏，不是一场军事演习。战争很残酷，请珍惜和平，更不能为战争叫好。
+
+为“坦克人”祈福，为乌克兰和俄罗斯双方因战争死去的人们默哀！愿和平尽快回归乌克兰！
+
+***【文章观点仅代表作者个人，与Gnews平台无关】***
+
+作者：洛杉矶盘古农场-文如
+编辑：洛杉矶盘古农场-柯镇恶
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

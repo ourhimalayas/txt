@@ -2,34 +2,42 @@
 ---
 
 
-## 中共将毀于自身的假和騙
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2095233/)
+## 新数据显示COVID疫苗对年轻人只有风险没有好处（1/3）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2095456/)
 
-撰稿：紐約磐石农场-在远方
+翻译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/06AB5F9F-4CB6-4895-A168-24655B6E2F5B.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-209.png)图片来源：childrenshealthdefense.org
 
+根据斯蒂芬妮·塞内夫（Stephanie Seneff ）博士和独立研究员凯西·多普（ Kathy Dopp ）的成本效益分析，对于 80 岁以下的人来说，COVID-19 疫苗比 COVID 病毒本身更致命，并且，对儿童和年轻的成年人提供的只有风险。
 
+故事概览：
 
-
-```
-在2月27日的大直播中，郭先生表示，俄乌战争对中共的触动很大，已经影响到中共的对台作战战略，但是中共将会毁于自身的假和骗。
-```
-
-
-郭先生说，习近平具有非常矛盾的性格，文化程度不高、循规蹈矩却又非常固执倔强。“双头鹰计划”是习近平与普京的既定战略，因此对于习来说，开两会和打台湾并不对立。据中共军方人士告诉郭先生说，中共原先认为俄罗斯会在48小时内拿下乌克兰，并对泽连斯基进行斩首。因此中共也曾经计划迅速攻下台湾，并用无人机对民进党高层进行斩首。或者依靠台湾卖台贼进行内部斩首，即所谓的“杀独救台”。但是俄乌战争中俄罗斯糟糕的表现，和乌克兰成功的信息战、科技战、网络战所形成的强烈对比，对中共有很深的触动。
-中共军委副主席许其亮和总参三部的李八喜，看到俄乌战争战况以后表示，如果共军使用最廉价的武器进行闪电战，妄图侵略台湾的结局恐怕会适得其反。因为不仅美日在台海周围布置了潜艇部队，而且共军攻台的空军、无人机和导弹，都依赖信息通信，而共军的电子战又是他们的致命短板，因此当前俄乌战争状况对中共军方震动很大，已经影响到了共军的攻台战略。但是共军的下级军官为了保全自身的命运和既得利益，却只能欺骗共军高层应该继续对台湾实行闪电战，因此中共一定会毁于自身的相互造假和相互欺骗。
-
-[新闻鏈接] [https://www.gettr.com/post/pxjkrya329](https://www.gettr.com/post/pxjkrya329)
-
-编輯/校正/发稿：玫瑰圓
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FE32174F-B5FA-43BD-AE1B-C10F3D2323AA.jpeg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/D120B9F8-8EAE-4A1D-BF30-50A005DE6427.jpeg)
+- 最近的数据分析显示，对于 80 岁以下的人来说，COVID 疫苗比 COVID-19 病毒本身更致命。对于年轻人和儿童来说，没有好处，只有风险。
 
 
+- 与未接种疫苗的人死于 COVID-19 的风险相比，所有 50 岁以下的年龄组，在接受 COVID 疫苗后死亡的风险更大。
 
+
+- 对于 18 岁以下的人，COVID 疫苗会增加他们死于 COVID-19 的风险。如果接种疫苗，他们死于疫苗的可能性也比死于**COVID**病毒的可能性高**51 **倍。
+
+
+- 只有当您进入 60 岁及以上时，疫苗和 COVID 病毒感染之间的风险才会变得差不多。在 60 至 69 岁的年龄组中，疫苗注射每挽救一个死于 COVID 的人，就会杀死一个人，因此，对于任何人来说，疫苗是否值得，这是一个争论。
+
+
+- 数据表明，向 VAERS 报告的美国死亡人数被低估了 20 倍。
+
+
+详细新数据分析，请见下文。
+
+素材链接：[childrenshealthdefense.org] [COVID Vaccines: All Risk, No Benefit for Kids and Young Adults, New Data Show](https://childrenshealthdefense.org/defender/covid-vaccines-all-risk-no-benefit-kids-young-adults/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=802493ff-397e-46d1-8d8c-f5b50cb8275d)
+
+* * *
+
+*审核：文乐
+校对：小东
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

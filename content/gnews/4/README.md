@@ -2,31 +2,22 @@
 ---
 
 
-## 这就是新中国联邦的力量
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2096067/)
+## 加拿大金融机构终止与俄罗斯央行交易
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2096151/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大温哥华扬帆农场    平民正道
 
-2022-02-27直播摘录
+据加拿大CTV新闻2月28日报道，加拿大副总理兼财政部长弗里兰宣布，从当天开始，该国所有金融机构都不得再与俄罗斯中央银行进行任何交易。并以此与美国在内的G7伙伴一起，共同制裁俄罗斯对乌克兰的入侵。
 
-美国所有的军事飞机和军事机密商用它有几个前提条件：它必须是在联合国的框架组织下你租用，而且使用者你的身份是最重要的。Karen你再有钱你也不能去租飞机，说我去干嘛去，我要干点什么其他事去，我约我男朋友去。那是对美国、美军是个耻辱，怎么可能啊？谁租给你飞机他下台了，是不是？你不具备这些条件，你的钱不是钱，你的钱是纸。这就是大家兄弟要明白的，这就是新中国联邦的力量。如果你没有国际化的组织概念、没有国际化的法律概念和国际的政治概念、国际的关系概念，没有地域政治和地域宗教的概念，你没有经历过战争和战争中的概念，你不懂得这些，你一样都不可能。这就像直播一样。
+加拿大财政部表示，这是历史首次以该方式制裁G20国家的中央银行。此举同资产冻结和停止与俄罗斯主权财富基金交易一样，旨在阻止俄罗斯动用任何国际货币储备来实现其对乌克兰的入侵。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+近日，加拿大和盟国一起对俄罗斯采取了一系列金融制裁措施，包括将几家主要俄罗斯银行从SWIFT金融支付系统中剔除。
 
-**关注我们**
+评论称：在文贵先生于2月25日指出，当前最有效和最直接制裁俄罗斯和中共暴政的措施就是停止其SWIFT国际支付权之后，欧美各国政府如获至宝，纷纷效法。从而鲜明体现出新中国联邦真实强大的国际影响力。
 
-Discord 账号
+* * *
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑： 平民正道    发布：平民正道
 
  
 
