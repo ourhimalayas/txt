@@ -2,20 +2,40 @@
 ---
 
 
-## 新中国联邦珍惜生命热爱和平
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2096172/)
+## 小男孩泪流满面地描述逃离乌克兰,因为他父亲留下来保护国家
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2096279/)
 
-加拿大温哥华扬帆农场    平民正道
+[https://gtv.org/video/id=621f4a1b4353d33974c4aea0](https://gtv.org/video/id=621f4a1b4353d33974c4aea0)
 
-据2月28日文贵先生盖特消息，目前俄军入侵乌克兰已造成严重人道灾难。【新中国联邦】正不惜一切代价与联合国救援组织紧密合作，无条件救助在乌克兰的中国同胞和任何需要逃离战火的难民。
+We left dad in Kyiv
+我们把爸爸留在了基辅
 
-据悉，尽管中共当局在得知【新中国联邦】的救援行动后，立即通过第三方发布虚假通告，试图对此加以阻挠。但文贵先生表示，无论不同的政治观点，肤色和种族，紧急救助受困于乌克兰的同胞、友人和难民为目下第一要务。并希望本次行动可促使中共或任何其他国家都能去乌克兰战场参与救助。[新中国联邦]将以此向世界展示其珍惜生命，尊重人权，热爱和平的精神。
+And dad will be selling things and helping our heroes, our army
+爸爸会卖些东西，帮助我们的英雄，我们的军队
 
-评论指出，在无数同胞生死攸关的危难时刻，中共仍沉迷于玩弄流氓政治手段，愚弄无辜百姓。不仅编织谎言拒绝撤侨，还黔驴技穷地阻止海外华人得到最可靠、最及时和最安全的生命救助,天灭中共已无人可挡!
+he might even fight
+他甚至可能会去战斗
 
-* * *
+**原视频链接**[**: **https://twitter.com/foxnews/status/1498145939432767491?s=24](https://twitter.com/foxnews/status/1498145939432767491?s=24)
 
-编辑： 平民正道    发布：平民正道
+Date:03/01/2022
+原视频标题:‘WE LEFT DAD IN KYIV’: Little boy tearfully describes fleeing Ukraine as his father stays behind to protect country
+“我们把爸爸留在了基辅”：小男孩泪流满面地描述逃离乌克兰，因为他的父亲留下来保护国家
+原视频日期：2022/02/28
+原视频链接https://twitter.com/foxnews/status/1498145939432767491?s=24
+任务编号：KE431（3888）
+视频时间段 : 0:00-0:30
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

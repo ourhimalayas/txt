@@ -2,20 +2,16 @@
 ---
 
 
-## 乌克兰要求欧美协助建立禁飞区
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2096168/)
+## 后共时代 世界大变局
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2096195/)
 
-加拿大温哥华扬帆农场    平民正道
+文贵大直播20220302
 
-据【路透社】2月28日报道，乌克兰总统泽连斯基在俄军机无差别轰炸该国城市后要求国际社会为乌克兰提供针对俄罗斯的禁飞区，欧美及其盟国对此已初步达成了一致的支持。
+撰稿：三票先生（DC）
 
-报道称，俄乌双方日前进行的数小时停火谈判未能取得成功，俄军随即对拥有140万人口的[哈尔科夫]市发动猛烈空袭，并造成包括妇孺在内的大量平民伤亡。因此泽连斯基促请北约，应立即阻止俄罗斯的军机和导弹侵入乌克兰领空。
-
-据悉，尽管美国已排除了直接派遣部队与俄军地面作战的可能性，但国际社会对普京威胁将使用核武器表示严重担忧。由于美方对乌克兰的禁飞区诉求表示支持，因此美军在执行此任务时，极有可能会造成美俄的直接军事冲突。
-
-* * *
-
-编辑： 平民正道    发布：平民正道
+美工：长颈鹿（雅典娜）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8-2.png)
+*发布：Theodosia*
 
  
 
