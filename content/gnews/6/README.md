@@ -2,30 +2,38 @@
 ---
 
 
-## G7财长就加强对俄施压达成一致
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2092012/)
+## 澳洲国防部长呼吁中共向普京施压使其退出战争
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2092183/)
 
-![德国绿党和自民党党主席年纪只有四五十，新生代将撑起德国新内阁？_手机新浪网](https://n.sinaimg.cn/spider20211126/741/w1000h541/20211126/f0f5-dbb42a59a45b55ff08d6acf31858f9f4.jpg)德国财长林德纳（资料图）
-据共同社3月2日报道，日美欧七国集团（G7）1日在线召开财长和央行行长会议，就对进攻乌克兰的俄罗斯加强施压的方针达成了一致。日本财务相铃木俊一在会后召开记者会，围绕追加经济制裁称“今后也将迅速采取进一步行动”。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-另据路透社称，轮值主席国德国的财长林德纳在会后召开记者会，介绍称“讨论了（对俄）实施何种追加措施可行”。林德纳称“希望在政治、财政和经济上孤立俄罗斯”。美国财长耶伦在声明中强调：“将与盟友协作，继续支持把俄主要银行排除在SWIFT之外。”
+翻译/编辑：小红帽
 
-近日俄罗斯宣称已接入中共国CIPS系统，以此绕开SWIFT系统。对于小粉红和五毛来说，怎么也想不到俄罗斯已开始洗劫自己和所有中共国老百姓的财富，吃草的日子不远了。西方国家已看清与普京狼狈为奸的中共才是背后最大的始作俑者，终究逃不了被制裁和诛杀的命运。
-
-新闻参考链接：[https://china.kyodonews.net/news/2022/03/c9b91f939a28-g7.html](https://china.kyodonews.net/news/2022/03/c9b91f939a28-g7.html)
-
-编辑：MQ
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-13.png)图片来源：www.theaustralian.com.au
 
 
-编辑：【英国伦敦喜庄园编辑部】
+根据澳大利亚新闻网3月2日报道，澳大利亚国防部长彼得·达顿表示，习近平是“唯一”能够阻止俄罗斯在乌克兰各地展开激烈大屠杀的人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+达顿周二与总理莫里森一起承诺提供1.05亿美元的致命和非致命武器援助，以帮助乌克兰军队和北约盟友反击俄罗斯的入侵。达顿表示局势正在恶化。
+
+西方国家强烈谴责普京总统的入侵行为，并实施严厉的制裁。但中共没有跟随制裁的步伐，反而加强了两国之间的贸易关系。
+
+中共和俄罗斯长期以来一直保持着牢固的外交和金融关系，许多西方领导人呼吁习主席在当前的冲突中采取更有力的措施。
+
+莫里森先生周二表示，他对俄罗斯和中共国之间的关系感到“担忧”。“我相信中国正在非常仔细地观察这件事，这就是为什么我一直不厌其烦地表示，中国需要像其他国家一样采取强有力的立场，谴责俄罗斯的所作所为”。
+
+参考链接：[Peter Dutton calls on China to put pressure on Russia to end Ukraine conflict](https://www.news.com.au/world/peter-dutton-calls-on-china-to-put-pressure-on-russia-to-end-ukraine-conflict/news-story/c3dec2d854350145f1c4ab2f8fe2f983)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 

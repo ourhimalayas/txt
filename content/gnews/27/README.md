@@ -2,49 +2,44 @@
 ---
 
 
-## 有声|俄乌阶段性战况汇总
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2091537/)
+## 中共病毒疫苗的两种成分可以杀人
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2091666/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-
+作者：纽约磐石农场—在远方
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phprM8oVA-768x511-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-8.png)
 
 
-台湾媒体2月26日报道，美国政府为阻止俄军的斩首行动，准备帮助乌克兰总统泽连斯基从基辅撤离，但泽连斯基拒绝离开基辅。
+盖特2月26日消息，苏查里特.巴克迪教授表示，中共病毒疫苗中含有两种可以杀人的成分，即脂质纳米颗粒和信使核糖核酸mRNA。它们所产生的蛋白质会对人体会造成致命伤害。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/092160.png)
+巴克迪说，在注射中共病毒疫苗后，血管损伤和血栓会在人体全身形成，尤其是小血管和流速较慢的血管。mRNA会撞击内皮组织并被其吸收，血管泄漏可能会出现在人体的任何地方，比如心脏、肝脏、肺和大脑等重要器官，产生破坏和一系列不可预测的反应。而mRNA和刺突蛋白寿命很长，这些外来基因进入人体后，会在人体全身持续数周的制造蛋白质，对人体的攻击也持续数周。
 
-长期追踪俄罗斯军队动态的美国麦克萨科技公司卫星图像显示，有俄罗斯军队正在波兰边境集结，虽然尚不清楚原因，但美国国务卿布林肯表示，担心俄罗斯可能有乌克兰以外的目标。
+脂质纳米颗粒和血流停止所导致的器官损伤，在心脏部位会导致心肌炎，人们会死于心脏病；在肺部会让人得肺炎，虽然肺部并没有感染，但是肺部却会受到免疫系统或者脂质纳米颗粒的攻击和伤害；在脑部会堵塞小血管，会让患者头痛欲裂、麻痹、四肢失去平衡，或者造成各种奇怪可怕的神经病变；在皮肤部位，则会造成人体外表的迅速老化。
 
-乌克兰副总理费多罗夫致信苹果CEO库克，希望苹果公司能响应美国政府制裁，停止在俄罗斯销售产品，并关闭在俄罗斯的苹果商店应用程序，或有助于激发俄罗斯年轻人反对普京的侵略行动。
+参考来源：
 
-俄罗斯驻美大使证实，俄军在攻占车诺比核电站之后，挟持了92名职员作为人质。 联合国安理会表决谴责俄罗斯入侵乌克兰、要求俄国立即撤军的决议，遭到安理会轮值国主席俄罗斯的否决。
+[https://gettr.com/post/pwyvd20d3f](https://gettr.com/post/pwyvd20d3f)
 
-中共国、印度和阿联酋3国弃权。 欧盟27个会员国通过了对俄罗斯的第2轮制裁方案，宣布冻结普京和俄罗斯外交部长拉夫罗夫在外国的资产，美国和加拿大也宣布了类似的制裁方案。欧盟外交官指出，该制裁行动是一个重要的政治信号。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
 
-北约秘书长斯托尔滕贝格宣布，北约在部署部分战备反应部队，以强化其东侧防御，并持续向乌克兰输送防空系统等武器。这是北约首次在集体防御的背景下，部署反应部队。
+编辑/校对/发稿：兰兰
 
-
-
-文字版原文：[俄乌阶段性战况汇总](https://gnews.org/zh-hans/2080820/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-9.png)
+
 
 
 

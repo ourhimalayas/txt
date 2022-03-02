@@ -2,84 +2,38 @@
 ---
 
 
-## 也许是时候世界支持台湾合法政府的独立了
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2091836/)
+## 俄SWIFT将被切断 加息难阻民众挤兑
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2092085/)
 
-参议员马可.卢比奥： 由于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click) 支持承认俄罗斯在 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 的傀儡的独立，也许是时候世界支持 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) 合法政府的独立了
+作者：香草山信息部 诺雅、 我不在這裡
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月28号，在美欧周六发表联合声明，同意将俄罗斯指定银行踢出SWIFT国际结算系统之后，俄罗斯央行立即将关键利率从9.5%提高到20% 。尽管采取了紧急措施，在俄各地仍然迅速出现银行挤兑的状况。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-01-下午11.35.41.png)
+据俄罗斯央行称，大幅提高利率，是为了 “支持金融和价格稳定，并保护公民的储蓄不受贬值影响”。同时，将释放7330亿卢布的本地银行储备，以提高货币流动性。另外，俄罗斯央行和财政部表示，将命令俄罗斯出口公司在市场上出售其80%的外汇收入。
 
+这一系列举措显示出俄央行对银行挤兑的担忧。事实上，在各大城市的自动取款机上，已经出现了排长队提取现金的情况。某购物中心一台ATM机前大约排了70人，目击者说，取款机的钱在40分钟内就被取完了。
 
+据悉，俄罗斯现有约6300亿美元的外汇储备，为有史以来的最高水平。分析人士认为，这有助于抵御制裁和出口创汇的损失。但如果海外资产被冻结，俄罗斯的货币金融系统将出现灾难性的后果。截至目前，卢布兑美元持续跌至1美元兑119.50卢布，较上周五收市时贬值45%。
 
-> Since [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) supports recognizing the independence of Russian puppets in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) maybe its time the world supports the independence of the legitimate government of [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Marco Rubio (@marcorubio) [March 2, 2022](https://twitter.com/marcorubio/status/1498825760924176391?ref_src=twsrc%5Etfw)
+参考链接：
+1）[https://gettr.com/post/px96e83d78](https://gettr.com/post/px96e83d78)
+2）[https://gettr.com/post/px90jk1da2](https://gettr.com/post/px90jk1da2)
+3）[Russia central bank more than doubles key interest rate to 20% to boost sinking ruble](https://www.cnbc.com/2022/02/28/russia-central-bank-hikes-interest-rates-to-20percent-from-9point5percent-to-bolster-ruble.html)
+4）[Russia’s central bank doubles interest rates to 20% as ruble plunges over sanctions](https://www.yahoo.com/news/russian-central-bank-scrambles-respond-062443584.html)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图.png)
 
+总编：Zion文恩
+编辑：宁文静
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-参议员玛莎·布莱克本： 在对乌克兰采取了令人发指的行动后，俄罗斯不配获得联合国安理会的席位。
-
-
-
-> Russia does not deserve a seat on the UN Security Council after its egregious actions toward Ukraine. [pic.twitter.com/qz24oQcHMK](https://t.co/qz24oQcHMK)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 2, 2022](https://twitter.com/MarshaBlackburn/status/1498829680509693954?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎.布莱克本： 联合国必须剥夺俄罗斯在安理会的否决权。
-
-
-
-> The UN must strip Russia of its ability to veto in the security council.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 1, 2022](https://twitter.com/MarshaBlackburn/status/1498787977719431172?ref_src=twsrc%5Etfw)
-
-
-
-拜登总统： 普京总统认为他可以顺利挺进乌克兰——世界将会接受。 相反，他遇到了他从未想到过的强力阻击。 他遇到了(强大的)乌克兰人民。
-
-
-
-> President Putin thought he could roll into Ukraine — and the world would roll over.
->  
-> Instead, he met a wall of strength he never imagined.
->  
-> He met the Ukrainian people.
-> — President Biden (@POTUS) [March 2, 2022](https://twitter.com/POTUS/status/1498843134721150979?ref_src=twsrc%5Etfw)
-
-
-
-拜登总统： 美国司法部正在组建一个专门的工作组来追查俄罗斯寡头的罪行。 我们正与我们的欧洲盟友一起寻找并没收他们的游艇、豪华公寓和私人飞机。 我们不会放过他们的不义之财。
-
-
-
-> The U.S. Department of Justice is assembling a dedicated task force to go after the crimes of Russian oligarchs.
->  
-> We are joining with our European allies to find and seize their yachts, their luxury apartments, their private jets. 
->  
-> We are coming for their ill-begotten gains.
-> — President Biden (@POTUS) [March 2, 2022](https://twitter.com/POTUS/status/1498844556300886022?ref_src=twsrc%5Etfw)
-
-
-
-比尔·格茨: 拜登今晚没有提到要让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对传播导致大流行的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 负责。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 放出致命病毒，是邪恶的，必须承担责任，否则北京将制造更多致命的瘟疫。
-
-
-
-> Biden tonight made no mention of holding Communst China accountable for spreading the virus that caused the pandemic. The CCP unleashed the deadly virus, is evil, and must be held responsible or Beijing will create even more deadly plagues
-> — Bill Gertz (@BillGertz) [March 2, 2022](https://twitter.com/BillGertz/status/1498854110472278016?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 同意劳拉·英格拉汉姆[@IngrahamAngle](https://twitter.com/IngrahamAngle) – 拜登必须制裁 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 支持俄罗斯入侵乌克兰的行径。 俄罗斯、[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)、伊朗和北朝鲜是新的邪恶轴心国。 必须阻止他们。
-
-
-
-> Agree with [@IngrahamAngle](https://twitter.com/IngrahamAngle?ref_src=twsrc%5Etfw) – Biden must sanction Communist China for bolstering Russia’s invasion of Ukraine.
->  
-> Russia, China, Iran and North Korea are the new axis of evil.
->  
-> They must be stopped. [https://t.co/dmx0r74mcE](https://t.co/dmx0r74mcE)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 2, 2022](https://twitter.com/MarshaBlackburn/status/1498835382389125120?ref_src=twsrc%5Etfw)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

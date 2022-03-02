@@ -2,37 +2,52 @@
 ---
 
 
-## 科顿：“是时候将俄罗斯从SWIFT系统中彻底剔除了”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2091139/)
+## 唱灭共的雪时感觉头上有人捏着让嗓子顶着鼻子找到感觉
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2091449/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/030205.jpg)视频截图
-摘要翻译：
+G-TV视频链接：https://gtv.org/video/id=62164dc71408ee3a03a3c925
 
-布赖特巴特新闻网2022年2月27日报道，周日，阿肯色州共和党参议员汤姆·科顿(Tom Cotton)推动完全切断俄罗斯与SWIFT国际银行系统的联系，以阻止俄罗斯对乌克兰的侵略。科顿在美国广播公司的《本周》节目中表示，为了阻止俄罗斯总统弗拉基米尔·普京，“是时候将所有俄罗斯机构从国际支付系统中移除了”，并“对他的石油和天然气出口实施制裁”。
+**郭文贵先生：**哎呀，——我爱你，塞北的雪，轰轰烈烈，满山遍野，你用自己那无暇的身躯，净化被谎言笼罩的世界，你把真相传递给了人间，唤醒了无尽的黑暗，沉睡的心田。
 
-“我们可以做的还有很多。”科顿概述道，“我首先想与所有阿肯色人一起表达我的祈祷和对勇敢的乌克兰人的支持，他们正在击退弗拉基米尔普京赤裸裸的、无端的侵略战争。你已经看到乌克兰军队在装甲和空中力量居劣势下，击退了对基辅、哈尔科夫和其他城市的袭击。我们已经看到母亲和他们的孩子们在制作燃烧弹，乔治，祖母和祖父们据报说要获取AKs自动步枪，因为这样他们就可以参加战斗。而我们可以做的不仅仅是祈祷、贴主题标签和点亮建筑物，乔治。是时候让总统和我们的一些欧洲伙伴们停止四处游荡了。昨晚宣布的金融制裁漏洞百出。”
+你看我说着我能唱上去，唱A调我还能唱完，这，不简单，不简单不简单。
 
-“我知道他们说他们已经制裁了俄罗斯80%的银行——不过，弗拉基米尔·普京控制着俄罗斯100%的银行。”他继续说道，“他可以用剩下的20%银行继续资助他的战争机器。是时候将所有俄罗斯金融机构从国际支付系统中移除了。是时候对他的石油和天然气出口实施制裁了，他将石油和天然气出口作为他的主要财政支持手段。我们需要把昨天宣布交付的那些武器抓紧送到前线：反坦克、防空导弹、狙击步枪、弹药、燃料供应。它本来应该在几周前就完成，不过迟到总比没有好。但乌克兰人没有时间。他们没有时间，乔治。现在是一分钟也不能浪费了。我们需要与他们站在一起。”
+就是我第一次唱《塞北的雪》的时候，我连哼都哼不出来，甭说唱了。特别是，就是这个，（唱）“我爱你，塞北的雪”，我就这样：塞北的雪，完了，就转不了弯儿。你知道吗？
 
-**简评：**
+然后“飘飘洒洒”就这块儿“飘飘洒洒”（唱）“飘飘洒洒漫山遍野”，你知道我这，Tex你知道吗？飘飘洒洒，我说我咋回事儿，我就使劲掐我脖子，我说你这是红的，Miles Guo你就把它唱成豫剧了——飘飘洒洒，漫山遍野。
 
-科顿参议员指出了现在俄乌战争的要点，欧美各国的政客们站在自己及其利益集团的政治立场上，不太可能从乌克兰国家安全和乌克兰人民的利益出发，彻底切断俄罗斯的经济命脉，更不用说军事上正面支持乌克兰了。是乌克兰人民的英勇抗争换来了如今全世界的声援和军援的局面。可以预见，欧美政客的这种态度，将会反复多次，直到战争结束，但战争结果如何，现在很难预测。可以知道的是，俄罗斯总统普京正在加速走在法西斯主义的道路上，并且看起来已是很难回头了。普京与中共习近平政权此次掀起的这场战争，注定会让这两个独裁者不得善终，因为他们这种以战扩张的思维和行为模式已经不适应现代社会，世界人民向往和平的潮流不可阻挡，这种充满好战思维的国家领导人，最终会被世界人民及其本国人民彻底抛弃，在他们发动战争那一刻，他们的政治生命就已经开始倒数了。
+但是就是咱们国内的战友跟我说：“七哥你把嗓音顶到鼻子上。”然后唐平给我喊，唐平说你唱G调，七哥你别唱AB调;然后Q May在那儿说你唱G调，你慢点儿唱，然后战友给我比划一下，是吧？（唱）“飘飘洒洒漫山遍野”。哎呀！一下把豫剧改成歌曲了，哎呀！感觉牛了，来感觉了！然后这是，——“你的舞姿是那样的美呀”——哎呀！这感觉就来了！她说：你知道为啥，七哥？这个歌曲的来源，就是最早东北“二人转”，这个写词的人取决于东北“二人转”，还有江苏的什么昆剧。特别是那个，——“你的舞姿是那样的轻盈”，他说这是江苏昆剧，“二人转”和昆剧的结合。
 
-新闻链接：[Cotton: ‘It’s Time to Remove All Russian Financial Institutions from the International Payment System’](https://www.breitbart.com/clips/2022/02/27/cotton-its-time-to-remove-all-russian-financial-institutions-from-the-international-payment-system/)
+“哎呀！”我说“行啊！”找到感觉！从豫剧又改成咱东北小时候哼的“二人转”，这个时候我特别就是，改歌词我唱的时候啊，特别是有句话，就是“净化被谎言笼罩的世界”，真的太难了，你知道我唱的真的有千遍，我待在洗手间里，（唱）“你净化被谎言”，我一唱我就高了就没了，一下就走了，一下就过去了。特别我唱到那，（唱）“轰轰烈烈漫山遍野”——哎呀，我找到感觉了，来了！
 
-*翻译/简评:Sima（正道主义）*
-*校对:Harvey（叶知秋）*
+你说太对了，Tex，你说我觉得什么？我给人说人要觉得我放屁。Tex你说你信不信？七哥给你说实话，我就那天晚上我就感觉我头上就有个人捏着，就在后面捏着我，就这样后面捏着我。就他让我嗓子顶着鼻子感觉的时候，就哼的时候，我就一下子觉得找到感觉了，一下找到感觉了啊。
 
-* * *
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+编辑整理：Jacques；
 
+字幕档制作：兵嫂；
 
-编辑：【英国伦敦喜庄园编辑部】
+视频制作及上传：Cindy；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
 
 

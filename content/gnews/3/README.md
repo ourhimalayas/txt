@@ -2,22 +2,31 @@
 ---
 
 
-## 美国石油巨头退出俄罗斯
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2092035/)
+## 苹果宣布暂停在俄罗斯的所有产品销售
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2092246/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-142.png)[图片来源](https://www.ft.com/content/64bb733e-2266-4bef-8a86-289afb8d18ad#:~:text=ExxonMobil%20racks%20up%20a%20third%20straight%20loss%20as%20pandemic%20dents%20demand)
-美国石油巨头埃克森美孚公司3月1日宣布，将退出俄罗斯远东萨哈林沿海的石油和天然气开发项目（萨哈林1号）。该项目日本公司也有参与其中。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7bbc84d71c6441db87de313d61b7eea5.jpg)苹果宣布暂停在俄罗斯的所有产品销售 网络图片
+据台湾中央广播电台3月2日报道，由于俄罗斯入侵邻国乌克兰，西方政府和大企业已切断与俄罗斯的往来，或进行惩罚性制裁。科技巨擘苹果公司(Apple)1日宣布，停止在俄罗斯的所有产品销售。
 
-在俄罗斯入侵乌克兰后，国际上正在不断推出对俄经济制裁的情况下，该公司放弃了继续实施该项目的计划。并表示强烈谴责俄罗斯的军事行动。随着俄罗斯侵略的加剧，它将不会在俄罗斯进行任何新的投资。
+苹果公司发表声明称，“我们已经暂停了在俄罗斯的所有产品销售。上周，我们停止在俄罗斯销售管道的所有出口，苹果支付(Apple Pay) 和其他服务也将受到限制，而俄罗斯国营RT电视台和卫星通讯社(Sputnik)的新闻在俄罗斯境外已无法下载”。
 
-除了埃克森公司、由日本政府资助的萨哈林油气开发公司、伊藤忠商事株式会社、丸红株式会社、日本石油勘探公司以及其它公共和私营实体，俄罗斯国有石油巨头俄罗斯石油公司和一家印度公司也参与了萨哈林1号项目。埃克森公司负责项目的运营，而日本公司拥有30%的股份。
+苹果在声明中说，“我们对俄罗斯入侵乌克兰深感关切，并与所有因暴力事件而遭受苦难的人站在一起，我们正支持人道努力，为正在蔓延的难民危机提供援助”。
 
-信息源：[米エクソン、「サハリン1」撤退　ロシア石油・ガス開発事業　日本企業も参画](https://news.yahoo.co.jp/articles/0897ed8c5fc6b370ec5fda936d78b57c0e5546ab#:~:text=)
+新闻参考链接：[https://www.rti.org.tw/news/view/id/2125958](https://www.rti.org.tw/news/view/id/2125958)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
