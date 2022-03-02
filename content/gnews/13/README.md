@@ -2,23 +2,16 @@
 ---
 
 
-## 视频|美财政部：禁与俄中央银行交易 制裁俄财富主要来源
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2092721/)
+## 俄乌战争｜乌克兰加入欧盟申请 获欧洲议会压倒性支持
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2092920/)
 
-制作：香草山视频部
+**撰文/ 港台前线｜发布日期/ 02/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-1-2.png)更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
+日前，乌克兰提出加入欧盟的申请，欧洲议会投票结果以“637人赞成、13人反对、26人弃权”获压倒性支持。然而，乌克兰申请加入欧盟，仍必须经过漫长程序，可能需要数年时间。（欧洲议会同意乌克兰加入欧盟的申请）
 
-2月28日，在与盟国和合作伙伴的协调下，美国财政部外国资产控制办公室OFAC限制了俄罗斯中央银行、俄罗斯主权财富基金和俄罗斯财政部获得数十亿美元资产。
+歐盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）表示“乌克兰民族勇敢的为欧洲价值挺身而出，没有人可以质疑他们属于欧洲大家庭。”乌克兰总统泽连斯基则表示“我们（乌克兰）已经证明了我们的实力，证明和欧洲一样。”
 
-这一行动将在财政上限制俄罗斯维持其战争的能力，进一步打击已经迅速贬值的卢布，并贯彻了美国与合作伙伴及盟友在2月26日做出的承诺，即采取限制性措施，防止俄罗斯联邦中央银行通过部署其国际储备削弱美国制裁的影响。
-
-财政部同时制裁了三家与俄罗斯主权财富基金关系密切的实体：俄罗斯直接投资基金RDIF、俄罗斯直接投资基金的股份公司管理公司JSC RDIF，以及有限责任公司RVC管理公司 LLC RVC。并对普京的亲密好友，RDIF和JSC RDIF的CEO——基里尔·德米特里耶夫——进行个人制裁。
-
-发稿：林礼
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+來源｜[NR](https://www.nationalreview.com/news/european-parliament-votes-to-advance-ukraines-application-for-eu-membership/)
 
  
 
