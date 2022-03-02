@@ -2,94 +2,35 @@
 ---
 
 
-## 示威者无视当局对俄罗斯入侵乌克兰表示愤怒
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2096440/)
+## 大直播后记：中国人把政治玩到邪
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2096456/)
 
-[https://gtv.org/video/id=621f4ad74353d33974c4aece](https://gtv.org/video/id=621f4ad74353d33974c4aece)
+#### 整理：清水冷香、大甜甜
+编辑：Mohegayer K. Simon
 
-AP
-美联社
-St Petersburg, Russia
-俄罗斯圣彼得堡
-February 27, 2022
-2022年2月27日
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-11.png)
 
-No to war
-不要战争
+图片来源：墨尔本雅典娜农场设计组
 
-Anti-war protests continued in Russia for a 3rd consecutive day
-俄罗斯反战抗议活动连续持续第三天
 
-They defied authorities to show their anger over Moscow’s invasion of Ukraine
-他们违抗当局，展示对莫斯科入侵乌克兰的愤怒
+刚才你们亲身经历了网络被黑。这个世界真和假之间就是有没有温度，有没有感情，就是流没流水的差距，说白了就那么简单。你不到现场来，你没感觉，到现场，吓成这样，七哥这几年就这么过来的。
 
-Olga (Anti-war protester)
-奥尔加（反战抗议者）
+继续说我老家的事情，他二闺女也跟人家跑了。他当时是一句话就能决定别人生死的人。现在打完疫苗，腿也抬不起来，他年龄也很大了啊。我想告诉大家，这是我山东老家，所谓的孔子之乡。我是来自孔子之乡，别忘了。盐城孔府和聊城跟我们相距几十公里，一百英里的地方就是孔子出生的地方，所谓的文人非常多的地方。
 
-War must be stopped. It must be
-必须停止战争，必须停止
+就他家能出这样的事儿。你看啊，大闺女也奉献一个，第二个闺女也找不着了，老了还打疫苗，谁能躲过这种上天的诅咒呢？咱们中国的政治，“政”字儿是什么？不正经的，非正义的文人叫“政”，非正义的文人组建的集团叫做“政府”，非正义的文人，叫做“政治”。中国人把这个政治真是玩到邪了，你看我老家就这样。
 
-It’s crazy what’s going on right now
-现在发生的事情太疯狂了
+结果我扭头跟另外一个人通话时，我说让我很惊讶，白大哥家怎么能出这种事啊？我都不知道。你说他给我说了句啥？这是跟我们老家一起出来长大的亲戚，他说七哥你别那么天真，你太天真了。他说他一家人要做多少恶呀，从他爷爷那辈就作恶，他说这个哥们儿就是，他说在山东从非洲来的学生引进以后，他第一个就把他闺女给送进去了，他怕失去了机会。他说咱们这老家的人，他说咱们山东在鲁西穷，他为啥穷啊，凡坏事咱一个冲上去。好事，咱一定给它毁咯，这是我老家。我们中国人现在就这样，凡是好事儿，我一定给你下手，冲上去抢了。我抢不着我给你毁了。
 
-We should all shout ‘No to war!’
-我们都应该大喊“不要战争！”
+资料来源：[2022年3月2日文贵大直播](https://gtv.org/video/id=621f6ab7019ef64da653b4fe)
 
-We should go out, because it can’t happen any other way
-我们应该出去，因为它不可能以任何其他方式发生
+发布：*wenly*
 
-Otherwise we will lose Russia
-否则我们将失去俄罗斯
-
-Not only will we lose Ukraine, but Russia as well
-我们不仅会失去乌克兰，还会失去俄罗斯
-
-Activists took to the streets in at least 48 cities across the country …
-活动家在全国至少 48 个城市走上街头……
-
-… according to human rights monitoring group OVD-Info
-……根据人权监测组织 OVD-Info
-
-Police in riot gear dragged some protesters into police vans
-身穿防暴装备的警察将一些抗议者拖入警车
-
-5,907 people have been arrested at anti-war protests in Russia so far
-迄今为止，在俄罗斯的反战抗议活动中已逮捕了 5,907 人
-
-AFP/Ukrainian Border Guard Committee
-法新社/乌克兰边防委员会
-
-The Russian military crossed into Ukrainian territory on February 24
-2月24日，俄军进入乌克兰境内
-
-AP
-美联社
-February 24, 2022
-2022年2月24日
-
-Fighting has continued since as Ukrainian soldiers and civilians put up stiff resistance
-此后，随着乌克兰士兵和平民的顽强抵抗，战斗仍在继续
-
-原视频链接[https://twitter.com/scmpnews/status/1498161039615135744?s=24](https://twitter.com/scmpnews/status/1498161039615135744?s=24)
-
-Date:03/01/2022
-原视频标题:Anti-war protests continued in at least 48 cities across Russia on February 27 as demonstrators defied authorities to show their anger over Russia’s invasion of Ukraine
-2月27日，反战抗议活动在俄罗斯至少48个城市继续进行，示威者无视当局对俄罗斯入侵乌克兰表示愤怒
-原视频日期：2022/02/28
-原视频链接https://twitter.com/scmpnews/status/1498161039615135744?s=24
-任务编号：KE432(3890)
-视频时间段 : 0:00-1:31
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

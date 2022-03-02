@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/2/2022 11:03 PM (UTC)`
+
+3/2/2022 Miles Guo: The rescue led by the New Federal State of China is only for saving lives with no selfishness; we will save lives at all cost, but we must ensure the safety of everyone; rescued people can freely choose where you want to go afterwards; the CCP only saves their own people unconditionally while leaving ordinary Chinese behind<br/><br/>3/2/2022 文贵直播：新中国联邦的大营救没有私心只为救人；我们为救人不会考虑成本代价，但要绝对保证所有人的安全；被救出的人有自由选择出路的权利；中共只会无条件救自己的人，完全不顾普通中国公民的生死<br/>
+![img](https://media.gettr.com/group38/getter/2022/03/02/23/9fe57cc9-199a-8254-ebb9-83e4bbdbf0fe/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@realfayfay 3/2/2022 10:25 PM (UTC)`
@@ -147,13 +154,6 @@
 
 2/28/2022 Miles Guo’s GETTR: Fellow fighters of our media team, please always keep in mind that under no circumstances should you make any fake videos or post any fake information. Everything is just beginning! We shall let our fellow Chinese currently in Ukraine know that we are rescuing all Chinese, no matter who they are.<br/><br/>2/28/2022 文贵盖特：请咱们媒体组的战友们千万记住，千万不能做假视频或传递假消息！一切才刚刚开始，我们要让在乌克兰的中国同胞都知道，不论是谁，只要是中国人咱统统救！<br/>
 ![img](https://media.gettr.com/group26/getter/2022/02/28/23/91a93827-1429-b492-93ef-56115a6da17f/out.jpg)
-
----
-
-`@miles 2/28/2022 10:43 PM (UTC)`
-
-2/28/2022 Miles Guo’s GETTR: Encountering the humanitarian disaster in Ukraine, the CCP not only rescues its own people while leaving Lao Baixing behind, but also is trying to defame and block the professional and legitimate rescue organized by the New Federal State of China; the evil nature of the rogue CCP is completely exposed to the world!<br/><br/>2/28/2022 文贵盖特：面对乌克兰人道灾难，中共不光不管老百姓，只救自己人；还企图抹黑、阻止新中国联邦专业、合法地救援，中共的邪恶流氓本性暴露无遗！<br/>
-![img](https://media.gettr.com/group6/getter/2022/02/28/22/43f52e13-84b1-7fe9-4ea8-ad0652a2dc73/out.jpg)
 
 ---
 

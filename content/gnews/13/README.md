@@ -2,42 +2,40 @@
 ---
 
 
-## 寒夜明志
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2096183/)
+## 小男孩泪流满面地描述逃离乌克兰,因为他父亲留下来保护国家
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2096279/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/030206.jpg)
-作者：紫苏公子
+[https://gtv.org/video/id=621f4a1b4353d33974c4aea0](https://gtv.org/video/id=621f4a1b4353d33974c4aea0)
 
-秦朝鹿马今朝现，
+We left dad in Kyiv
+我们把爸爸留在了基辅
 
-暗夜千年此夜寒。
+And dad will be selling things and helping our heroes, our army
+爸爸会卖些东西，帮助我们的英雄，我们的军队
 
-虎豹豺狼高处踞，
+he might even fight
+他甚至可能会去战斗
 
-蛆蛙蚺蟒井中盘。
+**原视频链接**[**: **https://twitter.com/foxnews/status/1498145939432767491?s=24](https://twitter.com/foxnews/status/1498145939432767491?s=24)
 
-毒魁巨骗金章戴，
+Date:03/01/2022
+原视频标题:‘WE LEFT DAD IN KYIV’: Little boy tearfully describes fleeing Ukraine as his father stays behind to protect country
+“我们把爸爸留在了基辅”：小男孩泪流满面地描述逃离乌克兰，因为他的父亲留下来保护国家
+原视频日期：2022/02/28
+原视频链接https://twitter.com/foxnews/status/1498145939432767491?s=24
+任务编号：KE431（3888）
+视频时间段 : 0:00-0:30
 
-义士仁人铁链拴。
+英听校: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-共产商鞅合帝制，
-
-除魔灭党迎新天。
-
-*校对/审核：仙女儿-文善*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

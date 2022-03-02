@@ -2,16 +2,24 @@
 ---
 
 
-## 后共时代 世界大变局
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2096195/)
+## 新中国联邦在乌克兰战火中崛起
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2096286/)
 
-文贵大直播20220302
+加拿大温哥华扬帆农场    平民正道
 
-撰稿：三票先生（DC）
+据3月1日盖特消息，文贵先生当天透露，普京日前再次敦促习近平必须按双方此前约定，立即出兵攻打台湾。试图以此转移国际社会对俄乌战争的注意力，减轻其内外交困的政治压力。
 
-美工：长颈鹿（雅典娜）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8-2.png)
-*发布：Theodosia*
+据悉，针对新中国联邦的战争救援行动，中共已紧急通知驻各国大使馆做好与海外华侨团体负责人的联络工作，并严格监控微信关于新中国联邦救援乌克兰的言论。
+
+目前，大量中共驻外大使官员已携巨款潜逃。而新中国联邦将在不久后展示对同胞的救援成效，以事实结果来揭露中共流氓政权的邪恶本质，唤醒所有尚存良知的中国人。
+
+此外，由于习近平对普京血腥入侵乌克兰的公然支持，以及中共正在进行的欺骗性政治宣传，导致中国人如今已成为乌克兰乃至整个欧洲最受憎恨的族群，全球排华危机已近在咫尺。
+
+战争局势瞬息万变，但全世界此刻已无人再相信中共的习近平和俄罗斯的普京，而世界格局也将因此被彻底改变。同时，新中国联邦已荣获来自西方民主国家更多的信任和支持，并最终成为今后在没有共产党的中国，实现一人一票民主选举制度的推动者，倡导者和监督者。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 
