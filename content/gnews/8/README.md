@@ -2,34 +2,25 @@
 ---
 
 
-## 郭先生解读台海危机现状
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2094426/)
+## 法律组织援助因未接种而不被假释的囚犯
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2094474/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月27日的大直播中，郭文贵先生对台湾军队和中共军队的状态和实力做了一番独特的科学分析与对比。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-2.jpg)
-郭先生提到，台湾有将近50万现役和预备役专业军人，其优势在于技术战和电子战。同时，就像乌克兰军人一样，台湾军人真心卫国，坚决与台湾共存亡。相较而言，中共的军队中大多数是被共产党洗脑的年轻人，他们的军事素质很差。更何况，共军所谓的技术兵种基本上都是被用来搞政治斗争和内部腐败，其对技术的掌握能力与台湾军队相比，根本不在一个级别。
+采编撰稿：薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/03/01-image.jpg)
+据加拿大媒体[真北方]2月28日报道，安省一名获法院批准假释的囚犯，因未接种疫苗被当地【技能培训及社区矫正中心】拒绝接纳，而最终丧失了出狱学习的机会。
 
-另一方面，在战争心理和战争逻辑中，台湾的国军是誓死抵抗、保家卫国；而中共军队却是实实在在的侵略方，这样可耻的角色只会增加共军士兵的心里负担。
+报道称，由于当事人认为“新冠病毒”疫苗缺乏长期的安全性以及潜在的严重副作用，因而并未接种。对此，【宪政自由正义中心】决定代表该囚犯提起诉讼，对加拿大总检察长和该社区矫正中心采取法律抗争行动。
 
-但郭先生也指出，台湾现在最大问题在于内部的卖台贼。情报显示，国民党和民进党中都有不少人在给中共攻台出谋划策。这卖台贼希望中共能在美国和日本介入之前迅速占领台湾。
+控方律师表示，自由民主的社会将不允许胁迫民众在人身自由和身体健康之间作选择。通过强制任何人注射有巨大风险，并被证明有严重副作用的疫苗，来作为获得自由的交换条件，违背了自由正义的原则，并损害了个人为自己做医疗决定的权利。
 
-参考链接：[2/27/2022 文贵直播: 台海战争中不会打信息战，台湾军队相对于共军的优势是技术战、电子战；台湾士兵的心态和共匪士兵有何区别？为什么台湾最大的问题之一是其内部的卖台贼？](https://www.gettr.com/post/pxeanicf3f)
+据悉，虽然目前在监狱内的犯人无需接种疫苗，但加拿大惩教署却实行强制接种措施，所有被羁押人员都必须以同意接种疫苗作为获得假释的必要条件。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+校对编辑：硫酸羟氯喹64
 
-总编: Irene木木
-编辑: 静言 
-校正/发稿：Fei797
+发稿：苦尽甜来 (文来）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻来源：[​​Justice Centre takes legal action for unvaxxed inmate denied release](https://tnc.news/2022/02/28/justice-centre-takes-legal-action-for-unvaxxed-inmate-denied-release/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
