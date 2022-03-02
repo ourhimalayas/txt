@@ -2,27 +2,20 @@
 ---
 
 
-## 有声｜英国将向乌克兰提供额外的8000万英镑援助
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092636/)
+## 视频|乌克兰战争中的AI技术与示弱公关和唯真不破
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2092810/)
 
-By:**秘翻新闻**
+制作：香草山视频部
 
-**2022-03-02**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/12-2.png)图片来源 Reuters/Efrem Lukatsky
-[《路透社》伦敦3月1日报道，英国周二表示，承诺将再向乌克兰提供额外的8,000万英镑的援助，以帮助该国应对日益严重的人道主义危机。](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
+在2月27日的《文贵大直播》中，郭文贵先生指出，俄乌战争是世界上第一个AI（人工智能）参与的战争。乌克兰总统泽连斯基（对西方）既不抱怨，也不翻脸，智慧地运用了示弱与苦寒公关，使俄罗斯掉进了塔西佗陷阱，开启了现代战争中的新篇章，展现出世界领袖的风范。乌克兰老百姓每天向全球各界发出求救信息，唯真不破的信息唤起了世界各国人民的同情。
 
-[英国政府表示，这笔额外资金使英国对乌克兰的支持总计达到2.2亿英镑。](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
+发稿：林礼
 
-[据报道，其中的1.2亿英镑用于援助，上月宣布的另外1亿英镑用于提振经济，减少乌克兰对俄罗斯天然气进口的依赖。](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-[英国外交部长利兹·特拉斯在一份声明中说:“英国在努力提供拯救生命的人道主义援助以及政治、经济和防御支持的方面，处于最前沿。”](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
-
-秘翻新闻 冰糖葫芦喵编译报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

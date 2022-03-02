@@ -2,24 +2,29 @@
 ---
 
 
-## 美国宣布禁止俄罗斯航班进入领空
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2092441/)
+## 有声｜俄乌危机之际 中共海空军事动向引关注
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092559/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-12.png)[图片来源](https://www.google.com/search?q=Aeroflot+plane&amp;sxsrf=APq-WBsdOT_UL9RYb9k3MVnbwUhKjJEZ6g:1646197633228&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=Ut4C87rOPUjWqM%252CKngw46bkVjnrRM%252C_%253BDbhB3tkWzO9YnM%252CDFVn08umodkA-)
-美国交通部和联邦航空管理局宣布，禁止俄罗斯飞机飞越美国领空的禁令将在3月2日深夜前全面实施。这一禁令将适用于所有客运和货运航班，包括定期航班和包机。
+**By:秘翻新闻**
 
-拜登总统在国情演讲中宣布，将“跟随我们的盟友禁止所有俄罗斯飞机进入美国领空，进一步孤立俄罗斯并对其经济施加额外压力。”
+**2022-03-02**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片999999.jpg)图片源自:网络
+**[据新唐人北京时间3月01日报道，从俄罗斯入侵乌克兰以来，中共军机持续侵扰台湾周边空域。于此同时，中共军队从2月27号开始，在南中国海和渤海进行军事演习。而美国方面则再次展现出对台湾安全的重视。](https://www.ntdtv.com/gb/2022/03/01/a103361237.html)**
 
-除美国外，加拿大和欧盟已经禁止了俄罗斯飞机进入其领空。
+**[根据中共海事局网站的消息，海南海事局最近发布航行警告称：从2月27号至3月1号，南海部分海域将进行军事训练。](https://www.ntdtv.com/gb/2022/03/01/a103361237.html)**
 
-信息源：
+**[辽宁海事局也发布航行警告，从27号至3月13号，将在渤海海峡、黄海北部执行军事任务。](https://www.ntdtv.com/gb/2022/03/01/a103361237.html)**
 
-[ロシア航空機の米領空飛行禁止、2日深夜までに完全実施へ](https://news.yahoo.co.jp/articles/d80c7485ca4535e23cb2433be931beffeb444edb#:~:text=)
+**[另一方面，中华民国空军发布的共机动态显示，中共军机连续六天侵扰台湾，仅2月28号一天，就有7架共机入侵台湾西南防空识别区。](https://www.ntdtv.com/gb/2022/03/01/a103361237.html)**
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+**[与此同时，美国总统拜登3月1号派遣了一个由前高级国防官员和安全官员组成的代表团前往台湾，表达在这敏感时刻对台湾的支持。](https://www.ntdtv.com/gb/2022/03/01/a103361237.html)**
+
+（ 秘翻新闻 二丫编辑报道 ）
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

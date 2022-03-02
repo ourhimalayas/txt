@@ -2,26 +2,22 @@
 ---
 
 
-## 有声｜俄罗斯军队升级对乌克兰平民区的袭击
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092475/)
+## 有声｜英国将向乌克兰提供额外的8000万英镑援助
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092636/)
 
 By:**秘翻新闻**
 
 **2022-03-02**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-2.png)图片来源 美联社
-[据美联社3月2日报道，俄罗斯军队周二升级了对乌克兰基辅地区的袭击，轰炸了乌克兰第二大城市的中央广场和基辅的主要电视塔，乌克兰总统泽连斯基称这是一场公然的恐怖活动。](https://apnews.com/article/russia-ukraine-war-abc3e297725e57e6052529d844b5ee2f)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-2.png)图片来源 Reuters/Efrem Lukatsky
+[《路透社》伦敦3月1日报道，英国周二表示，承诺将再向乌克兰提供额外的8,000万英镑的援助，以帮助该国应对日益严重的人道主义危机。](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
 
-[乌克兰当局表示，有 5 人在电视塔袭击中丧生，该塔距离基辅市中心几英里，距离居民区仅几步之遥。此前俄罗斯宣布将袭击乌克兰情报机构使用的传输设施。](https://apnews.com/article/russia-ukraine-war-abc3e297725e57e6052529d844b5ee2f)
+[英国政府表示，这笔额外资金使英国对乌克兰的支持总计达到2.2亿英镑。](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
 
-[英国国防部表示，过去两天，俄罗斯对人口稠密的城市地区的空袭和炮击有所增加。](https://apnews.com/article/russia-ukraine-war-abc3e297725e57e6052529d844b5ee2f)
+[据报道，其中的1.2亿英镑用于援助，上月宣布的另外1亿英镑用于提振经济，减少乌克兰对俄罗斯天然气进口的依赖。](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
 
-[目前，大约有66万人逃离了乌克兰，还有无数平民在地下避难。联合国人道主义协调员马丁格里菲斯称，由于炸弹的破坏，已导致数十万家庭没有饮用水。](https://apnews.com/article/russia-ukraine-war-abc3e297725e57e6052529d844b5ee2f)
+[英国外交部长利兹·特拉斯在一份声明中说:“英国在努力提供拯救生命的人道主义援助以及政治、经济和防御支持的方面，处于最前沿。”](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
 
-[哈尔科夫居民叶卡捷琳娜·巴本科已连续第五天与邻居在地下室避难。她将此遭遇形容为一场噩梦，避难所里有小孩，老人，情景非常可怕。](https://apnews.com/article/russia-ukraine-war-abc3e297725e57e6052529d844b5ee2f)
-
-[联合国人权办公室表示，已记录到 136 名平民死亡。据信，真正的死亡人数还要高得多](https://apnews.com/article/russia-ukraine-war-abc3e297725e57e6052529d844b5ee2f)
-
-秘翻新闻 文洋 编译报道
+秘翻新闻 冰糖葫芦喵编译报道
 
 发布 : 恩典
 
