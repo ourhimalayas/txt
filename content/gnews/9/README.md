@@ -2,19 +2,20 @@
 ---
 
 
-## 视频|乌克兰战争中的AI技术与示弱公关和唯真不破
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2092810/)
+## 俄乌战争｜世界三大航运公司宣布中止俄罗斯订单 俄军后勤补给陷入困境
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2092829/)
 
-制作：香草山视频部
+**撰文/ 港台前线｜发布日期/ 02/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/世界三大航運公司宣佈中止俄羅斯訂單-俄軍後勤補給陷入困境.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-在2月27日的《文贵大直播》中，郭文贵先生指出，俄乌战争是世界上第一个AI（人工智能）参与的战争。乌克兰总统泽连斯基（对西方）既不抱怨，也不翻脸，智慧地运用了示弱与苦寒公关，使俄罗斯掉进了塔西佗陷阱，开启了现代战争中的新篇章，展现出世界领袖的风范。乌克兰老百姓每天向全球各界发出求救信息，唯真不破的信息唤起了世界各国人民的同情。
+世界三大航运公司，即丹麦航运巨头马士基、瑞士地中海航运公司MSC、以及法国达飞海运集团公司 CMA CGM 相继在周二（1日）宣布，鉴于公司业务的稳定性和安全性已经受到西方制裁的直接或间接的影响，因此他们将不再接受来自俄罗斯的货物预订，并将暂停大部分交付。
 
-发稿：林礼
+马士基在一份声明中表示，“进出俄罗斯的预订将暂时中止，但食品、医疗和人道主义用品除外”。MSC 宣布了類似措施，稱將「僅接受和篩選必需品交付的預訂」。CMA CGM 亦表示，「為了安全起見，將暫停來自俄羅斯的所有預訂。」
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+稍早时间，美国国防部一名高级官员透露，据他所知，俄军在基辅的进攻陷入了困境，除了因为乌克兰的顽强抵抗，更多的是因为遇上后勤补给问题，目前食物、燃料和后备部件都供应不足，严重影响了军队士兵的士气，这位官员估计，不排除俄军正重新组织和调整战略计划。
+
+来源｜[ALJAZEERA](https://www.aljazeera.com/news/2022/3/2/maersk-cma-cgm-and-msc-suspend-russian-deliveries)、[华盛顿时报](https://www.washingtontimes.com/news/2022/mar/1/lack-fuel-and-food-hinders-russian-advance-kyiv-pe/)
 
  
 
