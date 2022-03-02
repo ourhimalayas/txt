@@ -2,35 +2,18 @@
 ---
 
 
-## 有声|郭文贵先生揭露习近平面临的五个危机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2094587/)
+## 美国前国务卿庞皮欧率团抵达台湾
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2094656/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-在2月27日的大直播中，郭文贵先生揭露了习近平接下来将面临五个危机。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-1.jpg)
-首先在台海问题上，如果习近平是选择侵略，将会招致海外各国尤其是美日两国的反击。相反，如果习近平放弃攻台，则会面临极其惨烈的内部斗争，这是习将面临的第二种危机。即使习能够在这两个结局之后得以苟延残喘，也会因为台海问题上受到的羞辱，而郁闷至死。第四，普京因为在乌克兰事件中被世界孤立，一定也不会放过习近平。最后一点，也是郭先生一直提到的，习近平的身体每况愈下，能撑多久都是未知数。
+美国前国务卿庞皮欧3月2日率团访问台湾，在晚间7点半过后即抵达桃园机场，将进行4天的访问行程。总统蔡英文预计3日上午于总统府接见，并颁赠长年力挺台湾的庞皮欧「特种大绶景星勋章」，表彰其对提升台美关系的卓著贡献。
 
+此行除庞皮欧与夫人苏珊伉俪外，前美国国务院国务卿政策规划办公室中国政策规划首席顾问余茂春也一道访台。庞皮欧将会见蔡总统、接受副总统赖清德款宴、拜会立法院长游锡堃、外交部长吴钊燮，并接受外长款宴。庞皮欧也应远景基金会邀请，于4日出席演讲活动。
 
+庞培欧前国务卿是坚定支持台湾的国际重要友人，在其国务卿任内，大力推动台美关系深化进展，不仅强化美国政府对台湾的安全承诺，也开创多项双边机制，并签署多项合作协议，充分展现美国跨党派一致对台湾「坚若盘石」的支持，并经常公开为台湾发声，力挺民主台湾，甚至在卸任前定义中共犯下新疆种族灭绝罪。
 
-文字版原文：[郭文贵先生揭露习近平面临的五个危机](https://gnews.org/zh-hans/2090298/)
+[美国前国务卿庞皮欧来了 今晚率团抵达台湾访问](https://news.ltn.com.tw/news/politics/breakingnews/3846506)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+审核:Athena雅典娜 发布:Amitofu
 
  
 

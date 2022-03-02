@@ -2,28 +2,23 @@
 ---
 
 
-## BKKProVita保险经理被解雇——曾指控新冠疫苗的副作用大
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2093843/)
+## 70名日本人报名义勇军
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2094106/)
 
-#### 翻译/简评                            意大利达芬奇农场                     小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-02-alle-12.20.20.png)图片来源：eventiavversinews.it
-两周前，BKKProVita总裁Andreas Schöfbeck，他就账单信息里泄露出疫苗副作用高发生率一事致函德国疫苗监管机构Paul-Ehrlich-Institut,  此事引起了轰动。
+作者：华夏的文丽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-02-201641.jpg)
+据日本每日新闻报道，日本人看到俄罗斯侵略乌克兰战争的残酷和不愿意看到乌克兰的年轻人在战争中死去，于是报名参加义勇队支援乌克兰，70位报名者中有50名退役自卫军人。乌克兰的紧急救援队允许外国人参加志愿者队伍。
 
-我们在这里谈论过这个话题：拥有1100用户的德国健康保险：新冠疫苗的副作用比政府报告的要大得多。
+日本政府把乌克兰定位危险区域，划分为4级，不建议前往和劝退地区，林芳正外相在记者招待会上说，在日本的乌克兰大使馆希望国际力量前往帮助，但不支持日本国民前往有风险的地区和国家。乌克兰政府只能希望更多的力量去乌克兰进行人道主义支援。
 
-Schöfbeck 被叫去要求替他写的信进行辩护，但一个小时的公司会议后， 他被解雇了。
+感悟：一般民众代表的正义力量正在集结，日本平民的义勇让人敬佩，新中国联邦和其他国际救援组织在危急关头实行救援计划和行动。世界人民一定都站在正义的一边，邪恶一定灰飞烟灭。
 
-Paul-Ehrlich-Institut 的代表，包括其主席 Klaus Cichutek, 已同意同一天下午与Schöfbeck和其他BKK官员会面，讨论他们的担忧， 但这显然是不可能的。
+参考链接：[ウクライナ「義勇兵」に日本人70人が志願　50人が元自衛官](https://mainichi.jp/articles/20220301/k00/00m/030/165000c)
 
-解雇Schöfbeck 是事先无耻地计划好的，是为了阻止他参加那个会议，事实上那次会议没有他也照样举行了。
 
-这就是对新冠疫苗“安全性和有效性充满信心”的人的行为， 但这样做却越来越不可逆转地损害了公众的利益。
 
-当世界的注意力都集中在乌克兰的时候， 我们不要忘了我们每一个人都身处乌克兰， 因为新冠疫苗的灾难无处不在, 而主流媒体及政府闭口不谈疫苗带来的严重副作用。这是一场战争，热战已开始，而疫苗战 、媒体战、信息战也正如火如荼地展开…..
-
-原文链接：[https://www.eventiavversinews.it/il-dirigente-assicurativo-tedesco-della-bkk-provita-che-ha-denunciato-lalto-tasso-di-effetti-collaterali-del-vaccino-rivelato-da](https://www.eventiavversinews.it/il-dirigente-assicurativo-tedesco-della-bkk-provita-che-ha-denunciato-lalto-tasso-di-effetti-collaterali-del-vaccino-rivelato-da)
-
-编辑、上传： Xiao    baige
+审核校对：Barry Jack
+上传排版：F
 
  
 

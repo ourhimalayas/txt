@@ -2,52 +2,37 @@
 ---
 
 
-## 你说……
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2094588/)
+## 有声|拜登指派跨党派代表团于3月1日访台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2094657/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/slv.jpg)
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间2月28日晚，台湾总统府发言人张惇涵表示，美国跨党派代表团将于3月1日至2日，搭乘行政专机来台湾访问。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12.jpeg)
+该代表团将由美国前参谋首长联席会议主席穆伦率领，成员中包括前国防部政策次长佛洛诺伊、前白宫副国安顾问欧苏利文、前白宫国安会亚洲事务资深主任葛林，及前白宫国安会亚洲事务资深主任麦艾文，显示出两党派对印太区域及台湾安全议题的高度共识与重视。
 
-作者：江山
-
-昨天，你对杨改兰的命运漠视
-今天，你对锁链女的遭遇哑言
-你告诉我“你很爱国”“你爱人民”
-甚至，你告诉我“你慈悲、善良”
-
-你望着那一块块奖牌可以流泪
-你觉得那一块块奖牌是你的荣耀
-你却丝毫没有感觉那铁链的冰冷
-你却丝毫不觉得那铁链也是你的枷锁
-
-你说“凡事从自己身上找原因”
-请告诉我“锁链女”做错了什么
-你说遇到危难的时候披上国旗
-却听不到“这个世界不要我了！”
-
-你说“等到一个国家强大就好了”
-然后高喊“终于可以耍流氓了”
-你还说“海峡的两岸血浓于水啊”
-又为何将炮口对准了基隆港？
-
-你相信那些毫无逻辑的谎言毒药
-却听不进半句爆料革命的唯真不破
-你相信“爹亲娘亲不如党亲”
-我相信：跟着共产党，跑步进入火葬场
-
-*校对：仙女儿-文善|审核：文明明*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+张惇涵称，蔡总统将于3月2日与代表会谈，双方将就台美关系及国际区域局势等各项重要议题交换意见。此次台美交流将促进双边关系的稳健发展，共同维护区域的和平稳定，也突显台美关系「坚若盘石」的深远意义。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+文字版原文：[拜登指派跨党派代表团于3月1日访台](https://gnews.org/zh-hans/2089288/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
