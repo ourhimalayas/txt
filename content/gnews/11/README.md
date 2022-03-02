@@ -2,24 +2,40 @@
 ---
 
 
-## 秘翻在线：医疗体系崩溃，乌克兰儿童医院…“患者都没能接收治疗就死了”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2093225/)
+## 俄乌战争，中共将付出代价
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2093428/)
 
-撰稿: Eric Kim
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-25.jpg)图片来源：AFP=韩国MT新闻
-据韩国MT新闻3月1日报道称，正在遭受俄罗斯空袭的乌克兰人陷入危机的不仅仅是侵略者。许多病人处于濒危状态, 因得不到有效的治疗而濒临死亡。特别是儿童医院，更加惨不忍睹。
+作者: 台湾宝岛农场 dobi
 
-乌克兰医生们表示：“包括基辅在内的国内空袭将全面展开，儿童和成人都会出现大量伤亡”。
 
-目前，被俄罗斯侵略的乌克兰国内医疗环境非常恶劣，漫天炮火也波及到了医院，重症患者及伤患也无法轻易转移，战局的僵持让乌克兰的医疗体系逐步走向崩溃。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-9.png)
+俄罗斯普京对乌克兰的攻击不仅持续进行，而且普京也将核力量置于高度戒备状态。白宫新闻发言人珍‧普萨基（Jen Psaki）呼吁中共现在不是袖手旁观的时候，而是应该是和国际一起大声谴责普京和俄罗斯入侵乌克兰主权国家的时候了。
 
-基辅的地铁被用作防空洞，公共交通系统也面临崩溃，医院的医生和其他员工上班也困难重重，但他们依然在自己的岗位上为需要救治的同胞以及妇孺进行治疗，有时也会在医院的地下室睡觉。志愿者们也在竭尽所能为这些手脚被束缚的可敬的人们提供食物和水，以及日常所需物资。
+据外媒报导，有一位美国高级政府官员周日表示，如果中共默许俄罗斯对乌克兰的武力侵犯行为，这将严重损害中共在欧洲，甚至是全球的声誉。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4bfcfad8d3cd100be2f73b7e4e83b329_500x0.png)图片来源: Gettr (@himalayaathena)
+美国华裔政治、国际战略专家裴敏欣（Minxin Pei）27日在其一篇《无论是否与俄罗斯站在一起，中国都将付出代价》文章中提及，俄乌战争爆发，中共最终也许会获得一些地缘政治利益。然而，被视为俄罗斯支持者的中共，其后所要付出的代价将也许也会超过其得到的任何好处。同时，裴敏欣也指出：如果中共在未来几年继续支持俄罗斯的话，将危及中共与西方的商业联系，如中共向俄罗斯提供大量资金和技术，可能会引发对中共实施经济制裁，例如其银行和科技公司等，迫使其付出巨大的代价。然而，若中共不支持俄罗斯，普京在俄乌战争后，可能会进一步鼓励美国加强对台湾的支持。
 
-无论是出于什么原因，战争发起者没有任何正义可言，受伤的永远是那些无辜的老弱妇孺、平民百姓。为一己私欲挑起战争，只会让发起者遭人唾弃，遗臭万年！
+因此，若如裴敏欣所分析的内涵，在中共与俄罗斯共谋的「双鹰头行动」中，无论俄乌战争结果如何，显然中共都将为其与俄罗斯的新战略结盟付出代价。
 
-信息来源: [https://news.naver.com/main/read.naver?mode=LS2D&mid=shm&sid1=104&sid2=232&oid=008&aid=0004714992](https://news.naver.com/main/read.naver?mode=LS2D&amp;mid=shm&amp;sid1=104&amp;sid2=232&amp;oid=008&amp;aid=0004714992)
+新闻链接: [https://www.latimes.com/opinion/story/2022-02-27/russia-china-alliance-ukraine-invasion](https://www.latimes.com/opinion/story/2022-02-27/russia-china-alliance-ukraine-invasion)
 
-责编：Eric Kim
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
+
+编辑/校对/发稿: 卡夫卡的甲壳虫
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 

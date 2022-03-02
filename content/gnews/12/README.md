@@ -2,45 +2,45 @@
 ---
 
 
-## 泽连斯基对欧洲议会发表感人诉求：我们正在付出最终的代价
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2093220/)
+## 新西兰高等法院驳回了对所有国防军人员和警察的疫苗接种授权
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2093362/)
 
-**编译: 真北007**
-![BELGIUM-EU-POLITICS-UKRAINE-RUSSIA-CONFLICT-SUMMIT](https://www.politico.eu/cdn-cgi/image/width=1320,height=880,fit=crop,quality=80,format=auto,onerror=redirect/wp-content/uploads/2022/03/01/GettyImages-1238848510.jpg)图片来源：[Politico/John Thys/AFP via Getty Images](https://www.politico.eu/article/europe-freedom-comes-at-high-price-zelenskyy-speech-european-parliament-ukraine-russia/)
-来自POLITICO EU  三月一日的新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-5.png)
 
-欧盟高级官员们听取了乌克兰总统发自内心的讲话。
+图片来自原文
 
-在俄罗斯军队威胁他的首都之际，乌克兰总统弗拉基米尔·泽连斯基周二向欧洲立法者发表了由衷的演讲，一名议会翻译差点落泪。
+新西兰因实施世界上最严厉的中共病毒（COVID）禁令而闻名，引发了一场 “结束中共病毒（COVID-19）强制限制令 “的车队抗议活动，其灵感来自加拿大的卡车司机自由车队。
 
-在俄罗斯导弹轰炸乌克兰时，一个通过视频连线向特别全体会议传达的信息中，泽连斯基个人呼吁敦促欧洲议会议员在今天下午投票的决议中批准乌克兰加入欧盟，这是基于最近直接授予他的国家欧盟成员国的要求，因为它正在与俄罗斯入侵作做生死攸关的战斗。
+2月25日，周五，新西兰高等法院驳回了总理杰辛达-阿登（Jacinda Arden）对所有国防军人员和警察接种疫苗的授权。
 
-泽连斯基说，“成千上万的人被杀，两次革命，一场战争和五天俄罗斯联邦的全面入侵”是乌克兰获得欧盟成员国身份的“非常高的代价”。
+该授权要求所有国防军和警察在2022年3月1日之前根据《Covid-19公共卫生应对法案》接种两针中共病毒（COVID）疫苗。
 
-他说：“我过去不知道这是我们今天必须付出的代价，这对我和每个乌克兰人来说都是一场悲剧，对我们国家来说是一场悲剧。”
+弗朗西斯-库克（Francis Cooke）法官支持对这项授权的质疑。库克认为，该授权对 《新西兰权利法案》保护的基本权利施加了不合理的限制。所侵犯的相关权利是 “自由拒绝医疗的权利 “和 “表达宗教信仰的权利”，同时承认 “工作权 “也通过 “被迫辞职的相关压力 “受到间接限制。
 
-“我们已经证明了我们的实力，”他补充道。 “我们已经证明，至少，我们和你们完全一样。所以一定要证明你们和我们在一起，一定要证明你们不会抛弃我们。一定要证明你们确实是欧洲人。”
+库克引用在法庭上提供的专家证据，写道：”我不认为该命令会带来实质性的变化”。这包括 “强制接种疫苗无助于防止工人……感染中共病毒（COVID-19），或将其传播给他人 “的证据。
 
-当乌克兰领导人谈到最近对乌克兰文化中心哈尔科夫自由广场的致命袭击时，议会英语翻译在翻译泽连斯基的话时差点崩溃：“这是自由的代价。我们只是为了我们的土地……和我们的自由而战。”
+代表警察和国防人员挑战强制令的律师马修-海格（Matthew Hague）说，他们应该立即能够返回工作岗位。
 
-泽连斯基强有力的讲话在随后的欧盟领导人声明中得到了回应。
+《新西兰先驱报》分享了警方和新西兰国防军发言人的 “两个独立但相同的声明”，其中他们对法院判决的决定性反应并不明确。由于司法裁决刚刚公布，我们将花时间考虑这一决定。我们将与员工沟通下一步措施。在此期间，终止雇佣关系的工作目前不会进行。
 
-欧洲理事会主席查尔斯·米歇尔（Charles Michel）说：“我们欧洲人要挺身而出。”预计欧盟委员会将就乌克兰的候选身份发表意见，而理事会将不会“逃避”其职责，必须“认真研究评估乌克兰已表达的象征性、政治性、强烈且我认为是合法的要求”。
+工作场所关系和安全部长Michael Wood、副警察局长Tania Kura和新西兰国防军首席人事官Matthew Weston准将提交了宣誓书，为该任务辩护。
 
-然而，米歇尔告诫说，给予乌克兰欧盟成员资格将是一条漫长而曲折的道路，欧盟扩充是“一个困难的话题”，成员国对此持有“不同的意见”。
+备注：
 
-欧洲立法者在议会召开会议就乌克兰战争的决议进行投票。结果将于周二晚些时候公布。
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- Covid疫苗本身就是随时爆发的病毒
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
 
-**原文链接：
-**[Politico: Zelenskyy’s emotional appeal to European Parliament: We are paying the ultimate price](https://www.politico.eu/article/europe-freedom-comes-at-high-price-zelenskyy-speech-european-parliament-ukraine-russia/)
 
-**编辑：MQ**
+新闻来源链接：[https://www.lifesitenews.com/news/new-zealand-victory-high-court-strikes-down-vax-mandate-for-police-and-defense-force/?utm\_source=top\_news&utm\_campaign=usa](https://www.lifesitenews.com/news/new-zealand-victory-high-court-strikes-down-vax-mandate-for-police-and-defense-force/?utm_source=top_news&amp;utm_campaign=usa)
 
-**发布：MQ**
+本文作者：Rebecca (一切心皆不可得！)  
+上传排版：Hong
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
