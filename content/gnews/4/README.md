@@ -2,58 +2,44 @@
 ---
 
 
-## 乌克兰网络抵抗组织瞄准俄罗斯电网、铁路
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2094351/)
+## 与中共疫苗作战的加拿大人居然遭遇中国人千元加币索赔
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2094392/)
 
-**翻译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip乌克兰网络抵抗组织瞄准俄罗斯电网、铁路.png)图片来源：reuters.com
-华盛顿，2 月 28 日（路透社）——一名黑客团队协调员告诉路透社，一个乌克兰网络游击战组织，计划对俄罗斯的关键基础设施（如铁路和电网）发起数字破坏攻击，以反击莫斯科的入侵。
+G-TV视频链接：https://gtv.org/video/id=62164e0c1408ee3a03a3c930
 
-据路透社此前报道，上周，乌克兰国防部官员与乌克兰商人和当地网络安全专家叶戈尔·奥舍夫（Aushev）接洽，以帮助组织一个黑客部门来防御俄罗斯。
+**郭文贵先生：**你像加拿大那个所谓起诉大卡车司机的事情，好多加拿大的白人给我发信息，他说：“Miles Guo，你们中国人疯了吧？我们在跟共产党的疫苗作战，你们中国人来告我们，要一千加币这个赔偿。”这哥们很愤怒。我跟他说，你知道那不是我们新联邦中国人，那是共产党的中国人。新中国联邦的中国人不会有一个这样的人的。
 
-周一，奥舍夫表示，他计划组织黑客攻击，破坏任何有助于将俄罗斯军队和武器带到乌克兰的基础设施。
+这个人是每天跟我说，我要告那个高冰尘“黄河边”如何如何的……我阻止我说:“你别浪费你的时间，他不值得让你打，他一泡屎一泡尿都不是，他在那儿挺好”我说“我们每天都上厕所，他在……提醒我去厕所，我说你放心我上厕所的时候喊他名字尿两下子。”但这个人就是对高冰尘恼火，现在看到这个女的所谓调查，非常恼火。他说：“Miles，你一定要记住，我在加拿大对这样的人一定要算账的。”
 
-“一切可能阻止战争的行动，”他告诉路透社。 “我们的目标是，让这些武器无法带到我们的国家。”
+这个人是谁知道吗？这个人是加拿大当时是跟中国所谓的两国之间军事合作局局长——这个加拿大人，当时亲共亲到没辙，自从我爆料革命参加以后，自从我爆料革命参加以后，我在加拿大跟他喝酒，在加拿大的一个中国餐厅，我讲述了我的一切以后，这哥儿们彻底地开始反共。他震惊到加拿大华人如此之堕落，他说“我现在再到温哥华所有的华人我看到都觉得很奇怪”，这是很吓人的兄弟姐妹们，这是很吓人的！
 
-奥舍夫说，他的组织已经击落或破坏了数十个俄罗斯政府和银行网站，有时用战争中的暴力图像替换内容。他拒绝提供具体例子，称这将使俄罗斯人更容易追踪他的团队。
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-俄罗斯称其在乌克兰的行动是“特别行动”，称其目的不是为了占领领土，而是为了摧毁其南部邻国的军事能力，并抓捕它认为危险的民族主义者。
+编辑整理：Jacques；
 
-华盛顿的一名乌克兰国防武官拒绝评论奥舍夫的组织或其与国防部的关系。奥舍夫说，他的小组迄今已发展到** 1000 **多名乌克兰和外国志愿者。
+字幕档制作：兵嫂；
 
-该组织已经与一个对铁路系统进行攻击的外国黑客组织进行了协调。
+视频制作及上传：Cindy；
 
-在奥舍夫团队组建的消息传开后，专注于白俄罗斯的黑客团队白俄罗斯网络游击队自愿攻击白俄罗斯铁路，因为他们说这是用来运送俄罗斯士兵的。
+G-News发布：海贼王M.D.LUFFY；
 
-据彭博社周日报道，网络游击队禁用了铁路的交通系统并关闭了其票务网站。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-周一，网络游击队的一位女发言人告诉路透社，该组织实施了这些攻击，并证实她的组织现在正在与奥舍夫的组织合作。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-这位女发言人说，由于她的团队已经关闭了预订系统，乘客只能通过亲自购买纸质票出行。她向《路透社》发送了一张周一签发的纸质手写票的照片。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-“我们完全站在乌克兰人一边，”她说。 “他们现在不仅在为自己的自由而战，也在为我们的自由而战，因为没有独立的乌克兰，白俄罗斯的自由就没有机会。”
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-周二，俄罗斯外交部发言人玛丽亚·扎哈罗娃告诉俄罗斯新闻媒体，俄罗斯大使馆受到“来自乌克兰的网络恐怖分子”的网络攻击。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-除了回击莫斯科，奥舍夫还表示，他的团队将帮助乌克兰军方追捕入侵城镇的俄罗斯卧底部队。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-他说，他的团队已经发现了一种使用手机跟踪技术来识别和定位在该国移动的俄罗斯卧底部队的方法，但拒绝提供细节。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-据多家媒体报道，据报道，俄罗斯军队在乌克兰使用商用手机进行通信。
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-上周，许多俄罗斯政府网站被报道的分布式拒绝服务 (DDoS) 式攻击公开中断，其中包括针对总统普京办公室的攻击。
-
-**新闻来源**：[reuters.com][Ukrainian cyber resistance group targets Russian power grid, railways](https://www.reuters.com/technology/ukrainian-cyber-resistance-group-targets-russian-power-grid-railways-2022-03-01/?utm_source=newsletter&amp;utm_medium=email&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
-
-
+G-TV：日本银河系农场。
 
  
 

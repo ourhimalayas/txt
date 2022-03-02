@@ -2,30 +2,41 @@
 ---
 
 
-## 新中国联邦救援志愿者集结
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2094215/)
+## 对俄全球制裁导致亚洲股市下跌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2094271/)
 
-意大利罗马达芬奇农场 Shuizhuyu
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/c471c92c-28a4-4cd9-b83f-918433c08185.jpg)
+整理：围剿维尼熊
+编辑：朝花夕拾
 
-
-俄罗斯入侵乌克兰已经一周的时间了。 郭先生直播中说过， 世界上没有一场战争的正义的。 在如此危险的战争条件下， 中共国的驻乌克兰大使居然说， 现在救援条件不成熟， 不能救援。
-
-在乌克兰的中国留学生网上崩溃呼救，他们真的非常危险，中共大使馆不组织撤侨，国内的记者和网络全部限制了他们的求救，他们现在微博抖音国内的平台上说话的权利都没有。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d21a33e8-e593-4666-9b22-f189c4a57967.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图-1.png)图片来源：雅典娜设计组
 
 
-留学生的安全危在旦夕， 紧要关头的2月26日， 郭先生紧急直播，为了应对当前乌克兰紧张局势，新中国联邦和法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。
+路透社报道，亚洲股市3月2日再次承压，油价跳涨。投资者对俄罗斯遭到严厉制裁所造成影响的担忧加剧，此前欧洲和华尔街的股票下挫。
 
-救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。
+随着对莫斯科的全球制裁收紧，美国准备禁止俄罗斯航班使用美国领空，此前欧盟和加拿大也采取了类似举措。
 
-现在各大农场都在积极组织力量，人员物资都在集结中。 身处离战火最近的意大利达芬奇农场组织农场的会员，农场主文科带头整合农场资源， 集结战友， 一切都在准备中。
+亚洲早盘，MSCI明晟亚太地区(除日本)指数下跌0.19%，中国沪深300指数.CSI300跌0.89%。日股日经指数.N225下跌1.5%。
 
-现在来自欧洲的意大利， 西班牙， 德国， 法国，荷兰，希腊的各国的新中国联邦救援志愿者已经准备就绪。
+澳洲指标股指.AXJO上涨0.2%，因大宗商品价格上涨提振了矿商股。
 
-编辑发布： Shuizhuyu
+全球对俄罗斯的制裁已经促使一系列大公司宣布暂停或退出在俄罗斯的业务。
+
+埃克森美孚(Exxon Mobil) XOM.N周二表示将退出俄罗斯业务，包括石油生产领域。此前，英国石油巨头BPBP.L、壳牌石油(Shell)SHEL.L、以及挪威能源企业Equinor EQNR.OL也做出了类似决定。
+
+周三上午，全球指标布兰特原油跳涨2.6%，至每桶107.69美元。美国西德克萨斯中质原油上涨3%，至106.50美元。
+
+参考链接：[https://cn.reuters.com/article/global-market-asia-trade-stocks-0302-idCNKBS2KZ083?il=0](https://cn.reuters.com/article/global-market-asia-trade-stocks-0302-idCNKBS2KZ083?il=0)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

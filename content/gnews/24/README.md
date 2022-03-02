@@ -2,28 +2,24 @@
 ---
 
 
-## BKKProVita保险经理被解雇——曾指控新冠疫苗的副作用大
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2093843/)
+## 秘翻在线：中共表示要确保乌克兰华人的“安全撤离”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2093906/)
 
-#### 翻译/简评                            意大利达芬奇农场                     小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-02-alle-12.20.20.png)图片来源：eventiavversinews.it
-两周前，BKKProVita总裁Andreas Schöfbeck，他就账单信息里泄露出疫苗副作用高发生率一事致函德国疫苗监管机构Paul-Ehrlich-Institut,  此事引起了轰动。
+**撰稿：葛大饼**
 
-我们在这里谈论过这个话题：拥有1100用户的德国健康保险：新冠疫苗的副作用比政府报告的要大得多。
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-02-195321.jpg)图片来源：  搜狐
+根据2022年3月2日新浪报道，中共国务委员兼外长王毅在同乌克兰外长库列巴通电话时表示要确保中共国公民在乌克兰的安全，督促乌方承担相应国际责任。
 
-Schöfbeck 被叫去要求替他写的信进行辩护，但一个小时的公司会议后， 他被解雇了。
+据报道，2月28日，敖德萨和基辅分别撤离了400名和200名留学生。隔天还有从基辅和敖德萨前往摩尔多瓦方向的大规模撤侨安排。第一批从基辅撤离的留学生刘同学接受 《环球时报》记者采访表示：在使馆的护送下，一路顺利。据悉这一轮撤侨，中共国驻乌使领馆将先组织撤离年纪较小的留学生，再撤离其他愿意离开乌克兰的华侨华人。
 
-Paul-Ehrlich-Institut 的代表，包括其主席 Klaus Cichutek, 已同意同一天下午与Schöfbeck和其他BKK官员会面，讨论他们的担忧， 但这显然是不可能的。
+除此之外还有自行撤离的中国留学生，而外交部领事保护中心3月2日通报说已有一名中共国公民在自行撤离途中遭遇枪击受伤，但目前脱离了生命危险。新闻称目前撤离难度最大的是被困在乌克兰第二大城市哈尔科夫的华人。大概是受到新中国联邦发出的救援公告的“压力”， 今天中共国驻乌大使馆要求所有基辅及周边华侨都去指定地点集合统一坐大巴前往摩尔多瓦。
 
-解雇Schöfbeck 是事先无耻地计划好的，是为了阻止他参加那个会议，事实上那次会议没有他也照样举行了。
+生死关头，所谓的“安全撤离”当然是指那些得到使馆护送待遇撤离的中共领导自己的亲属，私生子女，而老百姓的孩子只能自己想办法冒险自行撤离！王毅开国际玩笑，自己国家老百姓的安危自己不管，反倒还要敦促乌克兰负责，这种危机时刻，是骡子是马，可以拉出来遛遛PK一下了！新中国联邦拿出实际行动，展示我们的实力，派出包机去乌克兰拯救中国同胞和国际友人！
 
-这就是对新冠疫苗“安全性和有效性充满信心”的人的行为， 但这样做却越来越不可逆转地损害了公众的利益。
+**[新闻来源](https://news.sina.cn/gn/2022-03-02/detail-imcwiwss3668488.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)**
 
-当世界的注意力都集中在乌克兰的时候， 我们不要忘了我们每一个人都身处乌克兰， 因为新冠疫苗的灾难无处不在, 而主流媒体及政府闭口不谈疫苗带来的严重副作用。这是一场战争，热战已开始，而疫苗战 、媒体战、信息战也正如火如荼地展开…..
-
-原文链接：[https://www.eventiavversinews.it/il-dirigente-assicurativo-tedesco-della-bkk-provita-che-ha-denunciato-lalto-tasso-di-effetti-collaterali-del-vaccino-rivelato-da](https://www.eventiavversinews.it/il-dirigente-assicurativo-tedesco-della-bkk-provita-che-ha-denunciato-lalto-tasso-di-effetti-collaterali-del-vaccino-rivelato-da)
-
-编辑、上传： Xiao    baige
+#  
 
  
 

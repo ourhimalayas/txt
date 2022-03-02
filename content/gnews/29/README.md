@@ -2,44 +2,44 @@
 ---
 
 
-## 疫苗灾难远未开始,不要心存侥幸,不打疫苗是最大收获
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2093630/)
+## 新西兰高等法院驳回了对所有国防军人员和警察的疫苗接种授权
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2093362/)
 
-G-TV视频链接：[https://gtv.org/video/id=62164aee1408ee3a03a3c895](https://gtv.org/video/id=62164aee1408ee3a03a3c895)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-5.png)
 
-**郭文贵先生：**我想告诉大家疫苗，你们千万别以为，我今天要重点说三句话，战友们：疫苗灾难远远没有来。疫苗灾难没有任何侥幸，绝对是比我说的比你们想象得要大得多得多，你一定要做好准备。第三个，你没打疫苗是你一生中做的唯一的最大的、最正确的决定，你永远牢记永远要懂得感恩。
+图片来自原文
 
-这是新中国联邦、爆料革命，给你的什么币、给你什么样的东西，它都没这个比，因为它是你的一切，你死了烧成灰了一切跟你没关系。就像我们的朋友，他说“他姐姐死之前就是使劲喊，说我不想死，我不想死”，她说“让我干啥都可以，我不想死，我看到了美好的世界，让我活下来”，但是她就死了。我不希望任何战友们，到时候你真的发现你要死的时候大声喊着，没有人能拉住你的，拉不住你的。
+新西兰因实施世界上最严厉的中共病毒（COVID）禁令而闻名，引发了一场 “结束中共病毒（COVID-19）强制限制令 “的车队抗议活动，其灵感来自加拿大的卡车司机自由车队。
 
-没打疫苗，家人没打疫苗，是最重要的。打了疫苗赶快吃青蒿素，兄弟姐妹们。我先说了疫苗，兄弟姐妹们，国际上的政治疫苗运动，经济疫苗运动，政治疫苗灾难，经济疫苗灾难，包括你生存的环境，那就是超出你想象的N倍、N倍、N倍，世界因此绝对大改变。
+2月25日，周五，新西兰高等法院驳回了总理杰辛达-阿登（Jacinda Arden）对所有国防军人员和警察接种疫苗的授权。
 
-就这一条我告诉大家，咱不灭共产党，共产党都把自己灭了，他百分之一万会被灭得干干净净，走着看，永远记住！
+该授权要求所有国防军和警察在2022年3月1日之前根据《Covid-19公共卫生应对法案》接种两针中共病毒（COVID）疫苗。
 
-编辑整理：Jacques；
+弗朗西斯-库克（Francis Cooke）法官支持对这项授权的质疑。库克认为，该授权对 《新西兰权利法案》保护的基本权利施加了不合理的限制。所侵犯的相关权利是 “自由拒绝医疗的权利 “和 “表达宗教信仰的权利”，同时承认 “工作权 “也通过 “被迫辞职的相关压力 “受到间接限制。
 
-字幕文件制作：兵嫂；
+库克引用在法庭上提供的专家证据，写道：”我不认为该命令会带来实质性的变化”。这包括 “强制接种疫苗无助于防止工人……感染中共病毒（COVID-19），或将其传播给他人 “的证据。
 
-视频制作及上传：Cindy；
+代表警察和国防人员挑战强制令的律师马修-海格（Matthew Hague）说，他们应该立即能够返回工作岗位。
 
-G-News发布：小满；
+《新西兰先驱报》分享了警方和新西兰国防军发言人的 “两个独立但相同的声明”，其中他们对法院判决的决定性反应并不明确。由于司法裁决刚刚公布，我们将花时间考虑这一决定。我们将与员工沟通下一步措施。在此期间，终止雇佣关系的工作目前不会进行。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+工作场所关系和安全部长Michael Wood、副警察局长Tania Kura和新西兰国防军首席人事官Matthew Weston准将提交了宣誓书，为该任务辩护。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+备注：
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- Covid疫苗本身就是随时爆发的病毒
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+新闻来源链接：[https://www.lifesitenews.com/news/new-zealand-victory-high-court-strikes-down-vax-mandate-for-police-and-defense-force/?utm\_source=top\_news&utm\_campaign=usa](https://www.lifesitenews.com/news/new-zealand-victory-high-court-strikes-down-vax-mandate-for-police-and-defense-force/?utm_source=top_news&amp;utm_campaign=usa)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+本文作者：Rebecca (一切心皆不可得！)  
+上传排版：Hong
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

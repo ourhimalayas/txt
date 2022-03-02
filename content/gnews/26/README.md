@@ -2,62 +2,45 @@
 ---
 
 
-## 滞留在基辅的中国人成为乌克兰人泄愤的目标
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2093753/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2093803/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-11.jpg)
-图片来源：AP
+**整理：枳实**
+**美工：精灵蓝**
 
-在乌克兰的中国人发现自己处于一种紧张的状态，因为他们发现自己被他们热爱的祖国抛弃了。
-
-在西方国家敦促其公民离开乌克兰数周后，随着乌克兰战斗的加剧，中共才启动-将国人撤离乌克兰的包机计划。此前中共大使馆给出的**“保命建议”**是让他们车身贴中共国旗。但是从在乌中国人发在微博或其他社交媒体的视频看，他们发现大使馆的是**“送命建议”。**
-
-**他们发现自己不但成了愤怒的乌克兰人的泄愤对象，更要命的是他们被俄罗斯军人用机枪扫射**！！！
-
-[视频中这位男生强忍着泪说：“俄军出来有七八个坦克装甲，对我们一顿扫射，我们中国人有一个现在中枪，进了医院。”](https://gettr.com/post/pxqnf651a9)
-
-[这个视频里的大叔在陈述乌克兰的反华情况：“乌克兰人反华情绪非常严重，掩体不让进，防空洞不让你钻，前天和今天是完全不同的版本，你们这些畜生，伤害了多少在（乌克兰）的中国人，伤害了多少乌克兰人的心，他们把你当朋友，你们把他当什么了？！这些华侨华人和留学生在这里现在是多么的艰难，昨天国旗不够卖，今天要撤了所有的带中国标志的东西，你们是人吗？！](https://gettr.com/post/pxq7tp1168)
-
-当看到俄罗斯没能在48小时拿下乌克兰后，中共驻基辅大使馆才改口建议在乌克兰的中国公民不要 “暴露你的身份或展示识别标志”。
-
-而撤离乌克兰的包机计划却被搁置。在大使馆发布撤离航班计划的三天后，中国驻基辅的最高特使范先荣大使星期六在大使馆社交媒体账户上发布的一段视频中说，[公民现在需要 “等到安全的时候再走”，“空中有导弹，地面上有爆炸和枪声，两支军队正在相互交战……在这种情况下，怎么可能确保安全（离开）？”](https://gettr.com/post/px7wihe4ab)
-
-中共大使此时发出这种带有威胁性和误导性的通知，会导致多少在乌克兰的中国同胞错失救援的良机而继续面临极其严重的生存危机呢？一些留在该国或长期居住在该国的人对他们的安全担忧，而不仅仅是由于当前的冲突加剧。
-
-“干啥啥不行，害人第一名”的中国共产党，被逼急了，就搞了几辆大巴车选择性地撤走了部分600名认为有价值的人员，送到了一个他能掌控的国家摩尔多瓦（中共国有大量的公派留学生在乌克兰学习航空航天技术）。
-
-同时借此忽悠墙内老百姓，进行荒唐的政治表演。中共根本没能力也没意愿对大量被困在乌克兰的中国同胞实施大规模有效救援。
-
-震惊和难以置信让这些中国人陷入沉默，他们无法相信被“爹亲娘亲不如党亲”的中共无情地抛弃了。[一位女留学生哭诉着质问大使馆：你们说的“与我们同在的祖国呢”？](https://gettr.com/post/pxo6bz1c64)
-
-邪恶中共的反人类行为在他们阻扰新中国联邦救人的表现得到了淋漓尽致的体现。他们面对自己身处危险中的国民，非但见死不救，还搅浑水编谎言阻挠破坏甚至威胁，剥夺在乌中国人最后一点点求生的机会。
-
-2月28日，中共发布紧急通知，污蔑为协助中国公民逃离乌克兰战火而提供的合法人道主义帮助的新中国联邦为反华组织，是以人道主义援助为借口窃取个人信息。而针对中共这种完全反人类的行为，郭文贵先生代表NFSC向邪恶的中共发出了明确的信息。
-
-“如果你真的想拯救你的同胞，你应该让他们得到帮助，不管是来自哪个国家或组织的帮助! 人权和人的生命应该优先于任何政治争端。救人不是共产党的善意之举，而是无可争议的责任! 共产党无权剥夺任何人对受到战争威胁的无辜生命的拯救。在战争中，生命受到威胁，难道我们就不应该救人吗？
-
-在战争期间生命受到威胁的情况下，是保住性命更重要还是担心个人信息被盗更重要？在这种情况下，这些信息来自毫无根据的指控。成千上万的中国同胞正面临着生命和死亡的威胁，而中共却在玩这种低级别的骗人把戏，简直是自取其辱。这一次，中国人民将见证竞争性社会和专制社会的真正区别。在战争与和平、生与死的斗争中，最有资格发言的是那些陷于绝望的人，那些被遗忘、被抛弃的人。”
-
-郭文贵先生一句话就堵死了中使馆的荒唐逻辑：给你们信息了，你救了吗？
-
-最后，让那些在乌克兰战争中被救出并死在战场上的家庭来做最后的裁决，他们会给我们答案的!
-
-新闻来源：
-
-[CNN.com](https://www.cnn.com/2022/02/28/china/chinese-citizens-ukraine-danger-intl-hnk-mic/index.html)
-
-[FT.com](https://www.ft.com/content/af0dbe39-e31a-4db0-8ea9-6e0cb842f7b4)
-
-[Nytimes.com](https://www.nytimes.com/2022/02/27/business/china-russia-ukraine-invasion.html)
-
-[郭文贵先生盖特](https://gettr.com/post/pxh1rg7572)
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片：雅典娜农场设计组 精灵蓝
 
 
+雅典娜疫情更新（2022年 3月2日）
 
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-15.png)
+[2022年3月2日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月2日改进.pdf)
 
+数据来源：
 
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
