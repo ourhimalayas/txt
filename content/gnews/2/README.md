@@ -2,20 +2,18 @@
 ---
 
 
-## 俄乌战争｜世界三大航运公司宣布中止俄罗斯订单 俄军后勤补给陷入困境
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2092829/)
+## 俄乌战争｜吁国民解囊援助乌克兰 蔡英文等带头捐1个月薪金
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2092874/)
 
 **撰文/ 港台前线｜发布日期/ 02/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/世界三大航運公司宣佈中止俄羅斯訂單-俄軍後勤補給陷入困境.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-7.png)更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
+俄乌战争持续，各国陆续对俄罗斯祭出制裁措施。台湾外交部长吴钊燮宣布，行政院将开设赈灾帐户，希望结合各方力量协助难民。总统蔡英文呼吁台湾人民响应赈灾解囊捐款，她和副总统和副总统赖清德、行政院长苏贞昌将带头捐出1个月的所得。
 
-世界三大航运公司，即丹麦航运巨头马士基、瑞士地中海航运公司MSC、以及法国达飞海运集团公司 CMA CGM 相继在周二（1日）宣布，鉴于公司业务的稳定性和安全性已经受到西方制裁的直接或间接的影响，因此他们将不再接受来自俄罗斯的货物预订，并将暂停大部分交付。
+此前，台湾外交部于脸书表示，身为国际社会民主阵营的成员，基于人道主义、Taiwan Can Help的精神，为乌克兰提供所需医疗物资，包含药品、医疗器材约27吨，已由中华航空28日自国际桃园机场启航运往德国法兰克福。
 
-马士基在一份声明中表示，“进出俄罗斯的预订将暂时中止，但食品、医疗和人道主义用品除外”。MSC 宣布了類似措施，稱將「僅接受和篩選必需品交付的預訂」。CMA CGM 亦表示，「為了安全起見，將暫停來自俄羅斯的所有預訂。」
+[Taiwan Can Help, and Taiwan is Helping!](https://www.mofa.gov.tw/cp.aspx?n=2202)
 
-稍早时间，美国国防部一名高级官员透露，据他所知，俄军在基辅的进攻陷入了困境，除了因为乌克兰的顽强抵抗，更多的是因为遇上后勤补给问题，目前食物、燃料和后备部件都供应不足，严重影响了军队士兵的士气，这位官员估计，不排除俄军正重新组织和调整战略计划。
-
-来源｜[ALJAZEERA](https://www.aljazeera.com/news/2022/3/2/maersk-cma-cgm-and-msc-suspend-russian-deliveries)、[华盛顿时报](https://www.washingtontimes.com/news/2022/mar/1/lack-fuel-and-food-hinders-russian-advance-kyiv-pe/)
+來源｜[YAHOO](https://tw.news.yahoo.com/快訊-援助烏克蘭-蔡英文-蘇貞昌-賴清德將捐出1個月所得-061800121.html)
 
  
 

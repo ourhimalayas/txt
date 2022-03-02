@@ -2,18 +2,18 @@
 ---
 
 
-## 俄乌战争｜吁国民解囊援助乌克兰 蔡英文等带头捐1个月薪金
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2092874/)
+## 俄乌战争｜Visa、万事达、壳牌等企业 宣布对俄罗斯制裁
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2092884/)
 
-**撰文/ 港台前线｜发布日期/ 02/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-7.png)更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
-俄乌战争持续，各国陆续对俄罗斯祭出制裁措施。台湾外交部长吴钊燮宣布，行政院将开设赈灾帐户，希望结合各方力量协助难民。总统蔡英文呼吁台湾人民响应赈灾解囊捐款，她和副总统和副总统赖清德、行政院长苏贞昌将带头捐出1个月的所得。
+**撰文/ 港台前線｜發佈日期/ 02/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-1-1.png)更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
+美国支付卡公司Visa Inc 和Mastercard Inc（万事达卡）宣布对俄罗斯实施制裁，阻断多家俄罗斯金融机构进入其支付网络。
 
-此前，台湾外交部于脸书表示，身为国际社会民主阵营的成员，基于人道主义、Taiwan Can Help的精神，为乌克兰提供所需医疗物资，包含药品、医疗器材约27吨，已由中华航空28日自国际桃园机场启航运往德国法兰克福。
+英国能源巨头英国石油公司(BP PLC, BP)周日表示，将脱手其在俄罗斯政府控制的石油生产商Rosneft持有的近20%股权。
 
-[Taiwan Can Help, and Taiwan is Helping!](https://www.mofa.gov.tw/cp.aspx?n=2202)
+全球第二大石油公司英国壳牌(Shell corporation)宣布加入制裁俄罗斯行列，将退出与俄罗斯天然气巨头俄罗斯天然气工业股份公司和相关实体的能源合资企业，其中包含天然气管线“北溪2号（Nord Stream 2）”的参与。
 
-來源｜[YAHOO](https://tw.news.yahoo.com/快訊-援助烏克蘭-蔡英文-蘇貞昌-賴清德將捐出1個月所得-061800121.html)
+來源｜[WSJ](https://cn.wsj.com/articles/%E8%8B%B1%E5%9C%8B%E7%9F%B3%E6%B2%B9%E5%85%AC%E5%8F%B8%E5%B0%87%E8%84%AB%E6%89%8B%E6%89%80%E6%8C%81%E4%BF%84%E7%BE%85%E6%96%AF%E5%B7%A8%E9%A0%ADrosneft%E8%82%A1%E4%BB%BD-%E8%BF%AB%E6%96%BC%E6%94%BF%E5%BA%9C%E5%A3%93%E5%8A%9B-121646010374)、[REUTERS](https://www.reuters.com/business/mastercard-blocks-multiple-russian-financial-institutions-network-2022-03-01/)
 
  
 

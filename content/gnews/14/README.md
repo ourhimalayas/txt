@@ -2,27 +2,28 @@
 ---
 
 
-## 有声｜英国将向乌克兰提供额外的8000万英镑援助
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092636/)
+## 视频|俄乌战争的两个结局和俄罗斯的未来
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2092640/)
 
-By:**秘翻新闻**
+制作：香草山视频部
 
-**2022-03-02**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/12-2.png)图片来源 Reuters/Efrem Lukatsky
-[《路透社》伦敦3月1日报道，英国周二表示，承诺将再向乌克兰提供额外的8,000万英镑的援助，以帮助该国应对日益严重的人道主义危机。](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
+在2月27日的大直播中，郭文贵先生分析了俄乌战争的两个结局，以及俄罗斯的未来。
 
-[英国政府表示，这笔额外资金使英国对乌克兰的支持总计达到2.2亿英镑。](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
+郭先生认为，现在美国还没有实际参与俄乌战争，是在等待重要机会，只要中共侵略台湾，美国就会出手灭共。普京发动侵略战争，已使俄罗斯断送了未来。有两件事已经不可逆转：
 
-[据报道，其中的1.2亿英镑用于援助，上月宣布的另外1亿英镑用于提振经济，减少乌克兰对俄罗斯天然气进口的依赖。](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
+一，全世界已普遍认为俄罗斯是和平的破坏者。在普京时代，国际社会已无法重新接纳俄罗斯为正常的主权国家；
 
-[英国外交部长利兹·特拉斯在一份声明中说:“英国在努力提供拯救生命的人道主义援助以及政治、经济和防御支持的方面，处于最前沿。”](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
+二，俄罗斯人民在世界范围内的各类正常经济活动，将会受到空前的制裁。
 
-秘翻新闻 冰糖葫芦喵编译报道
+俄乌战争也将面临两个结局，一是双方和解。二是乌克兰在美国的帮助下重击俄罗斯，迫使普京动用核武器；或者普京被内部反对势力消灭。俄乌之战一定会突然出现上述两种滑稽的结局之一，但是俄罗斯未来的命运却已经注定，不可逆转。
 
-发布 : 恩典
+发稿：林礼
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
