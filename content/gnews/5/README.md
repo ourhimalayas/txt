@@ -2,44 +2,24 @@
 ---
 
 
-## 伦敦三案齐立打消UBS伦敦丢块肉在瑞士本部作战计谋
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2091113/)
+## 美加两国自愿者踊跃报名参加乌克兰“国际军团”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2091114/)
 
-G-TV视频链接：https://gtv.org/video/id=62164d3f1408ee3a03a3c90d
+#### 翻译/撰稿：文旺|校对: 沙拉猫
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-01-181627.png)图片来自： euractiv.com
+俄国侵略者不断加剧的野蛮轰炸行径以及乌克兰军民表现出的顽强抵抗精神，不仅让最初犹豫不决的西方政客改变了态度，也逐渐获得了欧美国家普通大众的支持。当乌克兰总统泽连斯基（Volodymyr Zelenskyy）刚在星期日宣布组建“国际军团”（international legion）不久后，欧洲一些国家的自愿者就开始报名加入，随后美国和加拿大的许多退伍军人和普通公民也积极响应，前往乌克兰大使馆报名申请。
 
-**郭文贵先生：**你想想现在这个在英国三案齐立呀，这里边儿有三个案子啊——down state、estate、Miles Guo这三个不同的独立法庭。人家UBS一上来就说：哎哎哎，这个down state的事我就不管了，你可以在英国管，但是estate还有Miles Guo这个事儿到瑞士去，就是我让你在英国拿点儿钱给你个几亿美元，然后到瑞士去我把你给灭了，我让你拿不着、只要你跟我妥协，因为瑞士我说了算。你看它有多夸张啊！
+据路透社（Reuters）2月28日的报道，许多美加自愿者认为，如果他们不采取任何行动保卫欧洲，他们自己在本国的民主权利也可能受到威胁。报道指出，自愿者中不仅包括具有作战经验的退伍军人，也包括各行各业的其他人士，比如软件工程师和厨师，其中有的人甚至决定辞掉工作去加入乌克兰国际军团。有些年纪轻的人打算直接前往乌克兰，另一些则来到乌克兰驻美加大使馆提出申请。
 
-接下来你想想这个打架呢是吧？现在我已经做好了给你一大块儿肉，你要一块儿肉我给你一只牛，你要一只牛我给你一个农场，我都做好给你了，但是我要让你保证不能找到我的秘密。
+路透社记者采访了一些自愿者，来自美国阿拉巴马州26岁的达克斯（Dax）便是其中一位。他是美国精锐的步兵第 82 空降师的老兵，他计划与其他退伍美国军人一道前往乌克兰。他说，“如果我不去，我会感到内疚的。”在德克萨斯州奥斯汀，一位25岁并具有美国陆军学员经验的软件开发人员表示，他将利用自己的经验为乌克兰而战。“如果他们愿意捍卫民主，那么我认为那些从民主社会中受益的人有义务支持他们。”这位要求不要提他名字的年轻人说，“在我去机场之前，我不会告诉我的父母。”
 
-就这英国、法国最后决定：不行，全在这儿。这下傻眼了、全傻眼了，这三个全在这儿。所以说你可见它未来的疯狂得有多可怕啊。政治、媒体、经济，就是你最后看到就是”宇宙无限大，地球是一粒沙”中的咱这粒“沙”跟它挑战，谢谢。
+尽管退伍军人在线上提醒那些没有接受过战斗训练的志愿者说，他们要面临的一场真正的战斗，缺乏经验可能对自己和他人造成不利影响，但这并没能阻止那些不具战斗经验的人踊跃参加。
 
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
+报道称，来自加拿大的布赖森·伍尔西（Bryson Woolsey）在看到泽连斯基的呼吁后，当天就辞去了厨师的工作。他没有接受过军事训练，但仍计划购买机票飞往波兰，然后从那儿穿越到乌克兰去自愿参加战斗。33 岁的伍尔西（Woolsey）是加拿大不列颠哥伦比亚省的人，他告诉记者说，当他看到乌克兰受伤的妇女和儿童的照片时，变得焦躁不安，“我觉得我必须做点什么。”23 岁的泰（Tai B.） 是一位在纽约学习新闻学的人，他告诉记者他会做饭，会一些基本的机械工作，也知道如何处理枪支。他已经联系了乌克兰的美国大使馆，要求加入泽连斯基的“国际军团”。他说，“我不想成为英雄或烈士，我只想最终做正确的事情。”而来自美国中西部的 28 岁海德说，他人已经到了基辅，预计将于周二开始军事训练。他说，“我无法想象并忍受欧洲再次陷入战争。”海德将自己描述为一个没有战斗经验的枪支爱好者和狂热的生存主义者。他希望得到头盔、防弹衣、护膝，最终得到一支步枪。
 
-编辑整理：Jacques；
+**评**：独裁者普京以为和黑帮组织中共勾结就可以向乌克兰开战，凭借中共国输血和西方抗衡，重塑世界秩序。但不义之战不得人心，貌似强大的俄军被乌克兰坚强的民意和誓死保家卫国的决心所震撼，几天的进攻无一达到目的，反而遭到世界各国的谴责和制裁，激励了全球无数的勇士参加保卫乌克兰的志愿军，又一次验证了得道多助，失道寡助这一名言。普金定会像郭文贵先生判定的那样，最终被中共玩死。可以肯定，如果习近平也冒然攻打民主的台湾，其下场也会和普金一样，被世界唾弃和制裁，中共国必定完结而由新中国联邦取代，成为一个真正民主法治、与世界千年和平友好的国度。
 
-字幕档制作：兵嫂；
-
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+消息来源：[Americans, Canadians answer Ukraine call for foreign fighters](https://www.reuters.com/world/americans-canadians-answer-ukraine-call-foreign-fighters-2022-03-01/)
 
  
 

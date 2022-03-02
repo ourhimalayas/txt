@@ -2,32 +2,44 @@
 ---
 
 
-## 俄称将对美国在联合国驱逐12名外交官进行报复
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2091094/)
+## 伦敦三案齐立打消UBS伦敦丢块肉在瑞士本部作战计谋
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2091113/)
 
-翻译：灭共文明
+G-TV视频链接：https://gtv.org/video/id=62164d3f1408ee3a03a3c90d
 
-编辑与校对：冰糖葫芦喵、灭共文明
+**郭文贵先生：**你想想现在这个在英国三案齐立呀，这里边儿有三个案子啊——down state、estate、Miles Guo这三个不同的独立法庭。人家UBS一上来就说：哎哎哎，这个down state的事我就不管了，你可以在英国管，但是estate还有Miles Guo这个事儿到瑞士去，就是我让你在英国拿点儿钱给你个几亿美元，然后到瑞士去我把你给灭了，我让你拿不着、只要你跟我妥协，因为瑞士我说了算。你看它有多夸张啊！
 
-《路透社》与《纽约时报》3月1日综合报道，**俄罗斯周二表示，它将对美国以涉嫌间谍罪驱逐其12名驻联合国外交官进行报复。**俄罗斯外交部发言人玛丽亚·扎哈罗娃（Maria Zakharova）说，美国的行动 “不会在没有适当的反应和回复的情况下继续下去，不一定是对等的”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯报复.jpg)俄罗斯外交部发言人玛丽亚.扎哈罗娃（图片来源：路透社）
-**美国周一表示，将把12名俄罗斯外交官驱逐出莫斯科驻联合国使团**，**指控他们利用在美国生活工作之便，一直从事不利于美国国家安全间谍活动。**
+接下来你想想这个打架呢是吧？现在我已经做好了给你一大块儿肉，你要一块儿肉我给你一只牛，你要一只牛我给你一个农场，我都做好给你了，但是我要让你保证不能找到我的秘密。
 
-美国驻联合国发言人达尔顿表示，**这次的驱逐是符合联合国的规定的，同时已经酝酿了好几个月了。**
+就这英国、法国最后决定：不行，全在这儿。这下傻眼了、全傻眼了，这三个全在这儿。所以说你可见它未来的疯狂得有多可怕啊。政治、媒体、经济，就是你最后看到就是”宇宙无限大，地球是一粒沙”中的咱这粒“沙”跟它挑战，谢谢。
 
-美国驻联合国副代表理查德·米尔斯说：“**因此，根据《总部协定》第13条，他们（俄罗斯）已经得到了离开美国的要求**，以免他们损害东道国的国家安全。”
-![](https://assets.gnews.org/wp-content/uploads/2022/03/驱逐俄外交官.jpg)俄罗斯驻连个托代表瓦西里·涅边贾（图片来源：路透社）
-俄罗斯常驻联合国常驻代表瓦西里·涅边贾确认了这一消息，**说这12名外交官在3月7日前，被要求离开美国。**
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-因俄罗斯入侵乌克兰，**美国和欧盟对俄罗斯的制裁在升级，紧张关系在加剧。据报道，周二，俄军包围了乌克兰两大城市，冲突进一步升级。**
+编辑整理：Jacques；
 
-**新闻来源链接：**
+字幕档制作：兵嫂；
 
-[U.S. Expels 12 Russian Diplomats for Spying – The New York Times (nytimes.com)](https://www.nytimes.com/2022/02/28/world/europe/us-russian-diplomats-un.html)
+视频制作及上传：Cindy；
 
-[Russia to retaliate for U.S. expulsion of 12 diplomats at U.N. | Reuters](https://www.reuters.com/world/russia-retaliate-us-expulsion-12-diplomats-un-2022-03-01/)
+G-News发布：海贼王M.D.LUFFY；
 
-[Russia bombards Ukraine urban areas as armed convoy stalls | Reuters](https://www.reuters.com/world/europe/russian-isolation-intensifies-ukraine-fighting-rages-2022-03-01/)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 
