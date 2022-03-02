@@ -2,62 +2,48 @@
 ---
 
 
-## 俄军使用‘真空炸弹’违反日内瓦公约
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2094153/)
+## 参加好声音的加拿大华人让孩子打了疫苗怎能不被排华
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2094335/)
 
-作者：纽约香草山健身部 —文鹰
+G-TV视频链接：https://gtv.org/video/id=62164df61408ee3a03a3c92c
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
+**郭文贵先生：**我接着说完刚才那个反华的事情，就是排华。我的歌也是一个很好的例子，就好几个海外的华人带着孩子参加了《好声音》，到了那块又吃又喝的，有没有被睡咱不知道，就也没弄成个啥。头两天就我这个歌出来以后啊，特别是《塞北的雪》、《一帘幽梦》、《甜蜜蜜》，找到我，说我们一直看你直播，我们孩子想要参加《我是英雄》。
 
-3月1日综合媒体报道：俄军在空袭乌克兰城市中，对抵抗军民使用了真空炸弹。试图重创乌克兰全民反侵略意志，改变侵乌战争进展不利局势。
+（他说）我们也很喜欢唐平，唐平她老公是秃头。我也不知道。他说他那个秃头老公……我说：“是吗？唐平老公是秃头我不知道。”——什么搞什么“零点乐队”的啊。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0798.jpg)
+他说：但是，七哥，我们想要币。说实在话，他想参加爆料革命，他想来唱歌，他不说我也会给她币，但是他说完这话一秒钟没打顿儿，哪怕唱歌给我打个顿儿，给我说这个面子就过来了是吧？她说：“你得给我币。”我二话我也没给她任何一秒钟有想的机会，我说：“门儿都没有。”
 
-真空炸弹也称‘空投高功率真空炸弹’，俄罗斯在2007年首次测试该武器。它的破坏力巨大，仅仅次于核武器爆炸的威力，被俄罗斯称为“炸弹之父’！
+我说：“你能保护好你自己的命就不错。”我说“我能问你个问题，请教个问题：旧金山那地方你打了疫苗了吗？她说：‘打了’”。我说：“你孩子打了吗？他说：‘打了’”我说：“那你孩子没有机会参加爆料革命了，再见吧，沙由那拉！（音：日本语：再见）。”
 
-该武器的设计原理：当炸弹被引爆时，迅速抽空周围氧气，在真空状态下再次燃爆。造成一定范围内高温高压态势，使人体瞬间气化无影无踪，毁灭一切生物体和建筑物。
+就是咱们华人在海外二三十年，他们家也是被共产党残害的，孩子长大，带着孩子回中国去参加《好声音》，大家可以查查那两期，扯着嗓子喊。现在看爆料革命三四年来了，看咱爆料革命长大了，要币来了，我告诉你——还打了疫苗，兄弟姐妹们，你去想想，她怎么能不被排华呢？
 
-乌克兰驻美大使已经在美国，对会见美议员发表了证言。讲俄军在乌克兰使用真空炸弹罪行。虽然美国白宫发言人，讲没有看到这方面证据。但表示如果使用了，就是（反人类）战争罪行。
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_8742.jpg)
+编辑整理：Jacques；
 
-据最新的盖特视频消息，有乌克兰民众在城市高层，拍摄到一段爆炸场面非常恐怖。当时拍摄地点距离约15公里。爆炸形成的巨大火球照亮整个夜空，几秒以后爆炸冲击波震到拍摄地点高楼。
+字幕档制作：兵嫂；
 
-地点高楼。 早先，有外媒记者拍摄到另外一种，俄军火箭发射车辆，是用来发射稳压火箭弹装备。可能效果不好杀伤力不足，促使俄军在战场使用上真空炸弹技术。
+视频制作及上传：Cindy；
 
-俄军使用集束温压火箭弹和真空炸弹，造成大量乌克兰无辜人员伤亡，只会加剧乌克兰人道危机灾难发生，坚定乌克兰人民誓死抵抗侵略决心。
+G-News发布：海贼王M.D.LUFFY；
 
-普京发动的非正义非人道侵略战争，不惜违反国际日内瓦公约，对乌克兰使用大规模杀伤性武器。只能让更多的西方国家认清其罪恶行为，加速他走上被正义审判的断头台。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-参考链接:
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[https://gettr.com/post/pxozpo67f3](https://gettr.com/post/pxozpo67f3)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-2022年3月2日
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-（本文仅代表作者个人观点）
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3.jpg)
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-*编辑 /校对*：*Yuki*jiang
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+G-TV：日本银河系农场。
 
  
 

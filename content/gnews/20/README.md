@@ -2,24 +2,39 @@
 ---
 
 
-## 拜登呼吁国会尽快提交提高美国与中共国竞争力的法案
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2094911/)
+## 有声|欧盟主席称望乌克兰成为成员国
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2094964/)
 
-#### 撰稿：彩虹 
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据路透社报道，欧盟首席执行官2月27日表示明确支持乌克兰成为欧盟的成员，称这个目前受到俄罗斯攻击的国家是 “我们中的一员”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-3.jpg)
+欧盟委员会主席冯德莱恩表示，欧盟有史以来首次决定向处于战争状态的国家提供武器，欧盟将向乌克兰运送 4.5 亿欧元，折合5.07 亿美元的武器，。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-203.png)图片来源：卫报
-据《国会山报》3月1日报道，在周二的国情咨文中，拜登总统呼吁国会将一项旨在提高美国对中共国的竞争力的法案送到他的办公桌上。拜登认为，这项立法将有助于创造公平的竞争环境，“对新兴技术和美国制造业进行创纪录的投资”。
+欧盟还宣布乌克兰难民将在 3 年内在其成员国受到欢迎而无需申请庇护，并表示将对俄罗斯的入侵实施严厉制裁。
 
-报道认为，该立法将加强美国国内供应链和科学研究，使美国在与中共国等国家的竞争中更具竞争力。
+当地时间2月28日中午，乌克兰总统弗拉基米尔·泽连斯基，正式签署了加入欧盟的申请书。他希望欧盟启动特别程序允许乌克兰加入欧盟；并指出，乌克兰希望和欧洲人平等地站在一起，欧盟值得拥有乌克兰。
 
-上个月，众议院通过了其版本的法案。参议院于2021年6月份也通过了自己的立法版本，其中有18名共和党人支持此版本。
 
-根据程序，众议院和参议院必须调和他们相互竞争的版本，并达成一项至少有10名参议院共和党人投票支持的投票版本，因为该立法将需要（参议院）至少60票才能通过。
 
-**新闻来源**
+文字版原文：[欧盟主席称望乌克兰成为成员国](https://gnews.org/zh-hans/2088525/)
 
-[Biden calls on Congress to pass China competition bill](https://thehill.com/homenews/administration/596444-biden-calls-on-congress-to-pass-china-competition-bill?rl=1)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,39 +2,22 @@
 ---
 
 
-## 有声|美国务事务助卿呼吁国际社会支持台湾参与联合国体系
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2094989/)
+## 新中国联邦珍惜生命热爱和平
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2095014/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒3月1日消息，美国国务院国务事务助卿，席森，28日公开晒出自己近期与美国驻台代表萧美琴的会晤合照，并呼吁国际社会支持台湾有意义参与联合国体系。 席森表示，台湾的贡献能让国际社会广泛受益，美方希望联合国各会员国支持台湾参与联合国。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-164.png)
-对此，萧美琴回应表示，她很感谢有机会与席森讨论美台合作，并拓展台湾能有意义参与到国际组织中去。
+编稿： Quitman            编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/03/05-image.png)
+据2月28日文贵先生盖特消息，目前俄军入侵乌克兰已造成严重人道灾难。【新中国联邦】正不惜一切代价与联合国救援组织紧密合作，无条件救助在乌克兰的中国同胞和任何需要逃离战火的难民。
 
-早前，美国国务卿布林肯，在联合国2758号决议通过满50年的翌日，发声明表示支持台湾参与联合国体系。他指出，台湾参与联合国体系并非政治议题，而是务实议题。将台湾排除在外，会有损联合国及其相关机构的重要工作。
+据悉，尽管中共当局在得知【新中国联邦】的救援行动后，立即通过第三方发布虚假通告，试图对此加以阻挠。但文贵先生表示，无论不同的政治观点，肤色和种族，紧急救助受困于乌克兰的同胞、友人和难民为目下第一要务。并希望本次行动可促使中共或任何其他国家都能去乌克兰战场参与救助。[新中国联邦]将以此向世界展示其珍惜生命，尊重人权，热爱和平的精神。
 
+评论指出，在无数同胞生死攸关的危难时刻，中共仍沉迷于玩弄流氓政治手段，愚弄无辜百姓。不仅编织谎言拒绝撤侨，还黔驴技穷地阻止海外华人得到最可靠、最及时和最安全的生命救助,天灭中共已无人可挡!
 
+校对编辑：硫酸羟氯喹64
 
+发稿：苦尽甜来 (文来）
 
-
-文字版原文：[美国务事务助卿呼吁国际社会支持台湾参与联合国体系](https://gnews.org/zh-hans/2093446/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原资料链接：[https://gettr.com/post/pxet5c34c2](https://gettr.com/post/pxet5c34c2)
 
  
 

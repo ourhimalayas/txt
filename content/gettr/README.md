@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/2/2022 4:34 PM (UTC)`
+
+3月2号：这就是邪恶的中国共产党……比爹娘还亲的中国共产党。这就是强大的战狼外交的中国共产党！看看这个视频吧兄弟姐妹们！尊敬的战友们好．由于本星期五是我母亲的冥诞日．所以本周五没有直播。💪💪💪😭😭😭https://youtu.be/tqN4sI4SNRc
+
+---
+
 `@miles 3/2/2022 3:20 PM (UTC)`
 
 【UKRAINEHELP-002】Announcement of New Federal State of China and Rule of Law Foundation on Emergency Rescue of Ukraine<br/><br/>https://gnews.org/2094655/<br/><br/>【UKRAINEHELP-002】Оголошення про створення нової Федеральної Держави Китаю та Фонду верховенства права з надзвичайних ситуацій порятунку України<br/><br/>https://gnews.org/2094852/<br/><br/>【UKRAINEHELP-002】<br/>新中国联邦和法治基金关于紧急救援乌克兰的通知<br/><br/>https://gnews.org/zh-hans/2094654/<br/><br/>#ukraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
@@ -146,13 +152,6 @@
 
 2/27/2022 Miles Guo:  The CCP’s wars have always costed the lives of countless people with no strategy at all; Ukraine has perfectly used the psychology of war, not only making friends but also winning their support; the US seems to be silent in the war in Ukraine, but they are actually aiming at the instigator CCP<br/><br/>2/27/2022  文贵直播：中共的战争一向打的都是无数人的生命，毫无战略可言；乌克兰完美地运用了战争心理学，不但交了朋友还赢得了朋友的支持；美国在乌克兰战事上看似不动声色，其实已瞄准了背后的中共<br/>
 ![img](https://media.gettr.com/group3/getter/2022/02/28/03/51d2f168-ff56-8bff-f735-c27679c42e6e/out.jpg)
-
----
-
-`@miles 2/28/2022 1:12 AM (UTC)`
-
-2/27/2022  Miles Guo: President Zelenskyy is a wise world-class leader. He upholds the truth and is defeating Russia's disinformation war with the strategy of showing weakness; Zelenskyy will be a legend.<br/><br/>2/27/2022 文贵直播：乌克兰总统泽连斯基是个智慧的世界级领导人，他用唯真不破的示弱战略正在击败俄罗斯的虚假信息战；泽连斯基将是个传奇<br/>
-![img](https://media.gettr.com/group33/getter/2022/02/28/01/c8ad2cee-8cf9-434d-3b61-f491ee7ea602/out.jpg)
 
 ---
 

@@ -2,23 +2,28 @@
 ---
 
 
-## 有声|美国的选择决定人类的命运
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2094970/)
+## 志愿者向乌克兰捐赠百万美元加密货币
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2094997/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-在2月27日的大直播中，郭文贵先生表示，美国在台海战争问题上的选择，将决定人类的命运。
+作者：日本方舟农场-Miyale7768(文玉)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月26日，据西班牙媒体报道，一家区块链分析公司的数据显示，截至目前，为了应对俄罗斯对乌克兰的入侵，非营利组织和志愿者团体已经筹集了近 470 万美元的加密货币捐款。其中，最大的一笔捐赠款项高达300 万美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-02-上午10.56.39.png)
+据了解，在过去十年的俄乌冲突中，这些支持乌克兰的志愿者团体陆陆续续地使用银行转账和支付应用程序等方式向乌克兰捐赠了数百万美元。另一方面，加密资产如今已成为了一种重要的金融交易替代方式，其不仅使快速跨境捐款成为可能，还可以使捐款者避开那些可能干扰这些捐赠的金融机构。
 
-郭先生说，美国和日本比中共更希望台海战争的发生。美国为了出师有名，意欲让全世界看到中共公然侵略台湾，造成油价和芯片价格上涨，供应链断裂，并让韩国、印度和东南亚等国感受到中共的致命威胁，此时美国会组织包括澳大利亚在内的盟军部队来灭共。但是，这种战争的结果会很残酷，因为只要有美国参与灭共，中共就一定会联合朝鲜和伊朗，并极有可能会使用核武器。
+此外，该区块链分析公司的首席科学家指出，加密货币捐赠方式特别适合国际筹款，因为这种方式没有国界且不接受审查，所以没有任何第三方机构可以阻止此类交易。
 
-郭先生认为，如果美国按部就班的先从联合国得到“战争执照”授权，然后再开始灭共，说明美国希望发生世界大战而重整秩序；如果美国在中共侵略台湾刚开始时，就选择出手灭共，则说明美国希望维持原有的国际秩序。选择后者，美国就需要大胆对中共提前动手；选择前者，人类将要付出巨大代价，不仅会造成大量人员伤亡，而且由于中共使用核武器，会导致很多无人区的出现。
+报道也提到，志愿者的捐款，尤其是加密货币的部分在目前的俄乌冲突中发挥了关键作用，这也显示出了加密货币不可替代的地位。
 
-文字版原文：[美国的选择决定人类的命运](https://gnews.org/zh-hans/2090074/)
+参考链接：
+1）[https://gettr.com/post/px8g1u54d2](https://gettr.com/post/px8g1u54d2)
+2）[Más de $4.7 millones en criptomonedas donados al ejército de Ucrania desde que inició la invasión rusa](https://elamerican.com/millones-en-criptomonedas-ejercito-ucrania/?lang=es)
 
-音频处理：Fei797
-发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+总编：Irene木木
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

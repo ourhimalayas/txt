@@ -2,37 +2,26 @@
 ---
 
 
-## 有声|中共抹黑新中国联邦在乌克兰的救援行动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2095029/)
+## 新中国联邦在乌克兰战火中崛起
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2095076/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-**郭文贵先生28日在盖特贴出了中共对乌克兰留学中心公众号的**“**紧急公告”，称境外反华组织**“**XXX联邦”发布虚假撤侨文件，目的是搜集在乌华人信息。 **
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-167.png)
-**对此，郭先生撰文指出，中共刻意隐去**“**新中国**“**三个字，连新中国联邦的全名都不敢公布，是在恐惧华人知道有新中国联邦的存在。 郭先生重申，这次新中国联邦的大救援，是与国际救援组织合作，完全向国际公开，所有参与救援的团队、飞机、经费、物资都是可以经得起任何检查，并符合法律规定的。 **
+采编/编辑撰稿： 硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/03/06-image.png)
+据3月1日盖特消息，文贵先生当天透露，普京日前再次敦促习近平必须按双方此前约定，立即出兵攻打台湾。试图以此转移国际社会对俄乌战争的注意力，减轻其内外交困的政治压力。
 
-**郭先生批评，如果中共真心想救助中国人，在几千个同胞受到战争炮火威胁的生死存亡之际，中共不应该寻找种种借口逃避救助同胞的责任，把时间和精力耗费在玩弄低级伎俩去误导、欺骗同胞，阻止他们获得救助，中共这种严重的犯罪行为，应受到全世界正义的谴责和审判。**
+据悉，针对新中国联邦的战争救援行动，中共已紧急通知驻各国大使馆做好与海外华侨团体负责人的联络工作，并严格监控微信关于新中国联邦救援乌克兰的言论。
 
+目前，大量中共驻外大使官员已携巨款潜逃。而新中国联邦将在不久后展示对同胞的救援成效，以事实结果来揭露中共流氓政权的邪恶本质，唤醒所有尚存良知的中国人。
 
+此外，由于习近平对普京血腥入侵乌克兰的公然支持，以及中共正在进行的欺骗性政治宣传，导致中国人如今已成为乌克兰乃至整个欧洲最受憎恨的族群，全球排华危机已近在咫尺。
 
-文字版原文：[中共抹黑新中国联邦在乌克兰的救援行动](https://gnews.org/zh-hans/2093526/)
+战争局势瞬息万变，但全世界此刻已无人再相信中共的习近平和俄罗斯的普京，而世界格局也将因此被彻底改变。同时，新中国联邦已荣获来自西方民主国家更多的信任和支持，并最终成为今后在没有共产党的中国，实现一人一票民主选举制度的推动者，倡导者和监督者。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+校对编辑：硫酸羟氯喹64
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+发稿：苦尽甜来 (文来）
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源：[https://gettr.com/post/pxllrkc2fd](https://gettr.com/post/pxllrkc2fd)
 
  
 
