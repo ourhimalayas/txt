@@ -2,23 +2,38 @@
 ---
 
 
-## 政治、经济大重组过后，最终形成人类的文明
-` DC政经` [轉載自GNews](https://gnews.org/zh-hans/2091310/)
+## 有声|国际社会推动对俄罗斯实施更多制裁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2091430/)
 
-《2022年02月25日文贵大直播》节选
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据多家媒体报道，国际社会近日纷纷表示，将采取更多行动制裁俄罗斯对乌克兰的入侵。西方盟国周六决定阻止”被选定的”俄罗斯银行进入SWIFT支付系统，这将给俄罗斯的经济带来沉重打击。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-27T040911Z_1_LYNXMPEI1Q01R_RTROPTP_0_UKRAINE-CRISIS-BANKS_1-1.jpg)2022年2月25日，在这幅在波黑拍摄的插图中可以看到，Swift的标志被放置在俄罗斯国旗上。（REUTERS/Dado Ruvic/插图）
+周日，美国参议员汤姆·科顿推动将俄罗斯从SWIFT国际银行系统中完全移除，并对其石油和天然气出口实施制裁，以阻止俄罗斯对乌克兰的侵略。
 
-大抗议的时候，民主政治，它要么催生了成熟的一种，我们追求的正道主义的西方政治文化，要么就是把整个西方的民主政治，变成了所谓过渡型的独裁政治。
+与此同时，英国外交部长莉斯·特拉斯周日表示，她将在与七国集团同行举行的会议上要求对俄罗斯采取进一步措施，特别是切断其石油和天然气供应。
 
-我们可能面临着一个什么黑暗期，可能十年、二十年，甚至我们一生，都面临这个人类的政治、经济大重组，最后形成了人类的文明。
 
-我相信在这一场的过渡当中，爆料革命、新中国联邦，我们不需要任何人相信我们，最好不相信我们的人，永远别相信我们，祝福你们永远别相信我们。
 
-* * *
+文字版原文：[国际社会推动对俄罗斯实施更多制裁](https://gnews.org/zh-hans/2085127/)
 
-素材，剪辑，字幕：小蜜蜂 | 发布：文零
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/DCZJ_Gnews_960_160.png)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

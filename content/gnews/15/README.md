@@ -2,10 +2,10 @@
 ---
 
 
-## 芬兰放下「中立」宣布军事援助乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2091547/)
+## 美国对俄罗斯增加数字货币制裁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2091549/)
 
-作者：纽约磐石农场 – 在远方
+作者：银河系农场 – 骄子
 
 
 
@@ -13,18 +13,15 @@
 
 
 
-台媒3月1日消息，芬兰总理马林（Sanna Marin）28日宣布，芬兰将向乌克兰运送武器和弹药。 马林形容这是历史性的决定，并保证对乌克兰军援不会削弱芬兰自身的防御能力。这是芬兰自二战以来首次转变“中立”态度，参与战事援助。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-2.jpg)
-芬兰国防部长凯克宁表示，预计自3月1日至2日起，分别向乌克兰援助2500支步枪、15万发子弹、1500件反装甲武器和7万份野战口粮。
-
-不久前，俄罗斯政府曾经威胁芬兰不准加入北大西洋公约组织，并警告，如果芬兰政府打破“军事不结盟政策”，北欧的安全和稳定将面临严重的军事、政治后果。
-
+外媒3月1日报道，美国财政部在网站上公布了针对俄罗斯进行制裁的一系列新规，禁止美国人向某些俄罗斯寡头和实体提供任何支持，其中包括：不得进行欺骗性交易，以转移、支付、出口、撤回或其他处理方式，来规避美国的任何制裁，包括通过数字货币或数字资产、实体资产等。这些规定也适用于总部位于美国的实体。 据悉，财政部官员已要求世界各地的加密交易所防止俄罗斯实体使用加密货币逃避制裁，例如要求Binance、FTX和Coinbase屏蔽受制裁人员和地址，其中Binance和FTX的总部不在美国。 有几家交易所公开表示不会屏蔽所有俄罗斯用户和地址，而共产党背景的Binance交易所则表示至少可以屏蔽财政部外国资产控制办公室制裁名单上个人的钱包。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3.jpg)
 参考链接：
-[二戰後首次立場轉變！ 芬蘭宣布軍援烏克蘭](https://news.ltn.com.tw/news/world/breakingnews/3844211)
+[US Treasury Department Formally Adds Crypto Rules to Russian Sanctions Guidance](https://www.coindesk.com/policy/2022/02/28/us-treasury-department-formally-adds-crypto-rules-to-russian-sanctions-guidance/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-总编/编辑：天滅中共
+总编：天滅中共
+编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
