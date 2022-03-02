@@ -2,45 +2,70 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2093803/)
+## 1958年金门炮战
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2093806/)
 
-**整理：枳实**
-**美工：精灵蓝**
-
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片：雅典娜农场设计组 精灵蓝
+作者：纽约香草山—侠肝义胆
 
 
-雅典娜疫情更新（2022年 3月2日）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-12.png)
+金门炮战，台湾称八二三炮战，又称第二次台湾海峡危机。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-15.png)
-[2022年3月2日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月2日改进.pdf)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20171111142007_1992.jpg)[图源网络](http://www.xongju.com/news/info/104907)
 
-数据来源：
+是1958年到1979年之间发生于中国东南沿岸金门、马祖等岛屿的系列战役总称。中共军队和中华民国国军，双方以隔海炮击为主要军事行动，故称金门炮战。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+金门炮战由中共军队首先发起，台湾国军遂展开反击。1958年8月23日到10月5日战况最为激烈。战争初期，中共军队猛烈的炮火让国军猝不及防，但随着炮战的持续，国军逐渐恢复战斗力，双方战事处于对峙状态，国军也成功守卫住金马地区。之后中共军队维持单打双不打的炮击模式，直到1979年1月1日中美建交，中共才正式宣布停止炮击。
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+1949年10月，中共军队首次进攻金门遭到惨败，九千人全军覆没。中华民国守军成功保持台湾海峡主控权。
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+1950年朝鲜战争爆发，中共被迫放弃进攻台湾，台海形成对峙局面。
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+1954年，美台正式签订共同防御条约，美国第七舰队进入台湾海峡，协助台湾进行海峡防御。
 
-[covidlive.com.au](https://covidlive.com.au/)
+而在1953年10月，中共在朝鲜停战后随即开始制定进攻金门准备工作计划。到1958年，福建铁路、公路、军用机场相继修建完成，中共正式组建福建前线指挥部准备炮击金门。
 
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+1958年8月台湾总统蒋介石亲自巡视金马前线。加之国际形势发生巨变，台海局势骤然紧张，台、澎、金、马进入紧急备战状态。
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+1958年8月23日，中共军队突然炮击金门，一日数万发炮弹倾泻到岛上，造成四千名国军将士阵亡。而国军也迅速调整进行还击，并有效遏制中共炮火。
 
-发布：tianzhihuan
+事后，中共官方表示，金门、马祖威胁福州、厦门安全必须收复，并争取用和平方法解放台湾。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+而台湾方面认为，中共企图通过攻击金马威胁台湾本岛的野心彻底失败了。 有关历史学者认为，中共当年炮击金门是为了测试美国方面的反应，以及当时中共内外政治的需要，其政治意义大于军事意义。
+
+而今中共当局由于内外交困，更是对台湾虎视眈眈、蠢蠢欲动。但中共侵犯台湾必将遭到民主世界的严厉制裁和毁灭性打击。
+
+参考来源：
+
+1.[金门炮战](https://zh.m.wikipedia.org/wiki/金门炮战)
+
+2.[沈志華：金門炮戰 是中蘇關係破裂的原因？ ！](https://www.youtube.com/watch?v=l9z-PZQq2N4)
+
+3.[这场战役解放军全军覆没太惨烈！蒋介石听闻消息泪流满面，详解金门恩怨始末【经典人文地理】](https://www.youtube.com/watch?v=1PH_THtuG94)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-6.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-13.png)
+
+
+
+
+
 
  
 

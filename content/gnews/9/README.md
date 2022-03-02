@@ -2,25 +2,45 @@
 ---
 
 
-## 美扩大制裁3日起将全面禁止俄机进入美国空域
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2093795/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2093803/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+**整理：枳实**
+**美工：精灵蓝**
 
-3月1日，美政府扩大了对俄罗斯的制裁，新制裁将禁止俄罗斯飞机及航空业者进入或使用美国所有空域，将于3日全面生效。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片：雅典娜农场设计组 精灵蓝
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/美扩.png)（图片来自大纪元）
 
-中央社报道，该禁令由美国运输部和美国联邦航空总署发布，将于2日结束后全面生效。
+雅典娜疫情更新（2022年 3月2日）
 
-报道指出，该禁令涵盖客机和货机航班，以及定期航班和包机，将实际对所有俄罗斯商用航空业者和其他俄国民用飞机关闭美国空域。并将让任何由俄罗斯公民拥有、认证、营运、注册、承包、租赁、控制，或使其获利的飞机暂停运作。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-15.png)
+[2022年3月2日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月2日改进.pdf)
 
-参考链接：
-[https://www.cna.com.tw/news/aopl/202203020103.aspx](https://www.cna.com.tw/news/aopl/202203020103.aspx)
+数据来源：
 
-素材采编：Kevin wang
-编辑：青城道姑
-发布：Linda
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

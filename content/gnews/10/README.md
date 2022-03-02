@@ -2,50 +2,25 @@
 ---
 
 
-## 新州持续强降雨一处大坝濒临垮塌，下游居民紧急疏散
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2093770/)
+## 美扩大制裁3日起将全面禁止俄机进入美国空域
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2093795/)
 
-#### 了解澳洲时事焦点，尽在雅典娜【聚焦澳洲】
+**撰稿：日本东京方舟农场 Kevin wang**
 
-翻译/编辑：文泓
+3月1日，美政府扩大了对俄罗斯的制裁，新制裁将禁止俄罗斯飞机及航空业者进入或使用美国所有空域，将于3日全面生效。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-13.png)图片来源：ABCNews & 雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/美扩.png)（图片来自大纪元）
 
+中央社报道，该禁令由美国运输部和美国联邦航空总署发布，将于2日结束后全面生效。
 
-3月2日，据多家媒体报道，澳大利亚新南威尔士州当局已向生活在去年悉尼洪水影响地区的人们发出警告——今天将是一个艰难的夜晚，他们现在应该撤离。
+报道指出，该禁令涵盖客机和货机航班，以及定期航班和包机，将实际对所有俄罗斯商用航空业者和其他俄国民用飞机关闭美国空域。并将让任何由俄罗斯公民拥有、认证、营运、注册、承包、租赁、控制，或使其获利的飞机暂停运作。
 
-官员们预计北里士满的雷德班克大坝即将垮塌，并已下令疏散其下方的街道居民，今天早些时候，有600千兆升的水从大坝上涌过。
+参考链接：
+[https://www.cna.com.tw/news/aopl/202203020103.aspx](https://www.cna.com.tw/news/aopl/202203020103.aspx)
 
-澳洲气象局已对该地区发布了重大洪水警告，预计霍克斯伯里和尼皮恩的洪水将达到与2021年3月起的洪水相似的水平，并延伸到里士满和彭里斯
-
-新南威尔士州已下达了31个疏散令。
-
-当日，搜救局专员卡琳·约克表示，将有数十万人持续受到影响，紧急服务部门希望该地区的每个人都做好撤离的准备。
-
-“您不必立即撤离，但必须做好准备”，她说：“我们正在尽可能给您更多的信息，以便于您（早日）撤离。”
-
-包括霍克斯伯里、里士满和彭里斯在内的悉尼西区居民已经发布了疏散令，预计一夜之间会有强降雨，霍克斯伯里和尼皮恩河的洪水水位预计将持续上升。
-
-当局认为北里士满的雷德班克大坝可能会倒塌并淹没其下方的财产。
-
-49分钟前，在搜救局（SES）志愿者在新南威尔士州南部的一个被洪水淹没的公寓中发现一名70多岁男子的尸体后，另发现有四人在新州北部的利斯莫尔洪水中丧生。
-
-一小时前，彭里斯附近的穆尔戈阿小镇的道路已经被洪水切断，该地区的居民被告知收拾行李离开。
-
-三小时前，搜救局已告知居住在北里士满14条街道上的居民撤离，因为他们担心雷德班克大坝会倒塌并淹没他们的房产。当局已经关闭了北里士满的桥梁，也可能关闭温莎大桥。
-
-参考链接：[NSW Ballina floods UPDATES LIVE: SES tells people in 2021 Sydney flood areas to evacuate (afr.com)](https://www.afr.com/politics/federal/second-lismore-death-ballina-hospital-evacuated-20220302-p5a0ux)
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+素材采编：Kevin wang
+编辑：青城道姑
+发布：Linda
 
  
 
