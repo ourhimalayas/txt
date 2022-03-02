@@ -2,30 +2,22 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月2日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2096095/)
+## 法律组织援助因未接种而不被假释的囚犯
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2096142/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO.jpg)
+加拿大温哥华扬帆农场    平民正道
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-1.png)
-文章仅代表作者本人观点，与Gnews无关
+据加拿大媒体[真北方]2月28日报道，安省一名获法院批准假释的囚犯，因未接种疫苗被当地【技能培训及社区矫正中心】拒绝接纳，而最终丧失了出狱学习的机会。
 
-视频参看：
-[2022.03.02早 《NFSC新闻》](https://gtv.org/video/id=621f715d019ef64da653c7f1)
-[2022.03.02早 G|TV《新闻访谈》](https://gtv.org/video/id=621f7944019ef64da653d746)
+报道称，由于当事人认为“新冠病毒”疫苗缺乏长期的安全性以及潜在的严重副作用，因而并未接种。对此，【宪政自由正义中心】决定代表该囚犯提起诉讼，对加拿大总检察长和该社区矫正中心采取法律抗争行动。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+控方律师表示，自由民主的社会将不允许胁迫民众在人身自由和身体健康之间作选择。通过强制任何人注射有巨大风险，并被证明有严重副作用的疫苗，来作为获得自由的交换条件，违背了自由正义的原则，并损害了个人为自己做医疗决定的权利。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March.jpeg)
+据悉，虽然目前在监狱内的犯人无需接种疫苗，但加拿大惩教署却实行强制接种措施，所有被羁押人员都必须以同意接种疫苗作为获得假释的必要条件。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

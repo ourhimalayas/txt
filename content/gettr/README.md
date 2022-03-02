@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/2/2022 9:54 PM (UTC)`
+
+3/2/2022 Miles Guo: The New Federal State of China on Emergency Rescue of Ukraine has just accomplished the first mission. We successfully rescued four of our fellow fighters along with three families, and they arrived in Poland safely.<br/><br/>3/2/2022 文贵直播：新中国联邦乌克兰救援行动首战告捷，100%成功搭救战友，四位战友及三个家庭已顺利到达波兰。<br/>
+![img](https://media.gettr.com/group23/getter/2022/03/02/21/f11e251a-4530-6518-edf8-4d5bfaf14b25/out.jpg)
+
+---
+
 `@miles 3/2/2022 4:34 PM (UTC)`
 
 3月2号：这就是邪恶的中国共产党……比爹娘还亲的中国共产党。这就是强大的战狼外交的中国共产党！看看这个视频吧兄弟姐妹们！尊敬的战友们好．由于本星期五是我母亲的冥诞日．所以本周五没有直播。💪💪💪😭😭😭https://youtu.be/tqN4sI4SNRc
@@ -145,13 +152,6 @@
 
 2/27/2022 Miles Guo: it is possible that the outcome of the war between Russia and Ukraine will be a reconciliation between the two countries, but if Russia does launches nuclear weapons, the war will have a ridiculous outcome. Whatever the outcome, Russia will have no future at least for a short time<br/><br/>2/27/2022文贵直播: 俄乌之战的结果可能会是两国达成和解，但若俄罗斯真的放了核武器，战争会出现滑稽的结果！无论最终是哪种结果，俄罗斯至少短时间内都已没有未来可言！<br/>
 ![img](https://media.gettr.com/group31/getter/2022/02/28/05/c27103a9-f490-c060-c4f0-ca649de6f887/out.jpg)
-
----
-
-`@miles 2/28/2022 3:27 AM (UTC)`
-
-2/27/2022 Miles Guo:  The CCP’s wars have always costed the lives of countless people with no strategy at all; Ukraine has perfectly used the psychology of war, not only making friends but also winning their support; the US seems to be silent in the war in Ukraine, but they are actually aiming at the instigator CCP<br/><br/>2/27/2022  文贵直播：中共的战争一向打的都是无数人的生命，毫无战略可言；乌克兰完美地运用了战争心理学，不但交了朋友还赢得了朋友的支持；美国在乌克兰战事上看似不动声色，其实已瞄准了背后的中共<br/>
-![img](https://media.gettr.com/group3/getter/2022/02/28/03/51d2f168-ff56-8bff-f735-c27679c42e6e/out.jpg)
 
 ---
 

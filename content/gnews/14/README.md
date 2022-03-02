@@ -2,38 +2,31 @@
 ---
 
 
-## 对于小粉红伤害国内有志创业者行为的思考
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2095912/)
+## 这就是新中国联邦的力量
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2096067/)
 
-**西班牙巴塞罗那喜悦农场**
+文编：Hima
+听写：叮叮
+视频：七哥
 
-**作者：陌冰仙**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip小粉红.png)图片来源：jueshifan.com
-近期，国内某独立游戏代练工作室遭到某些小粉红无理指责，声称其“骗钱”，对室长进行大规模的人身攻击和造谣，室长万般无奈之下将钱退回，那些造谣者却还在继续变本加厉地实施这些恶劣行径。
+2022-02-27直播摘录
 
-自从习神上台之后，国内互联网对言论和审查开始收紧，实施实名制，大肆打压民间不满的声音，侵害言论自由，更是在近期实施对游戏的年龄限制，国内的游戏行业举步维艰。
+美国所有的军事飞机和军事机密商用它有几个前提条件：它必须是在联合国的框架组织下你租用，而且使用者你的身份是最重要的。Karen你再有钱你也不能去租飞机，说我去干嘛去，我要干点什么其他事去，我约我男朋友去。那是对美国、美军是个耻辱，怎么可能啊？谁租给你飞机他下台了，是不是？你不具备这些条件，你的钱不是钱，你的钱是纸。这就是大家兄弟要明白的，这就是新中国联邦的力量。如果你没有国际化的组织概念、没有国际化的法律概念和国际的政治概念、国际的关系概念，没有地域政治和地域宗教的概念，你没有经历过战争和战争中的概念，你不懂得这些，你一样都不可能。这就像直播一样。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip现场通信.png)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip通讯.png)
+**关注我们**
 
-我们不禁要问，这个国家究竟怎么了？习神究竟想将倒车开到何处？而那些无能又独裁的中共国家长究竟还需要多少东西来掩盖他们的无知、无能以及心理扭曲所造成的教育失败呢？
+Discord 账号
 
-这位室长是一位创业者，与笔者认识，他的创业目标，是希望通过代他人打网络游戏来赚钱，本不愿意过多掺合政治，但中共国残酷的现实却又将他逼入绝境，这是中国大陆创业者们的悲哀，更是广大老百姓的悲哀！
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-从这件事情来看，也反映出了中共对待老百姓的态度：不去关心真正被恶人侵害的受害者们，不去关心那些底层受苦的老百姓，只关心他们的位置能不能坐稳，只关心有没有人对他们不满，一句对中共所统治之下的社会的抱怨就能被扣上罪名抓起来；笔者在此想质问中共——这就是你们口中的“人民做主”、“广泛民主”、“依法治国”吗？如果说你连老百姓最起码所需要的人权和自由都不给予，将社会资源浪费在诸如“维稳”这种维护上层利益的用途上，那老百姓还有什么义务去拥护你、给你交税、遵守你定下的规则呢？
+Gettr 账号
 
-国家存在的意义不是为了维护领导们的利益，而是为了老百姓能生活得更加幸福！广大受到中共压迫的同胞们，如果你们不愿意继续生活在红色恐怖之下，不愿意做当权者的奴隶，想要真正拥有自由、民主、人权、幸福的生活，就站起来，追随郭先生，彻底推翻中共的独裁统治！
-
-TAKE DOWN THE CPP！
-
-* * *
-
-***审核：Aries的星
-校对：小东
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

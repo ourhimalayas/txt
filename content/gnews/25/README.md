@@ -2,77 +2,61 @@
 ---
 
 
-## 新数据显示COVID疫苗对年轻人只有风险没有好处（2/3）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2095586/)
+## 新数据显示COVID疫苗对年轻人只有风险没有好处（3/3）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2095657/)
 
-翻译：Jenny Ball
+编译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-208.png)图片来源：childrenshealthdefense.org
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-209-edited.png)图片来源：childrenshealthdefense.org
 
-成本效益分析必须推动公共卫生政策
+**关键的设计缺陷**
 
-常识告诉我们，COVID-19 疫苗接种政策应该植根于对真实成本和收益的理性评估，为此，我们需要评估疫苗是有益还是有害，以及其益害程度。
+在 2021 年 8 月的 Substack 文章中，英国网络安全研究员埃登·比伯（Ehden Biber）重点关注了使用假尿苷优化密码子的潜在风险。
 
-到目前为止，政府完全忽略了这种大规模接种运动的成本，只关注感知或想象（未经证实）的好处。
+COVID 注射不包含在 SARS-CoV-2 病毒中发现的相同 mRNA。mRNA 已经在一个称为“密码子优化”的过程中进行了基因操作，而这个过程实际上会产生意想不到的有害副作用。
 
-因此，我们正在关注已知历史上最严重的公共卫生灾难。最大的悲剧是，我们的公共卫生官员竟没有费心去保护我们最年轻的人群。
+**“**辉瑞、莫德纳、阿斯利康、强生等公司，为何使用他们和监管机构都知道会导致未知结果的技术？” 比伯问道。使用密码子优化的原因，是因为通过注射 mRNA很难让你的身体产生给定的蛋白质。
 
-截至 2 月 11 日，美国共有 34,223 起 COVID 疫苗受伤报告（[injury reports](https://childrenshealthdefense.org/defender/vaers-cdc-8-year-old-boy-dies-pfizer-vaccine/) ），涉及 17 岁以下儿童。
+这是一个缓慢且通常效率低下的过程。为了使注射起作用，它们需要比自然可能的更高水平的蛋白质表达。科学家通过在遗传指令中进行替换来绕过这个问题。
 
-“打开疫苗不良反应报告**”**系统团队（[OpenVAERS](https://openvaers.com/) ）最近开始查看 17 岁及以下儿童的伤害报告，令他们震惊的是，截至 2 月 11 日，他们发现了 34,223 份涉及该年龄组的美国报告。（您可以在此处找到儿童报告[Child’s Report here](https://openvaers.com/covid-data/child-reports)。）
+他们发现，你可以换掉某些核苷酸（三个核苷酸组成一个密码子），最终仍然会得到相同的蛋白质。但提高效率的代价是可怕的。
 
-这是一个惊人的数字，考虑到 12 至 17 岁的儿童自 2021 年 5 月以来才有资格接种疫苗，而 5 至 11 岁的儿童自 2021 年 10 月以来才有资格接种疫苗。
+当以这种方式替换部分代码时，生成的蛋白质很容易被错误折叠，这与多种慢性疾病有关，包括阿尔茨海默病、帕金森病和心力衰竭。正如比伯所解释的：
 
-辉瑞公司撤回对五岁以下儿童的紧急状态使用（**EUA **）申请
+“事实证明，当密码子优化时产生的蛋白质具有不同的折叠方式和不同的 3D 形状，例如，它可能会导致免疫原性，直到后期临床试验，甚至批准后才会出现。” 此声明与正常批准周期有关。COVID 疫苗是通过了加速疫苗批准。”
 
-有趣的是，2 月 11 日，辉瑞公司突然撤回了针对 5 岁以下儿童的紧急使用授权申请。问题是：为什么？
+现在，自 2011 年以来，FDA 已经充分意识到了这些问题，当时 FDA 的首席研究员 查瓦·金木奇·萨法蒂(Chava Kimchi Sarfaty )博士表示：“我们不相信你可以优化密码子，并让蛋白质表现得像它，以它的原生形式工作。”
 
-根据美国食品和药物管理局 (FDA) 和辉瑞公司的说法，他们希望收集更多关于第三剂效果的数据，因为两剂在 2 至 5 岁的儿童中并没有产生预期的免疫力。
+她接着警告说，“例如，改变的形式可能会导致免疫原性，直到后期临床试验，甚至批准后才能看到。”
 
-三天后，前**FDA **专员和现任辉瑞董事会成员斯科特·戈特利布（ Scott Gottlieb） 博士告诉 CNBC，EUA 申请被撤回是因为幼儿中 COVID 病例如此之低，以至于无法证明该疫苗能带来多大好处。
+如果 FDA 早在 2011 年就知道这一切，为什么他们没有反对在 COVID 疫苗中使用密码子优化？ 需要向澳大利亚** ****TGA **提出同样的问题。
 
-**（点评：看看人物的身份背景，一切都一目了然。）**
+FOIA 请求者可能在考虑 2021 年 3 月的论文“BNT162b2 疫苗：可能的密码子误读、蛋白质合成错误和可变剪接异常”，因为该论文强调了辉瑞公司使用假尿苷进行的广泛密码子优化，不利影响，以及使用 3′-UTR 序列，其后果仍然未知。
 
-但根据给订阅者的电子邮件通知，OpenVAERS 表示，“这些解释都不够，因为，在辉瑞于 [2022 年 2 月 1 日] 向 FDA 提交这份 EUA 之前，所有这些信息都是已知的。这让人想知道：治疗组中的不良事件是否可能是辉瑞和**FDA **都不想谈论的因素？”
+TGA 没有关于这些修改风险的数据的事实只能表明，他们和美国 FDA 一样，实际上并没有努力确保这些疫苗的安全。他们在保护制药公司的利润。
 
-我们应该知道：哪些人本应该了解这些，但却什么都不知道
+辉瑞甚至在其提交给 FDA 以获得 EUA 的 BNT162b2/Comirnaty 风险管理计划中承认，他们所做的密码子优化导致 γ-谷氨酰转移酶 (GGT) 升高，这是心力衰竭的早期标志物。
 
-在相关新闻中，以色列纯粹应用知识研究所研究员杰西卡·罗斯（ Jessica Rose ）博士强调了， 2 月 5 日按照自由法案 (FOIA) 请求发送给治疗用品管理局 (TGA， 澳大利亚相当于 FDA) 的信息， 调查要求提供与 TGA 评估有关的文件：
+GGT 升高也是胰岛素抵抗[insulin resistance](https://pubmed.ncbi.nlm.nih.gov/23945039/)、心脏代谢疾病、肝病[liver disease](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC4620378/)和慢性肾病的指标[kidney disease](https://pubmed.ncbi.nlm.nih.gov/28659657/)。
 
-- 辉瑞的Comirnaty mRNA 活性成分（mRNA 基因组序列）中微小RNA 序列的存在和风险。
-- 在 Comirnaty 中存在 oncomirs（致癌微 RNA）和风险。
+仅此一项就应该提出一些问题，FDA是否真的在关注公众健康。总而言之，有比以往任何时候都更多的理由质疑 COVID 疫苗的规定，以及这些疫苗在儿童身上的使用。
 
+**点评：从暗黑势力极力违法违宪强制接种mRNA实验毒药的过程中，细思极恐的是：这是“关键的设计缺陷”，还是特意如此设计？**
 
-- 由于在 Comirnaty 中使用假尿苷而导致终止密码子通读（密码子活性抑制）的存在和风险。
-- 将Comirnaty mRNA 产物注射到人类受试者体内后，产生的最终蛋白质产物的组成（分子量和氨基酸序列）。
-- 在人类受试者中使用 Comirnaty mRNA 产物的 AES-mtRNR1 3′ 非翻译区的风险。
+**参考资料：**[childrenshealthdefense.org][COVID Vaccines: All Risk, No Benefit for Kids and Young Adults, New Data Show](https://childrenshealthdefense.org/defender/covid-vaccines-all-risk-no-benefit-kids-young-adults/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=802493ff-397e-46d1-8d8c-f5b50cb8275d)
 
-
-事实证明，TGA 没有这些文件，因为他们没有评估任何这些风险。为什么？这很重要的步骤？正如罗斯解释的那样：
-
-“Micro-RNA (miRNA) 是小的（20-22个核苷酸）单链非编码 RNA 分子，其功能是：在转录或翻译水平上，中断或抑制基因表达，以调节基因表达。**”**
-
-考虑到 micro-RNA 可以改变基因表达，考虑到我们正在给数亿人注射，包括青少年和儿童，我们难道不想知道注射中是否存在 micro-RNA吗？oncomirs、密码子活性的抑制、蛋白质产物和其他方面也是如此？
-
-（注释： oncomir是一种与癌症相关的 microRNA，缩写miRNA）。
-
-“斯蒂芬妮·塞内夫警告说，有两种 miRNA 会破坏任何细胞（包括免疫细胞）中的 1 型干扰素反应：**miR-148a **和**miR-590**，” 罗斯继续说道。
-
-“我还不知道这里有什么潜在的联系，但可以肯定地说，任何涉及引入外源**mRNA **以供人类细胞大量生产的技术**,** 都必须经过彻底的安全测试。
-
-“这些文件都不存在的事实证明，他们要么不知道他们所做的事情的潜在影响是什么，因为他们没有进行替补工作/调查/研究，或者他们知道并隐藏了结果 。任何一种选择都超出了犯罪范围。”
-
-素材链接：[childrenshealthdefense.org] [COVID Vaccines: All Risk, No Benefit for Kids and Young Adults, New Data Show](https://childrenshealthdefense.org/defender/covid-vaccines-all-risk-no-benefit-kids-young-adults/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=802493ff-397e-46d1-8d8c-f5b50cb8275d)
-
-- [新数据显示COVID疫苗对年轻人只有风险没有好处（1/3）](https://gnews.org/zh-hans/2095456/)
-
+请阅读相关文章：
+[新数据显示COVID疫苗对年轻人只有风险没有好处（1/3）](https://gnews.org/zh-hans/2095456/)
+[新数据显示COVID疫苗对年轻人只有风险没有好处（2/3）](https://gnews.org/zh-hans/2095586/)
 
 * * *
 
 *审核：文乐
 校对：小东
-发稿：Nuevo唐人*
+发稿：信心的选择*
+
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

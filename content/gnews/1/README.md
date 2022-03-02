@@ -2,20 +2,16 @@
 ---
 
 
-## 新中国联邦珍惜生命热爱和平
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2096172/)
+## 后共时代 世界大变局
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2096195/)
 
-加拿大温哥华扬帆农场    平民正道
+文贵大直播20220302
 
-据2月28日文贵先生盖特消息，目前俄军入侵乌克兰已造成严重人道灾难。【新中国联邦】正不惜一切代价与联合国救援组织紧密合作，无条件救助在乌克兰的中国同胞和任何需要逃离战火的难民。
+撰稿：三票先生（DC）
 
-据悉，尽管中共当局在得知【新中国联邦】的救援行动后，立即通过第三方发布虚假通告，试图对此加以阻挠。但文贵先生表示，无论不同的政治观点，肤色和种族，紧急救助受困于乌克兰的同胞、友人和难民为目下第一要务。并希望本次行动可促使中共或任何其他国家都能去乌克兰战场参与救助。[新中国联邦]将以此向世界展示其珍惜生命，尊重人权，热爱和平的精神。
-
-评论指出，在无数同胞生死攸关的危难时刻，中共仍沉迷于玩弄流氓政治手段，愚弄无辜百姓。不仅编织谎言拒绝撤侨，还黔驴技穷地阻止海外华人得到最可靠、最及时和最安全的生命救助,天灭中共已无人可挡!
-
-* * *
-
-编辑： 平民正道    发布：平民正道
+美工：长颈鹿（雅典娜）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8-2.png)
+*发布：Theodosia*
 
  
 

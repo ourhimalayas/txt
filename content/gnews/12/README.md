@@ -2,28 +2,31 @@
 ---
 
 
-## 展望制裁和战争对货币政策的影响
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2096059/)
+## 台湾打与不打结果都一样
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2096094/)
 
-翻译/整理: 萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Immagine-2.jpg)图片来自milanofinanza.it
-西方对俄罗斯发起了前所未有的一揽子制裁对中央银行的副作用基本上有两个。一是乌克兰战争以及美国、欧洲和盟国的反应使美联储的工作变得更加困难。第二个影响是地缘政治局势将拉开美联储和欧洲央行之间更大的差距。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-影响一、美联储：在普京疯狂决定入侵乌克兰之前，美国央行行长杰伊鲍威尔一直在市场的帮助下对抗通胀。也就是说，美国国债收益率已经开始上升，正是因为投资者预期美联储会大幅加息。
+2022-02-27直播摘录
 
-现在这一趋势因战争引发的恐惧而逆转。与危机时期一样，投资者在美国国债的安全中避难，导致价格上涨和收益率下降。迄今为止，这些变动已经抵消了今年这些债券收益率上涨的一半左右。这意味着美联储将不得不采取更多措施来提高货币成本并抑制通胀。
+这回共产党在台湾这个问题上我今天告诉大家，打与不打，我今天最后回答你一个问题，结果都是一样的了。你不打，你内部死；你打了，全球把你直接快点死。还是你让内部人弄死你呢？还是让全球的人把你弄死呢？这两样都不死是吗？那“习太阳”真的是太阳了，不是龙之子了，不是盘古之子了，是吧？你就是神。他会郁闷死，这个人要是受这种羞辱的时候，他会郁闷死的。还好脸皮厚，咱不要脸不要腚了，屎喷我脸上都不在乎，郁闷死他，普京俄罗斯会把他弄死。还好，命大，真龙天子，盘龙的儿子，是吧？盘龙，现在盘古的“龙头”变成“龟头”了，他有超然的力量还活下来了，他有一件事他绝对活不了，老天不会让他活下去，他身体撑不住了，记住我今天的话，他身体绝对撑不住了。如果他能逃脱这五道“阎王关”，这些“老杂毛”们，七哥愿意隐居夜总会过上纸醉金迷的生活，就不灭共，行吗？
 
-鲍威尔今天已经告诉国会，美联储将在两周内加息，考虑到战争造成的不确定性，在接下来的几个月和几年内将多次加息。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-影响二：美联储与欧洲央行的分歧： 正如我们所见，美国人都在忙于对抗通胀。另一方面，欧洲人面临着如何继续刺激增长的问题。乌克兰战争加剧了这种紧张局势，因为在欧洲，能源危机和原材料供应的风险增加了增长放缓或更糟的是滞胀（通货膨胀+衰退）的可能性。
+**关注我们**
 
-俄罗斯寡头是否正在投入加密货币？
+Discord 账号
 
-制裁的目标之一正是将俄罗斯与国际金融体系隔离开来。从这个意义上说，不受监管的加密货币提供了一种在不引起注意的情况下存放资金的方式。对于加密货币支持者来说是一个好消息，这证明加密货币的流通可以在不需要诸如银行和像 Swift 这样的支付系统之类的基础设施的情况下运行。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-原文链接: [https://www.repubblica.it/economia/rubriche/outlook/2022/03/02/news/outlook\_di\_francesco\_guerrera-340006855/?ref=RHTP-BH-I339202624-P7-S5-F](https://www.repubblica.it/economia/rubriche/outlook/2022/03/02/news/outlook_di_francesco_guerrera-340006855/?ref=RHTP-BH-I339202624-P7-S5-F)
+Gettr 账号
 
-责任编辑/发布:意大利达芬奇农场   萧亦
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
