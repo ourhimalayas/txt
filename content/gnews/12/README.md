@@ -2,29 +2,28 @@
 ---
 
 
-## 新中国联邦展开紧急行动救援乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2095413/)
+## 星链终端目前已经抵达乌克兰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2095450/)
 
-作者：纽约磐石农场—在远方
+作者：首尔天池农场-追着曙光跑，纽约香草山农场-Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月1日，郭文贵先生在盖特平台上发布消息称，新中国联邦在乌克兰的救援行动感动了世界，战友们的行动远远超过中共的所作所为。
+2月28日，据有关媒体报道，乌克兰已经收到了由SpaceX捐赠的星链卫星互联网终端。随后，乌克兰副总理兼数字化改造部部长米哈伊洛·费奥多罗夫也在社交媒体平台上向埃隆-马斯克表示了感谢。同时，费奥多罗夫还公布了一张装满终端设备的军用卡车的照片。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2.jpeg)
 
-郭先生解释道，在此次乌克兰的救援行动中，新中国联邦与世界上很多国家和机构建立了对等合作和相互信任的关系。此外，许多其他友好力量也开始了与新中国联邦的合作。
+报道提及，此前，乌克兰的互联网曾因俄罗斯的入侵而中断，而这些表面上看起来像家庭卫星电视天线的终端设备，可以通过接入低轨道上的一组卫星阵列向乌克兰民众提供相对快速的互联网服务。
 
-郭先生还提到，乌克兰某团体这次也向新中国联邦发出了求救，随后，新中国联邦毫不犹豫的肯定答复和完全不求任何回报的行为让乌克兰人民极为感动，也让世界看到了新中国联邦的大爱精神。
+然而，多伦多大学公民实验室项目的一位高级研究员也在社交媒体平台上提醒道，这些终端可能会成为俄罗斯攻击的目标。
 
-郭先生也补充道，新中国联邦用事实和实力向世界证明，我们是真的在救人。目前，乌克兰境内唯一可信赖的、来自中国人的声音，就是新中国联邦发出的救援信号。
-
-眼下，新中国联邦对乌克兰的紧急救援行动正在战友们地努力下快速而有条不紊地进行着。
-
-参考链接：[2/28/2022 文贵盖特](https://www.gettr.com/post/pxhex43bfc)
+参考链接：
+1. [https://twitter.com/fedorovmykhailo/status/1498392515262746630?s=21](https://twitter.com/fedorovmykhailo/status/1498392515262746630?s=21)
+2. [https://twitter.com/fedorovmykhailo/status/1497543633293266944?s=21](https://twitter.com/fedorovmykhailo/status/1497543633293266944?s=21)
+3. [Ukraine gets Starlink internet terminals – and friendly warning about safety](https://www.reuters.com/technology/ukraine-gets-starlink-internet-terminals-friendly-warning-about-safety-2022-02-28/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
 总编：Irene木木
-编辑：Ivy001
+编辑：飞虹
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

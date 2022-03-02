@@ -2,35 +2,26 @@
 ---
 
 
-## 【秘翻时评】拜登宣布禁俄罗斯航班进入美国领空
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2094681/)
+## 【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2094654/)
 
-By : **[秘翻时评](https://gtv.org/video/id=621f4ef2019ef64da653a3de)**
+[【PDF】【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知.pdf)
 
-**[2022‑03‑02](https://gtv.org/video/id=621f4ef2019ef64da653a3de)**
+由于乌克兰局势日益恶化，NFSC和法治基金与联合国救援组织GEM共同合作，近日紧急安排第一批次营救专机，协助华人同胞、美国及其他各国友人免费撤离，目的地为美国（需要美国签证）和其他安全中转国。我们将在波兰的Medyka设立临时接待点，提供30天以内的免费食宿。
 
-**晚间新闻：**
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
-1.拜登宣布禁俄罗斯航班进入美国领空
+**24小时紧急救援客服联系方式如下：
+**邮箱：[\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection)
+电话(短信或电话）：+1720-657-6776 或 +1719-224-4232
 
-2.匿名者报捷 瘫痪俄罗斯航太控制中心
+NFSC ｜法治基金
+3/1/2022
 
-3.英日宣布对白俄罗斯实施经济制裁
+[https://ukrainehelp.info/](https://ukrainehelp.info/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知-scaled.jpg)
+[【PDF】【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知.pdf)
 
-**时评内容：**
-
-中共“尊重”普京出兵
-
-谷歌和 Meta可能被逐出俄罗斯
-
-铁链女”真相未明 ,又曝“铁笼女”
-
-GTV鏈接：[**https://gtv.org/video/id=621f4ef2019ef64da653a3de**](https://gtv.org/video/id=621f4ef2019ef64da653a3de)
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

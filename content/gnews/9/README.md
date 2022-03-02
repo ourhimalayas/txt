@@ -2,23 +2,22 @@
 ---
 
 
-## 星链终端目前已经抵达乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2095450/)
+## 前乌克兰小姐身着戎装 加入抵抗俄军行列
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2095474/)
 
-作者：首尔天池农场-追着曙光跑，纽约香草山农场-Naughty(文行)
+作者：纽约香草山 医疗部 云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月28日，据有关媒体报道，乌克兰已经收到了由SpaceX捐赠的星链卫星互联网终端。随后，乌克兰副总理兼数字化改造部部长米哈伊洛·费奥多罗夫也在社交媒体平台上向埃隆-马斯克表示了感谢。同时，费奥多罗夫还公布了一张装满终端设备的军用卡车的照片。
+2月27日，据相关媒体消息显示，在眼下俄罗斯大举入侵乌克兰之际，乌克兰各行各业的民众纷纷加入了抵抗俄军的战斗队伍中，这其中也包括前任乌克兰选美冠军——安娜塔西娅·蕾娜。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3.jpeg)
 
-报道提及，此前，乌克兰的互联网曾因俄罗斯的入侵而中断，而这些表面上看起来像家庭卫星电视天线的终端设备，可以通过接入低轨道上的一组卫星阵列向乌克兰民众提供相对快速的互联网服务。
+作为2015年的乌克兰小姐，蕾娜会说 5 种语言，曾担任过翻译和公关经理；而现在，她则像许多其他乌克兰人那样穿上戎装并手持步枪，全力阻止那些试图入侵乌克兰的俄罗斯军队。
 
-然而，多伦多大学公民实验室项目的一位高级研究员也在社交媒体平台上提醒道，这些终端可能会成为俄罗斯攻击的目标。
+据悉，乌克兰总理泽连斯基在上周呼吁该国民众拿起武器，对抗那些俄罗斯入侵者。截止目前，乌克兰政府已经向参与战斗的平民分发了一万件自动武器。对此，蕾娜在社交媒体上称赞泽连斯基总统是一位真正的、强硬的领导人。同时，蕾娜还喊话普京的军队称，任何人都休想试图越过乌克兰边境行入侵之举。
 
 参考链接：
-1. [https://twitter.com/fedorovmykhailo/status/1498392515262746630?s=21](https://twitter.com/fedorovmykhailo/status/1498392515262746630?s=21)
-2. [https://twitter.com/fedorovmykhailo/status/1497543633293266944?s=21](https://twitter.com/fedorovmykhailo/status/1497543633293266944?s=21)
-3. [Ukraine gets Starlink internet terminals – and friendly warning about safety](https://www.reuters.com/technology/ukraine-gets-starlink-internet-terminals-friendly-warning-about-safety-2022-02-28/)
+1. [UPDATE: Former Miss Ukraine Says Her Militaristic Photos with Apparent Airsoft Gun Are for Inspiration](Former%20Miss%20Ukraine%20Says%20Her%20Militaristic%20Photos%20with%20Apparent%20Airsoft%20Gun%20Are%20for%20Inspiration)
+2. [MISS GRAND UKRAINEBEAUTY QUEEN NOW A SOLDIER …Warns Russia, We’ll Shoot To Kill](https://www.tmz.com/2022/02/27/miss-grand-ukraine-joins-military-soldier-russian-invasion/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 

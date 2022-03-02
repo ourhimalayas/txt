@@ -2,10 +2,10 @@
 ---
 
 
-## 纽约、西雅图、波士顿取消疫苗强制令
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2095361/)
+## 在与马克龙的谈话中，普京为解决乌克兰冲突设定条件
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2095381/)
 
-02/28/2022 纽约、西雅图、波士顿取消疫苗强制令
+02/28/2022 在与法国总统马克龙的90分钟谈话中，普京为解决乌克兰冲突设定了条件：承认俄罗斯对克里米亚的主权、基辅的非军事化和中立地位 。
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
