@@ -2,26 +2,24 @@
 ---
 
 
-## 中日财经爆|穆迪将俄罗斯评级列入负面 穆迪已给出“垃圾级”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2092432/)
+## 美国宣布禁止俄罗斯航班进入领空
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2092441/)
 
-撰稿：东京樱花团/peterwong
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-12.png)[图片来源](https://www.google.com/search?q=Aeroflot+plane&amp;sxsrf=APq-WBsdOT_UL9RYb9k3MVnbwUhKjJEZ6g:1646197633228&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=Ut4C87rOPUjWqM%252CKngw46bkVjnrRM%252C_%253BDbhB3tkWzO9YnM%252CDFVn08umodkA-)
+美国交通部和联邦航空管理局宣布，禁止俄罗斯飞机飞越美国领空的禁令将在3月2日深夜前全面实施。这一禁令将适用于所有客运和货运航班，包括定期航班和包机。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/穆迪将俄罗斯评级列入负面-穆迪已给出垃圾级.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fozvoice.org%2Fwp-content%2Fuploads%2F2019%2F09%2F002_Moody.jpg&amp;imgrefurl=https%3A%2F%2Fozvoice.org%2F%25E6%2596%25B0%25E9%2597%25BB%2F%25E4%25B8%25A4%25E5%25B2%25B8%25E4%25B8%2589%25E5%259C%25B0%2F%25E5%25BF%25A7%25E4%25BC%2598%25E5%258A%25BF%25E9%2581%25AD%25E4%25B8%25AD%25E5%2585%25B1%25E4%25BE%25B5%25E8%259A%2580-%25E7%25A9%2586%25E8%25BF%25AA%25E9%2599%258D%25E4%25BD%258E%25E9%25A6%2599%25E6%25B8%25AF%25E8%25AF%2584%25E7%25BA%25A7%25E5%25B1%2595%25E6%259C%259B%2F&amp;tbnid=3uqNZ7pOw38rvM&amp;vet=12ahUKEwj0zabk2qb2AhXmxzgGHcTpCU4QMygCegUIARCnAQ..i&amp;docid=bmuFJkmbF0a0kM&amp;w=1024&amp;h=578&amp;q=%E7%A9%86%E8%BF%AA&amp;ved=2ahUKEwj0zabk2qb2AhXmxzgGHcTpCU4QMygCegUIARCnAQ)
+拜登总统在国情演讲中宣布，将“跟随我们的盟友禁止所有俄罗斯飞机进入美国领空，进一步孤立俄罗斯并对其经济施加额外压力。”
 
-信用评级机构穆迪(Moody’s) 3月1日警告称，在西方采取严厉制裁之后，俄罗斯禁止偿还新发行的外币债务，这增添了俄主权评级被下调的可能性。
+除美国外，加拿大和欧盟已经禁止了俄罗斯飞机进入其领空。
 
-穆迪表示，俄罗斯周二开始禁止居民向国外转移外汇或偿还任何外币贷款，反映出该国决策越来越缺乏可预测性。
+信息源：
 
-俄罗斯入侵乌克兰后，穆迪上周五（2月25日）将俄罗斯Baa3的评级列入负面观察名单。几个小时后，标普全球评级将俄罗斯相当于投资级的评级调降至“垃圾级”，并立即发出另一个降级警告。
+[ロシア航空機の米領空飛行禁止、2日深夜までに完全実施へ](https://news.yahoo.co.jp/articles/d80c7485ca4535e23cb2433be931beffeb444edb#:~:text=)
 
-消息来源:
-
-[穆迪警告称俄罗斯禁止偿还外币债务使其主权评级调降风险增加](https://cn.reuters.com/article/us-moodys-russia-aaa-0302-idCNKBS2KZ0AD?il=0)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
