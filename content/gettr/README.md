@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@realfayfay 3/2/2022 10:25 PM (UTC)`
+
+纽约时报今天发表的关于CCP之前就知道普金的入侵乌克兰的战争计划的报道。主流媒体报道应该就是主流刮的风。我的理解是：习是俄罗斯侵略战争背后的金主。普金的战争没有习的帮忙进行不下去。中国大银行会帮助普金避过经济制裁，从而让战争继续推进。然后呢？<br/>摘要如下：<br/>1.  这是一份拜登总统和欧洲情报部门共同发表的情报，说CCP高管要求俄高管等到奥林匹克结束后再攻打乌克兰。CCP对于攻打计划至少是部分知情的。<br/>2.  CCP现在否定这种说法。<br/>3. 文章提到了2/4/2022，习普发表了5000字声明。他们会有无边界的合作。指责了北约东扩，并表示两国将联手用真正的民主建立世界新秩序。而这份报告是CCP首次在北约问题上站在了俄罗斯一遍。<br/>4. 欧洲官员说中国是俄罗斯避开经济制裁进行战争的关键，所以普金不敢惹怒习，让他的冬奥会蒙尘。根据之前截获的俄的情报，战争会在2/16发起。而实际是推迟到了冬奥会后。<br/>4. 美欧很难相信，普金在冬奥会一结束就入侵乌克兰是一个巧合。<br/>5. 整个冬天俄罗斯和CCP都在共同往乌克兰和白俄罗斯边境集结兵力，证明了他们的高层互信。<br/>6. 美国政府从去年11月15日，习与拜登会谈后就向CCP出示了普金会攻打乌克兰的情报。并于秦刚和王毅等很多高管沟通希望CCP能够劝说阻止。但是CCP对美方表示他不相信普金会出兵。但美方的情报表明，CCP回头就和俄说，美国人挑拨离间，我不会阻止你的任何行动。<br/>7.开战后CCP一直站在俄罗斯一边，并不停指责美国和北约。<br/>8. 就在开战前，CCP和俄签订了三十年的购买天然气的合同，并且取消了从俄进口小麦的限制。<br/>9.美国和西方国家现在密切观察中国是否会参与遏制俄罗斯的制裁。希望中国大型银行不会帮助俄罗斯逃脱制裁。
+![img](https://media.gettr.com/group8/origin/2022/03/02/22/9035d44c-cf0b-8008-dee0-5f7acdf3f8de/a7f9b55b88e12e8bae322667160df861.png)
+
+---
+
 `@miles 3/2/2022 10:15 PM (UTC)`
 
 3/2/2022 Miles Guo: The CCP manipulates people by hiding the truth and controlling the media; more than 20 Chinese citizens have been killed in Ukraine, but the CCP disallows any report of the news; Putin is repeating Hitler's trick of fabricating stories to justify his war <br/><br/>3/2/2022 文贵直播：隐瞒真相控制媒体是中共控制人民的手段；有20多个中国人已在乌克兰战争中罹难，但中共不允许消息被报道出去；普京正在重施希特勒的伎俩，要用弥天大谎为他的战争找借口<br/>
@@ -145,13 +154,6 @@
 
 2/28/2022 Miles Guo’s GETTR: Encountering the humanitarian disaster in Ukraine, the CCP not only rescues its own people while leaving Lao Baixing behind, but also is trying to defame and block the professional and legitimate rescue organized by the New Federal State of China; the evil nature of the rogue CCP is completely exposed to the world!<br/><br/>2/28/2022 文贵盖特：面对乌克兰人道灾难，中共不光不管老百姓，只救自己人；还企图抹黑、阻止新中国联邦专业、合法地救援，中共的邪恶流氓本性暴露无遗！<br/>
 ![img](https://media.gettr.com/group6/getter/2022/02/28/22/43f52e13-84b1-7fe9-4ea8-ad0652a2dc73/out.jpg)
-
----
-
-`@miles 2/28/2022 3:18 PM (UTC)`
-
-2/27/2022 Miles Guo: There won’t be information warfare in the war between Taiwan and the CCP. The advantage of the Taiwanese military is fighting technology warfare and electronic warfare. What are the differences between the mindset of the Taiwanese soldiers and that of the CCP’s soldiers? Why are Taiwanese traitors one of the biggest problems of Taiwan?<br/><br/>2/27/2022 文贵直播: 台海战争中不会打信息战，台湾军队相对于共军的优势是技术战、电子战；台湾士兵的心态和共匪士兵有何区别？为什么台湾最大的问题之一是其内部的卖台贼？
-![img](https://media.gettr.com/group27/getter/2022/02/28/15/4b776fe7-e693-3424-3f2f-b8517199f0c1/out.jpg)
 
 ---
 
