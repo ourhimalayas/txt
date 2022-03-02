@@ -2,50 +2,39 @@
 ---
 
 
-## 申请个人破产的七哥只要共匪不灭就绝对不会中断直播
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2091598/)
+## 新西兰高院裁定总理的强制疫苗政策严重侵犯人权
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2091735/)
 
-G-TV视频链接：https://gtv.org/video/id=62164e401408ee3a03a3c939
+![Court ends mandatory vaccination in New Zealand, dealing a devastating blow to PM Jacinda Ardern](https://cdn.newspunch.com/wp-content/uploads/2022/02/jacinda-ardern.jpeg.webp)周五，新西兰总理杰辛达·阿德恩（Jacinda Ardern）在高等法院裁定她的疫苗授权对新西兰人“严重侵犯人权”后感到震惊。
+来源于美国News Punch网站2022年02月27日的报道，周五，新西兰高等法院裁定总理杰辛达·阿德恩(Jacinda Ardern)的强制疫苗接种政策对新西兰人来说是“严重侵犯人权”，这令她感到震惊。
+这个具有里程碑意义的案件意味着，警察和新西兰国防军(New Zealand Defence Force，简称NZDF)不能因为拒绝接种实验性疫苗而被解雇。此案将用于推翻阿德恩在新西兰的所有非法强制政策。
+弗朗西斯·库克(Francis Cooke)大法官裁定，命令前线警察和国防工作人员接种疫苗，否则就面临失业，这不是对《权利法案》“合理正当”的背离。
+由一群国防军和警察雇员提出的挑战，质疑根据《新冠病毒公共卫生应对法》(Covid-19 Public Health Response Act)下令要求一线雇员接种疫苗的合法性。这一挑战得到了受该强制政策影响的37名雇员的支持，他们向法院提交了书面宣誓书。该团体依据的是《权利法案》的两个方面——拒绝医疗程序的权利和宗教自由的权利。
+关于宗教自由的论点，一些提交意见的人提到他们从根本上反对接种辉瑞疫苗，是鉴于疫苗是在来自人类胎儿的细胞上进行测试的。
+库克法官同意这一主张，称“如果一个人因为疫苗是在人类胎儿(可能是流产的胎儿)的细胞上进行了测试而拒绝接受接种疫苗的义务，确实涉及到对宗教信仰表明的限制。”库克大法官也同意这项授权侵犯了拒绝医疗程序的权利的说法。
+但在考虑这两项主张时，库克法官还考虑了该强制政策是否符合《新冠病毒公共卫生应对法》中规定的定义。
+法院承认，疫苗接种在限制严重疾病、住院和死亡方面具有显着的有益效果，包括对奥密克戎(Omicron)变异毒株。然而，与其他新冠病毒变异毒株相比，它在减少奥密克戎变异毒株的感染和传播方面效果较差。
+从本质上讲，强制要求警察和新西兰国防军工作人员接种疫苗的命令是为了确保公共服务的连续性，并提高公众对这些服务的信心，而不是阻止新冠病毒的传播。事实上，向政府提供的健康建议是，不需要进一步的强制接种来限制新冠病毒的传播。我不相信这些服务的连续性是因为该命令而得到了实质性的推进。”法官说。
+简评：
+在新冠病毒大流行期间，我们看到的是新西兰总理杰辛达·阿德恩打着希望新西兰在2021年的疫苗接种率领先世界的旗号，对新西兰国民采取了堪比纳粹的强制封锁、强制疫苗，并让未接种疫苗的人承受着惩罚和痛苦，同时使整个新西兰社会疏远、分裂。
+如今，新西兰高院裁定强制疫苗接种是对新西兰人人权的严重侵犯。这一判决让我们看到在新西兰全国范围内取消政府强推的所有有关新冠病毒强制政策的希望，同时我们也相信这一判决也会对全世界放宽或取消新冠病毒限制和强制接种疫苗政策产生积极影响。因为新西兰高院定性的是“严重侵犯人权”，那么“严重侵犯人权”相应的后果也势必需要有组织或个人来承担。我们相信在新冠病毒大流行期间对自己国民犯下了“严重侵犯人权”罪行的各国政府领导人，如新西兰总理、加拿大小土豆之类的政客，将很快被民众清算同时被钉在历史的耻辱柱上遭人唾弃。
 
-**郭文贵先生：**共匪不灭，水不断流，直播绝不中断，只会多不会少，我向大家保证啊。七哥的生活方式改变，因为我到英国到日本去，我方式改变，甚至、甚至我在这个战斗之前，我都可能要申请个人破产都是有可能的，这是我今天给大家最后的一句话。
+新闻链接：[https://newspunch.com/new-zealand-high-court-ends-jacinda-arderns-vaccine-mandate-its-a-gross-violation-of-human-rights/amp/](https://newspunch.com/new-zealand-high-court-ends-jacinda-arderns-vaccine-mandate-its-a-gross-violation-of-human-rights/amp/)
 
-我申请破产了之后，这方式肯定要改变的。就是真的直播都是你们带设备了，我设备都不能有。这不是开玩笑的，那时候就是需要到日本以后，文艺真得给我做饭，你不是洗脚的问题，你真得给我做饭吃，爱米粒你轮班儿给我做饭去呀。Rachel、飞飞呀，飞飞戴上手套啊，别让她妈拿手捏鼓的小笼包，戴上手套蒸小笼包吃去。Rachel也让七哥瞄两下腚，是吧？因为那时候真的，因为我们现在最好的这是我的计划之中的，很有可能我要申请个人破产。
+翻译/简评：Brianchow
 
-因为和UBS这场战斗，还有跟PAG这场战斗，他意图就是……我本来就是个人破产状态，大家很清楚，我也没有钱，天知地知、事实知道。他折腾来折腾去，他折腾了我们这些人，他就是折腾钱嘛，是吧？如果我有一块币，我郭文贵就不应该活在这个世界上，我一个币都没有，是吧，我向大家保证过。
+PR：Harvey（叶知秋）
 
-那么这样的话，为啥我说很有可能我申请个人破产。然后我再到伦敦去、日本生活，真的是那些基地那都是爆料革命、新中国联邦的农场的，所有打完官司的钱都属于那些曾经的基金的，是吧，我个人破产了，我就没那么多个人负担，以后穿着大褂的时候，再看穿这今天也是新的啊，穿着大褂的时候在里面一拽都是“海东牌胸罩”，我估计我戴上…..这是真的，所以说个人生活的改变它只能让我更加、更多、更坚定地灭共，直播不会少只会多，和你们在一起的时间只会多不会少。
+* * *
 
-但是我要说的是战友们很多乱猜啊，这里边什么要跟七嫂开结婚证啦；七哥要公布是同性恋啦、双性恋啦；然后七哥什么要跟七嫂子……战友们你们很可爱，但是这就是战友们考验你们的智慧。共产党不灭，七哥任何个人都不会存在，所有做的决定只能有利于灭共，如果你对七哥没这个信任，你就不了解七哥。我看到群里边那战友预测、猜测，很搞笑、很天真、很可爱。但是Rachel、300年飞飞，共匪不灭，直播能少吗？只能多不能少。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-记住大家，还是那句话：你没打疫苗，你就是天下的赢家；你打了疫苗，一切对你来讲都很遥远甚至不存在；再一个，不灭共，你不打疫苗你也是不安全的，不灭共一切都不存在。所以咱就两件事儿：灭共、不打疫苗。就这么简单，一切都服务于这个，不管中间发生了多少事儿，都是鸟事儿！就是多留点儿水少留点儿水的事儿，是不是啊？水流着，没问题呀，早晚得流出来是不是？准备好了吧，英国、欧洲、日本，咱去流水去啦！
 
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
+编辑：【英国伦敦喜庄园编辑部】
 
-编辑整理：Jacques；
-
-字幕档制作：兵嫂；
-
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

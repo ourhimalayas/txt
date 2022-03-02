@@ -2,83 +2,192 @@
 ---
 
 
-## 也许是时候世界支持台湾合法政府的独立了
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2091836/)
+## Omicron再感染率探讨及紧急救援药物和设备的使用
+` 香草山醫療部` [轉載自GNews](https://gnews.org/zh-hans/2091965/)
 
-参议员马可.卢比奥： 由于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click) 支持承认俄罗斯在 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 的傀儡的独立，也许是时候世界支持 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) 合法政府的独立了
+**主讲**：文曦医生  长阔高深医生  麦可医生 文恩博士
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/logo-5-768x103-2.jpg)
 
-
-> Since [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) supports recognizing the independence of Russian puppets in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) maybe its time the world supports the independence of the legitimate government of [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Marco Rubio (@marcorubio) [March 2, 2022](https://twitter.com/marcorubio/status/1498825760924176391?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 在对乌克兰采取了令人发指的行动后，俄罗斯不配获得联合国安理会的席位。
+**主持**： 文紫医师 玛丽亚   **记录**：爆料粉
 
 
 
-> Russia does not deserve a seat on the UN Security Council after its egregious actions toward Ukraine. [pic.twitter.com/qz24oQcHMK](https://t.co/qz24oQcHMK)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 2, 2022](https://twitter.com/MarshaBlackburn/status/1498829680509693954?ref_src=twsrc%5Etfw)
+11:27
+
+**Omicron****再感染率探讨**
+
+**文曦医生**：英国统计数据显示，从2021年5月至2022年2月，之前已经感染过COVID-19中共病毒的病人，再次感染Omicron的人数超过65万人。从2021年12月开始，感染病例数突然出现一个高峰，说明之前感染其它变种毒株的人数比较稳定，但是自从Omicron出现以后，感染率就骤然上升。CDC数据显示，因为感染COVID-19病毒入院的病人，多数为已经接种过疫苗。在2021年1月1日至9月2日期间，共有201,269人因感染COVID-19住院。其中的139,655（69.4%）名患者是已经打过COVID-19疫苗后又感染住院，1,020名住院病患是未接种疫苗且先前感染过的人，6328名住院病患是已经接受完整疫苗接种且以前未感染过的患者。这都说明了接种疫苗对预防再次感染没有太大的作用。COVID-19自然免疫后再感染的机率（**下图**）红色曲线显示的是在6个月内曾被感染过的人，再度感染COVID-19的机率非常低；但是同样这批人，如随后有接种疫苗，在被感染6个月后，后来的再感染机率反而更高。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/醫學視角-2022-02-27-1.jpg)
+16:55 – 31:02
+
+新英格兰杂志有一篇对于**SARS-CoV-2****感染后的病人再次感染****Omicron****的机率**做了统计，统计的背景是COVID-19感染后，对Alpha、Beta、Delta变种的再感染有预防保护作用；但是Omicron变种存在多种变种，导致免疫逃避，自身免疫对Omicron是否一样能有保护作用。研究的目标：评估COVID-19感染恢复后，对Omicron和其它变种再感染是否有预防保护性。数据源是卡塔尔国家SARS-CoV-2数据库，数据种类是实验室检测（PCR），疫苗接种，临床感染和国家统计资料。参考定义：预防再感染有效性是指已从SARS-CoV-2感染中恢复的患者和未曾感染者相对比，对病毒感染的机率降低。研究设计的资料分组分为：病例组（PCR阳性）和对照组（PCR阴性）。病例组的次分组为：有感染史/无感染史，对照组的次分组也分为：有感染史/无感染史组。对比条件分为有症状感染、敏感性分析和对重症和死亡预防性对比（对重症和死亡有无保护作用）。其中，敏感性分析分为：调整疫苗接种状态后对比/排除疫苗接种者后对比。
+
+19：57
+
+数据显示，自身免疫对于再次感染后预防有症状感染的有效性分析结论：对于Alpha毒株的保护率达到90.2%，Beta达到85.7%，Delta92%，Omicron是56%。调整疫苗接种状态后的分析显示：Alpha保护率90.3%； Beta保护率85.1%； Delta保护率91.9%； Omicron保护率55.9%。
+
+排除接种疫苗者后的分析显示：Alpha保护率95.3%； Beta保护率85.4%； Delta保护率90.2%； Omicron保护率61.9%.
+
+对重症和死亡的预防效果分析显示：Alpha保护率69.4%； Beta保护率88%； Delta保护率100%； Omicron保护率87.8%.
+
+**长阔高深医师：**无论是在注射疫苗后还是在自然感染后，血清中的抗体浓度到一定时间后都在下降，6个月是一个转折点。未注射疫苗者更具优势，感染过Omicron的人再感染Alpha、Beta、Delta病毒的机率很低。
+
+COVID-19中共病毒除了有刺突蛋白 (S protein)外，还有核壳蛋白(Nuclear capsule protein)，自然感染过COVID-19的病人，体内对核壳蛋白有比对刺突蛋白更强效的免疫力，但是注射疫苗的人只有对刺突蛋白有免疫力。另外自然感染的病人可以产生IgA免疫球蛋白，以及长久免疫记忆的免疫反应，也会产生干扰素，这些都是有效的自体免疫作用，比单纯注射疫苗的保护力更佳。
+
+以上数据的结论是：
+
+- 既往COVID-19感染恢复后，对预防Alpha、Beta、和Delta毒株的再感染非常有效（约90%）
+- 既往COVID-19感染恢复后，对于Omicron毒株再感染的保护性略低（约60%），但仍十分有效。
+- 既往COVID-19感染恢复后，对各种病毒变体再感染后导致重症住院或死亡，有超强的预防和保护力。
 
 
+43:10
 
-参议员玛莎.布莱克本： 联合国必须剥夺俄罗斯在安理会的否决权。
+**紧急救援药物和设备的使用**
 
+**麦可医生**：旅行紧急用药指南
 
+在**灾难中**生活的准备（**生活物资**）
 
-> The UN must strip Russia of its ability to veto in the security council.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 1, 2022](https://twitter.com/MarshaBlackburn/status/1498787977719431172?ref_src=twsrc%5Etfw)
-
-
-
-拜登总统： 普京总统认为他可以顺利挺进乌克兰——世界将会接受。 相反，他遇到了他从未想到过的强力阻击。 他遇到了(强大的)乌克兰人民。
-
-
-
-> President Putin thought he could roll into Ukraine — and the world would roll over.
->  
-> Instead, he met a wall of strength he never imagined.
->  
-> He met the Ukrainian people.
-> — President Biden (@POTUS) [March 2, 2022](https://twitter.com/POTUS/status/1498843134721150979?ref_src=twsrc%5Etfw)
+- 罐头、饼干、面粉、盐油、奶粉、水、过滤棒
+- 通讯设备：手电筒、walkie talkie对讲机、收音机、计算机
+- 能源设备：小电池、大的可充式便携式电源、太阳能照明灯、手电筒
+- 御寒衣服：帽子、手套、羽绒服、内外衣、睡袋
+- 现金、护照、ID、纸和笔、雨伞、雨衣
+- 酒精、口罩、洗手液、火柴、小刀
+- 车、汽油
 
 
+在**灾难中**生活的准备（**医疗物资**）
 
-拜登总统： 美国司法部正在组建一个专门的工作组来追查俄罗斯寡头的罪行。 我们正与我们的欧洲盟友一起寻找并没收他们的游艇、豪华公寓和私人飞机。 我们不会放过他们的不义之财。
-
-
-
-> The U.S. Department of Justice is assembling a dedicated task force to go after the crimes of Russian oligarchs.
->  
-> We are joining with our European allies to find and seize their yachts, their luxury apartments, their private jets. 
->  
-> We are coming for their ill-begotten gains.
-> — President Biden (@POTUS) [March 2, 2022](https://twitter.com/POTUS/status/1498844556300886022?ref_src=twsrc%5Etfw)
+- 治疗发热、疼痛、腹泻、呕吐、抗菌素的药物
+- 治疗失眠的药物：抗组胺药、镇静药
+- 治疗外伤的急救包：创可贴、药膏、包扎带、小剪刀、胶布
+- 治疗被昆虫咬伤的过敏反应
 
 
+49:50 – 1:16:10
 
-比尔·格茨: 拜登今晚没有提到要让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对传播导致大流行的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 负责。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 放出致命病毒，是邪恶的，必须承担责任，否则北京将制造更多致命的瘟疫。
+**国际民航组织（****ICAO****）要求提供三种类型的医疗包**
 
-
-
-> Biden tonight made no mention of holding Communst China accountable for spreading the virus that caused the pandemic. The CCP unleashed the deadly virus, is evil, and must be held responsible or Beijing will create even more deadly plagues
-> — Bill Gertz (@BillGertz) [March 2, 2022](https://twitter.com/BillGertz/status/1498854110472278016?ref_src=twsrc%5Etfw)
-
+- First Aid Kit (FAK) – 所需标准比例是每100个席位1个FAK。虽然FAK的内容主要用于伤口护理，但一些国家也包括非处方药。（创口贴、酒精、碘酒、绷带、剪刀、抗过敏药物、药膏等非处方药、泰诺、等消炎止痛退烧药、阿司匹林等药物）
+- 紧急医疗包(EMK) – 对于获准运送超过100名乘客的飞行时间超过2小时的飞机，携带一个医疗包，供以上或其他有资格的人员在飞行中治疗医疗时使用。紧急情况，EMK包含药物，并由合格的医疗保健从业者负责打开。
 
 
-参议员玛莎·布莱克本： 同意劳拉·英格拉汉姆[@IngrahamAngle](https://twitter.com/IngrahamAngle) – 拜登必须制裁 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 支持俄罗斯入侵乌克兰的行径。 俄罗斯、[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)、伊朗和北朝鲜是新的邪恶轴心国。 必须阻止他们。
+**药品**包括：
+
+1. 阿司匹林片：325mg
+2. 抗组胺药（苯海拉明）片剂 25mg 用于过敏并促眠
+3. 抗组胺药（苯海拉明）针剂 50mg注射单剂量  用于过敏并促眠
+4. 阿托品：0.5mg 单次5ml 多用于肌肉注射 （可用于有机磷类的中毒）
+5. 葡萄糖：50%/50ml 注射液
+6. 肾上腺素：1：1,000（肌内注射）需专业医务人员用于重症
+7. 肾上腺素：1：10,000 2ml注射液  需专业医务人员用于重症
+8. 吸入支气管扩张剂（计量剂量或等效剂量）
+9. 利多卡因：5ml、20mg/ml 用于局麻、抗心律失常
+10. 硝酸甘油片：0.4mg 用于心梗
+11. 非麻醉镇痛药：止痛
+12. 生理盐水、500ml：
 
 
+**急救器材**包括：
 
-> Agree with [@IngrahamAngle](https://twitter.com/IngrahamAngle?ref_src=twsrc%5Etfw) – Biden must sanction Communist China for bolstering Russia’s invasion of Ukraine.
->  
-> Russia, China, Iran and North Korea are the new axis of evil.
->  
-> They must be stopped. [https://t.co/dmx0r74mcE](https://t.co/dmx0r74mcE)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 2, 2022](https://twitter.com/MarshaBlackburn/status/1498835382389125120?ref_src=twsrc%5Etfw)
+1. 自动体外除颤器
+2. 血压计、听诊器
+3. 口咽气道：用于气管插管时
+4. 乳胶手套或同等物品
+5. 注射器
+6. IV给药套件、带管道和连接器
+7. 具备口罩的自动充气手动复苏器（AMBU袋三种尺寸）
+8. 心肺复苏（CPR）面罩（三种尺寸）：按压30次——打开气道（抬起下颌、清理鼻口腔、扣住送气面罩）——给气
 
 
+**常见的其它添加药品**：
+
+1. 包括肾上腺素自动注射器
+2. 胰升糖素和纳洛酮（glucagon、naloxone）
+3. 口服溶解形式的止吐剂（Ondansetron）昂丹司琼正在成为一种常见的添加物
+4. 一些航空公司包括镇痛药和抗组胺药物的儿科制剂
+5. 主要用于治疗癫痫发作的可注射地西泮（diazepam）是欧洲运营商的强制性项目，但是在美国不是
+
+
+- 通用预防包(UPK) – UPK包含用于可能接触传染病的船员和志愿卫生专业人员的个人防护设备
+
+
+1:16:10 – 1:48:40
+
+**预防静脉血栓**（长时间飞行易出现的情况）
+
+- 要经常走动，每隔1-2小时走动一下
+- 脚踝（小腿肌肉拉伸）和膝盖（大腿肌肉拉伸）作频繁屈伸的动作
+- 分级压力袜，膝下分级压力袜（GCS）（脚踝压力15-30mmHg）：被认为对具有与旅行相关静脉血栓高风险的患者有益
+- 在一般人群中，药物包括阿司匹林、LMWH、华法林、Xa因子抑制剂和直接凝血抑制剂
+
+
+**长阔高深医生**：预防静脉血栓特别是长期飞行者，需要做3件事，多喝水、提前服用（3-5天）阿司匹林、多活动。
+
+1:20:50 – 1:30:50
+
+**麦可医生**：**战争状态下的渐进心理反应**
+
+**下图**各种颜色的递进是指一个战士从上战场之前到罹患比较严重的精神疾病的过程。
+
+第一个**绿色状态**是出发前，在本国要进行培训，要讲一些意外发生时，怎么做。讲的时候要对战士有心理暗示，会遇到险情，甚至流血牺牲。
+
+第二个**黄色状态**：到战场后方，新来的士兵看到前线撤下来的士兵的一些伤害，对其是一个冲击。
+
+第三个**淡红色状态**：到了前线，目睹了最前方的死伤，以及自己的潜在和现存的伤病。
+
+第四个**红色状态**：在战事中，在精神方面失控，判断力下降，不分敌友、大哭等症状，不能再继续作战。回到大本营，有精神症状需要治疗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/醫學視角-2022-02-27-2.jpg)
+心理受到伤害的人群或士兵的诊断（**下图**）以时间来划分可区分为：
+
+症状持续在**四天以内**，称为**急性压力反应** Acute Stress Reaction (ASR)。
+
+症状持续在**一个月以内**，称为**急性压力失调**Acute Stress Disorder（焦虑、恐慌、闪回等症状）。
+
+症状如果持续**超过一个月**未消除，称为**急性创伤后压力失调**Acute Post-Traumatic Stress Disorder (APTSD)。
+
+症状如果**延迟到****3****个月以上**，称为**慢性创伤后压力失调**Chronic Post-Traumatic Stress Disorder (CPTSD)。
+
+**心理疏导对于战争等原因造成的精神症状非常重要**。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/醫學視角-2022-02-27-3.jpg)
+**在灾难中生活的准备**（**心理**）
+
+- 媒体宣传的心理战术会影响士兵以及大众（夸大单一事件，让大众形成恐慌）
+- 心理作用发酵，会让自己往最坏的处境去想（No No !）
+- 人的同理心会使自己替换成情景中的受虐者
+- 健康人看到战争血腥画面后的心理反应如下：
+- 认为施暴者进行非人道行为
+- 自我感觉到世界缺少关爱与安全
+- 误判它是可以避免的，假如我们做了某些方面的防护或妥协让步
+- 人在压力状态下往往把现实与想象混淆（极少可能性——可能在任何时候、在任何人身上）
+- 往往做出错误决定（误认火警，跳楼逃生）
+- 一定要回到现实，选择客观的媒体获取信息
+- 咨询有生活经历的长者、智者（心理辅导员、牧师、家族长者、老师）
+- 减少压力的简单方式：倾诉苦闷和焦虑
+
+
+(本文为作者观点，不代表GNEWS立场)
+
+**原视频连结**： https://gtv.org/video/id=621bb67b019ef64da652623f
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2-1.png)
+
+校对/编辑/发稿：云豹
+
+**更多信息，更多关注**
+
+[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 
