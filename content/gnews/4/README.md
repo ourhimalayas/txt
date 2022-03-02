@@ -2,23 +2,31 @@
 ---
 
 
-## 70名日本人报名义勇军
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2094106/)
+## 海底捞的亿万富翁创始人卸任首席执行官
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2094186/)
 
-作者：华夏的文丽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-02-201641.jpg)
-据日本每日新闻报道，日本人看到俄罗斯侵略乌克兰战争的残酷和不愿意看到乌克兰的年轻人在战争中死去，于是报名参加义勇队支援乌克兰，70位报名者中有50名退役自卫军人。乌克兰的紧急救援队允许外国人参加志愿者队伍。
+**撰稿：日本东京方舟农场  JIHO**
 
-日本政府把乌克兰定位危险区域，划分为4级，不建议前往和劝退地区，林芳正外相在记者招待会上说，在日本的乌克兰大使馆希望国际力量前往帮助，但不支持日本国民前往有风险的地区和国家。乌克兰政府只能希望更多的力量去乌克兰进行人道主义支援。
+根据路透北京3月2日消息 – 火锅连锁店海底捞表示，其亿万富翁创始人张勇已卸任首席执行官一职，将把重心转向长期战略规划。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-14.png)(图片来自网络)
+此举正值海底捞努力削减门店数量之际，现年 43 岁的前副首席执行官兼首席运营官杨丽娟于 3 月 1 日上任。
 
-感悟：一般民众代表的正义力量正在集结，日本平民的义勇让人敬佩，新中国联邦和其他国际救援组织在危急关头实行救援计划和行动。世界人民一定都站在正义的一边，邪恶一定灰飞烟灭。
+36 岁的李宇被任命为中国大陆业务的首席运营官，而 38 岁的王金平被任命为其在香港、澳门、台湾和海外业务的首席运营官。
 
-参考链接：[ウクライナ「義勇兵」に日本人70人が志願　50人が元自衛官](https://mainichi.jp/articles/20220301/k00/00m/030/165000c)
+花旗分析师在一份研究报告中表示，这些任命强调了该公司致力于“通过推进其高级管理人员过渡以适应其积极的商店重组计划”来改革管理层的承诺。
 
+该公司上周警告称，预计 2021 年将录得 38 亿元至 45 亿元人民币（6 亿至 7.1 亿美元）的净亏损，其中大部分是由于餐厅关闭造成的一次性损失。
 
+现年 52 岁的张勇出生于中国四川省，但现在是新加坡公民，他将保留董事长的头衔。
 
-审核校对：Barry Jack
-上传排版：F
+海底捞股价周三早盘下跌 1.7%，而恒生指数下跌 0.9%。
+
+参考链接：
+1.[https://www.reuters.com/business/billionaire-founder-chinese-hotpot-chain-haidilao-steps-down-ceo-2022-03-02/?taid=621f2b0faf8d2b00015796ea&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/business/billionaire-founder-chinese-hotpot-chain-haidilao-steps-down-ceo-2022-03-02/?taid=621f2b0faf8d2b00015796ea&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+
+素材采编：JIHO
+编辑：青城道姑
+发布：爱放飞
 
  
 

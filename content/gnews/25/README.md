@@ -2,44 +2,40 @@
 ---
 
 
-## 新西兰高等法院驳回了对所有国防军人员和警察的疫苗接种授权
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2093362/)
+## 疫苗让台湾付出比共产党更大的代价给香港带来巨大灾难
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2093613/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-5.png)
+G-TV视频链接：[https://gtv.org/video/id=62164ada1408ee3a03a3c892](https://gtv.org/video/id=62164ada1408ee3a03a3c892)
 
-图片来自原文
+**郭文贵先生：**香港的菜价，超市价现在几倍的涨，香港人现在这被隔离那被隔离。香港人就活在一个豪华的监狱里，进大陆整死你，查你再查，怎么去威胁你。出香港是大海，到了国外去怎么那么容易生存呢？这个豪华的监狱和所谓的冰冷的监狱它都叫监狱。
 
-新西兰因实施世界上最严厉的中共病毒（COVID）禁令而闻名，引发了一场 “结束中共病毒（COVID-19）强制限制令 “的车队抗议活动，其灵感来自加拿大的卡车司机自由车队。
+现在是台湾和香港和大陆之间，大家想到了疫苗的问题，台湾为打的疫苗，一定会付出比共产党还要大的代价。香港的疫苗你会看到，香港的灾难一定因为疫苗巨大灾难，因为香港的供应链不产什么，更加脆弱。它不用大卡车罢工，没人开船没人运输了，香港一个月就惨了，就臭港了，台湾一样的。
 
-2月25日，周五，新西兰高等法院驳回了总理杰辛达-阿登（Jacinda Arden）对所有国防军人员和警察接种疫苗的授权。
+编辑整理：Jacques；
 
-该授权要求所有国防军和警察在2022年3月1日之前根据《Covid-19公共卫生应对法案》接种两针中共病毒（COVID）疫苗。
+字幕文件制作：兵嫂；
 
-弗朗西斯-库克（Francis Cooke）法官支持对这项授权的质疑。库克认为，该授权对 《新西兰权利法案》保护的基本权利施加了不合理的限制。所侵犯的相关权利是 “自由拒绝医疗的权利 “和 “表达宗教信仰的权利”，同时承认 “工作权 “也通过 “被迫辞职的相关压力 “受到间接限制。
+视频制作及上传：Cindy；
 
-库克引用在法庭上提供的专家证据，写道：”我不认为该命令会带来实质性的变化”。这包括 “强制接种疫苗无助于防止工人……感染中共病毒（COVID-19），或将其传播给他人 “的证据。
+G-News发布：小满；
 
-代表警察和国防人员挑战强制令的律师马修-海格（Matthew Hague）说，他们应该立即能够返回工作岗位。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-《新西兰先驱报》分享了警方和新西兰国防军发言人的 “两个独立但相同的声明”，其中他们对法院判决的决定性反应并不明确。由于司法裁决刚刚公布，我们将花时间考虑这一决定。我们将与员工沟通下一步措施。在此期间，终止雇佣关系的工作目前不会进行。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-工作场所关系和安全部长Michael Wood、副警察局长Tania Kura和新西兰国防军首席人事官Matthew Weston准将提交了宣誓书，为该任务辩护。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-备注：
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-- 疫苗：是指新冠疫苗
-- 中共病毒：是指新冠病毒Covid-19
-- Covid疫苗本身就是随时爆发的病毒
-- 我们不反疫苗，只针对假疫苗
-- 我们不反科学，只针对反人类
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-新闻来源链接：[https://www.lifesitenews.com/news/new-zealand-victory-high-court-strikes-down-vax-mandate-for-police-and-defense-force/?utm\_source=top\_news&utm\_campaign=usa](https://www.lifesitenews.com/news/new-zealand-victory-high-court-strikes-down-vax-mandate-for-police-and-defense-force/?utm_source=top_news&amp;utm_campaign=usa)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-本文作者：Rebecca (一切心皆不可得！)  
-上传排版：Hong
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

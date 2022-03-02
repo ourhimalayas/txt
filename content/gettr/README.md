@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/2/2022 1:08 PM (UTC)`
+
+2022年3月2日 文贵大直播：乌克兰救援人道关怀；俄乌战争中国人遭恨；核战与全球经济崩溃；新中国联邦之大拯救
+![img](https://media.gettr.com/group40/origin/2022/03/02/13/bdcfd878-7cd5-e091-6761-8bbf5edbc870/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/2/2022 1:04 PM (UTC)`
+
+【UKRAINEHELP-002】<br/>由于乌克兰局势日益恶化，NFSC和法治基金与联合国救援组织GEM共同合作，近日紧急安排第一批次营救专机，协助华人同胞、美国及其他各国友人免费撤离，目的地为美国（需要美国签证）和其他安全中转国。我们将在波兰的Medyka设立临时接待点，提供30天以内的免费食宿。 请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。<br/><br/>24小时紧急救援客服联系方式如下：<br/><br/>邮箱：<br/>ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO<br/><br/>电话(短信或电话）：+1720-657-6776 或 +1719-224-4232<br/><br/>NFSC ｜法治基金<br/>3/1/2022
+![img](https://media.gettr.com/group34/getter/2022/03/02/13/843d26b9-1345-bf09-7ea2-4be0dc38d0d2/b215bf46e43b0bb3cc7910cc1dafcdfe.jpg)
+
+---
+
+`@miles 3/2/2022 1:02 PM (UTC)`
+
+2022年3月2日 文贵大直播：乌克兰救援人道关怀；俄乌战争中国人遭恨；核战与全球经济崩溃；新中国联邦之大拯救
+![img](https://media.gettr.com/group13/origin/2022/02/24/14/2a6cc8cb-4cac-0c1b-d127-5da950db6838/9ffdf387641f2cd4fb6efb3357079dba.jpg)
+
+---
+
 `@miles 3/2/2022 12:15 AM (UTC)`
 
 3/1/2022 Miles Guo’s GETTR: In a war, life always comes first. However, the CCP is launching a disinformation campaign to smear the New Federal State of China for collecting personal information in the name of rescuing the Chinese people in Ukraine. The Chinese have unfortunately turned out to be hated the most in the Russia-Ukraine war. The New Federal State of China will arrange flights taking off from the neighboring countries of Ukraine to the US, Chinese visa-free countries, or Southeast Asia respectively, please see the upcoming announcements for detailed information.<br/><br/>3/1/2022 文贵盖特：战争中生命第一，而中共却造假污蔑新中国联邦收集个人信息；俄乌战争中最被人恨的是中国人；新中国联邦会在乌克兰周围安排飞机分别飞往美国、中国免签国或东南亚，具体请见公告<br/>
@@ -133,27 +154,6 @@
 
 2/27/2022  Miles Guo: President Zelenskyy is a wise world-class leader. He upholds the truth and is defeating Russia's disinformation war with the strategy of showing weakness; Zelenskyy will be a legend.<br/><br/>2/27/2022 文贵直播：乌克兰总统泽连斯基是个智慧的世界级领导人，他用唯真不破的示弱战略正在击败俄罗斯的虚假信息战；泽连斯基将是个传奇<br/>
 ![img](https://media.gettr.com/group33/getter/2022/02/28/01/c8ad2cee-8cf9-434d-3b61-f491ee7ea602/out.jpg)
-
----
-
-`@miles 2/27/2022 11:59 PM (UTC)`
-
-2/27/2022 Miles Guo: 2/27/2022 Miles Guo: By reporting on the brutality of the war and the atrocities committed by the Russian troops, Ukraine's president has managed to get Russia into the Tacitus trap by launching information warfare using social media, and he also got Europe to help with Ukraine's GPS and cyber control. This is the world's first AI-involved war!<br/><br/>2/27/2022 文贵直播：乌克兰总统通过报道战争的残酷和俄军暴行，用社交媒体信息战让俄罗斯进入塔西佗陷阱，并让欧洲为其GPS和网络控制提供了帮助，这是世界上第一次AI参与的战争！<br/>
-![img](https://media.gettr.com/group46/getter/2022/02/27/23/71d9b5f7-cca5-a6b1-9dd7-c1c0ac7c9429/out.jpg)
-
----
-
-`@miles 2/27/2022 11:14 PM (UTC)`
-
-2/27/2022 Miles Guo: Taiwan will win if it can withstand the CCP’s attack for 3 hours, and then the US, Japan, and Australia will even directly participate in the war. The US can destroy the CCP’s 30,000 military bases in 3 minutes. Although the CCP may threaten with nuclear weapons, the Taiwanese troops will definitely fight with all its might.<br/><br/>2/27/2022 文贵直播：台湾能抵挡住中共3小时的攻击就赢了，美日澳甚至会直接参战，美国3分钟可解决3万个共匪基地；虽然共匪可能会用核武器威胁，但台湾军队必将大战一场
-![img](https://media.gettr.com/group28/getter/2022/02/27/23/b953aea5-ab45-8e28-526e-662e6ba2df43/out.jpg)
-
----
-
-`@miles 2/27/2022 10:15 PM (UTC)`
-
-2月27日号：尊敬的战友们好．你们见识了吗？传播台湾危机，拯救乌克兰战区的同胞们的信息了吗？一切都已经开始！
-![img](https://media.gettr.com/group11/getter/2022/02/27/22/48af2f38-025a-7c16-9aa1-aca8d59fe54b/out.jpg)
 
 ---
 
