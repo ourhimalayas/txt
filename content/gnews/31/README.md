@@ -2,23 +2,29 @@
 ---
 
 
-## 70名日本人报名义勇军
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2094106/)
+## 今日盖特大V推荐 — 查理·柯克（Charlie Kirk）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2094273/)
 
-作者：华夏的文丽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-02-201641.jpg)
-据日本每日新闻报道，日本人看到俄罗斯侵略乌克兰战争的残酷和不愿意看到乌克兰的年轻人在战争中死去，于是报名参加义勇队支援乌克兰，70位报名者中有50名退役自卫军人。乌克兰的紧急救援队允许外国人参加志愿者队伍。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-193.png)
+盖特链接：**[https://gettr.com/user/charliekirk11](https://gettr.com/user/charliekirk11)**
 
-日本政府把乌克兰定位危险区域，划分为4级，不建议前往和劝退地区，林芳正外相在记者招待会上说，在日本的乌克兰大使馆希望国际力量前往帮助，但不支持日本国民前往有风险的地区和国家。乌克兰政府只能希望更多的力量去乌克兰进行人道主义支援。
+**查理·柯克自述：**
 
-感悟：一般民众代表的正义力量正在集结，日本平民的义勇让人敬佩，新中国联邦和其他国际救援组织在危急关头实行救援计划和行动。世界人民一定都站在正义的一边，邪恶一定灰飞烟灭。
+“美国转折点”创始人兼总裁，查理·柯克秀主持人，《**MAGA Doctrine**》作者
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-194.png)图片来源：网络
+**查理·柯克简介：**
 
-参考链接：[ウクライナ「義勇兵」に日本人70人が志願　50人が元自衛官](https://mainichi.jp/articles/20220301/k00/00m/030/165000c)
+查理·柯克（**Charles J. Kirk**生于1993年10月14日）是美国保守派活动家和电台脱口秀主持人。
 
+查理·柯克于2012年与比尔·蒙哥马利（**Bill Montgomery**）一起创立了“美国转折点”，并一直担任执行董事。同时，他是“转折点行动”、“川普的学生”和“转折点信仰”的首席执行官，“转折点永久性资助”总裁，以及国家政策委员会成员。
 
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-审核校对：Barry Jack
-上传排版：F
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

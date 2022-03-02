@@ -37,13 +37,6 @@
 
 ---
 
-`@miles 3/2/2022 1:02 PM (UTC)`
-
-2022年3月2日 文贵大直播：乌克兰救援人道关怀；俄乌战争中国人遭恨；核战与全球经济崩溃；新中国联邦之大拯救
-![img](https://media.gettr.com/group13/origin/2022/02/24/14/2a6cc8cb-4cac-0c1b-d127-5da950db6838/9ffdf387641f2cd4fb6efb3357079dba.jpg)
-
----
-
 `@miles 3/2/2022 12:15 AM (UTC)`
 
 3/1/2022 Miles Guo’s GETTR: In a war, life always comes first. However, the CCP is launching a disinformation campaign to smear the New Federal State of China for collecting personal information in the name of rescuing the Chinese people in Ukraine. The Chinese have unfortunately turned out to be hated the most in the Russia-Ukraine war. The New Federal State of China will arrange flights taking off from the neighboring countries of Ukraine to the US, Chinese visa-free countries, or Southeast Asia respectively, please see the upcoming announcements for detailed information.<br/><br/>3/1/2022 文贵盖特：战争中生命第一，而中共却造假污蔑新中国联邦收集个人信息；俄乌战争中最被人恨的是中国人；新中国联邦会在乌克兰周围安排飞机分别飞往美国、中国免签国或东南亚，具体请见公告<br/>
@@ -153,6 +146,13 @@
 
 2/27/2022 Miles Guo:  The CCP’s wars have always costed the lives of countless people with no strategy at all; Ukraine has perfectly used the psychology of war, not only making friends but also winning their support; the US seems to be silent in the war in Ukraine, but they are actually aiming at the instigator CCP<br/><br/>2/27/2022  文贵直播：中共的战争一向打的都是无数人的生命，毫无战略可言；乌克兰完美地运用了战争心理学，不但交了朋友还赢得了朋友的支持；美国在乌克兰战事上看似不动声色，其实已瞄准了背后的中共<br/>
 ![img](https://media.gettr.com/group3/getter/2022/02/28/03/51d2f168-ff56-8bff-f735-c27679c42e6e/out.jpg)
+
+---
+
+`@miles 2/28/2022 1:12 AM (UTC)`
+
+2/27/2022  Miles Guo: President Zelenskyy is a wise world-class leader. He upholds the truth and is defeating Russia's disinformation war with the strategy of showing weakness; Zelenskyy will be a legend.<br/><br/>2/27/2022 文贵直播：乌克兰总统泽连斯基是个智慧的世界级领导人，他用唯真不破的示弱战略正在击败俄罗斯的虚假信息战；泽连斯基将是个传奇<br/>
+![img](https://media.gettr.com/group33/getter/2022/02/28/01/c8ad2cee-8cf9-434d-3b61-f491ee7ea602/out.jpg)
 
 ---
 

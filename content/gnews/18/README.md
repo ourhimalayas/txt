@@ -2,33 +2,38 @@
 ---
 
 
-## 概述美国对中国的帮助——清政府时期
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2094561/)
+## 有声|拜登指派跨党派代表团于3月1日访台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2094657/)
 
-作者：纽约香草山农场 – 静言
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-回顾近现代历史，中国在遭逢每一个难关时，都得到了来自美国的极大帮助。即使是邓小平也不得不承认：这几十年来，凡是和美国搞好关系的国家都富起来了。于中国而言，美国更是中国人民真正的朋友。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-2.jpg)
-早在清朝末年，中国大厦将倾，而美国此时已经明白，中国的衰弱只是因为其科学知识的缺乏。于是，美国促使一批又一批的中国学生赴美学习先进技术，中国才得以逐渐走上现代化的道路。
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间2月28日晚，台湾总统府发言人张惇涵表示，美国跨党派代表团将于3月1日至2日，搭乘行政专机来台湾访问。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12.jpeg)
+该代表团将由美国前参谋首长联席会议主席穆伦率领，成员中包括前国防部政策次长佛洛诺伊、前白宫副国安顾问欧苏利文、前白宫国安会亚洲事务资深主任葛林，及前白宫国安会亚洲事务资深主任麦艾文，显示出两党派对印太区域及台湾安全议题的高度共识与重视。
 
-另一方面，美国将庚子赔款用于在中国建造学校，这当中也包括目前中国的最高学府——清华大学。为了培养人才，当时，清华大学的优秀学生可以在毕业后免费前往美国深造。此外，美国人还在中国建立了12所教会大学，而赫赫有名的燕京大学，即北京大学前身也在其中。至于中国现在的大型医院，其医学院的前身几乎都是教会医院，包括协和医院和华西医院等等，甚至是后来的中国军医医院的人才和医疗体系都莫不出自教会医院。
+张惇涵称，蔡总统将于3月2日与代表会谈，双方将就台美关系及国际区域局势等各项重要议题交换意见。此次台美交流将促进双边关系的稳健发展，共同维护区域的和平稳定，也突显台美关系「坚若盘石」的深远意义。
 
-彼时，美国的举动还让许多国家纷纷效仿，他们大多退还或停止了清政府的庚子赔款。
 
-参考链接：[历史上美国曾七次帮助中国度过难关](http://www.usaphoenixnews.com/news_show.php?id=344974)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+文字版原文：[拜登指派跨党派代表团于3月1日访台](https://gnews.org/zh-hans/2089288/)
 
-总编/编辑: Irene木木
-校正/发稿：Fei797
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
