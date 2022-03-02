@@ -2,26 +2,26 @@
 ---
 
 
-## 泽连斯基控诉俄侵略军无差别攻击
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2091553/)
+## 乌克兰指控白俄罗斯参与战争罪行
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2091622/)
 
 作者：纽约磐石农场—在远方
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-4.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-6.png)
 
 
-台媒报道，乌克兰总统泽连斯基2月27日控诉称，俄国侵略军正在行使无差别攻击，已初现大屠杀征兆。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpOUotg7.jpg)[图源网络](https://news.ltn.com.tw/news/world/breakingnews/3843070)
-泽连斯基在电视上表示，过去一个晚上，乌克兰街头再次发生激烈交战，俄国侵略军用导弹和火箭无情地轰炸完全没有军事设施的贫民住宅区和民生基础设施，甚至包括救护车和幼儿园。
+台媒2月27日报道，据乌克兰空军发布的信息指出，他们击落了一枚从白俄罗斯发射的巡航导弹，指控白俄罗斯也加入了俄罗斯侵犯乌克兰的行列。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phpNHsLKJ.jpg)图源法新社
+据乌克兰空军司令部脸书信息称，稍前乌克兰一架TU-22军机击落了从白俄罗斯领土发射，攻击乌克兰首都基辅的导弹。乌克兰空军司令部指控，这是又一起白俄罗斯和俄罗斯犯下的战争罪行。
 
-泽连斯基先前就曾指控俄军在乌克兰犯下种种罪行已经显露出大屠杀的征兆，随意杀人并将和平的城市变成军事目标。他呼吁外国志愿者组成雇佣兵团，与乌克兰人民一起抵抗俄罗斯的侵略。
+另据美国麦克萨太空科技公司的卫星图像显示，25日拍到白俄罗斯斯霍伊尼基附近，出现大量地面部队与直升机部队集结。
 
 参考来源：
 
-[屠殺？控俄軍無差別攻擊 澤倫斯基：連救護車也炸……](https://news.ltn.com.tw/news/world/breakingnews/3843070)
+[攔截一枚巡弋飛彈！ 烏克蘭指控入侵行動白俄羅斯也有份](https://news.ltn.com.tw/news/world/breakingnews/3843067)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-3.jpg)
 
 编辑/校对/发稿：兰兰
 
@@ -38,7 +38,7 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-5.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-7.png)
 
 
  

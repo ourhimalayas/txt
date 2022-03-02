@@ -15,119 +15,119 @@
 
 ---
 
-### [尽管俄罗斯原油价格便宜但买家回避](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [俄罗斯对哈尔科夫的打击是“毫不掩饰的恐怖”](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [乌克兰指控白俄罗斯参与战争罪行](/content/gnews/3/README.md)
- ` GTV News Talk`
-
-### [中共背信弃义乌克兰？](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [申请个人破产的七哥只要共匪不灭就绝对不会中断直播](/content/gnews/5/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [有声|欧盟委员会主席宣布一系列对俄罗斯的制裁](/content/gnews/6/README.md)
+### [有声|郭先生怒责中国共产党在乌俄战争中把同胞无情的抛弃](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [谈古论今 | 君子不立于危墙之下——乌克兰惨痛的教训](/content/gnews/7/README.md)
+### [【秘翻在线】美加两国自愿者踊跃报名参加乌克兰“国际军团”](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [个人信息 真香](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [泽连斯基控诉俄侵略军无差别攻击](/content/gnews/8/README.md)
- ` GTV News Talk`
+### [克劳斯-施瓦布的大重置注定要失败](/content/gnews/4/README.md)
+ ` 温哥华扬帆农场`
 
-### [西雅图圣地亚哥德国英国日本等地对华人的愤怒令人恐惧](/content/gnews/9/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [苹果、福特等美国大品牌加入制裁俄罗斯企业](/content/gnews/10/README.md)
+### [俄乌危机 台湾朋友与墙内朋友的不同观点与态度](/content/gnews/5/README.md)
  ` 蓝莲花农场`
 
-### [美国对俄罗斯增加数字货币制裁](/content/gnews/11/README.md)
- ` NFSC News`
+### [尽管俄罗斯原油价格便宜但买家回避](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [有声|美国曾对中国的帮助概述](/content/gnews/12/README.md)
- ` MOSREC`
+### [俄罗斯对哈尔科夫的打击是“毫不掩饰的恐怖”](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [3/2 银河快讯:70名日本人志愿加入乌克兰义勇军；众议院通过“以最强烈的措辞谴责”俄国入侵乌克兰决议](/content/gnews/13/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [七哥将在G-Clubs年会唱响：你的爱总是在远方等着我](/content/gnews/14/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [教育是新中国联邦天大的事（四）](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美总统拜登与乌总统泽连斯基通电话表支持](/content/gnews/16/README.md)
- ` 波士顿五月花农场金融部`
-
-### [唱灭共的雪时感觉头上有人捏着让嗓子顶着鼻子找到感觉](/content/gnews/17/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [俄乌战火下的中国留学生，谁来救你？](/content/gnews/18/README.md)
- ` 澳喜特战旅Gnews`
-
-### [有声|国际社会推动对俄罗斯实施更多制裁](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月28日晚](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [美前国务卿蓬佩奥将于3月访台](/content/gnews/21/README.md)
+### [乌克兰指控白俄罗斯参与战争罪行](/content/gnews/8/README.md)
  ` GTV News Talk`
 
-### [政治、经济大重组过后，最终形成人类的文明](/content/gnews/22/README.md)
+### [申请个人破产的七哥只要共匪不灭就绝对不会中断直播](/content/gnews/9/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [有声|欧盟委员会主席宣布一系列对俄罗斯的制裁](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [西雅图圣地亚哥德国英国日本等地对华人的愤怒令人恐惧](/content/gnews/11/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [苹果、福特等美国大品牌加入制裁俄罗斯企业](/content/gnews/12/README.md)
+ ` 蓝莲花农场`
+
+### [美国对俄罗斯增加数字货币制裁](/content/gnews/13/README.md)
+ ` NFSC News`
+
+### [台湾援赠首批医疗物资付运 力挺乌克兰捍卫国土](/content/gnews/14/README.md)
+ ` NFSC News`
+
+### [芬兰放下「中立」宣布军事援助乌克兰](/content/gnews/15/README.md)
+ ` NFSC News`
+
+### [有声|美国曾对中国的帮助概述](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [3/2 银河快讯:70名日本人志愿加入乌克兰义勇军；众议院通过“以最强烈的措辞谴责”俄国入侵乌克兰决议](/content/gnews/17/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [七哥将在G-Clubs年会唱响：你的爱总是在远方等着我](/content/gnews/18/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [美总统拜登与乌总统泽连斯基通电话表支持](/content/gnews/19/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [唱灭共的雪时感觉头上有人捏着让嗓子顶着鼻子找到感觉](/content/gnews/20/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [俄乌战火下的中国留学生，谁来救你？](/content/gnews/21/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [有声|国际社会推动对俄罗斯实施更多制裁](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月28日晚](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [政治、经济大重组过后，最终形成人类的文明](/content/gnews/24/README.md)
  ` DC政经`
 
-### [香港新增确诊中共病毒连续2天破3万例](/content/gnews/23/README.md)
+### [香港新增确诊中共病毒连续2天破3万例](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生2022年3月1日盖特视频（9分30秒）全文字版](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [前中央情报局官员：普京“大规模情报失败”](/content/gnews/25/README.md)
+### [前中央情报局官员：普京“大规模情报失败”](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [科顿：“是时候将俄罗斯从SWIFT系统中彻底剔除了”](/content/gnews/26/README.md)
+### [科顿：“是时候将俄罗斯从SWIFT系统中彻底剔除了”](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [微信、抖音等中共软件是如何充当间谍软件的](/content/gnews/27/README.md)
+### [微信、抖音等中共软件是如何充当间谍软件的](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [斩首中南海7人，解放全人类](/content/gnews/28/README.md)
+### [斩首中南海7人，解放全人类](/content/gnews/29/README.md)
  ` YALUN 亚伦`
 
-### [中共警察恐吓在华乌克兰人](/content/gnews/29/README.md)
+### [中共警察恐吓在华乌克兰人](/content/gnews/30/README.md)
  ` mayflowertranslate`
 
-### [《避风港HAVEN》直播内容精选（第十三集 上）](/content/gnews/30/README.md)
+### [《避风港HAVEN》直播内容精选（第十三集 上）](/content/gnews/31/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [为抗议中共国卑劣人权问题，瑞典运动员将冬奥金牌赠予被囚书商之女](/content/gnews/31/README.md)
+### [为抗议中共国卑劣人权问题，瑞典运动员将冬奥金牌赠予被囚书商之女](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本冻结俄罗斯总统普京等的资产](/content/gnews/32/README.md)
+### [日本冻结俄罗斯总统普京等的资产](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [布莱恩：这个世界已经变了_完完全全地变了](/content/gnews/33/README.md)
+### [布莱恩：这个世界已经变了_完完全全地变了](/content/gnews/34/README.md)
  ` mayflowertranslate`
 
-### [【圆成原创】止战！紧急呼吁传播俄罗斯入侵乌克兰的战争的真相！](/content/gnews/34/README.md)
+### [【圆成原创】止战！紧急呼吁传播俄罗斯入侵乌克兰的战争的真相！](/content/gnews/35/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美国疫苗接种率暴跌](/content/gnews/35/README.md)
+### [美国疫苗接种率暴跌](/content/gnews/36/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [新西兰财经G乐部2022年2月29日:财经新闻整理](/content/gnews/36/README.md)
+### [新西兰财经G乐部2022年2月29日:财经新闻整理](/content/gnews/37/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [新中国联邦在俄乌战火中崛起](/content/gnews/37/README.md)
+### [新中国联邦在俄乌战火中崛起](/content/gnews/38/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [美国敦促其公民考虑立即离开俄罗斯](/content/gnews/38/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [中共对战乱中的同胞弃之不顾](/content/gnews/39/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`

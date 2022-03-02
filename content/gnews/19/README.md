@@ -2,37 +2,24 @@
 ---
 
 
-## 有声|国际社会推动对俄罗斯实施更多制裁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2091430/)
+## 美总统拜登与乌总统泽连斯基通电话表支持
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2091457/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据多家媒体报道，国际社会近日纷纷表示，将采取更多行动制裁俄罗斯对乌克兰的入侵。西方盟国周六决定阻止”被选定的”俄罗斯银行进入SWIFT支付系统，这将给俄罗斯的经济带来沉重打击。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-27T040911Z_1_LYNXMPEI1Q01R_RTROPTP_0_UKRAINE-CRISIS-BANKS_1-1.jpg)2022年2月25日，在这幅在波黑拍摄的插图中可以看到，Swift的标志被放置在俄罗斯国旗上。（REUTERS/Dado Ruvic/插图）
-周日，美国参议员汤姆·科顿推动将俄罗斯从SWIFT国际银行系统中完全移除，并对其石油和天然气出口实施制裁，以阻止俄罗斯对乌克兰的侵略。
+作者：波士顿五月花背靠背（frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-02-at-9.43.33-AM.png)图片来源：互联网
+3月1日，美国总统与乌克兰总统泽连斯基通电话，拜登强调对乌克兰继续支持，泽连斯基呼吁：“必须尽快阻止侵略者。”
 
-与此同时，英国外交部长莉斯·特拉斯周日表示，她将在与七国集团同行举行的会议上要求对俄罗斯采取进一步措施，特别是切断其石油和天然气供应。
+白宫发布的新闻稿称，美国在乌克兰保卫自己免受俄罗斯侵略时继续支持乌克兰。拜登总统强调对乌克兰的持续帮助，包括持续提供安全援助、经济支持和人道主义援助。讨论了如何追究俄罗斯的责任包括已对俄罗斯经济的制裁，还讨论俄罗斯对乌平民袭击升级事件，包括在巴宾亚尔大屠杀纪念馆附近发生的爆炸事件。【1】
 
+拜登总统发推文称，将对乌克兰的持续支持包括安全援助和人道主义援助，抵抗俄罗斯的侵略，追究俄罗斯的责任，并表示对俄罗斯制裁已经产生了毁灭性的影响。
+![pastedGraphic.png](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-02-at-9.45.23-AM.png)
+随后乌克兰总统泽连斯基发推文呼吁：“我们必须尽快阻止侵略者。“
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-02-at-9.45.35-AM.png)
+参考链接：【1】**[拜登总统与乌克兰总统泽连斯基的通话宣读](https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/01/readout-of-president-bidens-call-with-president-zelenskyy-of-ukraine-5/)**
 
+* * *
 
-文字版原文：[国际社会推动对俄罗斯实施更多制裁](https://gnews.org/zh-hans/2085127/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*编辑&发布：Vicky*
 
  
 

@@ -2,45 +2,96 @@
 ---
 
 
-## 乌克兰指控白俄罗斯参与战争罪行
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2091622/)
+## 个人信息 真香
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2091681/)
 
-作者：纽约磐石农场—在远方
+撰稿：东京樱花团/做个好人
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-131.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpic2.zhimg.com%2Fv2-9ad18e5ea17087803ea5b1f6f75a990b_720w.jpg%3Fsource%3D172ae18b&amp;imgrefurl=https%3A%2F%2Fzhuanlan.zhihu.com%2Fp%2F38038613&amp;tbnid=QH0TJC-mXNchKM&amp;vet=12ahUKEwjznvXBrqb2AhVR_DgGHUvVBlgQMygDegUIARC2AQ..i&amp;docid=ncy9UG59wRiO-M&amp;w=720&amp;h=340&amp;q=%E4%B8%AA%E4%BA%BA%E4%BF%A1%E6%81%AF&amp;ved=2ahUKEwjznvXBrqb2AhVR_DgGHUvVBlgQMygDegUIARC2AQ)
+共匪大国
 
+个人信息真硬货
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-6.png)
+身份照片几十拿
 
+本人到场也有货
 
-台媒2月27日报道，据乌克兰空军发布的信息指出，他们击落了一枚从白俄罗斯发射的巡航导弹，指控白俄罗斯也加入了俄罗斯侵犯乌克兰的行列。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpNHsLKJ.jpg)图源法新社
-据乌克兰空军司令部脸书信息称，稍前乌克兰一架TU-22军机击落了从白俄罗斯领土发射，攻击乌克兰首都基辅的导弹。乌克兰空军司令部指控，这是又一起白俄罗斯和俄罗斯犯下的战争罪行。
+呃呃呃呃呃呃呃呃呃
 
-另据美国麦克萨太空科技公司的卫星图像显示，25日拍到白俄罗斯斯霍伊尼基附近，出现大量地面部队与直升机部队集结。
+使用门槛要求很复杂
 
-参考来源：
+怎么办护照
 
-[攔截一枚巡弋飛彈！ 烏克蘭指控入侵行動白俄羅斯也有份](https://news.ltn.com.tw/news/world/breakingnews/3843067)
+签名
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-3.jpg)
+手持都得行
 
-编辑/校对/发稿：兰兰
+只要价格能漂亮
 
-**更多资讯，更多关注**
+想讲价
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+网上搜罗可是很掉价
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+还有免费的要不要拿
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+app认证
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+后台随便下
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+注册一家行业通套餐自动拿
 
+保证每日电话短信都不一样
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-7.png)
+信息留一家幸福千万家
 
+哦！忘了还有这一棒！
 
+定位 网络IP 手机软硬件 生物识别
+
+全家桶病菌级服务套餐会让你更强大
+
+多多认证还能让你更曝光
+
+那铁链女为何不是那个她？
+
+俄乌战
+
+导弹头上转
+
+共匪撤侨迟迟不干
+
+同胞流泪流血无奈苦喊
+
+正义降临
+
+新中国联邦包机舍命来救援
+
+共匪眼红咬掉牙
+
+眼珠一转惯性洗脑和造谣
+
+曰反XXXXX华势力是为骗个人信息
+
+额滴个神！
+
+大国个人信息真是硬货
+
+要百万美金
+
+别人性命
+
+千里迢迢
+
+来骗那早就不是秘密的个人信息
+
+是我同胞的个人信息比命珍贵
+
+还是共匪的脸面比同胞的命珍贵
+
+而且新中国联邦反共不反华
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

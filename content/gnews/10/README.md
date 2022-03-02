@@ -2,32 +2,43 @@
 ---
 
 
-## 苹果、福特等美国大品牌加入制裁俄罗斯企业
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2091551/)
+## 有声|欧盟委员会主席宣布一系列对俄罗斯的制裁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2091583/)
 
-翻译：冰糖葫芦喵
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间2022年2月27日，在布鲁塞尔，欧盟委员会主席乌苏拉-冯德莱恩宣布，欧盟已经对俄罗斯飞机实施了全面的飞行禁令。
 
-编辑与校对：灭共文明
+冯德莱恩说：”我们正在关闭俄罗斯拥有的、俄罗斯注册的或俄罗斯控制的飞机的欧盟空域。所有这些飞机，包括寡头的私人飞机，现在将不能在任何欧盟国家降落、起飞或飞越。”
 
-《路透社》3月2日报道，**在投资者和消费者不断施压下，苹果(Apple)、谷歌、福特(Ford)和哈雷戴维森(Harley-Davidson)等美国知名企业也加入了对俄罗斯企业地制裁。**
+俄罗斯飞机也被禁止进入英国领空。
 
-周二晚些时候，苹果公司(Apple Inc)表示，**它已经停止在俄罗斯销售iphone和其他产品，并且屏蔽了俄罗斯以外一些国家支持的新闻服务的应用程序下载。**它还补充说，“为了乌克兰公民的安全和预防措施，我们已经**在乌克兰的苹果地图上禁用了交通和实时事件。”**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/苹果-e1646186912609.jpg)苹果公司LOGO（图片来源：路透社）
-报道指出，Alphabet Inc .的**谷歌将俄罗斯国有出版商从其新闻中删除，**在俄罗斯拥有三家合资工厂的**福特汽车**(Ford Motor)告诉其俄罗斯制造合作伙伴，将**暂停在俄罗斯的运营**。**摩托车制造商哈雷戴维森(Harley-Davidson)暂停了自行车的发货。**
+欧盟还将禁止克里姆林宫的媒体机器——国有的 “今日俄罗斯 “和 “斯普特尼克”，以及它们的子公司。它们一直在传播谎言，为普京的战争辩护，并在我们的联盟中播撒分裂，这必须要禁止。
 
-Politico的一名记者在推特上说，**波音公司暂停了对俄罗斯航空公司的部件、维护和技术支持服务。**推特说，这家美国飞机制造商暂停了在莫斯科的主要业务，**并将暂时关闭在基辅的办公室。**
+同时，欧盟还将为乌克兰提供武器。欧盟委员会主席乌苏拉-冯德莱恩还表示，”有史以来第一次，欧盟将资助购买和运送武器和其他设备给一个正在遭受攻击的国家”。
 
-据报道，西方的限制对俄罗斯经济造成了沉重打击，**卢布兑美元的汇率从之前的75卢布兑1美元跌至117卢布的历史新低。**
+冯德莱恩补充说，欧盟将针对白俄罗斯总统亚历山大-卢卡申科支持俄罗斯在乌克兰广泛开展的军事行动。将制定新的制裁措施打击卢卡申科政权。
 
-**美国大型养老金咨询公司（**Segal Marco Advisors）的**副总裁TJ Kistner表示**，**俄罗斯企业在这些西方投资者面前尤其危险，**因为它们往往不愿意通过谈判来改变自己的行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/sma-social-share-v2.png)**美国大型养老金咨询公司（**Segal Marco Advisors）（图片来源：网络）
-Kistner说，**西方投资者的反应可能是撤出。对许多投资者来说，唯一的行动就是撤资。**
 
-报道称，**海上航运公司也表示，他们将不再为俄罗斯港口提供服务，金融孤立正在加剧。**
 
-新闻来源链接：
+文字版原文：[欧盟委员会主席宣布一系列对俄罗斯的制裁](https://gnews.org/zh-hans/2078672/)
 
-[Apple, Ford other big American brands join corporate wave shunning Russia | Reuters](https://www.reuters.com/business/wrapup-apple-ford-other-big-american-brands-join-corporate-wave-shunning-russia-2022-03-02/)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
