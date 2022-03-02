@@ -2,46 +2,28 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2093803/)
+## 各国驻京大使馆声援乌克兰
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2093893/)
 
-**整理：枳实**
-**美工：精灵蓝**
+撰稿：东京樱花团/盖特第一批注册
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片：雅典娜农场设计组 精灵蓝
+![](https://assets.gnews.org/wp-content/uploads/2022/03/各国驻京大使馆声援乌克兰.jpg)[图片来源](https://www.jiji.com/jc/p?id=20220302174217-0040879515)
 
+各国驻北京大使馆正在就俄罗斯入侵乌克兰一事向乌克兰发出支持信号。
 
-雅典娜疫情更新（2022年 3月2日）
+加拿大大使馆在其面向主要街道的外墙上张贴了“我们与乌克兰同在”。乌克兰邻国波兰的大使馆也打出了一条横幅，上面有两国国旗和“我们支持乌克兰”的字样。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-15.png)
-[2022年3月2日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月2日改进.pdf)
+自2月25日以来，英国大使馆一直并排悬挂着英国国旗和乌克兰国旗。并在官方推特上表示 “支持乌克兰人民，他们的自由和民主受到了俄罗斯的攻击。”
 
-数据来源：
+与俄乌两国关系友好的中共国对乌克兰表示关注，但也理解俄罗斯的主张，并明确表示反对美国、欧洲、日本和其他国家对俄罗斯的制裁。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+信息源：
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+[北京の各国大使館、ウクライナに連帯　国旗掲げ支持表明](https://news.yahoo.co.jp/articles/8ae67354519c20bace3a4f19a6f752150c736c88)
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
