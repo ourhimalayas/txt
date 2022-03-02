@@ -2,46 +2,24 @@
 ---
 
 
-## 美前国务卿蓬佩奥将于3月访台
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2091388/)
+## 美总统拜登与乌总统泽连斯基通电话表支持
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2091457/)
 
-作者：台湾宝岛农场—dobi
+作者：波士顿五月花背靠背（frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-02-at-9.43.33-AM.png)图片来源：互联网
+3月1日，美国总统与乌克兰总统泽连斯基通电话，拜登强调对乌克兰继续支持，泽连斯基呼吁：“必须尽快阻止侵略者。”
 
+白宫发布的新闻稿称，美国在乌克兰保卫自己免受俄罗斯侵略时继续支持乌克兰。拜登总统强调对乌克兰的持续帮助，包括持续提供安全援助、经济支持和人道主义援助。讨论了如何追究俄罗斯的责任包括已对俄罗斯经济的制裁，还讨论俄罗斯对乌平民袭击升级事件，包括在巴宾亚尔大屠杀纪念馆附近发生的爆炸事件。【1】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-2.png)
-在乌克兰人民正奋力抵抗俄军炮火袭击的奋战时期，同时也被视为是中共可能趁机武力侵台的敏感时机，作为坚定支持台湾民主的前美国国务卿蓬佩奥将于3月2日至5日访问台湾。蓬佩奥访台不仅受到国际高度关注，同时也被视为面对中共正从军事、经济、外交等各方面对台湾高度施压，面临空前未有的巨大压力的台湾来说，意义实属重大。
+拜登总统发推文称，将对乌克兰的持续支持包括安全援助和人道主义援助，抵抗俄罗斯的侵略，追究俄罗斯的责任，并表示对俄罗斯制裁已经产生了毁灭性的影响。
+![pastedGraphic.png](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-02-at-9.45.23-AM.png)
+随后乌克兰总统泽连斯基发推文呼吁：“我们必须尽快阻止侵略者。“
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-02-at-9.45.35-AM.png)
+参考链接：【1】**[拜登总统与乌克兰总统泽连斯基的通话宣读](https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/01/readout-of-president-bidens-call-with-president-zelenskyy-of-ukraine-5/)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/id13611569-GettyImages-1372801123-600x400-1.jpg)[图源网络](https://www.epochtimes.com/b5/22/2/27/n13609549.htm)
+* * *
 
-去年10月蓬佩奥出席“香港自由灯塔”（HKFB）活动，由香港议题谈到台湾时他呼吁各国领袖：台湾是个拥有巨大经济创造力的民主国家，他祈祷各国领导人能够知道并支持台湾是一种道德义务的表现，千万不要让台湾步香港后尘。蓬佩奥支持台湾民主的立场坚定且明确，此次更以具体行动展示对台湾的支持，有人认为这为对台湾来说是雪中送炭。
-
-且因蓬佩奥被视为是最了解中共的美国国务卿之一，其担任国务卿期间，也是中共视为最强硬的对手之一，就如蓬佩奥主张和中共打交道的对策是，“不相信然后核实”（对中共说的话首先存疑，然后一定要去一一核实），显示其对中共政权的高度不信任和对中共道德素质的高度质疑。因此，蓬佩奥此次访台，有媒体认为这对中共来说，无疑是最头痛的事情之一，这也将对制约中共在台湾动武将会产生实质影响，意义非凡。
-
-参考来源：
-
-[王友群：蓬佩奧訪問台灣的四大意義](https://www.epochtimes.com/b5/22/2/27/n13609549.htm)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-3.png)
-
-
-
+*编辑&发布：Vicky*
 
  
 
