@@ -2,26 +2,32 @@
 ---
 
 
-## 乌克兰数字化部队战绩显赫
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2095095/)
+## 中共将毀于自身的假和騙
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2095233/)
 
-撰稿：东京樱花团/道来
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-30.jpg)
-乌克兰与俄罗斯之间的网络攻击战正在激烈进行中。乌克兰的数字化部队近日对俄罗斯的政府机关，银行和企业进行网络攻击使其相关系统无法正常运行。
+撰稿：紐約磐石农场-在远方
 
-乌俄开战后，乌克兰政府向全世界紧急招募计算机网络人才组建数字化部队对俄罗斯进行网络攻击。据相关系信息显示，乌克兰的数字化部队战绩显赫。主要网络攻击对象包括政府机构和银行信息系统，网络储备服务器，电子邮件服务器和相关信息化基础设施系统等。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/06AB5F9F-4CB6-4895-A168-24655B6E2F5B.jpeg)
 
-据悉俄罗斯能源公司Rosseti公开信息，俄罗斯的部分电动车使用的充电系统也无法正常运行。当用户进行充电时，充电桩将显示“荣耀属于乌克兰，荣耀属于英雄，普京是笨蛋，让敌人去死吧。”
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-205.png)
-[图片来源](https://arstechnica.com/information-technology/2022/02/after-ukraine-recruits-an-it-army-dozens-of-russian-sites-go-dark/?utm_brand=ars&amp;utm_source=facebook&amp;utm_social-type=owned&amp;utm_medium=social&amp;fbclid=IwAR2ItN9BYdjDvPr5PrB_uW1SEPExZc-fLEHJxV3ulCFcnezvoBuhYU5Y298)
 
-同样，俄罗斯的数字化部队也对乌克兰的电网系统进行攻击使其多次无法正常运行。
 
-[信息来源](\Users\Administrator\Downloads\After%20Ukraine%20recruits%20an%20“IT%20Army,”%20dozens%20of%20Russian%20sites%20go%20dark)：
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+```
+在2月27日的大直播中，郭先生表示，俄乌战争对中共的触动很大，已经影响到中共的对台作战战略，但是中共将会毁于自身的假和骗。
+```
+
+
+郭先生说，习近平具有非常矛盾的性格，文化程度不高、循规蹈矩却又非常固执倔强。“双头鹰计划”是习近平与普京的既定战略，因此对于习来说，开两会和打台湾并不对立。据中共军方人士告诉郭先生说，中共原先认为俄罗斯会在48小时内拿下乌克兰，并对泽连斯基进行斩首。因此中共也曾经计划迅速攻下台湾，并用无人机对民进党高层进行斩首。或者依靠台湾卖台贼进行内部斩首，即所谓的“杀独救台”。但是俄乌战争中俄罗斯糟糕的表现，和乌克兰成功的信息战、科技战、网络战所形成的强烈对比，对中共有很深的触动。
+中共军委副主席许其亮和总参三部的李八喜，看到俄乌战争战况以后表示，如果共军使用最廉价的武器进行闪电战，妄图侵略台湾的结局恐怕会适得其反。因为不仅美日在台海周围布置了潜艇部队，而且共军攻台的空军、无人机和导弹，都依赖信息通信，而共军的电子战又是他们的致命短板，因此当前俄乌战争状况对中共军方震动很大，已经影响到了共军的攻台战略。但是共军的下级军官为了保全自身的命运和既得利益，却只能欺骗共军高层应该继续对台湾实行闪电战，因此中共一定会毁于自身的相互造假和相互欺骗。
+
+[新闻鏈接] [https://www.gettr.com/post/pxjkrya329](https://www.gettr.com/post/pxjkrya329)
+
+编輯/校正/发稿：玫瑰圓
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/FE32174F-B5FA-43BD-AE1B-C10F3D2323AA.jpeg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/D120B9F8-8EAE-4A1D-BF30-50A005DE6427.jpeg)
+
 
 
  

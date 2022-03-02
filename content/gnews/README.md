@@ -15,71 +15,71 @@
 
 ---
 
-### [基辅市长称城市被包围，后来又收回了这一说法](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [新加坡将对俄罗斯实施制裁，包括出口管制和某些银行交易](/content/gnews/2/README.md)
+### [以前的普京是工于心计的冷血杀手，现在的普京更加危险](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【转】截至3.2 俄乌战事汇总（8）](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
+### [纽约、西雅图、波士顿取消疫苗强制令](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜登宣布 “从检测到治疗”计划，免费提供抗新冠病毒口服药](/content/gnews/4/README.md)
+### [加拿大央行将基准利率上调至0.5%](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [皮尔的高级公共卫生官员表示，他不太可能建议将当地的口罩规定延长到 3 月底之后](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [3/1/2022文贵盖特：俄乌战争中最被人恨的是中国人，新中国联邦会在乌克兰周围安排飞机分别飞往美国、中国免签国或东南亚，具体请见公告](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
+
+### [基辅市长称城市被包围，后来又收回了这一说法](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022年3月2日文贵先生直播摘要及音频—银河系农场](/content/gnews/5/README.md)
- ` 喜马拉雅日本银河系农场`
+### [乌克兰总统呼吁加入欧盟](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2022/02/28 墙内世界](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [新加坡将对俄罗斯实施制裁，包括出口管制和某些银行交易](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [习近平和普京已变成孤家寡人](/content/gnews/7/README.md)
- ` 纽约香草山MOS02`
-
-### [安大略省法官拒绝对儿童强制接种新冠病毒疫苗](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [一线战报——来自乌克兰前线的两条消息](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [乌克兰数字化部队战绩显赫](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [《中共邪教七日谈》](/content/gnews/11/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [西方对俄罗斯实施新制裁的效果](/content/gnews/12/README.md)
- ` 经济小组`
-
-### [新中国联邦在乌克兰战火中崛起](/content/gnews/13/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [文贵大直播要点（2022年3月2日）](/content/gnews/14/README.md)
- ` 波士顿五月花农场`
-
-### [拜登国情咨文中称，普京将付出持续的高昂代价](/content/gnews/15/README.md)
+### [【转】截至3.2 俄乌战事汇总（8）](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|乌克兰总统拒当逃兵，领导民众智慧抗敌](/content/gnews/16/README.md)
- ` MOSREC`
+### [中共将毀于自身的假和騙](/content/gnews/10/README.md)
+ ` 纽约香草山MOS02`
 
-### [有声|中共抹黑新中国联邦在乌克兰的救援行动](/content/gnews/17/README.md)
- ` MOSREC`
+### [拜登宣布 “从检测到治疗”计划，免费提供抗新冠病毒口服药](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [俄罗斯禁止当地民众向外转移资产](/content/gnews/18/README.md)
- ` NFSC News`
+### [2022年3月2日文贵先生直播摘要及音频—银河系农场](/content/gnews/12/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [志愿者向乌克兰捐赠百万美元加密货币](/content/gnews/19/README.md)
- ` NFSC News`
+### [2022/02/28 墙内世界](/content/gnews/13/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄乌开战导致全球原油和天然气价格飙升](/content/gnews/20/README.md)
- ` NFSC News`
+### [习近平和普京已变成孤家寡人](/content/gnews/14/README.md)
+ ` 纽约香草山MOS02`
 
-### [有声|美国务事务助卿呼吁国际社会支持台湾参与联合国体系](/content/gnews/21/README.md)
- ` MOSREC`
+### [安大略省法官拒绝对儿童强制接种新冠病毒疫苗](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|欧盟主席称望乌克兰成为成员国](/content/gnews/22/README.md)
- ` MOSREC`
+### [一线战报——来自乌克兰前线的两条消息](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [乌克兰数字化部队战绩显赫](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [《中共邪教七日谈》](/content/gnews/18/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [西方对俄罗斯实施新制裁的效果](/content/gnews/19/README.md)
+ ` 经济小组`
+
+### [文贵大直播要点（2022年3月2日）](/content/gnews/20/README.md)
+ ` 波士顿五月花农场`
+
+### [拜登国情咨文中称，普京将付出持续的高昂代价](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2022年，习近平和普京活不过2022年年底](/content/gnews/22/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [乌克兰要求欧美协助建立禁飞区](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
