@@ -2,25 +2,31 @@
 ---
 
 
-## 有声｜因中共亲俄立场 法国暂停在中国举办马蒂斯画展
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092425/)
+## 对俄制裁潮席卷全球 迪斯尼华纳等电影业巨头加入其中
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2092469/)
 
-By:**秘翻新闻**
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-10.jpg)
+（图片来自网络）
 
-**2022-03-02**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-3.png)图片来源 自由亚洲电台
-[据自由亚洲电台3月1日报道，俄罗斯向乌克兰宣战，中共国的立场不仅影响到国际政治，连文化合作也都受到牵连。](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl2-03012022111253.html)
+自俄罗斯发动对乌克兰的侵略战争后，全世界对俄罗斯发起了一浪又一浪的制裁浪潮。电影业巨头也加入其中，纷纷宣布对俄罗斯进行制裁。
 
-[法国北方省政府2月25日发布公报指出，取消原定的马蒂斯画作前往中国北京和上海展出的计划，主要是考虑俄罗斯向乌克兰宣战的“地缘政治危机”，以及“北京与莫斯科之间的政治关系”。](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl2-03012022111253.html)
+据《自由时报》报道，美国媒体巨头迪士尼（The Walt Disney Company）宣布，将暂停在俄罗斯上映电影和戏剧。随后，华纳兄弟（Warner Bros.）和索尼影业（Sony Pictures）也加入了制裁行列。
 
-[价值3亿欧元的280幅马蒂斯作品，原定于3月初启程前往中国，将于2022年3月26日至6月26日在北京展出，7月转往上海展出。这些作品都是马蒂斯的出生地——勒卡托-康布雷西的马蒂斯美术馆的藏品。这是马蒂斯画作首次在中国的展出计划。](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl2-03012022111253.html)
+迪士尼发出的声明表示，由于俄罗斯无端侵略乌克兰，将暂停在俄罗斯上映电影，其中包括即将上映的皮克斯动画《青春养成记》（Turning Red）。
 
-秘翻新闻 二丫 编辑报道
+另据《香港经济日报》报道，华纳兄弟宣布，由于乌克兰的人道主义危机，决定暂缓原定3月3日在俄上映新片《蝙蝠侠》（The Batman）的计划。 华纳还表示将继续关注事态的发展，希望这场悲剧可以迅速且和平地解决。
 
-发布 : 恩典
+索尼影业也发布公告称，由于俄罗斯在乌克兰发动军事行动，以及为此带来的人道主义危机，暂停包括漫威角色《魔比斯》（Morbius）在内的新片在俄罗斯院线的发行计划。
+
+新闻链接：
+
+[https://news.ltn.com.tw/news/world/breakingnews/3845341](https://news.ltn.com.tw/news/world/breakingnews/3845341)
+
+[https://ec.ltn.com.tw/article/breakingnews/3844728](https://ec.ltn.com.tw/article/breakingnews/3844728)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

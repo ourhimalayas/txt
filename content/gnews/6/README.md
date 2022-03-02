@@ -2,24 +2,29 @@
 ---
 
 
-## 美国宣布禁止俄罗斯航班进入领空
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2092441/)
+## 有声｜两家俄罗斯国家媒体将被欧盟被禁播
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092494/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-12.png)[图片来源](https://www.google.com/search?q=Aeroflot+plane&amp;sxsrf=APq-WBsdOT_UL9RYb9k3MVnbwUhKjJEZ6g:1646197633228&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=Ut4C87rOPUjWqM%252CKngw46bkVjnrRM%252C_%253BDbhB3tkWzO9YnM%252CDFVn08umodkA-)
-美国交通部和联邦航空管理局宣布，禁止俄罗斯飞机飞越美国领空的禁令将在3月2日深夜前全面实施。这一禁令将适用于所有客运和货运航班，包括定期航班和包机。
+By:**秘翻新闻**
 
-拜登总统在国情演讲中宣布，将“跟随我们的盟友禁止所有俄罗斯飞机进入美国领空，进一步孤立俄罗斯并对其经济施加额外压力。”
+**2022-03-02**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-1.png)图片来源 网络
+[据《内幕消息报》3月1日报道，欧盟周二表示，欧盟禁止俄罗斯国家媒体今日俄罗斯和俄罗斯卫星通讯社与广播电台在欧盟内进行广播。](https://insiderpaper.com/eu-agrees-to-exclude-certain-russian-banks-from-swift-system-eu-presidency/)
 
-除美国外，加拿大和欧盟已经禁止了俄罗斯飞机进入其领空。
+[据报道，此前YouTube已采取行动，在欧盟内屏蔽了这些媒体的内容。](https://insiderpaper.com/eu-agrees-to-exclude-certain-russian-banks-from-swift-system-eu-presidency/)
 
-信息源：
+[YouTube的同业网络巨头Facebook周一也做出了类似的决定，在欧盟地区屏蔽了今日俄罗斯和俄罗斯卫星通讯社与广播电台发布的内容。](https://insiderpaper.com/eu-agrees-to-exclude-certain-russian-banks-from-swift-system-eu-presidency/)
 
-[ロシア航空機の米領空飛行禁止、2日深夜までに完全実施へ](https://news.yahoo.co.jp/articles/d80c7485ca4535e23cb2433be931beffeb444edb#:~:text=)
+[而英国的广播监管机构Ofcom周一宣布，将对今日俄罗斯的 “公正性 “进行15项调查。](https://insiderpaper.com/eu-agrees-to-exclude-certain-russian-banks-from-swift-system-eu-presidency/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+[报道称，欧盟此举将于周三在欧盟官方杂志上公布后生效。](https://insiderpaper.com/eu-agrees-to-exclude-certain-russian-banks-from-swift-system-eu-presidency/)
+
+秘翻新闻 Grace 编译报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

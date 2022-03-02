@@ -2,31 +2,23 @@
 ---
 
 
-## 国际法院即将审理乌克兰战争种族灭绝罪
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2092377/)
+## 有声｜国内部分航线燃油附加费3月5日起翻倍
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092439/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-1.jpg)国际法院即将审理乌克兰战争种族灭绝罪 网络图片
-据台湾中央广播电台3月2日报道，在俄罗斯采取军事行动后，乌克兰已经向国际法院控告俄罗斯犯下“种族灭绝罪”，要求俄罗斯立即停止入侵。联合国海牙国际法院将在3月7日至8日，就乌克兰战争的种族灭绝举行听证会，专门讨论乌克兰提出的请求。
+**By:秘翻新闻**
 
-乌克兰人口约4,400万。联合国难民署表示，已经有超过66万乌克兰人逃往国外，估计另有100万人在境内流离失所。未来几个月可能会有多达400万难民需要帮助，乌克兰国内则将有1,200万难民等待救援。
+**2022-03-02**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4A9B916C-0961-439D-BCC5-52E0F7D8074E-scaled.jpeg)图片:源自网络
+**[据陆媒第一财经3月1日报道，“去哪儿”网等部分机票代理已收到北部湾航空等国内航司的邮件，将于3月5日开始提高国内航线的燃油附加费征收标准。根据通知，自2022年3月5日出票日起，国内所有航线燃油附加费收取标准为：800公里（含）以下航线每位旅客收取20元燃油附加费，800公里以上航线每位旅客收取40元燃油附加费。](https://www.sogou.com/link?url=hedJjaC291MsSMYcMkrZn3JYM_Rmx0C5rnilvTOuwml_uHtFzeveW9M7Xe6uZ5eq)**
 
-海牙国际法院无权对入侵行动的幕后元凶、俄罗斯领导人提出刑事指控。但它是解决国家之间涉嫌违反国际法的法律投诉世界最高法院。俄罗斯无视国际禁令、抵制和制裁，继续对乌克兰发动攻势，宣称其目的是捍卫乌克兰的俄语人口，以及推翻乌克兰的领导层。俄罗斯和中共国这样的国家和领导人都有一种共产主义者天然的傲慢和邪恶。乌克兰和台湾都是独立的主权国家，其他国家没有权利插手。悍然发动战争，除了给参战国带来士兵和平民的生命和财产损失，不能解决任何问题。
+**[评论认为：目前，因国际局势动荡，油价3月1日晚已突破100美元大关。中共借机翻倍收取燃油附加费，可见其对待墙内草民从来都不会手软。](https://www.sogou.com/link?url=hedJjaC291MsSMYcMkrZn3JYM_Rmx0C5rnilvTOuwml_uHtFzeveW9M7Xe6uZ5eq)**
 
-新闻参考链接：[https://www.rti.org.tw/news/view/id/2125983](https://www.rti.org.tw/news/view/id/2125983)
+（ 秘翻新闻 菜园子112 编辑报道 ）
+
+发布:星星
 
 * * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

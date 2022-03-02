@@ -2,26 +2,26 @@
 ---
 
 
-## 视频|中共为政法干警新设“十个严禁”，禁做两面派成执法标竿
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2092342/)
+## 中日财经爆|穆迪将俄罗斯评级列入负面 穆迪已给出“垃圾级”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2092432/)
 
-制作：香草山视频部
+撰稿：东京樱花团/peterwong
 
-中共中央政法委、最高人民法院、公安部、国家安全部等六个部门联合印发《新时代政法干警“十个严禁”》通知，为政法机关定下“十宗罪”，包括严禁搞两面派、严禁包庇纵容黑恶势力、严禁失密泄密等等。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/穆迪将俄罗斯评级列入负面-穆迪已给出垃圾级.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fozvoice.org%2Fwp-content%2Fuploads%2F2019%2F09%2F002_Moody.jpg&amp;imgrefurl=https%3A%2F%2Fozvoice.org%2F%25E6%2596%25B0%25E9%2597%25BB%2F%25E4%25B8%25A4%25E5%25B2%25B8%25E4%25B8%2589%25E5%259C%25B0%2F%25E5%25BF%25A7%25E4%25BC%2598%25E5%258A%25BF%25E9%2581%25AD%25E4%25B8%25AD%25E5%2585%25B1%25E4%25BE%25B5%25E8%259A%2580-%25E7%25A9%2586%25E8%25BF%25AA%25E9%2599%258D%25E4%25BD%258E%25E9%25A6%2599%25E6%25B8%25AF%25E8%25AF%2584%25E7%25BA%25A7%25E5%25B1%2595%25E6%259C%259B%2F&amp;tbnid=3uqNZ7pOw38rvM&amp;vet=12ahUKEwj0zabk2qb2AhXmxzgGHcTpCU4QMygCegUIARCnAQ..i&amp;docid=bmuFJkmbF0a0kM&amp;w=1024&amp;h=578&amp;q=%E7%A9%86%E8%BF%AA&amp;ved=2ahUKEwj0zabk2qb2AhXmxzgGHcTpCU4QMygCegUIARCnAQ)
 
-中共要求相关部门要将“十个严禁”的铁令视作带电的“高压线”，对落实“十个严禁”不力，导致问题频发、造成严重后果的，要严肃追究责任。另外，中共还要求定期公布违反以及遵守“十个严禁”的相关典型案例。
+信用评级机构穆迪(Moody’s) 3月1日警告称，在西方采取严厉制裁之后，俄罗斯禁止偿还新发行的外币债务，这增添了俄主权评级被下调的可能性。
 
-中央政法委负责人表示，“十个严禁”包罗政治建设、对党忠诚，执法标竿、党风党纪、行为作风等各个方面，划定了政法干警的思想“红线”和行为“底线”。
+穆迪表示，俄罗斯周二开始禁止居民向国外转移外汇或偿还任何外币贷款，反映出该国决策越来越缺乏可预测性。
 
-有评论人士认为，“十个严禁”的关键就是严禁两面派，墙头草，这从侧面说明目前中共党内的斗争已经白热化，各方势力都在为个人私利做最后筹谋，并在出卖对方的同时，更担心被身边人出卖。
+俄罗斯入侵乌克兰后，穆迪上周五（2月25日）将俄罗斯Baa3的评级列入负面观察名单。几个小时后，标普全球评级将俄罗斯相当于投资级的评级调降至“垃圾级”，并立即发出另一个降级警告。
 
-发稿：谐趣园
+消息来源:
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+[穆迪警告称俄罗斯禁止偿还外币债务使其主权评级调降风险增加](https://cn.reuters.com/article/us-moodys-russia-aaa-0302-idCNKBS2KZ0AD?il=0)
 
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

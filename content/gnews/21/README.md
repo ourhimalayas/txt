@@ -2,27 +2,29 @@
 ---
 
 
-## 有声｜谷歌和 Meta可能被逐出俄罗斯
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092216/)
+## 美贸易报告称将严厉对抗中共国不公平贸易惯例
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2092320/)
 
-By:**秘翻新闻**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown.jpg)美贸易报告称将严厉对抗中共国不公平贸易惯例 网络图片
+据共同社3月2日报道，美国贸易代表办公室（USTR）1日发布了贸易政策年度报告。其中写道，为对抗侵犯知识产权等中共国不公平贸易惯例，“将探讨一切方法，如有必要将摸索新手段”。报告重申了将以严厉态度对待从而抑制强制劳动。
 
-**2022-03-02**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-11.png)图片来源 Reuters files
-[3 月1日路透社报道，谷歌和 Facebook 的所有者 Meta可能因为没能按照俄罗斯的法律规定，没有在当地开设分支机构，而成为第一批被俄罗斯采取惩罚措施的互联网公司.](https://www.reuters.com/technology/google-meta-face-penalties-russia-deadline-passes-open-local-offices-2022-03-01/)
+报告写道，“美中这两个经济大国的双边关系不仅事关两国，也会影响全球”，并称“中共国的贸易惯例正引发摩擦”。同时还指出，“用人为的低薪实现低成本用工，成为企业选择在华生产的理由。”有关对少数民族的强制劳动，强烈指责称“是对人类尊严的侮辱”。
 
-[去年，俄罗斯总统普京签署的立法要求所有拥有超过 50 万日用户的外国社交媒体公司，自 2021 年 7 月起都必须在俄罗斯开设分支机构，否则将受到制裁，甚至彻底禁止在俄罗斯使用。](https://www.reuters.com/technology/google-meta-face-penalties-russia-deadline-passes-open-local-offices-2022-03-01/)
-
-[2021年11 月，俄罗斯国家通信监管机构 Roskomnadzor 列出了它希望在俄罗斯领土上正式设立分支机构的 13 家公司，并要求这些公司在2022年 2 月底之前按照规定执行，否则将采取限制措施。至今还没有在俄罗斯开始分支机构的谷歌和 Meta就在这13家公司的名单中。](https://www.reuters.com/technology/google-meta-face-penalties-russia-deadline-passes-open-local-offices-2022-03-01/)
-
-[评论认为：俄罗斯此举，无疑是效仿中共，采取更加严厉的信息管控，封闭人民获得信息的渠道。](https://www.reuters.com/technology/google-meta-face-penalties-russia-deadline-passes-open-local-offices-2022-03-01/)
-
-秘翻新闻 自由信仰 编辑报道
-
-发布 : 恩典
+新闻参考链接：[https://china.kyodonews.net/news/2022/03/8411a7dd334f.html](https://china.kyodonews.net/news/2022/03/8411a7dd334f.html)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
