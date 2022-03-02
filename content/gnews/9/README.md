@@ -2,24 +2,34 @@
 ---
 
 
-## 世界围剿制裁俄罗斯航空物流业
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2094682/)
+## 美国民众对拜登处理俄乌危机的支持度上升
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2094751/)
 
-采编：风云小哥          编译撰稿：文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/03-image.png)
-图片：[Europe, Canada Closes Airspace to Russian Civil Aviation (breitbart.com)](https://www.breitbart.com/europe/2022/02/28/europe-canada-closes-airspace-to-russian-civil-aviation/)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据【布莱特巴特新闻】2月28日报道，加拿大和欧盟大部分国家在俄罗斯入侵乌克兰后，都宣布了关闭俄罗斯航空公司的领空服务。并以此不断加强国际社会对俄罗斯的制裁压力。
+整理：围剿维尼熊
+编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-02-02-下午10.11.59.png)
+根据路透社报道，当地时3月1日完成的路透/益普索(Ipsos)民调结果显示，美国民众对总统拜登处理俄乌危机的支持度在过去一周有所上升，有43%的人表示支持，高于之前一周的34%。
 
-报道称，由于欧盟和美国已对所有俄罗斯企业和个人所拥有、注册或控制的飞机关闭了领空。因此，美国驻莫斯科大使馆表示，美国人应该考虑通过仍然可用的商业航班立即离开俄罗斯。
+这项民意调查是用英语在线进行的，范围遍及美国各地。调查收集了1,005名成年人的回答。
 
-据悉，目前的航空燃油价格同比增长了50%以上，而且大部分航空公司都因疫情已蒙受了巨大的损失。随着对俄罗斯石油和天然气贸易的制裁，燃料价格势必再度暴涨。总统普京将因俄军入侵乌克兰而面临闭关锁国、内乱外战的灭顶之灾。
+71%的受访者表示，他们认为美国应该向乌克兰提供武器以应对俄罗斯攻击。约77%的受访者认为，美国应该为此对俄罗斯实施进一步制裁。
 
-校对编辑：硫酸羟氯喹64
+58%的受访者表示，危机带来燃料和天然气涨价，但为了保卫另一个民主国家，这是值得的。
 
-发稿：苦尽甜来 (文来）
+约75%受访者认为，在乌克兰问题上不作为，将使俄罗斯更加肆意地在欧洲其他地方采取进一步军事行动。
 
-原文链接：[Europe, Canada Closes Airspace to Russian Civil Aviation (breitbart.com)](https://www.breitbart.com/europe/2022/02/28/europe-canada-closes-airspace-to-russian-civil-aviation/)
+参考链接：[https://cn.reuters.com/article/us-survey-biden-support-rate-0302-idCNKBS2KZ079?il=0](https://cn.reuters.com/article/us-survey-biden-support-rate-0302-idCNKBS2KZ079?il=0)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

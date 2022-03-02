@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/2/2022 3:20 PM (UTC)`
+
+【UKRAINEHELP-002】Announcement of New Federal State of China and Rule of Law Foundation on Emergency Rescue of Ukraine<br/><br/>https://gnews.org/2094655/<br/><br/>【UKRAINEHELP-002】Оголошення про створення нової Федеральної Держави Китаю та Фонду верховенства права з надзвичайних ситуацій порятунку України<br/><br/>https://gnews.org/2094852/<br/><br/>【UKRAINEHELP-002】<br/>新中国联邦和法治基金关于紧急救援乌克兰的通知<br/><br/>https://gnews.org/zh-hans/2094654/<br/><br/>#ukraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
+
+---
+
 `@miles 3/2/2022 2:41 PM (UTC)`
 
 【UKRAINEHELP-002】<br/>由于乌克兰局势日益恶化，NFSC和法治基金与联合国救援组织GEM共同合作，近日紧急安排第一批次营救专机，协助华人同胞、美国及其他各国友人免费撤离，目的地为美国（需要美国签证）和其他安全中转国。我们将在波兰的Medyka设立临时接待点，提供30天以内的免费食宿。 请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。<br/><br/>24小时紧急救援客服联系方式如下：<br/><br/>邮箱：ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO<br/><br/>电话(短信或电话）：+1720-657-6776 或 +1719-224-4232<br/><br/>NFSC ｜法治基金<br/>3/1/2022<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,13 +153,6 @@
 
 2/27/2022 Miles Guo:  The CCP’s wars have always costed the lives of countless people with no strategy at all; Ukraine has perfectly used the psychology of war, not only making friends but also winning their support; the US seems to be silent in the war in Ukraine, but they are actually aiming at the instigator CCP<br/><br/>2/27/2022  文贵直播：中共的战争一向打的都是无数人的生命，毫无战略可言；乌克兰完美地运用了战争心理学，不但交了朋友还赢得了朋友的支持；美国在乌克兰战事上看似不动声色，其实已瞄准了背后的中共<br/>
 ![img](https://media.gettr.com/group3/getter/2022/02/28/03/51d2f168-ff56-8bff-f735-c27679c42e6e/out.jpg)
-
----
-
-`@miles 2/28/2022 1:12 AM (UTC)`
-
-2/27/2022  Miles Guo: President Zelenskyy is a wise world-class leader. He upholds the truth and is defeating Russia's disinformation war with the strategy of showing weakness; Zelenskyy will be a legend.<br/><br/>2/27/2022 文贵直播：乌克兰总统泽连斯基是个智慧的世界级领导人，他用唯真不破的示弱战略正在击败俄罗斯的虚假信息战；泽连斯基将是个传奇<br/>
-![img](https://media.gettr.com/group33/getter/2022/02/28/01/c8ad2cee-8cf9-434d-3b61-f491ee7ea602/out.jpg)
 
 ---
 

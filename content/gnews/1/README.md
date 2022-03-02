@@ -2,37 +2,30 @@
 ---
 
 
-## 有声|身在东京的乌克兰歌手为家乡祈福
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2094808/)
+## 乌克兰诉俄罗斯，国际法院下周举行公开听证会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2094863/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-外媒2月28日报道，身在东京的44岁乌克兰歌剧歌手奥克萨娜.斯捷潘纽克，正在为祖国和平和家人的安危祈祷。
+#### 撰稿：彩虹       
 
-歌手斯捷潘纽克的父母住在乌克兰的一个村庄，俄罗斯入侵时周围的警报器吓坏了母亲，没多久俄罗斯军用飞机开始在当地飞行，每天的战争情况都在变化。在与母亲通话后她表示非常想冲到家人身边，并希望战争能够即刻结束。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7.jpg)
-据悉斯捷潘纽克也是乌克兰民间弦乐器bandura的著名演奏者。乌克兰是一个拥有自由和文化成熟的独立国家，该国产生了很多才华横溢的音乐家和作曲家，如出生在基辅的著名古典钢琴大师弗拉基米尔·霍洛维茨。俄罗斯和乌克兰在历史上有很多渊源，两国人民时常通婚。而如今俄罗斯悍然入侵乌克兰，斯捷潘纽克说她为和平和爱而歌唱而祈祷，希望每个人都能得救。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-202.png)图片来源：路透社
+据《国会山报》3月1日报道，周二，国际法院（International Court of Justice – ICJ）发表一份声明，称将于3月7日和3月8日举行“关于《防止及惩治危害种族罪公约》下的种族灭绝指控（乌克兰诉俄罗斯联邦）”的公开听证。
+
+根据声明，3月7日将进行乌克兰的口头辩论，3月8日将进行俄罗斯联邦的辩论。诉讼程序将在海牙的和平宫（Peace Palace）进行。
+
+周日，乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelensky）宣布，乌克兰已经向国际法院提交了针对俄罗斯的诉讼。泽伦斯基在一条推文中写道：“俄罗斯必须对操纵种族灭绝的概念为侵略行为辩护负责。”
+
+在周六提交的诉讼申请中，乌克兰说俄罗斯“谎称在顿涅茨克人民共和国和卢甘斯克人民共和国发生了种族灭绝行为。”俄罗斯“宣布并实施了针对乌克兰的‘特别军事行动’，其明确目的是防止和惩罚没有事实依据的所谓种族灭绝行为。根据这一错误的指控，俄罗斯现在正在对乌克兰进行军事入侵，涉及严重和广泛地侵犯乌克兰人民的人权”。
+
+文章说，国际法院是联合国的主要司法机构。人们依靠它来解决各国提交的国际法律争端。该机构由15名法官组成，他们由联合国大会（U.N. General Assembly）和安全理事会（Security Council）选举产生，任期9年。
+
+另据《新闻极限》的报道，乌克兰要求法官下令采取“临时措施”来保护乌克兰。报道说，联合国最高法院审理的案件通常需要数年时间，但关于临时措施的听证会一般在提出申请后数周内举行。
+
+**新闻来源** [1](https://thehill.com/policy/international/596415-international-court-of-justice-will-hold-public-hearings-on-allegations?rl=1) [2](https://www.newsmax.com/newsfront/international-court-of-justice-hague-genocide/2022/03/01/id/1059154/)
 
 
 
-文字版原文：[身在东京的乌克兰歌手为家乡祈福](https://gnews.org/zh-hans/2085963/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

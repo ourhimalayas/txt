@@ -2,45 +2,34 @@
 ---
 
 
-## 攻击乌克兰两大城市遇阻，俄军发动导弹袭击
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2094419/)
+## 郭先生解读台海危机现状
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2094426/)
 
-#### **【雅典娜观察】和您一起洞察世界**
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月27日的大直播中，郭文贵先生对台湾军队和中共军队的状态和实力做了一番独特的科学分析与对比。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-2.jpg)
+郭先生提到，台湾有将近50万现役和预备役专业军人，其优势在于技术战和电子战。同时，就像乌克兰军人一样，台湾军人真心卫国，坚决与台湾共存亡。相较而言，中共的军队中大多数是被共产党洗脑的年轻人，他们的军事素质很差。更何况，共军所谓的技术兵种基本上都是被用来搞政治斗争和内部腐败，其对技术的掌握能力与台湾军队相比，根本不在一个级别。
 
-**翻译/编辑：文泓**
+另一方面，在战争心理和战争逻辑中，台湾的国军是誓死抵抗、保家卫国；而中共军队却是实实在在的侵略方，这样可耻的角色只会增加共军士兵的心里负担。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-12.png)图片来源：Associated Press & The Times of Israel
+但郭先生也指出，台湾现在最大问题在于内部的卖台贼。情报显示，国民党和民进党中都有不少人在给中共攻台出谋划策。这卖台贼希望中共能在美国和日本介入之前迅速占领台湾。
 
+参考链接：[2/27/2022 文贵直播: 台海战争中不会打信息战，台湾军队相对于共军的优势是技术战、电子战；台湾士兵的心态和共匪士兵有何区别？为什么台湾最大的问题之一是其内部的卖台贼？](https://www.gettr.com/post/pxeanicf3f)
 
-随着周二俄军对基辅的一座电视广播塔和哈尔科夫的主要政府行政大楼发动导弹袭击，似乎是在对入侵城市遇阻停滞后作出的一种战术调整。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-现场视频显示，早上哈尔科夫中央自由广场（被导弹击中）发生大爆炸。乌克兰政府表示，现场有七人死亡，这次袭击的时间、地点和建筑物知名度表明，俄军旨在证明他们可以随意袭击乌克兰全国。
+总编: Irene木木
+编辑: 静言 
+校正/发稿：Fei797
 
-基辅电视塔遇袭暂时使乌克兰中央电视频道瘫痪，这是乌克兰政府继续运作的重要标志。
-
-则连斯基总统办公室报告说，与电视塔相邻的基辅纳粹大屠杀纪念馆遗址遭到导弹袭击。另[据媒体报道](https://www.afr.com/world/europe/russian-bombs-pound-ukraine-as-zelensky-urges-eu-to-prove-itself-20220302-p5a0u0)，俄罗斯士兵周二没有进一步攻入首都，距离市中心约27公里。
-
-分析人士说，在上周四入侵开始后普京未能速战速决将乌克兰政府赶下台后，普京正试图投入更多的士兵、武器和装备转移到基辅附近。一名美国政府官员在华盛顿告诉记者，分配给入侵行动的部队中约80%已到位。
-
-这位美国官员说，出于某种原因，基辅以北一支65公里长的坦克和战车车队周二停止了行动，对此可能有多种解释。
-
-网上发布的图片显示，乌克兰军队在基辅西北约24公里的布查镇附近进行了伏击。图像显示了布查住宅区俄罗斯坦克和装甲运兵车的残骸。
-
-英国国防部在推特上发文称，俄罗斯正在对基辅、哈尔科夫和基辅卫星城切尔尼戈夫使用更多火炮。
-
-大炮、火箭、导弹和炸弹可以用来杀死保卫城市的乌克兰人，他们还可能杀死和伤害许多平民，破坏民用基础设施，将进一步损害俄罗斯的国际声誉，并在乌克兰内部对入侵者产生更大的愤怒。
-
-参考链接：[Russia-Ukraine war: Russia adjusts tactics as it is stalled outside two big Ukrainian cities (afr.com)](https://www.afr.com/policy/foreign-affairs/stalled-outside-two-big-ukrainian-cities-russia-adjusts-tactics-20220302-p5a0vh)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
