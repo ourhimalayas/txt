@@ -2,38 +2,27 @@
 ---
 
 
-## 乌克兰总统拒当逃兵，领导民众智慧抗敌
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2093336/)
+## 台外交部迎接美国跨党派资深代表团访台
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2093346/)
 
-作者: 纽约香草山信息部 6zero4
+**撰稿：日本东京方舟农场 灭毒战疫** **子辰**
 
+3月1日，由美国总统拜登指派，前参谋长联席会议主席穆伦（Michael Glenn Mullen）率领的美国跨党派资深代表团乘专机访问台湾。台外交部长吴钊燮前往机场迎接。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-9.png)
-2月26日，在俄罗斯对乌克兰的侵略进入第三天时，乌克兰首都基辅发生了激烈的战斗但仍未沦陷。普京原计划围困拥有300万人口的基辅，以活活饿死其市民，迫使乌克兰总统投降，但未能如愿。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/220225192804-ukrainian-president-zelensky-full-169.jpeg)图片来源: The Guardian
-乌克兰人为这场关系到国家生死存亡的战争一直在勇敢而团结地抗争，24.5万现役军人与22万预备役军人全部投入战斗，700万适龄男子拿起武器参与战斗，老年人和妇女拿到武器后也加入战斗，可谓全民皆兵。美国曾提出协助乌克兰总统泽连斯基撤离乌克兰，但他直接回答:“战斗就在这里，我需要的是弹药，而不是撤离！”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/N1.png)（图片来自台湾外交部官方Twitter 账号）
 
-同时，泽连斯基通过报道战争的残酷和俄军暴行，用社交媒体信息战让俄罗斯进入塔西佗陷阱，并让欧洲为其GPS和网络控制提供了帮助，智慧地领导世界上第一次AI参与的战争，并赢得了世界的尊重与支持，被尊称为“战争绅士”。
+据悉，这是美国代表团时隔不到一年的再次到访。担任此次访台的领队穆伦将军于2007年至2011年担任美军参谋首长联席会议主席，各人军事经验非常丰富。另外其他访台的成员大都曾担任过美国防及国安要职。包括前国防部政策次长傅洛依（Michèle A. Flournoy）、前白宫副国安顾问欧苏莉文（Meghan L. O’Sullivan）、前白宫国安会亚洲事务资深主任葛林（Michael Green）及前白宫国安会亚洲事务资深主任麦艾文（Evan S. Medeiros）。
 
-新闻链接: [https://thefederalist.com/2022/02/26/ukrainian-president-zelenskyy-declines-to-evacuate-i-need-ammunition-not-a-ride/?utm\_source=rss&utm\_medium=rss&utm\_campaign=ukrainian-president-zelenskyy-declines-to-evacuate-i-need-ammunition-not-a-ride https://gettr.com/post/px9ufd7b73](https://thefederalist.com/2022/02/26/ukrainian-president-zelenskyy-declines-to-evacuate-i-need-ammunition-not-a-ride/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=ukrainian-president-zelenskyy-declines-to-evacuate-i-need-ammunition-not-a-ride%20https://gettr.com/post/px9ufd7b73)
+此次美方代表团访台期间将拜见总统蔡英文、副总统赖清德等台方政要，双方就美台关系各项重要议题展开讨论并交换意见。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
+该代表团成员涵盖民主、共和两党，拜登总统再度派遣这个重量级且极具代表性的团队访台，凸显美国内部对台湾的高度共识与坚定支持，也再次彰显美国对台湾的承诺“坚如盘石”。
 
+参考链接：
+ [https://www.mofa.gov.tw/News\_Content.aspx?n=95&sms=73&s=97444](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;sms=73&amp;s=97444)
 
-
-编辑/校对/发稿: 卡夫卡的甲壳虫
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+素材采编：灭毒战疫
+编辑：老孙
+发布：Linda
 
  
 
