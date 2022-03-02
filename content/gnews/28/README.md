@@ -2,50 +2,46 @@
 ---
 
 
-## 申请个人破产的七哥只要共匪不灭就绝对不会中断直播
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2091598/)
+## 中共病毒疫苗的两种成分可以杀人
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2091666/)
 
-G-TV视频链接：https://gtv.org/video/id=62164e401408ee3a03a3c939
+作者：纽约磐石农场—在远方
 
-**郭文贵先生：**共匪不灭，水不断流，直播绝不中断，只会多不会少，我向大家保证啊。七哥的生活方式改变，因为我到英国到日本去，我方式改变，甚至、甚至我在这个战斗之前，我都可能要申请个人破产都是有可能的，这是我今天给大家最后的一句话。
 
-我申请破产了之后，这方式肯定要改变的。就是真的直播都是你们带设备了，我设备都不能有。这不是开玩笑的，那时候就是需要到日本以后，文艺真得给我做饭，你不是洗脚的问题，你真得给我做饭吃，爱米粒你轮班儿给我做饭去呀。Rachel、飞飞呀，飞飞戴上手套啊，别让她妈拿手捏鼓的小笼包，戴上手套蒸小笼包吃去。Rachel也让七哥瞄两下腚，是吧？因为那时候真的，因为我们现在最好的这是我的计划之中的，很有可能我要申请个人破产。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-8.png)
 
-因为和UBS这场战斗，还有跟PAG这场战斗，他意图就是……我本来就是个人破产状态，大家很清楚，我也没有钱，天知地知、事实知道。他折腾来折腾去，他折腾了我们这些人，他就是折腾钱嘛，是吧？如果我有一块币，我郭文贵就不应该活在这个世界上，我一个币都没有，是吧，我向大家保证过。
 
-那么这样的话，为啥我说很有可能我申请个人破产。然后我再到伦敦去、日本生活，真的是那些基地那都是爆料革命、新中国联邦的农场的，所有打完官司的钱都属于那些曾经的基金的，是吧，我个人破产了，我就没那么多个人负担，以后穿着大褂的时候，再看穿这今天也是新的啊，穿着大褂的时候在里面一拽都是“海东牌胸罩”，我估计我戴上…..这是真的，所以说个人生活的改变它只能让我更加、更多、更坚定地灭共，直播不会少只会多，和你们在一起的时间只会多不会少。
+盖特2月26日消息，苏查里特.巴克迪教授表示，中共病毒疫苗中含有两种可以杀人的成分，即脂质纳米颗粒和信使核糖核酸mRNA。它们所产生的蛋白质会对人体会造成致命伤害。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/092160.png)
+巴克迪说，在注射中共病毒疫苗后，血管损伤和血栓会在人体全身形成，尤其是小血管和流速较慢的血管。mRNA会撞击内皮组织并被其吸收，血管泄漏可能会出现在人体的任何地方，比如心脏、肝脏、肺和大脑等重要器官，产生破坏和一系列不可预测的反应。而mRNA和刺突蛋白寿命很长，这些外来基因进入人体后，会在人体全身持续数周的制造蛋白质，对人体的攻击也持续数周。
 
-但是我要说的是战友们很多乱猜啊，这里边什么要跟七嫂开结婚证啦；七哥要公布是同性恋啦、双性恋啦；然后七哥什么要跟七嫂子……战友们你们很可爱，但是这就是战友们考验你们的智慧。共产党不灭，七哥任何个人都不会存在，所有做的决定只能有利于灭共，如果你对七哥没这个信任，你就不了解七哥。我看到群里边那战友预测、猜测，很搞笑、很天真、很可爱。但是Rachel、300年飞飞，共匪不灭，直播能少吗？只能多不能少。
+脂质纳米颗粒和血流停止所导致的器官损伤，在心脏部位会导致心肌炎，人们会死于心脏病；在肺部会让人得肺炎，虽然肺部并没有感染，但是肺部却会受到免疫系统或者脂质纳米颗粒的攻击和伤害；在脑部会堵塞小血管，会让患者头痛欲裂、麻痹、四肢失去平衡，或者造成各种奇怪可怕的神经病变；在皮肤部位，则会造成人体外表的迅速老化。
 
-记住大家，还是那句话：你没打疫苗，你就是天下的赢家；你打了疫苗，一切对你来讲都很遥远甚至不存在；再一个，不灭共，你不打疫苗你也是不安全的，不灭共一切都不存在。所以咱就两件事儿：灭共、不打疫苗。就这么简单，一切都服务于这个，不管中间发生了多少事儿，都是鸟事儿！就是多留点儿水少留点儿水的事儿，是不是啊？水流着，没问题呀，早晚得流出来是不是？准备好了吧，英国、欧洲、日本，咱去流水去啦！
+参考来源：
 
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
+[https://gettr.com/post/pwyvd20d3f](https://gettr.com/post/pwyvd20d3f)
 
-编辑整理：Jacques；
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
 
-字幕档制作：兵嫂；
+编辑/校对/发稿：兰兰
 
-视频制作及上传：Cindy；
+**更多资讯，更多关注**
 
-G-News发布：海贼王M.D.LUFFY；
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-9.png)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：日本银河系农场。
 
  
 

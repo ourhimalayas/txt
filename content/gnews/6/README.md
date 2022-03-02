@@ -2,38 +2,16 @@
 ---
 
 
-## 澳洲国防部长呼吁中共向普京施压使其退出战争
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2092183/)
+## 台湾｜拜登特使团访台 美国强调反对片面改变现状
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2092294/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**撰文/ 港台前线｜发布日期/ 02/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-6.png)**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9)](https://gettr.com/post/pwkty7e61c)**
+美国总统拜登指派的代表团，3月2日早上总统蔡英文亲自接见，美国前参谋首长联席会议主席穆伦向蔡总统保证，美国反对片面改变现状，支持符合台湾人民意愿，和平解决两岸议题。
 
-翻译/编辑：小红帽
+美国总统拜登专程指派跨党派资深代表访问团，由美国前参谋首长联席会议主席穆伦（Michael Glenn Mullen）率领，成员包括：前国防部政策次长傅洛依（Michèle A. Flournoy）、前白宫副国安顾问欧苏莉文（Meghan L. O’Sullivan）、前白宫国安会亚洲事务资深主任葛林（Michael Green）及前白宫国安会亚洲事务资深主任麦艾文（Evan S. Medeiros）。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-13.png)图片来源：www.theaustralian.com.au
-
-
-根据澳大利亚新闻网3月2日报道，澳大利亚国防部长彼得·达顿表示，习近平是“唯一”能够阻止俄罗斯在乌克兰各地展开激烈大屠杀的人。
-
-达顿周二与总理莫里森一起承诺提供1.05亿美元的致命和非致命武器援助，以帮助乌克兰军队和北约盟友反击俄罗斯的入侵。达顿表示局势正在恶化。
-
-西方国家强烈谴责普京总统的入侵行为，并实施严厉的制裁。但中共没有跟随制裁的步伐，反而加强了两国之间的贸易关系。
-
-中共和俄罗斯长期以来一直保持着牢固的外交和金融关系，许多西方领导人呼吁习主席在当前的冲突中采取更有力的措施。
-
-莫里森先生周二表示，他对俄罗斯和中共国之间的关系感到“担忧”。“我相信中国正在非常仔细地观察这件事，这就是为什么我一直不厌其烦地表示，中国需要像其他国家一样采取强有力的立场，谴责俄罗斯的所作所为”。
-
-参考链接：[Peter Dutton calls on China to put pressure on Russia to end Ukraine conflict](https://www.news.com.au/world/peter-dutton-calls-on-china-to-put-pressure-on-russia-to-end-ukraine-conflict/news-story/c3dec2d854350145f1c4ab2f8fe2f983)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
-
+來源｜[YAHOO TV](https://tw.tv.yahoo.com/拜登特使團訪台-穆倫-美國反對片面改變現狀-043004404.html)
 
  
 

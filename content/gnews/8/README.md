@@ -2,25 +2,30 @@
 ---
 
 
-## 视频|美国驱逐12名俄罗斯驻联合国官员 俄罗斯警告会以牙还牙
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2092156/)
+## 苹果宣布暂停在俄罗斯的所有产品销售
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2092246/)
 
-制作：香草山视频部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7bbc84d71c6441db87de313d61b7eea5.jpg)苹果宣布暂停在俄罗斯的所有产品销售 网络图片
+据台湾中央广播电台3月2日报道，由于俄罗斯入侵邻国乌克兰，西方政府和大企业已切断与俄罗斯的往来，或进行惩罚性制裁。科技巨擘苹果公司(Apple)1日宣布，停止在俄罗斯的所有产品销售。
 
-在联合国安理会周一（28日）召开全体成员国紧急大会期间，美国对俄罗斯祭出最新制裁，宣布驱逐12名俄罗斯驻联合国官员，指控他们滥用在美居住特权，从事危害美国国家安全的情报搜集工作。
+苹果公司发表声明称，“我们已经暂停了在俄罗斯的所有产品销售。上周，我们停止在俄罗斯销售管道的所有出口，苹果支付(Apple Pay) 和其他服务也将受到限制，而俄罗斯国营RT电视台和卫星通讯社(Sputnik)的新闻在俄罗斯境外已无法下载”。
 
-俄罗斯驻联合国大使涅边贾表示，俄方会对此举做出回应。在乌克兰战争爆发前，美国就曾多次指控俄罗斯外交人员是间谍，以外交工作掩护情报搜集。
+苹果在声明中说，“我们对俄罗斯入侵乌克兰深感关切，并与所有因暴力事件而遭受苦难的人站在一起，我们正支持人道努力，为正在蔓延的难民危机提供援助”。
 
-发稿：Daxia
+新闻参考链接：[https://www.rti.org.tw/news/view/id/2125958](https://www.rti.org.tw/news/view/id/2125958)
 
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
