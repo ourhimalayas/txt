@@ -2,17 +2,26 @@
 ---
 
 
-## 台湾｜拜登特使团访台 美国强调反对片面改变现状
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2092294/)
+## 中日财经爆|穆迪将俄罗斯评级列入负面 穆迪已给出“垃圾级”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2092432/)
 
-**撰文/ 港台前线｜发布日期/ 02/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-6.png)**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9)](https://gettr.com/post/pwkty7e61c)**
-美国总统拜登指派的代表团，3月2日早上总统蔡英文亲自接见，美国前参谋首长联席会议主席穆伦向蔡总统保证，美国反对片面改变现状，支持符合台湾人民意愿，和平解决两岸议题。
+撰稿：东京樱花团/peterwong
 
-美国总统拜登专程指派跨党派资深代表访问团，由美国前参谋首长联席会议主席穆伦（Michael Glenn Mullen）率领，成员包括：前国防部政策次长傅洛依（Michèle A. Flournoy）、前白宫副国安顾问欧苏莉文（Meghan L. O’Sullivan）、前白宫国安会亚洲事务资深主任葛林（Michael Green）及前白宫国安会亚洲事务资深主任麦艾文（Evan S. Medeiros）。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/穆迪将俄罗斯评级列入负面-穆迪已给出垃圾级.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fozvoice.org%2Fwp-content%2Fuploads%2F2019%2F09%2F002_Moody.jpg&amp;imgrefurl=https%3A%2F%2Fozvoice.org%2F%25E6%2596%25B0%25E9%2597%25BB%2F%25E4%25B8%25A4%25E5%25B2%25B8%25E4%25B8%2589%25E5%259C%25B0%2F%25E5%25BF%25A7%25E4%25BC%2598%25E5%258A%25BF%25E9%2581%25AD%25E4%25B8%25AD%25E5%2585%25B1%25E4%25BE%25B5%25E8%259A%2580-%25E7%25A9%2586%25E8%25BF%25AA%25E9%2599%258D%25E4%25BD%258E%25E9%25A6%2599%25E6%25B8%25AF%25E8%25AF%2584%25E7%25BA%25A7%25E5%25B1%2595%25E6%259C%259B%2F&amp;tbnid=3uqNZ7pOw38rvM&amp;vet=12ahUKEwj0zabk2qb2AhXmxzgGHcTpCU4QMygCegUIARCnAQ..i&amp;docid=bmuFJkmbF0a0kM&amp;w=1024&amp;h=578&amp;q=%E7%A9%86%E8%BF%AA&amp;ved=2ahUKEwj0zabk2qb2AhXmxzgGHcTpCU4QMygCegUIARCnAQ)
 
-來源｜[YAHOO TV](https://tw.tv.yahoo.com/拜登特使團訪台-穆倫-美國反對片面改變現狀-043004404.html)
+信用评级机构穆迪(Moody’s) 3月1日警告称，在西方采取严厉制裁之后，俄罗斯禁止偿还新发行的外币债务，这增添了俄主权评级被下调的可能性。
 
+穆迪表示，俄罗斯周二开始禁止居民向国外转移外汇或偿还任何外币贷款，反映出该国决策越来越缺乏可预测性。
+
+俄罗斯入侵乌克兰后，穆迪上周五（2月25日）将俄罗斯Baa3的评级列入负面观察名单。几个小时后，标普全球评级将俄罗斯相当于投资级的评级调降至“垃圾级”，并立即发出另一个降级警告。
+
+消息来源:
+
+[穆迪警告称俄罗斯禁止偿还外币债务使其主权评级调降风险增加](https://cn.reuters.com/article/us-moodys-russia-aaa-0302-idCNKBS2KZ0AD?il=0)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

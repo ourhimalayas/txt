@@ -2,65 +2,27 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“普京”（十）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2091987/)
+## 有声｜谷歌和 Meta可能被逐出俄罗斯
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092216/)
 
-整理：BENJ1
-编辑：Kelly
+By:**秘翻新闻**
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/1-7.png)图片来源：雅典娜设计组（614）
+**2022-03-02**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6-11.png)图片来源 Reuters files
+[3 月1日路透社报道，谷歌和 Facebook 的所有者 Meta可能因为没能按照俄罗斯的法律规定，没有在当地开设分支机构，而成为第一批被俄罗斯采取惩罚措施的互联网公司.](https://www.reuters.com/technology/google-meta-face-penalties-russia-deadline-passes-open-local-offices-2022-03-01/)
 
+[去年，俄罗斯总统普京签署的立法要求所有拥有超过 50 万日用户的外国社交媒体公司，自 2021 年 7 月起都必须在俄罗斯开设分支机构，否则将受到制裁，甚至彻底禁止在俄罗斯使用。](https://www.reuters.com/technology/google-meta-face-penalties-russia-deadline-passes-open-local-offices-2022-03-01/)
 
-郭文贵先生**2021**年**9**月**12**日直播
+[2021年11 月，俄罗斯国家通信监管机构 Roskomnadzor 列出了它希望在俄罗斯领土上正式设立分支机构的 13 家公司，并要求这些公司在2022年 2 月底之前按照规定执行，否则将采取限制措施。至今还没有在俄罗斯开始分支机构的谷歌和 Meta就在这13家公司的名单中。](https://www.reuters.com/technology/google-meta-face-penalties-russia-deadline-passes-open-local-offices-2022-03-01/)
 
-可以告诉大家，我今天爆的这个料，全地球全星空也不会有几个人知道，记住我今天爆的这个料：世界上最大的一单回扣、中介费，单笔的，地球有人类以来，有史以来，就是这个了。
+[评论认为：俄罗斯此举，无疑是效仿中共，采取更加严厉的信息管控，封闭人民获得信息的渠道。](https://www.reuters.com/technology/google-meta-face-penalties-russia-deadline-passes-open-local-offices-2022-03-01/)
 
-中俄石油的回扣是多少钱呢？当年普京在上海，普京和习签的是4600亿美元，他的回扣是多少呢？总共拿了100亿美元，就没按比例拿，是100亿美元。
+秘翻新闻 自由信仰 编辑报道
 
-郭文贵先生**2021**年**9**月**14**日直播
+发布 : 恩典
 
-俄罗斯最早是普京说的，谁也不能强迫别人打疫苗。大家懂这意思了吗？能听我懂吧？我不能明说。他闺女打疫苗完全是假的，百分之百是假的，打的是胸腺肽、白蛋白。
-
-郭文贵先生**2021**年**9**月**20**日直播
-
-我是昨天确认了，梅德耶夫和普京，肯定没打（疫苗）。咱们的这好几个俄罗斯的哥们确定，（他俩）肯定没打（疫苗）。
-
-郭文贵先生**2021**年**9**月**29**日直播
-
-强势的普京，可以这么说，符合俄罗斯的利益，我觉得普京是俄罗斯过去这几代领导人里干的最好的，而且普京是在德国呆过的，他对德国的文化很了解的，我深信未来影响欧洲最大的人物就是普京，你不能忽视这个人物。
-
-俄罗斯整个的天然气管道，整个西输管道被欧洲、被美国给叫停，这个问题搞了那么多年了，我觉得普京的时代一定会给你开启。普京要想达到整个东气西输，想用整个俄罗斯的石油来替代大部分中东的石油，特别是给德国和英国，德国这一届政党里面可能从亲中完全转向亲俄，而且俄国会对德国、对欧洲特别的示弱，但在能源上会大量的合作。
-
-郭文贵先生**2021**年**10**月**5**日直播
-
-昨天Facebook断网，一看那就是俄罗斯出手了，还用说吗？俄罗斯是告诉你，别跟我玩，你差的远着呢，老子一个屁都崩死你。普京真的是拔个汗毛都能把Facebook弄死个一万回，他敢出手，习不敢出手，共产党不敢出手。昨天就是俄罗斯干的，跟中国半毛钱关系没有。
-
-郭文贵先生**2021**年**11**月**28**日直播
-
-习对世界的认知是很狭隘的，甚至对事业、对政治、对能力是不自信的。但到了美国被奥巴马给羞辱之后，转驾俄罗斯，普京跟他结为战友，绝对的战友——“咱俩一起死磕，这个世界就是咱的了。”
-
-资料来源：郭先生GTV和盖特直播视频
-
-往期回顾：
-[文•贵天成——文贵先生谈“普京”（一）](https://gnews.org/zh-hans/1990454/)
-[文•贵天成——文贵先生谈“普京”（二）](https://gnews.org/zh-hans/1992091/)
-[文•贵天成——文贵先生谈“普京”（三）](https://gnews.org/zh-hant/1997918/)
-[文•贵天成——文贵先生谈“普京”（四）](https://gnews.org/zh-hans/1998162/)
-[文•贵天成——文贵先生谈“普京”（五）](https://gnews.org/zh-hans/1998174/)
-[文•贵天成——文贵先生谈“普京”（六）](https://gnews.org/zh-hans/1998177/)
-[文•贵天成——文贵先生谈“普京”（七）](https://gnews.org/zh-hans/2002397/)
-[文•贵天成——文贵先生谈“普京”（八）](https://gnews.org/zh-hans/2090925/)
-[文•贵天成——文贵先生谈“普京”（九）](https://gnews.org/zh-hans/2090993/)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

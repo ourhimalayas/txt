@@ -2,83 +2,62 @@
 ---
 
 
-## 也许是时候世界支持台湾合法政府的独立了
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2091836/)
+## 普京处境尴尬，催问习近平攻台计划
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2092052/)
 
-参议员马可.卢比奥： 由于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click) 支持承认俄罗斯在 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 的傀儡的独立，也许是时候世界支持 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) 合法政府的独立了
+作者：闲聊澳洲
+编辑：skyandmoon
 
-
-
-> Since [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) supports recognizing the independence of Russian puppets in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) maybe its time the world supports the independence of the legitimate government of [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Marco Rubio (@marcorubio) [March 2, 2022](https://twitter.com/marcorubio/status/1498825760924176391?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-10.png)图片来源：雅典娜设计组
 
 
+在美国时间的3月1号，郭先生发了个盖特小视频。在小视频中，郭先生主要讲了以下几点：
 
-参议员玛莎·布莱克本： 在对乌克兰采取了令人发指的行动后，俄罗斯不配获得联合国安理会的席位。
+1）据说普京给习近平打电话，第一句话就问，还玩不玩了？干不干呐？意思就是台湾你还不动手？普京大怒，嗷嗷的喊，说，知道你们中国人，了解你们中国人，我们是讲信用的，走着看吧！
 
+2）共产党老杂毛昨天在党内紧急通知，做好所有各大使馆、海外的学生侨领的联络和宣传控制，微信又派进了新的所谓俄乌战争的“安全信息官”。
 
+3）郭先生说他会让你们看到，在俄乌战争中，有多少大使馆人员卷钱、卷款、使用特殊权力，跑出去了。又有多少大使馆的人是新中国联邦给救出来后，他不会再回国了。你再看看新中国联邦会救多少人，以结果说了算。
 
-> Russia does not deserve a seat on the UN Security Council after its egregious actions toward Ukraine. [pic.twitter.com/qz24oQcHMK](https://t.co/qz24oQcHMK)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 2, 2022](https://twitter.com/MarshaBlackburn/status/1498829680509693954?ref_src=twsrc%5Etfw)
+4）中共宣传：个人信息重要，不要被骗。我们要你任何人的信息了吗？要你的信息当饭吃吗？你见过有人拿几百万，甚至几千万美元到战场上要你的个人信息？那不是疯了吗？在乌克兰的人，你把你的信息给共产党，看他能不能救你出去？所有中国人的个人信息，你们当官的想咋干就咋干，一个派出所副所长，一个片警都可以拿走你的信息。到这时，你的信息怎么就值钱了呢？这个世界上无知的代价太大了，竟然有中国人听信。
 
+5）某个被救出来的人，安排放在某个人家里，这人说：你是中国的，我们绝对不接受你们。郭先生解释半天，这几家才安顿下来。人家俄罗斯和乌克兰打仗，咋恨你中国人呢？
 
+6）在乌克兰周围会有另外的飞机起飞，会有飞回美国的，也有去东南亚的，下了飞机你们就可以走人，新中国联邦只是想救人。
 
-参议员玛莎.布莱克本： 联合国必须剥夺俄罗斯在安理会的否决权。
+7）战场瞬息万变，现在全世界人民都不再相信习近平和共产党了，中国共产党里没人相信习近平，更重要的是，习近平谁也不相信，就像全世界不相信普京，普京不相信身边任何人，这就是世界的大变化。
 
+8）新中国联邦是没有共产党之后的，一人一票选出政权的推动者，永远不会管理你那伟大的中国，新中国联邦不参与中国的政治，我们只救中国人，唤醒中国人。
 
+9）世界已经大变，这只是刚刚开始，之前郭先生就说，强制疫苗在2021年底，2022年5月份之前会停止，说到做到了吧， 现在都停了。
 
-> The UN must strip Russia of its ability to veto in the security council.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 1, 2022](https://twitter.com/MarshaBlackburn/status/1498787977719431172?ref_src=twsrc%5Etfw)
+听完郭先生的盖特小视频，我第一个感觉就是普京已经急了，打电话催促习近平赶紧对台湾动手，我这边儿已经按照约定去攻打了乌克兰，现在全世界把所有的制裁全都对向了我，我快坚持不住了，你在那边难道想不动手吗？想退缩吗?
 
+那意思就是你要是真的想不动手儿了，想退缩了，你看我普京怎么收拾你，你所有中共的底儿我全给你揭开，然后我就兴许从北边进攻你。中共本来说好的，你打台湾，我攻乌克兰，结果我这边动手了，你那边不动了，把所有的压力全弄我这了，然后全世界所有的制裁对着我。俄罗斯快崩溃了，俄罗斯的军队已经到了乌克兰，死了那么多人，现在要是没有个结果，我撤回去，我这个总统的宝座就没有了！老子兴许后几年就在监狱里度过了，你忽悠我，让我先动手，你要是不动你想退缩，可能吗？门都没有！
 
+现在，习近平已经被架在了火上，在那儿烤着。他现在要是不动手，都不用说国内的政敌收拾他，就是普京也不会放过他。别看俄罗斯攻打乌克兰，在那儿吃了鳖，全世界帮助乌克兰对抗俄罗斯，又是提供武器，又是各国志愿兵参战，并且全世界制裁俄罗斯。若是俄罗斯调头攻打中共，把中共的底儿和习近平的底儿全给揭开，那全世界肯定是拍手叫好，然后笑看俄罗斯和中共打起来，那个时候，习近平可是彻底玩儿完了。俄罗斯拿不下乌克兰，动不了北约和欧洲那边，但是对付中共可是绰绰有余的。在历次中共与俄罗斯的交手的历史上，除了70年代末，中共和美国建交耍了俄罗斯一把之外，其余的大部分时候，中共都是吃亏的一方。
 
-拜登总统： 普京总统认为他可以顺利挺进乌克兰——世界将会接受。 相反，他遇到了他从未想到过的强力阻击。 他遇到了(强大的)乌克兰人民。
+再有，普京为什么攻打乌克兰，习近平为什么攻打台湾，其实都是转移内部的政治经济压力，他们两个人在国内都有无数的政敌，这个是大家都知道的。再有一个就是中共国内的经济，还有俄罗斯的经济已经糟糕透顶了。
 
+我们先看一组数据，普京执政超过20年，2021年俄罗斯的GDP只有一点七七万亿美元，低于江苏省的一点八万亿美元。俄罗斯最大的问题还是经济结构的问题，俄罗斯仍然以出口能源为主，工业品在国际市场上毫无竞争力。再有，俄罗斯的国企在经济中占比超过60%，长期腐败低效。这种经济结构怎么能支撑经济长期发展？油价高的时候经济会好一点，而一旦油价下跌就会打回原形。俄罗斯也喊了很多年的经济改革，但却一直改不动。一是因为前苏联留下的经济结构调整难度太大；二是因为国企、富人和政府职能部门是支持普京的基本盘，根本就没有改革的动力，普京也不会动这些部门和这些人。再有，在克里米亚事件后，俄罗斯经济长期遭受西方的制裁，外资大量流出，经济出现了停滞甚至倒退。
 
+所以，俄罗斯的经济是支撑不起他的大国梦的。普京不会不知道这一点，所以他才要做最后的赌博。赌赢了，拿下乌克兰，乌克兰的经济人口或者工业水平就可以支撑俄罗斯发展一阵子；赌输了，那就全部赔掉。沙皇俄国也好，俄罗斯也好，在俄国的历史上，历次的对周边国家的侵略基本上都是经济非常糟糕的时候，他只能靠扩张来维持他的经济，维持他的统治。就像有的人，家里穷的已经是揭不开锅了，然后他就去抢邻居，从邻居那儿抢点吃的，抢点穿的，就是这么个道理。
 
-> President Putin thought he could roll into Ukraine — and the world would roll over.
->  
-> Instead, he met a wall of strength he never imagined.
->  
-> He met the Ukrainian people.
-> — President Biden (@POTUS) [March 2, 2022](https://twitter.com/POTUS/status/1498843134721150979?ref_src=twsrc%5Etfw)
+中国的经济就更甭提了，我已经说过很多次了，大家对中国也是非常了解的，私营企业、制造业基本上已经趴下了，由于人工成本的上升，地价的上升，原材料大涨，最主要全球老百姓没钱消费了。再有服务业比如旅游，饭店这些行业，由于疫情基本上，也已经两年没开张了。互联网企业在不断的裁员，教培又由于一纸教令，很多课外培训人员已经失业，所以中国现在官方说灵活就业人员是2亿人，可想而知经济糟糕到什么程度。这么多的失业人员，就会引发社会的动荡，所以习近平只能用战争来转移矛盾，对于开打台湾之后，全世界对他和中共的经济制裁，习近平肯定也是心知肚明的，做好了准备的，就是重回老毛时代的管控经济，成为一个大个的北朝鲜。
 
+还有一点不要忘了，其实全世界，尤其是西方国家也是需要一场战争的。看看欧洲的历次战争，还有一战、二战都是由于经济危机之后，最后没有办法只能用战争来解决。现在全球的经济萧条大家都已经体会到了，即使没有普京攻打乌克兰，也会有别的战争——这是经济政治规律。
 
+所以，习近平由于普京的逼迫、国内的政治经济压力，还有他自己本身的性格，想做秦皇汉武，又想在20大连任，最后习近平只能选择去攻打台湾。习近平也是一赌徒，赢了，他继续做皇帝；输了，身家性命玩完，只是最后这代价要有台湾、中国的老百姓来承受，就像俄乌战争最后受损的也是乌克兰和俄罗斯的普通民众。
 
-拜登总统： 美国司法部正在组建一个专门的工作组来追查俄罗斯寡头的罪行。 我们正与我们的欧洲盟友一起寻找并没收他们的游艇、豪华公寓和私人飞机。 我们不会放过他们的不义之财。
+资料来源：[闲聊澳洲 – YouTube](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
 
+发布：tianzhihuan
 
-
-> The U.S. Department of Justice is assembling a dedicated task force to go after the crimes of Russian oligarchs.
->  
-> We are joining with our European allies to find and seize their yachts, their luxury apartments, their private jets. 
->  
-> We are coming for their ill-begotten gains.
-> — President Biden (@POTUS) [March 2, 2022](https://twitter.com/POTUS/status/1498844556300886022?ref_src=twsrc%5Etfw)
-
-
-
-比尔·格茨: 拜登今晚没有提到要让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对传播导致大流行的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 负责。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 放出致命病毒，是邪恶的，必须承担责任，否则北京将制造更多致命的瘟疫。
-
-
-
-> Biden tonight made no mention of holding Communst China accountable for spreading the virus that caused the pandemic. The CCP unleashed the deadly virus, is evil, and must be held responsible or Beijing will create even more deadly plagues
-> — Bill Gertz (@BillGertz) [March 2, 2022](https://twitter.com/BillGertz/status/1498854110472278016?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 同意劳拉·英格拉汉姆[@IngrahamAngle](https://twitter.com/IngrahamAngle) – 拜登必须制裁 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 支持俄罗斯入侵乌克兰的行径。 俄罗斯、[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)、伊朗和北朝鲜是新的邪恶轴心国。 必须阻止他们。
-
-
-
-> Agree with [@IngrahamAngle](https://twitter.com/IngrahamAngle?ref_src=twsrc%5Etfw) – Biden must sanction Communist China for bolstering Russia’s invasion of Ukraine.
->  
-> Russia, China, Iran and North Korea are the new axis of evil.
->  
-> They must be stopped. [https://t.co/dmx0r74mcE](https://t.co/dmx0r74mcE)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 2, 2022](https://twitter.com/MarshaBlackburn/status/1498835382389125120?ref_src=twsrc%5Etfw)
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

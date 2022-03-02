@@ -2,34 +2,23 @@
 ---
 
 
-## 中日财经爆|跨国企业制裁俄罗斯 断绝与其商业往来
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2092297/)
+## 有声｜国内部分航线燃油附加费3月5日起翻倍
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092439/)
 
-撰稿：东京樱花团/peterwong
+**By:秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/跨国企业制裁俄罗斯-断绝与其商业往来.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg1.jiemian.com%2F101%2Foriginal%2F20180920%2F153740492815327500_a640x364.jpg&amp;imgrefurl=https%3A%2F%2Fm.jiemian.com%2Farticle%2F2485224.html&amp;tbnid=mPNxo6L9JDxukM&amp;vet=12ahUKEwjIkIWI1qb2AhXbRmwGHWurBO0QMygzegQIARBC..i&amp;docid=zU2tNyAjw_OCqM&amp;w=640&amp;h=364&amp;itg=1&amp;q=%E8%B7%A8%E5%9B%BD%E4%BC%81%E4%B8%9A&amp;ved=2ahUKEwjIkIWI1qb2AhXbRmwGHWurBO0QMygzegQIARBC)
+**2022-03-02**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4A9B916C-0961-439D-BCC5-52E0F7D8074E-scaled.jpeg)图片:源自网络
+**[据陆媒第一财经3月1日报道，“去哪儿”网等部分机票代理已收到北部湾航空等国内航司的邮件，将于3月5日开始提高国内航线的燃油附加费征收标准。根据通知，自2022年3月5日出票日起，国内所有航线燃油附加费收取标准为：800公里（含）以下航线每位旅客收取20元燃油附加费，800公里以上航线每位旅客收取40元燃油附加费。](https://www.sogou.com/link?url=hedJjaC291MsSMYcMkrZn3JYM_Rmx0C5rnilvTOuwml_uHtFzeveW9M7Xe6uZ5eq)**
 
-由于俄罗斯入侵乌克兰，包括苹果、谷歌和哈雷戴维森在内的美国大公司周二（3月1日）削减了对俄销售并与俄罗斯保持距离。从运输商、汽车制造商到能源公司，越来越多的公司都在避开俄罗斯。
+**[评论认为：目前，因国际局势动荡，油价3月1日晚已突破100美元大关。中共借机翻倍收取燃油附加费，可见其对待墙内草民从来都不会手软。](https://www.sogou.com/link?url=hedJjaC291MsSMYcMkrZn3JYM_Rmx0C5rnilvTOuwml_uHtFzeveW9M7Xe6uZ5eq)**
 
-因俄罗斯军事入侵乌克兰，西方国家对俄罗斯施加了严厉的制裁，将其经济排除在全球金融体系之外，促使企业停止销售、切断联系，并撤销价值数百亿美元的投资。
+（ 秘翻新闻 菜园子112 编辑报道 ）
 
-苹果称已经停止在俄罗斯销售iPhone和其他产品，哈雷戴维森暂停其对俄业务和摩托车发货。
+发布:星星
 
-世界上最大的航运公司MSC和马士基航运周二（3月1日）暂停了往返俄罗斯的集装箱运输，加深了该国的孤立。
-
-苹果宣布暂停在俄罗斯的销售，并采取其他措施，包括限制Apple Pay支付服务和停止在俄罗斯境外下载RT News的功能。作为对乌克兰公民的一项安全和预防措施，苹果已经关闭了苹果地图在乌克兰的交通和实时事件功能。
-
-谷歌公司周二证实，它已将RT等俄罗斯政府资助的出版商从其新闻相关功能中删除。
-
-Hargreaves Lansdown高级投资和市场分析师Susannah Streeter说：“企业界正在建立一个堡垒，将俄罗斯与国际社会隔离。”
-
-消息来源:
-
-[综述：苹果等多家大公司削减对俄销售 中止业务保持距离](https://cn.reuters.com/article/wrapup-apple-google-russia-0302-idCNKBS2KZ09G?il=0)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

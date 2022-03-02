@@ -2,31 +2,25 @@
 ---
 
 
-## 苹果宣布暂停在俄罗斯的所有产品销售
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2092246/)
+## 有声｜因中共亲俄立场 法国暂停在中国举办马蒂斯画展
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092425/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7bbc84d71c6441db87de313d61b7eea5.jpg)苹果宣布暂停在俄罗斯的所有产品销售 网络图片
-据台湾中央广播电台3月2日报道，由于俄罗斯入侵邻国乌克兰，西方政府和大企业已切断与俄罗斯的往来，或进行惩罚性制裁。科技巨擘苹果公司(Apple)1日宣布，停止在俄罗斯的所有产品销售。
+By:**秘翻新闻**
 
-苹果公司发表声明称，“我们已经暂停了在俄罗斯的所有产品销售。上周，我们停止在俄罗斯销售管道的所有出口，苹果支付(Apple Pay) 和其他服务也将受到限制，而俄罗斯国营RT电视台和卫星通讯社(Sputnik)的新闻在俄罗斯境外已无法下载”。
+**2022-03-02**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-3.png)图片来源 自由亚洲电台
+[据自由亚洲电台3月1日报道，俄罗斯向乌克兰宣战，中共国的立场不仅影响到国际政治，连文化合作也都受到牵连。](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl2-03012022111253.html)
 
-苹果在声明中说，“我们对俄罗斯入侵乌克兰深感关切，并与所有因暴力事件而遭受苦难的人站在一起，我们正支持人道努力，为正在蔓延的难民危机提供援助”。
+[法国北方省政府2月25日发布公报指出，取消原定的马蒂斯画作前往中国北京和上海展出的计划，主要是考虑俄罗斯向乌克兰宣战的“地缘政治危机”，以及“北京与莫斯科之间的政治关系”。](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl2-03012022111253.html)
 
-新闻参考链接：[https://www.rti.org.tw/news/view/id/2125958](https://www.rti.org.tw/news/view/id/2125958)
+[价值3亿欧元的280幅马蒂斯作品，原定于3月初启程前往中国，将于2022年3月26日至6月26日在北京展出，7月转往上海展出。这些作品都是马蒂斯的出生地——勒卡托-康布雷西的马蒂斯美术馆的藏品。这是马蒂斯画作首次在中国的展出计划。](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl2-03012022111253.html)
+
+秘翻新闻 二丫 编辑报道
+
+发布 : 恩典
 
 * * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

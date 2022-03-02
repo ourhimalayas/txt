@@ -2,50 +2,39 @@
 ---
 
 
-## 西雅图圣地亚哥德国英国日本等地对华人的愤怒令人恐惧
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2091552/)
+## 新西兰高院裁定总理的强制疫苗政策严重侵犯人权
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2091735/)
 
-G-TV视频链接：https://gtv.org/video/id=62164e231408ee3a03a3c931
+![Court ends mandatory vaccination in New Zealand, dealing a devastating blow to PM Jacinda Ardern](https://cdn.newspunch.com/wp-content/uploads/2022/02/jacinda-ardern.jpeg.webp)周五，新西兰总理杰辛达·阿德恩（Jacinda Ardern）在高等法院裁定她的疫苗授权对新西兰人“严重侵犯人权”后感到震惊。
+来源于美国News Punch网站2022年02月27日的报道，周五，新西兰高等法院裁定总理杰辛达·阿德恩(Jacinda Ardern)的强制疫苗接种政策对新西兰人来说是“严重侵犯人权”，这令她感到震惊。
+这个具有里程碑意义的案件意味着，警察和新西兰国防军(New Zealand Defence Force，简称NZDF)不能因为拒绝接种实验性疫苗而被解雇。此案将用于推翻阿德恩在新西兰的所有非法强制政策。
+弗朗西斯·库克(Francis Cooke)大法官裁定，命令前线警察和国防工作人员接种疫苗，否则就面临失业，这不是对《权利法案》“合理正当”的背离。
+由一群国防军和警察雇员提出的挑战，质疑根据《新冠病毒公共卫生应对法》(Covid-19 Public Health Response Act)下令要求一线雇员接种疫苗的合法性。这一挑战得到了受该强制政策影响的37名雇员的支持，他们向法院提交了书面宣誓书。该团体依据的是《权利法案》的两个方面——拒绝医疗程序的权利和宗教自由的权利。
+关于宗教自由的论点，一些提交意见的人提到他们从根本上反对接种辉瑞疫苗，是鉴于疫苗是在来自人类胎儿的细胞上进行测试的。
+库克法官同意这一主张，称“如果一个人因为疫苗是在人类胎儿(可能是流产的胎儿)的细胞上进行了测试而拒绝接受接种疫苗的义务，确实涉及到对宗教信仰表明的限制。”库克大法官也同意这项授权侵犯了拒绝医疗程序的权利的说法。
+但在考虑这两项主张时，库克法官还考虑了该强制政策是否符合《新冠病毒公共卫生应对法》中规定的定义。
+法院承认，疫苗接种在限制严重疾病、住院和死亡方面具有显着的有益效果，包括对奥密克戎(Omicron)变异毒株。然而，与其他新冠病毒变异毒株相比，它在减少奥密克戎变异毒株的感染和传播方面效果较差。
+从本质上讲，强制要求警察和新西兰国防军工作人员接种疫苗的命令是为了确保公共服务的连续性，并提高公众对这些服务的信心，而不是阻止新冠病毒的传播。事实上，向政府提供的健康建议是，不需要进一步的强制接种来限制新冠病毒的传播。我不相信这些服务的连续性是因为该命令而得到了实质性的推进。”法官说。
+简评：
+在新冠病毒大流行期间，我们看到的是新西兰总理杰辛达·阿德恩打着希望新西兰在2021年的疫苗接种率领先世界的旗号，对新西兰国民采取了堪比纳粹的强制封锁、强制疫苗，并让未接种疫苗的人承受着惩罚和痛苦，同时使整个新西兰社会疏远、分裂。
+如今，新西兰高院裁定强制疫苗接种是对新西兰人人权的严重侵犯。这一判决让我们看到在新西兰全国范围内取消政府强推的所有有关新冠病毒强制政策的希望，同时我们也相信这一判决也会对全世界放宽或取消新冠病毒限制和强制接种疫苗政策产生积极影响。因为新西兰高院定性的是“严重侵犯人权”，那么“严重侵犯人权”相应的后果也势必需要有组织或个人来承担。我们相信在新冠病毒大流行期间对自己国民犯下了“严重侵犯人权”罪行的各国政府领导人，如新西兰总理、加拿大小土豆之类的政客，将很快被民众清算同时被钉在历史的耻辱柱上遭人唾弃。
 
-**郭文贵先生：**那么西雅图，西雅图的好多华人在那儿，而且很多美国人看到了“螃蟹”、所谓那个“吃狗杨”那个视频，他们说：“你看看这个人竟然如此之荒唐，你给他了钱，他骗了你的钱，他竟然如此之荒唐。”人家非常之看不起，然后他说“你知道我们周围的华人有多奇怪吗？”他说“讲着完全听不懂的英文，说我们伟大的国家”，他说“伟大的国家你回你们中国去”，这是西雅图。
+新闻链接：[https://newspunch.com/new-zealand-high-court-ends-jacinda-arderns-vaccine-mandate-its-a-gross-violation-of-human-rights/amp/](https://newspunch.com/new-zealand-high-court-ends-jacinda-arderns-vaccine-mandate-its-a-gross-violation-of-human-rights/amp/)
 
-在圣地亚哥，我说的都是美国朋友，他说“我看到圣地亚哥任何亚裔人，我觉得都是来窃、看我们的航空母舰、潜水艇”。这话弄得我毛骨悚然，我说“你不能这么看，亚洲人是无辜的，共产党，是共产党”，哎我这一说我头皮都发麻。圣地亚哥是很多美国军事基地的。
+翻译/简评：Brianchow
 
-然后德国、英国，日本就更惨了，我日本的朋友丰田的人说：“你知道我现在很害怕”他说“我们丰田内部日本人看中国人所有的眼神都变了，不是右翼人在大街上喊，叫‘肮脏的中国人，滚回中国去’喊了几十年，他说那都知道是右翼，他说”关键是在我这都是跟中国很友好的人，一看到中国人这个眼神都变了“，这个文艺你是很有感觉的。
+PR：Harvey（叶知秋）
 
-我台湾的高雄的哥儿们在日本有家有业的，最近说要搬回台湾去，为什么呀？他说“七哥你知道我现在啥感受吗？跟我很好的这个人说‘你在台湾，你是台湾人，你支持共产党吗？’说‘我恨共产党，不支持共产党’，那你为什么不打倒蔡英文呢？“他说”我也不支持蔡英文“，”那你不支持蔡英文就支持共产党“。这个日本人糊涂，他说”我就没法在这儿待了“，他说”我真得回台湾去了“。
+* * *
 
-无处不在，最惨的、最危险的我认为三个国家：俄罗斯，就东欧国家排华会超出你想象。还有一个再次会席卷印尼东南亚。然后就是共产党给了无数个处女让人家睡觉的非洲，非洲是太危险了！太危险了！非洲、东南亚、东欧俄罗斯。七哥在这个问题上一点儿信心都没有，我们努力吧，谢谢！
-
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
-
-编辑整理：Jacques；
-
-字幕档制作：兵嫂；
-
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

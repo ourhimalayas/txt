@@ -2,27 +2,30 @@
 ---
 
 
-## 视频|芬兰放下「中立」宣布军事援助乌克兰
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2092176/)
+## 国际法院即将审理乌克兰战争种族灭绝罪
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2092377/)
 
-制作：香草山视频部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-1.jpg)国际法院即将审理乌克兰战争种族灭绝罪 网络图片
+据台湾中央广播电台3月2日报道，在俄罗斯采取军事行动后，乌克兰已经向国际法院控告俄罗斯犯下“种族灭绝罪”，要求俄罗斯立即停止入侵。联合国海牙国际法院将在3月7日至8日，就乌克兰战争的种族灭绝举行听证会，专门讨论乌克兰提出的请求。
 
-台媒3月1日消息，芬兰总理马林（Sanna Marin）28日宣布，芬兰将向乌克兰运送武器和弹药。 马林形容这是历史性的决定，并保证对乌克兰军援不会削弱芬兰自身的防御能力。这是芬兰自二战以来首次转变“中立”态度，参与战事援助。
+乌克兰人口约4,400万。联合国难民署表示，已经有超过66万乌克兰人逃往国外，估计另有100万人在境内流离失所。未来几个月可能会有多达400万难民需要帮助，乌克兰国内则将有1,200万难民等待救援。
 
-芬兰国防部长凯克宁表示，预计自3月1日至2日起，分别向乌克兰援助2500支步枪、15万发子弹、1500件反装甲武器和7万份野战口粮。
+海牙国际法院无权对入侵行动的幕后元凶、俄罗斯领导人提出刑事指控。但它是解决国家之间涉嫌违反国际法的法律投诉世界最高法院。俄罗斯无视国际禁令、抵制和制裁，继续对乌克兰发动攻势，宣称其目的是捍卫乌克兰的俄语人口，以及推翻乌克兰的领导层。俄罗斯和中共国这样的国家和领导人都有一种共产主义者天然的傲慢和邪恶。乌克兰和台湾都是独立的主权国家，其他国家没有权利插手。悍然发动战争，除了给参战国带来士兵和平民的生命和财产损失，不能解决任何问题。
 
-不久前，俄罗斯政府曾经威胁芬兰不准加入北大西洋公约组织，并警告，如果芬兰政府打破“军事不结盟政策”，北欧的安全和稳定将面临严重的军事、政治后果。
+新闻参考链接：[https://www.rti.org.tw/news/view/id/2125983](https://www.rti.org.tw/news/view/id/2125983)
 
-发稿：Daxia
+* * *
 
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

@@ -2,24 +2,24 @@
 ---
 
 
-## 视频|美国务事务助卿呼吁国际社会支持台湾参与联合国体系
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2092298/)
+## 美国宣布禁止俄罗斯航班进入领空
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2092441/)
 
-制作：香草山视频部
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-12.png)[图片来源](https://www.google.com/search?q=Aeroflot+plane&amp;sxsrf=APq-WBsdOT_UL9RYb9k3MVnbwUhKjJEZ6g:1646197633228&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=Ut4C87rOPUjWqM%252CKngw46bkVjnrRM%252C_%253BDbhB3tkWzO9YnM%252CDFVn08umodkA-)
+美国交通部和联邦航空管理局宣布，禁止俄罗斯飞机飞越美国领空的禁令将在3月2日深夜前全面实施。这一禁令将适用于所有客运和货运航班，包括定期航班和包机。
 
-台媒3月1日消息，美国国务院国务事务助卿，席森，28日公开晒出自己近期与美国驻台代表萧美琴的会晤合照，并呼吁国际社会支持台湾有意义参与联合国体系。 席森表示，台湾的贡献能让国际社会广泛受益，美方希望联合国各会员国支持台湾参与联合国。
+拜登总统在国情演讲中宣布，将“跟随我们的盟友禁止所有俄罗斯飞机进入美国领空，进一步孤立俄罗斯并对其经济施加额外压力。”
 
-对此，萧美琴回应表示，她很感谢有机会与席森讨论美台合作，并拓展台湾能有意义参与到国际组织中去。
+除美国外，加拿大和欧盟已经禁止了俄罗斯飞机进入其领空。
 
-早前，美国国务卿布林肯，在联合国2758号决议通过满50年的翌日，发声明表示支持台湾参与联合国体系。他指出，台湾参与联合国体系并非政治议题，而是务实议题。将台湾排除在外，会有损联合国及其相关机构的重要工作。
+信息源：
 
-发稿：谐趣园
+[ロシア航空機の米領空飛行禁止、2日深夜までに完全実施へ](https://news.yahoo.co.jp/articles/d80c7485ca4535e23cb2433be931beffeb444edb#:~:text=)
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
