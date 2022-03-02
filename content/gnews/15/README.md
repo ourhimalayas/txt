@@ -2,28 +2,31 @@
 ---
 
 
-## BKKProVita保险经理被解雇——曾指控新冠疫苗的副作用大
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2093843/)
+## 俄暗杀乌总统行动被挫败
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2093892/)
 
-#### 翻译/简评                            意大利达芬奇农场                     小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-02-alle-12.20.20.png)图片来源：eventiavversinews.it
-两周前，BKKProVita总裁Andreas Schöfbeck，他就账单信息里泄露出疫苗副作用高发生率一事致函德国疫苗监管机构Paul-Ehrlich-Institut,  此事引起了轰动。
+**撰稿：日本东京方舟农场 北极**
 
-我们在这里谈论过这个话题：拥有1100用户的德国健康保险：新冠疫苗的副作用比政府报告的要大得多。
+据大纪元03月02日报道，乌克兰高级国防官员表示，乌安全部队挫败了一起俄罗斯试图暗杀乌克兰总统泽连斯基（Volodymyr Zelensky）的行动。
 
-Schöfbeck 被叫去要求替他写的信进行辩护，但一个小时的公司会议后， 他被解雇了。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄暗.png)2022年3月1日，乌克兰总统泽连斯基（Volodymyr Zelensky）在基辅发表讲话。（图片来自大纪元）
 
-Paul-Ehrlich-Institut 的代表，包括其主席 Klaus Cichutek, 已同意同一天下午与Schöfbeck和其他BKK官员会面，讨论他们的担忧， 但这显然是不可能的。
+乌克兰国安会秘书长奥列克西·丹尼洛夫（Oleksiy Danilov）在接受当地电视台「Ukraine 24」采访时表示，乌克兰安全部队周二拦截了俄罗斯派出的暗杀部队。
 
-解雇Schöfbeck 是事先无耻地计划好的，是为了阻止他参加那个会议，事实上那次会议没有他也照样举行了。
+他表示，此次俄派遣的暗杀部队由车臣精英突击队（Kadyrovites）组成。该部队分两批抵达，其中一个小队在霍斯托梅勒（Hostomel）被乌克兰部队消灭。 另一个小队的行踪也被乌克兰军方密切掌握，现已处于炮火控制之下。
 
-这就是对新冠疫苗“安全性和有效性充满信心”的人的行为， 但这样做却越来越不可逆转地损害了公众的利益。
+丹尼洛夫透露，这个暗杀计划是由俄罗斯联邦安全局（FSB）中的反战人员提供的。
 
-当世界的注意力都集中在乌克兰的时候， 我们不要忘了我们每一个人都身处乌克兰， 因为新冠疫苗的灾难无处不在, 而主流媒体及政府闭口不谈疫苗带来的严重副作用。这是一场战争，热战已开始，而疫苗战 、媒体战、信息战也正如火如荼地展开…..
+车臣精英突击队（Kadyrovites）的字面意思是卡狄罗夫（Ramzan Kadyrov）的追随者。卡狄罗夫是车臣共和国的领导人，是普京的盟友，该共和国是俄罗斯一个半自治区域。
 
-原文链接：[https://www.eventiavversinews.it/il-dirigente-assicurativo-tedesco-della-bkk-provita-che-ha-denunciato-lalto-tasso-di-effetti-collaterali-del-vaccino-rivelato-da](https://www.eventiavversinews.it/il-dirigente-assicurativo-tedesco-della-bkk-provita-che-ha-denunciato-lalto-tasso-di-effetti-collaterali-del-vaccino-rivelato-da)
+车臣精英突击队是俄罗斯国民警卫队的一部分，以手段凶残和作战能力突出而闻名，2014年，他们也参与了俄罗斯对克里米亚的入侵。
 
-编辑、上传： Xiao    baige
+参考链接：
+[https://www.epochtimes.com/b5/22/3/2/n13615628.htm](https://www.epochtimes.com/b5/22/3/2/n13615628.htm)
+
+素材采编：北极
+编辑：青城道姑
+发布：Linda
 
  
 
