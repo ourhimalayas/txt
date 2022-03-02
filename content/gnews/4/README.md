@@ -2,30 +2,17 @@
 ---
 
 
-## 中日财经爆┃俄乌战争导致全球粮食供应危机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2092818/)
+## 俄乌战争｜乌克兰加入欧盟申请 获欧洲议会压倒性支持
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2092920/)
 
-撰稿：东京樱花团/盖特第一批注册
+**撰文/ 港台前线｜发布日期/ 02/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-1-2.png)更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
+日前，乌克兰提出加入欧盟的申请，欧洲议会投票结果以“637人赞成、13人反对、26人弃权”获压倒性支持。然而，乌克兰申请加入欧盟，仍必须经过漫长程序，可能需要数年时间。（欧洲议会同意乌克兰加入欧盟的申请）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄乌战争导致全球粮食供应危机.jpg)
+歐盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）表示“乌克兰民族勇敢的为欧洲价值挺身而出，没有人可以质疑他们属于欧洲大家庭。”乌克兰总统泽连斯基则表示“我们（乌克兰）已经证明了我们的实力，证明和欧洲一样。”
 
-挪威领先的化肥制造商雅苒国际周四警告说，俄罗斯对乌克兰的入侵正在危及全球粮食供应。
+來源｜[NR](https://www.nationalreview.com/news/european-parliament-votes-to-advance-ukraines-application-for-eu-membership/)
 
-乌克兰和俄罗斯占世界小麦出口的29%，玉米出口的19%和葵花籽油出口的80%。不仅如此，俄罗斯还出口天然气和生产氮肥所需的原材料。俄罗斯向欧洲提供25%的化肥三大原料——氮、钾和磷酸盐。
-
-地缘政治局势失衡导致欧洲用于粮食生产的最大原材料来源正变得越来越少，而且短期没有替代来源。世界范围内会出现粮食短缺，以及长期的食物争夺战。
-
-这就是为什么国际社会必须团结一致，努力确保全球粮食生产，减少对俄罗斯的依赖。
-
-联合国世界粮食计划署（WFP）执行主任比斯利上周也表示，俄乌克兰战争的开始将对该机构提供粮食援助的能力产生重大影响，并对粮食、燃料和运输成本上升表示担忧。
-
-信息源：
-
-[ウクライナ侵攻で世界的な食糧供給危機、肥料会社ヤラが警告](https://jp.reuters.com/article/ukraine-crisis-yara-food-idJPKBN2KZ0CC)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,26 @@
 ---
 
 
-## 有声｜英国将向乌克兰提供额外的8000万英镑援助
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092636/)
+## 视频|欧盟主席称望乌克兰成为成员国
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2092683/)
 
-By:**秘翻新闻**
+制作：香草山视频部
 
-**2022-03-02**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/12-2.png)图片来源 Reuters/Efrem Lukatsky
-[《路透社》伦敦3月1日报道，英国周二表示，承诺将再向乌克兰提供额外的8,000万英镑的援助，以帮助该国应对日益严重的人道主义危机。](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
+据路透社报道，欧盟首席执行官2月27日表示明确支持乌克兰成为欧盟的成员，称这个目前受到俄罗斯攻击的国家是”我们中的一员”。
 
-[英国政府表示，这笔额外资金使英国对乌克兰的支持总计达到2.2亿英镑。](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
+欧盟委员会主席冯德莱恩表示，欧盟有史以来首次决定向处于战争状态的国家提供武器，欧盟将向乌克兰运送 4.5 亿欧元，折合5.07 亿美元的武器，。
 
-[据报道，其中的1.2亿英镑用于援助，上月宣布的另外1亿英镑用于提振经济，减少乌克兰对俄罗斯天然气进口的依赖。](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
+欧盟还宣布乌克兰难民将在 3 年内在其成员国受到欢迎而无需申请庇护，并表示将对俄罗斯的入侵实施严厉制裁。
 
-[英国外交部长利兹·特拉斯在一份声明中说:“英国在努力提供拯救生命的人道主义援助以及政治、经济和防御支持的方面，处于最前沿。”](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
+当地时间2月28日中午，乌克兰总统弗拉基米尔·泽连斯基，正式签署了加入欧盟的申请书。他希望欧盟启动特别程序允许乌克兰加入欧盟；并指出，乌克兰希望和欧洲人平等地站在一起，欧盟值得拥有乌克兰。
 
-秘翻新闻 冰糖葫芦喵编译报道
+发稿：林礼
 
-发布 : 恩典
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
