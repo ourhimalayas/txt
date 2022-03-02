@@ -2,40 +2,40 @@
 ---
 
 
-## 疫苗让台湾付出比共产党更大的代价给香港带来巨大灾难
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2093613/)
+## 陕西惊现“铁笼女”悲惨遭遇堪比“铁链女”
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2093706/)
 
-G-TV视频链接：[https://gtv.org/video/id=62164ada1408ee3a03a3c892](https://gtv.org/video/id=62164ada1408ee3a03a3c892)
+**撰稿：日本东京方舟农场  子辰**
 
-**郭文贵先生：**香港的菜价，超市价现在几倍的涨，香港人现在这被隔离那被隔离。香港人就活在一个豪华的监狱里，进大陆整死你，查你再查，怎么去威胁你。出香港是大海，到了国外去怎么那么容易生存呢？这个豪华的监狱和所谓的冰冷的监狱它都叫监狱。
+据大纪元3月2日报道，在徐州丰县“铁链女”事件尚未结束，正遭到中共全网封杀之际，陕西又惊现一名“铁笼女”，其悲惨遭遇堪比八孩母亲。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-27.jpg)（图片来自大纪元）
+据悉，陕西惊现的“铁笼女”事件最初是由维权人士解文武3月1日在微信公众号发的一篇文章爆出的，这篇文章以《陕西佳县铁笼女疑似失踪13年的青海大学生，何时才能获救？》为题目爆出。文章中写道，一名叫王国红的青海大学生2009年失踪，2020年在陕西榆林被发现，但至今都没有被解救。
 
-现在是台湾和香港和大陆之间，大家想到了疫苗的问题，台湾为打的疫苗，一定会付出比共产党还要大的代价。香港的疫苗你会看到，香港的灾难一定因为疫苗巨大灾难，因为香港的供应链不产什么，更加脆弱。它不用大卡车罢工，没人开船没人运输了，香港一个月就惨了，就臭港了，台湾一样的。
+解文武在文章中提到，时间追溯到2009年9月27日，青海省民族大学一名叫王国红的在校学生，莫名其妙地失联。王国红失踪后，其父母王志英和乔凤翠一直苦命寻找，可是始终渺无音讯。其母亲由于思女心切，最终得了重病，于2019年5月带着终生遗憾离开了人世。
 
-编辑整理：Jacques；
+2020年初，网上传来消息称，一位疑似王国红的姑娘在陕西榆林市佳县金明寺镇元团卯沟村李利民的家里被发现，但这位可能是王国红、网名叫“小雨”的女子，早已被虐待得精神失常。
 
-字幕文件制作：兵嫂；
+随后被网友根据信息扒出，陕西省一名播主的内容，这位播主帐号为“我是李奇峰”一直在短视频平台直播陕西榆林市佳县居民李某个人的家庭生活。在直播中，李某透露，他的妻子“小雨”是他捡来的一个来路不明的女子，两人2009年开始同居。期间小雨曾多次试图逃跑，李某采用特殊手段将其阻止。直播中还透露出，这位被捡来的妻子被他囚禁已有十余年，期间为他生有一子一女，女儿生下后即被他以3万元的价格卖给了邻村。
 
-视频制作及上传：Cindy；
+李某还在直播中展示了他托人给小雨上的户口，户口本上记载的出生日期是1975年5月5日，上户口的时间在2019年5月。李某声称他已获得政府救助并炫耀他的家属是佳县的领导。
 
-G-News发布：小满；
+维权人士谢文武还在文章中说，那个比她大了二十多岁，涉嫌售卖、强奸、绑架、虐待的老男人李利民，同样像徐州董某民一样，成为了在快手平台里拥有近十万粉丝的网红主播。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+为了吸引眼球，李利民在直播时爆料称，2009年与之同居且来路不明的女子小雨，曾多次试图逃跑，而他则用各种手段对付小雨，他说，小雨刚捡回来的时候，他把小雨绑在凳子上三天三夜。还说他把神经错乱的小雨关在家后山的一个山洞。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+李利民甚至还在直播中展示了小雨身上的伤痕，可以看到被打红肿的脸部，还有小雨双脚底板被大面积烫伤的画面。李利民为了防止小雨逃跑，就在他的三轮车上焊了一个大铁笼，出门时就将小雨锁在铁笼里。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+该文章最后表示，丰县的“铁链女”事件引发半个世界关注后，本以为天快亮了，真相即将到来，可是现在才发现，原来我们一直生活在黑暗当中。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+所有清醒的有良知的人都知道，这一切的本质原因就是中共这个残害老百姓的邪恶政权造成的，它不但蚕食了墙内百姓的良知，更带领了这些失去良知的人去作恶。只有消灭这个犯罪组织，我们所有人才能真正得到解救。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+参考链接：
+1.[https://www.epochtimes.com/b5/22/3/1/n13614462.htm](https://www.epochtimes.com/b5/22/3/1/n13614462.htm)
+2.[https://www.zaobao.com.sg/realtime/china/story20220302-1247986](https://www.zaobao.com.sg/realtime/china/story20220302-1247986)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+素材采编：子辰
+编辑：青城道姑
+发布：爱放飞
 
  
 

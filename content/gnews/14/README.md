@@ -2,32 +2,23 @@
 ---
 
 
-## 美国务事务助卿呼吁国际社会支持台湾参与联合国体系
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2093446/)
+## 拜登称司法部正调查俄罗斯寡头 将与联盟合作对其制裁
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2093533/)
 
-作者：**纽约磐石农场-在远方**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-1.png)
-台媒3月1日消息，美国国务院国务事务助卿，席森，28日公开晒出自己近期与美国驻台代表萧美琴的会晤合照，并呼吁国际社会支持台湾有意义参与联合国体系。 席森表示，台湾的贡献能让国际社会广泛受益，美方希望联合国各会员国支持台湾参与联合国。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-164.png)
-对此，萧美琴回应表示，她很感谢有机会与席森讨论美台合作，并拓展台湾能有意义参与到国际组织中去。
+作者：波士顿五月花背靠背（Frankie)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-02-at-6.18.00-PM.png)图片来源：互联网
+美国时间3月1日晚， 美国总统拜登在国会做国情咨文讲话中表示，美国司法部正组建专门工作组追查俄罗斯寡头和腐败领导人的罪行，美国将和联盟一起冻结他们的资产如游艇、豪华公寓和私人飞机。与美国的盟友一起关闭所有俄罗斯航班的美国领空，孤立俄罗斯。【1】
 
-早前，美国国务卿布林肯，在联合国2758号决议通过满50年的翌日，发声明表示支持台湾参与联合国体系。他指出，台湾参与联合国体系并非政治议题，而是务实议题。将台湾排除在外，会有损联合国及其相关机构的重要工作。
+郭先生2月25日大直播中爆料，一个俄罗斯拥有5000架超级私人飞机，仅南法俄罗斯游艇价值就是俄罗斯GDP（1万多亿美元）一倍达2万亿美元， 每年固定成本20%即2000亿。
 
-参考链接：[美國務助卿會蕭美琴 籲讓台灣有意義參與聯合國](https://cn.rti.org.tw/news/view/id/2125826)
+拜登总统还表示，美国军队没有参与，也不会与乌克兰的俄罗斯部队发生冲突。 但如果万一普京决定继续向西（北约盟国）移动，美国将动员地面部队、空军中队和舰艇部署来保护包括波兰、罗马尼亚、拉脱维亚、立陶宛和爱沙尼亚在内的北约国家。   【1】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+参考链接：【1】[**拜登总统国情咨文的讲话**](https://www.whitehouse.gov/state-of-the-union-2022/)
 
-总编/编辑：天滅中共
-校对/发稿：小野貓（文凱琳）
+* * *
 
-**更多资讯，更多关注**
+*编辑&发布：Vicky*
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

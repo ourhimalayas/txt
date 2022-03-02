@@ -2,29 +2,32 @@
 ---
 
 
-## 有声｜俄军疑用禁制武器 射杀平民涉战争罪
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2093116/)
+## 美国务事务助卿呼吁国际社会支持台湾参与联合国体系
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2093446/)
 
-By:**秘翻新闻**
+作者：**纽约磐石农场-在远方**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-1.png)
+台媒3月1日消息，美国国务院国务事务助卿，席森，28日公开晒出自己近期与美国驻台代表萧美琴的会晤合照，并呼吁国际社会支持台湾有意义参与联合国体系。 席森表示，台湾的贡献能让国际社会广泛受益，美方希望联合国各会员国支持台湾参与联合国。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-164.png)
+对此，萧美琴回应表示，她很感谢有机会与席森讨论美台合作，并拓展台湾能有意义参与到国际组织中去。
 
-**2022-03-02**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/14.png)图片来源 路透社
-[综合媒体消息。俄乌战事在周二进入第6天，联合国周一就乌克兰局势举行紧急特别会议;海牙国际刑事法院检察官办公室同日表示，将寻求法院批准，对乌克兰发生的疑似战争罪展开调查。](https://www.rfa.org/cantonese/news/ua-icc-03012022035643.html%20https://www.rfa.org/cantonese/news/ukr-raid-03012022060956.html)
+早前，美国国务卿布林肯，在联合国2758号决议通过满50年的翌日，发声明表示支持台湾参与联合国体系。他指出，台湾参与联合国体系并非政治议题，而是务实议题。将台湾排除在外，会有损联合国及其相关机构的重要工作。
 
-[维权团体指出，俄军违反国际战争罪法规，以平民为目标、攻击学校和医院等。](https://www.rfa.org/cantonese/news/ua-icc-03012022035643.html%20https://www.rfa.org/cantonese/news/ukr-raid-03012022060956.html)
+参考链接：[美國務助卿會蕭美琴 籲讓台灣有意義參與聯合國](https://cn.rti.org.tw/news/view/id/2125826)
 
-[乌克兰第二大城市哈尔科夫周一遭受猛烈炮火攻击，多枚火箭接连在该城东北部的沙尔提夫卡住宅区爆炸。哈尔科夫地方行政首长西涅古波夫28日表示，该市没有军事设施，俄军依然炮击平民区。](https://www.rfa.org/cantonese/news/ua-icc-03012022035643.html%20https://www.rfa.org/cantonese/news/ukr-raid-03012022060956.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-[周二，俄军再次向哈尔科夫的自由广场发射了一枚巡航导弹，在哈尔科夫州政府总部前引爆。目前该袭击造成6人受伤，其中包括一名儿童。](https://www.rfa.org/cantonese/news/ua-icc-03012022035643.html%20https://www.rfa.org/cantonese/news/ukr-raid-03012022060956.html)
+总编/编辑：天滅中共
+校对/发稿：小野貓（文凱琳）
 
-[国际特赦组织及「人权观察」组织均表示，俄军有使用被禁制的集束弹。乌克兰驻美国大使马尔卡洛娃周一指出，俄军在攻击行动中出动能穿透墙壁的杀伤性武器——真空弹。军事专家形容其杀伤力「仅次于核弹」。](https://www.rfa.org/cantonese/news/ua-icc-03012022035643.html%20https://www.rfa.org/cantonese/news/ukr-raid-03012022060956.html)
+**更多资讯，更多关注**
 
-秘翻新闻 Julia 编辑报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,25 @@
 ---
 
 
-## 美财政部禁止与俄中央银行交易并对其主要财富来源制裁
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2093513/)
+## 视频｜俄SWIFT将被切断 加息难阻民众挤兑
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2093607/)
 
-作者: 银河系农场—骄子
+制作：香草山视频部
 
+2月28号，在美欧周六发表联合声明，同意将俄罗斯指定银行踢出SWIFT国际结算系统之后，俄罗斯央行立即将关键利率从9.5%提高到20% 。尽管采取了紧急措施，在俄各地仍然迅速出现银行挤兑的状况。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-9.png)
-2月28日，美国财政部宣布禁止任何美国人与俄中央银行、俄主权基金和俄财政部进行交易。跟进这一制裁的还有欧盟和其他国家，该制裁可以防止俄绕过美国制裁继续部署其国际储备，对乌克兰造成更大灾难。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/071c53f32bf74db2ac85426607babd99.jpeg)图片来源: 网络
-据悉，俄主权基金和美国金融体系存在交集，且普京和其亲信圈长期依赖此基金在国外筹措资金，该基金在保险和金融方面均有涉及，外界普遍认为该基金是普金的私人基金，通过封锁涉及该基金的三个重要实体，禁止俄从美国金融体系受益。禁止与俄有关的主权交易可以限制卢布的全球供应和其试图通过兑换外币稳定卢布价格的企图。另外美国的外国资产管制正处在严格管控与俄中央银行的某些能源交易。
+据俄罗斯央行称，大幅提高利率，是为了 “支持金融和价格稳定，并保护公民的储蓄不受贬值影响”。同时，将释放7330亿卢布的本地银行储备，以提高货币流动性。另外，俄罗斯央行和财政部表示，将命令俄罗斯出口公司在市场上出售其80%的外汇收入。
 
-参考链接: [https://home.treasury.gov/news/press-releases/jy0612](https://home.treasury.gov/news/press-releases/jy0612)
+这一系列举措显示出俄央行对银行挤兑的担忧。事实上，在各大城市的自动取款机上，已经出现了排长队提取现金的情况。某购物中心一台ATM机前大约排了70人，目击者说，取款机的钱在40分钟内就被取完了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
+据悉，俄罗斯现有约6300亿美元的外汇储备，为有史以来的最高水平。分析人士认为，这有助于抵御制裁和出口创汇的损失。但如果海外资产被冻结，俄罗斯的货币金融系统将出现灾难性的后果。截至目前，卢布兑美元持续跌至1美元兑119.50卢布，较上周五收市时贬值45%
 
-编辑/校对/发稿: 卡夫卡的甲壳虫
+发稿：小野貓（文凱琳）
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
