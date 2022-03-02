@@ -15,68 +15,68 @@
 
 ---
 
-### [墙头草又顺风倒，中共变脸如儿戏](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [拜登宣布对俄罗斯飞机关闭美国领空](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [文•贵天成——文贵先生谈“普京”（十）](/content/gnews/3/README.md)
+### [普京处境尴尬，催问习近平攻台计划](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中日财经爆┃俄乌战争瓦解港股信心 张宏伟联合能源日亏76亿](/content/gnews/4/README.md)
+### [拜登政府延长川普时代的太阳能关税](/content/gnews/2/README.md)
+ ` 纽约香草山MOS02`
+
+### [美国石油巨头退出俄罗斯](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Omicron再感染率探讨及紧急救援药物和设备的使用](/content/gnews/5/README.md)
- ` 香草山醫療部`
-
-### [封城在即，香港出现抢购潮和离港潮](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [欧盟国家考虑禁止俄罗斯船只入港](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [【转】截至3.2 俄乌战事汇总（2）](/content/gnews/8/README.md)
+### [俄军士兵请放下屠刀 为普京送命只值105美金](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中日财经爆|七国集团将冻结俄罗斯权贵资产](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [中国证监机构会见外资银行](/content/gnews/5/README.md)
+ ` 纽约香草山MOS02`
 
-### [拜登称泽伦斯基在俄罗斯对乌克兰的残酷战争中 &#8220;鼓舞了世界&#8221;](/content/gnews/10/README.md)
- ` 波士顿五月花农场金融部`
-
-### [美国跨党派参访团，支持捍卫43年台湾关系法](/content/gnews/11/README.md)
- ` G-NEWS TAIWAN`
-
-### [关闭SWIFT对中国影响](/content/gnews/12/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [救赎](/content/gnews/13/README.md)
- ` 纽约香草山MOS03`
-
-### [也许是时候世界支持台湾合法政府的独立了](/content/gnews/14/README.md)
- ` 美国政要直译推`
-
-### [聚焦：普京下一步还会做什么？](/content/gnews/15/README.md)
- ` 蓝莲花农场`
-
-### [影响世界格局关键之战—台海战争](/content/gnews/16/README.md)
- ` 纽约香草山MOS03`
-
-### [新中国联邦新闻、GTV新闻访谈简报|2022年3月1日晚](/content/gnews/17/README.md)
- ` 纽约香草山MOS01`
-
-### [有声|致乌克兰人民](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [有声|郭先生怒责中国共产党在乌俄战争中把同胞无情的抛弃](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [新西兰高院裁定总理的强制疫苗政策严重侵犯人权](/content/gnews/20/README.md)
+### [G7财长就加强对俄施压达成一致](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文·贵天成——文贵先生谈“正道主义”（六）](/content/gnews/21/README.md)
+### [中共自知命不久矣 两会在即立下遗言](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文•贵天成——文贵先生谈“普京”（十）](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
+
+### [封城在即，香港出现抢购潮和离港潮](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [欧盟国家考虑禁止俄罗斯船只入港](/content/gnews/10/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【转】截至3.2 俄乌战事汇总（2）](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中日财经爆|七国集团将冻结俄罗斯权贵资产](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [拜登称泽伦斯基在俄罗斯对乌克兰的残酷战争中 &#8220;鼓舞了世界&#8221;](/content/gnews/13/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [美国跨党派参访团，支持捍卫43年台湾关系法](/content/gnews/14/README.md)
+ ` G-NEWS TAIWAN`
+
+### [关闭SWIFT对中国影响](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [也许是时候世界支持台湾合法政府的独立了](/content/gnews/16/README.md)
+ ` 美国政要直译推`
+
+### [聚焦：普京下一步还会做什么？](/content/gnews/17/README.md)
+ ` 蓝莲花农场`
+
+### [新中国联邦新闻、GTV新闻访谈简报|2022年3月1日晚](/content/gnews/18/README.md)
+ ` 纽约香草山MOS01`
+
+### [有声|致乌克兰人民](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [有声|郭先生怒责中国共产党在乌俄战争中把同胞无情的抛弃](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [新西兰高院裁定总理的强制疫苗政策严重侵犯人权](/content/gnews/21/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [克劳斯-施瓦布的大重置注定要失败](/content/gnews/22/README.md)
  ` 温哥华扬帆农场`
@@ -132,29 +132,29 @@
 ### [美国疫苗接种率暴跌](/content/gnews/39/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [新西兰财经G乐部2022年2月29日:财经新闻整理](/content/gnews/40/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [3/1/2022国际财经快讯：美国在最新制裁行动中瞄准俄罗斯中央银行；俄罗斯最大银行欧洲分支因被制裁面临关闭](/content/gnews/41/README.md)
+### [3/1/2022国际财经快讯：美国在最新制裁行动中瞄准俄罗斯中央银行；俄罗斯最大银行欧洲分支因被制裁面临关闭](/content/gnews/40/README.md)
  ` 秘密翻译组金融团队`
 
-### [美国情智部门促使中共国和俄罗斯连手](/content/gnews/42/README.md)
+### [美国情智部门促使中共国和俄罗斯连手](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【转】截至3.1 俄乌战事汇总（9）](/content/gnews/43/README.md)
+### [【转】截至3.1 俄乌战事汇总（9）](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大萨省宣布结束所有防疫措施](/content/gnews/44/README.md)
+### [加拿大萨省宣布结束所有防疫措施](/content/gnews/43/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [秘翻在线：卫星影像曝俄军车绵延64公里袭基輔 乌东亲俄叛军领袖：今日包围马里乌波尔](/content/gnews/45/README.md)
+### [秘翻在线：卫星影像曝俄军车绵延64公里袭基輔 乌东亲俄叛军领袖：今日包围马里乌波尔](/content/gnews/44/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [3/1/2022国际财经快讯：银行业游说团体认为战争持续俄主权债违约可能性大；乌克兰被入侵后的空域关闭使全球供应链陷入困境](/content/gnews/46/README.md)
+### [3/1/2022国际财经快讯：银行业游说团体认为战争持续俄主权债违约可能性大；乌克兰被入侵后的空域关闭使全球供应链陷入困境](/content/gnews/45/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共国驻乌克兰大使的无耻谎言](/content/gnews/47/README.md)
+### [中共国驻乌克兰大使的无耻谎言](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中日财经爆|丰田因供应商遭网络攻击全国停产 或与制裁俄罗斯有关](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [参议员马可·卢比奥：长期来看,中共国的危险性要高出普京50倍](/content/gnews/48/README.md)
  ` 美国政要直译推`

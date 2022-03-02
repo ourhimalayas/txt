@@ -2,70 +2,81 @@
 ---
 
 
-## 影响世界格局关键之战—台海战争
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2091807/)
+## 也许是时候世界支持台湾合法政府的独立了
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2091836/)
 
-作者：纽约香草山农场教育部—马克文、朱丽叶
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-10.png)
+参议员马可.卢比奥： 由于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click) 支持承认俄罗斯在 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 的傀儡的独立，也许是时候世界支持 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) 合法政府的独立了
 
 
-1945年第二次世界大战结束，日本战败，中华民国接管台湾。1949年10月，中共建国，两岸分治，民国政府此后持续以中国唯一代表自居，而中共政府同样自认为是中国唯一代表。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/中國二砲部隊對台部署導彈示意圖.jpg)图源网络
-1949年3月15日，中共新华社发表题为《中国人民一定要解放台湾》的社论，第一次提出“解放台湾”的口号。台湾的民国政府则称要“反攻大陆”，由此形成了长期“台海战争”状态。台湾战略地理位置特殊，是第一岛链的重要组成部分；加上近年，台湾是世界芯片主要生产地，所以，台湾也是美国、日本等国必争之地。
 
-台湾海峡危机曾发生过三次：
-
-第一次危机：1954年9月3日发生九三炮战；1955年1月18日发生一江山岛战役；1955年2月8日—11日大陈岛撤退。
-
-具体细节：1954年9月3日，共军对驻守金门的中华民国国军发动了榴弹炮突击。1955年1月18日，共军首次陆、海、空三军的协同作战。至当日下午5时30分， 经过一天战斗，共军占领该岛，中华民国军一江山指挥官王生明将军引爆手榴弹自杀。2月8日至2月11日，美国海军与中华民国海军将大陈岛军民船运撤退至台湾。
-
-第二次危机：1958年8月23日发生了八二三炮战；1958年9月2日发生了九二海战；1958年发生台海空战。
-
-具体细节：1958年8月23日，共军对驻守金门的国军部队发动了榴弹炮突击，在四十四天内向金门射击炮弹几近五十万发。金门防卫司令部副司令官吉星文、 赵家骧、章杰等战死。1958年9月2日，中华民国海军沱江号完成运补作业后，后于金门料罗湾附近外海遭共军鱼雷艇包围与猛烈攻击，几乎沉没。9月11日， 驻守金门的国军开炮击毁厦门站。9月22日，美国所支援的八吋大口径巨炮由中华民国海军运抵金门。美国紧急运送AIM-9响尾蛇导弹给台湾部队，造成共军空军的损失。结果共军封锁金门的尝试失败。10月10日，发生双十马祖空战。这是1958年台海空战中，双方最后一次大规模战斗。
-
-第三次危机：台湾海峡导弹危机。
-
-具体细节: 中共于1995年7月和1996年3月间，进行了两次大规模导弹实弹发射演习，并进行了模拟登陆演习。为此美国派遣第七舰队航空母舰战斗群协防台湾海峡，顺利让民选总统李登辉连任。
-
-2005年中共国人代会颁布《反分裂国家法》为武力统一台湾提供依据，遭到台湾政府的谴责。
-
-2018年，中共修改宪法，取消国家主席的任期限制，为习近平终身独裁铺平道路，中共武统台湾论调再度高涨。中共的飞机、军舰、伪装的渔船频频越过台湾划定 的红线。
-
-新中国联邦创建人郭文贵爆料：习近平与普京早已谋划一个”武统台湾”,一个占领“乌克兰”计划。2022年冬奥会期间，普京与习近平密谋决定，由中共出钱支持普京发动入侵乌克兰的战争，同时中共发动台海战争，占领台湾。
-
-2022年2月24日，俄罗斯开始入侵乌克兰，但是遇到乌克兰总统泽连斯基率领人民拼死抵抗，随后美国、欧盟等国都支持乌克兰捍卫领土尊严，俄罗斯侵略者已经陷入沼泽，快速占领乌克兰计划失败。
-
-台海战争是影响世界格局的关键，乌克兰之战已启动，美国及其盟国紧盯习近平的行动，无论中共如何选择，都将面临毁灭性打击，如今的中共已经走进了死胡同。
-
-参考来源：
-
-1.[解放台湾](https://zh.wikipedia.org/zh-cn/解放台湾)
-
-2.[台湾海峡危机](https://zh.wikipedia.org/wiki/臺灣海峽危機)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-5.jpg)
-
-审稿：Jack Li文阳
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+> Since [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) supports recognizing the independence of Russian puppets in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) maybe its time the world supports the independence of the legitimate government of [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Marco Rubio (@marcorubio) [March 2, 2022](https://twitter.com/marcorubio/status/1498825760924176391?ref_src=twsrc%5Etfw)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-11.png)
 
+参议员玛莎·布莱克本： 在对乌克兰采取了令人发指的行动后，俄罗斯不配获得联合国安理会的席位。
+
+
+
+> Russia does not deserve a seat on the UN Security Council after its egregious actions toward Ukraine. [pic.twitter.com/qz24oQcHMK](https://t.co/qz24oQcHMK)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 2, 2022](https://twitter.com/MarshaBlackburn/status/1498829680509693954?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎.布莱克本： 联合国必须剥夺俄罗斯在安理会的否决权。
+
+
+
+> The UN must strip Russia of its ability to veto in the security council.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 1, 2022](https://twitter.com/MarshaBlackburn/status/1498787977719431172?ref_src=twsrc%5Etfw)
+
+
+
+拜登总统： 普京总统认为他可以顺利挺进乌克兰——世界将会接受。 相反，他遇到了他从未想到过的强力阻击。 他遇到了(强大的)乌克兰人民。
+
+
+
+> President Putin thought he could roll into Ukraine — and the world would roll over.
+>  
+> Instead, he met a wall of strength he never imagined.
+>  
+> He met the Ukrainian people.
+> — President Biden (@POTUS) [March 2, 2022](https://twitter.com/POTUS/status/1498843134721150979?ref_src=twsrc%5Etfw)
+
+
+
+拜登总统： 美国司法部正在组建一个专门的工作组来追查俄罗斯寡头的罪行。 我们正与我们的欧洲盟友一起寻找并没收他们的游艇、豪华公寓和私人飞机。 我们不会放过他们的不义之财。
+
+
+
+> The U.S. Department of Justice is assembling a dedicated task force to go after the crimes of Russian oligarchs.
+>  
+> We are joining with our European allies to find and seize their yachts, their luxury apartments, their private jets. 
+>  
+> We are coming for their ill-begotten gains.
+> — President Biden (@POTUS) [March 2, 2022](https://twitter.com/POTUS/status/1498844556300886022?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨: 拜登今晚没有提到要让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对传播导致大流行的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 负责。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 放出致命病毒，是邪恶的，必须承担责任，否则北京将制造更多致命的瘟疫。
+
+
+
+> Biden tonight made no mention of holding Communst China accountable for spreading the virus that caused the pandemic. The CCP unleashed the deadly virus, is evil, and must be held responsible or Beijing will create even more deadly plagues
+> — Bill Gertz (@BillGertz) [March 2, 2022](https://twitter.com/BillGertz/status/1498854110472278016?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 同意劳拉·英格拉汉姆[@IngrahamAngle](https://twitter.com/IngrahamAngle) – 拜登必须制裁 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 支持俄罗斯入侵乌克兰的行径。 俄罗斯、[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)、伊朗和北朝鲜是新的邪恶轴心国。 必须阻止他们。
+
+
+
+> Agree with [@IngrahamAngle](https://twitter.com/IngrahamAngle?ref_src=twsrc%5Etfw) – Biden must sanction Communist China for bolstering Russia’s invasion of Ukraine.
+>  
+> Russia, China, Iran and North Korea are the new axis of evil.
+>  
+> They must be stopped. [https://t.co/dmx0r74mcE](https://t.co/dmx0r74mcE)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 2, 2022](https://twitter.com/MarshaBlackburn/status/1498835382389125120?ref_src=twsrc%5Etfw)
 
 
 
