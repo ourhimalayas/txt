@@ -2,20 +2,28 @@
 ---
 
 
-## 有声｜国内部分航线燃油附加费3月5日起翻倍
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092439/)
+## 有声｜俄罗斯军队升级对乌克兰平民区的袭击
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092475/)
 
-**By:秘翻新闻**
+By:**秘翻新闻**
 
 **2022-03-02**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4A9B916C-0961-439D-BCC5-52E0F7D8074E-scaled.jpeg)图片:源自网络
-**[据陆媒第一财经3月1日报道，“去哪儿”网等部分机票代理已收到北部湾航空等国内航司的邮件，将于3月5日开始提高国内航线的燃油附加费征收标准。根据通知，自2022年3月5日出票日起，国内所有航线燃油附加费收取标准为：800公里（含）以下航线每位旅客收取20元燃油附加费，800公里以上航线每位旅客收取40元燃油附加费。](https://www.sogou.com/link?url=hedJjaC291MsSMYcMkrZn3JYM_Rmx0C5rnilvTOuwml_uHtFzeveW9M7Xe6uZ5eq)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-2.png)图片来源 美联社
+[据美联社3月2日报道，俄罗斯军队周二升级了对乌克兰基辅地区的袭击，轰炸了乌克兰第二大城市的中央广场和基辅的主要电视塔，乌克兰总统泽连斯基称这是一场公然的恐怖活动。](https://apnews.com/article/russia-ukraine-war-abc3e297725e57e6052529d844b5ee2f)
 
-**[评论认为：目前，因国际局势动荡，油价3月1日晚已突破100美元大关。中共借机翻倍收取燃油附加费，可见其对待墙内草民从来都不会手软。](https://www.sogou.com/link?url=hedJjaC291MsSMYcMkrZn3JYM_Rmx0C5rnilvTOuwml_uHtFzeveW9M7Xe6uZ5eq)**
+[乌克兰当局表示，有 5 人在电视塔袭击中丧生，该塔距离基辅市中心几英里，距离居民区仅几步之遥。此前俄罗斯宣布将袭击乌克兰情报机构使用的传输设施。](https://apnews.com/article/russia-ukraine-war-abc3e297725e57e6052529d844b5ee2f)
 
-（ 秘翻新闻 菜园子112 编辑报道 ）
+[英国国防部表示，过去两天，俄罗斯对人口稠密的城市地区的空袭和炮击有所增加。](https://apnews.com/article/russia-ukraine-war-abc3e297725e57e6052529d844b5ee2f)
 
-发布:星星
+[目前，大约有66万人逃离了乌克兰，还有无数平民在地下避难。联合国人道主义协调员马丁格里菲斯称，由于炸弹的破坏，已导致数十万家庭没有饮用水。](https://apnews.com/article/russia-ukraine-war-abc3e297725e57e6052529d844b5ee2f)
+
+[哈尔科夫居民叶卡捷琳娜·巴本科已连续第五天与邻居在地下室避难。她将此遭遇形容为一场噩梦，避难所里有小孩，老人，情景非常可怕。](https://apnews.com/article/russia-ukraine-war-abc3e297725e57e6052529d844b5ee2f)
+
+[联合国人权办公室表示，已记录到 136 名平民死亡。据信，真正的死亡人数还要高得多](https://apnews.com/article/russia-ukraine-war-abc3e297725e57e6052529d844b5ee2f)
+
+秘翻新闻 文洋 编译报道
+
+发布 : 恩典
 
 * * *
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)

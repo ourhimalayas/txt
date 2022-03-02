@@ -2,16 +2,24 @@
 ---
 
 
-## 有声｜俄罗斯禁止超过价值1万美元的外汇出境
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092456/)
+## 有声｜两家俄罗斯国家媒体将被欧盟被禁播
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092494/)
 
 By:**秘翻新闻**
 
 **2022-03-02**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-4.png)图片来源 REUTERS/Anton Vaganov
-[《路透社》莫斯科3月1日报道，克里姆林宫在一份声明中称，俄罗斯总统普京已经颁布法令，从3月2日起，禁止从俄罗斯汇出价值超过1万美元的外汇，这其中包括现金。](https://www.reuters.com/world/europe/putin-bans-cash-exports-russia-exceeding-10000-value-kremlin-2022-03-01/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-1.png)图片来源 网络
+[据《内幕消息报》3月1日报道，欧盟周二表示，欧盟禁止俄罗斯国家媒体今日俄罗斯和俄罗斯卫星通讯社与广播电台在欧盟内进行广播。](https://insiderpaper.com/eu-agrees-to-exclude-certain-russian-banks-from-swift-system-eu-presidency/)
 
-秘翻新闻 冰糖葫芦喵 编译报道
+[据报道，此前YouTube已采取行动，在欧盟内屏蔽了这些媒体的内容。](https://insiderpaper.com/eu-agrees-to-exclude-certain-russian-banks-from-swift-system-eu-presidency/)
+
+[YouTube的同业网络巨头Facebook周一也做出了类似的决定，在欧盟地区屏蔽了今日俄罗斯和俄罗斯卫星通讯社与广播电台发布的内容。](https://insiderpaper.com/eu-agrees-to-exclude-certain-russian-banks-from-swift-system-eu-presidency/)
+
+[而英国的广播监管机构Ofcom周一宣布，将对今日俄罗斯的 “公正性 “进行15项调查。](https://insiderpaper.com/eu-agrees-to-exclude-certain-russian-banks-from-swift-system-eu-presidency/)
+
+[报道称，欧盟此举将于周三在欧盟官方杂志上公布后生效。](https://insiderpaper.com/eu-agrees-to-exclude-certain-russian-banks-from-swift-system-eu-presidency/)
+
+秘翻新闻 Grace 编译报道
 
 发布 : 恩典
 

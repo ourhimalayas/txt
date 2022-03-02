@@ -2,26 +2,22 @@
 ---
 
 
-## 有声｜支持乌克兰 加拿大驻华使馆挂标语 政府供武器
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092558/)
+## 有声｜英国将向乌克兰提供额外的8000万英镑援助
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092636/)
 
 By:**秘翻新闻**
 
 **2022-03-02**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-3.png)图片来源 新唐人
-[新唐人北京时间3月02日消息，在俄罗斯入侵乌克兰并以动用核武相威胁后，欧美进一步加大了制裁俄国和支持乌克兰的力度。加拿大也不甘落后，紧随其后。](https://m.ntdtv.com/b5/2022/03/01/a103361553.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-2.png)图片来源 Reuters/Efrem Lukatsky
+[《路透社》伦敦3月1日报道，英国周二表示，承诺将再向乌克兰提供额外的8,000万英镑的援助，以帮助该国应对日益严重的人道主义危机。](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
 
-[3月1日，加拿大驻北京大使馆官方推特账号连续贴文显示，加使馆外墙上挂出两幅标语牌，上面写着“我们支持乌克兰”、“我们和乌克兰在一起”。大使馆外还升起了一面乌克兰旗帜，以示对乌克兰及对乌克兰人民的声援。](https://m.ntdtv.com/b5/2022/03/01/a103361553.html)
+[英国政府表示，这笔额外资金使英国对乌克兰的支持总计达到2.2亿英镑。](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
 
-[此前一天，加拿大总理特鲁多刚刚于2月28日宣布，加拿大将向乌克兰运送第三批致命武器，包括反坦克武器系统和升级的弹药。](https://m.ntdtv.com/b5/2022/03/01/a103361553.html)
+[据报道，其中的1.2亿英镑用于援助，上月宣布的另外1亿英镑用于提振经济，减少乌克兰对俄罗斯天然气进口的依赖。](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
 
-[特鲁多表示，加拿大武装部队将提供空运支持，并将参与北约支持乌克兰的其他援助行动。](https://m.ntdtv.com/b5/2022/03/01/a103361553.html)
+[英国外交部长利兹·特拉斯在一份声明中说:“英国在努力提供拯救生命的人道主义援助以及政治、经济和防御支持的方面，处于最前沿。”](https://www.reuters.com/world/uk/uk-pledges-extra-80-million-pounds-aid-ukraine-2022-03-01/)
 
-[特鲁多周一还在渥太华宣布，加国将禁止进口俄罗斯原油。](https://m.ntdtv.com/b5/2022/03/01/a103361553.html)
-
-[加拿大统计局发布的数据显示，加拿大在2021年进口了价值2.89亿加元，折合2.2804亿美元的俄罗斯能源产品。](https://m.ntdtv.com/b5/2022/03/01/a103361553.html)
-
-秘翻新闻 Julia 编辑报道
+秘翻新闻 冰糖葫芦喵编译报道
 
 发布 : 恩典
 

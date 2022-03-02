@@ -2,25 +2,24 @@
 ---
 
 
-## 有声｜因中共亲俄立场 法国暂停在中国举办马蒂斯画展
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2092425/)
+## 美国宣布禁止俄罗斯航班进入领空
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2092441/)
 
-By:**秘翻新闻**
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-12.png)[图片来源](https://www.google.com/search?q=Aeroflot+plane&amp;sxsrf=APq-WBsdOT_UL9RYb9k3MVnbwUhKjJEZ6g:1646197633228&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=Ut4C87rOPUjWqM%252CKngw46bkVjnrRM%252C_%253BDbhB3tkWzO9YnM%252CDFVn08umodkA-)
+美国交通部和联邦航空管理局宣布，禁止俄罗斯飞机飞越美国领空的禁令将在3月2日深夜前全面实施。这一禁令将适用于所有客运和货运航班，包括定期航班和包机。
 
-**2022-03-02**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-3.png)图片来源 自由亚洲电台
-[据自由亚洲电台3月1日报道，俄罗斯向乌克兰宣战，中共国的立场不仅影响到国际政治，连文化合作也都受到牵连。](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl2-03012022111253.html)
+拜登总统在国情演讲中宣布，将“跟随我们的盟友禁止所有俄罗斯飞机进入美国领空，进一步孤立俄罗斯并对其经济施加额外压力。”
 
-[法国北方省政府2月25日发布公报指出，取消原定的马蒂斯画作前往中国北京和上海展出的计划，主要是考虑俄罗斯向乌克兰宣战的“地缘政治危机”，以及“北京与莫斯科之间的政治关系”。](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl2-03012022111253.html)
+除美国外，加拿大和欧盟已经禁止了俄罗斯飞机进入其领空。
 
-[价值3亿欧元的280幅马蒂斯作品，原定于3月初启程前往中国，将于2022年3月26日至6月26日在北京展出，7月转往上海展出。这些作品都是马蒂斯的出生地——勒卡托-康布雷西的马蒂斯美术馆的藏品。这是马蒂斯画作首次在中国的展出计划。](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl2-03012022111253.html)
+信息源：
 
-秘翻新闻 二丫 编辑报道
+[ロシア航空機の米領空飛行禁止、2日深夜までに完全実施へ](https://news.yahoo.co.jp/articles/d80c7485ca4535e23cb2433be931beffeb444edb#:~:text=)
 
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
