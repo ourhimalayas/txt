@@ -15,29 +15,29 @@
 
 ---
 
-### [台湾打与不打结果都一样](/content/gnews/1/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年3月2日早](/content/gnews/1/README.md)
+ ` 纽约香草山MOS01`
+
+### [台湾打与不打结果都一样](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [文贵先生直播重点大纲](/content/gnews/2/README.md)
+### [文贵先生直播重点大纲](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [这就是新中国联邦的力量](/content/gnews/3/README.md)
+### [这就是新中国联邦的力量](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [展望制裁和战争对货币政策的影响](/content/gnews/4/README.md)
+### [展望制裁和战争对货币政策的影响](/content/gnews/5/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [冯德莱恩：欧盟禁俄媒体机构并阻银行进入SWIFT](/content/gnews/5/README.md)
+### [冯德莱恩：欧盟禁俄媒体机构并阻银行进入SWIFT](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [3月2号勿忘香港（图片1-9）](/content/gnews/6/README.md)
+### [3月2号勿忘香港（图片1-9）](/content/gnews/7/README.md)
  ` 波士顿五月花农场`
 
-### [对于小粉红伤害国内有志创业者行为的思考](/content/gnews/7/README.md)
+### [对于小粉红伤害国内有志创业者行为的思考](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [韩囯单日新增确诊病例突破21万例](/content/gnews/8/README.md)
- ` 纽约香草山MOS02`
 
 ### [3/2/2022 文贵直播：在乌克兰的华人无须提供任何个人信息即可享受新中国联邦安排的免费机票和30天食宿，需要多少飞机就安排多少](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
@@ -84,11 +84,11 @@
 ### [新数据显示COVID疫苗对年轻人只有风险没有好处（2/3）](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵爆料 3.2：俄乌战争——国际格局脱胎换骨的转折点](/content/gnews/24/README.md)
- ` 秘密翻译组-原创组`
-
-### [中共战狼拒绝躲在地下室里在乌克兰中国留学生的求救](/content/gnews/25/README.md)
+### [中共战狼拒绝躲在地下室里在乌克兰中国留学生的求救](/content/gnews/24/README.md)
  ` mayflowertranslate`
+
+### [新数据显示COVID疫苗对年轻人只有风险没有好处（1/3）](/content/gnews/25/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [基辅市长称城市被包围，后来又收回了这一说法](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`

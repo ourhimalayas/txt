@@ -2,31 +2,30 @@
 ---
 
 
-## 台湾打与不打结果都一样
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2096094/)
+## NFSC新闻、G|TV新闻访谈简报|2022年3月2日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2096095/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO.jpg)
 
-2022-02-27直播摘录
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-这回共产党在台湾这个问题上我今天告诉大家，打与不打，我今天最后回答你一个问题，结果都是一样的了。你不打，你内部死；你打了，全球把你直接快点死。还是你让内部人弄死你呢？还是让全球的人把你弄死呢？这两样都不死是吗？那“习太阳”真的是太阳了，不是龙之子了，不是盘古之子了，是吧？你就是神。他会郁闷死，这个人要是受这种羞辱的时候，他会郁闷死的。还好脸皮厚，咱不要脸不要腚了，屎喷我脸上都不在乎，郁闷死他，普京俄罗斯会把他弄死。还好，命大，真龙天子，盘龙的儿子，是吧？盘龙，现在盘古的“龙头”变成“龟头”了，他有超然的力量还活下来了，他有一件事他绝对活不了，老天不会让他活下去，他身体撑不住了，记住我今天的话，他身体绝对撑不住了。如果他能逃脱这五道“阎王关”，这些“老杂毛”们，七哥愿意隐居夜总会过上纸醉金迷的生活，就不灭共，行吗？
+视频参看：
+[2022.03.02早 《NFSC新闻》](https://gtv.org/video/id=621f715d019ef64da653c7f1)
+[2022.03.02早 G|TV《新闻访谈》](https://gtv.org/video/id=621f7944019ef64da653d746)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-**关注我们**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March.jpeg)
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
