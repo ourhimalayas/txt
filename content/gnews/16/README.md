@@ -2,28 +2,46 @@
 ---
 
 
-## 【图组】乌克兰国际救援行动！救人第一，请广传！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2091312/)
+## 美前国务卿蓬佩奥将于3月访台
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2091388/)
 
-乌克兰危机！新中国联邦发起乌克兰国际人道救援行动，无偿协助撤离到安全中转国，并提供30天以内的免费食宿。救人第一！不要一分钱，任何条件都没有，能多救一个是一个！
-
-救援对象：包括在乌克兰所有华人同胞，美国及各国友人！
-
-联系电话：+17206576776/+17192244232
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-9.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-7.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/wertyu.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/wertyui.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-5.jpg)
+作者：台湾宝岛农场—dobi
 
 
-撰稿/发布：一叶知秋
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-2.png)
+在乌克兰人民正奋力抵抗俄军炮火袭击的奋战时期，同时也被视为是中共可能趁机武力侵台的敏感时机，作为坚定支持台湾民主的前美国国务卿蓬佩奥将于3月2日至5日访问台湾。蓬佩奥访台不仅受到国际高度关注，同时也被视为面对中共正从军事、经济、外交等各方面对台湾高度施压，面临空前未有的巨大压力的台湾来说，意义实属重大。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/id13611569-GettyImages-1372801123-600x400-1.jpg)[图源网络](https://www.epochtimes.com/b5/22/2/27/n13609549.htm)
+
+去年10月蓬佩奥出席“香港自由灯塔”（HKFB）活动，由香港议题谈到台湾时他呼吁各国领袖：台湾是个拥有巨大经济创造力的民主国家，他祈祷各国领导人能够知道并支持台湾是一种道德义务的表现，千万不要让台湾步香港后尘。蓬佩奥支持台湾民主的立场坚定且明确，此次更以具体行动展示对台湾的支持，有人认为这为对台湾来说是雪中送炭。
+
+且因蓬佩奥被视为是最了解中共的美国国务卿之一，其担任国务卿期间，也是中共视为最强硬的对手之一，就如蓬佩奥主张和中共打交道的对策是，“不相信然后核实”（对中共说的话首先存疑，然后一定要去一一核实），显示其对中共政权的高度不信任和对中共道德素质的高度质疑。因此，蓬佩奥此次访台，有媒体认为这对中共来说，无疑是最头痛的事情之一，这也将对制约中共在台湾动武将会产生实质影响，意义非凡。
+
+参考来源：
+
+[王友群：蓬佩奧訪問台灣的四大意義](https://www.epochtimes.com/b5/22/2/27/n13609549.htm)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-3.png)
+
+
+
 
  
 

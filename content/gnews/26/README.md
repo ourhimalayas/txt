@@ -2,24 +2,158 @@
 ---
 
 
-## 美加两国自愿者踊跃报名参加乌克兰“国际军团”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2091114/)
+## 微信、抖音等中共软件是如何充当间谍软件的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2091118/)
 
-#### 翻译/撰稿：文旺|校对: 沙拉猫
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-01-181627.png)图片来自： euractiv.com
-俄国侵略者不断加剧的野蛮轰炸行径以及乌克兰军民表现出的顽强抵抗精神，不仅让最初犹豫不决的西方政客改变了态度，也逐渐获得了欧美国家普通大众的支持。当乌克兰总统泽连斯基（Volodymyr Zelenskyy）刚在星期日宣布组建“国际军团”（international legion）不久后，欧洲一些国家的自愿者就开始报名加入，随后美国和加拿大的许多退伍军人和普通公民也积极响应，前往乌克兰大使馆报名申请。
+[https://gtv.org/video/id=621df0fc4353d33974c44643](https://gtv.org/video/id=621df0fc4353d33974c44643)
 
-据路透社（Reuters）2月28日的报道，许多美加自愿者认为，如果他们不采取任何行动保卫欧洲，他们自己在本国的民主权利也可能受到威胁。报道指出，自愿者中不仅包括具有作战经验的退伍军人，也包括各行各业的其他人士，比如软件工程师和厨师，其中有的人甚至决定辞掉工作去加入乌克兰国际军团。有些年纪轻的人打算直接前往乌克兰，另一些则来到乌克兰驻美加大使馆提出申请。
+所以马化腾这个微信
+Por eso WeChat de Ma Huateng
 
-路透社记者采访了一些自愿者，来自美国阿拉巴马州26岁的达克斯（Dax）便是其中一位。他是美国精锐的步兵第 82 空降师的老兵，他计划与其他退伍美国军人一道前往乌克兰。他说，“如果我不去，我会感到内疚的。”在德克萨斯州奥斯汀，一位25岁并具有美国陆军学员经验的软件开发人员表示，他将利用自己的经验为乌克兰而战。“如果他们愿意捍卫民主，那么我认为那些从民主社会中受益的人有义务支持他们。”这位要求不要提他名字的年轻人说，“在我去机场之前，我不会告诉我的父母。”
+能在西方开通, 能在这流行
+Puede ser circulado y popularizado en el occidente
 
-尽管退伍军人在线上提醒那些没有接受过战斗训练的志愿者说，他们要面临的一场真正的战斗，缺乏经验可能对自己和他人造成不利影响，但这并没能阻止那些不具战斗经验的人踊跃参加。
+你真的觉得西方真是让人大跌眼镜的
+Realmente ¿crees que el occidente es alucinante?
 
-报道称，来自加拿大的布赖森·伍尔西（Bryson Woolsey）在看到泽连斯基的呼吁后，当天就辞去了厨师的工作。他没有接受过军事训练，但仍计划购买机票飞往波兰，然后从那儿穿越到乌克兰去自愿参加战斗。33 岁的伍尔西（Woolsey）是加拿大不列颠哥伦比亚省的人，他告诉记者说，当他看到乌克兰受伤的妇女和儿童的照片时，变得焦躁不安，“我觉得我必须做点什么。”23 岁的泰（Tai B.） 是一位在纽约学习新闻学的人，他告诉记者他会做饭，会一些基本的机械工作，也知道如何处理枪支。他已经联系了乌克兰的美国大使馆，要求加入泽连斯基的“国际军团”。他说，“我不想成为英雄或烈士，我只想最终做正确的事情。”而来自美国中西部的 28 岁海德说，他人已经到了基辅，预计将于周二开始军事训练。他说，“我无法想象并忍受欧洲再次陷入战争。”海德将自己描述为一个没有战斗经验的枪支爱好者和狂热的生存主义者。他希望得到头盔、防弹衣、护膝，最终得到一支步枪。
+真的是个人都知道它是共产党的情报软件
+Cualquiera que sea persona sabe que este es un software de inteligencia del Partido Comunista
 
-**评**：独裁者普京以为和黑帮组织中共勾结就可以向乌克兰开战，凭借中共国输血和西方抗衡，重塑世界秩序。但不义之战不得人心，貌似强大的俄军被乌克兰坚强的民意和誓死保家卫国的决心所震撼，几天的进攻无一达到目的，反而遭到世界各国的谴责和制裁，激励了全球无数的勇士参加保卫乌克兰的志愿军，又一次验证了得道多助，失道寡助这一名言。普金定会像郭文贵先生判定的那样，最终被中共玩死。可以肯定，如果习近平也冒然攻打民主的台湾，其下场也会和普金一样，被世界唾弃和制裁，中共国必定完结而由新中国联邦取代，成为一个真正民主法治、与世界千年和平友好的国度。
+你只要下载了微信
+Tan sólo descargas WeChat
 
-消息来源：[Americans, Canadians answer Ukraine call for foreign fighters](https://www.reuters.com/world/americans-canadians-answer-ukraine-call-foreign-fighters-2022-03-01/)
+你下载了什么知乎这种软件
+Si descargas la aplicación como Zhihu
+
+你只要上中国百度获着香港凤凰网
+Si accedes a Baidu de China para obtener la Red Phoenix de Hong Kong
+
+手机, 你手机就废了
+El celular, tú celular será muerto
+
+你走到天涯海角
+Así vayas al extremo de la tierra
+
+你开机关机它都知道你在哪
+Esa cosa lo sabrá, esté prendido o apagado el celular
+
+而且是自然报告
+Y le informa de manera natural
+
+在北京的西山, 西山的西部在凤凰岭
+En Xishan de Beijing, al oeste de Xishan en Fenghuangling
+
+那是几十万人就盯着美国的手机
+Son cientos de miles de personas mirando teléfonos celulares de Estados Unidos
+
+美国的所有手机他都能监听, 一点秘密都没有
+Pueden monitorear todos los celulares de EE. UU, no existen secretos
+
+所以说微信是一个技术的武器
+Por eso WeChat es un arma tecnológica
+
+叫技术网路核武器
+Se llama tecnología cibernética nuclear
+
+你谁沾就是自作死亡
+Quien la toca será un suicidio
+
+第二, 现在只要共产党的软件
+Segundo, ahora sólo el software del Partido Comunista
+
+美国, 印度各国已经公告过了
+EE. UU e India y otros países ya han anunciado
+
+所有中国软件都不安全
+Todos los softwares de China son inseguros
+
+但你要用, 你觉得他啥都知道了
+Si lo vas a usar, si crees que ya todo lo sabe
+
+你觉得你个人信息还重要吗
+¿Crees que seguirá siendo importante tus informaciones personales?
+
+因为微信在全世界打开你手机视频
+Porque WeChat abrirá el video de tu celular en todo el mundo
+
+就给你啪就是你的视频给你打开
+De una vez lo abre
+
+它可以缓打
+Puede ralentizar
+
+缓打啥意思你知道吗
+Qué significa ralentizar, ¿lo sabes?
+
+自动的它给你录下来
+Graba automáticamente
+
+而且定期的传到云数据
+Y sube regularmente los datos a la nube
+
+由于它一直录, 数据太大
+Como sigue grabando sin cesar, los datos son demasiado grandes
+
+它就把它想要的东西
+Entonces ésta toma lo que quiere
+
+涉及到, 比如说我说到微蓝
+Cualquier cosa que involucre, por ejemplo, cuando mencione a Weilan
+
+我说到神奇四侠, 它不录
+Si yo hablo de Los 4 Fantásticos entonces no lo graba
+
+我说神奇四侠脱光屁股, 它就录了
+De lo contrario, si digo “Los 4 Fantásticos se desnudaron”, ahí si grabará
+
+微蓝搞搞双修就录了
+Si “Weilan está teniendo relaciones sexuales”, grabará
+
+它自动就给你传到云数据去
+Este será automáticamente subido a los datos en la nube
+
+然后老马是坏蛋它就录了
+Luego “Laoma es un ser malo”, lo graba
+
+老马是好人不录
+Laoma es una buena persona, no lo graba
+
+就是敏感筛选是自动录上
+Es decir, la detección sensible se registra automáticamente
+
+你说这样得多恐怖
+Mira lo temeroso que es
+
+你手机你以为你关机了
+Crees que apagaste tu celular
+
+但它一直在一个敏感的数据状态下
+Pero siempre está bajo un estado de datos sensibles
+
+你还能安全吗
+¿Sigues siendo seguro?
+
+日期：02/25/2022
+原视频标题：微信、抖音等中共软件是如何充当间谍软件的
+Cómo WeChat, TikTok y otras aplicaciones del PCCh actúan como spyware
+
+**原视频网址：**[https://gettr.com/post/pvnb3j1760](https://gettr.com/post/pvnb3j1760)
+
+原视频日期：02/20/2022
+原视频网址：https://gettr.com/post/pvnb3j1760
+任务编号：KC471（3816）
+视频时间段：0:00-02:05
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

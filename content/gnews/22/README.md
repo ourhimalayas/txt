@@ -2,89 +2,44 @@
 ---
 
 
-## 前中央情报局官员：普京“大规模情报失败”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2091201/)
+## 郭文贵先生2022年3月1日盖特视频（9分30秒）全文字版
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2091267/)
 
-[https://gtv.org/video/id=621df21c4353d33974c44689](https://gtv.org/video/id=621df21c4353d33974c44689)
+听写整理编辑：东京樱花团/Peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-8.png)
+哎呀,我的乖乖嘞，尊敬的战友们好！3月1号了。哎呀，这都是战后的事了，可怕吧，兄弟姐妹们？
 
-Scott Uelingher (CIA Operations Officer)
-斯科特·乌林格（中央情报局行动官）
+据说啊，普京，给习打电话，第一句话问“还玩不玩啦？干不干呐？”这意思是吧？所以“台湾你还不动手？是吧给我牵住国际呀，国际上的各种这个批评啊。”哎，听说普京大怒，嗷嗷的喊，说：“你们记住，知道你们中国人啊，了解中国人，咱们，我们是讲信用的……”普京啊，普京啊，走着看吧。
 
-I think that right now, Putin is contemplating
-我认为现在，普京正在考虑
+还有共产党这些老杂毛，昨天在党内通知啊，紧急通知，“做好所有的，各大使馆的，海外的所有的海外学生，侨领的联络和宣传控制。”微信，又派进了新的关于俄乌战争的，所有的所谓的安全信息官员。
 
-what is a Russian massive intelligence failure
-这就是俄罗斯大规模情报失败的原因
+我告诉你，老杂毛，共产党你记住，我会让你看到在俄乌战争当中，你以为在我们爆料革命中你渗透的人，你掌握情况是么？我会让你看到，有多少你们的所谓大使馆人员，是卷款卷钱使用特殊权利，跑出去了。又有多少你大使馆的人，是我们给救出来的，他不会再回国了，你们懂的。第三个，你会看到我们新中国联邦能救多少中国人，以结果说了算。
 
-when it comes to the attack on Ukraine
-当谈到对乌克兰的袭击时
+还有现在党内，这是我最喜欢的结果，是吧？让中国人看一看，你们拥有一个十四亿奴隶的中国共产党，这种流氓政权，我们啥也没有，是吧？我们就啥也没有。我们是被你们定为郭骗子、郭强奸、郭三秒的一帮疯子，是吧？我们救多少人，我们是疯子，是骗子，是三秒，我们要救人，你说跟这有啥球关系呢？
 
-Now, that’s not to say that this war
-现在，这并不是说这场战争
+我会让中国人看到，到底是谁在心疼中国人，谁在爱中国人。你觉得在这个时候说“个人信息重要，不要被我们骗”。我们要你任何人信息吗？要信息，我们当饭吃？你见过一个人拿着几百万，几千万美元，冒着生命危险到战场上要你的个人信息，那不是疯了吗？那好啊，在乌克兰战场的人，你把你的信息给共产党看看能不能救你出去，你把你的信息给俄罗斯，看看能不能救你出去。
 
-that this operation the Russians have undertaken will not ultimately be successful
-俄罗斯人进行的这次行动最终不会成功
+整个乌克兰现在，俄乌战争最恨的什么人中国人！在大街上，在周围国家，一说中国人，（他们说）我们不接。我们有跑出来救出来的战友，放到人家朋友家说: “你们来自中国的，如果知道你来自中国的，我们绝对不接受你们”。最后解释半天啊，把这几家子先安顿下来。中国人混到这份上，人家打仗，咋恨你呢？
 
-However, there have been a huge amount of intelligence errors made
-然而，已经出现了大量的情报错误
+就这时候还撒谎，还个人信息呢，什么叫战争知道吗？战争人的生命、安全、人权第一！这时候你还搞政治宣传，中国人的人命啥时候这么值钱了，现在信息那么值钱了，所有中国，所有个人信息，你当官的想怎么干怎么干，一个派出所副所长，一个片员都可以说拿个人信息，咋这时候信息值钱了呢？这个世界上无知的代价太大了，竟然有中国人听。
 
-First of all, I think Putin has fallen into the spell
-首先，我认为普京已经陷入了魔咒
+我再告诉大家，很快会在乌克兰周围有另外的飞机起飞，会有飞回美国的，有美国签证的或不回中国的，在中间中国免签地会停一下，给你们放下来，就是往西来的飞机。也会有架飞机会去东南亚，啊东南亚，然后就免签国，你们不管什么人上飞机，甚至你们到了那飞机下飞机就走啊，我们,你们永远可以忘记我们，我们只想救你们，什么都不需要,你所有提供的信息就是你如果已经到了,像周围的啊这几个国家的时候，你就可以啊，你就可以上我们的飞机，没有任何问题。啊我们最差也是757和747，还有美国大力神，没有什么太小的飞机，没办法，没办法啊，就中国承包的还得用好飞机啊。但具体的请听公告，走着看啊。
 
-that a lot of dictators have after many decades
-许多独裁者在几十年后
+战场瞬息万变，这个变化太大了，啊最终结局是什么？现在最起码全世界人民不再相信习近平和共产党，那中国共产党里边没人相信习近平，更重要的是习近平谁也不相信。就像全世界不相信普京，普京不相信身边任何人，什么邵伊古、拉维托夫啊、阿尔托夫啊、尼尔多夫啊、是吧？伊莲娜呀，他都不相信。这就是人类大变啊，懂吗兄弟姐妹们？
 
-and that he starts to believe his own propaganda
-并且他开始相信自己的宣传
+非常不幸，全世界更多人相信“俺新中国联邦”，新中国联邦是没有共产党后的，中国的，一人一票选出政权的推动者，我们永远不去啊，去管理你那伟大的中国去啊，我们不参与这政治，那是你们的事，我们只救中国人，唤醒中国人！到这个时候还相信共产党跟你说：“保持的护照，保持个人信息”，你护照信息能救你命，你千万抱准了，好好抱着！
 
-He convinced himself that the Ukrainians will be a rollover operation
-他说服自己，乌克兰人将被吓跑
+就像那个汶川地震一样，“领导先走！”是吧？这时候让领导先走，你得抱着护照等着，领导的小姨子，小舅子都走了，你还抱着护照呢，是吧！？没缘分，什么都谈不上，有缘千里来相会，人家路大脑和蛇妖闫有缘分，万里来约炮，是吧？啊无缘，面对面一见也……。无知这个东西，太可怕了！共产党能把这么多人变成如此之可怜无知，人家俄乌打架，中国人被恨，这是何道理呀？到处拉仇恨，啊西门庆和潘金莲俩搞事儿，结果你喊疼，你疼那个球啊？不就是贱吗，人家屋里边弄得都地震了，旁边一要饭的中国人习近平啊，在旁边喊哎呀哎呀，你哎呀啥？你哎呀啥?哎呀旁边的也有人跟着哎呀，我也哎呀，你哎呀啥？在乌克兰都战场了，你哎呀啥？
 
-much like Georgia in the past
-很像过去的格鲁吉亚发生的一样
+3月1号，七哥将来说世界一切大变，这只是刚刚开始，走着看，疫苗停了吗，啊七哥说的，2021年年底和2022年5月份前，3月份是个大节点，说到做到了吗？跟咱没关系，但七哥咋就又蒙准了呢？救援吧，先救战火之中的同胞吧！
 
-or even parts of Syria were where the Russian forces met with success after success
-甚至叙利亚的部分地区都是俄罗斯军队取得了一次又一次的成功
+稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
 
-This has not happened, and this is also allowed
-在乌克兰没有发生，这也是允许的
+[郭文贵先生2022年3月1日盖特视频](https://gettr.com/post/pxllrkc2fd)
 
-This is also exposed the weak part of the Russian military
-这也暴露了俄军的薄弱环节
-
-and that is logistics, tanks running out of fuel
-那就是后勤，油箱耗尽燃料
-
-Everything seemed predicated on a massive blitzkrieg
-一切似乎都基于一场大规模的
-
-that would decide things in 72 hours and when that didn’t happen
-将在 72 小时内完成的闪电战，而当这没有发生时
-
-Then we have the situation that Russia is in right now
-我们看到俄罗斯现在的情况
-
-原视频链接[https://twitter.com/newsmax/status/1498040672053510151?s=24](https://twitter.com/newsmax/status/1498040672053510151?s=24)
-
-Date:02/28/2022
-原视频标题: Ex-CIA officer: Putin had a ‘massive intelligence failure’
-前中央情报局官员：普京“大规模情报失败”
-原视频日期：2022/02/28
-原视频链接https://twitter.com/newsmax/status/1498040672053510151?s=24
-任务编号：KE430（3887）
-视频时间段 : 0:00-1:01
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

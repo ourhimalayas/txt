@@ -2,31 +2,23 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月28日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2091405/)
+## 美特使团访台！蔡英文将赠勋蓬佩奥
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2091438/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-20-1187x1536-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/ca4d418b2efe50fd7f96981d03a9b543.jpg)图片来源：台湾总统府发言人脸书
 
+美国总统拜登指派由前参谋首长联席会议主席穆伦带领的特使团，3月1日抵达台湾，今日将拜会蔡英文总统与副总统赖清德。
 
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月28日晚](https://gnews.org/zh-hans/2084514/)
+美国前国务卿蓬佩奥先前已确定，今晚将抵达桃园机场，蔡英文总统明日也将接见，并颁赠「特种大绶景星勋章」给蓬佩奥。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+新闻来源：[yahoo](https://tw.news.yahoo.com/%E8%93%AC%E4%BD%A9%E5%A5%A7%E6%98%8E%E8%A8%AA%E5%8F%B0-%E8%94%A1%E8%8B%B1%E6%96%87%E5%B0%87%E9%A0%92%E8%B4%88-%E7%89%B9%E7%A8%AE%E5%A4%A7%E7%B6%AC%E6%99%AF%E6%98%9F%E5%8B%B3%E7%AB%A0-124825460.html)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+撰稿/发布：一叶知秋
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
