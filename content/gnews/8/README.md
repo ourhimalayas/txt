@@ -2,20 +2,40 @@
 ---
 
 
-## 乌克兰要求欧美协助建立禁飞区
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2096168/)
+## 小男孩泪流满面地描述逃离乌克兰,因为他父亲留下来保护国家
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2096279/)
 
-加拿大温哥华扬帆农场    平民正道
+[https://gtv.org/video/id=621f4a1b4353d33974c4aea0](https://gtv.org/video/id=621f4a1b4353d33974c4aea0)
 
-据【路透社】2月28日报道，乌克兰总统泽连斯基在俄军机无差别轰炸该国城市后要求国际社会为乌克兰提供针对俄罗斯的禁飞区，欧美及其盟国对此已初步达成了一致的支持。
+We left dad in Kyiv
+我们把爸爸留在了基辅
 
-报道称，俄乌双方日前进行的数小时停火谈判未能取得成功，俄军随即对拥有140万人口的[哈尔科夫]市发动猛烈空袭，并造成包括妇孺在内的大量平民伤亡。因此泽连斯基促请北约，应立即阻止俄罗斯的军机和导弹侵入乌克兰领空。
+And dad will be selling things and helping our heroes, our army
+爸爸会卖些东西，帮助我们的英雄，我们的军队
 
-据悉，尽管美国已排除了直接派遣部队与俄军地面作战的可能性，但国际社会对普京威胁将使用核武器表示严重担忧。由于美方对乌克兰的禁飞区诉求表示支持，因此美军在执行此任务时，极有可能会造成美俄的直接军事冲突。
+he might even fight
+他甚至可能会去战斗
 
-* * *
+**原视频链接**[**: **https://twitter.com/foxnews/status/1498145939432767491?s=24](https://twitter.com/foxnews/status/1498145939432767491?s=24)
 
-编辑： 平民正道    发布：平民正道
+Date:03/01/2022
+原视频标题:‘WE LEFT DAD IN KYIV’: Little boy tearfully describes fleeing Ukraine as his father stays behind to protect country
+“我们把爸爸留在了基辅”：小男孩泪流满面地描述逃离乌克兰，因为他的父亲留下来保护国家
+原视频日期：2022/02/28
+原视频链接https://twitter.com/foxnews/status/1498145939432767491?s=24
+任务编号：KE431（3888）
+视频时间段 : 0:00-0:30
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,30 +2,22 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月2日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2096095/)
+## 加拿大金融机构终止与俄罗斯央行交易
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2096151/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO.jpg)
+加拿大温哥华扬帆农场    平民正道
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-1.png)
-文章仅代表作者本人观点，与Gnews无关
+据加拿大CTV新闻2月28日报道，加拿大副总理兼财政部长弗里兰宣布，从当天开始，该国所有金融机构都不得再与俄罗斯中央银行进行任何交易。并以此与美国在内的G7伙伴一起，共同制裁俄罗斯对乌克兰的入侵。
 
-视频参看：
-[2022.03.02早 《NFSC新闻》](https://gtv.org/video/id=621f715d019ef64da653c7f1)
-[2022.03.02早 G|TV《新闻访谈》](https://gtv.org/video/id=621f7944019ef64da653d746)
+加拿大财政部表示，这是历史首次以该方式制裁G20国家的中央银行。此举同资产冻结和停止与俄罗斯主权财富基金交易一样，旨在阻止俄罗斯动用任何国际货币储备来实现其对乌克兰的入侵。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+近日，加拿大和盟国一起对俄罗斯采取了一系列金融制裁措施，包括将几家主要俄罗斯银行从SWIFT金融支付系统中剔除。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March.jpeg)
+评论称：在文贵先生于2月25日指出，当前最有效和最直接制裁俄罗斯和中共暴政的措施就是停止其SWIFT国际支付权之后，欧美各国政府如获至宝，纷纷效法。从而鲜明体现出新中国联邦真实强大的国际影响力。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

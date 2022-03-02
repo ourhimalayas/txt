@@ -2,68 +2,30 @@
 ---
 
 
-## 冯德莱恩：欧盟禁俄媒体机构并阻银行进入SWIFT
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2096038/)
+## NFSC新闻、G|TV新闻访谈简报|2022年3月2日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2096095/)
 
-**翻译**：**Lulumi**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip冯德莱恩：欧盟禁俄媒体机构并阻银行进入SWIFT.png)图片来源：insiderpaper.com
-欧盟主席国周二表示，欧盟禁止俄罗斯国家媒体机构RT和Sputnik在欧盟内广播，此前视频共享平台YouTube已采取行动，在欧盟范围内屏蔽这些机构的内容。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO.jpg)
 
-欧盟此举将于周三在欧盟官方杂志上公布后生效，这是因为布鲁塞尔加强了对莫斯科的制裁力度，以回应俄罗斯对乌克兰的入侵。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-欧盟27个成员国的代表还同意禁止“某些”俄罗斯银行进入SWIFT银行信息系统，以及参与由RDIF主权财富基金共同资助的项目。
+视频参看：
+[2022.03.02早 《NFSC新闻》](https://gtv.org/video/id=621f715d019ef64da653c7f1)
+[2022.03.02早 G|TV《新闻访谈》](https://gtv.org/video/id=621f7944019ef64da653d746)
 
-美国和西方盟友试图通过一连串的制裁来削弱俄罗斯的银行业和货币。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-这些制裁包括将选定的俄罗斯银行从SWIFT报文系统中切断，从而与世界其他国家隔离。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March.jpeg)
 
-SWIFT系统允许银行就交易进行快速和安全的沟通——切断俄罗斯的联系是为了阻止它与世界上大多数国家进行交易。
-
-起初对SWIFT提议持保留态度的欧洲国家，如德国和意大利，最终同意了。这两个国家都高度依赖俄罗斯的天然气供应。
-
-西方禁止与俄罗斯中央银行交易的措施也使该国经济陷入动荡。
-
-自今年年初以来，卢布对美元的汇率下跌27%，目前的交易价格为美国1:100多卢布，这是有史以来最弱的水平。
-
-因此，俄罗斯人正在涌向加密货币，这些货币在一个分散的网络上运作，因此不受制裁的直接影响。
-
-**–**审查制度，纯粹而简单**–**
-
-欧盟关闭RT和Sputnik在集团内的广播的举动是由欧盟主席乌苏拉·冯德莱恩在周日首次宣布的。
-
-她说，这些电台“将不再能够传播他们的谎言，为普京的战争辩护，并在我们的联盟中散播分裂”。
-
-周二早些时候，在布鲁塞尔宣布之前，YouTube表示，由于俄罗斯的入侵，它已经在欧洲封锁了RT和Sputnik。
-
-YouTube在给法新社的一封电子邮件中说，欧洲的两个频道都被封锁了，“立即生效”。
-
-这些国家支持的媒体组织被认为是俄罗斯总统弗拉基米尔·普京政权的喉舌，被指控传播有关莫斯科在乌克兰战争的错误信息。
-
-YouTube的同业网络巨头Facebook周一也做出了类似的决定，在欧盟地区屏蔽了RT和Sputnik发布的内容。
-
-脸书的母公司Meta周二增加了新的措施，说它将在未来几天内，在用户分享或点击这些网站的链接时贴上警告标签。
-
-周二，RT法国的律师巴塞尔·阿德尔对禁止该媒体传播的合法性提出质疑。
-
-阿德尔说：“禁止一个媒体组织在法律上是一个未知的概念，当它涉及到一个拥有100名法国记者的法国媒体（RT法国）时，很难理解！”。
-
-法国RT电视台在一份声明中说：“这种对社交媒体的封锁是一种纯粹的审查行为，没有任何法律依据。”
-
-当德国在2月初禁止RT的德国服务时，德国之声广播公司被迫关闭其莫斯科分社。
-
-英国不再是欧盟成员，但其广播监管机构Ofcom周一宣布对RT的“公正性”进行15项调查。
-
-此前一周，英国文化部长敦促通讯管理局对RT采取“及时透明”的行动，认为它试图传播“有害的虚假信息”。
-
-**新闻来源**：[insiderpaper.com][EU bans Russian media outlets, banks from SWIFT: EU presidency](https://insiderpaper.com/eu-agrees-to-exclude-certain-russian-banks-from-swift-system-eu-presidency/)
-
-* * *
-
-***审核：文乐
-校对：花羽
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

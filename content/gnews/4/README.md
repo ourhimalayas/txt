@@ -2,40 +2,26 @@
 ---
 
 
-## 小男孩泪流满面地描述逃离乌克兰,因为他父亲留下来保护国家
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2096279/)
+## 《历史的今天》 2022.03.02
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2096339/)
 
-[https://gtv.org/video/id=621f4a1b4353d33974c4aea0](https://gtv.org/video/id=621f4a1b4353d33974c4aea0)
+作者：虎子哥
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片来源-2.jpg)[图片来源](https://www.google.com.sg)
+1. 1901年：美国国会通过普拉特修正案，把古巴变成美国的保护国。
+2. 1943年：第二次世界大战：澳洲和美国空军在俾斯麦海针对日本海军的运输船队展开轰炸，造成至少3,000人死亡。
+3. 1946年：胡志明被选为北越国家主席。
+4. 1946年：第一次中东战争：外约旦与以色列签订停战协定。
+5. 1956年：摩洛哥王国独立。
+6. 1962年：缅甸军事将领吴奈温发动政变夺取政权，成为缅甸最高领导人。
+7. 1962年：NBA球星威尔特•张伯伦对战尼克的比赛中拿下100分，为历史纪录。
+8. 1969年：中共国和苏联的边防部队因为乌苏里江珍宝岛的归属问题在岛上发生武装冲突。
+9. 1970年：津巴布韦脱离英国殖民统治，宣布成立津巴布韦共和国。
+10. 1995年：全球互联网服务公司Yahoo!成立。
 
-We left dad in Kyiv
-我们把爸爸留在了基辅
 
-And dad will be selling things and helping our heroes, our army
-爸爸会卖些东西，帮助我们的英雄，我们的军队
+* * *
 
-he might even fight
-他甚至可能会去战斗
-
-**原视频链接**[**: **https://twitter.com/foxnews/status/1498145939432767491?s=24](https://twitter.com/foxnews/status/1498145939432767491?s=24)
-
-Date:03/01/2022
-原视频标题:‘WE LEFT DAD IN KYIV’: Little boy tearfully describes fleeing Ukraine as his father stays behind to protect country
-“我们把爸爸留在了基辅”：小男孩泪流满面地描述逃离乌克兰，因为他的父亲留下来保护国家
-原视频日期：2022/02/28
-原视频链接https://twitter.com/foxnews/status/1498145939432767491?s=24
-任务编号：KE431（3888）
-视频时间段 : 0:00-0:30
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*发布：Theodosia*
 
  
 

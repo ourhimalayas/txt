@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/2/2022 10:15 PM (UTC)`
+
+3/2/2022 Miles Guo: The CCP manipulates people by hiding the truth and controlling the media; more than 20 Chinese citizens have been killed in Ukraine, but the CCP disallows any report of the news; Putin is repeating Hitler's trick of fabricating stories to justify his war <br/><br/>3/2/2022 文贵直播：隐瞒真相控制媒体是中共控制人民的手段；有20多个中国人已在乌克兰战争中罹难，但中共不允许消息被报道出去；普京正在重施希特勒的伎俩，要用弥天大谎为他的战争找借口<br/>
+![img](https://media.gettr.com/group5/getter/2022/03/02/22/0f4abce5-abf6-2304-6c61-082bc2e80166/out.jpg)
+
+---
+
 `@miles 3/2/2022 10:08 PM (UTC)`
 
 03/02/2022 Miles Guo: The fellow fighters of the New Federal State of China are flying to Poland and other Eastern European countries to set up rescue bases;  the rescue led by the New Federal State of China does not distinguish between races and nations, we neither ask for money or seek any profit, nor expect any returns, the only goal is to save all the lives in need in the war zone.<br/><br/>3/2/2022 文贵直播：新中国联邦人正在飞往波兰等东欧国家，将在那里建立营救基地；新中国联邦的营救不分种族和国家，不要你一分钱，不图你任何利益和回报，只为拯救在战区所有需要救助的生命。<br/>
@@ -145,13 +152,6 @@
 
 2/27/2022 Miles Guo: There won’t be information warfare in the war between Taiwan and the CCP. The advantage of the Taiwanese military is fighting technology warfare and electronic warfare. What are the differences between the mindset of the Taiwanese soldiers and that of the CCP’s soldiers? Why are Taiwanese traitors one of the biggest problems of Taiwan?<br/><br/>2/27/2022 文贵直播: 台海战争中不会打信息战，台湾军队相对于共军的优势是技术战、电子战；台湾士兵的心态和共匪士兵有何区别？为什么台湾最大的问题之一是其内部的卖台贼？
 ![img](https://media.gettr.com/group27/getter/2022/02/28/15/4b776fe7-e693-3424-3f2f-b8517199f0c1/out.jpg)
-
----
-
-`@miles 2/28/2022 2:39 PM (UTC)`
-
-2月28号：尊敬的战友们好！俄乌战争正在走向不确定的危险之中。共产党正在蠢蠢欲动。侵占台湾……新中国联邦人的乌克兰人道救援大行动震撼了世界。此时此刻，我们的战友们更要坚持住我们唯真不破．维护建立新中国人的形象的原则，一切都已经开始！
-![img](https://media.gettr.com/group46/getter/2022/02/28/14/bf2a89ee-2884-f72b-7a9d-3e827bc58f15/out.jpg)
 
 ---
 

@@ -2,16 +2,10 @@
 ---
 
 
-## 后共时代 世界大变局
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2096195/)
+## 3/2/2022 文贵直播：新中国联邦的营救不分种族和国家，不要你一分钱，不图你任何利益和回报，只为拯救在战区所有需要救助的生命
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2096332/)
 
-文贵大直播20220302
-
-撰稿：三票先生（DC）
-
-美工：长颈鹿（雅典娜）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8-2.png)
-*发布：Theodosia*
+秘密翻译组-北美组
 
  
 
