@@ -2,31 +2,40 @@
 ---
 
 
-## 有声|美国的选择决定人类的命运
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2094970/)
+## 有声|美国务事务助卿呼吁国际社会支持台湾参与联合国体系
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2094989/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-在2月27日的大直播中，郭文贵先生表示，美国在台海战争问题上的选择，将决定人类的命运。
-
-郭先生说，美国和日本比中共更希望台海战争的发生。美国为了出师有名，意欲让全世界看到中共公然侵略台湾，造成油价和芯片价格上涨，供应链断裂，并让韩国、印度和东南亚等国感受到中共的致命威胁，此时美国会组织包括澳大利亚在内的盟军部队来灭共。但是，这种战争的结果会很残酷，因为只要有美国参与灭共，中共就一定会联合朝鲜和伊朗，并极有可能会使用核武器。
-
-郭先生认为，如果美国按部就班的先从联合国得到“战争执照”授权，然后再开始灭共，说明美国希望发生世界大战而重整秩序；如果美国在中共侵略台湾刚开始时，就选择出手灭共，则说明美国希望维持原有的国际秩序。选择后者，美国就需要大胆对中共提前动手；选择前者，人类将要付出巨大代价，不仅会造成大量人员伤亡，而且由于中共使用核武器，会导致很多无人区的出现。
-
-文字版原文：[美国的选择决定人类的命运](https://gnews.org/zh-hans/2090074/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台媒3月1日消息，美国国务院国务事务助卿，席森，28日公开晒出自己近期与美国驻台代表萧美琴的会晤合照，并呼吁国际社会支持台湾有意义参与联合国体系。 席森表示，台湾的贡献能让国际社会广泛受益，美方希望联合国各会员国支持台湾参与联合国。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-164.png)
+对此，萧美琴回应表示，她很感谢有机会与席森讨论美台合作，并拓展台湾能有意义参与到国际组织中去。
+
+早前，美国国务卿布林肯，在联合国2758号决议通过满50年的翌日，发声明表示支持台湾参与联合国体系。他指出，台湾参与联合国体系并非政治议题，而是务实议题。将台湾排除在外，会有损联合国及其相关机构的重要工作。
+
+
+
+
+
+文字版原文：[美国务事务助卿呼吁国际社会支持台湾参与联合国体系](https://gnews.org/zh-hans/2093446/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

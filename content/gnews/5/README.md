@@ -2,31 +2,71 @@
 ---
 
 
-## 2022/02/28 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2095169/)
+## 2022年3月2日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2095177/)
 
-1. 2月27日，中国闹市街头高举反战标语牌的中国人，此举在中共国有生命危险。中国共产党支持战争，中国人民不支持！ 中共≠中国人
-2. 2月27日，广东全域，中共政府以凶残疫情爆发为借口，更严格封锁着小区和村落。10米一个的防控关卡，将网格化管理策略执行的更加彻底。   戒备的加强，是为中共攻打台湾做准备？
-3. 2月27日，中共随意执行的区域化封锁政策，只为限制市民出入，百姓生死不在其考虑范围内。
-4. 2月25日，广东深圳。外卖小哥们因担心随时会封村无法回家，便自带被子在餐车上出门送餐。
-5. 2月27日，湖北武汉。因疫情居家隔离。社区要求一个家长陪同孩子，另外一个家长出去租房子住，为了可以给被隔离家人送生活日用品。
-6. 2月27日，湖北武汉。中共荒唐的疫情政策有意引导社会互斗。一位老爷爷因没法出示健康码，按照中共政策导致全车人员都将无法再移动。
-7. 2月27日，路人拍下养老院老人向其索要食物的一幕，老人怕路人看不懂一直焦急地比划着！
-8. 2月26日，路边手拿病历的病人，崩溃的对着电线杆咆哮，不清楚她遇到了怎样的压力。
-9. 2月25日，湖北武汉。老人拿老伴的丧葬费，给儿女们购买了商铺。承诺返租金未兑现，每月还贷压力大。本想减轻儿女的压力，现在反成了负担。
-10. 2月24日，河南信阳。高中老师深夜查寝，晚上十一点学生们都还在宿舍学习。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/snapshot_副本.jpg)
+盖特连接：[2022年3月2日 文贵大直播：乌克兰救援人道关怀；俄乌战争中国人遭恨；核战与全球经济崩溃；新中国联邦之大拯救](https://gettr.com/streaming/pxru0n55ba)
 
+G-TV连接：[2022年3月2日 文贵大直播：乌克兰救援人道关怀；俄乌战争中国人遭恨；核战与全球经济崩溃；新中国联邦之大拯救](https://gtv.org/video/id=621f6ab7019ef64da653b4fe)
 
-* * *
+1、普京核心团队出现反战声音；
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+2、俄罗斯在美国藏的钱，达17万亿资产；
 
+3、乌克兰被打死的中国人达20多人，中共批示不能报道（不爆不说）；
 
-编辑：【英国伦敦喜庄园编辑部】
+4、中俄组织十万水军在盖特推特散布谣言：乌克兰是新纳粹；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+5、南斯拉夫大使馆被炸，造成3名工作人员牺牲真相：首先中共暗地参战击落美国飞机。美国提出赔偿5000万美元，中共只要了一半，最终美国给每一个人800万美元现金赔偿，中共贪污后每家只给了100万人民币；
+
+6、俄乌战争，是普京一个人的战争；
+
+7、4个战友，3个家庭被救助离开乌克兰到达波兰，新中国联邦救助战友100%成功；
+
+8、中国同胞，美国，日本等所有朋友，只要和新中国联邦联系，免费机票，救助到美国或者亚洲某免签国，提供30天免费吃住；
+
+9、中共在乌克兰号称救援了400人，实际救援只有60个人，一半是情报人员，一半是官员子女，未来一定会公布中共的救援名单；
+
+10、普京和习近平身体撑不过2022年年底；
+
+11、文贵先生3倍价格（30万美元）救出重要战友的家人，而中共大使馆连6000美金都不愿意，预算只有1000美金；
+
+12、中共让中国人插上中国国旗遭枪击；
+
+13、世界打核战的可能性微乎其微。发射困难，击落容易；
+
+14、俄乌战争，让习近平入侵台湾忌惮三分，可能拯救台湾；
+
+15、泽连斯基让世界知道，平民可以当政治领袖；
+
+16、对台湾同胞少点建议，多点行动；
+
+**注：大直播音频正在制作和上传中，敬请关注****——**
+
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
