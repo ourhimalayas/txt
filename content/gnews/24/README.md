@@ -2,17 +2,17 @@
 ---
 
 
-## 中共的邪恶置全球华人于险境
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2094538/)
+## 西媒头条 — 第183期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2094787/)
 
-文贵大直播20220302
+**制作：蚂蚁兄弟**
 
-撰稿：Poplar（盘古）Lakeman（文仁）（雅典娜）待命（文晓）（樱花）
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
 
-美工：健身建心（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片9.png)
-*发布：Theodosia*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip西媒头条-1.png)
 
+***发稿：信心满满***
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

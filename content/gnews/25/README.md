@@ -2,20 +2,34 @@
 ---
 
 
-## 文贵大直播 3/2 原来是一个人的战争
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2094516/)
+## 美国民众对拜登处理俄乌危机的支持度上升
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2094751/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/snapshot.jpg)图片来源 GTV
-3月2日文贵大直播惊爆俄乌战争骇人内幕。连美国总统都被震到：已经核实的俄罗斯在美国的资产规模达17万亿美元。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-爆料革命发起人郭文贵先生告诉世人，这场战争无关正义，就是独裁者一个人的战争！人类财富的集中和垄断是所有平民百姓们无法想象的。俄罗斯每年GDP才1万亿，中共国每年GDP15万亿，藏在美国的又有多少？？？！！！
+整理：围剿维尼熊
+编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-02-02-下午10.11.59.png)
+根据路透社报道，当地时3月1日完成的路透/益普索(Ipsos)民调结果显示，美国民众对总统拜登处理俄乌危机的支持度在过去一周有所上升，有43%的人表示支持，高于之前一周的34%。
 
-郭先生郑重告诉现场嘉宾和千万观众，这场侵略战争的所有参与者都是非法的。
+这项民意调查是用英语在线进行的，范围遍及美国各地。调查收集了1,005名成年人的回答。
 
-直播开始不到一个小时，现场嘉宾画面即被黑。
+71%的受访者表示，他们认为美国应该向乌克兰提供武器以应对俄罗斯攻击。约77%的受访者认为，美国应该为此对俄罗斯实施进一步制裁。
 
-【来源链接】https://gtv.org/broadcast/watch/621f6ab7019ef64da653b4ff
+58%的受访者表示，危机带来燃料和天然气涨价，但为了保卫另一个民主国家，这是值得的。
+
+约75%受访者认为，在乌克兰问题上不作为，将使俄罗斯更加肆意地在欧洲其他地方采取进一步军事行动。
+
+参考链接：[https://cn.reuters.com/article/us-survey-biden-support-rate-0302-idCNKBS2KZ079?il=0](https://cn.reuters.com/article/us-survey-biden-support-rate-0302-idCNKBS2KZ079?il=0)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

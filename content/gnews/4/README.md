@@ -2,29 +2,37 @@
 ---
 
 
-## 世界最大飞机在俄罗斯入侵乌克兰时被毁
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2094995/)
+## 有声|中共抹黑新中国联邦在乌克兰的救援行动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2095029/)
 
-**撰稿：日本东京方舟农场  Miyali7768(文玉)  幽蘭自得**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**郭文贵先生28日在盖特贴出了中共对乌克兰留学中心公众号的**“**紧急公告”，称境外反华组织**“**XXX联邦”发布虚假撤侨文件，目的是搜集在乌华人信息。 **
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-167.png)
+**对此，郭先生撰文指出，中共刻意隐去**“**新中国**“**三个字，连新中国联邦的全名都不敢公布，是在恐惧华人知道有新中国联邦的存在。 郭先生重申，这次新中国联邦的大救援，是与国际救援组织合作，完全向国际公开，所有参与救援的团队、飞机、经费、物资都是可以经得起任何检查，并符合法律规定的。 **
 
-据《THE HILL》2月28日报道，世界上最大的飞机安东诺夫-225货机（Antonov An-225 Mriya）被俄罗斯军队催毁，该消息得到了乌克兰外交部长的证实。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-15.png)（图片来自网络）
-据乌克兰国营新闻组织《Ukroboronprom》报道，这架被称为 “Mriya “或 “梦想 “的飞机在基辅附近的戈斯托梅尔(Gostomel)机场被毁，当时它正在维修中。
+**郭先生批评，如果中共真心想救助中国人，在几千个同胞受到战争炮火威胁的生死存亡之际，中共不应该寻找种种借口逃避救助同胞的责任，把时间和精力耗费在玩弄低级伎俩去误导、欺骗同胞，阻止他们获得救助，中共这种严重的犯罪行为，应受到全世界正义的谴责和审判。**
 
-另据美国有线电视新闻网（CNN）报道，根据Maxar技术公司的卫星图像显示，存放AN-225飞机的部分机库遭到了严重破坏。美国国家航空航天局的资源管理系统的火灾信息也检测到机场有多处火灾，包括存放飞机的机库。
 
-乌克兰外交部长库莱巴（Ukroboronprom）27日在他的推特账户上证实了飞机被毁的这一消息，并表示“俄罗斯可能已经摧毁了我们的‘Mriya’。但他们永远无法摧毁我们建立一个强大、自由和民主的欧洲国家的梦想，我们将获胜！”
 
-据悉，修复这架飞机的费用将超过30亿美元，修复工作将需要五年左右的时间。
+文字版原文：[中共抹黑新中国联邦在乌克兰的救援行动](https://gnews.org/zh-hans/2093526/)
 
-乌克兰国营新闻组织《Ukroboronprom》表示，”我们的任务是确保这些费用由俄罗斯联邦承担，因为它对乌克兰的航空和航空货运部门造成了故意损害”。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-参考链接：
-1.[https://thehill.com/policy/international/596094-worlds-largest-plane-destroyed-in-russian-invasion-of-ukraine](https://thehill.com/policy/international/596094-worlds-largest-plane-destroyed-in-russian-invasion-of-ukraine)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-素材采编：Miyali7768(文玉)  幽蘭自得
-编辑：老孙
-发布：爱放飞
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

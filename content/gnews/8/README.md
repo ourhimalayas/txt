@@ -2,39 +2,29 @@
 ---
 
 
-## 有声|欧盟主席称望乌克兰成为成员国
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2094964/)
+## 世界最大飞机在俄罗斯入侵乌克兰时被毁
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2094995/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据路透社报道，欧盟首席执行官2月27日表示明确支持乌克兰成为欧盟的成员，称这个目前受到俄罗斯攻击的国家是 “我们中的一员”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-3.jpg)
-欧盟委员会主席冯德莱恩表示，欧盟有史以来首次决定向处于战争状态的国家提供武器，欧盟将向乌克兰运送 4.5 亿欧元，折合5.07 亿美元的武器，。
+**撰稿：日本东京方舟农场  Miyali7768(文玉)  幽蘭自得**
 
-欧盟还宣布乌克兰难民将在 3 年内在其成员国受到欢迎而无需申请庇护，并表示将对俄罗斯的入侵实施严厉制裁。
+据《THE HILL》2月28日报道，世界上最大的飞机安东诺夫-225货机（Antonov An-225 Mriya）被俄罗斯军队催毁，该消息得到了乌克兰外交部长的证实。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-15.png)（图片来自网络）
+据乌克兰国营新闻组织《Ukroboronprom》报道，这架被称为 “Mriya “或 “梦想 “的飞机在基辅附近的戈斯托梅尔(Gostomel)机场被毁，当时它正在维修中。
 
-当地时间2月28日中午，乌克兰总统弗拉基米尔·泽连斯基，正式签署了加入欧盟的申请书。他希望欧盟启动特别程序允许乌克兰加入欧盟；并指出，乌克兰希望和欧洲人平等地站在一起，欧盟值得拥有乌克兰。
+另据美国有线电视新闻网（CNN）报道，根据Maxar技术公司的卫星图像显示，存放AN-225飞机的部分机库遭到了严重破坏。美国国家航空航天局的资源管理系统的火灾信息也检测到机场有多处火灾，包括存放飞机的机库。
 
+乌克兰外交部长库莱巴（Ukroboronprom）27日在他的推特账户上证实了飞机被毁的这一消息，并表示“俄罗斯可能已经摧毁了我们的‘Mriya’。但他们永远无法摧毁我们建立一个强大、自由和民主的欧洲国家的梦想，我们将获胜！”
 
+据悉，修复这架飞机的费用将超过30亿美元，修复工作将需要五年左右的时间。
 
-文字版原文：[欧盟主席称望乌克兰成为成员国](https://gnews.org/zh-hans/2088525/)
+乌克兰国营新闻组织《Ukroboronprom》表示，”我们的任务是确保这些费用由俄罗斯联邦承担，因为它对乌克兰的航空和航空货运部门造成了故意损害”。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+参考链接：
+1.[https://thehill.com/policy/international/596094-worlds-largest-plane-destroyed-in-russian-invasion-of-ukraine](https://thehill.com/policy/international/596094-worlds-largest-plane-destroyed-in-russian-invasion-of-ukraine)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+素材采编：Miyali7768(文玉)  幽蘭自得
+编辑：老孙
+发布：爱放飞
 
  
 
