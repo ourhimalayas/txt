@@ -2,37 +2,32 @@
 ---
 
 
-## 普京威胁启动核威慑警戒
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2090979/)
+## 俄称将对美国在联合国驱逐12名外交官进行报复
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2091094/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译：灭共文明
 
-整理：围剿维尼熊
-编辑：5m
+编辑与校对：冰糖葫芦喵、灭共文明
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-6.png)图片来源：雅典娜设计组&星岛日报
+《路透社》与《纽约时报》3月1日综合报道，**俄罗斯周二表示，它将对美国以涉嫌间谍罪驱逐其12名驻联合国外交官进行报复。**俄罗斯外交部发言人玛丽亚·扎哈罗娃（Maria Zakharova）说，美国的行动 “不会在没有适当的反应和回复的情况下继续下去，不一定是对等的”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯报复.jpg)俄罗斯外交部发言人玛丽亚.扎哈罗娃（图片来源：路透社）
+**美国周一表示，将把12名俄罗斯外交官驱逐出莫斯科驻联合国使团**，**指控他们利用在美国生活工作之便，一直从事不利于美国国家安全间谍活动。**
 
+美国驻联合国发言人达尔顿表示，**这次的驱逐是符合联合国的规定的，同时已经酝酿了好几个月了。**
 
-根据路透社报道，美国一名国防部高层官员周一表示，在俄罗斯总统普京周末宣布将核威慑力量置于高度警戒状态之后，美国仍然没有看到任何明显动作。
+美国驻联合国副代表理查德·米尔斯说：“**因此，根据《总部协定》第13条，他们（俄罗斯）已经得到了离开美国的要求**，以免他们损害东道国的国家安全。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/驱逐俄外交官.jpg)俄罗斯驻连个托代表瓦西里·涅边贾（图片来源：路透社）
+俄罗斯常驻联合国常驻代表瓦西里·涅边贾确认了这一消息，**说这12名外交官在3月7日前，被要求离开美国。**
 
-但是，一些前美国官员和专家警告说，如果普京在乌克兰战争中陷入困境，或者战争蔓延到北约，他有可能决定升级到使用核武器。
+因俄罗斯入侵乌克兰，**美国和欧盟对俄罗斯的制裁在升级，紧张关系在加剧。据报道，周二，俄军包围了乌克兰两大城市，冲突进一步升级。**
 
-这位美国官员说，在普京公开宣布之前，美国军方领导人并未获悉有关核威慑的决定，而目前为止，俄方尚未因为普京的指示而出现武器或部队的重大调动。
+**新闻来源链接：**
 
-俄罗斯国防部周一表示，核导弹部队、北方舰队和太平洋舰队已进入“强化”战斗任务状态。
+[U.S. Expels 12 Russian Diplomats for Spying – The New York Times (nytimes.com)](https://www.nytimes.com/2022/02/28/world/europe/us-russian-diplomats-un.html)
 
-白宫认为目前没有改变美国核警报级别，拜登表示美国民众无需担心核战争。
+[Russia to retaliate for U.S. expulsion of 12 diplomats at U.N. | Reuters](https://www.reuters.com/world/russia-retaliate-us-expulsion-12-diplomats-un-2022-03-01/)
 
-参考链接：[普京启动核威慑警戒后 未见俄罗斯有明显动作–美国官员](https://cn.reuters.com/article/russia-usa-nuclear-comments-0228-mon-idCNKBS2KY31T?il=0)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Russia bombards Ukraine urban areas as armed convoy stalls | Reuters](https://www.reuters.com/world/europe/russian-isolation-intensifies-ukraine-fighting-rages-2022-03-01/)
 
  
 

@@ -2,24 +2,82 @@
 ---
 
 
-## 美加两国自愿者踊跃报名参加乌克兰“国际军团”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2091114/)
+## 奈杰尔·法拉奇：普京做出了一个绝对灾难性的决定
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2091180/)
 
-#### 翻译/撰稿：文旺|校对: 沙拉猫
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-01-181627.png)图片来自： euractiv.com
-俄国侵略者不断加剧的野蛮轰炸行径以及乌克兰军民表现出的顽强抵抗精神，不仅让最初犹豫不决的西方政客改变了态度，也逐渐获得了欧美国家普通大众的支持。当乌克兰总统泽连斯基（Volodymyr Zelenskyy）刚在星期日宣布组建“国际军团”（international legion）不久后，欧洲一些国家的自愿者就开始报名加入，随后美国和加拿大的许多退伍军人和普通公民也积极响应，前往乌克兰大使馆报名申请。
+[https://gtv.org/video/id=621df1b94353d33974c44673](https://gtv.org/video/id=621df1b94353d33974c44673)
 
-据路透社（Reuters）2月28日的报道，许多美加自愿者认为，如果他们不采取任何行动保卫欧洲，他们自己在本国的民主权利也可能受到威胁。报道指出，自愿者中不仅包括具有作战经验的退伍军人，也包括各行各业的其他人士，比如软件工程师和厨师，其中有的人甚至决定辞掉工作去加入乌克兰国际军团。有些年纪轻的人打算直接前往乌克兰，另一些则来到乌克兰驻美加大使馆提出申请。
+Nigel Farage
+奈杰尔·法拉奇
 
-路透社记者采访了一些自愿者，来自美国阿拉巴马州26岁的达克斯（Dax）便是其中一位。他是美国精锐的步兵第 82 空降师的老兵，他计划与其他退伍美国军人一道前往乌克兰。他说，“如果我不去，我会感到内疚的。”在德克萨斯州奥斯汀，一位25岁并具有美国陆军学员经验的软件开发人员表示，他将利用自己的经验为乌克兰而战。“如果他们愿意捍卫民主，那么我认为那些从民主社会中受益的人有义务支持他们。”这位要求不要提他名字的年轻人说，“在我去机场之前，我不会告诉我的父母。”
+Yeah, I mean, look, what they’re doing is remarkable
+是的，我的意思是，看，他们正在做的事情很了不起
 
-尽管退伍军人在线上提醒那些没有接受过战斗训练的志愿者说，他们要面临的一场真正的战斗，缺乏经验可能对自己和他人造成不利影响，但这并没能阻止那些不具战斗经验的人踊跃参加。
+I think we all thought that actually here would fall in no time at all
+我想我们都认为实际上基辅很快就会沦陷
 
-报道称，来自加拿大的布赖森·伍尔西（Bryson Woolsey）在看到泽连斯基的呼吁后，当天就辞去了厨师的工作。他没有接受过军事训练，但仍计划购买机票飞往波兰，然后从那儿穿越到乌克兰去自愿参加战斗。33 岁的伍尔西（Woolsey）是加拿大不列颠哥伦比亚省的人，他告诉记者说，当他看到乌克兰受伤的妇女和儿童的照片时，变得焦躁不安，“我觉得我必须做点什么。”23 岁的泰（Tai B.） 是一位在纽约学习新闻学的人，他告诉记者他会做饭，会一些基本的机械工作，也知道如何处理枪支。他已经联系了乌克兰的美国大使馆，要求加入泽连斯基的“国际军团”。他说，“我不想成为英雄或烈士，我只想最终做正确的事情。”而来自美国中西部的 28 岁海德说，他人已经到了基辅，预计将于周二开始军事训练。他说，“我无法想象并忍受欧洲再次陷入战争。”海德将自己描述为一个没有战斗经验的枪支爱好者和狂热的生存主义者。他希望得到头盔、防弹衣、护膝，最终得到一支步枪。
+that Russia would so heavily out gun to Ukrainian forces
+俄罗斯会如猛烈地向乌克兰军队进攻
 
-**评**：独裁者普京以为和黑帮组织中共勾结就可以向乌克兰开战，凭借中共国输血和西方抗衡，重塑世界秩序。但不义之战不得人心，貌似强大的俄军被乌克兰坚强的民意和誓死保家卫国的决心所震撼，几天的进攻无一达到目的，反而遭到世界各国的谴责和制裁，激励了全球无数的勇士参加保卫乌克兰的志愿军，又一次验证了得道多助，失道寡助这一名言。普金定会像郭文贵先生判定的那样，最终被中共玩死。可以肯定，如果习近平也冒然攻打民主的台湾，其下场也会和普金一样，被世界唾弃和制裁，中共国必定完结而由新中国联邦取代，成为一个真正民主法治、与世界千年和平友好的国度。
+but no, people are fighting for their homelands
+但不，人们正在为自己的家园而战
 
-消息来源：[Americans, Canadians answer Ukraine call for foreign fighters](https://www.reuters.com/world/americans-canadians-answer-ukraine-call-foreign-fighters-2022-03-01/)
+And it says this to you, even if the Russians do militarily conquer Ukraine
+它对你说，即使俄罗斯人确实在军事上征服了乌克兰
+
+there’ll be a civil war
+将会有一场内战
+
+There’ll be a fight back going on there for years and years and years
+将会有一场反击持续多年，年复一年的战斗
+
+All this tells me that Vladimir Putin has made an absolutely disastrous decision
+这一切都告诉我，弗拉基米尔·普京做出了一个绝对灾难性的决定
+
+It makes me begin to wonder whether this man still possesses the rational function
+这让我开始怀疑这个人是否还具有理性的功能
+
+And you know, if he carries on the way he is
+你知道，如果他继续他现在的样子
+
+well, what next? is Poland? Is the Baltic states
+好吧，接下来呢？ 是波兰吗？ 是波罗的海国家吗?
+
+so I think all of us in NATO must stand firm against this
+所以我认为我们北约所有人都必须坚决反对
+
+and the breaking developments
+并且突破性的发展
+
+that Turkey have blocked Russian naval vessels this morning
+今早土耳其已经挡住了俄罗斯海军舰艇
+
+is a very good sign because it’s also and don’t forgets this
+是一个非常好的迹象，因为它也是并且不要忘记这一点
+
+but Turkey is a NATO member
+土耳其是一个北约成员国
+
+原视频链接[https://twitter.com/newsmax/status/1497667457439477763?s=24](https://twitter.com/newsmax/status/1497667457439477763?s=24)
+
+Date:02/27/2022
+原视频标题: Nigel Farage: Putin has made an absolutely disastrous decision
+奈杰尔·法拉奇：普京做出了一个绝对灾难性的决定
+原视频日期：2022/02/26
+原视频链接https://twitter.com/newsmax/status/1497667457439477763?s=24
+任务编号：KE429（3874）
+视频时间段 : 0:00-0:55
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

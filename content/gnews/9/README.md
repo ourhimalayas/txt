@@ -2,44 +2,18 @@
 ---
 
 
-## 伦敦三案齐立打消UBS伦敦丢块肉在瑞士本部作战计谋
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2091113/)
+## 【粤语配音】2022年3月1日：人类正在大变革中
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2091147/)
 
-G-TV视频链接：https://gtv.org/video/id=62164d3f1408ee3a03a3c90d
+紐約香草山-香港部
 
-**郭文贵先生：**你想想现在这个在英国三案齐立呀，这里边儿有三个案子啊——down state、estate、Miles Guo这三个不同的独立法庭。人家UBS一上来就说：哎哎哎，这个down state的事我就不管了，你可以在英国管，但是estate还有Miles Guo这个事儿到瑞士去，就是我让你在英国拿点儿钱给你个几亿美元，然后到瑞士去我把你给灭了，我让你拿不着、只要你跟我妥协，因为瑞士我说了算。你看它有多夸张啊！
+据说普京给习打电话，第一句话问，还玩不玩了？干不干呐？意思是吧，台湾你还不动手？是吧，给我牵住国际上各种批评啊，听说普京大怒，嗷嗷地喊，说你们记住知道你们中国人了解中国人，我们是讲信用的，普京啊普京 走着看吧。
 
-接下来你想想这个打架呢是吧？现在我已经做好了给你一大块儿肉，你要一块儿肉我给你一只牛，你要一只牛我给你一个农场，我都做好给你了，但是我要让你保证不能找到我的秘密。
+还有共产党那些老杂毛，昨天在党内紧急通知，做好所有的各大使馆的，海外的所有的海外学生、侨领的联络和宣传控制，我告诉你老杂毛，共产党，你记住，我会让你看到在俄乌战争当中，你以为在我们爆料革命当中，你渗透了人你掌握情况，是吗？我会让你看到，有多少你们的所谓大使馆人员，是卷款卷钱，使用特殊权力跑出去了，又有多少你大使馆的人，是我们给救出来的，他不会再回国了，你们懂的，第三个你会看到我们新中国联邦，能救多少中国人，以结果说了算。
 
-就这英国、法国最后决定：不行，全在这儿。这下傻眼了、全傻眼了，这三个全在这儿。所以说你可见它未来的疯狂得有多可怕啊。政治、媒体、经济，就是你最后看到就是”宇宙无限大，地球是一粒沙”中的咱这粒“沙”跟它挑战，谢谢。
+让中国人看一看，你们拥有一个14亿奴隶的中国共产党，这种流氓政权，我们啥也没有，我们是被你们定为，郭骗子、郭强奸、郭三秒的一帮疯子，是吧，我们救多少人，我们是疯子、是骗子、是三秒，我们要救人，你说跟这有啥球关系呢，我会让中国人看到，到底儿是谁在心疼中国人，谁在爱中国人，你觉得在这个时候说，个人信息重要不要被我们骗，我们要你任何人信息了吗？要信息我们当饭吃？你见过一个人拿着几百万、几千万美元，冒着生命危险到战场上要你的个人信息？那不是疯了嘛，在乌克兰战场的人，你把你的信息给共产党，看它能不能救你出去，你把你的信息给俄罗斯，看它能不能救你出去，整个乌克兰现在俄乌战争，最恨的什么人？中国人，在大街上在周围国家，一说中国人我们不接，中国人混到这份儿上，人家打仗，咋恨你呢？，就这时候还撒谎，还个人信息呢。
 
-字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
-
-编辑整理：Jacques；
-
-字幕档制作：兵嫂；
-
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+什么叫战争知道吗？战争是人的生命、安全、人权第一，这时候你还搞政治宣传，最终结局是什么？现在最起码全世界人民，不再相信习近平和共产党，中国共产党里面没人相信习近平，更重要的是习近平谁也不相信，就像全世界不相信普京，普京不相信身边任何人一样，这就是人类大变了。
 
  
 

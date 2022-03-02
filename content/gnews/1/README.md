@@ -2,34 +2,41 @@
 ---
 
 
-## 福克斯：总统将宣布&#8221;普京是错的，我们已经准备好了&#8221;
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2091242/)
+## 拜登政府派代表团前往台湾以示支持
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2091282/)
 
-素材：波士顿五月花Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-02-at-8.38.02-AM.png)图片来源：互联网
-拜登总统定于星期二晚上向全国发表讲话，并计划说美国针对俄罗斯总统弗拉基米尔-普京入侵乌克兰，美国已经 “准备好了”。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-“纵观我们的历史，我们已经学到了这个教训–当独裁者不为他们的侵略行为付出代价时，他们会造成更多的混乱，”拜登的讲话摘录中写道。”他们会继续行动，而且，对美国和世界的代价和威胁将不断上升。”
+整理：围剿维尼熊
+编辑：文泓
 
-“这就是为什么二战后，为确保欧洲的和平与稳定而创建北约联盟，”拜登的讲话继续说道。”美国与其他29个国家一起是一个成员。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-11.png)图片来源：Greenwichtime & 雅典娜设计组
 
-拜登将宣称，”美国的外交很重要”，”普京的战争是有预谋的，是无端的”。
-“他拒绝了外交方面的努力，他认为西方和北约不会回应，”讲话中写道，”而且，他认为他可以在国内分裂我们。”
 
-“普京错了，”总统将宣布。”我们已经准备好了。”
-拜登的第一次国情咨文演讲是在普京入侵乌克兰，拉开了二战以来欧洲最大的陆地战争的序幕之后。[（1）](https://www.foxnews.com/politics/state-of-the-union-biden-say-ready-russia-invasion-ukraine)
+当地时间3月1日，多家媒体报道，美国拜登政府派遣的一个由前高级国防官员和安全官员组成的代表团，已于周二抵达台湾，这表明在中共国迫在眉睫的威胁下，台美双方加强了沟通。
 
-白宫办公厅主任罗恩-克莱恩周二拒绝透露美国总统乔-拜登是否会在今晚的国情咨文演讲中宣布任何针对俄罗斯的 “具体军事步骤”，他在采访中告诉CNN的沃尔夫-布利策，拜登将强调，”他所组建的是一个前所未有的联盟–北约加上我们的欧盟伙伴、英国、加拿大、澳大利亚、日本–来做两件事：提供各种援助…也会一起对俄罗斯这样的大国进行空前的制裁。”
+此次访问由曾任美国参谋长联席会议主席的迈克·马伦率领五人代表团，在为期两天的访问期间代表团将会见蔡英文总统等台湾高级官员。台湾外交部长吴钊燮在台北松山机场迎接他们，并与小组成员撞肘。这次访问正值俄罗斯入侵乌克兰、台湾加强戒备之际。
 
-“所以，你今晚会听到总统谈论的是他帮助组建的这个联盟，他领导组建的这个联盟，”克莱恩告诉沃尔夫，”以及下一步进一步收紧对那些支持普京、从普京政权中受益的寡头的制裁，还有下一步向乌克兰人提供人道主义和军事援助。”[（2）](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-03-01-22/index.html)
+蔡英文办公室表示，代表团是由美国总统拜登任命的，此次访问将“就台美各领域合作问题深入交换意见”，台湾希望双方“继续深化台美关系稳步发展，继续共同维护地区和平稳定，继续共同为世界和平与繁荣作出贡献”。
 
-参考链接：[（1）State of the Union: Biden to say ‘We were ready’ for Russia’s invasion of Ukraine](https://www.foxnews.com/politics/state-of-the-union-biden-say-ready-russia-invasion-ukraine)
+台湾政府周一表示，把台湾的情况与乌克兰的情况联系起来是不合适的，指责有人借机炒作所谓的“今日乌克兰，明日台湾”言论。
 
-[（2） White House: Biden will highlight “unprecedented coalition” against Russia in State of the Union address](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-03-01-22/index.html)
+台湾行政院发言人罗秉成说，台湾与乌克兰情势完全不同，包括台湾具国际地缘政治“重要性”、地理环境有200公里海峡区隔“特殊性”，及高科技产业居国际供应链“关键性”等三大显著差异。两者不能相提并论。
 
-* * *
+参考链接：
 
-*编辑&发布：Vicky*
+1、[拜登派前国防高官前往台湾以示支持](https://www.dw.com/zh/%E6%8B%9C%E7%99%BB%E6%B4%BE%E5%89%8D%E5%9B%BD%E9%98%B2%E9%AB%98%E5%AE%98%E5%89%8D%E5%BE%80%E5%8F%B0%E6%B9%BE%E4%BB%A5%E7%A4%BA%E6%94%AF%E6%8C%81/a-60947528)
+
+2、[Former top US defense officials visit Taiwan amid tensions | AP News](https://apnews.com/article/china-taiwan-mike-pompeo-tsai-ing-wen-joint-chiefs-of-staff-ef5f97eb86d61a011576e09523295ca2)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

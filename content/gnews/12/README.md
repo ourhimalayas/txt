@@ -2,22 +2,44 @@
 ---
 
 
-## 斩首中南海7人，解放全人类
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2091054/)
+## 伦敦三案齐立打消UBS伦敦丢块肉在瑞士本部作战计谋
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2091113/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+G-TV视频链接：https://gtv.org/video/id=62164d3f1408ee3a03a3c90d
 
-2月27日，郭文贵先生于GTV和Gettr大直播中透露，在回答美国人提问“什么事情对美国是最有利的”时说，把中南海的7人灭掉，或者迫使中共内部把这7人灭掉。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/103d4907f24481e5cda37bb7b998de1e.jpg)图片来源avionews
+**郭文贵先生：**你想想现在这个在英国三案齐立呀，这里边儿有三个案子啊——down state、estate、Miles Guo这三个不同的独立法庭。人家UBS一上来就说：哎哎哎，这个down state的事我就不管了，你可以在英国管，但是estate还有Miles Guo这个事儿到瑞士去，就是我让你在英国拿点儿钱给你个几亿美元，然后到瑞士去我把你给灭了，我让你拿不着、只要你跟我妥协，因为瑞士我说了算。你看它有多夸张啊！
 
+接下来你想想这个打架呢是吧？现在我已经做好了给你一大块儿肉，你要一块儿肉我给你一只牛，你要一只牛我给你一个农场，我都做好给你了，但是我要让你保证不能找到我的秘密。
 
-一旦习近平开启对台湾的战争，世界顺势会把超发的巨额法币泡沫让渡给中国人民承担，继而8国或者16国联军全面反攻灭共，最后是全球共同灭共。但是中国人民将会付出沉痛的代价，中华民族可能在未来的30年、甚至50年都是全球最不受欢迎的族类。
+就这英国、法国最后决定：不行，全在这儿。这下傻眼了、全傻眼了，这三个全在这儿。所以说你可见它未来的疯狂得有多可怕啊。政治、媒体、经济，就是你最后看到就是”宇宙无限大，地球是一粒沙”中的咱这粒“沙”跟它挑战，谢谢。
 
-而制止台湾战争最好的方法就是斩首中南海的7人，或向中共内部放话，凡是能斩首这7人挽救民族危局的人将获得万亿的奖励，凡是制止邪恶参与斩首的人，一律获得全家移民美国资格并获得美国终生保护，甚至美国将赋予永久产权土地。
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-这样中共也不必去攻打台湾，台湾和大陆也不需要有任何无谓的牺牲，美国也不会因卷入战争而有人死亡，还能最大限度地避免世界经济的崩塌。届时，台湾、香港人民得解放，新疆、西藏人民得解放，中国人民全部获得自由解放。45亿人亚洲人都会感激美国，美国拯救的可能是几亿人的生命。剩下的中东、非洲、拉丁美洲，也都会从此永远告别共产党。对于美国来说，美国会成为世界上真正的让人尊重的和平的力量，重新维持以美国为中心的世界秩序。
+编辑整理：Jacques；
 
-据悉，事情正在进行中。但是，最好的避免战争的方式还是备战。
+字幕档制作：兵嫂；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

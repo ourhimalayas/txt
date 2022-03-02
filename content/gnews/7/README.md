@@ -2,151 +2,81 @@
 ---
 
 
-## 微信、抖音等中共软件是如何充当间谍软件的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2091118/)
+## 前中央情报局官员：普京“大规模情报失败”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2091201/)
 
-[https://gtv.org/video/id=621df0fc4353d33974c44643](https://gtv.org/video/id=621df0fc4353d33974c44643)
+[https://gtv.org/video/id=621df21c4353d33974c44689](https://gtv.org/video/id=621df21c4353d33974c44689)
 
-所以马化腾这个微信
-Por eso WeChat de Ma Huateng
+Scott Uelingher (CIA Operations Officer)
+斯科特·乌林格（中央情报局行动官）
 
-能在西方开通, 能在这流行
-Puede ser circulado y popularizado en el occidente
+I think that right now, Putin is contemplating
+我认为现在，普京正在考虑
 
-你真的觉得西方真是让人大跌眼镜的
-Realmente ¿crees que el occidente es alucinante?
+what is a Russian massive intelligence failure
+这就是俄罗斯大规模情报失败的原因
 
-真的是个人都知道它是共产党的情报软件
-Cualquiera que sea persona sabe que este es un software de inteligencia del Partido Comunista
+when it comes to the attack on Ukraine
+当谈到对乌克兰的袭击时
 
-你只要下载了微信
-Tan sólo descargas WeChat
+Now, that’s not to say that this war
+现在，这并不是说这场战争
 
-你下载了什么知乎这种软件
-Si descargas la aplicación como Zhihu
+that this operation the Russians have undertaken will not ultimately be successful
+俄罗斯人进行的这次行动最终不会成功
 
-你只要上中国百度获着香港凤凰网
-Si accedes a Baidu de China para obtener la Red Phoenix de Hong Kong
+However, there have been a huge amount of intelligence errors made
+然而，已经出现了大量的情报错误
 
-手机, 你手机就废了
-El celular, tú celular será muerto
+First of all, I think Putin has fallen into the spell
+首先，我认为普京已经陷入了魔咒
 
-你走到天涯海角
-Así vayas al extremo de la tierra
+that a lot of dictators have after many decades
+许多独裁者在几十年后
 
-你开机关机它都知道你在哪
-Esa cosa lo sabrá, esté prendido o apagado el celular
+and that he starts to believe his own propaganda
+并且他开始相信自己的宣传
 
-而且是自然报告
-Y le informa de manera natural
+He convinced himself that the Ukrainians will be a rollover operation
+他说服自己，乌克兰人将被吓跑
 
-在北京的西山, 西山的西部在凤凰岭
-En Xishan de Beijing, al oeste de Xishan en Fenghuangling
+much like Georgia in the past
+很像过去的格鲁吉亚发生的一样
 
-那是几十万人就盯着美国的手机
-Son cientos de miles de personas mirando teléfonos celulares de Estados Unidos
+or even parts of Syria were where the Russian forces met with success after success
+甚至叙利亚的部分地区都是俄罗斯军队取得了一次又一次的成功
 
-美国的所有手机他都能监听, 一点秘密都没有
-Pueden monitorear todos los celulares de EE. UU, no existen secretos
+This has not happened, and this is also allowed
+在乌克兰没有发生，这也是允许的
 
-所以说微信是一个技术的武器
-Por eso WeChat es un arma tecnológica
+This is also exposed the weak part of the Russian military
+这也暴露了俄军的薄弱环节
 
-叫技术网路核武器
-Se llama tecnología cibernética nuclear
+and that is logistics, tanks running out of fuel
+那就是后勤，油箱耗尽燃料
 
-你谁沾就是自作死亡
-Quien la toca será un suicidio
+Everything seemed predicated on a massive blitzkrieg
+一切似乎都基于一场大规模的
 
-第二, 现在只要共产党的软件
-Segundo, ahora sólo el software del Partido Comunista
+that would decide things in 72 hours and when that didn’t happen
+将在 72 小时内完成的闪电战，而当这没有发生时
 
-美国, 印度各国已经公告过了
-EE. UU e India y otros países ya han anunciado
+Then we have the situation that Russia is in right now
+我们看到俄罗斯现在的情况
 
-所有中国软件都不安全
-Todos los softwares de China son inseguros
+原视频链接[https://twitter.com/newsmax/status/1498040672053510151?s=24](https://twitter.com/newsmax/status/1498040672053510151?s=24)
 
-但你要用, 你觉得他啥都知道了
-Si lo vas a usar, si crees que ya todo lo sabe
+Date:02/28/2022
+原视频标题: Ex-CIA officer: Putin had a ‘massive intelligence failure’
+前中央情报局官员：普京“大规模情报失败”
+原视频日期：2022/02/28
+原视频链接https://twitter.com/newsmax/status/1498040672053510151?s=24
+任务编号：KE430（3887）
+视频时间段 : 0:00-1:01
 
-你觉得你个人信息还重要吗
-¿Crees que seguirá siendo importante tus informaciones personales?
-
-因为微信在全世界打开你手机视频
-Porque WeChat abrirá el video de tu celular en todo el mundo
-
-就给你啪就是你的视频给你打开
-De una vez lo abre
-
-它可以缓打
-Puede ralentizar
-
-缓打啥意思你知道吗
-Qué significa ralentizar, ¿lo sabes?
-
-自动的它给你录下来
-Graba automáticamente
-
-而且定期的传到云数据
-Y sube regularmente los datos a la nube
-
-由于它一直录, 数据太大
-Como sigue grabando sin cesar, los datos son demasiado grandes
-
-它就把它想要的东西
-Entonces ésta toma lo que quiere
-
-涉及到, 比如说我说到微蓝
-Cualquier cosa que involucre, por ejemplo, cuando mencione a Weilan
-
-我说到神奇四侠, 它不录
-Si yo hablo de Los 4 Fantásticos entonces no lo graba
-
-我说神奇四侠脱光屁股, 它就录了
-De lo contrario, si digo “Los 4 Fantásticos se desnudaron”, ahí si grabará
-
-微蓝搞搞双修就录了
-Si “Weilan está teniendo relaciones sexuales”, grabará
-
-它自动就给你传到云数据去
-Este será automáticamente subido a los datos en la nube
-
-然后老马是坏蛋它就录了
-Luego “Laoma es un ser malo”, lo graba
-
-老马是好人不录
-Laoma es una buena persona, no lo graba
-
-就是敏感筛选是自动录上
-Es decir, la detección sensible se registra automáticamente
-
-你说这样得多恐怖
-Mira lo temeroso que es
-
-你手机你以为你关机了
-Crees que apagaste tu celular
-
-但它一直在一个敏感的数据状态下
-Pero siempre está bajo un estado de datos sensibles
-
-你还能安全吗
-¿Sigues siendo seguro?
-
-日期：02/25/2022
-原视频标题：微信、抖音等中共软件是如何充当间谍软件的
-Cómo WeChat, TikTok y otras aplicaciones del PCCh actúan como spyware
-
-**原视频网址：**[https://gettr.com/post/pvnb3j1760](https://gettr.com/post/pvnb3j1760)
-
-原视频日期：02/20/2022
-原视频网址：https://gettr.com/post/pvnb3j1760
-任务编号：KC471（3816）
-视频时间段：0:00-02:05
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+英听校: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
 字幕+视频制作：洛杉矶盘古农场-天涯行
 审片：洛杉矶盘古农场-银龙
 发布：洛杉矶盘古农场 –彩虹 Rainbow
