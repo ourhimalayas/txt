@@ -2,38 +2,38 @@
 ---
 
 
-## 新中国联邦展开紧急行动救援乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2095413/)
+## 利用一切黑科技让俄罗斯人内部瓦解
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2095580/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月1日，郭文贵先生在盖特平台上发布消息称，新中国联邦在乌克兰的救援行动感动了世界，战友们的行动远远超过中共的所作所为。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1.jpeg)
+2022-02-27直播摘录
 
-郭先生解释道，在此次乌克兰的救援行动中，新中国联邦与世界上很多国家和机构建立了对等合作和相互信任的关系。此外，许多其他友好力量也开始了与新中国联邦的合作。
+有一家人啊，他和他的舅舅这个全家都到了乌克兰，这个痛苦万分。他说我给我们领导组织上发信息，领导说：“马上救你们啊，联络联络，啊！就是联络联络信号不好！信号不好！哎！没了！” 是吧，找不着了。第二天醒来的时候，这个战争已经开始了。他说这个非常凄惨，他说你看我这是从美国我回到了中国，十几年效力，我这孩子长大，孩子也来到了乌克兰，就是搞这个大飞机技术的啊。这个关键时候不但不救我们，还这样甩我们。而且说战略需要，你应该呆在乌克兰，观察战争，还给一堆命令。就你死你活跟本没关系，用死你。啊，这个邪恶的共产党就是你，你用什么样的词儿来形容中共那个不要脸已经没法形容了。就像“锁链女”弄成这个俩人的名字，“驴唇不对马嘴”。他能把卡丽熙变成好好先生，好好先生变成卡丽熙，然后他义正词严。你这简直是疯狂的。所以他说：“我现在我是伤透了心，我死都不会回中国。“那么他其中就就谈到说：“七哥，乌克兰这次信息战打的是真好，社交媒体是用的真好，而且他们特别厉害。”
 
-郭先生还提到，乌克兰某团体这次也向新中国联邦发出了求救，随后，新中国联邦毫不犹豫的肯定答复和完全不求任何回报的行为让乌克兰人民极为感动，也让世界看到了新中国联邦的大爱精神。
+你知道俄罗斯人用什么社交媒体啊？主要是Telegram，还有Facebook，他们推特很少的。然后这个俄罗斯人接受的信息，包括LAM他们也用，现在用的也不少。那么整个泽连斯基这个哥们儿聪明在哪儿了？花了很少的钱把乌克兰的优势用起来了，所有跟乌克兰有关系的工程师们发动起来，你们要利用一切黑科技让俄罗斯人内部瓦解，让全世界看到我们。这个时候大家就发现就是人心呐它太重要了。你打人家家去，你把人家家都毁掉的时候，乌克兰那工程师他在哪的人他也得上啊，是吧。就像我们在喜联储的这些乌克兰人说：“你们一定要给我们特权，我们在这时候我们要以我们国家民族利益为重。” 不上班你也得怎么着怎么着。人家喜联储做出决定：“你不来上班，工资照发。” 你这是人家保保家卫国呢，是不是，这时候你肯定这么做呀。
 
-郭先生也补充道，新中国联邦用事实和实力向世界证明，我们是真的在救人。目前，乌克兰境内唯一可信赖的、来自中国人的声音，就是新中国联邦发出的救援信号。
+在这种情况下你看看，特别是欧洲，SWIFT在清除这个事儿上你注意到了细节了吗？呼吁SWIFT清除的最多是什么媒体？社交媒体。主流媒体基本不敢说。七哥是唯一一个在这呼吁说你不搞这SWIFT你就是完蛋的，而且影响特别大。你去看看，你们没有注意到你上俄罗斯媒体、意大利媒体，很多媒体都在把我的话翻译迅速传播。也就是十几分钟，我这边直播，那边就大量传播。而且所有的欧联盟的人给我发信息说：“Miles，你刚才直播……” 什么土耳其人都发信息，哇塞! 都收到了！你看他们多会用啊。说一个人家Miles Guo都说了，你们根本就是孬种，你为啥不掐他SWIFT，掐他就完蛋了。再一个一万多亿的这个俄罗斯的富豪资产全在这个地中海，你为啥不采取措施?
 
-眼下，新中国联邦对乌克兰的紧急救援行动正在战友们地努力下快速而有条不紊地进行着。
+你看他们的社交媒体用到什么极致，咱新中国联邦要好好学习。七哥，就是咱现在还没有战争呢，我直播完最起码得半小时、俩小时，甚至几个小时以后才出去。你跟人家不差远了吗。好好先生说我现在传播爆料革命是吧——推流。你推流是你的技术，推流是要传播信息。什么样的信息要马上传出去啊？
 
-参考链接：[2/28/2022 文贵盖特](https://www.gettr.com/post/pxhex43bfc)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+**关注我们**
 
-总编：Irene木木
-编辑：Ivy001
-校正/发稿：谐趣园
+Discord 账号
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

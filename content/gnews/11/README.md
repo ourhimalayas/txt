@@ -2,42 +2,32 @@
 ---
 
 
-## 新数据显示COVID疫苗对年轻人只有风险没有好处（1/3）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2095456/)
+## 战争心理学
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2095608/)
 
-翻译：Jenny Ball
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-209.png)图片来源：childrenshealthdefense.org
+2022-02-27直播摘录
 
-根据斯蒂芬妮·塞内夫（Stephanie Seneff ）博士和独立研究员凯西·多普（ Kathy Dopp ）的成本效益分析，对于 80 岁以下的人来说，COVID-19 疫苗比 COVID 病毒本身更致命，并且，对儿童和年轻的成年人提供的只有风险。
+就像咱们爆料革命跟共产党一样，七哥一出来爆料用了一招 “保命、保财、报仇”，很多人看不出这里的情况。中国人多少人想报仇啊，想报仇人多少？我第一天说 “干倒共产党”，完了，完了，完了，我说你疯了吧。就像那个报道我——就疯狂、滑稽，就是觉得咱们……因为美国人才刚刚认识到我们爆料革命，他就给你定义，你干共产党就像我家客厅被宣布“我的主权”一样。一个记者叫什么Madden John那个傻叉是吧，愚蠢的货，他懂个屁啊是不是。他觉得他家客厅宣布主权一样，他根本不知道我们过去干了啥，不知道我们现在共产党多怕我们，他不知道为什么盘古 “龙头” 变成 “龟头”了。因为他无知，他是在酒杯里边在见世界。所以当时第一天我说出的时候，保命！谁不想保命？ 你告诉我，当时所谓的说反腐败罚了一百万人；保财！谁不捂Z住自己的钱包？谁不捂着自己的脑袋你告诉我？报仇！你捂着脑袋、捂着钱包的时候不会想想是谁让我抱脑袋报仇的？当然是共产党啊！那就找共产党，还用说吗？是吧？这就是一个战争心理学，你必须具备的素质。
 
-故事概览：
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-- 最近的数据分析显示，对于 80 岁以下的人来说，COVID 疫苗比 COVID-19 病毒本身更致命。对于年轻人和儿童来说，没有好处，只有风险。
+**关注我们**
 
+Discord 账号
 
-- 与未接种疫苗的人死于 COVID-19 的风险相比，所有 50 岁以下的年龄组，在接受 COVID 疫苗后死亡的风险更大。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-- 对于 18 岁以下的人，COVID 疫苗会增加他们死于 COVID-19 的风险。如果接种疫苗，他们死于疫苗的可能性也比死于**COVID**病毒的可能性高**51 **倍。
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-
-- 只有当您进入 60 岁及以上时，疫苗和 COVID 病毒感染之间的风险才会变得差不多。在 60 至 69 岁的年龄组中，疫苗注射每挽救一个死于 COVID 的人，就会杀死一个人，因此，对于任何人来说，疫苗是否值得，这是一个争论。
-
-
-- 数据表明，向 VAERS 报告的美国死亡人数被低估了 20 倍。
-
-
-详细新数据分析，请见下文。
-
-素材链接：[childrenshealthdefense.org] [COVID Vaccines: All Risk, No Benefit for Kids and Young Adults, New Data Show](https://childrenshealthdefense.org/defender/covid-vaccines-all-risk-no-benefit-kids-young-adults/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=802493ff-397e-46d1-8d8c-f5b50cb8275d)
-
-* * *
-
-*审核：文乐
-校对：小东
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

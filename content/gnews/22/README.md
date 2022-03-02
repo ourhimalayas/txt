@@ -2,32 +2,38 @@
 ---
 
 
-## 2022/02/28 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2095169/)
+## 新中国联邦展开紧急行动救援乌克兰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2095413/)
 
-1. 2月27日，中国闹市街头高举反战标语牌的中国人，此举在中共国有生命危险。中国共产党支持战争，中国人民不支持！ 中共≠中国人
-2. 2月27日，广东全域，中共政府以凶残疫情爆发为借口，更严格封锁着小区和村落。10米一个的防控关卡，将网格化管理策略执行的更加彻底。   戒备的加强，是为中共攻打台湾做准备？
-3. 2月27日，中共随意执行的区域化封锁政策，只为限制市民出入，百姓生死不在其考虑范围内。
-4. 2月25日，广东深圳。外卖小哥们因担心随时会封村无法回家，便自带被子在餐车上出门送餐。
-5. 2月27日，湖北武汉。因疫情居家隔离。社区要求一个家长陪同孩子，另外一个家长出去租房子住，为了可以给被隔离家人送生活日用品。
-6. 2月27日，湖北武汉。中共荒唐的疫情政策有意引导社会互斗。一位老爷爷因没法出示健康码，按照中共政策导致全车人员都将无法再移动。
-7. 2月27日，路人拍下养老院老人向其索要食物的一幕，老人怕路人看不懂一直焦急地比划着！
-8. 2月26日，路边手拿病历的病人，崩溃的对着电线杆咆哮，不清楚她遇到了怎样的压力。
-9. 2月25日，湖北武汉。老人拿老伴的丧葬费，给儿女们购买了商铺。承诺返租金未兑现，每月还贷压力大。本想减轻儿女的压力，现在反成了负担。
-10. 2月24日，河南信阳。高中老师深夜查寝，晚上十一点学生们都还在宿舍学习。
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月1日，郭文贵先生在盖特平台上发布消息称，新中国联邦在乌克兰的救援行动感动了世界，战友们的行动远远超过中共的所作所为。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1.jpeg)
 
-* * *
+郭先生解释道，在此次乌克兰的救援行动中，新中国联邦与世界上很多国家和机构建立了对等合作和相互信任的关系。此外，许多其他友好力量也开始了与新中国联邦的合作。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+郭先生还提到，乌克兰某团体这次也向新中国联邦发出了求救，随后，新中国联邦毫不犹豫的肯定答复和完全不求任何回报的行为让乌克兰人民极为感动，也让世界看到了新中国联邦的大爱精神。
 
+郭先生也补充道，新中国联邦用事实和实力向世界证明，我们是真的在救人。目前，乌克兰境内唯一可信赖的、来自中国人的声音，就是新中国联邦发出的救援信号。
 
-编辑：【英国伦敦喜庄园编辑部】
+眼下，新中国联邦对乌克兰的紧急救援行动正在战友们地努力下快速而有条不紊地进行着。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+参考链接：[2/28/2022 文贵盖特](https://www.gettr.com/post/pxhex43bfc)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
+总编：Irene木木
+编辑：Ivy001
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

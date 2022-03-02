@@ -2,28 +2,48 @@
 ---
 
 
-## 习近平和普京已变成孤家寡人
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2095168/)
+## 基辅市长称城市被包围，后来又收回了这一说法
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2095304/)
 
-撰稿：紐約磐石农场-在远方
+**评论：***致敬乌克兰人“我没有别的选择，我必须这么做，我将进行战斗。”*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7300E44E-E413-4F81-B5CC-8EC2EE33000A.jpeg)
+据《华盛顿观察家》 作者：克里斯托弗-赫顿，2022年2月27日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-207.png)基辅市长表示，该市已被俄罗斯军队包围。
+市长维塔利-克里琴科最初声称，该市已被包围，他们已无法从该市疏散平民，只是后来又否认了这一说法。
+
+克里琴科周日告诉美联社：“我们不能这样做，因为所有的路都被封锁了，现在我们被包围了。”
+
+据《基辅独立报》报道，克里琴科的发言人后来否认了基辅被包围的说法。该发言人称，这一说法是“谎言和操纵”。
+
+这位乌克兰市长还表达了对食物和水的担忧。他说：“我们正处于一场人道主义灾难的边缘。现在，我们有电，现在，我们的房子里有水和暖气。但是运送食物和药品的基础设施被破坏了。”
+
+星期四，基辅市长引起了人们的注意，他告诉ITV的《早安英国》节目，他将与该市的居民和士兵一起战斗。
+
+这位前世界重量级冠军说：“我没有别的选择，我必须这么做，我将进行战斗。”
+
+欧洲官员对普京针对基辅的行动表示关切。
+
+不过，他们认为，如果基辅能以入侵中挺过星期一，这是一个值得注意的胜利。
+
+文章观点仅代表作者个人，与Gnews平台无关。
+
+文章来源: [https://www.washingtonexaminer.com/news/kyiv-mayor-city-is-surrounded-making-evacuation-impossible](https://www.washingtonexaminer.com/news/kyiv-mayor-city-is-surrounded-making-evacuation-impossible)
+
+翻译：洛杉矶盘古农场 – Mike Li
+
+校对：洛杉矶盘古农场 -轰炸机
+
+评论：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
 
 
-```
-3月2日，郭文贵先生发布盖特视频称，全世界已经不再相信习近平和普京，新中国联邦将要在乌克兰战火中拯救更多的人。
-```
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-郭先生说，习近平和普京已经变成了孤家寡人，不仅全世界和他们的手下不相信他们，而且他们也不相信任何人。相反，全世界却越来越信任新中国联邦，这就是人类的巨大变化。新中国联邦是灭共以后，一人一票选出中国政权的推动者，我们永远不会参政，我们只会拯救和唤醒中国人。
-现在乌克兰还有许多被中共洗脑的国人，所谓要保护好护照和个人信息，却不敢让新中国联邦进行救援。就像克拉玛依大火中的“让领导先走”一样，中共官员把在乌克兰的亲属和重要关系都救走，却放弃普通国人不管。中共把无数国人变成无知的可怜人，导致俄乌战争中最恨的却是中国人。
-郭先生说过强制疫苗将会停止，现在已经完全应验。也早就说过世界将会大变，而2022年3月是一个重要节点。但无论如何，救人将是目前新中国联邦的首要任务。
-
-新闻鏈接：[https://www.gettr.com/post/pxn3og100d](https://www.gettr.com/post/pxn3og100d)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/21E9097A-7DE8-41D8-A7FB-10E9B20149FA.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/E85C224F-3AD8-4074-AE29-F038E0E4E220.jpeg)
-编輯/校正/发稿：玫瑰圓
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/F01840EA-D1C1-4530-9463-786C92E492B0.jpeg)
+[https://discord.gg/2vuvRm7z6U+2](https://discord.gg/2vuvRm7z6U+2)
 
  
 
