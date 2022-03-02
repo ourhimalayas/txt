@@ -2,79 +2,159 @@
 ---
 
 
-## 《避风港HAVEN》直播内容精选（第十三集 上）
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/2090927/)
+## 微信、抖音等中共软件是如何充当间谍软件的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2091118/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/UNADJUSTEDNONRAW_thumb_b766.jpg)
-[**2022-2-19《避风港》第13集直播视频回放：人类将很快进入疫苗后艾滋病时代**](https://gtv.org/video/id=62114d19b706176dd78d719d)
+[https://gtv.org/video/id=621df0fc4353d33974c44643](https://gtv.org/video/id=621df0fc4353d33974c44643)
 
+所以马化腾这个微信
+Por eso WeChat de Ma Huateng
 
+能在西方开通, 能在这流行
+Puede ser circulado y popularizado en el occidente
 
-## 风起云涌
-![](https://assets.gnews.org/wp-content/uploads/2022/03/避风港13上-新闻PPT-加拿大萨省免费发放HIV测试盒.gif)
-加拿大萨省免费向公众发放HIV自检试剂盒，西欧国家如比利时、荷兰也有相同举措。最近关于HIV的集中报导表露出一些与疫苗相关的风向……
-![](https://assets.gnews.org/wp-content/uploads/2022/03/避风港13上-新闻PPT-2-艾滋与疫苗.gif)
-英国卫生部门关于疫苗接种者在接种后36-40周的血液免疫细胞随访报告，显示出COVID疫苗正在破坏每个接种者的免疫系统。英国PHE疫苗监测报告数据表明，接种两针的40-70岁的人，已经失去了40%的免疫系统能力，他们的免疫系统以每周5%的速度恶化，如果该情况持续下去，30-50岁的完全接种人群将会出现100%的免疫系统退化……
-《避风港HAVEN》第13集 “风起云涌”精华节选
+你真的觉得西方真是让人大跌眼镜的
+Realmente ¿crees que el occidente es alucinante?
 
+真的是个人都知道它是共产党的情报软件
+Cualquiera que sea persona sabe que este es un software de inteligencia del Partido Comunista
 
-## 风雨同舟
+你只要下载了微信
+Tan sólo descargas WeChat
 
-**威廉王：**自疫情以来Eglise医生不厌其烦地为全球战友进行问诊答疑，做了海量的工作，成功救治了很多战友，包括战友的家人和朋友。Eglise医生想通过这个节目，把一些典型病案和有价值的经验信息分享给大家，希望能够帮助到更多的人。
+你下载了什么知乎这种软件
+Si descargas la aplicación como Zhihu
 
-### 病案分析：
+你只要上中国百度获着香港凤凰网
+Si accedes a Baidu de China para obtener la Red Phoenix de Hong Kong
 
-**病案1**
-问：我姐姐感染病毒后2个星期了，感染后第一时间就用伊维菌素和去氧土霉素7天，然后按预防方法服用，但是一直咳嗽，痰很多，昨天看医生检测结果是阳性。医生给开了五天的阿奇霉素。请问，您我姐姐现在还是按治疗B方案服用吗？因为她已经服用了7天的伊维菌素和去氧土霉素。现在又在吃医生开的阿奇霉素。我姐姐担心抗生素药吃的太多，麻烦您给个建议。
+手机, 你手机就废了
+El celular, tú celular será muerto
 
-答：这位姐姐的直觉是对的，抗生素吃的太多了，**不论阿奇霉素还是土霉素的衍生物都是在急性期的时候对抑制RNA病毒的复制有辅助作用**，对于急性期之后效果就很差，她感染两周后已经过了病毒的复制期，进入了病毒碎片引起的细胞炎症因子的增加和释放所带来的症状，应该用药抑制免疫过激反应，根据他症状可以用地塞米松或者强地松，做5到7天的抗细胞炎症因子治疗。
+你走到天涯海角
+Así vayas al extremo de la tierra
 
-**病案2**
-问：我女儿今天检测阳性，请专家们赐教如何尽快治愈？
+你开机关机它都知道你在哪
+Esa cosa lo sabrá, esté prendido o apagado el celular
 
-答：按照儿童治疗方案，不同年龄治疗有用药的差异，要找到她年龄阶段的用药。如果是12岁以上孩子，你可以用成人用的药，减量服用，如果是12岁以下的，也有适当的抗病毒复制的药，可以用到伊维菌素或者硫酸羟氯喹，减量服用。 **孩子并不是最大隐忧，家里的老人和成人现在就应该按照治疗用药来进行预防，因为家里有一个阳性的感染者，特别感染奥密克戎病毒，肯定会传染到家里的人**，所以现在预防性用药是有好处的，虽然你现在没有症状，但几个星或几个月后可能会留下后遗证，刺突蛋白进入体内一定时间后就会引起症状。所以现在开始家里的老人和成人一定要开始用药。
+而且是自然报告
+Y le informa de manera natural
 
-**病案3**
-问：7哥之前直播中说到被病毒感染过的，有很高机率得癌，需要吃青蒿素和伊维菌素可以100%避免，我家里孩子有感染过，我给他们买的下面的这种青蒿素滴液可以吗？孩子年纪是7岁和8.5岁 ，伊维菌素用黑孜然籽油软糖给孩子代替可以吗？
+在北京的西山, 西山的西部在凤凰岭
+En Xishan de Beijing, al oeste de Xishan en Fenghuangling
 
-答：**对于幼儿，建议服用营养素**，副反应小，家长应给他们换算服用的有效剂量。需要及时调整剂量，太少的剂量就会效率低，太多就有毒性。 因为**青蒿素有一定的肝毒性，特别是对于12岁以下青少年，需要谨慎**。不建议给七八岁的孩子用软糖类药物或营养素，直接服用药片效果更好，五岁以下的孩子因为吞咽有困难，可以考虑软糖之类的。对于剂量，完全由家长来掌握，如果孩子症状重，可以适量使用，但是要注意观察反应。
+那是几十万人就盯着美国的手机
+Son cientos de miles de personas mirando teléfonos celulares de Estados Unidos
 
-**病案4**
-问：被病毒感染过的成人和孩子，如何通过伊维菌素或者青蒿素来清除感染过的身体？
+美国的所有手机他都能监听, 一点秘密都没有
+Pueden monitorear todos los celulares de EE. UU, no existen secretos
 
-答：这是经常被问到的问题，现在**在没有药用青蒿素来排疫苗毒的情况下，按我们更新的病毒预防方案——孩子和成人都有——再加上青蒿素保健品**，孩子12岁上完全可以放心使用青蒿素保健品来排毒，**服用一段时间，停一段时间**，间歇性给药，这是目前最可行的病毒预防和排毒方案。
+所以说微信是一个技术的武器
+Por eso WeChat es un arma tecnológica
 
-当然能找到药用的青蒿素，如青蒿琥酯，青蒿甲醚或双氢青蒿素，那就再好不过了，因为它排毒应该是最直接最好的，但也**不能长期服用，请按抗疟的说明书服用**。**服用青蒿素衍生物药的同时，建议监控肝功能**，在2或3疗程之间做一个肝功能查检，如果肝转氨酶升高就必需停药休息，如果正常可以继续，**一个疗程休息10天或两个星期再进行下一个疗程**。因为不同疫苗刺突蛋白数量不同，所以无法明确的告知多少个疗程可以排清疫苗的毒，如果你**症状不是很明显可以第一年进行三次排毒，第二年两次，再后来一年排一次维持，直到医学上能有检测到体内不存在刺突蛋白的方法时**，你可以停止。
+叫技术网路核武器
+Se llama tecnología cibernética nuclear
 
-**病案5**
-我有2问题请教：
-1）我早上吃的羟氯喹+锌，那时症状不明显。现在症状明显，发烧40度。我想补吃伊维菌素和阿奇霉素，是否可以？
-2）吃药期间，是否应该停用糖尿病的药？
+你谁沾就是自作死亡
+Quien la toca será un suicidio
 
-答：这个患者本身有糖尿病，平时也在用降糖药， 他被病毒感染后，开始预防用羟氯喹和锌， 这个时候他是否要引入伊维菌素? 是的，伊维菌素应该被引入。**伊维菌素和阿奇霉素是一线的抗病毒复制药**， 他必须要服用这两种药。当然羟氯喹也可以一直按照治疗的量服用，就是五天的疗程，伊维菌素五到七天，阿奇霉素也是五天的疗程。因为增加了伊维菌素和硫酸羟氯喹，所以锌的量也要等比例增加 ，**锌是RNA病毒的抑制剂，所以少了就达不到有效抑制病毒复制的效果**。锌可能引起胃肠刺激症状，我盖特上有美国营养师协会推荐的清单，里面包含对胃肠刺激小的锌的推荐。另外**患者糖尿病用药与抗病毒用药冲突时间短**，只有伊维菌素与羟氯喹是通过肝代射的，这两者都是5到7天的短期用药，所以应该没有严重问题。
+第二, 现在只要共产党的软件
+Segundo, ahora sólo el software del Partido Comunista
 
-**病案6**
-问：我服用伊维菌素已经连续12天，前几天服用24mg，晚上出汗症状不减，最近几天吃是48mg,我体重不到50公斤，晚上稍微不太出汗，但是白天运动几下，或者吃热乎饭都出汗，为什么服用这么久，白天还开始出汗了呢？这是不是一直都不转好迹象，而且我服用药物剂量后期很大，我很担心用药过量，而且还一直都不转好，不知道现在是什么情况……有转变的是不太咳白痰了，嗓子不太痒……之前我觉体质虚弱，服药不见效，所以白天就运动一下慢慢跑步，想增强体质抗病毒，不知这样是否科学？
+美国, 印度各国已经公告过了
+EE. UU e India y otros países ya han anunciado
 
-答：奥密克戎的自然病程在不同人身上它的表现有点不一样， 这位战友有明显的盗汗症状，说明他的植物神经系统是受刺突蛋白病毒素的影响比较大，他的伊维菌素量用量太大了。典型案例: 他加大了伊维菌素剂量，并没有解决问题，只带来副作用。建议减小伊维菌素的量，增加其它营养素的量，比如黑孜然籽油和槲皮素，槲皮素大到四五倍都是安全的。建议服用地塞米松5天，每天12MG，因为这属于病毒后遗症。不建议剧烈运动，可以散步。
-因为他有微血栓存在的可能性， 所以在类固醇激素治疗五天以后，可以开始阿司匹林的服用，一般服用两周，但是他症状明显，需要治疗量服用四周甚至更长，以后可能需要过渡到用天然替代品来溶血栓。
+所有中国软件都不安全
+Todos los softwares de China son inseguros
 
+但你要用, 你觉得他啥都知道了
+Si lo vas a usar, si crees que ya todo lo sabe
 
+你觉得你个人信息还重要吗
+¿Crees que seguirá siendo importante tus informaciones personales?
 
-[**2022-2-19《避风港》第13集直播视频回放：人类将很快进入疫苗后艾滋病时代**](https://gtv.org/video/id=62114d19b706176dd78d719d)
+因为微信在全世界打开你手机视频
+Porque WeChat abrirá el video de tu celular en todo el mundo
 
-[Eglise医生关于Omicron病毒预防及治疗建议方案 – 更新版](https://gnews.org/zh-hans/1853397/)
+就给你啪就是你的视频给你打开
+De una vez lo abre
 
-[Eglise医生关于新冠預防及治療建議方案Omicron更新版（均飯後服用）](https://gnews.org/zh-hant/1853467/)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/c3c69d5a-2260-42ac-8ccb-0afa54284a38.jpg)治疗方案![omicron 预防方案](https://assets.gnews.org/wp-content/uploads/2022/01/9f90a4ad-5c07-4d1e-9259-afb28d50f076.jpg)预防方案
+它可以缓打
+Puede ralentizar
 
+缓打啥意思你知道吗
+Qué significa ralentizar, ¿lo sabes?
 
-文案：Eglise医生/万物有灵
+自动的它给你录下来
+Graba automáticamente
 
-听写/文稿整理/视频：外星人
+而且定期的传到云数据
+Y sube regularmente los datos a la nube
 
-编辑/发布：FoxRina
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
+由于它一直录, 数据太大
+Como sigue grabando sin cesar, los datos son demasiado grandes
+
+它就把它想要的东西
+Entonces ésta toma lo que quiere
+
+涉及到, 比如说我说到微蓝
+Cualquier cosa que involucre, por ejemplo, cuando mencione a Weilan
+
+我说到神奇四侠, 它不录
+Si yo hablo de Los 4 Fantásticos entonces no lo graba
+
+我说神奇四侠脱光屁股, 它就录了
+De lo contrario, si digo “Los 4 Fantásticos se desnudaron”, ahí si grabará
+
+微蓝搞搞双修就录了
+Si “Weilan está teniendo relaciones sexuales”, grabará
+
+它自动就给你传到云数据去
+Este será automáticamente subido a los datos en la nube
+
+然后老马是坏蛋它就录了
+Luego “Laoma es un ser malo”, lo graba
+
+老马是好人不录
+Laoma es una buena persona, no lo graba
+
+就是敏感筛选是自动录上
+Es decir, la detección sensible se registra automáticamente
+
+你说这样得多恐怖
+Mira lo temeroso que es
+
+你手机你以为你关机了
+Crees que apagaste tu celular
+
+但它一直在一个敏感的数据状态下
+Pero siempre está bajo un estado de datos sensibles
+
+你还能安全吗
+¿Sigues siendo seguro?
+
+日期：02/25/2022
+原视频标题：微信、抖音等中共软件是如何充当间谍软件的
+Cómo WeChat, TikTok y otras aplicaciones del PCCh actúan como spyware
+
+**原视频网址：**[https://gettr.com/post/pvnb3j1760](https://gettr.com/post/pvnb3j1760)
+
+原视频日期：02/20/2022
+原视频网址：https://gettr.com/post/pvnb3j1760
+任务编号：KC471（3816）
+视频时间段：0:00-02:05
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

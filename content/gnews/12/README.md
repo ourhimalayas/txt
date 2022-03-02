@@ -2,41 +2,46 @@
 ---
 
 
-## 拜登政府派代表团前往台湾以示支持
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2091282/)
+## UBS案可以告诉你的最终答案是沼泽地的核心中的核心
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2091392/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+G-TV视频链接：https://gtv.org/video/id=62164d8a1408ee3a03a3c91b
 
-整理：围剿维尼熊
-编辑：文泓
+**郭文贵先生：**所以这次UBS可以告诉你最终的答案是“沼泽地”的核心中的核心。UBS可以没有罗斯柴尔德，但是罗斯柴尔德不能没有UBS；UBS可以没有摩根斯坦利，摩根斯坦利、JP摩根不可能离了UBS；俄罗斯可以说UBS不去俄罗斯，但俄罗斯的高官贵爵不可能离了UBS。为什么？他是几百年的世界藏钱的“阿里巴巴的黑金库”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-11.png)图片来源：Greenwichtime & 雅典娜设计组
+有无数个阿里巴巴的门，每个黑手都有一个他的密码钥匙。你以为阿里巴巴念门“啊……”念“芝麻开门、芝麻开门”你以为就开了？那是你自己的狭隘的认识。你咋不知道芝麻开门旁边有100多个门，你念一个就开一个门，念另外一个就开另外一个门，那才叫真正的宝洞。
 
+大家都以为开一个门儿都拿走了，不对，人家藏宝的后面一圈儿呐。你知道“芝麻开门”；我说“文艺开门！文艺开门！”；到爱米粒那块儿“流水开门！流水开门！”到了Nick那块儿“女朋友开门！女朋友开门！“不一样啊；我到TEX我说“断背开门！断背开门！”——每个门都有不同的密码。这就叫UBS、这就叫德意志、这就叫瑞士，莱彻斯顿、瑞士和卢森堡藏了全人类99.999的人类所有的财富。
 
-当地时间3月1日，多家媒体报道，美国拜登政府派遣的一个由前高级国防官员和安全官员组成的代表团，已于周二抵达台湾，这表明在中共国迫在眉睫的威胁下，台美双方加强了沟通。
+咱今天开战时候还有什么沼泽地呀？现在沼泽地分两波，一，跟我们站在一起，新中国联邦，站在中国这一边儿。 二，跟我为敌，咱们战一把试试。就这么简单。
 
-此次访问由曾任美国参谋长联席会议主席的迈克·马伦率领五人代表团，在为期两天的访问期间代表团将会见蔡英文总统等台湾高级官员。台湾外交部长吴钊燮在台北松山机场迎接他们，并与小组成员撞肘。这次访问正值俄罗斯入侵乌克兰、台湾加强戒备之际。
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-蔡英文办公室表示，代表团是由美国总统拜登任命的，此次访问将“就台美各领域合作问题深入交换意见”，台湾希望双方“继续深化台美关系稳步发展，继续共同维护地区和平稳定，继续共同为世界和平与繁荣作出贡献”。
+编辑整理：Jacques；
 
-台湾政府周一表示，把台湾的情况与乌克兰的情况联系起来是不合适的，指责有人借机炒作所谓的“今日乌克兰，明日台湾”言论。
+字幕档制作：兵嫂；
 
-台湾行政院发言人罗秉成说，台湾与乌克兰情势完全不同，包括台湾具国际地缘政治“重要性”、地理环境有200公里海峡区隔“特殊性”，及高科技产业居国际供应链“关键性”等三大显著差异。两者不能相提并论。
+视频制作及上传：Cindy；
 
-参考链接：
+G-News发布：海贼王M.D.LUFFY；
 
-1、[拜登派前国防高官前往台湾以示支持](https://www.dw.com/zh/%E6%8B%9C%E7%99%BB%E6%B4%BE%E5%89%8D%E5%9B%BD%E9%98%B2%E9%AB%98%E5%AE%98%E5%89%8D%E5%BE%80%E5%8F%B0%E6%B9%BE%E4%BB%A5%E7%A4%BA%E6%94%AF%E6%8C%81/a-60947528)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-2、[Former top US defense officials visit Taiwan amid tensions | AP News](https://apnews.com/article/china-taiwan-mike-pompeo-tsai-ing-wen-joint-chiefs-of-staff-ef5f97eb86d61a011576e09523295ca2)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-*发布：tianzhihuan*
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

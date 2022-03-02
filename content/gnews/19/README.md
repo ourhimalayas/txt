@@ -2,158 +2,41 @@
 ---
 
 
-## 微信、抖音等中共软件是如何充当间谍软件的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2091118/)
+## 拜登政府派代表团前往台湾以示支持
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2091282/)
 
-[https://gtv.org/video/id=621df0fc4353d33974c44643](https://gtv.org/video/id=621df0fc4353d33974c44643)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-所以马化腾这个微信
-Por eso WeChat de Ma Huateng
+整理：围剿维尼熊
+编辑：文泓
 
-能在西方开通, 能在这流行
-Puede ser circulado y popularizado en el occidente
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-11.png)图片来源：Greenwichtime & 雅典娜设计组
 
-你真的觉得西方真是让人大跌眼镜的
-Realmente ¿crees que el occidente es alucinante?
 
-真的是个人都知道它是共产党的情报软件
-Cualquiera que sea persona sabe que este es un software de inteligencia del Partido Comunista
+当地时间3月1日，多家媒体报道，美国拜登政府派遣的一个由前高级国防官员和安全官员组成的代表团，已于周二抵达台湾，这表明在中共国迫在眉睫的威胁下，台美双方加强了沟通。
 
-你只要下载了微信
-Tan sólo descargas WeChat
+此次访问由曾任美国参谋长联席会议主席的迈克·马伦率领五人代表团，在为期两天的访问期间代表团将会见蔡英文总统等台湾高级官员。台湾外交部长吴钊燮在台北松山机场迎接他们，并与小组成员撞肘。这次访问正值俄罗斯入侵乌克兰、台湾加强戒备之际。
 
-你下载了什么知乎这种软件
-Si descargas la aplicación como Zhihu
+蔡英文办公室表示，代表团是由美国总统拜登任命的，此次访问将“就台美各领域合作问题深入交换意见”，台湾希望双方“继续深化台美关系稳步发展，继续共同维护地区和平稳定，继续共同为世界和平与繁荣作出贡献”。
 
-你只要上中国百度获着香港凤凰网
-Si accedes a Baidu de China para obtener la Red Phoenix de Hong Kong
+台湾政府周一表示，把台湾的情况与乌克兰的情况联系起来是不合适的，指责有人借机炒作所谓的“今日乌克兰，明日台湾”言论。
 
-手机, 你手机就废了
-El celular, tú celular será muerto
+台湾行政院发言人罗秉成说，台湾与乌克兰情势完全不同，包括台湾具国际地缘政治“重要性”、地理环境有200公里海峡区隔“特殊性”，及高科技产业居国际供应链“关键性”等三大显著差异。两者不能相提并论。
 
-你走到天涯海角
-Así vayas al extremo de la tierra
+参考链接：
 
-你开机关机它都知道你在哪
-Esa cosa lo sabrá, esté prendido o apagado el celular
+1、[拜登派前国防高官前往台湾以示支持](https://www.dw.com/zh/%E6%8B%9C%E7%99%BB%E6%B4%BE%E5%89%8D%E5%9B%BD%E9%98%B2%E9%AB%98%E5%AE%98%E5%89%8D%E5%BE%80%E5%8F%B0%E6%B9%BE%E4%BB%A5%E7%A4%BA%E6%94%AF%E6%8C%81/a-60947528)
 
-而且是自然报告
-Y le informa de manera natural
+2、[Former top US defense officials visit Taiwan amid tensions | AP News](https://apnews.com/article/china-taiwan-mike-pompeo-tsai-ing-wen-joint-chiefs-of-staff-ef5f97eb86d61a011576e09523295ca2)
 
-在北京的西山, 西山的西部在凤凰岭
-En Xishan de Beijing, al oeste de Xishan en Fenghuangling
+*发布：tianzhihuan*
 
-那是几十万人就盯着美国的手机
-Son cientos de miles de personas mirando teléfonos celulares de Estados Unidos
-
-美国的所有手机他都能监听, 一点秘密都没有
-Pueden monitorear todos los celulares de EE. UU, no existen secretos
-
-所以说微信是一个技术的武器
-Por eso WeChat es un arma tecnológica
-
-叫技术网路核武器
-Se llama tecnología cibernética nuclear
-
-你谁沾就是自作死亡
-Quien la toca será un suicidio
-
-第二, 现在只要共产党的软件
-Segundo, ahora sólo el software del Partido Comunista
-
-美国, 印度各国已经公告过了
-EE. UU e India y otros países ya han anunciado
-
-所有中国软件都不安全
-Todos los softwares de China son inseguros
-
-但你要用, 你觉得他啥都知道了
-Si lo vas a usar, si crees que ya todo lo sabe
-
-你觉得你个人信息还重要吗
-¿Crees que seguirá siendo importante tus informaciones personales?
-
-因为微信在全世界打开你手机视频
-Porque WeChat abrirá el video de tu celular en todo el mundo
-
-就给你啪就是你的视频给你打开
-De una vez lo abre
-
-它可以缓打
-Puede ralentizar
-
-缓打啥意思你知道吗
-Qué significa ralentizar, ¿lo sabes?
-
-自动的它给你录下来
-Graba automáticamente
-
-而且定期的传到云数据
-Y sube regularmente los datos a la nube
-
-由于它一直录, 数据太大
-Como sigue grabando sin cesar, los datos son demasiado grandes
-
-它就把它想要的东西
-Entonces ésta toma lo que quiere
-
-涉及到, 比如说我说到微蓝
-Cualquier cosa que involucre, por ejemplo, cuando mencione a Weilan
-
-我说到神奇四侠, 它不录
-Si yo hablo de Los 4 Fantásticos entonces no lo graba
-
-我说神奇四侠脱光屁股, 它就录了
-De lo contrario, si digo “Los 4 Fantásticos se desnudaron”, ahí si grabará
-
-微蓝搞搞双修就录了
-Si “Weilan está teniendo relaciones sexuales”, grabará
-
-它自动就给你传到云数据去
-Este será automáticamente subido a los datos en la nube
-
-然后老马是坏蛋它就录了
-Luego “Laoma es un ser malo”, lo graba
-
-老马是好人不录
-Laoma es una buena persona, no lo graba
-
-就是敏感筛选是自动录上
-Es decir, la detección sensible se registra automáticamente
-
-你说这样得多恐怖
-Mira lo temeroso que es
-
-你手机你以为你关机了
-Crees que apagaste tu celular
-
-但它一直在一个敏感的数据状态下
-Pero siempre está bajo un estado de datos sensibles
-
-你还能安全吗
-¿Sigues siendo seguro?
-
-日期：02/25/2022
-原视频标题：微信、抖音等中共软件是如何充当间谍软件的
-Cómo WeChat, TikTok y otras aplicaciones del PCCh actúan como spyware
-
-**原视频网址：**[https://gettr.com/post/pvnb3j1760](https://gettr.com/post/pvnb3j1760)
-
-原视频日期：02/20/2022
-原视频网址：https://gettr.com/post/pvnb3j1760
-任务编号：KC471（3816）
-视频时间段：0:00-02:05
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

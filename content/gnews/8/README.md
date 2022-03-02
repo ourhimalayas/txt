@@ -2,30 +2,38 @@
 ---
 
 
-## 中共两会召开在即 内斗血雨腥风加剧
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2091313/)
+## 有声|国际社会推动对俄罗斯实施更多制裁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2091430/)
 
-撰稿人：东京樱花团｜加一颗稻草
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据多家媒体报道，国际社会近日纷纷表示，将采取更多行动制裁俄罗斯对乌克兰的入侵。西方盟国周六决定阻止”被选定的”俄罗斯银行进入SWIFT支付系统，这将给俄罗斯的经济带来沉重打击。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-27T040911Z_1_LYNXMPEI1Q01R_RTROPTP_0_UKRAINE-CRISIS-BANKS_1-1.jpg)2022年2月25日，在这幅在波黑拍摄的插图中可以看到，Swift的标志被放置在俄罗斯国旗上。（REUTERS/Dado Ruvic/插图）
+周日，美国参议员汤姆·科顿推动将俄罗斯从SWIFT国际银行系统中完全移除，并对其石油和天然气出口实施制裁，以阻止俄罗斯对乌克兰的侵略。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/中共两会召开在即-内斗血雨腥风加剧-.jpg)[图片来源](https://www.secretchina.com/news/gb/2021/01/25/960247.html)
+与此同时，英国外交部长莉斯·特拉斯周日表示，她将在与七国集团同行举行的会议上要求对俄罗斯采取进一步措施，特别是切断其石油和天然气供应。
 
-2022年3月1日晚8点，中共辽宁省副省长、辽宁省公安厅厅长王大伟涉嫌严重违纪违法被查。
 
-从王大伟的履历来看，在2001年开始任哈尔滨市副市长，明显是江泽民时代提拔起来干部。2013年开始任辽宁省公安厅厅长，看出他受到了王岐山的重用。
 
-习近平在两会召开前紧锣密鼓的清洗异己，说明其根基不稳，甚至已经摇摇欲坠。产生的影响已经形成寒蝉效应，中共官员各个战战兢兢、如履薄冰。
+文字版原文：[国际社会推动对俄罗斯实施更多制裁](https://gnews.org/zh-hans/2085127/)
 
-中共在全世界犯下了滔天罪行，面临前所未有的国际压力，再加上国内帮派斗争激烈。其政权的合法性被全世界质疑，70年前篡夺政的内幕也被多家媒体挖出，真相慢慢浮出水面。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-中共这条破船已经千疮百孔，沉没就在旦夕之间。在新中国联邦的推动下，中共这个邪恶的政权必将被全世界掀起的巨浪拍的粉身碎骨。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-信息来源：
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[三任辽宁省公安厅厅长落马！王大伟被查，4天前还曾公开亮相](https://news.sina.com.cn/c/2022-03-01/doc-imcwiwss3620039.shtml)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
