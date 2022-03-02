@@ -2,26 +2,34 @@
 ---
 
 
-## 拜登宣布 “从检测到治疗”计划，免费提供抗新冠病毒口服药
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2095232/)
+## 基辅市长称城市被包围，后来又收回了这一说法
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2095304/)
 
-**评论：***目前看只有少外出，做好防护才是防病毒的最佳方法。*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-206-e1646241308912.png)图片来源：网络
-美国总统乔·拜登宣布了一项新的“从检测到治疗”计划，人们可以在药店接受检测，如果结果呈阳性，可以当场免费获得抗病毒口服药。
+**评论：***致敬乌克兰人“我没有别的选择，我必须这么做，我将进行战斗。”*
 
-**拜登在星期二的国情咨文演讲中说：“我订购的抗病毒口服药比世界上任何人都多。辉瑞公司正在加班加点的工作，这个月为我们提供一百万片药，下个月将增加一倍以上。”**
+据《华盛顿观察家》 作者：克里斯托弗-赫顿，2022年2月27日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-207.png)基辅市长表示，该市已被俄罗斯军队包围。
+市长维塔利-克里琴科最初声称，该市已被包围，他们已无法从该市疏散平民，只是后来又否认了这一说法。
 
-**一位白宫官员说，政府正在推出 “一站式服务商店”，允许测试和分发抗病毒口服药，其中包括数百个CVS、Walgreens和Kroger等商店的药房诊所。**
+克里琴科周日告诉美联社：“我们不能这样做，因为所有的路都被封锁了，现在我们被包围了。”
 
-现有的两种抗病毒口服药是辉瑞公司的Paxlovid和默克公司的Molnupiravir。它们在去年年底被食品和药物管理局授权用于会发生新冠病毒严重感染的高风险人群。Paxlovid被授权用于12岁及以上人群，而默克的治疗方法只能开给成年人。拜登在演讲中指出，辉瑞公司的口服药已被发现可将住院率降低90%，但这种口服药自批准以来一直很紧缺。
+据《基辅独立报》报道，克里琴科的发言人后来否认了基辅被包围的说法。该发言人称，这一说法是“谎言和操纵”。
 
-今年早些时候，拜登政府被批评没有像特朗普政府对开发中的新冠疫苗那样，在授权前采购数百万疗程的治疗。与新冠疫苗不同的是，特朗普和拜登政府在2020年底获得美国食品和药物管理局的授权之前就大量订购了新冠疫苗，联邦政府没有与抗病毒药物制造商达成此类交易。一旦美国食品和药物管理局授予这些授权，这就使制造商处于落后局面。
+这位乌克兰市长还表达了对食物和水的担忧。他说：“我们正处于一场人道主义灾难的边缘。现在，我们有电，现在，我们的房子里有水和暖气。但是运送食物和药品的基础设施被破坏了。”
+
+星期四，基辅市长引起了人们的注意，他告诉ITV的《早安英国》节目，他将与该市的居民和士兵一起战斗。
+
+这位前世界重量级冠军说：“我没有别的选择，我必须这么做，我将进行战斗。”
+
+欧洲官员对普京针对基辅的行动表示关切。
+
+不过，他们认为，如果基辅能以入侵中挺过星期一，这是一个值得注意的胜利。
 
 文章观点仅代表作者个人，与Gnews平台无关。
 
-原文连接：[https://www.washingtonexaminer.com/policy/biden-announces-test-to-treat-plan-for-free-covid-19-antiviral-pills](https://www.washingtonexaminer.com/policy/biden-announces-test-to-treat-plan-for-free-covid-19-antiviral-pills)
+文章来源: [https://www.washingtonexaminer.com/news/kyiv-mayor-city-is-surrounded-making-evacuation-impossible](https://www.washingtonexaminer.com/news/kyiv-mayor-city-is-surrounded-making-evacuation-impossible)
 
-翻译：洛杉矶盘古农场 -KY
+翻译：洛杉矶盘古农场 – Mike Li
 
 校对：洛杉矶盘古农场 -轰炸机
 
@@ -30,8 +38,6 @@
 编辑：洛杉矶盘古农场 – 傻小子
 
 发布：洛杉矶盘古农场 – 子萍
-
-
 
 
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)

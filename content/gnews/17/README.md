@@ -2,27 +2,31 @@
 ---
 
 
-## 乌克兰数字化部队战绩显赫
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2095095/)
+## 2022/02/28 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2095169/)
 
-撰稿：东京樱花团/道来
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-30.jpg)
-乌克兰与俄罗斯之间的网络攻击战正在激烈进行中。乌克兰的数字化部队近日对俄罗斯的政府机关，银行和企业进行网络攻击使其相关系统无法正常运行。
+1. 2月27日，中国闹市街头高举反战标语牌的中国人，此举在中共国有生命危险。中国共产党支持战争，中国人民不支持！ 中共≠中国人
+2. 2月27日，广东全域，中共政府以凶残疫情爆发为借口，更严格封锁着小区和村落。10米一个的防控关卡，将网格化管理策略执行的更加彻底。   戒备的加强，是为中共攻打台湾做准备？
+3. 2月27日，中共随意执行的区域化封锁政策，只为限制市民出入，百姓生死不在其考虑范围内。
+4. 2月25日，广东深圳。外卖小哥们因担心随时会封村无法回家，便自带被子在餐车上出门送餐。
+5. 2月27日，湖北武汉。因疫情居家隔离。社区要求一个家长陪同孩子，另外一个家长出去租房子住，为了可以给被隔离家人送生活日用品。
+6. 2月27日，湖北武汉。中共荒唐的疫情政策有意引导社会互斗。一位老爷爷因没法出示健康码，按照中共政策导致全车人员都将无法再移动。
+7. 2月27日，路人拍下养老院老人向其索要食物的一幕，老人怕路人看不懂一直焦急地比划着！
+8. 2月26日，路边手拿病历的病人，崩溃的对着电线杆咆哮，不清楚她遇到了怎样的压力。
+9. 2月25日，湖北武汉。老人拿老伴的丧葬费，给儿女们购买了商铺。承诺返租金未兑现，每月还贷压力大。本想减轻儿女的压力，现在反成了负担。
+10. 2月24日，河南信阳。高中老师深夜查寝，晚上十一点学生们都还在宿舍学习。
 
-乌俄开战后，乌克兰政府向全世界紧急招募计算机网络人才组建数字化部队对俄罗斯进行网络攻击。据相关系信息显示，乌克兰的数字化部队战绩显赫。主要网络攻击对象包括政府机构和银行信息系统，网络储备服务器，电子邮件服务器和相关信息化基础设施系统等。
 
-据悉俄罗斯能源公司Rosseti公开信息，俄罗斯的部分电动车使用的充电系统也无法正常运行。当用户进行充电时，充电桩将显示“荣耀属于乌克兰，荣耀属于英雄，普京是笨蛋，让敌人去死吧。”
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-205.png)
-[图片来源](https://arstechnica.com/information-technology/2022/02/after-ukraine-recruits-an-it-army-dozens-of-russian-sites-go-dark/?utm_brand=ars&amp;utm_source=facebook&amp;utm_social-type=owned&amp;utm_medium=social&amp;fbclid=IwAR2ItN9BYdjDvPr5PrB_uW1SEPExZc-fLEHJxV3ulCFcnezvoBuhYU5Y298)
+* * *
 
-同样，俄罗斯的数字化部队也对乌克兰的电网系统进行攻击使其多次无法正常运行。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[信息来源](\Users\Administrator\Downloads\After%20Ukraine%20recruits%20an%20“IT%20Army,”%20dozens%20of%20Russian%20sites%20go%20dark)：
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+编辑：【英国伦敦喜庄园编辑部】
 
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

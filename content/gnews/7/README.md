@@ -2,10 +2,10 @@
 ---
 
 
-## 乌克兰总统呼吁加入欧盟
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2095295/)
+## 纽约、西雅图、波士顿取消疫苗强制令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2095361/)
 
-02/28/2022 乌克兰总统沃洛基米尔·泽伦斯基要求欧盟允许乌克兰在抵御俄罗斯军队入侵时立即按照特别程序获得成员国资格。
+02/28/2022 纽约、西雅图、波士顿取消疫苗强制令
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
