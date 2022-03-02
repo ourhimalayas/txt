@@ -2,23 +2,45 @@
 ---
 
 
-## 视频｜拜登指派跨党派代表团于3月1日访台
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2093741/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2093803/)
 
-制作：香草山视频部
+**整理：枳实**
+**美工：精灵蓝**
 
-当地时间2月28日晚，台湾总统府发言人张惇涵表示，美国跨党派代表团将于3月1日至2日，搭乘行政专机来台湾访问。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片：雅典娜农场设计组 精灵蓝
 
-该代表团将由美国前参谋首长联席会议主席穆伦率领，成员中包括前国防部政策次长佛洛诺伊、前白宫副国安顾问欧苏利文、前白宫国安会亚洲事务资深主任葛林，及前白宫国安会亚洲事务资深主任麦艾文，显示出两党派对印太区域及台湾安全议题的高度共识与重视。
 
-张惇涵称，蔡总统将于3月2日与代表会谈，双方将就台美关系及国际区域局势等各项重要议题交换意见。此次台美交流将促进双边关系的稳健发展，共同维护区域的和平稳定，也突显台美关系「坚若盘石」的深远意义。
+雅典娜疫情更新（2022年 3月2日）
 
-发稿：小野貓（文凱琳）
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-15.png)
+[2022年3月2日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月2日改进.pdf)
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

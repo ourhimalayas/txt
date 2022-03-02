@@ -2,42 +2,24 @@
 ---
 
 
-## 对俄全球制裁导致亚洲股市下跌
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2094271/)
+## 快讯：岸田首相表示日本接受乌克兰难民
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2094295/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团︱百花李香
 
-整理：围剿维尼熊
-编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/03/快讯：岸田首相表示日本接受乌克兰难民.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图-1.png)图片来源：雅典娜设计组
+[*图片来源*](https://news.yahoo.co.jp/articles/f253b3e93901da869ea7d4e455669644c44a4d00/images/000)
 
+3月2日雅虎新闻在线消息，岸田文雄首相和德国总理朔尔茨及波兰总理莫拉维茨基进行电话交谈后对记者表示，他将推动为乌克兰人民提供紧急人道主义援助，并接受逃离其国家的人进入日本。
 
-路透社报道，亚洲股市3月2日再次承压，油价跳涨。投资者对俄罗斯遭到严厉制裁所造成影响的担忧加剧，此前欧洲和华尔街的股票下挫。
+首先，接受在日本有亲戚和熟人的难民，但不限于此，将从人道主义的角度来应对，会在未来做出具体的调整，和边境对策也会分开考虑。
 
-随着对莫斯科的全球制裁收紧，美国准备禁止俄罗斯航班使用美国领空，此前欧盟和加拿大也采取了类似举措。
+信息来源：[**岸田総理が表明「ウクライナ避難民の受け入れを進める」「水際対策とは別に考えるべき」**](https://news.yahoo.co.jp/articles/f253b3e93901da869ea7d4e455669644c44a4d00#:~:text=)
 
-亚洲早盘，MSCI明晟亚太地区(除日本)指数下跌0.19%，中国沪深300指数.CSI300跌0.89%。日股日经指数.N225下跌1.5%。
-
-澳洲指标股指.AXJO上涨0.2%，因大宗商品价格上涨提振了矿商股。
-
-全球对俄罗斯的制裁已经促使一系列大公司宣布暂停或退出在俄罗斯的业务。
-
-埃克森美孚(Exxon Mobil) XOM.N周二表示将退出俄罗斯业务，包括石油生产领域。此前，英国石油巨头BPBP.L、壳牌石油(Shell)SHEL.L、以及挪威能源企业Equinor EQNR.OL也做出了类似决定。
-
-周三上午，全球指标布兰特原油跳涨2.6%，至每桶107.69美元。美国西德克萨斯中质原油上涨3%，至106.50美元。
-
-参考链接：[https://cn.reuters.com/article/global-market-asia-trade-stocks-0302-idCNKBS2KZ083?il=0](https://cn.reuters.com/article/global-market-asia-trade-stocks-0302-idCNKBS2KZ083?il=0)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

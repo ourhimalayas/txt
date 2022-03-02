@@ -2,22 +2,41 @@
 ---
 
 
-## 秘翻在线:乌克兰总统的演讲让翻译泣不成声
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2094250/)
+## 对俄全球制裁导致亚洲股市下跌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2094271/)
 
-撰稿:沙莉
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-29.jpg)(图片源于https://madamefigaro.jp/society-business/220302-president-zelensky-of-ukraine.html)
-德国《世界报》的翻译在翻译泽连斯基总统最新的战时讲话时泣不成声, 泪流满面。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-2月27日星期日，正在翻译泽连斯基总统关于俄罗斯和乌克兰战争的讲话的德国翻译似乎无法掩饰自己的心情,深深地被这段演讲所震撼。 “俄罗斯走错了路。俄罗斯应该被剥夺在联合国的发言权，”她翻译了泽连斯基总统的话，仿佛与乌克兰总统的言论产生了共鸣。 “我们最了解乌克兰……”他开始翻译。”没有人能够打败我们。”
+整理：围剿维尼熊
+编辑：朝花夕拾
 
-德国翻译并不是唯一一个在为总统演讲翻译流泪的人–3月1日星期二，在总统沃迪米尔-泽伦斯基与欧洲议会议员的视频会议上，一名英语翻译也控制不住情绪。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图-1.png)图片来源：雅典娜设计组
 
-“今天早上，两枚俄罗斯导弹击中了哈尔科夫。 你能相信这种情况吗？我们为自由、价值观和国家献出生命”。 接着他说：”相信我。 今天的每一个广场，不管它叫什么，以后在我们国家的每个城市都将被称为自由广场。 没有人可以摧毁我们。 我们是乌克兰人”。自2月24日以来，整个世界都在以同样的心情观望着。
 
-信息来源: [https://madamefigaro.jp/society-business/220302-president-zelensky-of-ukraine.html](https://madamefigaro.jp/society-business/220302-president-zelensky-of-ukraine.html)
+路透社报道，亚洲股市3月2日再次承压，油价跳涨。投资者对俄罗斯遭到严厉制裁所造成影响的担忧加剧，此前欧洲和华尔街的股票下挫。
 
-责编: Eric Kim
+随着对莫斯科的全球制裁收紧，美国准备禁止俄罗斯航班使用美国领空，此前欧盟和加拿大也采取了类似举措。
+
+亚洲早盘，MSCI明晟亚太地区(除日本)指数下跌0.19%，中国沪深300指数.CSI300跌0.89%。日股日经指数.N225下跌1.5%。
+
+澳洲指标股指.AXJO上涨0.2%，因大宗商品价格上涨提振了矿商股。
+
+全球对俄罗斯的制裁已经促使一系列大公司宣布暂停或退出在俄罗斯的业务。
+
+埃克森美孚(Exxon Mobil) XOM.N周二表示将退出俄罗斯业务，包括石油生产领域。此前，英国石油巨头BPBP.L、壳牌石油(Shell)SHEL.L、以及挪威能源企业Equinor EQNR.OL也做出了类似决定。
+
+周三上午，全球指标布兰特原油跳涨2.6%，至每桶107.69美元。美国西德克萨斯中质原油上涨3%，至106.50美元。
+
+参考链接：[https://cn.reuters.com/article/global-market-asia-trade-stocks-0302-idCNKBS2KZ083?il=0](https://cn.reuters.com/article/global-market-asia-trade-stocks-0302-idCNKBS2KZ083?il=0)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

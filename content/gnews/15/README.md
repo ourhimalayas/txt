@@ -2,23 +2,29 @@
 ---
 
 
-## 70名日本人报名义勇军
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2094106/)
+## 今日盖特大V推荐 — 澳大利亚天空新闻(Sky News Australia)
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2094177/)
 
-作者：华夏的文丽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-02-201641.jpg)
-据日本每日新闻报道，日本人看到俄罗斯侵略乌克兰战争的残酷和不愿意看到乌克兰的年轻人在战争中死去，于是报名参加义勇队支援乌克兰，70位报名者中有50名退役自卫军人。乌克兰的紧急救援队允许外国人参加志愿者队伍。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-191.png)
+盖特链接：**[https://gettr.com/user/skynewsaust](https://gettr.com/user/skynewsaust)**
 
-日本政府把乌克兰定位危险区域，划分为4级，不建议前往和劝退地区，林芳正外相在记者招待会上说，在日本的乌克兰大使馆希望国际力量前往帮助，但不支持日本国民前往有风险的地区和国家。乌克兰政府只能希望更多的力量去乌克兰进行人道主义支援。
+**澳大利亚天空新闻自述：**
 
-感悟：一般民众代表的正义力量正在集结，日本平民的义勇让人敬佩，新中国联邦和其他国际救援组织在危急关头实行救援计划和行动。世界人民一定都站在正义的一边，邪恶一定灰飞烟灭。
+真实的新闻，诚实的观点。在https://SkyNews.com.au/Flash（在澳大利亚）或https://watch.australiachannel.com.au（在世界各地）上播放澳大利亚天空新闻。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-192.png)图片来源：网络
+**澳大利亚天空新闻简介：**
 
-参考链接：[ウクライナ「義勇兵」に日本人70人が志願　50人が元自衛官](https://mainichi.jp/articles/20220301/k00/00m/030/165000c)
+澳大利亚天空新闻于1996年2月19日下午5点开播，是一个澳大利亚右翼24小时有线电视和卫星频道，也是澳大利亚第一个电视台制作的电视新闻频道。
 
+澳大利亚天空新闻持有保守的政治观点, 意识形态和政策主张。该平台可在Foxtel和Optus电视订购平台上使用，也可以在澳大利亚各地和非都会区域的免费电视上使用。在新西兰的天空电视台（Sky Television）和沃达丰（Vodafone）上也可以使用它。该平台直属于澳大利亚新闻集团所有。与英国天空公司无关联。
 
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-审核校对：Barry Jack
-上传排版：F
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
