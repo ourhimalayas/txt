@@ -2,37 +2,27 @@
 ---
 
 
-## 有声|中共抹黑新中国联邦在乌克兰的救援行动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2095029/)
+## 乌克兰数字化部队战绩显赫
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2095095/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-**郭文贵先生28日在盖特贴出了中共对乌克兰留学中心公众号的**“**紧急公告”，称境外反华组织**“**XXX联邦”发布虚假撤侨文件，目的是搜集在乌华人信息。 **
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-167.png)
-**对此，郭先生撰文指出，中共刻意隐去**“**新中国**“**三个字，连新中国联邦的全名都不敢公布，是在恐惧华人知道有新中国联邦的存在。 郭先生重申，这次新中国联邦的大救援，是与国际救援组织合作，完全向国际公开，所有参与救援的团队、飞机、经费、物资都是可以经得起任何检查，并符合法律规定的。 **
+撰稿：东京樱花团/道来
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-30.jpg)
+乌克兰与俄罗斯之间的网络攻击战正在激烈进行中。乌克兰的数字化部队近日对俄罗斯的政府机关，银行和企业进行网络攻击使其相关系统无法正常运行。
 
-**郭先生批评，如果中共真心想救助中国人，在几千个同胞受到战争炮火威胁的生死存亡之际，中共不应该寻找种种借口逃避救助同胞的责任，把时间和精力耗费在玩弄低级伎俩去误导、欺骗同胞，阻止他们获得救助，中共这种严重的犯罪行为，应受到全世界正义的谴责和审判。**
+乌俄开战后，乌克兰政府向全世界紧急招募计算机网络人才组建数字化部队对俄罗斯进行网络攻击。据相关系信息显示，乌克兰的数字化部队战绩显赫。主要网络攻击对象包括政府机构和银行信息系统，网络储备服务器，电子邮件服务器和相关信息化基础设施系统等。
 
+据悉俄罗斯能源公司Rosseti公开信息，俄罗斯的部分电动车使用的充电系统也无法正常运行。当用户进行充电时，充电桩将显示“荣耀属于乌克兰，荣耀属于英雄，普京是笨蛋，让敌人去死吧。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-205.png)
+[图片来源](https://arstechnica.com/information-technology/2022/02/after-ukraine-recruits-an-it-army-dozens-of-russian-sites-go-dark/?utm_brand=ars&amp;utm_source=facebook&amp;utm_social-type=owned&amp;utm_medium=social&amp;fbclid=IwAR2ItN9BYdjDvPr5PrB_uW1SEPExZc-fLEHJxV3ulCFcnezvoBuhYU5Y298)
 
+同样，俄罗斯的数字化部队也对乌克兰的电网系统进行攻击使其多次无法正常运行。
 
-文字版原文：[中共抹黑新中国联邦在乌克兰的救援行动](https://gnews.org/zh-hans/2093526/)
+[信息来源](\Users\Administrator\Downloads\After%20Ukraine%20recruits%20an%20“IT%20Army,”%20dozens%20of%20Russian%20sites%20go%20dark)：
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

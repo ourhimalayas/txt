@@ -2,24 +2,39 @@
 ---
 
 
-## 乌克兰要求欧美协助建立禁飞区
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2094941/)
+## 有声|美国务事务助卿呼吁国际社会支持台湾参与联合国体系
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2094989/)
 
-采编：青青          翻译：文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/04-image.jpg)
-图片来源：[Ukraine calls for no-fly zone to stop Russian bombardment By Reuters (investing.com)](https://www.investing.com/news/stock-market-news/russias-isolation-deepens-as-ukraine-resists-invasion-2773510)
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台媒3月1日消息，美国国务院国务事务助卿，席森，28日公开晒出自己近期与美国驻台代表萧美琴的会晤合照，并呼吁国际社会支持台湾有意义参与联合国体系。 席森表示，台湾的贡献能让国际社会广泛受益，美方希望联合国各会员国支持台湾参与联合国。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-164.png)
+对此，萧美琴回应表示，她很感谢有机会与席森讨论美台合作，并拓展台湾能有意义参与到国际组织中去。
 
-据【路透社】2月28日报道，乌克兰总统泽连斯基在俄军机无差别轰炸该国城市后要求国际社会为乌克兰提供针对俄罗斯的禁飞区，欧美及其盟国对此已初步达成了一致的支持。
+早前，美国国务卿布林肯，在联合国2758号决议通过满50年的翌日，发声明表示支持台湾参与联合国体系。他指出，台湾参与联合国体系并非政治议题，而是务实议题。将台湾排除在外，会有损联合国及其相关机构的重要工作。
 
-报道称，俄乌双方日前进行的数小时停火谈判未能取得成功，俄军随即对拥有140万人口的[哈尔科夫]市发动猛烈空袭，并造成包括妇孺在内的大量平民伤亡。因此泽连斯基促请北约，应立即阻止俄罗斯的军机和导弹侵入乌克兰领空。
 
-据悉，尽管美国已排除了直接派遣部队与俄军地面作战的可能性，但国际社会对普京威胁将使用核武器表示严重担忧。由于美方对乌克兰的禁飞区诉求表示支持，因此美军在执行此任务时，极有可能会造成美俄的直接军事冲突。
 
-校对编辑：硫酸羟氯喹64
 
-发稿：苦尽甜来 (文来）
 
-新闻来源：[Ukraine calls for no-fly zone to stop Russian bombardment | Reuters](https://www.reuters.com/world/europe/russias-isolation-deepens-ukraine-resists-invasion-2022-02-28/)
+文字版原文：[美国务事务助卿呼吁国际社会支持台湾参与联合国体系](https://gnews.org/zh-hans/2093446/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

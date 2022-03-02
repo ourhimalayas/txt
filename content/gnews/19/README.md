@@ -2,40 +2,34 @@
 ---
 
 
-## 有声|欧盟主席称望乌克兰成为成员国
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2094964/)
+## 俄乌开战导致全球原油和天然气价格飙升
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2094996/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据路透社报道，欧盟首席执行官2月27日表示明确支持乌克兰成为欧盟的成员，称这个目前受到俄罗斯攻击的国家是 “我们中的一员”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-3.jpg)
-欧盟委员会主席冯德莱恩表示，欧盟有史以来首次决定向处于战争状态的国家提供武器，欧盟将向乌克兰运送 4.5 亿欧元，折合5.07 亿美元的武器，。
+作者：日本方舟农场-Miyale7768(文玉)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月26日，据美国媒体报道，鉴于目前俄罗斯对乌克兰发动的全面攻势，全球原油价格首次飙升至每桶100美元以上。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-02-上午10.56.29.png)
+数据显示，作为全球石油基准的布伦特原油指数在24日上午达到了每桶101.66美元，增幅超过4%。同时，美国WTI原油指数也在当天飙升了近7%，涨至每桶98.69美元，这也是自2014年以来美国石油价格的最新峰值。
 
-欧盟还宣布乌克兰难民将在 3 年内在其成员国受到欢迎而无需申请庇护，并表示将对俄罗斯的入侵实施严厉制裁。
+此外，PVM石油协会的高级分析师在25日的一份简要报告中表示，由于当前的紧张局势，全球的股票和石油市场短期内将仍有波动。此外，即使是东欧当地的局势得以缓解，相关产品的紧张也可能会使石油价格在未来几个月内依然保持在高位状态。其原因在于，俄罗斯是全球石油市场的主要参与者，也是欧洲地区最大的石油供应国。
 
-当地时间2月28日中午，乌克兰总统弗拉基米尔·泽连斯基，正式签署了加入欧盟的申请书。他希望欧盟启动特别程序允许乌克兰加入欧盟；并指出，乌克兰希望和欧洲人平等地站在一起，欧盟值得拥有乌克兰。
+另一方面，石油价格是天然气价格的最大决定因素。美国能源信息管理局的数据显示，本周美国天然气的平均价格达到每加仑3.53美元，处于自2014年7月以来的最高水平。
 
+参考链接：[Gas Prices Set to Skyrocket After Oil Soars Beyond $100 for the First Time Since 2014](https://georgiastarnews.com/2022/02/25/gas-prices-set-to-skyrocket-after-oil-soars-beyond-100-for-the-first-time-since-2014/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
-文字版原文：[欧盟主席称望乌克兰成为成员国](https://gnews.org/zh-hans/2088525/)
+总编：Irene木木
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,33 @@
 ---
 
 
-## 俄乌开战导致全球原油和天然气价格飙升
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2094996/)
+## 拜登国情咨文中称，普京将付出持续的高昂代价
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2095049/)
 
-作者：日本方舟农场-Miyale7768(文玉)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月26日，据美国媒体报道，鉴于目前俄罗斯对乌克兰发动的全面攻势，全球原油价格首次飙升至每桶100美元以上。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-02-上午10.56.29.png)
-数据显示，作为全球石油基准的布伦特原油指数在24日上午达到了每桶101.66美元，增幅超过4%。同时，美国WTI原油指数也在当天飙升了近7%，涨至每桶98.69美元，这也是自2014年以来美国石油价格的最新峰值。
+#### 编译： Cran
 
-此外，PVM石油协会的高级分析师在25日的一份简要报告中表示，由于当前的紧张局势，全球的股票和石油市场短期内将仍有波动。此外，即使是东欧当地的局势得以缓解，相关产品的紧张也可能会使石油价格在未来几个月内依然保持在高位状态。其原因在于，俄罗斯是全球石油市场的主要参与者，也是欧洲地区最大的石油供应国。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16462366831.png)美国之音：美國總統拜登2022年3月1日在國會發表就職後的首份國情咨文
+据半岛电视台3月2日报道，美国总统乔·拜登（Joe Biden）在他的第一次国情咨文讲话中指责了俄罗斯入侵乌克兰。他宣布， 禁止所有俄罗斯航班进入美国领空。
 
-另一方面，石油价格是天然气价格的最大决定因素。美国能源信息管理局的数据显示，本周美国天然气的平均价格达到每加仑3.53美元，处于自2014年7月以来的最高水平。
+拜登周二（3月1日）晚些时候，在国会的演讲中表示，美国正在对俄罗斯实施“强有力的制裁”，将俄罗斯的银行与国际金融体系隔离，并“扼杀”俄罗斯获得技术进口的渠道。
 
-参考链接：[Gas Prices Set to Skyrocket After Oil Soars Beyond $100 for the First Time Since 2014](https://georgiastarnews.com/2022/02/25/gas-prices-set-to-skyrocket-after-oil-soars-beyond-100-for-the-first-time-since-2014/)
+拜登承诺，将惩罚俄罗斯总统核心圈子里的富有精英。“今晚，我要对俄罗斯寡头和腐败的领导人说，他们在这个暴力政权的基础上建立了数十亿美元；不再有了”。他进一步揭示， 美国司法部正在组建一支专门的工作队，追捕俄罗斯寡头的罪行。“我们正在与欧洲盟国一起寻找并扣押他们的游艇、豪华公寓和私人飞机。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
+美国总统多次抨击俄罗斯的弗拉基米尔·普京（Vladimir Putin），称他为应该为这场战争负责的唯一人选。虽然普京可能会在战场上有所收获，但从长远来看，他将付出持续的高昂代价。“今晚，我宣布，我们将与我们的盟友一道，关闭美国领空，禁止所有俄罗斯航班进入，进一步孤立俄罗斯，给他们的经济增加额外的压力。”
 
-总编：Irene木木
-编辑：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
+尽管美国国会中存在严重的党派分歧，但在拜登谈到对抗俄罗斯时，议员们，其中许多人穿着蓝色和黄色的服装，这是乌克兰国旗的颜色——为拜登鼓掌欢呼。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国总统还表达了对乌克兰人民的支持，并向邀请出席的基辅驻华盛顿大使奥克萨娜·马卡罗娃（Oksana Markarova）致意。
+
+拜登表示，虽然美国不会派遣军队在乌克兰与俄罗斯作战，但它准备保卫其北约盟国。拜登说：“让我明确一点，我们的部队没有也不会与乌克兰境内的俄罗斯军队发生冲突”。“我们的军队不是去欧洲在乌克兰作战，而是去保卫我们的北约盟国—如果普京决定继续向西移动每一寸。”
+
+拜登试图缓解乌克兰危机期间对燃料价格上涨的担忧，称美国将从其战略储备中释放3000万桶石油，以稳定能源市场。俄罗斯是世界上最大的石油和天然气生产国之一。
+
+这位美国总统说：“但我想让你们知道，我们会没事的。当这个时代的历史被书写时，普京在乌克兰的战争会让俄罗斯变得更弱，让世界其他地区变得更强大。”
+
+[Source](https://www.aljazeera.com/news/2022/3/2/russia-ukraine-biden-closes-us-airspace-to-russian-flights)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

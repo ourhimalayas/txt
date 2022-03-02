@@ -2,17 +2,21 @@
 ---
 
 
-## 西媒头条 — 第183期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2094787/)
+## 2022年3月2日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2094909/)
 
-**制作：蚂蚁兄弟**
+制作：DT新闻组
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+**中共的杀戮还在继续……**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip西媒头条-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/178FCCB0-6D5B-42ED-B40E-D677BF844045.jpg)
 
-***发稿：信心满满***
+发稿：信心的选择
+
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
