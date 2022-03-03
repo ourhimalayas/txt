@@ -2,37 +2,20 @@
 ---
 
 
-## 有声|得克萨斯州长要求商店停止销售俄罗斯产品
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2100791/)
+## 克里米亚事件鼓舞了普京和习近平的野心
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2100892/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国媒体3月1日报道，美国得克萨斯州州长格雷格·阿博特正在敦促该州的商店和零售商下架俄罗斯制造的产品，要求酒吧停止出售来自俄罗斯的伏特加，以示与乌克兰的团结。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-4-scaled.jpg)
-在过去的一周里，全世界都目睹了俄罗斯进军乌克兰，勇敢的乌克兰人民一直在为阻止入侵不懈战斗。得州州长的行为虽然不可能对俄罗斯造成致命得打击，但强烈地表达了该州对于这场冲突的立场。
+制作：香草山视频部
 
-同时，得州禁止销售的某些俄罗斯产品，也可能会在国家其他大规模制裁的基础上进一步削弱俄罗斯的海外收入。
+大纲：普京一枪不发地拿下了克里米亚，此事鼓舞了习近平。经过几年的计划，习近平放出生化武器并实施“双龙计划”，拿回香港、再拿下台湾。普京拿回乌克兰。他们认为美国和西方半死不活的社会状态是他们最佳的机会。
 
+我们是世界上最早说出“习普”二人有个双计划。习近平的“双龙计划”，是要拿下台湾、香港；普京是要拿下乌克兰。
 
+当时克里米亚内部造反，直接策反，普京一枪没发，拿回了克里米亚，这件事纵容了普京，也让普京成为世界上最牛X的一个。
 
-文字版原文：[得克萨斯州长要求商店停止销售俄罗斯产品](https://gnews.org/zh-hans/2098841/)
+此事也极大地鼓舞了习近平这个人的野心，当时对他很刺激，习近平和一个人谈话时说：“普京这一票干的漂亮，名垂青史，世界上能有几个这样的政治家呀？一弹不发，一子不花，就让克里米亚内部全民投票，回归俄罗斯了。那是多大的事啊，而且啥事没有，国际上也没啥反应。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+这个事情纵容了习近平和普京的野心，同时让他俩更加狂妄的看不上美国和欧洲。经过这几年的深思熟虑，加上共产党放出的生化武器，而这些绝对都在他俩计划之中。他们是看不起美国和西方的这种半死不活的社会状态。他们现在觉得这是世界上最佳的时机。
 
  
 

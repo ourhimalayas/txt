@@ -2,28 +2,49 @@
 ---
 
 
-## 台湾向乌克兰提供了27吨医疗用品并切断芯片供应
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2100685/)
+## 欧洲议会投票承认乌克兰“欧盟候选国地位”
+` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/2100737/)
 
-#### 编译： Cran
+撰稿: 纽约香草山 – 宁文静
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16463227781.png)[Source](http://cbc-taiwan%27s%20president%20tsai%20ing-wen%20wears%20a%20%22stand%20with%20ukraine%22%20face%20mask/)
-据美国周刊3月1日报道，乌克兰外交部于周二宣布，台湾向乌克兰运送了27吨医疗用品。作为半导体芯片的主要制造商，台湾的官员们已经宣布，芯片公司正在遵守对俄罗斯的出口管制。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
 
-外交部长吴宗宪在推特上分享了人道主义援助物资的照片，并写道：“虽然中共与俄罗斯结成‘无限联盟’，自由民主的台湾决心对抗威权主义的扩张。”。许多台湾公民因为俄罗斯入侵乌克兰而提高了警觉。因为这与比邻的中国有相似之处。
 
-俄罗斯入侵之后，台湾即刻就中共入侵台湾的可能性展开了辩论。一些台湾电视节目的专家讨论，俄罗斯的侵略是否标志着世界秩序的转变，以及是否中共会利用西方对乌俄局势的关注而渔翁得利。
 
-与乌克兰不同的是，大多数国家目前还未正式承认台湾是主权国家，中共主席习近平多次警告台湾不要寻求独立。近年来，北京向台湾派遣了越来越多的战机。军事分析人士亚当·倪（Adam Ni）将此描述为一个信号，表明这个更大邻国的“军事实力”及其“决心在必要时以武力夺取台湾”。
 
-尽管如此，台湾总统蔡英文表示，不应该过多地将乌克兰和台湾做类比，因为它们可能会在国内引发不必要的恐慌。她的政府强调与美国的牢固关系，以此抵御中共的侵略。周一，美国总统乔·拜登派遣一个由前国防和安全高级官员组成的代表团前往台湾，以表示对台湾的支持。
 
-除了运送医疗物资，台湾政府周二宣布，将与其他国家一道，阻止一些俄罗斯银行进入SWIFT国际支付系统。这一行动在很大程度上是象征性的，因为台湾与俄罗斯几乎没有贸易往来。
+当地时间3月1日，欧洲议会绝大多数议员投票赞成一项象征性的议案，以确立乌克兰的欧盟正式候选国资格。但乌真正加入欧盟尚需一定时日。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-297.png)图片来自：https://www.independent.ie/
+此次投票是在27日欧盟委员会主席尔苏拉·冯德莱恩表态乌克兰必须加入欧盟，28日乌克兰总统泽连斯基火速提交加入欧盟的资格申请之后，做出的一项关于俄罗斯侵略乌克兰的动议，旨在支持乌克兰成为欧盟的正式候选国，以及对俄罗斯实施更严厉和更广泛的制裁等。
 
-中共拒绝加入对其战略伙伴俄罗斯的全球制裁的可能性，尽管北京官员在乌克兰战争事件上没有明确立场。中共尚未宣布向乌克兰人提供任何人道主义援助。
+分析人士指出，欧盟议会接受了乌克兰加入欧盟的申请，正式启动相关程序。乌克兰还需要进行大量的国内立法和改革，以符合欧盟现有框架及标准。这个过程需要一定的时间。
 
-[Source](https://www.newsweek.com/taiwan-sends-27-tons-medical-aid-ukraine-taiwan-freedom-1683786)
+投票的最终结果为：637票赞成，26票弃权，另外有13票反对票。表决之前，泽连斯基通过视频发表了慷慨感人的演讲，获得全体议员站立鼓掌。
+
+新闻链接:
+
+[Wallace and Daly vote for long delay on Ukraine’s chance of joining EU](https://m.independent.ie/irish-news/politics/wallace-and-daly-vote-for-long-delay-on-ukraines-chance-of-joining-eu-41400042.html)
+
+[Resolution on Russian aggression against Ukraine](https://twitter.com/electsworld/status/1498747095632650240?s=21)
+
+[BREAKING: Ursula Von Der Leyen, President of the European Commission, tells Euronews that the EU wants Ukraine in the bloc and that “they’re one of us.”](Ursula%20Von%20Der%20Leyen,%20President%20of%20the%20European%20Commission,%20tells%20Euronews%20that%20the%20EU%20wants%20Ukraine%20in%20the%20bloc%20and%20that%20&quot;they're%20one%20of%20us.&quot;)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-14.jpg)
+
+编辑: 谐趣园
+
+总编/审核:飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
+
 
 
 

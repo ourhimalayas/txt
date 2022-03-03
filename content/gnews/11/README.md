@@ -2,31 +2,38 @@
 ---
 
 
-## 有声|前乌克兰小姐身着戎装 加入抵抗俄军行列
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2100701/)
+## 有声|美前国务卿蓬佩奥将于3月访台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2100761/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月27日，据相关媒体消息显示，在眼下俄罗斯大举入侵乌克兰之际，乌克兰各行各业的民众纷纷加入了抵抗俄军的战斗队伍中，这其中也包括前任乌克兰选美冠军——安娜塔西娅·蕾娜。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+在乌克兰人民正奋力抵抗俄军炮火袭击的奋战时期，同时也被视为是中共可能趁机武力侵台的敏感时机，作为坚定支持台湾民主的前美国国务卿蓬佩奥将于3月2日至5日访问台湾。蓬佩奥访台不仅受到国际高度关注，同时也被视为面对中共正从军事、经济、外交等各方面对台湾高度施压，面临空前未有的巨大压力的台湾来说，意义实属重大。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/id13611569-GettyImages-1372801123-600x400-1.jpg)[图源网络](https://www.epochtimes.com/b5/22/2/27/n13609549.htm)
+去年10月蓬佩奥出席“香港自由灯塔”（HKFB）活动，由香港议题谈到台湾时他呼吁各国领袖：台湾是个拥有巨大经济创造力的民主国家，他祈祷各国领导人能够知道并支持台湾是一种道德义务的表现，千万不要让台湾步香港后尘。蓬佩奥支持台湾民主的立场坚定且明确，此次更以具体行动展示对台湾的支持，有人认为这为对台湾来说是雪中送炭。
 
-作为2015年的乌克兰小姐，蕾娜会说 5 种语言，曾担任过翻译和公关经理；而现在，她则像许多其他乌克兰人那样穿上戎装并手持步枪，全力阻止那些试图入侵乌克兰的俄罗斯军队。
+且因蓬佩奥被视为是最了解中共的美国国务卿之一，其担任国务卿期间，也是中共视为最强硬的对手之一，就如蓬佩奥主张和中共打交道的对策是，“不相信然后核实”（对中共说的话首先存疑，然后一定要去一一核实），显示其对中共政权的高度不信任和对中共道德素质的高度质疑。因此，蓬佩奥此次访台，有媒体认为这对中共来说，无疑是最头痛的事情之一，这也将对制约中共在台湾动武将会产生实质影响，意义非凡。
 
-据悉，乌克兰总统泽连斯基在上周呼吁该国民众拿起武器，对抗那些俄罗斯入侵者。截止目前，乌克兰政府已经向参与战斗的平民分发了一万件自动武器。对此，蕾娜在社交媒体上称赞泽连斯基总统是一位真正的、强硬的领导人。同时，蕾娜还喊话普京的军队称，任何人都休想试图越过乌克兰边境行入侵之举。
 
-文字版原文：[前乌克兰小姐身着戎装 加入抵抗俄军行列](https://gnews.org/zh-hans/2095474/)
 
-音频处理：Fei797
-发稿：Fei797
+文字版原文：[美前国务卿蓬佩奥将于3月访台](https://gnews.org/zh-hans/2091388/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

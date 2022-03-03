@@ -2,30 +2,37 @@
 ---
 
 
-## 秘翻在线：担心俄罗斯利用加密货币规避制裁，民主党人向财政部施压
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2100747/)
+## 有声|中俄暧昧关系遭美方谴责
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2100822/)
 
-**撰稿：彩虹**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月28日，白宫印太事务协调官库尔特‧坎贝尔表示，在俄罗斯侵略乌克兰战争中，中俄之间的暧昧关系，以及公开和深入的联系，令人很不舒服。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-3-scaled.jpg)
+俄罗斯入侵乌克兰，被国际视为二战以来对欧洲国家的最大侵略，世界各国纷纷表示谴责，并实施各种制裁。中共不仅没有任何谴责，反而在联合国就一项谴责俄罗斯入侵的议案表决中，投了弃权票。在北京冬奥期间，中俄还签署了一份联合声明，宣称两国建立了无间的战略合作关系，同时，中共也是俄罗斯的最大贸易伙伴。
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/warren.jpg)图片来源：彭博社
-据《国会山报》3月2日报道，鉴于人们对俄罗斯是否可以利用数字资产来规避美国制裁措施的担忧正在上升，民主党人正在向财政部（Treasury Department）施加压力，要求其提供有关在加密货币行业内实施制裁计划的信息。
+此前，美国总统拜登于2月24日，虽没有直接点名中共，但严正警告：任何支持俄罗斯对乌克兰侵略的国家，都将身败名裂。
 
-这封周三写给财政部的信由几位民主党人带领立法者们共同牵头，包括参议员伊丽莎白·沃伦（Elizabeth Warren）、参议院情报委员会主席马克·华纳（Mark Warner），参议院银行、住房和城市事务委员会主席谢罗德·布朗（Sherrod Brown）和参议院军事委员会主席杰克·里德（Jack Reed）。
 
-在信中，立法者们询问了财政部“在监测和执行加密货币行业遵守制裁方面的进展”，然后表达了对“犯罪分子、无赖国家和其他行为者可能利用数字资产和替代支付平台，作为一种新的手段来隐藏跨境交易以达到邪恶目的”的担忧。
 
-信中写道，鉴于拜登政府因俄罗斯正在进行的军事入侵而对其实施的一系列制裁，这些担忧变得更加紧迫。立法者们还引用《纽约时报》最近发表的一篇报道，其中专家警告说，俄罗斯公司可以利用“加密货币工具”来规避制裁。
+文字版原文：[中俄暧昧关系遭美方谴责](https://gnews.org/zh-hans/2098839/)
 
-报道指，立法者们要求财政部在3月23日之前回答相关问题，问题包括：“外国资产管制处（OFAC）将如何与外国政府和国际银行界的其他参与者合作，以确保加密货币不被用来逃避制裁。”以及所有“外国资产管制处在虚拟货币行业记录的违反制裁行为是什么？”
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-对于相关支持，立法者问道：“外国资产管理处可能需要哪些额外的工具，以确保加密货币参与者不能帮助俄罗斯或其他恶意行为者逃避美国和多边制裁？”
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-文章说，在周三的信件发布后不久，沃伦告诉国会：“已经很清楚的是，贩毒者、勒索软件、骗子和偷税漏税者都在使用加密货币，因为它是一种在当局无法追踪的情况下转移资金的方式。所以问题是，财政部如何评估风险，他们对此做了什么？这就是我们现在对财政部进行推动的原因。”
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**新闻来源**
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[Democrats press Treasury over concerns Russia could use cryptocurrency to evade sanctions](https://thehill.com/homenews/house/596601-house-passes-resolution-backing-ukraine)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
