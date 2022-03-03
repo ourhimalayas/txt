@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/3/2022 11:44 PM (UTC)`
+
+3/3/2022 Miles Guo’s GETTR: Three families of our fellow fighters rescued by us have arrived in Warsaw. 100% of the fellow fighters of the New Federal State of China in Ukraine have been rescued. David and many other fellow fighters have arrived in Poland. We will soon provide two free rescue flights, one to the U.S. and Canada and the other one to Southeast Asia.<br/><br/>3/3/2022 文贵盖特：从乌克兰救出来的3家战友已到华沙，新中国联邦在乌克兰的战友100%被救出；大卫等战友们在波兰汇合；很快我们将有两架免费救援飞机，一架去美加，一架去东南亚<br/>
+![img](https://media.gettr.com/group29/getter/2022/03/03/23/9c023385-3359-2043-5157-67ceba46ca13/out.jpg)
+
+---
+
 `@miles 3/3/2022 11:28 PM (UTC)`
 
 3/3/2022 Miles Guo’s GETTR: Putin is going to deploy killer weapons to annihilate 5 million Ukrainians in the next 48 hours. The Russian oligarchs are selling their properties and yachts at half price. An era of digital currency will be spawned out of war, and anchored digital currencies with stable coins will be the future of humankind. The CCP responded to Pompeo’s visit to Taiwan by employing hooligan tactics. Putin, Xi Jinping, and the CCP are bound to be over!<br/><br/>3/3/2022 文贵盖特：普京要动用大杀器在48小时内灭掉乌克兰500万人；俄罗斯大佬五折卖房卖游艇；战争将催生数字货币金融时代的诞生，有稳定币和锚定的数字货币是人类的未来；中共用流氓手段针对蓬佩奥访台；普京、习和中共必将完蛋！<br/>
@@ -149,13 +156,6 @@ We’ve seen this coming, and we’ve been reactionary. That gave Vladimir Putin
 
 03/02/2022 Miles Guo: The fellow fighters of the New Federal State of China are flying to Poland and other Eastern European countries to set up rescue bases;  the rescue led by the New Federal State of China does not distinguish between races and nations, we neither ask for money or seek any profit, nor expect any returns, the only goal is to save all the lives in need in the war zone.<br/><br/>3/2/2022 文贵直播：新中国联邦人正在飞往波兰等东欧国家，将在那里建立营救基地；新中国联邦的营救不分种族和国家，不要你一分钱，不图你任何利益和回报，只为拯救在战区所有需要救助的生命。<br/>
 ![img](https://media.gettr.com/group33/getter/2022/03/02/22/cfd469ad-2cf1-7462-7c38-4ec741e0c6ee/out.jpg)
-
----
-
-`@miles 3/2/2022 10:00 PM (UTC)`
-
-3/2/2022 Miles Guo: The Chinese people in Ukraine can enjoy free flights, and complimentary food and accommodation for 30 days arranged by the New Federal State of China without having to provide any personal information. We will arrange as many flights as they need. Can the CCP save the Chinese people this way? Only the New Federal State of China can save our fellow Chinese people like this!<br/><br/>3/2/2022 文贵直播：在乌克兰的华人无须提供任何个人信息即可享受新中国联邦安排的免费机票和30天食宿，需要多少飞机就安排多少；中共能这样救人吗？只有新中国联邦才能这样救自己的同胞<br/>
-![img](https://media.gettr.com/group33/getter/2022/03/02/22/fb74cb5f-bc09-c7af-3646-530b8d599991/out.jpg)
 
 ---
 
