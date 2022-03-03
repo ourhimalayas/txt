@@ -2,8 +2,8 @@
 ---
 
 
-## 20220302郭文贵大直播 ：俄乌战争唤醒了 德日两个战争机器，瑞士也放弃了中立立场
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2100185/)
+## 20220302郭文贵大直播 ：习包子和普大帝都会在今年嗝屁，新中国联邦是最美好的一群人！
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2100295/)
 
 作者：东京樱花团小视频组
 

@@ -2,29 +2,35 @@
 ---
 
 
-## 大直播后记：俄罗斯在美国有高达17万亿美元资产
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2099853/)
+## 中共病毒已使五百多万儿童失去父母
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2100030/)
 
-整理：流氓兔、铁血丹心
-编辑：Sadhu
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月28日，据相关媒体报道，通过对世界21个国家中共病毒数据的分析，英国伦敦帝国理工学院的一个研究团队发现，全球目前已经有超过五百多万的儿童在此次中共病毒疫情中失去了父母或监护人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-4.jpg)
+该小组根据数据模型估计，在中共病毒大流行的前20个月中，全球有大约330万儿童成为了孤儿，另有近180万儿童失去了祖父母或成年家长。其中，超过三分之二的丧亲儿童年龄在10到17岁之间，还有大约七分之一的丧亲儿童年龄尚不足4岁。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-14.png)图片来源：墨尔本雅典娜农场设计组
+对此，哈佛大学医学院的儿科教授认为，失去父母的儿童在缺乏关注、爱护和教导的情况下，他们大多会出现因大脑发育不良而导致精神和情绪失调的状态。另一方面，由于中共病毒的大流行，失去双亲的年幼儿童可能还会经历贫困、剥削和心理健康问题。
 
+报道也提及，这一数据眼下仍在继续上升。截止到2022年1月，全球失去家长或监护人的儿童已经达到670多万。
 
-今天世界战争进入了一个特别时期，也就是在3个小时以前，听说俄罗斯内部发生了急剧的变化。你们都是不知道的，急剧的变化，俄罗斯已经说我们必须要有态度了，这不是普京把乌克兰给砸烂了，也不是砸烂世界，我们全嗝屁了，咱们得有态度了。就是第一次听说，普京的核心团队像拉托维夫、绍伊古、伊莲娜、卡瓦斯基都出来说话了，就是没人敢说话，知道吧？！就没人就像习近平的周围那5个人，谁敢说话？ 许其亮说，咱不能打台湾，直接就把他给砍了，现在有人说话还来得及。因为昨天晚上我们这个晚上10点的时候就是俄罗斯的早上的时候，对整个乌克兰的2个大城市，一个重要的重镇，在东南部的进行了无差别的轰炸，今天早上今天中午，美国、联合国都会做出一系列的制裁决定。你知道就在美国，大家知道美国人当核实俄罗斯资产在美国的数量以后，听说美国就连美国的总统拜登先生和美国国会都是惊讶吓一大跳。那么在这个当中我我们要问一句话那中国呢？中共呢？俄罗斯给我们带来了什么？世界经济将会走向何方？你看今天这个经济，你们没感觉，你们都是看穿的也不少吃的不少，因为你压根就没有，就这几样东西，小福利家搬到美国总共不超过10件行李，你还能少到哪儿？再少就真的脱内裤脱胸罩了，你还有啥呀？ 你就魔女再有钱你就那点东西，你跟这些人比你那根本就不值得（人家）一个首饰钱，人类的财富极度的被彻底的垄断，被极少人垄断！俄罗斯在美国查出的钱把美国人给吓傻了，那你觉得你们真的知道真相吗？ 你们想知道多少钱吗？我在2017年爆料的时候我一说几百亿几千亿，国内的很多人说七哥你这太夸张了，哪那么多钱？一说几亿、几十亿、几百亿还都是官员，因为无知少见多怪，狗眼看人低，没见过钱。你知道，美国统计俄罗斯资产达17万亿（美元）资产！世界上没有比俄罗斯中共国再邪恶的了，邪恶到如此可怕。老百姓穷的穷，那中国共产党只能多不能少吧？这样的国家有什么，有强人，都要有独裁，还要控制媒体。
+参考链接：[Study: More than 5 million children lost a parent due to COVID, a bioweapon funded and built by governments](https://newstarget.com/2022-02-28-5-million-children-lost-parent-to-covid.html)
 
-你知道中国人死了多少人现在，战友没有人知道吗？ 在刚刚那4个小时以前，乌克兰大使馆发密电，说据了解现在在现场被打死的中国人大概在二十几个基本查实都是一些个体到乌克兰还有罗马尼亚做服装生意的，应该是在几辆车上被打死，而且是几乎是尸迹全无。你知道内部觉得是什么吗？不报不说不允许报道，不允许说只要没人说，咱就装出啥事没有。我相信会报道出来的，这就是中国共产党比你爹娘还亲，死了尸体都让你都不会说。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-资料来源：[2022年3月2日 文贵大直播](https://gettr.com/streaming/ptgw8b5f32)
+总编: Irene木木
+编辑: 谐趣园
+审核: Irene木木
+校正/发稿：Fei797
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

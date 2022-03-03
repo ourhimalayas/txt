@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/3/2022 2:43 PM (UTC)`
+
+3月3号：尊敬的战友们好GTV已经在昨天的凌晨12:00彻底的关闭……由于共产党大量的篡改数据，黑客。为了战友们的信息安全和GTV投资者的利益，经投资委员会和法律委员会决定已经将GTV关闭，请新中国联邦的战友们去盖特上．去看有关新中国联邦和灭共的直播。所有过去投资的老椅子的人请和联盟委员会联系，一切会更好。
+![img](https://media.gettr.com/group21/getter/2022/03/03/14/2d31ef76-d81b-34d0-6e44-fad087167b4e/out.jpg)
+
+---
+
 `@miles 3/3/2022 1:47 PM (UTC)`
 
 3月3号：尊敬的战友们好视频中所说的这一切！使用了我们爆料革命使用的专有名词盗国贼．在这里屡次被提及，但是和中国共产党的盗国财富和行为相比，只是小巫见大巫，你们很快会看到所有的中国共产党的家人面对的视频中的这一切！很快很快很快！
@@ -146,13 +153,6 @@
 
 2/27/2022 Miles Guo: The wicked CCP does not care about the life and death of the Chinese people living in Ukraine. I am the first one in the world to propose kicking Russia out of SWIFT. The Ukrainians have cleverly used social media to wage informational warfare in the Russia-Ukraine war, and our New Federal State of China must learn from them.<br/><br/>2/27/2022 文贵直播: 邪恶的中共丝毫不在乎乌克兰华人的死活；文贵是第一个呼吁将俄罗斯踢出SWIFT系统的人；乌克兰在俄乌战争中巧妙使用社交媒体打信息战，我们新中国联邦要向其学习
 ![img](https://media.gettr.com/group6/getter/2022/03/01/06/241c2a92-4b1c-85d4-6bae-86b32c3a1175/out.jpg)
-
----
-
-`@miles 3/1/2022 2:45 AM (UTC)`
-
-2/27/2022 Miles Guo: What is the role of Stinger missiles on the battlefield in Ukraine? Why is it called a “war of hybrid high intelligence”? How does Ukraine fight back against Russia by using the asymmetric information warfare and the psychological warfare that makes the enemies feel they are defeated during the war?<br/><br/>2/27/2022 文贵直播：针刺导弹在乌克兰战场发挥了什么作用？为什么说这是一场混合型的高智商战争？乌克兰是如何用不对称的信息战和战争宣判心理学对付俄罗斯的？<br/>
-![img](https://media.gettr.com/group8/getter/2022/03/01/02/adc23e8f-4efa-e800-d88c-9fcee043e782/out.jpg)
 
 ---
 

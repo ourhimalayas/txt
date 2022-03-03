@@ -2,8 +2,8 @@
 ---
 
 
-## 20220302郭文贵大直播 ：普京核心团队出现反战声音，俄在美藏匿资产达17万亿！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2100018/)
+## 20220302郭文贵大直播 ：新中国联邦成功救援在乌克兰的战友及家人
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2100138/)
 
 作者：东京樱花团小视频组
 
