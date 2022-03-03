@@ -2,24 +2,30 @@
 ---
 
 
-## 俄军侵略乌克兰加速俄罗斯闭关锁国
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2100454/)
+## 瑞典新研究表明辉瑞疫苗mRNA 能整合入人体 DNA
+` Little c` [轉載自GNews](https://gnews.org/zh-hans/2100966/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+作者：波士顿五月花 Little c
 
-采编/编辑撰稿： 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-296.png)图片来源：https://thepostmillennial.com/
-据加拿大媒体【后千禧年】3月1日报道，除了基本运输和邮递行业以外，包括苹果和福特等越来越多的国际大型企业开始加入到断绝与俄罗斯商业合作的行列。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/mrna-vaccine.jpg)图片来自网络
 
-报道称，为反抗俄罗斯侵略乌克兰，许多国家目前已禁止俄罗斯飞机进入其领空。同时，欧美及其盟国也已对俄罗斯及普京实施了严厉经济制裁，惩罚性的多米诺骨牌效应也将逐渐显现。
+一瑞典实验室研究发现辉瑞疫苗中的mRNA会整合进入人体细胞DNA，并改变受影响细胞的DNA。这一研究结果发表在Current Issues in Molecular Biology杂志上，巴西里约时报对此做了报道。
 
-据悉，英国石油巨头BP和壳牌都停止了与俄罗斯的贸易。联邦快递和UPS也警告称，将无法保证提供其在战乱地区的服务。国际集装箱运输行业的顶级公司，马士基和MSC日前都取消了往返俄罗斯的货运订单。苹果公司不仅暂停了在俄罗斯所有产品的销售，而且还封禁了乌克兰的地图信息，以保护当地居民的安全。
+他们采用了人类肝细胞系进行体外实验，发现辉瑞mRNA疫苗使用LINE-1天然逆转录酶，将疫苗的遗传密码逆转录整合人体细胞DNA。 这种“逆转录”和HIV RNA 病毒改变人体细胞DNA原理类似，能修改DNA后，并复制。
 
-校对编辑：硫酸羟氯喹64
+在正常情况下，人体需要正常细胞DNA转录成RNA，然后形成蛋白质，产生新细胞。如果疫苗中含有有害遗传密码，后果将非常可怕。
 
-发稿：青青
+* * *
 
-原文链接： [Growing list of companies cut ties with Russia over Ukraine invasion | The Post Millennial](https://thepostmillennial.com/growing-list-of-companies-cut-ties-with-russia-over-ukraine-invasion)
+参考链接：
+
+[New study from Sweden says, Pfizer mRNA does indeed integrate into our DNA](https://www.riotimesonline.com/brazil-news/modern-day-censorship/new-study-from-sweden-says-pfizer-mrna-does-indeed-integrate-into-your-dna/)
+
+[Intracellular Reverse Transcription of Pfizer BioNTech
+COVID-19 mRNA Vaccine BNT162b2 In Vitro in Human Liver
+Cell Line](https://www.riotimesonline.com/wp-content/uploads/2022/02/Pfizer-RNA-into-DNA.pdf)
+
+编辑/发布：Little c
 
  
 

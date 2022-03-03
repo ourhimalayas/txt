@@ -2,33 +2,25 @@
 ---
 
 
-## 美访台特使称 将坚决维护台海和平承诺
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2100038/)
+## 新中国联邦乌克兰救援行动初获胜果
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2100725/)
 
-作者：台湾宝岛农场-dobi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月2日，据相关媒体报道，由美国前参谋首长联席会议主席穆伦带领的访台团队当天会见了台湾总统蔡英文。会上，美方代表团指出，美国将坚定地以符合台湾人民意愿和最佳利益的方式，和平地解决台海两岸正在面临的各项议题。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-03-上午8.44.01.png)
-此外，蔡英文总统也在致辞时表示，在全球密切关注乌克兰情势之际，拜登总统派遣代表团访问台湾的做法凸显了台湾在国际及区域安全上的重要性，也体现出台美双方的牢固的关系。同时，作为国际社会的一员，台湾严厉谴责任何侵略行为，并将继续参与到对俄罗斯实施经济制裁的国际行动中。
+加拿大温哥华杨帆农场 枫叶快讯
 
-在台美双方的会面中，二者也提到了当前中共对台海以及附近区域的军事威胁正在逐渐升级。为此，台湾也提到，美国政府正在依据《台湾关系法》以及“六项保证”履行对台湾的安全承诺，包括近期先后批准的两项对台军售案，以及多次美国代表团的访台行动。
+采编/编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-304.png)图片来源：GTV 
+据3月2日GTV文贵大直播消息，本次由新中国联邦主导参与的“乌克兰国际人道救援行动”捷报频传，不仅向世界展示了爆料革命强大的执行力和国际影响力，更体现出新中国联邦人在果敢行动中实现“灭共是正义需要”的宗旨。
 
-参考链接：[美特使團訪台：維護台海和平 美國堅定承諾](https://www.epochtimes.com/b5/22/3/2/n13615461.htm)
+据悉，新中国联邦目前已成功在乌克兰战火中救出了至少四位爆料革命资深战友及其家人和朋友，并已全部安全抵达波兰。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
+同时，喜马拉雅联盟委员会负责人大卫和老班长及相关战友团队都已准备就绪飞赴乌克兰和波兰，并计划在匈牙利、罗马尼亚建立营救基地。
 
-总编：Irene木木
-编辑：Irene木木
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+此外，新中国联邦与联合国救援组织将与当地国军方合作，全力营救被困华人，整个救援过程不需要提供任何个人信息。在成功进入波兰后，将直接入驻联合国指定酒店，享受30天免费食宿。最后，按被救助者个人意愿，提供免费航班飞往指定的安全国家。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+发稿：青青
+
+消息来源：https://gtv.org/video/id=621f6ab7019ef64da653b4fe
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
