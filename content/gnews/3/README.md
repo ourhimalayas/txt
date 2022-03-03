@@ -2,29 +2,37 @@
 ---
 
 
-## 俄乌战争危机 石油价格继续飙
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2100684/)
+## 有声|得克萨斯州长要求商店停止销售俄罗斯产品
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2100791/)
 
-**撰稿：日本东京方舟农场 Miyali7768(文玉) 幽蘭自得**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国媒体3月1日报道，美国得克萨斯州州长格雷格·阿博特正在敦促该州的商店和零售商下架俄罗斯制造的产品，要求酒吧停止出售来自俄罗斯的伏特加，以示与乌克兰的团结。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-4-scaled.jpg)
+在过去的一周里，全世界都目睹了俄罗斯进军乌克兰，勇敢的乌克兰人民一直在为阻止入侵不懈战斗。得州州长的行为虽然不可能对俄罗斯造成致命得打击，但强烈地表达了该州对于这场冲突的立场。
 
-据《Newsmax》3月1日报道，由于有关协调全球原油库存释放的谈判未能平息对乌克兰危机和对俄罗斯制裁造成供应中断的担忧，石油价格继续飙升，当天油价已飙升8%。
+同时，得州禁止销售的某些俄罗斯产品，也可能会在国家其他大规模制裁的基础上进一步削弱俄罗斯的海外收入。
 
-据报道，截至美国东部时间3月1日上午 10:46（格林威治标准时间 1546），5 月交割的布伦特原油期货上涨 7.83 美元（或8.0%），至每桶 105.80 美元，创下自2014年8月以来的最高价。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-6.jpg)（图片来自Getty Images）
 
-另外，美国4月份西德克萨斯中质原油（WTI）也上涨了8.27美元（或8.6%），至103.99美元，创下自2014年7月以来的最高价。
+文字版原文：[得克萨斯州长要求商店停止销售俄罗斯产品](https://gnews.org/zh-hans/2098841/)
 
-为努力降低当前的石油价格，国际能源署(IEA)成员国计划从其战略石油储备(SPR)中释放6000万桶石油库存。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-然而，纽约的再次资本（Again Capital）合伙人约翰·基尔达夫 (John Kilduff)认为该计划效果甚微，他说，“石油价格的攀升体现出市场对乌克兰战争的担忧，交易员可能对IEA 国家只希望从SPR释放约 6000 万桶石油感到失望。”
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-参考链接：
-[https://www.newsmax.com/finance/streettalk/financial-markets-oil-100-barrel-ukraine- russia/2022/03/01/id/1059043/](https://www.newsmax.com/finance/streettalk/financial-markets-oil-100-barrel-ukraine-%20russia/2022/03/01/id/1059043/)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-素材采编：Miyali7768(文玉) 幽蘭自得
-编辑：老孙
-发布：小斐
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,42 +2,35 @@
 ---
 
 
-## 普京大规模抓捕反战人员
-` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/2100688/)
+## 中共一周前的“包机撤侨”至今未落实
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2100867/)
 
-撰稿: 银河系农场—骄子
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
+据《大纪元》3月3日报道，俄乌战事越演越烈，中共驻乌大使馆多次警告在乌的中共国公民局势危险，并于25日发出了“包机撤侨”的言论，但直到目前都没落实。
 
+据报道，大纪元记者2日致电中共国国际航空公司一名负责包机部门，接电的工作人员说：“现在没有包机，只能联系当地的大使馆。包机必须国家通知我们才行，目前我们还没有接到通知。我们也是听上面安排。”
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-10.jpg)图为在基辅大学等待撤离的华人（图片来自大纪元）
 
+大纪元记者致电中共国的南方航空公司和东方航空公司，均表示没有得到关于包机的通知。
 
+此外，近几日在乌华人一直在与大使馆沟通撤离方案，但撤离方案已改为自行转道邻国撤离，也就是说，中共让在乌华人自身自灭。
 
-3月1日，俄罗斯的一个人权组织报告称，由于普京发动了对乌克兰的入侵，俄罗斯国内出现了巨大的反对声音，而普京正在对这些反对者实施镇压。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-300.png)
-目前，俄罗斯各地城市已经拘留了数千人，仅周一一天时间，俄罗斯的13个城市就起码抓捕了411人。从2月24日至今，被逮捕的反战人员已达到6400多人。
+然而，令人欣慰的是，同样在救援在乌华人，但被中共称之为反华组织的新中国联邦昨日宣布，已成功从乌克兰战区救出新中国联邦的4个战友，及其家人和华人朋友（共3个家庭），并将他们平安送达波兰。
 
-此前，反对俄罗斯当局的领导人阿列克谢·纳瓦尔尼被监禁，大批民众发起游行支持这位反对者时，俄罗斯当局就进行了大规模镇压。更早一些的镇压发生在2017年。
+除了将华人救出乌克兰外，新中国联邦还将继续对滞留乌克兰的其他外国友人进行人道主义救援，并为需要救助的人提供30天免费住宿及机票，没有任何救助条件，不需要任何回报。这与中共对在乌华人的不管不顾形成鲜明对比。
 
-另据悉，此次反对入侵乌克兰的人员还包括一些俄罗斯的体育、演艺人员和商业领袖。
+通过这次救援行动，势必让更多人了解并加入新中国联邦大家庭，为国际社会展示出一个华人新形象。
 
-编辑/总编/审核: 飞虹
+参考链接：
+1.https://www.epochtimes.com/b5/22/3/3/n13617972.htm
+2.https://gnews.org/zh-hans/2096801/
 
-新闻来源:
+素材采编：幽蘭自得
+编辑：老孙
+发布：小斐
 
-[Russia widens internal crackdown on anti-war protesters; more than 6,400 arrested](https://www.washingtontimes.com/news/2022/mar/1/russia-widens-internal-crackdown-anti-war-proteste/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-14.jpg)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

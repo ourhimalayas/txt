@@ -2,25 +2,24 @@
 ---
 
 
-## 【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2094654/)
+## 乌克兰要求欧美协助建立禁飞区
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2094941/)
 
-[【PDF】【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知.pdf)
+采编：青青          翻译：文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/04-image.jpg)
+图片来源：[Ukraine calls for no-fly zone to stop Russian bombardment By Reuters (investing.com)](https://www.investing.com/news/stock-market-news/russias-isolation-deepens-as-ukraine-resists-invasion-2773510)
 
-由于乌克兰局势日益恶化，NFSC和法治基金与联合国救援组织GEM共同合作，近日紧急安排第一批次营救专机，协助华人同胞、美国及其他各国友人免费撤离，目的地为美国（需要美国签证）和其他安全中转国。我们将在波兰的Medyka设立临时接待点，提供30天以内的免费食宿。
+据【路透社】2月28日报道，乌克兰总统泽连斯基在俄军机无差别轰炸该国城市后要求国际社会为乌克兰提供针对俄罗斯的禁飞区，欧美及其盟国对此已初步达成了一致的支持。
 
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+报道称，俄乌双方日前进行的数小时停火谈判未能取得成功，俄军随即对拥有140万人口的[哈尔科夫]市发动猛烈空袭，并造成包括妇孺在内的大量平民伤亡。因此泽连斯基促请北约，应立即阻止俄罗斯的军机和导弹侵入乌克兰领空。
 
-**24小时紧急救援客服联系方式如下：
-**邮箱：[\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection)
-电话(短信或电话）：+1720-657-6776 或 +1719-224-4232
+据悉，尽管美国已排除了直接派遣部队与俄军地面作战的可能性，但国际社会对普京威胁将使用核武器表示严重担忧。由于美方对乌克兰的禁飞区诉求表示支持，因此美军在执行此任务时，极有可能会造成美俄的直接军事冲突。
 
-NFSC ｜法治基金
-3/1/2022
+校对编辑：硫酸羟氯喹64
 
-[https://ukrainehelp.info/](https://ukrainehelp.info/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知-scaled.jpg)
-[【PDF】【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知.pdf)
+发稿：苦尽甜来 (文来）
+
+新闻来源：[Ukraine calls for no-fly zone to stop Russian bombardment | Reuters](https://www.reuters.com/world/europe/russias-isolation-deepens-ukraine-resists-invasion-2022-02-28/)
 
  
 

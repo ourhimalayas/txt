@@ -2,34 +2,29 @@
 ---
 
 
-## 美国宣布对俄罗斯关闭领空
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2100527/)
+## 俄乌战争危机 石油价格继续飙
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2100684/)
 
-作者：纽约香草山农场-6zero4
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月1日，据当地媒体报道，美国总统拜登当天晚间宣布，将禁止俄罗斯飞机进入美国领空，作为对俄罗斯入侵乌克兰的进一步制裁。这是继欧盟、英国和加拿大先后宣布对俄罗斯关闭领空之后，美国的明确表态，而美国此举将彻底封死俄罗斯飞往南半球的快捷航线。
+**撰稿：日本东京方舟农场 Miyali7768(文玉) 幽蘭自得**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-1.jpeg)
+据《Newsmax》3月1日报道，由于有关协调全球原油库存释放的谈判未能平息对乌克兰危机和对俄罗斯制裁造成供应中断的担忧，石油价格继续飙升，当天油价已飙升8%。
 
-此前，由于俄乌局势的恶化，美国政府已经将俄罗斯认定为危险地区。为此，联邦政府向本国居民发布了针对俄罗斯的旅行禁令并呼吁俄罗斯当地的美国民众尽快撤离。另外，美国的各大快递物流公司在上周末相继暂停了运往俄罗斯的货物。同时，美国政府还禁止本土航班飞往俄罗斯，至于飞往亚洲的大部分航班则必须改道经过大西洋和欧洲，用以避开进入俄罗斯领空。
+据报道，截至美国东部时间3月1日上午 10:46（格林威治标准时间 1546），5 月交割的布伦特原油期货上涨 7.83 美元（或8.0%），至每桶 105.80 美元，创下自2014年8月以来的最高价。
 
-参考链接：[Breaking: Biden Finally Decides to Ban Russian Planes from US Airspace – Report](Biden%20Finally%20Decides%20to%20Ban%20Russian%20Planes%20from%20US%20Airspace%20-%20Report)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-6.jpg)（图片来自Getty Images）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+另外，美国4月份西德克萨斯中质原油（WTI）也上涨了8.27美元（或8.6%），至103.99美元，创下自2014年7月以来的最高价。
 
-总编：Irene木木
-编辑：Ivy001
-审核：Ivy001
-校正/发稿：谐趣园
+为努力降低当前的石油价格，国际能源署(IEA)成员国计划从其战略石油储备(SPR)中释放6000万桶石油库存。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+然而，纽约的再次资本（Again Capital）合伙人约翰·基尔达夫 (John Kilduff)认为该计划效果甚微，他说，“石油价格的攀升体现出市场对乌克兰战争的担忧，交易员可能对IEA 国家只希望从SPR释放约 6000 万桶石油感到失望。”
 
+参考链接：
+[https://www.newsmax.com/finance/streettalk/financial-markets-oil-100-barrel-ukraine- russia/2022/03/01/id/1059043/](https://www.newsmax.com/finance/streettalk/financial-markets-oil-100-barrel-ukraine-%20russia/2022/03/01/id/1059043/)
+
+素材采编：Miyali7768(文玉) 幽蘭自得
+编辑：老孙
+发布：小斐
 
  
 
