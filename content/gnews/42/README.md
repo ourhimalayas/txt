@@ -2,33 +2,61 @@
 ---
 
 
-## 有声｜中共封杀反战声音 金星谴责普京被禁言
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2098045/)
+## 有报道说台湾大规模断电
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2097654/)
 
-**By:秘翻新闻**
+参议员马可·卢比奥： 有报道说 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 大规模断电 然而，我们目前掌握的关于其覆盖范围或原因的信息非常有限
 
-**2022-03-03**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2222.jpg)图片源自:网络
-**[据新唐人3月3日讯，3月1号，中共国脱口秀主持人、演员金星，因在微博提到“铁链女”和乌俄战争，遭删贴、禁言。](https://www.ntdtv.com/gb/2022/03/02/a103362338.html)**
 
-**[金星在微博有1358万粉丝，她当天在微博上写道：“2022年最惊悚的事情是：一个脖子上被拴着铁链的中国女人说，这世界不要俺了！一个疯狂的俄国男人说，不要俺继续当总统，俺就不要这个世界了！”](https://www.ntdtv.com/gb/2022/03/02/a103362338.html)**
 
-**[微博还配了一张身着蓝黄俩色服装的女主持人照片，并写道：“从央视小姐姐穿的衣服颜色来看，是支持乌克兰的。停止战争，祈祷和平！”](https://www.ntdtv.com/gb/2022/03/02/a103362338.html)**
+> Reports of large scale power outage in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)
+> 
+> However we have very limited information at the moment about how widespread or the cause
+> — Marco Rubio (@marcorubio) [March 3, 2022](https://twitter.com/marcorubio/status/1499205404961783809?ref_src=twsrc%5Etfw)
 
-**[蓝黄亮色正是是乌克兰国旗的颜色。](https://www.ntdtv.com/gb/2022/03/02/a103362338.html)**
 
-**[这条微博发出后不久就被删除。金星专门澄清说：她本人没有删微博，是系统给屏蔽了。](https://www.ntdtv.com/gb/2022/03/02/a103362338.html)**
 
-**[随后，她在微博上就处于被禁言的状态。](https://www.ntdtv.com/gb/2022/03/02/a103362338.html)**
+参议员约翰·肯尼迪： 我们必须向北京明确表明，对台湾的武装侵略将对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 经济造成毁灭性打击。 【附肯尼迪参议员官网新闻：肯尼迪，斯科特参议员共同发起如敢入侵台湾就制裁中共国的提案】
 
-**[不过网友仍然可以看到，金星最后一条有关系统屏蔽她的反战帖子的微博，获得了5万个点赞，9900多次转发。但网友留下的1141条评论却全部被屏蔽。在中共国，删帖、禁言、控评等手段早已成为中共操控舆论的常用手段。](https://www.ntdtv.com/gb/2022/03/02/a103362338.html)**
 
-（ 秘翻新闻 二丫编辑报道 ）
 
-发布:星星
+> We must make it clear to Beijing that armed aggression towards Taiwan would deal a devasting blow to China’s economy.
+>  [https://t.co/6jeSeWMdLP](https://t.co/6jeSeWMdLP)
+> — John Kennedy (@SenJohnKennedy) [March 2, 2022](https://twitter.com/SenJohnKennedy/status/1499142720086024195?ref_src=twsrc%5Etfw)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+
+
+前国务卿蓬佩奥： 认为独裁者可以攫取土地而无需承担后果的想法，是拜登政府最重大的失败。
+
+
+
+> The idea that autocrats can just grab land and suffer no consequences from it is the most significant failure of the Biden Administration. [pic.twitter.com/XoYhOpXn3r](https://t.co/XoYhOpXn3r)
+> — Mike Pompeo (@mikepompeo) [March 2, 2022](https://twitter.com/mikepompeo/status/1499090199644676098?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨: 拜登今晚没有提到要让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对传播导致大流行的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 负责。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 放出致命病毒，是邪恶的，必须承担责任，否则北京将制造更多致命的瘟疫。
+
+
+
+> Biden tonight made no mention of holding Communst China accountable for spreading the virus that caused the pandemic. The CCP unleashed the deadly virus, is evil, and must be held responsible or Beijing will create even more deadly plagues
+> — Bill Gertz (@BillGertz) [March 2, 2022](https://twitter.com/BillGertz/status/1498854110472278016?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 越来越多的迹象表明 [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) 人民越来越意识到乌克兰战争的规模和影响 如果是这样的话，这将使 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 面临两线冲突的危险 他将迅速采取行动，实施旨在防止大规模抗议和（内部）动乱的限制措施
+
+
+
+> Growing signs the people of [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) are becoming increasingly aware of the scale & scope of the [#UkraineRussianWar](https://twitter.com/hashtag/UkraineRussianWar?src=hash&amp;ref_src=twsrc%5Etfw) 
+>  
+> If so this would put [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) in danger of a two front conflict 
+> 
+> He would move quickly to impose restrictions aimed at preventing large protests & unrest
+> — Marco Rubio (@marcorubio) [March 3, 2022](https://twitter.com/marcorubio/status/1499200309926981634?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

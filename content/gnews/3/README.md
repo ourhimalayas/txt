@@ -2,39 +2,30 @@
 ---
 
 
-## 乌克兰民众组人墙阻挡军进核电站
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2100921/)
+## 瑞典新研究表明辉瑞疫苗mRNA 能整合入人体 DNA
+` Little c` [轉載自GNews](https://gnews.org/zh-hans/2100966/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：波士顿五月花 Little c
 
-#### 整理：围剿维尼熊
-编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/03/mrna-vaccine.jpg)图片来自网络
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-18.png)
+一瑞典实验室研究发现辉瑞疫苗中的mRNA会整合进入人体细胞DNA，并改变受影响细胞的DNA。这一研究结果发表在Current Issues in Molecular Biology杂志上，巴西里约时报对此做了报道。
 
-图片来源：雅典娜设计组
+他们采用了人类肝细胞系进行体外实验，发现辉瑞mRNA疫苗使用LINE-1天然逆转录酶，将疫苗的遗传密码逆转录整合人体细胞DNA。 这种“逆转录”和HIV RNA 病毒改变人体细胞DNA原理类似，能修改DNA后，并复制。
 
+在正常情况下，人体需要正常细胞DNA转录成RNA，然后形成蛋白质，产生新细胞。如果疫苗中含有有害遗传密码，后果将非常可怕。
 
-根据大纪元2022年3月3日讯，周三（3月2日），随着俄军入侵在乌克兰东南部城镇埃内霍达尔（Enerhodar），大量工人和附近民众在街上组成人墙，封锁了通往附近一座乌克兰核电站的道路，以阻止俄军进入。
+* * *
 
-有相关经过核实的视频显示，人群举著乌克兰国旗，组成人墙，将通往埃内霍达尔“扎波罗热核电站”（Zaporizhzhia Nuclear Power Plant）的道路挡住，他们使用垃圾车封锁街道。
+参考链接：
 
-扎波罗热电厂是乌克兰最大核电基地，该国共拥有15个核能反应堆，该核电厂拥有6个。公开信息显示，“扎波罗热核电站”也是欧洲最大的核电厂。
+[New study from Sweden says, Pfizer mRNA does indeed integrate into our DNA](https://www.riotimesonline.com/brazil-news/modern-day-censorship/new-study-from-sweden-says-pfizer-mrna-does-indeed-integrate-into-your-dna/)
 
-据CNN报导，俄罗斯3月1日通知国际原子能机构（IAEA）说，俄罗斯军队控制了扎波罗热核电站周边地区。
+[Intracellular Reverse Transcription of Pfizer BioNTech
+COVID-19 mRNA Vaccine BNT162b2 In Vitro in Human Liver
+Cell Line](https://www.riotimesonline.com/wp-content/uploads/2022/02/Pfizer-RNA-into-DNA.pdf)
 
-上周，俄罗斯军队控制了乌克兰的切尔诺贝利核电站。切尔诺贝利1986年曾发生人类史上最严重的一次核灾难，带来大规模的经济和人命伤亡损失。
-
-参考链接：[乌克兰民众组人墙 阻俄军进核电站](https://www.epochtimes.com/gb/22/3/2/n13617004.htm)
-
-发布*：wenly*
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑/发布：Little c
 
  
 

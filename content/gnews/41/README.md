@@ -2,12 +2,32 @@
 ---
 
 
-## 中共在俄罗斯入侵乌克兰的核威胁和网络威胁中的角色
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098643/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月2日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2097700/)
 
-02/28/2022 比尔·格茨: 习近平早在2012年就与乌克兰签署了一项协议，为乌克兰提供核保护伞。如果普京对乌克兰使用核武器，那么届时习近平将违反另一项国际协议。此外，中共国和俄罗斯对美国构成了巨大的网络威胁，但美国的网络能力也非常强大。
+作者：香草山翻译部
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gtv.org/broadcast/watch/62201d1d019ef64da6542782](https://gtv.org/broadcast/watch/62201d1d019ef64da6542782)
+访谈：[https://gtv.org/broadcast/watch/62202524019ef64da6542ce5](https://gtv.org/broadcast/watch/62202524019ef64da6542ce5)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

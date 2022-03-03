@@ -2,32 +2,28 @@
 ---
 
 
-## 2022年3月3日上午九时许台湾局部地区突发无预警停电
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2097639/)
+## 联合国大会紧急特别会议通过谴责俄罗斯决议
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2097629/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1646271534-62201c2e76670_副本.jpg)图片取自网络
-2022年3月3日台湾时间早九时许，笔者住所突发停电，停电后消防单位立即进入戒备状态，经与住所管理员沟通后得整栋楼全部停电，随后在与台湾其他地区的家人及朋友联系，得知此次突发无预警停电并非全台停电，2022年3月3日台湾时间早10:40 笔者所在住所恢复供电。
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-249.png)图片来源于本文链接
+据NHK3日早晨消息，在联合国大会就俄罗斯军事入侵乌克兰举行的紧急特别会议上，通过了谴责俄罗斯并呼吁立即撤军的决议。其中包括欧洲、美国和日本在内的141个国家投了赞成票，进一步凸显了乌克兰局势中形成了对俄罗斯的国际孤立。
 
-由于此次无预警断电恰逢美国前国务卿彭佩奥先生访台期间，再加上普京与习近平的你取乌克兰我取台湾计划已经大白天下，因此台湾的任何风吹草动都不能不牵动台湾人民和全世界的神经，不管这次突发无预警停电是意外还是人为还是中共蓄意制造恐慌，每一个台湾人在事关生死面前都面临抉择，生存还是死亡，这是一个全人类共同面对的问题。
+联合国关于俄罗斯军事入侵乌克兰的紧急特别会议于当地时间2日上午举行在美国纽约联合国总部大会堂举行。从上月28日起的三天里，193个成员国中约120个国家的代表发表了演讲，最后由美国等国家提交的决议获得通过。
 
-撰稿：Judy Lin
+该决议谴责了俄罗斯在乌克兰开展的军事行动以及俄罗斯加强其核力量准备的决定。对住宅区和学校等民用设施遭到袭击以及平民伤亡报告深表关切，并呼吁俄罗斯立即无条件撤军。
 
-发布：黎明之前
+投票于亚洲时间凌晨进行，欧洲、美国、日本等141个国家赞成，俄罗斯、白俄罗斯、朝鲜等5个国家反对，中国和印度在内的共有35个国家投了弃权票。最终获得超过三分之二的赞成票通过了该决议。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+决议通过后，联合国秘书长安东尼奥·古特雷斯告诉记者，“接近决议并实现其目的。这是我作为秘书长的责任。我们呼吁俄罗斯结束在乌克兰的敌对行为，放下武器，打开对话和外交的大门。”古特雷斯还说：“乌克兰的领土和主权必须根据《联合国宪章》得到尊重。时间所剩无几。我们将尽最大努力立即开始和平谈判。”
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+美国总统乔·拜登2日就决议通过发表讲话时谴责有35个国家投了弃权票，拜登还特别点名批评中国和印度投了弃权票。拜登说，“他们认为可以分裂北约、欧洲和美国。我们要向全世界表明，没有人能做到这一点。”
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+信息来源：[国連総会の緊急特別会合 ロシアを非難する決議 賛成多数で採択](https://www3.nhk.or.jp/news/html/20220303/k10013510951000.html)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
