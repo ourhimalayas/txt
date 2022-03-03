@@ -2,20 +2,25 @@
 ---
 
 
-## 蔡英文赠勋章给蓬佩奥 表彰对台美关系带来贡献
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2098596/)
+## 视频|被俘俄罗斯士兵深感遗憾
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2098636/)
 
-撰稿：追着曙光跑
+制作：香草山视频部
 
-据台湾中央社3月3日的报道，台湾总统蔡英文今天（3日）在总统府，赠勋章给美国前国务卿蓬佩奥，表彰他提升台美关系带来的贡献。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-03-at-16.05.38.jpeg)图片来源：原新闻
-蔡总统致词表示，过去蓬佩奥形容台湾是民主成功的故事、可信赖的伙伴，及世界良善的力量，很高兴欢迎蓬佩奥率团来访，亲身见证台湾人民的友善、热情以及对民主自由的坚持。
+（导语）几天来，在对乌克兰的入侵中，很多俄军士兵成为俘虏。他们神情沮丧，意志消沉，充满欠疚。不过他们受到了良好的对待。
 
-蔡总统指出，通过颁赠“特种大绶景星勋章”，除了表彰蓬佩奥对提升台美关系带来的贡献，也要代表台湾人民表达最深厚的感谢，蓬佩奥在任内解除了对台交往限制、对台军售常态化及台美高层互访层级不断提高，这些都加深双方的互动合作。
+经询问，这些被俘的士兵居然是被以演习的名义诓诱到乌克兰作战的，有些人甚至不清楚出击的任务和目标。他们称，俄军没有必要来乌克兰打仗，乌克兰人不希望与俄罗斯开战。乌克兰人的战斗只是在抗击俄罗斯人的入侵。
 
-另外，蔡总统指出，近来面对乌克兰情势发展，台湾也和美国等民主伙伴合作，参与国际社会对俄罗斯的经济制裁，就在几天前台湾也啟动对乌克兰的人道救援，台湾和美国共享民主自由价值，希望未来台美可以共同写下更多民主成功的故事。
+（请播放视频：[https://mega.nz/folder/Xk0iDICY#ZlVBFRjz5Yd0reE6-8gqkQ](https://mega.nz/folder/Xk0iDICY#ZlVBFRjz5Yd0reE6-8gqkQ) 视频时长：4’37”）
 
-信息来源：[蔡總統讚蓬佩奧人氣高 贈勳表彰對台美關係貢獻](https://www.cna.com.tw/news/aipl/202203030087.aspx)
+发稿：Daxia
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

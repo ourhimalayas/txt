@@ -2,53 +2,30 @@
 ---
 
 
-## 乌克兰战争两位球星遇害，更多的体育界人士奔赴前线
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2098818/)
+## 中日财经爆|FTSE Russell和MSCI指数同时将俄罗斯个股踢出
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2098919/)
 
-#### 翻译/编辑：文泓
+撰稿：东京樱花团/peterwong
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片13.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/FTSE-Russell和MSCI指数同时将俄罗斯个股踢出.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnews.cgtn.com%2Fnews%2F3149544e7951444d7849444e7941444f7a456a4e31457a6333566d54%2Fimg%2Fb38adc153ea34d2985affd30b8baa8bf%2Fb38adc153ea34d2985affd30b8baa8bf.jpg&amp;imgrefurl=https%3A%2F%2Fnews.cgtn.com%2Fnews%2F2019-06-24%2FChina-s-A-shares-market-set-for-wider-global-appeal-HN83xAuNX2%2Findex.html&amp;tbnid=wGYvEj9NRaaUnM&amp;vet=12ahUKEwjlzcaxt6n2AhXN_zgGHQi9AQEQMygKegUIARC2AQ..i&amp;docid=c6OeC2P5kSwefM&amp;w=1920&amp;h=1080&amp;q=FTSE%20Russell&amp;ved=2ahUKEwjlzcaxt6n2AhXN_zgGHQi9AQEQMygKegUIARC2AQ)
 
-图片来源：Republic World & 雅典娜设计组
+指数供应商富时罗素FTSE Russell和明晟MSCI周三（3月2日）表示，旗下指数将全面剔除俄罗斯个股。
 
+富时罗素称这一决定将从3月7日开始生效，而MSCI称将从3月9日收盘起在所有MSCI指数全面实施。
 
-全球职业足球运动员联盟（FIFPRO）证实，已有两名乌克兰球星在俄罗斯入侵期间死亡。
+MSCI同时表示，MSCI俄罗斯指数从新兴市场重新归类为独立市场状态。
 
-周三FIFPRO透露，21岁的[维塔利·萨皮洛](https://www.looppng.com/tags/vitalii-sapylo)和25岁的德米特里·马丁年科在乌克兰遇害。
+富时罗素(FTSE Russell)是伦敦证券交易所集团 (LSEG)子公司富时集团和弗兰克罗素公司共同推出的股票指数商标。
 
-“我们的想法与两位年轻的乌克兰足球运动员的家人、朋友和队友一样，这是足球界人士在这场战争中首次付出生命，”FIFPRO发推文说：“愿他们俩安息。”
+明晟公司（MSCI），原名为摩根士丹利资本国际，是一家美国股票基金、收入型基金、对冲基金股价指数和股东权益投资组合分析工具提供商。它发布MSCI BRIC、MSCI World和MSCI EAFE指数。
 
-萨皮洛作为守门员为卡帕蒂利沃夫的青年队效力，俱乐部在一份声明中向他表示敬意，并表示：“我们珍惜这位英雄的永恒记忆。”
+消息来源:
 
-萨皮洛的父亲罗曼告诉德国图片报，“他是一个非常快乐、爱玩的男孩。这是普京该死的空袭。把我的孩子夺走了”。
+[MSCI及富时罗素旗下指数全面剔除俄罗斯个股](https://cn.reuters.com/article/msci-ftserussell-russia-0302-idCNKBS2L00A4?il=0)
 
-“他真的很想战斗。第一辆坦克坏了，然后是第二辆。无论如何，他都不想离开前线。”
-
-马丁年科效力于乌克兰乙级球队戈斯托梅尔。周三，FIFPRO秘书长乔纳斯·霍夫曼向媒体讲述了这场悲剧。
-
-“我们已经确认了他们的死亡，这当然令人难以置信，”他说。“我们没有关于我们有多少成员目前真正卷入冲突的明确信息。
-
-目前乌克兰仍有数百名乌克兰球员，所以现在很难大致了解其中有多少人处于何种程度的风险中。
-
-与此同时，国际冬季两项联盟（IBU）证实，乌克兰19岁的职业滑雪运动员叶夫恩·马利雪夫在战斗中牺牲。
-
-乌克兰前网球明星斯塔霍夫斯基已返回基辅参加击退俄罗斯人的战斗；三次重量级拳击冠军瓦西里·洛马琴科也加入了这场战斗，这位34岁的男子在他的脸书页面上的帖子中被拍到身穿军装、肩扛步枪。
-
-9月击败安东尼·约书亚的世界重量级拳王奥莱克山德·乌西克，据说也离开伦敦赴乌克兰参战；重量级职业拳击偶像维塔利·克里琴科，现任基辅市长将在战争中服役，他的弟弟弗拉基米尔也报名参加了领土部队的预备队。
-
-“我是一名乌克兰人战士”，弗拉基米尔·克里琴科周一表示：“生活在一个自由国家的意志和愿望是我们最强大的力量。”
-
-参考链接：[Russia Ukraine invasion kills sports stars, footballers Vitalii Sapylo and Dmytro Martynenko | news.com.au — Australia’s leading news site](https://www.news.com.au/sport/sports-life/ukrainian-sports-stars-killed-amid-russian-invasion/news-story/542612d1b5968abb047021a68038385d)
-
-*发布：wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

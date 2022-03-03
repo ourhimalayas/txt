@@ -2,26 +2,23 @@
 ---
 
 
-## 日本政府宣布对白俄罗斯总统实施制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2098963/)
+## 俄乌战争｜摩根大通料俄罗斯将现债务违约 澳新分析或可透过人民币债周转
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2099028/)
 
-撰稿：东京樱花团/百花李香
+**撰文/ 港台前线｜发布日期/ 03/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/摩根大通料俄羅斯將現債務違約-澳新分析或可透過人民幣債週轉.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/日本政府宣布对白俄罗斯总统实施制裁.jpg)[图片来源](https://www.businessinsider.com/belarus-lukashenko-revealed-map-russias-ukrainian-invasion-plans-2022-3#:~:text=Putin%27s%20strongman%20ally%20may%20have%20accidentally%20shared%20a%20map%20of%20Russia%27s%20Ukrainian%2Dinvasion%20plans)
+自美欧连同全球主要国家同时冻结俄罗斯央行的外汇存底及禁止其使用SWIFT结算系统后，外界十分关注俄罗斯经济会否崩溃。对此，摩根大通（JPMorgan）的分析师持悲观态度，并警告俄罗斯最快本月底就会出现第一轮债务违约，预计涉及金额将高达7亿美元。
 
-3月3日，日本政府宣布，因白俄罗斯总统卢卡申科支持俄罗斯对乌克兰的军事入侵，对他实施制裁，冻结其资产。
+根据摩根大通的分析认为，俄罗斯为了反制美国制裁，对外汇设限，令付款链受到影响，进一步增加了俄罗斯债务违约的风险。最快本月16日俄罗斯就要面临两笔到期债务，即使有30日的宽限期，下月15日都仍然会违约。多个评级机构已表明，一旦出现违约将大手调低俄罗斯的信用评级，这无疑会加剧该国日后进行周转及调动资本难度。
 
-被制裁者包括总统在内还有七名国家高级官员和白俄罗斯国家军事工业委员会在内的两个组织。
+另一方面，澳新银行（ANZ）经济师分析发现，俄罗斯目前有超过6,300亿美元外汇储备，其中二成，即1,400亿美元，分别由俄罗斯央行及俄罗斯主权财富基金持有，价值800亿美元及600亿美元人民币债券，数字显示人民币在俄罗斯外滙储备中所占比例，已由去年公布的13%提高至22%水平。经济师认为，如果近期内俄央行大手放售人民币债，或可应付其他外债到期付款。
 
-此外，对俄罗斯普京身边的对外情报局局长纳雷什金在内的18名个人和该国的四家主要银行也被列入资产冻结对象。
+俄罗斯央行自2017年起不断减持美元资产转投人民币及黄金等，连番操作旨在减轻美国制裁对当地经济伤害，惟即使俄罗斯手持人民币债可透过人民银行的人民币跨境支付系统（CIPS）处理，CIPS结算量仍远低于SWIFT，期望借此逐步取代美元结算的领导地位仍是天方夜谭。
 
-信息源：
+来源｜[CNN](https://edition.cnn.com/2022/03/02/investing/default-sanctions-russia/index.html)、[路透社](https://www.reuters.com/markets/europe/russian-central-bank-sovereign-fund-may-hold-140-bln-chinese-bonds-anz-2022-03-03/)
 
-[ベラルーシへの制裁発表　ロシア大統領側近も　政府](https://news.yahoo.co.jp/articles/e6bf53d139d1176c2caa9b9b8582b6d8002fd705#:~:text)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,20 @@
 ---
 
 
-## 中日财经爆|FTSE Russell和MSCI指数同时将俄罗斯个股踢出
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2098919/)
+## 习神普帝今年完了
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2098973/)
 
-撰稿：东京樱花团/peterwong
+撰稿—爱战神
+校对/上传—无明逆流
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FTSE-Russell和MSCI指数同时将俄罗斯个股踢出.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnews.cgtn.com%2Fnews%2F3149544e7951444d7849444e7941444f7a456a4e31457a6333566d54%2Fimg%2Fb38adc153ea34d2985affd30b8baa8bf%2Fb38adc153ea34d2985affd30b8baa8bf.jpg&amp;imgrefurl=https%3A%2F%2Fnews.cgtn.com%2Fnews%2F2019-06-24%2FChina-s-A-shares-market-set-for-wider-global-appeal-HN83xAuNX2%2Findex.html&amp;tbnid=wGYvEj9NRaaUnM&amp;vet=12ahUKEwjlzcaxt6n2AhXN_zgGHQi9AQEQMygKegUIARC2AQ..i&amp;docid=c6OeC2P5kSwefM&amp;w=1920&amp;h=1080&amp;q=FTSE%20Russell&amp;ved=2ahUKEwjlzcaxt6n2AhXN_zgGHQi9AQEQMygKegUIARC2AQ)
+2022年3月2日郭文贵先生在大直播劲爆：2022年不会再有习太阳、普大帝，他们完球蛋了。他进一步透露，有可靠情报来源：普京身体状况出现了很大问题。在2015年文贵先生就告诉中东及美国朋友：别看普京满身肌肉块，身体并不好。习太阳做过两次大手术，身体非常糟糕，他们俩都是69岁，跨不过七十这道坎，撑不过今年，属于兔子的尾巴。
 
-指数供应商富时罗素FTSE Russell和明晟MSCI周三（3月2日）表示，旗下指数将全面剔除俄罗斯个股。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/W28.jpeg)图片来源：中共央视
 
-富时罗素称这一决定将从3月7日开始生效，而MSCI称将从3月9日收盘起在所有MSCI指数全面实施。
+文贵先生分析道：一战、二战，所有人类历史上的昏君，都是在身体变化后作出了无法想象的决定。所以七哥以前一直在说2022年是人类历史上最黑的一年，真是料事如神，普大帝发动战争、习太阳继续放毒、疫苗毒性爆发……经济大崩溃，货币大幅贬值，整个世界灾难深重、民不聊生！
 
-MSCI同时表示，MSCI俄罗斯指数从新兴市场重新归类为独立市场状态。
+文贵先生畅谈：在人类最黑暗的时候，有一颗最亮的星星，那就是我们新中国联邦，将来的中国没有独裁、与世界和平相处、一人一票……新中国联邦的战友们有着美好的未来，做一个欣赏满山遍野鲜花的赏花者，做一个享受新鲜空气、温暖阳光的人。最终，中国人生活在一个没有独裁统治的国家，幸福无比！
 
-富时罗素(FTSE Russell)是伦敦证券交易所集团 (LSEG)子公司富时集团和弗兰克罗素公司共同推出的股票指数商标。
-
-明晟公司（MSCI），原名为摩根士丹利资本国际，是一家美国股票基金、收入型基金、对冲基金股价指数和股东权益投资组合分析工具提供商。它发布MSCI BRIC、MSCI World和MSCI EAFE指数。
-
-消息来源:
-
-[MSCI及富时罗素旗下指数全面剔除俄罗斯个股](https://cn.reuters.com/article/msci-ftserussell-russia-0302-idCNKBS2L00A4?il=0)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
