@@ -2,26 +2,34 @@
 ---
 
 
-## 有声｜拜登发表年度贸易政策:打击中共非市场行为
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2098525/)
+## 罗马尼亚在乌克兰边境附近失去两架飞机
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2098617/)
 
-By:**秘翻新闻**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**2022-03-03**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/12-3.png)图片来源 路透社
-[据《自由亚洲》3月2日报道，美国贸易代表办公室周二发布年度贸易政策，透露正在重新调整对中共国的贸易政策，研究所有现有的工具和可能的新工具，以打击中共主导的非市场行为。](https://www.rfa.org/cantonese/news/us-trade-03022022065234.html)
+#### 翻译/编辑：小红帽
 
-[「年度贸易政策议程」指出，美国正在直接向中共国提出关切，并加快与盟国和伙伴合作。 美国贸易代表(USTR)在报告中表示，我们对中共加码实施有害的贸易和经济滥用行为有清醒的认识，并指出，美国处理双边关系的整体和务实策略将侧重于美国工人的长期利益。](https://www.rfa.org/cantonese/news/us-trade-03022022065234.html)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/MiG-21_LanceR_fighter_jet_.jpeg)图片来源：www.romania-insider.com
 
-[美国总统拜登在去年10月首次宣布的新的「印太经济框架」，目的是填补华盛顿在2017年退出 「跨太平洋伙伴关系」后留下的空白，后者是一个旨在制衡中共国的区域贸易协定。 美国贸易代表表示 ，将在不久的将来公布该计划的更多细节。](https://www.rfa.org/cantonese/news/us-trade-03022022065234.html)
 
-秘翻新闻 Milojai 编辑报道
+根据RT新闻3月2日报道，罗马尼亚国防部表示，周三，一架罗马尼亚米格-21“长矛”战斗机在多布罗热亚东南部地区的雷达上消失了。事件发生后，一架IAR 330美洲豹直升机坠毁，该直升机被派去寻找战斗机的位置。
 
-发布 : 恩典
+这架战斗机是上世纪60年代苏联标志性飞机的以色列升级版，在起飞并前往与乌克兰接壤的沿海地区巡逻约15分钟后消失了。随后搜救任务被启动，美洲豹直升机被派去寻找这架失去联系的“长矛”战斗机。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+然而，军方表示，美洲豹直升机在执行任务约20分钟后也消失了。在失去通讯之前，其飞行员报告说该地区的天气状况极其恶劣。大约两小时后，美洲豹直升机被确认坠毁。
 
+当地媒体报道称，死亡人数不是罗马尼亚国防部长称的只有5人。死亡数字可能是更高。媒体称有7人在直升机坠毁中死亡。从媒体播出的录像显示，直升机的外壳显然在撞击中严重受损，随之被火焰吞噬。
+
+新闻链接：[Romania loses two aircraft near Ukraine’s border](https://www.rt.com/news/551098-romania-jet-helicopter-crash/)
+
+*发布：**Frank2021*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

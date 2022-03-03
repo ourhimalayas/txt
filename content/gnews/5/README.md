@@ -2,10 +2,10 @@
 ---
 
 
-## 参议员里克·斯科特称美国不能依赖中共国做任何事情
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098534/)
+## 今日俄乌会谈没有突破，基辅大规模轰炸仍在进行
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098619/)
 
-02/26/2022 佛罗里达州参议员里克·斯科特说，中共国要摧毁美国，所以我们必须停止从中共国购买一切。
+03/01/2022 今日俄乌会谈没有突破，基辅大规模轰炸仍在进行
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
