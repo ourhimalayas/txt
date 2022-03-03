@@ -15,161 +15,161 @@
 
 ---
 
-### [中共在俄罗斯入侵乌克兰的核威胁和网络威胁中的角色](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [[ 聚焦港澳 ] 习近平的历史自信](/content/gnews/1/README.md)
+ ` 澳喜农场`
 
-### [俄罗斯大势已去 其盟友邪恶中共也将随之毁灭](/content/gnews/2/README.md)
+### [美国共和党议员敦促财长耶伦阻止俄罗斯兑换IMF储备](/content/gnews/2/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [奥密克戎衍生病毒BA.2在日本流行](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声｜ 习近平声援普京 美国要中共付出代价](/content/gnews/3/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [拜登派前高级国防官员访问台湾](/content/gnews/4/README.md)
+ ` 【🌹玫瑰新闻】`
 
-### [中共国散播中共病毒没后果，普京为何不入侵乌克兰呢？](/content/gnews/4/README.md)
+### [声援乌克兰！双北市长表示：金钱、物资都愿意帮忙！](/content/gnews/5/README.md)
+ ` 蓝莲花农场`
+
+### [香港单日感染人数超5万创新高](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [让全世界听听这位俄罗斯驻日大使的反人类言论](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [澳洲将为全球各国供应煤炭以取代俄罗斯](/content/gnews/8/README.md)
+ ` 走进澳洲`
+
+### [中共在俄罗斯入侵乌克兰的核威胁和网络威胁中的角色](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [今日俄乌会谈没有突破，基辅大规模轰炸仍在进行](/content/gnews/5/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [俄罗斯大势已去 其盟友邪恶中共也将随之毁灭](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [罗马尼亚在乌克兰边境附近失去两架飞机](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声｜加拿大驻华使馆挂援乌标语 遭极端人士涂污](/content/gnews/7/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [视频|俄罗斯禁止当地民众向外转移资产](/content/gnews/8/README.md)
+### [视频|被俘俄罗斯士兵深感遗憾](/content/gnews/11/README.md)
  ` MOSVIDEO`
 
-### [欧盟、英、美等国对俄实施制裁](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [视频|志愿者向乌克兰捐赠百万美元加密货币](/content/gnews/10/README.md)
+### [视频|普京大规模抓捕反战人员](/content/gnews/12/README.md)
  ` MOSVIDEO`
 
-### [美官员：中方要求俄将乌克兰战争推迟到冬奥之后](/content/gnews/11/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [视频|美国和国际能源署释放6000万桶石油库存](/content/gnews/13/README.md)
+ ` MOSVIDEO`
 
-### [有声｜拜登发表年度贸易政策:打击中共非市场行为](/content/gnews/12/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [视频|俄罗斯原油航线油轮运费飙升](/content/gnews/14/README.md)
+ ` MOSVIDEO`
 
-### [国际柔道联合会允许俄罗斯运动员参加比赛](/content/gnews/13/README.md)
+### [视频|韩国著名演员李英爱向乌克兰捐赠1亿韩元](/content/gnews/15/README.md)
+ ` MOSVIDEO`
+
+### [视频|欧洲议会投票承认乌克兰“欧盟候选国地位”](/content/gnews/16/README.md)
+ ` MOSVIDEO`
+
+### [国际柔道联合会允许俄罗斯运动员参加比赛](/content/gnews/17/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [英国首相约翰逊：普京犯有战争罪](/content/gnews/14/README.md)
+### [英国首相约翰逊：普京犯有战争罪](/content/gnews/18/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [郭文贵直播摘要和音频 2022.03.02](/content/gnews/15/README.md)
+### [郭文贵直播摘要和音频 2022.03.02](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：莫斯科警察逮捕向乌克兰大使馆献花的儿童](/content/gnews/16/README.md)
+### [秘翻在线：莫斯科警察逮捕向乌克兰大使馆献花的儿童](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌克兰前沿每日报道](/content/gnews/17/README.md)
+### [乌克兰前沿每日报道](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [乌克兰战争改写了所有政治本质](/content/gnews/18/README.md)
+### [乌克兰战争改写了所有政治本质](/content/gnews/22/README.md)
  ` 首尔天池农场`
 
-### [有声｜中共封杀反战声音 金星谴责普京被禁言](/content/gnews/19/README.md)
+### [有声｜中共封杀反战声音 金星谴责普京被禁言](/content/gnews/23/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [20220302郭文贵大直播 ：中俄十万水军在盖特推特散布谣言：乌克兰是新纳粹，在乌克兰中国同胞已经死了20多人！](/content/gnews/20/README.md)
+### [20220302郭文贵大直播 ：中俄十万水军在盖特推特散布谣言：乌克兰是新纳粹，在乌克兰中国同胞已经死了20多人！](/content/gnews/24/README.md)
  ` Tokyo Sakura Video Group`
 
-### [【秘翻在线】俄军对乌克兰港口实施“全面种族灭绝”](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [新中国联邦新闻、GTV新闻访谈简报|2022年3月2日晚](/content/gnews/22/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年3月2日晚](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [有报道说台湾大规模断电](/content/gnews/23/README.md)
+### [有报道说台湾大规模断电](/content/gnews/26/README.md)
  ` 美国政要直译推`
 
-### [2022年3月3日上午九时许台湾局部地区突发无预警停电](/content/gnews/24/README.md)
+### [2022年3月3日上午九时许台湾局部地区突发无预警停电](/content/gnews/27/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [联合国大会紧急特别会议通过谴责俄罗斯决议](/content/gnews/25/README.md)
+### [联合国大会紧急特别会议通过谴责俄罗斯决议](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|西方已冻结俄央行一半资产 制裁还会加码](/content/gnews/26/README.md)
+### [中日财经爆|西方已冻结俄央行一半资产 制裁还会加码](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登政府代表团为何于敏感时机访台？](/content/gnews/27/README.md)
+### [拜登政府代表团为何于敏感时机访台？](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾｜蔡英文接见庞培欧网路直播 因大规模停电而取消](/content/gnews/28/README.md)
+### [台湾｜蔡英文接见庞培欧网路直播 因大规模停电而取消](/content/gnews/31/README.md)
  ` 關注組`
 
-### [聚焦：俄罗斯空军在乌克兰失去制空权](/content/gnews/29/README.md)
+### [聚焦：俄罗斯空军在乌克兰失去制空权](/content/gnews/32/README.md)
  ` 丁过`
 
-### [疫苗灾难正悄悄降临 笔者亲身经历](/content/gnews/30/README.md)
+### [疫苗灾难正悄悄降临 笔者亲身经历](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [3月2日日本新增感染72647人，死亡238人](/content/gnews/31/README.md)
+### [日本驻乌克兰大使馆临时关闭](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本驻乌克兰大使馆临时关闭](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新中国联邦的乌克兰救援100%成功](/content/gnews/33/README.md)
+### [新中国联邦的乌克兰救援100%成功](/content/gnews/35/README.md)
  ` 日本東京方舟農場`
 
-### [俄罗斯银行挤兑开始 提醒所有人银行稳定性](/content/gnews/34/README.md)
+### [俄罗斯银行挤兑开始 提醒所有人银行稳定性](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“天安门母亲”：承载八九六四之重并护佑新中国联邦六四之新生](/content/gnews/35/README.md)
+### [“天安门母亲”：承载八九六四之重并护佑新中国联邦六四之新生](/content/gnews/37/README.md)
  ` 秘密翻译组-原创组`
 
-### [五月花简报（03/02/2022）](/content/gnews/36/README.md)
+### [五月花简报（03/02/2022）](/content/gnews/38/README.md)
  ` mayflowertranslate`
 
-### [中共战狼拒绝躲在地下室里在乌克兰中国留学生的求救](/content/gnews/37/README.md)
+### [中共战狼拒绝躲在地下室里在乌克兰中国留学生的求救](/content/gnews/39/README.md)
  ` mayflowertranslate`
 
-### [基辅市长称城市被包围，后来又收回了这一说法](/content/gnews/38/README.md)
+### [基辅市长称城市被包围，后来又收回了这一说法](/content/gnews/40/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共将毀于自身的假和騙](/content/gnews/39/README.md)
+### [中共将毀于自身的假和騙](/content/gnews/41/README.md)
  ` 纽约香草山MOS02`
 
-### [2022/02/28 墙内世界](/content/gnews/40/README.md)
+### [2022/02/28 墙内世界](/content/gnews/42/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登国情咨文中称，普京将付出持续的高昂代价](/content/gnews/41/README.md)
+### [拜登国情咨文中称，普京将付出持续的高昂代价](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌克兰要求欧美协助建立禁飞区](/content/gnews/42/README.md)
+### [乌克兰要求欧美协助建立禁飞区](/content/gnews/44/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [拜登呼吁国会尽快提交提高美国与中共国竞争力的法案](/content/gnews/43/README.md)
+### [拜登呼吁国会尽快提交提高美国与中共国竞争力的法案](/content/gnews/45/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌克兰战争再次表明中国人将为中共买单](/content/gnews/44/README.md)
+### [乌克兰战争再次表明中国人将为中共买单](/content/gnews/46/README.md)
  ` 波士顿五月花农场`
 
-### [美国民众对拜登处理俄乌危机的支持度上升](/content/gnews/45/README.md)
+### [美国民众对拜登处理俄乌危机的支持度上升](/content/gnews/47/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知](/content/gnews/46/README.md)
+### [【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知](/content/gnews/48/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [后共时代 世界大变局](/content/gnews/47/README.md)
+### [后共时代 世界大变局](/content/gnews/49/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [新西兰财经G乐部2022年3月2日:财经新闻整理](/content/gnews/48/README.md)
+### [新西兰财经G乐部2022年3月2日:财经新闻整理](/content/gnews/50/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [也许是时候世界支持台湾合法政府的独立了](/content/gnews/49/README.md)
+### [也许是时候世界支持台湾合法政府的独立了](/content/gnews/51/README.md)
  ` 美国政要直译推`
 
-### [为抗议中共国卑劣人权问题，瑞典运动员将冬奥金牌赠予被囚书商之女](/content/gnews/50/README.md)
+### [为抗议中共国卑劣人权问题，瑞典运动员将冬奥金牌赠予被囚书商之女](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国情智部门促使中共国和俄罗斯连手](/content/gnews/51/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [《避风港Haven》直播内容精选（第十四集·下）](/content/gnews/52/README.md)
- ` 喜马拉雅纽约磐石农场`
 
 ### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/53/README.md)
  ` 纽约香草山MOS02`

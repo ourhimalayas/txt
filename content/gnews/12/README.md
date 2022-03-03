@@ -2,26 +2,29 @@
 ---
 
 
-## 有声｜拜登发表年度贸易政策:打击中共非市场行为
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2098525/)
+## 视频|普京大规模抓捕反战人员
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2098633/)
 
-By:**秘翻新闻**
+制作：香草山视频部
 
-**2022-03-03**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/12-3.png)图片来源 路透社
-[据《自由亚洲》3月2日报道，美国贸易代表办公室周二发布年度贸易政策，透露正在重新调整对中共国的贸易政策，研究所有现有的工具和可能的新工具，以打击中共主导的非市场行为。](https://www.rfa.org/cantonese/news/us-trade-03022022065234.html)
+3月1日，俄罗斯的一个人权组织报告称，由于普京发动了对乌克兰的入侵，俄罗斯国内出现了巨大的反对声音，而普京正在对这些反对者实施镇压。
 
-[「年度贸易政策议程」指出，美国正在直接向中共国提出关切，并加快与盟国和伙伴合作。 美国贸易代表(USTR)在报告中表示，我们对中共加码实施有害的贸易和经济滥用行为有清醒的认识，并指出，美国处理双边关系的整体和务实策略将侧重于美国工人的长期利益。](https://www.rfa.org/cantonese/news/us-trade-03022022065234.html)
+目前，俄罗斯各地城市已经拘留了数千人，仅周一一天时间，俄罗斯的13个城市就起码抓捕了411人。从2月24日至今，被逮捕的反战人员已达到6400多人。
 
-[美国总统拜登在去年10月首次宣布的新的「印太经济框架」，目的是填补华盛顿在2017年退出 「跨太平洋伙伴关系」后留下的空白，后者是一个旨在制衡中共国的区域贸易协定。 美国贸易代表表示 ，将在不久的将来公布该计划的更多细节。](https://www.rfa.org/cantonese/news/us-trade-03022022065234.html)
+此前，反对俄罗斯当局的领导人阿列克谢·纳瓦尔尼被监禁，大批民众发起游行支持这位反对者时，俄罗斯当局就进行了大规模镇压。更早一些的镇压发生在2017年。
 
-秘翻新闻 Milojai 编辑报道
+另据悉，此次反对入侵乌克兰的人员还包括一些俄罗斯的体育、演艺人员和商业领袖。
 
-发布 : 恩典
+发稿：Daxia
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

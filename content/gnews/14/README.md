@@ -2,37 +2,32 @@
 ---
 
 
-## 英国首相约翰逊：普京犯有战争罪
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2098334/)
+## 视频|俄罗斯原油航线油轮运费飙升
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2098627/)
 
-2022-03-02
+制作：香草山视频部
 
-编译**: **真北**007**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2I615Q7ON_SMTWA@C28.png)图片来源：[Boris Johnson: Vladimir Putin guilty of war crimes](https://www.politico.eu/article/boris-johnson-accuse-vladimir-putin-war-crime/)
-来自POLITICO EU  三月二日的新闻报道
+据国外媒体3月1日报道，俄罗斯入侵乌克兰后，波罗的海至欧洲航线上租用阿芙拉型油轮的运费飙升，由于担心对俄罗斯的石油制裁可能很快到来，一些油轮船东已经开始避开俄罗斯港口。
 
-英国首相鲍里斯·约翰逊表示欢迎国际犯罪法庭决定调查针对乌克兰平民的袭击事件，并称俄罗斯总统普京在入侵乌克兰时犯下了战争罪。
+根据伦敦波罗的海交易所3月2日的最新数据，TD17 波罗的海到康涅狄格英国石油油轮航线的成本又飙升了 35,000 美元/天，达到 210,000 美元/天。这是自2008年以来的最高水平。
 
-在周三众议院的首相问答环节中，约翰逊告诉国会议员，已经发生了几起俄罗斯袭击乌克兰平民的事件，国际犯罪法庭 (ICC) 应将其作为潜在的战争罪进行调查。
+同时，TD6 黑海至地中海航线的船舶运费每天增加 5,000 美元至 158,000 美元，比不到一周前的价格增加了 9 倍！
 
-约翰逊说：“在我看来，我们已经看到普京政权向无辜平民投掷炸弹，这已完全符合战争罪的条件，我知道国际刑事法院检察官已经在进行调查，我相信整个众议院都会支持这一点。”
+俄罗斯2/3的原油出口要经过黑海和波罗的海港口的海运，大部分销往欧洲。
 
-自俄罗斯上周入侵乌克兰以来，人权和法律专家警告说，部署使用集束炸弹和温压武器（真空弹）进行袭击可能被用来在国际刑事法院对普京提起诉讼。
+同时，虽然国际基准油价近期飙升，但由于担心采购俄罗斯石油受到制裁，俄罗斯乌拉尔原油的价格出现大跌。
 
-首相的官方发言人告诉记者， “几乎每小时” 战争罪行都可能在乌克兰发生，包括俄罗斯对巴比亚尔基辅犹太人大屠杀纪念馆的袭击以及针对公寓的袭击。
+发稿：Daxia
 
-“显然，正式的裁决将由刑事法庭作出，但我认为没有人会怀疑我们每天、几乎每小时看到的都是可怕的行为，肯定会被视为战争罪，”发言人说。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-约翰逊比他周一发表的评论更近一步，当时他告诉记者，这位俄罗斯领导人可能面临战争罪审判，并且正在收集有关俄​​罗斯政权在乌克兰使用集束炸弹和温压武器的证据——根据日内瓦公约对平民使用这两种武器是非法的。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-原文链接：[Boris Johnson: Vladimir Putin guilty of war crimes](https://www.politico.eu/article/boris-johnson-accuse-vladimir-putin-war-crime/)
-
-编辑：MQ
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

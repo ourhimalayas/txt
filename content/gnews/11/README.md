@@ -2,30 +2,25 @@
 ---
 
 
-## 美官员：中方要求俄将乌克兰战争推迟到冬奥之后
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2098539/)
+## 视频|被俘俄罗斯士兵深感遗憾
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2098636/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/54529119-10541077-image-a-26_1645578020057.jpg)资料图
-据法国国际广播电台3月2日报道，西方情报称，中共国官员对普京发动战争的计划或意图有一定程度的了解。中共国高级官员2月初告诉俄罗斯高级官员，不要在北京冬奥会结束前入侵乌克兰。
+制作：香草山视频部
 
-中俄官员往来的情报是机密的。它由西方情报机构收集，并被审查它的官员认为是可信的。整个冬天，俄罗斯将军事部队从与中共国边界和其他地区转移到与乌克兰的边界和白俄罗斯。冬奥开幕之前，普京在北京会见了中共国国家主席习近平。双方发表一份联合声明，宣布他们的伙伴关系“上不封顶”，谴责北约扩大，并声称他们将建立一个真正“民主”的全球新秩序。冬奥会刚闭幕，俄罗斯全面入侵乌克兰。美欧官员表示，他们很难相信这是巧合。
+（导语）几天来，在对乌克兰的入侵中，很多俄军士兵成为俘虏。他们神情沮丧，意志消沉，充满欠疚。不过他们受到了良好的对待。
 
-中俄多年来一直加强经济、外交和军事关系。两国领导人在会晤之后发表的联合声明令美欧官员震惊，尤其这是中共国第一次在北约和欧洲的安全问题上明确站在俄罗斯一边。英雄惺惺相惜，魔鬼狼狈为奸。中俄两大邪恶轴心国一个遥望欧洲，一个垂涎台湾，只为个人利益，联手发动战争。推翻共产主义，打破中俄联盟。
+经询问，这些被俘的士兵居然是被以演习的名义诓诱到乌克兰作战的，有些人甚至不清楚出击的任务和目标。他们称，俄军没有必要来乌克兰打仗，乌克兰人不希望与俄罗斯开战。乌克兰人的战斗只是在抗击俄罗斯人的入侵。
 
-新闻参考链接：[https://www.rfi.fr/cn](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220302-%E7%BE%8E%E5%AE%98%E5%91%98-%E4%B8%AD%E6%96%B9%E8%A6%81%E6%B1%82%E4%BF%84%E5%9B%BD%E5%B0%86%E4%B9%8C%E5%85%8B%E5%85%B0%E6%88%98%E4%BA%89%E6%8E%A8%E8%BF%9F%E5%88%B0%E5%86%AC%E5%A5%A5%E4%B9%8B%E5%90%8E)
+（请播放视频：[https://mega.nz/folder/Xk0iDICY#ZlVBFRjz5Yd0reE6-8gqkQ](https://mega.nz/folder/Xk0iDICY#ZlVBFRjz5Yd0reE6-8gqkQ) 视频时长：4’37”）
 
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+发稿：Daxia
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,25 +2,28 @@
 ---
 
 
-## 国际柔道联合会允许俄罗斯运动员参加比赛
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2098393/)
+## 视频|美国和国际能源署释放6000万桶石油库存
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2098630/)
 
-2022-03-02
+制作：香草山视频部
 
-撰稿： 文舞两道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/HB3Q@U9Z@UR4CD10JRL.png)照片来源：[IJF ロシア選手大会参加認める プーチン名誉会長 職務一時停止](https://www3.nhk.or.jp/news/html/20220303/k10013511091000.html)
-由于俄罗斯对乌克兰的入侵，体育界的很多赛事开始抵制俄罗斯运动员参加比赛。国际柔道联合会（IJF）于3月2日宣布，将允许俄罗斯运动员参加比赛。
+据美国媒体3月1日消息，俄罗斯入侵乌克兰后，世界各国对俄罗斯经济实施制裁，导致国际原油价格飙升至美桶100美元以上。美国和其他国际能源机构为保持原油市场的价格，决定从紧急库存中释放6000万桶石油。
 
-IJF于3月2日在其官网发表声明称，“对所有俄罗斯运动员实施制裁的决定是不合理的”，并允许在不使用俄罗斯国旗或国歌的情况下参加IJF赛事。IJF 在声明中还说：“阻止运动员参加比赛的决定只会助长暴力行为，并助长运动员间的不公正。” IJF上月27日宣布，暂停了俄罗斯总统弗拉基米尔·普金(Vladimir Putin)的国际柔道联合会名誉主席的职务。
+国际能源机构希望向全世界传达一个讯息：俄罗斯入侵乌克兰不会导致石油供应短缺，白宫发言人也表示会采取一切行动来限制普京的入侵对全球能源供应带来的干扰。
 
-消息来源：[IJF ロシア選手大会参加認める プーチン名誉会長 職務一時停止](https://www3.nhk.or.jp/news/html/20220303/k10013511091000.html)
+美国和国际能源署本希望释放库存石油后油价会下跌，降低世界最大石油生产国俄罗斯的收入，并给美欧等国锁定俄罗斯能源行业的机会。但6000万桶石油后并没有达到预期的目的，市场目前处在恐慌之中，石油价格仍持续走高。
 
-编辑：MQ
-发布：肥鯮
+发稿：Daxia
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

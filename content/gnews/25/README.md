@@ -2,28 +2,33 @@
 ---
 
 
-## 联合国大会紧急特别会议通过谴责俄罗斯决议
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2097629/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月2日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2097700/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-249.png)图片来源于本文链接
-据NHK3日早晨消息，在联合国大会就俄罗斯军事入侵乌克兰举行的紧急特别会议上，通过了谴责俄罗斯并呼吁立即撤军的决议。其中包括欧洲、美国和日本在内的141个国家投了赞成票，进一步凸显了乌克兰局势中形成了对俄罗斯的国际孤立。
+作者：香草山翻译部
 
-联合国关于俄罗斯军事入侵乌克兰的紧急特别会议于当地时间2日上午举行在美国纽约联合国总部大会堂举行。从上月28日起的三天里，193个成员国中约120个国家的代表发表了演讲，最后由美国等国家提交的决议获得通过。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO.jpg)
 
-该决议谴责了俄罗斯在乌克兰开展的军事行动以及俄罗斯加强其核力量准备的决定。对住宅区和学校等民用设施遭到袭击以及平民伤亡报告深表关切，并呼吁俄罗斯立即无条件撤军。
 
-投票于亚洲时间凌晨进行，欧洲、美国、日本等141个国家赞成，俄罗斯、白俄罗斯、朝鲜等5个国家反对，中国和印度在内的共有35个国家投了弃权票。最终获得超过三分之二的赞成票通过了该决议。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1.png)
+校对：Stay文苑
 
-决议通过后，联合国秘书长安东尼奥·古特雷斯告诉记者，“接近决议并实现其目的。这是我作为秘书长的责任。我们呼吁俄罗斯结束在乌克兰的敌对行为，放下武器，打开对话和外交的大门。”古特雷斯还说：“乌克兰的领土和主权必须根据《联合国宪章》得到尊重。时间所剩无几。我们将尽最大努力立即开始和平谈判。”
+编辑：Stay文苑
 
-美国总统乔·拜登2日就决议通过发表讲话时谴责有35个国家投了弃权票，拜登还特别点名批评中国和印度投了弃权票。拜登说，“他们认为可以分裂北约、欧洲和美国。我们要向全世界表明，没有人能做到这一点。”
+发稿：Stay文苑
 
-信息来源：[国連総会の緊急特別会合 ロシアを非難する決議 賛成多数で採択](https://www3.nhk.or.jp/news/html/20220303/k10013510951000.html)
+新闻：[https://gtv.org/broadcast/watch/62201d1d019ef64da6542782](https://gtv.org/broadcast/watch/62201d1d019ef64da6542782)
+访谈：[https://gtv.org/broadcast/watch/62202524019ef64da6542ce5](https://gtv.org/broadcast/watch/62202524019ef64da6542ce5)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

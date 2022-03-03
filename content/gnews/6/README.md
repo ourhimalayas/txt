@@ -2,35 +2,22 @@
 ---
 
 
-## 罗马尼亚在乌克兰边境附近失去两架飞机
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2098617/)
+## 香港单日感染人数超5万创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2098692/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-257.png)[图片来源](https://news.yahoo.co.jp/articles/4770fbe015af77e97ccd8041bba096cde19b0470/images/000)
+香港政府卫生署卫生防护中心(CHP)和管辖公立医院的医院管理局(HA)于2日召开会见，宣布同日新增5万5，353人感染者。1天感染人数首次超过5万人，从前一天开始大幅增加2万人以上。其中从海外流入的病例只有27人。
 
-#### 翻译/编辑：小红帽
+在最近的24小时内，年龄在58-100岁的，有117人死亡。另外，2月26日至28日为止没有公布的死者有43人。从年初开始的第5波导致的死者累计有967人。 老年人、残疾人设施新增感染55处，发现入住者488人、职员228人感染。到目前为止，670个设施已经确认被感染。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/MiG-21_LanceR_fighter_jet_.jpeg)图片来源：www.romania-insider.com
+超过5万人“预计内”CHP传染病处的欧家荣首席医生在2日的会见中指出“最近基本上每隔2~3天感染人数会翻倍”，2天超过5万人表示为“预料之中”。 此外，还指出，目前通过快速抗原检测呈阳性的人没有自主申报，表明在自主申报系统完善后感染人数会进一步上升。
 
+消息来源：[【香港】単日感染者５万人突破、最多を大幅更新（NNA）](https://news.yahoo.co.jp/articles/4770fbe015af77e97ccd8041bba096cde19b0470)
 
-根据RT新闻3月2日报道，罗马尼亚国防部表示，周三，一架罗马尼亚米格-21“长矛”战斗机在多布罗热亚东南部地区的雷达上消失了。事件发生后，一架IAR 330美洲豹直升机坠毁，该直升机被派去寻找战斗机的位置。
-
-这架战斗机是上世纪60年代苏联标志性飞机的以色列升级版，在起飞并前往与乌克兰接壤的沿海地区巡逻约15分钟后消失了。随后搜救任务被启动，美洲豹直升机被派去寻找这架失去联系的“长矛”战斗机。
-
-然而，军方表示，美洲豹直升机在执行任务约20分钟后也消失了。在失去通讯之前，其飞行员报告说该地区的天气状况极其恶劣。大约两小时后，美洲豹直升机被确认坠毁。
-
-当地媒体报道称，死亡人数不是罗马尼亚国防部长称的只有5人。死亡数字可能是更高。媒体称有7人在直升机坠毁中死亡。从媒体播出的录像显示，直升机的外壳显然在撞击中严重受损，随之被火焰吞噬。
-
-新闻链接：[Romania loses two aircraft near Ukraine’s border](https://www.rt.com/news/551098-romania-jet-helicopter-crash/)
-
-*发布：**Frank2021*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
