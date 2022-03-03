@@ -2,10 +2,10 @@
 ---
 
 
-## 面对乌克兰的抵抗，俄罗斯的攻击愈演愈烈
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098502/)
+## 欧盟、英、美等国对俄实施制裁
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098559/)
 
-02/26/2022 BBC 新闻国际记者奥拉·盖林： 首都基辅的任何地方都不安全。 战斗可能才刚刚开始。
+02/28/2022 印度WION要闻：欧盟、英、美等国对俄实施制裁，俄罗斯寡头们首当其冲。受制裁影响的俄罗斯寡头们呼吁俄罗斯停止对乌克兰入侵
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 

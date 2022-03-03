@@ -15,44 +15,44 @@
 
 ---
 
-### [参议员里克·斯科特称美国不能依赖中共国做任何事情](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [面对乌克兰的抵抗，俄罗斯的攻击愈演愈烈](/content/gnews/2/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [视频|俄乌开战导致全球原油和天然气价格飙升](/content/gnews/3/README.md)
+### [视频|俄罗斯禁止当地民众向外转移资产](/content/gnews/1/README.md)
  ` MOSVIDEO`
 
-### [3月3日勿忘香港（图片1-7）](/content/gnews/4/README.md)
- ` 波士顿五月花农场`
+### [欧盟、英、美等国对俄实施制裁](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国银保监会正式宣布不参与对俄罗斯金融制裁](/content/gnews/5/README.md)
+### [视频|志愿者向乌克兰捐赠百万美元加密货币](/content/gnews/3/README.md)
+ ` MOSVIDEO`
+
+### [美官员：中方要求俄将乌克兰战争推迟到冬奥之后](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [视频|前乌克兰小姐身着戎装 加入抵抗俄军行列](/content/gnews/6/README.md)
+### [参议员里克·斯科特称美国不能依赖中共国做任何事情](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [有声｜拜登发表年度贸易政策:打击中共非市场行为](/content/gnews/6/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [面对乌克兰的抵抗，俄罗斯的攻击愈演愈烈](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [视频|俄乌开战导致全球原油和天然气价格飙升](/content/gnews/8/README.md)
  ` MOSVIDEO`
 
-### [以色列和犹太官员谴责俄罗斯袭击基辅大屠杀纪念馆](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
+### [3月3日勿忘香港（图片1-7）](/content/gnews/9/README.md)
+ ` 波士顿五月花农场`
 
-### [欧盟主席：望乌克兰加入欧盟](/content/gnews/8/README.md)
+### [中共国银保监会正式宣布不参与对俄罗斯金融制裁](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [欧盟主席：望乌克兰加入欧盟](/content/gnews/11/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [国际柔道联合会允许俄罗斯运动员参加比赛](/content/gnews/9/README.md)
+### [国际柔道联合会允许俄罗斯运动员参加比赛](/content/gnews/12/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [视频|星链终端目前已经抵达乌克兰](/content/gnews/10/README.md)
- ` MOSVIDEO`
-
-### [有声｜俄国最大国有银行股价崩跌95％ 跌破1美金](/content/gnews/11/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [英国首相约翰逊：普京犯有战争罪](/content/gnews/12/README.md)
+### [英国首相约翰逊：普京犯有战争罪](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
-
-### [有声｜中共宣布不参与制裁俄国 网民:连它一起制裁](/content/gnews/13/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [郭文贵直播摘要和音频 2022.03.02](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
