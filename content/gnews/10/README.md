@@ -2,35 +2,24 @@
 ---
 
 
-## 英国联合38国，将俄侵乌暴行提交国际刑事法院
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2099857/)
+## 《历史的今天》 2022.03.03
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2099875/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：DustInTheWind
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-22.png)图片来自网络
+2020年 中美贸易争端媒体战打响
+2017年 任天堂Switch在全球发布
+1996年 江泽民指出解决中国的所有问题要靠经济的发展
+1993年 加拿大短跑运动员本·约翰逊被终身禁赛
+1991年 联合国海上丝绸之路考察队抵达终点日本大坂
+1990年 国际横穿南极考察队抵达终点
+1971年 中共发射“实践一号”科学实验地球卫星
+1969年 美国宇航局发射阿波罗9号以测试登月舱；超音速客机“协和号”首飞
+1910年 洛克菲勒基金会：小约翰·D·洛克菲勒宣布退休，不再管理自己的企业，以便将所有时间都投入到慈善事业中
 
-整理：围剿维尼熊
-编辑：文泓
+* * *
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-11.png)图片来源：Human Rights Watch & 雅典娜设计组
-
-
-当地时间3月3日，据大纪元报道，英国和其它38个国家已将俄罗斯入侵乌克兰期间的战争暴行正式提交给国际刑事法院（ICC）。
-
-据国际刑事法院的规则，成员国正式提告，意味着检察官在开始调查之前，不必得到国际刑事法院法官的批准。
-
-英国联合其它38国一同提交请求，成为了国际刑事法院历史上规模最大的一次。英国外交大臣莉兹·特拉斯表示，迫切需要国际刑事法院调查俄罗斯的野蛮行径，追究那些应为此负责的人。英国将与盟国紧密合作，确保正义得到伸张。
-
-在英国和盟国的要求下，国际刑事法院检察官卡里姆·汗已积极开始对俄罗斯发动的乌克兰战争进行调查。
-
-参考链接：[39国指俄侵乌涉暴行 国际刑事法庭展开调查](https://www.epochtimes.com/gb/22/3/3/n13617865.htm)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*发布：Theodosia*
 
  
 
