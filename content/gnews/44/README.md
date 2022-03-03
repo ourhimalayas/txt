@@ -2,27 +2,25 @@
 ---
 
 
-## 2022.3.2大直播 新中国联邦在乌克兰当地援行动百分百成功
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2094433/)
+## 【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2094654/)
 
-撰稿：大浪小水花
+[【PDF】【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知.pdf)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-02-at-10.23.16-PM.jpeg)
+由于乌克兰局势日益恶化，NFSC和法治基金与联合国救援组织GEM共同合作，近日紧急安排第一批次营救专机，协助华人同胞、美国及其他各国友人免费撤离，目的地为美国（需要美国签证）和其他安全中转国。我们将在波兰的Medyka设立临时接待点，提供30天以内的免费食宿。
 
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
-郭文贵先生在2022年3月2日大直播中，向全世界公开宣布了三项这次新中国联邦“乌克兰国际人道救援行动”的好消息。
+**24小时紧急救援客服联系方式如下：
+**邮箱：[\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection)
+电话(短信或电话）：+1720-657-6776 或 +1719-224-4232
 
-郭先生提到，截至目前，在喜马拉雅联盟委员会的共同努力下，新中国联邦已经成功救出了四位爆料革命的资深战友三个家庭包括他们的朋友家人，目前已经抵达波兰。
+NFSC ｜法治基金
+3/1/2022
 
-郭先生还透露，现在喜马拉雅联盟委员会成员，大卫、老班长还有参与乌克兰救援的战友正在准备飞往波兰的路上，准备在匈牙利、罗马尼亚建立基地。小SARA，罗伊，蔚蓝，小福利等战友已经到纽约集结准备飞往乌克兰前线。
-
-郭先生表示，这次新中国联邦人道救援行动，新中国联邦与联合国救援组织会跟当地军方合作，只要是华人就会放行，直接入驻联合国指定酒店，享受30天免费食宿以及免费航班飞往安全国家。
-
-郭先生强调，整个救援过程不需要提供任何个人信息，而且完全行动自由。
-
-郭先生宣布，所有在乌华人都是新中国联邦的救助对象，包括新中国联邦战友的朋友都是这次救助的对象，都享受新中国联邦提供的免费食宿和机票。
-
-参考链接：[2022年3月2日文贵大直播](https://gtv.org/broadcast/watch/621f6ab7019ef64da653b4ff)
+[https://ukrainehelp.info/](https://ukrainehelp.info/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知-scaled.jpg)
+[【PDF】【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN】【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知.pdf)
 
  
 

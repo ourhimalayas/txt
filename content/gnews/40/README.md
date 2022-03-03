@@ -2,34 +2,24 @@
 ---
 
 
-## 美国民众对拜登处理俄乌危机的支持度上升
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2094751/)
+## 拜登呼吁国会尽快提交提高美国与中共国竞争力的法案
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2094911/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 撰稿：彩虹 
 
-整理：围剿维尼熊
-编辑：朝花夕拾
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-02-02-下午10.11.59.png)
-根据路透社报道，当地时3月1日完成的路透/益普索(Ipsos)民调结果显示，美国民众对总统拜登处理俄乌危机的支持度在过去一周有所上升，有43%的人表示支持，高于之前一周的34%。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-203.png)图片来源：卫报
+据《国会山报》3月1日报道，在周二的国情咨文中，拜登总统呼吁国会将一项旨在提高美国对中共国的竞争力的法案送到他的办公桌上。拜登认为，这项立法将有助于创造公平的竞争环境，“对新兴技术和美国制造业进行创纪录的投资”。
 
-这项民意调查是用英语在线进行的，范围遍及美国各地。调查收集了1,005名成年人的回答。
+报道认为，该立法将加强美国国内供应链和科学研究，使美国在与中共国等国家的竞争中更具竞争力。
 
-71%的受访者表示，他们认为美国应该向乌克兰提供武器以应对俄罗斯攻击。约77%的受访者认为，美国应该为此对俄罗斯实施进一步制裁。
+上个月，众议院通过了其版本的法案。参议院于2021年6月份也通过了自己的立法版本，其中有18名共和党人支持此版本。
 
-58%的受访者表示，危机带来燃料和天然气涨价，但为了保卫另一个民主国家，这是值得的。
+根据程序，众议院和参议院必须调和他们相互竞争的版本，并达成一项至少有10名参议院共和党人投票支持的投票版本，因为该立法将需要（参议院）至少60票才能通过。
 
-约75%受访者认为，在乌克兰问题上不作为，将使俄罗斯更加肆意地在欧洲其他地方采取进一步军事行动。
+**新闻来源**
 
-参考链接：[https://cn.reuters.com/article/us-survey-biden-support-rate-0302-idCNKBS2KZ079?il=0](https://cn.reuters.com/article/us-survey-biden-support-rate-0302-idCNKBS2KZ079?il=0)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Biden calls on Congress to pass China competition bill](https://thehill.com/homenews/administration/596444-biden-calls-on-congress-to-pass-china-competition-bill?rl=1)
 
  
 

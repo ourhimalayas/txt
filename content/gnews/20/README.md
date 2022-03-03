@@ -2,33 +2,40 @@
 ---
 
 
-## 有声|喜马拉雅币一周分析与总结（2月21日-2月27日）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2097086/)
+## 有声|俄乌开战导致全球原油和天然气价格飙升
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2097424/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-过去一周，喜马拉雅币价格回落至40美元左右，平均日交易量约9万枚喜币。喜币上市以来总交易量约2940万枚 ，占今年总发行量仅约2.94%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月26日，据美国媒体报道，鉴于目前俄罗斯对乌克兰发动的全面攻势，全球原油价格首次飙升至每桶100美元以上。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-02-%E4%B8%8A%E5%8D%8810.56.29.png)
+数据显示，作为全球石油基准的布伦特原油指数在24日上午达到了每桶101.66美元，增幅超过4%。同时，美国WTI原油指数也在当天飙升了近7%，涨至每桶98.69美元，这也是自2014年以来美国石油价格的最新峰值。
 
-本周，据郭文贵先生在大直播中透露，喜贷款目前在法律的最后的研究阶段，会提供喜币大概不超过10%的抵押率，喜存款会有5%到10%的利息，每年通过HCN兑现。G保险会提供世界上最少有的、无条件支付的贴现保险。这些都会是战友主导的金融平台。
+此外，PVM石油协会的高级分析师在25日的一份简要报告中表示，由于当前的紧张局势，全球的股票和石油市场短期内将仍有波动。此外，即使是东欧当地的局势得以缓解，相关产品的紧张也可能会使石油价格在未来几个月内依然保持在高位状态。其原因在于，俄罗斯是全球石油市场的主要参与者，也是欧洲地区最大的石油供应国。
 
-郭先生还透露，中共央行等部门最近发布对于人民币5万元以上存款取款限制的根本原因就是防止资金流向喜币，喜联储。郭先生表示，中共限制金融活动的政策造成的恐惧将会形成“破窗效应”，让更多资金加速流向喜币。西方的投资机构将会看到，中国人的财富很难流向美国，欧洲，日本。新加坡和香港也不是安全存放财富的地方。最终自由流通的HPay和喜币将吸收中国人全部的财富。西方的“沼泽地”大佬将开始正视新中国联邦。
+另一方面，石油价格是天然气价格的最大决定因素。美国能源信息管理局的数据显示，本周美国天然气的平均价格达到每加仑3.53美元，处于自2014年7月以来的最高水平。
 
-郭先生还提到，喜币和HPay将会完全抵消世界上各种灾难造成的物价上涨和不确定性，并解决财富流通的不安全性。俄乌战争中，喜币和HPay将成为东欧国家安全、和平的捍卫者。
 
-文字版原文：[喜马拉雅币一周分析与总结（2月21日-2月27日）](https://gnews.org/zh-hans/2080465/)
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+文字版原文：[俄乌开战导致全球原油和天然气价格飙升](https://gnews.org/zh-hans/2094996/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

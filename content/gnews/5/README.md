@@ -2,26 +2,24 @@
 ---
 
 
-## 联合国安理会通过决议要求俄罗斯撤军，141个国家支持
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2097495/)
+## 中日财经爆|大发地产美元债逾期 债权人向法院提交清盘申请
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2097592/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-242.png)[图片来源](https://www.jiji.com/jc/article?k=2022030201064&amp;g=int&amp;p=20220302at56S&amp;rel=pv)
-2日，联合国大会（193个成员国）在乌克兰危机紧急特别会议上141个国家通过决议，要求俄罗斯军队全面撤出。该决议虽然不具有法律约束力，但显示了国际社会指责俄罗斯入侵俄罗斯的政治意愿。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-245.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg2.jiemian.com%2F101%2Foriginal%2F20220105%2F164137940112881200.jpeg&amp;imgrefurl=https%3A%2F%2Fm.jiemian.com%2Farticle%2F6982758.html&amp;tbnid=p_0iTQTgB4GH0M&amp;vet=12ahUKEwj2waO0_aj2AhVmkNgFHeu8DfgQMygCegUIARCnAQ..i&amp;docid=pzrD3acOJ47lZM&amp;w=640&amp;h=360&amp;q=%E5%A4%A7%E5%8F%91%E5%9C%B0%E4%BA%A7&amp;ved=2ahUKEwj2waO0_aj2AhVmkNgFHeu8DfgQMygCegUIARCnAQ)
+3月2日，中共国大发地产公告旗下一笔美元债涉2227.5万美元利息逾期，上月曾遭债权人向香港高等法院提交清盘申请。公司同时已委任盛德律师事务所作为法律顾问，拟就境外债务进行整体重组。
 
-反对国为5票（俄罗斯、白俄罗斯、叙利亚、朝鲜、厄立特里亚），弃权是35票。
+据公告披露，大发地产有一笔于联交所上市，将于2022年7月到期的票息为12.375%的优先票据（ISIN：XS2182881388），近期涉及2227.5万美元利息已于2022年1月30日到期及应付，但该公司在30日宽限期满之后并未支付利息。
 
-2014年，联合国大会以100票赞成、11票反对、58票弃权通过决议，不允许俄罗斯将克里米亚半岛纳入乌克兰南部。本次通过更多的支持，更突显俄罗斯的孤立。
+大发地产董事会认为，由于此前呈请的缘故，为避免选择性偿付以确保公司所有债权人得到公平对待，公司于宽限期届满前未有对此项美元债利息作出付款动作。
 
-日本也加入了共同提案国。在之前的14年投票中投了弃权票，但这一次，许多国家转而投了赞成票。
+此外，大发地产已委任盛德律师事务所作为其法律顾问，拟就境外债务进行整体重组。
 
-该决议指出，“（入侵）的规模在欧洲数十年来从未出现过，需要采取紧急行动将当地人从战争悲剧中拯救出来。”要求俄罗斯军队立即无条件撤出。并呼吁撤销乌克兰东部亲俄控制地区的“独立批准”。
+此前的2月21日，大发地产公告，遭债权人向香港高等法院提交清盘呈请，大发表示强烈反对这一清盘呈请，并强调公司境内业务运营正常，暂未受到一系列事件影响。
 
-另一方面，对乌克兰入侵“以最强烈的语言表示遗憾”。
+消息来源：[大发地产公告一笔美元债2227.5万美元利息逾期，拟对境外债务进行重组](https://finance.sina.com.cn/roll/2022-03-02/doc-imcwipih6248778.shtml)
 
-信息来源：[対ロシア非難決議案採択　141カ国が賛成　国連特別総会](https://news.yahoo.co.jp/articles/edb29c31e48d0577efb926a5142dba24f10ea5c8)
-
-*校对：东京樱花团/知了知了
+*编辑：东京樱花团/知了知了
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
