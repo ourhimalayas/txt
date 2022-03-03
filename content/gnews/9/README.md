@@ -2,64 +2,197 @@
 ---
 
 
-## 对比和伤害
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2099339/)
+## 每日快报：乌克兰第二座城市遭到严重轰炸
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2099378/)
 
-作者：香草山教育部蓝之灵（Hortensia)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-没有对比就没有伤害
-没有伤害就不会醒来
-总是要付出血的代价
-才会在
-铁幕沉沉心田
-开出一丝缝隙
-让光
-透进来
+*作者：*文零
 
-被谎言笼罩世界
-欺骗总是家常便饭
-人与人之间信任
-就是这样被毁坏
-爱
-离开
-越来越远
-留下的
-是荒漠与干寒
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-还不醒来
-还不醒来
-没有了毒食品
-没有饱腹感
-习惯了谎言
-不敢信
-唯真不破世界
+# ***今日摘要***
 
-还不醒来
-还不醒来
-炮灰纷飞土地上
-请看见爱与关怀
-打开心田
-让光进来
-唯真不破世界
-就在身边
-醒来，醒来
-让光进来
-新中国联邦救援
-就在身边
+1. [联合国大会谴责俄罗斯之际，乌克兰第二座城市遭到严重轰炸](https://www.reuters.com/world/europe/top-wrap-10-ukrainians-say-they-are-fighting-biggest-city-yet-claimed-by-russia-2022-03-02/)
+2. [乌克兰危机：有多少难民，他们会去哪里？](https://www.bbc.com/news/world-60555472)
+3. [拜登向乌克兰运送毒刺导弹用来击落俄罗斯直升机](https://www.newsmax.com/newsfront/joe-biden-stinger-missiles-russia-ukraine/2022/03/02/id/1059355/)
+4. [美国前最高外交官蓬佩奥抵达台湾，称其为“伟大的国家”](https://www.reuters.com/world/us-former-top-diplomat-pompeo-arrives-taiwan-calls-it-great-nation-2022-03-02/)
+5. [中共国银保监会正式宣布 不参与对俄罗斯的金融制裁](https://www.voachinese.com/a/china-will-not-join-sanctions-against-russia-banking-regulator-says-20220302/6466918.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4.jpg)
 
-审核/编辑/发稿:qiutian（邱甜）
+# 重要事件
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+- [**03.02. REUTERS：联合国大会谴责俄罗斯之际，乌克兰第二座城市遭到严重轰炸；Ukraine’s second city heavily bombed as U.N. assembly denounces Russia**](https://www.reuters.com/world/europe/top-wrap-10-ukrainians-say-they-are-fighting-biggest-city-yet-claimed-by-russia-2022-03-02/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+路透乌克兰基辅/哈尔科夫3月2日-乌克兰第二大城市哈尔科夫周三遭到猛烈轰炸，联合国在历史性投票中谴责俄罗斯为期一周的入侵，数十个国家称莫斯科将接受调查潜在的战争罪行。自1945年以来对欧洲国家的最大袭击已导致超过870,000人逃离，导致对俄罗斯采取一系列经济措施，并引发了人们对西方更广泛冲突的担忧，这是几十年来未曾想到的。这次入侵尚未推翻基辅政府，但据信已有数千人死亡或受伤，这可能对仍在摆脱冠状病毒大流行的全球经济造成另一次严重打击。
+
+对于俄罗斯人来说，后果包括银行外的排队、卢布贬值以及国际公司的外流。随着制裁的加强，俄罗斯亿万富翁正在搬家，切尔西的老板卖掉了这家足球俱乐部。在乌克兰，拥有150万人口的城市哈尔科夫（Kharkiv）的人员伤亡人数不断增加，轰炸已将其中心地区变成一片废墟，建筑物和碎片。“俄罗斯‘解放者’来了。”一名乌克兰志愿者讽刺地哀叹道，他和其他三人用力将一名裹着床单的男子的尸体抬出主广场的废墟。
+
+联合国谴责莫斯科的决议得到了大会193名成员中的141名的支持，该决议在罕见的紧急会议上获得通过，这是乌克兰的象征性胜利，增大了莫斯科的国际孤立。
+
+- [**03.02.BBC：乌克兰危机：有多少难民，他们会去哪里？Ukraine crisis: How many refugees and where might they go?**](https://www.bbc.com/news/world-60555472)
+
+
+据联合国称，已有超过800,000名平民逃离乌克兰。欧盟(EU)估计，由于俄罗斯的入侵，多达400万人可能试图离开该国。欧盟放宽了对难民的规定，并表示其成员国将“张开双臂”欢迎难民。
+
+乌克兰难民逃往哪些国家？难民正在越过边界前往西部的邻国，如波兰、罗马尼亚、斯洛伐克、匈牙利和摩尔多瓦。
+
+周二，联合国表示，已有超过83万人从乌克兰进入这些国家。据联合国称，迄今为止，波兰已经接收了超过453,000名难民。波兰政府表示，每天还有50,000人抵达。
+
+- [**03.02.NEWSMAX：拜登向乌克兰运送毒刺导弹用来击落俄罗斯直升机；Biden Sends Stinger Missiles to Ukraine to Shoot Down Russian Helicopters**](https://www.newsmax.com/newsfront/joe-biden-stinger-missiles-russia-ukraine/2022/03/02/id/1059355/)
+
+
+乔·拜登总统正在向乌克兰运送毒刺防空导弹，可用于击落俄罗斯直升机。周五，国务卿安东尼·布林肯在推特上说，他“授权[国防部]立即向乌克兰提供额外的3.5亿美元军事援助，以帮助保护自己免受俄罗斯无端和无理战争的影响。”
+
+据《陆军时报》报道，直接运送毒刺导弹是上周批准的军事援助计划的一部分。这些导弹是一种肩扛式武器，通过红外线瞄准目标，可以帮助乌克兰人对抗武装直升机。
+
+- [**03.02.REUTERS：美国前最高外交官蓬佩奥抵达台湾，称其为“伟大的国家”；U.S. former top diplomat Pompeo arrives in Taiwan, calls it ‘great nation’**](https://www.reuters.com/world/us-former-top-diplomat-pompeo-arrives-taiwan-calls-it-great-nation-2022-03-02/)
+
+
+台北，3月2日（路透社）——美国前国务卿迈克·蓬佩奥（Mike Pompeo）在特朗普总统任期结束时卸任时受到中共国制裁，他于周三抵达台湾，几乎立即将其称为一个国家，该称谓对北京而言是一个高度敏感的红线。
+
+台湾的民选政府没有得到美国和大多数其他国家的正式承认，这些国家只与中共国保持官方关系，中共国执政的共产党将台湾视为中共国领土，而不是一个国家。外国领导人，即使是对台湾提供大力支持的西方国家的领导人，也很少称台湾为国家，以免激怒中共国。
+
+“很高兴来到这里。很长一段时间以来，我一直期待着与台湾人民一起参观，”他在抵达机场后简短地对记者说，“我非常期待与商人、政府人员以及你们伟大国家的人们会面。”这些话可能会在台湾受到热烈欢迎。
+
+周四将与蓬佩奥会面的蔡英文总统表示，台湾是一个独立的国家，称为中华民国。台湾强烈反对中共国的主权主张，称中华人民共和国从未控制过台湾，只有台湾人民才能决定台湾的未来。
+
+- [**03.02.VOACHINESE：中共国银保监会正式宣布 不参与对俄罗斯的金融制裁**](https://www.voachinese.com/a/china-will-not-join-sanctions-against-russia-banking-regulator-says-20220302/6466918.html)
+
+
+中共国的银行保险业监管者3月2日表示，中共国不赞成就俄罗斯入侵乌克兰事件而对俄罗斯进行金融制裁，而且也不会参与相关的制裁行动。自从俄乌冲突爆发以来，北京游离于国际社会之外，迟迟不愿对俄罗斯的侵略行径作出谴责。
+
+中共国银行保险监督管理委员会主席郭树清周三在新闻发布会上表示，中共国外交部门已就中共国政府对俄乌冲突立场做了充分阐述。就金融制裁来说，郭树清说，中共国并不赞成，因为它起到的作用效果不好，且在法理上也没有依据，中共国不会参加制裁。郭树清还表示，金融制裁对中共国经济和金融的影响，现在不是太明显，还需要观察。但总体上看，影响不会太大，因为中共国经济和金融都非常稳健，韧性很强。
+
+普京下令入侵乌克兰之后，国际社会切断了俄罗斯与外界的多方面联系。美国及其盟国对俄罗斯中央银行采取行动，阻止它动用6300亿美元的国际储备，并将一些俄罗斯银行从环球银行金融电信协会（SWIFT）支付系统中剔除，大大限制了俄罗斯从事国际银行业务的能力。 全球支付及信用卡巨头万事达卡（Mastercard）和Visa卡（Visa）2月28和3月1日也先后宣布，对多家俄罗斯金融机构实施制裁，禁止它们使用其支付系统。
+
+# 更多要闻链接
+
+1. [俄乌战争期间，美国前高级国防官员抵达台湾](https://www.zerohedge.com/political/former-top-us-defense-officials-arrive-taiwan-amid-russia-ukraine-war)
+2. [中共国要求俄罗斯将入侵乌克兰的时间推迟到奥运会之后–纽约时报](https://www.reuters.com/world/us-officials-say-china-asked-russia-delay-ukraine-war-until-after-beijing-2022-03-02/)
+3. [当军舰注视敖德萨时，乌克兰第一个主要城市落入南部的俄罗斯军队手中](https://www.zerohedge.com/geopolitical/nearly-1-million-refugees-have-fled-ukraine-russia-warns-nato-stay-out)
+4. [参议员罗杰·马歇尔向Newsmax：切断俄罗斯石油“将停止他们的资金”](https://www.newsmax.com/newsmax-tv/roger-marshall-russia-oil-ukraine/2022/03/02/id/1059303/)
+5. [美国宣布对俄罗斯和白俄罗斯实施新制裁](https://www.voachinese.com/a/us-announces-new-sanctions-on-russia-belarus/6467430.html)
+
+
+# 每日推特文摘
+
+
+
+让我们把话说清楚：将俄罗斯对乌克兰发动有预谋攻击的责任转嫁到美国及其盟友身上不仅是不负责任的，而且是危险的。像这样的虚假信息只是为俄罗斯服务，而俄罗斯要为乌克兰逝去的生命负全部责任。
+
+
+
+
+
+> 让我们把话说清楚：将俄罗斯对乌克兰发动有预谋攻击的责任转嫁到美国及其盟友身上不仅是不负责任的，而且是危险的。像这样的虚假信息只是为俄罗斯服务，而俄罗斯要为乌克兰逝去的生命负全部责任。[https://t.co/rVsGGw40PJ](https://t.co/rVsGGw40PJ)
+> — 美国驻华使领馆 US MissionCN (@USA\_China\_Talk) [March 2, 2022](https://twitter.com/USA_China_Talk/status/1498961612203569158?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+CCP政府面临一个窘境：关于“铁链女”，如何让中国百姓相信CCP政府说的话是真的!
+
+
+
+
+
+> CCP政府面临一个窘境：关于“铁链女”，如何让中国百姓相信CCP政府说的话是真的‼️ [pic.twitter.com/fKHIN4YZ6G](https://t.co/fKHIN4YZ6G)
+> — 银河系勇气之星🌟🛸🌟 (@COURAGESTARnew) [March 2, 2022](https://twitter.com/COURAGESTARnew/status/1498947877280022532?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+康奈尔精神科医生诊断普京具有精神变态的特征，主要表现为个性上极强的侵略性，极度自恋，缺乏同情心。
+
+
+
+
+
+> 康奈尔精神科医生诊断普京具有精神变态的特征，主要表现为个性上极强的侵略性，极度自恋，缺乏同情心
+> Russian President Vladimir Putin has features of a psychopath: expert [https://t.co/M038jP4LsE](https://t.co/M038jP4LsE)
+> — 🔥火来2号🔥✊🌽🚀 (@jsdfposjpqyuee1) [March 3, 2022](https://twitter.com/jsdfposjpqyuee1/status/1499221862923980803?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+今天下午，丹麦皇家空军（#RDAF）的B-583，一架洛克希德C-130大力神J-30，将2700个一次性反坦克榴弹发射器和一个移动医院空运到罗马尼亚的阿拉德国际机场，从那里被送往乌克兰。
+
+
+
+
+
+> 今天下午，丹麦皇家空军（[#RDAF](https://twitter.com/hashtag/RDAF?src=hash&amp;ref_src=twsrc%5Etfw)）的B-583，一架洛克希德C-130大力神J-30，将2700个一次性反坦克榴弹发射器和一个移动医院空运到罗马尼亚的阿拉德国际机场，从那里被送往乌克兰 [pic.twitter.com/rNz8YXV5lr](https://t.co/rNz8YXV5lr)
+> — 500 𝕸𝖎𝖑𝖊𝖘 (@SafeGuard009) [March 2, 2022](https://twitter.com/SafeGuard009/status/1499101048707096577?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+一名向Ukraine部队投降的俄罗斯士兵被当地人提供食物，并打电话给他在俄罗斯的母亲。当电话接通时，他崩溃了，他看见了他的母亲。
+
+
+
+
+
+> 一名向 ukraine 部队投降的俄罗斯士兵被当地人提供食物，并打电话给他在俄罗斯的母亲。当电话接通时，他崩溃了，他看见了他的母亲。 [pic.twitter.com/AczNEgSkrX](https://t.co/AczNEgSkrX)
+> — Lydia (澳喜特战旅） (@Lydia71469335) [March 2, 2022](https://twitter.com/Lydia71469335/status/1499107519901356035?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+乌克兰当局表示，他们正在拆除道路标志，干扰俄军进程，将公共标志牌换成反对入侵的标语。
+
+特评：俄罗斯正在陷入乌克兰人民战争的汪洋大海。
+
+
+
+
+
+> 乌克兰当局表示，他们正在拆除道路标志，干扰俄军进程，将公共标志牌换成反对入侵的标语。
+> 
+> 特评：俄罗斯正在陷入乌克兰人民战争的汪洋大海。[https://t.co/7RgSUyzepD](https://t.co/7RgSUyzepD)
+> — 特战时讯（澳喜特战旅） (@texun007) [March 2, 2022](https://twitter.com/texun007/status/1499103210598019078?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+再傻的小粉红面对生死抉择时，也不会相信中共大使馆的忽悠。只要新中国联邦救援飞机到达基辅救人时，所有中共的谎言都会烟消云散。粉红们会挤破头申请新中国联邦免费救援机票，逃命。
+
+以上是乌克兰华人telegram群聊信息！
+
+
+
+
+
+> 再傻的小粉红面对生死抉择时，也不会相信中共大使馆的忽悠。
+> 只要新中国联邦救援飞机到达基辅救人时，所有中共的谎言都会烟消云散。粉红们会挤破头申请新中国联邦免费救援机票，逃命。
+> 以上是乌克兰华人telegram 群聊信息！ [pic.twitter.com/aY5jwhAuQQ](https://t.co/aY5jwhAuQQ)
+> — 增广贤文—旧号被封（澳喜特战旅） (@Bob20227) [March 1, 2022](https://twitter.com/Bob20227/status/1498807880689995776?ref_src=twsrc%5Etfw)
+
+
+
+
+
+*编辑：文零
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

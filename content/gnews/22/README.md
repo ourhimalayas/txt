@@ -2,10 +2,10 @@
 ---
 
 
-## 英国石油公司将退出在俄罗斯石油公司的股份
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098877/)
+## 乌克兰哈尔科夫行政大楼被导弹攻击
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098881/)
 
-02/28/2022 英国石油公司周日表示，将退出其在俄罗斯国家的俄罗斯石油和天然气公司的股份，以回应俄罗斯对乌克兰的入侵。
+02/28/2022 乌克兰哈尔科夫行政大楼被导弹攻击。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
