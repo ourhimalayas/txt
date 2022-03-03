@@ -2,30 +2,50 @@
 ---
 
 
-## 中日财经爆┃金融核弹要爆了！郭树清坦言：房价下跌就是一个巨大的金融危机！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2100482/)
+## 俄罗斯原油航线油轮运费飙升
+` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/2100528/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-18.png)
-[图片来源](https://www.thepaper.cn/newsDetail_forward_11541213)
+撰稿:纽约香草山教育部 Naughty(文行)
 
-3月2日，中共银保监会主席郭树清与五家大型金融机构董事长一同出席国新办新闻发布会。
-
-郭树清说，“现在房贷发得很多，在大型银行贷款的占比很高。我们反复提醒他们（大型金融机构）要注意风险，因为很多人买房贷款是为了投资、投机，将来万一房价下跌，或者出现其他问题，就是一个巨大的金融危机”。
-
-近年来，郭文贵先生多次警告世界，中共银行房地产贷款占比在60%—70%，中共房地产市值已经达到近100万亿[美元](https://www.nfscdict.com/%E7%BE%8E%E5%85%83)，是GDP的6倍，融资总额达到了13.34万亿美元以上，房地产暴雷必然引发“多米诺骨牌” 形成影响世界经济的巨大金融暴雷。
-
-去年下半年以来，地产暴雷从[恒大](https://www.nfscdict.com/%E6%81%92%E5%A4%A7)、[碧桂园](https://www.nfscdict.com/%E7%A2%A7%E6%A1%82%E5%9B%AD)、奥园、[花样年](https://www.nfscdict.com/%E8%8A%B1%E6%A0%B7%E5%B9%B4)到[融创](https://www.nfscdict.com/%E8%9E%8D%E5%88%9B)愈演愈烈，进而传导至全球金融系统，导致西方的[养老](https://www.nfscdict.com/%E5%85%BB%E8%80%81)金、[教育](https://www.nfscdict.com/%E6%95%99%E8%82%B2)基金还有退伍军人基金产生巨额亏损，引发全球金融危机和社会动荡。
-
-在北京冬奥会之后，中共2022“两会”即将召开之际，郭树清“直言不讳”的讲出房地产和金融面临的危机，验证了郭文贵先生先前断言，中共在冬奥会之后房地产要全面暴雷！
-
-信息来源：[郭树清：房地产泡沫化金融化势头得到根本扭转-新华网](http://www.news.cn/fortune/2022-03/03/c_1128432275.htm)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
 
 
+
+
+
+据国外媒体3月1日报道，俄罗斯入侵乌克兰后，波罗的海至欧洲航线上租用阿芙拉型油轮的运费飙升，由于担心对俄罗斯的石油制裁可能很快到来，一些油轮船东已经开始避开俄罗斯港口。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-298.png)图片来自：https://www.straitstimes.com
+根据伦敦波罗的海交易所3月2日的最新数据，TD17 波罗的海到康涅狄格英国石油油轮航线的成本又飙升了 35,000 美元/天，达到 210,000 美元/天。这是自2008年以来的最高水平。
+
+同时，TD6 黑海至地中海航线的船舶运费每天增加 5,000 美元至 158,000 美元，比不到一周前的价格增加了 9 倍！
+
+俄罗斯2/3的原油出口要经过黑海和波罗的海港口的海运，大部分销往欧洲。
+
+同时，虽然国际基准油价近期飙升，但由于担心采购俄罗斯石油受到制裁，俄罗斯乌拉尔原油的价格出现大跌。
+
+
+
+链接:
+
+[Oil prices surge over 7% as global crude reserve release disappoints](https://www.reuters.com/business/energy/oil-prices-climb-market-weighs-release-reserves-vs-russia-disruption-2022-03-01/)
+
+[Oil, commodity prices surge; stocks, rouble extend losses as Russian troops advance in Ukraine](https://www.straitstimes.com/business/economy/oil-prices-soar-more-than-10-as-iea-move-to-release-emergency-stock-fails-to-reassure)
+
+[Buyers Steer Clear of Russian Oil Exports](https://www.energyintel.com/0000017f-4641-d3e7-a17f-f7c54b6a0000)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-14.jpg)
+
+编辑/总编/审核: 飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

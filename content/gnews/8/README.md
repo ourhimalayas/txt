@@ -2,23 +2,33 @@
 ---
 
 
-## 欧洲药品管理局授权莫德纳新冠疫苗用于 6-11 岁儿童
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2100448/)
+## 有声|香港恐将上演武汉悲剧
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2100488/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3.3C.jpg)网络图片
-欧洲药品管理局表示，它已授权莫德纳的CCP病毒疫苗用于 6 至 11 岁的儿童，此外还建议为 12 岁及以上的儿童接种辉瑞的CCP病毒疫苗加强针，目的是为了“进一步促进对欧洲儿童的CCP病毒防护”。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间3月1日，据多家媒体报道，中共在香港设立的第一家方舱医院目前已经开始接收当地感染中共病毒的患者。然而，这仅仅是中共将在香港开设的八家方舱医院的其中之一。
 
-在周四的新闻发布会上，欧盟监管机构的疫苗负责人 Marco Cavaleri 博士表示，针对年幼儿童的莫德纳疫苗剂量将会是成年人接种的CCP病毒疫苗的一半。此前辉瑞-BioNTech 疫苗已于去年 11 月获准用于 5 岁及以上儿童。同时莫德纳CCP病毒疫苗现在也被建议用于CCP病毒疫苗加强针注射。
+在香港地区中共病毒疫情持续恶化，单日新增确诊患者数突破三万例的背景下，此前一天，林郑月娥声称，港共政府正在评估是否要对香港市民实行禁足限制并强制让所有市民接受中共病毒核酸检测。
 
-在提到疫苗安全方面的问题，尤其是科学家们特别关注的心脏和胸部炎症的病例——这些副作用以前与注射有关，Cavaleri 博士认为这些病例非常“罕见”，多数人在没有干预的情况下康复了。这显然是不负责任并且违背事实的说法，因为我们已经看到了大量与心脏炎症相关的案例，至少笔者从来没有听说有任何患者“自愈”的。
+对此，观察人士指出，无论是方舱医院，还是用封城的方式来对抗中共病毒疫情，这些做法都是中共政府从两年前开始，在武汉、西安以及中共国内各处疫情爆发地所惯用的手段。而今，香港或将再度步上墙内各地的后尘，重演封城悲剧。
 
-许多欧洲国家现在已经为老年群体提供了第二次CCP病毒加强针，这其实反映出政府对于第三针效果的怀疑与不自信，担心疫苗提供的免疫效力可能会快速消退——即便欧洲药品管理据对此尚未得出正式结论。
+有评论指出，昨日的武汉和西安，就是明日的香港。
 
-新闻参考链接：
+文字版原文：[香港恐将上演武汉悲剧](https://gnews.org/zh-hans/2094477/)
 
-[EU clears Moderna shot for young kids, Pfizer boosters](https://apnews.com/article/coronavirus-pandemic-business-health-europe-coronavirus-vaccine-f0b5de28db8a468bc93d185755b00d39)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

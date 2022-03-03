@@ -2,34 +2,33 @@
 ---
 
 
-## 二月以来中共国三十家房企频繁出现人事变动
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2100405/)
+## 有声|郭先生解读台海危机现状
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2100438/)
 
-##### 整理：围剿维尼熊
-编辑：Mttfly
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+在2月27日的大直播中，郭文贵先生对台湾军队和中共军队的状态和实力做了一番独特的科学分析与对比。
 
-**【雅典娜快讯】，紧贴时代脉搏**
+郭先生提到，台湾有将近50万现役和预备役专业军人，其优势在于技术战和电子战。同时，就像乌克兰军人一样，台湾军人真心卫国，坚决与台湾共存亡。相较而言，中共的军队中大多数是被共产党洗脑的年轻人，他们的军事素质很差。更何况，共军所谓的技术兵种基本上都是被用来搞政治斗争和内部腐败，其对技术的掌握能力与台湾军队相比，根本不在一个级别。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/房地产jpg.jpg)图片：雅典娜设计组
+另一方面，在战争心理和战争逻辑中，台湾的国军是誓死抵抗、保家卫国；而中共军队却是实实在在的侵略方，这样可耻的角色只会增加共军士兵的心里负担。
 
+但郭先生也指出，台湾现在最大问题在于内部的卖台贼。情报显示，国民党和民进党中都有不少人在给中共攻台出谋划策。这卖台贼希望中共能在美国和日本介入之前迅速占领台湾。
 
-根据大纪元2022年3月3日讯，中共地产行业频繁的人事变动。今年2月份以来，有三十多家房企的近百名高管发生人事变动。
+文字版原文：[郭先生解读台海危机现状](https://gnews.org/zh-hans/2094426/)
 
-据《每日经济新闻》3月2日报导，2月28日，龙湖集团原首席执行官邵明晓升任龙湖集团副董事长，原首席运营官陈序平接任首席执行官。不完全统计，自2月份以来，包括龙湖集团、中南置地、招商蛇口、绿地控股、旭辉集团、世茂股份等在内的超过30家房企的近百位高管发生人事变动，包括离职、免职、退休、卸任、升任、新聘等。
+音频处理：Fei797
+发稿：Fei797
 
-某地产行业咨询机构负责人表示，地产行业频繁的人事变动，除了正常的人事调整外，也有在行业缩表背景下，一些房企不得不做保守型运营，开始控制成本，节衣缩食。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-参考链接：[2月份大陆三十家房企近百位高管现人事变动](https://www.epochtimes.com/gb/22/3/3/n13618108.htm)
-
-*发布：Mttfly*
-
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

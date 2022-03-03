@@ -2,40 +2,58 @@
 ---
 
 
-## 乌克兰70余名士兵在俄袭击中丧生 平民伤亡进一步扩大
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2100236/)
+## 文•贵天成——文贵先生谈“普京”（十一）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2100246/)
 
-撰稿: 银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-1.png)
-据3月1日外媒报道，在俄罗斯导弹袭击了东部城市奥赫迪尔卡的一个军事基地之后，有70多名乌克兰士兵丧生，这是俄罗斯入侵后所造成的最重大的人员伤亡。同时，针对平民的袭击也在加剧。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-290.png)图片来自：https://www.theguardian.com
-乌克兰外交部长库勒巴指责普京 “谋杀无辜平民”，他发布的一则视频显示，哈尔科夫自由广场巨大的爆炸造成10名平民死亡，之后一栋居民楼又遭受导弹袭击，造成8人死亡。对基辅电视塔的袭击造成5人死亡，5人受伤。袭击地点靠近巴比恩亚尔受害者纪念碑，二战期间，纳粹士兵在这里屠杀了多达15万人，包括3万多犹太人。
+整理：**BENJ1**
+编辑：小熊
 
-乌克兰总统泽伦斯基强烈谴责俄罗斯对乌克兰的城市轰炸加剧，甚至对平民地区使用火箭系统，导致伤亡人数增多，构成了国家恐怖主义和战争罪。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/1-7.png)图片来源：雅典娜设计组
 
-观察人士认为，普京的闪电入侵并未取得胜利，且遭到国际社会的一致孤立与经济金融制裁，重压之下，可能会采取更加决绝的方法，轰炸平民区以求速战速决。这种情况下乌克兰的状况将会异常惨烈。
 
-新闻来源:
+郭文贵先生2021年12月3日直播
 
-[Huge armoured column nears Kyiv as ‘barbaric’ missile strikes continue](https://www.theguardian.com/world/2022/mar/01/fears-of-bloody-fight-for-kyiv-as-huge-russian-army-convoy-gathers-on-outskirts)
+他（俄罗斯的一位朋友）体会到，俄罗斯已经做好了打仗、经济走向灾难、世界经济崩溃的一切准备，他认为中共国也准备好了。而且，他认为杨洁篪最后一次到莫斯科，所有的(在)莫斯科见的人绝大多数都是所谓的在俄罗斯的老朋友，这引起了普京的愤怒。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+普京认为，你中国在欧洲爱怎么搞怎么搞，你到我这来也挖我墙角，是不是？你跟我这个(人)在厕所门口见一面，跟我那个(人)在厕所相遇，这啥意思这？你学Rachel你？是不是？老跟厕所见面、偶遇——普京就不高兴了。
 
-编辑: 宁文静
+郭文贵先生2021年12月8日直播
 
-总编: 飞虹
+12月6号，就两天前，普京飞到了印度。在这之前，他们的外长和他们的国防部长先到印度，跟印度干什么呢？——签订战略合作协议，其中包括生化战略协议。这是什么意思？俄罗斯从来给印度提供的武器都是比中国先进的，最先进的都是提供给印度，那么它是干什么？这一次它给印度提供的一个就是AK系列的、最先进的短兵相接的步枪，我们知道这个在中印边境上肯定是有用的。
 
-审核: 木木
+郭文贵先生2021年12月10日直播
 
-校正/发稿：浪迹天涯
+据说，俄罗斯的普京说，我对习近平的和共产党的对全世界的野心，和他们的无耻和愚蠢，都超出了我当初的所有预估。呵呵，这就普京。普京爱说的那一句话啊，“这个杯子里的耐心”，呵呵，杯子里的耐心。呵呵呵，一个杯子里的耐心，老子跟你玩儿杯子里的耐心。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-71.png)
+现在普京讲了一句更著名的话，跟美国人私下的时候说的，我们对待中国人，就人家很明确的，对中国人，不跟你习近平，和中国这个国家的未来的走向，我们是完全已经没有任何担心，不报任何幻想。
+
+我们跟你们西方不一样。战友们，这句话，这个普京你一定要在乎，这人是个天才，绝对是天才。一百个习近平跟普京那政治智慧比，那都不是一个层次的。
+
+这个普京这个话说到家，他对习近平的这种，对共产党的对全世界的野心—他没有想到。他真地发现，他原来以为吹吹牛，共产党就吹牛嘛，他们就是说嘛，跟他玩儿呗，咱把钱先拿回来再说，签上两个4500亿的合同，天然气和油。
+
+资料来源：郭文贵先生2021年12月3日、8日、10日大直播
+
+往期回顾：
+[文•贵天成——文贵先生谈“普京”（一）](https://gnews.org/zh-hans/1990454/)
+[文•贵天成——文贵先生谈“普京”（二）](https://gnews.org/zh-hans/1992091/)
+[文•贵天成——文贵先生谈“普京”（三）](https://gnews.org/zh-hant/1997918/)
+[文•贵天成——文贵先生谈“普京”（四）](https://gnews.org/zh-hans/1998162/)
+[文•贵天成——文贵先生谈“普京”（五）](https://gnews.org/zh-hans/1998174/)
+[文•贵天成——文贵先生谈“普京”（六）](https://gnews.org/zh-hans/1998177/)
+[文•贵天成——文贵先生谈“普京”（七）](https://gnews.org/zh-hans/2002397/)
+[文•贵天成——文贵先生谈“普京”（八）](https://gnews.org/zh-hans/2090925/)
+[文•贵天成——文贵先生谈“普京”（九）](https://gnews.org/zh-hans/2090993/)
+[文•贵天成——文贵先生谈“普京”（十）](https://gnews.org/zh-hans/2091987/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

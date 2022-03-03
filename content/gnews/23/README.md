@@ -2,8 +2,8 @@
 ---
 
 
-## 20220302郭文贵大直播 ：在中国社会，根本问题，教育
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2100239/)
+## 20220302郭文贵大直播 ：习包子和普大帝都会在今年嗝屁，新中国联邦是最美好的一群人！
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2100295/)
 
 作者：东京樱花团小视频组
 

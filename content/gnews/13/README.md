@@ -2,26 +2,23 @@
 ---
 
 
-## 诺贝尔奖获得者联名抗议俄罗斯对乌克兰的军事进攻
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2100424/)
+## 欧洲药品管理局授权莫德纳新冠疫苗用于 6-11 岁儿童
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2100448/)
 
-撰稿：东京樱花团/道来
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.3C.jpg)网络图片
+欧洲药品管理局表示，它已授权莫德纳的CCP病毒疫苗用于 6 至 11 岁的儿童，此外还建议为 12 岁及以上的儿童接种辉瑞的CCP病毒疫苗加强针，目的是为了“进一步促进对欧洲儿童的CCP病毒防护”。
 
-截止3月2日，世界各国超160名诺贝尔奖获得者联名抗议并谴责俄罗斯政府对乌克兰发动军事进攻，强烈要求俄罗斯政府放弃在乌克兰的所有军事行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-23.png)
-[图片来源](https://bm.ge/uploads/news/621f5e2e0e2f1.png)
+在周四的新闻发布会上，欧盟监管机构的疫苗负责人 Marco Cavaleri 博士表示，针对年幼儿童的莫德纳疫苗剂量将会是成年人接种的CCP病毒疫苗的一半。此前辉瑞-BioNTech 疫苗已于去年 11 月获准用于 5 岁及以上儿童。同时莫德纳CCP病毒疫苗现在也被建议用于CCP病毒疫苗加强针注射。
 
-联名公开信中表示战争是不当的，是残虐的。要求俄方从乌克兰撤军。同时阐明了俄方军事行为违反了国际章程，不仅会受到国际的批判，同时也会给俄罗斯人带来苦难与压力。
+在提到疫苗安全方面的问题，尤其是科学家们特别关注的心脏和胸部炎症的病例——这些副作用以前与注射有关，Cavaleri 博士认为这些病例非常“罕见”，多数人在没有干预的情况下康复了。这显然是不负责任并且违背事实的说法，因为我们已经看到了大量与心脏炎症相关的案例，至少笔者从来没有听说有任何患者“自愈”的。
 
-联名公开信中强调并不是责怪俄罗斯人，而是谴责俄罗斯政府发起的军事行动和敌对侵略情绪。同时，对为自由而战的乌克兰及乌克兰民众表示支持。
+许多欧洲国家现在已经为老年群体提供了第二次CCP病毒加强针，这其实反映出政府对于第三针效果的怀疑与不自信，担心疫苗提供的免疫效力可能会快速消退——即便欧洲药品管理据对此尚未得出正式结论。
 
-[信息来源](\Users\Administrator\Downloads\The%20undersigned%20Nobel%20laureates%20voice%20our%20support%20for%20the%20Ukrainian%20people%20and%20the%20free%20and%20independent%20state%20of%20Ukraine%20as%20it%20faces%20Russian%20aggression)：
+新闻参考链接：
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
-
-
+[EU clears Moderna shot for young kids, Pfizer boosters](https://apnews.com/article/coronavirus-pandemic-business-health-europe-coronavirus-vaccine-f0b5de28db8a468bc93d185755b00d39)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
