@@ -2,20 +2,30 @@
 ---
 
 
-## 克里米亚事件鼓舞了普京和习近平的野心
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2100892/)
+## 瑞典新研究表明辉瑞疫苗mRNA 能整合入人体 DNA
+` Little c` [轉載自GNews](https://gnews.org/zh-hans/2100966/)
 
-制作：香草山视频部
+作者：波士顿五月花 Little c
 
-大纲：普京一枪不发地拿下了克里米亚，此事鼓舞了习近平。经过几年的计划，习近平放出生化武器并实施“双龙计划”，拿回香港、再拿下台湾。普京拿回乌克兰。他们认为美国和西方半死不活的社会状态是他们最佳的机会。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/mrna-vaccine.jpg)图片来自网络
 
-我们是世界上最早说出“习普”二人有个双计划。习近平的“双龙计划”，是要拿下台湾、香港；普京是要拿下乌克兰。
+一瑞典实验室研究发现辉瑞疫苗中的mRNA会整合进入人体细胞DNA，并改变受影响细胞的DNA。这一研究结果发表在Current Issues in Molecular Biology杂志上，巴西里约时报对此做了报道。
 
-当时克里米亚内部造反，直接策反，普京一枪没发，拿回了克里米亚，这件事纵容了普京，也让普京成为世界上最牛X的一个。
+他们采用了人类肝细胞系进行体外实验，发现辉瑞mRNA疫苗使用LINE-1天然逆转录酶，将疫苗的遗传密码逆转录整合人体细胞DNA。 这种“逆转录”和HIV RNA 病毒改变人体细胞DNA原理类似，能修改DNA后，并复制。
 
-此事也极大地鼓舞了习近平这个人的野心，当时对他很刺激，习近平和一个人谈话时说：“普京这一票干的漂亮，名垂青史，世界上能有几个这样的政治家呀？一弹不发，一子不花，就让克里米亚内部全民投票，回归俄罗斯了。那是多大的事啊，而且啥事没有，国际上也没啥反应。
+在正常情况下，人体需要正常细胞DNA转录成RNA，然后形成蛋白质，产生新细胞。如果疫苗中含有有害遗传密码，后果将非常可怕。
 
-这个事情纵容了习近平和普京的野心，同时让他俩更加狂妄的看不上美国和欧洲。经过这几年的深思熟虑，加上共产党放出的生化武器，而这些绝对都在他俩计划之中。他们是看不起美国和西方的这种半死不活的社会状态。他们现在觉得这是世界上最佳的时机。
+* * *
+
+参考链接：
+
+[New study from Sweden says, Pfizer mRNA does indeed integrate into our DNA](https://www.riotimesonline.com/brazil-news/modern-day-censorship/new-study-from-sweden-says-pfizer-mrna-does-indeed-integrate-into-your-dna/)
+
+[Intracellular Reverse Transcription of Pfizer BioNTech
+COVID-19 mRNA Vaccine BNT162b2 In Vitro in Human Liver
+Cell Line](https://www.riotimesonline.com/wp-content/uploads/2022/02/Pfizer-RNA-into-DNA.pdf)
+
+编辑/发布：Little c
 
  
 

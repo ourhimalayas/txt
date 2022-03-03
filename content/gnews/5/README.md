@@ -2,29 +2,18 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月3日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2100943/)
+## 2022年3月3日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2101060/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO.jpg)
+制作：DT新闻组
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-1-1.png)
-文章仅代表作者本人观点，与Gnews无关
+**中共的杀戮还在继续……**
 
-视频参看：
-[2022.03.03早 《NFSC新闻》](https://gettr.com/streaming/pxy6kk0828)[2022.03.03早 G|TV《新闻访谈》](https://gettr.com/streaming/pxywow1186)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_5358.jpg)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+发稿：信心的选择
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-calendar-4.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
 
  
 
