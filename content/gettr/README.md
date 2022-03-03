@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/3/2022 6:30 PM (UTC)`
+
+3/2/2022 Miles Guo: The Way of Righteousness must include faith. What is the essence of the Way of Righteousness? It is necessary to have the populism movement, but what is its limitation? What has gone wrong with capitalism? Why will the New Federal State of China benefit the most after the Russia-Ukraine war is over?<br/><br/>3/2/2022 文贵直播：正道主义必须包含信仰，它的核心是什么？平民运动是必要的，但其局限在哪儿？资本主义出了什么问题？为什么新中国联邦将是这次俄乌战争后的最大受益者？<br/>
+![img](https://media.gettr.com/group21/getter/2022/03/03/18/6e554be7-7428-5c3e-b8ac-7ecc8aba2c7a/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@mikepompeo 3/3/2022 6:27 PM (UTC)`
+
+We’ve seen this coming, and we’ve been reactionary. That gave Vladimir Putin, who is an evil thug, the opportunity to drive his mission and set the pace.
+![img](https://media.gettr.com/group10/origin/2022/03/03/18/e9e45387-f69f-6a41-2d76-fa94362c5fb8/out.jpg)
+
+---
+
 `@miles 3/3/2022 6:08 PM (UTC)`
 
 .
@@ -139,20 +155,6 @@
 
 3/1/2022 Miles Guo’s GETTR: In a war, life always comes first. However, the CCP is launching a disinformation campaign to smear the New Federal State of China for collecting personal information in the name of rescuing the Chinese people in Ukraine. The Chinese have unfortunately turned out to be hated the most in the Russia-Ukraine war. The New Federal State of China will arrange flights taking off from the neighboring countries of Ukraine to the US, Chinese visa-free countries, or Southeast Asia respectively, please see the upcoming announcements for detailed information.<br/><br/>3/1/2022 文贵盖特：战争中生命第一，而中共却造假污蔑新中国联邦收集个人信息；俄乌战争中最被人恨的是中国人；新中国联邦会在乌克兰周围安排飞机分别飞往美国、中国免签国或东南亚，具体请见公告<br/>
 ![img](https://media.gettr.com/group37/getter/2022/03/02/00/7c9cfc7f-0f13-8a02-22e4-6d75004935ec/out.jpg)
-
----
-
-`@miles 3/1/2022 9:57 PM (UTC)`
-
-3/1/2022 Miles Guo’s GETTR: Although it is a war between Russia and Ukraine, the Chinese people have become the target of hatred due to the fact that the CCP has been spreading malice all over the world; It is so pathetic that the Chinese people still believe the CCP, who always care about themselves rather than ordinary people; even so, we will still try our best to rescue our fellow Chinese from the war zone, and awaken more Chinese people.<br/><br/>3/1/2022文贵盖特：俄乌打仗，被共产党到处拉仇恨的中国人成了被恨的对象，中国人咋还相信让领导先走的共产党？可悲啊！即便如此，我们也还要救战火中的中国同胞、唤醒更多的中国人<br/>
-![img](https://media.gettr.com/group39/getter/2022/03/01/21/e67a919d-7839-c315-b0ab-5cabd807f466/out.jpg)
-
----
-
-`@miles 3/1/2022 9:53 PM (UTC)`
-
-3/1/2022 Miles Guo’s GETTR: It is said Putin was furious, he called and urged Xi Jinping to take actions against Taiwan; As the Russia-Ukraine war continues, instead of rescuing its own people, the CCP has been insanely trying to control public opinion; The New Federal State of China has rescued many Chinese Embassy staff, and will demonstrate with actions and results who really care about the Chinese people!<br/><br/>3/1/2022 文贵盖特：据说，普京大怒，打电话催习近平对台湾动手；面对俄乌战事，中共非但救援却疯狂控制舆论，我们救了多少大使馆人员？新中国联邦用行动结果证明谁在关爱中国人！<br/>
-![img](https://media.gettr.com/group3/getter/2022/03/01/21/698bc3c7-a49d-567e-5d16-a862a47f9899/out.jpg)
 
 ---
 

@@ -2,48 +2,33 @@
 ---
 
 
-## 令人心碎的照片：乌克兰儿童在俄罗斯袭击中丧生
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2101087/)
+## 七哥非常担心台湾和国内的亲朋好友
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2101148/)
 
-据《纽约邮报网》(nypost.com) 作者：本·凯斯伦([Ben Kesslen](https://nypost.com/2022/02/27/tragic-photos-show-ukrainian-kids-killed-in-russian-attacks/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons))，2022年2月27日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-308-e1646328307306.png)在乌克兰东部马里乌波尔，医护人员对一名炮击受伤的女孩进行心肺复苏。
-图片来源：美联社
-周日出现了一些在俄罗斯对乌克兰的战争中遇难的,最年轻受害者的令人心碎的图片。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-在来自乌克兰顿涅茨克地区马里乌波尔市的令人心碎的照片中，有一张救护人员奥列克桑德·科诺瓦洛夫(Oleksandr Konovalov)对一个在俄罗斯袭击平民时受伤后被送到市医院的小女孩进行心肺复苏的镜头，但却徒劳无功。在她旁边，一个浑身是血的成年人痛苦地蹲了下来。
+2022-02-27直播摘录
 
-更多照片显示，在马里乌波尔医院内，她被一队成年人包围着，拼命地想要挽救她年轻的生命。
+中国人，说实在，为啥我七哥，这几天有时候想想国内的……我的同事、家人，我就不知道怎么好，我也没办法都弄出来。怎么让这些人呢？你像我的同事，我们的杨英，我最近老梦见她是吧，为什么？还戴着脚镣、手铐，就电子脚镣，五、六年，在里边待了三、四年，她一个财务会计，她上哪还去找工作去，是吧？中国人有多现实，哪有像西方人，还有个有勇敢的人士站出来，是吧？中国人是一面倒的懦弱自私、欺负弱小，杨英能有工作吗？她咋活呢？我们的原来的跟我创业的马成、杨克森、赵广东、吕涛，这高管都在监狱待了四、五年出来，现在他有过去跟着我混，都有个亿儿、八千万的、几千万的个人资产，但是你一旦这个东西发生以后，你这些钱不是钱了，你的钱不是钱了，他们咋活呀？是吧。还有我这些家人，哥哥、嫂子、侄子的，是吧？还有所有的这些亲人，你说我这同事、我这些裕达、盘古的这些老员工，被他们抢走了，都有点钱，但以后怎么活是吧？我愁这事情。
 
-据《基辅独立报》报道，卫生部长维克多·利亚什科透露，她不幸成为迄今为止在战争中被杀害的16名儿童之一。
+另外一个确确实实担心，台湾我很多的这些朋友，你知道。台湾来了以后他们咋办？不都是有钱的，很多原来跟我认识的，都是台湾普普通通的，过得很稳定的日子，但战争一来他们咋办？你像李祖原大师都七、八十岁了，他说不出来咋办呢？在台湾，他那个人是个佛教徒，天真的跟孩子一样，是吧？你真要发生战争，他会很惨的，这是七哥担心的。
 
-另一张照片拍摄了一些幸存者，其中包括一名妇女. 她手里抱着她的孩子和宠物狗，为了躲避街头战斗和城市中发生的冲突，她们挤进了马里乌波尔的一个避难所。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-利亚什科称俄罗斯军队以平民为目标,是“恐怖分子”。总统沃洛德米尔·泽伦斯基(Volodymyr Zelensky)称，俄罗斯人应该因犯下国际战争罪而被审判。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-309-e1646328358247.png)奥列克桑德·科诺瓦洛夫(Oleksandr Konovalov)试图抢救这个年轻女孩，但她随后不幸死亡。
-图片来源：美联社(AP)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-310-e1646328403190.png)到目前为止，已有16名儿童在战争中丧生。
-图片来源：美联社(AP)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-311-e1646328445134.png)年轻的女孩被一队成年人包围着，拼命地想挽救她的生命。
-图片来源：美联社(AP)
-周末，乌克兰各地的战斗仍在继续。俄罗斯总统弗拉基米尔·普京(Vladimir Putin)周日下令将该国的核武系统置于高度警戒状态，因此看不到明确的结束迹象。
+**关注我们**
 
-一些最激烈的战斗发生在哈尔科夫市。当地乌克兰官员周日宣布了胜利。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-313-e1646328487440.png)女孩，俄罗斯炮击的受害者。图片来源：美联社![](https://assets.gnews.org/wp-content/uploads/2022/03/image-314-e1646328528208.png)卫生部长利亚什科（Viktor Lyashko）称俄罗斯军队以平民为目标是“恐怖主义者”。
-图片来源：美联社![](https://assets.gnews.org/wp-content/uploads/2022/03/image-315-e1646328568120.png)一名妇女抱着她的孩子和宠物狗挤进马里乌波尔的一个收容所。
-图片来源：美联社
-原文连接：[https://nypost.com/2022/02/27/tragic-photos-show-ukrainian-kids-killed-in-russian-attacks/?utm\_source=twitter\_sitebuttons&utm\_medium=site%20buttons&utm\_campaign=site%20buttons](https://nypost.com/2022/02/27/tragic-photos-show-ukrainian-kids-killed-in-russian-attacks/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons)
+Discord 账号
 
-翻译：洛杉矶盘古农场 – TrueSky
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-校对：洛杉矶盘古农场 – Freeearth
+Gettr 账号
 
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场–子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U+2](https://discord.gg/2vuvRm7z6U+2)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
