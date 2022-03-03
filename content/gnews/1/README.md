@@ -2,21 +2,26 @@
 ---
 
 
-## 秘翻在线: 网球明星莎拉波娃在社交媒体上因批评普京被屏蔽
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2098831/)
+## 日本政府宣布对白俄罗斯总统实施制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2098963/)
 
-撰稿:沙莉
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-33.jpg)(图片源于 https://hochi.news/articles/20220303-OHT1T51061.html)
-前女子网球排名世界第一的玛利亚-莎拉波娃（俄罗斯人）因其美丽的外表和实力而被人们称为 “妖精”，她在3月3日（日本时间）更新了她的Instagram, 上传了她参加法国巴黎时装周时的照片。
+撰稿：东京樱花团/百花李香
 
-莎拉波娃女士发布的照片，展示了她穿着印花大衣、迷你裙和长靴的匀称而美丽的腿。 但没有一张她微笑的照片。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/日本政府宣布对白俄罗斯总统实施制裁.jpg)[图片来源](https://www.businessinsider.com/belarus-lukashenko-revealed-map-russias-ukrainian-invasion-plans-2022-3#:~:text=Putin%27s%20strongman%20ally%20may%20have%20accidentally%20shared%20a%20map%20of%20Russia%27s%20Ukrainian%2Dinvasion%20plans)
 
-她上次的投稿是在2月18日，自从俄罗斯开始入侵乌克兰以来，她发表了如”战争是不可原谅的，请用一句话表达制裁你的祖国”，”是时候称普京为独裁者和战争罪犯了”，等多条关于俄罗斯入侵乌克兰的评论信息， 因此，评论区当天被关闭了。
+3月3日，日本政府宣布，因白俄罗斯总统卢卡申科支持俄罗斯对乌克兰的军事入侵，对他实施制裁，冻结其资产。
 
-信息来源: [https://hochi.news/articles/20220303-OHT1T51061.html](https://hochi.news/articles/20220303-OHT1T51061.html)
+被制裁者包括总统在内还有七名国家高级官员和白俄罗斯国家军事工业委员会在内的两个组织。
 
-责编:Eric Kim
+此外，对俄罗斯普京身边的对外情报局局长纳雷什金在内的18名个人和该国的四家主要银行也被列入资产冻结对象。
 
+信息源：
+
+[ベラルーシへの制裁発表　ロシア大統領側近も　政府](https://news.yahoo.co.jp/articles/e6bf53d139d1176c2caa9b9b8582b6d8002fd705#:~:text)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
