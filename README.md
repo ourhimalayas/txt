@@ -15,35 +15,35 @@
 
 ---
 
-### [人权人性](/content/gnews/1/README.md)
+### [乌克兰战争改写政治的本质](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [韩正说习近平就是个傻X](/content/gnews/2/README.md)
+### [普习真的活在梦中](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [韩正对日本的态度](/content/gnews/3/README.md)
+### [共产党对人文的政治操纵让全世界不喜欢中国人](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [其他意见 （十二）](/content/gnews/4/README.md)
+### [人权人性](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [韩正说习近平就是个傻X](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [韩正对日本的态度](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [其他意见 （十二）](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中国人的毁人文化](/content/gnews/5/README.md)
+### [中国人的毁人文化](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [新中国联邦的乌克兰救援100%成功](/content/gnews/6/README.md)
+### [新中国联邦的乌克兰救援100%成功](/content/gnews/9/README.md)
  ` 日本東京方舟農場`
 
-### [3小时前俄急剧变化](/content/gnews/7/README.md)
+### [3小时前俄急剧变化](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
-
-### [七哥老家朋友打疫苗后的反应，中国人的政治](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [中共宣传的南斯拉夫3个英雄的家人下场是什么](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [专家表示，俄罗斯将无法通过加密货币规避制裁](/content/gnews/10/README.md)
- ` 纽约香草山MOS02`
 
 ### [俄罗斯使用集束炸弹轰炸乌克兰第二大城市](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
@@ -135,20 +135,20 @@
 ### [美国民众对拜登处理俄乌危机的支持度上升](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
 
-### [后共时代 世界大变局](/content/gnews/41/README.md)
+### [【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知](/content/gnews/41/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [后共时代 世界大变局](/content/gnews/42/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [波音宣布全面停止供应俄国零组件与维修服务](/content/gnews/42/README.md)
+### [波音宣布全面停止供应俄国零组件与维修服务](/content/gnews/43/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022.3.2大直播 新中国联邦在乌克兰当地援行动百分百成功](/content/gnews/43/README.md)
+### [2022.3.2大直播 新中国联邦在乌克兰当地援行动百分百成功](/content/gnews/44/README.md)
  ` 秘密翻译组-原创组`
 
-### [与中共疫苗作战的加拿大人居然遭遇中国人千元加币索赔](/content/gnews/44/README.md)
+### [与中共疫苗作战的加拿大人居然遭遇中国人千元加币索赔](/content/gnews/45/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [滞留在基辅的中国人成为乌克兰人泄愤的目标](/content/gnews/45/README.md)
- ` 秘密翻译组-原创组`
 
 ### [新西兰财经G乐部2022年3月2日:财经新闻整理](/content/gnews/46/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
