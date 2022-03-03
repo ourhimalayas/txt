@@ -2,60 +2,62 @@
 ---
 
 
-## 有报道说台湾大规模断电
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2097654/)
+## 【秘翻在线】俄军对乌克兰港口实施“全面种族灭绝”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2097707/)
 
-参议员马可·卢比奥： 有报道说 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 大规模断电 然而，我们目前掌握的关于其覆盖范围或原因的信息非常有限
+**撰稿：Grace**
 
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-02-at-9.57.02-PM.jpeg)图片来源：timesofisrael
+据英国《太阳报》（The Sun）3月2日报道，过去一天，俄罗斯军队一直在狂轰滥炸居住着近45万人的乌克兰港口马里乌波尔 （Mariupol ）。
 
+马里乌波尔市长指责俄军对他的城市进行了 “种族灭绝”，而他的副手则声称有13万人居住的整个街区已经被夷为平地。
 
-> Reports of large scale power outage in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)
-> 
-> However we have very limited information at the moment about how widespread or the cause
-> — Marco Rubio (@marcorubio) [March 3, 2022](https://twitter.com/marcorubio/status/1499205404961783809?ref_src=twsrc%5Etfw)
+报道指出，该市位于被吞并的克里米亚半岛（Crimean Peninsula ）与亲俄罗斯的分离省份卢甘斯克和顿涅茨克（Luhansk and Donetsk）之间的一个关键位置，那里有一些俄罗斯部队的基地。
 
+据报道，马里乌波尔市在过去15个小时里一直处于持续的炮火之下。
 
+一家妇产医院和几十栋居民楼被严重损坏，一所学校和一个移民收容所被摧毁。
 
-参议员约翰·肯尼迪： 我们必须向北京明确表明，对台湾的武装侵略将对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 经济造成毁灭性打击。 【附肯尼迪参议员官网新闻：肯尼迪，斯科特参议员共同发起如敢入侵台湾就制裁中共国的提案】
+由于俄罗斯军队加强了攻击，马里乌波尔的这家妇产医院的地下室已经变成了防空洞和托儿所。
 
+马里乌波尔市市长瓦迪姆·博伊琴科（ Vadym Boychenko）表示，俄军还阻止平民逃离该港口城市。
 
+他说：“居民的基础设施遭到了巨大的破坏，有许多人受伤，不幸的是还有许多平民死亡，妇女、儿童、老人。”
 
-> We must make it clear to Beijing that armed aggression towards Taiwan would deal a devasting blow to China’s economy.
->  [https://t.co/6jeSeWMdLP](https://t.co/6jeSeWMdLP)
-> — John Kennedy (@SenJohnKennedy) [March 2, 2022](https://twitter.com/SenJohnKennedy/status/1499142720086024195?ref_src=twsrc%5Etfw)
+**“一场对乌克兰人民的全面种族灭绝正在进行中。”**
 
+他继续说：“你必须明白，俄罗斯联邦的占领军已经做了一切来阻止平民离开我们这个拥有50万人口的城市。”
 
+“我们的铁路连接已经被切断–他们甚至去了火车站，向我们的柴油机车开火，这样人们就无法撤离。”
 
-前国务卿蓬佩奥： 认为独裁者可以攫取土地而无需承担后果的想法，是拜登政府最重大的失败。
+据报道，周三早些时候，博伊琴科说受伤的平民人数 “每天都在增加”。
 
+在周三，他说：“今天，我们的医院里有128人。我们的医生甚至都不回家了。他们正在为马里乌波尔居民的生命而战。”
 
+据报道，在超过半天的俄罗斯轰炸后，该市的水供应也受到威胁。
 
-> The idea that autocrats can just grab land and suffer no consequences from it is the most significant failure of the Biden Administration. [pic.twitter.com/XoYhOpXn3r](https://t.co/XoYhOpXn3r)
-> — Mike Pompeo (@mikepompeo) [March 2, 2022](https://twitter.com/mikepompeo/status/1499090199644676098?ref_src=twsrc%5Etfw)
+博伊琴科说：“情况很糟糕，我们正处于一场人道主义灾难的边缘。我们已经被不停地轰炸了15个多小时。四分之一的城市几乎被完全摧毁。我们不能进去捡拾尸体，所以我们无法统计。”
 
+报道称，此前几天，一名六岁的女孩在俄罗斯对马里乌波尔的空袭中丧生。
 
+另一名儿童，10岁的波琳娜，在俄罗斯军队向她家在基辅的汽车开火后被射杀。
 
-比尔·格茨: 拜登今晚没有提到要让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对传播导致大流行的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 负责。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 放出致命病毒，是邪恶的，必须承担责任，否则北京将制造更多致命的瘟疫。
+报道还指出，随着普京迅速接管乌克兰的希望破灭，人们越来越担心俄罗斯为结束战争而对平民目标进行越来越多的滥杀滥伤。
 
+周二，俄罗斯发出了令人不寒而栗的警告，要求乌克兰人在另一次大规模轰炸之前逃离基辅的部分地区。
 
+到目前为止，已有超过2000名乌克兰平民在战争中丧生，还有大约6000名俄罗斯军队。
 
-> Biden tonight made no mention of holding Communst China accountable for spreading the virus that caused the pandemic. The CCP unleashed the deadly virus, is evil, and must be held responsible or Beijing will create even more deadly plagues
-> — Bill Gertz (@BillGertz) [March 2, 2022](https://twitter.com/BillGertz/status/1498854110472278016?ref_src=twsrc%5Etfw)
+俄罗斯声称它已经控制了乌克兰西南部的港口城市赫尔松（Kherson），但该市市长否认了这一点，并称乌克兰军队正在坚守。
 
+另一方面，据报道，更多的火箭弹袭击了乌克兰的第二大城市哈尔科夫（Kharkiv），击中了地区警察部门和一所大学的一部分。
 
+根据联合国的数据，迄今为止已有80多万人逃离乌克兰，人们担心这是第二次世界大战以来最大规模的人口流动。
 
-参议员马可·卢比奥： 越来越多的迹象表明 [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) 人民越来越意识到乌克兰战争的规模和影响 如果是这样的话，这将使 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 面临两线冲突的危险 他将迅速采取行动，实施旨在防止大规模抗议和（内部）动乱的限制措施
+据乌克兰军方称，周三，俄罗斯伞兵在该市登陆，并开始为控制权而战。
 
-
-
-> Growing signs the people of [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) are becoming increasingly aware of the scale & scope of the [#UkraineRussianWar](https://twitter.com/hashtag/UkraineRussianWar?src=hash&amp;ref_src=twsrc%5Etfw) 
->  
-> If so this would put [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) in danger of a two front conflict 
-> 
-> He would move quickly to impose restrictions aimed at preventing large protests & unrest
-> — Marco Rubio (@marcorubio) [March 3, 2022](https://twitter.com/marcorubio/status/1499200309926981634?ref_src=twsrc%5Etfw)
-
-
+**新闻来源：**** **[LAID TO WASTE Russia committing ‘full-scale genocide’ in smashed Ukraine port with ‘hundreds dead’ after 15 hours of non-stop shelling](https://www.thesun.co.uk/news/17822851/ukraine-russia-mariupol-shelling-100s-dead/)
 
  
 

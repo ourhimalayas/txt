@@ -2,39 +2,28 @@
 ---
 
 
-## 聚焦：俄罗斯空军在乌克兰失去制空权
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/2097545/)
+## 中日财经爆|西方已冻结俄央行一半资产 制裁还会加码
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2097622/)
 
-#### 加拿大温哥华扬帆农场 丁过
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3A6EE0B5-CD76-44D5-B8A1-5266D9061232_1_201_a.jpeg)Military Daily
-在现代战争中，制空权相当于战场主动权。俄罗斯在入侵乌克兰的第二天就宣布摧毁了乌克兰空军，让外界普遍认为乌克兰军队的前景不容乐观
+撰稿：东京樱花团/peterwong
 
-但据［国家利益］3月2日报道，美国国防部的一名高级官员最近向记者证实，俄罗斯和乌克兰空军每天都在乌克兰上空激战，空战处于胶着状态，俄罗斯空军并未获得制空权。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西方已冻结俄央行一半资产-制裁还会加码.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimages.wsj.net%2Fim-494349%3Fwidth%3D860%26height%3D573&amp;imgrefurl=https%3A%2F%2Fcn.wsj.com%2Farticles%2F%25E7%25BE%258E%25E5%259B%25BD%25E5%2588%25B6%25E8%25A3%2581%25E4%25BF%2584%25E7%25BD%2597%25E6%2596%25AF%25E5%25A4%25AE%25E8%25A1%258C-11646090759&amp;tbnid=RMr6TQPZ0X9tIM&amp;vet=12ahUKEwj7uJmE_qj2AhXxidgFHWkpC_sQMygBegUIARDJAQ..i&amp;docid=YIJ2NoJDbkf7sM&amp;w=860&amp;h=573&amp;q=%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF&amp;ved=2ahUKEwj7uJmE_qj2AhXxidgFHWkpC_sQMygBegUIARDJAQ)
 
-该官员说，据五角大楼获得的情报，俄军共有772架战斗机，而乌克兰仅有69架战斗机，目前俄军起码已有75架飞机投入乌克兰战场，空战使双方都损失了飞机。
+美国财政部长耶伦周三（3月2日）表示，美国和西方盟友已经冻结了俄罗斯央行一半的资产，如果俄罗斯总统普京升级乌克兰战争，将对他和支持他的寡头们继续施加“严重后果”。
 
-就俄军为什么一直没有取得制空权的问题，该官员表示，乌克兰飞行员的战斗意志比俄罗斯飞行员更坚定，另外，乌克兰的防空系统和导弹防御系统仍然完好无损，一直正常使用和保卫领空（笔者认为这些令俄空军忌惮的防御系统大部分来自北约的新援）。
+耶伦在芝加哥发表讲话时说，美国财政部已经“把打击寡头或俄罗斯精英作为首要任务，他们是普京总统腐败权力的关键。在过去几周里，我们已经制裁了这些人中的许多人，我们正在与司法部的同事和我们的盟友组建一个特别工作组，以发现、冻结和扣押他们在世界各地的财富。”
 
-这也是俄罗斯空军不敢大举入侵乌克兰的原因之一。
-![Russia starts supplying it&#039;s most advanced long ranges missile system to  India | S-400 | WION - YouTube](https://i.ytimg.com/vi/_P78t6olZQs/maxresdefault.jpg)Wion
-当记者问到乌克兰空军为什么不摧毁令人担忧的超长俄军车队时，该官员说，俄军用随行（应该是伪装后进入乌克兰）的移动式S-400地对空导弹系统来保护其车队，乌克兰空军难以靠近。
+耶伦说，“美国和世界各地的盟友联手孤立俄罗斯，使得普京更难资助俄罗斯对乌克兰的侵略。俄罗斯银行系统80%的资产现在受到限制。俄罗斯正日益成为一个经济孤岛，”
 
-据悉，俄罗斯已经动用了约80%的陆军部队入侵乌克兰，但仍然无法取得明显的地面优势。为了取得战争主动权，双方下一步对制空权的争夺将更加激烈。
+她表示，“如果普京总统继续这种无端的入侵，拜登总统和我们在世界各地的盟友和伙伴将继续坚定履行我们的承诺，继续对俄罗斯施加严重后果，并让普京总统为他的非法和不道德的行为负责。”
 
-北约秘书长延斯·斯托尔滕贝格今天表态，北约不会向乌克兰提供战斗机。
+消息来源:
 
-但这并不等于乌克兰无法获得先进战斗机，在二战爆发美国未正式参战前，面对英国首相邱吉尔的援助请求，美国通过把作战飞机和舰艇运到加拿大边境等办法，绕过了相关国际禁令，援助盟国大批作战装备。
+[美国财长叶伦称将因乌克兰战争限制俄罗斯寡头的财富](https://cn.reuters.com/article/yellen-curbing-russian-oligarchs-0302-we-idCNKBS2L0036?il=0)
 
-由于乌克兰沦陷对北约的安全利益非常不利，北约将给予乌克兰所有的必要军援，包括保障乌军不丧失制空权。
-
-可以预计，来自世界各国的先进战机、防空系统和导弹防御系统、专门打击坦克战车可超低空飞行（躲开俄军防空导弹）无人机、更多的毒剌导弹等等军事援助，将通过各种渠道源源不断交付给乌克兰军队。
-
-从乌克兰空战可以看出，俄罗斯就是一只纸糊的熊，随着时间的推移，战争形势将朝着更加不利于俄军的方向发展，因为这是人心所向
-
-参考来源：
-
-[https://nationalinterest.org/blog/buzz/why-hasnt-russia-established-air-superiority-over-ukraine-200922](https://nationalinterest.org/blog/buzz/why-hasnt-russia-established-air-superiority-over-ukraine-200922)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

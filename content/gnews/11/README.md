@@ -2,28 +2,31 @@
 ---
 
 
-## 中日财经爆|国际评级机构继续下调俄罗斯主权信用评级
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2097659/)
+## 有声|泽连斯基控诉俄侵略军无差别攻击
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2097720/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-251.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=C5IxnRJIWnBzNM&amp;imgdii=3haYS9havfAi9M)
-俄罗斯上周军事入侵乌克兰后，遭到西方所未有的经济制裁，国际信用评级机构纷纷调降俄罗斯主权信用评级，根据事态发展，评级还存在进一步下调的可能。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+台媒报道，乌克兰总统泽连斯基2月27日控诉称，俄国侵略军正在行使无差别攻击，已初现大屠杀征兆。
 
-惠誉周三（3月2日）将俄罗斯的主权信用评级从“BBB”下调至“B”， 穆迪周四（3月3日）表示，已将俄罗斯的长期发行人和高级无担保债务评级从Baa3下调至B3，标普上周将俄罗斯的评级下调至“垃圾”级。
+泽连斯基在电视上表示，过去一个晚上，乌克兰街头再次发生激烈交战，俄国侵略军用导弹和火箭无情地轰炸完全没有军事设施的贫民住宅区和民生基础设施，甚至包括救护车和幼儿园。
 
-不出所料，俄乌两国的金融市场都因近几天的形势陷入动荡。这是自二战以来欧洲发生的最大规模的军事攻击，莫斯科也受到了西方的严厉制裁。
+泽连斯基先前就曾指控俄军在乌克兰犯下种种罪行已经显露出大屠杀的征兆，随意杀人并将和平的城市变成军事目标。他呼吁外国志愿者组成雇佣兵团，与乌克兰人民一起抵抗俄罗斯的侵略。
 
-惠誉表示，预计针对俄罗斯银行的制裁会进一步加码，这些制裁措施可能对俄罗斯的偿债能力产生影响，西方国家实施的制裁还将明显削弱俄罗斯的GDP增长潜力，低于该评级机构此前评估的1.6%，俄罗斯评级已经处于“负向观察名单”。
+文字版原文：[泽连斯基控诉俄侵略军无差别攻击](https://gnews.org/zh-hans/2091553/)
 
-穆迪说，这些评级仍在审查中，可能被进一步下调。
+音频处理：Fei797
+发稿：Fei797
 
-消息来源：[惠誉将俄罗斯主权评级下调至“B”](https://cn.reuters.com/article/ritch-russia-rating-0302-wedn-idCNKBS2L007E?il=0)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-[穆迪将俄罗斯债务评级从Baa3下调至B3](https://cn.reuters.com/article/moodys-russia-rating-0303-thur-idCNKBS2L006Y?il=0)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,25 +2,26 @@
 ---
 
 
-## 图文详解的HPay交易过程
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2097727/)
+## 俄罗斯入侵乌克兰以来俄军已超7000人阵亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2097861/)
 
-撰稿人：Microkevin
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-253.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimagizer.imageshack.com%2Fimg922%2F3702%2FPMC9hB.jpg&amp;imgrefurl=http%3A%2F%2Fenewstree.com%2Fdiscuz%2Fforum.php%3Fmod%3Dviewthread%26tid%3D293385&amp;tbnid=t2z2UbVznypqZM&amp;vet=12ahUKEwigiqHCiKn2AhXgg2MGHb-BCpMQMygDegUIARDCAQ..i&amp;docid=yPklfWIkiqYEBM&amp;w=650&amp;h=367&amp;q=%E4%BF%84%E7%BD%97%E6%96%AF%E9%98%B5%E4%BA%A1%E5%A3%AB%E5%85%B5&amp;ved=2ahUKEwigiqHCiKn2AhXgg2MGHb-BCpMQMygDegUIARDCAQ)
+路透乌克兰利沃夫3月2日——乌克兰总统泽连斯基的一名军事顾问周三表示，自俄罗斯入侵乌克兰以来，已有超过7,000名俄罗斯军人被杀，数百名俄罗斯军人被俘虏，其中包括一些高级军官。
 
-本文以作者个人的认知来理解用图文的方式详述七哥2月25日大直播以“草根银行”举例来讲述HPay交易过程，详细阐述为何使用HPay交易，既有私密性，又可以避税。
+顾问Oleksiy Arestovich称，一名受重伤的俄罗斯军队指挥官已被送往白俄罗斯。
 
-本文作者认知有限，对HPay及G系列全凭个人的理解，因此不代表任何机构和团体。
-视频来自GTV.org![](https://assets.gnews.org/wp-content/uploads/2022/03/image-252.png)如果图示文字部分不清楚，请放大浏览器观看
-首先，视频和配图所示是小Sarah和佳佳同学的一场买菜交易，双方利用HPay完成。
+俄罗斯为了掩盖军失利而开动宣传机器，据俄新社(RIA)报导，俄罗斯国防部周三称，自俄罗斯开始在乌克兰展开军事行动以来，已有498名俄罗斯士兵阵亡，另有1,597人受伤。这是俄罗斯第一次公布伤亡数字。
 
-小Sarah和佳佳同学都在喜联储开了账号，并过了KYC。喜联储也在“草根银行”开了账号，佳佳同学先将自己的法币打进喜联储在“草根银行”开的账号，也就是完成资金进入喜联储系统的过程。然后喜联储为佳佳充值相应的HDO。然后佳佳同学看好小Sarah手里的蔬菜（本文以蔬菜为例），两人谈好价格，佳佳同学使用HPay发送相应数额的HDO给小Sarah后，小Sarah将自己手里的蔬菜“送”或者是“借”给佳佳同学（注意这个是关键字的一定是送或借，对外人而言这个就是送的或者是借的）。
+前乌克兰官员萨姆利尼（Sergej Sumlenny）周二在推特转发俄罗斯电视台发布的消息，称俄罗斯大兵若出征阵亡，政府会给每人抚恤金1万1000卢布（约人民币720元），少得可怜。反观乌克兰国防部长列兹尼科夫（Oleksii Reznikov）今晨透过脸书招降，向俄军喊话“若投降就给500万卢布（约人民币24.7万），且不追究罪责”，“待遇”高下立判。
 
-当小Sarah进行体现HDO操作时，喜联储发出指令将存在“草根银行”的喜联储账上的法币发往小sarah进行提现操作时添加的银行卡，而喜联储账上的法币本是佳佳同学为充值HDO打进喜联储账号的。届时，小Sarah就收到了本属于佳佳同学的法币，而佳佳同学也收到和小Sarah“送”或“借”来的蔬菜，本次交易完成。
+消息来源：[俄罗斯入侵乌克兰以来已有逾7,000名俄罗斯军人阵亡 数百人被俘–乌官员](https://cn.reuters.com/article/russia-ukraine-0302-wedn-idCNKBS2L008F?il=0)
 
-本次交易只涉及交易双方，无关第三人，且不伤害他人，二人你情我愿，价格自定，喜联储也不会过问你们转HDO的缘由。因此，交易完全私密，且不受政府及第三方机构的干涉，并且对外人而言，这并不属于商品与法币的交易，因此可以不用补税。
+[俄军阵亡将士抚恤金720元人民币 乌方高额赏金劝降](https://gnews.org/zh-hans/2093884/)
 
-由此可见，使用HPay交易确实是免税，并私密的。只要交易双方不涉及违法犯罪，不违反普世价值和不伤害第三方，一切交易均可用HPay。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
