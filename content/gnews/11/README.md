@@ -2,20 +2,27 @@
 ---
 
 
-## 乌克兰发布截获俄罗斯入侵计划机密文件
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2099872/)
+## 美司法部终止调查中共间谍活动
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2099932/)
 
-撰稿：东京樱花团︱风翼
+**翻译**：**Lulumi**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip知识产权盗窃.png)图片来源：diamondandsilkinc.com
+如果我们要进一步证明美国司法部（DOJ）已经成为民主党共产党式的亲中伙伴关系的一个部门，那么只需看看司法部最近决定终止“中国倡议”就知道了。这是一项打击中共政权的经济间谍活动、贸易盗窃和技术转让的努力。据《日光邮报》报道，2022年2月23日，司法部宣布结束“中国倡议”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/乌克兰发布截获俄罗斯入侵计划机密文件.png)
+没错，这个针对中共国盗窃美国知识产权的计划已经被终止。该计划最初是由川普总统2018年发起的，其目的是应对中共利用间谍活动、欺诈和网络犯罪对美国产生的国家安全威胁。
 
-据乌克兰驻日大使馆3月3日午时在推特上发布的一则消息，乌克兰联合部队行动局宣布，乌克兰军方关于因俄罗斯黑海舰队的一支部队被消灭时发现并获得计划入侵乌克兰的机密文件。根据该文件显示，入侵计划1月18日获批准，并于20日开始实施。
+据大纪元报道，一些权利团体请求终止该计划，因为它严重吓坏了在美国大学工作的华裔。仅仅在几周前刚刚发布关于中共国知识产权盗窃行为的报告，司法部就做出了这一终止决定！现在很明显，拜登政权已经被收买了!
 
-这与郭文贵先生的大直播里关于中共和普京协商北京奥运会（2月4-20日）结束后入侵乌克兰的计划的消息不谋而合。在乌克兰驻日大使馆推特下面，也有很大一部分日本人持相同看法。这不得不让人产生危机感，随着对亚裔的仇恨犯罪率的增高，到真相渐渐被揭开时，仇恨和报复中国人的情况将愈演愈烈，因而，将中共和中国人区别开来，要让世界知道“中共不等于中国人”，减少无妄之灾的行动迫在眉睫。
+**新闻来源**：[diamondandsilkinc.com][DOJ Let’s China Off the Hook by Terminating Program Targeting Chinese Espionage](https://www.diamondandsilkinc.com/tabletalknews/diamond-and-silk-doj-lets-china-off-the-hook-by-terminating-program-targeting-chinese-espinoge-mnvj8)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

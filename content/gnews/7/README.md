@@ -2,26 +2,35 @@
 ---
 
 
-## 美司法部终止调查中共间谍活动
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2099932/)
+## 采访在乌克兰的俄罗斯士兵的母亲
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2099972/)
 
-**翻译**：**Lulumi**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip知识产权盗窃.png)图片来源：diamondandsilkinc.com
-如果我们要进一步证明美国司法部（DOJ）已经成为民主党共产党式的亲中伙伴关系的一个部门，那么只需看看司法部最近决定终止“中国倡议”就知道了。这是一项打击中共政权的经济间谍活动、贸易盗窃和技术转让的努力。据《日光邮报》报道，2022年2月23日，司法部宣布结束“中国倡议”。
+信息来源：德国T-online
 
-没错，这个针对中共国盗窃美国知识产权的计划已经被终止。该计划最初是由川普总统2018年发起的，其目的是应对中共利用间谍活动、欺诈和网络犯罪对美国产生的国家安全威胁。
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-据大纪元报道，一些权利团体请求终止该计划，因为它严重吓坏了在美国大学工作的华裔。仅仅在几周前刚刚发布关于中共国知识产权盗窃行为的报告，司法部就做出了这一终止决定！现在很明显，拜登政权已经被收买了!
+图片来源： 路透社
 
-**新闻来源**：[diamondandsilkinc.com][DOJ Let’s China Off the Hook by Terminating Program Targeting Chinese Espionage](https://www.diamondandsilkinc.com/tabletalknews/diamond-and-silk-doj-lets-china-off-the-hook-by-terminating-program-targeting-chinese-espinoge-mnvj8)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/angehoerige-einer-russischen-raketendivision-soldaten-der-invasionsarmee-in-der-ukraine-wurden-offenbar-mit-luegen-und-tricks-in-den-krieg-geschickt-.jpg)
 
-* * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+Vladimir Smirnov/imago
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
+《新报》是俄罗斯最后的独立媒体之一。该报采访了在乌克兰的俄罗斯士兵的母亲 – 报道令人震惊。
+
+俄罗斯入侵乌克兰军队的士兵显然是在压力和虚假借口下被说服部署的。这是俄罗斯独立报纸《新报》援引对士兵母亲的采访和文件报道的。
+
+例如，在俄罗斯东部阿穆尔地区服兵役的 23 岁的帕维尔的母亲讲述了她的故事。早在9月，就敦促士兵与军队签订为期两年的合同。任何拒绝的人都必须整天携带沉重的弹药箱。承诺的薪水从未支付，只有零用钱。 2 月初，帕维尔经过两周的火车旅行抵达白俄罗斯。
+
+俄罗斯导弹师的成员：乌克兰入侵军队的士兵显然是带着谎言和诡计被送上战场的。
+
+在那里的演习比宣布的更早结束，相反，他们被转移到更靠近乌克兰边境的地方。她的儿子在电话里非常担心，因为西方特工报告说战争应该在 48 小时后开始。都是谎言，她向她的儿子保证。
+
+许多关于乌克兰士兵装备简陋和迷失方向的报道最近在社交媒体上流传。 即使在入侵之前，士兵的供应情况据说也非常不稳定。 据乌克兰消息，截至周一，已有超过 5,300 名俄罗斯士兵在袭击中丧生。
+
+🔗 [采访在乌克兰的俄罗斯士兵的母亲](https://www.t-online.de/nachrichten/ausland/id_91747912/ukraine-krieg-eine-mutter-berichtet-so-geht-putin-mit-seinen-soldaten-um.html?utm_source=pocket-newtab-global-de-DE)
+
+编辑发布： Shuizhuyu
 
  
 

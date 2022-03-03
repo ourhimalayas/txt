@@ -2,12 +2,28 @@
 ---
 
 
-## 乌克兰哈尔科夫行政大楼被导弹攻击
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098881/)
+## 【秘翻北美时评】各国在俄乌战争中表明立场
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2098883/)
 
-02/28/2022 乌克兰哈尔科夫行政大楼被导弹攻击。
+**BY：[秘翻北美时评](https://gettr.com/post/pxvaf4fcf4)**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+***[2022-03-02](https://gettr.com/post/pxvaf4fcf4)***
+
+
+
+**今日主题：**
+
+**1 美国司法部启动对俄寡头的特别工作组**
+
+**2 各国在俄乌战争中表明立场**
+
+发布：陸柒陸捌
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+
+
+
 
  
 
