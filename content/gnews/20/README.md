@@ -2,25 +2,34 @@
 ---
 
 
-## 国际柔道联合会允许俄罗斯运动员参加比赛
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2098393/)
+## 视频|欧洲议会投票承认乌克兰“欧盟候选国地位”
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2098497/)
 
-2022-03-02
+制作：香草山视频部
 
-撰稿： 文舞两道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/HB3Q@U9Z@UR4CD10JRL.png)照片来源：[IJF ロシア選手大会参加認める プーチン名誉会長 職務一時停止](https://www3.nhk.or.jp/news/html/20220303/k10013511091000.html)
-由于俄罗斯对乌克兰的入侵，体育界的很多赛事开始抵制俄罗斯运动员参加比赛。国际柔道联合会（IJF）于3月2日宣布，将允许俄罗斯运动员参加比赛。
+当地时间3月1日，欧洲议会绝大多数议员投票赞成一项象征性的议案，以确立乌克兰的欧盟正式候选国资格。但乌真正加入欧盟尚需一定时日。
 
-IJF于3月2日在其官网发表声明称，“对所有俄罗斯运动员实施制裁的决定是不合理的”，并允许在不使用俄罗斯国旗或国歌的情况下参加IJF赛事。IJF 在声明中还说：“阻止运动员参加比赛的决定只会助长暴力行为，并助长运动员间的不公正。” IJF上月27日宣布，暂停了俄罗斯总统弗拉基米尔·普金(Vladimir Putin)的国际柔道联合会名誉主席的职务。
+此次投票是在27日欧盟委员会主席尔苏拉·冯德莱恩表态乌克兰必须加入欧盟，28日乌克兰总统泽连斯基火速提交加入欧盟的资格申请之后，做出的一项关于俄罗斯侵略乌克兰的动议，旨在支持乌克兰成为欧盟的正式候选国，以及对俄罗斯实施更严厉和更广泛的制裁等。
 
-消息来源：[IJF ロシア選手大会参加認める プーチン名誉会長 職務一時停止](https://www3.nhk.or.jp/news/html/20220303/k10013511091000.html)
+分析人士指出，欧盟议会接受了乌克兰加入欧盟的申请，正式启动相关程序。乌克兰还需要进行大量的国内立法和改革，以符合欧盟现有框架及标准。这个过程需要一定的时间。
 
-编辑：MQ
-发布：肥鯮
+投票的最终结果为：637票赞成，26票弃权，另外有13票反对票。表决之前，泽连斯基通过视频发表了慷慨感人的演讲，获得全体议员站立鼓掌。
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+以下视频展示了俄罗斯外长为侵略辩护遭与会者
+
+（请播放视频：00:42-2.26 [https://gettr.com/post/pxm0y9ab9c](https://gettr.com/post/pxm0y9ab9c) 视频时长：1’44”）
+
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

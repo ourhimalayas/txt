@@ -2,20 +2,46 @@
 ---
 
 
-## 声援乌克兰！双北市长表示：金钱、物资都愿意帮忙！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2098696/)
+## 乌克兰取得Starlink互联网终端可能成为俄罗斯的攻击目标
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2098739/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220303002947.jpg)图片来源：中时新闻网
-乌克兰与俄罗斯战争开打，蔡英文总统表示将与副总统赖清德、行政院长苏贞昌捐出一个月薪资所得，台北市长柯文哲、新北市长侯友宜今出席北环段CF680C区段标北机厂开工动土典礼分别表示，台北市府会紧急救难专户经费援助、无论是金钱或物资都愿意帮忙。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image008.jpg)
+据路透社**2**月**28**日报导** **，乌克兰周一表示已获得**SpaceX**捐赠的**Starlink**卫星互联网终端，但一位互联网安全专家警告称，这些终端可能成为俄罗斯的目标。**
 
-新闻来源：[中时新闻网](https://www.chinatimes.com/realtimenews/20220303002946-260407?ctrack=pc_main_recmd_p18&amp;chdtv)
+**这些终端看起来像是家用卫星电视天线，按照家用标准通过连接到低轨卫星群，能够提供相对较快的互联网服务。**
 
-撰稿/发布：一叶知秋
+**但多伦多大学**Citizen**** Lab**项目的高级研究员**John ****Scott-Railton**在推特上警告说，这些终端可能反而成为俄罗斯的目标。他以**15**条推文具体详述风险称：**”#**俄罗斯有几十年通过瞄准卫星通信来打击人们的经验。**”****
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+**马斯克周六表示**Starlink**在乌克兰可以使用，**SpaceX**正在向该国发送更多终端。由于俄罗斯的入侵，该国的互联网曾经中断。
+
+乌克兰已经赢得了全世界正义力量的支持。
+
+
+
+[【援引连结】](https://cn.reuters.com/article/ukraine-starlink-russia-strike-targets-0-idCNKBS2KY3E0)
+
+
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 
