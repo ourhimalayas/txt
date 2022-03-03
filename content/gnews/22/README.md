@@ -2,43 +2,39 @@
 ---
 
 
-## 北约、乌克兰与俄罗斯之三角关系
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2098836/)
+## 新西兰财经G乐部2022年3月3日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2098867/)
 
-作者：纽约香草山写作组 – 静言
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-北约，全称“北大西洋公约组织”，是1949年由12个国家组成的军事联盟，包括美国、加拿大、英国和法国等国家。成员国一致同意，在任何一个成员国受到武装攻击的时候，其他国家都要施以援手。其原本的目标，是要对抗二战后苏联向欧洲的扩张。
+采集整理：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-260.png)
+**1、油价升穿每桶110美元 市场料难以找到俄罗斯供应的替代品**
+![img](https://media.gettr.com/group46/origin/2022/03/03/01/b6960e85-79a0-8379-1b8d-f3442747177c/83285966551a1b165ed4222e3d341991_500x0.png)
+路透纽约3月2日 – 油价周三大涨，升穿每桶110美元，延续了自俄罗斯七天前入侵乌克兰以来的涨势，市场直到收盘一直在大涨，成交量巨大，全球指标布兰特原油创下2014年6月以来的最高收盘水平，美国原油创下2011年5月以来的最高收盘水平。油价涨势强劲，本周迄今，布兰特原油急升了15%以上，西方因俄罗斯入侵乌克兰对莫斯科采取了大量制裁措施，主要针对金融交易和银行，旨在打击俄罗斯经济。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/13-2.jpg)
+链接：[https://cn.reuters.com/article/oil-close-0302-wedn-idCNKBS2L001O?il=0](https://cn.reuters.com/article/oil-close-0302-wedn-idCNKBS2L001O?il=0)
 
-1955年，作为对北约成立的回应，苏联建立起与了东欧共产主义国家的军事联盟，名为华沙条约组织，即华约。
+**2、俄罗斯联邦储蓄银行退出欧洲，伦敦证交所股价暴跌 95%**
+![img](https://media.gettr.com/group15/origin/2022/03/03/01/445c7ab0-ac75-7486-54e7-58faf27d54ff/83bfd208c6406aebea360024e2da3eee_500x0.png)
+在俄罗斯联邦储蓄银行宣布退出欧洲市场后，该银行周三在伦敦证券交易所的股价暴跌95%，交易价格低至 1 美分。这家俄罗斯最大的银行表示，其欧洲子公司经历了“异常现金流”，并对其员工和财产的安全表示担忧。最近几天，美国、欧盟和英国加大了对俄罗斯机构的制裁力度，禁止主要银行进入 SWIFT 国际支付系统，并限制俄罗斯中央银行使用其超过 6000 亿美元的外汇储备的能力。
 
-1991年，华约与苏联几乎在同一时间解体。而根据德国最新曝光的一份文件，在苏联解体前的一次会议上，美英法德等西方国家承诺不会吸收原华约的东欧国家加入北约组织。但从1999年开始，陆续有东欧国家加入北约，北约如今已有30个成员国。
+链接： [https://www.cnbc.com/2022/03/02/russias-sberbank-collapses-95percent-on-london-exchange-as-it-exits-europe.html](https://www.cnbc.com/2022/03/02/russias-sberbank-collapses-95percent-on-london-exchange-as-it-exits-europe.html)
 
-乌克兰是前苏联加盟共和国之一，与俄罗斯及欧盟接壤。有大量人口属于俄罗斯民族，与俄罗斯有紧密的社会和文化联系。在战略上，克里姆林宫将之视为俄罗斯的后院。
+**3、《士兵突击》制片人被逮捕,还被浙文影业追讨2.64亿**
+![img](https://media.gettr.com/group34/origin/2022/03/03/02/9b98248c-8f2a-ce8e-8705-55402149816e/8f254c5aebb176dc34fadc2f07e4fac1_500x0.png)
+近日，A股上市公司浙文影业公告，子公司天意影视法定代表人吴毅，涉嫌职务侵占犯罪被公安机关刑事立案侦查。2月28日，吴毅被东阳市人民检察院批准逮捕。吴毅出生于1963年，现任天意影视董事长、总经理。他是业内知名的制片人，担任过《士兵突击》、《我的团长我的团》、《王大花的革命生涯》等热播剧的制片人。同时，浙文影业已正式向浙江省杭州市中级人民法院提交诉讼材料，向吴毅、新余上善若水（由吴毅实际控制）追讨业绩补偿款2.64亿元。
 
-乌克兰虽目前还不是北约成员国，但与北约关系越来越密切，是北约的“伙伴国”，这意味着未来可能被允许加入这个联盟。俄罗斯希望西方大国保证此事永远不会发生，但西方并未打算给予承诺。
+链接：[https://finance.sina.com.cn/stock/zqgd/2022-03-03/doc-imcwipih6274702.shtml](https://finance.sina.com.cn/stock/zqgd/2022-03-03/doc-imcwipih6274702.shtml)
 
-2022年2月，俄罗斯总统普京指责西方大国打破承诺，以捍卫俄罗安全为由，入侵乌克兰，北约及美欧各国领袖则在乌克兰问题上立场“完全一致”，为乌克兰提供了各种支援。
+**4、连续两年财务造假，\*ST新亿面临重大违法强制退市**
+![img](https://media.gettr.com/group7/origin/2022/03/03/02/d4a89ffa-75d3-05a4-a2af-672f4913d869/49fd9d9f52f56c52afc2e6cdb2c9b3cf_500x0.png)
+3月2日晚间，\*ST新亿发布公告称，近日已收到证监会行政处罚决定书。根据决定书认定的事实及公司2020年年度报告，\*ST新亿2018年、2019年年度报告存在虚假记载，追溯调整后，公司2018年-2020年连续三个会计年度营业收入低于1000万元。当晚，上交所向\*ST新亿火速下发监管工作函和拟终止上市事先告知书，公司股票自3月3日开盘起停牌。
 
-参考链接：
+链接： [https://finance.sina.com.cn/wm/2022-03-03/doc-imcwiwss3868772.shtml](https://finance.sina.com.cn/wm/2022-03-03/doc-imcwiwss3868772.shtml)
 
-- [乌克兰局势：北约东扩为何如此敏感？俄罗斯为何不惜一战？](http://乌克兰局势：北约东扩为何如此敏感？俄罗斯为何不惜一战？)
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
 
+上传排版：文勇
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
