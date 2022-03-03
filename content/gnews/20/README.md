@@ -2,46 +2,39 @@
 ---
 
 
-## 报道称中共国要求俄罗斯将与乌克兰的战争推迟到奥运会之后
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2101382/)
+## 美国战略部：必须遏制中俄核威胁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2101574/)
 
-***评论：** 中共国主席习近平与俄罗斯总统普京的亲密关系在奥运会开幕式上再次展示给世人，在联合国谴责俄罗斯入侵乌克兰的投票中投了弃权票，处处显示了中共国支持俄罗斯的入侵行动。*
+整理：围剿维尼熊
+编辑：Candy
 
-据《justthenews.com》作者：[Sophie Mann](https://justthenews.com/sophie-mann)，2022年3月2日报道：
+**【雅典娜快讯】，紧贴时代脉搏**
 
-弗拉基米尔-普京总统和习近平主席最近一次会晤是在北京奥运会开幕式之前。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-321-e1646336215837.png)图片来源：网络
-据报道，中共国高级官员上个月告诉俄罗斯高级官员，在北京冬奥会结束后再入侵乌克兰。
-
-据《纽约时报》报道，这一消息是基于一份西方情报报告，该报告表明中共国高级官员在一定程度上了解俄罗斯与乌克兰开战的意图。
-
-俄罗斯领导人弗拉基米尔-普京和中共国国家主席习近平在2月4日奥运会正式开始之前进行了会晤，不久之后发表了一份长篇声明，宣布两国的伙伴关系的广度“没有限制”，并谴责北约的任何进一步扩张。
-
-新闻媒体内部曾有猜测，入侵将在北京的国际运动会之后发生。
-
-奥运会闭幕式后的第二天，普京命令更多俄罗斯军队进入叛乱分子控制的乌克兰东部地区。仅仅四天后，俄罗斯军队就开始了对该国的全面入侵。
-
-自入侵以来，中共国官员表现出对俄罗斯的广泛支持，以及对北约所谓的努力的持续关注。中共国外交部指责美国使乌克兰和俄罗斯之间的紧张局势升级，导致了目前的情况，同样也批评了美国和欧洲国家对俄罗斯的制裁。
-
-文章观点仅代表作者个人，与Gnews平台无关
-
-原文连接：[https://justthenews.com/world/china-asked-russia-delay-war-ukraine-until-after-olympics-report](https://justthenews.com/world/china-asked-russia-delay-war-ukraine-until-after-olympics-report)
-
-翻译：洛杉矶盘古农场- TrueSky
-
-校对：洛杉矶盘古农场 – Mike Li
-
-评论：洛杉矶盘古农场 –傻小子
-
-编辑：洛杉矶盘古农场 –傻小子
-
-发布：洛杉矶盘古农场 –子萍
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/核威胁.png)图片来源：Shutterstock
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+根据大纪元2022年3月3日讯，美国战略司令部（U.S. Strategic Command）司令、海军上将查尔斯·理查德（Charles Richard）表示，美国必须具备同时防御俄罗斯和中共的核打击的能力，这已成为当务之急。
 
-[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
+他指出，虽然在去年4月，关于同时遏制中共和俄罗斯的必要性的问题，只是处于一个被主要关切的水平，但现在，这种令人担忧的情况“已经成为现实”。
+
+理查德说：“去年秋天，我正式向国防部长报告了中国（中共）的战略突破。它仅在2021年的扩张和现代化，就已令人感到惊讶。”
+
+2月4日，俄罗斯总普京（Vladimir Putin）和中共领导人习近平举行会晤后发表声明称，中共和俄罗斯对美国的威胁比以往任何时候都大，因为这两个邻国目前拥有“不受限制”的伙伴关系。
+
+据报导，去年夏天，中共试射了可携带核弹头的高超音速导弹，导致参谋长联席会议主席马克·米利（Mark Milley）惊呼，这次试验非常接近“斯普特尼克时刻”（Sputnik moment）。
+
+此外，有报导称，中共正在建造数百个新的核导弹发射井。
+
+参考链接：[海军上将：美国面临前所未有的中俄核威胁](https://www.epochtimes.com/gb/22/3/3/n13617568.htm)
+
+***发布：Candy***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

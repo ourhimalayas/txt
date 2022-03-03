@@ -2,37 +2,52 @@
 ---
 
 
-## 有声|韩国将从3月起停止中共病毒疫苗强制接种
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2101976/)
+## 国际社会的另一个选项：终止俄罗斯安全理事会常任理事国地位
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2102087/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-韩国政府于2月28日周一表示，由于中共病毒疫苗的有效性存疑，政府决定从3月开始停止政府此前推行的中共病毒疫苗强制接种政策以及相关的疫苗护照计划。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-01-%E4%B8%8B%E5%8D%8811.35.53.png)
-在中央灾害和安全对策会议上，政府宣布从3月1日周二起，将中共病毒疫苗通行证暂停使用，该通行证用途涵盖11种，包括餐馆、咖啡厅、大型活动和超过50人的集会。同时公共卫生中心、诊所和筛查诊所将停止签发中共病毒阴性证书，服务企业不再需要二维码验证程序。
+作者：纽约香草山农场 – 四季
 
-韩国政府最近因实施中共病毒疫苗强制面临一系列的诉讼，当地法院决定暂停疫苗通行证，韩国政府遂出此决定。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
 
-文字版原文：[韩国将从3月起停止中共病毒疫苗强制接种](https://gnews.org/zh-hans/2092082/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+
+据某媒体3月2日[报道](https://www.stvincenttimes.com/us-eyeing-ways-to-strip-russia-of-un-influence/)，美国副国务卿温迪·谢尔曼周三告诉美国立法者，华盛顿正在“调查驱逐作为安理会五个常任理事国之一的俄罗斯的前景”。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/621fe57585f54070337611b6.jpg)[图片来源](https://www.stvincenttimes.com/us-eyeing-ways-to-strip-russia-of-un-influence/)
+
+近日，联合国大会以压倒性的多数投票谴责俄罗斯上周入侵乌克兰并要求莫斯科立即无条件撤军。在安理会上周五的投票失败后，这一谴责是通过一项不具约束力的决议发出的，而俄罗斯作为安理会常任理事国使用其否决权阻止了决议。
+
+自乌克兰入侵开始以来，乌克兰政府已多次敦促联合国重新考虑俄罗斯在安理会的地位，认为俄罗斯在联合国安全理事会的存在显然是不合法的。英国政府对降低俄罗斯的联合国地位也持开放态度。英国首相鲍里斯·约翰逊的发言人周二说，他们希望看到俄罗斯在外交上被孤立，英国将考虑所有选项来实现这一目标。
+
+**原文阅读：**
+
+**[Push to end Moscow’s status as permanent Security Council member gains steam – St Vincent Times](https://www.stvincenttimes.com/us-eyeing-ways-to-strip-russia-of-un-influence/)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
+
+编辑/校对/发稿：小鹿
+
+
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

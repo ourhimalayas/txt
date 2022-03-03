@@ -2,39 +2,37 @@
 ---
 
 
-## 美国战略部：必须遏制中俄核威胁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2101574/)
+## 有声|星链终端目前已经抵达乌克兰
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2101790/)
 
-整理：围剿维尼熊
-编辑：Candy
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2月28日，据有关媒体报道，乌克兰已经收到了由SpaceX捐赠的星链卫星互联网终端。随后，乌克兰副总理兼数字化改造部部长米哈伊洛·费奥多罗夫也在社交媒体平台上向埃隆-马斯克表示了感谢。同时，费奥多罗夫还公布了一张装满终端设备的军用卡车的照片。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2.jpeg)
+报道提及，此前，乌克兰的互联网曾因俄罗斯的入侵而中断，而这些表面上看起来像家庭卫星电视天线的终端设备，可以通过接入低轨道上的一组卫星阵列向乌克兰民众提供相对快速的互联网服务。
 
-**【雅典娜快讯】，紧贴时代脉搏**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/核威胁.png)图片来源：Shutterstock
+然而，多伦多大学公民实验室项目的一位高级研究员也在社交媒体平台上提醒道，这些终端可能会成为俄罗斯攻击的目标。
 
 
-根据大纪元2022年3月3日讯，美国战略司令部（U.S. Strategic Command）司令、海军上将查尔斯·理查德（Charles Richard）表示，美国必须具备同时防御俄罗斯和中共的核打击的能力，这已成为当务之急。
 
-他指出，虽然在去年4月，关于同时遏制中共和俄罗斯的必要性的问题，只是处于一个被主要关切的水平，但现在，这种令人担忧的情况“已经成为现实”。
+文字版原文：[星链终端目前已经抵达乌克兰](https://gnews.org/zh-hans/2095450/)
 
-理查德说：“去年秋天，我正式向国防部长报告了中国（中共）的战略突破。它仅在2021年的扩张和现代化，就已令人感到惊讶。”
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-2月4日，俄罗斯总普京（Vladimir Putin）和中共领导人习近平举行会晤后发表声明称，中共和俄罗斯对美国的威胁比以往任何时候都大，因为这两个邻国目前拥有“不受限制”的伙伴关系。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-据报导，去年夏天，中共试射了可携带核弹头的高超音速导弹，导致参谋长联席会议主席马克·米利（Mark Milley）惊呼，这次试验非常接近“斯普特尼克时刻”（Sputnik moment）。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-此外，有报导称，中共正在建造数百个新的核导弹发射井。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-参考链接：[海军上将：美国面临前所未有的中俄核威胁](https://www.epochtimes.com/gb/22/3/3/n13617568.htm)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-***发布：Candy***
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

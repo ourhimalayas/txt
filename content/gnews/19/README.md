@@ -2,45 +2,41 @@
 ---
 
 
-## 随着制裁生效，俄罗斯 UBC 学生出现财务危机
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2101404/)
+## 中共谎报在乌撤侨人数
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2101662/)
 
-作者：CBC News
-翻译：HimaCoby
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ad-e1646343284534.png)
-不列颠哥伦比亚大学的一名国际学生表示，在对俄罗斯实施经济制裁的情况下，他也面临着不确定性。
+整理：围剿维尼熊
+编辑：Candy
 
-二年级学生 Artemi Meshcherin 说，他已经好几天无法从他在莫斯科的父母那里获得资金。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-“现在，我在经济上与家里隔绝，”他说。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/撤离.png)图片来源：网络图片
 
-随着该国对乌克兰的入侵愈演愈烈，加拿大和包括美国在内的其他国家对俄罗斯实施了实质性制裁，最引人注目的是切断了俄罗斯主要银行与世界其他地区的联系。
 
-Mescherin 说他不确定自己会被锁定多久。
+根据大纪元2022年3月3日讯，俄罗斯入侵乌克兰，在各国已陆续把侨民和留学生撤离战火之时，在乌克兰的华人惊然发现，姗姗来迟的中共首次撤侨，实际撤离人数与当局声称人数不符，不但中共官方承诺的协助撤离无法指望，而且自行逃离的在乌华人也被中共当局算在官方所称撤侨人数中。
 
-“不幸的是，许多俄罗斯人，包括在 UBC 和加拿大的俄罗斯学生，他们必须根据政府做出的决定而买单，”他说。
+中共驻乌克兰大使馆2月28日晚声称，已经组织首批400名中国留学生从乌克兰的奥德萨撤离；而且当天也将有二百多名中国留学生从乌克兰首都基辅撤离。
 
-“而且我们无法控制这一点。而且我认为说我们与现在正在发生的一切有某种关联是不公平的。”
+在3月1日乌克兰华人自行组建微信群中，官方数字立即受到一名仍在试图自行逃离乌克兰的华人质疑。他称：“看通知才知道官方说撤侨400人，其实就83人，因里边有我认识的三、四个人。”
 
-作为一名国际学生，他只能做兼职。他希望他在这里赚到的钱能让他暂时维持生计，但这还不足以支付学费，他说，与国内学生相比，国际学生的学费要高得多。
+另外一名在乌华人表示：“大使馆目前只是在登记状态，并没任何的撤侨包机，所以在网上所有你们看到的已经回国的飞机或者即将回国的飞机都是谣言。”
 
-根据 UBC 的说法，许多学生处于类似情况。该大学建议他们与大学官员交谈，并补充说，紧急助学金等支持已经到位。
+中国媒体报导说，由于乌克兰局势继续恶化，领空已关闭，所以包机撤离难度很大。但有留学生在微信群中表示，印度就是把其留学生先撤离到邻国，然后在那里再用包机运回国。
 
-Meshcherin 说，他正在应对不确定性带来的压力，但他指出，与他在校园里的乌克兰朋友所经历的相比，这相形见绌，因为​​他们的朋友和家人都处于直接危险之中。
+中共驻乌大使馆称，共有超过6000人次华人华侨登记，并声称大使馆已打电话逐一确认，保证所有人能通过不同管道及时撤走。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+但一位留学生说，给大使馆打电话根本就打不通，“同学说接到使馆通知到基辅红楼前集合，我们这里很多人都不知道……我们不理解，为什么撤侨不是全部通知，只是个别人能接到通知。”
 
-**关注我们**
+参考链接：[https://www.epochtimes.com/gb/22/3/3/n13617858.htm](https://www.epochtimes.com/gb/22/3/3/n13617858.htm)
 
-Discord 账号
+***发布：Candy***
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

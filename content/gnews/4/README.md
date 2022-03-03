@@ -2,52 +2,26 @@
 ---
 
 
-## 国际社会的另一个选项：终止俄罗斯安全理事会常任理事国地位
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2102087/)
+## 中共趁美国前国务卿蓬佩奥访台之际，作妖台湾大停电
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2102131/)
 
-作者：纽约香草山农场 – 四季
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
+台北时间3月3日台媒报道，全台上午9时左右无预警传出停电消息，范围包含台北、新北、苗栗、台中、台南、高雄等地。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/ezgif.com-gif-maker-3.jpg)图片来源TVBS
 
 
-据某媒体3月2日[报道](https://www.stvincenttimes.com/us-eyeing-ways-to-strip-russia-of-un-influence/)，美国副国务卿温迪·谢尔曼周三告诉美国立法者，华盛顿正在“调查驱逐作为安理会五个常任理事国之一的俄罗斯的前景”。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/621fe57585f54070337611b6.jpg)[图片来源](https://www.stvincenttimes.com/us-eyeing-ways-to-strip-russia-of-un-influence/)
-
-近日，联合国大会以压倒性的多数投票谴责俄罗斯上周入侵乌克兰并要求莫斯科立即无条件撤军。在安理会上周五的投票失败后，这一谴责是通过一项不具约束力的决议发出的，而俄罗斯作为安理会常任理事国使用其否决权阻止了决议。
-
-自乌克兰入侵开始以来，乌克兰政府已多次敦促联合国重新考虑俄罗斯在安理会的地位，认为俄罗斯在联合国安全理事会的存在显然是不合法的。英国政府对降低俄罗斯的联合国地位也持开放态度。英国首相鲍里斯·约翰逊的发言人周二说，他们希望看到俄罗斯在外交上被孤立，英国将考虑所有选项来实现这一目标。
-
-**原文阅读：**
-
-**[Push to end Moscow’s status as permanent Security Council member gains steam – St Vincent Times](https://www.stvincenttimes.com/us-eyeing-ways-to-strip-russia-of-un-influence/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
-
-编辑/校对/发稿：小鹿
+此次台湾停电时机十分蹊跷，美国前国务卿蓬佩奥先生刚于台北时间3月2日周三抵达台湾，随后几乎立即把台湾称为一个国家，这对北京来说是一条高度敏感的红线。他说：“我非常期待我的行程，与商界人士、政府人员和你们伟大国家（great nation）的各地人民会面。” 结果，蓬佩奥先生在见蔡英文总统的途中发生突如其来的大停电，虽然台湾总统府供电未受影响，但蔡英文总统上午接见蓬佩奥先生的网络直播则暂时取消。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/P6MLVQ4DQJJGRGBXXOYTP7R3C4.jpg)图片来源路透社
 
 
+美东时间3月3日，郭文贵先生于Gettr视频做出回应，台湾的大停电又一次震惊了世界，中共用大停电的手段就是要造成台湾的社会动乱。
 
-**更多资讯，更多关注**
+之前郭先生就曾向有关部门透露蓬佩奥先生的台湾之行可能会面临的困难，途中可能会有飞机故障，而且还会有无预警的停电。中共对台湾电力的控制已经做到为所欲为的地步，以后台湾的停电会成为常态，目的就是要让台湾社会引发矛盾和动乱。同时，中共对台湾的金融系统、科技系统不停地黑客攻击、盗取资料，中共一贯善于使用下三滥的手段，永远只会偷、蒙、拐、骗、黑、欺负弱的怕硬的，永远走的是见不得光的卑鄙之路。
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+这次停电影响了台湾的两个最大城市和最重要的iPhone处理器生产中心，对半导体指标性大厂台积电影响较大，台积电指出部分厂区受电力压降影响，历时约400至1,000多毫秒不等。
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+据了解，半导体厂区发生压降时，黄光区（如洁净室等区域要用钠灯照射，避免特定波长的光与硅片发生反应）有电压稳定装置，不会发生晶圆报废的情况，但薄膜、扩散、蚀刻区（晶圆）风险较大，该区域晶圆可能会全面报废。
 
  
 
