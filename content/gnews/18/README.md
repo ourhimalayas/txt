@@ -2,37 +2,30 @@
 ---
 
 
-## 英国首相约翰逊：普京犯有战争罪
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2098334/)
+## 视频|韩国著名演员李英爱向乌克兰捐赠1亿韩元
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2098506/)
 
-2022-03-02
+制作：香草山视频部
 
-编译**: **真北**007**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2I615Q7ON_SMTWA@C28.png)图片来源：[Boris Johnson: Vladimir Putin guilty of war crimes](https://www.politico.eu/article/boris-johnson-accuse-vladimir-putin-war-crime/)
-来自POLITICO EU  三月二日的新闻报道
+据韩国媒体3月1日报道，韩国著名女演员李英爱向被俄罗斯入侵的乌克兰捐赠了1亿韩元，用于人道救助。
 
-英国首相鲍里斯·约翰逊表示欢迎国际犯罪法庭决定调查针对乌克兰平民的袭击事件，并称俄罗斯总统普京在入侵乌克兰时犯下了战争罪。
+乌克兰驻韩大使特米特里·波诺玛林科，3月1日在推特上公开了李英爱给乌克兰人民捐赠的1亿韩元支票和一封信。
 
-在周三众议院的首相问答环节中，约翰逊告诉国会议员，已经发生了几起俄罗斯袭击乌克兰平民的事件，国际犯罪法庭 (ICC) 应将其作为潜在的战争罪进行调查。
+李英爱在信中写道，作为一位参与过战争的军人的家属，她比任何人都更能深刻地感受到战争的残酷。真心期盼乌克兰战争早日结束，迎来和平。希望乌克兰人民都能安然无恙，希望热爱和平和自由的乌克兰人民不要失去希望和勇气。
 
-约翰逊说：“在我看来，我们已经看到普京政权向无辜平民投掷炸弹，这已完全符合战争罪的条件，我知道国际刑事法院检察官已经在进行调查，我相信整个众议院都会支持这一点。”
+波诺玛林科大使提到，李英爱的来信和捐款让他非常感动，这笔捐款将用于因俄罗斯入侵而成为受害者的人民。
 
-自俄罗斯上周入侵乌克兰以来，人权和法律专家警告说，部署使用集束炸弹和温压武器（真空弹）进行袭击可能被用来在国际刑事法院对普京提起诉讼。
+发稿：Daxia
 
-首相的官方发言人告诉记者， “几乎每小时” 战争罪行都可能在乌克兰发生，包括俄罗斯对巴比亚尔基辅犹太人大屠杀纪念馆的袭击以及针对公寓的袭击。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-“显然，正式的裁决将由刑事法庭作出，但我认为没有人会怀疑我们每天、几乎每小时看到的都是可怕的行为，肯定会被视为战争罪，”发言人说。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-约翰逊比他周一发表的评论更近一步，当时他告诉记者，这位俄罗斯领导人可能面临战争罪审判，并且正在收集有关俄​​罗斯政权在乌克兰使用集束炸弹和温压武器的证据——根据日内瓦公约对平民使用这两种武器是非法的。
-
-原文链接：[Boris Johnson: Vladimir Putin guilty of war crimes](https://www.politico.eu/article/boris-johnson-accuse-vladimir-putin-war-crime/)
-
-编辑：MQ
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

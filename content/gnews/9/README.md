@@ -2,12 +2,20 @@
 ---
 
 
-## 中共在俄罗斯入侵乌克兰的核威胁和网络威胁中的角色
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098643/)
+## 声援乌克兰！双北市长表示：金钱、物资都愿意帮忙！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2098696/)
 
-02/28/2022 比尔·格茨: 习近平早在2012年就与乌克兰签署了一项协议，为乌克兰提供核保护伞。如果普京对乌克兰使用核武器，那么届时习近平将违反另一项国际协议。此外，中共国和俄罗斯对美国构成了巨大的网络威胁，但美国的网络能力也非常强大。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220303002947.jpg)图片来源：中时新闻网
+乌克兰与俄罗斯战争开打，蔡英文总统表示将与副总统赖清德、行政院长苏贞昌捐出一个月薪资所得，台北市长柯文哲、新北市长侯友宜今出席北环段CF680C区段标北机厂开工动土典礼分别表示，台北市府会紧急救难专户经费援助、无论是金钱或物资都愿意帮忙。
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+新闻来源：[中时新闻网](https://www.chinatimes.com/realtimenews/20220303002946-260407?ctrack=pc_main_recmd_p18&amp;chdtv)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

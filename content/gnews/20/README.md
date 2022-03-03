@@ -2,24 +2,25 @@
 ---
 
 
-## 秘翻在线：莫斯科警察逮捕向乌克兰大使馆献花的儿童
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2098137/)
+## 国际柔道联合会允许俄罗斯运动员参加比赛
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2098393/)
 
-撰稿：文贺JP
-![](https://assets.gnews.org/wp-content/uploads/2022/03/画像1.jpg)图：莫斯科警察逮捕献花少女画面
-图片来源：本文链接
-（据3月3日卫报披露）社交媒体上出现的视频显示，一群儿童在抗议俄罗斯入侵乌克兰后被莫斯科警方拘留。在亚历山德拉·阿尔希波娃（Alexandra Arkhipova）在 Facebook 上发布的一段视频中，可以看到一名年轻女孩在监狱里握着一名女子的手，泪流满面。
+2022-03-02
 
-俄罗斯各地城市的数千人无视警察的威胁，举行抗议入侵乌克兰的活动。
+撰稿： 文舞两道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/HB3Q@U9Z@UR4CD10JRL.png)照片来源：[IJF ロシア選手大会参加認める プーチン名誉会長 職務一時停止](https://www3.nhk.or.jp/news/html/20220303/k10013511091000.html)
+由于俄罗斯对乌克兰的入侵，体育界的很多赛事开始抵制俄罗斯运动员参加比赛。国际柔道联合会（IJF）于3月2日宣布，将允许俄罗斯运动员参加比赛。
 
-观点：精英主义和独裁体制正在被瓦解，平民主义的时代已经到来，全世界、大觉醒!!!
+IJF于3月2日在其官网发表声明称，“对所有俄罗斯运动员实施制裁的决定是不合理的”，并允许在不使用俄罗斯国旗或国歌的情况下参加IJF赛事。IJF 在声明中还说：“阻止运动员参加比赛的决定只会助长暴力行为，并助长运动员间的不公正。” IJF上月27日宣布，暂停了俄罗斯总统弗拉基米尔·普金(Vladimir Putin)的国际柔道联合会名誉主席的职务。
 
-新中国联邦捍卫世界正义和平，为百姓发声！
+消息来源：[IJF ロシア選手大会参加認める プーチン名誉会長 職務一時停止](https://www3.nhk.or.jp/news/html/20220303/k10013511091000.html)
 
-信息来源：[https://www.theguardian.com/world/live/2022/mar/02/ukraine-news-russia-war-kyiv-kharkiv-russian-invasion-vladimir-putin-joe-biden-latest-live-updates](https://www.theguardian.com/world/live/2022/mar/02/ukraine-news-russia-war-kyiv-kharkiv-russian-invasion-vladimir-putin-joe-biden-latest-live-updates)
+编辑：MQ
+发布：肥鯮
 
-责编：Eric Kim
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
