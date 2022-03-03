@@ -2,19 +2,20 @@
 ---
 
 
-## 中共国3月3日24时油价上调成定局 92号汽油或破8元
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2099017/)
+## 俄乌战争｜ 土耳其无人机运抵乌克兰 料军援陆续有来
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2099097/)
 
-撰稿—水滴石穿
-校对/上传—无明逆流
+**撰文/ 港台前线｜发布日期/ 03/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/土耳其無人機運抵烏克蘭-料軍援陸續有來.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-墙内时间3月2日，国际原油价格延续涨势。按照当前国际油价屡次破百美元的表现，本轮成品油调价可能会延续上调呈“5连涨”的格局。油价调整时间为：2022年3月3日24时， 这轮油价调整后国内各地的92号汽油零售价也将顺势进入“8元大关”。
+乌克兰防长列兹尼科夫（Oleksiy Reznikov）周三（2日）证实，土耳其制TB2型攻击无人机已运抵乌克兰并投入对俄作战，不仅如此，他还透露，西方国家早前承诺提供的导弹及更多的土耳其无人机会陆续有来。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/screenshoteasy.png)图片来源：原新闻
+这是土耳其自答允乌克兰要求，封锁黑海连结地中海的博斯普鲁斯海峡（Bosphorus）之后，再一次高调支持乌克兰，提供无人机军援，相信此举会对土俄关系造成负面影响。
 
-对此我的分析是：中共在垂死挣扎，墙内的经济持续萧条，乌俄战争在为石油价格的节节攀升又重重的推动了一把，如此昂贵的油价，是中共当局盘剥的结果，独裁的定价权在手上，想怎么割韭菜就怎么割，高油价不断地推高墙内的各种成本，而此时的地方政府财政也陷入赤字不断扩大的境地，共匪的流氓经济走到头了。
+据悉，乌克兰开战前有6架同型无人机，并由去年起用作攻击乌东分离分子，当时透过土耳其配套的精准弹药取得了巨大战果。
 
-文章来源：[3月3日24时油价上调成定局 92号汽油或破8元](https://auto.sina.com.cn/news/2022-03-02/detail-imcwipih6164509.shtml?cre=tianyi&amp;mod=pchp&amp;loc=29&amp;r=0&amp;rfunc=59&amp;tj=cxvertical_pc_hp&amp;tr=181)
+来源｜[路透社](https://www.reuters.com/world/europe/ukraine-receive-more-missiles-turkish-drones-minister-says-2022-03-02/)
 
  
 

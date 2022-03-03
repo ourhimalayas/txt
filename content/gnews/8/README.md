@@ -2,21 +2,23 @@
 ---
 
 
-## 美国公民参加乌克兰的反俄斗争
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2098940/)
+## 德国将向乌克兰运送防空导弹
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2099072/)
 
-翻译：金陵小生
-编辑发稿：am夏天
-德国纽伦堡正义农场
+#### 撰稿：JIHO
 
-新闻来源：https://www.foxnews.com/us/american-citzen-joins-ukraines-fight-russia
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/strela2m1-2.jpg)图片来源：missilery
+据德国之声 (Deutsche Welle)的报道，德国经济部的消息人士称柏林已批准向乌克兰运送 2700 枚苏联时代的“Strela”导弹，但政府并没有立即证实这一消息。消息人士告诉路透社，这些导弹已经 “准备好被运输”，但联邦安全委员会尚未批准这一行动。
 
-内容翻译精选：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-261.png)保罗曾是第101空降师的一名伞兵，多次被派往伊拉克，保罗很快报名参加了（照片经许可使用）
-陷入困境的乌克兰总统沃洛季米尔-泽伦斯基呼吁 “乌克兰的每一位朋友””加入到保卫乌克兰、欧洲和世界的行列中来”。乌克兰组建了一个外国战士军团，帮助保卫这个东欧国家免受俄罗斯入侵。泽伦斯基说，乌克兰已经收到了希望加入国防军的人的 “数千份请求”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-262.png)（照片经许可使用）
-来自德克萨斯州的美国公民保罗很快就报了名。他曾是第101空降师的一名伞兵，多次被派往伊拉克。 一年多前，他搬到了乌克兰，是越来越多的外国人中的一员，志愿保卫国家，对抗俄罗斯军队。当被问及为何为外国而战时，保罗毫不犹豫地回答。”我认为在这场危机中帮助乌克兰人民是我的道德义务”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
+这些武器将来自曾经由苏联监管控制的东德仓库，该仓库在 1989 年柏林墙倒塌后与西德重新统一。
+
+上周末，德国政府决定向乌克兰提供 500 枚美制地对空毒刺导弹和 1000 件反坦克武器。
+
+在俄上周四发动攻势之前，德国拒绝向乌克兰运送武器。但在袭击发生后总理奥拉夫·舒尔茨（Olaf Scholz）说：“在这种情况下，我们有责任尽我们所能，支持乌克兰防御普京军队的入侵。” 根据舒尔茨的说法，此举标志着“一个历史性的转变”。
+
+新闻来源：[Germany to ship anti-aircraft missiles to Ukraine — reports](https://www.dw.com/en/germany-to-ship-anti-aircraft-missiles-to-ukraine-reports/a-60995325)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

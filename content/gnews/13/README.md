@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯禁飞36国航班来回击西方的严厉制裁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098838/)
+## 乌克兰哈尔科夫行政大楼被导弹攻击
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098881/)
 
-02/28/2022 俄罗斯禁飞36国的航班来回击西方的严厉制裁；由于制裁，俄罗斯外交部长不得不取消他的联合国人权理事会之行。
+02/28/2022 乌克兰哈尔科夫行政大楼被导弹攻击。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

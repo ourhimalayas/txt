@@ -2,24 +2,40 @@
 ---
 
 
-## 奥密克戎衍生病毒BA.2在日本流行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2098715/)
+## 韩国著名演员李英爱向乌克兰捐赠1亿韩元
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2098848/)
 
-撰稿：东京樱花团/立正道
+作者：首尔天池农场 – 追着曙光跑
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据韩国媒体3月1日报道，韩国著名女演员李英爱向被俄罗斯入侵的乌克兰捐赠了1亿韩元，用于人道救助。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/奥密克戎衍生病毒BA.2在日本流行.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.news-medical.net%2Fimages%2Fnews%2FImageForNews_705615_4461992039802088480.jpg&amp;imgrefurl=https%3A%2F%2Fwww.news-medical.net%2Fnews%2F20220227%2FWill-Omicron-BA2-become-the-next-dominant-variant.aspx&amp;tbnid=lzYPOJafYqVtNM&amp;vet=12ahUKEwin57iNrKn2AhU-YmwGHTPtBsEQMygAegUIARCLAQ..i&amp;docid=rpD8f08TZoR6eM&amp;w=1200&amp;h=800&amp;itg=1&amp;q=BA.2&amp;ved=2ahUKEwin57iNrKn2AhU-YmwGHTPtBsEQMygAegUIARCLAQ)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-7.png)
 
-日本医师会(日医)的中川俊男会长在2日的记者招待会上表示，国内中共病毒（新冠病毒Covid-19）的感染情况“虽然有减少趋势，但并没有急剧减少”，这可能是奥密克戎株的衍生型BA.2具有强烈的感染力，引起感染扩大的原因，指出“新感染人数可能会增加”。
+乌克兰驻韩大使特米特里·波诺玛林科，3月1日在推特上公开了李英爱给乌克兰人民捐赠的1亿韩元支票和一封信。
 
-中川先生关于31个都道府省适用的防止蔓延等重点措施的效果称“我认为有一定的效果。(感染者数)接近高停状态，但如果没有(重点措施)的话，感染人数也许会增加更多。”另外，在海外出现了对中共病毒对策的放宽管制的举动，他表示“日本也应该根据感染状况和疫苗接种率等，做出缓和限制的判断”。另一方面，他又补充说，“现在的感染情况，没有必要大幅缓和各种限制。”
+李英爱在信中写道，作为一位参与过战争的军人的家属，她比任何人都更能深刻地感受到战争的残酷。真心期盼乌克兰战争早日结束，迎来和平。希望乌克兰人民都能安然无恙，希望热爱和平和自由的乌克兰人民不要失去希望和勇气。
 
-消息来源：
+波诺玛林科大使提到，李英爱的来信和捐款让他非常感动，这笔捐款将用于因俄罗斯入侵而成为受害者的人民。
 
-[ＢＡ・２拡大で「増加に転じる可能性も」　日医会長](https://news.yahoo.co.jp/articles/963870fbeee2b1a796a46669e8357496291a5652)
+参考链接：
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+- [이영애, 우크라이나에 1억 원 기부…“전쟁 멈추고 평화 정착되길”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5406466)
+- [https://twitter.com/dp\_ua1972/status/1498512486722531332?s=21](https://twitter.com/dp_ua1972/status/1498512486722531332?s=21)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

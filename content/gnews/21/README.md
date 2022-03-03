@@ -2,34 +2,24 @@
 ---
 
 
-## 视频|欧洲议会投票承认乌克兰“欧盟候选国地位”
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2098497/)
+## 奥密克戎衍生病毒BA.2在日本流行
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2098715/)
 
-制作：香草山视频部
+撰稿：东京樱花团/立正道
 
-当地时间3月1日，欧洲议会绝大多数议员投票赞成一项象征性的议案，以确立乌克兰的欧盟正式候选国资格。但乌真正加入欧盟尚需一定时日。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/奥密克戎衍生病毒BA.2在日本流行.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.news-medical.net%2Fimages%2Fnews%2FImageForNews_705615_4461992039802088480.jpg&amp;imgrefurl=https%3A%2F%2Fwww.news-medical.net%2Fnews%2F20220227%2FWill-Omicron-BA2-become-the-next-dominant-variant.aspx&amp;tbnid=lzYPOJafYqVtNM&amp;vet=12ahUKEwin57iNrKn2AhU-YmwGHTPtBsEQMygAegUIARCLAQ..i&amp;docid=rpD8f08TZoR6eM&amp;w=1200&amp;h=800&amp;itg=1&amp;q=BA.2&amp;ved=2ahUKEwin57iNrKn2AhU-YmwGHTPtBsEQMygAegUIARCLAQ)
 
-此次投票是在27日欧盟委员会主席尔苏拉·冯德莱恩表态乌克兰必须加入欧盟，28日乌克兰总统泽连斯基火速提交加入欧盟的资格申请之后，做出的一项关于俄罗斯侵略乌克兰的动议，旨在支持乌克兰成为欧盟的正式候选国，以及对俄罗斯实施更严厉和更广泛的制裁等。
+日本医师会(日医)的中川俊男会长在2日的记者招待会上表示，国内中共病毒（新冠病毒Covid-19）的感染情况“虽然有减少趋势，但并没有急剧减少”，这可能是奥密克戎株的衍生型BA.2具有强烈的感染力，引起感染扩大的原因，指出“新感染人数可能会增加”。
 
-分析人士指出，欧盟议会接受了乌克兰加入欧盟的申请，正式启动相关程序。乌克兰还需要进行大量的国内立法和改革，以符合欧盟现有框架及标准。这个过程需要一定的时间。
+中川先生关于31个都道府省适用的防止蔓延等重点措施的效果称“我认为有一定的效果。(感染者数)接近高停状态，但如果没有(重点措施)的话，感染人数也许会增加更多。”另外，在海外出现了对中共病毒对策的放宽管制的举动，他表示“日本也应该根据感染状况和疫苗接种率等，做出缓和限制的判断”。另一方面，他又补充说，“现在的感染情况，没有必要大幅缓和各种限制。”
 
-投票的最终结果为：637票赞成，26票弃权，另外有13票反对票。表决之前，泽连斯基通过视频发表了慷慨感人的演讲，获得全体议员站立鼓掌。
+消息来源：
 
-以下视频展示了俄罗斯外长为侵略辩护遭与会者
+[ＢＡ・２拡大で「増加に転じる可能性も」　日医会長](https://news.yahoo.co.jp/articles/963870fbeee2b1a796a46669e8357496291a5652)
 
-（请播放视频：00:42-2.26 [https://gettr.com/post/pxm0y9ab9c](https://gettr.com/post/pxm0y9ab9c) 视频时长：1’44”）
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
