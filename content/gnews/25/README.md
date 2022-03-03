@@ -2,10 +2,10 @@
 ---
 
 
-## 共产主义中国是美国和世界面临的唯一最重要的生存威胁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098843/)
+## 乌克兰哈尔科夫行政大楼被导弹攻击
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098881/)
 
-02/28/2022 皮特·纳瓦罗：共产主义中国是美国和世界面临的唯一最重要的生存威胁
+02/28/2022 乌克兰哈尔科夫行政大楼被导弹攻击。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

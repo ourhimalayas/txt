@@ -2,51 +2,64 @@
 ---
 
 
-## 总统蔡英文给蓬佩奥颁奖增强台美联系
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2099175/)
+## 对比和伤害
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2099339/)
 
-翻译：peacelv
+作者：香草山教育部蓝之灵（Hortensia)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+没有对比就没有伤害
+没有伤害就不会醒来
+总是要付出血的代价
+才会在
+铁幕沉沉心田
+开出一丝缝隙
+让光
+透进来
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-269.png)**总统蔡英文（右）和美国前国务卿迈克-蓬佩奥（左）。中新社照片 2022年3月3日**
+被谎言笼罩世界
+欺骗总是家常便饭
+人与人之间信任
+就是这样被毁坏
+爱
+离开
+越来越远
+留下的
+是荒漠与干寒
 
-台北，3月3日（中新社）总统蔡英文周四向来访的美国前国务卿蓬佩奥授予特别荣誉，以表彰他在任期内为促进华盛顿和台北之间的关系所做的贡献。
+还不醒来
+还不醒来
+没有了毒食品
+没有饱腹感
+习惯了谎言
+不敢信
+唯真不破世界
 
-在仪式上，曾在前总统唐纳德-特朗普手下担任本国最高外交官的蓬佩奥被授予特别大绶带辉煌之星勋章，因为蔡英文称他是台湾的亲密朋友，同时代表台湾人民表示深切感谢。
+还不醒来
+还不醒来
+炮灰纷飞土地上
+请看见爱与关怀
+打开心田
+让光进来
+唯真不破世界
+就在身边
+醒来，醒来
+让光进来
+新中国联邦救援
+就在身边
 
-在她的讲话中，蔡英文赞扬了蓬佩奥在其任期内取消美国国务院对美国官员与台湾同行因没有官方关系而进行互动的限制，以及为美国高级官员访问台湾提供便利的开创性措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4.jpg)
 
-由于他对台湾的重复和公共支持，蓬佩奥已经在这个国家赢得了很高的欢迎，根据蔡的说法。
+审核/编辑/发稿:qiutian（邱甜）
 
-接到这项荣誉后，蓬佩奥感谢蔡和台湾人民，他说他认识的台湾人民是“高尚的，有爱心的，需要自由的人民。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-作为对蔡英文对他结束两国外交官交流限制决定的赞扬的回应，蓬佩奥说这是一个“简单，正确和合理”的决定。
-
-蓬佩奥说，取消这些限制的决定不是党派或政治性的，而是代表了 “美国的承诺”，他补充说，这符合他的国家的最佳利益，也有利于确保和发展美国和台湾之间的友谊。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-273.png)**蔡英文总统向美国前国务院卿迈克-蓬佩奥颁发特别大绶带辉煌之星勋章。中新社照片 2022年3月3日**
-
-关于俄罗斯对乌克兰的持续入侵，蓬佩奥说，”如果我们中的任何一个人对这种自由所面临的风险感到错误或自满，我想我们只需要观察今天在欧洲发生的事情。”
-
-“的确，对这些事情一走了之，表明没有决心，那些渴望破坏自由以改变人类生活的人，会听到安静或没有直接语言……承认人类条件的基本现实，视为他们的机会，”他补充说。
-
-“我相信你不会允许这种情况在你的眼皮底下发生，而且我向你保证美国人民与你一起努力。”蓬佩奥告诉蔡。
-
-蓬佩奥在星期三稍晚时候到达台湾，由他的妻子苏珊蓬佩奥和他中国政策上的前顾问余荗春和其它九个人陪同。
-
-在他的四天访问中，预计3月５日蓬佩奥和他的妻子将会和高级政府官员和商人见面，在星期四他发表一个由政府下属的展望基金会组织的演讲。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-271.png)**蓬佩奥和蔡英文（中新社）**
-
-**点评：美台之间的官方和非官方联系都将触动中共国敏感的神经，由于蓬佩奥的访台，中共国还同时发动了对台湾的网络战。**
-
-素材链接：[focustaiwan.tw][President Tsai awards medal to Pompeo for enhancing Taiwan-U.S. ties](https://focustaiwan.tw/politics/202203030008)
-
-* * *
-
-*审核：Bryan 
-校对: 五通庙
-发稿: Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
