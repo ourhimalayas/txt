@@ -2,10 +2,16 @@
 ---
 
 
-## 3/2/2022 文贵直播：正道主义必须包含信仰，它的核心是什么？平民运动是必要的，但其局限在哪儿？资本主义出了什么问题？
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2101278/)
+## 五月花简报（03/03/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2101365/)
 
-秘密翻译组-北美组
+编辑：波士顿五月花—冲天一怒
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/75127BB1-515B-4ECE-861E-58ACE3204243.jpeg)
+
+*发布：思澈*
+
+
 
  
 

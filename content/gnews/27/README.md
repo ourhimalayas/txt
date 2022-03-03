@@ -2,24 +2,37 @@
 ---
 
 
-## 新中国联邦乌克兰救援行动初获胜果
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2100725/)
+## 有声|普京催习抓紧行动 新中国联邦抓紧救援
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2100843/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月2日，郭文贵先生发布盖特视频称，他得到的情报显示，习近平对台湾迟迟没有任何表示，让普京非常愤怒。普京直接打电话质问习是否还有信用，意在催促习抓紧侵略台湾。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/14-2.png)
+另外，郭先生还得到情报称，3月1日，中共内部发布紧急通知，要求驻各国大使馆做好海外学生和侨领的联络及宣传控制工作，并针对俄乌战争事态，派驻了新的所谓安全信息官员。
 
-采编/编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-304.png)图片来源：GTV 
-据3月2日GTV文贵大直播消息，本次由新中国联邦主导参与的“乌克兰国际人道救援行动”捷报频传，不仅向世界展示了爆料革命强大的执行力和国际影响力，更体现出新中国联邦人在果敢行动中实现“灭共是正义需要”的宗旨。
+郭先生警告中共高层，中共国很多大使馆人员在敛财卷款以后，利用特殊权力逃亡他国，还有很多大使馆人员，被新中国联邦救出来，再也不会回到墙内。新中国联邦将用救人行动的实际结果，向世界表明到底是谁真正热爱中国人。
 
-据悉，新中国联邦目前已成功在乌克兰战火中救出了至少四位爆料革命资深战友及其家人和朋友，并已全部安全抵达波兰。
 
-同时，喜马拉雅联盟委员会负责人大卫和老班长及相关战友团队都已准备就绪飞赴乌克兰和波兰，并计划在匈牙利、罗马尼亚建立营救基地。
 
-此外，新中国联邦与联合国救援组织将与当地国军方合作，全力营救被困华人，整个救援过程不需要提供任何个人信息。在成功进入波兰后，将直接入驻联合国指定酒店，享受30天免费食宿。最后，按被救助者个人意愿，提供免费航班飞往指定的安全国家。
+文字版原文：[普京催习抓紧行动 新中国联邦抓紧救援](https://gnews.org/zh-hans/2098835/)
 
-发稿：青青
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-消息来源：https://gtv.org/video/id=621f6ab7019ef64da653b4fe
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

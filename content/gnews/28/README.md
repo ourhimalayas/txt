@@ -2,24 +2,37 @@
 ---
 
 
-## 俄军侵略乌克兰加速俄罗斯闭关锁国
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2100454/)
+## 有声|中俄暧昧关系遭美方谴责
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2100822/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月28日，白宫印太事务协调官库尔特‧坎贝尔表示，在俄罗斯侵略乌克兰战争中，中俄之间的暧昧关系，以及公开和深入的联系，令人很不舒服。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-3-scaled.jpg)
+俄罗斯入侵乌克兰，被国际视为二战以来对欧洲国家的最大侵略，世界各国纷纷表示谴责，并实施各种制裁。中共不仅没有任何谴责，反而在联合国就一项谴责俄罗斯入侵的议案表决中，投了弃权票。在北京冬奥期间，中俄还签署了一份联合声明，宣称两国建立了无间的战略合作关系，同时，中共也是俄罗斯的最大贸易伙伴。
 
-采编/编辑撰稿： 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-296.png)图片来源：https://thepostmillennial.com/
-据加拿大媒体【后千禧年】3月1日报道，除了基本运输和邮递行业以外，包括苹果和福特等越来越多的国际大型企业开始加入到断绝与俄罗斯商业合作的行列。
+此前，美国总统拜登于2月24日，虽没有直接点名中共，但严正警告：任何支持俄罗斯对乌克兰侵略的国家，都将身败名裂。
 
-报道称，为反抗俄罗斯侵略乌克兰，许多国家目前已禁止俄罗斯飞机进入其领空。同时，欧美及其盟国也已对俄罗斯及普京实施了严厉经济制裁，惩罚性的多米诺骨牌效应也将逐渐显现。
 
-据悉，英国石油巨头BP和壳牌都停止了与俄罗斯的贸易。联邦快递和UPS也警告称，将无法保证提供其在战乱地区的服务。国际集装箱运输行业的顶级公司，马士基和MSC日前都取消了往返俄罗斯的货运订单。苹果公司不仅暂停了在俄罗斯所有产品的销售，而且还封禁了乌克兰的地图信息，以保护当地居民的安全。
 
-校对编辑：硫酸羟氯喹64
+文字版原文：[中俄暧昧关系遭美方谴责](https://gnews.org/zh-hans/2098839/)
 
-发稿：青青
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-原文链接： [Growing list of companies cut ties with Russia over Ukraine invasion | The Post Millennial](https://thepostmillennial.com/growing-list-of-companies-cut-ties-with-russia-over-ukraine-invasion)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
