@@ -2,27 +2,23 @@
 ---
 
 
-## 使用日内瓦公约禁用武器 普京疑涉战争罪
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2100034/)
+## 美访台特使称 将坚决维护台海和平承诺
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2100038/)
 
-作者：纽约香草山农场-文鹰/ Naughty(文行)
+作者：台湾宝岛农场-dobi
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月1日，据盖特平台消息显示，乌克兰驻美国大使马卡洛娃指控俄罗斯军队在空袭乌克兰时，使用了“真空弹”武器。此外，国际特赦组织也在一份声明中指出，俄罗斯使用集束炸弹摧毁了乌克兰的一所收容平民幼儿园，造成包括儿童在内的三人死亡。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-03-上午8.43.48.png)
-资料表明，“真空弹”是一种热压武器，其可在半空中爆炸并释放大量热能和超音速震波，同时迅速消耗尽该区域内的所有氧气，其高温足以蒸发人体，被称为仅次于核弹的武器；至于集束炸弹则是在弹体中装入多至数百个子炸弹，用以对目标进行地毯式轰炸，极易误伤平民。值得注意的是，这两种炸弹都是被日内瓦公约明令禁止的“大规模杀伤性武器”。
+当地时间3月2日，据相关媒体报道，由美国前参谋首长联席会议主席穆伦带领的访台团队当天会见了台湾总统蔡英文。会上，美方代表团指出，美国将坚定地以符合台湾人民意愿和最佳利益的方式，和平地解决台海两岸正在面临的各项议题。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-03-上午8.44.01.png)
+此外，蔡英文总统也在致辞时表示，在全球密切关注乌克兰情势之际，拜登总统派遣代表团访问台湾的做法凸显了台湾在国际及区域安全上的重要性，也体现出台美双方的牢固的关系。同时，作为国际社会的一员，台湾严厉谴责任何侵略行为，并将继续参与到对俄罗斯实施经济制裁的国际行动中。
 
-对此，英国政府警告称，普京和莫斯科的指挥官或将因这种违反战争法的行为而面临起诉。海牙国际刑事法院ICC检察官办公室则表示，将寻求法院批准，对普京在乌克兰犯下的危害人类罪以及战争罪展开调查。
+在台美双方的会面中，二者也提到了当前中共对台海以及附近区域的军事威胁正在逐渐升级。为此，台湾也提到，美国政府正在依据《台湾关系法》以及“六项保证”履行对台湾的安全承诺，包括近期先后批准的两项对台军售案，以及多次美国代表团的访台行动。
 
-参考链接：
-1）[https://gettr.com/post/pxozpo67f3](https://gettr.com/post/pxozpo67f3)
-2）[https://gettr.com/post/pxond89eea](https://gettr.com/post/pxond89eea)
-3）[UK warns Putin could be tried for war crimes](https://www.channelnewsasia.com/world/uk-warns-putin-tried-war-crimes-2528796)
-4）[https://gettr.com/post/pxmrt91c41](https://gettr.com/post/pxmrt91c41)
+参考链接：[美特使團訪台：維護台海和平 美國堅定承諾](https://www.epochtimes.com/b5/22/3/2/n13615461.htm)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
 总编：Irene木木
-编辑：宁文静
+编辑：Irene木木
 审核：Irene木木
 校正/发稿：呼吸的雾霾（文小呼吸）
 

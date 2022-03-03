@@ -2,15 +2,13 @@
 ---
 
 
-## 20220302郭文贵大直播 ：在中国社会，根本问题，教育
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2100239/)
+## 20220302郭文贵大直播 ：互联网时代，不管发生什么，一定记住中国乱不了
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2100329/)
 
 作者：东京樱花团小视频组
 
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组
-
-* * *
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
  
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 20220302郭文贵大直播 ：新中国联邦成功救援在乌克兰的战友及家人
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2100138/)
+## 20220302郭文贵大直播 ：俄乌战争改写了政治的本质 一个演员成了伟大政治领袖 直播战争 全人类自我表决
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2100206/)
 
 作者：东京樱花团小视频组
 
