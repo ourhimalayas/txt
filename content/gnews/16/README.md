@@ -2,21 +2,77 @@
 ---
 
 
-## 中共与普京密谋在冬奥之后俄再入侵乌克兰
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2099371/)
+## 普习梦
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2099437/)
 
-**翻译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-03-184411.jpg)
-美国和欧洲官员透露中共国要求普京将俄罗斯入侵乌克兰的行动推迟到北京冬奥会结束之后。
+作者：香草山教育部-蓝之灵（Hortensia)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+都在梦里
+编织美好梦境
+互发个奖状
+做心灵慰藉
+我们是彼此的太阳
+做大帝相互扶持
+你好我好
+不用管
+他人不好
 
-据《纽约时报》报道，这些信息是由一个西方情报机构在俄罗斯入侵乌克兰之前收集的，并且被认为是可信的。当西方政府试图了解俄罗斯是否会入侵其邻国时，美国官员和他们在盟国的伙伴之间传递了这些信息。
+有人说我们是疯子
+那又怎么样
+全力握在手中
+梦境里
+我们叱诧风云
+唯我独尊
 
-该情报称这并不意味着中共主席习近平和普京之间为此直接进行了对话，虽然他们于2月4日在北京奥运会开幕式前进行了会晤。俄罗斯可能对入侵的时间很敏感，因为俄国在2008年8月入侵格鲁吉亚，当时中共国正在举办夏季奥运会。
+于是
+你给我钱
+我打了乌克兰
+炮灰穿透天地
+这是我权力威力
+人民在流血
+我管你死活
+悲惨世界
+我今日造起
+哈哈哈哈哈
+你与我举杯
+庆祝
 
-中共国驻华盛顿大使馆发言人称这些说法是没有任何依据的猜测，目的是为了推卸责任和抹黑中共国。
+世界愤怒了
+全世界反战了
+提供武器
+提供燃料
+封锁了钱和权
+你和我
+输了
+只剩下裤衩
+快给我钱
+快给我钱
+没有没有
+没有没有
+我们输了
+只剩裤衩和
+烂命两条
 
-所有人都很明显从这样的报告中看懂中共和俄国的勾兑很深，而且历史悠久。这则报告也广泛地在世界各主流媒体报道，进入塔西陀陷阱的中共是赖不掉的。这是不是意味着对中共的讨伐在不久的将来发生？七哥说就算中共不打台湾，中共都会遭到清算的。愿这一天早日来临！
+梦呢
+我们的梦呢
+破碎了
+只剩裤衩
+和
+烂命两条
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2280.jpg)
+
+审核/编辑/发稿:qiutian（邱甜）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
