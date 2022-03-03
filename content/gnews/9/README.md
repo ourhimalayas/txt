@@ -2,30 +2,59 @@
 ---
 
 
-## 公交运力大减 区域隔离现雏形
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2099586/)
+## FDA警告一些COVID-19快筛测试结果可能出错
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2099814/)
 
-作者：东京樱花团︱阿恩
+**翻译：Lulumi**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip医生或医疗技术人员展示用于检测新型冠状病毒.png)医生或医疗技术人员展示用于检测新型冠状病毒、SARS-CoV-2的IgM和IgG抗体的快速实验室COVID-19测试棒，结果为阳性。对Covid-19、呼吸道病毒性肺炎的免疫力。
+美国食品和药物管理局（FDA）周二表示，三种快速COVID-19测试不应该被使用，因为有可能产生错误的结果。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/公交运力大减-区域隔离现雏形.jpg)
+FDA告诉人们停止使用Celltrion DiaTrust COVID-19 Ag快筛测试棒、SD Biosensor Inc. STANDARD Q COVID-19 Ag家庭检测棒和Flowflex SARS-CoV-2抗原快速检测棒（自我检测）。
 
-巴士公司染疫的员工人数不断攀升，运输署批准五间巴士公司，明天起至本月16日期间调整服务，包括暂停共98条有其他替代公共交通服务的路线、5条只在假日提供服务的郊游路线及1条通宵路线，其中九巴有88条路线暂停服务。另外，超过2000名港铁员工因为感染中共病毒或需要隔离，占公司人手约两成，导致部分路线要减车。同时，渡轮和小路服务也宣布停航部分线路。
+据该机构称，“FDA对使用这些测试时出现错误结果的风险感到担忧”。该机构补充说，这些测试“未经美国食品和药物管理局授权、审核或批准在美国销售或使用”。
 
-中共病毒感染在香港持续扩大，多间巴士公司的司机和职员染疫被强制隔离，导致大量运营路线被迫停运，严重影响了市民出行。此外，垄断全港铁路运输的港铁也出现大面积感染个案，上千名职员被强制隔离，铁路运力严重受阻。港府一直鼓励市民使用公共交通工具，以减少尾气排放和改善交通状况，并用高油价和高停车费限制私家车的使用频率。香港的交通十分便利，除了红隧在上下班高峰期常出现车龙，其他的干线都比较顺畅，市民的出行效率极高，许多市民都是跨区工作生活。中共病毒加上强制防疫政策，迅速瘫痪了香港的公交网络，许多人被无形囚禁在一些区域，尤其是新市政的地方，离市区遥远，公共交通工具受限制，如果没有私家车就很难进入市区。
+该机构说，这三种测试都是通过鼻拭子进行的。该机构建议，如果病人在不到两周前使用过这三种测试中的任何一种，医疗机构应让他们接受新的测试。
 
-建制派立法会议员总是以防疫为由提醒港府，疫情爆发下市区的人流依旧太多。建制议员传递出中共圈禁港人的要求，提出全民强检配合禁足措施，但港府也不想直接执行，以免将愤怒的民意聚焦在自己身上，而强制隔离运输公司的职员是最隐蔽的方法，表面上是无耐之举，市民于情于理不能怪罪染疫情的职员，只能接受越来越窄的生活范围。此举可以将反对的民意减至最低，届时港人只能在居住的区域活动，各区之间的连接被切断，如果中共欲把香港互联网也切断，在各区实施如论怎样残酷的管制都将得心应手。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip快筛.png)
 
-资料来源：
+FDA说，ACON实验室已召回其所有Flowflex测试，SD Biosensor已召回其测试，Celltrion USA已召回其所有DiaTrust测试。
 
-1、[**多間巴士公司明日起暫停近百巴士線  工會料乘客影響大**](https://news.rthk.hk/rthk/ch/component/k2/1636921-20220303.htm)
+FDA说：“人们不应该使用绿色和白色包装的Celltrion DiaTrust COVID-19 Ag快筛测试，”包括一张测试的照片。
 
-2、[**工會指2千港鐵員工染疫隔離未能上班  倘惡化或減班次**](https://news.rthk.hk/rthk/ch/component/k2/1636891-20220303.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip快速筛查.png)
 
-3、[**新渡輪及富裕小輪部分航線今起停航**](https://www.wenweipo.com/a/202203/03/AP622062d9e4b036dce9997e21.html)
+SD Biosensor的“未经授权的测试棒可能被包装在一个白色和洋红色的盒子里，”FDA说。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+而据该机构称，ACON实验室的测试棒是用深蓝色盒子包装的。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip快速筛查-1.png)
+
+美国食品和药物管理局说，它“没有收到与使用这三种测试中的任何一种有关的伤害、不良健康后果或死亡的报告”。
+
+ACON实验室在一份声明中表示，这些未经授权的测试棒是一种“掺假和误标的假冒产品”。
+
+今年2月，美国食品和药物管理局因类似原因对E25Bio COVID-19直接抗原快速检测、Empowered Diagnostics CovClear COVID-19快速抗原检测和ImmunoPass COVID-19中和抗体快速检测发出警告。也开始对这些测试进行召回。
+
+美国食品和药物管理局（FDA）警告人们停止使用Empowered Diagnostics公司的CovClear COVID-19快速抗原测试和ImmunoPass COVID-19中和抗体快速测试，该卫生机构的声明当时说：“这些测试在分发时的标签显示它们得到了美国食品和药物管理局的授权，但这两种测试都没有得到美国食品和药物管理局的授权、许可或批准，在美国分发或使用。”
+
+这也是因为一些毒物控制中心警告人们不要不当使用家用COVID-19测试，因为它们含有叠氮钠，一种潜在的有毒物质。一些地方的毒物控制中心和医院已经警告说，关于接触这种化学品的电话在增加。
+
+Flowflex公司和Celltrion公司生产的测试产品含有这种物质。
+
+COVID-19是由CCP（中国共产党）病毒引起的疾病。
+
+**新闻来源**：[theepochtimes.com][FDA Warns of Possible False Results From Some COVID-19 Tests](https://www.theepochtimes.com/fda-warns-of-possible-false-results-from-some-covid-19-tests_4312340.html?utm_source=newsnoe&amp;utm_campaign=breaking-2022-03-02-4&amp;utm_medium=email&amp;est=HTZNekRlfY%2FcDco6M8h%2BiPD5lcyOUOCv%2Fi%2BwjSSwLTBm%2FM2uZqg7p3vVYGHkQFdJtAgeMqE%3D)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
