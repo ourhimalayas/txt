@@ -2,24 +2,37 @@
 ---
 
 
-## 奥密克戎衍生病毒BA.2在日本流行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2098715/)
+## 普京催习抓紧行动 新中国联邦抓紧救援
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2098835/)
 
-撰稿：东京樱花团/立正道
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月2日，郭文贵先生发布盖特视频称，他得到的情报显示，习近平对台湾迟迟没有任何表示，让普京非常愤怒。普京直接打电话质问习是否还有信用，意在催促习抓紧侵略台湾。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/奥密克戎衍生病毒BA.2在日本流行.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.news-medical.net%2Fimages%2Fnews%2FImageForNews_705615_4461992039802088480.jpg&amp;imgrefurl=https%3A%2F%2Fwww.news-medical.net%2Fnews%2F20220227%2FWill-Omicron-BA2-become-the-next-dominant-variant.aspx&amp;tbnid=lzYPOJafYqVtNM&amp;vet=12ahUKEwin57iNrKn2AhU-YmwGHTPtBsEQMygAegUIARCLAQ..i&amp;docid=rpD8f08TZoR6eM&amp;w=1200&amp;h=800&amp;itg=1&amp;q=BA.2&amp;ved=2ahUKEwin57iNrKn2AhU-YmwGHTPtBsEQMygAegUIARCLAQ)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/14-2.png)
 
-日本医师会(日医)的中川俊男会长在2日的记者招待会上表示，国内中共病毒（新冠病毒Covid-19）的感染情况“虽然有减少趋势，但并没有急剧减少”，这可能是奥密克戎株的衍生型BA.2具有强烈的感染力，引起感染扩大的原因，指出“新感染人数可能会增加”。
+另外，郭先生还得到情报称，3月1日，中共内部发布紧急通知，要求驻各国大使馆做好海外学生和侨领的联络及宣传控制工作，并针对俄乌战争事态，派驻了新的所谓安全信息官员。
 
-中川先生关于31个都道府省适用的防止蔓延等重点措施的效果称“我认为有一定的效果。(感染者数)接近高停状态，但如果没有(重点措施)的话，感染人数也许会增加更多。”另外，在海外出现了对中共病毒对策的放宽管制的举动，他表示“日本也应该根据感染状况和疫苗接种率等，做出缓和限制的判断”。另一方面，他又补充说，“现在的感染情况，没有必要大幅缓和各种限制。”
+郭先生警告中共高层，中共国很多大使馆人员在敛财卷款以后，利用特殊权力逃亡他国，还有很多大使馆人员，被新中国联邦救出来，再也不会回到墙内。新中国联邦将用救人行动的实际结果，向世界表明到底是谁真正热爱中国人。
 
-消息来源：
+参考链接：
 
-[ＢＡ・２拡大で「増加に転じる可能性も」　日医会長](https://news.yahoo.co.jp/articles/963870fbeee2b1a796a46669e8357496291a5652)
+- [3/1/2022 文贵盖特：](https://www.gettr.com/post/pxmza98c29)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
