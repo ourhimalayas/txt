@@ -2,58 +2,83 @@
 ---
 
 
-## 新西兰财经G乐部2022年3月2日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2092733/)
+## 也许是时候世界支持台湾合法政府的独立了
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2091836/)
 
-采集整理：蚂蚁的城堡
+参议员马可.卢比奥： 由于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click) 支持承认俄罗斯在 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 的傀儡的独立，也许是时候世界支持 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) 合法政府的独立了
 
-**提纲：**
 
-1、俄罗斯总理宣布实行资本管制，以使外国企业与俄罗斯资产挂钩
 
-2、芝商所计划推出微型比特币和以太币期权
+> Since [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) supports recognizing the independence of Russian puppets in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) maybe its time the world supports the independence of the legitimate government of [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Marco Rubio (@marcorubio) [March 2, 2022](https://twitter.com/marcorubio/status/1498825760924176391?ref_src=twsrc%5Etfw)
 
-3、郑州市发布19条稳楼市措施，首个限购限贷全面放松
 
-4、渤海银行盘中闪崩超28%，股价跌破1港元
 
-5、世界银行推动几天内速批3.5亿美元紧急贷款给乌克兰抵抗俄入侵
+参议员玛莎·布莱克本： 在对乌克兰采取了令人发指的行动后，俄罗斯不配获得联合国安理会的席位。
 
-**正文**
 
-**1、俄罗斯总理宣布实行资本管制，以使外国企业与俄罗斯资产挂钩**
-![img](https://media.gettr.com/group42/origin/2022/03/02/03/5a13266f-f2da-c179-4afe-f7569009f0ad/8bd32ab8833a37302dbdbbcf417b0b4b_500x0.png)
-俄罗斯总理米舒斯京表示，俄政府已经草拟一份暂时限制外资退出俄市场的总统令。米舒斯京说，在当前形势下，外资公司不得不考虑的除了经济因素，还有政治因素。这个新的政策就是为了给那些准备退出俄市场的外资企业权衡利弊的机会。俄罗斯政府决定从国家福利基金中划拨1万亿卢布用于购买遭受制裁的俄罗斯公司的股票。德意志交易所将暂停所有俄罗斯证券的交易。
 
-链接：[https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-03-01-22/h\_9ad46d62e4d3bda0c6355375a813f5db](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-03-01-22/h_9ad46d62e4d3bda0c6355375a813f5db)
+> Russia does not deserve a seat on the UN Security Council after its egregious actions toward Ukraine. [pic.twitter.com/qz24oQcHMK](https://t.co/qz24oQcHMK)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 2, 2022](https://twitter.com/MarshaBlackburn/status/1498829680509693954?ref_src=twsrc%5Etfw)
 
-**2、芝商所计划推出微型比特币和以太币期权**
-![img](https://media.gettr.com/group4/origin/2022/03/02/03/f46913e1-9d81-5abb-6259-f132b1d9ed0c/7a8d67865e2b9cf90bfabe1e8b5ce2d9_500x0.png)
-主要衍生品市场芝加哥商品交易所集团将为其微型比特币和以太期货产品推出期权交易。在周二的公告中，芝商所[表示](https://www.prnewswire.com/news-releases/cme-group-to-launch-micro-sized-bitcoin-and-ether-options-301492616.html)，根据监管审查，它计划为其现有的微型比特币 ( BTC ) 和以太坊 ( ETH ) 期货推出期权合约，其规模将是各自代币的 10%。预计将于 3 月 28 日开始交易的期货期权将在该公司于 2020 年 1 月推出 BTC 期权交易产品两年多后推出，距该集团于 2017 年 12 月推出首份比特币期货合约已有四年多。
 
-链接： [https://cointelegraph.com/news/cme-group-plans-to-launch-micro-sized-bitcoin-and-ether-options](https://cointelegraph.com/news/cme-group-plans-to-launch-micro-sized-bitcoin-and-ether-options)
 
-**3、郑州市发布19条稳楼市措施，首个限购限贷全面放松**
-![img](https://media.gettr.com/group13/origin/2022/03/02/03/11673f44-1f54-dda4-8fc2-86c9c80ef3fd/427762233bc679e01b0e0a3c405fc874_500x0.png)
-3月1日，郑州市发布19条稳楼市措施，除了给大学生购房补贴、鼓励老人投靠家庭新购住房等措施外，最重要的一条是降低个人住房消费负担，不仅下调房贷利率，而且还放松首套房贷认定标准。业内人士认为，郑州成为今年全国第一个在限购限贷方面全面放松的城市，具有行业风向标的意义。
+参议员玛莎.布莱克本： 联合国必须剥夺俄罗斯在安理会的否决权。
 
-链接：[https://finance.sina.com.cn/stock/zqgd/2022-03-02/doc-imcwiwss3638299.shtml](https://finance.sina.com.cn/stock/zqgd/2022-03-02/doc-imcwiwss3638299.shtml)
 
-**4、渤海银行盘中闪崩超28%，股价跌破1港元**
-![img](https://media.gettr.com/group25/origin/2022/03/02/04/3cd2d59c-d3aa-c03e-4aeb-b046e7616eff/324450ca6821426df1bfaaa0f9b2ebca_500x0.png)
-3月1日盘中，渤海银行大跌超28%，股价跌破1港元，持续创出历史新低。有分析人士表示，渤海银行近年罚单不断，2021年10月份又爆出28亿存单质押事件，此次暴跌或与即将发布的2021年业绩有关。不过港股流动性差，1元左右的股票暴涨暴跌也是常有现象。此前甘肃银行曾由于股东强行平仓一日内暴跌43%，此次渤海银行异常下跌也不排除这种可能。
 
-链接： [https://finance.sina.com.cn/stock/s/2022-03-02/doc-imcwipih6072416.shtml](https://finance.sina.com.cn/stock/s/2022-03-02/doc-imcwipih6072416.shtml)
+> The UN must strip Russia of its ability to veto in the security council.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 1, 2022](https://twitter.com/MarshaBlackburn/status/1498787977719431172?ref_src=twsrc%5Etfw)
 
-**5、世界银行推动几天内速批3.5亿美元紧急贷款给乌克兰抵抗俄入侵**
 
-路透华盛顿3月1日 – 知情人士表示，世界银行正在推动几天内“快速”批准向乌克兰额外提供3.5亿美元贷款，为其抵御俄罗斯入侵的努力提供紧急资金。消息人士对表示，扩大现有贷款规模将为乌克兰提供“预算支持”，且世行不会限制乌克兰政府如何使用这笔贷款。
 
-链接：[https://cn.reuters.com/article/wb-ukraine-loan-0302-idCNKBS2KZ06T?il=0](https://cn.reuters.com/article/wb-ukraine-loan-0302-idCNKBS2KZ06T?il=0)
+拜登总统： 普京总统认为他可以顺利挺进乌克兰——世界将会接受。 相反，他遇到了他从未想到过的强力阻击。 他遇到了(强大的)乌克兰人民。
 
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
 
-上传排版：文勇
+
+> President Putin thought he could roll into Ukraine — and the world would roll over.
+>  
+> Instead, he met a wall of strength he never imagined.
+>  
+> He met the Ukrainian people.
+> — President Biden (@POTUS) [March 2, 2022](https://twitter.com/POTUS/status/1498843134721150979?ref_src=twsrc%5Etfw)
+
+
+
+拜登总统： 美国司法部正在组建一个专门的工作组来追查俄罗斯寡头的罪行。 我们正与我们的欧洲盟友一起寻找并没收他们的游艇、豪华公寓和私人飞机。 我们不会放过他们的不义之财。
+
+
+
+> The U.S. Department of Justice is assembling a dedicated task force to go after the crimes of Russian oligarchs.
+>  
+> We are joining with our European allies to find and seize their yachts, their luxury apartments, their private jets. 
+>  
+> We are coming for their ill-begotten gains.
+> — President Biden (@POTUS) [March 2, 2022](https://twitter.com/POTUS/status/1498844556300886022?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨: 拜登今晚没有提到要让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对传播导致大流行的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 负责。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 放出致命病毒，是邪恶的，必须承担责任，否则北京将制造更多致命的瘟疫。
+
+
+
+> Biden tonight made no mention of holding Communst China accountable for spreading the virus that caused the pandemic. The CCP unleashed the deadly virus, is evil, and must be held responsible or Beijing will create even more deadly plagues
+> — Bill Gertz (@BillGertz) [March 2, 2022](https://twitter.com/BillGertz/status/1498854110472278016?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 同意劳拉·英格拉汉姆[@IngrahamAngle](https://twitter.com/IngrahamAngle) – 拜登必须制裁 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 支持俄罗斯入侵乌克兰的行径。 俄罗斯、[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)、伊朗和北朝鲜是新的邪恶轴心国。 必须阻止他们。
+
+
+
+> Agree with [@IngrahamAngle](https://twitter.com/IngrahamAngle?ref_src=twsrc%5Etfw) – Biden must sanction Communist China for bolstering Russia’s invasion of Ukraine.
+>  
+> Russia, China, Iran and North Korea are the new axis of evil.
+>  
+> They must be stopped. [https://t.co/dmx0r74mcE](https://t.co/dmx0r74mcE)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 2, 2022](https://twitter.com/MarshaBlackburn/status/1498835382389125120?ref_src=twsrc%5Etfw)
+
+
 
  
 

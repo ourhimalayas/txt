@@ -2,20 +2,33 @@
 ---
 
 
-## 新中国联邦在乌克兰用直升机救援30万美元
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2097162/)
+## 有声|美国对俄罗斯增加数字货币制裁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2097261/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+外媒3月1日报道，美国财政部在网站上公布了针对俄罗斯进行制裁的一系列新规，禁止美国人向某些俄罗斯寡头和实体提供任何支持，其中包括：不得进行欺骗性交易，以转移、支付、出口、撤回或其他处理方式，来规避美国的任何制裁，包括通过数字货币或数字资产、实体资产等。这些规定也适用于总部位于美国的实体。 据悉，财政部官员已要求世界各地的加密交易所防止俄罗斯实体使用加密货币逃避制裁，例如要求Binance、FTX和Coinbase屏蔽受制裁人员和地址，其中Binance和FTX的总部不在美国。 有几家交易所公开表示不会屏蔽所有俄罗斯用户和地址，而共产党背景的Binance交易所则表示至少可以屏蔽财政部外国资产控制办公室制裁名单上个人的钱包。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3.jpg)
 
-*发布：陶子*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+文字版原文：[美国对俄罗斯增加数字货币制裁](https://gnews.org/zh-hans/2091549/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
