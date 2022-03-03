@@ -15,70 +15,70 @@
 
 ---
 
-### [大直播后记：战友，今天你行动了吗？](/content/gnews/1/README.md)
+### [【粤语配音】2022年3月2日：新中国联邦乌克兰救援成功打响第一枪](/content/gnews/1/README.md)
+ ` MOS香港部`
+
+### [中俄在俄乌战争背后的勾当](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共的疯狂唤醒战争机器日本](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [德国支持乌克兰](/content/gnews/2/README.md)
+### [【转】截至3.2 俄乌战事汇总（9）](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [大直播后记：战友，今天你行动了吗？](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [历史上决定战争的，很多都是天气](/content/gnews/3/README.md)
+### [德国支持乌克兰](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [支持乌克兰真不是操作的](/content/gnews/4/README.md)
+### [历史上决定战争的，很多都是天气](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [【文炬拾字】新中国联邦人道救援乌克兰](/content/gnews/5/README.md)
+### [支持乌克兰真不是操作的](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [香港疫情｜全民检测“小禁足”，倾向可限时到超市药房诊所](/content/gnews/9/README.md)
+ ` 蓝莲花农场`
+
+### [【文炬拾字】新中国联邦人道救援乌克兰](/content/gnews/10/README.md)
  ` 温哥华扬帆农场`
 
-### [大抗议要么催生西方民主政治的正道主义要么变成独裁政治](/content/gnews/6/README.md)
+### [大抗议要么催生西方民主政治的正道主义要么变成独裁政治](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [乌克兰战争改写政治的本质](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [美国及世界疫情简报（03-02-2022）](/content/gnews/8/README.md)
+### [美国及世界疫情简报（03-02-2022）](/content/gnews/12/README.md)
  ` 波士顿五月花农场`
 
-### [快讯：世界银行停止了俄罗斯和白俄罗斯的所有项目](/content/gnews/9/README.md)
- ` 蓝莲花农场`
-
-### [这是需要我们站起来的时刻](/content/gnews/10/README.md)
+### [这是需要我们站起来的时刻](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [其他意见 （十二）](/content/gnews/11/README.md)
+### [其他意见 （十二）](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [新中国联邦的乌克兰救援100%成功](/content/gnews/12/README.md)
+### [新中国联邦的乌克兰救援100%成功](/content/gnews/15/README.md)
  ` 日本東京方舟農場`
 
-### [俄罗斯使用集束炸弹轰炸乌克兰第二大城市](/content/gnews/13/README.md)
+### [俄罗斯使用集束炸弹轰炸乌克兰第二大城市](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [俄罗斯首任外长呼吁所有外教官辞职 抗议普京入侵乌克兰](/content/gnews/14/README.md)
+### [俄罗斯首任外长呼吁所有外教官辞职 抗议普京入侵乌克兰](/content/gnews/17/README.md)
  ` 日本東京方舟農場`
 
-### [入侵乌克兰后，俄罗斯受到了世界各地广泛的制裁（下）](/content/gnews/15/README.md)
+### [入侵乌克兰后，俄罗斯受到了世界各地广泛的制裁（下）](/content/gnews/18/README.md)
  ` 蓝莲花农场`
 
-### [其他意见 （十一）](/content/gnews/16/README.md)
+### [其他意见 （十一）](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|乌克兰总统泽连斯基就职演说全文](/content/gnews/17/README.md)
+### [有声|乌克兰总统泽连斯基就职演说全文](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [中共无视俄乌战争人道灾难 强调将与俄保持正常贸易关系](/content/gnews/18/README.md)
- ` 日本東京方舟農場`
-
-### [入侵乌克兰后，俄罗斯受到了世界各地广泛的制裁（上）](/content/gnews/19/README.md)
- ` 蓝莲花农场`
-
-### [体育界又一悲剧：一名22岁的年轻橄榄球运动员在训练中死亡](/content/gnews/20/README.md)
+### [体育界又一悲剧：一名22岁的年轻橄榄球运动员在训练中死亡](/content/gnews/21/README.md)
  ` xiaobaige`
 
-### [3/2/2022 文贵直播：新中国联邦的大营救没有私心只为救人；我们为救人不会考虑成本代价，但要绝对保证所有人的安全](/content/gnews/21/README.md)
- ` 秘密翻译组-北美组`
-
-### [3/2/2022 文贵直播：隐瞒真相控制媒体是中共控制人民的手段；有20多个中国人已在乌克兰战争中罹难，但中共不允许消息被报道出去](/content/gnews/22/README.md)
+### [3/2/2022 文贵直播：新中国联邦的大营救没有私心只为救人；我们为救人不会考虑成本代价，但要绝对保证所有人的安全](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
 ### [郭文贵精品视频-策略大师预判战争走向](/content/gnews/23/README.md)

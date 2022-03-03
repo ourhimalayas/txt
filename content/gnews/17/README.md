@@ -2,49 +2,25 @@
 ---
 
 
-## 有声|乌克兰总统泽连斯基就职演说全文
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2096674/)
+## 俄罗斯首任外长呼吁所有外教官辞职 抗议普京入侵乌克兰
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2096739/)
 
-配音：MOS 媒体部 – Gtv abeilles
+**撰稿：日本东京方舟农场 海星**
 
+3月1日，俄罗斯首任外交部长科济列夫（Andrei Kozyrev）在推特上呼吁所有外交官辞职，以抗议普京下令入侵乌克兰的行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗.jpg)（图片来源：网络）
+据《自由时报》报导，科济列夫于3月1日在推特上发帖呼吁俄罗斯外交官集体辞职，以抗议普京下令入侵乌克兰的战争行为。他真诚地表示，俄罗斯外交官员都是专业人士，不是廉价的宣传员。他们是无法支持目前正在乌克兰发生的血腥战争。
 
+同日，科济列夫还转发了在日内瓦举行的国际裁军谈判会议视频。该视频显示俄罗斯现任外交部长拉夫罗夫发言时，多国外交官纷纷离开会场，以示声援乌克兰、抗议俄罗斯入侵。科济列夫呼吁俄罗斯外交官也应该效仿视频中的外交官员。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/logo-s2.png)
+此前，科济列夫在接受美国广播公司（ABC）访问时指出，西方国家对俄罗斯采取的一系列制裁措施正在奏效，并说俄罗斯将会为入侵乌克兰的战争行为支付赔款，类似二战后的德国。
 
+参考链接：
+1.[https://ec.ltn.com.tw/article/breakingnews/3846222](https://ec.ltn.com.tw/article/breakingnews/3846222)
 
-
-![](https://gnews.org/a1588711-b252-416b-94e5-f719a0066b0c)
-
-
-
-乌克兰总统泽连斯基就职演说全文：乌克兰人选我当总统是因厌倦了政客 “亲爱的人民，在我的一生中，我一直努力让乌克兰人笑起来。我由衷感到，这不仅仅是我的工作，也是我的使命。在接下来的五年里，我会尽我所能让乌克兰人不再哭泣。谢谢。“
-
-**文字版原文：[乌克兰总统泽连斯基就职演说全文：乌克兰人选我当总统是因厌倦了政客 – GNEWS](https://gnews.org/zh-hans/2090816/)**
-
-音频处理：小鹿
-发稿：小鹿
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![](https://gnews.org/a1588711-b252-416b-94e5-f719a0066b0c)
-
-
-
-
+素材采编：海星
+编辑：老孙
+发布：Linda
 
  
 

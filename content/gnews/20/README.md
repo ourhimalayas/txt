@@ -2,20 +2,49 @@
 ---
 
 
-## 体育界又一悲剧：一名22岁的年轻橄榄球运动员在训练中死亡
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2096630/)
+## 有声|乌克兰总统泽连斯基就职演说全文
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2096674/)
 
-#### 翻译                   意大利达芬奇农场                      小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-02-alle-19.27.22.png)图片来源：eventiavversinews.it
-橄榄球，Chartres( Federal 1) 队的支柱詹姆斯•西奥多（James Théodore）周二在训练中突然去世， 今年22岁。据《共和报》报道，这是心脏骤停。他效力于法国业余橄榄球最高水平的Chartres ( Federal 1)。
+配音：MOS 媒体部 – Gtv abeilles
 
-法国橄榄球界给我们带来了一个非常坏的消息： 周二早上， 在克劳德-帕尼尔球场训练开始时， 一名来自Chartres（ Federal 1）的年轻球员去世了。这个队代表法国业余橄榄球的最高水平。根据我们在《共和回声》的同事报给我们的初步信息， 他是心脏骤停。俱乐部主席托马斯•路易斯告诉法新社：“在一场还没有开始的足球训练比赛中西奥多倒在了朋友面前，”他表示他还不知道死亡的具体细节。
 
-当詹姆斯•西奥多倒在地上， 尽管队友和消防队员迅速赶到现场进行抢救，但他再也没有醒来。他是一位四岁男孩的父亲。
 
-原文链接： [https://www.eventiavversinews.it/ennesima-tragedia-nel-mondo-dello-sport-muore-in-allenamento-giovane-rugbista-di-22-anni/](https://www.eventiavversinews.it/ennesima-tragedia-nel-mondo-dello-sport-muore-in-allenamento-giovane-rugbista-di-22-anni/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/logo-s2.png)
 
-编辑、上传： Xiao   baige
+
+
+![](https://gnews.org/a1588711-b252-416b-94e5-f719a0066b0c)
+
+
+
+乌克兰总统泽连斯基就职演说全文：乌克兰人选我当总统是因厌倦了政客 “亲爱的人民，在我的一生中，我一直努力让乌克兰人笑起来。我由衷感到，这不仅仅是我的工作，也是我的使命。在接下来的五年里，我会尽我所能让乌克兰人不再哭泣。谢谢。“
+
+**文字版原文：[乌克兰总统泽连斯基就职演说全文：乌克兰人选我当总统是因厌倦了政客 – GNEWS](https://gnews.org/zh-hans/2090816/)**
+
+音频处理：小鹿
+发稿：小鹿
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![](https://gnews.org/a1588711-b252-416b-94e5-f719a0066b0c)
+
+
+
+
 
  
 
