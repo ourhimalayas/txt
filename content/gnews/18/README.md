@@ -2,47 +2,33 @@
 ---
 
 
-## 帕克代尔租户在整栋大楼收到驱逐通知后进行反击
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2101268/)
+## 莫斯科和基辅就乌克兰的人道主义走廊达成一致
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2101335/)
 
-作者：DH Toronto Staff
-翻译：HimaCoby
-![](https://assets.gnews.org/wp-content/uploads/2022/03/22_1J94L09.png)
-日前位于多伦多一栋公寓楼的租客们因为收到业主的驱逐令而倍感不满，他们一致行动，向房东进行反击。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-这栋位于多伦多市12 Landsdowne Avenue。楼内的每位居民近日都收到了房东12 Landsdowne Inc.公司发出的N13搬迁通知。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Ukraine-Konflikt-Gespraeche-in-Belarus.jpg)
 
-通常这些驱逐令是在房东要给房子进行维护和装修时使用。等到这些维修工程竣工之后，房东们也要以跟装修前差不多的租金水平，再把房子租回给这些租客。但是这栋楼的居民担心他们搬走以后事情就不一样了。
 
-接到驱逐通知后，租客们就很担心会成为房子重装的受害者，因为他们的房东此前就因为类似的事情被罚款过。
+图片来源：德新社
 
-租客和住房维权者表示，这家公司的所有者Neil Spiegel和Evan Johnsen曾经有过利用安省房东与租客法律漏洞的记录。
+在白俄罗斯和波兰的边境地区，乌克兰和俄罗斯的代表团再次进行了交谈——并取得了初步成果。外交部长谢尔盖·拉夫罗夫（Sergey Lavrov）此前曾指责美国，此次谈判也相似。
 
-作为12 lansdowne Inc.的负责人，Spiegel和Johnsen曾在2019年因为不当驱逐租客被罚款过两次。2017年时，他们也曾给795 College Street楼内的租客发出N13通知令，但租客搬走、装修完成之后，他们大幅抬高了租金。最终他们也因此被罚了13万5000元。但是这些钱并没有被补偿给遭到不公正驱逐的租客们。
+在第二轮谈判中，俄罗斯和乌克兰已同意在乌克兰特别艰苦的地区建立人道主义走廊。这是双方代表周四会晤后所说的。与此同时，乌克兰总统顾问米哈伊洛·波多利亚克强调，一些希望的结果尚未实现。应该进行第三轮谈判。
 
-对于此事，Spiegel回应称，这次的情况不会重蹈College Street装修事件的覆辙。
+白俄罗斯的第一轮谈判于周一结束，没有结果。在第二轮谈判开始前，基辅政府曾强调不会接受莫斯科的任何“终极”。
 
-但租客们对这种说法并不买账。近期他们在社区附近张贴了多张海报，申诉自己的处境，并要求房东放弃驱逐令。
+根据乌克兰总统沃拉迪米尔泽连斯基的说法，为了结束战争，需要在一些方面做出妥协。泽连斯基在电视讲话中说，如果莫斯科政府平等对待乌克兰，乌克兰和俄罗斯就可以实现这一目标。 “有些事情必须妥协，这样人们才不会死，”他解释说。 “但也有一些事情是不可能妥协的。”
 
-租客们在海报上把房东描绘为蟑螂并写道，“Parkdale有虫害问题。”
+俄罗斯外交部长谢尔盖·拉夫罗夫此前曾宣布，该国准备与乌克兰进行谈判，但同时又想继续袭击乌克兰的军事设施。拉夫罗夫说，西方不断升级乌克兰并训练其士兵将其变成对抗俄罗斯的堡垒。西方国家想要破坏俄罗斯的一切。
 
-他们也呼吁当地居民联络房东，要求他们终止驱逐令。
+在核战争的警告中，拉夫罗夫指责西方危言耸听和“歇斯底里”。 “每个人都知道，第三次世界大战只能是核战争，”拉夫罗夫说。然而，这个问题只出现在西方政治家的头脑中，而不是俄罗斯人的头脑中。
 
-来源：https://dailyhive.com/toronto/parkdale-tenants-eviction-notices
+“我向你保证，我们不会允许任何使我们失去平衡的挑衅行为，”拉夫罗夫在接受俄罗斯和国际媒体的国家电视台采访时说。 “但如果（西方）开始对我们发动真正的战争，那些制定此类计划的人应该考虑一下，我认为他们正在考虑这一点。”
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+🔗 [莫斯科和基辅就乌克兰的人道主义走廊达成一致](https://www.welt.de/politik/ausland/article237272817/Krieg-in-der-Ukraine-Einigung-auf-humanitaere-Korridore.html)
 
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑发表： Shuizhuyu
 
  
 

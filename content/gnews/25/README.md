@@ -2,26 +2,47 @@
 ---
 
 
-## 乌克兰难民只有35%接种了新冠疫苗，几乎无人打第三针疫苗
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2101172/)
+## 帕克代尔租户在整栋大楼收到驱逐通知后进行反击
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2101268/)
 
-#### 翻译                       意大利达芬奇农场                       小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-03-alle-18.35.16.png)图片来源：repubblica.it
-乌克兰难民只有35% 接种了新冠疫苗，几乎无人打第三针疫苗。即便如此，今天意大利继续对50岁以上没有超级绿色护照的人采取歧视性措施——如果没有接种新冠疫苗加强针，是不能进入工作场所的，但是却接受从乌克兰逃出来的难民，大部分难民没有接种疫苗。乌克兰只有35%的公民接种了新冠疫苗，而加强针接种率只有1.7%。乌克兰的疫情曲线与意大利没有很大差别，但是像很多东欧国家那样，其公民不愿接种新冠疫苗。
+作者：DH Toronto Staff
+翻译：HimaCoby
+![](https://assets.gnews.org/wp-content/uploads/2022/03/22_1J94L09.png)
+日前位于多伦多一栋公寓楼的租客们因为收到业主的驱逐令而倍感不满，他们一致行动，向房东进行反击。
 
-现在，显然接收难民并不应该完全受到是否接种了新冠疫苗的影响，这会是不人道、不文明的，没有任何政客或病毒学家会允许这样做，不会将他们打上“老鼠”或“感染者”的标签。
+这栋位于多伦多市12 Landsdowne Avenue。楼内的每位居民近日都收到了房东12 Landsdowne Inc.公司发出的N13搬迁通知。
 
-如果事实就是这样，事实就该这样。那么马上废除（不超过6月15日，立即）阻止没有超级绿色护照的劳动者去工作；还有同样带有歧视性的规定：12岁以上没有绿色护照不能上公共汽车，禁止那些没有打加强针的人进入工作场所。
+通常这些驱逐令是在房东要给房子进行维护和装修时使用。等到这些维修工程竣工之后，房东们也要以跟装修前差不多的租金水平，再把房子租回给这些租客。但是这栋楼的居民担心他们搬走以后事情就不一样了。
 
-没有打新冠疫苗的人在意大利受到谴责，会在他们身上发生最糟糕的事情， “ 让人死亡”，这是德拉吉总理说的。于此同时， 我们接受乌克兰难民， 他们中的98.3%没有打加强针。
+接到驱逐通知后，租客们就很担心会成为房子重装的受害者，因为他们的房东此前就因为类似的事情被罚款过。
 
-意大利的社会矛盾空前尖锐，至今这种不安定是不公正和可怕的， 今天会引起无法管理的社会愤怒。劳动权利是不可剥夺的，是写在宪法第一条里，这就如同责无旁贷地接收那些逃离战争的人一样。
+租客和住房维权者表示，这家公司的所有者Neil Spiegel和Evan Johnsen曾经有过利用安省房东与租客法律漏洞的记录。
 
-是重归人性的时候了，如果我们尝试见证人性，就可以消除潜在的世界冲突的幽灵。
+作为12 lansdowne Inc.的负责人，Spiegel和Johnsen曾在2019年因为不当驱逐租客被罚款过两次。2017年时，他们也曾给795 College Street楼内的租客发出N13通知令，但租客搬走、装修完成之后，他们大幅抬高了租金。最终他们也因此被罚了13万5000元。但是这些钱并没有被补偿给遭到不公正驱逐的租客们。
 
-原文链接：[https://www.lapressa.it/articoli/il\_punto/profughi-ucraina-solo-35-vaccinato-e-quasi-nessuno-ha-terza-dose](https://www.lapressa.it/articoli/il_punto/profughi-ucraina-solo-35-vaccinato-e-quasi-nessuno-ha-terza-dose)
+对于此事，Spiegel回应称，这次的情况不会重蹈College Street装修事件的覆辙。
 
-编辑、上传： Xiao  baige
+但租客们对这种说法并不买账。近期他们在社区附近张贴了多张海报，申诉自己的处境，并要求房东放弃驱逐令。
+
+租客们在海报上把房东描绘为蟑螂并写道，“Parkdale有虫害问题。”
+
+他们也呼吁当地居民联络房东，要求他们终止驱逐令。
+
+来源：https://dailyhive.com/toronto/parkdale-tenants-eviction-notices
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
