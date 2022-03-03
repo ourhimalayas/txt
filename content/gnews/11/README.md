@@ -2,41 +2,40 @@
 ---
 
 
-## 美国政府国防代表团抵达台湾，开启外交新模式
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2098826/)
+## 韩国著名演员李英爱向乌克兰捐赠1亿韩元
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2098848/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/202203010001061.jpg)台湾英文新闻图片
-台湾英文新闻2022年3月1日台北报道，由美国总统乔·拜登(Joe Biden)的两党官员代表团于星期二(3月1日)下午4点13分抵达台北。
+作者：首尔天池农场 – 追着曙光跑
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据韩国媒体3月1日报道，韩国著名女演员李英爱向被俄罗斯入侵的乌克兰捐赠了1亿韩元，用于人道救助。
 
-根据亚洲新闻台(CNA)的报道，该代表团将与包括蔡英文总统在内的台湾高级领导人会面，并讨论美台关系、地区安全和其他议题。代表团由美国前参谋长联席会议主席麦克·穆伦(Mike Mullen)率领，其中包括几位前美国国家安全主管。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-7.png)
 
-代表团成员包括前负责政策的国防部副部长米歇尔·弗洛诺伊(Michèle Flournoy)和梅根·奥沙利文(Meghan O’Sullivan)、前白宫副国家安全顾问、前白宫国家安全委员会亚洲事务高级主任迈克尔·格林(Michael Green)和前白宫国家安全委员会亚洲事务高级主任埃文·梅代罗斯(Evan Medeiros)。
+乌克兰驻韩大使特米特里·波诺玛林科，3月1日在推特上公开了李英爱给乌克兰人民捐赠的1亿韩元支票和一封信。
 
-外交部长吴钊燮和台湾外交部的其他代表在松山机场的停机坪上接见了该代表团，吴钊燮与穆伦肘部相碰表示欢迎。
+李英爱在信中写道，作为一位参与过战争的军人的家属，她比任何人都更能深刻地感受到战争的残酷。真心期盼乌克兰战争早日结束，迎来和平。希望乌克兰人民都能安然无恙，希望热爱和平和自由的乌克兰人民不要失去希望和勇气。
 
-他们将于周三(3月2日)会见蔡英文总统和台湾国防部长邱国正。他们在逗留期间还将会见苏贞昌总理和其他官员。
+波诺玛林科大使提到，李英爱的来信和捐款让他非常感动，这笔捐款将用于因俄罗斯入侵而成为受害者的人民。
 
-据CNA报道，安全分析人士将这样一个两党高级官员团队的访问解读为华盛顿对台湾的支持和对维护台海和平与稳定的标志。这也将有助于建立一个新的代表团外交模式，即白宫前高级官员可以定期来台湾与台湾的同行互动。
+参考链接：
 
-**简评：**
-
-在俄乌交战之际，美国拜登政府派出了一支由前国防官员组成的代表团访问台湾，选择的日期还是《上海公报》发表 50 周年后的第二天，美国政府积极的对台外交行动，在世界格局巨变的当下，意味深长。普京对乌克兰的入侵始于北京冬奥会刚刚结束之时，这不是巧合。根据郭文贵先生的情报，自习近平上台以来，普京多次与习密谋，意欲展开一次中俄合作，普京拿下乌克兰，回应所谓的北约东扩，中共借机攻占台湾。
-
-在信息高度发达的二十一世纪，这两个独裁者的心思早已暴露在全世界面前。而普京对乌克兰的战争背后的金主是中共政权，美国等西方盟国也都心知肚明。接下来，无论中共攻不攻打台湾，全世界都已经认定它的侵略意图，习近平独裁政府在这场乱局尚未升级之时已然失信于世界，成为了破坏世界和平的最大推手。继俄罗斯被制裁之后，国际社会对中共的制裁已经箭在弦上，只待中共政权接下来对台湾的行动。被制裁的俄罗斯经济如今已经一落千丈，股市暴跌、卢布贬值、海外资产被查封、国际贸易严重受阻。而中共政权作为以美国为首的国际社会重点关注的对象，势必要为它接下来武力侵占台湾的行为付出比俄罗斯更大的政治和经济代价，这些代价的直接后果一定是加速中共政权的垮台。
-
-新闻链接：[https://www.taiwannews.com.tw/en/news/4458938](https://www.taiwannews.com.tw/en/news/4458938)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- [이영애, 우크라이나에 1억 원 기부…“전쟁 멈추고 평화 정착되길”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5406466)
+- [https://twitter.com/dp\_ua1972/status/1498512486722531332?s=21](https://twitter.com/dp_ua1972/status/1498512486722531332?s=21)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

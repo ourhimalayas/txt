@@ -2,25 +2,26 @@
 ---
 
 
-## 2022年3月2日澳洲股市简报
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2098936/)
+## 日本政府宣布对白俄罗斯总统实施制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2098963/)
 
-**撰稿：云彩**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
-尽管华尔街和欧洲市场跳水，澳洲股市依然上涨0.3% 。 7117点收盘。
+撰稿：东京樱花团/百花李香
 
-澳大利亚公布的第二季度国内生产总值数据经季节性调整后增长3.4%。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/日本政府宣布对白俄罗斯总统实施制裁.jpg)[图片来源](https://www.businessinsider.com/belarus-lukashenko-revealed-map-russias-ukrainian-invasion-plans-2022-3#:~:text=Putin%27s%20strongman%20ally%20may%20have%20accidentally%20shared%20a%20map%20of%20Russia%27s%20Ukrainian%2Dinvasion%20plans)
 
-医疗器械公司Polynovo和天然气公司Santos股价涨幅超过6.5%。
+3月3日，日本政府宣布，因白俄罗斯总统卢卡申科支持俄罗斯对乌克兰的军事入侵，对他实施制裁，冻结其资产。
 
-锂矿商Core Lithium股价上涨15%
+被制裁者包括总统在内还有七名国家高级官员和白俄罗斯国家军事工业委员会在内的两个组织。
 
-该公司已经与美国特斯拉公司签署四年供应 110 千吨锂的销售合同。
+此外，对俄罗斯普京身边的对外情报局局长纳雷什金在内的18名个人和该国的四家主要银行也被列入资产冻结对象。
 
-参考资料：
+信息源：
 
-[Global markets take a hit on Russian strikes, but ASX defies the trend to rise](https://www.abc.net.au/news/2022-03-02/asx-ukraine-russia-kyiv-wall-street-oil-price/100873978)
+[ベラルーシへの制裁発表　ロシア大統領側近も　政府](https://news.yahoo.co.jp/articles/e6bf53d139d1176c2caa9b9b8582b6d8002fd705#:~:text)
 
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
