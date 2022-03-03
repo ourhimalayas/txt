@@ -2,62 +2,32 @@
 ---
 
 
-## 【秘翻在线】俄军对乌克兰港口实施“全面种族灭绝”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2097707/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月2日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2097700/)
 
-**撰稿：Grace**
+作者：香草山翻译部
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-02-at-9.57.02-PM.jpeg)图片来源：timesofisrael
-据英国《太阳报》（The Sun）3月2日报道，过去一天，俄罗斯军队一直在狂轰滥炸居住着近45万人的乌克兰港口马里乌波尔 （Mariupol ）。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO.jpg)
 
-马里乌波尔市长指责俄军对他的城市进行了 “种族灭绝”，而他的副手则声称有13万人居住的整个街区已经被夷为平地。
 
-报道指出，该市位于被吞并的克里米亚半岛（Crimean Peninsula ）与亲俄罗斯的分离省份卢甘斯克和顿涅茨克（Luhansk and Donetsk）之间的一个关键位置，那里有一些俄罗斯部队的基地。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1.png)
+校对：Stay文苑
 
-据报道，马里乌波尔市在过去15个小时里一直处于持续的炮火之下。
+编辑：Stay文苑
 
-一家妇产医院和几十栋居民楼被严重损坏，一所学校和一个移民收容所被摧毁。
+发稿：Stay文苑
 
-由于俄罗斯军队加强了攻击，马里乌波尔的这家妇产医院的地下室已经变成了防空洞和托儿所。
+新闻：[https://gtv.org/broadcast/watch/62201d1d019ef64da6542782](https://gtv.org/broadcast/watch/62201d1d019ef64da6542782)
+访谈：[https://gtv.org/broadcast/watch/62202524019ef64da6542ce5](https://gtv.org/broadcast/watch/62202524019ef64da6542ce5)
 
-马里乌波尔市市长瓦迪姆·博伊琴科（ Vadym Boychenko）表示，俄军还阻止平民逃离该港口城市。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March.png)
 
-他说：“居民的基础设施遭到了巨大的破坏，有许多人受伤，不幸的是还有许多平民死亡，妇女、儿童、老人。”
-
-**“一场对乌克兰人民的全面种族灭绝正在进行中。”**
-
-他继续说：“你必须明白，俄罗斯联邦的占领军已经做了一切来阻止平民离开我们这个拥有50万人口的城市。”
-
-“我们的铁路连接已经被切断–他们甚至去了火车站，向我们的柴油机车开火，这样人们就无法撤离。”
-
-据报道，周三早些时候，博伊琴科说受伤的平民人数 “每天都在增加”。
-
-在周三，他说：“今天，我们的医院里有128人。我们的医生甚至都不回家了。他们正在为马里乌波尔居民的生命而战。”
-
-据报道，在超过半天的俄罗斯轰炸后，该市的水供应也受到威胁。
-
-博伊琴科说：“情况很糟糕，我们正处于一场人道主义灾难的边缘。我们已经被不停地轰炸了15个多小时。四分之一的城市几乎被完全摧毁。我们不能进去捡拾尸体，所以我们无法统计。”
-
-报道称，此前几天，一名六岁的女孩在俄罗斯对马里乌波尔的空袭中丧生。
-
-另一名儿童，10岁的波琳娜，在俄罗斯军队向她家在基辅的汽车开火后被射杀。
-
-报道还指出，随着普京迅速接管乌克兰的希望破灭，人们越来越担心俄罗斯为结束战争而对平民目标进行越来越多的滥杀滥伤。
-
-周二，俄罗斯发出了令人不寒而栗的警告，要求乌克兰人在另一次大规模轰炸之前逃离基辅的部分地区。
-
-到目前为止，已有超过2000名乌克兰平民在战争中丧生，还有大约6000名俄罗斯军队。
-
-俄罗斯声称它已经控制了乌克兰西南部的港口城市赫尔松（Kherson），但该市市长否认了这一点，并称乌克兰军队正在坚守。
-
-另一方面，据报道，更多的火箭弹袭击了乌克兰的第二大城市哈尔科夫（Kharkiv），击中了地区警察部门和一所大学的一部分。
-
-根据联合国的数据，迄今为止已有80多万人逃离乌克兰，人们担心这是第二次世界大战以来最大规模的人口流动。
-
-据乌克兰军方称，周三，俄罗斯伞兵在该市登陆，并开始为控制权而战。
-
-**新闻来源：**** **[LAID TO WASTE Russia committing ‘full-scale genocide’ in smashed Ukraine port with ‘hundreds dead’ after 15 hours of non-stop shelling](https://www.thesun.co.uk/news/17822851/ukraine-russia-mariupol-shelling-100s-dead/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

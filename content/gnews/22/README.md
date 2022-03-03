@@ -2,28 +2,61 @@
 ---
 
 
-## 中日财经爆|国际评级机构继续下调俄罗斯主权信用评级
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2097659/)
+## 有报道说台湾大规模断电
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2097654/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-251.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=C5IxnRJIWnBzNM&amp;imgdii=3haYS9havfAi9M)
-俄罗斯上周军事入侵乌克兰后，遭到西方所未有的经济制裁，国际信用评级机构纷纷调降俄罗斯主权信用评级，根据事态发展，评级还存在进一步下调的可能。
+参议员马可·卢比奥： 有报道说 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 大规模断电 然而，我们目前掌握的关于其覆盖范围或原因的信息非常有限
 
-惠誉周三（3月2日）将俄罗斯的主权信用评级从“BBB”下调至“B”， 穆迪周四（3月3日）表示，已将俄罗斯的长期发行人和高级无担保债务评级从Baa3下调至B3，标普上周将俄罗斯的评级下调至“垃圾”级。
 
-不出所料，俄乌两国的金融市场都因近几天的形势陷入动荡。这是自二战以来欧洲发生的最大规模的军事攻击，莫斯科也受到了西方的严厉制裁。
 
-惠誉表示，预计针对俄罗斯银行的制裁会进一步加码，这些制裁措施可能对俄罗斯的偿债能力产生影响，西方国家实施的制裁还将明显削弱俄罗斯的GDP增长潜力，低于该评级机构此前评估的1.6%，俄罗斯评级已经处于“负向观察名单”。
+> Reports of large scale power outage in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)
+> 
+> However we have very limited information at the moment about how widespread or the cause
+> — Marco Rubio (@marcorubio) [March 3, 2022](https://twitter.com/marcorubio/status/1499205404961783809?ref_src=twsrc%5Etfw)
 
-穆迪说，这些评级仍在审查中，可能被进一步下调。
 
-消息来源：[惠誉将俄罗斯主权评级下调至“B”](https://cn.reuters.com/article/ritch-russia-rating-0302-wedn-idCNKBS2L007E?il=0)
 
-[穆迪将俄罗斯债务评级从Baa3下调至B3](https://cn.reuters.com/article/moodys-russia-rating-0303-thur-idCNKBS2L006Y?il=0)
+参议员约翰·肯尼迪： 我们必须向北京明确表明，对台湾的武装侵略将对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 经济造成毁灭性打击。 【附肯尼迪参议员官网新闻：肯尼迪，斯科特参议员共同发起如敢入侵台湾就制裁中共国的提案】
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+
+
+> We must make it clear to Beijing that armed aggression towards Taiwan would deal a devasting blow to China’s economy.
+>  [https://t.co/6jeSeWMdLP](https://t.co/6jeSeWMdLP)
+> — John Kennedy (@SenJohnKennedy) [March 2, 2022](https://twitter.com/SenJohnKennedy/status/1499142720086024195?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 认为独裁者可以攫取土地而无需承担后果的想法，是拜登政府最重大的失败。
+
+
+
+> The idea that autocrats can just grab land and suffer no consequences from it is the most significant failure of the Biden Administration. [pic.twitter.com/XoYhOpXn3r](https://t.co/XoYhOpXn3r)
+> — Mike Pompeo (@mikepompeo) [March 2, 2022](https://twitter.com/mikepompeo/status/1499090199644676098?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨: 拜登今晚没有提到要让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对传播导致大流行的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 负责。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 放出致命病毒，是邪恶的，必须承担责任，否则北京将制造更多致命的瘟疫。
+
+
+
+> Biden tonight made no mention of holding Communst China accountable for spreading the virus that caused the pandemic. The CCP unleashed the deadly virus, is evil, and must be held responsible or Beijing will create even more deadly plagues
+> — Bill Gertz (@BillGertz) [March 2, 2022](https://twitter.com/BillGertz/status/1498854110472278016?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 越来越多的迹象表明 [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) 人民越来越意识到乌克兰战争的规模和影响 如果是这样的话，这将使 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 面临两线冲突的危险 他将迅速采取行动，实施旨在防止大规模抗议和（内部）动乱的限制措施
+
+
+
+> Growing signs the people of [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) are becoming increasingly aware of the scale & scope of the [#UkraineRussianWar](https://twitter.com/hashtag/UkraineRussianWar?src=hash&amp;ref_src=twsrc%5Etfw) 
+>  
+> If so this would put [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) in danger of a two front conflict 
+> 
+> He would move quickly to impose restrictions aimed at preventing large protests & unrest
+> — Marco Rubio (@marcorubio) [March 3, 2022](https://twitter.com/marcorubio/status/1499200309926981634?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

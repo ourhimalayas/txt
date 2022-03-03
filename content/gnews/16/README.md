@@ -2,24 +2,27 @@
 ---
 
 
-## 视频|得克萨斯州长要求商店停止销售俄罗斯产品
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2098010/)
+## 有声｜乌克兰希望停火 以便疏散国际留学生
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2097945/)
 
-制作：香草山视频部
+By:**秘翻新闻**
 
-美国媒体3月1日报道，美国得克萨斯州州长格雷格·阿博特正在敦促该州的商店和零售商下架俄罗斯制造的产品，要求酒吧停止出售来自俄罗斯的伏特加，以示与乌克兰的团结。
+**2022-03-03**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-8.png)图片来源 Press service of the Ukrainian State Emergency Service/Handout
+[据《福克斯新闻》3月2日报道，乌克兰外交部呼吁俄罗斯停止杀害哈尔科夫和苏梅地区的人民，以便展开疏散，并称当地学生目前是俄罗斯的人质。](https://www.foxnews.com/world/ukraine-ceasefire-evacuation-students-china)
 
-在过去的一周里，全世界都目睹了俄罗斯进军乌克兰，勇敢的乌克兰人民一直在为阻止入侵不懈战斗。得州州长的行为虽然不可能对俄罗斯造成致命得打击，但强烈地表达了该州对于这场冲突的立场。
+[据乌克兰外交部周三在脸书上发布的消息，来自印度、巴基斯坦和中共国等国家的留学生目前无法离开这些城市，因为俄罗斯武装部队对居民区和民用基础设施进行狂轰滥炸和野蛮的导弹袭击。该政府机构表示，如果安排停火，它将协助国际学生转移到更安全的地区，同时表示目前的疏散工作极其困难。](https://www.foxnews.com/world/ukraine-ceasefire-evacuation-students-china)
 
-同时，得州禁止销售的某些俄罗斯产品，也可能会在国家其他大规模制裁的基础上进一步削弱俄罗斯的海外收入。
+[另外，乌克兰外交部还呼吁印度、巴基斯坦和中共国的政府要求俄罗斯允许进行疏散。](https://www.foxnews.com/world/ukraine-ceasefire-evacuation-students-china)
 
-发稿：谐趣园
+[据报道，俄罗斯军队加强了在哈尔科夫市的行动，并继续对民用基础设施进行打击。据称，哈尔科夫的自由广场被一枚导弹击中，至少导致6人死亡。](https://www.foxnews.com/world/ukraine-ceasefire-evacuation-students-china)
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+秘翻新闻 Grace编译报道
 
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
