@@ -2,10 +2,10 @@
 ---
 
 
-## 乌克兰哈尔科夫行政大楼被导弹攻击
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098881/)
+## 超过十英里的俄罗斯军事车队正向乌克兰基辅逼近
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098884/)
 
-02/28/2022 乌克兰哈尔科夫行政大楼被导弹攻击。
+03/01/2022 超过十英里的俄罗斯军事车队正向乌克兰基辅逼近。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

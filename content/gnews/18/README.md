@@ -2,10 +2,10 @@
 ---
 
 
-## 共产主义中国是美国和世界面临的唯一最重要的生存威胁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098843/)
+## 英国石油公司将退出在俄罗斯石油公司的股份
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098877/)
 
-02/28/2022 皮特·纳瓦罗：共产主义中国是美国和世界面临的唯一最重要的生存威胁
+02/28/2022 英国石油公司周日表示，将退出其在俄罗斯国家的俄罗斯石油和天然气公司的股份，以回应俄罗斯对乌克兰的入侵。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

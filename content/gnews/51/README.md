@@ -2,83 +2,65 @@
 ---
 
 
-## 也许是时候世界支持台湾合法政府的独立了
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2091836/)
+## 文贵直播大事记——Q配合HBO VICE，中共5年下大棋（三）
+` G-NOTES真.贵.记.录` [轉載自GNews](https://gnews.org/zh-hans/2079727/)
 
-参议员马可.卢比奥： 由于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click) 支持承认俄罗斯在 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 的傀儡的独立，也许是时候世界支持 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) 合法政府的独立了
+**设局篇**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220112%E8%AE%BE%E5%B1%80%E7%AF%873.jpg)
+**【编者：内容摘录于文贵大直播，力求保持文贵先生话语的原汁原味，标记了直播日期和时间点，愿读者重温直播以获取更多信息**】
+[2022.01.12文贵大直播GTV链接](https://gtv.org/video/id=61df44f3a6dfdd6031535439)
+[2022.01.09文贵直播大事记—人物篇（三）：中南坑第一高人曾庆红](https://gnews.org/zh-hans/1907149/)
+[2022.01.12文贵直播大事记—七哥为什么要讲昆仑山脉和帕米尔高原（一）](https://gnews.org/zh-hans/2002909/)
+[2022.01.12文贵直播大事记—七哥为什么要讲昆仑山脉和帕米尔高原（二）](https://gnews.org/zh-hans/2005894/)
+[2022.01.12文贵直播大事记—七哥为什么要讲昆仑山脉和帕米尔高原（三）](https://gnews.org/zh-hans/2007211/)
+[2022.01.12文贵直播大事记—七哥为什么要讲昆仑山脉和帕米尔高原（四）](https://gnews.org/zh-hans/2057301)
+[2022.01.12文贵直播大事记—从哈萨克斯坦暴乱看世界四大势力（一）](https://gnews.org/zh-hans/2057197/)
+[2022.01.12文贵直播大事记—从哈萨克斯坦暴乱看世界四大势力（二）](https://gnews.org/zh-hans/2062348/)
+[2022.01.12文贵直播大事记—Q配合HBO VICE，中共5年下大棋（一）](https://gnews.org/zh-hans/2068642/)
+[2022.01.12文贵直播大事记—Q配合HBO VICE，中共5年下大棋（二）](https://gnews.org/zh-hans/2074060/)
 
+## **共产党有组织的在全世界搞一场排华运动**
 
+你们看到了加拿大那个，墨镜有那个视频吗？在商场里边有一个女的说两位咱中国人/华人：“是你们把病毒带到了世界，你们中国人。” 结果这个人被告了，现在被抓起来了。有那个视频吗？我告诉大家，等看那个视频的时候，你知道为什么她被抓了吗？是因为有中国人在现场把它录下来了。如果没有录下来，你没有证据，警察不会抓的，你没办法。所以说现在中国人…..你知道为啥录了，知道吗？
 
-> Since [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) supports recognizing the independence of Russian puppets in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) maybe its time the world supports the independence of the legitimate government of [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Marco Rubio (@marcorubio) [March 2, 2022](https://twitter.com/marcorubio/status/1498825760924176391?ref_src=twsrc%5Etfw)
+昨天加拿大的，其中有人跟我们联系，一个律师说：“郭先生，我希望你来给我们提供一些合作，能不能证实？你们有何种信息证实，现在全世界共产党有组织的在搞一场排华行动而达到中共的政治目的？”
 
+我说：“对不起，我们没有。” 为啥没有？知道吗兄弟姐妹们？一个很简单的问题，加拿大发生这个事情，未来，如果我们介入进去，在世界上会有百万、千万起。记住我今天说的，不是百万，是千万起。我们就被人家超限战了。
 
+## **排华将会更加嚣张**
 
-参议员玛莎·布莱克本： 在对乌克兰采取了令人发指的行动后，俄罗斯不配获得联合国安理会的席位。
+我们会看到比这还嚣张的，不是在商场指着你中国人的鼻子，这俩人也不是跟爆料革命的，说：“你们中国人把病毒带到世界”那种恨，那是震撼的！结果让人给录下来了。而且是一个墨西哥人录下来的，墨西哥人提供给警察。
 
+那我告诉你，在世界现在发生多少？我每天接到无数。
 
+## **新加坡反华案例**
 
-> Russia does not deserve a seat on the UN Security Council after its egregious actions toward Ukraine. [pic.twitter.com/qz24oQcHMK](https://t.co/qz24oQcHMK)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 2, 2022](https://twitter.com/MarshaBlackburn/status/1498829680509693954?ref_src=twsrc%5Etfw)
+就刚刚，我在上这个直播前10分钟，我们有战友在新加坡。新加坡是这么严谨的地方，说到商场的时候，旁边人用马来语说：“这两个傻叉就是纯中国人，从中国来的，这帮王八蛋就该杀，就是他们把病毒带入世界的。” 结果他懂马来语，他就喊“你怎么这么说？” 然后人家说：“你有什么证据？你有什么证据？” 刚刚，就刚刚10分钟以前给我说的。他说：七哥，真的是歧视就在我们旁边。
 
+## **日本反华案例**
 
+昨天晚上的时候，两三点多钟我看信息的时候。我看到了，在日本，咱们战友在车上，旁边有日本人骂，说“你们应该滚回中国去”。在哪？在冲绳，说“你们应该滚回中国去，你们把病毒带到世界。我很多亲人都被你们杀了，我们要报仇。” 而且是很年轻的小伙子。
 
-参议员玛莎.布莱克本： 联合国必须剥夺俄罗斯在安理会的否决权。
+文贵直播大事记2022.01.12-00:29:03
 
+你知道日本战友说什么？他说七哥我告诉你，我懂的在日本的车辆的标志。在大阪你待过，草根兄弟。凡是带有日本叫暴走族，就是黑道的人，他说车后面带个标志的，他说那都是很危险的。他说我真感到害怕。而且咱们很多日本的战友，在过去餐厅工作二十几年的战友，现在被解雇了，无理由解雇。
 
+兄弟姐妹们，你们看到新疆人的下场、哈萨克斯族的下场、西藏人的下场，和印尼排华的下场。你看看这个视频，伊莎贝拉杨，如果没有七哥、咱爆料革命大家的预判，如果没有行动，会像，真是野火烧山脉一样迅速蔓延，你们每个家人都遇到了危害。
 
-> The UN must strip Russia of its ability to veto in the security council.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 1, 2022](https://twitter.com/MarshaBlackburn/status/1498787977719431172?ref_src=twsrc%5Etfw)
+## **美欧大学排斥中国学生，甚至亚洲学者**
 
+我再告诉大家，过去的两周，在美国、欧洲的所有的大学里面，几乎在暗传着一个消息：一定要尽量的不让中国学生到这个学校。这是刚刚死的欧洲的那个主席，他的那助理是咱哥们儿，死了个球的，打了四针，不是打三针，打四针，这哥们儿。那不是疫苗打死的吗？原来跟他合作的，两边儿吃，他已经走了。我说你别打疫苗。他说：“我觉得疫苗能让我活下去，我也不能老开会。” 结果打死了。
 
+他的助理跟我说，他说我们最近收到太多太多这个信息。他的助理是要在欧洲成大人物的。在欧洲和美国的院校，已经私下太多传送“排斥中国学生”，甚至是亚洲学者，已经韩国、日本、台湾、香港、新加坡，都被排在那儿，亚洲学者，他们已经不只是（中国人了）。
 
-拜登总统： 普京总统认为他可以顺利挺进乌克兰——世界将会接受。 相反，他遇到了他从未想到过的强力阻击。 他遇到了(强大的)乌克兰人民。
+这就是共产党太可怕的：“我要把亚洲黄皮肤人放在一个墙里边。” 我花那么长时间，我希望真的能懂。谁死了，命再也回不来。我真不希望任何人死在一个完全…..像加拿大那个女的多危险，她一张口就来“我家是最好的律师”的这种傲慢。这就是一个种族歧视、种族大屠杀。跟印尼排华、你去看看去，当年整个乌干达赶走印度人是一模一样的，一模一样！
 
+我先不说了，你们说说，兄弟姐妹们，真吓人呐！
 
+文贵直播大事记2022.01.12-00:31:55
 
-> President Putin thought he could roll into Ukraine — and the world would roll over.
->  
-> Instead, he met a wall of strength he never imagined.
->  
-> He met the Ukrainian people.
-> — President Biden (@POTUS) [March 2, 2022](https://twitter.com/POTUS/status/1498843134721150979?ref_src=twsrc%5Etfw)
-
-
-
-拜登总统： 美国司法部正在组建一个专门的工作组来追查俄罗斯寡头的罪行。 我们正与我们的欧洲盟友一起寻找并没收他们的游艇、豪华公寓和私人飞机。 我们不会放过他们的不义之财。
-
-
-
-> The U.S. Department of Justice is assembling a dedicated task force to go after the crimes of Russian oligarchs.
->  
-> We are joining with our European allies to find and seize their yachts, their luxury apartments, their private jets. 
->  
-> We are coming for their ill-begotten gains.
-> — President Biden (@POTUS) [March 2, 2022](https://twitter.com/POTUS/status/1498844556300886022?ref_src=twsrc%5Etfw)
-
-
-
-比尔·格茨: 拜登今晚没有提到要让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对传播导致大流行的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 负责。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 放出致命病毒，是邪恶的，必须承担责任，否则北京将制造更多致命的瘟疫。
-
-
-
-> Biden tonight made no mention of holding Communst China accountable for spreading the virus that caused the pandemic. The CCP unleashed the deadly virus, is evil, and must be held responsible or Beijing will create even more deadly plagues
-> — Bill Gertz (@BillGertz) [March 2, 2022](https://twitter.com/BillGertz/status/1498854110472278016?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 同意劳拉·英格拉汉姆[@IngrahamAngle](https://twitter.com/IngrahamAngle) – 拜登必须制裁 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 支持俄罗斯入侵乌克兰的行径。 俄罗斯、[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)、伊朗和北朝鲜是新的邪恶轴心国。 必须阻止他们。
-
-
-
-> Agree with [@IngrahamAngle](https://twitter.com/IngrahamAngle?ref_src=twsrc%5Etfw) – Biden must sanction Communist China for bolstering Russia’s invasion of Ukraine.
->  
-> Russia, China, Iran and North Korea are the new axis of evil.
->  
-> They must be stopped. [https://t.co/dmx0r74mcE](https://t.co/dmx0r74mcE)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 2, 2022](https://twitter.com/MarshaBlackburn/status/1498835382389125120?ref_src=twsrc%5Etfw)
-
-
+整理/发布：Mindy10
+出品：雅典娜速记组
 
  
 
