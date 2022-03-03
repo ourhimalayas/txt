@@ -2,8 +2,8 @@
 ---
 
 
-## 南斯拉夫的真相
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2096748/)
+## 七哥老家朋友打疫苗后的反应，中国人的政治
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2096786/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

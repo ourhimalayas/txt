@@ -2,25 +2,20 @@
 ---
 
 
-## 俄罗斯首任外长呼吁所有外教官辞职 抗议普京入侵乌克兰
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2096739/)
+## 中共宣传的南斯拉夫3个英雄的家人下场是什么
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2096782/)
 
-**撰稿：日本东京方舟农场 海星**
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-3月1日，俄罗斯首任外交部长科济列夫（Andrei Kozyrev）在推特上呼吁所有外交官辞职，以抗议普京下令入侵乌克兰的行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗.jpg)（图片来源：网络）
-据《自由时报》报导，科济列夫于3月1日在推特上发帖呼吁俄罗斯外交官集体辞职，以抗议普京下令入侵乌克兰的战争行为。他真诚地表示，俄罗斯外交官员都是专业人士，不是廉价的宣传员。他们是无法支持目前正在乌克兰发生的血腥战争。
+*发布：陶子*
 
-同日，科济列夫还转发了在日内瓦举行的国际裁军谈判会议视频。该视频显示俄罗斯现任外交部长拉夫罗夫发言时，多国外交官纷纷离开会场，以示声援乌克兰、抗议俄罗斯入侵。科济列夫呼吁俄罗斯外交官也应该效仿视频中的外交官员。
-
-此前，科济列夫在接受美国广播公司（ABC）访问时指出，西方国家对俄罗斯采取的一系列制裁措施正在奏效，并说俄罗斯将会为入侵乌克兰的战争行为支付赔款，类似二战后的德国。
-
-参考链接：
-1.[https://ec.ltn.com.tw/article/breakingnews/3846222](https://ec.ltn.com.tw/article/breakingnews/3846222)
-
-素材采编：海星
-编辑：老孙
-发布：Linda
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

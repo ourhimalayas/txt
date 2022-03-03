@@ -2,34 +2,29 @@
 ---
 
 
-## 联大投票谴责俄入侵乌克兰 要求俄立即撤军
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2096387/)
+## 欧洲议会建议给予乌克兰欧盟候选国地位
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2096627/)
 
-翻译：冰糖葫芦喵
+翻译：sherryok（水云间）
 
-编辑与校对：灭共文明、冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3031.jpg)
 
-《路透社》联合国3月2日报道，周三，**联合国大会以压倒性多数投票通过谴责俄罗斯入侵乌克兰的决议，要求俄罗斯停止进攻并撤军，此举旨在从外交上孤立俄罗斯。**
+欧洲议会支持给予乌克兰欧盟候选人地位的决议。据乌克兰独立新闻社（UNIAN）[报道。](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.unian.net/politics/evroparlament-podderzhal-rezolyuciyu-o-predostavlenii-ukraine-statusa-strany-kandidata-na-vstuplenie-v-es-novosti-ukraina-11724439.html)
 
-报道称 ，这项决议得到了联合国大会**193个成员中的141个成员的支持，**在联合国安理会召开的紧急会议上获得通过。其中，**白俄罗斯、厄立特里亚、朝鲜和叙利亚投了反对票。包括中共国在内的35个成员国弃权**。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/VDCEESARDVLIBL4BTVFW6O4ZVY-e1646260482471.jpg)联合国安理会（图片来源：路透社）
-决议中，联合国谴责俄罗斯“侵略乌克兰”。**据联合国官方网站称，安理会上一次召开大会紧急会议是在1982年。**
+欧洲议会主席罗伯塔·梅佐拉宣布了相应决议的投票结果。其中，637 名议员投了赞成票，13 人投了反对票，26 人弃权。
 
-**美国国务卿安东尼·布林肯**在投票后对记者说，联合国141个成员国都知道，这比乌克兰冲突本身更重要。**这是对欧洲安全和整个基于规则的秩序的威胁。**
+“该决议将提交给有权做出相关决定的欧盟机构和所有成员国。该文件本质上是咨询性的，因此欧洲议会支持授予乌克兰成为欧盟成员候选人的地位这一事实并不表明这一定会发生，” 声明说。
 
-美国驻联合国大使琳达·托马斯·**格林菲尔德**(Linda Thomas-Greenfield)在联合国大会上说，**俄罗斯准备加强其进攻的暴行，并敦促成员国让莫斯科对其违反国际法的行为负责。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/下载-1.jpg)美国驻联合国大使格林菲尔德（图片来源：网络）
-她援引了**俄罗斯军队**将包括将**集束弹药和真空炸弹在内的重型武器运往乌克兰**的视频，**这些武器是国际法禁止的**。
+今天是乌克兰战争的第七天。2022 年 2 月 24 日，俄罗斯总统弗拉基米尔·普京宣布开始一项特别军事行动。这被乌克兰和西方视为全面入侵。2月25日，俄罗斯开始实施严厉的经济制裁。两国军人和平民的伤亡人数都在增加。逃往欧洲的乌克兰难民人数正在增加。反对俄罗斯行动的抗议活动正在世界许多国家发生。
 
-她还说：“这是一个非凡的时刻，现在，联合国比近代史上任何时候都更受到挑战。**如果你相信联合国成员有主权和领土完整的权利，请投赞成票。如果你认为俄罗斯应该为自己入侵的行为负责，请投赞成票。”**
+到2月27日晚，几乎所有欧洲国家都对俄罗斯航空公司关闭了领空。北约国家和美国不仅增加了对乌克兰的财政援助，还开始提供武器。对俄罗斯实施了严厉的制裁。一揽子制裁措施每天都在增加。
 
-乌克兰驻联合国特使谢尔盖·基斯利察(Sergiy Kyslytsa)在敦促通过该决议时表示，**邪恶永远不会停止。它需要越来越多的空间，并称它是为阻止俄罗斯进攻而建造一堵墙的基石之一。**
+2月28日，敌对双方行动仍在继续。在此背景下，俄罗斯与乌克兰举行了第一轮[会谈](https://24-kg.translate.goog/english/225708_Situation_in_Ukraine_Ukrainian_delegation_arrives_in_Belarus_for_talks/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)。细节没有报道。双方将与领导层协商并确定第二轮会谈的日期。
 
-报道指出，**近一周过去了，**俄罗斯仍未实现推翻乌克兰政府的目标。**俄罗斯面临着前所未有的国际反对，尤其是来自西方的反对。西方的制裁使俄罗斯的金融体系陷入瘫痪，同时大型跨国公司纷纷撤出投资。**
+新闻链接：[https://24.kg/english/225925\_European\_Parliament\_recommends\_giving\_Ukraine\_EU\_candidate\_status\_\_/](https://24.kg/english/225925_European_Parliament_recommends_giving_Ukraine_EU_candidate_status__/)
 
-**新闻来源链接：**
-
-[U.N. General Assembly in historic vote denounces Russia over Ukraine invasion | Reuters](https://www.reuters.com/world/un-general-assembly-set-censure-russia-over-ukraine-invasion-2022-03-02/)
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

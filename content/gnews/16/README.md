@@ -2,29 +2,41 @@
 ---
 
 
-## 欧洲议会建议给予乌克兰欧盟候选国地位
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2096627/)
+## 中共无视俄乌战争人道灾难 强调将与俄保持正常贸易关系
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2096663/)
 
-翻译：sherryok（水云间）
+**撰稿：日本东京方舟农场 Kevin wang**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3031.jpg)
+3月2日，俄乌战争加剧，乌克兰境内出现人道灾难，中共政府无视乌克兰境内人道灾难，中共外交部表示，坚决反对任何非法单边制裁俄罗斯，并强调中俄将继续开展正常的贸易合作。
 
-欧洲议会支持给予乌克兰欧盟候选人地位的决议。据乌克兰独立新闻社（UNIAN）[报道。](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://www.unian.net/politics/evroparlament-podderzhal-rezolyuciyu-o-predostavlenii-ukraine-statusa-strany-kandidata-na-vstuplenie-v-es-novosti-ukraina-11724439.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/中国.png)（图片来自网络）
 
-欧洲议会主席罗伯塔·梅佐拉宣布了相应决议的投票结果。其中，637 名议员投了赞成票，13 人投了反对票，26 人弃权。
+中央社报道，联合国难民署1日表示，乌克兰境内估计有100万人因俄罗斯入侵而流离失所。
 
-“该决议将提交给有权做出相关决定的欧盟机构和所有成员国。该文件本质上是咨询性的，因此欧洲议会支持授予乌克兰成为欧盟成员候选人的地位这一事实并不表明这一定会发生，” 声明说。
+联合国人权事务高级专员公署表示，俄国上周入侵乌克兰至今，至少136名平民死亡，其中包括13名孩童，400人受伤。联合国人权事务高级专员公署发言人思罗塞尔表示：实际死亡人数可能更高，乌克兰东部的顿内茨克（Donetsk）和卢甘斯克（Lugansk）伤亡人数就已达到了253人。
 
-今天是乌克兰战争的第七天。2022 年 2 月 24 日，俄罗斯总统弗拉基米尔·普京宣布开始一项特别军事行动。这被乌克兰和西方视为全面入侵。2月25日，俄罗斯开始实施严厉的经济制裁。两国军人和平民的伤亡人数都在增加。逃往欧洲的乌克兰难民人数正在增加。反对俄罗斯行动的抗议活动正在世界许多国家发生。
+面对乌克兰境内出现的人道灾难，中共政府在俄乌战争中仍选择站队俄罗斯。
 
-到2月27日晚，几乎所有欧洲国家都对俄罗斯航空公司关闭了领空。北约国家和美国不仅增加了对乌克兰的财政援助，还开始提供武器。对俄罗斯实施了严厉的制裁。一揽子制裁措施每天都在增加。
+2日下午，有日媒记者提问中共外交部：中国会不会继续购买俄罗斯的天然气？目前西方国家都在制裁俄罗斯，中国如果继续与俄罗斯进行正常贸易的话，是否对中方有影响？
 
-2月28日，敌对双方行动仍在继续。在此背景下，俄罗斯与乌克兰举行了第一轮[会谈](https://24-kg.translate.goog/english/225708_Situation_in_Ukraine_Ukrainian_delegation_arrives_in_Belarus_for_talks/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)。细节没有报道。双方将与领导层协商并确定第二轮会谈的日期。
+中共外交部发言人汪文斌回答称，中方坚决反对任何非法单边制裁， 中俄双方将继续本着相互尊重、平等互利的精神，开展正常的贸易合作。
 
-新闻链接：[https://24.kg/english/225925\_European\_Parliament\_recommends\_giving\_Ukraine\_EU\_candidate\_status\_\_/](https://24.kg/english/225925_European_Parliament_recommends_giving_Ukraine_EU_candidate_status__/)
+另据世界商人网报道，在欧美等国将俄国银行移出swift银行结算系统后，俄国央行便宣布，俄罗斯多家银行已经接入中国跨境银行间支付系统，与此同时，俄罗斯也希望中国银行也加入其自有的金融支付系统——俄罗斯金融信息传输系统，而在上面的这两套系统中，美元和环球同业银行金融电讯协会（SWIFT）都被绕开了。
 
-**审核校对：Barry Jack
-上传排版：V在途中**
+中共政府似乎早已选定了在俄乌战争中的立场。
+
+中央社报道指出，在俄罗斯入侵乌克兰之前的2月4日，俄罗斯总统普京访中并出席北京冬奥委会开幕式之际，双方签署了「中国石油天然气集团有限公司与俄罗斯天然气工业股份公司远东天然气购销协议」。根据协议，俄中的天然气交易，每年增加100亿立方公尺。这也代表俄罗斯对中国天然气的年供应量，将达到480亿立方公尺。
+
+在普京从中国返回俄罗斯20天后的2月24日，俄军便开始了对乌克兰的入侵战争。
+
+参考链接：
+1.[https://www.cna.com.tw/news/aopl/202203020266.aspx](https://www.cna.com.tw/news/aopl/202203020266.aspx)
+2.[https://www.cna.com.tw/news/aopl/202203010389.aspx](https://www.cna.com.tw/news/aopl/202203010389.aspx)
+3.[http://www.globalmerchant.com.cn/Info.aspx?id=1655](http://www.globalmerchant.com.cn/Info.aspx?id=1655)
+
+素材采编：Kevin wang
+编辑：老孙
+发布：Linda
 
  
 

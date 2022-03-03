@@ -15,122 +15,122 @@
 
 ---
 
-### [3小时前俄急剧变化](/content/gnews/1/README.md)
+### [人权人性](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [七哥老家朋友打疫苗后的反应，中国人的政治](/content/gnews/2/README.md)
+### [韩正说习近平就是个傻X](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [中共宣传的南斯拉夫3个英雄的家人下场是什么](/content/gnews/3/README.md)
+### [韩正对日本的态度](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [南斯拉夫事件是中共反美的开始](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [专家表示，俄罗斯将无法通过加密货币规避制裁](/content/gnews/5/README.md)
- ` 纽约香草山MOS02`
-
-### [这个社会的根本问题：教育](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [G翻身的独特性](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [南斯拉夫的真相](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [俄罗斯首任外长呼吁所有外教官辞职 抗议普京入侵乌克兰](/content/gnews/9/README.md)
- ` 日本東京方舟農場`
-
-### [入侵乌克兰后，俄罗斯受到了世界各地广泛的制裁（下）](/content/gnews/10/README.md)
- ` 蓝莲花农场`
-
-### [其他意见 （十一）](/content/gnews/11/README.md)
+### [其他意见 （十二）](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|乌克兰总统泽连斯基就职演说全文](/content/gnews/12/README.md)
- ` MOSREC`
+### [中国人的毁人文化](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
 
-### [中共无视俄乌战争人道灾难 强调将与俄保持正常贸易关系](/content/gnews/13/README.md)
+### [新中国联邦的乌克兰救援100%成功](/content/gnews/6/README.md)
  ` 日本東京方舟農場`
 
-### [入侵乌克兰后，俄罗斯受到了世界各地广泛的制裁（上）](/content/gnews/14/README.md)
+### [3小时前俄急剧变化](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥老家朋友打疫苗后的反应，中国人的政治](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [中共宣传的南斯拉夫3个英雄的家人下场是什么](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [专家表示，俄罗斯将无法通过加密货币规避制裁](/content/gnews/10/README.md)
+ ` 纽约香草山MOS02`
+
+### [俄罗斯使用集束炸弹轰炸乌克兰第二大城市](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [俄罗斯首任外长呼吁所有外教官辞职 抗议普京入侵乌克兰](/content/gnews/12/README.md)
+ ` 日本東京方舟農場`
+
+### [入侵乌克兰后，俄罗斯受到了世界各地广泛的制裁（下）](/content/gnews/13/README.md)
  ` 蓝莲花农场`
 
-### [体育界又一悲剧：一名22岁的年轻橄榄球运动员在训练中死亡](/content/gnews/15/README.md)
+### [其他意见 （十一）](/content/gnews/14/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [有声|乌克兰总统泽连斯基就职演说全文](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [中共无视俄乌战争人道灾难 强调将与俄保持正常贸易关系](/content/gnews/16/README.md)
+ ` 日本東京方舟農場`
+
+### [入侵乌克兰后，俄罗斯受到了世界各地广泛的制裁（上）](/content/gnews/17/README.md)
+ ` 蓝莲花农场`
+
+### [体育界又一悲剧：一名22岁的年轻橄榄球运动员在训练中死亡](/content/gnews/18/README.md)
  ` xiaobaige`
 
-### [欧洲议会建议给予乌克兰欧盟候选国地位](/content/gnews/16/README.md)
+### [欧洲议会建议给予乌克兰欧盟候选国地位](/content/gnews/19/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [3/2/2022 文贵直播：新中国联邦的大营救没有私心只为救人；我们为救人不会考虑成本代价，但要绝对保证所有人的安全](/content/gnews/17/README.md)
+### [3/2/2022 文贵直播：新中国联邦的大营救没有私心只为救人；我们为救人不会考虑成本代价，但要绝对保证所有人的安全](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [3/2/2022 文贵直播：隐瞒真相控制媒体是中共控制人民的手段；有20多个中国人已在乌克兰战争中罹难，但中共不允许消息被报道出去](/content/gnews/18/README.md)
+### [3/2/2022 文贵直播：隐瞒真相控制媒体是中共控制人民的手段；有20多个中国人已在乌克兰战争中罹难，但中共不允许消息被报道出去](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [联大投票谴责俄入侵乌克兰 要求俄立即撤军](/content/gnews/19/README.md)
- ` 蓝莲花农场`
-
-### [郭文贵精品视频-策略大师预判战争走向](/content/gnews/20/README.md)
+### [郭文贵精品视频-策略大师预判战争走向](/content/gnews/22/README.md)
  ` cindy`
 
-### [小男孩泪流满面地描述逃离乌克兰,因为他父亲留下来保护国家](/content/gnews/21/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [韩囯单日新增确诊病例突破21万例](/content/gnews/22/README.md)
+### [韩囯单日新增确诊病例突破21万例](/content/gnews/23/README.md)
  ` 纽约香草山MOS02`
 
-### [俄罗斯银行挤兑开始 提醒所有人银行稳定性](/content/gnews/23/README.md)
+### [俄罗斯银行挤兑开始 提醒所有人银行稳定性](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“天安门母亲”：承载八九六四之重并护佑新中国联邦六四之新生](/content/gnews/24/README.md)
+### [“天安门母亲”：承载八九六四之重并护佑新中国联邦六四之新生](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [五月花简报（03/02/2022）](/content/gnews/25/README.md)
+### [五月花简报（03/02/2022）](/content/gnews/26/README.md)
  ` mayflowertranslate`
 
-### [新数据显示COVID疫苗对年轻人只有风险没有好处（3/3）](/content/gnews/26/README.md)
+### [新数据显示COVID疫苗对年轻人只有风险没有好处（3/3）](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共战狼拒绝躲在地下室里在乌克兰中国留学生的求救](/content/gnews/27/README.md)
+### [中共战狼拒绝躲在地下室里在乌克兰中国留学生的求救](/content/gnews/28/README.md)
  ` mayflowertranslate`
 
-### [基辅市长称城市被包围，后来又收回了这一说法](/content/gnews/28/README.md)
+### [基辅市长称城市被包围，后来又收回了这一说法](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共将毀于自身的假和騙](/content/gnews/29/README.md)
+### [中共将毀于自身的假和騙](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
 
-### [拜登宣布 “从检测到治疗”计划，免费提供抗新冠病毒口服药](/content/gnews/30/README.md)
+### [拜登宣布 “从检测到治疗”计划，免费提供抗新冠病毒口服药](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022/02/28 墙内世界](/content/gnews/31/README.md)
+### [2022/02/28 墙内世界](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [习近平和普京已变成孤家寡人](/content/gnews/32/README.md)
+### [习近平和普京已变成孤家寡人](/content/gnews/33/README.md)
  ` 纽约香草山MOS02`
 
-### [《中共邪教七日谈》](/content/gnews/33/README.md)
+### [《中共邪教七日谈》](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [拜登国情咨文中称，普京将付出持续的高昂代价](/content/gnews/34/README.md)
+### [拜登国情咨文中称，普京将付出持续的高昂代价](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌克兰要求欧美协助建立禁飞区](/content/gnews/35/README.md)
+### [乌克兰要求欧美协助建立禁飞区](/content/gnews/36/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [拜登呼吁国会尽快提交提高美国与中共国竞争力的法案](/content/gnews/36/README.md)
+### [拜登呼吁国会尽快提交提高美国与中共国竞争力的法案](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [3/2/2022 国际财经快讯：俄罗斯供应担忧加剧，欧洲天然气价格触及新高；欧盟将七家俄罗斯银行排除在SWIFT之外](/content/gnews/37/README.md)
+### [3/2/2022 国际财经快讯：俄罗斯供应担忧加剧，欧洲天然气价格触及新高；欧盟将七家俄罗斯银行排除在SWIFT之外](/content/gnews/38/README.md)
  ` 秘密翻译组金融团队`
 
-### [乌克兰战争再次表明中国人将为中共买单](/content/gnews/38/README.md)
+### [乌克兰战争再次表明中国人将为中共买单](/content/gnews/39/README.md)
  ` 波士顿五月花农场`
-
-### [西媒头条 — 第183期](/content/gnews/39/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [美国民众对拜登处理俄乌危机的支持度上升](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
