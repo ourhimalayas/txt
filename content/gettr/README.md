@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@yezhaoying 3/3/2022 8:56 PM (UTC)`
+
+英文版
+![img](https://media.gettr.com/group49/getter/2022/03/03/20/5ecdfaee-3970-933b-d795-4dec7b319300/out.jpg)
+
+---
+
+`@miles 3/3/2022 8:58 PM (UTC)`
+
+3月3号：世界上最有杀伤力的，不是核武器……是中共的谎言！我R你中国共产党八辈祖宗……【中共养了几十万大外宣不是白养的】
+![img](https://media.gettr.com/group41/getter/2022/03/03/20/584259cd-344b-9bfc-fc50-155a5b285d9f/58bb020bcdf523188bb2e3ea8221ddbe.jpg)
+
+---
+
 `@miles 3/3/2022 6:30 PM (UTC)`
 
 3/2/2022 Miles Guo: The Way of Righteousness must include faith. What is the essence of the Way of Righteousness? It is necessary to have the populism movement, but what is its limitation? What has gone wrong with capitalism? Why will the New Federal State of China benefit the most after the Russia-Ukraine war is over?<br/><br/>3/2/2022 文贵直播：正道主义必须包含信仰，它的核心是什么？平民运动是必要的，但其局限在哪儿？资本主义出了什么问题？为什么新中国联邦将是这次俄乌战争后的最大受益者？<br/>
@@ -141,20 +157,6 @@ We’ve seen this coming, and we’ve been reactionary. That gave Vladimir Putin
 `@miles 3/2/2022 4:34 PM (UTC)`
 
 3月2号：这就是邪恶的中国共产党……比爹娘还亲的中国共产党。这就是强大的战狼外交的中国共产党！看看这个视频吧兄弟姐妹们！尊敬的战友们好．由于本星期五是我母亲的冥诞日．所以本周五没有直播。💪💪💪😭😭😭https://youtu.be/tqN4sI4SNRc
-
----
-
-`@miles 3/2/2022 1:08 PM (UTC)`
-
-2022年3月2日 文贵大直播：乌克兰救援人道关怀；俄乌战争中国人遭恨；核战与全球经济崩溃；新中国联邦之大拯救
-![img](https://media.gettr.com/group40/origin/2022/03/02/13/bdcfd878-7cd5-e091-6761-8bbf5edbc870/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/2/2022 12:15 AM (UTC)`
-
-3/1/2022 Miles Guo’s GETTR: In a war, life always comes first. However, the CCP is launching a disinformation campaign to smear the New Federal State of China for collecting personal information in the name of rescuing the Chinese people in Ukraine. The Chinese have unfortunately turned out to be hated the most in the Russia-Ukraine war. The New Federal State of China will arrange flights taking off from the neighboring countries of Ukraine to the US, Chinese visa-free countries, or Southeast Asia respectively, please see the upcoming announcements for detailed information.<br/><br/>3/1/2022 文贵盖特：战争中生命第一，而中共却造假污蔑新中国联邦收集个人信息；俄乌战争中最被人恨的是中国人；新中国联邦会在乌克兰周围安排飞机分别飞往美国、中国免签国或东南亚，具体请见公告<br/>
-![img](https://media.gettr.com/group37/getter/2022/03/02/00/7c9cfc7f-0f13-8a02-22e4-6d75004935ec/out.jpg)
 
 ---
 

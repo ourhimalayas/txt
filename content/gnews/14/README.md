@@ -2,51 +2,46 @@
 ---
 
 
-## 安大略省确认又有 19 例 COVID-19 死亡
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2101353/)
+## 报道称中共国要求俄罗斯将与乌克兰的战争推迟到奥运会之后
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2101382/)
 
-作者：Kerrisa Wilson
-翻译：HimaCoby
-![](https://assets.gnews.org/wp-content/uploads/2022/03/22_105TI15.png)
-据安省政府网站3日通报，过去24小时，新增确诊2262人，全省累计确诊1,107,408人。
+***评论：** 中共国主席习近平与俄罗斯总统普京的亲密关系在奥运会开幕式上再次展示给世人，在联合国谴责俄罗斯入侵乌克兰的投票中投了弃权票，处处显示了中共国支持俄罗斯的入侵行动。*
 
-新增治愈2293人，至今1,077,985人已康复。
+据《justthenews.com》作者：[Sophie Mann](https://justthenews.com/sophie-mann)，2022年3月2日报道：
 
-今天通报死亡新增19人，由于数据清理，系统移除了2个死亡病例。
+弗拉基米尔-普京总统和习近平主席最近一次会晤是在北京奥运会开幕式之前。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-321-e1646336215837.png)图片来源：网络
+据报道，中共国高级官员上个月告诉俄罗斯高级官员，在北京冬奥会结束后再入侵乌克兰。
 
-安省已有12,497人死于新冠。
+据《纽约时报》报道，这一消息是基于一份西方情报报告，该报告表明中共国高级官员在一定程度上了解俄罗斯与乌克兰开战的意图。
 
-目前有834名新冠患者在医院接受治疗，这是自去年12月29日以来的最低值。当时有726人住院。
+俄罗斯领导人弗拉基米尔-普京和中共国国家主席习近平在2月4日奥运会正式开始之前进行了会晤，不久之后发表了一份长篇声明，宣布两国的伙伴关系的广度“没有限制”，并谴责北约的任何进一步扩张。
 
-这些住院患者中，有267人在重症病房，一周前有302名重症病人。
+新闻媒体内部曾有猜测，入侵将在北京的国际运动会之后发生。
 
-这些住院患者中，45%的人因为新冠住院，其余55%因其他原因入院但新冠检测呈阳性。重症病房内，80%的病人因新冠进ICU，20%因其他原因重症，但被确诊新冠。
+奥运会闭幕式后的第二天，普京命令更多俄罗斯军队进入叛乱分子控制的乌克兰东部地区。仅仅四天后，俄罗斯军队就开始了对该国的全面入侵。
 
-今天通报的死亡病例中有17个发生过去一个月时间内，另外两个发生在一个月以前。
+自入侵以来，中共国官员表现出对俄罗斯的广泛支持，以及对北约所谓的努力的持续关注。中共国外交部指责美国使乌克兰和俄罗斯之间的紧张局势升级，导致了目前的情况，同样也批评了美国和欧洲国家对俄罗斯的制裁。
 
-安省今天通报的确诊病例超过2200人，不过由于安省限制了检测人群，通报人数无法反映实际情况。
+文章观点仅代表作者个人，与Gnews平台无关
 
-这些新增病例中，1762人打过两针，259人未接种疫苗，66人打了一针，175人疫苗状态不明。
+原文连接：[https://justthenews.com/world/china-asked-russia-delay-war-ukraine-until-after-olympics-report](https://justthenews.com/world/china-asked-russia-delay-war-ukraine-until-after-olympics-report)
 
-过去24小时内，安省实验室完成了16,606次检测，阳性率为10.2%。
+翻译：洛杉矶盘古农场- TrueSky
 
-从大多区情况来看，多伦多市新增确诊324人，杜兰区新增134人，皮尔区新增120人，约克区新增92人，Halton地区新增92人。
+校对：洛杉矶盘古农场 – Mike Li
 
-来源：https://www.cp24.com/news/ontario-confirms-19-more-covid-19-deaths-under-900-hospitalizations-1.5803923
+评论：洛杉矶盘古农场 –傻小子
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+编辑：洛杉矶盘古农场 –傻小子
 
-**关注我们**
+发布：洛杉矶盘古农场 –子萍
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
  
 

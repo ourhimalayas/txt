@@ -2,33 +2,39 @@
 ---
 
 
-## 俄罗斯艺术家：停止这场战争吧，你们不要以我们的名义发动！
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2101544/)
+## 美国战略部：必须遏制中俄核威胁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2101574/)
 
-**17,000多名俄罗斯文化工作者向普京总统发出了慷慨激昂的呼吁。他们要求立即结束战争。**
+整理：围剿维尼熊
+编辑：Candy
 
-作者：ctu
+**【雅典娜快讯】，紧贴时代脉搏**
 
-翻译：Luckycky/校对:  Teresa
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image1.tiff)图片：2021年7月25日，俄罗斯，圣彼得堡：俄罗斯总统弗拉基米尔·普京（中）发表讲话，俄罗斯海军总司令尼古拉·叶夫曼诺夫上将（左）和俄罗斯国防部长谢尔盖-绍伊古（右）在海军节游行中敬礼。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/核威胁.png)图片来源：Shutterstock
 
-在一封公开信中，17000多名俄罗斯文化工作者要求俄罗斯人从乌克兰撤出。艺术家、策展人、建筑师、评论家、艺术史家和艺术经理人以此表明反对俄罗斯总统弗拉基米尔·普京的立场。他们写道：“部署特别行动”的借口完全是由俄罗斯当局的代表策划的，我们反对以我们的名义发动这场战争。
 
-签署者呼吁结束战争，并呼吁两国 “在尊重和相互平等的基础上”进行谈判。
+根据大纪元2022年3月3日讯，美国战略司令部（U.S. Strategic Command）司令、海军上将查尔斯·理查德（Charles Richard）表示，美国必须具备同时防御俄罗斯和中共的核打击的能力，这已成为当务之急。
 
-文化工作者指出，家人、朋友和同事都处于受到攻击的“主权和独立国家”。他们写道：“乌克兰的战争对乌克兰人和俄罗斯人来说都是一个可怕的悲剧。此外，任何通过暴力“强行和平”的行为都被认为是 “荒谬的”。
+他指出，虽然在去年4月，关于同时遏制中共和俄罗斯的必要性的问题，只是处于一个被主要关切的水平，但现在，这种令人担忧的情况“已经成为现实”。
 
-艺术家们指出，这场战争也将对俄罗斯文化部门产生重大影响。 签名者说：“在过去30年中，文化方面取得的一切成就现在都岌岌可危”。在目前的条件下，几乎不可能从事文化和艺术活动。他们坚决地说：“不要战争！”
+理查德说：“去年秋天，我正式向国防部长报告了中国（中共）的战略突破。它仅在2021年的扩张和现代化，就已令人感到惊讶。”
 
-俄罗斯艺术家还以其他方式表达对克里姆林宫的批评和对入侵的反对。柏林爱乐乐团的俄罗斯-奥地利首席指挥基里尔·佩特连科（Kirill Petrenko）最近宣称，普京对乌克兰的“阴险”攻击是 “在整个和平世界的背后捅了一刀”。来自柏林的长笛演奏家和作曲家纳塔利娅-普谢尼奇尼科娃（Natalia Pschenitschnikova ）在音乐杂志《 [Van](https://van-magazine.com/mag/russian-musicians-putin-ukraine)》上说得更加明确：“俄罗斯军舰，去你的！“
+2月4日，俄罗斯总普京（Vladimir Putin）和中共领导人习近平举行会晤后发表声明称，中共和俄罗斯对美国的威胁比以往任何时候都大，因为这两个邻国目前拥有“不受限制”的伙伴关系。
 
-在俄罗斯入侵乌克兰的当晚，钢琴家亚历山大-梅尔尼科夫（Alexander Melnikov ）向波鸿的听众讲述了他人生中 “最糟糕的早晨”。正如新闻门户网站 [Slippedisc](https://slippedisc.com/2022/02/a-russian-pianist-accepts-responsibility-for-the-war)报道的那样，梅尔尼科夫显然非常生气—“对他们（普京或他的政党，编者注）让我为自己是俄罗斯人感到内疚而愤怒。”
+据报导，去年夏天，中共试射了可携带核弹头的高超音速导弹，导致参谋长联席会议主席马克·米利（Mark Milley）惊呼，这次试验非常接近“斯普特尼克时刻”（Sputnik moment）。
 
-原文链接：[https://www.berliner-zeitung.de/kultur-vergnuegen/russische-kuenstler-stoppt-diesen-krieg-ihr-fuehrt-in-nicht-in-unserem-namen-li.214997](https://www.berliner-zeitung.de/kultur-vergnuegen/russische-kuenstler-stoppt-diesen-krieg-ihr-fuehrt-in-nicht-in-unserem-namen-li.214997)
+此外，有报导称，中共正在建造数百个新的核导弹发射井。
 
-发布：Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+参考链接：[海军上将：美国面临前所未有的中俄核威胁](https://www.epochtimes.com/gb/22/3/3/n13617568.htm)
 
+***发布：Candy***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

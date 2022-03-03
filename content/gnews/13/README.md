@@ -2,16 +2,10 @@
 ---
 
 
-## 五月花简报（03/03/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2101365/)
+## 3/2/2022 文贵直播: 俄乌战争形势让习太阳在攻台问题上发怵，某种程度上拯救了台湾，所以我们更要努力救援乌克兰人
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2101518/)
 
-编辑：波士顿五月花—冲天一怒
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/75127BB1-515B-4ECE-861E-58ACE3204243.jpeg)
-
-*发布：思澈*
-
-
+秘密翻译组-北美组
 
  
 
