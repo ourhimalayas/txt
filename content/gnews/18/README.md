@@ -2,58 +2,24 @@
 ---
 
 
-## FDA警告一些COVID-19快筛测试结果可能出错
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2099814/)
+## 疫苗的脂质纳米颗粒高度诱发炎症
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2099963/)
 
-**翻译：Lulumi**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip医生或医疗技术人员展示用于检测新型冠状病毒.png)医生或医疗技术人员展示用于检测新型冠状病毒、SARS-CoV-2的IgM和IgG抗体的快速实验室COVID-19测试棒，结果为阳性。对Covid-19、呼吸道病毒性肺炎的免疫力。
-美国食品和药物管理局（FDA）周二表示，三种快速COVID-19测试不应该被使用，因为有可能产生错误的结果。
+加拿大温哥华杨帆农场 枫叶快讯
 
-FDA告诉人们停止使用Celltrion DiaTrust COVID-19 Ag快筛测试棒、SD Biosensor Inc. STANDARD Q COVID-19 Ag家庭检测棒和Flowflex SARS-CoV-2抗原快速检测棒（自我检测）。
+采编/编译撰稿：薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-286.png)图片来源：https://www.merckmillipore.com/
+据美国[国家医学图书馆]最新研究报告指出，用于疫苗载体的脂质纳米颗粒能高度诱发炎症是实验性mRNA疫苗副作用之一，并在进入体内后产生快速和强烈的炎症反应。
 
-据该机构称，“FDA对使用这些测试时出现错误结果的风险感到担忧”。该机构补充说，这些测试“未经美国食品和药物管理局授权、审核或批准在美国销售或使用”。
+报告称，疫苗内的脂质纳米颗粒作为载体，旨在保护mRNA在细胞内传递时不被分解和逃逸。该载体将在正常人体组织中造成大量过剩的中性粒子细胞，从而激活多种炎症通路，产生各种炎症细胞因子和趋化因子，并最终引发高死亡率肺部炎症。
 
-该机构说，这三种测试都是通过鼻拭子进行的。该机构建议，如果病人在不到两周前使用过这三种测试中的任何一种，医疗机构应让他们接受新的测试。
+然而，【辉瑞】和【莫德纳公司】却先假设该载体的非炎症性，并将在人体临床试验中所报告的大量疼痛、肿胀、发烧和困倦等副作用，解释为疫苗有效的适应性免疫反应。但以上研究则证明，mRNA疫苗因含有脂质纳米颗粒而诱发了急性炎症反应的副作用。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip快筛.png)
+校对编辑：硫酸羟氯喹64
 
-FDA说，ACON实验室已召回其所有Flowflex测试，SD Biosensor已召回其测试，Celltrion USA已召回其所有DiaTrust测试。
+发稿：青青
 
-FDA说：“人们不应该使用绿色和白色包装的Celltrion DiaTrust COVID-19 Ag快筛测试，”包括一张测试的照片。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip快速筛查.png)
-
-SD Biosensor的“未经授权的测试棒可能被包装在一个白色和洋红色的盒子里，”FDA说。
-
-而据该机构称，ACON实验室的测试棒是用深蓝色盒子包装的。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip快速筛查-1.png)
-
-美国食品和药物管理局说，它“没有收到与使用这三种测试中的任何一种有关的伤害、不良健康后果或死亡的报告”。
-
-ACON实验室在一份声明中表示，这些未经授权的测试棒是一种“掺假和误标的假冒产品”。
-
-今年2月，美国食品和药物管理局因类似原因对E25Bio COVID-19直接抗原快速检测、Empowered Diagnostics CovClear COVID-19快速抗原检测和ImmunoPass COVID-19中和抗体快速检测发出警告。也开始对这些测试进行召回。
-
-美国食品和药物管理局（FDA）警告人们停止使用Empowered Diagnostics公司的CovClear COVID-19快速抗原测试和ImmunoPass COVID-19中和抗体快速测试，该卫生机构的声明当时说：“这些测试在分发时的标签显示它们得到了美国食品和药物管理局的授权，但这两种测试都没有得到美国食品和药物管理局的授权、许可或批准，在美国分发或使用。”
-
-这也是因为一些毒物控制中心警告人们不要不当使用家用COVID-19测试，因为它们含有叠氮钠，一种潜在的有毒物质。一些地方的毒物控制中心和医院已经警告说，关于接触这种化学品的电话在增加。
-
-Flowflex公司和Celltrion公司生产的测试产品含有这种物质。
-
-COVID-19是由CCP（中国共产党）病毒引起的疾病。
-
-**新闻来源**：[theepochtimes.com][FDA Warns of Possible False Results From Some COVID-19 Tests](https://www.theepochtimes.com/fda-warns-of-possible-false-results-from-some-covid-19-tests_4312340.html?utm_source=newsnoe&amp;utm_campaign=breaking-2022-03-02-4&amp;utm_medium=email&amp;est=HTZNekRlfY%2FcDco6M8h%2BiPD5lcyOUOCv%2Fi%2BwjSSwLTBm%2FM2uZqg7p3vVYGHkQFdJtAgeMqE%3D)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-1.jpeg)
-
-
+原文链接： [The mRNA-LNP platform’s lipid nanoparticle component used in preclinical vaccine studies is highly inflammatory](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8604799/)
 
  
 

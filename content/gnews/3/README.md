@@ -2,8 +2,8 @@
 ---
 
 
-## 20220302郭文贵大直播 ： 新中国联邦救援提供免费吃 住 行并且不需要任何个人信息
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2100065/)
+## 20220302郭文贵大直播 ：新中国联邦成功救援在乌克兰的战友及家人
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2100138/)
 
 作者：东京樱花团小视频组
 
