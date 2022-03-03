@@ -2,8 +2,8 @@
 ---
 
 
-## 人权人性
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2096842/)
+## 支持乌克兰真不是操作的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2096907/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

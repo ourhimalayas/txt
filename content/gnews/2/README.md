@@ -2,8 +2,8 @@
 ---
 
 
-## 普习真的活在梦中
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2096855/)
+## 德国支持乌克兰
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2096929/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
