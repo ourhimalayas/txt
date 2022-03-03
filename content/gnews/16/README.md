@@ -2,46 +2,40 @@
 ---
 
 
-## 随着制裁生效，俄罗斯 UBC 学生出现财务危机
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2101404/)
+## 2022/03/03 文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2101733/)
 
-作者：CBC News
-翻译：HimaCoby
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ad-e1646343284534.png)
-不列颠哥伦比亚大学的一名国际学生表示，在对俄罗斯实施经济制裁的情况下，他也面临着不确定性。
+[![](https://express.adobe.com/page/4jT6YUnxk0URX/images/6829a295-45b4-4e5d-8160-03dcb8bfc9ae.png?asset_id=63604ea0-64b6-42e3-ad67-39d57bb4d626&amp;img_etag=%229ac172f135530c7d8195c2c3a2de7a14%22&amp;size=2560)](https://express.adobe.com/page/4jT6YUnxk0URX/images/6829a295-45b4-4e5d-8160-03dcb8bfc9ae.png?asset_id=63604ea0-64b6-42e3-ad67-39d57bb4d626&amp;img_etag=%229ac172f135530c7d8195c2c3a2de7a14%22&amp;size=1024)
+[**GETTR视频链接**](https://gettr.com/post/pxzpvd8eb7)
 
-二年级学生 Artemi Meshcherin 说，他已经好几天无法从他在莫斯科的父母那里获得资金。
+• 明天农历二月初二龙抬头，七哥母亲冥诞三周年。七哥因想念家人昨天彻夜未眠。战友们请珍惜亲人。
 
-“现在，我在经济上与家里隔绝，”他说。
+• 新中国联邦救援行动已经救出三家在乌克兰战友。大卫和文耀已到达华沙，陆续还有从加拿大美国战友前往波兰。本周计划安排两架飞机撤离（一架飞往东南亚、一架飞往美加）。百分之百救出战友，会有直播介绍细节。
 
-随着该国对乌克兰的入侵愈演愈烈，加拿大和包括美国在内的其他国家对俄罗斯实施了实质性制裁，最引人注目的是切断了俄罗斯主要银行与世界其他地区的联系。
+• 听说普京要动用大招对付乌克兰人民，普京下手越猛死得越惨。
 
-Mescherin 说他不确定自己会被锁定多久。
+• 俄罗斯人欲找七哥疯狂变卖资产，七哥不搭理。
 
-“不幸的是，许多俄罗斯人，包括在 UBC 和加拿大的俄罗斯学生，他们必须根据政府做出的决定而买单，”他说。
+• 新的数字货币时代已经诞生，中共向俄罗斯提供兑换人民币业务，美国用法币（Swift系统）惩罚俄罗斯。
 
-“而且我们无法控制这一点。而且我认为说我们与现在正在发生的一切有某种关联是不公平的。”
+• 美国朋友透露西方“大杀器”还是美元，俄乌局势将催生新的金融系统数字货币（有稳定币锚定的数字币、不能被垄断）。
 
-作为一名国际学生，他只能做兼职。他希望他在这里赚到的钱能让他暂时维持生计，但这还不足以支付学费，他说，与国内学生相比，国际学生的学费要高得多。
+• 七哥提前向美国朋友预测彭培奥先生和余茂春先生访问台湾的后果：
 
-根据 UBC 的说法，许多学生处于类似情况。该大学建议他们与大学官员交谈，并补充说，紧急助学金等支持已经到位。
+1. 飞机出现故障；
+2. 出现停电并常态化；
+3. 台湾金融和科技系统被骇客。中共习惯性“下三路” 。
 
-Meshcherin 说，他正在应对不确定性带来的压力，但他指出，与他在校园里的乌克兰朋友所经历的相比，这相形见绌，因为​​他们的朋友和家人都处于直接危险之中。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**关注我们**
 
-Discord 账号
+*编辑：【英国伦敦喜庄园编辑部】*
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+*听写：* *call me uncle* *| 校对：乐禧禧 | Page：我是球大哥*
+[![](https://express.adobe.com/page/4jT6YUnxk0URX/images/6f7d1e61-4a08-4822-8ef2-ebfe30c3fee0.jpg?asset_id=885950a2-4f24-4fda-a943-7478a4ed841d&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/4jT6YUnxk0URX/images/6f7d1e61-4a08-4822-8ef2-ebfe30c3fee0.jpg?asset_id=885950a2-4f24-4fda-a943-7478a4ed841d&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

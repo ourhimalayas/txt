@@ -2,42 +2,53 @@
 ---
 
 
-## 有声|中共将毀于自身的假和騙
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2101721/)
+## 医疗保健英雄： 皮尔被授予密市抗击 COVID-19 的城市钥匙荣誉
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2101805/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+作者：Chris Fox
+翻译：HimaCoby
+![](https://assets.gnews.org/wp-content/uploads/2022/03/23_1452404Y8_0.jpg)
+密西沙加市应对COVID-19大流行的一位关键人物今天获授予密市城市钥匙。
 
-```
-在2月27日的大直播中，郭先生表示，俄乌战争对中共的触动很大，已经影响到中共的对台作战战略，但是中共将会毁于自身的假和骗。
-```
+皮尔区首席卫生官Dr. Lawrence Loh周四上午在市政厅的新闻发布会上被授予了这一荣誉。
 
+这是他计划参加的最后一次定期新闻发布会。在过去两年里，Loh每周向市民通报新冠肺炎疫情的进展，也每周向Brampton居民发布最新情况。
 
-郭先生说，习近平具有非常矛盾的性格，文化程度不高、循规蹈矩却又非常固执倔强。“双头鹰计划”是习近平与普京的既定战略，因此对于习来说，开两会和打台湾并不对立。据中共军方人士告诉郭先生说，中共原先认为俄罗斯会在48小时内拿下乌克兰，并对泽连斯基进行斩首。因此中共也曾经计划迅速攻下台湾，并用无人机对民进党高层进行斩首。或者依靠台湾卖台贼进行内部斩首，即所谓的“杀独救台”。但是俄乌战争中俄罗斯糟糕的表现，和乌克兰成功的信息战、科技战、网络战所形成的强烈对比，对中共有很深的触动。
-中共军委副主席许其亮和总参三部的李八喜，看到俄乌战争战况以后表示，如果共军使用最廉价的武器进行闪电战，妄图侵略台湾的结局恐怕会适得其反。因为不仅美日在台海周围布置了潜艇部队，而且共军攻台的空军、无人机和导弹，都依赖信息通信，而共军的电子战又是他们的致命短板，因此当前俄乌战争状况对中共军方震动很大，已经影响到了共军的攻台战略。但是共军的下级军官为了保全自身的命运和既得利益，却只能欺骗共军高层应该继续对台湾实行闪电战，因此中共一定会毁于自身的相互造假和相互欺骗。
+本周他宣布，鉴于Omicron变种的疫情改善，以及大多数公共卫生限制解除，他也将停止定期参加这些简报会。
 
+密市市长Bonnie Crombie在向卫生官颁发钥匙时说：“自这场大流行开始以来，Dr. Loh一直把重点放在了一件事上，就是尽一切可能确保密西沙加和皮尔区居民的安全。我知道，和我一样，许多居民很欣赏他诚实和直率的方法。但我最敬佩的是他是一位坚强而有原则的领导者。他经常处于非常难的境地，不得不支持并做出一些非常不受欢迎的决定。但他在这么做的时候知道，这最终将有助于保护我们，事实也的确如此。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/AP21130749430770.jpg)
+Dr. Loh在2020年3月大流行开始时担任皮尔区的临时卫生医务官，并最终在几个月后担任这一永久职位。
 
+市长说，由于皮尔区在疫情初期“受到的打击比省内其他任何地区都要严重”，Dr. Loh经常不得不“采取更深入的卫生措施，更好地保护企业、工人和居民”。
 
-文字版原文：[中共将毀于自身的假和騙](https://gnews.org/zh-hans/2095233/)
+但她表示，这样做减缓了疫情在本地的影响，现在已经为“一个令人难以置信的光明的春天和夏天铺平了道路，人们可以完全回去做他们喜欢的事情。”
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+“Dr. Loh，你真是一个名副其实的医疗英雄，”市长说，“我代表密市和我的同事，我们永远心存感激。”
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Dr. Loh周四在接受记者采访时表示，城市钥匙 “代表了许多人的工作，他们真正发挥了作用，将COVID的风险从灾难性转变为我们可以学会接受的风险。”
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+然而，Dr. Loh警告称，在我们与COVID-19的长期斗争中，可能仍会“有一些颠簸”。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+根据最新数据，安省现有800多名COVID-19患者仍在医院接受治疗，包括267名重症监护患者。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+Dr. Loh说：“我敦促大家保持耐心和警惕，我们将继续在这个过渡中前进。”
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+来源：https://toronto.ctvnews.ca/a-health-care-hero-peel-s-top-doctor-awarded-the-key-to-mississauga-for-efforts-in-battling-covid-19-1.5804135
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

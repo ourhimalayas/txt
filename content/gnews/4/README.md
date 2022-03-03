@@ -2,39 +2,52 @@
 ---
 
 
-## 有声|俄SWIFT将被切断 加息难阻民众挤兑
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2101940/)
+## 国际社会的另一个选项：终止俄罗斯安全理事会常任理事国地位
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2102087/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-2月28号，在美欧周六发表联合声明，同意将俄罗斯指定银行踢出SWIFT国际结算系统之后，俄罗斯央行立即将关键利率从9.5%提高到20% 。尽管采取了紧急措施，在俄各地仍然迅速出现银行挤兑的状况。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-01-%E4%B8%8B%E5%8D%8811.35.41.png)
-据俄罗斯央行称，大幅提高利率，是为了 “支持金融和价格稳定，并保护公民的储蓄不受贬值影响”。同时，将释放7330亿卢布的本地银行储备，以提高货币流动性。另外，俄罗斯央行和财政部表示，将命令俄罗斯出口公司在市场上出售其80%的外汇收入。
+作者：纽约香草山农场 – 四季
 
-这一系列举措显示出俄央行对银行挤兑的担忧。事实上，在各大城市的自动取款机上，已经出现了排长队提取现金的情况。某购物中心一台ATM机前大约排了70人，目击者说，取款机的钱在40分钟内就被取完了。
-
-据悉，俄罗斯现有约6300亿美元的外汇储备，为有史以来的最高水平。分析人士认为，这有助于抵御制裁和出口创汇的损失。但如果海外资产被冻结，俄罗斯的货币金融系统将出现灾难性的后果。截至目前，卢布兑美元持续跌至1美元兑119.50卢布，较上周五收市时贬值45%。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
 
-文字版原文：[俄SWIFT将被切断 加息难阻民众挤兑](https://gnews.org/zh-hans/2092085/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+
+据某媒体3月2日[报道](https://www.stvincenttimes.com/us-eyeing-ways-to-strip-russia-of-un-influence/)，美国副国务卿温迪·谢尔曼周三告诉美国立法者，华盛顿正在“调查驱逐作为安理会五个常任理事国之一的俄罗斯的前景”。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/621fe57585f54070337611b6.jpg)[图片来源](https://www.stvincenttimes.com/us-eyeing-ways-to-strip-russia-of-un-influence/)
+
+近日，联合国大会以压倒性的多数投票谴责俄罗斯上周入侵乌克兰并要求莫斯科立即无条件撤军。在安理会上周五的投票失败后，这一谴责是通过一项不具约束力的决议发出的，而俄罗斯作为安理会常任理事国使用其否决权阻止了决议。
+
+自乌克兰入侵开始以来，乌克兰政府已多次敦促联合国重新考虑俄罗斯在安理会的地位，认为俄罗斯在联合国安全理事会的存在显然是不合法的。英国政府对降低俄罗斯的联合国地位也持开放态度。英国首相鲍里斯·约翰逊的发言人周二说，他们希望看到俄罗斯在外交上被孤立，英国将考虑所有选项来实现这一目标。
+
+**原文阅读：**
+
+**[Push to end Moscow’s status as permanent Security Council member gains steam – St Vincent Times](https://www.stvincenttimes.com/us-eyeing-ways-to-strip-russia-of-un-influence/)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
+
+编辑/校对/发稿：小鹿
+
+
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
