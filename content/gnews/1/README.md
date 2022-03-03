@@ -2,25 +2,37 @@
 ---
 
 
-## 欧盟议会高票赞成乌克兰的加盟申请
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2100400/)
+## 日本首相宣布接受乌克兰难民
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2100507/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月2日，据相关媒体消息显示，日本首相岸田文雄当天宣布，日本将对乌克兰提供紧急人道援助，并接收从乌克兰前往第三国避难的人员。
 
-采编/编译撰稿： 文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-292.png)图片来源：[https://www.newsweek.com](https://www.newsweek.com/european-parliament-accepts-ukraines-application-join-eu-work-remains-1683796)
-据美国《新闻周刊》3月1日报道，欧盟议会当天就俄罗斯入侵乌克兰的战争局势召开了全体会议，并投票表决接受乌克兰加入欧盟的申请。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-2.jpeg)
 
-乌克兰总统泽连斯基通过视频在会议上发表演讲，表示该国具有自由、平等的价值观，希望通过特别程序能尽快加盟。并同时恳请议会，允许乌克兰公民在所有27个欧盟成员国之间自由迁移，以帮助更多难民逃离俄军的炮火。
+报道提及，岸田首相在与波兰总理莫拉维茨基和德国总理肖兹进行通话后确认，当地政府将对乌克兰展开救助。岸田首相表示，此次救援将不仅限于对在日本有亲友的乌克兰民众进行援助，而是会从人道主义的角度来实施救援。同时，为了进一步展现日本与乌克兰的友好关系，日本将接受乌克兰前往第三国的避难人员，并且这些避难者将与日本现行的防疫入境管制措施分开考虑。
 
-据悉，有637名议员对以上表决投了赞成票、13票反对和26票弃权。尽管加入欧盟还须满足一系列条件和经历较长的法定程序，但投票结果标志着该进程的正式开启。
+岸田首相强调，日本将与以G7集团为首的国际社会继续加强合作，协助进行对乌克兰的救援工作。
 
-校对编辑：硫酸羟氯喹64
+据悉，目前共有接近两千名乌克兰人滞留在日本，为此，当地政府日前已经明确，针对短期内无法回国的乌克兰人，日本将对其放宽居留时间。
 
-发稿：青青
+参考链接：[日相岸田宣布將接收烏克蘭難民](https://news.ltn.com.tw/news/world/breakingnews/3846544)
 
-原文链接：[https://www.newsweek.com/european-parliament-accepts-ukraines-application-join-eu-work-remains-1683796](https://www.newsweek.com/european-parliament-accepts-ukraines-application-join-eu-work-remains-1683796)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
+总编：Irene木木
+编辑：Ivy001
+审核：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

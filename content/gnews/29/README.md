@@ -2,27 +2,15 @@
 ---
 
 
-## 大众汽车停止了在俄罗斯的全部业务
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2099548/)
+## 乌克兰国际人道救援行动（图片信息）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2099882/)
 
-**大众汽车退出俄罗斯市场–对德国就业的影响尚不清楚**。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/PHOTO-2022-03-03-19-05-24-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/PHOTO-2022-03-03-19-05-25-1.jpg)
+* * *
 
-翻译：Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-3.tiff)图片：2009年10月20日，俄罗斯总理弗拉基米尔·普京（左）与大众汽车公司首席执行官马丁·温特科恩在俄罗斯卡卢加的一家大众汽车工厂开幕式上握手。/dpa
+*制作：NFSC|法制基金*
 
-据媒体报道，周四来自沃尔夫斯堡的消息：“在俄罗斯袭击事件的背景下，集团执行委员会决定停止在俄罗斯的汽车生产，直到进一步通知。欧洲最大的汽车集团也将“立即停止”对俄罗斯的出口。
-
-原文链接：[https://www.berliner-zeitung.de/wirtschaft-verantwortung/volkswagen-stoppt-gesamtes-geschaeft-in-russland-li.215044](https://www.berliner-zeitung.de/wirtschaft-verantwortung/volkswagen-stoppt-gesamtes-geschaeft-in-russland-li.215044)
-
-发布：Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
-
-
-
-
-
-
-
+*发布：吐纳*
 
  
 

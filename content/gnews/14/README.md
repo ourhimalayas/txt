@@ -2,24 +2,39 @@
 ---
 
 
-## 俄罗斯卢布贬值再现排队抢购潮
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2100202/)
+## 有声|俄罗斯禁止当地民众向外转移资产
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2100406/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间2月28日，据相关媒体消息显示，随着美国、欧盟和其他联盟国家对俄罗斯经济制裁的加剧，俄罗斯卢布近期大幅下跌。对此，普京当天宣布将采取一项紧急措施，禁止俄罗斯居民向国外转移资金并强迫当地出口商购买卢布。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-02-%E4%B8%8A%E5%8D%8810.56.49.png)
+资料显示，由于俄罗斯对乌克兰的入侵行为，西方世界实施的经济制裁旨在将俄罗斯的银行排除在国际金融体系之外，同时限制俄罗斯中央银行使用其外汇储备继续支撑本国货币。为此，美国当天已经禁止该国金融机构与俄罗斯中央银行的交易并冻结了俄罗斯的外汇储备。随后，瑞士也表示将加入到制裁行列之中。
 
-采编/编译撰稿： 自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-289.png)图片来源：ttps://www.reuters.com/
-据《路透社》3月1日报道，随着俄乌战事升级，西方制裁加剧，俄罗斯民众开始为生活质量恶化做起了准备。由于卢布继续贬值导致的物价不断上涨，莫斯科居民已开始在商场里排队抢购各类生活用品。
+报道提及，目前，卢布已经跌近其历史最低点，而俄罗斯中央银行则已经将其关键利率提高至20%。此外，莫斯科证券交易所当天关闭了全部交易，用以防止俄罗斯股票被大量抛售。
 
-据悉，日前卢布兑美元在莫斯科交易所创下109比1的历史低点。随着购买力逐步下降，许多人试图通过购买智能手机和笔记本电脑等电子设备来对抗通胀，仅2月21日至27日一周，这项支出就上升了80%。抢购的长龙再现前苏时期民众为获取面包而长时间排队的情景。
+然而，出于对存款的担心，俄罗斯各大银行在卢布暴跌之际出现了被民众挤兑的现象。另一方面，根据普京发布的紧急措施，一些能源巨头不得不大量买入卢布，从而达到企业80%以上卢布储备的硬性要求。
 
-评论指出：爆料革命很早就提醒广大同胞，中共武力攻打台湾之际，就是其邪恶体制灭亡倒计时的开始。在被踢出SWIFT全球金融支付系统之后，中共政权所控制的港币和人民币都会瞬间贬值成为废纸。而目前正在俄罗斯发生的一切，就是对中共暴政即将崩塌前最真实的写照！
 
-校对编辑：硫酸羟氯喹64
 
-发稿：青青
+文字版原文：[俄罗斯禁止当地民众向外转移资产](https://gnews.org/zh-hans/2094998/)
 
-原文链接： [https://www.reuters.com/markets/asia/isolated-russians-scramble-hard-currency-fear-worse-is-yet-come-2022-03-01/](https://www.reuters.com/markets/asia/isolated-russians-scramble-hard-currency-fear-worse-is-yet-come-2022-03-01/)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

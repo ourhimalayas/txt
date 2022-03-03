@@ -2,15 +2,10 @@
 ---
 
 
-## 乌克兰国际人道救援行动（图片信息）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2099882/)
+## 3/2/2022 文贵直播：普大帝和习太阳都坚持不过今年年底；文贵最早告诉世界普习身体不好
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2100226/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/PHOTO-2022-03-03-19-05-24-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/PHOTO-2022-03-03-19-05-25-1.jpg)
-* * *
-
-*制作：NFSC|法制基金*
-
-*发布：吐纳*
+秘密翻译组-北美组
 
  
 

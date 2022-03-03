@@ -2,35 +2,24 @@
 ---
 
 
-## 中共军舰再度进入台湾兰屿外海
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2100268/)
+## 俄军侵略乌克兰加速俄罗斯闭关锁国
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2100454/)
 
-##### 整理：围剿维尼熊
-编辑：Mttfly
+加拿大温哥华杨帆农场 枫叶快讯
 
-**【雅典娜快讯】，紧贴时代脉搏**
+采编/编辑撰稿： 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-296.png)图片来源：https://thepostmillennial.com/
+据加拿大媒体【后千禧年】3月1日报道，除了基本运输和邮递行业以外，包括苹果和福特等越来越多的国际大型企业开始加入到断绝与俄罗斯商业合作的行列。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/兰屿.jpg)图片：雅典娜设计组
+报道称，为反抗俄罗斯侵略乌克兰，许多国家目前已禁止俄罗斯飞机进入其领空。同时，欧美及其盟国也已对俄罗斯及普京实施了严厉经济制裁，惩罚性的多米诺骨牌效应也将逐渐显现。
 
+据悉，英国石油巨头BP和壳牌都停止了与俄罗斯的贸易。联邦快递和UPS也警告称，将无法保证提供其在战乱地区的服务。国际集装箱运输行业的顶级公司，马士基和MSC日前都取消了往返俄罗斯的货运订单。苹果公司不仅暂停了在俄罗斯所有产品的销售，而且还封禁了乌克兰的地图信息，以保护当地居民的安全。
 
-据台湾中央社消息，台湾军方人士说，2日晚监控到3艘中共军舰出现在兰屿东南方50海里处，逐渐往外移动，上午8时许距兰屿东南方80海里海面，研判进入巴士海峡。
+校对编辑：硫酸羟氯喹64
 
-台湾军方人士还说，1日晚间7时到11时也有1艘中共飞弹护卫舰出现兰屿外海50海里处，往南航行；2月28日晚间3艘中共军舰出现兰屿外海35海里处，往南航行，是近日最接近兰屿的一次航行。
+发稿：青青
 
-台湾军方表示，进入台海周边舰船，国军联合情监侦系统都能全程掌握。
-
-大纪元指出，中共军舰自2月28日起，已第3次出现兰屿外海。
-
-参考链接：[中共军舰出现台湾兰屿外海 国军全程监控](https://www.epochtimes.com/gb/22/3/3/n13618585.htm) | [中国军舰出现兰屿外海国军全程监控【独家】](https://www.cna.com.tw/news/aipl/202203035010.aspx)
-
-*发布：Mttfly*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接： [Growing list of companies cut ties with Russia over Ukraine invasion | The Post Millennial](https://thepostmillennial.com/growing-list-of-companies-cut-ties-with-russia-over-ukraine-invasion)
 
  
 

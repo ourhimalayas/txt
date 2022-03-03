@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/3/2022 3:24 PM (UTC)`
+
+3月3号：尊敬的战友们好，明天是中国的农历二月初二……龙抬头，也是我母亲三年冥诞的日子，明天没有直播……文贵在此衷心地希望所有的战友．爱父母爱家人！
+![img](https://media.gettr.com/group6/getter/2022/03/03/15/49d50e66-6903-8df6-47df-73d0d2e18ae8/out.jpg)
+
+---
+
 `@miles 3/3/2022 2:43 PM (UTC)`
 
 3月3号：尊敬的战友们好GTV已经在昨天的凌晨12:00彻底的关闭……由于共产党大量的篡改数据，黑客。为了战友们的信息安全和GTV投资者的利益，经投资委员会和法律委员会决定已经将GTV关闭，请新中国联邦的战友们去盖特上．去看有关新中国联邦和灭共的直播。所有过去投资的老椅子的人请和联盟委员会联系，一切会更好。
@@ -146,13 +153,6 @@
 
 2/27/2022 Miles Guo: Xi’s determination to invade Taiwan does not contradict his holding the Two Sessions. The success of Ukraine’s media information warfare, technology warfare, and cyber warfare has had a huge impact on the CCP, which further affected the CCP’s choice of the military strategy to attack Taiwan. The CCP will be destroyed by its falsification and deception.<br/><br/>2/27/2022 文贵直播: 习近平执意打台湾和开两会并不矛盾；乌克兰的媒体信息战、科技战和网络战的成功对中共触动很大，进而影响到中共对台作战的战略；中共将毁于它的假和骗！<br/>
 ![img](https://media.gettr.com/group7/getter/2022/03/01/06/dddde801-578e-6e3f-1dd0-6ecd701237f7/out.jpg)
-
----
-
-`@miles 3/1/2022 6:36 AM (UTC)`
-
-2/27/2022 Miles Guo: The wicked CCP does not care about the life and death of the Chinese people living in Ukraine. I am the first one in the world to propose kicking Russia out of SWIFT. The Ukrainians have cleverly used social media to wage informational warfare in the Russia-Ukraine war, and our New Federal State of China must learn from them.<br/><br/>2/27/2022 文贵直播: 邪恶的中共丝毫不在乎乌克兰华人的死活；文贵是第一个呼吁将俄罗斯踢出SWIFT系统的人；乌克兰在俄乌战争中巧妙使用社交媒体打信息战，我们新中国联邦要向其学习
-![img](https://media.gettr.com/group6/getter/2022/03/01/06/241c2a92-4b1c-85d4-6bae-86b32c3a1175/out.jpg)
 
 ---
 

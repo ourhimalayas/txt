@@ -2,35 +2,38 @@
 ---
 
 
-## 韩国单日新增确诊病例突破21万
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2100242/)
+## 中日财经爆┃又一韩国高端品牌全面退出！外资美妆企业加剧撤离中国市场
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2100446/)
 
-作者：首尔天池农场 – 追着曙光跑
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月2日，据韩国媒体报道， 韩国中央防疫对策本部当天的通报显示，截至3月2日零点，当地单日新增中共病毒确诊病例超过21万例，再次突破了该国自疫情以来的历史新高。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-4.jpg)
-数据显示，韩国当天新增中共病毒重症患者35人，总重症患者人数达762人；新增96例中共病毒死亡案例，当地累计死亡患者超过八千两百人。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-15.png)
+[图片来源](https://www.sohu.com/a/161754764_409518)
 
-值得注意的是，韩国民众的中共病毒疫苗完全接种率达到86%，一针疫苗的接种率超过87%，而第三剂加强针的接种率接近61%。更甚者，自1月15日起，韩国政府还推动当地免疫力低下的人群第四针疫苗的接种工作。
+2月28日消息，韩国美妆品牌HERA赫妍发布公告，宣布赫妍微信商城官方旗舰店将于3月1日停止销售，3月1日—7日，微信商城内开放积分兑换活动，客服咨询将于3月25日停止。
 
-然而，大量数据及研究证明，中共病毒疫苗在预防病毒感染问题上毫无作用，相反的，疫苗接种者会更加容易感染奥密克戎变种毒株。为此，有消息显示，韩国政府最近正在因中共病毒疫苗强制接种令而面临着一系列的诉讼。
+公开资料显示，HERA赫妍是韩国化妆品巨头爱茉莉太平洋旗下的高端美妆品牌，成立于1995年，品类涵盖全线护肤品和彩妆系列，2016年进入中国大陆市场。
 
-参考链接：[**신규 확진자 21만 9,241명…하루 새 8만 명 폭증**](https://news.kbs.co.kr/mobile/news/view.do?ncd=5407136)
+去年年底，爱茉莉太平洋旗下悦诗风吟（innisfree）品牌已经开启了中国市场“大撤店”——从800多家关闭到仅剩140家，撤店600多家，撤店率超80%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+事实上，外资化妆品企业关停、退市近年来已非罕见。
 
-总编: Irene木木
-编辑: 玫瑰圓
-审核: Irene木木
-校正/发稿：Fei797
+来自日本的可开嘉来也被传即将闭店并退出中国市场。除了可开嘉来之外，同样来自日本的花王集团旗下彩妆品牌KATE，也被传将直接撤出中国市场。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据公开信息显示，除前文提到的爱茉莉太平洋、花王集团等，世界日化巨头欧莱雅、资生堂、联合利华、雅诗兰黛旗下的品牌也传出撤店退市潮。
+
+外资化妆品普遍性的闭店甚至撤离，其根本原因还是中共政治和经济都出了系统性问题。近期俄罗斯被美欧制裁，无形中也加剧了外资外企从中国的撤离。
+
+信息来源：
+
+[突然宣布！关闭所有门店，退出中国市场！曾因全智贤代言而爆红\_品牌](https://www.sohu.com/a/526008605_639898)
+
+[关超80%中国门店！知名化妆品巨头撑不住了？](https://news.sina.com.cn/s/2022-01-02/doc-ikyamrmz2713897.shtml)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
