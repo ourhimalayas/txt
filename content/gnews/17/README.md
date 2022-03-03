@@ -2,22 +2,24 @@
 ---
 
 
-## 香港单日感染人数超5万创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2098692/)
+## 奥密克戎衍生病毒BA.2在日本流行
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2098715/)
 
 撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-257.png)[图片来源](https://news.yahoo.co.jp/articles/4770fbe015af77e97ccd8041bba096cde19b0470/images/000)
-香港政府卫生署卫生防护中心(CHP)和管辖公立医院的医院管理局(HA)于2日召开会见，宣布同日新增5万5，353人感染者。1天感染人数首次超过5万人，从前一天开始大幅增加2万人以上。其中从海外流入的病例只有27人。
 
-在最近的24小时内，年龄在58-100岁的，有117人死亡。另外，2月26日至28日为止没有公布的死者有43人。从年初开始的第5波导致的死者累计有967人。 老年人、残疾人设施新增感染55处，发现入住者488人、职员228人感染。到目前为止，670个设施已经确认被感染。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/奥密克戎衍生病毒BA.2在日本流行.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.news-medical.net%2Fimages%2Fnews%2FImageForNews_705615_4461992039802088480.jpg&amp;imgrefurl=https%3A%2F%2Fwww.news-medical.net%2Fnews%2F20220227%2FWill-Omicron-BA2-become-the-next-dominant-variant.aspx&amp;tbnid=lzYPOJafYqVtNM&amp;vet=12ahUKEwin57iNrKn2AhU-YmwGHTPtBsEQMygAegUIARCLAQ..i&amp;docid=rpD8f08TZoR6eM&amp;w=1200&amp;h=800&amp;itg=1&amp;q=BA.2&amp;ved=2ahUKEwin57iNrKn2AhU-YmwGHTPtBsEQMygAegUIARCLAQ)
 
-超过5万人“预计内”CHP传染病处的欧家荣首席医生在2日的会见中指出“最近基本上每隔2~3天感染人数会翻倍”，2天超过5万人表示为“预料之中”。 此外，还指出，目前通过快速抗原检测呈阳性的人没有自主申报，表明在自主申报系统完善后感染人数会进一步上升。
+日本医师会(日医)的中川俊男会长在2日的记者招待会上表示，国内中共病毒（新冠病毒Covid-19）的感染情况“虽然有减少趋势，但并没有急剧减少”，这可能是奥密克戎株的衍生型BA.2具有强烈的感染力，引起感染扩大的原因，指出“新感染人数可能会增加”。
 
-消息来源：[【香港】単日感染者５万人突破、最多を大幅更新（NNA）](https://news.yahoo.co.jp/articles/4770fbe015af77e97ccd8041bba096cde19b0470)
+中川先生关于31个都道府省适用的防止蔓延等重点措施的效果称“我认为有一定的效果。(感染者数)接近高停状态，但如果没有(重点措施)的话，感染人数也许会增加更多。”另外，在海外出现了对中共病毒对策的放宽管制的举动，他表示“日本也应该根据感染状况和疫苗接种率等，做出缓和限制的判断”。另一方面，他又补充说，“现在的感染情况，没有必要大幅缓和各种限制。”
+
+消息来源：
+
+[ＢＡ・２拡大で「増加に転じる可能性も」　日医会長](https://news.yahoo.co.jp/articles/963870fbeee2b1a796a46669e8357496291a5652)
 
 *编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯禁飞36国航班来回击西方的严厉制裁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098838/)
+## 共产主义中国是美国和世界面临的唯一最重要的生存威胁
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098843/)
 
-02/28/2022 俄罗斯禁飞36国的航班来回击西方的严厉制裁；由于制裁，俄罗斯外交部长不得不取消他的联合国人权理事会之行。
+02/28/2022 皮特·纳瓦罗：共产主义中国是美国和世界面临的唯一最重要的生存威胁
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

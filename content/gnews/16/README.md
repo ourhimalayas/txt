@@ -2,24 +2,25 @@
 ---
 
 
-## 奥密克戎衍生病毒BA.2在日本流行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2098715/)
+## 有声｜香港新增确诊5.5万 美对港旅游警示升至4级
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2098754/)
 
-撰稿：东京樱花团/立正道
+By:**秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/奥密克戎衍生病毒BA.2在日本流行.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.news-medical.net%2Fimages%2Fnews%2FImageForNews_705615_4461992039802088480.jpg&amp;imgrefurl=https%3A%2F%2Fwww.news-medical.net%2Fnews%2F20220227%2FWill-Omicron-BA2-become-the-next-dominant-variant.aspx&amp;tbnid=lzYPOJafYqVtNM&amp;vet=12ahUKEwin57iNrKn2AhU-YmwGHTPtBsEQMygAegUIARCLAQ..i&amp;docid=rpD8f08TZoR6eM&amp;w=1200&amp;h=800&amp;itg=1&amp;q=BA.2&amp;ved=2ahUKEwin57iNrKn2AhU-YmwGHTPtBsEQMygAegUIARCLAQ)
+**2022-03-03**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tu88990.png)
+**[据新唐人3月3日报导，香港中共病毒疫情发展迅猛，当地时间3月2日下午，单日确诊人数已突破5.5万，其中只有27例为境外移入，其余均为本土病例。单日死亡人数也在不断攀升。鉴于香港疫情几乎已失控，美国国务院将香港的旅游警示级别提升至最高，呼吁美国国民勿前往。](https://www.ntdtv.com/gb/2022/03/02/a103362475.html)**
 
-日本医师会(日医)的中川俊男会长在2日的记者招待会上表示，国内中共病毒（新冠病毒Covid-19）的感染情况“虽然有减少趋势，但并没有急剧减少”，这可能是奥密克戎株的衍生型BA.2具有强烈的感染力，引起感染扩大的原因，指出“新感染人数可能会增加”。
+**[外界注意到，目前香港的医疗设施收治的确诊者人数合计为6000多人。这意味着近期有数以十万计的新增染疫者，都是在家里自我隔离。](https://www.ntdtv.com/gb/2022/03/02/a103362475.html)**
 
-中川先生关于31个都道府省适用的防止蔓延等重点措施的效果称“我认为有一定的效果。(感染者数)接近高停状态，但如果没有(重点措施)的话，感染人数也许会增加更多。”另外，在海外出现了对中共病毒对策的放宽管制的举动，他表示“日本也应该根据感染状况和疫苗接种率等，做出缓和限制的判断”。另一方面，他又补充说，“现在的感染情况，没有必要大幅缓和各种限制。”
+**[另据《华尔街日报》3月1日报导，由于香港近期的防疫措施越来越严苛，让很多银行业人士及投资者感到不安，由于严苛的出入境限制，许多人难以兼顾事业和家庭，导致金融人才纷纷离开香港。](https://www.ntdtv.com/gb/2022/03/02/a103362475.html)**
 
-消息来源：
+（ 秘翻新闻 二丫 编辑 ）
 
-[ＢＡ・２拡大で「増加に転じる可能性も」　日医会長](https://news.yahoo.co.jp/articles/963870fbeee2b1a796a46669e8357496291a5652)
+发布:星星
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

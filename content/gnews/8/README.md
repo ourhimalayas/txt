@@ -2,25 +2,21 @@
 ---
 
 
-## 2022年3月2日澳洲股市简报
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2098936/)
+## 美国公民参加乌克兰的反俄斗争
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2098940/)
 
-**撰稿：云彩**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
-尽管华尔街和欧洲市场跳水，澳洲股市依然上涨0.3% 。 7117点收盘。
+翻译：金陵小生
+编辑发稿：am夏天
+德国纽伦堡正义农场
 
-澳大利亚公布的第二季度国内生产总值数据经季节性调整后增长3.4%。
+新闻来源：https://www.foxnews.com/us/american-citzen-joins-ukraines-fight-russia
 
-医疗器械公司Polynovo和天然气公司Santos股价涨幅超过6.5%。
-
-锂矿商Core Lithium股价上涨15%
-
-该公司已经与美国特斯拉公司签署四年供应 110 千吨锂的销售合同。
-
-参考资料：
-
-[Global markets take a hit on Russian strikes, but ASX defies the trend to rise](https://www.abc.net.au/news/2022-03-02/asx-ukraine-russia-kyiv-wall-street-oil-price/100873978)
-
+内容翻译精选：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-261.png)保罗曾是第101空降师的一名伞兵，多次被派往伊拉克，保罗很快报名参加了（照片经许可使用）
+陷入困境的乌克兰总统沃洛季米尔-泽伦斯基呼吁 “乌克兰的每一位朋友””加入到保卫乌克兰、欧洲和世界的行列中来”。乌克兰组建了一个外国战士军团，帮助保卫这个东欧国家免受俄罗斯入侵。泽伦斯基说，乌克兰已经收到了希望加入国防军的人的 “数千份请求”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-262.png)（照片经许可使用）
+来自德克萨斯州的美国公民保罗很快就报了名。他曾是第101空降师的一名伞兵，多次被派往伊拉克。 一年多前，他搬到了乌克兰，是越来越多的外国人中的一员，志愿保卫国家，对抗俄罗斯军队。当被问及为何为外国而战时，保罗毫不犹豫地回答。”我认为在这场危机中帮助乌克兰人民是我的道德义务”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
