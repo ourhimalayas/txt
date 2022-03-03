@@ -2,37 +2,30 @@
 ---
 
 
-## 有声|中俄暧昧关系遭美方谴责
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2100822/)
+## 瑞典新研究表明辉瑞疫苗mRNA 能整合入人体 DNA
+` Little c` [轉載自GNews](https://gnews.org/zh-hans/2100966/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月28日，白宫印太事务协调官库尔特‧坎贝尔表示，在俄罗斯侵略乌克兰战争中，中俄之间的暧昧关系，以及公开和深入的联系，令人很不舒服。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-3-scaled.jpg)
-俄罗斯入侵乌克兰，被国际视为二战以来对欧洲国家的最大侵略，世界各国纷纷表示谴责，并实施各种制裁。中共不仅没有任何谴责，反而在联合国就一项谴责俄罗斯入侵的议案表决中，投了弃权票。在北京冬奥期间，中俄还签署了一份联合声明，宣称两国建立了无间的战略合作关系，同时，中共也是俄罗斯的最大贸易伙伴。
+作者：波士顿五月花 Little c
 
-此前，美国总统拜登于2月24日，虽没有直接点名中共，但严正警告：任何支持俄罗斯对乌克兰侵略的国家，都将身败名裂。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/mrna-vaccine.jpg)图片来自网络
 
+一瑞典实验室研究发现辉瑞疫苗中的mRNA会整合进入人体细胞DNA，并改变受影响细胞的DNA。这一研究结果发表在Current Issues in Molecular Biology杂志上，巴西里约时报对此做了报道。
 
+他们采用了人类肝细胞系进行体外实验，发现辉瑞mRNA疫苗使用LINE-1天然逆转录酶，将疫苗的遗传密码逆转录整合人体细胞DNA。 这种“逆转录”和HIV RNA 病毒改变人体细胞DNA原理类似，能修改DNA后，并复制。
 
-文字版原文：[中俄暧昧关系遭美方谴责](https://gnews.org/zh-hans/2098839/)
+在正常情况下，人体需要正常细胞DNA转录成RNA，然后形成蛋白质，产生新细胞。如果疫苗中含有有害遗传密码，后果将非常可怕。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+* * *
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参考链接：
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[New study from Sweden says, Pfizer mRNA does indeed integrate into our DNA](https://www.riotimesonline.com/brazil-news/modern-day-censorship/new-study-from-sweden-says-pfizer-mrna-does-indeed-integrate-into-your-dna/)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[Intracellular Reverse Transcription of Pfizer BioNTech
+COVID-19 mRNA Vaccine BNT162b2 In Vitro in Human Liver
+Cell Line](https://www.riotimesonline.com/wp-content/uploads/2022/02/Pfizer-RNA-into-DNA.pdf)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑/发布：Little c
 
  
 

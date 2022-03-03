@@ -2,51 +2,30 @@
 ---
 
 
-## 欧洲议会投票承认乌克兰“欧盟候选国地位”
-` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/2100737/)
+## 秘翻在线：SWIFT踢出卢布或使美元盛极转衰 数字货币将顺势登上高峰
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2100865/)
 
-撰稿: 纽约香草山 – 宁文静
+**编译：明澈**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-04-003216.jpg)图片来源：Yahoo Finance
+综合媒体3月3日消息，自2月24日美国、欧盟及其他国家计划将俄罗斯踢出SWIFT后，卢布10天内下跌30%，创下历史新低，此外俄罗斯银行及国内经济也因此受到了巨大的冲击。为努力保留自己积蓄的实际价值，俄罗斯人不得不在提款机前排起长队。
 
+报道指出，这一制裁之所以能产生这样的效果，是基于美元对现代经济的强势影响力。由于现阶段，近一半的国际贸易、全球债券及贷款皆以美元结算，而在货币交易中，美元结算更接近90%。因此，卢布被逐出SWIFT，就代表这一货币失去了与美元自由结算的渠道，俄罗斯政府本身也失去了支付以美元计价债券的能力。
 
+据悉，俄罗斯依靠其中央银行及商业银行来获取美元，因此这两大银行皆从SWIFT名单中剔出。3月2日，俄罗斯政府持股过半的俄罗斯第一行——储蓄银行（Sberbank）宣布，由于制裁的影响，该行数个分支面临客户存款的大量流失，为此判断欧洲业务难以存续，故而决定退出欧洲市场。
 
+SWIFT本不属于任何一个国家或政体，是一个中立性的“快速跨境转帐的安全传讯体系”，用于全球200多国逾11000家金融机构每日外汇交易换汇业务。切断卢布与美元的兑换渠道，意味着将货币武器化，从某种程度上加速了俄罗斯与中共自建人民币转账系统试图与SWIFT抗衡的野心。为免受西方国家对自己实施压力，俄罗斯自建替代系统SPFS及中共自建替代系统CIPS就是例子。换句话说，最近美元的强势表现，实际上可能标志着其盛极转衰的开始。
 
+英国的对冲基金经理迪伦·格赖斯（Dylan Grice）在推特上表示，自己以前从未见过如此规模的货币武器化，但这样的牌只能用一次。此次制裁，将是货币史一个重大转折点，即美元霸权的终结。
 
-当地时间3月1日，欧洲议会绝大多数议员投票赞成一项象征性的议案，以确立乌克兰的欧盟正式候选国资格。但乌真正加入欧盟尚需一定时日。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-297.png)图片来自：https://www.independent.ie/
-此次投票是在27日欧盟委员会主席尔苏拉·冯德莱恩表态乌克兰必须加入欧盟，28日乌克兰总统泽连斯基火速提交加入欧盟的资格申请之后，做出的一项关于俄罗斯侵略乌克兰的动议，旨在支持乌克兰成为欧盟的正式候选国，以及对俄罗斯实施更严厉和更广泛的制裁等。
+对此，《彭博社》及《金融时报》在谈及美元霸权的时代时，均表示它可能会因最近的制裁行动而缩短其霸权时间。
 
-分析人士指出，欧盟议会接受了乌克兰加入欧盟的申请，正式启动相关程序。乌克兰还需要进行大量的国内立法和改革，以符合欧盟现有框架及标准。这个过程需要一定的时间。
+乔治敦大学政治学教授亚伯拉罕·纽曼(Abraham Newman)表示，美元有机会在几十年间成为私人投资者、交易商、及企业的主要交易货币，是基于美元的稳定性和通用性，更是基于美国政府负责任的态度和透明的法律体系。 因此有识之士都发出警告，此次制裁将是美元最后一次成为王牌，这一击会耗尽美元所有信用。为创造一个挑战美元的新金融体系，中共与俄罗斯已联手，共同寻找美元替代品，建立新的金融体系，借此瓦解美国力量的主要来源。
 
-投票的最终结果为：637票赞成，26票弃权，另外有13票反对票。表决之前，泽连斯基通过视频发表了慷慨感人的演讲，获得全体议员站立鼓掌。
+在美元即将进入历史之际，数字货币必将登上历史舞台，统治世界，而这将成为继继布雷顿森林体系后的又一辉煌。那么喜联储和喜币必将成为这一全新金融体系的重要参与者！
 
-新闻链接:
-
-[Wallace and Daly vote for long delay on Ukraine’s chance of joining EU](https://m.independent.ie/irish-news/politics/wallace-and-daly-vote-for-long-delay-on-ukraines-chance-of-joining-eu-41400042.html)
-
-[Resolution on Russian aggression against Ukraine](https://twitter.com/electsworld/status/1498747095632650240?s=21)
-
-[BREAKING: Ursula Von Der Leyen, President of the European Commission, tells Euronews that the EU wants Ukraine in the bloc and that “they’re one of us.”](Ursula%20Von%20Der%20Leyen,%20President%20of%20the%20European%20Commission,%20tells%20Euronews%20that%20the%20EU%20wants%20Ukraine%20in%20the%20bloc%20and%20that%20&quot;they're%20one%20of%20us.&quot;)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-14.jpg)
-
-编辑: 谐趣园
-
-总编/审核:飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
-
-
-
+**[新闻来源](https://www.axios.com/the-dollar-remains-the-wests-ace-in-the-hole-6252b75c-edf1-45e5-8599-b98944425ea0.html)**
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/3/2022 6:08 PM (UTC)`
+
+.
+![img](https://media.gettr.com/group44/origin/2022/03/03/18/83c3aa93-b26d-a44c-89c4-60250a6ef4ac/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/3/2022 5:23 PM (UTC)`
 
 3月3号：至乌克兰战场的所有同胞们……紧急紧急紧急。
@@ -146,13 +153,6 @@
 
 3/1/2022 Miles Guo’s GETTR: It is said Putin was furious, he called and urged Xi Jinping to take actions against Taiwan; As the Russia-Ukraine war continues, instead of rescuing its own people, the CCP has been insanely trying to control public opinion; The New Federal State of China has rescued many Chinese Embassy staff, and will demonstrate with actions and results who really care about the Chinese people!<br/><br/>3/1/2022 文贵盖特：据说，普京大怒，打电话催习近平对台湾动手；面对俄乌战事，中共非但救援却疯狂控制舆论，我们救了多少大使馆人员？新中国联邦用行动结果证明谁在关爱中国人！<br/>
 ![img](https://media.gettr.com/group3/getter/2022/03/01/21/698bc3c7-a49d-567e-5d16-a862a47f9899/out.jpg)
-
----
-
-`@miles 3/1/2022 3:04 PM (UTC)`
-
-3月1号：尊敬的战友们好，俄乌战争已经彻底的改变了世界……非常可悲的事情，中国人成了全世界最被恨的人，甚至要成为最孤立最被仇恨的族类，这是什么原因呢？
-![img](https://media.gettr.com/group21/getter/2022/03/01/15/4574b527-9873-34da-1daf-0684bc268d91/out.jpg)
 
 ---
 
