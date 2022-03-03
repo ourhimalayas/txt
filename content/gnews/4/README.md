@@ -2,50 +2,29 @@
 ---
 
 
-## 俄罗斯原油航线油轮运费飙升
-` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/2100528/)
+## 爆料革命——历史的今天12月29日
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2100654/)
 
-撰稿:纽约香草山教育部 Naughty(文行)
+**整理：Pride**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-03-234925.png)
+**2018年12月29日—**大连案件在辽宁沈阳终审，专案组又出现。他们把政泉法人贾欣先生、相关人士、律师，以保护为名押送过去。要求在庭上都说Yes，否则就把家人抓起来。所以判决维持大连法院的130亿美元，是刑讯逼供、威逼利诱的结果。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
+马健先生的案子，没有郭文贵、李友也一定会发生。这是杀人灭口，劣币驱逐良币的必然结果。91号文件是江泽民签的，包括现在的九四实业。上海人的钱，被江家偷走了。就是允许马健和安全部合法调查国内腐败。几十年来，当官的性爱、海外关系、子女留学、私生子女、财富转移、内斗、监听、录像全包括在里边。这些东西没有郭先生，谁也拿不到。
 
+**2019年12月29日—**未来中国人拥枪，除了捍卫自己人权之外，更重要的是捍卫社会他人的正义，保护好人。中国人被共产党植入的最大病毒，就是缺少正义。隔壁着火，跟我没关系。
 
+郭先生投资企业，想的是长远。从来没想过今天投资，明天赚钱。负债率是关键，不能超过15%。企业文化、价值观是寿命，把员工当人还是工具是核心。企业术有专长，千招会、不如一招绝。很多企业什么钱都赚，最后都破产了。最后企业要有法律、道德红线。
 
+**2020年12月29日—**战友们勇敢站在“我是音雄”，没有金钱收买和造假，用真诚用歌声唤醒了很多沉睡、麻木的人。创造了很多奇迹，是中国人在国际上第一个自由歌唱的平台，还让郭先生成为西方自由音乐世界，打榜的华人第一人。
 
+**2021年12月29日—**中共这几年，“习太阳”往外实际捐款1.5万亿美金，12万亿人民币，得到非洲黑人把中国女性戳进医院。非洲人到山东学校，一人睡两三个女学生。能把自己同胞，给外国人睡觉。中国历史上除了秦汉唐宋，为了不发生战争，真没有几个。
 
-据国外媒体3月1日报道，俄罗斯入侵乌克兰后，波罗的海至欧洲航线上租用阿芙拉型油轮的运费飙升，由于担心对俄罗斯的石油制裁可能很快到来，一些油轮船东已经开始避开俄罗斯港口。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-298.png)图片来自：https://www.straitstimes.com
-根据伦敦波罗的海交易所3月2日的最新数据，TD17 波罗的海到康涅狄格英国石油油轮航线的成本又飙升了 35,000 美元/天，达到 210,000 美元/天。这是自2008年以来的最高水平。
+现在恒大2万亿借款中，总资产和未来要交房子比例是70万比1—70万换回1块钱。市场流通的房子，便宜的不能公布价格。继续造假票据、庞氏骗局。所有这些谎言，是个人都不应该相信。但在中国，是如此之流行。这些无知的被洗脑者，在撑着邪恶共产党。
 
-同时，TD6 黑海至地中海航线的船舶运费每天增加 5,000 美元至 158,000 美元，比不到一周前的价格增加了 9 倍！
+刘亚洲被抓，王岐山、曾都站出来替他说话：毛之后，专门有不抓老常委—共产党的创始人、股东、董事不能抓。维护邓立下的：不动家里人的王子王孙，还有一家出一个正部级。习办公室回复，规矩定的是直系亲属—女儿和儿子，不含女婿。
 
-俄罗斯2/3的原油出口要经过黑海和波罗的海港口的海运，大部分销往欧洲。
+西安疫苗的问题，不是政治斗争。所打疫苗是陕西书记找药厂特定的，两针等于河南人十针。西安医院里辞职、病倒，百分之40到50的人没了。发现跳楼、自杀，老年人得不到救治，翻墙取食品等事故700起，死亡2000多起。
 
-同时，虽然国际基准油价近期飙升，但由于担心采购俄罗斯石油受到制裁，俄罗斯乌拉尔原油的价格出现大跌。
-
-
-
-链接:
-
-[Oil prices surge over 7% as global crude reserve release disappoints](https://www.reuters.com/business/energy/oil-prices-climb-market-weighs-release-reserves-vs-russia-disruption-2022-03-01/)
-
-[Oil, commodity prices surge; stocks, rouble extend losses as Russian troops advance in Ukraine](https://www.straitstimes.com/business/economy/oil-prices-soar-more-than-10-as-iea-move-to-release-emergency-stock-fails-to-reassure)
-
-[Buyers Steer Clear of Russian Oil Exports](https://www.energyintel.com/0000017f-4641-d3e7-a17f-f7c54b6a0000)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-14.jpg)
-
-编辑/总编/审核: 飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,25 +2,23 @@
 ---
 
 
-## 欧盟议会高票赞成乌克兰的加盟申请
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2100400/)
+## 欧洲药品管理局授权莫德纳新冠疫苗用于 6-11 岁儿童
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2100448/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.3C.jpg)网络图片
+欧洲药品管理局表示，它已授权莫德纳的CCP病毒疫苗用于 6 至 11 岁的儿童，此外还建议为 12 岁及以上的儿童接种辉瑞的CCP病毒疫苗加强针，目的是为了“进一步促进对欧洲儿童的CCP病毒防护”。
 
-采编/编译撰稿： 文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-292.png)图片来源：[https://www.newsweek.com](https://www.newsweek.com/european-parliament-accepts-ukraines-application-join-eu-work-remains-1683796)
-据美国《新闻周刊》3月1日报道，欧盟议会当天就俄罗斯入侵乌克兰的战争局势召开了全体会议，并投票表决接受乌克兰加入欧盟的申请。
+在周四的新闻发布会上，欧盟监管机构的疫苗负责人 Marco Cavaleri 博士表示，针对年幼儿童的莫德纳疫苗剂量将会是成年人接种的CCP病毒疫苗的一半。此前辉瑞-BioNTech 疫苗已于去年 11 月获准用于 5 岁及以上儿童。同时莫德纳CCP病毒疫苗现在也被建议用于CCP病毒疫苗加强针注射。
 
-乌克兰总统泽连斯基通过视频在会议上发表演讲，表示该国具有自由、平等的价值观，希望通过特别程序能尽快加盟。并同时恳请议会，允许乌克兰公民在所有27个欧盟成员国之间自由迁移，以帮助更多难民逃离俄军的炮火。
+在提到疫苗安全方面的问题，尤其是科学家们特别关注的心脏和胸部炎症的病例——这些副作用以前与注射有关，Cavaleri 博士认为这些病例非常“罕见”，多数人在没有干预的情况下康复了。这显然是不负责任并且违背事实的说法，因为我们已经看到了大量与心脏炎症相关的案例，至少笔者从来没有听说有任何患者“自愈”的。
 
-据悉，有637名议员对以上表决投了赞成票、13票反对和26票弃权。尽管加入欧盟还须满足一系列条件和经历较长的法定程序，但投票结果标志着该进程的正式开启。
+许多欧洲国家现在已经为老年群体提供了第二次CCP病毒加强针，这其实反映出政府对于第三针效果的怀疑与不自信，担心疫苗提供的免疫效力可能会快速消退——即便欧洲药品管理据对此尚未得出正式结论。
 
-校对编辑：硫酸羟氯喹64
+新闻参考链接：
 
-发稿：青青
-
-原文链接：[https://www.newsweek.com/european-parliament-accepts-ukraines-application-join-eu-work-remains-1683796](https://www.newsweek.com/european-parliament-accepts-ukraines-application-join-eu-work-remains-1683796)
-
+[EU clears Moderna shot for young kids, Pfizer boosters](https://apnews.com/article/coronavirus-pandemic-business-health-europe-coronavirus-vaccine-f0b5de28db8a468bc93d185755b00d39)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

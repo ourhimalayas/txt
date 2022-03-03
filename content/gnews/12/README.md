@@ -2,25 +2,71 @@
 ---
 
 
-## 俄军侵略乌克兰加速俄罗斯闭关锁国
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2100454/)
+## 救人如救火
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2100543/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+作者：香草山健身部-新世界的一员
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/65c117d9-bad6-4f2f-8105-6503d57ff4ac.jpg)
 
-采编/编辑撰稿： 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-296.png)图片来源：https://thepostmillennial.com/
-据加拿大媒体【后千禧年】3月1日报道，除了基本运输和邮递行业以外，包括苹果和福特等越来越多的国际大型企业开始加入到断绝与俄罗斯商业合作的行列。
+乌克兰局势日益恶化，
+普京的流氓恶性导致许多无辜生命被消失
+比爹亲娘亲的中国共产党，
+只援救它的亲人和还有利用价值的人
+冷冷的丢下同胞自生自灭，
+中国同胞已经死亡几十个，
+中共连数字也抹杀，
+还有多少同胞挣扎在战火期盼援手，
+中共冷漠的任凭求救的哭求，
+掩盖所有质问的声音
+屏蔽滞留者真实的声音
+还要五毛抹黑乌克兰
+恶毒的勾起排华潮。
+为救人新中国联邦动用大力神飞机
+十架以上，上不封顶
+中共救人舍不得化一千美金，
+新中国联邦化十万美金救一个，
+多救一个是一个，
+为救援更多的人
+战友们加大力度在各个渠道传达救人信息，
+前锋部队无私无畏赶赴战场
+只为救人如救火
+今有情报得知从乌克兰撤出来的人在波兰需要救援，
+广泛传达救人信息，
+大力神张开翅膀护你安全！
 
-报道称，为反抗俄罗斯侵略乌克兰，许多国家目前已禁止俄罗斯飞机进入其领空。同时，欧美及其盟国也已对俄罗斯及普京实施了严厉经济制裁，惩罚性的多米诺骨牌效应也将逐渐显现。
+NFSC和法治基金与国际救援组织共同合作，
+近日紧急安排第一批次营救专机，
+协助华人同胞、美国及其他各国友人免费撤离，
+目的地为美国（需要美国签证）和其他安全中转国。
+我们将在波兰的Medyka设立临时接待点，
+并在安全地区提供30天以内的免费食宿。
+请有需要的华人同胞、美国及其他国家人士
+联系24小时紧急救援客服进行登记。
+24小时紧急救援客服联系方式如下：
+邮箱：[\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection)
 
-据悉，英国石油巨头BP和壳牌都停止了与俄罗斯的贸易。联邦快递和UPS也警告称，将无法保证提供其在战乱地区的服务。国际集装箱运输行业的顶级公司，马士基和MSC日前都取消了往返俄罗斯的货运订单。苹果公司不仅暂停了在俄罗斯所有产品的销售，而且还封禁了乌克兰的地图信息，以保护当地居民的安全。
+电话(短信或电话）：
++1 720-657-6776 或
++1 719-224-4232
+NFSC ｜法治基金
+3/1/2022
 
-校对编辑：硫酸羟氯喹64
+# UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue 
 
-发稿：青青
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9ed9dd83-2abe-4580-a71f-0aacb7e76206.jpg)
 
-原文链接： [Growing list of companies cut ties with Russia over Ukraine invasion | The Post Millennial](https://thepostmillennial.com/growing-list-of-companies-cut-ties-with-russia-over-ukraine-invasion)
+审核/编辑/发稿:qiutian（邱甜）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

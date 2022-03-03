@@ -2,33 +2,40 @@
 ---
 
 
-## 有声|香港恐将上演武汉悲剧
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2100488/)
+## 美国和国际能源署释放6000万桶石油库存
+` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/2100634/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间3月1日，据多家媒体报道，中共在香港设立的第一家方舱医院目前已经开始接收当地感染中共病毒的患者。然而，这仅仅是中共将在香港开设的八家方舱医院的其中之一。
+撰稿：银河系农场—骄子
 
-在香港地区中共病毒疫情持续恶化，单日新增确诊患者数突破三万例的背景下，此前一天，林郑月娥声称，港共政府正在评估是否要对香港市民实行禁足限制并强制让所有市民接受中共病毒核酸检测。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
 
-对此，观察人士指出，无论是方舱医院，还是用封城的方式来对抗中共病毒疫情，这些做法都是中共政府从两年前开始，在武汉、西安以及中共国内各处疫情爆发地所惯用的手段。而今，香港或将再度步上墙内各地的后尘，重演封城悲剧。
 
-有评论指出，昨日的武汉和西安，就是明日的香港。
 
-文字版原文：[香港恐将上演武汉悲剧](https://gnews.org/zh-hans/2094477/)
 
-音频处理：Fei797
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+据美国媒体3月1日消息，俄罗斯入侵乌克兰后，世界各国对俄罗斯经济实施制裁，导致国际原油价格飙升至美桶100美元以上。美国和其他国际能源机构为保持原油市场的价格，决定从紧急库存中释放6000万桶石油。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-299.png)图片来自：https://www.wsj.com
+国际能源机构希望向全世界传达一个讯息：俄罗斯入侵乌克兰不会导致石油供应短缺，白宫发言人也表示会采取一切行动来限制普京的入侵对全球能源供应带来的干扰。
+
+美国和国际能源署本希望释放库存石油后油价会下跌，降低世界最大石油生产国俄罗斯的收入，并给美欧等国锁定俄罗斯能源行业的机会。但6000万桶石油后并没有达到预期的目的，市场目前处在恐慌之中，石油价格仍持续走高。
+
+新闻来源:
+
+[U.S., IEA Agree to Release 60 Million Barrels From Oil Stockpiles Amid Ukraine Turmoil](https://www.wsj.com/articles/u-s-iea-agree-to-release-60-million-barrels-from-oil-stockpiles-amid-ukraine-turmoil-11646151424)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-14.jpg)
+
+编辑/总编/审核: 飞虹
+
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
