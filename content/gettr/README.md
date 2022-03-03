@@ -17,13 +17,6 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 3/3/2022 12:03 AM (UTC)`
-
-【UKRAINEHELP-002】<br/>由于乌克兰局势日益恶化，NFSC和法治基金与联合国救援组织共同合作，近日紧急安排第一批次营救专机，协助华人同胞、美国及其他各国友人免费撤离，目的地为美国（需要美国签证）和其他安全中转国。我们将在波兰的Medyka设立临时接待点，提供30天以内的免费食宿。 请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。<br/><br/>24小时紧急救援客服联系方式如下：<br/><br/>邮箱：ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO<br/><br/>电话(短信或电话）：<br/>+1 720-657-6776 或 <br/>+1 719-224-4232<br/><br/>NFSC ｜法治基金<br/>3/1/2022<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group3/getter/2022/03/03/00/0dc22754-7291-d585-d362-15794f470b2d/917be4223e641359954f7c724c441fe4.jpg)
-
----
-
 `@miles 3/2/2022 11:54 PM (UTC)`
 
 3/2/2022 Miles Guo: Internal voices against Putin are coming out in Russia; The US and the UN are planning further sanctions on Russia; the US is surprised by the huge amount of Russian assets hidden in the US, and the amount of CCP’s assets hidden in the US will be even shocking<br/><br/>3/2/2022 文贵直播：俄罗斯内部起剧变，普京身边开始出现反对声；美国及联合国会对俄罗斯有进一步制裁；美国对俄罗斯人藏在美国的巨额资产倍感惊讶，中共的在美资产更会让美国瞠目<br/>
@@ -153,6 +146,13 @@
 
 2/28/2022 Miles Guo’s GETTR: Encountering the humanitarian disaster in Ukraine, the CCP not only rescues its own people while leaving Lao Baixing behind, but also is trying to defame and block the professional and legitimate rescue organized by the New Federal State of China; the evil nature of the rogue CCP is completely exposed to the world!<br/><br/>2/28/2022 文贵盖特：面对乌克兰人道灾难，中共不光不管老百姓，只救自己人；还企图抹黑、阻止新中国联邦专业、合法地救援，中共的邪恶流氓本性暴露无遗！<br/>
 ![img](https://media.gettr.com/group6/getter/2022/02/28/22/43f52e13-84b1-7fe9-4ea8-ad0652a2dc73/out.jpg)
+
+---
+
+`@miles 2/28/2022 3:18 PM (UTC)`
+
+2/27/2022 Miles Guo: There won’t be information warfare in the war between Taiwan and the CCP. The advantage of the Taiwanese military is fighting technology warfare and electronic warfare. What are the differences between the mindset of the Taiwanese soldiers and that of the CCP’s soldiers? Why are Taiwanese traitors one of the biggest problems of Taiwan?<br/><br/>2/27/2022 文贵直播: 台海战争中不会打信息战，台湾军队相对于共军的优势是技术战、电子战；台湾士兵的心态和共匪士兵有何区别？为什么台湾最大的问题之一是其内部的卖台贼？
+![img](https://media.gettr.com/group27/getter/2022/02/28/15/4b776fe7-e693-3424-3f2f-b8517199f0c1/out.jpg)
 
 ---
 
