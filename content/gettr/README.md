@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/3/2022 7:31 AM (UTC)`
+
+3/2/2022 Miles Guo: “Putin the Great” and “Xi The Sun” probably won’t make it to the end of this year. I was the first one to let the world know that both Putin and Xi are not in good health. Citizens of the New Federal State of China shall become those who get to enjoy the sunshine, the flowers, and the beauty of it all. Always keep in mind our two major missions: cleaning up the battlefield and the post-war reconstruction.<br/><br/>3/2/2022 文贵直播：普大帝和习太阳都坚持不过今年年底；文贵最早告诉世界普习身体不好；新中国联邦人要成为享受阳光、鲜花和美丽的人群，并且要切记打扫战场和战后重建这两大主题<br/>
+![img](https://media.gettr.com/group9/getter/2022/03/03/07/737ae7a7-7b54-6433-2a4e-e1f477be88ca/out.jpg)
+
+---
+
 `@miles 3/3/2022 3:25 AM (UTC)`
 
 3/2/2022 Miles Guo: Putin and Xi Jinping are living in their dreams. Deception is the only way for those around them to make profits. The result of this war is that Putin and Xi will be finished. However, the CCP has dragged the Chinese people into a war that has absolutely nothing to do with them. The probability of President Zelenskyy being killed is very high, as Xi and Putin can't stand the fact that an actor who played comedy is much more remarkable than them.<br/><br/>3/2/2022 文贵直播：普习活在梦中，互相欺骗是其身边人士获利的唯一手段；这场战争的结果是普习完蛋，而中共却把中国人绑上战车；泽连斯基总统可能被做掉，因为普习最大的痛苦是看不惯一个演员都比他俩伟大<br/>
@@ -146,13 +153,6 @@
 
 2/28/2022 Miles Guo’s GETTR: The New Federal State of China's Ukraine rescue operation has touched the world! The actions of our fellow fighters have far exceeded what the CCP has done. The only trustworthy Chinese voice in Ukraine comes from the New Federal State of China, and we will devote our whole lives to saving people!<br/><br/>2/28/2022 文贵盖特：新中国联邦的乌克兰救援行动感动了世界！我们战友的行动远超中共的所做作为；乌克兰唯一可信赖的中国人的声音来自新中国联邦，我们将把一生投入到救人中去！<br/>
 ![img](https://media.gettr.com/group5/getter/2022/03/01/00/393e4132-822a-3a48-ca58-2ac9ee27903c/out.jpg)
-
----
-
-`@miles 2/28/2022 11:30 PM (UTC)`
-
-2/28/2022 Miles Guo’s GETTR: Fellow fighters of our media team, please always keep in mind that under no circumstances should you make any fake videos or post any fake information. Everything is just beginning! We shall let our fellow Chinese currently in Ukraine know that we are rescuing all Chinese, no matter who they are.<br/><br/>2/28/2022 文贵盖特：请咱们媒体组的战友们千万记住，千万不能做假视频或传递假消息！一切才刚刚开始，我们要让在乌克兰的中国同胞都知道，不论是谁，只要是中国人咱统统救！<br/>
-![img](https://media.gettr.com/group26/getter/2022/02/28/23/91a93827-1429-b492-93ef-56115a6da17f/out.jpg)
 
 ---
 
