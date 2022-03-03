@@ -2,77 +2,21 @@
 ---
 
 
-## 普习梦
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2099437/)
+## 大爱无需回报，救人于危难之时
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2099448/)
 
-作者：香草山教育部-蓝之灵（Hortensia)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-都在梦里
-编织美好梦境
-互发个奖状
-做心灵慰藉
-我们是彼此的太阳
-做大帝相互扶持
-你好我好
-不用管
-他人不好
+视频：历史铭记
 
-有人说我们是疯子
-那又怎么样
-全力握在手中
-梦境里
-我们叱诧风云
-唯我独尊
+撰稿：小水滴
 
-于是
-你给我钱
-我打了乌克兰
-炮灰穿透天地
-这是我权力威力
-人民在流血
-我管你死活
-悲惨世界
-我今日造起
-哈哈哈哈哈
-你与我举杯
-庆祝
+俄乌战争爆发以来，现场的惨烈图片频频曝光。各国纷纷采取应急措施，从乌克兰接回自己的侨民和滞留人员。很多中国滞留人员及留学生也不断在网络上发出他们处于困境，找不到汽车到达安全地带的紧迫情况……
 
-世界愤怒了
-全世界反战了
-提供武器
-提供燃料
-封锁了钱和权
-你和我
-输了
-只剩下裤衩
-快给我钱
-快给我钱
-没有没有
-没有没有
-我们输了
-只剩裤衩和
-烂命两条
+我们中华民族素有慈悲仁善，救人于水火，雪中送炭、互帮互救，扶危济困等美德，何况救人一命，胜造七级浮屠，唯仁唯善之道乃基本人性使然。对于战争的残酷和无情，硝烟与战火的险境，我们更应该伸出援救之手，救人于危难之时。
 
-梦呢
-我们的梦呢
-破碎了
-只剩裤衩
-和
-烂命两条
+滞留在乌克兰的华人同胞、美国及各国友人，希望你们在紧急时拨打以上电话和联系邮箱，我们没有任何条件，不需要任何回报，不分种族，不问国别，我们就是救人救命，大爱无疆。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2280.jpg)
-
-审核/编辑/发稿:qiutian（邱甜）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
