@@ -18,16 +18,16 @@
 ### [一旦台湾战争台湾和大陆战友可到帛琉避难](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [台湾｜全台发生大规模停电 原因正在厘清中](/content/gnews/2/README.md)
- ` 關注組`
+### [加拿大安大略省结束中共病毒疫苗护照要求](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [乌克兰人付出了生命和鲜血但却救了台湾人](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [共产党让在乌克兰的中国人贴中国旗害死了很多人](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
+### [有声|台湾援赠首批医疗物资付运 力挺乌克兰捍卫国土](/content/gnews/4/README.md)
+ ` MOSREC`
 
-### [新加坡禁止支持俄罗斯战争的中国人入境](/content/gnews/5/README.md)
+### [共产党让在乌克兰的中国人贴中国旗害死了很多人](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
 ### [有声|美国对俄罗斯增加数字货币制裁](/content/gnews/6/README.md)
@@ -36,25 +36,25 @@
 ### [美媒：乌克兰官员证实 乌南重要港口城市赫尔松沦陷](/content/gnews/7/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [有声|气球飞掠台领空](/content/gnews/8/README.md)
+### [有声|NFSC新闻、G|TV新闻访谈简报|2022年2月28日早](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [大直播后记：惊险的救援故事](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月27日晚](/content/gnews/10/README.md)
+### [有声|核爆炸应急指南](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [有声|NFSC新闻、G|TV新闻访谈简报|2022年2月27日早](/content/gnews/11/README.md)
+### [有声|喜马拉雅币一周分析与总结（2月21日-2月27日）](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月26日晚](/content/gnews/12/README.md)
+### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月27日晚](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [有声|新中国联邦紧急措施](/content/gnews/13/README.md)
+### [有声|NFSC新闻、G|TV新闻访谈简报|2022年2月27日早](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [有声|NFSC新闻、G|TV新闻访谈简报|2022年2月26日早](/content/gnews/14/README.md)
+### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月26日晚](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [有声|新中国联邦紧急措施](/content/gnews/14/README.md)
  ` MOSREC`
 
 ### [香港新增中共病毒超5.5万例 韩国超21.9万例 均创新高](/content/gnews/15/README.md)
@@ -69,68 +69,68 @@
 ### [【转】截至3.2 俄乌战事汇总（9）](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国及世界疫情简报（03-02-2022）](/content/gnews/19/README.md)
- ` 波士顿五月花农场`
-
-### [这是需要我们站起来的时刻](/content/gnews/20/README.md)
+### [这是需要我们站起来的时刻](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [新中国联邦的乌克兰救援100%成功](/content/gnews/21/README.md)
+### [新中国联邦的乌克兰救援100%成功](/content/gnews/20/README.md)
  ` 日本東京方舟農場`
 
-### [俄罗斯使用集束炸弹轰炸乌克兰第二大城市](/content/gnews/22/README.md)
+### [俄罗斯使用集束炸弹轰炸乌克兰第二大城市](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [入侵乌克兰后，俄罗斯受到了世界各地广泛的制裁（下）](/content/gnews/23/README.md)
+### [入侵乌克兰后，俄罗斯受到了世界各地广泛的制裁（下）](/content/gnews/22/README.md)
  ` 蓝莲花农场`
 
-### [俄罗斯银行挤兑开始 提醒所有人银行稳定性](/content/gnews/24/README.md)
+### [俄罗斯银行挤兑开始 提醒所有人银行稳定性](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“天安门母亲”：承载八九六四之重并护佑新中国联邦六四之新生](/content/gnews/25/README.md)
+### [“天安门母亲”：承载八九六四之重并护佑新中国联邦六四之新生](/content/gnews/24/README.md)
  ` 秘密翻译组-原创组`
 
-### [五月花简报（03/02/2022）](/content/gnews/26/README.md)
+### [五月花简报（03/02/2022）](/content/gnews/25/README.md)
  ` mayflowertranslate`
 
-### [中共战狼拒绝躲在地下室里在乌克兰中国留学生的求救](/content/gnews/27/README.md)
+### [中共战狼拒绝躲在地下室里在乌克兰中国留学生的求救](/content/gnews/26/README.md)
  ` mayflowertranslate`
 
-### [基辅市长称城市被包围，后来又收回了这一说法](/content/gnews/28/README.md)
+### [基辅市长称城市被包围，后来又收回了这一说法](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共将毀于自身的假和騙](/content/gnews/29/README.md)
+### [中共将毀于自身的假和騙](/content/gnews/28/README.md)
  ` 纽约香草山MOS02`
 
-### [拜登宣布 “从检测到治疗”计划，免费提供抗新冠病毒口服药](/content/gnews/30/README.md)
+### [拜登宣布 “从检测到治疗”计划，免费提供抗新冠病毒口服药](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022/02/28 墙内世界](/content/gnews/31/README.md)
+### [2022/02/28 墙内世界](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [习近平和普京已变成孤家寡人](/content/gnews/32/README.md)
+### [习近平和普京已变成孤家寡人](/content/gnews/31/README.md)
  ` 纽约香草山MOS02`
 
-### [《中共邪教七日谈》](/content/gnews/33/README.md)
+### [《中共邪教七日谈》](/content/gnews/32/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [拜登国情咨文中称，普京将付出持续的高昂代价](/content/gnews/34/README.md)
+### [拜登国情咨文中称，普京将付出持续的高昂代价](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌克兰要求欧美协助建立禁飞区](/content/gnews/35/README.md)
+### [乌克兰要求欧美协助建立禁飞区](/content/gnews/34/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [拜登呼吁国会尽快提交提高美国与中共国竞争力的法案](/content/gnews/36/README.md)
+### [拜登呼吁国会尽快提交提高美国与中共国竞争力的法案](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [3/2/2022 国际财经快讯：俄罗斯供应担忧加剧，欧洲天然气价格触及新高；欧盟将七家俄罗斯银行排除在SWIFT之外](/content/gnews/37/README.md)
+### [3/2/2022 国际财经快讯：俄罗斯供应担忧加剧，欧洲天然气价格触及新高；欧盟将七家俄罗斯银行排除在SWIFT之外](/content/gnews/36/README.md)
  ` 秘密翻译组金融团队`
 
-### [乌克兰战争再次表明中国人将为中共买单](/content/gnews/38/README.md)
+### [乌克兰战争再次表明中国人将为中共买单](/content/gnews/37/README.md)
  ` 波士顿五月花农场`
 
-### [美国民众对拜登处理俄乌危机的支持度上升](/content/gnews/39/README.md)
+### [美国民众对拜登处理俄乌危机的支持度上升](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
+
+### [2022年3月2日文贵大直播速记](/content/gnews/39/README.md)
+ ` Mr. Miles Guo's News Briefing`
 
 ### [【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
