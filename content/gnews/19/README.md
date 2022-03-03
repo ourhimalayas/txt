@@ -2,20 +2,29 @@
 ---
 
 
-## 克里米亚事件鼓舞了普京和习近平的野心
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2100892/)
+## NFSC新闻、G|TV新闻访谈简报|2022年3月3日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2100943/)
 
-制作：香草山视频部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO.jpg)
 
-大纲：普京一枪不发地拿下了克里米亚，此事鼓舞了习近平。经过几年的计划，习近平放出生化武器并实施“双龙计划”，拿回香港、再拿下台湾。普京拿回乌克兰。他们认为美国和西方半死不活的社会状态是他们最佳的机会。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-1-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-我们是世界上最早说出“习普”二人有个双计划。习近平的“双龙计划”，是要拿下台湾、香港；普京是要拿下乌克兰。
+视频参看：
+[2022.03.03早 《NFSC新闻》](https://gettr.com/streaming/pxy6kk0828)[2022.03.03早 G|TV《新闻访谈》](https://gettr.com/streaming/pxywow1186)
 
-当时克里米亚内部造反，直接策反，普京一枪没发，拿回了克里米亚，这件事纵容了普京，也让普京成为世界上最牛X的一个。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-此事也极大地鼓舞了习近平这个人的野心，当时对他很刺激，习近平和一个人谈话时说：“普京这一票干的漂亮，名垂青史，世界上能有几个这样的政治家呀？一弹不发，一子不花，就让克里米亚内部全民投票，回归俄罗斯了。那是多大的事啊，而且啥事没有，国际上也没啥反应。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-calendar-4.png)
 
-这个事情纵容了习近平和普京的野心，同时让他俩更加狂妄的看不上美国和欧洲。经过这几年的深思熟虑，加上共产党放出的生化武器，而这些绝对都在他俩计划之中。他们是看不起美国和西方的这种半死不活的社会状态。他们现在觉得这是世界上最佳的时机。
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,24 +2,51 @@
 ---
 
 
-## 新中国联邦乌克兰救援行动初获胜果
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2100725/)
+## 欧洲议会投票承认乌克兰“欧盟候选国地位”
+` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/2100737/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+撰稿: 纽约香草山 – 宁文静
 
-采编/编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-304.png)图片来源：GTV 
-据3月2日GTV文贵大直播消息，本次由新中国联邦主导参与的“乌克兰国际人道救援行动”捷报频传，不仅向世界展示了爆料革命强大的执行力和国际影响力，更体现出新中国联邦人在果敢行动中实现“灭共是正义需要”的宗旨。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
 
-据悉，新中国联邦目前已成功在乌克兰战火中救出了至少四位爆料革命资深战友及其家人和朋友，并已全部安全抵达波兰。
 
-同时，喜马拉雅联盟委员会负责人大卫和老班长及相关战友团队都已准备就绪飞赴乌克兰和波兰，并计划在匈牙利、罗马尼亚建立营救基地。
 
-此外，新中国联邦与联合国救援组织将与当地国军方合作，全力营救被困华人，整个救援过程不需要提供任何个人信息。在成功进入波兰后，将直接入驻联合国指定酒店，享受30天免费食宿。最后，按被救助者个人意愿，提供免费航班飞往指定的安全国家。
 
-发稿：青青
 
-消息来源：https://gtv.org/video/id=621f6ab7019ef64da653b4fe
+当地时间3月1日，欧洲议会绝大多数议员投票赞成一项象征性的议案，以确立乌克兰的欧盟正式候选国资格。但乌真正加入欧盟尚需一定时日。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-297.png)图片来自：https://www.independent.ie/
+此次投票是在27日欧盟委员会主席尔苏拉·冯德莱恩表态乌克兰必须加入欧盟，28日乌克兰总统泽连斯基火速提交加入欧盟的资格申请之后，做出的一项关于俄罗斯侵略乌克兰的动议，旨在支持乌克兰成为欧盟的正式候选国，以及对俄罗斯实施更严厉和更广泛的制裁等。
+
+分析人士指出，欧盟议会接受了乌克兰加入欧盟的申请，正式启动相关程序。乌克兰还需要进行大量的国内立法和改革，以符合欧盟现有框架及标准。这个过程需要一定的时间。
+
+投票的最终结果为：637票赞成，26票弃权，另外有13票反对票。表决之前，泽连斯基通过视频发表了慷慨感人的演讲，获得全体议员站立鼓掌。
+
+新闻链接:
+
+[Wallace and Daly vote for long delay on Ukraine’s chance of joining EU](https://m.independent.ie/irish-news/politics/wallace-and-daly-vote-for-long-delay-on-ukraines-chance-of-joining-eu-41400042.html)
+
+[Resolution on Russian aggression against Ukraine](https://twitter.com/electsworld/status/1498747095632650240?s=21)
+
+[BREAKING: Ursula Von Der Leyen, President of the European Commission, tells Euronews that the EU wants Ukraine in the bloc and that “they’re one of us.”](Ursula%20Von%20Der%20Leyen,%20President%20of%20the%20European%20Commission,%20tells%20Euronews%20that%20the%20EU%20wants%20Ukraine%20in%20the%20bloc%20and%20that%20&quot;they're%20one%20of%20us.&quot;)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-14.jpg)
+
+编辑: 谐趣园
+
+总编/审核:飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
+
+
+
 
  
 

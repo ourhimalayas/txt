@@ -2,48 +2,37 @@
 ---
 
 
-## 令人心碎的照片：乌克兰儿童在俄罗斯袭击中丧生
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2101087/)
+## 精神疾病，这是一种欲望的疾病
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2101150/)
 
-据《纽约邮报网》(nypost.com) 作者：本·凯斯伦([Ben Kesslen](https://nypost.com/2022/02/27/tragic-photos-show-ukrainian-kids-killed-in-russian-attacks/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons))，2022年2月27日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-308-e1646328307306.png)在乌克兰东部马里乌波尔，医护人员对一名炮击受伤的女孩进行心肺复苏。
-图片来源：美联社
-周日出现了一些在俄罗斯对乌克兰的战争中遇难的,最年轻受害者的令人心碎的图片。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-在来自乌克兰顿涅茨克地区马里乌波尔市的令人心碎的照片中，有一张救护人员奥列克桑德·科诺瓦洛夫(Oleksandr Konovalov)对一个在俄罗斯袭击平民时受伤后被送到市医院的小女孩进行心肺复苏的镜头，但却徒劳无功。在她旁边，一个浑身是血的成年人痛苦地蹲了下来。
+2022-02-27直播摘录
 
-更多照片显示，在马里乌波尔医院内，她被一队成年人包围着，拼命地想要挽救她年轻的生命。
+凡是在乎功名者，活的是世界上最可怜的；惜功名者，必然是精神疾病的结果；追求权力、财富最大化，而完全你使用不了，这是一种欲望的疾病。你拥有这么多，七哥一天就吃一顿饭，你看着我活着多荣光，我就吃一顿饭。你说现在飞机你也不能飞，你说船？现在借家族的船整成这么大个麻烦，用用船。你看这麻烦，这船带多少麻烦，又是无人机，又是上庭，又是扯的，你看多大麻烦。你说住个18楼，你说有多复杂，七哥盖过那么多楼，住个18楼多大个事儿？你拥有了它的复杂性就在这摆，就超过你使用和需要的欲望、和财富、和能力，和权力，真的是人类的灾难。
 
-据《基辅独立报》报道，卫生部长维克多·利亚什科透露，她不幸成为迄今为止在战争中被杀害的16名儿童之一。
+贪、嗔、痴、慢、疑，我越来越感受，就真的佛……我为啥我相信佛，我说佛教不是绝对的，但是它绝对是目前我认为宗教里最伟大的。它是哲学，它不是神学，它是解开大自然的密码，它不是大自然的代理人，它是解开你对上天和人类的迷惑的一个方式，它不是上天的化身，就贪、嗔、痴、慢、疑——你贪、你嗔、你痴、你慢、你疑，你哪个掉里边你都出不来了。
 
-另一张照片拍摄了一些幸存者，其中包括一名妇女. 她手里抱着她的孩子和宠物狗，为了躲避街头战斗和城市中发生的冲突，她们挤进了马里乌波尔的一个避难所。
+你包括今天的普京大帝，你包括今天的习太阳，他就境界不够，人家美国人是谈自由，但是你不要忘了，美国也是很多很多问题的，国家也付出多少代价你看得出来的。但是这个国家还有个制衡机制，它还保留在一个地球上的规则范围之内，它还是最好的。当然它也是一定会被推翻，一定会被改变的，人类会有更好的制度推出来。
 
-利亚什科称俄罗斯军队以平民为目标,是“恐怖分子”。总统沃洛德米尔·泽伦斯基(Volodymyr Zelensky)称，俄罗斯人应该因犯下国际战争罪而被审判。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-309-e1646328358247.png)奥列克桑德·科诺瓦洛夫(Oleksandr Konovalov)试图抢救这个年轻女孩，但她随后不幸死亡。
-图片来源：美联社(AP)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-310-e1646328403190.png)到目前为止，已有16名儿童在战争中丧生。
-图片来源：美联社(AP)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-311-e1646328445134.png)年轻的女孩被一队成年人包围着，拼命地想挽救她的生命。
-图片来源：美联社(AP)
-周末，乌克兰各地的战斗仍在继续。俄罗斯总统弗拉基米尔·普京(Vladimir Putin)周日下令将该国的核武系统置于高度警戒状态，因此看不到明确的结束迹象。
+那么人类在书写这段历史的时候，只会总结就是：习太阳和普京就是真的就像个屁一样的，一下就给放掉了。我估计结果就是非常简单，曾经出现这俩神经病，由于在全世界人们都看不起，生产了自闭症，由于自闭症感觉自我狂妄，最后发生了叫政治“癫痫症”；然后是普京去了乌克兰，习太阳搞了台湾，结果就让美帝国主义借机把它给灭掉了，这是一场美国成功的消耗战，然后叫敌人去疯狂，然后让敌人去灭亡，然后自己变强大，然后美利坚从此成熟。人类上还被释放了冠状病毒和疫苗，那个时候人类上所有的和平时期，长时间的和平，带来的麻木、自私、贪婪、冷漠最后付出了代价。人类大重组，然后走上了数据时代，然后数据金融的时代，就这几句话就完了。
 
-一些最激烈的战斗发生在哈尔科夫市。当地乌克兰官员周日宣布了胜利。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-313-e1646328487440.png)女孩，俄罗斯炮击的受害者。图片来源：美联社![](https://assets.gnews.org/wp-content/uploads/2022/03/image-314-e1646328528208.png)卫生部长利亚什科（Viktor Lyashko）称俄罗斯军队以平民为目标是“恐怖主义者”。
-图片来源：美联社![](https://assets.gnews.org/wp-content/uploads/2022/03/image-315-e1646328568120.png)一名妇女抱着她的孩子和宠物狗挤进马里乌波尔的一个收容所。
-图片来源：美联社
-原文连接：[https://nypost.com/2022/02/27/tragic-photos-show-ukrainian-kids-killed-in-russian-attacks/?utm\_source=twitter\_sitebuttons&utm\_medium=site%20buttons&utm\_campaign=site%20buttons](https://nypost.com/2022/02/27/tragic-photos-show-ukrainian-kids-killed-in-russian-attacks/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-翻译：洛杉矶盘古农场 – TrueSky
+**关注我们**
 
-校对：洛杉矶盘古农场 – Freeearth
+Discord 账号
 
-编辑：洛杉矶盘古农场 – WenXiong
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-发布：洛杉矶盘古农场–子萍
+Gettr 账号
 
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U+2](https://discord.gg/2vuvRm7z6U+2)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

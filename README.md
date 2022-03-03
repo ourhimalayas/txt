@@ -15,113 +15,113 @@
 
 ---
 
-### [加拿大央行加息后，加拿大皇家银行将其最优惠利率提高四分之一个百分点](/content/gnews/1/README.md)
- ` MG FARM`
-
-### [加拿大向俄罗斯和白俄罗斯征收35%关税](/content/gnews/2/README.md)
- ` MG FARM`
-
-### [安省男子因骗局花光了他一生26万元的的积蓄](/content/gnews/3/README.md)
- ` MG FARM`
-
-### [加息浪潮中的赢家和输家](/content/gnews/4/README.md)
- ` MG FARM`
-
-### [普京寡头好友损失数十亿美元，于战争中渴求和平](/content/gnews/5/README.md)
+### [德国人扣押俄罗斯亿万富翁阿利舍尔·乌斯马诺夫的巨型游艇](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [DC大中华时事：台湾总统会见美特使团，美方保证维持承诺](/content/gnews/6/README.md)
+### [3/2/2022 文贵直播：正道主义必须包含信仰，它的核心是什么？平民运动是必要的，但其局限在哪儿？资本主义出了什么问题？](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [加拿大央行加息后，加拿大皇家银行将其最优惠利率提高四分之一个百分点](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [加拿大向俄罗斯和白俄罗斯征收35%关税](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [安省男子因骗局花光了他一生26万元的的积蓄](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [加息浪潮中的赢家和输家](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [普京寡头好友损失数十亿美元，于战争中渴求和平](/content/gnews/7/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [DC大中华时事：台湾总统会见美特使团，美方保证维持承诺](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [俄乌二次谈判 乌克兰要求俄罗斯停火并建立人道主义走廊](/content/gnews/7/README.md)
+### [俄乌二次谈判 乌克兰要求俄罗斯停火并建立人道主义走廊](/content/gnews/9/README.md)
  ` 蓝莲花农场`
 
-### [人格，个性：是一个人作出决定的根本性基础](/content/gnews/8/README.md)
+### [人格，个性：是一个人作出决定的根本性基础](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [乌克兰难民只有35%接种了新冠疫苗，几乎无人打第三针疫苗](/content/gnews/9/README.md)
+### [乌克兰难民只有35%接种了新冠疫苗，几乎无人打第三针疫苗](/content/gnews/11/README.md)
  ` xiaobaige`
 
-### [精神疾病，这是一种欲望的疾病](/content/gnews/10/README.md)
+### [精神疾病，这是一种欲望的疾病](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [七哥非常担心台湾和国内的亲朋好友](/content/gnews/11/README.md)
+### [七哥非常担心台湾和国内的亲朋好友](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [令人心碎的照片：乌克兰儿童在俄罗斯袭击中丧生](/content/gnews/12/README.md)
+### [令人心碎的照片：乌克兰儿童在俄罗斯袭击中丧生](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022年3月3日，全球中共病毒疫情情况汇总](/content/gnews/13/README.md)
+### [2022年3月3日，全球中共病毒疫情情况汇总](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国联合38国将俄侵乌暴行提交国际刑事法院](/content/gnews/14/README.md)
+### [英国联合38国将俄侵乌暴行提交国际刑事法院](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [浅谈俄乌战争的结局（上）](/content/gnews/15/README.md)
+### [浅谈俄乌战争的结局（上）](/content/gnews/17/README.md)
  ` 波士顿五月花农场`
 
-### [瑞典新研究表明辉瑞疫苗mRNA 能整合入人体 DNA](/content/gnews/16/README.md)
+### [瑞典新研究表明辉瑞疫苗mRNA 能整合入人体 DNA](/content/gnews/18/README.md)
  ` Little c`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年3月3日早](/content/gnews/17/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年3月3日早](/content/gnews/19/README.md)
  ` 纽约香草山MOS01`
 
-### [新中国联邦教育体系的设计](/content/gnews/18/README.md)
+### [新中国联邦教育体系的设计](/content/gnews/20/README.md)
  ` MOSVIDEO`
 
-### [克里米亚事件鼓舞了普京和习近平的野心](/content/gnews/19/README.md)
+### [克里米亚事件鼓舞了普京和习近平的野心](/content/gnews/21/README.md)
  ` MOSVIDEO`
 
-### [秘翻在线：SWIFT踢出卢布或使美元盛极转衰 数字货币将顺势登上高峰](/content/gnews/20/README.md)
+### [秘翻在线：SWIFT踢出卢布或使美元盛极转衰 数字货币将顺势登上高峰](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|普京催习抓紧行动 新中国联邦抓紧救援](/content/gnews/21/README.md)
+### [有声|普京催习抓紧行动 新中国联邦抓紧救援](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|中俄暧昧关系遭美方谴责](/content/gnews/22/README.md)
+### [有声|中俄暧昧关系遭美方谴责](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|概述美国对中国的帮助——清政府时期](/content/gnews/23/README.md)
+### [有声|得克萨斯州长要求商店停止销售俄罗斯产品](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [有声|得克萨斯州长要求商店停止销售俄罗斯产品](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [欧洲议会投票承认乌克兰“欧盟候选国地位”](/content/gnews/25/README.md)
+### [欧洲议会投票承认乌克兰“欧盟候选国地位”](/content/gnews/26/README.md)
  ` Gnews Special Squad`
 
-### [新中国联邦乌克兰救援行动初获胜果](/content/gnews/26/README.md)
+### [新中国联邦乌克兰救援行动初获胜果](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [俄军侵略乌克兰加速俄罗斯闭关锁国](/content/gnews/27/README.md)
+### [俄军侵略乌克兰加速俄罗斯闭关锁国](/content/gnews/28/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [二月以来中共国三十家房企频繁出现人事变动](/content/gnews/28/README.md)
+### [二月以来中共国三十家房企频繁出现人事变动](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [欧盟议会高票赞成乌克兰的加盟申请](/content/gnews/29/README.md)
+### [欧盟议会高票赞成乌克兰的加盟申请](/content/gnews/30/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [美国贸易代表办公室2021年国会报告：中共国WTO遵守情况](/content/gnews/30/README.md)
+### [美国贸易代表办公室2021年国会报告：中共国WTO遵守情况](/content/gnews/31/README.md)
  ` 经济小组`
 
-### [俄罗斯卢布贬值再现排队抢购潮](/content/gnews/31/README.md)
+### [俄罗斯卢布贬值再现排队抢购潮](/content/gnews/32/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [俄罗斯企业家悬赏百万美元要普京头颅](/content/gnews/32/README.md)
+### [俄罗斯企业家悬赏百万美元要普京头颅](/content/gnews/33/README.md)
  ` Shuizhuyu`
 
-### [俄媒体报道侵略战争真相遭报复](/content/gnews/33/README.md)
+### [俄媒体报道侵略战争真相遭报复](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯警告基辅居民逃离家园](/content/gnews/34/README.md)
+### [俄罗斯警告基辅居民逃离家园](/content/gnews/35/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [美访台特使称 将坚决维护台海和平承诺](/content/gnews/35/README.md)
+### [美访台特使称 将坚决维护台海和平承诺](/content/gnews/36/README.md)
  ` NFSC News`
-
-### [最危险地方不是乌克兰](/content/gnews/36/README.md)
- ` 银河勇气之星`
 
 ### [3/3/2022 国际财经快讯：美国部分州调查TikTok可能对儿童造成的网络伤害；俄罗斯卢布在评级下调后进一步下滑](/content/gnews/37/README.md)
  ` 秘密翻译组金融团队`
