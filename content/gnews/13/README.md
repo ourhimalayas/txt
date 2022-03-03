@@ -2,39 +2,42 @@
 ---
 
 
-## 美国战略部：必须遏制中俄核威胁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2101574/)
+## 有声|中共将毀于自身的假和騙
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2101721/)
 
-整理：围剿维尼熊
-编辑：Candy
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+```
+在2月27日的大直播中，郭先生表示，俄乌战争对中共的触动很大，已经影响到中共的对台作战战略，但是中共将会毁于自身的假和骗。
+```
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/核威胁.png)图片来源：Shutterstock
+
+郭先生说，习近平具有非常矛盾的性格，文化程度不高、循规蹈矩却又非常固执倔强。“双头鹰计划”是习近平与普京的既定战略，因此对于习来说，开两会和打台湾并不对立。据中共军方人士告诉郭先生说，中共原先认为俄罗斯会在48小时内拿下乌克兰，并对泽连斯基进行斩首。因此中共也曾经计划迅速攻下台湾，并用无人机对民进党高层进行斩首。或者依靠台湾卖台贼进行内部斩首，即所谓的“杀独救台”。但是俄乌战争中俄罗斯糟糕的表现，和乌克兰成功的信息战、科技战、网络战所形成的强烈对比，对中共有很深的触动。
+中共军委副主席许其亮和总参三部的李八喜，看到俄乌战争战况以后表示，如果共军使用最廉价的武器进行闪电战，妄图侵略台湾的结局恐怕会适得其反。因为不仅美日在台海周围布置了潜艇部队，而且共军攻台的空军、无人机和导弹，都依赖信息通信，而共军的电子战又是他们的致命短板，因此当前俄乌战争状况对中共军方震动很大，已经影响到了共军的攻台战略。但是共军的下级军官为了保全自身的命运和既得利益，却只能欺骗共军高层应该继续对台湾实行闪电战，因此中共一定会毁于自身的相互造假和相互欺骗。
 
 
-根据大纪元2022年3月3日讯，美国战略司令部（U.S. Strategic Command）司令、海军上将查尔斯·理查德（Charles Richard）表示，美国必须具备同时防御俄罗斯和中共的核打击的能力，这已成为当务之急。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/AP21130749430770.jpg)
 
-他指出，虽然在去年4月，关于同时遏制中共和俄罗斯的必要性的问题，只是处于一个被主要关切的水平，但现在，这种令人担忧的情况“已经成为现实”。
 
-理查德说：“去年秋天，我正式向国防部长报告了中国（中共）的战略突破。它仅在2021年的扩张和现代化，就已令人感到惊讶。”
+文字版原文：[中共将毀于自身的假和騙](https://gnews.org/zh-hans/2095233/)
 
-2月4日，俄罗斯总普京（Vladimir Putin）和中共领导人习近平举行会晤后发表声明称，中共和俄罗斯对美国的威胁比以往任何时候都大，因为这两个邻国目前拥有“不受限制”的伙伴关系。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-据报导，去年夏天，中共试射了可携带核弹头的高超音速导弹，导致参谋长联席会议主席马克·米利（Mark Milley）惊呼，这次试验非常接近“斯普特尼克时刻”（Sputnik moment）。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-此外，有报导称，中共正在建造数百个新的核导弹发射井。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-参考链接：[海军上将：美国面临前所未有的中俄核威胁](https://www.epochtimes.com/gb/22/3/3/n13617568.htm)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-***发布：Candy***
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

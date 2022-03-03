@@ -2,45 +2,39 @@
 ---
 
 
-## 随着制裁生效，俄罗斯 UBC 学生出现财务危机
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2101404/)
+## 美国战略部：必须遏制中俄核威胁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2101574/)
 
-作者：CBC News
-翻译：HimaCoby
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ad-e1646343284534.png)
-不列颠哥伦比亚大学的一名国际学生表示，在对俄罗斯实施经济制裁的情况下，他也面临着不确定性。
+整理：围剿维尼熊
+编辑：Candy
 
-二年级学生 Artemi Meshcherin 说，他已经好几天无法从他在莫斯科的父母那里获得资金。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-“现在，我在经济上与家里隔绝，”他说。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/核威胁.png)图片来源：Shutterstock
 
-随着该国对乌克兰的入侵愈演愈烈，加拿大和包括美国在内的其他国家对俄罗斯实施了实质性制裁，最引人注目的是切断了俄罗斯主要银行与世界其他地区的联系。
 
-Mescherin 说他不确定自己会被锁定多久。
+根据大纪元2022年3月3日讯，美国战略司令部（U.S. Strategic Command）司令、海军上将查尔斯·理查德（Charles Richard）表示，美国必须具备同时防御俄罗斯和中共的核打击的能力，这已成为当务之急。
 
-“不幸的是，许多俄罗斯人，包括在 UBC 和加拿大的俄罗斯学生，他们必须根据政府做出的决定而买单，”他说。
+他指出，虽然在去年4月，关于同时遏制中共和俄罗斯的必要性的问题，只是处于一个被主要关切的水平，但现在，这种令人担忧的情况“已经成为现实”。
 
-“而且我们无法控制这一点。而且我认为说我们与现在正在发生的一切有某种关联是不公平的。”
+理查德说：“去年秋天，我正式向国防部长报告了中国（中共）的战略突破。它仅在2021年的扩张和现代化，就已令人感到惊讶。”
 
-作为一名国际学生，他只能做兼职。他希望他在这里赚到的钱能让他暂时维持生计，但这还不足以支付学费，他说，与国内学生相比，国际学生的学费要高得多。
+2月4日，俄罗斯总普京（Vladimir Putin）和中共领导人习近平举行会晤后发表声明称，中共和俄罗斯对美国的威胁比以往任何时候都大，因为这两个邻国目前拥有“不受限制”的伙伴关系。
 
-根据 UBC 的说法，许多学生处于类似情况。该大学建议他们与大学官员交谈，并补充说，紧急助学金等支持已经到位。
+据报导，去年夏天，中共试射了可携带核弹头的高超音速导弹，导致参谋长联席会议主席马克·米利（Mark Milley）惊呼，这次试验非常接近“斯普特尼克时刻”（Sputnik moment）。
 
-Meshcherin 说，他正在应对不确定性带来的压力，但他指出，与他在校园里的乌克兰朋友所经历的相比，这相形见绌，因为​​他们的朋友和家人都处于直接危险之中。
+此外，有报导称，中共正在建造数百个新的核导弹发射井。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+参考链接：[海军上将：美国面临前所未有的中俄核威胁](https://www.epochtimes.com/gb/22/3/3/n13617568.htm)
 
-**关注我们**
+***发布：Candy***
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

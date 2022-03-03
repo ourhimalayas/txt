@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/3/2022 10:27 PM (UTC)`
+
+3/02/2022 Miles Guo: Nuclear war is extremely unlikely to happen, so no need to worry about it! Putin has invaded Ukraine, threatened Ukraine with nuclear weapons, and bombed civilians, and all these three dirty moves will only cause him to lose support, leading to his own demise.<br/><br/>3/02/2022 文贵直播: 发生核战的可能性极低，无需担心核战争！普京用打乌克兰，核武器威胁对手和轰炸平民这三个滥招儿只会让他失道寡助，自取灭亡！<br/>
+![img](https://media.gettr.com/group15/getter/2022/03/03/22/ad344a1b-6daf-0285-6824-49459971ef50/out.jpg)
+
+---
+
 `@miles 3/3/2022 10:20 PM (UTC)`
 
 3/2/2022 Miles Guo: The situation of the Russia-Ukraine war has made “Xi the Sun” hesitate to invade Taiwan and has saved Taiwan to some extent. So, we should work even harder to help save the Ukrainians. The Taiwanese who have faith are blessed by God, and if the situation turns bad, they can take refuge in the rescue base that we will establish in Palau.<br/><br/>3/2/2022 文贵直播: 俄乌战争形势让习太阳在攻台问题上发怵，某种程度上拯救了台湾，所以我们更要努力救援乌克兰人；有信仰的台湾人受上天保佑，一旦有风吹草动，他们可以去我们在帕劳建好的基地避难<br/>
@@ -149,12 +156,6 @@ We’ve seen this coming, and we’ve been reactionary. That gave Vladimir Putin
 
 3/2/2022 Miles Guo: The New Federal State of China on Emergency Rescue of Ukraine has just accomplished the first mission. We successfully rescued four of our fellow fighters along with three families, and they arrived in Poland safely.<br/><br/>3/2/2022 文贵直播：新中国联邦乌克兰救援行动首战告捷，100%成功搭救战友，四位战友及三个家庭已顺利到达波兰。<br/>
 ![img](https://media.gettr.com/group23/getter/2022/03/02/21/f11e251a-4530-6518-edf8-4d5bfaf14b25/out.jpg)
-
----
-
-`@miles 3/2/2022 4:34 PM (UTC)`
-
-3月2号：这就是邪恶的中国共产党……比爹娘还亲的中国共产党。这就是强大的战狼外交的中国共产党！看看这个视频吧兄弟姐妹们！尊敬的战友们好．由于本星期五是我母亲的冥诞日．所以本周五没有直播。💪💪💪😭😭😭https://youtu.be/tqN4sI4SNRc
 
 ---
 
