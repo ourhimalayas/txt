@@ -2,40 +2,42 @@
 ---
 
 
-## 2022/03/03 文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2101733/)
+## 有声|新中国联邦展开紧急行动救援乌克兰
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2101734/)
 
-[![](https://express.adobe.com/page/4jT6YUnxk0URX/images/6829a295-45b4-4e5d-8160-03dcb8bfc9ae.png?asset_id=63604ea0-64b6-42e3-ad67-39d57bb4d626&amp;img_etag=%229ac172f135530c7d8195c2c3a2de7a14%22&amp;size=2560)](https://express.adobe.com/page/4jT6YUnxk0URX/images/6829a295-45b4-4e5d-8160-03dcb8bfc9ae.png?asset_id=63604ea0-64b6-42e3-ad67-39d57bb4d626&amp;img_etag=%229ac172f135530c7d8195c2c3a2de7a14%22&amp;size=1024)
-[**GETTR视频链接**](https://gettr.com/post/pxzpvd8eb7)
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月1日，郭文贵先生在盖特平台上发布消息称，新中国联邦在乌克兰的救援行动感动了世界，战友们的行动远远超过中共的所作所为。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1.jpeg)
+郭先生解释道，在此次乌克兰的救援行动中，新中国联邦与世界上很多国家和机构建立了对等合作和相互信任的关系。此外，许多其他友好力量也开始了与新中国联邦的合作。
 
-• 明天农历二月初二龙抬头，七哥母亲冥诞三周年。七哥因想念家人昨天彻夜未眠。战友们请珍惜亲人。
+郭先生还提到，乌克兰某团体这次也向新中国联邦发出了求救，随后，新中国联邦毫不犹豫的肯定答复和完全不求任何回报的行为让乌克兰人民极为感动，也让世界看到了新中国联邦的大爱精神。
 
-• 新中国联邦救援行动已经救出三家在乌克兰战友。大卫和文耀已到达华沙，陆续还有从加拿大美国战友前往波兰。本周计划安排两架飞机撤离（一架飞往东南亚、一架飞往美加）。百分之百救出战友，会有直播介绍细节。
+郭先生也补充道，新中国联邦用事实和实力向世界证明，我们是真的在救人。目前，乌克兰境内唯一可信赖的、来自中国人的声音，就是新中国联邦发出的救援信号。
 
-• 听说普京要动用大招对付乌克兰人民，普京下手越猛死得越惨。
-
-• 俄罗斯人欲找七哥疯狂变卖资产，七哥不搭理。
-
-• 新的数字货币时代已经诞生，中共向俄罗斯提供兑换人民币业务，美国用法币（Swift系统）惩罚俄罗斯。
-
-• 美国朋友透露西方“大杀器”还是美元，俄乌局势将催生新的金融系统数字货币（有稳定币锚定的数字币、不能被垄断）。
-
-• 七哥提前向美国朋友预测彭培奥先生和余茂春先生访问台湾的后果：
-
-1. 飞机出现故障；
-2. 出现停电并常态化；
-3. 台湾金融和科技系统被骇客。中共习惯性“下三路” 。
+眼下，新中国联邦对乌克兰的紧急救援行动正在战友们地努力下快速而有条不紊地进行着。
 
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
+文字版原文：[新中国联邦展开紧急行动救援乌克兰](https://gnews.org/zh-hans/2095413/)
 
-*编辑：【英国伦敦喜庄园编辑部】*
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-*听写：* *call me uncle* *| 校对：乐禧禧 | Page：我是球大哥*
-[![](https://express.adobe.com/page/4jT6YUnxk0URX/images/6f7d1e61-4a08-4822-8ef2-ebfe30c3fee0.jpg?asset_id=885950a2-4f24-4fda-a943-7478a4ed841d&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/4jT6YUnxk0URX/images/6f7d1e61-4a08-4822-8ef2-ebfe30c3fee0.jpg?asset_id=885950a2-4f24-4fda-a943-7478a4ed841d&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

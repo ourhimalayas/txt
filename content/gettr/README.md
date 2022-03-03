@@ -17,12 +17,10 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-**:arrows_clockwise: miles 已轉發**
+`@miles 3/3/2022 10:20 PM (UTC)`
 
-`@yezhaoying 3/3/2022 8:56 PM (UTC)`
-
-英文版
-![img](https://media.gettr.com/group49/getter/2022/03/03/20/5ecdfaee-3970-933b-d795-4dec7b319300/out.jpg)
+3/2/2022 Miles Guo: The situation of the Russia-Ukraine war has made “Xi the Sun” hesitate to invade Taiwan and has saved Taiwan to some extent. So, we should work even harder to help save the Ukrainians. The Taiwanese who have faith are blessed by God, and if the situation turns bad, they can take refuge in the rescue base that we will establish in Palau.<br/><br/>3/2/2022 文贵直播: 俄乌战争形势让习太阳在攻台问题上发怵，某种程度上拯救了台湾，所以我们更要努力救援乌克兰人；有信仰的台湾人受上天保佑，一旦有风吹草动，他们可以去我们在帕劳建好的基地避难<br/>
+![img](https://media.gettr.com/group50/getter/2022/03/03/22/245e6a95-751d-3d6a-21da-3798e3b0b74f/out.jpg)
 
 ---
 

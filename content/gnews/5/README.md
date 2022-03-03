@@ -2,43 +2,28 @@
 ---
 
 
-## 有声|中共将毀于自身的假和騙
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2101721/)
+## 大众汽车停止了在俄罗斯的全部业务
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2101732/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+**大众汽车退出俄罗斯市场–对德国就业的影响尚不清楚。**
 
-```
-在2月27日的大直播中，郭先生表示，俄乌战争对中共的触动很大，已经影响到中共的对台作战战略，但是中共将会毁于自身的假和骗。
-```
+翻译：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-3.tiff)图片：2009年10月20日，俄罗斯总理弗拉基米尔·普京（左）与大众汽车公司首席执行官马丁·温特科恩在俄罗斯卡卢加的一家大众汽车工厂开幕式上握手。/ dpa
 
+由于对乌克兰的战争，大众汽车停止在俄罗斯的业务。据媒体报道，周四来自沃尔夫斯堡的消息：“在俄罗斯袭击事件的背景下，集团执行委员会决定停止在俄罗斯的汽车生产，直到进一步通知。欧洲最大的汽车集团也将“立即停止”对俄罗斯的汽车出口。
 
-郭先生说，习近平具有非常矛盾的性格，文化程度不高、循规蹈矩却又非常固执倔强。“双头鹰计划”是习近平与普京的既定战略，因此对于习来说，开两会和打台湾并不对立。据中共军方人士告诉郭先生说，中共原先认为俄罗斯会在48小时内拿下乌克兰，并对泽连斯基进行斩首。因此中共也曾经计划迅速攻下台湾，并用无人机对民进党高层进行斩首。或者依靠台湾卖台贼进行内部斩首，即所谓的“杀独救台”。但是俄乌战争中俄罗斯糟糕的表现，和乌克兰成功的信息战、科技战、网络战所形成的强烈对比，对中共有很深的触动。
-中共军委副主席许其亮和总参三部的李八喜，看到俄乌战争战况以后表示，如果共军使用最廉价的武器进行闪电战，妄图侵略台湾的结局恐怕会适得其反。因为不仅美日在台海周围布置了潜艇部队，而且共军攻台的空军、无人机和导弹，都依赖信息通信，而共军的电子战又是他们的致命短板，因此当前俄乌战争状况对中共军方震动很大，已经影响到了共军的攻台战略。但是共军的下级军官为了保全自身的命运和既得利益，却只能欺骗共军高层应该继续对台湾实行闪电战，因此中共一定会毁于自身的相互造假和相互欺骗。
+大众公司在莫斯科西南的卡卢加和更东边的下诺夫哥罗德经营自己的汽车制造。该公司宣布将停止两个工厂的生产。同样，大众汽车集团旗下品牌的汽车也不再出口到俄罗斯。总部位于沃尔夫斯堡的公司解释说：“随着业务活动的大规模中断，这是集团的管理委员会从当前高度的不确定性和总体局势动荡做出地决定。”
 
+在其他国家，对乌克兰的攻击已造成汽车制造商的生产减缓—大众公司也是如此。在新冠病毒和芯片危机之后，茨维考、沃尔夫斯堡或汉诺威等工厂进一步出现了大规模停工，由于来自乌克兰西部的零件供应短缺。公司最新表示：“我们的工作组继续致力于跨部门和跨品牌的解决方案，”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/AP21130749430770.jpg)
+采购总监穆拉特·阿克塞尔（Murat Aksel）、人力资源总监贡纳·基里安（Gunnar Kilian）和工会主席丹妮拉·卡瓦洛（Daniela Cavallo）在给员工的信中写道：“乌克兰的战争令我们所有人感到沮丧。在俄罗斯发动袭击后，大众汽车公司希望迅速停止敌对行动并恢复外交。”
 
+上周，首席执行官赫伯特·迪斯（Herbert Diess）已经对战争的开始表现出“非常的关切和震惊 ”。
 
-文字版原文：[中共将毀于自身的假和騙](https://gnews.org/zh-hans/2095233/)
+原文链接：[https://www.berliner-zeitung.de/wirtschaft-verantwortung/volkswagen-stoppt-gesamtes-geschaeft-in-russland-li.215044](https://www.berliner-zeitung.de/wirtschaft-verantwortung/volkswagen-stoppt-gesamtes-geschaeft-in-russland-li.215044)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+发布：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,40 @@
 ---
 
 
-## 大众汽车停止了在俄罗斯的全部业务
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2101732/)
+## 2022/03/03 文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2101733/)
 
-**大众汽车退出俄罗斯市场–对德国就业的影响尚不清楚。**
+[![](https://express.adobe.com/page/4jT6YUnxk0URX/images/6829a295-45b4-4e5d-8160-03dcb8bfc9ae.png?asset_id=63604ea0-64b6-42e3-ad67-39d57bb4d626&amp;img_etag=%229ac172f135530c7d8195c2c3a2de7a14%22&amp;size=2560)](https://express.adobe.com/page/4jT6YUnxk0URX/images/6829a295-45b4-4e5d-8160-03dcb8bfc9ae.png?asset_id=63604ea0-64b6-42e3-ad67-39d57bb4d626&amp;img_etag=%229ac172f135530c7d8195c2c3a2de7a14%22&amp;size=1024)
+[**GETTR视频链接**](https://gettr.com/post/pxzpvd8eb7)
 
-翻译：Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-3.tiff)图片：2009年10月20日，俄罗斯总理弗拉基米尔·普京（左）与大众汽车公司首席执行官马丁·温特科恩在俄罗斯卡卢加的一家大众汽车工厂开幕式上握手。/ dpa
+• 明天农历二月初二龙抬头，七哥母亲冥诞三周年。七哥因想念家人昨天彻夜未眠。战友们请珍惜亲人。
 
-由于对乌克兰的战争，大众汽车停止在俄罗斯的业务。据媒体报道，周四来自沃尔夫斯堡的消息：“在俄罗斯袭击事件的背景下，集团执行委员会决定停止在俄罗斯的汽车生产，直到进一步通知。欧洲最大的汽车集团也将“立即停止”对俄罗斯的汽车出口。
+• 新中国联邦救援行动已经救出三家在乌克兰战友。大卫和文耀已到达华沙，陆续还有从加拿大美国战友前往波兰。本周计划安排两架飞机撤离（一架飞往东南亚、一架飞往美加）。百分之百救出战友，会有直播介绍细节。
 
-大众公司在莫斯科西南的卡卢加和更东边的下诺夫哥罗德经营自己的汽车制造。该公司宣布将停止两个工厂的生产。同样，大众汽车集团旗下品牌的汽车也不再出口到俄罗斯。总部位于沃尔夫斯堡的公司解释说：“随着业务活动的大规模中断，这是集团的管理委员会从当前高度的不确定性和总体局势动荡做出地决定。”
+• 听说普京要动用大招对付乌克兰人民，普京下手越猛死得越惨。
 
-在其他国家，对乌克兰的攻击已造成汽车制造商的生产减缓—大众公司也是如此。在新冠病毒和芯片危机之后，茨维考、沃尔夫斯堡或汉诺威等工厂进一步出现了大规模停工，由于来自乌克兰西部的零件供应短缺。公司最新表示：“我们的工作组继续致力于跨部门和跨品牌的解决方案，”
+• 俄罗斯人欲找七哥疯狂变卖资产，七哥不搭理。
 
-采购总监穆拉特·阿克塞尔（Murat Aksel）、人力资源总监贡纳·基里安（Gunnar Kilian）和工会主席丹妮拉·卡瓦洛（Daniela Cavallo）在给员工的信中写道：“乌克兰的战争令我们所有人感到沮丧。在俄罗斯发动袭击后，大众汽车公司希望迅速停止敌对行动并恢复外交。”
+• 新的数字货币时代已经诞生，中共向俄罗斯提供兑换人民币业务，美国用法币（Swift系统）惩罚俄罗斯。
 
-上周，首席执行官赫伯特·迪斯（Herbert Diess）已经对战争的开始表现出“非常的关切和震惊 ”。
+• 美国朋友透露西方“大杀器”还是美元，俄乌局势将催生新的金融系统数字货币（有稳定币锚定的数字币、不能被垄断）。
 
-原文链接：[https://www.berliner-zeitung.de/wirtschaft-verantwortung/volkswagen-stoppt-gesamtes-geschaeft-in-russland-li.215044](https://www.berliner-zeitung.de/wirtschaft-verantwortung/volkswagen-stoppt-gesamtes-geschaeft-in-russland-li.215044)
+• 七哥提前向美国朋友预测彭培奥先生和余茂春先生访问台湾的后果：
 
-发布：Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01.jpg)
+1. 飞机出现故障；
+2. 出现停电并常态化；
+3. 台湾金融和科技系统被骇客。中共习惯性“下三路” 。
+
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*听写：* *call me uncle* *| 校对：乐禧禧 | Page：我是球大哥*
+[![](https://express.adobe.com/page/4jT6YUnxk0URX/images/6f7d1e61-4a08-4822-8ef2-ebfe30c3fee0.jpg?asset_id=885950a2-4f24-4fda-a943-7478a4ed841d&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/4jT6YUnxk0URX/images/6f7d1e61-4a08-4822-8ef2-ebfe30c3fee0.jpg?asset_id=885950a2-4f24-4fda-a943-7478a4ed841d&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
