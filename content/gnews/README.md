@@ -15,47 +15,47 @@
 
 ---
 
-### [香港新增中共病毒超5.5万例 韩国超21.9万例 均创新高](/content/gnews/1/README.md)
+### [大直播后记：新中国联邦崇尚正道主义](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥真的就爱中国人](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥只要的结果是救人](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [香港新增中共病毒超5.5万例 韩国超21.9万例 均创新高](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本驻乌克兰大使馆临时关闭](/content/gnews/2/README.md)
+### [日本驻乌克兰大使馆临时关闭](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [3/2/2022 文贵直播：俄罗斯内部起剧变，普京身边开始出现反对声；美国及联合国会对俄罗斯有进一步制裁](/content/gnews/3/README.md)
+### [3/2/2022 文贵直播：俄罗斯内部起剧变，普京身边开始出现反对声；美国及联合国会对俄罗斯有进一步制裁](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [2022年不会再有普大帝和习太阳](/content/gnews/4/README.md)
+### [2022年不会再有普大帝和习太阳](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [数字时代最大赢家](/content/gnews/5/README.md)
+### [数字时代最大赢家](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [最关键是正道主义](/content/gnews/6/README.md)
+### [最关键是正道主义](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [战争打出一个新的世界格局共产党会100%消失](/content/gnews/7/README.md)
+### [战争打出一个新的世界格局共产党会100%消失](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [【粤语配音】2022年3月2日：新中国联邦乌克兰救援成功打响第一枪](/content/gnews/8/README.md)
+### [【粤语配音】2022年3月2日：新中国联邦乌克兰救援成功打响第一枪](/content/gnews/11/README.md)
  ` MOS香港部`
 
-### [中俄在俄乌战争背后的勾当](/content/gnews/9/README.md)
+### [中俄在俄乌战争背后的勾当](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共的疯狂唤醒战争机器日本](/content/gnews/10/README.md)
+### [中共的疯狂唤醒战争机器日本](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [【转】截至3.2 俄乌战事汇总（9）](/content/gnews/11/README.md)
+### [【转】截至3.2 俄乌战事汇总（9）](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [大直播后记：战友，今天你行动了吗？](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [香港疫情｜全民检测“小禁足”，倾向可限时到超市药房诊所](/content/gnews/13/README.md)
- ` 蓝莲花农场`
-
-### [【文炬拾字】新中国联邦人道救援乌克兰](/content/gnews/14/README.md)
- ` 温哥华扬帆农场`
 
 ### [美国及世界疫情简报（03-02-2022）](/content/gnews/15/README.md)
  ` 波士顿五月花农场`
@@ -87,89 +87,89 @@
 ### [体育界又一悲剧：一名22岁的年轻橄榄球运动员在训练中死亡](/content/gnews/24/README.md)
  ` xiaobaige`
 
-### [3/2/2022 文贵直播：新中国联邦的大营救没有私心只为救人；我们为救人不会考虑成本代价，但要绝对保证所有人的安全](/content/gnews/25/README.md)
- ` 秘密翻译组-北美组`
-
-### [俄罗斯银行挤兑开始 提醒所有人银行稳定性](/content/gnews/26/README.md)
+### [俄罗斯银行挤兑开始 提醒所有人银行稳定性](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“天安门母亲”：承载八九六四之重并护佑新中国联邦六四之新生](/content/gnews/27/README.md)
+### [“天安门母亲”：承载八九六四之重并护佑新中国联邦六四之新生](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [五月花简报（03/02/2022）](/content/gnews/28/README.md)
+### [五月花简报（03/02/2022）](/content/gnews/27/README.md)
  ` mayflowertranslate`
 
-### [中共战狼拒绝躲在地下室里在乌克兰中国留学生的求救](/content/gnews/29/README.md)
+### [中共战狼拒绝躲在地下室里在乌克兰中国留学生的求救](/content/gnews/28/README.md)
  ` mayflowertranslate`
 
-### [基辅市长称城市被包围，后来又收回了这一说法](/content/gnews/30/README.md)
+### [基辅市长称城市被包围，后来又收回了这一说法](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共将毀于自身的假和騙](/content/gnews/31/README.md)
+### [中共将毀于自身的假和騙](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
 
-### [拜登宣布 “从检测到治疗”计划，免费提供抗新冠病毒口服药](/content/gnews/32/README.md)
+### [拜登宣布 “从检测到治疗”计划，免费提供抗新冠病毒口服药](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022/02/28 墙内世界](/content/gnews/33/README.md)
+### [2022/02/28 墙内世界](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [习近平和普京已变成孤家寡人](/content/gnews/34/README.md)
+### [习近平和普京已变成孤家寡人](/content/gnews/33/README.md)
  ` 纽约香草山MOS02`
 
-### [《中共邪教七日谈》](/content/gnews/35/README.md)
+### [《中共邪教七日谈》](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [拜登国情咨文中称，普京将付出持续的高昂代价](/content/gnews/36/README.md)
+### [拜登国情咨文中称，普京将付出持续的高昂代价](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌克兰要求欧美协助建立禁飞区](/content/gnews/37/README.md)
+### [乌克兰要求欧美协助建立禁飞区](/content/gnews/36/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [拜登呼吁国会尽快提交提高美国与中共国竞争力的法案](/content/gnews/38/README.md)
+### [拜登呼吁国会尽快提交提高美国与中共国竞争力的法案](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [3/2/2022 国际财经快讯：俄罗斯供应担忧加剧，欧洲天然气价格触及新高；欧盟将七家俄罗斯银行排除在SWIFT之外](/content/gnews/39/README.md)
+### [3/2/2022 国际财经快讯：俄罗斯供应担忧加剧，欧洲天然气价格触及新高；欧盟将七家俄罗斯银行排除在SWIFT之外](/content/gnews/38/README.md)
  ` 秘密翻译组金融团队`
 
-### [乌克兰战争再次表明中国人将为中共买单](/content/gnews/40/README.md)
+### [乌克兰战争再次表明中国人将为中共买单](/content/gnews/39/README.md)
  ` 波士顿五月花农场`
 
-### [美国民众对拜登处理俄乌危机的支持度上升](/content/gnews/41/README.md)
+### [美国民众对拜登处理俄乌危机的支持度上升](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知](/content/gnews/42/README.md)
+### [【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [后共时代 世界大变局](/content/gnews/43/README.md)
+### [后共时代 世界大变局](/content/gnews/42/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [波音宣布全面停止供应俄国零组件与维修服务](/content/gnews/44/README.md)
+### [波音宣布全面停止供应俄国零组件与维修服务](/content/gnews/43/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022.3.2大直播 新中国联邦在乌克兰当地援行动百分百成功](/content/gnews/45/README.md)
+### [2022.3.2大直播 新中国联邦在乌克兰当地援行动百分百成功](/content/gnews/44/README.md)
  ` 秘密翻译组-原创组`
 
-### [与中共疫苗作战的加拿大人居然遭遇中国人千元加币索赔](/content/gnews/46/README.md)
+### [与中共疫苗作战的加拿大人居然遭遇中国人千元加币索赔](/content/gnews/45/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [新西兰财经G乐部2022年3月2日:财经新闻整理](/content/gnews/47/README.md)
+### [新西兰财经G乐部2022年3月2日:财经新闻整理](/content/gnews/46/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [也许是时候世界支持台湾合法政府的独立了](/content/gnews/48/README.md)
+### [也许是时候世界支持台湾合法政府的独立了](/content/gnews/47/README.md)
  ` 美国政要直译推`
 
-### [为抗议中共国卑劣人权问题，瑞典运动员将冬奥金牌赠予被囚书商之女](/content/gnews/49/README.md)
+### [为抗议中共国卑劣人权问题，瑞典运动员将冬奥金牌赠予被囚书商之女](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国情智部门促使中共国和俄罗斯连手](/content/gnews/50/README.md)
+### [美国情智部门促使中共国和俄罗斯连手](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [参议员马可·卢比奥：长期来看,中共国的危险性要高出普京50倍](/content/gnews/51/README.md)
+### [参议员马可·卢比奥：长期来看,中共国的危险性要高出普京50倍](/content/gnews/50/README.md)
  ` 美国政要直译推`
 
-### [台湾|拜登公开派遣前国防官员访台 称表达对台湾主权的支持](/content/gnews/52/README.md)
+### [台湾|拜登公开派遣前国防官员访台 称表达对台湾主权的支持](/content/gnews/51/README.md)
  ` 關注組`
+
+### [《避风港Haven》直播内容精选（第十四集·上）](/content/gnews/52/README.md)
+ ` 喜马拉雅纽约磐石农场`
 
 ### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/53/README.md)
  ` 纽约香草山MOS02`
