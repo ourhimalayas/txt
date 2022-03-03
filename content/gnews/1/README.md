@@ -2,28 +2,32 @@
 ---
 
 
-## 中日财经爆|西方已冻结俄央行一半资产 制裁还会加码
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2097622/)
+## 2022年3月3日上午九时许台湾局部地区突发无预警停电
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2097639/)
 
-撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1646271534-62201c2e76670_副本.jpg)图片取自网络
+2022年3月3日台湾时间早九时许，笔者住所突发停电，停电后消防单位立即进入戒备状态，经与住所管理员沟通后得整栋楼全部停电，随后在与台湾其他地区的家人及朋友联系，得知此次突发无预警停电并非全台停电，2022年3月3日台湾时间早10:40 笔者所在住所恢复供电。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西方已冻结俄央行一半资产-制裁还会加码.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimages.wsj.net%2Fim-494349%3Fwidth%3D860%26height%3D573&amp;imgrefurl=https%3A%2F%2Fcn.wsj.com%2Farticles%2F%25E7%25BE%258E%25E5%259B%25BD%25E5%2588%25B6%25E8%25A3%2581%25E4%25BF%2584%25E7%25BD%2597%25E6%2596%25AF%25E5%25A4%25AE%25E8%25A1%258C-11646090759&amp;tbnid=RMr6TQPZ0X9tIM&amp;vet=12ahUKEwj7uJmE_qj2AhXxidgFHWkpC_sQMygBegUIARDJAQ..i&amp;docid=YIJ2NoJDbkf7sM&amp;w=860&amp;h=573&amp;q=%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF&amp;ved=2ahUKEwj7uJmE_qj2AhXxidgFHWkpC_sQMygBegUIARDJAQ)
+由于此次无预警断电恰逢美国前国务卿彭佩奥先生访台期间，再加上普京与习近平的你取乌克兰我取台湾计划已经大白天下，因此台湾的任何风吹草动都不能不牵动台湾人民和全世界的神经，不管这次突发无预警停电是意外还是人为还是中共蓄意制造恐慌，每一个台湾人在事关生死面前都面临抉择，生存还是死亡，这是一个全人类共同面对的问题。
 
-美国财政部长耶伦周三（3月2日）表示，美国和西方盟友已经冻结了俄罗斯央行一半的资产，如果俄罗斯总统普京升级乌克兰战争，将对他和支持他的寡头们继续施加“严重后果”。
+撰稿：Judy Lin
 
-耶伦在芝加哥发表讲话时说，美国财政部已经“把打击寡头或俄罗斯精英作为首要任务，他们是普京总统腐败权力的关键。在过去几周里，我们已经制裁了这些人中的许多人，我们正在与司法部的同事和我们的盟友组建一个特别工作组，以发现、冻结和扣押他们在世界各地的财富。”
+发布：黎明之前
 
-耶伦说，“美国和世界各地的盟友联手孤立俄罗斯，使得普京更难资助俄罗斯对乌克兰的侵略。俄罗斯银行系统80%的资产现在受到限制。俄罗斯正日益成为一个经济孤岛，”
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-她表示，“如果普京总统继续这种无端的入侵，拜登总统和我们在世界各地的盟友和伙伴将继续坚定履行我们的承诺，继续对俄罗斯施加严重后果，并让普京总统为他的非法和不道德的行为负责。”
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-消息来源:
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-[美国财长叶伦称将因乌克兰战争限制俄罗斯寡头的财富](https://cn.reuters.com/article/yellen-curbing-russian-oligarchs-0302-we-idCNKBS2L0036?il=0)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
