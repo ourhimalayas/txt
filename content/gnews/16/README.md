@@ -2,21 +2,34 @@
 ---
 
 
-## 【粤语配音】2022年3月3日：普京发动的“尿壶战争”必将被送上绞刑架
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2101812/)
+## Hcoin To the Moon上线91天第30次位列匈牙利iTunes摇滚音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2101870/)
 
-紐約香草山-香港部
+3/3/2022 郭文贵先生的歌曲Hcoin To the Moon上线91天第30次位列匈牙利iTunes摇滚音乐榜首
 
-现在普京要动用大杀器，甚至现在黑海舰队都要上了，听说要把整个乌克兰500万人，在未来的48小时消灭，这是很残忍的，但是记住不管普大帝怎么折腾，还是习太阳怎么折腾，这都属于尿壶里的战争，他跟这个房子半毛钱关系都没有，他毕竟被干掉、被抛弃，他在尿壶里尿的再勤，它只是受害人多少，但是他们已经完了，他干的越猛，他死的越惨。
+* * *
 
-还没到时候呢，俄罗斯发现了吗？石油、天然气没停止生产，美国也没制止它石油，这世界都没出狠牌呢，但是一个新的，数字货币的金融时代已经诞生，全世界想打的还是什么，共产党的CIPS，所谓的兑换人民币，只有七哥告诉过大家，没有人吧？然后现在搞的就是数字货币，美国就用法币搞它，SWIFT，但是这场战争，最后就能诞生了数字货币时代。
+[【PDF 下载】Thursday 3 Mar 2022 – Songs by Miles Guo – iTunes Charts Ranking Record](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-3-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-3-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-我今天早上跟一个美国朋友说，他说现在西方的杀器还是美元，我说这是最后一次，不会再有任何美元，影响这个世界的时候了，因为这次会催生新的金融系统，数字货币，你像二战诞生了布里斯顿系统一样，一定的，而且所有的所谓去中心化的金融系统，不可能是人类的未来，一定是有稳定币有锚定的数字币，才是真正人类的未来，而且不能是被垄断的，去中心化的技术必须有锚定
+* * *
 
-人类大变了、世界大变了，兄弟姐妹们，等着共产党完蛋吧，昨天在台湾大饭店
-给了全世界… 傻眼了，很多人问我，蓬佩奥，还有余茂春先生到台湾会怎么样？，我说 第一，中间飞机可能会遇到故障、拦阻、威赫，第二 停电 为什么？台湾一停电，台积电就完了，而且说停就停，今天不能明天再给你停，停电成为常态，让你社会大乱，第三，你会发现台湾的金融系统，或台湾的几个科技系统，突然发现被盗、被黑客，这是共产党玩流氓，永远是下三路，永远是老鼠走的路，结果发生了吗？
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-3-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-3-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-3-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-3-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-3-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-3-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-3-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-3-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-3-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-3-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-3-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-3-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
 
-共产党 它就是这副德行，永远是欺负弱的怕硬的，永远是偷、蒙、拐、骗、黑，啥球招儿都没有，除了谎言就是谎言，但是好戏毕竟已经登场，演员已不能退出，戏的最终结果，肯定是好人把坏人给干掉，中间只是代价多少，尿壶里的战争就是尿壶里的战争，没什么了不的，但是有人撒完尿以后，尿壶完战争，他会带来一个新的事件，就是坏人必将被处罚，什么普大帝、习太阳，什么中国共产党，去球的吧
+
+[【PDF 下载】Thursday 3 Mar 2022 – Songs by Miles Guo – iTunes Charts Ranking Record](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-3-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-3-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,24 +2,30 @@
 ---
 
 
-## 新中国联邦乌克兰救援行动初获胜果
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2100725/)
+## 瑞典新研究表明辉瑞疫苗mRNA 能整合入人体 DNA
+` Little c` [轉載自GNews](https://gnews.org/zh-hans/2100966/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+作者：波士顿五月花 Little c
 
-采编/编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-304.png)图片来源：GTV 
-据3月2日GTV文贵大直播消息，本次由新中国联邦主导参与的“乌克兰国际人道救援行动”捷报频传，不仅向世界展示了爆料革命强大的执行力和国际影响力，更体现出新中国联邦人在果敢行动中实现“灭共是正义需要”的宗旨。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/mrna-vaccine.jpg)图片来自网络
 
-据悉，新中国联邦目前已成功在乌克兰战火中救出了至少四位爆料革命资深战友及其家人和朋友，并已全部安全抵达波兰。
+一瑞典实验室研究发现辉瑞疫苗中的mRNA会整合进入人体细胞DNA，并改变受影响细胞的DNA。这一研究结果发表在Current Issues in Molecular Biology杂志上，巴西里约时报对此做了报道。
 
-同时，喜马拉雅联盟委员会负责人大卫和老班长及相关战友团队都已准备就绪飞赴乌克兰和波兰，并计划在匈牙利、罗马尼亚建立营救基地。
+他们采用了人类肝细胞系进行体外实验，发现辉瑞mRNA疫苗使用LINE-1天然逆转录酶，将疫苗的遗传密码逆转录整合人体细胞DNA。 这种“逆转录”和HIV RNA 病毒改变人体细胞DNA原理类似，能修改DNA后，并复制。
 
-此外，新中国联邦与联合国救援组织将与当地国军方合作，全力营救被困华人，整个救援过程不需要提供任何个人信息。在成功进入波兰后，将直接入驻联合国指定酒店，享受30天免费食宿。最后，按被救助者个人意愿，提供免费航班飞往指定的安全国家。
+在正常情况下，人体需要正常细胞DNA转录成RNA，然后形成蛋白质，产生新细胞。如果疫苗中含有有害遗传密码，后果将非常可怕。
 
-发稿：青青
+* * *
 
-消息来源：https://gtv.org/video/id=621f6ab7019ef64da653b4fe
+参考链接：
+
+[New study from Sweden says, Pfizer mRNA does indeed integrate into our DNA](https://www.riotimesonline.com/brazil-news/modern-day-censorship/new-study-from-sweden-says-pfizer-mrna-does-indeed-integrate-into-your-dna/)
+
+[Intracellular Reverse Transcription of Pfizer BioNTech
+COVID-19 mRNA Vaccine BNT162b2 In Vitro in Human Liver
+Cell Line](https://www.riotimesonline.com/wp-content/uploads/2022/02/Pfizer-RNA-into-DNA.pdf)
+
+编辑/发布：Little c
 
  
 

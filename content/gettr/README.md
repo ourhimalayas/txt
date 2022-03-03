@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/3/2022 11:28 PM (UTC)`
+
+3/3/2022 Miles Guo’s GETTR: Putin is going to deploy killer weapons to annihilate 5 million Ukrainians in the next 48 hours. The Russian oligarchs are selling their properties and yachts at half price. An era of digital currency will be spawned out of war, and anchored digital currencies with stable coins will be the future of humankind. The CCP responded to Pompeo’s visit to Taiwan by employing hooligan tactics. Putin, Xi Jinping, and the CCP are bound to be over!<br/><br/>3/3/2022 文贵盖特：普京要动用大杀器在48小时内灭掉乌克兰500万人；俄罗斯大佬五折卖房卖游艇；战争将催生数字货币金融时代的诞生，有稳定币和锚定的数字货币是人类的未来；中共用流氓手段针对蓬佩奥访台；普京、习和中共必将完蛋！<br/>
+![img](https://media.gettr.com/group27/getter/2022/03/03/23/2dacfacf-f936-c820-c860-178abe5ff0ce/out.jpg)
+
+---
+
 `@miles 3/3/2022 10:27 PM (UTC)`
 
 3/02/2022 Miles Guo: Nuclear war is extremely unlikely to happen, so no need to worry about it! Putin has invaded Ukraine, threatened Ukraine with nuclear weapons, and bombed civilians, and all these three dirty moves will only cause him to lose support, leading to his own demise.<br/><br/>3/02/2022 文贵直播: 发生核战的可能性极低，无需担心核战争！普京用打乌克兰，核武器威胁对手和轰炸平民这三个滥招儿只会让他失道寡助，自取灭亡！<br/>
@@ -149,13 +156,6 @@ We’ve seen this coming, and we’ve been reactionary. That gave Vladimir Putin
 
 3/2/2022 Miles Guo: The Chinese people in Ukraine can enjoy free flights, and complimentary food and accommodation for 30 days arranged by the New Federal State of China without having to provide any personal information. We will arrange as many flights as they need. Can the CCP save the Chinese people this way? Only the New Federal State of China can save our fellow Chinese people like this!<br/><br/>3/2/2022 文贵直播：在乌克兰的华人无须提供任何个人信息即可享受新中国联邦安排的免费机票和30天食宿，需要多少飞机就安排多少；中共能这样救人吗？只有新中国联邦才能这样救自己的同胞<br/>
 ![img](https://media.gettr.com/group33/getter/2022/03/02/22/fb74cb5f-bc09-c7af-3646-530b8d599991/out.jpg)
-
----
-
-`@miles 3/2/2022 9:54 PM (UTC)`
-
-3/2/2022 Miles Guo: The New Federal State of China on Emergency Rescue of Ukraine has just accomplished the first mission. We successfully rescued four of our fellow fighters along with three families, and they arrived in Poland safely.<br/><br/>3/2/2022 文贵直播：新中国联邦乌克兰救援行动首战告捷，100%成功搭救战友，四位战友及三个家庭已顺利到达波兰。<br/>
-![img](https://media.gettr.com/group23/getter/2022/03/02/21/f11e251a-4530-6518-edf8-4d5bfaf14b25/out.jpg)
 
 ---
 
