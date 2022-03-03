@@ -2,58 +2,44 @@
 ---
 
 
-## 新西兰财经G乐部2022年3月2日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2092733/)
+## 与中共疫苗作战的加拿大人居然遭遇中国人千元加币索赔
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2094392/)
 
-采集整理：蚂蚁的城堡
+G-TV视频链接：https://gtv.org/video/id=62164e0c1408ee3a03a3c930
 
-**提纲：**
+**郭文贵先生：**你像加拿大那个所谓起诉大卡车司机的事情，好多加拿大的白人给我发信息，他说：“Miles Guo，你们中国人疯了吧？我们在跟共产党的疫苗作战，你们中国人来告我们，要一千加币这个赔偿。”这哥们很愤怒。我跟他说，你知道那不是我们新联邦中国人，那是共产党的中国人。新中国联邦的中国人不会有一个这样的人的。
 
-1、俄罗斯总理宣布实行资本管制，以使外国企业与俄罗斯资产挂钩
+这个人是每天跟我说，我要告那个高冰尘“黄河边”如何如何的……我阻止我说:“你别浪费你的时间，他不值得让你打，他一泡屎一泡尿都不是，他在那儿挺好”我说“我们每天都上厕所，他在……提醒我去厕所，我说你放心我上厕所的时候喊他名字尿两下子。”但这个人就是对高冰尘恼火，现在看到这个女的所谓调查，非常恼火。他说：“Miles，你一定要记住，我在加拿大对这样的人一定要算账的。”
 
-2、芝商所计划推出微型比特币和以太币期权
+这个人是谁知道吗？这个人是加拿大当时是跟中国所谓的两国之间军事合作局局长——这个加拿大人，当时亲共亲到没辙，自从我爆料革命参加以后，自从我爆料革命参加以后，我在加拿大跟他喝酒，在加拿大的一个中国餐厅，我讲述了我的一切以后，这哥儿们彻底地开始反共。他震惊到加拿大华人如此之堕落，他说“我现在再到温哥华所有的华人我看到都觉得很奇怪”，这是很吓人的兄弟姐妹们，这是很吓人的！
 
-3、郑州市发布19条稳楼市措施，首个限购限贷全面放松
+字幕来源：[2022年2月9日《文贵大直播》全文字版](https://gnews.org/zh-hans/1986483/)
 
-4、渤海银行盘中闪崩超28%，股价跌破1港元
+编辑整理：Jacques；
 
-5、世界银行推动几天内速批3.5亿美元紧急贷款给乌克兰抵抗俄入侵
+字幕档制作：兵嫂；
 
-**正文**
+视频制作及上传：Cindy；
 
-**1、俄罗斯总理宣布实行资本管制，以使外国企业与俄罗斯资产挂钩**
-![img](https://media.gettr.com/group42/origin/2022/03/02/03/5a13266f-f2da-c179-4afe-f7569009f0ad/8bd32ab8833a37302dbdbbcf417b0b4b_500x0.png)
-俄罗斯总理米舒斯京表示，俄政府已经草拟一份暂时限制外资退出俄市场的总统令。米舒斯京说，在当前形势下，外资公司不得不考虑的除了经济因素，还有政治因素。这个新的政策就是为了给那些准备退出俄市场的外资企业权衡利弊的机会。俄罗斯政府决定从国家福利基金中划拨1万亿卢布用于购买遭受制裁的俄罗斯公司的股票。德意志交易所将暂停所有俄罗斯证券的交易。
+G-News发布：海贼王M.D.LUFFY；
 
-链接：[https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-03-01-22/h\_9ad46d62e4d3bda0c6355375a813f5db](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-03-01-22/h_9ad46d62e4d3bda0c6355375a813f5db)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-**2、芝商所计划推出微型比特币和以太币期权**
-![img](https://media.gettr.com/group4/origin/2022/03/02/03/f46913e1-9d81-5abb-6259-f132b1d9ed0c/7a8d67865e2b9cf90bfabe1e8b5ce2d9_500x0.png)
-主要衍生品市场芝加哥商品交易所集团将为其微型比特币和以太期货产品推出期权交易。在周二的公告中，芝商所[表示](https://www.prnewswire.com/news-releases/cme-group-to-launch-micro-sized-bitcoin-and-ether-options-301492616.html)，根据监管审查，它计划为其现有的微型比特币 ( BTC ) 和以太坊 ( ETH ) 期货推出期权合约，其规模将是各自代币的 10%。预计将于 3 月 28 日开始交易的期货期权将在该公司于 2020 年 1 月推出 BTC 期权交易产品两年多后推出，距该集团于 2017 年 12 月推出首份比特币期货合约已有四年多。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-链接： [https://cointelegraph.com/news/cme-group-plans-to-launch-micro-sized-bitcoin-and-ether-options](https://cointelegraph.com/news/cme-group-plans-to-launch-micro-sized-bitcoin-and-ether-options)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**3、郑州市发布19条稳楼市措施，首个限购限贷全面放松**
-![img](https://media.gettr.com/group13/origin/2022/03/02/03/11673f44-1f54-dda4-8fc2-86c9c80ef3fd/427762233bc679e01b0e0a3c405fc874_500x0.png)
-3月1日，郑州市发布19条稳楼市措施，除了给大学生购房补贴、鼓励老人投靠家庭新购住房等措施外，最重要的一条是降低个人住房消费负担，不仅下调房贷利率，而且还放松首套房贷认定标准。业内人士认为，郑州成为今年全国第一个在限购限贷方面全面放松的城市，具有行业风向标的意义。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-链接：[https://finance.sina.com.cn/stock/zqgd/2022-03-02/doc-imcwiwss3638299.shtml](https://finance.sina.com.cn/stock/zqgd/2022-03-02/doc-imcwiwss3638299.shtml)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-**4、渤海银行盘中闪崩超28%，股价跌破1港元**
-![img](https://media.gettr.com/group25/origin/2022/03/02/04/3cd2d59c-d3aa-c03e-4aeb-b046e7616eff/324450ca6821426df1bfaaa0f9b2ebca_500x0.png)
-3月1日盘中，渤海银行大跌超28%，股价跌破1港元，持续创出历史新低。有分析人士表示，渤海银行近年罚单不断，2021年10月份又爆出28亿存单质押事件，此次暴跌或与即将发布的2021年业绩有关。不过港股流动性差，1元左右的股票暴涨暴跌也是常有现象。此前甘肃银行曾由于股东强行平仓一日内暴跌43%，此次渤海银行异常下跌也不排除这种可能。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-链接： [https://finance.sina.com.cn/stock/s/2022-03-02/doc-imcwipih6072416.shtml](https://finance.sina.com.cn/stock/s/2022-03-02/doc-imcwipih6072416.shtml)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-**5、世界银行推动几天内速批3.5亿美元紧急贷款给乌克兰抵抗俄入侵**
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-路透华盛顿3月1日 – 知情人士表示，世界银行正在推动几天内“快速”批准向乌克兰额外提供3.5亿美元贷款，为其抵御俄罗斯入侵的努力提供紧急资金。消息人士对表示，扩大现有贷款规模将为乌克兰提供“预算支持”，且世行不会限制乌克兰政府如何使用这笔贷款。
-
-链接：[https://cn.reuters.com/article/wb-ukraine-loan-0302-idCNKBS2KZ06T?il=0](https://cn.reuters.com/article/wb-ukraine-loan-0302-idCNKBS2KZ06T?il=0)
-
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
-
-上传排版：文勇
+G-TV：日本银河系农场。
 
  
 
