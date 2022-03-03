@@ -2,24 +2,37 @@
 ---
 
 
-## 奥密克戎衍生病毒BA.2在日本流行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2098715/)
+## 中俄暧昧关系遭美方谴责
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2098839/)
 
-撰稿：东京樱花团/立正道
+作者：台湾宝岛农 – dobi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月28日，白宫印太事务协调官库尔特‧坎贝尔表示，在俄罗斯侵略乌克兰战争中，中俄之间的暧昧关系，以及公开和深入的联系，令人很不舒服。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/奥密克戎衍生病毒BA.2在日本流行.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.news-medical.net%2Fimages%2Fnews%2FImageForNews_705615_4461992039802088480.jpg&amp;imgrefurl=https%3A%2F%2Fwww.news-medical.net%2Fnews%2F20220227%2FWill-Omicron-BA2-become-the-next-dominant-variant.aspx&amp;tbnid=lzYPOJafYqVtNM&amp;vet=12ahUKEwin57iNrKn2AhU-YmwGHTPtBsEQMygAegUIARCLAQ..i&amp;docid=rpD8f08TZoR6eM&amp;w=1200&amp;h=800&amp;itg=1&amp;q=BA.2&amp;ved=2ahUKEwin57iNrKn2AhU-YmwGHTPtBsEQMygAegUIARCLAQ)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-3-scaled.jpg)
 
-日本医师会(日医)的中川俊男会长在2日的记者招待会上表示，国内中共病毒（新冠病毒Covid-19）的感染情况“虽然有减少趋势，但并没有急剧减少”，这可能是奥密克戎株的衍生型BA.2具有强烈的感染力，引起感染扩大的原因，指出“新感染人数可能会增加”。
+俄罗斯入侵乌克兰，被国际视为二战以来对欧洲国家的最大侵略，世界各国纷纷表示谴责，并实施各种制裁。中共不仅没有任何谴责，反而在联合国就一项谴责俄罗斯入侵的议案表决中，投了弃权票。在北京冬奥期间，中俄还签署了一份联合声明，宣称两国建立了无间的战略合作关系，同时，中共也是俄罗斯的最大贸易伙伴。
 
-中川先生关于31个都道府省适用的防止蔓延等重点措施的效果称“我认为有一定的效果。(感染者数)接近高停状态，但如果没有(重点措施)的话，感染人数也许会增加更多。”另外，在海外出现了对中共病毒对策的放宽管制的举动，他表示“日本也应该根据感染状况和疫苗接种率等，做出缓和限制的判断”。另一方面，他又补充说，“现在的感染情况，没有必要大幅缓和各种限制。”
+此前，美国总统拜登于2月24日，虽没有直接点名中共，但严正警告：任何支持俄罗斯对乌克兰侵略的国家，都将身败名裂。
 
-消息来源：
+参考链接：
 
-[ＢＡ・２拡大で「増加に転じる可能性も」　日医会長](https://news.yahoo.co.jp/articles/963870fbeee2b1a796a46669e8357496291a5652)
+- [白宮高官：俄入侵烏克蘭 中共陷尷尬](https://www.epochtimes.com/b5/22/3/1/n13612485.htm)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编：飞虹
+编辑：Ivy001
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

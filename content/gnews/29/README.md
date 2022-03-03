@@ -2,28 +2,61 @@
 ---
 
 
-## 联合国大会紧急特别会议通过谴责俄罗斯决议
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2097629/)
+## 有报道说台湾大规模断电
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2097654/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-249.png)图片来源于本文链接
-据NHK3日早晨消息，在联合国大会就俄罗斯军事入侵乌克兰举行的紧急特别会议上，通过了谴责俄罗斯并呼吁立即撤军的决议。其中包括欧洲、美国和日本在内的141个国家投了赞成票，进一步凸显了乌克兰局势中形成了对俄罗斯的国际孤立。
+参议员马可·卢比奥： 有报道说 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 大规模断电 然而，我们目前掌握的关于其覆盖范围或原因的信息非常有限
 
-联合国关于俄罗斯军事入侵乌克兰的紧急特别会议于当地时间2日上午举行在美国纽约联合国总部大会堂举行。从上月28日起的三天里，193个成员国中约120个国家的代表发表了演讲，最后由美国等国家提交的决议获得通过。
 
-该决议谴责了俄罗斯在乌克兰开展的军事行动以及俄罗斯加强其核力量准备的决定。对住宅区和学校等民用设施遭到袭击以及平民伤亡报告深表关切，并呼吁俄罗斯立即无条件撤军。
 
-投票于亚洲时间凌晨进行，欧洲、美国、日本等141个国家赞成，俄罗斯、白俄罗斯、朝鲜等5个国家反对，中国和印度在内的共有35个国家投了弃权票。最终获得超过三分之二的赞成票通过了该决议。
+> Reports of large scale power outage in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)
+> 
+> However we have very limited information at the moment about how widespread or the cause
+> — Marco Rubio (@marcorubio) [March 3, 2022](https://twitter.com/marcorubio/status/1499205404961783809?ref_src=twsrc%5Etfw)
 
-决议通过后，联合国秘书长安东尼奥·古特雷斯告诉记者，“接近决议并实现其目的。这是我作为秘书长的责任。我们呼吁俄罗斯结束在乌克兰的敌对行为，放下武器，打开对话和外交的大门。”古特雷斯还说：“乌克兰的领土和主权必须根据《联合国宪章》得到尊重。时间所剩无几。我们将尽最大努力立即开始和平谈判。”
 
-美国总统乔·拜登2日就决议通过发表讲话时谴责有35个国家投了弃权票，拜登还特别点名批评中国和印度投了弃权票。拜登说，“他们认为可以分裂北约、欧洲和美国。我们要向全世界表明，没有人能做到这一点。”
 
-信息来源：[国連総会の緊急特別会合 ロシアを非難する決議 賛成多数で採択](https://www3.nhk.or.jp/news/html/20220303/k10013510951000.html)
+参议员约翰·肯尼迪： 我们必须向北京明确表明，对台湾的武装侵略将对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 经济造成毁灭性打击。 【附肯尼迪参议员官网新闻：肯尼迪，斯科特参议员共同发起如敢入侵台湾就制裁中共国的提案】
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+
+
+> We must make it clear to Beijing that armed aggression towards Taiwan would deal a devasting blow to China’s economy.
+>  [https://t.co/6jeSeWMdLP](https://t.co/6jeSeWMdLP)
+> — John Kennedy (@SenJohnKennedy) [March 2, 2022](https://twitter.com/SenJohnKennedy/status/1499142720086024195?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 认为独裁者可以攫取土地而无需承担后果的想法，是拜登政府最重大的失败。
+
+
+
+> The idea that autocrats can just grab land and suffer no consequences from it is the most significant failure of the Biden Administration. [pic.twitter.com/XoYhOpXn3r](https://t.co/XoYhOpXn3r)
+> — Mike Pompeo (@mikepompeo) [March 2, 2022](https://twitter.com/mikepompeo/status/1499090199644676098?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨: 拜登今晚没有提到要让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对传播导致大流行的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 负责。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 放出致命病毒，是邪恶的，必须承担责任，否则北京将制造更多致命的瘟疫。
+
+
+
+> Biden tonight made no mention of holding Communst China accountable for spreading the virus that caused the pandemic. The CCP unleashed the deadly virus, is evil, and must be held responsible or Beijing will create even more deadly plagues
+> — Bill Gertz (@BillGertz) [March 2, 2022](https://twitter.com/BillGertz/status/1498854110472278016?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 越来越多的迹象表明 [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) 人民越来越意识到乌克兰战争的规模和影响 如果是这样的话，这将使 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 面临两线冲突的危险 他将迅速采取行动，实施旨在防止大规模抗议和（内部）动乱的限制措施
+
+
+
+> Growing signs the people of [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) are becoming increasingly aware of the scale & scope of the [#UkraineRussianWar](https://twitter.com/hashtag/UkraineRussianWar?src=hash&amp;ref_src=twsrc%5Etfw) 
+>  
+> If so this would put [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) in danger of a two front conflict 
+> 
+> He would move quickly to impose restrictions aimed at preventing large protests & unrest
+> — Marco Rubio (@marcorubio) [March 3, 2022](https://twitter.com/marcorubio/status/1499200309926981634?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

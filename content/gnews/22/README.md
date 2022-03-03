@@ -2,22 +2,36 @@
 ---
 
 
-## 香港单日感染人数超5万创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2098692/)
+## 北京冬奥会用氢能作秀
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2098837/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-257.png)[图片来源](https://news.yahoo.co.jp/articles/4770fbe015af77e97ccd8041bba096cde19b0470/images/000)
-香港政府卫生署卫生防护中心(CHP)和管辖公立医院的医院管理局(HA)于2日召开会见，宣布同日新增5万5，353人感染者。1天感染人数首次超过5万人，从前一天开始大幅增加2万人以上。其中从海外流入的病例只有27人。
+作者：香草山教育部 – 文哲
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据北京冬奥会组委会报道称，中共在整个冬奥会中投入了1000多辆氢能汽车和30座加氢站，估计投资高达20亿元。
 
-在最近的24小时内，年龄在58-100岁的，有117人死亡。另外，2月26日至28日为止没有公布的死者有43人。从年初开始的第5波导致的死者累计有967人。 老年人、残疾人设施新增感染55处，发现入住者488人、职员228人感染。到目前为止，670个设施已经确认被感染。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-3.jpg)
 
-超过5万人“预计内”CHP传染病处的欧家荣首席医生在2日的会见中指出“最近基本上每隔2~3天感染人数会翻倍”，2天超过5万人表示为“预料之中”。 此外，还指出，目前通过快速抗原检测呈阳性的人没有自主申报，表明在自主申报系统完善后感染人数会进一步上升。
+中共不考虑制氢成本高、储运困难，以及加氢站和氢能车成本昂贵等因素，也不考虑冬奥会后巨大的资源浪费，只为了向世界大秀自己的环保肌肉，便强力推进不可普及的氢能汽车，掩盖中共篡权70年对中国环境、空气和水源的污染。各地政府企业，也借助发展氢能产业的大旗，肆意骗取环保补贴资金以及采购合同。仅河南南阳一个四线城市就在没有加氢站的情况下，采购了价值8000万元人民币的氢能客车。中共南阳政府还曾准备了数十亿元投资青年汽车研究院所谓加水就能跑的“水氢车”。这些闹剧无不反映了共产党以假治国、以骗治国的盗国本质。
 
-消息来源：[【香港】単日感染者５万人突破、最多を大幅更新（NNA）](https://news.yahoo.co.jp/articles/4770fbe015af77e97ccd8041bba096cde19b0470)
+参考链接：
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+- [冬奥会吹来“氢”风：国家鼓励政策稳步推进，各地“调高”氢能发展优先级](https://finance.ifeng.com/c/8Dny57Aw6K4)
+- [冰雪畅行背后的“氢”力量](https://www.sohu.com/na/525821772_127327)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

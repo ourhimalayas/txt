@@ -2,22 +2,37 @@
 ---
 
 
-## 德国将向乌克兰运送防空导弹
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2099072/)
+## 因支持乌克兰，主持人金星微博被禁言
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2099082/)
 
-#### 撰稿：JIHO
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/strela2m1-2.jpg)图片来源：missilery
-据德国之声 (Deutsche Welle)的报道，德国经济部的消息人士称柏林已批准向乌克兰运送 2700 枚苏联时代的“Strela”导弹，但政府并没有立即证实这一消息。消息人士告诉路透社，这些导弹已经 “准备好被运输”，但联邦安全委员会尚未批准这一行动。
+整理：围剿维尼熊
+编辑：朝花夕拾
 
-这些武器将来自曾经由苏联监管控制的东德仓库，该仓库在 1989 年柏林墙倒塌后与西德重新统一。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe.png)图片来源；雅典娜设计组
 
-上周末，德国政府决定向乌克兰提供 500 枚美制地对空毒刺导弹和 1000 件反坦克武器。
 
-在俄上周四发动攻势之前，德国拒绝向乌克兰运送武器。但在袭击发生后总理奥拉夫·舒尔茨（Olaf Scholz）说：“在这种情况下，我们有责任尽我们所能，支持乌克兰防御普京军队的入侵。” 根据舒尔茨的说法，此举标志着“一个历史性的转变”。
+根据德国之声中文网3月2日报道，俄罗斯入侵乌克兰后，中共拒绝谴责俄罗斯，并严格控制社交媒体，打压任何支持乌克兰，谴责普京的声音。
 
-新闻来源：[Germany to ship anti-aircraft missiles to Ukraine — reports](https://www.dw.com/en/germany-to-ship-anti-aircraft-missiles-to-ukraine-reports/a-60995325)
+继上周中国5名历史学家谴责俄罗斯发动战争的公开信遭中共封杀后，现代舞蹈家著名主持人金星的微博也被禁言。
+
+3月1日，金星在微博上写道：“2022年最惊悚的事情是，一个脖子上被拴着铁链的中国女人说，这世界不要俺了！一个疯狂的俄国男人说，不要俺继续当总统，俺就不要这个世界了！”微博还配以一张身着蓝黄两色服装的女主播照片并写道：“从央视小姐姐穿的衣服颜色来看，是支持乌克兰的。停止战争，祈祷和平！”金星的这条微博不久即被删帖。
+
+金星继而写道：“我本人没有删微博，是系统给屏蔽了！不带脑子想骂我的人请先在微博上实名认证后再来吧！发表个人观点，尊重所有生命，坚持反对战争！！！ ”这条帖子发出后，金星在微博上被禁言。
+
+俄罗斯入侵乌克兰后，中国迄今拒绝称俄罗斯的行为为“侵略”。为配合官方立场，在许多中共国内社交平台上，支持乌克兰反对战争的言论一概遭到封杀。
+
+参考链接：https://m.dw.com/zh/中国社媒封杀反战声音-金星谴责普京被微博禁言/a-60986633
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

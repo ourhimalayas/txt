@@ -15,41 +15,41 @@
 
 ---
 
-### [中日财经爆| 丰田决定关闭俄罗斯工厂 同时停止对俄出口](/content/gnews/1/README.md)
+### [辉瑞COVID疫苗对预防Omicron仅有12%有效性](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [最糟糕的情况： 辉瑞公司mRNA疫苗可永久改变人类的DNA](/content/gnews/2/README.md)
+ ` topnews`
+
+### [中日财经爆| 丰田决定关闭俄罗斯工厂 同时停止对俄出口](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|日本“堂吉诃德”将接收100名乌克兰难民](/content/gnews/2/README.md)
+### [中日财经爆|日本“堂吉诃德”将接收100名乌克兰难民](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国将继续与俄罗斯保持贸易关系](/content/gnews/3/README.md)
+### [中共国将继续与俄罗斯保持贸易关系](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄乌战争｜ 土耳其无人机运抵乌克兰 料军援陆续有来](/content/gnews/4/README.md)
+### [俄乌战争｜ 土耳其无人机运抵乌克兰 料军援陆续有来](/content/gnews/6/README.md)
  ` 關注組`
 
-### [邪恶的中共政权才是万恶之源（五）](/content/gnews/5/README.md)
+### [邪恶的中共政权才是万恶之源（五）](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [因支持乌克兰，主持人金星微博被禁言](/content/gnews/6/README.md)
+### [因支持乌克兰，主持人金星微博被禁言](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文•贵天成——文贵先生谈“普京”（十二）](/content/gnews/7/README.md)
+### [文•贵天成——文贵先生谈“普京”（十二）](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [德国将向乌克兰运送防空导弹](/content/gnews/8/README.md)
+### [秘翻在线:川普把社交媒体平台Truth Social搞砸了](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [香港单日新增确诊恐破10万！多家银行停业、公车停驶！](/content/gnews/9/README.md)
- ` 蓝莲花农场`
+### [SpaceX星链卫星互联网终端已抵达乌克兰](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【转】截至3.2 俄乌战事汇总（10）](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线:川普把社交媒体平台Truth Social搞砸了](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [夏威夷放弃严格入境要求不再有新冠病毒测试，疫苗证明或隔离](/content/gnews/12/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
+### [超过十英里的俄罗斯军事车队正向乌克兰基辅逼近](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [乌克兰哈尔科夫行政大楼被导弹攻击](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -63,113 +63,113 @@
 ### [新西兰财经G乐部2022年3月3日:财经新闻整理](/content/gnews/16/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [韩国著名演员李英爱向乌克兰捐赠1亿韩元](/content/gnews/17/README.md)
+### [国际足联和欧足联禁止俄国家队和俱乐部队参加国际比赛](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [共产主义中国是美国和世界面临的唯一最重要的生存威胁](/content/gnews/18/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [得克萨斯州长要求商店停止销售俄罗斯产品](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [国际足联和欧足联禁止俄国家队和俱乐部队参加国际比赛](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [国际足联提议对俄罗斯进行处罚](/content/gnews/20/README.md)
+ ` NFSC News`
 
-### [共产主义中国是美国和世界面临的唯一最重要的生存威胁](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [中俄暧昧关系遭美方谴责](/content/gnews/21/README.md)
+ ` NFSC News`
 
-### [俄罗斯禁飞36国航班来回击西方的严厉制裁](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [北京冬奥会用氢能作秀](/content/gnews/22/README.md)
+ ` NFSC News`
 
-### [奥密克戎衍生病毒BA.2在日本流行](/content/gnews/21/README.md)
+### [北约、乌克兰与俄罗斯之三角关系](/content/gnews/23/README.md)
+ ` NFSC News`
+
+### [奥密克戎衍生病毒BA.2在日本流行](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [香港单日感染人数超5万创新高](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共在俄罗斯入侵乌克兰的核威胁和网络威胁中的角色](/content/gnews/23/README.md)
+### [中共在俄罗斯入侵乌克兰的核威胁和网络威胁中的角色](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [郭文贵直播摘要和音频 2022.03.02](/content/gnews/24/README.md)
+### [郭文贵直播摘要和音频 2022.03.02](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声｜中共封杀反战声音 金星谴责普京被禁言](/content/gnews/25/README.md)
+### [有声｜中共封杀反战声音 金星谴责普京被禁言](/content/gnews/27/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年3月2日晚](/content/gnews/26/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年3月2日晚](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [有报道说台湾大规模断电](/content/gnews/27/README.md)
+### [有报道说台湾大规模断电](/content/gnews/29/README.md)
  ` 美国政要直译推`
 
-### [2022年3月3日上午九时许台湾局部地区突发无预警停电](/content/gnews/28/README.md)
+### [2022年3月3日上午九时许台湾局部地区突发无预警停电](/content/gnews/30/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [联合国大会紧急特别会议通过谴责俄罗斯决议](/content/gnews/29/README.md)
+### [联合国大会紧急特别会议通过谴责俄罗斯决议](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|西方已冻结俄央行一半资产 制裁还会加码](/content/gnews/30/README.md)
+### [中日财经爆|西方已冻结俄央行一半资产 制裁还会加码](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登政府代表团为何于敏感时机访台？](/content/gnews/31/README.md)
+### [拜登政府代表团为何于敏感时机访台？](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾｜蔡英文接见庞培欧网路直播 因大规模停电而取消](/content/gnews/32/README.md)
+### [台湾｜蔡英文接见庞培欧网路直播 因大规模停电而取消](/content/gnews/34/README.md)
  ` 關注組`
 
-### [聚焦：俄罗斯空军在乌克兰失去制空权](/content/gnews/33/README.md)
+### [聚焦：俄罗斯空军在乌克兰失去制空权](/content/gnews/35/README.md)
  ` 丁过`
 
-### [疫苗灾难正悄悄降临 笔者亲身经历](/content/gnews/34/README.md)
+### [日本驻乌克兰大使馆临时关闭](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本驻乌克兰大使馆临时关闭](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新中国联邦的乌克兰救援100%成功](/content/gnews/36/README.md)
+### [新中国联邦的乌克兰救援100%成功](/content/gnews/37/README.md)
  ` 日本東京方舟農場`
 
-### [俄罗斯银行挤兑开始 提醒所有人银行稳定性](/content/gnews/37/README.md)
+### [俄罗斯银行挤兑开始 提醒所有人银行稳定性](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“天安门母亲”：承载八九六四之重并护佑新中国联邦六四之新生](/content/gnews/38/README.md)
+### [“天安门母亲”：承载八九六四之重并护佑新中国联邦六四之新生](/content/gnews/39/README.md)
  ` 秘密翻译组-原创组`
 
-### [五月花简报（03/02/2022）](/content/gnews/39/README.md)
+### [五月花简报（03/02/2022）](/content/gnews/40/README.md)
  ` mayflowertranslate`
 
-### [中共战狼拒绝躲在地下室里在乌克兰中国留学生的求救](/content/gnews/40/README.md)
+### [中共战狼拒绝躲在地下室里在乌克兰中国留学生的求救](/content/gnews/41/README.md)
  ` mayflowertranslate`
 
-### [基辅市长称城市被包围，后来又收回了这一说法](/content/gnews/41/README.md)
+### [基辅市长称城市被包围，后来又收回了这一说法](/content/gnews/42/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共将毀于自身的假和騙](/content/gnews/42/README.md)
+### [中共将毀于自身的假和騙](/content/gnews/43/README.md)
  ` 纽约香草山MOS02`
 
-### [2022/02/28 墙内世界](/content/gnews/43/README.md)
+### [2022/02/28 墙内世界](/content/gnews/44/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登国情咨文中称，普京将付出持续的高昂代价](/content/gnews/44/README.md)
+### [拜登国情咨文中称，普京将付出持续的高昂代价](/content/gnews/45/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌克兰要求欧美协助建立禁飞区](/content/gnews/45/README.md)
+### [乌克兰要求欧美协助建立禁飞区](/content/gnews/46/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [拜登呼吁国会尽快提交提高美国与中共国竞争力的法案](/content/gnews/46/README.md)
+### [拜登呼吁国会尽快提交提高美国与中共国竞争力的法案](/content/gnews/47/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌克兰战争再次表明中国人将为中共买单](/content/gnews/47/README.md)
+### [乌克兰战争再次表明中国人将为中共买单](/content/gnews/48/README.md)
  ` 波士顿五月花农场`
 
-### [美国民众对拜登处理俄乌危机的支持度上升](/content/gnews/48/README.md)
+### [美国民众对拜登处理俄乌危机的支持度上升](/content/gnews/49/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知](/content/gnews/49/README.md)
+### [【UKRAINEHELP-002】新中国联邦和法治基金关于紧急救援乌克兰的通知](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [后共时代 世界大变局](/content/gnews/50/README.md)
+### [后共时代 世界大变局](/content/gnews/51/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [也许是时候世界支持台湾合法政府的独立了](/content/gnews/51/README.md)
+### [也许是时候世界支持台湾合法政府的独立了](/content/gnews/52/README.md)
  ` 美国政要直译推`
-
-### [为抗议中共国卑劣人权问题，瑞典运动员将冬奥金牌赠予被囚书商之女](/content/gnews/52/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/53/README.md)
  ` 纽约香草山MOS02`
