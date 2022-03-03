@@ -2,27 +2,37 @@
 ---
 
 
-## 新中国联邦的乌克兰救援100%成功
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2096801/)
+## 有声|中共从乌克兰撤侨小粉红嚷得欢，实际根本没有去接
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2097396/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+近日俄乌危机让乌克兰当地很多中国的老百姓深陷其中，既忍受俄罗斯的侵袭，又避免着共产党煽动的排华运动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/226-3.jpg)
+战火纷飞之际，所有的中国人都渴望中共国的撤侨飞机能够营救自己。然而中共驻乌克兰大使讲话中将此事推脱得一干二净，找各种各样的借口，比如条件不允许，时机不安全，在老百姓最需要祖国最需要国家力量营救的时候掉链子。中共喉舌媒体更是口头上说得比唱得好听，就是没有任何实质性行动，中共国的小粉红更是将没有成行的撤侨计划吹嘘成已经撤侨，已经把困在乌克兰的华人安全接回了母国，在互联网上到处散播假讯息帮着中共大外宣洗脑，而那些真正处在乌克兰的中国老百姓并没有等到中共撤侨的飞机，还被困在当地。
 
-3月2日，郭文贵先生在他的大直播节目中宣布，新中国联邦成功从乌克兰战区救出爆料革命的战友及其家人、朋友，也就是说新中国联邦救助自己的国民100%成功！
+反观新中国联邦，紧急直播后已经有10-12架飞机参与营救。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新中.png)（图片来自盖特）
 
-郭先生指出，由新中国联邦的联盟委员会主导的在乌救援行动，成功地从乌克兰战区救出4个铁战友，3个家庭，他们已于昨日安全到达波兰。
 
-郭先生宣布，在俄乌战争中，新中国联邦100%成功救助自己的国民（新中国联邦人）。
+文字版原文：[中共从乌克兰撤侨小粉红嚷得欢，实际根本没有去接](https://gnews.org/zh-hans/2091349/)
 
-郭先生还在直播中喊话，所有的在乌华人、及他们的美国友人、日本友人，只要联系新中国联邦，新中国联邦就会救助，为他们免费提供30天住宿，免费机票，不需要提供任何个人信息和任何回报。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-参考链接：
-[https://gtv.org/broadcast/watch/621f6ab7019ef64da653b4ff](https://gtv.org/broadcast/watch/621f6ab7019ef64da653b4ff)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-素材采编：幽蘭自得
-编辑：老孙
-发布: Linda
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

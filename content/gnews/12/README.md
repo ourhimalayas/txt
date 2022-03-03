@@ -2,22 +2,61 @@
 ---
 
 
-## 拜登政府代表团为何于敏感时机访台？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2097559/)
+## 有报道说台湾大规模断电
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2097654/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-243.png)（图片来源于本文链接）
-拜登政府派出一个由前高级国防和安全官员组成的跨党派代表团于3月1日下午抵达台湾，三月二号晚上离开。由曾任美国参谋长联席会议主席的马伦率领的跨党派代表团于3月2日上午在台湾总统府会见蔡英文和副总统赖清德。双方谈及了俄乌危机、台美关系等重要话题。
+参议员马可·卢比奥： 有报道说 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 大规模断电 然而，我们目前掌握的关于其覆盖范围或原因的信息非常有限
 
-赖清德在会见美方代表团时表示，希望代表团能协助台美签订BTA（台美自由贸易协定）、助力台湾加入CPTPP（跨太平洋伙伴全面进步协定），让台湾不被排除在民主经济联盟以外。赖清德称，此举不仅是经济合作策略，也是具有区域和平稳定需求的经济战略。对于美日澳印形成的“四方安全对话”，赖清德提到，希望未来台湾也可以加入共同运作，对维持区域的和平做出贡献。对此，代表团则允诺会将赖清德的意见带回讨论。据路透社报导，拜登政府的一位高级官员指出，这个五人代表团“发出了一个重要讯号，即美国两党对台湾及其民主的承诺”。台湾外交部发言人欧江安表示，拜登继去年4月派遣前联邦参议员陶德访团后，尤其在乌克兰情势紧张时到访台湾，是美国展现对台坚定安全承诺的具体行动，也显示台湾议题在美国有跨党派高度共识。台媒《上报》评论“拜登政府在此时遣代表来台，展现美国对台海安全承诺的‘再保证’”。台媒《天下杂志》表示，拜登派团访台的举动，显示美国并未因乌俄目前的局势，把战略重心转移到欧洲，“1月初美国一再警告俄罗斯可能侵犯乌克兰时，美国政府依旧把大型军演放在亚洲”。他认为，这显示美国仍把主要战略对手定调为中共国。
 
-信息来源：
 
-### [拜登政府代表团为何于敏感时机访台？ | 02.03.2022 – DW](https://www.dw.com/zh/%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E4%BB%A3%E8%A1%A8%E5%9B%A2%E4%B8%BA%E4%BD%95%E4%BA%8E%E6%95%8F%E6%84%9F%E6%97%B6%E6%9C%BA%E8%AE%BF%E5%8F%B0/a-60989566)
+> Reports of large scale power outage in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)
+> 
+> However we have very limited information at the moment about how widespread or the cause
+> — Marco Rubio (@marcorubio) [March 3, 2022](https://twitter.com/marcorubio/status/1499205404961783809?ref_src=twsrc%5Etfw)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+
+
+参议员约翰·肯尼迪： 我们必须向北京明确表明，对台湾的武装侵略将对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 经济造成毁灭性打击。 【附肯尼迪参议员官网新闻：肯尼迪，斯科特参议员共同发起如敢入侵台湾就制裁中共国的提案】
+
+
+
+> We must make it clear to Beijing that armed aggression towards Taiwan would deal a devasting blow to China’s economy.
+>  [https://t.co/6jeSeWMdLP](https://t.co/6jeSeWMdLP)
+> — John Kennedy (@SenJohnKennedy) [March 2, 2022](https://twitter.com/SenJohnKennedy/status/1499142720086024195?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 认为独裁者可以攫取土地而无需承担后果的想法，是拜登政府最重大的失败。
+
+
+
+> The idea that autocrats can just grab land and suffer no consequences from it is the most significant failure of the Biden Administration. [pic.twitter.com/XoYhOpXn3r](https://t.co/XoYhOpXn3r)
+> — Mike Pompeo (@mikepompeo) [March 2, 2022](https://twitter.com/mikepompeo/status/1499090199644676098?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨: 拜登今晚没有提到要让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对传播导致大流行的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 负责。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 放出致命病毒，是邪恶的，必须承担责任，否则北京将制造更多致命的瘟疫。
+
+
+
+> Biden tonight made no mention of holding Communst China accountable for spreading the virus that caused the pandemic. The CCP unleashed the deadly virus, is evil, and must be held responsible or Beijing will create even more deadly plagues
+> — Bill Gertz (@BillGertz) [March 2, 2022](https://twitter.com/BillGertz/status/1498854110472278016?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 越来越多的迹象表明 [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) 人民越来越意识到乌克兰战争的规模和影响 如果是这样的话，这将使 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 面临两线冲突的危险 他将迅速采取行动，实施旨在防止大规模抗议和（内部）动乱的限制措施
+
+
+
+> Growing signs the people of [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) are becoming increasingly aware of the scale & scope of the [#UkraineRussianWar](https://twitter.com/hashtag/UkraineRussianWar?src=hash&amp;ref_src=twsrc%5Etfw) 
+>  
+> If so this would put [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) in danger of a two front conflict 
+> 
+> He would move quickly to impose restrictions aimed at preventing large protests & unrest
+> — Marco Rubio (@marcorubio) [March 3, 2022](https://twitter.com/marcorubio/status/1499200309926981634?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

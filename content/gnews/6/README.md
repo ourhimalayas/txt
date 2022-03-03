@@ -2,30 +2,33 @@
 ---
 
 
-## 中日财经爆|郭树清明确表态 中共国不参与对俄罗斯制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2097598/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月2日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2097700/)
 
-撰稿：东京樱花团/peterwong
+作者：香草山翻译部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/郭树清明确表态-中共国不参与对俄罗斯制裁.jpg)图片来源于网络
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO.jpg)
 
-中共国银保监会主席3月2日表示，中共国不赞成就俄罗斯入侵乌克兰事件而对俄罗斯进行金融制裁，而且也不会参与相关的制裁行动。
 
-自从俄罗斯入侵乌克兰战争爆发以来，中共游离于国际社会之外，迟迟不愿对俄罗斯的侵略行径作出谴责。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1.png)
+校对：Stay文苑
 
-中共国银行保险监督管理委员会主席郭树清周三（3月2日）在新闻发布会上表示，中共国外交部门已就中共国政府对俄乌冲突立场做了充分阐述。就金融制裁来说，郭树清说，中共国并不赞成，因为它起到的作用效果不好，且在法理上也没有依据，中共国不会参加制裁。
+编辑：Stay文苑
 
-普京下令俄军入侵乌克兰之后，国际社会切断了俄罗斯与外界的多方面联系。美国及其盟国对俄罗斯中央银行采取行动，阻止它动用6300亿美元的国际储备，并将一些俄罗斯银行从环球银行金融电信协会（SWIFT）支付系统中剔除，大大限制了俄罗斯从事国际银行业务的能力。
+发稿：Stay文苑
 
-全球支付及信用卡巨头万事达卡（Mastercard）和Visa卡（Visa）2月28和3月1日也先后宣布，对多家俄罗斯金融机构实施制裁，禁止它们使用其支付系统。
+新闻：[https://gtv.org/broadcast/watch/62201d1d019ef64da6542782](https://gtv.org/broadcast/watch/62201d1d019ef64da6542782)
+访谈：[https://gtv.org/broadcast/watch/62202524019ef64da6542ce5](https://gtv.org/broadcast/watch/62202524019ef64da6542ce5)
 
-消息来源:
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March.png)
 
-[中国银保监会正式宣布 不参与对俄罗斯的金融制裁](https://www.voachinese.com/a/china-will-not-join-sanctions-against-russia-banking-regulator-says-20220302/6466918.html)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

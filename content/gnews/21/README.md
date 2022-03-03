@@ -2,39 +2,14 @@
 ---
 
 
-## 有声|志愿者向乌克兰捐赠百万美元加密货币
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2097456/)
+## 台湾｜蔡英文接见庞培欧网路直播 因大规模停电而取消
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2097551/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月26日，据西班牙媒体报道，一家区块链分析公司的数据显示，截至目前，为了应对俄罗斯对乌克兰的入侵，非营利组织和志愿者团体已经筹集了近 470 万美元的加密货币捐款。其中，最大的一笔捐赠款项高达300 万美元。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-02-%E4%B8%8A%E5%8D%8810.56.39.png)
-据了解，在过去十年的俄乌冲突中，这些支持乌克兰的志愿者团体陆陆续续地使用银行转账和支付应用程序等方式向乌克兰捐赠了数百万美元。另一方面，加密资产如今已成为了一种重要的金融交易替代方式，其不仅使快速跨境捐款成为可能，还可以使捐款者避开那些可能干扰这些捐赠的金融机构。
-
-此外，该区块链分析公司的首席科学家指出，加密货币捐赠方式特别适合国际筹款，因为这种方式没有国界且不接受审查，所以没有任何第三方机构可以阻止此类交易。
-
-报道也提到，志愿者的捐款，尤其是加密货币的部分在目前的俄乌冲突中发挥了关键作用，这也显示出了加密货币不可替代的地位。
-
-
-
-文字版原文：[志愿者向乌克兰捐赠百万美元加密货币](https://gnews.org/zh-hans/2094997/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**撰文/ 港台前線｜發佈日期/ 03/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-9.png)更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
+台湾3日发生[大规模停电，原因待厘清](https://gnews.org/zh-hans/2097381/)。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-03-上午10.58.27.png)
+总统府发言人脸书公告，目前总统府供电未受影响，但总统上午接见美国前国务卿庞培欧之网路直播，则暂时取消，请各界见谅。
 
  
 
