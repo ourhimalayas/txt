@@ -2,10 +2,10 @@
 ---
 
 
-## 超过十英里的俄罗斯军事车队正向乌克兰基辅逼近
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098884/)
+## SpaceX星链卫星互联网终端已抵达乌克兰
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2098886/)
 
-03/01/2022 超过十英里的俄罗斯军事车队正向乌克兰基辅逼近。
+03/01/2022 SpaceX星链卫星互联网终端已抵达乌克兰。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
