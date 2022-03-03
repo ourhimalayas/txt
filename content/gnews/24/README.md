@@ -2,22 +2,32 @@
 ---
 
 
-## 拜登政府代表团为何于敏感时机访台？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2097559/)
+## 2022年3月3日上午九时许台湾局部地区突发无预警停电
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2097639/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-243.png)（图片来源于本文链接）
-拜登政府派出一个由前高级国防和安全官员组成的跨党派代表团于3月1日下午抵达台湾，三月二号晚上离开。由曾任美国参谋长联席会议主席的马伦率领的跨党派代表团于3月2日上午在台湾总统府会见蔡英文和副总统赖清德。双方谈及了俄乌危机、台美关系等重要话题。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1646271534-62201c2e76670_副本.jpg)图片取自网络
+2022年3月3日台湾时间早九时许，笔者住所突发停电，停电后消防单位立即进入戒备状态，经与住所管理员沟通后得整栋楼全部停电，随后在与台湾其他地区的家人及朋友联系，得知此次突发无预警停电并非全台停电，2022年3月3日台湾时间早10:40 笔者所在住所恢复供电。
 
-赖清德在会见美方代表团时表示，希望代表团能协助台美签订BTA（台美自由贸易协定）、助力台湾加入CPTPP（跨太平洋伙伴全面进步协定），让台湾不被排除在民主经济联盟以外。赖清德称，此举不仅是经济合作策略，也是具有区域和平稳定需求的经济战略。对于美日澳印形成的“四方安全对话”，赖清德提到，希望未来台湾也可以加入共同运作，对维持区域的和平做出贡献。对此，代表团则允诺会将赖清德的意见带回讨论。据路透社报导，拜登政府的一位高级官员指出，这个五人代表团“发出了一个重要讯号，即美国两党对台湾及其民主的承诺”。台湾外交部发言人欧江安表示，拜登继去年4月派遣前联邦参议员陶德访团后，尤其在乌克兰情势紧张时到访台湾，是美国展现对台坚定安全承诺的具体行动，也显示台湾议题在美国有跨党派高度共识。台媒《上报》评论“拜登政府在此时遣代表来台，展现美国对台海安全承诺的‘再保证’”。台媒《天下杂志》表示，拜登派团访台的举动，显示美国并未因乌俄目前的局势，把战略重心转移到欧洲，“1月初美国一再警告俄罗斯可能侵犯乌克兰时，美国政府依旧把大型军演放在亚洲”。他认为，这显示美国仍把主要战略对手定调为中共国。
+由于此次无预警断电恰逢美国前国务卿彭佩奥先生访台期间，再加上普京与习近平的你取乌克兰我取台湾计划已经大白天下，因此台湾的任何风吹草动都不能不牵动台湾人民和全世界的神经，不管这次突发无预警停电是意外还是人为还是中共蓄意制造恐慌，每一个台湾人在事关生死面前都面临抉择，生存还是死亡，这是一个全人类共同面对的问题。
 
-信息来源：
+撰稿：Judy Lin
 
-### [拜登政府代表团为何于敏感时机访台？ | 02.03.2022 – DW](https://www.dw.com/zh/%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E4%BB%A3%E8%A1%A8%E5%9B%A2%E4%B8%BA%E4%BD%95%E4%BA%8E%E6%95%8F%E6%84%9F%E6%97%B6%E6%9C%BA%E8%AE%BF%E5%8F%B0/a-60989566)
+发布：黎明之前
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

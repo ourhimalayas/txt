@@ -2,28 +2,28 @@
 ---
 
 
-## 中日财经爆|西方已冻结俄央行一半资产 制裁还会加码
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2097622/)
+## 中日财经爆|国际评级机构继续下调俄罗斯主权信用评级
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2097659/)
 
 撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-251.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=C5IxnRJIWnBzNM&amp;imgdii=3haYS9havfAi9M)
+俄罗斯上周军事入侵乌克兰后，遭到西方所未有的经济制裁，国际信用评级机构纷纷调降俄罗斯主权信用评级，根据事态发展，评级还存在进一步下调的可能。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西方已冻结俄央行一半资产-制裁还会加码.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimages.wsj.net%2Fim-494349%3Fwidth%3D860%26height%3D573&amp;imgrefurl=https%3A%2F%2Fcn.wsj.com%2Farticles%2F%25E7%25BE%258E%25E5%259B%25BD%25E5%2588%25B6%25E8%25A3%2581%25E4%25BF%2584%25E7%25BD%2597%25E6%2596%25AF%25E5%25A4%25AE%25E8%25A1%258C-11646090759&amp;tbnid=RMr6TQPZ0X9tIM&amp;vet=12ahUKEwj7uJmE_qj2AhXxidgFHWkpC_sQMygBegUIARDJAQ..i&amp;docid=YIJ2NoJDbkf7sM&amp;w=860&amp;h=573&amp;q=%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF&amp;ved=2ahUKEwj7uJmE_qj2AhXxidgFHWkpC_sQMygBegUIARDJAQ)
+惠誉周三（3月2日）将俄罗斯的主权信用评级从“BBB”下调至“B”， 穆迪周四（3月3日）表示，已将俄罗斯的长期发行人和高级无担保债务评级从Baa3下调至B3，标普上周将俄罗斯的评级下调至“垃圾”级。
 
-美国财政部长耶伦周三（3月2日）表示，美国和西方盟友已经冻结了俄罗斯央行一半的资产，如果俄罗斯总统普京升级乌克兰战争，将对他和支持他的寡头们继续施加“严重后果”。
+不出所料，俄乌两国的金融市场都因近几天的形势陷入动荡。这是自二战以来欧洲发生的最大规模的军事攻击，莫斯科也受到了西方的严厉制裁。
 
-耶伦在芝加哥发表讲话时说，美国财政部已经“把打击寡头或俄罗斯精英作为首要任务，他们是普京总统腐败权力的关键。在过去几周里，我们已经制裁了这些人中的许多人，我们正在与司法部的同事和我们的盟友组建一个特别工作组，以发现、冻结和扣押他们在世界各地的财富。”
+惠誉表示，预计针对俄罗斯银行的制裁会进一步加码，这些制裁措施可能对俄罗斯的偿债能力产生影响，西方国家实施的制裁还将明显削弱俄罗斯的GDP增长潜力，低于该评级机构此前评估的1.6%，俄罗斯评级已经处于“负向观察名单”。
 
-耶伦说，“美国和世界各地的盟友联手孤立俄罗斯，使得普京更难资助俄罗斯对乌克兰的侵略。俄罗斯银行系统80%的资产现在受到限制。俄罗斯正日益成为一个经济孤岛，”
+穆迪说，这些评级仍在审查中，可能被进一步下调。
 
-她表示，“如果普京总统继续这种无端的入侵，拜登总统和我们在世界各地的盟友和伙伴将继续坚定履行我们的承诺，继续对俄罗斯施加严重后果，并让普京总统为他的非法和不道德的行为负责。”
+消息来源：[惠誉将俄罗斯主权评级下调至“B”](https://cn.reuters.com/article/ritch-russia-rating-0302-wedn-idCNKBS2L007E?il=0)
 
-消息来源:
-
-[美国财长叶伦称将因乌克兰战争限制俄罗斯寡头的财富](https://cn.reuters.com/article/yellen-curbing-russian-oligarchs-0302-we-idCNKBS2L0036?il=0)
+[穆迪将俄罗斯债务评级从Baa3下调至B3](https://cn.reuters.com/article/moodys-russia-rating-0303-thur-idCNKBS2L006Y?il=0)
 
 *编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

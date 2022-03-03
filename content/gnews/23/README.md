@@ -2,31 +2,60 @@
 ---
 
 
-## 大直播后记：核战争不会发生
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2097607/)
+## 有报道说台湾大规模断电
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2097654/)
 
-#### 整理：美哥、请你喝可乐 
-编辑：skyandmoon
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-5.png)图片来源：墨尔本雅典娜农场设计组
+参议员马可·卢比奥： 有报道说 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 大规模断电 然而，我们目前掌握的关于其覆盖范围或原因的信息非常有限
 
 
-七哥我有裕达俱乐部、盘古七星酒店，我就是一个世界情报站。我过去的几十年积累的关系，已经是立体化在我脑子里了。任何人触动我其中的脑子里边任何一个警报站，他都会叫醒我、唤醒我整个脑子的情报信息。
 
-这俄罗斯哥们找我说：Miles，我家人有个朋友，在汉普顿有4个院子，都是1亿多磅。 你有没有找人能买？ 我可以现金打5折卖。就一个小小的英国的最好的Hamilton打5折都上亿英镑，你说俄罗斯有多少钱？在英国最私人的机场，旁边有几个大豪宅全是俄罗斯人的，都是一亿英镑以上的。你想想这个经济，俄罗斯的能源、天然气，现在美国还在买俄罗斯石油，你就想想多荒唐。 加拿大给停了，你说为什么加拿大停？ 不是小土豆牛叉，也不是政治多聪明。很多战友都看表面现象，因为加拿大买俄罗斯石油，他需要第三国的帮助，他怎么来加拿大？人家中间商说，老子不跟你干了。小土豆完全买不了了，他赶快宣布禁止加拿大买俄罗斯石油。这帮政客是真的low，石油天然气不买了，你知道中间商会干什么？这是很恐怖的。好几个中间商是土耳其的有钱人，跟我联系说：“郭先生，老子就是1分钱不挣，就是上街要饭去，我也不能帮俄罗斯运输石油。” 我说哥们你有种！他说现在我不但停了俄罗斯的，还把中共船的运输都给停了。我说你太伟大了，兄弟姐妹们，你们想过俄乌战争第一受惩罚的是中国人民吗？人家恨的是中国人，想杀的是中国共产党。全人类都拿着枪瞄准，不是瞄准普京和乌克兰，因为它已经结束了。结局绝对是普大帝比萨达姆、卡扎菲还惨。现在全瞄着中南坑，瞄准中国人民，你见过人类上出现过这情形吗？
+> Reports of large scale power outage in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)
+> 
+> However we have very limited information at the moment about how widespread or the cause
+> — Marco Rubio (@marcorubio) [March 3, 2022](https://twitter.com/marcorubio/status/1499205404961783809?ref_src=twsrc%5Etfw)
 
-另外除了战争之外，大家记住经济。这是日积月累的冠状病毒疫苗灾难，加上对中国人这种忍气吞声，影响每个人的吃穿住行，人家不咬着牙想弄死你？这个世界对我们来讲实在是太美好了。经济绝不会因核武器威胁导致，核武器也不可能发生。经济压力反作用力“啪”出来了，叶钊颖妹妹给小福利说：到我这儿，妹妹。这句话多感动人！叶钊颖一个世界冠军，从来没见过小福利，郝海东竟然让小福利两口子去西班牙？你看看这种情，就是人类一旦正义释放出来，放掉恐惧的时候，这种力量多大！俄罗斯和中共国狼狈为奸，人类一旦把这个核武器的恐惧放下的时候，你还有什么威胁人类啊？ 人类是文明一切的大爆发，经济的大爆发，他们太愚蠢了，太疯狂了，太无知了，怎么可能让你把核武器威胁变成真的？那不就等死吗？ 怎么可能！
 
-资料来源：[2022年3月2日文贵大直播](https://www.gettr.com/streaming/pxru0n55ba)
 
-*发布：Frank2021*
+参议员约翰·肯尼迪： 我们必须向北京明确表明，对台湾的武装侵略将对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 经济造成毁灭性打击。 【附肯尼迪参议员官网新闻：肯尼迪，斯科特参议员共同发起如敢入侵台湾就制裁中共国的提案】
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+> We must make it clear to Beijing that armed aggression towards Taiwan would deal a devasting blow to China’s economy.
+>  [https://t.co/6jeSeWMdLP](https://t.co/6jeSeWMdLP)
+> — John Kennedy (@SenJohnKennedy) [March 2, 2022](https://twitter.com/SenJohnKennedy/status/1499142720086024195?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 认为独裁者可以攫取土地而无需承担后果的想法，是拜登政府最重大的失败。
+
+
+
+> The idea that autocrats can just grab land and suffer no consequences from it is the most significant failure of the Biden Administration. [pic.twitter.com/XoYhOpXn3r](https://t.co/XoYhOpXn3r)
+> — Mike Pompeo (@mikepompeo) [March 2, 2022](https://twitter.com/mikepompeo/status/1499090199644676098?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨: 拜登今晚没有提到要让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对传播导致大流行的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 负责。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 放出致命病毒，是邪恶的，必须承担责任，否则北京将制造更多致命的瘟疫。
+
+
+
+> Biden tonight made no mention of holding Communst China accountable for spreading the virus that caused the pandemic. The CCP unleashed the deadly virus, is evil, and must be held responsible or Beijing will create even more deadly plagues
+> — Bill Gertz (@BillGertz) [March 2, 2022](https://twitter.com/BillGertz/status/1498854110472278016?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 越来越多的迹象表明 [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) 人民越来越意识到乌克兰战争的规模和影响 如果是这样的话，这将使 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 面临两线冲突的危险 他将迅速采取行动，实施旨在防止大规模抗议和（内部）动乱的限制措施
+
+
+
+> Growing signs the people of [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) are becoming increasingly aware of the scale & scope of the [#UkraineRussianWar](https://twitter.com/hashtag/UkraineRussianWar?src=hash&amp;ref_src=twsrc%5Etfw) 
+>  
+> If so this would put [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) in danger of a two front conflict 
+> 
+> He would move quickly to impose restrictions aimed at preventing large protests & unrest
+> — Marco Rubio (@marcorubio) [March 3, 2022](https://twitter.com/marcorubio/status/1499200309926981634?ref_src=twsrc%5Etfw)
+
+
 
  
 

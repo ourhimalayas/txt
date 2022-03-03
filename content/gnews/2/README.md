@@ -2,31 +2,33 @@
 ---
 
 
-## 有声|芬兰放下「中立」宣布军事援助乌克兰
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2097876/)
+## 有声｜中共封杀反战声音 金星谴责普京被禁言
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2098045/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-台媒3月1日消息，芬兰总理马林（Sanna Marin）28日宣布，芬兰将向乌克兰运送武器和弹药。 马林形容这是历史性的决定，并保证对乌克兰军援不会削弱芬兰自身的防御能力。这是芬兰自二战以来首次转变“中立”态度，参与战事援助。
+**By:秘翻新闻**
 
-芬兰国防部长凯克宁表示，预计自3月1日至2日起，分别向乌克兰援助2500支步枪、15万发子弹、1500件反装甲武器和7万份野战口粮。
+**2022-03-03**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2222.jpg)图片源自:网络
+**[据新唐人3月3日讯，3月1号，中共国脱口秀主持人、演员金星，因在微博提到“铁链女”和乌俄战争，遭删贴、禁言。](https://www.ntdtv.com/gb/2022/03/02/a103362338.html)**
 
-不久前，俄罗斯政府曾经威胁芬兰不准加入北大西洋公约组织，并警告，如果芬兰政府打破“军事不结盟政策”，北欧的安全和稳定将面临严重的军事、政治后果。
+**[金星在微博有1358万粉丝，她当天在微博上写道：“2022年最惊悚的事情是：一个脖子上被拴着铁链的中国女人说，这世界不要俺了！一个疯狂的俄国男人说，不要俺继续当总统，俺就不要这个世界了！”](https://www.ntdtv.com/gb/2022/03/02/a103362338.html)**
 
-文字版原文：[芬兰放下「中立」宣布军事援助乌克兰](https://gnews.org/zh-hans/2091547/)
+**[微博还配了一张身着蓝黄俩色服装的女主持人照片，并写道：“从央视小姐姐穿的衣服颜色来看，是支持乌克兰的。停止战争，祈祷和平！”](https://www.ntdtv.com/gb/2022/03/02/a103362338.html)**
 
-音频处理：Fei797
-发稿：Fei797
+**[蓝黄亮色正是是乌克兰国旗的颜色。](https://www.ntdtv.com/gb/2022/03/02/a103362338.html)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**[这条微博发出后不久就被删除。金星专门澄清说：她本人没有删微博，是系统给屏蔽了。](https://www.ntdtv.com/gb/2022/03/02/a103362338.html)**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**[随后，她在微博上就处于被禁言的状态。](https://www.ntdtv.com/gb/2022/03/02/a103362338.html)**
+
+**[不过网友仍然可以看到，金星最后一条有关系统屏蔽她的反战帖子的微博，获得了5万个点赞，9900多次转发。但网友留下的1141条评论却全部被屏蔽。在中共国，删帖、禁言、控评等手段早已成为中共操控舆论的常用手段。](https://www.ntdtv.com/gb/2022/03/02/a103362338.html)**
+
+（ 秘翻新闻 二丫编辑报道 ）
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
