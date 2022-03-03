@@ -2,27 +2,16 @@
 ---
 
 
-## 2022.3.2大直播 新中国联邦在乌克兰当地援行动百分百成功
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2094433/)
+## 后共时代 世界大变局
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2094535/)
 
-撰稿：大浪小水花
+文贵大直播20220302
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-02-at-10.23.16-PM.jpeg)
+撰稿：三票先生（DC）
 
-
-郭文贵先生在2022年3月2日大直播中，向全世界公开宣布了三项这次新中国联邦“乌克兰国际人道救援行动”的好消息。
-
-郭先生提到，截至目前，在喜马拉雅联盟委员会的共同努力下，新中国联邦已经成功救出了四位爆料革命的资深战友三个家庭包括他们的朋友家人，目前已经抵达波兰。
-
-郭先生还透露，现在喜马拉雅联盟委员会成员，大卫、老班长还有参与乌克兰救援的战友正在准备飞往波兰的路上，准备在匈牙利、罗马尼亚建立基地。小SARA，罗伊，蔚蓝，小福利等战友已经到纽约集结准备飞往乌克兰前线。
-
-郭先生表示，这次新中国联邦人道救援行动，新中国联邦与联合国救援组织会跟当地军方合作，只要是华人就会放行，直接入驻联合国指定酒店，享受30天免费食宿以及免费航班飞往安全国家。
-
-郭先生强调，整个救援过程不需要提供任何个人信息，而且完全行动自由。
-
-郭先生宣布，所有在乌华人都是新中国联邦的救助对象，包括新中国联邦战友的朋友都是这次救助的对象，都享受新中国联邦提供的免费食宿和机票。
-
-参考链接：[2022年3月2日文贵大直播](https://gtv.org/broadcast/watch/621f6ab7019ef64da653b4ff)
+美工：长颈鹿（雅典娜）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8-1.png)
+*发布：Theodosia*
 
  
 

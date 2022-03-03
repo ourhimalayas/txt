@@ -17,17 +17,17 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/3/2022 3:25 AM (UTC)`
+
+3/2/2022 Miles Guo: Putin and Xi Jinping are living in their dreams. Deception is the only way for those around them to make profits. The result of this war is that Putin and Xi will be finished. However, the CCP has dragged the Chinese people into a war that has absolutely nothing to do with them. The probability of President Zelenskyy being killed is very high, as Xi and Putin can't stand the fact that an actor who played comedy is much more remarkable than them.<br/><br/>3/2/2022 文贵直播：普习活在梦中，互相欺骗是其身边人士获利的唯一手段；这场战争的结果是普习完蛋，而中共却把中国人绑上战车；泽连斯基总统可能被做掉，因为普习最大的痛苦是看不惯一个演员都比他俩伟大<br/>
+![img](https://media.gettr.com/group9/getter/2022/03/03/03/03bf6525-9f68-62e1-aba5-25354f320f44/out.jpg)
+
+---
+
 `@miles 3/3/2022 2:19 AM (UTC)`
 
 【UKRAINEHELP-002】<br/>由于乌克兰局势日益恶化，NFSC和法治基金与国际救援组织共同合作，近日紧急安排第一批次营救专机，协助华人同胞、美国及其他各国友人免费撤离，目的地为美国（需要美国签证）和其他安全中转国。我们将在波兰的Medyka设立临时接待点，并在安全地区提供30天以内的免费食宿。 请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。<br/><br/>24小时紧急救援客服联系方式如下：<br/><br/>邮箱：ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO<br/><br/>电话(短信或电话）：<br/>+1 720-657-6776 或 <br/>+1 719-224-4232<br/><br/>NFSC ｜法治基金<br/>3/1/2022<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group18/getter/2022/03/03/02/f53de80f-039c-dd84-640b-8af36de62377/6ed5c853504045df22c2ef313651f0bf.jpg)
-
----
-
-`@miles 3/3/2022 2:12 AM (UTC)`
-
-
-![img](https://media.gettr.com/group13/getter/2022/03/03/02/8c4a1fb0-cdf2-a8a4-3f69-a9ac08d3c820/ec161687fa40487a6ac21c64ffba146d.jpg)
 
 ---
 

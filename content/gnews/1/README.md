@@ -2,20 +2,14 @@
 ---
 
 
-## 一旦台湾战争台湾和大陆战友可到帛琉避难
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2097386/)
+## 台湾｜蔡英文接见庞培欧网路直播 因大规模停电而取消
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2097551/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
-
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**撰文/ 港台前線｜發佈日期/ 03/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-9.png)更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
+台湾3日发生[大规模停电，原因待厘清](https://gnews.org/zh-hans/2097381/)。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-03-上午10.58.27.png)
+总统府发言人脸书公告，目前总统府供电未受影响，但总统上午接见美国前国务卿庞培欧之网路直播，则暂时取消，请各界见谅。
 
  
 

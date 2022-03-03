@@ -2,41 +2,40 @@
 ---
 
 
-## 加拿大安大略省结束中共病毒疫苗护照要求
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2097359/)
+## 疫苗灾难正悄悄降临 笔者亲身经历
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2097523/)
 
-![Demonstrators gather for a protest against mandates related to Covid-19 vaccines and restrictions in downtown Toronto, Ontario, Canada, on February 5, 2022. - Protesters again poured into Toronto and Ottawa early on February 5 to join a convoy of truckers whose occupation of Ottawa to denounce Covid vaccine mandates is …](https://media.breitbart.com/media/2022/03/GettyImages-1238218860-e1646167104487-640x479.jpg)CHRIS TOMLINSON摄于 2022年3月1日
-来自布赖特巴特新闻网2022年3月1日的报道，加拿大安大略省政府周二已经完全取消了新冠病毒疫苗护照的要求，但指出企业可以自行选择是否强制执行这些措施。安大略省保守党省长道格·福特(Doug Ford)在上个月宣布结束疫苗护照制度，此前他声称 “关键的公共卫生和卫生系统指标”正在持续改善。
+撰稿：东京樱花团/加一颗稻草
 
-周二，福特对结束疫苗护照发表评论说：“由于我们取得的所有进展，企业现在已经满负荷运转。根据摩尔医生的建议，不再要求提供疫苗接种证明，但一些企业可以选择继续要求提供。我们已经取得了很大进展。希望大家保持友善、安全和谨慎。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/疫苗灾难正悄悄降临-笔者亲身经历.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fi0.wp.com%2Fgeneonline.news%2Fwp-content%2Fuploads%2F2020%2F09%2F142859856_s.jpg%3Ffit%3D897%252C534%26ssl%3D1&amp;imgrefurl=https%3A%2F%2Fgeneonline.news%2Fvaccine-disaster-and-covid-19%2F&amp;tbnid=lo20TJOZJ66X9M&amp;vet=12ahUKEwiezZPl9qj2AhVtk9gFHVdXBeQQMyg8egQIARAw..i&amp;docid=PoUC_AFu2eLl9M&amp;w=897&amp;h=534&amp;q=%E7%96%AB%E8%8B%97%E7%81%BE%E9%9A%BE&amp;ved=2ahUKEwiezZPl9qj2AhVtk9gFHVdXBeQQMyg8egQIARAw)
 
-安大略省政府将允许企业自行保留疫苗护照，但很少有企业公开宣布他们将这样做。
+我家住在一个不知道属于几线的一个小县城进出城的十字路口。县城有两家医院，一个在东面，一个在西面，这里是必经之地。
 
-多伦多的一家独立电影院Revue Cinema承诺至少在4月份以前会保持他们的疫苗护照要求，称那些购买预售票的人可能期望疫苗护照继续有效，影院希望“履行这一承诺”。企业电影院Cineplex则表示，它将在3月1日结束其疫苗接种证明的要求。
+我喜欢书法，喜欢夜里拿起笔时放下烦躁心情的感觉。也喜欢写累了站在窗前欣赏夜景，其实也没有什么夜景，只是喜欢夜里偶尔进出城的汽车渐近灯光的期待和渐远灯光的畅想。以往每个月总有一两次闪着蓝色灯光的救护车响着不算急促警示音经过，引起我对生老病死无奈的哀伤。我享受这平淡安静的时光。
 
-安大略省不是加拿大唯一取消新冠病毒限制的省份。截至本周二，阿尔伯塔省已经取消了几乎所有的限制，包括大部分的强制佩戴口罩的规定，这些规定在安大略省仍然有效。这两个省都是在自由车队抗议活动之后开始取消限制措施的，这些抗议活动在上个月封锁了美加边境沿线的这两个省的边境口岸。
+三个月前，我的心情突然烦躁起来。因为那蓝色的叫声来去渐渐多了起来，后来发展到几乎每天至少经过一次，这使我这样有些神经质的人感觉心烦意乱。索性就很少站在窗前了，但还是能听到它路过时那恼人的叫声。 2022年1月26日上午十点左右，刚刚出院的妈妈突然心脏病再次发作。我颤抖着手拨通了120急救电话，电话里职业的女声使我镇定下来。她告诉我：现在医院里所有的急救车都派出去了，最快的车也得40分钟能回来。如果我能等，救护车回来就会派过来。 我只好自己开车带妈妈来到医院。
 
-简评：
+住院部的医生很有耐心的帮助我分析了妈妈的病情，介绍了用药品种和方法以及平时的护理，并拒绝了我们入院治疗的请求。很庆幸得到这位医生的帮助，妈妈的病情一直到正月初十都比较稳定。这次我们选择了市里的医院，重新入院全面检查后被劝导出院，历程7天。床位紧张。
 
-加拿大卡车司机的勇敢终结了加拿大政府强制疫苗政策，初步捍卫了加拿大人民的自由。令人遗憾的是，80%的加拿大人民已经打了两针或三针疫苗，毒疫苗给人们带来的伤害将会长时间存在。 欧美各国正在逐步取消了强制疫苗的措施，世界各国通过一系列的封城、隔离、强制接种疫苗措施之后再次回到了原点，但中共病毒并没有因此消失，这直接证明了中共病毒疫苗根本不能预防感染更不能终结中共病毒。各国政府为了利益，为了维护政府的独裁统治，强推中共病毒疫苗接种近两年之久，已经对人类的种族繁衍造成了重大的潜在负面影响。根据各国医学专家的分析判断，打完疫苗的人的免疫力会逐步递减，最终可能造成免疫力下降至零，达到一种类艾滋病的状态，同时毒疫苗还可能导致癌症高发，中共病毒之后的疫苗灾难将成为人类历史上的一场史无前例的浩劫。而能拯救这一切的恐怕只有那些与爆料革命新中国联邦并行一致的全世界的无苗
+回到县里，托我连襟的同学找他侄子的哥们，再次入院。妈妈被安排在医院的走廊。医生真的很忙。重症病房的门总是开着，医生护士进进出出。我在医生办公室等待近2小时，才和医生谈了大约5分钟妈妈的病情，其中被护士打断一次，电话打断2次。
 
-新闻链接:[https://www.breitbart.com/europe/2022/03/01/freedom-ontario-ends-coronavirus-vaccine-passports-removes-capacity-restrictions/](https://www.breitbart.com/europe/2022/03/01/freedom-ontario-ends-coronavirus-vaccine-passports-removes-capacity-restrictions/)
+被护士打断的那一次印象深刻。她们的对话是这样。
 
-翻译/简评: kkoto(芬兰大灰狼)
+护士：X 大夫，新来的那个患者，你让我抽5管血，头两管虽然慢点，还能抽出来，第三管是用手硬挤出来的，(护士边说边用右手在左臂弯上方做了个向下推的动作)勉强挤够。怎么办呢？
 
-PR:Harvey（叶知秋）
+医生：5毫升注射器。
 
-* * *
+护士：啊！我有点害怕了。不敢了。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+医生：找你X姐。
 
+……
 
-编辑：【英国伦敦喜庄园编辑部】
+现在妈妈进入了病房，病情已经慢慢好转。我只负责一日三餐。今天在我家路口碰见了一辆闪着蓝灯的救护车和我擦肩而过。奇怪啊！？怎么没有听到警示音呢？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
