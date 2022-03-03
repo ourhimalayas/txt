@@ -2,38 +2,33 @@
 ---
 
 
-## 有声|美前国务卿蓬佩奥将于3月访台
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2100761/)
+## 有声|概述美国对中国的帮助——清政府时期
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2100812/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-在乌克兰人民正奋力抵抗俄军炮火袭击的奋战时期，同时也被视为是中共可能趁机武力侵台的敏感时机，作为坚定支持台湾民主的前美国国务卿蓬佩奥将于3月2日至5日访问台湾。蓬佩奥访台不仅受到国际高度关注，同时也被视为面对中共正从军事、经济、外交等各方面对台湾高度施压，面临空前未有的巨大压力的台湾来说，意义实属重大。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/id13611569-GettyImages-1372801123-600x400-1.jpg)[图源网络](https://www.epochtimes.com/b5/22/2/27/n13609549.htm)
-去年10月蓬佩奥出席“香港自由灯塔”（HKFB）活动，由香港议题谈到台湾时他呼吁各国领袖：台湾是个拥有巨大经济创造力的民主国家，他祈祷各国领导人能够知道并支持台湾是一种道德义务的表现，千万不要让台湾步香港后尘。蓬佩奥支持台湾民主的立场坚定且明确，此次更以具体行动展示对台湾的支持，有人认为这为对台湾来说是雪中送炭。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+回顾近现代历史，中国在遭逢每一个难关时，都得到了来自美国的极大帮助。即使是邓小平也不得不承认：这几十年来，凡是和美国搞好关系的国家都富起来了。于中国而言，美国更是中国人民真正的朋友。
 
-且因蓬佩奥被视为是最了解中共的美国国务卿之一，其担任国务卿期间，也是中共视为最强硬的对手之一，就如蓬佩奥主张和中共打交道的对策是，“不相信然后核实”（对中共说的话首先存疑，然后一定要去一一核实），显示其对中共政权的高度不信任和对中共道德素质的高度质疑。因此，蓬佩奥此次访台，有媒体认为这对中共来说，无疑是最头痛的事情之一，这也将对制约中共在台湾动武将会产生实质影响，意义非凡。
+早在清朝末年，中国大厦将倾，而美国此时已经明白，中国的衰弱只是因为其科学知识的缺乏。于是，美国促使一批又一批的中国学生赴美学习先进技术，中国才得以逐渐走上现代化的道路。
 
+另一方面，美国将庚子赔款用于在中国建造学校，这当中也包括目前中国的最高学府——清华大学。为了培养人才，当时，清华大学的优秀学生可以在毕业后免费前往美国深造。此外，美国人还在中国建立了12所教会大学，而赫赫有名的燕京大学，即北京大学前身也在其中。至于中国现在的大型医院，其医学院的前身几乎都是教会医院，包括协和医院和华西医院等等，甚至是后来的中国军医医院的人才和医疗体系都莫不出自教会医院。
 
+彼时，美国的举动还让许多国家纷纷效仿，他们大多退还或停止了清政府的庚子赔款。
 
-文字版原文：[美前国务卿蓬佩奥将于3月访台](https://gnews.org/zh-hans/2091388/)
+字版原文：[概述美国对中国的帮助——清政府时期](https://gnews.org/zh-hans/2094561/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

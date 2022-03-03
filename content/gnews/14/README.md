@@ -2,51 +2,30 @@
 ---
 
 
-## 欧洲议会投票承认乌克兰“欧盟候选国地位”
-` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/2100737/)
+## 秘翻在线：担心俄罗斯利用加密货币规避制裁，民主党人向财政部施压
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2100747/)
 
-撰稿: 纽约香草山 – 宁文静
+**撰稿：彩虹**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/warren.jpg)图片来源：彭博社
+据《国会山报》3月2日报道，鉴于人们对俄罗斯是否可以利用数字资产来规避美国制裁措施的担忧正在上升，民主党人正在向财政部（Treasury Department）施加压力，要求其提供有关在加密货币行业内实施制裁计划的信息。
 
+这封周三写给财政部的信由几位民主党人带领立法者们共同牵头，包括参议员伊丽莎白·沃伦（Elizabeth Warren）、参议院情报委员会主席马克·华纳（Mark Warner），参议院银行、住房和城市事务委员会主席谢罗德·布朗（Sherrod Brown）和参议院军事委员会主席杰克·里德（Jack Reed）。
 
+在信中，立法者们询问了财政部“在监测和执行加密货币行业遵守制裁方面的进展”，然后表达了对“犯罪分子、无赖国家和其他行为者可能利用数字资产和替代支付平台，作为一种新的手段来隐藏跨境交易以达到邪恶目的”的担忧。
 
+信中写道，鉴于拜登政府因俄罗斯正在进行的军事入侵而对其实施的一系列制裁，这些担忧变得更加紧迫。立法者们还引用《纽约时报》最近发表的一篇报道，其中专家警告说，俄罗斯公司可以利用“加密货币工具”来规避制裁。
 
+报道指，立法者们要求财政部在3月23日之前回答相关问题，问题包括：“外国资产管制处（OFAC）将如何与外国政府和国际银行界的其他参与者合作，以确保加密货币不被用来逃避制裁。”以及所有“外国资产管制处在虚拟货币行业记录的违反制裁行为是什么？”
 
-当地时间3月1日，欧洲议会绝大多数议员投票赞成一项象征性的议案，以确立乌克兰的欧盟正式候选国资格。但乌真正加入欧盟尚需一定时日。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-297.png)图片来自：https://www.independent.ie/
-此次投票是在27日欧盟委员会主席尔苏拉·冯德莱恩表态乌克兰必须加入欧盟，28日乌克兰总统泽连斯基火速提交加入欧盟的资格申请之后，做出的一项关于俄罗斯侵略乌克兰的动议，旨在支持乌克兰成为欧盟的正式候选国，以及对俄罗斯实施更严厉和更广泛的制裁等。
+对于相关支持，立法者问道：“外国资产管理处可能需要哪些额外的工具，以确保加密货币参与者不能帮助俄罗斯或其他恶意行为者逃避美国和多边制裁？”
 
-分析人士指出，欧盟议会接受了乌克兰加入欧盟的申请，正式启动相关程序。乌克兰还需要进行大量的国内立法和改革，以符合欧盟现有框架及标准。这个过程需要一定的时间。
+文章说，在周三的信件发布后不久，沃伦告诉国会：“已经很清楚的是，贩毒者、勒索软件、骗子和偷税漏税者都在使用加密货币，因为它是一种在当局无法追踪的情况下转移资金的方式。所以问题是，财政部如何评估风险，他们对此做了什么？这就是我们现在对财政部进行推动的原因。”
 
-投票的最终结果为：637票赞成，26票弃权，另外有13票反对票。表决之前，泽连斯基通过视频发表了慷慨感人的演讲，获得全体议员站立鼓掌。
+**新闻来源**
 
-新闻链接:
-
-[Wallace and Daly vote for long delay on Ukraine’s chance of joining EU](https://m.independent.ie/irish-news/politics/wallace-and-daly-vote-for-long-delay-on-ukraines-chance-of-joining-eu-41400042.html)
-
-[Resolution on Russian aggression against Ukraine](https://twitter.com/electsworld/status/1498747095632650240?s=21)
-
-[BREAKING: Ursula Von Der Leyen, President of the European Commission, tells Euronews that the EU wants Ukraine in the bloc and that “they’re one of us.”](Ursula%20Von%20Der%20Leyen,%20President%20of%20the%20European%20Commission,%20tells%20Euronews%20that%20the%20EU%20wants%20Ukraine%20in%20the%20bloc%20and%20that%20&quot;they're%20one%20of%20us.&quot;)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-14.jpg)
-
-编辑: 谐趣园
-
-总编/审核:飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
-
-
-
+[Democrats press Treasury over concerns Russia could use cryptocurrency to evade sanctions](https://thehill.com/homenews/house/596601-house-passes-resolution-backing-ukraine)
 
  
 

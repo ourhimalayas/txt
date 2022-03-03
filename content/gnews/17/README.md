@@ -2,42 +2,25 @@
 ---
 
 
-## 普京大规模抓捕反战人员
-` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/2100688/)
+## 新中国联邦乌克兰救援行动初获胜果
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2100725/)
 
-撰稿: 银河系农场—骄子
+加拿大温哥华杨帆农场 枫叶快讯
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
+采编/编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-304.png)图片来源：GTV 
+据3月2日GTV文贵大直播消息，本次由新中国联邦主导参与的“乌克兰国际人道救援行动”捷报频传，不仅向世界展示了爆料革命强大的执行力和国际影响力，更体现出新中国联邦人在果敢行动中实现“灭共是正义需要”的宗旨。
 
+据悉，新中国联邦目前已成功在乌克兰战火中救出了至少四位爆料革命资深战友及其家人和朋友，并已全部安全抵达波兰。
 
+同时，喜马拉雅联盟委员会负责人大卫和老班长及相关战友团队都已准备就绪飞赴乌克兰和波兰，并计划在匈牙利、罗马尼亚建立营救基地。
 
+此外，新中国联邦与联合国救援组织将与当地国军方合作，全力营救被困华人，整个救援过程不需要提供任何个人信息。在成功进入波兰后，将直接入驻联合国指定酒店，享受30天免费食宿。最后，按被救助者个人意愿，提供免费航班飞往指定的安全国家。
 
+发稿：青青
 
-3月1日，俄罗斯的一个人权组织报告称，由于普京发动了对乌克兰的入侵，俄罗斯国内出现了巨大的反对声音，而普京正在对这些反对者实施镇压。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-300.png)
-目前，俄罗斯各地城市已经拘留了数千人，仅周一一天时间，俄罗斯的13个城市就起码抓捕了411人。从2月24日至今，被逮捕的反战人员已达到6400多人。
+消息来源：https://gtv.org/video/id=621f6ab7019ef64da653b4fe
 
-此前，反对俄罗斯当局的领导人阿列克谢·纳瓦尔尼被监禁，大批民众发起游行支持这位反对者时，俄罗斯当局就进行了大规模镇压。更早一些的镇压发生在2017年。
-
-另据悉，此次反对入侵乌克兰的人员还包括一些俄罗斯的体育、演艺人员和商业领袖。
-
-编辑/总编/审核: 飞虹
-
-新闻来源:
-
-[Russia widens internal crackdown on anti-war protesters; more than 6,400 arrested](https://www.washingtontimes.com/news/2022/mar/1/russia-widens-internal-crackdown-anti-war-proteste/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-14.jpg)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
