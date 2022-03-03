@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/3/2022 5:23 PM (UTC)`
+
+3月3号：至乌克兰战场的所有同胞们……紧急紧急紧急。
+![img](https://media.gettr.com/group35/getter/2022/03/03/17/9afba939-b41b-bbeb-9088-909cea01611c/out.jpg)
+
+---
+
 `@miles 3/3/2022 3:24 PM (UTC)`
 
 3月3号：尊敬的战友们好，明天是中国的农历二月初二……龙抬头，也是我母亲三年冥诞的日子，明天没有直播……文贵在此衷心地希望所有的战友．爱父母爱家人！
@@ -146,13 +153,6 @@
 
 3月1号：尊敬的战友们好，俄乌战争已经彻底的改变了世界……非常可悲的事情，中国人成了全世界最被恨的人，甚至要成为最孤立最被仇恨的族类，这是什么原因呢？
 ![img](https://media.gettr.com/group21/getter/2022/03/01/15/4574b527-9873-34da-1daf-0684bc268d91/out.jpg)
-
----
-
-`@miles 3/1/2022 6:44 AM (UTC)`
-
-2/27/2022 Miles Guo: Xi’s determination to invade Taiwan does not contradict his holding the Two Sessions. The success of Ukraine’s media information warfare, technology warfare, and cyber warfare has had a huge impact on the CCP, which further affected the CCP’s choice of the military strategy to attack Taiwan. The CCP will be destroyed by its falsification and deception.<br/><br/>2/27/2022 文贵直播: 习近平执意打台湾和开两会并不矛盾；乌克兰的媒体信息战、科技战和网络战的成功对中共触动很大，进而影响到中共对台作战的战略；中共将毁于它的假和骗！<br/>
-![img](https://media.gettr.com/group7/getter/2022/03/01/06/dddde801-578e-6e3f-1dd0-6ecd701237f7/out.jpg)
 
 ---
 
