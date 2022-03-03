@@ -2,30 +2,35 @@
 ---
 
 
-## 瑞典新研究表明辉瑞疫苗mRNA 能整合入人体 DNA
-` Little c` [轉載自GNews](https://gnews.org/zh-hans/2100966/)
+## 英国联合38国将俄侵乌暴行提交国际刑事法院
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2101024/)
 
-作者：波士顿五月花 Little c
+**整理：围剿维尼熊
+编辑：Candy**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/mrna-vaccine.jpg)图片来自网络
+**【雅典娜快讯】，紧贴时代脉搏**
 
-一瑞典实验室研究发现辉瑞疫苗中的mRNA会整合进入人体细胞DNA，并改变受影响细胞的DNA。这一研究结果发表在Current Issues in Molecular Biology杂志上，巴西里约时报对此做了报道。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/诉俄.png)图片来源：雅典娜设计组
 
-他们采用了人类肝细胞系进行体外实验，发现辉瑞mRNA疫苗使用LINE-1天然逆转录酶，将疫苗的遗传密码逆转录整合人体细胞DNA。 这种“逆转录”和HIV RNA 病毒改变人体细胞DNA原理类似，能修改DNA后，并复制。
 
-在正常情况下，人体需要正常细胞DNA转录成RNA，然后形成蛋白质，产生新细胞。如果疫苗中含有有害遗传密码，后果将非常可怕。
+根据大纪元2022年3月3日讯，英国和其它38个国家已将俄罗斯入侵乌克兰期间的暴行，正式提交给国际刑事法院（ICC）。
 
-* * *
+据国际刑事法院的规则，成员国正式提告，意味着检察官在开始调查之前，不必得到国际刑事法院法官的批准。
 
-参考链接：
+英国联合其它38国一同提交请求，成为了国际刑事法院历史上规模最大的一次。英国外交大臣莉斯·特拉斯（Liz Truss，港译卓慧思）表示迫切需要国际刑事法院调查俄罗斯的野蛮行径，追究那些应为此负责的人。英国将与盟国紧密合作，确保正义得到伸张。
 
-[New study from Sweden says, Pfizer mRNA does indeed integrate into our DNA](https://www.riotimesonline.com/brazil-news/modern-day-censorship/new-study-from-sweden-says-pfizer-mrna-does-indeed-integrate-into-your-dna/)
+在英国和盟国的要求下，国际刑事法院检察官卡里姆·汗（Karim Khan）已积极开始对乌克兰战争进行调查。
 
-[Intracellular Reverse Transcription of Pfizer BioNTech
-COVID-19 mRNA Vaccine BNT162b2 In Vitro in Human Liver
-Cell Line](https://www.riotimesonline.com/wp-content/uploads/2022/02/Pfizer-RNA-into-DNA.pdf)
+参考链接：[39国指俄侵乌涉暴行 国际刑事法庭展开调查](https://www.epochtimes.com/gb/22/3/3/n13617865.htm)
 
-编辑/发布：Little c
+***发布：Candy***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
