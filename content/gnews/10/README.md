@@ -2,23 +2,23 @@
 ---
 
 
-## 秘翻在线：莫斯科警察逮捕向乌克兰大使馆献花的儿童
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2098137/)
+## 视频|星链终端目前已经抵达乌克兰
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2098357/)
 
-撰稿：文贺JP
-![](https://assets.gnews.org/wp-content/uploads/2022/03/画像1.jpg)图：莫斯科警察逮捕献花少女画面
-图片来源：本文链接
-（据3月3日卫报披露）社交媒体上出现的视频显示，一群儿童在抗议俄罗斯入侵乌克兰后被莫斯科警方拘留。在亚历山德拉·阿尔希波娃（Alexandra Arkhipova）在 Facebook 上发布的一段视频中，可以看到一名年轻女孩在监狱里握着一名女子的手，泪流满面。
+制作：香草山视频部
 
-俄罗斯各地城市的数千人无视警察的威胁，举行抗议入侵乌克兰的活动。
+2月28日，据有关媒体报道，乌克兰已经收到了由SpaceX捐赠的星链卫星互联网终端。随后，乌克兰副总理兼数字化改造部部长米哈伊洛·费奥多罗夫也在社交媒体平台上向埃隆-马斯克表示了感谢。同时，费奥多罗夫还公布了一张装满终端设备的军用卡车的照片。
 
-观点：精英主义和独裁体制正在被瓦解，平民主义的时代已经到来，全世界、大觉醒!!!
+报道提及，此前，乌克兰的互联网曾因俄罗斯的入侵而中断，而这些表面上看起来像家庭卫星电视天线的终端设备，可以通过接入低轨道上的一组卫星阵列向乌克兰民众提供相对快速的互联网服务。
 
-新中国联邦捍卫世界正义和平，为百姓发声！
+然而，多伦多大学公民实验室项目的一位高级研究员也在社交媒体平台上提醒道，这些终端可能会成为俄罗斯攻击的目标。
 
-信息来源：[https://www.theguardian.com/world/live/2022/mar/02/ukraine-news-russia-war-kyiv-kharkiv-russian-invasion-vladimir-putin-joe-biden-latest-live-updates](https://www.theguardian.com/world/live/2022/mar/02/ukraine-news-russia-war-kyiv-kharkiv-russian-invasion-vladimir-putin-joe-biden-latest-live-updates)
+发稿：林礼
 
-责编：Eric Kim
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
