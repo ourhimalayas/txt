@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/4/2022 2:13 PM (UTC)`
+
+【UKRAINEHELP-003】<br/>为应对乌克兰-波兰边境日益增多的撤离人员和难民，NFSC和法治基金(ROLF)宣布2022年3月9日首批免费专机的暂定行程。<br/><br/>2022年3月9日出发的首批专机航线如下，有可能根据情况做出调整:<br/>1. 从波兰 - 热舒夫(Rzeszow)机场出发，经加拿大多伦多，前往美国纽约。<br/>2. 从波兰 - 热舒夫(Rzeszow)机场出发，直飞帕劳。<br/><br/>NFSC和ROLF提供免费专机，以帮助那些受俄罗斯非法入侵影响的人员，这是我们支持在被共产主义和专制政府统治的国家里争取自由的使命的一部分。<br/><br/>如果您需要搭乘我们的专机，请联系我们的24小时服务热线。所有乘客必须满足 其目的地的签证要求。如有需要，NFSC和ROLF将在出发前提供免费食宿。<br/><br/>24小时紧急救援客服联系方式如下:<br/><br/>邮箱: ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO <br/><br/>电话(短信或电话):<br/>+1 720-657-6776 或 <br/>+1 719-224-4232<br/><br/>NFSC | 法治基金 <br/>2022年3月3日<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group46/getter/2022/03/04/14/914793c1-2bb1-a4b8-07ca-d8874855a3c5/2a10b3fec16a22e8980985dbc4dcd6f9.jpg)
+
+---
+
 `@miles 3/4/2022 1:30 PM (UTC)`
 
 Prince and Rachel: The New Federal State of China and the Rule of Law Foundation are looking to help 10,000 to 20,000 Chinese stranded in Ukraine evacuate. For people who need help to evacuate from Ukraine, please go to the website (ukrainehelp.info) for information. We have two emergency contact numbers and two emails, 24/7, to assist those who need help. <br/><br/>爆料革命战友（小王子和瑞秋）：新中国联邦、法治基金正在努力帮助一万到两万名滞留在乌克兰的中国人撤离。如需我们协助从乌克兰撤离，请访问网站（ukrainehelp.info）获取信息。我们有两条全天候的紧急联系电话和两个电子邮件来帮助那些需要援助的人。
@@ -151,13 +158,6 @@ We’ve seen this coming, and we’ve been reactionary. That gave Vladimir Putin
 
 3月3号：尊敬的战友们好GTV已经在昨天的凌晨12:00彻底的关闭……由于共产党大量的篡改数据，黑客。为了战友们的信息安全和GTV投资者的利益，经投资委员会和法律委员会决定已经将GTV关闭，请新中国联邦的战友们去盖特上．去看有关新中国联邦和灭共的直播。所有过去投资的老椅子的人请和联盟委员会联系，一切会更好。
 ![img](https://media.gettr.com/group21/getter/2022/03/03/14/2d31ef76-d81b-34d0-6e44-fad087167b4e/out.jpg)
-
----
-
-`@miles 3/3/2022 1:47 PM (UTC)`
-
-3月3号：尊敬的战友们好视频中所说的这一切！使用了我们爆料革命使用的专有名词盗国贼．在这里屡次被提及，但是和中国共产党的盗国财富和行为相比，只是小巫见大巫，你们很快会看到所有的中国共产党的家人面对的视频中的这一切！很快很快很快！
-![img](https://media.gettr.com/group30/getter/2022/03/03/13/808a8081-1d44-75dc-ba4b-52a0555927cd/out.jpg)
 
 ---
 

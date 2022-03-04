@@ -2,10 +2,10 @@
 ---
 
 
-## 如果你需要从乌克兰战区撤离，请访问ukrainehelp.info
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2105834/)
+## 俄罗斯外长联合国人权理事会发言时，外交官们退场抗议
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2105889/)
 
-03/03/2022 爆料革命战友（小王子和瑞秋）：新中国联邦、法治基金正在努力帮助一万到两万名滞留在乌克兰的中国人撤离。如需我们协助从乌克兰撤离，请访问网站（ukrainehelp.info）获取信息。我们有两条全天候的紧急联系电话和两个电子邮件来帮助那些需要援助的人。
+03/01/2022 俄罗斯外长在联合国人权理事会发言时，外交官们纷纷退场以示抗议。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
