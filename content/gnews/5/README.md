@@ -2,36 +2,22 @@
 ---
 
 
-## 俄乌战争迫使BMW暂停多个欧洲生产线
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2103688/)
+## 樱花FM┃岸田首相对俄罗斯SWIFT制裁 冻结普京资产
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2103799/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/Wm0gAlM1O7JaejCasys0aoKUNSow15qXTffgLM3kx3gCa02e5_AMyAYDjMuUrtwJAkPj1duwGcIk1U38kRVgw27aDDOW94dEtJS-9yT2DQM2qdxp3u4Cd480ynZl0eVwth_YcKIK)
+27日晚，岸田文雄首相表示，为了加强对持续入侵乌克兰俄罗斯的制裁，部分俄罗斯银行将被排除在全球银行结算网络“国际银行间通信协会（SWIFT）”之外。日本将参与和美国，欧盟（EU）共同制裁。
 
-整理：围剿维尼熊
-编辑：木木木mmmmm
+还宣布将冻结包括普京总统在内的俄罗斯政府官员的资产。他还表示将向乌克兰提供1亿美元的紧急人道主义援助。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0145.jpg)图片来源：BMW
+首相在首相府向记者强调，“现在我们必须团结起来，坚决行动，以维护国际秩序的基础。这表明暴力会付出了高昂代价的。” “我们不能再像以前那样维持与俄罗斯的关系，”他说。日本与西方国家步调一致，对俄罗斯加大施压的立场十分明确。
 
+文字版原文：[岸田首相对俄罗斯SWIFT制裁 冻结普京资产](https://gnews.org/zh-hans/2077335/)
 
-根据联合新闻网3月3日报道，最新消息指出，德国品牌BMW受到俄乌战争冲击，目前将暂停品牌在欧洲多个厂区的生产作业。
-
-由于俄乌战争的缘故中断了BMW在乌克兰合作的零件供应商生产，使得BMW目前被迫中断与调整欧洲好几座工厂的生产线，包括位于德国的Munich、Dingolfin厂区，负责BMW引擎制造的奥地利Steyr工厂，甚至MINI位于英国牛津的生产基地皆因乌克兰危机而导致暂停生产。
-
-虽然BMW位于欧洲的工厂将暂时生产作业，但BMW表示，品牌位于美国、墨西哥与中国的产能因为有不同的供应商，因此暂时未受到俄乌战争冲击。此外，BMW现阶段也成立了危机对应小组，以确保替代零件的来源，减少因为俄乌战争而中断生产的损失。
-
-参考链接：
-
-[俄乌战争迫使BMW暂停多个欧洲生产线](https://autos.udn.com/autos/story/7826/6137507?list_ch2_indexgold)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

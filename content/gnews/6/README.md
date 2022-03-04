@@ -2,20 +2,18 @@
 ---
 
 
-## 樱花FM┃俄罗斯科学界反战信：“俄罗斯被孤立于世界之外”
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2103684/)
+## 樱花FM┃乌克兰总统向国际法院申诉要求俄方停止军事入侵
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2103798/)
 
 音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/kHu9z4dkAVFiOAGNStssbo9C7E6F3vUrK3_QmE7dFNhZ8AL-JCR1crAvWz0FxLYncYMWeEpoa_E6q8j6pMMYlsdJT8zQsm0cQ1KKfg2vu7IywViVvf_7wO-EeJ_5-_h-RPUyvNcG)
-在俄罗斯入侵乌克兰之后，科学界也站出来谴责俄罗斯。
+![](https://lh4.googleusercontent.com/KnpLsKUNxU3LX62l-uX4oGI-96HTKEijOAhZDJQ47hkWxraIyRLfIZDC8HpGhaiyeWGxcY6-nlv0XTJrZLeTSJeVTy4i64iCULn-L0rf6s0yQhDv0BKmQyAwo4CESvQdVVFRM-UA)
+27日，乌克兰总统泽伦斯基在推特上宣布，已向国际法院（International Court of Justice）提出申诉，要求俄罗斯停止其军事活动。
 
-24日，俄罗斯独立科学网站TrV Nauka发表了一封俄罗斯科学家和科学记者的公开信，反对俄罗斯的入侵。 它呼吁立即停止所有军事行动。
+27日，泽伦斯基总统在推特上发布消息，已向国际法院提出申诉，要求作出紧急裁决，命令俄罗斯停止其军事活动，并表示俄罗斯必须为“正当化”其侵略行径负责。
 
-信中指出，战争的责任完全在于俄罗斯，很明显，乌克兰没有威胁到俄罗斯的安全，战争是不公平和无意义的。
+国际法院的听证会定于下周开始。
 
-这场战争将使俄罗斯在世界范围内被孤立，成为一个弃儿。这将意味着我们的科学家将无法进行正常工作。如果不与其他国家的同事合作，继续进行研究是不可想象的。俄罗斯的文化和技术将被进一步延缓。
-
-文字版原文：[俄罗斯科学界反战信：“俄罗斯被孤立于世界之外”](https://gnews.org/zh-hans/2077361/)
+文字版原文：[乌克兰总统向国际法院申诉要求俄方停止军事入侵](https://gnews.org/zh-hans/2077729/)
 
 *编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*

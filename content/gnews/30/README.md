@@ -2,65 +2,51 @@
 ---
 
 
-## 参议员马可·卢比奥：俄罗斯侵略者正在炮击欧洲最大的核电站
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2102619/)
+## 新中国联邦救援纪实1
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2102583/)
 
-参议员马可·卢比奥： [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) 入侵者正在炮击欧洲最大的核电站 现在有报道称，该电站的一部分现在着火了
-
-
-
-> [#Russian](https://twitter.com/hashtag/Russian?src=hash&amp;ref_src=twsrc%5Etfw) invaders are shelling the largest nuke plant in Europe
-> 
-> Reports now that portions of the plant are now on fire[https://t.co/CKHcOIT9tz](https://t.co/CKHcOIT9tz)
-> — Marco Rubio (@marcorubio) [March 4, 2022](https://twitter.com/marcorubio/status/1499539156728434693?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-2-e1646358323888.png)
 
 
 
-参议员泰德·克鲁兹： 印度是世界上最大的民主国家和对抗 #中共国 的关键盟友。拜登政府制裁印度将是极其短视、鲁莽和自我放纵的。
+**乌克兰战友72小时逃亡亲历**
+文字记录编辑：引力波
 
+以下内容是零点战友口述的亲身经历：
+ 新中国联邦的战友大家好，非常感谢大家的帮助，非常感谢各位战友和七哥的牵挂，真的是激动了。我只想说，没有战争，远离硝烟，和平的世界真是太美好了。
+我是在盖特看到了救援信息就填了报名表，很快就有人联系了我，一开始说有飞机回来营救，我非常期待，但后来基辅的机场为了防止俄军飞机降落都设置了路障，所以喜马拉雅联盟委员会（联盟）告诉我情况会有变化，联盟说形势越来越紧急，无论如何要想办法第一时间逃出去，同时联盟还告诉我1号晚上有一班去波兰华沙的火车。于是我们1号下午3点开车赶往基辅火车站。
+我们有两个家庭，一共七个人。虽然去火车站只需要25-30分钟，但是一路上我亲眼目睹了战争的残酷，周围有很多建筑残骸，还有很多路障，三步一岗五步一哨，我们的车只能艰难通行，通过层层关卡终于到达基辅火车站。我们不会说乌克兰语，之前看到说火车站那里有中国大使馆的高级参赞帮助中国同胞的消息，所以我们就在基辅火车站到处找，但是根本就没有看到有任何大使馆的人在那里。我们遇到了很多中国人都在问大使馆在什么地方，大家非常失望也非常气愤。
+基辅火车站现场非常混乱，跟我们中国春运的时候差不多，人潮汹涌，人挤人，非常吵杂。在傍晚的时候，离基辅火车站不远的地方还发生了爆炸，硝烟滚滚，大家都非常惊恐。
+我们当时订的火车是7点左右的，当时去赶火车的时候就像一次大逃难。基辅火车站很老旧，没有自动扶梯，楼梯也陡，为了防止空袭，灯光也调的非常暗，很拥挤。我们好不容易到达站台，从7点一直等到9点10点，结果告诉我们这班火车已经取消了，我们只能回到候车室。
+这时有两位特别好心的乌克兰人告诉我们说，马上就有一班开往利沃夫的火车，问我们要不要去，他们还非常热情的帮我们拎行李，最终我们终于赶上了这班火车。当时基辅火车站是要提前4天买票的，还是这两位乌克兰人帮我们沟通，最后终于在1号晚上12点踏上了去往利沃夫的火车。
+我们在火车上没有座位，只能在火车厕所过道边上，坐在我们的行李箱上。经过12小时的颠簸，终于到达了利沃夫。到了利沃夫就相对比较安全了，我心也放宽一些。在这个过程中，我非常感谢新中国联邦的救援团队不断发信息给我们加油鼓气，同时告诉我们最新的消息和情报，我们能顺利出来真的非常感恩。
+我们从利沃夫下车之后，情况比基辅好很多，有很多维持秩序的志愿者，他们给难民送吃的喝的。到了利沃夫之后，接着我们搭上了开往波兰的火车。
+2号下午六点，车终于开了，这辆车是开往波兰边境城市普勒梅尔西的。虽然只有短短90公里的路程，但火车开了8个小时左右。一路上特别惊险，时不时火车就会停下来，一等就等两三个小时，我不清楚为什么。历经千辛万苦，终于在3号凌晨4点到达普勒梅尔西。
+当时我们听说普勒梅尔西通关特别困难，可能要排上30-40个小时，甚至还有排了5、6天的，所以我非常担心。但当我们到了普勒梅尔西之后发觉其实通关特别简单，只用了不到5分钟就出关了。出关之后我们乘上了去华沙的火车。今天下午2点，终于顺利平安的到达了华沙火车站。
+看到战友们来接车我们非常高兴。战友们亲自护送我们到现在入住的酒店。酒店的条件也特别好。我们洗了个热水澡，吃了一顿美美的晚餐。我们一路上只吃了一些饼干和矿泉水，已经有接近3天没有好好吃过一顿饭了，都快饿死了。现在的感觉真是太美好了，非常感恩战友们的帮助。
+我们现在已经在安全的地方，心是的大石头已经落下来。最深切的感受就是，以前没有经历过战争，大家都是在和平年代长大的，只有亲眼目睹了战争的残酷，才能真正珍惜生命的珍贵，大家只有珍惜生命，才能拥抱未来的美好。
+ 当时新中国联邦的救援信息我也发送给了当地华人的微信朋友圈，他们的反馈令我很失望。我能深切感受到中共对他们的洗脑有多严重。在他们的心目中只有党，只有大使馆，其他的信息渠道他们都觉得是不可信的。我真心的奉劝他们一句，在生命面前是没有任何立场的，生命只有一次，好好珍惜。
+ 现在我们两家死里逃生，大家都特别轻松，人生经历了一场特别的劫难，可以拥抱美好的生活非常感恩。现在波兰对乌克兰过来的中国籍难民有15天的免签期，这段时间我们看一看能不能通过他们的一些政策留下来或者到欧盟其他国家，能够真正逃离CCP的魔爪，希望可以。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3038-2.jpg)图片来自网络
+**长岛哥点评：**
+零点战友一行人最牵动我们的是他们当中有3个小孩，其中一个才4个月大。大人还好说，那么小的孩子在那种情况下，连吃的都得不到保障。本来他定的火车是2号的，我们提醒他最好提前一天上火车，最终他终于鼓起勇气提前一天行动。这个确实是需要勇气和决心的。因为从走出家门到火车站的过程中可能会遇到任何风险，但是如果再晚一两天可能就出不来了。所以除了战友们的支持，最重要是零点战友自己的决心和信心，也是对我们的信任。
+有些求助的人，我们虽然也给了建议，但是对方不采纳，因为不信任我们，说宁可我呆在里面也不冒这个风险，但是今天再想出来的人已经出不来了。很庆幸零点战友能做这个决定，全程大家一起配合。
+我们一直在关注，无论是他从家里出发还是上火车。第一趟火车还没登上，又等了第二趟火车。他们在火车站那里就呆了5、6个小时，抱着小孩，拎着行李。我们大家晚上都睡不着，都在担心他们到底有没有登上火车。这个过程也是一波三折。我们以为从基辅上了火车就能去波兰，结果中间不停的在换火车，转去哪里都是未知数。一直到最后战友成功接到，我们悬着的心才放下来。
+零点战友是我们香草山的战友，整个救援团队包括七哥在内都在惦记这个事情。这个事情反映了我们爆料革命新中国联邦不是在打口炮，是真正在尽一切可能救人。另外也说明了我们战友的信心和决心。但凡有一点怀疑，怕一点点风险，就出不来了。想想那些今天还留在基辅的人该有多绝望，我们想救进不去，他们想出来也没有渠道了。
+今天早上还有在基辅的一个老师联系我说：我只是想从我家去火车站，就这点路我都去不了，出了门就被拦回来。当地的武装力量告诉他必须回家，不让去。如果三天前这位老师跟零点战友一样的话，他就出来了。
+现在零点战友已经到了华沙，我们大卫战友在华沙已经建立起了救援基地，后勤保障也能跟上，孩子大人都能被照顾好，大家悬着的心也就放下了。后续根据零点战友的意愿再安排目的地。全程我们都是免费提供的，有车接送，免费食宿。
 
+参考链接：[https://gettr.com/post/py2jq5f0ff](https://gettr.com/post/py2jq5f0ff)
 
-> It would be incredibly shortsighted, reckless, and self-indulgent for the Biden Administration to sanction India – the largest democracy in the world and a critical ally for countering China. [pic.twitter.com/UphK4vDnR9](https://t.co/UphK4vDnR9)
-> — Senator Ted Cruz (@SenTedCruz) [March 3, 2022](https://twitter.com/SenTedCruz/status/1499525813695397893?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-02-184632.jpg)
 
+校对/发稿：serena
 
+更多内容请关注：
 
-前国务卿迈克.蓬佩奥： 因推动美台关系而被蔡英文总统奖励此殊荣，令人感到谦卑。 我们一直与你们站在一起。
+全球喜马拉雅农场联盟委员会盖特：[https://gettr.com/user/GlobalAlliance](https://gettr.com/user/GlobalAlliance)
 
-
-
-> It is humbling to be honored by President Tsai for advancing the U.S.-Taiwanese relationship.
-> We stand with you. Always. [pic.twitter.com/93nRt40TFF](https://t.co/93nRt40TFF)
-> — Mike Pompeo (@mikepompeo) [March 3, 2022](https://twitter.com/mikepompeo/status/1499518899779522564?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克·蓬佩奥： 要求自由不是挑衅性的。 苏珊和我很高兴有机会与 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 外交部长吴钊燮一起进行参观 – 并享用一些被 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 制裁的澳大利亚葡萄酒。
-
-
-
-> It is not provocative to demand freedom. Susan and I are grateful for the opportunity to visit with Taiwan’s foreign minister Joseph Wu – and enjoy some CCP-sanctioned Australian wine. [pic.twitter.com/K73R2Zgzon](https://t.co/K73R2Zgzon)
-> — Mike Pompeo (@mikepompeo) [March 3, 2022](https://twitter.com/mikepompeo/status/1499493974171697156?ref_src=twsrc%5Etfw)
-
-
-
-比尔·戈茨： 当前国务卿蓬佩奥会见台湾总统时，台湾遭遇大规模停电 【附华盛顿时报比尔·戈茨文章：台湾周四遭遇大面积停电，停电中断了美前国务卿蓬佩奥与台湾总统蔡英文的会晤。 来自台湾的新闻报道称，停电影响了包括首都台北在内的七个城市，并到达了南部港口高雄。 停电发生在蓬佩奥在总统府会见蔡英文时。 虽然那里的电力没有受到影响，但计划中的网络广播被取消了。】
-
-
-
-> Taiwan hit by massive power outage as former Secretary of State Pompeo meets Taiwanese president [https://t.co/BCyWZzWRGa](https://t.co/BCyWZzWRGa)
-> — Bill Gertz (@BillGertz) [March 3, 2022](https://twitter.com/BillGertz/status/1499479109092589594?ref_src=twsrc%5Etfw)
-
-
-
-白宫： 今天，美国与盟国及合作伙伴协作，针对其他俄罗斯精英和家庭成员进行打击，尽管普京总统残酷入侵乌克兰，但他们仍继续支持他。 这些个人及其家庭成员将会从美国金融体系被剔除，他们在美国的资产被冻结，他们的财产将被禁止使用。 美国财政部@USTreasury 将在适当的情况下与司法部@TheJusticeDept 分享金融情报和其他证据，以支持刑事起诉和扣押资产。 美国将制裁普京的亲信及其家人，有一个扩展的名单。 其中一位精英是阿利舍尔·布尔哈诺维奇·乌斯马诺夫，他是俄罗斯最富有的人之一，也是普京的亲密盟友。 ………
-
-
-
-> Today, the United States, in coordination with Allies and partners, targeted additional Russian elites and family members who continue supporting President Putin despite his brutal invasion of Ukraine.
-> — The White House (@WhiteHouse) [March 3, 2022](https://twitter.com/WhiteHouse/status/1499463156762034177?ref_src=twsrc%5Etfw)
-
-
+新西兰伊甸农场盖特：[https://gettr.com/user/himalayanz](https://gettr.com/user/himalayanz)
 
  
 

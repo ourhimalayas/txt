@@ -2,52 +2,65 @@
 ---
 
 
-## 英国等37国要求国际刑事法院以“战争罪”起诉俄罗斯
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2102700/)
+## 参议员马可·卢比奥：俄罗斯侵略者正在炮击欧洲最大的核电站
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2102619/)
 
-![Britain's Foreign, Commonwealth and Development Office said the Wednesday referral was the largest in the court's history. Pictured: The International Criminal Court in The Hague, Netherlands, Wednesday, March 31, 2021 (file photo)](https://i.dailymail.co.uk/1s/2022/03/02/21/54875261-10570979-image-a-1_1646257147637.jpg)2021 年 3 月 31 日，星期三，荷兰海牙国际刑事法院（资料照片）
-来源于英国《每日邮报》网站2022年03月02日的报道，英国和其他37个国家已就俄罗斯对乌克兰的毁灭性和非法入侵，将其移交给国际刑事法院(ICC)。英国“外交、联邦和发展办公室”(FCDO)表示，周三的移交是国际刑事法院历史上规模最大的一次。
-
-这些国家包括所有欧盟成员国，以及澳大利亚、英国、加拿大、新西兰、瑞士和几个拉丁美洲国家。
-
-国际刑事法院调查并在必要时审判被控犯有国际社会切的最严重罪行的个人。这些罪行包括种族灭绝罪、战争罪、反人类罪和侵略罪。国际刑事法院检察官卡里姆·汗(Karim Kha)表示，在英国和盟国移交后，他已积极开始调查乌克兰战争。
-
-乌克兰国家紧急服务局(Ukraine’s State Emergency Service)周三表示，已有2,000多名平民死亡，但无法证实这一说法。报道还称，在俄罗斯总统弗拉基米尔·普京(Vladimir Putin)上周下令入侵邻国后，双方都有数千名士兵，尤其是俄罗斯军队中的士兵丧生。
-
-联合国难民署(The United Nations’refugee agency)还认为，约有87.4万人逃离了乌克兰，但预计这一数字很快就会达到100万。乌克兰的几个城市都遭到俄罗斯军队的袭击。尽管另有说法，但导弹袭击还是击中了平民地区，造成数千人死亡，其中包括至少16名儿童。
-
-马里乌波尔副市长谢尔盖·奥尔洛夫(Sergiy Orlov)今天表示，整个地区都被猛烈的炮火夷为平地，医务人员无法进入找回死者。一些组织谈到，他们已经在努力保存证据，这些证据可能会被用于针对俄罗斯在乌克兰军事行动的刑事审判。
-英国外交大臣利兹·特拉斯(Liz Truss)说：“普京的军事机器不加区分地瞄准平民，并撕毁乌克兰各地的城镇。国际刑事法院迫切需要对俄罗斯的野蛮行为进行调查，追究责任人的责任是正确的。英国将与盟国密切合作，以确保正义得到伸张。”
-
-副总理兼司法部长多米尼克·拉布补充说：“现在的关键任务是妥善保存所有战争罪行的证据。”此举允许国际刑事法院的检察官无需司法批准即可直接进行调查，与此同时，乌克兰首都基辅准备迎接围攻，第二大城市哈尔科夫也遭受了进一步打击。
-
-乌克兰外交部第一副部长埃米娜·扎帕罗娃(Emine Dzhaparova)呼吁联合国人权理事会成立一个专家小组来审查俄罗斯对乌克兰的入侵，帮助追究俄罗斯政府的责任。贾帕罗娃指出，安理会就乌克兰局势进行了一场“紧急辩论”，呼吁这个由47个成员国组成的机构中的国家成立调查委员会——这是该理事会审查违规和滥用行为的最有力工具。
-
-周一，国际刑事法院首席检察官卡里姆·汗宣布，他计划“尽快”对在乌克兰发生的战争罪和反人类罪展开调查。汗告诉他的团队要探索如何保存犯罪证据，并表示下一步是寻求法院法官的授权以展开调查。不过，他补充说，如果该法院的一个成员国要求对所谓的移交进行调查，这一进程将会加快。
-
-英国官员表示，即将对寡头、俄罗斯国家安全委员会成员和银行实施更多制裁，他们认为这些举措带来的经济冲击将比普京预期的更为严重。他们表示，他们希望制裁更进一步，包括将禁止使用Swift支付系统适用于所有俄罗斯银行。
-简评：
-俄罗斯入侵乌克兰已经一周，我们终于看到了是英国和其他37个国家向国际刑事法院以“战争罪”起诉俄罗斯，西方政客们正在以政治正确的方式“帮助”乌克兰。世界各国早已忘记当年乌克兰销毁核武器时对乌克兰的安保承诺。
-正如在3月3日乌克兰民众所说的那样：战争过去8天了，为什么是乌克兰在独立作战？我们的士兵没有休息过，百姓担惊受怕，缺衣少食，你们做了什么？增援在哪里？反战联盟在什么地方？
-以西方世界的能力，完全可以避免这场战争，但是那些所谓的“精英”就这么看着战争爆发，我们知道他们不蠢，我们有理由怀疑他们有不可告人的目的。中共病毒疫苗强制接种这个事情是全世界有组织的统一行动，是一次巨大的反人类行动，也许只有这场战争才能够掩盖对这些政客和政府的追责。
-正如郭文贵先生所说，现在的互联网时代让每个人都有自我判断。之前美国在阿富汗的撤军安排，结果让全球大跌眼镜。而这次以美国为首的西方政府是否能做出实质性有效的行动拯救乌克兰，全世界人都在注视着。
-
-新闻链接：[https://www.dailymail.co.uk/news/article-10570979/UK-37-countries-refer-Russia-ICC-invasion-Ukraine.html](https://www.dailymail.co.uk/news/article-10570979/UK-37-countries-refer-Russia-ICC-invasion-Ukraine.html)
-
-翻译/简评：Brianchow
-
-PR：Harvey（叶知秋）
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+参议员马可·卢比奥： [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) 入侵者正在炮击欧洲最大的核电站 现在有报道称，该电站的一部分现在着火了
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> [#Russian](https://twitter.com/hashtag/Russian?src=hash&amp;ref_src=twsrc%5Etfw) invaders are shelling the largest nuke plant in Europe
+> 
+> Reports now that portions of the plant are now on fire[https://t.co/CKHcOIT9tz](https://t.co/CKHcOIT9tz)
+> — Marco Rubio (@marcorubio) [March 4, 2022](https://twitter.com/marcorubio/status/1499539156728434693?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹： 印度是世界上最大的民主国家和对抗 #中共国 的关键盟友。拜登政府制裁印度将是极其短视、鲁莽和自我放纵的。
+
+
+
+> It would be incredibly shortsighted, reckless, and self-indulgent for the Biden Administration to sanction India – the largest democracy in the world and a critical ally for countering China. [pic.twitter.com/UphK4vDnR9](https://t.co/UphK4vDnR9)
+> — Senator Ted Cruz (@SenTedCruz) [March 3, 2022](https://twitter.com/SenTedCruz/status/1499525813695397893?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克.蓬佩奥： 因推动美台关系而被蔡英文总统奖励此殊荣，令人感到谦卑。 我们一直与你们站在一起。
+
+
+
+> It is humbling to be honored by President Tsai for advancing the U.S.-Taiwanese relationship.
+> We stand with you. Always. [pic.twitter.com/93nRt40TFF](https://t.co/93nRt40TFF)
+> — Mike Pompeo (@mikepompeo) [March 3, 2022](https://twitter.com/mikepompeo/status/1499518899779522564?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥： 要求自由不是挑衅性的。 苏珊和我很高兴有机会与 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 外交部长吴钊燮一起进行参观 – 并享用一些被 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 制裁的澳大利亚葡萄酒。
+
+
+
+> It is not provocative to demand freedom. Susan and I are grateful for the opportunity to visit with Taiwan’s foreign minister Joseph Wu – and enjoy some CCP-sanctioned Australian wine. [pic.twitter.com/K73R2Zgzon](https://t.co/K73R2Zgzon)
+> — Mike Pompeo (@mikepompeo) [March 3, 2022](https://twitter.com/mikepompeo/status/1499493974171697156?ref_src=twsrc%5Etfw)
+
+
+
+比尔·戈茨： 当前国务卿蓬佩奥会见台湾总统时，台湾遭遇大规模停电 【附华盛顿时报比尔·戈茨文章：台湾周四遭遇大面积停电，停电中断了美前国务卿蓬佩奥与台湾总统蔡英文的会晤。 来自台湾的新闻报道称，停电影响了包括首都台北在内的七个城市，并到达了南部港口高雄。 停电发生在蓬佩奥在总统府会见蔡英文时。 虽然那里的电力没有受到影响，但计划中的网络广播被取消了。】
+
+
+
+> Taiwan hit by massive power outage as former Secretary of State Pompeo meets Taiwanese president [https://t.co/BCyWZzWRGa](https://t.co/BCyWZzWRGa)
+> — Bill Gertz (@BillGertz) [March 3, 2022](https://twitter.com/BillGertz/status/1499479109092589594?ref_src=twsrc%5Etfw)
+
+
+
+白宫： 今天，美国与盟国及合作伙伴协作，针对其他俄罗斯精英和家庭成员进行打击，尽管普京总统残酷入侵乌克兰，但他们仍继续支持他。 这些个人及其家庭成员将会从美国金融体系被剔除，他们在美国的资产被冻结，他们的财产将被禁止使用。 美国财政部@USTreasury 将在适当的情况下与司法部@TheJusticeDept 分享金融情报和其他证据，以支持刑事起诉和扣押资产。 美国将制裁普京的亲信及其家人，有一个扩展的名单。 其中一位精英是阿利舍尔·布尔哈诺维奇·乌斯马诺夫，他是俄罗斯最富有的人之一，也是普京的亲密盟友。 ………
+
+
+
+> Today, the United States, in coordination with Allies and partners, targeted additional Russian elites and family members who continue supporting President Putin despite his brutal invasion of Ukraine.
+> — The White House (@WhiteHouse) [March 3, 2022](https://twitter.com/WhiteHouse/status/1499463156762034177?ref_src=twsrc%5Etfw)
+
+
 
  
 
