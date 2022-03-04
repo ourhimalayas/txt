@@ -2,26 +2,28 @@
 ---
 
 
-## 随着疫苗需求下降，美国各州库存巨大、浪费严重
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2102764/)
+## 法国取消疫苗护照，德约科维奇参加法网的障碍被清除
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2102769/)
 
 2022-03-03
 
 编译: 真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/03/80BOUCZ6ZZN8NZP4JKU.png)**图片来源：**https://apnews.com
-来自美联社AP  三月三日的新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5PD0AFUXTVZNP@N9OI.png)**图片来源：**https://www.tennismajors.com/
+来自TENNIS MAJORS  三月三日的新闻报道：
 
-随着美国许多地区对 COVID-19 疫苗的需求急剧下降，各州都在千方百计地争取在过期之前使用大量疫苗库存，并且也不得不将它们当废品处理掉， 各州已经浪费了数百万剂。
+世界网坛排名第二的NovakDjokovic应该能够在五月的法网上卫冕。
 
-从一些接种疫苗最少的州，如印第安纳州和北达科他州，到一些接种疫苗最多的州，如新泽西州和佛蒙特州，公共卫生部门正在调整配货，希望找到疫苗供应商以便让疫苗派上用场。
+在法国政府宣布即将取消其疫苗通行证后，诺瓦克·德约科维奇应该不再有障碍重返下个月ATP巡回赛—蒙特卡洛劳力士大师赛，以及接下来去捍卫他的法网冠军头衔。
 
-各州卫生部门告诉美联社，他们已经追踪到数百万剂量疫苗被浪费，包括过期的、多剂量药瓶没被用完或因温度问题或瓶子破碎等其他原因不得不丢弃的药剂。
+由于没有接种过病毒疫苗，德约科维奇能否参加蒙特卡洛，以及 5 月他作为卫冕冠军参加的法网，此前一直受到质疑。
 
-密歇根州近 150 万剂、北卡罗来纳州 145 万剂、伊利诺伊州 100 万剂和华盛顿近 725,000 剂无法使用。
+但周四，政府宣布了将于 3 月 14 日暂停疫苗证，这意味着德约科维奇将可以自由参加在蒙特卡洛（4 月 9 日至 17 日）和法网（5 月 22 日至 6 月 5 日）的比赛。
 
-加利福尼亚州已经接受了 8400 万剂，其中有7100 万剂被使用，浪费了大约 140 万剂， 浪费率约为1.8%。加州公共卫生部表示，要求那里的提供者保留剂量直到过期，然后妥善处理。
+另外，由于英国放宽了新冠病毒规则， 温布尔登网球公开赛也将欢迎所有球员，无论接种疫苗与否，这样德约科维奇将有机会摘取他的第 20 个大满贯赛事头衔。
 
-原文链接：[As vaccine demand falls, states are left with huge stockpile](https://apnews.com/article/coronavirus-pandemic-health-public-health-coronavirus-vaccine-2e8009d9f55401911ab6146b03608693)
+德约科维奇目前无法在美国比赛，美国至今保留了禁止未接种疫苗的人入境的规定，这意味着他将错过本月在印第安-维尔斯和迈阿密举行的“大师1000“赛事。在现阶段，他是否将参加美网也存在疑问。
+
+原文链接：[Djokovic clear to play Monte-Carlo, Roland-Garros as France suspends its Covid-19 pass](https://www.tennismajors.com/atp/djokovic-clear-to-play-monte-carlo-roland-garros-as-france-suspends-its-covid-19-pass-591847.html)
 
 编辑：LILY
 发布：肥鯮

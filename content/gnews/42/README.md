@@ -2,34 +2,48 @@
 ---
 
 
-## 俄乌二次谈判 乌克兰要求俄罗斯停火并建立人道主义走廊
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2101202/)
+## 令人心碎的照片：乌克兰儿童在俄罗斯袭击中丧生
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2101087/)
 
-翻译：冰糖葫芦喵
+据《纽约邮报网》(nypost.com) 作者：本·凯斯伦([Ben Kesslen](https://nypost.com/2022/02/27/tragic-photos-show-ukrainian-kids-killed-in-russian-attacks/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons))，2022年2月27日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-308-e1646328307306.png)在乌克兰东部马里乌波尔，医护人员对一名炮击受伤的女孩进行心肺复苏。
+图片来源：美联社
+周日出现了一些在俄罗斯对乌克兰的战争中遇难的,最年轻受害者的令人心碎的图片。
 
-编辑与校对：冰糖葫芦喵
+在来自乌克兰顿涅茨克地区马里乌波尔市的令人心碎的照片中，有一张救护人员奥列克桑德·科诺瓦洛夫(Oleksandr Konovalov)对一个在俄罗斯袭击平民时受伤后被送到市医院的小女孩进行心肺复苏的镜头，但却徒劳无功。在她旁边，一个浑身是血的成年人痛苦地蹲了下来。
 
-《路透社》乌克兰博罗江卡/利沃夫 3月3日报道，周四，**乌克兰谈判代表与俄罗斯官员举行第二次会谈，要求双方达成停火协议，并建立人道主义走廊撤离被围困的公民。**
+更多照片显示，在马里乌波尔医院内，她被一队成年人包围着，拼命地想要挽救她年轻的生命。
 
-此前，俄乌在白俄罗斯举行的第一次会谈没有取得进展，双方都没有表示期待取得突破。
+据《基辅独立报》报道，卫生部长维克多·利亚什科透露，她不幸成为迄今为止在战争中被杀害的16名儿童之一。
 
-报道称，乌克兰总统顾问米哈伊洛·波多里亚克(Mikhailo Podolyak)表示**，乌克兰将要求立即停火和“建立人道主义走廊，将平民从被摧毁或不断炮击的村庄/城市中疏散出来”。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/乌克兰城市.jpg)周四，俄罗斯军队向乌克兰发起攻击，乌克兰东部楚吉夫镇的一栋建筑被炮弹击中。AGENCE FRANCE-PRESSE — GETTY IMAGES
-据报道，俄罗斯的主要攻击部队在基辅北部的一条高速公路上暂停了几天，**俄罗斯已经改变了策略，升级了对城市的轰炸。拥有150万人口的哈尔科夫市中心大片地区被炸成废墟。**
+另一张照片拍摄了一些幸存者，其中包括一名妇女. 她手里抱着她的孩子和宠物狗，为了躲避街头战斗和城市中发生的冲突，她们挤进了马里乌波尔的一个避难所。
 
-乌克兰东部主要港口马里乌波尔被猛烈轰炸包围，没有水也没有电。官员们表示，他们无法疏散伤员。市议会将这种情况比作第二次世界大战的列宁格勒围城。
+利亚什科称俄罗斯军队以平民为目标,是“恐怖分子”。总统沃洛德米尔·泽伦斯基(Volodymyr Zelensky)称，俄罗斯人应该因犯下国际战争罪而被审判。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-309-e1646328358247.png)奥列克桑德·科诺瓦洛夫(Oleksandr Konovalov)试图抢救这个年轻女孩，但她随后不幸死亡。
+图片来源：美联社(AP)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-310-e1646328403190.png)到目前为止，已有16名儿童在战争中丧生。
+图片来源：美联社(AP)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-311-e1646328445134.png)年轻的女孩被一队成年人包围着，拼命地想挽救她的生命。
+图片来源：美联社(AP)
+周末，乌克兰各地的战斗仍在继续。俄罗斯总统弗拉基米尔·普京(Vladimir Putin)周日下令将该国的核武系统置于高度警戒状态，因此看不到明确的结束迹象。
 
-**乌克兰总统弗拉基米尔·泽伦斯基(Volodymyr Zelenskiy)留在基辅，定期向全国发布最新视频。在他最新的信息中，他表示乌克兰人的队伍在坚守。**
+一些最激烈的战斗发生在哈尔科夫市。当地乌克兰官员周日宣布了胜利。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-313-e1646328487440.png)女孩，俄罗斯炮击的受害者。图片来源：美联社![](https://assets.gnews.org/wp-content/uploads/2022/03/image-314-e1646328528208.png)卫生部长利亚什科（Viktor Lyashko）称俄罗斯军队以平民为目标是“恐怖主义者”。
+图片来源：美联社![](https://assets.gnews.org/wp-content/uploads/2022/03/image-315-e1646328568120.png)一名妇女抱着她的孩子和宠物狗挤进马里乌波尔的一个收容所。
+图片来源：美联社
+原文连接：[https://nypost.com/2022/02/27/tragic-photos-show-ukrainian-kids-killed-in-russian-attacks/?utm\_source=twitter\_sitebuttons&utm\_medium=site%20buttons&utm\_campaign=site%20buttons](https://nypost.com/2022/02/27/tragic-photos-show-ukrainian-kids-killed-in-russian-attacks/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons)
 
-**泽伦斯基说：“除了我们自己的自由，我们没有什么可以失去的，”。**
+翻译：洛杉矶盘古农场 – TrueSky
 
-**联合国表示，在短短7天内，已有100多万难民逃离，人道主义危机正在恶化。**
+校对：洛杉矶盘古农场 – Freeearth
 
-最后报道指出**，国际刑事法院的最高检察官说，一个先遣队已经离开海牙前往乌克兰地区，开始调查可能的战争罪行。**
+编辑：洛杉矶盘古农场 – WenXiong
 
-**新闻来源链接：**
+发布：洛杉矶盘古农场–子萍
 
-[Ukraine demands ceasefire, humanitarian corridors at talks with Russians | Reuters](https://www.reuters.com/markets/europe/top-wrap-10-ukraine-seeks-ceasefire-humanitarian-corridors-talks-with-russia-2022-03-03/)
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U+2](https://discord.gg/2vuvRm7z6U+2)
 
  
 
