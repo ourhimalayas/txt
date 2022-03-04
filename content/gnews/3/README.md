@@ -2,86 +2,40 @@
 ---
 
 
-## 乌克兰议会议员阿列克谢·贡恰连科公开谈论俄罗斯入侵乌克兰
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2102201/)
+## 海鲜市场起源论是试图从实验室泄漏上转移
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2102290/)
 
-Alexy Goncharenko (Ukraine parliament member)
-阿列克谢·冈察连科（乌克兰议会议员）
+作者：纽约磐石农场—在远方
 
-Really, for the first time in human history
-真的，人类历史上第一次
 
-and for the moment for the laws gave up our nuclear weapons arsenal
-而且在那时刻也是在法律上放弃了我们的核武器库
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-5.png)
+盖特2月27日消息，美国福克斯新闻医学撰稿人马克.西格尔博士，在接受采访时称，中共病毒的所谓“海鲜市场起源论”，是试图让人们将注意力，从极为可能的实验室泄露上转移开。
 
-and it was the moment the third biggest in the world
-而且那是世界第三大的核武器库
+西格尔表示，实验室泄漏事件并非不存在，在2006～2013年，仅在美国就有1500起单独的实验室泄漏事件发生。不能提到实验室泄漏就被认为是“阴谋论”。科学界都知道中共在进行对蝙蝠冠状病毒的研究，“蝙蝠女”石正丽也承认，有些研究是在二级生物安全实验室进行的，这意味着那里没有危险品防护服等安全措施，很可能有人接触到病毒而染病。有证据显示，一些人在海鲜市场事件发生之前就感染了中共病毒。
 
-and we receive guarantees from the United States，United Kingdom and the Rus-sian Federation
-当时，我们得到美国、英国和俄罗斯联邦的保证
+西格尔还引用世界顶级病毒专家彼得·波利西的话说，通常冠状病毒不会在一夜之间传遍世界各地。如果病毒来源于自然界，就必然有一个渐进过程。
 
-But now you see what guarantees we have
-但现在你看到了我们没有得到什么保证
+这些都表明，中共病毒起源于武汉实验室的泄漏，是绝对有可能的。
 
-instead of guarantees, we have missiles in our residential areas
-我们没有保证，而发生的是导弹射向了我们的住宅区
+新闻来源：[https://gettr.com/post/pwzz6j1a9c](https://gettr.com/post/pwzz6j1a9c)
 
-That one that you showed in kharkiv, unfortunately, did not explode
-不幸的是，你在哈尔科夫中展示的那个没有爆炸
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-3.jpg)
 
-but we have a missile attack on Kyiv where I am now Pavlograd
-但我们的基辅受到导弹袭击，我现在是在巴甫洛格勒
 
-where this morning people met with a missile
-今天早上人们遭到导弹袭击的地方
 
-which shot in the big residential house
-并且击中了大的居民房屋
+编辑/校对/发稿：滚滚长江都是水
 
-and it looks like it started burning
-看起来它开始燃烧了
+**更多资讯，更多关注**
 
-and it was it looked very much similar
-而且它看起来非常相似
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-as the Twin Towers terrible terroristic attack on September 11
-就像 9 月 11 日的双子塔恐怖袭击那样
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-And now we are under such attack from Russian Federation
-现在我们正受到俄罗斯联邦的攻击之下
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-which is definitely the State terrorist now
-这绝对是国家恐怖分子
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-and we have a big losses of civilians for the moment
-目前我们有大量平民损失
-
-We have 198 civilians killed, including three children
-我们有 198 名平民丧生，其中包括三名儿童
-
-and that’s awful, that’s a real genocide in the middle of Europe in the 21st century
-这太可怕了, 这就是21世纪发生在欧洲中部真正的种族灭绝
-
-**原视频链接**[https://twitter.com/newsmax/status/1497621223915802630?s=24](https://twitter.com/newsmax/status/1497621223915802630?s=24)
-
-Date:02/28/2022
-原视频标题: Ukrainian Parliament member Alexey Goncharenko speaks out about the Russian invasion of Ukrai
-乌克兰议会议员阿列克谢·贡恰连科公开谈论俄罗斯入侵乌克兰
-原视频日期：2022/02/27
-原视频链接https://twitter.com/newsmax/status/1497621223915802630?s=24
-任务编号：KE428（3871）
-视频时间段 : 0:00-1:13
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
