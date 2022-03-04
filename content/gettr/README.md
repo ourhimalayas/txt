@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@rockvision 3/4/2022 3:26 AM (UTC)`
+
+@青藤Vision<br/><br/>今晚哈尔科夫文化学院宿舍遭到射击，据初步估计13名学生被杀，包括4名中国学生和1名印度学生，2名中国人名字已知：Jin Tianhao、Li Zhi……
+![img](https://media.gettr.com/group32/gvision/2022/03/04/03/cf11c586-619a-ca8f-0faf-8b3480497fa7/out.jpg)
+
+---
+
 `@miles 3/4/2022 3:00 AM (UTC)`
 
 Prince and Rachel from NFSC on War Room: New Federal State of China is evacuating people from Ukraine to a safe transit country, offering free flights and free accommodations and food for up to 30 days.<br/><br/>新中国联邦战友小王子和瑞秋作客战斗室：新中国联邦人正在帮助人们撤离乌克兰到安全的中转国，并提供免费的飞机和30天以内的免费食宿。<br/><br/><br/>
@@ -149,13 +158,6 @@ We’ve seen this coming, and we’ve been reactionary. That gave Vladimir Putin
 
 【UKRAINEHELP-002】<br/>由于乌克兰局势日益恶化，NFSC和法治基金与国际救援组织共同合作，近日紧急安排第一批次营救专机，协助华人同胞、美国及其他各国友人免费撤离，目的地为美国（需要美国签证）和其他安全中转国。我们将在波兰的Medyka设立临时接待点，并在安全地区提供30天以内的免费食宿。 请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。<br/><br/>24小时紧急救援客服联系方式如下：<br/><br/>邮箱：ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO<br/><br/>电话(短信或电话）：<br/>+1 720-657-6776 或 <br/>+1 719-224-4232<br/><br/>NFSC ｜法治基金<br/>3/1/2022<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group18/getter/2022/03/03/02/f53de80f-039c-dd84-640b-8af36de62377/6ed5c853504045df22c2ef313651f0bf.jpg)
-
----
-
-`@miles 3/2/2022 11:54 PM (UTC)`
-
-3/2/2022 Miles Guo: Internal voices against Putin are coming out in Russia; The US and the UN are planning further sanctions on Russia; the US is surprised by the huge amount of Russian assets hidden in the US, and the amount of CCP’s assets hidden in the US will be even shocking<br/><br/>3/2/2022 文贵直播：俄罗斯内部起剧变，普京身边开始出现反对声；美国及联合国会对俄罗斯有进一步制裁；美国对俄罗斯人藏在美国的巨额资产倍感惊讶，中共的在美资产更会让美国瞠目<br/>
-![img](https://media.gettr.com/group10/getter/2022/03/02/23/6fc42a19-783d-df77-7f6b-10c7b2682c65/out.jpg)
 
 ---
 
