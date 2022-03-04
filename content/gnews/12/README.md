@@ -2,24 +2,22 @@
 ---
 
 
-## 中日财经爆|台湾凤梨遭中共国禁销一年后出口反而暴增5倍
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2104996/)
+## 中日财经爆|美国两党参议员要求禁止进口俄罗斯石油
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105048/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3.jpg)[图片来源](https://www.google.com/search?q=%E5%8F%B0%E6%B9%BE%E5%87%A4%E6%A2%A8&amp;tbm=isch&amp;ved=2ahUKEwiElfyGgqz2AhX_gGMGHfk7DgsQ2-cCegQIABAA&amp;oq=%E5%8F%B0%E6%B9%BE%E5%87%A4%E6%A2%A8&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgARQAFgAYMMHaABwAHgAgAF0iAF0kgEDMC4xmAEAqgELZ3dzLXdpei1pbWfAAQE&amp;sclient=img&amp;ei=z8ohYsTxB_-BjuMP-fe4WA&amp;rlz=1C1YKST_enUS900US901#imgrc=FEKeaGnqPXfftM&amp;imgdii=3ldDkjPflRY6DM)
-中共国去年无预警宣布禁止台湾凤梨进口，如今已满1周年，台湾农委会积极与各通路合作，外销到其他国家的数量刷新纪录，成长超过5倍，其中外销日本近1.8万公吨更是过去20年的总合。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Ffinance%2F239%2Fw2048h1391%2F20220224%2Fc289-0a124c8f4e8ad373dac449abdde38db3.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.cn%2Fusstock%2Fmggd%2F2022-02-24%2Fdetail-imcwiwss2747127.d.html%3Fvt%3D4&amp;tbnid=kIhBM1Y_xGlC7M&amp;vet=12ahUKEwiI3uqJ_Kv2AhXpR2wGHU9UD4gQMygCegUIARC6AQ..i&amp;docid=YylWr8w_uoFCOM&amp;w=2048&amp;h=1391&amp;itg=1&amp;q=%E4%BF%84%E7%BD%97%E6%96%AF%E7%9F%B3%E6%B2%B9&amp;ved=2ahUKEwiI3uqJ_Kv2AhXpR2wGHU9UD4gQMygCegUIARC6AQ)
+美国两党参议员周四（3月3日）提出一项禁止美国进口俄罗斯石油的议案，他们表示可以通过提高北美和其他地方的石油产量来替代俄罗斯石油。
 
-中国大陆禁止台湾凤梨进口已经满1年，台湾凤梨不但熬过滞销危机，在国人支持下，去年3月到6月主要产季的产地价格甚至创下前两年来的新高，达到每公斤22.1元，外销其他国家的数量更是刷新纪录，成长超过5倍。
+这项名为《禁止俄罗斯能源进口法案》的议案旨在惩罚俄罗斯总统普京入侵乌克兰的行为。该议案由来自共和党及民主党的18名参议员发起。
 
-看看农委会统计的数据，台湾凤梨外销到中国以外的市场，2020年只有3948公吨，但2021年翻倍来到24982公吨，成长5.3倍，预估今年凤梨产量将达39万多公吨。
+众议院议长佩洛希也表示，她支持实施这样的禁令。“我完全支持，”她告诉记者，“禁止从俄罗斯进口石油。”
 
-农委会三箭齐发，外销目标3万公吨，内销目标8000公吨。另外，加工方面也将加强辅导，截切多元产品加工，像是果干、果酱，甚至藉由台湾手摇饮优势，出口到全世界。
-
-凤梨产季开跑，除了借助民间力量，农委会续推辅导措施奖励金和补助，双管齐下，将台湾高品质凤梨行销全球。
+根据美国能源信息署(EIA)的数据，2021年，美国平均每月从俄罗斯进口逾2,040万桶原油和成品油，约占美国液体燃料进口的8%。夏威夷和阿拉斯加都依赖这些进口。
 
 消息来源:
 
-[中國禁銷令週年！ 台灣鳳梨外銷逆勢成長5倍](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E7%A6%81%E9%8A%B7%E4%BB%A4%E9%80%B1%E5%B9%B4-%E5%8F%B0%E7%81%A3%E9%B3%B3%E6%A2%A8%E5%A4%96%E9%8A%B7%E9%80%86%E5%8B%A2%E6%88%90%E9%95%B75%E5%80%8D-072704392.html)
+[美国两党参议员提出议案 要求禁止美国进口俄罗斯石油](https://cn.reuters.com/article/us-senators-russia-oil-import-0304-idCNKCS2L105T?il=0)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

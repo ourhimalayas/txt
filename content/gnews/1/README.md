@@ -2,30 +2,24 @@
 ---
 
 
-## 中日财经爆|印度指控华为逃税
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105073/)
+## 樱花FM|俄乌首轮谈判未果 普京提三诉求三承诺
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2105152/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2Fe40c55a9-8a47-41fb-8075-b96fe935746e.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2F2f5fc6c9-ca2b-496c-9783-b47bf060769d&amp;tbnid=YETnJcdcmjbbCM&amp;vet=12ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ..i&amp;docid=xHuUh4vOZwW9NM&amp;w=2400&amp;h=1350&amp;q=%E5%8D%8E%E4%B8%BA&amp;ved=2ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ)
-路透社3月3日报道，一位印度政府消息人透露，印度对中共国电信设备制造商华为的一项税务调查发现，华为操纵账簿以减少其在印度的应税收入。
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/AEfE5CR3TCVFQtQv5z9J3x83KnCzaAiWKCayB8pdYe0ZzIh5BeNvrpAJr5-L4P0VXhGtzG6yNzdcf2cLdlK9ONftdaLixNHcCyhhBb6kFPHcrKYOedocRp6kZodbBWMX1I5qAY9f)
+俄罗斯与乌克兰28日的谈判未果，但双方表示会持续沟通。与此同时，乌克兰总统泽连斯基与俄罗斯总统普京各自提出新的诉求，其中泽连斯基呼吁各国机场与港口禁止俄罗斯飞机与船只进入。泽伦斯基持续寻求国际社会支援，他2月28日呼吁国际社会在乌克兰设立禁飞区，禁止俄罗斯在全球范围内进入港口。他指控俄罗斯自24日入侵乌克兰以来，朝该国发射了100多枚巡航导弹。泽伦斯基还呼吁全球的机场与海港禁止悬挂俄国旗的飞机与船只进入，他在个人脸书说：“我们必须禁止俄罗斯使用所有港口、所有航道和机场。”他还敦促国际社会考虑禁止俄导弹、飞机和直升机通过他们的领空。
 
-印度财政部并未指明是哪一家公司，仅称在上月对一家大型电信集团位于印度三个城市的办事处进行所得税突击检查时，该集团“未能就纳税申报问题提供任何实质性和适当的理由”。
+与此同时，俄乌双方在白俄罗斯边境的谈判也暂时中断，双方将在未来几天举行第二回合的谈判。俄方代表团团长梅丁斯基 表示：“我们同意继续谈判。”两国代表团将返回各自的首都，在第二轮会谈前与该国政府进一步磋商，谈判持续约6个小时。
 
-印度当地媒体2月16日援引官方消息报导，印度税务部门对中共国电信设备制造商华为在印度的多处办公场所进行了搜查，此为逃漏税调查的一部分，近期对中共国几家智能手机企业也进行了相关调查。
+普京28日下午再次与马克龙通电话，通话结束后法国政府表示，普京愿意做出三点承诺，包含“停止袭击乌克兰平民、保护民用基础设施与为想离开基辅的人民提供安全通道”。称普京提出了他对乌克兰的诉求，并强调第一 ，莫斯科要求乌克兰保持“中立地位”。第二，持续推动乌克兰的“非军事化”和“去纳粹化”。第三，承认俄罗斯对克里米亚的控制权，该半岛于2014年被俄罗斯非法占有。
 
-新德里电视台（NDTV）援引印度报业托拉斯（Press Trust of India）报导，官员们查看了财务文件、账簿和公司记录、华为的印度业务和海外交易。
+同日，乌克兰总统泽伦斯基在其脸书发布了一张他签署让乌克兰加入欧盟的照片。此前，欧盟委员会主席冯德莱恩在接受媒体访问时表示，欧盟可能会在3月份的非正式峰会上讨论乌克兰加入的可能性。她说，“乌克兰是欧盟的一员，我们希望他们加入。”乌克兰政府对此表示，该呼吁是为了“通过新的特别程序使乌克兰立即加入欧盟”。
 
-消息来源:
+文字版原文：[俄乌首轮谈判未果 普京提三诉求三承诺](https://gnews.org/zh-hans/2089216/)
 
-[印度指控华为逃税–印政府消息人士](https://cn.reuters.com/article/india-huawei-sources-0303-thur-idCNKCS2L013W?il=0)
-
-[中日财经爆|华为因逃漏税被印度税务机关搜查](https://gnews.org/zh-hans/2017942/)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
-
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

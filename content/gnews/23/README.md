@@ -2,24 +2,30 @@
 ---
 
 
-## 樱花FM|纽约州卫生当局：辉瑞疫苗对5-11岁感染预防效果只有12%
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2104903/)
+## 中日财经爆|日本政府决定汽油补贴每升最高２５日元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2104981/)
 
-音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/7M2jDSlGzxrhMP-gQ3qcMpm093sKX6xS_2MogqQGWg0SJ90RdRG0dspLa_GgIZNCUPYAJxNB21P5hpro_7iLl_Go-2QMv3nyX1IIJXQPqUSYTOO70oiioFCa06Rmu0TKby-jcy4D)
-据纽约时事消息，关于美国大药厂辉瑞公司的新冠病毒疫苗，在新冠变异株传播期间，5–11岁的感染预防效果明显逊于12–17岁奥密克戎（Omicron）毒株。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-1.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Ftc.tabirai.net%2Fsightseeing%2Farticle%2Fimg%2F0001681%2Fkiji1Img.jpg&amp;imgrefurl=https%3A%2F%2Ftc.tabirai.net%2Fsightseeing%2Farticle%2Fjapan-gas-guide%2F&amp;tbnid=-7YFD9KTXwRyLM&amp;vet=12ahUKEwi838W8gKz2AhUp6XMBHXTqBesQMygAegUIARCmAQ..i&amp;docid=7VDgQkiVsyv3rM&amp;w=640&amp;h=427&amp;q=%E6%97%A5%E6%9C%AC%E6%B1%BD%E6%B2%B9&amp;ved=2ahUKEwi838W8gKz2AhUp6XMBHXTqBesQMygAegUIARCmAQ#imgrc=-7YFD9KTXwRyLM&amp;imgdii=3vhBk6V5STByIM)
+日本政府在4日上午的部长级会议上，决定了一项新的应对高油价的措施，其核心是大幅扩大补贴以抑制汽油价格，将从2021年预算的储备金中拨出3600亿日元。
 
-2月28日，纽约州卫生当局进行的一项调查显示。 5–11岁的疫苗中有效成分的量是12岁以上疫苗有效成分量的三分之一，因此接种人数可能会有影响。
+由于俄罗斯入侵乌克兰，原油价格进一步上涨，将努力减轻家庭和企业的负担。
 
-该研究将纽约区域接种2次疫苗， 5-11 岁和 12-17 岁与未接种疫苗的年龄相应者进行了比较， 去年12月中旬，12–17岁的感染预防效果为66%，但今年1月下旬降至51%。 另一方面，5 –11 岁的人在同一时期从 68% 大幅下降至 12%。
+汽油补贴将向石油批发公司支付的最高金额从目前的每升5日元提高到最高25日元。假设普通汽油的全国平均价格将被压低至每升172日元左右，也适用于10日起的煤油和轻油。
 
-该调查没有公布接种疫苗与未接种疫苗者的数据分析，不知原因何在？
+此外，对使用液化石油气的出租车运营商的支持将提高到与汽油补贴相同的水平。还将加强对渔业和家庭农民的补贴。
 
-文字版原文：[纽约州卫生当局：辉瑞疫苗对5-11岁感染预防效果只有12%](https://gnews.org/zh-hans/2086466/)
+对于因乌克兰局势导致经济恶化和原油价格上涨而导致利润下降的中小企业，将主要通过向政府附属金融机构借款支持管理来降低利率。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+人们越来越担心俄罗斯的能源供应将因美国和欧洲对严厉经济制裁的报复而中断。美国原油期货价格飙升至每桶116美元的水平，为约13年半以来的最高水平。
+
+消息来源:
+
+[ガソリン補助金、最大２５円に引き上げ…政府決定](https://www.yomiuri.co.jp/economy/20220304-OYT1T50228/)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

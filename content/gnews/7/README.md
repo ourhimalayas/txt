@@ -2,44 +2,30 @@
 ---
 
 
-## 樱花FM|樱花深度报道:精英俘虏（上）
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2105045/)
+## 中日财经爆|印度指控华为逃税
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105073/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/nwPrhwyMj3tGc530kdlGLKf1LsxqfuUNyNElKODcC9NqGK6o0r_Fawhdnwk9B__oLJyXMxCE67tVEe0EGDlhQpXR6ydJezZIz0eikPQ2BxJ1JDhrsvNJIbrCwAgRRInDKKi804T6)
-【摘要】
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2Fe40c55a9-8a47-41fb-8075-b96fe935746e.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2F2f5fc6c9-ca2b-496c-9783-b47bf060769d&amp;tbnid=YETnJcdcmjbbCM&amp;vet=12ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ..i&amp;docid=xHuUh4vOZwW9NM&amp;w=2400&amp;h=1350&amp;q=%E5%8D%8E%E4%B8%BA&amp;ved=2ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ)
+路透社3月3日报道，一位印度政府消息人透露，印度对中共国电信设备制造商华为的一项税务调查发现，华为操纵账簿以减少其在印度的应税收入。
 
-﹡[精英俘虏]是[中共]成功的重要工具。这个想法很简单：通过用金钱、去中国访问和好处来诱惑另一个国家的精英，你可以让他们看到他们的利益和中共的利益是相互交织的，甚至是相同的。
+印度财政部并未指明是哪一家公司，仅称在上月对一家大型电信集团位于印度三个城市的办事处进行所得税突击检查时，该集团“未能就纳税申报问题提供任何实质性和适当的理由”。
 
-﹡我们讨论的[每个]个人都会否认他们在帮助中国进入美国资本市场、美国军事和监视技术或美国政策制定方面的作用。每个人都会说，他们只是在追求中国市场为他们提供的商机，任何商品资本家都应该这样做。他们可能会争辩说他们经营的公司是真正的国际化…
+印度当地媒体2月16日援引官方消息报导，印度税务部门对中共国电信设备制造商华为在印度的多处办公场所进行了搜查，此为逃漏税调查的一部分，近期对中共国几家智能手机企业也进行了相关调查。
 
-﹡雷·达里奥（Ray Dalio），他在 2017 年的著作《原则》（《Principles》）中写道，他的“个人英雄”是王岐山。 “每次我和王说话，”达利奥都昏昏欲睡，“我感觉自己离破解宇宙法则的统一密码又近了一步。”王是中共第二大权势人物，被称为习的执行者。《经济学人》称他为“中国最可怕的人”。但达利奥却不这么认为。读者在那本书的下一页了解到，达利奥正试图在中国建立一个新的对冲基金。
+新德里电视台（NDTV）援引印度报业托拉斯（Press Trust of India）报导，官员们查看了财务文件、账簿和公司记录、华为的印度业务和海外交易。
 
-﹡虽然他们也不像脸书（Facebook） 的马克·扎克伯格（Mark Zuckerberg）那样对中共谄媚。
+消息来源:
 
-﹡苹果（Apple）销售的几乎所有产品都是在中国制造的，iPhone 在中国的手机市场占有率超过 23%。苹果一再被指控从中国维吾尔人的强迫劳动中受益，该公司否认了这一点。
+[印度指控华为逃税–印政府消息人士](https://cn.reuters.com/article/india-huawei-sources-0303-thur-idCNKCS2L013W?il=0)
 
-﹡正如黑幕报料人和小说家厄普顿·辛克莱（Upton Sinclair）所写的那样，“当一个人的薪水取决于他不能理解的某事时，很难让他理解该事的真相了。”
+[中日财经爆|华为因逃漏税被印度税务机关搜查](https://gnews.org/zh-hans/2017942/)
 
-在研究美国人如何通过帮助中国共产党实现其取代美国成为“世界第一强国”的直言不讳的目标而致富时，我遇到了“精英俘虏”（elite capture）这个词——他们用来形容美国对中国有影响力的人。
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
 
-“精英俘虏”可以指不同的东西，但对于中国共产党、中国的情报机构或那些参与准私营企业的人来说，这是他们成功的关键工具。这个想法很简单：通过用金钱、访问权和好处来诱惑另一个国家的精英，你可以让他们看到他们的利益和中国的利益是相互交织的，甚至是相同的。
 
-中共对此并不狡猾，他们几乎没有试图隐藏它。他们在世界各地实践它，尤其是在非洲，以追求他们的“一带一路”倡议。但事实证明，西方民主国家的精英，尤其是在非政府精英中，就像温水煮青蛙一样，以一种温和的态度接受他。
-
-我的最新著作《赤手空拳：美国精英如何帮助中国获胜》（”[*Red Handed: How American Elites are Helping China Win*](https://www.amazon.com/Red-Handed-American-Elites-Helping-China/dp/0063061147?tag=governmacco01-20)*,*“）围绕这一事实，探讨了学术界、金融界、体育和娱乐界以及科技界的精英如何为中国令人遗憾的人权记录、工业和军事间谍活动，以及越来越激进的行为辩护的。
-
-这与普通外交乃至“客户永远是对的”这一历史悠久的商业口号不同的是，那些屈服于诱惑的人掌握了足够的权力。这本书调查了美国一些最有权势的人的公开活动和言论。来自硅谷的世界，我们探索 Facebook 的马克·扎克伯格（Mark Zuckerberg）、苹果的蒂姆·库克（Tim Cook）和微软的比尔·盖茨（Bill Gates）。从华尔街的世界来看，我们看看世界上最大的对冲基金投资公司桥水（Bridgewater）的雷·达里奥（Ray Dalio）和黑石的拉里·芬克（Larry Fink）。我们从学术界探讨了哈佛和耶鲁大学的行动。我们调查了布什家族（the Bush family）、加拿大特鲁多家族（the Trudeau family）、佩洛西家族（the Pelosi family），当然还有拜登家族（the Biden family）的关系历史。
-
-然而，每天的新闻都充满了更多例子。中国吸收所有这些人和机构——以及除此之外的其他机构——的方式惊人地相似、直截了当，而且不难拼凑起来。在30年的调查报道中，我习惯于不得不挖掘无休止的空壳公司、中介机构、银行记录和税务文件来揭示这些联系。然而，一旦我们决定通过中国俘虏美国精英的镜头来审视腐败机制，我们所审查的人员和机构与中国政府之间的联系就在页面上千奇百怪。这就是我说这是我做过的最可怕的调查的原因之一。
-
-（未完待续）
-
-文字版原文：[樱花深度报道┃精英俘虏（上）](https://gnews.org/zh-hans/2086559/)
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

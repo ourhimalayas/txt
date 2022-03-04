@@ -2,22 +2,19 @@
 ---
 
 
-## 樱花FM|中日财经爆：日经指数3月1日收于26,844 点 连续3个交易日上涨
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2104998/)
+## 俄乌战争｜蓬佩奥：中共若执意援助 下个制裁恐是中共银行及金融体系
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2105057/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/NRdRUt88Y3rMcsnVbmlq3EWjWgJCPbM_vulRkDMuT7gxlKKykMcvLv4aUyr-2s0I4TR9-7qD9mDu9YihB-lesdCfdZ3gXbyiBWniZzABIVz6V8j-IwRO1hBIgIGRm74K7EA8OWBw)
-东京证券交易所3月1日，日经平均指数（225只成分股）收盘价较前一交易日上涨317.90点，收盘报26,844.72点，连续3个交易日上涨。
+**撰文/ 港台前线｜发布日期/ 04/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-11.png)更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
+2月，中共习近平与俄罗斯普丁发表联合声明，反对北约（NATO）东扩，并宣称中俄将建立真正“民主”的全球新秩序。
 
-俄罗斯和乌克兰之间继续进行停火谈判的前景支持了投资者情绪。半导体相关股因前日美股高科技股上涨而上涨，买盘在各行各业蔓延。主要证券公司认为，“俄罗斯的袭击仍在继续，股价趋于不稳定”。
+美国前国务卿蓬佩奥（Mike Pompeo）于4日下午记者会特别警示中共，在此次俄罗斯侵略乌克兰，中共若执意经济援助俄国，那“下一个受制裁的恐怕是中共的银行及金融体系”。
 
-东京证券交易所指数（TOPIX）显示东京证券交易所第一部整个价格走势，收盘报 1897.17点，上涨 10.24 点。
+蓬佩奥提到，这次全球限制俄罗斯的经济，主要是针对其对外贸易能力、金流、物流等，尤其是俄罗斯的金融交易能力“求援的对象似乎只剩中共了”。
 
-文字版原文：[中日财经爆|日经指数3月1日收于26,844 点 连续3个交易日上涨](https://gnews.org/zh-hans/2086553/)
+來源｜[YAHOO](https://tw.stock.yahoo.com/news/%E8%93%AC%E4%BD%A9%E5%A5%A7%EF%BC%9A%E7%BE%8E%E8%8B%A5%E5%9F%B7%E6%84%8F%E6%94%AF%E6%8F%B4%E4%BF%84-%E3%80%8C%E4%B8%80%E4%B8%8B%E5%80%8B%E5%88%B6%E8%A3%81%E7%9A%84%E6%81%90%E6%98%AF%E4%B8%AD%E5%9C%8B%E7%9A%84%E9%8A%80%E8%A1%8C%E5%8F%8A%E9%87%91%E8%9E%8D%E9%AB%94%E7%B3%BB%E3%80%8D-070809557.html)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
