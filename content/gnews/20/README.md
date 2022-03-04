@@ -2,31 +2,23 @@
 ---
 
 
-## 有声|美国和国际能源署释放6000万桶石油库存
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2106891/)
+## 【G时新闻】四方领导人承诺 绝不允印太区上演乌克兰情况
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2106948/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据美国媒体3月1日消息，俄罗斯入侵乌克兰后，世界各国对俄罗斯经济实施制裁，导致国际原油价格飙升至美桶100美元以上。美国和其他国际能源机构为保持原油市场的价格，决定从紧急库存中释放6000万桶石油。
+加拿大温哥华扬帆农场G时新闻 主播: 悠然 视频制作: 文所未闻
 
-国际能源机构希望向全世界传达一个讯息：俄罗斯入侵乌克兰不会导致石油供应短缺，白宫发言人也表示会采取一切行动来限制普京的入侵对全球能源供应带来的干扰。
+以美国为首的“四方安全对话”领导人一致同意，绝对不能允许印太地区上演乌克兰的情况。
 
-美国和国际能源署本希望释放库存石油后油价会下跌，降低世界最大石油生产国俄罗斯的收入，并给美欧等国锁定俄罗斯能源行业的机会。但6000万桶石油后并没有达到预期的目的，市场目前处在恐慌之中，石油价格仍持续走高。
+路透社报道，美国、印度、澳大利亚、日本领导人周四（3月3日）举行视讯会议，讨论乌克兰局势和为乌克兰提供人道主义援助，并同意建立一个新的人道援助与救灾机制，以因应印太地区未来的人道主义挑战。
 
-文字版原文：[美国和国际能源署释放6000万桶石油库存](https://gnews.org/zh-hans/2100634/)
+根据四方安全对话机制发表的联合声明，四国领导人在会晤中“重申他们对自由和开放的印太地区的承诺，所有国家的主权和领土完整都受到尊重，各国不受军事、经济和政治胁迫。”
 
-音频处理：Fei797
-发稿：Fei797
+原文链接：[https://gnews.org/zh-hans/2102267/](https://gnews.org/zh-hans/2102267/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+视频链接：[https://gettr.com/post/py33bs1a46](https://gettr.com/post/py33bs1a46)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑/上传：野草
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

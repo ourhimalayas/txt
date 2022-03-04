@@ -2,28 +2,40 @@
 ---
 
 
-## 侵略乌克兰的俄罗斯军队故意打击民用基础设施
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2107048/)
+## 新西兰财经G乐部2022年3月4日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2107074/)
 
-#### 撰稿：彩虹       
+采集整理：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-386.png)
+**1、美日印澳声明称不应允许乌克兰的情形在印太地区发生**
+![img](https://media.gettr.com/group15/origin/2022/03/04/02/0b5f6ab5-b035-f95b-3031-2b69f86bc7d8/df50aabded68b5c7e6027ab3c3e0e82f_500x0.png)
+路透东京/华盛顿3月3日 – 日本首相岸田文雄说，四方安全对话国家–美国、印度、澳洲和日本的领导人周四均认为，不应允许乌克兰发生的事情在印度-太平洋地区发生。在对台湾的关注增加之际，四方安全对话举行了一次视频会议。在俄罗斯入侵乌克兰后，台湾加强了警戒级别，警惕北京利用西方注意力分散之机对其采取行动。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-385.png)图片来源：MSNBC
-3月3日，《国会山报》报道，周四，美国国防部一位高级官员说，自克里姆林宫开始入侵乌克兰以来，俄罗斯已经在乌克兰发射了480多枚导弹，其部队表现出“故意打击民用基础设施的意愿”。
+链接：[https://cn.reuters.com/article/japan-quad-ukraine-0304-idCNKCS2L102I?il=0](https://cn.reuters.com/article/japan-quad-ukraine-0304-idCNKCS2L102I?il=0)
 
-报道说，俄军将包括基辅（Kyiv）和哈尔科夫（Kharkiv）在内城市的“媒体塔和媒体设施”、政府基础设施和居民区作为目标，这两个城市分别是乌克兰的首都和第二大人口密集城市。
+**2、受制裁影响，俄罗斯企业争相开设中资银行账户**
+![img](https://media.gettr.com/group45/origin/2022/03/04/02/0b51b2ad-2136-fab1-15b0-6fec16794138/6abedc550a12336263a9e4fd542ee8c7_500x0.png)
+路透上海3月3日 – 一位知情人士说，中国一家国有银行的莫斯科分行看到来自俄罗斯企业希望开立新账户的询问数量激增，因在俄罗斯入侵乌克兰后俄企业正艰难应对国际制裁。“过去几天，有200-300家公司与我们接洽，希望开设新账户，”这位在一家中国国有银行莫斯科分行工作、并直接了解该行业务的人士对路透表示。
 
-这位官员说：“随着俄罗斯军队在地理上越来越接近其中的一些人口中心，轰炸次数则会增加。很明显，他们试图削弱这些人口居住中心的治理结构。”
+链接：[https://cn.reuters.com/article/exclusive-russian-companies-chinese-bank-idCNKCS2L014C?il=0](https://cn.reuters.com/article/exclusive-russian-companies-chinese-bank-idCNKCS2L014C?il=0)
 
-文章指，这些被发射的导弹有“各种规格型号”，包括短程、中称、地对空导弹和巡航导弹，其中230多枚导弹发射自放置在乌克兰境内的移动系统。另外，有160多枚导弹发射自俄罗斯境内，70多枚导弹发射自白俄罗斯，还有不到10枚被检测到来自于黑海的舰只。
+**3、涉诉13亿却被司法标记冻结83亿资产！东方集团公告喊冤，欲剥离地产寻求转型**
+![img](https://media.gettr.com/group32/origin/2022/03/04/02/04354db2-6160-b0eb-b444-58dbf24b3f70/a72f36b038be1adb35a239e5adcf4b13_500x0.png)
+因为一桩价值30亿元的土地转让交易“烂尾”，[东方集团](https://finance.sina.com.cn/realstock/company/sh600811/nc.shtml)股份有限公司（下称“东方集团”，600811.SH）被起诉索赔约13亿元，导致其持有的巨额股权资产被法院冻结。3月3日，东方集团发布公告称，公司及控股股东东方集团有限公司（下称“东方有限”）持有的民生银行、锦州港（600190.SH）等股权资产被司法标记、冻结合计市值已达83亿元，远远超过案涉金额，将对公司经营产生不利影响，公司将依法向相关法院提出异议。
 
-关于地面战斗，俄罗斯已经将其入侵前在边境地区集结的90%战斗力转移到了乌克兰。该国防部官员称，主要港口城市马里乌波尔（Mariupol）也面临着越来越多的导弹袭击，但它仍在乌克兰的控制之下。并且，美国已经观察到俄军对基辅、哈尔科夫和切尔诺夫等城市的“越来越多的轰炸”，但认为从北部驶向基辅的40英里的大型俄罗斯军事车队目前为“停滞不前”。
+财经G评：东方集团控制人张宏伟，郭先生曾说过张宏伟靠行贿国开行陈元获得大量贷款、张宏伟给陈元送一副名画叫什么战友们还记得吗？ 东方集团、东方海外都是靠洗钱！
 
-但这位官员警告说，俄军虽然受阻，但并没有“耗尽能量,我们仍然认为，他们（俄军）在乌克兰境内和境外拥有其全部战斗力的绝大部分。”
+链接：[https://finance.sina.com.cn/roll/2022-03-04/doc-imcwiwss4033415.shtml](https://finance.sina.com.cn/roll/2022-03-04/doc-imcwiwss4033415.shtml)
 
-**新闻来源**
+**4、房企偿债高峰：连续两月债券到期规模均超千亿**
+![img](https://media.gettr.com/group14/origin/2022/03/04/03/18828428-0112-c94f-0f43-1fe959284421/a13f4f9c066aa41f1cdefedce23aab8c_500x0.png)
+根据贝壳研究院统计，2022年1-2月房企境内、境外债券融资累计约856亿元，同比下降59%，降幅较今年首月收窄11个百分点。同时，2月，房企境内外债券融资到期债务规模约395亿元，环比减少62.4%，到期债务净额20亿元，偿债压力较1月明显改善。不过，房企在3月份、4月份连续两个月到期债务规模均超过千亿，对房企的资金流动性构成一定的威胁，将增大对房企融资能力的考验。
 
-[Russia increases missile strikes on civilian targets](https://thehill.com/policy/defense/596768-russia-increases-missile-strikes-on-civilian-targets?rl=1)
+链接： [https://finance.sina.com.cn/stock/zqgd/2022-03-04/doc-imcwipih6512664.shtml](https://finance.sina.com.cn/stock/zqgd/2022-03-04/doc-imcwipih6512664.shtml)
+
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
+
+上传排版：文勇
 
  
 
