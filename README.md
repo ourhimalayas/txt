@@ -15,62 +15,62 @@
 
 ---
 
-### [西方制裁导致的运输延误，正在破坏向俄罗斯提供的有人权豁免的食品和医药](/content/gnews/1/README.md)
+### [中共砖家松口称可能跟中共病毒共存](/content/gnews/1/README.md)
+ ` GTV News Talk`
+
+### [和郭妈妈想说的几句话——纪念郭妈妈冥诞三周年](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [受过培训的世界领导在疫情中的统一执行力—马龙采访](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [俄罗斯滥炸乌克兰目标 基辅恐遭更猛烈攻击](/content/gnews/4/README.md)
+ ` GTV News Talk`
+
+### [蓬佩奥: 毫无疑问,普京不会止步于乌克兰](/content/gnews/5/README.md)
+ ` 美国政要直译推`
+
+### [西方制裁导致的运输延误，正在破坏向俄罗斯提供的有人权豁免的食品和医药](/content/gnews/6/README.md)
  ` xiaobaige`
 
-### [俄罗斯和中共的疯狂造就新世界格局，新中国联邦秉持正道成赢家](/content/gnews/2/README.md)
+### [俄罗斯和中共的疯狂造就新世界格局，新中国联邦秉持正道成赢家](/content/gnews/7/README.md)
  ` YALUN 亚伦`
 
-### [中共官方文件被曝：疫苗已致大量白血病](/content/gnews/3/README.md)
+### [中共官方文件被曝：疫苗已致大量白血病](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习近平要求普京在冬奥会后入侵乌克兰](/content/gnews/4/README.md)
+### [习近平要求普京在冬奥会后入侵乌克兰](/content/gnews/9/README.md)
  ` 扬帆枫叶快讯`
 
-### [加密货币交易在俄罗斯大行王道](/content/gnews/5/README.md)
+### [加密货币交易在俄罗斯大行王道](/content/gnews/10/README.md)
  ` 扬帆枫叶快讯`
 
-### [俄乌战争将导致最严重的通货膨胀](/content/gnews/6/README.md)
+### [俄乌战争将导致最严重的通货膨胀](/content/gnews/11/README.md)
  ` 扬帆枫叶快讯`
 
-### [俄罗斯阻止外国投资撤离](/content/gnews/7/README.md)
+### [俄罗斯阻止外国投资撤离](/content/gnews/12/README.md)
  ` 扬帆枫叶快讯`
 
-### [俄罗斯封锁脸书](/content/gnews/8/README.md)
+### [俄罗斯封锁脸书](/content/gnews/13/README.md)
  ` Shuizhuyu`
 
-### [特鲁多未能保护受中共迫害的加拿大人](/content/gnews/9/README.md)
+### [特鲁多未能保护受中共迫害的加拿大人](/content/gnews/14/README.md)
  ` 扬帆枫叶快讯`
 
-### [3/4/2022 文贵盖特：感谢上天赐予文贵跟家人团聚的长长的梦夜！文贵的《锁链梦》是给母亲的礼物](/content/gnews/10/README.md)
+### [3/4/2022 文贵盖特：感谢上天赐予文贵跟家人团聚的长长的梦夜！文贵的《锁链梦》是给母亲的礼物](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [加拿大安省终止疫苗护照](/content/gnews/11/README.md)
- ` 扬帆枫叶快讯`
-
-### [3/4/2022 文贵盖特：中共洗脑中国人支持俄罗斯的非正义战争！中共宣布撤出了在乌克兰的所有华人20小时后，有4个中国学生死于俄军炮火，又有20人死亡](/content/gnews/12/README.md)
+### [3/4/2022 文贵盖特：中共洗脑中国人支持俄罗斯的非正义战争！中共宣布撤出了在乌克兰的所有华人20小时后，有4个中国学生死于俄军炮火，又有20人死亡](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [五月花简报（04/03/2022）](/content/gnews/13/README.md)
+### [五月花简报（04/03/2022）](/content/gnews/17/README.md)
  ` mayflowertranslate`
 
-### [瑞典首相安德松的首次全国电视讲话](/content/gnews/14/README.md)
+### [瑞典首相安德松的首次全国电视讲话](/content/gnews/18/README.md)
  ` XINYUAN`
 
-### [DC大中华时事：台电“每逢大事就出事应查内鬼”](/content/gnews/15/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [加拿大央行在高通胀率中逐步升息](/content/gnews/16/README.md)
- ` 扬帆枫叶快讯`
-
-### [3/4/2022 文贵盖特：感谢战友们在文贵母亲冥诞三周年发信息过来！战友们在前线救人是给我母亲很好的回报](/content/gnews/17/README.md)
+### [3/4/2022 文贵盖特：感谢战友们在文贵母亲冥诞三周年发信息过来！战友们在前线救人是给我母亲很好的回报](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
-
-### [北约，“乌克兰未来几天形势将更加恶化，死亡人数会更多”](/content/gnews/18/README.md)
- ` xiaobaige`
-
-### [莱恩科尔医生：“疫苗”对人体器官灾难性的损害](/content/gnews/19/README.md)
- ` mayflowertranslate`
 
 ### [NFSC新闻、G|TV新闻访谈简报|2022年3月4日早](/content/gnews/20/README.md)
  ` 纽约香草山MOS01`

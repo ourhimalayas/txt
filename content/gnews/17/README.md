@@ -2,10 +2,16 @@
 ---
 
 
-## 3/4/2022 文贵盖特：感谢战友们在文贵母亲冥诞三周年发信息过来！战友们在前线救人是给我母亲很好的回报
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2107478/)
+## 五月花简报（04/03/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2107571/)
 
-秘密翻译组-北美组
+编辑：波士顿五月花—-冲天一怒
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/43913BFD-BC11-47AB-A8A8-5804B962EDE1.jpeg)
+
+*发布：思澈*
+
+
 
  
 
