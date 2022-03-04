@@ -2,58 +2,108 @@
 ---
 
 
-## 珍惜生命 逃离乌克兰
-` PureLotusHeart(莲心不染 or Dawn）` [轉載自GNews](https://gnews.org/zh-hans/2104284/)
+## 老药新用：美蓝不但抗冠状病毒感染，或有疫苗解毒潜力
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2104329/)
 
-加拿大温哥华扬帆农场 莲心不染
+作者：波士顿五月花   北美教练陪练
+![](https://assets.gnews.org/wp-content/uploads/2022/03/831CCCDC-613A-40C1-AB1A-08ABCC49646A.jpg)
+*导语:***
+***最早美蓝是一种抗疟疾老药，现在主要用于高铁血红蛋白血症。美蓝的抗恶性疟原虫作用强大，很少产生抗药性。美蓝与青蒿素抗疟疾有协同作用。美蓝还是一种有效的广谱抗病毒药物，包括冠状病毒。过氧桥键是青蒿素赋予了诸多奇特的原因。但过氧桥键还需要与血红素中的亚铁离子结合，才能显现出医学作用。如果血红素中的亚铁离子少势必会降低青蒿素的作用。美蓝可使高铁血红素变为亚铁血红素，这可能是青蒿素与美蓝有协同作用的理论基础。美蓝有潜力增效青蒿素解毒疫苗。*
 
-凌点夜话是新中国联邦的香草山农场的战友，住在乌克兰的基辅，一家四口，有个4个月大的婴儿， 加上另外一家，共7人。2022年3月1日，在新中国联邦创始人郭文贵先生和战友的大力援助下，承蒙上天的庇佑，成功地逃离战火中的乌克兰首都基辅，安全到达波兰首都华沙。
 
-他们选择了相信新中国联邦，信任郭先生和救援战友，接受建议和援助，及时逃离。他离开基辅后的第二天，由于战事恶化，其他人已经无法离开住所到达基辅火车站了。由于凌点战友有个婴儿，特别牵动救援战友的心，包括郭先生在内，整个乌克兰救援团队全程跟踪及时支持，救援客服小飞象战友每天只睡2- 3个小时，4天只睡了10个小时。郭先生和战友的大爱无边!  战友信者得救!
 
-在经历了生死大难之后，凌点夜话给其他还滞留在战地的同胞的肺腑寄语：**在生命面前，是没有任何立场的，生命只有一次，好好的珍惜！**
+美蓝，也称为亚甲基蓝，英文名称Methylene blue， 在1876年首次合成时，是用于纺织工业的苯胺基染料（1）。Robert Koch和Paul Ehrlich 将其用于微生物染色，在显微镜下观察发现了它抗疟原虫的作用。这导致美蓝在19世纪末和20世纪初曾经被广泛用于治疗所有类型的疟疾 （2, 3）。然而，美蓝很快就被奎宁类药物替代。但事实上，美蓝在人类医药历史上贡献很大：第一个人工合成的化合物用于治疗疟疾。第一个人工合成的化合物用于治疗细菌感染性疾病，在磺胺类药物和青霉素以前，美蓝是治疗细菌感染性疾病的主要药物。
 
-**以下是凌点夜话战友的自述故事。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/twitter.jpg)图片来源：Twitter
-**前往基辅火车站 —惊心动魄**
+美蓝的化学结构简单、易于氧化还原反应。在许多国家药物管理部门，美蓝是一种注册的老药，价钱极为便宜。在印度，一只注射液花费仅仅几个卢比，在中共国，一只注射液花费仅仅几块人民币，在美国一只注射液花费仅仅几美元。目前主要适应症是高铁血红蛋白血症。100多年的临床应用经验表明：美蓝安全系数大，毒副作用轻微。普通用量1～10mg/kg，最大剂量可达20mg/kg。
 
-我在盖特上看见了新中国联邦喜马拉雅联盟发出的救援信息之后，填了报名表。很快，小飞象战友就联系我了，直接一对一沟通。
+近年来，美蓝又被挖掘出来，除了高铁血红蛋白血症外，美蓝还对其他许多疾病有很好的疗效（4）（5）（6）(7)，包括：感染性休克、心肺手术中及术后血管麻痹、细菌感染（尤其泌尿系统）、肿瘤、口腔粘膜炎疼痛等。尤其令人瞩目的报道是美蓝能有效抵抗冠状病毒感染。查阅了许多科学文献后，笔者分析：美蓝不但像羟氯奎、伊维菌素一样能预防、治疗冠状病毒感染，而且，还可能像青蒿素一样，有对抗毒疫苗伤害的潜力，甚至很可能与青蒿素有协同作用。
 
-当时的信息是说有飞机会来营救，所以我在非常期盼的等待中。然后由于战局非常不稳定，而且基辅的机场被乌克兰和俄军不断斗争来回抢夺。好多机场都设置了路障。小飞象说情况有变化，联盟的消息是形势越来越紧急，无论如何都要想办法第一时间逃出。
+**美****蓝抵抗多种病毒感染**
 
-我们这边有2个家庭总共7个人，联盟的信息是2022年3月1号晚上有一班直接到华沙的火车， 所以我们就在下午3点从住所赶往基辅火车站。
+2020年一项体外实验和小鼠动物实验研究表明（8）：美蓝是一种有效的广谱抗病毒药物，包括登革病毒、寨卡病毒、西尼罗河病毒、黄热病病毒和日本脑炎病毒等。它可以抑制病毒进入细胞、病毒复制等多个环节，从而减少细胞中的病毒量和病毒血症。Breitkreutz等就发现美蓝加可见光光照可以轻松的灭活病毒，例如丙型肝炎病毒、单纯疱疹病毒、反转录病毒（艾滋病病毒）。（9）（10）（11）
 
-虽然到基辅车站大概只有20分钟左右的车程，但是一路上从街边我们已经亲身感受到战争的残酷，周边有好多残骸和路障，三步一岗，五步一哨。车开得非常艰难。终于突破层层关卡，到达基辅火车站。
+**美蓝能抵抗冠状病毒感染**
 
-**基辅火车站—一片混乱**
+许多学者认为，美蓝，能抑制细胞因子风暴，可以治疗冠状病毒感染，而且越早越好（12）（13）。Gendrot 等体外实验表明，美蓝灭活冠状病毒的能力优于羟氯喹（14）。伊朗的一项临床实验研究表明：美蓝治疗重症冠状病毒感染，五个病人中有四个取得了良好的疗效。希腊的一项临床实验研究了80例重症冠状病毒感染：美蓝口服治疗（1 mg/kg，每8小时一次，治疗2天后，每12小时一次再治疗12天）可以显著改善病人的血液氧含量，降低住院时间和死亡率。印度Mahale等报道（15）用美蓝（1 mg/kg, 最多5次）治疗了50个血氧降低的重症冠状病毒感染病人，仅有6人需要气管插管和辅助呼吸机治疗， 30个病人康复出院。 法国报道（16）：在冠状病毒流行期间，2500名高危患者却无一人感染冠状病毒，回顾分析发现，这些病人都服用了美蓝治疗75mg，每天三次。
 
-我们不会说这个乌克兰语，语言不通，原来看到有信息说中国大使馆有高级参赞在那边帮助中国同胞塔乘火车离开，我们就在火车站到处找，1楼2楼到处找，根本就没有看到任何大使馆人员提供帮助。我们也遇到了好几个中国人都在问大使馆人员在什么地方？援助呢？大家都非常失望和气愤。对他们这种心情，我还是非常理解的。
+**美蓝加可见光光照可以轻松的灭活病毒**
 
-基辅火车站当时的情况非常混乱，跟我们中国的春运时候差不多，人山人海，人挤人，非常嘈杂。而且在傍晚的时候，在基辅还发生了一次爆炸，硝烟滚滚，所以大家都非常惊恐。火车站比较旧，没有自动扶梯，楼梯也特别陡，而且为了防止空袭，灯光调得非常暗，大家又互相推挤，我们好不容易来到了站台， 感觉像一次大逃难。
+作为光敏剂，美蓝还用于光动力疗法（photodynamic therapy，PDT) 。目前PDT的确切机理尚不清楚，可能与产生自由基有关。在许多国家，这种疗法已被用作一种实验性的治疗方式，用于治疗多种癌症和寄生虫感染性疾病。研究表明，美蓝加可见光光照可以容易的灭活病毒 。例如， Cagno 等报道（17）很低浓度美蓝就有很强的灭活冠状病毒和H1N1 流感病毒的能力，在可见光光照的情况下病毒的RNA降解就会更彻底。
 
-**利沃夫—一路艰辛**
+**美****蓝灭活冠状病毒的机制是多方面的**
 
-火车应该是晚上7点左右，一直等到9点10点，然后告诉说这班火车已经取消了。我们又回到候车室，等了一会儿。 有两位特别好心的乌克兰当地的民众来告诉我们说:下面马上有一班开往利沃夫(Lviv)的火车，问我们要不要去。然后他们非常热情地帮我们拎行李。大家就非常急匆匆地赶上去了。火车票原来要求提前四天买票，没有座位是很难上去，经过他们帮我们沟通，我们终于在3月2日凌晨12点钟，千辛万苦地踏上了赶往利沃夫的火车。在火车上我们没有座位，就在厕所的边缘，把我们的箱子当座位，经过了大约12小时的颠簸，非常艰辛地一路站到利沃夫。利沃夫相对基辅比较安全，到了之后，我们的心稍微放宽了一些。
+Bojadzic报道美蓝可以抑制冠状病毒S-protein与ACE2 受体蛋白之间的结合，从而阻止病毒进入细胞（18）。
 
-**前往华沙—一路惊险**
+**美蓝将细胞内的病毒一窝端了？**
 
-在这个过程当中，非常感谢新中国联邦的救援团队不断地给我们发信息，给我们加油鼓气，给我们最新情报支持。我们能够顺利的出来，真的非常感恩新中国联邦。
+虽然美蓝可以作用于病毒进入细胞、病毒复制等多个环节，最值得一提的是细胞内溶酶体中病毒的命运。一般的病毒大量复制后，最终都储存在细胞里面的内质网腔（ER）和ER-高尔基体中间腔（ERGIC）,然后排出到细胞外。2020年国立卫生研究院Ghosh等报道(19)，与其他病毒不同，冠状病毒复制后，劫持溶酶体并隐藏在其中，同时导致溶酶体中降解酶的失活，最后排到细胞外继续传播。这篇论文引起了科学界一个不小的轰动，因为溶酶体是细胞的“垃圾处理厂“，它通过消化细胞中错误折叠的蛋白、“废旧”的细胞器。溶酶体介导的蛋白降解也是细胞消灭病毒的有力工具之一。这可能是冠状病毒难以被剿灭的原因之一。Ancély（6）等研究表明，进入细胞内的美蓝主要分布在溶酶体中。结合Ghosh的报道，笔者认为，这可以说美蓝直奔细胞内冠状病毒的巢穴，将其彻底剿灭，即将出炉的病毒崽一窝端了。
 
-利沃夫下车后，这里的状况比基辅要好很多，当地有好多志愿者，有维持秩序的，还有大兵，他们不但给我们送水送吃的，我们搭上了开往波兰的火车，然后在3月2号的下午6点火车终于开了。
+**美****蓝抗毒疫苗潜力**
 
-当时火车是开到波兰的边境城市叫普勒梅尔西，虽然只有短短的90公里的路程，但是火车开了8个小时左右。一路上也是特别的惊险，时不时火车就会就会停下来，然后一等就是2至3个小时，我不知道是为什么，也许是为了躲避空袭吧。历经千辛万苦，终于在3月3号凌晨4点，我们到达了普勒梅尔西。在路上听媒体报道说普勒梅尔西通关特别困难，好多人要排队30至40个小时，甚至有排5天的，所以我们非常的担心。但是我们落地普勒梅尔西之后发现通关特别简单，我们只用了不到5分钟我们就出去了，出去之后我们又乘上了到华沙的火车，然后当天下午2点终于顺利平安地到达了华沙。
+疫苗的解药主要来自抗疟疾的药物，如羟氯奎、伊维菌素和青蒿素。既然美蓝能抗疟疾，笔者认为，那么美蓝自然也应该可以对抗疫苗的毒性。
 
-**华沙—友情温暖**
+**美蓝与青蒿素应该有协同作用抵抗毒疫苗**
 
-在华沙火车站，我们非常高兴地看到了我们的战友。他们亲自把我们护送到酒店。酒店的条件特别好。 我们洗了个热水澡，然后又美美地吃了顿晚餐，我们已经接近3天没有吃热食了，路途上都是吃一些干粮，饼干和矿泉水，所以现在这种感觉真是太美好了！
+根据郭文贵先生的暴料，青蒿素是最好的解药。但是对注射多次毒疫苗的人，仍然会无能为力。青蒿素有其独特的化学结构，青蒿素过氧桥键（图）。过氧桥键是青蒿素赋予了诸多传奇的原因。但过氧桥键还需要与血红素中的亚铁离子结合，才能显现出医学作用。如果血红素中的亚铁离子减少势必会降低青蒿素的作用，这就是为什么用青蒿素时要注意补铁的原因。联想到美蓝可使高铁血红素变为亚铁血红素，即3价铁变为2价这一事实，再联想到美蓝的抗疟疾特性，笔者推断：青蒿素与美蓝或许有协同作用抵抗毒疫苗。
 
-**对战地同胞的肺腑寄语—珍惜生命**
+疟原虫产生抗药性是世界的难题。所有抗疟药，包括青蒿素，都容易产生抗药性，但疟原虫对美蓝很难产生抗药性（19）。许多体外实验表明：美蓝治疗恶性疟疾效果明显优于许多常规抗疟疾药物，例如，氯喹、奎宁和甲氟喹、苯芴醇（20）。青蒿素与美蓝有明显的协同作用（21）(22) (23)。在大鼠和猴抗恶性疟疾的实验研究也发现，美蓝与青蒿素有明显的协同作用 (24)。非洲临床实验也证明青蒿素与美蓝联合用药，对彻底清除恶性疟有明显的协同作用疗效（25）（26）
 
-非常地感恩感谢！逃离到安全的地方后，心里的大石头完全落下来了。还有一个非常深切的感受就是原来没有经历过任何的战争，在和平年代长大的，只有真正目睹了，经历了战争的这种残酷，我们才能更加这个珍惜生命的珍贵。我经历战争后，内心最直接的感受就是：大家珍惜生命，才能拥抱未来的美好！
+**美蓝抗阮病毒**
 
-当时我把新中国联邦救援的信息发送到一些华人的微信朋友圈和当地的一些媒体渠道。微信朋友圈里面的反馈令我失望，让我真正的感受到中共对他们的洗脑是多么的残酷。大家的感受和心目中只有党只有大使馆，他们觉得其他任何渠道都不可信。
+毒疫苗最令人恐怖的就是刺突蛋白具有阮病毒特性。笔者曾经在Gnews 发表过《冠状病毒的刺突蛋白，类似于阮病毒，有可能造成神经系统退行性疾病》一文，阐述过疫苗刺突蛋白可能会造成类似朊病毒感染的人道灾难（[https://gnews.org/zh-hans/1918177](https://gnews.org/zh-hans/1918177)）。阮病毒极其顽固，目前医学界对其束手无策。最近医学研究表明，阿尔茨海默病、帕金森氏病等神经系统退行性疾病很可能是阮蛋白病毒感染造成的。 2012年Cavaliere等在体外实验证明，美蓝可以抑制鼠、羊 和人阮病毒蛋白聚合成纤维缠结（27）。这为美蓝治疗朊病毒感染提供了理论依据。美蓝能减弱帕金森氏病患者淀粉样斑块和神经原纤维缠结的形成，并能部分修复神经细胞线粒体功能和细胞代谢障碍（28）。有临床实验研究结果显示美蓝治疗阿尔茨海默病非常有潜力（29）。但实际用美蓝治疗神经系统退行性疾病在临床却很少。坊间有八卦传说美蓝治疗阿尔茨海默病，效果很好！虽然八卦传说从不被正统医学界理会，但这次疫情中，伊维菌素能预防、治疗冠状病毒的八卦传说最早就来自加拿大一个老年护理中心，事实证明八卦传说有时比医学专家更可靠。Schirmer疾呼:千万不再遗忘美蓝在神经退行性疾病中的应用 (30)。
 
-所以我真心地奉劝他们一句：在生命面前，是没有任何立场的，生命只有一次，好好的珍惜！
+**结束语**
+
+临床实验证实美蓝是治疗和预防冠状病毒感染的有效的药物。疫苗的解药主要来自抗疟疾的药物。美蓝是抗疟老药，其抗恶性疟原虫作用强大，很少产生抗药性。临床实验证实美蓝与青蒿素有协同抗疟疾作用。过氧桥键是青蒿素赋予了诸多传奇特的原因，包括解毒疫苗。但过氧桥键还需要与血红素中的亚铁离子结合，才能显现出作用。如果血红素中的亚铁离子少势必会降低青蒿素的作用。美蓝可使高铁血红素变为亚铁血红素，这为青蒿素与美蓝联合用药，解毒疫苗提供理论依据。当然，是否有效还有待最终临床实验证实。在此特别声明：用美蓝治疗疾病应找医生咨询，读者自行治疗产生的任何事故，笔者概不负责。
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/dfgf.jpg)青蒿素独特的过氧桥键结构（图片来自网络）
+
+
+
+**参考文献：**
+
+1. Berneth H (2008). Azine dyes. In: Ullmann’s Encyclopedia of Industrial Chemistry. Weinheim, Germany: Wiley-VCH Verlag GmbH & Co. KGaA, pp. 475–514. doi:10.1002/14356007.a03\_213.pub3.
+2. Guttmann P, Ehrlich P (1891). Ueber die Wirkung des Methylenblau bei Malaria. *Berl Klin Wochenschr*, 28:953–956.
+3. Oz M, Lorke DE, Hasan M, Petroianu GA (2011). Cellular and molecular actions of Methylene Blue in the nervous system. *Med Res Rev*, 31:93–117. doi:10.1002/med.20177 PMID:19760660
+4. Prashant R. Ginimuge, Jyothi  Methylene Blue: Revisited. J Anaesth Clin Pharmacol 2010; 26(4): 517-520
+5. Carlos J Roldan et al. Methylene Blue for the Treatment of Intractable Pain From Oral Mucositis Related to Cancer Treatment: An Uncontrolled Cohort. J Natl Compr Canc Netw. 2021 Jan 4;19(5):521-527.
+6. Ancély F Dos Santos et al. Methylene blue photodynamic therapy induces selective and massive cell death in human breast cancer cells. BMC Cancer 2017 Mar 15;17(1):194.  doi: 10.1186/s12885-017-3179-7.
+7. Carlos Romualdo Barbosa Gama et al. Treatment of Recurrent Urinary Tract Infection Symptoms with Urinary Antiseptics Containing Methenamine and Methylene Blue: Analysis of Etiology and Treatment Outcomes. Res Rep Urol. 2020; 12: 639–649. doi: 10.2147/RRU.S279060
+8. Zhong Li et al. Methylene blue is a potent and broad-spectrum inhibitor against Zika virus in vitro and in vivo. Emerging Microbes & Infections 2020, VOL. 9 [https://doi.org/10.1080/22221751.2020.1838954](https://doi.org/10.1080/22221751.2020.1838954)
+9. K. Müller-Breitkreutz, H. Mohr, Hepatitis C and human immunodeficiency virus RNA degradation by methylene blue/light treatment of human plasma, J. Med. Virol. 56 (1998), [https://doi.org/10.1002/(SICI)1096-9071(199811)56:3](https://doi.org/10.1002/%28SICI%291096-9071%28199811%2956:3).
+10. Yancui Wang et al. Inactivation of Zika virus in plasma and derivatives by four different methods. J Med Virol. 2019 Dec;91(12):2059-2065.
+11. Papin et al. Methylene blue photoinactivation abolishes West Nile virus infectivity in vivo. Antiviral Res 2005 Nov;68(2):84-7. doi: 10.1016/j.antiviral.2005.07.001
+12. Seyyed Mohammad Ghahestani et al. Methylene blue may have a role in the treatment of COVID-19. Med Hypotheses. 2020 Nov; 144: 110163  Giulio Scigliano, Giuseppe Augusto Scigliano. Methylene blue in covid-19. Med Hypotheses. 2021 Jan; 146: 110455. doi: 10.1016/j.mehy.2020.110455
+13. Dabholkar N et al. Repurposing methylene blue in the management of COVID-19: Mechanistic aspects and clinical investigations. Biomedicine & Pharmacotherapy 142 (2021) 112023
+14. Gendrot M et al. Methylene blue inhibits replication of SARS-CoV-2 in vitro. International Journal of Antimicrobial Agents, 16 Oct 2020, 56(6):106202
+15. Mahale N et al. Intravenous Methylene Blue as a Rescue Therapy in the Management of Refractory Hypoxia in COVID-19 ARDS Patients: A Case Series. Indian J Crit Care Med. 2021 Aug; 25(8): 934–938.
+16. Henry M et al. A cohort of cancer patients with no reported cases of SARS-CoV-2 infection : the possible preventive role of Methylene Blue. International Journal of Antimicrobial Agents 2020 56: 6, 106202
+17. Cagno V et al. Methylene Blue has a potent antiviral activity against SARS-CoV-2 and H1N1 influenza virus in the absence of UV-activation in vitro. *Scientific Reports* volume 11, Article number: 14295 (2021)
+18. Bojadzic D. et al. Methylene Blue Inhibits the SARS-CoV-2 Spike–ACE2 Protein-Protein Interaction–a Mechanism that can Contribute to its Antiviral Activity Against COVID-19. Front Pharmacol 2021 Jan 13;11:600372.
+19. Ghosh S. et al. β-Coronaviruses Use Lysosomes for Egress Instead of the Biosynthetic Secretory Pathway. Cell. 2020 Dec 10;183(6):1520-1535
+20. Müller O et al. Artemisinin resistance on the Thai-Cambodian border. Lancet. 2009;374(9699):1419.
+21. Pascual A et al. *In Vitro*Activity of Proveblue (Methylene Blue) on *Plasmodium falciparum*Strains Resistant to Standard Antimalarial Drugs. Antimicrob Agents Chemother. 2011;55(5):2472–4.
+22. Akoachere M et al. In Vitro Assessment of Methylene Blue on Chloroquine-Sensitive and -Resistant *Plasmodium falciparum*Strains Reveals Synergistic Action with Artemisinins. Antimicrob Agents Chemother. 2005;49(11):4592–7.
+23. Haynes  RK et al. A partial convergence in action of methylene blue and artemisinins: antagonism with chloroquine, a reversal with verapamil, and an insight into the antimalarial activity of chloroquine. ChemMedChem  2011 Sep 5;6(9):1603-15.
+24. Ohrt C et al. Efficacy of intravenous methylene blue, intravenous artesunate, and their combination in preclinical models of malaria. Malar J. 2014; 13: 415.
+25. Zoungrana A et al. Safety and efficacy of methylene blue combined with artesunate or amodiaquine for uncomplicated falciparum malaria: a randomized controlled trial from Burkina Faso. PLoS One 2008 Feb 20;3(2):e1630.
+26. Coulibaly B et al. Strong Gametocytocidal Effect of Methylene Blue-Based Combination Therapy against Falciparum Malaria: A Randomised Controlled Trial. PLoS One. 2009; 4(5): e5318.
+27. Cavaliere P et al. Binding of methylene blue to a surface cleft inhibits the oligomerization and fibrillization of prion protein. Biochim Biophys Acta 2013 Jan;1832(1):20-8.
+28. Oz M. et al. Methylene blue and Alzheimer’s disease. Biochem Pharmacol  2009 Oct 15;78(8):927-32.
+29. Atamna H., Kumar R. et al. Protective role of methylene blue in Alzheimer’s disease via mitochondria and cytochrome c oxidase. J Alzheimers Dis 2010;20 Suppl 2:S439-52
+30. Medina DX et al. Methylene Blue Reduces Aβ Levels and Rescues Early Cognitive Deficit by Increasing Proteasome Activity Brain Pathol. 2011 Mar; 21(2): 140–149.
+31. Schirmer RH et al. “Lest we forget you–methylene blue…” Neurobiol Aging 2011 Dec;32(12):2325.e7-16.
+
+
+* * *
+
+*编辑：文合*
+
+*封面：水涨船高*
+
+*发布：吐纳*
 
  
 
