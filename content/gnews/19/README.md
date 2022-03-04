@@ -2,47 +2,20 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2102768/)
+## 輝瑞疫苗毒副作用到底有多少？
+` MyWay` [轉載自GNews](https://gnews.org/zh-hans/2102915/)
 
-整理：枳实
-美工：精灵蓝
+加拿大温哥华扬帆农场 MyWay
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yahoo.com3-2.jpg)*图片来源：Yahoo.com*
+在辉瑞公司发佈的《授权后不良作用的纍积分析》的文件中，收录了截至2021年2月28日收到的关于PF-07302048（BROB162B2）所产生的副作用，看完让人触目惊心，任何一种中共病毒疫苗都不安全！
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片来源：雅典娜设计组
+下面仅对部分副作用进行了中文翻译：
 
+1p36 缺失综合徵； 2-羟基戊二酸尿症； 5’核苷酸酶升高； 听神经炎; 获得性 C1 抑制剂缺乏症； 获得性大疱性表皮鬆解症； 获得性癫痫性失语症; 急性皮肤红斑狼疮; 急性播散性脑脊髓炎； 急性脑炎伴有难治性、反复部分性癫痫发作； 急性发热性中性粒细胞性皮肤病； 急性弛缓性脊髓炎； 急性出血性白质脑炎; 婴儿急性出血性水肿; 急性肾损伤; 急性黄斑外层视网膜病变； 急性运动轴索神经病； 急性运动感觉轴索神经病； 急性心肌梗塞; 急性呼吸窘迫综合徵; 急性呼吸衰竭; 艾迪生病; 给药部位血栓形成； 给药部位血管炎； 肾上腺血栓形成; 免疫接种后的不良事件； 阿古西娅； 粒细胞缺乏症; 空气栓塞； 丙氨酸氨基转移酶异常； 丙氨酸氨基转移酶升高； 酒精性癫痫发作； 过敏性支气管肺真菌病; 过敏性水肿; 同种免疫性肝炎; 斑秃; 阿尔珀斯病； 肺泡蛋白沉积症; 氨气异常； 氨增加； 羊膜腔感染； 杏仁核海马切除术; 淀粉样关节病; 淀粉样变性; 老年淀粉样变性; 过敏反应; 过敏性休克; 过敏性输血反应； 过敏反应; 过敏性休克; 妊娠过敏反应综合徵； 血管性水肿; 血管病性神经病; 强直性脊柱炎; 嗅觉丧失；抗乙酰胆硷受体抗体阳性； 抗肌动蛋白抗体阳性； 抗水通道蛋白4抗体阳性； 抗基底节抗体阳性； 抗环瓜氨酸肽抗体阳性； 抗上皮抗体阳性； 抗红细胞抗体阳性； 抗外泌体複合物抗体阳性； 抗 GAD 抗体阴性； 抗 GAD 抗体阳性； 抗神经节苷脂抗体阳性； 抗醇溶蛋白抗体阳性； 抗肾小球基底膜抗体阳性； 抗肾小球基底膜病； 抗甘氨酰-tRNA合成酶抗体阳性； 抗HLA抗体检测阳性； 抗 IA2 抗体阳性； 抗胰岛素抗体升高； 抗胰岛素抗体阳性； 抗胰岛素受体抗体升高； 抗胰岛素受体抗体阳性； 抗干扰素抗体阴性； 抗干扰素抗体阳性； 抗胰岛细胞抗体阳性； 抗线粒体抗体阳性； 抗肌肉特异性激酶抗体阳性； 抗髓鞘相关糖蛋白抗体阳性； 抗髓鞘相关糖蛋白相关多发性神经病； 抗心肌抗体阳性； 抗神经元抗体阳性； 抗中性粒细胞胞浆抗体升高； 抗中性粒细胞胞浆抗体阳性； 抗中性粒细胞胞浆抗体阳性血管炎； 抗 NMDA 抗体阳性； 抗核抗体升高； 抗核抗体阳性； 抗磷脂抗体阳性； 抗磷脂综合徵； 抗血小板抗体阳性； 抗凝血酶原抗体阳性； 抗核醣体 P 抗体阳性； 抗 RNA 聚合酶 III 抗体阳性； 抗酿酒酵母抗体检测阳性； 抗精子抗体阳性； 抗 SRP 抗体阳性； 抗合成酶综合徵； 抗甲状腺抗体阳性； 抗转谷氨酰胺酶抗体升高； 抗 VGCC 抗体阳性； 抗-VGKC抗体阳性； 抗波形蛋白抗体阳性； 抗病毒预防； 抗病毒治疗； 抗锌转运蛋白8抗体阳性； 主动脉栓子; 主动脉血栓形成; 主动脉炎; 再生障碍纯红细胞； 再生障碍性贫血; 应用部位血栓形成； 应用部位血管炎； 心律失常; 动脉旁路闭塞； 动脉旁路血栓形成； 动脉血栓形成; 动静脉瘘血栓形成； 动静脉移植部位狭窄； 动静脉移植物血栓形成； 动脉炎; 冠状动脉炎等。
 
-雅典娜疫情更新（2022年 3月3日）
+这些资料是CDC迟迟不愿意公开的，他们理由是，当民众知道了这些材料后，就不愿意接种疫苗了。所以他们希望75年后解密！！但美国法院要求辉瑞公司必须在3月1日公布。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-全球和澳洲疫情疫苗关键数据和图表每日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-29.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-18.png)
-[2022年3月3日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月3日改进.pdf)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[原文链接](https://phmpt.org/wp-content/uploads/2021/11/5.3.6-postmarketing-experience.pdf)
 
  
 

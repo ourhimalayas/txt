@@ -2,50 +2,45 @@
 ---
 
 
-## 白宫公布被制裁的八名俄罗斯寡头名单
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2103001/)
+## 遭俄罗斯袭击乌克兰的欧洲最大的核电站着火了
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2103069/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-20.png)图片来自网络
+**据《路透社》乌克兰博罗迪亚卡/卡利沃夫(Borodyanka/Lviv ) 当地时间3月4日报道**
 
-整理：围剿维尼熊
-编辑：木木木mmmmm
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0143.jpg)图片来源：sohu
-根据大纪元2022年3月4日讯，白宫周四（3月3日）宣布对八名俄罗斯寡头实施新一轮制裁措施。
+乌克兰外交部长周五表示，在俄罗斯袭击后，欧洲最大的核电站起火，他呼吁设立安全区并允许消防员应对这一事件。
 
-新的制裁对象均为普京亲信及其家庭成员。八名俄罗斯寡头和他们的家庭成员及合作伙伴将受到全面封锁制裁：他们与美国金融系统的联系将被切断，他们在美国的资产将被冻结，其财产将被禁止使用。
+RIA通讯社周五援引乌克兰原子能部的话说，该工厂的一个发电机组在俄罗斯军队的袭击中被击中，部分电站起火。
 
-将受到全面封锁制裁的个人及相关资产信息情况如下：
+一位工厂发言人告诉 RIA，辐射的背景水平没有改变。
 
-1、尼古拉‧托卡列夫（Nikolai Tokarev）、妻子加琳娜（Galina）、女儿玛雅（Mayya）以及他的两家豪华房地产公司；
+外交部长德米特罗·库莱巴（Dmytro Kuleba）在推特上写道，“俄罗斯军队从四面八方向欧洲最大的核电站扎波罗（Zaporizhzhia NPP）核电站开火”。
 
-2、鲍里斯‧罗滕贝格（Boris Rotenberg）、妻子卡琳娜（Karina）、儿子罗曼（Roman）和鲍里斯（Boris）；
+“火灾已经发生，俄罗斯人必须立即停火，让消防员出动，建立安全区！”
 
-3、阿尔卡季‧罗滕贝格（Arkady Rotenberg）、儿子帕维尔（Pavel）和伊戈尔（Igor）以及女儿莉莉娅（Liliya）；
+附近城镇 Energodar 的市长在一篇在线帖子中说，在基辅东南约 550 公里（342 英里）的地区发生了激烈的战斗。他说有人伤亡，但没有提供细节。
 
-4、谢尔盖‧切梅佐夫（Sergei Chemezo）、妻子叶卡捷琳娜（Yekaterina）、儿子斯坦尼斯拉夫（Stanislav）和继女安娜斯塔西娅（Anastasiya）；
+俄罗斯已经占领了位于乌克兰首都基辅以北约 100 公里处的废弃切尔诺贝利核电站。
 
-5、伊戈尔‧舒瓦洛夫（Igor Shuvalov）连同他的五家公司、妻子奥尔加（Olga）、儿子叶夫根尼（Evgeny）和他的公司及喷气机，以及女儿玛丽亚（Maria）和她的公司；
+国际原子能机构在一条推文中表示，它 “知道有关核电站遭到炮击的报道”，并正在就情况与乌克兰当局联系。
 
-6、叶夫根尼‧普里戈津（Yevgeniy Prigozhin）以及他的三家公司、妻子波琳娜（Polina）、女儿柳博芙（Lyubov），以及儿子帕维尔（Pavel）；
+早些时候，乌克兰当局报告称，俄罗斯军队正在加紧夺取该电站，用坦克进入该镇。
 
-7、普京发言人德米特里‧佩斯科夫（Dmitry Peskov），白宫称他是普京顶级代言人；
+奥尔洛夫在他的电报频道上说，“由于敌人对欧洲最大核电站的建筑物和单元的持续炮击，扎波罗核电站着火了”。 他称这是对世界安全的威胁。他没有透露细节。
 
-8、阿利舍尔‧布尔哈诺维奇‧乌斯马诺夫（Alisher Burhanovich Usmanov）—俄罗斯最富有的人之一，他的超级游艇是世界上最大的游艇之一，其私人飞机是俄罗斯最大的私人飞机之一。
+路透社无法立即核实这些信息，包括任何火灾的潜在严重性。
 
-另外，美国还将对19名寡头及其47名家庭成员和亲密伙伴实施签证限制。
+随着第二次世界大战以来，对一个欧洲国家最大的袭击进入第九天，据信已有数千人死亡或受伤，100 万难民逃离乌克兰，俄罗斯的经济受到国际制裁的冲击。
 
-参考链接：
+周四，美国和英国宣布对更多的俄罗斯寡头进行制裁，这是继欧盟的措施之后，他们加大了对克里姆林宫的压力。
 
-[白宫宣布新一轮制裁 全面封锁八名俄罗斯寡头](https://www.epochtimes.com/gb/22/3/3/n13620050.htm)
+[https://www.reuters.com/markets/europe/top-wrap-1-europes-largest-nuclear-power-plant-fire-after-russian-attack-mayor-2022-03-04/](https://www.reuters.com/markets/europe/top-wrap-1-europes-largest-nuclear-power-plant-fire-after-russian-attack-mayor-2022-03-04/)
 
-*发布：tianzhihuan*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+
+翻译：烟波浩淼 | 校对：雨山溪桥客 |编辑&发布：闪电训练
 
  
 

@@ -2,31 +2,20 @@
 ---
 
 
-## 中共国禁止网上传教
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2102991/)
+## 法国解除疫苗护照
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2103061/)
 
-**作者： 香草山翻译部 – 雪莲花**
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-最近接到所在教会的通知，“从三月一日起， 中共国将执行与宗教·信仰有关的法令 — ‘互联网宗教资讯服务管理办法‘。这项办法由国家宗教事务局、国家互联网资讯办公室、工业和资讯部、公安部和国家安全部五部門联合制定该法，·严禁任何未经申请许可的组织或个人（申请者有严格规定，海外不可申请）在互联网上传教、开展宗教教育培训、发布讲经讲道內容，或者转发、连接相关內容；或在互联网上組织开展宗教活动。不得以文字、图片、视音频等直播或者录播宗教仪式；也不得在互联网上成立宗教組织、设立宗教院校和宗教活动场所、发展教徒，也不得以宗教名义在互联网上开展募捐。违反此办法规定，构成违反治安管理行为的，依法给予治安管理处罚；构成犯罪的，依法追究刑事责任。這个法令三月一日正式实施后，所有国內外教会的微信群属于第一波打击对象，如果账号有宗教內容，要被封号或永久封号，甚至被追究刑事责任。因此，若仍计划和国内亲友通过微信谈福音、圣经信仰內容，如若发生问题，国內亲友将受处置。“
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-348.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fk.sinaimg.cn%2Fn%2Ftech%2Ftransform%2F15%2Fw550h265%2F20210526%2F43c0-kqpyffz6729230.png%2Fw700h350z1l10t104ba.jpg&amp;imgrefurl=https%3A%2F%2Ftech.sina.cn%2Fi%2Fgj%2F2021-05-26%2Fdetail-ikmyaawc7549572.d.html&amp;tbnid=qLdVSSpjHYTLGM&amp;vet=12ahUKEwiQvtiu0av2AhU6XWwGHdjEBxUQMygFegUIARCNAQ..i&amp;docid=94tpmtRIEE1bFM&amp;w=700&amp;h=350&amp;q=%E7%96%AB%E8%8B%97%E6%8A%A4%E7%85%A7&amp;ved=2ahUKEwiQvtiu0av2AhU6XWwGHdjEBxUQMygFegUIARCNAQ)
+巴黎共同报道，法国政府3日宣布，由于中共病毒（新冠病毒Covid-19）的感染状况正在改善，14日起取消在餐饮店利用时需要提出疫苗接种证明的义务。另外从14号开始，除了公共交通之外室内戴口罩的义务也同时解除。
 
-看到这个中共国的法令，人们或许感到震惊。 当人类IT技术的发展使居家网上工作、开网络会议、在疫情期间进行网上主日敬拜等成为可能的时候，人们会问为什么中共禁止“网上传教“？ 宗教传播的媒介需要特殊定义吗？为什么海外教会组织没有资格申请允许网上传教？
+在法国，从1月下旬开始，如果不出示被称为“疫苗护照”的接种证明，就不能使用餐厅、电影院、长途列车等。
 
-回答这些问题，绕不开“共产主义”的本质。中国共产党宣扬“共产党人是坚定的无神论者”，所以在共产党一党专制的中国，原则上是不允许百姓有其它宗教信仰的，否则如果百姓不信共产党，中共就不能够奴役十几亿“奴才“。但反观中共所信仰的共产主义又何尝不是把党当“神”的一种变相的宗教？最滑稽的是在中共国官方允许存在的基督教会必须在具有“变相宗教特色”的中国共产党领导下信仰基督。基督教的“十诫”中最重要的一条是“除了耶和华以外，你不可有别的神“。但在中共国，官方承认的教会把耶和华摆在了共产党之后，这就注定了中共的官方教会是没有真正的基督教信仰的。“网络传教”，尤其是海外教会对国内民众进行的网上传教使共产党对民众的思想控制失控，所以中共是绝对不会允许它存在的。而网络阻拦， 例如封微信账号，是中共一直以来屏蔽对它不利信息的有力”武器“。\*
+消息来源：[フランス、接種証明の義務解除へ　屋内マスクも不要に](https://www.tokyo-np.co.jp/article/163533?rct=world)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-4.jpg)
-
-**审核/编辑/发稿：春草**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![This image has an empty alt attribute; its file name is image0.jpg](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
