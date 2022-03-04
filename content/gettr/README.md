@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/4/2022 3:21 PM (UTC)`
+
+3月4号：尊敬的战友们好，今天我收到了无数个战友对我母亲三年冥诞问候！衷心地感谢兄弟姐妹们！我们只有靠真实的行动，才能保护我们的父母．姐妹．兄弟．消灭中国共产党是唯一的，让我们能快乐．和安全的方法！
+![img](https://media.gettr.com/group8/getter/2022/03/04/15/43f5ad6a-7aaa-fb2f-61f5-1e419b5a90fc/out.jpg)
+
+---
+
 `@miles 3/4/2022 2:13 PM (UTC)`
 
 【UKRAINEHELP-003】<br/>为应对乌克兰-波兰边境日益增多的撤离人员和难民，NFSC和法治基金(ROLF)宣布2022年3月9日首批免费专机的暂定行程。<br/><br/>2022年3月9日出发的首批专机航线如下，有可能根据情况做出调整:<br/>1. 从波兰 - 热舒夫(Rzeszow)机场出发，经加拿大多伦多，前往美国纽约。<br/>2. 从波兰 - 热舒夫(Rzeszow)机场出发，直飞帕劳。<br/><br/>NFSC和ROLF提供免费专机，以帮助那些受俄罗斯非法入侵影响的人员，这是我们支持在被共产主义和专制政府统治的国家里争取自由的使命的一部分。<br/><br/>如果您需要搭乘我们的专机，请联系我们的24小时服务热线。所有乘客必须满足 其目的地的签证要求。如有需要，NFSC和ROLF将在出发前提供免费食宿。<br/><br/>24小时紧急救援客服联系方式如下:<br/><br/>邮箱: ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO <br/><br/>电话(短信或电话):<br/>+1 720-657-6776 或 <br/>+1 719-224-4232<br/><br/>NFSC | 法治基金 <br/>2022年3月3日<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -151,13 +158,6 @@ We’ve seen this coming, and we’ve been reactionary. That gave Vladimir Putin
 
 3月3号：尊敬的战友们好，明天是中国的农历二月初二……龙抬头，也是我母亲三年冥诞的日子，明天没有直播……文贵在此衷心地希望所有的战友．爱父母爱家人！
 ![img](https://media.gettr.com/group6/getter/2022/03/03/15/49d50e66-6903-8df6-47df-73d0d2e18ae8/out.jpg)
-
----
-
-`@miles 3/3/2022 2:43 PM (UTC)`
-
-3月3号：尊敬的战友们好GTV已经在昨天的凌晨12:00彻底的关闭……由于共产党大量的篡改数据，黑客。为了战友们的信息安全和GTV投资者的利益，经投资委员会和法律委员会决定已经将GTV关闭，请新中国联邦的战友们去盖特上．去看有关新中国联邦和灭共的直播。所有过去投资的老椅子的人请和联盟委员会联系，一切会更好。
-![img](https://media.gettr.com/group21/getter/2022/03/03/14/2d31ef76-d81b-34d0-6e44-fad087167b4e/out.jpg)
 
 ---
 

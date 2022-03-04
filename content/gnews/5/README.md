@@ -2,29 +2,37 @@
 ---
 
 
-## 联合国人权理事会通过决议 成立调查俄军战争罪行委员会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2106447/)
+## 与普京交好的俄罗斯亿万富翁遭欧盟制裁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2106534/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/61008791_3033.jpg)
-据台湾中央广播电台报道，3月4日联合国人权理事会以32票赞成，2票反对（俄罗斯、厄利垂亚），13弃权，压倒性通过一项决议，谴责俄罗斯在入侵乌克兰期间涉嫌侵犯人权，并成立一个委员会对这些行为进行调查。
+作者：纽约香草山农场-AT
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月2日，据有关媒体报道，由于俄罗斯当下对乌克兰的猛烈攻击，俄罗斯亿万富翁阿利舍尔·乌斯马诺夫受到了英国与欧盟等国家的联合制裁。
 
-乌克兰驻日内瓦联合国大使菲利彭科(Yevheniia Filipenko)在今天表决开始前说，“有无可辩驳的证据显示，俄罗斯严重和有系统地侵犯人权，以及犯下战争罪和危害人类罪。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8.jpeg)
 
-这个设于日内瓦的机构所通过的决议不具法律约束力，但它的决定传递了重要的政治讯息，并可以授权进行调查。另外，设于海牙的国际刑事法院(ICC)检察长透露，他们的一个调查小组已在3日前往“乌克兰地区”，调查冲突各方可能犯下的战争罪行。
+据悉，乌斯马诺夫是俄罗斯受到欧盟制裁的 26 人之一。 本周，德国扣押了乌斯马诺夫价值六亿美元的豪华游艇，该游艇是世界上最大的游艇之一。此外，欧盟的制裁还包括冻结了乌斯马诺夫在欧盟 27 个成员国的资产，并禁止他在欧盟境内旅行。另有消息显示，乌斯马诺夫对英国足球俱乐部的赞助合同也遭到英国当局的取消。他还在本周一辞去了国际击剑联合会主席的职务。
 
-新闻参考链接：[https://www.rti.org.tw/news/view/id/2126324](https://www.rti.org.tw/news/view/id/2126324)
+资料显示，乌斯马诺夫的财富与一系列利润丰厚的公司密切相关，这当中包括俄罗斯矿业公司和中共的电子公司小米。然而，乌斯马诺夫一直是俄罗斯总统普京的亲密盟友，他还俄罗斯金融流动提供服务。
 
-* * *
+欧盟表示，乌斯马诺夫是俄罗斯此前吞并克里米亚的支持者，他还在物质和财政上为俄罗斯侵略乌克兰提供帮助。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+参考链接：[Fate of Russian oligarch’s $600M yacht uncertain amid report of German seizure](https://www.washingtonexaminer.com/policy/defense-national-security/germany-snatches-600-million-yacht-from-russian-oligarch-report)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-编辑：【英国伦敦喜庄园编辑部】
+总编：Irene木木
+编辑：静言
+审核：飞虹
+校正/发稿：谐趣园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

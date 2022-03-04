@@ -2,34 +2,40 @@
 ---
 
 
-## IAEA谴责俄罗斯入侵乌克兰 中共国投反对票
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2106472/)
+## 有声|普京大规模抓捕反战人员
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2106543/)
 
-撰稿：东京樱花团/peterwong
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月1日，俄罗斯的一个人权组织报告称，由于普京发动了对乌克兰的入侵，俄罗斯国内出现了巨大的反对声音，而普京正在对这些反对者实施镇压。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-300.png)
+目前，俄罗斯各地城市已经拘留了数千人，仅周一一天时间，俄罗斯的13个城市就起码抓捕了411人。从2月24日至今，被逮捕的反战人员已达到6400多人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IAEA谴责俄罗斯入侵乌克兰-中共国投反对票.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.aljazeera.com%2Fwp-content%2Fuploads%2F2021%2F05%2F2021-05-24T101944Z_143477179_RC2AMN9I2875_RTRMADP_3_IRAN-NUCLEAR-IAEA.jpg%3Fw%3D770%26resize%3D770%252C513&amp;imgrefurl=https%3A%2F%2Fwww.aljazeera.com%2Feconomy%2F2021%2F5%2F27%2Firan-nuclear-deal-are-iaea-safeguards-dangerously-obsolete&amp;tbnid=VoISnkUsMzszCM&amp;vet=12ahUKEwir8cLy-Kv2AhWngGMGHXZeBUQQMygOegUIARDLAQ..i&amp;docid=Dlyenrh0psuPfM&amp;w=770&amp;h=513&amp;q=IAEA&amp;ved=2ahUKEwir8cLy-Kv2AhWngGMGHXZeBUQQMygOegUIARDLAQ)
+此前，反对俄罗斯当局的领导人阿列克谢·纳瓦尔尼被监禁，大批民众发起游行支持这位反对者时，俄罗斯当局就进行了大规模镇压。更早一些的镇压发生在2017年。
 
-联合国核监督机构–国际原子能机构(IAEA)的理事会周四（3月3日）通过了一项决议，谴责俄罗斯入侵乌克兰，并呼吁俄罗斯让乌克兰控制其所有核设施，只有两票反对。
+另据悉，此次反对入侵乌克兰的人员还包括一些俄罗斯的体育、演艺人员和商业领袖。
 
-IAEA理事会在其决议中说，“对俄罗斯联邦在乌克兰的行动予以谴责”。
 
-两名外交官说，有26个国家投了赞成票，两个国家投了反对票，五个国家弃权。
 
-一位外交官说，俄罗斯和中共国投下反对票，巴基斯坦、印度、南非、塞内加尔和越南弃权。他们补充说，墨西哥和布隆迪(蒲隆地)缺席。
+文字版原文：[普京大规模抓捕反战人员](https://gnews.org/zh-hans/2100688/)
 
-国际原子能机构（英语：International Atomic Energy Agency，缩写：IAEA）是致力于和平发展原子能的独立政府间国际组织，成立于1957年7月29日，为联合国系统的一部分。总部位于奥地利首都维也纳。其在2005年10月6日因“防止核能被用于军事目的，并确保最安全的和平利用核能”而获得诺贝尔和平奖。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-截至2020年9月17日，共有172个成员国。机构的组织机构包括大会、理事会和秘书处。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-理事会（英文：Board of Governors）是机构的决策机构，执行机构的各项任务。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-消息来源:
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[IAEA理事会对俄罗斯入侵乌克兰予以“谴责” 只有两票反对](https://cn.reuters.com/article/iaea-condemns-russia-0303-thur-idCNKCS2L1041?il=0)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

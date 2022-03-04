@@ -2,45 +2,37 @@
 ---
 
 
-## 3/4/2022国际财经快讯：受制裁影响俄罗斯公司急于开设中国银行账户；乌克兰央行行长表示银行系统仍然具有弹性
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/2106489/)
+## 概述美国对中共的帮助——巴黎和会与抗日时期
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2106547/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-27.png)[图片来源](https://www.reuters.com/)
-**1.受制裁影响俄罗斯公司急于开设中国银行账户**
+作者：纽约香草山农场-静言
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+纵观近现代历史，每当中国遭遇难关之时，美国都在背后给予了极大的帮助。
 
-[一位知情人士称，中国一家国有银行莫斯科分行收到大量俄罗斯公司的咨询，希望开设新账户，因为该国的企业在面临国际制裁。“在过去的几天里，有200-300家公司与我们接洽，希望开设新账户，”这位在中国国有银行莫斯科分行工作，直接了解其业务的人士告诉路透社。由于无权与媒体交谈，他拒绝透露姓名或透露其银行的身份。目前尚不清楚俄罗斯对中资银行开设新账户的需求有多广泛，但该银行家消息人士告诉路透社，许多寻求新账户的公司都与中国开展业务，他预计这些公司的人民币交易将会增加。](https://www.reuters.com/business/exclusive-russian-firms-rush-open-chinese-bank-accounts-sanctions-bite-sources-2022-03-03/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9.jpeg)
 
-**2.花旗集团看到对成长型股票的需求**
+1919年第一次世界大战后，巴黎和会期间，除却当时中国政府的官方代表团外，梁启超率领民间团队远赴巴黎，并亲自拜访美国总统威尔逊，请求他在和会上为中国主持公道。三年后，经由美国的多方斡旋，中国终于在华盛顿会议上从日本政府手中收回了对青岛及山东的全部权利。
 
-[花旗集团周四将美国股票评级上调至“增持”，因分析师预计，由于乌克兰-俄罗斯危机后债券收益率大幅下跌，对成长型股票的兴趣将复苏。上周俄罗斯入侵乌克兰加剧了通胀风险的前景，债券收益率暴跌，但主要央行加息的预期已经下降。“尽管乌克兰发生了艰难事件，但全球股市一直相当强劲。最近实际收益率的暴跌确实意味着今年成长股的降级应该停止，”经济学家罗伯特·巴克兰(Robert Buckland)表示。美国国债收益率周三飙升，从八周低点反弹，因美联储主席杰罗姆鲍威尔支持美联储本月加息，同时灵活应对俄乌战争对经济的影响。](https://www.reuters.com/markets/europe/citigroup-hikes-us-equities-overweight-sees-demand-growth-stocks-2022-03-03/)
+到了抗日战争时期，罗斯福总统于1941年正式签署行政命令，授权陈纳德招募组建美国志愿航空队，协助中国对抗日本军队。随后的三年间，美国志愿航空队共击落和炸毁日军飞机两千六百余架，舰艇40余艘，击毙日军超过六万六千人。期间，美国志愿航空队和援华飞行队开辟“驼峰战略空运航线”，飞行总时间近150万个小时。而在后来与日本的停战谈判中，美国更是把日本从中国无条件撤军当作谈判的必要条件。
 
-**3.乌克兰央行行长表示银行系统仍然具有弹性**
+在中共于1995年落成的抗日航空烈士纪念碑上，三千多名牺牲的空军中有超过两千一百名是美国飞行员。可以说，美国才是中国人民真正的朋友。
 
-[乌克兰央行行长凯里洛·舍甫琴科(Kyrylo Shevchenko)周四表示，在俄罗斯入侵的情况下，乌克兰银行和金融体系保持弹性，并受到约150亿美元国际金融支持的提振。他在简报中说：“国家银行正在采取一切必要措施，确保非现金和现金支付的连续性以及国家银行系统在戒严令下的顺利运作。”](https://www.reuters.com/business/finance/ukraines-banking-system-remains-resilient-despite-war-says-central-bank-governor-2022-03-03/)
+参考链接：[历史上美国曾七次帮助中国度过难关](http://www.usaphoenixnews.com/news_show.php?id=344974)
 
-**4.莫斯科交易所禁止卖空欧元工具**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-[莫斯科交易所周五表示，它禁止卖空欧元货币和股票工具，俄罗斯当局正在采取进一步措施稳定其破碎的市场。俄罗斯市场受到西方为应对俄罗斯入侵乌克兰而实施的一系列严厉经济和金融制裁的打击。俄罗斯央行周五表示，已将个人通过经纪人购买外汇的费用从30%降至12%，并对公司和其他法人实体设定相同的费用。](https://www.reuters.com/business/moscow-exchange-bans-short-selling-euro-instruments-2022-03-04/)
+总编：Irene木木
+编辑：Jack Li文阳，Irene木木
+审核：Jack Li文阳
+校正/发稿：谐趣园
 
-**5.耐克和宜家因制裁和贸易限制而关闭俄罗斯商店**
-
-[运动鞋制造商耐克和家居用品公司宜家周四关闭了俄罗斯的商店，因为贸易限制和供应限制增加了公司在俄罗斯开展业务的政治压力。法国兴业银行表示，它正在努力降低其在俄罗斯的风险，担心莫斯科对西方制裁采取针锋相对的反应，因为从伏特加制造商帝亚吉欧到丰田汽车等越来越多的公司暂停了在该国的业务。包括苹果、福特和壳牌在内的全球知名公司都谴责了俄罗斯的袭击，但周四的一些公告更为实际，主要关注供应和制裁，因为航运路线关闭，政府禁止向俄罗斯出口。](https://www.oann.com/japan-automakers-join-global-firms-in-stopping-production-exports-to-russia/)
-
-**6.2月份美国就业增长预测稳健；失业率降至3.9%**
-
-[美国雇主可能在2月份保持强劲的招聘步伐，推动劳动力市场接近最大就业，但地缘政治紧张局势带来的逆风可能会损害商业信心，并在未来几个月减缓就业增长。劳工部周五密切关注的就业报告预计将显示劳动力市场状况进一步收紧，失业率恢复下降趋势，工人短缺继续推高工资。美联储主席杰罗姆鲍威尔本周称劳动力市场“极度紧张”，并告诉立法者，他将支持在美联储3月15日至16日的政策会议上加息25个基点，并“如果通货膨胀没有像预期的那样迅速减弱，那么以后采取更积极的行动。”](https://www.oann.com/solid-u-s-job-gains-forecast-in-february-unemployment-rate-seen-dipping-to-3-9/)
-
-**7.贝莱德暂停购买俄罗斯证券的主动和指数挂钩基金**
-
-[全球最大的资产管理公司贝莱德表示，在俄罗斯入侵乌克兰后，截至周一，该公司已停止购买其主动基金和指数基金中的所有俄罗斯证券。投资组合管理集团负责人Rich Kushel和iShares指数投资全球负责人Salim Ramji在周四的一份联合声明中表示，该公司“积极倡导”“指数提供商”将俄罗斯证券从基础广泛的指数中剔除。他们说，俄罗斯证券占其客户资产的比例不到0.01%。上周莫斯科入侵乌克兰后，西方对莫斯科的制裁促使一波投资者宣布削减在俄罗斯的头寸。](https://www.oann.com/blackrock-suspended-purchase-of-all-russian-securities-in-active-and-index-funds/)
-
-**8.乌克兰核设施火灾后亚洲股市跌至16个月低点**
-
-[亚洲股市和欧元周五下跌，此前有消息称乌克兰核设施在与俄罗斯军队交战后发生火灾，加剧了投资者对冲突升级的担忧，并推高油价。避险意愿打击了整个地区的市场，欧洲股市开盘疲软，欧洲斯托克50指数期货下跌2.6%，富时指数期货下跌1.4%。当局周五表示，在俄罗斯和乌克兰军队之间的激烈战斗期间，扎波罗热核电站附近的一座训练大楼发生火灾，这是欧洲同类核电站中规模最大的一座。虽然这有助于缓解当天早些时候袭击市场的一些最初的恐慌，但投资者仍然对这场冲突非常焦虑。](https://www.oann.com/stocks-fall-as-ukraine-crisis-deepens-oil-prices-rally/)
-
-By 【秘密翻译组-金融组】
-作者：小海星
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
