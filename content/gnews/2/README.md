@@ -2,29 +2,34 @@
 ---
 
 
-## 樱花FM|中日财经爆：滴滴被逼表态：不会关闭俄罗斯业务
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2104607/)
+## 普京加强外汇管控
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2104738/)
 
-音频：东京樱花团/战友520
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+俄罗斯周二表示，它尚未对因入侵乌克兰而引发的西方和美国制裁雪崩做出全面回应。外交部发言人扎哈罗娃警告称 ，西方民众还没有感受到制裁即将对他们的生活产生的影响。
+![俄罗斯央行澄清普京的资本管制令- 华尔街日报](https://images.wsj.net/im-495213?width=1280&amp;size=1.77777778)WSJ
+随着西方的经济制裁不断升级的，俄罗斯已经启动了进一步的金融稳定工作。据路透社援引国际文传电讯社的一份克里姆林宫声明称，普京在当地时间周二晚些时候发布了一项法令，禁止所有价值超过1万美元的外汇现金出口。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/滴滴被逼表态：不会关闭俄罗斯业务.png)
+俄罗斯央行同时宣布，随着俄罗斯资产不断受到重创，包括卢布在过去几天跌至两年低点，俄罗斯准备采取一切必要措施来维持金融稳定。
 
-2月26日，滴滴官微发文表示，不会关闭俄罗斯当地的业务，未来将在俄罗斯继续运营并持续服务好司机和乘客。
+与此同时， 《莫斯科时报》报道称，“美国零售巨头耐克和苹果公司已经暂时停止在俄罗斯在线商店的销售，这肯定会给俄罗斯人民带来更多不便。”
 
-就在26日当天，美国、欧盟、英国、加拿大等西方国家决定把众多俄罗斯银行排除出Swift国际结算系统。
+该公告表明，越来越多的西方产品仅是运往俄罗斯都变得越来越困难.
 
-自俄罗斯入侵乌克兰以来，美欧不断升级对俄罗斯的经济制裁，全球众多企业不断跟进落实有关制裁规则。作为中共权贵民企的滴滴，此时的表态颇有无奈站队之意。
+参考链接：[Putin bans exports of more than $10,000 – The Moscow Times](https://hindustannewshub.com/russia-ukraine-news/putin-bans-exports-of-more-than-10000-the-moscow-times/)
 
-文字版原文：
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
 
-| [中日财经爆┃滴滴被逼表态：不会关闭俄罗斯业务](https://gnews.org/zh-hans/2083176/) |
-| --- |
-
-
-*编辑：东京樱花团/asket   
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
