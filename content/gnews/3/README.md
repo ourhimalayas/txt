@@ -2,40 +2,37 @@
 ---
 
 
-## 有声|普京大规模抓捕反战人员
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2106543/)
+## 概述美国对中共的帮助——巴黎和会与抗日时期
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2106547/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月1日，俄罗斯的一个人权组织报告称，由于普京发动了对乌克兰的入侵，俄罗斯国内出现了巨大的反对声音，而普京正在对这些反对者实施镇压。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-300.png)
-目前，俄罗斯各地城市已经拘留了数千人，仅周一一天时间，俄罗斯的13个城市就起码抓捕了411人。从2月24日至今，被逮捕的反战人员已达到6400多人。
+作者：纽约香草山农场-静言
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+纵观近现代历史，每当中国遭遇难关之时，美国都在背后给予了极大的帮助。
 
-此前，反对俄罗斯当局的领导人阿列克谢·纳瓦尔尼被监禁，大批民众发起游行支持这位反对者时，俄罗斯当局就进行了大规模镇压。更早一些的镇压发生在2017年。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9.jpeg)
 
-另据悉，此次反对入侵乌克兰的人员还包括一些俄罗斯的体育、演艺人员和商业领袖。
+1919年第一次世界大战后，巴黎和会期间，除却当时中国政府的官方代表团外，梁启超率领民间团队远赴巴黎，并亲自拜访美国总统威尔逊，请求他在和会上为中国主持公道。三年后，经由美国的多方斡旋，中国终于在华盛顿会议上从日本政府手中收回了对青岛及山东的全部权利。
 
+到了抗日战争时期，罗斯福总统于1941年正式签署行政命令，授权陈纳德招募组建美国志愿航空队，协助中国对抗日本军队。随后的三年间，美国志愿航空队共击落和炸毁日军飞机两千六百余架，舰艇40余艘，击毙日军超过六万六千人。期间，美国志愿航空队和援华飞行队开辟“驼峰战略空运航线”，飞行总时间近150万个小时。而在后来与日本的停战谈判中，美国更是把日本从中国无条件撤军当作谈判的必要条件。
 
+在中共于1995年落成的抗日航空烈士纪念碑上，三千多名牺牲的空军中有超过两千一百名是美国飞行员。可以说，美国才是中国人民真正的朋友。
 
-文字版原文：[普京大规模抓捕反战人员](https://gnews.org/zh-hans/2100688/)
+参考链接：[历史上美国曾七次帮助中国度过难关](http://www.usaphoenixnews.com/news_show.php?id=344974)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
+总编：Irene木木
+编辑：Jack Li文阳，Irene木木
+审核：Jack Li文阳
+校正/发稿：谐趣园
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,37 @@
 ---
 
 
-## 联合国支持调查俄罗斯在乌克兰的侵略指控
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2106409/)
+## 俄中挑起的战争将改变世界格局
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2106473/)
 
-翻译/整理： 意大利罗马达芬奇农场： ZQ
+作者：日本方舟农场-Andy5/纽约香草山农场 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在3月2日的大直播中指出，俄罗斯当下对乌克兰的侵略和接下来中共攻打台湾将改变整个世界的格局。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-22.jpg)
+郭先生分析道，乌克兰危机唤醒了强大的战争机器德国，而中共对台湾的疯狂则会唤醒强大的日本。情报显示，德国和日本都将扩大军事预算，甚至可能会加入到军备竞赛中，这给人类的安全埋下了隐患。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1c18d242-1f6b-43c1-a61a-faf3b5cc334c-scaled.jpg)
+郭先生也补充道，接下来，浴火重生的台湾将取代与中共勾兑的新加坡，成为亚洲的金融中心。同时，本次对俄罗斯实行强硬政策的英国则将在欧洲取代瑞士，重新回归其经济帝国的地位。另一方面，紧跟美国的加拿大和澳大利亚同样会成为强大的政治、经济实体。
 
+至于经济方面，郭先生表示，把俄罗斯踢出SWIFT系统以及对俄罗斯政府和寡头的金融制裁将促使数字货币在摆脱政府控制和方便、快捷、无痕等方面展现出优势。
 
-图片来源：CNN
+但郭先生也明确道，这次战争只会让两个群体消失，即战斗民族的俄罗斯和中国共产党。
 
-联合国人权理事会已经投票决定成立一个独立的调查委员会，作为俄罗斯入侵乌克兰的结果。
+参考链接：[2022年3月2日文贵大直播：乌克兰救援人道关怀；俄乌战争中国人遭恨；核战……](https://gettr.com/streaming/pxru0n55ba)
 
-理事会周五在推特上说：人权理事会已决定紧急成立一个独立的国际调查委员会，作为俄罗斯对乌克兰的侵略的结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-乌克兰常驻联合国代表叶夫根尼娅-菲利佩科在投票后说：来自世界各地区的联合国成员在理事会一起以最强烈的措辞谴责俄罗斯对乌克兰的侵略行为。给普京的信息已经很清楚了。普京在全球范围内被孤立了，整个世界都在反对普京。
+总编: Irene木木
+编辑: 谐趣园
+审核: 飞虹
+校正/发稿：Fei797
 
-俄罗斯和厄立特里亚–投票反对该决定，13个成员国弃权，包括中国、古巴、亚美尼亚、哈萨克斯坦、印度、乌兹别克斯坦和委内瑞拉。
-
-有32个国家对该决定投了赞成票。
-
-🔗 [联合国支持调查俄罗斯在乌克兰的侵略指控](http://联合国支持调查俄罗斯在乌克兰的如侵指控)
-
-编辑校对发布： Shuizhuyu
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

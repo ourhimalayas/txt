@@ -2,37 +2,40 @@
 ---
 
 
-## 概述美国对中共的帮助——巴黎和会与抗日时期
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2106547/)
+## 有声|欧洲议会投票承认乌克兰“欧盟候选国地位”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2106561/)
 
-作者：纽约香草山农场-静言
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-纵观近现代历史，每当中国遭遇难关之时，美国都在背后给予了极大的帮助。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间3月1日，欧洲议会绝大多数议员投票赞成一项象征性的议案，以确立乌克兰的欧盟正式候选国资格。但乌真正加入欧盟尚需一定时日。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/220301a040-740x411-1.jpg)
+此次投票是在27日欧盟委员会主席尔苏拉·冯德莱恩表态乌克兰必须加入欧盟，28日乌克兰总统泽连斯基火速提交加入欧盟的资格申请之后，做出的一项关于俄罗斯侵略乌克兰的动议，旨在支持乌克兰成为欧盟的正式候选国，以及对俄罗斯实施更严厉和更广泛的制裁等。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9.jpeg)
+分析人士指出，欧盟议会接受了乌克兰加入欧盟的申请，正式启动相关程序。乌克兰还需要进行大量的国内立法和改革，以符合欧盟现有框架及标准。这个过程需要一定的时间。
 
-1919年第一次世界大战后，巴黎和会期间，除却当时中国政府的官方代表团外，梁启超率领民间团队远赴巴黎，并亲自拜访美国总统威尔逊，请求他在和会上为中国主持公道。三年后，经由美国的多方斡旋，中国终于在华盛顿会议上从日本政府手中收回了对青岛及山东的全部权利。
+投票的最终结果为：637票赞成，26票弃权，另外有13票反对票。表决之前，泽连斯基通过视频发表了慷慨感人的演讲，获得全体议员站立鼓掌。
 
-到了抗日战争时期，罗斯福总统于1941年正式签署行政命令，授权陈纳德招募组建美国志愿航空队，协助中国对抗日本军队。随后的三年间，美国志愿航空队共击落和炸毁日军飞机两千六百余架，舰艇40余艘，击毙日军超过六万六千人。期间，美国志愿航空队和援华飞行队开辟“驼峰战略空运航线”，飞行总时间近150万个小时。而在后来与日本的停战谈判中，美国更是把日本从中国无条件撤军当作谈判的必要条件。
 
-在中共于1995年落成的抗日航空烈士纪念碑上，三千多名牺牲的空军中有超过两千一百名是美国飞行员。可以说，美国才是中国人民真正的朋友。
 
-参考链接：[历史上美国曾七次帮助中国度过难关](http://www.usaphoenixnews.com/news_show.php?id=344974)
+文字版原文：[欧洲议会投票承认乌克兰“欧盟候选国地位”](https://gnews.org/zh-hans/2100737/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
-
-总编：Irene木木
-编辑：Jack Li文阳，Irene木木
-审核：Jack Li文阳
-校正/发稿：谐趣园
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
