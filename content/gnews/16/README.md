@@ -2,30 +2,44 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月3日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2102744/)
+## 敏感时刻台湾大停电，中共军舰三次靠近台外海
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2102864/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-9-768x58-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-2.png)
+#### 【雅典娜观察】和您一起洞察世界
+
+翻译/编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-19.png)图片来源：阿波罗新闻网 & 雅典娜设计组
 
 
-校对：Stay文苑
+据台湾中央社报导，3月3日台湾上午突发大范围无预警停电，由于兴达电厂设备事故导致全台瞬间丧失1,050万瓩电力，约占全台1/3电力，造成500万户受到影响，不过北部地区中午前复电，南部午后陆续恢复供电。
 
-编辑：Stay文苑
+因发生时机敏感，停电引发广泛关注。台湾国家政策研究基金会军事专家李正修向大纪元表示，目前来看，应该是电厂操作失误所致，还看不出来与国安有任何关联性。
 
-发稿：Stay文苑
+台湾中央大学经济学系主任、管理学院副院长邱俊荣也表示，“经历长时间淬炼后，台湾人民不会因为此事就丧失信心，或者改变对政府、对两岸、对美台、对全世界局势的认识。”
 
-新闻：[https://gettr.com/post/py2mz08302](https://gettr.com/post/py2mz08302)
-访谈：[https://gettr.com/post/py2rg12c1e](https://gettr.com/post/py2rg12c1e)
+他说，针对中共普遍的“认知作战”，台湾人民的信念坚定、不容改变。所以这个突发性状况，即使是人为操纵，对整体局势来讲，不会有什么太严重的撼动作用。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-3.jpeg)
+过去几天，中共军舰三次靠近台湾外海。3月2日晚10时台湾军方监控到3艘中共军舰出现在兰屿东南方50海里处，逐渐往外移动；3日上午8时许发现在距兰屿东南方80海里海面，研判这些军舰将进入巴士海峡。这是自2月28日起中共军舰第三度出现在兰屿外海。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+海军人士告诉中央社记者，进入台海周边的舰船，国军联合监侦系统都能全程掌握、监控。
+
+邱俊荣表示，在两岸这么敏感的关系下，中共刻意透过飞机或军舰靠近台湾，“其实还是要告诉台湾，甚至全世界，它想要掌控台湾的想法其实没有改变，充其量就是这样而已。”
+
+近日，美国特使团日前旋风式访问台湾，拜登总统指派的跨党派资深代表团也会晤了总统蔡英文及其他政府高层，在“安全合作等议题上成果丰硕”，目前已离开台湾。
+
+外界分析，这是美方在警告中共不要趁俄乌战局激烈而轻举妄动。美国几位议员昨天提案针对中共祭出制裁措施，表示防止北京仿效莫斯科，以震慑中共侵台企图。
+
+参考链接：[敏感时刻台湾大停电 中共军舰3次靠近台外海](https://www.epochtimes.com/gb/22/3/3/n13619634.htm)
+
+*发布：tianhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

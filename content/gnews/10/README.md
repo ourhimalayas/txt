@@ -2,27 +2,30 @@
 ---
 
 
-## 岸田首相宣布，将 &#8220;尽快 &#8220;接受乌克兰难民
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2102840/)
+## 是时候该醒过来！严肃对待狂妄自大者了！
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2102909/)
 
-翻译：天天
+2022-03-03
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-337.png)mainichi.jp
+翻译：追郭大姨
+![](https://assets.gnews.org/wp-content/uploads/2022/03/C2TQ5XS_6I_LTPFD7.png)图片来源： https://www.thestar.com
+俄罗斯在乌克兰所施行的暴行，向全人类表明，自认为是世界主宰的独裁者们，是不会在乎实力不如他们的国家，更不会在乎这些国家的利益和这些国家人的生命。
 
-岸田文雄首相3月2日在首相官邸就乌克兰局势对记者说：’为了更进一步表明日本与乌克兰站在一起，我们将着手推进接受逃往第三国的人。 我们预计接受那些有熟人或亲戚在日本的人，但会从人道主义的角度来处理”。 岸田首相在与波兰和德国领导人就乌克兰局势进行了一系列电话讨论后，在首相官邸向记者作出上述声明。
+**评论：**独裁者们之所以用谎言暴力等等黑社会手段来阻止人们有真正的民主和自由，就是要牢牢攥着不受控制的“权力”。
 
-关于接受来自乌克兰的难民的时间，他说：“每天都有大量的难民产生， 我希望能尽快推进实际的程序。”
+从七哥的爆料中，更让我们清楚地知道了：外表光鲜亮丽的“权力”，内里却充满了黑暗和兽性。我们必须把权利这头兽，牢牢地关在笼子里。否则它就会游荡在人间，潜伏在黑暗中，瞪着狰狞的双眼，随时寻找着可吞吃人类的机会。如今的乌克兰就正在被这不受控制的兽大口吞吃着！
 
-在与乌克兰邻国波兰总理莫拉维茨基的会谈中，岸田总理要求在撤离在乌克兰的日本国民方面进行合作，莫拉维茨基说他将 “提供最大可能的支持”。 他与德国总统施泰因迈尔都表示，将加深与日本在乌克兰问题上的合作。
+是时候思考人类的未来了！是时候把这只兽牢牢关在笼子里了！
 
-来源：【mainichi.jp】[岸田首相、ウクライナ難民受け入れ表明　「至急、実務を調整」](https://mainichi.jp/articles/20220302/k00/00m/010/320000c)
+参考链接：
+[Time to wake up and take megalomaniacs seriously](https://www.thestar.com/opinion/contributors/2022/03/02/time-to-wake-up-and-take-megalomaniacs-seriously.html)
 
-* * *
+编辑：LILY
+发布：肥鯮
 
-审核:飞虎
-校对：宫米叶
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
