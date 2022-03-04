@@ -2,27 +2,16 @@
 ---
 
 
-## 视频|新中国联邦乌克兰救援行动乌克兰救援首战告捷
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2106720/)
+## 俄国轰炸乌克兰的核电厂
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2106721/)
 
-制作：香草山视频部
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/333.jpg)
+根据扎波罗热电厂的脸书的信息，3月4日，该电厂的1号机组已经被击中，有报道称俄罗斯炮击了乌克兰扎波罗热核电站，这个核电站也是欧洲最大的核电站，占乌克兰发电量的四分之一。目前该核电厂起火，金融市场反应强烈，国债、美元、日元和黄金等都随即大幅飙升。
 
-3月2日，郭文贵先生在大直播中宣布，在新中国联邦的努力救援下，身陷乌克兰战区的战友及其亲友已被成功解救，并已顺利到达波兰。新中国联邦的团队正准备飞往波兰，并可能在匈牙利、罗马尼亚建立基地。救援行动不分种族和国家，新中国联邦人不求名利、不图回报，只为救助更多的生命。
+普京大帝是否在制造一场世界级的金融危机，使世界陷入困境？这是不是也让习太阳的统一台湾的野心，导致中共国社会动荡？习太阳是不是要做台湾的救世主了？
 
-（请播放视频，视频时长3‘06“）
-
-视频链接：https://www.gettr.com/post/pxvwu67542
-
-发稿：Daxia
-
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**新闻来源：** [https://www.zerohedge.com/markets/futures-tumble-report-ukraine-nuclear-power-plant-europes-largest-fire-after-shelling](https://www.zerohedge.com/markets/futures-tumble-report-ukraine-nuclear-power-plant-europes-largest-fire-after-shelling)
 
  
 

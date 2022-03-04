@@ -2,29 +2,28 @@
 ---
 
 
-## 中日财经爆|印度指控华为逃税
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105073/)
+## 疫苗灾难显现：美国两周内至少有20人死于空难事故
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2105019/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2Fe40c55a9-8a47-41fb-8075-b96fe935746e.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2F2f5fc6c9-ca2b-496c-9783-b47bf060769d&amp;tbnid=YETnJcdcmjbbCM&amp;vet=12ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ..i&amp;docid=xHuUh4vOZwW9NM&amp;w=2400&amp;h=1350&amp;q=%E5%8D%8E%E4%B8%BA&amp;ved=2ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ)
-路透社3月3日报道，一位印度政府消息人透露，印度对中共国电信设备制造商华为的一项税务调查发现，华为操纵账簿以减少其在印度的应税收入。
+#### 翻译/撰稿：zzballack
 
-印度财政部并未指明是哪一家公司，仅称在上月对一家大型电信集团位于印度三个城市的办事处进行所得税突击检查时，该集团“未能就纳税申报问题提供任何实质性和适当的理由”。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-3-1.jpg)图片来源：推特
+据《自然新闻》（Natural News）3月3日报道，一个追踪与新冠病毒有关事件的博客The Covid Blog报告说，在2月份的两周时间里，美国至少有20人在私人飞机和直升机坠毁事故（分别有4架直升机和7架私人飞机坠毁）中死亡。
 
-印度当地媒体2月16日援引官方消息报导，印度税务部门对中共国电信设备制造商华为在印度的多处办公场所进行了搜查，此为逃漏税调查的一部分，近期对中共国几家智能手机企业也进行了相关调查。
+USHST（The U.S. Helicopter Safety Team，美国直升机安全小组）报告说，在2019年有122起直升机事故，51人死亡。在大流行第一年2020年，有92起事故，35人死亡，数量少是因为疫情导致航空旅行受限，飞机被停飞了数月。但自2021年开始，死于坠机事故的人开始增多。
 
-新德里电视台（NDTV）援引印度报业托拉斯（Press Trust of India）报导，官员们查看了财务文件、账簿和公司记录、华为的印度业务和海外交易。
+USHST的数据记录了每月每10万个飞行小时发生的致命事故数量。一般来说，每10万个小时超过一起致命事故的情况非常罕见，任何低于1的数字都被认为是正常的。国家运输安全委员会（NTSB）认为每10万飞行小时超过1人死亡都是非常高的数字。但在2021年，有三个月该数据超过了基准值1，其中12月达到高峰每10万飞行小时就有2.08起致命事故。大多数美国人通常很少关注直升机坠毁事件。但在今年2月，网络上的“直升机坠毁（helicopter crash）”搜索开始呈上升趋势。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-18.png)
+报告指出，在2个星期、14天内发生11起坠机事故并不一定不寻常。但其中的高死亡率引起了人们关注，至少有20人在这些坠机事故中死亡，这在任何方面都是不正常的。按照14天内有20人死亡推断，2022年将有520人死于航空事故。换句话说，今年的航空事故很可能比其他任何一年都多，而且可以肯定的是因此而死亡的人数也会多得多。
 
-消息来源:
+虽然不可能知道这些事故的原因，但考虑到这些事故发生在新冠疫苗及其加强针的接种剂数处于最高值之时，自疫苗被大范围推广以来，出现了很多奇怪的、不寻常的现象：原本健康的人突然死亡、飞机和直升机频频坠毁、汽车司机突然失控无缘无故地撞车等等。这不可能都是巧合。
 
-[印度指控华为逃税–印政府消息人士](https://cn.reuters.com/article/india-huawei-sources-0303-thur-idCNKCS2L013W?il=0)
+新闻来源：
 
-[中日财经爆|华为因逃漏税被印度税务机关搜查](https://gnews.org/zh-hans/2017942/)
+[What’s going on? Unusual number of private plane, helicopter crashes kill nearly two dozen in two weeks](https://www.naturalnews.com/2022-03-03-plane-helicopter-crashes-kill-dozen-two-weeks.html)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
-
+[Mayday: Four helicopters, seven private planes crash in United States in 14 days, at least 20 people dead](https://thecovidblog.com/2022/02/28/mayday-four-helicopters-seven-private-planes-crash-in-united-states-in-one-week-20-dead/)
 
  
 
