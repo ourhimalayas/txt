@@ -2,24 +2,41 @@
 ---
 
 
-## 樱花FM|俄乌首轮谈判未果 普京提三诉求三承诺
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2105152/)
+## 自3月4日起，南澳大利亚警方取消了疫苗强制
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2105288/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/AEfE5CR3TCVFQtQv5z9J3x83KnCzaAiWKCayB8pdYe0ZzIh5BeNvrpAJr5-L4P0VXhGtzG6yNzdcf2cLdlK9ONftdaLixNHcCyhhBb6kFPHcrKYOedocRp6kZodbBWMX1I5qAY9f)
-俄罗斯与乌克兰28日的谈判未果，但双方表示会持续沟通。与此同时，乌克兰总统泽连斯基与俄罗斯总统普京各自提出新的诉求，其中泽连斯基呼吁各国机场与港口禁止俄罗斯飞机与船只进入。泽伦斯基持续寻求国际社会支援，他2月28日呼吁国际社会在乌克兰设立禁飞区，禁止俄罗斯在全球范围内进入港口。他指控俄罗斯自24日入侵乌克兰以来，朝该国发射了100多枚巡航导弹。泽伦斯基还呼吁全球的机场与海港禁止悬挂俄国旗的飞机与船只进入，他在个人脸书说：“我们必须禁止俄罗斯使用所有港口、所有航道和机场。”他还敦促国际社会考虑禁止俄导弹、飞机和直升机通过他们的领空。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-与此同时，俄乌双方在白俄罗斯边境的谈判也暂时中断，双方将在未来几天举行第二回合的谈判。俄方代表团团长梅丁斯基 表示：“我们同意继续谈判。”两国代表团将返回各自的首都，在第二轮会谈前与该国政府进一步磋商，谈判持续约6个小时。
+翻译/编辑：文泓
 
-普京28日下午再次与马克龙通电话，通话结束后法国政府表示，普京愿意做出三点承诺，包含“停止袭击乌克兰平民、保护民用基础设施与为想离开基辅的人民提供安全通道”。称普京提出了他对乌克兰的诉求，并强调第一 ，莫斯科要求乌克兰保持“中立地位”。第二，持续推动乌克兰的“非军事化”和“去纳粹化”。第三，承认俄罗斯对克里米亚的控制权，该半岛于2014年被俄罗斯非法占有。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-12.png)图片来源：Leader & 雅典娜设计组
 
-同日，乌克兰总统泽伦斯基在其脸书发布了一张他签署让乌克兰加入欧盟的照片。此前，欧盟委员会主席冯德莱恩在接受媒体访问时表示，欧盟可能会在3月份的非正式峰会上讨论乌克兰加入的可能性。她说，“乌克兰是欧盟的一员，我们希望他们加入。”乌克兰政府对此表示，该呼吁是为了“通过新的特别程序使乌克兰立即加入欧盟”。
 
-文字版原文：[俄乌首轮谈判未果 普京提三诉求三承诺](https://gnews.org/zh-hans/2089216/)
+当地时间3月4日，澳大利亚南澳大利亚警察局宣布，他们将于3月4日[取消疫苗接种](https://www.police.sa.gov.au/sa-police-news-assets/front-page-news/revocation-of-the-police-workers-vaccination-direction#.YiGsMuhByF4)令，允许该州拒绝接种新冠疫苗的警察重返工作岗位。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+3月7日上午7时，《警务人员疫苗接种指令》将被撤销，并由管理指令取代，未接种疫苗的员工能够返回工作场所。但是，他们将被要求去到警局后立即进行快速抗原检测，并在每天轮班期间戴上口罩。
+
+南澳警察局长格兰特·史蒂文斯说，他有信心南澳警察部队可以管理正在进行的大流行病对警官和社区成员造成的风险，而不必让未接种疫苗的工作人员休假。
+
+然而，史蒂文斯表示，尽管能够恢复他们的实质性职责，但未接种疫苗的工作人员会遇到一些限制。例如，这些官员可能会被限制进入高风险环境，例如住宅老年护理和残疾设施以及法医学大楼。
+
+此外，史蒂文斯表示，他正在与仍然有强制性疫苗接种政策的机构和部门接触并寻求建议，同时考虑到正在实施的《紧急管理法指示》。
+
+当日，该州记录了106例新冠病例，其中3月4日有9例在重症监护室。
+
+州长史蒂文·马歇尔表示，尽管南澳每天的新冠病例数将继续波动，但政府的首要任务是保持较低的住院人数。
+
+参考链接：[South Australia Police Removes Vaccine Mandates (theepochtimes.com)](https://www.theepochtimes.com/south-australia-police-removes-vaccine-mandates_4316187.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

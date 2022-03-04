@@ -2,32 +2,32 @@
 ---
 
 
-## IAEA谴责俄罗斯入侵乌克兰 中共国投反对票
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105063/)
+## 樱花FM|避重就轻? 8孩案嫌犯被认定“虐待罪”最多判2年
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2105215/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片8.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.aljazeera.com%2Fwp-content%2Fuploads%2F2021%2F05%2F2021-05-24T101944Z_143477179_RC2AMN9I2875_RTRMADP_3_IRAN-NUCLEAR-IAEA.jpg%3Fw%3D770%26resize%3D770%252C513&amp;imgrefurl=https%3A%2F%2Fwww.aljazeera.com%2Feconomy%2F2021%2F5%2F27%2Firan-nuclear-deal-are-iaea-safeguards-dangerously-obsolete&amp;tbnid=VoISnkUsMzszCM&amp;vet=12ahUKEwir8cLy-Kv2AhWngGMGHXZeBUQQMygOegUIARDLAQ..i&amp;docid=Dlyenrh0psuPfM&amp;w=770&amp;h=513&amp;q=IAEA&amp;ved=2ahUKEwir8cLy-Kv2AhWngGMGHXZeBUQQMygOegUIARDLAQ)
-联合国核监督机构–国际原子能机构(IAEA)的理事会周四（3月3日）通过了一项决议，谴责俄罗斯入侵乌克兰，并呼吁俄罗斯让乌克兰控制其所有核设施，只有两票反对。
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/P8DEdel5W3XDkuWo536xHlbT9F4x_E3V1Og2Gs499dmmIUUROQXyS7rzRXVX4tpNZivqY9k9SeEKFdiWJ1D96oApeOX_Sk4mqubZSEkCdQAN7DOru5AGmeG1VPEV9t-eoGN4lT2o)
+据【看中国】2022年3月1日综合报导，徐州“8孩母”案在各界压力下，中共官方陆续提出多份调查报告，但内容说词却前后矛盾，为此，超过800名人大、北大、清华和山东大学校友呼吁官方公开调查结果，但官方始终保持沉默。近日一则铁链女丈夫董志民“涉嫌虐待罪”、最多判处2年的消息，再度引发社会震惊。
 
-IAEA理事会在其决议中说，“对俄罗斯联邦在乌克兰的行动予以谴责”。
+**北大清华等800校友要求公开真相 官方沉默**
 
-两名外交官说，有26个国家投了赞成票，两个国家投了反对票，五个国家弃权。
+1月27日以来，徐州官方发布4次自相矛盾的通报引发争议后，江苏省委省政府于再于2月17日成立调查组对此案进行深入调查核查，并于23日发布通报称，受虐“8孩母”就是云南的“小花梅”而非四川的“李莹”，且8个孩子均由她所生，这一结果难释群疑。
 
-一位外交官说，俄罗斯和中共国投下反对票，巴基斯坦、印度、南非、塞内加尔和越南弃权。他们补充说，墨西哥和布隆迪(蒲隆地)缺席。
+而此前，100名北京大学校友及在校生，也曾于2月15日联名向中共中央、中国国务院发表公开信，要求彻查徐州8孩案，给全国人民权威答复。但迄今，中共官方也未给公众一个合理答复，甚至刻意低调处理此案，甚至淡化民间提出的诸多疑点。
 
-国际原子能机构（英语：International Atomic Energy Agency，缩写：IAEA）是致力于和平发展原子能的独立政府间国际组织，成立于1957年7月29日，为联合国系统的一部分。总部位于奥地利首都维也纳。其在2005年10月6日因“防止核能被用于军事目的，并确保最安全的和平利用核能”而获得诺贝尔和平奖。
+**董志民涉嫌“虐待罪”被捕 民间错愕**
 
-截至2020年9月17日，共有172个成员国。机构的组织机构包括大会、理事会和秘书处。
+最让人感到惊讶的是，江苏政府承认“8孩母”24年间至少被转卖3次，却以涉嫌“虐待罪”逮捕董志民，同时回避拐卖妇女以及强奸等不法行为。
 
-理事会（英文：Board of Governors）是机构的决策机构，执行机构的各项任务。
+微博拥有7.4万粉丝的“林波律师”2月27日写道，“听说董志民正在找律师，有要去为他辩护的律师吗？虐待罪也不重，像他这样最多判2年，说不定还是缓刑。”他还指出，“如果是合法夫妻，就不会被认定为强奸。”
 
-消息来源:
+**中共最擅长的是“耍花枪”，花枪一耍，套路一用，在你眼花缭乱还没看明白个中原由之时，就利用中共所谓的“权威”、“专家”进行指鹿为马、盖棺定论。虽说个中逻辑不清不晰，不明不白，你还真拿他没辙。这就是中共，街头混混文化的集大成者，不要脸的典范。中共从来不可能真正的去解决问题，他解决的是提出问题的人。况且作恶的本就是中共，中共上下沆瀣一气，互相勾连，共同做恶，系统犯罪，体制犯罪，得出什么样的结论也就不足为奇了。**
 
-[IAEA理事会对俄罗斯入侵乌克兰予以“谴责” 只有两票反对](https://cn.reuters.com/article/iaea-condemns-russia-0303-thur-idCNKCS2L1041?il=0)
+文字版原文：[避重就轻? 8孩案嫌犯被认定“虐待罪”最多判2](https://gnews.org/zh-hans/2090845/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

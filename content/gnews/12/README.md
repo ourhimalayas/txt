@@ -2,30 +2,26 @@
 ---
 
 
-## 中日财经爆|印度指控华为逃税
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105073/)
+## 樱花FM|6000同胞受困，“厉害国”去哪了？阳痿了？
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2105216/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2Fe40c55a9-8a47-41fb-8075-b96fe935746e.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2F2f5fc6c9-ca2b-496c-9783-b47bf060769d&amp;tbnid=YETnJcdcmjbbCM&amp;vet=12ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ..i&amp;docid=xHuUh4vOZwW9NM&amp;w=2400&amp;h=1350&amp;q=%E5%8D%8E%E4%B8%BA&amp;ved=2ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ)
-路透社3月3日报道，一位印度政府消息人透露，印度对中共国电信设备制造商华为的一项税务调查发现，华为操纵账簿以减少其在印度的应税收入。
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/Z6vAeP5xSsrPvm8bIGcawKbug5RP3p291YzL3oSVxhO6VPNVQvm0XmGRyOUMuXSVy5vEpH1I4_wQ4wtO7vpVkYiXMQZBQ221FepxBHCJoTw8qPPwr9mJPTSDlTmEdwmbyLr1vKEI)
+据【看中国讯】2022年3月1日综合报导，俄罗斯入侵乌克兰的战争自2月24日至今已进入第5天，笼罩在战争阴影下的在乌中国公民面临生死危机，但中国驻乌克兰大使馆却于27日改口宣称，撤侨行动不能展开。就在中共说“撤侨难”的同时，台湾已紧急启动撤侨计划并陆续接走侨民，令中共官方尴尬不已，无法对外界作出合理解释。
 
-印度财政部并未指明是哪一家公司，仅称在上月对一家大型电信集团位于印度三个城市的办事处进行所得税突击检查时，该集团“未能就纳税申报问题提供任何实质性和适当的理由”。
+美国之音报导，在俄乌开战前的多个星期，美国、英国以及日本等多国就已从乌克兰撤离外交人员并敦促国民立即离乌，而中共政府直到开打后的25日才宣布“启动包机撤侨”。然而，就在当地中国公民苦苦等待、一再询问撤侨包机何时飞之际，中国驻乌克兰大使馆27日又改口称，由于俄乌战争局势不断升级，原本启动的“撤侨计划”不能展开，但官方未具体说明究竟遇到什么“实际困难”。
 
-印度当地媒体2月16日援引官方消息报导，印度税务部门对中共国电信设备制造商华为在印度的多处办公场所进行了搜查，此为逃漏税调查的一部分，近期对中共国几家智能手机企业也进行了相关调查。
+据多名受困乌克兰的中国人在社交平台透露，战争爆发超过90个小时，但受困在当地的至少6000多名中国留学生和商人仍无法撤离，面临巨大危险。自由亚洲电台调查发现，这些在乌克兰的中国公民若真遇到危险，哪怕是因战火无家可归，向中国驻乌克兰大使馆求助，官方也不会帮助。
 
-新德里电视台（NDTV）援引印度报业托拉斯（Press Trust of India）报导，官员们查看了财务文件、账簿和公司记录、华为的印度业务和海外交易。
+面对中共官方的“难撤侨”，**台湾外交部却紧急启动撤侨计划并成功协助18名侨民抵达波兰**。据受困华人在社交平台透露，到2月28日，台湾外交部已将当地台湾人逐个接走，他们直接在车上贴上青天白日旗，一路通过乌克兰、波兰边境检查站，但中国大使馆内却无人愿意做这样的事情，且关于台湾安全撤侨的消息，他们甚至都禁止在微博或微信内讨论，否则就面临封号。
 
-消息来源:
+**中共貌似骄傲都骄傲在抖音上，厉害都厉害在外交官的嘴上。泱泱大国，逞能的时候理直气壮，阳痿的时候一蹶不振，靠嘴炮糊起来的大国，也就过过嘴瘾罢了。中共的假恶丑无人能及，靠演戏过活的中共，从来不会把精力用在人民的福祉上。中共的舆论控制帮了中共，也成就了中共一事不成的尴尬。**
 
-[印度指控华为逃税–印政府消息人士](https://cn.reuters.com/article/india-huawei-sources-0303-thur-idCNKCS2L013W?il=0)
+文字版原文：[6000同胞受困，“厉害国”去哪了？阳痿了？](https://gnews.org/zh-hans/2090846/)
 
-[中日财经爆|华为因逃漏税被印度税务机关搜查](https://gnews.org/zh-hans/2017942/)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
-
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

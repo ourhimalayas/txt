@@ -2,29 +2,18 @@
 ---
 
 
-## 日经平均指数一度贬值800日元 乌克兰核电站攻击报道推动下跌
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2105118/)
+## 樱花FM|日本知名政治评论家：日本打疫苗可能死了几万人
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2105218/)
 
-**翻译：宫米叶**
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/Mafs6kbs5T4vdWPSLW8SmZf0vIUmP5bwttAA385vbtcHBIGaaMIGJ-Fdr97l5jqV7WRCCpC_NIrVbs1mMA39z_-UjC2aMdlBnYPcEYBR8ryTaNKwp9f56gew5kSjTCiwzxllrunh)
+近日，日本政治评论家竹田恒泰在自己的直播中提到，自己熟人的熟人里面就有10人以上打完疫苗死去了。并且一次和朋友吃饭的时候，4个人里面有两个人都有认识的人打疫苗死去的经历。他认为政府统计到的1500人太少了，真实数据有可能有几万人死去。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip战争导致货币下跌.png)图片来源：news.yahoo.co.jp
+文字版原文：[日本知名政治评论家：日本打疫苗可能死了几万人](https://gnews.org/zh-hans/2088920/)
 
-4日上午，乌克兰东南部扎波罗热核电站遭到俄军攻击的报道传出后，东京股市日经平均指数卖出量大增。上日收盘比降幅一度超过800日元。上午10点同比下降660日元46钱，为2.5916日元81钱。
-
-3日，俄乌双方代表团经谈判未能达成停火协议，导致纽约股市道琼斯工业指数30种平均值前景不确定感蔓延，收盘时仍有下跌。4日东京市场也继承了这一趋势，核电站攻击受到攻击的消息更加推动了下跌。
-
-**新闻来源**：[news.yahoo.co.jp][日経平均一時800円安　ウクライナ原発攻撃報道で下落に拍車](https://news.yahoo.co.jp/articles/38c15ee6e95b6d2642b58b376635258ce98a0798)
-
-* * *
-
-***审核：BryanW 
-校对：zicoround
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
-
-
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

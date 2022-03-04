@@ -2,28 +2,18 @@
 ---
 
 
-## 疫苗灾难显现：美国两周内至少有20人死于空难事故
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2105019/)
+## 俄乌战争｜蓬佩奥：中共若执意援助 下个制裁恐是中共银行及金融体系
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2105057/)
 
-#### 翻译/撰稿：zzballack
+**撰文/ 港台前线｜发布日期/ 04/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-11.png)更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
+2月，中共习近平与俄罗斯普丁发表联合声明，反对北约（NATO）东扩，并宣称中俄将建立真正“民主”的全球新秩序。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-3-1.jpg)图片来源：推特
-据《自然新闻》（Natural News）3月3日报道，一个追踪与新冠病毒有关事件的博客The Covid Blog报告说，在2月份的两周时间里，美国至少有20人在私人飞机和直升机坠毁事故（分别有4架直升机和7架私人飞机坠毁）中死亡。
+美国前国务卿蓬佩奥（Mike Pompeo）于4日下午记者会特别警示中共，在此次俄罗斯侵略乌克兰，中共若执意经济援助俄国，那“下一个受制裁的恐怕是中共的银行及金融体系”。
 
-USHST（The U.S. Helicopter Safety Team，美国直升机安全小组）报告说，在2019年有122起直升机事故，51人死亡。在大流行第一年2020年，有92起事故，35人死亡，数量少是因为疫情导致航空旅行受限，飞机被停飞了数月。但自2021年开始，死于坠机事故的人开始增多。
+蓬佩奥提到，这次全球限制俄罗斯的经济，主要是针对其对外贸易能力、金流、物流等，尤其是俄罗斯的金融交易能力“求援的对象似乎只剩中共了”。
 
-USHST的数据记录了每月每10万个飞行小时发生的致命事故数量。一般来说，每10万个小时超过一起致命事故的情况非常罕见，任何低于1的数字都被认为是正常的。国家运输安全委员会（NTSB）认为每10万飞行小时超过1人死亡都是非常高的数字。但在2021年，有三个月该数据超过了基准值1，其中12月达到高峰每10万飞行小时就有2.08起致命事故。大多数美国人通常很少关注直升机坠毁事件。但在今年2月，网络上的“直升机坠毁（helicopter crash）”搜索开始呈上升趋势。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-18.png)
-报告指出，在2个星期、14天内发生11起坠机事故并不一定不寻常。但其中的高死亡率引起了人们关注，至少有20人在这些坠机事故中死亡，这在任何方面都是不正常的。按照14天内有20人死亡推断，2022年将有520人死于航空事故。换句话说，今年的航空事故很可能比其他任何一年都多，而且可以肯定的是因此而死亡的人数也会多得多。
-
-虽然不可能知道这些事故的原因，但考虑到这些事故发生在新冠疫苗及其加强针的接种剂数处于最高值之时，自疫苗被大范围推广以来，出现了很多奇怪的、不寻常的现象：原本健康的人突然死亡、飞机和直升机频频坠毁、汽车司机突然失控无缘无故地撞车等等。这不可能都是巧合。
-
-新闻来源：
-
-[What’s going on? Unusual number of private plane, helicopter crashes kill nearly two dozen in two weeks](https://www.naturalnews.com/2022-03-03-plane-helicopter-crashes-kill-dozen-two-weeks.html)
-
-[Mayday: Four helicopters, seven private planes crash in United States in 14 days, at least 20 people dead](https://thecovidblog.com/2022/02/28/mayday-four-helicopters-seven-private-planes-crash-in-united-states-in-one-week-20-dead/)
+來源｜[YAHOO](https://tw.stock.yahoo.com/news/%E8%93%AC%E4%BD%A9%E5%A5%A7%EF%BC%9A%E7%BE%8E%E8%8B%A5%E5%9F%B7%E6%84%8F%E6%94%AF%E6%8F%B4%E4%BF%84-%E3%80%8C%E4%B8%80%E4%B8%8B%E5%80%8B%E5%88%B6%E8%A3%81%E7%9A%84%E6%81%90%E6%98%AF%E4%B8%AD%E5%9C%8B%E7%9A%84%E9%8A%80%E8%A1%8C%E5%8F%8A%E9%87%91%E8%9E%8D%E9%AB%94%E7%B3%BB%E3%80%8D-070809557.html)
 
  
 
