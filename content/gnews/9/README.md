@@ -2,86 +2,57 @@
 ---
 
 
-## 乌克兰议会议员阿列克谢·贡恰连科公开谈论俄罗斯入侵乌克兰
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2102201/)
+## 3/3 银河快讯:俄罗斯直升机侵犯日本近海领空；美国主要石油公司将退出俄罗斯&#8221;萨哈林1号&#8221;项目
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2102233/)
 
-Alexy Goncharenko (Ukraine parliament member)
-阿列克谢·冈察连科（乌克兰议会议员）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220303-00000029-ann-000-1-thumb.jpeg)
+[图片资源](https://news.yahoo.co.jp/articles/72cf0c6f29ff18fb162ea298a59638b51b0fec70)
 
-Really, for the first time in human history
-真的，人类历史上第一次
+**1. 俄罗斯直升机侵犯根室近海领空**
 
-and for the moment for the laws gave up our nuclear weapons arsenal
-而且在那时刻也是在法律上放弃了我们的核武器库
+[据共同社3月2号报道，防卫省宣布，这架飞机在侵入日本领空时，面对多次接近及入侵领空警告没有回应。外务省通过外交渠道向俄罗斯提出了严正抗议，并强烈敦促其防止再次发生此类事件。防卫省表示，”俄罗斯在日本周围变得越来越活跃。我们将采取一切可能的措施进行警惕性监测和信息收集”。正在对详细的飞行情况进行分析。](https://news.yahoo.co.jp/articles/d1c3a754946c419bed9e5a76931fc69258dca227)
 
-and it was the moment the third biggest in the world
-而且那是世界第三大的核武器库
+**2. 美国主要石油公司将退出 俄罗斯”萨哈林1号”项目**
 
-and we receive guarantees from the United States，United Kingdom and the Rus-sian Federation
-当时，我们得到美国、英国和俄罗斯联邦的保证
+[据NHK3月2号报道，萨哈林1号和萨哈林2号是俄罗斯远东萨哈林东北海岸的主要石油和天然气开发项目之一，日本也深入参与其中。在该项目中发挥核心作用的美国大型石油公司埃克森美孚宣布，它将启动退出该项目的程序。日本政府在SODECO-萨哈林油气开发公司中拥有50%的股份，主要贸易公司伊藤忠商事株式会社和丸红株式会社通过此公司保有30%的开发权益。](https://www3.nhk.or.jp/news/html/20220302/k10013509241000.html?utm_int=news-business_contents_news-main_005)
 
-But now you see what guarantees we have
-但现在你看到了我们没有得到什么保证
+**3. 由于经济制裁的影响，本田暂停向俄罗斯出口汽车和摩托车**
 
-instead of guarantees, we have missiles in our residential areas
-我们没有保证，而发生的是导弹射向了我们的住宅区
+[据NHK3月2号报道，由于俄罗斯军事入侵乌克兰所造成经济制裁不断加强的情况下，汽车制造商本田公司决定暂停向俄罗斯出口乘用车和摩托车。经济制裁的影响正在向制造业蔓延。对俄罗斯的经济制裁导致物流混乱，使货物难以通过船舶运输，在此之上还不得不考虑未来有无法结算付款或收回资金的风险。](https://www3.nhk.or.jp/news/html/20220302/k10013509871000.html?utm_int=news-business_contents_news-main_003)
 
-That one that you showed in kharkiv, unfortunately, did not explode
-不幸的是，你在哈尔科夫中展示的那个没有爆炸
+**4. 日本、美国、欧洲和其他国家同意协调释放石油库存以确保稳定的原油供应**
 
-but we have a missile attack on Kyiv where I am now Pavlograd
-但我们的基辅受到导弹袭击，我现在是在巴甫洛格勒
+[据NHK3月2号报道，由于担忧俄罗斯军事入侵乌克兰影响石油稳定供应，由日本、欧洲和美国等能源消费国组成的IEA(国际能源署)于日本时间1日在举行了一次特别部长级网络会议，日本经济产业大臣萩生田出席了会议。国际能源署成员国共同认为，在俄罗斯入侵乌克兰之后，需要共同努力稳定能源市场。](https://www3.nhk.or.jp/news/html/20220302/k10013508841000.html?utm_int=all_side_business-ranking_002)
 
-where this morning people met with a missile
-今天早上人们遭到导弹袭击的地方
+**5. 支持乌克兰 各种团体呼吁捐款**
 
-which shot in the big residential house
-并且击中了大的居民房屋
+[据NHK3月2号报道，对俄罗斯入侵乌克兰，日本各种团体呼吁通过捐款支援乌克兰。](https://www3.nhk.or.jp/news/html/20220302/k10013510101000.html?utm_int=news-social_contents_list-items_023)
 
-and it looks like it started burning
-看起来它开始燃烧了
+日本红十字会联系电话03-3437-7082
 
-and it was it looked very much similar
-而且它看起来非常相似
+联合国儿童基金会联系电话0120-88-1052
 
-as the Twin Towers terrible terroristic attack on September 11
-就像 9 月 11 日的双子塔恐怖袭击那样
+联合国难民署协会请联系0120-540-732
 
-And now we are under such attack from Russian Federation
-现在我们正受到俄罗斯联邦的攻击之下
+国际非政府组织 “拯救儿童 “联系电话是0120-317-502
 
-which is definitely the State terrorist now
-这绝对是国家恐怖分子
+国际非政府组织Adora Japan请联系03-5410-0045
 
-and we have a big losses of civilians for the moment
-目前我们有大量平民损失
+非政府组织 “日本援助和救济协会 “请联系03-5423-4511
 
-We have 198 civilians killed, including three children
-我们有 198 名平民丧生，其中包括三名儿童
+非营利组织 “日本和平之风 “联系电话是0120-252-176
 
-and that’s awful, that’s a real genocide in the middle of Europe in the 21st century
-这太可怕了, 这就是21世纪发生在欧洲中部真正的种族灭绝
+[各团体呼吁捐款用于发送必要的救援物资，为儿童建立疏散庇护所心理护理，支持流离失所者，并确保食品和其他救济物资，分发口罩和牙刷等卫生用品，食品和卫生用品，并协调疏散人员的家庭住宿，支持医院的医疗用品等。](https://www3.nhk.or.jp/news/html/20220302/k10013510101000.html?utm_int=news-social_contents_list-items_023)
 
-**原视频链接**[https://twitter.com/newsmax/status/1497621223915802630?s=24](https://twitter.com/newsmax/status/1497621223915802630?s=24)
+**6. 岸田首相宣布，接受乌克兰难民**
 
-Date:02/28/2022
-原视频标题: Ukrainian Parliament member Alexey Goncharenko speaks out about the Russian invasion of Ukrai
-乌克兰议会议员阿列克谢·贡恰连科公开谈论俄罗斯入侵乌克兰
-原视频日期：2022/02/27
-原视频链接https://twitter.com/newsmax/status/1497621223915802630?s=24
-任务编号：KE428（3871）
-视频时间段 : 0:00-1:13
+[据ABEMA TIMES报道，在与德国总统施泰因迈尔和波兰总理莫拉维茨基进行电话交谈后，岸田首相告诉记者，他将推动为面临困难的乌克兰人民提供紧急人道主义援助，并接受因避难而离开其国家的人进入日本。首先将接受那些在日本有亲戚和熟人的人，但将并不局限于此这，从人道主义的角度来处理。我们希望从现在开始进行具体的调整。](https://news.yahoo.co.jp/articles/f253b3e93901da869ea7d4e455669644c44a4d00)
 
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+**【日本银河系农场-阿尔法星球】**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**中文文案：返朴归真**
+
+**校对：Tagomi**
 
  
 

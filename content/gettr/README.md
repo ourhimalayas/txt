@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/4/2022 12:30 AM (UTC)`
+
+3/2/2022 Miles Guo: Even Singapore, the most pro-communist country,  does not support Russia, and anyone who supports Russia's invasion of Ukraine may receive a lifetime entry ban to Singapore; it is a stupid suicidal idea that the CCP asked the Chinese in Ukraine to stick China’s flag on their cars, which has endangered many Chinese<br/><br/>3/2/2022 文贵直播：即使最亲共的新加坡也不支持俄罗斯，任何支持俄罗斯入侵乌克兰的人都可能被终身拒绝入境；中共让在乌克兰的中国人往车上贴中共国旗，简直是一种愚蠢的自杀行为，已有多人因此受到伤害
+![img](https://media.gettr.com/group12/getter/2022/03/04/00/56b02972-d5c0-080c-9dce-c514bbe5f0e4/out.jpg)
+
+---
+
 `@miles 3/3/2022 11:44 PM (UTC)`
 
 3/3/2022 Miles Guo’s GETTR: Three families of our fellow fighters rescued by us have arrived in Warsaw. 100% of the fellow fighters of the New Federal State of China in Ukraine have been rescued. David and many other fellow fighters have arrived in Poland. We will soon provide two free rescue flights, one to the U.S. and Canada and the other one to Southeast Asia.<br/><br/>3/3/2022 文贵盖特：从乌克兰救出来的3家战友已到华沙，新中国联邦在乌克兰的战友100%被救出；大卫等战友们在波兰汇合；很快我们将有两架免费救援飞机，一架去美加，一架去东南亚<br/>
@@ -149,13 +156,6 @@ We’ve seen this coming, and we’ve been reactionary. That gave Vladimir Putin
 
 3/2/2022 Miles Guo: The CCP manipulates people by hiding the truth and controlling the media; more than 20 Chinese citizens have been killed in Ukraine, but the CCP disallows any report of the news; Putin is repeating Hitler's trick of fabricating stories to justify his war <br/><br/>3/2/2022 文贵直播：隐瞒真相控制媒体是中共控制人民的手段；有20多个中国人已在乌克兰战争中罹难，但中共不允许消息被报道出去；普京正在重施希特勒的伎俩，要用弥天大谎为他的战争找借口<br/>
 ![img](https://media.gettr.com/group5/getter/2022/03/02/22/0f4abce5-abf6-2304-6c61-082bc2e80166/out.jpg)
-
----
-
-`@miles 3/2/2022 10:08 PM (UTC)`
-
-03/02/2022 Miles Guo: The fellow fighters of the New Federal State of China are flying to Poland and other Eastern European countries to set up rescue bases;  the rescue led by the New Federal State of China does not distinguish between races and nations, we neither ask for money or seek any profit, nor expect any returns, the only goal is to save all the lives in need in the war zone.<br/><br/>3/2/2022 文贵直播：新中国联邦人正在飞往波兰等东欧国家，将在那里建立营救基地；新中国联邦的营救不分种族和国家，不要你一分钱，不图你任何利益和回报，只为拯救在战区所有需要救助的生命。<br/>
-![img](https://media.gettr.com/group33/getter/2022/03/02/22/cfd469ad-2cf1-7462-7c38-4ec741e0c6ee/out.jpg)
 
 ---
 

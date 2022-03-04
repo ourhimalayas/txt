@@ -2,38 +2,86 @@
 ---
 
 
-## 参议员卢比奥: 普京的（精神）健康出了问题
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2102178/)
+## 乌克兰议会议员阿列克谢·贡恰连科公开谈论俄罗斯入侵乌克兰
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2102201/)
 
-#### 编译: Cran
+Alexy Goncharenko (Ukraine parliament member)
+阿列克谢·冈察连科（乌克兰议会议员）
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16463483721.png)[Image source](https://www.youtube.com/watch?v=iKrF7yC0Cc8)
-郭文贵先生曾在大直播中谈到, 普京过去的一些年是非常寂寞的，一位曾经如此爱出风头的人被世界冷漠的太久了。
+Really, for the first time in human history
+真的，人类历史上第一次
 
-在英国2月28日的大都会网站, 刊登了一篇有关普京心里健康的评论文章。在题为 “因为被隔离在地堡下, 普京的脑子混乱了” 的文章中, 作者丹尼尔, 宾斯 (Daniel Binns) 认为，新冠疫情期间长时间的隔离, 可能助长了弗拉基米尔·普京的“偏执狂”和“地堡心态”。
+and for the moment for the laws gave up our nuclear weapons arsenal
+而且在那时刻也是在法律上放弃了我们的核武器库
 
-俄罗斯国际事务委员会（Russian International Affairs Council）负责人安德烈·科尔图诺夫（Andrey Kortunov）对英国广播公司（BBC）表示，入侵俄罗斯的决定令普京自己的官员感到惊讶和震惊。
+and it was the moment the third biggest in the world
+而且那是世界第三大的核武器库
 
-据称，如果普京核心圈子里的人需要面见他，就必须在会面之前隔离两周。另外，那些与他接触最多的亲信，必须每周数次提供粪便样本，以检查感染情况。
+and we receive guarantees from the United States，United Kingdom and the Rus-sian Federation
+当时，我们得到美国、英国和俄罗斯联邦的保证
 
-这位俄罗斯总统在过去两年中与民众的接触很少，这让他有太多时间沉浸在自己的恐惧中。报告显示，一段时间以来，他患有新冠病毒引起的“脑雾”。普京以“铺天盖地式的”和“世界末日式”的方式入侵乌克兰后，他的心态受到了密切关注。
+But now you see what guarantees we have
+但现在你看到了我们没有得到什么保证
 
-美国参议员马可·卢比奥暗示这位69岁的独裁者精神不适后，使人们更加感到担忧。这位佛罗里达州共和党人在推特上写道：“我希望我能分享更多，但现在我可以说，对许多人来说，很明显普京出了问题”。他认为，普京一直就是个杀手，但现在他的问题不同以往，应该说非常严重。 “如果认为现在的普京会像5年前那样反应，那就大错特错了”。
+instead of guarantees, we have missiles in our residential areas
+我们没有保证，而发生的是导弹射向了我们的住宅区
 
-三周前，法国总统伊曼纽尔·马克龙（Emmanuel Macron）前往莫斯科与普京会面。虽然以乌克兰为主题的会议未果, 两位总统坐在两端的那张巨大的桌子却成为了亮点。据CNN报道，两人坐在彼此相距近20英尺的桌子两端交谈了五个小时。
+That one that you showed in kharkiv, unfortunately, did not explode
+不幸的是，你在哈尔科夫中展示的那个没有爆炸
 
-按俄罗斯要求，马克龙必须在接受病毒测试, 或坐在桌子的一端, 做出选择。法国为马克龙选择了桌子, 因为那样避免了提供马克的DNA。鉴于疫情已经持续两年, 这个要求没有多大意义。特别是如果两人都接种了疫苗，就可以在空气过滤系统运行时进行对话。法国的一位谈判专家在接受路透社采访时表示，“俄罗斯人告诉我们，普京需要严格控制健康程序。”
+but we have a missile attack on Kyiv where I am now Pavlograd
+但我们的基辅受到导弹袭击，我现在是在巴甫洛格勒
 
-匈牙利总理维克托·奥尔班（Viktor Orban）在本月会见普京时, 也选择了巨大的桌子，也许奥班也不愿意接受俄罗斯的测试。俄罗斯外交部长谢尔盖 · 拉夫罗夫（ster Sergei Lavrov）在2月14日会见普京时, 所坐的地方与马克龙一样远。可是拉夫罗夫应该不害怕俄罗斯政府获取他的DNA。
+where this morning people met with a missile
+今天早上人们遭到导弹袭击的地方
 
-一周后，普京与俄罗斯安理会, 在一个与美国国会大厅差不多大的房间里对话。他们坐在与普京很远的距离。几天后，普京在同一地点会见了一些寡头。普京坐在房间另一端的同一张桌子旁。周一上午，普京会见了经济顾问。他又一次独自坐在房间的一端。
+which shot in the big residential house
+并且击中了大的居民房屋
 
-曾在莫斯科的主要智库工作的塔蒂亚娜·斯坦诺瓦亚（Tatiana Stanovaya）说，普京不再像以往那样征求幕僚的意见，而是直接设定任务和要求，并付诸实施。她告诉泰晤士报：“在过去的两年里，他已经沉默寡言了。他已经与官僚机构、建制派和精英阶层渐行渐远。”
+and it looks like it started burning
+看起来它开始燃烧了
 
-作为专注于外交关系和情报的参议员, 卢比奥严厉批评俄罗斯的入侵。他评价普京“有点不对劲”。显而易见，俄罗斯正在总统周围制造一层孤立的泡沫，即使与他最亲密的顾问同在一个屋檐下也像咫尺天涯。这与他发动无端战争的决定相重叠了，这个决定使他的整个国家陷入孤立，这要么是一个残酷的巧合，要么是一个尚未解释的硬币的两面。
+and it was it looked very much similar
+而且它看起来非常相似
 
-Source: [1](https://www.washingtonpost.com/politics/2022/02/28/putin-bizarre-isolation/) [2](https://metro.co.uk/2022/02/28/vladimir-putins-brain-scrambled-by-isolation-in-his-bunker-experts-claim-16186181/)
+as the Twin Towers terrible terroristic attack on September 11
+就像 9 月 11 日的双子塔恐怖袭击那样
+
+And now we are under such attack from Russian Federation
+现在我们正受到俄罗斯联邦的攻击之下
+
+which is definitely the State terrorist now
+这绝对是国家恐怖分子
+
+and we have a big losses of civilians for the moment
+目前我们有大量平民损失
+
+We have 198 civilians killed, including three children
+我们有 198 名平民丧生，其中包括三名儿童
+
+and that’s awful, that’s a real genocide in the middle of Europe in the 21st century
+这太可怕了, 这就是21世纪发生在欧洲中部真正的种族灭绝
+
+**原视频链接**[https://twitter.com/newsmax/status/1497621223915802630?s=24](https://twitter.com/newsmax/status/1497621223915802630?s=24)
+
+Date:02/28/2022
+原视频标题: Ukrainian Parliament member Alexey Goncharenko speaks out about the Russian invasion of Ukrai
+乌克兰议会议员阿列克谢·贡恰连科公开谈论俄罗斯入侵乌克兰
+原视频日期：2022/02/27
+原视频链接https://twitter.com/newsmax/status/1497621223915802630?s=24
+任务编号：KE428（3871）
+视频时间段 : 0:00-1:13
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

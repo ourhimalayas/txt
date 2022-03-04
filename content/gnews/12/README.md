@@ -2,50 +2,26 @@
 ---
 
 
-## 欧盟审视加密资产是否被用来破坏对俄罗斯的制裁
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2102174/)
+## 普京目标： 征服整个乌克兰
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2102180/)
 
-作者：纽约香草山农场 – 四季
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image1.jpg)图片来源：网络照片
+多家媒体3月3日最新报道，法国总统马克龙在与俄罗斯总统普京进行了90分钟的通话后认为，在乌克兰战争中”最糟糕的事情还没有到来”。根据爱丽舍宫的说法，普京表现出”非常大的决心”，其目标是继续入侵，除非基辅政府解除武装并同意成为中立国。
 
+爱丽舍的消息人士说”我们的分析是，俄罗斯的野心是控制整个乌克兰，俄罗斯军队将面临困难和障碍，乌克兰人会勇敢地战斗,但力量的相关性非常不平衡，我们必须为最坏的情况做好准备。巴黎目前没有处理乌克兰分裂的方案。
 
+根据同一消息来源，马克龙回答说，普京对乌克兰政治制度的评估 “犯了一个严重的错误”。”显然，这不是一个纳粹政权。”
 
+到目前为止，欧洲和美国的大规模制裁和武器运输并没有阻止普京。西方有什么办法避免最坏的情况？根据爱丽舍宫的说法，制裁”将变得更加严厉”，有经济和外交手段，但也有对乌克兰的”行动支持”，以继续向俄罗斯总统施压。
 
+**新闻来源：**
 
-据[OAN网站](https://www.oann.com/eu-checking-if-cryptoassets-being-used-to-bust-russian-sanctions-eu-official/)援引路透社3月2日的报道，欧盟高级官员周三表示，欧盟委员会正在研究加密资产是否被俄罗斯用来绕过其入侵乌克兰后对该国银行实施的金融制裁。
+[Macron, after speaking with Putin, believes that “the worst is yet to come” (nationalturk.com)](https://www.nationalturk.com/en/macron-after-speaking-with-putin-believes-that-the-worst-is-yet-to-come/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-02T142310Z_3_LYNXMPEI210KF_RTROPTP_0_BINANCE-CRYPTO-CURRENCY-RUSSIA_1.jpg)在2021年6月28日拍摄的这幅插图中，币安的标志前显示了加密货币比特币、以太坊、狗币、瑞波币和莱特币。(REUTERS/Dado Ruvic/Illustration/)
-
-周一,俄罗斯卢布和Tether加密货币之间的交易量激增，因为当地货币在西方制裁下跌至历史最低点。
-
-欧盟官员表示，欧盟意识到加密资产是避免欧盟和其他西方大国实施制裁的一种 “可能的规避途径”。
-
-在俄罗斯对乌克兰的入侵进入第二周的同时，国际社会已经对俄罗斯的侵略行径展开了全方位的制裁。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[Pelosi says she’s ‘all for’ banning Russian oil imports (theweek.com)](https://theweek.com/nancy-pelosi/1010887/pelosi-says-shes-all-for-banning-russian-oil-imports)
 
  
 
