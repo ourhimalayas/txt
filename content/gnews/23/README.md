@@ -2,39 +2,22 @@
 ---
 
 
-## 西方制裁引发标普调降俄罗斯信用评级为CCC-
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2102945/)
+## 俄乌战争｜欧洲最大核电站遭轰炸 乌外长警告灾难或较切尔诺贝利严重十倍
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2103181/)
 
-##### 整理：围剿维尼熊
-编辑：Mttfly
+**撰文/ 港台前线｜发布日期/ 04/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/歐洲最大核電站遭轟炸-烏外長警告災難或較切爾諾貝利嚴重十倍.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-**【雅典娜快讯】，紧贴时代脉搏**
+乌克兰当地时间周五（4日）凌晨，有消息指全欧最大核电站札波罗热核电厂（Zaporizhzhia）正遭到俄罗斯军队的连番炮轰，并发生大火。乌克兰外长库列巴（Dmytro Kuleba）随即证实该消息，他表示，这座欧洲最大规模核战厂正面临俄军全方位攻击，他第一时间要求俄罗斯立即停火，并容许消防员设立安全区进行灌救，否则会酿成比切尔诺贝利（Chernobyl）严重十倍的巨大灾难。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/标普CCC-.jpg)图片：雅典娜设计组& HENNY RAY ABRAMS/ASSOCIATED PRESS
+实质上，俄军周四（3日）起就一直试图攻占札波罗热核电厂，惟遭到附近居民筑起路障抵挡，影响了军车的前进。核电站四个反应堆一直保持运作供电，暂时未知这次起火波及范围以及反应堆或厂房范围核废料贮存装置有否受损。
 
+另外，国际原子能机构（IAEA）亦透露，已联络乌克兰官员了解火警严重程度，并促请俄罗斯即刻停火。根据俄罗斯军队战术教范，核设施在进攻时属首要夺取目标，除札波罗热之外，俄军开战之初就迅速攻占切尔诺贝利核电厂。
 
-根据中央社3月3日报道，标普全球评级（S&P Global Ratings）表示，俄罗斯侵略乌克兰引发西方制裁，导致俄罗斯债务违约风险升高，决定将其债信评级调降至CCC-。
+**所幸，据乌克兰当局最新消息表示，目前核电站设施安全暂时得到保障。美国方面亦表示，他们的最新情报显示，没有迹象表明该核电厂的辐射水平升高。**美国能源部长詹妮弗·格兰霍尔姆（Jennifer Granholm）指出，这些反应堆“已受到坚固的安全壳结构的保护，反应堆正在安全关闭”。
 
-标普全球评级将俄罗斯外币信评由BB+下调、将本币信评由BBB-下调，因为欧美的制裁俄罗斯央行阻断了莫斯科动用外汇储备。
-
-以西方制裁俄罗斯中央银行（CBR）尤具破坏性为由，该机构表示：“调降评级的原因是，我们认为实施的制裁措施可能会大幅增加违约风险。”
-
-对于俄罗斯入侵乌克兰，美国和欧盟出手制裁俄罗斯央行，并于2月27日将多个俄罗斯金融机构逐出环球银行金融电信协会（SWIFT）支付系统。
-
-此前，标普将俄罗斯的主权信用评级从BBB-下调至BB+，同时将乌克兰的长期信用评级从B下调至B-。长期外币信用评等则从BBB-下调至BB+。
-
-标普全球评级还示警，未来数周可能持续调降俄罗斯信用评级。
-
-参考新闻：[侵烏引發西方制裁 標普全球評級調降俄債信評級](https://www.cna.com.tw/news/aopl/202203040029.aspx) | [美国、欧盟等国宣布禁止俄罗斯使用SWIFT国际结算系统](https://gnews.org/zh-hans/2073052/) | [标普全球将俄罗斯评级从“BB+”下调至“CCC-” 进一步陷入垃圾级](https://cn.reuters.com/article/s-p-russia-rating-junk-further-0303-thur-idCNKCS2L103L)
-
-*发布：Mttfly*
-
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+来源｜[卫报](https://www.theguardian.com/world/2022/mar/04/zaporizhzhia-nuclear-power-plant-everything-you-need-to-know)
 
  
 

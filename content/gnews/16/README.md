@@ -2,28 +2,24 @@
 ---
 
 
-## 乌克兰总统称俄罗斯攻击核电站是“核恐怖袭击”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2103303/)
+## 樱花FM|日本新增病毒感染近6.3万人死亡142 人
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2103397/)
 
-撰稿：东京樱花团/立正道
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/LshcFtsejbhtm0ENkv2Z3AwNZiLFzLpHWKJHt2lCccMx30Go5ieXlRGXu8587y5U6kU1DpiWIWRo9D_4ErNhbF7HlIkeP75yuOjUPKCeb1A9shOJCeOL5a_oyOITzT8KAxqPypKA)
+27日夜间，日本新型冠状病毒公布了6万3703例新感染病例。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/乌克兰总统称俄罗斯攻击核电站是核恐怖袭击.jpg)
+东京都政府当日宣布新增感染1万0321 人。 比上周日减少2614人，连续8天低于前一周同一天。过去 7 天的平均新增感染人数为 1万1141 人，约为上周的 75%。
 
-[图片来源](https://news.yahoo.co.jp/articles/5bb7cc19b09de73e17c4e96d00297b2e87103330/images/000)
+另一方面，根据 JNN 的摘要，全国宣布的新感染人数为 6万3703 人。 按都道府县划分，东京以外顺次多的城市是大阪、神奈川和埼玉。
 
-AFP时事，乌克兰总统泽伦斯基于4日谴责俄罗斯军队对扎波里贾核电站(Zaporizhia Nuclear Power Plant)的攻击，是“核恐怖袭击”，试图重复切尔诺贝利(Chernobyl)的悲剧。
+此外，全国已住院的感染者中有1482人病情严重，新增死亡病例142人。
 
-泽伦斯基在视频消息中写道:“除了俄罗斯以外，没有哪个国家攻击核电站。这是人类历史上第一次。俄军这次进行了核恐怖袭击。”
+文字版原文：[日本新增病毒感染近6.3万人死亡142 人](https://gnews.org/zh-hans/2078098/)
 
-此外,“一旦发生爆炸，欧洲将不再适合住人，一切都会终结。”他继续说，“如果欧洲不立即行动，就无法阻止俄军。”
-
-消息来源：
-
-[ロシアの原発攻撃は「核テロ」 ウクライナ大統領（ＡＦＰ＝時事）](https://news.yahoo.co.jp/articles/5bb7cc19b09de73e17c4e96d00297b2e87103330)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

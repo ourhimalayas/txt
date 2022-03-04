@@ -2,20 +2,61 @@
 ---
 
 
-## 法国解除疫苗护照
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2103061/)
+## 祭奠娘的三周年
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2103259/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-348.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fk.sinaimg.cn%2Fn%2Ftech%2Ftransform%2F15%2Fw550h265%2F20210526%2F43c0-kqpyffz6729230.png%2Fw700h350z1l10t104ba.jpg&amp;imgrefurl=https%3A%2F%2Ftech.sina.cn%2Fi%2Fgj%2F2021-05-26%2Fdetail-ikmyaawc7549572.d.html&amp;tbnid=qLdVSSpjHYTLGM&amp;vet=12ahUKEwiQvtiu0av2AhU6XWwGHdjEBxUQMygFegUIARCNAQ..i&amp;docid=94tpmtRIEE1bFM&amp;w=700&amp;h=350&amp;q=%E7%96%AB%E8%8B%97%E6%8A%A4%E7%85%A7&amp;ved=2ahUKEwiQvtiu0av2AhU6XWwGHdjEBxUQMygFegUIARCNAQ)
-巴黎共同报道，法国政府3日宣布，由于中共病毒（新冠病毒Covid-19）的感染状况正在改善，14日起取消在餐饮店利用时需要提出疫苗接种证明的义务。另外从14号开始，除了公共交通之外室内戴口罩的义务也同时解除。
+作者：香草山健身部-新世界的一员（摘自老皮匠之心声之信）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-1.png)
 
-在法国，从1月下旬开始，如果不出示被称为“疫苗护照”的接种证明，就不能使用餐厅、电影院、长途列车等。
+今天是二月二龙抬头的日子，
+今天也是娘的三周年冥诞日，
+新中国联邦人怀着虔诚而沉痛的心情，
+静默缅怀她老人家光辉伟大的人生。
+七哥你说你是有上天使命的，娘何尝不也是有上天的使命！在那样极其艰难困苦的年代，瘦弱的肩上承担着生活的压力，
+在幼小的七哥心灵打下深深的烙印，
+放学回到家见不到娘就急忙跑去看井里，
+娘是否承受不住生活重担跳井了？
+娘用坚毅的身体扛住了家庭所有的磨难，
+娘没有说教，娘身体力行，
+娘用坚毅、执着、不弯腰、不屈服的性格源泉，
+孕育着正义的种子，
+她不但给了七哥血肉之躯，
+娘用她的善良辅助了一场有尊严的伟大运动
+娘是我们人生的启蒙师！
+您的那句“七儿不要让跟随你的人受了委屈，”
+感化着所有受红色迷茫的灵魂，
+娘的爱，娘的待人接物之坦诚，
+奠定了“新中国联邦的唯真不破”
+娘走了，三年了……
+“想见音容空有泪，欲闻教诲杳无声”
+在此我们新中国联邦全球战士
 
-消息来源：[フランス、接種証明の義務解除へ　屋内マスクも不要に](https://www.tokyo-np.co.jp/article/163533?rct=world)
+深情纪念我慈祥善良伟大的娘，
+激励自己，坚定自己跟随七哥，
+去完成这人类历史上前所未有的伟大事业，歼灭中国共产党！
+爆料革命时刻记得自己的使命！
+拙文陋字是为娘冥诞三周年记，
+听，七哥“七儿，干死这些狗日的！”
+我也听到了……娘说“七儿，你要多保重自己！让娘放心。”
+摘自老皮将的书信
+新中国联邦爆料革命的全球战友
+给娘三叩首！！！
+壬寅年二月二日！！！
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+参考链接：[https://gettr.com/post/py2dtu3ac9](https://gettr.com/post/py2dtu3ac9)
+
+审核/编辑/发稿:qiutian（邱甜）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
