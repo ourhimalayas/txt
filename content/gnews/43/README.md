@@ -2,20 +2,28 @@
 ---
 
 
-## 2022年中共国高校毕业生达1076万人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2104980/)
+## IAEA谴责俄罗斯入侵乌克兰 中共国投反对票
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105063/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2FXinwen%2F5-11282021145520.html%2F%40%40images%2Fimage%2Fsocial_media&amp;imgrefurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2FXinwen%2F5-11282021145520.html&amp;tbnid=gYt-FNDceRxXXM&amp;vet=12ahUKEwithpbhhaz2AhU1R2wGHd0xAZ8QMygCegUIARCEAQ..i&amp;docid=lWwjVzZvq7Yq4M&amp;w=1500&amp;h=846&amp;q=%E4%B8%AD%E5%85%B1%E5%9B%BD%E9%AB%98%E6%A0%A1%E6%AF%95%E4%B8%9A%E7%94%9F&amp;ved=2ahUKEwithpbhhaz2AhU1R2wGHd0xAZ8QMygCegUIARCEAQ)
-3月4日新浪财经报道，中青报记者在全国政协十三届五次会议新闻发布会上提问。新闻发言人郭卫民说，今年有1076万名大学生毕业，高于往年，确实面临着较大就业压力2022届高校毕业生规模预计达1076万人，同比增加167万人，这是高校毕业生规模首次超过千万。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片8.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.aljazeera.com%2Fwp-content%2Fuploads%2F2021%2F05%2F2021-05-24T101944Z_143477179_RC2AMN9I2875_RTRMADP_3_IRAN-NUCLEAR-IAEA.jpg%3Fw%3D770%26resize%3D770%252C513&amp;imgrefurl=https%3A%2F%2Fwww.aljazeera.com%2Feconomy%2F2021%2F5%2F27%2Firan-nuclear-deal-are-iaea-safeguards-dangerously-obsolete&amp;tbnid=VoISnkUsMzszCM&amp;vet=12ahUKEwir8cLy-Kv2AhWngGMGHXZeBUQQMygOegUIARDLAQ..i&amp;docid=Dlyenrh0psuPfM&amp;w=770&amp;h=513&amp;q=IAEA&amp;ved=2ahUKEwir8cLy-Kv2AhWngGMGHXZeBUQQMygOegUIARDLAQ)
+联合国核监督机构–国际原子能机构(IAEA)的理事会周四（3月3日）通过了一项决议，谴责俄罗斯入侵乌克兰，并呼吁俄罗斯让乌克兰控制其所有核设施，只有两票反对。
 
-2020届高校毕业生是874万人，同比增加40万人，2021届全国高校毕业生总规模909万，同比增加35万人。这意味着，2022年中国高校毕业生将创下两个历史：毕业生人数最高，毕业生人数增长最大。
+IAEA理事会在其决议中说，“对俄罗斯联邦在乌克兰的行动予以谴责”。
 
-2022年中共国千万人规模的毕业生，不包括官二代和红二代，因为中共早已把自己的子女安排在海外留学，千万人规模的毕业生，更多是属于基层家庭，即将面临着毕业即失业的状态。
+两名外交官说，有26个国家投了赞成票，两个国家投了反对票，五个国家弃权。
 
-根据众多外卖平台的统计报告，现在中共国有大约700万外卖骑手，其中本科学历的有21万，硕士学历的有7万，中共国拼命的就业工作只为单单的生存活着而已，送外卖也是逼不得已的选择，随着中共经济急剧下降，各种谋生的新闻也会继续增加。
+一位外交官说，俄罗斯和中共国投下反对票，巴基斯坦、印度、南非、塞内加尔和越南弃权。他们补充说，墨西哥和布隆迪(蒲隆地)缺席。
 
-[【今年高校毕业生首次过千万，如何看待就业形势？\_财经头条】](https://cj.sina.cn/articles/view/1726918143/m66eeadff03301c75j)
+国际原子能机构（英语：International Atomic Energy Agency，缩写：IAEA）是致力于和平发展原子能的独立政府间国际组织，成立于1957年7月29日，为联合国系统的一部分。总部位于奥地利首都维也纳。其在2005年10月6日因“防止核能被用于军事目的，并确保最安全的和平利用核能”而获得诺贝尔和平奖。
+
+截至2020年9月17日，共有172个成员国。机构的组织机构包括大会、理事会和秘书处。
+
+理事会（英文：Board of Governors）是机构的决策机构，执行机构的各项任务。
+
+消息来源:
+
+[IAEA理事会对俄罗斯入侵乌克兰予以“谴责” 只有两票反对](https://cn.reuters.com/article/iaea-condemns-russia-0303-thur-idCNKCS2L1041?il=0)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

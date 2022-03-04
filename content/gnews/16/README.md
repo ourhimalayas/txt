@@ -2,18 +2,20 @@
 ---
 
 
-## 北约，“乌克兰未来几天形势将更加恶化，死亡人数会更多”
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2107427/)
+## 加拿大央行在高通胀率中逐步升息
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2107522/)
 
-#### 翻译                   意大利达芬奇农场                         小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-04-alle-16.24.18.png)图片来源：tgcom24.mediaset.it
-俄罗斯入侵乌克兰“是几十年以来在欧洲发生的最糟糕的军事入侵，学校、医院和居民区都遭受了轰炸及对核电站的袭击”。
+加拿大温哥华扬帆农场    平民正道
 
-这是北约秘书长延斯•斯托尔滕贝格在与北约外长特别峰会之后说的一番话，他还补充说：“在未来的几天情况很可能更加恶化， 死亡人数更多，更具摧毁性。  ”
+据加拿大《CTV新闻》3月2日报道，加拿大央行当天将其基础利率从0.25%升至0.5%，试图缓解目前自1991年以来最严重的通货膨胀。
 
-原文链接： [https://www.tgcom24.mediaset.it/mondo/ucraina-nato-i-prossimi-giorni-andranno-ancora-peggio-con-piu-morti\_46880458-202202k.shtml](https://www.tgcom24.mediaset.it/mondo/ucraina-nato-i-prossimi-giorni-andranno-ancora-peggio-con-piu-morti_46880458-202202k.shtml)
+据悉，加拿大1月份的年度通胀率为5.1%，创下了三十年来的新高。近日，俄罗斯入侵乌克兰导致的油价上涨和供应链中断将进一步推高物价，旷日持久的通货膨胀将不可避免。因此，央行今后将不断提高利率来对抗日益加剧的经济危机。
 
-编辑、上传：Xiao  baige
+尽管目前的疫情不容乐观，但加拿大央行认为，公共卫生限制的被取消以及加拿大劳动力市场的复苏，都将有助于刺激消费和抑制高通胀率。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 
