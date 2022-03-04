@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/4/2022 8:13 AM (UTC)`
+
+3/2/2022 Miles Guo: The reason that Germany and Switzerland gave up their neutrality is to target the CCP. The insanity of Russia and the CCP has awakened Germany and Japan, respectively. Singapore will decline, while Taiwan will become a financial empire. The UK will be the new economic superpower, and the landscape of North America and Australia will undergo drastic changes. The CCP and Russia are bound to be finished.<br/><br/>3/2/2022 文贵直播：德国和瑞士放下中立立场是要对付中共；俄罗斯和中共的疯狂分别唤醒了德国和日本；新加坡将没落，台湾会崛起为金融帝国，英国将成为新经济帝国，北美和澳洲的格局也将发生巨变，中共和俄罗斯必将完蛋<br/>
+![img](https://media.gettr.com/group46/getter/2022/03/04/07/c19bb05f-8021-ac80-7e2c-4d271323f717/out.jpg)
+
+---
+
 `@miles 3/4/2022 7:40 AM (UTC)`
 
 3/2/2022 Miles Guo: We need to be patient in waking up the Chinese, who have been ruled by the CCP with falsehood for too long. Zelenskyy has changed the stereotype of politicians by telling the world that anyone can become a leader and change the world. Pushing the election of “one person, one vote” is my life-time mission.<br/><br/>3/2/2022 文贵直播：唤醒中国人要有耐心，因为他们被以假治国的中共统治了太久；泽连斯基改变了政治家的形象，告诉世界任何人都可能成为领导人，改变世界；文贵一生的使命是推动中国的一人一票<br/>
@@ -151,13 +158,6 @@ We’ve seen this coming, and we’ve been reactionary. That gave Vladimir Putin
 
 <br/>3月3号：尊敬的战友们好……感谢战友制作的有关俄乌战争的精美的视频……
 ![img](https://media.gettr.com/group50/getter/2022/03/03/07/b0857784-974f-9db9-aaf6-82bc1f53d869/out.jpg)
-
----
-
-`@miles 3/3/2022 7:31 AM (UTC)`
-
-3/2/2022 Miles Guo: “Putin the Great” and “Xi The Sun” probably won’t make it to the end of this year. I was the first one to let the world know that both Putin and Xi are not in good health. Citizens of the New Federal State of China shall become those who get to enjoy the sunshine, the flowers, and the beauty of it all. Always keep in mind our two major missions: cleaning up the battlefield and the post-war reconstruction.<br/><br/>3/2/2022 文贵直播：普大帝和习太阳都坚持不过今年年底；文贵最早告诉世界普习身体不好；新中国联邦人要成为享受阳光、鲜花和美丽的人群，并且要切记打扫战场和战后重建这两大主题<br/>
-![img](https://media.gettr.com/group9/getter/2022/03/03/07/737ae7a7-7b54-6433-2a4e-e1f477be88ca/out.jpg)
 
 ---
 
