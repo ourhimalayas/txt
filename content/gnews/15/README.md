@@ -2,22 +2,20 @@
 ---
 
 
-## 国际原子能机构呼吁停止对乌克兰核电站的攻击
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2103466/)
+## 樱花FM┃国际柔道联合会暂停普京“黑带”名誉主席职务
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2103626/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/国际原子能机构呼吁停止对乌克兰核电站的攻击.png)（图片源自本文链接）
-３月４日时事通信社消息：据法新社报道，国际原子能机构（IAEA）4日敦促俄罗斯军方停止攻击乌克兰境内的扎波罗热核电站。警告说，对反应堆的攻击将造成“严重危险”。
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/1fVJzxqkZq8hVti-yYa9w4MAc03SV2XavgwdfKP-V2hdk13DiqS7R1SA054zxjIHNzRkAjT6ENSYdirl0wwdG80nqGexWKnIUH94fVVX_pLBd22pIkcwx5nNS63MkRlfdsLwTidb)
+俄罗斯入侵乌克兰后，国际柔道联合会27日在官网发表声明称，鉴于乌克兰与俄罗斯冲突，将暂停其普京名誉主席职务。
 
-原子能机构说，总干事拉斐尔·格罗西（Rafael Grossi）正在与乌克兰总理丹尼斯·施米格尔（Denys Shmygal），以及该国的核监管机构和核电站运营商讨论扎波罗热核电站的严重情况。他在推特上发帖说：他呼吁暂停使用武力，并警告说对反应堆的攻击将构成严重危险。
+俄罗斯普京总统13岁开始柔道，是“黑带”大师。
 
-国际原子能机构指出，扎波罗热电厂的辐射水平“没有变化”。乌克兰当局也表示，他们是安全的。据悉，火灾发生在一个训练大楼和一个研究机构。
+文字版原文：[国际柔道联合会暂停普京“黑带”名誉主席职务](https://gnews.org/zh-hans/2077384/)
 
-信息来源：[IAEA、ウクライナ原発への攻撃停止呼び掛け 原子炉に当たれば「重大な危険」（ＡＦＰ＝時事） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/e82f3c8ff709086ab82ea919643e82b15a1772d1)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
