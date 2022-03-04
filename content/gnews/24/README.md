@@ -2,26 +2,22 @@
 ---
 
 
-## 中日财经爆|美国两党参议员要求禁止进口俄罗斯石油
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105048/)
+## 樱花FM|拜登派前国防高官前往台湾以示支持
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2105151/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Ffinance%2F239%2Fw2048h1391%2F20220224%2Fc289-0a124c8f4e8ad373dac449abdde38db3.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.cn%2Fusstock%2Fmggd%2F2022-02-24%2Fdetail-imcwiwss2747127.d.html%3Fvt%3D4&amp;tbnid=kIhBM1Y_xGlC7M&amp;vet=12ahUKEwiI3uqJ_Kv2AhXpR2wGHU9UD4gQMygCegUIARC6AQ..i&amp;docid=YylWr8w_uoFCOM&amp;w=2048&amp;h=1391&amp;itg=1&amp;q=%E4%BF%84%E7%BD%97%E6%96%AF%E7%9F%B3%E6%B2%B9&amp;ved=2ahUKEwiI3uqJ_Kv2AhXpR2wGHU9UD4gQMygCegUIARC6AQ)
-美国两党参议员周四（3月3日）提出一项禁止美国进口俄罗斯石油的议案，他们表示可以通过提高北美和其他地方的石油产量来替代俄罗斯石油。
+音频：东京樱花团/战友520
+![](https://lh5.googleusercontent.com/cz-Z4lweYFhvG7TCilnFjQ0TCUt0ZwOTRORqXw5WNjL76Areem_4F_lzU2YWJ29fWripNr_cIUTHFsgMniyHFYnUzmDf6hhxO_XXMQNSaI39L_pw8hwpmjHcxBRNWB4Bfk6VJR0q)
+据路透社报道，拜登政府将于周一派遣一个由前高级国防官员和安全官员组成的代表团前往台湾，在敏感的当下以示支持。消息人士没有透露这次的访问时机是否与俄罗斯入侵乌克兰有关。台政府周一表示，不应将台湾和乌克兰相提并论。此次访问由曾任美国参谋长联席会议主席的迈克·马伦率领，这次访问正值俄罗斯入侵乌克兰、台湾加强戒备之际。路透社报道称，陪同马伦上将的还有小布什时期的前国家安全副顾问奥沙利文和奥巴马时期的前国防部副部长佛洛诺伊，另外两名前美国国安委亚洲事务的高管葛林和麦艾文也将参与出访，目的是展示美国对台湾持续有力的支持。
 
-这项名为《禁止俄罗斯能源进口法案》的议案旨在惩罚俄罗斯总统普京入侵乌克兰的行为。该议案由来自共和党及民主党的18名参议员发起。
+代表团预计于3月1日下午抵达台湾，并停留到周三晚上。在此期间，他们计划会见台湾总统蔡英文、国防部长邱国正等高级官员。美国官员表示，这个五人代表团“发出了一个重要信号，即美国两党对台湾及其民主的承诺”，但是他没有透露这次的访问时机是否与俄罗斯入侵乌克兰有关。
 
-众议院议长佩洛希也表示，她支持实施这样的禁令。“我完全支持，”她告诉记者，“禁止从俄罗斯进口石油。”
+台湾外交部周一证实拜登指派跨党派资深代表团3月1日至2日搭乘专机访台，对访问团表达诚挚欢迎。此次的马伦代表团是自2021年4月以来首次有前官员在拜登授意下公开访问台湾。2021年4月，美国前参议员陶德、前副国务卿阿米塔吉和史坦柏格曾访问台湾，与蔡英文会面。上周六，一艘美国军舰驶过敏感的台湾海峡。
 
-根据美国能源信息署(EIA)的数据，2021年，美国平均每月从俄罗斯进口逾2,040万桶原油和成品油，约占美国液体燃料进口的8%。夏威夷和阿拉斯加都依赖这些进口。
+文字版原文：[拜登派前国防高官前往台湾以示支持](https://gnews.org/zh-hans/2089146/)
 
-消息来源:
-
-[美国两党参议员提出议案 要求禁止美国进口俄罗斯石油](https://cn.reuters.com/article/us-senators-russia-oil-import-0304-idCNKCS2L105T?il=0)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

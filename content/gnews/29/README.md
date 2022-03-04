@@ -2,35 +2,26 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“普京”（十九）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2104936/)
+## 中日财经爆|美国两党参议员要求禁止进口俄罗斯石油
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105048/)
 
-#### 整理：**BENJ1** 
-编辑：**Kelly**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-13.png)
-郭文贵先生**2022**年**2**月**9**日直播
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Ffinance%2F239%2Fw2048h1391%2F20220224%2Fc289-0a124c8f4e8ad373dac449abdde38db3.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.cn%2Fusstock%2Fmggd%2F2022-02-24%2Fdetail-imcwiwss2747127.d.html%3Fvt%3D4&amp;tbnid=kIhBM1Y_xGlC7M&amp;vet=12ahUKEwiI3uqJ_Kv2AhXpR2wGHU9UD4gQMygCegUIARC6AQ..i&amp;docid=YylWr8w_uoFCOM&amp;w=2048&amp;h=1391&amp;itg=1&amp;q=%E4%BF%84%E7%BD%97%E6%96%AF%E7%9F%B3%E6%B2%B9&amp;ved=2ahUKEwiI3uqJ_Kv2AhXpR2wGHU9UD4gQMygCegUIARC6AQ)
+美国两党参议员周四（3月3日）提出一项禁止美国进口俄罗斯石油的议案，他们表示可以通过提高北美和其他地方的石油产量来替代俄罗斯石油。
 
-现在普京和“习太阳”的关系就是这关系。你到海南去，最多的就俄罗斯小姐、罗马尼亚小姐，无处不在。以前要付美金，现在已经是人民币都可以打五折了。然后自己得瑟，关键是刚才Nick说得好，什么三个高度、什么兑现承诺，说什么普京48小时再加强版。内部说：“普京来了，要从过去的20条签到22条，要加强版签署合作协议，全面升级，人民币作为俄罗斯第二法币。”他做梦都没想到（他的安保团队感染病毒）一下子染四个到后来八个、十六个人，住的楼里死了三个人。
+这项名为《禁止俄罗斯能源进口法案》的议案旨在惩罚俄罗斯总统普京入侵乌克兰的行为。该议案由来自共和党及民主党的18名参议员发起。
 
-关键是中国这种傲慢，当时普京非常之恼火。你看做的那个玩意儿，就是人家一整完，举举手指头扭头就走了，去机场，两架空军1号，交换离开。你知道里边儿发生多少故事？我如果现在告诉你，能把共产党吓尿了。你知道普京离开说的什么话吗？普京明确告诉杨洁篪、告诉王毅说：“你们这个放烟花、大屏显示搞开幕式，做得真的不错，美仑美焕……”，还有什么……
+众议院议长佩洛希也表示，她支持实施这样的禁令。“我完全支持，”她告诉记者，“禁止从俄罗斯进口石油。”
 
-这是杨洁篪、王毅写的报告，七哥今天负百分之百责任，我说这报告它没把普京后一段儿说出来。普京明确告诉他说，这些东西对你现在这个开幕式现场气氛在媒体上是控制住了，但是你现场的这个模式以及来的人（产生的）副作用，你们想到了没有？
+根据美国能源信息署(EIA)的数据，2021年，美国平均每月从俄罗斯进口逾2,040万桶原油和成品油，约占美国液体燃料进口的8%。夏威夷和阿拉斯加都依赖这些进口。
 
-你知道普京这个人，就像那个娶了罗马尼亚老婆的北大副教授回去光宗耀祖一样，人家就说这副作用——老娘要开口说普通话了，后果你知道吗？是吧？！“就你这块儿现场根本没人。”
+消息来源:
 
-冬奥会现场那种政治操控、大外宣，普京看透了，说你现场根本就没人。你来的这人，你吹了半天，其实根本没人，你就这些东西，接下去你没法解释。然后普京多一分钟都不想呆在这儿，都不想买单，走人，就你还不兑现，特别是黄金作为储备兑现，作为法币，最后又翻脸，人家不干了。
+[美国两党参议员提出议案 要求禁止美国进口俄罗斯石油](https://cn.reuters.com/article/us-senators-russia-oil-import-0304-idCNKCS2L105T?il=0)
 
-资料来源：郭先生GTV和盖特直播视频
-
-发布：Frank2021
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

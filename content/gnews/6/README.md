@@ -2,41 +2,25 @@
 ---
 
 
-## 自3月4日起，南澳大利亚警方取消了疫苗强制
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2105288/)
+## 有声｜俄罗斯卢布交易中创下新低
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2105473/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+By:**秘翻新闻**
 
-翻译/编辑：文泓
+**2022-03-04**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/304——5.jpg)图片来源 路透社
+[路透社莫斯科](https://www.reuters.com/markets/deals/russian-rouble-slides-further-after-ratings-downgrades-2022-03-03/)3月3日报道，欧美针对俄罗斯入侵对乌克兰采取的制裁措施将可能导致俄罗斯经济产生严重衰退。周四，出于对俄罗斯经济的负面预期，惠誉和穆迪将俄罗斯主权债务评级下调至“垃圾级”，进一步加剧了卢布贬值。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-12.png)图片来源：Leader & 雅典娜设计组
+此前，俄罗斯政府已采取了一系列阻止卢布贬值的措施，包括：俄罗斯央行对个人在货币购买外汇征收 30% 的佣金；政府要求出口商将其外汇收入的 80% 兑换成卢布；阻止外国投资者退出、出售价值数百亿美元的俄罗斯股票和债券；禁止俄罗斯公司向海外股东支付股息；暂停莫斯科交易所部分股票交易。但随着俄乌战事的不断升级，卢布贬值势不可挡，人们在银行排起了长队购买美元。
 
+在莫斯科，卢布从周三的106.02收盘价收于每美元106.01，此前触及118.35的盘中纪录低点，当天下跌超过10%。在国外市场，卢布兑美元近期报 110 美元，当日下跌 9.1%。
 
-当地时间3月4日，澳大利亚南澳大利亚警察局宣布，他们将于3月4日[取消疫苗接种](https://www.police.sa.gov.au/sa-police-news-assets/front-page-news/revocation-of-the-police-workers-vaccination-direction#.YiGsMuhByF4)令，允许该州拒绝接种新冠疫苗的警察重返工作岗位。
+（秘翻新闻 自由信仰编译报道）
 
-3月7日上午7时，《警务人员疫苗接种指令》将被撤销，并由管理指令取代，未接种疫苗的员工能够返回工作场所。但是，他们将被要求去到警局后立即进行快速抗原检测，并在每天轮班期间戴上口罩。
+发布 : 文橙
 
-南澳警察局长格兰特·史蒂文斯说，他有信心南澳警察部队可以管理正在进行的大流行病对警官和社区成员造成的风险，而不必让未接种疫苗的工作人员休假。
-
-然而，史蒂文斯表示，尽管能够恢复他们的实质性职责，但未接种疫苗的工作人员会遇到一些限制。例如，这些官员可能会被限制进入高风险环境，例如住宅老年护理和残疾设施以及法医学大楼。
-
-此外，史蒂文斯表示，他正在与仍然有强制性疫苗接种政策的机构和部门接触并寻求建议，同时考虑到正在实施的《紧急管理法指示》。
-
-当日，该州记录了106例新冠病例，其中3月4日有9例在重症监护室。
-
-州长史蒂文·马歇尔表示，尽管南澳每天的新冠病例数将继续波动，但政府的首要任务是保持较低的住院人数。
-
-参考链接：[South Australia Police Removes Vaccine Mandates (theepochtimes.com)](https://www.theepochtimes.com/south-australia-police-removes-vaccine-mandates_4316187.html)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

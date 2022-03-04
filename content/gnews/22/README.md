@@ -2,18 +2,40 @@
 ---
 
 
-## 俄乌战争｜蓬佩奥：中共若执意援助 下个制裁恐是中共银行及金融体系
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2105057/)
+## 自3月4日起，南澳大利亚警方取消了疫苗强制
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2105288/)
 
-**撰文/ 港台前线｜发布日期/ 04/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-11.png)更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
-2月，中共习近平与俄罗斯普丁发表联合声明，反对北约（NATO）东扩，并宣称中俄将建立真正“民主”的全球新秩序。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-美国前国务卿蓬佩奥（Mike Pompeo）于4日下午记者会特别警示中共，在此次俄罗斯侵略乌克兰，中共若执意经济援助俄国，那“下一个受制裁的恐怕是中共的银行及金融体系”。
+翻译/编辑：文泓
 
-蓬佩奥提到，这次全球限制俄罗斯的经济，主要是针对其对外贸易能力、金流、物流等，尤其是俄罗斯的金融交易能力“求援的对象似乎只剩中共了”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-12.png)图片来源：Leader & 雅典娜设计组
 
-來源｜[YAHOO](https://tw.stock.yahoo.com/news/%E8%93%AC%E4%BD%A9%E5%A5%A7%EF%BC%9A%E7%BE%8E%E8%8B%A5%E5%9F%B7%E6%84%8F%E6%94%AF%E6%8F%B4%E4%BF%84-%E3%80%8C%E4%B8%80%E4%B8%8B%E5%80%8B%E5%88%B6%E8%A3%81%E7%9A%84%E6%81%90%E6%98%AF%E4%B8%AD%E5%9C%8B%E7%9A%84%E9%8A%80%E8%A1%8C%E5%8F%8A%E9%87%91%E8%9E%8D%E9%AB%94%E7%B3%BB%E3%80%8D-070809557.html)
+
+当地时间3月4日，澳大利亚南澳大利亚警察局宣布，他们将于3月4日[取消疫苗接种](https://www.police.sa.gov.au/sa-police-news-assets/front-page-news/revocation-of-the-police-workers-vaccination-direction#.YiGsMuhByF4)令，允许该州拒绝接种新冠疫苗的警察重返工作岗位。
+
+3月7日上午7时，《警务人员疫苗接种指令》将被撤销，并由管理指令取代，未接种疫苗的员工能够返回工作场所。但是，他们将被要求去到警局后立即进行快速抗原检测，并在每天轮班期间戴上口罩。
+
+南澳警察局长格兰特·史蒂文斯说，他有信心南澳警察部队可以管理正在进行的大流行病对警官和社区成员造成的风险，而不必让未接种疫苗的工作人员休假。
+
+然而，史蒂文斯表示，尽管能够恢复他们的实质性职责，但未接种疫苗的工作人员会遇到一些限制。例如，这些官员可能会被限制进入高风险环境，例如住宅老年护理和残疾设施以及法医学大楼。
+
+此外，史蒂文斯表示，他正在与仍然有强制性疫苗接种政策的机构和部门接触并寻求建议，同时考虑到正在实施的《紧急管理法指示》。
+
+当日，该州记录了106例新冠病例，其中3月4日有9例在重症监护室。
+
+州长史蒂文·马歇尔表示，尽管南澳每天的新冠病例数将继续波动，但政府的首要任务是保持较低的住院人数。
+
+参考链接：[South Australia Police Removes Vaccine Mandates (theepochtimes.com)](https://www.theepochtimes.com/south-australia-police-removes-vaccine-mandates_4316187.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

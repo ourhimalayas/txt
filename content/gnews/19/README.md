@@ -2,29 +2,29 @@
 ---
 
 
-## 日经平均指数一度贬值800日元 乌克兰核电站攻击报道推动下跌
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2105118/)
+## 宜家宣布关闭俄罗斯及白俄罗斯门店
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2105346/)
 
-**翻译：宫米叶**
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1.2D.jpg)网络图片
+瑞典家居企业宜家昨天宣布，将关闭位于俄罗斯和白俄罗斯的所有门店，以抗议俄罗斯对乌克兰的入侵。在这一消息发布之后，俄罗斯顾客纷纷涌向宜家商店，抢购家具和家居用品。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip战争导致货币下跌.png)图片来源：news.yahoo.co.jp
+在昨日最后一次开业之前，人们在圣彼得堡的商店外面排起了长长的队伍。人们看到购物者在他们的手推车上装满了成箱的平板家具以及咖啡杯托盘等物件。
 
-4日上午，乌克兰东南部扎波罗热核电站遭到俄军攻击的报道传出后，东京股市日经平均指数卖出量大增。上日收盘比降幅一度超过800日元。上午10点同比下降660日元46钱，为2.5916日元81钱。
+宜家在抗议声明中表示：“乌克兰的毁灭性战争是一场人类悲剧，我们表示深切同情和关切，有数百万人都受到了影响。”
 
-3日，俄乌双方代表团经谈判未能达成停火协议，导致纽约股市道琼斯工业指数30种平均值前景不确定感蔓延，收盘时仍有下跌。4日东京市场也继承了这一趋势，核电站攻击受到攻击的消息更加推动了下跌。
+除了关闭销售门店之外，宜家还宣布将暂停所有宜家工业在俄罗斯的生产。宜家家具同时也表将持续支援宜家员工及其家人的人身安全。
 
-**新闻来源**：[news.yahoo.co.jp][日経平均一時800円安　ウクライナ原発攻撃報道で下落に拍車](https://news.yahoo.co.jp/articles/38c15ee6e95b6d2642b58b376635258ce98a0798)
+其它企业诸如大众汽车也宣布将停止在俄罗斯的所有活动，直至另行通知——大众汽车在俄罗斯有两家主要工厂将被关闭，汽车的进口也将暂时停止。此外，梅赛德斯-奔驰、沃尔沃和哈雷戴维森也停止了对俄罗斯的进口。
 
-* * *
+俄罗斯货币也在持续贬值的过程当中，截至澳大利亚午间，每个卢布的价值仅为大约一澳分。
 
-***审核：BryanW 
-校对：zicoround
-发布：信心满满***
+新闻参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
+[9 News](https://www.9news.com.au/world/ikea-panic-buying-russia-closure-st-petersburg-ukraine-invasion-economic-blowback/03f6eb98-b429-4cfa-ac63-9ed53616a849)
 
-
-
+[IKEA 官网](https://about.ikea.com/en/newsroom/2022/03/03/ikea-pauses-operations-in-russia-and-belarus)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

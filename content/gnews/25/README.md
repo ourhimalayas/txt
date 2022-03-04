@@ -2,22 +2,26 @@
 ---
 
 
-## 中日财经爆|日经指数3月4日下跌591点，收于25985点
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105026/)
+## 樱花FM|美国政府跨党派使团抵台 美台加深合作抗击中共
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2105149/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1629736_1_20220120140703.jpg&amp;imgrefurl=https%3A%2F%2Fnews.rthk.hk%2Frthk%2Fch%2Fcomponent%2Fk2%2F1629736-20220120.htm&amp;tbnid=_hgsAfvF-sfSGM&amp;vet=12ahUKEwiZ3KS-_av2AhXGXWwGHWG_Cx4QMygDegUIARCiAQ..i&amp;docid=X9Eq8AE9GWFsfM&amp;w=2688&amp;h=1792&amp;itg=1&amp;q=%E4%B8%9C%E4%BA%AC%E8%82%A1%E5%B8%82&amp;ved=2ahUKEwiZ3KS-_av2AhXGXWwGHWG_Cx4QMygDegUIARCiAQ)
-3月4日在东京证券交易所，日经平均指数（225只成分股）收盘价较前一交易日下跌591.80点，报25985.47点，6个工作日以来首次跌破26000点。据报道，俄罗斯军队袭击了乌克兰的核电站，外界普遍担心乌克兰局势会变得更加紧张，并出现盘中跌幅超过800点的场景。
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/j19bAOJgoF8DV26S9ViSy9W9oxJYkw3AOoDPjgxg4xMwoLRBdobKvm6uS3D3QSKRm-Sw779E2HT1HSPaHWQR8oJA-whEuLQlcGfQ0HU5gdNmE-L12ZKFfGQGOR0sSDFofdqVeMCx)
+据台湾《自由时报》3月1日报道，美国总统拜登（Joe Biden）指派前参谋首长联席会议主席穆伦（Michael Glenn Mullen）率团访台，今天（1日）下午4时13分飞抵松山机场，外交部长吴钊燮亲自接机。访团在台期间将晋见总统蔡英文、副总统赖清德、拜会行政院长苏贞昌及国防部长邱国正，并接受外交部长吴钊燮午宴与蔡总统晚宴。
 
-东京证券交易所股价指数（TOPIX）显示整个东京证券交易所第一部的价格走势，下跌36.86点，收盘报1844.94点。
+美国总统拜登指派跨党派资深代表团搭乘行政专机访问我国。访团由前参谋首长联席会议主席穆伦率领，成员包括前国防部政策次长弗洛伊（Michèle A. Flournoy）、前白宫副国安顾问欧苏利文（Meghan L. O’Sullivan）、前白宫国安会亚洲事务资深主任格林（Michael Green）及前白宫国安会亚洲事务资深主任麦艾文（Evan S. Medeiros）。访团预计2日上午前往总统府拜会总统蔡英文，下午分别拜会行政院长苏贞昌与国防部长邱国正，晚上由蔡总统设宴款待后，即于晚间10时搭乘专机离台。
 
-消息来源:
+吴钊燮今日下午代表我国政府前往接机。外交部对穆伦前主席率重要访团抵访台湾表达诚挚欢迎。外交部说明，访团在台期间将晋见总统蔡英文、副总统赖清德、拜会行政院长苏贞昌及国防部长邱国正，并接受外交部长吴钊燮午宴与蔡总统晚宴；双方将就台美关系各项重要议题交换意见。
 
-[日経平均終値５９１円安、２万６０００円を割り込む](https://www.yomiuri.co.jp/economy/20220304-OYT1T50235/)
+，此次美国政府美国使团不仅包括了美国民主、共和两党卸任的高层官员，而且使团成员均具国安或军事背景。使团成员穆伦于2007年至2011年担任美军参谋首长联席会议主席，军事经验丰富；傅洛依曾于2014年及2015年两度率领新美国安全中心（CNAS）「下一世代国安领袖计画」（NextGen）访团来台；欧苏莉文现为哈佛大学国际实务教授，曾于2004年至2007年于小布什政府时期国安会主管伊拉克及阿富汗议题；葛林及麦艾文先后为小布什及奥巴马政府时期的白宫国安会亚洲事务资深主任，负责处理台湾议题事务，均曾多次访问台湾。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+俄军大举入侵乌克兰后，世界再一次被笼罩在“热战”阴影之下，根据郭文贵先生早前爆料，俄罗斯与中共已达成协议，俄军出兵乌克兰之际，中共将执行“双龙”计划直取台湾。在台海形势显得越发危急情况下，美国使团访台显示了美台合作共抗中共的决心，也给以习近平为首的中共主战派挡头一棒，加之，俄罗斯近来接连受到SWIFT限制等西方国家为主体国际组织一系列制裁，相信解放军一旦攻台，国际组织对中共制裁力度一定毁灭性的。顺便提醒，墙内民众应该远离军事设施，尽皁屯粮屯药储备物资，以防战争到来遭遇不测。
+
+文字版原文：[美国政府跨党派使团抵台 美台加深合作抗击中共](https://gnews.org/zh-hans/2088712/)
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

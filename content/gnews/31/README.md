@@ -2,25 +2,24 @@
 ---
 
 
-## 俄乌战争｜乌方证实欧洲最大核电厂已落入俄军手中 西方领袖齐声谴责
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2104356/)
+## 2022年中共国高校毕业生达1076万人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2104980/)
 
-**撰文/ 港台前线｜发布日期/ 04/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/烏方證實歐洲最大核電廠已落入俄軍手中-西方領袖齊聲譴責.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2FXinwen%2F5-11282021145520.html%2F%40%40images%2Fimage%2Fsocial_media&amp;imgrefurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2FXinwen%2F5-11282021145520.html&amp;tbnid=gYt-FNDceRxXXM&amp;vet=12ahUKEwithpbhhaz2AhU1R2wGHd0xAZ8QMygCegUIARCEAQ..i&amp;docid=lWwjVzZvq7Yq4M&amp;w=1500&amp;h=846&amp;q=%E4%B8%AD%E5%85%B1%E5%9B%BD%E9%AB%98%E6%A0%A1%E6%AF%95%E4%B8%9A%E7%94%9F&amp;ved=2ahUKEwithpbhhaz2AhU1R2wGHd0xAZ8QMygCegUIARCEAQ)
+3月4日新浪财经报道，中青报记者在全国政协十三届五次会议新闻发布会上提问。新闻发言人郭卫民说，今年有1076万名大学生毕业，高于往年，确实面临着较大就业压力2022届高校毕业生规模预计达1076万人，同比增加167万人，这是高校毕业生规模首次超过千万。
 
-乌克兰札波罗热核电厂（Zaporizhzhia）4日凌晨遭俄军炮轰发生大火后，幸得乌克兰当局及时制止，经消防人员扑救后，核电站暂未发生泄漏。
+2020届高校毕业生是874万人，同比增加40万人，2021届全国高校毕业生总规模909万，同比增加35万人。这意味着，2022年中国高校毕业生将创下两个历史：毕业生人数最高，毕业生人数增长最大。
 
-事件并未就此结束，最新消息显示，乌克兰当局确认，该核电厂在火灾救熄后已被俄军控制。俄罗斯自上星期发动入侵战争以来，已率先占领位于北部的切尔诺贝利核电站，导致该区辐射数据一度录得上升。
+2022年中共国千万人规模的毕业生，不包括官二代和红二代，因为中共早已把自己的子女安排在海外留学，千万人规模的毕业生，更多是属于基层家庭，即将面临着毕业即失业的状态。
 
-乌克兰总统泽连斯基（Volodymyr Zelensky）脸书发帖斥责俄罗斯蓄意向札波罗热核电厂开火。他表示，“俄罗斯配备红外热像仪的坦克向着原子区射击。他们心知肚明在射击什么。他们一直为此作准备”。
+根据众多外卖平台的统计报告，现在中共国有大约700万外卖骑手，其中本科学历的有21万，硕士学历的有7万，中共国拼命的就业工作只为单单的生存活着而已，送外卖也是逼不得已的选择，随着中共经济急剧下降，各种谋生的新闻也会继续增加。
 
-泽连斯基又指，俄罗斯袭击该厂极其危险，可能引发灾难，“乌克兰有15个核反应堆。若其中之一爆炸，就是所有人的末日，欧洲的末日”，“除了俄罗斯，从来没有国家曾向原子能发电厂反应堆开火，这是史上首次”，他敦促欧洲领袖“醒来”在酿成核灾前，制止俄军。
+[【今年高校毕业生首次过千万，如何看待就业形势？\_财经头条】](https://cj.sina.cn/articles/view/1726918143/m66eeadff03301c75j)
 
-对此，西方多国领袖相继发声谴责，英国首相约翰逊指如此“鲁莽”袭击，可能“直接威胁整个欧洲安全”；美国总统拜登促俄停止核电厂一带的军事活动；加拿大总理杜鲁多（Justin Trudeau）就指俄罗斯的“可怕袭击必须立即停止”。
-
-来源｜[路透社](https://www.reuters.com/world/europe/ukraine-says-russian-forces-seize-zaporizhzhia-nuclear-plant-2022-03-04/)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
