@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/4/2022 2:46 AM (UTC)`
+
+<br/>3月3号：文贵在这里衷心地感谢全球的战友发来的各种的信息！全球的兄弟姐妹们与我同在的感觉真的是太棒了！由于各种信息太多太多了，我没办法一一回复，拜托战友们千万不要再发信息了，我们的心同在……现在我选出一个我们有代表性的战友的信息与大家分享万分的感谢。【敬爱的七哥好！<br/><br/>今天才是二月二龙抬头，我提前理发、沐浴更衣，素食静待这一天。由于前天突然把我们拉到一起让我激动的痛哭失态，控制不住，把当时写好的准备今天发给您的文字发过去了。<br/><br/>此时此刻我怀着虔诚而沉痛的心情焚香静默纪念娘的三周年冥诞日，缅怀她老人家光辉伟大人生。<br/>七哥你说你是有上天使命的，娘何尝不也是有上天的使命！在那样极其艰难困苦的年代，生活的重担在老娘瘦弱的肩上，在你幼小的心灵打下深深的烙印，放学回到家见不到娘就急忙跑去看井里，娘是否承受不住生活重担跳井了？在农村长大的我对那土井太熟悉了，井台有几块大石板，用超过井深长度的绳提着桶摇水，摇水不仅是体力活更是技术活，不会摇还摇不满桶呢。这生活中的点点滴滴潜移默化的教育着您，娘没有说教，娘身体力行，是你坚毅、执着、不弯腰、不屈服的性格源泉。人生第一位老师是父母，尤其是母亲，她给了我们血肉之躯，更是我们人生的启蒙师！可以想象您的待人接物坦诚做人“唯真不破”一定受娘的影响……说到坚毅，您三年前的戴孝留须的形象映在眼前，每次想起都激动万千泪流满面……娘走了，三年了……“想见音容空有泪，欲闻教诲杳无声”在此我深情纪念我慈祥善良伟大的娘，激励自己，坚定自己跟随七哥您去完成这人类历史上前所没有的伟大事业～爆料革命！拙文陋字是为娘冥诞三周年记<br/>听，七哥“七儿，干死这些狗日的！”<br/>我也听到了……娘说“七儿，你要多保重自己！让娘放心。”<br/><br/>老皮将<br/>给娘三叩首！！！ <br/>壬寅年二月二日】
+![img](https://media.gettr.com/group12/getter/2022/03/04/02/924ff54b-7e04-d120-827a-d9cad74b5543/out.jpg)
+
+---
+
 `@miles 3/4/2022 12:30 AM (UTC)`
 
 3/2/2022 Miles Guo: Even Singapore, the most pro-communist country,  does not support Russia, and anyone who supports Russia's invasion of Ukraine may receive a lifetime entry ban to Singapore; it is a stupid suicidal idea that the CCP asked the Chinese in Ukraine to stick China’s flag on their cars, which has endangered many Chinese<br/><br/>3/2/2022 文贵直播：即使最亲共的新加坡也不支持俄罗斯，任何支持俄罗斯入侵乌克兰的人都可能被终身拒绝入境；中共让在乌克兰的中国人往车上贴中共国旗，简直是一种愚蠢的自杀行为，已有多人因此受到伤害
@@ -149,13 +156,6 @@ We’ve seen this coming, and we’ve been reactionary. That gave Vladimir Putin
 
 3/2/2022 Miles Guo: The rescue led by the New Federal State of China is only for saving lives with no selfishness; we will save lives at all cost, but we must ensure the safety of everyone; rescued people can freely choose where you want to go afterwards; the CCP only saves their own people unconditionally while leaving ordinary Chinese behind<br/><br/>3/2/2022 文贵直播：新中国联邦的大营救没有私心只为救人；我们为救人不会考虑成本代价，但要绝对保证所有人的安全；被救出的人有自由选择出路的权利；中共只会无条件救自己的人，完全不顾普通中国公民的生死<br/>
 ![img](https://media.gettr.com/group38/getter/2022/03/02/23/9fe57cc9-199a-8254-ebb9-83e4bbdbf0fe/out.jpg)
-
----
-
-`@miles 3/2/2022 10:15 PM (UTC)`
-
-3/2/2022 Miles Guo: The CCP manipulates people by hiding the truth and controlling the media; more than 20 Chinese citizens have been killed in Ukraine, but the CCP disallows any report of the news; Putin is repeating Hitler's trick of fabricating stories to justify his war <br/><br/>3/2/2022 文贵直播：隐瞒真相控制媒体是中共控制人民的手段；有20多个中国人已在乌克兰战争中罹难，但中共不允许消息被报道出去；普京正在重施希特勒的伎俩，要用弥天大谎为他的战争找借口<br/>
-![img](https://media.gettr.com/group5/getter/2022/03/02/22/0f4abce5-abf6-2304-6c61-082bc2e80166/out.jpg)
 
 ---
 
