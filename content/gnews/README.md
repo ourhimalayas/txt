@@ -21,43 +21,43 @@
 ### [焦点：美国即将援助乌克兰60架战斗机](/content/gnews/2/README.md)
  ` 丁过`
 
-### [普京目标： 征服整个乌克兰](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [参议员卢比奥: 普京的（精神）健康出了问题](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [欧盟审视加密资产是否被用来破坏对俄罗斯的制裁](/content/gnews/5/README.md)
- ` 纽约香草山MOS02`
-
-### [中共趁美国前国务卿蓬佩奥访台之际，作妖台湾大停电](/content/gnews/6/README.md)
- ` YALUN 亚伦`
-
-### [澳新银行称俄罗斯拥有1400亿美元的中国债券](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [英司法大臣：俄罗斯指挥官“将因战争罪被追捕”](/content/gnews/8/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [国际社会的另一个选项：终止俄罗斯安全理事会常任理事国地位](/content/gnews/9/README.md)
- ` 纽约香草山MOS02`
-
-### [美国感染中共病毒人数超1.4亿，预示中共即将倒台](/content/gnews/10/README.md)
+### [乌克兰议会议员阿列克谢·贡恰连科公开谈论俄罗斯入侵乌克兰](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [喊话俄罗斯：法国财长布鲁诺·勒梅尔警告俄罗斯，不要使用加密货币来避免制裁](/content/gnews/11/README.md)
+### [普京目标： 征服整个乌克兰](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [参议员卢比奥: 普京的（精神）健康出了问题](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [欧盟审视加密资产是否被用来破坏对俄罗斯的制裁](/content/gnews/6/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|韩国将从3月起停止中共病毒疫苗强制接种](/content/gnews/12/README.md)
+### [中共趁美国前国务卿蓬佩奥访台之际，作妖台湾大停电](/content/gnews/7/README.md)
+ ` YALUN 亚伦`
+
+### [澳新银行称俄罗斯拥有1400亿美元的中国债券](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [英司法大臣：俄罗斯指挥官“将因战争罪被追捕”](/content/gnews/9/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [国际社会的另一个选项：终止俄罗斯安全理事会常任理事国地位](/content/gnews/10/README.md)
+ ` 纽约香草山MOS02`
+
+### [美国感染中共病毒人数超1.4亿，预示中共即将倒台](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [喊话俄罗斯：法国财长布鲁诺·勒梅尔警告俄罗斯，不要使用加密货币来避免制裁](/content/gnews/12/README.md)
+ ` 纽约香草山MOS02`
+
+### [有声|韩国将从3月起停止中共病毒疫苗强制接种](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [2022-年3月2日《文贵大直播》全文字版](/content/gnews/13/README.md)
+### [2022-年3月2日《文贵大直播》全文字版](/content/gnews/14/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [有声|俄SWIFT将被切断 加息难阻民众挤兑](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [有声|美财政部：禁与俄中央银行交易 制裁俄财富主要来源](/content/gnews/15/README.md)
+### [有声|俄SWIFT将被切断 加息难阻民众挤兑](/content/gnews/15/README.md)
  ` MOSREC`
 
 ### [Hcoin To the Moon上线91天第30次位列匈牙利iTunes摇滚音乐榜首](/content/gnews/16/README.md)

@@ -2,52 +2,51 @@
 ---
 
 
-## 国际社会的另一个选项：终止俄罗斯安全理事会常任理事国地位
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2102087/)
+## 英司法大臣：俄罗斯指挥官“将因战争罪被追捕”
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2102089/)
 
-作者：纽约香草山农场 – 四季
+翻译：sherryok (水云间)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+3月2日，英国和其他 37 个国家将俄罗斯提交给国际刑事法院，因其“野蛮”入侵乌克兰。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3041.jpg)图片：多米尼克·拉布表示，英国将帮助追捕弗拉基米尔·普京的指挥官
 
+司法大臣多米尼克·拉布警告说，如果俄罗斯指挥官在乌克兰听从弗拉基米尔·普京的命令，他们将因战争罪被追捕。
 
+他说，英国已经计划帮助识别和寻找涉嫌战争罪的逃犯。
 
+周三，英国和其他 37 个国家将俄罗斯提交给国际刑事法院 (ICC) 检察官，以[**调查****“****乌克兰的战争罪行****”**](https://news-sky-com.translate.goog/story/ukraine-invasion-rare-standing-ovation-in-house-of-commons-as-ukrainian-ambassador-watches-pmqs-12555552?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)，这是国际刑事法院历史上拥有最大附议的提案。
 
-据某媒体3月2日[报道](https://www.stvincenttimes.com/us-eyeing-ways-to-strip-russia-of-un-influence/)，美国副国务卿温迪·谢尔曼周三告诉美国立法者，华盛顿正在“调查驱逐作为安理会五个常任理事国之一的俄罗斯的前景”。
+当各国联合起来，国际刑事法院检察官无需获得司法批准即可开始调查，因此他们可以立即开始调查。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/621fe57585f54070337611b6.jpg)[图片来源](https://www.stvincenttimes.com/us-eyeing-ways-to-strip-russia-of-un-influence/)
+拉布称俄罗斯的入侵是“野蛮的”，并表示所有 38 个国家都“非常清楚普京这些可怕的行为不可能获得豁免”。
 
-近日，联合国大会以压倒性的多数投票谴责俄罗斯上周入侵乌克兰并要求莫斯科立即无条件撤军。在安理会上周五的投票失败后，这一谴责是通过一项不具约束力的决议发出的，而俄罗斯作为安理会常任理事国使用其否决权阻止了决议。
+拉布同时是英国的副首相，他告诉每日电讯报：“英国有专门搜集战争情报，提供切实证据将战犯送上审判台的专家。”
 
-自乌克兰入侵开始以来，乌克兰政府已多次敦促联合国重新考虑俄罗斯在安理会的地位，认为俄罗斯在联合国安全理事会的存在显然是不合法的。英国政府对降低俄罗斯的联合国地位也持开放态度。英国首相鲍里斯·约翰逊的发言人周二说，他们希望看到俄罗斯在外交上被孤立，英国将考虑所有选项来实现这一目标。
+他说他正跟外交大臣丽兹·特拉斯商讨英国扮演的角色。
 
-**原文阅读：**
+这位曾起诉战争罪犯的前律师告诉该报：“现在重要的是要树立一个规范，打破人们对有罪不罚的看法。
 
-**[Push to end Moscow’s status as permanent Security Council member gains steam – St Vincent Times](https://www.stvincenttimes.com/us-eyeing-ways-to-strip-russia-of-un-influence/)**
+“我们真正想做的是将这个信息传达给普京，以及任何可能正在考虑如何处理可能导致他犯下战争罪的非法命令的战场指挥官。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
+“他们需要知道，他们很有可能会面临海牙法院的审判和牢房。这就是为什么我们将支持国际刑事法院，无论是在技术上，还是在任何其他方面。”
 
-编辑/校对/发稿：小鹿
+他补充说，在纽伦堡审判、南斯拉夫法庭和国际刑事法院期间，英国“一直有合作和信息”。
 
+拉布先生表示，英国已帮助定位逃犯并提供关键信息，以帮助检察官办公室收集证据以确保定罪。
 
+“我们在该领域拥有专业知识，并在过去提供了已证明绝对关键的主要信息，” 他补充说。
 
-**更多资讯，更多关注**
+“世界上很少国家有这种能力。”
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+他还表示，英国可以在寻找证人和保护方面提供帮助，该国的监狱可以关押战犯。
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+新闻链接：
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[https://news.sky.com/story/ukraine-invasion-russian-commanders-will-be-hunted-down-for-war-crimes-justice-secretary-warns-12556110](https://news.sky.com/story/ukraine-invasion-russian-commanders-will-be-hunted-down-for-war-crimes-justice-secretary-warns-12556110)
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 
