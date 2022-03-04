@@ -2,50 +2,86 @@
 ---
 
 
-## 欧盟审视加密资产是否被用来破坏对俄罗斯的制裁
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2102174/)
+## 乌克兰议会议员阿列克谢·贡恰连科公开谈论俄罗斯入侵乌克兰
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2102201/)
 
-作者：纽约香草山农场 – 四季
+Alexy Goncharenko (Ukraine parliament member)
+阿列克谢·冈察连科（乌克兰议会议员）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+Really, for the first time in human history
+真的，人类历史上第一次
 
+and for the moment for the laws gave up our nuclear weapons arsenal
+而且在那时刻也是在法律上放弃了我们的核武器库
 
+and it was the moment the third biggest in the world
+而且那是世界第三大的核武器库
 
+and we receive guarantees from the United States，United Kingdom and the Rus-sian Federation
+当时，我们得到美国、英国和俄罗斯联邦的保证
 
+But now you see what guarantees we have
+但现在你看到了我们没有得到什么保证
 
-据[OAN网站](https://www.oann.com/eu-checking-if-cryptoassets-being-used-to-bust-russian-sanctions-eu-official/)援引路透社3月2日的报道，欧盟高级官员周三表示，欧盟委员会正在研究加密资产是否被俄罗斯用来绕过其入侵乌克兰后对该国银行实施的金融制裁。
+instead of guarantees, we have missiles in our residential areas
+我们没有保证，而发生的是导弹射向了我们的住宅区
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-02T142310Z_3_LYNXMPEI210KF_RTROPTP_0_BINANCE-CRYPTO-CURRENCY-RUSSIA_1.jpg)在2021年6月28日拍摄的这幅插图中，币安的标志前显示了加密货币比特币、以太坊、狗币、瑞波币和莱特币。(REUTERS/Dado Ruvic/Illustration/)
+That one that you showed in kharkiv, unfortunately, did not explode
+不幸的是，你在哈尔科夫中展示的那个没有爆炸
 
-周一,俄罗斯卢布和Tether加密货币之间的交易量激增，因为当地货币在西方制裁下跌至历史最低点。
+but we have a missile attack on Kyiv where I am now Pavlograd
+但我们的基辅受到导弹袭击，我现在是在巴甫洛格勒
 
-欧盟官员表示，欧盟意识到加密资产是避免欧盟和其他西方大国实施制裁的一种 “可能的规避途径”。
+where this morning people met with a missile
+今天早上人们遭到导弹袭击的地方
 
-在俄罗斯对乌克兰的入侵进入第二周的同时，国际社会已经对俄罗斯的侵略行径展开了全方位的制裁。
+which shot in the big residential house
+并且击中了大的居民房屋
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
+and it looks like it started burning
+看起来它开始燃烧了
 
-编辑/校对/发稿：小鹿
+and it was it looked very much similar
+而且它看起来非常相似
 
+as the Twin Towers terrible terroristic attack on September 11
+就像 9 月 11 日的双子塔恐怖袭击那样
 
+And now we are under such attack from Russian Federation
+现在我们正受到俄罗斯联邦的攻击之下
 
-**更多资讯，更多关注**
+which is definitely the State terrorist now
+这绝对是国家恐怖分子
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+and we have a big losses of civilians for the moment
+目前我们有大量平民损失
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+We have 198 civilians killed, including three children
+我们有 198 名平民丧生，其中包括三名儿童
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+and that’s awful, that’s a real genocide in the middle of Europe in the 21st century
+这太可怕了, 这就是21世纪发生在欧洲中部真正的种族灭绝
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**原视频链接**[https://twitter.com/newsmax/status/1497621223915802630?s=24](https://twitter.com/newsmax/status/1497621223915802630?s=24)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+Date:02/28/2022
+原视频标题: Ukrainian Parliament member Alexey Goncharenko speaks out about the Russian invasion of Ukrai
+乌克兰议会议员阿列克谢·贡恰连科公开谈论俄罗斯入侵乌克兰
+原视频日期：2022/02/27
+原视频链接https://twitter.com/newsmax/status/1497621223915802630?s=24
+任务编号：KE428（3871）
+视频时间段 : 0:00-1:13
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

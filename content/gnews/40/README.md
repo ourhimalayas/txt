@@ -2,24 +2,35 @@
 ---
 
 
-## 俄军侵略乌克兰加速俄罗斯闭关锁国
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2100454/)
+## 英国联合38国将俄侵乌暴行提交国际刑事法院
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2101024/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+**整理：围剿维尼熊
+编辑：Candy**
 
-采编/编辑撰稿： 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-296.png)图片来源：https://thepostmillennial.com/
-据加拿大媒体【后千禧年】3月1日报道，除了基本运输和邮递行业以外，包括苹果和福特等越来越多的国际大型企业开始加入到断绝与俄罗斯商业合作的行列。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-报道称，为反抗俄罗斯侵略乌克兰，许多国家目前已禁止俄罗斯飞机进入其领空。同时，欧美及其盟国也已对俄罗斯及普京实施了严厉经济制裁，惩罚性的多米诺骨牌效应也将逐渐显现。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/诉俄.png)图片来源：雅典娜设计组
 
-据悉，英国石油巨头BP和壳牌都停止了与俄罗斯的贸易。联邦快递和UPS也警告称，将无法保证提供其在战乱地区的服务。国际集装箱运输行业的顶级公司，马士基和MSC日前都取消了往返俄罗斯的货运订单。苹果公司不仅暂停了在俄罗斯所有产品的销售，而且还封禁了乌克兰的地图信息，以保护当地居民的安全。
 
-校对编辑：硫酸羟氯喹64
+根据大纪元2022年3月3日讯，英国和其它38个国家已将俄罗斯入侵乌克兰期间的暴行，正式提交给国际刑事法院（ICC）。
 
-发稿：青青
+据国际刑事法院的规则，成员国正式提告，意味着检察官在开始调查之前，不必得到国际刑事法院法官的批准。
 
-原文链接： [Growing list of companies cut ties with Russia over Ukraine invasion | The Post Millennial](https://thepostmillennial.com/growing-list-of-companies-cut-ties-with-russia-over-ukraine-invasion)
+英国联合其它38国一同提交请求，成为了国际刑事法院历史上规模最大的一次。英国外交大臣莉斯·特拉斯（Liz Truss，港译卓慧思）表示迫切需要国际刑事法院调查俄罗斯的野蛮行径，追究那些应为此负责的人。英国将与盟国紧密合作，确保正义得到伸张。
+
+在英国和盟国的要求下，国际刑事法院检察官卡里姆·汗（Karim Khan）已积极开始对乌克兰战争进行调查。
+
+参考链接：[39国指俄侵乌涉暴行 国际刑事法庭展开调查](https://www.epochtimes.com/gb/22/3/3/n13617865.htm)
+
+***发布：Candy***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
