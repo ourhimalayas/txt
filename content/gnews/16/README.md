@@ -2,71 +2,20 @@
 ---
 
 
-## 有声|致勇敢的乌克兰人民
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2106684/)
+## 俄罗斯公司急着开中共国银行账户
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2106778/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-我们用血肉之躯
-对抗侵略者钢铁炮弹
-无情战火
-燃炸着家园
-反抗！反抗！
-捍卫我们土地
-为了自由
-为了孩子未来
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-05-002846.jpg)
+《路透社》报道，中共国一家国有银行的莫斯科分行收到来自俄罗斯公司希望开立新账户的询问，目前俄罗斯企业由于该国入侵乌克兰被国际制裁，都纷纷寻求其他躲过制裁的出路。
 
-货架上货物
-被震散在地上
-轰鸣声过后
-捡起来，放回去
-希望路过的战士
-进来拿些
+据中共国银行在莫斯科分行工作人员称，在过去的几天里，有200-300家公司找到他们希望开立新的账户，但拒绝透露客户姓名，以及哪家中共国的银行，因为他没有得到授权与媒体交谈。
 
-地下室空间窄小
-留出来
-安置孩子
-年迈的老妈妈
-也来吧
+目前还不清楚俄罗斯国内公司对在中共国银行开设新账户的需求有多普遍，但许多寻求开新账户的公司都与中共国有业务往来，预计这些公司的人民币交易会增加。
 
-我们不会放弃
-即使侵略者
-有精良武器
-摧毁不了反抗意志
-用我们血肉之躯
-也要对抗
-把侵略者
-赶出我们国土
-夺回被摧残家园
-为了自由
-和未来
-待孩子们长大
-这片土地上
-依然会有
-粮食和鲜花
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FMw9JHlXoAI5ZQZ-1.jpg)
+中共对俄国的表态模糊不清，这会让国际社会彻底不再信任中共国所发表的任何言论。此后，西方国家是否会一起发起对中共国病毒溯源的追究？已经有相关报道称， 科学家不再相信中共病毒是动物传给人类的，而英国政府也相信病毒是武汉实验室泄漏的。七哥的判断是今年五月份，病毒疫苗的次生灾难会爆发。到时候，相信中共会变成世界的公敌。
 
-
-
-
-文字版原文：[致勇敢的乌克兰人民](https://gnews.org/zh-hans/2105770/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源**：https://www.reuters.com/business/exclusive-russian-firms-rush-open-chinese-bank-accounts-sanctions-bite-sources-2022-03-03/
 
  
 

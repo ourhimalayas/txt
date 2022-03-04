@@ -2,32 +2,26 @@
 ---
 
 
-## IAEA谴责俄罗斯入侵乌克兰 中共国投反对票
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105063/)
+## 樱花FM|美国政府跨党派使团抵台 美台加深合作抗击中共
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2105149/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片8.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.aljazeera.com%2Fwp-content%2Fuploads%2F2021%2F05%2F2021-05-24T101944Z_143477179_RC2AMN9I2875_RTRMADP_3_IRAN-NUCLEAR-IAEA.jpg%3Fw%3D770%26resize%3D770%252C513&amp;imgrefurl=https%3A%2F%2Fwww.aljazeera.com%2Feconomy%2F2021%2F5%2F27%2Firan-nuclear-deal-are-iaea-safeguards-dangerously-obsolete&amp;tbnid=VoISnkUsMzszCM&amp;vet=12ahUKEwir8cLy-Kv2AhWngGMGHXZeBUQQMygOegUIARDLAQ..i&amp;docid=Dlyenrh0psuPfM&amp;w=770&amp;h=513&amp;q=IAEA&amp;ved=2ahUKEwir8cLy-Kv2AhWngGMGHXZeBUQQMygOegUIARDLAQ)
-联合国核监督机构–国际原子能机构(IAEA)的理事会周四（3月3日）通过了一项决议，谴责俄罗斯入侵乌克兰，并呼吁俄罗斯让乌克兰控制其所有核设施，只有两票反对。
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/j19bAOJgoF8DV26S9ViSy9W9oxJYkw3AOoDPjgxg4xMwoLRBdobKvm6uS3D3QSKRm-Sw779E2HT1HSPaHWQR8oJA-whEuLQlcGfQ0HU5gdNmE-L12ZKFfGQGOR0sSDFofdqVeMCx)
+据台湾《自由时报》3月1日报道，美国总统拜登（Joe Biden）指派前参谋首长联席会议主席穆伦（Michael Glenn Mullen）率团访台，今天（1日）下午4时13分飞抵松山机场，外交部长吴钊燮亲自接机。访团在台期间将晋见总统蔡英文、副总统赖清德、拜会行政院长苏贞昌及国防部长邱国正，并接受外交部长吴钊燮午宴与蔡总统晚宴。
 
-IAEA理事会在其决议中说，“对俄罗斯联邦在乌克兰的行动予以谴责”。
+美国总统拜登指派跨党派资深代表团搭乘行政专机访问我国。访团由前参谋首长联席会议主席穆伦率领，成员包括前国防部政策次长弗洛伊（Michèle A. Flournoy）、前白宫副国安顾问欧苏利文（Meghan L. O’Sullivan）、前白宫国安会亚洲事务资深主任格林（Michael Green）及前白宫国安会亚洲事务资深主任麦艾文（Evan S. Medeiros）。访团预计2日上午前往总统府拜会总统蔡英文，下午分别拜会行政院长苏贞昌与国防部长邱国正，晚上由蔡总统设宴款待后，即于晚间10时搭乘专机离台。
 
-两名外交官说，有26个国家投了赞成票，两个国家投了反对票，五个国家弃权。
+吴钊燮今日下午代表我国政府前往接机。外交部对穆伦前主席率重要访团抵访台湾表达诚挚欢迎。外交部说明，访团在台期间将晋见总统蔡英文、副总统赖清德、拜会行政院长苏贞昌及国防部长邱国正，并接受外交部长吴钊燮午宴与蔡总统晚宴；双方将就台美关系各项重要议题交换意见。
 
-一位外交官说，俄罗斯和中共国投下反对票，巴基斯坦、印度、南非、塞内加尔和越南弃权。他们补充说，墨西哥和布隆迪(蒲隆地)缺席。
+，此次美国政府美国使团不仅包括了美国民主、共和两党卸任的高层官员，而且使团成员均具国安或军事背景。使团成员穆伦于2007年至2011年担任美军参谋首长联席会议主席，军事经验丰富；傅洛依曾于2014年及2015年两度率领新美国安全中心（CNAS）「下一世代国安领袖计画」（NextGen）访团来台；欧苏莉文现为哈佛大学国际实务教授，曾于2004年至2007年于小布什政府时期国安会主管伊拉克及阿富汗议题；葛林及麦艾文先后为小布什及奥巴马政府时期的白宫国安会亚洲事务资深主任，负责处理台湾议题事务，均曾多次访问台湾。
 
-国际原子能机构（英语：International Atomic Energy Agency，缩写：IAEA）是致力于和平发展原子能的独立政府间国际组织，成立于1957年7月29日，为联合国系统的一部分。总部位于奥地利首都维也纳。其在2005年10月6日因“防止核能被用于军事目的，并确保最安全的和平利用核能”而获得诺贝尔和平奖。
+俄军大举入侵乌克兰后，世界再一次被笼罩在“热战”阴影之下，根据郭文贵先生早前爆料，俄罗斯与中共已达成协议，俄军出兵乌克兰之际，中共将执行“双龙”计划直取台湾。在台海形势显得越发危急情况下，美国使团访台显示了美台合作共抗中共的决心，也给以习近平为首的中共主战派挡头一棒，加之，俄罗斯近来接连受到SWIFT限制等西方国家为主体国际组织一系列制裁，相信解放军一旦攻台，国际组织对中共制裁力度一定毁灭性的。顺便提醒，墙内民众应该远离军事设施，尽皁屯粮屯药储备物资，以防战争到来遭遇不测。
 
-截至2020年9月17日，共有172个成员国。机构的组织机构包括大会、理事会和秘书处。
+文字版原文：[美国政府跨党派使团抵台 美台加深合作抗击中共](https://gnews.org/zh-hans/2088712/)
 
-理事会（英文：Board of Governors）是机构的决策机构，执行机构的各项任务。
-
-消息来源:
-
-[IAEA理事会对俄罗斯入侵乌克兰予以“谴责” 只有两票反对](https://cn.reuters.com/article/iaea-condemns-russia-0303-thur-idCNKCS2L1041?il=0)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,17 +2,33 @@
 ---
 
 
-## 俄国轰炸乌克兰的核电厂
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2106721/)
+## 有声|日本首相宣布接受乌克兰难民
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2106820/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/333.jpg)
-根据扎波罗热电厂的脸书的信息，3月4日，该电厂的1号机组已经被击中，有报道称俄罗斯炮击了乌克兰扎波罗热核电站，这个核电站也是欧洲最大的核电站，占乌克兰发电量的四分之一。目前该核电厂起火，金融市场反应强烈，国债、美元、日元和黄金等都随即大幅飙升。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间3月2日，据相关媒体消息显示，日本首相岸田文雄当天宣布，日本将对乌克兰提供紧急人道援助，并接收从乌克兰前往第三国避难的人员。
 
-普京大帝是否在制造一场世界级的金融危机，使世界陷入困境？这是不是也让习太阳的统一台湾的野心，导致中共国社会动荡？习太阳是不是要做台湾的救世主了？
+报道提及，岸田首相在与波兰总理莫拉维茨基和德国总理肖兹进行通话后确认，当地政府将对乌克兰展开救助。岸田首相表示，此次救援将不仅限于对在日本有亲友的乌克兰民众进行援助，而是会从人道主义的角度来实施救援。同时，为了进一步展现日本与乌克兰的友好关系，日本将接受乌克兰前往第三国的避难人员，并且这些避难者将与日本现行的防疫入境管制措施分开考虑。
 
-**新闻来源：** [https://www.zerohedge.com/markets/futures-tumble-report-ukraine-nuclear-power-plant-europes-largest-fire-after-shelling](https://www.zerohedge.com/markets/futures-tumble-report-ukraine-nuclear-power-plant-europes-largest-fire-after-shelling)
+岸田首相强调，日本将与以G7集团为首的国际社会继续加强合作，协助进行对乌克兰的救援工作。
 
+据悉，目前共有接近两千名乌克兰人滞留在日本，为此，当地政府日前已经明确，针对短期内无法回国的乌克兰人，日本将对其放宽居留时间。
+
+文字版原文：[日本首相宣布接受乌克兰难民](https://gnews.org/zh-hans/2100507/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
