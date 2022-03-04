@@ -2,23 +2,37 @@
 ---
 
 
-## 愿体育终有一日无关政治！俄罗斯「滑冰女超人」遭抵制禁赛
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2102403/)
+## 有声|使用日内瓦公约禁用武器 普京疑涉战争罪
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2102482/)
 
-俄罗斯入侵乌克兰，不仅使得俄罗斯遭受严重经济制裁，也造成不少运动员被拔除参赛资格，其中不乏国际知名冠军好手。在花式滑冰界有「滑冰神力女超人」、「四周跳女王」称号，和日本选手羽生结弦齐名的俄罗斯选手特鲁索娃(Alexandra Trusova)也宣布遭到国际联盟通知禁赛，她的官方微博发出声明，强调希望东欧早日和平「愿体育终有一日无关政治」。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月1日，据盖特平台消息显示，乌克兰驻美国大使马卡洛娃指控俄罗斯军队在空袭乌克兰时，使用了“真空弹”武器。此外，国际特赦组织也在一份声明中指出，俄罗斯使用集束炸弹摧毁了乌克兰的一所收容平民幼儿园，造成包括儿童在内的三人死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-03-%E4%B8%8A%E5%8D%888.43.48.png)
+资料表明，“真空弹”是一种热压武器，其可在半空中爆炸并释放大量热能和超音速震波，同时迅速消耗尽该区域内的所有氧气，其高温足以蒸发人体，被称为仅次于核弹的武器；至于集束炸弹则是在弹体中装入多至数百个子炸弹，用以对目标进行地毯式轰炸，极易误伤平民。值得注意的是，这两种炸弹都是被日内瓦公约明令禁止的“大规模杀伤性武器”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3551525-PH.jpg)图片来源：微博
+对此，英国政府警告称，普京和莫斯科的指挥官或将因这种违反战争法的行为而面临起诉。海牙国际刑事法院ICC检察官办公室则表示，将寻求法院批准，对普京在乌克兰犯下的危害人类罪以及战争罪展开调查。
 
-简评：如今体育被政治裹挟，奥林匹克运动会完全背离了奥林匹克的精神，成为了政治勾兑的一部分。希望东欧早日和平，愿体育终有一日无关政治，这么美好的愿景是需要有大环境前提的，就是消灭独裁政府，坚持正道主义！既然有这么美好的夙愿，请为此而努力吧！
 
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1079601)
 
-撰稿/发布：一叶知秋
+文字版原文：[使用日内瓦公约禁用武器 普京疑涉战争罪](https://gnews.org/zh-hans/2100034/)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

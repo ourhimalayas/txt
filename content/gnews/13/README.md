@@ -2,57 +2,154 @@
 ---
 
 
-## 3/3 银河快讯:俄罗斯直升机侵犯日本近海领空；美国主要石油公司将退出俄罗斯&#8221;萨哈林1号&#8221;项目
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2102233/)
+## 圣彼得堡和新西伯利亚在内的多个城市爆发了反战抗议活动
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2102310/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220303-00000029-ann-000-1-thumb.jpeg)
-[图片资源](https://news.yahoo.co.jp/articles/72cf0c6f29ff18fb162ea298a59638b51b0fec70)
+Russians are split on the military invasion of Ukraine
+俄罗斯人对乌克兰的军事入侵存在分歧
 
-**1. 俄罗斯直升机侵犯根室近海领空**
+St Petersburg, Russia
+俄罗斯圣彼得堡
+February 24, 2022
+2022 年 2 月 24 日
 
-[据共同社3月2号报道，防卫省宣布，这架飞机在侵入日本领空时，面对多次接近及入侵领空警告没有回应。外务省通过外交渠道向俄罗斯提出了严正抗议，并强烈敦促其防止再次发生此类事件。防卫省表示，”俄罗斯在日本周围变得越来越活跃。我们将采取一切可能的措施进行警惕性监测和信息收集”。正在对详细的飞行情况进行分析。](https://news.yahoo.co.jp/articles/d1c3a754946c419bed9e5a76931fc69258dca227)
+Elizaveta (Architect)
+伊丽莎维塔（建筑师）
 
-**2. 美国主要石油公司将退出 俄罗斯”萨哈林1号”项目**
+I don’t want Russia to attack Ukraine
+我不希望俄罗斯攻击乌克兰
 
-[据NHK3月2号报道，萨哈林1号和萨哈林2号是俄罗斯远东萨哈林东北海岸的主要石油和天然气开发项目之一，日本也深入参与其中。在该项目中发挥核心作用的美国大型石油公司埃克森美孚宣布，它将启动退出该项目的程序。日本政府在SODECO-萨哈林油气开发公司中拥有50%的股份，主要贸易公司伊藤忠商事株式会社和丸红株式会社通过此公司保有30%的开发权益。](https://www3.nhk.or.jp/news/html/20220302/k10013509241000.html?utm_int=news-business_contents_news-main_005)
+So that someone would go there like this
+所以有人会像这样去那里
 
-**3. 由于经济制裁的影响，本田暂停向俄罗斯出口汽车和摩托车**
+I have grandparents there
+我有祖父母在那里
 
-[据NHK3月2号报道，由于俄罗斯军事入侵乌克兰所造成经济制裁不断加强的情况下，汽车制造商本田公司决定暂停向俄罗斯出口乘用车和摩托车。经济制裁的影响正在向制造业蔓延。对俄罗斯的经济制裁导致物流混乱，使货物难以通过船舶运输，在此之上还不得不考虑未来有无法结算付款或收回资金的风险。](https://www3.nhk.or.jp/news/html/20220302/k10013509871000.html?utm_int=news-business_contents_news-main_003)
+Anti-war protesters have taken to the streets in 53 cities across the country
+全国53个城市的反战抗议者走上街头
 
-**4. 日本、美国、欧洲和其他国家同意协调释放石油库存以确保稳定的原油供应**
+Moscow, St Petersburg and Novosibirsk saw some of the largest demonstrations
+莫斯科、圣彼得堡和新西伯利亚见证了一些最大规模的示威活动
 
-[据NHK3月2号报道，由于担忧俄罗斯军事入侵乌克兰影响石油稳定供应，由日本、欧洲和美国等能源消费国组成的IEA(国际能源署)于日本时间1日在举行了一次特别部长级网络会议，日本经济产业大臣萩生田出席了会议。国际能源署成员国共同认为，在俄罗斯入侵乌克兰之后，需要共同努力稳定能源市场。](https://www3.nhk.or.jp/news/html/20220302/k10013508841000.html?utm_int=all_side_business-ranking_002)
+Artem (Protester)
+阿尔乔姆（抗议者）
 
-**5. 支持乌克兰 各种团体呼吁捐款**
+What happened today is a shame
+今天发生的事情太可耻了
 
-[据NHK3月2号报道，对俄罗斯入侵乌克兰，日本各种团体呼吁通过捐款支援乌克兰。](https://www3.nhk.or.jp/news/html/20220302/k10013510101000.html?utm_int=news-social_contents_list-items_023)
+Many of us have relatives and friends from Ukraine
+我们中的许多人都有来自乌克兰的亲戚和朋友
 
-日本红十字会联系电话03-3437-7082
+and this is a betrayal of them
+这是对他们的背叛
 
-联合国儿童基金会联系电话0120-88-1052
+Russian police arrested nearly 1,700 protesters at rallies denouncing the conflict
+俄罗斯警方在谴责冲突的集会上逮捕了近 1700 名抗议者
 
-联合国难民署协会请联系0120-540-732
+Others support the ‘special military operation’ in Ukraine launched by President Putin
+也有人支持普京总统在乌克兰发起的“特种军事行动”
 
-国际非政府组织 “拯救儿童 “联系电话是0120-317-502
+Maria (Moscow resident)
+玛丽亚（莫斯科居民）
 
-国际非政府组织Adora Japan请联系03-5410-0045
+No need to panic
+无需恐慌
 
-非政府组织 “日本援助和救济协会 “请联系03-5423-4511
+If they pose a threat to our people, we need to defend ourselves
+如果他们对我们的人民构成威胁，我们需要保护自己
 
-非营利组织 “日本和平之风 “联系电话是0120-252-176
+The strikes are targeted
+攻击是有针对性的
 
-[各团体呼吁捐款用于发送必要的救援物资，为儿童建立疏散庇护所心理护理，支持流离失所者，并确保食品和其他救济物资，分发口罩和牙刷等卫生用品，食品和卫生用品，并协调疏散人员的家庭住宿，支持医院的医疗用品等。](https://www3.nhk.or.jp/news/html/20220302/k10013510101000.html?utm_int=news-social_contents_list-items_023)
+It’s all going as planned, so I think it is the right decision
+一切都按计划进行，所以我认为这是正确的决定
 
-**6. 岸田首相宣布，接受乌克兰难民**
+Some Russians are unsure and are worried about the consequences of war
+一些俄罗斯人不确定并担心战争的后果
 
-[据ABEMA TIMES报道，在与德国总统施泰因迈尔和波兰总理莫拉维茨基进行电话交谈后，岸田首相告诉记者，他将推动为面临困难的乌克兰人民提供紧急人道主义援助，并接受因避难而离开其国家的人进入日本。首先将接受那些在日本有亲戚和熟人的人，但将并不局限于此这，从人道主义的角度来处理。我们希望从现在开始进行具体的调整。](https://news.yahoo.co.jp/articles/f253b3e93901da869ea7d4e455669644c44a4d00)
+Andrey (Moscow resident)
+安德烈（莫斯科居民）
 
-**【日本银河系农场-阿尔法星球】**
+It’s a critical situation for the young generation as there is a transition going on
+这对年轻一代来说是一个危急的情况，因为正在发生转变
 
-**中文文案：返朴归真**
+from the Soviet generation to the younger one
+从苏联一代到年轻一代
 
-**校对：Tagomi**
+They are creating problems for the young generation
+他们正在为年轻一代制造问题
+
+as it’s all going to fall on our shoulders
+因为这一切都将落在我们的肩上
+
+Biden with his sanctions, us with this intervention, we will have to deal with them
+拜登的制裁，美国对我们的干预，我们将不得不对付他们
+
+I understand they want to help people there now
+我知道他们现在想帮助那里的人
+
+but they are not thinking about the future
+但他们没有考虑未来
+
+Alexey (Moscow resident)
+阿列克谢（莫斯科居民）
+
+Putin has created a situation we will be getting out of for years to come
+普京创造了一个我们将在未来几年摆脱的局面
+
+I feel sorry for the people there
+我为那里的人感到难过
+
+I feel sorry for us
+我为我们感到难过
+
+It’s hard and painful
+这是艰难而痛苦的
+
+What should we do? No idea
+我们应该做什么？ 不知道
+
+The tendency is … just total obscurity
+趋势是……只是完全默默无闻
+
+the data is very new, it’s not processed yet
+数据很新，还没有处理
+
+It can all lead to our country becoming a closed one
+这一切都可能导致我们的国家成为一个封闭的国家
+
+It’s clear what will happen to the economy, it’s not a question, on the contrary
+很明显经济会发生什么，这不是一个问题，相反
+
+Basically, that’s it
+基本上就是这样
+
+I don’t want to be rude
+我不想粗鲁
+
+but the man in power now is mad and what he is doing is a crime
+但是现在掌权的人疯了，他的所作所为是犯罪
+
+原视频链接[https://twitter.com/scmpnews/status/1497289544122703880?s=24](https://twitter.com/scmpnews/status/1497289544122703880?s=24)
+
+Date:02/27/2022
+原视频标题: Anti-war protests have broken out in several cities, including Moscow, St Petersburg and Novosibirsk, where police arrested protesters at the unauthorized rallies
+警方在未经授权的集会上逮捕了抗议者，包括莫斯科、圣彼得堡和新西伯利亚在内的多个城市爆发了反战抗议活动
+原视频日期：2022/02/26
+原视频链接[https://twitter.com/scmpnews/status/1497289544122703880?s=24](https://twitter.com/scmpnews/status/1497289544122703880?s=24)
+任务编号：KE425（3870）
+视频时间段 : 0:00-3:36
+
+英听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

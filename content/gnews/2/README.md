@@ -2,13 +2,11 @@
 ---
 
 
-## 日本拟进一步对俄实施制裁 丰田关闭在俄工厂
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2102407/)
+## 3/3/2022 文贵盖特：从乌克兰救出来的3家战友已到华沙，新中国联邦在乌克兰的战友100%被救出；很快我们将有两架免费救援飞机，一架去美加，一架去东南亚
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2102500/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3._4-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

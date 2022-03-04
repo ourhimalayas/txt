@@ -2,38 +2,41 @@
 ---
 
 
-## 战争艺术手段高低的比较
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2102298/)
+## 马里乌波尔市长：俄军炮火不断 平民伤亡攀升
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2102437/)
 
-作者：纽约磐石农场—在远方
+#### 【雅典娜快讯】，紧贴时代脉搏
+
+整理：围剿维尼熊
+编辑：木木木mmmmm
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0139.jpg)图片来源：AFP via Getty Images
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-7.png)
+根据大纪元2022年3月3日讯，在乌克兰南部战略重镇赫尔松（Kherson）被俄军控制后，亚速海海滨的重要港城马里乌波尔（Mariupol）也岌岌可危。
 
+马里乌波尔市长瓦迪姆‧博伊琴科（Vadym Boychenko）说，整晚俄军猛烈炮火不断，平民伤亡数持续攀升，由于攻击并未停止，导致急救人员难以救出伤患。
 
-在2月27日的大直播中，郭文贵先生把中共的历次战争，俄乌战争和美国参战的战争艺术，做了精彩的解读和比较。
+周三晚间，博伊琴科在Telegram上发布一份声明，周三是俄罗斯入侵以来最艰难的一天，乌克兰守军对那些向住宅开火的人，进行了英勇的反击。
 
-郭先生说，他对汉朝霍去病和卫青的用兵艺术极为赞赏，这是以少胜多、出其不意、擒贼先擒王的经典战例，可称之为宣判式心理学。中共的辽沈、淮海和平津三大战役，本质都是欺骗战争，是用无数士兵的生命换来的胜利。在1979年所谓的“对越自卫反击战”中，中共将一大批没有受过军事训练的孩子和学生送上了战场，靠不断的死人才将战火烧到了越南境内。同样，中共在韩战中，也是以牺牲了无数志愿军将士的生命，才换来了金家王朝对朝鲜几十年的残酷统治。
+博伊琴科还说，关键基础设施受到影响，市民在周四基础设施修复以前，将没有水和电。他还感谢了医生、公用事业服务人员、乌克兰武装部队和所有公民。
 
-现代战争是智慧战争，在俄乌战争中，乌克兰把心理学、社交学、人际关系学、国际政治关系学，尤其是将研究战争心理的战争逻辑学，运用到了极致。通过战争，乌克兰结交了一大批盟友，比如波兰和捷克。前者让后者认识到，俄罗斯是它们各国共同的威胁，乌克兰的战争，就等同于波兰和捷克的战争，也让欧盟在世界面前羞愧难当。而美国的战争艺术也是十分高超，它在耐心等待代理人战争背后的势力，即中共的最终出现，才会一举歼灭之。
+不过，当地的伤患越来越多。据美国有线电视新闻网（CNN）报导，截至周三下午，俄军和亲俄军队，已从三面包围了这座拥有约43万居民的城市。
 
-新闻来源：[https://www.gettr.com/post/pxap2j6939](https://www.gettr.com/post/pxap2j6939)
+根据乌克兰军方当地时间上午发表的一份最新行动报告，该城市仍在乌克兰手中。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-3.jpg)
+参考链接：
 
-编辑/校对/发稿：滚滚长江都是水
+[马里乌波尔市长：俄军炮火不断 平民伤亡攀升](https://www.epochtimes.com/gb/22/3/3/n13618734.htm)
 
-**更多资讯，更多关注**
+*发布：tianzhihuan*
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

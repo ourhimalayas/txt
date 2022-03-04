@@ -2,42 +2,23 @@
 ---
 
 
-## 日本防卫省：朝鲜导弹飞行距离可能为300公里 最大高度可达600公里
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2102283/)
+## 愿体育终有一日无关政治！俄罗斯「滑冰女超人」遭抵制禁赛
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2102403/)
 
-作者：新西兰伊甸农场-玫瑰
+俄罗斯入侵乌克兰，不仅使得俄罗斯遭受严重经济制裁，也造成不少运动员被拔除参赛资格，其中不乏国际知名冠军好手。在花式滑冰界有「滑冰神力女超人」、「四周跳女王」称号，和日本选手羽生结弦齐名的俄罗斯选手特鲁索娃(Alexandra Trusova)也宣布遭到国际联盟通知禁赛，她的官方微博发出声明，强调希望东欧早日和平「愿体育终有一日无关政治」。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3551525-PH.jpg)图片来源：微博
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-6.png)
-据俄罗斯卫星通讯社2月27日报道，当地时间27日7时59分（北京时间6时59分），日本海上保安厅发布了有关朝鲜可能进行导弹发射的警报。半小时后，海岸警卫队网站上出现了炮弹已经坠落的消息，呼吁海上的船只保持谨慎，如果有物体落入水中，请勿靠近。
+简评：如今体育被政治裹挟，奥林匹克运动会完全背离了奥林匹克的精神，成为了政治勾兑的一部分。希望东欧早日和平，愿体育终有一日无关政治，这么美好的愿景是需要有大环境前提的，就是消灭独裁政府，坚持正道主义！既然有这么美好的夙愿，请为此而努力吧！
 
-如果有关发射的消息将得到证实，这将已经是平壤方面自今年年初以来第八次武器试射。
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1079601)
 
-日本防卫大臣岸信夫表示，疑似朝鲜方面发射的导弹飞行距离约为300公里，最大飞行高度达到600公里。
+撰稿/发布：一叶知秋
 
-岸信夫指出，关于朝鲜导弹发射仍在对细节进行分析。据推测，其落在了日本专属经济区之外。 NHK电视台对新闻发布会进行了转播。 岸信夫表示：“日本政府强烈谴责”朝鲜的行为。
-
-日本防卫大臣指出：“这是一个不可原谅的行为”，并且强调，东京将首先与美国以及“与国际社会密切合作。”。
-
-新闻来源：[https://sputniknews.cn/20220227/1039596100.html](https://sputniknews.cn/20220227/1039596100.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-3.jpg)
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
