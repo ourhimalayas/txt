@@ -2,28 +2,26 @@
 ---
 
 
-## 秘翻在线：美国防部表示”俄军无法掩盖他们的惊慌、受挫以及攻势放缓的事实”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2102726/)
+## 美国与基辅分享实时情报而且俄乌谈判止于同意人道走廊
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2102807/)
 
-撰稿: Eric Kim
-![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-4.jpg)图片来源：[华盛顿=AP/韩国NEWSIS新闻] 当地时间28日，美国防部发言人谭克非在办公楼举行新闻发布会。2022.02.28.
-据韩国NEWSIS新闻3月4日报道称，在俄罗斯总统弗拉基米尔·普京就入侵乌克兰表示“正在按照计划进行”后，美国防部发言人谭克非提出相反的意见予以反驳。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-17.jpg)
+图片来源：china.greekreporter.com
 
-当地时间3月3日，谭克非在接收CNN采访时表示：“俄罗斯军队目前处于惊慌、受挫的阶段，他们的攻势正在放缓。”
+零对冲网3月3日报道，今天数小时前在波兰和白俄罗斯边境地带举行的俄乌谈判的最初视频已流出，谈判历时2个半小时，至少彼此握了手，达成的共识是在战争中建立“人道主义走廊”，以保护逃离的民众。
 
-谭克非对抵抗俄罗斯侵略的乌克兰军队高度评价道：“乌克兰军民在街上，在城市外都在勇敢地战斗着，战斗方式非常具有创意性。”
+乌克兰谈判代表说，整个谈判并没有向停火方向推进，双方达成共识的是人道走廊的建立。另外双方同意下周举行第三轮会谈。白俄罗斯国家新闻机构已证实。
 
-另外，对于滞留在基辅外围的俄罗斯军队，他表示：”俄罗斯军队仍然致力于包围首都。”
+另一个重要新闻来自白宫，周四下午白宫说美国正在与乌克兰分享实时情报。
 
-在全球一致的反战浪潮中，普京依然决定一意孤行、而万恶的中共利用百姓的血汗钱和安全，在其背后进行经济支援，显露出了他们的险恶用心。
+目前在乌克兰南部和黑海沿岸仍然处于对抗中，有警告说战斗在核电厂附近。
 
-他们必将受人万年唾弃！
+目前西方正在激烈辩论什么是西方世界的“不作为”，尤其是在拜登总统周二晚上的讲话中，他进一步发誓美国部队不会进入乌克兰与俄罗斯打仗。
 
+##### 新闻来源： [US Sharing Real-Time Intelligence With Kiev; Russia-Ukraine Talks End In Agreement For ‘Humanitarian Corridors’](https://www.zerohedge.com/geopolitical/russian-forces-lay-siege-ukrainian-seaports-2nd-round-ceasefire-talks-start)
 
-
-信息来源: [https://news.naver.com/main/read.naver?mode=LS2D&mid=shm&sid1=104&sid2=231&oid=003&aid=0011041199](https://news.naver.com/main/read.naver?mode=LS2D&amp;mid=shm&amp;sid1=104&amp;sid2=231&amp;oid=003&amp;aid=0011041199)
-
-责编：Eric Kim
+#  
 
  
 

@@ -2,48 +2,36 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2102768/)
+## 又又一次切尔诺贝利事件将要发生 全世界面临核威胁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2102833/)
 
-整理：枳实
-美工：精灵蓝
+撰稿：东京樱花团/加一颗稻草
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/又又一次切尔诺贝利事件将要发生-全世界面临核威胁.jpg)[图片来源](https://p8.itc.cn/q_70/images03/20220304/bcdf77d5b7d14254a0c8c70de3898fd4.jpeg)
 
+扎波罗热核电站遇袭引发担忧。
 
-雅典娜疫情更新（2022年 3月3日）
+乌克兰外长库列巴（Dmytro Kuleba）称，俄罗斯军队正在“从四面八方”向欧洲最大的扎波罗热核电站开火。此前已有该核电站发生火灾的报道。“俄罗斯人必须立即停火，允许消防员进入，建立安全区！”他在推特上写道。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+国际原子能机构表示，它正在就该核电站遭到炮击的报告与乌克兰当局联系。 该核电站的一位发言人也在社交媒体上要求俄罗斯军队“停止重型武器开火”。
 
-全球和澳洲疫情疫苗关键数据和图表每日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-29.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-18.png)
-[2022年3月3日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月3日改进.pdf)
+据美联社报道，安德烈·图兹（Andriy Tuz）在Telegram上的一段视频中表示：“欧洲最大的核电站面临着真正的核威胁。”图兹表示，该核电站正受到俄罗斯炮火的直接攻击，消防员无法接近火灾发生地。他还称，着火的反应堆正在翻新，目前没有运行，但里面注入了核燃料。
 
-数据来源：
+据报道，扎波罗热的发电量约占国家总发电量的25% 据报道，欧洲最大的核电站扎波罗热（Zaporizhzhia）核电站发生火灾。附近城市安赫德（Enerhodar）的市长德米特罗·奥尔洛夫（Dmytro Orlov）称，这似乎是由于“敌人不断地炮击（核电站）建筑和机组”造成的。奥尔洛夫此前曾称，乌克兰和俄罗斯军队在这座东南部城市的郊区发生激烈战斗。俄军曾试图用坦克攻入这座城市并夺取该核电站。但周三（3月2日），有居民和工人聚集在核电站及其周边道路上。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+乌克兰有四座在役核电站，包括扎波罗热核电站。该国还在处理切尔诺贝利等地的核废料。切尔诺贝利目前由俄罗斯控制。 国际原子能机构今天早些时候表示，它正在与乌克兰和其他国家进行磋商，以便在乌克兰艰难维持核安全时，可以向该国提供尽可能多的援助。
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+此时的俄罗斯如一头困兽，在普京威胁要使用核武器未起到预期作用的情况下。加紧对乌克兰境内的核电站攻击，目的不排除制造出又一次的切尔诺贝利事件，用于威胁欧洲乃至全世界。
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+普京政权已经丧心病狂，其反人类的罪行正在一步一步推进。欧洲以及世界各国都应看到和感受到这个邪恶政权的威胁。并及时做出反应，增加对乌克兰援助，给俄罗斯施加更大的压力和制裁。软弱和妥协只会使普京更加疯狂。
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+消息来源：
 
-[covidlive.com.au](https://covidlive.com.au/)
+[俄罗斯入侵乌克兰：乌克兰核电厂发生火灾](https://www.bbc.com/zhongwen/simp/live/world-60598044)
 
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

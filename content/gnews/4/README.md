@@ -2,35 +2,27 @@
 ---
 
 
-## 法国取消疫苗护照，德约科维奇参加法网的障碍被清除
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2102769/)
+## 俄罗斯石油公司首席执行官的超级游艇在法国港口被扣押
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2102839/)
 
-2022-03-03
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-39.jpg)
+图片来源：网络截图
 
-编译: 真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5PD0AFUXTVZNP@N9OI.png)**图片来源：**https://www.tennismajors.com/
-来自TENNIS MAJORS  三月三日的新闻报道：
+据零对冲3月4日报道，法国宣布，它扣押了属于俄罗斯石油公司首席执行官伊戈尔谢钦（Igor Sechin）的超级游艇。法国财政部长布鲁诺·勒梅尔 （Bruno Le Maire）本周披露，此举是欧盟对俄罗斯持续制裁的一部分**。**
 
-世界网坛排名第二的NovakDjokovic应该能够在五月的法网上卫冕。
+彭博社周四上午报道，这艘游艇被称为Amore Vero（真爱），它在地中海的拉西奥塔特（La Ciotat）港口被没收。报道称，该港口位于法国蔚蓝海岸的马赛附近。当它被没收时，这艘游艇正在 “准备紧急离开”。
 
-在法国政府宣布即将取消其疫苗通行证后，诺瓦克·德约科维奇应该不再有障碍重返下个月ATP巡回赛—蒙特卡洛劳力士大师赛，以及接下来去捍卫他的法网冠军头衔。
+法国预算部长奥利弗·杜索普（Oliver Dussopt）澄清说，这艘游艇是“被阻止离开”，但资产并没有被冻结。它最初的计划是在1月初抵达后，在港口停留到4月1日。一些最大的俄罗斯拥有的豪华游艇正在印度洋周围航行。
 
-由于没有接种过病毒疫苗，德约科维奇能否参加蒙特卡洛，以及 5 月他作为卫冕冠军参加的法网，此前一直受到质疑。
+并非所有的俄罗斯寡头都带着他们的资产逃离了欧洲，拜登政府本周二晚上的国情咨文中非常明确地表示，他们将 “扣押俄罗斯亿万富翁的游艇、豪华公寓和私人飞机”。拜登说：“今晚，我对俄罗斯的寡头和那些靠这个暴力政权建立的数十亿的腐败领导人说，不要再这样了，我们正在为你们的不义之财而来。”
 
-但周四，政府宣布了将于 3 月 14 日暂停疫苗证，这意味着德约科维奇将可以自由参加在蒙特卡洛（4 月 9 日至 17 日）和法网（5 月 22 日至 6 月 5 日）的比赛。
+随后俄罗斯的寡头们正在从海上逃往印度洋。 但是并不是所有的俄罗斯寡头都能逃出来。在乌克兰入侵之后，俄罗斯寡头在全球范围内的流动和西方的制裁使俄罗斯和精英阶层的事情变得复杂。
 
-另外，由于英国放宽了新冠病毒规则， 温布尔登网球公开赛也将欢迎所有球员，无论接种疫苗与否，这样德约科维奇将有机会摘取他的第 20 个大满贯赛事头衔。
+新闻来源：[Rosneft CEO’s $120 Million Super-Yacht Seized At French Port After “Preparing For Urgent Departure”](https://www.zerohedge.com/geopolitical/rosneft-ceos-yacht-seized-french-port-after-preparing-urgent-departure)
 
-德约科维奇目前无法在美国比赛，美国至今保留了禁止未接种疫苗的人入境的规定，这意味着他将错过本月在印第安-维尔斯和迈阿密举行的“大师1000“赛事。在现阶段，他是否将参加美网也存在疑问。
 
-原文链接：[Djokovic clear to play Monte-Carlo, Roland-Garros as France suspends its Covid-19 pass](https://www.tennismajors.com/atp/djokovic-clear-to-play-monte-carlo-roland-garros-as-france-suspends-its-covid-19-pass-591847.html)
 
-编辑：LILY
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
