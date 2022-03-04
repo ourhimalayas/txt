@@ -2,76 +2,41 @@
 ---
 
 
-## 第二轮谈判在俄罗斯轰炸乌克兰主要城市中开始（2/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2105620/)
+## 加拿大军情部门：乌克兰战争期间警惕中共武力犯台
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2105683/)
 
-翻译： Jenny Ball
+#### **【雅典娜观察】，与您一起洞察世界**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1646227797494.jpg)泽连斯基发表讲话。照片：通过盖蒂图片社提供的乌克兰总统讲演稿
+翻译：kl
+编辑：文泓
 
-**根据数字**：周三，乌克兰国家紧急服务部门表示，自 2 月 24 日俄罗斯入侵以来，已有 2000 多名平民丧生。过去 48 小时内，对平民地区的袭击有所增加，但伤亡人数无法核实。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/T5IKUZD4HB6WKVPM_1.png)图片来源：雅典娜设计组
 
-俄罗斯国防部在首次承认重大人员伤亡时宣布，已有 498 名俄罗斯士兵阵亡，1,597 人受伤。乌克兰声称其部队已经杀死了超过5,300名俄罗斯士兵。这两个数字都未经独立核实。
 
-一位美国高级国防官员拒绝就俄罗斯数据的准确性发表评论，但表示：“我对人们的建议是：**对俄罗斯国防部发布的任何信息都抱有极大的怀疑**。”
+加拿大军事情报部门负责人表示，担心莫斯科入侵乌克兰会鼓励中国对台湾做同样的事情，并指出西方对冲突的迅速反应可能会威慑中共国。
 
-截至 3 月 1 日俄罗斯对乌克兰的入侵图
+“一周前，我们非常担心中国，实际上想知道中国是否会借此机会加快他们自己的计划，以加强对近邻的控制，特别是台湾，”军情局局长迈克尔·赖特少将3月2日告诉下议院国防常务委员会（NDDN）。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unknown-1-1.png)数据：战争研究所与 AEI 的关键威胁目标；地图：Jared Whalen/Axios
+这是自2月24日俄罗斯对乌克兰发动袭击以来NDDN举行的第二次会议。来自各方的国会议员正在研究加拿大面临的威胁，以及当威胁来袭时国家支持乌克兰和参与常规战争的能力。
 
-联合国周三表示，**至少有 100 万乌克兰人逃往邻国**。
+当下议院议员林赛·马西森问及，西方国家对乌克兰冲突的反应是否会以某种方式“让中国暂停”其对台湾的野心时，赖特说，“我希望，随着国际社会的反应，特别是北约和西方的反应，中国会暂停他们未来的任何独裁计划。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unknown-2-1.png)乌克兰难民抵达布拉格后申请居留许可。照片：Michal Cizek/AFP via Getty Images
+作为对乌克兰入侵的回应，西方国家对俄罗斯的银行系统、国有企业和寡头实施了一系列经济制裁，旨在削弱克里姆林宫为其军事行动提供资金的能力。加拿大已采取行动禁止进口俄罗斯原油，并于2月28日宣布额外提供2500万美元的援助以支持乌克兰，同时提供两架C-130J战术空运飞机和一支约45人的团队，为北约提供协助。
 
-在俄罗斯，随着卢布贬值，从新款iPhone手机到迪斯尼电影，再到飞往欧洲的航班，**俄罗斯公民正眼睁睁地看着他们的储蓄耗尽**。俄罗斯股市仍然关闭，但投资者迫切希望将资金撤出。
+长期以来，北京一直认为[台湾](https://www.theepochtimes.com/canada-should-work-creatively-with-taiwan-amid-chinas-destabilizing-incursions-global-affairs-official_4277370.html)是一个分离的省份，尽管台湾是一个事实上的独立国家。自2019年3月以来，中共政权一直谋求加大对台湾的军事侵略，不断派遣军用飞机进入该岛的防空识别区。
 
-被监禁的反对派领导人阿列克谢·纳瓦尔尼（Alexei Navalny）周三呼吁，在周末下午 2 点和工作日晚上 7 点，在每个俄罗斯城市的主要广场举行抗议活动。
+2月24日在俄罗斯入侵乌克兰后的几个小时内，中共PLA派出9架飞机进入台湾的防空识别区，这是今年2月的第13次入侵台湾领空；在1月下旬的1次大规模入侵中，中共军方派出39架飞机进入台湾防空识别区，显然是为了恐吓和消耗台湾军队。
 
-**俄罗斯当局已发誓要逮捕任何抗议者，但莫斯科和圣彼得堡仍有大量集会。**
+参考链接：[Intelligence Agencies ‘Very Concerned’ China Will Invade Taiwan: Canada’s Military Intelligence Chief (theepochtimes.com)](https://www.theepochtimes.com/intelligence-agencies-very-concerned-china-will-invade-taiwan-canadas-military-intelligence-chief_4314851.html)
 
-**其他情况**：周三，**141 ****个国家投票赞成联合国大会决议**，“谴责”俄罗斯的侵略，5 个国家投反对票，34 个弃权。
+发布：tianzhihuan
 
-乌克兰当局声称，他们挫败了车臣精锐特种部队对泽连斯基的暗杀阴谋，部分归功于不支持战争的俄罗斯联邦安全局成员的提示。该说法无法得到证实。
-
-泽连斯基正在推动加快加入欧盟，他说，这将是欧洲接受乌克兰作为平等成员的一个信号。这也将是战后的经济福利。
-
-他还恳求北约设立禁飞区，但这将迫使北约可能击落俄罗斯军队，并冒着核大国之间更广泛冲突的风险。
-
-**欧盟计划允许乌克兰难民在欧盟内生活和工作长达三年。**
-
-但在像基辅这样的城市，也出现了令人心碎的场景，因为逃离的家庭被分开或挣扎着挤进拥挤不堪的火车。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unknown-3-1.png)俄罗斯车队在基辅以北。卫星图像照片：:copyright:2022 Maxar Technologies
-
-**俄罗斯官员已经对更深入的战争发出了含糊的威胁。**
-
-前总统德米特里·梅德韦杰夫在推特上发出警告称，“在人类历史上，**经济战争经常变成真实的战争**”，而外交部长谢尔盖·拉夫罗夫警告说，第三次世界大战将变成核战争。
-
-普京已经将俄罗斯的核威慑力量置于戒备状态，理由是，西方的制裁和“咄咄逼人的语言”。
-
-美国国防部长劳埃德·奥斯汀取消了原定于本周进行的弹道导弹试验，以“证明我们是一个负责任的核大国”，以回应普京的行动。
-
-美国和欧洲的盟友正在先后通过波兰将武器运到前线，而他们仍然可以。莫斯科曾表示，它将追究为俄罗斯军队提供武器的国家的责任。
-
-**看点**：随着俄罗斯逼近乌克兰最大的城市，并采取新的侵略性策略，例如，**轰炸平民区**，平民面临的危险正在增加。
-
-国际刑事法院首席检察官，已对自 2013 年以来在乌克兰犯下的战争罪、危害人类罪或种族灭绝罪的指控展开调查。
-
-由于和平谈判目前显示出成功的可能性很小，分析家和官员正在考虑，哪些渠道仍然可用。
-
-俄罗斯 – 乌克兰危机的最新消息[The latest on the Russia-Ukraine crisis](https://www.axios.com/russia-ukraine-invasion-putin-live-updates-873196c6-15a2-47a0-8360-e3db5af96b3c.html)
-
-请阅读上一篇：[第二轮谈判在俄罗斯轰炸乌克兰主要城市中开始（1/2）](https://gnews.org/zh-hans/2105570/)
-
-**新闻链接**：[www.axios.com][Russia lays siege to southern Ukraine, seizes nuclear plant](https://www.axios.com/ukraine-civilian-deaths-russia-invasion-a9879347-36ed-433a-ba43-6c80dc7d2699.html)
-
-* * *
-
-*审核：文乐*
-*校对：小东*
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

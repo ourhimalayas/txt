@@ -2,29 +2,48 @@
 ---
 
 
-## 通向帝位之路
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/2105442/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2105495/)
 
-BY：银河系农场|楚天秋
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-25.png)
-图源：网络
+整理：枳实
+美工：精灵蓝
 
-王公公（岐山）的得力干将，把吃海狗丸的李友玩得进医院的胡舒立，其掌控的《财新》发文说，新冠病毒并非来自华南海鲜市场的野生动物，而是来自早期感染的人类。这是胡舒立“猪头说”之后的又一篇“雄文”，前者调侃习太阳，此番则直接旧事重提，涉及病毒（CIOVD-19）溯源。虽然不能确定此文的指向，但却把相关真相揭开了一角，就像一个已经拔出匕首的刺客，前面就两个目标，不是“美帝”，就是习帝，二选一概率一半一半。不愧是王公公的嫡传，招数阴险歹毒，灵活多变。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片：雅典娜农场设计组 精灵蓝
 
-不管是王岐山还是孟建柱，据郭先生爆料，早已被加强警卫，肉身在习的控制中。只是随着欧美对普京的制裁，习基本上已经暴露在西方主流媒体的枪口之下，指责其为普京发动侵略战争的幕后金主，不但政治正确，而且也符合事实。政客们成功把世界的目光转移到残酷的火战上去，然后各国逐渐取消新冠疫苗强制，用反战的正义冲淡即将到来的新冠疫苗灾难。病毒（CIOVD-19）溯源也是接下来的重头戏，正如郭先生所言，必须找个替罪羊出来。当然不是说习没有罪，习早就是反人类罪犯，再加上一条释放生化武器危害人类，也是实至名归，罪有应得，死不足惜。由此看胡舒立此文的用意，偏于习帝多数，既符合中南坑内斗的需要，也符合走华尔街路线的王公公的利益。
 
-普京之外，习帝也很难熬过2022年，郭先生所言的五重难关，每一个都能要了习帝的命。相较于金三胖（正恩），习帝通向千年圣君之路，可谓荆棘密布，关隘重重，只能自叹命苦了。彭培奥到访台湾，中共只能用停电这样的下三滥来制造混乱，习帝不出手，美帝也不出手，第一关看起来悬而未决；老杂毛们并不会坐等，内斗适时而动，向外呼应西方主流媒体，不管是胡舒立的文章还是外交部的亲美言论，都是吹风阶段，投美灭习似乎也适合岐山公公。内斗这一关也在习帝面前缓缓开启了，并且很有可能被西方“利用”，在以后的新冠病毒溯源中做为抓手。
+雅典娜疫情更新（2022年 3月4日）
 
-普京内外交困，注定失败。从普习通电话的咆哮中，不难体会习帝复杂的心情，压力山大呀，如不履约攻台，等普京彻底疯了，很难预料会怎么对付这个把自己忽悠进死局的“盟友”。肾和脾都做了手术后，习帝肉身状况并不容乐观。这样看起来，横在习帝和皇位之间的五个夺命关口，并非是一个接一个发难，很可能在某个时间点，多重加速，导致习帝完全扛不住，撒手而去。郭先生最近认为，现代方式信息传递的力量巨大，老百姓知道真相能够觉醒，习或者别的老杂毛们，没有能力一直掩盖真相，中共的灭亡并不会让整个社会产生很大的混乱。这并非说中南坑不挣扎了，而是人心会改变，在新中国联邦正式登上国际舞台，影响力与日俱增的形势下，老杂毛们的国内国际信用完全破产，就像拔了毛的公鸡，无论怎么蹦跶，在老百姓眼里也会变得滑稽可笑，不堪一击。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-回看习帝固执于家天下的梦幻，近在咫尺的皇位，却是无法逾越的生死鸿沟，天命不在而强求之，怪不得世人常言，凡独裁者皆精神病患者。
+全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/9-7.png)
+[2022年3月4日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月4日改进.pdf)
 
-作者：楚天秋
+数据来源：
 
-发布：天雷滚滚
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-日本[银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/345-1-1-1.jpg)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

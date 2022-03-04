@@ -2,31 +2,22 @@
 ---
 
 
-## 秘翻新闻｜受俄攻击 欧最大核电站起火
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2104944/)
+## 中日财经爆|日经指数3月4日下跌591点，收于25985点
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105026/)
 
-**By:[秘翻新闻](https://gettr.com/post/py4jjxcc74)**
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1629736_1_20220120140703.jpg&amp;imgrefurl=https%3A%2F%2Fnews.rthk.hk%2Frthk%2Fch%2Fcomponent%2Fk2%2F1629736-20220120.htm&amp;tbnid=_hgsAfvF-sfSGM&amp;vet=12ahUKEwiZ3KS-_av2AhXGXWwGHWG_Cx4QMygDegUIARCiAQ..i&amp;docid=X9Eq8AE9GWFsfM&amp;w=2688&amp;h=1792&amp;itg=1&amp;q=%E4%B8%9C%E4%BA%AC%E8%82%A1%E5%B8%82&amp;ved=2ahUKEwiZ3KS-_av2AhXGXWwGHWG_Cx4QMygDegUIARCiAQ)
+3月4日在东京证券交易所，日经平均指数（225只成分股）收盘价较前一交易日下跌591.80点，报25985.47点，6个工作日以来首次跌破26000点。据报道，俄罗斯军队袭击了乌克兰的核电站，外界普遍担心乌克兰局势会变得更加紧张，并出现盘中跌幅超过800点的场景。
 
-**[2022-03-04](https://gettr.com/post/py4jjxcc74)**
+东京证券交易所股价指数（TOPIX）显示整个东京证券交易所第一部的价格走势，下跌36.86点，收盘报1844.94点。
 
-**今日主题:**
+消息来源:
 
-**1.香港疫情恶化 殓房爆满 冷冻货柜放遗体**
+[日経平均終値５９１円安、２万６０００円を割り込む](https://www.yomiuri.co.jp/economy/20220304-OYT1T50235/)
 
-**2.“铁链女”事件引政局不稳 中共被迫“打拐”做姿态**
-
-**3.俄罗斯卢布交易中创下新低**
-
-**4.马斯克警告：星链系统可能成为俄军空袭目标**
-
-**5.疑中国山寨轮胎令俄导弹车深陷泥沼 遭讽“另类援乌”**
-
-**🔗Gettr鏈接：**[https://gettr.com/post/py4jjxcc74](https://gettr.com/post/py4jjxcc74)
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

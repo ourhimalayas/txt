@@ -2,22 +2,30 @@
 ---
 
 
-## 中日财经爆|日经指数3月4日下跌591点，收于25985点
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105026/)
+## 中日财经爆|印度指控华为逃税
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105073/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1629736_1_20220120140703.jpg&amp;imgrefurl=https%3A%2F%2Fnews.rthk.hk%2Frthk%2Fch%2Fcomponent%2Fk2%2F1629736-20220120.htm&amp;tbnid=_hgsAfvF-sfSGM&amp;vet=12ahUKEwiZ3KS-_av2AhXGXWwGHWG_Cx4QMygDegUIARCiAQ..i&amp;docid=X9Eq8AE9GWFsfM&amp;w=2688&amp;h=1792&amp;itg=1&amp;q=%E4%B8%9C%E4%BA%AC%E8%82%A1%E5%B8%82&amp;ved=2ahUKEwiZ3KS-_av2AhXGXWwGHWG_Cx4QMygDegUIARCiAQ)
-3月4日在东京证券交易所，日经平均指数（225只成分股）收盘价较前一交易日下跌591.80点，报25985.47点，6个工作日以来首次跌破26000点。据报道，俄罗斯军队袭击了乌克兰的核电站，外界普遍担心乌克兰局势会变得更加紧张，并出现盘中跌幅超过800点的场景。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2Fe40c55a9-8a47-41fb-8075-b96fe935746e.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2F2f5fc6c9-ca2b-496c-9783-b47bf060769d&amp;tbnid=YETnJcdcmjbbCM&amp;vet=12ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ..i&amp;docid=xHuUh4vOZwW9NM&amp;w=2400&amp;h=1350&amp;q=%E5%8D%8E%E4%B8%BA&amp;ved=2ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ)
+路透社3月3日报道，一位印度政府消息人透露，印度对中共国电信设备制造商华为的一项税务调查发现，华为操纵账簿以减少其在印度的应税收入。
 
-东京证券交易所股价指数（TOPIX）显示整个东京证券交易所第一部的价格走势，下跌36.86点，收盘报1844.94点。
+印度财政部并未指明是哪一家公司，仅称在上月对一家大型电信集团位于印度三个城市的办事处进行所得税突击检查时，该集团“未能就纳税申报问题提供任何实质性和适当的理由”。
+
+印度当地媒体2月16日援引官方消息报导，印度税务部门对中共国电信设备制造商华为在印度的多处办公场所进行了搜查，此为逃漏税调查的一部分，近期对中共国几家智能手机企业也进行了相关调查。
+
+新德里电视台（NDTV）援引印度报业托拉斯（Press Trust of India）报导，官员们查看了财务文件、账簿和公司记录、华为的印度业务和海外交易。
 
 消息来源:
 
-[日経平均終値５９１円安、２万６０００円を割り込む](https://www.yomiuri.co.jp/economy/20220304-OYT1T50235/)
+[印度指控华为逃税–印政府消息人士](https://cn.reuters.com/article/india-huawei-sources-0303-thur-idCNKCS2L013W?il=0)
+
+[中日财经爆|华为因逃漏税被印度税务机关搜查](https://gnews.org/zh-hans/2017942/)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
