@@ -2,40 +2,38 @@
 ---
 
 
-## 自3月4日起，南澳大利亚警方取消了疫苗强制
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2105288/)
+## 白宫：美国与乌克兰共享实时情报
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2105240/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### “我们一直在共享情报，包括乌克兰可以使用的信息，”发言人 Jen Psaki 说
 
-翻译/编辑：文泓
+作者：Servet Günerigök   04.03.2022
+新闻来源：https://www.aa.com.tr/en/americas/
+翻译：V 在途中
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-12.png)图片来源：Leader & 雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3043-1.jpg)
 
+**华盛顿**
 
-当地时间3月4日，澳大利亚南澳大利亚警察局宣布，他们将于3月4日[取消疫苗接种](https://www.police.sa.gov.au/sa-police-news-assets/front-page-news/revocation-of-the-police-workers-vaccination-direction#.YiGsMuhByF4)令，允许该州拒绝接种新冠疫苗的警察重返工作岗位。
+白宫周四表示，美国一直在与乌克兰分享在与俄罗斯交战期间发生的当地情况的实时情报。
 
-3月7日上午7时，《警务人员疫苗接种指令》将被撤销，并由管理指令取代，未接种疫苗的员工能够返回工作场所。但是，他们将被要求去到警局后立即进行快速抗原检测，并在每天轮班期间戴上口罩。
+“我们一直在分享情报，其中包括乌克兰人可以用来告知和发展他们对俄罗斯正在进行的入侵的军事反应的信息。而其他方面的报道是不准确的，”发言人 Jen Psaki 在新闻发布会上说。
 
-南澳警察局长格兰特·史蒂文斯说，他有信心南澳警察部队可以管理正在进行的大流行病对警官和社区成员造成的风险，而不必让未接种疫苗的工作人员休假。
+国防部一名高级官员还证实，美国继续向乌克兰提供信息和情报，称援引美国立法者的报道称，有关信息被扣留的报道并不准确。
 
-然而，史蒂文斯表示，尽管能够恢复他们的实质性职责，但未接种疫苗的工作人员会遇到一些限制。例如，这些官员可能会被限制进入高风险环境，例如住宅老年护理和残疾设施以及法医学大楼。
+这位官员还表示，美国没有飞机在乌克兰领空飞行，也没有地面上的靴子，并补充说美国获取情报的能力“不像以前那么强大”。
 
-此外，史蒂文斯表示，他正在与仍然有强制性疫苗接种政策的机构和部门接触并寻求建议，同时考虑到正在实施的《紧急管理法指示》。
+俄罗斯对乌克兰的战争于 2 月 24 日开始，引起了国际社会的愤怒，欧盟、美国和英国等国家对莫斯科实施了严厉的金融制裁。
 
-当日，该州记录了106例新冠病例，其中3月4日有9例在重症监护室。
+根据联合国的数据，自战争开始以来，乌克兰已有 227 名平民丧生，525 人受伤。然而，乌克兰当局将死亡人数定为 2,000 多人。
 
-州长史蒂文·马歇尔表示，尽管南澳每天的新冠病例数将继续波动，但政府的首要任务是保持较低的住院人数。
+据联合国难民署称，已有超过 100 万人逃离乌克兰前往邻国。
 
-参考链接：[South Australia Police Removes Vaccine Mandates (theepochtimes.com)](https://www.theepochtimes.com/south-australia-police-removes-vaccine-mandates_4316187.html)
+新闻链接：
+[US sharing real-time intelligence with Ukraine: White House](https://www.aa.com.tr/en/americas/us-sharing-real-time-intelligence-with-ukraine-white-house/2523248)
 
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

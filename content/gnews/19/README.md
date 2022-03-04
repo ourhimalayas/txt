@@ -2,39 +2,72 @@
 ---
 
 
-## 乌克兰核电站遭俄军攻击
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2106716/)
+## 有声|致勇敢的乌克兰人民
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2106684/)
 
-翻译：文舞两道, 2022年3月4日
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我们用血肉之躯
+对抗侵略者钢铁炮弹
+无情战火
+燃炸着家园
+反抗！反抗！
+捍卫我们土地
+为了自由
+为了孩子未来
 
-**摘要：**
+货架上货物
+被震散在地上
+轰鸣声过后
+捡起来，放回去
+希望路过的战士
+进来拿些
 
-乌克兰外长透露，位于乌克兰东南部该国最大的核电站遭到俄军袭击并起火，并敦促立即停止袭击。
+地下室空间窄小
+留出来
+安置孩子
+年迈的老妈妈
+也来吧
 
-据NHK4日新闻速报，乌克兰外长透露，位于乌克兰东南部该国最大的核电站遭到俄军袭击并起火，他敦促立即停止袭击。
-![](https://www3.nhk.or.jp/news/html/20220304/K10013513381_2203041008_2203041014_01_02.jpg)
-照片来源：https://www3.nhk.or.jp
+我们不会放弃
+即使侵略者
+有精良武器
+摧毁不了反抗意志
+用我们血肉之躯
+也要对抗
+把侵略者
+赶出我们国土
+夺回被摧残家园
+为了自由
+和未来
+待孩子们长大
+这片土地上
+依然会有
+粮食和鲜花
+![](https://assets.gnews.org/wp-content/uploads/2022/03/FMw9JHlXoAI5ZQZ-1.jpg)
 
-据IAEA=国际原子能机构报道，3日，俄罗斯军坦克列队突破路障，入侵到核电站区域。乌克兰外长克列巴在推特上就该国最大的扎波罗热核电站在乌克兰东南部的埃内尔霍达尔发表推文称，“俄罗斯军队正在从四面八方进攻，已经起火了。如果发生爆炸，切尔诺贝利将受到10倍以上的影响. 俄方应立即停止进攻”。
 
-国际原子能机构秘书长格罗西也敦促立即停止袭击，称如果反应堆遭到袭击，将构成严重危险。他说，“这是一种将整个欧洲置于污染风险之中的行为”。
 
-关于乌克兰的核设施，最大的扎波罗热核电站位于乌克兰东南部的 Enerhodar，拥有乌克兰15 座核反应堆中的 6 座。
-![](https://www3.nhk.or.jp/news/html/20220304/K10013513381_2203041347_2203041355_01_03.jpg)
-照片来源：[https://www3.nhk.or.jp](https://www3.nhk.or.jp/news/html/20220304/K10013513381_2203041008_2203041014_01_02.jpg)
 
-IAEA=国际原子能机构在4日上午11:00前在推特上发文称，在遭到俄军袭击的乌克兰东南部扎波罗热核电站厂房内，辐射量没有变化。此外，乌克兰的一份报告称，核电站的火灾已由工人处理，并没有影响到重要设备。此外，国际原子能机构称，已设立应急响应中心，核监管机构“辐射剂量的变化迄今尚未得到确认”。
+文字版原文：[致勇敢的乌克兰人民](https://gnews.org/zh-hans/2105770/)
 
-日本时间3日4日上午，美国总统拜登与乌克兰总统泽连斯基通电话。根据白宫会后发表的声明，两国领导人就扎波罗热核电站火灾的最新情况交换了意见。“拜登总统和泽连斯基总统已同意停止针对俄罗斯的军事行动，并要求消防进入该设施”。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-信息来源：
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[https://www3.nhk.or.jp/news/html/20220304/k10013513381000.html](https://www3.nhk.or.jp/news/html/20220304/k10013513381000.html)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-编辑：LILY
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-发布：NIE
-![](https://assets.gnews.org/wp-content/uploads/2022/02/DA2FFC16-CFD3-4CBE-A6EF-8D83D11E5A70.jpeg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

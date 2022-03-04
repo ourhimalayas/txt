@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/4/2022 5:54 PM (UTC)`
+
+3月4号：请所有被困乌克兰的中国同胞，马上和能救你的这个信息和电话联系，你们会得到像亲生父母．兄弟姐妹一样的照顾．没有任何条件，不许付任何费用也不需要提供任何个人所谓的你认为宝贵的信息！没有比生命的宝贵了，不要再被共产党欺骗了……
+![img](https://media.gettr.com/group43/getter/2022/03/04/17/a52718d0-c0f6-b7a0-8d60-9807de602cee/3b2d4d73cba9ab8ad660c32e460d4ea2.jpg)
+
+---
+
+`@miles 3/4/2022 5:43 PM (UTC)`
+
+3月4号：比爹娘还亲的中国共产党，不但不拯救同胞，更不拯救其他国家的同类．……还选择了支持邪恶的反人类的大屠杀战争……还趁人之危……威胁绑架在战争中侥幸逃出的同胞……这是多么的丑恶……醒来吧，可怜的懦弱的无知的中国同胞们……不要再让别人当猪狗了利用了。
+![img](https://media.gettr.com/group40/getter/2022/03/04/17/aac409a5-fcd0-fdd8-eebb-d2ecdca2ac36/70dd8b46e78fe2c047cb4a071e2dd40f.jpg)
+
+---
+
 `@miles 3/4/2022 3:21 PM (UTC)`
 
 3月4号：尊敬的战友们好，今天我收到了无数个战友对我母亲三年冥诞问候！衷心地感谢兄弟姐妹们！我们只有靠真实的行动，才能保护我们的父母．姐妹．兄弟．消灭中国共产党是唯一的，让我们能快乐．和安全的方法！
@@ -144,20 +158,6 @@ We’ve seen this coming, and we’ve been reactionary. That gave Vladimir Putin
 
 .
 ![img](https://media.gettr.com/group44/origin/2022/03/03/18/83c3aa93-b26d-a44c-89c4-60250a6ef4ac/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/3/2022 5:23 PM (UTC)`
-
-3月3号：至乌克兰战场的所有同胞们……紧急紧急紧急。
-![img](https://media.gettr.com/group35/getter/2022/03/03/17/9afba939-b41b-bbeb-9088-909cea01611c/out.jpg)
-
----
-
-`@miles 3/3/2022 3:24 PM (UTC)`
-
-3月3号：尊敬的战友们好，明天是中国的农历二月初二……龙抬头，也是我母亲三年冥诞的日子，明天没有直播……文贵在此衷心地希望所有的战友．爱父母爱家人！
-![img](https://media.gettr.com/group6/getter/2022/03/03/15/49d50e66-6903-8df6-47df-73d0d2e18ae8/out.jpg)
 
 ---
 

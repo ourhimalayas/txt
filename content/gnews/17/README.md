@@ -2,33 +2,21 @@
 ---
 
 
-## 有声|日本首相宣布接受乌克兰难民
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2106820/)
+## 俄罗斯公司急着开中共国银行账户
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2106778/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间3月2日，据相关媒体消息显示，日本首相岸田文雄当天宣布，日本将对乌克兰提供紧急人道援助，并接收从乌克兰前往第三国避难的人员。
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-05-002846.jpg)
+《路透社》报道，中共国一家国有银行的莫斯科分行收到来自俄罗斯公司希望开立新账户的询问，目前俄罗斯企业由于该国入侵乌克兰被国际制裁，都纷纷寻求其他躲过制裁的出路。
 
-报道提及，岸田首相在与波兰总理莫拉维茨基和德国总理肖兹进行通话后确认，当地政府将对乌克兰展开救助。岸田首相表示，此次救援将不仅限于对在日本有亲友的乌克兰民众进行援助，而是会从人道主义的角度来实施救援。同时，为了进一步展现日本与乌克兰的友好关系，日本将接受乌克兰前往第三国的避难人员，并且这些避难者将与日本现行的防疫入境管制措施分开考虑。
+据中共国银行在莫斯科分行工作人员称，在过去的几天里，有200-300家公司找到他们希望开立新的账户，但拒绝透露客户姓名，以及哪家中共国的银行，因为他没有得到授权与媒体交谈。
 
-岸田首相强调，日本将与以G7集团为首的国际社会继续加强合作，协助进行对乌克兰的救援工作。
+目前还不清楚俄罗斯国内公司对在中共国银行开设新账户的需求有多普遍，但许多寻求开新账户的公司都与中共国有业务往来，预计这些公司的人民币交易会增加。
 
-据悉，目前共有接近两千名乌克兰人滞留在日本，为此，当地政府日前已经明确，针对短期内无法回国的乌克兰人，日本将对其放宽居留时间。
+中共对俄国的表态模糊不清，这会让国际社会彻底不再信任中共国所发表的任何言论。此后，西方国家是否会一起发起对中共国病毒溯源的追究？已经有相关报道称， 科学家不再相信中共病毒是动物传给人类的，而英国政府也相信病毒是武汉实验室泄漏的。七哥的判断是今年五月份，病毒疫苗的次生灾难会爆发。到时候，相信中共会变成世界的公敌。
 
-文字版原文：[日本首相宣布接受乌克兰难民](https://gnews.org/zh-hans/2100507/)
+**新闻来源**：https://www.reuters.com/business/exclusive-russian-firms-rush-open-chinese-bank-accounts-sanctions-bite-sources-2022-03-03/
 
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

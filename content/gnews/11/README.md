@@ -2,26 +2,31 @@
 ---
 
 
-## 特鲁多未能保护受中共迫害的加拿大人
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2106880/)
+## 有声|美国和国际能源署释放6000万桶石油库存
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2106891/)
 
-采编：文莱         编译撰稿：文明(添草灭共)
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据美国媒体3月1日消息，俄罗斯入侵乌克兰后，世界各国对俄罗斯经济实施制裁，导致国际原油价格飙升至美桶100美元以上。美国和其他国际能源机构为保持原油市场的价格，决定从紧急库存中释放6000万桶石油。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/website-chinacan2.jpg)图片来源：tnc
+国际能源机构希望向全世界传达一个讯息：俄罗斯入侵乌克兰不会导致石油供应短缺，白宫发言人也表示会采取一切行动来限制普京的入侵对全球能源供应带来的干扰。
 
+美国和国际能源署本希望释放库存石油后油价会下跌，降低世界最大石油生产国俄罗斯的收入，并给美欧等国锁定俄罗斯能源行业的机会。但6000万桶石油后并没有达到预期的目的，市场目前处在恐慌之中，石油价格仍持续走高。
 
-据加拿大媒体【真北方】3月2日报道，尽管联邦政府表示将对专制国家采取强硬政策，但特鲁多当局几乎没有保护那些被中共等独裁政权迫害的加拿大人。
+文字版原文：[美国和国际能源署释放6000万桶石油库存](https://gnews.org/zh-hans/2100634/)
 
-[多伦多大学]最新报告指出：中共利用网络技术和媒体宣传，通过黑客账户、社交媒体，雇佣水军等方式有组织地散布虚假信息和在线威胁等活动，来实施其“跨国镇压”。并造成被攻击人士的职业和生活都受到了负面影响，甚至被迫切断了与中共国内家人的联系。
+音频处理：Fei797
+发稿：Fei797
 
-尽管以上信息在去年已提交给特鲁多政府，但当局至今仍未采取有效的保护措施。为此，相关各界已敦促联邦政府尽快为那些遭受中共迫害的加拿大人提供支持，以维护该国民主人权的执政基石。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-原文链接： https://tnc.news/2022/03/02/canadians-opposing-foreign-tyrants-not-backed-by-trudeau-government/
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
