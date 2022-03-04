@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/4/2022 11:23 PM (UTC)`
+
+3/4/2022 Miles Guo’s GETTR: The CCP has brainwashed the Chinese people to support Russia's unjust war! Twenty hours after the CCP claimed that all Chinese in Ukraine had been evacuated, four Chinese students died from the Russian shelling, and 20 more people were also killed. Thank God for offering me a wonderful night to meet my mother and family in my dream!<br/><br/>3/4/2022 文贵盖特：中共洗脑中国人支持俄罗斯的非正义战争！中共宣布撤出了在乌克兰的所有华人20小时后，有4个中国学生死于俄军炮火，又有20人死亡！感谢上天赐予的美好一晚让文贵在梦中跟母亲和家人相见！<br/>
+![img](https://media.gettr.com/group6/getter/2022/03/04/23/a261e225-21bc-3f74-d94b-7de3f183dec0/out.jpg)
+
+---
+
+`@miles 3/4/2022 11:12 PM (UTC)`
+
+3/4/2022 Miles Guo’s GETTR: Thank you fellow fighters for sending me messages on the third anniversary of my mother's death! Fellow fighters’ saving lives on the front line is a great reward for my mother! The kindness of Chinese women embodied by my mother is the foundation of the Chinese nation. However, the CCP has brainwashed Chinese women and made them unwelcome in the world.<br/><br/>3/4/2022 文贵盖特：感谢战友们在文贵母亲冥诞三周年发信息过来！战友们在前线救人是给我母亲很好的回报！我母亲所体现的中国女性的善良是中华民族的基础，但中共却把中国女人洗脑成不受待见的人<br/>
+![img](https://media.gettr.com/group12/getter/2022/03/04/23/c94790cd-2f93-8b32-437c-a4556b3fb651/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@rockvision 3/4/2022 7:14 PM (UTC)`
@@ -144,22 +158,6 @@ Prince and Rachel from NFSC on War Room: New Federal State of China is evacuatin
 
 3月3号：世界上最有杀伤力的，不是核武器……是中共的谎言！我R你中国共产党八辈祖宗……【中共养了几十万大外宣不是白养的】
 ![img](https://media.gettr.com/group41/getter/2022/03/03/20/584259cd-344b-9bfc-fc50-155a5b285d9f/58bb020bcdf523188bb2e3ea8221ddbe.jpg)
-
----
-
-`@miles 3/3/2022 6:30 PM (UTC)`
-
-3/2/2022 Miles Guo: The Way of Righteousness must include faith. What is the essence of the Way of Righteousness? It is necessary to have the populism movement, but what is its limitation? What has gone wrong with capitalism? Why will the New Federal State of China benefit the most after the Russia-Ukraine war is over?<br/><br/>3/2/2022 文贵直播：正道主义必须包含信仰，它的核心是什么？平民运动是必要的，但其局限在哪儿？资本主义出了什么问题？为什么新中国联邦将是这次俄乌战争后的最大受益者？<br/>
-![img](https://media.gettr.com/group21/getter/2022/03/03/18/6e554be7-7428-5c3e-b8ac-7ecc8aba2c7a/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@mikepompeo 3/3/2022 6:27 PM (UTC)`
-
-We’ve seen this coming, and we’ve been reactionary. That gave Vladimir Putin, who is an evil thug, the opportunity to drive his mission and set the pace.
-![img](https://media.gettr.com/group10/origin/2022/03/03/18/e9e45387-f69f-6a41-2d76-fa94362c5fb8/out.jpg)
 
 ---
 
