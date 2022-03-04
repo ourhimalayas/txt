@@ -2,18 +2,12 @@
 ---
 
 
-## 2022年3月4日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2105750/)
+## 如果你需要从乌克兰战区撤离，请访问ukrainehelp.info
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2105834/)
 
-制作：DT新闻组
+03/03/2022 爆料革命战友（小王子和瑞秋）：新中国联邦、法治基金正在努力帮助一万到两万名滞留在乌克兰的中国人撤离。如需我们协助从乌克兰撤离，请访问网站（ukrainehelp.info）获取信息。我们有两条全天候的紧急联系电话和两个电子邮件来帮助那些需要援助的人。
 
-**中共的杀戮还在继续……**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/D4F1D141-D30E-4190-BD5F-94DEE89D237E.jpg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

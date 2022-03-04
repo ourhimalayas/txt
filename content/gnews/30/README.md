@@ -2,38 +2,52 @@
 ---
 
 
-## 白宫：美国与乌克兰共享实时情报
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2105240/)
+## 乌克兰接受狗狗币和其他数字货币捐款
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2105361/)
 
-#### “我们一直在共享情报，包括乌克兰可以使用的信息，”发言人 Jen Psaki 说
+**编译：wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip乌克兰接受狗狗币和其他数字货币捐款.png)图片来源：cnbc.com
+周三，乌克兰副总理费多罗夫（Mykhailo Fedorov）表示，人们可以通过狗狗币（ Dogecoin）作为捐款，这个币创立最初只是一个笑话，并被特斯拉创始人埃隆·马斯克谈起过。
 
-作者：Servet Günerigök   04.03.2022
-新闻来源：https://www.aa.com.tr/en/americas/
-翻译：V 在途中
+它经常被戏称为“memecoin”（搞笑币），指的是流行的互联网笑话。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3043-1.jpg)
+“现在，即使是搞笑币也可以支持我们的军队，从俄罗斯入侵者手中拯救生命，”费多罗夫在[推特](https://twitter.com/FedorovMykhailo/status/1498982855162175488?s=20&amp;t=n-8KceFexUNeQKFP5Kt4wQ)上说。
 
-**华盛顿**
+周二，费多罗夫在推特上介绍了一个名为Aid For Ukraine的项目。它是乌克兰政府、Everstake和一个名为Solana的数字货币区块链平台之间的合作项目。
 
-白宫周四表示，美国一直在与乌克兰分享在与俄罗斯交战期间发生的当地情况的实时情报。
+人们现在可以捐赠Solana数字货币，以及基于Solana的任何其他数字代币。
 
-“我们一直在分享情报，其中包括乌克兰人可以用来告知和发展他们对俄罗斯正在进行的入侵的军事反应的信息。而其他方面的报道是不准确的，”发言人 Jen Psaki 在新闻发布会上说。
+乌克兰也接受非同质化代币（NFT）作为捐赠物。这些是独特的资产，如使用区块链技术存储的数字艺术品，以验证和跟踪每个NFT。
 
-国防部一名高级官员还证实，美国继续向乌克兰提供信息和情报，称援引美国立法者的报道称，有关信息被扣留的报道并不准确。
+同时，加密货币交易所[Uniswap](https://twitter.com/Uniswap/status/1498632368298541059?s=20&amp;t=Po4270zTOuBnfmYb6FZVAQ)已经建立了一个功能，允许人们将任何基于以太坊的任何数字货币，都可发送给乌克兰政府。以太坊是一个区块链平台，开发者可以在上面建立应用程序。
 
-这位官员还表示，美国没有飞机在乌克兰领空飞行，也没有地面上的靴子，并补充说美国获取情报的能力“不像以前那么强大”。
+费多罗夫还说，一个名为Polkadot的区块链平台的联合创始人加文·伍德（Gavin Wood）向乌克兰发送了价值500万美元的[DOT](https://twitter.com/Ukraine/status/1498733635083587584?s=20&amp;t=bPcez6AhLlfVs4fVoFQTtw)数字货币。
 
-俄罗斯对乌克兰的战争于 2 月 24 日开始，引起了国际社会的愤怒，欧盟、美国和英国等国家对莫斯科实施了严厉的金融制裁。
+根据区块链分析公司Elliptic的数据，自俄罗斯入侵开始以来，乌克兰政府已经筹集了3500万美元，通过超过3.5万个数字资产捐赠。
 
-根据联合国的数据，自战争开始以来，乌克兰已有 227 名平民丧生，525 人受伤。然而，乌克兰当局将死亡人数定为 2,000 多人。
+2月26日，乌克兰开始接受数字货币的捐赠，并从比特币、以太坊和一种叫Tether的稳定币开始（稳定币是与法币等现实世界资产挂钩的数字货币）。
 
-据联合国难民署称，已有超过 100 万人逃离乌克兰前往邻国。
+现在，乌克兰正在加大接受捐赠的数字货币的数量。这是因为军事专家预计俄罗斯的攻击将更加凶猛和具有破坏性。
 
-新闻链接：
-[US sharing real-time intelligence with Ukraine: White House](https://www.aa.com.tr/en/americas/us-sharing-real-time-intelligence-with-ukraine-white-house/2523248)
+虽然数字货币捐款为乌克兰的抵抗努力增加了一些资金，但该国已经通过战争债券筹集了更多资金，这些债券约等同于81.4亿乌克兰格里夫纳（2.7亿美元）。
 
-**审核校对：Barry Jack
-上传排版：V在途中**
+周三，乌克兰政府的一个官方账户在推特上说，“空投”（Airdrop，指个人或实体免费赠送数字货币的行为）已经[确认](https://twitter.com/Ukraine/status/1498911922791583746?s=20&amp;t=PNzAx7hPq7gyP_5SWJiJog)，将在周四进行。
+
+数字货币已经成为俄罗斯和乌克兰之间战争的一个突出特点。有人猜测，俄罗斯人可以利用数字货币把钱弄出国门，以逃避制裁，不过专家说这可能非常困难。
+
+上周，费多罗夫呼吁主要数字货币交易所封锁俄罗斯用户的账户。
+
+**新闻来源**：[cnbc.com][Ukraine accepts dogecoin, other cryptocurrencies for donations as funding rises to $35 million](https://www.cnbc.com/2022/03/02/ukraine-dogecoin-other-cryptocurrencies-accepted-for-donations.html?utm_source=facebook&amp;utm_medium=news_tab) | 发布时间：2022年03月02日
+
+* * *
+
+***审核：文乐
+校对：小东
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
+
+
 
  
 

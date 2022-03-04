@@ -2,38 +2,22 @@
 ---
 
 
-## 俄罗斯富豪出售英超豪门球队 捐赠乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2105995/)
+## 视频|美参议员提案 以金融制裁吓阻中共侵台
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2106344/)
 
-撰稿：纽约香草山–侠肝义胆
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-1.png)
-3月2日，俄罗斯著名富豪阿布拉莫维奇表示，将出售其名下的足球俱乐部、英格兰最大的足球俱乐部之一的切尔西俱乐部，并将收益捐赠给乌克兰战争受害者。
+制作：香草山视频部
 
-在当天的一份声明中，阿布表示，出售切尔西俱乐部是明智的决定，并称这个决定符合切尔西俱乐部、球迷、员工以及赞助商和合作伙伴的最佳利益。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-374.png)图片来自：https://www.irishtimes.com/
-据英国议员发布的一份2019年的文件揭露，阿布与俄罗斯总统普京关系密切。该文件公布后，阿布随即宣布出售球队。
+3月2日，美国联邦参议员史考特等三人联合提出一项“以金融制裁吓阻中共侵台”的法案。依据法案，若中共以武力侵略、入侵或封锁台湾或台湾领土，或者试图通过武力改变台湾的治理地位，总统将被授权切断美中之间所有的金融往来。主要措施包括：冻结财产交易、撤销参与侵台行动中共人士的签证并限制其入境、禁止金融机构与中共进行信用转让或付款交易、禁止向遭制裁的人或实体进行股权或债务投资，并禁止与中共军事或软件企业、金融电信系统、电子货币等的金融往来。
 
-作为俄罗斯最富有的人之一，阿布拉莫维奇于日前飞往白俄罗斯，参加了俄罗斯和乌克兰的战争谈判。
+史考特表示，这项法案清晰地表明了美国对中共武力攻台的惩罚手段，一旦入侵台湾，中共国不仅被经济孤立，还将承担严重的金融制裁。
 
-新闻来源：
-
-[Russian Roman Abramovich to Sell Famed Soccer Club, Donate to Ukraine](https://www.breitbart.com/sports/2022/03/02/russian-roman-abramovich-to-sell-famed-soccer-club-donate-to-ukraine/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
-
-编辑;飞虹
-
-总编: 雪梨
-
-校正/发稿：浪迹天涯
+发稿：谐趣园
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-1.png)
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,41 @@
 ---
 
 
-## 樱花FM|拜登派前国防高官前往台湾以示支持
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2105151/)
+## 自3月4日起，南澳大利亚警方取消了疫苗强制
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2105288/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/cz-Z4lweYFhvG7TCilnFjQ0TCUt0ZwOTRORqXw5WNjL76Areem_4F_lzU2YWJ29fWripNr_cIUTHFsgMniyHFYnUzmDf6hhxO_XXMQNSaI39L_pw8hwpmjHcxBRNWB4Bfk6VJR0q)
-据路透社报道，拜登政府将于周一派遣一个由前高级国防官员和安全官员组成的代表团前往台湾，在敏感的当下以示支持。消息人士没有透露这次的访问时机是否与俄罗斯入侵乌克兰有关。台政府周一表示，不应将台湾和乌克兰相提并论。此次访问由曾任美国参谋长联席会议主席的迈克·马伦率领，这次访问正值俄罗斯入侵乌克兰、台湾加强戒备之际。路透社报道称，陪同马伦上将的还有小布什时期的前国家安全副顾问奥沙利文和奥巴马时期的前国防部副部长佛洛诺伊，另外两名前美国国安委亚洲事务的高管葛林和麦艾文也将参与出访，目的是展示美国对台湾持续有力的支持。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-代表团预计于3月1日下午抵达台湾，并停留到周三晚上。在此期间，他们计划会见台湾总统蔡英文、国防部长邱国正等高级官员。美国官员表示，这个五人代表团“发出了一个重要信号，即美国两党对台湾及其民主的承诺”，但是他没有透露这次的访问时机是否与俄罗斯入侵乌克兰有关。
+翻译/编辑：文泓
 
-台湾外交部周一证实拜登指派跨党派资深代表团3月1日至2日搭乘专机访台，对访问团表达诚挚欢迎。此次的马伦代表团是自2021年4月以来首次有前官员在拜登授意下公开访问台湾。2021年4月，美国前参议员陶德、前副国务卿阿米塔吉和史坦柏格曾访问台湾，与蔡英文会面。上周六，一艘美国军舰驶过敏感的台湾海峡。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-12.png)图片来源：Leader & 雅典娜设计组
 
-文字版原文：[拜登派前国防高官前往台湾以示支持](https://gnews.org/zh-hans/2089146/)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+当地时间3月4日，澳大利亚南澳大利亚警察局宣布，他们将于3月4日[取消疫苗接种](https://www.police.sa.gov.au/sa-police-news-assets/front-page-news/revocation-of-the-police-workers-vaccination-direction#.YiGsMuhByF4)令，允许该州拒绝接种新冠疫苗的警察重返工作岗位。
+
+3月7日上午7时，《警务人员疫苗接种指令》将被撤销，并由管理指令取代，未接种疫苗的员工能够返回工作场所。但是，他们将被要求去到警局后立即进行快速抗原检测，并在每天轮班期间戴上口罩。
+
+南澳警察局长格兰特·史蒂文斯说，他有信心南澳警察部队可以管理正在进行的大流行病对警官和社区成员造成的风险，而不必让未接种疫苗的工作人员休假。
+
+然而，史蒂文斯表示，尽管能够恢复他们的实质性职责，但未接种疫苗的工作人员会遇到一些限制。例如，这些官员可能会被限制进入高风险环境，例如住宅老年护理和残疾设施以及法医学大楼。
+
+此外，史蒂文斯表示，他正在与仍然有强制性疫苗接种政策的机构和部门接触并寻求建议，同时考虑到正在实施的《紧急管理法指示》。
+
+当日，该州记录了106例新冠病例，其中3月4日有9例在重症监护室。
+
+州长史蒂文·马歇尔表示，尽管南澳每天的新冠病例数将继续波动，但政府的首要任务是保持较低的住院人数。
+
+参考链接：[South Australia Police Removes Vaccine Mandates (theepochtimes.com)](https://www.theepochtimes.com/south-australia-police-removes-vaccine-mandates_4316187.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

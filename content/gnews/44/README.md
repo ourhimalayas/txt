@@ -2,28 +2,35 @@
 ---
 
 
-## 泽连斯基：俄已诉诸“核恐怖”
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2104288/)
+## 【UKRAINEHELP-003】新中国联邦和法治基金关于紧急救援乌克兰的通知
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2104385/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/topshots-topshot-ukraine-russia-conflict44916748_0.jpg)
-泽连斯基说，俄军的坦克配备热像仪，所以“他们清楚知道”他们所射击的是一座核设施。（法新社）
-法新社报道，周五（3月4日）凌晨，俄罗斯军队对乌克兰东南部扎波罗热州的核电站和靠近该核电站的一栋五层楼高的建筑发动袭击，并引发了火患。
+[【PDF】【CN-EN-UA】【UKRAINEHELP-003】新中国联邦和法治基金关于紧急救援乌克兰的通知](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN-UA】【UKRAINEHELP-003】新中国联邦和法治基金关于紧急救援乌克兰的通知.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN-UA】【UKRAINEHELP-003】新中国联邦和法治基金关于紧急救援乌克兰的通知.pdf)
 
-乌克兰当局表示，俄军初时阻止乌克兰紧急服务人员进入核设施灭火，过后乌方突破其封锁线并成功[扑灭大火](https://www.zaobao.com.sg/realtime/world/story20220304-1248732)。
+为应对乌克兰-波兰边境日益增多的撤离人员和难民，NFSC 和法治基金(ROLF)宣布 2022 年 3 月 9 日首批免费专机的暂定行程。
 
-当局没有通报伤亡情况，仅表示44名人员和11辆紧急部门车辆参与了灭火工作。
+**2022 年 3 月 9 日出发的首批专机航线如下，有可能根据情况做出调整:**
 
-泽连斯基过后在他的办公室发布视频说：“除了俄罗斯，没有任何国家会向核动力装置开火。”
+1. 从波兰- 热舒夫(Rzeszow)机场出发，经加拿大多伦多，前往美国纽约。
+2. 从波兰- 热舒夫(Rzeszow)机场出发，直飞帕劳。
 
-泽连斯基说：“这是人类历史上第一次发生这种事。这个恐怖主义国家现在已诉诸核恐怖。”
 
-泽连斯基指俄军的坦克配备热像仪，所以“他们清楚知道”他们所射击的是一座核设施。
+NFSC 和 ROLF 提供免费专机，以帮助那些受俄罗斯非法入侵影响的人员，这是我们支持在被共
+产主义和专制政府统治的国家里争取自由的使命的一部分。
 
-切尔诺贝利核电站位于乌克兰首都基辅以北100余公里处。1986年4月26日，该核电站4号机组反应堆发生爆炸，成为迄今为止世界上最严重的核泄漏事故。事故发生后，以4号机组反应堆为中心向外30公里的范围成为隔离区。切尔诺贝利隔离区自2010年起才陆续对外开放。
+如果您需要搭乘我们的专机，请联系我们的 24 小时服务热线。 所有乘客必须满足其目的地的签证要求。如有需要，NFSC 和 ROLF 将在出发前提供免费食宿。
 
-审核校对：Barry Jack
-上传排版：F
+**24 小时紧急救援客服联系方式如下:**
+邮箱： [\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection)
+电话（短信或电话）：+1 720-657-6776 或 +1 719-224-4232
+
+NFSC | 法治基金
+
+2022年3月3日
+
+[https://ukrainehelp.info/](https://ukrainehelp.info/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN-UA】【UKRAINEHELP-003】新中国联邦和法治基金关于紧急救援乌克兰的通知-scaled.jpg)
+[【PDF】【CN-EN-UA】【UKRAINEHELP-003】新中国联邦和法治基金关于紧急救援乌克兰的通知](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN-UA】【UKRAINEHELP-003】新中国联邦和法治基金关于紧急救援乌克兰的通知.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/【CN-EN-UA】【UKRAINEHELP-003】新中国联邦和法治基金关于紧急救援乌克兰的通知.pdf)
 
  
 

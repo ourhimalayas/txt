@@ -2,26 +2,29 @@
 ---
 
 
-## 中共正在对全世界发动网络战争
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2104979/)
+## 疫苗灾难显现：美国两周内至少有20人死于空难事故
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2105019/)
 
-撰稿：东京樱花团/加一颗稻草
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-17.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F16679%2Fproduction%2F_105396719_hi027869497_1.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fchinese-news-47052513&amp;tbnid=1lucNVO77tr2DM&amp;vet=12ahUKEwi0kqOl_6v2AhVhgmMGHf8ACEEQMygDegUIARCrAQ..i&amp;docid=r1CUlsNEtlZP1M&amp;w=640&amp;h=360&amp;q=%E7%BD%91%E7%BB%9C%E6%94%BB%E5%87%BB&amp;ved=2ahUKEwi0kqOl_6v2AhVhgmMGHf8ACEEQMygDegUIARCrAQ)
-美国网络安全公司CrowdStrike最新发表《2022年全球威胁报告》指出，中共国利用网络漏洞进行攻击的能力世界一流，在过去一年有上升的趋势。CrowdStrike情报事务高级副总裁亚当·迈耶斯（Adam Meyers）2月16日在一场网上说明会上说：“他们（中共国黑客）越来越多地寻找企业级服务下手，比如VPN集中器、微软 Exchange服务器、源代码存储库等等。”
+#### 翻译/撰稿：zzballack
 
-传统基金会高级研究员成斌（Dean Cheng）直言不讳地提出对那些为中共国军工单位出力的大学进行制裁。成斌说：“中共国的大学数量众多，但其中有一些大学很有意思，它们不属于教育部，实际上隶属于工业和信息化部——这是中共国的军工综合体监督机构。这其中包括北京航空航天大学、南京航空航天大学、哈尔滨工业大学等，大约有八个。它们为中共国军工综合体提供直接支援。”
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-3-1.jpg)图片来源：推特
+据《自然新闻》（Natural News）3月3日报道，一个追踪与新冠病毒有关事件的博客The Covid Blog报告说，在2月份的两周时间里，美国至少有20人在私人飞机和直升机坠毁事故（分别有4架直升机和7架私人飞机坠毁）中死亡。
 
-中共制造的病毒在全世界投放之后，新冠疫苗的不良反应逐渐累积爆发。以及俄乌战争中俄罗斯的核武威胁。给人类安全增加了更多的不确定性。
+USHST（The U.S. Helicopter Safety Team，美国直升机安全小组）报告说，在2019年有122起直升机事故，51人死亡。在大流行第一年2020年，有92起事故，35人死亡，数量少是因为疫情导致航空旅行受限，飞机被停飞了数月。但自2021年开始，死于坠机事故的人开始增多。
 
-3月2日，美国代表团蓬培奥一行访问台湾期间，台湾遭遇网络攻击造成大面积停电。中共攻击台湾意图逐渐暴露。3月2日晚，最新崛起的世界著名自由媒体 GTV也因中共的网络攻击被迫停止运行。中共如此密集的攻击行动。正在全球发起一场网络战用以配合俄罗斯的侵略战争。中共占领台湾并称霸世界的计划正在紧锣密鼓的进行中。
+USHST的数据记录了每月每10万个飞行小时发生的致命事故数量。一般来说，每10万个小时超过一起致命事故的情况非常罕见，任何低于1的数字都被认为是正常的。国家运输安全委员会（NTSB）认为每10万飞行小时超过1人死亡都是非常高的数字。但在2021年，有三个月该数据超过了基准值1，其中12月达到高峰每10万飞行小时就有2.08起致命事故。大多数美国人通常很少关注直升机坠毁事件。但在今年2月，网络上的“直升机坠毁（helicopter crash）”搜索开始呈上升趋势。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-18.png)
+报告指出，在2个星期、14天内发生11起坠机事故并不一定不寻常。但其中的高死亡率引起了人们关注，至少有20人在这些坠机事故中死亡，这在任何方面都是不正常的。按照14天内有20人死亡推断，2022年将有520人死于航空事故。换句话说，今年的航空事故很可能比其他任何一年都多，而且可以肯定的是因此而死亡的人数也会多得多。
 
-消息来源：
+虽然不可能知道这些事故的原因，但考虑到这些事故发生在新冠疫苗及其加强针的接种剂数处于最高值之时，自疫苗被大范围推广以来，出现了很多奇怪的、不寻常的现象：原本健康的人突然死亡、飞机和直升机频频坠毁、汽车司机突然失控无缘无故地撞车等等。这不可能都是巧合。
 
-[“和我们一起在网络战线战斗” 乌克兰征召全球网军 反击俄罗斯](https://www.voachinese.com/a/ukraine-it-army-20220228/6464220.html)
+新闻来源：
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+[What’s going on? Unusual number of private plane, helicopter crashes kill nearly two dozen in two weeks](https://www.naturalnews.com/2022-03-03-plane-helicopter-crashes-kill-dozen-two-weeks.html)
+
+[Mayday: Four helicopters, seven private planes crash in United States in 14 days, at least 20 people dead](https://thecovidblog.com/2022/02/28/mayday-four-helicopters-seven-private-planes-crash-in-united-states-in-one-week-20-dead/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

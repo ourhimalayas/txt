@@ -2,26 +2,26 @@
 ---
 
 
-## 中日财经爆|美国两党参议员要求禁止进口俄罗斯石油
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105048/)
+## 樱花FM|美国政府跨党派使团抵台 美台加深合作抗击中共
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2105149/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Ffinance%2F239%2Fw2048h1391%2F20220224%2Fc289-0a124c8f4e8ad373dac449abdde38db3.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.cn%2Fusstock%2Fmggd%2F2022-02-24%2Fdetail-imcwiwss2747127.d.html%3Fvt%3D4&amp;tbnid=kIhBM1Y_xGlC7M&amp;vet=12ahUKEwiI3uqJ_Kv2AhXpR2wGHU9UD4gQMygCegUIARC6AQ..i&amp;docid=YylWr8w_uoFCOM&amp;w=2048&amp;h=1391&amp;itg=1&amp;q=%E4%BF%84%E7%BD%97%E6%96%AF%E7%9F%B3%E6%B2%B9&amp;ved=2ahUKEwiI3uqJ_Kv2AhXpR2wGHU9UD4gQMygCegUIARC6AQ)
-美国两党参议员周四（3月3日）提出一项禁止美国进口俄罗斯石油的议案，他们表示可以通过提高北美和其他地方的石油产量来替代俄罗斯石油。
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/j19bAOJgoF8DV26S9ViSy9W9oxJYkw3AOoDPjgxg4xMwoLRBdobKvm6uS3D3QSKRm-Sw779E2HT1HSPaHWQR8oJA-whEuLQlcGfQ0HU5gdNmE-L12ZKFfGQGOR0sSDFofdqVeMCx)
+据台湾《自由时报》3月1日报道，美国总统拜登（Joe Biden）指派前参谋首长联席会议主席穆伦（Michael Glenn Mullen）率团访台，今天（1日）下午4时13分飞抵松山机场，外交部长吴钊燮亲自接机。访团在台期间将晋见总统蔡英文、副总统赖清德、拜会行政院长苏贞昌及国防部长邱国正，并接受外交部长吴钊燮午宴与蔡总统晚宴。
 
-这项名为《禁止俄罗斯能源进口法案》的议案旨在惩罚俄罗斯总统普京入侵乌克兰的行为。该议案由来自共和党及民主党的18名参议员发起。
+美国总统拜登指派跨党派资深代表团搭乘行政专机访问我国。访团由前参谋首长联席会议主席穆伦率领，成员包括前国防部政策次长弗洛伊（Michèle A. Flournoy）、前白宫副国安顾问欧苏利文（Meghan L. O’Sullivan）、前白宫国安会亚洲事务资深主任格林（Michael Green）及前白宫国安会亚洲事务资深主任麦艾文（Evan S. Medeiros）。访团预计2日上午前往总统府拜会总统蔡英文，下午分别拜会行政院长苏贞昌与国防部长邱国正，晚上由蔡总统设宴款待后，即于晚间10时搭乘专机离台。
 
-众议院议长佩洛希也表示，她支持实施这样的禁令。“我完全支持，”她告诉记者，“禁止从俄罗斯进口石油。”
+吴钊燮今日下午代表我国政府前往接机。外交部对穆伦前主席率重要访团抵访台湾表达诚挚欢迎。外交部说明，访团在台期间将晋见总统蔡英文、副总统赖清德、拜会行政院长苏贞昌及国防部长邱国正，并接受外交部长吴钊燮午宴与蔡总统晚宴；双方将就台美关系各项重要议题交换意见。
 
-根据美国能源信息署(EIA)的数据，2021年，美国平均每月从俄罗斯进口逾2,040万桶原油和成品油，约占美国液体燃料进口的8%。夏威夷和阿拉斯加都依赖这些进口。
+，此次美国政府美国使团不仅包括了美国民主、共和两党卸任的高层官员，而且使团成员均具国安或军事背景。使团成员穆伦于2007年至2011年担任美军参谋首长联席会议主席，军事经验丰富；傅洛依曾于2014年及2015年两度率领新美国安全中心（CNAS）「下一世代国安领袖计画」（NextGen）访团来台；欧苏莉文现为哈佛大学国际实务教授，曾于2004年至2007年于小布什政府时期国安会主管伊拉克及阿富汗议题；葛林及麦艾文先后为小布什及奥巴马政府时期的白宫国安会亚洲事务资深主任，负责处理台湾议题事务，均曾多次访问台湾。
 
-消息来源:
+俄军大举入侵乌克兰后，世界再一次被笼罩在“热战”阴影之下，根据郭文贵先生早前爆料，俄罗斯与中共已达成协议，俄军出兵乌克兰之际，中共将执行“双龙”计划直取台湾。在台海形势显得越发危急情况下，美国使团访台显示了美台合作共抗中共的决心，也给以习近平为首的中共主战派挡头一棒，加之，俄罗斯近来接连受到SWIFT限制等西方国家为主体国际组织一系列制裁，相信解放军一旦攻台，国际组织对中共制裁力度一定毁灭性的。顺便提醒，墙内民众应该远离军事设施，尽皁屯粮屯药储备物资，以防战争到来遭遇不测。
 
-[美国两党参议员提出议案 要求禁止美国进口俄罗斯石油](https://cn.reuters.com/article/us-senators-russia-oil-import-0304-idCNKCS2L105T?il=0)
+文字版原文：[美国政府跨党派使团抵台 美台加深合作抗击中共](https://gnews.org/zh-hans/2088712/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
