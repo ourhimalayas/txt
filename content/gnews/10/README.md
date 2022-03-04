@@ -2,76 +2,17 @@
 ---
 
 
-## 樱花FM|从铁链女到铁笼女
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2103950/)
+## 《蓝枫法律》第四十二期 金融税务专题及喜支付(H PAY)功能介绍- PPT展示- GTV
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2104032/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/h1NynEcf2NlwElzj0uLAPIjJOWLWsqB9pei40D4TOV6y7cyp129BlvtRVvWFRnSPKZv1KbwvSjr9JAg70h3b_hvzMaGT19tuBowbH03tQoYY42FlDAwGsJH1DBYRwU3CaNnwaQwf)
-徐州丰县“铁链女”事件持续发酵之际，中共国内又现“铁笼女”，中共国内大规模人口拐卖问题再度引发关注。
+#### **加拿大温哥华扬帆农场蓝枫法律**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-32.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-19.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/5-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/7-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/8-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/10-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/11-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/12-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-04-at-15.18.26.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/14-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/15.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/18.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/19.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/20.png)
+直播视频：
 
-据“安康讯点”网易号消息，近期，受徐州丰县铁链女影响，有爱心志愿者反映：青海一名叫王国红的大学生2009失踪，2020年在陕西榆林疑似被发现。
+[**第四十二期** 金融税务专题及喜支付（H PAY）功能介绍](https://gtv.org/video/id=61ff154d96ba5d73e0c39083)
 
-根据爱心人士提供的资料及上网查询，2009年9月27日，青海省民族大学在校学生王国红失去联系。
+编辑/发文：蓝枫法律栏目
 
-王国红失踪后，其父母王志英、乔凤翠一直苦命寻找，可是渺无音讯。母亲思女心切，得了重病，于2019年5月带着终生遗憾离开了人世。
-
-2020年初， 从网上传来消息。一位疑似王国红的姑娘在陕西榆林市佳县金明寺镇元团卯沟村李利民的家里被发现，但这位可能是王国红网名叫小雨的女子，早已被虐待的精神失常。
-
-小雨的遭遇，和丰县董集村的“铁链女”，如出一辙。
-
-事件的转折点，同样是因为多个主播在相互炒作的过程中，将小雨曝光了出来。
-
-而小雨名义上的“丈夫”，从面相看，李利民年长小雨二十多岁。涉嫌售卖，QJ，绑架、虐待妇女的老男人李利民，同样像董某民一样，成为了在快手平台里拥有近十万粉丝的网红主播。
-
-李利民快手ID：904949992，用户名：“我是李奇峰”。
-
-此人在直播间有意无意暴露了很多他与小雨的猛料。
-
-李利民在直播时为吸引眼球自己爆料：2009年与之同居来路不明的女子小雨，曾多次试图逃跑，他毒打小雨以及用各种手段对付小雨等等。
-
-在人渣李利民的眼里，虐待拘谨QJ毒打“捡来”的女子，是再天经地义不过的事情。
-
-所以他直接自曝了很多“光辉”的行为。
-
-李利民说，“小雨是我捡来的，刚捡回来的时候，我把小雨绑在凳子上三天三夜。”
-
-李利民还说，他把神经错乱的小雨关在家后山的一个山洞。而那个山洞，被小雨称之为监狱。
-
-主播们的视频中显示，小雨的小腿上，还有被束缚的勒痕。小雨双脚底板，被大面积的烫伤……
-
-而小雨名义上的“丈夫”，从面相看，李利民年长小雨二十多岁。涉嫌售卖，QJ，绑架、虐待妇女的老男人李利民，同样像董某民一样，成为了在快手平台里拥有近十万粉丝的网红主播。
-
-李利民快手ID：904949992，用户名：“我是李奇峰”。
-
-此人在直播间有意无意暴露了很多他与小雨的猛料。
-
-李利民在直播时为吸引眼球自己爆料：2009年与之同居来路不明的女子小雨，曾多次试图逃跑，他毒打小雨以及用各种手段对付小雨等等。
-
-在人渣李利民的眼里，虐待拘谨QJ毒打“捡来”的女子，是再天经地义不过的事情。
-
-所以他直接自曝了很多“光辉”的行为。
-
-李利民说，“小雨是我捡来的，刚捡回来的时候，我把小雨绑在凳子上三天三夜。”
-
-李利民还说，他把神经错乱的小雨关在家后山的一个山洞。而那个山洞，被小雨称之为监狱。
-
-主播们的视频中显示，小雨的小腿上，还有被束缚的勒痕。小雨双脚底板，被大面积的烫伤……
-
-自徐州丰县铁链女事件发生后，李利民在直播时已非常警觉，只要有人对小雨受伤受虐的质疑全都拉黑。
-
-李利民在直播时还说过他准备了雷管炸药，如有谁来抢小雨，就同归于尽，孩子他交给他哥哥。
-
-他曾非常狂妄地对提及王国红的网民说：“陕西的人很多在青海做大官，北京也有很多陕西籍的大官，他家亲属是佳县的领导等等”。
-
-光天化日下的罪恶，受害人小雨在众目睽睽之下一直得不到解救，而涉嫌非法拘禁、强奸、故意伤害、虐待、贩卖人口等多项犯罪的李利民却迟迟得不到应有的刑事制裁！！
-
-“铁链女”到“铁笼女”又一次让我们见识了什么是惨绝人寰的劫难！无法想象，还有多少个她们，陷入同样的厄运？
-
-文字版原文：[从铁链女到铁笼女](https://gnews.org/zh-hans/2089045/)
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,17 +2,65 @@
 ---
 
 
-## 《蓝枫法律》第四十二期 金融税务专题及喜支付(H PAY)功能介绍- PPT展示- GTV
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2104032/)
+## 樱花FM|俄乌战争：乌首都保卫战获胜 中共谎称基辅遭导弹袭击
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2104173/)
 
-#### **加拿大温哥华扬帆农场蓝枫法律**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-32.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-19.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/5-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/7-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/8-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/10-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/11-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/12-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-04-at-15.18.26.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/14-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/15.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/18.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/19.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/20.png)
-直播视频：
+音频：东京樱花团/战友520
 
-[**第四十二期** 金融税务专题及喜支付（H PAY）功能介绍](https://gtv.org/video/id=61ff154d96ba5d73e0c39083)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/乌首都保卫战获胜-中共谎称基辅遭导弹袭击.png)
 
-编辑/发文：蓝枫法律栏目
+**俄军在乌克兰的入侵可谓节节败退，它正在失去前苏联的巨人实力，战争入侵同犯中共正在加紧为俄军制造胜利的谎言，意图维护正在崩溃的“中俄联盟”形象。**
 
+- ***延展阅读：***[***中共国新华社谎称基辅遭遇三枚导弹袭击***](http://ukrinform.ua/rubric-ato/3415359-u-zitlovij-budinok-u-cernigovi-vlucila-rosijska-raketa.html)
+
+
+据中共国新华社日消息称，“乌克兰国家通讯社28日报道，乌克兰总统办公室顾问阿列斯托维奇称，乌克兰首都基辅遭3枚导弹袭击。”
+
+这是一个彻头彻尾的谎言，事实上是克兰北部城市有着 282,747 人口的城市切尔尼戈夫市被白俄罗斯方向飞来的一枚火箭弹击中。更确切地讲，是今天早些时候，[白俄罗斯总统卢卡申科承认导弹是从白俄罗斯发射到乌克兰各地的](https://www.radiosvoboda.org/a/news-lukashenko-vyznav-shcho-z-terytoriyi-bilorusi-vypustyly-rakety-po-ukrayini/31726243.html)。截止28日，[乌克兰国家电视台](https://www.ukrinform.ua/rubric-ato/3415359-u-zitlovij-budinok-u-cernigovi-vlucila-rosijska-raketa.html)援引国家特殊通信和信息保护局声明说：“凌晨2点45分，一枚火箭击中了切尔尼戈夫市中心的一栋住宅楼。一场火灾发生了，两层楼下着火了，受伤人数目前未知。”
+
+自从2月24日俄罗斯总统普京对乌克兰宣战以来，俄军发动了大规模入侵，炮击和摧毁了乌克兰关键基础设施，导弹正在不断击中民居。乌克兰已在海牙的联合国国际法院正式对俄罗斯联邦提起诉讼。
+
+- ***延展阅读：***[***乌克兰总统不相信卢卡申科能保证俄乌代表谈判会有结果***](https://www.radiosvoboda.org/a/news-zelenskyi-lukashenko-rf/31726624.html)
+
+
+乌克兰国家电视台援引总统泽连斯基的话说，“我与亚历山大·卢卡申科进行了电话交谈，两年没跟他说话，今天跟他聊了很久，也很客观。我向他详细解释了我们不可能发生冲突，我不希望导弹、飞机、直升机从白俄罗斯飞往乌克兰，我不希望军队从白俄罗斯来到乌克兰，他向我保证了这一点。”
+
+该消息称，27日，泽连斯基总统的发言人谢尔希·尼基福罗夫表示，“在俄罗斯代表团抵达的白俄罗斯戈梅利举行的会谈中不会有乌克兰代表，因为俄罗斯代表团在抵达戈梅利进行会谈前发表声明称，俄罗斯要求乌克兰军队必须首先放下武器。所以我必须说，那里不会有乌克兰代表。”
+
+但早些时候，乌克兰西北部城市[日托米尔机场被白俄罗斯导弹击中](https://www.radiosvoboda.org/a/news-aeroport-zhytomyr-raketnyi-udar/31726686.html)，乌克兰总统泽连斯基表示，在与白俄罗斯事实上的领导人亚历山大·卢卡申科的电话中，他得到了卢卡申科的保证，说在与俄罗斯方面的会谈期间到乌克兰代表团的返回期间，所有飞机、直升机和导弹都在白俄罗军事基地上。
+
+- ***延展阅读：***[***俄罗斯利用人肉炸弹袭击乌克兰马里乌波尔市公交车上的平民未遂***](https://www.ukrinform.ua/rubric-ato/3415052-u-mariupoli-znisili-rosijsku-drg-aka-namagalasa-atakuvati-avtobusi-z-ludmi-miskrada.html)
+
+
+乌克兰马里乌波尔市长说：“俄罗斯破坏和侦察小组在马里乌波尔试图袭击载有平民的公共汽车时被维权人士打死。他们试图用人袭击公共汽车，维权人士迅速做出反应，摧毁了破坏侦察小组，没有平民受伤。”市长进一步解释说，“在国家警察的陪同下，有组织的人道主义车队疏散了人们。在后桥区域，警方注意到一个蓄意破坏的侦察小组，打算射击运输工具。”市长说，“我们为捍卫者感到自豪。”
+
+- ***延展阅读：***[***乌克兰军再次击退试图入侵首都基辅的侵略者并在顿涅茨克地区获胜***](https://www.ukrinform.ua/rubric-ato/3415286-arestovic-volnovahu-vidbili-berdansk-zajnatij-protivnikom.html)
+
+
+另据乌克兰新闻通讯社援引总统办公室负责人顾问奥列克西·阿雷斯托维奇在简报会上的消息称，“过去一天，乌克兰军队击退了占领了顿涅茨克沃尔诺瓦地区的俄罗斯占领军。[俄罗斯军队几乎将这座城市夷为平地](https://www.radiosvoboda.org/a/31726903.html)，[顿涅茨克地区许多沃尔诺瓦人在求救](https://www.radiosvoboda.org/a/31726903.html)。但在哈和扎波罗，被俄罗斯军队占领的别尔江斯克热地区失守，因为乌军不在那里防守。俄罗斯军队试图进入基辅临近的布哈和伊尔平市，但现在俄军已经离开了。”阿列斯托维奇说，“在哈尔科夫，入侵者试图闯入市中心，但被摧毁了。”
+
+俄军不甘心失败，继续在围攻首都基辅，阿列斯托维奇透露，“有11艘俄罗斯大型登陆舰出海了，每艘载有一个营左右兵力。可能是往敖德萨方向。如果他们试图登陆，我们将看到俄罗斯军队的海军在登陆行动中是如何被乌克兰军队反登陆行动摧毁。我认为我们一如既往地会做得更好，”阿雷斯托维奇说.。
+
+- ***延展阅读：***[***法国参战-法国高技能步兵穿戴全套装备前往乌克兰作战***](https://www.ukrinform.ua/rubric-ato/3415402-ukrainciv-iz-francuzkogo-inozemnogo-legionu-vidpustat-na-batkivsinu-v-povnij-bojovij-ekipirovci.html)
+- ***延展阅读：***[***乌克兰国防部：首都经受住艰难的85小时防卫战宣告胜利***](https://www.mil.gov.ua/news/2022/02/27/stoliczyu-ne-zdamo-ukraina-vzhe-peremagae-%E2%80%93-oleksij-reznikov/)
+
+
+前苏联克格勃出生的侵略者首领普京仍然不甘心举起白旗，正视图从乌克兰首都内部瓦解人心，基辅市国家管理局表示，“我们有消息称，不明身份的敌人正在用电话的方式鼓动人们离开自己的家和避难所开始疏散，如果您被要求离开安全的地方，请忽略这些电话，首都没有采取疏散措施。”该市政府还提醒说，“基辅的宵禁将持续到 2 月 28 日星期一 08:00。请保持冷静并使用官方信息来源。”
+
+另据乌克兰真理报援引乌克兰武装部队的陆军司令亚历山大·希尔斯基上校的最新消息称： “俄罗斯侵略军所有试图实现的占领目标都失败了，俄军突袭纵队装备被摧毁，敌人遭受了重大损失。”上校还提到一些细节称：“俄罗斯军队的纵队一再试图袭击首都郊区，但敌军的所有动向都在控制之中。”所以，截至2月28日上午，乌克兰武装部队肯定地说，“我国首都局势已得到控制。”
+
+2022年2月28日
+
+文字版原文：
+
+
+| [俄乌战争：乌首都保卫战获胜 中共谎称基辅遭导弹袭击](https://gnews.org/zh-hans/2080823/) |
+| --- |
+
+
+*编辑：东京樱花团/asket   
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
