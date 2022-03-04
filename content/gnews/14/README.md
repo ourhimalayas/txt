@@ -2,22 +2,36 @@
 ---
 
 
-## 樱花FM|乌克兰驻联合国大使骂普京若想死只需像当年希特勒那样
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2104221/)
+## 泽连斯基：下个受俄威胁的或将是波罗的海三国
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2104250/)
 
-音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/c6r3XKv-UxMBctFwrF3X96S0XS4Fe88IksiEv2hoD5xXmSd5Yt3ERsHIS68GtafyVwjaRSAhaPw7EKtNGqKhHz4VmxHBS6qGymi31Br28b9ji_FrhOMsEXrpPkDCEp5v_W49TgDJ)
-3月1日消息：乌克兰驻联合国大使谢尔盖-基斯利察在2月28日的联合国大会特别紧急会议上强烈批评俄罗斯总统弗拉基米尔-普京，把他比作”1945年5月在柏林的一个地堡里自杀的人”希特勒。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-乌克兰驻联合国大使基斯利察先生说，这场战争不是爆发的，而是由现在坐在地堡里的人选择的。我们所有人都知道1945年5月坐在柏林的一个地堡里那个人的结局是什么。寻求扩大其地缘政治影响力的军事化大国正在发动大规模的军事进攻，在入侵较小的邻国。当俄罗斯军队从他们自己的国家、白俄罗斯和乌克兰的被占领土顿巴斯和克里米亚越过乌克兰边境时，破坏性的炮弹被投向乌克兰各地的平民头上。它看起来不是很像那个时候吗？是的，确实如此。 这不是与第二次世界大战的开始非常相似吗？
+#### 整理：围剿维尼熊
+编辑：木木木mmmmm
 
-普京先生已将核威慑力量置于高度警戒状态。真是疯了！如果你想自杀，你不需要使用核武器，你只需要像1945年5月那个人在柏林的地堡里做的那样。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0149.jpg)图片来源：AFP
 
-文字版原文：[乌克兰驻联合国大使骂普京若想死只需像当年希特勒那样](https://gnews.org/zh-hans/2088551/)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+根据澳大利亚人报中文网3月4日报道，泽连斯基在记者会中对普京喊话：尽快离开乌克兰。
+
+泽连斯基同时呼吁西方国家增加对乌克兰的军事援助，他并警告说，如果让俄军继续入侵，欧洲其他国家也会受到威胁。并表示接下来受到威胁的就是拉脱维亚、立陶宛和爱沙尼亚。
+
+普京在上周下令入侵乌克兰。尽管有许多证据表明俄罗斯针对平民所在的区域展开了攻击，但俄罗斯否认这一说法。
+
+乌克兰昨天表示，俄国军机击中乌克兰北部城市切尔尼戈夫（Chernihiv）的1所学校，造成9人丧命。 自普京发动侵略后，已经有超过350名平民遇害。
+
+参考链接：[俄军侵略若不停 接下来换波罗的海3国](https://cn.theaustralian.com.au/2022/03/04/64235/)
+
+发布：*wenly*
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
