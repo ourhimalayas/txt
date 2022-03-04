@@ -2,38 +2,154 @@
 ---
 
 
-## 战争艺术手段高低的比较
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2102298/)
+## 圣彼得堡和新西伯利亚在内的多个城市爆发了反战抗议活动
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2102310/)
 
-作者：纽约磐石农场—在远方
+Russians are split on the military invasion of Ukraine
+俄罗斯人对乌克兰的军事入侵存在分歧
 
+St Petersburg, Russia
+俄罗斯圣彼得堡
+February 24, 2022
+2022 年 2 月 24 日
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-7.png)
+Elizaveta (Architect)
+伊丽莎维塔（建筑师）
 
+I don’t want Russia to attack Ukraine
+我不希望俄罗斯攻击乌克兰
 
-在2月27日的大直播中，郭文贵先生把中共的历次战争，俄乌战争和美国参战的战争艺术，做了精彩的解读和比较。
+So that someone would go there like this
+所以有人会像这样去那里
 
-郭先生说，他对汉朝霍去病和卫青的用兵艺术极为赞赏，这是以少胜多、出其不意、擒贼先擒王的经典战例，可称之为宣判式心理学。中共的辽沈、淮海和平津三大战役，本质都是欺骗战争，是用无数士兵的生命换来的胜利。在1979年所谓的“对越自卫反击战”中，中共将一大批没有受过军事训练的孩子和学生送上了战场，靠不断的死人才将战火烧到了越南境内。同样，中共在韩战中，也是以牺牲了无数志愿军将士的生命，才换来了金家王朝对朝鲜几十年的残酷统治。
+I have grandparents there
+我有祖父母在那里
 
-现代战争是智慧战争，在俄乌战争中，乌克兰把心理学、社交学、人际关系学、国际政治关系学，尤其是将研究战争心理的战争逻辑学，运用到了极致。通过战争，乌克兰结交了一大批盟友，比如波兰和捷克。前者让后者认识到，俄罗斯是它们各国共同的威胁，乌克兰的战争，就等同于波兰和捷克的战争，也让欧盟在世界面前羞愧难当。而美国的战争艺术也是十分高超，它在耐心等待代理人战争背后的势力，即中共的最终出现，才会一举歼灭之。
+Anti-war protesters have taken to the streets in 53 cities across the country
+全国53个城市的反战抗议者走上街头
 
-新闻来源：[https://www.gettr.com/post/pxap2j6939](https://www.gettr.com/post/pxap2j6939)
+Moscow, St Petersburg and Novosibirsk saw some of the largest demonstrations
+莫斯科、圣彼得堡和新西伯利亚见证了一些最大规模的示威活动
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-3.jpg)
+Artem (Protester)
+阿尔乔姆（抗议者）
 
-编辑/校对/发稿：滚滚长江都是水
+What happened today is a shame
+今天发生的事情太可耻了
 
-**更多资讯，更多关注**
+Many of us have relatives and friends from Ukraine
+我们中的许多人都有来自乌克兰的亲戚和朋友
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+and this is a betrayal of them
+这是对他们的背叛
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+Russian police arrested nearly 1,700 protesters at rallies denouncing the conflict
+俄罗斯警方在谴责冲突的集会上逮捕了近 1700 名抗议者
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+Others support the ‘special military operation’ in Ukraine launched by President Putin
+也有人支持普京总统在乌克兰发起的“特种军事行动”
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Maria (Moscow resident)
+玛丽亚（莫斯科居民）
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+No need to panic
+无需恐慌
+
+If they pose a threat to our people, we need to defend ourselves
+如果他们对我们的人民构成威胁，我们需要保护自己
+
+The strikes are targeted
+攻击是有针对性的
+
+It’s all going as planned, so I think it is the right decision
+一切都按计划进行，所以我认为这是正确的决定
+
+Some Russians are unsure and are worried about the consequences of war
+一些俄罗斯人不确定并担心战争的后果
+
+Andrey (Moscow resident)
+安德烈（莫斯科居民）
+
+It’s a critical situation for the young generation as there is a transition going on
+这对年轻一代来说是一个危急的情况，因为正在发生转变
+
+from the Soviet generation to the younger one
+从苏联一代到年轻一代
+
+They are creating problems for the young generation
+他们正在为年轻一代制造问题
+
+as it’s all going to fall on our shoulders
+因为这一切都将落在我们的肩上
+
+Biden with his sanctions, us with this intervention, we will have to deal with them
+拜登的制裁，美国对我们的干预，我们将不得不对付他们
+
+I understand they want to help people there now
+我知道他们现在想帮助那里的人
+
+but they are not thinking about the future
+但他们没有考虑未来
+
+Alexey (Moscow resident)
+阿列克谢（莫斯科居民）
+
+Putin has created a situation we will be getting out of for years to come
+普京创造了一个我们将在未来几年摆脱的局面
+
+I feel sorry for the people there
+我为那里的人感到难过
+
+I feel sorry for us
+我为我们感到难过
+
+It’s hard and painful
+这是艰难而痛苦的
+
+What should we do? No idea
+我们应该做什么？ 不知道
+
+The tendency is … just total obscurity
+趋势是……只是完全默默无闻
+
+the data is very new, it’s not processed yet
+数据很新，还没有处理
+
+It can all lead to our country becoming a closed one
+这一切都可能导致我们的国家成为一个封闭的国家
+
+It’s clear what will happen to the economy, it’s not a question, on the contrary
+很明显经济会发生什么，这不是一个问题，相反
+
+Basically, that’s it
+基本上就是这样
+
+I don’t want to be rude
+我不想粗鲁
+
+but the man in power now is mad and what he is doing is a crime
+但是现在掌权的人疯了，他的所作所为是犯罪
+
+原视频链接[https://twitter.com/scmpnews/status/1497289544122703880?s=24](https://twitter.com/scmpnews/status/1497289544122703880?s=24)
+
+Date:02/27/2022
+原视频标题: Anti-war protests have broken out in several cities, including Moscow, St Petersburg and Novosibirsk, where police arrested protesters at the unauthorized rallies
+警方在未经授权的集会上逮捕了抗议者，包括莫斯科、圣彼得堡和新西伯利亚在内的多个城市爆发了反战抗议活动
+原视频日期：2022/02/26
+原视频链接[https://twitter.com/scmpnews/status/1497289544122703880?s=24](https://twitter.com/scmpnews/status/1497289544122703880?s=24)
+任务编号：KE425（3870）
+视频时间段 : 0:00-3:36
+
+英听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

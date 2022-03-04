@@ -2,26 +2,86 @@
 ---
 
 
-## 普京目标： 征服整个乌克兰
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2102180/)
+## 乌克兰议会议员阿列克谢·贡恰连科公开谈论俄罗斯入侵乌克兰
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2102201/)
 
-撰稿：西枫westca
+Alexy Goncharenko (Ukraine parliament member)
+阿列克谢·冈察连科（乌克兰议会议员）
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image1.jpg)图片来源：网络照片
-多家媒体3月3日最新报道，法国总统马克龙在与俄罗斯总统普京进行了90分钟的通话后认为，在乌克兰战争中”最糟糕的事情还没有到来”。根据爱丽舍宫的说法，普京表现出”非常大的决心”，其目标是继续入侵，除非基辅政府解除武装并同意成为中立国。
+Really, for the first time in human history
+真的，人类历史上第一次
 
-爱丽舍的消息人士说”我们的分析是，俄罗斯的野心是控制整个乌克兰，俄罗斯军队将面临困难和障碍，乌克兰人会勇敢地战斗,但力量的相关性非常不平衡，我们必须为最坏的情况做好准备。巴黎目前没有处理乌克兰分裂的方案。
+and for the moment for the laws gave up our nuclear weapons arsenal
+而且在那时刻也是在法律上放弃了我们的核武器库
 
-根据同一消息来源，马克龙回答说，普京对乌克兰政治制度的评估 “犯了一个严重的错误”。”显然，这不是一个纳粹政权。”
+and it was the moment the third biggest in the world
+而且那是世界第三大的核武器库
 
-到目前为止，欧洲和美国的大规模制裁和武器运输并没有阻止普京。西方有什么办法避免最坏的情况？根据爱丽舍宫的说法，制裁”将变得更加严厉”，有经济和外交手段，但也有对乌克兰的”行动支持”，以继续向俄罗斯总统施压。
+and we receive guarantees from the United States，United Kingdom and the Rus-sian Federation
+当时，我们得到美国、英国和俄罗斯联邦的保证
 
-**新闻来源：**
+But now you see what guarantees we have
+但现在你看到了我们没有得到什么保证
 
-[Macron, after speaking with Putin, believes that “the worst is yet to come” (nationalturk.com)](https://www.nationalturk.com/en/macron-after-speaking-with-putin-believes-that-the-worst-is-yet-to-come/)
+instead of guarantees, we have missiles in our residential areas
+我们没有保证，而发生的是导弹射向了我们的住宅区
 
-[Pelosi says she’s ‘all for’ banning Russian oil imports (theweek.com)](https://theweek.com/nancy-pelosi/1010887/pelosi-says-shes-all-for-banning-russian-oil-imports)
+That one that you showed in kharkiv, unfortunately, did not explode
+不幸的是，你在哈尔科夫中展示的那个没有爆炸
+
+but we have a missile attack on Kyiv where I am now Pavlograd
+但我们的基辅受到导弹袭击，我现在是在巴甫洛格勒
+
+where this morning people met with a missile
+今天早上人们遭到导弹袭击的地方
+
+which shot in the big residential house
+并且击中了大的居民房屋
+
+and it looks like it started burning
+看起来它开始燃烧了
+
+and it was it looked very much similar
+而且它看起来非常相似
+
+as the Twin Towers terrible terroristic attack on September 11
+就像 9 月 11 日的双子塔恐怖袭击那样
+
+And now we are under such attack from Russian Federation
+现在我们正受到俄罗斯联邦的攻击之下
+
+which is definitely the State terrorist now
+这绝对是国家恐怖分子
+
+and we have a big losses of civilians for the moment
+目前我们有大量平民损失
+
+We have 198 civilians killed, including three children
+我们有 198 名平民丧生，其中包括三名儿童
+
+and that’s awful, that’s a real genocide in the middle of Europe in the 21st century
+这太可怕了, 这就是21世纪发生在欧洲中部真正的种族灭绝
+
+**原视频链接**[https://twitter.com/newsmax/status/1497621223915802630?s=24](https://twitter.com/newsmax/status/1497621223915802630?s=24)
+
+Date:02/28/2022
+原视频标题: Ukrainian Parliament member Alexey Goncharenko speaks out about the Russian invasion of Ukrai
+乌克兰议会议员阿列克谢·贡恰连科公开谈论俄罗斯入侵乌克兰
+原视频日期：2022/02/27
+原视频链接https://twitter.com/newsmax/status/1497621223915802630?s=24
+任务编号：KE428（3871）
+视频时间段 : 0:00-1:13
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

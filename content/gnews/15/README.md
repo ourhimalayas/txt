@@ -2,40 +2,50 @@
 ---
 
 
-## 俄乌危机快讯 俄罗斯高级将领被乌克兰狙击手击毙
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2102170/)
+## 欧盟审视加密资产是否被用来破坏对俄罗斯的制裁
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2102174/)
 
-翻译：冰糖葫芦喵
+作者：纽约香草山农场 – 四季
 
-编辑与校对：冰糖葫芦喵、灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-据《英国每日邮报》3月3日报道，昨日，**俄罗斯中央军区第41联合军副司令安德烈•苏霍韦茨基（Andrei Sukhovetsky）少将在乌克兰国防军击退俄罗斯进攻的过程中被乌克兰狙击手击毙。**
 
-据报道，一位军方消息人士证实，他是被“狙击手”杀死的，并建议周六在俄罗斯为这位少将举行葬礼。**他的同事谢尔盖-奇皮廖夫也在社交媒体上宣布这一消息。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/d0bd32c266291387.jpg)狙击手（图片来源：网络）
-今天早些时候，**俄罗斯空降部队联盟**(Airborne Forces Union of Russian)的**奇皮廖夫(Chipilyov)在社交媒体上，证实了苏霍韦茨基的死讯**，这或许是这位将军去世的最确凿证据。目前还不清楚苏霍夫茨基是在哪里被杀的。
 
-**到目前为止，这位少将是在这场冲突中丧生的俄罗斯最高级别人物。**
 
-与此同时，**乌克兰武装部队今天报道，俄罗斯军队已经有9000人伤亡。**
 
-报道称，**苏霍韦茨基是2021年10月被任命为陆军第41师团副司令官的功勋老兵。在此之前，他曾在新罗西斯克指挥第七空降突击师三年，并在车臣战争、阿布哈兹战争和干预叙利亚战争中完成了几次作战部署。他还因参与俄罗斯吞并克里米亚而受到特别表彰。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/将军1-e1646351334741.jpg)**俄罗斯中央军区第41联合军副司令安德烈•苏霍韦茨基（Andrei Sukhovetsky）**（网络图片）
-**所以**，**苏霍韦茨基在乌克兰的死亡将被视为另一个令人鼓舞的迹象，表明俄罗斯的入侵没有按计划进行。**
+据[OAN网站](https://www.oann.com/eu-checking-if-cryptoassets-being-used-to-bust-russian-sanctions-eu-official/)援引路透社3月2日的报道，欧盟高级官员周三表示，欧盟委员会正在研究加密资产是否被俄罗斯用来绕过其入侵乌克兰后对该国银行实施的金融制裁。
 
-今天是俄罗斯**入侵乌克兰的第八天，乌克兰南部的科尔森市落入俄罗斯手中。科尔森市是第一个被普京的军队占领的地区首都，**在一周的战斗中，**普京的军队遭受了重大伤亡，乌克兰军队继续反抗俄罗斯的进攻。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-02T142310Z_3_LYNXMPEI210KF_RTROPTP_0_BINANCE-CRYPTO-CURRENCY-RUSSIA_1.jpg)在2021年6月28日拍摄的这幅插图中，币安的标志前显示了加密货币比特币、以太坊、狗币、瑞波币和莱特币。(REUTERS/Dado Ruvic/Illustration/)
 
-据报道，尽管**有几个城市，包括切尔尼韦夫、马里乌波尔和哈尔科夫，遭到了俄罗斯的猛烈轰炸，**但其他地方的防御工事仍在坚守。
+周一,俄罗斯卢布和Tether加密货币之间的交易量激增，因为当地货币在西方制裁下跌至历史最低点。
 
-基辅夜间遭到四枚大型导弹的袭击，其中一枚击中了中央火车站，三枚击中了电视台或广播电台。
+欧盟官员表示，欧盟意识到加密资产是避免欧盟和其他西方大国实施制裁的一种 “可能的规避途径”。
 
-星期四凌晨，**乌克兰总统泽伦斯基在一段向全国发表的视频讲话中赞扬了乌克兰的抵抗精神，并誓言将用俄罗斯的赔偿资金重建乌克兰的城市。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/泽连斯基2.jpg)泽连斯基讲话（图片来源：网络）
-**他还说，俄罗斯将全额赔偿对乌克兰以及对所有乌克兰人所做的一切。**
+在俄罗斯对乌克兰的入侵进入第二周的同时，国际社会已经对俄罗斯的侵略行径展开了全方位的制裁。
 
-**新闻来源链接：**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
 
-[Ukraine war: Top Russian general killed by sniper as Kyiv claims 9,000 of Putin’s troops have died | Daily Mail Online](https://www.dailymail.co.uk/news/article-10573429/Top-Russian-general-killed-Ukrainian-sniper-Kyiv-claims-9-000-Putins-troops-died.html)
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
