@@ -2,36 +2,22 @@
 ---
 
 
-## 俄乌冲突白热化致全球油价持续飙升
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2103750/)
+## 樱花FM┃岸田首相对俄罗斯SWIFT制裁 冻结普京资产
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2103799/)
 
-#### 整理：围剿维尼熊
-编辑：木木木mmmmm
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/Wm0gAlM1O7JaejCasys0aoKUNSow15qXTffgLM3kx3gCa02e5_AMyAYDjMuUrtwJAkPj1duwGcIk1U38kRVgw27aDDOW94dEtJS-9yT2DQM2qdxp3u4Cd480ynZl0eVwth_YcKIK)
+27日晚，岸田文雄首相表示，为了加强对持续入侵乌克兰俄罗斯的制裁，部分俄罗斯银行将被排除在全球银行结算网络“国际银行间通信协会（SWIFT）”之外。日本将参与和美国，欧盟（EU）共同制裁。
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+还宣布将冻结包括普京总统在内的俄罗斯政府官员的资产。他还表示将向乌克兰提供1亿美元的紧急人道主义援助。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0147.jpg)图片来源：雅典娜设计组
+首相在首相府向记者强调，“现在我们必须团结起来，坚决行动，以维护国际秩序的基础。这表明暴力会付出了高昂代价的。” “我们不能再像以前那样维持与俄罗斯的关系，”他说。日本与西方国家步调一致，对俄罗斯加大施压的立场十分明确。
 
+文字版原文：[岸田首相对俄罗斯SWIFT制裁 冻结普京资产](https://gnews.org/zh-hans/2077335/)
 
-根据华尔街见闻3月4日报道，摩根大通周四在一份报告中指出，如果俄罗斯石油供应持续遭受欧美制裁的冲击，国际油价有望飙涨至185美元，这种局面对全球经济来说将是一个毁灭性的打击。
-
-俄乌冲突升级以来，油价持续飙升，周四早些时候布伦特原油价格暴涨至接近120美元。原因是交易商们在制裁令下都在试图避开俄罗斯石油。目前，66%的俄罗斯石油在寻找买家方面面临困境。
-
-俄罗斯原油的一些买家无法从西方银行开出信用证来支付其购买，由于没有合适买主，俄罗斯原油折扣幅度创历史记录。
-
-目前，俄罗斯乌拉尔(Urals)原油价格出现了创纪录的折扣。石油交易商托克(Trafigura)以比基准布伦特原油低22美元以上的价格报价，但仍找不到任何交易方。
-
-参考链接：[摩根大通：国际油价有望飙涨至185美元](https://wallstreetcn.com/articles/3653358#from=ios)
-
-*发布：**Frank2021*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

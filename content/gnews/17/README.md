@@ -2,20 +2,24 @@
 ---
 
 
-## 樱花FM┃俄罗斯科学界反战信：“俄罗斯被孤立于世界之外”
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2103684/)
+## 樱花FM┃马斯克在乌克兰启动“星链”服务 支持抗俄
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2103693/)
 
 音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/kHu9z4dkAVFiOAGNStssbo9C7E6F3vUrK3_QmE7dFNhZ8AL-JCR1crAvWz0FxLYncYMWeEpoa_E6q8j6pMMYlsdJT8zQsm0cQ1KKfg2vu7IywViVvf_7wO-EeJ_5-_h-RPUyvNcG)
-在俄罗斯入侵乌克兰之后，科学界也站出来谴责俄罗斯。
+![](https://lh3.googleusercontent.com/Qleteq28fepq3bvKZM8sBVtD3BBfSdovlBH_lobsvs2-csskDAINhiiVT-T-WRfv45qC4iOgzRi6lsIINJ9fyPqMenKiOq9cv26OFY8-e_uw3pA1Nz2dp77S6C5MUfpwu5QJfi2T)
+应乌克兰政府的要求，SpaceX公司负责人伊隆-马斯克2月26日表示，他的公司已经在乌克兰推出了Starlink互联网通信卫星服务。
 
-24日，俄罗斯独立科学网站TrV Nauka发表了一封俄罗斯科学家和科学记者的公开信，反对俄罗斯的入侵。 它呼吁立即停止所有军事行动。
+马斯克在Twitter上写道：”Starlink服务现已在乌克兰提供。我们正在运载更多的终端”。
 
-信中指出，战争的责任完全在于俄罗斯，很明显，乌克兰没有威胁到俄罗斯的安全，战争是不公平和无意义的。
+该服务的推出是应乌克兰副总理兼数字转型部长Mykhailo Fedorov的要求。在马斯克先生发帖前10小时，这位副总理在Twitter上写道：”当你试图殖民火星的时候，俄罗斯正试图占领乌克兰！”。 当你们的火箭弹成功着陆时，俄罗斯的火箭弹正在攻击乌克兰公民！”。
 
-这场战争将使俄罗斯在世界范围内被孤立，成为一个弃儿。这将意味着我们的科学家将无法进行正常工作。如果不与其他国家的同事合作，继续进行研究是不可想象的。俄罗斯的文化和技术将被进一步延缓。
+根据监测世界各地互联网连接的英国组织NetBlocks的数据，自俄罗斯入侵以来，乌克兰已经出现了一些互联网中断的情况。
 
-文字版原文：[俄罗斯科学界反战信：“俄罗斯被孤立于世界之外”](https://gnews.org/zh-hans/2077361/)
+支持乌克兰有很多方法。G7各国将俄罗斯的银行排除在SWIFT之外，像SpaceX这样的民间企业提供帮助，还有我们每一个有良知的人可以用笔、用键盘或一部智能手机来抗议独裁者。
+
+为乌克兰的和平祈祷！
+
+文字版原文：[马斯克在乌克兰启动“星链”服务 支持抗俄](https://gnews.org/zh-hans/2077348/)
 
 *编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*

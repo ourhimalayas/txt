@@ -2,38 +2,22 @@
 ---
 
 
-## 美国议员要求汇丰解释冻结香港民运人士账户
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2103841/)
+## 樱花FM|欧盟对乌克兰的入盟申请持冷淡态度
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2103948/)
 
-#### 整理：围剿维尼熊
-编辑：木木木mmmmm
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/XxW18vTUcIl97kAhhwaayvR9u_lfdUnOs8RVHa3qIY0gEyBCMFWyBm3syDT4P0IIp1n8tYIOkQOY-ipOc9sHD__aDwD0GGwlaGZl6qXwNWBHuFbZ4OdrbniuC4mg4hIWRtHrJ0QM)
+2月27日，欧盟委员会主席乌苏拉-冯德莱恩在接受欧洲新闻网采访时说：”乌克兰是我们的一员。 我们希望它能够加入进来”。作为回应，沃洛季米尔-泽伦斯基总统于2月28日签署了一份申请乌克兰加入欧盟的正式文件。并呼吁 “希望通过一个新的特别程序立即予以承认”。他补充说：”在平等的基础上，我们的目标是与所有欧洲人联合起来，我们相信，这是可行的，也是有希望的”。
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+同一天，波兰外交部长兹比格涅夫-劳在推特上发帖称，”由于乌克兰正在勇敢地捍卫自己，顽强抵抗俄罗斯的侵略，因此当下是欢迎乌克兰加入欧盟的最佳时候”，为此波兰将为乌克兰的加入进程提供一切必要的支持”。到目前为止，已有八位东欧国家的总统签署一封信，一致称乌克兰值得加入欧盟。并敦促其他成员国采取措施，给予实现乌克兰的立即加入。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0148.jpg)图片来源：雅典娜设计组
+然而，2月28日，欧盟外交和安全事务高级代表何塞普-博雷尔却说，加入欧盟将需要 “许多年”。与此同时，欧盟委员会发言人收回了冯德莱恩先生的声明，并解释道，“他的意思是乌克兰是欧洲的一部分，而不是欧盟的一部分，他希望欢迎乌克兰加入欧洲”。
 
+文字版原文：[欧盟对乌克兰的入盟申请持冷淡态度](https://gnews.org/zh-hans/2087465/)
 
-据路透社报道，当地时间3月3日，有美国国会议员要求汇丰控股HSBA.L解释其冻结香港民运人士账户的行为，这些行为可能使该行受到美国法律的严厉制裁。
-
-由六名参议员和七名众议员组成的美国国会及行政当局中国委员会(CECC)，周一致信汇丰行政总裁祈耀年(Noel Quinn)。
-
-议员们称，他们被告知美国公民的账户受到限制，包括他们在汇丰美国分行的账户。
-
-信中还说，英国国民(海外)护照持有人在离开香港、前往英国时从汇丰提取养老金被拒。
-
-信中要求汇丰解释其行动的理由，并说明这些行动是应香港当局还是中共要求采取的。
-
-参考链接：[美国议员要求汇丰解释针对香港民运人士和美国公民账户的限制](https://cn.reuters.com/article/usa-lawmakers-hsbc-0303-thur-idCNKCS2L10BI?il=0)
-
-*发布：**Frank2021*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
