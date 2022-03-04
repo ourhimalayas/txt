@@ -2,42 +2,26 @@
 ---
 
 
-## 加拿大军情部门：乌克兰战争期间警惕中共武力犯台
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2105683/)
+## 唇亡齿寒! 乌克兰邻国摩尔多瓦宣布申请加入欧盟
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105704/)
 
-#### **【雅典娜观察】，与您一起洞察世界**
+撰稿：东京樱花团/山顶闲人
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-370.png)[图片来源](https://www.zhdate.com/news_travel/457189.html)
+摩尔多瓦总统桑杜周四宣布，她已经签署了一份正式申请书要求加入欧洲联盟。乌克兰遭俄罗斯侵略，陷入战争，引发前苏联共和国地位忧虑。
 
-翻译：kl
-编辑：文泓
+据路透社今天发自基希讷乌消息说，摩尔多瓦总统马亚桑杜今天宣布说，她已经签署了一份正式申请书，要求加入欧盟。该申请文件，并将被送至布鲁塞尔。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/T5IKUZD4HB6WKVPM_1.png)图片来源：雅典娜设计组
+消息说，该申请书应当在未来几天内就寄达欧盟总部所在地布鲁塞尔。
 
+值得一提的是，原本属于该国的德涅斯特河沿岸地区，，中文简称德左地区。在1991年8月25日，德涅斯特河沿岸宣布脱离苏联独立。11月5日，改国名为“德涅斯特河沿岸摩尔达维亚共和国”。2006年该地区的全民公投，97%的选票支持该地区独立并在未来加入俄罗斯联邦，但欧盟和其他国家拒绝承认公投结果。
 
-加拿大军事情报部门负责人表示，担心莫斯科入侵乌克兰会鼓励中国对台湾做同样的事情，并指出西方对冲突的迅速反应可能会威慑中共国。
+现在该地区有2,000—3,000人的[俄罗斯联邦武装力量](https://zh.wikipedia.org/wiki/%E4%BF%84%E7%BD%97%E6%96%AF%E8%81%94%E9%82%A6%E6%AD%A6%E8%A3%85%E5%8A%9B%E9%87%8F)部队驻扎，向东威胁着乌克兰的敖德萨周边地区，向西威胁着摩尔多瓦，俄罗斯极有可能采用乌东地区的侵略方式，利用该地区分离主义分子挑起争端，进而在侵略乌克兰之后，利用德涅斯特河地区作为跳板进攻摩尔多瓦，来满足普京政权对土地的贪婪需求。此时，摩尔多瓦申请加入欧盟，也颇有“良禽择木而栖”的政治含义，另外，普京政权在前苏联加盟共和国的不得人心，也显示了普京政权离众叛亲离之日为时不远了。
 
-“一周前，我们非常担心中国，实际上想知道中国是否会借此机会加快他们自己的计划，以加强对近邻的控制，特别是台湾，”军情局局长迈克尔·赖特少将3月2日告诉下议院国防常务委员会（NDDN）。
+消息链接：[摩尔多瓦总统宣布申请加入欧洲联盟](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220303-%E6%91%A9%E5%B0%94%E5%A4%9A%E7%93%A6%E6%80%BB%E7%BB%9F%E5%AE%A3%E5%B8%83%E7%94%B3%E8%AF%B7%E5%8A%A0%E5%85%A5%E6%AC%A7%E6%B4%B2%E8%81%94%E7%9B%9F)
 
-这是自2月24日俄罗斯对乌克兰发动袭击以来NDDN举行的第二次会议。来自各方的国会议员正在研究加拿大面临的威胁，以及当威胁来袭时国家支持乌克兰和参与常规战争的能力。
-
-当下议院议员林赛·马西森问及，西方国家对乌克兰冲突的反应是否会以某种方式“让中国暂停”其对台湾的野心时，赖特说，“我希望，随着国际社会的反应，特别是北约和西方的反应，中国会暂停他们未来的任何独裁计划。”
-
-作为对乌克兰入侵的回应，西方国家对俄罗斯的银行系统、国有企业和寡头实施了一系列经济制裁，旨在削弱克里姆林宫为其军事行动提供资金的能力。加拿大已采取行动禁止进口俄罗斯原油，并于2月28日宣布额外提供2500万美元的援助以支持乌克兰，同时提供两架C-130J战术空运飞机和一支约45人的团队，为北约提供协助。
-
-长期以来，北京一直认为[台湾](https://www.theepochtimes.com/canada-should-work-creatively-with-taiwan-amid-chinas-destabilizing-incursions-global-affairs-official_4277370.html)是一个分离的省份，尽管台湾是一个事实上的独立国家。自2019年3月以来，中共政权一直谋求加大对台湾的军事侵略，不断派遣军用飞机进入该岛的防空识别区。
-
-2月24日在俄罗斯入侵乌克兰后的几个小时内，中共PLA派出9架飞机进入台湾的防空识别区，这是今年2月的第13次入侵台湾领空；在1月下旬的1次大规模入侵中，中共军方派出39架飞机进入台湾防空识别区，显然是为了恐吓和消耗台湾军队。
-
-参考链接：[Intelligence Agencies ‘Very Concerned’ China Will Invade Taiwan: Canada’s Military Intelligence Chief (theepochtimes.com)](https://www.theepochtimes.com/intelligence-agencies-very-concerned-china-will-invade-taiwan-canadas-military-intelligence-chief_4314851.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
