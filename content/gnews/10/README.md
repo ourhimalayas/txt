@@ -2,48 +2,20 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2105495/)
+## 「全民强检」触发新一轮离境潮
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105506/)
 
-整理：枳实
-美工：精灵蓝
+作者：东京樱花团︱阿恩
+![](https://lh3.googleusercontent.com/yezpZ1VqUPtEiN_FEbqiwDgCDSbLurre_P8DH2YoUWSUkOXhbapFyRhRRkKPizYSXiRLMupQg2IweTyVt6oxQXKZrXfnnK2Sia-WVFmDzxH3bJf6q-3zXtpN3AT1mcLsGhlJrJhm)
+第5波疫情持续，港人对港府强制防疫措施，尤其「全民强检」感到沮丧和焦虑，触发新一波港人离境潮，目前新加坡是此次移民潮的首选地点。据悉，上月有71,000人离开香港，是疫情爆发以来的最大流出纪录。新加坡樟宜机场，1月份共接待约8,000名来自香港的旅客，较去年12月上升88%。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片：雅典娜农场设计组 精灵蓝
+中共独裁香港两年多，用国安恶法肆无忌惮地抓捕港人，引发港人离港潮。香港的疫情起起落落，港府闭关锁港逐步缩小港人的自由空间，始终用通关、通航、正常生活等诱饵威胁港人注射新冠疫苗，但即使香港的新冠疫苗注射率已超过七成，港府非但没有如期兑现承诺，反而因一些零星的个案不肯放开港人的枷锁，一直维持严格的防疫措施。去年底香港开始爆发凶猛的疫情，无论注射新冠疫苗与否，都不能幸免，港府在此时不仅不反省新冠疫苗的效果问题，还扭曲事实推行严苛的“疫苗通行证”，誓要将香港的新冠疫苗注射率提高至九成。此时的港人进一步醒觉看清中共港府的邪恶，无法再忍受被长期囚禁和欺骗，新一轮的移民潮带走了更多的港人。与此同时，中共不停咒骂外国“干预”香港内政，一边贬低移民港人将成二等公民，中共的这些言论被网民一边倒地回击。有眼可见，现在西方民主国家的人民有权选择自己的生活方式，不戴口罩上街不会遭到辱骂，没人逼你打新冠疫苗，没人会歧视你没注射新冠疫苗，染疫了不会被强制送去隔离营，死者的尸体能有尊严地被哀悼…… 但在中共强权领导下，香港土地上的人已沦落成奴隶，中共有什么资本去嘲笑西方国家的民主，二等公民只不过是中共臆想的名词罢了，此时中共正在香港疯狂地表演着“拯救港人”的大戏，大量的港人却在逃离香港，情愿去异国他乡从零开始，由此可见中共的末日指日可待。
 
+资料来源：[外媒指「全民強檢」觸發離境潮　港人「走難」首選新加坡](https://hk.on.cc/hk/bkn/cnt/news/20220304/bkn-20220304101604272-0304_00822_001.html)
 
-雅典娜疫情更新（2022年 3月4日）
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/9-7.png)
-[2022年3月4日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月4日改进.pdf)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/文小白
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

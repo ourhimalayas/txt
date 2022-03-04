@@ -2,17 +2,25 @@
 ---
 
 
-## 格雷厄姆采访说普京应该被“干掉”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2105417/)
+## 樱花FM|日本昨日新增病毒感染者5万 感染总数已超500万
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2105462/)
 
-制作：peacelv
+音频：东京樱花团/战友520
 
-发稿：信心的选择
+![](https://assets.gnews.org/wp-content/uploads/2022/03/日本昨日新增病毒感染者5万-感染总数已超500万.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
+据NNN总结，28日，全国新增感染人数为5万1348人，日本总感染人数已超过500万。死亡人数为198人。
+
+文字版原文：
 
 
+| [日本昨日新增病毒感染者5万 感染总数已超500万](https://gnews.org/zh-hans/2084724/) |
+| --- |
 
+
+*编辑：东京樱花团/asket   
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
