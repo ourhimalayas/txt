@@ -2,21 +2,31 @@
 ---
 
 
-## 美国卡车车队聚集印第安纳州将一同前往华盛顿
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2106857/)
+## 有声|美国和国际能源署释放6000万桶石油库存
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2106891/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/555.jpg)
-由数千辆卡车组成的卡车司机车队在印第安纳州的蒙罗维亚聚集，并于当地3月2日晚举行集会，然后继续向华盛顿特区进发，抗议新冠疫苗的限制和强制规定。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据美国媒体3月1日消息，俄罗斯入侵乌克兰后，世界各国对俄罗斯经济实施制裁，导致国际原油价格飙升至美桶100美元以上。美国和其他国际能源机构为保持原油市场的价格，决定从紧急库存中释放6000万桶石油。
 
-这个“人民车队 “于2月23日从加利福尼亚州出发，在抵达印第安纳州之前辗转了多个州，包括亚利桑那州、德克萨斯州、俄克拉荷马州和密苏里州。车队还有两站要走， 先去俄亥俄州和马里兰州，然后在3月5日左右最终到达华盛顿。
+国际能源机构希望向全世界传达一个讯息：俄罗斯入侵乌克兰不会导致石油供应短缺，白宫发言人也表示会采取一切行动来限制普京的入侵对全球能源供应带来的干扰。
 
-该组织受到加拿大卡车运动的启发，该车队因抗议COVID-19限制而成为全球新闻头条。目前很难准确统计有多少人直接参加了人民车队，更不用说还有成千上万的人聚集在全国各地的公路上和天桥上为他们加油。
+美国和国际能源署本希望释放库存石油后油价会下跌，降低世界最大石油生产国俄罗斯的收入，并给美欧等国锁定俄罗斯能源行业的机会。但6000万桶石油后并没有达到预期的目的，市场目前处在恐慌之中，石油价格仍持续走高。
 
-我本人相信这个卡车运动会改变美国政治和选民的习惯，使美国重新回到正义的一边。美国人一直不停地在为自由和民主奋斗与抗争，不难理解为何美国是个美好的国家。不为恶势力低头的美国人也体现了团结的力量，这是不容忽视的，乌克兰也因世界各地的人民支持而顽强地对抗俄国的入侵。
+文字版原文：[美国和国际能源署释放6000万桶石油库存](https://gnews.org/zh-hans/2100634/)
 
-**新闻来源**： https://www.theepochtimes.com/multiple-truck-convoys-converge-in-indiana-for-large-rally-en-route-to-dc\_4313151.html
+音频处理：Fei797
+发稿：Fei797
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

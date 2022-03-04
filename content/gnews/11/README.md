@@ -2,25 +2,25 @@
 ---
 
 
-## 加拿大安省终止疫苗护照
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2106836/)
+## 特鲁多未能保护受中共迫害的加拿大人
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2106880/)
 
-采编: 风云小哥         编译撰稿：苦尽甜来 (文來）
+采编：文莱         编译撰稿：文明(添草灭共)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/GettyImages-1238218860-e1646167104487-640x4792-1.jpg)图片来源：AFP via Getty Images
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/website-chinacan2.jpg)图片来源：tnc
 
 
-据【布赖特巴特】媒体3月1日报道，安大略省政府当天完全取消了疫苗护照措施，但指出企业可以选择自行执行这些措施。
+据加拿大媒体【真北方】3月2日报道，尽管联邦政府表示将对专制国家采取强硬政策，但特鲁多当局几乎没有保护那些被中共等独裁政权迫害的加拿大人。
 
-对此，省长福特表示，由于安省大部分企业现已满负荷运转，在专家的建议下，将不再需要疫苗护照。此外，阿尔伯塔省此前也已经取消了几乎所有的疫情限制，包括配戴口罩的规定。
+[多伦多大学]最新报告指出：中共利用网络技术和媒体宣传，通过黑客账户、社交媒体，雇佣水军等方式有组织地散布虚假信息和在线威胁等活动，来实施其“跨国镇压”。并造成被攻击人士的职业和生活都受到了负面影响，甚至被迫切断了与中共国内家人的联系。
 
-报道称，目前各省政府陆续解除各项卫生限制措施的举动，与上个月前席卷整个加拿大的自由车队反疫苗护照运动直接相关。
+尽管以上信息在去年已提交给特鲁多政府，但当局至今仍未采取有效的保护措施。为此，相关各界已敦促联邦政府尽快为那些遭受中共迫害的加拿大人提供支持，以维护该国民主人权的执政基石。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文明(添草灭共)
 
-原文链接： [Ontario Formally Ends Coronavirus Vaccine Passport System (breitbart.com)](https://www.breitbart.com/europe/2022/03/01/freedom-ontario-ends-coronavirus-vaccine-passports-removes-capacity-restrictions/)
+原文链接： https://tnc.news/2022/03/02/canadians-opposing-foreign-tyrants-not-backed-by-trudeau-government/
 
  
 
