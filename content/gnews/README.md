@@ -15,161 +15,161 @@
 
 ---
 
-### [通过喜马拉雅交易所购买标志性的迈凯轮汽车提高了对加密货币的信任](/content/gnews/1/README.md)
+### [多伦多市去年未能向被摄像头拍到的司机开出 89,000 张超速罚单](/content/gnews/1/README.md)
+ ` MG FARM`
+
+### [通过喜马拉雅交易所购买标志性的迈凯轮汽车提高了对加密货币的信任](/content/gnews/2/README.md)
  ` PureLotusHeart(莲心不染 or Dawn）`
 
-### [Hcoin To the Moon上线92天第33次位列新加坡iTunes摇滚音乐榜首](/content/gnews/2/README.md)
+### [Hcoin To the Moon上线92天第33次位列新加坡iTunes摇滚音乐榜首](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [习近平要求普京在冬奥会后入侵乌克兰](/content/gnews/3/README.md)
+### [加拿大扣留载有俄公民的飞机](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [安大略省卫生部长克里斯汀·埃利奥特（Christine Elliott）不会寻求连任](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [习近平要求普京在冬奥会后入侵乌克兰](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [如果有大型的排华运动怎么办](/content/gnews/4/README.md)
+### [如果有大型的排华运动怎么办](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [俄罗斯可能制造“栽赃行动”轰炸自己人](/content/gnews/5/README.md)
+### [俄罗斯可能制造“栽赃行动”轰炸自己人](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [排华已经不可避免](/content/gnews/6/README.md)
+### [排华已经不可避免](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [决定生死](/content/gnews/7/README.md)
- ` MG FARM`
-
-### [韩正不是一半的厉害](/content/gnews/8/README.md)
- ` MG FARM`
-
-### [四方安全对话：乌克兰事件不该在印太地区发生](/content/gnews/9/README.md)
+### [四方安全对话：乌克兰事件不该在印太地区发生](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国人能对中国人好吗？](/content/gnews/10/README.md)
- ` MG FARM`
-
-### [加密货币交易在俄罗斯大行王道](/content/gnews/11/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [【秘翻时评】欧洲最大核电厂 已遭俄罗斯军方控制](/content/gnews/12/README.md)
+### [【秘翻时评】欧洲最大核电厂 已遭俄罗斯军方控制](/content/gnews/11/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [谁是普京对乌克兰发动战争的真正幕后推手？](/content/gnews/13/README.md)
+### [谁是普京对乌克兰发动战争的真正幕后推手？](/content/gnews/12/README.md)
  ` 秘密翻译组-原创组`
 
-### [通过喜交所购买标志性的迈凯轮汽车引发对加密数字货币的信任](/content/gnews/14/README.md)
+### [通过喜交所购买标志性的迈凯轮汽车引发对加密数字货币的信任](/content/gnews/13/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [新西兰财经G乐部2022年3月4日:财经新闻整理](/content/gnews/15/README.md)
+### [新西兰财经G乐部2022年3月4日:财经新闻整理](/content/gnews/14/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [侵略乌克兰的俄罗斯军队故意打击民用基础设施](/content/gnews/16/README.md)
+### [侵略乌克兰的俄罗斯军队故意打击民用基础设施](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|普京为入侵乌克兰炮制的虚假理由及真相](/content/gnews/17/README.md)
+### [有声|普京为入侵乌克兰炮制的虚假理由及真相](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [【G时新闻】四方领导人承诺 绝不允印太区上演乌克兰情况](/content/gnews/18/README.md)
+### [【G时新闻】四方领导人承诺 绝不允印太区上演乌克兰情况](/content/gnews/17/README.md)
  ` G-时新闻`
 
-### [有声|美国和国际能源署释放6000万桶石油库存](/content/gnews/19/README.md)
+### [有声|美国和国际能源署释放6000万桶石油库存](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [我们是新中国联邦战友，我们来了！](/content/gnews/20/README.md)
+### [我们是新中国联邦战友，我们来了！](/content/gnews/19/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [有声|日本首相宣布接受乌克兰难民](/content/gnews/21/README.md)
+### [有声|日本首相宣布接受乌克兰难民](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [美国及世界疫情简报（03-04-2022）](/content/gnews/22/README.md)
+### [美国及世界疫情简报（03-04-2022）](/content/gnews/21/README.md)
  ` 波士顿五月花农场`
 
-### [3/4/2022国际财经快讯：受制裁影响俄罗斯公司急于开设中国银行账户；乌克兰央行行长表示银行系统仍然具有弹性](/content/gnews/23/README.md)
+### [3/4/2022国际财经快讯：受制裁影响俄罗斯公司急于开设中国银行账户；乌克兰央行行长表示银行系统仍然具有弹性](/content/gnews/22/README.md)
  ` 秘密翻译组金融团队`
 
-### [2022/03/02 墙内世界](/content/gnews/24/README.md)
+### [2022/03/02 墙内世界](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [如果你需要从乌克兰战区撤离，请访问ukrainehelp.info](/content/gnews/25/README.md)
+### [如果你需要从乌克兰战区撤离，请访问ukrainehelp.info](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [从明天开始餐厅、咖啡厅可以营业到晚上11点…聚会维持6人](/content/gnews/26/README.md)
+### [从明天开始餐厅、咖啡厅可以营业到晚上11点…聚会维持6人](/content/gnews/25/README.md)
  ` 首尔天池农场`
 
-### [波兰救援基地建立 新中国联邦战友家庭成功获救](/content/gnews/27/README.md)
+### [波兰救援基地建立 新中国联邦战友家庭成功获救](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [2022年3月4日，全球中共病毒疫情情况汇总](/content/gnews/28/README.md)
+### [2022年3月4日，全球中共病毒疫情情况汇总](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [亚洲国家在乌克兰被入侵后讨论增加国防](/content/gnews/29/README.md)
+### [亚洲国家在乌克兰被入侵后讨论增加国防](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄罗斯军队占领了巨大的乌克兰核电站，大火被扑灭](/content/gnews/30/README.md)
+### [俄罗斯军队占领了巨大的乌克兰核电站，大火被扑灭](/content/gnews/29/README.md)
  ` Shuizhuyu`
 
-### [乌克兰接受狗狗币和其他数字货币捐款](/content/gnews/31/README.md)
+### [乌克兰接受狗狗币和其他数字货币捐款](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [二战大屠杀幸存者，乌克兰老人痛斥俄入侵](/content/gnews/32/README.md)
+### [二战大屠杀幸存者，乌克兰老人痛斥俄入侵](/content/gnews/31/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [自3月4日起，南澳大利亚警方取消了疫苗强制](/content/gnews/33/README.md)
+### [自3月4日起，南澳大利亚警方取消了疫苗强制](/content/gnews/32/README.md)
  ` 走进澳洲`
 
-### [白宫：美国与乌克兰共享实时情报](/content/gnews/34/README.md)
+### [白宫：美国与乌克兰共享实时情报](/content/gnews/33/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [乌克兰撤侨和救援联系方式](/content/gnews/35/README.md)
+### [乌克兰撤侨和救援联系方式](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花FM|拜登派前国防高官前往台湾以示支持](/content/gnews/36/README.md)
+### [樱花FM|拜登派前国防高官前往台湾以示支持](/content/gnews/35/README.md)
  ` 樱花FM`
 
-### [樱花FM|乌欧关系上新台阶：欧盟历史上首次帮助乌克兰购买和运送武器](/content/gnews/37/README.md)
+### [樱花FM|乌欧关系上新台阶：欧盟历史上首次帮助乌克兰购买和运送武器](/content/gnews/36/README.md)
  ` 樱花FM`
 
-### [樱花FM|美国政府跨党派使团抵台 美台加深合作抗击中共](/content/gnews/38/README.md)
+### [樱花FM|美国政府跨党派使团抵台 美台加深合作抗击中共](/content/gnews/37/README.md)
  ` 樱花FM`
 
-### [中日财经爆|印度指控华为逃税](/content/gnews/39/README.md)
+### [中日财经爆|印度指控华为逃税](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [IAEA谴责俄罗斯入侵乌克兰 中共国投反对票](/content/gnews/40/README.md)
+### [IAEA谴责俄罗斯入侵乌克兰 中共国投反对票](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫苗灾难显现：美国两周内至少有20人死于空难事故](/content/gnews/41/README.md)
+### [疫苗灾难显现：美国两周内至少有20人死于空难事故](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【秘翻北美时评】俄乌第二轮谈判无果结束](/content/gnews/42/README.md)
+### [【秘翻北美时评】俄乌第二轮谈判无果结束](/content/gnews/41/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [2022年中共国高校毕业生达1076万人](/content/gnews/43/README.md)
+### [2022年中共国高校毕业生达1076万人](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共正在对全世界发动网络战争](/content/gnews/44/README.md)
+### [中共正在对全世界发动网络战争](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻新闻｜受俄攻击 欧最大核电站起火](/content/gnews/45/README.md)
+### [秘翻新闻｜受俄攻击 欧最大核电站起火](/content/gnews/44/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [俄乌战争｜乌方证实欧洲最大核电厂已落入俄军手中 西方领袖齐声谴责](/content/gnews/46/README.md)
+### [俄乌战争｜乌方证实欧洲最大核电厂已落入俄军手中 西方领袖齐声谴责](/content/gnews/45/README.md)
  ` 關注組`
 
-### [泽连斯基：俄已诉诸“核恐怖”](/content/gnews/47/README.md)
+### [泽连斯基：俄已诉诸“核恐怖”](/content/gnews/46/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [新中国联邦积极开展战争救援](/content/gnews/48/README.md)
+### [新中国联邦积极开展战争救援](/content/gnews/47/README.md)
  ` 波士顿五月花农场`
 
-### [中共两会｜中共政协十三届五次会议今起开幕为期六日（看点持续更新）](/content/gnews/49/README.md)
+### [中共两会｜中共政协十三届五次会议今起开幕为期六日（看点持续更新）](/content/gnews/48/README.md)
  ` 關注組`
 
-### [俄乌战争｜欧洲最大核电站遭轰炸 乌外长警告灾难或较切尔诺贝利严重十倍](/content/gnews/50/README.md)
+### [俄乌战争｜欧洲最大核电站遭轰炸 乌外长警告灾难或较切尔诺贝利严重十倍](/content/gnews/49/README.md)
  ` 關注組`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年3月3日晚](/content/gnews/51/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年3月3日晚](/content/gnews/50/README.md)
  ` 纽约香草山MOS01`
 
-### [中共趁美国前国务卿蓬佩奥访台之际，作妖台湾大停电](/content/gnews/52/README.md)
+### [中共趁美国前国务卿蓬佩奥访台之际，作妖台湾大停电](/content/gnews/51/README.md)
  ` YALUN 亚伦`
+
+### [通过喜马拉雅交易所购买迈凯轮赛车标志了对加密货币的信任](/content/gnews/52/README.md)
+ ` MG FARM`
 
 ### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/53/README.md)
  ` 纽约香草山MOS02`

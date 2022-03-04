@@ -2,22 +2,35 @@
 ---
 
 
-## 加密货币交易在俄罗斯大行王道
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2107173/)
+## 【秘翻时评】欧洲最大核电厂 已遭俄罗斯军方控制
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2107159/)
 
-采编/编辑撰稿： 文莱             校对编辑：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-1-scaled.jpg)
-据《多伦多太阳报》3月3日报道，尽管欧美已对俄罗斯实施了严厉的经济制裁，但加密货币的交易和使用却在该国盛行。
+By : **[秘翻时评](https://gettr.com/post/py3urb5342)**
 
-据悉，世界上各主要加密货币交易所都以全球自由金融理念为由，并未冻结俄罗斯客户的数字资产及其交易活动。随着战争导致卢布的巨幅贬值，为避险保值，大量俄罗斯企业和个人都纷纷将其财产转移至加密货币，并造成近期卢布和加密货币之间的交易量暴增。
+**[2022‑03‑04](https://gettr.com/post/py3urb5342)**
 
-然而，西方传统金融系统则认为，加密货币已成为俄罗斯政要转移其巨额财富最便捷和最安全的后门，这将极大削弱对该国经济制裁的最终效果。
+**秘翻时评**
 
-对此，文贵先生在当天盖特中表示，俄乌战争以及对俄罗斯的经济制裁，已加快促成了一个全新数字货币金融时代的诞生。以美元为核心的传统国际金融系统将逐渐失去其控制力。相反，以稳定币作为铆钉的安全和无垄断，并使用去中心化技术的喜币将成为人类的未来。世界格局和人类秩序也将因此被彻底改变。
+1.欧洲最大核电厂 已遭俄罗斯军方控制
 
-发稿：文明(添草灭共)
+2.蓬佩奥：美国应立刻承认台湾是主权独立国家
 
-原文链接： [https://torontosun.com/business/money-news/crypto-exchanges-wont-bar-russians-raising-fears-of-sanctions-backdoor](https://torontosun.com/business/money-news/crypto-exchanges-wont-bar-russians-raising-fears-of-sanctions-backdoor)
+3.立陶宛改街道名「乌克兰英雄街」 不写新地址俄使馆收不到信
+
+**秘翻时评内容：**
+
+1. “铁链女”事件引政局不稳
+2. 乌克兰媒体：中国4名留学生遭俄军轰炸身亡
+3. 新中国联邦战友已到达前线展开救援
+
+
+Gettr：[**https://gettr.com/post/py3urb5342**](https://gettr.com/post/py3urb5342)
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+
 
  
 
