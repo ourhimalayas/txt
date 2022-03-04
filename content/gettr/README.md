@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/4/2022 7:40 AM (UTC)`
+
+3/2/2022 Miles Guo: We need to be patient in waking up the Chinese, who have been ruled by the CCP with falsehood for too long. Zelenskyy has changed the stereotype of politicians by telling the world that anyone can become a leader and change the world. Pushing the election of “one person, one vote” is my life-time mission.<br/><br/>3/2/2022 文贵直播：唤醒中国人要有耐心，因为他们被以假治国的中共统治了太久；泽连斯基改变了政治家的形象，告诉世界任何人都可能成为领导人，改变世界；文贵一生的使命是推动中国的一人一票<br/>
+![img](https://media.gettr.com/group23/getter/2022/03/04/07/dcd042f3-7df3-f5c5-3d26-50aa0fd57e2f/out.jpg)
+
+---
+
+`@miles 3/4/2022 7:28 AM (UTC)`
+
+3/2/2022 Miles Guo: The Russian-Ukraine war may possibly save Taiwan from being invaded by the CCP. With the help of social media, the world has witnessed who is the hero and who is the clown between Zelenskyy and Putin. The Russian-Ukraine war has made me feel there is hope for the Chinese people. The New Federal State of China is indispensable to the world, and China will soon have a democracy of one person, one vote!<br/><br/>3/2/2022 文贵直播：俄乌战争或将成为拯救台湾的挡箭牌，社交媒体让世界看清泽连斯基和普京谁是英雄，谁是小丑；俄乌战争让文贵感到中国人有希望；这个世界不能没有我们新中国联邦！中国很快会有一人一票的民主制度！<br/>
+![img](https://media.gettr.com/group38/getter/2022/03/04/07/655d39e4-3979-b8b1-1f33-e1ff6806b731/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@rockvision 3/4/2022 3:26 AM (UTC)`
@@ -144,20 +158,6 @@ We’ve seen this coming, and we’ve been reactionary. That gave Vladimir Putin
 
 3/2/2022 Miles Guo: “Putin the Great” and “Xi The Sun” probably won’t make it to the end of this year. I was the first one to let the world know that both Putin and Xi are not in good health. Citizens of the New Federal State of China shall become those who get to enjoy the sunshine, the flowers, and the beauty of it all. Always keep in mind our two major missions: cleaning up the battlefield and the post-war reconstruction.<br/><br/>3/2/2022 文贵直播：普大帝和习太阳都坚持不过今年年底；文贵最早告诉世界普习身体不好；新中国联邦人要成为享受阳光、鲜花和美丽的人群，并且要切记打扫战场和战后重建这两大主题<br/>
 ![img](https://media.gettr.com/group9/getter/2022/03/03/07/737ae7a7-7b54-6433-2a4e-e1f477be88ca/out.jpg)
-
----
-
-`@miles 3/3/2022 3:25 AM (UTC)`
-
-3/2/2022 Miles Guo: Putin and Xi Jinping are living in their dreams. Deception is the only way for those around them to make profits. The result of this war is that Putin and Xi will be finished. However, the CCP has dragged the Chinese people into a war that has absolutely nothing to do with them. The probability of President Zelenskyy being killed is very high, as Xi and Putin can't stand the fact that an actor who played comedy is much more remarkable than them.<br/><br/>3/2/2022 文贵直播：普习活在梦中，互相欺骗是其身边人士获利的唯一手段；这场战争的结果是普习完蛋，而中共却把中国人绑上战车；泽连斯基总统可能被做掉，因为普习最大的痛苦是看不惯一个演员都比他俩伟大<br/>
-![img](https://media.gettr.com/group9/getter/2022/03/03/03/03bf6525-9f68-62e1-aba5-25354f320f44/out.jpg)
-
----
-
-`@miles 3/3/2022 2:19 AM (UTC)`
-
-【UKRAINEHELP-002】<br/>由于乌克兰局势日益恶化，NFSC和法治基金与国际救援组织共同合作，近日紧急安排第一批次营救专机，协助华人同胞、美国及其他各国友人免费撤离，目的地为美国（需要美国签证）和其他安全中转国。我们将在波兰的Medyka设立临时接待点，并在安全地区提供30天以内的免费食宿。 请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。<br/><br/>24小时紧急救援客服联系方式如下：<br/><br/>邮箱：ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO<br/><br/>电话(短信或电话）：<br/>+1 720-657-6776 或 <br/>+1 719-224-4232<br/><br/>NFSC ｜法治基金<br/>3/1/2022<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group18/getter/2022/03/03/02/f53de80f-039c-dd84-640b-8af36de62377/6ed5c853504045df22c2ef313651f0bf.jpg)
 
 ---
 
