@@ -2,29 +2,29 @@
 ---
 
 
-## 俄中挑起的战争将改变世界格局
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2106473/)
+## 国际刑事法院将调查乌克兰境内的战争罪行
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2106508/)
 
-作者：日本方舟农场-Andy5/纽约香草山农场 – 宁文静
+作者：纽约香草山教育部 Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在3月2日的大直播中指出，俄罗斯当下对乌克兰的侵略和接下来中共攻打台湾将改变整个世界的格局。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-22.jpg)
-郭先生分析道，乌克兰危机唤醒了强大的战争机器德国，而中共对台湾的疯狂则会唤醒强大的日本。情报显示，德国和日本都将扩大军事预算，甚至可能会加入到军备竞赛中，这给人类的安全埋下了隐患。
+3月2日，据相关媒体报道，鉴于俄罗斯在入侵乌克兰期间的暴行，全球目前已经有39个国家提起诉讼，要求国际刑事法院展开对发生在乌克兰境内战争罪行的调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-04-上午10.02.21.png)
+根据国际刑事法院的规则，成员国提出的正式诉讼意味着检察官不必得到国际刑事法院法官的批准，就可立即着手调查，这样也可以大大加快调查的进程。
 
-郭先生也补充道，接下来，浴火重生的台湾将取代与中共勾兑的新加坡，成为亚洲的金融中心。同时，本次对俄罗斯实行强硬政策的英国则将在欧洲取代瑞士，重新回归其经济帝国的地位。另一方面，紧跟美国的加拿大和澳大利亚同样会成为强大的政治、经济实体。
+报道也提到，如今39个国家同时提交的调查请求是国际刑事法院历史上规模最大的一次。为此，国际刑事法院检察官卡里姆阿汗表示，针对自2013年起发生在乌克兰境内的战争罪行，他将即可展开调查。目前，与此相关的证据收集工作已经开始。
 
-至于经济方面，郭先生表示，把俄罗斯踢出SWIFT系统以及对俄罗斯政府和寡头的金融制裁将促使数字货币在摆脱政府控制和方便、快捷、无痕等方面展现出优势。
+据悉，卡里姆阿汗上周就曾警告过当前战争中的交战各方，由于乌克兰政府在 2015 年接受了国际刑事法院的授权，因此国际刑事法院办公室对乌克兰拥有管辖权。
 
-但郭先生也明确道，这次战争只会让两个群体消失，即战斗民族的俄罗斯和中国共产党。
+参考链接：
+1）[ICC to begin investigation into possible war crimes in Ukraine](https://www.aljazeera.com/amp/news/2022/3/2/icc-to-begin-investigation-into-possible-war-crimes-in-ukraine)
+2）[39国指俄侵乌涉暴行 国际刑事法庭展开调查](https://www.epochtimes.com/gb/22/3/3/n13617865.htm)
 
-参考链接：[2022年3月2日文贵大直播：乌克兰救援人道关怀；俄乌战争中国人遭恨；核战……](https://gettr.com/streaming/pxru0n55ba)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
-
-总编: Irene木木
-编辑: 谐趣园
-审核: 飞虹
-校正/发稿：Fei797
+总编：Irene木木
+编辑：飞虹
+审核：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

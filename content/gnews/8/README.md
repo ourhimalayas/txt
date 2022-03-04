@@ -2,27 +2,29 @@
 ---
 
 
-## 俄罗斯对乌克兰总统的暗杀行动失败
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2106507/)
+## 概述美国对中共的帮助——巴黎和会与抗日时期
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2106547/)
 
-作者：纽约香草山农场-6zero4
+作者：纽约香草山农场-静言
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月1日，据相关媒体报道，乌克兰高级官员丹尼洛夫在当天的新闻发布会上宣布，一起针对总统泽连斯基的暗杀行动被乌克兰成功击败。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-04-上午10.02.14.png)
-资料显示，这起暗杀任务由车臣准军事组织头目卡德罗夫领导的雇佣军所实施，但该组织的两个任务小队目前均被乌克兰军队识破并击溃。
+纵观近现代历史，每当中国遭遇难关之时，美国都在背后给予了极大的帮助。
 
-据乌克兰情报显示，该暗杀任务的策划者听命于俄罗斯克里姆林宫，但一位反对俄乌战争的俄罗斯联邦安全局成员将该绝密消息透露给乌克兰方。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9.jpeg)
 
-目前，俄罗斯私人军队向乌克兰派遣了大约三千名雇佣军，其中超过四百人分布于首都基辅及周边地区，而乌克兰总统泽连斯基正是这些刺客的“头号目标”。
+1919年第一次世界大战后，巴黎和会期间，除却当时中国政府的官方代表团外，梁启超率领民间团队远赴巴黎，并亲自拜访美国总统威尔逊，请求他在和会上为中国主持公道。三年后，经由美国的多方斡旋，中国终于在华盛顿会议上从日本政府手中收回了对青岛及山东的全部权利。
 
-参考链接：[Ukrainian Official: Attempt to Assassinate Zelenskyy Prevented](https://www.newsmax.com/politics/russia-ukraine-zelenskyy-kyiv/2022/03/01/id/1059178/)
+到了抗日战争时期，罗斯福总统于1941年正式签署行政命令，授权陈纳德招募组建美国志愿航空队，协助中国对抗日本军队。随后的三年间，美国志愿航空队共击落和炸毁日军飞机两千六百余架，舰艇40余艘，击毙日军超过六万六千人。期间，美国志愿航空队和援华飞行队开辟“驼峰战略空运航线”，飞行总时间近150万个小时。而在后来与日本的停战谈判中，美国更是把日本从中国无条件撤军当作谈判的必要条件。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
+在中共于1995年落成的抗日航空烈士纪念碑上，三千多名牺牲的空军中有超过两千一百名是美国飞行员。可以说，美国才是中国人民真正的朋友。
+
+参考链接：[历史上美国曾七次帮助中国度过难关](http://www.usaphoenixnews.com/news_show.php?id=344974)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
 总编：Irene木木
-编辑：Ivy001
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+编辑：Jack Li文阳，Irene木木
+审核：Jack Li文阳
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

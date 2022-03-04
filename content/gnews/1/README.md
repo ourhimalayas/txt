@@ -2,33 +2,49 @@
 ---
 
 
-## 乌克兰的紧急救援仍在继续
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2106566/)
+## 俄外长警告：第三次世界大战“将是核战”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2106712/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月2日，郭文贵先生在大直播中与战友们分享新中国联邦在乌克兰的一次紧急救援行动。
+**翻译：Lulumi**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip俄外长警告：第三次世界大战将是核战.png)2018年10月17日，俄罗斯索契，俄罗斯外交部长谢尔盖·拉夫罗夫（右）在俄罗斯总统弗拉基米尔·普京出席一个签字仪式时签署文件。(盖蒂图片)
 
-郭先生透露，一个重要战友的家人之前被困在乌克兰，秘密搜救团队在确认了战友家人的位置后发现，救援地点随时可能会面临俄军的轰炸。随后，郭先生断然决定，让直升机将求助者救出，但由于人员超载，一名搜救人员被迫暂时停留救援地。战友家人被救出后，直升机返回原处带回了那位搜救人员。救援结束后两个小时，该地被俄军的炮火夷为平地。
+俄罗斯外交部长谢尔盖·拉夫罗夫周三警告说，在俄罗斯入侵乌克兰的情况下，第三次世界大战将是“核战和破坏性的”。
 
-鉴于目前乌克兰局势日益恶化，新中国联邦救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+据《公报》、其他俄罗斯媒体和路透社报道，拉夫罗夫在接受半岛电视台阿拉伯语频道采访时说：“第三次世界大战将是核战争和破坏性的……拜登总统是一个有经验的人，他以前曾说过，替代战争的唯一办法是制裁，”但他没有详细说明。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+拉夫罗夫还称，如果乌克兰获得核武器，俄罗斯将面临“真正的危险”。没有证据表明乌克兰试图从西方获得核武器，而且乌克兰在20世纪90年代初苏联解体后放弃了核武器。
 
-总编：Irene木木
-编辑：Irene木木
-审核：Irene木木
-校正/发稿：谐趣园
+本周早些时候，当俄罗斯总统弗拉基米尔·普京下令其国家的战略威慑部队（负责操作俄罗斯的一些核武库）处于高度戒备状态时，核战争的幽灵被唤起。一些分析人士表示，该命令旨在恐吓美国和北约，以便他们不卷入乌克兰冲突。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+俄罗斯和美国一样，拥有数以千计的核武器，但两国多年来都强调，核战争将导致双方的毁灭，或被称为相互保证的毁灭的军事理论。
+
+本周早些时候，拜登被问及美国人是否应该对核战争感到担忧，拜登回答：“不。”
+
+“我们正在评估普京总统的指令。而目前，我们认为没有理由改变我们自己的警戒级别，”白宫新闻秘书珍·普萨基周一告诉记者，在普京的评论和命令之后，美国将不会试图使言论升级。“我们认为像这种关于核武器的挑衅性言论是危险的，增加了误判的风险，应该避免，我们不会沉迷于此，”她补充说。
+
+据路透社报道，当地时间周四下午，俄罗斯声称其军队占领了乌克兰南部城市赫尔松。然而，乌克兰总统沃洛基米尔·泽伦斯基办公室的顾问奥列克西·阿雷斯托维奇说，在持续的战斗中，“城市没有沦陷，我方继续防守”，强调了冲突双方对军事胜利的对立主张。
+
+乌克兰国家紧急事务局周三告诉美联社，到目前为止至少有2000名平民被杀，尽管这一数字无法独立核实。
+
+而乌克兰第二大城市哈尔科夫，拥有约150万人口，周三再次遭到猛烈炮火袭击。与此同时，来自Maxar的卫星照片显示，一个由俄罗斯坦克和其他车辆组成的巨大车队横跨基辅城外数英里。
+
+联合国的核监督机构——国际原子能机构说，俄罗斯告诉该机构，其军队已经控制了乌克兰最大的核电站周围，但那里的作业仍在正常进行。
+
+美联社对该报道有贡献。
+
+**新闻来源**：[theepochtimes.com][Russian Foreign Minister Warns: World War III ‘Will Be Nuclear’](https://www.theepochtimes.com/russian-foreign-minister-warns-world-war-iii-will-be-nuclear_4311818.html?utm_source=newsnoe&amp;utm_campaign=breaking-2022-03-02-3&amp;utm_medium=email&amp;est=PG0xFWj0nqM6fA%2BLQhd6U0iHBqonIhmxJeqYMfbpFwNDWESheEGSqtRYS3MZ0agfE8IIM7c%3D)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

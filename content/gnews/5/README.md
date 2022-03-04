@@ -2,22 +2,39 @@
 ---
 
 
-## 秘翻在线：宜家首次关闭中共国门店 打脸“繁荣”的中共国经济
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2106539/)
+## 有声|欧盟审视加密资产是否被用来破坏对俄罗斯的制裁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2106582/)
 
-**撰稿：葛大饼**
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据[OAN网站](https://www.oann.com/eu-checking-if-cryptoassets-being-used-to-bust-russian-sanctions-eu-official/)援引路透社3月2日的报道，欧盟高级官员周三表示，欧盟委员会正在研究加密资产是否被俄罗斯用来绕过其入侵乌克兰后对该国银行实施的金融制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-02T142310Z_3_LYNXMPEI210KF_RTROPTP_0_BINANCE-CRYPTO-CURRENCY-RUSSIA_1.jpg)在2021年6月28日拍摄的这幅插图中，币安的标志前显示了加密货币比特币、以太坊、狗币、瑞波币和莱特币。(REUTERS/Dado Ruvic/Illustration/)
+周一,俄罗斯卢布和Tether加密货币之间的交易量激增，因为当地货币在西方制裁下跌至历史最低点。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/222.jpg)
-根据2022年3月3日新浪报道，全球知名家具家居零售商宜家家居在进入中共国市场24年后首次闭店，该公司发布公告称将自2022年4月1日关闭贵阳门店。
+欧盟官员表示，欧盟意识到加密资产是避免欧盟和其他西方大国实施制裁的一种 “可能的规避途径”。
 
-宜家家居相关人士对记者表示，此次关闭门店是对渠道布局做出的调整决定，也是基于对诸多因素的综合评估和考量。
+在俄罗斯对乌克兰的入侵进入第二周的同时，国际社会已经对俄罗斯的侵略行径展开了全方位的制裁。
 
-品牌管理专家伍岱麒分析，宜家关店很可能是达不到企业对门店的业绩及利润要求。虽然近十年宜家家居宜家家居在中共国大陆市场的扩张步伐颇为“稳健”，但是由于中共新冠病毒爆发导致供应链承压、原料价格升高，从而导致2021年家居企业的一波“涨价潮”，商务部披露的最新数据显示，中共国去年四季度以来，消费下行的压力增大，很明显宜家的扩张步伐也遇到了相同的问题。
 
-越来越多的外资撤离或看衰中共国，全球对中共国的政治和经济环境都持观望态度，中共国老百姓兜里的钱也被抢劫得所剩无几，没有更多能力去消费，宜家这样主打小资生活品味的外企自然只能关店停止继续扩张，尽快止损，毕竟金钱只会往安全的地方去。
 
-**[新闻来源](https://finance.sina.cn/2022-03-03/detail-imcwiwss3977483.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)**
+文字版原文：[欧盟审视加密资产是否被用来破坏对俄罗斯的制裁](https://gnews.org/zh-hans/2102174/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
