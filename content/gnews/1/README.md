@@ -2,37 +2,41 @@
 ---
 
 
-## Grundlagen und Bedeutung der humanitären Freiwilligenarbeit
-` nuernbergforeign` [轉載自GNews](https://gnews.org/zh-hans/2107481/)
+## 瑞典首相安德松的首次全国电视讲话
+` XINYUAN` [轉載自GNews](https://gnews.org/zh-hans/2107558/)
 
-**“Wenn wir es nicht tun, wer dann?”**
-Über 167 Millionen Menschen sind derzeit auf humanitäre Hilfe angewiesen. Die Hälfte des weltweiten Budgets für humanitäre Hilfe ist nicht finanziert.  Freiwillige Helfer sind nach wie vor eine wichtige Ressource für die Krisenbewältigung. Sie retten in den von Katastrophen betroffenen Gebieten Leben und haben während der COVID-19-Pandemie lokale Systeme zur Bereitstellung von Nahrungsmitteln und Dienstleistungen für die am stärksten gefährdeten Menschen aufgebaut. Die meisten von ihnen sind lokale Freiwillige, die in ihren eigenen Gemeinden arbeiten.
-**Planung und Bereitschaft**
-Selbstorganisierte Freiwilligengruppen und Einzelpersonen, die oft als “spontane Freiwillige” bezeichnet werden, spielen eine entscheidende Rolle bei der unmittelbaren Reaktion auf Katastrophen und bei der Rettung von Menschenleben.
-Ungefähr 80 Prozent der Überlebenden des Tangshan-Erdbebens in China wurden beispielsweise von spontanen Freiwilligen gerettet, die sich schnell selbst mobilisieren konnten.
-Lokale Akteure werden oft als besonders wichtig angesehen, wenn der Zugang für internationale Hilfsorganisationen eingeschränkt ist, aber selbst in diesen Fällen sind lokale Freiwillige nur selten direkt in die humanitäre Planung und die Vorbereitungsmaßnahmen eingebunden.
-Koordinierung zwischen Freiwilligen und anderen Akteuren.
+撰稿:澳喜农场––XINYUAN
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2173-1.jpg)
+自从2016年北约华沙的会议后,瑞典在欧洲地缘军事格局的地位显著上升，也被北约视为亲密的盟友和极为重要的合作伙伴。由于瑞典政局稳定**,**经济发达、军事实力也相对强大，美国也一直视其为理想的盟友，但瑞典却一直忽视美国的邀请。拒绝加入北约。
 
-Die Einführung klarer Koordinierungsmaßnahmen zwischen Freiwilligen und anderen Akteuren ist für eine flexible, effiziente und kreative Reaktion von entscheidender Bedeutung. 
-Es hat sich gezeigt, dass integrativere Modelle des Katastrophenmanagements erforderlich sind, um auf den vorhandenen Kapazitäten und der Widerstandsfähigkeit der Gemeinschaften aufzubauen.  
-Notfallmanager müssen nicht nur Zeit einplanen, um Protokolle für den Einsatz spontaner Freiwilliger in angemessenen Rollen zu bewerten, sondern auch um Managementtechniken zu entwickeln, die sie in diesen Rollen leiten, indem sie die Schlüsselprinzipien für effektive Freiwilligenarbeit befolgen.
+这次的乌克兰危机为瑞典敲响了最后的警钟，瑞典毅然决然的放下了中立的态度，走上了自卫之旅。
 
-**Perspektiven der Freiwilligen**
-Nähe, Vertrauen und Einbettung in die Gemeinschaften sind wesentliche Elemente für die Wirksamkeit der humanitären Hilfe. 
-Die Erkenntnisse über die Erfahrungen von Freiwilligen in der humanitären Hilfe sind jedoch nach wie vor begrenzt. Jüngste Untersuchungen der Volunteering in Conflicts and Emergencies Initiative (ViCE) haben ergeben, dass die Freiwilligen vor Ort, die im Mittelpunkt der humanitären Hilfe stehen, häufig Risiken für ihre Sicherheit und ihr Wohlergehen ausgesetzt sind.
-Da viele “Freiwillige” auch selbst “Opfer” sind, sind sie mit der Unsicherheit konfrontiert, als Mitglieder dieser Gemeinschaften mit lokalen Spannungen umzugehen und gleichzeitig die humanitären Grundsätze zu befolgen: “Dann komme ich zur Besinnung und sage: Was geschieht mit mir? Ich bin auch verletzlich. Ich kann auch ein Opfer sein. Die Tatsache, dass ich ein Emblem trage, ist keine kugelsichere Weste” (Freiwillige in einem Konfliktgebiet).
+下面转载一篇瑞典首相安德松发表的首次全国电视讲话，内容如下:
 
+欧洲正在发生战争。此刻，乌克兰的基辅、哈尔科夫、马里乌波尔等城市正受到俄军的攻击。我们之所以愤怒是因为我们都受到对乌克兰人民的袭击的影响。我们也对所有团结起来奋力捍卫民主和自由的乌克兰人表示钦佩。俄罗斯对乌克兰发动的武装攻击是无端的、非法的、站不住脚的。克里姆林宫声称乌克兰属于俄罗斯特殊的利益范围。但是在今天的欧洲，已经没有**“**势力范围**”**的存在。如果俄罗斯成功地将乌克兰置于其统治之下，它将向其他国家提出类似的要求。
 
+俄罗斯的武装攻击不仅仅是对乌克兰的攻击，而是对每个国家决定自己未来权利的攻击。它对国际和平与安全构成威胁。这就是瑞典、欧盟和许多其他国家联合起来支持乌克兰的原因。
 
-**Geschlecht und Eingliederung**
-Verschiedene Gruppen sind in Krisensituationen besonders gefährdet und müssen entsprechend mobilisiert und unterstützt werden. 
-In Bangladesch hat sich gezeigt, dass die Einbeziehung von Frauen und Randgruppen in die Vorsorge nicht nur die geschlechtsspezifischen Unterschiede bei der Sterblichkeit verringert, sondern auch integrativere Praktiken zur Mobilisierung der Gemeinschaft fördert.
+瑞典政府的措施包括三个方面：制裁俄罗斯、支持乌克兰、加强瑞典的防御。我们在欧盟内部与我们的合作伙伴一起，迅速果断地对俄罗斯和俄罗斯领导人进行了制裁。这项工作仍在继续。欧洲在言行上都支持乌克兰。在经济和人道主义支持下，为乌克兰人提供庇护，使战争转瞬即逝。也支持乌克兰捍卫自己作为一个国家的合法权利。
 
-**Stärkung der Widerstandsfähigkeit gegenüber Schocks**
-Freiwillige Helfer auf Gemeindeebene sind nicht nur “Ersthelfer” in einer Notsituation, sondern bleiben auch noch lange nach Abzug der externen Hilfe und tragen dazu bei, die Widerstandsfähigkeit gegenüber Schocks auf lokaler Ebene zu stärken. Als solche fungieren sie als Bindeglied zwischen humanitärer Hilfe und nachhaltiger Entwicklung.
+周一，瑞典议会以多数票决定向乌克兰武装部队提供支持，其中包括防御性武器。自 1939 年苏联袭击芬兰以来，瑞典从未做过类似的事情。许多瑞典人认为这只是向那些受到攻击的人伸出援助之手。但我知道也有人问这是否会对瑞典产生影响。我们会因此成为俄罗斯报复的目标吗？我仔细权衡了争论的双方。作为首相，我每次做出决定之前的第一个也是最后一个问题是**“**什么对瑞典的安全最有利？**”**。我的结论是，帮助乌克兰自卫最有利于瑞典的安全。他们保卫自己的边界就等于保卫每个国家的边界，以及保护国际法。瑞典周边地区的安全局势几年来一直在恶化，现在形势更加严峻。我们在瑞典没有面临武装袭击的直接威胁，但威胁评估已经恶化。
 
-Die Forschung hat sich zunehmend auf das Verständnis lokaler Fähigkeiten und die Frage verlagert, wie diese wirksam zusammenwirken können, um nachhaltige Maßnahmen im Rahmen der Verknüpfung von humanitärer Hilfe, Entwicklung und Frieden zu fördern. Dies beruht auf dem Konzept des “resilienten Humanitarismus”, bei dem die Krisenreaktion “die Fähigkeit der Menschen berücksichtigt, zu reagieren, sich anzupassen und wieder auf die Beine zu kommen”.
-![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-29.png)
+瑞典人民是俄罗斯宣传和虚假宣传活动的目标。其目的是恐吓我们，让我们沉默，并在欧盟内部、瑞典内部以及个人之间播下分裂的种子。瑞典的利益也成为网络间谍和网络攻击的目标。政府正在与所有受影响的人合作，以帮助维持和加强我们抵抗此类攻击的能力。我们还大力加强了瑞典的全面防御概念。很明显，现在必须加快步伐。这就是为什么我要宣布政府将采取主动行动，将更多资源用于全面防御。
+
+瑞典的防御能力必须加强，重建必须提前。瑞典应该有一个强大的防御体系，对瑞典人民的全面防御。我们还必须为俄罗斯战争给我们日常生活带来的后果做好准备。燃料和电力的价格已经在上涨。其他商品也可能变得更贵。散户投资者可能会看到他们的养老基金面临压力，瑞典的就业和企业可能会受到打击。
+
+政府和瑞典当局正在密切关注事态发展。我的政府在这种情况下采取了明确的立场：制裁俄罗斯，支持乌克兰，加强瑞典全面防御。但我们每个人都必须尽自己的一份力量。首先：让自己了解情况。从可靠来源寻找信息，学会自主判断。每个散布虚假信息的人都有可能破坏我们的国家安全。
+
+最重要的是：互相支持。特别要注意儿童和青少年。他们经常接触到我们成年人可能喜欢的更多信息。所以他们需要能够倾听并解释的成年人。正如许多瑞典人已经在做的那样，你也可以支持乌克兰人民，捐款或参加和平示威。我们每个人都可以做任何事情，每一件小事都会产生影响。
+
+最后，近年来，我们已经经历了一场艰难的危机：新冠疫情大流行。这是一段痛苦而充满挑战的时期。但它带来了重要的教训。其中之一是，当对我们提出苛刻的要求时，我们可以团结起来，作为一个国家和人类命运共同体。现在时代给我们带来了一项新的任务，再次要求我们瑞典人团结起来，为了整个欧洲的安全，声援乌克兰人民，捍卫民主与和平。
+
+瑞典及全体瑞典人民将完成这项光荣使命。
+
+演讲虽已结束，但战火还在蔓延。无论如何，这场演讲让我们看到了希望，也看到了世界政局的改变。如果像瑞典这样的中立国都敢于站出来发声，并愿意为了自由民主而战，俄罗斯还会有未来吗? 让我们拭目以待吧！
+
+（本文仅代表个人观点）
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

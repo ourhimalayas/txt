@@ -15,89 +15,89 @@
 
 ---
 
-### [Grundlagen und Bedeutung der humanitären Freiwilligenarbeit](/content/gnews/1/README.md)
- ` nuernbergforeign`
+### [瑞典首相安德松的首次全国电视讲话](/content/gnews/1/README.md)
+ ` XINYUAN`
 
-### [温哥华顶层公寓成为加拿大最昂贵的公寓房源](/content/gnews/2/README.md)
+### [DC大中华时事：台电“每逢大事就出事应查内鬼”](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [HPAY交易跃上世界舞台](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [娘，您在哪里](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [温哥华顶层公寓成为加拿大最昂贵的公寓房源](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [3/4/2022 文贵盖特：感谢战友们在文贵母亲冥诞三周年发信息过来！战友们在前线救人是给我母亲很好的回报](/content/gnews/3/README.md)
+### [3/4/2022 文贵盖特：感谢战友们在文贵母亲冥诞三周年发信息过来！战友们在前线救人是给我母亲很好的回报](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [牙医助理寻求食物银行的帮助](/content/gnews/4/README.md)
+### [多伦多警察枪杀安大略枪匠，经SIU调查后被免除责任](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [多伦多警察枪杀安大略枪匠，经SIU调查后被免除责任](/content/gnews/5/README.md)
- ` MG FARM`
-
-### [古典音乐界纷纷取消与俄罗斯指挥家捷杰耶夫的合作](/content/gnews/6/README.md)
- ` G-NEWS TAIWAN`
-
-### [北约，“乌克兰未来几天形势将更加恶化，死亡人数会更多”](/content/gnews/7/README.md)
+### [北约，“乌克兰未来几天形势将更加恶化，死亡人数会更多”](/content/gnews/8/README.md)
  ` xiaobaige`
 
-### [特鲁多宣布与密西沙加交通联合投资 6.75 亿美元，并承诺三个新项目](/content/gnews/8/README.md)
+### [特鲁多宣布与密西沙加交通联合投资 6.75 亿美元，并承诺三个新项目](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [Hcoin To the Moon上线92天第33次位列新加坡iTunes摇滚音乐榜首](/content/gnews/9/README.md)
+### [莱恩科尔医生：“疫苗”对人体器官灾难性的损害](/content/gnews/10/README.md)
+ ` mayflowertranslate`
+
+### [Hcoin To the Moon上线92天第33次位列新加坡iTunes摇滚音乐榜首](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [习近平要求普京在冬奥会后入侵乌克兰](/content/gnews/10/README.md)
+### [习近平要求普京在冬奥会后入侵乌克兰](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [如果有大型的排华运动怎么办](/content/gnews/11/README.md)
- ` MG FARM`
-
-### [俄罗斯可能制造“栽赃行动”轰炸自己人](/content/gnews/12/README.md)
+### [俄罗斯可能制造“栽赃行动”轰炸自己人](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [四方安全对话：乌克兰事件不该在印太地区发生](/content/gnews/13/README.md)
+### [四方安全对话：乌克兰事件不该在印太地区发生](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【秘翻时评】欧洲最大核电厂 已遭俄罗斯军方控制](/content/gnews/14/README.md)
+### [【秘翻时评】欧洲最大核电厂 已遭俄罗斯军方控制](/content/gnews/15/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [谁是普京对乌克兰发动战争的真正幕后推手？](/content/gnews/15/README.md)
+### [谁是普京对乌克兰发动战争的真正幕后推手？](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [通过喜交所购买标志性的迈凯轮汽车引发对加密数字货币的信任](/content/gnews/16/README.md)
+### [通过喜交所购买标志性的迈凯轮汽车引发对加密数字货币的信任](/content/gnews/17/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [新西兰财经G乐部2022年3月4日:财经新闻整理](/content/gnews/17/README.md)
+### [新西兰财经G乐部2022年3月4日:财经新闻整理](/content/gnews/18/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [侵略乌克兰的俄罗斯军队故意打击民用基础设施](/content/gnews/18/README.md)
+### [侵略乌克兰的俄罗斯军队故意打击民用基础设施](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|普京为入侵乌克兰炮制的虚假理由及真相](/content/gnews/19/README.md)
+### [有声|普京为入侵乌克兰炮制的虚假理由及真相](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [【G时新闻】四方领导人承诺 绝不允印太区上演乌克兰情况](/content/gnews/20/README.md)
+### [【G时新闻】四方领导人承诺 绝不允印太区上演乌克兰情况](/content/gnews/21/README.md)
  ` G-时新闻`
 
-### [有声|美国和国际能源署释放6000万桶石油库存](/content/gnews/21/README.md)
+### [有声|美国和国际能源署释放6000万桶石油库存](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [我们是新中国联邦战友，我们来了！](/content/gnews/22/README.md)
+### [我们是新中国联邦战友，我们来了！](/content/gnews/23/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [有声|日本首相宣布接受乌克兰难民](/content/gnews/23/README.md)
+### [有声|日本首相宣布接受乌克兰难民](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [美国及世界疫情简报（03-04-2022）](/content/gnews/24/README.md)
+### [美国及世界疫情简报（03-04-2022）](/content/gnews/25/README.md)
  ` 波士顿五月花农场`
 
-### [3/4/2022国际财经快讯：受制裁影响俄罗斯公司急于开设中国银行账户；乌克兰央行行长表示银行系统仍然具有弹性](/content/gnews/25/README.md)
+### [3/4/2022国际财经快讯：受制裁影响俄罗斯公司急于开设中国银行账户；乌克兰央行行长表示银行系统仍然具有弹性](/content/gnews/26/README.md)
  ` 秘密翻译组金融团队`
 
-### [2022/03/02 墙内世界](/content/gnews/26/README.md)
+### [2022/03/02 墙内世界](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [如果你需要从乌克兰战区撤离，请访问ukrainehelp.info](/content/gnews/27/README.md)
+### [如果你需要从乌克兰战区撤离，请访问ukrainehelp.info](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [从明天开始餐厅、咖啡厅可以营业到晚上11点…聚会维持6人](/content/gnews/28/README.md)
- ` 首尔天池农场`
 
 ### [波兰救援基地建立 新中国联邦战友家庭成功获救](/content/gnews/29/README.md)
  ` 秘密翻译组-原创组`

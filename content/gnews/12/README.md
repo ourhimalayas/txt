@@ -2,24 +2,23 @@
 ---
 
 
-## 俄罗斯可能制造“栽赃行动”轰炸自己人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2107222/)
+## 习近平要求普京在冬奥会后入侵乌克兰
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2107236/)
 
-#### 撰稿：彩虹       
+采编/编辑撰稿： 薇文        校对编辑：硫酸羟氯喹64
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-388.png)图片来源：以色列时报
-据《新闻极限》3月2日报道，周三，乌克兰安全部和外交部长声称，俄罗斯可能向自己的村庄发射导弹，为其进一步入侵乌克兰制造借口。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/merlin_201320031_d80fc135-9d89-48ed-a99e-6b80cf60225d-jumbo-edited.jpg)图片来源：nytimes
 
-外交部长德米特罗·库莱巴（Dmytro Kuleba）在推特上说，“令人担忧的报道：俄罗斯人可能将俄罗斯边境村庄波波夫卡（Popovka）的多个火箭发射系统指向了自己的领土。鉴于俄罗斯行动的野蛮性质，我们担心可能会准备一个栽赃行动（false flag operation）嫁祸乌克兰。”
 
-乌克兰安全部在电报群（Telegram）上也发表了类似声明，“他们（俄军）在俄乌边境的克拉斯诺皮尔（Krasnopil）村放置了多个名为‘冰雹（grad）’的强力导弹发射器，朝向俄罗斯，将瞄准一个名为波波夫卡（Popovka）的俄罗斯村庄。”
+据《纽约时报》3月2日报道，习近平在2月初要求普京不要在北京冬奥会结束前入侵乌克兰。尽管中、俄两国情报交流高度保密，但该绝密信息仍被某情报机构获得并确认。
 
-另据报道，法国总统马克龙（Emanuel Macron）在与普京通完电话后说：“最糟糕的事情还没有发生。”
+报道称，普、习曾在冬奥会开幕式前会面，宣布了双方的伙伴关系并谴责北约东扩。同时，为做好入侵准备，俄军借道中共国边境，转移到乌克兰和白俄罗斯边境部署。并在奥运会结束次日进入乌克兰东部地区，最终于24日开始全面入侵。
 
-**新闻来源**
+尽管中共当局对此予以了否认，但欧美官员表示，普京和习近平共同决定在奥运会结束后才入侵乌克兰的计划预谋已久。同时，也完全验证了新中国联邦早在今年初就警告全世界，普习将在冬奥会后共同发起对乌克兰和台湾的侵略战争！
 
-[Ukraine Officials: Russia May Bomb Own Villages to Justify Invasion](https://www.newsmax.com/newsfront/russia-ukraine-vladimir-putin-false-flag-attack/2022/03/03/id/1059554/)
+发稿：文明(添草灭共)
+
+新闻来源：[China Asked Russia to Delay Ukraine War Until After Olympics, U.S. Officials Say](https://www.nytimes.com/2022/03/02/us/politics/russia-ukraine-china.html)
 
  
 
