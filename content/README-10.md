@@ -16,6 +16,10 @@
 ---
 ## 頁面 10/40 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [40](/content/README-40.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
 
+[全文字版2021年4月18日郭文贵先生G-TV直播](/content/2021/04/20210418-1118207.md)
+
+[全文字版2021年4月15日郭文贵先生G-TV直播](/content/2021/04/20210415-1110916.md)
+
 [全文字版2021年4月11日郭文贵先生G-TV直播](/content/2021/04/20210411-1099446.md)
 
 [全文字版2021年4月9日郭文贵先生G-TV直播](/content/2021/04/20210409-1099373.md)
@@ -61,10 +65,6 @@
 [文字版：2020年11月26日文贵先生直播视频](/content/2020/12/20201209-7200582879299785978.md)
 
 [文字版：2020年11月22日文贵先生第二次直播视频](/content/2020/12/20201209-6591987473740035252.md)
-
-[文字版：2020年11月22日文贵先生第一次直播](/content/2020/12/20201209-4936946080142689553.md)
-
-[文字版：2020年11月21日文贵先生直播视频](/content/2020/12/20201209-6376875867883726682.md)
 
 
 ## 頁面 10/40 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [40](/content/README-40.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
