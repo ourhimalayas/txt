@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/4/2022 11:54 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-纽约救援团出发和土耳其现场救援团
+![img](https://media.gettr.com/group37/origin/2022/03/04/23/3c68d55c-5811-0749-173a-b12b7d6e4dd1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/4/2022 11:54 PM (UTC)`
+
+3/4/2022 Miles Guo’s GETTR: Thank God for offering me a long night of dreams in which I had a reunion with my family! “Nightmare in Chains” is a song I recorded as a gift for my mother. Let’s get rid of our indifference, selfishness, and cowardice to protect our fellow Chinese. CCP, I will keep fighting against you until this revenge is taken!<br/><br/>3/4/2022 文贵盖特：感谢上天赐予文贵跟家人团聚的长长的梦夜！文贵的《锁链梦》是给母亲的礼物；让我们抛弃冷漠、自私和懦弱去保护我们的同胞；共产党，文贵一定会把这个仇报到底的！<br/>
+![img](https://media.gettr.com/group40/getter/2022/03/04/23/414f2cc6-0805-dd63-c7df-93820bb880dc/out.jpg)
+
+---
+
 `@miles 3/4/2022 11:23 PM (UTC)`
 
 3/4/2022 Miles Guo’s GETTR: The CCP has brainwashed the Chinese people to support Russia's unjust war! Twenty hours after the CCP claimed that all Chinese in Ukraine had been evacuated, four Chinese students died from the Russian shelling, and 20 more people were also killed. Thank God for offering me a wonderful night to meet my mother and family in my dream!<br/><br/>3/4/2022 文贵盖特：中共洗脑中国人支持俄罗斯的非正义战争！中共宣布撤出了在乌克兰的所有华人20小时后，有4个中国学生死于俄军炮火，又有20人死亡！感谢上天赐予的美好一晚让文贵在梦中跟母亲和家人相见！<br/>
@@ -144,20 +158,6 @@ Prince and Rachel from NFSC on War Room: New Federal State of China is evacuatin
 
 3/02/2022 Miles Guo: Nuclear war is extremely unlikely to happen, so no need to worry about it! Putin has invaded Ukraine, threatened Ukraine with nuclear weapons, and bombed civilians, and all these three dirty moves will only cause him to lose support, leading to his own demise.<br/><br/>3/02/2022 文贵直播: 发生核战的可能性极低，无需担心核战争！普京用打乌克兰，核武器威胁对手和轰炸平民这三个滥招儿只会让他失道寡助，自取灭亡！<br/>
 ![img](https://media.gettr.com/group15/getter/2022/03/03/22/ad344a1b-6daf-0285-6824-49459971ef50/out.jpg)
-
----
-
-`@miles 3/3/2022 10:20 PM (UTC)`
-
-3/2/2022 Miles Guo: The situation of the Russia-Ukraine war has made “Xi the Sun” hesitate to invade Taiwan and has saved Taiwan to some extent. So, we should work even harder to help save the Ukrainians. The Taiwanese who have faith are blessed by God, and if the situation turns bad, they can take refuge in the rescue base that we will establish in Palau.<br/><br/>3/2/2022 文贵直播: 俄乌战争形势让习太阳在攻台问题上发怵，某种程度上拯救了台湾，所以我们更要努力救援乌克兰人；有信仰的台湾人受上天保佑，一旦有风吹草动，他们可以去我们在帕劳建好的基地避难<br/>
-![img](https://media.gettr.com/group50/getter/2022/03/03/22/245e6a95-751d-3d6a-21da-3798e3b0b74f/out.jpg)
-
----
-
-`@miles 3/3/2022 8:58 PM (UTC)`
-
-3月3号：世界上最有杀伤力的，不是核武器……是中共的谎言！我R你中国共产党八辈祖宗……【中共养了几十万大外宣不是白养的】
-![img](https://media.gettr.com/group41/getter/2022/03/03/20/584259cd-344b-9bfc-fc50-155a5b285d9f/58bb020bcdf523188bb2e3ea8221ddbe.jpg)
 
 ---
 
