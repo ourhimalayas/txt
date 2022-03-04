@@ -2,65 +2,62 @@
 ---
 
 
-## 参议员马可·卢比奥：俄罗斯侵略者正在炮击欧洲最大的核电站
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2102619/)
+## 文•贵天成——文贵先生谈“普京”（十四）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2102678/)
 
-参议员马可·卢比奥： [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) 入侵者正在炮击欧洲最大的核电站 现在有报道称，该电站的一部分现在着火了
+整理：BENJ1
+编辑：小红帽
 
-
-
-> [#Russian](https://twitter.com/hashtag/Russian?src=hash&amp;ref_src=twsrc%5Etfw) invaders are shelling the largest nuke plant in Europe
-> 
-> Reports now that portions of the plant are now on fire[https://t.co/CKHcOIT9tz](https://t.co/CKHcOIT9tz)
-> — Marco Rubio (@marcorubio) [March 4, 2022](https://twitter.com/marcorubio/status/1499539156728434693?ref_src=twsrc%5Etfw)
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/1-7.png)图片来源：雅典娜农场设计组（614）
 
 
+**郭文贵先生2022年1月14日直播**
 
-参议员泰德·克鲁兹： 印度是世界上最大的民主国家和对抗 #中共国 的关键盟友。拜登政府制裁印度将是极其短视、鲁莽和自我放纵的。
+共产党现在美欧搞不定，搞中东国家，搞非洲国家到北京去。所谓六个外长，拿千亿的钱来搞，就是为了让他们出席冬奥会。人家普京收了1000多亿后来不来？现在真的可能是有问题了。普京现在以乌克兰为由，说可能真的就不来了，连东欧国家都不来了。
 
+**郭文贵先生2022年1月20日盖特**
 
+一个奥运会花了几万亿人民币了吧？才搞几天？普京来一趟1000多亿美元。24小时1000亿美元，将近7000亿人民币，这是一个小省的一年的产值啊。中国老百姓就是这样像猪狗一样被人对待着，还觉得非常地爽。从来不问自己:为什么这么贫穷？从来不问自己:为什么自己生病旁边就没个好医生？从来不问:为什么我这一辈子，我的生活就没有真正多大改变。我的快乐越来越少，病却越来越多？
 
-> It would be incredibly shortsighted, reckless, and self-indulgent for the Biden Administration to sanction India – the largest democracy in the world and a critical ally for countering China. [pic.twitter.com/UphK4vDnR9](https://t.co/UphK4vDnR9)
-> — Senator Ted Cruz (@SenTedCruz) [March 3, 2022](https://twitter.com/SenTedCruz/status/1499525813695397893?ref_src=twsrc%5Etfw)
+**郭文贵先生2022年1月24日直播**
 
+我觉得普京真的是在跟习唱一场相互的，演一场“二人转”的戏。在这个戏里，他绝对不是想真打的，但是很有可能演着演着就成真了。
 
+普京会直接从乌克兰边境上虚晃一枪，直接插入基辅的后面儿去，直取基辅。它一定会玩儿这招的。因为西方人没有，任何人都不相信，说不可能攻击基辅，他不可能攻击基辅。他可以攻击基辅旁边的小镇堪城(音)，他不会攻击基辅。你们没有去过乌克兰，它旁边有个小镇叫“美女模特之镇”，就那个地方。他可能攻击那儿去。我说，不是的，他可能直接干到基辅去。他就是要让整个乌克兰跪下。
 
-前国务卿迈克.蓬佩奥： 因推动美台关系而被蔡英文总统奖励此殊荣，令人感到谦卑。 我们一直与你们站在一起。
+**郭文贵先生2022年1月26日盖特**
 
+听说普京的团队得知这消息（美国授权撤馆）以后说，“看来美中这一仗是一定会打的，这个对我们是好事。”人家希望你打呀。普京是个有脑子的人，知道这个决定可不是开玩笑的。
 
+**郭文贵先生2022年1月30日直播**
 
-> It is humbling to be honored by President Tsai for advancing the U.S.-Taiwanese relationship.
-> We stand with you. Always. [pic.twitter.com/93nRt40TFF](https://t.co/93nRt40TFF)
-> — Mike Pompeo (@mikepompeo) [March 3, 2022](https://twitter.com/mikepompeo/status/1499518899779522564?ref_src=twsrc%5Etfw)
+现在都知道普京要打乌克兰，还跟你美国谈，还跟你欧洲谈，还跟你乌克兰谈，“哎，我要揍你。乌克兰，我要揍你啊。”乌克兰说:“你不能揍我呀。”是吧？“不行，我得揍你。为啥揍你，知道吧？你原来属于我的，你分裂出去了。你现在跟欧洲人合作，把这个欧洲的东扩，就是把欧洲的版图向东边俄罗斯扩，吞并了克里米亚等等等等。原来这些事情，虽然我拿回来了，但是你现在是我的危险。你在我家门口，咱俩本来是一家人。在我家卧室的隔壁，有一个跟外人勾搭的人，我岂能容忍得了？是吧？鉴于此，我得把你弄回来。”乌克兰说“我不想回去。”“你不想回去，那你得有个条件啊。你咋保证我安全呢？”就这，明着来。
 
+然后，人家普京先派十万大兵过去，是吧？派大兵去之前先跟习近平–“习太阳”沟通好。“习太阳，你取东方，你的台湾；我取我的西北方，我的乌克兰，我直奔基辅。”全世界都知道。
 
+往期回顾：
+[文•贵天成——文贵先生谈“普京”（一）](https://gnews.org/zh-hans/1990454/)
+[文•贵天成——文贵先生谈“普京”（二）](https://gnews.org/zh-hans/1992091/)
+[文•贵天成——文贵先生谈“普京”（三）](https://gnews.org/zh-hant/1997918/)
+[文•贵天成——文贵先生谈“普京”（四）](https://gnews.org/zh-hans/1998162/)
+[文•贵天成——文贵先生谈“普京”（五）](https://gnews.org/zh-hans/1998174/)
+[文•贵天成——文贵先生谈“普京”（六）](https://gnews.org/zh-hans/1998177/)
+[文•贵天成——文贵先生谈“普京”（七）](https://gnews.org/zh-hans/2002397/)
+[文•贵天成——文贵先生谈“普京”（八）](https://gnews.org/zh-hans/2090925/)
+[文•贵天成——文贵先生谈“普京”（九）](https://gnews.org/zh-hans/2090993/)
+[文•贵天成——文贵先生谈“普京”（十）](https://gnews.org/zh-hans/2091987/)
+[文•贵天成——文贵先生谈“普京”（十一）](https://gnews.org/zh-hans/2100246/)
+[文•贵天成——文贵先生谈“普京”（十二）](https://gnews.org/zh-hans/2099078/)
+[文•贵天成——文贵先生谈“普京”（十三）](https://gnews.org/zh-hans/2101189/)
 
-前国务卿迈克·蓬佩奥： 要求自由不是挑衅性的。 苏珊和我很高兴有机会与 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 外交部长吴钊燮一起进行参观 – 并享用一些被 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 制裁的澳大利亚葡萄酒。
+*发布：*tianzhihuan
 
-
-
-> It is not provocative to demand freedom. Susan and I are grateful for the opportunity to visit with Taiwan’s foreign minister Joseph Wu – and enjoy some CCP-sanctioned Australian wine. [pic.twitter.com/K73R2Zgzon](https://t.co/K73R2Zgzon)
-> — Mike Pompeo (@mikepompeo) [March 3, 2022](https://twitter.com/mikepompeo/status/1499493974171697156?ref_src=twsrc%5Etfw)
-
-
-
-比尔·戈茨： 当前国务卿蓬佩奥会见台湾总统时，台湾遭遇大规模停电 【附华盛顿时报比尔·戈茨文章：台湾周四遭遇大面积停电，停电中断了美前国务卿蓬佩奥与台湾总统蔡英文的会晤。 来自台湾的新闻报道称，停电影响了包括首都台北在内的七个城市，并到达了南部港口高雄。 停电发生在蓬佩奥在总统府会见蔡英文时。 虽然那里的电力没有受到影响，但计划中的网络广播被取消了。】
-
-
-
-> Taiwan hit by massive power outage as former Secretary of State Pompeo meets Taiwanese president [https://t.co/BCyWZzWRGa](https://t.co/BCyWZzWRGa)
-> — Bill Gertz (@BillGertz) [March 3, 2022](https://twitter.com/BillGertz/status/1499479109092589594?ref_src=twsrc%5Etfw)
-
-
-
-白宫： 今天，美国与盟国及合作伙伴协作，针对其他俄罗斯精英和家庭成员进行打击，尽管普京总统残酷入侵乌克兰，但他们仍继续支持他。 这些个人及其家庭成员将会从美国金融体系被剔除，他们在美国的资产被冻结，他们的财产将被禁止使用。 美国财政部@USTreasury 将在适当的情况下与司法部@TheJusticeDept 分享金融情报和其他证据，以支持刑事起诉和扣押资产。 美国将制裁普京的亲信及其家人，有一个扩展的名单。 其中一位精英是阿利舍尔·布尔哈诺维奇·乌斯马诺夫，他是俄罗斯最富有的人之一，也是普京的亲密盟友。 ………
-
-
-
-> Today, the United States, in coordination with Allies and partners, targeted additional Russian elites and family members who continue supporting President Putin despite his brutal invasion of Ukraine.
-> — The White House (@WhiteHouse) [March 3, 2022](https://twitter.com/WhiteHouse/status/1499463156762034177?ref_src=twsrc%5Etfw)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
