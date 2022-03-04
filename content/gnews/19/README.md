@@ -2,42 +2,37 @@
 ---
 
 
-## 日本防卫省：朝鲜导弹飞行距离可能为300公里 最大高度可达600公里
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2102283/)
+## 有声|使用日内瓦公约禁用武器 普京疑涉战争罪
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2102482/)
 
-作者：新西兰伊甸农场-玫瑰
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月1日，据盖特平台消息显示，乌克兰驻美国大使马卡洛娃指控俄罗斯军队在空袭乌克兰时，使用了“真空弹”武器。此外，国际特赦组织也在一份声明中指出，俄罗斯使用集束炸弹摧毁了乌克兰的一所收容平民幼儿园，造成包括儿童在内的三人死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-03-%E4%B8%8A%E5%8D%888.43.48.png)
+资料表明，“真空弹”是一种热压武器，其可在半空中爆炸并释放大量热能和超音速震波，同时迅速消耗尽该区域内的所有氧气，其高温足以蒸发人体，被称为仅次于核弹的武器；至于集束炸弹则是在弹体中装入多至数百个子炸弹，用以对目标进行地毯式轰炸，极易误伤平民。值得注意的是，这两种炸弹都是被日内瓦公约明令禁止的“大规模杀伤性武器”。
+
+对此，英国政府警告称，普京和莫斯科的指挥官或将因这种违反战争法的行为而面临起诉。海牙国际刑事法院ICC检察官办公室则表示，将寻求法院批准，对普京在乌克兰犯下的危害人类罪以及战争罪展开调查。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-6.png)
-据俄罗斯卫星通讯社2月27日报道，当地时间27日7时59分（北京时间6时59分），日本海上保安厅发布了有关朝鲜可能进行导弹发射的警报。半小时后，海岸警卫队网站上出现了炮弹已经坠落的消息，呼吁海上的船只保持谨慎，如果有物体落入水中，请勿靠近。
 
-如果有关发射的消息将得到证实，这将已经是平壤方面自今年年初以来第八次武器试射。
+文字版原文：[使用日内瓦公约禁用武器 普京疑涉战争罪](https://gnews.org/zh-hans/2100034/)
 
-日本防卫大臣岸信夫表示，疑似朝鲜方面发射的导弹飞行距离约为300公里，最大飞行高度达到600公里。
-
-岸信夫指出，关于朝鲜导弹发射仍在对细节进行分析。据推测，其落在了日本专属经济区之外。 NHK电视台对新闻发布会进行了转播。 岸信夫表示：“日本政府强烈谴责”朝鲜的行为。
-
-日本防卫大臣指出：“这是一个不可原谅的行为”，并且强调，东京将首先与美国以及“与国际社会密切合作。”。
-
-新闻来源：[https://sputniknews.cn/20220227/1039596100.html](https://sputniknews.cn/20220227/1039596100.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-3.jpg)
-
-编辑/校对/发稿：滚滚长江都是水
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
