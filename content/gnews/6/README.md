@@ -2,17 +2,27 @@
 ---
 
 
-## 俄乌战争｜蓬佩奥呼吁民主国家 加深合作 减少依赖独裁强权
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2104333/)
+## 樱花FM|俄罗斯和乌克兰开始停火谈判
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2104412/)
 
-**撰文/ 港台前線｜發佈日期/ 04/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-3-2.png)更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
-美国前国务卿蓬佩奥访台，4日下午出席媒体联访记者会时表示，俄乌战争中，可以发现德国等依赖俄罗斯天然气的国家受到很大的冲击，他据此呼吁所有民主国家应该加深彼此经济、外交方面的合作，减少对独裁国家的依赖。
+音频：东京樱花团/战友520
 
-经过这次的教训未来在经济上一定要多跟其他爱好自由、尊重人权的国家彼此合作，“才能保护好我们的生活方式跟家庭”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯和乌克兰开始停火谈判.png)
 
-来源｜[ETtoday](https://www.ettoday.net/news/20220304/2201314.htm)
 
+
+俄罗斯和乌克兰于28日下午在白俄罗斯与乌克兰边境附近开始停火谈判。正在从三方面进攻乌克兰的俄罗斯呼吁投降，而乌克兰则要求立即停火并撤出军队。因双方的主张相去甚远，目前还不清楚会谈是否会导致立即停火。
+
+文字版原文：
+
+
+| [俄罗斯和乌克兰开始停火谈判](https://gnews.org/zh-hans/2081102/) |
+| --- |
+
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
