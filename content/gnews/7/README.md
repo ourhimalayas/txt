@@ -2,41 +2,31 @@
 ---
 
 
-## 马里乌波尔市长：俄军炮火不断 平民伤亡攀升
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2102437/)
+## 今日盖特大V推荐 — 赫歇尔·沃克 （Herschel Walker）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2102461/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/03/alff2-lqw5w.jpg)
+盖特链接：[https://gettr.com/user/herschelwalker](https://gettr.com/user/herschelwalker)
 
-整理：围剿维尼熊
-编辑：木木木mmmmm
+**赫歇尔·沃克自述：**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0139.jpg)图片来源：AFP via Getty Images
+乔治亚州的保守派。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/bol3xcf.png)图片来源：网络
+**赫歇尔·沃克简介**：
 
+赫歇尔·沃克Herschel Walker（生于 1962 年 3 月 3 日）是一名前美式橄榄球跑卫、雪橇运动员和综合格斗运动员。
 
-根据大纪元2022年3月3日讯，在乌克兰南部战略重镇赫尔松（Kherson）被俄军控制后，亚速海海滨的重要港城马里乌波尔（Mariupol）也岌岌可危。
+赫歇尔·沃克在美国橄榄球联盟(USFL)的新泽西将军队开始他的职业橄榄球生涯，之后加入了美国国家橄榄球联盟(NFL)。他于 1999 年入选大学橄榄球名人堂，被认为是美国有史以来最伟大的大学橄榄球运动员之一。赫歇尔·沃克在Bleacher Report、247sports和Sporting News中排名第一，在ESPN排名中排名第二。
 
-马里乌波尔市长瓦迪姆‧博伊琴科（Vadym Boychenko）说，整晚俄军猛烈炮火不断，平民伤亡数持续攀升，由于攻击并未停止，导致急救人员难以救出伤患。
+目前，赫歇尔·沃克担任总统体育、健身和营养委员会的联合主席，该职位由前总统川普任命并继续在拜登总统任上任职。他正在乔治亚州竞选2022年美国参议院选举的共和党提名，并得到川普和参议院共和党领袖米奇·麦康奈尔的支持。
 
-周三晚间，博伊琴科在Telegram上发布一份声明，周三是俄罗斯入侵以来最艰难的一天，乌克兰守军对那些向住宅开火的人，进行了英勇的反击。
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-博伊琴科还说，关键基础设施受到影响，市民在周四基础设施修复以前，将没有水和电。他还感谢了医生、公用事业服务人员、乌克兰武装部队和所有公民。
-
-不过，当地的伤患越来越多。据美国有线电视新闻网（CNN）报导，截至周三下午，俄军和亲俄军队，已从三面包围了这座拥有约43万居民的城市。
-
-根据乌克兰军方当地时间上午发表的一份最新行动报告，该城市仍在乌克兰手中。
-
-参考链接：
-
-[马里乌波尔市长：俄军炮火不断 平民伤亡攀升](https://www.epochtimes.com/gb/22/3/3/n13618734.htm)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

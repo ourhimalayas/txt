@@ -2,23 +2,39 @@
 ---
 
 
-## 愿体育终有一日无关政治！俄罗斯「滑冰女超人」遭抵制禁赛
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2102403/)
+## 欧盟公布被制裁俄银行名单
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2102427/)
 
-俄罗斯入侵乌克兰，不仅使得俄罗斯遭受严重经济制裁，也造成不少运动员被拔除参赛资格，其中不乏国际知名冠军好手。在花式滑冰界有「滑冰神力女超人」、「四周跳女王」称号，和日本选手羽生结弦齐名的俄罗斯选手特鲁索娃(Alexandra Trusova)也宣布遭到国际联盟通知禁赛，她的官方微博发出声明，强调希望东欧早日和平「愿体育终有一日无关政治」。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3551525-PH.jpg)图片来源：微博
+整理：围剿维尼熊
+编辑：木木木mmmmm
 
-简评：如今体育被政治裹挟，奥林匹克运动会完全背离了奥林匹克的精神，成为了政治勾兑的一部分。希望东欧早日和平，愿体育终有一日无关政治，这么美好的愿景是需要有大环境前提的，就是消灭独裁政府，坚持正道主义！既然有这么美好的夙愿，请为此而努力吧！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0138.jpg)图片来源：天下杂志
 
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1079601)
 
-撰稿/发布：一叶知秋
+根据大纪元2022年3月3日讯，美欧等国2月26日宣布了对俄罗斯的新一轮制裁，将一些俄罗斯主要银行逐出SWIFT国际结算系统。欧盟公布了相关俄罗斯银行名单。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+欧盟3月2日公布，有七家俄罗斯银行被逐出SWIFT系统，分别是：俄罗斯外贸银行（VTB）、Bank Otrkitie银行、Novikombank银行、俄罗斯工业通讯银行（Promsvyazbank）、俄罗斯银行（Bank Rossiya）、Sovcombank银行，以及俄罗斯国家开发银行（VEB）。
+
+2月25日，欧盟国家首脑一致同意对俄罗斯进行制裁，制裁目标涵盖70%俄罗斯金融市场。
+
+上周欧盟冻结了俄罗斯银行（Rossiya Bank）、俄罗斯工业通讯银行（Promsvyazbank）和俄罗斯国家开发银行（VEB）的资产。随后，欧盟宣布禁止为阿尔法银行（Alfa Bank）和Bank Otrkitie银行的再融资而在欧盟发行债券、股票或贷款。
+
+欧盟还禁止俄罗斯国有企业（除公共设施之外）在欧盟境内再融资。欧盟证券交易结算公司不得为俄罗斯交易对手提供服务，Euroclear和Clearstream两家公司宣布不接受卢布交易。
+
+参考链接：
+
+[美欧2月26日宣布了对俄罗斯的新一轮制裁](https://www.epochtimes.com/gb/22/3/2/n13617293.htm)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
