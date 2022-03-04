@@ -2,66 +2,58 @@
 ---
 
 
-## 参议员马可·卢比奥：俄罗斯侵略者正在炮击欧洲最大的核电站
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2102619/)
+## 樱花FM|辉瑞科学家承认，天然抗体“可能比疫苗接种更好”
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2103949/)
 
-参议员马可·卢比奥： [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) 入侵者正在炮击欧洲最大的核电站 现在有报道称，该电站的一部分现在着火了
+音频：东京樱花团/战友520
+![](https://lh3.googleusercontent.com/iGrsTU9L8Dxxst7yvoss9fTmxE-5w3k9bE6l8b-MBu-YWw3MJKVZkAQKEkBUY2w0zY4jgU-Ibn9L2l0WTZH0ggZQq5uHmg1aEhmGy1JfEKXhIfJBYEQKvKEOoTQsz0PrxPY1unxg)
+Veritas项目是其“新冠病毒疫苗暴露”系列的最新一期，发布了一个新的10分钟视频，描绘了辉瑞科学家讲述其公司武汉冠状病毒（Covid-19）“疫苗”令人不安的真相。
 
+Nick Karl向采访者解释说，在预防中共病毒感染方面，人们的天然抗体“可能比辉瑞的mRNA注射更好”.
 
+Karl承认：“当某人天生免疫时——比如他们感染了新冠病毒——他们可能有更多的病毒抗体。”
 
-> [#Russian](https://twitter.com/hashtag/Russian?src=hash&amp;ref_src=twsrc%5Etfw) invaders are shelling the largest nuke plant in Europe
-> 
-> Reports now that portions of the plant are now on fire[https://t.co/CKHcOIT9tz](https://t.co/CKHcOIT9tz)
-> — Marco Rubio (@marcorubio) [March 4, 2022](https://twitter.com/marcorubio/status/1499539156728434693?ref_src=twsrc%5Etfw)
+“当你真正感染病毒时，你将开始产生针对多种病毒的抗体……因此，你的抗体在那时可能比[新冠病毒]疫苗接种更好。”
 
+Karl接着解释说，“疫苗护照”的全部意义不是保护人们的安全，而是让它“对未接种疫苗的人如此不方便”，以至于他们只是服从。
 
+事实证明，合规性是中共病毒疫苗注射计划的全部意义。没有证据表明这些疫苗有助于对任何疾病产生持久的免疫力。
 
-参议员泰德·克鲁兹： 印度是世界上最大的民主国家和对抗 #中共国 的关键盟友。拜登政府制裁印度将是极其短视、鲁莽和自我放纵的。
+辉瑞高级副科学家告诉Veritas记者不要接种疫苗
 
+另一位名叫Chris Croce的辉瑞高级助理科学家附和了Karl的观点，他解释说，与疫苗相比，自然获得对流通的免疫力的人受到“可能更多”的保护。
 
+“所以，我（有抗体）受到很好的保护？”Veritas记者问Croce。
 
-> It would be incredibly shortsighted, reckless, and self-indulgent for the Biden Administration to sanction India – the largest democracy in the world and a critical ally for countering China. [pic.twitter.com/UphK4vDnR9](https://t.co/UphK4vDnR9)
-> — Senator Ted Cruz (@SenTedCruz) [March 3, 2022](https://twitter.com/SenTedCruz/status/1499525813695397893?ref_src=twsrc%5Etfw)
+“是的”，Croce回答。
 
+“就像疫苗一样吗？”Veritas记者回应道。
 
+“可能更多”，Croce回答说，当被问及“由于有自然反应，你最有可能受到更长时间的保护。”
 
-前国务卿迈克.蓬佩奥： 因推动美台关系而被蔡英文总统奖励此殊荣，令人感到谦卑。 我们一直与你们站在一起。
+几乎令人难以置信的是，Croce继续告诉Veritas记者“等待”接种疫苗，直到自然免疫力下降——即使如此的话。一个人在康复后可能会永久免疫，不需要任何进一步的干预。
 
+另一位辉瑞科学家Rahul Khandke向Veritas记者进一步透露，公司高管向低级别员工施压，要求他们向公众隐瞒定罪数据和其他“负面信息”。
 
+“我们被培养并被教导说，‘疫苗比实际感染新冠病毒更安全’。”老实说，我们不得不就此举办这么多研讨会。你不知道。Khandke说，我们必须在那里坐几个小时，听——就像“你不能在公共场合谈论这件事”，他同意天然抗体比疫苗接种更可取的观点。
 
-> It is humbling to be honored by President Tsai for advancing the U.S.-Taiwanese relationship.
-> We stand with you. Always. [pic.twitter.com/93nRt40TFF](https://t.co/93nRt40TFF)
-> — Mike Pompeo (@mikepompeo) [March 3, 2022](https://twitter.com/mikepompeo/status/1499518899779522564?ref_src=twsrc%5Etfw)
+他补充说：“如果你积累了[新冠病毒]抗体，你应该能够证明你积累了这些抗体。”
 
+据Croce称，目前辉瑞正在进行测试，看看其mRNA中共病毒疫苗是否导致年轻人患心肌炎。
 
+Croce进一步说：“所以，是的，我们正在做，我们刚刚发送了大约3000名患者的样本，以测试肌钙蛋白水平升高（检测心脏病发作），看看它是否基于疫苗。”
 
-前国务卿迈克·蓬佩奥： 要求自由不是挑衅性的。 苏珊和我很高兴有机会与 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 外交部长吴钊燮一起进行参观 – 并享用一些被 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 制裁的澳大利亚葡萄酒。
+由于这三个人的身份现在都公开了，他们坦率地录取会发生什么还有待观察。我们的猜测是，辉瑞的高层对这些公开披露不满意。
 
+Zero Hedge的一位评论员写道：“整个骗局都被揭露了。”“这些罪犯，包括福奇，需要被勒死。”
 
+另一个回答说，每个人都应该祈祷Veritas项目的James O’Keefe因勇敢地揭露这一切而受到保护。
 
-> It is not provocative to demand freedom. Susan and I are grateful for the opportunity to visit with Taiwan’s foreign minister Joseph Wu – and enjoy some CCP-sanctioned Australian wine. [pic.twitter.com/K73R2Zgzon](https://t.co/K73R2Zgzon)
-> — Mike Pompeo (@mikepompeo) [March 3, 2022](https://twitter.com/mikepompeo/status/1499493974171697156?ref_src=twsrc%5Etfw)
+文字版原文：[辉瑞科学家承认，天然抗体“可能比疫苗接种更好”](https://gnews.org/zh-hans/2088776/)
 
-
-
-比尔·戈茨： 当前国务卿蓬佩奥会见台湾总统时，台湾遭遇大规模停电 【附华盛顿时报比尔·戈茨文章：台湾周四遭遇大面积停电，停电中断了美前国务卿蓬佩奥与台湾总统蔡英文的会晤。 来自台湾的新闻报道称，停电影响了包括首都台北在内的七个城市，并到达了南部港口高雄。 停电发生在蓬佩奥在总统府会见蔡英文时。 虽然那里的电力没有受到影响，但计划中的网络广播被取消了。】
-
-
-
-> Taiwan hit by massive power outage as former Secretary of State Pompeo meets Taiwanese president [https://t.co/BCyWZzWRGa](https://t.co/BCyWZzWRGa)
-> — Bill Gertz (@BillGertz) [March 3, 2022](https://twitter.com/BillGertz/status/1499479109092589594?ref_src=twsrc%5Etfw)
-
-
-
-白宫： 今天，美国与盟国及合作伙伴协作，针对其他俄罗斯精英和家庭成员进行打击，尽管普京总统残酷入侵乌克兰，但他们仍继续支持他。 这些个人及其家庭成员将会从美国金融体系被剔除，他们在美国的资产被冻结，他们的财产将被禁止使用。 美国财政部@USTreasury 将在适当的情况下与司法部@TheJusticeDept 分享金融情报和其他证据，以支持刑事起诉和扣押资产。 美国将制裁普京的亲信及其家人，有一个扩展的名单。 其中一位精英是阿利舍尔·布尔哈诺维奇·乌斯马诺夫，他是俄罗斯最富有的人之一，也是普京的亲密盟友。 ………
-
-
-
-> Today, the United States, in coordination with Allies and partners, targeted additional Russian elites and family members who continue supporting President Putin despite his brutal invasion of Ukraine.
-> — The White House (@WhiteHouse) [March 3, 2022](https://twitter.com/WhiteHouse/status/1499463156762034177?ref_src=twsrc%5Etfw)
-
-
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

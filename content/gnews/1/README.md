@@ -2,21 +2,29 @@
 ---
 
 
-## 视频|美国宣布对俄罗斯关闭领空
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2104913/)
+## 中日财经爆|印度指控华为逃税
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105073/)
 
-制作：香草山视频部
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2Fe40c55a9-8a47-41fb-8075-b96fe935746e.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2F2f5fc6c9-ca2b-496c-9783-b47bf060769d&amp;tbnid=YETnJcdcmjbbCM&amp;vet=12ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ..i&amp;docid=xHuUh4vOZwW9NM&amp;w=2400&amp;h=1350&amp;q=%E5%8D%8E%E4%B8%BA&amp;ved=2ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ)
+路透社3月3日报道，一位印度政府消息人透露，印度对中共国电信设备制造商华为的一项税务调查发现，华为操纵账簿以减少其在印度的应税收入。
 
-3月1日，据当地媒体报道，美国总统拜登当天晚间宣布，将禁止俄罗斯飞机进入美国领空，作为对俄罗斯入侵乌克兰的进一步制裁。这是继欧盟、英国和加拿大先后宣布对俄罗斯关闭领空之后，美国的明确表态，而美国此举将彻底封死俄罗斯飞往南半球的快捷航线。
+印度财政部并未指明是哪一家公司，仅称在上月对一家大型电信集团位于印度三个城市的办事处进行所得税突击检查时，该集团“未能就纳税申报问题提供任何实质性和适当的理由”。
 
-此前，由于俄乌局势的恶化，美国政府已经将俄罗斯认定为危险地区。为此，联邦政府向本国居民发布了针对俄罗斯的旅行禁令并呼吁俄罗斯当地的美国民众尽快撤离。另外，美国的各大快递物流公司在上周末相继暂停了运往俄罗斯的货物。同时，美国政府还禁止本土航班飞往俄罗斯，至于飞往亚洲的大部分航班则必须改道经过大西洋和欧洲，用以避开进入俄罗斯领空。
+印度当地媒体2月16日援引官方消息报导，印度税务部门对中共国电信设备制造商华为在印度的多处办公场所进行了搜查，此为逃漏税调查的一部分，近期对中共国几家智能手机企业也进行了相关调查。
 
-发稿：林礼
+新德里电视台（NDTV）援引印度报业托拉斯（Press Trust of India）报导，官员们查看了财务文件、账簿和公司记录、华为的印度业务和海外交易。
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+消息来源:
+
+[印度指控华为逃税–印政府消息人士](https://cn.reuters.com/article/india-huawei-sources-0303-thur-idCNKCS2L013W?il=0)
+
+[中日财经爆|华为因逃漏税被印度税务机关搜查](https://gnews.org/zh-hans/2017942/)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+
 
  
 

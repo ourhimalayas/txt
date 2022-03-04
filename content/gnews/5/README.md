@@ -2,46 +2,26 @@
 ---
 
 
-## 普京发布核威胁警告后，欧洲民众抢购碘片
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2104896/)
+## 中日财经爆|美国两党参议员要求禁止进口俄罗斯石油
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105048/)
 
-#### 翻译：Ltitle Lamp 
-编辑：小红帽
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Ffinance%2F239%2Fw2048h1391%2F20220224%2Fc289-0a124c8f4e8ad373dac449abdde38db3.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.cn%2Fusstock%2Fmggd%2F2022-02-24%2Fdetail-imcwiwss2747127.d.html%3Fvt%3D4&amp;tbnid=kIhBM1Y_xGlC7M&amp;vet=12ahUKEwiI3uqJ_Kv2AhXpR2wGHU9UD4gQMygCegUIARC6AQ..i&amp;docid=YylWr8w_uoFCOM&amp;w=2048&amp;h=1391&amp;itg=1&amp;q=%E4%BF%84%E7%BD%97%E6%96%AF%E7%9F%B3%E6%B2%B9&amp;ved=2ahUKEwiI3uqJ_Kv2AhXpR2wGHU9UD4gQMygCegUIARC6AQ)
+美国两党参议员周四（3月3日）提出一项禁止美国进口俄罗斯石油的议案，他们表示可以通过提高北美和其他地方的石油产量来替代俄罗斯石油。
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+这项名为《禁止俄罗斯能源进口法案》的议案旨在惩罚俄罗斯总统普京入侵乌克兰的行为。该议案由来自共和党及民主党的18名参议员发起。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Rush_for_iodine_pills_.jpg)图片来源：www.dnaindia.com
+众议院议长佩洛希也表示，她支持实施这样的禁令。“我完全支持，”她告诉记者，“禁止从俄罗斯进口石油。”
 
+根据美国能源信息署(EIA)的数据，2021年，美国平均每月从俄罗斯进口逾2,040万桶原油和成品油，约占美国液体燃料进口的8%。夏威夷和阿拉斯加都依赖这些进口。
 
-据福克斯新闻3月3日报导，在俄罗斯总统普京入侵乌克兰并暗示会发生核威胁后，中欧的消费者正在抢购药店的碘片以防止受到辐射伤害。
+消息来源:
 
-在2月24日俄罗斯对乌克兰的袭击事件开始时，普京在电视讲话中提出警告，如果其他国家介入此次战争，他将使用核武器，以重新点燃冷战时期对原子能毁灭的恐惧。
+[美国两党参议员提出议案 要求禁止美国进口俄罗斯石油](https://cn.reuters.com/article/us-senators-russia-oil-import-0304-idCNKCS2L105T?il=0)
 
-几天后，乌克兰局势急剧升级，普京于2月27日宣布，他将俄罗斯的核力量置于高度戒备状态，以应对西方对俄罗斯实施的全面制裁。
-
-保加利亚药店联盟主席表示，目前该国药店的碘片销量巨增，甚至在过去六天内达到了过去一年的销售量。
-
-世界卫生组织建议儿童、孕妇和40岁以下的人通过服用碘化钾（即碘），阻止甲状腺吸收可能致癌的放射性碘。
-
-捷克共和国Dr. Max药店的代表表示，捷克一些药店已经把碘片卖完了。
-
-据波兰一家网站称，在波兰，药店的库存碘片数量增加了一倍以上。
-
-谷歌数据显示，上周全球对“辐射暴露”和“辐射防护”的搜索量增加了600%以上。
-
-捷克国家核安全办公室负责人警告说，在发生核战争的情况下，碘片无济于事，因为人们可能会暴露在极高水平的辐射之下。
-
-文章来源：[Ukraine war: Rush for iodine pills in Europe after Putin’s nuclear threats](https://www.foxnews.com/world/ukraine-war-rush-iodine-pills-europe-putins-nuke-threat)
-
-*发布：*Frank2021
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

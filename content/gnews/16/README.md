@@ -2,34 +2,26 @@
 ---
 
 
-## 普京加强外汇管控
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2104738/)
+## 中共正在对全世界发动网络战争
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2104979/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-俄罗斯周二表示，它尚未对因入侵乌克兰而引发的西方和美国制裁雪崩做出全面回应。外交部发言人扎哈罗娃警告称 ，西方民众还没有感受到制裁即将对他们的生活产生的影响。
-![俄罗斯央行澄清普京的资本管制令- 华尔街日报](https://images.wsj.net/im-495213?width=1280&amp;size=1.77777778)WSJ
-随着西方的经济制裁不断升级的，俄罗斯已经启动了进一步的金融稳定工作。据路透社援引国际文传电讯社的一份克里姆林宫声明称，普京在当地时间周二晚些时候发布了一项法令，禁止所有价值超过1万美元的外汇现金出口。
+撰稿：东京樱花团/加一颗稻草
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-17.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F16679%2Fproduction%2F_105396719_hi027869497_1.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fchinese-news-47052513&amp;tbnid=1lucNVO77tr2DM&amp;vet=12ahUKEwi0kqOl_6v2AhVhgmMGHf8ACEEQMygDegUIARCrAQ..i&amp;docid=r1CUlsNEtlZP1M&amp;w=640&amp;h=360&amp;q=%E7%BD%91%E7%BB%9C%E6%94%BB%E5%87%BB&amp;ved=2ahUKEwi0kqOl_6v2AhVhgmMGHf8ACEEQMygDegUIARCrAQ)
+美国网络安全公司CrowdStrike最新发表《2022年全球威胁报告》指出，中共国利用网络漏洞进行攻击的能力世界一流，在过去一年有上升的趋势。CrowdStrike情报事务高级副总裁亚当·迈耶斯（Adam Meyers）2月16日在一场网上说明会上说：“他们（中共国黑客）越来越多地寻找企业级服务下手，比如VPN集中器、微软 Exchange服务器、源代码存储库等等。”
 
-俄罗斯央行同时宣布，随着俄罗斯资产不断受到重创，包括卢布在过去几天跌至两年低点，俄罗斯准备采取一切必要措施来维持金融稳定。
+传统基金会高级研究员成斌（Dean Cheng）直言不讳地提出对那些为中共国军工单位出力的大学进行制裁。成斌说：“中共国的大学数量众多，但其中有一些大学很有意思，它们不属于教育部，实际上隶属于工业和信息化部——这是中共国的军工综合体监督机构。这其中包括北京航空航天大学、南京航空航天大学、哈尔滨工业大学等，大约有八个。它们为中共国军工综合体提供直接支援。”
 
-与此同时， 《莫斯科时报》报道称，“美国零售巨头耐克和苹果公司已经暂时停止在俄罗斯在线商店的销售，这肯定会给俄罗斯人民带来更多不便。”
+中共制造的病毒在全世界投放之后，新冠疫苗的不良反应逐渐累积爆发。以及俄乌战争中俄罗斯的核武威胁。给人类安全增加了更多的不确定性。
 
-该公告表明，越来越多的西方产品仅是运往俄罗斯都变得越来越困难.
+3月2日，美国代表团蓬培奥一行访问台湾期间，台湾遭遇网络攻击造成大面积停电。中共攻击台湾意图逐渐暴露。3月2日晚，最新崛起的世界著名自由媒体 GTV也因中共的网络攻击被迫停止运行。中共如此密集的攻击行动。正在全球发起一场网络战用以配合俄罗斯的侵略战争。中共占领台湾并称霸世界的计划正在紧锣密鼓的进行中。
 
-参考链接：[Putin bans exports of more than $10,000 – The Moscow Times](https://hindustannewshub.com/russia-ukraine-news/putin-bans-exports-of-more-than-10000-the-moscow-times/)
+消息来源：
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+[“和我们一起在网络战线战斗” 乌克兰征召全球网军 反击俄罗斯](https://www.voachinese.com/a/ukraine-it-army-20220228/6464220.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

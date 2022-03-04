@@ -2,28 +2,30 @@
 ---
 
 
-## 四方领导人承诺 绝不允印太区上演乌克兰情况
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2102267/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月3日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2102744/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/japan-quad-diplomacy-174753.jpg)
-岸田文雄说，他和拜登、莫里森和莫迪一致认为，“现在，致力于维护一个自由开放的印太地区变得更加重要。”（法新社）
-（早报讯）以美国为首的“四方安全对话”领导人一致同意，绝对不能允许印太地区上演乌克兰的情况。
-
-路透社报道，美国、印度、澳大利亚、日本领导人周四（3月3日）举行视讯会议，讨论乌克兰局势和为乌克兰提供人道主义援助，并同意建立一个新的人道援助与救灾机制，以因应印太地区未来的人道主义挑战。
-
-根据四方安全对话机制发表的联合声明，四国领导人在会晤中“重申他们对自由和开放的印太地区的承诺，所有国家的主权和领土完整都受到尊重，各国不受军事、经济和政治胁迫。”
-
-日本首相岸田文雄在会后说：“我们都同意，决不允许类似（俄罗斯入侵乌克兰）单方面以武力改变现状的情况在印太地区出现。”
-
-岸田文雄说，他和美国总统拜登、澳洲总理莫里森及印度总理莫迪一致认为，“现在，致力于维护一个自由与开放的印太地区变得更加重要。”
-
-根据联合声明，美澳印日领导人同意在“未来几个月内”到东京举行面对面峰会。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-9-768x58-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-2.png)
 
 
+校对：Stay文苑
 
-审核校对：Barry Jack
-上传排版：F
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/py2mz08302](https://gettr.com/post/py2mz08302)
+访谈：[https://gettr.com/post/py2rg12c1e](https://gettr.com/post/py2rg12c1e)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-3.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,24 +2,28 @@
 ---
 
 
-## 樱花FM|还有哪个国际组织可信？欧盟冷漠对待战火中的乌克兰
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2104813/)
+## 中日财经爆|台湾凤梨遭中共国禁销一年后出口反而暴增5倍
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2104996/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/s6pRN8uDg3i7dHN1d-5QTRpvEK9TP5Zga3JEiywrlH5rCZ9nWQauK03tdKzFUFvlKULhkTydNGDMKSPpw7IAy0v8zVkVm83jqIZfVXeZMesErJzeZFHiuNoa4PPSQsEoOgWYPiJY)
-3月1日时事通信社消息：据法新社报道，２月２８日，欧盟（EU）向乌克兰申请立即加入该集团的希望泼了冷水。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3.jpg)[图片来源](https://www.google.com/search?q=%E5%8F%B0%E6%B9%BE%E5%87%A4%E6%A2%A8&amp;tbm=isch&amp;ved=2ahUKEwiElfyGgqz2AhX_gGMGHfk7DgsQ2-cCegQIABAA&amp;oq=%E5%8F%B0%E6%B9%BE%E5%87%A4%E6%A2%A8&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgARQAFgAYMMHaABwAHgAgAF0iAF0kgEDMC4xmAEAqgELZ3dzLXdpei1pbWfAAQE&amp;sclient=img&amp;ei=z8ohYsTxB_-BjuMP-fe4WA&amp;rlz=1C1YKST_enUS900US901#imgrc=FEKeaGnqPXfftM&amp;imgdii=3ldDkjPflRY6DM)
+中共国去年无预警宣布禁止台湾凤梨进口，如今已满1周年，台湾农委会积极与各通路合作，外销到其他国家的数量刷新纪录，成长超过5倍，其中外销日本近1.8万公吨更是过去20年的总合。
 
-2月27日，欧盟委员会主席乌苏拉-冯德莱恩（Ursula von der Leyen）在接受欧洲新闻网采访时说：乌克兰是我们的一员。我们希望乌克兰能加入我们。然而，欧盟外交和安全事务高级代表何塞普-博雷尔却说，乌克兰加入欧盟将需要 “许多年”。
+中国大陆禁止台湾凤梨进口已经满1年，台湾凤梨不但熬过滞销危机，在国人支持下，去年3月到6月主要产季的产地价格甚至创下前两年来的新高，达到每公斤22.1元，外销其他国家的数量更是刷新纪录，成长超过5倍。
 
-欧盟委员会发言人埃里克-马默（Eric Mamer）撤回了冯德莱恩的声明，并解释道，她的意思是乌克兰是欧洲的一部分，而不是欧盟的一部分，她希望欢迎乌克兰加入欧洲。
+看看农委会统计的数据，台湾凤梨外销到中国以外的市场，2020年只有3948公吨，但2021年翻倍来到24982公吨，成长5.3倍，预估今年凤梨产量将达39万多公吨。
 
-众所周知，乌克兰地处欧洲，哪里还存在加入欧洲之说！哪里用得着欧盟委员会主席说欢迎加入欧洲？联合国、国际刑警组织、国际奥委会、国际卫生组织等国际机构，按理说在大是大非面前应该做出表率作用才是。然而，遗憾的是自从中共病毒（新冠病毒）在全世界爆发以来，国际组织的决定，一次次的令人失望！
+农委会三箭齐发，外销目标3万公吨，内销目标8000公吨。另外，加工方面也将加强辅导，截切多元产品加工，像是果干、果酱，甚至藉由台湾手摇饮优势，出口到全世界。
 
-文字版原文：[还有哪个国际组织可信？欧盟冷漠对待战火中的乌克兰](https://gnews.org/zh-hans/2086855/)
+凤梨产季开跑，除了借助民间力量，农委会续推辅导措施奖励金和补助，双管齐下，将台湾高品质凤梨行销全球。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+消息来源:
+
+[中國禁銷令週年！ 台灣鳳梨外銷逆勢成長5倍](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E7%A6%81%E9%8A%B7%E4%BB%A4%E9%80%B1%E5%B9%B4-%E5%8F%B0%E7%81%A3%E9%B3%B3%E6%A2%A8%E5%A4%96%E9%8A%B7%E9%80%86%E5%8B%A2%E6%88%90%E9%95%B75%E5%80%8D-072704392.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

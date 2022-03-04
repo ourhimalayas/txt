@@ -2,38 +2,65 @@
 ---
 
 
-## 参议员卢比奥: 普京的（精神）健康出了问题
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2102178/)
+## 参议员马可·卢比奥：俄罗斯侵略者正在炮击欧洲最大的核电站
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2102619/)
 
-#### 编译: Cran
+参议员马可·卢比奥： [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) 入侵者正在炮击欧洲最大的核电站 现在有报道称，该电站的一部分现在着火了
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16463483721.png)[Image source](https://www.youtube.com/watch?v=iKrF7yC0Cc8)
-郭文贵先生曾在大直播中谈到, 普京过去的一些年是非常寂寞的，一位曾经如此爱出风头的人被世界冷漠的太久了。
 
-在英国2月28日的大都会网站, 刊登了一篇有关普京心里健康的评论文章。在题为 “因为被隔离在地堡下, 普京的脑子混乱了” 的文章中, 作者丹尼尔, 宾斯 (Daniel Binns) 认为，新冠疫情期间长时间的隔离, 可能助长了弗拉基米尔·普京的“偏执狂”和“地堡心态”。
 
-俄罗斯国际事务委员会（Russian International Affairs Council）负责人安德烈·科尔图诺夫（Andrey Kortunov）对英国广播公司（BBC）表示，入侵俄罗斯的决定令普京自己的官员感到惊讶和震惊。
+> [#Russian](https://twitter.com/hashtag/Russian?src=hash&amp;ref_src=twsrc%5Etfw) invaders are shelling the largest nuke plant in Europe
+> 
+> Reports now that portions of the plant are now on fire[https://t.co/CKHcOIT9tz](https://t.co/CKHcOIT9tz)
+> — Marco Rubio (@marcorubio) [March 4, 2022](https://twitter.com/marcorubio/status/1499539156728434693?ref_src=twsrc%5Etfw)
 
-据称，如果普京核心圈子里的人需要面见他，就必须在会面之前隔离两周。另外，那些与他接触最多的亲信，必须每周数次提供粪便样本，以检查感染情况。
 
-这位俄罗斯总统在过去两年中与民众的接触很少，这让他有太多时间沉浸在自己的恐惧中。报告显示，一段时间以来，他患有新冠病毒引起的“脑雾”。普京以“铺天盖地式的”和“世界末日式”的方式入侵乌克兰后，他的心态受到了密切关注。
 
-美国参议员马可·卢比奥暗示这位69岁的独裁者精神不适后，使人们更加感到担忧。这位佛罗里达州共和党人在推特上写道：“我希望我能分享更多，但现在我可以说，对许多人来说，很明显普京出了问题”。他认为，普京一直就是个杀手，但现在他的问题不同以往，应该说非常严重。 “如果认为现在的普京会像5年前那样反应，那就大错特错了”。
+参议员泰德·克鲁兹： 印度是世界上最大的民主国家和对抗 #中共国 的关键盟友。拜登政府制裁印度将是极其短视、鲁莽和自我放纵的。
 
-三周前，法国总统伊曼纽尔·马克龙（Emmanuel Macron）前往莫斯科与普京会面。虽然以乌克兰为主题的会议未果, 两位总统坐在两端的那张巨大的桌子却成为了亮点。据CNN报道，两人坐在彼此相距近20英尺的桌子两端交谈了五个小时。
 
-按俄罗斯要求，马克龙必须在接受病毒测试, 或坐在桌子的一端, 做出选择。法国为马克龙选择了桌子, 因为那样避免了提供马克的DNA。鉴于疫情已经持续两年, 这个要求没有多大意义。特别是如果两人都接种了疫苗，就可以在空气过滤系统运行时进行对话。法国的一位谈判专家在接受路透社采访时表示，“俄罗斯人告诉我们，普京需要严格控制健康程序。”
 
-匈牙利总理维克托·奥尔班（Viktor Orban）在本月会见普京时, 也选择了巨大的桌子，也许奥班也不愿意接受俄罗斯的测试。俄罗斯外交部长谢尔盖 · 拉夫罗夫（ster Sergei Lavrov）在2月14日会见普京时, 所坐的地方与马克龙一样远。可是拉夫罗夫应该不害怕俄罗斯政府获取他的DNA。
+> It would be incredibly shortsighted, reckless, and self-indulgent for the Biden Administration to sanction India – the largest democracy in the world and a critical ally for countering China. [pic.twitter.com/UphK4vDnR9](https://t.co/UphK4vDnR9)
+> — Senator Ted Cruz (@SenTedCruz) [March 3, 2022](https://twitter.com/SenTedCruz/status/1499525813695397893?ref_src=twsrc%5Etfw)
 
-一周后，普京与俄罗斯安理会, 在一个与美国国会大厅差不多大的房间里对话。他们坐在与普京很远的距离。几天后，普京在同一地点会见了一些寡头。普京坐在房间另一端的同一张桌子旁。周一上午，普京会见了经济顾问。他又一次独自坐在房间的一端。
 
-曾在莫斯科的主要智库工作的塔蒂亚娜·斯坦诺瓦亚（Tatiana Stanovaya）说，普京不再像以往那样征求幕僚的意见，而是直接设定任务和要求，并付诸实施。她告诉泰晤士报：“在过去的两年里，他已经沉默寡言了。他已经与官僚机构、建制派和精英阶层渐行渐远。”
 
-作为专注于外交关系和情报的参议员, 卢比奥严厉批评俄罗斯的入侵。他评价普京“有点不对劲”。显而易见，俄罗斯正在总统周围制造一层孤立的泡沫，即使与他最亲密的顾问同在一个屋檐下也像咫尺天涯。这与他发动无端战争的决定相重叠了，这个决定使他的整个国家陷入孤立，这要么是一个残酷的巧合，要么是一个尚未解释的硬币的两面。
+前国务卿迈克.蓬佩奥： 因推动美台关系而被蔡英文总统奖励此殊荣，令人感到谦卑。 我们一直与你们站在一起。
 
-Source: [1](https://www.washingtonpost.com/politics/2022/02/28/putin-bizarre-isolation/) [2](https://metro.co.uk/2022/02/28/vladimir-putins-brain-scrambled-by-isolation-in-his-bunker-experts-claim-16186181/)
+
+
+> It is humbling to be honored by President Tsai for advancing the U.S.-Taiwanese relationship.
+> We stand with you. Always. [pic.twitter.com/93nRt40TFF](https://t.co/93nRt40TFF)
+> — Mike Pompeo (@mikepompeo) [March 3, 2022](https://twitter.com/mikepompeo/status/1499518899779522564?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥： 要求自由不是挑衅性的。 苏珊和我很高兴有机会与 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 外交部长吴钊燮一起进行参观 – 并享用一些被 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 制裁的澳大利亚葡萄酒。
+
+
+
+> It is not provocative to demand freedom. Susan and I are grateful for the opportunity to visit with Taiwan’s foreign minister Joseph Wu – and enjoy some CCP-sanctioned Australian wine. [pic.twitter.com/K73R2Zgzon](https://t.co/K73R2Zgzon)
+> — Mike Pompeo (@mikepompeo) [March 3, 2022](https://twitter.com/mikepompeo/status/1499493974171697156?ref_src=twsrc%5Etfw)
+
+
+
+比尔·戈茨： 当前国务卿蓬佩奥会见台湾总统时，台湾遭遇大规模停电 【附华盛顿时报比尔·戈茨文章：台湾周四遭遇大面积停电，停电中断了美前国务卿蓬佩奥与台湾总统蔡英文的会晤。 来自台湾的新闻报道称，停电影响了包括首都台北在内的七个城市，并到达了南部港口高雄。 停电发生在蓬佩奥在总统府会见蔡英文时。 虽然那里的电力没有受到影响，但计划中的网络广播被取消了。】
+
+
+
+> Taiwan hit by massive power outage as former Secretary of State Pompeo meets Taiwanese president [https://t.co/BCyWZzWRGa](https://t.co/BCyWZzWRGa)
+> — Bill Gertz (@BillGertz) [March 3, 2022](https://twitter.com/BillGertz/status/1499479109092589594?ref_src=twsrc%5Etfw)
+
+
+
+白宫： 今天，美国与盟国及合作伙伴协作，针对其他俄罗斯精英和家庭成员进行打击，尽管普京总统残酷入侵乌克兰，但他们仍继续支持他。 这些个人及其家庭成员将会从美国金融体系被剔除，他们在美国的资产被冻结，他们的财产将被禁止使用。 美国财政部@USTreasury 将在适当的情况下与司法部@TheJusticeDept 分享金融情报和其他证据，以支持刑事起诉和扣押资产。 美国将制裁普京的亲信及其家人，有一个扩展的名单。 其中一位精英是阿利舍尔·布尔哈诺维奇·乌斯马诺夫，他是俄罗斯最富有的人之一，也是普京的亲密盟友。 ………
+
+
+
+> Today, the United States, in coordination with Allies and partners, targeted additional Russian elites and family members who continue supporting President Putin despite his brutal invasion of Ukraine.
+> — The White House (@WhiteHouse) [March 3, 2022](https://twitter.com/WhiteHouse/status/1499463156762034177?ref_src=twsrc%5Etfw)
+
+
 
  
 
