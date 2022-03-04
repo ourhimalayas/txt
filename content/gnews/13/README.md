@@ -2,36 +2,20 @@
 ---
 
 
-## Hcoin To the Moon上线92天第33次位列新加坡iTunes摇滚音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2107280/)
+## 加拿大央行在高通胀率中逐步升息
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2107522/)
 
-3/4/2022 郭文贵先生的歌曲Hcoin To the Moon上线92天第33次位列新加坡iTunes摇滚音乐榜首
+加拿大温哥华扬帆农场    平民正道
+
+据加拿大《CTV新闻》3月2日报道，加拿大央行当天将其基础利率从0.25%升至0.5%，试图缓解目前自1991年以来最严重的通货膨胀。
+
+据悉，加拿大1月份的年度通胀率为5.1%，创下了三十年来的新高。近日，俄罗斯入侵乌克兰导致的油价上涨和供应链中断将进一步推高物价，旷日持久的通货膨胀将不可避免。因此，央行今后将不断提高利率来对抗日益加剧的经济危机。
+
+尽管目前的疫情不容乐观，但加拿大央行认为，公共卫生限制的被取消以及加拿大劳动力市场的复苏，都将有助于刺激消费和抑制高通胀率。
 
 * * *
 
-[【PDF 下载】Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
-
-
-[【PDF 下载】Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-4-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+编辑： 平民正道    发布：平民正道
 
  
 

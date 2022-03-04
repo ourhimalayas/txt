@@ -15,80 +15,80 @@
 
 ---
 
-### [3/4/2022 文贵盖特：中共洗脑中国人支持俄罗斯的非正义战争！中共宣布撤出了在乌克兰的所有华人20小时后，有4个中国学生死于俄军炮火，又有20人死亡](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
+### [中共官方文件被曝：疫苗已致大量白血病](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [瑞典首相安德松的首次全国电视讲话](/content/gnews/2/README.md)
- ` XINYUAN`
-
-### [DC大中华时事：台电“每逢大事就出事应查内鬼”](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [HPAY交易跃上世界舞台](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [加拿大央行在高通胀率中逐步升息](/content/gnews/5/README.md)
+### [习近平要求普京在冬奥会后入侵乌克兰](/content/gnews/2/README.md)
  ` 扬帆枫叶快讯`
 
-### [娘，您在哪里](/content/gnews/6/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+### [加密货币交易在俄罗斯大行王道](/content/gnews/3/README.md)
+ ` 扬帆枫叶快讯`
 
-### [温哥华顶层公寓成为加拿大最昂贵的公寓房源](/content/gnews/7/README.md)
- ` MG FARM`
+### [俄乌战争将导致最严重的通货膨胀](/content/gnews/4/README.md)
+ ` 扬帆枫叶快讯`
 
-### [3/4/2022 文贵盖特：感谢战友们在文贵母亲冥诞三周年发信息过来！战友们在前线救人是给我母亲很好的回报](/content/gnews/8/README.md)
+### [俄罗斯阻止外国投资撤离](/content/gnews/5/README.md)
+ ` 扬帆枫叶快讯`
+
+### [俄罗斯封锁脸书](/content/gnews/6/README.md)
+ ` Shuizhuyu`
+
+### [特鲁多未能保护受中共迫害的加拿大人](/content/gnews/7/README.md)
+ ` 扬帆枫叶快讯`
+
+### [3/4/2022 文贵盖特：感谢上天赐予文贵跟家人团聚的长长的梦夜！文贵的《锁链梦》是给母亲的礼物](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [多伦多警察枪杀安大略枪匠，经SIU调查后被免除责任](/content/gnews/9/README.md)
- ` MG FARM`
+### [加拿大安省终止疫苗护照](/content/gnews/9/README.md)
+ ` 扬帆枫叶快讯`
 
-### [北约，“乌克兰未来几天形势将更加恶化，死亡人数会更多”](/content/gnews/10/README.md)
+### [3/4/2022 文贵盖特：中共洗脑中国人支持俄罗斯的非正义战争！中共宣布撤出了在乌克兰的所有华人20小时后，有4个中国学生死于俄军炮火，又有20人死亡](/content/gnews/10/README.md)
+ ` 秘密翻译组-北美组`
+
+### [瑞典首相安德松的首次全国电视讲话](/content/gnews/11/README.md)
+ ` XINYUAN`
+
+### [DC大中华时事：台电“每逢大事就出事应查内鬼”](/content/gnews/12/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [加拿大央行在高通胀率中逐步升息](/content/gnews/13/README.md)
+ ` 扬帆枫叶快讯`
+
+### [娘，您在哪里](/content/gnews/14/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [3/4/2022 文贵盖特：感谢战友们在文贵母亲冥诞三周年发信息过来！战友们在前线救人是给我母亲很好的回报](/content/gnews/15/README.md)
+ ` 秘密翻译组-北美组`
+
+### [北约，“乌克兰未来几天形势将更加恶化，死亡人数会更多”](/content/gnews/16/README.md)
  ` xiaobaige`
 
-### [特鲁多宣布与密西沙加交通联合投资 6.75 亿美元，并承诺三个新项目](/content/gnews/11/README.md)
- ` MG FARM`
-
-### [莱恩科尔医生：“疫苗”对人体器官灾难性的损害](/content/gnews/12/README.md)
+### [莱恩科尔医生：“疫苗”对人体器官灾难性的损害](/content/gnews/17/README.md)
  ` mayflowertranslate`
 
-### [Hcoin To the Moon上线92天第33次位列新加坡iTunes摇滚音乐榜首](/content/gnews/13/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [习近平要求普京在冬奥会后入侵乌克兰](/content/gnews/14/README.md)
+### [习近平要求普京在冬奥会后入侵乌克兰](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [俄罗斯可能制造“栽赃行动”轰炸自己人](/content/gnews/15/README.md)
+### [俄罗斯可能制造“栽赃行动”轰炸自己人](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [四方安全对话：乌克兰事件不该在印太地区发生](/content/gnews/16/README.md)
+### [四方安全对话：乌克兰事件不该在印太地区发生](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【秘翻时评】欧洲最大核电厂 已遭俄罗斯军方控制](/content/gnews/17/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [谁是普京对乌克兰发动战争的真正幕后推手？](/content/gnews/18/README.md)
+### [谁是普京对乌克兰发动战争的真正幕后推手？](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [通过喜交所购买标志性的迈凯轮汽车引发对加密数字货币的信任](/content/gnews/19/README.md)
+### [通过喜交所购买标志性的迈凯轮汽车引发对加密数字货币的信任](/content/gnews/22/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [新西兰财经G乐部2022年3月4日:财经新闻整理](/content/gnews/20/README.md)
+### [新西兰财经G乐部2022年3月4日:财经新闻整理](/content/gnews/23/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [侵略乌克兰的俄罗斯军队故意打击民用基础设施](/content/gnews/21/README.md)
+### [侵略乌克兰的俄罗斯军队故意打击民用基础设施](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|普京为入侵乌克兰炮制的虚假理由及真相](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [【G时新闻】四方领导人承诺 绝不允印太区上演乌克兰情况](/content/gnews/23/README.md)
- ` G-时新闻`
-
-### [我们是新中国联邦战友，我们来了！](/content/gnews/24/README.md)
+### [我们是新中国联邦战友，我们来了！](/content/gnews/25/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
-
-### [美国及世界疫情简报（03-04-2022）](/content/gnews/25/README.md)
- ` 波士顿五月花农场`
 
 ### [3/4/2022国际财经快讯：受制裁影响俄罗斯公司急于开设中国银行账户；乌克兰央行行长表示银行系统仍然具有弹性](/content/gnews/26/README.md)
  ` 秘密翻译组金融团队`

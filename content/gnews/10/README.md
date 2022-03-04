@@ -2,18 +2,10 @@
 ---
 
 
-## 北约，“乌克兰未来几天形势将更加恶化，死亡人数会更多”
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2107427/)
+## 3/4/2022 文贵盖特：中共洗脑中国人支持俄罗斯的非正义战争！中共宣布撤出了在乌克兰的所有华人20小时后，有4个中国学生死于俄军炮火，又有20人死亡
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2107590/)
 
-#### 翻译                   意大利达芬奇农场                         小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-04-alle-16.24.18.png)图片来源：tgcom24.mediaset.it
-俄罗斯入侵乌克兰“是几十年以来在欧洲发生的最糟糕的军事入侵，学校、医院和居民区都遭受了轰炸及对核电站的袭击”。
-
-这是北约秘书长延斯•斯托尔滕贝格在与北约外长特别峰会之后说的一番话，他还补充说：“在未来的几天情况很可能更加恶化， 死亡人数更多，更具摧毁性。  ”
-
-原文链接： [https://www.tgcom24.mediaset.it/mondo/ucraina-nato-i-prossimi-giorni-andranno-ancora-peggio-con-piu-morti\_46880458-202202k.shtml](https://www.tgcom24.mediaset.it/mondo/ucraina-nato-i-prossimi-giorni-andranno-ancora-peggio-con-piu-morti_46880458-202202k.shtml)
-
-编辑、上传：Xiao  baige
+秘密翻译组-北美组
 
  
 
