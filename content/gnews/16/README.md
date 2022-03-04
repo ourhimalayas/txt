@@ -2,24 +2,34 @@
 ---
 
 
-## 樱花FM|邪恶的中共政权才是万恶之源（四）
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2104635/)
+## 普京加强外汇管控
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2104738/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/O2cJwYLGVSF9UYPaZ0u5kBRy1Tz6sGGalMbehOebKBqQUNuFuY00AqzeYP43gk-i0sCS8QhFNhuPu-jbqVOqeYylz6Tmu9nUPqzLn_4m7FqhVZqklnZ4Svs77Rj5wjR6dtO8AUEV)
-2022年2月28日郭文贵先生盖特视频爆料：所谓的“比爹娘还亲的共产党人”怎么会救他们的奴隶呢？对于救他们自己的人各方面都有条件，救这些穷苦老百姓却没条件！这帮孙子就这么烂呢！但是，自从我们新中国联邦开始了这个救援行动却激怒了共产党。共产党在内部开会“坚决阻止郭文贵和新中国联邦利用这个他们的这个所有的资源，救更多的人，救这些奴隶！”所以中共就整了几台大客车，在乌克兰，实际上就两台，要救几个自己的小舅子小姨子什么的，到波兰去，这帮孙子多坏啊！
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+俄罗斯周二表示，它尚未对因入侵乌克兰而引发的西方和美国制裁雪崩做出全面回应。外交部发言人扎哈罗娃警告称 ，西方民众还没有感受到制裁即将对他们的生活产生的影响。
+![俄罗斯央行澄清普京的资本管制令- 华尔街日报](https://images.wsj.net/im-495213?width=1280&amp;size=1.77777778)WSJ
+随着西方的经济制裁不断升级的，俄罗斯已经启动了进一步的金融稳定工作。据路透社援引国际文传电讯社的一份克里姆林宫声明称，普京在当地时间周二晚些时候发布了一项法令，禁止所有价值超过1万美元的外汇现金出口。
 
-中共自建政以来，疯狂的用商鞅五术来统驭着可怜的中国老百姓，对中国老百姓不断进行贫民、疲民、愚民、辱民、弱民政策，使中国老百姓始终生活在贫困痛苦之中！现在，号称盛世的中共国还在上演着现实版的朱门酒肉臭，路有冻死骨啊！强大的中共国，竟然还有无数个徐州丰县锁链女的存在，真是让人痛心啊！在中共盗国贼眼中，他们根本不拿老百姓当人，只是一群奴隶罢了！
+俄罗斯央行同时宣布，随着俄罗斯资产不断受到重创，包括卢布在过去几天跌至两年低点，俄罗斯准备采取一切必要措施来维持金融稳定。
 
-共产党从来不会让中国人民享受任何好东西，更不允许你得到任何尊重，一切都要听党的，一切都要是党给的，否则怎么奴役你呢？这帮王八蛋太坏了，在他眼里边国民连垃圾猪狗都不如，当国民有别的逃生机会，不要说新中国联邦救，谁能救都行，就这么简单，就这他们也阻挡，还公开在一个国家媒体上说不要上人家当！这帮孙子有多坏啊？当国民生命处在战争之中，受到随时被消灭的危险时，他们还忙着搞宣传，这就是邪恶的、流氓的共产党！
+与此同时， 《莫斯科时报》报道称，“美国零售巨头耐克和苹果公司已经暂时停止在俄罗斯在线商店的销售，这肯定会给俄罗斯人民带来更多不便。”
 
-目前，新中国联邦正在积极营救中国同胞，尽可能的多救一个是一个，哪怕是零个，我们也尽心尽力了！而邪恶的中共却一点诚意都没有，处处找困难找理由！我想问问这帮孙子，新中国联邦就没有困难？他们怎么就能克服，你们堂堂一个世界强国却无能为力？庆父不死鲁难未已，中共不灭 灾难不止！现在的乌克兰上空飘荡着，唯一可信赖的中国人的声音，不是你邪恶的共产党，而是伟大的新中国联邦！！
+该公告表明，越来越多的西方产品仅是运往俄罗斯都变得越来越困难.
 
-文字版原文：[邪恶的中共政权才是万恶之源（四）](https://gnews.org/zh-hans/2086520/)
+参考链接：[Putin bans exports of more than $10,000 – The Moscow Times](https://hindustannewshub.com/russia-ukraine-news/putin-bans-exports-of-more-than-10000-the-moscow-times/)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

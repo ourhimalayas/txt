@@ -2,20 +2,21 @@
 ---
 
 
-## 俄乌战争｜民间踊跃捐款赈灾乌克兰 总统：与自由民主站在一起
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2104844/)
+## 视频|美国宣布对俄罗斯关闭领空
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2104913/)
 
-**撰文/ 港台前線｜發佈日期/ 04/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music_Clip.jpg)更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
-台湾[外交部透过财团法人赈灾基金会自2日开立乌克兰捐款专户](https://gnews.org/zh-hant/2092781/)，截至3日下午5时，捐款人数总计达1万5677人。据最新报导指出，今日赈灾捐款额已经累计破亿。
+制作：香草山视频部
 
-4日，总统蔡英文在高雄中山大学访视双语教育课程时，有1名来自乌克兰的学生向蔡表示，感谢台湾对她的家乡支持。而蔡则回应，“We’ll do whatever we can for Ukraine. ”台湾会尽我们所能，全力支持乌克兰，跟自由、民主的价值站在一起。
+3月1日，据当地媒体报道，美国总统拜登当天晚间宣布，将禁止俄罗斯飞机进入美国领空，作为对俄罗斯入侵乌克兰的进一步制裁。这是继欧盟、英国和加拿大先后宣布对俄罗斯关闭领空之后，美国的明确表态，而美国此举将彻底封死俄罗斯飞往南半球的快捷航线。
 
-[賑災基金會](https://www.rel.org.tw/Page?itemid=46&amp;mid=102)新闻稿指出，将汇集民间力量，协助乌克兰境内流离失所的人民或逃往其他国家的难民维持基本生活及健康之必需。俄乌战火延烧，据估计，未来几个月，乌克兰境内将有1200万人急需协助及救护，超过400万难民将持续寻求邻近国家提供庇护。
+此前，由于俄乌局势的恶化，美国政府已经将俄罗斯认定为危险地区。为此，联邦政府向本国居民发布了针对俄罗斯的旅行禁令并呼吁俄罗斯当地的美国民众尽快撤离。另外，美国的各大快递物流公司在上周末相继暂停了运往俄罗斯的货物。同时，美国政府还禁止本土航班飞往俄罗斯，至于飞往亚洲的大部分航班则必须改道经过大西洋和欧洲，用以避开进入俄罗斯领空。
 
-[Taiwan Can Help, and Taiwan is Helping!](https://www.mofa.gov.tw/cp.aspx?n=2202)
+发稿：林礼
 
-來源｜[UDN](https://udn.com/news/story/122702/6138401)、[ETtoday](https://www.ettoday.net/news/20220304/2201444.htm)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

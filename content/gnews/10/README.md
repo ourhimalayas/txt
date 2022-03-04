@@ -2,34 +2,36 @@
 ---
 
 
-## 普京加强外汇管控
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2104738/)
+## 四国集团一致同意不允许乌克兰事件在印太发生
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2104824/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-俄罗斯周二表示，它尚未对因入侵乌克兰而引发的西方和美国制裁雪崩做出全面回应。外交部发言人扎哈罗娃警告称 ，西方民众还没有感受到制裁即将对他们的生活产生的影响。
-![俄罗斯央行澄清普京的资本管制令- 华尔街日报](https://images.wsj.net/im-495213?width=1280&amp;size=1.77777778)WSJ
-随着西方的经济制裁不断升级的，俄罗斯已经启动了进一步的金融稳定工作。据路透社援引国际文传电讯社的一份克里姆林宫声明称，普京在当地时间周二晚些时候发布了一项法令，禁止所有价值超过1万美元的外汇现金出口。
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-俄罗斯央行同时宣布，随着俄罗斯资产不断受到重创，包括卢布在过去几天跌至两年低点，俄罗斯准备采取一切必要措施来维持金融稳定。
+3月3日，日本首相表示，美国、印度、澳大利亚和日本四国集团领导人一致同意，不应让乌克兰的事情在印太地区发生。
 
-与此同时， 《莫斯科时报》报道称，“美国零售巨头耐克和苹果公司已经暂时停止在俄罗斯在线商店的销售，这肯定会给俄罗斯人民带来更多不便。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/四国.jpg)（图片来自Japan’s Cabinet Public Relations Office/AFP）
 
-该公告表明，越来越多的西方产品仅是运往俄罗斯都变得越来越困难.
+据《大纪元》报道，四国集团首脑3日举行了在线会议。日本首相岸田文雄在与美国总统乔·拜登、澳大利亚总理斯科特·莫里森和印度总理纳伦德拉·莫迪会晤后对记者说：“我们已经同意，不应允许在印度-太平洋地区发生这种以武力单方面改变现状的事情。我们还同意，乌克兰局势的发展使得努力实现自由和开放印太地区变得更加重要。“
 
-参考链接：[Putin bans exports of more than $10,000 – The Moscow Times](https://hindustannewshub.com/russia-ukraine-news/putin-bans-exports-of-more-than-10000-the-moscow-times/)
+莫里森在会后发表的一份声明中也表示，四国集团不能允许现在乌克兰正在发生的事情在印太地区发生。“
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+他补充说：“我们坚定地致力于建设一个自由开放的印太地区，让小国不必担心更强大的国家。“
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
+此外，四国联合声明称，领导人会晤重申他们对自由和开放印太地区的承诺，所有国家的主权和领土完整都受到尊重，各国不受军事、经济和政治胁迫。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+拜登在推特上说，“与四国集团领导人的会晤涵盖了我们对世界各地主权和领土完整的承诺，包括在印太地区。“
+
+印度总理办公室则表示，莫迪强调，四国集团必须继续专注于促进印太地区和平、稳定与繁荣的核心目标。
+
+对于此次四国集团的会晤，台湾驻华盛顿代表处表示，欢迎四国对自由开放印太地区的承诺，台湾将继续与该地区所有爱好和平的伙伴合作，以实现繁荣与稳定。
+
+参考链接：
+[https://www.epochtimes.com/b5/22/3/3/n13619911.htm](https://www.epochtimes.com/b5/22/3/3/n13619911.htm)
+
+素材采编：幽蘭自得
+编辑：老孙
+发布：Linda
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
