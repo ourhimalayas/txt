@@ -2,51 +2,67 @@
 ---
 
 
-## 第230期 玫瑰看新闻
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2105814/)
+## 有声|对比和伤害
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2105863/)
 
-【玫瑰看新闻】每日快讯
+配音：香草山媒体部 – Gtv abeilles (蜜蜂）
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+没有对比就没有伤害
+没有伤害就不会醒来
+总是要付出血的代价
+才会在
+铁幕沉沉心田
+开出一丝缝隙
+让光
+透进来
 
-📰1.俄罗斯总统普京宣布在乌克兰开展军事行动
+被谎言笼罩世界
+欺骗总是家常便饭
+人与人之间信任
+就是这样被毁坏
+爱
+离开
+越来越远
+留下的
+是荒漠与干寒
 
-📰2.新西兰宣布对俄罗斯实施旅行禁令及限制外交活动
+还不醒来
+还不醒来
+没有了毒食品
+没有饱腹感
+习惯了谎言
+不敢信
+唯真不破世界
 
-📰3.加拿大制裁俄罗斯个人实体及取消出口许可
-
-📰4.俄国防部称乌克兰航空基地军事基础设施已瘫痪
-
-📰5.乌克兰危机升级引发中共国及美国股市下跌
-
-📰6.俄紧急情况代理部长称超过九万六千名顿巴斯难民越过俄罗斯边境
-
-📰7.新西兰Covid-19 疫情爆炸式飙升至12,011 例新病例五人死亡引发民众暴力情绪
-
-
-
-
-
+还不醒来
+还不醒来
+炮灰纷飞土地上
+请看见爱与关怀
+打开心田
+让光进来
+唯真不破世界
+就在身边
+醒来，醒来
+让光进来
+新中国联邦救援
+就在身边
 
 
-**推出问题，敲出真相，爆料在路上！**
 
-**请关注和订阅我们的以下账号：**
+文字版原文：[对比和伤害](https://gnews.org/zh-hans/2099339/)
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
 
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

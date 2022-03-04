@@ -2,67 +2,36 @@
 ---
 
 
-## 有声|对比和伤害
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2105863/)
+## 世界银行暂停在俄罗斯和白俄罗斯所有业务
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2105945/)
 
-配音：香草山媒体部 – Gtv abeilles (蜜蜂）
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-没有对比就没有伤害
-没有伤害就不会醒来
-总是要付出血的代价
-才会在
-铁幕沉沉心田
-开出一丝缝隙
-让光
-透进来
+撰稿：纽约香草山–Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-1.png)
+3月2日，世界银行发布声明表示，在俄罗斯开始入侵乌克兰，并对乌克兰人民实施敌对行动后，世界银行立即停止了在俄罗斯和白俄罗斯的所有项目。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-372.png)图片来自：https://www.investopedia.com/thmb/
+在该声明中，世界银行表示：自2014年以来，世界银行集团没有批准在俄罗斯的任何新贷款或投资。而自2020年年中以来，白俄罗斯也没有获得任何新的信贷批准。现在，在战火之下，这两个国家正在实施的其他项目也被全部停止。
 
-被谎言笼罩世界
-欺骗总是家常便饭
-人与人之间信任
-就是这样被毁坏
-爱
-离开
-越来越远
-留下的
-是荒漠与干寒
+此外，世界银行于3月1日表示，计划在未来几个月为乌克兰提供30亿美元的支持，国际货币基金组织也在计划向乌克兰提供紧急援助。
 
-还不醒来
-还不醒来
-没有了毒食品
-没有饱腹感
-习惯了谎言
-不敢信
-唯真不破世界
+链接：
 
-还不醒来
-还不醒来
-炮灰纷飞土地上
-请看见爱与关怀
-打开心田
-让光进来
-唯真不破世界
-就在身边
-醒来，醒来
-让光进来
-新中国联邦救援
-就在身边
+[World Bank halts all projects in Russia, Belarus with ‘immediate effect’](https://newsable.asianetnews.com/amp/business/world-bank-halts-all-projects-in-russia-belarus-with-immediate-effect-gcw-r85h4u)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
+编辑：飞虹
 
-文字版原文：[对比和伤害](https://gnews.org/zh-hans/2099339/)
+总编：雪梨
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
