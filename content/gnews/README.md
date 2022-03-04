@@ -141,35 +141,35 @@
 ### [中日财经爆|印度指控华为逃税](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [IAEA谴责俄罗斯入侵乌克兰 中共国投反对票](/content/gnews/43/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [疫苗灾难显现：美国两周内至少有20人死于空难事故](/content/gnews/44/README.md)
+### [疫苗灾难显现：美国两周内至少有20人死于空难事故](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022年中共国高校毕业生达1076万人](/content/gnews/45/README.md)
+### [2022年中共国高校毕业生达1076万人](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共正在对全世界发动网络战争](/content/gnews/46/README.md)
+### [中共正在对全世界发动网络战争](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻新闻｜受俄攻击 欧最大核电站起火](/content/gnews/47/README.md)
+### [秘翻新闻｜受俄攻击 欧最大核电站起火](/content/gnews/46/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [俄乌战争｜乌方证实欧洲最大核电厂已落入俄军手中 西方领袖齐声谴责](/content/gnews/48/README.md)
+### [俄乌战争｜乌方证实欧洲最大核电厂已落入俄军手中 西方领袖齐声谴责](/content/gnews/47/README.md)
  ` 關注組`
 
-### [泽连斯基：俄已诉诸“核恐怖”](/content/gnews/49/README.md)
+### [泽连斯基：俄已诉诸“核恐怖”](/content/gnews/48/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [新中国联邦积极开展战争救援](/content/gnews/50/README.md)
+### [新中国联邦积极开展战争救援](/content/gnews/49/README.md)
  ` 波士顿五月花农场`
 
-### [中共两会｜中共政协十三届五次会议今起开幕为期六日（看点持续更新）](/content/gnews/51/README.md)
+### [中共两会｜中共政协十三届五次会议今起开幕为期六日（看点持续更新）](/content/gnews/50/README.md)
  ` 關注組`
 
-### [俄乌战争｜欧洲最大核电站遭轰炸 乌外长警告灾难或较切尔诺贝利严重十倍](/content/gnews/52/README.md)
+### [俄乌战争｜欧洲最大核电站遭轰炸 乌外长警告灾难或较切尔诺贝利严重十倍](/content/gnews/51/README.md)
  ` 關注組`
+
+### [中共趁美国前国务卿蓬佩奥访台之际，作妖台湾大停电](/content/gnews/52/README.md)
+ ` YALUN 亚伦`
 
 ### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/53/README.md)
  ` 纽约香草山MOS02`
