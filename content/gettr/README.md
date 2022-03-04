@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/4/2022 3:00 AM (UTC)`
+
+Prince and Rachel from NFSC on War Room: New Federal State of China is evacuating people from Ukraine to a safe transit country, offering free flights and free accommodations and food for up to 30 days.<br/><br/>新中国联邦战友小王子和瑞秋作客战斗室：新中国联邦人正在帮助人们撤离乌克兰到安全的中转国，并提供免费的飞机和30天以内的免费食宿。<br/><br/><br/>
+![img](https://media.gettr.com/group17/getter/2022/03/04/03/b2dadf8e-2155-6a63-0af4-3298dcbdaddb/out.jpg)
+
+---
+
 `@miles 3/4/2022 2:46 AM (UTC)`
 
 <br/>3月3号：文贵在这里衷心地感谢全球的战友发来的各种的信息！全球的兄弟姐妹们与我同在的感觉真的是太棒了！由于各种信息太多太多了，我没办法一一回复，拜托战友们千万不要再发信息了，我们的心同在……现在我选出一个我们有代表性的战友的信息与大家分享万分的感谢。【敬爱的七哥好！<br/><br/>今天才是二月二龙抬头，我提前理发、沐浴更衣，素食静待这一天。由于前天突然把我们拉到一起让我激动的痛哭失态，控制不住，把当时写好的准备今天发给您的文字发过去了。<br/><br/>此时此刻我怀着虔诚而沉痛的心情焚香静默纪念娘的三周年冥诞日，缅怀她老人家光辉伟大人生。<br/>七哥你说你是有上天使命的，娘何尝不也是有上天的使命！在那样极其艰难困苦的年代，生活的重担在老娘瘦弱的肩上，在你幼小的心灵打下深深的烙印，放学回到家见不到娘就急忙跑去看井里，娘是否承受不住生活重担跳井了？在农村长大的我对那土井太熟悉了，井台有几块大石板，用超过井深长度的绳提着桶摇水，摇水不仅是体力活更是技术活，不会摇还摇不满桶呢。这生活中的点点滴滴潜移默化的教育着您，娘没有说教，娘身体力行，是你坚毅、执着、不弯腰、不屈服的性格源泉。人生第一位老师是父母，尤其是母亲，她给了我们血肉之躯，更是我们人生的启蒙师！可以想象您的待人接物坦诚做人“唯真不破”一定受娘的影响……说到坚毅，您三年前的戴孝留须的形象映在眼前，每次想起都激动万千泪流满面……娘走了，三年了……“想见音容空有泪，欲闻教诲杳无声”在此我深情纪念我慈祥善良伟大的娘，激励自己，坚定自己跟随七哥您去完成这人类历史上前所没有的伟大事业～爆料革命！拙文陋字是为娘冥诞三周年记<br/>听，七哥“七儿，干死这些狗日的！”<br/>我也听到了……娘说“七儿，你要多保重自己！让娘放心。”<br/><br/>老皮将<br/>给娘三叩首！！！ <br/>壬寅年二月二日】
@@ -149,13 +156,6 @@ We’ve seen this coming, and we’ve been reactionary. That gave Vladimir Putin
 
 3/2/2022 Miles Guo: Internal voices against Putin are coming out in Russia; The US and the UN are planning further sanctions on Russia; the US is surprised by the huge amount of Russian assets hidden in the US, and the amount of CCP’s assets hidden in the US will be even shocking<br/><br/>3/2/2022 文贵直播：俄罗斯内部起剧变，普京身边开始出现反对声；美国及联合国会对俄罗斯有进一步制裁；美国对俄罗斯人藏在美国的巨额资产倍感惊讶，中共的在美资产更会让美国瞠目<br/>
 ![img](https://media.gettr.com/group10/getter/2022/03/02/23/6fc42a19-783d-df77-7f6b-10c7b2682c65/out.jpg)
-
----
-
-`@miles 3/2/2022 11:03 PM (UTC)`
-
-3/2/2022 Miles Guo: The rescue led by the New Federal State of China is only for saving lives with no selfishness; we will save lives at all cost, but we must ensure the safety of everyone; rescued people can freely choose where you want to go afterwards; the CCP only saves their own people unconditionally while leaving ordinary Chinese behind<br/><br/>3/2/2022 文贵直播：新中国联邦的大营救没有私心只为救人；我们为救人不会考虑成本代价，但要绝对保证所有人的安全；被救出的人有自由选择出路的权利；中共只会无条件救自己的人，完全不顾普通中国公民的生死<br/>
-![img](https://media.gettr.com/group38/getter/2022/03/02/23/9fe57cc9-199a-8254-ebb9-83e4bbdbf0fe/out.jpg)
 
 ---
 

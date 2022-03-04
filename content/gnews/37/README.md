@@ -2,33 +2,34 @@
 ---
 
 
-## 现金、尿布和波兰境内位于克拉科夫的房子：这些都是加拿大人正在为帮助乌克兰人做出的奉献
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2101321/)
+## 莫斯科和基辅就乌克兰的人道主义走廊达成一致
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2101335/)
 
-**翻译：追郭大姨**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-320.png)图片来源：[Toronto Star](https://www.thestar.com/news/canada/2022/03/02/cash-diapers-or-a-home-in-krakow-heres-what-canadians-are-contributing-to-help-ukraine.html)
-加拿大人向乌克兰提供帮助，帮助他们对抗入侵的俄罗斯军队。随着俄罗斯入侵乌克兰进入第二周，越来越多的加拿大人响应了帮助乌克兰对抗普金的呼吁。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-从东海岸到西海岸，加拿大人都在捐赠医疗用品和安全设备，比如军用头盔。很多人在努力为国防和人道主义提供资金援助。可悲的是普金正在加大对乌克兰人的打击力度。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Ukraine-Konflikt-Gespraeche-in-Belarus.jpg)
 
-对于那些从多伦多到波兰的志愿者来说，对乌克兰难民的帮助就更为直接。同时，在加拿大温尼伯的一个民间组织已经收集了数千公斤的人道主义援助，从收音机到尿布。
 
-**评论：**加拿大是世界上最美丽最热爱和平的国家之一，这里有醉人的风景和善良可爱的人们，这里的一切都是那么的平和。当我第一次踏上这块土地就深深地爱上了这里。很遗憾！现在这个爱好和平的国家，也发生了不平和的事。但我坚信善良坚毅的加拿大人一定会很快走出黑暗, 迎来一个属于加拿大人自己的美好明天！
+图片来源：德新社
 
-**原文链接：
-**[Toronto Star: Cash, diapers, or a home in Krakow: here’s what Canadians are contributing to help Ukraine](https://www.thestar.com/news/canada/2022/03/02/cash-diapers-or-a-home-in-krakow-heres-what-canadians-are-contributing-to-help-ukraine.html)
+在白俄罗斯和波兰的边境地区，乌克兰和俄罗斯的代表团再次进行了交谈——并取得了初步成果。外交部长谢尔盖·拉夫罗夫（Sergey Lavrov）此前曾指责美国，此次谈判也相似。
 
-**编辑：LILY**
+在第二轮谈判中，俄罗斯和乌克兰已同意在乌克兰特别艰苦的地区建立人道主义走廊。这是双方代表周四会晤后所说的。与此同时，乌克兰总统顾问米哈伊洛·波多利亚克强调，一些希望的结果尚未实现。应该进行第三轮谈判。
 
-**发布：MQ**
+白俄罗斯的第一轮谈判于周一结束，没有结果。在第二轮谈判开始前，基辅政府曾强调不会接受莫斯科的任何“终极”。
 
-**校对：NIE**
+根据乌克兰总统沃拉迪米尔泽连斯基的说法，为了结束战争，需要在一些方面做出妥协。泽连斯基在电视讲话中说，如果莫斯科政府平等对待乌克兰，乌克兰和俄罗斯就可以实现这一目标。 “有些事情必须妥协，这样人们才不会死，”他解释说。 “但也有一些事情是不可能妥协的。”
 
-20220303
+俄罗斯外交部长谢尔盖·拉夫罗夫此前曾宣布，该国准备与乌克兰进行谈判，但同时又想继续袭击乌克兰的军事设施。拉夫罗夫说，西方不断升级乌克兰并训练其士兵将其变成对抗俄罗斯的堡垒。西方国家想要破坏俄罗斯的一切。
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+在核战争的警告中，拉夫罗夫指责西方危言耸听和“歇斯底里”。 “每个人都知道，第三次世界大战只能是核战争，”拉夫罗夫说。然而，这个问题只出现在西方政治家的头脑中，而不是俄罗斯人的头脑中。
+
+“我向你保证，我们不会允许任何使我们失去平衡的挑衅行为，”拉夫罗夫在接受俄罗斯和国际媒体的国家电视台采访时说。 “但如果（西方）开始对我们发动真正的战争，那些制定此类计划的人应该考虑一下，我认为他们正在考虑这一点。”
+
+🔗 [莫斯科和基辅就乌克兰的人道主义走廊达成一致](https://www.welt.de/politik/ausland/article237272817/Krieg-in-der-Ukraine-Einigung-auf-humanitaere-Korridore.html)
+
+编辑发表： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
