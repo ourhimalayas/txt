@@ -2,41 +2,34 @@
 ---
 
 
-## 樱花FM|日本奥密克戎后遗症患者正在迅速增加
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2104584/)
+## 普京加强外汇管控
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2104738/)
 
-音频：东京樱花团/战友520
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+俄罗斯周二表示，它尚未对因入侵乌克兰而引发的西方和美国制裁雪崩做出全面回应。外交部发言人扎哈罗娃警告称 ，西方民众还没有感受到制裁即将对他们的生活产生的影响。
+![俄罗斯央行澄清普京的资本管制令- 华尔街日报](https://images.wsj.net/im-495213?width=1280&amp;size=1.77777778)WSJ
+随着西方的经济制裁不断升级的，俄罗斯已经启动了进一步的金融稳定工作。据路透社援引国际文传电讯社的一份克里姆林宫声明称，普京在当地时间周二晚些时候发布了一项法令，禁止所有价值超过1万美元的外汇现金出口。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/日本奥密克戎后遗症患者正在迅速增加.png)
+俄罗斯央行同时宣布，随着俄罗斯资产不断受到重创，包括卢布在过去几天跌至两年低点，俄罗斯准备采取一切必要措施来维持金融稳定。
 
-虽然新冠病毒的新感染人数正在减少，但是患有奥密克戎毒株后遗症的人数正在迅速增加。
+与此同时， 《莫斯科时报》报道称，“美国零售巨头耐克和苹果公司已经暂时停止在俄罗斯在线商店的销售，这肯定会给俄罗斯人民带来更多不便。”
 
-有媒体采访了东京一家致力于后遗症治疗的诊所。
+该公告表明，越来越多的西方产品仅是运往俄罗斯都变得越来越困难.
 
-涩谷区平畑诊所的新冠后遗症门诊上周检查了约 350 名患者。
+参考链接：[Putin bans exports of more than $10,000 – The Moscow Times](https://hindustannewshub.com/russia-ukraine-news/putin-bans-exports-of-more-than-10000-the-moscow-times/)
 
-自1月下旬以来，患者人数增加了约1.5倍。
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
-一位40多岁的患者说：“我早上起来只洗了衣服，很快就觉得累了……” 医生问：“如果你继续做下去，会觉得不舒服吗？” 病人说：“我只是在早上能活动一些，下午会有发烧等不适症状”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
 
-一名女性在1月下旬感染了奥密克戎后出现了类似感冒的症状。但是， 发病后约10天，开始出现胸痛等症状，曾经重返工作岗位，但现在却因病情加重被迫休职。
-
-另一40多岁的女士“似病愈后复工第4天，突然感觉非常难受，站立不起来，只好早退，耳朵虽可听见，脑子有意识，但是活动不了，真的很吓人。”
-
-平畑光一院长称，感染后，会突然出现强烈的倦怠、疲劳感，而且症状可能会在短时间内恶化或病情延长，呼吁人们理解那些抱怨后遗症的人。
-
-平畑院长说：“肌肉疼痛性脑脊髓炎和慢性疲劳综合症两者病情症状非常接近。而且常见持续时间长达二周，奥密克戎感染初期症状虽然较轻，但是之后会发生什么事完全不可预测，所以我认为有必要采取严格的措施来预防感染。”
-
-文字版原文：
-
-
-| [日本奥密克戎后遗症患者正在迅速增加](https://gnews.org/zh-hans/2081459/) |
-| --- |
-
-
-*编辑：东京樱花团/asket   
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
