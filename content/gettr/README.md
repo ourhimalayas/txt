@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@rockvision 3/4/2022 7:14 PM (UTC)`
+
+#鸡血快报<br/>#鸡血王喜币大作战<br/>#战友威廉王<br/>
+![img](https://media.gettr.com/group34/gvision/2022/03/04/19/75712785-2a7e-e266-de79-9afd29590ba5/out.jpg)
+
+---
+
 `@miles 3/4/2022 5:54 PM (UTC)`
 
 3月4号：请所有被困乌克兰的中国同胞，马上和能救你的这个信息和电话联系，你们会得到像亲生父母．兄弟姐妹一样的照顾．没有任何条件，不许付任何费用也不需要提供任何个人所谓的你认为宝贵的信息！没有比生命的宝贵了，不要再被共产党欺骗了……
@@ -151,13 +160,6 @@ Prince and Rachel from NFSC on War Room: New Federal State of China is evacuatin
 
 We’ve seen this coming, and we’ve been reactionary. That gave Vladimir Putin, who is an evil thug, the opportunity to drive his mission and set the pace.
 ![img](https://media.gettr.com/group10/origin/2022/03/03/18/e9e45387-f69f-6a41-2d76-fa94362c5fb8/out.jpg)
-
----
-
-`@miles 3/3/2022 6:08 PM (UTC)`
-
-.
-![img](https://media.gettr.com/group44/origin/2022/03/03/18/83c3aa93-b26d-a44c-89c4-60250a6ef4ac/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
