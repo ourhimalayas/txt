@@ -2,35 +2,49 @@
 ---
 
 
-## 俄罗斯对乌克兰总统的暗杀行动失败
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2106507/)
+## 俄外长警告：第三次世界大战“将是核战”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2106712/)
 
-作者：纽约香草山农场-6zero4
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月1日，据相关媒体报道，乌克兰高级官员丹尼洛夫在当天的新闻发布会上宣布，一起针对总统泽连斯基的暗杀行动被乌克兰成功击败。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-04-上午10.02.14.png)
-资料显示，这起暗杀任务由车臣准军事组织头目卡德罗夫领导的雇佣军所实施，但该组织的两个任务小队目前均被乌克兰军队识破并击溃。
+**翻译：Lulumi**
 
-据乌克兰情报显示，该暗杀任务的策划者听命于俄罗斯克里姆林宫，但一位反对俄乌战争的俄罗斯联邦安全局成员将该绝密消息透露给乌克兰方。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip俄外长警告：第三次世界大战将是核战.png)2018年10月17日，俄罗斯索契，俄罗斯外交部长谢尔盖·拉夫罗夫（右）在俄罗斯总统弗拉基米尔·普京出席一个签字仪式时签署文件。(盖蒂图片)
 
-目前，俄罗斯私人军队向乌克兰派遣了大约三千名雇佣军，其中超过四百人分布于首都基辅及周边地区，而乌克兰总统泽连斯基正是这些刺客的“头号目标”。
+俄罗斯外交部长谢尔盖·拉夫罗夫周三警告说，在俄罗斯入侵乌克兰的情况下，第三次世界大战将是“核战和破坏性的”。
 
-参考链接：[Ukrainian Official: Attempt to Assassinate Zelenskyy Prevented](https://www.newsmax.com/politics/russia-ukraine-zelenskyy-kyiv/2022/03/01/id/1059178/)
+据《公报》、其他俄罗斯媒体和路透社报道，拉夫罗夫在接受半岛电视台阿拉伯语频道采访时说：“第三次世界大战将是核战争和破坏性的……拜登总统是一个有经验的人，他以前曾说过，替代战争的唯一办法是制裁，”但他没有详细说明。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
+拉夫罗夫还称，如果乌克兰获得核武器，俄罗斯将面临“真正的危险”。没有证据表明乌克兰试图从西方获得核武器，而且乌克兰在20世纪90年代初苏联解体后放弃了核武器。
 
-总编：Irene木木
-编辑：Ivy001
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+本周早些时候，当俄罗斯总统弗拉基米尔·普京下令其国家的战略威慑部队（负责操作俄罗斯的一些核武库）处于高度戒备状态时，核战争的幽灵被唤起。一些分析人士表示，该命令旨在恐吓美国和北约，以便他们不卷入乌克兰冲突。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+俄罗斯和美国一样，拥有数以千计的核武器，但两国多年来都强调，核战争将导致双方的毁灭，或被称为相互保证的毁灭的军事理论。
+
+本周早些时候，拜登被问及美国人是否应该对核战争感到担忧，拜登回答：“不。”
+
+“我们正在评估普京总统的指令。而目前，我们认为没有理由改变我们自己的警戒级别，”白宫新闻秘书珍·普萨基周一告诉记者，在普京的评论和命令之后，美国将不会试图使言论升级。“我们认为像这种关于核武器的挑衅性言论是危险的，增加了误判的风险，应该避免，我们不会沉迷于此，”她补充说。
+
+据路透社报道，当地时间周四下午，俄罗斯声称其军队占领了乌克兰南部城市赫尔松。然而，乌克兰总统沃洛基米尔·泽伦斯基办公室的顾问奥列克西·阿雷斯托维奇说，在持续的战斗中，“城市没有沦陷，我方继续防守”，强调了冲突双方对军事胜利的对立主张。
+
+乌克兰国家紧急事务局周三告诉美联社，到目前为止至少有2000名平民被杀，尽管这一数字无法独立核实。
+
+而乌克兰第二大城市哈尔科夫，拥有约150万人口，周三再次遭到猛烈炮火袭击。与此同时，来自Maxar的卫星照片显示，一个由俄罗斯坦克和其他车辆组成的巨大车队横跨基辅城外数英里。
+
+联合国的核监督机构——国际原子能机构说，俄罗斯告诉该机构，其军队已经控制了乌克兰最大的核电站周围，但那里的作业仍在正常进行。
+
+美联社对该报道有贡献。
+
+**新闻来源**：[theepochtimes.com][Russian Foreign Minister Warns: World War III ‘Will Be Nuclear’](https://www.theepochtimes.com/russian-foreign-minister-warns-world-war-iii-will-be-nuclear_4311818.html?utm_source=newsnoe&amp;utm_campaign=breaking-2022-03-02-3&amp;utm_medium=email&amp;est=PG0xFWj0nqM6fA%2BLQhd6U0iHBqonIhmxJeqYMfbpFwNDWESheEGSqtRYS3MZ0agfE8IIM7c%3D)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,42 +2,35 @@
 ---
 
 
-## 有声|韩囯单日新增确诊病例突破21万例
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2106386/)
+## 俄罗斯对乌克兰总统的暗杀行动失败
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2106507/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据韩KBS新闻3月2日的报道， 韩国中央防疫对策本部通报，截至今天（2日）零时，单日新增中共病毒确诊病例21万9241例，创历史新高。
+作者：纽约香草山农场-6zero4
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月1日，据相关媒体报道，乌克兰高级官员丹尼洛夫在当天的新闻发布会上宣布，一起针对总统泽连斯基的暗杀行动被乌克兰成功击败。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-04-上午10.02.14.png)
+资料显示，这起暗杀任务由车臣准军事组织头目卡德罗夫领导的雇佣军所实施，但该组织的两个任务小队目前均被乌克兰军队识破并击溃。
 
-单日新增较前一天增加8万例。较上周的同一天17万例，增加近5万例。重症患者增加35人至762人，新增96例死亡病例，累计死亡8266例，平均致死率0.24%。
+据乌克兰情报显示，该暗杀任务的策划者听命于俄罗斯克里姆林宫，但一位反对俄乌战争的俄罗斯联邦安全局成员将该绝密消息透露给乌克兰方。
 
-另外，60岁以上确诊病例3.3万例，约占总数的15%。18岁以下的确诊病例达到5万例，约占总数的23.8%。
+目前，俄罗斯私人军队向乌克兰派遣了大约三千名雇佣军，其中超过四百人分布于首都基辅及周边地区，而乌克兰总统泽连斯基正是这些刺客的“头号目标”。
 
-韩国的疫苗接种率，首针接种率为87%，完全接种率为86%，第三针加强针接种率61%。从上月15日开始给免疫力低下人群接种第四针剂。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/110973993_bb5fade4-ad7b-4c47-b211-77732a06409e.jpg)
+参考链接：[Ukrainian Official: Attempt to Assassinate Zelenskyy Prevented](https://www.newsmax.com/politics/russia-ukraine-zelenskyy-kyiv/2022/03/01/id/1059178/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
+总编：Irene木木
+编辑：Ivy001
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-
-文字版原文：[韩囯单日新增确诊病例突破21万例](https://gnews.org/zh-hans/2095911/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
