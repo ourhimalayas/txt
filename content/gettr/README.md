@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/4/2022 1:30 PM (UTC)`
+
+Prince and Rachel: The New Federal State of China and the Rule of Law Foundation are looking to help 10,000 to 20,000 Chinese stranded in Ukraine evacuate. For people who need help to evacuate from Ukraine, please go to the website (ukrainehelp.info) for information. We have two emergency contact numbers and two emails, 24/7, to assist those who need help. <br/><br/>爆料革命战友（小王子和瑞秋）：新中国联邦、法治基金正在努力帮助一万到两万名滞留在乌克兰的中国人撤离。如需我们协助从乌克兰撤离，请访问网站（ukrainehelp.info）获取信息。我们有两条全天候的紧急联系电话和两个电子邮件来帮助那些需要援助的人。
+![img](https://media.gettr.com/group39/getter/2022/03/04/13/b6499f3d-ac41-b794-aa20-6cb7116f3bd2/out.jpg)
+
+---
+
 `@miles 3/4/2022 8:13 AM (UTC)`
 
 3/2/2022 Miles Guo: The reason that Germany and Switzerland gave up their neutrality is to target the CCP. The insanity of Russia and the CCP has awakened Germany and Japan, respectively. Singapore will decline, while Taiwan will become a financial empire. The UK will be the new economic superpower, and the landscape of North America and Australia will undergo drastic changes. The CCP and Russia are bound to be finished.<br/><br/>3/2/2022 文贵直播：德国和瑞士放下中立立场是要对付中共；俄罗斯和中共的疯狂分别唤醒了德国和日本；新加坡将没落，台湾会崛起为金融帝国，英国将成为新经济帝国，北美和澳洲的格局也将发生巨变，中共和俄罗斯必将完蛋<br/>
@@ -151,13 +158,6 @@ We’ve seen this coming, and we’ve been reactionary. That gave Vladimir Putin
 
 3月3号：尊敬的战友们好视频中所说的这一切！使用了我们爆料革命使用的专有名词盗国贼．在这里屡次被提及，但是和中国共产党的盗国财富和行为相比，只是小巫见大巫，你们很快会看到所有的中国共产党的家人面对的视频中的这一切！很快很快很快！
 ![img](https://media.gettr.com/group30/getter/2022/03/03/13/808a8081-1d44-75dc-ba4b-52a0555927cd/out.jpg)
-
----
-
-`@miles 3/3/2022 7:50 AM (UTC)`
-
-<br/>3月3号：尊敬的战友们好……感谢战友制作的有关俄乌战争的精美的视频……
-![img](https://media.gettr.com/group50/getter/2022/03/03/07/b0857784-974f-9db9-aaf6-82bc1f53d869/out.jpg)
 
 ---
 

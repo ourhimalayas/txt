@@ -2,19 +2,62 @@
 ---
 
 
-## 2022年3月4日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2105750/)
+## 致勇敢的乌克兰人民
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2105770/)
 
-制作：DT新闻组
+作者：纽约香草山教育部-蓝之灵（hortênsia)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我们用血肉之躯
+对抗侵略者钢铁炮弹
+无情战火
+燃炸着家园
+反抗！反抗！
+捍卫我们土地
+为了自由
+为了孩子未来
 
-**中共的杀戮还在继续……**
+货架上货物
+被震散在地上
+轰鸣声过后
+捡起来，放回去
+希望路过的战士
+进来拿些
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/D4F1D141-D30E-4190-BD5F-94DEE89D237E.jpg)
+地下室空间窄小
+留出来
+安置孩子
+年迈的老妈妈
+也来吧
 
-发稿：信心的选择
+我们不会放弃
+即使侵略者
+有精良武器
+摧毁不了反抗意志
+用我们血肉之躯
+也要对抗
+把侵略者
+赶出我们国土
+夺回被摧残家园
+为了自由
+和未来
+待孩子们长大
+这片土地上
+依然会有
+粮食和鲜花
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
 
+
+审核/编辑/发稿:qiutian（邱甜）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
