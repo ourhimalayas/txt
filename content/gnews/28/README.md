@@ -2,13 +2,11 @@
 ---
 
 
-## 日本拟进一步对俄实施制裁 丰田关闭在俄工厂
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2102407/)
+## 3/3/2022 文贵盖特：普京要动用大杀器在48小时内灭掉乌克兰500万人；战争将催生数字货币金融时代的诞生，有稳定币和锚定的数字货币是人类的未来
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2102480/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3._4-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

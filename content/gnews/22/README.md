@@ -2,13 +2,11 @@
 ---
 
 
-## 美国结束中共病毒疫情国家紧急状态
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2102536/)
+## 3/2/2022 文贵直播：即使最亲共的新加坡也不支持俄罗斯，任何支持俄罗斯入侵乌克兰的人都可能被终身拒绝入境
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2102553/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220304-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

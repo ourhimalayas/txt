@@ -2,66 +2,42 @@
 ---
 
 
-## 参议员马可·卢比奥：俄罗斯侵略者正在炮击欧洲最大的核电站
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2102619/)
+## 郭文贵先生2022年3月3日盖特视频（9分35秒）全文字版
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2102682/)
 
-参议员马可·卢比奥： [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) 入侵者正在炮击欧洲最大的核电站 现在有报道称，该电站的一部分现在着火了
+听写整理编辑：东京樱花团/Peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-333.png)
+啊乖乖嘞，俺的娘嘞，兄弟姐妹大家好！啊，今天是3月3号，二月初一，明天是二月初二，龙抬头。我母亲，冥诞三周年呢，真快，太快了。我昨天晚上怎么也睡不着觉，我有二十几次，起起，起来，躺下，躺下就二十几次，很久没这样了，起不，睡不着， 唉，一闭上眼睛，哎，就是家人啊，哎呀，不知道咋回事啊，啊真是这人呢，和逝去的人，和天地间，说不清楚的关系呀，整个，来，去去来来，来去就是我母亲。
 
+所以兄弟姐妹们，珍惜你的亲人，好好的爱你的母亲、父亲、兄弟、姐妹，夫妻间能活着，在这年代，不在战争中，没有疫苗，没病毒，珍惜吧。哎，很多人啊天天活着，但是跟死了没啥两样，死了的人还比活人还有意义，这真是人间的悲哀。
 
+乌克兰的战争，我们的好消息，在联盟委员会全球战友的协调下，我们已经救出了三家我们的战友了，啊已经到达了波兰华沙。前线，我们大卫兄弟，昨天已经到达了华沙，安营扎寨，马上又从美国、加拿大啊去的战友，和大卫兄弟，还有瑞士的文耀，文耀也都到那去了，这孩子真不简单，这妹妹真是有血性善良，新中国联邦人，牛！都到了波兰，今天美加的人也会去到，到了以后，多方安营扎寨，我们先有两架飞机吧，757或747或大力神都行，都可以，随时，这一周，一架飞往东南亚，一架飞往美加。
 
-> [#Russian](https://twitter.com/hashtag/Russian?src=hash&amp;ref_src=twsrc%5Etfw) invaders are shelling the largest nuke plant in Europe
-> 
-> Reports now that portions of the plant are now on fire[https://t.co/CKHcOIT9tz](https://t.co/CKHcOIT9tz)
-> — Marco Rubio (@marcorubio) [March 4, 2022](https://twitter.com/marcorubio/status/1499539156728434693?ref_src=twsrc%5Etfw)
+啊这个所有的同胞和美国朋友，还有我们过去支持爆料革命的人，免费在这个时间,住在我们安排的基地，啊然后照顾你们的安全，但这不是我们的责任，照顾安全啊,然后呢我们已经有酒店，有驻地了，然后给你们安排这个免费的飞机，飞往这地方，回中国的你只能安排到东南亚，我们可能一个两个这个免签城市国家给你停下来，你下飞机你就走就可以了，好吧。
 
+这是我们新中国联邦这是最大的行动，新中国联邦在乌克兰战争的人百分之百的救了出来，稍后你们看直播细节吧。感谢所有参与救助的和恭喜被救出的我们新中联邦的战友们。
 
+哎呀，现在普京要动用这大杀器呀，甚至现在什么黑海舰队都上了，听说要把这个整个乌克兰，啊五百万人在未来的四十八小时消灭，这是很残忍的啊，但是记住，不管普大帝怎么折腾，还是习太阳怎么折腾，这都属于“尿壶里的战争”，啊他跟这房子半毛钱关系都没有了已经，他毕竟被干掉，被抛弃，他在尿壶里尿的在紧，只是受害人多少，但他们已经完了，他干得越猛，他死得越惨。
 
-参议员泰德·克鲁兹： 印度是世界上最大的民主国家和对抗 #中共国 的关键盟友。拜登政府制裁印度将是极其短视、鲁莽和自我放纵的。
+看看现在曼哈顿，看个全世界，从昨天到今天啊，俄罗斯要找我的“MILES，要不要这个我的这个游艇啊？”五亿的，十亿的啊美元的什么游艇，我说我现在一毛钱都没有，买什么买啊？啊卖房子的，在伦敦的、南法的、美国的、迈阿密的、卡罗纳的、南卡罗莱纳州的，都是五折。啊我说没钱，有钱也不会买，还没到时候呢，俄罗斯发现了吗？石油天然气没停止生产，美国也没制裁它石油，这战争，这之间都没出狠牌呢。但是，一个新的数字货币的金融时代已经在，已经诞生了。全世界现在打的还是什么？共产党员给他弄的CIPS，所谓的兑换人民币，只有七哥告诉过大家，没人吧？然后现在搞的就是数字货币啊，美国就又拿法币搞SWIFT，但是这场战争最后就是诞生了“数字货币时代”。
 
+我今天早上跟一个美国朋友说，他说“现在还好，西方的杀器还是美元”。我说这是最后一次，不会再有任何美元影响这个世界的时候了，因为这次会催生新的金融系统——数字货币，就像二战一样，二战都诞生了布雷顿森林系统一样，一定的，啊而且所有的所谓去中心化的金融系统，不可能是人类的未来，一定是有稳定币、有锚定的数字币才是真正人类的未来，而且不能是被垄断的。去中心化的技术必须有锚定，这是个很复杂的事，不是像大家说那么简单。
 
+人类大变了，世界大变了！兄弟姐妹们，等着共产党完蛋吧。昨天在台湾的大断电，给了全世界傻眼了，啊很多人问我，彭培奥还有这个MILES YU余茂春先生到台湾会怎么样？我说第一，中间飞机可能会遇到故障啊，拦阻啊什么的，威吓啊。第二，停电，为什么？台湾一停电，台积电就完了，而且，说停就停，可能今天不行，明天再给你停，停电成为常态，让你社会大乱。第三，你会发现台湾的金融系统，或台湾的这个什么几个科技系统，突然发现被盗，被黑客，这共产党玩流氓，永远是下三路，永远是老鼠走的路，啊结果发生了。
 
-> It would be incredibly shortsighted, reckless, and self-indulgent for the Biden Administration to sanction India – the largest democracy in the world and a critical ally for countering China. [pic.twitter.com/UphK4vDnR9](https://t.co/UphK4vDnR9)
-> — Senator Ted Cruz (@SenTedCruz) [March 3, 2022](https://twitter.com/SenTedCruz/status/1499525813695397893?ref_src=twsrc%5Etfw)
+共产党他就这副德行，永远是欺负弱的，怕硬的，永远是偷、蒙、拐、骗、黑，他啥球招都没有，除了谎言就是谎言，你搞这下什么，你能把台湾怎么着？是吧，但是呢，好戏毕竟已经登场，演员已不能退出，戏的最终结果肯定是好人把坏人给干掉，中间只是代价多少，啊尿壶里的战争就是尿壶里的战争，没什么了不地的。但是呢有人撒完尿以后啊，尿壶完战争，它会带来一个新的事，就是坏人必然被惩罚。什么普大帝习太阳，什么中国共产党，去球的吧。
 
+由于明天啊，哎呀你看，我们现在正在看，我们这是咱们的这个这个News Talk，这个Nicol还有文治的直播，俩帅哥太好了，正在说亿万富翁的啊，六亿美元，这哥们，我认识。这个船你看我都上过，你记得吗?我在这拍过视频，看看，船是超级好船。太多了，太多了。
 
+兄弟姐妹们，因为明天是二月初二，龙抬头。我老娘三年冥诞，我明天不直播，好吧，还录视频。祝所有天下的兄弟姐妹们，爱自己的父母，爱自己的家人，姆该噻。
 
-前国务卿迈克.蓬佩奥： 因推动美台关系而被蔡英文总统奖励此殊荣，令人感到谦卑。 我们一直与你们站在一起。
+稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
 
+郭文贵先生2022年3月3日盖特视频链接：[https://gettr.com/post/pxzpvd8eb7](https://gettr.com/post/pxzpvd8eb7)
 
-
-> It is humbling to be honored by President Tsai for advancing the U.S.-Taiwanese relationship.
-> We stand with you. Always. [pic.twitter.com/93nRt40TFF](https://t.co/93nRt40TFF)
-> — Mike Pompeo (@mikepompeo) [March 3, 2022](https://twitter.com/mikepompeo/status/1499518899779522564?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克·蓬佩奥： 要求自由不是挑衅性的。 苏珊和我很高兴有机会与 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 外交部长吴钊燮一起进行参观 – 并享用一些被 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 制裁的澳大利亚葡萄酒。
-
-
-
-> It is not provocative to demand freedom. Susan and I are grateful for the opportunity to visit with Taiwan’s foreign minister Joseph Wu – and enjoy some CCP-sanctioned Australian wine. [pic.twitter.com/K73R2Zgzon](https://t.co/K73R2Zgzon)
-> — Mike Pompeo (@mikepompeo) [March 3, 2022](https://twitter.com/mikepompeo/status/1499493974171697156?ref_src=twsrc%5Etfw)
-
-
-
-比尔·戈茨： 当前国务卿蓬佩奥会见台湾总统时，台湾遭遇大规模停电 【附华盛顿时报比尔·戈茨文章：台湾周四遭遇大面积停电，停电中断了美前国务卿蓬佩奥与台湾总统蔡英文的会晤。 来自台湾的新闻报道称，停电影响了包括首都台北在内的七个城市，并到达了南部港口高雄。 停电发生在蓬佩奥在总统府会见蔡英文时。 虽然那里的电力没有受到影响，但计划中的网络广播被取消了。】
-
-
-
-> Taiwan hit by massive power outage as former Secretary of State Pompeo meets Taiwanese president [https://t.co/BCyWZzWRGa](https://t.co/BCyWZzWRGa)
-> — Bill Gertz (@BillGertz) [March 3, 2022](https://twitter.com/BillGertz/status/1499479109092589594?ref_src=twsrc%5Etfw)
-
-
-
-白宫： 今天，美国与盟国及合作伙伴协作，针对其他俄罗斯精英和家庭成员进行打击，尽管普京总统残酷入侵乌克兰，但他们仍继续支持他。 这些个人及其家庭成员将会从美国金融体系被剔除，他们在美国的资产被冻结，他们的财产将被禁止使用。 美国财政部@USTreasury 将在适当的情况下与司法部@TheJusticeDept 分享金融情报和其他证据，以支持刑事起诉和扣押资产。 美国将制裁普京的亲信及其家人，有一个扩展的名单。 其中一位精英是阿利舍尔·布尔哈诺维奇·乌斯马诺夫，他是俄罗斯最富有的人之一，也是普京的亲密盟友。 ………
-
-
-
-> Today, the United States, in coordination with Allies and partners, targeted additional Russian elites and family members who continue supporting President Putin despite his brutal invasion of Ukraine.
-> — The White House (@WhiteHouse) [March 3, 2022](https://twitter.com/WhiteHouse/status/1499463156762034177?ref_src=twsrc%5Etfw)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

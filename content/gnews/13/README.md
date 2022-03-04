@@ -2,44 +2,53 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2102768/)
+## 文•贵天成——文贵先生谈“普京”（十六）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2102782/)
 
-整理：枳实
-美工：精灵蓝
+整理：BENJ1
+编辑：小红帽
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片来源：雅典娜设计组
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/1-7.png)图片来源：雅典娜设计组
 
 
-雅典娜疫情更新（2022年 3月3日）
+**郭文贵先生2022年2月4日直播**
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+普京不去住钓鱼台，不去住国宾馆，这次整个到奥运会现场的就两个人是牛人。世界上最最有权力的就是普京，最有钱的就是阿布扎比王子。阿布扎比王子住在四季酒店，普京住在了华尔道夫酒店，就这俩。一个有权，一个有钱，其他的你都可以忽略。什么阿根廷啊，狗屁，去了六个人;什么卡塔尔，你都可以放一边去。一切忽略，33个国家全忽略。
 
-全球和澳洲疫情疫苗关键数据和图表每日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-29.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-18.png)
-[2022年3月3日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月3日改进.pdf)
+当时是说好的，97个国家一定是一级元首来。135个国家要参加这冬奥会，到33个国家，33结果成了俩。俩人，一个是有钱的阿布扎比王子，一个是普京。普京现在给撂倒了，是吧？已经死人了。
 
-数据来源：
+普京的人死了。他不是死那33个你可以忽略的那些人，旁边人死球了也没有人在乎他。他普京旁边的16个人染上，保镖染上4、5个，这事可不一般。就如文斌说的，我不是阴谋论啊，从哪个角度都是非同寻常。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+这场冬奥会变成“冬眠会”已经决定了。最大一个人物普京的团队，十几个人染上病了，而且听说普京暴怒。普京在现场暴怒，说:“你们这么大一个国家让我们来，我们来之前就说过，你让我的人起码的保障都没有。酒店提前一周所谓清理，你这么多人让我身边的人全染上病，而且死人了。”死的人不一定是普京旁边的人，但肯定是发生在所谓的华尔道夫酒店。
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+咱们的一个战友给我说了句，他说:“七哥，我从楼上都能听到普京在楼下骂人。”你想想咱战友在哪？在那楼上的战友，你想是干啥的？是吧？他说:“爆骂！”咱战友还得听得懂俄语啊，你得听得懂啊。南极宝宝说话，我能听懂很正常，是不是啊？但是我说话，普京听懂不正常啊。咱那战友听得懂俄语，你想想啥感觉啊？是吧？这事儿太大了！
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+本来普京女儿要去的，最后一分钟，人家女儿不去了。本来给爸爸面子，说这个这个乌克兰的事情，什么军事台湾的事情，我一会儿再告诉你们吧。还不到时候呢，到时候再告诉你们，吓死你们。最后不去了。我告诉你，冬奥开幕式，共产党的“冬眠会”绝对是共产党一场噩梦的新开始。记住我现在几点几分说的话。
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+兄弟姐妹们，天意！你说啥时候不死人，你就在这个时候，你在盘古旁边死人; 你啥时候都不死人，你在华尔道夫死人;你啥时候不染病，谁也不染，就把普京的团队干上十几个。如果普京真的在现场的话，那就真成了荒诞了！现在等着他们的这个乌克兰行动，台湾行动。一旦行动起来，就是一个真实写照了。他们成了全世界的孤家寡人，孤独啊！
 
-[covidlive.com.au](https://covidlive.com.au/)
+往期回顾：
+[文•贵天成——文贵先生谈“普京”（一）](https://gnews.org/zh-hans/1990454/)
+[文•贵天成——文贵先生谈“普京”（二）](https://gnews.org/zh-hans/1992091/)
+[文•贵天成——文贵先生谈“普京”（三）](https://gnews.org/zh-hant/1997918/)
+[文•贵天成——文贵先生谈“普京”（四）](https://gnews.org/zh-hans/1998162/)
+[文•贵天成——文贵先生谈“普京”（五）](https://gnews.org/zh-hans/1998174/)
+[文•贵天成——文贵先生谈“普京”（六）](https://gnews.org/zh-hans/1998177/)
+[文•贵天成——文贵先生谈“普京”（七）](https://gnews.org/zh-hans/2002397/)
+[文•贵天成——文贵先生谈“普京”（八）](https://gnews.org/zh-hans/2090925/)
+[文•贵天成——文贵先生谈“普京”（九）](https://gnews.org/zh-hans/2090993/)
+[文•贵天成——文贵先生谈“普京”（十）](https://gnews.org/zh-hans/2091987/)
+[文•贵天成——文贵先生谈“普京”（十一）](https://gnews.org/zh-hans/2100246/)
+[文•贵天成——文贵先生谈“普京”（十二）](https://gnews.org/zh-hans/2099078/)
+[文•贵天成——文贵先生谈“普京”（十三）](https://gnews.org/zh-hans/2101189/)
+[文•贵天成——文贵先生谈“普京”（十四）](https://gnews.org/zh-hans/2102678/)
+[文•贵天成——文贵先生谈“普京”（十五）](https://gnews.org/zh-hans/2102733/)
 
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+*发布：tianzhihuan*
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,45 +2,48 @@
 ---
 
 
-## Eglise医生讲解槲皮素诸般妙用
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2102763/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2102768/)
 
-2022-03-03
+整理：枳实
+美工：精灵蓝
 
-整理：Elli
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ND_URROMFJNWIZDQ4CV6I.png)图片来源：[https://www.meidouya.com](https://www.meidouya.com)
-槲皮素是FLCCC新冠治疗推荐的第一营养素。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/2-1.png)图片来源：雅典娜设计组
 
-槲皮素是一种类黄酮抗氧化剂，存在于植物性食物中，包括绿叶菜、西红柿、浆果和花椰菜。从技术上讲，它被认为是一种“植物色素”，这就是为什么它会出现在颜色深、营养丰富的水果和蔬菜中。
 
-在避风港18期节目中，Eglise医生特别指出槲皮素的几大重要作用。
+雅典娜疫情更新（2022年 3月3日）
 
-1.抗高血压，增加血管内皮功能，防止血栓，控制血糖，增加线粒体，从而还有帮助减肥的作用。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-2. 是类黄酮抗氧化剂的一种，存在于很多食物中包括豆类，但食物摄取量只有身体需要1/10，所以需要额外营养素补充。
+全球和澳洲疫情疫苗关键数据和图表每日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-29.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-18.png)
+[2022年3月3日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月3日改进.pdf)
 
-3. 本身有抗病毒作用，抑制病毒对细胞膜表面SE2受体的粘附作用，包括RNA病毒，将锌离子运入细胞中；可以联合VC，VD3强大的抗氧化，抗炎症作用。
+数据来源：
 
-4. 临床发现，槲皮素可以帮助新冠患者缩短由阳转阴的时间，而且降低重症率。
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-5. 孩子也可以放心服用。成人药典推荐用量可以500-1000mg每天，最多每天4次分开饭后服用到4000mg每天临床治疗非常有效，而且广泛治疗很多慢性疾病；结合抗组胺药物，可以有效治疗细胞肥大症，过敏症尤其有效，且副作用小。
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-6. 胃肠道敏感的人一定饭后服用，剂量可以适当降低。
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-7. Omicron后遗症普遍存在失眠，盗汗，植物/交感神经受损，槲皮素和褪黑素可以有效治疗。
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-资料来源：
+[covidlive.com.au](https://covidlive.com.au/)
 
-[https://gettr.com/post/py0i5haed5](https://gettr.com/post/py0i5haed5)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
 
-[https://www.meidouya.com/food-guide/3014/](https://www.meidouya.com/food-guide/3014/)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-编辑：LILY
-发布：肥鯮
+发布：tianzhihuan
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
