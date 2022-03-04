@@ -2,24 +2,29 @@
 ---
 
 
-## 2022年中共国高校毕业生达1076万人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2104980/)
+## 疫苗灾难显现：美国两周内至少有20人死于空难事故
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2105019/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2FXinwen%2F5-11282021145520.html%2F%40%40images%2Fimage%2Fsocial_media&amp;imgrefurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2FXinwen%2F5-11282021145520.html&amp;tbnid=gYt-FNDceRxXXM&amp;vet=12ahUKEwithpbhhaz2AhU1R2wGHd0xAZ8QMygCegUIARCEAQ..i&amp;docid=lWwjVzZvq7Yq4M&amp;w=1500&amp;h=846&amp;q=%E4%B8%AD%E5%85%B1%E5%9B%BD%E9%AB%98%E6%A0%A1%E6%AF%95%E4%B8%9A%E7%94%9F&amp;ved=2ahUKEwithpbhhaz2AhU1R2wGHd0xAZ8QMygCegUIARCEAQ)
-3月4日新浪财经报道，中青报记者在全国政协十三届五次会议新闻发布会上提问。新闻发言人郭卫民说，今年有1076万名大学生毕业，高于往年，确实面临着较大就业压力2022届高校毕业生规模预计达1076万人，同比增加167万人，这是高校毕业生规模首次超过千万。
+#### 翻译/撰稿：zzballack
 
-2020届高校毕业生是874万人，同比增加40万人，2021届全国高校毕业生总规模909万，同比增加35万人。这意味着，2022年中国高校毕业生将创下两个历史：毕业生人数最高，毕业生人数增长最大。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-3-1.jpg)图片来源：推特
+据《自然新闻》（Natural News）3月3日报道，一个追踪与新冠病毒有关事件的博客The Covid Blog报告说，在2月份的两周时间里，美国至少有20人在私人飞机和直升机坠毁事故（分别有4架直升机和7架私人飞机坠毁）中死亡。
 
-2022年中共国千万人规模的毕业生，不包括官二代和红二代，因为中共早已把自己的子女安排在海外留学，千万人规模的毕业生，更多是属于基层家庭，即将面临着毕业即失业的状态。
+USHST（The U.S. Helicopter Safety Team，美国直升机安全小组）报告说，在2019年有122起直升机事故，51人死亡。在大流行第一年2020年，有92起事故，35人死亡，数量少是因为疫情导致航空旅行受限，飞机被停飞了数月。但自2021年开始，死于坠机事故的人开始增多。
 
-根据众多外卖平台的统计报告，现在中共国有大约700万外卖骑手，其中本科学历的有21万，硕士学历的有7万，中共国拼命的就业工作只为单单的生存活着而已，送外卖也是逼不得已的选择，随着中共经济急剧下降，各种谋生的新闻也会继续增加。
+USHST的数据记录了每月每10万个飞行小时发生的致命事故数量。一般来说，每10万个小时超过一起致命事故的情况非常罕见，任何低于1的数字都被认为是正常的。国家运输安全委员会（NTSB）认为每10万飞行小时超过1人死亡都是非常高的数字。但在2021年，有三个月该数据超过了基准值1，其中12月达到高峰每10万飞行小时就有2.08起致命事故。大多数美国人通常很少关注直升机坠毁事件。但在今年2月，网络上的“直升机坠毁（helicopter crash）”搜索开始呈上升趋势。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-18.png)
+报告指出，在2个星期、14天内发生11起坠机事故并不一定不寻常。但其中的高死亡率引起了人们关注，至少有20人在这些坠机事故中死亡，这在任何方面都是不正常的。按照14天内有20人死亡推断，2022年将有520人死于航空事故。换句话说，今年的航空事故很可能比其他任何一年都多，而且可以肯定的是因此而死亡的人数也会多得多。
 
-[【今年高校毕业生首次过千万，如何看待就业形势？\_财经头条】](https://cj.sina.cn/articles/view/1726918143/m66eeadff03301c75j)
+虽然不可能知道这些事故的原因，但考虑到这些事故发生在新冠疫苗及其加强针的接种剂数处于最高值之时，自疫苗被大范围推广以来，出现了很多奇怪的、不寻常的现象：原本健康的人突然死亡、飞机和直升机频频坠毁、汽车司机突然失控无缘无故地撞车等等。这不可能都是巧合。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+新闻来源：
+
+[What’s going on? Unusual number of private plane, helicopter crashes kill nearly two dozen in two weeks](https://www.naturalnews.com/2022-03-03-plane-helicopter-crashes-kill-dozen-two-weeks.html)
+
+[Mayday: Four helicopters, seven private planes crash in United States in 14 days, at least 20 people dead](https://thecovidblog.com/2022/02/28/mayday-four-helicopters-seven-private-planes-crash-in-united-states-in-one-week-20-dead/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

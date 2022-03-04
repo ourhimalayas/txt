@@ -2,48 +2,20 @@
 ---
 
 
-## 澳大利亚总理的COVID-19检测呈阳性
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2105481/)
+## 悲剧：十五岁的年轻球员在训练中死亡
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2105671/)
 
-编译： Jenny Ball
+#### 翻译                      意大利达芬奇农场                       小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-04-alle-13.04.15-1.png)图片来源：corrieredellosport.it
+这个男孩正在与同伴训练时突感不适：迅速抢救，但无济于事。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/414009345253052416024157.jpeg)图片来源：dwnews.com
+一位叫马泰奥•皮耶特罗桑蒂的十五岁意大利少年，突感不适死亡， 当时他正在与同伴进行训练。
 
-澳大利亚总理斯科特·莫里森（Scott Morrison）证实，他的 COVID-19 检测呈阳性。
+悲剧发生在18点，当时他正在与同伴进行训练。在训练当中，据目击者证实，他要求去球门，因为他感觉十分疲倦，可随后，他突然倒地。在场的人迅速拨打了118并叫来宪兵。急救人员试图对他进行急救，但是无济于事。在现场的除了这位少年的队友，还有在看台上的这位少年的母亲。
 
-周二晚间，莫里森在发表的一份声明中说，他出现了轻微症状，将在接下来的一周隔离期间在家工作。
+原文链接：[https://www.corrieredellosport.it/news/calcio/2022/03/03-90500691/tragedia\_a\_latina\_muore\_un\_giovane\_calciatore\_di\_15\_anni](https://www.corrieredellosport.it/news/calcio/2022/03/03-90500691/tragedia_a_latina_muore_un_giovane_calciatore_di_15_anni)
 
-莫里森说：“我出现了类似流感的症状，下周就会康复。”
-
-自周日开始感到不适以来，总理一直在接受每日检测，所有检测结果均为阴性。
-
-在周二晚些时候发烧后，莫里森接受了 PCR 测试，结果呈阳性。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unknown-3.png)图片来自原文
-
-他说：“我将继续遵守健康指南，并在悉尼的家中隔离，”他补充说，他很感谢家人的检测结果均为阴性，但也将按照指南隔离 7 天。
-
-澳大利亚总理已接受了两剂辉瑞 COVID-19 疫苗和第三次加强注射。
-
-莫里森表示，他将继续履行作为总理的所有职责，包括主持国家安全和支出审查委员会内阁会议，并专注于对昆士兰州和新南威尔士州毁灭性洪水的应急响应。
-
-“并确保我们现在与每一个受影响的社区站在一起，随着水最终退去，”他说。
-
-“我还将专注于我们对乌克兰悲剧和俄罗斯无端侵略的紧急反应，与我们的安全和情报官员，以及我们的国际合作伙伴保持定期联系，以及与财务主管合作以最终确定预算，” 他说。
-
-在周三进行快速抗原检测后，他的 COVID-19 检测呈阴性。
-
-莫里森原定于周二晚上在悉尼歌剧院与新南威尔士州州长多米尼克·佩罗特会面，这座标志性建筑被点亮了乌克兰国旗的颜色。但是，他在最后一刻退出了。 当天早些时候，他曾表示，这是为了发出“非常强烈的声援信息”，即澳大利亚与乌克兰站在一起。
-
-**参考资料：**[theepochtimes][Australian Prime Minister Tests Positive for COVID-19](https://www.theepochtimes.com/australian-prime-minister-tests-positive-for-covid-19_4310521.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-03-03)
-
-* * *
-
-*审核：文乐*
-*校对：小东*
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
+编辑、上传： Xiao   baige
 
  
 
