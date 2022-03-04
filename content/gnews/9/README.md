@@ -2,26 +2,26 @@
 ---
 
 
-## 美国与基辅分享实时情报而且俄乌谈判止于同意人道走廊
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2102807/)
+## 俄罗斯石油公司首席执行官的超级游艇在法国港口被扣押
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2102839/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-17.jpg)
-图片来源：china.greekreporter.com
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-39.jpg)
+图片来源：网络截图
 
-零对冲网3月3日报道，今天数小时前在波兰和白俄罗斯边境地带举行的俄乌谈判的最初视频已流出，谈判历时2个半小时，至少彼此握了手，达成的共识是在战争中建立“人道主义走廊”，以保护逃离的民众。
+据零对冲3月4日报道，法国宣布，它扣押了属于俄罗斯石油公司首席执行官伊戈尔谢钦（Igor Sechin）的超级游艇。法国财政部长布鲁诺·勒梅尔 （Bruno Le Maire）本周披露，此举是欧盟对俄罗斯持续制裁的一部分**。**
 
-乌克兰谈判代表说，整个谈判并没有向停火方向推进，双方达成共识的是人道走廊的建立。另外双方同意下周举行第三轮会谈。白俄罗斯国家新闻机构已证实。
+彭博社周四上午报道，这艘游艇被称为Amore Vero（真爱），它在地中海的拉西奥塔特（La Ciotat）港口被没收。报道称，该港口位于法国蔚蓝海岸的马赛附近。当它被没收时，这艘游艇正在 “准备紧急离开”。
 
-另一个重要新闻来自白宫，周四下午白宫说美国正在与乌克兰分享实时情报。
+法国预算部长奥利弗·杜索普（Oliver Dussopt）澄清说，这艘游艇是“被阻止离开”，但资产并没有被冻结。它最初的计划是在1月初抵达后，在港口停留到4月1日。一些最大的俄罗斯拥有的豪华游艇正在印度洋周围航行。
 
-目前在乌克兰南部和黑海沿岸仍然处于对抗中，有警告说战斗在核电厂附近。
+并非所有的俄罗斯寡头都带着他们的资产逃离了欧洲，拜登政府本周二晚上的国情咨文中非常明确地表示，他们将 “扣押俄罗斯亿万富翁的游艇、豪华公寓和私人飞机”。拜登说：“今晚，我对俄罗斯的寡头和那些靠这个暴力政权建立的数十亿的腐败领导人说，不要再这样了，我们正在为你们的不义之财而来。”
 
-目前西方正在激烈辩论什么是西方世界的“不作为”，尤其是在拜登总统周二晚上的讲话中，他进一步发誓美国部队不会进入乌克兰与俄罗斯打仗。
+随后俄罗斯的寡头们正在从海上逃往印度洋。 但是并不是所有的俄罗斯寡头都能逃出来。在乌克兰入侵之后，俄罗斯寡头在全球范围内的流动和西方的制裁使俄罗斯和精英阶层的事情变得复杂。
 
-##### 新闻来源： [US Sharing Real-Time Intelligence With Kiev; Russia-Ukraine Talks End In Agreement For ‘Humanitarian Corridors’](https://www.zerohedge.com/geopolitical/russian-forces-lay-siege-ukrainian-seaports-2nd-round-ceasefire-talks-start)
+新闻来源：[Rosneft CEO’s $120 Million Super-Yacht Seized At French Port After “Preparing For Urgent Departure”](https://www.zerohedge.com/geopolitical/rosneft-ceos-yacht-seized-french-port-after-preparing-urgent-departure)
 
-#  
+
 
  
 
