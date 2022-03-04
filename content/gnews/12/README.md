@@ -2,26 +2,30 @@
 ---
 
 
-## 中日财经爆|美国两党参议员要求禁止进口俄罗斯石油
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105048/)
+## 中日财经爆|印度指控华为逃税
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105073/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Ffinance%2F239%2Fw2048h1391%2F20220224%2Fc289-0a124c8f4e8ad373dac449abdde38db3.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.cn%2Fusstock%2Fmggd%2F2022-02-24%2Fdetail-imcwiwss2747127.d.html%3Fvt%3D4&amp;tbnid=kIhBM1Y_xGlC7M&amp;vet=12ahUKEwiI3uqJ_Kv2AhXpR2wGHU9UD4gQMygCegUIARC6AQ..i&amp;docid=YylWr8w_uoFCOM&amp;w=2048&amp;h=1391&amp;itg=1&amp;q=%E4%BF%84%E7%BD%97%E6%96%AF%E7%9F%B3%E6%B2%B9&amp;ved=2ahUKEwiI3uqJ_Kv2AhXpR2wGHU9UD4gQMygCegUIARC6AQ)
-美国两党参议员周四（3月3日）提出一项禁止美国进口俄罗斯石油的议案，他们表示可以通过提高北美和其他地方的石油产量来替代俄罗斯石油。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2Fe40c55a9-8a47-41fb-8075-b96fe935746e.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2F2f5fc6c9-ca2b-496c-9783-b47bf060769d&amp;tbnid=YETnJcdcmjbbCM&amp;vet=12ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ..i&amp;docid=xHuUh4vOZwW9NM&amp;w=2400&amp;h=1350&amp;q=%E5%8D%8E%E4%B8%BA&amp;ved=2ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ)
+路透社3月3日报道，一位印度政府消息人透露，印度对中共国电信设备制造商华为的一项税务调查发现，华为操纵账簿以减少其在印度的应税收入。
 
-这项名为《禁止俄罗斯能源进口法案》的议案旨在惩罚俄罗斯总统普京入侵乌克兰的行为。该议案由来自共和党及民主党的18名参议员发起。
+印度财政部并未指明是哪一家公司，仅称在上月对一家大型电信集团位于印度三个城市的办事处进行所得税突击检查时，该集团“未能就纳税申报问题提供任何实质性和适当的理由”。
 
-众议院议长佩洛希也表示，她支持实施这样的禁令。“我完全支持，”她告诉记者，“禁止从俄罗斯进口石油。”
+印度当地媒体2月16日援引官方消息报导，印度税务部门对中共国电信设备制造商华为在印度的多处办公场所进行了搜查，此为逃漏税调查的一部分，近期对中共国几家智能手机企业也进行了相关调查。
 
-根据美国能源信息署(EIA)的数据，2021年，美国平均每月从俄罗斯进口逾2,040万桶原油和成品油，约占美国液体燃料进口的8%。夏威夷和阿拉斯加都依赖这些进口。
+新德里电视台（NDTV）援引印度报业托拉斯（Press Trust of India）报导，官员们查看了财务文件、账簿和公司记录、华为的印度业务和海外交易。
 
 消息来源:
 
-[美国两党参议员提出议案 要求禁止美国进口俄罗斯石油](https://cn.reuters.com/article/us-senators-russia-oil-import-0304-idCNKCS2L105T?il=0)
+[印度指控华为逃税–印政府消息人士](https://cn.reuters.com/article/india-huawei-sources-0303-thur-idCNKCS2L013W?il=0)
+
+[中日财经爆|华为因逃漏税被印度税务机关搜查](https://gnews.org/zh-hans/2017942/)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

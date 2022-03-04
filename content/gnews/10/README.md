@@ -2,18 +2,28 @@
 ---
 
 
-## 俄乌战争｜蓬佩奥：中共若执意援助 下个制裁恐是中共银行及金融体系
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2105057/)
+## 日经平均指数一度贬值800日元 乌克兰核电站攻击报道推动下跌
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2105118/)
 
-**撰文/ 港台前线｜发布日期/ 04/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-11.png)更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
-2月，中共习近平与俄罗斯普丁发表联合声明，反对北约（NATO）东扩，并宣称中俄将建立真正“民主”的全球新秩序。
+**翻译：宫米叶**
 
-美国前国务卿蓬佩奥（Mike Pompeo）于4日下午记者会特别警示中共，在此次俄罗斯侵略乌克兰，中共若执意经济援助俄国，那“下一个受制裁的恐怕是中共的银行及金融体系”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip战争导致货币下跌.png)图片来源：news.yahoo.co.jp
 
-蓬佩奥提到，这次全球限制俄罗斯的经济，主要是针对其对外贸易能力、金流、物流等，尤其是俄罗斯的金融交易能力“求援的对象似乎只剩中共了”。
+4日上午，乌克兰东南部扎波罗热核电站遭到俄军攻击的报道传出后，东京股市日经平均指数卖出量大增。上日收盘比降幅一度超过800日元。上午10点同比下降660日元46钱，为2.5916日元81钱。
 
-來源｜[YAHOO](https://tw.stock.yahoo.com/news/%E8%93%AC%E4%BD%A9%E5%A5%A7%EF%BC%9A%E7%BE%8E%E8%8B%A5%E5%9F%B7%E6%84%8F%E6%94%AF%E6%8F%B4%E4%BF%84-%E3%80%8C%E4%B8%80%E4%B8%8B%E5%80%8B%E5%88%B6%E8%A3%81%E7%9A%84%E6%81%90%E6%98%AF%E4%B8%AD%E5%9C%8B%E7%9A%84%E9%8A%80%E8%A1%8C%E5%8F%8A%E9%87%91%E8%9E%8D%E9%AB%94%E7%B3%BB%E3%80%8D-070809557.html)
+3日，俄乌双方代表团经谈判未能达成停火协议，导致纽约股市道琼斯工业指数30种平均值前景不确定感蔓延，收盘时仍有下跌。4日东京市场也继承了这一趋势，核电站攻击受到攻击的消息更加推动了下跌。
+
+**新闻来源**：[news.yahoo.co.jp][日経平均一時800円安　ウクライナ原発攻撃報道で下落に拍車](https://news.yahoo.co.jp/articles/38c15ee6e95b6d2642b58b376635258ce98a0798)
+
+* * *
+
+***审核：BryanW 
+校对：zicoround
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
+
+
 
  
 

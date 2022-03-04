@@ -2,44 +2,32 @@
 ---
 
 
-## 樱花FM|樱花深度报道:精英俘虏（下）
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2105047/)
+## IAEA谴责俄罗斯入侵乌克兰 中共国投反对票
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105063/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/uxGJVYPf47KkFCSIGi-MLR78508zzMMK41WGPshd9MtIeiI2Uh-ywEAdAShz-pImZEjtDIv7TXzNCEPJITEckAqw3k4jnrwCaUR-4z7ARYpWclkc1bT9RGMVmM4BmrqzsU0oymuA)
-【摘要】
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片8.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.aljazeera.com%2Fwp-content%2Fuploads%2F2021%2F05%2F2021-05-24T101944Z_143477179_RC2AMN9I2875_RTRMADP_3_IRAN-NUCLEAR-IAEA.jpg%3Fw%3D770%26resize%3D770%252C513&amp;imgrefurl=https%3A%2F%2Fwww.aljazeera.com%2Feconomy%2F2021%2F5%2F27%2Firan-nuclear-deal-are-iaea-safeguards-dangerously-obsolete&amp;tbnid=VoISnkUsMzszCM&amp;vet=12ahUKEwir8cLy-Kv2AhWngGMGHXZeBUQQMygOegUIARDLAQ..i&amp;docid=Dlyenrh0psuPfM&amp;w=770&amp;h=513&amp;q=IAEA&amp;ved=2ahUKEwir8cLy-Kv2AhWngGMGHXZeBUQQMygOegUIARDLAQ)
+联合国核监督机构–国际原子能机构(IAEA)的理事会周四（3月3日）通过了一项决议，谴责俄罗斯入侵乌克兰，并呼吁俄罗斯让乌克兰控制其所有核设施，只有两票反对。
 
-﹡[精英俘虏]是[中共]成功的重要工具。这个想法很简单：通过用金钱、去中国访问和好处来诱惑另一个国家的精英，你可以让他们看到他们的利益和中共的利益是相互交织的，甚至是相同的。
+IAEA理事会在其决议中说，“对俄罗斯联邦在乌克兰的行动予以谴责”。
 
-﹡我们讨论的[每个]个人都会否认他们在帮助中国进入美国资本市场、美国军事和监视技术或美国政策制定方面的作用。每个人都会说，他们只是在追求中国市场为他们提供的商机，任何商品资本家都应该这样做。他们可能会争辩说他们经营的公司是真正的国际化…
+两名外交官说，有26个国家投了赞成票，两个国家投了反对票，五个国家弃权。
 
-﹡雷·达里奥（Ray Dalio），他在 2017 年的著作《原则》（《Principles》）中写道，他的“个人英雄”是王岐山。 “每次我和王说话，”达利奥都昏昏欲睡，“我感觉自己离破解宇宙法则的统一密码又近了一步。”王是中共第二大权势人物，被称为习的执行者。《经济学人》称他为“中国最可怕的人”。但达利奥却不这么认为。读者在那本书的下一页了解到，达利奥正试图在中国建立一个新的对冲基金。
+一位外交官说，俄罗斯和中共国投下反对票，巴基斯坦、印度、南非、塞内加尔和越南弃权。他们补充说，墨西哥和布隆迪(蒲隆地)缺席。
 
-﹡虽然他们也不像脸书（Facebook） 的马克·扎克伯格（Mark Zuckerberg）那样对中共谄媚。
+国际原子能机构（英语：International Atomic Energy Agency，缩写：IAEA）是致力于和平发展原子能的独立政府间国际组织，成立于1957年7月29日，为联合国系统的一部分。总部位于奥地利首都维也纳。其在2005年10月6日因“防止核能被用于军事目的，并确保最安全的和平利用核能”而获得诺贝尔和平奖。
 
-﹡苹果（Apple）销售的几乎所有产品都是在中国制造的，iPhone 在中国的手机市场占有率超过 23%。苹果一再被指控从中国维吾尔人的强迫劳动中受益，该公司否认了这一点。
+截至2020年9月17日，共有172个成员国。机构的组织机构包括大会、理事会和秘书处。
 
-﹡正如黑幕报料人和小说家厄普顿·辛克莱（Upton Sinclair）所写的那样，“当一个人的薪水取决于他不能理解的某事时，很难让他理解该事的真相了。”
+理事会（英文：Board of Governors）是机构的决策机构，执行机构的各项任务。
 
-对于其他人来说，商业机会也会发生类似的情况。篮球运动员勒布朗·詹姆斯（LeBron James）在推特上指责另一支 NBA 球队的总经理发布了关于中国镇压香港民主抗议活动的推文，没有人应该对此感到震惊。詹姆斯在中国购买带有他的名字和肖像的球衣和其他物品获得数百万美元的版税，但显然自认为是外交事务专家，斥责休斯顿火箭队（Houston Rockets）当时的总经理达里尔·莫雷（Daryl Morey）“要么被误导，要么没有真正了解情况”中国镇压领土上的异议。
+消息来源:
 
-然而，中国共产党人在这方面并不是绝对主义者。普通话里有一句俗语，大致翻译过来就是：“小骂大帮忙。”这句话表达了务实的中国人知道他们的朋友会不时批评中国的行为。但只要那些朋友在重要的事情上推进中国的利益，他们就会屈尊忽略。
+[IAEA理事会对俄罗斯入侵乌克兰予以“谴责” 只有两票反对](https://cn.reuters.com/article/iaea-condemns-russia-0303-thur-idCNKCS2L1041?il=0)
 
-众议院议长南希佩洛西严厉批评中国侵犯人权的行为。 1991 年，在她的第一个国会任期内，她发现自己在天安门广场勇敢地展开了一面横幅，上面写着“致那些为中国民主而死的人”。愤怒的中国警察夺取了横幅。 “我开始奔跑，”佩洛西回忆道。 “我的同事，其中一些人，受到粗暴对待。媒体受到的待遇更差，因为他们有相机，他们被拘留了。”
-
-她最近也进化了。此后，她的丈夫保尔（Paul）作为中国投资市场先驱马修斯国际资本管理（Matthews International Capital Management）的合伙投资者，并通过他的其他企业与中国达成了数百万美元的交易。两年来，她一直在阻止国会调查 COVID 病毒起源的努力。由于大部分证据表明武汉实验室可能泄漏病毒，佩洛西命令国会民主党人不要配合任何调查此事的努力。
-
-这些人以及我们在书中详细讨论的许多其他人的行为、声明和行动，无疑表明他们的利益与中国的利益交织在一起。这些利益足以阻挡中国崛起所依赖的人道主义和国家安全问题。
-
-正如黑幕报料人和小说家厄普顿·辛克莱（Upton Sinclair）所写的那样，“当一个人的薪水来自于他不能理解的某事时，很难让他理解该事的真相了。”
-
-（全文完）
-
-文字版原文：[樱花深度报道┃精英俘虏（下）](https://gnews.org/zh-hans/2086544/)
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
