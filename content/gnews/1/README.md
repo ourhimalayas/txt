@@ -2,33 +2,23 @@
 ---
 
 
-## 如果有大型的排华运动怎么办
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2107232/)
+## 习近平要求普京在冬奥会后入侵乌克兰
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2107236/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+采编/编辑撰稿： 薇文        校对编辑：硫酸羟氯喹64
 
-2022-03-02直播摘录
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/merlin_201320031_d80fc135-9d89-48ed-a99e-6b80cf60225d-jumbo-edited.jpg)图片来源：nytimes
 
-排华已经不可避免，只是多少的问题。就连这个加拿大这个大农村，就是好几个咱们内部的战友说，加拿大内部政府就说了，如果在加拿大开始有反华的时候我们该怎么办？华人很散，主要温哥华怎么办？他很惊讶，他说这么大的加拿大，你上哪找这些华人去呀？而且这个是移民国家。但是政府内部就在讨论这个，如果有大型的排华运动怎么办?
 
-你可想在日本这种国家，那右翼天天喊着肮脏的中国人滚回中国去，撒谎的中国人滚回中国去，不诚实的中国人滚回中国去，你去想想这个右翼一旦要是弄了，Nancy你们什么感觉？那么接下来我们的救援当中我们要记住，我们优先救我们的战友。我们今天特别高兴，由咱们长岛哥主导的全面的救援行动，和老班长，还有我们铁血组所有联盟委员会共同的努力下，在战区当中的四个铁战友，三个家庭，在昨天已经彻底地都离开了乌克兰，已经到达了波兰，今天我可以这么宣布。
+据《纽约时报》3月2日报道，习近平在2月初要求普京不要在北京冬奥会结束前入侵乌克兰。尽管中、俄两国情报交流高度保密，但该绝密信息仍被某情报机构获得并确认。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+报道称，普、习曾在冬奥会开幕式前会面，宣布了双方的伙伴关系并谴责北约东扩。同时，为做好入侵准备，俄军借道中共国边境，转移到乌克兰和白俄罗斯边境部署。并在奥运会结束次日进入乌克兰东部地区，最终于24日开始全面入侵。
 
-**关注我们**
+尽管中共当局对此予以了否认，但欧美官员表示，普京和习近平共同决定在奥运会结束后才入侵乌克兰的计划预谋已久。同时，也完全验证了新中国联邦早在今年初就警告全世界，普习将在冬奥会后共同发起对乌克兰和台湾的侵略战争！
 
-Discord 账号
+发稿：文明(添草灭共)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+新闻来源：[China Asked Russia to Delay Ukraine War Until After Olympics, U.S. Officials Say](https://www.nytimes.com/2022/03/02/us/politics/russia-ukraine-china.html)
 
  
 

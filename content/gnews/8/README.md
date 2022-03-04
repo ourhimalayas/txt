@@ -2,22 +2,33 @@
 ---
 
 
-## 加密货币交易在俄罗斯大行王道
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2107173/)
+## 美国人能对中国人好吗？
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2107181/)
 
-采编/编辑撰稿： 文莱             校对编辑：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-1-scaled.jpg)
-据《多伦多太阳报》3月3日报道，尽管欧美已对俄罗斯实施了严厉的经济制裁，但加密货币的交易和使用却在该国盛行。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-据悉，世界上各主要加密货币交易所都以全球自由金融理念为由，并未冻结俄罗斯客户的数字资产及其交易活动。随着战争导致卢布的巨幅贬值，为避险保值，大量俄罗斯企业和个人都纷纷将其财产转移至加密货币，并造成近期卢布和加密货币之间的交易量暴增。
+2022-03-02直播摘录
 
-然而，西方传统金融系统则认为，加密货币已成为俄罗斯政要转移其巨额财富最便捷和最安全的后门，这将极大削弱对该国经济制裁的最终效果。
+伊拉克，911开战的时候在纽约现场的中国人高呼万岁，没有人美国人不记得，你问美国人知道不知道？美国人都记得呢。他这一高呼一得瑟，美国人能对中国人好吗？如果你中国人有本事，你比美国人强大，是吧？你不要移民到美国来，你别把你的孩子来美国，你最恨的美帝国主义和小日本；你别把你的族类，把你的家人弄到美国、日本去。他爱球咋地咋地，是不是？就像你咋不把人弄到非洲去呢？你们的儿女、你们的孩子都来到美国和小日本，结果让我们的老百姓的孩子去哪里啊？去乌克兰、去非洲。
 
-对此，文贵先生在当天盖特中表示，俄乌战争以及对俄罗斯的经济制裁，已加快促成了一个全新数字货币金融时代的诞生。以美元为核心的传统国际金融系统将逐渐失去其控制力。相反，以稳定币作为铆钉的安全和无垄断，并使用去中心化技术的喜币将成为人类的未来。世界格局和人类秩序也将因此被彻底改变。
+我们山东老乡这边，我一个特别特别重要的一个朋友。头两天跟我说，他说：“七哥，我这身体也不行了，打了三针毒，腿也抬不起来了，临死前我得跟你说说。” 就哭的哼啥的。我说：“咋了这是？闺女呢？咱不两闺女的吗？” “哎呀别提了，七哥，咱那闺女丢死人了。” 我说：“咋了？” “这不山东，这不办学吗？咱那闺女去到那当老师去了，最后跟一个非洲的黑人跑了，找不着了。” 我说：，“哎你那么有身份还找不着？” “找不着了”。我说“那二闺女呢？” “别提了，七哥，二闺女也跑了”。哇塞，这都跑了。
 
-发稿：文明(添草灭共)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-原文链接： [https://torontosun.com/business/money-news/crypto-exchanges-wont-bar-russians-raising-fears-of-sanctions-backdoor](https://torontosun.com/business/money-news/crypto-exchanges-wont-bar-russians-raising-fears-of-sanctions-backdoor)
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

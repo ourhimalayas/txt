@@ -2,40 +2,92 @@
 ---
 
 
-## 新西兰财经G乐部2022年3月4日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2107074/)
+## 俄罗斯军队包围乌克兰最大核电站，引发联合国担忧
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2107120/)
 
-采集整理：蚂蚁的城堡
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-386.png)
-**1、美日印澳声明称不应允许乌克兰的情形在印太地区发生**
-![img](https://media.gettr.com/group15/origin/2022/03/04/02/0b5f6ab5-b035-f95b-3031-2b69f86bc7d8/df50aabded68b5c7e6027ab3c3e0e82f_500x0.png)
-路透东京/华盛顿3月3日 – 日本首相岸田文雄说，四方安全对话国家–美国、印度、澳洲和日本的领导人周四均认为，不应允许乌克兰发生的事情在印度-太平洋地区发生。在对台湾的关注增加之际，四方安全对话举行了一次视频会议。在俄罗斯入侵乌克兰后，台湾加强了警戒级别，警惕北京利用西方注意力分散之机对其采取行动。
+翻译：香草山商业部 — 文锤
 
-链接：[https://cn.reuters.com/article/japan-quad-ukraine-0304-idCNKCS2L102I?il=0](https://cn.reuters.com/article/japan-quad-ukraine-0304-idCNKCS2L102I?il=0)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-**2、受制裁影响，俄罗斯企业争相开设中资银行账户**
-![img](https://media.gettr.com/group45/origin/2022/03/04/02/0b51b2ad-2136-fab1-15b0-6fec16794138/6abedc550a12336263a9e4fd542ee8c7_500x0.png)
-路透上海3月3日 – 一位知情人士说，中国一家国有银行的莫斯科分行看到来自俄罗斯企业希望开立新账户的询问数量激增，因在俄罗斯入侵乌克兰后俄企业正艰难应对国际制裁。“过去几天，有200-300家公司与我们接洽，希望开设新账户，”这位在一家中国国有银行莫斯科分行工作、并直接了解该行业务的人士对路透表示。
 
-链接：[https://cn.reuters.com/article/exclusive-russian-companies-chinese-bank-idCNKCS2L014C?il=0](https://cn.reuters.com/article/exclusive-russian-companies-chinese-bank-idCNKCS2L014C?il=0)
 
-**3、涉诉13亿却被司法标记冻结83亿资产！东方集团公告喊冤，欲剥离地产寻求转型**
-![img](https://media.gettr.com/group32/origin/2022/03/04/02/04354db2-6160-b0eb-b444-58dbf24b3f70/a72f36b038be1adb35a239e5adcf4b13_500x0.png)
-因为一桩价值30亿元的土地转让交易“烂尾”，[东方集团](https://finance.sina.com.cn/realstock/company/sh600811/nc.shtml)股份有限公司（下称“东方集团”，600811.SH）被起诉索赔约13亿元，导致其持有的巨额股权资产被法院冻结。3月3日，东方集团发布公告称，公司及控股股东东方集团有限公司（下称“东方有限”）持有的民生银行、锦州港（600190.SH）等股权资产被司法标记、冻结合计市值已达83亿元，远远超过案涉金额，将对公司经营产生不利影响，公司将依法向相关法院提出异议。
 
-财经G评：东方集团控制人张宏伟，郭先生曾说过张宏伟靠行贿国开行陈元获得大量贷款、张宏伟给陈元送一副名画叫什么战友们还记得吗？ 东方集团、东方海外都是靠洗钱！
 
-链接：[https://finance.sina.com.cn/roll/2022-03-04/doc-imcwiwss4033415.shtml](https://finance.sina.com.cn/roll/2022-03-04/doc-imcwiwss4033415.shtml)
+联合国核监督机构的负责人恳求入侵部队允许核电厂的工人在扎波罗热核电站继续“提供安全和辐射检测”。
 
-**4、房企偿债高峰：连续两月债券到期规模均超千亿**
-![img](https://media.gettr.com/group14/origin/2022/03/04/03/18828428-0112-c94f-0f43-1fe959284421/a13f4f9c066aa41f1cdefedce23aab8c_500x0.png)
-根据贝壳研究院统计，2022年1-2月房企境内、境外债券融资累计约856亿元，同比下降59%，降幅较今年首月收窄11个百分点。同时，2月，房企境内外债券融资到期债务规模约395亿元，环比减少62.4%，到期债务净额20亿元，偿债压力较1月明显改善。不过，房企在3月份、4月份连续两个月到期债务规模均超过千亿，对房企的资金流动性构成一定的威胁，将增大对房企融资能力的考验。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-31.png)图片来源于网络
 
-链接： [https://finance.sina.com.cn/stock/zqgd/2022-03-04/doc-imcwipih6512664.shtml](https://finance.sina.com.cn/stock/zqgd/2022-03-04/doc-imcwipih6512664.shtml)
+在俄罗斯军队声称已经包围了乌克兰最大的核电厂后，联合国核监督机构表达了担忧，并呼吁让其工人独自工作。
 
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
+国际原子能机构（IAEA）总干事拉斐尔·格罗西（Rafael Grossi）表示，俄罗斯政府已通知该机构，其军队已经控制了位于乌克兰东南部的扎波罗热核电站周围地区，该核电站是欧洲第二大核电站。该国 15 座反应堆中的 6 座。
 
-上传排版：文勇
+俄罗斯官员在[给国际原子能机构的信中](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;hl=zh-CN&amp;u=https://www.iaea.org/newscenter/pressreleases/update-6-iaea-director-general-statement-on-situation-in-ukraine)坚称，该工厂的乌克兰工作人员将继续“致力于提供核安全并在正常运行模式下监测辐射”。
+
+然而，经营该国核工业的乌克兰国有企业 Energoatom 指责俄罗斯军方“公开恐吓该站的员工及其卫星城市 Energodar 的居民”。
+
+一名乌克兰官员在社交媒体上分享的视频片段显示，成群结队的乌克兰人在俄罗斯军队和核电站之间形成了一道屏障，阻碍了他们的前进。
+
+内政部官员安东·格拉什琴科在[Facebook 帖子](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;hl=zh-CN&amp;u=https://www.facebook.com/anton.gerashchenko.7)中说：“俄罗斯将军——改变主意！不要为新切尔诺贝利创造条件！辐射不分民族，不放过任何人！绕过 Energodar 和 Zaporizzhya。”
+
+乌克兰已要求国际原子能机构在乌克兰的四个核电站周围宣布一个[30 公里的安全区。](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;hl=zh-CN&amp;u=https://www.energoatom.com.ua/ua/press_centr-19/novini_kompanii-20/p/zasidana_magate-48949)
+
+格罗西在维也纳召开的国际原子能机构理事会会议上说：“至关重要的是，武装冲突和扎波罗热核电站周围的地面活动以及乌克兰的任何其他核设施绝不会中断或危及设施或工作人员。在他们身边和周围。”
+
+国际原子能机构还表示，来自扎波罗热的辐射数据传输已于周二中断，乌克兰核监管检查局（SNRIU）正试图找出中断的原因并恢复数据流。
+
+格罗西还对 SNRIU 的一份报告表示担忧，该报告称，自从俄罗斯人接管了切尔诺贝利核电站以来，该核电站是 1986 年乌克兰西北部靠近白俄罗斯边境的灾难现场，那里的工作人员一直没有被允许回家。
+
+美国驻国际原子能机构副特使路易斯·博诺说：“现场的乌克兰工作人员不被允许离开，被迫轮班工作。这增加了执行关键任务的工作人员的压力，进一步危及现场和公众的安全和保障。”
+
+格罗西在讲话中说：“最重要的是，[切尔诺贝利核电站]的工作人员能够安全有效地完成他们的工作，并且他们的个人福祉得到了控制者的保障，”
+
+1986年爆炸的反应堆堆芯残骸被掩埋在现场的混凝土下，周围还有乏燃料储存设施和大量放射性尘埃。
+
+俄罗斯军用车辆搅动土壤造成了有限的辐射峰值。Energoatom 在一份声明中说：“现在处于禁区，在放射性污染区域工作时显然没有确保人身安全的技能，入侵者暴露在显着的外部和内部辐射下，这无疑会以形式表现出来。癌症。”
+
+周日，乌克兰当局表示，俄罗斯导弹袭击了基辅一个放射性废物处理设施的现场。前一天，哈尔科夫另一个废物处理厂的变压器损坏。在这两种情况下都没有放射性释放，但这些事件凸显了在一个拥有广泛核工业的国家正在进行的战争可能带来的生态灾难威胁。
+
+美国核学会（ANS）是一个行业专业人士协会，正在寻求向乌克兰提供物质支持，以帮助那里的核工人。
+
+“乌克兰核电站的工作人员必须能够履行职责，而不会受到不适当的压力或对被杀或受伤的恐惧，”ANS在一份声明中说。“乌克兰的核工作人员需要在轮班之间休息，回家，并让他们的亲人安全无虞。
+
+该协会主席史蒂文·内斯比特说，他希望俄罗斯入侵者意识到核事故的危险。
+
+“我只能说很难相信他们对这里的问题不敏感，”内斯比特说。“俄罗斯和弗拉基米尔·普京需要采取一切可能的措施，以避免变得比他们现在更成为一个贱民国家。”
+
+评论：居住在欧洲的战友们可以自行决定是否要准备一些碘片（comprimé iode）, 目前在法国的药店购买不到这种药品，amazon上断货需要等待1到2个月，法国核电厂周围的居民已经被发放这种药片，比利时政府也给他的居民发放了几万份药片。
+
+碘对甲状腺保护的作用就像把海绵浸满了水，这样海绵就不会再吸收水，同理甲状腺补充了足够的碘就不会再吸收含有辐射的碘，这些含有辐射的物质会很快被身体代谢掉通过尿液排出体外。对于用药的剂量和方法以及是否有禁忌症请咨询自己的家庭医生，本建议不承担任何责任。
+
+原文作者：[Julian Borger](https://www.theguardian.com/profile/julianborger)
+
+**原文链接：**
+
+**[Russian forces surround Ukraine’s biggest nuclear plant, sparking UN concerns | Ukraine | The Guardian](https://www.theguardian.com/world/2022/mar/03/russian-forces-surround-ukraines-biggest-nuclear-plant-sparking-un-concerns)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
+
+校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

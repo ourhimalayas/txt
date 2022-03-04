@@ -2,24 +2,33 @@
 ---
 
 
-## 俄罗斯可能制造“栽赃行动”轰炸自己人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2107222/)
+## 如果有大型的排华运动怎么办
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2107232/)
 
-#### 撰稿：彩虹       
+文编：Hima
+听写：叮叮
+视频：七哥
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-388.png)图片来源：以色列时报
-据《新闻极限》3月2日报道，周三，乌克兰安全部和外交部长声称，俄罗斯可能向自己的村庄发射导弹，为其进一步入侵乌克兰制造借口。
+2022-03-02直播摘录
 
-外交部长德米特罗·库莱巴（Dmytro Kuleba）在推特上说，“令人担忧的报道：俄罗斯人可能将俄罗斯边境村庄波波夫卡（Popovka）的多个火箭发射系统指向了自己的领土。鉴于俄罗斯行动的野蛮性质，我们担心可能会准备一个栽赃行动（false flag operation）嫁祸乌克兰。”
+排华已经不可避免，只是多少的问题。就连这个加拿大这个大农村，就是好几个咱们内部的战友说，加拿大内部政府就说了，如果在加拿大开始有反华的时候我们该怎么办？华人很散，主要温哥华怎么办？他很惊讶，他说这么大的加拿大，你上哪找这些华人去呀？而且这个是移民国家。但是政府内部就在讨论这个，如果有大型的排华运动怎么办?
 
-乌克兰安全部在电报群（Telegram）上也发表了类似声明，“他们（俄军）在俄乌边境的克拉斯诺皮尔（Krasnopil）村放置了多个名为‘冰雹（grad）’的强力导弹发射器，朝向俄罗斯，将瞄准一个名为波波夫卡（Popovka）的俄罗斯村庄。”
+你可想在日本这种国家，那右翼天天喊着肮脏的中国人滚回中国去，撒谎的中国人滚回中国去，不诚实的中国人滚回中国去，你去想想这个右翼一旦要是弄了，Nancy你们什么感觉？那么接下来我们的救援当中我们要记住，我们优先救我们的战友。我们今天特别高兴，由咱们长岛哥主导的全面的救援行动，和老班长，还有我们铁血组所有联盟委员会共同的努力下，在战区当中的四个铁战友，三个家庭，在昨天已经彻底地都离开了乌克兰，已经到达了波兰，今天我可以这么宣布。
 
-另据报道，法国总统马克龙（Emanuel Macron）在与普京通完电话后说：“最糟糕的事情还没有发生。”
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**新闻来源**
+**关注我们**
 
-[Ukraine Officials: Russia May Bomb Own Villages to Justify Invasion](https://www.newsmax.com/newsfront/russia-ukraine-vladimir-putin-false-flag-attack/2022/03/03/id/1059554/)
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
