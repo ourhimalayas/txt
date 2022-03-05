@@ -2,31 +2,34 @@
 ---
 
 
-## 俄罗斯和中共的疯狂造就新世界格局，新中国联邦秉持正道成赢家
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2107765/)
+## 中共砖家松口称可能跟中共病毒共存
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2107904/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月28日，中共疾病预防控制中心的首席科学家曾光，在微博上发文称，“动态清零是特定的时期内的防疫对策，不会永远不变，在对发病、死亡容易容忍的情况下，与病毒共存是人类的长远目标”。
 
-3月2日，郭文贵先生于GTV、Gettr大直播中透露，俄罗斯和中共的疯狂会造就新的世界政治、金融格局，并表示，数字货币、新中国联邦会成为最后最大的赢家。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/mfile_1634473_1_20220218153308-scaled.jpg)图片来源RTHK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/04-03-2022-2.jpg)图片来源网络
 
+这段发言，跟CCP一直以来鼓吹的“坚持动态清零”相悖，墙内关于该新闻的报道，几乎都已经被下架。 另据战友每日统计的墙内数据也表明，动态清零非但没有降低墙内的感染人数，并且还越是在中共严抓动态清零的时候，出现了单日确诊病例陡增的现象。
 
-俄罗斯总统普京军事侵略乌克兰、核武器威胁、无差别轰炸平民，好比插向自己心脏和脖子的三刀，普京自此已经彻底被世界孤立和唾弃。
+相关链接:
 
-俄罗斯的疯狂只能唤醒一个战争机器——德国；中共即将的最后疯狂，只能唤醒另一个战争机器——日本，这是本质决定的。随后，世界格局大改变，战争打出新的欧洲、新的亚洲，还有新的澳洲。
+[https://www.cna.com.tw/news/acn/202203020117.aspx](https://www.cna.com.tw/news/acn/202203020117.aspx)
 
-战后的金融界，会产生三个金融强国。英国这次对俄罗斯制裁的力度之大、之精准，意味着必将代替欧洲的金融强国瑞士，重回曾经辉煌的大英帝国金融时代。新加坡表面表示一定严格执行西方的各种制裁，私下里仍跟俄罗斯、中共国暗通款曲，所以新加坡唯有死路一条。崛起后的台湾会代替现有的新加坡，成为新的亚洲金融帝国。在美洲，美国一如既往的强大。但是倚靠美国，也会诞生强大的政治、经济实体——加拿大、澳大利亚，两国会成为新的第二级别或准第一级别的帝国。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3d9e226d3e23a087c251a322e1e0e0b8.jpg)图片来源RFI
+[https://weibo.com/u/1496814510](https://weibo.com/u/1496814510)
 
+![This image has an empty alt attribute; its file name is March-4.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
 
-到那时，俄罗斯也会摘掉战斗民族的标签，玩弄、残暴统治中国人民的共产党也会100%被消灭干净。
+编辑/校正/发稿：Petite abeille
 
-在货币界，数字货币会成为最后最大的赢家。新中国联邦秉持正道主义，会成为卢森堡、瑞士、新加坡样式的联合体，核心支柱喜联储、HCoin（喜币）、HDO（喜美元）谁也无法阻挡，HCoin（喜币）将是数字货币的规则制定者和开拓者。
-
-**附：**
-
-正道主义，无欲、无我、无目的、纯正的、纯粹的人道关系。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

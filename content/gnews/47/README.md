@@ -2,22 +2,20 @@
 ---
 
 
-## 中共正在对全世界发动网络战争
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2104979/)
+## 2022年中共国高校毕业生达1076万人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2104980/)
 
-撰稿：东京樱花团/加一颗稻草
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-17.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F16679%2Fproduction%2F_105396719_hi027869497_1.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fchinese-news-47052513&amp;tbnid=1lucNVO77tr2DM&amp;vet=12ahUKEwi0kqOl_6v2AhVhgmMGHf8ACEEQMygDegUIARCrAQ..i&amp;docid=r1CUlsNEtlZP1M&amp;w=640&amp;h=360&amp;q=%E7%BD%91%E7%BB%9C%E6%94%BB%E5%87%BB&amp;ved=2ahUKEwi0kqOl_6v2AhVhgmMGHf8ACEEQMygDegUIARCrAQ)
-美国网络安全公司CrowdStrike最新发表《2022年全球威胁报告》指出，中共国利用网络漏洞进行攻击的能力世界一流，在过去一年有上升的趋势。CrowdStrike情报事务高级副总裁亚当·迈耶斯（Adam Meyers）2月16日在一场网上说明会上说：“他们（中共国黑客）越来越多地寻找企业级服务下手，比如VPN集中器、微软 Exchange服务器、源代码存储库等等。”
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2FXinwen%2F5-11282021145520.html%2F%40%40images%2Fimage%2Fsocial_media&amp;imgrefurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2FXinwen%2F5-11282021145520.html&amp;tbnid=gYt-FNDceRxXXM&amp;vet=12ahUKEwithpbhhaz2AhU1R2wGHd0xAZ8QMygCegUIARCEAQ..i&amp;docid=lWwjVzZvq7Yq4M&amp;w=1500&amp;h=846&amp;q=%E4%B8%AD%E5%85%B1%E5%9B%BD%E9%AB%98%E6%A0%A1%E6%AF%95%E4%B8%9A%E7%94%9F&amp;ved=2ahUKEwithpbhhaz2AhU1R2wGHd0xAZ8QMygCegUIARCEAQ)
+3月4日新浪财经报道，中青报记者在全国政协十三届五次会议新闻发布会上提问。新闻发言人郭卫民说，今年有1076万名大学生毕业，高于往年，确实面临着较大就业压力2022届高校毕业生规模预计达1076万人，同比增加167万人，这是高校毕业生规模首次超过千万。
 
-传统基金会高级研究员成斌（Dean Cheng）直言不讳地提出对那些为中共国军工单位出力的大学进行制裁。成斌说：“中共国的大学数量众多，但其中有一些大学很有意思，它们不属于教育部，实际上隶属于工业和信息化部——这是中共国的军工综合体监督机构。这其中包括北京航空航天大学、南京航空航天大学、哈尔滨工业大学等，大约有八个。它们为中共国军工综合体提供直接支援。”
+2020届高校毕业生是874万人，同比增加40万人，2021届全国高校毕业生总规模909万，同比增加35万人。这意味着，2022年中国高校毕业生将创下两个历史：毕业生人数最高，毕业生人数增长最大。
 
-中共制造的病毒在全世界投放之后，新冠疫苗的不良反应逐渐累积爆发。以及俄乌战争中俄罗斯的核武威胁。给人类安全增加了更多的不确定性。
+2022年中共国千万人规模的毕业生，不包括官二代和红二代，因为中共早已把自己的子女安排在海外留学，千万人规模的毕业生，更多是属于基层家庭，即将面临着毕业即失业的状态。
 
-3月2日，美国代表团蓬培奥一行访问台湾期间，台湾遭遇网络攻击造成大面积停电。中共攻击台湾意图逐渐暴露。3月2日晚，最新崛起的世界著名自由媒体 GTV也因中共的网络攻击被迫停止运行。中共如此密集的攻击行动。正在全球发起一场网络战用以配合俄罗斯的侵略战争。中共占领台湾并称霸世界的计划正在紧锣密鼓的进行中。
+根据众多外卖平台的统计报告，现在中共国有大约700万外卖骑手，其中本科学历的有21万，硕士学历的有7万，中共国拼命的就业工作只为单单的生存活着而已，送外卖也是逼不得已的选择，随着中共经济急剧下降，各种谋生的新闻也会继续增加。
 
-消息来源：
-
-[“和我们一起在网络战线战斗” 乌克兰征召全球网军 反击俄罗斯](https://www.voachinese.com/a/ukraine-it-army-20220228/6464220.html)
+[【今年高校毕业生首次过千万，如何看待就业形势？\_财经头条】](https://cj.sina.cn/articles/view/1726918143/m66eeadff03301c75j)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

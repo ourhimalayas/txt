@@ -2,38 +2,30 @@
 ---
 
 
-## 中共弃同胞不顾 新中国联邦前往救援
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2107927/)
+## 俄罗斯气急败坏“反制裁”，境内跨国企业只剩3选项！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2108074/)
 
-作者：纽约香草山- 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月1日，中共驻乌克兰大使馆官方微信号转发乌克兰铁路官网通知，鼓励滞留华侨自行乘火车离开乌克兰，前往邻国避险。
+俄罗斯侵略乌克兰已迈入第九天，面对国际社会纷纷对俄罗斯的制裁，如今俄罗斯竟然气急败坏的开始反击了！不仅禁止外国人拋售俄罗斯证券、停止贩售火箭引擎给美国，俄第一副总理贝洛索夫（Andrei Belousov）也对所有在俄跨国企业宣布只剩3选项可行！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/04-03-2022-3.jpg)图片来源网络
-
-中共大使馆说，这是目前乌克兰安全局势下最合适的撤离方式。并提醒中国侨胞出发前向使馆报备。 在俄罗斯侵略乌克兰之际，各国使领馆即时安排其侨胞撤离，唯中共使馆反应迟缓毫无措施。中共驻乌克兰大使，曾放话包机撤侨，据悉最终只接自己人员及亲友离乌。对普通华侨则一再推脱，以目前安全局势下，无法进行包机撤离为由，鼓励华侨自行前往乌克兰邻国。 2月28日媒体见面会上，中共外交部发言人不敢正面回应乌克兰撤侨事宜的提问，谎称乌克兰局势复杂多变，中共还在研究中国公民安全撤离的方案。 相反，2月26日，在国际上没有主权的新中国联邦宣布，法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人均可联系法制基金。但中共驻乌使馆对此却发出警告，威胁华侨不要上当受骗，透露自己的信息。 有关人士评论，中共自己无能救助同胞弃同胞不顾，却对新中国联邦的无私营救极尽歪曲之能事，中共对中国老百姓非人道的邪恶，昭然若揭。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/merlin_202715436_35b9729b-798c-44a7-9c6c-21a8ed425e2c-master1050.jpg)图片来源：纽约时报
 
 
+贝洛索夫宣布，所有在俄跨国企业只剩三个选项：
+一是继续在俄罗斯全面展开业务；
+二是将股份转给俄罗斯合作伙伴管理，并在日后重返俄国市场；
+三是永久中止俄罗斯业务，关闭生产线并解僱员工。
 
-相关链接:
+简评：俄罗斯所谓的反制裁，除了赤裸裸的威胁，就是在作死的路上狂奔！国际社会对俄罗斯的制裁是为了正义与停战制裁侵略者，俄罗斯的反制裁简直是彰显侵略的野心并毫无停手之意！全世界正义的力量联合起来，让制裁俄罗斯来的更猛烈些吧！
 
-[https://3g.163.com/dy/article/H1C3JV4G0512B07B.html?referFrom=google&spss=adap\_dy](https://3g.163.com/dy/article/H1C3JV4G0512B07B.html?referFrom=google&amp;spss=adap_dy)
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1080243)
 
-[https://tw.news.yahoo.com/%E6%92%A4%E5%83%91-%E4%B8%AD%E5%9C%8B%E9%BC%93%E5%8B%B5-%E8%87%AA%E8%A1%8C%E5%89%8D%E5%BE%80%E7%83%8F%E5%85%8B%E8%98%AD%E9%84%B0%E5%9C%8B-%E5%87%BA%E7%99%BC%E5%89%8D%E5%8F%AF%E7%9F%A5%E6%9C%83-%E6%B2%BF%E9%80%94%E6%B3%A8%E6%84%8F%E5%AE%89%E5%85%A8-182344690.html](https://tw.news.yahoo.com/%E6%92%A4%E5%83%91-%E4%B8%AD%E5%9C%8B%E9%BC%93%E5%8B%B5-%E8%87%AA%E8%A1%8C%E5%89%8D%E5%BE%80%E7%83%8F%E5%85%8B%E8%98%AD%E9%84%B0%E5%9C%8B-%E5%87%BA%E7%99%BC%E5%89%8D%E5%8F%AF%E7%9F%A5%E6%9C%83-%E6%B2%BF%E9%80%94%E6%B3%A8%E6%84%8F%E5%AE%89%E5%85%A8-182344690.html)
+撰稿/发布：一叶知秋
 
-![This image has an empty alt attribute; its file name is March-4.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
-编辑: 静言
-
-校正/发稿：Petite abeille
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
