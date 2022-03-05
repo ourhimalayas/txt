@@ -2,12 +2,18 @@
 ---
 
 
-## 乌总统呼吁西方国家考虑对俄设立 &#8220;禁飞区 &#8220;以停止轰炸
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2112416/)
+## 乌克兰的007杀死与俄罗斯会谈的和平谈判代表
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2112418/)
 
-02/28/2022 乌克兰总统弗拉基米尔·泽连斯基签署了一份寻求加入欧盟的申请，并呼吁西方国家考虑为俄罗斯飞机设立”禁飞区”以停止轰炸，应该停止购买俄罗斯商品，因为这相当于资助俄罗斯人的屠杀
+#### 翻译                       意大利达芬奇农场                     小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-05-alle-22.10.02-1.png)图片来源：imolaoggi.it
+据adnkronos报道，丹尼斯•基里耶夫( Denys Kireev)是曾参加在白俄罗斯Gomel举行的俄罗斯与乌克兰第一轮谈判的基辅代表团成员之一。他在乌克兰安全部门的一次行动中丧生，据乌克兰国际文传电讯社报道，议员Oleksiy Goncharenko在他的电报群频道报道了这一事件。
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+据这位议员说，服务部门有他背叛的明确证据， 包括一些电话。他补充说，Kireev在逮捕他的行动中被杀。
+
+原文链接： [https://www.imolaoggi.it/2022/03/05/colloqui-russia-007-ucraini-uccidono-negoziatore-di-pace/](https://www.imolaoggi.it/2022/03/05/colloqui-russia-007-ucraini-uccidono-negoziatore-di-pace/)
+
+编辑、上传：  Xiao  baige
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/5/2022 11:10 PM (UTC)`
+
+【Ukraine Rescue】03/05/2022 NFSC Ukraine Rescue Team Interviews Mayor of Rzeszów, Poland. Mr. Mayor was not only very appreciative of the NFSC's rescue operation but also facilitated and provided support for our work.<br/><br/>【乌克兰救援行动】03/05/2022 新中国联邦乌克兰救援团队采访波兰热舒夫市长。市长先生不仅非常感谢新中国联邦的救援行动，并且为我们的工作提供了便利和支持。<br/><br/>
+![img](https://media.gettr.com/group39/getter/2022/03/05/23/7da44d1a-67d9-6557-a554-ec7015d495a7/out.jpg)
+
+---
+
 `@miles 3/5/2022 11:03 PM (UTC)`
 
 03/05/2022 David interviews a Chinese rescued by the first NFSC rescue bus from Ukraine<br/><br/>03/05/2022 大卫采访被第一辆NFSC乌克兰救援巴士从乌克兰救出来的中国人<br/><br/>
@@ -149,13 +156,6 @@ Children of the New Federal State of China pray for the peace of Ukrainian Peopl
 
 #鸡血快报<br/>#鸡血王喜币大作战<br/>#战友威廉王<br/>
 ![img](https://media.gettr.com/group34/gvision/2022/03/04/19/75712785-2a7e-e266-de79-9afd29590ba5/out.jpg)
-
----
-
-`@miles 3/4/2022 5:43 PM (UTC)`
-
-3月4号：比爹娘还亲的中国共产党，不但不拯救同胞，更不拯救其他国家的同类．……还选择了支持邪恶的反人类的大屠杀战争……还趁人之危……威胁绑架在战争中侥幸逃出的同胞……这是多么的丑恶……醒来吧，可怜的懦弱的无知的中国同胞们……不要再让别人当猪狗了利用了。
-![img](https://media.gettr.com/group40/getter/2022/03/04/17/aac409a5-fcd0-fdd8-eebb-d2ecdca2ac36/70dd8b46e78fe2c047cb4a071e2dd40f.jpg)
 
 ---
 
