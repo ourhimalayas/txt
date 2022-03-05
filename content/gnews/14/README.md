@@ -2,27 +2,46 @@
 ---
 
 
-## 声援乌克兰！欧洲150电台播反战歌曲
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2110158/)
+## 俄罗斯目前需要中共人民币兑换以获得战争资金
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2110196/)
 
-俄罗斯入侵乌克兰，为了声援乌克兰，欧洲25国合共150个官方及民营电台串联起来，于格林威治时间3月5日上午7时45分，一同播放约翰列侬的反战歌曲〈给和平一个机会〉（Give Peace a Chance）。发起人表示，这是为了团结，并提醒世人，不应对战争视而不见。
-
-欧洲广播联盟（EBU）总经理柯兰（Noel Curran）表示：大众在战争时期会习惯转向公共媒体来获取资讯与团结……这是我们的工作，面临世界分崩离析，能够创造让人民团结一心的时刻，我感到很骄傲。
-
-乌克兰电台第一频道执行制作人塔巴成柯（Yurii Tabachenko）感谢EBU的支持：今日，欧洲围绕着乌克兰而团结，这真的很重要。
+作者：银河系农场—骄子
 
 
-GIVE PEACE A CHANCE : Private Pepper (John Lennon cover)
-简评：不要对战争视而不见，团结起来反对战争，给和平一个机会，乌克兰需要世界的支援！乌克兰人不是在为自己而战，更是在为世界而战！假如世界各国陷入了沉默，下一个受侵略的就可能是我们！团结起来，才能守护和平！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-25.png)
+随着世界各国对俄罗斯的金融制裁，目前国际货币基金组织IMF认可的五种自由使用的货币中，美元、欧元、英镑、日元已经全部关闭了俄罗斯卢布兑换的途径，目前只剩下人民币可以作为唯一的兑换货币。
 
-新闻来源：[星岛网](https://std.stheadline.com/realtime/article/1815445/%E5%8D%B3%E6%99%82-%E5%9C%8B%E9%9A%9B-%E4%BF%84%E7%83%8F%E5%B1%80%E5%8B%A2-%E6%AD%90%E6%B4%B2150%E9%9B%BB%E5%8F%B0%E6%92%AD%E7%B4%84%E7%BF%B0%E9%80%A3%E5%84%82%E5%8F%8D%E6%88%B0%E6%AD%8C%E6%9B%B2-%E5%80%A1%E5%90%84%E5%9C%8B%E4%BA%BA%E6%B0%91%E5%9C%98%E7%B5%90%E8%B5%B7%E4%BE%86)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/bc-russia-needs-china-s-help-to-turn-its-imf-reserves-into-cash-for-war.png.jpeg)图源网络
 
-撰稿/发布：一叶知秋
+目前IMF资产约占俄罗斯6430亿美元储备的4%，美国和欧盟等国家采取了一切措施防止俄罗斯从IMF的储备中受益。基于中共目前的立场，如果中共央行与俄罗斯央行开展货币互换关系，对维持卢布的价值作用也是有限的，因为人民币是脱离于整个世界市场经济的货币，对自由贸易的作用影响力较小。如果俄罗斯通过特殊渠道收购其他四种已关闭兑换的货币，这些资金会被冻结。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+俄央行和中共央行均未对此回应。
+
+参考来源：
+
+[Russia Needs China’s Help to Turn Its IMF Reserves Into Cash for War](https://www.bnnbloomberg.ca/russia-needs-china-s-help-to-turn-its-imf-reserves-into-cash-for-war-1.1731525)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-12.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-26.png)
+
 
  
 

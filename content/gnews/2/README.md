@@ -2,26 +2,47 @@
 ---
 
 
-## 国际残奥会主席呼吁和平的演讲遭到中共国家电视台审查
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2110293/)
+## 乌克兰网球明星谢尔吉·斯塔霍夫斯基加入国家预备役部队抵抗俄罗斯入侵
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2110368/)
 
-撰稿：东京樱花团/待命（文晓）
+作者：日本东京方舟农场—Miyali7768(文玉）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/国际残奥会主席呼吁和平的演讲遭到中共国家电视台审查.png)
 
-３月５日CNN消息：在4日的中共国北京残奥会开幕式上，国际残奥会主席帕森斯呼吁和平的演讲内容，其大部分内容居然遭到中共国国家电视台的审查。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-31.png)
+乌克兰网球明星谢尔吉·斯塔霍夫斯基（Sergiy Stakhovsky）放下网球拍拿起步枪，加入乌克兰的预备役部队，尽自己的一份力量抵抗俄罗斯入侵者。
 
-帕森斯先生在演讲时说到：“今晚，我想用一个和平的信息开始我的发言。作为一个崇尚多样性、拥抱差异、以包容为核心的组织的领导人，我对今天世界上所发生的事情感到震惊。21世纪不是战争和仇恨的时代，而是对话和外交的世纪”。据信这段话暗指俄罗斯入侵乌克兰的战争行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Alexander-Hassenstein_Getty-Images-640x335-1.jpg)[图源网络](https://www.breitbart.com/sports/2022/03/01/ukraine-tennis-star-sergiy-stakhovsky-drops-racket-picks-up-rifle-to-repel-russian-invaders/)
 
-然而，中共国中央电视台（CCTV）的同声传译员并没有翻译帕森斯所提及的世界形势以及随后的大部分讲话内容。甚至，把讲话音量调到较低。莫名其妙的是，屏幕上的手语翻译也停止了动作。
+36岁的谢尔吉·斯塔霍夫斯基是四次 ATP 巡回赛冠军得主，他目前已经暂停了自己的运动生涯，回到家乡为他的人民而战。斯塔霍夫斯基在社交媒上体鼓励他的乌克兰同胞反抗入侵者。他在Instagram上用母语写道”我为我的总统感到自豪，我为每一个乌克兰人感到自豪。我为自己是乌克兰人而感到自豪。相信我们的军队…相信我们的无敌。荣耀归乌克兰”。
 
-本周以俄罗斯入侵乌克兰为由，禁止俄罗斯和白俄罗斯运动员参加北京残奥会。然而，中共再次拒绝将俄罗斯对乌克兰的无端攻击称为 “入侵”，同时呼吁开展外交解决其问题，并批评美国和北大西洋公约组织（NATO）挑起紧张局势。
+参考来源：
 
-信息来源：[ＩＰＣ会長の平和の呼び掛け、中国国営テレビが検閲　北京パラリンピック（CNN.co.jp） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/d0cf7a8a93d7a0115a81e8ab4fd029de947f7a3b)
+1.[https://gettr.com/post/pxrl0p724d](https://gettr.com/post/pxrl0p724d)
 
-*校对：东京樱花团/逢⑦必变
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+2.[Ukraine Tennis Star Sergiy Stakhovsky Drops Racket, Picks Up Rifle to Repel Russian Invaders](https://www.breitbart.com/sports/2022/03/01/ukraine-tennis-star-sergiy-stakhovsky-drops-racket-picks-up-rifle-to-repel-russian-invaders/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-15.jpg)
+
+
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-32.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
