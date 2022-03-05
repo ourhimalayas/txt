@@ -2,35 +2,24 @@
 ---
 
 
-## 视频|力挺乌克兰 全球各界掀起反战浪潮
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2109359/)
+## 英国官方数据：新冠疫苗接种者病亡率爆升
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2109449/)
 
-制作：香草山视频部
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-53.jpg)
+图片来源： 网络图片合成
 
-俄罗斯对乌克兰的持续入侵已造成了巨大的人道灾难，并招致了西方世界的强烈抵制和制裁，反战浪潮已在全球各个领域掀起。
+乌克兰战火纷飞的同时，一场不见硝烟、却死伤更甚的灾难正愈演愈烈。据英国The Exposé网文章，[英国卫生安全局（UKHSA）每周发布的新冠疫情数据](https://mybank.icbc.com.cn/icbc/newperbank/account/electricbillRemit.jsp?dse_sessionId=BZFWATBAIUCJAIGBGCIRATEUIWAYDCGTDSDGCVJV&amp;requestTokenid=1646447088204-1479356184&amp;isICBCEbill=1&amp;remiticon4freeofcharge=0&amp;shoufukuanFlag=1&amp;ebillFlagForWater=1&amp;huashangFlag=1https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1057599/Vaccine_surveillance_report_-_week-8.pdf)显示，当地新冠疫苗的未接种者死亡率逐减的同时，2针和3针接种者死亡率爆增，完全接种者比未接种者呈现出了更高死亡率。
 
-（1）零售方面。美国各地正在从货架上撤下俄罗斯制造的产品，因为几位州长签署了限制俄罗斯商品在本州销售的命令。
+数据显示，2021年11 月 22 日至2022 年 2 月 20 日的8周期间，对比最近4周与前4周的死亡病例数，未接种者的死亡减少了 37%，接种者死亡却增加了 48%。2 月 24 日报告第41页数据显示，至2月20日的最近4周里，新冠死亡病例中高达9/10为2针接种者，4/5为3针接种者（见上图）。对比英格兰的新冠疫苗接种率，至2022年2月28日为止完全接种者为73.5%，加强针接种者为56.9%（[Our World in Data数据](https://mybank.icbc.com.cn/icbc/newperbank/account/electricbillRemit.jsp?dse_sessionId=BZFWATBAIUCJAIGBGCIRATEUIWAYDCGTDSDGCVJV&amp;requestTokenid=1646447088204-1479356184&amp;isICBCEbill=1&amp;remiticon4freeofcharge=0&amp;shoufukuanFlag=1&amp;ebillFlagForWater=1&amp;huashangFlag=1英格兰)）。不难看出，2针和3针接种者比未接种者呈现出了更高的死亡率。
 
-（2）体育方面。应国际奥委会的要求，体育联合会和体育联盟正在积极采取行动将俄罗斯的球队和运动员排除在任何赛事之外，并将主要体育赛事的举办场地从俄罗斯转移出来。
+包括美国在内的世界多国卫生官员都曾宣称，[新冠疫苗虽然无法阻止奥米克戎变种的感染或传播，但可以防止住院和死亡](https://mybank.icbc.com.cn/icbc/newperbank/account/electricbillRemit.jsp?dse_sessionId=BZFWATBAIUCJAIGBGCIRATEUIWAYDCGTDSDGCVJV&amp;requestTokenid=1646447088204-1479356184&amp;isICBCEbill=1&amp;remiticon4freeofcharge=0&amp;shoufukuanFlag=1&amp;ebillFlagForWater=1&amp;huashangFlag=1https://www.audacy.com/kmox/news/national/cdc-director-says-vaccines-are-not-preventing-transmission)，但现实数据与他们宣传的“高达 95% 的防护效果”，看来相去甚远。
 
-（3）文化娱乐方面。纽约大都会歌剧院总经理在一份声明中表示，不再与支持普京或得到他支持的艺术家或机构接触。戛纳电影节的组织者2月28日表示，不欢迎俄罗斯官方代表团和任何与俄罗斯政府有联系的人参加此次活动。华特迪士尼公司、华纳兄弟和索尼影业表示，将暂停即将在俄罗斯上映的电影。
+**新闻来源：**
 
-（4）媒体宣传方面。元宇宙 、谷歌等各大科技巨头已迅速采取行动，限制俄罗斯国有新闻媒体 RT 和 Sputnik 的覆盖范围，以阻止错误、虚假信息的传播。流媒体巨头 Netflix 周一表示，将不会在其平台上播放任何俄罗斯频道。
+1.  [Whilst you’ve been distracted by Russia’s Invasion, the UK Gov. released a Report confirming the Fully Vaccinated now account for 9 in every 10 Covid-19 Deaths in England](https://dailyexpose.uk/2022/03/01/russia-distraction-uk-gov-revealed-triple-vaccinated-account-9-in-10-covid-deaths/)
 
-（5）贸易方面。大众汽车集团，梅赛德斯-奔驰集团表示，将不再向俄罗斯出口汽车，并将停止在俄罗斯工厂的生产。家居巨头宜家，时装零售商Mango，服装品牌H&M纷纷表示，将暂停在俄罗斯的生产，关闭其在该国的商店，并停止向俄罗斯出口商品。苹果、耐克和英国快时尚品牌Asos 和 Boohoo宣布将不再在俄罗斯销售产品。
-
-（6）航空方面。航空公司软件巨头 Sabre 3月3日宣布将终止与俄罗斯航空公司 Aeroflot 的分销协议，这将削弱该公司销售航空机票的能力。
-
-发稿：Daxia
-
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+2.  [Official data: Fully vaccinated people account for 9 of 10 COVID deaths](https://www.wnd.com/2022/03/official-data-fully-vaccinated-people-account-9-10-covid-deaths/)
 
  
 

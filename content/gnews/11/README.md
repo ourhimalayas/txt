@@ -2,38 +2,49 @@
 ---
 
 
-## 俄乌战争即将催生数字货币金融体系
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2109421/)
+## 中共国法学教授为“锁链女”发声后遭到禁言
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2109574/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-致俄罗斯卢布在过去10天下跌了30%，创历史最低。
+![被删文：清华教授劳东燕《直面真实的世界》全文＊ 阿波罗新闻网](https://m1.aboluowang.com/uploadfile/2022/0204/20220204044040424.jpg)清华大学法学教授劳东燕（资料图）
+来自《大纪元时报》2022年03月03日的报道，中共国江苏省徐州市丰县“锁链女”人口贩卖丑闻在中共国类似局域网的互联网上受到了极大的关注。清华大学法学教授劳东燕在对这一丑闻发表评论后被噤声。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-19.png)
+自1月31日以来，劳东燕一直在关注“锁链女”丑闻，并每天在微信上转发相关文章。在其中一篇微信帖子中，她写道：“丰县的丑闻肯定会被记录到历史中，我们在见证历史并参与其中。虽然我对结果没有太大的期望，但我很高兴我们没有放弃。”
 
-分析师认为，美元目前的垄断地位如全世界超过一半的贸易使用美元，一半的全球债券和贷款使用美元偿还，大约90%的货币交易涉及美元，尽管目前对俄罗斯的制裁致使美元看涨，但这种涨势可能是下跌的开始。
+后来，劳东燕的微信被封，清华大学的所有老师也收到通知，要求他们对此案保持沉默。据一位爆料的老师说，2月21日，清华大学行政部门在教师微信群里发布了一份通知，内容是：“本学期所有教师将被口头通知，禁止在课堂上讨论徐州“锁链女”丑闻。违者将承担后果。”
 
-共产党试图和俄罗斯建立货币互换体系，并发行数字法币，企图挑战美元。但由于其独裁体制，这种可能性为零。
+劳东燕的微信被封的原因是，她在1月29日撰写并发布了一篇《直面真实的世界》的文章，其中记录了中共国人在2021年挣扎的事情。她说，任何人都在这一年中随时可能面临严格的隔离措施。许多需要紧急护理的病人因为系统阻止他们走进医院的大门而死亡。劳东燕写道，被当局的规定所蒙蔽，人们对其他人的痛苦视若无睹，造成进一步的苦难。
 
-郭先生说在俄乌战争中会催生新的货币体系，即数字货币金融体系，像二战时期的布雷顿森林体系一样。稳定币和浮动币结合，且有锚定，不能垄断，只有这样的数字货币才是人类的未来。
+劳东燕还写道，在恍惚中，“我听到国家机器在那里嘎吱嘎吱地转动的声音，反应敏捷，运作有序，却缺乏任何温情，显得理性而冷酷。如果有一天我也不能说话了，我不后悔我已经说过”。
 
-参考链接：
+结果，劳东燕的微信被封。2月19日，她开设了一个微博账户，讨论“锁链女”丑闻，但只发了两篇帖子就被封。
 
-- [The dollar remains the West’s ace in the hole](https://www.axios.com/the-dollar-remains-the-wests-ace-in-the-hole-6252b75c-edf1-45e5-8599-b98944425ea0.html)
-- [3月3号：尊敬的战友们好，明天是中国的农历二月初二……龙抬头，也是我母亲三年冥诞的日子，明天没有直播……文贵在此衷心地希望所有的战友．爱父母爱家人！](https://gettr.com/post/pxzpvd8eb7)
+“锁链女”丑闻仍未得到解决，而中共国各地已经报道了许多女性失踪的案件。
+
+简评：
+
+中共已经成功地将中共国管理成一个冷漠互害的社会。在锁链女还被蹂躏、人生自由被限制的时候，中共国的一些男人却还在垂涎陷入战争之中的乌克兰女性。中共天天宣传中共国在中共的带领下，一跃发展为全球第二大经济体。可事实是，这些数据的背后是几代人血汗的透支、环境的破坏和挤压在房地产里的巨大的资产泡沫以及社会伦理道德的彻底沦丧。
+
+中国共产党不会关心“锁链女”，因为她就是中共期望的中共国老百姓的生存方式，中共把报道“锁链女”的记者抓起来毒打，把敢于说真话的大学教授禁言封号，是因为这些人揭露了中共的恶，这些人会让老百姓看懂中国共产党才是中国社会的万恶之源。“锁链女”被锁的只是身体，中共治下的更广泛范围内的中国老百姓被锁的却是自由的意志、独立思考的能力，这才是中共国如今最可怕的现实。
+
+救国救民在于救心，中共治下的中国社会是否还有救，取决于像劳东燕一样有良知有见识的中国人是否还能站起来，取决于被中共污染的中国人的思想是否还能被净化，而这一切都在要求我们爆料革命的战友应不遗余力地推进郭文贵先生引领的爆料革命事业的目标——消灭中国共产党。
+
+新闻链接:[https://www.theepochtimes.com/chinese-law-professor-silenced-after-speaking-out-for-victims-of-women-trafficking\_4312431.html](https://www.theepochtimes.com/chinese-law-professor-silenced-after-speaking-out-for-victims-of-women-trafficking_4312431.html)
+
+翻译/简评: kkoto(芬兰大灰狼)
+
+PR: Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+编辑：【英国伦敦喜庄园编辑部】
 
-编辑/校正/发稿：海阔天空1
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
