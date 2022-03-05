@@ -2,28 +2,40 @@
 ---
 
 
-## 联合国人权理事会通过决议 成立调查俄军战争罪行委员会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2106447/)
+## 新西兰财经G乐部2022年3月4日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2107074/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/61008791_3033.jpg)
-据台湾中央广播电台报道，3月4日联合国人权理事会以32票赞成，2票反对（俄罗斯、厄利垂亚），13弃权，压倒性通过一项决议，谴责俄罗斯在入侵乌克兰期间涉嫌侵犯人权，并成立一个委员会对这些行为进行调查。
+采集整理：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-386.png)
+**1、美日印澳声明称不应允许乌克兰的情形在印太地区发生**
+![img](https://media.gettr.com/group15/origin/2022/03/04/02/0b5f6ab5-b035-f95b-3031-2b69f86bc7d8/df50aabded68b5c7e6027ab3c3e0e82f_500x0.png)
+路透东京/华盛顿3月3日 – 日本首相岸田文雄说，四方安全对话国家–美国、印度、澳洲和日本的领导人周四均认为，不应允许乌克兰发生的事情在印度-太平洋地区发生。在对台湾的关注增加之际，四方安全对话举行了一次视频会议。在俄罗斯入侵乌克兰后，台湾加强了警戒级别，警惕北京利用西方注意力分散之机对其采取行动。
 
-乌克兰驻日内瓦联合国大使菲利彭科(Yevheniia Filipenko)在今天表决开始前说，“有无可辩驳的证据显示，俄罗斯严重和有系统地侵犯人权，以及犯下战争罪和危害人类罪。”
+链接：[https://cn.reuters.com/article/japan-quad-ukraine-0304-idCNKCS2L102I?il=0](https://cn.reuters.com/article/japan-quad-ukraine-0304-idCNKCS2L102I?il=0)
 
-这个设于日内瓦的机构所通过的决议不具法律约束力，但它的决定传递了重要的政治讯息，并可以授权进行调查。另外，设于海牙的国际刑事法院(ICC)检察长透露，他们的一个调查小组已在3日前往“乌克兰地区”，调查冲突各方可能犯下的战争罪行。
+**2、受制裁影响，俄罗斯企业争相开设中资银行账户**
+![img](https://media.gettr.com/group45/origin/2022/03/04/02/0b51b2ad-2136-fab1-15b0-6fec16794138/6abedc550a12336263a9e4fd542ee8c7_500x0.png)
+路透上海3月3日 – 一位知情人士说，中国一家国有银行的莫斯科分行看到来自俄罗斯企业希望开立新账户的询问数量激增，因在俄罗斯入侵乌克兰后俄企业正艰难应对国际制裁。“过去几天，有200-300家公司与我们接洽，希望开设新账户，”这位在一家中国国有银行莫斯科分行工作、并直接了解该行业务的人士对路透表示。
 
-新闻参考链接：[https://www.rti.org.tw/news/view/id/2126324](https://www.rti.org.tw/news/view/id/2126324)
+链接：[https://cn.reuters.com/article/exclusive-russian-companies-chinese-bank-idCNKCS2L014C?il=0](https://cn.reuters.com/article/exclusive-russian-companies-chinese-bank-idCNKCS2L014C?il=0)
 
-* * *
+**3、涉诉13亿却被司法标记冻结83亿资产！东方集团公告喊冤，欲剥离地产寻求转型**
+![img](https://media.gettr.com/group32/origin/2022/03/04/02/04354db2-6160-b0eb-b444-58dbf24b3f70/a72f36b038be1adb35a239e5adcf4b13_500x0.png)
+因为一桩价值30亿元的土地转让交易“烂尾”，[东方集团](https://finance.sina.com.cn/realstock/company/sh600811/nc.shtml)股份有限公司（下称“东方集团”，600811.SH）被起诉索赔约13亿元，导致其持有的巨额股权资产被法院冻结。3月3日，东方集团发布公告称，公司及控股股东东方集团有限公司（下称“东方有限”）持有的民生银行、锦州港（600190.SH）等股权资产被司法标记、冻结合计市值已达83亿元，远远超过案涉金额，将对公司经营产生不利影响，公司将依法向相关法院提出异议。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+财经G评：东方集团控制人张宏伟，郭先生曾说过张宏伟靠行贿国开行陈元获得大量贷款、张宏伟给陈元送一副名画叫什么战友们还记得吗？ 东方集团、东方海外都是靠洗钱！
 
+链接：[https://finance.sina.com.cn/roll/2022-03-04/doc-imcwiwss4033415.shtml](https://finance.sina.com.cn/roll/2022-03-04/doc-imcwiwss4033415.shtml)
 
-编辑：【英国伦敦喜庄园编辑部】
+**4、房企偿债高峰：连续两月债券到期规模均超千亿**
+![img](https://media.gettr.com/group14/origin/2022/03/04/03/18828428-0112-c94f-0f43-1fe959284421/a13f4f9c066aa41f1cdefedce23aab8c_500x0.png)
+根据贝壳研究院统计，2022年1-2月房企境内、境外债券融资累计约856亿元，同比下降59%，降幅较今年首月收窄11个百分点。同时，2月，房企境内外债券融资到期债务规模约395亿元，环比减少62.4%，到期债务净额20亿元，偿债压力较1月明显改善。不过，房企在3月份、4月份连续两个月到期债务规模均超过千亿，对房企的资金流动性构成一定的威胁，将增大对房企融资能力的考验。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+链接： [https://finance.sina.com.cn/stock/zqgd/2022-03-04/doc-imcwipih6512664.shtml](https://finance.sina.com.cn/stock/zqgd/2022-03-04/doc-imcwipih6512664.shtml)
+
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
+
+上传排版：文勇
 
  
 

@@ -2,35 +2,39 @@
 ---
 
 
-## 台湾完成从乌克兰的撤侨工作
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2110975/)
+## DC每日热点0305
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2111032/)
 
-作者：纽约香草山农场-云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月4日，据台湾外交部发布的新闻稿显示，台湾第三辆从乌克兰撤侨的专车已经安全抵波兰，完成了阶段性地从乌克兰撤侨的任务。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-05-上午8.18.00.png)
-外交部表示，当天晚上共有八名台侨和13位外籍配偶搭乘了台湾的撤侨专车抵达波兰，加上早先的两趟撤侨车次，台湾共计从乌克兰撤出了55位台侨及其外籍家人。
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0CECF7C2-7023-4404-883E-90EB6D353E5D-scaled.jpeg)
+道琼斯指数 33614.80 ▼0.53%
+纳斯达克指数 13313.44 ▼1.66%
+WTI纽约原油CFD 115.102▲6.90%
+布伦特原油CFD 118.143▲0.03%
+标普50指数 2,406.22▼55.80%
+美元兑人民币 1USD=6.319 RMB
+美元兑港币 1USD=7.814 HKD
+国际黄金 1972.90美元/盎司
+全球CCP病毒感染人数444,309,253例
 
-外交部也指出，在没有正式外交关系的情况下，台湾外交部及相关经贸单位派驻在俄罗斯、乌克兰、波兰和斯洛伐克等地的工作人员通力合作，再加上乌克兰当地政府的支持，从而使得台湾顺利完成了救援台侨的任务。
+1、韩国即将总统大选 朝鲜今年第九度试射导弹遭韩日谴责
+2、白宫否定美国参议员发出暗杀普京的呼吁
+3、美国国务卿布林肯：很难说乌克兰战争会如何收场，美不寻求改变俄政权
+4、中共国乌克兰撤侨行动迟缓，中共国公民受伤，约二百学生困陷防空洞
+5、联合国安理会召开紧急会议 讨论俄军攻击扎波罗热核电站事件
+6、中共否认四名在乌中共国留学生遭俄军轰炸丧生
+7、俄罗斯封禁美国之音、BBC等媒体 指责其不按俄方要求进行报道
+8、爱马仕和卡地亚母公司历峰集团、LVMH集团、开云集团和香奈儿宣布，计划暂时关闭在俄罗斯的商店并暂停业务运营
+9、俄罗斯罕见宣布暂停火 允许乌克兰2城民众撤离
+10、联合国人权办公室称俄罗斯入侵乌克兰已造成平民与儿童丧生
+11、李克强：今年落实全面管治港澳 反对外部势力干预台湾
+12、北约指控俄罗斯在乌克兰使用了集束炸弹
+13、新加坡宣布对俄罗斯实施金融制裁和出口管制
+14、欧盟委员会主席：若不停止战争，欧盟准备采取更多的对俄制裁措施
+15、美国防官员：价值约2.4亿美元的军事物资已送达乌克兰
+16、摩根大通：俄罗斯将面临1998年那样的经济崩溃 加拿大取消对俄最惠国待遇
+17、日本罕见决定向乌克兰提供防务物资 韩国对俄国防部等49个实体进行出口管制
 
-据悉，台湾外交部除了对各国政府的协助表示感谢外，还将继续对乌克兰进行人道支援。
-
-参考链接：[烏克蘭撤僑任務成功 第三輛專車抵波蘭](https://www.cna.com.tw/news/aipl/202203040025.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
-
-总编：Irene木木
-编辑：谐趣园
-审核：
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

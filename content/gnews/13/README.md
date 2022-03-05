@@ -2,45 +2,28 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2110955/)
+## 时隔10年 中共国汽油价格又将破新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2110998/)
 
-**整理：枳实**
-**美工：精灵蓝**
+撰稿：东京樱花团︱盐和光
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-435.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/时隔10年-中共国汽油价格又将破新高.png)[*图片来源*](http://p2.qhimgs4.com/t01ad2bf3c73409642c.jpg)
 
+3月5日中新经纬报道，据路透中文网报道，俄罗斯石油出口受扰，美东时间周五，油价大涨7%，盘中走势动荡。布兰特原油期货劲升7.65美元，涨幅6.9%，结算价报每桶118.11美元，而美国原油期货急升8.01美元，涨幅7.4%，收于每桶115.68美元。
 
+这是布兰特原油自2013年2月以来的最高收盘价，美国原油期货自2008年9月以来的最高收盘价。布兰特和美国原油分别升至2012年5月和2008年9月以来的最高盘中位。
 
-图片：雅典娜农场设计组精灵蓝
+自俄罗斯入侵乌克兰以来，来自美国及其盟国2月24日对俄罗斯实施制裁，原油期货价格已大涨逾20%，突破了14年来新高。
 
+中共国发改委已早在三天前发布涨价通知，多地92号汽油价格已重返8元以上/升，海南98号汽油更是突破了11元/升，以常用的92号汽油为例，这是自2012年之后，又一次92号汽油进入了8元时代。
 
-雅典娜疫情更新（2022年 3月5日）
+国际原油每一桶容量是42美加仑，或接近159升，当原油价格为110美元/桶时，就相当于单价是0.69美元/升，按照目前的离岸人民币汇率折合人民币是4.36元/升，然而中共把加入乙醇的汽油后双倍的卖给消费者。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+信息来源：[**外媒：俄罗斯石油出口受扰，美油飙升至近14年来新高**](https://mbd.baidu.com/newspage/data/landingsuper?rs=2418626095&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;isBdboxFrom=1&amp;pageType=1&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D&amp;context=%7B%22nid%22%3A%22news_9844613814855390802%22%7D)
 
-全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-436.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-437.png)
-[2022年3月5日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月5日改进.pdf)
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：星谕
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

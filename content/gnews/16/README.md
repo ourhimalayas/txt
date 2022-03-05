@@ -2,40 +2,35 @@
 ---
 
 
-## 成功获救的战友连线纽约总部 讲述逃生经历
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2110882/)
+## 台国防部发放《全民国防手册》指导民众避难
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2110974/)
 
-撰稿: 纽约香草山文艺部–宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-2.png)
-3月3日，在盖特发布的新中国联邦乌克兰救援行动直播中，已经逃离战区抵达波兰，得到新中国联邦妥善安置的香草山战友“零点夜话”，连线纽约总部，详细讲述了这段死里逃生的经历。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-426.png)
-零点战友说，在得知新中国联邦、法治基金将与国际救援组织合作，启动乌克兰无偿援助大行动后，填写了申请表。
+作者：台湾宝岛农场-鬥陣來拼
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月4日，据台湾媒体报导，由于俄罗斯正在持续向乌克兰发起的军事行动，台海局势随之也备受关注。日前，台湾立委向国防部提出质询称，应尽快就台湾发生战争时该如何避难等相关议题向民众做出引导。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-05-上午8.17.54.png)
+对此，台湾国防部长邱国正于3月1日答询时表示，国防部计划将尽快发布《全民国防手册》作为应对的方式之一。据悉，国防部早在去年就已经着手整备了《国防手册》的模版，目前该模板正在等待行政院的批准。
 
-鉴于局势越来越紧张，小飞象鼓励他们提早离开，第一时间逃出去。零点战友带着两个家庭共七口人，勇敢地迈出了家门。火车站人山人海，车次不定，终于在凌晨登上了火车。经过三趟火车的辗转颠簸，在当地时间3日下午两点，与波兰救援基地的战友们成功汇合。
+次日，国防部发言人史顺文在备询时补充说明，即将发布的手册内容会涵盖各地方民众的避难地点、防空避难生存知识，还有停电、停水或需要急救时生存物资获取方式等信息。
 
-目前，零点夜话战友及家人、朋友在酒店里休整，等待下一步的安置计划。
+国防部也指出，各地方政府可以依据此模板，结合各地的实际状况增加内容，从而让国人更加了解战时避难的方法与概念。届时，国防部也会跟各地方政府、各部协同合作，紧急配合应对。
 
-新中囯联邦的战友们都知道，在瞬息万变的战区，信息就是生机，时间就是生命。希望越来越多的同胞和友人，在新中国联邦的帮助救援下，抓住逃生的机会。正如零点战友所说，没有战争，远离硝烟，感受和平时光的美好”。
+参考链接：[邱國正：整備國防手冊 讓人民了解戰時如何避難](https://www.cna.com.tw/news/aipl/202203040175.aspx)
 
-新闻链接: [新中国联邦法制基金乌克兰人道救援行动](https://gettr.com/post/py0enb118f)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
-
-编辑: 玫瑰圆
-
-总编: 飞虹
-
-审核: 木木
-
-校正/发稿：浪迹天涯
+总编：Irene木木
+编辑：谐趣园
+审核：
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-2.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
