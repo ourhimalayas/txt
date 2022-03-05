@@ -2,21 +2,35 @@
 ---
 
 
-## 秘翻在线：俄罗斯国债16日起相继违约…卢布重挫
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2110957/)
+## 台湾完成从乌克兰的撤侨工作
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2110975/)
 
-撰稿：文贺JP
-![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-6.jpg)图片来源：https://www.sankei.com/article/20220305-5V6TO7WD5VKKHMGHLBBOX73MXI/
-据日本产经新闻3月5日报道，因攻占乌克兰，受日美欧制裁影响，俄罗斯国债接近违约。这是由于外币计价的政府债券因制裁导致外币短缺而无法支付利息。如果国债变废纸，作为主权货币的卢布就会失去信用，物价暴涨，俄罗斯国民生活很可能崩溃。也就是说，对人为的制造危机的普京加大批判、促使其撤军的强硬政策下，在乌克兰保卫战期间，即本月16日起，还款期限相继到期，这就是场和时间的战争。
+作者：纽约香草山农场-云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月4日，据台湾外交部发布的新闻稿显示，台湾第三辆从乌克兰撤侨的专车已经安全抵波兰，完成了阶段性地从乌克兰撤侨的任务。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-05-上午8.18.00.png)
+外交部表示，当天晚上共有八名台侨和13位外籍配偶搭乘了台湾的撤侨专车抵达波兰，加上早先的两趟撤侨车次，台湾共计从乌克兰撤出了55位台侨及其外籍家人。
 
-俄罗斯多年来一直在准备应对制裁，并积累了有史以来最大的外汇储备（截至今年1月为6302亿美元），用于支付外债和外汇干预。在此过程中，它正在减少易受制裁的美元计价资产，并将其转移到友好国家人民币和正在谈判以归还北方领土的日元。
+外交部也指出，在没有正式外交关系的情况下，台湾外交部及相关经贸单位派驻在俄罗斯、乌克兰、波兰和斯洛伐克等地的工作人员通力合作，再加上乌克兰当地政府的支持，从而使得台湾顺利完成了救援台侨的任务。
 
-笔者认为通过战争手段进行土地扩张的独裁思想必将受到历史车轮的无情碾压，无论多么处心积虑，野蛮必将失信于人、必定进入历史的垃圾堆。创造文明、发展文明是所有地球公民的必然选择。
+据悉，台湾外交部除了对各国政府的协助表示感谢外，还将继续对乌克兰进行人道支援。
 
-信息来源：[https://www.sankei.com/article/20220305-5V6TO7WD5VKKHMGHLBBOX73MXI/](https://www.sankei.com/article/20220305-5V6TO7WD5VKKHMGHLBBOX73MXI/)
+参考链接：[烏克蘭撤僑任務成功 第三輛專車抵波蘭](https://www.cna.com.tw/news/aipl/202203040025.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-责编：Eric Kim
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
+总编：Irene木木
+编辑：谐趣园
+审核：
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

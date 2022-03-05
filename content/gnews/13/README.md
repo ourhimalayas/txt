@@ -2,47 +2,44 @@
 ---
 
 
-## 朝鲜宣称侵略侵乌克兰的“罪魁祸首”是美国
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2110919/)
+## 全球疫情疫苗数据更新
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2110955/)
 
-**【日本东京方舟农场】翻译：文龍杰克**
+**整理：枳实**
+**美工：精灵蓝**
 
-自俄罗斯入侵乌克兰以来，朝鲜国际政治研究室研究员首次发评称：美国对俄罗斯实施单方面的制裁和政治施压，是完全漠视俄罗斯对自身安全的合法诉求，美国才是造成本次欧洲危机的“根源”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-435.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/179.jpg)（图片来源：wionews.com）
 
-根据朝鲜国际政治研究室评论员RiJi Song 的评论，华盛顿推行武力霸权从而忽视了俄罗斯对自身安全的合法诉求。
 
-乌克兰危机根本的原因是 美国的一惯手法和独断专行所致，”该评论上传在朝鲜外交部网站上。
+图片：雅典娜农场设计组精灵蓝
 
-RiJi Song猛烈抨击美国实施的“双重标准”，打着“和平与稳定”的名义干涉他国内政,为了确保自家国土安全，毫无根据地去谴责他国为自卫安全采取的措施。”
 
-该帖子说：“美国称霸全球的日子一去不复返了，”
+雅典娜疫情更新（2022年 3月5日）
 
-在南韩梨花女子大学做研究的北韩教授朴元坤说，由于该网帖是由个人名义发表，这是北韩官方 一种“低姿态”的表态。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-韩国延世大学教授约翰·德鲁里（John Delury）在推特上说“现在普京发动的战争几乎影响了所有地缘政治，也影响到北韩金家未来的国际政治策略。俄乌战前，朝鲜就盘算利用 “分散国际注意力”来大肆测试高速弹道导弹。
+全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-436.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-437.png)
+[2022年3月5日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月5日改进.pdf)
 
-为了支援乌克兰坚持战斗，美国承诺向乌克兰额外提供价值 3.5 亿美元的军事援助，包括反坦克武器、防弹衣和小型武器。德国表示将向乌克兰运送导弹和反坦克武器，并对俄罗斯飞机关闭德国领空。
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-美国、英国、欧盟将对俄罗斯央行实施严厉制裁，包括踢出SWIFT国际支付系统。
+发布：星谕
 
-美,英、欧盟同意“部分的特定”俄罗斯银行禁用 SWIFT 全球金融信息系统，该系统用于全球 11,000 多家银行和其他金融机构之间转移资金，作为新一轮制裁的一部分，禁用SWIFT目的是让莫斯科为入侵乌克兰付出惨重的代价。他们也同意对俄罗斯央行实施一系列“限制措施”。
-
-随着俄罗斯不断入侵，西方正努力为势单力薄的乌克兰军队提供武器和弹药，在严厉制裁俄罗斯的同时进一步孤立莫斯科。
-
-俄罗斯总统弗拉基米尔·普京尚未披露他的最终计划，但西方官员们确信，普京决心推翻乌克兰政府并取而代之，以此来重新绘制欧洲势力版图并恢复莫斯科在冷战时期的影响力。
-
-上周六乌克兰卫生部长报告说，这是二战以来欧洲最大的地面战争， 已有198 人丧生包括三名儿童在内，另有 1000 多人受伤。
-
-注：本文仅代表作者观点。
-
-原文链接：
-[https://www.wionews.com/world/north-korea-says-united-states-is-root-cause-of-ukraine-invasion-457079](https://www.wionews.com/world/north-korea-says-united-states-is-root-cause-of-ukraine-invasion-457079)
-
-素材採編：妙喜小油鍋
-校对：妙喜小油鍋
-发布：Linda
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

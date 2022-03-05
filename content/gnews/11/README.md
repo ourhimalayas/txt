@@ -2,45 +2,35 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2110955/)
+## 台国防部发放《全民国防手册》指导民众避难
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2110974/)
 
-**整理：枳实**
-**美工：精灵蓝**
+作者：台湾宝岛农场-鬥陣來拼
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月4日，据台湾媒体报导，由于俄罗斯正在持续向乌克兰发起的军事行动，台海局势随之也备受关注。日前，台湾立委向国防部提出质询称，应尽快就台湾发生战争时该如何避难等相关议题向民众做出引导。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-05-上午8.17.54.png)
+对此，台湾国防部长邱国正于3月1日答询时表示，国防部计划将尽快发布《全民国防手册》作为应对的方式之一。据悉，国防部早在去年就已经着手整备了《国防手册》的模版，目前该模板正在等待行政院的批准。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-435.png)
+次日，国防部发言人史顺文在备询时补充说明，即将发布的手册内容会涵盖各地方民众的避难地点、防空避难生存知识，还有停电、停水或需要急救时生存物资获取方式等信息。
 
+国防部也指出，各地方政府可以依据此模板，结合各地的实际状况增加内容，从而让国人更加了解战时避难的方法与概念。届时，国防部也会跟各地方政府、各部协同合作，紧急配合应对。
 
+参考链接：[邱國正：整備國防手冊 讓人民了解戰時如何避難](https://www.cna.com.tw/news/aipl/202203040175.aspx)
 
-图片：雅典娜农场设计组精灵蓝
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
+总编：Irene木木
+编辑：谐趣园
+审核：
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-雅典娜疫情更新（2022年 3月5日）
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-436.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-437.png)
-[2022年3月5日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月5日改进.pdf)
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：星谕
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

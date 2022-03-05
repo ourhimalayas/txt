@@ -2,43 +2,35 @@
 ---
 
 
-## 北约不会派出地面部队 也不会关闭乌克兰领空
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2110932/)
+## 俄罗斯战俘呼吁俄军士兵不要做炮灰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2110973/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月4日，据盖特消息显示，被乌克兰俘获的俄罗斯士兵近日陆续通过视频向外界传递出他们被蒙骗出战以及其自身对战争的拒绝。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-05-上午8.24.37.png)
+这些俄罗斯士兵表示，他们在出战前根本不清楚这次战争的对象和性质，而他们对此的任何疑问则全部遭到上级长官粗暴的拒绝与封口。更有士兵提到，直至进入乌克兰后他们才清楚，这次战争的目的是为了侵略乌克兰，而不是“解救”乌克兰民众。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+至于俄罗斯当局在交战中采取的手段，这些士兵证实，俄军不仅不会帮阵亡的将士收尸，甚至还会将伤残的俄军士兵就地处死并焚毁。
 
-北约（NATO）秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）3月4日宣布，西方国家联盟不会为乌克兰而战，北约不会派出地面部队，也不会关闭乌克兰领空。
+为此，这些俄罗斯士兵在视频中声明，他们实际上是受到了政府的欺骗，他们既不愿意侵略乌克兰，也不愿意成为这场独裁者战争的炮灰。这些士兵也向所有的俄军将士呼吁， 请大家不要再受政府的蒙骗，成为独裁者的牺牲品。同时，他们也号召俄罗斯人民站起来反对普京，停止这场毫无意义的战争，停止这场人类的灾难。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-05_20-04-56.png)
+参考链接：[https://gettr.com/post/py4ufqdd33](https://gettr.com/post/py4ufqdd33)
 
-延斯·斯托尔滕贝格在新闻发布会上称，北约正在对乌克兰增加支持，但如果北约直接介入乌克兰战争，将会导致迄今为止仅限于俄罗斯对其邻国的入侵，变成更广泛、更残酷的欧洲战争。作为北约盟国，北约有责任防止这场战争升级到乌克兰以外，因为那将更加危险、更具破坏性，并会造成更多的人类灾难。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
-北约秘书长延斯·斯托尔滕贝格认为，因为北约不是这场冲突的一部分，实施禁飞区的唯一方法是将北约战斗机派往乌克兰领空，然后通过击落俄罗斯飞机来实施禁飞区，如果北约这样做了，最终会导致欧洲卷入全面战争。
+总编：Irene木木
+编辑：Ivy001
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-美国前国防部长莱昂帕内塔（Leon Panetta）认为，目前没有必要设立禁飞区，并补充说美国在冲突中的主要任务是向乌克兰提供军事援助，然而，他同样认为不应该取消禁飞区的选项。
-
-乌克兰总统弗拉基米尔·泽连斯基（Volodymyr Zelensky）抨击北约“软弱”和“缺乏信心”，拒绝在乌克兰上空建立禁飞区。
-
-自乌克兰正在遭受二战以来最严重的入侵后，乌克兰人无所畏惧地与入侵他们国家的俄罗斯军队作战，在没有北约援助的情况下已经顽强人抵抗住了黑暗的九天。
-
-泽连斯基说，由于北约的软弱、不团结，北约目前所能做的就是为乌克兰运送五十吨柴油。北约决定不关闭乌克兰领空的决定，将导致未来几天更多的乌克兰军民伤亡。泽连斯基反问，“我不知道你能如何保护，以及你是否能保护北约国家?”。
-
-目前，乌克兰总统泽连斯基面对俄罗斯的入侵，拒绝离开乌克兰并决心与俄罗斯军队作战，赢得了全世界的赞扬。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-05_21-04-47.png)
-
-美国参议院情报委员会主度Mark Warner甚至将他与已故的英国首相温斯顿·丘吉尔（Winston Churchill）相提并论。 泽连斯基没有像阿富汗前领导人加尼（Ghani）一样，当塔利班开始进攻，立即撒脚就跑，而是像丘吉尔一样，勇敢的战斗。
-
-参考资料：
-
-[Zelensky slams NATO over refusing to implement no-fly zone over Ukraine](https://thehill.com/policy/international/596972-zelensky-slams-nato-over-refusing-to-implement-no-fly-zone-over-ukraine?rl=1)
-
-[NATO Announces They Will Not Fight for Ukraine on the Ground or in the Air — Rejects No-Fly Zone (VIDEO)](https://www.thegatewaypundit.com/2022/03/nato-announces-will-not-fight-ukraine-ground-air-rejects-no-fly-zone-video/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
