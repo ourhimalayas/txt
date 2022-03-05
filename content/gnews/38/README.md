@@ -2,30 +2,20 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月4日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2107273/)
+## 俄乌战争将导致最严重的通货膨胀
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2107667/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-1.jpg)
+加拿大温哥华扬帆农场    平民正道
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-3.png)
-文章仅代表作者本人观点，与Gnews无关
+据加拿大媒体【后千禧年】3月2日报道，俄乌紧张的战争局势已导致全球能源价格飙升，并势必造成加拿大食品和其他生活必需品价格的失控上涨。
 
-视频参看：
-[2022.03.04早 《NFSC新闻》](https://gettr.com/streaming/py4zhzd823)
-[2022.03.04早 G|TV《新闻访谈》](https://gettr.com/streaming/py58g915d4)
+目前加拿大货物运输业的成本由于汽油和柴油的价格持续上涨而成倍增加。自俄乌战争以来，世界原油价格已从每桶92美元上涨至109美元，天然气的价格也以每日7美分的速度增长。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+加拿大能源协会对此警告道，原油价格的大幅上涨将会使加拿大农业产品和食品价格上涨至少35%，并因此最终引发前所未有的经济危机和恶性通货膨胀。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-calendar-4-2.png)
+* * *
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑： 平民正道    发布：平民正道
 
  
 

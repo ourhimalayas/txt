@@ -2,36 +2,30 @@
 ---
 
 
-## 美参议员提案 以金融制裁吓阻中共侵台
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2109039/)
+## 俄罗斯总统普京说是停火谈判实则蒙骗世界强硬要挟
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2109143/)
 
-作者：纽约香草山–云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月2日，美国联邦参议员史考特等三人联合提出一项“以金融制裁吓阻中共侵台”的法案。依据法案，若中共以武力侵略、入侵或封锁台湾或台湾领土，或者试图通过武力改变台湾的治理地位，总统将被授权切断美中之间所有的金融往来。主要措施包括：冻结财产交易、撤销参与侵台行动中共人士的签证并限制其入境、禁止金融机构与中共进行信用转让或付款交易、禁止向遭制裁的人或实体进行股权或债务投资，并禁止与中共军事或软件企业、金融电信系统、电子货币等的金融往来。
+撰稿：东京樱花团/待命（文晓）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-10.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯总统普京说是停火谈判实则蒙骗世界强硬要挟.png)（图片源自本文链接）
 
-史考特表示，这项法案清晰地表明了美国对中共武力攻台的惩罚手段，一旦入侵台湾，中共国不仅被经济孤立，还将承担严重的金融制裁。
+3月5日时事通信社莫斯科消息：在4日与德国总理肖尔茨的电话交谈中，俄罗斯总统弗拉基米尔-普京强调了他不做任何让步的立场。他说，他愿意与乌克兰方面进行对话，但是对乌克兰的入侵行动进行停火谈判的前提是满足俄罗斯的所有要求。
 
-参考链接：
+俄罗斯和乌克兰之间的第三轮停火谈判预计将于5日或6日举行，但可能会继续面临困难。 普京重申了俄罗斯对乌克兰 “非军事化 “的要求，以及俄罗斯对克里米亚半岛的主权和承认乌克兰东部亲俄团体的独立。
 
-- [嚇阻北京效法俄國 美議員提法案若犯台就祭制裁](https://www.cna.com.tw/news/aipl/202203030015.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+俄罗斯军队袭击了居民区，许多平民被杀，但普京强硬地表示，俄罗斯军队正在采取一切措施保护平民。他驳斥了关于炮击首都基辅和其他城市的报道是 “宣传和编造的”，并声称乌克兰方面正在利用大量外国人作为 “人盾”。
 
+在国际社会对乌克兰东南部扎波罗热核电站的袭击谴责声不断高涨的情况下，俄罗斯军队于4日继续在基辅及其周边地区进行攻击。4日，包括三名儿童在内的五人在基辅州的一个村庄被俄罗斯的炮火炸死。俄罗斯军队和乌克兰军队在东南部港口城市马里乌波尔周围的激烈战斗也在继续，该城市正被俄罗斯和亲俄部队围困着。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+俄军在攻克南部的海尔森后，下一步就是在那里。也加强了对南部的Mykolaiv的攻势。乌克兰国家通讯社4日报道称，3日俄罗斯对北部切尔尼乌的空袭中造成47人死亡。
 
-总编：雪梨
-编辑：飞虹
-审核：飞虹
-校正/发稿：海阔天空1
+五角大楼的一名高级官员4日分析说，基辅州的俄罗斯部队仍在距基辅25公里处停滞不前。 据信，乌克兰军方正在维持其空中力量的 “大部分”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+信息来源：[ロシア大統領「要求すべて満たせ」　ウクライナ停戦協議、譲歩せず（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/43d0a3ec53684f02bfacaa8eb602cbe7c5484962)
+
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

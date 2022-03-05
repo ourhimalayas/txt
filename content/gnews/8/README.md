@@ -2,49 +2,39 @@
 ---
 
 
-## 美国前国务卿蓬佩奥说美应该承认台湾
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2109044/)
+## 美日澳印四国领导人表示绝不允许乌克兰危机在印太地区发生
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2109156/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-24.png)图片来自网络
-《MSN News》近日报道，美国前国务卿迈克·蓬佩奥周五在台北发表讲话时表示，美国应该正式承认台湾是一个国家，他的“胡说八道”遭到中共国的严厉谴责。
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月3日国外媒体消息，美日澳印四国集团领导人——美国总统拜登、日本首相岸田文雄、澳洲总理莫里森与印度总理莫迪——当天举行了一次紧急视频会议，就当前的俄乌战争交换了看法。四国领导人一致表示，不应允许发生在乌克兰的事情发生在印太地区。
 
-蓬佩奥是在一个由台湾智库组织的演讲中这样说的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-11.jpg)
 
-华盛顿于 1979 年承认中华人民共和国，结束了与台湾的正式外交关系。
+根据白宫公布的会谈联合纪要，四方领袖重申了对自由与开放印太地区的承诺：所有国家的主权与领土完整受到尊重和保护，各国不受军事、经济与政治胁迫。四国会致力于让四方安全对话成为促进地区稳定与繁荣的有效机制。
 
-虽然台湾的官方名称是中华民国，但政界人士经常在公开评论中加上“台湾”。
+四国领袖还表示将在未来数个月内在东京举行面对面会谈。
 
-“虽然美国应继续作为主权政府与中华人民共和国接触，但美国对 2300 万热爱自由的台湾人民及其合法的民选政府的外交承认不能再被忽视、回避或者将它当成次要的，”蓬佩奥说。
-
-蓬佩奥的言论跨越了中共国的敏感红线，中共国声称台湾是自己的领土，并且从未放弃使用武力将其置于中国控制之下。
-
-中共国外交部发言人汪文斌说：“蓬佩奥是前政客，公信力早已破产，这种人的“胡说八道”是不会成功的。”
-
-中共国表示，台湾是中美关系中最重要、最敏感的问题。
-
-去年，蓬佩奥在特朗普总统任期结束时离任，中共国对他一再批评该国，尤其是执政的共产党，以及对中共国声称的台湾的支持感到愤怒，因此对他实施了制裁。
-
-他周四会见了台湾总统蔡英文，蔡英文授予他总统荣誉。
-
-随着乔·拜登总统于 2021 年 1 月上任，中共国对“撒谎和欺骗”蓬佩奥和其他 27 名特朗普时代的高级官员实施制裁。
-
-尽管缺乏正式的外交关系，包括高调的军售和美国高级官员对台北的访问，但唐纳德特朗普政府仍大力支持台湾。
-
-过去两年，中共国加大了对台湾的军事和外交压力，试图迫使台湾接受其主权。
-
-台湾民选政府表示，它想要和平，但如果受到攻击，它会自卫，只有台湾人民有权决定他们的未来。
-
-蓬佩奥表示，在北京“残酷成功地接管香港”后，中共国国家主席习近平感到更有力量，“不会满足于停留在香港”。
-
-蓬佩奥说：“接管台湾是一项必要的任务，不仅是为了提升习近平自大的伟大主张，而且实际上是为了巩固它。”
-
-无论美国承不承认，台湾已经是事实上的独立国家。中共这种黄俄独裁专制贪腐党祸害中华民族几十年，恶行人尽皆知，罄竹难书：土改杀地主，四清，三反五反，三年饿死几千万人的大饥荒，文化大革命，毛死后邓江所谓改革开放导致的政府全面极度贪腐与社会的全面恶化，毒奶粉，雾霾，铁链女，铁笼女……中共已经无权代表中国人民。
+拜登在会谈后发推文表示，四方会谈涵盖对世界各地主权与领土完整的承诺，包括印太地区。
 
 参考链接：
 
-[https://www.msn.com/en-au/news/world/u-s-should-recognise-taiwan-former-top-diplomat-pompeo-says/ar-AAUAgIe?li=AAaeSy5](https://www.msn.com/en-au/news/world/u-s-should-recognise-taiwan-former-top-diplomat-pompeo-says/ar-AAUAgIe?li=AAaeSy5)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
+- [Quad leaders agree Ukraine experience should not be allowed in Indo-Pacific -Japan, Australia](https://www.reuters.com/world/biden-quad-leaders-discuss-ukraine-thursday-white-house-2022-03-03/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑：飞虹
+审核：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

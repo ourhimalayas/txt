@@ -2,21 +2,42 @@
 ---
 
 
-## 秘翻在线：美国微软公司宣布将停止在俄罗斯销售其产品和服务
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2109101/)
+## 俄罗斯各界反战情绪激增 遭打压
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2109161/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/画像3.png)（图片源自本文链接）
-3月5日时事通信社消息：据法新社报道，３月4日，美国微软公司宣布，在俄罗斯入侵乌克兰后，将停止在俄罗斯销售其产品和服务。
+作者：纽约磐石农场 – 在远方，香草山信息部 – 6zero4
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月1日，俄罗斯著名人类学者阿尔希波娃在Facebook上发帖称，俄罗斯警方拘留了试图在乌克兰驻莫斯科大使馆献花的2名妇女和5名儿童，这些孩子的年龄在7到11岁之间。他们被一辆警车带到警察局，随后被关押在一个拘留中心。虽然当天就被释放了，但警方曾威胁要从其父母手中夺走孩子的监护权。
 
-暂停销售的具体实施方法还没有披露。社长布拉德-史密斯（Brad Smith）在公司的博客上说：”与世界各地的人们一样，我们对乌克兰战争的图片和新闻感到震惊、愤怒和悲哀。 我们谴责俄罗斯这种不公正、不公平和非法的入侵行为”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6-7.jpg)
 
-IT巨头苹果公司（Apple）早前也决定暂停在俄罗斯销售其产品。 美国社交网络巨头脸书和推特也采取了措施，限制俄罗斯政府媒体的信息传播。
+另据台媒报道，为防止对俄国政府不利的消息在境内传播，俄政府于3月1日采取行动，针对连日来报道乌克兰新闻的媒体进行打压。3月3日，俄政府又关闭了报道俄罗斯入侵乌克兰新闻的“莫斯科回声”广播电台，以及另外一家独立媒体“电视雨”的频道，并封锁了他们的网站。
 
-微软进一步透露，该公司正在采取有关针对乌克兰政府的网络攻击的措施。史密斯说，自入侵开始以来，该公司已经处理了20多起针对乌克兰政府、IT和金融机构的俄罗斯网络攻击。
+同样在3月1日，普京顶级顾问科尔图诺夫接受Sky News采访时表示，俄罗斯对乌克兰的军事行动法理上是似是而非的，也是不可行的。他表示无法理解普京入侵乌克兰，很多人对此深感沮丧。鉴于目前局势，他认为立即停火才是当务之急。不过，目前普京已将其核心团队的范围缩小到包括将军、顾问和特工的少数几人。像科尔图诺夫这样的克里姆林宫资深顾问一直被拒于门外，无法在国内对普京的统治方式发出哪怕微小的声音。
 
-信息源：[米マイクロソフト、ロシアで製品販売停止 アップルに続き（ＡＦＰ＝時事） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/745272284d612b98287d033145b6b0da0868060b)
+另据报道，俄罗斯境内仅上周就有多达2000人因参加反战示威而被捕，前后合计，现已有6840人被抓捕。
 
+参考链接：
+
+- [「莫斯科迴聲」停止運作！俄羅斯自由媒體最後堡壘崩塌](https://news.ltn.com.tw/news/world/breakingnews/3847735)
+- [UKRAINE WAR: Kremlin Advisor Goes Public With Opposition to Putin, but Ukraine Risks All in the East](https://pjmedia.com/vodkapundit/2022/03/02/ukraine-war-kremlin-advisor-goes-public-with-opposition-to-putin-but-ukraine-risks-all-in-the-east-n1563044)
+- [Russian police detain 5 children for trying to lay flowers at Ukrainian embassy in Moscow](https://www.theblaze.com/news/russia-kids-detained-protest-ukraine)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编：飞虹
+编辑：静言
+审核：木木
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

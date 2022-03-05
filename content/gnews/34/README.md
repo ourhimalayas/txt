@@ -2,23 +2,36 @@
 ---
 
 
-## 加密货币交易在俄罗斯大行王道
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2107684/)
+## 俄罗斯滥炸乌克兰目标 基辅恐遭更猛烈攻击
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2107861/)
 
-加拿大温哥华扬帆农场    平民正道
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒3月1日消息，在俄罗斯入侵乌克兰的第6天，俄军轰炸了乌克兰第二大城哈尔科夫多处目标，造成重大破坏与人员伤亡。
 
-据《多伦多太阳报》3月3日报道，尽管欧美已对俄罗斯实施了严厉的经济制裁，但加密货币的交易和使用却在该国盛行。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/04-03-2022-1.jpg)图片来源网络
 
-据悉，世界上各主要加密货币交易所都以全球自由金融理念为由，并未冻结俄罗斯客户的数字资产及其交易活动。随着战争导致卢布的巨幅贬值，为避险保值，大量俄罗斯企业和个人都纷纷将其财产转移至加密货币，并造成近期卢布和加密货币之间的交易量暴增。
+乌克兰总统泽连斯基在视频声明中称，对哈尔科夫中央广场的火箭袭击是“彻头彻尾、毫不掩饰的恐怖。在此之后，俄罗斯变成了一个恐怖国家。”他表示没有人会原谅和忘记俄罗斯所做的一切。 有观察者认为，从俄军持续猛轰哈尔科夫，甚至动用集束炸弹进行攻击可以看，出俄军将投入更多兵力，可能发动更多地毯式轰炸，借着野蛮火力造成大量伤亡，迫使乌克兰投降。
 
-然而，西方传统金融系统则认为，加密货币已成为俄罗斯政要转移其巨额财富最便捷和最安全的后门，这将极大削弱对该国经济制裁的最终效果。
+相关链接:
 
-对此，文贵先生在当天盖特中表示，俄乌战争以及对俄罗斯的经济制裁，已加快促成了一个全新数字货币金融时代的诞生。以美元为核心的传统国际金融系统将逐渐失去其控制力。相反，以稳定币作为铆钉的安全和无垄断，并使用去中心化技术的喜币将成为人类的未来。世界格局和人类秩序也将因此被彻底改变。
+[https://www.cna.com.tw/news/aopl/202203010167.aspx](https://www.cna.com.tw/news/aopl/202203010167.aspx)
 
-* * *
+[https://www.voanews.com/a/russia-steps-up-attacks-as-prelude-to-likely-renewed-offensive-on-defiant-kyiv/6464972.html](https://www.voanews.com/a/russia-steps-up-attacks-as-prelude-to-likely-renewed-offensive-on-defiant-kyiv/6464972.html)
 
-编辑： 平民正道    发布：平民正道
+![This image has an empty alt attribute; its file name is March-4.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
 
+编辑: 飞虹
+
+校正/发稿：Petite abeille
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

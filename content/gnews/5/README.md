@@ -2,59 +2,41 @@
 ---
 
 
-## 中共国社交媒体上充满了对俄罗斯总统普京的赞扬
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2109081/)
+## 俄乌战争局势趋紧 百万难民逃离乌克兰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2109160/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-17.png)图片来自网络
-新加坡媒体《海峡时报》近日报道，随着俄罗斯军队开始进入乌克兰，中共国社交媒体上充斥着支持入侵的评论，迫使审查人员加班加点地删除一些更极端的观点。
+作者：纽约香草山教育部 Naughty(文行)，纽约磐石农场 – 在远方，纽约香草山信息部 – 6zero4
 
-虽然大部分公开发声的民族主义者看起来支持这次军事入侵，但一个更谨慎的人群获得了安静的吸引力，不过大部分是以“点赞”的方式而不是发评论。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-其他人也借机抨击西方国家强迫中国表态，外交部发言人华春莹斥责外国记者的视频在网上疯传。
+3月2日，据外媒报道，俄军对乌克兰多个城市发动了毁灭性的炮火袭击，造成2000多名乌克兰平民死亡。沦陷的赫尔松将成为俄军深入乌克兰的关键集结地。
 
-随着过去一周俄乌危机升级，有关它的消息在中国社交媒体上占据主导地位，每个主题标签的浏览量都达到数亿。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-14.png)
 
-周日（2月27日）晚上，最热门的话题是中国驻乌克兰大使范显荣推迟撤离约6000名公民，因为条件太危险。
+据悉，俄罗斯已将沿边境集结的82%的部队转移到乌克兰本土，并加强了对哈尔科夫、马里乌波尔、赫尔松和基辅四个战略城市的进攻。经过激烈交战，位于黑海附近第聂伯河上的乌克兰南部港口城市赫尔松2日已被俄军攻陷。该市市长科利哈耶夫证实，俄军占领了市政厅，且对居民实施了宵禁。乌克兰军队在被俄军围困后撤出了这座城市，只有携带食物、药品等物资的车能以最低速度进入该市。市长恳请俄军不要向平民开枪，并希望设立一个开放的走廊来运送食品、药品和伤员，否则这座城市的平民将无法生存。
 
-该话题吸引了 3.3 亿次浏览和数万条评论，其中大多数人称赞大使留在基辅。
-
-“中共国在撤离公民方面一直是最快的。在中共病毒大流行期间，我们也总是在力所能及的时候撤离我们的人员，”一位用户在类似推特的平台微博上写道。
-
-当其他国家要求其公民在战争爆发前尽快离开乌克兰时，中国坚称该国仍然安全，任何打算离开乌克兰首都的人都应在车辆上悬挂中国国旗。
-
-周四战争爆发后，北京表示将准备包机撤离其公民。
-
-网民也压倒性地支持俄罗斯总统弗拉基米尔·普京，他们称他为“普京大帝”，称赞他的伟大形象。
-
-“今天是 2022 年最好的一天，因为俄罗斯入侵了乌克兰，”中国版 TikTok 抖音上的一位女性用户写道。
-
-她补充说：“我很高兴……普京威风凛凛，坚定而有魅力。”
-
-中共国一直在努力控制网上的叙述，据称有一份关于媒体报道冲突指示的备忘录被泄露。
-
-根据共产党旗下报纸《新京报》微博账号意外发布的文件，版主已被告知删除“反俄”和“亲西方”的帖子。
-
-敦促采取更加和平主义的回应的评论也已被删除，其中包括自称千禧一代作家唐一水的帖子。
-
-他这篇叫《为战争叫好的都是SB》的文章周四和周五疯传，唐先生指出冲突给人类带来的代价，还有二战后相对的和平被一次事件都打破了。
-
-他写到: “而一些听不到远方哭声的网民，已经迫不及待开始为普京大帝唱起赞歌，仿佛在2022年的世界，大帝依旧是一个值得夸耀的词。”
-
-该帖子以及由五位大学教授撰写的一封公开信，敦促中国政府谴责俄罗斯的行为，这些都是被审查员删除的数千个帖子之一。
-
-微博称，有 622 个帖子因“有害内容”被删除，105 个帐户因发布“不安全内容”而被暂停。 抖音表示，它删除了 6400 个视频，并删除了 1620 个有问题的直播流。
-
-上周被观看了将近10万次的“我们接受漂亮乌克兰美女难民“的关键词也被删除。
-
-为战争唱赞歌，匮乏基本人性。最近几年中共全力开动宣传机器煽动民族主义排外，跟着的是抹黑文明世界，抹黑人类文明的主流民主宪政制度，进而抹黑全世界国家。其目的是说它是全世界最好的统治，同时掩盖自己的罪行。
-
-这种宣传时间一长，就把整个民族教育成没有是非观念，没有人文情怀，不信存在正义和公理的丛林动物。所以会出现这种鼓动战争，为侵略者唱赞歌，趁乌克兰战争玩他国美女的极端言论，并收获一片叫好和点赞。为了它们的统治安全，不惜把整个民族推到人类文明对立面。
+联合国难民署3月3日表示，自俄罗斯入侵乌克兰一周以来，已有100万难民逃离了该国。难民署警告说，除非俄罗斯立即结束侵略，否则乌克兰可能产生的数百万难民，将对周边邻国造成难以想象的冲击。
 
 参考链接：
 
-[https://www.straitstimes.com/asia/east-asia/chinese-social-media-awash-with-praise-for-russian-president-putin](https://www.straitstimes.com/asia/east-asia/chinese-social-media-awash-with-praise-for-russian-president-putin)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
+- [Russia steps up attacks on key Ukrainian cities as refugees reach 1 million](https://www.nbcnews.com/news/amp/rcna18243)
+- [Russian Troops Capture Ukrainian City Of Kherson, Mayor Asks Troops Not To Shoot Civilians](https://dailycaller.com/2022/03/02/ukrainian-city-taken-russian-invasion/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编：飞虹
+编辑：宁文静
+审核：木木
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

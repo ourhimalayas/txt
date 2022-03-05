@@ -2,36 +2,41 @@
 ---
 
 
-## 塞纳F1战车通过HPay交易，开启数字货币交易场景大幕
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2109066/)
+## 乌克兰总统泽连斯基要求俄罗斯赔偿所有战争损失
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2109159/)
 
-作者：波士顿五月花 黄金时代
-![](https://assets.gnews.org/wp-content/uploads/2022/03/42B6C7DA-1E8E-4C36-96A9-CB761B7F7B71.jpg)
-3月4日，全球发展最快的数字营销机构T1 Advertising的创始人兼首席执行官、福布斯杂志数字撰稿人Thomas Herd，在福布斯撰文详细介绍了F1车神塞纳的迈凯轮赛车的交易详情，确认该交易是以500万美元的价格、以HDO的形式、经过HPay转账完成。
+作者：纽约香草山 – 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+国外媒体3月3日报道，乌克兰总统泽连斯基当天向俄罗斯人民发表讲话，要求俄罗斯赔偿乌克兰所有战争损失，用于重建乌克兰国土，包括每座城市、街道和房屋。
 
-除了交易的细节之外，这篇报道还有几个值得关注的地方：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-8.jpg)
 
-1.**强调了这笔交易的历史性意义。**文章用大量篇幅介绍了塞纳及其战车的对于F1和汽车运动的重要意义，由此说明了这笔通过HPay进行的交易是一个历史性事件，它标志着人类交易方式的转变。
+泽连斯基要求俄罗斯人铭记这场侵略战争给乌克兰国家和人民带来的巨大伤害，乌克兰永远不会忘记在战争中逝去的每个乌克兰公民。
 
-2.**肯定了数字货币的未来。**作者认为数字货币是方便安全的交易方式，并引用《财富商业洞察》的数据，预计全球加密货币的市场规模将在2020-2028年间从8266亿美元暴增至19万亿美元，而这笔交易则增强了人们对于数字货币的信心。
+泽连斯基指责俄罗斯军队对乌克兰平民区和公共设施狂轰乱炸。指责俄罗斯侵略战争摧毁了乌克兰的城市和人民，剥夺了乌克兰人民的一切。
 
-3.**强调了喜马拉雅交易所的与众不同之处。**作者指出，喜交所是第一个将加密货币交易所与原生交易币（HCN）、稳定币（HDO）和支付程序（HPay）集成在单一平台上的交易平台，是唯一一个运营完全集成的加密生态系统，而数字货币的未来正是属于喜交所这样可以被任何人在任何时间使用的平台。
+泽连斯基将俄罗斯的侵略与中共病毒大流行相提并论，称俄罗斯的侵略是 “另一种病毒，另一种疾病”。
 
-在文章的最后，作者顺便还为喜交所做了广告：“该平台的核心使命是使个人能够控制自己的资金并实现财务自主”。
-
-
+泽连斯基在讲话中强调，只要俄罗斯军队在乌克兰就没有和平，他敦促俄罗斯士兵放弃侵略，赶快回家。他还鼓励乌克兰人民英勇保卫祖国，采用各种方式扺抗侵略者。
 
 参考链接：
-[Thomas Herd. Purchase Of Iconic McLaren Vehicle Through Himalaya Exchange Raises Trust In Cryptocurrencies](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)
 
-* * *
+- [‘You Will Repay Us Everything’: Zelensky Demands Russia Pay ‘Reparations’ for War](https://www.breitbart.com/politics/2022/03/03/you-will-repay-us-everything-zelensky-demands-russia-pay-reparations-for-war/)
 
-*编辑：文合*
 
-*封面：水涨船高*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-*发布：吐纳*
+总编/编辑：飞虹
+审核：飞虹
+校正/发稿：海阔天空1
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

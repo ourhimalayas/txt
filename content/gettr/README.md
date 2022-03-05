@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/5/2022 4:57 AM (UTC)`
+
+Children of the New Federal State of China pray for the peace of Ukrainian People. Let’s heal the world for our generations and generations. <br/>新中国联邦的小朋友们为乌克兰人民祈祷，希望他们早日脱离战火，祈求世界和平！
+![img](https://media.gettr.com/group14/origin/2022/03/05/04/57aa4591-4b8c-7e3c-4fb2-032075d14e1c/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@miles 3/5/2022 4:31 AM (UTC)`
@@ -153,13 +160,6 @@ Prince and Rachel from NFSC on War Room: New Federal State of China is evacuatin
 
 3/2/2022 Miles Guo: Even Singapore, the most pro-communist country,  does not support Russia, and anyone who supports Russia's invasion of Ukraine may receive a lifetime entry ban to Singapore; it is a stupid suicidal idea that the CCP asked the Chinese in Ukraine to stick China’s flag on their cars, which has endangered many Chinese<br/><br/>3/2/2022 文贵直播：即使最亲共的新加坡也不支持俄罗斯，任何支持俄罗斯入侵乌克兰的人都可能被终身拒绝入境；中共让在乌克兰的中国人往车上贴中共国旗，简直是一种愚蠢的自杀行为，已有多人因此受到伤害
 ![img](https://media.gettr.com/group12/getter/2022/03/04/00/56b02972-d5c0-080c-9dce-c514bbe5f0e4/out.jpg)
-
----
-
-`@miles 3/3/2022 11:44 PM (UTC)`
-
-3/3/2022 Miles Guo’s GETTR: Three families of our fellow fighters rescued by us have arrived in Warsaw. 100% of the fellow fighters of the New Federal State of China in Ukraine have been rescued. David and many other fellow fighters have arrived in Poland. We will soon provide two free rescue flights, one to the U.S. and Canada and the other one to Southeast Asia.<br/><br/>3/3/2022 文贵盖特：从乌克兰救出来的3家战友已到华沙，新中国联邦在乌克兰的战友100%被救出；大卫等战友们在波兰汇合；很快我们将有两架免费救援飞机，一架去美加，一架去东南亚<br/>
-![img](https://media.gettr.com/group29/getter/2022/03/03/23/9c023385-3359-2043-5157-67ceba46ca13/out.jpg)
 
 ---
 
