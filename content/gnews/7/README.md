@@ -2,37 +2,12 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“普京”（二十）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2107934/)
+## 3月4日 勿忘香港（图片1-8）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2107979/)
 
-整理：BENJ1
-编辑：Kelly
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-13.png)图片来源：雅典娜设计组
-
-
-郭文贵先生**2022**年**2**月**9**日直播
-
-马克龙作为法国的三驾马车，现在剩下两驾马车了，德国和法国去俄罗斯见普京，求求你了大爷，你不要打乌克兰，咱好好说，你的天然气，所谓的北溪2号线咱可以谈。法国承诺买你3000亿美元的天然气，你不打乌克兰行不行？然后聊一聊对北京的看法，本来见面是仨小时，最后谈了五个小时。
-
-听说普京大谈北京，他说，你们老说我们跟中国亲近，你们这帮孙子不跟我玩儿，咱们是亲兄弟，你不跟我玩儿，我得找个人当托儿。就象那北大副教授找个罗马尼亚的、长得皮肤较白人非常不白的那种，是吧？照爱米粒、照文艺差远了，我说她那是咖啡色，还没我皮肤白的白人，那只能找一个亚洲的中国人来忽悠两下子。
-
-他说：“你看他们开幕式，完全都是假的，雪都是假的。”普京的其中一个女朋友就是花样滑冰的，普京说：“我去都不让她去，而且那个（人造）雪污染，我当场问了中共国官员，中国人说没事。那个雪的化学成份污染大地，万年不会散去，他们说没事。”
-
-普京和马克龙很好地聊了聊北京的经历，说：“他们太在乎这种形式主义，吃个晚餐搞了一大堆，要让我点评，我才不跟他们吃去，染上病怎么办？中东那几个傻国家掐架，掐得要死，都想在中共国表现我是中东老大。最后1分钟，沙特王子说：‘钱不给，是吧？我是同意你人民币结算石油，我现在需要美元，你给我弄个500亿、1000亿美元，先让我结算点美元。’中共说：‘不行，来了以后再说。’‘那不行，我去之前你先给我。’”
-
-普京讲出这些过程的时候，他说：“你看看中东他们，就这样被共产党玩。”沙特王子，记住最有钱的沙特，是世界上最没有现金的。有些具体我在这不跟你们说，然后说：“那就以我染上病毒为由，我不去了。美国还威胁我，不让我参加。你不给我钱，我咋去呀？”这是沙特现在排第2号的人物。还什么泰国诗琳公主了，这都是干啥的？打酱油都不算，是打醋的知道吧？
-
-资料来源：郭先生GTV和盖特直播视频
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+设计 五月花农场 企鹅
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9D331C2A-5AE8-462C-B483-CCD3C4CE86D2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/A9F0E8A1-4997-4F0B-9BC4-89D4BA9787C4.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/4FFBD0FF-3636-49A3-8EF8-B53ACB1FA5D9.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/A35062F8-FECE-44D9-A7C7-D9429A3F1D5F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/A50B3A55-D33F-437F-8C1C-900EFD560FBF.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/81DAC211-5083-4967-8C5D-36A7647FF219.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/E067F4C1-F740-4C75-B11F-2807515736BE.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/8ED15CDA-79FB-4809-A21B-2D3CF329A427.jpeg)
+发布：水涨船高
 
  
 

@@ -2,30 +2,40 @@
 ---
 
 
-## 乌克兰撤侨和救援联系方式
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2105179/)
+## 自3月4日起，南澳大利亚警方取消了疫苗强制
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2105288/)
 
-**编辑报道：**翼族
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16463758691-1.png)
-截至2022年3月3日，已有约20名中国人在乌克兰的战火中丧生。虽然已有不少在乌克兰的中国人通过各种方式撤离至邻国，但在该国多个城市依然还滞留了大量中国人，尚未能逃离战火的威胁。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-如果您在乌克兰境内，请尽量乘坐火车或陆路交通到达利沃夫（Львів），再转向波兰边境的Medyka，即可获得与联合国救援组织合作的人道救援，救援活动无偿免费，不分国籍不分种族。
+翻译/编辑：文泓
 
-**乌克兰人道救援、战区情况实时变化和24小时最新救援方案请联系：**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-12.png)图片来源：Leader & 雅典娜设计组
 
-**邮箱**：
-[\[email protected\]](/cdn-cgi/l/email-protection)
-[\[email protected\]](/cdn-cgi/l/email-protection)
 
-**电话或短信**：
-+1(719)-224-4232
-+1(720)-657-6776
+当地时间3月4日，澳大利亚南澳大利亚警察局宣布，他们将于3月4日[取消疫苗接种](https://www.police.sa.gov.au/sa-police-news-assets/front-page-news/revocation-of-the-police-workers-vaccination-direction#.YiGsMuhByF4)令，允许该州拒绝接种新冠疫苗的警察重返工作岗位。
 
-**Telegram群组**：
-乌克兰救援NFSC Ukraine Help
-t.me/+DeLpD7qPUF8yZG
+3月7日上午7时，《警务人员疫苗接种指令》将被撤销，并由管理指令取代，未接种疫苗的员工能够返回工作场所。但是，他们将被要求去到警局后立即进行快速抗原检测，并在每天轮班期间戴上口罩。
 
-*发布：翼族*
+南澳警察局长格兰特·史蒂文斯说，他有信心南澳警察部队可以管理正在进行的大流行病对警官和社区成员造成的风险，而不必让未接种疫苗的工作人员休假。
+
+然而，史蒂文斯表示，尽管能够恢复他们的实质性职责，但未接种疫苗的工作人员会遇到一些限制。例如，这些官员可能会被限制进入高风险环境，例如住宅老年护理和残疾设施以及法医学大楼。
+
+此外，史蒂文斯表示，他正在与仍然有强制性疫苗接种政策的机构和部门接触并寻求建议，同时考虑到正在实施的《紧急管理法指示》。
+
+当日，该州记录了106例新冠病例，其中3月4日有9例在重症监护室。
+
+州长史蒂文·马歇尔表示，尽管南澳每天的新冠病例数将继续波动，但政府的首要任务是保持较低的住院人数。
+
+参考链接：[South Australia Police Removes Vaccine Mandates (theepochtimes.com)](https://www.theepochtimes.com/south-australia-police-removes-vaccine-mandates_4316187.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

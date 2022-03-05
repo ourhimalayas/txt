@@ -2,16 +2,10 @@
 ---
 
 
-## 五月花简报（04/03/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2107571/)
+## 3/4/2022 文贵盖特：感谢上天赐予文贵跟家人团聚的长长的梦夜！文贵的《锁链梦》是给母亲的礼物
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2107637/)
 
-编辑：波士顿五月花—-冲天一怒
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/43913BFD-BC11-47AB-A8A8-5804B962EDE1.jpeg)
-
-*发布：思澈*
-
-
+秘密翻译组-北美组
 
  
 
