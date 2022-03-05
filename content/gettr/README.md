@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/5/2022 7:18 PM (UTC)`
+
+3月5号：-------0305 新中国联邦法治基金乌克兰救援最前线跟踪报道 Youtube精选视频汇总-------<br/><br/>【精选1】https://youtu.be/aS8dsRbL8J0<br/><br/>【精选2】https://youtu.be/h7YvQNF6QlE<br/><br/>【精选3】https://youtu.be/eXfPoaT4iBQ
+
+---
+
 `@miles 3/5/2022 3:54 PM (UTC)`
 
 3月5号：尊敬的战友们好，今天我在外面不方便录制视频，明天上午9:00开始大直播，请战友们高度关注，我们在乌克兰前线就爰的战友们……热点问题．待明天大直播里谈！
@@ -151,13 +157,6 @@ Children of the New Federal State of China pray for the peace of Ukrainian Peopl
 
 Prince and Rachel: The New Federal State of China and the Rule of Law Foundation are looking to help 10,000 to 20,000 Chinese stranded in Ukraine evacuate. For people who need help to evacuate from Ukraine, please go to the website (ukrainehelp.info) for information. We have two emergency contact numbers and two emails, 24/7, to assist those who need help. <br/><br/>爆料革命战友（小王子和瑞秋）：新中国联邦、法治基金正在努力帮助一万到两万名滞留在乌克兰的中国人撤离。如需我们协助从乌克兰撤离，请访问网站（ukrainehelp.info）获取信息。我们有两条全天候的紧急联系电话和两个电子邮件来帮助那些需要援助的人。
 ![img](https://media.gettr.com/group39/getter/2022/03/04/13/b6499f3d-ac41-b794-aa20-6cb7116f3bd2/out.jpg)
-
----
-
-`@miles 3/4/2022 8:13 AM (UTC)`
-
-3/2/2022 Miles Guo: The reason that Germany and Switzerland gave up their neutrality is to target the CCP. The insanity of Russia and the CCP has awakened Germany and Japan, respectively. Singapore will decline, while Taiwan will become a financial empire. The UK will be the new economic superpower, and the landscape of North America and Australia will undergo drastic changes. The CCP and Russia are bound to be finished.<br/><br/>3/2/2022 文贵直播：德国和瑞士放下中立立场是要对付中共；俄罗斯和中共的疯狂分别唤醒了德国和日本；新加坡将没落，台湾会崛起为金融帝国，英国将成为新经济帝国，北美和澳洲的格局也将发生巨变，中共和俄罗斯必将完蛋<br/>
-![img](https://media.gettr.com/group46/getter/2022/03/04/07/c19bb05f-8021-ac80-7e2c-4d271323f717/out.jpg)
 
 ---
 
