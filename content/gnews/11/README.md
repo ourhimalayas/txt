@@ -2,27 +2,43 @@
 ---
 
 
-## 有声｜求救信息被中共屏蔽 在乌中国人成了弃子
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2109662/)
+## 阿联酋金融科技公司Alaan拟扩大多币种支出管理平台
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2109699/)
 
-**By:秘翻新闻**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**2022-03-05**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-20.png)图片源自:新唐人
-**[据新唐人3月5日报导，俄罗斯入侵乌克兰后，中共迟迟不撤侨，导致至少数千中国人身陷乌克兰险地。在乌中国人网上求救还遭大陆社交平台屏蔽，愤怒控诉自己成了中共的弃子。](https://www.ntdtv.com/gb/2022/03/04/a103364593.html)**
+翻译/编辑：小红帽
 
-**[除了在乌中国人的求救信息被屏蔽，中国人在乌克兰的伤亡情况也被中共封杀。日前乌克兰媒体报导，俄军向哈尔科夫文化学院学生宿舍开火，至少四名中国留学生被杀。相关消息在国内遭到压制。中共官方随后辟谣，声称至今没有获悉中国留学生在战火中丧生的消息。](https://www.ntdtv.com/gb/2022/03/04/a103364593.html)**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/UAE_Fintech_Alaan_.jpg)图片来源：www.itp.net
 
-**[乌克兰危机爆发后，中共迟迟不撤侨，舆论质疑中共或为配合俄罗斯，掩饰俄军进攻企图。直到战争全面爆发后的2月25日，媒体报导在乌中国留学生困境后，中共才宣称将包机撤侨，先让在乌中国人登记，然后原地等待“撤侨通知”。但因为乌克兰25日已宣布对民航关闭领空，中共包机撤侨成了一张空头支票。](https://www.ntdtv.com/gb/2022/03/04/a103364593.html)**
 
-**[乌克兰开战后，舆论不断质疑中共撤侨安排。但实际上，翻查中共历史，当国外爆发危机时，中共并无撤侨的传统。1998年印尼发生排华大屠杀，中共宣称“不干涉他国内政”，关闭了驻印尼大使馆，任由大批试图向北京求救的华人惨死在使馆大门外。](https://www.ntdtv.com/gb/2022/03/04/a103364593.html)**
+据Crowdfund Insider3月4日报导，总部位于迪拜的金融科技公司Alaan通过一轮投资获得了250万美元的资金。该公司现在正走出隐身模式。
 
-（ 秘翻新闻 二丫编辑报道 ）
+这家多币种支出管理平台开发商指出，他们将利用所得的资金雇佣新的人才，并在中东地区扩大业务规模。
 
-发布:星星
+Alaan的这轮投资由加州的投资基金Presight Capital，柏林的风险投资公司468 Capital和Global Founders Capital领投。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+Alaan公司成立于2021年，计划通过公司卡和自动发票支付来管理公司的所有支出。
+
+Alaan的首席执行官兼联合创始人Parthi Duraisamy表示：“我们的愿景是为中小型企业和企业家提供一个创新的平台来管理公司支出。无论是通过卡轨道还是账户对账户轨道。在阿联酋这样的市场，超过80%的消费者支付是数字化的。但是当涉及到企业支付时，我们还没有看到实质性的转变，旧的线下支付世界仍然存在。这就是Alaan的作用”。
+
+该平台为工人提供企业卡进行公司采购，并“实时自动核对支出”。
+
+该平台能够快速发行国际货币的虚拟卡，如阿联酋迪拉姆、沙特里亚尔和美元，用于数字商务转账、订阅、供应商付款和店内购物。
+
+该平台旨在消除对费用报告的要求，并通过与不同的会计服务提供商的整合来实现记账任务的自动化。
+
+文章来源：[UAE Fintech Alaan Acquires $2.5M to Expand Multi-Currency Spend Management Platform](https://www.crowdfundinsider.com/2022/03/187822-uae-fintech-alaan-acquires-2-5m-to-expand-multi-currency-spend-management-platform/)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
