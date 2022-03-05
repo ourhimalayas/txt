@@ -2,20 +2,18 @@
 ---
 
 
-## 秘翻在线：俄罗斯国债16日起相继违约…卢布重挫
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2110957/)
+## 蓝枫法律 四十期 财富管理及家族建设 未来家族信托的建立方式- PPT展示- GTV
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2111069/)
 
-撰稿：文贺JP
-![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-6.jpg)图片来源：https://www.sankei.com/article/20220305-5V6TO7WD5VKKHMGHLBBOX73MXI/
-据日本产经新闻3月5日报道，因攻占乌克兰，受日美欧制裁影响，俄罗斯国债接近违约。这是由于外币计价的政府债券因制裁导致外币短缺而无法支付利息。如果国债变废纸，作为主权货币的卢布就会失去信用，物价暴涨，俄罗斯国民生活很可能崩溃。也就是说，对人为的制造危机的普京加大批判、促使其撤军的强硬政策下，在乌克兰保卫战期间，即本月16日起，还款期限相继到期，这就是场和时间的战争。
+#### **加拿大温哥华扬帆农场 蓝枫法律**
 
-俄罗斯多年来一直在准备应对制裁，并积累了有史以来最大的外汇储备（截至今年1月为6302亿美元），用于支付外债和外汇干预。在此过程中，它正在减少易受制裁的美元计价资产，并将其转移到友好国家人民币和正在谈判以归还北方领土的日元。
+直播视频链接：https://www.gtv.org/video/id=61ec9c46533c672fca81492e
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-50.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-31.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-29.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-24.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/5-23.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/7-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/8-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/9-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/10-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/11-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/12-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/13-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/14-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/15-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/16-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/17-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/18-2.png)
+直播视频：
 
-笔者认为通过战争手段进行土地扩张的独裁思想必将受到历史车轮的无情碾压，无论多么处心积虑，野蛮必将失信于人、必定进入历史的垃圾堆。创造文明、发展文明是所有地球公民的必然选择。
+[蓝枫法律 四十期 财富管理及家族建设 未来家族信托的建立方式](https://www.gtv.org/video/id=61ec9c46533c672fca81492e)
 
-信息来源：[https://www.sankei.com/article/20220305-5V6TO7WD5VKKHMGHLBBOX73MXI/](https://www.sankei.com/article/20220305-5V6TO7WD5VKKHMGHLBBOX73MXI/)
-
-责编：Eric Kim
+编辑/发文：蓝枫法律栏目
 
  
 

@@ -2,35 +2,23 @@
 ---
 
 
-## 《时代杂志》以蓝黄国旗色致敬乌克兰
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2109346/)
+## 凶兆！中共开两会传故宫太和殿大门被吹倒
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2109466/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒3月3日消息，美国《时代杂志》在最新一期封面上，染上醒目的乌克兰国旗蓝黄二色，并列出泽连斯基的名言，向乌克兰致敬。
+**By:秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-24.jpg)
+**2022-03-05**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-05-下午1.30.52.png)
+**[据新唐人3月4日报导，在周五的 2022年冬残奥会开幕式和中共政协会议开幕当日，北京刮起大风，故宫太和殿的大门被吹倒。太和殿堪称中华第一殿。皇帝登基、册立皇后等大典都在此举行。因此也是皇权的象征。太和殿大门被吹倒的视频在网络流传后，引发网友热议称：大清要完、凶兆、登基无望。但消息在微博上遭到封杀，网友留言很快被删除。](https://www.ntdtv.com/gb/2022/03/04/a103364361.html)**
 
-据悉，《时代杂志》封面上用乌克兰语写着“生命终将战胜死亡，光明终将战胜黑暗”，这句话是乌克兰总统泽连斯基，3月1日在欧盟议会发表视频演时所说的名言。这场演说迅速传遍并感动世界，在场的欧盟议会议员纷纷起立鼓掌表达敬意。
+**[中共开两会期间常出现异象，2020年中共两会首日，北京的天空突然变的白昼如夜，连降惊雷。之后，各地又陆续出现地震、大暴雨、大雪、沙尘暴、飞蚁等异象。2021年中共两会刚结束，北京整个城市漫天黄沙，遮天蔽日，数百次航班被取消。中国至少12省市遭遇强沙尘暴袭击。](https://www.ntdtv.com/gb/2022/03/04/a103364361.html)**
 
-在俄罗斯全面进攻乌克兰的第二晚，即2月25日晚上，泽连斯基走出办公室，用手机自拍并附上信息说“我们都在这里”，此举深深感动了并团结了乌克兰人。《时代杂志》封面故事表示，泽连斯基选择与基辅共存亡的壮举，已经改变了历史。
+( 秘翻新闻 二丫编辑报道 )
 
-参考链接：
+发布:星星
 
-- [《時代》最新封面染上藍黃色 致敬澤倫斯基與基輔英雄](https://news.ltn.com.tw/news/world/breakingnews/3847390)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-编辑/校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

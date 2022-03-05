@@ -2,26 +2,45 @@
 ---
 
 
-## NewSGman┃Hpay支付超级重量级喜讯⚡（ 3月5日）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2110798/)
+## 全球疫情疫苗数据更新
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2110955/)
 
-撰稿：东京樱花团/NewSGman
+**整理：枳实**
+**美工：精灵蓝**
 
-这笔交易表明人们对喜马拉雅交易所信心日益增强，通过HPAY能全球范围内进行即时加密货币转账。许多行业预计加密货币将成为货币未来的重要组成部分，并开始接受它们进行商业交易
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-435.png)
 
-HPAY的优势全世界转账无第三方中介无需手续费，军用级的安全协议保护个人隐私，自行控制个人的财务自由权
 
-塞纳驾驶的汽车是世界上最有价值的收藏品之一。这笔交易表明人们对 Himalaya Exchange 越来越有信心，特别是 Himalaya Pay 应用程序的第一个版本。它也代表了人们对区块链技术出现的日益增长的信心。
 
-McLaren Racing 首席执行官 Zak Brown 表示：“赛车运动中很少有车辆比 Ayrton Senna 的 McLaren 1989 MP4/5 F1 赛车更具标志性。它不仅是一项精美的工程，而且代表着赛车运动历史上的特殊篇章. 通过喜马拉雅交易所见证这样的交易反映了不断创新的步伐，这是赛车运动行业的标志，无论是过去还是未来。”
+图片：雅典娜农场设计组精灵蓝
 
-像喜马拉雅集团这样的值得信赖的交易所正在允许企业和个人利用加密货币兴起所创造的机会。无国界、包容、安全，您可以通过 Himalaya Exchange 随时随地交易您的资产。该平台也是第一个将加密货币交易所与原生交易币（Himalaya Coin’HCN’）、稳定币（Himalaya Dollar ‘HDO’）和最近推出的支付应用程序（Himalaya Pay）集成在单一平台上的平台，使其成为唯一一个运营完全集成的加密生态系统的公司。
 
-盖特链接：[https://gettr.com/post/pyautjf519](https://gettr.com/post/pyautjf519)
+雅典娜疫情更新（2022年 3月5日）
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-436.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-437.png)
+[2022年3月5日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月5日改进.pdf)
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：星谕
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
