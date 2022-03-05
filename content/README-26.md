@@ -16,6 +16,8 @@
 ---
 ## 頁面 26/40 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) ... [40](/content/README-40.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年5月23日魯仁達先生與文貴在線互訪直播](/content/2019/05/20190526-2377635576100864352.md)
+
 [文字版：2019年5月20日凌晨4点 直播](/content/2019/05/20190520-5140210759327330200.md)
 
 [文字版：2019年5月19日文貴船上直播](/content/2019/05/20190520-8156245383371433216.md)
@@ -63,8 +65,6 @@
 [文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/content/2019/04/20190422-2917569343036844190.md)
 
 [文字版：2019年4月20日班农先生与文贵谈郭台铭选台湾总统](/content/2019/04/20190421-3663457252526137440.md)
-
-[文字版：郭文贵先生直播2019年4月19日一个难忘的日子](/content/2019/04/20190419-6305900525322511967.md)
 
 
 ## 頁面 26/40 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) ... [40](/content/README-40.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)

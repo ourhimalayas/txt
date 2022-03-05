@@ -16,6 +16,8 @@
 ---
 ## 頁面 13/40 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [40](/content/README-40.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
 
+[【文字版】2020年8月8日郭先生GTV连线日本樱花团](/content/2020/08/20200814-3147962922303992326.md)
+
 [【文字版】2020年8月7日文贵先生直播视频](/content/2020/08/20200814-1685166699558420781.md)
 
 [文字版：2020年8月5日郭先生GTV盖特视频](/content/2020/08/20200814-7866344919726272257.md)
@@ -63,8 +65,6 @@
 [文字版：2020年6月25日郭先生直播-杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！](/content/2020/06/20200629-4613228362412011055.md)
 
 [文字版: 郭先生2020年6月20日GTV直播](/content/2020/06/20200623-1544322677967966575.md)
-
-[文字版：郭先生2020年6月17日直播-GTV投资和查询股票及夏威夷会议及喜马拉雅农场，新中国联邦的巨大影响力](/content/2020/06/20200623-2877590404181782091.md)
 
 
 ## 頁面 13/40 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [40](/content/README-40.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)

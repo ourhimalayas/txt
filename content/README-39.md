@@ -16,6 +16,8 @@
 ---
 ## 頁面 39/40 [**<**](/content/README-38.md) [1](/content/README.md) ... [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) **39** [40](/content/README-40.md) [**>**](/content/README-40.md) [查看全部](/content/README-all.md)
 
+[（十）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-6751902581957520102.md)
+
 [（九）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-6171763823261464315.md)
 
 [（八）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-2147041283197958185.md)
@@ -63,8 +65,6 @@
 [翻译：Bill Gertz访谈郭文贵先生：中国在美国的情报网络包括了25,000名间谍](/content/2018/04/20180418-6992843521807662530.md)
 
 [（五）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（五）](/content/2018/04/20180418-8084565878058568507.md)
-
-[（四）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（四）](/content/2018/04/20180418-5802483270047805854.md)
 
 
 ## 頁面 39/40 [**<**](/content/README-38.md) [1](/content/README.md) ... [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) **39** [40](/content/README-40.md) [**>**](/content/README-40.md) [查看全部](/content/README-all.md)

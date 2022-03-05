@@ -16,6 +16,8 @@
 ---
 ## 頁面 31/40 [**<**](/content/README-30.md) [1](/content/README.md) ... [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) **31** [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) ... [40](/content/README-40.md) [**>**](/content/README-32.md) [查看全部](/content/README-all.md)
 
+[文字版：文贵先生istagram直播：关于台湾被中共攻打，美国是否出兵？1万亿美元阻击做空港币！10/9/2018 ](/content/2018/10/20181012-2308330179087964490.md)
+
 [2018 年 10 月 10 日,文贵先生过媒体直播文字版 ——江,朱,王家族正在砸船式洗钱,公布 11 月记者招待会地点](/content/2018/10/20181010-3706069488897098623.md)
 
 [文字版：20181004 郭先生报平安直播 希望成功快点到来](/content/2018/10/20181005-2805451400972075742.md)
@@ -63,8 +65,6 @@
 [文字版：2018年8月23文贵在船上谈王建](/content/2018/08/20180827-6547778481544377583.md)
 
 [翻译李小牧：帮助6岁中国儿童申请到日本政庇引发网络攻击谩骂](/content/2018/08/20180825-4400210034227613959.md)
-
-[文字版8月20日．文贵报平安视频！](/content/2018/08/20180824-6616528476555245801.md)
 
 
 ## 頁面 31/40 [**<**](/content/README-30.md) [1](/content/README.md) ... [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) **31** [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) ... [40](/content/README-40.md) [**>**](/content/README-32.md) [查看全部](/content/README-all.md)
