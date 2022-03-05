@@ -2,58 +2,48 @@
 ---
 
 
-## 接种疫苗的人持有未接种疫苗的人不值得信任和不聪明的偏见
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2111686/)
+## 韩国单日新增确诊病例26万例，创历史新高
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2111724/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+作者：首尔天池农场—追着曙光跑
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-尽管大量的数据证明，接种试验性的COVID-19病毒疫苗既不能预防感染，也不能减少死亡，接种疫苗会导致严重的副作用，心肌炎、癌症、白血病和血栓等大量增加。然而，劝说人们不要接种试验性的COVID-19病毒疫苗总是一件非常困难的事情。这可能会令人困惑，甚至觉得不可理愈！
 
-丹麦Aarhus大学政治学系Alexander Bor、Frederik Jørgensen、Michael Bang Petersen等人2月18日发表论文《[Prejudice Against the Vaccinated and the Unvaccinated During the COVID-19 Pandemic: A Global Conjoint Experiment](https://psyarxiv.com/t2g45/download)》的调查结论，给出了答案，告诉我们为什么劝说别人不要打疫苗怎么这么难！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
 
-接种过试验性的Covid-19病毒疫苗的人对拒绝接种的其他人持负面看法！而那些拒绝接种疫苗的人并没有降低对接种过疫苗的人的评价！
 
-这项研究是收集了2021年12月3日至2022年1月28日期间，包含阿根廷、澳大利亚、奥地利、巴西、中国、丹麦、法国、德国、匈牙利、印度、印度尼西亚、意大利、马来西亚、墨西哥、摩洛哥、罗马尼亚、俄罗斯、南非、西班牙、英国和美国等21个国家/地区，涵盖全球六个有人居住的大洲10,740名受访者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Figure-1-Map-of-countries-included-in-our-study.jpg)
+据韩KBS新闻3月4日的报道， 韩国中央防疫对策本部通报，截至今天（4日）零时，单日新增中共病毒确诊病例26万6853例，创历史新高。
 
-样本故意排除了尚未向公众广泛提供covid-19疫苗的最贫穷国家。研究者从每个国家招募500名成年受访者，对年龄、性别和居住地区以及特定国家的教育进行配额抽样，样本反映了超过58%世界人口的态度。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-33.png)
 
-调查的参与者被展示了一个虚构的个人肖像，包括他们的年龄、职业、性格和疫苗接种状况。
+韩国境内确诊病例26万6771例，境外输入病例82例，累计26万6853例。较前一天新增6.8万例。重症患者增加31人至797人。死亡人数增加186人，累计死亡8580例，病死率达到0.22%。重症病床位利用率50.5%。
 
-研究人员发现，接种疫苗的人持有未接种疫苗的人不值得信任和不聪明的刻板印象，也就是接种疫苗的人抱有对未接种疫苗群体为类似异常群体反感类似的偏见。
+韩国的疫苗接种率，首针接种率为87.4%，完全接种率为86.5%，第三针加强针接种率61.7%。 
 
-当研究人员询问一个已接种疫苗的人，如果一个近亲要嫁给一个反疫苗者，他们是否会高兴或支持时，在接受过调查的人中，整体支持率比正常下降了13%，接种疫苗的人甚至更愿意看到近亲嫁给中东移民而不是没有注射疫苗的人。
+此外，韩国政府从本月1日开始暂停11类公共场所、医疗机构等易感染设施、50人以上集会和青少年等群体实施疫苗通行证制度；从明天（5日）开始，餐厅、咖啡厅等12类公众聚集场所的营业截止时间从晚上10点延至11点，不过暂定延至实施到本月20日；与确诊患者同住的人不需要检测以及强制隔离等。
 
-而与之相反的是，那些拒绝接种疫苗的人，并没有降低对那些期望通过打covid-19病毒“疫苗”而寻求保护的人的评价。
+韩国疫情变严重，但是放松防疫规定。这验证了郭文贵先生在早前的直播中指出的：疫苗政策让经济、社会受不了了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Figure-2-The-average-level-of-antipathy-towards-vaccination-outgroups.jpg)
+参考链接：[https://news.kbs.co.kr/news/view.do?ncd=5408883](https://news.kbs.co.kr/news/view.do?ncd=5408883)
 
-整体而言，接种过Covid-19病毒疫苗的人对拒绝接种疫苗的其他人持负面看法，认为他们不够聪明和不值得信任！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Figure-3-The-role-of-the-three-proximate-outcomes.jpg)
+编辑/校对/发稿：Daxia
 
-在不同的国家，这种表现有较大差异，比如，澳大利亚、中共国和英国，接种疫苗人群对未接种疫苗人群的偏见相对更为严重。
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Figure-4-The-relationship-between-country-level.jpg)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-研究人员说，在短期内，对未接种疫苗者的偏见可能会使大流行管理复杂化，从长远来看，这可能意味着社会离开这场大流行的时候比COVID-19病毒大流行前更加分裂。
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-难怪法国总统[埃马纽埃尔·马克龙 (Emmanuel Macron)在回答《巴黎人-今日在法国》（Parisien – Aujourd’hui en France）的七位读者的问题](https://www.leparisien.fr/politique/europe-vaccination-presidentielle-emmanuel-macron-se-livre-a-nos-lecteurs-04-01-2022-2KVQ3ESNSREABMTDWR25OMGWEA.php?utm_campaign=twitter_partage&amp;utm_medium=social&amp;utm_source=POLITICO.EU&amp;utm_campaign=972839f9f0-EMAIL_CAMPAIGN_2022_01_05_05_13&amp;utm_medium=email&amp;utm_term=0_10959edeb5-972839f9f0-190118357)时表示，拒绝接种Covid-19疫苗的人“不是公民”，发誓要让他们的生活变得悲惨。尽管他不会把未接种疫苗的人送进监狱，不会强制他们接种疫苗，但从1月15日起，不打疫苗的人将不能再去餐厅吃饭，不能去咖啡厅，不能去剧院，电影院……从1月15日开始，法国人进入餐厅、酒吧、剧院和其他室内场所将需要Covid-19疫苗护照（Covid passport），前往法国的游客必须通过数字护照（digital passport）出示疫苗接种证明或Covid-19阴性测试。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Emmanuel-Macron.jpg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-参考资料：
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[Prejudice Against the Vaccinated and the Unvaccinated During the COVID-19 Pandemic: A Global Conjoint Experiment](https://psyarxiv.com/t2g45/download)
-
-[Europe, vaccination, présidentielle… Emmanuel Macron se livre à nos lecteurs](https://www.leparisien.fr/politique/europe-vaccination-presidentielle-emmanuel-macron-se-livre-a-nos-lecteurs-04-01-2022-2KVQ3ESNSREABMTDWR25OMGWEA.php?utm_campaign=twitter_partage&amp;utm_medium=social&amp;utm_source=POLITICO.EU&amp;utm_campaign=972839f9f0-EMAIL_CAMPAIGN_2022_01_05_05_13&amp;utm_medium=email&amp;utm_term=0_10959edeb5-972839f9f0-190118357)
-
-[Vaccinated people despise those who refuse to get the jab – but the opposite is not true, study reveals](https://www.dailymail.co.uk/news/article-10537241/Vaccinated-people-feel-antipathy-refuse-Covid-19-jab-survey-shows.html)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
 
  
 

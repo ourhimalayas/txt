@@ -2,22 +2,20 @@
 ---
 
 
-## 【秘翻在线】为控制舆论，普京签署新法镇压“假新闻”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2111870/)
+## 大批将乌克兰视为第二故乡的外国人正在出逃
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2111932/)
 
-#### 翻译/撰稿：zzballack
+#### 翻译 意大利达芬奇农场 小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-05-alle-18.10.50-1.png)图片来源：rainews.it
+成千上万的难民逃离乌克兰， 他们曾选择在那儿学习、工作、生活。
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-458.png)    图片来源：Opindia
-据《新闻极限》（Newsmax）3月4日报道，由于入侵乌克兰引发国际谴责，日益被排斥的俄罗斯正在加紧进行信息战。俄罗斯议会3月4日通过了一项新法案，将给予莫斯科更大权力来镇压独立新闻行业，这促使英国广播公司BBC、彭博社（Bloomberg）和其他外国媒体暂停了在该国的报道。
+火车和公共汽车源源不断地将人们救出乌克兰。在逃难人群中， 相当多的外国人选择乌克兰作为学习、工作和生活的地方。他们的生活也因俄罗斯的入侵而受到影响。Przemysl 是波兰境内第一个接受众多战争难民收容点。很多人是从非洲和中东去乌克兰的，他们也在寻求帮助， 其中的许多人是在乌克兰上学的外国留学生，他们不知道自己是否能够返回家园。一些人说他们愿意尝试在其他欧洲国家继续学习而不是返回祖国。还有一些人抱怨受到歧视， 在越过波兰边境时排队的时间比波兰人长，在某些情况下还遭受过虐待。
 
-新法律规定，任何故意传播被俄罗斯政府认定为是该国军队“假新闻”的人将面临最高15年的监禁，任何被发现诋毁俄罗斯军队或公开支持对该国进行制裁的人将面临罚款。俄罗斯国家杜马（议会下院）主席维亚切斯拉夫·沃洛金（Vyacheslav Volodin）说，这项法律将强制和严厉惩罚那些“撒谎和发表诋毁我们武装部队”的言论的人。
+周二， 联合国难民署将从乌克兰逃亡邻国的难民人数更新为660.000人，许多乌克兰人已经在波兰生活和工作， 波兰的入境人数最多。该机构负责人菲利普•格兰迪(Filippo Grandi)周一告诉安理会“自周四以来，Lacifra的入境人数每小时都呈指数级增长（当时难民人数已超过50万）。”他说：“ 我一直应对人道危机近40年，我很少见到出逃的人数是如此迅速地增加，当然这肯定是自巴尔干战争以来欧洲范围内规模最大的一次难民出逃。”
 
-新法律导致独立记者成群结队地离开俄罗斯，西方主要新闻机构也纷纷采取行动。美国有线电视新闻网（CNN）和哥伦比亚广播公司（CBS News）表示，他们将停止在俄罗斯的报道，其他媒体在评估局势后删除了驻俄罗斯记者的署名文章。
+原文链接：[https://www.rainews.it/photogallery/2022/03/la-fuga-degli-stranieri-che-avevano-scelto-ucraina-come-seconda-patria-37a63c0d-d3e8-4937-878b-ffbff03768ae.html](https://www.rainews.it/photogallery/2022/03/la-fuga-degli-stranieri-che-avevano-scelto-ucraina-come-seconda-patria-37a63c0d-d3e8-4937-878b-ffbff03768ae.html)
 
-3月3日，俄罗斯的两家自由媒体：莫斯科回声（Echo of Moscow）广播公司和TV Rain在压力下停播，因其报导普京在乌克兰的战争，检察官要求限制他们的网站。3月4日，BBC、德国之声、脸书（Facebook）和推特（Twitter）等外国网站在被俄罗斯的通信监管机构封锁后无法访问。
-
-新闻来源：[Global News Media on Defensive After Putin ‘Fake News’ Crackdown](https://www.newsmax.com/newsfront/russia-media-crackdown-facebook/2022/03/04/id/1059755/)
+编辑、上传： Xiao  baige
 
  
 
