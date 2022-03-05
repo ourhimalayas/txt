@@ -2,13 +2,24 @@
 ---
 
 
-## 英国官方数据显示：90%中共病毒死者接种了疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2110225/)
+## NewSGman┃乌克兰前线救援大行动动态（ 3月4日）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2110599/)
 
-03/02/2022 马龙博士：一篇新文章总结了英国国家卫生服务局的数据，表明每10名死于中共病毒的人中就有9人接种了疫苗，五分之四的死亡者接种了三次疫苗。
+撰稿：东京樱花团/NewSGman
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+大卫战友已到达救援第一线战区！
 
+️波兰临时救助点已建立！
+
+战争无情，人间有爱！
+
+危难之际我们战友对同胞与国际友人的最实质行动救援正是这乱世中的那份希望！
+
+盖特链接：[https://gettr.com/post/py45duedd4](https://gettr.com/post/py45duedd4)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

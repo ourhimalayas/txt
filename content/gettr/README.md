@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/5/2022 1:18 PM (UTC)`
+
+致乌克兰战场的所有同胞们……紧急紧急紧急。
+![img](https://media.gettr.com/group22/getter/2022/03/05/13/df4bb241-f35f-e586-aaa0-131851693d3a/out.jpg)
+
+---
+
 `@miles 3/5/2022 11:20 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-最前线跟踪报道
@@ -151,15 +158,6 @@ Prince and Rachel: The New Federal State of China and the Rule of Law Foundation
 
 3/2/2022 Miles Guo: The Russian-Ukraine war may possibly save Taiwan from being invaded by the CCP. With the help of social media, the world has witnessed who is the hero and who is the clown between Zelenskyy and Putin. The Russian-Ukraine war has made me feel there is hope for the Chinese people. The New Federal State of China is indispensable to the world, and China will soon have a democracy of one person, one vote!<br/><br/>3/2/2022 文贵直播：俄乌战争或将成为拯救台湾的挡箭牌，社交媒体让世界看清泽连斯基和普京谁是英雄，谁是小丑；俄乌战争让文贵感到中国人有希望；这个世界不能没有我们新中国联邦！中国很快会有一人一票的民主制度！<br/>
 ![img](https://media.gettr.com/group38/getter/2022/03/04/07/655d39e4-3979-b8b1-1f33-e1ff6806b731/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@rockvision 3/4/2022 3:26 AM (UTC)`
-
-@青藤Vision<br/><br/>今晚哈尔科夫文化学院宿舍遭到射击，据初步估计13名学生被杀，包括4名中国学生和1名印度学生，2名中国人名字已知：Jin Tianhao、Li Zhi……
-![img](https://media.gettr.com/group32/gvision/2022/03/04/03/cf11c586-619a-ca8f-0faf-8b3480497fa7/out.jpg)
 
 ---
 

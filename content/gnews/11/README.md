@@ -2,32 +2,43 @@
 ---
 
 
-## 俄军在乌克兰枪击华人同胞
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2110717/)
+## 普京侵乌以来首次公布伤亡人数俄军498死1597伤
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2110727/)
 
-撰稿:香草山农场-文鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-1.png)
-据3月1日的一条盖特消息，一位在乌克兰华人同胞，发布了一段被俄军枪击逃生后的视频，显示示俄军已经无差别对平民进行开枪。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-425.png)
-视频中，青年男性哭述了事件经过。俄罗斯军队六七辆装甲车，突然对有华人同胞的车辆扫射。其中一人中弹，已经被送往医院救治。目前他和其他伙伴在一处难民营躲避战乱。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image003-2.jpg)图：法新社
+据中央通讯社3月3日报道，俄罗斯政府表示，俄军在乌克兰迄今有498人阵亡、1597人受伤。这是俄国总统普京对乌克兰发动攻击以来，俄罗斯当局首次公布伤亡人数。
 
-视频在媒体发布后，有留言证实该视频的快手账号已经被中共屏蔽。
+据俄罗斯新闻社（RIA）报导，俄国国防部表示，自俄军在乌克兰展开军事行动以来，迄今已有498人阵亡、1597人受伤。
 
-新闻来源: [在乌中国人被俄军扫射，直接破防了](https://gettr.com/post/pxot7i3207)
+另据俄罗斯国际传真社（Interfax News Agency）报导，俄国国防部表示，乌克兰方面已有逾2870名军人及“民族主义者”阵亡，约3700人受伤。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+不过，乌克兰总统的军事顾问阿雷斯托维奇（Oleksiy Arestovich）当天表示，俄军自发动侵略以来已有逾7000人阵亡，有数百人沦为战俘，包括高阶军官。
 
-编辑/总编/审核:飞虹
+[【援引连结】](https://tw.news.yahoo.com/%E8%92%B2%E4%BA%AD%E4%BE%B5%E7%83%8F%E4%BB%A5%E4%BE%86%E9%A6%96%E6%AC%A1%E5%85%AC%E5%B8%83%E5%82%B7%E4%BA%A1%E4%BA%BA%E6%95%B8-%E4%BF%84%E8%BB%8D498%E6%AD%BB1597%E5%82%B7-190726289.html)
 
-校正/发稿：浪迹天涯
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-1.png)
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
