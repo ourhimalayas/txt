@@ -2,26 +2,25 @@
 ---
 
 
-## 中共正在对全世界发动网络战争
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2104979/)
+## 俄乌战争｜乌方证实欧洲最大核电厂已落入俄军手中 西方领袖齐声谴责
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2104356/)
 
-撰稿：东京樱花团/加一颗稻草
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-17.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F16679%2Fproduction%2F_105396719_hi027869497_1.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fchinese-news-47052513&amp;tbnid=1lucNVO77tr2DM&amp;vet=12ahUKEwi0kqOl_6v2AhVhgmMGHf8ACEEQMygDegUIARCrAQ..i&amp;docid=r1CUlsNEtlZP1M&amp;w=640&amp;h=360&amp;q=%E7%BD%91%E7%BB%9C%E6%94%BB%E5%87%BB&amp;ved=2ahUKEwi0kqOl_6v2AhVhgmMGHf8ACEEQMygDegUIARCrAQ)
-美国网络安全公司CrowdStrike最新发表《2022年全球威胁报告》指出，中共国利用网络漏洞进行攻击的能力世界一流，在过去一年有上升的趋势。CrowdStrike情报事务高级副总裁亚当·迈耶斯（Adam Meyers）2月16日在一场网上说明会上说：“他们（中共国黑客）越来越多地寻找企业级服务下手，比如VPN集中器、微软 Exchange服务器、源代码存储库等等。”
+**撰文/ 港台前线｜发布日期/ 04/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/烏方證實歐洲最大核電廠已落入俄軍手中-西方領袖齊聲譴責.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-传统基金会高级研究员成斌（Dean Cheng）直言不讳地提出对那些为中共国军工单位出力的大学进行制裁。成斌说：“中共国的大学数量众多，但其中有一些大学很有意思，它们不属于教育部，实际上隶属于工业和信息化部——这是中共国的军工综合体监督机构。这其中包括北京航空航天大学、南京航空航天大学、哈尔滨工业大学等，大约有八个。它们为中共国军工综合体提供直接支援。”
+乌克兰札波罗热核电厂（Zaporizhzhia）4日凌晨遭俄军炮轰发生大火后，幸得乌克兰当局及时制止，经消防人员扑救后，核电站暂未发生泄漏。
 
-中共制造的病毒在全世界投放之后，新冠疫苗的不良反应逐渐累积爆发。以及俄乌战争中俄罗斯的核武威胁。给人类安全增加了更多的不确定性。
+事件并未就此结束，最新消息显示，乌克兰当局确认，该核电厂在火灾救熄后已被俄军控制。俄罗斯自上星期发动入侵战争以来，已率先占领位于北部的切尔诺贝利核电站，导致该区辐射数据一度录得上升。
 
-3月2日，美国代表团蓬培奥一行访问台湾期间，台湾遭遇网络攻击造成大面积停电。中共攻击台湾意图逐渐暴露。3月2日晚，最新崛起的世界著名自由媒体 GTV也因中共的网络攻击被迫停止运行。中共如此密集的攻击行动。正在全球发起一场网络战用以配合俄罗斯的侵略战争。中共占领台湾并称霸世界的计划正在紧锣密鼓的进行中。
+乌克兰总统泽连斯基（Volodymyr Zelensky）脸书发帖斥责俄罗斯蓄意向札波罗热核电厂开火。他表示，“俄罗斯配备红外热像仪的坦克向着原子区射击。他们心知肚明在射击什么。他们一直为此作准备”。
 
-消息来源：
+泽连斯基又指，俄罗斯袭击该厂极其危险，可能引发灾难，“乌克兰有15个核反应堆。若其中之一爆炸，就是所有人的末日，欧洲的末日”，“除了俄罗斯，从来没有国家曾向原子能发电厂反应堆开火，这是史上首次”，他敦促欧洲领袖“醒来”在酿成核灾前，制止俄军。
 
-[“和我们一起在网络战线战斗” 乌克兰征召全球网军 反击俄罗斯](https://www.voachinese.com/a/ukraine-it-army-20220228/6464220.html)
+对此，西方多国领袖相继发声谴责，英国首相约翰逊指如此“鲁莽”袭击，可能“直接威胁整个欧洲安全”；美国总统拜登促俄停止核电厂一带的军事活动；加拿大总理杜鲁多（Justin Trudeau）就指俄罗斯的“可怕袭击必须立即停止”。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+来源｜[路透社](https://www.reuters.com/world/europe/ukraine-says-russian-forces-seize-zaporizhzhia-nuclear-plant-2022-03-04/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

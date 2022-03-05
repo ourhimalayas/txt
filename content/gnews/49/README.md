@@ -2,30 +2,26 @@
 ---
 
 
-## 中日财经爆|印度指控华为逃税
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105073/)
+## 中共正在对全世界发动网络战争
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2104979/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2Fe40c55a9-8a47-41fb-8075-b96fe935746e.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2F2f5fc6c9-ca2b-496c-9783-b47bf060769d&amp;tbnid=YETnJcdcmjbbCM&amp;vet=12ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ..i&amp;docid=xHuUh4vOZwW9NM&amp;w=2400&amp;h=1350&amp;q=%E5%8D%8E%E4%B8%BA&amp;ved=2ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ)
-路透社3月3日报道，一位印度政府消息人透露，印度对中共国电信设备制造商华为的一项税务调查发现，华为操纵账簿以减少其在印度的应税收入。
+撰稿：东京樱花团/加一颗稻草
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-17.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F16679%2Fproduction%2F_105396719_hi027869497_1.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fchinese-news-47052513&amp;tbnid=1lucNVO77tr2DM&amp;vet=12ahUKEwi0kqOl_6v2AhVhgmMGHf8ACEEQMygDegUIARCrAQ..i&amp;docid=r1CUlsNEtlZP1M&amp;w=640&amp;h=360&amp;q=%E7%BD%91%E7%BB%9C%E6%94%BB%E5%87%BB&amp;ved=2ahUKEwi0kqOl_6v2AhVhgmMGHf8ACEEQMygDegUIARCrAQ)
+美国网络安全公司CrowdStrike最新发表《2022年全球威胁报告》指出，中共国利用网络漏洞进行攻击的能力世界一流，在过去一年有上升的趋势。CrowdStrike情报事务高级副总裁亚当·迈耶斯（Adam Meyers）2月16日在一场网上说明会上说：“他们（中共国黑客）越来越多地寻找企业级服务下手，比如VPN集中器、微软 Exchange服务器、源代码存储库等等。”
 
-印度财政部并未指明是哪一家公司，仅称在上月对一家大型电信集团位于印度三个城市的办事处进行所得税突击检查时，该集团“未能就纳税申报问题提供任何实质性和适当的理由”。
+传统基金会高级研究员成斌（Dean Cheng）直言不讳地提出对那些为中共国军工单位出力的大学进行制裁。成斌说：“中共国的大学数量众多，但其中有一些大学很有意思，它们不属于教育部，实际上隶属于工业和信息化部——这是中共国的军工综合体监督机构。这其中包括北京航空航天大学、南京航空航天大学、哈尔滨工业大学等，大约有八个。它们为中共国军工综合体提供直接支援。”
 
-印度当地媒体2月16日援引官方消息报导，印度税务部门对中共国电信设备制造商华为在印度的多处办公场所进行了搜查，此为逃漏税调查的一部分，近期对中共国几家智能手机企业也进行了相关调查。
+中共制造的病毒在全世界投放之后，新冠疫苗的不良反应逐渐累积爆发。以及俄乌战争中俄罗斯的核武威胁。给人类安全增加了更多的不确定性。
 
-新德里电视台（NDTV）援引印度报业托拉斯（Press Trust of India）报导，官员们查看了财务文件、账簿和公司记录、华为的印度业务和海外交易。
+3月2日，美国代表团蓬培奥一行访问台湾期间，台湾遭遇网络攻击造成大面积停电。中共攻击台湾意图逐渐暴露。3月2日晚，最新崛起的世界著名自由媒体 GTV也因中共的网络攻击被迫停止运行。中共如此密集的攻击行动。正在全球发起一场网络战用以配合俄罗斯的侵略战争。中共占领台湾并称霸世界的计划正在紧锣密鼓的进行中。
 
-消息来源:
+消息来源：
 
-[印度指控华为逃税–印政府消息人士](https://cn.reuters.com/article/india-huawei-sources-0303-thur-idCNKCS2L013W?il=0)
-
-[中日财经爆|华为因逃漏税被印度税务机关搜查](https://gnews.org/zh-hans/2017942/)
+[“和我们一起在网络战线战斗” 乌克兰征召全球网军 反击俄罗斯](https://www.voachinese.com/a/ukraine-it-army-20220228/6464220.html)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

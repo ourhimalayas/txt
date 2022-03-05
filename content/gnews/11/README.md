@@ -2,23 +2,35 @@
 ---
 
 
-## 【 G时新闻 】 美军赶赴欧洲，遏制俄罗斯的进一步侵略！
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2110482/)
+## 学子丧命乌克兰
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2110557/)
 
-美国五角大楼下令从美国各基地向欧洲派遣约12,000名军人，还有几千名已经驻扎在国外的军人转到其他欧洲国家。
+作者：纽约香草山教育部-蓝之灵（hortênsia)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+一念神佛一念魔
+生生死死有选择
+可恨中共假道学
+魑魅魍魉说神佛
+孜孜学子青春气
+乖乖韭菜奉鲜血
+一叶障目不知假
+听命中共命难活
+家乡母亲望穿眼
+等到骨灰只一盒
 
-第三步兵师的指挥官查尔斯-科斯塔萨(Charles Costanza)少将说，快速部署对该旅内部的士气产生了混合影响，该旅一直处于训练之中,年轻的单身士兵对开始他们的第一次海外任务感到兴奋，预计部队部署将持续六个月，这可能会延长–或者可能缩短–取决于乌克兰的发展。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-3.png)
 
-原文链接：https://gnews.org/zh-hans/2108871/
+审核/编辑/发稿:qiutian（邱甜）
 
-视频链接：https://gettr.com/post/pya9tyc0a0
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-播报：莉李鲤
-
-视频制作：文雅
-
-编辑/上传：CTQ
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

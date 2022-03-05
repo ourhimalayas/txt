@@ -2,36 +2,47 @@
 ---
 
 
-## 扑朔迷离的国际形势背后的玄机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2110178/)
+## 俄罗斯目前需要中共人民币兑换以获得战争资金
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2110196/)
 
-撰稿：东京樱花团/加一颗稻草
+作者：银河系农场—骄子
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/扑朔迷离的国际形势背后的玄机.png)
 
-在俄罗斯与乌克兰战争成为全球焦点的时候。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-25.png)
+随着世界各国对俄罗斯的金融制裁，目前国际货币基金组织IMF认可的五种自由使用的货币中，美元、欧元、英镑、日元已经全部关闭了俄罗斯卢布兑换的途径，目前只剩下人民币可以作为唯一的兑换货币。
 
-在全世界感染中共病毒（ CIVID）接近4.5亿人，因 COVID死亡人数超过6千万，因注射中共病毒疫苗产生的副作用爆发式增长，全球各国此起彼伏的人们抗议有关疫苗强制暴政的时候。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/bc-russia-needs-china-s-help-to-turn-its-imf-reserves-into-cash-for-war.png.jpeg)图源网络
 
-勇敢的美国货车司机的抗议行动似乎显得暗淡无光。
+目前IMF资产约占俄罗斯6430亿美元储备的4%，美国和欧盟等国家采取了一切措施防止俄罗斯从IMF的储备中受益。基于中共目前的立场，如果中共央行与俄罗斯央行开展货币互换关系，对维持卢布的价值作用也是有限的，因为人民币是脱离于整个世界市场经济的货币，对自由贸易的作用影响力较小。如果俄罗斯通过特殊渠道收购其他四种已关闭兑换的货币，这些资金会被冻结。
 
-加拿大的抗议集会也少人关注。
+俄央行和中共央行均未对此回应。
 
-新西兰与澳大利亚的暴力镇压变得理所当然。
+参考来源：
 
-香港因疫情被死亡气息笼罩的人们黯然神伤。
+[Russia Needs China’s Help to Turn Its IMF Reserves Into Cash for War](https://www.bnnbloomberg.ca/russia-needs-china-s-help-to-turn-its-imf-reserves-into-cash-for-war-1.1731525)
 
-所有这些已经被世界遗忘。
 
-俄罗斯与乌克兰战争的伤害远远不及 COVID 所带来的伤害。可是人们总是被远在万里所谓的热点吸引，而对发生在自身的伤痛选择遗忘。
 
-COVID 的灾难并没有消失，每天的感染人数还在上升，因 COVID 死亡人数还在打增加，因COVID 导致的经济崩溃就在眼前。全世界正面临至暗时刻，2022年将成为人类历史上最黑暗的一年。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-12.jpg)
 
-所有这些都是利益集团的操控，他们操控媒体、病毒、疫苗、战争。利用普通老百姓的善良和生命去掩盖他们的罪行。
+编辑/校对/发稿：兰兰
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-26.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
