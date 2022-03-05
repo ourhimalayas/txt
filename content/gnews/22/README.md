@@ -2,27 +2,35 @@
 ---
 
 
-## 有声｜通过Hpay成功用喜美元购买F1赛车
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2109538/)
+## 2022/03/01 国际刑事法院将在乌克兰调查危害人类罪
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2109958/)
 
-**By:秘翻新闻**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-05-0831046.jpg)
+**简评：**
 
-**2022-03-05**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-33.png)
-**[据福布斯3月4日报导，由喜马拉雅交易所（Himalaya Exchange）开发的支付应用程序喜马拉雅支付，购买了艾尔顿-塞纳的座驾-1989年的迈凯轮MP4/5 F1，价格超过$500万美元。Hpay的会员间通过稳定币喜马拉雅元-HDO转账完成。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
+俄罗斯入侵乌克兰第6天，新一轮轰炸一夜之间袭击了乌克兰首都基辅。泽连斯基总统指责俄罗斯使用造成毁灭性爆炸的温压炸弹。国际刑事法院将在乌克兰调查潜在的危害人类罪。泽连斯基总统签署了加入欧盟的申请，还要求在乌克兰设立禁飞区，但是白宫没有采纳。卫星图像显示，长达40英里的俄罗斯军队和坦克车队正在接近乌克兰首都。乌克兰已经有超过400多名平民伤亡。
 
-**[艾尔顿-塞纳对于过去和现在的车手和车迷来说仍然是一个传奇，他所驾驶的汽车是世界上最有价值的收藏品之一。 这笔交易表明人们对喜马拉雅交易所越来越有信心，特别是Hpay，现在是第一个版本。第二个版本的支付应用程序正在开发中。通过Hpay，用户将能够在全球范围内进行即时加密货币转账，安排自动付款，并可以用所有的数字货币从独家零售商购物。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
+GETTR视频链接：[https://gettr.com/post/py7ejc2432](https://gettr.com/post/py7ejc2432)
 
-**[喜马拉雅集团这样值得信赖的交易所，让企业和个人能够充分利用加密货币的崛起所带来的机会。无边界、包容性和安全性，你可以通过喜马拉雅交易所随时随地交易你的资产。该平台也是第一个将加密货币交易所与原生交易币（喜马拉雅币’HCN’）、稳定币（喜马拉雅币’HDO’）以及最近推出的支付应用（HPAY）整合在一个平台上，使其成为唯一一个完全整合加密货币生态系统的平台。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
+**视频字幕：**
 
-**[该平台的中心任务是使每个人能够控制他们自己的钱，实现财务自主。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
+**画外音：**现在来现场看看基辅的圣麦克尔修道院，这是俄罗斯入侵的第6天。新一轮轰炸一夜之间袭击了乌克兰首都。现在国际刑事法院表示将在乌克兰调查潜在的危害人类罪。泽连斯基总统指责俄罗斯使用受到高度谴责的温压炸弹，这些炸弹在大气中吸收氧气，造成毁灭性的爆炸。视频和照片已经被发布到社交媒体上，显示了损失情况。在哈尔科夫，泽连斯基还签署了加入欧盟的申请。在很大程度上这是一个象征性的举动，因为这个过程可能需要数年时间。泽连斯基还要求在乌克兰设立禁飞区，但白宫驳回了这个想法。
 
-（ 秘翻新闻 文雀 编译报导 ）
+**白宫新闻秘书****Jen Paski****：**“这意味着，美国军方将会击落俄罗斯飞机，这绝对是升级的，是总统不想做的事”。
 
-发布:星星
+**画外音：**卫星图像显示，俄罗斯军队和坦克车队正在接近首都，车队估计长达40英里。据报道，乌克兰目前有400多名平民伤亡，但官方表示，这个数字可能要高得多。
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

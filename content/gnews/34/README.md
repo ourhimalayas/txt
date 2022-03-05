@@ -2,29 +2,32 @@
 ---
 
 
-## 新中国联邦九人团队前去救助乌克兰难民
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2108525/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月4日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2108887/)
 
-作者、编辑：Candy
+作者：香草山翻译部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/救援.png)图片来源：GETTR直播
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-1.jpg)
 
 
-2月25日爆发的俄罗斯、乌克兰战争，给乌克兰人民造成了严重的灾难，新中国联邦第一次进行国际人道主义援助。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-3.png)
+校对：Stay文苑
 
-今天3月4日，新中国联邦组成的一行九人团队，作为第一批从纽约出发的救援人员，正在纽约的JFK机场准备登机。他们中间有医护人员，也有网络工程师，有因坚持去前线救援但得不到公司支持而毅然辞职的战友，有大学刚毕业的年轻人，也有年过六旬的老人，还有一名美籍乌克兰人……他们的唯一愿望，就是要去前线救助在乌克兰遭受战争苦难的中国同胞、美国及其他国际人士。
+编辑：Stay文苑
 
-他们随行携带了所能想到的抗中共病毒的药品、N95口罩及其它生活必须品。为减轻疲劳，保存精力，法制基金和法治社会为他们购买了商务舱的机票，所以他们将乘坐商务舱前往波兰。
+发稿：Stay文苑
 
-预祝前往救援的战友们一路平安，同时祝所有在前线的战友们平安！
+新闻：[https://gettr.com/post/py9cbl0bbc](https://gettr.com/post/py9cbl0bbc)
+访谈：[https://gettr.com/post/py9lq26e35](https://gettr.com/post/py9lq26e35)
 
-***发布：Candy***
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-calendar-4-2.png)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

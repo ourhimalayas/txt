@@ -2,35 +2,44 @@
 ---
 
 
-## 《时代杂志》以蓝黄国旗色致敬乌克兰
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2109346/)
+## 俄罗斯寡头米哈伊尔-沃特福德被发现吊死在英国豪宅中
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2109376/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒3月3日消息，美国《时代杂志》在最新一期封面上，染上醒目的乌克兰国旗蓝黄二色，并列出泽连斯基的名言，向乌克兰致敬。
+***评论：**俄罗斯这些寡头热衷把自己的绝大部分资产在西方国家藏匿，在俄罗斯入侵乌克兰后，对这些人的个人财产制裁建议最早来自于新中国联邦创始人郭文贵先生，德国率先没收了游艇，英国也加入了，接下来还会更多，这是一场看不见硝烟的战争。*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-24.jpg)
+据《每日来电者》(dailycaller.com) 作者：凯·史密斯 ([KAY SMYTHE](https://dailycaller.com/author/KSmythe))，2022年3月3日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-403-e1646457178409.png)多塞特警方举行移动电话执法行动
+图片来源：原文
+出生于乌克兰的寡头米哈伊尔-沃特福德周一被发现在英国最大的庄园之一被绞死。
 
-据悉，《时代杂志》封面上用乌克兰语写着“生命终将战胜死亡，光明终将战胜黑暗”，这句话是乌克兰总统泽连斯基，3月1日在欧盟议会发表视频演时所说的名言。这场演说迅速传遍并感动世界，在场的欧盟议会议员纷纷起立鼓掌表达敬意。
+据英国《卫报》报道，现年 66 岁的石油和天然气大亨沃特福德被发现在家中死亡,情况不明，但并不可疑。另据《太阳报》报道，沃特福德的尸体周一在他位于萨里郡,弗吉尼亚沃特的温特沃斯庄园被一名园丁发现后，随后当局被叫去他家。
 
-在俄罗斯全面进攻乌克兰的第二晚，即2月25日晚上，泽连斯基走出办公室，用手机自拍并附上信息说“我们都在这里”，此举深深感动了并团结了乌克兰人。《时代杂志》封面故事表示，泽连斯基选择与基辅共存亡的壮举，已经改变了历史。
+虽然《太阳报》报道称沃特福德是俄罗斯人，但据《卫报》报道，他在苏联解体前于1955年出生于乌克兰。该媒体指出，他出生于米哈伊尔-托尔斯泰亚，在21世纪初移居英国时，他将自己的姓氏英文化。 据报道，他的三个孩子和他的爱沙尼亚籍妻子简幸存下来
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-404.png)
+据《太阳报》报道，这位寡头的母亲住在他位于萨里的别墅式住宅的邻近公寓里. 据称她在离开乌克兰后坚持保留她的苏联身份证。沃特福德在2015年接受《星期日泰晤士报》采访时说，他的母亲“坚信共产党人将回到俄罗斯和乌克兰……我们祈祷她的梦想永远不会实现”。
 
-参考链接：
+《卫报》在另一篇文章中报道，英国外交大臣利兹-特拉斯2月27日宣布，她有一份俄罗斯寡头的“打击名单”. 这些寡头在俄罗斯入侵乌克兰后将面临制裁。“我们的目标是寡头的私人飞机. 我们将针对他们的财产，我们将针对他们的其他财产。” 据报道，特拉斯在上周末告诉当地新闻机构，“他们的财产将无处可藏。”
 
-- [《時代》最新封面染上藍黃色 致敬澤倫斯基與基輔英雄](https://news.ltn.com.tw/news/world/breakingnews/3847390)
+文章观点仅代表作者个人，与Gnews平台无关。
+
+原文连接：[https://dailycaller.com/2022/03/03/russian-oligarch-hanged-uk-mansion-mikhail-watford/](https://dailycaller.com/2022/03/03/russian-oligarch-hanged-uk-mansion-mikhail-watford/)
+
+翻译：洛杉矶盘古农场- TrueSky
+
+校对：洛杉矶盘古农场 – Freeearth
+
+评论：洛杉矶盘古农场 – 傻小子
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-编辑/校正/发稿：海阔天空1
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

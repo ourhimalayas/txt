@@ -2,30 +2,35 @@
 ---
 
 
-## 大量乌克兰人涌向西部利沃夫搭火车到波兰
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2109102/)
+## 《时代杂志》以蓝黄国旗色致敬乌克兰
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2109346/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/poland-ukraine-russia-conflict-refugees-44929657_0.jpg)3月4日，在波兰东部的一个火车站，涌入了许多来自乌克兰的难民。（法新社）
-（早报讯）在乌克兰西部城市利沃夫的火车站外，聚集了大量急于逃离战火的乌克兰人。
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台媒3月3日消息，美国《时代杂志》在最新一期封面上，染上醒目的乌克兰国旗蓝黄二色，并列出泽连斯基的名言，向乌克兰致敬。
 
-路透社报道，距离波兰边境约60公里的利沃夫（Lviv）现已成为来自乌克兰东部、南部和中部的许多家庭的一个中转站。但数以千计的人在那里等候了多个小时，依然未能搭上开往波兰的列车。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-24.jpg)
 
-许多家庭只带着简单行李，有坐在轮椅上的行动不便者，也有人带着宠物狗和猫一起逃亡，但谁也不知道自己的未来会怎样。
+据悉，《时代杂志》封面上用乌克兰语写着“生命终将战胜死亡，光明终将战胜黑暗”，这句话是乌克兰总统泽连斯基，3月1日在欧盟议会发表视频演时所说的名言。这场演说迅速传遍并感动世界，在场的欧盟议会议员纷纷起立鼓掌表达敬意。
 
-一个名叫泰比亚金纳的妇女说：“我们去了波兰再做打算，到时才决定去哪个接纳难民的国家。”她说：“我们只带了一套换洗的衣物。全部家当都没有带走。”
+在俄罗斯全面进攻乌克兰的第二晚，即2月25日晚上，泽连斯基走出办公室，用手机自拍并附上信息说“我们都在这里”，此举深深感动了并团结了乌克兰人。《时代杂志》封面故事表示，泽连斯基选择与基辅共存亡的壮举，已经改变了历史。
 
-带着一个年幼儿子从1000公里外的哈尔科夫（Kharkiv）来到利沃夫的帕西奇尼克说，炮击没有停过，她的儿子一听到爆炸声就会开始发抖。
+参考链接：
 
-同样来自哈尔科夫、已在火车站等了六小时的维塞兰斯卡疲惫的说：“我们无法睡也无法正常进食，因为这一切让我们太痛苦焦虑。”
+- [《時代》最新封面染上藍黃色 致敬澤倫斯基與基輔英雄](https://news.ltn.com.tw/news/world/breakingnews/3847390)
 
-联合国难民署表示，这场战事料将成为本世纪欧洲最大的难民危机。
 
-原文链接：[https://www.zaobao.com.sg/realtime/world/story20220305-1249092](https://www.zaobao.com.sg/realtime/world/story20220305-1249092)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-审核校对：Barry Jack
-上传排版：F
+编辑/校正/发稿：海阔天空1
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
