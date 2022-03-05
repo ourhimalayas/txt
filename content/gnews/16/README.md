@@ -2,23 +2,36 @@
 ---
 
 
-## 【G时新闻】中共弃同胞不顾 新中国联邦前往救援
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2111631/)
+## 有声|三月桂花遍地开
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2111648/)
 
-加拿大温哥华扬帆农场 G时新闻 主播: 悠然 视频制作: 文雅
+作者：香草山福音部-melisa/录音-黎明曙光
 
-3月1日，中共驻乌克兰大使馆官方微信号转发乌克兰铁路官网通知，鼓励滞留华侨自行乘火车离开乌克兰，前往邻国避险。
+新中国联邦救援在乌克兰
 
-在俄罗斯侵略乌克兰之际，各国使领馆即时安排其侨胞撤离，唯中共使馆反应迟缓毫无措施。中共驻乌克兰大使，曾放话包机撤侨，据悉最终只接自己人员及亲友离乌，对普通华侨则一再推脱。相反，2月26日，在国际上没有主权的新中国联邦宣布，法治基金将与联合国救援组织合作，启动国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。
+华人,美国人,世界和友好人士
 
-有关人士评论，中共自己无能救助同胞弃同胞不顾，却对新中国联邦的无私营救极尽歪曲之能事，中共对中国老百姓非人道的邪恶，昭然若揭。
+这离战火的地区
 
-原文链接：[https://gnews.org/zh-hans/2107927/](https://gnews.org/zh-hans/2107927/)
+免费救人不图利
 
-视频链接：[https://gettr.com/post/pyal0o7898](https://gettr.com/post/pyal0o7898)
+人的生命第一位
 
-发稿：野草
+救援飞机来了
 
+带你飞到安会的港湾
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
+
+音频处理/编辑/发稿：Daxia
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
