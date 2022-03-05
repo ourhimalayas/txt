@@ -2,35 +2,42 @@
 ---
 
 
-## 俄罗斯战俘呼吁俄军士兵不要做炮灰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2110973/)
+## 力挺乌克兰 全球各界掀起反战浪潮
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2111089/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月4日，据盖特消息显示，被乌克兰俘获的俄罗斯士兵近日陆续通过视频向外界传递出他们被蒙骗出战以及其自身对战争的拒绝。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-05-上午8.24.37.png)
-这些俄罗斯士兵表示，他们在出战前根本不清楚这次战争的对象和性质，而他们对此的任何疑问则全部遭到上级长官粗暴的拒绝与封口。更有士兵提到，直至进入乌克兰后他们才清楚，这次战争的目的是为了侵略乌克兰，而不是“解救”乌克兰民众。
+撰稿：纽约香草山教育部- Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-1.png)
+俄罗斯对乌克兰的持续入侵已造成了巨大的人道灾难，并招致了西方世界的强烈抵制和制裁，反战浪潮已在全球各个领域掀起。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-432.png)图片来自：https://www.washingtonpost.com
+（1）零售方面。美国各地正在从货架上撤下俄罗斯制造的产品，因为几位州长签署了限制俄罗斯商品在本州销售的命令。
 
-至于俄罗斯当局在交战中采取的手段，这些士兵证实，俄军不仅不会帮阵亡的将士收尸，甚至还会将伤残的俄军士兵就地处死并焚毁。
+（2）体育方面。应国际奥委会的要求，体育联合会和体育联盟正在积极采取行动将俄罗斯的球队和运动员排除在任何赛事之外，并将主要体育赛事的举办场地从俄罗斯转移出来。
 
-为此，这些俄罗斯士兵在视频中声明，他们实际上是受到了政府的欺骗，他们既不愿意侵略乌克兰，也不愿意成为这场独裁者战争的炮灰。这些士兵也向所有的俄军将士呼吁， 请大家不要再受政府的蒙骗，成为独裁者的牺牲品。同时，他们也号召俄罗斯人民站起来反对普京，停止这场毫无意义的战争，停止这场人类的灾难。
+（3）文化娱乐方面。纽约大都会歌剧院总经理在一份声明中表示，不再与支持普京或得到他支持的艺术家或机构接触。戛纳电影节的组织者2月28日表示，不欢迎俄罗斯官方代表团和任何与俄罗斯政府有联系的人参加此次活动。华特迪士尼公司、华纳兄弟和索尼影业表示，将暂停即将在俄罗斯上映的电影。
 
-参考链接：[https://gettr.com/post/py4ufqdd33](https://gettr.com/post/py4ufqdd33)
+（4）媒体宣传方面。元宇宙 、谷歌等各大科技巨头已迅速采取行动，限制俄罗斯国有新闻媒体 RT 和 Sputnik 的覆盖范围，以阻止错误、虚假信息的传播。流媒体巨头 Netflix 周一表示，将不会在其平台上播放任何俄罗斯频道。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
+（5）贸易方面。大众汽车集团，梅赛德斯-奔驰集团表示，将不再向俄罗斯出口汽车，并将停止在俄罗斯工厂的生产。家居巨头宜家，时装零售商Mango，服装品牌H&M纷纷表示，将暂停在俄罗斯的生产，关闭其在该国的商店，并停止向俄罗斯出口商品。苹果、耐克和英国快时尚品牌Asos 和 Boohoo宣布将不再在俄罗斯销售产品。
 
-总编：Irene木木
-编辑：Ivy001
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+（6）航空方面。航空公司软件巨头 Sabre 3月3日宣布将终止与俄罗斯航空公司 Aeroflot 的分销协议，这将削弱该公司销售航空机票的能力。
+
+链接：
+
+[Russia boycott: A list of global campaigns that are underway in support of Ukraine](https://www.washingtonpost.com/world/2022/03/02/boycotts-russia-invasion-ukraine/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+编辑/总编/审核：飞虹
+
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
