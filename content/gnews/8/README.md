@@ -2,36 +2,28 @@
 ---
 
 
-## 特鲁多：不希望看到俄乌冲突升级
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2111730/)
+## 乌克兰女学生求助中共驻乌使馆——电话录音
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2111749/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：七叶之芒
 
-整理：围剿维尼熊
-编辑：wenly
+就在新中国联邦人废寝忘食的开展对乌克兰华人同胞大营救的同时，中国驻乌克兰大使馆的工作人员面对战争中孤苦无助的中国女学生推三阻四、不管不顾。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-353.png)
+真实的战争打碎了中国共产党的谎言，“厉害了，我的国”，“虽远必诛“的中国战狼，在此刻消失得无影无踪。
 
+真实的战争中，我们没有看到中共口中的那“强大的祖国”对中国人的保护，我们看到的只是”自行撤离“的弃之不顾。
 
+希望您能花些时间听一下这段电话录音。
+希望您能体会到中共的无耻嘴脸。
+希望在乌克兰的这位女孩子平安。
+希望在乌克兰战火中的中国同胞平安……
 
-图片来源：雅典娜设计组
+* * *
 
+*审核：七叶之芒*
+*发稿：信心的选择*
 
-加拿大总理特鲁多（Justin Trudeau）今天表示，加拿大政府不希望看到俄乌战争升级，因为这将使北约部队在东欧与俄罗斯发生“直接冲突”。
-
-加拿大广播公司新闻网（CBC News）报导，特鲁多在安大略省密西沙加市（Mississauga）告诉记者，加拿大及盟国着重在让俄罗斯经济受重击作为侵乌代价，但不会在乌克兰上空建立禁飞区。
-
-北约若实施禁飞区，代表北约战机将部署到乌克兰领空以阻止俄罗斯空军入侵，势必导致北约与俄军直接交战，冲突急剧恶化。
-参考链接：[杜魯多：加拿大和北約要避免與俄直接衝突](https://udn.com/news/story/122699/6142662?from=udn-catebreaknews_ch2)
-
-*发布：*星谕
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-3.jpeg)
 
  
 

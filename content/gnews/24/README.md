@@ -2,39 +2,29 @@
 ---
 
 
-## 泽连斯基躲过了三次暗杀
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2111515/)
+## 救援志愿者在波兰
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2111540/)
 
-作者：银河系农场—骄子
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
-
-
-据外媒报道，在俄罗斯对乌克兰入侵短短一周之内，泽连斯基起码躲过了三次有企图的暗杀。
-
-俄罗斯支持的阴暗瓦格纳集团是其中两次暗杀的幕后黑手。乌克兰国防部长称收到了俄罗斯联邦安全局的情报，因他们并不想参加普京的血腥侵略，从而避免了对泽连斯基的暗杀。如果刺杀成功，俄罗斯可以堂而皇之地否认。除了这两次刺杀，还有一次刺杀是车臣刺客主使的，不过他们在行刺之前就已经被捕。
-
-在俄罗斯入侵乌克兰时，美国提出撤离泽连斯基，但他拒绝了，坚持留下来与乌克兰同生共死。郭先生此前也曾爆料，泽连斯基已经成为了暗杀目标，希望上天保佑他的安全。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-57.jpeg)图片来源：NEW YORK POST
-
-参考链接：[https://nypost.com/2022/03/03/ukraine-president-zelensky-survived-three-assassination-attempts/](https://nypost.com/2022/03/03/ukraine-president-zelensky-survived-three-assassination-attempts/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-58.jpeg)
-
-编辑/校对/发稿：文敬
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/0ed76efb-c57a-41fa-b954-c56035925493.jpg)
 
 
+图片来源：阿娜
 
+乌克兰的战火已经持续了10天， 2月26日郭先生紧急直播， 宣布了新中国联邦法制基金将开展紧急救援活动。 由此战友们都用各自的方式广泛宣传， 法治基金和设置热线电话， 服务所有需要帮助的在乌克兰的中国华人，包括国际友人。 这次的救援，不分种族不分政治立场， 新中国联邦只想救人，救人。
+
+新中国联邦的战友们各自集结， 欧洲的站战友们紧急赶往前线， 意大利农场的志愿者也勇往直前， 3月3日经过20多个小时的车程， 带着物资和药物赶到了波兰。
+
+3月4日， 第一批从乌克兰开出的大巴车， 载着61位战友的家属、中国同胞和国际友人到达了安全的波兰。 愿者为他们准备了热水和食物，迎接他们并安排他们的住宿。
+
+新中国联邦还给志愿者们送来了星链网， 让战友们之间的通讯更加通畅。
+
+新中国联邦在如此的危机时刻没有忘掉同胞， 所有的营救计划全部无偿提供， 包括班机和30天的食宿费用。
+
+这是新中国联邦人道主义救援的真实写照。
+
+编辑发表： Shuizhuyu
 
  
 

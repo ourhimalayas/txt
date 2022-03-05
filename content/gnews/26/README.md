@@ -2,32 +2,38 @@
 ---
 
 
-## 台湾将参照乌克兰武装部队加强后备力量
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2111504/)
+## 泽连斯基躲过了三次暗杀
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2111515/)
 
-撰稿：东京樱花团/文小白
+作者：银河系农场—骄子
 
-台湾国防部为加强紧急情况下动员后备部队力量，并将训练天数增加了一倍。调整后的第一次训练拟于5日开始。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-32.png)
-照片来源：本文链接
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
-国防部表示，动员了大量预备役军人的乌克兰武装部队将 “作为未来的参考”。
 
-为了应对来自中共日益增长的军事压力，台湾国防部一直在努力加强其预备役部队在紧急情况下的战斗能力。具体措施之一是将每次训练的天数增加一倍，达到14天。
+据外媒报道，在俄罗斯对乌克兰入侵短短一周之内，泽连斯基起码躲过了三次有企图的暗杀。
 
-调整后的第一次训练从5日开始在台湾各地依次举行，在大约有500人被召集的北部桃园，从早上开始就有人陆续前往指定地点集合。
+俄罗斯支持的阴暗瓦格纳集团是其中两次暗杀的幕后黑手。乌克兰国防部长称收到了俄罗斯联邦安全局的情报，因他们并不想参加普京的血腥侵略，从而避免了对泽连斯基的暗杀。如果刺杀成功，俄罗斯可以堂而皇之地否认。除了这两次刺杀，还有一次刺杀是车臣刺客主使的，不过他们在行刺之前就已经被捕。
 
-延长训练天数是在俄罗斯入侵乌克兰之前决定的，
+在俄罗斯入侵乌克兰时，美国提出撤离泽连斯基，但他拒绝了，坚持留下来与乌克兰同生共死。郭先生此前也曾爆料，泽连斯基已经成为了暗杀目标，希望上天保佑他的安全。
 
-国防部表示，”将为台湾在组织和训练预备役部队以及如何部署作参考”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-57.jpeg)图片来源：NEW YORK POST
 
-蔡英文政府希望在台湾出现紧急情况时得到美国的支持，但鉴于去年美国从阿富汗撤军以及目前的乌克兰局势，蔡英文政府一再强调自己的立场，即台湾必须首先拥有保卫自己的决心和能力。
+参考链接：[https://nypost.com/2022/03/03/ukraine-president-zelensky-survived-three-assassination-attempts/](https://nypost.com/2022/03/03/ukraine-president-zelensky-survived-three-assassination-attempts/)
 
-信息来源：[台湾 予備役の戦力強化へ “ウクライナ軍を参考に”](https://www3.nhk.or.jp/news/html/20220305/k10013516001000.html?utm_int=news-international_contents_list-items_007)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-58.jpeg)
 
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+编辑/校对/发稿：文敬
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+
+
 
 
  

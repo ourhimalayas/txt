@@ -2,48 +2,32 @@
 ---
 
 
-## 韩国单日新增确诊病例26万例，创历史新高
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2111724/)
+## 有声|世界银行暂停在俄罗斯和白俄罗斯所有业务
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2111741/)
 
-作者：首尔天池农场—追着曙光跑
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月2日，世界银行发布声明表示，在俄罗斯开始入侵乌克兰，并对乌克兰人民实施敌对行动后，世界银行立即停止了在俄罗斯和白俄罗斯的所有项目。
 
+在该声明中，世界银行表示：自2014年以来，世界银行集团没有批准在俄罗斯的任何新贷款或投资。而自2020年年中以来，白俄罗斯也没有获得任何新的信贷批准。现在，在战火之下，这两个国家正在实施的其他项目也被全部停止。
 
+此外，世界银行于3月1日表示，计划在未来几个月为乌克兰提供30亿美元的支持，国际货币基金组织也在计划向乌克兰提供紧急援助。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+文字版原文：[世界银行暂停在俄罗斯和白俄罗斯所有业务](https://gnews.org/zh-hans/2105945/)
 
+音频处理：Fei797
+发稿：Fei797
 
-
-据韩KBS新闻3月4日的报道， 韩国中央防疫对策本部通报，截至今天（4日）零时，单日新增中共病毒确诊病例26万6853例，创历史新高。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-33.png)
-
-韩国境内确诊病例26万6771例，境外输入病例82例，累计26万6853例。较前一天新增6.8万例。重症患者增加31人至797人。死亡人数增加186人，累计死亡8580例，病死率达到0.22%。重症病床位利用率50.5%。
-
-韩国的疫苗接种率，首针接种率为87.4%，完全接种率为86.5%，第三针加强针接种率61.7%。 
-
-此外，韩国政府从本月1日开始暂停11类公共场所、医疗机构等易感染设施、50人以上集会和青少年等群体实施疫苗通行证制度；从明天（5日）开始，餐厅、咖啡厅等12类公众聚集场所的营业截止时间从晚上10点延至11点，不过暂定延至实施到本月20日；与确诊患者同住的人不需要检测以及强制隔离等。
-
-韩国疫情变严重，但是放松防疫规定。这验证了郭文贵先生在早前的直播中指出的：疫苗政策让经济、社会受不了了。
-
-参考链接：[https://news.kbs.co.kr/news/view.do?ncd=5408883](https://news.kbs.co.kr/news/view.do?ncd=5408883)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
-
-编辑/校对/发稿：Daxia
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
 
  
 
