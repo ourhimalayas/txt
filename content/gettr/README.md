@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/5/2022 7:38 PM (UTC)`
+
+炸了！FDA败诉！辉瑞被迫公布所有疫苗数据！副作用足足有9页！全网惊呆…目前披露的文件中列出了1000多种不良反应，很多都是头一次看到，包括： 筋膜炎、眼部肿胀、面瘫、斑秃、过敏休克、妊娠过敏反应综合征、急性心肌病、急性呼吸衰竭、注射部位血管炎、癫痫、血栓、心律失常、关节炎、哮喘、支气管痉挛、心脏骤停、心力衰竭、胸部不适、窒息、急性皮肤红斑狼疮、急性脑脊髓炎、急性肾损伤、急性黄斑外层视网膜病变、再生障碍性贫血、慢性自身免疫性肾小球肾炎、慢性皮肤红斑狼疮、慢性自发性荨麻疹、溶血性贫血、结肠炎、皮炎、糖尿病、栓塞性脑梗塞、内分泌失调、新生儿重症肌无力、脊髓炎、非感染性卵巢炎、甲状腺炎、溃疡性直肠炎、眼部瘙痒症、生殖器疱疹、舌咽神经麻痹、出血性血管炎、宫颈炎、狼疮性膀胱炎、狼疮性脑炎、多发性硬化症等等。fried! FDA loses case! Pfizer forced to release all vaccine data! There are 9 pages of side effects! The whole network is stunned... There are more than 1,000 adverse reactions listed in the currently disclosed documents, many of which are seen for the first time, including: Fasciitis, swollen eyes, facial paralysis, alopecia areata, anaphylactic shock, ancardiomyopathy, acute respirator https://gettr.com/post/pyd4us8b82
+
+---
+
 `@miles 3/5/2022 7:18 PM (UTC)`
 
 3月5号：-------0305 新中国联邦法治基金乌克兰救援最前线跟踪报道 Youtube精选视频汇总-------<br/><br/>【精选1】https://youtu.be/aS8dsRbL8J0<br/><br/>【精选2】https://youtu.be/h7YvQNF6QlE<br/><br/>【精选3】https://youtu.be/eXfPoaT4iBQ
@@ -150,13 +156,6 @@ Children of the New Federal State of China pray for the peace of Ukrainian Peopl
 
 【UKRAINEHELP-003】<br/>为应对乌克兰-波兰边境日益增多的撤离人员和难民，NFSC和法治基金(ROLF)宣布2022年3月9日首批免费专机的暂定行程。<br/><br/>2022年3月9日出发的首批专机航线如下，有可能根据情况做出调整:<br/>1. 从波兰 - 热舒夫(Rzeszow)机场出发，经加拿大多伦多，前往美国纽约。<br/>2. 从波兰 - 热舒夫(Rzeszow)机场出发，直飞帕劳。<br/><br/>NFSC和ROLF提供免费专机，以帮助那些受俄罗斯非法入侵影响的人员，这是我们支持在被共产主义和专制政府统治的国家里争取自由的使命的一部分。<br/><br/>如果您需要搭乘我们的专机，请联系我们的24小时服务热线。所有乘客必须满足 其目的地的签证要求。如有需要，NFSC和ROLF将在出发前提供免费食宿。<br/><br/>24小时紧急救援客服联系方式如下:<br/><br/>邮箱: ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO <br/><br/>电话(短信或电话):<br/>+1 720-657-6776 或 <br/>+1 719-224-4232<br/><br/>NFSC | 法治基金 <br/>2022年3月3日<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group46/getter/2022/03/04/14/914793c1-2bb1-a4b8-07ca-d8874855a3c5/2a10b3fec16a22e8980985dbc4dcd6f9.jpg)
-
----
-
-`@miles 3/4/2022 1:30 PM (UTC)`
-
-Prince and Rachel: The New Federal State of China and the Rule of Law Foundation are looking to help 10,000 to 20,000 Chinese stranded in Ukraine evacuate. For people who need help to evacuate from Ukraine, please go to the website (ukrainehelp.info) for information. We have two emergency contact numbers and two emails, 24/7, to assist those who need help. <br/><br/>爆料革命战友（小王子和瑞秋）：新中国联邦、法治基金正在努力帮助一万到两万名滞留在乌克兰的中国人撤离。如需我们协助从乌克兰撤离，请访问网站（ukrainehelp.info）获取信息。我们有两条全天候的紧急联系电话和两个电子邮件来帮助那些需要援助的人。
-![img](https://media.gettr.com/group39/getter/2022/03/04/13/b6499f3d-ac41-b794-aa20-6cb7116f3bd2/out.jpg)
 
 ---
 
