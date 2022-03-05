@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/5/2022 9:40 AM (UTC)`
+
+3月5号：尊敬的战友们好．是母亲给了我们的生命也影响了我们的一生……母亲也是国家和一个民族的未来的开始……！一个不懂得尊敬母亲的人和民主是不会有未来的，让我们一起到乌克兰拯救那些被战火<br/>威胁的母亲和孩子吧……
+![img](https://media.gettr.com/group33/getter/2022/03/05/09/930f2c3e-4926-7923-4a79-54b15b6411d3/out.jpg)
+
+---
+
 `@miles 3/5/2022 4:57 AM (UTC)`
 
 Children of the New Federal State of China pray for the peace of Ukrainian People. Let’s heal the world for our generations and generations. <br/>新中国联邦的小朋友们为乌克兰人民祈祷，希望他们早日脱离战火，祈求世界和平！
@@ -153,13 +160,6 @@ Prince and Rachel from NFSC on War Room: New Federal State of China is evacuatin
 
 <br/>3月3号：文贵在这里衷心地感谢全球的战友发来的各种的信息！全球的兄弟姐妹们与我同在的感觉真的是太棒了！由于各种信息太多太多了，我没办法一一回复，拜托战友们千万不要再发信息了，我们的心同在……现在我选出一个我们有代表性的战友的信息与大家分享万分的感谢。【敬爱的七哥好！<br/><br/>今天才是二月二龙抬头，我提前理发、沐浴更衣，素食静待这一天。由于前天突然把我们拉到一起让我激动的痛哭失态，控制不住，把当时写好的准备今天发给您的文字发过去了。<br/><br/>此时此刻我怀着虔诚而沉痛的心情焚香静默纪念娘的三周年冥诞日，缅怀她老人家光辉伟大人生。<br/>七哥你说你是有上天使命的，娘何尝不也是有上天的使命！在那样极其艰难困苦的年代，生活的重担在老娘瘦弱的肩上，在你幼小的心灵打下深深的烙印，放学回到家见不到娘就急忙跑去看井里，娘是否承受不住生活重担跳井了？在农村长大的我对那土井太熟悉了，井台有几块大石板，用超过井深长度的绳提着桶摇水，摇水不仅是体力活更是技术活，不会摇还摇不满桶呢。这生活中的点点滴滴潜移默化的教育着您，娘没有说教，娘身体力行，是你坚毅、执着、不弯腰、不屈服的性格源泉。人生第一位老师是父母，尤其是母亲，她给了我们血肉之躯，更是我们人生的启蒙师！可以想象您的待人接物坦诚做人“唯真不破”一定受娘的影响……说到坚毅，您三年前的戴孝留须的形象映在眼前，每次想起都激动万千泪流满面……娘走了，三年了……“想见音容空有泪，欲闻教诲杳无声”在此我深情纪念我慈祥善良伟大的娘，激励自己，坚定自己跟随七哥您去完成这人类历史上前所没有的伟大事业～爆料革命！拙文陋字是为娘冥诞三周年记<br/>听，七哥“七儿，干死这些狗日的！”<br/>我也听到了……娘说“七儿，你要多保重自己！让娘放心。”<br/><br/>老皮将<br/>给娘三叩首！！！ <br/>壬寅年二月二日】
 ![img](https://media.gettr.com/group12/getter/2022/03/04/02/924ff54b-7e04-d120-827a-d9cad74b5543/out.jpg)
-
----
-
-`@miles 3/4/2022 12:30 AM (UTC)`
-
-3/2/2022 Miles Guo: Even Singapore, the most pro-communist country,  does not support Russia, and anyone who supports Russia's invasion of Ukraine may receive a lifetime entry ban to Singapore; it is a stupid suicidal idea that the CCP asked the Chinese in Ukraine to stick China’s flag on their cars, which has endangered many Chinese<br/><br/>3/2/2022 文贵直播：即使最亲共的新加坡也不支持俄罗斯，任何支持俄罗斯入侵乌克兰的人都可能被终身拒绝入境；中共让在乌克兰的中国人往车上贴中共国旗，简直是一种愚蠢的自杀行为，已有多人因此受到伤害
-![img](https://media.gettr.com/group12/getter/2022/03/04/00/56b02972-d5c0-080c-9dce-c514bbe5f0e4/out.jpg)
 
 ---
 
