@@ -2,39 +2,27 @@
 ---
 
 
-## 马来西亚副部长表示，加密资产不具有货币特征
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2109850/)
+## 联通神灵的思想是权力绑不住的
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2109987/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：菜园子112～尕虎
+![](https://assets.gnews.org/wp-content/uploads/2022/03/503.jpg)图片制作：澳喜农场©森森
+你们的选择，我们的命运 论站队和交友，你们还赶不上以前的北洋政府和民国政府。一战和二战时，我们这个东方大国都是战胜国，这样的结果很显然都是拜当时的政府正确选择所赐。
 
-翻译/编辑：小红帽
+然而，五十年代的你们代表人民选择站队苏联抗击联合国军队，结果近百万个家庭痛失或者伤残了儿子、丈夫、父亲，而且那些武器装备弹药的钱，还迫使国人自己种地、交公粮、攒钱偿还给了苏联老大哥。而那些交公粮的人（我们的爷爷奶奶或者父亲母亲）却从没领过养老金，大多注定贫病而死，你们就这么作孽害民，还大言不惭自称伟光正！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Crypto_Assets.jpg)图片来源：www.iflr.com
+你们就不感到自责和羞愧吗？这一切是如何造成的，你们敢让人民评说吗？这一次，你们又代表我们做出来了选择，相信你们会被再次打脸和制裁的……但那怨谁呢？我是不会同情你们做你们的帮凶的，因为你们实在是太坑人了。坑完我爷爷奶奶父亲母亲现在你们又在坑我，而且你们显然希望继续坑我们的子子孙孙，你们这样做你们的良心不疼吗？你们能够扪心自问吗？这一切的悲剧和苦难，为什么会由你们亲手制造出来？这是为什么？
 
+你们代表不了我们。你们表达和显示出来的是你们的私欲和无耻。我鄙视你们，你们花我们的纳税钱去豢养一批毫无廉耻的“砖家”“叫兽”来给我们洗脑，我连一个标点符号都不信。
 
-据 Be In Crypto 3月4日报导，周四，马来西亚正式拒绝了加密货币可以表现出货币特征的想法。马来西亚副财政部长II Yamani Hafez Musa在Dewan Rakyat向国会议员Nurul Izzah Anwar（PH – Permatang Pauh）就政府在监管和监管货币方面的作用发表讲话时表示，加密货币不是一个适合该国的支付方法。
+我们比你们的眼光、智商都高，你们怎么骗的得了我们呢？你们自己醒醒：立地成佛，公正良善，放开对人民的思想的捆绑和束缚，让人们自由思考吧。
 
-Hafez在关于加密货币及其作为货币日益增长的用途和广泛性讨论时说：“比特币和以太坊等数字资产不适合作为支付工具，因为这些资产不具备货币的特征。原因是数字资产的状态会由于投机性投资而易受波动影响”。
+联通神灵的个人的思想是权力绑不住的。
 
-当被问及马来西亚政府是否有意创建数字货币时，鉴于国家银行参与了Dumbar项目–一项涉及使用区块链技术进行跨境资金转移的倡议。
+注：文章部分观点来自墙内网友
 
-根据Hafez的说法，马来西亚的中央银行也不相信（这会发生），因为中央银行不允许使用数字资产进行支付。
-
-1月，马来西亚中央银行曾表示正在测试中央银行数字货币（CBDC）的效率，并正在研究创建和采用加密货币的效用。
-
-“我们正在积极评估中央银行数字货币（CBDC）对马来西亚的价值主张，”一位银行代表表示，“虽然还没有做出发行中央银行数字货币的决定，但我们已通过证据将研究重点放在中央银行数字货币。如果未来需要发行中央银行数字货币，我们将通过概念和实验来增强我们的技术和政策能力。”
-
-文章来源：[Crypto Assets ‘Do Not Exhibit Characteristics of Money,’ Says Malaysia Deputy Minister](https://beincrypto.com/crypto-does-not-exhibit-money-characteristics-says-malaysia-deputy-finance-director/)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

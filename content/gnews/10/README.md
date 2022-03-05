@@ -2,33 +2,33 @@
 ---
 
 
-## 有声|韩国著名演员李英爱向乌克兰捐赠1亿韩元
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2109836/)
+## 2022/02/28 欧盟领空将禁飞所有俄罗斯飞机
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2109956/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据韩国媒体3月1日报道，韩国著名女演员李英爱向被俄罗斯入侵的乌克兰捐赠了1亿韩元，用于人道救助。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-05-0831045.jpg)
+**简评：**
 
-乌克兰驻韩大使特米特里·波诺玛林科，3月1日在推特上公开了李英爱给乌克兰人民捐赠的1亿韩元支票和一封信。
+欧盟主席宣布：有史以来第一次，欧盟将资助、购买、运送武器与设备给一个被侵略的国家—乌克兰。欧盟将对所有的俄罗斯飞机关闭领空，包括寡头们的私人飞机。欧盟将禁止克里姆林宫的媒体机器，‘Russia Today’和卫星媒体及其子公司将不再能够为普京的战争辩护。欧盟会张开双臂欢迎乌克兰人民。
 
-李英爱在信中写道，作为一位参与过战争的军人的家属，她比任何人都更能深刻地感受到战争的残酷。真心期盼乌克兰战争早日结束，迎来和平。希望乌克兰人民都能安然无恙，希望热爱和平和自由的乌克兰人民不要失去希望和勇气。
+GETTR视频链接：[https://gettr.com/post/pxj99f38e0](https://gettr.com/post/pxj99f38e0)
 
-波诺玛林科大使提到，李英爱的来信和捐款让他非常感动，这笔捐款将用于因俄罗斯入侵而成为受害者的人民。
+**视频字幕：**
 
-文字版原文：[韩国著名演员李英爱向乌克兰捐赠1亿韩元](https://gnews.org/zh-hans/2098848/)
+**欧盟主席：**有史以来第一次，欧盟将资助购买和运送武器与设备给一个受到攻击的国家，这是一个分水岭时刻。首先，我们对俄罗斯关闭欧盟领空。我们提议禁止所有俄罗斯拥有、注册、和控制的飞机。这些飞机将不再能够降落、起飞或飞越欧盟领空，包括俄罗斯法人或自然人拥有、包租或以其他方式控制的任何飞机。让我说得更清楚一些：我们领空将对所有俄罗斯飞机关闭，也包括寡头们的私人飞机。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+另外一个史无前例的措施是：我们将在欧盟禁止克里姆林宫的媒体机器。其国有媒体‘Russia Today’和卫星媒体及其子公司将不再能够为普京的战争辩护，分裂我们的联盟。我们张开双臂欢迎逃离普京轰炸的乌克兰人民，并且，我对欧洲人民给予他们的热情欢迎感到骄傲。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

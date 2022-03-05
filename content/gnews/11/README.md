@@ -2,27 +2,53 @@
 ---
 
 
-## 有声|NFSC新闻、G|TV新闻访谈简报|2022年3月2日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2109835/)
+## 2022/03/01 乌克兰儿童医院里的战争创伤
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2109953/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-05-0831042-1.jpg)
+**简评：**
+
+《天空新闻》Debrahane从前线报道，儿童医院里的战争创伤。
+
+儿童医院本来是一个安静的地方，但是战争破坏了这份平静。医护人员建立了一个临时急诊室，已有三名儿童被送过来，一个10岁的儿童死亡，另一个14岁的孩子接受了手术。医生们疲惫不堪，除了收治伤员，还有在战争爆发之前就住进医院的重症儿童。年仅4岁的尼加塔患有唐氏综合症和白血病，需要化疗和输血。为了安全，他母亲抱着他穿梭于病房和地下室。她想带着尼加塔离开乌克兰，但是几乎不可能，不但要穿越边境，还要有医生陪同。如果没有及时的医疗，尼加塔会有生命危险。随着俄罗斯军队逼近首都，其他儿童同样在战区中要与疾病作斗争。
+
+GETTR视频链接：[https://gettr.com/post/pxw15d0c02](https://gettr.com/post/pxw15d0c02)
+
+**视频字幕：**
+
+**《天空新闻》****Debrahane****：**儿童医院里的战争创伤。这名男孩在俄罗斯军队向乌克兰首都推进时被枪弹击中。年仅14岁的他遭受了脸部、背后和腿部的伤痛。三天前的晚上，他接受的治疗是个小手术。因俄罗斯的入侵，医护人员建立了一个临时急诊室，到目前为止已有三名儿童被送过来，其中包括一名10岁的儿童在运送途中死亡。
+
+**Head of emergency unit: Dr. Andrey Vysotskyi****：**这里本是一个安静的地方，应该只有孩子和既定的手术计划。而现在……一瞬间都改变了。两天前，我们的街区周围有枪战、炮战等等，但是这个夜晚有些寒冷，世界改变了优先顺序。现在冲个澡，喝杯咖啡都是奢侈。
+
+**Debrahane****：**他几乎没怎么睡觉，除了准备治疗战争中的伤员外，他和他的同事们还有其他同样重要的工作要做。在急诊室里，医生们都很疲倦。他们担心会有更多的病人涌入，他们还担心在战争发生之前就住进医院的重病儿童。
+
+**患儿母亲：**灯光被熄灭是因为我们不想让外面看到这里有人。
+
+**Debrahane****：**年仅四岁的尼加塔患有白血病。他接受了化疗和输血，而且他还患有唐氏综合症。
+
+**患儿母亲：**按照通常的情况，孩子不应该被安置在过道上。
+
+**Debrahane****：**你听见的噪音是孩子磨牙的声响，自从俄罗斯导弹落下就开始了。这里本该是这个孩子进行治疗的地方，但他的母亲不得不穿梭于地下室与地面上下，那里对他们来说相对安全。很抱歉，应对这一切，你有什么样的感受？
+
+**患儿母亲：**手和腿都在颤抖，就像每天在健身房里，上上下下抱着孩子和包裹走1万米一样。
+
+**Debrahane****：**她想带孩子离开这个国家，但是太难了。
+
+**患儿母亲：**我们的孩子在没有医院、医疗治疗的情况下就无法生存，哪怕就几天。如果我们要去到另一个国家，我们得穿越边境，而且还要有医生。
+
+**Debrahane：**这不是唯一的情况。随着俄罗斯军队逼近首都，其他儿童受到同样残酷的打击，在战区中与威胁生命的疾病作斗争。
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年3月2日早](https://gnews.org/zh-hans/2096095/)
+编辑：【英国伦敦喜庄园编辑部】
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
