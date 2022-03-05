@@ -2,8 +2,8 @@
 ---
 
 
-## 习近平和普京最大痛苦是什么
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2109855/)
+## 普京代表不了所有俄国人
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2109961/)
 
 台灣寶島農場
 

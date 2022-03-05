@@ -2,26 +2,27 @@
 ---
 
 
-## 视频|二十多名华人命丧乌克兰 中共秘而不发
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2109690/)
+## 有声|中共对台湾的侵略将引发浩劫
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2109832/)
 
-制作：香草山视频部
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+爆料革命一路走来，郭文贵先生的情报一次又一次地得到验证。俄罗斯在西线制造乌克兰危机，是配合中共在东线对台湾的动手。又是郭先生早早把习近平和普京二人合演的这台大戏，提前剧透了内幕，把这场危机的实质提前报告给了世人。 现在郭先生再一次发出警报，中共侵台战争随时爆发。中共对台湾的大冒险不仅会给台湾人民带来深重的灾难，也同样会让中共自身走向房倒屋塌、自取灭亡的可悲下场。
 
-3月2日，郭文贵先生在大直播中透露，中共驻乌克兰大使馆当天早间的密电显示，截止目前，超过二十名在乌中国同胞已经在乌克兰战争中死亡。
+文字版原文：[中共对台湾的侵略将引发浩劫](https://gnews.org/zh-hans/2090072/)
 
-郭先生提到，这些中国同胞可能的死亡原因是被流弹击中车辆，从而导致几乎尸迹全无。经多方查证，这些死者大多是在乌克兰和罗马尼亚做服装生意的商人。但中共内部对此严令禁止，不许任何媒体报道相关事件。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-早在俄乌战争刚刚打响之际，乌克兰当地各国使领馆立即安排其侨胞撤离，但只有中共使馆反应迟缓且毫无措施。据郭先生爆料，虽然中共驻乌克兰大使曾声称会包机撤侨，但实际被撤离的只有中共高官及其在乌克兰的亲属和朋友。至于普通华侨的撤离则被中共使馆以安全为借口一拖再拖。如今，中共非但不撤侨、不救助，还在故意封锁在乌遇难同胞的消息。
-
-对此，郭先生在直播中再次提醒所有在乌华人和各国友人，新中国联邦和法治基金正在与国际救援组织合作，启动国际人道救援行动。请仍身处乌克兰且需要救援的新中国联邦战友及其家人，在乌华人和各国友人尽快与我们联系。
-
-发稿：林礼
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

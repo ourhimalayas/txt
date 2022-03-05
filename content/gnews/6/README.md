@@ -2,8 +2,8 @@
 ---
 
 
-## 所有在乌克兰的华人都是我们救助对象
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2109801/)
+## 习近平和普京最大痛苦是什么
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2109855/)
 
 台灣寶島農場
 

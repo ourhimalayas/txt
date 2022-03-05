@@ -2,24 +2,45 @@
 ---
 
 
-## 英国官方数据：新冠疫苗接种者病亡率爆升
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2109449/)
+## 联合国大使表示，美国不会动用美军在乌克兰建立禁飞区
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2109490/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-53.jpg)
-图片来源： 网络图片合成
+**评论：***普京及其克林姆林宫的追随者认为，乌克兰与北约的日益融合是他们无法容忍的，用谎言编织了借口后，悍然对一个民主国家发动了入侵，以期待通过动用武力来重建平衡。普京暗示使用核武器威胁的疯狂言论，表明他想毁掉的不仅是乌克兰，而是全世界。西方热爱自由民主的国家，显示你们力量和决心的时刻到了，只有你们才是全地球村的希望！*
 
-乌克兰战火纷飞的同时，一场不见硝烟、却死伤更甚的灾难正愈演愈烈。据英国The Exposé网文章，[英国卫生安全局（UKHSA）每周发布的新冠疫情数据](https://mybank.icbc.com.cn/icbc/newperbank/account/electricbillRemit.jsp?dse_sessionId=BZFWATBAIUCJAIGBGCIRATEUIWAYDCGTDSDGCVJV&amp;requestTokenid=1646447088204-1479356184&amp;isICBCEbill=1&amp;remiticon4freeofcharge=0&amp;shoufukuanFlag=1&amp;ebillFlagForWater=1&amp;huashangFlag=1https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1057599/Vaccine_surveillance_report_-_week-8.pdf)显示，当地新冠疫苗的未接种者死亡率逐减的同时，2针和3针接种者死亡率爆增，完全接种者比未接种者呈现出了更高死亡率。
+据《CNN》 作者：[Kylie Atwood](https://www.cnn.com/profiles/kylie-atwood) and [Devan Cole](https://www.cnn.com/profiles/devan-cole)，2022年2月27日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-405-e1646458438716.png)美国驻联合国大使琳达·托马斯·格林菲尔德
+图片来源：CNN
+琳达·托马斯·格林菲尔德周日在“国情咨文”节目中告诉CNN的达纳·巴什，拜登政府“已经明确”美国不会“采取行动”。
 
-数据显示，2021年11 月 22 日至2022 年 2 月 20 日的8周期间，对比最近4周与前4周的死亡病例数，未接种者的死亡减少了 37%，接种者死亡却增加了 48%。2 月 24 日报告第41页数据显示，至2月20日的最近4周里，新冠死亡病例中高达9/10为2针接种者，4/5为3针接种者（见上图）。对比英格兰的新冠疫苗接种率，至2022年2月28日为止完全接种者为73.5%，加强针接种者为56.9%（[Our World in Data数据](https://mybank.icbc.com.cn/icbc/newperbank/account/electricbillRemit.jsp?dse_sessionId=BZFWATBAIUCJAIGBGCIRATEUIWAYDCGTDSDGCVJV&amp;requestTokenid=1646447088204-1479356184&amp;isICBCEbill=1&amp;remiticon4freeofcharge=0&amp;shoufukuanFlag=1&amp;ebillFlagForWater=1&amp;huashangFlag=1英格兰)）。不难看出，2针和3针接种者比未接种者呈现出了更高的死亡率。
+她说：“我们不会将美国军队置于危险之中，但我们将与乌克兰人合作，让他们有能力保护自己。”
 
-包括美国在内的世界多国卫生官员都曾宣称，[新冠疫苗虽然无法阻止奥米克戎变种的感染或传播，但可以防止住院和死亡](https://mybank.icbc.com.cn/icbc/newperbank/account/electricbillRemit.jsp?dse_sessionId=BZFWATBAIUCJAIGBGCIRATEUIWAYDCGTDSDGCVJV&amp;requestTokenid=1646447088204-1479356184&amp;isICBCEbill=1&amp;remiticon4freeofcharge=0&amp;shoufukuanFlag=1&amp;ebillFlagForWater=1&amp;huashangFlag=1https://www.audacy.com/kmox/news/national/cdc-director-says-vaccines-are-not-preventing-transmission)，但现实数据与他们宣传的“高达 95% 的防护效果”，看来相去甚远。
+托马斯·格林菲尔德还说，当被问及针对俄罗斯能源部门的制裁时，美国 “正在继续研究这个问题”，到目前为止还没有发生。
 
-**新闻来源：**
+“我们正随着俄罗斯方面的加强而加强，所以会有更多的事情发生。虽然能源不在目前的公告中，但这并不意味着它不在桌面上，但我们也想尽一切可能保护我们自己的经济免受其影响。”这位大使补充说。
 
-1.  [Whilst you’ve been distracted by Russia’s Invasion, the UK Gov. released a Report confirming the Fully Vaccinated now account for 9 in every 10 Covid-19 Deaths in England](https://dailyexpose.uk/2022/03/01/russia-distraction-uk-gov-revealed-triple-vaccinated-account-9-in-10-covid-deaths/)
+上周六，白宫与欧盟委员会、法国、德国、意大利、英国和加拿大一起宣布，他们将把某些俄罗斯银行从SWIFT（连接全球数千家金融机构的高安全性网络）驱逐出去。
 
-2.  [Official data: Fully vaccinated people account for 9 of 10 COVID deaths](https://www.wnd.com/2022/03/official-data-fully-vaccinated-people-account-9-10-covid-deaths/)
+这位大使还告诉巴什，在军事法庭上以战争罪审判俄罗斯人也是“在讨论中”。
+
+乌克兰指责俄罗斯在袭击平民目标时犯下了战争罪，并呼吁莫斯科面对军事法庭。俄罗斯表示，其部队只针对军事设施，没有打击居民区。
+
+托马斯·格林菲尔德还谴责俄罗斯总统弗拉基米尔·普京将其国家的核力量置于高度警戒状态的决定，他在周日说，他“正在继续以完全不可接受的方式使这场战争升级”。
+
+普京的决定在周日也受到了白宫新闻秘书珍·普萨基的批评，她告诉美国广播公司新闻，这是克里姆林宫无端升级和“制造威胁”的更广泛模式的一部分。
+
+文章来源：[https://www.cnn.com/2022/02/27/politics/russia-ukraine-no-fly-zone-linda-thomas-greenfield-cnntv/index.html](https://www.cnn.com/2022/02/27/politics/russia-ukraine-no-fly-zone-linda-thomas-greenfield-cnntv/index.html)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 轰炸机
+评论：洛杉矶盘古农场 – Wendy
+编辑：洛杉矶盘古农场 – Wendy
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
  
 
