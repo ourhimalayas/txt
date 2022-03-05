@@ -2,28 +2,49 @@
 ---
 
 
-## 俄罗斯违反停火协议，乌克兰暂停相关平民疏散行动
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2111649/)
+## 俄罗斯商人悬赏100万美元捉拿弗拉基米尔·普京
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2111729/)
 
-#### 撰稿：彩虹 
+据《Fox Business》记者：Kyle Morris， 2022年3月3日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-448-e1646497466560.png)俄罗斯总统弗拉基米尔·普京于2021年10月30日星期六在俄罗斯莫斯科通过视频会议出席G20峰会时发表讲话。
+图片来源：Evgeniy Paulin/Sputnik，美联社/美联社新闻室
+有传言称普京正考虑在俄罗斯宣布戒严令。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-447.png)图片来源：卫报
-根据《国会山报》3月5日引述美联社的最新报道，乌克兰正在暂停东南部城市马里乌波尔（Mariupol）的平民疏散工作，乌克兰官员表示，俄罗斯违反了其宣布的关于马里乌波尔和东部城市沃尔诺瓦哈（Volnovakha）的停火协议。
+一名俄罗斯出生的商人愿意支付100万美元，给在入侵乌克兰期间，逮捕俄罗斯总统弗拉基米尔·普京的官员。
 
-据美联社报道，乌克兰总统办公室副主任基里洛·季莫申科（Kyrylo Tymoshenko）说：“俄罗斯方面没有遵守停火协议，继续向马里乌波尔本身及其周边地区开火。与俄罗斯联邦的谈判正在进行中，内容涉及建立停火和确保安全的人道主义走廊。”
+俄罗斯公民和企业家亚历克斯·科纳尼欣（Alex Konanykhin）在社交媒体帖子中宣布，赏金将支付给遵守“宪法义务”和“根据俄罗斯和国际法将普京作为战犯逮捕”的军官。
 
-马里乌波尔市副市长谢尔盖·奥尔洛夫（Serhiy Orlov）也告诉BBC，由于停火协议已经被（俄罗斯方面）破坏，居民不能离开。
+“普京不是俄罗斯总统，因为他上台是通过炸毁俄罗斯公寓楼的特别行动上台的，然后通过取消自由选举和谋杀他的反对者违反了宪法，”科纳尼欣写道，“作为俄罗斯族和俄罗斯公民，我认为促进俄罗斯去纳粹化是我的道义责任。我将继续帮助乌克兰英勇地抵抗普京奥尔达（Orda）的冲击。”
 
-奥尔洛夫说：“俄罗斯人说正在继续轰炸我们，并使用了大炮，这很疯狂。在马里乌波尔没有停火，沿途也没有停火。我们的平民已经准备好逃跑，但他们在炮击下无法逃脱。”
+翻译成英语，俄语单词“Orda”的意思是“部落”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-449.png)2022年3月2日，俄罗斯在乌克兰哈尔科夫发动导弹袭击后受损的地区警察局大楼。
+图片来源：乌克兰国家紧急服务处/讲义/阿纳多卢机构，Getty Images
+最初，科纳尼欣的社交媒体帖子包括一张普京的照片，标题是：“通缉：死或生。弗拉基米尔·普京大屠杀。”
 
-根据报道，早些时候，俄罗斯国防部在一份声明中说，它和乌克兰军队就平民从马里乌波尔和沃尔诺瓦哈撤离的路线达成了一致，在这些地区临时停火。
+“如果有足够多的人发表类似声明，可能会增加普京被捕并被绳之以法的机会。”科纳尼欣告诉《商业内幕》，并指出：“他自1992年以来就没有访问过俄罗斯。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-450-e1646497542315.png)2022年2月25日，星期五，乌克兰军人在乌克兰基辅一架被击落飞机的碎片上行走。
+图片来源：Oleksandr Ratushniak/美联社照片
+根据Vice的说法，科纳尼欣曾一度身价3亿美元。他现在与苹果联合创始人史蒂夫沃兹尼亚克一起出现在电视连续剧“独角兽猎人”中。
 
-根据联合国难民机构的数据，自2月24日以来，约有130万乌克兰人逃离。
+据报道，一些俄罗斯公民在传闻宣布戒严之前开始逃离该国。
 
-**新闻来源**
+本周早些时候，俄罗斯官方审查机构发布了指导，要求新闻网络仅使用“可信”来源，否则将受到关闭的处罚，这导致两个独立的新闻网络关闭，其中包括 Dozhd TV（英文称为 Rain TV）。
 
-[Ukraine pauses civilian evacuations, says Russia broke cease-fire](https://thehill.com/policy/international/596983-ukraine-pauses-civilian-evacuations-say-russia-broke-cease-fire)
+文章来源：[https://www.foxbusiness.com/politics/russian-businessman-puts-up-1-million-bounty-for-arrest-of-vladimir-putin](https://www.foxbusiness.com/politics/russian-businessman-puts-up-1-million-bounty-for-arrest-of-vladimir-putin)
+
+翻译：洛杉矶盘古农场 – Raul
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
  
 

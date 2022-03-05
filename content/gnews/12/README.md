@@ -2,40 +2,58 @@
 ---
 
 
-## 面对核设施遭袭击，在乌克兰设立禁飞区的呼声有增无减
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2111595/)
+## 接种疫苗的人持有未接种疫苗的人不值得信任和不聪明的偏见
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2111686/)
 
-#### 撰稿：彩虹       
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-446.png)图片来源：雅虎
-3月4日，《国会山报》报道，为帮助抵御俄罗斯的攻击，越来越多的美国议员和乌克兰官员恳请拜登政府及其盟友在乌克兰领空设立禁飞区。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-报道说，乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelensky）和其他乌克兰官员表示，自俄罗斯大约两周前开始入侵以来，禁飞区是他们向盟国提出的一个关键要求。支持者认为，禁飞区将切断俄罗斯的空中支援，减弱俄罗斯军队向基辅的推进，并拯救无辜乌克兰人的生命。
+尽管大量的数据证明，接种试验性的COVID-19病毒疫苗既不能预防感染，也不能减少死亡，接种疫苗会导致严重的副作用，心肌炎、癌症、白血病和血栓等大量增加。然而，劝说人们不要接种试验性的COVID-19病毒疫苗总是一件非常困难的事情。这可能会令人困惑，甚至觉得不可理愈！
 
-现实是，拜登政府官员一直明确表示，设立禁飞区是不可能的，因为有可能产生危险的连锁反应。
+丹麦Aarhus大学政治学系Alexander Bor、Frederik Jørgensen、Michael Bang Petersen等人2月18日发表论文《[Prejudice Against the Vaccinated and the Unvaccinated During the COVID-19 Pandemic: A Global Conjoint Experiment](https://psyarxiv.com/t2g45/download)》的调查结论，给出了答案，告诉我们为什么劝说别人不要打疫苗怎么这么难！
 
-周四，白宫新闻秘书詹·普萨基（Jen Psaki）告诉记者说：“这不是总统愿意采取的步骤，也不是我们有兴趣采取的步骤，原因是禁飞区需要被执行到位，这基本上是要美国军队击落俄罗斯飞机，并促使与俄罗斯发生潜在的直接战争，而这正是我们想要避免的。”
+接种过试验性的Covid-19病毒疫苗的人对拒绝接种的其他人持负面看法！而那些拒绝接种疫苗的人并没有降低对接种过疫苗的人的评价！
 
-但是，在乌克兰扎波罗热（Zaporizhzhia）核设施周四遭到俄军袭击之后，在乌克兰设立禁飞区的呼声却有增无减。
+这项研究是收集了2021年12月3日至2022年1月28日期间，包含阿根廷、澳大利亚、奥地利、巴西、中国、丹麦、法国、德国、匈牙利、印度、印度尼西亚、意大利、马来西亚、墨西哥、摩洛哥、罗马尼亚、俄罗斯、南非、西班牙、英国和美国等21个国家/地区，涵盖全球六个有人居住的大洲10,740名受访者。
 
-在核电站遭到袭击后，空军国民警卫队飞行员亚当·金辛格（Adam Kinzinger）众议员在推特上说：“这是一个很好的时刻，我应乌克兰政府的邀请，再次呼吁设立禁飞区。我担心如果这种情况继续下去，我们将不得不以更为扩大的方式进行干预。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Figure-1-Map-of-countries-included-in-our-study.jpg)
 
-而在参议院军事委员会任职的参议员罗杰·威克（Roger Wicker）本周也告诉《赫芬顿邮报》（HuffPost），应该“认真考虑设立禁飞区”。
+样本故意排除了尚未向公众广泛提供covid-19疫苗的最贫穷国家。研究者从每个国家招募500名成年受访者，对年龄、性别和居住地区以及特定国家的教育进行配额抽样，样本反映了超过58%世界人口的态度。
 
-文章说，禁飞区是用来禁止敌方飞机在某一地区飞行并对民众进行攻击。这种战术在冷战后的时代已经使用过几次，最引人注目的是1990年代在伊拉克，以防止对该国北部的库尔德人和该国南部的什叶派穆斯林的袭击。
+调查的参与者被展示了一个虚构的个人肖像，包括他们的年龄、职业、性格和疫苗接种状况。
 
-前国防部长莱昂·帕内塔（Leon Panetta）说，他认为目前没有必要设立禁飞区，认为华盛顿在冲突中的主要任务是向乌克兰提供军事援助。然而，他告诉《国会山报》，也不应该把禁飞区的选项排除掉。
+研究人员发现，接种疫苗的人持有未接种疫苗的人不值得信任和不聪明的刻板印象，也就是接种疫苗的人抱有对未接种疫苗群体为类似异常群体反感类似的偏见。
 
-帕内塔说，执行一个全国性的禁飞区要比执行一个严格用于空运的有限区域需要花费更多的努力。
+当研究人员询问一个已接种疫苗的人，如果一个近亲要嫁给一个反疫苗者，他们是否会高兴或支持时，在接受过调查的人中，整体支持率比正常下降了13%，接种疫苗的人甚至更愿意看到近亲嫁给中东移民而不是没有注射疫苗的人。
 
-前驻俄罗斯国防武官凯文·瑞安(Kevin Ryan)退役准将则说，在目前的环境下，禁飞区可能会对乌克兰产生负面影响，因为它已经从使用无人机和飞机中受益。不过，瑞安确实建议，美国和北约可以在俄罗斯军队尚未抵达的该国西部地区建立禁飞区。
+而与之相反的是，那些拒绝接种疫苗的人，并没有降低对那些期望通过打covid-19病毒“疫苗”而寻求保护的人的评价。
 
-他说：“这可能是你可以做的事情，这将避免与俄罗斯人直接对抗的风险，因为他们没有真正在那里飞行。并且它还将提供一种保护，乌克兰不会将其视为对其在该国东部地区发生的战斗中使用无人机和飞机的侵犯。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Figure-2-The-average-level-of-antipathy-towards-vaccination-outgroups.jpg)
 
-**新闻来源**
+整体而言，接种过Covid-19病毒疫苗的人对拒绝接种疫苗的其他人持负面看法，认为他们不够聪明和不值得信任！
 
-[Debate over Ukraine no-fly zone heats up](https://thehill.com/policy/defense/596942-why-the-us-and-nato-refuse-to-declare-a-no-fly-zone-for-ukraine?rl=1)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Figure-3-The-role-of-the-three-proximate-outcomes.jpg)
+
+在不同的国家，这种表现有较大差异，比如，澳大利亚、中共国和英国，接种疫苗人群对未接种疫苗人群的偏见相对更为严重。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Figure-4-The-relationship-between-country-level.jpg)
+
+研究人员说，在短期内，对未接种疫苗者的偏见可能会使大流行管理复杂化，从长远来看，这可能意味着社会离开这场大流行的时候比COVID-19病毒大流行前更加分裂。
+
+难怪法国总统[埃马纽埃尔·马克龙 (Emmanuel Macron)在回答《巴黎人-今日在法国》（Parisien – Aujourd’hui en France）的七位读者的问题](https://www.leparisien.fr/politique/europe-vaccination-presidentielle-emmanuel-macron-se-livre-a-nos-lecteurs-04-01-2022-2KVQ3ESNSREABMTDWR25OMGWEA.php?utm_campaign=twitter_partage&amp;utm_medium=social&amp;utm_source=POLITICO.EU&amp;utm_campaign=972839f9f0-EMAIL_CAMPAIGN_2022_01_05_05_13&amp;utm_medium=email&amp;utm_term=0_10959edeb5-972839f9f0-190118357)时表示，拒绝接种Covid-19疫苗的人“不是公民”，发誓要让他们的生活变得悲惨。尽管他不会把未接种疫苗的人送进监狱，不会强制他们接种疫苗，但从1月15日起，不打疫苗的人将不能再去餐厅吃饭，不能去咖啡厅，不能去剧院，电影院……从1月15日开始，法国人进入餐厅、酒吧、剧院和其他室内场所将需要Covid-19疫苗护照（Covid passport），前往法国的游客必须通过数字护照（digital passport）出示疫苗接种证明或Covid-19阴性测试。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Emmanuel-Macron.jpg)
+
+参考资料：
+
+[Prejudice Against the Vaccinated and the Unvaccinated During the COVID-19 Pandemic: A Global Conjoint Experiment](https://psyarxiv.com/t2g45/download)
+
+[Europe, vaccination, présidentielle… Emmanuel Macron se livre à nos lecteurs](https://www.leparisien.fr/politique/europe-vaccination-presidentielle-emmanuel-macron-se-livre-a-nos-lecteurs-04-01-2022-2KVQ3ESNSREABMTDWR25OMGWEA.php?utm_campaign=twitter_partage&amp;utm_medium=social&amp;utm_source=POLITICO.EU&amp;utm_campaign=972839f9f0-EMAIL_CAMPAIGN_2022_01_05_05_13&amp;utm_medium=email&amp;utm_term=0_10959edeb5-972839f9f0-190118357)
+
+[Vaccinated people despise those who refuse to get the jab – but the opposite is not true, study reveals](https://www.dailymail.co.uk/news/article-10537241/Vaccinated-people-feel-antipathy-refuse-Covid-19-jab-survey-shows.html)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

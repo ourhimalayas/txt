@@ -2,36 +2,36 @@
 ---
 
 
-## 来自波兰前线的现场照片
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2111655/)
+## 特鲁多：不希望看到俄乌冲突升级
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2111730/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-图片来源：前线战友
+整理：围剿维尼熊
+编辑：wenly
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/B3D686E9-AF87-48DC-9947-6C74F9763F42.jpg)
-
-
-在救援的前线， 在波兰的基地的战友发来了现场的照片。
-
-大批的难民从乌克兰逃出来， 他们都是老人， 妇女，儿童。 他们无奈， 恐惧和对未来的不确定都写在他们的脸上。
-
-战争从来没有正义， 战争的受害者永远是老百姓。 我们新中国联邦人是热爱和平的人， 是乐于帮助别人的人。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/DE4C83E5-25A0-4A23-A7D2-AD8D5D5E95AE.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-353.png)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/C8416132-2D02-494C-8178-3BA43E67F1A3.jpg)
+
+图片来源：雅典娜设计组
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/D3C64392-1352-474B-BCE6-3163364DA0DE.jpg)
+加拿大总理特鲁多（Justin Trudeau）今天表示，加拿大政府不希望看到俄乌战争升级，因为这将使北约部队在东欧与俄罗斯发生“直接冲突”。
 
+加拿大广播公司新闻网（CBC News）报导，特鲁多在安大略省密西沙加市（Mississauga）告诉记者，加拿大及盟国着重在让俄罗斯经济受重击作为侵乌代价，但不会在乌克兰上空建立禁飞区。
 
-救援人员已经陆续到位， 还有大部队在赶往救援的路上。
+北约若实施禁飞区，代表北约战机将部署到乌克兰领空以阻止俄罗斯空军入侵，势必导致北约与俄军直接交战，冲突急剧恶化。
+参考链接：[杜魯多：加拿大和北約要避免與俄直接衝突](https://udn.com/news/story/122699/6142662?from=udn-catebreaknews_ch2)
 
-前方的战友们， 祝愿你们一切安好， 早日凯旋。
+*发布：*星谕
 
-编辑发表： Shuizhuyu
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
