@@ -2,30 +2,24 @@
 ---
 
 
-## 俄乌危机将以习普消亡为终
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2111453/)
+## 一名俄罗斯高级将领在战争中死亡
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2111454/)
 
-作者：纽约磐石农场 在远方
+作者：纽约香草山农场 Naughty（文行）
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据了解，该高级将领被证实是苏霍维茨基少将，他是俄罗斯中央军区第41合成军的副司令员。虽然俄罗斯官方尚未向外界透露苏霍维茨基的死讯，但俄罗斯伞兵空降部队联盟的一名士兵在社交媒体平台上确认，苏霍维茨基已经在一次侵略乌克兰的特别行动中死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-05-at-9.32.10-PM.png)
+有评论指出，苏霍维茨基副司令的阵亡于俄罗斯而言将是一次关键性的打击，但这将极大地提升乌克兰军队的士气。
 
+目前，俄罗斯克里姆林宫官方公布的数据显示，俄军在近期的交火中损失了498名士兵，还有约一千六百人受伤。但乌克兰武装部队却表示，根据当地收集的数据，俄罗斯军队在此次武装冲突中已经有大约九千人伤亡。
 
-在3月2日的大直播中，郭文贵先生揭秘了普京和习近平二人的现实状态，以及俄中已经和即将发起的两场战争的结局，即其终将以普习二人被消灭而结束。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-05-at-11.14.56-PM.png)
-郭先生透露，普京和习近平周遭的人全靠欺瞒二人获利，而对这二人有致命威胁的也是这些身边人。尤其当西方将俄罗斯剔出SWIFT系统之时，普京身边的既得利益者大多都感到愤怒和绝望。
+参考链接：[Russian general killed in Ukraine in ‘major demotivator’ to invading forces, per report](https://www.marca.com/en/lifestyle/world-news/2022/03/03/62213b1a268e3eeb428b459a.html)
 
-另一方面，郭先生还提到，眼下的俄乌战争改写了所有政治的本质：演员出身的泽连斯基通过战争，转变成为一名伟大的领袖——这也是普京和习近平最大的痛苦来源。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-至于现在的俄乌战争和中共可能对台湾的侵略，郭先生指出，将有很多的俄罗斯人和中国人被普习一同绑上战车。如今，中共依靠洗脑，让墙内无知的民众为俄罗斯的侵略叫好，其还不断威胁台湾，而这些行为都将把中国人置于一场非正义的惨烈战争中。
-
-但郭先生也补充道，台湾人已经被乌克兰所鼓舞，纷纷表示将会誓死保卫自己的祖国。为此，俄罗斯和中共的这两场战争一定会导致普习两个独裁者被消灭。
-
-参考链接：[3/2/2022 Miles Guo: Putin and Xi Jinping are living in their dreams.](https://www.gettr.com/post/pxvp38414a)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-3.png)
-
-编辑：静言
+编辑：Ivy001
 总编：Irene木木
-审核：Irene木木
+审核：Ivy001
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
