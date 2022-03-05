@@ -2,38 +2,29 @@
 ---
 
 
-## 乌克兰前沿每日报道
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2108630/)
+## 俄乌战争｜白宫考虑减少俄罗斯能源进口 并确保全球能源稳定供应
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2108816/)
 
-整理：奔跑吧黄小鸭
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-21.jpg)3月4日，乌克兰总统泽连斯基通过Zoom会议的方式向欧洲多国民众发表视频讲话（图片来自https://www.rfi.fr/cn）
-基辅时间3月5日，俄罗斯入侵乌克兰已进入第十天，以下是最新的相关消息
+**撰文/ 港台前线｜发布日期/ 05/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-12.png)更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
+白宫周五表示，拜登政府正在考虑削减美国对俄罗斯石油的进口，以及如何最大限度地减少对全球供应和消费者的影响。
 
-**俄乌前沿最新动态**
+美国众议院议长南希佩洛西及其他部分议员希望美国完全禁止这些进口产品。白宫经济顾问委员会主席塞西莉亚·劳斯 (Cecilia Rouse)在简报会上强调，减少美国对俄罗斯能源的依赖，最重要的是确保全球能源的稳定供应。
 
-- 美国五角大楼认为，自入侵开始以来，俄罗斯已经发射了 500 多枚导弹，俄罗斯 92% 的战斗力量现在都在乌克兰境内；俄军仍在基辅城外约 25 公里处和距离切尔尼戈夫和哈尔科夫市中心约 10 公里处；敖德萨东北部的 Mykolaiv 发生了战斗；南部赫尔松仍在发生激烈战斗；莫斯科打算从北部和海岸包围马里乌波尔
-- 根据美国的评估，对扎波罗热核电站的袭击表明俄罗斯入侵的“鲁莽”，国际监测人员称没有释放放射性物质，该工厂是安全的
-- 西方官员说，至少三名俄罗斯指挥官在靠近前线后被打死。他们说，第 41 联合军种集团军副司令被狙击手击毙。一名师长和一名团长也被打死
-- 乌克兰网络安全当局表示，乌克兰政府和基础设施网络正面临着持续不断的网络攻击，公民和官员现在成为目标。在入侵开始时，数字部成立了“乌克兰 IT 军队”，该军队一直在对俄罗斯目标进行网络攻击，包括试图破坏交通和电力网络。军队的 Telegram 组现在有 270,000 名成员，实际上可能有多达 400,000 名黑客在网上为乌克兰而战
-- 乌克兰政府表示将发行不可替代的代币（NFT），以资助其军队保卫国家免受俄罗斯入侵。NFT 是一种可以有价值但没有有形形式的数字资产。同一周，乌克兰通过出售战争债券筹集了超过 2 亿英镑
-- 乌克兰和俄罗斯之间的第三轮会谈定于本周末举行。到目前为止，谈判并没有太大的突破
-- 俄罗斯已禁止 Facebook 并阻止访问 Twitter 和 YouTube。Facebook 的母公司 Meta 表示，它也拥有的 Instagram 和 WhatsApp 仍在运作。普京签署了一项法案，惩罚传播有关俄罗斯武装部队的“虚假”信息，最高可判处 15 年监禁
-- 在芬兰与俄罗斯的边境口岸 Vaalimaa，一些俄罗斯人开始急于离开俄罗斯，有传言称普京政府可能很快就会出台戒严令来应对反对入侵乌克兰的示威活动
+白宫新闻秘书 Jen Psaki 周五表示“我们正在寻找减少进口俄罗斯石油的方法，同时确保我们维持现有的全球供应需求。”避免限制俄罗斯石油，导致美国、国外汽油价格飙涨，损害消费者利益。
 
 
-**美欧国家最新动态**
 
-- 北约秘书长延斯·斯托尔滕贝格排除在乌克兰设立禁飞区的呼声。乌克兰总统泽连斯基指责西方领导人知道俄罗斯对乌克兰的侵略可能会增加，仍授予普京继续轰炸的许可证。西方官员认为，禁飞区将迫使北约与俄罗斯交火，可能引发第三次世界大战
-- 美国参议员林赛格雷厄姆周四在推特上发布暗杀普京的呼吁后，引发了俄罗斯的愤怒。美国国务卿布林肯接受 BBC新闻采访时表示这不是美国政府的立场，他相信乌克兰能够赢得与俄罗斯的战争，美国不会寻求莫斯科的政权更迭，他呼吁俄罗斯人民让他们自己的领导层对这场战争负责
-- 伦敦大都会警察局表示，其战争罪小组正在收集与乌克兰涉嫌战争罪有关的证据。任何证据都可以与国际刑事法院对乌克兰战争罪行的调查共享。他们呼吁，自 2013 年 11 月 21 日以来，英国境内任何可能拥有乌克兰战争罪行直接证据的人，包括任何受害者或证人都在取证的有效范围内
-- 随着欧盟制裁开始生效，意大利警方在北部因佩里亚港查获了一艘价值 2700 万美元的游艇，该游艇由普京的亲密盟友俄罗斯首富阿列克谢·莫尔达索夫拥有。与普京关系密切的寡头根纳季·蒂姆琴科拥有的另一艘游艇已在同一个港口被扣押。他们是周一受到欧盟制裁的 680 名个人和 53 个实体中的一员
-- 世界银行集团表示，它准备本月向乌克兰发放 7 亿美元的贷款。该银行指出，“在包括荷兰和瑞典在内的双边伙伴的担保下，贷款增加了”
-- 联合国难民事务高级专员表示，有“大量的人潮”从乌克兰边境涌入邻国。到目前为止，乌克兰难民的总数“正在迅速接近 150 万”并且“迅速升级”
+> U.S. weighs cutting Russian oil imports amid broad public support [https://t.co/4LE98DLRDw](https://t.co/4LE98DLRDw) [pic.twitter.com/BOTHnbMKQ9](https://t.co/BOTHnbMKQ9)
+> — Reuters (@Reuters) [March 5, 2022](https://twitter.com/Reuters/status/1499908879483904001?ref_src=twsrc%5Etfw)
 
 
-参考链接：
 
-[War in Ukraine – BBC News (www-bbc-com.translate.goog)](https://www-bbc-com.translate.goog/news/world-60525350?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=sc)
+外媒指出，美国目前一加仑普通汽油的平均价格为 3.837 美元，高于一年前的 2.745 美元。旧金山成为美国历史上第一个平均汽油价格达到每加仑 5 美元的主要城市。
+
+据美国官方网站数据，2020年美国石油进口俄罗斯占7%；2021年数据，据外媒报导俄罗斯占据8%。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-05-上午10.41.20.png)
+来源｜[REUTERS](https://www.reuters.com/business/energy/us-weighs-cutting-russian-oil-imports-white-house-2022-03-04/?taid=6222b28e9fa2ce00010f9326&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)、[FOX](https://www.fox19.com/2022/03/04/gas-prices-hit-highest-cost-nearly-decade-surpass-4-some-states/?outputType=apps)、[eia](https://www.eia.gov/energyexplained/oil-and-petroleum-products/imports-and-exports.php)、[NPR](https://www.npr.org/2022/03/04/1084624868/the-white-house-says-its-considering-a-range-of-options-for-russian-oil-imports)
 
  
 

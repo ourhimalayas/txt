@@ -2,22 +2,53 @@
 ---
 
 
-## 樱花FM|拜登派前国防高官前往台湾以示支持
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2105151/)
+## 乌克兰接受狗狗币和其他数字货币捐款
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2105361/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/cz-Z4lweYFhvG7TCilnFjQ0TCUt0ZwOTRORqXw5WNjL76Areem_4F_lzU2YWJ29fWripNr_cIUTHFsgMniyHFYnUzmDf6hhxO_XXMQNSaI39L_pw8hwpmjHcxBRNWB4Bfk6VJR0q)
-据路透社报道，拜登政府将于周一派遣一个由前高级国防官员和安全官员组成的代表团前往台湾，在敏感的当下以示支持。消息人士没有透露这次的访问时机是否与俄罗斯入侵乌克兰有关。台政府周一表示，不应将台湾和乌克兰相提并论。此次访问由曾任美国参谋长联席会议主席的迈克·马伦率领，这次访问正值俄罗斯入侵乌克兰、台湾加强戒备之际。路透社报道称，陪同马伦上将的还有小布什时期的前国家安全副顾问奥沙利文和奥巴马时期的前国防部副部长佛洛诺伊，另外两名前美国国安委亚洲事务的高管葛林和麦艾文也将参与出访，目的是展示美国对台湾持续有力的支持。
+**编译：wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip乌克兰接受狗狗币和其他数字货币捐款.png)图片来源：cnbc.com
+周三，乌克兰副总理费多罗夫（Mykhailo Fedorov）表示，人们可以通过狗狗币（ Dogecoin）作为捐款，这个币创立最初只是一个笑话，并被特斯拉创始人埃隆·马斯克谈起过。
 
-代表团预计于3月1日下午抵达台湾，并停留到周三晚上。在此期间，他们计划会见台湾总统蔡英文、国防部长邱国正等高级官员。美国官员表示，这个五人代表团“发出了一个重要信号，即美国两党对台湾及其民主的承诺”，但是他没有透露这次的访问时机是否与俄罗斯入侵乌克兰有关。
+它经常被戏称为“memecoin”（搞笑币），指的是流行的互联网笑话。
 
-台湾外交部周一证实拜登指派跨党派资深代表团3月1日至2日搭乘专机访台，对访问团表达诚挚欢迎。此次的马伦代表团是自2021年4月以来首次有前官员在拜登授意下公开访问台湾。2021年4月，美国前参议员陶德、前副国务卿阿米塔吉和史坦柏格曾访问台湾，与蔡英文会面。上周六，一艘美国军舰驶过敏感的台湾海峡。
+“现在，即使是搞笑币也可以支持我们的军队，从俄罗斯入侵者手中拯救生命，”费多罗夫在[推特](https://twitter.com/FedorovMykhailo/status/1498982855162175488?s=20&amp;t=n-8KceFexUNeQKFP5Kt4wQ)上说。
 
-文字版原文：[拜登派前国防高官前往台湾以示支持](https://gnews.org/zh-hans/2089146/)
+周二，费多罗夫在推特上介绍了一个名为Aid For Ukraine的项目。它是乌克兰政府、Everstake和一个名为Solana的数字货币区块链平台之间的合作项目。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+人们现在可以捐赠Solana数字货币，以及基于Solana的任何其他数字代币。
+
+乌克兰也接受非同质化代币（NFT）作为捐赠物。这些是独特的资产，如使用区块链技术存储的数字艺术品，以验证和跟踪每个NFT。
+
+同时，加密货币交易所[Uniswap](https://twitter.com/Uniswap/status/1498632368298541059?s=20&amp;t=Po4270zTOuBnfmYb6FZVAQ)已经建立了一个功能，允许人们将任何基于以太坊的任何数字货币，都可发送给乌克兰政府。以太坊是一个区块链平台，开发者可以在上面建立应用程序。
+
+费多罗夫还说，一个名为Polkadot的区块链平台的联合创始人加文·伍德（Gavin Wood）向乌克兰发送了价值500万美元的[DOT](https://twitter.com/Ukraine/status/1498733635083587584?s=20&amp;t=bPcez6AhLlfVs4fVoFQTtw)数字货币。
+
+根据区块链分析公司Elliptic的数据，自俄罗斯入侵开始以来，乌克兰政府已经筹集了3500万美元，通过超过3.5万个数字资产捐赠。
+
+2月26日，乌克兰开始接受数字货币的捐赠，并从比特币、以太坊和一种叫Tether的稳定币开始（稳定币是与法币等现实世界资产挂钩的数字货币）。
+
+现在，乌克兰正在加大接受捐赠的数字货币的数量。这是因为军事专家预计俄罗斯的攻击将更加凶猛和具有破坏性。
+
+虽然数字货币捐款为乌克兰的抵抗努力增加了一些资金，但该国已经通过战争债券筹集了更多资金，这些债券约等同于81.4亿乌克兰格里夫纳（2.7亿美元）。
+
+周三，乌克兰政府的一个官方账户在推特上说，“空投”（Airdrop，指个人或实体免费赠送数字货币的行为）已经[确认](https://twitter.com/Ukraine/status/1498911922791583746?s=20&amp;t=PNzAx7hPq7gyP_5SWJiJog)，将在周四进行。
+
+数字货币已经成为俄罗斯和乌克兰之间战争的一个突出特点。有人猜测，俄罗斯人可以利用数字货币把钱弄出国门，以逃避制裁，不过专家说这可能非常困难。
+
+上周，费多罗夫呼吁主要数字货币交易所封锁俄罗斯用户的账户。
+
+**新闻来源**：[cnbc.com][Ukraine accepts dogecoin, other cryptocurrencies for donations as funding rises to $35 million](https://www.cnbc.com/2022/03/02/ukraine-dogecoin-other-cryptocurrencies-accepted-for-donations.html?utm_source=facebook&amp;utm_medium=news_tab) | 发布时间：2022年03月02日
+
+* * *
+
+***审核：文乐
+校对：小东
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

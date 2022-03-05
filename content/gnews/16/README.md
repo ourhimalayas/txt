@@ -2,53 +2,60 @@
 ---
 
 
-## 历史上的今天：3月5日
-` 历史组` [轉載自GNews](https://gnews.org/zh-hans/2108217/)
+## 魁北克人已经准备好欢迎乌克兰难民
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2108337/)
 
-作者：纽约香草山农场教育部-马克文、朱丽叶
+2022-03-04
 
+编译：**16626**
+评论：追郭大姨** **
+![](https://assets.gnews.org/wp-content/uploads/2022/03/OY@O3P9JVBHV1S6K.png)照片：** QMI Agency**，** Marcel Tremblay**，**  **魁北克市律师亚历山大·杜弗伦（**Alexandre Dufresne**），他将迎接乌克兰难民** **
+来自全省各地的魁北克人已经准备好为乌克兰难民提供他们的地下室或客房。** **
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-21.png)
+亚历山大·杜弗雷纳**Alexandre Dufresne **
 
+“在家里，我可以使用充气床容纳16 人，乌克兰人现在头上有炸弹，而不是寻求奢侈品。他们只是想离 开自己的国家”，该项目的发起人亚历山大·杜弗雷纳Alexandre Dufresne 解释说。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/RSZPU207F53IV007K.png)魁北克市律师亚历山大•杜弗雷纳**Alexandre Dufresne **的照片，照片**: Marcel Tremblay / QMI AGENCY. **
+这位魁北克市的律师在电视上看到了俄罗斯入侵乌克兰的画面，他通过创建一个名为”接待你,乌克兰难 民”的脸书Facebook 群。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/092TKKYGR20JHOJEYA.png)截图**:**脸书** **
+“我们在想那里发生了什么？可怜的人被枪杀了，我不想袖手旁观”，杜弗伦先生说，迫切需要采取行动。** **
 
-以史为鉴，可以知兴替。
+同意收留和接待乌克兰难民的家庭名单显示，魁北克,已经有一百多名来自蒙特利尔，阿尔玛Alma 和三 河市的家庭同意收留和接待的乌克兰难民。
 
-[![](https://assets.gnews.org/wp-content/uploads/2022/03/katyn_massacre-6.jpg)](The%20Katyn%20massacre%20of%20thousands%20of%20Polish%20prisoners%20of%20war%20%28primarily%20military%20officers%29,%20by%20the%20Soviet%20NKVD,%20based%20on%20a%20proposal%20from%20Lavrentiy%20Beria%20to%20execute%20all%20members%20of%20the%20Polish%20Officer%20Corps.%20The%20number%20of%20victims%20is%20estimated%20at%20about%2022,000.Photo%20from%201943%20exhumation%20of%20mass%20grave%20of%20polish%20officers%20killed%20by%20NKVD%20in%20Katy?%20Forest%20in%201940%20%28Photo%20by%20Universal%20History%20Archive/Getty%20Images%29)图源网络（卡廷大屠杀）
+这份名单本周也被呈送给魁北克省副省长，吉纳维芙·吉尔博 Geneviève Guilbault。Dufresne 先生说：” 这份名单可以方便政府在难民抵达魁北克时为他们提供后勤保障” 。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3MV5YS_AGNWU73N554.png)照片：** QMI Agency**，** Marcel Tremblay **
+联合国周一透露，到目前为止，已有超过836，000 名乌克兰难民逃离了他们的国家。
 
-1940年3月5日，苏联高层下令对波兰投降人员进行屠杀，史称“卡廷大屠杀” 。屠杀计划由贝利亚提议，由斯大林在内的苏共中央政治局签署批准，对苏军入侵波兰时俘虏的波兰战俘、知识分子、警察及其他公务员进行的有组织的大屠杀， 遇害人数超过2万人。1941年，德军入侵苏联并推进占领卡廷森林，苏联人的暴行才被轴心国发现。但苏联官方一直否认卡廷大屠杀，直到1990年，时任波兰总统雅鲁泽尔斯基访问苏联时，苏联官方才承认。历史学者认为斯大林目的是通过大规模处决其军事人才的方法，来削弱一个潜在的未来波兰的军事实力。
+魁北克行动晚了吗？** **
+萨布丽娜·斯特奇科（**Sabrina Steczko**）** ** 加蒂诺 Gatineau 居民萨布丽娜·斯特奇科（Sabrina  Steczko）在她的家中为难民提供了一套房子。她说， 魁北克落后了，应该增加更多的救助乌克兰难民的措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/57HWT75U5WO85EB0D9S.png)加蒂诺居民萨布丽娜·斯特奇科（**Sabrina Steczko**）在她的家中为难民提供了一套房子。图片由本人提供** **
+“在知道亚历山大•杜弗雷纳Alexandre Dufresne 的项目之前。我曾经给媒体写信，询问如何欢迎难民进 入我家。 […]我想在乌克兰人到达时照顾他们，但还要陪伴他们，（抚平）他们受到的创伤”，斯特奇科 Steczko 说。
 
-1927年3月5日，毛泽东发表《湖南农民运动考察报告》 毛泽东在文中提出 “革命不是请客吃饭，革命是暴动，是一个阶级推翻一个阶级的暴烈的行动。农村革命是农民阶级推翻封建地主阶级的权力的革命。” 毛泽东主张人为制造仇恨、煽动流氓无产者，要他们敢抢敢夺，敢打敢杀。杀乡绅、烧庙宇，湖南农村被搞得天翻地覆，人神共愤。
+多萝西·莱盖** Doroth**é**e Legay **
 
-1927年，湖南全省农民协会的会员已增至二百多万人，当时整个农村混乱不堪，农村稍有钱的人都被迫奔走他乡。在《湖南农民运动考察报告》中，毛为所谓的农民运动的极端暴戾行为叫好：“痞子运动”，“好得很！” 在中共的指挥下，农民运动逐渐升级为残酷的阶级斗争和屠杀。
+多萝西·莱盖 Dorothée Legay 是魁北克市一个养育三个八岁以下幼儿的母亲，她也准备在她的地下室迎 接乌克兰难民。多萝西·莱盖 Dorothée Legay 来自法国，很清楚移民将要遇到的困难，多萝西·莱盖 Dorothée Legay 和她的家人准备迎接难民来到魁北克市。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/EK@4BTK5RR_SQJDA@L.png)多萝西·莱盖**Doroth**é**e Legay **和她的家人准备欢迎难民来到魁北克市。图片由本人提供** **
+“我们（这个家庭）已经被列在名单上了，（我们很想）帮助乌克兰人，因为我们希望他们也帮助我们， 如果情况逆转（我们成为战争的难民，译者注）。希望我们做出一点贡献，让他们（乌克兰难民）的生 活更甜蜜一点。我们有两间卧室，有儿童玩具，甚至还有尿布”，莱盖女士说。
 
-湖南绅界纷纷投身国民党军队，进行反击。用同样的暴力行动，镇压中共的流氓无产者运动。国民革命统一战线濒临破坏。 历史资料显示：毛泽东极端暴力思想和导致的流氓无产者运动，造成北伐战争国共合作分裂的恶果。
+**“**这太不人道了**“**** **
 
-参考来源：
+海伦·杜芙蕾妮** H**é**l**è**ne Dufresne **
 
-1.[卡廷大屠杀](https://zh.wikipedia.org/wiki/卡廷大屠殺)
+蒙特利尔南岸La Prairie 的居民，海伦·杜芙蕾妮 Hélène Dufresne，毫不犹豫地参加了这个项目。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/283PI@48LCA9G2N4CXT0OB.png)海伦·杜芙蕾妮** H**é**l**è**ne Dufresne **和她在南岸**La Prairie **的家人。图片由本人提供** **
+“在家里，我们在地下室有空间，所以我们为什么不贡献它呢？[…]我不认识乌克兰的任何人，但我只是 想帮忙。俄罗斯，它的所作所为完全是非正义的，这是不人道的。我认为，如果魁北克能为这些人提供 一点人性（的帮助），当然好了”，两个小孩的母亲，杜芙蕾妮，女士说。
 
-2.[湖南农民运动考察报告](https://zh.wikipedia.org/wiki/湖南农民运动考察报告)
+评论：**  ****北美地区，尤其是美国****、****加拿大，人们的住房普遍宽敞明亮，还带着自己的前后小院子，闲暇时就在院子里，喝喝咖啡****，****聊聊天，生活是如此宁静惬意。可是乌克兰的炮火打破了这份宁静与惬意。同时也唤醒了我们：原来战争离我们是如此之近！已经在****“****魁北克同意收留和接待乌克兰难民的家庭****”****名单上的莱盖女士说的好：换作我们，我们也想被帮助。是啊！我们做为人类生活在这个地球上，人与人之间正常的关系就是互相尊重****，****互相扶持****，****用爱把彼此连在一起。魁北克人愿意把自己的****“****私人领地****”****拿出来帮助在战火中失去家园的乌克兰人，这是一种多么无私的爱！这种****“****爱****”****是我们对独裁者们说****“****不****”****的最好方式！**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-10.jpg)
+参考链接：
+[Une liste de Québécois déjà prêts à accueillir des réfugiés ukrainiens](https://www.tvanouvelles.ca/2022/03/02/une-liste-de-quebecois-deja-prets-a-accueillir-des-refugies-ukrainiens-1)
 
-编辑/校对/发稿：兰兰
+编辑：LILY
+发布：肥鯮
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-22.png)
-
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

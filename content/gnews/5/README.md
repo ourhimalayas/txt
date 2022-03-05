@@ -2,37 +2,31 @@
 ---
 
 
-## 澳洲板球传奇人物突然去世 曾注射两剂新冠疫苗
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2108563/)
+## 五角大楼称前往基辅的俄罗斯车队被 &#8220;困住 &#8220;了
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2108689/)
 
-翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-7.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-23.png)图片来源：雅典娜设计组
+图片来自原文
 
+五角大楼的一名高级官员告诉记者，南下前往基辅的俄罗斯车队 “陷入了困境”，并在处理后勤问题。
 
-根据澳大利亚人报中文网3月5日报道，52岁的澳大利亚板球旋转投球传奇人物肖恩·沃恩（Shane Warne）突然死于疑似心脏病发作。他被朋友发现在泰国苏梅岛的一栋别墅里，当时已经失去反应。
+入侵的俄罗斯部队现在停滞不前，并受到燃料和食物短缺、维持能力挑战和重大士气问题的困扰。
 
-据了解，他的经理安德鲁·尼奥菲图（Andrew Neophitou）在救护车到达之前，曾试图对沃恩进行心肺复苏。然而，沃恩被送往泰国国际医院后被宣布死亡。沃恩的遗体已被转移到另一家医院进行尸检。
+他们也可能在反击或突破一支拥有反装甲武器的、高度积极性、战术分散和有效的乌克兰部队时遇到了困难。乌克兰部队可能在俄罗斯部队更容易受到攻击的关键咽喉地带进行伏击，并对接近的车辆进行精心策划的打了就跑的攻击。
 
-沃恩的家随后发表了一份声明，证实了这一令人震惊的消息。声明称：
+曾参加过伊拉克自由行动的步兵营特遣部队指挥官斯科特-鲁特（Scott Rutter）中校表示，通过寻求在十字路口、桥梁和狭窄通道伏击俄罗斯军队，乌克兰战士可能在采用伊拉克共和国卫队当年对付美军的战术方面取得了成功。
 
-“我们非常悲痛地通知大家，肖恩·沃恩今天（3月4日星期五）在泰国苏梅岛因疑似心脏病发作而去世。”
+鲁特解释说，入侵的俄罗斯部队所经历的明显困难可能主要是由于乌克兰部队的顽强精神和他们保卫祖国的意愿。
 
-此前，沃恩曾表示，他在去年8月与新冠病毒战斗时曾短暂使用过呼吸机。这是在沃恩注射了两剂新冠疫苗之后发生的。在感染新冠病毒一个月后，沃恩透露他在新冠病毒感染期间的病情恶化，以至于不得不使用呼吸机。
+这位五角大楼高级官员告诉记者：“我们还发现他们在为部队提供食物方面遇到问题的迹象；他们是——他们不仅没有汽油，而且也没有食物了。而且我们还认为，停顿的一部分可能是——我强调“可能”这个词——可能是他们自己决定暂停运营的结果，他们可能正在重新组合、重新思考、重新评估。
 
-新闻链接：
+此外，鲁特认为俄罗斯可能存在严重的士气问题。“我认为这里的战斗倍数增加来自于俄罗斯方面纪律的减少。以及乌克兰人民和他们的后备力量以及他们的积极力量的专注、自豪和努力” 。
 
-1、[澳大利亚板球传奇人物Shane Warne在泰国突然去世 享年52岁](https://cn.theaustralian.com.au/2022/03/05/64252/)
-2、[Shane Warne: When Australian great revealed that he was put on ventilator during battle with Covid-19](https://www.hindustantimes.com/cricket/shane-warne-when-australian-great-revealed-that-he-was-put-on-ventilator-during-battle-with-covid19-101646405690379.html)
+新闻来源链接：[https://nationalinterest.org/blog/buzz/pentagon-says-russian-convoy-heading-kyiv-bogged-down-200921](https://nationalinterest.org/blog/buzz/pentagon-says-russian-convoy-heading-kyiv-bogged-down-200921)
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+本文作者：Rebecca (一切心皆不可得！)
+上传排版：Hong
 
  
 

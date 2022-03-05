@@ -2,35 +2,37 @@
 ---
 
 
-## 文贵先生盖特精要- 2022/03/04
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2108478/)
+## 澳洲板球传奇人物突然去世 曾注射两剂新冠疫苗
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2108563/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-400.png)[盖特直播链接](https://gettr.com/post/py5isw9b13)
+翻译/编辑：小红帽
 
-- 感谢战友发来问候信息。今天是郭妈妈冥诞三周年。
-- 战友们冒着危险在乌克兰前线救人，七哥和战友们的救援行动是对郭妈妈一种回报。郭妈妈是中国母亲（善良、一生生活在恐惧中）的象征。
-- 中国人被中共洗脑，普遍支持俄罗斯入侵乌克兰，忘记俄罗斯曾经在中国做过的恶，俄罗斯炮击乌克兰至少导致20名中国人死亡，中共官方未曾报道。
-- 七哥在梦里与母亲、家人、同事见面。感恩上天赐予与家人共处的梦境。
-- 录制歌曲《锁链梦》将作为郭妈妈三年冥诞礼物，稍后将播出。
-- 眼泪没有用，抛弃自私和懦弱，保护家人朋友。因中共作恶，必定让其付出更高的代价。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-23.png)图片来源：雅典娜设计组
 
 
-*听写：call me uncle*
+根据澳大利亚人报中文网3月5日报道，52岁的澳大利亚板球旋转投球传奇人物肖恩·沃恩（Shane Warne）突然死于疑似心脏病发作。他被朋友发现在泰国苏梅岛的一栋别墅里，当时已经失去反应。
 
-*校对: 乐禧禧*
+据了解，他的经理安德鲁·尼奥菲图（Andrew Neophitou）在救护车到达之前，曾试图对沃恩进行心肺复苏。然而，沃恩被送往泰国国际医院后被宣布死亡。沃恩的遗体已被转移到另一家医院进行尸检。
 
-* * *
+沃恩的家随后发表了一份声明，证实了这一令人震惊的消息。声明称：
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+“我们非常悲痛地通知大家，肖恩·沃恩今天（3月4日星期五）在泰国苏梅岛因疑似心脏病发作而去世。”
 
+此前，沃恩曾表示，他在去年8月与新冠病毒战斗时曾短暂使用过呼吸机。这是在沃恩注射了两剂新冠疫苗之后发生的。在感染新冠病毒一个月后，沃恩透露他在新冠病毒感染期间的病情恶化，以至于不得不使用呼吸机。
 
-编辑：【英国伦敦喜庄园编辑部】
+新闻链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+1、[澳大利亚板球传奇人物Shane Warne在泰国突然去世 享年52岁](https://cn.theaustralian.com.au/2022/03/05/64252/)
+2、[Shane Warne: When Australian great revealed that he was put on ventilator during battle with Covid-19](https://www.hindustantimes.com/cricket/shane-warne-when-australian-great-revealed-that-he-was-put-on-ventilator-during-battle-with-covid19-101646405690379.html)
 
+发布：tianzhihuan
 
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
