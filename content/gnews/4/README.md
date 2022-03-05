@@ -2,8 +2,8 @@
 ---
 
 
-## 乌克兰人崇拜三个文化：苏联文化、犹太人文化、中国文化
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2110333/)
+## 中共掩盖南斯拉夫事件的真相，并以此为筹码
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2110421/)
 
 台灣寶島農場
 

@@ -2,46 +2,25 @@
 ---
 
 
-## 乌克兰网球明星谢尔吉·斯塔霍夫斯基加入国家预备役部队抵抗俄罗斯入侵
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2110368/)
+## 声援乌克兰！竹市百年迎曦门、台电活动中心亮蓝黄光！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2110436/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
+俄乌战火持续，全球响应声援乌克兰的行动日益壮大，新竹市政府也加入声援行列。百年古蹟迎曦门、台电新竹区营业处活动中心外墙即日入夜点亮象征乌克兰国旗色的蓝黄灯光。每晚6点亮到10点，邀请民众一同声援乌克兰，祈祷战争尽速落幕、和平曙光到来。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-9.png)图片来源：联合新闻网
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-31.png)
-乌克兰网球明星谢尔吉·斯塔霍夫斯基（Sergiy Stakhovsky）放下网球拍拿起步枪，加入乌克兰的预备役部队，尽自己的一份力量抵抗俄罗斯入侵者。
+市府指出，世界各国声援乌克兰，除提供军事设备、冻结俄罗斯海外资产之外，更在巴黎菲尔铁塔、罗马竞技场、纽约帝国大厦、柏林布兰登堡大门等著名地标上投射乌克兰蓝黄国旗色，表达对乌克兰的支持，更展现全球反战意志。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Alexander-Hassenstein_Getty-Images-640x335-1.jpg)[图源网络](https://www.breitbart.com/sports/2022/03/01/ukraine-tennis-star-sergiy-stakhovsky-drops-racket-picks-up-rifle-to-repel-russian-invaders/)
+简评：每一个声音，每一个行动，都是一份爱心的传递！当声援乌克兰的浪潮席卷全球，独裁者与世界彻底孤立的时候，独裁的丧钟也随之敲响！世界潮流，浩浩荡荡！顺之者昌，逆之者亡！逆潮流而行者，必然被时代所唾弃！
 
-36岁的谢尔吉·斯塔霍夫斯基是四次 ATP 巡回赛冠军得主，他目前已经暂停了自己的运动生涯，回到家乡为他的人民而战。斯塔霍夫斯基在社交媒上体鼓励他的乌克兰同胞反抗入侵者。他在Instagram上用母语写道”我为我的总统感到自豪，我为每一个乌克兰人感到自豪。我为自己是乌克兰人而感到自豪。相信我们的军队…相信我们的无敌。荣耀归乌克兰”。
+新闻来源：[联合新闻网](https://udn.com/news/story/122702/6142239?from=udn-catelistnews_ch2)
 
-参考来源：
+撰稿/发布：一叶知秋
 
-1.[https://gettr.com/post/pxrl0p724d](https://gettr.com/post/pxrl0p724d)
-
-2.[Ukraine Tennis Star Sergiy Stakhovsky Drops Racket, Picks Up Rifle to Repel Russian Invaders](https://www.breitbart.com/sports/2022/03/01/ukraine-tennis-star-sergiy-stakhovsky-drops-racket-picks-up-rifle-to-repel-russian-invaders/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-15.jpg)
-
-
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-32.png)
-
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

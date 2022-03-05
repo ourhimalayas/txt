@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国驻乌克兰大使馆在撤侨方面完全无所作为
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2110215/)
+## 至2021年底，18.7万人在接种中共病毒疫苗后20周内死亡
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2110221/)
 
-03/01/2022 一名留学生公布与中共国驻乌克兰大使馆的对话，显示中共使馆什么都没帮助。
+03/01/2022 哥大研究估计：至2021年底，18.7万人在接种中共病毒疫苗后20周内死亡。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
