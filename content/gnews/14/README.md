@@ -2,30 +2,20 @@
 ---
 
 
-## “应该干掉普京” 美重量级议员言论引争议 白宫次日表态忙否定
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2111931/)
+## 大批将乌克兰视为第二故乡的外国人正在出逃
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2111932/)
 
-翻译：宫米叶
+#### 翻译 意大利达芬奇农场 小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-05-alle-18.10.50-1.png)图片来源：rainews.it
+成千上万的难民逃离乌克兰， 他们曾选择在那儿学习、工作、生活。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220305-OYT1I50057-T.jpg)图片来源：yomiuri.co.jp
+火车和公共汽车源源不断地将人们救出乌克兰。在逃难人群中， 相当多的外国人选择乌克兰作为学习、工作和生活的地方。他们的生活也因俄罗斯的入侵而受到影响。Przemysl 是波兰境内第一个接受众多战争难民收容点。很多人是从非洲和中东去乌克兰的，他们也在寻求帮助， 其中的许多人是在乌克兰上学的外国留学生，他们不知道自己是否能够返回家园。一些人说他们愿意尝试在其他欧洲国家继续学习而不是返回祖国。还有一些人抱怨受到歧视， 在越过波兰边境时排队的时间比波兰人长，在某些情况下还遭受过虐待。
 
-美国重量级参议员林德赛•格雷厄姆（Lindsey Graham）3日在推特发文暗示，要终止俄罗斯入侵乌克兰有必要暗杀普京。该推文引发风波。
+周二， 联合国难民署将从乌克兰逃亡邻国的难民人数更新为660.000人，许多乌克兰人已经在波兰生活和工作， 波兰的入境人数最多。该机构负责人菲利普•格兰迪(Filippo Grandi)周一告诉安理会“自周四以来，Lacifra的入境人数每小时都呈指数级增长（当时难民人数已超过50万）。”他说：“ 我一直应对人道危机近40年，我很少见到出逃的人数是如此迅速地增加，当然这肯定是自巴尔干战争以来欧洲范围内规模最大的一次难民出逃。”
 
-格雷厄姆在推特发文称：“为了结束（攻击），俄罗斯须有人铲除这个家伙(普京)。”他以加入刺杀罗马独裁者朱利叶斯•凯撒行动的布鲁塔斯为例，写道：“俄罗斯没有布鲁塔斯吗？”
+原文链接：[https://www.rainews.it/photogallery/2022/03/la-fuga-degli-stranieri-che-avevano-scelto-ucraina-come-seconda-patria-37a63c0d-d3e8-4937-878b-ffbff03768ae.html](https://www.rainews.it/photogallery/2022/03/la-fuga-degli-stranieri-che-avevano-scelto-ucraina-come-seconda-patria-37a63c0d-d3e8-4937-878b-ffbff03768ae.html)
 
-美国(华尔街日报等) 媒体报导称，“格雷厄姆呼吁俄罗斯国民刺杀普京”。
-
-美国总统珍•莎琪新闻发言人在4日的新闻发布会上强调：“美国政府既没有呼吁刺杀外国领导人，也没有要求他国转变体制。”
-
-**参考资料：**[yomiuri.co.jp][「プーチン氏の暗殺が必要」と示唆、米重鎮議員の投稿に物議](https://www.yomiuri.co.jp/world/20220305-OYT1T50113/)
-
-* * *
-
-*审核：BryanW*
-*校对：zicoround*
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-3.jpeg)
+编辑、上传： Xiao  baige
 
  
 
