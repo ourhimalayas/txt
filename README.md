@@ -18,38 +18,38 @@
 ### [拜登总统表示美国与乌克兰站在一起](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌总统呼吁西方国家考虑对俄设立 &#8220;禁飞区 &#8220;以停止轰炸](/content/gnews/2/README.md)
+### [乌克兰的007杀死与俄罗斯会谈的和平谈判代表](/content/gnews/2/README.md)
+ ` xiaobaige`
+
+### [乌总统呼吁西方国家考虑对俄设立 &#8220;禁飞区 &#8220;以停止轰炸](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [习近平支持普京入侵乌克兰，并要求普京支持其对台主张](/content/gnews/3/README.md)
+### [习近平支持普京入侵乌克兰，并要求普京支持其对台主张](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [由于入侵乌克兰，俄罗斯和白俄罗斯的运动员被禁止参加所有比赛](/content/gnews/4/README.md)
+### [由于入侵乌克兰，俄罗斯和白俄罗斯的运动员被禁止参加所有比赛](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [壳牌宣布将终止与俄罗斯国有石油公司的合作](/content/gnews/5/README.md)
+### [壳牌宣布将终止与俄罗斯国有石油公司的合作](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新中国联邦的大卫采访波兰热舒夫市长](/content/gnews/6/README.md)
+### [新中国联邦的大卫采访波兰热舒夫市长](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|俄罗斯原油航线油轮运费飙升](/content/gnews/7/README.md)
+### [有声|俄罗斯原油航线油轮运费飙升](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [有声|俄罗斯滥炸乌克兰目标 基辅恐遭更猛烈攻击](/content/gnews/8/README.md)
+### [有声|俄罗斯滥炸乌克兰目标 基辅恐遭更猛烈攻击](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [有声|中共弃同胞不顾 新中国联邦前往救援](/content/gnews/9/README.md)
+### [有声|中共弃同胞不顾 新中国联邦前往救援](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|乌克兰总统泽连斯基要求俄罗斯赔偿所有战争损失](/content/gnews/10/README.md)
+### [有声|乌克兰总统泽连斯基要求俄罗斯赔偿所有战争损失](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年3月5日早](/content/gnews/11/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年3月5日早](/content/gnews/12/README.md)
  ` 纽约香草山MOS01`
-
-### [有声|美日澳印四国领导人表示绝不允许乌克兰危机在印太地区发生](/content/gnews/12/README.md)
- ` MOSREC`
 
 ### [MV版Hcoin To the Moon上线86天第24次位列匈牙利iTunes热门MV榜首](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

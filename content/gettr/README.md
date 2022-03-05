@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/5/2022 11:03 PM (UTC)`
+
+03/05/2022 David interviews a Chinese rescued by the first NFSC rescue bus from Ukraine<br/><br/>03/05/2022 大卫采访被第一辆NFSC乌克兰救援巴士从乌克兰救出来的中国人<br/><br/>
+![img](https://media.gettr.com/group50/getter/2022/03/05/23/659c45d3-76d3-f27b-f6e2-3b352247216f/out.jpg)
+
+---
+
+`@miles 3/5/2022 10:56 PM (UTC)`
+
+新中国联邦的战友为参加乌克兰救援行动不惜辞去工作<br/><br/>Fellow fighters of NFSC quit their jobs to participate in Ukraine rescue operation<br/>
+![img](https://media.gettr.com/group40/getter/2022/03/05/22/57ee4d70-a411-8cb1-456d-4b59a587f22b/out.jpg)
+
+---
+
 `@miles 3/5/2022 7:38 PM (UTC)`
 
 炸了！FDA败诉！辉瑞被迫公布所有疫苗数据！副作用足足有9页！全网惊呆…目前披露的文件中列出了1000多种不良反应，很多都是头一次看到，包括： 筋膜炎、眼部肿胀、面瘫、斑秃、过敏休克、妊娠过敏反应综合征、急性心肌病、急性呼吸衰竭、注射部位血管炎、癫痫、血栓、心律失常、关节炎、哮喘、支气管痉挛、心脏骤停、心力衰竭、胸部不适、窒息、急性皮肤红斑狼疮、急性脑脊髓炎、急性肾损伤、急性黄斑外层视网膜病变、再生障碍性贫血、慢性自身免疫性肾小球肾炎、慢性皮肤红斑狼疮、慢性自发性荨麻疹、溶血性贫血、结肠炎、皮炎、糖尿病、栓塞性脑梗塞、内分泌失调、新生儿重症肌无力、脊髓炎、非感染性卵巢炎、甲状腺炎、溃疡性直肠炎、眼部瘙痒症、生殖器疱疹、舌咽神经麻痹、出血性血管炎、宫颈炎、狼疮性膀胱炎、狼疮性脑炎、多发性硬化症等等。fried! FDA loses case! Pfizer forced to release all vaccine data! There are 9 pages of side effects! The whole network is stunned... There are more than 1,000 adverse reactions listed in the currently disclosed documents, many of which are seen for the first time, including: Fasciitis, swollen eyes, facial paralysis, alopecia areata, anaphylactic shock, ancardiomyopathy, acute respirator https://gettr.com/post/pyd4us8b82
@@ -142,20 +156,6 @@ Children of the New Federal State of China pray for the peace of Ukrainian Peopl
 
 3月4号：比爹娘还亲的中国共产党，不但不拯救同胞，更不拯救其他国家的同类．……还选择了支持邪恶的反人类的大屠杀战争……还趁人之危……威胁绑架在战争中侥幸逃出的同胞……这是多么的丑恶……醒来吧，可怜的懦弱的无知的中国同胞们……不要再让别人当猪狗了利用了。
 ![img](https://media.gettr.com/group40/getter/2022/03/04/17/aac409a5-fcd0-fdd8-eebb-d2ecdca2ac36/70dd8b46e78fe2c047cb4a071e2dd40f.jpg)
-
----
-
-`@miles 3/4/2022 3:21 PM (UTC)`
-
-3月4号：尊敬的战友们好，今天我收到了无数个战友对我母亲三年冥诞问候！衷心地感谢兄弟姐妹们！我们只有靠真实的行动，才能保护我们的父母．姐妹．兄弟．消灭中国共产党是唯一的，让我们能快乐．和安全的方法！
-![img](https://media.gettr.com/group8/getter/2022/03/04/15/43f5ad6a-7aaa-fb2f-61f5-1e419b5a90fc/out.jpg)
-
----
-
-`@miles 3/4/2022 2:13 PM (UTC)`
-
-【UKRAINEHELP-003】<br/>为应对乌克兰-波兰边境日益增多的撤离人员和难民，NFSC和法治基金(ROLF)宣布2022年3月9日首批免费专机的暂定行程。<br/><br/>2022年3月9日出发的首批专机航线如下，有可能根据情况做出调整:<br/>1. 从波兰 - 热舒夫(Rzeszow)机场出发，经加拿大多伦多，前往美国纽约。<br/>2. 从波兰 - 热舒夫(Rzeszow)机场出发，直飞帕劳。<br/><br/>NFSC和ROLF提供免费专机，以帮助那些受俄罗斯非法入侵影响的人员，这是我们支持在被共产主义和专制政府统治的国家里争取自由的使命的一部分。<br/><br/>如果您需要搭乘我们的专机，请联系我们的24小时服务热线。所有乘客必须满足 其目的地的签证要求。如有需要，NFSC和ROLF将在出发前提供免费食宿。<br/><br/>24小时紧急救援客服联系方式如下:<br/><br/>邮箱: ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO <br/><br/>电话(短信或电话):<br/>+1 720-657-6776 或 <br/>+1 719-224-4232<br/><br/>NFSC | 法治基金 <br/>2022年3月3日<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group46/getter/2022/03/04/14/914793c1-2bb1-a4b8-07ca-d8874855a3c5/2a10b3fec16a22e8980985dbc4dcd6f9.jpg)
 
 ---
 
