@@ -2,64 +2,24 @@
 ---
 
 
-## 面对俄乌战争 芬兰、瑞典放弃中立 期待加入北约
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2109393/)
+## 英国官方数据：新冠疫苗接种者病亡率爆升
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2109449/)
 
-翻译:Steven Hu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-28.jpg)
-图片来源：美联社
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-53.jpg)
+图片来源： 网络图片合成
 
-美联社3月4日发布了贾里·坦纳（JARI TANNER）的报道
+乌克兰战火纷飞的同时，一场不见硝烟、却死伤更甚的灾难正愈演愈烈。据英国The Exposé网文章，[英国卫生安全局（UKHSA）每周发布的新冠疫情数据](https://mybank.icbc.com.cn/icbc/newperbank/account/electricbillRemit.jsp?dse_sessionId=BZFWATBAIUCJAIGBGCIRATEUIWAYDCGTDSDGCVJV&amp;requestTokenid=1646447088204-1479356184&amp;isICBCEbill=1&amp;remiticon4freeofcharge=0&amp;shoufukuanFlag=1&amp;ebillFlagForWater=1&amp;huashangFlag=1https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1057599/Vaccine_surveillance_report_-_week-8.pdf)显示，当地新冠疫苗的未接种者死亡率逐减的同时，2针和3针接种者死亡率爆增，完全接种者比未接种者呈现出了更高死亡率。
 
-一贯秉持中立的北欧国家芬兰和瑞典，即使从整个冷战期间以及冷战结束后一直到现在的几十年间，从不相信加入北约是他们更好的选择。
+数据显示，2021年11 月 22 日至2022 年 2 月 20 日的8周期间，对比最近4周与前4周的死亡病例数，未接种者的死亡减少了 37%，接种者死亡却增加了 48%。2 月 24 日报告第41页数据显示，至2月20日的最近4周里，新冠死亡病例中高达9/10为2针接种者，4/5为3针接种者（见上图）。对比英格兰的新冠疫苗接种率，至2022年2月28日为止完全接种者为73.5%，加强针接种者为56.9%（[Our World in Data数据](https://mybank.icbc.com.cn/icbc/newperbank/account/electricbillRemit.jsp?dse_sessionId=BZFWATBAIUCJAIGBGCIRATEUIWAYDCGTDSDGCVJV&amp;requestTokenid=1646447088204-1479356184&amp;isICBCEbill=1&amp;remiticon4freeofcharge=0&amp;shoufukuanFlag=1&amp;ebillFlagForWater=1&amp;huashangFlag=1英格兰)）。不难看出，2针和3针接种者比未接种者呈现出了更高的死亡率。
 
-直到最近俄罗斯对乌克兰的入侵，使得人们对欧洲未来安全的展望发生了深刻的变化，以至于一直保持中立的这两个国家内部，对加入北约的支持率飙升至创纪录水平。
+包括美国在内的世界多国卫生官员都曾宣称，[新冠疫苗虽然无法阻止奥米克戎变种的感染或传播，但可以防止住院和死亡](https://mybank.icbc.com.cn/icbc/newperbank/account/electricbillRemit.jsp?dse_sessionId=BZFWATBAIUCJAIGBGCIRATEUIWAYDCGTDSDGCVJV&amp;requestTokenid=1646447088204-1479356184&amp;isICBCEbill=1&amp;remiticon4freeofcharge=0&amp;shoufukuanFlag=1&amp;ebillFlagForWater=1&amp;huashangFlag=1https://www.audacy.com/kmox/news/national/cdc-director-says-vaccines-are-not-preventing-transmission)，但现实数据与他们宣传的“高达 95% 的防护效果”，看来相去甚远。
 
-这表现在由芬兰广播公司 YLE 本周委托进行的一项民意调查，结显示超过 50% 的芬兰人首次支持加入西方军事联盟（该民意调查的误差率为 2.5 个百分点）。 而在邻国瑞典的一项类似的民意调查显示，支持加入北约的人数多于反对加入北约的人数。
+**新闻来源：**
 
-支持加入北约的瑞典前首相卡尔·比尔特（Carl Bildt）在推特上写道：“曾经以为不可思议的事情可能正在发生。”
+1.  [Whilst you’ve been distracted by Russia’s Invasion, the UK Gov. released a Report confirming the Fully Vaccinated now account for 9 in every 10 Covid-19 Deaths in England](https://dailyexpose.uk/2022/03/01/russia-distraction-uk-gov-revealed-triple-vaccinated-account-9-in-10-covid-deaths/)
 
-虽然由于北约成员国的支持率起伏不定，这两个国家都不可能在一夜之间加入该联盟。
-
-但自俄罗斯上周开始入侵以来，变化的迹象是显而易见的。
-
-对乌克兰的袭击促使芬兰和瑞典都打破了不向交战国家提供武器的传统政策，向基辅送去了突击步枪和反坦克武器。 对于瑞典来说，这是自 1939 年帮助芬兰对抗苏联以来，它首次提供军事援助。
-
-俄罗斯外交部上周显然感觉到其北欧邻国之间的转变，并对美欧将芬兰和瑞典“拖入”北约的努力表示担忧，警告称如果他们加入联盟，莫斯科将被迫采取报复措施。
-
-瑞典和芬兰政府反驳说，他们不会让莫斯科决定他们的安全政策。“我想非常清楚：是瑞典自己独立决定我们的安全政策。”
-
-芬兰与俄罗斯有着冲突不断的历史，与俄罗斯有 1,340 公里（830 英里）的边界。 几个世纪以来，芬兰人作为瑞典王国的一部分，作为一个独立国家参加了数十次针对其东部邻国的战争，而在 1939-40 和 1941-44 年间作为一个独立的国家与苏联交战两次。
-
-然而在战后，芬兰寻求与莫斯科建立务实的政治和经济联系，在军事上保持不结盟并在东西方之间保持中立。
-
-瑞典 200 多年来一直避免军事联盟，在与邻国进行了数百年的战争之后选择了一条和平之路。
-
-两国于1995年加入欧盟并深化与北约的合作，结束了传统的中立。 然而，两国的大多数民众仍然坚决反对成为该联盟的正式成员直到现在。
-
-“这是一个非常重大的转变，”芬兰国际事务研究所的高级研究员马蒂·佩苏（Matti Pesu）说。  “在过去的 25 到 30 年里，芬兰人对北约的看法一直非常稳定。 现在好像完全扭转过来了。”
-
-虽然不能指望仅仅从一次民意调查中得出结论，但佩苏表示，即使在 2008 年俄罗斯与格鲁吉亚的战争和 2014 年吞并克里米亚半岛之后，公众舆论也没有发生类似的转变，“所以打破了常规。”
-
-芬兰总统绍利·尼尼斯托（Sauli Niinisto）在新年致辞中明确表示，“芬兰可操作余地和选择自由还包括军事结盟和申请加入北约，如果要由我们自己决定的话。”
-
-北约秘书长延斯·斯托尔滕贝格上周指出，对于赫尔辛基和斯德哥尔摩来说，“这是一个自我定位和选择自己未来方向的主权问题，并且可能在未来也申请北约。”
-
-加入北约没有固定标准，但有抱负的候选人必须满足某些政治和其他考虑。 许多观察家认为，芬兰和瑞典将有资格在几个月内无需进行冗长的谈判即可快速加入北约。
-
-芬兰和瑞典虽然不是成员国，但与北约密切合作，除此之外，还允许北约部队在其领土上进行演习。 赫尔辛基和斯德哥尔摩在过去几年也大幅加强了双边防务合作，都与美国、英国和邻国北约成员国挪威建立了密切的军事合作。
-
-尼尼斯托办公室周四表示，他将于周五在白宫会见美国总统乔·拜登，“讨论俄罗斯对乌克兰的袭击、战争对欧洲安全秩序的影响以及双边合作。”
-
-自 2012 年尼尼斯托上任以来，芬兰国家元首是为数不多的与俄罗斯总统弗拉基米尔·普京保持定期对话的西方领导人之一。尼尼斯托与拜登似乎也关系融洽，两位领导人在整个乌克兰危机中都保持着密切联系。
-
-去年 12 月，拜登致电尼尼斯托，表示他对芬兰决定购买 64 架洛克希德·马丁 F-35A 隐形战斗机来替换该国老化的 F-18 战斗机的决定感到高兴。 拜登表示，此举将为未来双方更紧密的军事关系铺平道路。
-
-芬兰总理桑娜·马林（Sanna Marin）本周表示，她所在的社会民主党将与其他政党讨论可能加入北约的问题，但没有设定时间框架。 她说每个人都同意过去几周的事件改变了游戏规则。
-
-“我们都看到，自俄罗斯袭击乌克兰以来，安全局势发生了巨大的变化。 我们必须承认这个事实，”马林说。
-
-原文链接：https://apnews.com/article/finland-sweden-nato-membership-34ef217e563ac9ea080c495ce6ffdb88
+2.  [Official data: Fully vaccinated people account for 9 of 10 COVID deaths](https://www.wnd.com/2022/03/official-data-fully-vaccinated-people-account-9-10-covid-deaths/)
 
  
 

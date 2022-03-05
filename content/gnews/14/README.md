@@ -2,27 +2,24 @@
 ---
 
 
-## 有声｜通过Hpay成功用喜美元购买F1赛车
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2109538/)
+## 视频|乌克兰的紧急救援仍在继续
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2109611/)
 
-**By:秘翻新闻**
+制作：香草山视频部
 
-**2022-03-05**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-33.png)
-**[据福布斯3月4日报导，由喜马拉雅交易所（Himalaya Exchange）开发的支付应用程序喜马拉雅支付，购买了艾尔顿-塞纳的座驾-1989年的迈凯轮MP4/5 F1，价格超过$500万美元。Hpay的会员间通过稳定币喜马拉雅元-HDO转账完成。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
+3月2日，郭文贵先生在大直播中与战友们分享新中国联邦在乌克兰的一次紧急救援行动。
 
-**[艾尔顿-塞纳对于过去和现在的车手和车迷来说仍然是一个传奇，他所驾驶的汽车是世界上最有价值的收藏品之一。 这笔交易表明人们对喜马拉雅交易所越来越有信心，特别是Hpay，现在是第一个版本。第二个版本的支付应用程序正在开发中。通过Hpay，用户将能够在全球范围内进行即时加密货币转账，安排自动付款，并可以用所有的数字货币从独家零售商购物。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
+郭先生透露，一个重要战友的家人之前被困在乌克兰，秘密搜救团队在确认了战友家人的位置后发现，救援地点随时可能会面临俄军的轰炸。随后，郭先生断然决定，让直升机将求助者救出，但由于人员超载，一名搜救人员被迫暂时停留救援地。战友家人被救出后，直升机返回原处带回了那位搜救人员。救援结束后两个小时，该地被俄军的炮火夷为平地。
 
-**[喜马拉雅集团这样值得信赖的交易所，让企业和个人能够充分利用加密货币的崛起所带来的机会。无边界、包容性和安全性，你可以通过喜马拉雅交易所随时随地交易你的资产。该平台也是第一个将加密货币交易所与原生交易币（喜马拉雅币’HCN’）、稳定币（喜马拉雅币’HDO’）以及最近推出的支付应用（HPAY）整合在一个平台上，使其成为唯一一个完全整合加密货币生态系统的平台。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
+鉴于目前乌克兰局势日益恶化，新中国联邦救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
-**[该平台的中心任务是使每个人能够控制他们自己的钱，实现财务自主。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
+发稿：雪梨
 
-（ 秘翻新闻 文雀 编译报导 ）
+**更多资讯，更多关注**
 
-发布:星星
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

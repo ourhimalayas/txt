@@ -2,25 +2,42 @@
 ---
 
 
-## 视频|二十多名华人命丧乌克兰 中共秘而不发
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2109690/)
+## 阿联酋金融科技公司Alaan拟扩大多币种支出管理平台
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2109699/)
 
-制作：香草山视频部
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-3月2日，郭文贵先生在大直播中透露，中共驻乌克兰大使馆当天早间的密电显示，截止目前，超过二十名在乌中国同胞已经在乌克兰战争中死亡。
+翻译/编辑：小红帽
 
-郭先生提到，这些中国同胞可能的死亡原因是被流弹击中车辆，从而导致几乎尸迹全无。经多方查证，这些死者大多是在乌克兰和罗马尼亚做服装生意的商人。但中共内部对此严令禁止，不许任何媒体报道相关事件。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/UAE_Fintech_Alaan_.jpg)图片来源：www.itp.net
 
-早在俄乌战争刚刚打响之际，乌克兰当地各国使领馆立即安排其侨胞撤离，但只有中共使馆反应迟缓且毫无措施。据郭先生爆料，虽然中共驻乌克兰大使曾声称会包机撤侨，但实际被撤离的只有中共高官及其在乌克兰的亲属和朋友。至于普通华侨的撤离则被中共使馆以安全为借口一拖再拖。如今，中共非但不撤侨、不救助，还在故意封锁在乌遇难同胞的消息。
 
-对此，郭先生在直播中再次提醒所有在乌华人和各国友人，新中国联邦和法治基金正在与国际救援组织合作，启动国际人道救援行动。请仍身处乌克兰且需要救援的新中国联邦战友及其家人，在乌华人和各国友人尽快与我们联系。
+据Crowdfund Insider3月4日报导，总部位于迪拜的金融科技公司Alaan通过一轮投资获得了250万美元的资金。该公司现在正走出隐身模式。
 
-发稿：林礼
+这家多币种支出管理平台开发商指出，他们将利用所得的资金雇佣新的人才，并在中东地区扩大业务规模。
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+Alaan的这轮投资由加州的投资基金Presight Capital，柏林的风险投资公司468 Capital和Global Founders Capital领投。
+
+Alaan公司成立于2021年，计划通过公司卡和自动发票支付来管理公司的所有支出。
+
+Alaan的首席执行官兼联合创始人Parthi Duraisamy表示：“我们的愿景是为中小型企业和企业家提供一个创新的平台来管理公司支出。无论是通过卡轨道还是账户对账户轨道。在阿联酋这样的市场，超过80%的消费者支付是数字化的。但是当涉及到企业支付时，我们还没有看到实质性的转变，旧的线下支付世界仍然存在。这就是Alaan的作用”。
+
+该平台为工人提供企业卡进行公司采购，并“实时自动核对支出”。
+
+该平台能够快速发行国际货币的虚拟卡，如阿联酋迪拉姆、沙特里亚尔和美元，用于数字商务转账、订阅、供应商付款和店内购物。
+
+该平台旨在消除对费用报告的要求，并通过与不同的会计服务提供商的整合来实现记账任务的自动化。
+
+文章来源：[UAE Fintech Alaan Acquires $2.5M to Expand Multi-Currency Spend Management Platform](https://www.crowdfundinsider.com/2022/03/187822-uae-fintech-alaan-acquires-2-5m-to-expand-multi-currency-spend-management-platform/)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
