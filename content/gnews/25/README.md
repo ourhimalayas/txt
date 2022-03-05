@@ -2,10 +2,10 @@
 ---
 
 
-## 2022年3月5日《樱花简报》：中共病毒疫情导致日本去年低保申请量增长5.1%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2108086/)
+## 2022年3月5日《樱花快报》：中国留学生被困乌克兰 发微博求救却被删帖
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2108103/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3._5简报-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/快报-scaled.jpg)
 
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*

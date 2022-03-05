@@ -2,47 +2,30 @@
 ---
 
 
-## 浅谈《新中国联邦》一人一票投票法(四)
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2108646/)
+## 俄乌战争｜白宫考虑减少俄罗斯能源进口 并确保全球能源稳定供应
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2108816/)
 
-作者：纽约香草山教育部 – 春草
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-4、一人一票投票法的宣传与普及
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新20200626-.jpg)
-前三篇讨论了一人一票投票法的定义、概要及监督，因这一法律体系与现在国际上所有的法律有本质的不同，要使广大劳动者理解和接受不是一件容易的事，所以必须进行大力的宣传，使大家了解其重要的意义和我们劳动者的利害关系，为新法律的推广和实施打好基础。
+**撰文/ 港台前线｜发布日期/ 05/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-12.png)更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
+白宫周五表示，拜登政府正在考虑削减美国对俄罗斯石油的进口，以及如何最大限度地减少对全球供应和消费者的影响。
 
-为什么《新中国联邦》要实行一人一票的投票法呢，其最重要的核心问题，就是要把国家的一切管理权掌握在劳动者手中，这个管理权不仅仅是投票，还要参与具体的工作，如法律法规、社会环境建设、商品物价、企业规章等的制定和监督等等。只有这样做才算真正地掌握了权力，才能不被欺骗、不被剥削、不被侵权。
+美国众议院议长南希佩洛西及其他部分议员希望美国完全禁止这些进口产品。白宫经济顾问委员会主席塞西莉亚·劳斯 (Cecilia Rouse)在简报会上强调，减少美国对俄罗斯能源的依赖，最重要的是确保全球能源的稳定供应。
 
-有人说，只要人人有信仰社会就会变好，这个想法太天真了。从中外古今的历史证明，信仰是不可信的。有人说，只要有法制、有民主，社会就能公平。事实证明：即使是三权分立的法制国家，也无法避免腐败。因为他们之间是可以妥协的，美国2020年大选和太盟缠诉七哥案件，就是典型的实例。还有人鼓吹精英治国论，并千方百计贬低甚至污蔑广大劳动者，而很多劳动者也自认为没有治国能力，其实是被他们骗了。
+白宫新闻秘书 Jen Psaki 周五表示“我们正在寻找减少进口俄罗斯石油的方法，同时确保我们维持现有的全球供应需求。”避免限制俄罗斯石油，导致美国、国外汽油价格飙涨，损害消费者利益。
 
-诚然，有很多精英，他们曾经也是创造社会财富的劳动者。但是从历史的经验看，大多数精英位高权重后都会蛻变，这是人性的本质，即便有少数正义的精英也会被排挤或被杀害。全人类从古至今无一例外，只要是少数精英理政，最终广大劳动者都会沦为被剥削、被压迫、被精英们随意欺辱残害的奴隶。从这次的全球政府强制打疫苗的政令，尤其在西方的民主国家，充分暴露出精英们的本性，也足以证明人性的弱点。所以无论如何，国家的管理权不能交给少数人。
 
-据七哥直播说，中国十万分之一(14000)的人控制着全国50%的财富，按19年的GDP13万亿算，他们人均年收入46亿元，是全国人均收入的10万倍。据界面新闻报道，2020年全球最富有的10%的人群拥有全球82%的财富，1%的人掌控50%的财富，而占世界人口的71%的人，拥有的个人净资产不到1万美元。这些富人的财富都是劳动所得吗？不！99%是用各种权力掠夺而来的，这就是他们极力地、疯狂地甚至残暴地维护自己权力的根本原因，控制了财富(资源)就控制了一切。
 
-所以，无论从人性的本质(信仰)、还是从法律的角度、还是从历史的经验，只要少数人掌权必然产生腐败，必然会走向集权甚至独裁，最终成为邪恶的魔鬼。只有权力掌握在多数(2/3以上)人手中，才能抑制腐败现象，才能成为比较公平的社会(个中道理专文讨论)。为此要大力宣传和普及必须的知识，让广大的劳动者知道社会财富的创造和分配的常识，知道大家的财富是怎样被少数人欺骗和掠夺走的。还要学习有关的社会知识和法律法规，这样我们广大劳动者就能轻松地很好地管理好我们的国家，保护我们的合法权益。
+> U.S. weighs cutting Russian oil imports amid broad public support [https://t.co/4LE98DLRDw](https://t.co/4LE98DLRDw) [pic.twitter.com/BOTHnbMKQ9](https://t.co/BOTHnbMKQ9)
+> — Reuters (@Reuters) [March 5, 2022](https://twitter.com/Reuters/status/1499908879483904001?ref_src=twsrc%5Etfw)
 
-当然，这是需要一个过程的。我相信在七哥的带领下，在喜玛拉骓的监督下，新中国联邦和未来的中国人，一定有能力创造出前人没有的奇迹。
 
-全文完
 
-(少数人掌权必然腐败，多数人掌权必然公平另文探讨)
+外媒指出，美国目前一加仑普通汽油的平均价格为 3.837 美元，高于一年前的 2.745 美元。旧金山成为美国历史上第一个平均汽油价格达到每加仑 5 美元的主要城市。
 
-以上只是个人观点
+据美国官方网站数据，2020年美国石油进口俄罗斯占7%；2021年数据，据外媒报导俄罗斯占据8%。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-05-上午10.41.20.png)
+来源｜[REUTERS](https://www.reuters.com/business/energy/us-weighs-cutting-russian-oil-imports-white-house-2022-03-04/?taid=6222b28e9fa2ce00010f9326&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)、[FOX](https://www.fox19.com/2022/03/04/gas-prices-hit-highest-cost-nearly-decade-surpass-4-some-states/?outputType=apps)、[eia](https://www.eia.gov/energyexplained/oil-and-petroleum-products/imports-and-exports.php)、[NPR](https://www.npr.org/2022/03/04/1084624868/the-white-house-says-its-considering-a-range-of-options-for-russian-oil-imports)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-20.png)
-
-**审核/编辑/发稿：春草**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![This image has an empty alt attribute; its file name is image0.jpg](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

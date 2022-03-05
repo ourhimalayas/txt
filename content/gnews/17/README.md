@@ -2,36 +2,35 @@
 ---
 
 
-## 文贵先生盖特精要- 2022/03/04
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2108478/)
+## 有声|普京加强外汇管控
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2108507/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-400.png)[盖特直播链接](https://gettr.com/post/py5isw9b13)
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+俄罗斯周二表示，它尚未对因入侵乌克兰而引发的西方和美国制裁雪崩做出全面回应。外交部发言人扎哈罗娃警告称 ，西方民众还没有感受到制裁即将对他们的生活产生的影响。
 
-- 感谢战友发来问候信息。今天是郭妈妈冥诞三周年。
-- 战友们冒着危险在乌克兰前线救人，七哥和战友们的救援行动是对郭妈妈一种回报。郭妈妈是中国母亲（善良、一生生活在恐惧中）的象征。
-- 中国人被中共洗脑，普遍支持俄罗斯入侵乌克兰，忘记俄罗斯曾经在中国做过的恶，俄罗斯炮击乌克兰至少导致20名中国人死亡，中共官方未曾报道。
-- 七哥在梦里与母亲、家人、同事见面。感恩上天赐予与家人共处的梦境。
-- 录制歌曲《锁链梦》将作为郭妈妈三年冥诞礼物，稍后将播出。
-- 眼泪没有用，抛弃自私和懦弱，保护家人朋友。因中共作恶，必定让其付出更高的代价。
+随着西方的经济制裁不断升级的，俄罗斯已经启动了进一步的金融稳定工作。据路透社援引国际文传电讯社的一份克里姆林宫声明称，普京在当地时间周二晚些时候发布了一项法令，禁止所有价值超过1万美元的外汇现金出口。
 
+俄罗斯央行同时宣布，随着俄罗斯资产不断受到重创，包括卢布在过去几天跌至两年低点，俄罗斯准备采取一切必要措施来维持金融稳定。
 
-*听写：call me uncle*
+与此同时， 《莫斯科时报》报道称，“美国零售巨头耐克和苹果公司已经暂时停止在俄罗斯在线商店的销售，这肯定会给俄罗斯人民带来更多不便。”
 
-*校对: 乐禧禧*
+该公告表明，越来越多的西方产品仅是运往俄罗斯都变得越来越困难.
 
-* * *
+文字版原文：[普京加强外汇管控](https://gnews.org/zh-hans/2104738/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+音频处理：Fei797
+发稿：Fei797
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

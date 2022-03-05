@@ -2,35 +2,38 @@
 ---
 
 
-## 有声|普京加强外汇管控
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2108507/)
+## 澳洲板球传奇人物突然去世 曾注射两剂新冠疫苗
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2108563/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-俄罗斯周二表示，它尚未对因入侵乌克兰而引发的西方和美国制裁雪崩做出全面回应。外交部发言人扎哈罗娃警告称 ，西方民众还没有感受到制裁即将对他们的生活产生的影响。
+翻译/编辑：小红帽
 
-随着西方的经济制裁不断升级的，俄罗斯已经启动了进一步的金融稳定工作。据路透社援引国际文传电讯社的一份克里姆林宫声明称，普京在当地时间周二晚些时候发布了一项法令，禁止所有价值超过1万美元的外汇现金出口。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-23.png)图片来源：雅典娜设计组
 
-俄罗斯央行同时宣布，随着俄罗斯资产不断受到重创，包括卢布在过去几天跌至两年低点，俄罗斯准备采取一切必要措施来维持金融稳定。
 
-与此同时， 《莫斯科时报》报道称，“美国零售巨头耐克和苹果公司已经暂时停止在俄罗斯在线商店的销售，这肯定会给俄罗斯人民带来更多不便。”
+根据澳大利亚人报中文网3月5日报道，52岁的澳大利亚板球旋转投球传奇人物肖恩·沃恩（Shane Warne）突然死于疑似心脏病发作。他被朋友发现在泰国苏梅岛的一栋别墅里，当时已经失去反应。
 
-该公告表明，越来越多的西方产品仅是运往俄罗斯都变得越来越困难.
+据了解，他的经理安德鲁·尼奥菲图（Andrew Neophitou）在救护车到达之前，曾试图对沃恩进行心肺复苏。然而，沃恩被送往泰国国际医院后被宣布死亡。沃恩的遗体已被转移到另一家医院进行尸检。
 
-文字版原文：[普京加强外汇管控](https://gnews.org/zh-hans/2104738/)
+沃恩的家随后发表了一份声明，证实了这一令人震惊的消息。声明称：
 
-音频处理：Fei797
-发稿：Fei797
+“我们非常悲痛地通知大家，肖恩·沃恩今天（3月4日星期五）在泰国苏梅岛因疑似心脏病发作而去世。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+此前，沃恩曾表示，他在去年8月与新冠病毒战斗时曾短暂使用过呼吸机。这是在沃恩注射了两剂新冠疫苗之后发生的。在感染新冠病毒一个月后，沃恩透露他在新冠病毒感染期间的病情恶化，以至于不得不使用呼吸机。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻链接：
+
+1、[澳大利亚板球传奇人物Shane Warne在泰国突然去世 享年52岁](https://cn.theaustralian.com.au/2022/03/05/64252/)
+2、[Shane Warne: When Australian great revealed that he was put on ventilator during battle with Covid-19](https://www.hindustantimes.com/cricket/shane-warne-when-australian-great-revealed-that-he-was-put-on-ventilator-during-battle-with-covid19-101646405690379.html)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
