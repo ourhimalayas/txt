@@ -2,32 +2,28 @@
 ---
 
 
-## 有声|世界银行暂停在俄罗斯和白俄罗斯所有业务
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2111741/)
+## 乌克兰女学生求助中共驻乌使馆——电话录音
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2111749/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月2日，世界银行发布声明表示，在俄罗斯开始入侵乌克兰，并对乌克兰人民实施敌对行动后，世界银行立即停止了在俄罗斯和白俄罗斯的所有项目。
+作者：七叶之芒
 
-在该声明中，世界银行表示：自2014年以来，世界银行集团没有批准在俄罗斯的任何新贷款或投资。而自2020年年中以来，白俄罗斯也没有获得任何新的信贷批准。现在，在战火之下，这两个国家正在实施的其他项目也被全部停止。
+就在新中国联邦人废寝忘食的开展对乌克兰华人同胞大营救的同时，中国驻乌克兰大使馆的工作人员面对战争中孤苦无助的中国女学生推三阻四、不管不顾。
 
-此外，世界银行于3月1日表示，计划在未来几个月为乌克兰提供30亿美元的支持，国际货币基金组织也在计划向乌克兰提供紧急援助。
+真实的战争打碎了中国共产党的谎言，“厉害了，我的国”，“虽远必诛“的中国战狼，在此刻消失得无影无踪。
 
-文字版原文：[世界银行暂停在俄罗斯和白俄罗斯所有业务](https://gnews.org/zh-hans/2105945/)
+真实的战争中，我们没有看到中共口中的那“强大的祖国”对中国人的保护，我们看到的只是”自行撤离“的弃之不顾。
 
-音频处理：Fei797
-发稿：Fei797
+希望您能花些时间听一下这段电话录音。
+希望您能体会到中共的无耻嘴脸。
+希望在乌克兰的这位女孩子平安。
+希望在乌克兰战火中的中国同胞平安……
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*审核：七叶之芒*
+*发稿：信心的选择*
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-3.jpeg)
 
  
 
