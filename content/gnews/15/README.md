@@ -2,33 +2,24 @@
 ---
 
 
-## 俄乌战争局势趋紧 百万难民逃离乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2109160/)
+## 视频|成功获救的战友连线纽约总部 讲述逃生经历
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2109311/)
 
-作者：纽约香草山教育部 Naughty(文行)，纽约磐石农场 – 在远方，纽约香草山信息部 – 6zero4
+制作：香草山视频部
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月3日，在盖特发布的新中国联邦乌克兰救援行动直播中，已经逃离战区抵达波兰，得到新中国联邦妥善安置的香草山战友“零点夜话”，连线纽约总部，详细讲述了这段死里逃生的经历。
 
-3月2日，据外媒报道，俄军对乌克兰多个城市发动了毁灭性的炮火袭击，造成2000多名乌克兰平民死亡。沦陷的赫尔松将成为俄军深入乌克兰的关键集结地。
+零点战友说，在得知新中国联邦、法治基金将与国际救援组织合作，启动乌克兰无偿援助大行动后，填写了申请表。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-14.png)
+鉴于局势越来越紧张，小飞象鼓励他们提早离开，第一时间逃出去。零点战友带着两个家庭共七口人，勇敢地迈出了家门。火车站人山人海，车次不定，终于在凌晨登上了火车。经过三趟火车的辗转颠簸，在当地时间3日下午两点，与波兰救援基地的战友们成功汇合。
 
-据悉，俄罗斯已将沿边境集结的82%的部队转移到乌克兰本土，并加强了对哈尔科夫、马里乌波尔、赫尔松和基辅四个战略城市的进攻。经过激烈交战，位于黑海附近第聂伯河上的乌克兰南部港口城市赫尔松2日已被俄军攻陷。该市市长科利哈耶夫证实，俄军占领了市政厅，且对居民实施了宵禁。乌克兰军队在被俄军围困后撤出了这座城市，只有携带食物、药品等物资的车能以最低速度进入该市。市长恳请俄军不要向平民开枪，并希望设立一个开放的走廊来运送食品、药品和伤员，否则这座城市的平民将无法生存。
+目前，零点夜话战友及家人、朋友在酒店里休整，等待下一步的安置计划。
 
-联合国难民署3月3日表示，自俄罗斯入侵乌克兰一周以来，已有100万难民逃离了该国。难民署警告说，除非俄罗斯立即结束侵略，否则乌克兰可能产生的数百万难民，将对周边邻国造成难以想象的冲击。
+新中囯联邦的战友们都知道，在瞬息万变的战区，信息就是生机，时间就是生命。希望越来越多的同胞和友人，在新中国联邦的帮助救援下，抓住逃生的机会。正如零点战友所说，没有战争，远离硝烟，感受和平时光的美好”。
 
-参考链接：
+发稿：Daxia
 
-- [Russia steps up attacks on key Ukrainian cities as refugees reach 1 million](https://www.nbcnews.com/news/amp/rcna18243)
-- [Russian Troops Capture Ukrainian City Of Kherson, Mayor Asks Troops Not To Shoot Civilians](https://dailycaller.com/2022/03/02/ukrainian-city-taken-russian-invasion/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编：飞虹
-编辑：宁文静
-审核：木木
-校正/发稿：海阔天空1
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -36,7 +27,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

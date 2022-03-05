@@ -2,41 +2,26 @@
 ---
 
 
-## 乌克兰总统泽连斯基要求俄罗斯赔偿所有战争损失
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2109159/)
+## 视频|俄乌战争局势趋紧 百万难民逃离乌克兰
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2109305/)
 
-作者：纽约香草山 – 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-国外媒体3月3日报道，乌克兰总统泽连斯基当天向俄罗斯人民发表讲话，要求俄罗斯赔偿乌克兰所有战争损失，用于重建乌克兰国土，包括每座城市、街道和房屋。
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-8.jpg)
+3月2日，据外媒报道，俄军对乌克兰多个城市发动了毁灭性的炮火袭击，造成2000多名乌克兰平民死亡。沦陷的赫尔松将成为俄军深入乌克兰的关键集结地。
 
-泽连斯基要求俄罗斯人铭记这场侵略战争给乌克兰国家和人民带来的巨大伤害，乌克兰永远不会忘记在战争中逝去的每个乌克兰公民。
+据悉，俄罗斯已将沿边境集结的82%的部队转移到乌克兰本土，并加强了对哈尔科夫、马里乌波尔、赫尔松和基辅四个战略城市的进攻。经过激烈交战，位于黑海附近第聂伯河上的乌克兰南部港口城市赫尔松2日已被俄军攻陷。该市市长科利哈耶夫证实，俄军占领了市政厅，且对居民实施了宵禁。乌克兰军队在被俄军围困后撤出了这座城市，只有携带食物、药品等物资的车能以最低速度进入该市。市长恳请俄军不要向平民开枪，并希望设立一个开放的走廊来运送食品、药品和伤员，否则这座城市的平民将无法生存。
 
-泽连斯基指责俄罗斯军队对乌克兰平民区和公共设施狂轰乱炸。指责俄罗斯侵略战争摧毁了乌克兰的城市和人民，剥夺了乌克兰人民的一切。
+联合国难民署3月3日表示，自俄罗斯入侵乌克兰一周以来，已有100万难民逃离了该国。难民署警告说，除非俄罗斯立即结束侵略，否则乌克兰可能产生的数百万难民，将对周边邻国造成难以想象的冲击。
 
-泽连斯基将俄罗斯的侵略与中共病毒大流行相提并论，称俄罗斯的侵略是 “另一种病毒，另一种疾病”。
-
-泽连斯基在讲话中强调，只要俄罗斯军队在乌克兰就没有和平，他敦促俄罗斯士兵放弃侵略，赶快回家。他还鼓励乌克兰人民英勇保卫祖国，采用各种方式扺抗侵略者。
-
-参考链接：
-
-- [‘You Will Repay Us Everything’: Zelensky Demands Russia Pay ‘Reparations’ for War](https://www.breitbart.com/politics/2022/03/03/you-will-repay-us-everything-zelensky-demands-russia-pay-reparations-for-war/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑：飞虹
-审核：飞虹
-校正/发稿：海阔天空1
+发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

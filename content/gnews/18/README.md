@@ -2,31 +2,22 @@
 ---
 
 
-## 美日澳印四国领导人表示绝不允许乌克兰危机在印太地区发生
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2109156/)
+## 视频|郭文贵先生将新中国联邦比作中国的乌克兰
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2109299/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月3日国外媒体消息，美日澳印四国集团领导人——美国总统拜登、日本首相岸田文雄、澳洲总理莫里森与印度总理莫迪——当天举行了一次紧急视频会议，就当前的俄乌战争交换了看法。四国领导人一致表示，不应允许发生在乌克兰的事情发生在印太地区。
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-11.jpg)
+在3月2日的大直播中，郭文贵先生明确指出，新中国联邦将是中国的乌克兰。
 
-根据白宫公布的会谈联合纪要，四方领袖重申了对自由与开放印太地区的承诺：所有国家的主权与领土完整受到尊重和保护，各国不受军事、经济与政治胁迫。四国会致力于让四方安全对话成为促进地区稳定与繁荣的有效机制。
+郭先生说，在中共配合普京造谣乌克兰总统泽连斯基出逃后，泽连斯基仅在社交平台上一次直播，就戳穿了中共和普京的谎言，并让俄罗斯陷入了塔西佗陷阱。俄罗斯污蔑乌克兰为纳粹主义，也使在二战时曾受到乌克兰庇护的犹太人感到不满。
 
-四国领袖还表示将在未来数个月内在东京举行面对面会谈。
+新中国联邦的爆料革命，正是以唯真不破的精神，一次次戳穿中共的谎言，让中共在塔西佗陷阱里越陷越深。再加上新中国联邦拥有盖特这个非常重要的社交媒体平台，能让更多的中国人以及世界知道真相，将唤醒更多人。
 
-拜登在会谈后发推文表示，四方会谈涵盖对世界各地主权与领土完整的承诺，包括印太地区。
+最后郭先生提醒，不要在乎任何人对我们的评价，我们只需要在乎自己的行动。正如乌克兰危机开始前，全世界都表现出冷漠态度。但在戳穿谎言露出真相后，全世界的民意都倒向了乌克兰一样，新中国联邦亦将被世界认识，得到的支持正与日俱增。
 
-参考链接：
+发稿：Daxia
 
-- [Quad leaders agree Ukraine experience should not be allowed in Indo-Pacific -Japan, Australia](https://www.reuters.com/world/biden-quad-leaders-discuss-ukraine-thursday-white-house-2022-03-03/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑：飞虹
-审核：飞虹
-校正/发稿：海阔天空1
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -34,7 +25,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
