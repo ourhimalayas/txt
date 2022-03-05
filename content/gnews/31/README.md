@@ -2,30 +2,20 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月4日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2107273/)
+## 特鲁多未能保护受中共迫害的加拿大人
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2107644/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-1.jpg)
+加拿大温哥华扬帆农场    平民正道
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-3.png)
-文章仅代表作者本人观点，与Gnews无关
+据加拿大媒体【真北方】3月2日报道，尽管联邦政府表示将对专制国家采取强硬政策，但特鲁多当局几乎没有保护那些被中共等独裁政权迫害的加拿大人。
 
-视频参看：
-[2022.03.04早 《NFSC新闻》](https://gettr.com/streaming/py4zhzd823)
-[2022.03.04早 G|TV《新闻访谈》](https://gettr.com/streaming/py58g915d4)
+[多伦多大学]最新报告指出：中共利用网络技术和媒体宣传，通过黑客账户、社交媒体，雇佣水军等方式有组织地散布虚假信息和在线威胁等活动，来实施其“跨国镇压”。并造成被攻击人士的职业和生活都受到了负面影响，甚至被迫切断了与中共国内家人的联系。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+尽管以上信息在去年已提交给特鲁多政府，但当局至今仍未采取有效的保护措施。为此，相关各界已敦促联邦政府尽快为那些遭受中共迫害的加拿大人提供支持，以维护该国民主人权的执政基石。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-calendar-4-2.png)
+* * *
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑： 平民正道    发布：平民正道
 
  
 
