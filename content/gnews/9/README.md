@@ -2,21 +2,18 @@
 ---
 
 
-## 雅典娜时报-第223期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2108370/)
+## 蓝枫法律 四十一期 初探性产业及法律规范- PPT展示- GTV
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2108452/)
 
-#### 《雅典娜时报》汇聚全球新闻时事
+#### **加拿大温哥华扬帆农场蓝枫法律**
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/825592691433668612/949483628298141746/155_6.png?width=812&amp;height=1209)![圖片](https://media.discordapp.net/attachments/825592691433668612/949483628730146866/155_7.png?width=812&amp;height=1209)
-*发布：陶子*
+直播链接：https://gtv.org/video/id=61f5d81881ce0a3ac2a15dcb
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-39.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-23.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/5-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/7-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/8-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/9-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/10-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/12-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/13-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/14-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/15-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/16-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/17-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/18-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/19-1.png)
+直播视频：
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[第四十一期 初探性产业及法律规范](https://gtv.org/video/id=61f5d81881ce0a3ac2a15dcb)
+
+编辑/发文：蓝枫法律栏目
 
  
 

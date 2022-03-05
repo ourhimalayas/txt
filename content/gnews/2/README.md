@@ -2,37 +2,53 @@
 ---
 
 
-## 澳洲板球传奇人物突然去世 曾注射两剂新冠疫苗
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2108563/)
+## 美空军部长：中共国是比俄罗斯更危险的敌人
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2108612/)
 
-翻译/编辑：小红帽
+**加拿大多伦多蓝莲花农场  丁过**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-23.png)图片来源：雅典娜设计组
+普京为了实现象前苏联一样的大俄罗斯战略，对乌克兰发起了侵略战争，最近乌克兰总统泽伦斯基、政治刊物［经济学人］等都发出相同的警告：乌克兰沦陷后，普京的下一个目标是已加入北约的东欧国家。
 
+乔.拜登在就任美国总统前后一直认为“俄罗斯是美国最大的敌人”，俄乌战争爆发后人们不得不惊叹于拜登的战略眼光。
 
-根据澳大利亚人报中文网3月5日报道，52岁的澳大利亚板球旋转投球传奇人物肖恩·沃恩（Shane Warne）突然死于疑似心脏病发作。他被朋友发现在泰国苏梅岛的一栋别墅里，当时已经失去反应。
+但是，在去年8月上任空军部长的弗兰克‧肯德尔将军不这么认为。
 
-据了解，他的经理安德鲁·尼奥菲图（Andrew Neophitou）在救护车到达之前，曾试图对沃恩进行心肺复苏。然而，沃恩被送往泰国国际医院后被宣布死亡。沃恩的遗体已被转移到另一家医院进行尸检。
+据［囯防新闻］3月4日报道，肯德尔周四公开表示，尽管发生了俄罗斯入侵乌克兰的战争，但中共国仍然是美军的首要挑战和最危险的敌人。
 
-沃恩的家随后发表了一份声明，证实了这一令人震惊的消息。声明称：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/AP21171441485948.jpg)图片来源：Indo-Pacific Defense Forum
 
-“我们非常悲痛地通知大家，肖恩·沃恩今天（3月4日星期五）在泰国苏梅岛因疑似心脏病发作而去世。”
+肯德尔说，我们没有低估来自俄罗斯和其他方面的威胁，但需要说明的是，就“综合威慑”而言，中共国的威胁更大更紧迫。
 
-此前，沃恩曾表示，他在去年8月与新冠病毒战斗时曾短暂使用过呼吸机。这是在沃恩注射了两剂新冠疫苗之后发生的。在感染新冠病毒一个月后，沃恩透露他在新冠病毒感染期间的病情恶化，以至于不得不使用呼吸机。
+肯德尔认为，中共同时具有称霸印太和全球的野心，更可怕的是中共除了要掠夺资源，还要对外输出其共产主义极权专制，因此中共国是美国国家最大的安全挑战。
 
-新闻链接：
+肯德尔警告，军方需要记住，和中俄的“大国冲突随时可能发生。”
 
-1、[澳大利亚板球传奇人物Shane Warne在泰国突然去世 享年52岁](https://cn.theaustralian.com.au/2022/03/05/64252/)
-2、[Shane Warne: When Australian great revealed that he was put on ventilator during battle with Covid-19](https://www.hindustantimes.com/cricket/shane-warne-when-australian-great-revealed-that-he-was-put-on-ventilator-during-battle-with-covid19-101646405690379.html)
+肯德尔一直持这样的观点，在去年刚上任时，参议员乔恩·泰斯特问他“你的首要任务是什么”？肯德尔的回答是：“我有三个首要任务：中国、中国还是中国。”
 
-发布：tianzhihuan
+肯德尔上任后对中俄在太空领域的威胁表示担忧，他在2021年9月20日的30分钟演讲中27次提到中共，称来自中共的军事威胁包括对太空领域造成的威胁正在日益增强，中共毫无疑问是美国的首要挑战。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+近来肯德尔对美国空军进行了大刀活斧的改革，同时要求国会大幅增加军备预算。
+
+无独有偶，美国前国务卿蓬佩奥4日上午在台湾发表演说时指出，中共拿下台湾即可改变全球权力平衡，使中共国在和美国的较量中占上风。因此习近平不会满足于仅拿下香港，台湾是中共“一国两制”不可或缺的一部分。
+
+蓬佩奥说，习近平上台后中共意识形态的狂妄自大达到新高，也使占领台湾成为迫切的必要任务，中共所带来的危险是当今世界的中心威胁。
+
+蓬佩奥呼吁，台湾早已经是一个独立国家，美国应该外交承认中华民国台湾是自由主权国家。美国需要像冷战期间捍卫西柏林一样捍卫台湾，否则台湾的自由就会死亡。
+
+参考：
+
+[https://www.sohu.com/a/491270517\_115479](https://www.sohu.com/a/491270517_115479)
+
+[https://www.defensenews.com/air/2022/03/03/kendall-despite-russian-invasion-china-remains-militarys-top-challenge/](https://www.defensenews.com/air/2022/03/03/kendall-despite-russian-invasion-china-remains-militarys-top-challenge/)
+
+[https://www.epochtimes.com/gb/22/3/4/n13620945.htm](https://www.epochtimes.com/gb/22/3/4/n13620945.htm)
+
+校对/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

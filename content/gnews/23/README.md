@@ -2,40 +2,29 @@
 ---
 
 
-## 目光和背影
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2108038/)
+## 俄罗斯气急败坏“反制裁”，境内跨国企业只剩3选项！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2108074/)
 
-作者：香草山農場 雨過天晴Rainbow
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+俄罗斯侵略乌克兰已迈入第九天，面对国际社会纷纷对俄罗斯的制裁，如今俄罗斯竟然气急败坏的开始反击了！不仅禁止外国人拋售俄罗斯证券、停止贩售火箭引擎给美国，俄第一副总理贝洛索夫（Andrei Belousov）也对所有在俄跨国企业宣布只剩3选项可行！
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/trim.331D2257-3A5E-4681-A417-8B0AEC51C9BA_Moment.jpg)
-
-在車站的站台上，送走的是眼含愛意和淚水的孩子和妻子，姐妹和媽媽，烏克蘭男人離別的目光充滿柔情和堅毅，女人臉上掛著淚花傾述思念與支持。無人能知今日一別何時能相見，更無人知歸來時還是不是當初的你⋯⋯！
-
-讚美烏克蘭的男人和女人！看那一個個依依不捨、生離死別的擁抱和親吻，支撐著國民為國家民族對抗外來者入侵而戰鬥的信念！男人們用強壯的肩膀扛起了一個家-國家，女人們柔弱的背上也背負著一個家-溫馨的家！他們彼此之間的眼神彷彿給對方傳遞著心裡話⋯⋯戰爭結束之時，我們再重建那心愛的家園！看著鏡頭前漸漸遠去的背影，我虔誠地祈禱著⋯⋯
-
-我們不需要戰爭，我們愛好和平！
-
-感謝在參與俄烏戰區救助前線的新中國聯邦的鐵血好兒女們！作為母親的我盼望你們安全回家！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/merlin_202715436_35b9729b-798c-44a7-9c6c-21a8ed425e2c-master1050.jpg)图片来源：纽约时报
 
 
+贝洛索夫宣布，所有在俄跨国企业只剩三个选项：
+一是继续在俄罗斯全面展开业务；
+二是将股份转给俄罗斯合作伙伴管理，并在日后重返俄国市场；
+三是永久中止俄罗斯业务，关闭生产线并解僱员工。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-20.png)
+简评：俄罗斯所谓的反制裁，除了赤裸裸的威胁，就是在作死的路上狂奔！国际社会对俄罗斯的制裁是为了正义与停战制裁侵略者，俄罗斯的反制裁简直是彰显侵略的野心并毫无停手之意！全世界正义的力量联合起来，让制裁俄罗斯来的更猛烈些吧！
 
-**审核/编辑/发稿：春草**
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1080243)
 
-**更多资讯，更多关注**
+撰稿/发布：一叶知秋
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![This image has an empty alt attribute; its file name is image0.jpg](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
