@@ -2,76 +2,41 @@
 ---
 
 
-## 蓬佩奥: 毫无疑问,普京不会止步于乌克兰
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2107843/)
+## 和郭妈妈想说的几句话——纪念郭妈妈冥诞三周年
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2107886/)
 
-**前国务卿迈克.蓬佩奥**： 毫无疑问，弗拉基米尔·普京不会止步于乌克兰。 他不会停止，直到他能够在苏联的旧边界重新建立俄罗斯的影响力。
+作者、编辑：Candy
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E7%BA%AA%E5%BF%B5.png)
+今天是郭先生的母亲，郭妈妈冥诞三周年的日子。
 
+回想三年以前，我们认识您是通过郭先生仅有的一点点讲述，没有太深印象。直到得知您刚刚去世的消息，又看到王艳萍在Discord还是推特上发出的一段怀念您的文字，才对您有了较多的了解：您在过节的时候总会去盘古酒店看望员工们，您是那样慈祥的老人。我跟帖留言：感谢王艳萍，让我在脑海里对郭妈妈产生了一个比较丰满的印象。
 
+后来，在郭先生的视频中，我慢慢了解到：您的全家被流放到东北、吃穿匮乏、生活艰难的日子里，和郭老先生想尽办法抚养着八个男孩。不用说别的，仅吃一件事，就要花费多少心血才能保证八个男孩的需求！您去开荒种地、养鸡养羊，卖点青菜，上山砍柴……这些无不令我对您老人家尊敬有加，佩服得五体投地！
 
-> Make no mistake, Vladimir Putin will not stop with Ukraine.
->  
-> He will not stop until he can reestablish Russia’s influence across the old borders of the Soviet Union.
-> — Mike Pompeo (@mikepompeo) [March 4, 2022](https://twitter.com/mikepompeo/status/1499858947246854151?ref_src=twsrc%5Etfw)
+今天从郭先生的盖特视频得知：在那样穷困的日子里，当郭先生儿时的小伙伴来家里时，您还从一个小盒子里拿出一、两毛钱给他们去买点零食，让这位已经成年的伙伴至今仍然记忆犹新。因为对一个人而言，不论大人还是小孩，那不是钱多少、食物多少的事，那是您的一份爱人的心意，善良的心意感动了他。
 
+郭先生传递给我们的除了您的勤劳、坚韧、正直、善良，还有您是一位虔诚的佛教徒。这也直接影响了您的儿子郭先生，使郭先生也成了一位有信仰的灭共斗士。郭先生又影响了我们——在中国时没有信仰的人，成了有信仰的人，无论相信佛教、基督教，还是其它宗教。相信正道主义会成为我们新中国联邦人的最终信仰。
 
+虽然我们对您的了解非常有限，但从几年来郭先生带领我们灭共的过程来看，郭先生所展现出来的优良品质，爱心、耐心、善良、正直、勇敢、坚持……绝对离不开儿时您对他的影响，离不开您的教诲，为郭先生今天的成就奠定了坚实的基础。
 
-**美国务卿安东尼·布林肯**： 今天与我的北约 [@NATO](https://twitter.com/NATO) 外交部长同行们的会面至关重要，因为我们将继续与我们的盟国和欧洲伙伴就俄罗斯所选择的对乌克兰的战争进行磋商。 我们联合起来应对俄罗斯的侵略，我们保持与乌克兰团结一致。 [#UnitedWithUkraine](https://twitter.com/hashtag/UnitedWithUkraine?src=hashtag_click)
+虽然您已在天上，但郭先生带领着无数的追随者，一定会做让您引以自豪的事情：我们已经有了令人刮目相看的G系列，尤其是喜币、喜联储，还有最令中共痛心疾首的数字货币喜支付。这些都是由郭先生的天赋智慧而成，让无数战友从物质方面到精神方面都实现了一定程度的富有，为灭共的终极目标积累了必要的实力。
 
+现在，因为俄乌战争，我们很多战友冒着生命危险正在波兰营救中国同胞；而中共正在散布着谣言，影响着同胞加入到被救的行列。截至到今天几个小时前，我们已经救出60几人。
 
+郭妈妈，您的在天之灵安息吧！您的儿子郭先生和战友们，一定要实现灭共的目标。让千千万万的母亲，不再受你曾经受过的罪，不再有杨改兰的惨剧发生，不再有铁链女、铁笼女的惨状出现。让新中国联邦人有尊严、体面地活着！
 
-> Today's meeting with my [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Foreign Minister counterparts was essential, as we continue to consult with our Allies and European partners on Russia’s war of choice against Ukraine. We are united in responding to Russia’s aggression, and we remain [#UnitedWithUkraine](https://twitter.com/hashtag/UnitedWithUkraine?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/Wlg5sOBaAf](https://t.co/Wlg5sOBaAf)
-> — Secretary Antony Blinken (@SecBlinken) [March 4, 2022](https://twitter.com/SecBlinken/status/1499762807948128261?ref_src=twsrc%5Etfw)
+“子欲养而亲不待”，这又是何等悲哀！
 
+谨以此文作为郭先生的战友对您冥诞三周年的纪念！
 
+***发布：Candy***
 
-**参议员马可·卢比奥**： [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 乌克兰说他们已经重新夺回了位于黑海以北 60 公里以南的尼古拉耶夫 [#Mykolaiv](https://twitter.com/hashtag/Mykolaiv?src=hashtag_click) 军用机场 提醒一下，对于俄罗斯来说，一件事是“占领”一块领土，另一件事是要守住它。
-
-
-
-> [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) says they have retaken the military air field at [#Mykolaiv](https://twitter.com/hashtag/Mykolaiv?src=hash&amp;ref_src=twsrc%5Etfw) in the south 60km north of the Black Sea
-> 
-> A reminder that one thing is for [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) to “take” a territory, another is to hold it. 
-> 
->  [pic.twitter.com/xh3SqdWGbR](https://t.co/xh3SqdWGbR)
-> — Marco Rubio (@marcorubio) [March 4, 2022](https://twitter.com/marcorubio/status/1499788179435659265?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎.布莱克本**： 昨天，参议院终于结束了新冠全国紧急状态。 今天，我们为每一个被错误地从工作场所解雇的未接种疫苗的美国人而战。
-
-
-
-> Yesterday, the Senate finally ended the COVID national state of emergency.
-> 
-> Today, we fight for every unvaccinated American who was wrongfully fired from their place of employment.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 4, 2022](https://twitter.com/MarshaBlackburn/status/1499844485798375427?ref_src=twsrc%5Etfw)
-
-
-
-**参议员罗恩·约翰逊**： 我们的联邦卫生机构如此地傲慢不透明。 他们对美国公众傲慢骄横。 他们没有提供人们做出艰难决定以度过这一大流行病所需的信息。 【附视频，约翰逊接受福克斯主持人玛丽亚采访，抨击美国疾控中心CDC 隐瞒新冠 ([#中共病毒](https://twitter.com/hashtag/中共病毒?src=hashtag_click)) 数据】
-
-
-
-> Our federal health agencies are so arrogantly non-transparent. They are arrogant to the American public. They are not providing the information people need to make tough decisions to get through this pandemic. [pic.twitter.com/AM1GPLrPYY](https://t.co/AM1GPLrPYY)
-> — Senator Ron Johnson (@SenRonJohnson) [March 4, 2022](https://twitter.com/SenRonJohnson/status/1499829573881577479?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克.蓬佩奥**： 我认为，美国政府应立即采取必要、且早就应该采取的措施，做正确而显而易见的事情，即在美国外交上承认中华民国（台湾）是一个自由和主权的国家。
-
-这不是关于台湾未来的独立，而是关于承认一个明确无误的已经存在的现实。 事实是，正如你们过去和现在的许多领导人所明确表示的，台湾没有必要宣布独立，因为它已经是一个独立的国家。
-
-它的名字是中华民国（台湾）。 美国人民和政府应该简单地承认这一政治、外交和主权现实。 台湾人民应该得到世界对这样一个自由、民主和主权国家的尊重。
-
-
-
-> It is my view that the U.S. government should immediately take necessary, and long-overdue, steps to do the right and obvious thing, that is to offer the Republic of China (Taiwan) America’s diplomatic recognition as a free and sovereign country.
-> — Mike Pompeo (@mikepompeo) [March 4, 2022](https://twitter.com/mikepompeo/status/1499570460828315651?ref_src=twsrc%5Etfw)
-
-
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
