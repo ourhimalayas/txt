@@ -2,39 +2,30 @@
 ---
 
 
-## 有声|美日澳印四国领导人表示绝不允许乌克兰危机在印太地区发生
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2112290/)
+## NFSC新闻、G|TV新闻访谈简报|2022年3月5日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2112309/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月3日国外媒体消息，美日澳印四国集团领导人——美国总统拜登、日本首相岸田文雄、澳洲总理莫里森与印度总理莫迪——当天举行了一次紧急视频会议，就当前的俄乌战争交换了看法。四国领导人一致表示，不应允许发生在乌克兰的事情发生在印太地区。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-11.jpg)
-根据白宫公布的会谈联合纪要，四方领袖重申了对自由与开放印太地区的承诺：所有国家的主权与领土完整受到尊重和保护，各国不受军事、经济与政治胁迫。四国会致力于让四方安全对话成为促进地区稳定与繁荣的有效机制。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-1.jpg)
 
-四国领袖还表示将在未来数个月内在东京举行面对面会谈。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-5.png)
+文章仅代表作者本人观点，与Gnews无关
 
-拜登在会谈后发推文表示，四方会谈涵盖对世界各地主权与领土完整的承诺，包括印太地区。
+视频参看：
+[2022.03.05早 《NFSC新闻》](https://gettr.com/streaming/pybvk730cc)
+[2022.03.05早 G|TV《新闻访谈》](https://gettr.com/streaming/pybnpg2f62)
 
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-4.jpeg)
 
-文字版原文：[美日澳印四国领导人表示绝不允许乌克兰危机在印太地区发生](https://gnews.org/zh-hans/2109156/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
