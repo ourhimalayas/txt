@@ -33,11 +33,11 @@
 ### [由于入侵乌克兰，俄罗斯和白俄罗斯的运动员被禁止参加所有比赛](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [壳牌宣布将终止与俄罗斯国有石油公司的合作](/content/gnews/7/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [有声|乌克兰的紧急救援仍在继续](/content/gnews/8/README.md)
+### [有声|乌克兰的紧急救援仍在继续](/content/gnews/7/README.md)
  ` MOSREC`
+
+### [G-时新闻 俄罗斯违反停火协议，乌克兰暂停相关平民疏散行动](/content/gnews/8/README.md)
+ ` G-时新闻`
 
 ### [有声|概述美国对中共的帮助——巴黎和会与抗日时期](/content/gnews/9/README.md)
  ` MOSREC`
