@@ -2,45 +2,35 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2110955/)
+## 俄罗斯战俘呼吁俄军士兵不要做炮灰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2110973/)
 
-**整理：枳实**
-**美工：精灵蓝**
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月4日，据盖特消息显示，被乌克兰俘获的俄罗斯士兵近日陆续通过视频向外界传递出他们被蒙骗出战以及其自身对战争的拒绝。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-05-上午8.24.37.png)
+这些俄罗斯士兵表示，他们在出战前根本不清楚这次战争的对象和性质，而他们对此的任何疑问则全部遭到上级长官粗暴的拒绝与封口。更有士兵提到，直至进入乌克兰后他们才清楚，这次战争的目的是为了侵略乌克兰，而不是“解救”乌克兰民众。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-435.png)
+至于俄罗斯当局在交战中采取的手段，这些士兵证实，俄军不仅不会帮阵亡的将士收尸，甚至还会将伤残的俄军士兵就地处死并焚毁。
 
+为此，这些俄罗斯士兵在视频中声明，他们实际上是受到了政府的欺骗，他们既不愿意侵略乌克兰，也不愿意成为这场独裁者战争的炮灰。这些士兵也向所有的俄军将士呼吁， 请大家不要再受政府的蒙骗，成为独裁者的牺牲品。同时，他们也号召俄罗斯人民站起来反对普京，停止这场毫无意义的战争，停止这场人类的灾难。
 
+参考链接：[https://gettr.com/post/py4ufqdd33](https://gettr.com/post/py4ufqdd33)
 
-图片：雅典娜农场设计组精灵蓝
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
+总编：Irene木木
+编辑：Ivy001
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-雅典娜疫情更新（2022年 3月5日）
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-436.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-437.png)
-[2022年3月5日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月5日改进.pdf)
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：星谕
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,41 @@
 ---
 
 
-## 中共禁止报道在乌华人的伤亡情况
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2111188/)
+## 第一批辉瑞疫苗解密文件公布 数据触目惊心
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2111371/)
 
-**撰稿：日本东京方舟农场      Miyali7768(文玉)     幽蘭自得**
+作者：纽约香草山农场-6zero4
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月1日，据相关媒体报道，鉴于美国德克萨斯州北区地区法院于2月2日签发的判决书，美国食品和药品监督管理局FDA近日公布了第一批一万页的辉瑞中共病毒疫苗审批文件。其中，疫苗试用数据显示，辉瑞公司研发的中共病毒疫苗的副作用惊人，其致死率是中共病毒致死率的100倍。
 
-新中国联邦创始人郭文贵先生3月2日在直播中揭露，截至目前，已有多位华人在战争中身亡，但中共并未公开报道这些伤亡情况。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-1.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/中.png)图为乌克兰第二大城市哈尔科夫市遭俄军轰炸后的一座建筑物（图片来自美联社）
+该审批文件提到，在试验中共病毒疫苗的3个月中，超过4万名志愿者中出现了一千多起死亡案例，疫苗致死率达到2.9%。此外，在重点关注副作用一项，辉瑞公司在实验者中观察到了大量的不良反应案例：包括8.5%的志愿者患上了后天性免疫缺乏综合症，即“艾滋病”；还有3%到4%的实验者出现血液淋巴疾病、心肌炎以及其他相关心血管病。另外，辉瑞疫苗导致女性接种者孕期流产、死胎和新生儿死亡及相关不良反应的数据同样触目惊心。
 
-郭先生指出，据乌克兰外交部统计，已有二十多位中国商人被炸死，但中共并未公开报道，妄图掩盖真相。
-
-中共除了禁止报道事实外，还公开否认乌克兰媒体有关中国留学生丧生的报道。
-
-据乌克兰媒体披露，俄罗斯军队在周四（3日）晚间，轰炸了乌克兰哈尔科夫文化学院的学生宿舍，造成至少13名学生死亡。其中包括4名中国学生、1名印度学生和2名乌克兰本地学生。在死去的四名中国学生中，有两人的姓名得到确认，他们是Jin Tianhao和Li Zhi。
-
-然而，中共国官媒“环球时报-环球网”报道称，有关“两名中国留学生在哈尔科夫文化学院宿舍遭炮击身亡”的消息不属实。
-
-但截止发稿前，这条消息在环球网和多家引述的中共国网站上已无法显示。
+报道也提到，该审批文件被辉瑞公司列为机密文件：其在首页简介里强调，严禁向辉瑞、授权方或监管机构以外的群体披露、复制、分发或传播这些信息。目前，这些经过解密的疫苗数据在科学界和医学界引起了强烈反响，还有更多的文件将依照法院判决书的要求按期公布。很快的，中共病毒疫苗的真相将渐渐浮出水面。
 
 参考链接：
-1.[https://www.gettr.com/streaming/pxru0n55ba](https://www.gettr.com/streaming/pxru0n55ba)
-2.[https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/ql1-03042022070721.html](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/ql1-03042022070721.html)
+1.[BOMBSHELL: Pfizer Doc Analyzes Numerous Severe Adverse Reactions Following Inoculation](Pfizer%20Doc%20Analyzes%20Numerous%20Severe%20Adverse%20Reactions%20Following%20Inoculation)
+2. [https://phmpt.org/pfizers-documents/](https://phmpt.org/pfizers-documents/)
+3. [https://twitter.com/mydoglucky2/status/1499107368725991424?s=21](https://twitter.com/mydoglucky2/status/1499107368725991424?s=21)
+4. [https://twitter.com/disclosetv/status/1489688729778274304?s=21](https://twitter.com/disclosetv/status/1489688729778274304?s=21)
 
-素材采编：Miyali7768(文玉)    幽蘭自得
-编辑：老孙
-发布：Linda
 
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
+总编：Irene木木
+编辑：宁文静
+审核：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

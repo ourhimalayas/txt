@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/5/2022 3:54 PM (UTC)`
+
+3月5号：尊敬的战友们好，今天我在外面不方便录制视频，明天上午9:00开始大直播，请战友们高度关注，我们在乌克兰前线就爰的战友们……热点问题．待明天大直播里谈！
+![img](https://media.gettr.com/group5/getter/2022/03/05/15/2c13a671-50c9-67f9-73c9-1de295d0c9b7/out.jpg)
+
+---
+
 `@miles 3/5/2022 3:22 PM (UTC)`
 
 Ukrainian American actively involved in this Ukrainian rescue operation of the NFSC to Poland.<br/><br/>美国生活的乌克兰裔积极参与到新中国联邦此次的乌克兰救援行动之中，前往波兰。 <br/> 
@@ -151,13 +158,6 @@ Prince and Rachel: The New Federal State of China and the Rule of Law Foundation
 
 3/2/2022 Miles Guo: The reason that Germany and Switzerland gave up their neutrality is to target the CCP. The insanity of Russia and the CCP has awakened Germany and Japan, respectively. Singapore will decline, while Taiwan will become a financial empire. The UK will be the new economic superpower, and the landscape of North America and Australia will undergo drastic changes. The CCP and Russia are bound to be finished.<br/><br/>3/2/2022 文贵直播：德国和瑞士放下中立立场是要对付中共；俄罗斯和中共的疯狂分别唤醒了德国和日本；新加坡将没落，台湾会崛起为金融帝国，英国将成为新经济帝国，北美和澳洲的格局也将发生巨变，中共和俄罗斯必将完蛋<br/>
 ![img](https://media.gettr.com/group46/getter/2022/03/04/07/c19bb05f-8021-ac80-7e2c-4d271323f717/out.jpg)
-
----
-
-`@miles 3/4/2022 7:40 AM (UTC)`
-
-3/2/2022 Miles Guo: We need to be patient in waking up the Chinese, who have been ruled by the CCP with falsehood for too long. Zelenskyy has changed the stereotype of politicians by telling the world that anyone can become a leader and change the world. Pushing the election of “one person, one vote” is my life-time mission.<br/><br/>3/2/2022 文贵直播：唤醒中国人要有耐心，因为他们被以假治国的中共统治了太久；泽连斯基改变了政治家的形象，告诉世界任何人都可能成为领导人，改变世界；文贵一生的使命是推动中国的一人一票<br/>
-![img](https://media.gettr.com/group23/getter/2022/03/04/07/dcd042f3-7df3-f5c5-3d26-50aa0fd57e2f/out.jpg)
 
 ---
 
