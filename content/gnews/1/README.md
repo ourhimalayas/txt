@@ -2,8 +2,8 @@
 ---
 
 
-## 台湾将是下一个亚洲金融帝国
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2110148/)
+## 俄罗斯打醒了欧洲大陆
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2110191/)
 
 台灣寶島農場
 

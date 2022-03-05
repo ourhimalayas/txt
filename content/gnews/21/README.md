@@ -2,27 +2,37 @@
 ---
 
 
-## 有声｜通过Hpay成功用喜美元购买F1赛车
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2109538/)
+## 验尸官：有充分的信息表明，疫苗导致该男子死亡
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2109736/)
 
-**By:秘翻新闻**
+#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
 
-**2022-03-05**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-33.png)
-**[据福布斯3月4日报导，由喜马拉雅交易所（Himalaya Exchange）开发的支付应用程序喜马拉雅支付，购买了艾尔顿-塞纳的座驾-1989年的迈凯轮MP4/5 F1，价格超过$500万美元。Hpay的会员间通过稳定币喜马拉雅元-HDO转账完成。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
+编辑/整理：小鱼儿
 
-**[艾尔顿-塞纳对于过去和现在的车手和车迷来说仍然是一个传奇，他所驾驶的汽车是世界上最有价值的收藏品之一。 这笔交易表明人们对喜马拉雅交易所越来越有信心，特别是Hpay，现在是第一个版本。第二个版本的支付应用程序正在开发中。通过Hpay，用户将能够在全球范围内进行即时加密货币转账，安排自动付款，并可以用所有的数字货币从独家零售商购物。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-21.png)图片来源：雅典娜设计组
 
-**[喜马拉雅集团这样值得信赖的交易所，让企业和个人能够充分利用加密货币的崛起所带来的机会。无边界、包容性和安全性，你可以通过喜马拉雅交易所随时随地交易你的资产。该平台也是第一个将加密货币交易所与原生交易币（喜马拉雅币’HCN’）、稳定币（喜马拉雅币’HDO’）以及最近推出的支付应用（HPAY）整合在一个平台上，使其成为唯一一个完全整合加密货币生态系统的平台。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
 
-**[该平台的中心任务是使每个人能够控制他们自己的钱，实现财务自主。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
+据dungog chronicle新闻3月4日报道，在周五发布的一份报告中，验尸官西蒙·库珀（Simon Cooper）发现，里德先生死于阿斯利康（AstraZeneca）疫苗的“罕见但公认的”并发症。“这实际上，是对疫苗接种的、免疫反应的并发症，”验尸官表示。
 
-（ 秘翻新闻 文雀 编译报导 ）
+去年 7 月，44 岁的伊恩·威廉·麦克唐纳·里德，接种疫苗后头痛了四天。7 月 13 日，他和家人在塔斯马尼亚东海岸度假时，突然倒下。
 
-发布:星星
+里德先生被空运到医院，医生在那里发现了脑出血——一种涉及血管破裂、脑内出血和异常凝血的中风。尽管进行了神经外科手术，里德先生还是没有康复，并于 7 月 16 日去世。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+里德生活在塔斯马尼亚，并且是一名四个孩子的父亲。里德先生的妻子质疑，是否有充分信息（证明），与疫苗风险和副作用有关联。
+
+然而，验尸官认为这些（证据）警告是充分的，”我确信，在相关时间有足够的信息，表明与阿斯利康疫苗的潜在副作用相关。”
+
+参考新闻：[Vaccine caused Tas man’s death: Coroner](https://www.dungogchronicle.com.au/story/7645756/vaccine-caused-tas-mans-death-coroner/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
