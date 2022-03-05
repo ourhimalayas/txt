@@ -2,30 +2,30 @@
 ---
 
 
-## 加拿大的大型企业纷纷暂停或切割在俄罗斯业务
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2111942/)
+## 与普京有关联的俄罗斯女高音歌唱家退出歌剧院
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2111968/)
 
 #### 编译：Cran
 
 #### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1646504817.png)Image source: pixabay.com
-据多家媒体近日报道，最近几天来，加拿大的大型公司和企业纷纷切断或暂停在俄罗斯的业务，以抵抗其对乌克兰的侵略。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16465061061.png)Telegraph.co.uk
+据纽约邮报3月4日报道，俄罗斯女高音歌唱家，安娜·内特列布科（Anna Netrebko）在纽约大都会歌剧院（Metropolitan Opera）演出了192场之后，今年将不再受雇于该歌剧院。因为在俄罗斯入侵乌克兰后，她对弗拉基米尔·普京（Vladimir Putin）的支持再次浮出水面。她发表了批评战争的声明，但没有谴责普京。
 
-总部设在蒙特利尔（Montreal）的庞巴迪公司（Bombardier Inc.）是一家加拿大商务飞机制造商。该公司已暂停与俄罗斯客户的所有活动，包括所有形式的技术援助。在周五的新闻稿中写道，他们将继续遵守国际法律、法规和制裁。俄罗斯和英联邦约占庞巴迪客户群的6%。俄罗斯首富，阿列克谢·莫达索夫（Alexey Mordashov）是著名的庞巴迪 “环球6000” 型飞机的所有者。
+现年50岁的内特莱布科是歌剧票房最高的超级明星之一，她的退出对曼哈顿文化界是一个重大打击。“这对大都会和歌剧院来说是一个巨大的艺术损失，” 大都会总经理彼得·盖尔布（Peter Gelb）周四在一份声明中宣布。
 
-总部位于多伦多的加拿大轮胎公司（Canada Tire Corp.）是由零售，银行，信用卡，机动车维修和加油等综合性的大企业。 该公司暂停了与俄罗斯有关的业务，包括其在俄罗斯的海莉·汉森（Helly Hansen）业务，该业务包括41家在俄罗斯零售店、在线销售和产品发货，拥有。该公司表示，其首要任务是保护300多名俄罗斯员工的安全和福祉，并将在停工期间继续向他们支付工资。
+盖尔布上周日表示，大都会将不会继续与支持普京的艺术家交往。大都会此前曾试图说服内特列布科放弃对俄罗斯总统的支持。随后她取消了即将到来的演出，取消了巴塞罗那4月3日的下一场演出。她说：“我反对这场毫无意义的侵略战争，我呼吁俄罗斯立即结束这场战争，拯救我们所有人。我们现在需要和平。”
 
-总部与多伦多的金罗斯黄金公司（Kinross Gold Corp.）为一家黄金，银和煤矿开采公司。 该公司周三表示，它正在停止俄罗斯的一个开发项目，并正在库波尔（Kupol）煤矿暂停运营。同时“关注其2000多名俄罗斯员工的安全和福祉。
+内特列布科将于春季在贾科莫·普契尼（Giacomo Puccini）的“图兰朵”（Turandot）和朱塞佩·威尔第（Giuseppe Verdi）的“唐·卡洛”（Don Carlo）中演出。但这些角色将由乌克兰女高音，刘德米拉·莫纳斯蒂尔斯卡（Liudmyla Monastyrska）接替她出演这两部电影。
 
-总部位于安省（Ontario）的麦格纳国际公司（Magna International Inc.）在俄罗斯有六家工厂，约有2500名员工. 该公司周四宣布，其在俄罗斯的全部工厂已停产尽管该公司在乌克兰没有设施，但该公司表示，数千名乌克兰人在其全球业务中工作，与俄罗斯人在 “人权、多样性和包容性”方面有着相同的价值观.
+2008年，内特列布科获得了普京授予的俄罗斯人民艺术家荣誉。2014年，她向顿涅茨克的歌剧院捐赠了100万卢布（当时约合2.8万美元）。随后被拍到她举着新俄罗斯国旗的照片。该地区是一座乌克兰城市，由亲俄派控制。
 
-总部位于多伦多的目标投资公司（Purpose Investments Inc）是一家资产为2000多亿美元管理公司和养老基金。该公司周四表示，已剥离俄罗斯公司的所有直接持股，并承诺只要俄罗斯继续入侵乌克兰，就停止新的投资。
+这位歌手说：“现在不是我创作音乐和表演的时候。因此，我决定暂时退出表演。这对我来说是一个艰难的决定，但我知道我的观众会理解和尊重这个决定。”。
 
-总部位于蒙特利尔（Montreal）的公共部门养老金投资委员会（PSP Investments）是加拿大最大的养老金投资管理公司之一，其管理层净资产为2045亿美元。 该基金表示，上周已采取措施剥离其在俄罗斯的所有投资，并承诺在市场条件允许的情况下尽快退出该市场。
+内特列布科于2002年2月14日在大都会歌剧院首次亮相，当时她主演了谢尔盖·普罗科菲耶夫（Sergei，Prokofiev）的《战争与和平》。她的最后一场演出是在2019年12月31日的除夕派对上。她还客串了2004年迪士尼电影《公主日记2：王室订婚》中的角色。
 
-预计加拿大将有更多的企业停止与俄罗斯有关的运营。
+[Source](https://nypost.com/2022/03/04/russian-soprano-anna-netrebko-out-at-met-opera-over-putin-support/)
 
-Source: [1](https://www.bnnbloomberg.ca/magna-joins-other-canadian-firms-in-idling-russian-ops-over-ukraine-1.1732249) [2](https://financialpost.com/commodities/mining/its-been-a-great-place-for-us-kinross-keeps-mining-in-russia-despite-widespread-exodus) [3](https://www.ctvnews.ca/business/bombardier-canadian-tire-suspend-russia-linked-operations-over-invasion-of-ukraine-1.5806295)
+
 
  
 
