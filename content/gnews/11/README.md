@@ -2,35 +2,27 @@
 ---
 
 
-## 学子丧命乌克兰
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2110557/)
+## 全国人大开幕，军费增长7.1% 明确持续扩军路线的方针
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2110583/)
 
-作者：纽约香草山教育部-蓝之灵（hortênsia)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-一念神佛一念魔
-生生死死有选择
-可恨中共假道学
-魑魅魍魉说神佛
-孜孜学子青春气
-乖乖韭菜奉鲜血
-一叶障目不知假
-听命中共命难活
-家乡母亲望穿眼
-等到骨灰只一盒
+翻译：zicoround
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-05-122027.jpg)图片来源：yomiuri.co.jp
 
-审核/编辑/发稿:qiutian（邱甜）
+5日上午，类似于中共国国会的全国人民代表大会于北京开幕，李克强作出了政府工作报告。2022年实际国内生产总值增长目标定为“5.5%左右”，较上年的6%有所下调。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+2022年的预算方案已公布，国防费用（军费）较上年同比增长7.1%、列入预算约14505亿元（约264330亿日元）。明确了继续扩军的路线方针。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻来源：[yomiuri.co.jp][中国全人代が開幕、軍事費７・１％増…軍拡路線の継続方針が明確に](https://www.yomiuri.co.jp/world/20220305-OYT1T50112/)
+
+* * *
+
+*审核：天天 
+校对：宫米叶
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-3.jpeg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

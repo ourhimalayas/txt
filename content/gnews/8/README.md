@@ -2,28 +2,24 @@
 ---
 
 
-## NewSGman┃乌克兰战况速报 （ 3月4日）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2110578/)
+## NewSGman┃乌克兰前线救援大行动动态（ 3月4日）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2110599/)
 
 撰稿：东京樱花团/NewSGman
 
-国际法庭将开庭审理俄罗斯侵略乌克兰种族灭绝罪责
+大卫战友已到达救援第一线战区！
 
-国际刑事法院周三公布应38个缔约国和立陶宛要求
+️波兰临时救助点已建立！
 
-对俄罗斯总统普京针对乌克兰平民发起的「战争罪」进行调查
+战争无情，人间有爱！
 
-该机构检察官卡里姆・汗表示我刚才已经通知国际刑事法院主席团决定立即就此展开积极的调查，我们收集证据的工作现在已经开始
+危难之际我们战友对同胞与国际友人的最实质行动救援正是这乱世中的那份希望！
 
-研究欧中问题专家认为这开启了该机构追责大国领导人罪责的新篇章
-
-盖特链接：[https://gettr.com/post/py4cpi5d69](https://gettr.com/post/py4cpi5d69)
+盖特链接：[https://gettr.com/post/py45duedd4](https://gettr.com/post/py45duedd4)
 
 *编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
-
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
