@@ -15,56 +15,56 @@
 
 ---
 
-### [3月4日 勿忘香港（图片1-8）](/content/gnews/1/README.md)
- ` 波士顿五月花农场`
+### [四方对话：不应允许乌克兰的事发生在印太地区](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [通过喜马拉雅交易所购买标志性的迈凯轮汽车提高了对加密货币的信任度](/content/gnews/2/README.md)
+### [这就是普京的乌克兰战争 （三）](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [还原中美历史事实，揭露中共蛇“咬”农夫的丑恶嘴脸](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [香港疫情｜累计升至40万人确诊　每20港人就有一人中招](/content/gnews/3/README.md)
+ ` 蓝莲花农场`
 
-### [文•贵天成——文贵先生谈“普京”（二十）](/content/gnews/4/README.md)
+### [3月4日 勿忘香港（图片1-8）](/content/gnews/4/README.md)
+ ` 波士顿五月花农场`
+
+### [通过喜马拉雅交易所购买标志性的迈凯轮汽车提高了对加密货币的信任度](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [英雄有泪不轻弹](/content/gnews/6/README.md)
+ ` 纽约香草山MOS03`
+
+### [文•贵天成——文贵先生谈“普京”（二十）](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共弃同胞不顾 新中国联邦前往救援](/content/gnews/5/README.md)
+### [中共砖家松口称可能跟中共病毒共存](/content/gnews/8/README.md)
  ` GTV News Talk`
 
-### [中共砖家松口称可能跟中共病毒共存](/content/gnews/6/README.md)
- ` GTV News Talk`
-
-### [和郭妈妈想说的几句话——纪念郭妈妈冥诞三周年](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [受过培训的世界领导在疫情中的统一执行力—马龙采访](/content/gnews/8/README.md)
+### [受过培训的世界领导在疫情中的统一执行力—马龙采访](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [蓬佩奥: 毫无疑问,普京不会止步于乌克兰](/content/gnews/9/README.md)
+### [蓬佩奥: 毫无疑问,普京不会止步于乌克兰](/content/gnews/10/README.md)
  ` 美国政要直译推`
 
-### [俄罗斯和中共的疯狂造就新世界格局，新中国联邦秉持正道成赢家](/content/gnews/10/README.md)
+### [俄罗斯和中共的疯狂造就新世界格局，新中国联邦秉持正道成赢家](/content/gnews/11/README.md)
  ` YALUN 亚伦`
 
-### [习近平要求普京在冬奥会后入侵乌克兰](/content/gnews/11/README.md)
+### [习近平要求普京在冬奥会后入侵乌克兰](/content/gnews/12/README.md)
  ` 扬帆枫叶快讯`
 
-### [加密货币交易在俄罗斯大行王道](/content/gnews/12/README.md)
+### [加密货币交易在俄罗斯大行王道](/content/gnews/13/README.md)
  ` 扬帆枫叶快讯`
 
-### [俄乌战争将导致最严重的通货膨胀](/content/gnews/13/README.md)
+### [俄乌战争将导致最严重的通货膨胀](/content/gnews/14/README.md)
  ` 扬帆枫叶快讯`
 
-### [俄罗斯阻止外国投资撤离](/content/gnews/14/README.md)
+### [俄罗斯阻止外国投资撤离](/content/gnews/15/README.md)
  ` 扬帆枫叶快讯`
 
-### [特鲁多未能保护受中共迫害的加拿大人](/content/gnews/15/README.md)
+### [特鲁多未能保护受中共迫害的加拿大人](/content/gnews/16/README.md)
  ` 扬帆枫叶快讯`
 
-### [3/4/2022 文贵盖特：感谢上天赐予文贵跟家人团聚的长长的梦夜！文贵的《锁链梦》是给母亲的礼物](/content/gnews/16/README.md)
+### [3/4/2022 文贵盖特：感谢上天赐予文贵跟家人团聚的长长的梦夜！文贵的《锁链梦》是给母亲的礼物](/content/gnews/17/README.md)
  ` 秘密翻译组-北美组`
-
-### [祈祷的秘密––17秒纯念祈祷法](/content/gnews/17/README.md)
- ` XINYUAN`
 
 ### [3/4/2022 文贵盖特：中共洗脑中国人支持俄罗斯的非正义战争！中共宣布撤出了在乌克兰的所有华人20小时后，有4个中国学生死于俄军炮火，又有20人死亡](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
@@ -72,23 +72,23 @@
 ### [五月花简报（04/03/2022）](/content/gnews/19/README.md)
  ` mayflowertranslate`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年3月4日早](/content/gnews/20/README.md)
+### [瑞典首相安德松的首次全国电视讲话](/content/gnews/20/README.md)
+ ` XINYUAN`
+
+### [NFSC新闻、G|TV新闻访谈简报|2022年3月4日早](/content/gnews/21/README.md)
  ` 纽约香草山MOS01`
 
-### [习近平要求普京在冬奥会后入侵乌克兰](/content/gnews/21/README.md)
+### [习近平要求普京在冬奥会后入侵乌克兰](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [俄罗斯可能制造“栽赃行动”轰炸自己人](/content/gnews/22/README.md)
+### [俄罗斯可能制造“栽赃行动”轰炸自己人](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [四方安全对话：乌克兰事件不该在印太地区发生](/content/gnews/23/README.md)
+### [四方安全对话：乌克兰事件不该在印太地区发生](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [谁是普京对乌克兰发动战争的真正幕后推手？](/content/gnews/24/README.md)
+### [谁是普京对乌克兰发动战争的真正幕后推手？](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
-
-### [通过喜交所购买标志性的迈凯轮汽车引发对加密数字货币的信任](/content/gnews/25/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
 
 ### [新西兰财经G乐部2022年3月4日:财经新闻整理](/content/gnews/26/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
