@@ -2,28 +2,33 @@
 ---
 
 
-## 多名亚裔女子曼哈顿街头被袭 海外华人正面对排华仇恨威胁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2108881/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月4日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2108887/)
 
-撰稿：东京樱花团/加一颗稻草
+作者：香草山翻译部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/多名亚裔女子曼哈顿接头被袭-海外华人正面对排华仇恨威胁.png)[图片来源](https://www.nbcnews.com/news/asian-america/suspect-arrested-violent-shoving-asian-american-woman-new-york-n1258342)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-1.jpg)
 
-据大纪元3月4日报道，上周日（2月27日）在曼哈顿街头袭击亚裔女子的嫌犯于周三（3月2日）下午落网。
 
-28岁的Steven Zajonc是佛州过来的一名游民，涉嫌在两个多小时内无端对7名亚裔女子拳打、肘击和推撞，警方以七项仇恨犯罪攻击、七项仇恨犯罪未遂攻击、七项严重骚扰和七项骚扰罪，将他移交给检方。警方表示，受害的亚裔女性年龄在19岁至57岁之间，嫌疑人一声不吭就打人，受害者大多脸部肿胀或口腔撕裂，一个被送往医院。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-3.png)
+校对：Stay文苑
 
-在中共全世界投放病毒的背景之下，世界各国的民众仇恨华人的情绪逐步显现。此前就发生了华裔女子被推入铁轨丧生的事件。中共的战狼外交和小粉红的宣传也起到了推波助澜的作用，海外华人的处境令人担忧。
+编辑：Stay文苑
 
-1965印尼反共大屠杀以及1989印尼排华的事件的惨痛教训应使海外华人警醒。由中共制造的反华事件有可能在全世界发生。
+发稿：Stay文苑
 
-信息来源：
+新闻：[https://gettr.com/post/py9cbl0bbc](https://gettr.com/post/py9cbl0bbc)
+访谈：[https://gettr.com/post/py9lq26e35](https://gettr.com/post/py9lq26e35)
 
-[两小时连袭七亚裔女性纽约一游民落网](https://www.epochtimes.com/gb/22/3/4/n13621068.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-calendar-4-2.png)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

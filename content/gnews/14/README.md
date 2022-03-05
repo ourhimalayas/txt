@@ -2,35 +2,30 @@
 ---
 
 
-## 有声|普京加强外汇管控
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2108507/)
+## 新中国联邦九人团队前去救助乌克兰难民
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2108525/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-俄罗斯周二表示，它尚未对因入侵乌克兰而引发的西方和美国制裁雪崩做出全面回应。外交部发言人扎哈罗娃警告称 ，西方民众还没有感受到制裁即将对他们的生活产生的影响。
+作者、编辑：Candy
 
-随着西方的经济制裁不断升级的，俄罗斯已经启动了进一步的金融稳定工作。据路透社援引国际文传电讯社的一份克里姆林宫声明称，普京在当地时间周二晚些时候发布了一项法令，禁止所有价值超过1万美元的外汇现金出口。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/救援.png)图片来源：GETTR直播
 
-俄罗斯央行同时宣布，随着俄罗斯资产不断受到重创，包括卢布在过去几天跌至两年低点，俄罗斯准备采取一切必要措施来维持金融稳定。
 
-与此同时， 《莫斯科时报》报道称，“美国零售巨头耐克和苹果公司已经暂时停止在俄罗斯在线商店的销售，这肯定会给俄罗斯人民带来更多不便。”
+2月25日爆发的俄罗斯、乌克兰战争，给乌克兰人民造成了严重的灾难，新中国联邦第一次进行国际人道主义援助。
 
-该公告表明，越来越多的西方产品仅是运往俄罗斯都变得越来越困难.
+今天3月4日，新中国联邦组成的一行九人团队，作为第一批从纽约出发的救援人员，正在纽约的JFK机场准备登机。他们中间有医护人员，也有网络工程师，有因坚持去前线救援但得不到公司支持而毅然辞职的战友，有大学刚毕业的年轻人，也有年过六旬的老人，还有一名美籍乌克兰人……他们的唯一愿望，就是要去前线救助在乌克兰遭受战争苦难的中国同胞、美国及其他国际人士。
 
-文字版原文：[普京加强外汇管控](https://gnews.org/zh-hans/2104738/)
+他们随行携带了所能想到的抗中共病毒的药品、N95口罩及其它生活必须品。为减轻疲劳，保存精力，法制基金和法治社会为他们购买了商务舱的机票，所以他们将乘坐商务舱前往波兰。
 
-音频处理：Fei797
-发稿：Fei797
+预祝前往救援的战友们一路平安，同时祝所有在前线的战友们平安！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+***发布：Candy***
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

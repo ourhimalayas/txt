@@ -2,28 +2,26 @@
 ---
 
 
-## 俄罗斯滥炸乌克兰目标 基辅恐遭更猛烈攻击
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2107861/)
+## 中共砖家松口称可能跟中共病毒共存
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2107904/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：日本方舟农场 – Andy5
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒3月1日消息，在俄罗斯入侵乌克兰的第6天，俄军轰炸了乌克兰第二大城哈尔科夫多处目标，造成重大破坏与人员伤亡。
+当地时间2月28日，中共疾病预防控制中心的首席科学家曾光，在微博上发文称，“动态清零是特定的时期内的防疫对策，不会永远不变，在对发病、死亡容易容忍的情况下，与病毒共存是人类的长远目标”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/04-03-2022-1.jpg)图片来源网络
+![](https://assets.gnews.org/wp-content/uploads/2022/03/04-03-2022-2.jpg)图片来源网络
 
-乌克兰总统泽连斯基在视频声明中称，对哈尔科夫中央广场的火箭袭击是“彻头彻尾、毫不掩饰的恐怖。在此之后，俄罗斯变成了一个恐怖国家。”他表示没有人会原谅和忘记俄罗斯所做的一切。 有观察者认为，从俄军持续猛轰哈尔科夫，甚至动用集束炸弹进行攻击可以看，出俄军将投入更多兵力，可能发动更多地毯式轰炸，借着野蛮火力造成大量伤亡，迫使乌克兰投降。
+这段发言，跟CCP一直以来鼓吹的“坚持动态清零”相悖，墙内关于该新闻的报道，几乎都已经被下架。 另据战友每日统计的墙内数据也表明，动态清零非但没有降低墙内的感染人数，并且还越是在中共严抓动态清零的时候，出现了单日确诊病例陡增的现象。
 
 相关链接:
 
-[https://www.cna.com.tw/news/aopl/202203010167.aspx](https://www.cna.com.tw/news/aopl/202203010167.aspx)
+[https://www.cna.com.tw/news/acn/202203020117.aspx](https://www.cna.com.tw/news/acn/202203020117.aspx)
 
-[https://www.voanews.com/a/russia-steps-up-attacks-as-prelude-to-likely-renewed-offensive-on-defiant-kyiv/6464972.html](https://www.voanews.com/a/russia-steps-up-attacks-as-prelude-to-likely-renewed-offensive-on-defiant-kyiv/6464972.html)
+[https://weibo.com/u/1496814510](https://weibo.com/u/1496814510)
 
 ![This image has an empty alt attribute; its file name is March-4.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
 
-编辑: 飞虹
-
-校正/发稿：Petite abeille
+编辑/校正/发稿：Petite abeille
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
