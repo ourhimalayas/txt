@@ -2,33 +2,30 @@
 ---
 
 
-## 2022/02/28 欧盟领空将禁飞所有俄罗斯飞机
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2109956/)
+## 中日财经爆|全球多家一线奢侈品牌宣布暂停俄罗斯业务
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2110086/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-05-0831045.jpg)
-**简评：**
+撰稿：东京樱花团/peterwong
 
-欧盟主席宣布：有史以来第一次，欧盟将资助、购买、运送武器与设备给一个被侵略的国家—乌克兰。欧盟将对所有的俄罗斯飞机关闭领空，包括寡头们的私人飞机。欧盟将禁止克里姆林宫的媒体机器，‘Russia Today’和卫星媒体及其子公司将不再能够为普京的战争辩护。欧盟会张开双臂欢迎乌克兰人民。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/全球多家一线奢侈品牌宣布暂停俄罗斯业务.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.ecotextile.com%2Fimages%2Fstories%2F2021%2FJune%2FLVMH.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ecotextile.com%2F2021060927908%2Ffashion-retail-news%2Flvmh-sets-up-global-employee-support-fund.html&amp;tbnid=W47)
 
-GETTR视频链接：[https://gettr.com/post/pxj99f38e0](https://gettr.com/post/pxj99f38e0)
+全球多家一线奢侈品牌周五（3月4日）宣布，计划暂时关闭在俄罗斯的商店并暂停业务运营。
 
-**视频字幕：**
+爱马仕（Hermes）和卡地亚（Cartier）母公司历峰集团(Richemont)率先宣布，路威酩轩集团（LVMH）、开云集团（Kering）和香奈儿（CHANEL）随后跟进。
 
-**欧盟主席：**有史以来第一次，欧盟将资助购买和运送武器与设备给一个受到攻击的国家，这是一个分水岭时刻。首先，我们对俄罗斯关闭欧盟领空。我们提议禁止所有俄罗斯拥有、注册、和控制的飞机。这些飞机将不再能够降落、起飞或飞越欧盟领空，包括俄罗斯法人或自然人拥有、包租或以其他方式控制的任何飞机。让我说得更清楚一些：我们领空将对所有俄罗斯飞机关闭，也包括寡头们的私人飞机。
+LVMH发言人表示，周日（3月6日)起将关闭在俄罗斯的124家精品店，但将继续支付工资给在俄国的3,500名员工。
 
-另外一个史无前例的措施是：我们将在欧盟禁止克里姆林宫的媒体机器。其国有媒体‘Russia Today’和卫星媒体及其子公司将不再能够为普京的战争辩护，分裂我们的联盟。我们张开双臂欢迎逃离普京轰炸的乌克兰人民，并且，我对欧洲人民给予他们的热情欢迎感到骄傲。
+2月24日俄罗斯发动入侵乌克兰当天，历峰集团已停止乌克兰业务，公司声明称，3月3日也已暂停在俄罗斯的商业活动。历峰集团有大约十几家直营店，大部分在莫斯科。
 
-* * *
+投资银行富瑞估计，俄罗斯一年奢侈品销售额约为90亿美元，仅相当于中共国奢侈品消费的6%，美国的14%。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+消息来源:
 
+[加入俄罗斯出走潮 奢侈品一线品牌纷纷宣布暂停俄国业务](https://cn.reuters.com/article/global-luxury-brands-russia-stores-0305-idCNKBS2L206X?il=0)
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,10 +2,12 @@
 ---
 
 
-## 这一次直到把共产党消灭为止 让台湾绝对地独立和自由
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2110115/)
+## 至2021年底，18.7万人在接种中共病毒疫苗后20周内死亡
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2110221/)
 
-台灣寶島農場
+03/01/2022 哥大研究估计：至2021年底，18.7万人在接种中共病毒疫苗后20周内死亡。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
