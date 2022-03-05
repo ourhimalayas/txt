@@ -2,28 +2,29 @@
 ---
 
 
-## 俄乌危机将以习普消亡为终
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2111453/)
+## 俄罗斯戒严征兵升级致大量民众外逃
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2111455/)
 
-作者：纽约磐石农场 在远方
+作者：纽约磐石农场 在远方，日本东京方舟农场 Miyali7768（文玉）
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月4日，据相关媒体报道，随着俄乌战争局势的恶化，俄罗斯当地民众对当局可能或正在实施的戒严令、暴政和征兵措施愈发恐惧和担心。为此，大量的俄罗斯人正在试图逃往国外。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-05-at-9.32.53-PM.png)
+报道提及，那些外逃的俄罗斯人主要是担心该国即将到来的军事动员行动，他们大多都不愿意参与战争。因此，很大一部分人可能此生都不会再回到莫斯科。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-05-at-11.16.13-PM.png)
+资料显示，除了邻近的欧洲国家和中东地区外，美国也是这些外逃俄罗斯人的主要目的地：上万名绝望的俄罗斯人正在试图通过墨西哥入境美国，寻求联邦政府的庇护。美国海关和边境保护局的数据表明，2022年的前两个月中，接近六千名俄罗斯人正在等待美国政府的庇护。
 
+另据俄罗斯抗议监督组织数据显示，自2月24日俄乌开战以来，俄罗斯境内大约有超过七千六百人因反战示威而遭到拘禁。
 
-在3月2日的大直播中，郭文贵先生揭秘了普京和习近平二人的现实状态，以及俄中已经和即将发起的两场战争的结局，即其终将以普习二人被消灭而结束。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-05-at-11.14.56-PM.png)
-郭先生透露，普京和习近平周遭的人全靠欺瞒二人获利，而对这二人有致命威胁的也是这些身边人。尤其当西方将俄罗斯剔出SWIFT系统之时，普京身边的既得利益者大多都感到愤怒和绝望。
+参考链接：
 
-另一方面，郭先生还提到，眼下的俄乌战争改写了所有政治的本质：演员出身的泽连斯基通过战争，转变成为一名伟大的领袖——这也是普京和习近平最大的痛苦来源。
+1. [怕戒嚴被徵兵 俄羅斯人開始逃往國外](https://news.ltn.com.tw/news/world/breakingnews/3848124)
+2. [The Biden administration is asking Congress for $32.5 billion to assist Ukraine…](https://gettr.com/post/pxyixvfc59)
+3. [EXCLUSIVE: ‘If you post that you are against war they will come after you.’](https://www.dailymail.co.uk/news/article-10573625/Thousands-desperate-Russians-fleeing-Mexico-seeking-asylum.html)
 
-至于现在的俄乌战争和中共可能对台湾的侵略，郭先生指出，将有很多的俄罗斯人和中国人被普习一同绑上战车。如今，中共依靠洗脑，让墙内无知的民众为俄罗斯的侵略叫好，其还不断威胁台湾，而这些行为都将把中国人置于一场非正义的惨烈战争中。
-
-但郭先生也补充道，台湾人已经被乌克兰所鼓舞，纷纷表示将会誓死保卫自己的祖国。为此，俄罗斯和中共的这两场战争一定会导致普习两个独裁者被消灭。
-
-参考链接：[3/2/2022 Miles Guo: Putin and Xi Jinping are living in their dreams.](https://www.gettr.com/post/pxvp38414a)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-3.png)
 
-编辑：静言
+编辑：谐趣园
 总编：Irene木木
 审核：Irene木木
 校正/发稿：我不在这里

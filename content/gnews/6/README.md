@@ -2,26 +2,36 @@
 ---
 
 
-## 138名滞留乌克兰留学生求助：我们迫切想要回家！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2111548/)
+## 有声|三月桂花遍地开
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2111648/)
 
-撰稿：东京樱花团/秋明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-30.png)
-3月5号，微信“天涯笔客”公众号发布一篇文章关于138名留学生滞留乌克兰等待救援的信息。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-441.png)
-一个网名叫@兰亭序的留学生从乌克兰发布救助信息称，“希望大家关心一下乌克兰苏梅地区一百多名留学生，附近火车站被炸，桥也被炸，物资也撑不了多久，目前一直无法撤离，感谢大家了。我们目前统计还有138人。未从乌克兰苏梅地区撤出，请有关部门协调。让我们回家，我们都是留学生。”
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-442.png)
-还有一个网名叫@提壶续水的留学生发来求助信息，“我们是滞留在苏梅的留学生，从24日乌克兰爆发战争开始，我们就一直按照使馆和学校的一切指示照办，我们没有现金，购买食物需要现金不能刷卡，食物也不多，很多人一起凑活着吃饭，一天也最多一顿饭，出门买东西更是恐慌，不敢出门，时刻准备去防空洞.在防空洞的环境更是艰苦，我们几十个人在一个小小的房间，里面还是暖气供应管，不能睡不能吃喝，因为我们还要顾及疫情要带上口罩，也没有厕所，硬憋着撤出防空洞去解决.我们迫切的想要撤离苏梅，很多女生都在情绪崩溃，已经连续哭了好几天了，没有食物没有交通，我们只是想回家。
+作者：香草山福音部-melisa/录音-黎明曙光
 
-截止发稿，新浪微博已经删除了乌克兰求助信息。笔者尝试给作者留言大体说有渠道无偿援助出境，问他图片的出处平台，留了救援电话，目前没有回音。
+新中国联邦救援在乌克兰
 
-笔者迫不及待想把新中国联邦的救援告诉他们，同时写篇文章，将该信息传递出来让更多人知道真相。希望国人平安！
+华人,美国人,世界和友好人士
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+这离战火的地区
 
+免费救人不图利
 
+人的生命第一位
+
+救援飞机来了
+
+带你飞到安会的港湾
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
+
+音频处理/编辑/发稿：Daxia
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

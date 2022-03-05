@@ -2,26 +2,33 @@
 ---
 
 
-## [新中国联邦]救援大客车安全抵达波兰
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2111433/)
+## 一名俄罗斯高级将领在战争中死亡
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2111454/)
 
-加拿大温哥华扬帆农场[枫叶快讯] 晨熹
+作者：纽约香草山农场 Naughty（文行）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据了解，该高级将领被证实是苏霍维茨基少将，他是俄罗斯中央军区第41合成军的副司令员。虽然俄罗斯官方尚未向外界透露苏霍维茨基的死讯，但俄罗斯伞兵空降部队联盟的一名士兵在社交媒体平台上确认，苏霍维茨基已经在一次侵略乌克兰的特别行动中死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-05-at-9.32.10-PM.png)
+有评论指出，苏霍维茨基副司令的阵亡于俄罗斯而言将是一次关键性的打击，但这将极大地提升乌克兰军队的士气。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a-3.jpg)图片来源：盖特
+目前，俄罗斯克里姆林宫官方公布的数据显示，俄军在近期的交火中损失了498名士兵，还有约一千六百人受伤。但乌克兰武装部队却表示，根据当地收集的数据，俄罗斯军队在此次武装冲突中已经有大约九千人伤亡。
 
+参考链接：[Russian general killed in Ukraine in ‘major demotivator’ to invading forces, per report](https://www.marca.com/en/lifestyle/world-news/2022/03/03/62213b1a268e3eeb428b459a.html)
 
-据3月5日美东凌晨盖特直播报道，由英国伦敦喜庄园、德国纽伦堡正义农场、西班牙巴塞喜悦农场战友们组成的救援团队，在波兰热舒夫火车站接驳点迎来了从乌克兰[利沃夫]到达的首辆[新中国联邦]救援大客车。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-据悉，该救援大客车在乌克兰战区内历经10多个小时的颠簸，最终成功安全抵达波兰境内。车内满载了70多名新中国联邦战友、华人同胞以及包括妇女和儿童在内的战争难民。在英喜农场大卫战友负责下的救援团队，向抵达的被营救人员分发了食品和饮用水，所有难民稍后都将被转移至指定的安全地点进行安置。
+编辑：Ivy001
+总编：Irene木木
+审核：Ivy001
+校正/发稿：我不在这里
 
-本次乌克兰救援行动是新中国联邦和法治基金首次与联合国国际救援组织全面合作，并得到了国际社会和友人，波兰当地政府及慈善机构的大力支持和配合，甚至还提供专门的警力对本次救援行动进行了安全保护。
-
-* * *
-
-新闻来源：[https://gettr.com/streaming/pyb7loc1af](https://gettr.com/streaming/pyb7loc1af)
-
-撰稿：晨熹， 校对编辑，发稿：硫酸羟氯喹64
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

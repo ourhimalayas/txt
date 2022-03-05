@@ -2,40 +2,29 @@
 ---
 
 
-## 乌克兰战争改写了人类政治的本质
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2111068/)
+## 大救援跟踪报道汇总：纽约援救团已安全抵达波兰（3.5）
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2111071/)
 
-撰稿：首尔天池农场—追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-2.png)
-3月2日，郭文贵先生在大直播中指出，乌克兰战争改写了人类政治的本质。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-5.jpeg)
+**3/5/2022** （秘翻组报道）
 
-首先，泽连斯基作为乌克兰总统，在俄罗斯入侵乌克兰之际，没有选择逃离，而是勇敢地带领乌克兰人誓死保卫家园，面对强大的入侵者时，全民一心，顽强抵抗。从一个曾经的演员到总统，真正演绎了人类世界伟大领袖的精神。这也是让普京和习近平都难以接受的，因为普京和习近平作为两个超级大国的独裁领袖，与泽连斯基形成鲜明的对比。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-431.png)
-其次，媒体全程播报战况增加了战争的透明度。过去的战争，没有发达的媒体全程播报战况，导致民众对战况信息不能全面真实地掌握。但这次战争中，战争场面被摄像机全程拍摄，平面、立体、真实地展现在人类面前，让人类无差别地了解到实际战况。
+经过大约7个半小时的飞行，**纽约团队出发奔赴波兰救援**的九人团队，当地时间1.30分左右，顺利抵达波兰首都华沙机场，纽约团队和德国农场的文耀和意大利农场的文科，以及西班牙文戈七雄团队会合，经过2小时休息后，将出发去波兰第二大城市克拉科夫（Kraków），是小波兰省首府，也是波兰的旧都，位于波兰南部。
 
-最后，在乌克兰战争中，人们可以自我表决支持哪一方。世界大多数人表示支持乌克兰，这不是被媒体控制的结果，而是人类根据战争的真实信息自行做出的表决。
+从华沙机场到克拉科夫正常情况是6个半小时，从那里到梅迪卡Medyla基地只有260公里了，大约还需要3小时左右，战友们一路辛苦了。
 
-新闻来源：[2022年3月2日 文贵大直播](https://gettr.com/streaming/pxru0n55ba)
+新闻来源：
+
+[https://gettr.com/post/pybwkb08de](https://gettr.com/post/pybwkb08de)
+
+[大救援跟踪报道汇总：2.26-3.04](https://gnews.org/zh-hans/2110451/)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-编辑：静言
 
-总编：飞虹
 
-审核：木木
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

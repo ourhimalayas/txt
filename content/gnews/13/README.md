@@ -2,18 +2,39 @@
 ---
 
 
-## 俄乌战争是普京一个人的非法战争
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2111469/)
+## 泽连斯基躲过了三次暗杀
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2111515/)
 
-俄罗斯攻打乌克兰的战争是普京一个人的战争，俄国内的反战呼声非常高，并且这是场俄罗斯的非法的侵略战争。
+作者：银河系农场—骄子
 
-99年中国驻南斯拉夫大使馆被炸，创造了三个英雄。当时美国提出5000万美元赔偿，江泽民给打了5折，最终美国政府还是给了每人800万美元的现金赔偿以及2000多万的捐款。可是这笔赔款都给共产党贪污的没了，最后每个家庭只拿到了100万人民币。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
-南斯拉夫大使馆事件，是中共反美的，走向邪恶的，绑架全中国人的一场最危险的行动。从那时刻开始，美国对待共产党和中共国完全不同了。
 
-**视频来源****: 20220302—****郭先生大直播**
-**视频制作****: ****文星光**
-**文案****:****文星光，梦田**
+据外媒报道，在俄罗斯对乌克兰入侵短短一周之内，泽连斯基起码躲过了三次有企图的暗杀。
+
+俄罗斯支持的阴暗瓦格纳集团是其中两次暗杀的幕后黑手。乌克兰国防部长称收到了俄罗斯联邦安全局的情报，因他们并不想参加普京的血腥侵略，从而避免了对泽连斯基的暗杀。如果刺杀成功，俄罗斯可以堂而皇之地否认。除了这两次刺杀，还有一次刺杀是车臣刺客主使的，不过他们在行刺之前就已经被捕。
+
+在俄罗斯入侵乌克兰时，美国提出撤离泽连斯基，但他拒绝了，坚持留下来与乌克兰同生共死。郭先生此前也曾爆料，泽连斯基已经成为了暗杀目标，希望上天保佑他的安全。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-57.jpeg)图片来源：NEW YORK POST
+
+参考链接：[https://nypost.com/2022/03/03/ukraine-president-zelensky-survived-three-assassination-attempts/](https://nypost.com/2022/03/03/ukraine-president-zelensky-survived-three-assassination-attempts/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-58.jpeg)
+
+编辑/校对/发稿：文敬
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+
+
+
 
  
 
