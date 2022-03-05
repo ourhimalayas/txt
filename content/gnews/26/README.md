@@ -2,36 +2,23 @@
 ---
 
 
-## 来自波兰前线的现场照片
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2111655/)
+## F1哈斯车队终止俄罗斯车手合同
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2111710/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-25.png)
+[图片来源](https://news.yahoo.co.jp/articles/6d82ddc858d2172aa29453634516712c5bc149a5/images/000#:~:text=%E3%83%8B%E3%82%AD%E3%83%BC%E3%82%BF%E3%83%BB%E3%83%9E%E3%82%BC%E3%83%94%E3%83%B3%E3%80%81%E6%AF%8D%E5%9B%BD%E3%83%AD%E3%82%B7%E3%82%A2%E3%81%AE%E3%82%A6%E3%82%AF)
 
-图片来源：前线战友
+参加一级方程式汽车系列比赛的哈斯公司5日宣布，它终止了与俄罗斯赛车手尼基塔·马泽平的合同。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/B3D686E9-AF87-48DC-9947-6C74F9763F42.jpg)
+哈斯公司还终止了与俄罗斯URALKALI（乌拉尔钾肥）公司的冠名赞助合同。采取这一措施是因为俄罗斯对乌克兰的军事入侵。
 
+信息源：[マゼピンとの契約解除　ロシア人ドライバー―F1ハース](https://news.yahoo.co.jp/articles/f426921acf4c9578a390b4222a220156f92f6f08#:~:text=%E3%83%)
 
-在救援的前线， 在波兰的基地的战友发来了现场的照片。
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
 
-大批的难民从乌克兰逃出来， 他们都是老人， 妇女，儿童。 他们无奈， 恐惧和对未来的不确定都写在他们的脸上。
-
-战争从来没有正义， 战争的受害者永远是老百姓。 我们新中国联邦人是热爱和平的人， 是乐于帮助别人的人。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/DE4C83E5-25A0-4A23-A7D2-AD8D5D5E95AE.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/C8416132-2D02-494C-8178-3BA43E67F1A3.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/D3C64392-1352-474B-BCE6-3163364DA0DE.jpg)
-
-
-救援人员已经陆续到位， 还有大部队在赶往救援的路上。
-
-前方的战友们， 祝愿你们一切安好， 早日凯旋。
-
-编辑发表： Shuizhuyu
 
  
 

@@ -2,20 +2,12 @@
 ---
 
 
-## 【G时新闻】俄罗斯入侵乌克兰：俄军攻占乌克兰核电站 多国领导人发声谴责
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2111772/)
+## 2月5日勿忘香港（图片1-9）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2111877/)
 
-加拿大温哥华扬帆农场 G时新闻 主播: 悠然 视频制作: 文雅
-
-3月4日乌克兰当局表示，俄罗斯军队已经占领了在扎波罗热的欧洲最大核电站。战争造成一百万多人逃离乌克兰。乌克兰总统泽连斯基说，这次袭击可能的后果相当于 “六个切尔诺贝利”。
-
-多个国家谴责俄罗斯袭击核电厂的行为“恐怖 ”和“不计后果”。本周末，乌克兰和俄罗斯官员预计将举行第三轮谈判。德国总理肖尔茨与俄罗斯总统普京通话一小时，呼吁俄罗斯立即停止军事行动，双方约定很快继续对话。
-
-原文链接：[https://gnews.org/zh-hans/2108154/](https://gnews.org/zh-hans/2108154/)
-
-视频链接：[https://gettr.com/post/pyafb30fef](https://gettr.com/post/pyafb30fef)
-
-发稿：野草
+设计 五月花农场 企鹅
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3A324159-EB8B-4ABB-A154-E3EB2B16BCA1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/230AFA38-9502-4312-BC30-7DF690EB0564.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/DDABB372-3F0E-4449-82C0-9530F45B2058.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/4B5AB3B4-F1A2-45E3-9162-BFBC550A951F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/513BBB4A-56ED-48E3-9A3E-50650D0BF3ED.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/E606C84F-84FC-48AC-93A1-5E7FA16EB386.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/AA8559D6-E808-421D-B72F-CA4E60C5C330.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/D855A839-ED13-41C4-B851-43EBB5F37136.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/AD1EECE1-1D58-4254-AA5F-3E3824BEF22E.jpeg)
+发布：水涨船高
 
  
 

@@ -2,36 +2,44 @@
 ---
 
 
-## 因俄罗斯入侵乌克兰，俄籍F1车手被解雇
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2111946/)
+## 分析 俄罗斯入侵乌克兰时部署了哪些武器？
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2112032/)
 
-翻译：Alan
-![](https://www.reuters.com/resizer/WSK4KUxoKfaZOqe6ZzGKwOUlLM0=/960x0/filters:quality(80)/cloudfront-us-east-2.images.arcpublishing.com/reuters/VAQLNPJIKJMCDE6VI755Q6YF34.jpg)来源：https://www.reuters.com/resizer/WSK4KUxoKfaZOqe6ZzGKwOUlLM0=/960×0/filters:quality(80)/cloudfront-us-east-2.images.arcpublishing.com/reuters/VAQLNPJIKJMCDE6VI755Q6YF34.jpg
-综合外媒以及F1官方报道，美国哈斯-法拉利车队的俄罗斯籍车手尼基塔·马泽平于3月5日正式被车队解雇。同时，车队的冠名赞助商，俄罗斯的最大钾肥生产厂家乌拉尔钾肥也被迫停止与车队合作。据了解，乌拉尔钾肥的老板为尼基塔·马泽平之父，迪米特里·马泽平，他与普京有密切来往。
+**翻译：【日本东京方舟农场】文龍杰克**
 
-距离新赛季开赛只有两周时间，马泽平被解雇之后，2022年，哈斯车队搭档七冠王迈克尔·舒马赫之子米克·舒马赫的车手预计为皮耶特罗·菲迪帕尔蒂，1972年和1974年两届世界冠军埃莫森·菲迪帕尔蒂之孙。
+美国有线电视新闻网（CNN）的工作人员周六拍到T0S-1 重型火焰喷射火箭炮系统被俄罗斯部署到乌克兰边境的镜头，俄罗斯正在部署哪些武器以及如何不被滥用成为人们关注焦点。
 
-在过去的2021赛季，尼基塔·马泽平表现惨淡，完赛的14场中，11场落后于队友舒马赫，而且因为多次无端打滑而被取名Mazespin成为网络迷因。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/180.png)（图片来源：theguardian.com）
 
-参考：
+TOS-1，外号“Buratino布拉提诺”——俄版匹诺曹——外观似一个大长鼻子，是俄罗斯常规军械库中最令人生畏的武器系统之一，它把重型远程多管火箭炮安装在 T-72 坦克底盘上，能够发射“空投高功率真空导弹”利用周围空气中的氧气引发高温爆炸。
 
-[https://www.foxnews.com/auto/who-replace-russian-formula-one-driver-nikita-mazepin](https://www.foxnews.com/auto/who-replace-russian-formula-one-driver-nikita-mazepin)
+最早TOS-1系统被苏联军队部署在阿富汗，最近的一次使用是在叙利亚。在俄罗斯军队和分裂分子集团入侵乌克兰后，在部署TOS-1系统时 ，他们在乌克兰东部和南部已经大肆滥用BM-21“Grad”冰雹火箭炮，该武器似乎被部署在位于乌克兰东北部的哈尔科夫州的周围，那里四处传播着被击毁的 BM-21 和一名阵亡俄军的照片。
 
-[https://www.reuters.com/lifestyle/sports/haas-f1-terminates-contract-with-russian-racer-mazepin-team-2022-03-05/](https://www.reuters.com/lifestyle/sports/haas-f1-terminates-contract-with-russian-racer-mazepin-team-2022-03-05/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1802.jpg)（图片来源：theguardian.com；T0S-1火箭炮。摄影：Valery Sharifulin/塔斯社）
 
 
 
-> BREAKING: Haas terminate Mazepin's contract[#F1](https://twitter.com/hashtag/F1?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ysKBx87sAd](https://t.co/ysKBx87sAd)
-> — Formula 1 (@F1) [March 5, 2022](https://twitter.com/F1/status/1500032618133340162?ref_src=twsrc%5Etfw)
+公民调查网Bellingcat也一直在收集“乌俄战争”中俄军疑似使用 Uragan飓风火箭炮 和 Smerch 自行火箭炮发射集束子母炸弹的证​​据。
 
+俄军在入侵乌克兰期间对居民区使用多管火箭炮和巡航导弹已经受到国际谴责。国际特赦组织秘书长阿涅斯·卡拉马德（Agnès Callamard）表示：“俄军公然漠视乌克兰平民的生命，在人口密集区使用具有大规模杀伤力的弹道导弹和其他爆炸性武器。”
 
+”
 
-编辑：LILY
+她警告说：“有一些攻击可能犯下了战争罪。而俄罗斯政府谎称攻击中只使用精确制导武器，俄方应为这些攻击行为负责。”
 
-发布：NIE
+虽然目前俄罗斯入侵期间使用了大量常规武器系统——包括 T-72 坦克和 BMP3版装甲车—以及 Mi8 和 Ka-52 武装直升机，但特别针对俄军向乌克兰居民聚集区使用 Kalibr巡航导弹引发了极大的国际专注。
 
-日期：2022-03-05
-![](https://assets.gnews.org/wp-content/uploads/2022/02/DA2FFC16-CFD3-4CBE-A6EF-8D83D11E5A70.jpeg)
+有报道称，Kalibrs导弹可以从俄军军舰、飞机和潜艇上发射，用于袭击基辅和南部港口城市敖德萨。
+
+注：本文仅代表作者观点。
+
+原文链接：
+[https://www.theguardian.com/world/2022/feb/27/analysis-what-weapons-is-russia-deploying-in-ukraine-invasion](https://www.theguardian.com/world/2022/feb/27/analysis-what-weapons-is-russia-deploying-in-ukraine-invasion)
+
+素材採編：妙喜小油鍋
+校对：妙喜小油鍋
+发布：Linda
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

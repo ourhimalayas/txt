@@ -2,23 +2,42 @@
 ---
 
 
-## F1哈斯车队终止俄罗斯车手合同
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2111710/)
+## 故宫太和殿的大门被风吹倒
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2111748/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-25.png)
-[图片来源](https://news.yahoo.co.jp/articles/6d82ddc858d2172aa29453634516712c5bc149a5/images/000#:~:text=%E3%83%8B%E3%82%AD%E3%83%BC%E3%82%BF%E3%83%BB%E3%83%9E%E3%82%BC%E3%83%94%E3%83%B3%E3%80%81%E6%AF%8D%E5%9B%BD%E3%83%AD%E3%82%B7%E3%82%A2%E3%81%AE%E3%82%A6%E3%82%AF)
+作者：银河系农场—骄子
 
-参加一级方程式汽车系列比赛的哈斯公司5日宣布，它终止了与俄罗斯赛车手尼基塔·马泽平的合同。
 
-哈斯公司还终止了与俄罗斯URALKALI（乌拉尔钾肥）公司的冠名赞助合同。采取这一措施是因为俄罗斯对乌克兰的军事入侵。
 
-信息源：[マゼピンとの契約解除　ロシア人ドライバー―F1ハース](https://news.yahoo.co.jp/articles/f426921acf4c9578a390b4222a220156f92f6f08#:~:text=%E3%83%)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
 
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-31.png)
+
+2022年3月4日，农历二月二龙抬头，北京大风，好巧不巧吹倒了故宫太和殿的大门。太和殿位于北京中轴线上，俗称金銮殿，是皇权的象征，古时皇帝登基、文武官员朝会、册封皇后等大典都在此举行。
+
+民间的二月二龙抬头是个好日子，老黄历里的今天是丙辰日，辰就是龙，同时这一天共产党的两会也在北京召开，残奥会也在今天开幕，有网友称这是几百年不遇的事，太和殿作为最高权力的象征，轰然倒塌，对于迷信的共产党来说，可能更增添了一些恐惧。
+
+参考来源：[https://gettr.com/post/py4l17307e](https://gettr.com/post/py4l17307e)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
+
+编辑/校对/发稿：Daxia
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
 
  
 

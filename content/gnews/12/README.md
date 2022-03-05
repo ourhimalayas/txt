@@ -2,22 +2,30 @@
 ---
 
 
-## 【秘翻在线】为控制舆论，普京签署新法镇压“假新闻”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2111870/)
+## 加拿大的大型企业纷纷暂停或切割在俄罗斯业务
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2111942/)
 
-#### 翻译/撰稿：zzballack
+#### 编译：Cran
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-458.png)    图片来源：Opindia
-据《新闻极限》（Newsmax）3月4日报道，由于入侵乌克兰引发国际谴责，日益被排斥的俄罗斯正在加紧进行信息战。俄罗斯议会3月4日通过了一项新法案，将给予莫斯科更大权力来镇压独立新闻行业，这促使英国广播公司BBC、彭博社（Bloomberg）和其他外国媒体暂停了在该国的报道。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1646504817.png)Image source: pixabay.com
+据多家媒体近日报道，最近几天来，加拿大的大型公司和企业纷纷切断或暂停在俄罗斯的业务，以抵抗其对乌克兰的侵略。
 
-新法律规定，任何故意传播被俄罗斯政府认定为是该国军队“假新闻”的人将面临最高15年的监禁，任何被发现诋毁俄罗斯军队或公开支持对该国进行制裁的人将面临罚款。俄罗斯国家杜马（议会下院）主席维亚切斯拉夫·沃洛金（Vyacheslav Volodin）说，这项法律将强制和严厉惩罚那些“撒谎和发表诋毁我们武装部队”的言论的人。
+总部设在蒙特利尔（Montreal）的庞巴迪公司（Bombardier Inc.）是一家加拿大商务飞机制造商。该公司已暂停与俄罗斯客户的所有活动，包括所有形式的技术援助。在周五的新闻稿中写道，他们将继续遵守国际法律、法规和制裁。俄罗斯和英联邦约占庞巴迪客户群的6%。俄罗斯首富，阿列克谢·莫达索夫（Alexey Mordashov）是著名的庞巴迪 “环球6000” 型飞机的所有者。
 
-新法律导致独立记者成群结队地离开俄罗斯，西方主要新闻机构也纷纷采取行动。美国有线电视新闻网（CNN）和哥伦比亚广播公司（CBS News）表示，他们将停止在俄罗斯的报道，其他媒体在评估局势后删除了驻俄罗斯记者的署名文章。
+总部位于多伦多的加拿大轮胎公司（Canada Tire Corp.）是由零售，银行，信用卡，机动车维修和加油等综合性的大企业。 该公司暂停了与俄罗斯有关的业务，包括其在俄罗斯的海莉·汉森（Helly Hansen）业务，该业务包括41家在俄罗斯零售店、在线销售和产品发货，拥有。该公司表示，其首要任务是保护300多名俄罗斯员工的安全和福祉，并将在停工期间继续向他们支付工资。
 
-3月3日，俄罗斯的两家自由媒体：莫斯科回声（Echo of Moscow）广播公司和TV Rain在压力下停播，因其报导普京在乌克兰的战争，检察官要求限制他们的网站。3月4日，BBC、德国之声、脸书（Facebook）和推特（Twitter）等外国网站在被俄罗斯的通信监管机构封锁后无法访问。
+总部与多伦多的金罗斯黄金公司（Kinross Gold Corp.）为一家黄金，银和煤矿开采公司。 该公司周三表示，它正在停止俄罗斯的一个开发项目，并正在库波尔（Kupol）煤矿暂停运营。同时“关注其2000多名俄罗斯员工的安全和福祉。
 
-新闻来源：[Global News Media on Defensive After Putin ‘Fake News’ Crackdown](https://www.newsmax.com/newsfront/russia-media-crackdown-facebook/2022/03/04/id/1059755/)
+总部位于安省（Ontario）的麦格纳国际公司（Magna International Inc.）在俄罗斯有六家工厂，约有2500名员工. 该公司周四宣布，其在俄罗斯的全部工厂已停产尽管该公司在乌克兰没有设施，但该公司表示，数千名乌克兰人在其全球业务中工作，与俄罗斯人在 “人权、多样性和包容性”方面有着相同的价值观.
+
+总部位于多伦多的目标投资公司（Purpose Investments Inc）是一家资产为2000多亿美元管理公司和养老基金。该公司周四表示，已剥离俄罗斯公司的所有直接持股，并承诺只要俄罗斯继续入侵乌克兰，就停止新的投资。
+
+总部位于蒙特利尔（Montreal）的公共部门养老金投资委员会（PSP Investments）是加拿大最大的养老金投资管理公司之一，其管理层净资产为2045亿美元。 该基金表示，上周已采取措施剥离其在俄罗斯的所有投资，并承诺在市场条件允许的情况下尽快退出该市场。
+
+预计加拿大将有更多的企业停止与俄罗斯有关的运营。
+
+Source: [1](https://www.bnnbloomberg.ca/magna-joins-other-canadian-firms-in-idling-russian-ops-over-ukraine-1.1732249) [2](https://financialpost.com/commodities/mining/its-been-a-great-place-for-us-kinross-keeps-mining-in-russia-despite-widespread-exodus) [3](https://www.ctvnews.ca/business/bombardier-canadian-tire-suspend-russia-linked-operations-over-invasion-of-ukraine-1.5806295)
 
  
 
