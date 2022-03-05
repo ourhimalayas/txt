@@ -2,20 +2,20 @@
 ---
 
 
-## 【G时新闻】俄罗斯入侵乌克兰：俄军攻占乌克兰核电站 多国领导人发声谴责
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2111772/)
+## 大批将乌克兰视为第二故乡的外国人正在出逃
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2111932/)
 
-加拿大温哥华扬帆农场 G时新闻 主播: 悠然 视频制作: 文雅
+#### 翻译 意大利达芬奇农场 小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-05-alle-18.10.50-1.png)图片来源：rainews.it
+成千上万的难民逃离乌克兰， 他们曾选择在那儿学习、工作、生活。
 
-3月4日乌克兰当局表示，俄罗斯军队已经占领了在扎波罗热的欧洲最大核电站。战争造成一百万多人逃离乌克兰。乌克兰总统泽连斯基说，这次袭击可能的后果相当于 “六个切尔诺贝利”。
+火车和公共汽车源源不断地将人们救出乌克兰。在逃难人群中， 相当多的外国人选择乌克兰作为学习、工作和生活的地方。他们的生活也因俄罗斯的入侵而受到影响。Przemysl 是波兰境内第一个接受众多战争难民收容点。很多人是从非洲和中东去乌克兰的，他们也在寻求帮助， 其中的许多人是在乌克兰上学的外国留学生，他们不知道自己是否能够返回家园。一些人说他们愿意尝试在其他欧洲国家继续学习而不是返回祖国。还有一些人抱怨受到歧视， 在越过波兰边境时排队的时间比波兰人长，在某些情况下还遭受过虐待。
 
-多个国家谴责俄罗斯袭击核电厂的行为“恐怖 ”和“不计后果”。本周末，乌克兰和俄罗斯官员预计将举行第三轮谈判。德国总理肖尔茨与俄罗斯总统普京通话一小时，呼吁俄罗斯立即停止军事行动，双方约定很快继续对话。
+周二， 联合国难民署将从乌克兰逃亡邻国的难民人数更新为660.000人，许多乌克兰人已经在波兰生活和工作， 波兰的入境人数最多。该机构负责人菲利普•格兰迪(Filippo Grandi)周一告诉安理会“自周四以来，Lacifra的入境人数每小时都呈指数级增长（当时难民人数已超过50万）。”他说：“ 我一直应对人道危机近40年，我很少见到出逃的人数是如此迅速地增加，当然这肯定是自巴尔干战争以来欧洲范围内规模最大的一次难民出逃。”
 
-原文链接：[https://gnews.org/zh-hans/2108154/](https://gnews.org/zh-hans/2108154/)
+原文链接：[https://www.rainews.it/photogallery/2022/03/la-fuga-degli-stranieri-che-avevano-scelto-ucraina-come-seconda-patria-37a63c0d-d3e8-4937-878b-ffbff03768ae.html](https://www.rainews.it/photogallery/2022/03/la-fuga-degli-stranieri-che-avevano-scelto-ucraina-come-seconda-patria-37a63c0d-d3e8-4937-878b-ffbff03768ae.html)
 
-视频链接：[https://gettr.com/post/pyafb30fef](https://gettr.com/post/pyafb30fef)
-
-发稿：野草
+编辑、上传： Xiao  baige
 
  
 
