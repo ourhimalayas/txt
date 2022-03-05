@@ -2,30 +2,32 @@
 ---
 
 
-## 美国贸易代表办公室报告中共国WTO遵守情况
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2109038/)
+## 俄乌战争局势趋紧 百万难民逃离乌克兰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2109160/)
 
-作者：秘密翻译组 – 乔巴
+作者：纽约香草山教育部 Naughty(文行)，纽约磐石农场 – 在远方，纽约香草山信息部 – 6zero4
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月，美国贸易代表办公室向美国国会提交了，关于中共国WTO遵守情况的年度报告。报告表示，中共加入世贸组织时自愿承诺遵守世贸组织的规定，即遵循世贸组织认可的开放、以市场为导向的经济模式，却并未做到相关承诺也未遵守规定。其由国家主导、非市场经济的政策和做法有增无减。这些政策和做法对美国企业、工人的利益，以及其他贸易伙伴造成了损害。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture2-3.jpg)
+3月2日，据外媒报道，俄军对乌克兰多个城市发动了毁灭性的炮火袭击，造成2000多名乌克兰平民死亡。沦陷的赫尔松将成为俄军深入乌克兰的关键集结地。
 
-中共采用广泛的干预性产业政策和支持措施，为中共国经济的各个行业提供大量的政府指导、大量的财政资源和有利的监管支持。为推进其产业政策目标，中共还限制进口货物和服务的市场准入，限制外国制造商和服务供应商在中共国做生意。中共利用各种手段获取外国知识产权和技术；其非市场经济的产业政策系统地扭曲了钢铁、铝、太阳能和渔业等全球经济关键领域；中共也没有履行其在2020年1月签署的《第一阶段协议》下的一些重要承诺。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-14.png)
 
-报告强调，美国迫切需要新的和更有效的多维度战略解决中共国带来的独特问题，为美国工人和企业确保一个更公平的竞争环境；美国还将与欧盟、日本以及印太地区贸易伙伴进行更深入、广泛的合作，共同解决中共国对全球贸易体系带来的许多重大问题。
+据悉，俄罗斯已将沿边境集结的82%的部队转移到乌克兰本土，并加强了对哈尔科夫、马里乌波尔、赫尔松和基辅四个战略城市的进攻。经过激烈交战，位于黑海附近第聂伯河上的乌克兰南部港口城市赫尔松2日已被俄军攻陷。该市市长科利哈耶夫证实，俄军占领了市政厅，且对居民实施了宵禁。乌克兰军队在被俄军围困后撤出了这座城市，只有携带食物、药品等物资的车能以最低速度进入该市。市长恳请俄军不要向平民开枪，并希望设立一个开放的走廊来运送食品、药品和伤员，否则这座城市的平民将无法生存。
+
+联合国难民署3月3日表示，自俄罗斯入侵乌克兰一周以来，已有100万难民逃离了该国。难民署警告说，除非俄罗斯立即结束侵略，否则乌克兰可能产生的数百万难民，将对周边邻国造成难以想象的冲击。
 
 参考链接：
 
-- [USTR says new trade tools needed to fight China state-led trade](https://www.reuters.com/business/ustr-says-new-trade-tools-needed-fight-china-state-led-trade-2022-02-16/)
-- [2021 USTR Report to Congress on China’s WTO Compliance](https://ustr.gov/sites/default/files/enforcement/WTO/2021%20USTR%20Report%20to%20Congress%20on%20China%27s%20WTO%20Compliance.pdf)
+- [Russia steps up attacks on key Ukrainian cities as refugees reach 1 million](https://www.nbcnews.com/news/amp/rcna18243)
+- [Russian Troops Capture Ukrainian City Of Kherson, Mayor Asks Troops Not To Shoot Civilians](https://dailycaller.com/2022/03/02/ukrainian-city-taken-russian-invasion/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-总编：雪梨
-编辑：飞虹
-审核：飞虹
+总编：飞虹
+编辑：宁文静
+审核：木木
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

@@ -2,36 +2,49 @@
 ---
 
 
-## 俄罗斯滥炸乌克兰目标 基辅恐遭更猛烈攻击
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2107861/)
+## 喜交所见证F1传奇赛车手标志性的迈凯轮汽车交易，开启数字货币革命光明前景
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2108046/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒3月1日消息，在俄罗斯入侵乌克兰的第6天，俄军轰炸了乌克兰第二大城哈尔科夫多处目标，造成重大破坏与人员伤亡。
+撰稿：东京樱花团开眼项目组/曲别针
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/04-03-2022-1.jpg)图片来源网络
+![](https://assets.gnews.org/wp-content/uploads/2022/03/喜交所见证F1传奇赛车手标志性的迈凯轮汽车交易，开启数字货币革命光明前景.png)（图片源自本文链接）
 
-乌克兰总统泽连斯基在视频声明中称，对哈尔科夫中央广场的火箭袭击是“彻头彻尾、毫不掩饰的恐怖。在此之后，俄罗斯变成了一个恐怖国家。”他表示没有人会原谅和忘记俄罗斯所做的一切。 有观察者认为，从俄军持续猛轰哈尔科夫，甚至动用集束炸弹进行攻击可以看，出俄军将投入更多兵力，可能发动更多地毯式轰炸，借着野蛮火力造成大量伤亡，迫使乌克兰投降。
+这辆过去由埃尔顿-塞纳（Ayrton Senna）驾驶的备受追捧的汽车，是用新推出的喜马拉雅支付应用程序（*Himalaya Pay*）购买的
 
-相关链接:
+当前，人们已经很难回避区块链技术及其应用对经济的影响。估价和交换东西的方式正在演变，为市场打开了一个全新的可能性。随着越来越多的机构接受它，这一现实将继续延伸到人们的生活中。
 
-[https://www.cna.com.tw/news/aopl/202203010167.aspx](https://www.cna.com.tw/news/aopl/202203010167.aspx)
+数字货币革命发端于加密货币的比特币，喜马拉雅支付交易已被证明是一种方便和安全的交易方式。不可否认，数字货币资产正在颠覆金融业。据《财富》商业洞察报告，2020年全球数字货币市场规模为8266亿美元，预计到2028年将上升到约1.9万亿美元，年复合增长率为11.1%。
 
-[https://www.voanews.com/a/russia-steps-up-attacks-as-prelude-to-likely-renewed-offensive-on-defiant-kyiv/6464972.html](https://www.voanews.com/a/russia-steps-up-attacks-as-prelude-to-likely-renewed-offensive-on-defiant-kyiv/6464972.html)
+许多行业预计数字货币将成为未来货币的重要组成部分，并开始接受数字货币用于商业活动。汽车行业和豪华收藏品市场就是如此。在一个历史事件中，由喜马拉雅交易所开发的新推出的支付应用程序喜马拉雅支付，已经促成了艾尔顿-塞纳的迈凯轮1989年MP4/5 F1汽车超过500万美元的交易。这辆标志性的汽车是通过喜马拉雅支付的会员间转账，使用他们的稳定币喜马拉雅币（Himalaya Dollar）私人购买的。
 
-![This image has an empty alt attribute; its file name is March-4.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
+对于过去和现在的车手和车迷来说，埃尔顿-塞纳仍然是一个传奇。对于三届F1世界冠军尼基-劳达来说，塞纳简直是 “有史以来最好的车手”。刘易斯-汉密尔顿将塞纳视为他童年时的偶像，在去年的巴西大奖赛上为塞纳揭开了一个特殊的头盔，向他致敬。
 
-编辑: 飞虹
+塞纳不仅因其在运动中获得的多项荣誉而被认可；他还因其性格而闻名。这位车手在1992年的比利时大奖赛上救了他的法国同事埃里克-科马斯的命。”他是一个非同寻常的人，也是一个出色的车手。艾尔顿的传奇和声誉仍然是完全独特的，”塞纳基金会的科马斯说。
 
-校正/发稿：Petite abeille
+![](https://assets.gnews.org/wp-content/uploads/2022/03/喜交所见证F1传奇赛车手标志性的迈凯轮汽车交易，开启数字货币革命光明前景2.png)F1传奇赛车手埃尔顿-塞纳（Ayrton Senna）
+（图片源自本文链接）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+由于他的传奇，塞纳所驾驶的汽车是世界上最有价值的收藏品之一。这笔交易表明人们对喜马拉雅交易所，特别是喜马拉雅支付应用程序的信心不断增强，该应用程序处于第一个版本。它也代表了人们对区块链技术的出现越来越有信心。
+
+迈凯伦车队的首席执行官Zak Brown表示。”在赛车运动中，很少有车辆比艾尔顿-塞纳的迈凯轮1989年MP4/5 F1赛车更具有标志性。它不仅是一件美丽的工程，而且代表了赛车运动历史上的一个特殊篇章。通过喜马拉雅交易所见证这样的交易，反映了不断创新的步伐，这是赛车运动行业的标志，无论是过去还是未来。”
+
+像喜马拉雅集团这样值得信赖的交易所，使企业和个人能够利用数字货币的崛起所创造的机会。无边界、包容性和安全性，你可以通过喜马拉雅交易所随时随地交易你的资产。该平台也是第一个将数字货币交易所与原生交易币（喜马拉雅硬币HCN）、稳定币（喜马拉雅币HDO）以及最近推出的支付应用（喜马拉雅支付）整合在一个平台上，使其成为唯一一个完全整合数字货币生态系统的平台。
+
+汉密尔顿投资管理有限公司是一家管理着数十亿资产的全球基金，其创始人兼首席执行官William Je说：”数字货币在不断发展，数字货币的未来将属于那些任何人在任何时候都可以使用的平台。人们正在寻找他们可以信任的法币系统的替代品。对于F1车迷来说，埃尔顿-塞纳（Ayrton Senna）1989年的MP4/5赛车是优雅和性能的浓缩。在其最好的情况下，这也是数字货币可以代表的东西。简而言之，数字货币是一个新的资产类别，任何机构投资者或政府都不能再忽视它了。”
+
+第二个版本的支付应用程序正在开发中。通过它，用户将能够在全球范围内进行即时数字货币转账，安排自动付款，并与所有类型的数字硬币的独家零售商购物。
+
+该平台的中心任务是使个人能够控制他们的钱，实现财务自主。
+
+免责声明：本文仅提供信息，不应解释为投资建议。所有投资都涉及损失的风险。对某项投资的过去或潜在表现的任何提及，不是也不应该被理解为一种建议或对任何具体结果或利润的保证。
+
+信息来源：
+
+[**Purchase Of Iconic McLaren Vehicle Through Himalaya Exchange Raises Trust In Cryptocurrencies**](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)
+
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

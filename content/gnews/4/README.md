@@ -2,42 +2,44 @@
 ---
 
 
-## 俄罗斯各界反战情绪激增 遭打压
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2109161/)
+## 俄罗斯寡头米哈伊尔-沃特福德被发现吊死在英国豪宅中
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2109376/)
 
-作者：纽约磐石农场 – 在远方，香草山信息部 – 6zero4
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月1日，俄罗斯著名人类学者阿尔希波娃在Facebook上发帖称，俄罗斯警方拘留了试图在乌克兰驻莫斯科大使馆献花的2名妇女和5名儿童，这些孩子的年龄在7到11岁之间。他们被一辆警车带到警察局，随后被关押在一个拘留中心。虽然当天就被释放了，但警方曾威胁要从其父母手中夺走孩子的监护权。
+***评论：**俄罗斯这些寡头热衷把自己的绝大部分资产在西方国家藏匿，在俄罗斯入侵乌克兰后，对这些人的个人财产制裁建议最早来自于新中国联邦创始人郭文贵先生，德国率先没收了游艇，英国也加入了，接下来还会更多，这是一场看不见硝烟的战争。*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-7.jpg)
+据《每日来电者》(dailycaller.com) 作者：凯·史密斯 ([KAY SMYTHE](https://dailycaller.com/author/KSmythe))，2022年3月3日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-403-e1646457178409.png)多塞特警方举行移动电话执法行动
+图片来源：原文
+出生于乌克兰的寡头米哈伊尔-沃特福德周一被发现在英国最大的庄园之一被绞死。
 
-另据台媒报道，为防止对俄国政府不利的消息在境内传播，俄政府于3月1日采取行动，针对连日来报道乌克兰新闻的媒体进行打压。3月3日，俄政府又关闭了报道俄罗斯入侵乌克兰新闻的“莫斯科回声”广播电台，以及另外一家独立媒体“电视雨”的频道，并封锁了他们的网站。
+据英国《卫报》报道，现年 66 岁的石油和天然气大亨沃特福德被发现在家中死亡,情况不明，但并不可疑。另据《太阳报》报道，沃特福德的尸体周一在他位于萨里郡,弗吉尼亚沃特的温特沃斯庄园被一名园丁发现后，随后当局被叫去他家。
 
-同样在3月1日，普京顶级顾问科尔图诺夫接受Sky News采访时表示，俄罗斯对乌克兰的军事行动法理上是似是而非的，也是不可行的。他表示无法理解普京入侵乌克兰，很多人对此深感沮丧。鉴于目前局势，他认为立即停火才是当务之急。不过，目前普京已将其核心团队的范围缩小到包括将军、顾问和特工的少数几人。像科尔图诺夫这样的克里姆林宫资深顾问一直被拒于门外，无法在国内对普京的统治方式发出哪怕微小的声音。
+虽然《太阳报》报道称沃特福德是俄罗斯人，但据《卫报》报道，他在苏联解体前于1955年出生于乌克兰。该媒体指出，他出生于米哈伊尔-托尔斯泰亚，在21世纪初移居英国时，他将自己的姓氏英文化。 据报道，他的三个孩子和他的爱沙尼亚籍妻子简幸存下来
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-404.png)
+据《太阳报》报道，这位寡头的母亲住在他位于萨里的别墅式住宅的邻近公寓里. 据称她在离开乌克兰后坚持保留她的苏联身份证。沃特福德在2015年接受《星期日泰晤士报》采访时说，他的母亲“坚信共产党人将回到俄罗斯和乌克兰……我们祈祷她的梦想永远不会实现”。
 
-另据报道，俄罗斯境内仅上周就有多达2000人因参加反战示威而被捕，前后合计，现已有6840人被抓捕。
+《卫报》在另一篇文章中报道，英国外交大臣利兹-特拉斯2月27日宣布，她有一份俄罗斯寡头的“打击名单”. 这些寡头在俄罗斯入侵乌克兰后将面临制裁。“我们的目标是寡头的私人飞机. 我们将针对他们的财产，我们将针对他们的其他财产。” 据报道，特拉斯在上周末告诉当地新闻机构，“他们的财产将无处可藏。”
 
-参考链接：
+文章观点仅代表作者个人，与Gnews平台无关。
 
-- [「莫斯科迴聲」停止運作！俄羅斯自由媒體最後堡壘崩塌](https://news.ltn.com.tw/news/world/breakingnews/3847735)
-- [UKRAINE WAR: Kremlin Advisor Goes Public With Opposition to Putin, but Ukraine Risks All in the East](https://pjmedia.com/vodkapundit/2022/03/02/ukraine-war-kremlin-advisor-goes-public-with-opposition-to-putin-but-ukraine-risks-all-in-the-east-n1563044)
-- [Russian police detain 5 children for trying to lay flowers at Ukrainian embassy in Moscow](https://www.theblaze.com/news/russia-kids-detained-protest-ukraine)
+原文连接：[https://dailycaller.com/2022/03/03/russian-oligarch-hanged-uk-mansion-mikhail-watford/](https://dailycaller.com/2022/03/03/russian-oligarch-hanged-uk-mansion-mikhail-watford/)
+
+翻译：洛杉矶盘古农场- TrueSky
+
+校对：洛杉矶盘古农场 – Freeearth
+
+评论：洛杉矶盘古农场 – 傻小子
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-总编：飞虹
-编辑：静言
-审核：木木
-校正/发稿：海阔天空1
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

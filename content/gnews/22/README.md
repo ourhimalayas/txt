@@ -2,25 +2,32 @@
 ---
 
 
-## 无惧生死新中国联邦救援团队飞赴波兰
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2108483/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月4日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2108887/)
 
-加拿大温哥华扬帆农场枫叶快讯 晨熹
+作者：香草山翻译部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a-2-edited.jpg)图片来源：盖特
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-1.jpg)
 
 
-据3月4日盖特直播报道，美东时间当天傍晚，新中国联邦与法治基金乌克兰救援行动的纽约团队，已乘车抵达纽约JFK国际机场，随后将乘机直接飞往波兰前线，与当地的新中国联邦救援人员汇合，共同执行本次拯救受困于俄乌战火中同胞的任务。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-3.png)
+校对：Stay文苑
 
-据悉，本次救援团队包括1名美籍乌克兰友人和9名分别来自华盛顿DC农场、纽约香草山农场、77功成农场的新中国联邦战友组成。除了参与当地的营救任务外，还将同时兼任救援现场的协调、翻译交流、摄影记者等重要任务。
+编辑：Stay文苑
 
-由于本次行动不仅是新中国联邦首次与联合国国际救援组织共同参与的人道救援行动，也是新中国联邦人第一次在海外展开的大规模营救华人同胞的战地行动，因而备受国际社会关注。期待本次行动能营救出更多被困在乌克兰战火中的华人同胞和其他受困民众。
+发稿：Stay文苑
 
-* * *
+新闻：[https://gettr.com/post/py9cbl0bbc](https://gettr.com/post/py9cbl0bbc)
+访谈：[https://gettr.com/post/py9lq26e35](https://gettr.com/post/py9lq26e35)
 
-撰稿：晨熹 校对编辑，发稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-calendar-4-2.png)
 
-新闻来源：https://gettr.com/streaming/py8k3mecdc
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
