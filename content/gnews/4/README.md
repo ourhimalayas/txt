@@ -2,36 +2,42 @@
 ---
 
 
-## 俄罗斯滥炸乌克兰目标 基辅恐遭更猛烈攻击
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2107861/)
+## 和郭妈妈想说的几句话——纪念郭妈妈冥诞三周年
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2107886/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒3月1日消息，在俄罗斯入侵乌克兰的第6天，俄军轰炸了乌克兰第二大城哈尔科夫多处目标，造成重大破坏与人员伤亡。
+作者、编辑：Candy
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E7%BA%AA%E5%BF%B5.png)
+今天是郭先生的母亲，郭妈妈冥诞三周年的日子。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/04-03-2022-1.jpg)图片来源网络
+回想三年以前，我们认识您是通过郭先生仅有的一点点讲述，没有太深印象。直到得知您刚刚去世的消息，又看到王艳萍在Discord还是推特上发出的一段怀念您的文字，才对您有了较多的了解：您在过节的时候总会去盘古酒店看望员工们，您是那样慈祥的老人。我跟帖留言：感谢王艳萍，让我在脑海里对郭妈妈产生了一个比较丰满的印象。
 
-乌克兰总统泽连斯基在视频声明中称，对哈尔科夫中央广场的火箭袭击是“彻头彻尾、毫不掩饰的恐怖。在此之后，俄罗斯变成了一个恐怖国家。”他表示没有人会原谅和忘记俄罗斯所做的一切。 有观察者认为，从俄军持续猛轰哈尔科夫，甚至动用集束炸弹进行攻击可以看，出俄军将投入更多兵力，可能发动更多地毯式轰炸，借着野蛮火力造成大量伤亡，迫使乌克兰投降。
+后来，在郭先生的视频中，我慢慢了解到：您的全家被流放到东北、吃穿匮乏、生活艰难的日子里，和郭老先生想尽办法抚养着八个男孩。不用说别的，仅吃一件事，就要花费多少心血才能保证八个男孩的需求！您去开荒种地、养鸡养羊，卖点青菜，上山砍柴……这些无不令我对您老人家尊敬有加，佩服得五体投地！
 
-相关链接:
+今天从郭先生的盖特视频得知：在那样穷困的日子里，当郭先生儿时的小伙伴来家里时，您还从一个小盒子里拿出一、两毛钱给他们去买点零食，让这位已经成年的伙伴至今仍然记忆犹新。因为对一个人而言，不论大人还是小孩，那不是钱多少、食物多少的事，那是您的一份爱人的心意，善良的心意感动了他。
 
-[https://www.cna.com.tw/news/aopl/202203010167.aspx](https://www.cna.com.tw/news/aopl/202203010167.aspx)
+郭先生传递给我们的除了您的勤劳、坚韧、正直、善良，还有您是一位虔诚的佛教徒。这也直接影响了您的儿子郭先生，使郭先生也成了一位有信仰的灭共斗士。郭先生又影响了我们——在中国时没有信仰的人，成了有信仰的人，无论相信佛教、基督教，还是其它宗教。相信正道主义会成为我们新中国联邦人的最终信仰。
 
-[https://www.voanews.com/a/russia-steps-up-attacks-as-prelude-to-likely-renewed-offensive-on-defiant-kyiv/6464972.html](https://www.voanews.com/a/russia-steps-up-attacks-as-prelude-to-likely-renewed-offensive-on-defiant-kyiv/6464972.html)
+虽然我们对您的了解非常有限，但从几年来郭先生带领我们灭共的过程来看，郭先生所展现出来的优良品质，爱心、耐心、善良、正直、勇敢、坚持……绝对离不开儿时您对他的影响，离不开您的教诲，为郭先生今天的成就奠定了坚实的基础。
 
-![This image has an empty alt attribute; its file name is March-4.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
+虽然您已在天上，但郭先生带领着无数的追随者，一定会做让您引以自豪的事情：我们已经有了令人刮目相看的G系列，尤其是喜币、喜联储，还有最令中共痛心疾首的数字货币喜支付。这些都是由郭先生的天赋智慧而成，让无数战友从物质方面到精神方面都实现了一定程度的富有，为灭共的终极目标积累了必要的实力。
 
-编辑: 飞虹
+现在，因为俄乌战争，我们很多战友冒着生命危险正在波兰营救中国同胞；而中共正在散布着谣言，影响着同胞加入到被救的行列。截至到今天几个小时前，我们已经救出60几人。
 
-校正/发稿：Petite abeille
+郭妈妈，您的在天之灵安息吧！您的儿子郭先生和战友们，一定要实现灭共的目标。让千千万万的母亲，不再受你曾经受过的罪，不再有杨改兰的惨剧发生，不再有铁链女、铁笼女的惨状出现。让新中国联邦人有尊严、体面地活着！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“子欲养而亲不待”，这又是何等悲哀！
+
+谨以此文作为郭先生的战友对您冥诞三周年的纪念！
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

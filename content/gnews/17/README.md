@@ -2,16 +2,10 @@
 ---
 
 
-## 五月花简报（04/03/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2107571/)
+## 3/4/2022 文贵盖特：中共洗脑中国人支持俄罗斯的非正义战争！中共宣布撤出了在乌克兰的所有华人20小时后，有4个中国学生死于俄军炮火，又有20人死亡
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2107590/)
 
-编辑：波士顿五月花—-冲天一怒
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/43913BFD-BC11-47AB-A8A8-5804B962EDE1.jpeg)
-
-*发布：思澈*
-
-
+秘密翻译组-北美组
 
  
 

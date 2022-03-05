@@ -2,34 +2,38 @@
 ---
 
 
-## 中共砖家松口称可能跟中共病毒共存
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2107904/)
+## 文•贵天成——文贵先生谈“普京”（二十）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2107934/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月28日，中共疾病预防控制中心的首席科学家曾光，在微博上发文称，“动态清零是特定的时期内的防疫对策，不会永远不变，在对发病、死亡容易容忍的情况下，与病毒共存是人类的长远目标”。
+整理：BENJ1
+编辑：Kelly
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/04-03-2022-2.jpg)图片来源网络
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-13.png)图片来源：雅典娜设计组
 
-这段发言，跟CCP一直以来鼓吹的“坚持动态清零”相悖，墙内关于该新闻的报道，几乎都已经被下架。 另据战友每日统计的墙内数据也表明，动态清零非但没有降低墙内的感染人数，并且还越是在中共严抓动态清零的时候，出现了单日确诊病例陡增的现象。
 
-相关链接:
+郭文贵先生**2022**年**2**月**9**日直播
 
-[https://www.cna.com.tw/news/acn/202203020117.aspx](https://www.cna.com.tw/news/acn/202203020117.aspx)
+马克龙作为法国的三驾马车，现在剩下两驾马车了，德国和法国去俄罗斯见普京，求求你了大爷，你不要打乌克兰，咱好好说，你的天然气，所谓的北溪2号线咱可以谈。法国承诺买你3000亿美元的天然气，你不打乌克兰行不行？然后聊一聊对北京的看法，本来见面是仨小时，最后谈了五个小时。
 
-[https://weibo.com/u/1496814510](https://weibo.com/u/1496814510)
+听说普京大谈北京，他说，你们老说我们跟中国亲近，你们这帮孙子不跟我玩儿，咱们是亲兄弟，你不跟我玩儿，我得找个人当托儿。就象那北大副教授找个罗马尼亚的、长得皮肤较白人非常不白的那种，是吧？照爱米粒、照文艺差远了，我说她那是咖啡色，还没我皮肤白的白人，那只能找一个亚洲的中国人来忽悠两下子。
 
-![This image has an empty alt attribute; its file name is March-4.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
+他说：“你看他们开幕式，完全都是假的，雪都是假的。”普京的其中一个女朋友就是花样滑冰的，普京说：“我去都不让她去，而且那个（人造）雪污染，我当场问了中共国官员，中国人说没事。那个雪的化学成份污染大地，万年不会散去，他们说没事。”
 
-编辑/校正/发稿：Petite abeille
+普京和马克龙很好地聊了聊北京的经历，说：“他们太在乎这种形式主义，吃个晚餐搞了一大堆，要让我点评，我才不跟他们吃去，染上病怎么办？中东那几个傻国家掐架，掐得要死，都想在中共国表现我是中东老大。最后1分钟，沙特王子说：‘钱不给，是吧？我是同意你人民币结算石油，我现在需要美元，你给我弄个500亿、1000亿美元，先让我结算点美元。’中共说：‘不行，来了以后再说。’‘那不行，我去之前你先给我。’”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+普京讲出这些过程的时候，他说：“你看看中东他们，就这样被共产党玩。”沙特王子，记住最有钱的沙特，是世界上最没有现金的。有些具体我在这不跟你们说，然后说：“那就以我染上病毒为由，我不去了。美国还威胁我，不让我参加。你不给我钱，我咋去呀？”这是沙特现在排第2号的人物。还什么泰国诗琳公主了，这都是干啥的？打酱油都不算，是打醋的知道吧？
+
+资料来源：郭先生GTV和盖特直播视频
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
