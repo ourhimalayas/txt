@@ -2,25 +2,23 @@
 ---
 
 
-## 英国官方数据：新冠疫苗接种者病亡率爆升
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2109449/)
+## 凶兆！中共开两会传故宫太和殿大门被吹倒
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2109466/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-53.jpg)
-图片来源： 网络图片合成
+**By:秘翻新闻**
 
-乌克兰战火纷飞的同时，一场不见硝烟、却死伤更甚的灾难正愈演愈烈。据英国The Exposé网文章，[英国卫生安全局（UKHSA）每周发布的新冠疫情数据](https://mybank.icbc.com.cn/icbc/newperbank/account/electricbillRemit.jsp?dse_sessionId=BZFWATBAIUCJAIGBGCIRATEUIWAYDCGTDSDGCVJV&amp;requestTokenid=1646447088204-1479356184&amp;isICBCEbill=1&amp;remiticon4freeofcharge=0&amp;shoufukuanFlag=1&amp;ebillFlagForWater=1&amp;huashangFlag=1https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1057599/Vaccine_surveillance_report_-_week-8.pdf)显示，当地新冠疫苗的未接种者死亡率逐减的同时，2针和3针接种者死亡率爆增，完全接种者比未接种者呈现出了更高死亡率。
+**2022-03-05**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-05-下午1.30.52.png)
+**[据新唐人3月4日报导，在周五的 2022年冬残奥会开幕式和中共政协会议开幕当日，北京刮起大风，故宫太和殿的大门被吹倒。太和殿堪称中华第一殿。皇帝登基、册立皇后等大典都在此举行。因此也是皇权的象征。太和殿大门被吹倒的视频在网络流传后，引发网友热议称：大清要完、凶兆、登基无望。但消息在微博上遭到封杀，网友留言很快被删除。](https://www.ntdtv.com/gb/2022/03/04/a103364361.html)**
 
-数据显示，2021年11 月 22 日至2022 年 2 月 20 日的8周期间，对比最近4周与前4周的死亡病例数，未接种者的死亡减少了 37%，接种者死亡却增加了 48%。2 月 24 日报告第41页数据显示，至2月20日的最近4周里，新冠死亡病例中高达9/10为2针接种者，4/5为3针接种者（见上图）。对比英格兰的新冠疫苗接种率，至2022年2月28日为止完全接种者为73.5%，加强针接种者为56.9%（[Our World in Data数据](https://mybank.icbc.com.cn/icbc/newperbank/account/electricbillRemit.jsp?dse_sessionId=BZFWATBAIUCJAIGBGCIRATEUIWAYDCGTDSDGCVJV&amp;requestTokenid=1646447088204-1479356184&amp;isICBCEbill=1&amp;remiticon4freeofcharge=0&amp;shoufukuanFlag=1&amp;ebillFlagForWater=1&amp;huashangFlag=1英格兰)）。不难看出，2针和3针接种者比未接种者呈现出了更高的死亡率。
+**[中共开两会期间常出现异象，2020年中共两会首日，北京的天空突然变的白昼如夜，连降惊雷。之后，各地又陆续出现地震、大暴雨、大雪、沙尘暴、飞蚁等异象。2021年中共两会刚结束，北京整个城市漫天黄沙，遮天蔽日，数百次航班被取消。中国至少12省市遭遇强沙尘暴袭击。](https://www.ntdtv.com/gb/2022/03/04/a103364361.html)**
 
-包括美国在内的世界多国卫生官员都曾宣称，[新冠疫苗虽然无法阻止奥米克戎变种的感染或传播，但可以防止住院和死亡](https://mybank.icbc.com.cn/icbc/newperbank/account/electricbillRemit.jsp?dse_sessionId=BZFWATBAIUCJAIGBGCIRATEUIWAYDCGTDSDGCVJV&amp;requestTokenid=1646447088204-1479356184&amp;isICBCEbill=1&amp;remiticon4freeofcharge=0&amp;shoufukuanFlag=1&amp;ebillFlagForWater=1&amp;huashangFlag=1https://www.audacy.com/kmox/news/national/cdc-director-says-vaccines-are-not-preventing-transmission)，但现实数据与他们宣传的“高达 95% 的防护效果”，看来相去甚远。
+( 秘翻新闻 二丫编辑报道 )
 
-**新闻来源：**
+发布:星星
 
-1.  [Whilst you’ve been distracted by Russia’s Invasion, the UK Gov. released a Report confirming the Fully Vaccinated now account for 9 in every 10 Covid-19 Deaths in England](https://dailyexpose.uk/2022/03/01/russia-distraction-uk-gov-revealed-triple-vaccinated-account-9-in-10-covid-deaths/)
-
-2.  [Official data: Fully vaccinated people account for 9 of 10 COVID deaths](https://www.wnd.com/2022/03/official-data-fully-vaccinated-people-account-9-10-covid-deaths/)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

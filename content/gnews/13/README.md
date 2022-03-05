@@ -2,27 +2,65 @@
 ---
 
 
-## 有声｜通过Hpay成功用喜美元购买F1赛车
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2109538/)
+## 欧洲最大的乌克兰核电站大火被扑灭(2/2)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2109581/)
 
-**By:秘翻新闻**
+编译：Jenny Ball
 
-**2022-03-05**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-33.png)
-**[据福布斯3月4日报导，由喜马拉雅交易所（Himalaya Exchange）开发的支付应用程序喜马拉雅支付，购买了艾尔顿-塞纳的座驾-1989年的迈凯轮MP4/5 F1，价格超过$500万美元。Hpay的会员间通过稳定币喜马拉雅元-HDO转账完成。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
+上接：[欧洲最大的乌克兰核电站大火被扑灭(1/2)](https://gnews.org/zh-hans/2108220/)
 
-**[艾尔顿-塞纳对于过去和现在的车手和车迷来说仍然是一个传奇，他所驾驶的汽车是世界上最有价值的收藏品之一。 这笔交易表明人们对喜马拉雅交易所越来越有信心，特别是Hpay，现在是第一个版本。第二个版本的支付应用程序正在开发中。通过Hpay，用户将能够在全球范围内进行即时加密货币转账，安排自动付款，并可以用所有的数字货币从独家零售商购物。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-396-edited-1.png)reuters.com
 
-**[喜马拉雅集团这样值得信赖的交易所，让企业和个人能够充分利用加密货币的崛起所带来的机会。无边界、包容性和安全性，你可以通过喜马拉雅交易所随时随地交易你的资产。该平台也是第一个将加密货币交易所与原生交易币（喜马拉雅币’HCN’）、稳定币（喜马拉雅币’HDO’）以及最近推出的支付应用（HPAY）整合在一个平台上，使其成为唯一一个完全整合加密货币生态系统的平台。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
+俄军从三个方向推进，围攻城市，用火炮和空袭轰炸。
 
-**[该平台的中心任务是使每个人能够控制他们自己的钱，实现财务自主。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
+莫斯科表示，其目的是解除其邻国的武装，并俘虏被其称为新纳粹分子并对其自身安全构成威胁的领导人。乌克兰及其西方盟友称这是一场征服一个拥有 4400 万人口的国家的战争的毫无根据的借口。
 
-（ 秘翻新闻 文雀 编译报导 ）
+战斗更疯狂，制裁更广泛
 
-发布:星星
+在基辅的博尔沙希夫卡附近，一枚巡航导弹的扭曲引擎躺在街道上，显然它在夜间被乌克兰防空系统所击落。
+
+居民们感到愤怒，但也为自己成功保卫了这座拥有 300 万人口的城市而感到自豪，俄罗斯希望在几天内占领这座城市。
+
+62 岁的俄罗斯人伊戈尔·列奥尼多维奇 (Igor Leonidovich) 说，俄罗斯军队“都应该下地狱”，他是50 年前还是孩童时移居乌克兰的俄罗斯人。 “对于占领者来说，情况每天都在变得越来越糟。”
+
+在俄罗斯本国，普京的主要反对者在很大程度上被监禁或流放，战争导致了对异议的进一步镇压。当局已禁止将“特殊军事行动”称为“战争”或“入侵”的报道，已有数千人被捕，反战示威被镇压。
+
+周五，俄罗斯关闭了包括英国BBC、美国之音和德国之声在内的外国广播公司。俄罗斯最着名的独立广播公司多日德电视台V Dozhd (Rain) 和埃霍·莫斯科维（ Ekho Moskvy ）电台于周四关闭。议会下院提出立法，对散布有关军队的“虚假”报道的人处以监禁。
+
+针对如此庞大的经济体上，俄罗斯遭受了前所未有的经济孤立。爱尔兰外交部长西蒙·科文尼表示，欧盟即将实施更多制裁措施，可能包括禁止悬挂俄罗斯国旗的船只在欧洲港口停靠，并禁止进口钢铁、木材、铝或煤炭。
+
+英国外交大臣利兹特拉斯表示，西方国家应该研究针对俄罗斯石油和天然气部门的措施 ——仍然被排除在制裁之外——以及如何减少对俄罗斯能源的依赖。
+
+自入侵开始以来，乌克兰只有一个相当大的城市，即南部港口赫尔松（Kherson）被俄罗斯军队攻陷。
+
+但俄罗斯军队在南方取得了最大的进展。尼古拉耶夫（Mykolayiv ）的市长说，俄军现在在他的城市里，这是一个拥有 500,000 人的造船港口。
+
+泽连斯基的军事顾问奥列克西·阿列斯托维奇（Oleksiy Arestovych）表示，俄罗斯的进攻已经停止。
+
+“我们可以对敌方进攻的未来前景感到谨慎而乐观——我认为其他地区也会停止进攻。”
+
+英国在最新情报中表示，东南部的马利乌波尔港口已被包围并遭到轰炸。那里的当局已描述处于紧急人道危机紧急。
+
+在东北部，沿着俄罗斯进攻的另一个轴心，哈尔科夫和切尔尼戈夫自入侵开始以来一直受到轰炸。罢工愈演愈烈，但防守仍在坚持。
+
+周四，俄罗斯和乌克兰的谈判代表在会谈中，就需要建立人道主义走廊以帮助平民逃离，并向战斗地区运送药品和食品达成一致。
+
+联合国儿童机构在利沃夫的一位发言人说，人们“疯涌”到这座城市。詹姆斯·埃尔德说，儿科医生正在为大规模儿童伤亡做准备，并确定他们的身份。
+
+“这里的绿色点表示很好，黄点表示急需支持。他们了解到，黑点表示孩子可能不行了。”
+
+点评：血腥的战争场面，无辜生命的丧失，普京双手沾满了乌克兰人民和俄罗斯人民的鲜血！
+
+【完结】
+
+素材链接：【reuters.com】[Russian law on ‘fake news’ prompts media to halt reporting as websites blocked](https://www.reuters.com/markets/europe/top-wrap-1-europes-largest-nuclear-power-plant-fire-after-russian-attack-mayor-2022-03-04/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=Reuters%20Daily%20Briefing&amp;utm_content=4-3-22&amp;utm_campaign=4-3-22)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+
+审核：文乐
+校对：花羽
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

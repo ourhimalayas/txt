@@ -2,33 +2,31 @@
 ---
 
 
-## 嫉妒让人盲了眼睛，蒙了心智
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2109347/)
+## Coinbase首席执行官说普通俄罗斯人正在使用加密货币作为生命线
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2109366/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月2日大直播中郭先生与战友分享俄罗斯普京、中共习近平以及乌克兰泽连斯基，这三个处在世界漩涡中心的人此时的状况。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-27.png)
-基于郭先生的情报，告诉西方世界，独裁国家领导人的身体状况会改变整个世界局势，很多历史人物都是在身体发生重大变化时做出了不可思议的决定，当时西方不以为意。普京靠长期的肉毒杆菌来维持美貌，底子差得很，习近平身体刚刚动过大手术，差点死了。普京对乌克兰发动的侵略，在普京和习近平独裁者眼里不过是一个小丑的泽连斯基，凭借着优秀的应战表现，目前却成为了世界的杰出政治领袖。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-51.jpg)
+图片来源：网络截图
 
-这让以大帝和太阳自称的普习情何以堪，嫉妒之心，让他们盲了眼睛，蒙了心智。普习花费数年在社交媒体营造的完美人设瞬间崩塌，社交媒体的广泛性更加剧了真实世界的展现，在直播面前，没人可以撒谎，在真相面前，会有更多的善良。热爱生命，反对战争是人类的本能，每一个个体对战争的态度都是无法控制的，就连最冷漠自私的欧洲人看到这场屠戮都无法自控，深深谴责战争给人的伤害。从某种意义上来说，这将唤醒更多人。
+据零对冲3月5日报道，大多数流行的加密货币交易所都拒绝了西方官员提出的切断所有俄罗斯客户的要求，因为随着制裁的进行，投资者似乎对大量资本外流的预期提前到来，加密货币交易量飙升。
 
-参考链接：
+虽然大多数以俄罗斯卢布计价的交易是在香港的币安（Binance）进行的，但即使像公开交易的比特币基地（Coinbase）这样受欢迎的美国交易所也拒绝切断所有俄罗斯用户，至少目前是这样。
 
-- [3月2日郭先生直播：](https://gtv.org/video/id=621f6ab7019ef64da653b4fe)
+而自这一“争议 ”首次出现以来，Coinbase首席执行官布莱恩·阿姆斯特朗（Brian Armstrong）首次开口做出解释。他说在俄罗斯卢布和其他俄罗斯资产被无情贬值的时候，数百万普通俄罗斯人正在使用加密货币“作为一条生命线”，以保护他们来之不易的资产。
 
+一些普通的俄罗斯人正在使用加密货币作为生命线，现在他们的货币已经崩溃了。阿姆斯特朗说：“他们中的许多人可能反对他们国家正在做的事情，禁令也会伤害他们。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+正如阿姆斯特朗所指出的，Coinbase有义务遵守美国的制裁，就像任何其他美国企业一样。但在制裁规定之前，该交易所将继续为俄罗斯人民提供服务（不包括那些名字已经落入美国财政部制裁名单的人）。
 
-编辑/校正/发稿：海阔天空1
+他补充说，比特币的公共区块链是大多数加密货币的特征，这使得它不适合寻求保护其数十亿美元的俄罗斯寡头的途径。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+正如花旗银行的策略师本周早些时候解释的那样，虽然俄罗斯资本外逃的可能性仍然很大，但迄今为止，比特币交易量的绝对值仍然相对较小，平均每天约210个比特币。
+
+这表明，价格行动更多是由于投资者为来自俄罗斯的预期需求上升而定位，而不是俄罗斯需求本身，此外，它强调了比特币和更广泛的加密货币正被西方官员当作“恶棍 ”的现实。
+
+新闻来源：[Coinbase CEO: “Ordinary Russians Are Using Crypto As A Lifeline”](https://www.zerohedge.com/crypto/coinbase-ceo-ordinary-russians-are-using-crypto-lifeline)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
