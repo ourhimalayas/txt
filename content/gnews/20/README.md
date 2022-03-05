@@ -2,36 +2,32 @@
 ---
 
 
-## 特鲁多：不希望看到俄乌冲突升级
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2111730/)
+## 有声|世界银行暂停在俄罗斯和白俄罗斯所有业务
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2111741/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月2日，世界银行发布声明表示，在俄罗斯开始入侵乌克兰，并对乌克兰人民实施敌对行动后，世界银行立即停止了在俄罗斯和白俄罗斯的所有项目。
 
-整理：围剿维尼熊
-编辑：wenly
+在该声明中，世界银行表示：自2014年以来，世界银行集团没有批准在俄罗斯的任何新贷款或投资。而自2020年年中以来，白俄罗斯也没有获得任何新的信贷批准。现在，在战火之下，这两个国家正在实施的其他项目也被全部停止。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-353.png)
+此外，世界银行于3月1日表示，计划在未来几个月为乌克兰提供30亿美元的支持，国际货币基金组织也在计划向乌克兰提供紧急援助。
 
+文字版原文：[世界银行暂停在俄罗斯和白俄罗斯所有业务](https://gnews.org/zh-hans/2105945/)
 
+音频处理：Fei797
+发稿：Fei797
 
-图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-加拿大总理特鲁多（Justin Trudeau）今天表示，加拿大政府不希望看到俄乌战争升级，因为这将使北约部队在东欧与俄罗斯发生“直接冲突”。
-
-加拿大广播公司新闻网（CBC News）报导，特鲁多在安大略省密西沙加市（Mississauga）告诉记者，加拿大及盟国着重在让俄罗斯经济受重击作为侵乌代价，但不会在乌克兰上空建立禁飞区。
-
-北约若实施禁飞区，代表北约战机将部署到乌克兰领空以阻止俄罗斯空军入侵，势必导致北约与俄军直接交战，冲突急剧恶化。
-参考链接：[杜魯多：加拿大和北約要避免與俄直接衝突](https://udn.com/news/story/122699/6142662?from=udn-catebreaknews_ch2)
-
-*发布：*星谕
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
