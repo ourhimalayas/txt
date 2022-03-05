@@ -2,46 +2,27 @@
 ---
 
 
-## 联合国大使表示，美国不会动用美军在乌克兰建立禁飞区
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2109490/)
+## 有声｜通过Hpay成功用喜美元购买F1赛车
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2109538/)
 
-**评论：***普京及其克林姆林宫的追随者认为，乌克兰与北约的日益融合是他们无法容忍的，用谎言编织了借口后，悍然对一个民主国家发动了入侵，以期待通过动用武力来重建平衡。普京暗示使用核武器威胁的疯狂言论，表明他想毁掉的不仅是乌克兰，而是全世界。西方热爱自由民主的国家，显示你们力量和决心的时刻到了，只有你们才是全地球村的希望！*
+**By:秘翻新闻**
 
-据《CNN》 作者：[Kylie Atwood](https://www.cnn.com/profiles/kylie-atwood) and [Devan Cole](https://www.cnn.com/profiles/devan-cole)，2022年2月27日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-405-e1646458438716.png)美国驻联合国大使琳达·托马斯·格林菲尔德
-图片来源：CNN
-琳达·托马斯·格林菲尔德周日在“国情咨文”节目中告诉CNN的达纳·巴什，拜登政府“已经明确”美国不会“采取行动”。
+**2022-03-05**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-33.png)
+**[据福布斯3月4日报导，由喜马拉雅交易所（Himalaya Exchange）开发的支付应用程序喜马拉雅支付，购买了艾尔顿-塞纳的座驾-1989年的迈凯轮MP4/5 F1，价格超过$500万美元。Hpay的会员间通过稳定币喜马拉雅元-HDO转账完成。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
 
-她说：“我们不会将美国军队置于危险之中，但我们将与乌克兰人合作，让他们有能力保护自己。”
+**[艾尔顿-塞纳对于过去和现在的车手和车迷来说仍然是一个传奇，他所驾驶的汽车是世界上最有价值的收藏品之一。 这笔交易表明人们对喜马拉雅交易所越来越有信心，特别是Hpay，现在是第一个版本。第二个版本的支付应用程序正在开发中。通过Hpay，用户将能够在全球范围内进行即时加密货币转账，安排自动付款，并可以用所有的数字货币从独家零售商购物。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
 
-托马斯·格林菲尔德还说，当被问及针对俄罗斯能源部门的制裁时，美国 “正在继续研究这个问题”，到目前为止还没有发生。
+**[喜马拉雅集团这样值得信赖的交易所，让企业和个人能够充分利用加密货币的崛起所带来的机会。无边界、包容性和安全性，你可以通过喜马拉雅交易所随时随地交易你的资产。该平台也是第一个将加密货币交易所与原生交易币（喜马拉雅币’HCN’）、稳定币（喜马拉雅币’HDO’）以及最近推出的支付应用（HPAY）整合在一个平台上，使其成为唯一一个完全整合加密货币生态系统的平台。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
 
-“我们正随着俄罗斯方面的加强而加强，所以会有更多的事情发生。虽然能源不在目前的公告中，但这并不意味着它不在桌面上，但我们也想尽一切可能保护我们自己的经济免受其影响。”这位大使补充说。
+**[该平台的中心任务是使每个人能够控制他们自己的钱，实现财务自主。](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)**
 
-上周六，白宫与欧盟委员会、法国、德国、意大利、英国和加拿大一起宣布，他们将把某些俄罗斯银行从SWIFT（连接全球数千家金融机构的高安全性网络）驱逐出去。
+（ 秘翻新闻 文雀 编译报导 ）
 
-这位大使还告诉巴什，在军事法庭上以战争罪审判俄罗斯人也是“在讨论中”。
+发布:星星
 
-乌克兰指责俄罗斯在袭击平民目标时犯下了战争罪，并呼吁莫斯科面对军事法庭。俄罗斯表示，其部队只针对军事设施，没有打击居民区。
-
-托马斯·格林菲尔德还谴责俄罗斯总统弗拉基米尔·普京将其国家的核力量置于高度警戒状态的决定，他在周日说，他“正在继续以完全不可接受的方式使这场战争升级”。
-
-普京的决定在周日也受到了白宫新闻秘书珍·普萨基的批评，她告诉美国广播公司新闻，这是克里姆林宫无端升级和“制造威胁”的更广泛模式的一部分。
-
-文章来源：[https://www.cnn.com/2022/02/27/politics/russia-ukraine-no-fly-zone-linda-thomas-greenfield-cnntv/index.html](https://www.cnn.com/2022/02/27/politics/russia-ukraine-no-fly-zone-linda-thomas-greenfield-cnntv/index.html)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 轰炸机
-评论：洛杉矶盘古农场 – Wendy
-编辑：洛杉矶盘古农场 – Wendy
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

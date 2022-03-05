@@ -2,20 +2,18 @@
 ---
 
 
-## NewSGman┃乌克兰前线救援大行动动态（ 3月4日）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2110599/)
+## NewSGman┃乌克兰战争动态（ 3月4日）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2110729/)
 
 撰稿：东京樱花团/NewSGman
 
-大卫战友已到达救援第一线战区！
+️俄军炮击扎波罗热核电站炮弹落在其中一个反应堆引发火灾，若发生爆炸后果将是切尔诺贝利的10倍。
 
-️波兰临时救助点已建立！
+俄军炮击扎波罗热核电站炮弹落在其中一个反应堆引发火灾。
 
-战争无情，人间有爱！
+乌克拉外长库勒巴强调如果 ZNPP爆炸后果将比切尔诺贝利事故严重 10 倍。
 
-危难之际我们战友对同胞与国际友人的最实质行动救援正是这乱世中的那份希望！
-
-盖特链接：[https://gettr.com/post/py45duedd4](https://gettr.com/post/py45duedd4)
+盖特链接：[https://gettr.com/post/py3vmm1ef1](https://gettr.com/post/py3vmm1ef1)
 
 *编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*
