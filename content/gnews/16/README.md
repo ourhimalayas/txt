@@ -2,66 +2,53 @@
 ---
 
 
-## 欧洲最大的乌克兰核电站大火被扑灭(1/2)
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2108220/)
+## 历史上的今天：3月5日
+` 历史组` [轉載自GNews](https://gnews.org/zh-hans/2108217/)
 
-翻译：Jenny Ball
+作者：纽约香草山农场教育部-马克文、朱丽叶
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-396-edited.png)reuters.com
 
-要点：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-21.png)
 
-· 核电站周边地区激战
-· 没有辐射升高的迹象 – 美国能源部
-· 利沃夫为大规模儿童伤亡做准备
 
-遭受轰炸的城市
+以史为鉴，可以知兴替。
 
-利沃夫，乌克兰/基辅，3 月 4 日（路透社）——周五，俄罗斯入侵部队占领了欧洲最大的核电站。华盛顿称这是一次冒着灾难风险的鲁莽袭击，尽管一座训练大楼的大火已被扑灭。官员们表示，该设施现在是安全的。
+[![](https://assets.gnews.org/wp-content/uploads/2022/03/katyn_massacre-6.jpg)](The%20Katyn%20massacre%20of%20thousands%20of%20Polish%20prisoners%20of%20war%20%28primarily%20military%20officers%29,%20by%20the%20Soviet%20NKVD,%20based%20on%20a%20proposal%20from%20Lavrentiy%20Beria%20to%20execute%20all%20members%20of%20the%20Polish%20Officer%20Corps.%20The%20number%20of%20victims%20is%20estimated%20at%20about%2022,000.Photo%20from%201943%20exhumation%20of%20mass%20grave%20of%20polish%20officers%20killed%20by%20NKVD%20in%20Katy?%20Forest%20in%201940%20%28Photo%20by%20Universal%20History%20Archive/Getty%20Images%29)图源网络（卡廷大屠杀）
 
-在俄罗斯总统普京发动袭击的第二周，俄罗斯军队包围并轰炸了几个城市，乌克兰其他地方的战斗也如火如荼。
+1940年3月5日，苏联高层下令对波兰投降人员进行屠杀，史称“卡廷大屠杀” 。屠杀计划由贝利亚提议，由斯大林在内的苏共中央政治局签署批准，对苏军入侵波兰时俘虏的波兰战俘、知识分子、警察及其他公务员进行的有组织的大屠杀， 遇害人数超过2万人。1941年，德军入侵苏联并推进占领卡廷森林，苏联人的暴行才被轴心国发现。但苏联官方一直否认卡廷大屠杀，直到1990年，时任波兰总统雅鲁泽尔斯基访问苏联时，苏联官方才承认。历史学者认为斯大林目的是通过大规模处决其军事人才的方法，来削弱一个潜在的未来波兰的军事实力。
 
-一位总统顾问说，在地方当局称俄罗斯军队进入南部城市米科拉耶夫后，推进已经停止。如果被占领，这座拥有 500,000 人口的城市将是迄今为止最大的沦陷城市。
+1927年3月5日，毛泽东发表《湖南农民运动考察报告》 毛泽东在文中提出 “革命不是请客吃饭，革命是暴动，是一个阶级推翻一个阶级的暴烈的行动。农村革命是农民阶级推翻封建地主阶级的权力的革命。” 毛泽东主张人为制造仇恨、煽动流氓无产者，要他们敢抢敢夺，敢打敢杀。杀乡绅、烧庙宇，湖南农村被搞得天翻地覆，人神共愤。
 
-首都基辅，已在道路上停滞数日的俄罗斯装甲纵队再次受到攻击，早上空袭警报响起，市中心传来爆炸声。
+1927年，湖南全省农民协会的会员已增至二百多万人，当时整个农村混乱不堪，农村稍有钱的人都被迫奔走他乡。在《湖南农民运动考察报告》中，毛为所谓的农民运动的极端暴戾行为叫好：“痞子运动”，“好得很！” 在中共的指挥下，农民运动逐渐升级为残酷的阶级斗争和屠杀。
 
-美国五角大楼发言人约翰·柯比告诉CNN，俄罗斯对扎波罗热工厂的袭击表明入侵是多么恣意妄为。
+湖南绅界纷纷投身国民党军队，进行反击。用同样的暴力行动，镇压中共的流氓无产者运动。国民革命统一战线濒临破坏。 历史资料显示：毛泽东极端暴力思想和导致的流氓无产者运动，造成北伐战争国共合作分裂的恶果。
 
-柯比说：“它在将潜在灾难提高到无人愿意看到的程度。”
+参考来源：
 
-路透社核实的一段视频显示，一栋建筑物起火，一连串炮弹齐射，然后，一个巨大的白炽球照亮了天空，在停车场旁边爆炸，浓烟滚滚穿过大院。
+1.[卡廷大屠杀](https://zh.wikipedia.org/wiki/卡廷大屠殺)
 
-虽然后来据说该工厂很安全，并且大火已扑灭。但官员们担心情况不稳定，乌克兰员工现在，在俄罗斯的控制下运作。
+2.[湖南农民运动考察报告](https://zh.wikipedia.org/wiki/湖南农民运动考察报告)
 
-国际原子能机构总干事拉斐尔·格罗西将这种情况描述为“正常运作，但实际上这并不正常”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-10.jpg)
 
-他向工厂的乌克兰员工致敬：“感谢他们的勇敢、勇气和韧性，因为他们是在非常困难的情况下这样做的。”
+编辑/校对/发稿：兰兰
 
-格罗西说，该工厂没有受到他认为是俄罗斯射弹的损坏。只有一个反应堆在工作，容量约为 60%。他正试图联系俄罗斯和乌克兰官员，以解决政治责任。
+**更多资讯，更多关注**
 
-乌克兰国家核电站运营商“能量原子”（ Energoatom） 的一名官员表示，没有进一步的战斗，辐射是正常的，但他的组织不再与工厂的管理或控制有潜在危险的核材料有联系。
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-这位官员告诉路透社：“工作人员正在他们的工作场所提供核电站的正常运行。”
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-俄罗斯国防部还表示，该工厂运行正常。它将火灾归咎于侵略乌克兰的“可怕袭击”，并表示其部队已得到控制。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-“欧洲人醒了”
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-在经历了八天的战争之后，俄罗斯控制了一家为乌克兰提供超过1/5电力的工厂。这是一项重大发展，在这场战争中，俄罗斯的其他进展因激烈的抵抗而停滞不前。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-“欧洲人，请醒醒。告诉你们的政客——俄罗斯军队正在向乌克兰的一座核电站开火，”乌克兰总统泽连斯基在视频讲话中说。在另一个讲话中，他呼吁俄罗斯人抗议。
 
-自 2 月 24 日普京下令对一个欧洲国家发动自二战以来最大规模的袭击以来，据信已有数千人死亡或受伤，超过 100 万难民逃离乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-22.png)
 
-未完待续
-素材链接：【reuters.com】[Russia seizes Europe’s biggest nuclear plant and blocks media websites](https://www.reuters.com/markets/europe/top-wrap-1-europes-largest-nuclear-power-plant-fire-after-russian-attack-mayor-2022-03-04/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=Reuters%20Daily%20Briefing&amp;utm_content=4-3-22&amp;utm_campaign=4-3-22)
 
-* * *
-
-审核：文乐
-校对：信心满满
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

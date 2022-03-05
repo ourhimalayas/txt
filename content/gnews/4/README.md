@@ -2,37 +2,16 @@
 ---
 
 
-## 澳洲板球传奇人物突然去世 曾注射两剂新冠疫苗
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2108563/)
+## 台湾｜庞培欧建议美应承认台湾 外交部：感谢、尊重、不评论
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2108580/)
 
-翻译/编辑：小红帽
+**撰文/ 港台前線｜發佈日期/ 05/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-1-4.png)更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
+4日，有关美国前国务卿庞培欧发表公开演说时建议美国应给予台湾外交承认事，外交部回应“交部珍视庞培欧前国务卿对台湾的情谊，并感谢他在国务卿任内对深化台美关系的重要贡献。对于演说内容，庞培欧前国务卿已说明是其个人看法。外交部对此不做评论，但表示尊重。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-23.png)图片来源：雅典娜设计组
+近年台美关系稳健发展，并且在美国国内获得跨党派的高度共识与一致支持；未来台湾政府将在此坚实的基础上与持续美方合作，进一步深化台美双方在各项领域的紧密伙伴关系。
 
-
-根据澳大利亚人报中文网3月5日报道，52岁的澳大利亚板球旋转投球传奇人物肖恩·沃恩（Shane Warne）突然死于疑似心脏病发作。他被朋友发现在泰国苏梅岛的一栋别墅里，当时已经失去反应。
-
-据了解，他的经理安德鲁·尼奥菲图（Andrew Neophitou）在救护车到达之前，曾试图对沃恩进行心肺复苏。然而，沃恩被送往泰国国际医院后被宣布死亡。沃恩的遗体已被转移到另一家医院进行尸检。
-
-沃恩的家随后发表了一份声明，证实了这一令人震惊的消息。声明称：
-
-“我们非常悲痛地通知大家，肖恩·沃恩今天（3月4日星期五）在泰国苏梅岛因疑似心脏病发作而去世。”
-
-此前，沃恩曾表示，他在去年8月与新冠病毒战斗时曾短暂使用过呼吸机。这是在沃恩注射了两剂新冠疫苗之后发生的。在感染新冠病毒一个月后，沃恩透露他在新冠病毒感染期间的病情恶化，以至于不得不使用呼吸机。
-
-新闻链接：
-
-1、[澳大利亚板球传奇人物Shane Warne在泰国突然去世 享年52岁](https://cn.theaustralian.com.au/2022/03/05/64252/)
-2、[Shane Warne: When Australian great revealed that he was put on ventilator during battle with Covid-19](https://www.hindustantimes.com/cricket/shane-warne-when-australian-great-revealed-that-he-was-put-on-ventilator-during-battle-with-covid19-101646405690379.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+來源｜[中華民國外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97472)
 
  
 
