@@ -2,22 +2,25 @@
 ---
 
 
-## 视频|新中国联邦乌克兰紧急救援团队公告
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2109422/)
+## 就日本海一事跟进分析：北朝鲜方或发射弹道导弹
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2109491/)
 
-制作：香草山视频部
+翻译：宫米叶
 
-由于乌克兰局势日益恶化，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离，根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-407-edited.png)nordot.app
 
-发稿：谐趣园
+韩国军方联合参谋本部5日透露，北朝鲜向日本海方向发射了飞行物，日本政府认为可能是弹道导弹。北朝鲜2月27日才刚刚发射过一枚弹道导弹，包括巡航导弹在内，这是今年第九次确认发射。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+韩国军方分析，这是威慑韩国9日即将举行的总统选举投票与开票。
 
+来源：【nordot.app】[北朝鮮が飛翔体発射と韓国軍](https://nordot.app/872630440326545408)
+
+* * *
+
+审核：飞虎#5349 
+校对：天天
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

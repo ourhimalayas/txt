@@ -2,18 +2,32 @@
 ---
 
 
-## 蓝枫法律 四十一期 初探性产业及法律规范- PPT展示- GTV
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2108452/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月4日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2108887/)
 
-#### **加拿大温哥华扬帆农场蓝枫法律**
+作者：香草山翻译部
 
-直播链接：https://gtv.org/video/id=61f5d81881ce0a3ac2a15dcb
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-39.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-23.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/5-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/7-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/8-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/9-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/10-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/12-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/13-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/14-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/15-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/16-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/17-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/18-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/19-1.png)
-直播视频：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-1.jpg)
 
-[第四十一期 初探性产业及法律规范](https://gtv.org/video/id=61f5d81881ce0a3ac2a15dcb)
 
-编辑/发文：蓝枫法律栏目
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-3.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/py9cbl0bbc](https://gettr.com/post/py9cbl0bbc)
+访谈：[https://gettr.com/post/py9lq26e35](https://gettr.com/post/py9lq26e35)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-calendar-4-2.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

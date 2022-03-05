@@ -2,25 +2,24 @@
 ---
 
 
-## 视频|中共在乌克兰问题上的历史性错误
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2109367/)
+## 英国官方数据：新冠疫苗接种者病亡率爆升
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2109449/)
 
-制作：香草山视频部
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-53.jpg)
+图片来源： 网络图片合成
 
-在乌克兰问题上，中共选择站在俄罗斯一边，试图维持中俄的经济合作伙伴关系，继续破坏二战后的政治秩序，但是这一计划已经胎死腹中。
+乌克兰战火纷飞的同时，一场不见硝烟、却死伤更甚的灾难正愈演愈烈。据英国The Exposé网文章，[英国卫生安全局（UKHSA）每周发布的新冠疫情数据](https://mybank.icbc.com.cn/icbc/newperbank/account/electricbillRemit.jsp?dse_sessionId=BZFWATBAIUCJAIGBGCIRATEUIWAYDCGTDSDGCVJV&amp;requestTokenid=1646447088204-1479356184&amp;isICBCEbill=1&amp;remiticon4freeofcharge=0&amp;shoufukuanFlag=1&amp;ebillFlagForWater=1&amp;huashangFlag=1https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1057599/Vaccine_surveillance_report_-_week-8.pdf)显示，当地新冠疫苗的未接种者死亡率逐减的同时，2针和3针接种者死亡率爆增，完全接种者比未接种者呈现出了更高死亡率。
 
-俄罗斯饱受人口结构崩溃与缺乏创新和创业活力之苦，除了容易获得的石油、天然气、一些金属和粮食外，几乎已经不能再给中共提供什么。同时，中共经济极度依赖西方民主国家，一方面，美欧的资本市场是中共日益负债累累的经济的重要融资来源，另一方面，中共的产品销售也依赖这些民主国家。而美欧只要联手，从经济上可以完全摆脱中俄，自成体系。
+数据显示，2021年11 月 22 日至2022 年 2 月 20 日的8周期间，对比最近4周与前4周的死亡病例数，未接种者的死亡减少了 37%，接种者死亡却增加了 48%。2 月 24 日报告第41页数据显示，至2月20日的最近4周里，新冠死亡病例中高达9/10为2针接种者，4/5为3针接种者（见上图）。对比英格兰的新冠疫苗接种率，至2022年2月28日为止完全接种者为73.5%，加强针接种者为56.9%（[Our World in Data数据](https://mybank.icbc.com.cn/icbc/newperbank/account/electricbillRemit.jsp?dse_sessionId=BZFWATBAIUCJAIGBGCIRATEUIWAYDCGTDSDGCVJV&amp;requestTokenid=1646447088204-1479356184&amp;isICBCEbill=1&amp;remiticon4freeofcharge=0&amp;shoufukuanFlag=1&amp;ebillFlagForWater=1&amp;huashangFlag=1英格兰)）。不难看出，2针和3针接种者比未接种者呈现出了更高的死亡率。
 
-中共如继续下去，从与俄罗斯的协约中获得的经济利益会很少，但是从西方的制裁中会失去很多。当前，中共的国内经济正受到内部严重的房地产危机和外部经济脱钩、科技脱钩等带来的强力威胁。如继续支持俄罗斯，必将受到西方更沉重的打击，使经济复苏变得更加困难。因此，习近平支持普京的侵略，将严重削弱中共国近期和长期的经济前景，这反过来又会对终身制的习近平产生不利的国内政治影响。
+包括美国在内的世界多国卫生官员都曾宣称，[新冠疫苗虽然无法阻止奥米克戎变种的感染或传播，但可以防止住院和死亡](https://mybank.icbc.com.cn/icbc/newperbank/account/electricbillRemit.jsp?dse_sessionId=BZFWATBAIUCJAIGBGCIRATEUIWAYDCGTDSDGCVJV&amp;requestTokenid=1646447088204-1479356184&amp;isICBCEbill=1&amp;remiticon4freeofcharge=0&amp;shoufukuanFlag=1&amp;ebillFlagForWater=1&amp;huashangFlag=1https://www.audacy.com/kmox/news/national/cdc-director-says-vaccines-are-not-preventing-transmission)，但现实数据与他们宣传的“高达 95% 的防护效果”，看来相去甚远。
 
-发稿：谐趣园
+**新闻来源：**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+1.  [Whilst you’ve been distracted by Russia’s Invasion, the UK Gov. released a Report confirming the Fully Vaccinated now account for 9 in every 10 Covid-19 Deaths in England](https://dailyexpose.uk/2022/03/01/russia-distraction-uk-gov-revealed-triple-vaccinated-account-9-in-10-covid-deaths/)
+
+2.  [Official data: Fully vaccinated people account for 9 of 10 COVID deaths](https://www.wnd.com/2022/03/official-data-fully-vaccinated-people-account-9-10-covid-deaths/)
 
  
 

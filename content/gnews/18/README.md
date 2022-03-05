@@ -2,22 +2,27 @@
 ---
 
 
-## 视频|郭文贵先生将新中国联邦比作中国的乌克兰
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2109299/)
+## 《时代杂志》以蓝黄国旗色致敬乌克兰
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2109346/)
 
-制作：香草山视频部
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台媒3月3日消息，美国《时代杂志》在最新一期封面上，染上醒目的乌克兰国旗蓝黄二色，并列出泽连斯基的名言，向乌克兰致敬。
 
-在3月2日的大直播中，郭文贵先生明确指出，新中国联邦将是中国的乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-24.jpg)
 
-郭先生说，在中共配合普京造谣乌克兰总统泽连斯基出逃后，泽连斯基仅在社交平台上一次直播，就戳穿了中共和普京的谎言，并让俄罗斯陷入了塔西佗陷阱。俄罗斯污蔑乌克兰为纳粹主义，也使在二战时曾受到乌克兰庇护的犹太人感到不满。
+据悉，《时代杂志》封面上用乌克兰语写着“生命终将战胜死亡，光明终将战胜黑暗”，这句话是乌克兰总统泽连斯基，3月1日在欧盟议会发表视频演时所说的名言。这场演说迅速传遍并感动世界，在场的欧盟议会议员纷纷起立鼓掌表达敬意。
 
-新中国联邦的爆料革命，正是以唯真不破的精神，一次次戳穿中共的谎言，让中共在塔西佗陷阱里越陷越深。再加上新中国联邦拥有盖特这个非常重要的社交媒体平台，能让更多的中国人以及世界知道真相，将唤醒更多人。
+在俄罗斯全面进攻乌克兰的第二晚，即2月25日晚上，泽连斯基走出办公室，用手机自拍并附上信息说“我们都在这里”，此举深深感动了并团结了乌克兰人。《时代杂志》封面故事表示，泽连斯基选择与基辅共存亡的壮举，已经改变了历史。
 
-最后郭先生提醒，不要在乎任何人对我们的评价，我们只需要在乎自己的行动。正如乌克兰危机开始前，全世界都表现出冷漠态度。但在戳穿谎言露出真相后，全世界的民意都倒向了乌克兰一样，新中国联邦亦将被世界认识，得到的支持正与日俱增。
+参考链接：
 
-发稿：Daxia
+- [《時代》最新封面染上藍黃色 致敬澤倫斯基與基輔英雄](https://news.ltn.com.tw/news/world/breakingnews/3847390)
 
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+编辑/校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -25,7 +30,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
