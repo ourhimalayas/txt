@@ -2,35 +2,17 @@
 ---
 
 
-## 有声|普京加强外汇管控
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2108507/)
+## 台湾｜庞培欧建议美应承认台湾 外交部：感谢、尊重、不评论
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2108580/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-俄罗斯周二表示，它尚未对因入侵乌克兰而引发的西方和美国制裁雪崩做出全面回应。外交部发言人扎哈罗娃警告称 ，西方民众还没有感受到制裁即将对他们的生活产生的影响。
+**撰文/ 港台前線｜發佈日期/ 05/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-1-4.png)更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/post/pwkty7e61c](https://gettr.com/post/pwkty7e61c))
+4日，有关美国前国务卿庞培欧发表公开演说时建议美国应给予台湾外交承认事，外交部回应“交部珍视庞培欧前国务卿对台湾的情谊，并感谢他在国务卿任内对深化台美关系的重要贡献。对于演说内容，庞培欧前国务卿已说明是其个人看法。外交部对此不做评论，但表示尊重。”
 
-随着西方的经济制裁不断升级的，俄罗斯已经启动了进一步的金融稳定工作。据路透社援引国际文传电讯社的一份克里姆林宫声明称，普京在当地时间周二晚些时候发布了一项法令，禁止所有价值超过1万美元的外汇现金出口。
+近年台美关系稳健发展，并且在美国国内获得跨党派的高度共识与一致支持；未来台湾政府将在此坚实的基础上与持续美方合作，进一步深化台美双方在各项领域的紧密伙伴关系。
 
-俄罗斯央行同时宣布，随着俄罗斯资产不断受到重创，包括卢布在过去几天跌至两年低点，俄罗斯准备采取一切必要措施来维持金融稳定。
+來源｜[中華民國外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97472)
 
-与此同时， 《莫斯科时报》报道称，“美国零售巨头耐克和苹果公司已经暂时停止在俄罗斯在线商店的销售，这肯定会给俄罗斯人民带来更多不便。”
-
-该公告表明，越来越多的西方产品仅是运往俄罗斯都变得越来越困难.
-
-文字版原文：[普京加强外汇管控](https://gnews.org/zh-hans/2104738/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

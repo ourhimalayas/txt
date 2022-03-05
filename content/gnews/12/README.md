@@ -2,25 +2,37 @@
 ---
 
 
-## 无惧生死新中国联邦救援团队飞赴波兰
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2108483/)
+## 澳洲板球传奇人物突然去世 曾注射两剂新冠疫苗
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2108563/)
 
-加拿大温哥华扬帆农场枫叶快讯 晨熹
+翻译/编辑：小红帽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a-2-edited.jpg)图片来源：盖特
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-23.png)图片来源：雅典娜设计组
 
 
-据3月4日盖特直播报道，美东时间当天傍晚，新中国联邦与法治基金乌克兰救援行动的纽约团队，已乘车抵达纽约JFK国际机场，随后将乘机直接飞往波兰前线，与当地的新中国联邦救援人员汇合，共同执行本次拯救受困于俄乌战火中同胞的任务。
+根据澳大利亚人报中文网3月5日报道，52岁的澳大利亚板球旋转投球传奇人物肖恩·沃恩（Shane Warne）突然死于疑似心脏病发作。他被朋友发现在泰国苏梅岛的一栋别墅里，当时已经失去反应。
 
-据悉，本次救援团队包括1名美籍乌克兰友人和9名分别来自华盛顿DC农场、纽约香草山农场、77功成农场的新中国联邦战友组成。除了参与当地的营救任务外，还将同时兼任救援现场的协调、翻译交流、摄影记者等重要任务。
+据了解，他的经理安德鲁·尼奥菲图（Andrew Neophitou）在救护车到达之前，曾试图对沃恩进行心肺复苏。然而，沃恩被送往泰国国际医院后被宣布死亡。沃恩的遗体已被转移到另一家医院进行尸检。
 
-由于本次行动不仅是新中国联邦首次与联合国国际救援组织共同参与的人道救援行动，也是新中国联邦人第一次在海外展开的大规模营救华人同胞的战地行动，因而备受国际社会关注。期待本次行动能营救出更多被困在乌克兰战火中的华人同胞和其他受困民众。
+沃恩的家随后发表了一份声明，证实了这一令人震惊的消息。声明称：
 
-* * *
+“我们非常悲痛地通知大家，肖恩·沃恩今天（3月4日星期五）在泰国苏梅岛因疑似心脏病发作而去世。”
 
-撰稿：晨熹 校对编辑，发稿：硫酸羟氯喹64
+此前，沃恩曾表示，他在去年8月与新冠病毒战斗时曾短暂使用过呼吸机。这是在沃恩注射了两剂新冠疫苗之后发生的。在感染新冠病毒一个月后，沃恩透露他在新冠病毒感染期间的病情恶化，以至于不得不使用呼吸机。
 
-新闻来源：https://gettr.com/streaming/py8k3mecdc
+新闻链接：
+
+1、[澳大利亚板球传奇人物Shane Warne在泰国突然去世 享年52岁](https://cn.theaustralian.com.au/2022/03/05/64252/)
+2、[Shane Warne: When Australian great revealed that he was put on ventilator during battle with Covid-19](https://www.hindustantimes.com/cricket/shane-warne-when-australian-great-revealed-that-he-was-put-on-ventilator-during-battle-with-covid19-101646405690379.html)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
