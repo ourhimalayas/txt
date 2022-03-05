@@ -2,32 +2,26 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月4日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2108887/)
+## 马里乌波尔遭轰炸多日 要求补给和设人道走廊
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2108970/)
 
-作者：香草山翻译部
+采集：玫瑰新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-04t173520z309901910rc2tvs9wys644933134_0.jpg)
+俄罗斯入侵乌克兰，马里乌波尔的一个居民区遭炮击后出现火光。（路透社档案照）
+（早报讯）遭俄罗斯军队炮火猛攻了五天的乌克兰城市马里乌波尔急需补给，该市市长说，当地不仅断水断电，没有暖气，粮食也快耗尽。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-1.jpg)
+路透社报道，马里乌波尔（Mariupol）市长博伊琴科周五（3月4日）通过视频发出呼吁，要求获得军事支援和设立人道主义走廊，以免让乌克兰这座具战略性的港口城市落入俄罗斯手中。
 
+博伊琴科在一段影像不稳定的视频中说，俄军对居民区和医院进行无差别轰炸，“我们已被彻底摧毁了。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-3.png)
-校对：Stay文苑
+博伊琴科还说：”他们决心要把马里乌波尔和马里乌波尔的居民从地球上抹去。”
 
-编辑：Stay文苑
+博伊琴科要求设立一条人道主义走廊，以便让马里乌波尔约40万市民进行撤离。
 
-发稿：Stay文苑
+原文链接：[https://www.zaobao.com.sg/realtime/world/story20220305-1249078](https://www.zaobao.com.sg/realtime/world/story20220305-1249078)
 
-新闻：[https://gettr.com/post/py9cbl0bbc](https://gettr.com/post/py9cbl0bbc)
-访谈：[https://gettr.com/post/py9lq26e35](https://gettr.com/post/py9lq26e35)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-calendar-4-2.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+审核校对：Barry Jack
+上传排版：F
 
  
 
