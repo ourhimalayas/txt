@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@miles 3/5/2022 4:31 AM (UTC)`
+
+二月二龙抬头，太和殿的门倒了，啥兆头啊？
+![img](https://media.gettr.com/group21/gvision/2022/03/05/04/879ca73a-b30d-076e-bba0-106fcc0c7c32/out.jpg)
+
+---
+
 `@miles 3/5/2022 2:20 AM (UTC)`
 
 【UKRAINEHELP-003】新中国联邦和法治基金关于紧急救援乌克兰的通知<br/>【中文】 https://gnews.org/zh-hans/2104385/<br/><br/>【UKRAINEHELP-003】Announcement of New Federal State of China & Rule of Law Foundation on Emergency Rescue of Ukraine<br/>【英语 English】 https://gnews.org/2104541/<br/><br/>【UKRAINEHELP-003】Оголошення про створення нової Федеральної Держави Китаю та Фонду верховенства права з надзвичайних ситуацій порятунку України<br/>【乌克兰语 українська мова】 <br/>https://gnews.org/2104387/<br/><br/>【UKRAINEHELP-003】Уведомление по оказанию чрезвычайной помощи Новой Китайской Федерации и Фонда «Верховенство закона»<br/>【俄语 русский】 https://gnews.org/2106390/<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -151,13 +160,6 @@ Prince and Rachel from NFSC on War Room: New Federal State of China is evacuatin
 
 3/3/2022 Miles Guo’s GETTR: Three families of our fellow fighters rescued by us have arrived in Warsaw. 100% of the fellow fighters of the New Federal State of China in Ukraine have been rescued. David and many other fellow fighters have arrived in Poland. We will soon provide two free rescue flights, one to the U.S. and Canada and the other one to Southeast Asia.<br/><br/>3/3/2022 文贵盖特：从乌克兰救出来的3家战友已到华沙，新中国联邦在乌克兰的战友100%被救出；大卫等战友们在波兰汇合；很快我们将有两架免费救援飞机，一架去美加，一架去东南亚<br/>
 ![img](https://media.gettr.com/group29/getter/2022/03/03/23/9c023385-3359-2043-5157-67ceba46ca13/out.jpg)
-
----
-
-`@miles 3/3/2022 11:28 PM (UTC)`
-
-3/3/2022 Miles Guo’s GETTR: Putin is going to deploy killer weapons to annihilate 5 million Ukrainians in the next 48 hours. The Russian oligarchs are selling their properties and yachts at half price. An era of digital currency will be spawned out of war, and anchored digital currencies with stable coins will be the future of humankind. The CCP responded to Pompeo’s visit to Taiwan by employing hooligan tactics. Putin, Xi Jinping, and the CCP are bound to be over!<br/><br/>3/3/2022 文贵盖特：普京要动用大杀器在48小时内灭掉乌克兰500万人；俄罗斯大佬五折卖房卖游艇；战争将催生数字货币金融时代的诞生，有稳定币和锚定的数字货币是人类的未来；中共用流氓手段针对蓬佩奥访台；普京、习和中共必将完蛋！<br/>
-![img](https://media.gettr.com/group27/getter/2022/03/03/23/2dacfacf-f936-c820-c860-178abe5ff0ce/out.jpg)
 
 ---
 
