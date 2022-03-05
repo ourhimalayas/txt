@@ -2,18 +2,57 @@
 ---
 
 
-## 蓝枫法律 四十期 财富管理及家族建设 未来家族信托的建立方式- PPT展示- GTV
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2111069/)
+## 文·贵天成——文贵先生谈“正道主义”（九）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2111179/)
 
-#### **加拿大温哥华扬帆农场 蓝枫法律**
+整理：**BENJ1**
+编辑：**Kelly**
 
-直播视频链接：https://www.gtv.org/video/id=61ec9c46533c672fca81492e
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-50.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-31.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-29.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-24.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/5-23.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/7-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/8-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/9-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/10-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/11-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/12-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/13-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/14-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/15-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/16-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/17-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/18-2.png)
-直播视频：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-29.png)配图 雅典娜设计组～614
 
-[蓝枫法律 四十期 财富管理及家族建设 未来家族信托的建立方式](https://www.gtv.org/video/id=61ec9c46533c672fca81492e)
 
-编辑/发文：蓝枫法律栏目
+郭文贵先生**2020**年**11**月**20**日直播
+
+** **爆料革命从开始到今天，正道主义、唯真不破，爱战友像兄弟姐妹。用俗话说，一切都是“阳谋”，但是我不希望带“谋”字，这个“谋”字本身就不好，因为我们一切遵循的都是信奉上天的力量、无私无我。
+
+未来谁牛？人类将面临着选择，什么主义？资本主义？共产主义？啥主义都不主义，就是我们的正道主义，一定是的。没有信仰的任何主义都不应该存在，以金钱为基础的社会不可能长远、健康的存在，公平的存在。
+
+世界上没有公平，哪有什么公平？相对的公平是有的，绝对公平永远不会存在。欲望是不一样的，怎么可能会有绝对的公平？能力是不一样的，怎么可能有绝对的公平？所以正道主义给你一个更加相对公平，以信仰为基础，在你相对公平的欲望的基础上，重新简化分配制度。
+
+人类到了一个对财富重新分配，对人生的意义、信仰和理想重新审视的时候。这场冠状病毒和共产主义操纵的美国大选，是共产主义独裁和西方以金钱为单位的资本主义的一场对决。决战，习近平说对了，这是一场终极之战。终极之战在全世界就诞生了一个爆料革命、新中国联邦、正道主义。他们俩谁倒下，咱都是赢家。我从第一天就说过，任何一场战争最后的赢家一定不是战场当中第一号、第二号或一边、双边，而是最后来打扫战场的那帮人，一定会是我们。
+
+郭文贵先生**2020**年**11**月**21**日直播** **
+
+什么叫正道主义？我们要解决的两个核心问题：第一，人类应该怎么活着？绝对不允许、也绝对不能没信仰的活着，自愿的也不行，你总得信个事儿，让人有信仰。
+
+第二，所有国家的权力和国家的政治第一条要做好的就是财物、财富在基本公平下的、安全稳定性的分配。一定要实现是多劳多得，你能劳动多少，你得多少，就不会出现中共国的什么富二代、官二代这种荒唐景象。中国现在整个财富分配不公和官二代、富二代是整个民族、整个人类最大的灾难。
+
+美国当然也有问题，美国不是一个房产税、消费税和营业税能解决的问题。税务改革、遗产税改革，还有一个财富的分配制度，绝对不是靠政客来天天搞选举（可以解决的），绝对不可以。西方过去靠的是什么？社会的积怨和矛盾都通过政治选举，每四年来一回，把所有的怨恨全发出去了，然后给了一个新的希望到下一个四年，或者最多八年坚持信任一个人，结果被骗了，再来四年，再来八年。然后呢？每八、九年资本市场都来一次巨大的动荡，叫金融危机，金融危机把泡沫给你挤出去。然后再来一把，再来一段泡沫高潮，“呱唧”再来一下子，就这么个轮回。洗钱、洗钱、再洗钱。洗着、洗着，99%的钱洗到1%的人手里面去了。
+
+那未来解决金融上的钱怎么分配，不能靠华尔街那几个控制着金融危机和国家的来进行财富分配，它（应该）是一个永恒的制度，绝不能靠骗、蒙。几个人控制着小集团利益分配的暗箱操作模式，必须结束，这就叫正道主义的核心。
+
+重新建立财富分配的模式，打破资本主义靠金融危机、靠选举给你一个希望又一个希望，来欺骗、欺骗、再欺骗。然后把人类的权利危险地押到一个人身上，（搞出）一次又一次危机。人类不是每次都能通过危机的，什么古巴导弹危机、这次选举危机，早晚有一天有过不去的时候或再选个魔鬼（当政），那就完蛋了。
+
+资料来源：郭先生GTV和盖特直播视频
+
+往期回顾：
+[文•贵天成——文贵先生谈“正道主义”（一）](https://gnews.org/zh-hans/2061785/)
+[文•贵天成——文贵先生谈“正道主义”（二）](https://gnews.org/zh-hans/2061810/)
+[文•贵天成——文贵先生谈“正道主义”（三）](https://gnews.org/zh-hans/2064565/)
+[文•贵天成——文贵先生谈“正道主义”（四）](https://gnews.org/zh-hans/2065291/)
+[文•贵天成——文贵先生谈“正道主义”（五）](https://gnews.org/zh-hans/2066630/)
+[文•贵天成——文贵先生谈“正道主义”（六）](https://gnews.org/zh-hans/2091727/)
+[文•贵天成——文贵先生谈“正道主义”（七）](https://gnews.org/zh-hans/2087938/)
+[文•贵天成——文贵先生谈“正道主义”（八）](https://gnews.org/zh-hans/2111000/)
+
+发布：星谕
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

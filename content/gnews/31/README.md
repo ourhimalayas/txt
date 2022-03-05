@@ -2,40 +2,35 @@
 ---
 
 
-## 成功获救的战友连线纽约总部 讲述逃生经历
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2110882/)
+## 俄罗斯战俘呼吁俄军士兵不要做炮灰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2110973/)
 
-撰稿: 纽约香草山文艺部–宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-2.png)
-3月3日，在盖特发布的新中国联邦乌克兰救援行动直播中，已经逃离战区抵达波兰，得到新中国联邦妥善安置的香草山战友“零点夜话”，连线纽约总部，详细讲述了这段死里逃生的经历。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-426.png)
-零点战友说，在得知新中国联邦、法治基金将与国际救援组织合作，启动乌克兰无偿援助大行动后，填写了申请表。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月4日，据盖特消息显示，被乌克兰俘获的俄罗斯士兵近日陆续通过视频向外界传递出他们被蒙骗出战以及其自身对战争的拒绝。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-05-上午8.24.37.png)
+这些俄罗斯士兵表示，他们在出战前根本不清楚这次战争的对象和性质，而他们对此的任何疑问则全部遭到上级长官粗暴的拒绝与封口。更有士兵提到，直至进入乌克兰后他们才清楚，这次战争的目的是为了侵略乌克兰，而不是“解救”乌克兰民众。
 
-鉴于局势越来越紧张，小飞象鼓励他们提早离开，第一时间逃出去。零点战友带着两个家庭共七口人，勇敢地迈出了家门。火车站人山人海，车次不定，终于在凌晨登上了火车。经过三趟火车的辗转颠簸，在当地时间3日下午两点，与波兰救援基地的战友们成功汇合。
+至于俄罗斯当局在交战中采取的手段，这些士兵证实，俄军不仅不会帮阵亡的将士收尸，甚至还会将伤残的俄军士兵就地处死并焚毁。
 
-目前，零点夜话战友及家人、朋友在酒店里休整，等待下一步的安置计划。
+为此，这些俄罗斯士兵在视频中声明，他们实际上是受到了政府的欺骗，他们既不愿意侵略乌克兰，也不愿意成为这场独裁者战争的炮灰。这些士兵也向所有的俄军将士呼吁， 请大家不要再受政府的蒙骗，成为独裁者的牺牲品。同时，他们也号召俄罗斯人民站起来反对普京，停止这场毫无意义的战争，停止这场人类的灾难。
 
-新中囯联邦的战友们都知道，在瞬息万变的战区，信息就是生机，时间就是生命。希望越来越多的同胞和友人，在新中国联邦的帮助救援下，抓住逃生的机会。正如零点战友所说，没有战争，远离硝烟，感受和平时光的美好”。
+参考链接：[https://gettr.com/post/py4ufqdd33](https://gettr.com/post/py4ufqdd33)
 
-新闻链接: [新中国联邦法制基金乌克兰人道救援行动](https://gettr.com/post/py0enb118f)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
-
-编辑: 玫瑰圆
-
-总编: 飞虹
-
-审核: 木木
-
-校正/发稿：浪迹天涯
+总编：Irene木木
+编辑：Ivy001
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-2.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

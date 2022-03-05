@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/5/2022 3:22 PM (UTC)`
+
+Ukrainian American actively involved in this Ukrainian rescue operation of the NFSC to Poland.<br/><br/>美国生活的乌克兰裔积极参与到新中国联邦此次的乌克兰救援行动之中，前往波兰。 <br/> 
+![img](https://media.gettr.com/group26/getter/2022/03/05/15/71b8b055-0a7b-d183-2707-725b2742bc03/out.jpg)
+
+---
+
 `@miles 3/5/2022 1:18 PM (UTC)`
 
 致乌克兰战场的所有同胞们……紧急紧急紧急。
@@ -151,13 +158,6 @@ Prince and Rachel: The New Federal State of China and the Rule of Law Foundation
 
 3/2/2022 Miles Guo: We need to be patient in waking up the Chinese, who have been ruled by the CCP with falsehood for too long. Zelenskyy has changed the stereotype of politicians by telling the world that anyone can become a leader and change the world. Pushing the election of “one person, one vote” is my life-time mission.<br/><br/>3/2/2022 文贵直播：唤醒中国人要有耐心，因为他们被以假治国的中共统治了太久；泽连斯基改变了政治家的形象，告诉世界任何人都可能成为领导人，改变世界；文贵一生的使命是推动中国的一人一票<br/>
 ![img](https://media.gettr.com/group23/getter/2022/03/04/07/dcd042f3-7df3-f5c5-3d26-50aa0fd57e2f/out.jpg)
-
----
-
-`@miles 3/4/2022 7:28 AM (UTC)`
-
-3/2/2022 Miles Guo: The Russian-Ukraine war may possibly save Taiwan from being invaded by the CCP. With the help of social media, the world has witnessed who is the hero and who is the clown between Zelenskyy and Putin. The Russian-Ukraine war has made me feel there is hope for the Chinese people. The New Federal State of China is indispensable to the world, and China will soon have a democracy of one person, one vote!<br/><br/>3/2/2022 文贵直播：俄乌战争或将成为拯救台湾的挡箭牌，社交媒体让世界看清泽连斯基和普京谁是英雄，谁是小丑；俄乌战争让文贵感到中国人有希望；这个世界不能没有我们新中国联邦！中国很快会有一人一票的民主制度！<br/>
-![img](https://media.gettr.com/group38/getter/2022/03/04/07/655d39e4-3979-b8b1-1f33-e1ff6806b731/out.jpg)
 
 ---
 

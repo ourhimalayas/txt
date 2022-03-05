@@ -2,35 +2,40 @@
 ---
 
 
-## 台湾完成从乌克兰的撤侨工作
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2110975/)
+## 乌克兰战争改写了人类政治的本质
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2111068/)
 
-作者：纽约香草山农场-云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月4日，据台湾外交部发布的新闻稿显示，台湾第三辆从乌克兰撤侨的专车已经安全抵波兰，完成了阶段性地从乌克兰撤侨的任务。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-05-上午8.18.00.png)
-外交部表示，当天晚上共有八名台侨和13位外籍配偶搭乘了台湾的撤侨专车抵达波兰，加上早先的两趟撤侨车次，台湾共计从乌克兰撤出了55位台侨及其外籍家人。
+撰稿：首尔天池农场—追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-2.png)
+3月2日，郭文贵先生在大直播中指出，乌克兰战争改写了人类政治的本质。
 
-外交部也指出，在没有正式外交关系的情况下，台湾外交部及相关经贸单位派驻在俄罗斯、乌克兰、波兰和斯洛伐克等地的工作人员通力合作，再加上乌克兰当地政府的支持，从而使得台湾顺利完成了救援台侨的任务。
+首先，泽连斯基作为乌克兰总统，在俄罗斯入侵乌克兰之际，没有选择逃离，而是勇敢地带领乌克兰人誓死保卫家园，面对强大的入侵者时，全民一心，顽强抵抗。从一个曾经的演员到总统，真正演绎了人类世界伟大领袖的精神。这也是让普京和习近平都难以接受的，因为普京和习近平作为两个超级大国的独裁领袖，与泽连斯基形成鲜明的对比。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-431.png)
+其次，媒体全程播报战况增加了战争的透明度。过去的战争，没有发达的媒体全程播报战况，导致民众对战况信息不能全面真实地掌握。但这次战争中，战争场面被摄像机全程拍摄，平面、立体、真实地展现在人类面前，让人类无差别地了解到实际战况。
 
-据悉，台湾外交部除了对各国政府的协助表示感谢外，还将继续对乌克兰进行人道支援。
+最后，在乌克兰战争中，人们可以自我表决支持哪一方。世界大多数人表示支持乌克兰，这不是被媒体控制的结果，而是人类根据战争的真实信息自行做出的表决。
 
-参考链接：[烏克蘭撤僑任務成功 第三輛專車抵波蘭](https://www.cna.com.tw/news/aipl/202203040025.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+新闻来源：[2022年3月2日 文贵大直播](https://gettr.com/streaming/pxru0n55ba)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
-总编：Irene木木
-编辑：谐趣园
-审核：
-校正/发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+编辑：静言
+
+总编：飞虹
+
+审核：木木
+
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

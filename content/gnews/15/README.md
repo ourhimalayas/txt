@@ -2,42 +2,39 @@
 ---
 
 
-## 力挺乌克兰 全球各界掀起反战浪潮
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2111089/)
+## 蓬佩奥指责中共毫无信用并呼吁承认中华民国
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2111306/)
 
-撰稿：纽约香草山教育部- Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-1.png)
-俄罗斯对乌克兰的持续入侵已造成了巨大的人道灾难，并招致了西方世界的强烈抵制和制裁，反战浪潮已在全球各个领域掀起。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-432.png)图片来自：https://www.washingtonpost.com
-（1）零售方面。美国各地正在从货架上撤下俄罗斯制造的产品，因为几位州长签署了限制俄罗斯商品在本州销售的命令。
+作者：纽约磐石农场—在远方，纽约香草山农场-6zero4
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月4日，据相关媒体报道，正在台湾访问的美国前国务卿蓬佩奥公开表示，中共不仅撕毁了对香港的承诺，也撕毁了对乌克兰的承诺，其毫无政府信用。为此，蓬佩奥呼吁，美国应该承认台湾作为主权国家的地位。
 
-（2）体育方面。应国际奥委会的要求，体育联合会和体育联盟正在积极采取行动将俄罗斯的球队和运动员排除在任何赛事之外，并将主要体育赛事的举办场地从俄罗斯转移出来。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-1.jpeg)
 
-（3）文化娱乐方面。纽约大都会歌剧院总经理在一份声明中表示，不再与支持普京或得到他支持的艺术家或机构接触。戛纳电影节的组织者2月28日表示，不欢迎俄罗斯官方代表团和任何与俄罗斯政府有联系的人参加此次活动。华特迪士尼公司、华纳兄弟和索尼影业表示，将暂停即将在俄罗斯上映的电影。
+蓬佩奥指出，美国政府五十年前开启与中共独裁政权的交往政策被证明是错误的：中共国并没有因为经济发展而变得民主、自由。因此，川普政府此前重新与中共进行贸易协定谈判，其后又认定中共在新疆地区犯下的种族灭绝和反人类罪，同时还强化与印太盟友的军事关系——这一系列举动都是为了吓阻中共持续增长的军事扩张企图。
 
-（4）媒体宣传方面。元宇宙 、谷歌等各大科技巨头已迅速采取行动，限制俄罗斯国有新闻媒体 RT 和 Sputnik 的覆盖范围，以阻止错误、虚假信息的传播。流媒体巨头 Netflix 周一表示，将不会在其平台上播放任何俄罗斯频道。
+此外，蓬佩奥也提到，中共早先承诺乌克兰，会在主权和领土完整方面相互支持，但如今，这项承诺已经荡然无存，更不要说中共近年来在香港问题上的累累血债。眼下，中共已经成为对世界最严重的威胁。
 
-（5）贸易方面。大众汽车集团，梅赛德斯-奔驰集团表示，将不再向俄罗斯出口汽车，并将停止在俄罗斯工厂的生产。家居巨头宜家，时装零售商Mango，服装品牌H&M纷纷表示，将暂停在俄罗斯的生产，关闭其在该国的商店，并停止向俄罗斯出口商品。苹果、耐克和英国快时尚品牌Asos 和 Boohoo宣布将不再在俄罗斯销售产品。
+对此，蓬佩奥呼吁，美国政府应该在外交上承认中华民国是独立的主权国家，也就是台湾作为独立国家的地位。同时，美国人民和政府也应该清楚地认识到这一政治、外交和主权的现实，这也是台湾人民理应得到的、来自世界对自由民主的中华民国的尊重。
 
-（6）航空方面。航空公司软件巨头 Sabre 3月3日宣布将终止与俄罗斯航空公司 Aeroflot 的分销协议，这将削弱该公司销售航空机票的能力。
+参考链接：
+1. [中共無信用 龐皮歐：中烏戰略夥伴承諾也蕩然無存](https://news.ltn.com.tw/news/politics/breakingnews/3848579)
+2. [Former Secretary of State Mike Pompeo Calls on U.S. Govt. to Recognize Taiwan as Independent](https://www.breitbart.com/politics/2022/03/03/former-secretary-of-state-mike-pompeo-calls-on-u-s-govt-to-recognize-taiwan-as-independent/)
 
-链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-[Russia boycott: A list of global campaigns that are underway in support of Ukraine](https://www.washingtonpost.com/world/2022/03/02/boycotts-russia-invasion-ukraine/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
-
-编辑/总编/审核：飞虹
-
-校正/发稿：浪迹天涯
+总编：Irene木木
+编辑：宁文静
+审核：Irene木木
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
