@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/5/2022 11:20 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-最前线跟踪报道
+![img](https://media.gettr.com/group33/origin/2022/03/05/10/896f6e5e-1eed-fc85-35fd-6a115e3e52f8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/5/2022 10:20 AM (UTC)`
 
 ⚠️⚠️Expose The Timeline of Chinese Communist Party and Russia Alliance’s Military Ambitions <br/><br/>Russia has invaded Ukraine and the world geopolitical landscape has been turned upside down. As the center of intelligence community, Mr. Guo continues to share important intelligence to Western democratic countries and people around the world. The shared intelligence has saved countless people and at the same time provided an important basis for Western democratic countries’ political strategies. People from the NFSC will always stand with the righteous people of the world!<br/><br/>⚠️⚠️关于揭露中共与俄罗斯结盟的军事野心的爆料时间线：俄罗斯已经入侵乌克兰，世界地缘政治格局发生了翻天覆地的变化。郭文贵先生早在2017年就不断警告——“黑暗已经来临，我们每个人都应该做好准备”。作为情报的汇聚点，郭先生不断向西方民主国家和全世界人民爆料重要的情报信息。新中国联邦的情报拯救了无数人，同时也为西方民主国家的政治决策提供了重要依据。新中国联邦人将永远与全世界正义的人们站在一起！
@@ -153,13 +160,6 @@ Prince and Rachel: The New Federal State of China and the Rule of Law Foundation
 
 @青藤Vision<br/><br/>今晚哈尔科夫文化学院宿舍遭到射击，据初步估计13名学生被杀，包括4名中国学生和1名印度学生，2名中国人名字已知：Jin Tianhao、Li Zhi……
 ![img](https://media.gettr.com/group32/gvision/2022/03/04/03/cf11c586-619a-ca8f-0faf-8b3480497fa7/out.jpg)
-
----
-
-`@miles 3/4/2022 3:00 AM (UTC)`
-
-Prince and Rachel from NFSC on War Room: New Federal State of China is evacuating people from Ukraine to a safe transit country, offering free flights and free accommodations and food for up to 30 days.<br/><br/>新中国联邦战友小王子和瑞秋作客战斗室：新中国联邦人正在帮助人们撤离乌克兰到安全的中转国，并提供免费的飞机和30天以内的免费食宿。<br/><br/><br/>
-![img](https://media.gettr.com/group17/getter/2022/03/04/03/b2dadf8e-2155-6a63-0af4-3298dcbdaddb/out.jpg)
 
 ---
 

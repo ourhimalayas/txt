@@ -2,25 +2,55 @@
 ---
 
 
-## 【 G时新闻 】 普京侵乌意在欧洲 ，战争受挫又欲毁欧？
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2110515/)
+## 拯救
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2110535/)
 
-乌总统泽连斯基周五（3月4日）早些时候在扎波罗热核电站大火仍在燃烧时表示，俄罗斯坦克正在有意炮击核装置，因为俄军坦克有热视觉，明确知道目标是核电站。他指责俄罗斯诉诸“核恐怖”。
+作者：纽约香草山教育部-蓝之灵（hortênsia)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我们不缺勇气
+我们需要粮食和弹药
+救救乌克兰
+救救这片土地
+和
+土地上人们
+赶跑侵略者
+拯救道义
+拯救公理
 
-美国总统乔·拜登在基辅时间凌晨 3 点 40 分左右打电话给乌克兰总统，两位领导人敦促俄罗斯停止在该地区的军事活动，并允许消防员和应急人员进入该地点。
+在废墟上活着的人们
+没有放弃保卫家园和孩子
+伸出援助之手
+救救孩子
+和
+孩子生活的土地
 
-乌克兰总统泽连斯基在3月3日举行的新闻发布会上说，西方应该认识到普京的目标是柏林。郭文贵先生直播曾指出入侵乌克兰不是普京最终目标，他目标是拿下欧洲，与其狼狈为奸的中共党魁习近平提供普京金钱，两人达成政治上同盟，习近平拿下台湾乃至亚洲，最后联合依赖、北朝鲜和巴基斯坦，组成邪恶轴心消灭美国。
+救救我们
+让献血唤醒良知公义
+救救我们
+让生命付出
+有实际意义
 
-原文链接：https://gnews.org/zh-hans/2108113/
+伸出援助之手吧
+唤醒良知公义
+赶跑侵略者
+把土地还给孩子
+和
+希望
+还给人民的乌克兰
 
-视频链接：https://gettr.com/post/pyaxdrc191
 
-播报：莉李鲤
 
-视频制作：文雅
+审核/编辑/发稿:qiutian（邱甜）
 
-编辑/上传：CTQ
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

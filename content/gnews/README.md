@@ -15,38 +15,38 @@
 
 ---
 
-### [电力公司声称故障造成了台湾大停电](/content/gnews/1/README.md)
+### [有声｜俄罗斯立法用以控制舆论 同时封锁Facebook](/content/gnews/1/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [中共最后的两会报告](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [独裁的愚蠢是一种道德缺陷](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [电力公司声称故障造成了台湾大停电](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022/03/01 俄罗斯士兵阵亡前与母亲的信息交流](/content/gnews/2/README.md)
+### [2022/03/01 俄罗斯士兵阵亡前与母亲的信息交流](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拯救](/content/gnews/3/README.md)
+### [拯救](/content/gnews/6/README.md)
  ` 纽约香草山MOS03`
 
-### [2022/02/28 俄乌战争爆发后，50万难民逃离了乌克兰](/content/gnews/4/README.md)
+### [2022/02/28 俄乌战争爆发后，50万难民逃离了乌克兰](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共宣称可以保证14亿多人每天到点开饭不饿肚子](/content/gnews/5/README.md)
+### [中共宣称可以保证14亿多人每天到点开饭不饿肚子](/content/gnews/8/README.md)
  ` 儒为`
 
-### [【 G时新闻 】 普京侵乌意在欧洲 ，战争受挫又欲毁欧？](/content/gnews/6/README.md)
+### [【 G时新闻 】 普京侵乌意在欧洲 ，战争受挫又欲毁欧？](/content/gnews/9/README.md)
  ` G-时新闻`
 
-### [塞纳战车交易标志喜币走向另一个新时代的开始](/content/gnews/7/README.md)
- ` 波士顿五月花农场金融部`
-
-### [俄罗斯宣布在乌克兰进行有限停火以允许撤离，但继续广泛进攻](/content/gnews/8/README.md)
- ` Shuizhuyu`
-
-### [教育是人类认知、创造和分享文明的必要手段](/content/gnews/9/README.md)
+### [教育是人类认知、创造和分享文明的必要手段](/content/gnews/10/README.md)
  ` 纽约香草山MOS02`
 
-### [【 G时新闻 】 美军赶赴欧洲，遏制俄罗斯的进一步侵略！](/content/gnews/10/README.md)
+### [【 G时新闻 】 美军赶赴欧洲，遏制俄罗斯的进一步侵略！](/content/gnews/11/README.md)
  ` G-时新闻`
-
-### [中共掩盖南斯拉夫事件的真相，并以此为筹码](/content/gnews/11/README.md)
- ` G-NEWS TAIWAN`
 
 ### [外国志愿兵涌入乌克兰抵抗俄军](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
