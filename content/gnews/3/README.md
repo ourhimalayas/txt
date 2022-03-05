@@ -2,29 +2,31 @@
 ---
 
 
-## 俄罗斯制裁: 斯太尔的宝马工厂处于停滞状态 &#8212; 3200名员工担心工作不保
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2110429/)
+## CNN和BBC等美欧媒体暂停在俄报道 因记者安全无法保障
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2110453/)
 
-**欧洲工厂受到影响 — 美国、中共国和墨西哥不受影响!**
+翻译：zicoround
 
-翻译：Luckycky/校对:  蔚蓝的天
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image1-2.tif)图片：WB
-从明天起，位于斯太尔的宝马发动机厂将处于停滞状态。由于战争，在乌克兰生产的电缆线束无法交付。越来越多来自俄罗斯的汽车生产重要部件也开始短缺。由于欧盟的制裁，这种情况将继续存在。对我们的经济产生了重大影响：仅在斯太尔，现在就有3200名员工被安排做短时工。德国、牛津和荷兰的工厂也受到影响。美国、中共国和墨西哥的工厂可能有其他供应商，因此可以继续正常生产！欧洲再次受到严重影响，而美国又是受益者。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-05-111436.jpg)图片来源：goo.ne.jp
 
-宝马工人已经亲身感受到乌克兰危机的影响。位于斯太尔的宝马集团全球最大的发动机厂遇到了一个巨大的交付问题。由于战争，在乌克兰生产的电缆线束无法交付。对斯太尔来说，这意味着：发动机厂处于停滞状态！第一批停产已经发生在周三的晚上。对于斯太尔的约3200名员工来说，短时工的规定直至五月底。
+4日，美欧的一些包括美国CNN电视台、彭博通讯社、英国BBC放送等主要新闻机构相继宣布，将停止在俄罗斯的报道活动。据信这是为了确保记者们的安全，因依据俄罗斯新生效的一项法律规定，对传播有关入侵乌克兰”虚假信息”者最高可判处15年监禁。在俄罗斯的普京政权强权统治下新闻自由正受到威胁，这可能会波及俄罗斯境内的其他媒体。
 
-**欧洲的大型工厂受到影响**
+CNN在一份声明中说，将 “停止在俄境内的广播，并对现状及今后的运作方式进行评估”。 BBC董事长谴责在俄罗斯新生效的法律”似乎将独立的新闻报道视为犯罪”，并表示，只能 “暂时停止 “在该国的采访活动外，除此以外别无选择。 彭博社总编辑米切尔•斯韦特也指出，在俄罗斯继续从事新闻报道已变得困难。加拿大的加拿大广播公司（CBC）也表示，将暂停俄境内的报道活动。
 
-不仅是斯太尔受到影响。发动机和车辆都需要电缆线束。宝马在慕尼黑的主要工厂（[BMW-Stammwerk in München und in den Fahrzeug-Werken](https://www.sueddeutsche.de/muenchen/bmw-produktionsstopp-1.5540245%23:~:text=Lieferprobleme%2520wegen%2520Ukraine-KriegKompletter%2520Produktionsstopp%2520im%2520BMW-Stammwerk&amp;text=Im%2520BMW-Stammwerk%2520in%2520M%25C3%25BCnchen,Oxford%2520und%2520in%2520den%2520Niederlanden.)），以及在丁格芬、牛津和荷兰的汽车工厂的生产线也处于停滞状态。仅在慕尼黑就有7000名员工，在丁格芬有多达10000名员工受到停产的影响。在莱比锡，只能一个班次进行生产。由于缺乏半导体，雷根斯堡工厂的生产也将不得不减少到一个班次。接下来的几周将显示这些限制将持续多久。
+据路透社等新闻机构报道，俄罗斯截至4日，已屏蔽BBC、美国的美国之音（VOA）、德国公共广播电台（德国之声）等外国媒体网站。对此，BBC批评称“获取准确和独立的信息是一项基本人权，俄罗斯公民不应被剥夺这种权利。” BBC表示，将在俄境外继续提供俄语服务。
 
-**对美国、中共国、墨西哥没有影响**
+与此同时， 2日，欧盟（EU）宣布，它将禁止俄国营媒体RT（今日俄罗斯）和Sputnik在欧盟境内散布其虚假信息。
 
-根据我们的调查，乌克兰的生产并没有完全停滞。尽管处于战争状态，但生产是在有限的人员下进行的，这就是为什么只能进行小批量交货的原因。对于美国、中共国和墨西哥的工厂（[Werke in den USA, in China und in Mexiko](https://www.sueddeutsche.de/muenchen/bmw-produktionsstopp-1.5540245%23:~:text=Lieferprobleme%2520wegen%2520Ukraine-KriegKompletter%2520Produktionsstopp%2520im%2520BMW-Stammwerk&amp;text=Im%2520BMW-Stammwerk%2520in%2520M%25C3%25BCnchen,Oxford%2520und%2520in%2520den%2520Niederlanden.)） 来说，这场危机目前应该不会产生任何负面影响。据说他们有其他供应商，因此不受交货问题的影响。他们的生产将照常进行。早在2021年秋天，中共国就收紧减少了计算机芯片供应（[China den Nachschub an Computerchips](https://www.wochenblick.at/corona/wirtschaftskrieg-china-verursacht-kuenstlichen-mangel-an-computerchips/)）。结果，许多生产厂陷入停顿，一些汽车制造商报出了新车一年的交付时间。也许他们甚至可以在未来从欧洲危机中获利。那么，如果美国和欧洲的幕后操纵者继续在危机之火上浇油，谁会从中受益？
+欧盟外交和安全事务高级代表博雷尔在一份声明中谴责 “俄罗斯政府有组织地操纵信息和虚假情报，并将其作为攻击乌克兰的工具”。 他强调，虚假信息 “也是对欧盟秩序和安全的严重且直接的威胁”。
 
-原文链接：[https://www.wochenblick.at/allgemein/russland-sanktionen-bmw-werk-in-steyr-steht-still-3-200-mitarbeiter-bangen-um-jobs/](https://www.wochenblick.at/allgemein/russland-sanktionen-bmw-werk-in-steyr-steht-still-3-200-mitarbeiter-bangen-um-jobs/)
+新闻来源：[goo.ne.jp][米欧メディア、露で活動停止　ＣＮＮ、ＢＢＣなど記者の安全懸念](https://news.goo.ne.jp/article/sankei/business/sankei-_world_america_RDQKMHWUHVJJBJCJUQ2K5ZTCEY.html)
 
-发布：Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+* * *
+
+*审核：zicoround 
+校对：宫米叶
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
