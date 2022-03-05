@@ -2,32 +2,38 @@
 ---
 
 
-## 谁是真正在救我们的同胞
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2111462/)
+## 泽连斯基躲过了三次暗杀
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2111515/)
 
-撰稿：东京樱花团/小小星
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-51.png)
-二十多名华人命丧乌克兰,中共秘而不发!
+作者：银河系农场—骄子
 
-3月2日，郭文贵先生在大直播中透露，中共驻乌克兰大使馆当天早间的密电显示，截止目前，超过二十名在乌中国同胞已经在乌克兰战争中死亡。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
-郭文贵先生提到，这些中国同胞可能的死亡原因是被流弹击中车辆，从而导致几乎尸迹全无。经多方查证，这些死者大多是在乌克兰和罗马尼亚做服装生意的商人。但中共内部对此严令禁止，不许任何媒体报道相关事件。
 
-中国大使馆发言人竟然宣布全体华人已全部安全撤离。而郭文贵先生爆料说，中共只接走了60人并且都是领导的亲人，将来会公布名单。
+据外媒报道，在俄罗斯对乌克兰入侵短短一周之内，泽连斯基起码躲过了三次有企图的暗杀。
 
-话音刚落，就有150多名中国留学生在地道里避难的视频在网上传出，而他们一直在等待他们伟大的党、大使馆来救他们。
+俄罗斯支持的阴暗瓦格纳集团是其中两次暗杀的幕后黑手。乌克兰国防部长称收到了俄罗斯联邦安全局的情报，因他们并不想参加普京的血腥侵略，从而避免了对泽连斯基的暗杀。如果刺杀成功，俄罗斯可以堂而皇之地否认。除了这两次刺杀，还有一次刺杀是车臣刺客主使的，不过他们在行刺之前就已经被捕。
 
-而我们的新中国联邦立即启动了法制基金，以大卫战友领导的工作组赶赴前线。下面就是我们的紧急救援信息：
+在俄罗斯入侵乌克兰时，美国提出撤离泽连斯基，但他拒绝了，坚持留下来与乌克兰同生共死。郭先生此前也曾爆料，泽连斯基已经成为了暗杀目标，希望上天保佑他的安全。
 
-如果您急需撤离战争中的乌克兰： 我们无偿安排协助有需要的人士撤离，并提供30天以内的免费食宿，请有需要的华人同胞、美国及各国友人和我们取得联系！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-57.jpeg)图片来源：NEW YORK POST
 
-郭文贵先生3月4号又发盖特：请所有被困乌克兰的中国同胞，马上和能救你的这个信息和电话联系，你们会得到像亲生父母、兄弟姐妹一样的照顾，没有任何条件，不许付任何费用也不需要提供任何个人所谓的你认为宝贵的信息！没有比生命的宝贵了，不要再被共产党欺骗了……
+参考链接：[https://nypost.com/2022/03/03/ukraine-president-zelensky-survived-three-assassination-attempts/](https://nypost.com/2022/03/03/ukraine-president-zelensky-survived-three-assassination-attempts/)
 
-各种视频呈现在社交媒体上，有请求援助的留学生视频被中共秒删或关闭。中共随便践踏我们的生命。这是活生生的写照！ 醒来吧被奴役的中国人！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-58.jpeg)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+编辑/校对/发稿：文敬
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+
+
 
 
  

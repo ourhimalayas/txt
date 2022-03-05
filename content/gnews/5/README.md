@@ -2,39 +2,40 @@
 ---
 
 
-## 泽连斯基躲过了三次暗杀
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2111515/)
+## 面对核设施遭袭击，在乌克兰设立禁飞区的呼声有增无减
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2111595/)
 
-作者：银河系农场—骄子
+#### 撰稿：彩虹       
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-446.png)图片来源：雅虎
+3月4日，《国会山报》报道，为帮助抵御俄罗斯的攻击，越来越多的美国议员和乌克兰官员恳请拜登政府及其盟友在乌克兰领空设立禁飞区。
 
+报道说，乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelensky）和其他乌克兰官员表示，自俄罗斯大约两周前开始入侵以来，禁飞区是他们向盟国提出的一个关键要求。支持者认为，禁飞区将切断俄罗斯的空中支援，减弱俄罗斯军队向基辅的推进，并拯救无辜乌克兰人的生命。
 
-据外媒报道，在俄罗斯对乌克兰入侵短短一周之内，泽连斯基起码躲过了三次有企图的暗杀。
+现实是，拜登政府官员一直明确表示，设立禁飞区是不可能的，因为有可能产生危险的连锁反应。
 
-俄罗斯支持的阴暗瓦格纳集团是其中两次暗杀的幕后黑手。乌克兰国防部长称收到了俄罗斯联邦安全局的情报，因他们并不想参加普京的血腥侵略，从而避免了对泽连斯基的暗杀。如果刺杀成功，俄罗斯可以堂而皇之地否认。除了这两次刺杀，还有一次刺杀是车臣刺客主使的，不过他们在行刺之前就已经被捕。
+周四，白宫新闻秘书詹·普萨基（Jen Psaki）告诉记者说：“这不是总统愿意采取的步骤，也不是我们有兴趣采取的步骤，原因是禁飞区需要被执行到位，这基本上是要美国军队击落俄罗斯飞机，并促使与俄罗斯发生潜在的直接战争，而这正是我们想要避免的。”
 
-在俄罗斯入侵乌克兰时，美国提出撤离泽连斯基，但他拒绝了，坚持留下来与乌克兰同生共死。郭先生此前也曾爆料，泽连斯基已经成为了暗杀目标，希望上天保佑他的安全。
+但是，在乌克兰扎波罗热（Zaporizhzhia）核设施周四遭到俄军袭击之后，在乌克兰设立禁飞区的呼声却有增无减。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-57.jpeg)图片来源：NEW YORK POST
+在核电站遭到袭击后，空军国民警卫队飞行员亚当·金辛格（Adam Kinzinger）众议员在推特上说：“这是一个很好的时刻，我应乌克兰政府的邀请，再次呼吁设立禁飞区。我担心如果这种情况继续下去，我们将不得不以更为扩大的方式进行干预。”
 
-参考链接：[https://nypost.com/2022/03/03/ukraine-president-zelensky-survived-three-assassination-attempts/](https://nypost.com/2022/03/03/ukraine-president-zelensky-survived-three-assassination-attempts/)
+而在参议院军事委员会任职的参议员罗杰·威克（Roger Wicker）本周也告诉《赫芬顿邮报》（HuffPost），应该“认真考虑设立禁飞区”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-58.jpeg)
+文章说，禁飞区是用来禁止敌方飞机在某一地区飞行并对民众进行攻击。这种战术在冷战后的时代已经使用过几次，最引人注目的是1990年代在伊拉克，以防止对该国北部的库尔德人和该国南部的什叶派穆斯林的袭击。
 
-编辑/校对/发稿：文敬
+前国防部长莱昂·帕内塔（Leon Panetta）说，他认为目前没有必要设立禁飞区，认为华盛顿在冲突中的主要任务是向乌克兰提供军事援助。然而，他告诉《国会山报》，也不应该把禁飞区的选项排除掉。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+帕内塔说，执行一个全国性的禁飞区要比执行一个严格用于空运的有限区域需要花费更多的努力。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+前驻俄罗斯国防武官凯文·瑞安(Kevin Ryan)退役准将则说，在目前的环境下，禁飞区可能会对乌克兰产生负面影响，因为它已经从使用无人机和飞机中受益。不过，瑞安确实建议，美国和北约可以在俄罗斯军队尚未抵达的该国西部地区建立禁飞区。
 
+他说：“这可能是你可以做的事情，这将避免与俄罗斯人直接对抗的风险，因为他们没有真正在那里飞行。并且它还将提供一种保护，乌克兰不会将其视为对其在该国东部地区发生的战斗中使用无人机和飞机的侵犯。”
 
+**新闻来源**
 
+[Debate over Ukraine no-fly zone heats up](https://thehill.com/policy/defense/596942-why-the-us-and-nato-refuse-to-declare-a-no-fly-zone-for-ukraine?rl=1)
 
  
 
