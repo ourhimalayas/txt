@@ -2,31 +2,30 @@
 ---
 
 
-## 2022/03/02 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2106231/)
+## NFSC新闻、G|TV新闻访谈简报|2022年3月4日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2107273/)
 
-1. 3月2日，广东深圳部分地区开始执行“扫楼”政策排查所谓新冠病毒感染者，居民称家中柜子床底都会被打开搜查。
-2. 广东深圳部分地区用于封锁居民的设施又进行了升级，在之前的铁栅栏基础上加装了刀片铁丝网。
-3. 3月1日，湖北随州广水市陈巷镇水寨村村民，愤怒举报隶属中共国企中粮集团喂猪棚里的污水直接排向农田，让整个村子臭气熏天。
-4. 2月25日，河北保定。农村老人看电视，从不开灯。他们的“节约”行为其实源自中共对民生电力的垄断导致。
-5. 3月1日，四川南充。孙子和奶奶关于开关灯的“拉锯战”。老太太什么都好商量，唯一就是舍不得开灯。中共国某些贫困地区农村，每年平均用电量可能还不如美国的牲畜。
-6. 2月27日，江苏徐州。女子在超市买烤鸡，回家切开后发现里面已经霉变。
-7. 2月28日，北京。女子花230万在北京买下8平方的房子，不是为了用来居住，为了给孩子铺路。（为获得北京户口或所谓的学区房）
-8. 3月1日，河南郑州市人民政府办公厅发文，鼓励老年人来郑投亲养老，允许其投靠家庭新购一套住房。中共政府一贯荒谬魔幻的房地产政策！
-9. 3月2日，四川攀枝花。卡车失控撞向商铺，危险瞬间路边男子与死神擦肩而过。目击者称卡车撞上出租车后冲上人行道，事故中5名伤者已被送医。
-10. 2月28日，湖北随州。市民在垃圾桶里发现一名遗弃女婴全身被垃圾覆盖。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-1.jpg)
 
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-3.png)
+文章仅代表作者本人观点，与Gnews无关
 
-* * *
+视频参看：
+[2022.03.04早 《NFSC新闻》](https://gettr.com/streaming/py4zhzd823)
+[2022.03.04早 G|TV《新闻访谈》](https://gettr.com/streaming/py58g915d4)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-calendar-4-2.png)
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

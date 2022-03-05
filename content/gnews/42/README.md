@@ -2,32 +2,41 @@
 ---
 
 
-## 樱花FM|乌欧关系上新台阶：欧盟历史上首次帮助乌克兰购买和运送武器
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2105150/)
+## 自3月4日起，南澳大利亚警方取消了疫苗强制
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2105288/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/1yu1J-AC7NHRywcZcwIFs3is2Q-49ppC26V-h9OKh1o1V3dgpoMYdowkm4Oot-cUKRW1r_puJjz-9TY_K3-FW_-1tLr2GedquZv-150Utt9dx_ilVCW1C2DGepfsVtw3zSZJhFqb)
-**欧盟将资助购买价值 5 亿美元的武器并将其运送到乌克兰，这是欧盟历史上首次向受攻击国家运送武器。**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**为什么重要的原因：由于弗拉基米尔·普京对乌克兰的无端攻击，欧盟长期存在的政策禁忌正在消失。**
+翻译/编辑：文泓
 
-**新武器计划将通过欧洲和平基金提供资金，该计划于周日宣布，同时对俄罗斯飞机、官方媒体和白俄罗斯经济实施新制裁。**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-12.png)图片来源：Leader & 雅典娜设计组
 
-**最新消息：欧盟外交政策负责人约瑟夫·博雷尔在新闻发布会的问答环节中表示，成员国将向乌克兰提供战斗机，而不仅仅是弹药。**
 
-**[乌克兰外交部] 库莱巴部长一直在问我们，他们需要乌克兰军队能够操作的那种战斗机。 我们知道什么样的飞机，一些成员国有这种飞机。**
+当地时间3月4日，澳大利亚南澳大利亚警察局宣布，他们将于3月4日[取消疫苗接种](https://www.police.sa.gov.au/sa-police-news-assets/front-page-news/revocation-of-the-police-workers-vaccination-direction#.YiGsMuhByF4)令，允许该州拒绝接种新冠疫苗的警察重返工作岗位。
 
-**Borrell宣布：“我今天将提议将欧洲和平基金用于两项紧急援助措施——为乌克兰军队供应致命物资以及急需的燃料，防护设备和医疗用品提供资金。”**
+3月7日上午7时，《警务人员疫苗接种指令》将被撤销，并由管理指令取代，未接种疫苗的员工能够返回工作场所。但是，他们将被要求去到警局后立即进行快速抗原检测，并在每天轮班期间戴上口罩。
 
-**泽连斯基总统的领导力和勇气，以及乌克兰人民的韧性，都是杰出和令人印象深刻的。欧盟委员会主席Ursula von der Leyen 说：“他们激励了我们所有人。” “他称新政策为“分水岭时刻”。**
+南澳警察局长格兰特·史蒂文斯说，他有信心南澳警察部队可以管理正在进行的大流行病对警官和社区成员造成的风险，而不必让未接种疫苗的工作人员休假。
 
-**乌克兰官方电报频道对这一消息进行了庆祝，该频道赞扬这是西方世界团结起来反对普及侵略的另一个迹象。**
+然而，史蒂文斯表示，尽管能够恢复他们的实质性职责，但未接种疫苗的工作人员会遇到一些限制。例如，这些官员可能会被限制进入高风险环境，例如住宅老年护理和残疾设施以及法医学大楼。
 
-文字版原文：[乌欧关系上新台阶：欧盟历史上首次帮助乌克兰购买和运送武器](https://gnews.org/zh-hans/2088741/)
+此外，史蒂文斯表示，他正在与仍然有强制性疫苗接种政策的机构和部门接触并寻求建议，同时考虑到正在实施的《紧急管理法指示》。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+当日，该州记录了106例新冠病例，其中3月4日有9例在重症监护室。
+
+州长史蒂文·马歇尔表示，尽管南澳每天的新冠病例数将继续波动，但政府的首要任务是保持较低的住院人数。
+
+参考链接：[South Australia Police Removes Vaccine Mandates (theepochtimes.com)](https://www.theepochtimes.com/south-australia-police-removes-vaccine-mandates_4316187.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

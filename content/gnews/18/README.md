@@ -2,21 +2,34 @@
 ---
 
 
-## 特鲁多未能保护受中共迫害的加拿大人
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2107644/)
+## 中共砖家松口称可能跟中共病毒共存
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2107904/)
 
-加拿大温哥华扬帆农场    平民正道
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月28日，中共疾病预防控制中心的首席科学家曾光，在微博上发文称，“动态清零是特定的时期内的防疫对策，不会永远不变，在对发病、死亡容易容忍的情况下，与病毒共存是人类的长远目标”。
 
-据加拿大媒体【真北方】3月2日报道，尽管联邦政府表示将对专制国家采取强硬政策，但特鲁多当局几乎没有保护那些被中共等独裁政权迫害的加拿大人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/04-03-2022-2.jpg)图片来源网络
 
-[多伦多大学]最新报告指出：中共利用网络技术和媒体宣传，通过黑客账户、社交媒体，雇佣水军等方式有组织地散布虚假信息和在线威胁等活动，来实施其“跨国镇压”。并造成被攻击人士的职业和生活都受到了负面影响，甚至被迫切断了与中共国内家人的联系。
+这段发言，跟CCP一直以来鼓吹的“坚持动态清零”相悖，墙内关于该新闻的报道，几乎都已经被下架。 另据战友每日统计的墙内数据也表明，动态清零非但没有降低墙内的感染人数，并且还越是在中共严抓动态清零的时候，出现了单日确诊病例陡增的现象。
 
-尽管以上信息在去年已提交给特鲁多政府，但当局至今仍未采取有效的保护措施。为此，相关各界已敦促联邦政府尽快为那些遭受中共迫害的加拿大人提供支持，以维护该国民主人权的执政基石。
+相关链接:
 
-* * *
+[https://www.cna.com.tw/news/acn/202203020117.aspx](https://www.cna.com.tw/news/acn/202203020117.aspx)
 
-编辑： 平民正道    发布：平民正道
+[https://weibo.com/u/1496814510](https://weibo.com/u/1496814510)
 
+![This image has an empty alt attribute; its file name is March-4.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
+
+编辑/校正/发稿：Petite abeille
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,47 @@
 ---
 
 
-## 中共砖家松口称可能跟中共病毒共存
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2107904/)
+## 四方对话：不应允许乌克兰的事发生在印太地区
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2108045/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月28日，中共疾病预防控制中心的首席科学家曾光，在微博上发文称，“动态清零是特定的时期内的防疫对策，不会永远不变，在对发病、死亡容易容忍的情况下，与病毒共存是人类的长远目标”。
+#### 【雅典娜观察】和您一起洞察世界
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/04-03-2022-2.jpg)图片来源网络
+#### **四方对话：不应允许乌克兰的事发生在印****太****地区**
 
-这段发言，跟CCP一直以来鼓吹的“坚持动态清零”相悖，墙内关于该新闻的报道，几乎都已经被下架。 另据战友每日统计的墙内数据也表明，动态清零非但没有降低墙内的感染人数，并且还越是在中共严抓动态清零的时候，出现了单日确诊病例陡增的现象。
+#### 翻译/编辑：文泓
 
-相关链接:
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片14.png)
 
-[https://www.cna.com.tw/news/acn/202203020117.aspx](https://www.cna.com.tw/news/acn/202203020117.aspx)
+**片来源：雅典娜设计组**
 
-[https://weibo.com/u/1496814510](https://weibo.com/u/1496814510)
 
-![This image has an empty alt attribute; its file name is March-4.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/March-4.jpg)
+3月3日，美日印澳四国领导人召开“四方安全对话”（QUAD）视讯峰会，各方在谈及乌克兰危机时，重申对印太的承诺。四国皆表态称，不应允许发生在乌克兰的事情，再次发生在印太地区。
 
-编辑/校正/发稿：Petite abeille
+这场视讯峰会，由美国总统拜登、日本首相岸田文雄、印度总理莫迪、澳大利亚总理莫里森跨海连线与会。会后，四方对话发表联合声明称，领导人会晤是“重申他们对自由和开放的印太地区的承诺，所有国家的主权和领土完整都受到尊重，各国不受军事、经济和政治胁迫。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+会后，拜登发推称，四国致力于“全世界的主权和领土完整，包括在印太地区。”岸田文雄则表示，“不应允许像这样单方面以武力改变现状的事，发生在印太地区”。
+
+莫迪则是在会后重申四国稳定印太的承诺。莫里森则表示，“（乌克兰的）事态发展，让努力实现自由和开放的印太地区变得更为重要”。他强调：“我们坚定地致力于建设一个自由开放的印太地区，让小国不必担心更强大的国家。”
+
+今年2月，四方对话曾在澳大利亚举行外长会议。此次峰会后的联合声明称，四国领导人同意“未来几个月”在东京展开面对面的峰会会谈。
+
+此前，白宫印太政策协调员坎贝尔和白宫国安委员会的美国印太战略主任拉普·霍珀在2月28日强调，尽管当前有乌克兰危机，但美国仍将保持对印太地区的关注。同时提到，正密切关注中国对俄罗斯入侵乌克兰的立场，呼吁中国谴责俄罗斯的行动。
+
+根据《路透社》报道，俄罗斯入侵乌克兰之后，台海局势会否有变动，引发诸多舆论高度关注。此次四方对话视讯峰会并未明确提及台湾，四国领导人都是强调承诺整个印太地区的安全与稳定。
+
+对此，台湾驻华盛顿代表处表示，欢迎四方对话对自由开放的印太地区的承诺，“台湾将继续与该地区所有爱好和平的伙伴合作，以实现繁荣与稳定。”
+
+参考链接：[四方对话：不许乌克兰的事发生在印太](https://www.dw.com/zh/%E5%9B%9B%E6%96%B9%E5%B0%8D%E8%A9%B1%E4%B8%8D%E8%A8%B1%E7%83%8F%E5%85%8B%E8%98%AD%E7%9A%84%E4%BA%8B%E7%99%BC%E7%94%9F%E5%9C%A8%E5%8D%B0%E5%A4%AA/a-61007437)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

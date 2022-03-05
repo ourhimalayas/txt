@@ -2,24 +2,30 @@
 ---
 
 
-## 2022年中共国高校毕业生达1076万人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2104980/)
+## 中日财经爆|印度指控华为逃税
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2105073/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2FXinwen%2F5-11282021145520.html%2F%40%40images%2Fimage%2Fsocial_media&amp;imgrefurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2FXinwen%2F5-11282021145520.html&amp;tbnid=gYt-FNDceRxXXM&amp;vet=12ahUKEwithpbhhaz2AhU1R2wGHd0xAZ8QMygCegUIARCEAQ..i&amp;docid=lWwjVzZvq7Yq4M&amp;w=1500&amp;h=846&amp;q=%E4%B8%AD%E5%85%B1%E5%9B%BD%E9%AB%98%E6%A0%A1%E6%AF%95%E4%B8%9A%E7%94%9F&amp;ved=2ahUKEwithpbhhaz2AhU1R2wGHd0xAZ8QMygCegUIARCEAQ)
-3月4日新浪财经报道，中青报记者在全国政协十三届五次会议新闻发布会上提问。新闻发言人郭卫民说，今年有1076万名大学生毕业，高于往年，确实面临着较大就业压力2022届高校毕业生规模预计达1076万人，同比增加167万人，这是高校毕业生规模首次超过千万。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2Fe40c55a9-8a47-41fb-8075-b96fe935746e.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2F2f5fc6c9-ca2b-496c-9783-b47bf060769d&amp;tbnid=YETnJcdcmjbbCM&amp;vet=12ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ..i&amp;docid=xHuUh4vOZwW9NM&amp;w=2400&amp;h=1350&amp;q=%E5%8D%8E%E4%B8%BA&amp;ved=2ahUKEwj9pcyl-6v2AhWTgmMGHUamDS0QMygHegUIARDHAQ)
+路透社3月3日报道，一位印度政府消息人透露，印度对中共国电信设备制造商华为的一项税务调查发现，华为操纵账簿以减少其在印度的应税收入。
 
-2020届高校毕业生是874万人，同比增加40万人，2021届全国高校毕业生总规模909万，同比增加35万人。这意味着，2022年中国高校毕业生将创下两个历史：毕业生人数最高，毕业生人数增长最大。
+印度财政部并未指明是哪一家公司，仅称在上月对一家大型电信集团位于印度三个城市的办事处进行所得税突击检查时，该集团“未能就纳税申报问题提供任何实质性和适当的理由”。
 
-2022年中共国千万人规模的毕业生，不包括官二代和红二代，因为中共早已把自己的子女安排在海外留学，千万人规模的毕业生，更多是属于基层家庭，即将面临着毕业即失业的状态。
+印度当地媒体2月16日援引官方消息报导，印度税务部门对中共国电信设备制造商华为在印度的多处办公场所进行了搜查，此为逃漏税调查的一部分，近期对中共国几家智能手机企业也进行了相关调查。
 
-根据众多外卖平台的统计报告，现在中共国有大约700万外卖骑手，其中本科学历的有21万，硕士学历的有7万，中共国拼命的就业工作只为单单的生存活着而已，送外卖也是逼不得已的选择，随着中共经济急剧下降，各种谋生的新闻也会继续增加。
+新德里电视台（NDTV）援引印度报业托拉斯（Press Trust of India）报导，官员们查看了财务文件、账簿和公司记录、华为的印度业务和海外交易。
 
-[【今年高校毕业生首次过千万，如何看待就业形势？\_财经头条】](https://cj.sina.cn/articles/view/1726918143/m66eeadff03301c75j)
+消息来源:
+
+[印度指控华为逃税–印政府消息人士](https://cn.reuters.com/article/india-huawei-sources-0303-thur-idCNKCS2L013W?il=0)
+
+[中日财经爆|华为因逃漏税被印度税务机关搜查](https://gnews.org/zh-hans/2017942/)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

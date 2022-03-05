@@ -2,30 +2,12 @@
 ---
 
 
-## 俄罗斯和中共的疯狂造就新世界格局，新中国联邦秉持正道成赢家
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2107765/)
+## 3月4日 勿忘香港（图片1-8）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2107979/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
-
-3月2日，郭文贵先生于GTV、Gettr大直播中透露，俄罗斯和中共的疯狂会造就新的世界政治、金融格局，并表示，数字货币、新中国联邦会成为最后最大的赢家。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/mfile_1634473_1_20220218153308-scaled.jpg)图片来源RTHK
-
-
-俄罗斯总统普京军事侵略乌克兰、核武器威胁、无差别轰炸平民，好比插向自己心脏和脖子的三刀，普京自此已经彻底被世界孤立和唾弃。
-
-俄罗斯的疯狂只能唤醒一个战争机器——德国；中共即将的最后疯狂，只能唤醒另一个战争机器——日本，这是本质决定的。随后，世界格局大改变，战争打出新的欧洲、新的亚洲，还有新的澳洲。
-
-战后的金融界，会产生三个金融强国。英国这次对俄罗斯制裁的力度之大、之精准，意味着必将代替欧洲的金融强国瑞士，重回曾经辉煌的大英帝国金融时代。新加坡表面表示一定严格执行西方的各种制裁，私下里仍跟俄罗斯、中共国暗通款曲，所以新加坡唯有死路一条。崛起后的台湾会代替现有的新加坡，成为新的亚洲金融帝国。在美洲，美国一如既往的强大。但是倚靠美国，也会诞生强大的政治、经济实体——加拿大、澳大利亚，两国会成为新的第二级别或准第一级别的帝国。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3d9e226d3e23a087c251a322e1e0e0b8.jpg)图片来源RFI
-
-
-到那时，俄罗斯也会摘掉战斗民族的标签，玩弄、残暴统治中国人民的共产党也会100%被消灭干净。
-
-在货币界，数字货币会成为最后最大的赢家。新中国联邦秉持正道主义，会成为卢森堡、瑞士、新加坡样式的联合体，核心支柱喜联储、HCoin（喜币）、HDO（喜美元）谁也无法阻挡，HCoin（喜币）将是数字货币的规则制定者和开拓者。
-
-**附：**
-
-正道主义，无欲、无我、无目的、纯正的、纯粹的人道关系。
+设计 五月花农场 企鹅
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9D331C2A-5AE8-462C-B483-CCD3C4CE86D2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/A9F0E8A1-4997-4F0B-9BC4-89D4BA9787C4.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/4FFBD0FF-3636-49A3-8EF8-B53ACB1FA5D9.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/A35062F8-FECE-44D9-A7C7-D9429A3F1D5F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/A50B3A55-D33F-437F-8C1C-900EFD560FBF.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/81DAC211-5083-4967-8C5D-36A7647FF219.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/E067F4C1-F740-4C75-B11F-2807515736BE.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/8ED15CDA-79FB-4809-A21B-2D3CF329A427.jpeg)
+发布：水涨船高
 
  
 
