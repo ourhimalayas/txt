@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/5/2022 2:20 AM (UTC)`
+
+【UKRAINEHELP-003】新中国联邦和法治基金关于紧急救援乌克兰的通知<br/>【中文】 https://gnews.org/zh-hans/2104385/<br/><br/>【UKRAINEHELP-003】Announcement of New Federal State of China & Rule of Law Foundation on Emergency Rescue of Ukraine<br/>【英语 English】 https://gnews.org/2104541/<br/><br/>【UKRAINEHELP-003】Оголошення про створення нової Федеральної Держави Китаю та Фонду верховенства права з надзвичайних ситуацій порятунку України<br/>【乌克兰语 українська мова】 <br/>https://gnews.org/2104387/<br/><br/>【UKRAINEHELP-003】Уведомление по оказанию чрезвычайной помощи Новой Китайской Федерации и Фонда «Верховенство закона»<br/>【俄语 русский】 https://gnews.org/2106390/<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group35/getter/2022/03/05/02/5663a403-cc9f-2556-0a29-3b92ca18e7e9/7e43900bf356d2dc7c6f0db253aede2a.jpg)
+
+---
+
 `@miles 3/5/2022 1:59 AM (UTC)`
 
 3月4号：请所有被困乌克兰的中国同胞，马上和能救你的这个信息和电话联系，你们会得到像亲生父母．兄弟姐妹一样的照顾．没有任何条件，不许付任何费用也不需要提供任何个人所谓的你认为宝贵的信息！没有比生命的宝贵了，不要再被共产党欺骗了……
@@ -151,13 +158,6 @@ Prince and Rachel from NFSC on War Room: New Federal State of China is evacuatin
 
 3/3/2022 Miles Guo’s GETTR: Putin is going to deploy killer weapons to annihilate 5 million Ukrainians in the next 48 hours. The Russian oligarchs are selling their properties and yachts at half price. An era of digital currency will be spawned out of war, and anchored digital currencies with stable coins will be the future of humankind. The CCP responded to Pompeo’s visit to Taiwan by employing hooligan tactics. Putin, Xi Jinping, and the CCP are bound to be over!<br/><br/>3/3/2022 文贵盖特：普京要动用大杀器在48小时内灭掉乌克兰500万人；俄罗斯大佬五折卖房卖游艇；战争将催生数字货币金融时代的诞生，有稳定币和锚定的数字货币是人类的未来；中共用流氓手段针对蓬佩奥访台；普京、习和中共必将完蛋！<br/>
 ![img](https://media.gettr.com/group27/getter/2022/03/03/23/2dacfacf-f936-c820-c860-178abe5ff0ce/out.jpg)
-
----
-
-`@miles 3/3/2022 10:27 PM (UTC)`
-
-3/02/2022 Miles Guo: Nuclear war is extremely unlikely to happen, so no need to worry about it! Putin has invaded Ukraine, threatened Ukraine with nuclear weapons, and bombed civilians, and all these three dirty moves will only cause him to lose support, leading to his own demise.<br/><br/>3/02/2022 文贵直播: 发生核战的可能性极低，无需担心核战争！普京用打乌克兰，核武器威胁对手和轰炸平民这三个滥招儿只会让他失道寡助，自取灭亡！<br/>
-![img](https://media.gettr.com/group15/getter/2022/03/03/22/ad344a1b-6daf-0285-6824-49459971ef50/out.jpg)
 
 ---
 
