@@ -2,48 +2,93 @@
 ---
 
 
-## 文件披露新冠疫苗严重伤害，FDA和辉瑞却要求数据保密
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2110903/)
+## 乌克兰：为什么印度不批评俄罗斯入侵
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2110991/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**【日本东京方舟农场】翻译：Skyfrog**
 
-翻译/编辑：文泓
+过去几天，印度在乌克兰问题上不得不走钢丝，试图平衡与莫斯科和西方的关系。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-433.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/182.jpg)（图片来源：bbc.com）
+
+德里在联合国安理会发表的第一份声明没有直接点名任何国家，但表示，对国际社会要求给外交和对话机会的呼吁没有得到重视感到遗憾。
+
+然而，印方没有批评俄罗斯。在联合国安理会投票表决谴责入侵的联合国决议草案之前，德里面临着来自俄罗斯、美国和乌克兰的呼吁，要求他们“做正确的事情”。
+
+乌克兰和俄罗斯甚至公开呼吁德里采取明确立场。印度选择在投票中投弃权票，但仔细阅读其声明后可以发现，印度确实更进一步，间接要求莫斯科尊重国际法。
+
+印度谈到了“联合国宪章、国际法以及尊重各国主权和领土完整”的重要性，并补充说，“所有成员国都需要遵守这些原则，以寻求建设性的前进道路。”
+
+但印度弃权的决定引发了一些问题，尤其是在西方，这个世界上最大的民主国家是否应该采取更明确的立场。
+
+**没有好的选择**
+
+印度前外交官JN Misra表示，印度“有越来越糟糕的选择”
+
+他补充道：“一个人不能同时向两边倾斜。印度没有提到任何国家，这表明它不会反对莫斯科。印度在选择立场时必须小心谨慎，它已经这样做了。”
+
+印度寻求在乌克兰问题上寻求外交平衡有几个原因。
+
+最重要的是印度久经考验的国防和与莫斯科的外交关系。
+
+俄罗斯仍然是印度最大的武器供应国，尽管俄罗斯的份额从70%下降到49%。由于印度决定多样化其投资组合和促进国内国防制造业。
+
+此外，俄罗斯正在提供S-400导弹防御系统等设备，这给了印度对抗中国和巴基斯坦至关重要的战略威慑，这就是为什么尽管美国威胁即将实施制裁，但印度仍继续执行该命令的原因。
+
+**国防供应问题**
+
+此外，德里很难忽视与俄罗斯在几个问题上几十年的外交合作历史。莫斯科过去曾在有争议的克什米尔问题上否决过联合国安理会的决议，以帮助印度将其保持为双边问题。
+
+在这种背景下，印度似乎在遵循其著名的不结盟战略，并推动对话解决问题。
+
+美国智库威尔逊中心的副主任库格尔曼说，印度的立场并不令人意外，因为它与过去的战略是一致的。
+
+他补充说，“德里似乎对乌克兰正在发生的事情感到不安，但不太可能改变立场”。
+
+他表示:“出于国防和地缘政治需要，目前根本负担不起这样做。”尽管他补充说，德里在联合国安理会选择了一些强硬的措辞，以表明它对乌克兰的局势感到不安。
+
+印度还面临着从乌克兰撤离2万名公民的艰巨任务，其中大部分是学生。
+
+印度前外交官阿尼尔·特里古尼亚特曾在莫斯科和利比亚工作，2011年冲突爆发时，他在利比亚监督了印度公民的撤离工作。他说，要想成功进行撤离行动，冲突各方都必须保证安全。
+
+“印度不能冒着危及公民安全的风险站在一边。更重要的是，要看清全局，包括保持与所有人的沟通渠道畅通。”
+
+从这个意义上说，印度处于一个独特的位置，因为它是少数几个与华盛顿和莫斯科都保持良好关系的国家之一。
+
+印度总理莫迪与俄罗斯总统普京进行了通话，外交部长苏布拉曼亚姆·杰尚卡尔在华盛顿与官员举行了会谈。
+
+莫迪还与乌克兰总统泽伦斯基举行了会谈。特里古尼亚特表示，印度在保持与双方的外交渠道畅通方面做得很好。
+
+“印度没有直接批评俄罗斯，但这并不是说印度对乌克兰人的苦难视而不见。它采取了一种平衡的办法。它在联合国安理会强烈谈论领土完整，显然是为了突出乌克兰的困境。”他补充道。
+
+但如果华盛顿及其欧洲盟友继续对俄罗斯实施严厉制裁，印度可能会发现很难继续与莫斯科做贸易。
+
+美国目前似乎理解印度的立场，但不能保证它能持续这样做。
+
+当美国总统乔·拜登最近被问及印度的立场时，他没有给出明确的回答。“我们将与印度(就乌克兰问题)进行磋商。我们还没有完全解决这个问题，”他表示。
+
+关于购买s -400的制裁问题仍然悬而未决。《通过制裁打击美国对手法案》(Caatsa)于2017年出台，旨在对俄罗斯、伊朗和朝鲜实施经济和政治制裁。它还禁止任何国家与这些国家签署国防协议。
+
+早在俄罗斯入侵乌克兰之前，华盛顿就没有承诺任何豁免，专家认为这个问题可能成为印度和美国之间的谈判筹码。
+
+与此同时，如果看到德里改变战略，莫斯科可以利用自己的施压点，包括加强与印度主要竞争对手巴基斯坦的关系。
+
+在过去20年里，俄罗斯已经接受了印度与美国日益增长的关系，但乌克兰是一条它不希望德里越过的红线。
+
+库格尔曼说，只有当乌克兰的冲突持续下去，并最终造成两极世界的时候，这样的转折点才会出现。
+
+“让我们祈祷这不会发生吧。但如果真的如此，印度的外交政策将受到严峻考验。
+
+注：本文仅代表作者观点。
+
+原文链接：
+[https://www.bbc.co.uk/news/world-asia-india-60552273](https://www.bbc.co.uk/news/world-asia-india-60552273)
+
+素材採編：妙喜小油鍋
+校对：妙喜小油鍋
+发布：Linda
 
 
-
-图片来源：Gnews
-
-
-当地时间3月3日，环球通讯社在周二发布的55,000页文件中，美国食品和药物管理局（FDA）的生物制品评估和研究中心（CBER）**首次允许公众查阅辉瑞公司为支持新冠疫苗许可而提交给FDA的临床试验数据**。这是继美国地区法官马克·皮特曼于1月6日决定拒绝FDA提出的在未来75年内压制数据不对公众公开的请求，而FDA却声称这是必要的，部分原因是所谓的“资源有限”。
-
-文件中包含一份38页的报告，其中包含一个附录“特殊关注的不良事件列表”，其中列出了接种疫苗后[1,291种不同的不良事件](https://www.globenewswire.com/Tracker?data=DQ6j6zAQ_ZoQe1u0RkiSqw_-wf9XEfmPBImkGdwEivpCcLK1FTUA-MCrsjCGJz2QENh_DD2760Oy3XG0z0mxpum3pCWJ3lPMEVnRVO5FHxEM_yx_FoACjJ5ANpmGrYWEqg6IDO3HJHBsZMyYYGmuT4B0eoS5Wz7CGpj9OfRd55T32TzUG4qIrgBflaSrnvaEAgXmKZR18ZqwomGqGM2AqA==)。清单包括急性肾损伤、急性弛缓性脊髓炎、抗精子抗体阳性、脑干栓塞、脑干血栓形成、心脏骤停、心力衰竭、心室血栓形成、心源性休克、中枢神经系统血管炎、新生儿死亡、深静脉血栓形成、脑干脑炎、出血性脑炎、额叶癫痫、口吐白沫、癫痫性精神病、面瘫、胎儿窘迫综合征、胃肠道淀粉样变性、全身强直阵挛发作、桥本脑病、肝血管血栓形成、带状疱疹再激活、免疫介导性肝炎、间质性肺病、颈静脉栓塞、青少年肌阵挛性癫痫、肝损伤、低出生体重、儿童多系统炎症综合征、心肌炎、新生儿惊厥、胰腺炎……
-
-“这是一个重磅炸弹，”非营利活动组织儿童健康防御(CHD)总裁兼总法律顾问玛丽·霍兰德说：“**至少现在我们知道为什么****FDA****和辉瑞想要将这些数据保密****75****年。现在发现这些问题，应立即终止辉瑞****新冠****疫苗**。如此明显的严重伤害，还要求受疫苗伤害的人不得起诉辉瑞公司要求赔偿。”
-
-美国政府已经购买了5000万剂辉瑞疫苗，计划在2022年4月30日之前交付给5岁以下儿童，尽管FDA尚未为该年龄组授予紧急使用授权(EUA)。新冠病毒对健康儿童造成严重伤害或死亡的风险几乎为零，到目前为止，该疫苗对幼儿毫无疗效。
-
-据《卫报》称，“**辉瑞去年通过其****新冠****疫苗实现了近****370****亿美元（****270****亿英镑）的销售额，新冠疫苗已成为辉瑞历史上最赚钱的产品之一**，2022年将是其另一个丰收年，其中来自其新冠药片帕克洛维（Paxlovid）的巨大推动力。”
-
-周二，拜登总统在他的国情咨文演讲中宣传了帕克洛维，同一天，辉瑞公司向公众发布了数据。拜登在演讲中说：“我们正在发起‘检测治疗’倡议，这样人们就可以在药房接受检测，如果检测结果呈阳性，可以当场免费服用抗病毒药。”
-
-从2020年12月中旬到2022年2月18日，**美国政府的数据库疫苗不良事件报告系统****(VAERS)**已收到[1,134,984份](https://www.globenewswire.com/Tracker?data=_rJ_9jAML8JfP2NrsMFUakXQ-6txp8WRFEZTkgvPQAq2Ni8CC08kF-Geqe6V9_4sNptqYtWl3vaJ1HBUTddAh9wS-KfJSYDVuJuHPGv2-lc5KLSFQJtcQzsV6haC05h_Zijw5D70bGRGtSr8O46Zqluiw0T9iBqO-s0zogglLMvPNhMqrNffzXIV153keeuefjRUi6sjarbbEMJD6I36JA==)新冠疫苗接种后的不良事件报告，其中[24,402人死亡](https://www.globenewswire.com/Tracker?data=9zfNuAam6jlp_2CMx3IOmd0ZzBSJun-XP2evSyjyITDPWFUc2s60bzDHlCQjnshvGWCHRBZ6T1lt-oAd71tEo7ycdklC48nXNVnRipHTcvYq_fV7gcjp3q7R-p9uTRuAJPwWAq0oEg9scW_WBSfWAkdYyRxba_kPzJ-HKhy2v7BWFZsozTDHoVOAkBngwTN76zRcZ98nTZSIn4pXkhtegA==)。此外，美国有[4,021例](https://www.globenewswire.com/Tracker?data=v0ysAVEKFQ13yoU3i6LlkIDQ1yOJJL0m2COB0xrKHiMgAiBwX3zZ4zTerJ0kpnUJmSE7405NAqWkIeVEUbMGYR5wLV4WmqBmPla6xOaKK5LGdmA5nYmcS3jjFhijjScez8b45oJ82sX-Mw_Ka6XZrgzVBbK6vWXaWVT2I11rG8erVcq0u_RwB78De28IyaLHHvnWE-yp38nWxLt8B78-f4N-m_-9Kfl9CygC1oqM-ewcwSnrqqUVDskC_e3S8MmXaNpCwqRN4IDNKx1VX8Ulng==)心肌炎和心包炎病例，其中[2,475例](https://www.globenewswire.com/Tracker?data=AJ9n9dFPYq4AEYEI1D9LIagT9nwBE3eznhChHbU0WPq6p4Kkx653xD6HcADqQq_kmh4PVXMXzjpi5ndZBgWS1rXwy8xOKKPUNP7jeW0051dG3-KYnOfktqyfQ6KoOzd2m3B34Nx_ejHnwxC0inbKzYQ4RKYmC0-6mnT1IeLkd4AKS1RwQALM0vibSK4rMh5rDrIk1ZIT25j5kqrVFAJ_YJpntkt0oMbrPtDjBUvTnvGCclHfXKTZ43ae0vh0WmgnrgA51mjmCwoNKyXTyGXVMW_VHhPG5NWLKE2fVOHs1tB6bdhAZFQZWOM5rPFDRVwd)与辉瑞相关，[1,364例](https://www.globenewswire.com/Tracker?data=v930XcEtxamOcfyulmqzBGKZSLQTzs-aKnXGMWrS_xff08DN7kH7Y3fnWsBF7ozC3ldTTBQo-iT-DSP6ISsH-1vG0Dqi2-3Gs_hq1uomy1Q3d2D6TgIjSeFwGA7E2FH9Az9Kpom25kXsa11TzRCgHdOlmTXdiV1V4rhB23W1Y67YihAQYHUjAUyCRWv-ThC8ccATNmVnH-AW7J6yJv7lLcTFgKIhh1Hfv4ZCwqfb-H0SJ2e3lANeeLSASMqz7n7Ou2SOwBDZTqo5TUX6Z9PKVRxfvPOP4KvAAL6Lu5aBLgY=)与莫德纳相关，[171例](https://www.globenewswire.com/Tracker?data=3KKDBwKgw_K4shxkEr4Nm9Ou5x9E00T6yh2UQoU0Uhxs7kUb33L2n2zvsdQ-gsJriZ3uwc9KVrTOBU-2kLMYy7axIuO6sU_2aJXJx_maCSEuqvnd49fKa12hE1LsxRgnHu-krU3vF4cuDEsjy6LXMvbGQsBTTSAo0Y6oZ_ySAGU4fTDj79a--LZdG436lKpaQkUQuQELIMUO4GOkKTxC1xWXM7q4FvmCavIB-Aj0Mg9ivOLENvd_f34rNXL57R86GPxOyaLlCzWPkRZCt7mAg-XCVym75XsL5Bgvxe98C6k=)与强生新冠疫苗相关，其中包括[643](https://www.globenewswire.com/Tracker?data=NPmw6pjeTglAqe_9wc8AdZW0Za-ofpVOZ9Tbix4X6fZSXPVDCnngf99Dknaq2xP6zRvMDuDH0D5oV8mgRaetvNv2gzi-j6b3FCoG5TNaSQdIL2cTa4BeWKw1tpc7yxH949STh0z1nqQfK6NA7dDhsZitYLwtRBwc3NRmu2qo0uKRnA49eXaPpyZiIEqPhqWpgqQA_5Uk8Gezn_E2H5T9umiyGZL6MpgznZWeHz7a-gU2zcSlqhj0nEqUrxif8NsSvEpUlwWYA1UVKtmVK37aZMa4q6cunI-PQnmmNay0cgSREBqC0zB1L6u58e0XTJOicCK1WMtAj0VnoC4S1dEZeA==)例12至17岁儿童心肌炎和心包炎的报告。
-
-“**让婴幼儿接触这种极其危险的产品是犯罪行为**”，霍兰德说：**“VAERS****数据显示，疫苗正对数百万人造成灾难性的健康影响，但辉瑞和其他疫苗制造商却在赚取数十亿美元，而不必担心因疫苗造成的伤害和死亡而被追究责任。****”**
-
-FDA的底线是试图压制这些数据以支持制药行业，然而这并不是美国公共卫生系统的新现象。有关制药腐败以及该行业与政府监管机构的密切关系的更多信息，请阅读由CHD主席兼首席律师罗伯特·肯尼迪*[撰写的《真正的安东尼·福奇](https://www.globenewswire.com/Tracker?data=lsGnyXQrtCi80as2JuhMaWq76TF7Gpu2YOdoDuxhlNmH021heJpwNNVPPd2dWILNzkzRMt6ZMm5uVAYIK8y3d5LtRl6FZmclwTKeFqjH2jJFoRU6D-Q5EowFHIzthvWWnyUXCztXR-jGrfILL0sLStKUbXrpnoUHvCwJNb-zkadFERdvGA9wMty6URtYp5mnXikWw5pp_TXE6grnGLttAPo4RBeG1NU2bE-FGEu-fXeW3TQTIcTzMVn57-LFgyx7XKd_z-0iUblgL-uBvXzQpOw-bWrsC69plmKCh4mg3NcFZMqeoia8oUsxkJdC2r_V)**》。*
-
-参考链接：[CHD Says Pfizer and FDA Dropped Data Bombshell on COVID Vaccine Consumers](https://finance.yahoo.com/amphtml/news/chd-says-pfizer-fda-dropped-205400826.html?guccounter=1)
-
-*发布：*星谕
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

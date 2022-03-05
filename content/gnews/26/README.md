@@ -2,33 +2,24 @@
 ---
 
 
-## 秘翻新闻｜在乌中国人求救信息被中共屏蔽
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2110203/)
+## NewSGman┃乌克兰前线救援大行动动态（ 3月4日）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2110599/)
 
-**By:[秘翻新闻](https://gettr.com/post/pyadcq8bff)**
+撰稿：东京樱花团/NewSGman
 
-**[2022-03-05](https://gettr.com/post/pyadcq8bff)**
+大卫战友已到达救援第一线战区！
 
-**今日主题:**
+️波兰临时救助点已建立！
 
-**1. 凶兆！中共开两会传故宫太和殿大门被吹倒**
+战争无情，人间有爱！
 
-**2. 中共官媒否认俄军空袭致中国留学生死亡 **
+危难之际我们战友对同胞与国际友人的最实质行动救援正是这乱世中的那份希望！
 
-**3. 联合国人权理事会成立乌克兰调查机构**
+盖特链接：[https://gettr.com/post/py45duedd4](https://gettr.com/post/py45duedd4)
 
-**4. 俄立法钳制新闻自由 多国知名媒体暂停工作**
-
-**5. 北约拒绝乌克兰设立禁飞区**
-
-**🔗Gettr鏈接：**[https://gettr.com/post/pyadcq8bff](https://gettr.com/post/pyadcq8bff)
-
-发布:星星
-
-* * *
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

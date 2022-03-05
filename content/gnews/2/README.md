@@ -2,44 +2,38 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2110955/)
+## DC每日热点0305
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2111032/)
 
-**整理：枳实**
-**美工：精灵蓝**
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0CECF7C2-7023-4404-883E-90EB6D353E5D-scaled.jpeg)
+道琼斯指数 33614.80 ▼0.53%
+纳斯达克指数 13313.44 ▼1.66%
+WTI纽约原油CFD 115.102▲6.90%
+布伦特原油CFD 118.143▲0.03%
+标普50指数 2,406.22▼55.80%
+美元兑人民币 1USD=6.319 RMB
+美元兑港币 1USD=7.814 HKD
+国际黄金 1972.90美元/盎司
+全球CCP病毒感染人数444,309,253例
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-435.png)
-
-
-
-图片：雅典娜农场设计组精灵蓝
-
-
-雅典娜疫情更新（2022年 3月5日）
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-436.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-437.png)
-[2022年3月5日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月5日改进.pdf)
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：星谕
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+1、韩国即将总统大选 朝鲜今年第九度试射导弹遭韩日谴责
+2、白宫否定美国参议员发出暗杀普京的呼吁
+3、美国国务卿布林肯：很难说乌克兰战争会如何收场，美不寻求改变俄政权
+4、中共国乌克兰撤侨行动迟缓，中共国公民受伤，约二百学生困陷防空洞
+5、联合国安理会召开紧急会议 讨论俄军攻击扎波罗热核电站事件
+6、中共否认四名在乌中共国留学生遭俄军轰炸丧生
+7、俄罗斯封禁美国之音、BBC等媒体 指责其不按俄方要求进行报道
+8、爱马仕和卡地亚母公司历峰集团、LVMH集团、开云集团和香奈儿宣布，计划暂时关闭在俄罗斯的商店并暂停业务运营
+9、俄罗斯罕见宣布暂停火 允许乌克兰2城民众撤离
+10、联合国人权办公室称俄罗斯入侵乌克兰已造成平民与儿童丧生
+11、李克强：今年落实全面管治港澳 反对外部势力干预台湾
+12、北约指控俄罗斯在乌克兰使用了集束炸弹
+13、新加坡宣布对俄罗斯实施金融制裁和出口管制
+14、欧盟委员会主席：若不停止战争，欧盟准备采取更多的对俄制裁措施
+15、美国防官员：价值约2.4亿美元的军事物资已送达乌克兰
+16、摩根大通：俄罗斯将面临1998年那样的经济崩溃 加拿大取消对俄最惠国待遇
+17、日本罕见决定向乌克兰提供防务物资 韩国对俄国防部等49个实体进行出口管制
 
  
 

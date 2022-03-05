@@ -2,21 +2,38 @@
 ---
 
 
-## 秘翻在线：俄罗斯国债16日起相继违约…卢布重挫
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2110957/)
+## 郭文贵先生将新中国联邦比作中国的乌克兰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2111058/)
 
-撰稿：文贺JP
-![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-6.jpg)图片来源：https://www.sankei.com/article/20220305-5V6TO7WD5VKKHMGHLBBOX73MXI/
-据日本产经新闻3月5日报道，因攻占乌克兰，受日美欧制裁影响，俄罗斯国债接近违约。这是由于外币计价的政府债券因制裁导致外币短缺而无法支付利息。如果国债变废纸，作为主权货币的卢布就会失去信用，物价暴涨，俄罗斯国民生活很可能崩溃。也就是说，对人为的制造危机的普京加大批判、促使其撤军的强硬政策下，在乌克兰保卫战期间，即本月16日起，还款期限相继到期，这就是场和时间的战争。
+撰稿: 日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-2.png)
+在3月2日的大直播中，郭文贵先生明确指出，新中国联邦将是中国的乌克兰。
 
-俄罗斯多年来一直在准备应对制裁，并积累了有史以来最大的外汇储备（截至今年1月为6302亿美元），用于支付外债和外汇干预。在此过程中，它正在减少易受制裁的美元计价资产，并将其转移到友好国家人民币和正在谈判以归还北方领土的日元。
+郭先生说，在中共配合普京造谣乌克兰总统泽连斯基出逃后，泽连斯基仅在社交平台上一次直播，就戳穿了中共和普京的谎言，并让俄罗斯陷入了塔西佗陷阱。俄罗斯污蔑乌克兰为纳粹主义，也使在二战时曾受到乌克兰庇护的犹太人感到不满。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-427.png)
+新中国联邦的爆料革命，正是以唯真不破的精神，一次次戳穿中共的谎言，让中共在塔西佗陷阱里越陷越深。再加上新中国联邦拥有盖特这个非常重要的社交媒体平台，能让更多的中国人以及世界知道真相，将唤醒更多人。
 
-笔者认为通过战争手段进行土地扩张的独裁思想必将受到历史车轮的无情碾压，无论多么处心积虑，野蛮必将失信于人、必定进入历史的垃圾堆。创造文明、发展文明是所有地球公民的必然选择。
+最后郭先生提醒，不要在乎任何人对我们的评价，我们只需要在乎自己的行动。正如乌克兰危机开始前，全世界都表现出冷漠态度。但在戳穿谎言露出真相后，全世界的民意都倒向了乌克兰一样，新中国联邦亦将被世界认识，得到的支持正与日俱增。
 
-信息来源：[https://www.sankei.com/article/20220305-5V6TO7WD5VKKHMGHLBBOX73MXI/](https://www.sankei.com/article/20220305-5V6TO7WD5VKKHMGHLBBOX73MXI/)
+新闻链接:
 
-责编：Eric Kim
+[2022年3月2日 文贵大直播](https://gettr.com/post/pxru0n55ba)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+编辑: 静言
+
+总编/审核:飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,18 +2,44 @@
 ---
 
 
-## 新中国联邦战友集结，保佑你们凯旋归来！
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2110838/)
+## 全球疫情疫苗数据更新
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2110955/)
 
-**撰稿：挺郭吃榴莲**
+**整理：枳实**
+**美工：精灵蓝**
 
-在美国纽约，九名新中国联邦战友已经吹响集结号，从美国纽约飞往波兰，参与到乌克兰救援的前线工作。最新消息是战友们已经刚刚安全降落在波兰的机场。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/259841d5-2cea-4265-9a55-eae7697ff197.jpg)
-在这次救援准备中，以长岛哥为主要协调人的喜马拉雅联盟委员会后勤保障部门，在最快的时间集结战友，配备物资，打通救援通道，盖特全程直播战友登机过程。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-435.png)
 
-线下还有很多战友想报名去前线。请有相关波兰签证和许可的战友，填写喜马拉雅联盟相关表格，提供资料去报名。我们这些在后方因为各种原因不能奔赴前线的战友，只能在后方祈祷战友平安！祈祷万佛万神保佑乌克兰同胞平安！我们的心已随着你们一起飞去波兰去战争前线。
 
-天佑新中国联邦，保佑你们凯旋归来！
+
+图片：雅典娜农场设计组精灵蓝
+
+
+雅典娜疫情更新（2022年 3月5日）
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-436.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-437.png)
+[2022年3月5日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new-3月5日改进.pdf)
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：星谕
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
