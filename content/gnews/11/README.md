@@ -2,35 +2,46 @@
 ---
 
 
-## 今日盖特大V推荐 — 大全新闻（Newsmax）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2112631/)
+## 俄罗斯进攻乌克兰之际欧洲数千用户传遭网攻
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2112761/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-472.png)
-盖特链接：[https://gettr.com/user/newsmax](https://gettr.com/user/newsmax)
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image010-1.jpg)在俄罗斯对乌克兰开始发动攻势之际，可能也发生了网络攻击事件，造成欧洲各地数以千计网络用户网络瘫痪。(图／路透社)
+3月5日，据中央社报导，有消息人士透露，在俄罗斯对乌克兰开始发动攻势之际，可能发生了网络攻击事件，造成造成欧洲各地数以千计网络用户网络瘫痪。
 
-大全新闻（Newsmax）自述：
+根据法国最大电信商Orange说法，子公司Nordnet卫星网络服务有将近9000名订户，在2月24日美国卫星业者Viasat遭遇“网络事件”后无法上网；Nordnet是Viasat的客户。
 
-现在在 DirecTV 349、Xfinity 1115、Dish 216、Optimum 102、Cox、Fios 615、Uverse 1220、Suddenlink 102、YouTube 上观看 Newsmax：http://nws.mx/tv
+bigblu卫星网络服务的母公司欧洲电信卫星（Eutelsat）表示，bigblu在欧洲德国、法国、匈牙利、希腊、意大利和波兰的4万名订户中，约1/3受Viasat断线影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-474.png)图片来源：网络
+在美国方面，Viasat 2日表示，一起网络攻击造成欧洲地区“乌克兰和其他地方”依赖其KA-SAT卫星的客户部分网络瘫痪。
 
-大全新闻（Newsmax）简介：
+Viasat并未提供进一步细节，仅说警方正在协助调查此事。这起断网事件也造成德国和中欧地区约5800座风力发电机断线，总输出功率为11百万（gigawatt）。据悉，德国联邦信息安全局（BSI）报告指出，可以想见这起中断事件是由网络攻击造成。
 
-大全新闻（Newsmax）是1998年由克里斯托弗·鲁迪（Christopher Ruddy）创立的美国保守派新闻媒体。该网站分为四个主要部分：Newsmax、Newsmax·健康、Newsmax·金融和Newsmax·世界，每个部分又分为不同的子部分。
 
-同时大全新闻（Newsmax）还经营名为Newsmax的印刷杂志以及有线新闻频道NewsmaxTV。2014年6月16日大全新闻（Newsmax）通过DirecTV和Dish Network向3500万卫星用户推出了有线电视频道。截至2019年5月，该网络已覆盖约7500万有线电视家庭。
 
-大全新闻（Newsmax）被《纽约时报》描述为美国政治中的“强大力量”，《福布斯》将其描述为“新闻强国”。
+[【援引连结】](https://www.swissinfo.ch/chi/afp/%E4%BF%84%E7%BD%97%E6%96%AF%E8%BF%9B%E6%94%BB%E4%B9%8C%E5%85%8B%E5%85%B0%E4%B9%8B%E9%99%85-%E6%AC%A7%E6%B4%B2%E6%95%B0%E5%8D%83%E7%94%A8%E6%88%B7%E4%BC%A0%E9%81%AD%E7%BD%91%E6%94%BB/47404990)
 
-* * *
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

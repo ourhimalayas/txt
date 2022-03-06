@@ -2,36 +2,42 @@
 ---
 
 
-## 来自波兰前线的现场照片
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2111655/)
+## 故宫太和殿的大门被风吹倒
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2111748/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-图片来源：前线战友
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/B3D686E9-AF87-48DC-9947-6C74F9763F42.jpg)
+作者：银河系农场—骄子
 
 
-在救援的前线， 在波兰的基地的战友发来了现场的照片。
 
-大批的难民从乌克兰逃出来， 他们都是老人， 妇女，儿童。 他们无奈， 恐惧和对未来的不确定都写在他们的脸上。
-
-战争从来没有正义， 战争的受害者永远是老百姓。 我们新中国联邦人是热爱和平的人， 是乐于帮助别人的人。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/DE4C83E5-25A0-4A23-A7D2-AD8D5D5E95AE.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/C8416132-2D02-494C-8178-3BA43E67F1A3.jpg)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-31.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/D3C64392-1352-474B-BCE6-3163364DA0DE.jpg)
+2022年3月4日，农历二月二龙抬头，北京大风，好巧不巧吹倒了故宫太和殿的大门。太和殿位于北京中轴线上，俗称金銮殿，是皇权的象征，古时皇帝登基、文武官员朝会、册封皇后等大典都在此举行。
 
+民间的二月二龙抬头是个好日子，老黄历里的今天是丙辰日，辰就是龙，同时这一天共产党的两会也在北京召开，残奥会也在今天开幕，有网友称这是几百年不遇的事，太和殿作为最高权力的象征，轰然倒塌，对于迷信的共产党来说，可能更增添了一些恐惧。
 
-救援人员已经陆续到位， 还有大部队在赶往救援的路上。
+参考来源：[https://gettr.com/post/py4l17307e](https://gettr.com/post/py4l17307e)
 
-前方的战友们， 祝愿你们一切安好， 早日凯旋。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
 
-编辑发表： Shuizhuyu
+编辑/校对/发稿：Daxia
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
 
  
 
