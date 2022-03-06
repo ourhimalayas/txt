@@ -2,28 +2,26 @@
 ---
 
 
-## 美国正与波兰协商向乌克兰提供战斗机的交易
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2115632/)
+## 【秘翻在线】拜登政府要求大科技公司提交有关散播新冠“错误信息”的数据
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2115758/)
 
-#### 撰稿：彩虹    
+#### 翻译/撰稿：zzballack
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-523.png)图片来源：Indiatoday
-3月5日，《国会山报》文章说，根据多家新闻媒体周六的报道，美国和波兰正在考虑一项向乌克兰提供战斗机的交易。
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16465784351.png)图片来源：CNBC
+据《网关专家》（Gateway Pundit）3月4日报道，本周四（3月3日），拜登的外科医生维维克·穆尔蒂 (Vivek Murthy)要求美国所有的大科技公司必须向联邦政府提供那些参与传播了被认定是“错误信息”（特别是有关新冠病毒或2020总统大选的信息）的美国人的数据。
 
-《政客》（Politico）是第一家报道该消息的媒体，它说，四名美国官员告诉该媒体，美国和波兰正在就一项安排进行磋商，亦即波兰向乌克兰转让二手米格-29（MiG-29）战斗机，同时美国向波兰提供美国战斗机。
+维维克·穆尔蒂在外科医生办公室发出的正式请求中呼吁美国大科技平台从社交网络、搜索引擎、众包平台、电子商务平台和即时通讯系统中收集关于新冠“错误信息”的普遍性和规模的数据，并在5月2日前将其交给拜登政府。
 
-对此，白宫发言人也告诉《政客》说：“我们正在就这个问题与波兰人合作，并与我们的其他北约盟友协商。我们也在研究，如果波兰决定向乌克兰转让飞机，我们可以提供哪些能力来回补。（我们政府）绝不反对波兰向乌克兰转让飞机。”
+《纽约时报》报道说：“通知要求这些公司提交‘究竟有多少用户看到或可能接触到新冠的错误信息’，以及可能受错误信息影响的人口统计学方面的综合数据。穆尔蒂还要求各平台提供有关新冠错误信息的主要来源的详细信息，包括那些参与销售未经证实的新冠产品、服务和治疗的平台。穆尔蒂说此举是为了保护国家的健康。各公司必须在5月2日前提交数据，拒绝提供信息的不会受到处罚。该通知是拜登政府首次正式要求科技公司提交有关新冠错误信息的数据。”
 
-该发言人表示，美国向波兰转让美国F16战机将是困难的。《政客》指出，因为这可能需要很长的时间以授权。
+去年7月，维维克·穆尔蒂也曾以保护国家卫生为由，给自由言论贴上了“严重危害公共卫生”的标签，并呼吁全社会全力打击“错误信息”。
 
-周六，《华尔街日报》也援引美国官员的话报道了此项可能的交易。
+问题在于：谁代表正确谁的信息是错误信息由谁来界定？由政府吗？由被金钱收买了良知的砖家叫兽吗？由辉瑞那样披着专业外衣的利益机构吗？警惕！政府垄断话语权并对反对自己的言论进行惩罚是法西斯主义的开始。
 
-文章说，由于乌克兰继续与入侵的俄罗斯军队作战，周六，乌克兰总统沃洛基米尔·泽伦斯基（Volodymyr Zelensky）要求（美国）国会议员提供更多飞机。他还要求在乌克兰上空设立禁飞区，并要求美国停止购买俄罗斯石油。
+新闻来源：[Biden’s Surgeon General Launches Latest Crusade to Purge Dissent – Orders Big Tech to Provide Info to Federal Government on Those Spreading COVID “Misinformation”](https://www.thegatewaypundit.com/2022/03/bidens-surgeon-general-launches-latest-crusade-purge-dissent-orders-big-tech-provide-federal-government-personal-data-americans-spreading-covid-misinformation/)
 
-**新闻来源**
 
-[US, Poland consider deal to give fighter aircraft to Ukraine: reports](https://thehill.com/policy/international/597034-us-poland-consider-deal-to-give-fighter-aircraft-to-ukraine-reports)
 
  
 

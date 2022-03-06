@@ -2,25 +2,33 @@
 ---
 
 
-## 俄罗斯的侵略行径或威胁全球粮食供给
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2115847/)
+## 有声|俄罗斯战俘呼吁俄军士兵不要做炮灰
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2115964/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3.6D.jpg)网络图片
-围攻乌克兰的俄罗斯同时也威胁着欧洲、非洲以及亚洲人民的粮食供应和生计，他们的生活都依赖于黑海地区广阔肥沃的农田——又称“世界粮仓”。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月4日，据盖特消息显示，被乌克兰俘获的俄罗斯士兵近日陆续通过视频向外界传递出他们被蒙骗出战以及其自身对战争的拒绝。
 
-随着数百万人逃离、战斗或试图生存，乌克兰农民已经无暇顾及他们的田地。港口关闭，小麦和其他主食无法送往世界各地，用于面包、面条和动物饲料的生产。还有人担心，另一个农业强国俄罗斯的粮食出口也可能会受到西方制裁的影响。
+这些俄罗斯士兵表示，他们在出战前根本不清楚这次战争的对象和性质，而他们对此的任何疑问则全部遭到上级长官粗暴的拒绝与封口。更有士兵提到，直至进入乌克兰后他们才清楚，这次战争的目的是为了侵略乌克兰，而不是“解救”乌克兰民众。
 
-虽然全球小麦供应尚未出现中断，但由于担心接下来的粮食供应，小麦价格自俄罗斯发动侵略前一周以来已飙升 55%。国际谷物理事会主任 Arnaud Petit 告诉媒体，如果战争持续下去，依赖乌克兰负担得起的小麦出口的国家可能会从 7 月开始面临粮食短缺。
+至于俄罗斯当局在交战中采取的手段，这些士兵证实，俄军不仅不会帮阵亡的将士收尸，甚至还会将伤残的俄军士兵就地处死并焚毁。
 
-粮食危机或使埃及和黎巴嫩等地的更多人陷入贫困，因为这些地方的饮食以政府补贴的面包为主。在欧洲，官员们正在为乌克兰产品可能出现的短缺和牲畜饲料价格上涨做准备，如果农民被迫将成本转嫁给客户，这可能意味着肉类和奶制品价格会上涨。
+为此，这些俄罗斯士兵在视频中声明，他们实际上是受到了政府的欺骗，他们既不愿意侵略乌克兰，也不愿意成为这场独裁者战争的炮灰。这些士兵也向所有的俄军将士呼吁， 请大家不要再受政府的蒙骗，成为独裁者的牺牲品。同时，他们也号召俄罗斯人民站起来反对普京，停止这场毫无意义的战争，停止这场人类的灾难。
 
-俄罗斯和乌克兰合计占世界小麦和大麦出口量的近三分之一。乌克兰还是玉米的主要供应国和葵花籽油的全球领导者。马萨诸塞大学阿默斯特分校供应链、物流和经济学教授安娜·纳格尼 (Anna Nagurney) 认为，小麦、玉米、油、大麦、面粉对粮食安全极为重要——尤其是在全球较贫困地区，而在战火的影响下，谁来培育生产，谁来收获运输？
+文字版原文：[俄罗斯战俘呼吁俄军士兵不要做炮灰](https://gnews.org/zh-hans/2110973/)
 
-新闻参考链接：
+音频处理：Fei797
+发稿：Fei797
 
-[Russian war in world’s ‘breadbasket’ threatens food supply](https://apnews.com/article/russia-ukraine-business-africa-lifestyle-middle-east-1b41faaa7ac0984d0673023b68d39a70)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,21 @@
 ---
 
 
-## 有声|NFSC和法治基金(ROLF) （暂定）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2115832/)
+## 视频|新中国联邦法治基金乌克兰人道救援行动仍在继续
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2115925/)
 
-配音：纽约香草山农场 -Rita七号小青蛙
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-NFSC和法治基金(ROLF)3月3日宣布了3月9日首批救援专机暂定行程（可能根据情况做出调整）：
+制作：香草山视频部
 
-1. 从波兰 – 热舒夫(Rzeszow)机场出发，经加拿大多伦多，前往美国纽约。
-2. 从波兰 – 热舒夫(Rzeszow)机场出发，直飞帕劳。
-NFSC和法治基金(ROLF)同时宣布，提供免费专机旨在“帮助那些受俄罗斯非法入侵影响的人员，这是我们支持在被共产主义和专制政府统治的国家里争取自由的使命的一部分。 如果您需要搭乘我们的专机，请联系我们的24小时服务热线。所有乘客必须满足 其目的地的签证要求。如有需要，NFSC和ROLF将在出发前提供免费食宿。 24小时紧急救援客服联系方式如下: 邮箱: [\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection) 电话(短信或电话): +1 720-657-6776 或 +1 719-224-4232”
+鉴于目前乌克兰局势日益恶化，新中国联邦救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-6.jpeg)
+自当地时间3月5日起，乌克兰免费救援巴士将于每天下午1点准时从利沃夫出发，前往波兰克拉科夫。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
+发稿：谐趣园
 
-文字版原文：[NFSC和法治基金(ROLF)宣布3月9日首批救援专机行程（暂定）](https://gnews.org/zh-hans/2113173/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
