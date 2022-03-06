@@ -17,10 +17,10 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 3/5/2022 11:10 PM (UTC)`
+`@miles 3/6/2022 12:17 AM (UTC)`
 
-【Ukraine Rescue】03/05/2022 NFSC Ukraine Rescue Team Interviews Mayor of Rzeszów, Poland. Mr. Mayor was not only very appreciative of the NFSC's rescue operation but also facilitated and provided support for our work.<br/><br/>【乌克兰救援行动】03/05/2022 新中国联邦乌克兰救援团队采访波兰热舒夫市长。市长先生不仅非常感谢新中国联邦的救援行动，并且为我们的工作提供了便利和支持。<br/><br/>
-![img](https://media.gettr.com/group39/getter/2022/03/05/23/7da44d1a-67d9-6557-a554-ec7015d495a7/out.jpg)
+【Ukraine Rescue】03/05/2022 NFSC Ukraine Rescue Team Interviews Mayor of Rzeszów, Poland. Mr. Mayor was not only very appreciative of the NFSC's rescue operation but also facilitated and provided support for our work.<br/><br/>【乌克兰救援行动】03/05/2022 新中国联邦乌克兰救援团队采访波兰热舒夫市长。市长先生不仅非常感谢新中国联邦的救援行动，并且为我们的工作提供了便利和支持。
+![img](https://media.gettr.com/group16/getter/2022/03/06/00/bea3140c-2cda-a63a-34de-fb1bf416ce29/out.jpg)
 
 ---
 
