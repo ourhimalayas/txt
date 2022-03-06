@@ -2,50 +2,48 @@
 ---
 
 
-## 英超赛场球员心脏病不断，新冠疫苗罪魁祸首
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2114505/)
+## 灭共产党都不在话下的七哥若被太平联盟撂倒就成了笑话
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2114536/)
 
-#### 【雅典娜观察】和你一起洞察世界
+Youtube视频链接：[https://youtu.be/911pqOnpFRs](https://youtu.be/911pqOnpFRs)
 
-翻译/编辑：文泓
+**郭文贵先生：**这就为什么共产党告七哥的76个官司，10几个其它所谓刑事的这种诉告，全部是想改变美国游戏规则的，和改变美国赖以生存的基石法律的。** **
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-19.png)图片来源：SportTbible & 雅典娜设计组
+PAG所有官司的，我是所谓的个人担保曾经，你不找盘古要钱去，你找我干什么？盘古又不是不还你钱。它不履行合约不还你钱，你再找我这个担保人；而且最后还完你，你承认还完钱了，你给我篡改了一个所谓的个人担保，就不让我说一句话，就要判我输1.3亿还是1.4亿美元。
 
+然后这个船是不是我的，你不能说我控制就是我的。谁买的船？谁是船主？它第一天叫Lay May，从来没叫Gentlemen Guo，Miles Guo，是吧？你就说是我的，你又罚我1.3亿，然后给我5天时间，你必须交钱，不交钱我给你扔监狱去。
 
-据报道，在英超联赛频发的球员因心脏问题倒地，可能是接种新冠疫苗导致的后果。
+然后还不让我使用陪审团。我有权利使用陪审团啊和法官判决。我为啥不能使用陪审团？然后对方的律师就威胁我们一系列，我现在不能讲，案子在这其中。你们会想象不到发生的事情。你会想象不到这个法官的判决里面是对方PAG的律师写出来的。
 
-最近发生了一些引人注目的事件，涉及球员在场上心脏忍受问题——包括在欧洲锦标赛上因心脏骤停而倒下的**克里斯蒂安****·****埃里克森**和在被诊断出患有心律失常后被迫退役的**塞尔吉奥****·****阿圭罗**。
+就是PAG单伟建在西方，你想想外国人就没想明白为什么文化大革命的单伟建，穿着军装的单伟建能被共产党派到西方来，全家在美国出生，儿子一买房子现金几千万钱哪来的？从TPG到PAG，这哥们就玩上千亿美元啊，而且都要投到中国去。多少养老金被他给欺骗？
 
-【备注：埃里克森是现役丹麦国家队球员，1992年2月14日出生，场上司职中场，现效力于英格兰的布伦特福德足球俱乐部，曾加盟阿贾克斯、托特纳姆热刺、国际米兰足球俱乐部；阿奎罗是前阿根廷国家队球员，1988年6月2日出生，司职中锋，曾加盟马德里竞技、曼城、巴塞罗那足球俱乐部，去年12月15日因心脏问题而退役。】
+你记住啊，七哥要不把单伟建和太平联盟这个事情搞明白，那就不叫郭文贵。我连共产党都要灭，我连你单伟建的事搞不清楚，你觉得那还叫郭文贵吗？战友们，如果你们跟随的七哥，要灭共的七哥能被太平联盟给摞倒的话，你觉得你们在这块看我直播，你们不就成了最愚蠢的傻子吗。你要扫平在森林里的所有的恶魔，结果一个苍蝇就把你潦倒了，你糊弄谁呢？是吧？
 
-足球比赛中与心脏相关的事件令人担忧，引发了人们对预防新冠病毒疫苗接种计划的怀疑。
+编辑整理：Jacques；
 
-正如多家媒体报道的那样，最近的事件让一些英超球员更加怀疑心脏病与新冠疫苗之间存在内在联系。
+字幕文件制作：兵嫂；
 
-据《快报》报道，南安普顿传奇人物勒蒂西耶在接受采访时呼吁，政府调查新冠疫苗是否是导致越来越多的足球运动员患有心脏病的原因。
+视频制作及上传：Cindy；
 
-他说：“**在我的职业生涯中，我从未见过任何足球运动员因为心脏问题而离开球场，现在的状况让我感到非常担忧**。”
+G-News发布：小满；
 
-“**如果有人能看到体育界正在发生的事情，并说所有这些人在足球比赛、板球比赛、篮球比赛中出现心脏问题是正常的**……我很抱歉，那些遭受痛苦的球员数量正在极度增加。”
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-本周早些时候，英超联赛证实84%的球员正在“接种疫苗”——这意味着他们至少接种了一剂疫苗。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-77%的英超球员已经接种了两剂新冠疫苗，并被归类为完全接种疫苗。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-这个数字表明，大约100名球员还没有接受第一剂疫苗。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-本赛季欧洲各地还发生了许多其他令人担忧的事件，涉及球员、甚至球迷也发生心脏问题。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-参考链接： [Premier League: On-field heart issues ‘have fuelled suspicion of Covid vaccines’ among players | Daily Mail Online](https://www.dailymail.co.uk/sport/sportsnews/article-10339755/Premier-League-field-heart-issues-fuelled-suspicion-Covid-vaccines-players.html)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-*发布：tianzhihuan*
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
