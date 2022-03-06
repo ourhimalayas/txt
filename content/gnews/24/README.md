@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国若入侵台湾或将威胁切断美国供应链
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2114840/)
+## 国际刑事法院正式调查俄罗斯在乌克兰暴行
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2114845/)
 
-03/02/2022 众议员迈克尔·华尔兹：如果中共国入侵台湾，我们对其切断美供应链的威胁应保持警醒。美国的处方药和先进材料供应过度依赖于中共国。
+03/02/2022 国际刑事法院宣布，已经正式开始调查俄罗斯在乌克兰的暴行。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

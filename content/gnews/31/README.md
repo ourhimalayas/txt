@@ -2,55 +2,36 @@
 ---
 
 
-## 比起Steve Wynn、Broidy、Higginbotham, PAG毛都不算
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2114575/)
+## 新闻述评：福布斯承认喜币是一场货币革命
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2114804/)
 
-Youtube视频链接：[https://youtu.be/UZFJyYAJMz4](https://youtu.be/UZFJyYAJMz4)
+作者：东京樱花团｜捆绑CCP一千年
 
-**郭文贵先生：**所以我说：“共产党是没睾丸的，那有什么睾丸呐。”我说：“这帮垃圾那有什么睾丸，都是吃伟哥的是吧。”我说在这个世界，他把“龙头”变成“龟头”，你想想TPG，PAG，单伟建，这种流氓行动。单伟建是王岐山的马仔，康点的哥们，到今天在西方的渗透，他对我们越攻击，他造的假文件越多，他未来他倒霉越大。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新闻述评：福布斯承认喜币是一场货币革命.png)
 
-你们忘了吧，2016年，15年、16年、17年，比他牛叉的人是谁呀？Higginbotham美国建国以来最大的司法部腐败的案子，仅仅一个律师就七千多万美元，到了中共所谓驻华盛顿大使馆去勾兑，被后是谁？Steve Wynn。Steve Wynn不比你PAG大多了？Elliott Broidy要拿30亿美元搞我。孙力军、孟建柱、王岐山、康典、马云、“钥匙澜”老公——找班农去要把“钥匙澜”送给班农去。然后美国当时时任总统Donald Trump，“Miles Guo！Miles Guo！rape everybody，rape everybody。”——我强奸全世界所有人。
+**喜马拉雅币拥有者使用喜支付以超过500万美元的价格成功购买极品迈凯轮F1赛车的交易被福克斯定义为一场数字货币的革命。喜币创建者MILES GUO先生表示， 它意味着喜币瞬间走向了数字货币的最顶端，这是一次永久性的认可，它被视为打开世界上最高端的数字货币之门。**
 
-“噢，给我签这个字啊，Miles Guo rape everybody，rape everybody。”班农说：“谁？谁？谁谁？你再说一遍Miles Guo 他咋强奸所有人了？”
+据《福布斯》美国（[Forbes](https://forbes.mc/)）4日最新消息，“由[Himalaya Exchange](https://himalaya.exchange/)开发并新推出的数字货币支付应用程序[Himalaya Pay](https://himalaya-exchange.zendesk.com/hc/zh-cn/categories/360003360498-Himalaya-Pay-%E5%8A%9F%E8%83%BD)，帮助一位买家以500多万美元的价格购买了埃尔顿·塞纳([Ayrton Senna](https://en.wikipedia.org/wiki/Ayrton_Senna)) 迈凯轮（[1989 MP4/5 F1](https://en.wikipedia.org/wiki/McLaren_MP4/5)）的赛车。这款标志性的汽车是通过稳定币喜玛拉雅元（HDO）会员间点对点转账的方式购买的。”
 
-你想想当时的画面，是吧？你想想当时博明，你想想当年司法部长Sessions，大早上起来的七点钟给美国总统做简报。结果川普拿过来：“哎，把那个给我签一下啊。”那个律师Kruse（音）超级好，白宫律师，说：“什么？你要签这个？你签了这个，你就完了，你就得离开白宫。这是犯罪，你没权力签这个。”
+对于刚上线不久的Himalaya Pay支付系统，顺利完成这笔大额奢饰品交易的意义究竟有多大？喜马拉雅数字货币系统结构设计者郭文贵（MILES GUO ）先生评价说：“这是对所有喜币拥有者最好的奖励！这个象征性的意义太重要了，它瞬间从一个无名小辈的数字货币走向了数字货币的最顶端，这是一次永久性的认可，它被视为打开世界上最高端的数字货币之门。这笔交易的意义深远之处在于所有涉及到的车和购买者都是世界上最有信用和最具说服力的案例，这款车的拥有者是我心中的男神，男车神曾经被视为‘巴西永远活着的耶稣’。”
 
-然后说：“哎别别，这是我们最重要的人，你怎么能签这个？你签了你就完了。”
+MILES GUO上述评价并不为过，对于一款于2021年年底在美国上市的新兴数字货币——喜币（Himalaya Coin）来说，它的成长速度就像《[车手/名人堂](https://www.formula1.com/en/drivers/hall-of-fame/Ayrton_Senna.html)》评价埃尔顿·塞纳那样，“一位超凡脱俗的超级巨星像彗星飞驰而过一样”。确实如此，Himalaya生态系统的发展比预期的更快。
 
-“是吗？”他说“你知道他是你马阿拉哥会员吗？”他说：“是吗？”——他都不知道。
+喜币的迅猛成长用英国前赛车手[马丁布伦德尔](https://en.wikipedia.org/wiki/Martin_Brundle)评价天才车手埃尔顿·塞纳话比喻喜币一点都不为过。他说，“塞纳是个天才，他的能力高度到了几乎超出边缘的地步，这接近于神话。”这就是喜币，它的成长就是一个神话，且是触手可及的神话。
 
-“他就是那个郭文贵，Miles Guo。你要签的这个，强奸everybody的人就是Miles Guo。”
+福布斯这篇题为《[通过喜马拉雅交易所购买标志性的迈凯轮汽车提高了对加密货币的信任](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)》的文章很好地证明福布斯对财富嗅觉力的灵敏度。该文高度肯定了喜币的未来领军地位和价值，这一现实将继续扩展到我们的生活中。
 
-Steve Wynn，Elliott Broidy，Elliott Broody老婆律师，Higginbotham、司法部副部长等，还有华尔街什么Blackstone。你去想想全人类多牛哇，PAG 算个鸟毛啊它算个。
+如果说，《福布斯》的观点认为，这场革命始于“一群叛逆者”创想的加密货币，那么喜币就是踩在“一群叛逆者”梦想的肩膀上，在“被比特币巩固后”，它纵身一跃，成为数字货币市场中飞速发展的领军者。“尽管我们对它们的未来还缺乏理解能力，但事实证明，它们是一种方便和安全的交易方式。”这一笔大额交易的实现，使人们的观点和交换事物的方式正在改变，尽管会有不确定性的可能，但它已为市场打开了一个全新的维度。随着越来越多的机构接受它，这种稳定、完全、私密的货币支付方式正在成为市场争抢的“钻石”。
 
-当时把七哥要被撂倒……你去想想当时，当时啊，当时给欧洲的人打电话，给中东的某国家打电话说:只你能把郭文贵给弄回来，一切交易可谈。
+随着俄乌战争带给世界极不确定的未来，喜币的价值得到凸显，它正在给人们提供安全的金融港湾的作用，同时给人们带来了意想不到的改变——人们对未来世界财富观和价值观的颠覆。正如《福布斯》援引《[财富商业观察](https://www.fortunebusinessinsights.com/industry-reports/cryptocurrency-market-100149)》所描述的那样，“2020年全球加密货币市场规模为8266亿美元，预计到2028年将以11.1%的复合年增长率增至约1. 9万亿美元。许多行业预计加密货币将成为未来货币的重要组成部分，并开始接受它们进行商业交易。”因此，这笔发生在奢侈品名车收藏市场领域的交易，注定成为一个历史性的事件。
 
-编辑整理：Jacques；
+尽管还有很多人不知道这个加密货币——喜币，但这一新的资产类别已发展成“任何机构投资者或政府都不能再忽视它”的地步。正如《福布斯》透露的那样， “这款支付应用的第二个版本正在开发中。通过它，用户将能够在全球范围内进行即时加密货币转账，安排自动支付，并使用所有类型的数字货币与独家零售商购物，且不产生任何中间费。”
 
-字幕文件制作：兵嫂；
+2022年3月5日
 
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]HJapanGalaxyII推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
