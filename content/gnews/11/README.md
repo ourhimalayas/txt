@@ -2,22 +2,29 @@
 ---
 
 
-## 中日财经爆┃万事达卡和VISA卡退出俄罗斯
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2113278/)
+## 英国首相就俄罗斯入侵乌克兰提出了六点回应
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2113380/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-493.png)[图片来源](https://article-image-ix.nikkei.com/https%3A%2F%2Fimgix-proxy.n8s.jp%2FDSXZQO1671413006032022000000-1.jpg?ixlib=js-2.3.2&amp;w=638&amp;h=426&amp;auto=format%2Ccompress&amp;ch=Width%2CDPR&amp;q=45&amp;fit=crop&amp;bg=FFFFFF&amp;s=51cffaa7e90d20117ef2b1f1a0742709)
-3月5日，美国主要的信用卡公司维萨（VISA）和万事达（Mastercard）相继宣布将停止在俄罗斯的支付服务。除了对在俄罗斯发行的卡进行限制外，由境外金融机构发行的卡在俄境内也不能使用。采取这些措施都是对俄入侵乌克兰的回应，可能对消费者会产生普遍的影响。
+翻译：冰糖葫芦喵
 
-VISA公司首席执行官阿尔弗雷德·凯利在声明中表示，“俄罗斯对乌克兰的无端入侵以及我们所看到的不可接受的情况迫使我们采取行动，我们对影响到商家和持卡人感到遗憾，但对和平的持续威胁要求我们做出符合我们价值观的回应”。
+编辑与校对：冰糖葫芦喵
 
-万事达卡在上月28日已宣布将几家俄罗斯金融机构排除在了其支付网络之外。
+《路透社》伦敦3月5日报道，**周六，英国首相约翰逊敦促其他领导人加入应对俄罗斯入侵乌克兰的六点计划，内容从人道主义援助到给莫斯科带来最大的经济打击。**
 
-信息源：[我々は行動せざるを得ない…米ビザとマスターカード、ロシアでの決済停止](https://news.yahoo.co.jp/articles/b64a652adacbad999ff9ee3faefddd1e0f99033c#:~:text=%E6%8)
+据报道，在下周与加拿大、荷兰和中欧领导人在伦敦举行会议之前，**约翰逊周六表示，俄罗斯总统普京的入侵必须失败，而且必须被视为失败。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/161053qbccc9bvl0wkzcej.jpg)英国首相约翰逊（图片来源：网络）
+约翰逊在一份声明中说**:“仅仅表达我们对以规则为基础的国际秩序的支持是不够的，我们必须捍卫它，反对用武力改写规则的持续企图。”**
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+他列出了自己的目标，包括为乌克兰**建立一个国际人道主义联盟，支持乌克兰的自卫，以及最大限度地对俄罗斯施加经济压力。**
+
+约翰逊还呼吁通过外交途径，**在乌克兰政府的全面参与下缓和紧张局势，加强欧洲-大西洋地区的安全，结束俄罗斯在乌克兰活动的“缓慢正常化”。**
+
+报道称，**约翰逊于周一会晤加拿大和荷兰的总理之后，将于周二接待捷克、匈牙利、波兰和斯洛伐克的领导人，**因为入侵造成这些国家的难民大量涌入。
+
+新闻来源链接：
+
+[UK’s Johnson sets out six-point response to Russia’s invasion of Ukraine | Reuters](https://www.reuters.com/world/europe/uks-johnson-sets-out-six-point-response-russias-invasion-ukraine-2022-03-05/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

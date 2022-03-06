@@ -2,28 +2,62 @@
 ---
 
 
-## Visa和万事达暂停所有俄罗斯业业务 PayPal关闭在俄罗斯的服务
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2113263/)
+## 来自世界各地的数十名外交官，集体给予&#8221;纷纷离场&#8221;制裁抗议
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2113377/)
 
-翻译：冰糖葫芦喵
+I would now like to give the floor to His Excellency
+我现在想请阁下发言
 
-编辑与校对：灭共文明、冰糖葫芦喵
+Mr. Sergey Lavrov Minister for Foreign Affairs of the Russian Federation
+谢尔盖·拉夫罗夫先生, 俄罗斯联邦外交部长
 
-《路透社》3月7日报道，**周六，Visa和万事达宣布暂停在俄罗斯的所有业务。支付宝支付（PayPal）也宣布将关闭所有在俄罗斯的服务。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7OFRERUABBOBJEACS57D4AL2DQ-1.jpg)图片来源：路透社。
-据《金融邮报》报道，从即日起，Visa与俄罗斯境内的客户和合作伙伴，在未来几天内停止所有Visa交易。一旦完成，**所有在俄罗斯发行的Visa卡发起的交易在俄罗斯境外将不再有效，由俄罗斯境外金融机构发行的任何Visa卡在俄罗斯联邦境内将不再有效。**
+You have the floor, Excellency
+请发言，阁下
 
-Visa公司董事长兼首席执行官Al Kelly说：”在俄罗斯无端入侵乌克兰以及我们所目睹的不可接受的事件之后，我们不得不采取行动。
+Sergey Lavrov (Minister of Foreign Affairs of the Russian Federation)
+谢尔盖·拉夫罗夫（俄罗斯联邦外交部长）
 
-他接着说道：”我们对我们尊贵的同事，以及我们在俄罗斯服务的客户、合作伙伴、商户和持卡人产生的影响感到遗憾。**这场战争和对和平与稳定的持续威胁要求我们按照我们的价值观做出回应”。**
+Ladies and gentlemen
+女士们，先生们
 
-据报道，**支付公司贝宝(PayPal)以“当前形势”为由，于周六早些时候关闭了在俄罗斯的服务。**
+I had hoped that after a two year gap
+我曾希望在两年的距离之后
 
-贝宝总裁兼首席执行官丹•舒尔曼(Dan Schulman)在一份声明中表示:“在目前情况下，我们将暂停贝宝在俄罗斯的服务。”他补充说，**该公司“与国际社会站在一起，谴责俄罗斯对乌克兰的暴力军事侵略”。**
+I would be able to participate in the work of the United Nations Human Rights Council in person
+我将能够亲自参与联合国人权理事会的工作
 
-新闻链接：
+However, I’m compelled to address you by video
+但是，我不得不通过视频向您致辞
 
-[Visa, Mastercard suspend operations in Russia over Ukraine invasion | Reuters](https://www.reuters.com/business/finance/visa-suspends-operations-russia-over-ukraine-invasion-2022-03-05/)
+The reason for this is the outrageous measures by the European Union
+原因是欧盟采取了离谱的措施
+
+to refuse to respect one of the fundamental human rights
+拒绝尊重一项基本人权
+
+the right to freedom of movement
+自由行动权
+
+原视频链接[https://twitter.com/ahnewspace/status](https://twitter.com/ahnewspace/status)
+
+Date:03/03/2022
+原视频标题:Dozens of diplomats from around the world collectively “leave the venue” in sanction protests when Russian Foreign Minister Sergey Lavrov speaks at the annual session of the UN Human Rights Council
+俄罗斯外交部长谢尔盖·拉夫罗夫，在联合国人权理事会年度会议上发表讲话时，来自世界各地的数十名外交官，集体给予”纷纷离场”制裁抗议
+原视频日期：2022/03/02
+原视频链接https://twitter.com/ahnewspace/status/1498846672935620611?s=24
+任务编号：3905
+视频时间段 : 0:00-1:02
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
