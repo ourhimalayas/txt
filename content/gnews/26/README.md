@@ -2,32 +2,76 @@
 ---
 
 
-## MV版Hcoin To the Moon上线86天第24次位列匈牙利iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2112203/)
+## 机密文件将揭示什么？FDA 发布了 10,000 多份有关辉瑞疫苗的文件
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2112560/)
 
-3/5/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线86天第24次位列匈牙利iTunes热门音乐视频榜榜首，第38次位列前三名
+作者：Michael Nevradakis, Ph.D.
+编译：火星喜乐儿 （酷翻组）
+采集：玫瑰新闻组
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3061.jpg)
 
-[【PDF 下载】Saturday 5 Mar 2022 – Songs by Miles Guo – iTunes Charts Ranking Record](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-5-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-5-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+美国食品和药物管理局周二（3月1日）发布了一份 10,000 页的缓存文件，这些文件与辉瑞公司中共病毒（COVID-19） 疫苗的紧急使用授权有关。初步审查显示，这些文件包含有关动物研究的详细信息、试验参与者经历的不良反应事件、辉瑞内部审查委员会的组成等。
 
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-5-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-5-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-5-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-5-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-5-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-5-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-5-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-5-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-5-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-5-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
+- **美国食品和药物管理局周二发布了一份 10,000 页的文件缓存，涉及辉瑞-BioNTech COVID 疫苗紧急使用授权 (EUA)。**
 
 
-[【PDF 下载】Saturday 5 Mar 2022 – Songs by Miles Guo – iTunes Charts Ranking Record](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-5-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-5-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+这些文件为 FDA 批准疫苗的程序提供了更多的见解，也可能对疫苗的安全性和有效性，以及在临床试验期间和 EUA 后的头几个月观察到的不良反应的数量和性质有更多的披露。这些文件作为法院命令的发布时间表的一部分被公开，该时间表基于公共卫生和医疗专业人员透明度 (PHMPT)组织提交 的加急信息自由法 (FOIA) 要求。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+PHMPT 是来自于哈佛、耶鲁、加州大学洛杉矶分校和其他机构的医疗和公共卫生专业人士和科学家和记者组成的非营利性组织，于 2021年8月提交申请。FOIA 要求公开大约四十万页与批准辉瑞中共病毒（COVID-19）疫苗有关的文件，包括安全性和有效性数据、不良反应报告以及疫苗的活性和非活性成分清单。
+
+当 FDA 无视该请求时，PHMPT 于 2021年9月起诉该机构，将案件提交美国德克萨斯州北区地方法院。 于今年2月2 日，联邦法官皮特曼（Mark Pittman）发布命令，要求FDA根据以下披露时间表发布相关文件的编辑版本：
+
+- 每份10,000 页，截止日期为 2022 年 3 月 1 日和 4 月 1 日或之前。
+- 每份80,000 页，将于 2022年5月2日、6月1日和7月1日或之前制作。
+- 70,000页将于 2022 年8月1日或之前制作。
+- 每月55,000 页，此后每个月的第一个工作日或之前，直到文件的发布完成。
+
+
+3月1日公开的文件缓存可在 PHMPT 的网站上查阅，这是继皮特曼法官 于 2 月发布命令后，首次发布此类文件。然而，FDA 在2021年11月和2021年12月以及2022年1月，法律案件进行当中，发布了较小的文件集。
+
+- **文件揭示了什么？**
+
+
+第一批文件制作于2021年11月，总共只有500页，揭示了安全问题，以及在辉瑞-BioNTech COVID 疫苗发布后的前90天内发生了1200多例与疫苗相关的死亡事件。
+
+这些文件还披露了在同一时期观察到的一个有9页纸的不良反应事件清单。该名单最近在社交媒体上广为流传，并被错误地当作是今年3月1日发布的一组文件。
+
+这可能是因为3月1日的文件发布后，获得了一直关注该问题人群的广泛关注，几乎造成 PHMPT 的网站大塞车，该网站对迄今为止发布的所有文件进行了分类。然而，主要媒体没有报道最新发布的文件，在本文写作期间，只有较小的媒体进行了有限的报道。部分原因可能是由于，大量信息和数据需要整理。
+
+专注于制药行业的出版物 Endpoints News 发表了一篇：关于“发布最新缓存文件”的轻描淡写的文章。该出版物的编辑 Zachary Brennan 报告说，这些文件包含的一般信息，是“任何药物或疫苗应用的典型信息”，并且“将使读者对在FDA申请药物或疫苗批准所需的文件有一个很好的整体认识 。”根据布伦南（Brennan）的说法，这些信息包括“超过 100 页的匿名安全相关数据表”和“身份不明的参与者的性别、年龄和 BMI”。布伦南说：”其他文件涉及“辉瑞向 FDA 支付的近290万美元的标准用户费用”和“疫苗的机密非临床概述”。
+
+布伦南指出，缓存中包含了通常不会向公众发布的一些文件，例如：快速通道指定信和辉瑞公司要求放弃在疫苗名称中添加后缀的请求。然而，除了这些相对常规的信息——无论是否通常向公众发布——最新一批文件可能包含额外的启示性信息。
+
+The Defender对这套新发布的大量文件中包含的信息进行了初步审查，包括：
+
+- 所进行的动物研究及其发现的详细信息。
+- 试验参与者经历的特定类型的不良反应以及疫苗接种后试验参与者感染中共病毒（COVID-19）的情况。
+- 研究方案的信息，以及对该方案所做的修改。
+- 辉瑞公司 COVID 疫苗内部审查委员会的信息。
+- 辉瑞-BioNTech向美国卫生与公众服务部 (HHS) 提交的用于销售中共病毒（COVID-19） 疫苗的原始申请。
+
+
+庞大的信息量必须被仔细检查分析和处理，这将由The Defender的编辑人员进行，进一步的信息和任何重大启示将在未来几天内公布。
+
+- **曲折的法律程序和透明度的胜利**
+
+
+FDA 此前曾辩称，它没有足够的工作人员来审查、编辑和发布数十万页的文件，声称它每月只能处理 500 页。这意味着文件缓存在大约 75 年内不会完全向公众发布。在1 月 6 日的命令中，皮特曼（Pittmann）法官拒绝了 FDA 的要求，要求该机构在1月31日之前发布12,000 页文件，此后每月再发布 55,000 页文件。随后，皮特曼 2月2日的命令修改了这一决定，将发布时间表缩短为几个月而不是几十年。2月2日的命令还准许FDA可以将 “超额的页面 “存储起来，作为发布时间表的一部分——这意味着如果该机构在任何给定月份超出其每月配额，它可以将这些额外页面留给下一个月。
+
+此前，辉瑞公司回应了 1 月 6 日的命令，向法院提交了一份备忘录，要求干预此案，协助FDA发布文件，特别是为了：“确保信息自由法下免于披露的信息，在FDA遵守法院命令过程中得到充分的保护。” 辉瑞声称支持披露这些文件，但要求介入此案，以确保法律上免于披露的信息不会被“不当披露”。皮特曼在 2 月 2 日的命令中拒绝了辉瑞的请求。
+
+在相关事件中，美国德克萨斯州东区地方法院的迈克尔·特伦卡尔法官于2月10日公开了400页与举报人布鲁克·杰克逊提起诉讼的有关文件。
+
+杰克逊（Brook Jackson）曾在 Ventavia 工作，后者是辉瑞公司聘请的承包商，负责进行Pfizer-BioNTech COVID疫苗的3期临床试验。杰克逊的诉讼称，在她受雇于Ventavia期间，临床试验过程中有多项不当行为。FDA 拒绝干预此案。3月1日发布的与 Pfizer-BioNTech COVID 疫苗批准有关的一些文件似乎与Ventavia进行的临床试验直接相关，因此可能会阐明杰克逊的指控。
+
+新闻链接：
+
+[https://childrenshealthdefense.org/defender/fda-releases-pfizer-vaccine-documents/](https://childrenshealthdefense.org/defender/fda-releases-pfizer-vaccine-documents/)
+
+**校对：sherryok (水云间)
+审核校对：Barry Jack
+上传排版：V在途中**
 
  
 
