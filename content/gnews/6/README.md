@@ -2,40 +2,22 @@
 ---
 
 
-## 波兰与乌克兰边境Hrebenne
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2116638/)
+## 世界上 15% 的水手是俄罗斯人或乌克兰人：海上运输面临风险
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2116786/)
 
-意大利罗马达芬奇农场：Shuizhuyu
+翻译/整理: 萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/03/03063.jpg)图片来自reppublica.it
+两个数字足以理解乌克兰冲突对世界贸易的影响。全球 90% 的交通是通过船舶运输的；世界上 15% 的海员是俄罗斯人或乌克兰人。普京引发的冲突带来了另一个危机因素。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-3.jpg)
+海员数据由国际航运公会 (ICS) 披露，涉及近 200,000 名俄罗斯人（其中 71,600 人为军官）和 76,000 名乌克兰人（47,000 名军官）
 
+给海员带来困境的主要是往返黑海的航线问题，我们赖以生产许多产品，包括小麦、葵花籽油等。黑海的交通并没有停止。但如今经常经过这些水域的船只有被导弹袭击的风险。3 月 3 日爱沙尼亚货轮 Helt 被俄罗斯导弹击中沉入黑海，但这次事故中所有 6 名船员都获救了。
 
-意大利农场的战友们， 第一时间就到达了救援前线， 波兰和乌克兰的边境城市Hrebenne。
+工会领导人继续说，保险公司将该地区列为“高风险区”，这意味着保单的成本已经飙升。与此同时，MSC和马士基已经关闭了与俄罗斯港口的货运连接。在黑海建立的封锁也可能会给中小型船东带来了困难。
 
-现在给大家发来几张从前线发来的照片， 是意大利农场的阿娜随手拍下的现场照片。
+原文链接: h[ttps://www.repubblica.it/economia/2022/03/05/news/il\_15\_dei\_marinai\_del\_mondo\_sono\_russi\_o\_ucraini\_trasporto\_marittimo\_a\_rischio-340122992/?ref=RHTP-VS-I330891680-P14-S1-T1](//www.repubblica.it/economia/2022/03/05/news/il_15_dei_marinai_del_mondo_sono_russi_o_ucraini_trasporto_marittimo_a_rischio-340122992/?ref=RHTP-VS-I330891680-P14-S1-T1)
 
-从照片上可以看到， 有很多的热心人在边境提供免费的食物。 还有建起了很多临时的接待点和帐篷。 边境的人们都尽自己的可能提供给难民一些帮助。
-
-这些难民都是九死一生从战火中逃出来的。 他们是不幸的，遇到了战争， 而他们也是幸运的， 他们得到救助， 他们到达了安全的边境。 至少他们没有了生命危险。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-1.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-2.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-4.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-5.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-6.jpg)
-
-
-战争是残酷的，生死只在以秒计算的时间里。
-
-发表： Shuizhuyu
+责任编辑/发布:意大利达芬奇农场   萧亦
 
  
 

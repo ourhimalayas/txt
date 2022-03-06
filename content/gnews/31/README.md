@@ -2,38 +2,21 @@
 ---
 
 
-## 1958年台海金门炮战
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2115956/)
+## 狮城快讯：后疫情时代的心理健康
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2115981/)
 
-作者：纽约香草山 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-金门炮战，台湾称八二三炮战，又称第二次台湾海峡危机。时间从1958年到1979年，地点在中国东南沿岸与金门、马祖等岛屿。中共军队和中华民国国军双方以隔海炮击为主要军事行动的系列战役总称，故称金门炮战。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-06-上午10.57.52.png)
-1953年10月，中共在朝鲜停战后，立即开始制定进攻金门准备工作计划。到1958年，福建铁路、公路、军用机场相继修建完成，中共正式组建福建前线指挥部准备炮击金门。1958年8月，中华民国总统蒋介石亲自巡视金马前线。加之国际形势发生巨变，台海局势骤然紧张，台、澎、金、马进入紧急备战状态。
+**撰稿：银河精灵**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-06-233924.jpg)
+新加坡心理卫生学院与香港大学在2020 年至2021年之间，对1千多名本地市民做了一项心理调查显示多达百分之81.8的市民有意愿去寻求对于应对新冠病毒的心理辅导。本地一家保险公司也对受保人在2021年做过调查，10个人中9人有心理健康的困扰。
 
-1958年8月23日， 中共军队突然炮击金门，一日数万发炮弹倾泻到岛上，造成四千名国军将士阵亡。而国军也迅速调整进行还击，并有效遏制中共炮火。1958年8月23日到10月5日，战况最为激烈。初期中共军队猛烈的炮火让国军猝不及防，但随着炮战持续，国军逐渐恢复战斗力，双方战事处于对峙状态，国军成功守卫住金马地区。之后中共军队维持单打双不打的炮击模式，直到1979年1月1日中美建交，中共才正式宣布停止炮击。
+疫情从阻断器3阶段到逐步开放再到疫苗接种差异化管理，天翻地覆地改变了我们的工作，生活与旅行模式。居家办公成常态，工作与生活没有分割，很多职员和身边朋友表示他们所在的私人企业借着居家办公以员工节省了出行时间为借口，加大了工作量。很多人感到焦虑，担忧患有新冠会加剧他们原有的基础疾病。身边人也受疫情影响感到迷茫，因为很多变故发生。疫情至今3年，很多人都没有出过国门或是回家探亲的机会。
 
-金门炮战由中共军队首先发起。中共挑起金门炮战，企图通过攻击金马，威胁台湾本岛，企图有朝一日达成其所谓“祖国统一”的野心。
+对于疫情的阻碍我们没有选择，但是在受疫情严重困扰的世界，我们有权利选择和表达我们的需求和自主权。近期备受争议的疫苗差异化管理就完全夺走了我们拥有选择权的自由。先是限制我们不能去商场，剥夺消遣的自由。到最后不打疫苗就失去工作。很多身边的朋友同事全是被迫无奈之下打了疫苗。对于弹丸小国，近三年不能自由出国旅行，身体的受限加上长期的工作疲劳已经是很崩溃。但一个被体制所疏忽的人权问题，更是不容小觑。被夺走的选择权，让许多人感到无能为力。这种长期的身心压制还要随着政府对疫苗的疯狂推行延续，难以想象之后的未来会是怎样。作为科技和金融引领东南亚的新加坡，这个发达国家不得不小看后疫情时代必然爆发的一个最大的疫苗次生灾害——心理健康。
 
-参考链接：
-1）[金门炮战（维基百科）](https://zh.m.wikipedia.org/wiki/%E9%87%91%E9%97%A8%E7%82%AE%E6%88%98)
-2）[沈志華：金門炮戰 是中蘇關係破裂的原因？ ！](https://www.youtube.com/watch?v=l9z-PZQq2N4)
-3）[这场战役解放军全军覆没太惨烈！蒋介石听闻消息泪流满面，详解金门恩怨始末【经典人文地理】](https://www.youtube.com/watch?v=1PH_THtuG94)
+**Reference link: **[https://www.straitstimes.com/singapore/health/imh-study-points-to-likely-increase-in-mental-health-issues-in-spore-amid-covid-19](https://www.straitstimes.com/singapore/health/imh-study-points-to-likely-increase-in-mental-health-issues-in-spore-amid-covid-19)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
+[https://www.aia.com.sg/content/dam/sg/en/docs/press-releases/2021/aia-health-matters-survey-2021.pdf](https://www.aia.com.sg/content/dam/sg/en/docs/press-releases/2021/aia-health-matters-survey-2021.pdf)
 
-总编：Zion文恩
-编辑：静言
-审核：Jack Li文阳
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
