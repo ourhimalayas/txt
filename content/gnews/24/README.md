@@ -2,33 +2,42 @@
 ---
 
 
-## 乌克兰救援3.5. 新中国联邦美国与欧洲救援团都已抵达现场并开展救援
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2114245/)
+## 德国教练到盘古现场发现龙头变龟头没完工而且缺两睾丸
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2114557/)
 
-撰稿：DG
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture221.png)
-2022年3月5日，NFSC救援行动纽约团队抵达华沙。前线总指挥大卫在盖特上直播采访了一个别救的中国留学生和当地市长。
+Youtube视频链接：[https://youtu.be/CjLF-0DD09k](https://youtu.be/CjLF-0DD09k)
 
-2022年3月5日9:49PM（美东时间，乌克兰基辅时间6日早上4:49AM），NFSC救援行动电报群组里更新了大巴时间表。
+**郭文贵先生：**你要看到七哥过去七年来所向披靡，共产党上万次的警察，把龙头在奥运会前变成了龟头。德国那个教练说：“Miles，我真的到现场我认真看了，他说那有男性龟头，有没有睾丸呐？”把我笑晕了，我还真没想过这个问题。我说：“你得问习近平‘习太阳‘去，有没有睾丸？”白素贞你问问勺子星为什么没搞两个睾丸。（呵呵呵呵，嘉宾们都笑了）
 
-3月5日 – 3月6日， 2班 X 50 座
-3月7日起2星期: 2班X50座，2班X59座，1班X58座，1班X56座，1班X50座2022年
+我说这哥们太搞笑了，你想象力太强了。我说德国人你只知道潜水艇，哪出来睾丸呐。把我笑得快笑晕了。他说：“我就在这前面看着，真的就把这个龙头……..”他说“2008年的时候我来了，我就站在同样的位置”他说“这个世界全变了。冠状病毒、疫苗”他说“整个奥运村那块就像死气沉沉，没人”他说“那有人呐，除了军人就是军人。世界都是死静一片”
 
-3月5日前线总指挥大卫在盖特上直播介绍当地的情况，大卫说：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-11.png)
-我们是来救人的，救人靠情报、资源，靠对当地环境的了解。这几天需要躲避交通拥堵和涌来的大量难民和不安全因素比如在局部边境已经发生了抢、盗这样的现象。还有就是已经开始出现对华人排斥的现象，比如有的留学生无法搭乘巴士、卡车、私家车，因为你是华人。他们本能的抗拒或反感。
+他说：“但是你那“龙头”变成‘龟头’“他说“确实是龟头。”他说“包扎的龟头。”他还发现那龟头上头有一层没完，我都不知道，你们都没发现这个问题。他说：“没完啊，Miles，还有一层……那是拿那个粘上去的东西。”我说：“是吗？”就是工没完，它那个龟头包扎还没完呢。他说：“那个Miles，那个睾丸在哪呢？得弄两睾丸。”我说：“是呀，我说再弄两个有保护神。”这两睾丸都成了…..，上哪弄两睾丸去呀。文疯而动弄两睾丸去吧。
 
-另外通报一下，前些天在社交媒体上流传的那些诋毁、抹黑、恶意评价乌克兰这场战争和饱受灾难的居民的视频，国内这些小粉红们垃圾人，他们的视频在乌克兰大肆传播并被翻译成多种语言，又被转给乌克兰正在逃难的人，甚至乌克兰正在战斗的人，你想想这意味着什么？！所以现在乌克兰在迷茫失望之中，可能又多了一份可能潜在的待爆发的仇恨，这就是中共给华人洗脑以后这些脑残们在海外的恶意言行带来的灾难。
+编辑整理：Jacques；
 
-我现在能感受到包括昨天七哥一再问我，“你有没有感到危险”，我说句心里话我担心，我从当地人的眼神里他们的绝望也可能成为仇恨，这是我们面临的情况。也是我们为什么来到这里，直播，也是我们新中国联邦为什么会把这辆大巴，用实力展示在乌克兰境内把60多人拉到这个波兰的火车站，没有实力没有之前的准备是不可能做到的，战友们！
+字幕文件制作：兵嫂；
 
-而且现在在乌克兰境内只有一个还能安全撤离的来这里的通道就是：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-10.png)
-原文链接：[https://www.gettr.com/streaming/py8k3mecdc](https://www.gettr.com/streaming/py8k3mecdc)
+视频制作及上传：Cindy；
 
-校对发布： Shifter
+G-News发布：小满；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

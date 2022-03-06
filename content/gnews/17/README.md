@@ -2,37 +2,23 @@
 ---
 
 
-## 弗吉尼亚州提出突破性的数字货币银行法案
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2114612/)
+## 在乌克兰上空设立“禁飞区”意味着世界大战
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2114624/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月28日，弗吉尼亚州参议院通过了一项突破性的数字货币银行法案，这项法案允许那些有健全的协议来有效管理相关风险的银行，提供数字货币托管服务。
+撰稿—祁明
+校对/上传—无明逆流
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-16.png)
+英国工党领袖基尔斯塔默近日呼吁北约在乌克兰领空设立禁飞区，很多媒体在推特上对此进行了转载引发了很多人产生设立禁飞区的共鸣。
 
-目前，因世界各国政府试图阻止俄罗斯使用数字货币来绕过制裁，导致数字货币的价格持续走高。该法案的提案人说，数字货币的托管服务是应该在立法上给予解决的，通过赋予国家特许银行某些能力，使其成为数字货币托管人，允许该银行持有私人加密货币钱包的钥匙，类似个人在银行拥有保险箱。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/W-PM.jpeg)图片来源：wikiwand
 
-数字货币正在不断普及，鉴于其巨大的经济发展潜力，只有立法才是更持久的解决方案。此前，美国联邦银行监管机构表示，将在2022年澄清数字货币银行规则。
+那么“禁飞区”到底是什么？
+“禁飞区”不是字面上的含义，禁止他国飞机在该领空飞行这么简单，而是宣战，“禁飞区”要求北约击落任何一架进入该领空的俄罗斯飞机，这将导致俄罗斯军队不可避免的进行报复，他们将击落北约飞机，北约防空中心，成千上万的人会因此死亡。
 
-链接：
+另外俄罗斯已经将其核武器置于高度戒备的状态，任何“禁飞区”的设立，乌克兰都极有可能升级为核战争，届时全球的军事重镇都释放了数千吨核武器，战争会让这个星球变成坟场，这就是为什么北约甚至五角大楼都不会考虑设立“禁飞区”的原因，这是第三次世界大战。“禁飞区”不能挽救生命，它被设计的初衷旨在让战争升级。
 
-- [Virginia advances groundbreaking cryptocurrency banking bill](https://www.foxbusiness.com/politics/virginia-groundbreaking-cryptocurrency-bill)
+新闻来源：[Reality Check: A “No-Fly-Zone” Over Ukraine Means WW3](https://www.zerohedge.com/geopolitical/reality-check-no-fly-zone-over-ukraine-means-ww3)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
-
-总编/编辑: 飞虹
-审核: 飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

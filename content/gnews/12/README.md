@@ -2,10 +2,10 @@
 ---
 
 
-## 我们需要与乌克兰人民站在一起
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2114696/)
+## 拜登总统禁止俄罗斯寡头及其家人和密切联系者入境美国
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2114781/)
 
-03/01/2022 国会议员罗·卡纳在接受玛丽亚采访时说：普京的所作所为大逆不道，都是潜在的战争罪，需要被调查。我们需要与乌克兰人民站在一起。
+03/03/2022 拜登总统宣布禁止50位俄罗斯寡头及其家人和密切联系者入境美国。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,37 +2,28 @@
 ---
 
 
-## 波兰将扩军一倍防范俄罗斯入侵
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2114615/)
+## 因宜家宣布退出俄罗斯 其当地门店涌现购物潮
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2114711/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台湾媒体3月5日消息，为避免乌克兰遭受俄罗斯侵略的前车之鉴，北约成员国波兰近日宣布，准备修改法律提高明年的军费开支，把陆军人数从14万3500人，扩增到30万人，以提高防御能力。
+**撰稿：日本东京方舟农场 Miyali7768****(****文玉) 幽蘭自得**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-9.jpg)
+近日，由于著名瑞典公司“宜家家居”（IKEA）宣布退出俄罗斯市场，其当地门店出现了购物潮。
 
-波兰政府表示，因为俄乌战争，该国政府已经把注意力集中在首都华沙的防御能力上，预计明年将把军费从去年10月提案的占GDP的2.5%，提高到3%，并将视情况继续增加。如果修法顺利通过，波兰将拥有法律依据，来建设北约最强大的陆军之一。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0124.jpg)（图片来自美联社）
 
-波兰国防部长拉查克指出，波兰需要这样一支军队保卫祖国，尤其是当前邪恶的帝国正在东部边境重生之时。
+据《中央社》报道，瑞典连锁家具家饰零售商宜家家居（IKEA）已宣布将退出俄罗斯市场，而俄罗斯首都莫斯科附近一个门店本周涌现排队人潮，其他各地门店也出现类似景象，俄罗斯家庭赶来将手上迅速贬值的卢布购买家用品。
 
-链接：
+据悉，西方制裁使得俄罗斯央行的6400亿美元外汇存底大部分遭到冻结，若干俄罗斯银行被排除在全球支付系统SWIFT之外，导致卢布汇价本周贬值高达1/3。
 
-- [波蘭被俄國入侵烏克蘭嚇到 將擴軍一倍「成為北約最強陸軍」](https://news.ltn.com.tw/news/world/breakingnews/3849139)
+此外，欧亚集团（Eurasia Group）分析师威特林（Zach Witlin）指出，制裁已透过物价上涨和数字支付中断冲击俄罗斯消费者。虽然他们并非是制裁直接目标，但“恐惧和谨慎使冲击放大”宜家等国际品牌退出俄国，正掀起“滚雪球效应”。
 
+参考链接：
+[https://www.cna.com.tw/news/aopl/202203050241.aspx](https://www.cna.com.tw/news/aopl/202203050241.aspx)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+素材采编：Miyali7768(文玉) 幽蘭自得
+编辑：青城道姑
+发布：Linda
 
-总编/编辑: 飞虹
-审核: 飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

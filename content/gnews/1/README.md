@@ -2,12 +2,18 @@
 ---
 
 
-## 中共国若入侵台湾或将威胁切断美国供应链
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2114840/)
+## 2022年3月6日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2114909/)
 
-03/02/2022 众议员迈克尔·华尔兹：如果中共国入侵台湾，我们对其切断美供应链的威胁应保持警醒。美国的处方药和先进材料供应过度依赖于中共国。
+制作：DT新闻组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**中共的杀戮还在继续……**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_5428.jpg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
 
  
 
