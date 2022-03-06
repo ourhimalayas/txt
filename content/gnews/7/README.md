@@ -2,42 +2,56 @@
 ---
 
 
-## 加拿大卡车运动带动全球,疫苗政治运动全面燃起无人能挡
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2113944/)
+## 20220305乌克兰救援， 一位到达波兰基地被救援同胞的真实经历-NFSC救援前线焦点追踪
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2114006/)
 
-Youtube视频链接：[https://youtu.be/STwh3is-puY](https://youtu.be/STwh3is-puY)
+撰稿：DG
+![](https://assets.gnews.org/wp-content/uploads/2022/03/David-interviews.png)
+被拯救的华人（不了解郭先生的华人）讲述在微信群看到战友信息，被拯救到波兰的真实经历！！！
 
-**郭文贵先生：**另外一个，这个疫苗的问题，今天大家看到这个疫苗在加拿大的卡车事件。头两天美国很多我们的美国战友要把盖特Logo变成加拿大的火车抗议Logo，甚至有人要变成那个手拎汽油的Logo，甚至加拿大的很多政府官员跟我联系，和我们新中国联邦、法治基金联合行动，等等等等等。
+前线总指挥大卫采访了第一批乘坐NFSC救援行动大巴到达波兰基地的一位同胞。
 
-这个卡车行动已经带动了全球，同时看到了丹麦，我们有很多很多战友在丹麦对整个疫情是全面打开、全面取消。在英国已经形成了，可以这么说，疫苗的政治革命正在悄悄地燃起。在欧盟，已经不可阻挡的疫苗的一场政治革命、政治运动已经全面燃起，没人可以停止，包括在日本。
+被救援同胞表示愿意面对大卫接受采访。
 
-那么这个疫苗的事情危及到我们每个人的生存，包括现在这个Omicron，很多国家、城市都在所谓的感染病例下降，有些还在提高，在这种情况下，很多人疏忽了，包括我们战友。我们有战友家人过世了，有战友现在已经不戴口罩出去了，甚至有战友要开始开门做生意了。
+大卫：你是当地时间几点上来这趟大巴的？
 
-编辑整理：Jacques；
+被救同胞：当地时间下午五点。
 
-字幕文件制作：大好河山；
+大卫：在这个过程中，你看到当地难民的情况是什么？基辅的情况是什么样？
 
-视频制作及上传：Cindy；
+被救同胞：我住的位置离市中心非常近，有炮弹和子弹的声音。
 
-G-News发布：小满；
+大卫：你什么时候离开的？
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+被救同胞：当时难民从东向西撤，我把出租车的价格打到了十倍，才到了火车站。火车站人很多，非常挤，车厢内包括厕所都满了人。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+大卫：火车收费吗？
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+被救同胞：免费。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+大卫：能否给我们讲一下你和新中国联邦救助热线联系的过程？
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+被救同胞：当时在微信群里看到救援信息。我知道大使馆已经撤离了最后一批。我联系后，对方先添加了我的Instagram,发给我救援电话。我不了解郭文贵，我打了电话。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+大卫：这条热线是我们乌克兰华人的生命线。事实上我们做了大量的工作，你看到的那个微信群是我们很多战友想尽一切办法把这个救援信息放进去。中共对信息屏蔽，对留学生和华人信息误导。在联系上以后多久你就登记了乘大巴的名单？后续又有那些人和你联系？
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+被救同胞：工作人员很热心，不可否认，有什么变动都提前通知我。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+大卫：最后一个问题？这样的大巴出现在乌克兰是否有意义？是否继续下去？你有什么相对留学生说的？
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+被救同胞：要懂得自救啊！不应该立足一点否定一切！
+
+大卫：很多小粉红不知道真相，我们不能简单说对或错。我们就是救人，救华人，救同胞。郭文贵先生是新中国联邦的缔造者，他把真相、墙内的真相、世界的真相带给了我们华人。即使被救的华人转身骂我们，我们还是救人。你能平安，是我们最高兴的。我们不需要你表达什么。每一个看到这个镜头的人（被困），赶紧自救！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Businfo-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/airplane.png)
+大卫现场直播——被拯救的华人（不了解郭先生的华人）讲述在微信群看到战友信息，被拯救到波兰的真实经历！！！
+
+[https://www.gettr.com/post/pycj584742](https://www.gettr.com/post/pycj584742)
+
+盖特引力波 [\[email protected\]](/cdn-cgi/l/email-protection) 的报道
+
+[https://www.gettr.com/post/pyddte4319](https://www.gettr.com/post/pyddte4319)
+
+Post:Rosemary
 
  
 
