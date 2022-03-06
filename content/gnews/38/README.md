@@ -2,35 +2,39 @@
 ---
 
 
-## 拜登政府将对中共国商品关税展开审查
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2114901/)
+## 盖特注册用户接近五百万
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2114811/)
 
-**撰稿：日本东京方舟农场 北极**
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+自由言论平台盖特，是有史以来发展最快的社交媒体平台。
 
-据大纪元3月06日报道，美国即将对价值340亿美元的第一批中共国商品关税展开审查。
+盖特在推出三天的时间内，就到达一百万的注册用户，并在2022年以50%的速度增长。目前，注册用户数已接近五百万。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-06-at-8.14.53-PM.png)
+盖特在上周又掀起一个大幅增长的奇迹。在美国，仅上周日，注册量增长了550%。上周，在盖特 CEO杰森-米勒访问欧洲期间，英国的注册人数增加了61%。知名作家多米尼克-珊缪尔斯在上周一，宣布了与盖特合作。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0122.png)图为美国加州长滩港集装箱运输。（图片来自大纪元）
+在德国，米勒周五在科罗纳委员会的直播，浏览量达八万次。盖特在德国的注册人数增加了111%。
 
-根据《贸易法》第301条规定，进口商品关税在征收四年后到期，美国贸易代表办公室有权对其进行审查。审查需要在其可能结束前的60天内进行，第一批340亿美元的中国商品将在接下来的几个月内到期，即7月6日。
+在巴西，盖特上周的注册人数增加了33%。这在很大程度上，得益于盖特巴西战略合作伙伴媒体，对俄罗斯入侵乌克兰的报道。
 
-即使在俄罗斯入侵乌克兰导致大宗商品供应收紧之后，拜登政府没有发出取消关税的计划的信号， 目前通胀率已超过7%，从能源到小麦的价格都在飙升。
+七个月以来，盖特已经用实力和信誉，确立了作为一个自由言论社交媒体平台的地位。
 
-拜登总统保留了前任川普总统对中共国商品征收关税的政策。川普总统执政期间对中共国先后征收了4次关税：2018年7月份以来，美国先是对340亿美元商品征收25%关税，随后对160亿美元商品征收25%关税，然后扩大到对2000亿美元关税征收10%关税，到2019年5月再将2000亿美元商品的关税提升到25%。
+参考链接：[每时每刻这个世界都在发生巨变……](https://gettr.com/post/pyagi05aed)
 
-2020年初，川普总统和中共国家主席习近平达成协议，签署了第一阶段协议。中共同意增加对美国商品和农产品的购买，即比贸易战开始前多购买2000亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-但截止至协议约定时间，中共未能实现这些目标。追踪中共国采购情况的彼得森国际经济研究所高级研究员乍得·鲍恩（Chad Bown）表示，中共国可能只采购其承诺购买的商品的60%。
+编辑：Jack Li文阳
+总编：Zion文恩
+审核：Jack Li文阳
+校正/发稿：我不在这里
 
-拜登几个月前曾表示，这就是他保留关税的原因。
-
-参考链接：
-[https://www.epochtimes.com/b5/22/3/5/n13624781.htm](https://www.epochtimes.com/b5/22/3/5/n13624781.htm)
-[https://www.bbc.com/zhongwen/simp/business-48770168](https://www.bbc.com/zhongwen/simp/business-48770168)
-
-素材采编：北极
-编辑：青城道姑
-发布：Linda
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

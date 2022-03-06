@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/6/2022 5:51 PM (UTC)`
+
+3月6号：天助我们新中国联邦……让我们展示新中国人在全世界的和平和伟大的阳光善良的一面吧。【大家都看過巜舒特拉的名單》這部電影，二戰中德國人舒特拉在克拉科夫的工廠，以招工為由解救了數千位猶太人，我去參觀過這個工廠，工廠舊址已經成為遊客必去瞻仰的地方。被救猶太人的相片，貼滿了這工廠的窗子，人們永遠不會忘記這段歷史。<br/>今天大衛和小Sarah等戰友門于第三次世界大戰中又在克拉科夫救人，新中國聯邦的義舉必將載入史冊！】
+![img](https://media.gettr.com/group27/getter/2022/03/04/17/0aae44be-681a-f3c5-b964-c1f6f9fdea2f/a86babd5c2042aa8d12285c4232d6326.jpg)
+
+---
+
 `@miles 3/6/2022 4:42 PM (UTC)`
 
 03/05/2022 美国国务卿今天突然到访乌克兰且在乌克兰境内与乌克兰外长会晤。乌克兰外长库莱巴谈到美国提供的武器如何帮助乌克兰击落俄罗斯飞机和坦克。 他表示乌克兰需要更多更优质的美国武器来拯救乌克兰人民的生命<br/><br/>03/05/2022 US Secretary of State Blinken surprisingly arrives in Ukraine today and meets with the Ukrainian Foreign Minister on Ukraine soil. Ukraine Foreign Minister says weapons supplied by the US have helped destroy Russian tanks and aircrafts. He also urges the US to supply more and better weapons to save the Ukrainian people.<br/> 
@@ -147,13 +154,6 @@ Children of the New Federal State of China pray for the peace of Ukrainian Peopl
 
 新中国联邦法治基金乌克兰人道救援行动-纽约救援团出发和土耳其现场救援团
 ![img](https://media.gettr.com/group37/origin/2022/03/04/23/3c68d55c-5811-0749-173a-b12b7d6e4dd1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/4/2022 11:54 PM (UTC)`
-
-3/4/2022 Miles Guo’s GETTR: Thank God for offering me a long night of dreams in which I had a reunion with my family! “Nightmare in Chains” is a song I recorded as a gift for my mother. Let’s get rid of our indifference, selfishness, and cowardice to protect our fellow Chinese. CCP, I will keep fighting against you until this revenge is taken!<br/><br/>3/4/2022 文贵盖特：感谢上天赐予文贵跟家人团聚的长长的梦夜！文贵的《锁链梦》是给母亲的礼物；让我们抛弃冷漠、自私和懦弱去保护我们的同胞；共产党，文贵一定会把这个仇报到底的！<br/>
-![img](https://media.gettr.com/group40/getter/2022/03/04/23/414f2cc6-0805-dd63-c7df-93820bb880dc/out.jpg)
 
 ---
 
