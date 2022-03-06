@@ -2,45 +2,30 @@
 ---
 
 
-## 3/7 银河快讯:日本70%的企业预计今后三年将增加员工；日本政府将积极接受从乌克兰难民
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2116819/)
+## NFSC新闻、G|TV新闻访谈简报|2022年3月6日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2116902/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220304-00000080-jnn-000-1-thumb.jpeg)
-[图片资源](https://news.yahoo.co.jp/articles/66249f355137673f42577b152fc953882461d5a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-2.jpg)
 
-1. **日本70%的企业预计今后三年将增加员工**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-6.png)
+文章仅代表作者本人观点，与Gnews无关
 
+视频参看：
+[2022.03.06早 《NFSC新闻》](https://gettr.com/streaming/pyhdp036d0)
+[2022.03.06早 G|TV《新闻访谈》](https://gettr.com/streaming/pyhapk0906)
 
-[据NHK 3月6日报道，70%的公司预计在未来三年内增加其工作人员，比一年前的调查增加了约10个百分点，是自1992年有比较以来的最高比例。 进行这项调查的内阁办公室说，虽然公司收到中共病毒(新冠病毒COVID-19)影响的雇佣人数有所恢复，但有必要关注乌克兰局势和其他因素的影响。 今年1月，内阁办公室对东京及名古屋证券交易所第一和第二部上市的公司进行了调查，收到了1155家公司（42%）的答复。](https://www3.nhk.or.jp/news/html/20220306/k10013516731000.html?utm_int=news-business_contents_news-main_002)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-1. **日本政府将积极接受从乌克兰难民**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March.png)
 
-
-[据NHK 3月6日报道，政府打算积极接受因俄罗斯的侵略而逃离乌克兰的疏散人员。政府正在着手确认那些希望来日的人，同考虑到因为预计一些人可能在日本长期停留，亦在加急讨论建立包括住宿在内的支援系统。 由于俄罗斯的军事入侵，逃离乌克兰的人数正在增加，岸田首相在本月2日表示，他将 “进一步声援乌克兰人民”，日本将积极接受他们。](https://www3.nhk.or.jp/news/html/20220306/k10013516331000.html?utm_int=news-politics_contents_list-items_002)
-
-1. **名古屋举行大规模游行示威要求俄军立刻撤离乌克兰**
-
-
-[据NHK 3月6日报道，在俄罗斯军事入侵乌克兰造成大量平民伤亡的情况下，生活在东海地区的乌克兰人在名古屋的荣地区举行游行，呼吁立即撤军。 游行是由爱知县的一个促进乌克兰文化的非营利组织所组织，大约有500名乌克兰人和日本人参加。 游行者高举乌克兰国旗和印有 “NO WAR “字样的纸张，呼吁 “反对战争 “和 “乌克兰和平”，并呼吁尽快停止入侵。](https://www3.nhk.or.jp/news/html/20220306/k10013517291000.html?utm_int=news-social_contents_list-items_012)
-
-1. **在野党执政党讨论乌克兰支援及俄罗斯制裁措施**
-
-
-[据NHK 3月6日报道，执政党和反对党就制裁俄罗斯和支持乌克兰的措施交换了意见。 自民党参议院世耕秘书长说：”我认为制裁将很快生效，并以此为杠杆改变俄罗斯。有关能源方面我们要采取现实的态度。 另一方面，制裁可能进一步被加强，这将对能源部门产生强烈影响。 执政党和反对党的协调行动，可能不得不要求日本国民承担巨大的负担。”](https://news.yahoo.co.jp/articles/8c20581db83e412844331a7bc2444bc3caff9892)
-
-1. **G7科学家代表机关发出声明：“俄罗斯领导人立刻停止入侵”**
-
-
-[据NHK 3月3号报道，随着俄罗斯对乌克兰的军事入侵的继续，七国集团主要国家科学家组织发表了一份联合声明，呼吁俄罗斯领导人立即停止入侵，声称这显然违反了人类的基本价值观。声明表示对乌克兰的攻击明显违反了国际法，公然侵犯了人类的基本价值观。 这是对作为学术自由，学术交流以及合作机会的基础的自由、民主和自决的基本原则的攻击。](https://www3.nhk.or.jp/news/html/20220303/k10013511481000.html?utm_int=news-culture_contents_list-items_010)
-
-1. **岸田首相强调”坚持非核三原则”**
-
-
-[据中国新闻3月6日报道，岸田文雄首相回应了俄罗斯对乌克兰的入侵以及关于其可能使用核武器的问题。 他严厉批评了普京总统的言论和行动。 他还拒绝了前首相安倍晋三和其他人士提出的”核共享 “政策的建议，即把美国的核武器放在日本境内并共同操作。他表示要坚持无核三原则，并再次呼吁国际社会进行核裁军。](https://news.yahoo.co.jp/articles/9ca54fe00f051920d37ad14542b6e92f0f2a57d5)
-
-【日本银河系农场-阿尔法星球】
-作者： Tagomi
-校对： Totoro
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
