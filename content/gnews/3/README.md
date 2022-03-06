@@ -2,27 +2,27 @@
 ---
 
 
-## 有声|台湾完成从乌克兰的撤侨工作
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2116010/)
+## 爱尔兰总统确诊中共病毒
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2116148/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+爱尔兰总统希金斯（Michael D. Higgins）办公室发言人今天表示，希金斯确诊感染中共病毒，症状轻微。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide13-2.jpeg)
 
-当地时间3月4日，据台湾外交部发布的新闻稿显示，台湾第三辆从乌克兰撤侨的专车已经安全抵波兰，完成了阶段性地从乌克兰撤侨的任务。
+80岁的希金斯和妻子莎宾娜计划走访都柏林北郊一所学校，但随后二人相继确诊。发言人还补充称，总统夫妇都接种了中共病毒疫苗加强针。据称总统夫妇中共病毒检测呈阳性，未来7天将在家进行隔离，他们仍将继续在家工作。这是希金斯首次确诊中共病毒。
 
-外交部表示，当天晚上共有八名台侨和13位外籍配偶搭乘了台湾的撤侨专车抵达波兰，加上早先的两趟撤侨车次，台湾共计从乌克兰撤出了55位台侨及其外籍家人。
+爱尔兰在疫情高峰期间，曾施行某些欧洲时间最长、最严格的防疫限制措施，但大多已经解除。进店内购物、上学必须强制佩戴口罩的规定已于2月28日解除，但确诊后必须隔离的规定仍未松绑。
 
-外交部也指出，在没有正式外交关系的情况下，台湾外交部及相关经贸单位派驻在俄罗斯、乌克兰、波兰和斯洛伐克等地的工作人员通力合作，再加上乌克兰当地政府的支持，从而使得台湾顺利完成了救援台侨的任务。
+参考链接：[President Michael D Higgins tests positive for Covid-19](https://www.irishtimes.com/news/ireland/irish-news/president-michael-d-higgins-tests-positive-for-covid-19-1.4818345)
 
-据悉，台湾外交部除了对各国政府的协助表示感谢外，还将继续对乌克兰进行人道支援。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-文字版原文：[台湾完成从乌克兰的撤侨工作](https://gnews.org/zh-hans/2110975/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+总编：Zion文恩
+编辑：Jack Li文阳
+审核：文真
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
