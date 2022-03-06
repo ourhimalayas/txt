@@ -2,38 +2,29 @@
 ---
 
 
-## 布林肯警告中国：世界正在关注中国对俄乌战争的反应
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2116143/)
+## 视频|俄罗斯正在企图控制乌克兰的其他大型核电站
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2116191/)
 
-撰稿：小湫
+制作：香草山视频部
 
-美国国务卿布林肯星期六对中国外交部长王毅说，世界正在关注中国和其他国家对俄罗斯入侵乌克兰的态度。  这次电话会议主题是讨论美国国务院所说的莫斯科对乌克兰发动的有预谋、无端和不公正的战争。
+3月3日，俄罗斯侵占了乌克兰的扎波罗日热核电站后，目前正在向南乌克兰核电站推进。这两座核电站是乌克兰境内最大的两座，为乌克兰境内提供约三分之一的发电。
 
+乌克兰一共有四座核电站，由15座反应堆组成，发电量大约为该国的一半。另外一半发电量来自煤炭，乌克兰的多数煤电厂位于顿巴斯地区，自2014年开始，俄罗斯时常侵袭这些煤电厂地区。他们认为控制乌克兰的发电能源有利于全面攻占乌克兰。
 
-![此图像的alt属性为空；文件名为Secretary-of-State-Antony-Blinken-Poland-Ukraine-Refugees.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/Secretary-of-State-Antony-Blinken-Poland-Ukraine-Refugees.jpg)
-图片来自网络
+近年来，乌克兰已经切断了许多与俄罗斯和白俄罗斯曾在苏联时代能源共享的电网，加入西方邻国的电网。这项计划预计在2023年完成，2月24日俄罗斯入侵乌克兰的当天，工作人员仍在进行测试，希望这项工程能够加紧完成。
 
-美国国务院发言人内德·普莱斯(Ned Price)在一份声明中说:“国务卿指出，全世界都在关注哪个国家支持自由和主权的基本原则。”
+俄罗斯因乌克兰的殊死抵抗恼羞成怒，不仅开始轰炸平民区，侵占核电站，一座煤电厂、一座水电站大坝还有废弃的切尔诺贝利核电站，也已经被俄占领。
 
-布林肯强调，世界正在一致行动，反对俄罗斯的侵略，确保莫斯科将付出高昂的代价。
+发稿：Daxia
 
-布林肯周六还与波兰外长兹比格涅夫·劳(Zbigniew Rau)就两国合作帮助其共同盟友乌克兰进行了交谈。 国务卿还参观了波兰的一个难民设施。
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GettyImages-1234277842.jpg)
-图片来自网络
-
-一名高级国防官员周四批评中国在俄罗斯军队发动致命导弹袭击一周多后对乌克兰战争保持沉默。尽管中国一再声称尊重一个国家的主权，但中国政府拒绝制裁或谴责俄罗斯的入侵。
-
-周三，在联合国大会通过一项谴责俄罗斯总统普京入侵俄罗斯并要求他立即撤军的决议时，中国投了弃权票，美国在内的其他141个国家投了同意票。
-
-在181个参加投票的国家中，只有5个国家——俄罗斯、白俄罗斯、厄立特里亚、北韩和叙利亚——反对该决议，35个国家弃权，其中包括中国。
-
-参考信息：
-
-Blinken tells China ‘world is watching’ response to Russia-Ukraine war
-
-![](https://lh6.googleusercontent.com/w8LMlCAeYCCPuKxveGdvcyeqg1Dd6HHwfVuUxJ34hpaMbTL0LD8zVPo5ACa3FuktSvFOIcmRQ-dNekv9ZFiBBUkbYOsSDApxh1ol6EeU7ac8c05cmsznH-u-3PJcLeMP0sErzQ3W)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
