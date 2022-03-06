@@ -2,35 +2,31 @@
 ---
 
 
-## 今日盖特大V推荐 — 大全新闻（Newsmax）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2112631/)
+## 中共官媒否认中国留学生遭俄军轰炸身亡
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2112679/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-472.png)
-盖特链接：[https://gettr.com/user/newsmax](https://gettr.com/user/newsmax)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-大全新闻（Newsmax）自述：
+整理：围剿维尼熊
+编辑：wenly
 
-现在在 DirecTV 349、Xfinity 1115、Dish 216、Optimum 102、Cox、Fios 615、Uverse 1220、Suddenlink 102、YouTube 上观看 Newsmax：http://nws.mx/tv
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-353.png)图片来源：雅典娜设计组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-474.png)图片来源：网络
 
-大全新闻（Newsmax）简介：
+根据之声中文网3月4日报道，乌克兰媒体OBOZREVATEL报道，3月3日晚间，乌克兰哈尔科夫国立文化学院（The Kharkiv State Academy of Culture）的宿舍遭俄军轰炸。据初步统计，13名学生身亡，其中包括四名中国留学生。
 
-大全新闻（Newsmax）是1998年由克里斯托弗·鲁迪（Christopher Ruddy）创立的美国保守派新闻媒体。该网站分为四个主要部分：Newsmax、Newsmax·健康、Newsmax·金融和Newsmax·世界，每个部分又分为不同的子部分。
+另有6名学生受伤后正在当地医院接受治疗，目前，关于死伤者的确切人数仍在统计中。
 
-同时大全新闻（Newsmax）还经营名为Newsmax的印刷杂志以及有线新闻频道NewsmaxTV。2014年6月16日大全新闻（Newsmax）通过DirecTV和Dish Network向3500万卫星用户推出了有线电视频道。截至2019年5月，该网络已覆盖约7500万有线电视家庭。
+中共官媒《环球时报》随后报道，”两名中国留学生在哈尔科夫文化学院宿舍遭炮击身亡”的消息不属实。
 
-大全新闻（Newsmax）被《纽约时报》描述为美国政治中的“强大力量”，《福布斯》将其描述为“新闻强国”。
+参考链接：[四名中国留学生遭俄军轰炸身亡-中媒假消息](https://m.dw.com/zh/乌媒四名中国留学生遭俄军轰炸身亡-中媒假消息/a-61015276)
 
-* * *
-
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*发布：tianzhihuan*更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
