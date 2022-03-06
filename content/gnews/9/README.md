@@ -2,25 +2,19 @@
 ---
 
 
-## 樱花灭共诗——罪己（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2114837/)
+## 西媒头条 — 第184期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2115001/)
 
-撰稿：东京樱花团/曲非烟
+**制作：蚂蚁兄弟**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/樱花灭共诗——罪己（新韵）1.png)
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
 
-武帝战匈奴，
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0823.jpg)
 
-勒铭绝域途。
+***发稿：信心满满***
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-3.jpeg)
 
-荒村连万里，
 
-罪己诏难书。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/樱花灭共诗——罪己（新韵）2.png)
-*图片：东京樱花团/闪闪
-校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
