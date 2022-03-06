@@ -2,40 +2,23 @@
 ---
 
 
-## 冬奥中韩大战民族大战美籍华人大战与海外排华联系紧密
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2113927/)
+## 视频|还原历史上的3月5日
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2113933/)
 
-Youtube视频链接：[https://youtu.be/IBtzry843lE](https://youtu.be/IBtzry843lE)
+制作：香草山视频部
 
-**郭文贵先生：**另外一个就是在北京正在进行的冬奥会——共产党的“冬眠会”，现在是各种事件频出，是中韩大战、民族大战、美籍华人大战，这一下子事儿大了，是吧？美籍华人和现在我们最担心的海外的排华的整个的发生紧密地联系在一起。
+1940年3月5日，苏联共产党高层下令，对其入侵波兰时俘虏的士兵、知识分子、警察及其他公务人员进行的有组织的大屠杀，当时遇害的波兰人超过两万。
 
-它就像一个在天空中现在亮丽的一朵打出来的烟花一样，它毕竟它会散去，但是掉在地上的到底是烟花弹还是烟花渣儿？还是砸在谁脑袋上继续燃烧的火焰呢？还是烧了谁家的房子？这事儿太大了！
+资料显示，该屠杀计划由贝利亚提议，经过包括斯大林在内的苏共中央政治局签字批准，其后被世人成为“卡廷大屠杀”。1941年，德军入侵苏联并占领卡廷森林后，苏共政府的这一暴行才被发现。然而，直至1990年波兰总统访问苏联时，苏联才首次官方承认这段历史。
 
-编辑整理：Jacques；
+至于中共方面，1927年3月5日，毛泽东在《湖南农民运动考察报告》中提出，“革命是一个阶级推翻另一个阶级的暴烈的行动”。此后，在毛人为制造的仇恨中，被其煽动的流氓无产者在当地烧杀抢掠，导致当时的湖南农村混乱不堪，当地人不得不被迫奔走他乡。然而在中共的指挥下，当地的农民运动迅速升级成为残酷的阶级斗争和屠杀，最终迫使国民党军队介入对其进行镇压。至此，国民革命的统一战线逐渐濒临崩坏。
 
-字幕文件制作：大好河山；
+发稿：雪梨
 
-视频制作及上传：Cindy；
+**更多资讯，更多关注**
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

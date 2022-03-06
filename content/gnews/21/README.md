@@ -2,37 +2,28 @@
 ---
 
 
-## 英国建议其公民离开俄罗斯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2113634/)
+## NewSGman┃台湾大停电 （ 3月3日）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2113789/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏   
+撰稿：东京樱花团/NewSGman
 
-翻译/编辑：小红帽
+3月3日上午台北市、新北市及苗栗台中、台南、高雄等多个县市纷传出停电情況。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/British_Airways_A380-800_F-WWSC_1-scaled.jpg)图片来源：https://simple.wikipedia.org/wiki/British\_Airways
+全台湾无预警大停电交通设施无法使用多人被困电梯。
 
+银行作业受阻。
 
-根据RT新闻3月5日报道，伦敦告诉英国国民考虑离开俄罗斯，因为俄罗斯在决定入侵乌克兰后受到严厉制裁。
+总统府表示因高雄兴达电厂开关场事故导致南部地区电力供需失衡。
 
-英国外交部周六在其网站上表示：“如果您在俄罗斯的逗留是非必要的，我们强烈建议您考虑通过其他商业路线离开。”
+总统府发言人张惇涵表示，蔡总统已指示会尽速厘清完整事故原因于最短时间向各界报告，并尽速恢复供电。
 
-外交部还建议英国公民不要前往俄罗斯，理由是“缺乏返回英国的可用航班选择，以及俄罗斯经济的波动性增加。随着国际制裁对卢布造成沉重打击，英国国民应该意识到，他们持有的俄罗斯货币在未来几天可能会贬值。”
+台电紧急召开供电状况说明新闻发布会。
 
-那些决定离开俄罗斯的人应该使用主要通过中东和土耳其的中转航班返回英国，因为欧洲已对俄罗斯飞机关闭其领空。
+盖特链接：[https://gettr.com/post/pxvy4h5557](https://gettr.com/post/pxvy4h5557)
 
-俄罗斯上周四向乌克兰派遣部队，称这是防止顿涅茨克和卢甘斯克共和国的俄语人口遭受“种族灭绝”的唯一方法。这两个共和国于2014年脱离基辅，引发了一场漫长的冲突。
-
-新闻链接：[UK advises its citizens to get out of Russia](https://www.rt.com/news/551307-uk-travel-ukraine-sanctions/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
