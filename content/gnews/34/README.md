@@ -2,12 +2,30 @@
 ---
 
 
-## 俄罗斯对乌克兰哈尔科夫无差别轰炸，包括居民区和学校
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2113086/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月5日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2113176/)
 
-02/28/2022 随着俄罗斯继续推进，乌克兰第二大城市哈尔科夫的人道主义危机正在恶化。袭击发生之际，国际刑事法院正在就涉嫌战争罪对俄罗斯展开调查。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1-1.png)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/pyf9rc53d8](https://gettr.com/post/pyf9rc53d8)
+访谈：[https://gettr.com/post/pyf2befaf2](https://gettr.com/post/pyf2befaf2)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-4.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

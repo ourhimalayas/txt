@@ -2,28 +2,29 @@
 ---
 
 
-## NewSGman┃台湾大停电 （ 3月3日）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2113789/)
+## 秘翻在线：美乌总统再通电话共商对乌支援及对俄持续制裁
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2114002/)
 
-撰稿：东京樱花团/NewSGman
+**撰稿：青衣**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/22-3.jpg)
+乌克兰总统泽伦斯基3月6日再次与美国总统拜登通电话，共同商议对乌克兰的安全与财政支援，以及对俄罗斯的持续制裁。德国智库专家表示，大规模制裁势必重创俄罗斯经济。
 
-3月3日上午台北市、新北市及苗栗台中、台南、高雄等多个县市纷传出停电情況。
+据《阿波罗新闻网》3月6日报道，乌克兰总统泽伦斯基（Volodymyr Zelensky）发推文称，他已与美国总统再次对谈，谈话内容包括安全问题、对乌克兰的财政支援，以及继续向俄罗斯实施制裁。
 
-全台湾无预警大停电交通设施无法使用多人被困电梯。
+白宫也证实双方领导人再次通了电话，两人对谈了约30分钟。
 
-银行作业受阻。
+白宫表示，拜登与泽伦斯基通电话时说，很高兴看到Visa和万事达卡（Mastercard）等国际信用卡公司暂停在俄罗斯业务的决定。拜登总统在电话中还表示，他的政府正在增加对乌克兰安全、人道主义和经济援助，并与国会密切合作，以确保获取额外资金。
 
-总统府表示因高雄兴达电厂开关场事故导致南部地区电力供需失衡。
+对于欧美国家向俄罗斯祭出史无前例的经济和金融制裁，德国智库学术暨政治基金会（Stiftung Wissenschaft und Politik）东欧专家克鲁格（Janis Kluge）认为，如此大规模的制裁措施势必会重创俄国经济，俄民间不满情绪会继续升高，进而进一步动摇普京的领导地位。
 
-总统府发言人张惇涵表示，蔡总统已指示会尽速厘清完整事故原因于最短时间向各界报告，并尽速恢复供电。
+据克鲁格预计，西方接下来可能将会对俄国实施石油禁运。
 
-台电紧急召开供电状况说明新闻发布会。
+**新闻链接：**
 
-盖特链接：[https://gettr.com/post/pxvy4h5557](https://gettr.com/post/pxvy4h5557)
+[https://m.soundofhope.org/post/600202](https://m.soundofhope.org/post/600202)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+[https://www.aboluowang.com/2022/0306/1717134.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2022/0306/1717134.html?utm_source=dlvr.it&amp;utm_medium=twitter)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

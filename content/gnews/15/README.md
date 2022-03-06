@@ -2,29 +2,39 @@
 ---
 
 
-## 秘翻在线：美乌总统再通电话共商对乌支援及对俄持续制裁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2114002/)
+## 挑战在即。美“人民车队”已抵达华盛顿之前最后一站：马里兰
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2114217/)
 
-**撰稿：青衣**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/22-3.jpg)
-乌克兰总统泽伦斯基3月6日再次与美国总统拜登通电话，共同商议对乌克兰的安全与财政支援，以及对俄罗斯的持续制裁。德国智库专家表示，大规模制裁势必重创俄罗斯经济。
+作者： 香草山农场教育部—霍比特人
 
-据《阿波罗新闻网》3月6日报道，乌克兰总统泽伦斯基（Volodymyr Zelensky）发推文称，他已与美国总统再次对谈，谈话内容包括安全问题、对乌克兰的财政支援，以及继续向俄罗斯实施制裁。
+据《雅虎新闻》和《每日邮报》报道，美“人民车队”即将给美国警方带来挑战。该车队几天前离开南加州前往华盛顿特区。他们效仿加拿大“自由车队”(Freedom Convoy)的模式，后者在渥太华市中心封锁了三周，以抗议加拿大的强制疫苗政策。
 
-白宫也证实双方领导人再次通了电话，两人对谈了约30分钟。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220306b.png)
 
-白宫表示，拜登与泽伦斯基通电话时说，很高兴看到Visa和万事达卡（Mastercard）等国际信用卡公司暂停在俄罗斯业务的决定。拜登总统在电话中还表示，他的政府正在增加对乌克兰安全、人道主义和经济援助，并与国会密切合作，以确保获取额外资金。
+“我们是美利坚合众国的人民，我们在自由的旗帜下站在一起——自由是把我们团结在一起的一件事，”人民车队网站上的一条信息说。“自由流淌在我们的血管里。”
 
-对于欧美国家向俄罗斯祭出史无前例的经济和金融制裁，德国智库学术暨政治基金会（Stiftung Wissenschaft und Politik）东欧专家克鲁格（Janis Kluge）认为，如此大规模的制裁措施势必会重创俄国经济，俄民间不满情绪会继续升高，进而进一步动摇普京的领导地位。
+警方一直在与这些组织的组织者联系。随着车队在全国各地的行进，参与者的数量不断变化中。车队拟于国情咨文演讲日抵达华盛顿。弗吉尼亚州警方正在监控弗吉尼亚州北部“可能影响交通的商业和客运车辆”。华盛顿大都会地区运输管理局周五表示，由于卡车车队的原因，本周末的地铁乘客可能会遭遇严重的延误和中断。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220306a.png)
+另外，华盛顿特区警方也不得不和美国特勤局和国会警察一起给星期二的国情咨文演讲提供安全保障，持续保持警戒。 随着乌克兰战事逐渐明朗化，和国情咨文演讲日正在临近，“人民车队”的进展越发令人关注。
 
-据克鲁格预计，西方接下来可能将会对俄国实施石油禁运。
+参考链接：
 
-**新闻链接：**
+[https://www.youtube.com/watch?v=JNhe2kQ4Qs8](https://www.youtube.com/watch?v=JNhe2kQ4Qs8)[https://news.yahoo.com/truck-convoy-threatens-clog-dc-134415877.html?fr=sycsrp\_catchall](https://news.yahoo.com/truck-convoy-threatens-clog-dc-134415877.html?fr=sycsrp_catchall)
 
-[https://m.soundofhope.org/post/600202](https://m.soundofhope.org/post/600202)
 
-[https://www.aboluowang.com/2022/0306/1717134.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2022/0306/1717134.html?utm_source=dlvr.it&amp;utm_medium=twitter)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-5.png)
+
+编辑：霍比特人
+校正/发稿：霍比特人
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
