@@ -2,35 +2,27 @@
 ---
 
 
-## 有声|乌克兰网球明星谢尔吉·斯塔霍夫斯基加入国家预备役部队抵抗俄罗斯入侵
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2116496/)
+## 新中国联邦在乌克兰人道救援行动上做到的四个真
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2116517/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-乌克兰网球明星谢尔吉·斯塔霍夫斯基（Sergiy Stakhovsky）放下网球拍拿起步枪，加入乌克兰的预备役部队，尽自己的一份力量抵抗俄罗斯入侵者。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Alexander-Hassenstein_Getty-Images-640x335-1.jpg)[图源网络](https://www.breitbart.com/sports/2022/03/01/ukraine-tennis-star-sergiy-stakhovsky-drops-racket-picks-up-rifle-to-repel-russian-invaders/)
-36岁的谢尔吉·斯塔霍夫斯基是四次 ATP 巡回赛冠军得主，他目前已经暂停了自己的运动生涯，回到家乡为他的人民而战。斯塔霍夫斯基在社交媒上体鼓励他的乌克兰同胞反抗入侵者。他在Instagram上用母语写道”我为我的总统感到自豪，我为每一个乌克兰人感到自豪。我为自己是乌克兰人而感到自豪。相信我们的军队…相信我们的无敌。荣耀归乌克兰”。
+意大利罗马达芬奇农场： ZQ
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0417.jpg)
 
 
+1. 真正的唯一一个进入乌克兰救人的中国团队
+2. 真正出自人道救助，没有政治立场，没有金钱利益的救援，不但援救中国人还救美国人、乌克兰人等多国弱小群体
+3. 真正顺利救出了中国人和外国人的一个团队
+4. 真正报出在乌克兰的中国人不低于3万人，而不是共产党所宣传的2万人，并且还有很多中国工人被遗留在战区，他们当中很多人甚至没有通讯能力。
 
-文字版原文：[乌克兰网球明星谢尔吉·斯塔霍夫斯基加入国家预备役部队抵抗俄罗斯入侵](https://gnews.org/zh-hans/2110368/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+新中国联邦人—-一个没有战争、追求爱好和平的族类。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+截选自2022年3月6日文贵大直播
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[https://gettr.com/post/pyhtnya292](https://gettr.com/post/pyhtnya292)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑发表： Shuizhuyu
 
  
 
