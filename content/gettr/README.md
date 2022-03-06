@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/6/2022 10:02 PM (UTC)`
+
+3/6/2022 Miles Guo: The US court ruling requiring FDA to release the documents related to the Pfizer COVID vaccine is something that the U.S. government can't even stop. The New Federal State of China has taught us what it means to have strength. Only with media platforms and wealth， we will be able to reveal and spread the truth!<br/><br/>3/6/2022 文贵直播：美国法院要求FDA公布辉瑞疫苗文件的判决是美国政府都无法阻挡的；新中国联邦让我们知道什么叫实力，要有媒体和财富才能有真相！<br/>
+![img](https://media.gettr.com/group24/getter/2022/03/06/22/8fecb7e2-b745-cc19-9640-7db733baf8c1/out.jpg)
+
+---
+
+`@miles 3/6/2022 9:56 PM (UTC)`
+
+3/06/2022 Miles Guo: Why did the US court not make a ruling requiring Pfizer to release the documents related to the COVID vaccines? Why is this not covered in the English-speaking world? We don't know the real stories behind many events.<br/><br/>3/06/2022 文贵直播：为什么美国法院直到现在才做出判决要求辉瑞公布有关疫苗的文件？为什么这件事在英文世界没人报道呢？很多事件背后的真实故事是我们不知道的<br/>
+![img](https://media.gettr.com/group47/getter/2022/03/06/21/909b2c3a-8a53-5800-b922-d585e5249ffc/out.jpg)
+
+---
+
 `@miles 3/6/2022 8:20 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-最前线跟踪报道
@@ -140,20 +154,6 @@ Children of the New Federal State of China pray for the peace of Ukrainian Peopl
 
 二月二龙抬头，太和殿的门倒了，啥兆头啊？
 ![img](https://media.gettr.com/group21/gvision/2022/03/05/04/879ca73a-b30d-076e-bba0-106fcc0c7c32/out.jpg)
-
----
-
-`@miles 3/5/2022 2:20 AM (UTC)`
-
-【UKRAINEHELP-003】新中国联邦和法治基金关于紧急救援乌克兰的通知<br/>【中文】 https://gnews.org/zh-hans/2104385/<br/><br/>【UKRAINEHELP-003】Announcement of New Federal State of China & Rule of Law Foundation on Emergency Rescue of Ukraine<br/>【英语 English】 https://gnews.org/2104541/<br/><br/>【UKRAINEHELP-003】Оголошення про створення нової Федеральної Держави Китаю та Фонду верховенства права з надзвичайних ситуацій порятунку України<br/>【乌克兰语 українська мова】 <br/>https://gnews.org/2104387/<br/><br/>【UKRAINEHELP-003】Уведомление по оказанию чрезвычайной помощи Новой Китайской Федерации и Фонда «Верховенство закона»<br/>【俄语 русский】 https://gnews.org/2106390/<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group35/getter/2022/03/05/02/5663a403-cc9f-2556-0a29-3b92ca18e7e9/7e43900bf356d2dc7c6f0db253aede2a.jpg)
-
----
-
-`@miles 3/5/2022 1:59 AM (UTC)`
-
-3月4号：请所有被困乌克兰的中国同胞，马上和能救你的这个信息和电话联系，你们会得到像亲生父母．兄弟姐妹一样的照顾．没有任何条件，不许付任何费用也不需要提供任何个人所谓的你认为宝贵的信息！没有比生命的宝贵了，不要再被共产党欺骗了……
-![img](https://media.gettr.com/group16/getter/2022/03/05/01/2a6bf64c-3b3b-83a9-daab-5addba85a3a4/d34239b691a50617e3c3c3b637dc7b16.jpg)
 
 ---
 

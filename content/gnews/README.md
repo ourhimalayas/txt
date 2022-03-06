@@ -66,14 +66,14 @@
 ### [喜悦辣评——第02期](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|中共在乌克兰问题上的历史性错误](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [大卫、正义小Sara在乌克兰的救援实况](/content/gnews/19/README.md)
+### [大卫、正义小Sara在乌克兰的救援实况](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [战斗持续，乌克兰平民疏散工作停止 俄宣布在两市暂时停火](/content/gnews/20/README.md)
+### [战斗持续，乌克兰平民疏散工作停止 俄宣布在两市暂时停火](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
+
+### [【G时新闻】北京残奥会主席开幕式反战演说被中共官媒禁音](/content/gnews/20/README.md)
+ ` G-时新闻`
 
 ### [【秘翻在线】由于接种需求下降，美国有数百万剂新冠疫苗被丢弃](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
