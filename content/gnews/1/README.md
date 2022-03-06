@@ -2,26 +2,32 @@
 ---
 
 
-## 秘翻在线：俄军攻击民宅造成无辜的乌克兰平民死伤惨重
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2115146/)
+## 普京：若乌克兰不放弃抵抗 将失去国家地位
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2115217/)
 
-撰稿：文贺JP
-![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-8.jpg)图片来源：卫报
-乌克兰紧急救援队报告称袭击造成奧夫魯赫市15户民宅被毁。
+翻译：Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image1.jpg)
+图片来源：谷歌图片
 
-从当地政府了解到，奥夫鲁赫市以南小镇克罗斯登也遭遇袭击，因火箭弹造成1人死亡、2人负伤、10户民宅被毁、1栋房屋被烧毁。紧急救援队从一片废墟的地下室中救出5名儿童。
+《零对冲》2022 年 3 月 6 日，星期日 – 上午 04:20
 
-笔者认为针对平民发动袭击不是军事冲突，而是侵略战争。
+正如我们之前详述的那样，俄罗斯总统普京在周六上午的讲话中对乌克兰战争提供了内容广泛的最新进展。描绘了一幅积极的画面，大概意思就是“一切都按照计划进行”，同时抓住机会表示若任何国家试图在乌克兰设立禁飞区，都将导致俄罗斯立即对该国宣战。
 
+据《纽约时报》报道，普京同时还警告乌克兰领导人，说如果“他们不停止他们正在做的事情”，将可能会失去“国家地位”。 这是普京第一次以如此直率和详细的方式表达克里姆林宫解决基辅问题的最终目标——而这是在西方对其是否已将乌併入俄罗斯联邦摆上桌面进行了很多猜测之后。
 
+普京在莫斯科表示：“现任领导层需要明白，如果他们继续做他们正在做的事情，他们就会冒着未来乌克兰失去国家地位的风险。”  “如果发生这种情况，他们将不得不为此受到指责。”
 
+早在上个月，就在全面入侵乌克兰前几天，普京签署了一项法令，正式承认乌克兰东部分离的顿涅茨克和卢甘斯克共和国独立。 自 2 月 24 日发动入侵以来，一些权威人士认为，这场战争最终可能会以分裂的乌克兰告终，沿着以利沃夫为中心的亲俄东部和亲西半部的路线。
 
+另一个令人大跌眼镜的言论集中在他上周对来自欧盟和美国的大量制裁的讲话上，包括对普京本人的制裁。他直言不讳地称制裁“等同于宣战”——这是俄罗斯领导人第一次用这样的言辞来谈论制裁问题，显示了用辞上的明显升级。 福克斯是这样报道的：
 
-信息来源：[https://www.theguardian.com/world/live/2022/mar/06/russia-ukraine-war-biden-and-zelenskiy-discuss-more-support-for-ukraine-as-visa-mastercard-pull-out-of-russia-live](https://www.theguardian.com/world/live/2022/mar/06/russia-ukraine-war-biden-and-zelenskiy-discuss-more-support-for-ukraine-as-visa-mastercard-pull-out-of-russia-live)
+普京承诺“试图这样做的结果将不仅给欧洲，同时也给全世界带来灾难性后果”，并称西方对俄罗斯的制裁“类似于宣战”。
 
+他说：“我们的提议已经摆在了与基辅的谈判桌上，希望他们会对此做出积极回应。”
 
+在他发表讲话后的几个小时内，乌克兰政府已确认准备在 3 月 7 日星期一进入第三轮停火谈判。在周四的第二次会议上，就地方停火达成了一致，以促进平民从交战城市撤离 . 例如在马里乌波尔（Mariupol），据报道停火持续了五个小时后又爆发了新的炮击。
 
-校正: Eric Kim
+原文链接：[https://www.zerohedge.com/geopolitical/putin-threatens-ukraine-loss-statehood](https://www.zerohedge.com/geopolitical/putin-threatens-ukraine-loss-statehood)
 
  
 
