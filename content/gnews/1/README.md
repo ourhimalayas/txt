@@ -2,20 +2,42 @@
 ---
 
 
-## 车神塞纳迈凯伦座驾通过喜支付交易，喜交所进入欧洲皇室最高信用
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2117030/)
+## 俄罗斯宣布在全国范围内禁止使用 Facebook
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2117095/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-3月6日，郭文贵先生于Gettr大直播中透露，由车神埃尔顿·塞纳（Ayrton Senna）驾驶过的备受追捧的F1赛车通过HPay App（喜支付应用）交易的意义重大，并表示，塞纳赛车的交易奠定Himalaya Exchange（喜交所）、HCoin（喜币）、HDO（喜美元）和HPay（喜支付）直接进入欧洲皇室的最高信用。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture111212.jpg)图片来源forbes网页截图
-塞纳的赛车由McLaren（迈凯伦）公司拥有，继劳斯莱斯、路虎等被德国、印度拿下变成纯工业产品后，McLaren（迈凯伦）成为英国汽车业的唯一一个属于英伦文化的汽车极品。
+#### 翻译/编辑：Ltitle Lamp
 
-塞纳是富有的、受过高等教育的巴西人，在爱情、家庭、事业、赛车的方面，体现出巴西南美风情与欧洲或北美文化的不同。最擅长在雨中比赛的他创造了一次次的传奇，又一次次与死神擦肩而过，把赛车开到出神入化的状态。可以说，这辆车就是塞纳的“灵魂之车”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-48.png)
 
-这辆标志性的迈凯伦F1赛车是通过HPay（喜支付）的点到点之间的转账，用稳定币HDO（喜美元）来完成交易。而且，此车的价值超过500万美元。郭先生再次自信地强调，HCoin（喜币）的价值一定超过比特币，而且HCoin（喜币）是正义的代表。Himalaya Exchange（喜交所）从诞生之日即有最严谨、最合法的KYC开户制度，可以杜绝任何偷税的脏钱和洗钱的犯罪，坚守西方认同的正义，这是我们最根本的原则。
 
-塞纳赛车的交易，奠定Himalaya Exchange（喜交所）、HCoin（喜币）、HDO（喜美元）和HPay（喜支付）直接进入欧洲皇室的最高信用，皇室不是奢华，皇室是信用的象征。相信上帝会给喜联储以及G系列力量，我们也将见证更多的传奇。
+Western Journal报导，随着对乌克兰的持续入侵，俄罗斯宣布在全国范围内禁止使用 Facebook。
+
+据 CNBC 报道，俄罗斯媒体监管机构周五宣布了禁令，并声称该平台试图让俄罗斯官方媒体保持沉默。Meta 全球事务总裁尼克克莱格表示，俄罗斯当局要求该公司停止事实核查并在官方媒体的报道上贴上警告标签，但 Meta 拒绝了。
+
+据《卫报》报道，Meta 平台 Facebook 和 Instagram 本周将Russia Today 和 Sputnik都从欧盟用户的提要中删除。
+
+周五，这些平台还取消了在英国出现的网点。这可能是压垮俄罗斯当局的最后一根稻草。俄罗斯最终完全禁止其居民访问该平台。
+
+克莱格写道：“很快，数以百万计的普通俄罗斯人将发现自己无法获得可靠的信息，被剥夺了与家人和朋友联系的日常方式，并且无法畅所欲言。”
+
+“我们将继续尽一切努力恢复我们的服务，以便人们可以安全可靠地表达自己并组织采取行动。”
+
+据《纽约时报》记者迈克·艾萨克（Mike Isaac）称，截至周五，该禁令仅适用于 Facebook。它没有扩展到其他 Meta 平台 Instagram 和 Whatsapp，他说这些平台在该地区“比 Facebook 更受欢迎”。
+
+Facebook是致力于打击俄罗斯官方媒体的众多平台之一。据美国全国广播公司财经频道报道，谷歌和推特都已撤下在俄罗斯的广告，并表示将继续给官方媒体贴上（警告）标签。
+
+文章来源：[Russia Embraces Full Tyranny: Bans Major Social Media Platform](https://www.westernjournal.com/russia-embraces-full-tyranny-bans-major-social-media-platform/)
+
+发布：*wenly*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

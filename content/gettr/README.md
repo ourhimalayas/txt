@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/6/2022 11:32 PM (UTC)`
+
+新中国联邦法治基金乌克兰救援 飞飞秀特别节目 2020 0306
+![img](https://media.gettr.com/group43/origin/2022/03/06/23/ebcfdbff-f994-a691-16be-f6933c192040/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/6/2022 10:14 PM (UTC)`
 
 3/06/2022 Miles Guo: The Chinese people have been attacked all over the world recently. Asian fellow fighters, especially women, should be careful. It is so difficult to clean Chinese people out of the toxics sowed by the CCP. Some people are too deeply brainwashed by the CCP to be saved, and there is no need to worry if anyone would believe in you when you spread the truth about the COVID vaccines.<br/><br/>3/06/2022 文贵直播：最近华人在世界各地遭袭击，亚洲战友尤其是女性要小心；给中国人排出中共种下的毒太难了，有些人被中共洗脑太深是没法救的，传播疫苗真相也不用在乎对方信不信<br/>
@@ -145,13 +152,6 @@ Ukrainian American actively involved in this Ukrainian rescue operation of the N
 
 3月5号：尊敬的战友们好．是母亲给了我们的生命也影响了我们的一生……母亲也是国家和一个民族的未来的开始……！一个不懂得尊敬母亲的人和民主是不会有未来的，让我们一起到乌克兰拯救那些被战火<br/>威胁的母亲和孩子吧……
 ![img](https://media.gettr.com/group33/getter/2022/03/05/09/930f2c3e-4926-7923-4a79-54b15b6411d3/out.jpg)
-
----
-
-`@miles 3/5/2022 4:57 AM (UTC)`
-
-Children of the New Federal State of China pray for the peace of Ukrainian People. Let’s heal the world for our generations and generations. <br/>新中国联邦的小朋友们为乌克兰人民祈祷，希望他们早日脱离战火，祈求世界和平！
-![img](https://media.gettr.com/group14/origin/2022/03/05/04/57aa4591-4b8c-7e3c-4fb2-032075d14e1c/out.jpg)
 
 ---
 

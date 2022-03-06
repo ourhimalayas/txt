@@ -2,39 +2,40 @@
 ---
 
 
-## 有声|郭文贵先生将新中国联邦比作中国的乌克兰
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2116518/)
+## 波兰与乌克兰边境Hrebenne
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2116638/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-在3月2日的大直播中，郭文贵先生明确指出，新中国联邦将是中国的乌克兰。
+意大利罗马达芬奇农场：Shuizhuyu
 
-郭先生说，在中共配合普京造谣乌克兰总统泽连斯基出逃后，泽连斯基仅在社交平台上一次直播，就戳穿了中共和普京的谎言，并让俄罗斯陷入了塔西佗陷阱。俄罗斯污蔑乌克兰为纳粹主义，也使在二战时曾受到乌克兰庇护的犹太人感到不满。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-427.png)
-新中国联邦的爆料革命，正是以唯真不破的精神，一次次戳穿中共的谎言，让中共在塔西佗陷阱里越陷越深。再加上新中国联邦拥有盖特这个非常重要的社交媒体平台，能让更多的中国人以及世界知道真相，将唤醒更多人。
-
-最后郭先生提醒，不要在乎任何人对我们的评价，我们只需要在乎自己的行动。正如乌克兰危机开始前，全世界都表现出冷漠态度。但在戳穿谎言露出真相后，全世界的民意都倒向了乌克兰一样，新中国联邦亦将被世界认识，得到的支持正与日俱增。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-3.jpg)
 
 
+意大利农场的战友们， 第一时间就到达了救援前线， 波兰和乌克兰的边境城市Hrebenne。
 
-文字版原文：[郭文贵先生将新中国联邦比作中国的乌克兰](https://gnews.org/zh-hans/2111058/)
+现在给大家发来几张从前线发来的照片， 是意大利农场的阿娜随手拍下的现场照片。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+从照片上可以看到， 有很多的热心人在边境提供免费的食物。 还有建起了很多临时的接待点和帐篷。 边境的人们都尽自己的可能提供给难民一些帮助。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+这些难民都是九死一生从战火中逃出来的。 他们是不幸的，遇到了战争， 而他们也是幸运的， 他们得到救助， 他们到达了安全的边境。 至少他们没有了生命危险。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-1.jpg)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-2.jpg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-4.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-5.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-6.jpg)
+
+
+战争是残酷的，生死只在以秒计算的时间里。
+
+发表： Shuizhuyu
 
  
 

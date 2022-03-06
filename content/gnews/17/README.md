@@ -2,39 +2,43 @@
 ---
 
 
-## 有声|乌克兰战争改写了人类政治的本质
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2116538/)
+## 鼓吹性新闻就是宣传 解决方案新闻也是如此（3/4）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2116887/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月2日，郭文贵先生在大直播中指出，乌克兰战争改写了人类政治的本质。
+**翻译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip鼓吹性新闻就是宣传-解决方案新闻也是如此.png)图片来源：rwmalonemd.substack.com
+请阅读上篇：[鼓吹性新闻就是宣传 解决方案新闻也是如此（1/4）](https://gnews.org/zh-hans/2116755/)
+[鼓吹性新闻就是宣传 解决方案新闻也是如此（2/4）](https://gnews.org/zh-hans/2116857/)
 
-首先，泽连斯基作为乌克兰总统，在俄罗斯入侵乌克兰之际，没有选择逃离，而是勇敢地带领乌克兰人誓死保卫家园，面对强大的入侵者时，全民一心，顽强抵抗。从一个曾经的演员到总统，真正演绎了人类世界伟大领袖的精神。这也是让普京和习近平都难以接受的，因为普京和习近平作为两个超级大国的独裁领袖，与泽连斯基形成鲜明的对比。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-431.png)
-其次，媒体全程播报战况增加了战争的透明度。过去的战争，没有发达的媒体全程播报战况，导致民众对战况信息不能全面真实地掌握。但这次战争中，战争场面被摄像机全程拍摄，平面、立体、真实地展现在人类面前，让人类无差别地了解到实际战况。
+那么，谁教授**“**鼓吹性新闻**”**，谁资助这种教学？
 
-最后，在乌克兰战争中，人们可以自我表决支持哪一方。世界大多数人表示支持乌克兰，这不是被媒体控制的结果，而是人类根据战争的真实信息自行做出的表决。
+首先，让我们看看美国一流的新闻学院之一——哥伦比亚大学，他们如何看待“鼓吹性新闻”？ 在哥伦比亚大学，他们的一个项目自豪地宣布以下内容：
+
+**“**呼吁建立联盟：在记者和倡导者（鼓吹者）之间建立伙伴关系
+
+新闻业在全球范围内受到重创，有些人甚至预测全球南方，尤其是非洲的独立新闻业将终结。是时候看看什么可以幸存下来了。慈善资金将变得更加重要，捐助者将渴望扩大新闻和宣传团体之间的伙伴关系。通过这个项目，比尔和梅琳达盖茨基金会的媒体合作团队探索了这种合作的动力。该项目借鉴了多个案例研究，为基金会、非营利组织和媒体组织提供了最大化影响力、尊重共同契约的建议。*”*
+
+比尔和梅琳达·盖茨基金会在开发宣传新闻培训计划方面的合作伙伴，随着此类资金的扩大…… 简直难以置信。
+
+但现在有一种新的新闻“风格”已经成为一种时尚。这种鼓吹性新闻的子集，被称为“解决方案新闻”，比尔和梅琳达·盖茨基金会喜欢用这个词来描述其资助机制，以影响政府、公民和领导人。当然，鼓吹性新闻基本上是一种“更好、更友善”的宣传形式……对吧？ 你知道当人们称审查制度——是“取消文化”。因为取消文化听起来比审查制度“好听”得多……毕竟，Twitter、Linked-in 和 You Tube ，通过禁止人员和内容所做的一切都是为了“我们”的利益，对吧？
+
+说白了，这些现代媒体公司做的，其实是一种形式的焚书。请参阅 Ray Bradbury 的杰作 [Fahrenheit 451](https://docs.google.com/document/d/19RYtY-dvWJJy--I5yZtlqllRMmkOWLZSA_41DzGVzF0/edit#!) 了解更多信息。
+
+大型捐助者或赞助商正在向媒体公司提供资金，以通过“解决方案新闻”来偏见报道。显然，各国政府也在影响允许讨论的内容和方式。有关更多信息，请参阅我们之前关于“[Overton Window](https://rwmalonemd.substack.com/p/omicron-has-cracked-open-the-overton?s=w)”的子堆栈。这些赞助商可以是非政府组织，也可以是政府或全球非政府组织，例如扎克伯格-陈倡议、比尔和梅琳达盖茨基金会、联合国、世界卫生组织或世界经济基金会。
+
+这些团体寻求“公私”伙伴关系（如前所述，这基本上是贝尼托·墨索里尼（Benito Mussolini）定义为法西斯主义的另一种委婉说法）。他们通过鼓吹性新闻来寻求这些关系——通过宣传来影响公众舆论。有时他们甚至资助特定的调查。当这种情况发生时，谁会受到损害？显然，真相和诚信是直接的牺牲品。当然，这一切都是为了大多数人的更大利益。都是由提供资金的组织来定义的。
+
+**新闻来源**：[rwmalonemd.substack][Advocacy Journalism is Propaganda](https://rwmalonemd.substack.com/p/advocacy-journalism-is-propaganda?s=r)
+
+* * *
+
+***审核：文乐
+校对：花羽
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-3.jpeg)
 
 
-
-文字版原文：[乌克兰战争改写了人类政治的本质](https://gnews.org/zh-hans/2111068/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
