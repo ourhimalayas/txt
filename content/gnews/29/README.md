@@ -2,15 +2,15 @@
 ---
 
 
-## 辉瑞骇人疫苗数据曝光
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2115286/)
+## 制裁俄国 痛在中共 赢在喜币
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2115432/)
 
 文贵大直播20220306
 
-撰稿：莲心不染（扬帆）文徐（DC）
+撰稿：三票先生（DC）
 
 美工： 新宝（银河系）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-1.png)
 *发布：Theodosia*
 
  

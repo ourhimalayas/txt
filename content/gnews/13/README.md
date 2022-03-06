@@ -2,35 +2,39 @@
 ---
 
 
-## 有声|台湾完成从乌克兰的撤侨工作
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2116010/)
+## 布林肯警告中国：世界正在关注中国对俄乌战争的反应
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2116143/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+撰稿：小湫
+
+美国国务卿布林肯星期六对中国外交部长王毅说，世界正在关注中国和其他国家对俄罗斯入侵乌克兰的态度。  这次电话会议主题是讨论美国国务院所说的莫斯科对乌克兰发动的有预谋、无端和不公正的战争。
 
 
-当地时间3月4日，据台湾外交部发布的新闻稿显示，台湾第三辆从乌克兰撤侨的专车已经安全抵波兰，完成了阶段性地从乌克兰撤侨的任务。
+![此图像的alt属性为空；文件名为Secretary-of-State-Antony-Blinken-Poland-Ukraine-Refugees.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/Secretary-of-State-Antony-Blinken-Poland-Ukraine-Refugees.jpg)
+图片来自网络
 
-外交部表示，当天晚上共有八名台侨和13位外籍配偶搭乘了台湾的撤侨专车抵达波兰，加上早先的两趟撤侨车次，台湾共计从乌克兰撤出了55位台侨及其外籍家人。
+美国国务院发言人内德·普莱斯(Ned Price)在一份声明中说:“国务卿指出，全世界都在关注哪个国家支持自由和主权的基本原则。”
 
-外交部也指出，在没有正式外交关系的情况下，台湾外交部及相关经贸单位派驻在俄罗斯、乌克兰、波兰和斯洛伐克等地的工作人员通力合作，再加上乌克兰当地政府的支持，从而使得台湾顺利完成了救援台侨的任务。
+布林肯强调，世界正在一致行动，反对俄罗斯的侵略，确保莫斯科将付出高昂的代价。
 
-据悉，台湾外交部除了对各国政府的协助表示感谢外，还将继续对乌克兰进行人道支援。
+布林肯周六还与波兰外长兹比格涅夫·劳(Zbigniew Rau)就两国合作帮助其共同盟友乌克兰进行了交谈。 国务卿还参观了波兰的一个难民设施。
 
-文字版原文：[台湾完成从乌克兰的撤侨工作](https://gnews.org/zh-hans/2110975/)
 
-音频处理：Fei797
-发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GettyImages-1234277842.jpg)
+图片来自网络
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+一名高级国防官员周四批评中国在俄罗斯军队发动致命导弹袭击一周多后对乌克兰战争保持沉默。尽管中国一再声称尊重一个国家的主权，但中国政府拒绝制裁或谴责俄罗斯的入侵。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+周三，在联合国大会通过一项谴责俄罗斯总统普京入侵俄罗斯并要求他立即撤军的决议时，中国投了弃权票，美国在内的其他141个国家投了同意票。
+
+在181个参加投票的国家中，只有5个国家——俄罗斯、白俄罗斯、厄立特里亚、北韩和叙利亚——反对该决议，35个国家弃权，其中包括中国。
+
+参考信息：
+
+Blinken tells China ‘world is watching’ response to Russia-Ukraine war
+
+![](https://lh6.googleusercontent.com/w8LMlCAeYCCPuKxveGdvcyeqg1Dd6HHwfVuUxJ34hpaMbTL0LD8zVPo5ACa3FuktSvFOIcmRQ-dNekv9ZFiBBUkbYOsSDApxh1ol6EeU7ac8c05cmsznH-u-3PJcLeMP0sErzQ3W)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

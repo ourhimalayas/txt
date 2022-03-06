@@ -2,43 +2,38 @@
 ---
 
 
-## 乌克兰所继承的前苏联军事遗产 5-尼特卡海军飞行员训练基地
-` 军情启示录` [轉載自GNews](https://gnews.org/zh-hans/2115913/)
+## 1958年台海金门炮战
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2115956/)
 
-发布: AWAC （新西兰伊甸农场）
+作者：纽约香草山 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+金门炮战，台湾称八二三炮战，又称第二次台湾海峡危机。时间从1958年到1979年，地点在中国东南沿岸与金门、马祖等岛屿。中共军队和中华民国国军双方以隔海炮击为主要军事行动的系列战役总称，故称金门炮战。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-06-上午10.57.52.png)
+1953年10月，中共在朝鲜停战后，立即开始制定进攻金门准备工作计划。到1958年，福建铁路、公路、军用机场相继修建完成，中共正式组建福建前线指挥部准备炮击金门。1958年8月，中华民国总统蒋介石亲自巡视金马前线。加之国际形势发生巨变，台海局势骤然紧张，台、澎、金、马进入紧急备战状态。
 
-作者: AWAC （新西兰伊甸农场）
+1958年8月23日， 中共军队突然炮击金门，一日数万发炮弹倾泻到岛上，造成四千名国军将士阵亡。而国军也迅速调整进行还击，并有效遏制中共炮火。1958年8月23日到10月5日，战况最为激烈。初期中共军队猛烈的炮火让国军猝不及防，但随着炮战持续，国军逐渐恢复战斗力，双方战事处于对峙状态，国军成功守卫住金马地区。之后中共军队维持单打双不打的炮击模式，直到1979年1月1日中美建交，中共才正式宣布停止炮击。
 
-前苏联的航空母舰舰载机起降训练中心也在乌克兰境内, 这座位于克里米亚，名为尼特卡的海军飞行员训练基地, 是前苏联唯一一座可以为航母舰载机飞行员提供全面陆上模拟训练的机场。 苏联解体后该基地划归乌克兰管辖。一段时间内俄罗斯曾租用该基地培训自己的飞行员。尼特卡训练基地内设有仿真滑跃甲板，着陆阻拦索，光学着舰引导装置，模拟航母甲板停机坪，等仿真训练设施，一切都是按照前苏联库兹涅佐夫级航母以及后来的乌里扬诺夫斯克級航空母舰的布局来进行仿真训练。该训练中心的钢制飞行甲板甚至还可以在液压装置的帮助下模拟航母船身摇摆，最大限度地使陆地训练贴近于海上实况。中共国在购买瓦良格号航空母舰后曾一度租用尼特卡航母起降训练中心训练其飞行员, 引发了俄罗斯的不满。此外，来自印度的舰载机飞行员也在这个基地进行训练。中共国在辽宁省境内也仿造尼特卡训练基地建立了自己的航母飞行员培训中心。
+金门炮战由中共军队首先发起。中共挑起金门炮战，企图通过攻击金马，威胁台湾本岛，企图有朝一日达成其所谓“祖国统一”的野心。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture8.jpg)
+参考链接：
+1）[金门炮战（维基百科）](https://zh.m.wikipedia.org/wiki/%E9%87%91%E9%97%A8%E7%82%AE%E6%88%98)
+2）[沈志華：金門炮戰 是中蘇關係破裂的原因？ ！](https://www.youtube.com/watch?v=l9z-PZQq2N4)
+3）[这场战役解放军全军覆没太惨烈！蒋介石听闻消息泪流满面，详解金门恩怨始末【经典人文地理】](https://www.youtube.com/watch?v=1PH_THtuG94)
 
-*尼特卡海军飞行员训练中心的模拟航母滑跃甲板*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture9.jpg)
+总编：Zion文恩
+编辑：静言
+审核：Jack Li文阳
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-*Su-33在尼特卡训练中心降落，注意模拟甲板上的阻拦索*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture10.jpg)
-
-*尼特卡海军飞行员训练中心鸟瞰图，注意红色跑道为钢制模拟航母甲板*
-
-这里有必要顺便提一下，当年前苏联解体的时候，苏霍伊设计局在乌克兰留下了一架Su-33的原型机T-10-K3半成品, T-10-K3是非常接近Su-33量产型的原型机。这架T-10-K3在2001年被中共买去并进行了逆向测绘【9】，这才有了现在的中共歼-15舰载机。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture11.png)
-
-*中共从乌克兰购得的T-10-K3原型机*
-
-**参考资料:**
-
-【9】[Shenyang J-15 Flying Shark](https://thaimilitaryandasianregion.blogspot.com/2017/05/shenyang-j-15-flying-shark.html)
-
-所有图片均来自网络
-
-**（未完持续）**
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

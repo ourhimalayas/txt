@@ -2,38 +2,25 @@
 ---
 
 
-## 布林肯警告中国：世界正在关注中国对俄乌战争的反应
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2116143/)
+## 视频|新中国联邦在乌克兰租用大巴救人
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2116187/)
 
-撰稿：小湫
+制作：香草山视频部
 
-美国国务卿布林肯星期六对中国外交部长王毅说，世界正在关注中国和其他国家对俄罗斯入侵乌克兰的态度。  这次电话会议主题是讨论美国国务院所说的莫斯科对乌克兰发动的有预谋、无端和不公正的战争。
+美东时间3月4日晚7点左右，新中国联邦法治基金乌克兰人道救援行动在盖特进行了一次大直播。在直播中我们看到，目前到达前线的队伍有英喜团队、纽伦堡团队，除去补给方面的救援，前线也现在开始租用大巴深入乌克兰内部去救人，截止到直播时间，已经救出一车被困人员。
 
+主持人战友向观众详细介绍了租用大巴救助人员的情况。
 
-![此图像的alt属性为空；文件名为Secretary-of-State-Antony-Blinken-Poland-Ukraine-Refugees.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/Secretary-of-State-Antony-Blinken-Poland-Ukraine-Refugees.jpg)
-图片来自网络
+发稿：Daxia
 
-美国国务院发言人内德·普莱斯(Ned Price)在一份声明中说:“国务卿指出，全世界都在关注哪个国家支持自由和主权的基本原则。”
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
-布林肯强调，世界正在一致行动，反对俄罗斯的侵略，确保莫斯科将付出高昂的代价。
-
-布林肯周六还与波兰外长兹比格涅夫·劳(Zbigniew Rau)就两国合作帮助其共同盟友乌克兰进行了交谈。 国务卿还参观了波兰的一个难民设施。
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GettyImages-1234277842.jpg)
-图片来自网络
-
-一名高级国防官员周四批评中国在俄罗斯军队发动致命导弹袭击一周多后对乌克兰战争保持沉默。尽管中国一再声称尊重一个国家的主权，但中国政府拒绝制裁或谴责俄罗斯的入侵。
-
-周三，在联合国大会通过一项谴责俄罗斯总统普京入侵俄罗斯并要求他立即撤军的决议时，中国投了弃权票，美国在内的其他141个国家投了同意票。
-
-在181个参加投票的国家中，只有5个国家——俄罗斯、白俄罗斯、厄立特里亚、北韩和叙利亚——反对该决议，35个国家弃权，其中包括中国。
-
-参考信息：
-
-Blinken tells China ‘world is watching’ response to Russia-Ukraine war
-
-![](https://lh6.googleusercontent.com/w8LMlCAeYCCPuKxveGdvcyeqg1Dd6HHwfVuUxJ34hpaMbTL0LD8zVPo5ACa3FuktSvFOIcmRQ-dNekv9ZFiBBUkbYOsSDApxh1ol6EeU7ac8c05cmsznH-u-3PJcLeMP0sErzQ3W)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

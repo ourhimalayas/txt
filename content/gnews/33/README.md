@@ -2,38 +2,30 @@
 ---
 
 
-## 通过喜马拉雅交易所成交迈凯轮标志性赛车
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2115196/)
+## 新中國聯邦救援拯救生命
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2115220/)
 
-撰稿：纽约香草山-宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
-据美国媒体3月4日报道，巴西传奇F1车神埃尔顿·塞纳的一辆迈凯伦1989MP4/5 F1赛车，以超过500万美元的价格，以等值喜美元HDO的形式，通过喜马拉雅支付应用程序——喜支付HPay——成功售出。此笔交易将极大提升数字货币的全球信誉度。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-517.png)
-塞纳被称为“有史以来最好的F1车手”，他所驾驶的汽车是世界上最有价值的收藏品之一。迈凯伦车队CEO扎克·布朗高度评价塞纳的这辆迈凯轮F1赛车，称其代表着赛车运动史上的特殊篇章。
+作者：香草山农场福音部—melisa
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022/3/2文贵大直播：共产党，你经常叫嚣，要虽远必诛，现在你的侨民远在战区，生命安全受到威胁，你赶紧去救啊！共产党，你这个王八蛋，先把你们的家人救走了，在大使馆，中共号称救了400人，实际是60个人，30几个是中共的间谍情报技术人员，必须弄走，怕泄密，其余都是官员的家属。未来我们会公布这些名单的，走着瞧！
 
-该报道称，这笔交易表明市场对喜交所，特别是喜支付HPay的信心不断增强。喜交所使企业和个人能够利用加密货币的崛起创造机会，其因无边界、包容性和安全性的特点，可以随时随地进行转账和交易，实现个人财务自主。该平台也是将加密货币交易所与原生交易币、稳定币，以及最近推出的支付应用程序整合到一个平台的首次尝试，成为目前市场上唯一一个完全整合加密货币生态系统的运营平台。
+看战友传播的情况包括防空洞的学生们，跟着起急啊！好事等着天上掉馅饼，坏事则福祸躲不过听天由命，老是把命交给别人交给党妈，有的还害怕被新中国联邦救了万一回国不好交代没法混。。。无语！你命都要没了还想啥呢？悲惨的孩子，父母心都快碎了！中共你们去哪了？和华人同在的强大祖国呢？中共为什么把中国同胞抛弃在乌克兰战场上？把命交给党妈，就是待宰的羔羊。
 
-喜支付HPay的升级应用程序正在开发中。在未来支付场景中，用户将能够在全球范围内通过喜支付HPay即时转账、安排自动付款，并在所有类型的支持数字货币支付的独家零售商店购物。该报道表示，尽管难以预测数字货币的未来，但不能否认，加密资产正在颠覆金融业。
+在战争中冒着生命危险的任何人道主义救援都值得尊重，这是新中国联邦在乌克兰战争中的紧急救援行动！如果您在战区需要任何的撤离帮助，请联系下面图片中的电话和邮箱，不分种族，不分政治立场，我们的目的只有一个：珍惜生命，拯救生命。
 
-新闻链接：[Purchase Of Iconic McLaren Vehicle Through Himalaya Exchange Raises Trust In Cryptocurrencies](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-05-115908.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+审核/编辑/发稿:qiutian（邱甜）
 
-编辑：Delilah小胖
-
-总编：飞虹
-
-审核：木木
-
-校正/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
