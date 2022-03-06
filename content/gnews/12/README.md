@@ -2,37 +2,31 @@
 ---
 
 
-## 有声|乌克兰的紧急救援仍在继续
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2112386/)
+## 普京急了放狠话：任何国家设乌克兰禁飞区 莫斯科视同参战
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2112463/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月2日，郭文贵先生在大直播中与战友们分享新中国联邦在乌克兰的一次紧急救援行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10.jpeg)
-郭先生透露，一个重要战友的家人之前被困在乌克兰，秘密搜救团队在确认了战友家人的位置后发现，救援地点随时可能会面临俄军的轰炸。随后，郭先生断然决定，让直升机将求助者救出，但由于人员超载，一名搜救人员被迫暂时停留救援地。战友家人被救出后，直升机返回原处带回了那位搜救人员。救援结束后两个小时，该地被俄军的炮火夷为平地。
+俄罗斯总统普京今天表示，任何国家寻求在乌克兰上空设置禁飞区，将会被莫斯科当局视为介入武装冲突。
 
-鉴于目前乌克兰局势日益恶化，新中国联邦救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-10.png)图片来源：President of Russia
 
+法新社报导，普丁在会晤俄罗斯航空员工期间表示：任何这方面的动作，将会被我们视为那个国家介入武装冲突。
 
+普京又说，设置禁飞区势必不只会为欧洲而且是全世界，带来巨大灾难性后果。
 
-文字版原文：[乌克兰的紧急救援仍在继续](https://gnews.org/zh-hans/2106566/)
+普丁也驳斥有关俄罗斯打算宣布国内戒严的谣传。他说：只有在面临外来侵略时才应该宣布戒严…我们目前并未遭遇那种情况，且我们希望不会。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+简评：普京狂妄自大穷兵黩武手上沾满了俄乌人民的鲜血，面对全世界正在联合起来制裁俄罗斯的反战浪潮，如今的普京真的有些急眼了，这是要恐吓全世界的节奏。据郭文贵爆料称，动用核武器的概率是非常渺茫的，可见普京手里的核武王牌基本是吓唬人的招牌，动核武简直是自掘坟墓。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+普京！悬崖勒马回头是岸为时未晚，自掘坟墓的事情傻子才会去做！放下屠刀，给俄乌人民一个交代，还世界一个和平吧！
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+新闻来源：[NewTalk新闻](https://newtalk.tw/news/view/2022-03-06/719315)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+撰稿/发布：一叶知秋
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

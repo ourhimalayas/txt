@@ -2,41 +2,22 @@
 ---
 
 
-## 有声|俄罗斯原油航线油轮运费飙升
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2112335/)
+## G-时新闻 俄罗斯违反停火协议，乌克兰暂停相关平民疏散行动
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2112378/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据国外媒体3月1日报道，俄罗斯入侵乌克兰后，波罗的海至欧洲航线上租用阿芙拉型油轮的运费飙升，由于担心对俄罗斯的石油制裁可能很快到来，一些油轮船东已经开始避开俄罗斯港口。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-298.png)图片来自：https://www.straitstimes.com
-根据伦敦波罗的海交易所3月2日的最新数据，TD17 波罗的海到康涅狄格英国石油油轮航线的成本又飙升了 35,000 美元/天，达到 210,000 美元/天。这是自2008年以来的最高水平。
+根据《国会山报》3月5日引述美联社的最新报道，乌克兰正在暂停东南部城市马里乌波尔（Mariupol）的平民疏散工作，乌克兰官员表示，俄罗斯违反了其宣布的关于马里乌波尔和东部城市沃尔诺瓦哈（Volnovakha）的停火协议。
 
-同时，TD6 黑海至地中海航线的船舶运费每天增加 5,000 美元至 158,000 美元，比不到一周前的价格增加了 9 倍！
+据美联社报道，乌克兰总统办公室副主任基里洛·季莫申科（Kyrylo Tymoshenko）说：“俄罗斯方面没有遵守停火协议，继续向马里乌波尔本身及其周边地区开火。与俄罗斯联邦的谈判正在进行中，内容涉及建立停火和确保安全的人道主义走廊。”
 
-俄罗斯2/3的原油出口要经过黑海和波罗的海港口的海运，大部分销往欧洲。
+原文链接: https://gnews.org/zh-hans/2111649/
 
-同时，虽然国际基准油价近期飙升，但由于担心采购俄罗斯石油受到制裁，俄罗斯乌拉尔原油的价格出现大跌。
+主播: yaolanqu（文广）
+
+视频制作: 文所未闻
+
+编辑上传: 春雨
 
 
-
-文字版原文：[俄罗斯原油航线油轮运费飙升](https://gnews.org/zh-hans/2100528/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

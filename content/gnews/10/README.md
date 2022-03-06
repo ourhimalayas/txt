@@ -2,13 +2,17 @@
 ---
 
 
-## 拜登总统表示美国与乌克兰站在一起
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2112419/)
+## 刺突蛋白导致COVID的症状和PCR测试的阳性
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2112489/)
 
-03/01/2022 拜登总统在国情咨文中表示，普京错误算计了局势，遇到了乌克兰从总统到人民的顽强反抗，美国与乌克兰站在一起
+作者:东京樱花团小视频组
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+校对：东京樱花团小视频组
 
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

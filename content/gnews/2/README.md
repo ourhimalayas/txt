@@ -2,41 +2,35 @@
 ---
 
 
-## 【每日聚焦】俄乌战事3月5日简要（二）
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2112522/)
+## 今日盖特大V推荐 — 大全新闻（Newsmax）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2112631/)
 
-**撰稿：蓝莲花农场 文斌**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-472.png)
+盖特链接：[https://gettr.com/user/newsmax](https://gettr.com/user/newsmax)
 
-1、Odesa方向：在Odesa东边的Ochakiv（奥恰基夫）一架俄军战机被击落，飞行员被俘虏。而就在Odesa，一架俄军直升机被击落。联想到再早一点时间有另一架俄罗斯飞机在Mykolaiv地区Shapaevka附近被击中，说明俄军对Odesa方向动作增多。
+大全新闻（Newsmax）自述：
 
-2、普京称任何试图在乌克兰上空设置禁飞区的都将被视为参与战争，并且称摧毁乌克兰军事基础设施的工作已基本完成（很可笑的宣传），还说对俄罗斯实施的制裁就像对俄宣战一样。
+现在在 DirecTV 349、Xfinity 1115、Dish 216、Optimum 102、Cox、Fios 615、Uverse 1220、Suddenlink 102、YouTube 上观看 Newsmax：http://nws.mx/tv
 
-3、乌克兰南部和东部多地民众抗议俄罗斯入侵，包括Kherson、Melitopol、扎波罗热、卢甘斯克州的Belokurakino（别洛库拉基诺市），这些地区都是俄罗斯语人群比较多或者传统的亲俄地区，但是现在都反对俄罗斯的入侵，说明这次俄军行动多么不得人心。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-474.png)图片来源：网络
 
-4、北约拒绝了乌克兰关于在乌克兰上空建立禁飞区的请求。
+大全新闻（Newsmax）简介：
 
-5、芬兰和瑞典继续就加入北约和多边防御措施进行高级别讨论，摩尔多瓦也火线递交加入北约的申请。
+大全新闻（Newsmax）是1998年由克里斯托弗·鲁迪（Christopher Ruddy）创立的美国保守派新闻媒体。该网站分为四个主要部分：Newsmax、Newsmax·健康、Newsmax·金融和Newsmax·世界，每个部分又分为不同的子部分。
 
-6、哈尔科夫：3小时前乌克兰总参谋部透露，在海军陆战队和警察的帮助下，150名儿童从哈尔科夫的一家孤儿院疏散出来。
+同时大全新闻（Newsmax）还经营名为Newsmax的印刷杂志以及有线新闻频道NewsmaxTV。2014年6月16日大全新闻（Newsmax）通过DirecTV和Dish Network向3500万卫星用户推出了有线电视频道。截至2019年5月，该网络已覆盖约7500万有线电视家庭。
 
-7、哈尔科夫：乌克兰防空部队在哈尔科夫南部的克拉马托尔斯克上空击落俄军巡航导弹。
+大全新闻（Newsmax）被《纽约时报》描述为美国政治中的“强大力量”，《福布斯》将其描述为“新闻强国”。
 
-8、切尔尼戈夫：俄军用威力巨大的无制导FAB-500炸弹轰炸切尔尼戈夫的居民区，消息来源于切尔尼戈夫州当局负责人。
+* * *
 
-9、苏梅：俄罗斯航空摧毁了燃料站并损坏了苏梅南部城市Lebedyn（列宾）的居民楼，Lebedyn至苏梅不到一小时车程，苏梅被困的同胞处境最为凶险和无助，各个方向几乎都有战斗，仅仅西南方向没有大规模交战。
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-10、乌克兰外长Dmytro Kuleba在乌波边境与美国国务卿Blinken会面，继续争取国际援助。同时乌克兰当局证实一名谈判代表团成员被杀，并指责莫斯科方面将其杀害。泽伦斯基总统敦促被俄罗斯占领的土地上的每一个乌克兰人起来战斗。
-
-11、乌克兰外交部称：过去一周，乌克兰政府已协助13万名外国人离开乌克兰，包括1万名印度人、2.5万名中国人和1.7万名土库曼学生。他们呼吁其他国家的外交使团更积极一起努力，以疏散其国民。
-
-12、乌克兰电信运营商Ukrtelecom出现故障，运营商报告说，由于战争影响，切尔尼戈夫、苏梅、赫尔松、文尼察、日托米尔、罗夫诺、沃伦、赫梅利尼察、利沃夫和特尔诺皮尔等多地的服务受到影响。幸运的是目前还可以提供服务，但是也会随时面临中断的风险，这将会给救援工作带来更大挑战，也会让被困同胞更加无助。
-
-校对：文斌 / 发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
