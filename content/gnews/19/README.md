@@ -2,37 +2,38 @@
 ---
 
 
-## 有声|俄罗斯目前需要中共人民币兑换以获得战争资金
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2116092/)
+## 布林肯警告中国：世界正在关注中国对俄乌战争的反应
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2116143/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-随着世界各国对俄罗斯的金融制裁，目前国际货币基金组织IMF认可的五种自由使用的货币中，美元、欧元、英镑、日元已经全部关闭了俄罗斯卢布兑换的途径，目前只剩下人民币可以作为唯一的兑换货币。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/bc-russia-needs-china-s-help-to-turn-its-imf-reserves-into-cash-for-war.png.jpeg)图源网络
-目前IMF资产约占俄罗斯6430亿美元储备的4%，美国和欧盟等国家采取了一切措施防止俄罗斯从IMF的储备中受益。基于中共目前的立场，如果中共央行与俄罗斯央行开展货币互换关系，对维持卢布的价值作用也是有限的，因为人民币是脱离于整个世界市场经济的货币，对自由贸易的作用影响力较小。如果俄罗斯通过特殊渠道收购其他四种已关闭兑换的货币，这些资金会被冻结。
+撰稿：小湫
 
-俄央行和中共央行均未对此回应。
+美国国务卿布林肯星期六对中国外交部长王毅说，世界正在关注中国和其他国家对俄罗斯入侵乌克兰的态度。  这次电话会议主题是讨论美国国务院所说的莫斯科对乌克兰发动的有预谋、无端和不公正的战争。
 
 
+![此图像的alt属性为空；文件名为Secretary-of-State-Antony-Blinken-Poland-Ukraine-Refugees.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/Secretary-of-State-Antony-Blinken-Poland-Ukraine-Refugees.jpg)
+图片来自网络
 
-文字版原文：[俄罗斯目前需要中共人民币兑换以获得战争资金](https://gnews.org/zh-hans/2110196/)
+美国国务院发言人内德·普莱斯(Ned Price)在一份声明中说:“国务卿指出，全世界都在关注哪个国家支持自由和主权的基本原则。”
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+布林肯强调，世界正在一致行动，反对俄罗斯的侵略，确保莫斯科将付出高昂的代价。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+布林肯周六还与波兰外长兹比格涅夫·劳(Zbigniew Rau)就两国合作帮助其共同盟友乌克兰进行了交谈。 国务卿还参观了波兰的一个难民设施。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GettyImages-1234277842.jpg)
+图片来自网络
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+一名高级国防官员周四批评中国在俄罗斯军队发动致命导弹袭击一周多后对乌克兰战争保持沉默。尽管中国一再声称尊重一个国家的主权，但中国政府拒绝制裁或谴责俄罗斯的入侵。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+周三，在联合国大会通过一项谴责俄罗斯总统普京入侵俄罗斯并要求他立即撤军的决议时，中国投了弃权票，美国在内的其他141个国家投了同意票。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+在181个参加投票的国家中，只有5个国家——俄罗斯、白俄罗斯、厄立特里亚、北韩和叙利亚——反对该决议，35个国家弃权，其中包括中国。
+
+参考信息：
+
+Blinken tells China ‘world is watching’ response to Russia-Ukraine war
+
+![](https://lh6.googleusercontent.com/w8LMlCAeYCCPuKxveGdvcyeqg1Dd6HHwfVuUxJ34hpaMbTL0LD8zVPo5ACa3FuktSvFOIcmRQ-dNekv9ZFiBBUkbYOsSDApxh1ol6EeU7ac8c05cmsznH-u-3PJcLeMP0sErzQ3W)
 
  
 
