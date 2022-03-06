@@ -2,25 +2,23 @@
 ---
 
 
-## 今日盖特大V推荐 — 大全新闻（Newsmax）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2112631/)
+## 今日盖特大V推荐 — 麦克·赫卡比 (Mike Huckabee)
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2112685/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-472.png)
-盖特链接：[https://gettr.com/user/newsmax](https://gettr.com/user/newsmax)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-475.png)
+盖特链接：[https://gettr.com/user/mikehuckabee](https://gettr.com/user/mikehuckabee)
 
-大全新闻（Newsmax）自述：
+麦克·赫卡比自述：
 
-现在在 DirecTV 349、Xfinity 1115、Dish 216、Optimum 102、Cox、Fios 615、Uverse 1220、Suddenlink 102、YouTube 上观看 Newsmax：http://nws.mx/tv
+麦克·赫卡比（Mike Huckabee）的GETTR帐户
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-474.png)图片来源：网络
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-477.png)图片来源：网络
 
-大全新闻（Newsmax）简介：
+麦克·赫卡比简介：
 
-大全新闻（Newsmax）是1998年由克里斯托弗·鲁迪（Christopher Ruddy）创立的美国保守派新闻媒体。该网站分为四个主要部分：Newsmax、Newsmax·健康、Newsmax·金融和Newsmax·世界，每个部分又分为不同的子部分。
+麦克·赫卡比Michael Dale Huckabee（出生于1955年8月24日）是美国政治家、浸信会牧师、政治评论员和贝斯手，1996年至2007年担任阿肯色州州长。 共和党2008年和2016年总统候选人提名。
 
-同时大全新闻（Newsmax）还经营名为Newsmax的印刷杂志以及有线新闻频道NewsmaxTV。2014年6月16日大全新闻（Newsmax）通过DirecTV和Dish Network向3500万卫星用户推出了有线电视频道。截至2019年5月，该网络已覆盖约7500万有线电视家庭。
-
-大全新闻（Newsmax）被《纽约时报》描述为美国政治中的“强大力量”，《福布斯》将其描述为“新闻强国”。
+2005年，麦克·赫卡比被评为《时代》杂志的前5位州长之一，《法治》杂志的年度公职人员之一，并被授予美国公共卫生协会年度杰出公共卫生立法者奖。2006年，他因其健康倡议而获得美国退休人员协会的影响奖。
 
 * * *
 
