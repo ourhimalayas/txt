@@ -2,48 +2,46 @@
 ---
 
 
-## 西喜时事新闻简报 — 台湾时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2115396/)
+## 乌克兰所继承的前苏联军事遗产 3-空军装备
+` 军情启示录` [轉載自GNews](https://gnews.org/zh-hans/2115461/)
 
-**编译：wenwu**
+发布: AWAC （新西兰伊甸农场）
 
-1.[台湾各地报告停电](https://www.taiwannews.com.tw/en/news/4460516)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip台湾停电.png)3月3日台湾新闻办公室停电。（台湾新闻图片）
-据《台湾英文新闻》2022年3月3日电，台湾各县市在周四（3日）早上9点开始报告不明原因的停电，台湾电力公司（台电）人员目前正在调查原因；台北的许多地区都受到影响，甚至在总统办公室前的仁爱路也出现了停电，而台湾中部和北部也出现了滚动停电。
+作者: AWAC （新西兰伊甸农场）
 
-2.[美国参议员提出制裁法案以阻止中共国入侵台湾](https://www.taiwannews.com.tw/en/news/4460686)
+**3 ****空军装备**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip美国国会大厦.png)美国国会大厦（美联社照片）
+根据现有数据【6】 截至2022年俄乌战争打响之时，乌克兰空军可以使用的主力制空装备基本上是从前苏联时期继承下来的16架Su-27和12架Mig-29，对地攻击机主要是12架Su-24和24架Su-25，以及数量不详的Mi-24武装直升机。2005年，乌克兰空军曾经有对其空军进行现代化升级的计划，其中还包括了从俄罗斯采购较新型的Su-27和Mig-29的方案，但从未实行过。根据瑞士科技公司 RUAG 在2015 年的未经证实的报告，乌克兰在2014的克里米亚冲突中损失了将近一半的空军力量【7】。其实，相比于其陈旧的苏式战斗机，乌克兰空军中最值得称赞的要数这次在俄乌战争中大显身手的土耳其制TB2无人机，这种无人机虽然没有隐身和电子对抗能力, 但面对指挥松散的俄军地面部队还是游刃有余。
 
-据《台湾英文新闻》2022年3月3日电，美国参议员（里克·斯科特、凯文·克莱默和约翰·肯尼迪）周三（2日）联合提出一项法案，如果中共国攻击台湾，将（30天内）对其实施金融制裁或在军事上改变台湾的治理地位；肯尼迪说，美国不能让中共国有机会攻击它在印太地区的一个重要伙伴。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture4.png)
 
-3.[中共国军舰4天内三次出没在台湾兰屿海域](https://www.taiwannews.com.tw/en/news/4460771)
+*俄乌战争中由于通讯中断而勿入罗马尼亚的乌克兰空军Su-27，
+该架飞机现已返回乌克兰*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip东部战区.png)微博，东部战区摄
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture5-2.jpg)
 
-据《台湾英文新闻》2022年3月3日电，周三（2日）晚间，在距离兰屿岛（Orchid Island）东南海岸50海里处发现了三艘中共国人民解放军海军（PLAN）军舰；次日上午8点，这些军舰在兰屿岛东南方向80海里处，被认为进入了巴什海峡（Bashi Channel）；周一（28日）晚上，三艘解放军军舰出现在距离兰屿岛海岸35海里的地方（四天内最接近该岛）。
+*乌克兰空军的TB-2无人机*
 
-4.[台湾总统为美国前国务卿蓬佩奥授勋](https://www.taiwannews.com.tw/en/news/4460814)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip蔡英文与彭佩奥.png)蔡英文总统向美国前国务卿蓬佩奥授予灿烂之星勋章，中央社照片
-据《台湾英文新闻》2022年3月3日电，蔡英文总统周四（3日）向美国前国务卿蓬佩奥授予灿烂之星（Order of Brilliant Star）勋章，以代表台湾人民感谢他为促进两国关系所做的贡献（取消了对两国政府官员之间接触的限制，并使武器销售正常化）。
+乌克兰的防空军装备有数量可观的俄制S300, SAM3, SAM 6, SAM17 BUK,以及道尔M1地对空导弹，本次俄乌战争开打后，欧盟国家已经陆续开始向乌克兰提供毒刺单兵肩扛式防空导弹。
 
-5.[台湾停电是由高雄电厂的故障引起的](https://www.taiwannews.com.tw/en/news/4460586)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip新塔电厂.png)新塔电厂开关场机组紧急停机时蒸汽逸出。（台电摄）
-据《台湾英文新闻》2022年3月3日电，周四（3日）上午9点，台南市和高雄市的整个地区开始停电，而该国中部和北部地区也出现了滚动停电；已知受影响的地区包括台北市、台中市、桃园市（台积电）、高雄市、基隆市、新北市、花莲市、基隆市和台南市；台电官员：位于高雄市永安区的新塔电厂的一个开关站触发自我保护机制，导致南部电网与电厂断开连结，这造成了1050万千瓦的瞬间损失。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture6-1.jpg)
 
-6.[滴滴在中共国民族主义网民的强烈反对下，重新进入俄罗斯市场](https://www.taiwannews.com.tw/en/news/4460994)
+*乌克兰的SAM17 BUK地对空导弹，
+注意其特有的数码迷彩涂装是区别俄乌装备的最直接特征*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip滴滴总部.png)滴滴北京总部（美联社照片）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture7.jpg)
 
-据《台湾英文新闻》2022年3月3日电，中共国叫车软件滴滴公司于2月21日宣布，它将从3月4日起[停止](https://qz.com/2136255/chinas-tech-giants-face-a-domestic-backlash-for-exiting-russia/)在俄罗斯市场的运营，这导致民族主义网民以[司马南](https://weibo.com/simanan)（微博账户有280万粉丝）为首对其展开批评：滴滴的行动如此之快，以至于领先于美国对俄罗斯的制裁；在他提出批评的几个小时内，滴滴在自己的微博账户上发布了一个更新，表示留在俄罗斯。
+*和俄军一样，乌克兰的防空主力也是S300导弹*
 
-* * *
 
-***审核：Aries的星
-校对：信心满满
-发布：信心满满***
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-3.jpeg)
+**参考资料:**
+【6】[Ukraine – Air Force Equipment](https://www.globalsecurity.org/military/world/ukraine/vps-equipment.htm)
+【7】[https://www.rferl.org/a/27281577.html](https://www.rferl.org/a/27281577.html)
+
+所有图片均来自网络
+
+**（未完持续）**
 
 
 

@@ -2,48 +2,43 @@
 ---
 
 
-## 乌克兰所继承的前苏联军事遗产 3-空军装备
-` 军情启示录` [轉載自GNews](https://gnews.org/zh-hans/2115461/)
+## 乌克兰所继承的前苏联军事遗产 4-安东诺夫设计局
+` 军情启示录` [轉載自GNews](https://gnews.org/zh-hans/2115703/)
 
 发布: AWAC （新西兰伊甸农场）
 
 作者: AWAC （新西兰伊甸农场）
 
-**3 ****空军装备**
+安东诺夫航空科学技术联合体, 原名安东诺夫设计局是一架总部位于基辅,专门从事超大型运输飞机研发的航空科研公司。现已改名为安东诺夫国营公司。在苏联时期安东诺夫主要承担军用运输机的开发，其中较有名的代表性产品有载重量150吨的An-124运输机，和载重量达到250吨的An-225巨型运输机。在80年代中期，前苏联因其航天计划的需求，需要有一种可以运输暴风雪航天飞机和大型火箭的大型运输机，安东诺夫设计局以An-124为设计基础，放大机身设计，增加发动机，修改尾翼布局，在短时间内拿出了An-225方案。An-225一共只生产 了一架，第二架原型机半途停工，目前只有一个半成品的机身。前苏联解体后，由于资金短缺，An-225一度被搁置废弃，2001年后由于An-124商业运行的成功，安东诺夫也利用西方先进航电将An-225升级并成功投入商业运行, 专门用于运载超大型工业设备和人道主义救援，并打破多项飞行记录。
 
-根据现有数据【6】 截至2022年俄乌战争打响之时，乌克兰空军可以使用的主力制空装备基本上是从前苏联时期继承下来的16架Su-27和12架Mig-29，对地攻击机主要是12架Su-24和24架Su-25，以及数量不详的Mi-24武装直升机。2005年，乌克兰空军曾经有对其空军进行现代化升级的计划，其中还包括了从俄罗斯采购较新型的Su-27和Mig-29的方案，但从未实行过。根据瑞士科技公司 RUAG 在2015 年的未经证实的报告，乌克兰在2014的克里米亚冲突中损失了将近一半的空军力量【7】。其实，相比于其陈旧的苏式战斗机，乌克兰空军中最值得称赞的要数这次在俄乌战争中大显身手的土耳其制TB2无人机，这种无人机虽然没有隐身和电子对抗能力, 但面对指挥松散的俄军地面部队还是游刃有余。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-3-scaled.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture4.png)
+*An-225 背负暴风雪号航天飞机*
 
-*俄乌战争中由于通讯中断而勿入罗马尼亚的乌克兰空军Su-27，
-该架飞机现已返回乌克兰*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture2-4.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture5-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture3-1.jpg)
 
-*乌克兰空军的TB-2无人机*
+*投入商业运行的An-225*
 
-乌克兰的防空军装备有数量可观的俄制S300, SAM3, SAM 6, SAM17 BUK,以及道尔M1地对空导弹，本次俄乌战争开打后，欧盟国家已经陆续开始向乌克兰提供毒刺单兵肩扛式防空导弹。
+本次俄罗斯入侵乌克兰，在占领安东諾夫机场期间， AN-225 已经不幸中弹，损毁严重*。*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture6-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture4-3.jpg)
 
-*乌克兰的SAM17 BUK地对空导弹，
-注意其特有的数码迷彩涂装是区别俄乌装备的最直接特征*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture5-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture7.jpg)
+*被俄军摧毁的An-225，机身结构已经被严重破坏，难以修复*
 
-*和俄军一样，乌克兰的防空主力也是S300导弹*
+有报道【8】说在2020年乌克兰曾一度与土耳其合作，计划共同完成 AN225 的第二架半成品。第二架 AN225 目前只有机身段，被存放在位于乌克兰境内的工厂中，是否能在残酷的战争中幸存，尚不得而知。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture6-2.jpg)
 
+*第二架An-225机身半成品*
 
-**参考资料:**
-【6】[Ukraine – Air Force Equipment](https://www.globalsecurity.org/military/world/ukraine/vps-equipment.htm)
-【7】[https://www.rferl.org/a/27281577.html](https://www.rferl.org/a/27281577.html)
-
-所有图片均来自网络
+**参考资料**：
+【8】[Sky Giant: Turkey Mulls To Complete The Second Antonov An-225 Mriya](https://www.oryxspioenkop.com/2022/01/sky-giant-turkey-mulls-to-complete.html)
 
 **（未完持续）**
-
-
 
  
 
