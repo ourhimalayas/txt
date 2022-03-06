@@ -2,38 +2,17 @@
 ---
 
 
-## 新中国联邦纽约救援团队已赴前线
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2115042/)
+## 俄罗斯战俘抨击对乌克兰的入侵，并说他们成了“炮灰”
+` DC政经` [轉載自GNews](https://gnews.org/zh-hans/2115058/)
 
-撰稿: 银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
-美东时间3月4日晚，新中国联邦奔赴前线波兰参与救援的战友在纽约完成集结，大约晚上9点乘坐飞机飞往波兰，为前线带去必要的物资救济以及大量药品，如伊维菌素、青蒿素、地塞米松、维生素C、D、阿奇霉素、口罩、手套等预防中共病毒的必需品。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-6-1.png)
-此次纽约救援团共有9位战友和1位常驻美国的乌克兰人一同前往。Nicole战友因雇主不允许自己去参与救援，毅然辞掉了工作。纽约的几位战友护送救援团队到达了机场。
+一名战俘说他所在的部队与 “保卫领土的和平的人民”交战，其他战俘说他们俄罗斯政府欺骗了。有报告显示，俄罗斯军队抗令，不遵从莫斯科发出的炮击乌克兰城镇的命令，并说他们食品和燃料已耗尽。乌克兰官员已邀请俄罗斯母亲来基辅接回她们受伤或被俘的儿子，该部门还为俄罗斯父母设立了一条电话热线，以了解他们的儿子是否已经战死或被俘。
 
-在登机口，战友们还遇到了一位同去参与救援的美国人，他是一家上市公司的CEO，和战友Nicole的雇主不同的是，他鼓励自己的雇员去参与救援，他自己也身先士卒奔赴救援前线。
+* * *
 
-新中国联邦希望困在乌克兰战区的中国同胞，不要再听信中共大使馆的骗人话，能出来的尽快出来，乌克兰战区的情况时时刻刻都在变化，希望大家一定不要再错过救援机会。
+素材，翻译：蔻依 | 字幕，发布：文零
 
-目前纽约救援团队还在集结，后面还陆续会有团队奔赴前线参与救援。
-
-在纽约机场，送机的长岛哥接受了新中国联邦直播战友的采访。
-
-新闻来源：[新中国联邦法治基金乌克兰人道救援行动-纽约救援团出发和土耳其现场救援团](https://gettr.com/post/py8k3mecdc)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
-
-编辑/总编/审核: 飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
+更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/DCZJ_Gnews_960_160.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

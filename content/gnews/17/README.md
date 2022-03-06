@@ -2,24 +2,38 @@
 ---
 
 
-## 联合国：乌战是二战以来欧洲爆发最快难民危机
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2115033/)
+## 新中国联邦纽约救援团队已赴前线
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2115042/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/poland-ukraine-russia-conflict-101530.jpg)联合国难民事务高级专员格兰迪说，自乌克兰战争暴发以来，超过150万名来自乌克兰的难民被迫背井离乡，进入邻国寻求庇护。（法新社）
-（早报讯）自乌克兰战争爆发以来，超过150万名来自乌克兰的难民被迫背井离乡，进入邻国寻求庇护。
+撰稿: 银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
+美东时间3月4日晚，新中国联邦奔赴前线波兰参与救援的战友在纽约完成集结，大约晚上9点乘坐飞机飞往波兰，为前线带去必要的物资救济以及大量药品，如伊维菌素、青蒿素、地塞米松、维生素C、D、阿奇霉素、口罩、手套等预防中共病毒的必需品。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-6-1.png)
+此次纽约救援团共有9位战友和1位常驻美国的乌克兰人一同前往。Nicole战友因雇主不允许自己去参与救援，毅然辞掉了工作。纽约的几位战友护送救援团队到达了机场。
 
-联合国难民事务高级专员格兰迪周日（3月6日）在推特上说：“10天内有超过150万来自乌克兰的难民进入邻国。”他说，这是二战以来欧洲爆发最快的难民危机。
+在登机口，战友们还遇到了一位同去参与救援的美国人，他是一家上市公司的CEO，和战友Nicole的雇主不同的是，他鼓励自己的雇员去参与救援，他自己也身先士卒奔赴救援前线。
 
-联合国官员说，随着俄罗斯军队加加强攻势，特别是向首都基辅的进攻。他们预计这一难民潮将进一步加剧。
+新中国联邦希望困在乌克兰战区的中国同胞，不要再听信中共大使馆的骗人话，能出来的尽快出来，乌克兰战区的情况时时刻刻都在变化，希望大家一定不要再错过救援机会。
 
-波兰边防军周日说，自俄罗斯2月24日入侵以来，共有92万2400人从乌克兰逃往波兰。匈牙利、摩尔多瓦、罗马尼亚和斯洛伐克也有数以万计乌克兰难民抵达。
+目前纽约救援团队还在集结，后面还陆续会有团队奔赴前线参与救援。
 
-原文链接：[https://www.zaobao.com.sg/realtime/world/story20220306-1249520](https://www.zaobao.com.sg/realtime/world/story20220306-1249520)
+在纽约机场，送机的长岛哥接受了新中国联邦直播战友的采访。
 
-审核校对：Barry Jack
-上传排版：F
+新闻来源：[新中国联邦法治基金乌克兰人道救援行动-纽约救援团出发和土耳其现场救援团](https://gettr.com/post/py8k3mecdc)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+
+编辑/总编/审核: 飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
