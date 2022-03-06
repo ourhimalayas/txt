@@ -2,39 +2,27 @@
 ---
 
 
-## 挑战在即。美“人民车队”已抵达华盛顿之前最后一站：马里兰
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2114217/)
+## 再见了——俄罗斯游客
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2114231/)
 
-作者： 香草山农场教育部—霍比特人
+#### 编译/简评                 意大利达芬奇农场                            小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-06-alle-09.07.26-1.png)图片来源：ilgazzettino.it
+两年的新冠病毒疫情及乌克兰危机给意大利旅游业造成了致命性的打击。
 
-据《雅虎新闻》和《每日邮报》报道，美“人民车队”即将给美国警方带来挑战。该车队几天前离开南加州前往华盛顿特区。他们效仿加拿大“自由车队”(Freedom Convoy)的模式，后者在渥太华市中心封锁了三周，以抗议加拿大的强制疫苗政策。
+仅以复活节来看，没有来自莫斯科的游客会给意大利旅游部门造成两千万欧元的损失。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220306b.png)
+俄罗斯游客与美国游客和中国游客一起被认为是最能花钱的。他们是五星级酒店和高级时装的消费者， 2019年有一百七十万俄罗斯人来意大利旅游。
 
-“我们是美利坚合众国的人民，我们在自由的旗帜下站在一起——自由是把我们团结在一起的一件事，”人民车队网站上的一条信息说。“自由流淌在我们的血管里。”
+据意大利旅游协会统计，2021年米兰是俄罗斯客人喜欢购物的城市，免税商品销售额的39%是卖给了俄罗斯客人。撒丁岛特别是翡翠海岸，是俄罗斯豪华游艇的最爱， 但现在他们却逃离了那儿。受重创的北方城市威尼斯、维罗纳2021年由于受疫情的影响， 俄罗斯游客减少了90%以上， 而仅在2019年仅威内托一个大区就接受了一百万的俄罗斯游客。由于乌克兰危机，美国游客纷纷取消预定的意大利假期，对于中国人目前还毫无限制，但受到了新冠疫情限制措施的影响。而恰恰是俄罗斯人、美国人和中国人是最大的旅游消费群体。
 
-警方一直在与这些组织的组织者联系。随着车队在全国各地的行进，参与者的数量不断变化中。车队拟于国情咨文演讲日抵达华盛顿。弗吉尼亚州警方正在监控弗吉尼亚州北部“可能影响交通的商业和客运车辆”。华盛顿大都会地区运输管理局周五表示，由于卡车车队的原因，本周末的地铁乘客可能会遭遇严重的延误和中断。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220306a.png)
-另外，华盛顿特区警方也不得不和美国特勤局和国会警察一起给星期二的国情咨文演讲提供安全保障，持续保持警戒。 随着乌克兰战事逐渐明朗化，和国情咨文演讲日正在临近，“人民车队”的进展越发令人关注。
-
-参考链接：
-
-[https://www.youtube.com/watch?v=JNhe2kQ4Qs8](https://www.youtube.com/watch?v=JNhe2kQ4Qs8)[https://news.yahoo.com/truck-convoy-threatens-clog-dc-134415877.html?fr=sycsrp\_catchall](https://news.yahoo.com/truck-convoy-threatens-clog-dc-134415877.html?fr=sycsrp_catchall)
+欧盟对俄罗斯的制裁会给本来处于危机的旅游业更是雪上加霜。旅游业比起其他行业来说是首当其冲，深受其害。如果中共发动对台战争，今天的俄罗斯人在世界所处的状况就是明天中国人的写照。中共不灭，中国人和世界人民都要为此付出巨大的代价。
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-5.png)
+原文链接：[https://www.ilgazzettino.it/nordest/venezia/turisti\_russi\_veneto\_venezia\_verona\_cosa\_succede\_ora\_disdette\_seconde\_case\_hotel\_yacht-6544072.html](https://www.ilgazzettino.it/nordest/venezia/turisti_russi_veneto_venezia_verona_cosa_succede_ora_disdette_seconde_case_hotel_yacht-6544072.html)
 
-编辑：霍比特人
-校正/发稿：霍比特人
+编辑、上传： Xiao  baige
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

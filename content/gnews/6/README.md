@@ -2,32 +2,48 @@
 ---
 
 
-## 克里姆林宫的私人飞机前往华盛顿是要接回被驱逐的俄罗斯外交官？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2114350/)
+## 被谷爱凌激怒的美国斯坦福面包店老板怒吼华人滚回中国
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2114354/)
 
-翻译：Steven Hu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-29.jpg)
-图片来源：谷歌图片
+Youtube视频链接：[https://youtu.be/GJ8H7NogQTM](https://youtu.be/GJ8H7NogQTM)
 
-《零对冲》一架俄罗斯政府喷气式飞机已经离开圣彼得堡，正在飞往华盛顿的途中，这是美国东海岸居民周六凌晨醒来时听到的令他们惊讶的消息。
+**郭文贵先生：**我们今天坐这直播的时候，兄弟姐妹们，你们有想过吗？你们有孩子以后到了美国、西方，这些美国人怎么看我们？头两天在斯坦福我们一个华人战友他说：“坏了，郭先生，我现在在斯坦福就突然发现谷爱凌的事件让我在斯坦福让我感觉倍加孤独。
 
-社交媒体上议论炸了锅——一些人最初想知道：这是否是俄罗斯总统普京要与拜登总统进行特别一轮谈判？
+我最爱吃的面包店也是他最爱吃的面包店，他说：“七哥，你知道咱俩最爱吃的面包店我去了，人家面包店的老板说什么吗？‘你们中国人就不应该待在美国，就应该滚回你们的国家去！’（过去）这个人对我多有好，（现在）愤怒的眼光大早晨对着我。”
 
-不幸的是，这些怀疑被证明是不正确的，实际上几乎是不现实的。美国国务院发表声明，确认这架飞机将接走因入侵乌克兰而被联合国驱逐出境的俄罗斯外交官。 国务院将被逮捕的雇员描述为“俄罗斯情报人员”。 俄罗斯外交部在发布给 电报（Telegram ）的一份声明中证实，这架飞机是去接载被驱逐的俄罗斯外交官。
+你知道这个战友跟我说完以后，我当时我就在这外边，我在这康州我就住在这个外边，我站在那，你知道我真的是浑身发抖。我能感觉到大地在颤抖，美国人在愤怒！
 
-预计该航班将在下午某个时间降落在杜勒斯国际机场。
+想什么呢战友们？你以为这直播在跟你聊天呢？战友们，你们直播你们花时间你们花精力，过去五年七哥的直播，共产党罚走了130亿美元，这美国又罚我2.6亿美元，倾家荡产、老娘没命、全家被抓，所有的钱都弄完，连老爹都是被扔在街头，同事无工作可做。
 
-截至周六东部时间 1030 点，伊留申 Il-96-300（在俄罗斯国家运输公司/俄罗斯特种飞行中队注册为 RA-96019）向西飞行，目的地为纽约市。 根据飞行地图，这是它最近一次沿格陵兰附近飞行。
+你们直播是花时间，我直播是花命、流血，不仅流汗还流血。七哥看着嘻嘻哈哈的，过去的直播每一秒钟都在与邪恶斗争。咱们“流水”，叫这边流着水，七哥那边就流着血，你们“流水”了，七哥就流血了，一定的，是吧？
 
-俄罗斯周二将这一驱逐在纽约联合国工作的外交官行为定义为“升级”。 别忘了，即使是伊朗和朝鲜外交官也被允许毫发无损地往返于联合国。
+我们就今天这问题咱好好谈谈，是吧？咱别整大家这脸一脸严肃，是不是？共产党还没死呢，你们别这样，共产党死了你们再这样。谢谢，我先说到这儿，谢谢谢谢！开始主持人。
 
-飞行数据显示，俄罗斯总统弗拉基米尔·普京本人并不常用这架喷气式飞机。 指出普京常用的应该是两架编号157715 或 157716的飞机。而事实上，目前正在飞行的 Ilyushin Il-96-300 确实经常从克里姆林宫起飞的飞机。
+编辑整理：Jacques；
 
-由于美国和欧盟对俄罗斯亿万富翁、政治家和其他普京总统的盟友实施一系列制裁，这次飞行引起了西方观察家的兴趣。 目前，乌克兰正在呼吁北约在乌克兰设立一个“禁飞区”，而北约一直不愿下令这么做，因为正如延斯·斯托尔滕贝格将军所明确表示的那样，如此做法，可能会将北约卷入第三次世界大战。
+字幕文件制作：小满；
 
-译者：这是一篇字里行间耐人寻味的报道，在这报道发表后不久，推特上路透社发了一个“乌克兰总统将会晤拜登“及“普示将会见以色列总理”的推。而拜登总统要求在乌美国人“立即”离开乌克兰，飞往华盛顿的私人飞机到底坐的是谁？这是一次为和平所做的最后努力？还是摊牌？
+视频制作及上传：Cindy；
 
-原文链接：[https://www.zerohedge.com/geopolitical/kremlin-jet-headed-washington-fetch-russian-diplomats-expelled-un](https://www.zerohedge.com/geopolitical/kremlin-jet-headed-washington-fetch-russian-diplomats-expelled-un)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
