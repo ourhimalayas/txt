@@ -2,37 +2,27 @@
 ---
 
 
-## 有声|俄罗斯目前需要中共人民币兑换以获得战争资金
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2116092/)
+## 视频|标普和道琼斯指数正在剔除俄罗斯股票
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2116182/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-随着世界各国对俄罗斯的金融制裁，目前国际货币基金组织IMF认可的五种自由使用的货币中，美元、欧元、英镑、日元已经全部关闭了俄罗斯卢布兑换的途径，目前只剩下人民币可以作为唯一的兑换货币。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/bc-russia-needs-china-s-help-to-turn-its-imf-reserves-into-cash-for-war.png.jpeg)图源网络
-目前IMF资产约占俄罗斯6430亿美元储备的4%，美国和欧盟等国家采取了一切措施防止俄罗斯从IMF的储备中受益。基于中共目前的立场，如果中共央行与俄罗斯央行开展货币互换关系，对维持卢布的价值作用也是有限的，因为人民币是脱离于整个世界市场经济的货币，对自由贸易的作用影响力较小。如果俄罗斯通过特殊渠道收购其他四种已关闭兑换的货币，这些资金会被冻结。
+制作：香草山视频部
 
-俄央行和中共央行均未对此回应。
+3月4日，指数巨头标普道琼斯指数有限公司宣布，鉴于俄罗斯军事入侵乌克兰，并袭击欧洲最大核电站的行为，决定从基准指数中剔除所有俄罗斯的上市和注册股票，进一步将该国与全球经济隔离。
 
+标普道琼斯指数有限公司是道琼斯工业平均指数和标准普尔500指数的保管者。该公司表示，将把俄罗斯下调为新兴市场，归入一个独立的组别。并警告在下周三开盘前生效的剔除措施，也将会影响到俄罗斯的美国存托凭证ADR。
 
+当天，纽约证券交易所以“监管问题”为由停止了三只俄罗斯ETF的交易。自俄罗斯军事入侵乌克兰的战争不断升级，西方国家对俄罗斯的金融制裁日趋严厉。
 
-文字版原文：[俄罗斯目前需要中共人民币兑换以获得战争资金](https://gnews.org/zh-hans/2110196/)
+发稿：Daxia
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

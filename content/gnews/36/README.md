@@ -2,20 +2,28 @@
 ---
 
 
-## 再接再厉 继续行动
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2115186/)
+## 通过喜马拉雅交易所成交迈凯轮标志性赛车
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2115196/)
 
-撰稿：飞虹
+撰稿：纽约香草山-宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
-在3月4日晚新中国联邦法治基金乌克兰人道救援行动大直播中，针对很多希望参与的战友存在的种种问题，主持人给予了详细的分析和指导。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-516.png)
-首先，我们确实还需要50个甚至更多的战友参与到救援行动中。其次，后续报名的战友要确保有至少两周的时间可以在波兰持续工作，并且需要有波兰的签证或者其他许可。最后，希望参与的战友不要私信，要根据提示填写表格报名。
+据美国媒体3月4日报道，巴西传奇F1车神埃尔顿·塞纳的一辆迈凯伦1989MP4/5 F1赛车，以超过500万美元的价格，以等值喜美元HDO的形式，通过喜马拉雅支付应用程序——喜支付HPay——成功售出。此笔交易将极大提升数字货币的全球信誉度。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-517.png)
+塞纳被称为“有史以来最好的F1车手”，他所驾驶的汽车是世界上最有价值的收藏品之一。迈凯伦车队CEO扎克·布朗高度评价塞纳的这辆迈凯轮F1赛车，称其代表着赛车运动史上的特殊篇章。
 
-新闻来源：[新中国联邦法治基金乌克兰人道救援行动-纽约救援团出发和土耳其现场救援团](https://gettr.com/post/py8k3mecdc)
+该报道称，这笔交易表明市场对喜交所，特别是喜支付HPay的信心不断增强。喜交所使企业和个人能够利用加密货币的崛起创造机会，其因无边界、包容性和安全性的特点，可以随时随地进行转账和交易，实现个人财务自主。该平台也是将加密货币交易所与原生交易币、稳定币，以及最近推出的支付应用程序整合到一个平台的首次尝试，成为目前市场上唯一一个完全整合加密货币生态系统的运营平台。
+
+喜支付HPay的升级应用程序正在开发中。在未来支付场景中，用户将能够在全球范围内通过喜支付HPay即时转账、安排自动付款，并在所有类型的支持数字货币支付的独家零售商店购物。该报道表示，尽管难以预测数字货币的未来，但不能否认，加密资产正在颠覆金融业。
+
+新闻链接：[Purchase Of Iconic McLaren Vehicle Through Himalaya Exchange Raises Trust In Cryptocurrencies](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
+编辑：Delilah小胖
+
 总编：飞虹
+
+审核：木木
 
 校正/发稿：浪迹天涯
 

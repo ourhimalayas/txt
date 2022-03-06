@@ -2,35 +2,29 @@
 ---
 
 
-## 有声|泽连斯基躲过了三次暗杀
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2116029/)
+## 视频|通过喜马拉雅交易所成交迈凯轮标志性赛车
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2116181/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据外媒报道，在俄罗斯对乌克兰入侵短短一周之内，泽连斯基起码躲过了三次有企图的暗杀。
+制作：香草山视频部
 
-俄罗斯支持的阴暗瓦格纳集团是其中两次暗杀的幕后黑手。乌克兰国防部长称收到了俄罗斯联邦安全局的情报，因他们并不想参加普京的血腥侵略，从而避免了对泽连斯基的暗杀。如果刺杀成功，俄罗斯可以堂而皇之地否认。除了这两次刺杀，还有一次刺杀是车臣刺客主使的，不过他们在行刺之前就已经被捕。
+据美国媒体3月4日报道，巴西传奇F1车神埃尔顿·塞纳的一辆迈凯伦1989MP4/5 F1赛车，以超过500万美元的价格，以等值喜美元HDO的形式，通过喜马拉雅支付应用程序——喜支付HPay——成功售出。此笔交易将极大提升数字货币的全球信誉度。
 
-在俄罗斯入侵乌克兰时，美国提出撤离泽连斯基，但他拒绝了，坚持留下来与乌克兰同生共死。郭先生此前也曾爆料，泽连斯基已经成为了暗杀目标，希望上天保佑他的安全。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-57.jpeg)图片来源：NEW YORK POST
-文字版原文：[泽连斯基躲过了三次暗杀](https://gnews.org/zh-hans/2111515/)
+塞纳被称为“有史以来最好的F1车手”，他所驾驶的汽车是世界上最有价值的收藏品之一。迈凯伦车队CEO扎克·布朗高度评价塞纳的这辆迈凯轮F1赛车，称其代表着赛车运动史上的特殊篇章。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+该报道称，这笔交易表明市场对喜交所，特别是喜支付HPay的信心不断增强。喜交所使企业和个人能够利用加密货币的崛起创造机会，其因无边界、包容性和安全性的特点，可以随时随地进行转账和交易，实现个人财务自主。该平台也是将加密货币交易所与原生交易币、稳定币，以及最近推出的支付应用程序整合到一个平台的首次尝试，成为目前市场上唯一一个完全整合加密货币生态系统的运营平台。
+
+喜支付HPay的升级应用程序正在开发中。在未来支付场景中，用户将能够在全球范围内通过喜支付HPay即时转账、安排自动付款，并在所有类型的支持数字货币支付的独家零售商店购物。该报道表示，尽管难以预测数字货币的未来，但不能否认，加密资产正在颠覆金融业。
+
+发稿：Daxia
+
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
