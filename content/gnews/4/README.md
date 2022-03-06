@@ -2,12 +2,18 @@
 ---
 
 
-## 美司法部开展针对俄罗斯寡头KleptoCapture特别行动
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2114842/)
+## 2022年3月6日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2114909/)
 
-03/02/2022 总检察长加兰宣布，美国司法部开展针对俄罗斯寡头的“KleptoCapture”特别行动。任何违反美国对俄罗斯制裁的实体或个人都将受到惩罚。
+制作：DT新闻组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**中共的杀戮还在继续……**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_5428.jpg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-2.jpeg)
 
  
 
