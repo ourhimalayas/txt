@@ -2,39 +2,34 @@
 ---
 
 
-## 挑战在即。美“人民车队”已抵达华盛顿之前最后一站：马里兰
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2114217/)
+## 乌克兰救援3.5. 新中国联邦美国与欧洲救援团都已抵达现场并开展救援
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2114245/)
 
-作者： 香草山农场教育部—霍比特人
+撰稿：DG
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture221.png)
+2022年3月5日，NFSC救援行动纽约团队抵达华沙。前线总指挥大卫在盖特上直播采访了一个别救的中国留学生和当地市长。
 
-据《雅虎新闻》和《每日邮报》报道，美“人民车队”即将给美国警方带来挑战。该车队几天前离开南加州前往华盛顿特区。他们效仿加拿大“自由车队”(Freedom Convoy)的模式，后者在渥太华市中心封锁了三周，以抗议加拿大的强制疫苗政策。
+2022年3月5日9:49PM（美东时间，乌克兰基辅时间6日早上4:49AM），NFSC救援行动电报群组里更新了大巴时间表。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220306b.png)
+3月5日 – 3月6日， 2班 X 50 座
+3月7日起2星期: 2班X50座，2班X59座，1班X58座，1班X56座，1班X50座2022年
 
-“我们是美利坚合众国的人民，我们在自由的旗帜下站在一起——自由是把我们团结在一起的一件事，”人民车队网站上的一条信息说。“自由流淌在我们的血管里。”
+3月5日前线总指挥大卫在盖特上直播介绍当地的情况，大卫说：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-11.png)
+我们是来救人的，救人靠情报、资源，靠对当地环境的了解。这几天需要躲避交通拥堵和涌来的大量难民和不安全因素比如在局部边境已经发生了抢、盗这样的现象。还有就是已经开始出现对华人排斥的现象，比如有的留学生无法搭乘巴士、卡车、私家车，因为你是华人。他们本能的抗拒或反感。
 
-警方一直在与这些组织的组织者联系。随着车队在全国各地的行进，参与者的数量不断变化中。车队拟于国情咨文演讲日抵达华盛顿。弗吉尼亚州警方正在监控弗吉尼亚州北部“可能影响交通的商业和客运车辆”。华盛顿大都会地区运输管理局周五表示，由于卡车车队的原因，本周末的地铁乘客可能会遭遇严重的延误和中断。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220306a.png)
-另外，华盛顿特区警方也不得不和美国特勤局和国会警察一起给星期二的国情咨文演讲提供安全保障，持续保持警戒。 随着乌克兰战事逐渐明朗化，和国情咨文演讲日正在临近，“人民车队”的进展越发令人关注。
+另外通报一下，前些天在社交媒体上流传的那些诋毁、抹黑、恶意评价乌克兰这场战争和饱受灾难的居民的视频，国内这些小粉红们垃圾人，他们的视频在乌克兰大肆传播并被翻译成多种语言，又被转给乌克兰正在逃难的人，甚至乌克兰正在战斗的人，你想想这意味着什么？！所以现在乌克兰在迷茫失望之中，可能又多了一份可能潜在的待爆发的仇恨，这就是中共给华人洗脑以后这些脑残们在海外的恶意言行带来的灾难。
 
-参考链接：
+我现在能感受到包括昨天七哥一再问我，“你有没有感到危险”，我说句心里话我担心，我从当地人的眼神里他们的绝望也可能成为仇恨，这是我们面临的情况。也是我们为什么来到这里，直播，也是我们新中国联邦为什么会把这辆大巴，用实力展示在乌克兰境内把60多人拉到这个波兰的火车站，没有实力没有之前的准备是不可能做到的，战友们！
 
-[https://www.youtube.com/watch?v=JNhe2kQ4Qs8](https://www.youtube.com/watch?v=JNhe2kQ4Qs8)[https://news.yahoo.com/truck-convoy-threatens-clog-dc-134415877.html?fr=sycsrp\_catchall](https://news.yahoo.com/truck-convoy-threatens-clog-dc-134415877.html?fr=sycsrp_catchall)
+而且现在在乌克兰境内只有一个还能安全撤离的来这里的通道就是：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-10.png)
+原文链接：[https://www.gettr.com/streaming/py8k3mecdc](https://www.gettr.com/streaming/py8k3mecdc)
+
+校对发布： Shifter
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-5.png)
-
-编辑：霍比特人
-校正/发稿：霍比特人
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

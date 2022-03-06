@@ -2,42 +2,44 @@
 ---
 
 
-## 北约秘书长:乌克兰未来几天将会有更多的死亡、苦难和破坏
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2114394/)
+## 七哥安危并非一己之私，到哪去都在美国安全保护范围内
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2114454/)
 
-撰稿：Streamline
-校对：跟着曙光跑
-上传：Qcfm
+Youtube视频链接：[https://youtu.be/gdgOL146\_dU](https://youtu.be/gdgOL146_dU)
 
-据新闻极限网（Newsmax）3月4日报道，北约（NATO Secretary General）秘书长斯托尔滕贝格（Jens Stoltenberg）星期五说，在俄罗斯对乌克兰发动无端攻击之后，乌克兰未来几天的局势“可能比之前更糟”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220306_1.png)图片来源：NewsMax
-据哥伦比亚广播公司（CBS）报道，斯托尔滕贝格在布鲁塞尔举行的北约外长紧急会议上说，“未来的日子可能会更糟，会有更多的死亡、更多的苦难和更多的破坏。”
+**郭文贵先生：**还有刚才我就给大家说到的，你一定、一定、大家要记住，我去日本、去英国，它不是我一个人说了算，没经过美国政府，还有我的安保团队、律师团队绝对的保证下都不可能。俄罗斯跟中共那么好，俄罗斯在英国是最大势力了吧？几个哥们儿跟我说：“Miles你要来了英国，我的所有安保团队全都是你的。而且我这几个城堡，最好的城堡这个房子全部都是送给你，或你长期用，那绝对是安保的。”
 
-这位北约负责人还拒绝了在乌克兰设立“禁飞区”的呼吁，理由是可能导致与俄罗斯的这场冲突升级。
+我说：“我最担心就是你老板把我给毒了，我上你家去，我说我还不如直接自杀得了，甭去了，是吧？我说我才不会去。”结果人家这哥们说了一句话，他说：“我们非常清楚，你到哪去都在美国安全保护范围内。他说这个世界上只要是有人心的人，都希望你安全。
 
-自莫斯科开始入侵的九天以来，乌克兰总统弗拉基米尔·泽伦斯基(Volodymyr zelensky)一直敦促西方伙伴实施禁飞区。
+所以说，再次说，七哥的安全真不仅仅是爆料革命的事，七哥打开沼泽地UBS这一枪之后，那是多大的事儿！你想想，被沼泽地给血洗的人，那是多少人呢？是吧？还有美国的正义人士、加拿大的正义人士，那有多少呢？你想我一说去英国，英国那M16也好，M15也好，多少咱的兄弟姐妹？多少年的关系？七哥是帮助英国和中共在24小时恢复建交的人，你想到我是功臣吧？共产党的一级勋章我不要，但英国的给我的荣誉，我还是想要的，是吧？因为它有用，共产党那个是污辱，对吧？！
 
-“我们理解这种绝望，”斯托尔滕贝格说，“但我们也相信，如果我们这么做，最终会导致欧洲爆发一场全面战争，涉及更多的国家和更多的苦难。”
+所以说兄弟姐妹，包括日本。日本，你知道日本的内部勋章最高是什么吗？大家知道吗？最高的勋章，七哥是有的。所以说你们绝不用担心，绝不用担心。
 
-斯托尔滕贝格补充说，北约已经加强了其东侧的兵力，并将与芬兰和瑞典这两个北约伙伴但不是正式盟友进行更密切的合作。据《华盛顿邮报》(The Washington Post) 报道。
+编辑整理：Jacques；
 
-北约秘书长还表示，北约成员国将向格鲁吉亚、摩尔多瓦和波黑等可能受到俄罗斯侵略的非成员国提供更多的支持。
+字幕文件制作：兵嫂；
 
-周五早些时候，控制了欧洲最大的核电站的俄罗斯军队正在埋设炸药，以 “威胁 “整个欧洲大陆，核电站工作人员警告说。
+视频制作及上传：Cindy；
 
-位于乌克兰东南部的扎波里日亚核电站星期五早晨遭到俄罗斯军队的炮击，并在他们发动攻击时起火。大火最终被扑灭了。
+G-News发布：小满；
 
-“他们将试图炸毁核电站并威胁整个欧洲，”扎波罗热的员工在给乌克兰媒体和政府当局的信中写道。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-工作人员警告说，俄罗斯总统弗拉基米尔·普京的部队“在核电站附近放置炸药，以向乌克兰军队和人民施加压力。”
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-据周四报道，一名欧洲情报官员说，俄罗斯已经制定了包括公开处决在内的计划，以阻止乌克兰人反击普京的军队。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-彭博社(Bloomberg)报道，在俄罗斯无端发动袭击后，克里姆林宫已经想出了一些办法，来打击为自由而战的乌克兰人的士气。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-莫斯科的策略将在俄罗斯军队控制一个城市后使用，包括镇压抗议活动，拘留反对者，并可能进行公开处决，一位官员告诉彭博社。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-源新闻链接：[https://www.newsmax.com/newsfront/nato-stoltenberg-russia-ukraine/2022/03/04/id/1059713/](https://www.newsmax.com/newsfront/nato-stoltenberg-russia-ukraine/2022/03/04/id/1059713/)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
