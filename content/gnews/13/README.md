@@ -2,22 +2,57 @@
 ---
 
 
-## NewSGman┃疫情新闻全球速报（ 3月5日）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2113527/)
+## 基辅市长维塔利·克里琴科对俄罗斯人说：“回家吧”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2113599/)
 
-撰稿：东京樱花团/NewSGman
+Vitali Klitschko (Mayor of Kyiv)
+维塔利·克里琴科（基辅市长）
 
-**美国参议院通过决议以结束Covid-19国家紧急状态，周四3月3日参议院共和党人通过了一项决议，以结束目前根据政府两年前的《国家紧急状态法》（NEA）声明从 Covid-19 大流行开始时生效的国家紧急状态**
+Go back home, you have nothing to find here
+回家吧，你在这里什么都找不到
 
-**决议以 48 票对 47 票票数获得批准，该决议由共和党参议员罗杰·马歇尔 发起并保持微弱优势在两党投票中获得通过**
+We hope this night will be quiet
+我们希望这个夜晚会很安静
 
-**尽管决议在参议院获得通过但拜登政府已表明将否决它，拜登政府仍希望继续保持在国家紧急状态下政府所拥有的**用来应对 COVID-19（CCP病毒） 大流行危机期间的强有力的政府权力
+We hope the Russians take the decision (to) move back to Russia
+我们希望俄罗斯人做出决定（要）撤回俄罗斯
 
-盖特链接：[https://www.gettr.com/post/pyak2a14a2](https://www.gettr.com/post/pyak2a14a2)
+They (have) nothing to find here in our home and
+他们（不会）在我们家中得到任何东西，并且
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+but I see so many people
+但我看到很多人
+
+We’re everybody proud of our army of Ukrainian(s)
+我们每个人都为我们的乌克兰军队感到自豪
+
+who defend our city, defend our homes, defend our family and
+他们保卫我们的城市，保卫我们的家园，保卫我们的家庭
+
+respect for everyone ready to fight, fight for our country
+尊重每个准备战斗的人，为我们的国家而战
+
+原视频链接[https://twitter.com/nowthisnews/status/1498524179422793728?s=24](https://twitter.com/nowthisnews/status/1498524179422793728?s=24)
+
+Date:03/03/2022
+原视频标题:Vitali Klitschko, Mayor of Kyiv to Russians: ‘Go Home’
+基辅市长维塔利·克里琴科对俄罗斯人说：“回家吧”
+原视频日期：2022/03/01
+原视频链接https://twitter.com/nowthisnews/status/1498524179422793728?s=24
+任务编号：KE436（3892）
+视频时间段 : 0:00-0:37
+
+英听校; 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
