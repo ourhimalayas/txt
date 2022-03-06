@@ -2,62 +2,28 @@
 ---
 
 
-## 来自世界各地的数十名外交官，集体给予&#8221;纷纷离场&#8221;制裁抗议
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2113377/)
+## 俄罗斯入侵乌克兰是新纳粹主义
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2113490/)
 
-I would now like to give the floor to His Excellency
-我现在想请阁下发言
+去投票问问俄罗斯普通人百分之百不会同意这场战争。这是普京一个人的战争，所有的战争是由国家集体权力决定的，这次普京一个人决定了。
 
-Mr. Sergey Lavrov Minister for Foreign Affairs of the Russian Federation
-谢尔盖·拉夫罗夫先生, 俄罗斯联邦外交部长
+郭先生：
 
-You have the floor, Excellency
-请发言，阁下
+兄弟姐妹们，独裁和共产党的邪恶已经超出了人类所有的底线，共产党和俄罗斯派出了将近几十万大军，到盖特上去宣传乌克兰是纳粹，乌克兰是新纳粹主义，普京是正义的。当年希特勒有一句话，我们有理由杀犹太人吗？没有，没有就撒一个惊天大慌吧！什么惊天大慌？犹太人夺走了我们的一切？犹太人拿走了我们的一切！最后杀掉六百万人，普京就来了。昨天我们昨晚吃晚饭的时候Q妹说，她说在中国群里，打乌克兰你们现在为[俄罗斯]打乌克兰说话了，那美国打南斯拉夫的时候你怎么不说话？打伊拉克的时候怎么不说话？这些被洗脑的人连个猪都不如。
 
-Sergey Lavrov (Minister of Foreign Affairs of the Russian Federation)
-谢尔盖·拉夫罗夫（俄罗斯联邦外交部长）
+第一个，打南斯拉夫、打伊拉克，伊拉克的萨达姆是好人吗？萨达姆杀了多少伊拉克人知道吗？到现在光找到的人坑，万人坑就有多少？一共伊拉克才两千多万人，当时他杀掉了几百万人，5%-10%的人。南斯拉夫，当时就在南斯拉夫种族大屠杀，在黑山一带杀死了几万人，百分之十。你觉得我们该说你不应该种族歧视，杀掉种族歧视的独裁?  我们替乌克兰说话，俄罗斯打乌克兰的目的是什么？它想干什么？
 
-Ladies and gentlemen
-女士们，先生们
+去投票问问俄罗斯普通人百分之百不会同意这场战争。这是普京一个人的战争，所有的战争是由国家集体权力决定的，这次普京一个人决定了，大家搞明白没有?
 
-I had hoped that after a two year gap
-我曾希望在两年的距离之后
+第二个，这场战争所有的参与者全都是非法的，美国那几场战争还到联合国演讲一下，国际上还研究一下，然而俄罗斯国际法全都没有。
 
-I would be able to participate in the work of the United Nations Human Rights Council in person
-我将能够亲自参与联合国人权理事会的工作
+最后美国从不侵略别人土地，伊拉克和南斯拉夫不占有一分土地的，你们这帮猪。
 
-However, I’m compelled to address you by video
-但是，我不得不通过视频向您致辞
 
-The reason for this is the outrageous measures by the European Union
-原因是欧盟采取了离谱的措施
 
-to refuse to respect one of the fundamental human rights
-拒绝尊重一项基本人权
 
-the right to freedom of movement
-自由行动权
 
-原视频链接[https://twitter.com/ahnewspace/status](https://twitter.com/ahnewspace/status)
-
-Date:03/03/2022
-原视频标题:Dozens of diplomats from around the world collectively “leave the venue” in sanction protests when Russian Foreign Minister Sergey Lavrov speaks at the annual session of the UN Human Rights Council
-俄罗斯外交部长谢尔盖·拉夫罗夫，在联合国人权理事会年度会议上发表讲话时，来自世界各地的数十名外交官，集体给予”纷纷离场”制裁抗议
-原视频日期：2022/03/02
-原视频链接https://twitter.com/ahnewspace/status/1498846672935620611?s=24
-任务编号：3905
-视频时间段 : 0:00-1:02
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频剪辑：文知 |听写：雨山溪桥客 | 翻译：Arthur |Proofread: Polaris | 视频制作+字幕：CG. | 编辑：昆汀|发布：闪电训练
 
  
 

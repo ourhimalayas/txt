@@ -2,28 +2,56 @@
 ---
 
 
-## 俄罗斯入侵乌克兰是新纳粹主义
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2113490/)
+## 基辅市长维塔利·克里琴科对俄罗斯人说：“回家吧”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2113599/)
 
-去投票问问俄罗斯普通人百分之百不会同意这场战争。这是普京一个人的战争，所有的战争是由国家集体权力决定的，这次普京一个人决定了。
+Vitali Klitschko (Mayor of Kyiv)
+维塔利·克里琴科（基辅市长）
 
-郭先生：
+Go back home, you have nothing to find here
+回家吧，你在这里什么都找不到
 
-兄弟姐妹们，独裁和共产党的邪恶已经超出了人类所有的底线，共产党和俄罗斯派出了将近几十万大军，到盖特上去宣传乌克兰是纳粹，乌克兰是新纳粹主义，普京是正义的。当年希特勒有一句话，我们有理由杀犹太人吗？没有，没有就撒一个惊天大慌吧！什么惊天大慌？犹太人夺走了我们的一切？犹太人拿走了我们的一切！最后杀掉六百万人，普京就来了。昨天我们昨晚吃晚饭的时候Q妹说，她说在中国群里，打乌克兰你们现在为[俄罗斯]打乌克兰说话了，那美国打南斯拉夫的时候你怎么不说话？打伊拉克的时候怎么不说话？这些被洗脑的人连个猪都不如。
+We hope this night will be quiet
+我们希望这个夜晚会很安静
 
-第一个，打南斯拉夫、打伊拉克，伊拉克的萨达姆是好人吗？萨达姆杀了多少伊拉克人知道吗？到现在光找到的人坑，万人坑就有多少？一共伊拉克才两千多万人，当时他杀掉了几百万人，5%-10%的人。南斯拉夫，当时就在南斯拉夫种族大屠杀，在黑山一带杀死了几万人，百分之十。你觉得我们该说你不应该种族歧视，杀掉种族歧视的独裁?  我们替乌克兰说话，俄罗斯打乌克兰的目的是什么？它想干什么？
+We hope the Russians take the decision (to) move back to Russia
+我们希望俄罗斯人做出决定（要）撤回俄罗斯
 
-去投票问问俄罗斯普通人百分之百不会同意这场战争。这是普京一个人的战争，所有的战争是由国家集体权力决定的，这次普京一个人决定了，大家搞明白没有?
+They (have) nothing to find here in our home and
+他们（不会）在我们家中得到任何东西，并且
 
-第二个，这场战争所有的参与者全都是非法的，美国那几场战争还到联合国演讲一下，国际上还研究一下，然而俄罗斯国际法全都没有。
+but I see so many people
+但我看到很多人
 
-最后美国从不侵略别人土地，伊拉克和南斯拉夫不占有一分土地的，你们这帮猪。
+We’re everybody proud of our army of Ukrainian(s)
+我们每个人都为我们的乌克兰军队感到自豪
 
+who defend our city, defend our homes, defend our family and
+他们保卫我们的城市，保卫我们的家园，保卫我们的家庭
 
+respect for everyone ready to fight, fight for our country
+尊重每个准备战斗的人，为我们的国家而战
 
+原视频链接[https://twitter.com/nowthisnews/status/1498524179422793728?s=24](https://twitter.com/nowthisnews/status/1498524179422793728?s=24)
 
+Date:03/03/2022
+原视频标题:Vitali Klitschko, Mayor of Kyiv to Russians: ‘Go Home’
+基辅市长维塔利·克里琴科对俄罗斯人说：“回家吧”
+原视频日期：2022/03/01
+原视频链接https://twitter.com/nowthisnews/status/1498524179422793728?s=24
+任务编号：KE436（3892）
+视频时间段 : 0:00-0:37
 
-视频剪辑：文知 |听写：雨山溪桥客 | 翻译：Arthur |Proofread: Polaris | 视频制作+字幕：CG. | 编辑：昆汀|发布：闪电训练
+英听校; 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
