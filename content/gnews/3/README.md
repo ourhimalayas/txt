@@ -2,26 +2,34 @@
 ---
 
 
-## 2022年中共十三届五次会议提出81个怕
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2115153/)
+## 俄罗斯正在企图控制乌克兰的其他大型核电站
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2115236/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-520.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fyxbao-img.xiazaibao2.com%2Fnews_img%2F201307%2F18%2F1374148585_7.jpg&amp;imgrefurl=https%3A%2F%2Fm.yxbao.com%2Fmj%2F47434.html&amp;tbnid=dvHIrGnf1zYBtM&amp;vet=12ahUKEwiX_8reubH2AhVZQEEAHV_1A4oQMyhNegQIARB-..i&amp;docid=6PGFz-En7ndjbM&amp;w=444&amp;h=448&amp;q=%E7%A8%B3&amp;ved=2ahUKEwiX_8reubH2AhVZQEEAHV_1A4oQMyhNegQIARB-)
-3月6日中新经纬报道，全国政协十三届五次会议，政府工作报告，做好“六稳”“六保”、实施稳健的货币政策、加强大宗商品保供稳价、进出口保稳提质、稳市场主体保就业。
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
+3月3日，俄罗斯侵占了乌克兰的扎波罗日热核电站后，目前正在向南乌克兰核电站推进。这两座核电站是乌克兰境内最大的两座，为乌克兰境内提供约三分之一的发电。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-518.png)图片来自：nypost.com
+乌克兰一共有四座核电站，由15座反应堆组成，发电量大约为该国的一半。另外一半发电量来自煤炭，乌克兰的多数煤电厂位于顿巴斯地区，自2014年开始，俄罗斯时常侵袭这些煤电厂地区。他们认为控制乌克兰的发电能源有利于全面攻占乌克兰。
 
-维稳一词，最早是由前中共国总理温家宝在2010年提出，即为了维持中共国社会的稳定，为了中共国共产党能够延续打压异议人士和各种武力解决问题的措施。
+近年来，乌克兰已经切断了许多与俄罗斯和白俄罗斯曾在苏联时代能源共享的电网，加入西方邻国的电网。这项计划预计在2023年完成，2月24日俄罗斯入侵乌克兰的当天，工作人员仍在进行测试，希望这项工程能够加紧完成。
 
-在今年中共国会议期间，发现此次工作报告提到了81次“稳”字，涉及宏观政策、稳货币政策，稳外资，稳地价，稳房价，稳预期，稳粮食，稳就业，稳汇率，稳经济 ，稳货币……一切都要稳，中共说的要稳，更具体是怕，怕经济跌落，怕房子崩盘，怕粮食危机，怕大面积失业，怕人民币暴跌……
+俄罗斯因乌克兰的殊死抵抗恼羞成怒，不仅开始轰炸平民区，侵占核电站，一座煤电厂、一座水电站大坝还有废弃的切尔诺贝利核电站，也已经被俄占领。
 
-中共真的是在关心民生吗？错，是关心自己的政权不稳定，是怕造成大面的反抗对整个政党有压力，是为了墙头上的照片被摘下，是为了不能够享受特权生活。
+编辑/总编/审核：飞虹
 
-拥有几百万军队和武警部队，拥有数不尽的核武器，独裁中共却怕文字，怕就业，怕粮食，怕音乐，怕图片，怕看到外面的世界，怕国人看到了一切的真相，中共提出81个稳字，是81个怕，每天都在81难中煎熬，一个人或者一个团体生活在前怕狼后怕虎的环境中，其心理也是变态扭曲懦弱的，中共才是整日在提心吊胆中度过，如此委屈，为何不趁早解体？保全一条性命。
+新闻来源：[Maps: Tracking the Russian Invasion of Ukraine](Tracking%20the%20Russian%20Invasion%20of%20Ukraine)
 
-信息来源：[从政府工作报告看2022年中国发展新走向](http://www.81.cn/yw/2022-03/06/content_10137929.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

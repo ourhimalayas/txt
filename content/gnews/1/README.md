@@ -2,33 +2,38 @@
 ---
 
 
-## 普京：若乌克兰不放弃抵抗 将失去国家地位
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2115217/)
+## 标普和道琼斯指数正在剔除俄罗斯股票
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2115294/)
 
-翻译：Steven Hu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image1.jpg)
-图片来源：谷歌图片
+撰稿：纽约香草山 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
+3月4日，指数巨头标普道琼斯指数有限公司宣布，鉴于俄罗斯军事入侵乌克兰，并袭击欧洲最大核电站的行为，决定从基准指数中剔除所有俄罗斯的上市和注册股票，进一步将该国与全球经济隔离。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-519.png)
+标普道琼斯指数有限公司是道琼斯工业平均指数和标准普尔500指数的保管者。该公司表示，将把俄罗斯下调为新兴市场，归入一个独立的组别。并警告在下周三开盘前生效的剔除措施，也将会影响到俄罗斯的美国存托凭证ADR。
 
-《零对冲》2022 年 3 月 6 日，星期日 – 上午 04:20
+当天，纽约证券交易所以“监管问题”为由停止了三只俄罗斯ETF的交易。自俄罗斯军事入侵乌克兰的战争不断升级，西方国家对俄罗斯的金融制裁日趋严厉。
 
-正如我们之前详述的那样，俄罗斯总统普京在周六上午的讲话中对乌克兰战争提供了内容广泛的最新进展。描绘了一幅积极的画面，大概意思就是“一切都按照计划进行”，同时抓住机会表示若任何国家试图在乌克兰设立禁飞区，都将导致俄罗斯立即对该国宣战。
+新闻链接：
 
-据《纽约时报》报道，普京同时还警告乌克兰领导人，说如果“他们不停止他们正在做的事情”，将可能会失去“国家地位”。 这是普京第一次以如此直率和详细的方式表达克里姆林宫解决基辅问题的最终目标——而这是在西方对其是否已将乌併入俄罗斯联邦摆上桌面进行了很多猜测之后。
+[S&P Dow Jones is removing Russia stocks from indexes, stripping country of emerging market status](https://www.cnbc.com/2022/03/04/sp-dow-is-removing-all-russia-stocks-from-indices-stripping-country-of-emerging-market-status.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
 
-普京在莫斯科表示：“现任领导层需要明白，如果他们继续做他们正在做的事情，他们就会冒着未来乌克兰失去国家地位的风险。”  “如果发生这种情况，他们将不得不为此受到指责。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-早在上个月，就在全面入侵乌克兰前几天，普京签署了一项法令，正式承认乌克兰东部分离的顿涅茨克和卢甘斯克共和国独立。 自 2 月 24 日发动入侵以来，一些权威人士认为，这场战争最终可能会以分裂的乌克兰告终，沿着以利沃夫为中心的亲俄东部和亲西半部的路线。
+编辑：文真
 
-另一个令人大跌眼镜的言论集中在他上周对来自欧盟和美国的大量制裁的讲话上，包括对普京本人的制裁。他直言不讳地称制裁“等同于宣战”——这是俄罗斯领导人第一次用这样的言辞来谈论制裁问题，显示了用辞上的明显升级。 福克斯是这样报道的：
+总编：飞虹
 
-普京承诺“试图这样做的结果将不仅给欧洲，同时也给全世界带来灾难性后果”，并称西方对俄罗斯的制裁“类似于宣战”。
+审核：文真
 
-他说：“我们的提议已经摆在了与基辅的谈判桌上，希望他们会对此做出积极回应。”
+校正/发稿：浪迹天涯
 
-在他发表讲话后的几个小时内，乌克兰政府已确认准备在 3 月 7 日星期一进入第三轮停火谈判。在周四的第二次会议上，就地方停火达成了一致，以促进平民从交战城市撤离 . 例如在马里乌波尔（Mariupol），据报道停火持续了五个小时后又爆发了新的炮击。
-
-原文链接：[https://www.zerohedge.com/geopolitical/putin-threatens-ukraine-loss-statehood](https://www.zerohedge.com/geopolitical/putin-threatens-ukraine-loss-statehood)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

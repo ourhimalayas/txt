@@ -2,22 +2,36 @@
 ---
 
 
-## 谈古论今 | 辉瑞被判公布毒疫苗数据梗概
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2114659/)
+## 新闻述评：福布斯承认喜币是一场货币革命
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2114804/)
 
-撰稿：东京樱花团/谈古论今
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-512.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.reuters.com%2Fresources%2Fr%2F%3Fm%3D02%26d%3D20201119%26t%3D2%26i%3D1541703733%26r%3DLYNXMPEGAI02T%26w%3D800&amp;imgrefurl=https%3A%2F%2Fwww.reuters.com%2Farticle%2Fpfizer-covid-vaccine-delivery-1119-idCNKBS27Z064&amp;tbnid=qHmvHy0WdAtfeM&amp;vet=12ahUKEwisoPrSmbH2AhUMBMAKHYbuDFMQMygAegUIARCCAQ..i&amp;docid=QN8Djec53_t6kM&amp;w=800&amp;h=537&amp;q=%E8%BE%89%E7%91%9E&amp;ved=2ahUKEwisoPrSmbH2AhUMBMAKHYbuDFMQMygAegUIARCCAQ)
-一个由公共卫生和医疗专业人员成立的非盈利组织PHMPT（Public Health and Medical Professionals for Transparency）作为原告，于2021年9月向美国得克萨斯州北部地区法院提告了美国食品和药物管理局（FDA），诉讼内容是：要求FDA公开对于辉瑞新冠病毒疫苗安全审查的相关数据。但FDA表示公开信息需要55年的时间。PHMPT反驳说，55年后制造、批准和接种疫苗的当事人恐怕都死了，岂不死无对证了吗？
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-513.png)
-此案，德州地区法院审理顺利，判FDA败诉，责令FDA必须从2022年3月1日开始，发布对于辉瑞公司（Pfizer）的COVID-19疫苗“安全有效”相关的审查文件。当然，FDA会公布什么文件尚无法知晓，但是如果FDA避重就轻、造假、销毁任何文件的话，法律的严惩是逃不脱的。
+作者：东京樱花团｜捆绑CCP一千年
 
-现在，仅就一份有关“辉瑞疫苗不良反应”的9页报告足以令全世界的人震惊！因为报告中列出了1000多种疫苗不良反应！辉瑞疫苗试验研究阶段有46,000人参加了人体测试，竟然有高达42,000人有不良反应，占比93%。其中，死亡达1229人，占比2.6%。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新闻述评：福布斯承认喜币是一场货币革命.png)
 
-根据FDA的安全审查标准：试验药物后30天内只要有一例致死，人体实验必须终止。而辉瑞疫苗在临床试验阶段造成了1200例死亡，FDA竟然批准了辉瑞疫苗上市。这就揭开了全世界各国政府在强迫民众接种疫苗时强制签署免责合约的谜底。那么，生产毒疫苗的辉瑞公司、监管审批的美国食品和药物管理局、各国政府、病毒以及医学疫苗相关的知情的科学家们、被寡头控制的世界各大媒体、被大型科技公司控制的社交平台等等，在这个辉瑞疫苗惊天大案中各自扮演了什么角色？将承担怎样的法律责任？拭目以待！
+**喜马拉雅币拥有者使用喜支付以超过500万美元的价格成功购买极品迈凯轮F1赛车的交易被福克斯定义为一场数字货币的革命。喜币创建者MILES GUO先生表示， 它意味着喜币瞬间走向了数字货币的最顶端，这是一次永久性的认可，它被视为打开世界上最高端的数字货币之门。**
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+据《福布斯》美国（[Forbes](https://forbes.mc/)）4日最新消息，“由[Himalaya Exchange](https://himalaya.exchange/)开发并新推出的数字货币支付应用程序[Himalaya Pay](https://himalaya-exchange.zendesk.com/hc/zh-cn/categories/360003360498-Himalaya-Pay-%E5%8A%9F%E8%83%BD)，帮助一位买家以500多万美元的价格购买了埃尔顿·塞纳([Ayrton Senna](https://en.wikipedia.org/wiki/Ayrton_Senna)) 迈凯轮（[1989 MP4/5 F1](https://en.wikipedia.org/wiki/McLaren_MP4/5)）的赛车。这款标志性的汽车是通过稳定币喜玛拉雅元（HDO）会员间点对点转账的方式购买的。”
+
+对于刚上线不久的Himalaya Pay支付系统，顺利完成这笔大额奢饰品交易的意义究竟有多大？喜马拉雅数字货币系统结构设计者郭文贵（MILES GUO ）先生评价说：“这是对所有喜币拥有者最好的奖励！这个象征性的意义太重要了，它瞬间从一个无名小辈的数字货币走向了数字货币的最顶端，这是一次永久性的认可，它被视为打开世界上最高端的数字货币之门。这笔交易的意义深远之处在于所有涉及到的车和购买者都是世界上最有信用和最具说服力的案例，这款车的拥有者是我心中的男神，男车神曾经被视为‘巴西永远活着的耶稣’。”
+
+MILES GUO上述评价并不为过，对于一款于2021年年底在美国上市的新兴数字货币——喜币（Himalaya Coin）来说，它的成长速度就像《[车手/名人堂](https://www.formula1.com/en/drivers/hall-of-fame/Ayrton_Senna.html)》评价埃尔顿·塞纳那样，“一位超凡脱俗的超级巨星像彗星飞驰而过一样”。确实如此，Himalaya生态系统的发展比预期的更快。
+
+喜币的迅猛成长用英国前赛车手[马丁布伦德尔](https://en.wikipedia.org/wiki/Martin_Brundle)评价天才车手埃尔顿·塞纳话比喻喜币一点都不为过。他说，“塞纳是个天才，他的能力高度到了几乎超出边缘的地步，这接近于神话。”这就是喜币，它的成长就是一个神话，且是触手可及的神话。
+
+福布斯这篇题为《[通过喜马拉雅交易所购买标志性的迈凯轮汽车提高了对加密货币的信任](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)》的文章很好地证明福布斯对财富嗅觉力的灵敏度。该文高度肯定了喜币的未来领军地位和价值，这一现实将继续扩展到我们的生活中。
+
+如果说，《福布斯》的观点认为，这场革命始于“一群叛逆者”创想的加密货币，那么喜币就是踩在“一群叛逆者”梦想的肩膀上，在“被比特币巩固后”，它纵身一跃，成为数字货币市场中飞速发展的领军者。“尽管我们对它们的未来还缺乏理解能力，但事实证明，它们是一种方便和安全的交易方式。”这一笔大额交易的实现，使人们的观点和交换事物的方式正在改变，尽管会有不确定性的可能，但它已为市场打开了一个全新的维度。随着越来越多的机构接受它，这种稳定、完全、私密的货币支付方式正在成为市场争抢的“钻石”。
+
+随着俄乌战争带给世界极不确定的未来，喜币的价值得到凸显，它正在给人们提供安全的金融港湾的作用，同时给人们带来了意想不到的改变——人们对未来世界财富观和价值观的颠覆。正如《福布斯》援引《[财富商业观察](https://www.fortunebusinessinsights.com/industry-reports/cryptocurrency-market-100149)》所描述的那样，“2020年全球加密货币市场规模为8266亿美元，预计到2028年将以11.1%的复合年增长率增至约1. 9万亿美元。许多行业预计加密货币将成为未来货币的重要组成部分，并开始接受它们进行商业交易。”因此，这笔发生在奢侈品名车收藏市场领域的交易，注定成为一个历史性的事件。
+
+尽管还有很多人不知道这个加密货币——喜币，但这一新的资产类别已发展成“任何机构投资者或政府都不能再忽视它”的地步。正如《福布斯》透露的那样， “这款支付应用的第二个版本正在开发中。通过它，用户将能够在全球范围内进行即时加密货币转账，安排自动支付，并使用所有类型的数字货币与独家零售商购物，且不产生任何中间费。”
+
+2022年3月5日
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

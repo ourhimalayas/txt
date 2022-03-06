@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/6/2022 1:30 PM (UTC)`
+
+2022年3月6日 文贵大直播：新中国联邦营救行动意义；共产党给华人带来的危险；未来排华及保护华人安全；俄乌战争爆发与世界经济
+![img](https://media.gettr.com/group34/origin/2022/03/06/12/bba14d65-b462-fd60-8a48-5274dce2e7b3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/6/2022 8:17 AM (UTC)`
 
 【Ukraine Rescue】03/05/2022 David interviews a Chinese rescued by the first NFSC rescue bus from Ukraine<br/><br/>【乌克兰救援行动】03/05/2022 大卫采访被第一辆NFSC乌克兰救援巴士救出的中国同胞
@@ -147,15 +154,6 @@ Children of the New Federal State of China pray for the peace of Ukrainian Peopl
 
 3/4/2022 Miles Guo’s GETTR: Thank you fellow fighters for sending me messages on the third anniversary of my mother's death! Fellow fighters’ saving lives on the front line is a great reward for my mother! The kindness of Chinese women embodied by my mother is the foundation of the Chinese nation. However, the CCP has brainwashed Chinese women and made them unwelcome in the world.<br/><br/>3/4/2022 文贵盖特：感谢战友们在文贵母亲冥诞三周年发信息过来！战友们在前线救人是给我母亲很好的回报！我母亲所体现的中国女性的善良是中华民族的基础，但中共却把中国女人洗脑成不受待见的人<br/>
 ![img](https://media.gettr.com/group12/getter/2022/03/04/23/c94790cd-2f93-8b32-437c-a4556b3fb651/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@rockvision 3/4/2022 7:14 PM (UTC)`
-
-#鸡血快报<br/>#鸡血王喜币大作战<br/>#战友威廉王<br/>
-![img](https://media.gettr.com/group34/gvision/2022/03/04/19/75712785-2a7e-e266-de79-9afd29590ba5/out.jpg)
 
 ---
 

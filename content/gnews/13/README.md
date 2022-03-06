@@ -2,23 +2,26 @@
 ---
 
 
-## 联合国：乌战是二战以来欧洲爆发最快难民危机
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2115033/)
+## 秘翻在线：俄军攻击民宅造成无辜的乌克兰平民死伤惨重
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2115146/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/poland-ukraine-russia-conflict-101530.jpg)联合国难民事务高级专员格兰迪说，自乌克兰战争暴发以来，超过150万名来自乌克兰的难民被迫背井离乡，进入邻国寻求庇护。（法新社）
-（早报讯）自乌克兰战争爆发以来，超过150万名来自乌克兰的难民被迫背井离乡，进入邻国寻求庇护。
+撰稿：文贺JP
+![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-8.jpg)图片来源：卫报
+乌克兰紧急救援队报告称袭击造成奧夫魯赫市15户民宅被毁。
 
-联合国难民事务高级专员格兰迪周日（3月6日）在推特上说：“10天内有超过150万来自乌克兰的难民进入邻国。”他说，这是二战以来欧洲爆发最快的难民危机。
+从当地政府了解到，奥夫鲁赫市以南小镇克罗斯登也遭遇袭击，因火箭弹造成1人死亡、2人负伤、10户民宅被毁、1栋房屋被烧毁。紧急救援队从一片废墟的地下室中救出5名儿童。
 
-联合国官员说，随着俄罗斯军队加加强攻势，特别是向首都基辅的进攻。他们预计这一难民潮将进一步加剧。
+笔者认为针对平民发动袭击不是军事冲突，而是侵略战争。
 
-波兰边防军周日说，自俄罗斯2月24日入侵以来，共有92万2400人从乌克兰逃往波兰。匈牙利、摩尔多瓦、罗马尼亚和斯洛伐克也有数以万计乌克兰难民抵达。
 
-原文链接：[https://www.zaobao.com.sg/realtime/world/story20220306-1249520](https://www.zaobao.com.sg/realtime/world/story20220306-1249520)
 
-审核校对：Barry Jack
-上传排版：F
+
+
+信息来源：[https://www.theguardian.com/world/live/2022/mar/06/russia-ukraine-war-biden-and-zelenskiy-discuss-more-support-for-ukraine-as-visa-mastercard-pull-out-of-russia-live](https://www.theguardian.com/world/live/2022/mar/06/russia-ukraine-war-biden-and-zelenskiy-discuss-more-support-for-ukraine-as-visa-mastercard-pull-out-of-russia-live)
+
+
+
+校正: Eric Kim
 
  
 
