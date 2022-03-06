@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/6/2022 10:14 PM (UTC)`
+
+3/06/2022 Miles Guo: The Chinese people have been attacked all over the world recently. Asian fellow fighters, especially women, should be careful. It is so difficult to clean Chinese people out of the toxics sowed by the CCP. Some people are too deeply brainwashed by the CCP to be saved, and there is no need to worry if anyone would believe in you when you spread the truth about the COVID vaccines.<br/><br/>3/06/2022 文贵直播：最近华人在世界各地遭袭击，亚洲战友尤其是女性要小心；给中国人排出中共种下的毒太难了，有些人被中共洗脑太深是没法救的，传播疫苗真相也不用在乎对方信不信<br/>
+![img](https://media.gettr.com/group20/getter/2022/03/06/22/e3cfa105-4b2e-1904-1269-22d839f2141c/out.jpg)
+
+---
+
 `@miles 3/6/2022 10:02 PM (UTC)`
 
 3/6/2022 Miles Guo: The US court ruling requiring FDA to release the documents related to the Pfizer COVID vaccine is something that the U.S. government can't even stop. The New Federal State of China has taught us what it means to have strength. Only with media platforms and wealth， we will be able to reveal and spread the truth!<br/><br/>3/6/2022 文贵直播：美国法院要求FDA公布辉瑞疫苗文件的判决是美国政府都无法阻挡的；新中国联邦让我们知道什么叫实力，要有媒体和财富才能有真相！<br/>
@@ -145,15 +152,6 @@ Ukrainian American actively involved in this Ukrainian rescue operation of the N
 
 Children of the New Federal State of China pray for the peace of Ukrainian People. Let’s heal the world for our generations and generations. <br/>新中国联邦的小朋友们为乌克兰人民祈祷，希望他们早日脱离战火，祈求世界和平！
 ![img](https://media.gettr.com/group14/origin/2022/03/05/04/57aa4591-4b8c-7e3c-4fb2-032075d14e1c/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@miles 3/5/2022 4:31 AM (UTC)`
-
-二月二龙抬头，太和殿的门倒了，啥兆头啊？
-![img](https://media.gettr.com/group21/gvision/2022/03/05/04/879ca73a-b30d-076e-bba0-106fcc0c7c32/out.jpg)
 
 ---
 
