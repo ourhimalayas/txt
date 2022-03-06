@@ -2,26 +2,28 @@
 ---
 
 
-## 秘翻在线：欧洲25国150个电台同一时间播放反战歌曲声援乌克兰
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2113998/)
+## 秘翻在线：美乌总统再通电话共商对乌支援及对俄持续制裁
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2114002/)
 
 **撰稿：青衣**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-8.jpg)欧洲150个电台同时播放反战歌曲声援乌克兰（图片来自《希望之声》）
-欧洲25国的150个电台相约在同一时间一起播放约翰·列侬的著名反战歌曲《给和平一个机会》，以此表达对乌克兰的声援。发起人表示，这是为了展示团结，同时提醒世人不应对战争视而不见。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/22-3.jpg)
+乌克兰总统泽伦斯基3月6日再次与美国总统拜登通电话，共同商议对乌克兰的安全与财政支援，以及对俄罗斯的持续制裁。德国智库专家表示，大规模制裁势必重创俄罗斯经济。
 
-据《中央社》报道，格林威治时间3月4日上午7点45分，包括乌克兰电台在内的150个欧洲电台同时播放歌曲《给和平一个机会》（Give Peace a Chance），以此表达对乌克兰的支持。
+据《阿波罗新闻网》3月6日报道，乌克兰总统泽伦斯基（Volodymyr Zelensky）发推文称，他已与美国总统再次对谈，谈话内容包括安全问题、对乌克兰的财政支援，以及继续向俄罗斯实施制裁。
 
-发起这次活动的欧洲广播联盟（European Broadcasting Union，EBU）表示，许多欧洲民营广播电台也自发加入了此次活动。包括乌克兰等国家在内的上百万户家庭、汽车与公共场所，都在同一时间响起这首著名反战歌曲。
+白宫也证实双方领导人再次通了电话，两人对谈了约30分钟。
 
-乌克兰电台第一频道（Channel One）执行制作人塔巴成柯（Yurii Tabachenko）对欧洲广播联盟同事的支持表达了感谢。 他说：“今天，欧洲围绕着乌克兰而团结，这真的很重要。”
+白宫表示，拜登与泽伦斯基通电话时说，很高兴看到Visa和万事达卡（Mastercard）等国际信用卡公司暂停在俄罗斯业务的决定。拜登总统在电话中还表示，他的政府正在增加对乌克兰安全、人道主义和经济援助，并与国会密切合作，以确保获取额外资金。
 
-《给和平一个机会》这首歌收录于1969年出版的《塑料小野乐团》（Plastic Ono Band），该专辑是约翰·列侬离开“披头士”后发表的第一张专辑。
+对于欧美国家向俄罗斯祭出史无前例的经济和金融制裁，德国智库学术暨政治基金会（Stiftung Wissenschaft und Politik）东欧专家克鲁格（Janis Kluge）认为，如此大规模的制裁措施势必会重创俄国经济，俄民间不满情绪会继续升高，进而进一步动摇普京的领导地位。
+
+据克鲁格预计，西方接下来可能将会对俄国实施石油禁运。
 
 **新闻链接：**
 
-[https://www.cna.com.tw/news/aopl/202203050011.aspx](https://www.cna.com.tw/news/aopl/202203050011.aspx)
+[https://m.soundofhope.org/post/600202](https://m.soundofhope.org/post/600202)
 
-[https://www.soundofhope.org/post/600046](https://www.soundofhope.org/post/600046)
+[https://www.aboluowang.com/2022/0306/1717134.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2022/0306/1717134.html?utm_source=dlvr.it&amp;utm_medium=twitter)
 
  
 

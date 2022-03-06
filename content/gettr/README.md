@@ -17,10 +17,10 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 3/6/2022 12:44 AM (UTC)`
+`@miles 3/6/2022 8:17 AM (UTC)`
 
-【Ukraine Rescue】03/05/2022 David interviews a Chinese rescued by the first NFSC rescue bus from Ukraine<br/><br/>【乌克兰救援行动】03/05/2022 大卫采访被第一辆NFSC乌克兰救援巴士救出的中国人
-![img](https://media.gettr.com/group33/getter/2022/03/06/00/fe2ab465-f0da-257b-d301-a5d935ee8e91/out.jpg)
+【Ukraine Rescue】03/05/2022 David interviews a Chinese rescued by the first NFSC rescue bus from Ukraine<br/><br/>【乌克兰救援行动】03/05/2022 大卫采访被第一辆NFSC乌克兰救援巴士救出的中国同胞
+![img](https://media.gettr.com/group43/getter/2022/03/06/08/c0197123-cdca-c12a-69ae-31331db938f1/out.jpg)
 
 ---
 
