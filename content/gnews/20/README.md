@@ -2,26 +2,20 @@
 ---
 
 
-## NewSGman┃台湾大停电 （ 3月3日）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2113789/)
+## 拜登总统与泽连斯基总统通电话
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2113865/)
 
-撰稿：东京樱花团/NewSGman
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-498.png)[图片来源](https://www3.nhk.or.jp/news/html/20220226/k10013502381000.html)
+美国总统拜登与乌克兰总统泽连斯基5日通电话。
 
-3月3日上午台北市、新北市及苗栗台中、台南、高雄等多个县市纷传出停电情況。
+据白宫称，会谈持续了大约30分钟，拜登总统对信用卡巨头“VISA”和“万事达”在俄罗斯停止服务的消息表示欢迎。
 
-全台湾无预警大停电交通设施无法使用多人被困电梯。
+拜登总统重申了他对俄罗斯军方袭击乌克兰扎波罗热核电站的担忧，并讨论了俄罗斯和乌克兰之间的停火谈判。
 
-银行作业受阻。
+信息来源：[バイデン大統領とゼレンスキー大統領が電話会談](https://news.yahoo.co.jp/articles/efb33da61ebd6d8db9ac7ddd483224f654154994)
 
-总统府表示因高雄兴达电厂开关场事故导致南部地区电力供需失衡。
-
-总统府发言人张惇涵表示，蔡总统已指示会尽速厘清完整事故原因于最短时间向各界报告，并尽速恢复供电。
-
-台电紧急召开供电状况说明新闻发布会。
-
-盖特链接：[https://gettr.com/post/pxvy4h5557](https://gettr.com/post/pxvy4h5557)
-
-*编辑：东京樱花团/喜马拉雅的微尘
+*校对：东京樱花团/知了知了
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  

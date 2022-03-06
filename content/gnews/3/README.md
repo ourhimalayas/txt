@@ -2,26 +2,39 @@
 ---
 
 
-## 视频|俄罗斯战俘呼吁俄军士兵不要做炮灰
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2114171/)
+## 挑战在即。美“人民车队”已抵达华盛顿之前最后一站：马里兰
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2114217/)
 
-制作：香草山视频部
+作者： 香草山农场教育部—霍比特人
 
-3月4日，据盖特消息显示，被乌克兰俘获的俄罗斯士兵近日陆续通过视频向外界传递出他们被蒙骗出战以及其自身对战争的拒绝。
+据《雅虎新闻》和《每日邮报》报道，美“人民车队”即将给美国警方带来挑战。该车队几天前离开南加州前往华盛顿特区。他们效仿加拿大“自由车队”(Freedom Convoy)的模式，后者在渥太华市中心封锁了三周，以抗议加拿大的强制疫苗政策。
 
-这些俄罗斯士兵表示，他们在出战前根本不清楚这次战争的对象和性质，而他们对此的任何疑问则全部遭到上级长官粗暴的拒绝与封口。更有士兵提到，直至进入乌克兰后他们才清楚，这次战争的目的是为了侵略乌克兰，而不是“解救”乌克兰民众。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220306b.png)
 
-至于俄罗斯当局在交战中采取的手段，这些士兵证实，俄军不仅不会帮阵亡的将士收尸，甚至还会将伤残的俄军士兵就地处死并焚毁。
+“我们是美利坚合众国的人民，我们在自由的旗帜下站在一起——自由是把我们团结在一起的一件事，”人民车队网站上的一条信息说。“自由流淌在我们的血管里。”
 
-为此，这些俄罗斯士兵在视频中声明，他们实际上是受到了政府的欺骗，他们既不愿意侵略乌克兰，也不愿意成为这场独裁者战争的炮灰。这些士兵也向所有的俄军将士呼吁， 请大家不要再受政府的蒙骗，成为独裁者的牺牲品。同时，他们也号召俄罗斯人民站起来反对普京，停止这场毫无意义的战争，停止这场人类的灾难。
+警方一直在与这些组织的组织者联系。随着车队在全国各地的行进，参与者的数量不断变化中。车队拟于国情咨文演讲日抵达华盛顿。弗吉尼亚州警方正在监控弗吉尼亚州北部“可能影响交通的商业和客运车辆”。华盛顿大都会地区运输管理局周五表示，由于卡车车队的原因，本周末的地铁乘客可能会遭遇严重的延误和中断。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220306a.png)
+另外，华盛顿特区警方也不得不和美国特勤局和国会警察一起给星期二的国情咨文演讲提供安全保障，持续保持警戒。 随着乌克兰战事逐渐明朗化，和国情咨文演讲日正在临近，“人民车队”的进展越发令人关注。
 
-发稿：林礼
+参考链接：
+
+[https://www.youtube.com/watch?v=JNhe2kQ4Qs8](https://www.youtube.com/watch?v=JNhe2kQ4Qs8)[https://news.yahoo.com/truck-convoy-threatens-clog-dc-134415877.html?fr=sycsrp\_catchall](https://news.yahoo.com/truck-convoy-threatens-clog-dc-134415877.html?fr=sycsrp_catchall)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-5.png)
+
+编辑：霍比特人
+校正/发稿：霍比特人
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
