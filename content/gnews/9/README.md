@@ -2,37 +2,48 @@
 ---
 
 
-## 有声|乌克兰的紧急救援仍在继续
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2112386/)
+## 北约拒绝乌克兰禁飞区欧盟准备对俄罗斯实施更多制裁
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2112429/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月2日，郭文贵先生在大直播中与战友们分享新中国联邦在乌克兰的一次紧急救援行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10.jpeg)
-郭先生透露，一个重要战友的家人之前被困在乌克兰，秘密搜救团队在确认了战友家人的位置后发现，救援地点随时可能会面临俄军的轰炸。随后，郭先生断然决定，让直升机将求助者救出，但由于人员超载，一名搜救人员被迫暂时停留救援地。战友家人被救出后，直升机返回原处带回了那位搜救人员。救援结束后两个小时，该地被俄军的炮火夷为平地。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image001.jpg)2022 年3 月4 日，北约盟国在比利时与北约、七国集团和欧盟同行就俄罗斯入侵乌克兰和日益严重的难民局势举行会议。 法新社
+3月5日据RNZ报道，北约周五拒绝了乌克兰关于保护其天空免受俄罗斯战机攻击的呼吁。北约担心被拖入莫斯科对其邻国的战争，但是，欧洲承诺实施更多制裁以惩罚俄罗斯总统普京。
 
-鉴于目前乌克兰局势日益恶化，新中国联邦救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+乌克兰总统弗拉基米尔·泽连斯基（Volodymyr Zelenskiy）曾呼吁北约宣布在乌克兰上空设立禁飞区，俄罗斯军队于2 月24 日从陆、海、空入侵了该地区。
+
+北约秘书长延斯·斯托尔滕贝格在否认乌克兰的请求时说：
+
+“我们不是这场冲突的一部分，”
+
+“作为北约盟国，我们有责任防止这场战争升级到乌克兰以外，因为这将更加危险、更具破坏性，并会造成更多的人类苦难，”他还表示，最糟糕的情况还没有到来，因为俄罗斯正在推出更多重型武器。
+
+虽然西方谴责普京，但30 人的北约成员国在受到攻击时必须互相保护，但他们对与拥有核武器的俄罗斯开战持谨慎态度。欧盟威胁要实施更多制裁。
+
+七国集团国家则表示，他们将追究应对战争罪行负责的人的责任，并且不会承认俄罗斯的任何领土收益。
+
+[【援引链接】](https://www.rnz.co.nz/news/world/462761/nato-rejects-ukraine-no-fly-zone-eu-readies-more-russia-sanctions)
 
 
 
-文字版原文：[乌克兰的紧急救援仍在继续](https://gnews.org/zh-hans/2106566/)
+**推出问题，敲出真相，爆料在路上！**
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+**请关注和订阅我们的以下账号：**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+**玫瑰看新闻YOUTUBE账号**：
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**玫瑰看新闻**
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+**黑森林的故事**
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

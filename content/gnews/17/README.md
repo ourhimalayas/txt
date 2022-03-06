@@ -2,24 +2,31 @@
 ---
 
 
-## 第三轮谈判 ：和谈？俄罗斯和乌克兰周一会晤
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2112170/)
+## NFSC新闻、G|TV新闻访谈简报|2022年3月5日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2112309/)
 
-**莫斯科和基辅的代表团正在筹备周一的第三次会议。目前尚不清楚具体情况。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-1.jpg)
 
-作者：afp/chg
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-5.png)
+文章仅代表作者本人观点，与Gnews无关
 
-翻译：Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-6.tiff)图片：周四举行的第二轮谈判 /BelTA/Maxim Guchek
+视频参看：
+[2022.03.05早 《NFSC新闻》](https://gettr.com/streaming/pybvk730cc)
+[2022.03.05早 G|TV《新闻访谈》](https://gettr.com/streaming/pybnpg2f62)
 
-据乌克兰代表团的一名成员说，乌克兰和俄罗斯之间的第三轮会谈将于周一举行。“第三轮谈判将在周一进行，”乌克兰执政的人民公仆党的议会领导人大卫·阿拉卡米亚周六在脸书上公布。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-在乌克兰和俄罗斯的第二轮谈判中，双方于周四同意建立人道主义走廊，让平民离开战斗区。基辅要求的停火被莫斯科的谈判代表拒绝。俄罗斯于2月24日对乌克兰发起了侵略战争。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-4.jpeg)
 
-相关链接：[https://www.berliner-zeitung.de/news/friedensgespraeche-russland-und-ukraine-treffen-sich-montag-li.215471](https://www.berliner-zeitung.de/news/friedensgespraeche-russland-und-ukraine-treffen-sich-montag-li.215471)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-发布：Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
