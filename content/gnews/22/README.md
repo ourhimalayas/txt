@@ -2,24 +2,30 @@
 ---
 
 
-## 联合国：乌战是二战以来欧洲爆发最快难民危机
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2115033/)
+## 再接再厉 继续行动
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2115186/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/poland-ukraine-russia-conflict-101530.jpg)联合国难民事务高级专员格兰迪说，自乌克兰战争暴发以来，超过150万名来自乌克兰的难民被迫背井离乡，进入邻国寻求庇护。（法新社）
-（早报讯）自乌克兰战争爆发以来，超过150万名来自乌克兰的难民被迫背井离乡，进入邻国寻求庇护。
+撰稿：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
+在3月4日晚新中国联邦法治基金乌克兰人道救援行动大直播中，针对很多希望参与的战友存在的种种问题，主持人给予了详细的分析和指导。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-516.png)
+首先，我们确实还需要50个甚至更多的战友参与到救援行动中。其次，后续报名的战友要确保有至少两周的时间可以在波兰持续工作，并且需要有波兰的签证或者其他许可。最后，希望参与的战友不要私信，要根据提示填写表格报名。
 
-联合国难民事务高级专员格兰迪周日（3月6日）在推特上说：“10天内有超过150万来自乌克兰的难民进入邻国。”他说，这是二战以来欧洲爆发最快的难民危机。
+新闻来源：[新中国联邦法治基金乌克兰人道救援行动-纽约救援团出发和土耳其现场救援团](https://gettr.com/post/py8k3mecdc)
 
-联合国官员说，随着俄罗斯军队加加强攻势，特别是向首都基辅的进攻。他们预计这一难民潮将进一步加剧。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-波兰边防军周日说，自俄罗斯2月24日入侵以来，共有92万2400人从乌克兰逃往波兰。匈牙利、摩尔多瓦、罗马尼亚和斯洛伐克也有数以万计乌克兰难民抵达。
+总编：飞虹
 
-原文链接：[https://www.zaobao.com.sg/realtime/world/story20220306-1249520](https://www.zaobao.com.sg/realtime/world/story20220306-1249520)
+校正/发稿：浪迹天涯
 
-审核校对：Barry Jack
-上传排版：F
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

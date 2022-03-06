@@ -2,31 +2,51 @@
 ---
 
 
-## 澳大利亚将拨款100亿澳元建造新的核动力潜艇基地并提高远程打击能力
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2115218/)
+## 西喜时事新闻简报 — 台湾时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2115396/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-522.png)图片来自网络
-澳大利亚将在东海岸将建造一座价值100亿澳元的潜艇基地，来支持未来的核动力潜艇，以提高澳洲的战略威慑能力。
+**编译：wenwu**
 
-包括普京在内的专制独裁者威胁要摧毁和平与稳定的世界秩序，因此，总理莫里森认为澳大利亚现在需要增加国防开支以保护国家的未来。
+1.[台湾各地报告停电](https://www.taiwannews.com.tw/en/news/4460516)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip台湾停电.png)3月3日台湾新闻办公室停电。（台湾新闻图片）
+据《台湾英文新闻》2022年3月3日电，台湾各县市在周四（3日）早上9点开始报告不明原因的停电，台湾电力公司（台电）人员目前正在调查原因；台北的许多地区都受到影响，甚至在总统办公室前的仁爱路也出现了停电，而台湾中部和北部也出现了滚动停电。
 
-澳大利亚强烈支持乌克兰的主权和领土完整。莫里森先生强烈谴责俄罗斯对乌克兰的入侵，称它严重违反了国际法，是对自由的攻击。
+2.[美国参议员提出制裁法案以阻止中共国入侵台湾](https://www.taiwannews.com.tw/en/news/4460686)
 
-这场危机不但对欧洲的政治和经济产生深远的影响，还将不可避免地延伸到印度太平洋地区。莫里森总理认为澳洲现在面临着80年来最危险和最具挑战性的安全环境，并准备对澳洲的军事能力做出重大升级。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip美国国会大厦.png)美国国会大厦（美联社照片）
 
-除了建造核潜艇基地外，澳洲还将加强远程打击能力，以提高空中、陆地和海上的打击效果。澳大利亚将成为为数不多的能在战场上使用战斧导弹以及其他尖端打击能力的国家之一。
+据《台湾英文新闻》2022年3月3日电，美国参议员（里克·斯科特、凯文·克莱默和约翰·肯尼迪）周三（2日）联合提出一项法案，如果中共国攻击台湾，将（30天内）对其实施金融制裁或在军事上改变台湾的治理地位；肯尼迪说，美国不能让中共国有机会攻击它在印太地区的一个重要伙伴。
 
-总理莫里森将在洛伊研究所的演讲中公布这一计划。建立东海岸潜艇基地的决定已经酝酿多年，是澳大利亚从柯林斯级潜艇向核动力潜艇过渡的一部分。
+3.[中共国军舰4天内三次出没在台湾兰屿海域](https://www.taiwannews.com.tw/en/news/4460771)
 
-该东海岸基地将为潜艇提供专门的码头、维修设施、行政和后勤支持。它还可以为美国和英国的核动力潜艇定期来访提供方便。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip东部战区.png)微博，东部战区摄
 
-新的潜艇基地的建立将是自20世纪90年代在北领地建造罗伯逊军营以来首次建造的一个大型新基地。初步工作预计将在2023年底前完成。
+据《台湾英文新闻》2022年3月3日电，周三（2日）晚间，在距离兰屿岛（Orchid Island）东南海岸50海里处发现了三艘中共国人民解放军海军（PLAN）军舰；次日上午8点，这些军舰在兰屿岛东南方向80海里处，被认为进入了巴什海峡（Bashi Channel）；周一（28日）晚上，三艘解放军军舰出现在距离兰屿岛海岸35海里的地方（四天内最接近该岛）。
 
-消息来源：[New $10bn subs base to be built](https://www.news.com.au/national/politics/new-10b-subs-base-to-be-built/news-story/939db7f4711ee18aae95b0ade01036ae)
+4.[台湾总统为美国前国务卿蓬佩奥授勋](https://www.taiwannews.com.tw/en/news/4460814)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip蔡英文与彭佩奥.png)蔡英文总统向美国前国务卿蓬佩奥授予灿烂之星勋章，中央社照片
+据《台湾英文新闻》2022年3月3日电，蔡英文总统周四（3日）向美国前国务卿蓬佩奥授予灿烂之星（Order of Brilliant Star）勋章，以代表台湾人民感谢他为促进两国关系所做的贡献（取消了对两国政府官员之间接触的限制，并使武器销售正常化）。
 
-[PM’s chilling warning to Australia on ‘arc of autocracy’ amid China, Russia tensions](https://www.news.com.au/world/europe/pms-chilling-warning-to-australia-on-arc-of-autocracy-amid-china-russia-tensions/news-story/c6302f13123e715d73b92d8409d0b5ec)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
+5.[台湾停电是由高雄电厂的故障引起的](https://www.taiwannews.com.tw/en/news/4460586)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip新塔电厂.png)新塔电厂开关场机组紧急停机时蒸汽逸出。（台电摄）
+据《台湾英文新闻》2022年3月3日电，周四（3日）上午9点，台南市和高雄市的整个地区开始停电，而该国中部和北部地区也出现了滚动停电；已知受影响的地区包括台北市、台中市、桃园市（台积电）、高雄市、基隆市、新北市、花莲市、基隆市和台南市；台电官员：位于高雄市永安区的新塔电厂的一个开关站触发自我保护机制，导致南部电网与电厂断开连结，这造成了1050万千瓦的瞬间损失。
+
+6.[滴滴在中共国民族主义网民的强烈反对下，重新进入俄罗斯市场](https://www.taiwannews.com.tw/en/news/4460994)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip滴滴总部.png)滴滴北京总部（美联社照片）
+
+据《台湾英文新闻》2022年3月3日电，中共国叫车软件滴滴公司于2月21日宣布，它将从3月4日起[停止](https://qz.com/2136255/chinas-tech-giants-face-a-domestic-backlash-for-exiting-russia/)在俄罗斯市场的运营，这导致民族主义网民以[司马南](https://weibo.com/simanan)（微博账户有280万粉丝）为首对其展开批评：滴滴的行动如此之快，以至于领先于美国对俄罗斯的制裁；在他提出批评的几个小时内，滴滴在自己的微博账户上发布了一个更新，表示留在俄罗斯。
+
+* * *
+
+***审核：Aries的星
+校对：信心满满
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-3.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

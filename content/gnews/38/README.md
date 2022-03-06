@@ -2,51 +2,54 @@
 ---
 
 
-## 应泽连斯基总统请求，Visa和万事达中止在俄罗斯的所有业务
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2113621/)
+## 比起Steve Wynn、Broidy、Higginbotham, PAG毛都不算
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2114575/)
 
-#### 【雅典娜观察】和您一起洞察世界
+Youtube视频链接：[https://youtu.be/UZFJyYAJMz4](https://youtu.be/UZFJyYAJMz4)
 
-翻译：文扬
-编辑：文泓
+**郭文贵先生：**所以我说：“共产党是没睾丸的，那有什么睾丸呐。”我说：“这帮垃圾那有什么睾丸，都是吃伟哥的是吧。”我说在这个世界，他把“龙头”变成“龟头”，你想想TPG，PAG，单伟建，这种流氓行动。单伟建是王岐山的马仔，康点的哥们，到今天在西方的渗透，他对我们越攻击，他造的假文件越多，他未来他倒霉越大。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-26.png)图片来源：Bega DistrictNews & 雅典娜设计组
+你们忘了吧，2016年，15年、16年、17年，比他牛叉的人是谁呀？Higginbotham美国建国以来最大的司法部腐败的案子，仅仅一个律师就七千多万美元，到了中共所谓驻华盛顿大使馆去勾兑，被后是谁？Steve Wynn。Steve Wynn不比你PAG大多了？Elliott Broidy要拿30亿美元搞我。孙力军、孟建柱、王岐山、康典、马云、“钥匙澜”老公——找班农去要把“钥匙澜”送给班农去。然后美国当时时任总统Donald Trump，“Miles Guo！Miles Guo！rape everybody，rape everybody。”——我强奸全世界所有人。
 
+“噢，给我签这个字啊，Miles Guo rape everybody，rape everybody。”班农说：“谁？谁？谁谁？你再说一遍Miles Guo 他咋强奸所有人了？”
 
-这个周六，世界著名的发卡机构Visa和万事达卡暂停了在俄罗斯的业务，因为俄罗斯入侵乌克兰而撤出该国市场。
+你想想当时的画面，是吧？你想想当时博明，你想想当年司法部长Sessions，大早上起来的七点钟给美国总统做简报。结果川普拿过来：“哎，把那个给我签一下啊。”那个律师Kruse（音）超级好，白宫律师，说：“什么？你要签这个？你签了这个，你就完了，你就得离开白宫。这是犯罪，你没权力签这个。”
 
-在一份声明中，Visa首席执行官艾尔·凯利谴责战争是“对和平与稳定的持续威胁”。
+然后说：“哎别别，这是我们最重要的人，你怎么能签这个？你签了你就完了。”
 
-他写道：“在俄罗斯无端入侵乌克兰，以及我们所目睹的不可接受的事件发生之后，我们不得不采取行动。很遗憾这将对我们尊贵的同事以及我们所服务的客户、合作伙伴、商家和持卡人产生影响。”
+“是吗？”他说“你知道他是你马阿拉哥会员吗？”他说：“是吗？”——他都不知道。
 
-**该声明称，Visa将与其在俄罗斯的客户和合作伙伴合作，在未来几天内立即停止所有交易，在俄罗斯境外发行的Visa卡在该国将不再有效。**
+“他就是那个郭文贵，Miles Guo。你要签的这个，强奸everybody的人就是Miles Guo。”
 
-万事达卡也在一份声明中写道，他们将因入侵事件而停止在俄罗斯的业务。
+Steve Wynn，Elliott Broidy，Elliott Broody老婆律师，Higginbotham、司法部副部长等，还有华尔街什么Blackstone。你去想想全人类多牛哇，PAG 算个鸟毛啊它算个。
 
-声明称，**万事达卡将不再支持俄罗斯银行发行的卡，在该国境外发行的卡将不再能在俄罗斯商户或自动提款机上使用。**
+当时把七哥要被撂倒……你去想想当时，当时啊，当时给欧洲的人打电话，给中东的某国家打电话说:只你能把郭文贵给弄回来，一切交易可谈。
 
-声明说：“我们的决定不是轻率做出的，万事达卡在俄罗斯经营超过25年。我们在那里有近200名同事。在我们采取这些措施时，我们将继续关注他们的安全和福祉，包括继续提供薪酬和福利。”
+编辑整理：Jacques；
 
-据美联社报道，在乌克兰总统泽连斯基在与美国立法者的电话会议中提出请求，会后数小时Visa和万事达卡作出决定终止在俄罗斯的服务。
+字幕文件制作：兵嫂；
 
-这一决定迅速得到了一些美国立法者的赞扬。
+视频制作及上传：Cindy；
 
-“在参议员罗恩·约翰逊和我呼吁所有主要信用卡公司立即关闭在俄罗斯的服务后，Visa和万事达卡已经这样做了”，佛罗里达州共和党人里克·斯科特参议员写道：“其他主要的信用卡公司应该效仿，并且所有公司都应该将这一行动扩大到包括白俄罗斯。”
+G-News发布：小满；
 
-**包括PayPal在内的其他金融公司也已经结束了在俄罗斯的服务。**Visa和万事达卡是世界上最大的金融机构之一，它们加入了撤出俄罗斯运营的公司名单，这增加了俄罗斯的财务压力。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-同样在周六，**时尚公司Zara和Puma宣布将停止在俄罗斯的业务**，其他继续运营的公司都面临着与俄罗斯断绝关系的压力。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-原文链接：[Visa, Mastercard Grant Zelensky’s Request, Ban All Operations in Russia (newsweek.com)](https://www.newsweek.com/visa-mastercard-grant-zelenskys-request-ban-all-operations-russia-1685247)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-发布：tianzhihuan
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]HJapanGalaxyII推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

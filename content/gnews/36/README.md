@@ -2,38 +2,37 @@
 ---
 
 
-## 乌克兰救援03.05 如何报名参与新中国联邦乌克兰大救援？
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2114319/)
+## 波兰热舒夫市长支持新中国联邦乌克兰救援行动
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2114809/)
 
-撰稿：文字烧
-![](https://assets.gnews.org/wp-content/uploads/2022/03/的的Picture1.png)
-新中国联邦、法治基金乌克兰救援特别行动3月5日报道，乌克兰大救援正在紧张进行中，很多看了现场直播的战友也想参与到救援行动中，那如何报名以及需要哪些条件呢？
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+波兰当地时间3月5日，在新中国联邦波兰热舒夫救助站，救援前线总指挥大卫，采访了波兰热舒夫市长。
 
-**目前还需要50名以上的战友，所需条件是**：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-06-at-8.13.06-PM.png)
 
-1. 必须要有两周的时间可以待在前线；
-2. 一定要有入境波兰的签证、护照或者许可证；
-3. 特别需要会俄语、乌克兰语、德语、波兰语的战友。
+大卫首先代表新中国联邦、法治社会、法治基金和所有被救援的人，感谢热舒夫市长及波兰政府对救援行动的大力支持。
 
+当被问及，怎样看待俄乌战争和流离失所的难民时，热舒夫市长表示，21世纪发生这种战争是不可思议的。他每天都看到很多家庭支离破碎，很痛苦，也很难过。他呼吁各方政府立刻停止战争。
 
-**报名方式：**
+市长表示非常感谢全世界爱好和平的人，包括法治基金和法治社会的救援行动。并表示，对中共政府没有反对这场战争，感到非常失望。
 
-扫直播中的二维码填表报名，或填下表报名：
+参考链接：[乌克兰国际人道救援行动连线前线总指挥大卫…..](https://gettr.com/post/pybpq1f210)
 
-[https://docs.google.com/forms/d/e/1FAIpQLSfOtBItSadegaI7sYL-SzAmuzVCbmr3HC7oiDqKD06auVxRhw/viewform](https://docs.google.com/forms/d/e/1FAIpQLSfOtBItSadegaI7sYL-SzAmuzVCbmr3HC7oiDqKD06auVxRhw/viewform)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-温馨提示：
+编辑：Jack Li文阳
+总编：Zion文恩
+审核：Jack Li文阳
+校正/发稿：我不在这里
 
-1. 后台客服只会回复表格上符合条件的战友，如果没有回复，说明不符合条件。我们会根据您的情况评估到了当地是否有安全保障。
-2. 报了名却没有办法去的战友，可以在后方继续做物资供给、协调、文宣等维持农场正常运营的工作，大家都有力可出，有地方可以使劲。
-3. 请不要给前线的战友发私信报名，不管是前方的大卫哥，还是在后方做总调配的长岛哥，他们都没有时间处理私信。
-4. 我们不是去旅游，我们是去参加一场救人的战役，如果被选上，一定要作好心理准备。
-
-
-直播链接: [https://gettr.com/post/py8k3mecdc](https://gettr.com/post/py8k3mecdc)
-
-校对发布：Shifter
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

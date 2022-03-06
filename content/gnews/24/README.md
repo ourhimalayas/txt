@@ -2,35 +2,30 @@
 ---
 
 
-## 拜登政府将对中共国商品关税展开审查
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2114901/)
+## 新中国联邦在乌克兰租用大巴救人
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2115150/)
 
-**撰稿：日本东京方舟农场 北极**
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
+美东时间3月4日晚7点左右，新中国联邦法治基金乌克兰人道救援行动在盖特进行了一次大直播。在直播中我们看到，目前到达前线的队伍有英喜团队、纽伦堡团队，除去补给方面的救援，前线也现在开始租用大巴深入乌克兰内部去救人，截止到直播时间，已经救出一车被困人员。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-515.png)
+主持人战友向观众详细介绍了租用大巴救助人员的情况。
 
-据大纪元3月06日报道，美国即将对价值340亿美元的第一批中共国商品关税展开审查。
+编辑/总编/审核：飞虹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0122.png)图为美国加州长滩港集装箱运输。（图片来自大纪元）
+新闻来源：[新中国联邦法治基金乌克兰人道救援行动-纽约救援团出发和土耳其现场救援团](https://gettr.com/post/py8k3mecdc)
 
-根据《贸易法》第301条规定，进口商品关税在征收四年后到期，美国贸易代表办公室有权对其进行审查。审查需要在其可能结束前的60天内进行，第一批340亿美元的中国商品将在接下来的几个月内到期，即7月6日。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-即使在俄罗斯入侵乌克兰导致大宗商品供应收紧之后，拜登政府没有发出取消关税的计划的信号， 目前通胀率已超过7%，从能源到小麦的价格都在飙升。
+校正/发稿：浪迹天涯
 
-拜登总统保留了前任川普总统对中共国商品征收关税的政策。川普总统执政期间对中共国先后征收了4次关税：2018年7月份以来，美国先是对340亿美元商品征收25%关税，随后对160亿美元商品征收25%关税，然后扩大到对2000亿美元关税征收10%关税，到2019年5月再将2000亿美元商品的关税提升到25%。
-
-2020年初，川普总统和中共国家主席习近平达成协议，签署了第一阶段协议。中共同意增加对美国商品和农产品的购买，即比贸易战开始前多购买2000亿美元。
-
-但截止至协议约定时间，中共未能实现这些目标。追踪中共国采购情况的彼得森国际经济研究所高级研究员乍得·鲍恩（Chad Bown）表示，中共国可能只采购其承诺购买的商品的60%。
-
-拜登几个月前曾表示，这就是他保留关税的原因。
-
-参考链接：
-[https://www.epochtimes.com/b5/22/3/5/n13624781.htm](https://www.epochtimes.com/b5/22/3/5/n13624781.htm)
-[https://www.bbc.com/zhongwen/simp/business-48770168](https://www.bbc.com/zhongwen/simp/business-48770168)
-
-素材采编：北极
-编辑：青城道姑
-发布：Linda
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
