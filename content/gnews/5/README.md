@@ -2,32 +2,42 @@
 ---
 
 
-## Hpay完成交易迈凯伦赛车 喜马拉雅交易所初现锋芒
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2114422/)
+## 北京冬奥会及谷燕&amp;谷爱凌作秀是体育国家化政治化噩梦
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2114499/)
 
-整撰：奔跑吧黄小鸭
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-4.jpg)1989 年巴西大奖赛，艾尔顿塞纳（图右）和阿兰普罗斯特，迈凯轮 MP4/5 （图片来自https://www-snaplap-net.translate.goog）
-这是一项令人惊叹的数字货币交易，巴西车神埃尔顿-塞纳（Ayrton Senna）生前驾驶的迈凯轮 MP4/5在一个新推出的喜马拉雅支付应用程序（HPAY）上完成购买。这辆赛车与其驾驶者塞纳同样充满传奇色彩，深受F1车迷的追捧和爱戴，这笔价值逾500万美元的成功交易，使得喜马拉雅的品牌在全球数字货币交易市场上吸引到更多关注的目光。
+Youtube视频链接：[https://youtu.be/WkKnWGlhOYU](https://youtu.be/WkKnWGlhOYU)
 
-福布斯 (Forbes)杂志3月4日刊登了这则消息，报道指出，数字货币让人们估价和交换东西的方式发生了演变，并逐渐被证明它是一种方便和安全的交易方式。
+**郭文贵先生：**我觉得这个真的是谷爱凌的事件里边儿，它是体现了一个什么？就这个体育是国家体育，还是社会体育，还是个人体育之间的矛盾，在这件事上淋漓尽致。
 
-这几年，与人们日常生活密切相关的零售业正以惊人的速度走向数字化。据科技时报（Tech Time）报道，全球电子商务到2023年预计将增加到5.69万亿美元，这其中72%的销售额是在移动设备上进行的。
+希特勒1936年、斯大林1980年，整个的当时就是想把体育变成国家工具。国家体育，和集体体育，和个人体育之间的巨大冲突，那是二话不用讲的，是吧？一定是国家的政治体育赢过一切社会体育、社会团体。那个人你就轮不着你了，是吧？但是非常幸运的事情，1936年、1980年他们这些两个所有的恶魔都被消灭了，而且影响了人类的命运。** **
 
-越来越多的行业开始加入到全球数字化大军，相对高价值的汽车行业和奢侈品收藏品市场就是如此。由喜马拉雅交易所（Himalaya Exchange）开发并最新推出的支付应用程序（HPAY），已经成功完成了一笔埃尔顿-塞纳的迈凯轮1989年MP4/5 F1汽车的购买，该笔交易价格超过500万美金。这辆标志性的汽车是通过HPAY注册会员之间的转账私人购买的，买方使用是其账户上的稳定币喜马拉雅元（HDO）。
+今天在看到北京冬奥会的时候，又是一次国家体育和挑战、碾压、社会体育和个人体育的一场噩梦的开始。它也是个轮回，在某种程度都我们来讲是好事。看到谷燕和谷爱凌母女的这种表演和中国国家对整个尝试着把体育在政治化、国家化的一种表演，这么的愚蠢、这么的危险、但对爆料革命都是最好的消息。
 
-喜马拉雅集团使用中心化的管理和去中心化的技术，对注册用户实行严格的KYC入门，将交易所（Himalaya Exchange）与数字交易币（HCN）、稳定币（HDO）以及支付应用（HPAY）整合在一个平台上，这是唯一一个完全整合加密货币生态系统的平台。Hpay最新推出了手机的应用程序，HPAY能实现HCN和HDO在同一账户内或不同账户之间的快速流通，HDO只需要捆绑个人银行账户即可随时充值或提现。
+编辑整理：Jacques；
 
-喜马拉雅生态系统为全世界的企业和个人在加密货币的崛起中找寻到机会。该系统的无边界、包容性和安全性，可以随时随地交易你的资产。对于传统金融系统在跨地域使用法币的流通限制、强制性收取手续费、购买行为中交易双方被强制纳税等方面，喜马拉雅生态系统会员之间的合法、私密、快速交易的优势都会一一显现。尤其是未来喜马拉雅平台上即将出台的诸如贷款、保险等衍生性金融产品，还将带给注册会员更多值得期待的想象空间。
+字幕文件制作：兵嫂；
 
-埃尔顿-塞纳和迈凯轮 MP4/5在F1车迷的心目中都享有不可替代的位置，曾在1988年、1990年、1991年3度夺取F1世界冠军的塞纳，1989年驾驶着迈凯轮 MP4/5为他所在的车队赢得了F1冠军，不幸的是，塞纳在1994年圣玛利诺站的一场赛事中身亡。塞纳曾说过一句话：“我一直在寻找下一步，进入一个不同的世界，我以前没有去过的领域。驾驶大奖赛赛车很孤独，但很吸引人。我体验了新的感觉，我想要更多。这就是我的兴奋，我的动力。”
+视频制作及上传：Cindy；
 
-这辆赛车当之无愧是世界上最有价值的收藏品之一。这笔逾500万美元的数字货币交易，除了象征着向这位世界上伟大的赛车手和他的遗产致敬外，更表明人们对Himalaya Exchange，特别是HPAY报有的极大信心。通过Himalaya Exchange见证这样的高规格交易，反映出Himalaya生态系统不断创新的步伐，这也是赛车运动行业永恒的标志。
+G-News发布：小满；
 
-参考链接：
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-[Purchase Of Iconic McLaren Vehicle Through Himalaya Exchange Raises Trust In Cryptocurrencies (forbes.mc)](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[ETH 2.0 projects are set take the limelight in 2022 – Digital Journal](https://www.digitaljournal.com/business/eth-2-0-projects-are-set-take-the-limelight-in-2022/article)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
