@@ -2,38 +2,18 @@
 ---
 
 
-## 中共速度
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2114512/)
+## 墙内闹剧：民主不民主实践最有说服力，人民最有发言权
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2114535/)
 
-作者：纽约香草山教育部-蓝之灵（hortênsia)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中共速度捂嘴快
-真相真相不许传
-封网禁言莫转载
-喝茶警察上门来
-莫须有罪名按的快
-铁链铁笼关起来
-关起来
-没人权
-律师道义都掩埋
-真话真话不许谈
-封网禁言捂嘴快
-中共速度人人赞
-只有粉红嗨起来
+撰稿—水滴石穿
+校对/上传—无明逆流
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-10.jpg)
+中共国十三届全国人大五次会议大会发言人张业遂说，全过程人民民主有两个关键词：一个是“人民民主”，一个是“全过程”。中共国发展全过程人民民主不仅有完整的制度程序，而且有完整的参与实践。一个国家民主不民主，实践最有说服力，这个国家的人民最有发言权。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/122.jpeg)图片来源：sohu
+我的分析是：这发言人简直就是胡说八道，墙内的网络言论有严格的文字审查，稍有不慎就封号。中共国没有民主，能发言的是权贵、选举走过场、人选组织上早已经内定。昨天叫你只能生一个娃，今天就叫你生三个娃，“人民”这个词不过是中共当局用来掩人耳目的幌子罢了，还拿这个宣传，世界都笑掉了大牙，中共国最没有民主了，那里只有独裁、只有权力的世袭和傲慢！
 
-审核/编辑/发稿:qiutian（邱甜）
+文章来源：[民主不民主实践最有说服力，人民最有发言权](https://www.sohu.com/a/527271742_429139?editor=%E9%AB%98%E5%AF%92%20UN973&amp;scm=1104.0.0.0&amp;code=5aa62df30901ef434eb09ab8e22186e9&amp;spm=smpc.home.top-news1.16.1646405636533rmvsVc6&amp;_f=index_cpc_8)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,41 +2,27 @@
 ---
 
 
-## 谷燕&amp;谷爱凌事件敲响与共产党勾兑并玩弄世界者的警钟
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2114507/)
+## 澳洲国防部长彼得·达顿警告俄罗斯不要在乌克兰使用化学武器
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2114513/)
 
-Youtube视频链接：[https://youtu.be/gDD4cEUDTCY](https://youtu.be/gDD4cEUDTCY)
+By：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-510.png)图片来自网络
+由于俄罗斯对乌克兰的进攻遭遇到顽强的抵抗，其快速占领乌克兰的计划受阻，澳洲国防部长彼得·达顿警告说，普京可能对乌克兰使用化学武器，并表示如果对乌克兰领空设定禁飞区，可能会引发核冲突。
 
-**郭文贵先生：**另外一个就谷燕和谷爱凌这次的表演，她敲醒了全世界海外华人的一个最好的警钟。如果你不去认真思考，那噩梦绝对等着你呢。任何一个人你想再当谷燕，再当谷爱凌，我可以告诉你，你就什么不用想，你就等着墓地吧，你能有墓地去都不错了。
+乌克兰全国各地，特别是在基辅和哈尔科夫，乌克兰军队做出了出色的抵抗。但是考虑到俄罗斯强大的军力，以及普京使用化学武器的倾向，达顿先生对乌克兰的战况深表担忧，感觉俄罗斯最终夺取乌克兰可能不可避免。
 
-不会再有任何国家在网络时代，在一个这样的时代，让你谷燕和谷爱凌用着这种和共产党明显勾兑、漠视法律、漠视公平、玩弄世界、玩弄整个国家是不可能的。
+他说，鉴于俄罗斯的入侵行动未能按计划进行，使用化学武器已被列为普京的一个潜在选项。
 
-编辑整理：Jacques；
+达顿先生呼吁中共国对普京施加压力，他认为现在只有中共国能够改变普京入侵乌克兰的现状。
 
-字幕文件制作：兵嫂；
+美国驻联合国大使琳达·格林菲尔德也对俄罗斯可能在乌克兰使用生化武器感到担忧。
 
-视频制作及上传：Cindy；
+乌克兰请求禁止所有未经授权的飞机在乌克兰上空飞行，即设立禁飞区。然而，普京警告说，如果设立禁飞区，不仅对欧洲，对整个世界都将产生巨大的灾难性后果。
 
-G-News发布：小满；
+普京说，任何设立禁飞区的行动都将被俄罗斯视为该国参与了乌克兰的武装冲突。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+消息来源：[Defence Minister Peter Dutton says Ukraine no-fly zone could lead to ‘nuclear conflict’, warns of Russia’s chemical weapon arsenal](https://www.skynews.com.au/world-news/defence-minister-peter-dutton-says-ukraine-nofly-zone-could-lead-to-nuclear-conflict-warns-of-russias-chemical-weapon-arsenal/news-story/358194d4e7282f63cf577f209deeaf87)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
