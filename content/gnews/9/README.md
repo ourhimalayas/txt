@@ -2,27 +2,24 @@
 ---
 
 
-## 澳洲国防部长彼得·达顿警告俄罗斯不要在乌克兰使用化学武器
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2114513/)
+## 澳国防部长：竭尽所能阻止中共侵略 届时将送武器到台湾
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2114652/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-510.png)图片来自网络
-由于俄罗斯对乌克兰的进攻遭遇到顽强的抵抗，其快速占领乌克兰的计划受阻，澳洲国防部长彼得·达顿警告说，普京可能对乌克兰使用化学武器，并表示如果对乌克兰领空设定禁飞区，可能会引发核冲突。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/619e43f53371b.jpg)图片来源：新头壳newtalk
 
-乌克兰全国各地，特别是在基辅和哈尔科夫，乌克兰军队做出了出色的抵抗。但是考虑到俄罗斯强大的军力，以及普京使用化学武器的倾向，达顿先生对乌克兰的战况深表担忧，感觉俄罗斯最终夺取乌克兰可能不可避免。
+据新头壳newtalk3月6日报道，面对俄罗斯侵略乌克兰，国际社会密切观察中共是否也将会对台湾发动攻击。澳大利亚国防部长达顿（Peter Dutton）稍早表示，将会竭尽所能阻止中共在本地区的侵略行为，届时将运送武器来台湾。
 
-他说，鉴于俄罗斯的入侵行动未能按计划进行，使用化学武器已被列为普京的一个潜在选项。
+简评：郭文贵先生最早爆出普习冬眠会密谈后，普京下令俄罗斯入侵乌克兰，如今中共侵台的野心已是司马昭之心路人皆知。这是一场关乎人类命运的战争，援乌就是援己，助台就是助己，没有任何袖手旁观的理由！正义必胜！
 
-达顿先生呼吁中共国对普京施加压力，他认为现在只有中共国能够改变普京入侵乌克兰的现状。
+新闻来源：[新头壳newtalk](https://newtalk.tw/news/view/2022-03-06/719552)
 
-美国驻联合国大使琳达·格林菲尔德也对俄罗斯可能在乌克兰使用生化武器感到担忧。
+撰稿/发布：一叶知秋
 
-乌克兰请求禁止所有未经授权的飞机在乌克兰上空飞行，即设立禁飞区。然而，普京警告说，如果设立禁飞区，不仅对欧洲，对整个世界都将产生巨大的灾难性后果。
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
-普京说，任何设立禁飞区的行动都将被俄罗斯视为该国参与了乌克兰的武装冲突。
-
-消息来源：[Defence Minister Peter Dutton says Ukraine no-fly zone could lead to ‘nuclear conflict’, warns of Russia’s chemical weapon arsenal](https://www.skynews.com.au/world-news/defence-minister-peter-dutton-says-ukraine-nofly-zone-could-lead-to-nuclear-conflict-warns-of-russias-chemical-weapon-arsenal/news-story/358194d4e7282f63cf577f209deeaf87)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

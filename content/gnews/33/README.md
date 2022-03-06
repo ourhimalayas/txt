@@ -2,22 +2,36 @@
 ---
 
 
-## 中日财经爆┃万事达卡和VISA卡退出俄罗斯
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2113278/)
+## 英国记者遭俄军枪击后被乌克兰警方救出
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2113710/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-493.png)[图片来源](https://article-image-ix.nikkei.com/https%3A%2F%2Fimgix-proxy.n8s.jp%2FDSXZQO1671413006032022000000-1.jpg?ixlib=js-2.3.2&amp;w=638&amp;h=426&amp;auto=format%2Ccompress&amp;ch=Width%2CDPR&amp;q=45&amp;fit=crop&amp;bg=FFFFFF&amp;s=51cffaa7e90d20117ef2b1f1a0742709)
-3月5日，美国主要的信用卡公司维萨（VISA）和万事达（Mastercard）相继宣布将停止在俄罗斯的支付服务。除了对在俄罗斯发行的卡进行限制外，由境外金融机构发行的卡在俄境内也不能使用。采取这些措施都是对俄入侵乌克兰的回应，可能对消费者会产生普遍的影响。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-VISA公司首席执行官阿尔弗雷德·凯利在声明中表示，“俄罗斯对乌克兰的无端入侵以及我们所看到的不可接受的情况迫使我们采取行动，我们对影响到商家和持卡人感到遗憾，但对和平的持续威胁要求我们做出符合我们价值观的回应”。
+#### 整理：围剿维尼熊
+编辑：木木木mmmmm
 
-万事达卡在上月28日已宣布将几家俄罗斯金融机构排除在了其支付网络之外。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0154.jpg)来自：联合早报
 
-信息源：[我々は行動せざるを得ない…米ビザとマスターカード、ロシアでの決済停止](https://news.yahoo.co.jp/articles/b64a652adacbad999ff9ee3faefddd1e0f99033c#:~:text=%E6%8)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+根据联合新闻网3月5日报道，英国天空新闻首席记者拉姆塞（Stuart Ramsay）与四名同事在离开基辅的路上遭到俄军伏击，2人中弹，所幸没有生命危险。
+
+卫报报导，拉姆塞团队4日在准备离开基辅，在经过附近布察镇（Bucha）的一座检查哨时，他们搭乘的汽车突然遭到俄军开枪射击，结果拉姆塞的下背部中弹，另名摄影默克勒（Richie Mockler）则身中两枪，但都是打在防弹衣上。
+
+拉姆塞回忆，令他惊讶的是没有那么严重，反而比较像是被打了一拳。最终一行人设法从车里逃了出来，跳到路边的河堤下集合，接着躲进附近车库等待救援，数小时后被乌克兰警方救出。
+
+他们后来得知，朝他们开枪的是俄国侦查小队成员，拉姆塞表示，手法很专业，子弹不断地打在车上，没有失误。
+
+参考链接：[有惊无险！英5记者在基辅遭俄军埋伏2人中枪生还](https://udn.com/news/story/122663/6142689?from=udn-catebreaknews_ch2)
+
+*发布：wenly*
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,43 +2,55 @@
 ---
 
 
-## 新闻述评：乌克兰公开优待战俘令普京愤怒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2114333/)
+## 比起Steve Wynn、Broidy、Higginbotham, PAG毛都不算
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2114575/)
 
-作者：东京樱花团｜捆绑CCP一千年
+Youtube视频链接：[https://youtu.be/UZFJyYAJMz4](https://youtu.be/UZFJyYAJMz4)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新闻述评：乌克兰公开优待战俘令普京愤怒.png)
+**郭文贵先生：**所以我说：“共产党是没睾丸的，那有什么睾丸呐。”我说：“这帮垃圾那有什么睾丸，都是吃伟哥的是吧。”我说在这个世界，他把“龙头”变成“龟头”，你想想TPG，PAG，单伟建，这种流氓行动。单伟建是王岐山的马仔，康点的哥们，到今天在西方的渗透，他对我们越攻击，他造的假文件越多，他未来他倒霉越大。
 
-**乌克兰国防部表示允许被俘的俄罗斯人联系亲人，遵循日内瓦公约优待战俘，在网站公开战俘联系方式。这一举措激怒了克里姆林宫，并阻止俄罗斯人联系自己的亲人，怒斥乌克兰总统是新纳粹分子。**
+你们忘了吧，2016年，15年、16年、17年，比他牛叉的人是谁呀？Higginbotham美国建国以来最大的司法部腐败的案子，仅仅一个律师就七千多万美元，到了中共所谓驻华盛顿大使馆去勾兑，被后是谁？Steve Wynn。Steve Wynn不比你PAG大多了？Elliott Broidy要拿30亿美元搞我。孙力军、孟建柱、王岐山、康典、马云、“钥匙澜”老公——找班农去要把“钥匙澜”送给班农去。然后美国当时时任总统Donald Trump，“Miles Guo！Miles Guo！rape everybody，rape everybody。”——我强奸全世界所有人。
 
-据[乌克兰自由电台](https://www.radiosvoboda.org/a/news-poshuk-poloneni-rf/31737995.html)5日消息，“乌克兰国家安全和国防委员会的工作人员透露，他们正在创建一个“战俘营”网站，公布有关从 2022 年 2 月 24 日开始入侵乌克兰领土被俘的俄罗斯战俘的信息。”乌克兰国防委员会声明，将遵照“日内瓦公约”中《[战俘待遇公约](https://www.ohchr.org/EN/ProfessionalInterest/Pages/TreatmentOfPrisonersOfWar.aspx)》的规定，给他们食物、衣服和治疗，并保持正常状态。
+“噢，给我签这个字啊，Miles Guo rape everybody，rape everybody。”班农说：“谁？谁？谁谁？你再说一遍Miles Guo 他咋强奸所有人了？”
 
-消息称，国家安全和国防委员会打击虚假信息中心表示，俄罗斯战俘的亲属可以联系乌克兰国防部的代表，与自己被俘的亲人取得联系，并且俄罗斯公民，包括士兵家属或其熟人，可以在官网获取有关囚犯状况和下落的信息。
+你想想当时的画面，是吧？你想想当时博明，你想想当年司法部长Sessions，大早上起来的七点钟给美国总统做简报。结果川普拿过来：“哎，把那个给我签一下啊。”那个律师Kruse（音）超级好，白宫律师，说：“什么？你要签这个？你签了这个，你就完了，你就得离开白宫。这是犯罪，你没权力签这个。”
 
-- ***延展阅读：***[***乌克兰马里乌波尔市沦陷，俄军挟持了该市的40万平民***](https://www.pravda.com.ua/news/2022/03/6/7328636/)
+然后说：“哎别别，这是我们最重要的人，你怎么能签这个？你签了你就完了。”
 
+“是吗？”他说“你知道他是你马阿拉哥会员吗？”他说：“是吗？”——他都不知道。
 
-乌克兰国防部这一举措对俄罗斯普京政府颇具杀伤力，原因是这会瓦解俄军内部士气。根据[乌克兰在线新闻](https://www.pravda.com.ua/news/2022/03/4/7328078/)透露，“俄罗斯人权监察员塔蒂亚娜·莫斯卡尔科娃（Tatiana Moskalkova）呼吁红十字国际委员会帮助寻找和协助在乌克兰的俄罗斯战俘，希望确定被捕的俄罗斯军人的下落，并确保他们在国际法下得到乌克兰政府的保护和帮助，包括医疗权。”
+“他就是那个郭文贵，Miles Guo。你要签的这个，强奸everybody的人就是Miles Guo。”
 
-据称，这些被派往乌克兰作战的俄罗斯士兵自首后，乌克兰为他们提供医疗服务，并让他们有机会打电话给亲人。乌克兰还收集囚犯数据并将其发布在一个特殊的网上“[战俘营](https://invaders-rf.com/?fbclid=IwAR21EvNHKV7_F1JDokbFVL1PbqTXsjrJY81nj3O5mWiKWu8TQLUZ1cbPQuU)”上，以便他们的亲属找到他们的孩子、父母和孙子孙女。在通话过程中，战俘们对他们的亲属说，他们得到了很好的待遇，得到了医疗服务、食物和温暖，这一切都记录在照片和视频中。”
+Steve Wynn，Elliott Broidy，Elliott Broody老婆律师，Higginbotham、司法部副部长等，还有华尔街什么Blackstone。你去想想全人类多牛哇，PAG 算个鸟毛啊它算个。
 
-当确定乌克兰优待战俘消息后，俄罗斯普京政府崩溃了，他们采取了共产党一样的愚蠢做法，即阻止其公民获取真实信息，邪恶的普大帝试图阻止乌克兰网站发布俄罗斯士兵在乌克兰土地上被杀和俘虏的照片和视频，同时不让俄罗斯母亲将死去的儿子带回家。这一人道主义关怀彻底激怒了普京，[普京对着摄像头说，“乌克兰领导人为是‘一群吸毒者和新纳粹分子](https://www.pravda.com.ua/news/2022/02/25/7325841/)’。”这恐怕是普京向习近平学习到最好的谎言技巧之一——纳粹称反纳粹军为纳粹，并谎称“乌克兰大规模拘留抗议战争的人 ”。
+当时把七哥要被撂倒……你去想想当时，当时啊，当时给欧洲的人打电话，给中东的某国家打电话说:只你能把郭文贵给弄回来，一切交易可谈。
 
-- ***延展阅读：***[***乌克兰真理报 – 三千名美国退伍军人将为乌克兰而战***](https://www.pravda.com.ua/news/2022/03/6/7328675/)
-- ***延展阅读：***[***普京吁占领军推翻泽连斯基政府，建立军政权***](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220225-%E6%99%AE%E4%BA%AC%E8%A6%81%E6%9B%B4%E6%8D%A2%E4%B9%8C%E5%85%8B%E5%85%B0%E6%94%BF%E5%BA%9C-%E6%89%B6%E6%8C%81%E5%86%9B%E6%94%BF%E6%9D%83)
+编辑整理：Jacques；
 
+字幕文件制作：兵嫂；
 
-这是乌克兰军方在战时对待战俘问题上采取的最为积极透明的人道主义关怀政策，这也正是乌克兰采取与众不同的做法，开启了一场“直播战争”的手法，将侵略者的行为公布到互联网上，使正义不被谎言所掩盖，诸如普京向乌克兰军喊话这类谎言：
+视频制作及上传：Cindy；
 
-*普京说：“我再次呼吁乌克兰武装部队的军人：不要让新纳粹分子和卢德主义者利用你的孩子、妻子和老人作为人盾。把权力掌握在自己手中。看来，我们与你们谈判比与这伙在基辅定居并劫持整个乌克兰人民的吸毒者和新纳粹分子谈判更容易。”*
+G-News发布：小满；
 
-顺便提醒普京，习近平类谎言的本质是，[把本国发展进步的前途命运牢牢掌握在自己手中](https://news.bjd.com.cn/2021/11/27/10009927.shtml)，这类谎言的本质是共产主义 。共产党把权利看做生命，当它在向弱者喊话时，总是许诺权利，最后人们发现，把权力掌握在自己手中的不是人民，而是纳粹统治阶级——共产党。这就是中国共产党的本质，它继承了前苏联的谎言和纳粹主义思想，造成了今天全球性的人道灾难。如今，普京强人形象轰然倒塌，取而代之的是习近平式的谎言，在这场出师不利的战况下，普京对于乌克兰“优待战俘”做法感到恐惧。事实证明，天下独裁者都有一个共同点——害怕真相。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-2022年3月6日
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]HJapanGalaxyII推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
