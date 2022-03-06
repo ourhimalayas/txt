@@ -2,39 +2,38 @@
 ---
 
 
-## 盖特注册用户接近五百万
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2114811/)
+## 比利时人加入乌克兰志愿军
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2114826/)
 
-作者：纽约香草山农场 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-自由言论平台盖特，是有史以来发展最快的社交媒体平台。
+原文发布于2022年3月5日
 
-盖特在推出三天的时间内，就到达一百万的注册用户，并在2022年以50%的速度增长。目前，注册用户数已接近五百万。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-06-at-8.14.53-PM.png)
-盖特在上周又掀起一个大幅增长的奇迹。在美国，仅上周日，注册量增长了550%。上周，在盖特 CEO杰森-米勒访问欧洲期间，英国的注册人数增加了61%。知名作家多米尼克-珊缪尔斯在上周一，宣布了与盖特合作。
+翻译：Luckycky/校对:  蔚蓝的天
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image1-5.tif)图片：乌克兰士兵在顿涅茨克地区阿夫迪夫卡市被摧毁的工业区内。（档案照片：Will Vassilopoulos/AFP）
 
-在德国，米勒周五在科罗纳委员会的直播，浏览量达八万次。盖特在德国的注册人数增加了111%。
+现在去乌克兰的人应该很清楚，他们正在把自己的生命置于危险之中 – – 仅仅是开车穿过这个国家，更要面对俄罗斯军队。周四在布鲁塞尔的乌克兰大使馆前等待运送的第一批志愿者对此不抱幻想。他们出发时非常清楚，如果最坏的情况发生，他们将失去生命。
 
-在巴西，盖特上周的注册人数增加了33%。这在很大程度上，得益于盖特巴西战略合作伙伴媒体，对俄罗斯入侵乌克兰的报道。
+佛兰芒电视台在现场采访了几位人士。战争从来不是一个好主意，但阻止那些想要战争的人却是一个好主意，其中一名志愿战士说。
 
-七个月以来，盖特已经用实力和信誉，确立了作为一个自由言论社交媒体平台的地位。
+这群人组成也非常混杂：有与乌克兰没有任何联系的比利时人，也有有乌克兰血统的比利时人。曾服过役的人和没有受过任何军事训练的人。年轻人和成年人— 真的常不同，他们的动机也有所不同。
 
-参考链接：[每时每刻这个世界都在发生巨变……](https://gettr.com/post/pyagi05aed)
+当然，让他们团结起来的是，他们觉得普京的军队没有任何入侵的理由，换句话说，他们对这种不公正的行为感到愤慨，他们不想袖手旁观。对于那些有乌克兰血统的人来说，还有一个事实是，他们想拯救自己的国家免于被灭亡。这就是普京的目标，当他完成后，乌克兰将不复存在。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+**志愿者到达后，等待他们的是什么**
 
-编辑：Jack Li文阳
-总编：Zion文恩
-审核：Jack Li文阳
-校正/发稿：我不在这里
+志愿者们自己对抵达乌克兰后的情况也不甚了解。他们得到的唯一信息是，他们到达后将接受三到四天的军事训练。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+但也不确定他们是否会被立即派去参加战斗。一名经验丰富的士兵告诉《最新新闻报》，他想担任乌克兰军队的教官。一个年轻人想当医护人员，因为他在比利时已经做了很多年。加入国际部队的志愿者们希望以非常不同的方式发挥作用。
+
+事实上，人们可以容易地加入一支外国军队。这是由国际法规定的。
+
+作为一个国家的公民，可以加入外国武装力量。这样做的人都拥有 “特权战斗员”的身份。这意味着，只要他们不涉及战争罪，就不会因其行为被起诉。
+
+如果他们被俘，必须被当作战俘对待。但比利时志愿者并没有这样想。他们的目标是：平安归来。（dpa/hln/morgen/vrt/sh）
+
+原文链接：[https://brf.be/national/1581276/](https://brf.be/national/1581276/)
+
+发布：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
