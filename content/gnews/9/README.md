@@ -2,30 +2,10 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月6日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2116902/)
+## 3/6/2022 文贵直播：美国法院要求FDA公布辉瑞疫苗文件的判决是美国政府都无法阻挡的
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2116920/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-2.jpg)
-
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-6.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.03.06早 《NFSC新闻》](https://gettr.com/streaming/pyhdp036d0)
-[2022.03.06早 G|TV《新闻访谈》](https://gettr.com/streaming/pyhapk0906)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+秘密翻译组-北美组
 
  
 
