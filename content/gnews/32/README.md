@@ -2,16 +2,26 @@
 ---
 
 
-## 这个世界需要咱——新中国联邦
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2115320/)
+## 乌克兰大救援03.06 “新中国联邦乌克兰国际人道救援行动”的四组震撼数据
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2115540/)
 
-文贵大直播20220306
+撰稿：大浪小水花
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-06-at-9.13.10-AM.png)图片来源：GETTR
+在2022年3月6日大直播中，郭文贵先生透露了有关这次“新中国联邦乌克兰国际人道救援行动”的四种震撼性数据 ：
 
-撰稿：文仁（功成）Poplar（盘古）待命（樱花）
+一、在俄乌战争期间，全球唯一一个进入乌克兰战区救人的中国人的组织是新中国联邦。
 
-美工： 青山（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8.png)
-*发布：Theodosia*
+二、新中国联邦是是中国人中唯一一个，没有任何立场，没有政治任何诉求，去救助中国人、乌克兰人和世界各国友人的组织。
+
+三、真正在乌克兰内部救出很多中国人和外国人的组织只有新中国联邦。
+
+四、中国人现在在乌克兰最少有3万人，特别是工人，他们连通讯能力都没有，这些人都被CCP抛弃了。
+
+郭先生强调，他对这四组数据的真实性负全部责任。
+
+来源链接：[https://gettr.com/streaming/pyhtnya292](https://gettr.com/streaming/pyhtnya292)
+
+校对发布：Shifter
 
  
 

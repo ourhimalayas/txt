@@ -2,24 +2,35 @@
 ---
 
 
-## 【秘翻在线】由于接种需求下降，美国有数百万剂新冠疫苗被丢弃
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2116372/)
+## 有声|中共砖家松口称可能跟中共病毒共存
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2116421/)
 
-#### 翻译/撰稿：zzballack
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间2月28日，中共疾病预防控制中心的首席科学家曾光，在微博上发文称，“动态清零是特定的时期内的防疫对策，不会永远不变，在对发病、死亡容易容忍的情况下，与病毒共存是人类的长远目标”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/04-03-2022-2.jpg)图片来源网络
+这段发言，跟CCP一直以来鼓吹的“坚持动态清零”相悖，墙内关于该新闻的报道，几乎都已经被下架。 另据战友每日统计的墙内数据也表明，动态清零非但没有降低墙内的感染人数，并且还越是在中共严抓动态清零的时候，出现了单日确诊病例陡增的现象。
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-524.png)图片来源：路透社
-据《网关专家》（Gateway Pundit）3月5日报道，由于对新冠疫苗的需求急剧下降，美国数百万剂新冠疫苗已被丢弃。
 
-福克斯第5频道（Fox 5）报道说：“密歇根州有近150万剂、北卡罗来纳州有145万剂、伊利诺伊州有100万剂、华盛顿州有近72.5万剂尚未使用。随着全美许多地区对疫苗的需求剧减，各州正在争相清理库存剂量，以免它们过期，否则就只能丢掉。各州卫生部门说，他们已追踪到有数百万剂疫苗被浪费，包括那些过期的、装在多剂量瓶（multi-dose vial）中没有用完的、以及因温度问题或瓶子破裂等其他原因不得不扔掉的疫苗。”
 
-在加州，浪费的剂量比例只有大约1.8%，但对于一个已经收到8400万剂并使用了其中7100万剂的州，这相当于大约140万剂疫苗。加州公共卫生局说，该州的医疗机构被要求保留剩余剂量，直到它们过期，然后妥善处理它们。
+文字版原文：[中共砖家松口称可能跟中共病毒共存](https://gnews.org/zh-hans/2107904/)
 
-在线数据网站Statista的信息显示，截至2022年3月1日，大约76%的美国人已接种了至少一剂新冠疫苗，大约65%的美国人完全接种了疫苗。在完全接种者中，51%的人接种了加强针。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-这个事实表明已有越来越多美国人知道了新冠疫苗的真相，加上加拿大卡车司机在全球掀起的反对强制疫苗运动，新冠及其疫苗的官方叙事正在崩溃。辉瑞也不得不遵从法院命令，公开有关疫苗的真相报告，这会让更多人向疫苗说不，以及加快对参与了疫苗大屠杀这一反人类罪行的个人、企业和机构的追责。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-新闻来源：[Millions of Doses of Covid Vaccine Dumped as Demand Plummets](https://www.thegatewaypundit.com/2022/03/millions-doses-covid-vaccine-dumped-demand-plummets/)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

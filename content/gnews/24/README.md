@@ -2,20 +2,38 @@
 ---
 
 
-## 狮城快讯：后疫情时代的心理健康
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2115981/)
+## 布林肯警告中国：世界正在关注中国对俄乌战争的反应
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2116143/)
 
-**撰稿：银河精灵**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-06-233924.jpg)
-新加坡心理卫生学院与香港大学在2020 年至2021年之间，对1千多名本地市民做了一项心理调查显示多达百分之81.8的市民有意愿去寻求对于应对新冠病毒的心理辅导。本地一家保险公司也对受保人在2021年做过调查，10个人中9人有心理健康的困扰。
+撰稿：小湫
 
-疫情从阻断器3阶段到逐步开放再到疫苗接种差异化管理，天翻地覆地改变了我们的工作，生活与旅行模式。居家办公成常态，工作与生活没有分割，很多职员和身边朋友表示他们所在的私人企业借着居家办公以员工节省了出行时间为借口，加大了工作量。很多人感到焦虑，担忧患有新冠会加剧他们原有的基础疾病。身边人也受疫情影响感到迷茫，因为很多变故发生。疫情至今3年，很多人都没有出过国门或是回家探亲的机会。
+美国国务卿布林肯星期六对中国外交部长王毅说，世界正在关注中国和其他国家对俄罗斯入侵乌克兰的态度。  这次电话会议主题是讨论美国国务院所说的莫斯科对乌克兰发动的有预谋、无端和不公正的战争。
 
-对于疫情的阻碍我们没有选择，但是在受疫情严重困扰的世界，我们有权利选择和表达我们的需求和自主权。近期备受争议的疫苗差异化管理就完全夺走了我们拥有选择权的自由。先是限制我们不能去商场，剥夺消遣的自由。到最后不打疫苗就失去工作。很多身边的朋友同事全是被迫无奈之下打了疫苗。对于弹丸小国，近三年不能自由出国旅行，身体的受限加上长期的工作疲劳已经是很崩溃。但一个被体制所疏忽的人权问题，更是不容小觑。被夺走的选择权，让许多人感到无能为力。这种长期的身心压制还要随着政府对疫苗的疯狂推行延续，难以想象之后的未来会是怎样。作为科技和金融引领东南亚的新加坡，这个发达国家不得不小看后疫情时代必然爆发的一个最大的疫苗次生灾害——心理健康。
 
-**Reference link: **[https://www.straitstimes.com/singapore/health/imh-study-points-to-likely-increase-in-mental-health-issues-in-spore-amid-covid-19](https://www.straitstimes.com/singapore/health/imh-study-points-to-likely-increase-in-mental-health-issues-in-spore-amid-covid-19)
+![此图像的alt属性为空；文件名为Secretary-of-State-Antony-Blinken-Poland-Ukraine-Refugees.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/Secretary-of-State-Antony-Blinken-Poland-Ukraine-Refugees.jpg)
+图片来自网络
 
-[https://www.aia.com.sg/content/dam/sg/en/docs/press-releases/2021/aia-health-matters-survey-2021.pdf](https://www.aia.com.sg/content/dam/sg/en/docs/press-releases/2021/aia-health-matters-survey-2021.pdf)
+美国国务院发言人内德·普莱斯(Ned Price)在一份声明中说:“国务卿指出，全世界都在关注哪个国家支持自由和主权的基本原则。”
+
+布林肯强调，世界正在一致行动，反对俄罗斯的侵略，确保莫斯科将付出高昂的代价。
+
+布林肯周六还与波兰外长兹比格涅夫·劳(Zbigniew Rau)就两国合作帮助其共同盟友乌克兰进行了交谈。 国务卿还参观了波兰的一个难民设施。
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GettyImages-1234277842.jpg)
+图片来自网络
+
+一名高级国防官员周四批评中国在俄罗斯军队发动致命导弹袭击一周多后对乌克兰战争保持沉默。尽管中国一再声称尊重一个国家的主权，但中国政府拒绝制裁或谴责俄罗斯的入侵。
+
+周三，在联合国大会通过一项谴责俄罗斯总统普京入侵俄罗斯并要求他立即撤军的决议时，中国投了弃权票，美国在内的其他141个国家投了同意票。
+
+在181个参加投票的国家中，只有5个国家——俄罗斯、白俄罗斯、厄立特里亚、北韩和叙利亚——反对该决议，35个国家弃权，其中包括中国。
+
+参考信息：
+
+Blinken tells China ‘world is watching’ response to Russia-Ukraine war
+
+![](https://lh6.googleusercontent.com/w8LMlCAeYCCPuKxveGdvcyeqg1Dd6HHwfVuUxJ34hpaMbTL0LD8zVPo5ACa3FuktSvFOIcmRQ-dNekv9ZFiBBUkbYOsSDApxh1ol6EeU7ac8c05cmsznH-u-3PJcLeMP0sErzQ3W)
 
  
 
