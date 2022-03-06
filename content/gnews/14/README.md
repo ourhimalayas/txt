@@ -2,22 +2,22 @@
 ---
 
 
-## 弗吉尼亚州提出突破性的数字货币银行法案
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2114612/)
+## 俄罗斯封锁脸书推特
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2114614/)
 
-作者：银河系农场 – 骄子
+作者：纽约香草山教育部 – Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月28日，弗吉尼亚州参议院通过了一项突破性的数字货币银行法案，这项法案允许那些有健全的协议来有效管理相关风险的银行，提供数字货币托管服务。
+3月4日，在不断镇压示威者和独立媒体的过程中，克里姆林宫封锁了对脸书和推特的访问。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-16.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-12.jpg)
 
-目前，因世界各国政府试图阻止俄罗斯使用数字货币来绕过制裁，导致数字货币的价格持续走高。该法案的提案人说，数字货币的托管服务是应该在立法上给予解决的，通过赋予国家特许银行某些能力，使其成为数字货币托管人，允许该银行持有私人加密货币钱包的钥匙，类似个人在银行拥有保险箱。
+俄罗斯电信监管机构表示，封锁脸书的决定是针对该平台对俄罗斯媒体的所谓 “歧视 “做出的，并列举了自2020年10月以来的26个案例。
 
-数字货币正在不断普及，鉴于其巨大的经济发展潜力，只有立法才是更持久的解决方案。此前，美国联邦银行监管机构表示，将在2022年澄清数字货币银行规则。
+脸书母公司元宇宙的全球事务总裁尼克·克莱格在推特上发表声明说：很快，数以百万计的普通俄罗斯人将发现自己被切断了可靠的信息来源，被剥夺了与家人和朋友联系的日常方式，并被压制住不能说话。我们将继续尽一切努力恢复我们的服务，使其继续为人们提供安全和有保障的表达自己和组织行动的机会。
 
 链接：
 
-- [Virginia advances groundbreaking cryptocurrency banking bill](https://www.foxbusiness.com/politics/virginia-groundbreaking-cryptocurrency-bill)
+- [Russia blocks Facebook and Twitter access](https://www.cbsnews.com/amp/news/russia-blocks-facebook-twitter/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)

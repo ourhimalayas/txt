@@ -2,51 +2,36 @@
 ---
 
 
-## Ammo公司向乌克兰武装部队捐赠100万发AK-47 a 762弹药
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2114728/)
+## 新闻述评：福布斯承认喜币是一场货币革命
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2114804/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+作者：东京樱花团｜捆绑CCP一千年
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新闻述评：福布斯承认喜币是一场货币革命.png)
 
-8天前，美国准备帮助乌克兰总统泽连斯基离开基辅，以免被入侵的俄罗斯军队俘虏或杀害，然而，泽连斯基拒绝离开他的国家。泽连斯基说，战斗就在这里，他需要反坦克的弹药，而不是逃跑的飞机。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/FMfarZbaAAI_QyO.jpg)
-正所谓得到多助，失道寡助，泽连斯基的勇敢和呼吁，乌克兰人民面对凶猛的外敌入侵表现出来的勇气，很快得到了回应。
+**喜马拉雅币拥有者使用喜支付以超过500万美元的价格成功购买极品迈凯轮F1赛车的交易被福克斯定义为一场数字货币的革命。喜币创建者MILES GUO先生表示， 它意味着喜币瞬间走向了数字货币的最顶端，这是一次永久性的认可，它被视为打开世界上最高端的数字货币之门。**
 
-2月28日，美国军火制造商Ammo公司（[AMMO, INC](https://ammoinc.com/)）宣布，向乌克兰武装部队捐赠100万发弹药，以支持他们为自由而战。Ammo公司首席执行官Fred Wagenhals说，“Ammo Inc.，我们作为美国人坚定地支持乌克兰的主权和独立，因为我们在任何地方都支持自由和民主。虽然我们热切希望迅速和平地解决危机，外交终将赢得胜利，但我们谴责俄罗斯的侵略及其对乌克兰领土完整和自由的威胁。我们认识到乌克兰当地局势正在迅速发展，我们准备尽快采取行动支持乌克兰，因为它继续捍卫自己和自由。”
+据《福布斯》美国（[Forbes](https://forbes.mc/)）4日最新消息，“由[Himalaya Exchange](https://himalaya.exchange/)开发并新推出的数字货币支付应用程序[Himalaya Pay](https://himalaya-exchange.zendesk.com/hc/zh-cn/categories/360003360498-Himalaya-Pay-%E5%8A%9F%E8%83%BD)，帮助一位买家以500多万美元的价格购买了埃尔顿·塞纳([Ayrton Senna](https://en.wikipedia.org/wiki/Ayrton_Senna)) 迈凯轮（[1989 MP4/5 F1](https://en.wikipedia.org/wiki/McLaren_MP4/5)）的赛车。这款标志性的汽车是通过稳定币喜玛拉雅元（HDO）会员间点对点转账的方式购买的。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-06_18-50-03.png)
+对于刚上线不久的Himalaya Pay支付系统，顺利完成这笔大额奢饰品交易的意义究竟有多大？喜马拉雅数字货币系统结构设计者郭文贵（MILES GUO ）先生评价说：“这是对所有喜币拥有者最好的奖励！这个象征性的意义太重要了，它瞬间从一个无名小辈的数字货币走向了数字货币的最顶端，这是一次永久性的认可，它被视为打开世界上最高端的数字货币之门。这笔交易的意义深远之处在于所有涉及到的车和购买者都是世界上最有信用和最具说服力的案例，这款车的拥有者是我心中的男神，男车神曾经被视为‘巴西永远活着的耶稣’。”
 
-Ammo公司，总部位于美国亚利桑那州斯科茨代尔（SCOTTSDALE,Ariz.），纳斯达克股票代码：POWW，是世界领先的高性能弹药和零部件垂直整合生产商和全球最大的枪支和射击运动行业在线市场GunBroker.com的运营商。
+MILES GUO上述评价并不为过，对于一款于2021年年底在美国上市的新兴数字货币——喜币（Himalaya Coin）来说，它的成长速度就像《[车手/名人堂](https://www.formula1.com/en/drivers/hall-of-fame/Ayrton_Senna.html)》评价埃尔顿·塞纳那样，“一位超凡脱俗的超级巨星像彗星飞驰而过一样”。确实如此，Himalaya生态系统的发展比预期的更快。
 
-AMMO公司成立于2016年，其愿景是改变、创新和振兴自满的军火行业。AMMO公司设计和制造适用于各种场合的产品，包括执法、军事、运动射击和自卫。AMMO公司推广品牌为STREAK™的视觉弹药、stelTH™亚音速弹药和军用穿甲弹。
+喜币的迅猛成长用英国前赛车手[马丁布伦德尔](https://en.wikipedia.org/wiki/Martin_Brundle)评价天才车手埃尔顿·塞纳话比喻喜币一点都不为过。他说，“塞纳是个天才，他的能力高度到了几乎超出边缘的地步，这接近于神话。”这就是喜币，它的成长就是一个神话，且是触手可及的神话。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-06_18-51-18.png)
+福布斯这篇题为《[通过喜马拉雅交易所购买标志性的迈凯轮汽车提高了对加密货币的信任](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)》的文章很好地证明福布斯对财富嗅觉力的灵敏度。该文高度肯定了喜币的未来领军地位和价值，这一现实将继续扩展到我们的生活中。
 
-3月2日上午6:50 MST，AMMO公司董事会成员和NASCAR传奇车手Richard Childress出现在“Fox&Friends”上，讨论AMMO最近为支持争取自由的乌克兰军队而向乌克兰武装部队捐赠的提议。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-06_18-53-25.png)
-3月4日，AMMO公司宣布，公司最近向乌克兰武装部队的捐赠提议，收到了来自股东、客户、供应商和合作伙伴的热烈响应，他们支持AMMO公司的捐赠提议，以帮助乌克兰武装部队争取自由。
+如果说，《福布斯》的观点认为，这场革命始于“一群叛逆者”创想的加密货币，那么喜币就是踩在“一群叛逆者”梦想的肩膀上，在“被比特币巩固后”，它纵身一跃，成为数字货币市场中飞速发展的领军者。“尽管我们对它们的未来还缺乏理解能力，但事实证明，它们是一种方便和安全的交易方式。”这一笔大额交易的实现，使人们的观点和交换事物的方式正在改变，尽管会有不确定性的可能，但它已为市场打开了一个全新的维度。随着越来越多的机构接受它，这种稳定、完全、私密的货币支付方式正在成为市场争抢的“钻石”。
 
-公司董事长兼首席执行官Fred Wagenhals感谢每个人的慷慨和愿意提供额外的财政支持来补充AMMO公司的努力，AMMO公司管理团队正在夜以继日地工作，以确保弹药迅速交付给乌克兰适当各方所涉及的后勤和法律复杂性。
+随着俄乌战争带给世界极不确定的未来，喜币的价值得到凸显，它正在给人们提供安全的金融港湾的作用，同时给人们带来了意想不到的改变——人们对未来世界财富观和价值观的颠覆。正如《福布斯》援引《[财富商业观察](https://www.fortunebusinessinsights.com/industry-reports/cryptocurrency-market-100149)》所描述的那样，“2020年全球加密货币市场规模为8266亿美元，预计到2028年将以11.1%的复合年增长率增至约1. 9万亿美元。许多行业预计加密货币将成为未来货币的重要组成部分，并开始接受它们进行商业交易。”因此，这笔发生在奢侈品名车收藏市场领域的交易，注定成为一个历史性的事件。
 
-据FOX NEWS报道，AMMO公司向乌克兰捐赠的是100万发AK-47 a 762弹药，可以装备33,000支枪支。
+尽管还有很多人不知道这个加密货币——喜币，但这一新的资产类别已发展成“任何机构投资者或政府都不能再忽视它”的地步。正如《福布斯》透露的那样， “这款支付应用的第二个版本正在开发中。通过它，用户将能够在全球范围内进行即时加密货币转账，安排自动支付，并使用所有类型的数字货币与独家零售商购物，且不产生任何中间费。”
 
-参考资料：
+2022年3月5日
 
-[Company with Manitowoc ties to donate ammunition to Ukraine army](https://fox11online.com/news/nation-world/company-with-manitowoc-ties-to-donate-ammunition-to-ukraine-armyy)
-
-[AMMO, INC](https://ammoinc.com/)
-
-[AMMO, INC. BOARD MEMBER AND NASCAR RACING LEGEND RICHARD CHILDRESS APPEARED ON ‘FOX & FRIENDS’ TO DISCUSS AMMO’S OFFER TO UKRAINE](https://ammoinc.com/2022/03/02/ammo-inc-board-member-and-nascar-racing-legend-richard-childress-appeared-on-fox-friends-to-discuss-ammos-offer-to-ukraine/)
-
-[ASCAR legend Richard Childress donating ammunition to Ukraine](https://video.foxnews.com/v/6299394753001?playlist_id=930909787001#sp=show-clips)
-
-[AMMO, Inc. Announces Overwhelming Response to Recent Donation Offer to Ukrainian Armed Forces](https://www.youtube.com/watch?v=hr4ceDGtPz4)
-
-[AMMO, INC. ANNOUNCES OVERWHELMING RESPONSE TO RECENT DONATION OFFER TO UKRAINIAN ARMED FORCES – DIRECTIONS TO DONATE AND SUPPORT AMMO’S CHARITABLE EFFORTS](https://ammoinc.com/2022/03/04/ammo-inc-announces-overwhelming-response-to-recent-donation-offer-to-ukrainian-armed-forces-directions-to-donate-and-support-ammos-charitable-efforts/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
