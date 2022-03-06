@@ -2,39 +2,30 @@
 ---
 
 
-## 中共国科技行业前景黯淡，阿里巴巴股价跌至新低
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2113557/)
+## 视频|母亲
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2113589/)
 
-#### ** 【雅典娜快讯】，紧贴时代脉搏**
+香草山视频：铭心
 
-#### 翻译：kl
-编辑：小红帽
+前几天在乌克兰······
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/alibaba.jpeg)图片来源： https://ph.news.yahoo.com/
+一名阵亡俄军士兵手机中发现的与母亲最后的对话：
+
+妈妈：儿子，你还好吗？你很久没有给我们发信息了，你们真的在演习吗？
+
+儿子：妈妈，我们不在克里米亚了，我们不是在演习
+妈妈：那在哪儿？？？你爸爸想给你寄个包裹
+儿子：我不需要那个，我想自杀
+妈妈：你在说什么？发生了什么事？
+儿子：妈妈，我在乌克兰，这是真的战争，我很害怕，我无论看到什么动静都会开枪，甚至平民，我们被告知会受到欢迎，但是人们冲上来用身体挡住我们的坦克不让我们通过，他们还叫我们法西斯，妈妈，我太难受了。
+
+当战争、灾难来临的时候，我们还能保护她吗？那个最挂念和最爱自己的人–母亲
+
+消灭共产党，拯救我们的母亲
 
 
-根据Nikkei  Asia报道，3月4日，阿里巴巴在港交所收盘下跌5.17%至99港元，较峰值下跌68%。在同样上市的纽约证券交易所，阿里巴巴的股票自2017年以来首次低于100美元，但收于100.60美元。
 
-其他在美国上市的中共科技股则出现回落。拼多多当天收盘下跌8.74%；京东下跌6.25%；百度下跌5.11%。这三家公司上市的科技股纳斯达克综合指数，收盘时整体下跌1.66%。
-
-腾讯是中共市值最大的科技公司，股价当天触及400港元，为2020年中以来的最低点。
-
-与此同时，恒生科技指数下跌4.4%至历史新低。
-
-阿里巴巴是美国首次公开募股最大记录的保持者，其下滑是在上周公布最慢季度收入增长之后。阿里巴巴12 月季度的收入增长了10%至2426亿元人民币（384亿美元）。季度财报显示，阿里巴巴大部分业务领域没有任何好转迹象。
-
-中共持续的监管不确定性正在推动整个科技和互联网行业走低。除了监管压力外，阿里巴巴近年来还面临着来自竞争对手京东和拼多多的激烈竞争，以及大多数中共国公司因经济放缓和冠状病毒而面临的不利因素。
-
-参考链接：[Alibaba shares sink to new low amid gloomy China tech outlook](https://asia.nikkei.com/Business/China-tech/Alibaba-shares-sink-to-new-low-amid-gloomy-China-tech-outlook)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+发布：qimendunjia
 
  
 

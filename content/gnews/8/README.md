@@ -2,30 +2,56 @@
 ---
 
 
-## 视频|母亲
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2113589/)
+## 基辅市长维塔利·克里琴科对俄罗斯人说：“回家吧”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2113599/)
 
-香草山视频：铭心
+Vitali Klitschko (Mayor of Kyiv)
+维塔利·克里琴科（基辅市长）
 
-前几天在乌克兰······
+Go back home, you have nothing to find here
+回家吧，你在这里什么都找不到
 
-一名阵亡俄军士兵手机中发现的与母亲最后的对话：
+We hope this night will be quiet
+我们希望这个夜晚会很安静
 
-妈妈：儿子，你还好吗？你很久没有给我们发信息了，你们真的在演习吗？
+We hope the Russians take the decision (to) move back to Russia
+我们希望俄罗斯人做出决定（要）撤回俄罗斯
 
-儿子：妈妈，我们不在克里米亚了，我们不是在演习
-妈妈：那在哪儿？？？你爸爸想给你寄个包裹
-儿子：我不需要那个，我想自杀
-妈妈：你在说什么？发生了什么事？
-儿子：妈妈，我在乌克兰，这是真的战争，我很害怕，我无论看到什么动静都会开枪，甚至平民，我们被告知会受到欢迎，但是人们冲上来用身体挡住我们的坦克不让我们通过，他们还叫我们法西斯，妈妈，我太难受了。
+They (have) nothing to find here in our home and
+他们（不会）在我们家中得到任何东西，并且
 
-当战争、灾难来临的时候，我们还能保护她吗？那个最挂念和最爱自己的人–母亲
+but I see so many people
+但我看到很多人
 
-消灭共产党，拯救我们的母亲
+We’re everybody proud of our army of Ukrainian(s)
+我们每个人都为我们的乌克兰军队感到自豪
 
+who defend our city, defend our homes, defend our family and
+他们保卫我们的城市，保卫我们的家园，保卫我们的家庭
 
+respect for everyone ready to fight, fight for our country
+尊重每个准备战斗的人，为我们的国家而战
 
-发布：qimendunjia
+原视频链接[https://twitter.com/nowthisnews/status/1498524179422793728?s=24](https://twitter.com/nowthisnews/status/1498524179422793728?s=24)
+
+Date:03/03/2022
+原视频标题:Vitali Klitschko, Mayor of Kyiv to Russians: ‘Go Home’
+基辅市长维塔利·克里琴科对俄罗斯人说：“回家吧”
+原视频日期：2022/03/01
+原视频链接https://twitter.com/nowthisnews/status/1498524179422793728?s=24
+任务编号：KE436（3892）
+视频时间段 : 0:00-0:37
+
+英听校; 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
