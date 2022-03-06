@@ -2,22 +2,29 @@
 ---
 
 
-## 勇敢正义的新中国联邦人是最受尊敬的人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2112885/)
+## Visa和MasterCard宣布停止所有在俄境内的交易活动
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2112992/)
 
-作者：东京樱花团/神的带领
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-37.png)
-昨天看盖特直播感动得直流水。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-4.jpg)Visa和MasterCard宣布停止所有在俄境内的交易活动 网络图片
+据俄罗斯卫星通讯3月6日报道，美国的Visa公司和MasterCard公司正式宣布，停止其在俄罗斯的业务。意味着所有在俄境内发行Visa卡和MasterCard卡发起的交易将无法再在境外进行，而任何在俄境外金融机构发行的Visa卡和MasterCard卡也将无法在俄境内使用。
 
-看见去前线的战友小sara神经抖擞干劲十足，充满斗志的出现在镜头前，讲述偶遇Nice公司的老板，觉得那么有钱的软件公司CEO也是去前线救人的，顿时觉得他的公司是世界最好的公司，也是最帅的CEO，小sara她们也讲述了自己是中国人，是新中国联邦人，是追求民主和平的人，是灭邪恶共产党的，这次也是去前线救新中国联邦人，中国同胞级世界友人和乌克兰的弱势群体。顿时迎来了CEO级机场所有人的掌声。那一刻在场的中国人得到了从未有的尊重与崇尚。
+俄罗斯国家支付卡系统代表此前还表示，如果俄境内被切断与Visa和Mastercard的联系，国际支付系统卡交易将由俄国家支付卡系统本身代替它们进行处理。
 
-接着就是妮可手拿新中国联邦国旗出现在镜头前，她面带笑容，看不出一点点的恐惧害怕，充满了自信也希望。她讲述了为了去前线救人，她把老板炒了。她去请假，说明自己是去前线救人，但是老板态度恶劣，各种层层报告繁琐手续最后还是不批，所以妮可毫不犹豫的辞职了。说到这里您还不知到，妮可的工作有多好。她在美国财政部工作，在中共国这可是削破脑子也难找的工作，可见妮可参加爆料革命与救人的决心。
+新闻参考链接：[https://sputniknews.cn/20220306/1039756894.html](https://sputniknews.cn/20220306/1039756894.html)
 
-不管是去前线的战友还是后方协作的战友都让我们无比的自豪与感动，每个战友都是一篇美丽的文章。
+* * *
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

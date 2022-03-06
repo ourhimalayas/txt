@@ -2,18 +2,49 @@
 ---
 
 
-## 蓝枫法律 第四十五期 法律你我她：数字货币所有权及相关法律 &#8211; PPT展示 &#8211; GETTR
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2113262/)
+## 故宫太和殿门倒的征兆与美成俄乌战争大赢家的原因
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2113400/)
 
-#### **加拿大温哥华扬帆农场蓝枫法律**
+#### 作者：顺其自然
+编辑：Mttfly
 
-直播视频链接：https://gettr.com/streaming/pyel018cd9
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-54.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-35.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-27.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/5-25.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-31.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/7-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/8-19.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/9-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/10-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/11-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/12-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/13-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/14-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/15-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/16-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/17-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/18-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/19-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/20-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/21-1.png)
-直播视频：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/ffe88b57e68fcc9b.jpg)图片来源：雅典娜设计组&视频截图
 
-[蓝枫法律 第四十五期 法律你我她：数字货币所有权及相关法律](https://gettr.com/streaming/pyel018cd9)
 
-编辑/发文：蓝枫法律栏目
+**北京故宫太和殿门被风吹倒的不祥征兆**
+
+在农历二月初二龙抬头那天，故宫太和殿的门竟然被风吹倒了。这在古代就是死皇帝、起战争、灭国家的征兆。
+
+太和殿俗称金銮殿，为北京故宫外朝三大殿中最南面的店。太和殿是中国现存最大的木结构大殿，位于故宫南北中轴线的显要位置。该殿是明清两朝北京城内最高的建筑，也是开间最多、进深最大和屋顶最高的大殿，堪称中华第一殿。太和殿是皇权的象征，皇帝登基、册立皇后等大典都在此举行。
+
+如今太和殿的大门竟然让风给吹倒了，这个门在风水上关系到运势。由于受中共的教育，之前我是不相信风水或者是鬼神的。但是随着年龄的增长，尤其是听了郭先生说了北京娘娘庙的那个事儿，身边又发生了很多比较奇怪的事情，然后就逐渐的相信了。
+
+哎，很不幸我有一个同学是做肾移植的，他曾经在我们一起吃饭时给我们讲了一个事情。他说所有做肾移植手术的病人，无论当时做的手术有多好，凡是在中元节和清明节那天做手术的，之后都会很快的死去。所以，我相信，鬼神之说也好，上帝在显灵也好，是有某个神秘的力量在控制着这个世界的。
+
+而现在的北京故宫，象征着皇权的太和殿的大门，竟然在二月二龙抬头那天被风给吹倒了，你想想，这是什么样的征兆呢？共产党习近平的末日真的到了。
+
+**美国是这次俄乌战争最大的赢家**
+
+俄乌战争已经进行到了第九天，双方还处于焦灼的状态。在这场战争当中，输家就不用说了，当然是乌克兰的老百姓和俄罗斯的普通民众。由于受到西方各个国家的制裁，普京本人及其亲信寡头也遭受了重大的经济损失。如果普京不能很快的拿下乌克兰，那他国内的经济和后勤补给绝对支撑不了长时间的战争。因为现代化的战争，后勤补给事关全局成败。俄罗斯开辟了多条战线进攻乌克兰，别说防范游击，就是每天这种消耗也会把俄罗斯拖死。
+
+那赢家是谁呢？当然是美国了。拜登在还没有开战的时候就宣布不会出兵。这给了俄罗斯的底气，去进攻乌克兰。俄罗斯在美国的资产十七万亿，美国肯定会想办法全部给冻结和没收。一部分未来可能会留给俄罗斯新政府，但美国也会留一部分。这样也就缓解了美国的财政压力，美国因疫情印的这些钱是不是都有出处了？
+
+在一个新闻发布会上，肯尼迪参议员气愤的说，拜登刚刚通过IMF给了普京180亿美元。我们在新闻中看到的都是拜登政府在制裁普京，但是拜登却给普京去送钱。意思就是说，普京你在乌克兰再接着打一打吧，我这边美元回流的还不够呢。
+
+这次俄乌战争，美国没费一兵一卒就把欧洲牢牢的捆绑在自己的战车上了。以前欧洲不是跟俄罗斯勾勾搭搭，就是跟中共勾勾搭搭，对美国是爱答不理的。欧洲让美国在北约出军费，然后呢，还不听北约的。现在可好，俄罗斯一入侵乌克兰之后，他们觉得不行，还得需要美国来保护他们，所以这些国家，又把自己牢牢地绑在了美国这辆战车上。
+
+另外俄乌战争还打击了欧元，因为现在欧洲属于战乱的地区，大家觉得还是美元比较好，所以呢，又让美元回流了美国，为加息做准备，而且还成功的转移了国内的矛盾。其实这次最大的赢家是金融财阀、军火商，从黄金、石油、军火上可是赚了大钱的。现在美元的、俄罗斯的债券狂跌，美国的对冲基金已经进场买了俄罗斯债券。
+
+无论是战争也好，和平时期也好，或者是病毒疫苗灾难也好，我们所有全球的老百姓都是被那一小撮人控制和耍弄的。全球普通的老百姓或是遭遇战争死亡，或是背负房贷终日做奴隶。但是，那一小撮人却可以大把大把的赚钱。
+
+*发布：tianzhihuan*
+
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

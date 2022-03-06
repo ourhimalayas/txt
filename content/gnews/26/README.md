@@ -2,10 +2,10 @@
 ---
 
 
-## 拜登：美国坚决捍卫北约的每一寸领土
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2112777/)
+## 美国将用GDP的2%投资到新兴技术和制造业，美国会腾飞
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2112780/)
 
-03/01/2022 拜登总统宣布美国会对乌克兰进行经济、军事、人道方面的援助。美国派部队前往欧洲不是去乌克兰参与战争，而是捍卫北约成员国的每一寸领土。
+03/01/2022 美国将用GDP的2%投资到新兴技术和制造业，美国会腾飞。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
