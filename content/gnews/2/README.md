@@ -2,13 +2,25 @@
 ---
 
 
-## 法国总统和普京通话后警告乌克兰将面临更糟糕境况
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2114786/)
+## 樱花灭共诗——罪己（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2114837/)
 
-03/03/2022 法国总统埃马纽埃尔·马克龙和弗拉基米尔·普京通话后警告，对于乌克兰来说，最糟糕的时刻还未到来。
+撰稿：东京樱花团/曲非烟
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/樱花灭共诗——罪己（新韵）1.png)
 
+武帝战匈奴，
+
+勒铭绝域途。
+
+荒村连万里，
+
+罪己诏难书。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/樱花灭共诗——罪己（新韵）2.png)
+*图片：东京樱花团/闪闪
+校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
