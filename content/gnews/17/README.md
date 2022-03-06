@@ -2,34 +2,147 @@
 ---
 
 
-## 关于营救台湾和大陆战友的最新信息
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2113626/)
+## 共产党不允许别人使用去中心货币，试图让世界的人使用中心化数字人民币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2113776/)
 
-世界上的所谓的普大帝习大帝，改变全球秩序的大战，让乌克兰人第一站付出了生命和鲜血。但是它却救了台湾人，看来应该是这样，如果是这样，我们更应该去救乌克兰人。
+世界上
+En el mundo
 
-**【郭先生直播摘要】2022.3.2 关于营救台湾和大陆战友的最新信息**
+这种巨变就在一年前
+Hace un año, este tipo de gran cambio
 
-**郭先生：**
+数字货币
+La moneda digital
 
-我们现在看到的是台湾，现在目前看来整个形势非常好的就是，这会回让所谓的习太阳真的是会杵，打台湾的问题，真的我们不希望。但是我们愿意看到，就是乌克兰人的第一战，世界上的所谓的普大帝习大帝，改变全球秩序的大战，让乌克兰人第一站付出了生命和鲜血。
+只有咱们新中国联盟告诉你从2000已经变成3万多亿
+Te digo, solamente nuestra Nueva Alianza de China desde 2000 hasta más de 3 billones
 
-但是它却救了台湾人，看来应该是这样，如果是这样，我们更应该去救乌克兰人。我们更应该去尝试帮乌克兰人。另外一个我们要想到，台湾这个地方，受万佛万神的庇护，那我们更应该在台湾这个地方让大家看到，有信仰有佛祖有信仰的国土，是被上天庇佑的。香港是我们的圣城，台湾是我们的佛教之城，是我们的佛城佛地圣地一样
+很快就变成4万多亿
+Pronto se convertirá en más de 4 billones
 
-我们更要感谢，在越是这种情况下我们要小心。
+从过去是一夜, 所有你查查那些所谓的中国网红
+Ha sido una noche del pasado, busca aquellas llamadas celebridades chinas en internet
 
-台湾的战友，我们现在去帕劳。昨天老班长安排的我跟当地的有影响力的人视频，昨天晚上九点钟，我跟他们视频。我明确的告诉他，你只要是待我们台湾同胞好，那你的未来将无限美好。我们一定会长期多方面跟你投资。而且我们要把帕劳和中国，源远流长的千年的关系，让它继续发展下去，而且没有欺骗。
+全部都认为数字货币就是假的
+Todos creen que la moneda digital es falsa
 
-我们澳洲的奥喜的，茱莉亚是牵线人，茱莉亚特别棒。这个昨天和前天，这样给台湾的所有朋友，以最快的速度，只要是有任何风吹草动，所有台湾的朋友租用的商务飞机，到帕劳落下来的，一切都是我们报销。到那里当地建立好当地的营救基地，包括国内的战友也可以去帕劳，我也没有去过这个地方，所以兄弟姐妹们到帕劳的，国内战友未来能去的也可以去。
+没有未来, 都是骗子
+No tiene futuro, son puros mentirosos
 
-我们台湾的战友还有日本的战友，银河系还有樱花系还有方舟魔女，要联合发展起来
+他就是那点儿脑子
+Este no tiene casi cerebro
 
-建一个紧急的救援站，有需要的请和联盟准时联系，一旦开战，那个地方是我们中转和避难的地方，营救台湾同胞的地方，大陆的有些同胞也可以去。我们战友哈，所以说现在希望台湾没有战争，但是老天爷佛祖保佑。
+就那点常识, 就那点常识
+Sólo un poquito de conocimiento básico
 
+他就看到那些所谓的谷歌网路
+Tan sólo vio en aquellas páginas llamado Google
 
+他没有任何创新和辨别真假, 识善恶的能力
+No tiene ninguna capacidad para innovar y discernir entre lo verdadero y lo falso, el bien y el mal
 
+全部
+Todo
 
+数字货币现在是什么情况
+Qué está pasando ahora con la moneda digital
 
-视频剪辑：GC |听写：雨山溪桥客| 翻译：Arthur | Proofread：Polaris | 视频制作+字幕：刀锋舞者| 编辑&发布：闪电训练
+全世界都在立法
+Todo el mundo está estableciendo leyes
+
+连美国科罗拉多州还有各参议员, 连纽约市长都接受数字货币付工资了
+Hasta Colorado de EE. UU, varios senadores e incluso el alcalde de Nueva York aceptan la moneda digital para pagar salarios
+
+佛罗里达要立法, 未来的30年最重要的经济就是数字货币
+Florida quiere legislación, la economía más importante en los próximos 30 años es la moneda digital
+
+德州现在微蓝和这个小福利待的地方
+Texas, el sitio donde están Weilan y Xiao fuli
+
+德州把它列为德州的未来
+Texas lo determina como su futuro
+
+现在这话觉得说得太轻
+Ahora parece demasiado ligero para decir
+
+说德州的未来在于数字货币, 已经不是德州的未来了
+Que el futuro de Texas depende de la moneda digital y ya no es solamente su futuro
+
+说德州的经济未来是德州的未来数字货币
+Se dice que el futuro económico de Texas es su futura moneda digital
+
+到这个程度, 连俄罗斯不允许任何人使用数字货币情况下
+Ha llegado a este nivel, incluso Rusia no permite que nadie utilice la moneda digital
+
+俄罗斯的国策未来如何讲究在数字货币上突破
+¿Cómo la política nacional de Rusia prestará atención a los avances en la moneda digital en el futuro?
+
+打破美国西方Swift美元的垄断
+Rompiendo el monopolio del dólar West Swift de EE.UU.
+
+就连邪恶的不可一世的中国共产党
+Hasta el malvado y poderoso PCCh
+
+迅速地立了法
+Promulgó rápidamente la ley
+
+你们谁也不能用去中心化货币
+Nadie de ustedes puede usar la moneda descentralizada
+
+我是唯一的中心化
+Soy el único centralizado
+
+你只能用数字人民币
+Solamente puedes utilizar el RMB digital
+
+它不让人家用, 他自己用一个
+No permite que otros lo usen, pero él creó uno
+
+这种不要脸
+Tan desvergonzado
+
+全中国人不能使用数字货币
+Todos los chinos no pueden utilizar la moneda digital
+
+但是只能我有数字人民币, 用我的
+Pero solamente yo puedo tener RMB digital, utilice el mío
+
+它忘了, 是吧
+Se le olvidó, cierto
+
+它真的是忘了, 这个世界上人呐
+Realmente se le olvidó, todas las personas de este mundo
+
+它不都是听你的
+No solamente escuchan de ti
+
+你只有14亿奴隶
+Sólo tienes 1.400 millones de esclavos
+
+世界还有很多人呢
+Todavía hay mucha gente en el mundo
+
+日期：02/27/2022
+原视频标题：共产党不允许别人使用去中心货币，试图让世界的人使用中心化数字人民币
+El Partido Comunista no permite que otros utilicen monedas descentralizadas, tratando de hacer que la gente del mundo use el RMB digital centralizado
+
+原视频网址：[https://gettr.com/post/pvtpt1aa27](https://gettr.com/post/pvtpt1aa27)
+
+原视频日期：02/21/2022
+原视频网址：https://gettr.com/post/pvtpt1aa27
+任务编号：3817
+视频时间段：0:00-02:04
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

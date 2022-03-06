@@ -2,28 +2,30 @@
 ---
 
 
-## Visa和MasterCard宣布停止所有在俄境内的交易活动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2112992/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月5日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2113176/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-4.jpg)Visa和MasterCard宣布停止所有在俄境内的交易活动 网络图片
-据俄罗斯卫星通讯3月6日报道，美国的Visa公司和MasterCard公司正式宣布，停止其在俄罗斯的业务。意味着所有在俄境内发行Visa卡和MasterCard卡发起的交易将无法再在境外进行，而任何在俄境外金融机构发行的Visa卡和MasterCard卡也将无法在俄境内使用。
-
-俄罗斯国家支付卡系统代表此前还表示，如果俄境内被切断与Visa和Mastercard的联系，国际支付系统卡交易将由俄国家支付卡系统本身代替它们进行处理。
-
-新闻参考链接：[https://sputniknews.cn/20220306/1039756894.html](https://sputniknews.cn/20220306/1039756894.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1-1.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+校对：Stay文苑
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+编辑：Stay文苑
 
+发稿：Stay文苑
 
+新闻：[https://gettr.com/post/pyf9rc53d8](https://gettr.com/post/pyf9rc53d8)
+访谈：[https://gettr.com/post/pyf2befaf2](https://gettr.com/post/pyf2befaf2)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-4.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

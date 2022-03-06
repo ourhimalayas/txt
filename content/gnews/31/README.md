@@ -2,29 +2,22 @@
 ---
 
 
-## 欧盟同意中止俄白参与波罗的海国家理事会活动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2113021/)
+## 中日财经爆┃万事达卡和VISA卡退出俄罗斯
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2113278/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-5.jpg)欧盟同意中止俄白参与波罗的海国家理事会活动 网络图片
-据自由亚洲电台3月5日报道，欧盟（EU）5日表示，“欧盟与波罗的海国家理事会（CBSS）其他成员（丹麦、爱沙尼亚、芬兰、德国、冰岛、拉脱维亚、立陶宛、挪威、波兰和瑞典）皆同意，中止俄罗斯和白俄罗斯参加理事会的活动”。这一决定是欧盟与同伴对俄罗斯入侵乌克兰，以及白俄罗斯参与这一侵略行为的回应。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-493.png)[图片来源](https://article-image-ix.nikkei.com/https%3A%2F%2Fimgix-proxy.n8s.jp%2FDSXZQO1671413006032022000000-1.jpg?ixlib=js-2.3.2&amp;w=638&amp;h=426&amp;auto=format%2Ccompress&amp;ch=Width%2CDPR&amp;q=45&amp;fit=crop&amp;bg=FFFFFF&amp;s=51cffaa7e90d20117ef2b1f1a0742709)
+3月5日，美国主要的信用卡公司维萨（VISA）和万事达（Mastercard）相继宣布将停止在俄罗斯的支付服务。除了对在俄罗斯发行的卡进行限制外，由境外金融机构发行的卡在俄境内也不能使用。采取这些措施都是对俄入侵乌克兰的回应，可能对消费者会产生普遍的影响。
 
-作孽者固然可恨，帮凶也同样不可饶恕。白俄罗斯为俄罗斯的侵略行为提供便利和帮助，当领受同样的制裁和追责。
+VISA公司首席执行官阿尔弗雷德·凯利在声明中表示，“俄罗斯对乌克兰的无端入侵以及我们所看到的不可接受的情况迫使我们采取行动，我们对影响到商家和持卡人感到遗憾，但对和平的持续威胁要求我们做出符合我们价值观的回应”。
 
-新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/7-03052022153657.html](https://www.rfa.org/mandarin/Xinwen/7-03052022153657.html)
+万事达卡在上月28日已宣布将几家俄罗斯金融机构排除在了其支付网络之外。
 
-* * *
+信息源：[我々は行動せざるを得ない…米ビザとマスターカード、ロシアでの決済停止](https://news.yahoo.co.jp/articles/b64a652adacbad999ff9ee3faefddd1e0f99033c#:~:text=%E6%8)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

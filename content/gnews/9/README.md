@@ -2,147 +2,40 @@
 ---
 
 
-## 共产党不允许别人使用去中心货币，试图让世界的人使用中心化数字人民币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2113776/)
+## 冬奥中韩大战民族大战美籍华人大战与海外排华联系紧密
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2113927/)
 
-世界上
-En el mundo
+Youtube视频链接：[https://youtu.be/IBtzry843lE](https://youtu.be/IBtzry843lE)
 
-这种巨变就在一年前
-Hace un año, este tipo de gran cambio
+**郭文贵先生：**另外一个就是在北京正在进行的冬奥会——共产党的“冬眠会”，现在是各种事件频出，是中韩大战、民族大战、美籍华人大战，这一下子事儿大了，是吧？美籍华人和现在我们最担心的海外的排华的整个的发生紧密地联系在一起。
 
-数字货币
-La moneda digital
+它就像一个在天空中现在亮丽的一朵打出来的烟花一样，它毕竟它会散去，但是掉在地上的到底是烟花弹还是烟花渣儿？还是砸在谁脑袋上继续燃烧的火焰呢？还是烧了谁家的房子？这事儿太大了！
 
-只有咱们新中国联盟告诉你从2000已经变成3万多亿
-Te digo, solamente nuestra Nueva Alianza de China desde 2000 hasta más de 3 billones
+编辑整理：Jacques；
 
-很快就变成4万多亿
-Pronto se convertirá en más de 4 billones
+字幕文件制作：大好河山；
 
-从过去是一夜, 所有你查查那些所谓的中国网红
-Ha sido una noche del pasado, busca aquellas llamadas celebridades chinas en internet
+视频制作及上传：Cindy；
 
-全部都认为数字货币就是假的
-Todos creen que la moneda digital es falsa
+G-News发布：小满；
 
-没有未来, 都是骗子
-No tiene futuro, son puros mentirosos
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-他就是那点儿脑子
-Este no tiene casi cerebro
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-就那点常识, 就那点常识
-Sólo un poquito de conocimiento básico
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-他就看到那些所谓的谷歌网路
-Tan sólo vio en aquellas páginas llamado Google
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-他没有任何创新和辨别真假, 识善恶的能力
-No tiene ninguna capacidad para innovar y discernir entre lo verdadero y lo falso, el bien y el mal
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-全部
-Todo
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-数字货币现在是什么情况
-Qué está pasando ahora con la moneda digital
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-全世界都在立法
-Todo el mundo está estableciendo leyes
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-连美国科罗拉多州还有各参议员, 连纽约市长都接受数字货币付工资了
-Hasta Colorado de EE. UU, varios senadores e incluso el alcalde de Nueva York aceptan la moneda digital para pagar salarios
-
-佛罗里达要立法, 未来的30年最重要的经济就是数字货币
-Florida quiere legislación, la economía más importante en los próximos 30 años es la moneda digital
-
-德州现在微蓝和这个小福利待的地方
-Texas, el sitio donde están Weilan y Xiao fuli
-
-德州把它列为德州的未来
-Texas lo determina como su futuro
-
-现在这话觉得说得太轻
-Ahora parece demasiado ligero para decir
-
-说德州的未来在于数字货币, 已经不是德州的未来了
-Que el futuro de Texas depende de la moneda digital y ya no es solamente su futuro
-
-说德州的经济未来是德州的未来数字货币
-Se dice que el futuro económico de Texas es su futura moneda digital
-
-到这个程度, 连俄罗斯不允许任何人使用数字货币情况下
-Ha llegado a este nivel, incluso Rusia no permite que nadie utilice la moneda digital
-
-俄罗斯的国策未来如何讲究在数字货币上突破
-¿Cómo la política nacional de Rusia prestará atención a los avances en la moneda digital en el futuro?
-
-打破美国西方Swift美元的垄断
-Rompiendo el monopolio del dólar West Swift de EE.UU.
-
-就连邪恶的不可一世的中国共产党
-Hasta el malvado y poderoso PCCh
-
-迅速地立了法
-Promulgó rápidamente la ley
-
-你们谁也不能用去中心化货币
-Nadie de ustedes puede usar la moneda descentralizada
-
-我是唯一的中心化
-Soy el único centralizado
-
-你只能用数字人民币
-Solamente puedes utilizar el RMB digital
-
-它不让人家用, 他自己用一个
-No permite que otros lo usen, pero él creó uno
-
-这种不要脸
-Tan desvergonzado
-
-全中国人不能使用数字货币
-Todos los chinos no pueden utilizar la moneda digital
-
-但是只能我有数字人民币, 用我的
-Pero solamente yo puedo tener RMB digital, utilice el mío
-
-它忘了, 是吧
-Se le olvidó, cierto
-
-它真的是忘了, 这个世界上人呐
-Realmente se le olvidó, todas las personas de este mundo
-
-它不都是听你的
-No solamente escuchan de ti
-
-你只有14亿奴隶
-Sólo tienes 1.400 millones de esclavos
-
-世界还有很多人呢
-Todavía hay mucha gente en el mundo
-
-日期：02/27/2022
-原视频标题：共产党不允许别人使用去中心货币，试图让世界的人使用中心化数字人民币
-El Partido Comunista no permite que otros utilicen monedas descentralizadas, tratando de hacer que la gente del mundo use el RMB digital centralizado
-
-原视频网址：[https://gettr.com/post/pvtpt1aa27](https://gettr.com/post/pvtpt1aa27)
-
-原视频日期：02/21/2022
-原视频网址：https://gettr.com/post/pvtpt1aa27
-任务编号：3817
-视频时间段：0:00-02:04
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
