@@ -2,33 +2,44 @@
 ---
 
 
-## 有声|俄罗斯各界反战情绪激增 遭打压
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2115600/)
+## 乌克兰所继承的前苏联军事遗产 4-安东诺夫设计局
+` 军情启示录` [轉載自GNews](https://gnews.org/zh-hans/2115703/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月1日，俄罗斯著名人类学者阿尔希波娃在Facebook上发帖称，俄罗斯警方拘留了试图在乌克兰驻莫斯科大使馆献花的2名妇女和5名儿童，这些孩子的年龄在7到11岁之间。他们被一辆警车带到警察局，随后被关押在一个拘留中心。虽然当天就被释放了，但警方曾威胁要从其父母手中夺走孩子的监护权。
+发布: AWAC （新西兰伊甸农场）
 
-另据台媒报道，为防止对俄国政府不利的消息在境内传播，俄政府于3月1日采取行动，针对连日来报道乌克兰新闻的媒体进行打压。3月3日，俄政府又关闭了报道俄罗斯入侵乌克兰新闻的“莫斯科回声”广播电台，以及另外一家独立媒体“电视雨”的频道，并封锁了他们的网站。
+作者: AWAC （新西兰伊甸农场）
 
-同样在3月1日，普京顶级顾问科尔图诺夫接受Sky News采访时表示，俄罗斯对乌克兰的军事行动法理上是似是而非的，也是不可行的。他表示无法理解普京入侵乌克兰，很多人对此深感沮丧。鉴于目前局势，他认为立即停火才是当务之急。不过，目前普京已将其核心团队的范围缩小到包括将军、顾问和特工的少数几人。像科尔图诺夫这样的克里姆林宫资深顾问一直被拒于门外，无法在国内对普京的统治方式发出哪怕微小的声音。
+安东诺夫航空科学技术联合体, 原名安东诺夫设计局是一架总部位于基辅,专门从事超大型运输飞机研发的航空科研公司。现已改名为安东诺夫国营公司。在苏联时期安东诺夫主要承担军用运输机的开发，其中较有名的代表性产品有载重量150吨的An-124运输机，和载重量达到250吨的An-225巨型运输机。在80年代中期，前苏联因其航天计划的需求，需要有一种可以运输暴风雪航天飞机和大型火箭的大型运输机，安东诺夫设计局以An-124为设计基础，放大机身设计，增加发动机，修改尾翼布局，在短时间内拿出了An-225方案。An-225一共只生产 了一架，第二架原型机半途停工，目前只有一个半成品的机身。前苏联解体后，由于资金短缺，An-225一度被搁置废弃，2001年后由于An-124商业运行的成功，安东诺夫也利用西方先进航电将An-225升级并成功投入商业运行, 专门用于运载超大型工业设备和人道主义救援，并打破多项飞行记录。
 
-另据报道，俄罗斯境内仅上周就有多达2000人因参加反战示威而被捕，前后合计，现已有6840人被抓捕。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-3-scaled.jpg)
 
-文字版原文：[俄罗斯各界反战情绪激增 遭打压](https://gnews.org/zh-hans/2109161/)
+*An-225 背负暴风雪号航天飞机*
 
-音频处理：Fei797
-发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture2-4.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture3-1.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*投入商业运行的An-225*
+
+本次俄罗斯入侵乌克兰，在占领安东諾夫机场期间， AN-225 已经不幸中弹，损毁严重*。*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture4-3.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture5-3.jpg)
+
+*被俄军摧毁的An-225，机身结构已经被严重破坏，难以修复*
+
+有报道【8】说在2020年乌克兰曾一度与土耳其合作，计划共同完成 AN225 的第二架半成品。第二架 AN225 目前只有机身段，被存放在位于乌克兰境内的工厂中，是否能在残酷的战争中幸存，尚不得而知。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture6-2.jpg)
+
+*第二架An-225机身半成品*
+
+**参考资料**：
+【8】[Sky Giant: Turkey Mulls To Complete The Second Antonov An-225 Mriya](https://www.oryxspioenkop.com/2022/01/sky-giant-turkey-mulls-to-complete.html)
+
+**（未完持续）**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

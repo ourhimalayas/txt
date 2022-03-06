@@ -2,34 +2,28 @@
 ---
 
 
-## 中共国将因支持乌克兰而停止转播英超比赛
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2115573/)
+## 美国正与波兰协商向乌克兰提供战斗机的交易
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2115632/)
 
-**编译：七龙珠**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip中共国将因支持乌克兰而停止转播英超比赛.png)在与俄罗斯的冲突中，英国足球已将自己定位为乌克兰支持 ANDY RAIN / EFE
-英超联赛电视转播权的中共国公司已经告诉英超联赛，本周末他们不会在电视上转播英超联赛的比赛，原因是英超联赛计划对乌克兰进行支持。
+#### 撰稿：彩虹    
 
-尽管一贯“主张和平”，但中共国并没有谴责俄罗斯在乌克兰的攻势。英超联赛方面表示，它“完全地抗议俄罗斯的行动”。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-523.png)图片来源：Indiatoday
+3月5日，《国会山报》文章说，根据多家新闻媒体周六的报道，美国和波兰正在考虑一项向乌克兰提供战斗机的交易。
 
-在一份声明中，英格兰联赛在本周早些时候宣布其计划时补充说，“呼吁和平，我们对所有受影响的人表示同情”。
+《政客》（Politico）是第一家报道该消息的媒体，它说，四名美国官员告诉该媒体，美国和波兰正在就一项安排进行磋商，亦即波兰向乌克兰转让二手米格-29（MiG-29）战斗机，同时美国向波兰提供美国战斗机。
 
-本周末，所有球队的队长都将佩戴乌克兰颜色的特殊臂章，而体育场的屏幕将在该国的蓝色和黄色国旗前显示“足球（与乌克兰）在一起”。
+对此，白宫发言人也告诉《政客》说：“我们正在就这个问题与波兰人合作，并与我们的其他北约盟友协商。我们也在研究，如果波兰决定向乌克兰转让飞机，我们可以提供哪些能力来回补。（我们政府）绝不反对波兰向乌克兰转让飞机。”
 
-此外，还鼓励球迷们在“每场比赛开球前进行悼念（失去生命的人）和声援”。
+该发言人表示，美国向波兰转让美国F16战机将是困难的。《政客》指出，因为这可能需要很长的时间以授权。
 
-这些支持乌克兰的信息在中共国并不受欢迎，中共国更倾向于认为俄罗斯是在自卫，并且说“北约有兴趣向乌克兰扩张”。
+周六，《华尔街日报》也援引美国官员的话报道了此项可能的交易。
 
-**新闻来源**：[lavanguardia.com][China dejará de retransmitir los partidos de la Premier League por su apoyo a Ucrania](https://www.lavanguardia.com/deportes/futbol/20220304/8101368/china-premier-league-no-retransmitira-partidos-ucrania-rusia-guerra.html)
+文章说，由于乌克兰继续与入侵的俄罗斯军队作战，周六，乌克兰总统沃洛基米尔·泽伦斯基（Volodymyr Zelensky）要求（美国）国会议员提供更多飞机。他还要求在乌克兰上空设立禁飞区，并要求美国停止购买俄罗斯石油。
 
-* * *
+**新闻来源**
 
-***审核：Aries的星
-校对：信心满满
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-3.jpeg)
-
-
+[US, Poland consider deal to give fighter aircraft to Ukraine: reports](https://thehill.com/policy/international/597034-us-poland-consider-deal-to-give-fighter-aircraft-to-ukraine-reports)
 
  
 

@@ -2,26 +2,32 @@
 ---
 
 
-## 乌克兰大救援03.06 “新中国联邦乌克兰国际人道救援行动”的四组震撼数据
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2115593/)
+## 有声|俄乌战争局势趋紧 百万难民逃离乌克兰
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2115671/)
 
-撰稿：大浪小水花
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9f5ea086-2b16-4b86-8e6e-ef078d240c38.jpg)Source:Gettr
-在2022年3月6日大直播中，郭文贵先生透露了有关这次“新中国联邦乌克兰国际人道救援行动”的四种震撼性数据 ：
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月2日，据外媒报道，俄军对乌克兰多个城市发动了毁灭性的炮火袭击，造成2000多名乌克兰平民死亡。沦陷的赫尔松将成为俄军深入乌克兰的关键集结地。
 
-一、在俄乌战争期间，全球唯一一个进入乌克兰战区救人的中国人的组织是新中国联邦。
+据悉，俄罗斯已将沿边境集结的82%的部队转移到乌克兰本土，并加强了对哈尔科夫、马里乌波尔、赫尔松和基辅四个战略城市的进攻。经过激烈交战，位于黑海附近第聂伯河上的乌克兰南部港口城市赫尔松2日已被俄军攻陷。该市市长科利哈耶夫证实，俄军占领了市政厅，且对居民实施了宵禁。乌克兰军队在被俄军围困后撤出了这座城市，只有携带食物、药品等物资的车能以最低速度进入该市。市长恳请俄军不要向平民开枪，并希望设立一个开放的走廊来运送食品、药品和伤员，否则这座城市的平民将无法生存。
 
-二、新中国联邦是是中国人中唯一一个，没有任何立场，没有政治任何诉求，去救助中国人、乌克兰人和世界各国友人的组织。
+联合国难民署3月3日表示，自俄罗斯入侵乌克兰一周以来，已有100万难民逃离了该国。难民署警告说，除非俄罗斯立即结束侵略，否则乌克兰可能产生的数百万难民，将对周边邻国造成难以想象的冲击。
 
-三、真正在乌克兰内部救出很多中国人和外国人的组织只有新中国联邦。
+文字版原文：[俄乌战争局势趋紧 百万难民逃离乌克兰](https://gnews.org/zh-hans/2109160/)
 
-四、中国人现在在乌克兰最少有3万人，特别是工人，他们连通讯能力都没有，这些人都被CCP抛弃了。
+音频处理：Fei797
+发稿：Fei797
 
-郭先生强调，他对这四组数据的真实性负全部责任。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-来源链接：[https://gettr.com/streaming/pyhtnya292](https://gettr.com/streaming/pyhtnya292)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-校对发布：香水百合
 
  
 
