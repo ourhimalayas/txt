@@ -2,31 +2,31 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“SWIFT”（一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2113133/)
+## NFSC和法治基金(ROLF)宣布3月9日首批救援专机行程（暂定）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2113173/)
 
-整理：小儿
-编辑：小红帽
+作者：香草山农场教育部—霍比特人
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+NFSC和法治基金(ROLF)3月3日宣布了3月9日首批救援专机暂定行程（可能根据情况做出调整）：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/SWIFT.png)图片来源：雅典娜农场设计组（614）
+1. 从波兰 – 热舒夫(Rzeszow)机场出发，经加拿大多伦多，前往美国纽约。
+2. 从波兰 – 热舒夫(Rzeszow)机场出发，直飞帕劳。
+NFSC和法治基金(ROLF)同时宣布，提供免费专机旨在“帮助那些受俄罗斯非法入侵影响的人员，这是我们支持在被共产主义和专制政府统治的国家里争取自由的使命的一部分。 如果您需要搭乘我们的专机，请联系我们的24小时服务热线。所有乘客必须满足 其目的地的签证要求。如有需要，NFSC和ROLF将在出发前提供免费食宿。 24小时紧急救援客服联系方式如下: 邮箱: [\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection) 电话(短信或电话): +1 720-657-6776 或 +1 719-224-4232”
 
 
-**郭文贵2019年10月30日特别节目**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-6.jpeg)
 
-刚才班农来之前说，Miles，我想跟你做节目。我说，我真跟你做不了节目，我没时间。你先把你的节目做好。他还搞一个小时的战争房间（War rooom）节目，关于中国的。我说，我真没有时间，我现在要让美国人知道，四中全会他们搞的数据链是干啥的，区块链是要干啥的，为什么全党要搞区块链。中共就是干掉你美元。然后我现在要说谁，你知道吗？你们要记住，谁是背后的老大呀？SWIFT、CHIPS，美元所有的交换都在曼哈顿，你知道在哪吗？咱们这往前走5分钟的路，61街62街和Madison交界是整个CHIPS的总部，就这么近。全人类93%的美元，你只要花美元都得经过这里，这就是为什么他们说，我们掌握你每一美元的去向。你告诉我，谁是老板？今天老江你能回答这个问题，我当着镜头给你磕一个头。
+审核/编辑/发稿:qiutian（邱甜）
 
-我对于区块链有一些我的观点和想法，其中一个原因是我参与了共产党，我知道他怎么干的，想干啥；另外一个原因是我跟这些人接触，就是现在郭媒体一个很关键的未来。刚才老江，我记得在一天节目里，我听老江说过，郭媒体将是最安全的一个数据源。那这个价值就了不得了，就中国人出来以后最安全的。第二个，它有着现在海外已知的，就是微信，支付宝的系统能力，那就了不得了。这个支付宝是建立在美国主权，不是共产党的主权之上了，是在美国认可的，你知道黄金盘（音）说他不相信这个library会成功。我告诉你说，他忘了一个问题，CHIPS就是因为美国这国家的伟大，能让私人成为一个美元兑换的机构–SWIFT，CHIPS。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-为什么？中国共产党能让中国人成为CHIPS的股东吗？能让中国人，能让私人，让你路德，让什么马云，让什么什么成为一个中国所谓DC盘的，一个这样的货币股东吗？永远不会。共产党要通吃。美国人恰恰给美国人，给企业这个机会，才做大的。美国百分之九十的财富创造来源都是新移民。这是为什么这个混蛋说这话。中毒啊。共产党彻底垄断区块链，不允许任何私人碰，必须是国家主权的，拍马屁的，完全给上面拍的，完全给习，王拍马屁的。这是找死呢。我恰恰相信美国的货币一定会改革，美元一定会被干掉或削弱，一定会由美国区块链货币主导。我认为下一个区块链的赢家一定是美国，否则美国就完了，世界就乱了，真的就乱了。这真不是开玩笑的。人类，不是咱们，是人类完了。美国有一个新的货币出来的时候，他一定给更多私家机会，这就像它允许SWIFT，CHIPS，允许你私人在里面，就像美联储在里面。美国的伟大就伟大在让私人成为国家最核心的力量。你共产党说，你必须得死，必须被灭，因为中共通吃天下，不给别人分享。
-
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
