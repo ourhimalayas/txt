@@ -2,23 +2,37 @@
 ---
 
 
-## 【 #G时新闻 】 北京残奥会主席开幕式反战演说被中共官媒禁音
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2113988/)
+## 波兰热舒夫市长支持新中国联邦乌克兰救援行动
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2114809/)
 
-加拿大温哥华杨帆农场 主播：莉李鲤 视频制作：阿泽西
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+波兰当地时间3月5日，在新中国联邦波兰热舒夫救助站，救援前线总指挥大卫，采访了波兰热舒夫市长。
 
-据法国国际广播电台3月5日报道，国际残奥会（IPC）主席帕森斯4日在北京冬季残奥会开幕式上发表演说，呼吁世界和平，反对俄罗斯战争，表达对乌克兰的支持，最后帕森斯更高喊一声Peace（和平）！但中共官媒转播时没有进行中文的同步翻译，口译员直接沉默。不仅如此，帕森斯在乌克兰运动员进场时鼓掌表达支持的画面，也被切成运动场远景。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-06-at-8.13.06-PM.png)
 
-中共国媒体一度出现了“没有翻译的部分到底说了什么”的讨论，随后遭到审查。国际残奥委会此前曾允许俄罗斯以及白俄罗斯运动员以中立身份参加北京残奥会。但在开幕式前夕，IPC 宣布禁止俄罗斯及白俄罗斯选手参赛。
+大卫首先代表新中国联邦、法治社会、法治基金和所有被救援的人，感谢热舒夫市长及波兰政府对救援行动的大力支持。
 
-在中共国，除了党媒的声音永不消逝，任何人随时都会因言获罪，或被禁言甚至消失。奥林匹克停战协议是联合国通过的，是为了建立一个没有歧视、仇恨、争斗、互相包容的世界。但是冬奥会和残奥会在北京举行，这本身就是对奥林匹克精神的亵渎。北京种族灭绝、制造并释放病毒、支持阿富汗塔利班恐怖组织、支持俄罗斯侵略战争，哪一样罪行都是反人类罪，都应该被彻底斩草除根。共产主义俄罗斯和中共已经双双走上了不归路，被全世界联合消灭只是时间问题。
+当被问及，怎样看待俄乌战争和流离失所的难民时，热舒夫市长表示，21世纪发生这种战争是不可思议的。他每天都看到很多家庭支离破碎，很痛苦，也很难过。他呼吁各方政府立刻停止战争。
 
-原文链接：[https://www.rfi.fr/cn/](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220305-%E5%8C%97%E4%BA%AC%E5%86%AC%E6%AE%8B%E5%A5%A5%E5%B0%B4%E5%B0%AC-ipc%E4%B8%BB%E5%B8%AD%E5%8F%8D%E4%BF%84%E6%88%98%E4%BA%89%E6%BC%94%E8%AF%B4%E6%B2%A6-%E7%A9%BA%E5%93%8D)
+市长表示非常感谢全世界爱好和平的人，包括法治基金和法治社会的救援行动。并表示，对中共政府没有反对这场战争，感到非常失望。
 
-视频链接：https://drive.google.com/file/d/1pj2ODMKl-yZ5JGVJLgIR9Af5Feqv0Ktt/view?usp=sharing
+参考链接：[乌克兰国际人道救援行动连线前线总指挥大卫…..](https://gettr.com/post/pybpq1f210)
 
-上传：兴旺
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
+编辑：Jack Li文阳
+总编：Zion文恩
+审核：Jack Li文阳
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

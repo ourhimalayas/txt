@@ -2,38 +2,37 @@
 ---
 
 
-## 布林肯警告中国：世界正在关注中国对俄乌战争的反应
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2116143/)
+## 上百名中国留学生被困乌克兰 新中国联邦不畏中共阻挠全力救助
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2116230/)
 
-撰稿：小湫
+**撰稿：日本东京方舟农场 海星**
 
-美国国务卿布林肯星期六对中国外交部长王毅说，世界正在关注中国和其他国家对俄罗斯入侵乌克兰的态度。  这次电话会议主题是讨论美国国务院所说的莫斯科对乌克兰发动的有预谋、无端和不公正的战争。
+近期，有上百名中国留学生因俄乌战争而被困于乌克兰东北地区苏梅，无法离开。新中国联邦救援团队正竭尽全力排除中共阻挠，帮助留学生撤离。
 
+据《BBC》报导，截至3月3日，由于俄乌两军在乌克兰苏梅地区激烈交火，导致当地三所大学约200名中国留学生被困，无法离开。其中一位学生沈钰在接受访问时表示，俄军刚入侵时，中共大使馆声称已经准备好撤侨包机，她便以为很快就能撤离，安心等待通知。但随着战争形势日趋恶化，沈钰在3月初与中共大使馆联系，该机构却表示无力营救，要求其自救。她愤怒道，“我们错信了中共大使馆，丢失了最佳自救的时间。”
 
-![此图像的alt属性为空；文件名为Secretary-of-State-Antony-Blinken-Poland-Ukraine-Refugees.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/Secretary-of-State-Antony-Blinken-Poland-Ukraine-Refugees.jpg)
-图片来自网络
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-23.jpg)（图片来源：盖特）
 
-美国国务院发言人内德·普莱斯(Ned Price)在一份声明中说:“国务卿指出，全世界都在关注哪个国家支持自由和主权的基本原则。”
+与此同时，新中国联邦救援团队得知该消息后，第一时间与当地的100多名学生取得联系，24小时不间断提供热线服务，全力帮助他们安全撤离。
 
-布林肯强调，世界正在一致行动，反对俄罗斯的侵略，确保莫斯科将付出高昂的代价。
+3月5日，来自乌克兰利沃夫市驶来的救援巴士已到达波兰热舒夫市车站，这是新中国联邦团队救援活动的第一辆救援车， 共计70人被安全救出。
 
-布林肯周六还与波兰外长兹比格涅夫·劳(Zbigniew Rau)就两国合作帮助其共同盟友乌克兰进行了交谈。 国务卿还参观了波兰的一个难民设施。
+据本次救援活动后台客服团队透露，在救援过程中，中共伪类不时地拨打救援服务热线，恶意占用急救专线，干扰救援行动。然而，此举却恰恰证明了新中国联邦的救援团队每分每秒都在全力为遇难者提供服务。然而，中共驻乌克兰大使馆的救援热线每周只工作5小时。
 
+此前，中共为阻止新中国联邦的乌克兰救援行动，不惜动用网络媒体发布虚假信息抹黑新中国联邦。中共甚至动员伪类团伙在乌克兰华人群里，辱骂、删除甚至冒充新中国联邦发布虚假救援信息。然而，这些行为并未干扰到新中国联邦的救援行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GettyImages-1234277842.jpg)
-图片来自网络
+参考链接：
+1. [https://www.bbc.com/zhongwen/simp/world-60598908](https://www.bbc.com/zhongwen/simp/world-60598908)
+2. [https://www.gettr.com/post/pyeqql9214](https://www.gettr.com/post/pyeqql9214)
+3. [https://twitter.com/MoonFeiXiang/status/1498566472490127360](https://twitter.com/MoonFeiXiang/status/1498566472490127360)
+4. [https://twitter.com/gardenking24/status/1498064146889428999](https://twitter.com/gardenking24/status/1498064146889428999)
+5. [https://gettr.com/post/pxh1rg7572](https://gettr.com/post/pxh1rg7572)
+6. [https://gnews.org/zh-hans/2104271/](https://gnews.org/zh-hans/2104271/)
+7. [https://gnews.org/zh-hans/2113632/](https://gnews.org/zh-hans/2113632/)
 
-一名高级国防官员周四批评中国在俄罗斯军队发动致命导弹袭击一周多后对乌克兰战争保持沉默。尽管中国一再声称尊重一个国家的主权，但中国政府拒绝制裁或谴责俄罗斯的入侵。
-
-周三，在联合国大会通过一项谴责俄罗斯总统普京入侵俄罗斯并要求他立即撤军的决议时，中国投了弃权票，美国在内的其他141个国家投了同意票。
-
-在181个参加投票的国家中，只有5个国家——俄罗斯、白俄罗斯、厄立特里亚、北韩和叙利亚——反对该决议，35个国家弃权，其中包括中国。
-
-参考信息：
-
-Blinken tells China ‘world is watching’ response to Russia-Ukraine war
-
-![](https://lh6.googleusercontent.com/w8LMlCAeYCCPuKxveGdvcyeqg1Dd6HHwfVuUxJ34hpaMbTL0LD8zVPo5ACa3FuktSvFOIcmRQ-dNekv9ZFiBBUkbYOsSDApxh1ol6EeU7ac8c05cmsznH-u-3PJcLeMP0sErzQ3W)
+撰稿：海星
+总编：老孙
+校对发布：小斐
 
  
 

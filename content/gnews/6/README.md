@@ -2,35 +2,27 @@
 ---
 
 
-## 有声|中共砖家松口称可能跟中共病毒共存
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2116421/)
+## 新中国联邦在乌克兰人道救援行动上做到的四个真
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2116517/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间2月28日，中共疾病预防控制中心的首席科学家曾光，在微博上发文称，“动态清零是特定的时期内的防疫对策，不会永远不变，在对发病、死亡容易容忍的情况下，与病毒共存是人类的长远目标”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/04-03-2022-2.jpg)图片来源网络
-这段发言，跟CCP一直以来鼓吹的“坚持动态清零”相悖，墙内关于该新闻的报道，几乎都已经被下架。 另据战友每日统计的墙内数据也表明，动态清零非但没有降低墙内的感染人数，并且还越是在中共严抓动态清零的时候，出现了单日确诊病例陡增的现象。
+意大利罗马达芬奇农场： ZQ
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0417.jpg)
 
 
+1. 真正的唯一一个进入乌克兰救人的中国团队
+2. 真正出自人道救助，没有政治立场，没有金钱利益的救援，不但援救中国人还救美国人、乌克兰人等多国弱小群体
+3. 真正顺利救出了中国人和外国人的一个团队
+4. 真正报出在乌克兰的中国人不低于3万人，而不是共产党所宣传的2万人，并且还有很多中国工人被遗留在战区，他们当中很多人甚至没有通讯能力。
 
-文字版原文：[中共砖家松口称可能跟中共病毒共存](https://gnews.org/zh-hans/2107904/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+新中国联邦人—-一个没有战争、追求爱好和平的族类。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+截选自2022年3月6日文贵大直播
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[https://gettr.com/post/pyhtnya292](https://gettr.com/post/pyhtnya292)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑发表： Shuizhuyu
 
  
 
