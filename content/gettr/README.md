@@ -17,17 +17,17 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/6/2022 12:44 AM (UTC)`
+
+【Ukraine Rescue】03/05/2022 David interviews a Chinese rescued by the first NFSC rescue bus from Ukraine<br/><br/>【乌克兰救援行动】03/05/2022 大卫采访被第一辆NFSC乌克兰救援巴士救出的中国人
+![img](https://media.gettr.com/group33/getter/2022/03/06/00/fe2ab465-f0da-257b-d301-a5d935ee8e91/out.jpg)
+
+---
+
 `@miles 3/6/2022 12:17 AM (UTC)`
 
 【Ukraine Rescue】03/05/2022 NFSC Ukraine Rescue Team Interviews Mayor of Rzeszów, Poland. Mr. Mayor was not only very appreciative of the NFSC's rescue operation but also facilitated and provided support for our work.<br/><br/>【乌克兰救援行动】03/05/2022 新中国联邦乌克兰救援团队采访波兰热舒夫市长。市长先生不仅非常感谢新中国联邦的救援行动，并且为我们的工作提供了便利和支持。
 ![img](https://media.gettr.com/group16/getter/2022/03/06/00/bea3140c-2cda-a63a-34de-fb1bf416ce29/out.jpg)
-
----
-
-`@miles 3/5/2022 11:03 PM (UTC)`
-
-03/05/2022 David interviews a Chinese rescued by the first NFSC rescue bus from Ukraine<br/><br/>03/05/2022 大卫采访被第一辆NFSC乌克兰救援巴士从乌克兰救出来的中国人<br/><br/>
-![img](https://media.gettr.com/group50/getter/2022/03/05/23/659c45d3-76d3-f27b-f6e2-3b352247216f/out.jpg)
 
 ---
 
