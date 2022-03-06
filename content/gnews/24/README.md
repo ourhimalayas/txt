@@ -2,29 +2,20 @@
 ---
 
 
-## 欧盟同意中止俄白参与波罗的海国家理事会活动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2113021/)
+## NewSGman┃美国前国务卿迈克·蓬佩奥访台（ 3月3日）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2113525/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-5.jpg)欧盟同意中止俄白参与波罗的海国家理事会活动 网络图片
-据自由亚洲电台3月5日报道，欧盟（EU）5日表示，“欧盟与波罗的海国家理事会（CBSS）其他成员（丹麦、爱沙尼亚、芬兰、德国、冰岛、拉脱维亚、立陶宛、挪威、波兰和瑞典）皆同意，中止俄罗斯和白俄罗斯参加理事会的活动”。这一决定是欧盟与同伴对俄罗斯入侵乌克兰，以及白俄罗斯参与这一侵略行为的回应。
+撰稿：东京樱花团/NewSGman
 
-作孽者固然可恨，帮凶也同样不可饶恕。白俄罗斯为俄罗斯的侵略行为提供便利和帮助，当领受同样的制裁和追责。
+3月3日台湾大规模停电，台湾各地今早（3日）发生大规模停电 ，蔡英文会见蓬佩奥网络直播取消。
 
-新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/7-03052022153657.html](https://www.rfa.org/mandarin/Xinwen/7-03052022153657.html)
+美国前国务卿迈克·蓬佩奥星期三（3月2日）抵达台北桃园机场，开始对台湾为期四天的访问。蓬佩奥将在本星期四与蔡英文总统举行会晤。此外，蓬佩奥访台期间还将会晤台湾副总统赖清德、行政院长苏贞昌、立法院长游锡堃以及外交部长吴钊燮。除拜会政要外，蓬佩奥还计划与台湾商、学及民间各界人士交流互动。
 
-* * *
+盖特链接：[https://gettr.com/post/pxxfzx9580](https://gettr.com/post/pxxfzx9580)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,56 +2,37 @@
 ---
 
 
-## 基辅市长维塔利·克里琴科对俄罗斯人说：“回家吧”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2113599/)
+## 微软暂停在俄销售新产品和服务
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2113687/)
 
-Vitali Klitschko (Mayor of Kyiv)
-维塔利·克里琴科（基辅市长）
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-Go back home, you have nothing to find here
-回家吧，你在这里什么都找不到
+#### 整理：围剿维尼熊
+编辑：木木木mmmmm
 
-We hope this night will be quiet
-我们希望这个夜晚会很安静
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0153.jpg)图片来自：联合早报
 
-We hope the Russians take the decision (to) move back to Russia
-我们希望俄罗斯人做出决定（要）撤回俄罗斯
 
-They (have) nothing to find here in our home and
-他们（不会）在我们家中得到任何东西，并且
+根据财联社3月5日报道，微软（Microsoft）周五表示，将暂停在俄罗斯销售新的产品和服务。
 
-but I see so many people
-但我看到很多人
+到目前为止，包括苹果公司（Apple Inc .）、耐克（Nike）和戴尔科技（Dell Technologies）在内的几家大公司已经切断了与俄罗斯的联系。
 
-We’re everybody proud of our army of Ukrainian(s)
-我们每个人都为我们的乌克兰军队感到自豪
+微软总裁布拉德·史密斯（Brad Smith）周五在其官方博客贴出声明，宣布暂停在俄罗斯销售所有新的产品和服务。除了暂停新的销售，微软还按照政府的制裁措施，停止了在俄罗斯的许多业务。
 
-who defend our city, defend our homes, defend our family and
-他们保卫我们的城市，保卫我们的家园，保卫我们的家庭
+本周微软表示，已将RT的移动应用从Windows应用商店下架，并禁止在俄罗斯政府赞助的媒体上发布广告。
 
-respect for everyone ready to fight, fight for our country
-尊重每个准备战斗的人，为我们的国家而战
+Facebook的所有者Meta平台公司、Alphabet公司的谷歌和YouTube也采取了类似措施，限制俄罗斯国有媒体通过其平台上的广告赚钱。
 
-原视频链接[https://twitter.com/nowthisnews/status/1498524179422793728?s=24](https://twitter.com/nowthisnews/status/1498524179422793728?s=24)
+参考链接：[微软将暂停在俄罗斯销售新的产品和服务。](https://cn.investing.com/news/stock-market-news/article-2086694)
 
-Date:03/03/2022
-原视频标题:Vitali Klitschko, Mayor of Kyiv to Russians: ‘Go Home’
-基辅市长维塔利·克里琴科对俄罗斯人说：“回家吧”
-原视频日期：2022/03/01
-原视频链接https://twitter.com/nowthisnews/status/1498524179422793728?s=24
-任务编号：KE436（3892）
-视频时间段 : 0:00-0:37
+发布：*wenly*
 
-英听校; 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

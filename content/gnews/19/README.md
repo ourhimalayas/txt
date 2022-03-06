@@ -2,22 +2,57 @@
 ---
 
 
-## 中日财经爆┃万事达卡和VISA卡退出俄罗斯
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2113278/)
+## 基辅市长维塔利·克里琴科对俄罗斯人说：“回家吧”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2113599/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-493.png)[图片来源](https://article-image-ix.nikkei.com/https%3A%2F%2Fimgix-proxy.n8s.jp%2FDSXZQO1671413006032022000000-1.jpg?ixlib=js-2.3.2&amp;w=638&amp;h=426&amp;auto=format%2Ccompress&amp;ch=Width%2CDPR&amp;q=45&amp;fit=crop&amp;bg=FFFFFF&amp;s=51cffaa7e90d20117ef2b1f1a0742709)
-3月5日，美国主要的信用卡公司维萨（VISA）和万事达（Mastercard）相继宣布将停止在俄罗斯的支付服务。除了对在俄罗斯发行的卡进行限制外，由境外金融机构发行的卡在俄境内也不能使用。采取这些措施都是对俄入侵乌克兰的回应，可能对消费者会产生普遍的影响。
+Vitali Klitschko (Mayor of Kyiv)
+维塔利·克里琴科（基辅市长）
 
-VISA公司首席执行官阿尔弗雷德·凯利在声明中表示，“俄罗斯对乌克兰的无端入侵以及我们所看到的不可接受的情况迫使我们采取行动，我们对影响到商家和持卡人感到遗憾，但对和平的持续威胁要求我们做出符合我们价值观的回应”。
+Go back home, you have nothing to find here
+回家吧，你在这里什么都找不到
 
-万事达卡在上月28日已宣布将几家俄罗斯金融机构排除在了其支付网络之外。
+We hope this night will be quiet
+我们希望这个夜晚会很安静
 
-信息源：[我々は行動せざるを得ない…米ビザとマスターカード、ロシアでの決済停止](https://news.yahoo.co.jp/articles/b64a652adacbad999ff9ee3faefddd1e0f99033c#:~:text=%E6%8)
+We hope the Russians take the decision (to) move back to Russia
+我们希望俄罗斯人做出决定（要）撤回俄罗斯
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+They (have) nothing to find here in our home and
+他们（不会）在我们家中得到任何东西，并且
+
+but I see so many people
+但我看到很多人
+
+We’re everybody proud of our army of Ukrainian(s)
+我们每个人都为我们的乌克兰军队感到自豪
+
+who defend our city, defend our homes, defend our family and
+他们保卫我们的城市，保卫我们的家园，保卫我们的家庭
+
+respect for everyone ready to fight, fight for our country
+尊重每个准备战斗的人，为我们的国家而战
+
+原视频链接[https://twitter.com/nowthisnews/status/1498524179422793728?s=24](https://twitter.com/nowthisnews/status/1498524179422793728?s=24)
+
+Date:03/03/2022
+原视频标题:Vitali Klitschko, Mayor of Kyiv to Russians: ‘Go Home’
+基辅市长维塔利·克里琴科对俄罗斯人说：“回家吧”
+原视频日期：2022/03/01
+原视频链接https://twitter.com/nowthisnews/status/1498524179422793728?s=24
+任务编号：KE436（3892）
+视频时间段 : 0:00-0:37
+
+英听校; 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

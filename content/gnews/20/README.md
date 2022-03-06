@@ -2,30 +2,30 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月5日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2113176/)
+## 视频|母亲
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2113589/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1-1.png)
+香草山视频：铭心
+
+前几天在乌克兰······
+
+一名阵亡俄军士兵手机中发现的与母亲最后的对话：
+
+妈妈：儿子，你还好吗？你很久没有给我们发信息了，你们真的在演习吗？
+
+儿子：妈妈，我们不在克里米亚了，我们不是在演习
+妈妈：那在哪儿？？？你爸爸想给你寄个包裹
+儿子：我不需要那个，我想自杀
+妈妈：你在说什么？发生了什么事？
+儿子：妈妈，我在乌克兰，这是真的战争，我很害怕，我无论看到什么动静都会开枪，甚至平民，我们被告知会受到欢迎，但是人们冲上来用身体挡住我们的坦克不让我们通过，他们还叫我们法西斯，妈妈，我太难受了。
+
+当战争、灾难来临的时候，我们还能保护她吗？那个最挂念和最爱自己的人–母亲
+
+消灭共产党，拯救我们的母亲
 
 
-校对：Stay文苑
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/pyf9rc53d8](https://gettr.com/post/pyf9rc53d8)
-访谈：[https://gettr.com/post/pyf2befaf2](https://gettr.com/post/pyf2befaf2)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-4.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+发布：qimendunjia
 
  
 
