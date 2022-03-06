@@ -2,63 +2,30 @@
 ---
 
 
-## 来自世界各地的数十名外交官，集体给予&#8221;纷纷离场&#8221;制裁抗议
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2113377/)
+## 加拿大人在乌克兰🇺🇦的民宿网站上订了将近3000天的住宿,可是这些加拿大人并没有打算去乌克兰旅游和住宿的计划
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2113390/)
 
-I would now like to give the floor to His Excellency
-我现在想请阁下发言
+2022-03-05
 
-Mr. Sergey Lavrov Minister for Foreign Affairs of the Russian Federation
-谢尔盖·拉夫罗夫先生, 俄罗斯联邦外交部长
+翻译：追郭大姨
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G1N3@61QHORD4EO6.png)图片来源：[Canadians book close to 3,000 nights in Ukraine on Airbnb— with no plans to travel](https://www.thestar.com/news/canada/2022/03/05/canadians-book-close-to-3000-nights-in-ukraine-on-airbnb-with-no-plans-to-travel.html)
+在乌克兰🇺🇦预订了民宿的人告诉《星报》，他们从这些民宿经营者听到的消息让他们既高兴又伤心。
 
-You have the floor, Excellency
-请发言，阁下
+崔西 （Tracy Mccullough）她没有近期出去旅游的计划，可是她还是花了大约24个小时的时间，与五家民宿签订了住宿合同。
 
-Sergey Lavrov (Minister of Foreign Affairs of the Russian Federation)
-谢尔盖·拉夫罗夫（俄罗斯联邦外交部长）
+崔西是加拿大安大略省伦敦市的一家发廊💈的老板，她花了好几万元在乌克兰民宿的预订上，她的真正目的是能在这场俄乌战争中，给乌克兰的民宿经营者一些经济支持。
 
-Ladies and gentlemen
-女士们，先生们
+**评论：**俄罗斯侵略乌克兰已经9天了，看着躲在地下室中鼾睡的孩子和战场上士兵的尸体，我的心一直被一种悲伤笼罩着。看到上面这则新闻，不由的会心一笑：真是聪明善良又大方的发廊老板娘。我相信在各行各业都会有这样爱好和平的人们，用他们自己的方法去帮助正在受蹂躏的乌克兰人。借用一句老话：普京一定会被淹死在人民战争的汪洋大海中！
 
-I had hoped that after a two year gap
-我曾希望在两年的距离之后
+参考链接：
+[Canadians book close to 3,000 nights in Ukraine on Airbnb— with no plans to travel](https://www.thestar.com/news/canada/2022/03/05/canadians-book-close-to-3000-nights-in-ukraine-on-airbnb-with-no-plans-to-travel.html)
 
-I would be able to participate in the work of the United Nations Human Rights Council in person
-我将能够亲自参与联合国人权理事会的工作
+编辑：LILY
+发布：肥鯮
 
-However, I’m compelled to address you by video
-但是，我不得不通过视频向您致辞
-
-The reason for this is the outrageous measures by the European Union
-原因是欧盟采取了离谱的措施
-
-to refuse to respect one of the fundamental human rights
-拒绝尊重一项基本人权
-
-the right to freedom of movement
-自由行动权
-
-原视频链接[https://twitter.com/ahnewspace/status](https://twitter.com/ahnewspace/status)
-
-Date:03/03/2022
-原视频标题:Dozens of diplomats from around the world collectively “leave the venue” in sanction protests when Russian Foreign Minister Sergey Lavrov speaks at the annual session of the UN Human Rights Council
-俄罗斯外交部长谢尔盖·拉夫罗夫，在联合国人权理事会年度会议上发表讲话时，来自世界各地的数十名外交官，集体给予”纷纷离场”制裁抗议
-原视频日期：2022/03/02
-原视频链接https://twitter.com/ahnewspace/status/1498846672935620611?s=24
-任务编号：3905
-视频时间段 : 0:00-1:02
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

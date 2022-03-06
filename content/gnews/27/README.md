@@ -2,10 +2,10 @@
 ---
 
 
-## 普京可以用坦克包围基辅，但永远不会赢得乌克兰民心
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2112778/)
+## 美国将用GDP的2%投资到新兴技术和制造业，美国会腾飞
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2112780/)
 
-03/01/2022 拜登总统在国情咨文中说：普京可以用坦克包围基辅，但他永远不会赢得乌克兰人民的心。
+03/01/2022 美国将用GDP的2%投资到新兴技术和制造业，美国会腾飞。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,30 +2,25 @@
 ---
 
 
-## 加拿大人在乌克兰🇺🇦的民宿网站上订了将近3000天的住宿,可是这些加拿大人并没有打算去乌克兰旅游和住宿的计划
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2113390/)
+## 秘翻在线：美国务卿在边境会见乌克兰外长
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2113465/)
 
-2022-03-05
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-13.jpg)（图片源自本文链接）
+每日新闻3月6日消息：5日正在访问欧洲的美国国务卿约翰-布林肯在乌克兰-波兰边境与乌克兰外交部长克雷瓦进行了面对面的会谈。这次会议并不在美国国务院事先宣布的日程表上，这次特别安排的会谈，充分表明了美国在俄罗斯对乌克兰持续侵略的当下，支持乌克兰的强烈意愿。
 
-翻译：追郭大姨
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G1N3@61QHORD4EO6.png)图片来源：[Canadians book close to 3,000 nights in Ukraine on Airbnb— with no plans to travel](https://www.thestar.com/news/canada/2022/03/05/canadians-book-close-to-3000-nights-in-ukraine-on-airbnb-with-no-plans-to-travel.html)
-在乌克兰🇺🇦预订了民宿的人告诉《星报》，他们从这些民宿经营者听到的消息让他们既高兴又伤心。
+据路透社报道，布林肯先生和克雷瓦先生在一个边境检查站的帐篷里见面。会谈结束后，他们在边境道路的乌克兰一侧举行了联合新闻发布会。
 
-崔西 （Tracy Mccullough）她没有近期出去旅游的计划，可是她还是花了大约24个小时的时间，与五家民宿签订了住宿合同。
+布林肯先生强调：整个世界都与乌克兰站在一起，就像我现在与克雷瓦先生站在一起一样”。 他表示打算继续实施包括经济制裁在内的追加制裁，对俄罗斯的压力，制裁不仅会继续，而且会增加，直到俄罗斯停止其侵略行径。
 
-崔西是加拿大安大略省伦敦市的一家发廊💈的老板，她花了好几万元在乌克兰民宿的预订上，她的真正目的是能在这场俄乌战争中，给乌克兰的民宿经营者一些经济支持。
+克雷瓦先生对美国和欧洲提供的武器，包括反坦克导弹和便携式地对空导弹表示感谢。同时，他重申要求北大西洋公约组织（NATO）在乌克兰上空建立禁飞区。他说：如果乌克兰失去对空域的控制，将有更多平民的鲜血染红这片土地。
 
-**评论：**俄罗斯侵略乌克兰已经9天了，看着躲在地下室中鼾睡的孩子和战场上士兵的尸体，我的心一直被一种悲伤笼罩着。看到上面这则新闻，不由的会心一笑：真是聪明善良又大方的发廊老板娘。我相信在各行各业都会有这样爱好和平的人们，用他们自己的方法去帮助正在受蹂躏的乌克兰人。借用一句老话：普京一定会被淹死在人民战争的汪洋大海中！
+建立禁飞区将使北约的飞机对俄罗斯的飞机保持警惕，如果它们进入目标区域就会被驱除。 因为这可能导致军事冲突，北约秘书长斯托尔滕贝格在4日的新闻发布会上表达了消极的立场。在新闻发布会上，克雷瓦批评说这是北约软弱的标志。
 
-参考链接：
-[Canadians book close to 3,000 nights in Ukraine on Airbnb— with no plans to travel](https://www.thestar.com/news/canada/2022/03/05/canadians-book-close-to-3000-nights-in-ukraine-on-airbnb-with-no-plans-to-travel.html)
+同一天，布林肯先生还会见了波兰外长劳，感谢他接待了越来越多的美国援助军队。
 
-编辑：LILY
-发布：肥鯮
+信息源：[米国務長官、ウクライナ外相と国境で会談「全世界は共にある」（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/9db373b50457e059ae52841aa14db40cd5569da9)
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

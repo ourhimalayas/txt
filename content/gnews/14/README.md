@@ -2,36 +2,62 @@
 ---
 
 
-## 丰县有无数个锁链女，接种毒疫苗患上白血病
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2113358/)
+## 来自世界各地的数十名外交官，集体给予&#8221;纷纷离场&#8221;制裁抗议
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2113377/)
 
-#### 作者：闲聊澳洲
-编辑：文泓
+I would now like to give the floor to His Excellency
+我现在想请阁下发言
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-55.png)图片来源：Gnews & 雅典娜设计组
+Mr. Sergey Lavrov Minister for Foreign Affairs of the Russian Federation
+谢尔盖·拉夫罗夫先生, 俄罗斯联邦外交部长
 
+You have the floor, Excellency
+请发言，阁下
 
-在锁链女这件事情发酵之后，有一位叫做“谁知道谁谁了解谁”的微博网友在丰县论坛上搜索寻人通告，经统计，“走失者为女性”的寻人启事有151份。他将这些搜索结果进行汇总分析，发现这里的精神异常、精神障碍共90份，这90份的寻人启事中（语境）基本上都是外地人，尤其是他看到有一个寻人启事中的女性还带着铁链子……
+Sergey Lavrov (Minister of Foreign Affairs of the Russian Federation)
+谢尔盖·拉夫罗夫（俄罗斯联邦外交部长）
 
-这90人还只是丰县被曝“走失”的精神障碍女性，没有通报寻找的和没有走失的精神障碍女性又会有多少呢？这还只是一个小小的丰县，其他地方又有多少被拐女性被致残、被逼成精神病、被死亡的呢？3月2日，中共国公安部推进所谓“百万警进千万家，打击拐卖妇女儿童犯罪专项行动”。
+Ladies and gentlemen
+女士们，先生们
 
-在活动中公安部要求要集中摸排一批线索，全面梳理排查侵害妇女儿童权益线索，重点排查疑似被拐人员。
+I had hoped that after a two year gap
+我曾希望在两年的距离之后
 
-网友对此的评论是，一个锁链女都没有搞清楚，丰县到底有多少个被逼成精神病的女人？有多少个锁链女都没有搞清楚，你以什么标准去排查千万家？不立法参与拐卖“买卖同罪”，不解除被拐的夫妻关系，其他的一切都只是敷衍，是糊弄鬼的。
+I would be able to participate in the work of the United Nations Human Rights Council in person
+我将能够亲自参与联合国人权理事会的工作
 
-中共国国家卫健委发了一份公告，公告提示，国家卫生健康委办公厅关于“请关注部分自诉接种新冠病毒疫苗后罹患白血病人员近期重点动向”的函。河北省、山西省、内蒙古自治区、辽宁省、吉林省、江苏省、浙江省、安徽省、江西省、山东省、河南省、湖北省、广东省、广西壮族自治区、四川省、贵州省、云南省、陕西省、甘肃省卫生健康委，近日我委了解到部分人员在微信群中自述本人或家属接种新冠病毒疫苗后罹患白血病，并在微信群中进行接龙，有下一步组织集体活动的可能。当前全国两会和北京残奥会即将召开，相关行为可能会引发炒作，影响社会稳定。**现将人员名单转给你们，请高度重视，进一步加强新冠病毒疫苗接种规范化管理，依法依规开展一次疑似预防接种，预防反应处置，及时关注相关人员近期重点动向，与有关部门共同做好矛盾化解工作**。工作过程中请做好相关信息的管理，避免外泄，重要情况请及时通报我委。
+However, I’m compelled to address you by video
+但是，我不得不通过视频向您致辞
 
-以上国家卫健委的通告可以看出几点，一是在打了新冠疫苗之后，罹患白血病的人员特别多，已涉及到19个省和自治区；此外，有很多人在微信群里说，打了疫苗之后患了白血病，所以这个通告的意思就是，这个消息不能外传，换言之，要重点监控这些个发布消息的人。估计如果他们再发布的话，就会对你进行消声措施，或者是让你物理消失了。中共对付民众一贯的手段就是不解决问题本身，解决提出问题的人。
+The reason for this is the outrageous measures by the European Union
+原因是欧盟采取了离谱的措施
 
-资料来源：[闲聊澳洲 – YouTube](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
+to refuse to respect one of the fundamental human rights
+拒绝尊重一项基本人权
 
-发布：tianzhihuan
+the right to freedom of movement
+自由行动权
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原视频链接[https://twitter.com/ahnewspace/status](https://twitter.com/ahnewspace/status)
+
+Date:03/03/2022
+原视频标题:Dozens of diplomats from around the world collectively “leave the venue” in sanction protests when Russian Foreign Minister Sergey Lavrov speaks at the annual session of the UN Human Rights Council
+俄罗斯外交部长谢尔盖·拉夫罗夫，在联合国人权理事会年度会议上发表讲话时，来自世界各地的数十名外交官，集体给予”纷纷离场”制裁抗议
+原视频日期：2022/03/02
+原视频链接https://twitter.com/ahnewspace/status/1498846672935620611?s=24
+任务编号：3905
+视频时间段 : 0:00-1:02
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

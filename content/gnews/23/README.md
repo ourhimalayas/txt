@@ -2,15 +2,15 @@
 ---
 
 
-## Visa和MasterCard宣布停止所有在俄境内的交易活动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2112992/)
+## 欧盟同意中止俄白参与波罗的海国家理事会活动
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2113021/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-4.jpg)Visa和MasterCard宣布停止所有在俄境内的交易活动 网络图片
-据俄罗斯卫星通讯3月6日报道，美国的Visa公司和MasterCard公司正式宣布，停止其在俄罗斯的业务。意味着所有在俄境内发行Visa卡和MasterCard卡发起的交易将无法再在境外进行，而任何在俄境外金融机构发行的Visa卡和MasterCard卡也将无法在俄境内使用。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-5.jpg)欧盟同意中止俄白参与波罗的海国家理事会活动 网络图片
+据自由亚洲电台3月5日报道，欧盟（EU）5日表示，“欧盟与波罗的海国家理事会（CBSS）其他成员（丹麦、爱沙尼亚、芬兰、德国、冰岛、拉脱维亚、立陶宛、挪威、波兰和瑞典）皆同意，中止俄罗斯和白俄罗斯参加理事会的活动”。这一决定是欧盟与同伴对俄罗斯入侵乌克兰，以及白俄罗斯参与这一侵略行为的回应。
 
-俄罗斯国家支付卡系统代表此前还表示，如果俄境内被切断与Visa和Mastercard的联系，国际支付系统卡交易将由俄国家支付卡系统本身代替它们进行处理。
+作孽者固然可恨，帮凶也同样不可饶恕。白俄罗斯为俄罗斯的侵略行为提供便利和帮助，当领受同样的制裁和追责。
 
-新闻参考链接：[https://sputniknews.cn/20220306/1039756894.html](https://sputniknews.cn/20220306/1039756894.html)
+新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/7-03052022153657.html](https://www.rfa.org/mandarin/Xinwen/7-03052022153657.html)
 
 * * *
 
