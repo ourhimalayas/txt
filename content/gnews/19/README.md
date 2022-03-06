@@ -2,26 +2,43 @@
 ---
 
 
-## 乌克兰大救援03.06 “新中国联邦乌克兰国际人道救援行动”的四组震撼数据
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2115593/)
+## 乌克兰所继承的前苏联军事遗产 4-安东诺夫设计局
+` 军情启示录` [轉載自GNews](https://gnews.org/zh-hans/2115703/)
 
-撰稿：大浪小水花
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9f5ea086-2b16-4b86-8e6e-ef078d240c38.jpg)Source:Gettr
-在2022年3月6日大直播中，郭文贵先生透露了有关这次“新中国联邦乌克兰国际人道救援行动”的四种震撼性数据 ：
+发布: AWAC （新西兰伊甸农场）
 
-一、在俄乌战争期间，全球唯一一个进入乌克兰战区救人的中国人的组织是新中国联邦。
+作者: AWAC （新西兰伊甸农场）
 
-二、新中国联邦是是中国人中唯一一个，没有任何立场，没有政治任何诉求，去救助中国人、乌克兰人和世界各国友人的组织。
+安东诺夫航空科学技术联合体, 原名安东诺夫设计局是一架总部位于基辅,专门从事超大型运输飞机研发的航空科研公司。现已改名为安东诺夫国营公司。在苏联时期安东诺夫主要承担军用运输机的开发，其中较有名的代表性产品有载重量150吨的An-124运输机，和载重量达到250吨的An-225巨型运输机。在80年代中期，前苏联因其航天计划的需求，需要有一种可以运输暴风雪航天飞机和大型火箭的大型运输机，安东诺夫设计局以An-124为设计基础，放大机身设计，增加发动机，修改尾翼布局，在短时间内拿出了An-225方案。An-225一共只生产 了一架，第二架原型机半途停工，目前只有一个半成品的机身。前苏联解体后，由于资金短缺，An-225一度被搁置废弃，2001年后由于An-124商业运行的成功，安东诺夫也利用西方先进航电将An-225升级并成功投入商业运行, 专门用于运载超大型工业设备和人道主义救援，并打破多项飞行记录。
 
-三、真正在乌克兰内部救出很多中国人和外国人的组织只有新中国联邦。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-3-scaled.jpg)
 
-四、中国人现在在乌克兰最少有3万人，特别是工人，他们连通讯能力都没有，这些人都被CCP抛弃了。
+*An-225 背负暴风雪号航天飞机*
 
-郭先生强调，他对这四组数据的真实性负全部责任。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture2-4.jpg)
 
-来源链接：[https://gettr.com/streaming/pyhtnya292](https://gettr.com/streaming/pyhtnya292)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture3-1.jpg)
 
-校对发布：香水百合
+*投入商业运行的An-225*
+
+本次俄罗斯入侵乌克兰，在占领安东諾夫机场期间， AN-225 已经不幸中弹，损毁严重*。*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture4-3.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture5-3.jpg)
+
+*被俄军摧毁的An-225，机身结构已经被严重破坏，难以修复*
+
+有报道【8】说在2020年乌克兰曾一度与土耳其合作，计划共同完成 AN225 的第二架半成品。第二架 AN225 目前只有机身段，被存放在位于乌克兰境内的工厂中，是否能在残酷的战争中幸存，尚不得而知。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture6-2.jpg)
+
+*第二架An-225机身半成品*
+
+**参考资料**：
+【8】[Sky Giant: Turkey Mulls To Complete The Second Antonov An-225 Mriya](https://www.oryxspioenkop.com/2022/01/sky-giant-turkey-mulls-to-complete.html)
+
+**（未完持续）**
 
  
 

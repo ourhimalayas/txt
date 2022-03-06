@@ -2,31 +2,25 @@
 ---
 
 
-## 有声|俄乌战争局势趋紧 百万难民逃离乌克兰
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2115671/)
+## 【秘翻在线】拜登政府要求大科技公司提交有关散播新冠“错误信息”的数据
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2115758/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月2日，据外媒报道，俄军对乌克兰多个城市发动了毁灭性的炮火袭击，造成2000多名乌克兰平民死亡。沦陷的赫尔松将成为俄军深入乌克兰的关键集结地。
+#### 翻译/撰稿：zzballack
 
-据悉，俄罗斯已将沿边境集结的82%的部队转移到乌克兰本土，并加强了对哈尔科夫、马里乌波尔、赫尔松和基辅四个战略城市的进攻。经过激烈交战，位于黑海附近第聂伯河上的乌克兰南部港口城市赫尔松2日已被俄军攻陷。该市市长科利哈耶夫证实，俄军占领了市政厅，且对居民实施了宵禁。乌克兰军队在被俄军围困后撤出了这座城市，只有携带食物、药品等物资的车能以最低速度进入该市。市长恳请俄军不要向平民开枪，并希望设立一个开放的走廊来运送食品、药品和伤员，否则这座城市的平民将无法生存。
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16465784351.png)图片来源：CNBC
+据《网关专家》（Gateway Pundit）3月4日报道，本周四（3月3日），拜登的外科医生维维克·穆尔蒂 (Vivek Murthy)要求美国所有的大科技公司必须向联邦政府提供那些参与传播了被认定是“错误信息”（特别是有关新冠病毒或2020总统大选的信息）的美国人的数据。
 
-联合国难民署3月3日表示，自俄罗斯入侵乌克兰一周以来，已有100万难民逃离了该国。难民署警告说，除非俄罗斯立即结束侵略，否则乌克兰可能产生的数百万难民，将对周边邻国造成难以想象的冲击。
+维维克·穆尔蒂在外科医生办公室发出的正式请求中呼吁美国大科技平台从社交网络、搜索引擎、众包平台、电子商务平台和即时通讯系统中收集关于新冠“错误信息”的普遍性和规模的数据，并在5月2日前将其交给拜登政府。
 
-文字版原文：[俄乌战争局势趋紧 百万难民逃离乌克兰](https://gnews.org/zh-hans/2109160/)
+《纽约时报》报道说：“通知要求这些公司提交‘究竟有多少用户看到或可能接触到新冠的错误信息’，以及可能受错误信息影响的人口统计学方面的综合数据。穆尔蒂还要求各平台提供有关新冠错误信息的主要来源的详细信息，包括那些参与销售未经证实的新冠产品、服务和治疗的平台。穆尔蒂说此举是为了保护国家的健康。各公司必须在5月2日前提交数据，拒绝提供信息的不会受到处罚。该通知是拜登政府首次正式要求科技公司提交有关新冠错误信息的数据。”
 
-音频处理：Fei797
-发稿：Fei797
+去年7月，维维克·穆尔蒂也曾以保护国家卫生为由，给自由言论贴上了“严重危害公共卫生”的标签，并呼吁全社会全力打击“错误信息”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+问题在于：谁代表正确谁的信息是错误信息由谁来界定？由政府吗？由被金钱收买了良知的砖家叫兽吗？由辉瑞那样披着专业外衣的利益机构吗？警惕！政府垄断话语权并对反对自己的言论进行惩罚是法西斯主义的开始。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻来源：[Biden’s Surgeon General Launches Latest Crusade to Purge Dissent – Orders Big Tech to Provide Info to Federal Government on Those Spreading COVID “Misinformation”](https://www.thegatewaypundit.com/2022/03/bidens-surgeon-general-launches-latest-crusade-purge-dissent-orders-big-tech-provide-federal-government-personal-data-americans-spreading-covid-misinformation/)
+
 
 
  
