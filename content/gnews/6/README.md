@@ -2,41 +2,83 @@
 ---
 
 
-## 【每日聚焦】俄乌战事3月5日简要（二）
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2112522/)
+## 瑞士：卢加诺市（Lugano）采用比特币（BTC）、USDT、LVGA作为法定货币
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2112692/)
 
-**撰稿：蓝莲花农场 文斌**
+译评：香草山商业部 — 文锤
 
-1、Odesa方向：在Odesa东边的Ochakiv（奥恰基夫）一架俄军战机被击落，飞行员被俘虏。而就在Odesa，一架俄军直升机被击落。联想到再早一点时间有另一架俄罗斯飞机在Mykolaiv地区Shapaevka附近被击中，说明俄军对Odesa方向动作增多。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-2、普京称任何试图在乌克兰上空设置禁飞区的都将被视为参与战争，并且称摧毁乌克兰军事基础设施的工作已基本完成（很可笑的宣传），还说对俄罗斯实施的制裁就像对俄宣战一样。
 
-3、乌克兰南部和东部多地民众抗议俄罗斯入侵，包括Kherson、Melitopol、扎波罗热、卢甘斯克州的Belokurakino（别洛库拉基诺市），这些地区都是俄罗斯语人群比较多或者传统的亲俄地区，但是现在都反对俄罗斯的入侵，说明这次俄军行动多么不得人心。
 
-4、北约拒绝了乌克兰关于在乌克兰上空建立禁飞区的请求。
 
-5、芬兰和瑞典继续就加入北约和多边防御措施进行高级别讨论，摩尔多瓦也火线递交加入北约的申请。
 
-6、哈尔科夫：3小时前乌克兰总参谋部透露，在海军陆战队和警察的帮助下，150名儿童从哈尔科夫的一家孤儿院疏散出来。
+作为与 Tether 合作的一部分，瑞士卢加诺市（Lugano）将接受其纳税人使用比特币 (BTC) 和 USDT 纳税。另一方面，卢加诺（Lugano）希望通过采取许多对加密货币友好的措施来吸引加密货币行业的初创公司。
 
-7、哈尔科夫：乌克兰防空部队在哈尔科夫南部的克拉马托尔斯克上空击落俄军巡航导弹。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-suisse-lugano-adopte-bitcoin-usdt-lvga-monnaies-legales.jpg)图片来源于网络
 
-8、切尔尼戈夫：俄军用威力巨大的无制导FAB-500炸弹轰炸切尔尼戈夫的居民区，消息来源于切尔尼戈夫州当局负责人。
+**卢加诺（Lugano）希望使加密货币的使用民主化**
 
-9、苏梅：俄罗斯航空摧毁了燃料站并损坏了苏梅南部城市Lebedyn（列宾）的居民楼，Lebedyn至苏梅不到一小时车程，苏梅被困的同胞处境最为凶险和无助，各个方向几乎都有战斗，仅仅西南方向没有大规模交战。
+由于与为著名的稳定币 USDT 提供支持的公司[Tether](https://cryptoast-fr.translate.goog/stable-coin-crypto/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)的合作，瑞士卢加诺市（Lugano）将允许其公民以加密货币纳税。
 
-10、乌克兰外长Dmytro Kuleba在乌波边境与美国国务卿Blinken会面，继续争取国际援助。同时乌克兰当局证实一名谈判代表团成员被杀，并指责莫斯科方面将其杀害。泽伦斯基总统敦促被俄罗斯占领的土地上的每一个乌克兰人起来战斗。
+除了这第一步，瑞士城市的目标是扩大对加密货币的接受，以支付其城市提供的商品和服务。
 
-11、乌克兰外交部称：过去一周，乌克兰政府已协助13万名外国人离开乌克兰，包括1万名印度人、2.5万名中国人和1.7万名土库曼学生。他们呼吁其他国家的外交使团更积极一起努力，以疏散其国民。
+与此同时，该市已经与 200 多家商家合作，推动比特币(BTC) 的采用和通过闪电网络进行的支付。
 
-12、乌克兰电信运营商Ukrtelecom出现故障，运营商报告说，由于战争影响，切尔尼戈夫、苏梅、赫尔松、文尼察、日托米尔、罗夫诺、沃伦、赫梅利尼察、利沃夫和特尔诺皮尔等多地的服务受到影响。幸运的是目前还可以提供服务，但是也会随时面临中断的风险，这将会给救援工作带来更大挑战，也会让被困同胞更加无助。
+从这个意义上说，卢加诺发起了“计划₿ ”，该计划涉及在城市中心建立一个枢纽，以促进与比特币和区块链相关的初创公司的发展。
 
-校对：文斌 / 发布：一叶知秋
+这是一段视频，展示了卢加诺（Lugano）内现在可以用加密资产支付的所有服务：
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-图片1.png)
+
+推特链接：
+[https://twitter.com/paoloardoino/status/1499472211232571395?s=21](https://twitter.com/paoloardoino/status/1499472211232571395?s=21)
+
+此外，该计划还规定设立两个投资基金。第一个将获得 326 万美元，用于推动当地采用比特币、USDT和该市的稳定币LVGA（由瑞士法郎支持）。
+
+至于第二个基金，它将达到 1.1 亿美元，将专门用于希望落户卢加诺（Lugano）的、与加密货币和区块链相关的初创公司。
+
+最后，这个项目的最后一个方面是让学术界知道这项技术。这就是为什么卢加诺（Lugano）计划创建一个关于比特币和闪电网络的专业学习计划，以提高年轻学生在这些新技术方面的技能。
+
+“卢加诺（Lugano）正在投资其未来。近年来，我们已经实施了基于区块链的解决方案，包括 MyLugano 应用程序及其支付令牌 LVGA Points、数字卢加诺法郎和 3Achain 区块链基础设施，”卢加诺市长 Michele Foletti 说。
+
+**瑞士仍是领先采用加密货币的国家**
+
+卢加诺市（Lugano）项目在瑞士并不新鲜。事实上，其他城市和州已主动允许以加密货币缴纳税款。
+
+以楚格州或采尔马特市为例，该州接受来自纳税人的比特币和以太币 (ETH) 。但是，后者只允许使用加密货币之王比特币 。
+
+这再次证明瑞士当局对数字加密货币越来越友好，这使得瑞士与它的一些邻国不同，成为加密货币行业初创企业的首选之地。
+
+**评论：**记得七哥也曾提到过喜联储在欧洲的布局，包括瑞士、卢森堡和列支敦士登等欧洲的金融强国。未来的喜币也一定会在这些地方率先突进，被主权国家所承认。让我们拭目以待。
+
+**原文作者：[Anthony Bassetto](https://cryptoast.fr/author/anthony-bassetto/)**
+
+**原文阅读：[https://cryptoast.fr/suisse-lugano-adopte-bitcoin-usdt-lvga-monnaies-legales/](https://cryptoast.fr/suisse-lugano-adopte-bitcoin-usdt-lvga-monnaies-legales/)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

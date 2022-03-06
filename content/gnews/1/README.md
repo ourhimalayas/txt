@@ -2,46 +2,21 @@
 ---
 
 
-## 普京称乌克兰“特别行动的决定很沉重”
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2112670/)
+## 雅典娜时报-第224期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2112762/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image008-1.jpg)Sputnik / Sergey Guneyev
-**3**月**5**日，据俄罗斯卫星通讯社报导**,**俄罗斯总统普京声称**“**作出乌克兰特别行动的决定很艰难。**”**
+#### 《雅典娜时报》汇聚全球新闻时事
 
-俄总统普京在周六会见了俄罗斯航空公司的女性飞行机组人员，在会见中，他被问及了在乌克兰**“**特别行动的目标**”**。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/949718605438808074/155_8.png?width=762&amp;height=1135)![圖片](https://media.discordapp.net/attachments/825592691433668612/949718605824655470/155_1.png?width=762&amp;height=1135)
+*发布：陶子*
 
-普京对这个问题回答到：**“**我在开始行动时以及在做出这个决定之前都谈到了它。这是一个艰难的决定，毫无疑问。**”**
-
-据报导称，普京还表示，俄罗斯试图以和平的方式解决乌克兰的冲突。他还强调，应该让顿巴斯说俄语并以自己的方式生活，但是那里的人反而被有组织地封锁了。
-
-普京一直声称，这次入侵乌克兰的行动的目的在于保护顿巴斯居民。俄罗斯国防部则强调，俄军只打击乌克兰军事目标和部队，乌克兰平民不会受到任何威胁。但是，我们在乌克兰战区流出的众多网络视频和直播中看到乌克兰当地普通民众很多都在俄乌交战的炮火中遭遇伤亡，其中也包括华人。
-
-
-
-[【援引连结】](https://sputniknews.cn/20220305/1039753584.html)
-
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
