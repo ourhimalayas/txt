@@ -2,21 +2,35 @@
 ---
 
 
-## 青岛疫情井喷
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119789/)
+## 救援行动遭遇乌克兰当地排华情绪严重
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2119487/)
 
-撰稿：东京樱花团/秋明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-34.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg3.jiemian.com%2F101%2Foriginal%2F20220306%2F164653358392818100.jpg&amp;imgrefurl=https%3A%2F%2Fwww.jiemian.com%2Farticle%2F7175588.html&amp;tbnid=g6YJJ8YOpCrppM&amp;vet=12ahUKEwjo-Kqt37P2AhXLRMAKHUcvD4IQMygFegUIARCcAQ..i&amp;docid=IOXtjCNNriVBAM&amp;w=600&amp;h=400&amp;itg=1&amp;q=%E9%9D%92%E5%B2%9B%E7%96%AB%E6%83%85&amp;ved=2ahUKEwjo-Kqt37P2AhXLRMAKHUcvD4IQMygFegUIARCcAQ)
-自3月3号青岛莱西七中三位学生确诊阳性以来，青岛的疫情持井喷状态迅速增加，据官方报告，截止到3月6号，累计确诊阳性136例无症状感染者115例，病毒属于奥米克戎，传染源还在调查中。
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+3月5日，新中国联邦、法治基金与国际救援组织合作，发起了乌克兰国际人道救援行动。英喜农场的大卫先期到达波兰的热舒夫市，安排从乌克兰转移出的人员撤离。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-9.jpg)
+工作过程中，大卫发现墙内小粉红关于乌克兰的无良言论早就在乌克兰当地人中广泛传播，几乎尽人皆知。导致当地排华现象已经非常严重，在乌留学生因为华人身份无法搭乘躲避战乱的巴士、卡车、私家车。同时，乌克兰人对华人的敌对情绪，也让在乌华人随时面临着生命危险。
 
-据说该病毒在学生中间潜在传播多日，按照中共政府处理问题的风格，能捂就捂实在捂不住了才爆出来，要不然仅仅三天时间增加了一百多，还不知道这里面有多少水分？官员信誓旦旦要把病毒尽快清零，流行两年的病毒至今肆虐全球，这一世界性难题大概只有中共国官员能轻易破解！
+大卫表示，他从当地人的眼神里能感受到他们的绝望和对华人的排斥，这种情绪很可能会演变成一种随时会爆发的仇恨和愤怒。参与这次一线救援的战友对此都有切身的感受。
 
-3月7号24:00莱西启动第二轮全员核酸检测，明明可以自己在家检测，明明生产了大量医疗检测器材，源源不断输送到国外使用，偏偏不给自己国民使用，凌晨24点把大家召集起来不睡觉做这劳命伤财的无用功！可怜老百姓，在羊圈里任意宰杀还感恩戴德！人家可是百分之百真心实意！朋友圈无一例外满满的的“正能量”，笔者很想跟视频里这位辛苦劳作召集大家带好口罩保持3米距离的的女干部说一句，您的口罩没有在鼻子上端这样戴无效。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-7.jpg)
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+参考链接：
+1. [https://www.gettr.com/post/pycmmr7455](https://www.gettr.com/post/pycmmr7455)
+2. [https://www.youtube.com/watch?v=H3q59MRAh6E](https://www.youtube.com/watch?v=H3q59MRAh6E)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/审核：飞虹
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

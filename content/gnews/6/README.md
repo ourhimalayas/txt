@@ -2,30 +2,31 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月7日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2122094/)
+## 正道主义的核心
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2122175/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-2.jpg)
+文编：Hima
+听写：叮叮
+视频：七哥
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-7.png)
-文章仅代表作者本人观点，与Gnews无关
+2022-03-02直播摘录
 
-视频参看：
-[2022.03.07早 《NFSC新闻》](https://gettr.com/streaming/pynonh0b99)
-[2022.03.07早 G|TV《新闻访谈》](https://gettr.com/streaming/pynmhh70a5)
+你去看一看这个世界上穆斯林、佛教、基督教、天主教，你发现有分教吗？最大人类上从来没有因教而支持谁，完全是无宗教背景的。你见有什么族类分别吗？没有任何种族分别的。有什么国家分别吗？没有什么国家分别。而且老百姓真的不是为了利益来决定，真的觉得你不该打，你不该这么杀，你不能杀害这个无辜，这是正道主义的核心。维护地球人类的绝大多数人的公平、正义、安全跟和平，它才属于正道主义。所以在世界的互联网时代才诞生了今天你看到的奇迹，正义的人之不分高低，不分男女，不分老少在维护着和平和正义。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-8.jpeg)
+**关注我们**
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

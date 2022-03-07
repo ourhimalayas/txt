@@ -2,39 +2,33 @@
 ---
 
 
-## 俄罗斯或将面临重大债务违约
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2120189/)
+## 北约拒绝在乌克兰上空设立禁飞区
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2119490/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+3月4日，北约秘书长斯图尔滕贝格表示，北约不会在乌克兰上空设立禁飞区。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-12.jpg)
+乌克兰一再呼吁西方列强实施禁飞区，以降低俄罗斯军方从空中攻击乌克兰目标的能力。但在4日的北约外长会议后，斯图尔滕贝格发表讲话表示，由于担心与俄罗斯直接交锋会演变成更大范围的冲突，北约不会介入这场战事。他同时警告普京，如果再不停战，西方国家会推出新一轮更严厉的制裁。
 
-整理：围剿维尼熊
-编辑：木木木mmmmm
+得知消息后，乌克兰总统泽连斯基称，北约会议是一场软弱、混乱的峰会，北约拒绝设立禁飞区为俄罗斯的进一步轰炸开了绿灯。泽连斯基认为，北约要为自己的软弱和自私导致更多人死亡负责。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0158.jpg)图片来源：FT
+参考链接：[NATO won’t establish no-fly zone over Ukraine, Stoltenberg says](https://www.politico.eu/article/nato-wont-establish-no-fly-zone-over-ukraine-jens-stoltenberg-says/)
 
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-根据路透社报道，俄罗斯3月6日表示，其主权债券的偿付将取决于西方国家对该国实施的制裁措施。这令外界担忧，该国可能面临重大外债违约。
+总编/编辑/审核：飞虹
+校对/发稿：Hetangyuese
 
-俄罗斯财政部表示，将按时足额偿付主权债务，但支付可能会受到国际制裁的阻碍。
+**更多资讯，更多关注**
 
-在普京对乌克兰开战后，俄罗斯6400亿美元储备大部分被西方冻结。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-俄财政部表示，从现在开始，俄罗斯将使用卢布向居民支付以外币计价的债券。
-
-财政部还表示，由于俄政府的限制，俄罗斯或许无法进行债券支付。
-
-这可能是俄罗斯在一个多世纪以来首次重大债务违约。即使在苏联解体时，俄罗斯也承担了其外债。
-
-参考链接：[俄罗斯警告主权债持有人 债券偿付要视制裁情况而定](https://cn.reuters.com/article/russia-sovereign-debts-warning-0306-sun-idCNKBS2L401H?il=0)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

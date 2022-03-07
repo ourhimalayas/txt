@@ -2,39 +2,37 @@
 ---
 
 
-## 英国上议院法案：禁止从“种族灭绝”国家采购医疗用品
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2120212/)
+## 俄罗斯违背停火协议，轰炸逃离马里乌波尔的平民
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2119491/)
 
-## **【雅典娜快讯】和您一起洞察世界**
+作者：日本东京方舟农场-Miyali7768(文玉）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+3月5日，英国媒体报道，俄罗斯国防部曾宣称，在两个被俄军包围的乌克兰城市——马里乌波尔和沃尔诺瓦哈——附近，当天停火，允许平民利用人道走廊安全疏散。但俄罗斯违反停火协议，猛烈轰炸了马里乌波尔的医院。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-13.jpg)
+医院的医生依靠透过窗户和手机发出的光线照料在马里乌波尔受伤的乌克兰士兵， 医院没有电，也没有暖气，没有足够的药物供应，医生已经连续一个多星期没有休息，病人在走廊的病床上排成一排，有些人蜷缩在地板上保护自己。
 
-整理/编辑：文泓
+轰炸后，基辅取消了3月5日从马里乌波尔和沃尔诺瓦卡疏散超过 20万名平民的计划。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-21.png)图片来源：The Epoch Times & 雅典娜设计组
+无国界医师组织MSF表示，该市事态极为严峻。必须尽快开设安全通道，让马里乌波尔市民可以安全避难，
 
+参考链接：
+1. [Parents grieve over toddler killed by shrapnel hours before ‘ceasefire’ intended to let them evacuate](https://www.dailymail.co.uk/news/article-10580113/All-people-die-Zelensky-slams-NATOs-refusal-establish-no-fly-zone.html)
+2. [俄軍毀約狂轟 無國界醫師組織：馬立波事態嚴峻](https://news.ltn.com.tw/news/world/breakingnews/3850030)
 
-当地时间3月3日，英国上议院通过一项修订法案，要求英国国民保健署（NHS）在采购医疗用品及服务时，应排除存在“种族灭绝”情况的国家。虽然未点名中共国，但提案议员在国会发言时，均直指新疆存在强迫劳动和种族灭绝问题。
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-在审议该法案时，多名上议员提出修订案，要求内政大臣必须制订政策，确保英国的医疗用品和服务采购，符合英国在《防止及惩治灭绝种族罪公约》下的义务，即不得从存在严重种族灭绝风险的国家采购。
+总编/编辑/审核：飞虹
+校对/发稿：Hetangyuese
 
-提出修订案的奥尔顿勋爵在国会发言：“**三分之二受访者表示，他们将支持阻止政府从存在严重种族灭绝风险的地区，为国民保健署采购医疗设备。因此这项跨党派修正案的要求，得到广泛民意支持。**”
+**更多资讯，更多关注**
 
-奥尔顿勋爵指出，自疫情以来，英国一共采购了369亿件个人防护装备，当中有241亿件来自中国，即超过65%；又从中国购买了10亿枝快速测试剂，连同个人防护装备，一共花费了48亿英镑。
-英国《每日电讯报》去年曾披露，英国政府曾向被美国指控和新疆强迫劳动有关的企业，购买价值1.5亿英镑的个人防护装备。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-提出修订的议员要求英国政府采取行动，阻止参与强迫劳动和种族灭绝罪行的罪犯继续赚取英国纳税人的金钱，停止助纣为虐。
-
-修订案最终在上议院获得通过，下一步将提交下议院继续审议。
-
-参考链接：[英国上议院法案：禁止从“种族灭绝”国家采购医疗用品](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/al-03042022143024.html)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
