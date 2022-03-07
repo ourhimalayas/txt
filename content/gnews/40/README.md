@@ -2,18 +2,22 @@
 ---
 
 
-## 新中国联邦第一辆救援大巴抵达波兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2119488/)
+## 俄罗斯违背停火协议，轰炸逃离马里乌波尔的平民
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2119491/)
 
-作者：纽约香草山农场 – 飞虹
+作者：日本东京方舟农场-Miyali7768(文玉）
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月5日，新中国联邦从乌克兰出发的第一辆救援大巴经过十几个小时的艰难前行，载着70个逃离乌克兰的战友、华人以及乌克兰本地人，终于抵达大卫等战友早已等在那里的波兰热舒夫市。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-10.jpg)
-守候在那里战友将早已准备好、分好的食物交给这些逃离人员，并准备分别安排他们转移到下一站。
+3月5日，英国媒体报道，俄罗斯国防部曾宣称，在两个被俄军包围的乌克兰城市——马里乌波尔和沃尔诺瓦哈——附近，当天停火，允许平民利用人道走廊安全疏散。但俄罗斯违反停火协议，猛烈轰炸了马里乌波尔的医院。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-13.jpg)
+医院的医生依靠透过窗户和手机发出的光线照料在马里乌波尔受伤的乌克兰士兵， 医院没有电，也没有暖气，没有足够的药物供应，医生已经连续一个多星期没有休息，病人在走廊的病床上排成一排，有些人蜷缩在地板上保护自己。
 
-大卫战友简单介绍了在当地进行救援活动的大致安排及自己的亲身感受。
+轰炸后，基辅取消了3月5日从马里乌波尔和沃尔诺瓦卡疏散超过 20万名平民的计划。
 
-参考链接：[https://www.youtube.com/watch?v=H3q59MRAh6E](https://www.youtube.com/watch?v=H3q59MRAh6E)
+无国界医师组织MSF表示，该市事态极为严峻。必须尽快开设安全通道，让马里乌波尔市民可以安全避难，
+
+参考链接：
+1. [Parents grieve over toddler killed by shrapnel hours before ‘ceasefire’ intended to let them evacuate](https://www.dailymail.co.uk/news/article-10580113/All-people-die-Zelensky-slams-NATOs-refusal-establish-no-fly-zone.html)
+2. [俄軍毀約狂轟 無國界醫師組織：馬立波事態嚴峻](https://news.ltn.com.tw/news/world/breakingnews/3850030)
 
 ![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 

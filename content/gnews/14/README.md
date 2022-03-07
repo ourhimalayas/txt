@@ -2,8 +2,8 @@
 ---
 
 
-## 20220306文贵大直播：七哥2017年就有普京和习近平侵占乌克兰和台湾的情报
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2122037/)
+## 20220306文贵大直播：打过疫苗的有五千种关联的症状
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2122039/)
 
 作者:东京樱花团小视频组
 

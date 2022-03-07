@@ -2,18 +2,18 @@
 ---
 
 
-## 北约拒绝在乌克兰上空设立禁飞区
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2119490/)
+## 乌克兰危机下，世界银行等机构纷纷与俄罗斯切割
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2119493/)
 
 作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月4日，北约秘书长斯图尔滕贝格表示，北约不会在乌克兰上空设立禁飞区。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-12.jpg)
-乌克兰一再呼吁西方列强实施禁飞区，以降低俄罗斯军方从空中攻击乌克兰目标的能力。但在4日的北约外长会议后，斯图尔滕贝格发表讲话表示，由于担心与俄罗斯直接交锋会演变成更大范围的冲突，北约不会介入这场战事。他同时警告普京，如果再不停战，西方国家会推出新一轮更严厉的制裁。
+自俄乌战争打响以来，世界银行等国际机构都在争先恐后地与俄罗斯和白俄罗斯在俄乌保持距离。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-15.jpg)
+3月2日，世界银行宣布，它将 “立即 “停止在俄罗斯和白俄罗斯的所有项目，3月3日，亚投行发表一份声明表示，为了亚投行的最大利益，管理层已决定暂停所有与俄罗斯和白俄罗斯有关的活动，并接受审查。3月4日，总部位于上海的金砖国家新开发银行以“不断出现的不确定性和限制”为由，暂停了在俄罗斯的所有新交易。
 
-得知消息后，乌克兰总统泽连斯基称，北约会议是一场软弱、混乱的峰会，北约拒绝设立禁飞区为俄罗斯的进一步轰炸开了绿灯。泽连斯基认为，北约要为自己的软弱和自私导致更多人死亡负责。
+随着俄罗斯入侵的不断持续，除上述国际机构外，许多国家、组织和企业也在与俄罗斯断绝关系，对其实施制裁，并对支持俄罗的白俄罗斯进行共同制裁。
 
-参考链接：[NATO won’t establish no-fly zone over Ukraine, Stoltenberg says](https://www.politico.eu/article/nato-wont-establish-no-fly-zone-over-ukraine-jens-stoltenberg-says/)
+参考链接：[New Development Bank Suspends All New Transactions In Russia Amid Ukraine Crisis](https://www.outlookindia.com/international/brics-new-development-bank-suspends-all-new-transactions-in-russia-amid-ukraine-crisis-news-185166)
 
 ![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 

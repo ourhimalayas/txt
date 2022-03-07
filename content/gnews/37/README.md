@@ -2,37 +2,21 @@
 ---
 
 
-## 俄罗斯违背停火协议，轰炸逃离马里乌波尔的平民
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2119491/)
+## 青岛疫情井喷
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119789/)
 
-作者：日本东京方舟农场-Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月5日，英国媒体报道，俄罗斯国防部曾宣称，在两个被俄军包围的乌克兰城市——马里乌波尔和沃尔诺瓦哈——附近，当天停火，允许平民利用人道走廊安全疏散。但俄罗斯违反停火协议，猛烈轰炸了马里乌波尔的医院。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-13.jpg)
-医院的医生依靠透过窗户和手机发出的光线照料在马里乌波尔受伤的乌克兰士兵， 医院没有电，也没有暖气，没有足够的药物供应，医生已经连续一个多星期没有休息，病人在走廊的病床上排成一排，有些人蜷缩在地板上保护自己。
+撰稿：东京樱花团/秋明
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-34.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg3.jiemian.com%2F101%2Foriginal%2F20220306%2F164653358392818100.jpg&amp;imgrefurl=https%3A%2F%2Fwww.jiemian.com%2Farticle%2F7175588.html&amp;tbnid=g6YJJ8YOpCrppM&amp;vet=12ahUKEwjo-Kqt37P2AhXLRMAKHUcvD4IQMygFegUIARCcAQ..i&amp;docid=IOXtjCNNriVBAM&amp;w=600&amp;h=400&amp;itg=1&amp;q=%E9%9D%92%E5%B2%9B%E7%96%AB%E6%83%85&amp;ved=2ahUKEwjo-Kqt37P2AhXLRMAKHUcvD4IQMygFegUIARCcAQ)
+自3月3号青岛莱西七中三位学生确诊阳性以来，青岛的疫情持井喷状态迅速增加，据官方报告，截止到3月6号，累计确诊阳性136例无症状感染者115例，病毒属于奥米克戎，传染源还在调查中。
 
-轰炸后，基辅取消了3月5日从马里乌波尔和沃尔诺瓦卡疏散超过 20万名平民的计划。
+据说该病毒在学生中间潜在传播多日，按照中共政府处理问题的风格，能捂就捂实在捂不住了才爆出来，要不然仅仅三天时间增加了一百多，还不知道这里面有多少水分？官员信誓旦旦要把病毒尽快清零，流行两年的病毒至今肆虐全球，这一世界性难题大概只有中共国官员能轻易破解！
 
-无国界医师组织MSF表示，该市事态极为严峻。必须尽快开设安全通道，让马里乌波尔市民可以安全避难，
+3月7号24:00莱西启动第二轮全员核酸检测，明明可以自己在家检测，明明生产了大量医疗检测器材，源源不断输送到国外使用，偏偏不给自己国民使用，凌晨24点把大家召集起来不睡觉做这劳命伤财的无用功！可怜老百姓，在羊圈里任意宰杀还感恩戴德！人家可是百分之百真心实意！朋友圈无一例外满满的的“正能量”，笔者很想跟视频里这位辛苦劳作召集大家带好口罩保持3米距离的的女干部说一句，您的口罩没有在鼻子上端这样戴无效。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-7.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
 
-参考链接：
-1. [Parents grieve over toddler killed by shrapnel hours before ‘ceasefire’ intended to let them evacuate](https://www.dailymail.co.uk/news/article-10580113/All-people-die-Zelensky-slams-NATOs-refusal-establish-no-fly-zone.html)
-2. [俄軍毀約狂轟 無國界醫師組織：馬立波事態嚴峻](https://news.ltn.com.tw/news/world/breakingnews/3850030)
-
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：飞虹
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

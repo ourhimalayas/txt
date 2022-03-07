@@ -2,8 +2,8 @@
 ---
 
 
-## 20220307文贵大直播：中国人就医买药以价格导向疫苗灾难爆发 中国人仍然会怪罪美国
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2122036/)
+## 20220306文贵大直播：准备好了100架飞机救助乌克兰难民
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2122038/)
 
 作者:东京樱花团小视频组
 
