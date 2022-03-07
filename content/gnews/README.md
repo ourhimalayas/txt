@@ -15,44 +15,44 @@
 
 ---
 
-### [在蓬佩奥访台期间，台湾突遭大面积停电](/content/gnews/1/README.md)
+### [新中国联邦乌克兰救援卓有成效，中共令已登上救援大巴中国同胞下车](/content/gnews/1/README.md)
+ ` YALUN 亚伦`
+
+### [3/7/2022 文贵盖特：中共置乌克兰战区的儿童和农民工于不顾，却让伪类冒充待救援者来骚扰新中国联邦的紧急救援热线，中共及其走狗伪类坏到了极点](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [在蓬佩奥访台期间，台湾突遭大面积停电](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [我的安全，我的健康由上天决定](/content/gnews/2/README.md)
+### [我的安全，我的健康由上天决定](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [美国前国务卿蓬佩奥抵达台湾](/content/gnews/3/README.md)
+### [美国前国务卿蓬佩奥抵达台湾](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜登特使团在俄罗斯入侵乌克兰之后访台](/content/gnews/4/README.md)
+### [拜登特使团在俄罗斯入侵乌克兰之后访台](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌克兰局势——新中国人在行动](/content/gnews/5/README.md)
+### [乌克兰局势——新中国人在行动](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大《紧急法》与乌克兰战争](/content/gnews/6/README.md)
+### [加拿大《紧急法》与乌克兰战争](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [乌克兰战争：普京的攻击计划是否会陷入困境？](/content/gnews/7/README.md)
+### [乌克兰战争：普京的攻击计划是否会陷入困境？](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [“醒来吧，别再如此冷漠，醒来吧，抛掉所有懦弱，只为能握住亲人手，要埋葬那邪恶的中共”](/content/gnews/8/README.md)
+### [“醒来吧，别再如此冷漠，醒来吧，抛掉所有懦弱，只为能握住亲人手，要埋葬那邪恶的中共”](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [俄罗斯入侵乌克兰的一周](/content/gnews/9/README.md)
+### [俄罗斯入侵乌克兰的一周](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [喜联储开启国际数字货币交易之门](/content/gnews/10/README.md)
- ` 扬帆枫叶快讯`
-
-### [【每日聚焦】 俄乌战事3月7日简要（下）](/content/gnews/11/README.md)
+### [【每日聚焦】 俄乌战事3月7日简要（下）](/content/gnews/12/README.md)
  ` 蓝莲花农场`
 
-### [解读一张漫画，“乌克兰是我的女人”](/content/gnews/12/README.md)
+### [解读一张漫画，“乌克兰是我的女人”](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
-
-### [蓬佩奥表示美国将坚定支持保卫台湾](/content/gnews/13/README.md)
- ` 扬帆枫叶快讯`
 
 ### [这个世界不能没有我们新中国联邦](/content/gnews/14/README.md)
  ` MG FARM`
@@ -72,95 +72,95 @@
 ### [与俄罗斯关系“坚如磐石”的中共要做俄乌战争调解人](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌克兰将从世界银行获得七亿美元贷款](/content/gnews/20/README.md)
+### [辉瑞疫苗副作用惊人大曝光](/content/gnews/20/README.md)
+ ` XINYUAN`
+
+### [乌克兰将从世界银行获得七亿美元贷款](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [乌克兰扎波罗热市民踊跃应征入伍抵抗侵略](/content/gnews/21/README.md)
+### [乌克兰扎波罗热市民踊跃应征入伍抵抗侵略](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [五月花简报（03/07/2022）](/content/gnews/22/README.md)
+### [五月花简报（03/07/2022）](/content/gnews/23/README.md)
  ` mayflowertranslate`
 
-### [以色列调查：加强针造成的伤害比想象的要多](/content/gnews/23/README.md)
+### [以色列调查：加强针造成的伤害比想象的要多](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌克兰救援03.06.2022 新中国联邦美国洛杉矶救援团队出发](/content/gnews/24/README.md)
+### [乌克兰救援03.06.2022 新中国联邦美国洛杉矶救援团队出发](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [接种强生疫苗后一女子死于血液疾病 真的罕见吗CDC？（2/2）](/content/gnews/25/README.md)
+### [接种强生疫苗后一女子死于血液疾病 真的罕见吗CDC？（2/2）](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [SBA批准的COVID救济贷款恐涉数百万件欺诈申领](/content/gnews/26/README.md)
+### [SBA批准的COVID救济贷款恐涉数百万件欺诈申领](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [在访问乌克兰边境时，布林肯承诺增加支援，但非战斗机](/content/gnews/27/README.md)
+### [在访问乌克兰边境时，布林肯承诺增加支援，但非战斗机](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [联盟工作汇报文字版2022.3.6](/content/gnews/28/README.md)
+### [联盟工作汇报文字版2022.3.6](/content/gnews/29/README.md)
  ` 纽约香草山MOS02`
 
-### [与中共国一样，俄罗斯将使用数字现金逃避美国制裁](/content/gnews/29/README.md)
+### [与中共国一样，俄罗斯将使用数字现金逃避美国制裁](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国SEC正在调查NFT市场潜在的证券违规行为](/content/gnews/30/README.md)
+### [美国SEC正在调查NFT市场潜在的证券违规行为](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [3/7/2022国际财经快讯：美国与欧洲盟友讨论禁止进口俄罗斯石油；乌克兰主要农产品引入出口许可证制度](/content/gnews/31/README.md)
+### [3/7/2022国际财经快讯：美国与欧洲盟友讨论禁止进口俄罗斯石油；乌克兰主要农产品引入出口许可证制度](/content/gnews/32/README.md)
  ` 秘密翻译组金融团队`
 
-### [乌克兰大救援将开启人类大同的新时代](/content/gnews/32/README.md)
+### [乌克兰大救援将开启人类大同的新时代](/content/gnews/33/README.md)
  ` 波士顿五月花农场`
 
-### [FDA被迫公布的辉瑞疫苗真实数据暴露了政府和大药厂的罪行](/content/gnews/33/README.md)
+### [FDA被迫公布的辉瑞疫苗真实数据暴露了政府和大药厂的罪行](/content/gnews/34/README.md)
  ` 温哥华扬帆农场`
 
-### [乌总统夫人指证俄军杀害儿童 新中国联邦连夜救出96名儿童送抵波兰](/content/gnews/34/README.md)
+### [乌总统夫人指证俄军杀害儿童 新中国联邦连夜救出96名儿童送抵波兰](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
 
-### [中共：全程接种率已超87% 将推序贯免疫接种](/content/gnews/35/README.md)
+### [中共：全程接种率已超87% 将推序贯免疫接种](/content/gnews/36/README.md)
  ` 澳喜农场`
 
-### [五角大楼称中共对普京 &#8220;默许&#8221; 将乌克兰问题归咎于美国](/content/gnews/36/README.md)
+### [五角大楼称中共对普京 &#8220;默许&#8221; 将乌克兰问题归咎于美国](/content/gnews/37/README.md)
  ` topnews`
 
-### [英国首相约翰逊向美国报纸投稿：禁止所有俄罗斯银行使用SWIFT](/content/gnews/37/README.md)
+### [英国首相约翰逊向美国报纸投稿：禁止所有俄罗斯银行使用SWIFT](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国上议院法案：禁止从“种族灭绝”国家采购医疗用品](/content/gnews/38/README.md)
+### [英国上议院法案：禁止从“种族灭绝”国家采购医疗用品](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄罗斯或将面临重大债务违约](/content/gnews/39/README.md)
+### [俄罗斯或将面临重大债务违约](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中国电信巨头华为一直在帮助普京稳定被黑客攻击后的俄罗斯互联网](/content/gnews/40/README.md)
+### [中国电信巨头华为一直在帮助普京稳定被黑客攻击后的俄罗斯互联网](/content/gnews/41/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新西兰财经G乐部2022年3月7日:财经新闻整理](/content/gnews/41/README.md)
+### [新西兰财经G乐部2022年3月7日:财经新闻整理](/content/gnews/42/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [青岛疫情井喷](/content/gnews/42/README.md)
+### [青岛疫情井喷](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [COVID-19 最新情报｜金球奖影帝“火箭人”倒在舞台上 网民疑与疫苗副作用有关](/content/gnews/43/README.md)
+### [COVID-19 最新情报｜金球奖影帝“火箭人”倒在舞台上 网民疑与疫苗副作用有关](/content/gnews/44/README.md)
  ` 關注組`
 
-### [中共疫情管控升级下的中国东北疫情](/content/gnews/44/README.md)
+### [中共疫情管控升级下的中国东北疫情](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄乌战争｜美国防部高官：俄罗斯已投入95%的战力攻打乌克兰](/content/gnews/45/README.md)
+### [俄乌战争｜美国防部高官：俄罗斯已投入95%的战力攻打乌克兰](/content/gnews/46/README.md)
  ` 關注組`
 
-### [蓬佩奥：台湾和美国的未来是交织在一起的](/content/gnews/46/README.md)
+### [蓬佩奥：台湾和美国的未来是交织在一起的](/content/gnews/47/README.md)
  ` 美国政要直译推`
 
-### [财经｜亚股集体爆泻 恒指创五年半低位 金价暴涨逼近2000美元](/content/gnews/47/README.md)
+### [财经｜亚股集体爆泻 恒指创五年半低位 金价暴涨逼近2000美元](/content/gnews/48/README.md)
  ` 關注組`
 
-### [车神塞纳迈凯伦座驾通过喜支付交易，喜交所进入欧洲皇室最高信用](/content/gnews/48/README.md)
+### [车神塞纳迈凯伦座驾通过喜支付交易，喜交所进入欧洲皇室最高信用](/content/gnews/49/README.md)
  ` YALUN 亚伦`
-
-### [2022/03/04 墙内世界](/content/gnews/49/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [中共是乌克兰战争的罪魁祸首](/content/gnews/50/README.md)
  ` 秘密翻譯組G-Translators`
