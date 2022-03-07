@@ -2,12 +2,13 @@
 ---
 
 
-## 20220306郭文贵大直播 ：赛纳交易的本质意义
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2120609/)
+## 20220306文贵大直播：乌克兰真是伟大的民族，向他们学习
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2120621/)
 
-作者：东京樱花团小视频组
+作者:东京樱花团小视频组
 
 校对：东京樱花团小视频组
+
 编辑发布：东京樱花团小视频组
 
 * * *

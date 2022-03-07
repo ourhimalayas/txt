@@ -2,37 +2,29 @@
 ---
 
 
-## 雅典娜快讯：俄乌冲突致小麦供应紧张，芝加哥小麦期货近历史新高
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2120990/)
+## 俄军猛烈轰炸基辅周边城市 准备全面入侵基辅
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2121047/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**撰稿：日本东京方舟农场  海星**
 
-整理：围剿维尼熊
-编辑：舞指如歌
+3月7日，多方消息透露，乌克兰首都基辅的周边城市已遭俄军猛烈轰炸，俄军正准备向基辅发动全面进攻。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-77.jpg)（图片来源：美联社）
+据《自由时报》报导，根据乌克兰官员及社交媒体平台上的消息显示，位于乌克兰首都基辅周边的4个城市，布查（Bucha）、戈斯托梅利（Hostomel）、沃尔泽利（Vorzel）和伊尔平（Irpin）自3月6日晚上至今晨期间持续遭受俄军炮击，多地发生火灾。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-601.png)
+该报导称，乌克兰国防部官员稍早前发出警告，俄军正准备对乌克兰首都基辅发动全面进攻。对此，武装部队总参谋部表示，俄军已经开始为这项军事计划储备物资，例如将燃料从白俄罗斯经由车诺比地区运送过来。
 
+当日，基辅市长克里契科（Vitaly Klitschko）在指责俄罗斯故意杀害平民的同时呼吁基辅市民保持冷静，待在家里或是避难所。
 
+此外，昨日至今，乌克兰的第二大城市哈尔科夫（Kharkiv）以及造船工业中心尼古拉耶夫（Mykolayiv）也遭到了俄军的持续轰炸，多处民宅及工厂发生火灾。
 
-图片来源：雅典娜设计组
+参考链接：
+1.[https://news.ltn.com.tw/news/world/breakingnews/3851657](https://news.ltn.com.tw/news/world/breakingnews/3851657)
+2.[https://news.ltn.com.tw/news/world/breakingnews/3850905](https://news.ltn.com.tw/news/world/breakingnews/3850905)
+3.[https://news.ltn.com.tw/news/world/breakingnews/3851520](https://news.ltn.com.tw/news/world/breakingnews/3851520)
 
-
-根据财联社3月7日讯，周一，芝加哥商品交易所美国小麦期货价涨停至每蒲式耳12.94美元，处于2008年全球粮食危机以来最高水平，并且接近历史新高，芝商所(芝加哥商品交易所)小麦期货上周已经飙升了41%，今天再次涨停，累计创下超过六十年来最大涨幅。
-
-事实上，早在俄乌冲突爆发前，全球小麦供应已经出现紧张态势，因为多个主要小麦出口国的库存下降。而俄乌战争进一步恶化了小麦供应缺口。乌克兰和俄罗斯都是全球重要粮仓，两国加起来占全球小麦出口量的30%和玉米出口的20%以上。
-
-战争爆发后，乌克兰的主要港口已经关闭，对外物流和运输联系遭切断。俄罗斯的粮食出口也因多国的制裁措施，以及不断飙升的保险和货运成本而受到抑制。
-
-参考链接：https://cn.investing.com/news/stock-market-news/article-2086871
-
-*发布：*星谕
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+撰稿：海星
+总编：老孙
+校对发布：爱放飞
 
  
 

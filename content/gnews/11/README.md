@@ -2,33 +2,24 @@
 ---
 
 
-## 日本名古屋医师会医生反对给儿童接种疫苗
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2121031/)
+## 视频|Mastercard、VISA、PayPal已关闭在俄罗斯的业务
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2121074/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月4日，日本名古屋医师会成员浅井院长，以及前医师会医疗安全顾问宫治医生在接受媒体采访时指出，他们不会同意对5至11岁儿童接种中共病毒疫苗的做法。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-11.jpg)
-其原因在于，首先，儿童在感染中共病毒后很容易康复，真正恶化到重症甚至死亡的病例少之又少。目前，所有的中共病毒疫苗都处于实验性阶段。这意味着，所有医生都不清楚中共病毒疫苗的毒副作用。浅井院长透露，许多医生都是抱着非常恐惧的心理，在给人们接种。
+制作：香草山视频部
 
-无论是接种疫苗还是其他医疗行为，站在医生以及患者的角度考虑，都是把安全性排在第一位，之后才是让社会安心、以及得到治愈后的满足感。然而，在接种中共病毒疫苗上，却打乱了上述顺序，把“让社会安心”排在了首位。这两位医生还强调，现在日本政府最该做的，就是先确认疫苗的安全性。
+3月5日，国外媒体陆续报道，mastercard、visa、PayPal相继暂停了他们在俄罗斯的合作业务。mastercard和visa表示将会逐渐停止在俄罗斯的所有交易。未来几天之内，所有在俄罗斯内发行的万事达卡和visa卡将不再适用于任何境外交易，所有在俄罗斯外发行的万事达卡和visa卡则将不适用于俄罗斯境内交易。它们还表示会采取行动阻止俄罗斯金融机构使用本公司的支付网络。
 
-参考链接：[20220304日本CBC採訪反對給兒童接種的名古屋醫師會醫生](https://www.gettr.com/post/pyguvhd574)
+PayPal目前的政策为，在一段时间内支持提款，但只允许在俄罗斯境内的用户进行跨境交易，同时停止新用户注册等。该政策同样适用于其汇款工具Xoom。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+据悉，PayPal的竞争对手wise和remitly也已经暂停在俄罗斯的服务。
 
-总编: 文真
-编辑: Jack Li文阳   
-审核: 文真
-校正/发稿：Fei797
+发稿：谐趣园
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

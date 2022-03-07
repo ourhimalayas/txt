@@ -2,19 +2,10 @@
 ---
 
 
-## 樱花头条┃日本首次由地方政府开始 对疫苗后遗症设咨询处
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2120782/)
+## 3/6/2022 文贵直播：新中国联邦在乌克兰救援中的四个唯一：1) 唯一去前线救人的中国人团队; 2) 唯一无政治经济诉求或政治立场地救中国人、乌克兰人和美国人的团队；3) 唯一救出了大量中国人和美国人的团队；4) 唯一告诉世界在乌克兰有被中共抛弃的3万中国人的团队
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2120962/)
 
-撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0001-20325418684.jpg)
-日本首次由地方政府开始，着手应对疫苗后遗症。
-
-信息来源：[https://www.gettr.com/post/pxye6s5d3f](https://www.gettr.com/post/pxye6s5d3f)
-
-编辑：东京樱花团/asket、春华秋实
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
-
+秘密翻译组-北美组
 
  
 

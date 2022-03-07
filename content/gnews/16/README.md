@@ -2,27 +2,24 @@
 ---
 
 
-## 美加敦促本国公民立即离开俄罗斯
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2120969/)
+## 日本名古屋医师会医生反对给儿童接种疫苗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2121031/)
 
-作者：纽约香草山 – 宁文静
+作者：日本方舟农场 – Andy5
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月5日，美国国务院和加拿大联邦政府，均更新了针对俄罗斯的最高级别旅行警告，敦促本国公民立即离开俄罗斯。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-9.jpg)
-继上周发布了四级旅游警告之后，本周六，美国国务院网站更新了指导意见，要求在俄罗斯的美国公民“立即离开”。同时，还提供了关于货币状况，以及在俄罗斯被拘留的美国公民的领事通知等最新信息。
+当地时间3月4日，日本名古屋医师会成员浅井院长，以及前医师会医疗安全顾问宫治医生在接受媒体采访时指出，他们不会同意对5至11岁儿童接种中共病毒疫苗的做法。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-11.jpg)
+其原因在于，首先，儿童在感染中共病毒后很容易康复，真正恶化到重症甚至死亡的病例少之又少。目前，所有的中共病毒疫苗都处于实验性阶段。这意味着，所有医生都不清楚中共病毒疫苗的毒副作用。浅井院长透露，许多医生都是抱着非常恐惧的心理，在给人们接种。
 
-与此同时，加拿大联邦政府敦促任何滞留在俄罗斯的加拿大人立即离开。通知警告该地区的战争局势在不断变化，世界各国对俄罗斯的制裁逐渐升级，导致航班的选择受到限制。另外，信用卡及支付巨头停止俄罗斯境内银行卡的使用，也会让加拿大公民在基本产品和金融服务方面，面临越来越多的困难。
+无论是接种疫苗还是其他医疗行为，站在医生以及患者的角度考虑，都是把安全性排在第一位，之后才是让社会安心、以及得到治愈后的满足感。然而，在接种中共病毒疫苗上，却打乱了上述顺序，把“让社会安心”排在了首位。这两位医生还强调，现在日本政府最该做的，就是先确认疫苗的安全性。
 
-因俄罗斯刚刚实施了一项新的法律，限制与入侵乌克兰有关的言论自由，加拿大政府提醒公民谨慎对俄乌战争冲突发表意见，否则可能会被罚款或拘留。
-
-参考链接：
-1). [State Department reissues advisory urging Americans to leave Russia “immediately”](https://www.axios.com/state-department-travel-advisory-russia-ukraine-cf6253c1-6a52-4ca0-b436-db5c2104b864.html)
-2). [We have increased the risk level to avoid all travel to #Russia. If you are there, you should leave while commercial means are still available. Check our full travel advice: http://ow.ly/LpP930scC3N](https://twitter.com/travelgoc/status/1500227635280064522?s=21)
-3).[Feds Urge Canadians To Leave Russia ASAP As They May Not Be Able To Help Those Who Stay](https://www.narcity.com/feds-urge-canadians-to-leave-russia-asap-as-they-may-not-be-able-to-help-those-who-stay?utm_campaign=NarcityCanada&amp;utm_medium=Social&amp;utm_source=twitter)
+参考链接：[20220304日本CBC採訪反對給兒童接種的名古屋醫師會醫生](https://www.gettr.com/post/pyguvhd574)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-总编/编辑/审核: 文真
+总编: 文真
+编辑: Jack Li文阳   
+审核: 文真
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

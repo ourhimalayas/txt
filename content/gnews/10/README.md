@@ -2,30 +2,33 @@
 ---
 
 
-## 中共国华为协助俄罗斯对抗网络攻击
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2121038/)
+## 台湾本土新增中共病毒案例均已注射两剂以上疫苗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2121094/)
 
-撰稿：东京樱花团/道来
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-42.png)
-[图片来源](https://miro.medium.com/max/1400/1*8SNTqi_cMVKUVY95UNX9WA.png)
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月6日，台湾中央流行疫情指挥中心宣称，台湾本土新增三名中共病毒患者，都至少注射了两剂以上中共病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-5.jpg)
+据该中心发言人庄人祥称，6日台湾新增43例中共病毒患者，其中本土案例为1名男性和2名女性。其中一名十多岁的女性，已经完整接种2剂辉瑞疫苗。另外两名患者是一对夫妻，其中70多岁的男性完整接种2剂莫德纳疫苗，他的60多岁的妻子则接种了3剂莫德纳疫苗。
 
-自俄罗斯发起对乌克兰军事进攻以来，俄罗斯不断遭受来自全世界的网络攻击。使其相关主要政府机构和媒体的网站无法正常运行。
+对此消息，中共国有网民认为，中共的科兴疫苗比国外的疫苗更好。郭文贵先生在3月6日大直播中剖析了中共国民对疫苗的错误认知。中国人不怀疑科兴疫苗，认为科兴和国外的疫苗不一样，比国外的疫苗更有效。这是被中共长期洗脑和精神奴役的后遗症，造成中共国国民的无知，以及错误认知。科兴再发2.5亿剂港澳台专用疫苗，将会造成绝对的灾难。
 
-据相关报道，中共国电信巨头华为公司表示协助俄罗斯提升互联网网络环境以及提供相关技术来对抗来自全世界的网络攻击。
+参考链接：[旅遊團衍生案件擴大 本土+3都打了兩劑以上疫苗](https://www.rti.org.tw/news/view/id/2126423)
 
-据相关报道称，在英国的华为公司正在为提高普京的影响力而努力。为了应对国际骇客的网络攻击，正在改进俄罗斯互联网的网络环境。特别是在俄罗斯的媒体网站遭受国际骇客团体匿名者的攻击，网站内容被修改了后，华为在俄罗斯的五个研究中心的相关人员都参与到协助俄罗斯对抗来自全球的网络攻击战中。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-华为也表示过通过俄罗斯的这五个研究中心来培养五万技术专家，领域涉及网络安全，人工智能，云计算，和人脸识别等。
+总编: 文真
+编辑: Ivy001
+审核: Jack Li文阳
+校正/发稿：Fei797
 
-如果美国发现华为协助俄罗斯，将会受到严重的制裁。所以华为的这些相关报道内容在中国国内网站报道不久就被删除了。
-
-[信息来源](\Users\Administrator\Downloads\Chinese%20telecoms%20giant%20Huawei%20has%20been%20helping%20Vladimir%20Putin's%20efforts%20to%20stabilise%20Russia's%20internet%20network%20after%20cyber%20attacks,%20reports%20reveal)：
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
