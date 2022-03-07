@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 3:08 PM (UTC)`
+
+历史上中共使馆不管人民死活，新中国联邦法治基金前线人道主义救援行动正在进行！
+![img](https://media.gettr.com/group14/origin/2022/03/07/13/847edc0e-5cfc-3d51-0000-9b427ce01bcc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/7/2022 2:31 PM (UTC)`
 
 啊啊啊啊啊啊
@@ -154,13 +161,6 @@ FDA Releases BOMBSHELL Pfizer Covid Virus Vaccine Data With Over 1,200 Side Effe
 
 2022.03.06 晚 GTV《新闻访谈》FDA败诉，辉瑞被迫公布所有疫苗副作用数据; 战乱中如何自救、逃难过程中需要知道的医学常识; 美国参议院通过决议以结束Covid-19国家紧急状态，纽约口罩强制令结束，如何正确佩戴口罩？
 ![img](https://media.gettr.com/group7/origin/2022/03/07/02/561fa79c-4032-e868-a02f-89c7997b56e4/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/7/2022 1:33 AM (UTC)`
-
-2022.03.06 晚 新中国联邦新闻
-![img](https://media.gettr.com/group36/origin/2022/03/07/01/6c9d1e95-5c46-aea8-252b-9abde385831d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
