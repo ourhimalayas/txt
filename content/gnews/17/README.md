@@ -2,12 +2,31 @@
 ---
 
 
-## 乌克兰救援行动，需要你的传播！
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2121170/)
+## 有声|NFSC新闻、G|TV新闻访谈简报|2022年3月4日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2121385/)
 
-致国内的家人朋友弟兄姐妹同胞们：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/55-1.jpg)
-请大家在百忙之中抽空转发以上内容，让还在逃难的同胞们看到救援信息。目前还有很多在乌克兰的留学生还有家庭在战火纷飞的乌克兰等待救援。生死关头，恳请各位放下我们的政治立场与个人成见。由于乌克兰局势紧张，很多我们的华人同胞落荒而逃，导致流离失所，而此次救援行动法治基金组织会提供30天以内的食宿。请将爱传递下去。
+配音：香草山农场– 蒙古鸿雁
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-3-556x720-1.png)
+
+
+文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年3月4日早](https://gnews.org/zh-hans/2107273/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

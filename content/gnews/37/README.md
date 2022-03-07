@@ -2,50 +2,39 @@
 ---
 
 
-## 新西兰财经G乐部2022年3月7日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2120022/)
+## 俄罗斯或将面临重大债务违约
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2120189/)
 
-采集整理：蚂蚁的城堡
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-提纲：
+整理：围剿维尼熊
+编辑：木木木mmmmm
 
-1、IMF工作人员关于乌克兰战争经济影响的声明
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0158.jpg)图片来源：FT
 
-2、世茂集团15城24公司商票逾期，加速自救”卖卖卖”
 
-3、莆田首富自救：本月到期债务还不上，甩卖超30亿元资产回血
+根据路透社报道，俄罗斯3月6日表示，其主权债券的偿付将取决于西方国家对该国实施的制裁措施。这令外界担忧，该国可能面临重大外债违约。
 
-4、美国与欧洲盟友讨论禁止进口俄罗斯石油
+俄罗斯财政部表示，将按时足额偿付主权债务，但支付可能会受到国际制裁的阻碍。
 
-正文
+在普京对乌克兰开战后，俄罗斯6400亿美元储备大部分被西方冻结。
 
-1、IMF工作人员关于乌克兰战争经济影响的声明
-![img](https://media.gettr.com/group28/origin/2022/03/07/01/f2378f6d-6d6f-d05f-0cd0-4def6457c216/3da05f236955ce84248c4780299be031_500x0.png)
-乌克兰战争的经济影响,虽然目前局势仍在快速变化、未来前景充满极大的不确定性，但有关经济后果已经非常严重。能源和大宗商品（包括小麦等谷物）价格飙升，进一步加剧了源于供应链扰动和疫情后复苏带来的通胀压力。价格冲击波及全球，对贫困家庭的影响尤甚——这是因为食品和燃料在其开支中的比例更大。如果冲突升级，那么相关经济损失的破坏性将更大。针对俄罗斯的制裁措施将对全球经济和金融市场产生重大影响，对其他国家也将产生重大的溢出效应。
+俄财政部表示，从现在开始，俄罗斯将使用卢布向居民支付以外币计价的债券。
 
-链接：[https://www.imf.org/zh/News/Articles/2022/03/05/pr2261-imf-staff-statement-on-the-economic-impact-of-war-in-ukraine](https://www.imf.org/zh/News/Articles/2022/03/05/pr2261-imf-staff-statement-on-the-economic-impact-of-war-in-ukraine)
+财政部还表示，由于俄政府的限制，俄罗斯或许无法进行债券支付。
 
-2、世茂集团15城24公司商票逾期，加速自救”卖卖卖”
-![img](https://media.gettr.com/group41/origin/2022/03/07/01/ac4fc896-3a53-ef85-6ad7-cf4f753d960b/59e9f89d4f8a84330cf30d688705ef40_500x0.png)
-多个公开报道显示，世茂集团在全国有15城24个公司出现商票持续逾期，逾期余额少则数十万，多则数千万元。就涉及城市和公司数量而言，目前其在所有房企中排首位。这一情况的依据来源，是3月3日上海票交所公布的一组逾期名单。这份逾期名单的定义是“ 2021年9月1日至2022年2月28日出现3次以上付款逾期，且截至2022年2月28日有逾期余额或2022年2月当月出现付款逾期的承兑人”。可以看到，近期已“爆雷”或将“爆雷”的花样年、奥园、阳光城、新力、正荣等房企均榜上有名，但其中涉及项目数最多的是世茂集团。
+这可能是俄罗斯在一个多世纪以来首次重大债务违约。即使在苏联解体时，俄罗斯也承担了其外债。
 
-链接 ：[https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-07/doc-imcwipih7023410.shtml](https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-07/doc-imcwipih7023410.shtml)
+参考链接：[俄罗斯警告主权债持有人 债券偿付要视制裁情况而定](https://cn.reuters.com/article/russia-sovereign-debts-warning-0306-sun-idCNKBS2L401H?il=0)
 
-3、莆田首富自救：本月到期债务还不上，甩卖超30亿元资产回血
-![img](https://media.gettr.com/group16/origin/2022/03/07/03/57c2ccfc-7525-919a-91b3-9afa9d55136f/231a05388d7e1571bb058c175e8056b5_500x0.png)
-莆田首富的宝座还没坐稳，正荣地产实际控制人欧宗荣和他创立的正荣地产一同陷入困境。一笔2亿美元的永续债突然“爽约”，让这家闽系千亿房企，迎来资本市场的至暗时刻。3月4日，正荣地产发布公告称，将延迟2月21日到期优先票据展期同意截止日期，延长至伦敦时间3月11日下午4时。
+*发布：tianzhihuan*
 
-链接：[https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-07/doc-imcwiwss4518801.shtml](https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-07/doc-imcwiwss4518801.shtml)
-
-4、美国与欧洲盟友讨论禁止进口俄罗斯石油
-![img](https://media.gettr.com/group48/origin/2022/03/07/04/8e538792-115c-6f8a-84c1-90a0ccd6b336/14d8e590e42416560fbfe0db63b73c32_500x0.png)
-3 月 7 日（路透社）——美国国务卿安东尼·布林肯 (Antony Blinken) 周日表示，美国和欧洲盟国正在探索禁止进口俄罗斯石油，白宫与主要的国会委员会协调推进自己的禁令。一位熟悉讨论情况的消息人士周日告诉路透社，欧洲在原油和天然气方面依赖俄罗斯，但在过去 24 小时内对禁止俄罗斯产品的想法变得更加开放。根据美国能源信息署 (EIA) 的数据，2021 年美国平均每月从俄罗斯进口超过 2040 万桶原油和精炼产品，约占美国液体燃料进口量的 8%。
-
-链接 ：[https://www.reuters.com/business/energy/us-europeans-discussing-banning-russian-oil-imports-blinken-says-2022-03-06/](https://www.reuters.com/business/energy/us-europeans-discussing-banning-russian-oil-imports-blinken-says-2022-03-06/)
-
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
-
-上传排版：文勇
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
