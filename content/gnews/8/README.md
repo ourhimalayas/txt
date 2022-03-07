@@ -2,8 +2,8 @@
 ---
 
 
-## 20220306文贵大直播：新中国联邦在战争中用实际行动去救人 请保持良知 不要苛责行善的人 面对恶人却噤声
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2122029/)
+## 20220306文贵大直播：打过疫苗的有五千种关联的症状
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2122039/)
 
 作者:东京樱花团小视频组
 

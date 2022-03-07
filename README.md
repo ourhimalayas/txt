@@ -15,89 +15,89 @@
 
 ---
 
-### [接种强生疫苗后一女子死于血液疾病 真的罕见吗CDC？（2/2）](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [NFSC新闻、G|TV新闻访谈简报|2022年3月7日早](/content/gnews/2/README.md)
- ` 纽约香草山MOS01`
-
-### [SBA批准的COVID救济贷款恐涉数百万件欺诈申领](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [20220306文贵大直播：打过疫苗的有五千种关联的症状](/content/gnews/4/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220306文贵大直播：准备好了100架飞机救助乌克兰难民](/content/gnews/5/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220306文贵大直播：七哥2017年就有普京和习近平侵占乌克兰和台湾的情报](/content/gnews/6/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220307文贵大直播：中国人就医买药以价格导向疫苗灾难爆发 中国人仍然会怪罪美国](/content/gnews/7/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220306文贵大直播：新中国联邦在战争中用实际行动去救人 请保持良知 不要苛责行善的人 面对恶人却噤声](/content/gnews/8/README.md)
- ` Tokyo Sakura Video Group`
-
-### [接种强生疫苗后一女子死于血液疾病 真的罕见吗CDC？（1/2）](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [在乌克兰的战友和家人朋友们已安全救出](/content/gnews/10/README.md)
+### [全世界最想揍的就是中国共产党](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [3/6/2022 文贵直播: 中国人即将面临粮食危机和经济危机等大灾难；必须要有钱、能力、社交媒体平台和国际支持才能进行救援；我们只渡有缘人](/content/gnews/11/README.md)
+### [共产党只救了自己人和对自己有利的人员](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [乌克兰救援03.06.2022 新中国联邦美国洛杉矶救援团队出发](/content/gnews/3/README.md)
+ ` 秘密翻译组-原创组`
+
+### [从中共的营救表现看到其必然灭亡](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [接种强生疫苗后一女子死于血液疾病 真的罕见吗CDC？（2/2）](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [NFSC新闻、G|TV新闻访谈简报|2022年3月7日早](/content/gnews/6/README.md)
+ ` 纽约香草山MOS01`
+
+### [SBA批准的COVID救济贷款恐涉数百万件欺诈申领](/content/gnews/7/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [20220306文贵大直播：打过疫苗的有五千种关联的症状](/content/gnews/8/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220306文贵大直播：准备好了100架飞机救助乌克兰难民](/content/gnews/9/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220306文贵大直播：七哥2017年就有普京和习近平侵占乌克兰和台湾的情报](/content/gnews/10/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220307文贵大直播：中国人就医买药以价格导向疫苗灾难爆发 中国人仍然会怪罪美国](/content/gnews/11/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220306文贵大直播：新中国联邦在战争中用实际行动去救人 请保持良知 不要苛责行善的人 面对恶人却噤声](/content/gnews/12/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [所有在乌克兰的华人都是我们救助对象，包括美国、日本朋友](/content/gnews/13/README.md)
+ ` MG FARM`
+
+### [接种强生疫苗后一女子死于血液疾病 真的罕见吗CDC？（1/2）](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [在乌克兰的战友和家人朋友们已安全救出](/content/gnews/15/README.md)
+ ` MG FARM`
+
+### [3/6/2022 文贵直播: 中国人即将面临粮食危机和经济危机等大灾难；必须要有钱、能力、社交媒体平台和国际支持才能进行救援；我们只渡有缘人](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [俄罗斯二次解体符合俄罗斯人利益](/content/gnews/12/README.md)
+### [俄罗斯二次解体符合俄罗斯人利益](/content/gnews/17/README.md)
  ` 纽约香草山MOS03`
 
-### [MV版Hcoin To the Moon上线88天第26次位列匈牙利iTunes热门MV榜首](/content/gnews/13/README.md)
+### [MV版Hcoin To the Moon上线88天第26次位列匈牙利iTunes热门MV榜首](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [在访问乌克兰边境时，布林肯承诺增加支援，但非战斗机](/content/gnews/14/README.md)
+### [在访问乌克兰边境时，布林肯承诺增加支援，但非战斗机](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [联盟工作汇报文字版2022.3.6](/content/gnews/15/README.md)
+### [联盟工作汇报文字版2022.3.6](/content/gnews/20/README.md)
  ` 纽约香草山MOS02`
 
-### [2022年3月7日，全球中共病毒疫情情况汇总](/content/gnews/16/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [【秘翻时评】中共在乌克兰境内的“协调人员”都已逃跑](/content/gnews/21/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
-### [3/6/2022 文贵直播: 塞纳的迈凯轮F1赛车的背后有何故事？这部赛车的交易为喜联储赢得了进入欧洲皇室的信用](/content/gnews/17/README.md)
- ` 秘密翻译组-北美组`
-
-### [30 英里的“人民车队”一夜之间降落在华盛顿特区](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【战友之声】四力角逐，四马奔腾的世代 &#8211; -从启示录第六章的四马奔腾看乌俄之战和新中国联邦](/content/gnews/19/README.md)
- ` 纽约香草山MOS03`
-
-### [与中共国一样，俄罗斯将使用数字现金逃避美国制裁](/content/gnews/20/README.md)
+### [与中共国一样，俄罗斯将使用数字现金逃避美国制裁](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [邻国脱离俄罗斯的步伐加快 摩尔多瓦和格鲁吉亚也申请加入欧盟](/content/gnews/21/README.md)
+### [邻国脱离俄罗斯的步伐加快 摩尔多瓦和格鲁吉亚也申请加入欧盟](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|台国防部发放《全民国防手册》指导民众避难](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [美国SEC正在调查NFT市场潜在的证券违规行为](/content/gnews/23/README.md)
+### [美国SEC正在调查NFT市场潜在的证券违规行为](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [由于签证和其他服务的暂停，俄罗斯银行考虑发行中国银联卡](/content/gnews/24/README.md)
+### [由于签证和其他服务的暂停，俄罗斯银行考虑发行中国银联卡](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [3/7/2022国际财经快讯：美国与欧洲盟友讨论禁止进口俄罗斯石油；乌克兰主要农产品引入出口许可证制度](/content/gnews/25/README.md)
+### [3/7/2022国际财经快讯：美国与欧洲盟友讨论禁止进口俄罗斯石油；乌克兰主要农产品引入出口许可证制度](/content/gnews/26/README.md)
  ` 秘密翻译组金融团队`
 
-### [乌克兰大救援将开启人类大同的新时代](/content/gnews/26/README.md)
+### [乌克兰大救援将开启人类大同的新时代](/content/gnews/27/README.md)
  ` 波士顿五月花农场`
 
-### [曼钦支持乌克兰禁飞区的选项 并禁止进口俄石油](/content/gnews/27/README.md)
+### [曼钦支持乌克兰禁飞区的选项 并禁止进口俄石油](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [独裁者普京入侵乌克兰 平民受到惩罚](/content/gnews/28/README.md)
- ` 温哥华扬帆农场`
 
 ### [FDA被迫公布的辉瑞疫苗真实数据暴露了政府和大药厂的罪行](/content/gnews/29/README.md)
  ` 温哥华扬帆农场`
@@ -105,41 +105,41 @@
 ### [乌克兰救援的战友，将成为中国的“辛德勒”和“拉贝”](/content/gnews/30/README.md)
  ` 波士顿五月花农场`
 
-### [乌克兰救援行动，需要你的传播！](/content/gnews/31/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [乌总统夫人指证俄军杀害儿童 新中国联邦连夜救出96名儿童送抵波兰](/content/gnews/32/README.md)
+### [乌总统夫人指证俄军杀害儿童 新中国联邦连夜救出96名儿童送抵波兰](/content/gnews/31/README.md)
  ` 日本东京方舟农场`
 
-### [全力救援，大爱无疆](/content/gnews/33/README.md)
+### [全力救援，大爱无疆](/content/gnews/32/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [喜币铸币权——《分享时刻》](/content/gnews/34/README.md)
+### [喜币铸币权——《分享时刻》](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共：全程接种率已超87% 将推序贯免疫接种](/content/gnews/35/README.md)
+### [中共：全程接种率已超87% 将推序贯免疫接种](/content/gnews/34/README.md)
  ` 澳喜农场`
 
-### [五角大楼称中共对普京 &#8220;默许&#8221; 将乌克兰问题归咎于美国](/content/gnews/36/README.md)
+### [五角大楼称中共对普京 &#8220;默许&#8221; 将乌克兰问题归咎于美国](/content/gnews/35/README.md)
  ` topnews`
 
-### [英国首相约翰逊向美国报纸投稿：禁止所有俄罗斯银行使用SWIFT](/content/gnews/37/README.md)
+### [英国首相约翰逊向美国报纸投稿：禁止所有俄罗斯银行使用SWIFT](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国上议院法案：禁止从“种族灭绝”国家采购医疗用品](/content/gnews/38/README.md)
+### [英国上议院法案：禁止从“种族灭绝”国家采购医疗用品](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄罗斯或将面临重大债务违约](/content/gnews/39/README.md)
+### [俄罗斯或将面临重大债务违约](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中国电信巨头华为一直在帮助普京稳定被黑客攻击后的俄罗斯互联网](/content/gnews/40/README.md)
+### [中国电信巨头华为一直在帮助普京稳定被黑客攻击后的俄罗斯互联网](/content/gnews/39/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新西兰财经G乐部2022年3月7日:财经新闻整理](/content/gnews/41/README.md)
+### [新西兰财经G乐部2022年3月7日:财经新闻整理](/content/gnews/40/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [青岛疫情井喷](/content/gnews/42/README.md)
+### [青岛疫情井喷](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [救援行动遭遇乌克兰当地排华情绪严重](/content/gnews/42/README.md)
+ ` NFSC News`
 
 ### [COVID-19 最新情报｜金球奖影帝“火箭人”倒在舞台上 网民疑与疫苗副作用有关](/content/gnews/43/README.md)
  ` 關注組`

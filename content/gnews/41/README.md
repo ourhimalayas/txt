@@ -2,50 +2,21 @@
 ---
 
 
-## 新西兰财经G乐部2022年3月7日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2120022/)
+## 青岛疫情井喷
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119789/)
 
-采集整理：蚂蚁的城堡
+撰稿：东京樱花团/秋明
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-34.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg3.jiemian.com%2F101%2Foriginal%2F20220306%2F164653358392818100.jpg&amp;imgrefurl=https%3A%2F%2Fwww.jiemian.com%2Farticle%2F7175588.html&amp;tbnid=g6YJJ8YOpCrppM&amp;vet=12ahUKEwjo-Kqt37P2AhXLRMAKHUcvD4IQMygFegUIARCcAQ..i&amp;docid=IOXtjCNNriVBAM&amp;w=600&amp;h=400&amp;itg=1&amp;q=%E9%9D%92%E5%B2%9B%E7%96%AB%E6%83%85&amp;ved=2ahUKEwjo-Kqt37P2AhXLRMAKHUcvD4IQMygFegUIARCcAQ)
+自3月3号青岛莱西七中三位学生确诊阳性以来，青岛的疫情持井喷状态迅速增加，据官方报告，截止到3月6号，累计确诊阳性136例无症状感染者115例，病毒属于奥米克戎，传染源还在调查中。
 
-提纲：
+据说该病毒在学生中间潜在传播多日，按照中共政府处理问题的风格，能捂就捂实在捂不住了才爆出来，要不然仅仅三天时间增加了一百多，还不知道这里面有多少水分？官员信誓旦旦要把病毒尽快清零，流行两年的病毒至今肆虐全球，这一世界性难题大概只有中共国官员能轻易破解！
 
-1、IMF工作人员关于乌克兰战争经济影响的声明
+3月7号24:00莱西启动第二轮全员核酸检测，明明可以自己在家检测，明明生产了大量医疗检测器材，源源不断输送到国外使用，偏偏不给自己国民使用，凌晨24点把大家召集起来不睡觉做这劳命伤财的无用功！可怜老百姓，在羊圈里任意宰杀还感恩戴德！人家可是百分之百真心实意！朋友圈无一例外满满的的“正能量”，笔者很想跟视频里这位辛苦劳作召集大家带好口罩保持3米距离的的女干部说一句，您的口罩没有在鼻子上端这样戴无效。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-7.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
 
-2、世茂集团15城24公司商票逾期，加速自救”卖卖卖”
-
-3、莆田首富自救：本月到期债务还不上，甩卖超30亿元资产回血
-
-4、美国与欧洲盟友讨论禁止进口俄罗斯石油
-
-正文
-
-1、IMF工作人员关于乌克兰战争经济影响的声明
-![img](https://media.gettr.com/group28/origin/2022/03/07/01/f2378f6d-6d6f-d05f-0cd0-4def6457c216/3da05f236955ce84248c4780299be031_500x0.png)
-乌克兰战争的经济影响,虽然目前局势仍在快速变化、未来前景充满极大的不确定性，但有关经济后果已经非常严重。能源和大宗商品（包括小麦等谷物）价格飙升，进一步加剧了源于供应链扰动和疫情后复苏带来的通胀压力。价格冲击波及全球，对贫困家庭的影响尤甚——这是因为食品和燃料在其开支中的比例更大。如果冲突升级，那么相关经济损失的破坏性将更大。针对俄罗斯的制裁措施将对全球经济和金融市场产生重大影响，对其他国家也将产生重大的溢出效应。
-
-链接：[https://www.imf.org/zh/News/Articles/2022/03/05/pr2261-imf-staff-statement-on-the-economic-impact-of-war-in-ukraine](https://www.imf.org/zh/News/Articles/2022/03/05/pr2261-imf-staff-statement-on-the-economic-impact-of-war-in-ukraine)
-
-2、世茂集团15城24公司商票逾期，加速自救”卖卖卖”
-![img](https://media.gettr.com/group41/origin/2022/03/07/01/ac4fc896-3a53-ef85-6ad7-cf4f753d960b/59e9f89d4f8a84330cf30d688705ef40_500x0.png)
-多个公开报道显示，世茂集团在全国有15城24个公司出现商票持续逾期，逾期余额少则数十万，多则数千万元。就涉及城市和公司数量而言，目前其在所有房企中排首位。这一情况的依据来源，是3月3日上海票交所公布的一组逾期名单。这份逾期名单的定义是“ 2021年9月1日至2022年2月28日出现3次以上付款逾期，且截至2022年2月28日有逾期余额或2022年2月当月出现付款逾期的承兑人”。可以看到，近期已“爆雷”或将“爆雷”的花样年、奥园、阳光城、新力、正荣等房企均榜上有名，但其中涉及项目数最多的是世茂集团。
-
-链接 ：[https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-07/doc-imcwipih7023410.shtml](https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-07/doc-imcwipih7023410.shtml)
-
-3、莆田首富自救：本月到期债务还不上，甩卖超30亿元资产回血
-![img](https://media.gettr.com/group16/origin/2022/03/07/03/57c2ccfc-7525-919a-91b3-9afa9d55136f/231a05388d7e1571bb058c175e8056b5_500x0.png)
-莆田首富的宝座还没坐稳，正荣地产实际控制人欧宗荣和他创立的正荣地产一同陷入困境。一笔2亿美元的永续债突然“爽约”，让这家闽系千亿房企，迎来资本市场的至暗时刻。3月4日，正荣地产发布公告称，将延迟2月21日到期优先票据展期同意截止日期，延长至伦敦时间3月11日下午4时。
-
-链接：[https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-07/doc-imcwiwss4518801.shtml](https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-07/doc-imcwiwss4518801.shtml)
-
-4、美国与欧洲盟友讨论禁止进口俄罗斯石油
-![img](https://media.gettr.com/group48/origin/2022/03/07/04/8e538792-115c-6f8a-84c1-90a0ccd6b336/14d8e590e42416560fbfe0db63b73c32_500x0.png)
-3 月 7 日（路透社）——美国国务卿安东尼·布林肯 (Antony Blinken) 周日表示，美国和欧洲盟国正在探索禁止进口俄罗斯石油，白宫与主要的国会委员会协调推进自己的禁令。一位熟悉讨论情况的消息人士周日告诉路透社，欧洲在原油和天然气方面依赖俄罗斯，但在过去 24 小时内对禁止俄罗斯产品的想法变得更加开放。根据美国能源信息署 (EIA) 的数据，2021 年美国平均每月从俄罗斯进口超过 2040 万桶原油和精炼产品，约占美国液体燃料进口量的 8%。
-
-链接 ：[https://www.reuters.com/business/energy/us-europeans-discussing-banning-russian-oil-imports-blinken-says-2022-03-06/](https://www.reuters.com/business/energy/us-europeans-discussing-banning-russian-oil-imports-blinken-says-2022-03-06/)
-
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
-
-上传排版：文勇
 
  
 
