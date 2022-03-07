@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 11:41 PM (UTC)`
+
+🇺🇦乌克兰大救援<br/>🇺🇦Ukraine Rescue<br/><br/>🇺🇦24小时紧急救援客服联系方式如下:<br/>邮箱: ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO <br/>电话(短信或电话):<br/>+1 720-657-6776 或 <br/>+1 719-224-4232<br/><br/>🇺🇦24-Hour Emergency Rescue Support Team Contact:<br/>E-mail: ROLF@UKRAINEHELP.INFO OR NFSC@UKRAINEHELP.INFO<br/>Phone (Call or Text): <br/>+1 720-657-6776 OR <br/>+1 719-224-4232<br/><br/>🇺🇦Контакт цілодобової рятувальної служби:<br/>Електронна пошта: <br/>ROLF@UKRAINEHELP.INFO АБО NFSC@UKRAINEHELP.INFO<br/>Телефон (SMS або телефонний дзвінок): <br/>+1 720-657-6776 АБО <br/>+1 719-224-4232<br/><br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+> `@miles 3/7/2022 11:29 PM (UTC)`<br/>乌克兰🇺🇦大救援<br/>Ukraine Rescue<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group46/gvision/2022/03/07/23/d05746e7-5303-c133-d1e0-0fbda6d1b3ae/out.jpg)
+
+---
+
 `@miles 3/7/2022 11:20 PM (UTC)`
 
 3/6/2022 Miles Guo: The Russia-Ukraine war has no impact on Xi Jinping's plan to invade Taiwan. Xi will take a much faster and more ruthless approach to attack Taiwan. The CCP has learned the lessons from the Russia-Ukraine war and adjusted its combat tactics against Taiwan. The CCP is secretly moving money in the event of future Western sanctions.<br/><br/>3/6/2022 文贵直播: 俄乌战局对习太阳打台湾的计划毫无影响，习将采取更快更狠的战略攻台；中共吸取了俄乌战争的经验并调整了对台作战战术；中共正在悄悄地搬钱以应对西方未来的制裁<br/>
@@ -152,13 +160,6 @@ FDA released Pfizer COVID vaccines data with more than 1,200 side effects. Pfize
 
 新中国联邦 法治基金救援行动 帮助乌克兰儿童逃离战火 连线波兰前线战友 （第二部分） 2022-03-07
 ![img](https://media.gettr.com/group44/origin/2022/03/07/11/d9a89241-a971-ab2b-a058-109564f77a69/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/7/2022 11:13 AM (UTC)`
-
-【Ukraine Rescue】03/06/2022 Rule of Law Foundation and the New Federal State of China rescued 96 Ukrainian children and their teachers from Hruszów, Poland, and their bus just arrived at a hotel in Krakow, Poland.<br/><br/>【乌克兰救援】03/06/2022 法治基金和新中国联邦从波兰海乌姆救援的96个乌克兰孩子和他们的老师已经到达波兰克拉科夫的酒店。<br/> 
-![img](https://media.gettr.com/group35/getter/2022/03/07/11/7a23128e-50a4-a269-b65e-23e7a2383378/out.jpg)
 
 ---
 
