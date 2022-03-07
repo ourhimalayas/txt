@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 10:07 PM (UTC)`
+
+【Ukraine Rescue】 03/07/2022 The New Federal State of China successfully rescued about 100 children from Ukraine. Thanks to the donors of the Rule of Law Foundation, they are the hope of the country, the angels to the people in the war zone of Ukraine. <br/><br/>【乌克兰救援】 03/07/2022 新中国联邦成功救出约100名乌克兰孩子。感谢法治基金捐助者，他们是这个国家的希望， 是乌克兰战争地区人们的天使。
+![img](https://media.gettr.com/group46/getter/2022/03/07/22/46b9677e-04ab-21b6-c63a-96709f54e25b/out.jpg)
+
+---
+
+`@miles 3/7/2022 10:05 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-最前线跟踪报道
+![img](https://media.gettr.com/group28/origin/2022/03/07/21/52e039e1-f7a2-a171-2295-1af244c3a132/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/7/2022 10:05 PM (UTC)`
+
+【乌克兰救援】 03/07/2022协助新中国联邦乌克兰儿童救援行动的人权律师感动落泪<br/><br/>【Ukraine Rescue】 03/07/2022 Human rights lawyer who assisted the NFSC's child rescue operation in Ukraine is moved to tears
+![img](https://media.gettr.com/group42/getter/2022/03/07/22/009f1488-9075-a0d2-2dca-18e184089f2d/out.jpg)
+
+---
+
 `@miles 3/7/2022 9:52 PM (UTC)`
 
 💦💦💦Ukraine Humanitarian Rescue Operation of the Rule of Law Foundation & Rule of Law Society <br/><br/>🌈🌈🌈Special thanks to the ROLF & ROLS for providing the critical and decisive function during the rescue mission. The ROLF & ROLS play a key role and provide all the supports for this rescue operation. #ROLFrescue #NFSCrescue  #CCP≠Chinese<br/><br/>💥💥💥If you have family to be rescued in #ukraine , please go to website Ukrainehelp.info <br/><br/>Here is the 24-Hour Emergency Rescue Support Team Contact: <br/>💌💌💌Email: ROLF@UKRAINEHELP.INFO OR NFSC@UKRAINEHELP.INFO <br/><br/>☎️☎️☎️Phone (Call or Text): +1 720-657-6776 OR +1 719-224-4232
@@ -140,27 +161,6 @@ FDA released Pfizer COVID vaccines data with more than 1,200 side effects. Pfize
 
 3/6/2022 Miles Guo: The side effects of the Pfizer vaccine are shocking! Those who are not vaccinated are almost as lucky as surviving ten thousand Ukrainian wars! The war enthusiasm demonstrated by some Chinese and the ugly acts of the CCP secretly supporting Russia are really hurting the feelings of Ukrainians!<br/><br/>3/6/2022文贵直播：辉瑞疫苗副作用让人震惊！没打疫苗的人，几乎相当于经历1万次乌克兰战争后仍能得以幸存般幸运！部分中国人表现出来的支持战争的狂热和中共暗中支持俄罗斯的丑恶行径伤害了乌克兰人的感情！<br/>
 ![img](https://media.gettr.com/group35/getter/2022/03/07/05/3bd3b8e2-99c2-73ac-f3b2-0513c35727ef/out.jpg)
-
----
-
-`@miles 3/7/2022 5:13 AM (UTC)`
-
-3/6/2022 Miles Guo: In our mission to rescue the people in Ukraine, the New Federal State of China is 1) the only Chinese team that went to the front line to save people; 2) the only team that saved Chinese, Ukrainians, and Americans without any political and economic demands or political stances; 3) the only team that saved a large number of Chinese and Americans; and 4) the only team that have told the world that there were 30,000 Chinese people in Ukraine who were abandoned by the CCP.<br/><br/>3/6/2022 文贵直播：新中国联邦在乌克兰救援中的四个唯一：1) 唯一去前线救人的中国人团队; 2) 唯一无政治经济诉求或政治立场地救中国人、乌克兰人和美国人的团队；3) 唯一救出了大量中国人和美国人的团队；4) 唯一告诉世界在乌克兰有被中共抛弃的3万中国人的团队<br/>
-![img](https://media.gettr.com/group35/getter/2022/03/07/05/babe3b16-0292-cd7e-61d1-59af7fc3f3bb/out.jpg)
-
----
-
-`@miles 3/7/2022 5:08 AM (UTC)`
-
-3/6/2022 Miles Guo: What is the reason behind the huge contrast between the CCP's massive media coverage of the release of the Pfizer vaccine side effects data after the FDA lost the case and the silence of the Western media? The CCP is taking this opportunity to push the false narrative that the West is suffering in a dire situation. The Chinese people have the fluke mentality and are deceiving themselves and others because they are brainwashed by the CCP and are harmed by the herd culture.<br/><br/>3/6/2022 文贵直播：中共媒体大肆报道FDA败诉后公布辉瑞疫苗副作用数据与西方媒体沉默的巨大反差，原因何在？中共借机大肆渲染西方处于水深火热之中，被中共洗脑的中国人受羊群文化毒害而抱侥幸心理、自欺欺人<br/>
-![img](https://media.gettr.com/group47/getter/2022/03/07/05/0f26c424-d6ee-40d3-f066-ce5645605cfb/out.jpg)
-
----
-
-`@miles 3/7/2022 4:17 AM (UTC)`
-
-【Ukraine Rescure】03/06/2022 Rule of Law Foundation and the New Federal State of China just saved 96 children and their teachers from Ukraine <br/><br/>【乌克兰救援】03/06/2022 法治基金和新中国联邦刚刚从乌克兰救援了96个孩子和老师
-![img](https://media.gettr.com/group49/getter/2022/03/07/04/496d14bf-d1f2-1c3a-a53f-283c7d0174f3/out.jpg)
 
 ---
 
