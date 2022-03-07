@@ -2,30 +2,33 @@
 ---
 
 
-## 被救出战火的乌克兰儿童在新中国联邦救援下前往西班牙
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2120762/)
+## 日本名古屋医师会医生反对给儿童接种疫苗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2121031/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月4日，日本名古屋医师会成员浅井院长，以及前医师会医疗安全顾问宫治医生在接受媒体采访时指出，他们不会同意对5至11岁儿童接种中共病毒疫苗的做法。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-11.jpg)
+其原因在于，首先，儿童在感染中共病毒后很容易康复，真正恶化到重症甚至死亡的病例少之又少。目前，所有的中共病毒疫苗都处于实验性阶段。这意味着，所有医生都不清楚中共病毒疫苗的毒副作用。浅井院长透露，许多医生都是抱着非常恐惧的心理，在给人们接种。
 
-3月7日，经过休整后，被救出战火的这100位乌克兰儿童坐上新中国联邦为他们安排的救援大巴，前往西班牙巴塞罗那。
+无论是接种疫苗还是其他医疗行为，站在医生以及患者的角度考虑，都是把安全性排在第一位，之后才是让社会安心、以及得到治愈后的满足感。然而，在接种中共病毒疫苗上，却打乱了上述顺序，把“让社会安心”排在了首位。这两位医生还强调，现在日本政府最该做的，就是先确认疫苗的安全性。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/37.jpg)图为乌克兰儿童及老师在新中国联邦提前安排的酒店办理入住（图片来自GETTR）
+参考链接：[20220304日本CBC採訪反對給兒童接種的名古屋醫師會醫生](https://www.gettr.com/post/pyguvhd574)
 
-在出发前，新中国联邦救援团队还细心的为小朋友们准备好水、食物和小零食，为他们艰难又漫长的路途献上一点点温暖。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-据悉，在这些儿童中，部分儿童是孤儿，还有一些是因为父母要留在乌克兰战斗，将孩子托付给那些老师，让他们带到西班牙的一个公益基金会进行照顾。
+总编: 文真
+编辑: Jack Li文阳   
+审核: 文真
+校正/发稿：Fei797
 
-该公益基金会将负责照顾孩子们的生活及可能会发生的领养。待战争结束后，希望每个孩子都能回到父母的怀抱。
-
-一位救助乌克兰儿童的志愿者律师经历了新中国联邦的救援行动后主动要求对新中国联邦的救援表示感谢。在采访时她说，“救援行动的每个步骤都很艰难，但是你们做到了，在24小时内平安将孩子带到安全地带，太感谢你们了，我太高兴了。”
-
-参考链接：
-[https://www.gettr.com/streaming/pynnwgc081](https://www.gettr.com/streaming/pynnwgc081)
-
-撰稿：幽蘭自得
-总编：老孙
-校对发布：Linda
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

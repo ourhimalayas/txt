@@ -2,33 +2,33 @@
 ---
 
 
-## 台湾本土新增中共病毒案例均已注射两剂以上疫苗
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2121094/)
+## 乌总统夫人指证俄军杀害儿童 新中国联邦连夜救出96名儿童送抵波兰
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2121162/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月6日，台湾中央流行疫情指挥中心宣称，台湾本土新增三名中共病毒患者，都至少注射了两剂以上中共病毒疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/12-5.jpg)
-据该中心发言人庄人祥称，6日台湾新增43例中共病毒患者，其中本土案例为1名男性和2名女性。其中一名十多岁的女性，已经完整接种2剂辉瑞疫苗。另外两名患者是一对夫妻，其中70多岁的男性完整接种2剂莫德纳疫苗，他的60多岁的妻子则接种了3剂莫德纳疫苗。
+**撰稿：日本东京方舟农场 Kevin wang**
 
-对此消息，中共国有网民认为，中共的科兴疫苗比国外的疫苗更好。郭文贵先生在3月6日大直播中剖析了中共国民对疫苗的错误认知。中国人不怀疑科兴疫苗，认为科兴和国外的疫苗不一样，比国外的疫苗更有效。这是被中共长期洗脑和精神奴役的后遗症，造成中共国国民的无知，以及错误认知。科兴再发2.5亿剂港澳台专用疫苗，将会造成绝对的灾难。
+3月6日，乌克兰总统泽伦斯基的妻子欧伦娜在Instagram上发布照片指证有俄军杀害儿童，并呼吁国际媒体关注此事。翌日凌晨，新中国联邦救援队成功从乌克兰境内救出96名儿童与教师。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-78.png)（图片来自欧伦娜的instagram）
+中央社报道，欧伦娜．泽伦斯基在Instagram发布5名在俄军攻击中惨遭杀害的儿童照片。欧伦娜指出，她发布照片中的5个孩子，年龄最大的14岁，最小的才18个月大。
 
-参考链接：[旅遊團衍生案件擴大 本土+3都打了兩劑以上疫苗](https://www.rti.org.tw/news/view/id/2126423)
+欧伦娜在照片旁留言：我向全世界所有公正的媒体发出请求！请告诉大家这个可怕的事实：俄罗斯侵略者正在杀害乌克兰儿童。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+她还写道：把这些照片给俄罗斯妇女们看，妳们的丈夫、兄弟、同胞正在杀害乌克兰儿童！把这事告诉俄罗斯的母亲们，让她们知道她们的儿子究竟在乌克兰做什么。 让她们知道，她们对每一个乌克兰儿童的死亡都有责任，因为她们默许这些罪行发生。就在此时此刻，这个数字可能正在增加，因为我们和平的城市正遭到炮击！
 
-总编: 文真
-编辑: Ivy001
-审核: Jack Li文阳
-校正/发稿：Fei797
+就在欧伦娜在Instagram上发出拯救儿童信息后的翌日凌晨，新中国联邦与法制基金组建的乌克兰紧急救援队，成功协助乌克兰一所儿童福利机构将96名儿童与数名教师顺利转移至波兰。新中国联邦救援队的负责人表示，孩子们与老师已入住酒店，稍事休息后将送往西班牙巴塞罗那。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据悉，该救援组织仍在持续的救援当中，并对救出的民众提供30天的免费食宿。部分被救民众呼吁大家尽快传播救援队联系方式，从而救出更多难民。
+
+官方估计，截至目前，至少38名乌克兰儿童已在冲突中丧生。
+
+参考链接：
+1.[https://www.cna.com.tw/news/aopl/202203070333.aspx](https://www.cna.com.tw/news/aopl/202203070333.aspx)
+2.[https://gettr.com/post/pyn832fbad](https://gettr.com/post/pyn832fbad)
+
+撰稿：Kevin wang
+总编：老孙
+校对发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
