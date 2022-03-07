@@ -2,58 +2,45 @@
 ---
 
 
-## 美CDC被警告：中期选举后“刑事”欺诈调查“准备就绪”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2118880/)
+## 共产党改变规则把七哥变成郭三秒&amp;郭强奸&amp;强迫交易罪
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2119012/)
 
-编译： Jenny Ball
+Youtube视频链接：[https://youtu.be/qPd-OSh-rYg](https://youtu.be/qPd-OSh-rYg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-581-edited.png)beckernews.com
+Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
-着名的 mRNA 疫苗研究人员罗伯特·马龙（Robert Malone）博士，和世界上发表最多的医学博士之一彼得·麦卡洛（Peter McCullough）博士，周五向《新美国人》发表了一份联合声明，他们指责CDC实施“犯罪”欺诈。
+**郭文贵先生：**这你想想，共产党能把七哥整成“郭三秒”，能把七哥整成“郭强奸”，是吧？能整出一个七哥，竟然是我在中共国“强迫交易罪”，让它赚了50亿。你说这王八蛋，我强迫它交易，我让它赚了50亿，然后给它们创造了上千亿的利益。
 
-“在我看来，隐瞒科学数据构成欺诈，”马龙博士解释道， “这是科学欺诈。 在我看来，如果我要发表一项拥有大量流行病学数据的研究，而我决定只公开发表其中的一部分，因为我想推进一些议程，那我就将犯有科学欺诈罪，论文就将被撤回，我会被踢出我的学术机构。 我犯了科学欺诈罪。 就是这个逻辑。”
+你去想想，它能找PAG能造假出来一个从来没有人公证、从来没有人见证七哥所谓《个人担保》，它还承认钱都还了，但你还欠我三千万。我借了瑞安平一个亿，我还了一个亿，然后过两天找我，“你还欠了我三千万”，是吧？不是我借的，是担保方，我是担保方，你找它盘古要去，盘古有法人，有股东是不是？楼都在那儿，上千亿资产，你为啥不要，你找我干嘛呀？
 
-“多年来，我观察到 CDC 越来越成为一个政治机构，而不再发挥其职能，”他继续说道， “这里是疾病控制和预防中心，它们是几十年来医生通过发病率和死亡率周报（ MMWR） 所依赖的信息档案。他们负责向我们提供有关正在发生的事情和发生地点的一线数据，但是，他们已经停止执行该功能。”
+而且就在4月19号VOA断播之前，发蓝通、发红通，要搞什么蓝裤衩、红裤衩，然后把我起诉所谓的，然后从来没让我说过话，一次没让我说过话，就把你判了，你说这可怕不可怕？所以这个共产党另外一个就改变全世界游戏规则，一切都用利益。
 
-“他们不再通过 MMWR 发布详细信息，”马龙博士继续说道。 “他们已经成为纯粹的政治组织和行政部门的分支。他们所做的，在我看来是恶毒的！这是彼得和我遭受媒体攻击的部分原因。如果你仔细想想，基本论点是，‘好吧，由于CDC 没有这么说，所以你在传播的是医疗错误信息。’但现在我们知道，真正传播医疗错误信息的是 CDC。”
+编辑整理：Jacques；
 
-“我认为我们都应该道歉，”他继续说。 “我认为他们一直隐瞒的这些数据，不仅仅是 18 至 49 岁的三倍促进功效数据。是大量的信息。他们一直在故意隐瞒。这就是我们被攻击的原因，这是不公正的。事实证明，我们是完全正确的，我们一直在说真话。”
+字幕文件制作：兵嫂；
 
-“这是对美国公众隐瞒的真相，更重要的是，它对其他医生隐瞒，对公共卫生当局隐瞒，”马龙继续说道， “那篇文章很有力量。 如果你仔细看，《纽约时报》试图隐瞒它，并在总统日将其删除，并以试图掩盖真实情况的方式编写它。 但在我看来，这里发生的事情是犯罪行为。”
+视频制作及上传：Cindy；
 
-“是的，”记者维罗妮卡·凯瑞连科（ Veronika Kyrylenko ）说， “我想问你，你刚才提到，如果一个科学家做出这样的事情，后果会很严重， 会给联邦政府带来后果吗？”
+G-News发布：小满；
 
-“所以，我已经多次为政府内部的人发声，我们称他们为俚语的‘政府’，在CDC工作的人接受了《纽约时报》的采访，但不愿分享他们的名字。 我认为他们现在正处于抉择的阶段。”
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-“会有法律后果，我相信他们可以选择，”马龙博士说。 “这些参与隐瞒这些数据的政府雇员，他们可以是被告，也可以是证人。现在是他们站出来发声的时候了。如果他们想采取举报行动，请与参议员罗恩·约翰逊(Ron Johnson)交谈，他的办公室正在寻找这个证人。”
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-“当中期完成时，他将再次当选，共和党人将夺取参议院，他将负责参议院小组委员会的调查，”马龙补充说。 “我可以告诉你们，他已经准备好了。”
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-彼得·麦卡洛博士随后将让政府对缺乏数据透明度负责的问题进行权衡。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-“你知道，我只是补充一点，这并不是数据透明度唯一值得关注的领域，”麦卡洛博士说。 “ FDA 和辉瑞，正因公开其完整档案而被起诉。你们中的许多人都知道，现在数据的发布速度正在加快，但是，如果不愿意发布每个美国人都被强迫接受的生物产品的信息，那么，不愿意这样做会让每个人都感到担忧。 ”
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-“我们非常关注的另一个数据透明度领域是，国防部流行病学数据库信息，该信息在 1 月 24 日参议院小组会议上发布，由参议员罗恩·约翰逊，及其首席律师汤姆·伦茨（Tom Renz）共同主持的第二意见律师利·邓达斯（ Leigh Dundas） 提供了数据，事实上，举报人确实披露了他们的姓名，首席举报人是飞行外科医生特蕾莎·朗。”
-（点评：致敬特蕾莎医生！）
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-“很明显，我们军人的许多疾病类别逐年增加了许多倍，”麦卡洛博士继续说道。 “而唯一改变的是大量接种疫苗。因此，此时的数据透明度，将是我相信马龙博士正确的一个领域，将进行深入调查。对于那些接近数据的人来说，我认为他们确实有一个选择，这将是他们做出正确选择，以及他们希望自己在历史的哪一边的问题。”
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-现在，就上述《纽约时报》文章所提的 CDC没有发布它收集大部分 Covid 数据， 共和党立法者正在传唤CDC。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-众议员奇普·罗伊（ Chip Roy）致 CDC 主任罗谢尔·瓦伦斯基( Rochelle Walensky) 的信中说：“我写信给您，寻求有关贵机构故意隐瞒与 COVID-19 住院相关数据的令人不安的报告的答案。” “正如《纽约时报》最近报道的那样， CDC据称隐瞒了数据，例如,按疫苗接种状态划分的 COVID-19 住院数据，因为机构人员表示，这些数据可能被误解。”
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-罗伊表示，如果《纽约时报》的报道属实，那将是一个“惊人的启示”，“只会进一步削弱美国人民对你的机构缺乏信任”。
-
-评论：在真相面前，许多人将面临何去何从的抉择 － 要站在历史的哪一边！可悲的是，无论他们受到怎样的惩罚，都无法挽回失去的生命！都无法阻止mRNA刺痛蛋白给人类造成的史无前例的灾难！
-
-素材链接：【beckernews.com】[The CDC Has Been Warned a ‘Criminal’ Fraud Investigation is ‘Ready to Go’ After Midterm Elections](https://beckernews.com/the-cdc-has-been-warned-a-criminal-fraud-investigation-is-ready-to-go-after-midterm-elections-44287/)
-
-* * *
-
-审核：文乐
-校对：花羽
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

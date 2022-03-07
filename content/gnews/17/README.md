@@ -2,32 +2,38 @@
 ---
 
 
-## 俄罗斯部队使用神秘的Z字标记引热议
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2118866/)
+## 多国民众通过Airbnb订房支持乌克兰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2119002/)
 
-撰稿：东京樱花团/待命（文晓）
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯部队使用神秘的Z字标记引热议.png)
+整理：围剿维尼熊
+编辑：木木木mmmmm
 
-3月7日时事通信社消息：部署在乌克兰的俄罗斯军车上用白色喷漆标记的“Z符号”引热议。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0155.png)图片来源：美联社
 
-由于俄罗斯和乌克兰都是前苏联的成员，共享一些相同的武器，普遍的看法是，这是 “为了避免对友军的误射”（美国报纸《华盛顿邮报》）。 从被乌克兰军队摧毁的车辆上也可以看到这些标记的存在。
 
-坦克和直升机上也有标记。但有些不同，如’Z’、’V’和’O’，有些人认为它们表示所属单位。然而，一位乌克兰东部亲俄武装力量的一名前高级成员证实”Z标记的含义是保密的”，目前真相不明。
+根据中央社3月7日报道，乌克兰遭俄罗斯入侵后，多国民众纷纷透过Airbnb预订乌克兰境内民宿，并在数天内涌入近200万美元善款。
 
-在2014年吞并乌克兰南部的克里米亚半岛时，没有徽章的部队作为 “治安员 “行动。 这一次，”Z “符号已经成为俄罗斯军队在国内和国外的象征。
+华尔街日报报导，俄军猛烈炮击乌克兰哈尔科夫（Kharkiv）、切尔尼戈夫（Chernihiv）、马立波（Mariupol）等城市的平民区、波及无辜之际，一项2日发起的社群媒体运动掀起乌克兰民宿预订热潮，房客无意入住，只想以房费援助资源匮乏的乌克兰人。
 
-在人们的关注下，俄罗斯国防部利用它来渲染普京总统提出的 “军事行动”。在其官方Instagram页面上，解释说这是俄语中 “为了胜利 “的 “Z “和 “任务将完成 “的 “V”，但这被认为是事后杜撰。
+这项运动近几天吸引愈来愈多人参与，Airbnb执行长奇斯基（Brian Chesky）甚至在社群媒体推特转发订房运动原始讯息截图。Airbnb除暂停在俄罗斯、白俄罗斯营运外，非营利部门Airbnb.org也发起计划，提供资金协助多达10万名乌克兰难民解决短期住宿需求。
 
-其他俄罗斯军事专家提出的理论是，它们是乌克兰总统Wlodimir (V) Oleksandrovich (O) Zelensky (Z)的首字母，普京称其为 “法西斯 “并视其为敌人。泽伦斯基先生也承认，自己是 “敌人的头号目标”。
+Airbnb公布的数据显示，截至3日，乌克兰境内民宿已被预订6万个晚上，进帐190万美元。
 
-而根据俄罗斯国家媒体分发的照片，国内出现了支持该政权的标志，上面写着Z符号，表示’我们不会抛弃我们的人’。
+此外Airbnb还宣布免收预订乌克兰民宿的服务费。
 
-信息来源：[ロシア軍、謎のZマーク　友軍への誤射回避狙いか　ウクライナ（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/dcfeb78ad7d22eb4255e98e4d99cc0d7ae79e4e4)
+参考链接：[挺烏克蘭Airbnb訂房熱 數天金援逾5000萬元](https://www.cna.com.tw/news/aopl/202203070014.aspx)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

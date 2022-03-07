@@ -2,25 +2,38 @@
 ---
 
 
-## 有声｜俄罗斯普京当局拘捕超过4300名反战抗议人士
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2118983/)
+## 布林肯暗批中共不愿谴责俄罗斯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2119062/)
 
-**By:秘翻新闻**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**2022-03-07**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7777777.png)图片源自:路透社
-[路透社](https://www.reuters.com/world/europe/more-than-64-people-detained-anti-war-protests-russia-protest-monitor-2022-03-06/)3月6日报道，本周日，在俄罗斯全国范围内抗议普京入侵乌克兰的示威活动中，警方拘留了4300多人。在社交媒体上发布的视频显示，成千上万的抗议者高呼：不要战争！你真丢脸！
+整理：围剿维尼熊
+编辑：木木木mmmmm
 
-俄罗斯官媒称，毗邻克里姆林宫的莫斯科马涅日尼亚广场已被警方清场，警方逮捕了一些未经批准抗议乌克兰战争的示威者。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-48.png)图片来源：雅典娜设计组
 
-俄罗斯一家由当局控制的民调机构表示，截至2月27日的一周内，普京的支持率上升了 6个百分点至 70%。另一家为克里姆林宫提供研究的民调机构表示，普京的支持率在同一时期上升了 7 个百分点至 71% 。该数据公布后在互联网世界掀起轩然大波，令人不禁想起一向以公然造假而闻名于世的中国共产党，所谓民调机构已经和俄罗斯的国家杜马机构一样，沦为了举手机器和独裁者普京的橡皮图章。
 
-（ 秘翻新闻 清风先生 编译报道 ）
+根据中央社3月7日报道，俄乌战火持续，北京迟迟不愿公开谴责俄罗斯，引发国际不满。
 
-发布:星星
+布林肯5日与中共国外交部长王毅通话讨论乌克兰局势。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+根据美国国务院发布的通话摘要，布林肯在电话中表示，全球都在关注自由、自决与主权基本原则，暗批中共不愿加入国际社会行列谴责俄国行径。
+
+布林肯今天接受美国有线电视新闻网（CNN）美国国情（State of the Union）主持人塔柏尔（Jake Tapper）专访，再次对中共喊话，希望北京能公开谴责俄罗斯。
+
+布林肯表示，他与王毅通话中他再次提及：中共国常把主权原则的神圣不可侵犯性挂嘴边，但现在身为联合国安理会常任理事国之一的俄罗斯却违反这项原则，而安理会理当负责维护世界和平与安全。
+
+参考链接：[布林肯对中共喊话希望北京能公开谴责俄罗斯](https://www.cna.com.tw/news/aopl/202203070013.aspx)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
