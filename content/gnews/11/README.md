@@ -2,34 +2,23 @@
 ---
 
 
-## 俄乌将在海牙法庭就种族灭绝指控举行听审
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2117744/)
+## 爱马仕、香奈儿等世界知名奢侈品牌宣布暂时关闭在俄业务
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2117750/)
 
-翻译：冰糖葫芦喵
+撰稿/翻译：zzballack
+上传：追着曙光跑
 
-编辑与校对：冰糖葫芦喵
+据《网关专家》（Gateway Pundit）3月6日报道，爱马仕（Hermès）、路易·威登（Louis Vuitton）、卡地亚 (Cartier)、香奈儿（Chanel）、古驰（Gucci）等全球知名的奢侈时尚品牌宣布，由于对欧洲目前的局势越来越担心，他们将暂停在俄罗斯的所有业务，立即生效。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-07-at-11.46.59.jpeg)图片来源：原新闻
+柏金包（Birkin bag）的制造商爱马仕和拥有卡地亚的历峰集团（Richemont）是第一批宣布关闭在俄商店的时尚品牌母公司，路威酩轩集团（LVMH）、开云 (Kering)和香奈儿随后也关闭了商店。
 
-**《**路透社》海牙3月7日报道**，周一，乌克兰将要求海牙国际法庭发布紧急裁决，要求俄罗斯停止入侵，认为俄罗斯的攻击理由是基于对种族灭绝法的错误解释。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/海牙法庭-e1646621356282.jpg)国际海牙法庭（图片来源：网络）
-尽管法院的裁决具有约束力，各国一般都会遵守这些裁决，但它没有直接的执行手段。
+香奈儿公司在领英（LinkedIn）上发帖说：“鉴于我们对目前的局势越来越担心，企业经营的不确定性和复杂性也越来越大，因此我们决定暂时停止在俄罗斯的业务。“
 
-据报道，俄罗斯总统普京表示，俄罗斯的入侵是为了保护那些在乌克兰东部受到迫害和种族灭族灭绝威胁的俄罗斯人。
+LMVH向路透社证实，他们在俄罗斯的124家门店将全部关闭，但他将继续支付在该国的3500名员工的工资。
 
-乌克兰的诉讼认为，种族灭绝的说法是不真实的，不能为入侵提供法律依据。
+开云、LMVH和世界领先的美容公司之一欧莱雅（L’Oréal）都承诺提供财政支持，帮助乌克兰难民。据估计，自俄罗斯入侵以来，已有超过100万乌克兰人逃离该国。
 
-报道指出，**乌克兰向国际法院(官方称国际法院)提起的诉讼，主要是对1948年两国签署的一项防止种族灭绝条约的解释。该条约将国际法院命名为解决签署国之间争端的论坛。**
-
-**国际法院可以在几天或几周内命令快速“临时措施”，以防止情况恶化，然后再看案件的是非曲直，或看自己是否有管辖权。**
-
-自2014年俄罗斯吞并克里米亚后，乌克兰曾向国际刑事法院寻求临时措施，国际刑事法院下令双方不得恶化争端。
-
-报道称，**听证会将于格林威治时间上午10点开始，乌克兰将陈述其案情。俄罗斯将于周二做出回应。**
-
-新闻来源链接：
-
-[Ukraine and Russia to face off at World Court over genocide claim | Reuters](https://www.reuters.com/world/europe/ukraine-russia-face-off-world-court-over-genocide-claim-2022-03-06/)
-
-
+信息来源：[Luxury Fashion Brands Hermès, Chanel, Louis Vuitton, and Gucci… Temporarily Close Business Operations in Russia](https://www.thegatewaypundit.com/2022/03/luxury-fashion-brands-hermes-chanel-louis-vuitton-gucci-temporarily-close-business-operations-russia/)
 
  
 
