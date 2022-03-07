@@ -2,35 +2,30 @@
 ---
 
 
-## 逆行而上 千里救援 96名儿童
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2117411/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月6日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2117923/)
 
-作者：Bryan
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/D45ABF5F-9ED9-4BB4-811B-E42BD96D40D7.jpg)
-
-俄罗斯入侵乌克兰战争爆发后，新中国联邦，法制基金在第一时间立即展开了对战区内的国际大救援活动。西班牙农场接到分配任务后立刻组织人员赶赴一线，同时分派西班牙当地战友联系酒店、车辆、医疗等资源，落实营救难民落地后三十天生活涉及方方面。
-
-在联系当地酒店时，结识了巴塞罗那本地一家儿童慈善机构工作的Teresa女士。Teresa女士得知新中国联邦组织国际救援活动后，询问战友能否对乌克兰境内一家儿童慈善机构内的几十名儿童进行营救。这些儿童有的是孤儿，有的则是乌克兰当地居民的孩子，孩子父母为了保卫自己的家园，把孩子交给了儿童慈善机构。
-
-战友向Teresa女士及该慈善机构介绍了新中国联邦、法制基金的历史由来，并立即答应了实施营救。
-
-文戈七雄站长立即向联盟委员会汇报此事，联盟会员会高度重视，第一时间协调车辆和人员配合西站救援活动。
-
-由于部分儿童尚未取得护照，只能采取公路运输的方式进行营救。在赶往接应地点的途中，营救儿童及随行老师的数量一直在增加，最终确定成功营救96名儿童，及相关陪同老师共计113人。
-
-由于涉及到营救儿童安全及隐私问题，没有进行救援接应现场直播。
-
-儿童成功获救后，Teresa女士，包括乌克兰本地人十分感动，并称赞我们新中国联邦人为“天使”。
-
-* * *
-
-*审核/校对：Aries的星*
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-3.jpeg)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-4.png)
 
 
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://www.gettr.com/post/pykr8wcff3](https://www.gettr.com/post/pykr8wcff3)
+访谈：[https://www.gettr.com/post/pyl5g40dd6](https://www.gettr.com/post/pyl5g40dd6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-6.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

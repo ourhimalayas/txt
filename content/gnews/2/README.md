@@ -2,47 +2,22 @@
 ---
 
 
-## 银行业监管机构称中共国不会加入对俄罗斯的制裁
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2118112/)
+## Tik Tok在俄罗斯停止视频发布服务
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2118296/)
 
-***评论：**西方国家对俄罗斯制裁，是因为俄罗斯入侵了乌克兰，中共国在联合国大会紧急特别会议关于乌克兰局势决议草案中投了弃权票，和俄罗斯关系越来越密切，世人皆知，说影响有限，是不是心虚，他们自己清楚。*
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片11-2.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg.dsb.cn%2F2018%2F0704%2F20180704220345629079005196.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dsb.cn%2F81735.html&amp;tbnid=u-MoNxgb_cV3CM&amp;vet=12ahUKEwiima3T-7L2AhUnHKYKHVM-DzQQMygJegUIARDFAQ..i&amp;docid=hpr5Qa-qpPx1j)
+据NHK3月7日消息，全球知名视频分享应用APPTikTok 6日宣布，将停止在俄罗斯的视频发布服务。
 
-据《路透社》记者Kevin Yao 2022年3月2日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-559-e1646626363938.png)中国银行保险监督管理委员会（CBIRC）主席郭树清于2021年3月2日在中国北京出席新闻发布会。REUTERS/Tingshu Wang
-《路透社》北京3月2日 – 中国银行业监管机构周三表示，中共国不会加入由西方主导的对俄罗斯的制裁，并补充说他认为这些措施对中国的影响将是有限的。
+3月4日，在普京总统签署了一项对故意散布俄罗斯军事活动虚假信息的个人和团体进行处罚的法律修改案后，TikTok在优先考虑员工和用户的安全，以及在讨论法律上的影响等情况下，不得已决定停止提供视频发布的服务。
 
-中共国拒绝谴责俄罗斯入侵乌克兰，一再批评其所谓的非法和单边制裁。
+此外，TikTok还宣布用户的短信服务将会继续进行。
 
-“就金融制裁而言，我们不赞成，尤其是单方面发起的制裁，因为它们效果不佳，没有法律依据，”中国银保监会主席郭树清在一场新闻发布会上说。
+信息来源：[「TikTok」ロシアでの動画投稿サービスを停止](https://www3.nhk.or.jp/news/html/20220307/k10013517961000.html)
 
-“我们不会参与此类制裁。我们将继续与有关各方保持正常的经贸往来。”他说。
-
-近年来，中共国和俄罗斯的关系越来越密切，包括作为贸易伙伴。根据中国海关数据，去年两国贸易总额增长 35.9%，达到创纪录的 1469 亿美元，其中俄罗斯是石油、天然气、煤炭和农产品的主要来源，对华贸易顺差。
-
-“到目前为止，制裁对中国经济和金融部门的影响还不是很大。”郭补充道。
-
-“总体而言，即使在未来，它们（对中国）也不会产生太大影响，”郭说，并引用了中国经济和金融部门的韧性。
-
-文章观点仅代表作者个人，与Gnews平台无关。
-
-文章来源：[https://www.reuters.com/markets/europe/china-banking-regulator-sees-limited-impact-sanctions-russia-2022-03-02/](https://www.reuters.com/markets/europe/china-banking-regulator-sees-limited-impact-sanctions-russia-2022-03-02/)
-
-翻译：洛杉矶盘古农场 – Raul
-
-校对：洛杉矶盘古农场 – 轰炸机
-
-评论：洛杉矶盘古农场 – 傻小子
-
-编辑：洛杉矶盘古农场 – 傻小子
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

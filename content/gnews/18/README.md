@@ -2,40 +2,27 @@
 ---
 
 
-## 美国和欧盟讨论禁止进口俄罗斯石油
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2117884/)
+## 战火中的温暖！从乌克兰安全撤离的孩子老师已全部入住酒店
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2118083/)
 
-编译撰稿：冰糖葫芦喵
+3月6日，传来令人高兴的消息，乌克兰受难的孩子们已经来到乌克兰-波兰边境，下一步，新中国联邦将继续安排他们前往西班牙！
 
-校对与发布：灭共文明、冰糖葫芦喵
+新中国联邦法治基金的救援行动已经将96名乌克兰儿童以及老师送往安全地带，接下还将送这些孩子去西班牙巴塞罗那妥善安置！
 
-《路透社》华盛顿3月6日报道，**周日，美国国务卿布林肯(Antony Blinken)表示，美国和欧洲盟国正在探讨禁止进口俄罗斯石油的问题，白宫与国会各主要委员会进行了协调，推动各自的禁令。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/布林肯-e1646623075512.jpg)2022年3月6日，美国国务卿布林肯在摩尔多瓦向美国大使馆人员发表讲话。(Olivier Douliery/Pool/AFP via Getty Images)
-一位熟悉谈判情况的消息人士周日对路透表示，**虽然欧洲依赖俄罗斯的原油和天然气，但在过去24小时内，欧洲对禁止俄罗斯产品的想法变得更加开放。**
+就在刚刚不久，乌克兰的孩子和老师们已经全部安全抵达新中国联邦法治基金安排的酒店入住！
 
-与此同时,美国众议院议长佩洛西(Nancy Pelosi)周日在信中还表示,**美国商会是正在探索立法，禁止进口俄罗斯石油**，以及**国会打算制定本周100亿美元对乌克兰的援助。**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-70.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-39.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-19.jpg)
 
-报道称，布林肯正在欧洲各地与盟国协调，以应对俄罗斯入侵乌克兰的行动。
 
-布林肯还强调了维持全球稳定石油供应的重要性。他在接受美国全国广播公司(NBC)的《媒体见面》(Meet the Press)节目采访时说:**“我们正在与欧洲伙伴积极讨论禁止从俄罗斯进口石油的问题，当然，与此同时，要保持全球石油供应的稳定。”**
+撰稿/发布：一叶知秋
 
-周四，一个由美国两党参议员组成的小组**提出了一项禁止美国进口俄罗斯石油的法案。最终可能成为制裁的工具。**
-
-在俄罗斯入侵乌克兰后，**白宫对俄罗斯炼油厂和从未开通的北溪2号天然气管道的技术出口实施了制裁。**
-
-据美国汽车协会(AAA)数据，**美国全国每加仑汽油均价周日触及4.009美元**，为2008年7月以来最高水平。
-
-**新闻来源链接：**
-
-[U.S., European allies discuss banning imports of Russian oil | Reuters](https://www.reuters.com/business/energy/us-europeans-discussing-banning-russian-oil-imports-blinken-says-2022-03-06/)
-
-**多伦多蓝莲花农场相关链接：**
-
-[https://gettr.com/user/Blue\_Lotus](https://gettr.com/user/Blue_Lotus)
-
-[https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS\_a\_BMWw](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-
-[https://discord.com/invite/awC74U4YwJ](https://discord.com/invite/awC74U4YwJ)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

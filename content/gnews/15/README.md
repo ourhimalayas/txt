@@ -2,34 +2,44 @@
 ---
 
 
-## 乌克兰前沿每日报道
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2117927/)
+## 中共以东莞嫖妓和非正常收入胁迫在港英国法官查封七哥
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2118113/)
 
-整理：奔跑吧黄小鸭
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-31.jpg)乌克兰基辅约20公里以远的伊尔平镇2022年3月6日遭到密集轰炸（图片来自https://www.rfi.fr/cn）
-基辅时间3月7日，俄罗斯入侵乌克兰已进入第十二天，以下是最新的相关消息
+Youtube视频链接：[https://youtu.be/qHYoqAzfeZk](https://youtu.be/qHYoqAzfeZk)
 
-**俄乌前沿最新动态**
+Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
-- 乌克兰国防官员警告说，俄罗斯正在准备对首都基辅发动全面进攻。乌军总参谋部称，俄军已开始为袭击该基辅做准备，他们的坦克和机动步兵部队向附近的伊尔平镇推进。在其他地方，俄军正集中力量包围东部城市哈尔科夫、切尔尼戈夫、苏梅和南部城市尼古拉耶夫
-- 五角大楼消息，过去一天，美国观察到俄罗斯夺取基辅、哈尔科夫和切尔尼戈夫的努力受到乌克兰的激烈抵抗。在基辅附近，一支 65 公里的俄罗斯车队仍然停滞不前，尽管双方都有飞机损失，但乌克兰上空的领空仍然存在争议；美国估计自2 月 24 日开始入侵以来，俄罗斯已经发射了 600 次各种类型的导弹，在乌克兰边境附近集结的俄军中约有 95% 现已投入进攻并部署就绪
-- 美国官员告诉《华尔街日报》，俄罗斯正在招募叙利亚人参加乌克兰作战，因为莫斯科正准备夺取乌克兰的主要城市。情报官员拒绝透露有多少战士同意参战，但表示有些人已经前往俄罗斯并准备部署到乌克兰
-- 国际红十字会表示，从马里乌波尔撤离平民再次被迫停止，俄乌双方互相指责对方未能遵守停火协议。这座城市现在已经是第五天了，没有水、没有电、没有卫生设施，食物和饮用水正在迅速耗尽
-- 联合国难民署称，仅 10 天就有超过 150 万人逃离乌克兰，超过100 万人已越境进入波兰，约占三分之二。联合国人权办公室更新了自 2 月 24 日俄罗斯入侵以来在乌克兰确认的伤亡人数。至少有364名平民被杀，包括 25 名儿童和 759 人受伤，实际数字可能更高。
-- 全球核监督机构表示，非常担忧有关扎波罗热核电站受占领该核电站的俄罗斯指挥官的命令。俄军关闭了一些移动网络和互联网，使乌克兰工作人员与监管机构之间的沟通变得困难
-- 据当地媒体援引乌克兰外长德米特罗·库莱巴的话说，近 2 万名外国公民申请前往那里战斗。到目前为止，来自 52 个国家的志愿者已经申请加入战斗
-- 据报道，在俄罗斯，有 4,600 多人在反战示威中被拘留。自战争开始以来，已有 13,000 多人被拘留
+**郭文贵先生：**你知道共产党当年在香港的法官跟我们说什么吗？就香港查封我们钱的人，DBS的几百亿的人——法官，后来离职了，他说：“你知道当时中共国威胁我，明确告诉我 ‘你不把郭文贵Miles Guo家族的钱给封了，我就把你所有的你在东莞嫖妓的事情和你家里边不正常的钱全公布’ 。”这法官没办法，把钱全封了，现在还封着呢。
 
+这法官在香港离职了，是个英国人，大家你可以查查，是在英国在香港的十大法官之一，一辈子待在香港。这是被它威胁的法官，在香港就查封这么（多）资金，就这么查封的。
 
-**美欧国家最新动态**
+所以共产党的黑社会手段绝对地伸进了现在冬奥会的所有的官员和那些裁判的身上，你都明显地你违规了，判人家违规。所以说在现场的冬奥会的官员跟咱们好的，他说：“Miles，对你来讲这都是天大的好事儿，我不相信任何一个国际奥林匹克运动会的任何官员还会再跟共产党合作，还会再相信共产党，永远不可能了。就连我们这两个头儿，（女的，奥林匹克官员，冬季奥委会的官员在现场的）每天唉声叹气摇头。”就不行了，就完全失控了！
 
-- 英国首相鲍里斯约翰逊办公室宣布，英国政府计划再次向乌克兰提供近 1 亿美元。这笔资金将通过世界银行的多方捐助信托基金分配，用于帮助支付乌克兰的福利、养老金和公共部门的工资
-- 俄罗斯的企业外流仍在继续——Netflix、普华永道和美国运通都宣布暂停在俄罗斯的服务。TikTok 还暂停了其视频服务的直播和新内容
+编辑整理：Jacques；
 
+字幕文件制作：星塵；
 
-原文链接：
+视频制作及上传：Cindy；
 
-[War in Ukraine – BBC News (www-bbc-com.translate.goog)](https://www-bbc-com.translate.goog/news/world-60525350?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=sc)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

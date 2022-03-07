@@ -2,44 +2,46 @@
 ---
 
 
-## 中共以东莞嫖妓和非正常收入胁迫在港英国法官查封七哥
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2118113/)
+## 新中国联邦从乌前线安全救出逾百名乌克兰儿童和老师
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2118314/)
 
-Youtube视频链接：[https://youtu.be/qHYoqAzfeZk](https://youtu.be/qHYoqAzfeZk)
+**撰稿：青衣**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111-4.jpg)
+新中国联邦和法治基金乌克兰救援行动组刚刚成功地从乌克兰前线救出了96名乌克兰儿童及17名老师！
 
-Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+在战火纷飞的乌克兰，数以百万计的百姓正在努力逃离。然而，却有那么一群勇士“逆行”奔赴了乌克兰前线——他们就是新中国联邦和法治基金乌克兰救援行动组。
 
-**郭文贵先生：**你知道共产党当年在香港的法官跟我们说什么吗？就香港查封我们钱的人，DBS的几百亿的人——法官，后来离职了，他说：“你知道当时中共国威胁我，明确告诉我 ‘你不把郭文贵Miles Guo家族的钱给封了，我就把你所有的你在东莞嫖妓的事情和你家里边不正常的钱全公布’ 。”这法官没办法，把钱全封了，现在还封着呢。
+新中国联邦前线救援队目前已成功救出了数辆大巴的中国同胞及各国求助人士。而目前最新的救助战报是：刚刚又成功救助了96名乌克兰儿童及17名老师！目前所有人员已乘坐专用大巴安全抵达位于波兰的新中国联邦法治基金安排的酒店入住。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/22-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/33-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/44.jpg)
+据新中国联邦喜马拉雅联盟日本东京方舟农场农场主“草根小哥”在推特上介绍：这96个乌克兰孩子，他们的父母选择留在乌克兰战斗，把孩子托付给了专门的机构。新中国联邦从乌克兰把这96个孩子和老师救了出来。现在已安排孩子和老师在波兰某酒店休息，随后会安排他们飞赴西班牙。所有救援费用，吃、住、包括飞机等等，都由新中国联邦支付。
 
-这法官在香港离职了，是个英国人，大家你可以查查，是在英国在香港的十大法官之一，一辈子待在香港。这是被它威胁的法官，在香港就查封这么（多）资金，就这么查封的。
+新中国联邦创始人郭文贵先生在盖特上发文盛赞这次行动。他写道：“感谢在前线的所有兄弟姐妹们！天地可鉴，人神共评。我们做的事情，就是新中国联邦人未来在全世界所扮演的角色，所要做的事情。”
 
-所以共产党的黑社会手段绝对地伸进了现在冬奥会的所有的官员和那些裁判的身上，你都明显地你违规了，判人家违规。所以说在现场的冬奥会的官员跟咱们好的，他说：“Miles，对你来讲这都是天大的好事儿，我不相信任何一个国际奥林匹克运动会的任何官员还会再跟共产党合作，还会再相信共产党，永远不可能了。就连我们这两个头儿，（女的，奥林匹克官员，冬季奥委会的官员在现场的）每天唉声叹气摇头。”就不行了，就完全失控了！
+无私、大爱、忘我、勇敢，这就是新中国联邦法治基金乌克兰救援行动组所展现出的新中国联邦人的形象。感谢这些最美丽的“逆行者”、救援天使，世界将铭记你们所做的一切。
 
-编辑整理：Jacques；
+滞留在乌克兰的中国同胞以及全世界各国需要帮助的友人，请速速拨打24小时救援热线或采用其他有效联络方式，新中国联邦和法治基金会竭尽所能免费为你们提供一切可能的救援帮助。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/55.jpg)
+**新闻链接：**
 
-字幕文件制作：星塵；
+[https://gettr.com/post/pyktuo6409](https://gettr.com/post/pyktuo6409)
 
-视频制作及上传：Cindy；
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+> 这96个乌克兰孩子，他们的父母选择留在乌克兰战斗，然后把孩子托付给专门的机构，新中国联邦从乌克兰把这96个孩子和老师救了出来，现在已安排孩子和老师在波兰某酒店休息，然后会安排他们飞赴西班牙。所有救援费用，吃住包括飞机……都由新中国联邦支付。 [pic.twitter.com/ZDDp77lWH2](https://t.co/ZDDp77lWH2)
+> — 草根小哥（新号） (@caogenxiaogex) [March 7, 2022](https://twitter.com/caogenxiaogex/status/1500657572168503297?ref_src=twsrc%5Etfw)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+> 新中國聯邦
+> 前線救援實況：
+> 96名烏克蘭兒童及17名老師，剛剛獲救，已經平安到達酒店。
+> 繼續努力
+> 我們在行動‼️ [pic.twitter.com/KWRudjU0Mv](https://t.co/KWRudjU0Mv)
+> — 澳喜要闻（新号） (@ahnewspace) [March 7, 2022](https://twitter.com/ahnewspace/status/1500670423599808517?ref_src=twsrc%5Etfw)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

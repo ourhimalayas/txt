@@ -2,42 +2,18 @@
 ---
 
 
-## 共产党的黑社会手段烙到北京冬奥会所有官员和裁判身上
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2118065/)
+## 【粤语配音】2022年3月6日：乌克兰战区一道亮丽的风景线——新中国联邦人道救援队
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2118228/)
 
-Youtube视频链接：[https://youtu.be/gYxgCWq-4F8](https://youtu.be/gYxgCWq-4F8)
+紐約香草山-香港部
 
-Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+我们去乌克兰救人，到目前为止，我可以负责任的告诉大家，我郭文贵付永远的责任，我有四个数字要告诉你们，到今天为止，唯一一个中国人的团队是往里面冲救人，这是我说的第一个，第二个，我们是中国人当中惟一一个没有任何政治，经济，没有任何诉求，去救助除中国同胞外，还有乌克兰人、美国人第三个，我要告诉大家，现在在乌克兰内部，我们能公开和不能公开的，救出来的很多中国人，救出的外国人的，只有我们新中国联邦，第四个，我要告诉大家，你们记住我今天说的话，中国人现在在乌克兰，最起码不低于三万人，而不是两万人，特别是工人，那些工人基本上连手机的通信工具能力都没有，这些被抛弃的中国人，是共产党在五天前宣布的，已经全部撤离的情况下，还呆在那里的人。
 
-**郭文贵先生：**所以“谷爱凌事件”造假、欺骗全世界，对全世界的法律都是威胁。而且最夸张的事情，他这个愚蠢到了在全世界媒体面前敢如此之造假。两国——你双重身份，你在美国出生，美国长大，然后美国的娘拿美国护照，然后在中国代表中国人拿冠军。
+这四条，我付一切永远的责任，你觉得是个弥天大谎，普京到乌克兰要杀掉一个犹太人的总统，他爷爷还死在了当年纳粹集中营的泽连斯基，去抓纳粹这种荒唐的谎言，跟共产党今天的这种谎言，有没有异曲同工之妙。
 
-然后你再看到这个冬奥会上，中国的裁判，在中国的外国裁判已经完全就像它控制的，就像法官一样。
+我们在前线的所有的兄弟姐妹们，哪个家里缺钱，哪个不在你中共国人的生活之上，都逃出你地狱几十年了，他们不缺钱，生活很自由，都拿外国护照，讲流利的中国语言，他们冲到前线，有一分钱回报吗？冒着这个风险嘛？救的完全和你素不相识的人，我们不需要去救你们，不就你们，我们犯错吗？不犯错，对我们拥有喜币，不打疫苗的人来讲，我们是世界上最高贵的民族，我们的战友每一个都是大熊猫级的，我就希望他们安全，我希望他们任何人都没有事，我看到每一个镜头，我和你们的感受都不一样，因为它属于我们新中国联邦的最最昂贵的资产，他们到前线，我心里好受吗？在机场小王子，Rachel和长岛哥的这种别离，你知道最难受的就是七哥，这些就是我的家人，正义小Sarah一个小毛孩子,直接就冲到前面去了，你们但凡，大家是人心、有血液的，你想想这些人有必要冲到前线去吗？他们有爹有妈，有兄弟有姐妹。
 
-编辑整理：Jacques；
-
-字幕文件制作：星塵；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+我们现在已经包下了23架飞机，你觉得跟任何组织有关系吗？我希望那些被共产党洗脑的，那些诅咒人家乌克兰的家人的，看到人家死的，你兴高采烈的，一定在地狱里面和在这一世遭受万般的煎熬和痛苦，让你永不的转世，在地狱里面一千万万万年。
 
  
 

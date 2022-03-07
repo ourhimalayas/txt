@@ -2,11 +2,13 @@
 ---
 
 
-## 3/06/2022 文贵直播：最近华人在世界各地遭袭击，亚洲战友尤其是女性要小心，给中国人排出中共种下的毒太难了，有些人被中共洗脑太深是没法救的，传播疫苗真相也不用在乎对方信不信
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2117208/)
+## FDA公开辉瑞中共病毒疫苗数据文件 副作用高达1291种！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2117403/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220307-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
