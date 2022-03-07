@@ -2,37 +2,30 @@
 ---
 
 
-## 新中国联邦救援队现场采访乌克兰获救女士
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2120892/)
+## 中共国华为协助俄罗斯对抗网络攻击
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2121038/)
 
-作者：纽约香草山 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月6日文贵大直播中，新中国联邦乌克兰救援队的大卫和正义小Sarah，现场采访了搭乘第四辆救援巴士获救的一位女士。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-07-上午9.19.59.png)
-这位乌克兰女士说，她是在利沃夫火车站，由当地志愿者引导，登上了这辆救援巴士的。历经近24小时的颠簸，成功撤离了战区。在被问到对法治基金发起的这次救援活动有何感想时，这位女士难掩激动，哽咽地表达了感谢之情。
+撰稿：东京樱花团/道来
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-42.png)
+[图片来源](https://miro.medium.com/max/1400/1*8SNTqi_cMVKUVY95UNX9WA.png)
 
-大卫坚定地表示，新中国联邦代表真正的中国人民，热爱正义，渴望和平，会和乌克兰人民站在一起。小Sarah则给了女士一个温暖的拥抱。
+自俄罗斯发起对乌克兰军事进攻以来，俄罗斯不断遭受来自全世界的网络攻击。使其相关主要政府机构和媒体的网站无法正常运行。
 
-搭乘这辆救援大巴的大多是妇女、儿童和老人。看到乌克兰难民经历战争的苦痛，亲人离散，未来难测，却依然衣冠整齐，保持着生而为人的基本尊严，郭先生也禁不住心潮起伏。
+据相关报道，中共国电信巨头华为公司表示协助俄罗斯提升互联网网络环境以及提供相关技术来对抗来自全世界的网络攻击。
 
-郭先生说，感谢法治基金的捐款者，也感谢冲在救援前线的新中国联邦人。新中国联邦反对屠杀无辜的百姓，反对邪恶的非正义战争。在这个艰危时刻，我们将继续伸出人道主义之手，尽力去帮助饱受战争痛苦的人。
+据相关报道称，在英国的华为公司正在为提高普京的影响力而努力。为了应对国际骇客的网络攻击，正在改进俄罗斯互联网的网络环境。特别是在俄罗斯的媒体网站遭受国际骇客团体匿名者的攻击，网站内容被修改了后，华为在俄罗斯的五个研究中心的相关人员都参与到协助俄罗斯对抗来自全球的网络攻击战中。
 
-参考链接：[https://gettr.com/post/pyhtnya292](https://gettr.com/post/pyhtnya292)
+华为也表示过通过俄罗斯的这五个研究中心来培养五万技术专家，领域涉及网络安全，人工智能，云计算，和人脸识别等。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
+如果美国发现华为协助俄罗斯，将会受到严重的制裁。所以华为的这些相关报道内容在中国国内网站报道不久就被删除了。
 
-总编：文真
-编辑：Jack Li文阳
-审核：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+[信息来源](\Users\Administrator\Downloads\Chinese%20telecoms%20giant%20Huawei%20has%20been%20helping%20Vladimir%20Putin's%20efforts%20to%20stabilise%20Russia's%20internet%20network%20after%20cyber%20attacks,%20reports%20reveal)：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

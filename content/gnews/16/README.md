@@ -2,21 +2,36 @@
 ---
 
 
-## 【 G时新闻 】 中共病毒疫苗真相快速揭盖：辉瑞文件列出1000多种不良反应！
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2120713/)
+## 美加敦促本国公民立即离开俄罗斯
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2120969/)
 
-**加拿大温哥华扬帆农场-G时新闻 播报：文广  视频制作：文所未闻**
+作者：纽约香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月5日，美国国务院和加拿大联邦政府，均更新了针对俄罗斯的最高级别旅行警告，敦促本国公民立即离开俄罗斯。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-9.jpg)
+继上周发布了四级旅游警告之后，本周六，美国国务院网站更新了指导意见，要求在俄罗斯的美国公民“立即离开”。同时，还提供了关于货币状况，以及在俄罗斯被拘留的美国公民的领事通知等最新信息。
 
-FDA败诉！辉瑞被迫公布所有疫苗数据！副作用足足有9页！全网惊呆…目前披露的文件中列出了1000多种不良反应，很多都是头一次看到，包括： 筋膜炎、眼部肿胀、面瘫、斑秃、过敏休克、妊娠过敏反应综合征、急性心肌病、急性呼吸衰竭、注射部位血管炎、癫痫、血栓、心律失常、关节炎、哮喘、支气管痉挛、心脏骤停、心力衰竭、胸部不适、窒息、急性皮肤红斑狼疮、急性脑脊髓炎、急性肾损伤、急性黄斑外层视网膜病变、再生障碍性贫血、慢性自身免疫性肾小球肾炎、慢性皮肤红斑狼疮、慢性自发性荨麻疹、溶血性贫血、结肠炎、皮炎、糖尿病、栓塞性脑梗塞、内分泌失调、新生儿重症肌无力、脊髓炎、非感染性卵巢炎、甲状腺炎、溃疡性直肠炎、眼部瘙痒症、生殖器疱疹、舌咽神经麻痹、出血性血管炎、宫颈炎、狼疮性膀胱炎、狼疮性脑炎、多发性硬化症等等。
+与此同时，加拿大联邦政府敦促任何滞留在俄罗斯的加拿大人立即离开。通知警告该地区的战争局势在不断变化，世界各国对俄罗斯的制裁逐渐升级，导致航班的选择受到限制。另外，信用卡及支付巨头停止俄罗斯境内银行卡的使用，也会让加拿大公民在基本产品和金融服务方面，面临越来越多的困难。
 
-两年多来，郭文贵先生一直告诉世人，中共病毒（新冠病毒）和疫苗是武器，疫苗有毒，可是又有多少人为了利益不顾一切，还有多少无辜的人相信政府相信媒体。随着此次FDA败诉，辉瑞被迫公开所有数据，中共病毒疫苗真相正在快速揭盖，正义正在到来。
+因俄罗斯刚刚实施了一项新的法律，限制与入侵乌克兰有关的言论自由，加拿大政府提醒公民谨慎对俄乌战争冲突发表意见，否则可能会被罚款或拘留。
 
-**原文链接：**https://gnews.org/zh-hans/2113009/
+参考链接：
+1). [State Department reissues advisory urging Americans to leave Russia “immediately”](https://www.axios.com/state-department-travel-advisory-russia-ukraine-cf6253c1-6a52-4ca0-b436-db5c2104b864.html)
+2). [We have increased the risk level to avoid all travel to #Russia. If you are there, you should leave while commercial means are still available. Check our full travel advice: http://ow.ly/LpP930scC3N](https://twitter.com/travelgoc/status/1500227635280064522?s=21)
+3).[Feds Urge Canadians To Leave Russia ASAP As They May Not Be Able To Help Those Who Stay](https://www.narcity.com/feds-urge-canadians-to-leave-russia-asap-as-they-may-not-be-able-to-help-those-who-stay?utm_campaign=NarcityCanada&amp;utm_medium=Social&amp;utm_source=twitter)
 
-**视频链接：**https://gettr.com/post/pyl6o47efb
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-**编辑****/****上传：****CTQ**
+总编/编辑/审核: 文真
+校正/发稿：Fei797
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

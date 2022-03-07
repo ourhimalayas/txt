@@ -2,37 +2,30 @@
 ---
 
 
-## 媒体和财富是捍卫真相的实力
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2120893/)
+## 俄军猛烈轰炸基辅周边城市 准备全面入侵基辅
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2121047/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月6日大直播中，郭文贵先生以中共病毒疫苗的信息传播为例，阐述了捍卫真相来源于实力。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-07-上午9.20.05.png)
-郭先生说，全世界的人现在都面临着过去从来没有过的、社交媒体带来的巨大变化。面对海量信息，人们无法区分真假，经常被误导。
+**撰稿：日本东京方舟农场  海星**
 
-有关中共病毒疫苗各种危害的信息层出不穷，但是美国最高法院最近才对疫苗信息披露做出判决。而且，几乎没有英文主流媒体报道此项重大法律判决。这些所谓“主流媒体“都是按幕后势力的意图行事。正是中共与西方沼泽地黑暗势力联合，控制了英文媒体。
+3月7日，多方消息透露，乌克兰首都基辅的周边城市已遭俄军猛烈轰炸，俄军正准备向基辅发动全面进攻。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-77.jpg)（图片来源：美联社）
+据《自由时报》报导，根据乌克兰官员及社交媒体平台上的消息显示，位于乌克兰首都基辅周边的4个城市，布查（Bucha）、戈斯托梅利（Hostomel）、沃尔泽利（Vorzel）和伊尔平（Irpin）自3月6日晚上至今晨期间持续遭受俄军炮击，多地发生火灾。
 
-美国一位法官曾跟郭先生暗示说，虽然美国是民主国家，但美国的法院其实是为美国总统工作的。正义取决于实力，还有很小的一部分是上天的安排。而如今，美国高法对辉瑞疫苗信息的判决是美国政府无法阻挡的。
+该报导称，乌克兰国防部官员稍早前发出警告，俄军正准备对乌克兰首都基辅发动全面进攻。对此，武装部队总参谋部表示，俄军已经开始为这项军事计划储备物资，例如将燃料从白俄罗斯经由车诺比地区运送过来。
 
-郭先生希望新中国联邦人能够了解，真正的实力来自于平台和媒体，体现在对信息的掌控能力。在这个世界上，有媒体、有钱，就是王者；有钱没媒体，随时会被黑掉；有媒体没钱，随时会出卖自己的良知。真相就在媒体和金钱之间，根本不在法院。
+当日，基辅市长克里契科（Vitaly Klitschko）在指责俄罗斯故意杀害平民的同时呼吁基辅市民保持冷静，待在家里或是避难所。
 
-参考链接：[https://gettr.com/streaming/pyhtnya292](https://gettr.com/streaming/pyhtnya292)
+此外，昨日至今，乌克兰的第二大城市哈尔科夫（Kharkiv）以及造船工业中心尼古拉耶夫（Mykolayiv）也遭到了俄军的持续轰炸，多处民宅及工厂发生火灾。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
+参考链接：
+1.[https://news.ltn.com.tw/news/world/breakingnews/3851657](https://news.ltn.com.tw/news/world/breakingnews/3851657)
+2.[https://news.ltn.com.tw/news/world/breakingnews/3850905](https://news.ltn.com.tw/news/world/breakingnews/3850905)
+3.[https://news.ltn.com.tw/news/world/breakingnews/3851520](https://news.ltn.com.tw/news/world/breakingnews/3851520)
 
-总编：文真
-编辑：玫瑰圓  
-审核：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+撰稿：海星
+总编：老孙
+校对发布：爱放飞
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

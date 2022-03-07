@@ -2,8 +2,8 @@
 ---
 
 
-## 20220306文贵大直播：现在国外哪些国家比较安全；国内同胞没有条件的就别出来，出来会饿死的！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2120560/)
+## 20220306文贵大直播：乌克兰真是伟大的民族，向他们学习
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2120621/)
 
 作者:东京樱花团小视频组
 

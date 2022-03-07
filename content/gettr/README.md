@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 3:13 PM (UTC)`
+
+3月7号：尊敬的战友们好衷心的感谢在波兰和乌克兰前线的救援的所有的兄弟姐妹吗？可恨的共产党驻乌克兰大使馆……竟然将已经登上我们在乌克兰救援大巴的人．用谎言将他们骗下车，这些人现在生死未卜……共产党没有能力在乌克兰救人，并欺骗中国同胞所有中国人已经救出，却在昨天用谎言将已经马上即将离开战场的同胞骗下了车，这是何等的邪恶，这些中国同胞是何等的无知……天呢．天哪，天哪天呢？
+![img](https://media.gettr.com/group27/getter/2022/03/07/15/17a7afd4-5620-29c4-a6d5-5311d84087df/out.jpg)
+
+---
+
 `@miles 3/7/2022 3:08 PM (UTC)`
 
 历史上中共使馆不管人民死活，新中国联邦法治基金前线人道主义救援行动正在进行！
@@ -154,13 +161,6 @@
 
 FDA Releases BOMBSHELL Pfizer Covid Virus Vaccine Data With Over 1,200 Side Effects!<br/><br/>美国食品和药物管理局公布爆炸性的辉瑞中共病毒疫苗数据，有1200多种副作用!<br/>
 ![img](https://media.gettr.com/group33/getter/2022/03/07/02/fb7a9777-6064-d407-93a2-dbb7a7daa547/out.jpg)
-
----
-
-`@miles 3/7/2022 2:12 AM (UTC)`
-
-2022.03.06 晚 GTV《新闻访谈》FDA败诉，辉瑞被迫公布所有疫苗副作用数据; 战乱中如何自救、逃难过程中需要知道的医学常识; 美国参议院通过决议以结束Covid-19国家紧急状态，纽约口罩强制令结束，如何正确佩戴口罩？
-![img](https://media.gettr.com/group7/origin/2022/03/07/02/561fa79c-4032-e868-a02f-89c7997b56e4/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

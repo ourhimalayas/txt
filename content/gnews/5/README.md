@@ -2,31 +2,39 @@
 ---
 
 
-## 恐战 台湾股市下挫资本逃离
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2120970/)
+## 有声|波兰热舒夫市长支持新中国联邦乌克兰救援行动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2121107/)
 
-撰稿：东京樱花团/加一颗稻草
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-76.jpg)
-图片来源于本文链接
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+波兰当地时间3月5日，在新中国联邦波兰热舒夫救助站，救援前线总指挥大卫，采访了波兰热舒夫市长。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-06-at-8.13.06-PM.png)
+大卫首先代表新中国联邦、法治社会、法治基金和所有被救援的人，感谢热舒夫市长及波兰政府对救援行动的大力支持。
 
-据TVBS新闻网报道，台股今天大跌557.83点，失守17200点。外资卖超新台币822.4亿元。
+当被问及，怎样看待俄乌战争和流离失所的难民时，热舒夫市长表示，21世纪发生这种战争是不可思议的。他每天都看到很多家庭支离破碎，很痛苦，也很难过。他呼吁各方政府立刻停止战争。
 
-台股电子、金融及传统股几乎全面走下，指数收在17178.69点，下跌557.83点，跌幅3.15%,成交值4567.83亿元。其中外资及陆资今天卖超822.83亿元。台积电下跌19元，市值缩水4926亿元，并影响大盘指数158点。
+市长表示非常感谢全世界爱好和平的人，包括法治基金和法治社会的救援行动。并表示，对中共政府没有反对这场战争，感到非常失望。
 
-台湾股市近日连续下挫，恐战情绪高涨，资本率先逃离。
 
-自俄罗斯入侵乌克兰战争开打，中共国选择与俄罗斯站在一起与全世界为敌，加上中共军机持续扰台，中共侵占台湾的野心已经暴露。在全世界芯片紧缺，台积电商品供不应求的情况下，资本选择逃离显得极不寻常，似乎资本已经嗅到火药的味道或闻知情报，选择大规模的逃离台湾。
 
-中共的独裁统治近几年到处惹是生非，全世界制造动乱和投毒。巴以冲突、缅甸、哈萨克斯坦、乌克兰到处都有中共的影子。这次图谋台湾已经酝酿已久箭在弦上。 希望台湾人民能做好准备保护好自己远离战争。
+文字版原文：[波兰热舒夫市长支持新中国联邦乌克兰救援行动](https://gnews.org/zh-hans/2114809/)
 
-消息来源：
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-[外資賣超822億元史上次高　台積電等權值股淪提款機](https://news.tvbs.com.tw/money/1733647)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

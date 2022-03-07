@@ -2,22 +2,24 @@
 ---
 
 
-## 乌克兰救援快讯 03.07 波兰热舒夫火车站难民安置服务井然有序
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2120620/)
+## 俄乌战争导致的金融风暴
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2120786/)
 
-撰稿：大浪小水花
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-07-at-8.31.25-AM.png)图片来源：GETTR/正义小Sara
-波兰当地时间3月7日中午12点左右，正义小Sara向大家展示了热舒夫车站内的情况。
+**编译：verifunny**
 
-车站里人很多，主要是妇女和小孩子，还有宠物。他们大部分是从战区逃离出来的无家可归者。火车站里有很多人们捐赠的日用品和婴儿的奶粉玩具，也为宠物提供了食物和水。火车站也有供人临时居住的房间。
+当俄乌战争爆发后，金融系统尤其是欧盟国家，将面临更严峻的考验。中共病毒已经打乱了经济的正常运行，再加上战争导致的高物价和低消费的情况，会使欧盟脆弱的经济动荡不安。
 
-现场有安保人员负责治安，有安保人员表示，这个安置点人们的处境相对来说算是很好的，人们可以安心的在这里休息，食物供应暂时没有问题。她提到有些安置点的情况要更差，地上挤满了人，还没有食物。
+债务多低生产力的问题继续加剧。以下是2020 欧盟国家国债与生产总值的比例。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-19.png)
+[https://www.statista.com/statistics/269684/national-debt-in-eu-countries-in-relation-to-gross-domestic-product-gdp/](https://www.statista.com/statistics/269684/national-debt-in-eu-countries-in-relation-to-gross-domestic-product-gdp/)
 
-小Sara感觉，目前车站秩序井然，人们并没有显得很慌张，甚至能从人们脸上看到希望。她补充说，车站现场并没有发现中国人的身影，不知道目前在乌华人近况如何。
+**以下是欧盟国家2021的债务增值的情况：**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/44-1.jpg)
+[https://www.statista.com/chart/26729/change-in-government-debt-european-countries-pandemic/](https://www.statista.com/chart/26729/change-in-government-debt-european-countries-pandemic/)
 
-【链接】[https://gettr.com/post/pymuy50204](https://gettr.com/post/pymuy50204)
+油价暴涨，超印纸币，低迷的生产力和消费会渐渐使到经济无法平衡债务的负荷。新生的生意会越来越少，劳动市场将紧缩。违约的风险渐渐地加大，大到多米诺骨牌倒闭效应随时可能发生，因为金融衍生品的复杂性是难以理解的。欧盟那套以中央银行买债务的手段会越来越无效，因为超印纸币让通货膨胀和通货萎缩一起加剧，越来越多人无法维持基本生活方式。
 
-校对发布：Shifter
+非常同意七哥的世界经济崩溃的观点。我本人虽然是经济小白，但是我大胆的预测金融风暴会从欧盟开始蔓延开来。
 
  
 

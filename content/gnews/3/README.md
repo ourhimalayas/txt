@@ -2,37 +2,26 @@
 ---
 
 
-## 雅典娜快讯：俄乌冲突致小麦供应紧张，芝加哥小麦期货近历史新高
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2120990/)
+## 俄罗斯大炮炸死乌克兰平民
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2121137/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 撰稿：彩虹       
 
-整理：围剿维尼熊
-编辑：舞指如歌
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-612.png)图片来源：NDTV
+根据《国会山报》3月6日的报道，随着俄罗斯对乌克兰的入侵进入第11天，俄罗斯大炮在周日再次杀死了乌克兰平民。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-601.png)
+据《华尔街日报》援引伊尔平市长奥列克桑·马库辛（Oleksandr Markushyn）的话说，截至周日下午，由于俄罗斯方面继续进行炮击，至少有8名居住在基辅附近地区伊尔平（Irpin）的平民死亡。
 
+据《华尔街日报》报道，俄罗斯军队击中了一座起火的房屋，使伊尔平上空冒出了浓烟。伊尔平是通往基辅的重要通道，乌克兰军队努力击退了俄罗斯在该市的攻击。
 
+周三，乌克兰的紧急服务部门宣布，在俄罗斯的入侵中，有超过2000名乌克兰平民被杀。俄罗斯军方不但声称自己没有瞄准乌克兰平民，而且在没有任何证据的情况下诬陷乌克兰的“民族主义者”对自己的人民开枪。
 
-图片来源：雅典娜设计组
+据《纽约时报》报道，被围困城市的市长说，事实是,在俄罗斯军队以“密集的炮击”违反协议对伊尔平进行袭击的同一天，从马里乌波尔（Mariupol）疏散平民的第二次尝试陷入了停顿。
 
+**新闻来源**
 
-根据财联社3月7日讯，周一，芝加哥商品交易所美国小麦期货价涨停至每蒲式耳12.94美元，处于2008年全球粮食危机以来最高水平，并且接近历史新高，芝商所(芝加哥商品交易所)小麦期货上周已经飙升了41%，今天再次涨停，累计创下超过六十年来最大涨幅。
-
-事实上，早在俄乌冲突爆发前，全球小麦供应已经出现紧张态势，因为多个主要小麦出口国的库存下降。而俄乌战争进一步恶化了小麦供应缺口。乌克兰和俄罗斯都是全球重要粮仓，两国加起来占全球小麦出口量的30%和玉米出口的20%以上。
-
-战争爆发后，乌克兰的主要港口已经关闭，对外物流和运输联系遭切断。俄罗斯的粮食出口也因多国的制裁措施，以及不断飙升的保险和货运成本而受到抑制。
-
-参考链接：https://cn.investing.com/news/stock-market-news/article-2086871
-
-*发布：*星谕
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Ukrainian civilians killed by Russian artillery](https://thehill.com/policy/international/597075-ukrainian-civilians-killed-by-russian-artillery?rl=1)
 
  
 

@@ -2,16 +2,20 @@
 ---
 
 
-## 20220306郭文贵大直播 ：赛纳交易的本质意义
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2120609/)
+## 樱花头条┃日本首次由地方政府开始 对疫苗后遗症设咨询处
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2120782/)
 
-作者：东京樱花团小视频组
+撰稿：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0001-20325418684.jpg)
+日本首次由地方政府开始，着手应对疫苗后遗症。
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+信息来源：[https://www.gettr.com/post/pxye6s5d3f](https://www.gettr.com/post/pxye6s5d3f)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
+编辑：东京樱花团/asket、春华秋实
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
