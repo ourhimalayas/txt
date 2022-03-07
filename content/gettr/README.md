@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 12:11 AM (UTC)`
+
+<br/>3月6号：尊敬的战友们好，你们健身了吗？传播乌克兰战争……人道危机的真相了吗？一切都已经开始。
+![img](https://media.gettr.com/group38/getter/2022/03/07/00/783b9d4b-93e7-df1c-ddfe-486ec973f14b/out.jpg)
+
+---
+
 `@miles 3/7/2022 12:01 AM (UTC)`
 
 3/6/2022 Miles Guo: The biggest significance of the judge's ruling on Pfizer is that it has proven the COVID vaccine is a poison, which is illegal and has never been medically approved whatsoever. The vaccinated people shall seek treatment to get rid of the toxin of the COVID vaccine ASAP. Those Chinese people who are brainwashed by the CCP will blame the COVID vaccine disaster on the US.<br/><br/>3/6/2022 文贵直播：法官对辉瑞做出的判决的最大意义是做实了疫苗是未经医学认可的违法的毒药；打了疫苗的人赶紧去治病排毒吧！被中共洗脑的中国人会把疫苗灾难甩锅给美国<br/>
@@ -145,13 +152,6 @@ Ukrainian American actively involved in this Ukrainian rescue operation of the N
 
 致乌克兰战场的所有同胞们……紧急紧急紧急。
 ![img](https://media.gettr.com/group22/getter/2022/03/05/13/df4bb241-f35f-e586-aaa0-131851693d3a/out.jpg)
-
----
-
-`@miles 3/5/2022 11:20 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-最前线跟踪报道
-![img](https://media.gettr.com/group33/origin/2022/03/05/10/896f6e5e-1eed-fc85-35fd-6a115e3e52f8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
