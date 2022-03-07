@@ -2,40 +2,37 @@
 ---
 
 
-## 纳斯卡车队多方支援乌克兰抵御侵略
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2122527/)
+## 这个世界不能没有我们新中国联邦
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2122609/)
 
-作者：纽约香草山教育部- Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，应乌克兰总统泽伦斯基的要求，纳斯卡车队老板理查德-柴尔德里斯承诺为乌克兰捐赠一百万发弹药。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-3.jpeg)
+2022-03-02直播摘录
 
-柴尔德里斯赛车的所有者柴尔德雷斯在接受媒体访谈时宣布，他正在与阿莫公司合作，为乌克兰人提供弹药，以应对俄罗斯的入侵。该公司也表示，他们坚定地支持乌克兰的主权和独立，将尽快采取行动，支持乌克兰继续保卫自己和自由。
+我觉得非常非常的很大的可能，乌克兰会成为一个上天派来让拯救了台湾的这么一个挡箭牌，很有可能。这真的是，我每天早上晚上都要祈福的，很有可能发生。那“习太阳”没了，中国会发生什么？他早没晚没，你放心，中国一定走向一个不可选择、不可逆转的未来。中国不会乱，你一定记住我的话，中国乱不了。
 
-柴尔德里斯将要求纳斯卡车队允许车手在他们的赛车上展示对乌克兰的支持。
+为什么乱不了？就是互联网时代，所有共产党当年操作的、操纵民意的运动的，所谓的“分田地”“杀地主”、“三反五反”、“右倾主义”、“文化大革命”、“大跃进”、“人民公社”，是因为人们不知道真相，他被操纵。现在这互联网是….俄乌战争就知道了。普京还在那吹牛呢，“我们已经打到基辅了。” 然后“泽连斯基已经跑了”，中央电视台还配合。人家泽连斯基拿着手机出来了：“哥们儿，我在这儿呢，我将继续战斗！”那个力量有多大呀？我不知道你啥，对我来讲就像电击一样，这是男人呐！在战争中，“咵”对着手机：“我在这儿，我不但不走，我老婆孩子还在这儿。”这是什么样的人呐？一个小丑演员演成了世界人类的伟大精神英雄的领袖，躲在一个长桌子后边看不着比例的这样的一个普京瞬间他成为了小丑，是因为社交媒体。
 
-此外，亨德里克赛车队的老板亨德里克也承诺，3月6日在拉斯维加斯举行的赛事中，他的车队四辆赛车中的任何一辆每领跑一圈，将向乌克兰捐赠 2,000 美元。
+中国不能乱。到那时候人家一看，郭文贵，是不是？带着你们一出现了，中国人民要“一人一票”选择，然后看着习近平，还有那个什么张高丽在那讲 “银河无限大，你是一粒沙” 的故事，老百姓说：“去你大爷的，滚一边儿去！” 你放心吧，就是这个互联网的时代。我原来我真的对中国人我真的没信心，我觉得这个文化洗脑中毒之深，但是俄乌战争以后，我一下子精神头就起来了。我现在啥感觉知道吗？魔女？我告诉你，从战争到今天从来没有过，就是“玉米地”之后那种感觉从来没有过。就是“玉米地”之后的小肚子发热，然后有隐约的疼痛感，然后幸福无限地从玉米地出来，就是脚后跟儿不粘地，掂着脚走。就是我觉得这个人呐，这个幸福是老天爷只给一回，就是破处以后只有这么一回，再来一回多好！再来一回呀，就是真的那种感觉没有过。但是自从“俄乌战争”之后，我几乎每天都能找到这种感觉，就是我那个小肚子有点儿发热，走道有点轻盈的感觉，走漫步的感觉。就我感觉到中国人有希望了，我们灭共就在眼前了，就这种快感是发自内心的。
 
-乌克兰最近也从邻国波兰收到了超过 1200 万枚弹药筒。北约国家也为乌克兰的努力提供武器，包括来自芬兰的超过 15万发弹药。
+我每天告诉我自己别得意忘形，别得意忘形，我每天告诉我N次，然后一定不要做错误的决定，一定不要做错误的决定。为什么？俄乌战争看到了信息战的重要、信息互联网的重要，我们在这方面绝对不输共产党，是吧？过去刚才小宇宙已经说了，过去四五年这创造的奇迹，咱已经展示给他们了，你们的精神面貌已经给他们看了，是吧？我相信我们新中国联邦要把真相讲出来还不难吧？到那时候所有的中国人都会真正地接受“这个世界不能没有我，这个世界不能没有我们新中国联邦”，一定会的！谢谢！
 
-参考链接：[NASCAR Owner Announces 1 Million Rounds of Ammunition for Ukraine](https://nationalinterest.org/blog/buzz/nascar-owner-announces-1-million-rounds-ammunition-ukraine-200957)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+**关注我们**
 
-总编：文真
-编辑：Jack Li文阳 
-审核：Jack Li文阳
-校正/发稿：谐趣园
+Discord 账号
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

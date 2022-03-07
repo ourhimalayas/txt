@@ -2,24 +2,30 @@
 ---
 
 
-## 乌克兰将从世界银行获得七亿美元贷款
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2122503/)
+## 纳斯卡车队多方支援乌克兰抵御侵略
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2122527/)
 
-作者：纽约香草山 信息部 6zero4
+作者：纽约香草山教育部- Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国媒体报道，3月4日，世界银行行长马尔帕斯与乌克兰总统泽连斯基通话，确认了世界银行正在为乌克兰提供的金融援助。
+近日，应乌克兰总统泽伦斯基的要求，纳斯卡车队老板理查德-柴尔德里斯承诺为乌克兰捐赠一百万发弹药。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-3.jpeg)
 
-世界银行将在本月对乌克兰发放七亿美元贷款，其中包括两亿美元的紧急金融支援。世界银行董事会正在审查一项五亿美元的贷款提议。该提议被称为“乌克兰经济紧急状况复苏融资”。同时，将设立一个多捐赠方信托基金，以帮助将来自全球的赠款资源及时输送到乌克兰。
+柴尔德里斯赛车的所有者柴尔德雷斯在接受媒体访谈时宣布，他正在与阿莫公司合作，为乌克兰人提供弹药，以应对俄罗斯的入侵。该公司也表示，他们坚定地支持乌克兰的主权和独立，将尽快采取行动，支持乌克兰继续保卫自己和自由。
 
-参考链接：[Ukraine may receive $700M in planned loans from World Bank](https://www.foxbusiness.com/markets/ukraine-loans-world-bank)
+柴尔德里斯将要求纳斯卡车队允许车手在他们的赛车上展示对乌克兰的支持。
+
+此外，亨德里克赛车队的老板亨德里克也承诺，3月6日在拉斯维加斯举行的赛事中，他的车队四辆赛车中的任何一辆每领跑一圈，将向乌克兰捐赠 2,000 美元。
+
+乌克兰最近也从邻国波兰收到了超过 1200 万枚弹药筒。北约国家也为乌克兰的努力提供武器，包括来自芬兰的超过 15万发弹药。
+
+参考链接：[NASCAR Owner Announces 1 Million Rounds of Ammunition for Ukraine](https://nationalinterest.org/blog/buzz/nascar-owner-announces-1-million-rounds-ammunition-ukraine-200957)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
 总编：文真
-编辑：Jack Li文阳     
-审核：文真
+编辑：Jack Li文阳 
+审核：Jack Li文阳
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

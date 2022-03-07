@@ -15,68 +15,68 @@
 
 ---
 
-### [乌克兰战争：普京的攻击计划是否会陷入困境？](/content/gnews/1/README.md)
+### [在蓬佩奥访台期间，台湾突遭大面积停电](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [俄罗斯入侵乌克兰的一周](/content/gnews/2/README.md)
+### [我的安全，我的健康由上天决定](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [美国前国务卿蓬佩奥抵达台湾](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [拜登特使团在俄罗斯入侵乌克兰之后访台](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [乌克兰局势——新中国人在行动](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [加拿大《紧急法》与乌克兰战争](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [乌克兰战争：普京的攻击计划是否会陷入困境？](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [“醒来吧，别再如此冷漠，醒来吧，抛掉所有懦弱，只为能握住亲人手，要埋葬那邪恶的中共”](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [俄罗斯入侵乌克兰的一周](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [喜联储开启国际数字货币交易之门](/content/gnews/3/README.md)
+### [喜联储开启国际数字货币交易之门](/content/gnews/10/README.md)
  ` 扬帆枫叶快讯`
 
-### [解读一张漫画，“乌克兰是我的女人”](/content/gnews/4/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [蓬佩奥表示美国将坚定支持保卫台湾](/content/gnews/5/README.md)
- ` 扬帆枫叶快讯`
-
-### [多个国际金融服务公司暂停俄罗斯业务](/content/gnews/6/README.md)
- ` 扬帆枫叶快讯`
-
-### [这个世界不能没有我们新中国联邦](/content/gnews/7/README.md)
- ` MG FARM`
-
-### [“一人一票”的政治体制](/content/gnews/8/README.md)
- ` MG FARM`
-
-### [俄乌战争进一步推高全球化肥价格](/content/gnews/9/README.md)
- ` 扬帆枫叶快讯`
-
-### [美立法机构将加拿大列为宗教自由黑名单](/content/gnews/10/README.md)
- ` 扬帆枫叶快讯`
-
-### [加拿大驻华使馆高调支持乌克兰](/content/gnews/11/README.md)
- ` 扬帆枫叶快讯`
-
-### [新中国联邦从战火中救出孩子们](/content/gnews/12/README.md)
- ` Shuizhuyu`
-
-### [国会议员向拜登施压，呼吁向乌克兰运送将欧洲战机](/content/gnews/13/README.md)
+### [【每日聚焦】 俄乌战事3月7日简要（下）](/content/gnews/11/README.md)
  ` 蓝莲花农场`
 
-### [纳斯卡车队多方支援乌克兰抵御侵略](/content/gnews/14/README.md)
+### [解读一张漫画，“乌克兰是我的女人”](/content/gnews/12/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [蓬佩奥表示美国将坚定支持保卫台湾](/content/gnews/13/README.md)
+ ` 扬帆枫叶快讯`
+
+### [这个世界不能没有我们新中国联邦](/content/gnews/14/README.md)
+ ` MG FARM`
+
+### [“一人一票”的政治体制](/content/gnews/15/README.md)
+ ` MG FARM`
+
+### [新中国联邦从战火中救出孩子们](/content/gnews/16/README.md)
+ ` Shuizhuyu`
+
+### [国会议员向拜登施压，呼吁向乌克兰运送将欧洲战机](/content/gnews/17/README.md)
+ ` 蓝莲花农场`
+
+### [纳斯卡车队多方支援乌克兰抵御侵略](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [七哥说“俄罗斯玩球蛋了”](/content/gnews/15/README.md)
- ` MG FARM`
-
-### [发生核武器的可能性](/content/gnews/16/README.md)
- ` MG FARM`
-
-### [与俄罗斯关系“坚如磐石”的中共要做俄乌战争调解人](/content/gnews/17/README.md)
+### [与俄罗斯关系“坚如磐石”的中共要做俄乌战争调解人](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌克兰将从世界银行获得七亿美元贷款](/content/gnews/18/README.md)
+### [乌克兰将从世界银行获得七亿美元贷款](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [俄乌战争第一受惩罚的是中国人民](/content/gnews/19/README.md)
- ` MG FARM`
-
-### [乌克兰扎波罗热市民踊跃应征入伍抵抗侵略](/content/gnews/20/README.md)
+### [乌克兰扎波罗热市民踊跃应征入伍抵抗侵略](/content/gnews/21/README.md)
  ` NFSC News`
-
-### [盖洛普民意调查：恐怖主义、核武器和中国被视为美国的最大威胁](/content/gnews/21/README.md)
- ` Shuizhuyu`
 
 ### [五月花简报（03/07/2022）](/content/gnews/22/README.md)
  ` mayflowertranslate`
