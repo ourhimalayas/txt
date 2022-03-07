@@ -2,27 +2,30 @@
 ---
 
 
-## 俄乌战火焦灼！中共宣布南海演习12天
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2118516/)
+## 清华校友联署取消普京名誉博士学位
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2118729/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-11.png)图片来源：新华社
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-8.jpg)清华校友联署取消普京名誉博士学位 网络图片
+据自由亚洲电台3月6日报道，一封由叶四舟、孙怒涛领衔共210名清华校友连署的公开信，强烈呼吁校方公开声明，取消普京的名誉博士学位。同时表示，授予普京名誉博士学位是清华大学的耻辱，清华校友也为之蒙羞。
 
-俄乌战火延烧之际，中共自上月底接连军演后，再发布自4日到15日在南海实施军事训练，并警告船只不要进入。据报划定的演习范围是海南省与越南之间的海域。
+公开信指出，普京是个战争狂人。他发动过对车臣、克里米亚、乔治亚等战争，最近又悍然发动了对乌克兰的战争。这是一场“赤裸裸的侵略战争”，遭到了全世界绝大多数国家的反对和谴责。
 
-根据中共海南海事局发布声明，自4日晚间6时到15日晚间6时，在划定的水域范围内进行军事训练，船只禁止驶入。
+据悉，2019年4月26日，清华大学授予普京名誉博士学位，以表彰他在“维护世界和平与促进人类进步事业”方面做出的“杰出贡献”。
 
-路透报导，根据演习地点的座标，演习位置约在海南省三亚与越南顺化之间的海域。
+新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/10-03062022150124.html](https://www.rfa.org/mandarin/Xinwen/10-03062022150124.html)
 
-简评：自普习冬眠会密谈后，俄罗斯侵略乌克兰遭遇到了顽强的抵抗，全球援乌抵俄的浪潮大起，普京急需中共攻打台湾来分担国际压力。如今中共宣布南海演习12天，在为攻台蓄力。望台湾同胞多多保重，愿意撤离的新中国联邦正在救援，誓守台湾的，愿你们一切平安！希望台湾不要成为今日的乌克兰！
+* * *
 
-新闻来源：[联合新闻网](https://udn.com/news/story/7333/6146076)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-撰稿/发布：一叶知秋
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

@@ -2,19 +2,18 @@
 ---
 
 
-## 罗杰-霍德金森博士概述了COVID-19的关键点。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2119095/)
+## 樱花头条┃俄罗斯入侵乌克兰第一天损失450人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119298/)
 
-罗杰-霍德金森博士概述了COVID-19的关键点。 不要相信别人告诉你的一切。从头到尾都是一派谎言。纯粹的宣传！
+撰稿：东京樱花团/樱花传媒
 
-作者：东京樱花团小视频组
+俄罗斯入侵第一天损失450人。
 
-校对：东京樱花团小视频组
+信息来源：[https://www.gettr.com/post/pwsijfb4a7](https://www.gettr.com/post/pwsijfb4a7)
 
-编辑发布：东京樱花团小视频组
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/erweima.png)
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

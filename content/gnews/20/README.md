@@ -2,13 +2,18 @@
 ---
 
 
-## 俄军攻击乌克兰核电站，泽伦斯基向世界求援
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2119112/)
+## 樱花头条┃格鲁吉亚第比利斯举行大规模集会 抗议俄罗斯入侵
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119339/)
 
-03/03/2022 “欧洲需要觉醒”，在欧洲最大的核电站因俄罗斯的炮击而起火后，乌克兰总统泽伦斯基向世界大国发出了急迫的请求。
+撰稿：东京樱花团/樱花传媒
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+格鲁吉亚第比利斯举行大规模集会，抗议俄罗斯入侵。
 
+信息来源：[https://www.gettr.com/post/pwyb4aecc8](https://www.gettr.com/post/pwyb4aecc8)
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
