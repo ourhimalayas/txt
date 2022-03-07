@@ -2,16 +2,16 @@
 ---
 
 
-## 樱花头条┃乌克兰华人和留学生迟迟未撤离 引发恐慌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2120009/)
+## 樱花头条┃从希特勒的德国幸存下来的97岁的Lydia来自Ukraine，她表示荣耀归于乌克兰
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2120010/)
 
 撰稿：东京樱花团/樱花传媒
 
-中共在乌克兰撤侨行动迟迟未展开，当地华人表示，基辅华人遭乌克兰民兵开枪追赶。
+97岁的Lydia来自Ukraine的Volyn，她从希特勒的德国幸存下来，她称荣耀归于乌克兰。
 
-信息来源：[https://www.gettr.com/post/pxdflt7975](https://www.gettr.com/post/pxdflt7975)
+信息来源：[https://www.gettr.com/post/pxdbhyea93](https://www.gettr.com/post/pxdbhyea93)
 
-*编辑：东京樱花团/asket
+*编辑：东京樱花团/asket、春华秋实
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
