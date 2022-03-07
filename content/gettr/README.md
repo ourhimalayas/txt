@@ -17,6 +17,34 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 11:20 PM (UTC)`
+
+3/6/2022 Miles Guo: The Russia-Ukraine war has no impact on Xi Jinping's plan to invade Taiwan. Xi will take a much faster and more ruthless approach to attack Taiwan. The CCP has learned the lessons from the Russia-Ukraine war and adjusted its combat tactics against Taiwan. The CCP is secretly moving money in the event of future Western sanctions.<br/><br/>3/6/2022 文贵直播: 俄乌战局对习太阳打台湾的计划毫无影响，习将采取更快更狠的战略攻台；中共吸取了俄乌战争的经验并调整了对台作战战术；中共正在悄悄地搬钱以应对西方未来的制裁<br/>
+![img](https://media.gettr.com/group30/getter/2022/03/07/23/f6796153-b378-308f-23ab-e4e68eedc61d/out.jpg)
+
+---
+
+`@miles 3/7/2022 11:17 PM (UTC)`
+
+3/7/2022 Miles Guo’s GETTR: While the CCP remains totally oblivious of the children and migrant workers trapped in Ukraine, they deployed their pawns to harass the emergency rescue hotlines of the New Federal State of China. No words can describe the evilness of the CCP’s pawns and walking dogs; the Ukrainian Embassy to Australia was impressed by the efficiency of our rescue work, and deployed 10 volunteers, and more if needed, to facilitate the rescue effort.<br/><br/>3/7/2022 文贵盖特：中共置乌克兰战区的儿童和农民工于不顾，却让伪类冒充待救援者来骚扰新中国联邦的紧急救援热线，中共及其走狗伪类坏到了极点！乌克兰驻澳洲大使馆惊讶于我们的高效救援，给10名甚至更多义工来支援救助工作。<br/>
+![img](https://media.gettr.com/group7/getter/2022/03/07/23/d821728e-a6c8-3f66-55f8-28a2ac6ea224/out.jpg)
+
+---
+
+`@miles 3/7/2022 11:14 PM (UTC)`
+
+3/6/2022 Miles Guo: What are the stories behind Ayrton Senna’s McLaren F1 car? The exchange of Senna’s vehicle has earned the highest credibility for the Himalaya Exchange to be accepted by the royal families in Europe. The value of the Himalaya Coin will certainly surpass that of Bitcoin. Himalaya Coin stands for justice and will never accept tax fraud, money laundering, or collusion with the evil forces<br/><br/>3/6/2022 文贵直播: 塞纳的迈凯轮F1赛车的背后有何故事？这部赛车的交易为喜联储赢得了进入欧洲皇室的信用；喜币的价值一定会超过比特币；喜币代表正义，绝不会接受偷税、洗钱或与邪恶为伍！<br/>
+![img](https://media.gettr.com/group13/getter/2022/03/07/23/3f780d7b-991f-a72a-41ce-14657d2db16d/out.jpg)
+
+---
+
+`@miles 3/7/2022 11:11 PM (UTC)`
+
+3/6/2022 Miles Guo: The Chinese people are about to face major disasters such as food crisis and economic crisis. We must have the financial means, the ability, the social media platform, and the international support to carry out the rescue, but we can only save those who believe in us. Many people will pass away from the end of this year to the end of next year due to the COVID vaccines. We will build a new human civilization based on the Way of Righteousness.<br/><br/>3/6/2022 文贵直播: 中国人即将面临粮食危机和经济危机等大灾难；必须要有钱、能力、社交媒体平台和国际支持才能进行救援；我们只渡有缘人；今年年底到明年年底会有很多打了疫苗的人会离世；我们要建立信仰正道主义的人类新文明<br/>
+![img](https://media.gettr.com/group20/getter/2022/03/07/23/f8858e3e-69ab-ad59-1df4-b7b23b07b09c/out.jpg)
+
+---
+
 `@miles 3/7/2022 11:07 PM (UTC)`
 
 3/6/2022 Miles Guo: We, citizens of the New Federal State of China, only care about the ultimate outcome, not the mainstream media, governments, and international agencies that have brought disasters to humanity. The New Federal State of China’s rescue mission in Ukraine will accept donations using Himalaya Dollars, and all expenditures will be made public. The New Federal State of China is going to bring a new mode of life to humans - the Way of Righteousness.<br/><br/>3/6/2022 文贵直播:  新中国联邦只在乎结果，而不在乎给人类带来灾难的主流媒体、政府和国际机构；乌克兰救援行动将接受喜美元捐款并公布一切开销；新中国联邦将带来人类未来新的生存模式 - 正道主义<br/>
@@ -131,36 +159,6 @@ FDA released Pfizer COVID vaccines data with more than 1,200 side effects. Pfize
 
 【Ukraine Rescue】03/06/2022 Rule of Law Foundation and the New Federal State of China rescued 96 Ukrainian children and their teachers from Hruszów, Poland, and their bus just arrived at a hotel in Krakow, Poland.<br/><br/>【乌克兰救援】03/06/2022 法治基金和新中国联邦从波兰海乌姆救援的96个乌克兰孩子和他们的老师已经到达波兰克拉科夫的酒店。<br/> 
 ![img](https://media.gettr.com/group35/getter/2022/03/07/11/7a23128e-50a4-a269-b65e-23e7a2383378/out.jpg)
-
----
-
-`@miles 3/7/2022 10:20 AM (UTC)`
-
-新中国联邦 法治基金救援行动 帮助乌克兰儿童逃离战火 连线波兰前线战友 2022-03-07
-![img](https://media.gettr.com/group33/origin/2022/03/07/10/63467f5a-7d5f-0d16-8473-8a3a498a1016/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/7/2022 9:07 AM (UTC)`
-
-【Ukraine Rescue】03/06/2022 Rescuers of NFSC & ROLF arrived safely in Krakow, Poland. Our rescuers are from all over the world, including the United Kingdom, Spain, Canada, and the United States. There are two to three sites near the border between Ukraine and Poland, with our buses waiting to rescue people.<br/><br/>【乌克兰大救援】03/06/2022 新中国联邦和法治基金派出的救援者安全抵达波兰克拉科夫。我们的营救人员来自全世界各地，有英国、西班牙、加拿大，还有美国。目前乌克兰和波兰的边境线上都会有我们的大巴车在等待着去救人。<br/> 
-![img](https://media.gettr.com/group31/getter/2022/03/07/09/537d462c-d676-5012-1fc9-132f52cda697/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@rockvision 3/7/2022 5:37 AM (UTC)`
-
-@Helen<br/> March 7th, 4am local time. The children and their teachers arrived in Poland on a bus from Ukraine, escorted by the NFSC volunteers. The NFSC has arranged for them to stay in a local hotel.
-![img](https://media.gettr.com/group16/gvision/2022/03/07/05/a09f4d24-0037-7c92-fd79-881e4ebb7bcf/out.jpg)
-
----
-
-`@miles 3/7/2022 5:22 AM (UTC)`
-
-3/6/2022 Miles Guo: Fellow fighters must be prepared to deal with the impacts of the collapse of the world economy on the Chinese people and the adverse consequences of the CCP's invasion of Taiwan. Citizens of the New Federal State of China must step outside the standard set by the mainstream media and Western governments. Our rescue mission in Ukraine has shown the world the positive image of the New Federal State of China, proving by our actions that the CCP is not equal to the Chinese people.<br/><br/>3/6/2022 文贵直播: 战友要做好准备应对世界经济崩溃对华人的影响和中共攻打台湾的恶果；新中国联邦人要跳出主流媒体和西方政府定的标准；我们的乌克兰救援行动向世界展示了新中国人联邦的良好形象，以行动证明了中共不等于中国人。
-![img](https://media.gettr.com/group46/getter/2022/03/07/05/b737ae26-f1d9-d682-336f-2c89ac6e4d95/out.jpg)
 
 ---
 

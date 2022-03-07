@@ -2,10 +2,10 @@
 ---
 
 
-## 美国前国务卿蓬佩奥抵达台湾
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2122737/)
+## 在蓬佩奥访台期间，台湾突遭大面积停电
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2122749/)
 
-03/02/2022 迈克·蓬佩奥：很高兴来到台湾。我一直都很期待能访问台湾人民。
+03/03/2022 TVBS新闻报道，在蓬佩奥访台期间，台湾突遭大面积停电。
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
