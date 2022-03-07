@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 11:07 PM (UTC)`
+
+3/6/2022 Miles Guo: We, citizens of the New Federal State of China, only care about the ultimate outcome, not the mainstream media, governments, and international agencies that have brought disasters to humanity. The New Federal State of China’s rescue mission in Ukraine will accept donations using Himalaya Dollars, and all expenditures will be made public. The New Federal State of China is going to bring a new mode of life to humans - the Way of Righteousness.<br/><br/>3/6/2022 文贵直播:  新中国联邦只在乎结果，而不在乎给人类带来灾难的主流媒体、政府和国际机构；乌克兰救援行动将接受喜美元捐款并公布一切开销；新中国联邦将带来人类未来新的生存模式 - 正道主义<br/>
+![img](https://media.gettr.com/group26/getter/2022/03/07/23/50b4a985-b93e-8b1c-8db4-a5d8327daae6/out.jpg)
+
+---
+
+`@miles 3/7/2022 11:07 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 2022-03-07
+![img](https://media.gettr.com/group42/origin/2022/03/07/23/d4b9b23a-8320-8216-3d62-bbf9537a1720/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/7/2022 10:07 PM (UTC)`
 
 【Ukraine Rescue】 03/07/2022 The New Federal State of China successfully rescued about 100 children from Ukraine. Thanks to the donors of the Rule of Law Foundation, they are the hope of the country, the angels to the people in the war zone of Ukraine. <br/><br/>【乌克兰救援】 03/07/2022 新中国联邦成功救出约100名乌克兰孩子。感谢法治基金捐助者，他们是这个国家的希望， 是乌克兰战争地区人们的天使。
@@ -147,20 +161,6 @@ FDA released Pfizer COVID vaccines data with more than 1,200 side effects. Pfize
 
 3/6/2022 Miles Guo: Fellow fighters must be prepared to deal with the impacts of the collapse of the world economy on the Chinese people and the adverse consequences of the CCP's invasion of Taiwan. Citizens of the New Federal State of China must step outside the standard set by the mainstream media and Western governments. Our rescue mission in Ukraine has shown the world the positive image of the New Federal State of China, proving by our actions that the CCP is not equal to the Chinese people.<br/><br/>3/6/2022 文贵直播: 战友要做好准备应对世界经济崩溃对华人的影响和中共攻打台湾的恶果；新中国联邦人要跳出主流媒体和西方政府定的标准；我们的乌克兰救援行动向世界展示了新中国人联邦的良好形象，以行动证明了中共不等于中国人。
 ![img](https://media.gettr.com/group46/getter/2022/03/07/05/b737ae26-f1d9-d682-336f-2c89ac6e4d95/out.jpg)
-
----
-
-`@miles 3/7/2022 5:17 AM (UTC)`
-
-3/6/2022 Miles Guo: The side effects of the Pfizer vaccine are shocking! Those who are not vaccinated are almost as lucky as surviving ten thousand Ukrainian wars! The war enthusiasm demonstrated by some Chinese and the ugly acts of the CCP secretly supporting Russia are really hurting the feelings of Ukrainians!<br/><br/>3/6/2022文贵直播：辉瑞疫苗副作用让人震惊！没打疫苗的人，几乎相当于经历1万次乌克兰战争后仍能得以幸存般幸运！部分中国人表现出来的支持战争的狂热和中共暗中支持俄罗斯的丑恶行径伤害了乌克兰人的感情！<br/>
-![img](https://media.gettr.com/group35/getter/2022/03/07/05/3bd3b8e2-99c2-73ac-f3b2-0513c35727ef/out.jpg)
-
----
-
-`@miles 3/7/2022 5:13 AM (UTC)`
-
-3/6/2022 Miles Guo: In our mission to rescue the people in Ukraine, the New Federal State of China is 1) the only Chinese team that went to the front line to save people; 2) the only team that saved Chinese, Ukrainians, and Americans without any political and economic demands or political stances; 3) the only team that saved a large number of Chinese and Americans; and 4) the only team that have told the world that there were 30,000 Chinese people in Ukraine who were abandoned by the CCP.<br/><br/>3/6/2022 文贵直播：新中国联邦在乌克兰救援中的四个唯一：1) 唯一去前线救人的中国人团队; 2) 唯一无政治经济诉求或政治立场地救中国人、乌克兰人和美国人的团队；3) 唯一救出了大量中国人和美国人的团队；4) 唯一告诉世界在乌克兰有被中共抛弃的3万中国人的团队<br/>
-![img](https://media.gettr.com/group35/getter/2022/03/07/05/babe3b16-0292-cd7e-61d1-59af7fc3f3bb/out.jpg)
 
 ---
 
