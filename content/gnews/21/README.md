@@ -2,31 +2,26 @@
 ---
 
 
-## 有声|NFSC新闻、G|TV新闻访谈简报|2022年3月4日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2121385/)
+## 乌克兰救援的战友，将成为中国的“辛德勒”和“拉贝”
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2121473/)
 
-配音：香草山农场– 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-3-556x720-1.png)
+作者：波士顿五月花 黄金时代
+![](https://assets.gnews.org/wp-content/uploads/2022/03/ACC04D37-BF25-44EC-BD01-01DB8C242D3A.jpg)
+3月6日文贵大直播中，通过现场连线，全球亿万爆料革命战友亲眼见证了新中国联邦和法治基金在乌克兰战争中组织的救援活动，一辆满载从乌克兰救出的逃难者的巴士日夜兼程，开到了波兰安全地区。6号当天，法治基金和新中国联邦再一次从乌克兰营救了100多位孩子和老师。目睹这一历史性时刻，心中不禁感慨万千。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图43.png)图片来自盖特截屏
+多数人应该都看过《辛德勒的名单》和《拉贝日记》，都会被辛德勒和拉贝在战乱中所展现出的人性光辉所感动。与此同时，作为一个中国人，我们难免也会期待中国人中也能出现这样感动全人类的楷模。
 
+在当前的乌克兰战争中，在共匪伪政权将国人弃之于战火而不顾的情况下，爆料革命战友和新中国联邦人挺身而出，帮助包括华人在内的、所有受战争影响的人撤离战区。辛德勒和拉贝让我们认识到纳粹不等于德国人，而大卫和正义小Sarah等所有直接参与救援的战友，正在用自己的亲身行动向世人展示中国共产党不等于中国人！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图44.png)图片来自盖特截屏
+所有直接参与救援的战友们，你们已经成为中国的“辛德勒”和 “拉贝”，所有爆料革命战友和新中国联邦人因你们而自豪和骄傲！
 
-文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年3月4日早](https://gnews.org/zh-hans/2107273/)
+* * *
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+*编辑：文合*
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*封面：水涨船高*
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*发布：吐纳*
 
  
 

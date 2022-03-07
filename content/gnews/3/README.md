@@ -2,36 +2,26 @@
 ---
 
 
-## 由于签证和其他服务的暂停，俄罗斯银行考虑发行中国银联卡
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2121703/)
+## 88个因注射新冠疫苗死去的孩子中，76个打了辉瑞疫苗，12个打了莫德纳疫苗
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2121758/)
 
-翻译：天天
+#### 翻译                         意大利达芬奇农场                    小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-07-alle-16.45.30.png)图片来源：eventiavversinews.it
+来自美国VAERS的报告， 88个因注射新冠疫苗死去的孩子中，76个打了辉瑞疫苗，12个打了莫德纳疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-2-3.jpg)图片来源：路透社
+这是截止2022年2月25日来自美国数据库VAERS的数据， 此外还有43622个孩子因接种疫苗而受到伤害的病例。
 
-俄罗斯中央银行3月6日宣布，国内银行发行的使用美国VISA和万事达支付系统的信用卡在3月9日之后在国外将不能使用。 一些国内银行正在考虑使用中国的银联支付系统来代替。
- 
-根据中央银行的规定，在俄罗斯发行的万事达卡和VISA卡在过期之前都可以使用。
- 
-外国银行的俄罗斯分行所发行的卡片，也将不能在国外使用。
- 
-VISA和万事达卡已于3月5日宣布暂停在俄罗斯的业务。
- 
-据中央银行称，有几家银行已经在使用银联，而Zubelbank、Tinkoff和其他银行可能会开始发行将银联与俄罗斯国内支付系统Mir整合在一起的卡片。
- 
-根据银联的说法，其系统可在180个国家和地区使用。
- 
-中央银行建议目前在国外的俄罗斯公民在银行卡使用禁令生效前提取现金。
+与往常一样，在阅读这些数据时，应该记住只有1-10%的伤害和死亡病例被报告。众所周知，VAERS数据报告如下。
 
-**参考资料：**[news.yahoo.co.jp][ロシアの銀行、中国銀聯のカード発行検討　ビザなどの利用停止で](https://news.yahoo.co.jp/articles/29802c3c96a6cf1f422ca8ef09b8fc34fa6e5699)
+截止2022年2月25日的数据， 在注射了辉瑞新冠疫苗后， 美国VARERS报告披露了76例孩子死亡。
 
-* * *
+在该文件中，您将找到所有VAERS的个人记录链接，这些记录涉及在注射辉瑞和莫德纳疫苗后死亡的儿童。
 
-*审核：BryanW*
-*校对：宫米叶*
-*发稿：信心的选择*
+截止2022年2月25日， 美国VAERS报告并披露了43622起儿童伤害事件，每个案例平均报告4人受到伤害。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-4.jpeg)
+原文链接：[https://www.eventiavversinews.it/un-totale-di-88-decessi-di-bambini-a-seguito-di-un-vaccino-covid-19-76-a-seguito-di-pfizer-e-12-di-moderna/](https://www.eventiavversinews.it/un-totale-di-88-decessi-di-bambini-a-seguito-di-un-vaccino-covid-19-76-a-seguito-di-pfizer-e-12-di-moderna/)
+
+编辑、上传： Xiao  baige
 
  
 

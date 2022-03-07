@@ -2,57 +2,33 @@
 ---
 
 
-## 保守派记者终于找到了福奇博士 他躲哪去了？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2121692/)
+## 有声|台国防部发放《全民国防手册》指导民众避难
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2121745/)
 
-编译： Jenny Ball
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间3月4日，据台湾媒体报导，由于俄罗斯正在持续向乌克兰发起的军事行动，台海局势随之也备受关注。日前，台湾立委向国防部提出质询称，应尽快就台湾发生战争时该如何避难等相关议题向民众做出引导。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-625.png)图片来源：zonenews24.site
+对此，台湾国防部长邱国正于3月1日答询时表示，国防部计划将尽快发布《全民国防手册》作为应对的方式之一。据悉，国防部早在去年就已经着手整备了《国防手册》的模版，目前该模板正在等待行政院的批准。
 
-只是几次糟糕的民意调查和中期选举，就这样，福奇博士、“科学”和 COVID，一切都消失了。
+次日，国防部发言人史顺文在备询时补充说明，即将发布的手册内容会涵盖各地方民众的避难地点、防空避难生存知识，还有停电、停水或需要急救时生存物资获取方式等信息。
 
-\*\*噗\*\*不见了……
+国防部也指出，各地方政府可以依据此模板，结合各地的实际状况增加内容，从而让国人更加了解战时避难的方法与概念。届时，国防部也会跟各地方政府、各部协同合作，紧急配合应对。
 
-你最后一次在 CNN 上看到福奇是什么时候？
+文字版原文：[台国防部发放《全民国防手册》指导民众避难](https://gnews.org/zh-hans/2110974/)
 
-就好像拜登在 CNN 的管理员控制程序一样，因为，就在拜登团队决定 COVID 结束了，CNN 给了福奇解雇通知。
+音频处理：Fei797
+发稿：Fei797
 
-那么，现在痴迷于媒体的福奇被逐出舞台，他在做什么呢？ 他正在他的中共国实验室里制造新瘟疫吗？
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-一位保守派记者也有同样的疑惑，于是他四处寻找，竟然发现了这只邪恶的小虫子现在在做什么，真是令人震惊。
-
-**巨大的失宠……**
-
-乔丹·沙赫特尔（Jordan Schachtel）说，他终于找到了福奇，并报告说，这个小暴君并没有停止上电视，但现在他被降级为低级的“地方电视台”和低级的非主流媒体节目了。
-
-哎哟喂。
-
-但对于“死亡博士”来说，情况变得更糟……他非常渴望得到关注，任何的关注，以至于他最近出现在一个名为“唤醒 AF ”（“Woke AF”）的低成本流媒体节目中（AF 代表F粗口词）。
-
-乔丹说，他看起来和听起来都像一个“颓废的人”，并还在向未接种疫苗的人咆哮，说他们如何对社会构成了“威胁”。
-
-对于自称自己是“科学”的人来说，这是多么可悲的事态。
-
-但老实说，本地新闻和晦涩/低预算的流媒体频道正是福奇所属的地方。
-
-**他本不应该掌权的。**
-
-如果他想成为一名“玩家”，他应该拥是一个不同观点和不同想法的医生团队中的一个人，他们对如何处理病毒有不同的想法。
-
-但说实话，我希望这不是我们最后一次看到福奇。
-
-**我希望看到他坐在众议院和参议院小组面前，宣誓回答非常棘手的问题，然后，我还希望看到他身穿橙色连身衣在监狱里。**
-
-**评论：随着辉瑞败诉不得不公布其疫苗几千个副作用的数据，福奇“身穿橙色连身衣在监狱里”的时刻不远了。**
-
-素材链接：[zonenews24.site][Conservative Journalist Finally Tracks Down Dr. Fauci and You Won’t Believe How Low He’s SUNK](https://zonenews24.site/conservative-journalist-finally-tracks-down-dr-fauci-and-you-wont-believe-how-low-hes-sunk/)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-4.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
