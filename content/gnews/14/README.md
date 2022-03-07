@@ -2,44 +2,28 @@
 ---
 
 
-## 锁链女牵出有祭坛有神论的徐州正掩盖与中央首长深关系
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2118349/)
+## 新中国联邦救援前线团队在克拉科夫（Krakow)汽车站的报道
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2118433/)
 
-Youtube视频链接：[https://youtu.be/96i3nk4EO3o](https://youtu.be/96i3nk4EO3o)
+**撰稿：DG**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-07-130240.jpg)图为大卫和一位乘客做了简短交流
+两辆大巴从利沃夫（Lviv) 经过大约24小时颠簸在当地时间3月6日下午驶入克拉科夫（Krakow)汽车站，满载主要是老弱妇孺，在当地政府部门帮助下通关方便很多。郭先生在直播中叮嘱不要打扰车上乘客。视频中的郭先生满面悲悯，五年以来从未见过郭先生如此面容。郭先生说当地人在逃亡中仪容整洁，保持着尊严，控制情绪不失礼貌。这位乘客说到最后眼泪几乎涌出，小撒拉轻轻的拥抱了她。小撒拉将新中国联邦人的爱用一个轻轻的拥抱温暖的传达出去。
 
-Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+接下来小撒拉和大卫介绍了现场的情况。
 
-**郭文贵先生：**还有一个大家不要忘了，啥叫“无神论”？共产党让你不要相信任何神，“我是你的神”然后“我相信我的神”，这叫共产党的无神论！要么怎么能把盘古“龙头”变成“龟头”呢？还没加上睾丸的龟头儿，是吧？因为它说：“我是你的啊，我相信我的神啊”。
+小撒拉说：我们是这里唯一一家救援机构。
 
-但这回事儿上你不要看“锁链女”的事情上，你知道“锁链女”现在国内发酵到什么程度了吗？你看她那个男人的背景了吗？你看他那个村里边有啥了吗？你们仔细看看，这个地方是最有神论的地方之一，没人发现。他们当地的官员你还没发现有什么背景的吧？徐州这个地方很邪乎的，徐州它的这个地方是所谓的“最有信仰”的，还是跟我们中央首长是有深关系的，现在在盖着呢。
+大卫说：我们举一个简单的例子。我们到达了当地的酒店，因为一大帮中国人进来，别人都不知道我们是干什么的，就像前天我跟文贵先生讲，我们首先要跟当地的警方政府联系上。咱们首先是国际标准化救援啊，为什么不让当地人知道我们呢？所以我们和酒店的Manager(经理）一交流，大家都对我们非常友善，在给我们端食物端咖啡的时候都能看出来这种心里的接纳，这就回到刚才那句话。我们的国际形象是靠实力争取回来的，是我们每一个言行换来的，不是共产党吹出来的。
 
-所以说咱们政法委这哥儿们说：“你看着没有？再往上挖就成大政治了。” 共产党的“有神论”，在这块儿竟然有祭坛，有神论，这有多可怕！
+最新的消息是共产党在乌克兰境内所谓的协调人员已经都跑路了，都跑了。共产党滚蛋了，我们来了！新中国联邦人来了！来救乌克兰人民、救美国同胞、救中国同胞，救我们留学生。这种对比和反差，让波兰的当地人看清了谁可信、谁可交。这几天我们感觉是信心倍增，在当地扭转局面。
 
-编辑整理：Jacques；
+希望越来越多的战友来到当地，亲自感受到这种变化，用我们的言行告诉乌克兰人和波兰人，我们是来拯救这些同胞们，这些朋友们，我们不是共产党！共产党已经过去了！翻篇了！我们感受到了他们友好的变化。每一个细节都能感受到！
 
-字幕文件制作：星塵；
+**参考信息**：
 
-视频制作及上传：Cindy；
+[https://www.gettr.com/post/pyjlsl401d](https://www.gettr.com/post/pyjlsl401d)
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[https://www.youtube.com/watch?v=sVS9spRh1l0](https://www.youtube.com/watch?v=sVS9spRh1l0) (English)
 
  
 

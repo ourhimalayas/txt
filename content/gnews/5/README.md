@@ -2,32 +2,25 @@
 ---
 
 
-## 美国与波兰协商向乌克兰援助米格-29战斗机
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2118477/)
+## 有声｜中共在乌克兰被入侵前3个月已知俄计划
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2118536/)
 
-**撰稿：日本东京方舟农场  北极**
+**By:秘翻新闻**
 
-据大纪元3月7日报道，拜登政府正在与波兰协商，如何有针对性地向乌克兰援助苏式米格-29战斗机。
+**2022-03-07**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-07-下午1.47.13.png)图片源自:大纪元
+**[3月5日《大纪元时报》报导。一位供应链分析师援引内幕消息称，大约三个月前，中共改变了从俄罗斯订购商品的方式，以便在西方对莫斯科实施制裁的情况下保持交往。此举表明中共已经预见到俄罗斯入侵乌克兰的计划，并已做好应急措施以确保在制裁期间仍能进口俄罗斯商品。](https://www.theepochtimes.com/china-changed-supply-chain-strategy-with-russia-3-months-ahead-of-ukraine-invasion-showing-it-had-foreknowledge-analyst_4317762.html)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-66.png)图为MiG-29战机。（图片来自大纪元）
+**[大约在11月或12月，中共国将购买其俄罗斯谷物、原油和石化等产品的保险期，改在购买后立即生效。这是不同寻常的做法，因为在大量海运中，通常是卖方而不是买方承担货物的责任。而现在是中共买家承担这些风险。](https://www.theepochtimes.com/china-changed-supply-chain-strategy-with-russia-3-months-ahead-of-ukraine-invasion-showing-it-had-foreknowledge-analyst_4317762.html)**
 
-此前，乌克兰总统弗拉基米尔‧泽连斯基（Volodymyr Zelensky）向美国国会议员请求获得更多武器援助，特别是乌克兰飞行员会操作的苏式战机。
+**[这一转变表明，中共当局“至少在一段时间内，肯定知道俄罗斯关于乌克兰的计划”。而美国一位高级政策顾问最近表示，由于担心普京会发动“鲁莽入侵”乌克兰，白宫曾提前与中共接触，希望它能协助避免一场战争，但被中共拒绝了。](https://www.theepochtimes.com/china-changed-supply-chain-strategy-with-russia-3-months-ahead-of-ukraine-invasion-showing-it-had-foreknowledge-analyst_4317762.html)**
 
-白宫表示，正在与波兰讨论一项用美国F-16战机换取波兰苏式战机的协议。
+（ 秘翻新闻 文雀 编译报道 ）
 
-波兰、保加利亚和斯洛伐克等几个东欧国家在各自库存中保留了数十架俄罗斯制造的飞机。
+发布:星星
 
-波兰自2006年首次飞行F-16战机，随后一直在对国家机队进行现代化改造，并在2020年签署了购买32架F-35战机的交易，其中第一架将于2024年到货，从而使那些较旧的俄制战机成为淘汰品。
-
-美国国务卿安东尼‧布林肯（Antony Blinken）周日（3月6日）上午证实，美国正在与波兰合作制定向乌克兰援助这些飞机的计划。
-
-参考链接：
-1.[https://www.epochtimes.com/gb/22/3/6/n13626518.htm](https://www.epochtimes.com/gb/22/3/6/n13626518.htm)
-
-撰稿：北极
-总编：老孙
-校对发布：爱放飞
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

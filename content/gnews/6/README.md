@@ -2,27 +2,28 @@
 ---
 
 
-## 有声｜美国汽油价格飙升至2008年以来的最高水平
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2118468/)
+## 俄乌战火焦灼！中共宣布南海演习12天
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2118516/)
 
-By:**秘翻新闻**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-11.png)图片来源：新华社
 
-**2022-03-07**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/12-14.png)图片来源 路透社
-[《路透社》3月6日报道，周日，美国汽车协会表示，美国汽油价格过去一周跳涨11%，至2008年以来最高水平。美国普通级汽油均价周日达到每加仑4.009美元。](https://www.reuters.com/world/uk/britain-pledges-100-mln-help-keep-ukrainian-state-running-2022-03-06/)
+俄乌战火延烧之际，中共自上月底接连军演后，再发布自4日到15日在南海实施军事训练，并警告船只不要进入。据报划定的演习范围是海南省与越南之间的海域。
 
-[美国汽车协会称，这是2008年7月以来常规级汽油的最高均价。](https://www.reuters.com/world/uk/britain-pledges-100-mln-help-keep-ukrainian-state-running-2022-03-06/)
+根据中共海南海事局发布声明，自4日晚间6时到15日晚间6时，在划定的水域范围内进行军事训练，船只禁止驶入。
 
-[根据美国汽车协会的数据显示，美国汽油价格最高的是加利福尼亚州，每加仑5.288美元，其次是夏威夷、内华达州和俄勒冈州，均超过4.5美元1加仑。](https://www.reuters.com/world/uk/britain-pledges-100-mln-help-keep-ukrainian-state-running-2022-03-06/)
+路透报导，根据演习地点的座标，演习位置约在海南省三亚与越南顺化之间的海域。
 
-[据报道，美国原油期货上周上涨26%，收盘115.68美元，为2008年9月以来的最高收盘点位。](https://www.reuters.com/world/uk/britain-pledges-100-mln-help-keep-ukrainian-state-running-2022-03-06/)
+简评：自普习冬眠会密谈后，俄罗斯侵略乌克兰遭遇到了顽强的抵抗，全球援乌抵俄的浪潮大起，普京急需中共攻打台湾来分担国际压力。如今中共宣布南海演习12天，在为攻台蓄力。望台湾同胞多多保重，愿意撤离的新中国联邦正在救援，誓守台湾的，愿你们一切平安！希望台湾不要成为今日的乌克兰！
 
-秘翻新闻 冰糖葫芦喵编译报道
+新闻来源：[联合新闻网](https://udn.com/news/story/7333/6146076)
 
-发布 : 恩典
+撰稿/发布：一叶知秋
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

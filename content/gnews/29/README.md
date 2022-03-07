@@ -2,46 +2,46 @@
 ---
 
 
-## 中共冬残奥会惨淡开场
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2118103/)
+## 银行业监管机构称中共国不会加入对俄罗斯的制裁
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2118112/)
 
-作者：日本方舟农场 – Andy5
+***评论：**西方国家对俄罗斯制裁，是因为俄罗斯入侵了乌克兰，中共国在联合国大会紧急特别会议关于乌克兰局势决议草案中投了弃权票，和俄罗斯关系越来越密切，世人皆知，说影响有限，是不是心虚，他们自己清楚。*
 
+据《路透社》记者Kevin Yao 2022年3月2日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-559-e1646626363938.png)中国银行保险监督管理委员会（CBIRC）主席郭树清于2021年3月2日在中国北京出席新闻发布会。REUTERS/Tingshu Wang
+《路透社》北京3月2日 – 中国银行业监管机构周三表示，中共国不会加入由西方主导的对俄罗斯的制裁，并补充说他认为这些措施对中国的影响将是有限的。
 
+中共国拒绝谴责俄罗斯入侵乌克兰，一再批评其所谓的非法和单边制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+“就金融制裁而言，我们不赞成，尤其是单方面发起的制裁，因为它们效果不佳，没有法律依据，”中国银保监会主席郭树清在一场新闻发布会上说。
 
+“我们不会参与此类制裁。我们将继续与有关各方保持正常的经贸往来。”他说。
 
+近年来，中共国和俄罗斯的关系越来越密切，包括作为贸易伙伴。根据中国海关数据，去年两国贸易总额增长 35.9%，达到创纪录的 1469 亿美元，其中俄罗斯是石油、天然气、煤炭和农产品的主要来源，对华贸易顺差。
 
-3月4日，中共举办的冬季残奥会正式开幕，比起1个月前的冬奥会开幕式更加冷清。
+“到目前为止，制裁对中国经济和金融部门的影响还不是很大。”郭补充道。
 
-本次中共残奥会的开幕式中，除了国际残奥会主席露面，并没有其他国家的领导人或者政府高层参与。而在2008年的残奥会开幕式上，有18国政要出席。
+“总体而言，即使在未来，它们（对中国）也不会产生太大影响，”郭说，并引用了中国经济和金融部门的韧性。
 
-最值得注意的是，尽管习近平在2014年，专门出席了俄罗斯索契冬奥会的开幕式，普京却在今年选择了在中共冬奥会和残奥会之间侵略乌克兰，导致中共墙内关于残奥会的新闻几乎无人问津。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10.jpg)
-参考链接：
-1. [北京2022年冬残奥会隆重开幕 习近平出席开幕式并宣布北京冬残奥会开幕](http://politics.people.com.cn/n1/2022/0305/c1024-32366677.html)
-2. [2008年夏季残疾人奥林匹克运动会开幕式](https://zh.wikipedia.org/wiki/2008%E5%B9%B4%E5%A4%8F%E5%AD%A3%E6%AE%98%E7%96%BE%E4%BA%BA%E5%A5%A7%E6%9E%97%E5%8C%B9%E5%85%8B%E9%81%8B%E5%8B%95%E6%9C%83%E9%96%8B%E5%B9%95%E5%BC%8F)
-3. [习近平出席索契冬奥会开幕式](http://www.xinhuanet.com/world/2014-02/08/c_119235025.htm)
+文章观点仅代表作者个人，与Gnews平台无关。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+文章来源：[https://www.reuters.com/markets/europe/china-banking-regulator-sees-limited-impact-sanctions-russia-2022-03-02/](https://www.reuters.com/markets/europe/china-banking-regulator-sees-limited-impact-sanctions-russia-2022-03-02/)
 
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
+翻译：洛杉矶盘古农场 – Raul
 
-**更多资讯，更多关注**
+校对：洛杉矶盘古农场 – 轰炸机
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+评论：洛杉矶盘古农场 – 傻小子
 
+编辑：洛杉矶盘古农场 – 傻小子
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+发布：洛杉矶盘古农场 – 子萍
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
  
 

@@ -2,29 +2,23 @@
 ---
 
 
-## 有声｜美国国务卿称北约国家同意向乌克兰派遣战机
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2118445/)
+## 【 #G时新闻 】美欧正探讨对俄石油制裁
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2118507/)
 
-By:**秘翻新闻**
+加拿大温哥华扬帆农场-播报：悠然 视频制作：文雅
 
-**2022-03-07**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-18.png)图片来源 福克斯新闻
-[据《福克斯新闻》3月6日报道，美国国务卿安东尼·布林肯周日表示，北约国家已经为向乌克兰派遣战机开了 “绿灯”。](https://www.foxnews.com/world/nato-countries-green-light-send-fighter-jets-ukraine-blinken)
+彭博社报道，美国国务卿布林肯星期天（3月6日）接受全国广播公司（NBC）访问时说：“我们现在正与我们的欧洲伙伴积极讨论禁止俄罗斯石油出口到我们国家，并确保全球石油供应稳定的事宜。”
 
-[据报道，美国一直在考虑与波兰达成协议，向华沙派遣美国战机，以取代这个北约国家派往乌克兰的任何苏联时代的战斗机。](https://www.foxnews.com/world/nato-countries-green-light-send-fighter-jets-ukraine-blinken)
+布林肯当天与东欧国家进行了会谈。正在欧洲各国奔走协调对俄应对措施的布林肯还表示，他周六与拜登总统及内阁讨论了石油进口问题。
 
-[据《华尔街日报》报道，在周六与280多名美国立法者进行的放大电话会议上，乌克兰总统沃洛季米尔·泽伦斯基说，乌克兰更需要战斗机，而不是美国同意的防空导弹。](https://www.foxnews.com/world/nato-countries-green-light-send-fighter-jets-ukraine-blinken)
+欧洲在原油和天然气方面高度依赖俄罗斯。熟悉一名消息人士星期天向路透社披露，在过去24小时，欧洲对禁止俄罗斯能源进口持更开放的态度。
 
-[据报道，纽约州参议院多数党领袖查克·舒默周日提到了这一恳求。舒默说，如果其他国家——如波兰——决定向乌克兰提供苏联时期的喷气式飞机，他支持美国给予它们帮助。](https://www.foxnews.com/world/nato-countries-green-light-send-fighter-jets-ukraine-blinken)
+消息人士还说，白宫也在与参议院财政委员会及众议院筹款委员会讨论可能对俄罗斯实施的禁令。美国与其盟友因俄罗斯入侵乌克兰而对其祭出一连串的制裁措施后，油价在过去一周大幅飙升。
 
-[另一方面，泽伦斯基呼吁在乌克兰上空设立禁飞区，但仍然没有得到美国的支持。](https://www.foxnews.com/world/nato-countries-green-light-send-fighter-jets-ukraine-blinken)
+原文链接：https://gnews.org/zh-hans/2117241/
+视频链接：https://gettr.com/post/pylrfe51fd
+发稿：文莱
 
-秘翻新闻 Grace编辑报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

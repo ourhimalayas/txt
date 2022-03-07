@@ -2,29 +2,27 @@
 ---
 
 
-## 国际柔道联合会解除普京总统的名誉主席等职务
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2118425/)
+## 有声｜美国汽油价格飙升至2008年以来的最高水平
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2118468/)
 
-2022-03-06
+By:**秘翻新闻**
 
-翻译：文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/03/VO4AFFQUNPU1F6SL.png)照片来源：https://www3.nhk.or.jp
-国际柔道联合会在网站上宣布，解除俄罗斯总统弗拉基米尔·普京联合会名誉主席等所有职务。
+**2022-03-07**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-14.png)图片来源 路透社
+[《路透社》3月6日报道，周日，美国汽车协会表示，美国汽油价格过去一周跳涨11%，至2008年以来最高水平。美国普通级汽油均价周日达到每加仑4.009美元。](https://www.reuters.com/world/uk/britain-pledges-100-mln-help-keep-ukrainian-state-running-2022-03-06/)
 
-根据日本NHK3月7日消息，国际柔道联合会6日更新了网页内容，在俄罗斯军事入侵乌克兰之后，IJF （国际柔道联合会）在网站上宣布，解除俄罗斯总统弗拉基米尔·普京(Vladimir Putin)担任的联合会名誉主席等所有职务。
+[美国汽车协会称，这是2008年7月以来常规级汽油的最高均价。](https://www.reuters.com/world/uk/britain-pledges-100-mln-help-keep-ukrainian-state-running-2022-03-06/)
 
-普京总统从13岁开始练习柔道，是一位取得了段位的高手，作为柔道爱好家，广为人知。
+[根据美国汽车协会的数据显示，美国汽油价格最高的是加利福尼亚州，每加仑5.288美元，其次是夏威夷、内华达州和俄勒冈州，均超过4.5美元1加仑。](https://www.reuters.com/world/uk/britain-pledges-100-mln-help-keep-ukrainian-state-running-2022-03-06/)
 
-国际柔道联合会上个月取消了在俄罗斯喀山举行的柔道国际赛事，同时宣布允许俄罗斯队员在不使用俄罗斯国旗或国歌的情况下参加比赛。
+[据报道，美国原油期货上周上涨26%，收盘115.68美元，为2008年9月以来的最高收盘点位。](https://www.reuters.com/world/uk/britain-pledges-100-mln-help-keep-ukrainian-state-running-2022-03-06/)
 
-消息来源：[国際柔道連盟 プーチン大統領の名誉会長など全職務を解任](https://www3.nhk.or.jp/news/html/20220307/k10013517941000.html)
+秘翻新闻 冰糖葫芦喵编译报道
 
-编辑：LILY
-发布：肥鯮
+发布 : 恩典
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,44 +2,18 @@
 ---
 
 
-## 中兴通讯面临违反美国缓刑条例的听证会
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2118122/)
+## 俄乌战争｜美国防部高官：俄罗斯已投入95%的战力攻打乌克兰
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2118202/)
 
-作者：纽约磐石农场 – 在远方
+**撰文/ 港台前线｜发布日期/ 07/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/美國防部高官：俄羅斯已投入95的戰力攻打烏克蘭.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
+CNN引述美国一名国防高官指，自俄罗斯入侵乌克兰以来，一共发射了大约600枚导弹，并已将95%的战力集结在乌克兰境内。
 
+据该名官员表示，美国于周日（6日）观察到，乌克兰南部城市赫尔松（Kherson）和尼古拉耶夫（Mykolaiv）战斗持续，而俄军仍在试图包围基辅、卡尔可夫（Kharkiv）、切尔尼戈夫（Chernihiv）及马里乌波尔（Mariupol）。不过，由于遭到了乌方的强烈抵抗，俄方的进攻进度有所减缓。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-3月5日，国外媒体报道，中共中兴通讯即将于3月14日面临一项新指控，指控认为，它违反了向伊朗非法运输美国技术的认罪缓刑条例。
-
-2017年，中共中兴通讯违反美国法律，非法向伊朗和朝鲜出售美国技术，中兴认罪并缴纳了8.92亿美元的罚款。当时中兴方承诺接受三年缓刑条例，实施企业合规计划，设立监督机制。但在2018年，美国商务部发现中兴撒谎，随即禁止中兴与美国开展业务，此后中兴又缴纳了10亿美元，再次同意接受为期十年的缓刑条例。
-
-3月14日的法庭指控，同样和中兴撒谎有关。起诉书中写道，中兴非法将中国公民带到新泽西中兴通讯工作，用的是美国专为佐治亚理工学院设定的工作和学习用的J-1签证，涉嫌签证欺诈。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12.jpg)
-参考链接：
-[China’s ZTE faces hearing over possible violation of U.S. probation](https://www.reuters.com/business/media-telecom/chinas-zte-faces-hearing-over-possible-violation-us-probation-2022-03-05/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+来源｜[CNN](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-03-06-22/h_9a75a46d4bfa8041016b60472351f411)
 
  
 
