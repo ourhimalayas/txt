@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 12:25 PM (UTC)`
+
+【Ukraine Rescue】03/06/2022 David: So the CCP escaped, but now we, the New Federal State of China, come. We come to rescue the Ukrainian, Americans, our Chinese people and students. So our good international image is gained by our words, behavior and strength,not by CCP’s propaganda.<br/><br/>【乌克兰救援】03/06/2022 大卫：共产党滚蛋了，我们新中国联邦人来了，来救乌克兰人民，救美国同胞，救我们中国的同胞，救我们留学生。我们的国际形象是靠实力争取过来的，是靠我们每一个言行换来的，不是共产党吹出来的。<br/> 
+![img](https://media.gettr.com/group40/getter/2022/03/07/12/d4c2a208-d9fb-67cf-957d-9399baa56ef5/out.jpg)
+
+---
+
 `@miles 3/7/2022 12:15 PM (UTC)`
 
 【Ukraine Rescue】03/06/2022  NFSC & ROLF rescuers interviewed a Ukrainian woman who was just rescued by our bus in Krakow, Poland<br/><br/>【乌克兰救援】03/06/2022 新中国联邦和法治基金的救援人员在波兰克拉科夫采访了一位刚刚被我们巴士救出的乌克兰女士<br/> 
@@ -149,13 +156,6 @@ FDA Releases BOMBSHELL Pfizer Covid Virus Vaccine Data With Over 1,200 Side Effe
 
 <br/>3月6号：尊敬的战友们好，你们健身了吗？传播乌克兰战争……人道危机的真相了吗？一切都已经开始。
 ![img](https://media.gettr.com/group38/getter/2022/03/07/00/783b9d4b-93e7-df1c-ddfe-486ec973f14b/out.jpg)
-
----
-
-`@miles 3/7/2022 12:01 AM (UTC)`
-
-3/6/2022 Miles Guo: The biggest significance of the judge's ruling on Pfizer is that it has proven the COVID vaccine is a poison, which is illegal and has never been medically approved whatsoever. The vaccinated people shall seek treatment to get rid of the toxin of the COVID vaccine ASAP. Those Chinese people who are brainwashed by the CCP will blame the COVID vaccine disaster on the US.<br/><br/>3/6/2022 文贵直播：法官对辉瑞做出的判决的最大意义是做实了疫苗是未经医学认可的违法的毒药；打了疫苗的人赶紧去治病排毒吧！被中共洗脑的中国人会把疫苗灾难甩锅给美国<br/>
-![img](https://media.gettr.com/group6/getter/2022/03/07/00/5bd4bd6f-ef3b-ea19-9d94-9d40ad58762c/out.jpg)
 
 ---
 
