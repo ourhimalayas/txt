@@ -2,16 +2,19 @@
 ---
 
 
-## 20220306郭文贵大直播 ：中共国最高价是墓地，最大谎言是免费病毒疫苗
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2120541/)
+## 20220306文贵大直播：新中国联邦如何营救乌克兰难民的
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2120585/)
 
-作者：东京樱花团小视频组
+作者:东京樱花团小视频组
 
 校对：东京樱花团小视频组
+
 编辑发布：东京樱花团小视频组
 
 * * *
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

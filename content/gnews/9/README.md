@@ -2,8 +2,8 @@
 ---
 
 
-## 20220306文贵大直播：新中国联邦如何营救乌克兰难民的
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2120585/)
+## 20220306文贵大直播：乌克兰真是伟大的民族，向他们学习
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2120621/)
 
 作者:东京樱花团小视频组
 
@@ -13,8 +13,6 @@
 
 * * *
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
