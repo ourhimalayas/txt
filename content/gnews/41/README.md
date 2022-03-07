@@ -2,38 +2,35 @@
 ---
 
 
-## 通过喜马拉雅交易所成交迈凯轮标志性赛车
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2115196/)
+## 拜登政府将对中共国商品关税展开审查
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2114901/)
 
-撰稿：纽约香草山-宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
-据美国媒体3月4日报道，巴西传奇F1车神埃尔顿·塞纳的一辆迈凯伦1989MP4/5 F1赛车，以超过500万美元的价格，以等值喜美元HDO的形式，通过喜马拉雅支付应用程序——喜支付HPay——成功售出。此笔交易将极大提升数字货币的全球信誉度。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-517.png)
-塞纳被称为“有史以来最好的F1车手”，他所驾驶的汽车是世界上最有价值的收藏品之一。迈凯伦车队CEO扎克·布朗高度评价塞纳的这辆迈凯轮F1赛车，称其代表着赛车运动史上的特殊篇章。
+**撰稿：日本东京方舟农场 北极**
 
-该报道称，这笔交易表明市场对喜交所，特别是喜支付HPay的信心不断增强。喜交所使企业和个人能够利用加密货币的崛起创造机会，其因无边界、包容性和安全性的特点，可以随时随地进行转账和交易，实现个人财务自主。该平台也是将加密货币交易所与原生交易币、稳定币，以及最近推出的支付应用程序整合到一个平台的首次尝试，成为目前市场上唯一一个完全整合加密货币生态系统的运营平台。
+据大纪元3月06日报道，美国即将对价值340亿美元的第一批中共国商品关税展开审查。
 
-喜支付HPay的升级应用程序正在开发中。在未来支付场景中，用户将能够在全球范围内通过喜支付HPay即时转账、安排自动付款，并在所有类型的支持数字货币支付的独家零售商店购物。该报道表示，尽管难以预测数字货币的未来，但不能否认，加密资产正在颠覆金融业。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0122.png)图为美国加州长滩港集装箱运输。（图片来自大纪元）
 
-新闻链接：[Purchase Of Iconic McLaren Vehicle Through Himalaya Exchange Raises Trust In Cryptocurrencies](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)
+根据《贸易法》第301条规定，进口商品关税在征收四年后到期，美国贸易代表办公室有权对其进行审查。审查需要在其可能结束前的60天内进行，第一批340亿美元的中国商品将在接下来的几个月内到期，即7月6日。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+即使在俄罗斯入侵乌克兰导致大宗商品供应收紧之后，拜登政府没有发出取消关税的计划的信号， 目前通胀率已超过7%，从能源到小麦的价格都在飙升。
 
-编辑：Delilah小胖
+拜登总统保留了前任川普总统对中共国商品征收关税的政策。川普总统执政期间对中共国先后征收了4次关税：2018年7月份以来，美国先是对340亿美元商品征收25%关税，随后对160亿美元商品征收25%关税，然后扩大到对2000亿美元关税征收10%关税，到2019年5月再将2000亿美元商品的关税提升到25%。
 
-总编：飞虹
+2020年初，川普总统和中共国家主席习近平达成协议，签署了第一阶段协议。中共同意增加对美国商品和农产品的购买，即比贸易战开始前多购买2000亿美元。
 
-审核：木木
+但截止至协议约定时间，中共未能实现这些目标。追踪中共国采购情况的彼得森国际经济研究所高级研究员乍得·鲍恩（Chad Bown）表示，中共国可能只采购其承诺购买的商品的60%。
 
-校正/发稿：浪迹天涯
+拜登几个月前曾表示，这就是他保留关税的原因。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
+参考链接：
+[https://www.epochtimes.com/b5/22/3/5/n13624781.htm](https://www.epochtimes.com/b5/22/3/5/n13624781.htm)
+[https://www.bbc.com/zhongwen/simp/business-48770168](https://www.bbc.com/zhongwen/simp/business-48770168)
+
+素材采编：北极
+编辑：青城道姑
+发布：Linda
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

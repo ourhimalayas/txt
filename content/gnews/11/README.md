@@ -2,23 +2,40 @@
 ---
 
 
-## 爱马仕、香奈儿等世界知名奢侈品牌宣布暂时关闭在俄业务
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2117750/)
+## 美国和欧盟讨论禁止进口俄罗斯石油
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2117884/)
 
-撰稿/翻译：zzballack
-上传：追着曙光跑
+编译撰稿：冰糖葫芦喵
 
-据《网关专家》（Gateway Pundit）3月6日报道，爱马仕（Hermès）、路易·威登（Louis Vuitton）、卡地亚 (Cartier)、香奈儿（Chanel）、古驰（Gucci）等全球知名的奢侈时尚品牌宣布，由于对欧洲目前的局势越来越担心，他们将暂停在俄罗斯的所有业务，立即生效。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-07-at-11.46.59.jpeg)图片来源：原新闻
-柏金包（Birkin bag）的制造商爱马仕和拥有卡地亚的历峰集团（Richemont）是第一批宣布关闭在俄商店的时尚品牌母公司，路威酩轩集团（LVMH）、开云 (Kering)和香奈儿随后也关闭了商店。
+校对与发布：灭共文明、冰糖葫芦喵
 
-香奈儿公司在领英（LinkedIn）上发帖说：“鉴于我们对目前的局势越来越担心，企业经营的不确定性和复杂性也越来越大，因此我们决定暂时停止在俄罗斯的业务。“
+《路透社》华盛顿3月6日报道，**周日，美国国务卿布林肯(Antony Blinken)表示，美国和欧洲盟国正在探讨禁止进口俄罗斯石油的问题，白宫与国会各主要委员会进行了协调，推动各自的禁令。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/布林肯-e1646623075512.jpg)2022年3月6日，美国国务卿布林肯在摩尔多瓦向美国大使馆人员发表讲话。(Olivier Douliery/Pool/AFP via Getty Images)
+一位熟悉谈判情况的消息人士周日对路透表示，**虽然欧洲依赖俄罗斯的原油和天然气，但在过去24小时内，欧洲对禁止俄罗斯产品的想法变得更加开放。**
 
-LMVH向路透社证实，他们在俄罗斯的124家门店将全部关闭，但他将继续支付在该国的3500名员工的工资。
+与此同时,美国众议院议长佩洛西(Nancy Pelosi)周日在信中还表示,**美国商会是正在探索立法，禁止进口俄罗斯石油**，以及**国会打算制定本周100亿美元对乌克兰的援助。**
 
-开云、LMVH和世界领先的美容公司之一欧莱雅（L’Oréal）都承诺提供财政支持，帮助乌克兰难民。据估计，自俄罗斯入侵以来，已有超过100万乌克兰人逃离该国。
+报道称，布林肯正在欧洲各地与盟国协调，以应对俄罗斯入侵乌克兰的行动。
 
-信息来源：[Luxury Fashion Brands Hermès, Chanel, Louis Vuitton, and Gucci… Temporarily Close Business Operations in Russia](https://www.thegatewaypundit.com/2022/03/luxury-fashion-brands-hermes-chanel-louis-vuitton-gucci-temporarily-close-business-operations-russia/)
+布林肯还强调了维持全球稳定石油供应的重要性。他在接受美国全国广播公司(NBC)的《媒体见面》(Meet the Press)节目采访时说:**“我们正在与欧洲伙伴积极讨论禁止从俄罗斯进口石油的问题，当然，与此同时，要保持全球石油供应的稳定。”**
+
+周四，一个由美国两党参议员组成的小组**提出了一项禁止美国进口俄罗斯石油的法案。最终可能成为制裁的工具。**
+
+在俄罗斯入侵乌克兰后，**白宫对俄罗斯炼油厂和从未开通的北溪2号天然气管道的技术出口实施了制裁。**
+
+据美国汽车协会(AAA)数据，**美国全国每加仑汽油均价周日触及4.009美元**，为2008年7月以来最高水平。
+
+**新闻来源链接：**
+
+[U.S., European allies discuss banning imports of Russian oil | Reuters](https://www.reuters.com/business/energy/us-europeans-discussing-banning-russian-oil-imports-blinken-says-2022-03-06/)
+
+**多伦多蓝莲花农场相关链接：**
+
+[https://gettr.com/user/Blue\_Lotus](https://gettr.com/user/Blue_Lotus)
+
+[https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS\_a\_BMWw](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+
+[https://discord.com/invite/awC74U4YwJ](https://discord.com/invite/awC74U4YwJ)
 
  
 

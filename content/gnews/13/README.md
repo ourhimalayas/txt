@@ -2,35 +2,24 @@
 ---
 
 
-## 俄乌将在海牙法庭就种族灭绝指控举行听审
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2117744/)
+## 美国新任驻华大使抵达中共国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2117861/)
 
-翻译：冰糖葫芦喵
+撰稿：东京樱花团/peterwong
 
-编辑与校对：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/03/美国新任驻华大使抵达中共国.png)[图片来源](https://www.caixinglobal.com/2021-08-21/biden-to-nominate-foreign-service-veteran-nicholas-burns-as-ambassador-to-china-101758355.html)
 
-**《**路透社》海牙3月7日报道**，周一，乌克兰将要求海牙国际法庭发布紧急裁决，要求俄罗斯停止入侵，认为俄罗斯的攻击理由是基于对种族灭绝法的错误解释。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/海牙法庭-e1646621356282.jpg)国际海牙法庭（图片来源：网络）
-尽管法院的裁决具有约束力，各国一般都会遵守这些裁决，但它没有直接的执行手段。
+美国驻华大使馆官方微信周六（3月5日）消息，新任美国驻华大使尼古拉斯·伯恩斯（Nicholas Burns）已抵达中共国，与他同行的还有因疫情延后出行的美国使团人员和家人，他们将隔离三周。
 
-据报道，俄罗斯总统普京表示，俄罗斯的入侵是为了保护那些在乌克兰东部受到迫害和种族灭族灭绝威胁的俄罗斯人。
+自特里·布兰斯塔德(Terry Branstad) 2020年10月辞职以来，美国一直没有驻华大使。美国参议院于去年12月16日批准了拜登总统对伯恩斯的提名。
 
-乌克兰的诉讼认为，种族灭绝的说法是不真实的，不能为入侵提供法律依据。
+伯恩斯曾担任美国负责政治事务的副国务卿、美国驻北约和希腊大使、美国国务院发言人，以及负责苏联与俄罗斯事务的国家安全委员会成员等职务。
 
-报道指出，**乌克兰向国际法院(官方称国际法院)提起的诉讼，主要是对1948年两国签署的一项防止种族灭绝条约的解释。该条约将国际法院命名为解决签署国之间争端的论坛。**
+消息来源:[**新任美国驻华大使伯恩斯已抵达中国**](https://cn.reuters.com/article/us-ambassador-burns-china-0306-idCNKBS2L304D?il=0)
 
-**国际法院可以在几天或几周内命令快速“临时措施”，以防止情况恶化，然后再看案件的是非曲直，或看自己是否有管辖权。**
-
-自2014年俄罗斯吞并克里米亚后，乌克兰曾向国际刑事法院寻求临时措施，国际刑事法院下令双方不得恶化争端。
-
-报道称，**听证会将于格林威治时间上午10点开始，乌克兰将陈述其案情。俄罗斯将于周二做出回应。**
-
-新闻来源链接：
-
-[Ukraine and Russia to face off at World Court over genocide claim | Reuters](https://www.reuters.com/world/europe/ukraine-russia-face-off-world-court-over-genocide-claim-2022-03-06/)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
