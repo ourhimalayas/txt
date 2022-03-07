@@ -2,40 +2,33 @@
 ---
 
 
-## 万事达和Visa卡已暂停在俄罗斯的所有交易和业务
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2119522/)
+## 美国国务卿布林肯突然到访乌克兰
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2119541/)
 
-*评论：切断金融服务是射向非人道战争发起国的一颗子弹，是正义的表态。*
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-据《CNN》作者：Artemis Moshtaghian，2022年3月5日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-592.png)图片来源：Roberto Machado Noa/LightRocket/Getty图片
-万事达周六发表的一份声明以“当前冲突的空前性质和不确定的经济环境”为由，宣布其决定。
+3月5日，在俄罗斯和乌克兰战火纷飞之际，美国国务卿突然到访乌克兰且在乌克兰境内与乌克兰外长举行会谈。
 
-其声明说：“我们的同事、我们的客户和我们的合作伙伴受到的影响是我们大多数人无法想象的。这一决定源于我们最近按照全球监管机构的要求，从万事达支付网络中阻止多家金融机构的行动。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-67.png)（图片来自美联社）
 
-在俄罗斯经营了25年以上的万事达卡公司公布，俄罗斯银行发行的卡将不再得到万事达卡网络的支持。
+据《早报》报道，美国国务卿布林肯在访问波兰期间越过波乌边境，并在乌克兰境内会见了乌克兰外交部长库列巴(Dmytro Kuleba)。双方讨论了西方国家将如何在这场战事中给予乌克兰支持及继续孤立俄罗斯。
 
-这家信用卡公司说它在俄罗斯有近200名员工，并补充说，任何在国外发行的万事达卡都不能在俄罗斯商户或自动取款机上使用。
+另据《美国之音》报道，布林肯在会见时说：“全世界都与乌克兰站在一起，就像我现在在乌克兰与我的朋友、我的同僚乌克兰外长库列巴站在一起一样。”
 
-根据星期六发表的一份声明，Visa公司表示，暂停在俄罗斯的所有Visa交易和业务。
+库列巴表示，他与布林肯讨论了向乌克兰提供武器以及在国际上孤立俄罗斯并通过制裁重创俄罗斯经济等议题。
 
-Visa公司指出，在未来几天，所有在俄罗斯发行的Visa卡发起的交易将在该国以外的地方不再起作用，由俄罗斯以外的金融机构发行的任何Visa卡将在俄罗斯联邦境内不再起作用。
+库列巴还表示，乌克兰终将在这场与俄罗斯的战争中赢得胜利，但是国际上的支持者需要提供更多帮助，以尽快结束冲突。他说，乌克兰特别需要战斗机和防空系统，并表示西方国家提供的毒刺防空武器很有帮助。
 
-Visa主席兼首席执行官阿尔-凯利说：“在俄罗斯无端入侵乌克兰以及我们所目睹的不可接受的事件之后，我们不得不采取行动。这将对我们尊贵的同事以及我们在俄罗斯服务的客户、合作伙伴、商户和持卡人产生影响，我们很遗憾。这场战争以及对和平与稳定的持续威胁，需要我们按照我们的价值观做出回应。”
+据悉，布林肯此次3日至8日的欧洲六国访问，旨在继续与北约和欧洲伙伴就俄罗斯入侵乌克兰进行广泛磋商和协调。
 
-* * *
+参考链接：
+1.[https://www.zaobao.com.sg/realtime/world/story20220306-1249529](https://www.zaobao.com.sg/realtime/world/story20220306-1249529)
+2.[https://www.voachinese.com/a/blinken-met-ukraine-foreign-minister-20220305/6471779.html](https://www.voachinese.com/a/blinken-met-ukraine-foreign-minister-20220305/6471779.html)
 
-文章来源：[https://www.cnn.com/europe/live-news/ukraine-russia-putin-news-03-05-22/index.html](https://www.cnn.com/europe/live-news/ukraine-russia-putin-news-03-05-22/index.html)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 郭班之樱
-评论：洛杉矶盘古农场 – 郭班之樱
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+撰稿：Miyali7768(文玉)
+编辑：幽蘭自得
+总编：老孙
+校对发布：爱放飞
 
  
 

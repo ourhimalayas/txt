@@ -2,47 +2,34 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2119732/)
+## “国际军团”赴乌参战 “影子部队”协乌作战
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2119765/)
 
-**整理：枳实**
-**美工：精灵蓝**
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-75.jpg)
+乌克兰总统泽连斯基表示，目前已有1.6万外籍自愿军拟赴乌参战（图片来自网络）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/fengmian-2.jpg)图片：雅典娜农场设计组 精灵蓝
+乌克兰总统泽连斯基日前表示，至今已有超过1.6万名外籍志愿者计划参加“国际军团”赴乌参战。与此同时，有分析人士认为，似乎还有“影子部队”在乌克兰协助作战。
 
+据《希望之声》3月7日报道，俄乌战争已进行了超过10天，俄军损失惨重，乌克兰则士气高昂。
 
-雅典娜疫情更新（2022年 3月7日）
+乌克兰官方3月5日发布消息称，迄今已有6.6万多名旅外乌克兰男性返国抗俄，形同增加了12个战斗与机动旅。乌总统泽连斯基表示，那些不能回国的国民也在以各种方式支援乌克兰。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+泽连斯基上周还宣布，他正在建立一个“国际军团”，呼吁来自世界各地的志愿者协助保卫他的国家。他日前表示，至今已有超过1.6万名外籍人士响应了“影子兵团”的号召。
 
-全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/a-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/b-1.jpg)
-[2022年3月7日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月7日改进.pdf)
+此前有专家分析，美国已以某种形式参战，包括五类武装组织的形式。目前有消息证实，受泽连斯基的邀请，有大批美国退伍军人准备参加乌克兰的战斗。目前美国各地许多退伍军人正聚集在一起筹划和申请护照，许多人将参加这场战役视为捍卫自由和对抗专制侵略者的壮举。
 
-数据来源：
+有时评人士提出了一个耐人寻味的问题，那就是外界一直都没看到乌克兰正规军，但俄罗斯的飞机和坦克却被打掉了。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+时评人黄创夏指出，俄军大约有30架战机被打掉，并且还损失了武装直升机近30架、坦克车超过200架、装甲运兵车近千架，而这些都不是用汽油弹可以打下来的。他认为，美国和欧洲虽送了很多武器，但若没有受过训练，乌克兰军人是不会使用的。
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+另一时评人李正皓也认为，这场战争中，感觉有一股看不见的力量。他认为，有大量的“影子部队”在协助乌克兰打仗。
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+新闻链接：
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[https://www.soundofhope.org/post/600364](https://www.soundofhope.org/post/600364)
 
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：Frank2021
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
 
  
 

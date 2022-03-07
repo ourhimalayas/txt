@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 10:20 AM (UTC)`
+
+新中国联邦 法治基金救援行动 帮助乌克兰儿童逃离战火 连线波兰前线战友 2022-03-07
+![img](https://media.gettr.com/group33/origin/2022/03/07/10/63467f5a-7d5f-0d16-8473-8a3a498a1016/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/7/2022 9:07 AM (UTC)`
 
 【Ukraine Rescue】03/06/2022 Rescuers of NFSC & ROLF arrived safely in Krakow, Poland. Our rescuers are from all over the world, including the United Kingdom, Spain, Canada, and the United States. There are two to three sites near the border between Ukraine and Poland, with our buses waiting to rescue people.<br/><br/>【乌克兰大救援】03/06/2022 新中国联邦和法治基金派出的救援者安全抵达波兰克拉科夫。我们的营救人员来自全世界各地，有英国、西班牙、加拿大，还有美国。目前乌克兰和波兰的边境线上都会有我们的大巴车在等待着去救人。<br/> 
@@ -149,13 +156,6 @@ FDA Releases BOMBSHELL Pfizer Covid Virus Vaccine Data With Over 1,200 Side Effe
 
 3/06/2022 Miles Guo: The Chinese people have been attacked all over the world recently. Asian fellow fighters, especially women, should be careful. It is so difficult to clean Chinese people out of the toxics sowed by the CCP. Some people are too deeply brainwashed by the CCP to be saved, and there is no need to worry if anyone would believe in you when you spread the truth about the COVID vaccines.<br/><br/>3/06/2022 文贵直播：最近华人在世界各地遭袭击，亚洲战友尤其是女性要小心；给中国人排出中共种下的毒太难了，有些人被中共洗脑太深是没法救的，传播疫苗真相也不用在乎对方信不信<br/>
 ![img](https://media.gettr.com/group20/getter/2022/03/06/22/e3cfa105-4b2e-1904-1269-22d839f2141c/out.jpg)
-
----
-
-`@miles 3/6/2022 10:02 PM (UTC)`
-
-3/6/2022 Miles Guo: The US court ruling requiring FDA to release the documents related to the Pfizer COVID vaccine is something that the U.S. government can't even stop. The New Federal State of China has taught us what it means to have strength. Only with media platforms and wealth， we will be able to reveal and spread the truth!<br/><br/>3/6/2022 文贵直播：美国法院要求FDA公布辉瑞疫苗文件的判决是美国政府都无法阻挡的；新中国联邦让我们知道什么叫实力，要有媒体和财富才能有真相！<br/>
-![img](https://media.gettr.com/group24/getter/2022/03/06/22/8fecb7e2-b745-cc19-9640-7db733baf8c1/out.jpg)
 
 ---
 
