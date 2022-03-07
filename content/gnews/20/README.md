@@ -2,29 +2,32 @@
 ---
 
 
-## 有声｜保护艺术品免受破坏 乌克兰博物馆加紧行动
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2118538/)
+## 今日盖特大V推荐 — 伯纳德·B·克里克（Bernard B. Kerik）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2118636/)
 
-By:**秘翻新闻**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-564.png)
+盖特链接：**[https://gettr.com/user/bernardkerik](https://gettr.com/user/bernardkerik)**
 
-**2022-03-07**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/14-10.png)图片来源 新唐人
-[据新唐人北京时间3月7日消息，俄军在乌克兰的进攻仍在继续，连日来，乌克兰利沃夫艺术博物馆加紧保护珍藏的艺术品免受战争破坏。](https://www.ntdtv.com/gb/2022/03/06/a103366296.html)
+**伯纳德·B·克里克自述：**
 
-[位于乌克兰西部城市利沃夫的安德烈·谢普蒂茨基国家博物馆，是乌克兰最大的国家艺术博物馆，历经两次世界大战，都得以幸存。](https://www.ntdtv.com/gb/2022/03/06/a103366296.html)
+伯纳德·B·克里克的官方 GETTR 帐户，纽约市警察局第40任警察局长和纽约时报畅销书作家
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-565.png)图片来源：网络
+**伯纳德·B·克里克简介：**
 
-[自2月24日俄罗斯对乌克兰发动战争以来，这所博物馆也随之关闭。](https://www.ntdtv.com/gb/2022/03/06/a103366296.html)
+伯纳德·B·克里克（Bernard B. Kerik生于1955年9月4日）是一名美国顾问，前警官和纽约时报畅销书作家。他曾于1998～2000年担任纽约市惩教署署长，2000～2001年担任纽约警察局第40任局长。
 
-[珍藏手稿和书籍的部门负责人说， 12,000多件珍藏品已经装箱，但还没有找到可以安全存放的场所。目前，该馆的收藏品已被挪到馆内的地下防空洞。](https://www.ntdtv.com/gb/2022/03/06/a103366296.html)
+伯纳德·B·克里克因出色、有功和英勇的表现而获得了30枚纽约警察局奖章，其中包括纽约市警察局的英勇勋章。由于他在911袭击事件中和之后的工作表现，被英国女王伊丽莎白二世授予大英帝国最优秀勋章（CBE）和荣誉指挥官。
 
-[利沃夫市是乌克兰西部主要的工业和文化教育中心，乌克兰其他文化部门也在竭力保护艺术和文化作品。](https://www.ntdtv.com/gb/2022/03/06/a103366296.html)
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-秘翻新闻 二丫编辑报道
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-发布 : 恩典
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

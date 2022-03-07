@@ -2,44 +2,43 @@
 ---
 
 
-## SEC主席：中共250家企业可能在2024年被摘牌
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2118674/)
+## 俄罗斯炮击引发了欧洲最大核电站火灾
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2118750/)
 
-作者：银河系农场 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-15.png)
 
+图片来自原文
 
+俄军为控制乌克兰南部能源重镇安赫德（Enerhodar）与乌克兰军展开激烈地控制重要能源生产城市的战斗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+在普京的坦克袭击之后，引发了欧洲最大的核电站——扎波罗热核电站(Zeaporizhzhia)的火灾。
 
+扎波罗热核电站是欧洲最大核电站。该核电站提供乌克兰四分之一的电力。
 
+据当地政府称，工厂被俄罗斯人查封。俄军已接管了该工厂。
 
-据美国媒体3月5日消息，美国证券交易所SEC主席在本周接受采访时说，如果中共继续不遵守美国上市公司的规定，那么2024年预计会有250家中共公司被驱离美国股市，包括知名的中共大型科技公司阿里巴巴、百度、京东等。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide13.jpg)
-2020年，中共瑞幸的财务造假问题使美国投资者遭受了巨大损失。美国投资者意识到他们对中共公司的财务状况并不知晓，然而中共公司依然能够在美国股市进行自由交易，这种危机迫使美国出台相关法律，使中共公司或者退市，或者遵守财务透明规定，披露是否被外国政府持有或控制等相关讯息。
+当地市长说，火灾是由 “敌人的连续炮击 “引起的。
 
-SEC主席表示，在美国上市的公司必须遵守美国的投资者保护规则，中共公司当然不能例外，尤其要允许查看中共财务审计的内部情况，包括审计师本身。
+联合国原子能监督机构表示，在俄罗斯的袭击之后，没有放射性物质的释放。
 
-参考链接：
-[SEC Chair: Roughly 250 Chinese companies could be delisted ‘as early as 2024’](https://finance.yahoo.com/news/sec-chair-roughly-250-chinese-companies-could-be-delisted-as-early-as-2024-122037497.html)
+英首相说，这次袭击可能直接威胁到整个欧洲的安全。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+英副首相说，俄罗斯的袭击是一种完全卑鄙的行为。
 
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
+乌克兰总统沃洛季米尔-泽伦斯基(Volodymyr Zelenskyy)说，俄罗斯的人民，这怎么可能呢？我们一起对抗了1986年切尔诺贝利灾难的后果。你忘记了吗？如果你记得，你就不能保持沉默。告诉你们的领导，你们想活下去。
 
-**更多资讯，更多关注**
+乌克兰外交部长警告说，如果扎波罗热电厂 “爆炸”，它将比切尔诺贝利灾难大十倍。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+据报道，试图扑灭大火的消防员遭到了枪击。大火在肆虐了几个小时后，今天上午最终被扑灭。
 
+几个小时前，扎波罗热核电站的发言人Andriy Tuz说，俄罗斯的炮弹直接落在扎波罗热核电站，并点燃了该设施的六个反应堆中的一个。虽然该反应堆没有在使用。但里面有核燃料，确实存在着核危险的威胁。
 
+据法国总统办公室的一名官员称，普京告诉法国总统马克龙，他决心继续进行攻击，”直到最后”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+新闻来源链接：[https://www.lbc.co.uk/news/europes-biggest-nuclear-power-plant-fire-ukraine/](https://www.lbc.co.uk/news/europes-biggest-nuclear-power-plant-fire-ukraine/)
 
-
+本文作者：Rebecca (一切心皆不可得！)
+上传排版：Hong
 
  
 

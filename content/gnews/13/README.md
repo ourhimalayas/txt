@@ -2,48 +2,27 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（2月28日-3月6日）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2118670/)
+## 万事达、VISA在俄罗斯入侵乌克兰之后暂停在俄使用
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2118736/)
 
-作者：纽约香草山金融部 – ILOVE战神
+新闻链接：https://www.politico.com/news/2022/03/05/mastercard-visa-suspend-operations-russia-00014425
 
+翻译：金陵小生
+编辑发稿：am夏天
+德国纽伦堡正义农场
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-574.png)Mark Lennihan/AP Photo
+纽约 – 万事达和维萨周六表示，这两家公司将暂停在俄罗斯的业务，这是俄罗斯入侵乌克兰后对该国金融系统的最新打击。
 
+万事达表示，俄罗斯银行发行的卡将不再得到其网络的支持，任何在国外发行的卡都不能在俄罗斯商店或自动取款机上使用。
+Visa表示，它正在与俄罗斯的客户和合作伙伴合作，在未来几天内停止所有Visa交易。
+Visa董事长兼首席执行官艾尔-凯利在一份声明中说：”在俄罗斯无端入侵乌克兰，以及我们所目睹的不可接受的事件之后，我们不得不采取行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+暂停服务是本周早些时候采取的更有限的行动的后续行动，即阻止俄金融机构进入其支付系统的网络。俄罗斯人民已经受到了美国政府和其他国家施加的严厉制裁和金融惩罚的沉重打击。
 
+自从入侵乌克兰以来，俄罗斯货币卢布的价值已经暴跌了三分之一以上，达到了历史最低点。这推高了俄罗斯家庭的通货膨胀率，所有的恐惧都有助于造成自动取款机上的一些巨大的长队。
 
-
-过去一周喜马拉雅币价格在40美元左右浮动，平均日交易量约为7万枚喜币。喜币上市以来总交易量约2990万枚 ，占今年总发行量的仅约2.99%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide14.jpg)
-本周郭文贵先生在盖特视频中表示，俄乌战争后将诞生一个新的数字货币的金融时代，就像二战后诞生了布雷顿森林体系一样。采用去中心化技术，有稳定币、有锚定、不被垄断的数字货币才是人类真正的未来。郭先生还在直播中表示，喜币将不与任何邪恶势力为伍，是代表正义的货币。
-
-本周福布斯网站发布介绍喜马拉雅交易所的文章，标题为：“通过喜马拉雅交易所购买标志性的迈凯轮汽车提升了对加密货币的信任 — 车神塞纳驾驶过的受到高度追捧的赛车通过喜支付完成交易。” 文章表示，车神塞纳所驾驶过的赛车是世界上最具价值的收藏品，这笔交易体现了人们对喜马拉雅交易所，尤其是喜支付App不断增加的信任，也代表了人们对区块链技术不断增强的信念。文章指出，喜马拉雅交易所具有无国界、包容、安全的特点，是唯一一个将原生加密货币(HCN), 稳定币（HDO）, 和支付系统应用（HPay）整合在同一个平台的加密货币生态系统，它的使命是赋予每一个人掌控自己的财富、实现财务独立的能力。郭先生也在直播中表示，塞纳如有神助的，传奇的一生为这笔交易赋予了深远的意义。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture2-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture3-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture4-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture5.png)
-参考链接：
-1. [3月3号：尊敬的战友们好，明天是中国的农历二月初二……龙抬头，也是我母亲三年冥诞的日子，明天没有直播……文贵在此衷心地希望所有的战友．爱父母爱家人！](https://gettr.com/post/pxzpvd8eb7)
-2.[Purchase Of Iconic McLaren Vehicle Through Himalaya Exchange Raises Trust In Cryptocurrencies](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)
-3. [HIMALAYA PAY 网站](https://himalaya.exchange/himalaya-pay)
-4. [2022年3月6日 文贵大直播：新中国联邦营救行动意义；共产党给华人带来的危险；未来排华及保护华人安全；俄乌战争爆发与世界经济](https://gettr.com/post/pyhtnya292)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+由于俄罗斯对乌克兰的入侵，世界各地的许多其他公司也采取了行动，以增加俄罗斯及其人民的财政压力。一些公司正在出售其在俄罗斯公司的股份，如能源巨头英国石油公司，而其他公司如哈雷戴维森公司则停止了对该国的产品运输。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
