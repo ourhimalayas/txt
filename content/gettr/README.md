@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 2:12 AM (UTC)`
+
+2022.03.06 晚 GTV《新闻访谈》FDA败诉，辉瑞被迫公布所有疫苗副作用数据; 战乱中如何自救、逃难过程中需要知道的医学常识; 美国参议院通过决议以结束Covid-19国家紧急状态，纽约口罩强制令结束，如何正确佩戴口罩？
+![img](https://media.gettr.com/group7/origin/2022/03/07/02/561fa79c-4032-e868-a02f-89c7997b56e4/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/7/2022 1:33 AM (UTC)`
 
 2022.03.06 晚 新中国联邦新闻
@@ -146,12 +153,6 @@ The Axis of Five Evils Timeline <br/><br/>五大邪恶轴心国爆料时间线<b
 `@miles 3/5/2022 7:38 PM (UTC)`
 
 炸了！FDA败诉！辉瑞被迫公布所有疫苗数据！副作用足足有9页！全网惊呆…目前披露的文件中列出了1000多种不良反应，很多都是头一次看到，包括： 筋膜炎、眼部肿胀、面瘫、斑秃、过敏休克、妊娠过敏反应综合征、急性心肌病、急性呼吸衰竭、注射部位血管炎、癫痫、血栓、心律失常、关节炎、哮喘、支气管痉挛、心脏骤停、心力衰竭、胸部不适、窒息、急性皮肤红斑狼疮、急性脑脊髓炎、急性肾损伤、急性黄斑外层视网膜病变、再生障碍性贫血、慢性自身免疫性肾小球肾炎、慢性皮肤红斑狼疮、慢性自发性荨麻疹、溶血性贫血、结肠炎、皮炎、糖尿病、栓塞性脑梗塞、内分泌失调、新生儿重症肌无力、脊髓炎、非感染性卵巢炎、甲状腺炎、溃疡性直肠炎、眼部瘙痒症、生殖器疱疹、舌咽神经麻痹、出血性血管炎、宫颈炎、狼疮性膀胱炎、狼疮性脑炎、多发性硬化症等等。fried! FDA loses case! Pfizer forced to release all vaccine data! There are 9 pages of side effects! The whole network is stunned... There are more than 1,000 adverse reactions listed in the currently disclosed documents, many of which are seen for the first time, including: Fasciitis, swollen eyes, facial paralysis, alopecia areata, anaphylactic shock, ancardiomyopathy, acute respirator https://gettr.com/post/pyd4us8b82
-
----
-
-`@miles 3/5/2022 7:18 PM (UTC)`
-
-3月5号：-------0305 新中国联邦法治基金乌克兰救援最前线跟踪报道 Youtube精选视频汇总-------<br/><br/>【精选1】https://youtu.be/aS8dsRbL8J0<br/><br/>【精选2】https://youtu.be/h7YvQNF6QlE<br/><br/>【精选3】https://youtu.be/eXfPoaT4iBQ
 
 ---
 
