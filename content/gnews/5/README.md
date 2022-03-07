@@ -2,22 +2,29 @@
 ---
 
 
-## 俄罗斯接管乌克兰核电站 中断与国际原子能机构联系
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2118344/)
+## 国际柔道联合会解除普京总统的名誉主席等职务
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2118425/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片14.jpg)[图片来源](https://www.sankei.com/article/20220307-Q3ND6UNJQJN7HKKZ252W36UWWE/photo/6EKJZW3RAZONNCOPCYJTE35FEQ/)
-共同社维也纳报道，国际原子能机构（IAEA）3月6日发表声明称，收到了乌克兰方面的报告，乌克兰南部扎波罗热核电站的控制权置于俄军命令之下，互联网被切断，使得很难通过正常的沟通渠道获取信息。国际原子能机构执行秘书格罗西表示，他“非常担心”。
+2022-03-06
 
-电话线、电子邮件和传真无法正常工作。 手机可以用，但是获取信息不够全面。 食物供应也有问题。
+翻译：文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/03/VO4AFFQUNPU1F6SL.png)照片来源：https://www3.nhk.or.jp
+国际柔道联合会在网站上宣布，解除俄罗斯总统弗拉基米尔·普京联合会名誉主席等所有职务。
 
-罗西先生说，“监管机构和操作人员之间的可靠通信网络是核安全保障的重要组成部分。”
+根据日本NHK3月7日消息，国际柔道联合会6日更新了网页内容，在俄罗斯军事入侵乌克兰之后，IJF （国际柔道联合会）在网站上宣布，解除俄罗斯总统弗拉基米尔·普京(Vladimir Putin)担任的联合会名誉主席等所有职务。
 
-信息来源：[ウクライナ原発の連絡遮断　ロシア管理、IAEA懸念](https://news.yahoo.co.jp/articles/f156933debfaf098d799df9b2eb81b70a65ceb57)
+普京总统从13岁开始练习柔道，是一位取得了段位的高手，作为柔道爱好家，广为人知。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+国际柔道联合会上个月取消了在俄罗斯喀山举行的柔道国际赛事，同时宣布允许俄罗斯队员在不使用俄罗斯国旗或国歌的情况下参加比赛。
+
+消息来源：[国際柔道連盟 プーチン大統領の名誉会長など全職務を解任](https://www3.nhk.or.jp/news/html/20220307/k10013517941000.html)
+
+编辑：LILY
+发布：肥鯮
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

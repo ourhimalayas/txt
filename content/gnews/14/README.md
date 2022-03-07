@@ -2,26 +2,47 @@
 ---
 
 
-## 中日财经爆|俄罗斯威胁世界 其主权债务或将违约
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2118266/)
+## 新中国联邦从乌前线安全救出逾百名乌克兰儿童和老师
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2118314/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片10.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcloudfront-us-east-2.images.arcpublishing.com%2Freuters%2FETTB65D77ZJH7FXSDTN3S3TSHQ.jpg&amp;imgrefurl=https%3A%2F%2Fwww.reuters.com%2Fmarkets%2Frates-bonds%2Frussia-says-sovereign-bond-payments-will-depend)
-俄罗斯周日（3月6日）表示，其主权债券的偿付将取决于西方国家对该国实施的制裁措施。这令外界担忧，该国可能面临重大外债违约，相似场景出现在前苏联1917年十月革命后的几年中。
+**撰稿：青衣**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111-4.jpg)
+新中国联邦和法治基金乌克兰救援行动组刚刚成功地从乌克兰前线救出了96名乌克兰儿童及17名老师！
 
-俄罗斯财政部表示，从现在开始，俄罗斯将使用卢布向居民支付以外币计价的债券。向非居民支付这种款项的实际可能性，将取决于外国对俄罗斯联邦采取的限制性措施。由于俄政府的限制，俄罗斯或许无法进行债券支付。
+在战火纷飞的乌克兰，数以百万计的百姓正在努力逃离。然而，却有那么一群勇士“逆行”奔赴了乌克兰前线——他们就是新中国联邦和法治基金乌克兰救援行动组。
 
-在俄罗斯总统普京于2月24日下令军事入侵乌克兰后，其6,400亿美元储备大部分被西方冻结，这引发了俄罗斯技术性违约的可能性。
+新中国联邦前线救援队目前已成功救出了数辆大巴的中国同胞及各国求助人士。而目前最新的救助战报是：刚刚又成功救助了96名乌克兰儿童及17名老师！目前所有人员已乘坐专用大巴安全抵达位于波兰的新中国联邦法治基金安排的酒店入住。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/22-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/33-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/44.jpg)
+据新中国联邦喜马拉雅联盟日本东京方舟农场农场主“草根小哥”在推特上介绍：这96个乌克兰孩子，他们的父母选择留在乌克兰战斗，把孩子托付给了专门的机构。新中国联邦从乌克兰把这96个孩子和老师救了出来。现在已安排孩子和老师在波兰某酒店休息，随后会安排他们飞赴西班牙。所有救援费用，吃、住、包括飞机等等，都由新中国联邦支付。
 
-这可能是俄罗斯在一个多世纪以来首次重大债务违约。即使在苏联解体时，俄罗斯也承担了其外债。
+新中国联邦创始人郭文贵先生在盖特上发文盛赞这次行动。他写道：“感谢在前线的所有兄弟姐妹们！天地可鉴，人神共评。我们做的事情，就是新中国联邦人未来在全世界所扮演的角色，所要做的事情。”
 
-消息来源:
+无私、大爱、忘我、勇敢，这就是新中国联邦法治基金乌克兰救援行动组所展现出的新中国联邦人的形象。感谢这些最美丽的“逆行者”、救援天使，世界将铭记你们所做的一切。
 
-[俄罗斯警告主权债持有人 债券偿付要视制裁情况而定](https://cn.reuters.com/article/russia-sovereign-debts-warning-0306-sun-idCNKBS2L401H?il=0)
+滞留在乌克兰的中国同胞以及全世界各国需要帮助的友人，请速速拨打24小时救援热线或采用其他有效联络方式，新中国联邦和法治基金会竭尽所能免费为你们提供一切可能的救援帮助。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/55.jpg)
+**新闻链接：**
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+[https://gettr.com/post/pyktuo6409](https://gettr.com/post/pyktuo6409)
+
+
+
+> 这96个乌克兰孩子，他们的父母选择留在乌克兰战斗，然后把孩子托付给专门的机构，新中国联邦从乌克兰把这96个孩子和老师救了出来，现在已安排孩子和老师在波兰某酒店休息，然后会安排他们飞赴西班牙。所有救援费用，吃住包括飞机……都由新中国联邦支付。 [pic.twitter.com/ZDDp77lWH2](https://t.co/ZDDp77lWH2)
+> — 草根小哥（新号） (@caogenxiaogex) [March 7, 2022](https://twitter.com/caogenxiaogex/status/1500657572168503297?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 新中國聯邦
+> 前線救援實況：
+> 96名烏克蘭兒童及17名老師，剛剛獲救，已經平安到達酒店。
+> 繼續努力
+> 我們在行動‼️ [pic.twitter.com/KWRudjU0Mv](https://t.co/KWRudjU0Mv)
+> — 澳喜要闻（新号） (@ahnewspace) [March 7, 2022](https://twitter.com/ahnewspace/status/1500670423599808517?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

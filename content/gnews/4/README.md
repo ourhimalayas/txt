@@ -2,44 +2,81 @@
 ---
 
 
-## 锁链女牵出有祭坛有神论的徐州正掩盖与中央首长深关系
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2118349/)
+## 俄罗斯封锁了脸书和其他一些网站并通过了一项法律给莫斯科更大的权力打击独立新闻
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2118429/)
 
-Youtube视频链接：[https://youtu.be/96i3nk4EO3o](https://youtu.be/96i3nk4EO3o)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-51.png)周五，“百万民主时刻”在捷克共和国布拉格的温塞斯拉斯(Wenceslas)广场举行支持乌克兰的抗议活动(美联社图片）
 
-Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
-**郭文贵先生：**还有一个大家不要忘了，啥叫“无神论”？共产党让你不要相信任何神，“我是你的神”然后“我相信我的神”，这叫共产党的无神论！要么怎么能把盘古“龙头”变成“龟头”呢？还没加上睾丸的龟头儿，是吧？因为它说：“我是你的啊，我相信我的神啊”。
+据《新闻大全》2022年3月4日报道
 
-但这回事儿上你不要看“锁链女”的事情上，你知道“锁链女”现在国内发酵到什么程度了吗？你看她那个男人的背景了吗？你看他那个村里边有啥了吗？你们仔细看看，这个地方是最有神论的地方之一，没人发现。他们当地的官员你还没发现有什么背景的吧？徐州这个地方很邪乎的，徐州它的这个地方是所谓的“最有信仰”的，还是跟我们中央首长是有深关系的，现在在盖着呢。
+俄罗斯封锁了脸书(Facebook)和其他一些网站，并通过了一项法律，赋予莫斯科更大的权力打击独立新闻，促使英国广播公司(BBC)、彭博社(Bloomberg)和其他外国媒体暂停在该国的报道。
 
-所以说咱们政法委这哥儿们说：“你看着没有？再往上挖就成大政治了。” 共产党的“有神论”，在这块儿竟然有祭坛，有神论，这有多可怕！
+周六，随着俄罗斯军队包围和轰炸城市，乌克兰的战争持续了第十天，这是自二战以来对一个欧洲国家的最大攻击。
 
-编辑整理：Jacques；
+这场战争造成了超过100万难民，一连串的制裁越来越孤立莫斯科，西方担心几十年来未曾考虑过的更广泛的冲突。
 
-字幕文件制作：星塵；
+莫斯科表示，它的入侵是一项“特别行动”，旨在抓捕它认为危险的民族主义者，并否认以平民为目标。
 
-视频制作及上传：Cindy；
+俄罗斯装甲纵队在乌克兰首都基辅外停滞了数日之后，再次攻击改市。市中心传来爆炸声。
 
-G-News发布：小满；
+俄罗斯军队包围并炮击了东南部港口城市马里乌波尔(Mariupol), 一个关键的目标。 据市长瓦迪姆·博伊琴科(Vadym Boychenko)说，这里没有水、热或电，在遭受袭击五天后，食物正在耗尽。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+他说：“我们简直被摧毁了。”
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+弗拉基米尔·普京总统的行为几乎受到了全世界的谴责，许多国家实施了严厉制裁，因为西方在惩罚与避免扩大冲突之间进行了平衡。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+为了反击信息战，俄罗斯议会周五通过了一项法律，对故意传播有关军方的“假”新闻处于最高15年监禁。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+俄罗斯议会下议院杜马主席马主席维亚切斯拉夫·沃洛丁(Vyacheslav Volodin)说：“这项法律将对那些撒谎和发表诋毁我们武装部队名誉言论的人施加惩罚, 而且是非常严厉的惩罚。”
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+俄罗斯正在阻止脸书(Facebook)以及BBC、德国之声和美国之音的网站，限制国家支持的频道。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+美国有线电视新闻网(CNN)和哥伦比亚广播公司(CBS)新闻表示，他们将停止在俄罗斯的广播，其他媒体在评估情况时删除了俄罗斯记者的署名。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**更多制裁在即？**
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+乌克兰总统泽连斯基预计将在美国东部时间周六上午9点30分(格林威治标准时间1430分)与美国参议院全体成员举行Zoom电话会议中向华盛顿施压，寻求更多帮助。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+因为立法者正在快速通过一项禁止俄罗斯能源进口的法案，美国正在权衡削减俄罗斯石油的进口，以及如何尽量减少对全球供应和消费者的影响。由于对供应紧张的担忧，本周全球油价飙升超过20%。
+
+在周五的一次会议上，北约盟国拒绝了乌克兰设立禁飞区的呼吁，称他们正在增加支持，但直接介入可能会使局势恶化。
+
+北约秘书长延斯·斯托尔滕贝格(Jens Stoltenberg)说：“我们有责任防止这场战争升级到乌克兰以外，因为那将更加危险、更具破坏性，并会造成更多的人类苦难。”
+
+泽连斯基用“软弱”和“困惑”来抨击此峰会”。
+
+他说，“很明显，并不是每个人都认为争取欧洲自由的斗争是首要目标”。
+
+爱尔兰外交部长西蒙·科夫尼(Simon Coveney) 表示，更多欧盟制裁措施即将出台，可能包括禁止悬挂俄罗斯国旗的船只进入欧洲港口，并阻止钢铁、木材、铝或煤炭的进口。
+
+塔斯社(Tass news agency)称，俄罗斯国防部长谢尔盖·绍伊(Sergei Shoigu)周五告诉联合国秘书长安东尼奥·古特雷斯(Antonio Guterres)，与乌克兰就和平结束冲突的谈判“没有从起点开始”。
+
+**人道主义灾难**
+
+一场人道主义灾难正在发生，超过100万人在乌克兰西部和邻国寻求避难。
+
+周五对位于马里乌波尔(Mariupol)以西约140英里(230公里)欧洲最大的扎波里日亚核电站的袭击，使冲突陷入危险时刻，但官员后来表示，该设施是安全的。
+
+莫斯科驻联合国特使说，该工厂和邻近地区目前由俄罗斯军队守卫。
+
+美国驻联合国大使琳达·托马斯-格林菲尔德(Linda Thomas-Greenfield)说，世界勉强地避免了一场核灾难。
+
+她在联合国安理会紧急会议上表示，这次袭击反映了俄罗斯入侵“危险的新升级”，并要求莫斯科保证此类袭击不会再次发生。
+
+俄罗斯军队在南部取得了最大的进展，本周他们在那里占领了乌克兰第一座大城市赫尔松(Kherson)。 最近几天，东北部城市哈尔科夫(Kharkiv)和切尔尼戈夫(Chernihiv)的爆炸事件更加严重。
+
+乌克兰总统顾问奥列克西·阿列斯托维奇（Oleksiy Arestovych）表示，在南部港口尼古拉耶夫(Mykolayiv)的推进已经停止。 如果被占领，这座拥有50万人口的城市将是迄今为止沦陷的最大城市。
+
+原文链接：
+
+[https://www.newsmax.com/newsfront/russia-media-crackdown-facebook/2022/03/04/id/1059755/](https://www.newsmax.com/newsfront/russia-media-crackdown-facebook/2022/03/04/id/1059755/)
+
+
+
+
+
+翻译：飞利普 |校对：烟波浩淼 | 编辑&发布：闪电训练
 
  
 
