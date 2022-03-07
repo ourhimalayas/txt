@@ -2,25 +2,36 @@
 ---
 
 
-## 有声｜俄罗斯普京当局拘捕超过4300名反战抗议人士
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2118983/)
+## Netflix、TikTok宣布暂停在俄服务
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2119021/)
 
-**By:秘翻新闻**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**2022-03-07**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7777777.png)图片源自:路透社
-[路透社](https://www.reuters.com/world/europe/more-than-64-people-detained-anti-war-protests-russia-protest-monitor-2022-03-06/)3月6日报道，本周日，在俄罗斯全国范围内抗议普京入侵乌克兰的示威活动中，警方拘留了4300多人。在社交媒体上发布的视频显示，成千上万的抗议者高呼：不要战争！你真丢脸！
+整理：围剿维尼熊
+编辑：木木木mmmmm
 
-俄罗斯官媒称，毗邻克里姆林宫的莫斯科马涅日尼亚广场已被警方清场，警方逮捕了一些未经批准抗议乌克兰战争的示威者。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0156.png)图片来源：netflix官网
 
-俄罗斯一家由当局控制的民调机构表示，截至2月27日的一周内，普京的支持率上升了 6个百分点至 70%。另一家为克里姆林宫提供研究的民调机构表示，普京的支持率在同一时期上升了 7 个百分点至 71% 。该数据公布后在互联网世界掀起轩然大波，令人不禁想起一向以公然造假而闻名于世的中国共产党，所谓民调机构已经和俄罗斯的国家杜马机构一样，沦为了举手机器和独裁者普京的橡皮图章。
 
-（ 秘翻新闻 清风先生 编译报道 ）
+根据联合新闻网3月7日报道，俄罗斯入侵乌克兰遭到全球抵制，如今Netflix和TikTok等媒体平台也加入行列，暂停旗下所有俄语服务。
 
-发布:星星
+彭博报导，Netflix的发言人表示，决定暂停在俄罗斯的服务。Netflix在俄罗斯拥有超过100万名用户，但目前已无法注册新会员。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+而短视频平台TikTok也宣布暂停俄罗斯当地的直播并限制上传新视频，借此回应俄罗斯的最新法案，该法案威胁以“传播假新闻”为由判处最高15年的监禁。
+
+TikTok在声明中提到：我们的首要任务是保护员工和用户的安全，鉴于俄国新的假新闻法“我们别无选择”，只能暂停在俄服务。
+
+参考链接：[Netflix和TikTok暂停旗下所有俄语服务](https://udn.com/news/story/6809/6145342?from=udn-catebreaknews_ch2)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

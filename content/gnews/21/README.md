@@ -2,31 +2,30 @@
 ---
 
 
-## 今日盖特大V推荐 — 安·库尔特（Ann Coulter）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2118652/)
+## 清华校友联署取消普京名誉博士学位
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2118729/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-567.png)
-盖特链接：**[https://gettr.com/user/anncoulter](https://gettr.com/user/anncoulter)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-8.jpg)清华校友联署取消普京名誉博士学位 网络图片
+据自由亚洲电台3月6日报道，一封由叶四舟、孙怒涛领衔共210名清华校友连署的公开信，强烈呼吁校方公开声明，取消普京的名誉博士学位。同时表示，授予普京名誉博士学位是清华大学的耻辱，清华校友也为之蒙羞。
 
-**安·库尔特克自述：**
+公开信指出，普京是个战争狂人。他发动过对车臣、克里米亚、乔治亚等战争，最近又悍然发动了对乌克兰的战争。这是一场“赤裸裸的侵略战争”，遭到了全世界绝大多数国家的反对和谴责。
 
-作家
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-568.png)图片来源：网络
-**安·库尔特简介：**
+据悉，2019年4月26日，清华大学授予普京名誉博士学位，以表彰他在“维护世界和平与促进人类进步事业”方面做出的“杰出贡献”。
 
-安·库尔特，全名安·哈特·库尔特（Ann Hart Coulter 生于1961年12月8日）是美国保守派媒体专家、作家、联合专栏作家、政治评论员和律师。
+新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/10-03062022150124.html](https://www.rfa.org/mandarin/Xinwen/10-03062022150124.html)
 
-安·库尔特在1990年代后期以媒体专家的身份而闻名，作为对克林顿政府的直言不讳的批评者出现在印刷品和有线新闻中。库尔特写了13本书，出版了一个联合报刊专栏。她的第一本书涉及弹劾比尔·克林顿（Bill Clinton）。
+* * *
 
-安·库尔特曾在美国参议院司法委员会工作。她还是美国一家非营利性公益律师事务所“个人权利中心（CIR ）”的律师。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

@@ -2,32 +2,32 @@
 ---
 
 
-## COVID-19 最新情报｜金球奖影帝“火箭人”倒在舞台上 网民疑与疫苗副作用有关
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2118751/)
+## 俄罗斯部队使用神秘的Z字标记引热议
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2118866/)
 
-**撰文｜疫情关注组 / 发布时间｜07/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/金球獎影帝「火箭人」倒在舞台上-網民疑與疫苗副作用有關.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
+撰稿：东京樱花团/待命（文晓）
 
-英国32岁金球奖影帝泰隆·艾格顿（Taron Egerton）在当地时间5日晚上在出演伦敦大剧院首场舞台剧《公鸡》期间倒在地上，现场工作人员见状迅速拉下布幕遮掩，表演因此停止近40分钟，最后由另一名演员乔尔·哈珀·杰克逊（Joel Harper Jackson）代替出演最后15分钟。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯部队使用神秘的Z字标记引热议.png)
 
-舞台剧制作单位发声明指，所幸观众席中有医务人员上前及时施救，泰隆的身体已没有大碍。
+3月7日时事通信社消息：部署在乌克兰的俄罗斯军车上用白色喷漆标记的“Z符号”引热议。
 
-当事人泰隆翌日早上（6日）在个人IG上表示，目前身体已经无恙，并怀疑自己当时昏倒是因为入戏太深，造成身体无法负荷，另外，他透露自己将会继续出演该舞台剧的剩余场次。
+由于俄罗斯和乌克兰都是前苏联的成员，共享一些相同的武器，普遍的看法是，这是 “为了避免对友军的误射”（美国报纸《华盛顿邮报》）。 从被乌克兰军队摧毁的车辆上也可以看到这些标记的存在。
 
-不过，网民似有不同见解，有人翻出去年上半年泰隆接种 COVID-19 疫苗的照片，怀疑今次事件与疫苗副作用有关。
+坦克和直升机上也有标记。但有些不同，如’Z’、’V’和’O’，有些人认为它们表示所属单位。然而，一位乌克兰东部亲俄武装力量的一名前高级成员证实”Z标记的含义是保密的”，目前真相不明。
 
+在2014年吞并乌克兰南部的克里米亚半岛时，没有徽章的部队作为 “治安员 “行动。 这一次，”Z “符号已经成为俄罗斯军队在国内和国外的象征。
 
+在人们的关注下，俄罗斯国防部利用它来渲染普京总统提出的 “军事行动”。在其官方Instagram页面上，解释说这是俄语中 “为了胜利 “的 “Z “和 “任务将完成 “的 “V”，但这被认为是事后杜撰。
 
-> 📸 Taron getting vaccinated via Instagram (April 16th, 2021) [pic.twitter.com/dEqqGKVIuH](https://t.co/dEqqGKVIuH)
-> — Taron Egerton (@DailyTaronNews) [April 17, 2021](https://twitter.com/DailyTaronNews/status/1383341355896741888?ref_src=twsrc%5Etfw)
+其他俄罗斯军事专家提出的理论是，它们是乌克兰总统Wlodimir (V) Oleksandrovich (O) Zelensky (Z)的首字母，普京称其为 “法西斯 “并视其为敌人。泽伦斯基先生也承认，自己是 “敌人的头号目标”。
 
+而根据俄罗斯国家媒体分发的照片，国内出现了支持该政权的标志，上面写着Z符号，表示’我们不会抛弃我们的人’。
 
+信息来源：[ロシア軍、謎のZマーク　友軍への誤射回避狙いか　ウクライナ（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/dcfeb78ad7d22eb4255e98e4d99cc0d7ae79e4e4)
 
-因为今年32岁的泰隆正值壮年，加上《公鸡》并无打斗戏分，按理无论如何入戏都不可能会昏倒，最有可能的解释是，泰隆和近段时间其他无故倒在地上的人一样，是疫苗副作用诱发的疾病所致。
-
-来源｜[独立报](https://www.independent.co.uk/arts-entertainment/theatre-dance/news/taron-egerton-faint-london-cock-b2029494.html)
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
