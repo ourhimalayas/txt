@@ -2,35 +2,32 @@
 ---
 
 
-## 有声|新中国联邦在乌克兰租用大巴救人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2121024/)
+## 乌总统夫人指证俄军杀害儿童 新中国联邦连夜救出96名儿童送抵波兰
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2121162/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美东时间3月4日晚7点左右，新中国联邦法治基金乌克兰人道救援行动在盖特进行了一次大直播。在直播中我们看到，目前到达前线的队伍有英喜团队、纽伦堡团队，除去补给方面的救援，前线也现在开始租用大巴深入乌克兰内部去救人，截止到直播时间，已经救出一车被困人员。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-515.png)
-主持人战友向观众详细介绍了租用大巴救助人员的情况。
+**撰稿：日本东京方舟农场 Kevin wang**
 
+3月6日，乌克兰总统泽伦斯基的妻子欧伦娜在Instagram上发布照片指证有俄军杀害儿童，并呼吁国际媒体关注此事。翌日凌晨，新中国联邦救援队成功从乌克兰境内救出96名儿童与教师。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-78.png)（图片来自欧伦娜的instagram）
+中央社报道，欧伦娜．泽伦斯基在Instagram发布5名在俄军攻击中惨遭杀害的儿童照片。欧伦娜指出，她发布照片中的5个孩子，年龄最大的14岁，最小的才18个月大。
 
+欧伦娜在照片旁留言：我向全世界所有公正的媒体发出请求！请告诉大家这个可怕的事实：俄罗斯侵略者正在杀害乌克兰儿童。
 
-文字版原文：[新中国联邦在乌克兰租用大巴救人](https://gnews.org/zh-hans/2115150/)
+她还写道：把这些照片给俄罗斯妇女们看，妳们的丈夫、兄弟、同胞正在杀害乌克兰儿童！把这事告诉俄罗斯的母亲们，让她们知道她们的儿子究竟在乌克兰做什么。 让她们知道，她们对每一个乌克兰儿童的死亡都有责任，因为她们默许这些罪行发生。就在此时此刻，这个数字可能正在增加，因为我们和平的城市正遭到炮击！
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+就在欧伦娜在Instagram上发出拯救儿童信息后的翌日凌晨，新中国联邦与法制基金组建的乌克兰紧急救援队，成功协助乌克兰一所儿童福利机构将96名儿童与数名教师顺利转移至波兰。新中国联邦救援队的负责人表示，孩子们与老师已入住酒店，稍事休息后将送往西班牙巴塞罗那。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+据悉，该救援组织仍在持续的救援当中，并对救出的民众提供30天的免费食宿。部分被救民众呼吁大家尽快传播救援队联系方式，从而救出更多难民。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+官方估计，截至目前，至少38名乌克兰儿童已在冲突中丧生。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+参考链接：
+1.[https://www.cna.com.tw/news/aopl/202203070333.aspx](https://www.cna.com.tw/news/aopl/202203070333.aspx)
+2.[https://gettr.com/post/pyn832fbad](https://gettr.com/post/pyn832fbad)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+撰稿：Kevin wang
+总编：老孙
+校对发布：爱放飞
 
  
 

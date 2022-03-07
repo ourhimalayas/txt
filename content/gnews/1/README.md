@@ -2,10 +2,25 @@
 ---
 
 
-## 3/6/2022 文贵直播: 战友要做好准备应对世界经济崩溃对华人的影响和中共攻打台湾的恶果；新中国联邦人要跳出主流媒体和西方政府定的标准
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2121190/)
+## 视频|新中国联邦在乌克兰的救援信息
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2121395/)
 
-秘密翻译组-北美组
+制作：香草山视频部
+
+鉴于目前乌克兰局势日益恶化，新中国联邦救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
+
+自当地时间3月5日起，乌克兰免费救援巴士将于每天下午1点准时从利沃夫出发，前往波兰克拉科夫。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+
+求助方式请参考以下视频。
+
+[https://mega.nz/file/Nw4QzThA#fliTnPibSq4VUl3oII5XPZ2OOflXVF\_zfEqcLIG2OtA](https://mega.nz/file/Nw4QzThA#fliTnPibSq4VUl3oII5XPZ2OOflXVF_zfEqcLIG2OtA)
+
+发稿：谐趣园
+
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

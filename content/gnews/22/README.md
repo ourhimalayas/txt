@@ -2,25 +2,33 @@
 ---
 
 
-## 俄乌战争导致的金融风暴
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2120786/)
+## 日本名古屋医师会医生反对给儿童接种疫苗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2121031/)
 
-**编译：verifunny**
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月4日，日本名古屋医师会成员浅井院长，以及前医师会医疗安全顾问宫治医生在接受媒体采访时指出，他们不会同意对5至11岁儿童接种中共病毒疫苗的做法。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-11.jpg)
+其原因在于，首先，儿童在感染中共病毒后很容易康复，真正恶化到重症甚至死亡的病例少之又少。目前，所有的中共病毒疫苗都处于实验性阶段。这意味着，所有医生都不清楚中共病毒疫苗的毒副作用。浅井院长透露，许多医生都是抱着非常恐惧的心理，在给人们接种。
 
-当俄乌战争爆发后，金融系统尤其是欧盟国家，将面临更严峻的考验。中共病毒已经打乱了经济的正常运行，再加上战争导致的高物价和低消费的情况，会使欧盟脆弱的经济动荡不安。
+无论是接种疫苗还是其他医疗行为，站在医生以及患者的角度考虑，都是把安全性排在第一位，之后才是让社会安心、以及得到治愈后的满足感。然而，在接种中共病毒疫苗上，却打乱了上述顺序，把“让社会安心”排在了首位。这两位医生还强调，现在日本政府最该做的，就是先确认疫苗的安全性。
 
-债务多低生产力的问题继续加剧。以下是2020 欧盟国家国债与生产总值的比例。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-19.png)
-[https://www.statista.com/statistics/269684/national-debt-in-eu-countries-in-relation-to-gross-domestic-product-gdp/](https://www.statista.com/statistics/269684/national-debt-in-eu-countries-in-relation-to-gross-domestic-product-gdp/)
+参考链接：[20220304日本CBC採訪反對給兒童接種的名古屋醫師會醫生](https://www.gettr.com/post/pyguvhd574)
 
-**以下是欧盟国家2021的债务增值的情况：**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/44-1.jpg)
-[https://www.statista.com/chart/26729/change-in-government-debt-european-countries-pandemic/](https://www.statista.com/chart/26729/change-in-government-debt-european-countries-pandemic/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-油价暴涨，超印纸币，低迷的生产力和消费会渐渐使到经济无法平衡债务的负荷。新生的生意会越来越少，劳动市场将紧缩。违约的风险渐渐地加大，大到多米诺骨牌倒闭效应随时可能发生，因为金融衍生品的复杂性是难以理解的。欧盟那套以中央银行买债务的手段会越来越无效，因为超印纸币让通货膨胀和通货萎缩一起加剧，越来越多人无法维持基本生活方式。
+总编: 文真
+编辑: Jack Li文阳   
+审核: 文真
+校正/发稿：Fei797
 
-非常同意七哥的世界经济崩溃的观点。我本人虽然是经济小白，但是我大胆的预测金融风暴会从欧盟开始蔓延开来。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
