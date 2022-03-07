@@ -2,31 +2,46 @@
 ---
 
 
-## 【每日聚焦】俄乌战事3月6日简要(二)
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2117260/)
+## Three News on March 6th, 2022
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2117311/)
 
-**撰稿：蓝莲花农场 文斌**
+Translator: 大菠萝
+Proofreader: marklism
 
-1、Vinnytsia（文尼察）：10分钟前防空警报再一次响起。9小时前文尼察曾经遭受8枚巡航导弹袭击，针对的是其机场目标。乌克兰国防部称，针对文尼察的巡航导弹袭击是从黑海的俄军舰发射的，其轨迹穿过外德涅斯特里亚。文尼察位于乌克兰中部，也是重要的交通补给线枢纽。此外，还有其他乌克兰西部城市包括Ivano-Frankivsk、Lutsk等地也拉响防空警报。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-61.png)Picture source: The Economist
 
-2、对白俄罗斯军用机场的监测表明，又有两架俄罗斯A-50s预警机抵达距基辅约420公里的白俄罗斯巴拉诺维奇空军基地。
 
-3、切尔尼戈夫：3小时前该地区遭受无差别猛烈炮击。
+1. Russia-Ukraine war aggravates world food crisis and inflation.
 
-4、扎波罗热：国际原子能机构（IAEA）说，俄军已经关闭了扎波罗热核电站的一些移动网络和互联网。说工厂的食品供应有问题，IAEA无法获得有关工厂的 “可靠信息”。
 
-5、昨天，在乌克兰南边和东部又有多地民众抗议俄罗斯入侵，这些地区都是传统的亲俄区，尤其是在卢甘斯克州北部的诺沃普斯科夫州，州长说，俄罗斯士兵在昨天的和平集会中打伤了5个平民。
+Let’s look at a set of data: Russia accounts for 11.3% of the global crude oil export, 16.2% of global natural gas export, 26% of global wheat export, 20% of global corn export, the first of nitrogen fertilizer export, the second of tin fertilizer export, the third of phosphate fertilizer export, 49% of global nickel export, and 42% of global palladium exports.
 
-6、一小时前，红十字国际委员会：乌克兰马里乌波尔的平民安全通道 “被中止”；马里乌波尔市当局叶说由于俄罗斯的不间断轰炸，无法进行疏散平民工作。
+The EU depends on Russia the most worldwide. Ukraine is an important breadbasket for the world, but now due to the war between Russia and Ukraine, the following week is supposed be the time to plant crops in Ukraine, and if the timing of sowing is lost this week, the harvests will be greatly impacted, however, under the current war situation, it is obvious that no one will still go to sow, which means there will be a big shortage of food next year.
 
-7、苏梅两分钟前拉响空袭警报。
+Agricultural fertilizers come from oil, and now Russia is at war with Ukraine, which will certainly lead to a big increase in the price of oil, and once the price of oil goes up, the price of fertilizers will go up, and then the price of food will go up. Therefore, the world food crisis is coming soon.
 
-校对：文斌 / 发布：一叶知秋
+China relies on importing about 30 to 40 percent of food every year, and now the foreign exchange is declining and food price is also rising. Will China be able to import enough food then? I wonder how many Chinese people will suffer from starvation during the coming food crisis.
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+2. Vaccine dominoes begin to fall.
+
+The FDA lost the case in Texas and Pfizer was forced to disclose the data of vaccine: 46,000 people had participated in the experimental study, among whom 42,000 people (91.30%) had adverse reactions, and 1,200 people (2.61%) died, the percentage of which is higher than that of the global mortality rate of the Covid-19.
+
+At the same time, the side effects listed in the document are written for nine full pages. There are more than 1,000 adverse reactions listed in the currently disclosed documents, many of which are seen for the first time, including: fasciitis, eye swelling, facial paralysis, baldness, anaphylaxis, allergic reaction syndrome in pregnancy, acute cardiomyopathy, acute respiratory failure, injection site vasculitis, seizures, blood clots, arrhythmia, arthritis, asthma, bronchospasm, cardiac arrest, heart failure, chest discomfort, asphyxia, acute cutaneous lupus erythematosus, acute encephalomyelitis, acute kidney injury, acute macular outer retinopathy, aplastic anemia, chronic autoimmune glomerulonephritis, chronic cutaneous lupus erythematosus, chronic spontaneous urticaria, hemolytic anemia, colitis, dermatitis, diabetes mellitus, embolic cerebral infarction, endocrine disorders, neonatal myasthenia gravis Myelitis, non-infectious ovarian inflammation, thyroiditis, ulcerative proctitis, ocular pruritus, genital herpes, glossopharyngeal nerve palsy, hemorrhagic vasculitis, cervicitis, lupus cystitis, lupus encephalitis, multiple sclerosis, etc.
+
+FDA regulates that if one case of death happens within 30 days after an experimental trial drug is given to the testees, the experiment should be ended. But this time the experiment had not been stopped. Why?
+
+3. Australian health officials now admit that people vaccinated by the COVID-19 vaccines are now dying from myocarditis. Shane Warne, the famous cricket legend star, passed away suddenly at the age of 53 from a suspected heart attack.
+
+Original Article: [**2022****年3****月6****日新闻三则 – GNEWS**](https://gnews.org/zh-hans/2112609/)
+
+Published by:tianzhihuan
+
+**More Information from Australia Melbourne Athena Farm****：****
+**[Australia Melbourne Athena Farm Twitter](https://twitter.com/HimalayaAthena1)：
+[Australia Melbourne Athena Farm Gettr](https://www.gettr.com/user/himalayaathena)：
+[Australia Melbourne Athena Farm YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[Australia Melbourne Athena Farm Discord](https://discord.gg/dKQ6vFY9Fu)
+[Australia Melbourne Athena Farm GTV Livestream No.1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
