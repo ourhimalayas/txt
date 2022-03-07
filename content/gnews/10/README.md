@@ -2,16 +2,16 @@
 ---
 
 
-## 樱花头条┃哈尔科夫政府大楼（市中心）被俄罗斯导弹击中
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119919/)
+## 樱花头条┃拜登宣布对俄罗斯飞机关闭美国领空等
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2120056/)
 
 撰稿：东京樱花团/樱花传媒
 
-乌克兰第二大城市哈尔科夫市政府大楼被炮击。
+拜登宣布对俄罗斯飞机关闭美国领空。欧盟已发布文件禁止俄罗斯航空公司的飞机在欧盟境内降落、起飞或飞越领空。
 
-[信息来源](https://www.gettr.com/post/pxitcl3e88)
+[信息来源](https://www.gettr.com/post/pxqyak5b10)
 
-*校对：东京樱花团/asket、keyboard racing*
+*校对：东京樱花团/asket*
 *发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  

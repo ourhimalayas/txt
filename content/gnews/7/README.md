@@ -2,17 +2,17 @@
 ---
 
 
-## 樱花头条┃俄罗斯驻日本大使馆前 百余人抗议入侵乌克兰
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119977/)
+## 樱花头条┃乌克兰数字信息部长感谢ELON MUSK的星链技术
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2120125/)
 
 撰稿：东京樱花团/樱花传媒
 
-俄罗斯驻日本大使馆前，百多人抗议入侵乌克兰。
+烏克蘭副總統兼數字信息部長发推特感谢Elon Musk，称已收到其提供的星連技術Starlink。
 
-信息来源：[https://www.gettr.com/post/pxdjdg665c](https://www.gettr.com/post/pxdjdg665c)
+[信息来源](https://www.gettr.com/post/pxi5mq7a37)
 
-*编辑：东京樱花团/asket、春华秋实
-发布：东京樱花团/平安卿卿*
+*编辑：东京樱花团/asket、春华秋实*
+*发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 

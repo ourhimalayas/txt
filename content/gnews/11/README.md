@@ -2,81 +2,51 @@
 ---
 
 
-## 中共不倒，没脸过三八节
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2119889/)
+## 新西兰财经G乐部2022年3月7日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2120022/)
 
-作者：香草山健身部-新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-转眼到了女神节，
-今年的三八节，
-随着江苏的第五通告在历史上印上了耻辱，
-爆发出一条条铁链锁住了多少女人的脖子，
-锁住了女人的尊严，
-锁住了做人最基本的权利，
-沦陷为畜生道的生殖器，
-被奸污，被当生育器，
-这还是二十一世纪的世界吗？
-人都说丰县是制恶的头，
-人都说徐州为了上下官帽以假乱真，
-其实中国人所有的灾难都是那万恶之源，
-中国共产党炮制的。
-中共不倒，
-也许还在学校玩耍的孩子转眼被一记闷棍拖进了地狱，
-中共不灭，
-也许刚刚一家人欢愉的相聚，
-转身就被“捡”走了女孩，
-走上了被人当性奴的路上。
-中共不亡，
-光身子锁在地洞裹着被子的精神恍惚的女人就无法断绝。
-也许就在我们开心购物的时候，
-有些如花的女孩被套上了冰冷的铁链子，
-锁在了一个个铁笼子里露出恐惧、悲惨的眼神。
-地狱也没有如此的残忍，
-被丑陋的蛆虫长期的暴力奸淫，
-在狭隘的空间暗无天日的爬行，
-无边无际的罪恶岁月，让本纯洁的六月雪花凋零，
-揉烂飘落在满地恶丑的污垢中，
-让一个个正常的女人丧失了语言的表达能力，
-到最后连站力能力，思考能力都退化，
-成了一个个绝望的牲口。
-打入在人间的十八层地狱。
-地狱尚有轮回，
-这食不果腹，衣不蔽体，被强迫生育的惨剧却没有终点。
-三八节应该是快乐的，健康的，
-是庆祝女人为家庭、为社会带来稳定、昌盛的一种方式，
-是尊重女人，表达爱意的节日，
-而现代的性奴社会，
-中共把三八节变成了女人的耻辱节，
-这是全体女人的耻辱，
-也是全体男人的耻辱，
-更是整个社会的耻辱，
-也是民族之耻辱。
-这里的耻辱不是单单指那些因为暴力失去贞操，
-因为拔牙、割舌的悲惨女人命运，
-更是指这个烂透了的体制，
-丧失的人权、自由、尊严，法制，
-拖着中国人往万丈深渊走去，
-该歼灭中共了，
-该为天下的女性安全奋起反抗了，
-愿我们的社会恢复健康的步伐，
-同胞们，不要再被蒙蔽了心智，
-醒来吧，醒来，
-一起消灭中国共产党，
-为子孙后代创造美好的生活！
+采集整理：蚂蚁的城堡
 
+提纲：
 
+1、IMF工作人员关于乌克兰战争经济影响的声明
 
-审核/编辑/发稿:qiutian（邱甜）
+2、世茂集团15城24公司商票逾期，加速自救”卖卖卖”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+3、莆田首富自救：本月到期债务还不上，甩卖超30亿元资产回血
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4、美国与欧洲盟友讨论禁止进口俄罗斯石油
+
+正文
+
+1、IMF工作人员关于乌克兰战争经济影响的声明
+![img](https://media.gettr.com/group28/origin/2022/03/07/01/f2378f6d-6d6f-d05f-0cd0-4def6457c216/3da05f236955ce84248c4780299be031_500x0.png)
+乌克兰战争的经济影响,虽然目前局势仍在快速变化、未来前景充满极大的不确定性，但有关经济后果已经非常严重。能源和大宗商品（包括小麦等谷物）价格飙升，进一步加剧了源于供应链扰动和疫情后复苏带来的通胀压力。价格冲击波及全球，对贫困家庭的影响尤甚——这是因为食品和燃料在其开支中的比例更大。如果冲突升级，那么相关经济损失的破坏性将更大。针对俄罗斯的制裁措施将对全球经济和金融市场产生重大影响，对其他国家也将产生重大的溢出效应。
+
+链接：[https://www.imf.org/zh/News/Articles/2022/03/05/pr2261-imf-staff-statement-on-the-economic-impact-of-war-in-ukraine](https://www.imf.org/zh/News/Articles/2022/03/05/pr2261-imf-staff-statement-on-the-economic-impact-of-war-in-ukraine)
+
+2、世茂集团15城24公司商票逾期，加速自救”卖卖卖”
+![img](https://media.gettr.com/group41/origin/2022/03/07/01/ac4fc896-3a53-ef85-6ad7-cf4f753d960b/59e9f89d4f8a84330cf30d688705ef40_500x0.png)
+多个公开报道显示，世茂集团在全国有15城24个公司出现商票持续逾期，逾期余额少则数十万，多则数千万元。就涉及城市和公司数量而言，目前其在所有房企中排首位。这一情况的依据来源，是3月3日上海票交所公布的一组逾期名单。这份逾期名单的定义是“ 2021年9月1日至2022年2月28日出现3次以上付款逾期，且截至2022年2月28日有逾期余额或2022年2月当月出现付款逾期的承兑人”。可以看到，近期已“爆雷”或将“爆雷”的花样年、奥园、阳光城、新力、正荣等房企均榜上有名，但其中涉及项目数最多的是世茂集团。
+
+链接 ：[https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-07/doc-imcwipih7023410.shtml](https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-07/doc-imcwipih7023410.shtml)
+
+3、莆田首富自救：本月到期债务还不上，甩卖超30亿元资产回血
+![img](https://media.gettr.com/group16/origin/2022/03/07/03/57c2ccfc-7525-919a-91b3-9afa9d55136f/231a05388d7e1571bb058c175e8056b5_500x0.png)
+莆田首富的宝座还没坐稳，正荣地产实际控制人欧宗荣和他创立的正荣地产一同陷入困境。一笔2亿美元的永续债突然“爽约”，让这家闽系千亿房企，迎来资本市场的至暗时刻。3月4日，正荣地产发布公告称，将延迟2月21日到期优先票据展期同意截止日期，延长至伦敦时间3月11日下午4时。
+
+链接：[https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-07/doc-imcwiwss4518801.shtml](https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-07/doc-imcwiwss4518801.shtml)
+
+4、美国与欧洲盟友讨论禁止进口俄罗斯石油
+![img](https://media.gettr.com/group48/origin/2022/03/07/04/8e538792-115c-6f8a-84c1-90a0ccd6b336/14d8e590e42416560fbfe0db63b73c32_500x0.png)
+3 月 7 日（路透社）——美国国务卿安东尼·布林肯 (Antony Blinken) 周日表示，美国和欧洲盟国正在探索禁止进口俄罗斯石油，白宫与主要的国会委员会协调推进自己的禁令。一位熟悉讨论情况的消息人士周日告诉路透社，欧洲在原油和天然气方面依赖俄罗斯，但在过去 24 小时内对禁止俄罗斯产品的想法变得更加开放。根据美国能源信息署 (EIA) 的数据，2021 年美国平均每月从俄罗斯进口超过 2040 万桶原油和精炼产品，约占美国液体燃料进口量的 8%。
+
+链接 ：[https://www.reuters.com/business/energy/us-europeans-discussing-banning-russian-oil-imports-blinken-says-2022-03-06/](https://www.reuters.com/business/energy/us-europeans-discussing-banning-russian-oil-imports-blinken-says-2022-03-06/)
+
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
+
+上传排版：文勇
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

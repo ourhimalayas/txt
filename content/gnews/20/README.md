@@ -2,47 +2,32 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2119732/)
+## 痛彻心扉的感悟
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2119797/)
 
-**整理：枳实**
-**美工：精灵蓝**
+作者：霖霖
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/fengmian-2.jpg)图片：雅典娜农场设计组 精灵蓝
+![](https://assets.gnews.org/wp-content/uploads/2022/03/30797.jpg)
+
+当我知道乌克兰与俄罗斯战争开始的时候，我的心就一直放不下，因为身处战火中的他们都是我的同胞。无论他们是不是粉红，也不管有没有信仰之分，我都会为他们担忧！好在新中国联邦及时采取了救援行动，我的心也放下来了一些。粉红和被洗脑的同胞们，你们比爹娘还亲的中国共产党，不但不拯救你们；还选择了支持邪恶的反人类的大屠杀战争，竟然还威胁绑架在战争中侥幸逃出的同胞。这是多么的丑陋，恶心，你们快醒来吧，可怜懦弱无知的中国同胞们，不要再被利用了。
+
+借助盖特发布的视频、图片以及看到救援直播的时候，我内心强烈地震撼、心情极为沉重的闭上双眼。单凭自己所想，我也甚为明了，脑海里浮现了很多画面：战争打响的那一瞬，大地颠覆，一片残垣断壁，使多少人从平静走进恐慌，从平安走向死亡；在炸弹爆炸时，顷刻间楼宇坍塌，尘石迸溅，有多少同胞们的生命被埋葬于废墟中，甚至还来不及哭泣，来不及呐喊。我可以听到来自同胞们的巨大哀鸣，成为我脑海中最沉重的声音！
+
+那片土地上，被同胞们无助的呐喊和求救、触目惊心的炮火声、哭喊声所笼罩，金色的阳光被禁锢在战争背后，战争中的同胞们都在经历着根本无法想象的劫难。我不知道自己能做些什么，从心里很想奔赴战区，去到第一线帮助他们，去拯救他们！同胞们的生命，在共产党的眼中如此轻贱，在中共宣布撤出了在乌克兰的所有华人20小时后，在3月4日晚上哈尔科夫文化学院又有4个中国学生死于俄军炮火，初步估计有20人死亡！
+
+这几天我真的是咬牙握拳看着信息，一想到与我年纪相仿甚至年幼的同胞。他们来不及逃离，却被突如其来的炸弹，沉重的房梁，无情的子弹打倒时，我的心都在滴血。有多少同胞怀揣着纯真的梦想，勾勒了多少最宏伟的前程蓝图，为实现美妙的梦想前往乌克兰求学。但这一切却在顷刻间化为虚无，在萌芽阶段就被硬生生地给掰断；在本应盛开的季节，却被活生生的掐死。
+
+那一幅幅废墟画面里，散落在石砾缝隙间的衣物、财务、生活用品……都已经成为死亡的终结号。他们没有任何逃生的希望，就离开了这个世界！街头奔跑的不再是少年，而是救援人员，救下来的伤员，是一张张血迹斑斑的面孔，充满恐惧甚至无知的眼神，失去光华并且木然地盯着天空。一想到这里我的内心就久久不能平复！战争虽然没有波及我及我的亲人，但牵动了我的心。在战争面前，我才发现自己能做的真的少之又少，但是我也是新中国联邦的一份子，我虽然无法上前线去帮助救援，但我现在日夜祷告，愿生者能幸存，给死者以慰藉，望粉红早醒悟。我也会在后方写文章为紧急救援出一份力！
+
+同胞们，我用笔书写下我内心的巨大悲痛，用纸记录你们给予我的无声呐喊。我能做的少之又少，请原谅我的无能为力，我为此深深的自责，我也想奔赴救灾前线，与战友们同行，拯救同胞们离开。可因为身在墙内而无法抽身，此时所想只有为了死去的同胞们，也为了自己和后代们能有一个没有战争的和平年代而竭尽全力消灭共产党！！！虽然我一人微不足道，但我清楚地知道我的身后还有各个农场以及无数的战友，就像是小蚂蚁，即便微如尘埃，也可以聚尘为丘。
 
 
-雅典娜疫情更新（2022年 3月7日）
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+紧急救援这份爱来自四面，来自八方，来自世界各地，来自海峡两岸，来自五洲，来自全球！这份爱跨越国界，跨越种族，跨越肤色，跨越语言，跨越信仰！不需要表达，也能明了！不需要言语，也能诠述！同胞们，我们风雨同舟，有爱同行，心相连，手相牵，相信我们的爱一定会创造人间的奇迹，最后消灭共产党！相信我们的爱能拯救所有的人，最后也请生者坚强，死者安息，新中国联邦与你们同在！
 
-全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/a-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/b-1.jpg)
-[2022年3月7日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月7日改进.pdf)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：Frank2021
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**校对：面包树
+审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

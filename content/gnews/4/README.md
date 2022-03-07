@@ -2,26 +2,18 @@
 ---
 
 
-## 樱花头条┃华为积极在俄罗斯开展业务 引发外界疑虑
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2120012/)
+## 樱花头条┃卢布被排除在支付网络之外而暴跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2120186/)
 
 撰稿：东京樱花团/樱花传媒
 
-欧美各国加码对俄罗斯的制裁
+随着美国和欧洲加强对俄罗斯的经济制裁，日本时间28日，俄罗斯货币卢布兑美元在外汇市场上暴跌，一度触及110卢布/美元左右。据路透社报道，有史以来的最低价格。
 
-中共却持反对态度
+信息来源：[https://www.gettr.com/post/pxeeqc5edd](https://www.gettr.com/post/pxeeqc5edd)
 
-华为积极在俄国扩展业务
-
-计划在当地培训5万名技术专家
-
-此消息引发外界疑虑
-
-[信息来源](https://www.gettr.com/post/pxqlvje5b1)
-
-*校对：东京樱花团/asket*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+*编辑：东京樱花团/asket、春华秋实
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

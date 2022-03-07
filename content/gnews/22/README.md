@@ -2,43 +2,21 @@
 ---
 
 
-## 乌克兰士兵：基辅可以被炸平，但绝不可能被夺走！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2119652/)
+## 青岛疫情井喷
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119789/)
 
-编译：尚劲哥
-原文作者：Ron Ben-Yishai
+撰稿：东京樱花团/秋明
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-34.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg3.jiemian.com%2F101%2Foriginal%2F20220306%2F164653358392818100.jpg&amp;imgrefurl=https%3A%2F%2Fwww.jiemian.com%2Farticle%2F7175588.html&amp;tbnid=g6YJJ8YOpCrppM&amp;vet=12ahUKEwjo-Kqt37P2AhXLRMAKHUcvD4IQMygFegUIARCcAQ..i&amp;docid=IOXtjCNNriVBAM&amp;w=600&amp;h=400&amp;itg=1&amp;q=%E9%9D%92%E5%B2%9B%E7%96%AB%E6%83%85&amp;ved=2ahUKEwjo-Kqt37P2AhXLRMAKHUcvD4IQMygFegUIARCcAQ)
+自3月3号青岛莱西七中三位学生确诊阳性以来，青岛的疫情持井喷状态迅速增加，据官方报告，截止到3月6号，累计确诊阳性136例无症状感染者115例，病毒属于奥米克戎，传染源还在调查中。
 
-据 Ynet 记者在乌克兰首都基辅报道，乌克兰政府和乌克兰人已经在为俄罗斯迄今为止最大的入侵攻击做准备。巨型卡车开始将沙子从城市周围转移到一个地方，数百名乌克兰人开始填充沙袋，在城市周围设立路障，为了减缓俄军坦克推进的速度，乌克兰人用铁轨焊接了铁马，并且附着在混凝土的基座上，以防止其被拆除。在基辅，政府和安全部队已经用沙袋为大楼门窗筑起了防御，以减少因炮弹轰炸带来的伤害。
+据说该病毒在学生中间潜在传播多日，按照中共政府处理问题的风格，能捂就捂实在捂不住了才爆出来，要不然仅仅三天时间增加了一百多，还不知道这里面有多少水分？官员信誓旦旦要把病毒尽快清零，流行两年的病毒至今肆虐全球，这一世界性难题大概只有中共国官员能轻易破解！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/30792.jpg)
+3月7号24:00莱西启动第二轮全员核酸检测，明明可以自己在家检测，明明生产了大量医疗检测器材，源源不断输送到国外使用，偏偏不给自己国民使用，凌晨24点把大家召集起来不睡觉做这劳命伤财的无用功！可怜老百姓，在羊圈里任意宰杀还感恩戴德！人家可是百分之百真心实意！朋友圈无一例外满满的的“正能量”，笔者很想跟视频里这位辛苦劳作召集大家带好口罩保持3米距离的的女干部说一句，您的口罩没有在鼻子上端这样戴无效。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-7.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/30793.jpg)
-
-上周的卫星图片显示，包括坦克在内的大量俄罗斯入侵地面部队车队向乌克兰首都方向移动，预计将在霍斯托梅尔和附近机场集结形成战力，车队还包括装甲部队，行动式防空连，步兵和后勤车辆。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/30794.jpg)
-
-根据美国和乌克兰的情报评估，俄罗斯的入侵本周将集中在占领该国最大的两个城市基辅和哈尔科夫。 事实上，这次袭击已经在基辅郊区开始，俄军猛烈的炮击了首都西北部城区的附近城镇Irpin和Bucha .
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/30795.jpg)
-
-基辅将被距离20公里外的俄侵略军从西北和北部方向包围，他们会沿着第聂伯河进军，第聂伯河分割了首都基辅的城市地区。而东岸则被来自李米和切尔尼希夫市的俄军围困。
-
-攻击将从空中的猛烈轰炸和地面部队的炮击开始，以挫败乌克兰人和政府的反抗斗志，并且阻吓在郊区伏击俄军推进的当地乌克兰平民武装。 估计俄军不会直接进入基辅，相反，他们会分散至外郊的街道，就像在Kherson 和 Mariupol . 但乌克兰军队担心俄军将会猛烈的炮击推进到城区，并逐一炸毁通往城市的桥梁，这会给平民在基辅和城镇间的转移造成困难。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/30796.jpg)
-
-周六Ynet记者有机会站在乌克兰安全部队的大门口（这里相当于以色列的 Shin Bet）, 目击整个区域都是沙袋防御工事，士兵们驻守在沙袋后方，记者被禁止拍摄，但他们愿意告诉我们：
-
-他们确信俄军会进攻，
-他们会战斗到最后一滴血，
-他们说这不是一个慷慨的宣言，而是事实
-一个士兵说，基辅可以被摧毁，但基辅永远不会被占领！
-
-援引原文：[https://www.ynetnews.com/article/bkkjlab115](https://www.ynetnews.com/article/bkkjlab115)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
 
  
 
