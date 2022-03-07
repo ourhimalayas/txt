@@ -2,37 +2,41 @@
 ---
 
 
-## 文贵大直播：善恶终有报
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2117055/)
+## 俄罗斯宣布在全国范围内禁止使用 Facebook
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2117095/)
 
-**整理：北酒仙翁、请你喝可乐
-编辑：Candy**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-17.png)图片来源：雅典娜设计组
+#### 翻译/编辑：Ltitle Lamp
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-48.png)
 
 
-中国最大的（问题）不是空气的雾霾，是心霾。这种心霾会让你死无葬身之地，会让你的孩子、家人都会死在上面。你看不到全地球75亿人口，一个跟你完全没有关系的民族被打成这个样子，你在那里高兴、兴奋，你妥妥地要睡觉。它招你、惹你了？
+Western Journal报导，随着对乌克兰的持续入侵，俄罗斯宣布在全国范围内禁止使用 Facebook。
 
-新中国联邦人去前线冒死救人，个个光鲜无比。他们都过着美好的日子，不为钱、不为名，又不是工作，抛家舍业救人去。你九指妖、路大脑、蛇妖闫、高冰晨，你在诅咒他们，你阻挡我们救人。就高冰尘这样的人，他孩子、他女儿死一万次车祸都不拉倒。 他也有娘，他母亲死了就埋进坑里边都会被在地狱里边被人家诅咒。 我说这你以为我胡说八道？你去上网查查：中岳庙整个墙上1900幅画都写着清清楚楚的，包括断指、断胳膊、断腿。就这种人，就这世你有这个业障，你继续作恶，下一世就让你活得更惨。 包括什么3500次的火锅炸啊，比炸子鸡还炸得多。
+据 CNBC 报道，俄罗斯媒体监管机构周五宣布了禁令，并声称该平台试图让俄罗斯官方媒体保持沉默。Meta 全球事务总裁尼克克莱格表示，俄罗斯当局要求该公司停止事实核查并在官方媒体的报道上贴上警告标签，但 Meta 拒绝了。
 
-我相信这帮孙子，他们的家人都会在地狱里遭受这种考验，我深信不疑。我母亲刚刚过了三年冥诞，我更加相信人是不死不灭，它只是轮回。我希望这帮孙子，还有被共产党洗脑的这种诅咒人家俄罗斯的家人的，看着人家死人兴高采烈的，一定要在地狱里边和在这一世遭受万般的煎熬和痛苦，让你永不得转世，在地狱里边一千万万年。
+据《卫报》报道，Meta 平台 Facebook 和 Instagram 本周将Russia Today 和 Sputnik都从欧盟用户的提要中删除。
 
-我们一定记住：不要因为你想做好人，而你失去了面对坏人的勇气；因为你想自己永生不死，所谓善道轮回，你不再面对这种丑恶和危险。 不， 只有面对邪恶、直击邪恶，才是最大的善道！
+周五，这些平台还取消了在英国出现的网点。这可能是压垮俄罗斯当局的最后一根稻草。俄罗斯最终完全禁止其居民访问该平台。
 
-中国人就是给自己的懦弱、自私、冷酷找出太多的借口，包括佛教、道教。我很不爽的事情就是：你们有地狱，佛教里边有地藏菩萨，为什么不能面对坏人呢？ 对待坏人、对待这种恶行必须加以阻止和惩罚！
+克莱格写道：“很快，数以百万计的普通俄罗斯人将发现自己无法获得可靠的信息，被剥夺了与家人和朋友联系的日常方式，并且无法畅所欲言。”
 
-我四天没有喝咖啡了，四天没喝咖啡的感觉你们这是什么样吗？就是现在我这个样？我今早上喝了咖啡，咖啡特别香，我突然想起了中岳庙的一句话：**得到和失去之间，它就是人生；习惯和习惯改变就是你的修行。**
+“我们将继续尽一切努力恢复我们的服务，以便人们可以安全可靠地表达自己并组织采取行动。”
 
-当时我到中岳庙去我不懂，（后来）我越来越懂，我每天都（有）感悟：我们习惯了人撒谎，你永远不去纠正他，他就撒谎成了真理；我们只有改变这种熟悉撒谎的环境，才能直击那种谎言： 放下、改变！
+据《纽约时报》记者迈克·艾萨克（Mike Isaac）称，截至周五，该禁令仅适用于 Facebook。它没有扩展到其他 Meta 平台 Instagram 和 Whatsapp，他说这些平台在该地区“比 Facebook 更受欢迎”。
 
-资料来源：2022.3.6GETTR 文贵大直播
+Facebook是致力于打击俄罗斯官方媒体的众多平台之一。据美国全国广播公司财经频道报道，谷歌和推特都已撤下在俄罗斯的广告，并表示将继续给官方媒体贴上（警告）标签。
 
-***发布：Candy***
+文章来源：[Russia Embraces Full Tyranny: Bans Major Social Media Platform](https://www.westernjournal.com/russia-embraces-full-tyranny-bans-major-social-media-platform/)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+发布：*wenly*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
