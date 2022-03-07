@@ -2,31 +2,12 @@
 ---
 
 
-## 我们要成为欣赏鲜花开放的人群
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2122321/)
+## 3月7日 勿忘香港（图片1-5）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2122377/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
-
-2022-03-02直播摘录
-
-这就是人类我们遇到了现在最大挑战和最多美好，我们太幸福了！我们在面临着人类的最大的转折时刻。这就是我们新中国联邦一定要搂住，坚持唯真不破。你不要在鲜花开放前把你的生命给枯萎了，你成为了鲜花开放的所谓的沃土。我们不要成为沃土，我们要成为欣赏鲜花开放，看到蝴蝶满天飞，孕育万物，而我们成为享受阳光、鲜花和美丽的人群，那就叫新中国联邦。
-
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+设计 五月花农场 企鹅
+![](https://assets.gnews.org/wp-content/uploads/2022/03/72880B28-FCBB-46AE-8F73-9B9EAE5F0820.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/BFB1AF4B-7E65-47F8-88D4-7360F13A96DF.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/5BD4F411-44C5-43BE-80E1-CB0ED1EEBA61.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/3664CF18-C916-43C1-B2C6-459AA1C02B4D.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/1F11DE97-A9FC-49A7-B9C8-B84439D26E9D.jpeg)
+发布：水涨船高
 
  
 

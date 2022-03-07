@@ -15,25 +15,25 @@
 
 ---
 
-### [3月7日 勿忘香港（图片1-5）](/content/gnews/1/README.md)
+### [七哥说—第54期](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [3月7日 勿忘香港（图片1-5）](/content/gnews/2/README.md)
  ` 波士顿五月花农场`
 
-### [我们要成为欣赏鲜花开放的人群](/content/gnews/2/README.md)
+### [我们要成为欣赏鲜花开放的人群](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [2022年3月6日《文貴大直播》全文字版](/content/gnews/3/README.md)
+### [2022年3月6日《文貴大直播》全文字版](/content/gnews/4/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [布林肯表示制裁对俄罗斯经济产生了巨大的影响](/content/gnews/4/README.md)
+### [布林肯表示制裁对俄罗斯经济产生了巨大的影响](/content/gnews/5/README.md)
  ` 纽约香草山MOS03`
 
-### [人类身体变化以后会做出你无法想象的决定](/content/gnews/5/README.md)
+### [人类身体变化以后会做出你无法想象的决定](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [遇难成为机会](/content/gnews/6/README.md)
- ` MG FARM`
-
-### [平民主义和正道主义](/content/gnews/7/README.md)
+### [遇难成为机会](/content/gnews/7/README.md)
  ` MG FARM`
 
 ### [以色列调查：加强针造成的伤害比想象的要多](/content/gnews/8/README.md)
@@ -63,29 +63,29 @@
 ### [20220306文贵大直播：七哥2017年就有普京和习近平侵占乌克兰和台湾的情报](/content/gnews/16/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220307文贵大直播：中国人就医买药以价格导向疫苗灾难爆发 中国人仍然会怪罪美国](/content/gnews/17/README.md)
- ` Tokyo Sakura Video Group`
-
-### [在访问乌克兰边境时，布林肯承诺增加支援，但非战斗机](/content/gnews/18/README.md)
+### [在访问乌克兰边境时，布林肯承诺增加支援，但非战斗机](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [联盟工作汇报文字版2022.3.6](/content/gnews/19/README.md)
+### [联盟工作汇报文字版2022.3.6](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [【秘翻时评】中共在乌克兰境内的“协调人员”都已逃跑](/content/gnews/20/README.md)
+### [【秘翻时评】中共在乌克兰境内的“协调人员”都已逃跑](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [与中共国一样，俄罗斯将使用数字现金逃避美国制裁](/content/gnews/21/README.md)
+### [与中共国一样，俄罗斯将使用数字现金逃避美国制裁](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国SEC正在调查NFT市场潜在的证券违规行为](/content/gnews/22/README.md)
+### [美国SEC正在调查NFT市场潜在的证券违规行为](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [3/7/2022国际财经快讯：美国与欧洲盟友讨论禁止进口俄罗斯石油；乌克兰主要农产品引入出口许可证制度](/content/gnews/23/README.md)
+### [3/7/2022国际财经快讯：美国与欧洲盟友讨论禁止进口俄罗斯石油；乌克兰主要农产品引入出口许可证制度](/content/gnews/22/README.md)
  ` 秘密翻译组金融团队`
 
-### [乌克兰大救援将开启人类大同的新时代](/content/gnews/24/README.md)
+### [乌克兰大救援将开启人类大同的新时代](/content/gnews/23/README.md)
  ` 波士顿五月花农场`
+
+### [有声|标普和道琼斯指数正在剔除俄罗斯股票](/content/gnews/24/README.md)
+ ` MOSREC`
 
 ### [有声|俄罗斯正在企图控制乌克兰的其他大型核电站](/content/gnews/25/README.md)
  ` MOSREC`
