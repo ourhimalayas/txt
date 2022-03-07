@@ -2,31 +2,20 @@
 ---
 
 
-## “同胞”这俩字儿太大了
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2122497/)
+## 蓬佩奥表示美国将坚定支持保卫台湾
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2122625/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大温哥华扬帆农场    平民正道
 
-2022-03-02直播摘录
+据【法国24新闻】3月3日报道，美国前国务卿蓬佩奥日前在与台湾总统蔡英文会晤时表示，决不能允许台湾陷入如同乌克兰一样的战乱之中。
 
-这地方肯定很浪漫，确实很浪漫，而且很多好的酒店在那里。所以说，兄弟姐妹们，到帕劳的国内战友未来能去的也可以救去。我们台湾的战友还有日本的战友，银河系还有樱花系、还有方舟、魔女这儿要联合起来，发展起来，在那块儿建一个紧急的救援站，有需要的请和联盟准时联系，一旦开战，那个地方是我们一个中转和避难的地方，营救台湾同胞的地方，大陆的有些同胞也可以去，咱们战友啊，战友可以去，别搞同胞，“同胞”这俩字儿太大了。所以说现在希望台湾没有战争，但是老天爷、佛祖保佑吧！
+报道称，蓬佩奥作为前美国主要对抗中共政权的领导人，于日前抵达台北以探讨如何应对目前台海一触即发的紧张战局，以及俄罗斯入侵乌克兰引发的危机，并向台湾传递美方将坚定执行保卫台湾的承诺。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+对此，文贵先生表示，中共此前不仅使用飞机故障，停电等流氓手段阻止蓬培奥本次访台行程，还在俄罗斯入侵乌克兰之后，及时调整了攻打台湾的军事计划，企图以更迅猛的闪电战占领台湾，试图以此避免重踏俄军目前陷入战争泥潭，自顾不暇的复辙。
 
-**关注我们**
+* * *
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑： 平民正道    发布：平民正道
 
  
 

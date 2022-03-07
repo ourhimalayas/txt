@@ -2,39 +2,52 @@
 ---
 
 
-## 有声|俄罗斯正在企图控制乌克兰的其他大型核电站
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2121558/)
+## 美国SEC正在调查NFT市场潜在的证券违规行为
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2121731/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
-3月3日，俄罗斯侵占了乌克兰的扎波罗日热核电站后，目前正在向南乌克兰核电站推进。这两座核电站是乌克兰境内最大的两座，为乌克兰境内提供约三分之一的发电。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-518.png)图片来自：nypost.com
-乌克兰一共有四座核电站，由15座反应堆组成，发电量大约为该国的一半。另外一半发电量来自煤炭，乌克兰的多数煤电厂位于顿巴斯地区，自2014年开始，俄罗斯时常侵袭这些煤电厂地区。他们认为控制乌克兰的发电能源有利于全面攻占乌克兰。
+**评论：***随着NFT的普及率大幅上升，监管机构对这一资产类别的未来趋势表示担忧，审查也越来越严格。如果监管机构认为包括NFT在内的数字资产属于证券，那么它们将受到与股票相同规则的约束。*
 
-近年来，乌克兰已经切断了许多与俄罗斯和白俄罗斯曾在苏联时代能源共享的电网，加入西方邻国的电网。这项计划预计在2023年完成，2月24日俄罗斯入侵乌克兰的当天，工作人员仍在进行测试，希望这项工程能够加紧完成。
+据《数字货币电讯报》作者：Tom Mitchelhill 2022年3月2日报道：
 
-俄罗斯因乌克兰的殊死抵抗恼羞成怒，不仅开始轰炸平民区，侵占核电站，一座煤电厂、一座水电站大坝还有废弃的切尔诺贝利核电站，也已经被俄占领。
+非同质化代币(NFT)的创建者及市场交易已经成为美国证券交易委员会(SEC)的目标，因其在SEC针对未注册证券的新一轮监管中进行了非法活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-633-e1646672859230.png)图片来源：《数字货币电讯报》
+据彭博社报道，美国证券交易委员会(SEC)——由对加密货币持怀疑态度的主席詹斯勒（Gary Gensler）领导——正在调查非同质化代币(NFT)的创建者及其市场交易的证券违规行为。
+
+报告中的匿名消息人士称，SEC正在调查“某些NFT是否像传统证券一样被用来筹集资金。”
+
+据报道，SEC执法部门的律师在过去几个月已发出传票，要求提供有关特定NFT和其他代币发行的信息。
+
+虽然加密借贷产品在过去一年里一直受到严格的监管审查，但是这份报告标志着调查NFT领域的重大举措。
+
+调查表明，SEC对如何使用碎片化NFT（fractional NFTs）尤其感兴趣。那是更有价值的NFT被标记为更小的部分并出售的场合。
+
+警告信号已经很明显了，被称为“加密货币之母”的Hester Peirce早在2021年3月就表示，出售碎片化NFT可能违反法律。
+
+“你最好小心，你创建的不是一种投资产品，而是一种证券。”
+
+这次调查，是旨在更坚定地管理加密货币市场的一波打击行动中的最新一波。最近，SEC命令总部位于新泽西州的加密借贷公司BlockFi支付创纪录的1亿美元罚款，原因是其未能将“高收益”借贷产品列为证券。
+
+虽然比特币（BTC）和以太坊（ETH）因其不被SEC视为证券（至少目前还没有）而得以避免审查，其他数字资产并没有享受同样的暂缓待遇。与旧金山数字支付公司Ripple Labs（Ripple的母公司）的案件不同，自2020年底以来，该公司一直因售出过多的“未注册证券”而卷入法律案件之中。
+
+尽管当前市场行情下跌，NFT销售额还在继续增长——最大的两家NFT交易市场LooksRare和OpenSea在过去30天内共享了107亿美元的交易量。
+
+文章来源：[https://cointelegraph.com/news/sec-investigating-nft-market-over-potential-securities-violations-reports](https://cointelegraph.com/news/sec-investigating-nft-market-over-potential-securities-violations-reports)
+
+翻译：洛杉矶盘古农场 – maru
+
+校对：洛杉矶盘古农场 – Mike Li
+
+评论：洛杉矶盘古农场 – maru
+
+编辑：洛杉矶盘古农场 – Wendy
+
+发布：洛杉矶盘古农场 – 子萍
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-文字版原文：[俄罗斯正在企图控制乌克兰的其他大型核电站](https://gnews.org/zh-hans/2115236/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
  
 

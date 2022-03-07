@@ -2,36 +2,20 @@
 ---
 
 
-## 美国国务卿到访乌克兰 与乌克兰外长会晤
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2122463/)
+## 俄乌战争进一步推高全球化肥价格
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2122601/)
 
-作者：纽约香草山农场 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-盖特消息，当地时间3月5日，美国国务卿布林肯突然到访乌克兰，并且在乌克兰境内与乌克兰外长会晤。
+加拿大温哥华扬帆农场    平民正道
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-1.jpeg)
+据加拿大【真北方】3月5日报道，俄罗斯入侵乌克兰后，引发了包括加拿大在内多个国家和组织联合发起的，针对俄罗斯实施的出口管制和国际制裁。
 
-乌克兰外长库莱巴谈到，美国以及盟国提供的武器，帮助乌克兰摧毁俄罗斯的装甲车辆和坦克。 他向包括美国在内的、所有对乌克兰提供毒刺导弹的国家，表示感谢。乌克兰军人有效地利用毒刺导弹，击落俄军的轰炸攻击机，抵抗俄罗斯的侵略。
+由于是仅次于加拿大的世界第二大化肥生产国，俄罗斯目前化肥出口量的急剧减少直接冲高了国际市场价格。此外，战争还使能源价格飙升，一些国家也因此减少了化肥的生产和出口。
 
-他表示乌克兰目前亟需战斗机、攻击机和防空系统等大型防空武器，来保卫乌克兰人民的生命。同时，乌克兰希望得到国际社会更多的帮助和支持。
+尽管位于加拿大萨省的世界最大化肥制造商Nutrien的股价最近持续上涨，谷物价格也创下了14年来的新高，但该国农民却越来越担忧不断增高的成本对农产品产量的负面影响。加拿大财政部长[弗里兰]对此表示，应该准备好承受相应的经济损失和所造成的附带损害。
 
-参考链接：[https://gettr.com/post/pyio2l79d3](https://gettr.com/post/pyio2l79d3)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
-
-总编：文真
-编辑：Ivy001  
-审核：Ivy001
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+编辑： 平民正道    发布：平民正道
 
  
 
