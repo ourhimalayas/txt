@@ -15,65 +15,65 @@
 
 ---
 
-### [3/06/2022 文贵直播：最近华人在世界各地遭袭击，亚洲战友尤其是女性要小心，给中国人排出中共种下的毒太难了，有些人被中共洗脑太深是没法救的，传播疫苗真相也不用在乎对方信不信](/content/gnews/1/README.md)
+### [3/06/2022 文贵直播：世界经济何时开始崩溃？普京的时代已结束，习太阳身体撑不住，一定会迅速打台湾](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [奢侈品巨头路易·威登集团和爱马仕将暂时关闭在俄罗斯的商店](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [逾百名乌克兰儿童被救出](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [3/06/2022 文贵直播：为什么美国法院直到现在才做出判决要求辉瑞公布有关疫苗的文件？为什么这件事在英文世界没人报道呢？](/content/gnews/4/README.md)
- ` 秘密翻译组-北美组`
-
-### [2022年3月6日文贵先生直播摘要及音频—银河系农场](/content/gnews/5/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [文贵爆料3.6：中共在乌克兰境内的“协调人员”已经都逃跑了](/content/gnews/6/README.md)
- ` 秘密翻译组-原创组`
-
-### [美国流媒体巨头网飞暂停在俄罗斯的服务](/content/gnews/7/README.md)
- ` 澳喜农场`
-
-### [俄罗斯宣布在全国范围内禁止使用 Facebook](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [俄乌战争 英国将加大对俄罗斯制裁力度](/content/gnews/9/README.md)
- ` 蓝莲花农场`
-
-### [[G时新闻]普京称乌克兰“特别行动的决定很沉重”](/content/gnews/10/README.md)
- ` G-时新闻`
-
-### [文贵大直播：善恶终有报](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [文贵先生与前线战友连线直播乌克兰救援行动](/content/gnews/12/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [车神塞纳迈凯伦座驾通过喜支付交易，喜交所进入欧洲皇室最高信用](/content/gnews/13/README.md)
- ` YALUN 亚伦`
-
-### [新中国联邦第二批援救乌克兰难民的队员启程](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [俄军再违停火协议 马里乌波尔撤民受阻](/content/gnews/15/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [【G时新闻】新加坡禁止其金融机构与俄罗斯央行交易](/content/gnews/16/README.md)
- ` G-时新闻`
-
-### [新中国联邦 展示新中国人的和平与善良](/content/gnews/17/README.md)
- ` 蓝莲花农场`
-
-### [2022/03/06 文贵先生直播重点大纲](/content/gnews/18/README.md)
+### [官方文件披露辉瑞公司中共病毒疫苗有1291种副作用](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [乌克兰报告核电站的通信问题](/content/gnews/19/README.md)
- ` Shuizhuyu`
+### [泽连斯基吁俄罗斯人进行反战示威](/content/gnews/3/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年3月6日早](/content/gnews/20/README.md)
- ` 纽约香草山MOS01`
+### [3/06/2022 文贵直播：最近华人在世界各地遭袭击，亚洲战友尤其是女性要小心，给中国人排出中共种下的毒太难了，有些人被中共洗脑太深是没法救的，传播疫苗真相也不用在乎对方信不信](/content/gnews/4/README.md)
+ ` 秘密翻译组-北美组`
+
+### [奢侈品巨头路易·威登集团和爱马仕将暂时关闭在俄罗斯的商店](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [逾百名乌克兰儿童被救出](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [3/06/2022 文贵直播：为什么美国法院直到现在才做出判决要求辉瑞公布有关疫苗的文件？为什么这件事在英文世界没人报道呢？](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2022年3月6日文贵先生直播摘要及音频—银河系农场](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [文贵爆料3.6：中共在乌克兰境内的“协调人员”已经都逃跑了](/content/gnews/9/README.md)
+ ` 秘密翻译组-原创组`
+
+### [美国流媒体巨头网飞暂停在俄罗斯的服务](/content/gnews/10/README.md)
+ ` 澳喜农场`
+
+### [俄罗斯宣布在全国范围内禁止使用 Facebook](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [俄乌战争 英国将加大对俄罗斯制裁力度](/content/gnews/12/README.md)
+ ` 蓝莲花农场`
+
+### [[G时新闻]普京称乌克兰“特别行动的决定很沉重”](/content/gnews/13/README.md)
+ ` G-时新闻`
+
+### [文贵大直播：善恶终有报](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [文贵先生与前线战友连线直播乌克兰救援行动](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [车神塞纳迈凯伦座驾通过喜支付交易，喜交所进入欧洲皇室最高信用](/content/gnews/16/README.md)
+ ` YALUN 亚伦`
+
+### [新中国联邦第二批援救乌克兰难民的队员启程](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
+
+### [俄军再违停火协议 马里乌波尔撤民受阻](/content/gnews/18/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [【G时新闻】新加坡禁止其金融机构与俄罗斯央行交易](/content/gnews/19/README.md)
+ ` G-时新闻`
+
+### [新中国联邦 展示新中国人的和平与善良](/content/gnews/20/README.md)
+ ` 蓝莲花农场`
 
 ### [2022/03/04 墙内世界](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
