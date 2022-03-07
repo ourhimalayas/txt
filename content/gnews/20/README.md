@@ -2,43 +2,47 @@
 ---
 
 
-## 乌克兰士兵：基辅可以被炸平，但绝不可能被夺走！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2119652/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2119732/)
 
-编译：尚劲哥
-原文作者：Ron Ben-Yishai
+**整理：枳实**
+**美工：精灵蓝**
 
-据 Ynet 记者在乌克兰首都基辅报道，乌克兰政府和乌克兰人已经在为俄罗斯迄今为止最大的入侵攻击做准备。巨型卡车开始将沙子从城市周围转移到一个地方，数百名乌克兰人开始填充沙袋，在城市周围设立路障，为了减缓俄军坦克推进的速度，乌克兰人用铁轨焊接了铁马，并且附着在混凝土的基座上，以防止其被拆除。在基辅，政府和安全部队已经用沙袋为大楼门窗筑起了防御，以减少因炮弹轰炸带来的伤害。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/fengmian-2.jpg)图片：雅典娜农场设计组 精灵蓝
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/30792.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/30793.jpg)
+雅典娜疫情更新（2022年 3月7日）
 
-上周的卫星图片显示，包括坦克在内的大量俄罗斯入侵地面部队车队向乌克兰首都方向移动，预计将在霍斯托梅尔和附近机场集结形成战力，车队还包括装甲部队，行动式防空连，步兵和后勤车辆。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/30794.jpg)
+全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/a-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/b-1.jpg)
+[2022年3月7日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月7日改进.pdf)
 
-根据美国和乌克兰的情报评估，俄罗斯的入侵本周将集中在占领该国最大的两个城市基辅和哈尔科夫。 事实上，这次袭击已经在基辅郊区开始，俄军猛烈的炮击了首都西北部城区的附近城镇Irpin和Bucha .
+数据来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/30795.jpg)
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-基辅将被距离20公里外的俄侵略军从西北和北部方向包围，他们会沿着第聂伯河进军，第聂伯河分割了首都基辅的城市地区。而东岸则被来自李米和切尔尼希夫市的俄军围困。
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-攻击将从空中的猛烈轰炸和地面部队的炮击开始，以挫败乌克兰人和政府的反抗斗志，并且阻吓在郊区伏击俄军推进的当地乌克兰平民武装。 估计俄军不会直接进入基辅，相反，他们会分散至外郊的街道，就像在Kherson 和 Mariupol . 但乌克兰军队担心俄军将会猛烈的炮击推进到城区，并逐一炸毁通往城市的桥梁，这会给平民在基辅和城镇间的转移造成困难。
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/30796.jpg)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-周六Ynet记者有机会站在乌克兰安全部队的大门口（这里相当于以色列的 Shin Bet）, 目击整个区域都是沙袋防御工事，士兵们驻守在沙袋后方，记者被禁止拍摄，但他们愿意告诉我们：
+[covidlive.com.au](https://covidlive.com.au/)
 
-他们确信俄军会进攻，
-他们会战斗到最后一滴血，
-他们说这不是一个慷慨的宣言，而是事实
-一个士兵说，基辅可以被摧毁，但基辅永远不会被占领！
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
 
-援引原文：[https://www.ynetnews.com/article/bkkjlab115](https://www.ynetnews.com/article/bkkjlab115)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-**审核校对：Barry Jack
-上传排版：V在途中**
+发布：Frank2021
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

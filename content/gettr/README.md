@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 11:13 AM (UTC)`
+
+【Ukraine Rescue】03/06/2022 Rule of Law Foundation and the New Federal State of China rescued 96 Ukrainian children and their teachers from Hruszów, Poland, and their bus just arrived at a hotel in Krakow, Poland.<br/><br/>【乌克兰救援】03/06/2022 法治基金和新中国联邦从波兰海乌姆救援的96个乌克兰孩子和他们的老师已经到达波兰克拉科夫的酒店。<br/> 
+![img](https://media.gettr.com/group35/getter/2022/03/07/11/7a23128e-50a4-a269-b65e-23e7a2383378/out.jpg)
+
+---
+
 `@miles 3/7/2022 10:20 AM (UTC)`
 
 新中国联邦 法治基金救援行动 帮助乌克兰儿童逃离战火 连线波兰前线战友 2022-03-07
@@ -149,13 +156,6 @@ FDA Releases BOMBSHELL Pfizer Covid Virus Vaccine Data With Over 1,200 Side Effe
 
 新中国联邦法治基金乌克兰救援 飞飞秀特别节目 2020 0306
 ![img](https://media.gettr.com/group43/origin/2022/03/06/23/ebcfdbff-f994-a691-16be-f6933c192040/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/6/2022 10:14 PM (UTC)`
-
-3/06/2022 Miles Guo: The Chinese people have been attacked all over the world recently. Asian fellow fighters, especially women, should be careful. It is so difficult to clean Chinese people out of the toxics sowed by the CCP. Some people are too deeply brainwashed by the CCP to be saved, and there is no need to worry if anyone would believe in you when you spread the truth about the COVID vaccines.<br/><br/>3/06/2022 文贵直播：最近华人在世界各地遭袭击，亚洲战友尤其是女性要小心；给中国人排出中共种下的毒太难了，有些人被中共洗脑太深是没法救的，传播疫苗真相也不用在乎对方信不信<br/>
-![img](https://media.gettr.com/group20/getter/2022/03/06/22/e3cfa105-4b2e-1904-1269-22d839f2141c/out.jpg)
 
 ---
 

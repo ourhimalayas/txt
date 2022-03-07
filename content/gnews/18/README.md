@@ -2,47 +2,36 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2119732/)
+## 美国女职篮球星格瑞纳遭俄罗斯逮捕 或成“外交人质”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2119784/)
 
-**整理：枳实**
-**美工：精灵蓝**
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-43.jpg)
+美国女子职业篮球（WNBA）球星格瑞纳（Brittney Griner）（图片来自网络）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/fengmian-2.jpg)图片：雅典娜农场设计组 精灵蓝
+在俄罗斯入侵乌克兰遭美国等西方国家严厉制裁的紧张背景之下，俄罗斯日前突然披露逮捕美国女子职业篮球（WNBA）球星格瑞纳（Brittney Griner）的消息，不禁令人怀疑俄或怀有“人质外交”动机。
 
+据《希望之声》3月6日报道，俄罗斯方面3月5号透露，美国女子职业篮球（WNBA）球星格瑞纳（Brittney Griner）2月在俄罗斯机场被捕。
 
-雅典娜疫情更新（2022年 3月7日）
+据报道，俄罗斯海关总署5号在一份声明中称，有一名曾两度拿到奥运金牌的美国女职篮球员2月在俄罗斯被拘留。不过，该声明没有公布身份，也未说明确切拘捕日期。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+俄国官媒《塔斯社》引用消息人士的话报道称，这名球员是凤凰城水星队（Phoenix Mercury）中锋格瑞纳（Brittney Griner）。格瑞纳曾7次入选全明星赛，并助美国队在2016年里约奥运会和2021年东京奥运会上夺得女子篮球金牌。
 
-全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/a-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/b-1.jpg)
-[2022年3月7日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月7日改进.pdf)
+俄罗斯海关总署的声明称，这名球员在抵达莫斯科谢列梅捷沃国际机场（Sheremetyevo International Airport）后，缉毒犬在其随身行李中嗅出异样，检查后发现她持有含大麻的电子烟弹。依照俄罗斯法律，可判处5至10年徒刑。
 
-数据来源：
+美国女职篮发布新闻稿称，对格瑞纳给予全力支持。同时表示目前首要任务是让格瑞纳迅速安全地返回美国。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+在这一消息传出的当天，美国国务院重新发布了旅行建议，呼吁美国公民不要前往俄罗斯；在俄罗斯的美国公民“应立刻离开俄罗斯”，并称俄罗斯官员可能骚扰美国公民。
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+另据英国《卫报》报道，在此之前，还有两名美国海军陆战队员和一名美国教师在俄罗斯被捕。美国官员指责莫俄罗斯正在利用拘留作为潜在交换囚犯的筹码。
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+虽然格瑞纳被捕真相目前还不得而知，但“相同的配方、相同的味道”在俄罗斯的“小弟”中共国却是屡见不鲜。中共曾多次以“贩毒”罪名拘捕过美加等多国公民，并以此下作手段大打“人质外交”牌。因此，人们不禁怀疑，格瑞纳被捕是否也是俄罗斯的“人质外交”牌。
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+新闻链接：
 
-[covidlive.com.au](https://covidlive.com.au/)
+[https://m.soundofhope.org/post/600187](https://m.soundofhope.org/post/600187)
 
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：Frank2021
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
 
  
 
