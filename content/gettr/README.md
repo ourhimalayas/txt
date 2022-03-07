@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 2:52 AM (UTC)`
+
+3/6/2022 Miles Guo: The CCP has just distributed 250 million doses of the so-called high-end Sinovac COVID vaccine to Hong Kong, calling it for "Hong Kong and Macau compatriots only";  Chinese parents think that letting their children be vaccinated is loving them, not knowing that they are actually destroying their children's lives;  the impact on humans brought by those over a thousand side effects of the COVID vaccine recently released by the FDA will be multiplied, and the death toll will be unpredictable.<br/><br/>3/6/2022 文贵直播：中共国给香港刚发了2.5亿支所谓高端“港澳同胞专用“的科兴疫苗；中共国的家长们认为给孩子打了疫苗才是爱，殊不知这是毁了孩子们的一生；FDA所公布的疫苗一千多种副作用所带来的灾难将是成倍的，带来的死亡更是无法估量<br/>
+![img](https://media.gettr.com/group17/getter/2022/03/07/02/a35bc10a-075b-1565-336f-02c9f16370e9/out.jpg)
+
+---
+
+`@miles 3/7/2022 2:40 AM (UTC)`
+
+FDA Releases BOMBSHELL Pfizer Covid Virus Vaccine Data With Over 1,200 Side Effects!<br/><br/>美国食品和药物管理局公布爆炸性的辉瑞中共病毒疫苗数据，有1200多种副作用!<br/>
+![img](https://media.gettr.com/group33/getter/2022/03/07/02/fb7a9777-6064-d407-93a2-dbb7a7daa547/out.jpg)
+
+---
+
 `@miles 3/7/2022 2:12 AM (UTC)`
 
 2022.03.06 晚 GTV《新闻访谈》FDA败诉，辉瑞被迫公布所有疫苗副作用数据; 战乱中如何自救、逃难过程中需要知道的医学常识; 美国参议院通过决议以结束Covid-19国家紧急状态，纽约口罩强制令结束，如何正确佩戴口罩？
@@ -140,19 +154,6 @@ The Axis of Five Evils Timeline <br/><br/>五大邪恶轴心国爆料时间线<b
 
 【Ukraine Rescue】03/05/2022 NFSC Ukraine Rescue Team Interviews Mayor of Rzeszów, Poland. Mr. Mayor was not only very appreciative of the NFSC's rescue operation but also facilitated and provided support for our work.<br/><br/>【乌克兰救援行动】03/05/2022 新中国联邦乌克兰救援团队采访波兰热舒夫市长。市长先生不仅非常感谢新中国联邦的救援行动，并且为我们的工作提供了便利和支持。
 ![img](https://media.gettr.com/group16/getter/2022/03/06/00/bea3140c-2cda-a63a-34de-fb1bf416ce29/out.jpg)
-
----
-
-`@miles 3/5/2022 10:56 PM (UTC)`
-
-新中国联邦的战友为参加乌克兰救援行动不惜辞去工作<br/><br/>Fellow fighters of NFSC quit their jobs to participate in Ukraine rescue operation<br/>
-![img](https://media.gettr.com/group40/getter/2022/03/05/22/57ee4d70-a411-8cb1-456d-4b59a587f22b/out.jpg)
-
----
-
-`@miles 3/5/2022 7:38 PM (UTC)`
-
-炸了！FDA败诉！辉瑞被迫公布所有疫苗数据！副作用足足有9页！全网惊呆…目前披露的文件中列出了1000多种不良反应，很多都是头一次看到，包括： 筋膜炎、眼部肿胀、面瘫、斑秃、过敏休克、妊娠过敏反应综合征、急性心肌病、急性呼吸衰竭、注射部位血管炎、癫痫、血栓、心律失常、关节炎、哮喘、支气管痉挛、心脏骤停、心力衰竭、胸部不适、窒息、急性皮肤红斑狼疮、急性脑脊髓炎、急性肾损伤、急性黄斑外层视网膜病变、再生障碍性贫血、慢性自身免疫性肾小球肾炎、慢性皮肤红斑狼疮、慢性自发性荨麻疹、溶血性贫血、结肠炎、皮炎、糖尿病、栓塞性脑梗塞、内分泌失调、新生儿重症肌无力、脊髓炎、非感染性卵巢炎、甲状腺炎、溃疡性直肠炎、眼部瘙痒症、生殖器疱疹、舌咽神经麻痹、出血性血管炎、宫颈炎、狼疮性膀胱炎、狼疮性脑炎、多发性硬化症等等。fried! FDA loses case! Pfizer forced to release all vaccine data! There are 9 pages of side effects! The whole network is stunned... There are more than 1,000 adverse reactions listed in the currently disclosed documents, many of which are seen for the first time, including: Fasciitis, swollen eyes, facial paralysis, alopecia areata, anaphylactic shock, ancardiomyopathy, acute respirator https://gettr.com/post/pyd4us8b82
 
 ---
 
