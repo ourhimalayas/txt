@@ -2,29 +2,61 @@
 ---
 
 
-## 有声｜中俄贸易概念股涨停 俄商品在中国被抢购
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2120179/)
+## 中国人的救赎
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2120246/)
 
-**By:秘翻新闻**
+作者：纽约香草山教育部-蓝之灵（hortênsia)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+站在炮火纷飞最前沿
+拯救一个又一个生命
+中国的，美国的，乌克兰的
+巴士飞驰一次又一次
+鲜活生命
+救援队在救赎
 
-**2022-03-07**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/307_2.jpg)图片来源 大纪元
-据[大纪元](https://www.epochtimes.com/gb/22/3/6/n13625369.htm)3月6日消息，俄罗斯因入侵乌克兰受多国联手制裁，中共明确表示不支持制裁，并要与俄罗斯继续贸易。近日，俄驻华大使馆唯一授权的网店爆出商品热卖到脱销。
+我们是在救命吗
+我们是在行善吗
+天使在前线
+行使使命
+完成
+救赎中国人灵魂
 
-除了俄罗斯商品在中国热销外，中俄贸易概念股最近也受到追捧。
+罪孽国度
+培养魔鬼
+魔鬼统治下人们
+愚昧又愚蠢
+如果我们呼喊
+唤不醒你们
+就让我们行动
+救赎你们灵魂
 
-中国股市的中俄贸易概念股中的锦州港和天顺股份已出现连续五天一字涨停。
+醒来吧
+粉红们
+不要再被愚蠢
+把魔鬼假与骗
+倒进垃圾桶
+醒来吧
+中国人
+拒绝愚弄
+向真相靠拢
+醒来吧
+同胞们
+睁开眼睛
+看见我们救赎行动
 
-所谓一字涨停是指股票一开盘就立即涨停，一直持续到收盘。其原因是有投资者看好这只股票，开盘即有大量买单封住涨停。在涨停期间，这只股票几乎没法买到，属于越上涨越惜售的罕见现象。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE_2022-03-04_212649.jpg)
 
-原首都师范大学教育科学学院副教授李元华对大纪元表示，中共体制下，民众得不到真实的信息，所以部分中国人会跟着中共走，要支持俄罗斯的所谓“正义战争”。
+审核/编辑/发稿:qiutian（邱甜）
 
-(秘翻新闻 二丫编辑报道)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-发布：文橙
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,47 @@
 ---
 
 
-## 秘翻在线：中共不撤侨只撒谎，中共国航空公司趁火打劫卖高价票
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2119632/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2119732/)
 
-**撰稿：葛大饼**
+**整理：枳实**
+**美工：精灵蓝**
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10.jpg)
-根据2022年3月5日看中国报道，俄罗斯入侵乌克兰8天后，仍有大批的中国人被困在乌克兰境内的各个交战区，中共媒体对撤侨大吹大擂，而真相是即使侥幸逃离到邻国的国人，也被迫要向中共国有航空公司购买高价机票,被困战火的中国人愤怒控诉中共政府：“我们只是弃子”！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/fengmian-2.jpg)图片：雅典娜农场设计组 精灵蓝
 
-据被困乌国东南部城市梅利托波尔（Melitópol）的上海人方先生称，当他试图在国内媒体上发出求助资讯时，信息很快被审查了， 不允许评论，不允许点赞。方先生还透露，被困在乌克兰苏梅州（Sumy Oblast）地下室的138名中共国留学生，现在连食物都难以为继，然而中共国记者们却拒绝了他发出的呼救信息，另一位被困在奥德萨的北京人王先生发布在社交媒体的战地短片几乎都被封，同时多名身在中共国的传媒人透露，他们试图将哈尔科夫文化学院四名中国留学生死于俄军轰炸的消息转发在国内平台，也同样被禁。
 
-一位历尽艰险逃到了罗马利亚的华人透露， 他们被中共官方告知要回中共国需要自费购买机票，原来大约7000元人民币（1107.7美元）的机票，现在涨价到17999元人民币（2848.2美元）。而中共国驻罗马尼亚大使馆却称，高价机票是航空公司的决定，和他们无关，并且拒绝回应中共国官方是否提前知道开战，以及为何不提前撤侨的问题，关于中国留学生在战火中被困、被炸死、被枪击重伤的情况，中共国驻罗马尼亚大使馆工作人员称不知情，记者试图联系中国驻乌克兰大使馆，但该使馆的多部电话都没有人接听。
+雅典娜疫情更新（2022年 3月7日）
 
-一个只会撒谎，掩盖真相的犯罪组织用它控制的媒体每天给老百姓洗脑！事实是，新中国联邦，法制基金和法治社会一直在救援中国同胞和国际友人！用实际行动证明了，谁是说到做到，谁是那个整天撒谎吹嘘自己的假战狼！ 相信共产党，走进火葬场！跟着新中国联邦，你才有明天！
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-**[新闻来源](https://m.secretchina.com/news/gb/2022/03/06/amp999734.html)**
+全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/a-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/b-1.jpg)
+[2022年3月7日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月7日改进.pdf)
 
-#  
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：Frank2021
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

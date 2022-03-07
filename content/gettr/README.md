@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 11:52 AM (UTC)`
+
+新中国联邦 法治基金救援行动 帮助乌克兰儿童逃离战火 连线波兰前线战友 （第二部分） 2022-03-07
+![img](https://media.gettr.com/group44/origin/2022/03/07/11/d9a89241-a971-ab2b-a058-109564f77a69/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/7/2022 11:13 AM (UTC)`
 
 【Ukraine Rescue】03/06/2022 Rule of Law Foundation and the New Federal State of China rescued 96 Ukrainian children and their teachers from Hruszów, Poland, and their bus just arrived at a hotel in Krakow, Poland.<br/><br/>【乌克兰救援】03/06/2022 法治基金和新中国联邦从波兰海乌姆救援的96个乌克兰孩子和他们的老师已经到达波兰克拉科夫的酒店。<br/> 
@@ -149,13 +156,6 @@ FDA Releases BOMBSHELL Pfizer Covid Virus Vaccine Data With Over 1,200 Side Effe
 
 3/06/2022 Miles Guo: When will the world economy start to collapse? Putin's time is over, and Xi Jinping is not in good health such that he will certainly attack Taiwan quickly. The Russia-Ukraine war has led the whole world to hate Xi and the Chinese people. However, the Chinese people, who are kidnapped by the CCP, are forced to take the blame for supporting Russia.<br/><br/>3/06/2022 文贵直播：世界经济何时开始崩溃？普京的时代已结束，习太阳身体撑不住，一定会迅速打台湾；俄乌战争让全世界都恨习和中国人，而中共绑架的中国人却被迫背上了支持俄罗斯的黑锅<br/>
 ![img](https://media.gettr.com/group19/getter/2022/03/06/23/d69c8032-6563-4999-dd31-c6f758556bd8/out.jpg)
-
----
-
-`@miles 3/6/2022 11:32 PM (UTC)`
-
-新中国联邦法治基金乌克兰救援 飞飞秀特别节目 2020 0306
-![img](https://media.gettr.com/group43/origin/2022/03/06/23/ebcfdbff-f994-a691-16be-f6933c192040/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
