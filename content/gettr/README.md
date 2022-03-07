@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@tangping 3/7/2022 10:42 AM (UTC)`
+
+《铁锁梦》终于完成了👍💪期待上线❤️
+![img](https://media.gettr.com/group21/getter/2022/03/07/10/89fb4282-3740-a089-70a0-3f4c026c9eb2/out.jpg)
+
+---
+
 `@miles 3/7/2022 12:25 PM (UTC)`
 
 【Ukraine Rescue】03/06/2022 David: So the CCP escaped, but now we, the New Federal State of China, come. We come to rescue the Ukrainian, Americans, our Chinese people and students. So our good international image is gained by our words, behavior and strength,not by CCP’s propaganda.<br/><br/>【乌克兰救援】03/06/2022 大卫：共产党滚蛋了，我们新中国联邦人来了，来救乌克兰人民，救美国同胞，救我们中国的同胞，救我们留学生。我们的国际形象是靠实力争取过来的，是靠我们每一个言行换来的，不是共产党吹出来的。<br/> 
@@ -149,13 +158,6 @@ FDA Releases BOMBSHELL Pfizer Covid Virus Vaccine Data With Over 1,200 Side Effe
 
 2022.03.06 NFSC News  NFSC Ukraine Rescue Teams Arrive in Poland； NFSC- ROLF Ukraine Rescue – Transport to Safety by Coach Bus
 ![img](https://media.gettr.com/group36/origin/2022/03/07/00/57989672-9f3a-b810-16a1-c4c2d4cf3040/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/7/2022 12:11 AM (UTC)`
-
-<br/>3月6号：尊敬的战友们好，你们健身了吗？传播乌克兰战争……人道危机的真相了吗？一切都已经开始。
-![img](https://media.gettr.com/group38/getter/2022/03/07/00/783b9d4b-93e7-df1c-ddfe-486ec973f14b/out.jpg)
 
 ---
 

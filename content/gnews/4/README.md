@@ -2,24 +2,24 @@
 ---
 
 
-## 中日财经爆┃俄乌战争导致小麦价格暴涨40%创14年新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2120383/)
+## 视频｜中共加大对在乌同胞发声的管控
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2120424/)
 
-撰稿：东京樱花团/盐和光
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/中日财经爆┃俄乌战争导致小麦价格暴涨40创14年新高.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp26.toutiaoimg.com%2Flarge%2Ftos-cn-i-qvj2lq49k0%2Febe766c1aba84c9c9273f32affdcffc9&amp;imgrefurl=https%3A%2F%2Ffreedsnews.com%2Ffood%2F2022%2F03%2F03%2F51923.html&amp;tbnid=FbeZAhH1KbS19M&amp;vet=12ahUKEwigiuTE-LP2AhVEzSoKHX32CroQMygfegUIARDZAQ..i&amp;docid=ExthY3zUk_WcWM&amp;w=640&amp;h=427&amp;q=%E5%B0%8F%E9%BA%A6%E4%BB%B7%E6%A0%BC%E6%9A%B4%E6%B6%A8&amp;ved=2ahUKEwigiuTE-LP2AhVEzSoKHX32CroQMygfegUIARDZAQ)
+当地时间3月4日，中共国新浪微博宣布，将对发表关于乌克兰现状的微博，强制加注地理位置标签。公告称，此举为了打击“极个别”冒充在乌克兰人员，发布不实言论。
 
-3月7日北青网报道，据路透社数据显示，俄乌两国小麦出口量合计占全球大约30%，玉米出口量合计占大约20%。随着乌克兰局势趋紧，黑海港口贸易遭到严重干扰，推高小麦等粮食价格。芝加哥期货交易所小麦价格自俄乌2月24日爆发冲突以来，涨幅高达40%。
+无论是彭帅的爆料，还是锁链女事件，都是从微博开始曝光的。而现在也有很多在乌克兰的同胞通过微博，向墙内的老百姓传递现场真实的信息。而现在，中共则要求微博，公开这些发出信息人员的地理位置，甚至在墙内发布评论的人员将被显示出具体的省份和地区信息。
 
-乌克兰和俄罗斯是全球小麦主要出口国，随着乌克兰局势升级，小麦价格涨至近14年来新高，世界各地消费者不得不花费更多钱买面包。联合国世界粮食计划署警告称，俄乌两国供应链紊乱将危及全球数以百万计民众的粮食安全。乌克兰素有“欧洲粮仓”之称，是玉米和小麦出口大国，据业内估算，乌克兰先前每月出口谷物五六百万吨。俄罗斯也是全球小麦出口大国，2021年，俄罗斯小麦产量为大约7600万吨。截至2022年3月4日的一周，全球小麦价格火箭式蹿升，芝加哥小麦暴涨40%，创下2008年以来的最高水平。
+分析人士指出，中共的这种举措，不仅为了掩盖自己没有及时、全面救助在乌同胞的行为，还会对那些爆料人造成生命威胁。
 
-由于CCP新冠病和战争持续，一旦出现运输生产中断，战争影响油价暴涨，必定回抬高粮食价格，中共国经济危机进一步扩大，而粮食危机也随之加剧。
+发稿：小野貓（文凱琳）
 
-【涨价40%！小麦价格创14年新高，联合国发出警告】[https://t.ynet.cn/baijia/32316401.html?sdkver=771db3e7](https://t.ynet.cn/baijia/32316401.html?sdkver=771db3e7)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
