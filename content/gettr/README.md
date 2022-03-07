@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 4:17 AM (UTC)`
+
+【Ukraine Rescure】03/06/2022 Rule of Law Foundation and the New Federal State of China just saved 96 children and their teachers from Ukraine <br/><br/>【乌克兰救援】03/06/2022 法治基金和新中国联邦刚刚从乌克兰救援了96个孩子和老师
+![img](https://media.gettr.com/group49/getter/2022/03/07/04/496d14bf-d1f2-1c3a-a53f-283c7d0174f3/out.jpg)
+
+---
+
 `@miles 3/7/2022 3:12 AM (UTC)`
 
 农场联盟工作汇报
@@ -147,13 +154,6 @@ The Axis of Five Evils Timeline <br/><br/>五大邪恶轴心国爆料时间线<b
 
 2022年3月6日 文贵大直播：新中国联邦营救行动意义；共产党给华人带来的危险；未来排华及保护华人安全；俄乌战争爆发与世界经济
 ![img](https://media.gettr.com/group34/origin/2022/03/06/12/bba14d65-b462-fd60-8a48-5274dce2e7b3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/6/2022 8:17 AM (UTC)`
-
-【Ukraine Rescue】03/05/2022 David interviews a Chinese rescued by the first NFSC rescue bus from Ukraine<br/><br/>【乌克兰救援行动】03/05/2022 大卫采访被第一辆NFSC乌克兰救援巴士救出的中国同胞
-![img](https://media.gettr.com/group43/getter/2022/03/06/08/c0197123-cdca-c12a-69ae-31331db938f1/out.jpg)
 
 ---
 

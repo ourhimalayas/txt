@@ -2,28 +2,43 @@
 ---
 
 
-## 中日财经爆|俄罗斯或用银联代替Visa和万事达卡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2117981/)
+## 七哥支持的人主政安哥拉将全部断掉占中国20%能源供应
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2118029/)
 
-撰稿：东京樱花团/peterwong
+Youtube视频链接：[https://youtu.be/w\_ZFt1vXKGE](https://youtu.be/w_ZFt1vXKGE)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯或用银联代替Visa和万事达卡.png)
+Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
-俄罗斯央行周日（3月6日）表示，俄罗斯银行发行的使用维萨（Visa）和万事达卡（MasterCard）支付系统的信用卡将于3月9日之后停止在海外使用，并补充说一些当地放款机构将寻求使用中共国的银联支付系统。
+**郭文贵先生：**他在这些国家改变游戏规则，你像安哥拉，我要支持的人上去以后，就把安哥拉现在提供中国20%的能源市场全给他停了。
 
-因俄罗斯军事入侵乌克兰，此前美国支付公司Visa和万事达卡表示将暂停在俄罗斯的业务，加入了与俄罗斯断绝业务联系的公司之列。俄罗斯央行建议目前在海外的公民在禁令生效前提取现金。
+共产党的回扣是40%，哇噻，你说想想有多可怕啊。就在安哥拉的石油40%的回扣。中国老百姓傻到就是没边。你想都不敢想的这个黑暗。这改变规则吧？然后从非洲到欧洲，然后到日本，到印度。
 
-俄罗斯央行称，俄罗斯发行的万事达卡和Visa卡将可在俄罗斯境内使用，直到到期。海外禁令也适用于外资银行的俄罗斯子公司发行的卡片。
+编辑整理：Jacques；
 
-俄罗斯央行补充称，许多俄罗斯银行计划发行使用银联支付系统的卡片，并称这个系统已在180个国家启用。有几家俄罗斯银行已在使用银联支付系统，包括俄罗斯联邦储蓄银行(Sberbank)和Tinkoff在内的其他银行可能会开始发行同时带有俄罗斯国内Mir支付系统和银联支付系统标识的卡片。
+字幕文件制作：兵嫂；
 
-消息来源:
+视频制作及上传：Cindy；
 
-[Visa和万事达卡暂停在俄业务后，俄银行可能发行使用中国银联的银行卡](https://cn.reuters.com/article/ukraine-crisis-russia-creditcards-idCNL6S2V901D)
+G-News发布：小满；
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

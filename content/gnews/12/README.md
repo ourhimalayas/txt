@@ -2,28 +2,58 @@
 ---
 
 
-## 中日财经爆|穆迪将俄罗斯评级降至倒数第二低等级
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2117878/)
+## 蓬佩奥：台湾和美国的未来是交织在一起的
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2117929/)
 
-撰稿：东京樱花团/peterwong
+前国务卿迈克.蓬佩奥： 台湾和美国的未来是交织在一起的，因为我们的利益非常一致。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/穆迪将俄罗斯评级降至倒数第二低等级.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdni.rt.com%2Ffiles%2F2022.03%2Fxxl%2F6224ba6e2030276fe7625b96.jpg&amp;imgrefurl=https%3A%2F%2Fwww.rt.com%2Fbusiness%2F551361-moodys-downgrade-srussia-credit-ratings%2F&amp;tbnid=KVmeQo6F_VPFzM&amp;vet=12ahUKEwjp74)
 
-国际评级机构穆迪周日（3月6日）将俄罗斯的信用评级降至Ca，为第二低的级别，理由是俄罗斯央行的资本控制可能会限制俄罗斯外债的支付并导致违约。
 
-穆迪表示，下调俄罗斯评级的决定是“出于严重担心俄罗斯支付其债务的意愿和能力” ，违约风险已经上升，外国债券持有人可能只收回他们的部分投资。
+> The futures of Taiwan and the United States are intertwined, because our interests are very much aligned.
+> — Mike Pompeo (@mikepompeo) [March 6, 2022](https://twitter.com/mikepompeo/status/1500553560672591879?ref_src=twsrc%5Etfw)
 
-由于俄罗斯军事入侵乌克兰而被西方严厉制裁，俄罗斯的经济已经陷入危机，这些制裁包括冻结俄罗斯央行在海外的资产，并将几家俄罗斯银行从SWIFT国际支付系统中剔除。
 
-俄罗斯央行上周暂停偿付债务，并在上周三表示，已禁止向持有卢布计价主权债务(称为OFZ)的外国投资者支付票息。央行没有说这些限制将持续多久。
 
-周日，俄罗斯央行表示，俄罗斯债权人和未参与制裁的国家的债权人，将按偿付时的汇率以卢布支付债务，如果债权人取得特别许可，也可获得以债务发行的货币偿付。对于来自其他国家的债权人，付款将以卢布存入一个特别账户，该账户将受央行制定的规则约束。
+美国国务院： 拜登总统 [@POTUS](https://twitter.com/POTUS) 致俄罗斯人民的信息：“我不相信你们想要一场针对乌克兰 – 一个与你们有着如此深厚的家庭、历史和文化联系的国家和人民 – 的血腥、破坏性战争。” 【图片文字：致俄罗斯公民：“你们不是我们的敌人” ——总统乔拜登】
 
-消息来源:[穆迪将俄罗斯评级降至Ca 因违约风险上升](https://cn.reuters.com/article/moodys-russian-rating-0306-sun-idCNKBS2L401A?il=0)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+
+> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) message to the people of Russia: “I do not believe you want a bloody, destructive war against Ukraine — a country and a people with whom you share such deep ties of family, history, and culture.” [pic.twitter.com/pC58Oj5RMz](https://t.co/pC58Oj5RMz)
+> — Department of State (@StateDept) [March 6, 2022](https://twitter.com/StateDept/status/1500553355743182858?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: 白宫@WhiteHouse 是否忘记了马杜罗@NicolasMaduro 的残酷压迫已经杀死了数千人并制造了近 600 万难民？ 马杜罗帮助致力于破坏哥伦比亚和拉丁美洲稳定的毒品恐怖分子，接待卡斯特罗的暴徒，以及与俄罗斯、#中共国、伊朗和真主党等敌人结为伙伴关系。 【转斯科特自己推文：拜登政府唯一应该与马杜罗讨论的是他辞职的时间。马杜罗是一个像普京一样的种族灭绝的暴君。美国不能依赖于一个凶残的独裁者去置换另一个，也不能以任何方式承认他的虚假政府是合法的。】
+
+
+
+> Has the [@WhiteHouse](https://twitter.com/WhiteHouse?ref_src=twsrc%5Etfw) forgotten that [@NicolasMaduro](https://twitter.com/NicolasMaduro?ref_src=twsrc%5Etfw)’s brutal oppression has killed 1,000s & created nearly 6M refugees?
+> 
+> Maduro aids narcoterrorists working to destabilize Colombia & LATAM, hosts Castro’s thugs & partners with enemies like Russia, Communist China, Iran & Hezbollah. [https://t.co/mmKiwC6H0n](https://t.co/mmKiwC6H0n)
+> — Rick Scott (@SenRickScott) [March 6, 2022](https://twitter.com/SenRickScott/status/1500518599609442308?ref_src=twsrc%5Etfw)
+
+
+
+国务卿安东尼.布林肯： 俄罗斯政府正在封锁媒体渠道并限制社交媒体——所有这些都是为了掩盖正在乌克兰领土发生的事情的真相。 俄罗斯人民应该知道以他们的名义而造成的死亡和破坏的真相。
+
+
+
+> The Russian government is blocking media outlets and restricting social media — all to obscure the truth about what is happening on the ground in Ukraine. The Russian people deserve to know the truth about the death and destruction happening in their name. [pic.twitter.com/8Jk8i32chU](https://t.co/8Jk8i32chU)
+> — Secretary Antony Blinken (@SecBlinken) [March 6, 2022](https://twitter.com/SecBlinken/status/1500293840074203138?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 俄罗斯入侵乌克兰 [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 10天了，一件事是显而易见的，[#Putin](https://twitter.com/hashtag/Putin?src=hashtag_click) 普京将永远无法成功占领和统治这个国家 只要俄罗斯人还在乌克兰，他们就会面临炸弹、狙击手和死亡
+
+
+
+> 10 days into [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw)’s invasion of [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) one thing is obvious for all to see, [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) will never be able to successfully occupy & govern the country 
+> 
+> As long as Russians are there, they will face bombs, snipers and death
+> — Marco Rubio (@marcorubio) [March 7, 2022](https://twitter.com/marcorubio/status/1500642584020013066?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
