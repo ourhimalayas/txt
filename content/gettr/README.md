@@ -26,13 +26,6 @@
 
 `@miles 3/7/2022 10:05 PM (UTC)`
 
-新中国联邦法治基金乌克兰人道救援行动-最前线跟踪报道
-![img](https://media.gettr.com/group28/origin/2022/03/07/21/52e039e1-f7a2-a171-2295-1af244c3a132/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/7/2022 10:05 PM (UTC)`
-
 【乌克兰救援】 03/07/2022协助新中国联邦乌克兰儿童救援行动的人权律师感动落泪<br/><br/>【Ukraine Rescue】 03/07/2022 Human rights lawyer who assisted the NFSC's child rescue operation in Ukraine is moved to tears
 ![img](https://media.gettr.com/group42/getter/2022/03/07/22/009f1488-9075-a0d2-2dca-18e184089f2d/out.jpg)
 
@@ -161,6 +154,13 @@ FDA released Pfizer COVID vaccines data with more than 1,200 side effects. Pfize
 
 3/6/2022 Miles Guo: The side effects of the Pfizer vaccine are shocking! Those who are not vaccinated are almost as lucky as surviving ten thousand Ukrainian wars! The war enthusiasm demonstrated by some Chinese and the ugly acts of the CCP secretly supporting Russia are really hurting the feelings of Ukrainians!<br/><br/>3/6/2022文贵直播：辉瑞疫苗副作用让人震惊！没打疫苗的人，几乎相当于经历1万次乌克兰战争后仍能得以幸存般幸运！部分中国人表现出来的支持战争的狂热和中共暗中支持俄罗斯的丑恶行径伤害了乌克兰人的感情！<br/>
 ![img](https://media.gettr.com/group35/getter/2022/03/07/05/3bd3b8e2-99c2-73ac-f3b2-0513c35727ef/out.jpg)
+
+---
+
+`@miles 3/7/2022 5:13 AM (UTC)`
+
+3/6/2022 Miles Guo: In our mission to rescue the people in Ukraine, the New Federal State of China is 1) the only Chinese team that went to the front line to save people; 2) the only team that saved Chinese, Ukrainians, and Americans without any political and economic demands or political stances; 3) the only team that saved a large number of Chinese and Americans; and 4) the only team that have told the world that there were 30,000 Chinese people in Ukraine who were abandoned by the CCP.<br/><br/>3/6/2022 文贵直播：新中国联邦在乌克兰救援中的四个唯一：1) 唯一去前线救人的中国人团队; 2) 唯一无政治经济诉求或政治立场地救中国人、乌克兰人和美国人的团队；3) 唯一救出了大量中国人和美国人的团队；4) 唯一告诉世界在乌克兰有被中共抛弃的3万中国人的团队<br/>
+![img](https://media.gettr.com/group35/getter/2022/03/07/05/babe3b16-0292-cd7e-61d1-59af7fc3f3bb/out.jpg)
 
 ---
 

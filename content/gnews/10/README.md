@@ -2,10 +2,10 @@
 ---
 
 
-## 乌克兰局势——新中国人在行动
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2122703/)
+## 在蓬佩奥访台期间，台湾突遭大面积停电
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2122749/)
 
-03/03/2022 小王子和瑞秋作客战斗室：新中国联邦人正在帮助人们撤离乌克兰到安全的中转国，并提供免费的飞机和30天以内的免费食宿。
+03/03/2022 TVBS新闻报道，在蓬佩奥访台期间，台湾突遭大面积停电。
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
