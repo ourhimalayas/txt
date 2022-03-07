@@ -2,26 +2,28 @@
 ---
 
 
-## 俄罗斯银行在被制裁后转入中共国信用卡系统
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2118675/)
+## 中共大陆新增无症状感染病例超过确诊
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2118782/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-41.jpg)
-图片来源： 6do.news
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-9.jpg)中共大陆新增无症状感染病例超过确诊 网络图片
+据路透社3月6日报道，中共国国家卫健委6日通报，中共大陆新增新冠肺炎确诊病例327例，其中本土病例214例，创2020年2月末以来新高。当日新增本土无症状感染者达312例，大幅反超确诊病例。
 
-零对冲网3月6日报道，在俄罗斯入侵乌克兰后不久俄罗斯的信用卡（威士卡和万事达卡）被停用，泽连斯基要求各公司停止与俄罗斯交易，并要求美国立法机构注意，在俄罗斯被踢出西方金融系统后必然会用中共国银联卡，有数百万俄罗斯人用该信用卡系统。
+中共病毒肆虐全球三年，只有中共国创造了输入病例、本土病例、本土无症状感染、本土新增病例等新名词。武汉病毒爆发的时候，中共国几百万飞往全世界各地的感染者算新增病例还是输入病例还是其他什么病例？病毒之后是后患无穷的疫苗灾难导致了现在的新冠反弹，中共手里握着还在滴着血的刀，玩起了杀人者找杀人犯的游戏。中共不灭，新冠病例会不断再创新高。
 
-路透社证实，周日俄罗斯几家银行周日说在威士卡和万事达卡宣布暂停在俄罗斯境内的服务后，他们不久将用中共国银联卡操作系统与俄罗斯自己的米尔网络相联结。
+新闻参考链接：[https://cn.reuters.com/article/china-mainland-covid19-cases-0307-mon-idCNKBS2L4060](https://cn.reuters.com/article/china-mainland-covid19-cases-0307-mon-idCNKBS2L4060)
 
-这将使俄罗斯可以更多地在国外进行支付，因为银联卡在全球180个国家和地区使用。
+* * *
 
-威士卡公司说在俄罗斯的用户仍然可以在俄罗斯境内购买物资和服务，但不能转账，美国运通卡公司也将不能在俄罗斯取钱，贝宝公司也宣布关闭在俄罗斯的业务。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-这是全球支付系统公司新近加入的对俄罗斯的制裁行动以对抗俄罗斯对乌克兰的侵略。
 
-##### 新闻来源： [Russian Banks Switch To Chinese Card System As AmEx Joins Visa & MasterCard In Suspending Russian Operations](https://www.zerohedge.com/geopolitical/russian-banks-switch-chinese-card-system-amex-joins-visa-mastercard-suspending-russian)
+编辑：【英国伦敦喜庄园编辑部】
 
-#  
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

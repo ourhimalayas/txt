@@ -2,31 +2,43 @@
 ---
 
 
-## 今日盖特大V推荐 — 安·库尔特（Ann Coulter）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2118652/)
+## 俄罗斯炮击引发了欧洲最大核电站火灾
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2118750/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-567.png)
-盖特链接：**[https://gettr.com/user/anncoulter](https://gettr.com/user/anncoulter)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-15.png)
 
-**安·库尔特克自述：**
+图片来自原文
 
-作家
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-568.png)图片来源：网络
-**安·库尔特简介：**
+俄军为控制乌克兰南部能源重镇安赫德（Enerhodar）与乌克兰军展开激烈地控制重要能源生产城市的战斗。
 
-安·库尔特，全名安·哈特·库尔特（Ann Hart Coulter 生于1961年12月8日）是美国保守派媒体专家、作家、联合专栏作家、政治评论员和律师。
+在普京的坦克袭击之后，引发了欧洲最大的核电站——扎波罗热核电站(Zeaporizhzhia)的火灾。
 
-安·库尔特在1990年代后期以媒体专家的身份而闻名，作为对克林顿政府的直言不讳的批评者出现在印刷品和有线新闻中。库尔特写了13本书，出版了一个联合报刊专栏。她的第一本书涉及弹劾比尔·克林顿（Bill Clinton）。
+扎波罗热核电站是欧洲最大核电站。该核电站提供乌克兰四分之一的电力。
 
-安·库尔特曾在美国参议院司法委员会工作。她还是美国一家非营利性公益律师事务所“个人权利中心（CIR ）”的律师。
+据当地政府称，工厂被俄罗斯人查封。俄军已接管了该工厂。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+当地市长说，火灾是由 “敌人的连续炮击 “引起的。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+联合国原子能监督机构表示，在俄罗斯的袭击之后，没有放射性物质的释放。
+
+英首相说，这次袭击可能直接威胁到整个欧洲的安全。
+
+英副首相说，俄罗斯的袭击是一种完全卑鄙的行为。
+
+乌克兰总统沃洛季米尔-泽伦斯基(Volodymyr Zelenskyy)说，俄罗斯的人民，这怎么可能呢？我们一起对抗了1986年切尔诺贝利灾难的后果。你忘记了吗？如果你记得，你就不能保持沉默。告诉你们的领导，你们想活下去。
+
+乌克兰外交部长警告说，如果扎波罗热电厂 “爆炸”，它将比切尔诺贝利灾难大十倍。
+
+据报道，试图扑灭大火的消防员遭到了枪击。大火在肆虐了几个小时后，今天上午最终被扑灭。
+
+几个小时前，扎波罗热核电站的发言人Andriy Tuz说，俄罗斯的炮弹直接落在扎波罗热核电站，并点燃了该设施的六个反应堆中的一个。虽然该反应堆没有在使用。但里面有核燃料，确实存在着核危险的威胁。
+
+据法国总统办公室的一名官员称，普京告诉法国总统马克龙，他决心继续进行攻击，”直到最后”。
+
+新闻来源链接：[https://www.lbc.co.uk/news/europes-biggest-nuclear-power-plant-fire-ukraine/](https://www.lbc.co.uk/news/europes-biggest-nuclear-power-plant-fire-ukraine/)
+
+本文作者：Rebecca (一切心皆不可得！)
+上传排版：Hong
 
  
 

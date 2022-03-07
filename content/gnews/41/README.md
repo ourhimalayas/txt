@@ -2,20 +2,30 @@
 ---
 
 
-## 乌克兰救援:新中国联邦再次救出乌克兰96个孩子及老师们
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2117654/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月6日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2117923/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/collapse-2.jpg)
-继从乌克兰救出70个人之后，新中国联邦的救援行动再次传出捷报!
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-4.png)
 
-经历了艰苦险境，新中国联邦又从乌克兰救出96个孩子及老师们，这些孩子及老师们多日来深受惊恐与饥饿，终于踏上寻求安全及幸福的道路。
 
-“报告七哥，我们的两辆公车从乌克兰将这96个人接出来，一切顺利!孩子们虽然很累，但终于都安全了!我们也松了口气!”在现场辛苦救援的战友传回捷报，”现在两辆大公车还要经过几个小时的路程，赶往下一个地方，送这些孩子及老师们去宾馆休息，我们也会随行护送。”
+校对：Stay文苑
 
-“他们休整过后，即将前往新中国联邦西班牙巴塞罗纳农场，那里的战友将继续之后的救援服务。受到救援的代表Teresa 女士对法制基金、新中国联邦表达最深的感谢，她认为我们就是天使的化身!”战友说。
+编辑：Stay文苑
 
-“此次的俄乌战争，全世界200多个国家，只有新中国联邦在靠近乌克兰战区的波兰各地区建立据点，援救包括战友、美国人即各国人士，即便唾弃新中国联邦、爆料革命的小粉红也会救 ! 全世界只有新中国联邦不要钱、不要名，真心诚意的救人!”郭文贵先生在大直播中说。”共产党就是个邪恶组织，不能代表中国人，新中国联邦会是最后打扫战场，清除战争垃圾的人!”
+发稿：Stay文苑
+
+新闻：[https://www.gettr.com/post/pykr8wcff3](https://www.gettr.com/post/pykr8wcff3)
+访谈：[https://www.gettr.com/post/pyl5g40dd6](https://www.gettr.com/post/pyl5g40dd6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-6.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

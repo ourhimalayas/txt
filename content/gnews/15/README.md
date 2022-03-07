@@ -2,29 +2,32 @@
 ---
 
 
-## 有声｜保护艺术品免受破坏 乌克兰博物馆加紧行动
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2118538/)
+## 今日盖特大V推荐 — 安·库尔特（Ann Coulter）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2118652/)
 
-By:**秘翻新闻**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-567.png)
+盖特链接：**[https://gettr.com/user/anncoulter](https://gettr.com/user/anncoulter)**
 
-**2022-03-07**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/14-10.png)图片来源 新唐人
-[据新唐人北京时间3月7日消息，俄军在乌克兰的进攻仍在继续，连日来，乌克兰利沃夫艺术博物馆加紧保护珍藏的艺术品免受战争破坏。](https://www.ntdtv.com/gb/2022/03/06/a103366296.html)
+**安·库尔特克自述：**
 
-[位于乌克兰西部城市利沃夫的安德烈·谢普蒂茨基国家博物馆，是乌克兰最大的国家艺术博物馆，历经两次世界大战，都得以幸存。](https://www.ntdtv.com/gb/2022/03/06/a103366296.html)
+作家
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-568.png)图片来源：网络
+**安·库尔特简介：**
 
-[自2月24日俄罗斯对乌克兰发动战争以来，这所博物馆也随之关闭。](https://www.ntdtv.com/gb/2022/03/06/a103366296.html)
+安·库尔特，全名安·哈特·库尔特（Ann Hart Coulter 生于1961年12月8日）是美国保守派媒体专家、作家、联合专栏作家、政治评论员和律师。
 
-[珍藏手稿和书籍的部门负责人说， 12,000多件珍藏品已经装箱，但还没有找到可以安全存放的场所。目前，该馆的收藏品已被挪到馆内的地下防空洞。](https://www.ntdtv.com/gb/2022/03/06/a103366296.html)
+安·库尔特在1990年代后期以媒体专家的身份而闻名，作为对克林顿政府的直言不讳的批评者出现在印刷品和有线新闻中。库尔特写了13本书，出版了一个联合报刊专栏。她的第一本书涉及弹劾比尔·克林顿（Bill Clinton）。
 
-[利沃夫市是乌克兰西部主要的工业和文化教育中心，乌克兰其他文化部门也在竭力保护艺术和文化作品。](https://www.ntdtv.com/gb/2022/03/06/a103366296.html)
+安·库尔特曾在美国参议院司法委员会工作。她还是美国一家非营利性公益律师事务所“个人权利中心（CIR ）”的律师。
 
-秘翻新闻 二丫编辑报道
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-发布 : 恩典
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

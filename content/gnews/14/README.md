@@ -2,46 +2,34 @@
 ---
 
 
-## 被绑24年横跨江泽民胡锦涛习近平的锁链女是全党作案
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2118573/)
+## 乌克兰对主要农产品实施出口许可证
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2118656/)
 
-Youtube视频链接：[https://youtu.be/fFo9xr6Ypn4](https://youtu.be/fFo9xr6Ypn4)
+文 / 陈慧璋
+发布 / 2022年3月7日 8:16 AM
+采集：玫瑰新闻组
 
-Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3077.jpg)乌克兰是全球最大的葵花籽油出口国。图为一辆卡车在乌克兰敖德萨州一座提炼葵花籽油的工厂卸货。（路透社）
 
-**郭文贵先生：**除此之外 ，咱们那个哥们儿给我讲一个，他说：“你说现在在党内在想啥啊？这还用说吗？这事儿少吗？天天都在发生啊！我们从来没承诺、从来没对外说‘中国没有贩卖妇女的’ ，贩卖妇女是常态呀。而且现在很多人在批评习近平，你们真的要公平地说，这个女孩24年了被绑架，锁链24年，横跨江泽民、胡锦涛、习近平，这事儿不是习近平干的，是江泽民、胡锦涛干的。”
+（早报讯）深陷战争泥沼的乌克兰对其主要农产品包括小麦、玉米和葵花籽油以及家禽和鸡蛋等实施出口许可证。
 
-你觉得这事儿没报道过吗？我告诉你这个女孩儿的事情在当地就被报道过，谁压下的？当年就有报道过，差点儿就找着了，包括寄出去的信，寄到这个女孩儿家里的信，信被（人）给拿掉了，谁拿掉的？这里边儿的意思大了去了！
+路透社报道，乌克兰是世界领先的谷类和植物油生产国与出口国之一。
 
-一，全党作案；第二，横跨三代24年；第三，这里边儿充满了迷信、祭祀、掩盖政治、相互欺骗，然后这次被爆出以后，又演了一把互相骗中央、中央骗地方、地方互相骗，然后篡改名字、篡改故事。
+乌克兰国际文传电讯社星期天（3月6日）引述乌克兰政府的一份文件说，乌克兰政府颁布新规定，贸易商在出口上述产品前必须申请许可证。
 
-说这个国家，你发现咱刚才说的这一切的话，就跟着两件事儿发现了吗？假，就是假，一切都是假的；第二就骗，一切都是骗。
+乌克兰是全球最大的葵花籽油出口国。此前，乌克兰政府表示，该国在2021年7月至2022年6月可出口超过6000万吨谷物，其中包括3300万吨玉米和2300万吨小麦。
 
-编辑整理：Jacques；
+星期天早前，乌克兰已暂停了黑麦、燕麦、小米、荞麦、盐、糖、肉类和牲畜的出口。
 
-字幕文件制作：兵嫂；
+另一方面，乌克兰铁路公司表示，它可能会将谷类运到罗马尼亚、匈牙利、斯洛伐克和波兰的边境，再通过这些国家把谷类运往欧洲各国的港口和物流枢纽。
 
-视频制作及上传：Cindy；
+乌克兰传统上是通过海路出口谷物、植物油和其他食品。
 
-G-News发布：小满；
+新闻链接：
+[乌克兰对主要农产品实施出口许可证](https://www.zaobao.com.sg/realtime/world/story20220307-1249648)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

@@ -2,57 +2,46 @@
 ---
 
 
-## 蓬佩奥：台湾和美国的未来是交织在一起的
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2117929/)
+## 银行业监管机构称中共国不会加入对俄罗斯的制裁
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2118112/)
 
-前国务卿迈克.蓬佩奥： 台湾和美国的未来是交织在一起的，因为我们的利益非常一致。
+***评论：**西方国家对俄罗斯制裁，是因为俄罗斯入侵了乌克兰，中共国在联合国大会紧急特别会议关于乌克兰局势决议草案中投了弃权票，和俄罗斯关系越来越密切，世人皆知，说影响有限，是不是心虚，他们自己清楚。*
 
+据《路透社》记者Kevin Yao 2022年3月2日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-559-e1646626363938.png)中国银行保险监督管理委员会（CBIRC）主席郭树清于2021年3月2日在中国北京出席新闻发布会。REUTERS/Tingshu Wang
+《路透社》北京3月2日 – 中国银行业监管机构周三表示，中共国不会加入由西方主导的对俄罗斯的制裁，并补充说他认为这些措施对中国的影响将是有限的。
 
+中共国拒绝谴责俄罗斯入侵乌克兰，一再批评其所谓的非法和单边制裁。
 
-> The futures of Taiwan and the United States are intertwined, because our interests are very much aligned.
-> — Mike Pompeo (@mikepompeo) [March 6, 2022](https://twitter.com/mikepompeo/status/1500553560672591879?ref_src=twsrc%5Etfw)
+“就金融制裁而言，我们不赞成，尤其是单方面发起的制裁，因为它们效果不佳，没有法律依据，”中国银保监会主席郭树清在一场新闻发布会上说。
 
+“我们不会参与此类制裁。我们将继续与有关各方保持正常的经贸往来。”他说。
 
+近年来，中共国和俄罗斯的关系越来越密切，包括作为贸易伙伴。根据中国海关数据，去年两国贸易总额增长 35.9%，达到创纪录的 1469 亿美元，其中俄罗斯是石油、天然气、煤炭和农产品的主要来源，对华贸易顺差。
 
-美国国务院： 拜登总统 [@POTUS](https://twitter.com/POTUS) 致俄罗斯人民的信息：“我不相信你们想要一场针对乌克兰 – 一个与你们有着如此深厚的家庭、历史和文化联系的国家和人民 – 的血腥、破坏性战争。” 【图片文字：致俄罗斯公民：“你们不是我们的敌人” ——总统乔拜登】
+“到目前为止，制裁对中国经济和金融部门的影响还不是很大。”郭补充道。
 
+“总体而言，即使在未来，它们（对中国）也不会产生太大影响，”郭说，并引用了中国经济和金融部门的韧性。
 
+文章观点仅代表作者个人，与Gnews平台无关。
 
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) message to the people of Russia: “I do not believe you want a bloody, destructive war against Ukraine — a country and a people with whom you share such deep ties of family, history, and culture.” [pic.twitter.com/pC58Oj5RMz](https://t.co/pC58Oj5RMz)
-> — Department of State (@StateDept) [March 6, 2022](https://twitter.com/StateDept/status/1500553355743182858?ref_src=twsrc%5Etfw)
+文章来源：[https://www.reuters.com/markets/europe/china-banking-regulator-sees-limited-impact-sanctions-russia-2022-03-02/](https://www.reuters.com/markets/europe/china-banking-regulator-sees-limited-impact-sanctions-russia-2022-03-02/)
 
+翻译：洛杉矶盘古农场 – Raul
 
+校对：洛杉矶盘古农场 – 轰炸机
 
-参议员瑞克·斯科特: 白宫@WhiteHouse 是否忘记了马杜罗@NicolasMaduro 的残酷压迫已经杀死了数千人并制造了近 600 万难民？ 马杜罗帮助致力于破坏哥伦比亚和拉丁美洲稳定的毒品恐怖分子，接待卡斯特罗的暴徒，以及与俄罗斯、#中共国、伊朗和真主党等敌人结为伙伴关系。 【转斯科特自己推文：拜登政府唯一应该与马杜罗讨论的是他辞职的时间。马杜罗是一个像普京一样的种族灭绝的暴君。美国不能依赖于一个凶残的独裁者去置换另一个，也不能以任何方式承认他的虚假政府是合法的。】
+评论：洛杉矶盘古农场 – 傻小子
 
+编辑：洛杉矶盘古农场 – 傻小子
 
-
-> Has the [@WhiteHouse](https://twitter.com/WhiteHouse?ref_src=twsrc%5Etfw) forgotten that [@NicolasMaduro](https://twitter.com/NicolasMaduro?ref_src=twsrc%5Etfw)’s brutal oppression has killed 1,000s & created nearly 6M refugees?
-> 
-> Maduro aids narcoterrorists working to destabilize Colombia & LATAM, hosts Castro’s thugs & partners with enemies like Russia, Communist China, Iran & Hezbollah. [https://t.co/mmKiwC6H0n](https://t.co/mmKiwC6H0n)
-> — Rick Scott (@SenRickScott) [March 6, 2022](https://twitter.com/SenRickScott/status/1500518599609442308?ref_src=twsrc%5Etfw)
-
-
-
-国务卿安东尼.布林肯： 俄罗斯政府正在封锁媒体渠道并限制社交媒体——所有这些都是为了掩盖正在乌克兰领土发生的事情的真相。 俄罗斯人民应该知道以他们的名义而造成的死亡和破坏的真相。
-
-
-
-> The Russian government is blocking media outlets and restricting social media — all to obscure the truth about what is happening on the ground in Ukraine. The Russian people deserve to know the truth about the death and destruction happening in their name. [pic.twitter.com/8Jk8i32chU](https://t.co/8Jk8i32chU)
-> — Secretary Antony Blinken (@SecBlinken) [March 6, 2022](https://twitter.com/SecBlinken/status/1500293840074203138?ref_src=twsrc%5Etfw)
+发布：洛杉矶盘古农场 – 子萍
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-参议员马可·卢比奥： [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 俄罗斯入侵乌克兰 [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 10天了，一件事是显而易见的，[#Putin](https://twitter.com/hashtag/Putin?src=hashtag_click) 普京将永远无法成功占领和统治这个国家 只要俄罗斯人还在乌克兰，他们就会面临炸弹、狙击手和死亡
-
-
-
-> 10 days into [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw)’s invasion of [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) one thing is obvious for all to see, [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) will never be able to successfully occupy & govern the country 
-> 
-> As long as Russians are there, they will face bombs, snipers and death
-> — Marco Rubio (@marcorubio) [March 7, 2022](https://twitter.com/marcorubio/status/1500642584020013066?ref_src=twsrc%5Etfw)
-
-
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
  
 

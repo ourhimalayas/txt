@@ -2,38 +2,57 @@
 ---
 
 
-## 欧盟委员会暂停与俄罗斯和白俄罗斯的跨境合作和跨区合作
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2117855/)
+## 蓬佩奥：台湾和美国的未来是交织在一起的
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2117929/)
 
-**评论：***俄乌之战让欧盟委员会意识到俄罗斯已经违反了国际法、人权、民主原则和法治，从而向乌克兰伸出了正义的救援之手。*
-
-据《ec.europa.eu》欧盟新闻稿，2022年3月4日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-555-e1646622445132.png)图片来源：European Commission
-在俄罗斯对乌克兰进行军事侵略之后，根据欧盟委员会全面实施所有限制性措施的决定，欧盟委员会暂停与俄罗斯及其盟友白俄罗斯在欧洲的邻国跨境合作计划（ENI-CBC）以及波罗的海跨区合作计划。
-
-限制意味着将不再向俄罗斯或白俄罗斯支付款项。暂停对涉及俄罗斯和白俄罗斯的九个ENI-CBC计划以及2014-2020年计划期间的波罗的海跨国计划。欧盟对涉及俄罗斯的八个项目的资金总额为1.78亿欧元，而欧盟对涉及白俄罗斯的两个项目的资金总额为2.57亿欧元。ENI-CBC规定，在违反国际法、人权、民主原则和法治的情况下，将暂停与外部国家的合作。
-
-与这两个国家在2021-2027年期间的新计划方案合作也被暂停。
-
-凝聚力和改革委员会专员Elisa Ferreira说：“俄罗斯的军事侵略是对《联合国宪章》、国际法和基于规则的秩序的公然违反。暂停对俄罗斯和白俄罗斯的所有跨境和跨国计划和付款，同时加强对乌克兰的支持，是欧洲对乌克兰人民支持的具体体现。”
-
-同时，委员会正在紧急探索法律和操作性，以加强欧盟国家（波兰、匈牙利、罗马尼亚、斯洛伐克）和乌克兰之间现有的跨境合作计划，以及乌克兰参与ENI-CBC黑海流域计划或多瑙河跨国计划。
-
-由于欧盟和乌克兰边境地区之间现有1000多个伙伴关系，这些方案提供了向乌克兰输送快速、有效支持的机会，包括对难民的支持。
-
-文章来源：[https://ec.europa.eu/info/strategy/priorities-2019-2024/stronger-europe-world/eu-solidarity-ukraine\_en](https://ec.europa.eu/info/strategy/priorities-2019-2024/stronger-europe-world/eu-solidarity-ukraine_en)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 郭班之樱
-评论：洛杉矶盘古农场 – 郭班之樱
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 –子萍
+前国务卿迈克.蓬佩奥： 台湾和美国的未来是交织在一起的，因为我们的利益非常一致。
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
+> The futures of Taiwan and the United States are intertwined, because our interests are very much aligned.
+> — Mike Pompeo (@mikepompeo) [March 6, 2022](https://twitter.com/mikepompeo/status/1500553560672591879?ref_src=twsrc%5Etfw)
+
+
+
+美国国务院： 拜登总统 [@POTUS](https://twitter.com/POTUS) 致俄罗斯人民的信息：“我不相信你们想要一场针对乌克兰 – 一个与你们有着如此深厚的家庭、历史和文化联系的国家和人民 – 的血腥、破坏性战争。” 【图片文字：致俄罗斯公民：“你们不是我们的敌人” ——总统乔拜登】
+
+
+
+> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) message to the people of Russia: “I do not believe you want a bloody, destructive war against Ukraine — a country and a people with whom you share such deep ties of family, history, and culture.” [pic.twitter.com/pC58Oj5RMz](https://t.co/pC58Oj5RMz)
+> — Department of State (@StateDept) [March 6, 2022](https://twitter.com/StateDept/status/1500553355743182858?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: 白宫@WhiteHouse 是否忘记了马杜罗@NicolasMaduro 的残酷压迫已经杀死了数千人并制造了近 600 万难民？ 马杜罗帮助致力于破坏哥伦比亚和拉丁美洲稳定的毒品恐怖分子，接待卡斯特罗的暴徒，以及与俄罗斯、#中共国、伊朗和真主党等敌人结为伙伴关系。 【转斯科特自己推文：拜登政府唯一应该与马杜罗讨论的是他辞职的时间。马杜罗是一个像普京一样的种族灭绝的暴君。美国不能依赖于一个凶残的独裁者去置换另一个，也不能以任何方式承认他的虚假政府是合法的。】
+
+
+
+> Has the [@WhiteHouse](https://twitter.com/WhiteHouse?ref_src=twsrc%5Etfw) forgotten that [@NicolasMaduro](https://twitter.com/NicolasMaduro?ref_src=twsrc%5Etfw)’s brutal oppression has killed 1,000s & created nearly 6M refugees?
+> 
+> Maduro aids narcoterrorists working to destabilize Colombia & LATAM, hosts Castro’s thugs & partners with enemies like Russia, Communist China, Iran & Hezbollah. [https://t.co/mmKiwC6H0n](https://t.co/mmKiwC6H0n)
+> — Rick Scott (@SenRickScott) [March 6, 2022](https://twitter.com/SenRickScott/status/1500518599609442308?ref_src=twsrc%5Etfw)
+
+
+
+国务卿安东尼.布林肯： 俄罗斯政府正在封锁媒体渠道并限制社交媒体——所有这些都是为了掩盖正在乌克兰领土发生的事情的真相。 俄罗斯人民应该知道以他们的名义而造成的死亡和破坏的真相。
+
+
+
+> The Russian government is blocking media outlets and restricting social media — all to obscure the truth about what is happening on the ground in Ukraine. The Russian people deserve to know the truth about the death and destruction happening in their name. [pic.twitter.com/8Jk8i32chU](https://t.co/8Jk8i32chU)
+> — Secretary Antony Blinken (@SecBlinken) [March 6, 2022](https://twitter.com/SecBlinken/status/1500293840074203138?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 俄罗斯入侵乌克兰 [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 10天了，一件事是显而易见的，[#Putin](https://twitter.com/hashtag/Putin?src=hashtag_click) 普京将永远无法成功占领和统治这个国家 只要俄罗斯人还在乌克兰，他们就会面临炸弹、狙击手和死亡
+
+
+
+> 10 days into [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw)’s invasion of [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) one thing is obvious for all to see, [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) will never be able to successfully occupy & govern the country 
+> 
+> As long as Russians are there, they will face bombs, snipers and death
+> — Marco Rubio (@marcorubio) [March 7, 2022](https://twitter.com/marcorubio/status/1500642584020013066?ref_src=twsrc%5Etfw)
+
+
 
  
 

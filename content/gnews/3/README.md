@@ -2,45 +2,61 @@
 ---
 
 
-## SEC主席：中共250家企业可能在2024年被摘牌
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2118674/)
+## 《共产党统治中国的150个家族》之刘云山篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2118777/)
 
-作者：银河系农场 – 骄子
+出品：西班牙巴塞罗那喜悦农场
 
+作者：DT挖掘机团队
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip共产党统治中国的150个家族1-1-edited.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+【接上篇：[《共产党统治中国的150个家族》之“俞正声”篇】](https://gnews.org/zh-hans/2116692/)
 
+5.1刘云山家族
 
+刘云山，汉族，1947年7月生，山西忻州人。
 
-据美国媒体3月5日消息，美国证券交易所SEC主席在本周接受采访时说，如果中共继续不遵守美国上市公司的规定，那么2024年预计会有250家中共公司被驱离美国股市，包括知名的中共大型科技公司阿里巴巴、百度、京东等。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide13.jpg)
-2020年，中共瑞幸的财务造假问题使美国投资者遭受了巨大损失。美国投资者意识到他们对中共公司的财务状况并不知晓，然而中共公司依然能够在美国股市进行自由交易，这种危机迫使美国出台相关法律，使中共公司或者退市，或者遵守财务透明规定，披露是否被外国政府持有或控制等相关讯息。
+出生于内蒙古自治区土默特右旗。1966年9月参加工作，1971年4月加入中国共产党，中共中央党校本科（函授）毕业。
 
-SEC主席表示，在美国上市的公司必须遵守美国的投资者保护规则，中共公司当然不能例外，尤其要允许查看中共财务审计的内部情况，包括审计师本身。
+2002年-2012年十年间任中共中央宣传部部长。
 
-参考链接：
-[SEC Chair: Roughly 250 Chinese companies could be delisted ‘as early as 2024’](https://finance.yahoo.com/news/sec-chair-roughly-250-chinese-companies-could-be-delisted-as-early-as-2024-122037497.html)
+（2009年中宣部抛出“六个为什么”，全面肯定毛泽东对农业、手工业和私营工商业三大改造的功绩，以及刘云山在建党90周年庆典上搞“毛泽东思想万岁”宣传方阵。）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+（2010年中共中宣部、中国国新办要求新闻跟帖必须登录，为全国的网络（包含BBS）推行实名制铺路。）
 
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
+2013年1月-2017年兼任中央精神文明建设指导委员会主任和中共中央党校校长。
 
-**更多资讯，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-577.png)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+5.2刘云山家族
 
+妻子：李素芳，曾任中国民用航空局直属机关党委副书记，已退休。
 
+长子：刘乐飞（1973年－），是中信产业基金的董事长兼首席执行官。此前，刘乐飞曾是中国人寿投资部总经理和首席投资官，现任中信产业基金的董事长兼首席执行官。中信产业基金由中信证券和中信集团创立，于2008年6月成立，首只代筹资金的是绵阳科技城基金，最终筹得97亿人民币。2014年3月，刘乐飞被任命为中信证券副董事长。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+长儿媳：贾丽青，贾春旺的女儿。（贾春旺曾任国安部长、公安部长以及最高人民检察院检察长。刘、贾联姻，被视为是中共政坛“政治联姻”的典型。）
 
+次子：刘乐亭，中国国际金融股份有限公司（中金公司）董事总经理（不确定，存疑待查）
 
+5.3刘云山家族
 
+江湖传言：刘乐飞是车峰的铁哥们。
+
+车峰，香港上市公司数字王国实际控制人、中共央行行长戴相龙女婿。
+
+李云山家谱
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-578.png)
+
+【接下篇：《共产党统治中国的150个家族》之“张高丽”篇】
+
+* * *
+
+审核：Bryan
+校对：小东
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

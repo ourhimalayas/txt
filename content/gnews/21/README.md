@@ -2,26 +2,25 @@
 ---
 
 
-## 11岁的乌克兰男孩独自逃难抵达斯洛伐克
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2118435/)
+## 有声｜中共在乌克兰被入侵前3个月已知俄计划
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2118536/)
 
-**撰稿：日本东京方舟农场  北极**
+**By:秘翻新闻**
 
-据法新社3月6日报道，一名11岁的乌克兰男孩，仅凭护照和写在手上的电话号码，从扎波罗热（Zaporozhie）独自乘车逃难抵达斯洛伐克。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-65.png)乌克兰基辅2022年3月6日遭到密集轰炸。（图片来自法新社）
-该男孩从乌克兰扎波罗热市独自出发，母亲把他送上了前往斯洛伐克的火车，因为她不得不留下来照顾自己残疾的母亲。
+**2022-03-07**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-07-下午1.47.13.png)图片源自:大纪元
+**[3月5日《大纪元时报》报导。一位供应链分析师援引内幕消息称，大约三个月前，中共改变了从俄罗斯订购商品的方式，以便在西方对莫斯科实施制裁的情况下保持交往。此举表明中共已经预见到俄罗斯入侵乌克兰的计划，并已做好应急措施以确保在制裁期间仍能进口俄罗斯商品。](https://www.theepochtimes.com/china-changed-supply-chain-strategy-with-russia-3-months-ahead-of-ukraine-invasion-showing-it-had-foreknowledge-analyst_4317762.html)**
 
-在斯洛伐克当地警方的帮助下，志愿者已经联系上了男孩在斯洛伐克的亲戚，他们接走了这个男孩并将他带到布拉迪斯拉发。
+**[大约在11月或12月，中共国将购买其俄罗斯谷物、原油和石化等产品的保险期，改在购买后立即生效。这是不同寻常的做法，因为在大量海运中，通常是卖方而不是买方承担货物的责任。而现在是中共买家承担这些风险。](https://www.theepochtimes.com/china-changed-supply-chain-strategy-with-russia-3-months-ahead-of-ukraine-invasion-showing-it-had-foreknowledge-analyst_4317762.html)**
 
-俄罗斯军队上周五攻占了欧洲最大的扎波罗热核电站。
+**[这一转变表明，中共当局“至少在一段时间内，肯定知道俄罗斯关于乌克兰的计划”。而美国一位高级政策顾问最近表示，由于担心普京会发动“鲁莽入侵”乌克兰，白宫曾提前与中共接触，希望它能协助避免一场战争，但被中共拒绝了。](https://www.theepochtimes.com/china-changed-supply-chain-strategy-with-russia-3-months-ahead-of-ukraine-invasion-showing-it-had-foreknowledge-analyst_4317762.html)**
 
-参考链接：
-1.[https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220306-%E4%B8%80%E5%90%8D11%E5%B2%81%E7%9A%84%E4%B9%8C%E5%85%8B%E5%85%B0%E7%94%B7%E5%AD%A9%E7%8B%AC%E8%87%AA%E9%80%83%E9%9A%BE%E6%8A%B5%E8%BE%BE%E6%96%AF%E6%B4%9B%E4%BC%90%E5%85%8B-%E9%9C%87%E6%92%BC%E6%AC%A7%E6%B4%B2%E4%BA%BA%E6%9A%96%E5%BF%83](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220306-%E4%B8%80%E5%90%8D11%E5%B2%81%E7%9A%84%E4%B9%8C%E5%85%8B%E5%85%B0%E7%94%B7%E5%AD%A9%E7%8B%AC%E8%87%AA%E9%80%83%E9%9A%BE%E6%8A%B5%E8%BE%BE%E6%96%AF%E6%B4%9B%E4%BC%90%E5%85%8B-%E9%9C%87%E6%92%BC%E6%AC%A7%E6%B4%B2%E4%BA%BA%E6%9A%96%E5%BF%83)
+（ 秘翻新闻 文雀 编译报道 ）
 
-撰稿：北极
-总编：老孙
-校对发布：爱放飞
+发布:星星
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
