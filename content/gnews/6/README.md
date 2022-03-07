@@ -2,22 +2,18 @@
 ---
 
 
-## 视频|正道主义让人类携手走进新纪元
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2119087/)
+## 樱花头条┃俄罗斯著名网球运动员在电视摄像机镜头上写道”不要战争“
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119320/)
 
-制作：香草山视频部
+撰稿：东京樱花团/樱花传媒
 
-在3月2日的《文贵大直播》中，郭先生指出，平民主义引是推翻独裁的觉醒，不是真正涵义的信仰。资本主义人民贪图财富，导致战争不断，真正的人类未来人与人的关系取决于每个人心向善的信仰，任何信仰教派都没有分支，信仰是无国界，无主义，无宗教，无种族，信仰不存在利益决定一切，反而精神财富信仰是维护地球人类的正义安全和平才是正道主义的核心。
+俄罗斯著名网球运动员安德烈-鲁布廖夫在电视摄像机的镜头上写道“不要战争”。
 
-发稿：林礼
+信息来源：[https://www.gettr.com/post/pwy8kq9bdd](https://www.gettr.com/post/pwy8kq9bdd)
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
-
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,13 +2,18 @@
 ---
 
 
-## 俄罗斯将重炮轰炸城市，并导致大规模暴行和难民危机
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2119017/)
+## 樱花头条┃欧盟对乌克兰入盟申请态度冷淡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119235/)
 
-03/02/2022 众议员迈克尔·华尔兹：俄罗斯将使用更多重型炮弹轰炸城市，并导致大规模暴行和难民危机。我不确定俄罗斯的工业基地是否能应付车辆更换及军火弹药的补充。如果乌克兰抵抗军能够击中俄军的补给线，他们就有了反击的机会。
+撰稿：东京樱花团/樱花传媒
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+欧盟对乌克兰的入盟申请持冷淡态度。欧盟外交和安全事务高级代表何塞普-博雷尔说，加入欧盟将需要 “许多年”。
 
+信息来源：[https://www.gettr.com/post/pxqfhb513f](https://www.gettr.com/post/pxqfhb513f)
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

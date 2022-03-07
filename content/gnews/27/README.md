@@ -2,27 +2,28 @@
 ---
 
 
-## 俄乌战火焦灼！中共宣布南海演习12天
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2118516/)
+## 美国国会计划本周批准100亿美元对乌援助
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2118680/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-11.png)图片来源：新华社
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-7.jpg)美国国会计划本周批准100亿美元对乌援助 网络图片
+据俄罗斯卫星通讯社3月7日报道，美国众议院议长南希·佩洛西周日表示，为回应莫斯科入侵乌克兰，国会打算在本周通过紧急拨款100亿美元以援助乌克兰。
 
-俄乌战火延烧之际，中共自上月底接连军演后，再发布自4日到15日在南海实施军事训练，并警告船只不要进入。据报划定的演习范围是海南省与越南之间的海域。
+《华盛顿邮报》此前报道称，拜登政府要求国会批准援乌拨款。100亿美元将用于“应对人道主义危机”，帮助乌克兰进行防御，防止电网中断，以及“进一步帮助欧洲盟友”。
 
-根据中共海南海事局发布声明，自4日晚间6时到15日晚间6时，在划定的水域范围内进行军事训练，船只禁止驶入。
+新闻参考链接：[https://sputniknews.cn/20220307/1039765306.html](https://sputniknews.cn/20220307/1039765306.html)
 
-路透报导，根据演习地点的座标，演习位置约在海南省三亚与越南顺化之间的海域。
+* * *
 
-简评：自普习冬眠会密谈后，俄罗斯侵略乌克兰遭遇到了顽强的抵抗，全球援乌抵俄的浪潮大起，普京急需中共攻打台湾来分担国际压力。如今中共宣布南海演习12天，在为攻台蓄力。望台湾同胞多多保重，愿意撤离的新中国联邦正在救援，誓守台湾的，愿你们一切平安！希望台湾不要成为今日的乌克兰！
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-新闻来源：[联合新闻网](https://udn.com/news/story/7333/6146076)
 
-撰稿/发布：一叶知秋
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

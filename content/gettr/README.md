@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 9:07 AM (UTC)`
+
+【Ukraine Rescue】03/06/2022 Rescuers of NFSC & ROLF arrived safely in Krakow, Poland. Our rescuers are from all over the world, including the United Kingdom, Spain, Canada, and the United States. There are two to three sites near the border between Ukraine and Poland, with our buses waiting to rescue people.<br/><br/>【乌克兰大救援】03/06/2022 新中国联邦和法治基金派出的救援者安全抵达波兰克拉科夫。我们的营救人员来自全世界各地，有英国、西班牙、加拿大，还有美国。目前乌克兰和波兰的边境线上都会有我们的大巴车在等待着去救人。<br/> 
+![img](https://media.gettr.com/group31/getter/2022/03/07/09/537d462c-d676-5012-1fc9-132f52cda697/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@rockvision 3/7/2022 5:37 AM (UTC)`
@@ -149,13 +156,6 @@ FDA Releases BOMBSHELL Pfizer Covid Virus Vaccine Data With Over 1,200 Side Effe
 
 3/6/2022 Miles Guo: The US court ruling requiring FDA to release the documents related to the Pfizer COVID vaccine is something that the U.S. government can't even stop. The New Federal State of China has taught us what it means to have strength. Only with media platforms and wealth， we will be able to reveal and spread the truth!<br/><br/>3/6/2022 文贵直播：美国法院要求FDA公布辉瑞疫苗文件的判决是美国政府都无法阻挡的；新中国联邦让我们知道什么叫实力，要有媒体和财富才能有真相！<br/>
 ![img](https://media.gettr.com/group24/getter/2022/03/06/22/8fecb7e2-b745-cc19-9640-7db733baf8c1/out.jpg)
-
----
-
-`@miles 3/6/2022 9:56 PM (UTC)`
-
-3/06/2022 Miles Guo: Why did the US court not make a ruling requiring Pfizer to release the documents related to the COVID vaccines? Why is this not covered in the English-speaking world? We don't know the real stories behind many events.<br/><br/>3/06/2022 文贵直播：为什么美国法院直到现在才做出判决要求辉瑞公布有关疫苗的文件？为什么这件事在英文世界没人报道呢？很多事件背后的真实故事是我们不知道的<br/>
-![img](https://media.gettr.com/group47/getter/2022/03/06/21/909b2c3a-8a53-5800-b922-d585e5249ffc/out.jpg)
 
 ---
 
