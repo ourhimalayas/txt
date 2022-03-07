@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 3:41 PM (UTC)`
+
+3月7号：中国共产党驻乌克兰的大使馆，<br/>你们睁开你们的狗眼看一看，我们拯救了这么多素昧谋面的乌克兰的孩子……你们能做到吗？你们永远做不到。你们欺骗中国同胞欺骗中国在乌克兰的留学的孩子，让他们的生命处在战争的极度危险之中，这笔帐早晚会和你们算得！
+![img](https://media.gettr.com/group10/getter/2022/03/07/15/e6604085-e576-c480-9340-d7cd4cfff9e9/out.jpg)
+
+---
+
 `@miles 3/7/2022 3:13 PM (UTC)`
 
 3月7号：尊敬的战友们好衷心的感谢在波兰和乌克兰前线的救援的所有的兄弟姐妹吗？可恨的共产党驻乌克兰大使馆……竟然将已经登上我们在乌克兰救援大巴的人．用谎言将他们骗下车，这些人现在生死未卜……共产党没有能力在乌克兰救人，并欺骗中国同胞所有中国人已经救出，却在昨天用谎言将已经马上即将离开战场的同胞骗下了车，这是何等的邪恶，这些中国同胞是何等的无知……天呢．天哪，天哪天呢？
@@ -154,13 +161,6 @@
 
 3/6/2022 Miles Guo: The CCP has just distributed 250 million doses of the so-called high-end Sinovac COVID vaccine to Hong Kong, calling it for "Hong Kong and Macau compatriots only";  Chinese parents think that letting their children be vaccinated is loving them, not knowing that they are actually destroying their children's lives;  the impact on humans brought by those over a thousand side effects of the COVID vaccine recently released by the FDA will be multiplied, and the death toll will be unpredictable.<br/><br/>3/6/2022 文贵直播：中共国给香港刚发了2.5亿支所谓高端“港澳同胞专用“的科兴疫苗；中共国的家长们认为给孩子打了疫苗才是爱，殊不知这是毁了孩子们的一生；FDA所公布的疫苗一千多种副作用所带来的灾难将是成倍的，带来的死亡更是无法估量<br/>
 ![img](https://media.gettr.com/group17/getter/2022/03/07/02/a35bc10a-075b-1565-336f-02c9f16370e9/out.jpg)
-
----
-
-`@miles 3/7/2022 2:40 AM (UTC)`
-
-FDA Releases BOMBSHELL Pfizer Covid Virus Vaccine Data With Over 1,200 Side Effects!<br/><br/>美国食品和药物管理局公布爆炸性的辉瑞中共病毒疫苗数据，有1200多种副作用!<br/>
-![img](https://media.gettr.com/group33/getter/2022/03/07/02/fb7a9777-6064-d407-93a2-dbb7a7daa547/out.jpg)
 
 ---
 
