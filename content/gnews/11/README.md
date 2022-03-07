@@ -2,38 +2,28 @@
 ---
 
 
-## 美国政府搜集俄罗斯蓄意袭击平民证据提交国际刑事法院
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2119258/)
+## 抗议普京发动战争，俄罗斯超4300人被捕
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2119328/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
-翻译/编辑：文泓
+#### 整理：围剿维尼熊 
+编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2022/03/347425e69608d7d9.jpg)
+根据联合新闻网3月7日报道，由于俄罗斯入侵乌克兰，俄罗斯国内反战声音逐渐高涨。目前俄罗斯已有21个城市、超过4300人因走上街头抗议总统普京（Vladimir Putin）被捕。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-34.png)图片来源：DW & 雅典娜设计组
+据卫报报道，独立监测组织OVD-Info表示，它记录到包括海参崴在内的53个城市中共至少4366人被拘留，组织发言人库兹涅佐娃（Maria Kuznetsova）透露：我们看到相当大规模的抗议活动，即使在西伯利亚的城市也是如此。
 
+俄罗斯内政部先前曾表示警方已拘留约3500人，并于5日警告说，将阻止任何未经授权的抗议活动，组织者会被追究责任。
 
-3月7日，据天空新闻报道，美国将提供有关俄罗斯蓄意袭击平民的确实可信的报告，以调查其在乌克兰犯下的战争罪行。
+同时俄罗斯国内的独立报导变得越来越困难，因为俄政府4日通过一项法律，将故意传播有关乌克兰战争的“虚假新闻”列为刑事犯罪，可判处长达15年的监禁。
 
-美国国务卿安东尼·布林肯表示，拜登政府正在收集所有相关报告和信息，以提交给国际刑事法院（ICC）调查。
+参考链接：[俄羅斯國內反戰抗議高漲 迄今已逾4300人被捕](https://udn.com/news/story/6809/6145330?from=udn-catebreaknews_ch2)
 
-“我们已经看到了关于蓄意袭击平民的非常可信的报道，这将构成战争罪”，布林肯国务卿告诉媒体：“我们也已经看到关于使用某些武器的非常可信的报告。”
+*发布：*Frank2021
 
-“而我们现在正在做的是记录所有这些，将资料汇总在一起，当人们和适当的组织和机构调查俄罗斯是否已经或正在犯下战争罪行时，我们可以给与完全的支持。”
-
-国际刑事法院上周证实，在39个成员国提交报告后，它将对俄罗斯在乌克兰犯下的涉嫌战争罪展开调查。
-
-国际刑事法院检察官卡里姆·汗表示，他的办公室已经找到了一个合理的理由相信犯罪已经发生，并对已逃离饱受战争蹂躏的家园进入波兰的150万乌克兰难民中的一些人进行了采访。
-
-与此同时，布林肯国务卿还提出了禁止俄罗斯石油进入美国和欧洲的可能性。
-
-他说，美国和欧洲领导人之间正在进行积极讨论，商议如果对俄罗斯的库存（石油）实施禁运，如何确保市场上石油的“适当供应”。
-
-参考链接：[Antony Blinken reveals there are ‘very credible reports’ of deliberate Russia attacks on civilians | Sky News Australia](https://www.skynews.com.au/world-news/antony-blinken-reveals-there-are-very-credible-reports-of-deliberate-russian-attacks-on-civilians/news-story/e043de623a6239dc3efe45611bad49d1)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)

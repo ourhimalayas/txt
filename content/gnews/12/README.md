@@ -2,18 +2,18 @@
 ---
 
 
-## 樱花头条┃欧盟对乌克兰入盟申请态度冷淡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119235/)
+## 樱花头条┃俄罗斯著名网球运动员在电视摄像机镜头上写道”不要战争“
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119320/)
 
 撰稿：东京樱花团/樱花传媒
 
-欧盟对乌克兰的入盟申请持冷淡态度。欧盟外交和安全事务高级代表何塞普-博雷尔说，加入欧盟将需要 “许多年”。
+俄罗斯著名网球运动员安德烈-鲁布廖夫在电视摄像机的镜头上写道“不要战争”。
 
-信息来源：[https://www.gettr.com/post/pxqfhb513f](https://www.gettr.com/post/pxqfhb513f)
+信息来源：[https://www.gettr.com/post/pwy8kq9bdd](https://www.gettr.com/post/pwy8kq9bdd)
 
 *编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,18 +2,16 @@
 ---
 
 
-## 樱花头条┃乌克兰摇滚明星兼议员表态 乌克兰不会被打败
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119273/)
+## 没有任何一场战争是正义的
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2119355/)
 
-撰稿：东京樱花团/樱花传媒
+几天前从意大利连夜开车出发，20多个小时后到达波兰边境，来帮助处于战争危机下的乌克兰人们和中国人，我看到了逃难出来的人们，战争对平民带来的伤害，值得我记录下来。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_6401-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_6391-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_6399-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_6386-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_6402-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_6406-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_6397-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_6394.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_6404.jpg)
+* * *
 
-乌克兰最受欢迎的摇滚明星、议员和短暂的总统竞争者，在俄罗斯的惩罚性打击之后，站在欧洲最大的广场上，说乌克兰不会被打败。
+拍摄：文涛
+发布：阿娜
 
-信息来源：[https://www.gettr.com/post/pxrjwf1897](https://www.gettr.com/post/pxrjwf1897)
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

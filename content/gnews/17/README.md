@@ -2,13 +2,18 @@
 ---
 
 
-## 俄军攻击乌克兰核电站，泽伦斯基向世界求援
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2119112/)
+## 樱花头条┃欧盟对乌克兰入盟申请态度冷淡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119235/)
 
-03/03/2022 “欧洲需要觉醒”，在欧洲最大的核电站因俄罗斯的炮击而起火后，乌克兰总统泽伦斯基向世界大国发出了急迫的请求。
+撰稿：东京樱花团/樱花传媒
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+欧盟对乌克兰的入盟申请持冷淡态度。欧盟外交和安全事务高级代表何塞普-博雷尔说，加入欧盟将需要 “许多年”。
 
+信息来源：[https://www.gettr.com/post/pxqfhb513f](https://www.gettr.com/post/pxqfhb513f)
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
