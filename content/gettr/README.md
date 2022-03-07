@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 9:52 PM (UTC)`
+
+💦💦💦Ukraine Humanitarian Rescue Operation of the Rule of Law Foundation & Rule of Law Society <br/><br/>🌈🌈🌈Special thanks to the ROLF & ROLS for providing the critical and decisive function during the rescue mission. The ROLF & ROLS play a key role and provide all the supports for this rescue operation. #ROLFrescue #NFSCrescue  #CCP≠Chinese<br/><br/>💥💥💥If you have family to be rescued in #ukraine , please go to website Ukrainehelp.info <br/><br/>Here is the 24-Hour Emergency Rescue Support Team Contact: <br/>💌💌💌Email: ROLF@UKRAINEHELP.INFO OR NFSC@UKRAINEHELP.INFO <br/><br/>☎️☎️☎️Phone (Call or Text): +1 720-657-6776 OR +1 719-224-4232
+![img](https://media.gettr.com/group38/origin/2022/03/07/21/5848c027-8f29-0334-aeb6-a84e427ef6e4/out.jpg)
+
+---
+
 `@miles 3/7/2022 8:32 PM (UTC)`
 
 FDA released Pfizer COVID vaccines data with more than 1,200 side effects. Pfizer knew about the side effects of the COVID vaccines one year ago (i.e. February 28, 2021). They had it documented in this document that they didn't want to release for 70 years. They wanted to hide it from us until our grandchildren are literally adults. If Pfizer knew about this, that means our public health officials including Dr. Fauci knew about this and they hid this from the American people. #VaccineSideEffects #FDA #CDC<br/><br/>FDA公布了辉瑞中共病毒疫苗数据，有超过1200种副作用。辉瑞去年2021年2月28号就知道中共病毒疫苗的副作用，他们记录在这个70年不想公布的文件中，他们想对我们隐瞒到我们的孙子长大成人。如果辉瑞知道，那么意味着包括福奇博士在内的公共卫生官员也知道，他们对美国人民隐瞒了真相！
@@ -154,13 +161,6 @@ FDA released Pfizer COVID vaccines data with more than 1,200 side effects. Pfize
 
 【Ukraine Rescure】03/06/2022 Rule of Law Foundation and the New Federal State of China just saved 96 children and their teachers from Ukraine <br/><br/>【乌克兰救援】03/06/2022 法治基金和新中国联邦刚刚从乌克兰救援了96个孩子和老师
 ![img](https://media.gettr.com/group49/getter/2022/03/07/04/496d14bf-d1f2-1c3a-a53f-283c7d0174f3/out.jpg)
-
----
-
-`@miles 3/7/2022 3:12 AM (UTC)`
-
-农场联盟工作汇报
-![img](https://media.gettr.com/group9/origin/2022/03/07/03/6efb3420-b608-438a-ce81-7fec129bd4df/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
