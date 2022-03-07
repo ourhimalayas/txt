@@ -2,46 +2,44 @@
 ---
 
 
-## 新中国联邦从乌前线安全救出逾百名乌克兰儿童和老师
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2118314/)
+## 锁链女牵出有祭坛有神论的徐州正掩盖与中央首长深关系
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2118349/)
 
-**撰稿：青衣**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/111-4.jpg)
-新中国联邦和法治基金乌克兰救援行动组刚刚成功地从乌克兰前线救出了96名乌克兰儿童及17名老师！
+Youtube视频链接：[https://youtu.be/96i3nk4EO3o](https://youtu.be/96i3nk4EO3o)
 
-在战火纷飞的乌克兰，数以百万计的百姓正在努力逃离。然而，却有那么一群勇士“逆行”奔赴了乌克兰前线——他们就是新中国联邦和法治基金乌克兰救援行动组。
+Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
-新中国联邦前线救援队目前已成功救出了数辆大巴的中国同胞及各国求助人士。而目前最新的救助战报是：刚刚又成功救助了96名乌克兰儿童及17名老师！目前所有人员已乘坐专用大巴安全抵达位于波兰的新中国联邦法治基金安排的酒店入住。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/22-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/33-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/44.jpg)
-据新中国联邦喜马拉雅联盟日本东京方舟农场农场主“草根小哥”在推特上介绍：这96个乌克兰孩子，他们的父母选择留在乌克兰战斗，把孩子托付给了专门的机构。新中国联邦从乌克兰把这96个孩子和老师救了出来。现在已安排孩子和老师在波兰某酒店休息，随后会安排他们飞赴西班牙。所有救援费用，吃、住、包括飞机等等，都由新中国联邦支付。
+**郭文贵先生：**还有一个大家不要忘了，啥叫“无神论”？共产党让你不要相信任何神，“我是你的神”然后“我相信我的神”，这叫共产党的无神论！要么怎么能把盘古“龙头”变成“龟头”呢？还没加上睾丸的龟头儿，是吧？因为它说：“我是你的啊，我相信我的神啊”。
 
-新中国联邦创始人郭文贵先生在盖特上发文盛赞这次行动。他写道：“感谢在前线的所有兄弟姐妹们！天地可鉴，人神共评。我们做的事情，就是新中国联邦人未来在全世界所扮演的角色，所要做的事情。”
+但这回事儿上你不要看“锁链女”的事情上，你知道“锁链女”现在国内发酵到什么程度了吗？你看她那个男人的背景了吗？你看他那个村里边有啥了吗？你们仔细看看，这个地方是最有神论的地方之一，没人发现。他们当地的官员你还没发现有什么背景的吧？徐州这个地方很邪乎的，徐州它的这个地方是所谓的“最有信仰”的，还是跟我们中央首长是有深关系的，现在在盖着呢。
 
-无私、大爱、忘我、勇敢，这就是新中国联邦法治基金乌克兰救援行动组所展现出的新中国联邦人的形象。感谢这些最美丽的“逆行者”、救援天使，世界将铭记你们所做的一切。
+所以说咱们政法委这哥儿们说：“你看着没有？再往上挖就成大政治了。” 共产党的“有神论”，在这块儿竟然有祭坛，有神论，这有多可怕！
 
-滞留在乌克兰的中国同胞以及全世界各国需要帮助的友人，请速速拨打24小时救援热线或采用其他有效联络方式，新中国联邦和法治基金会竭尽所能免费为你们提供一切可能的救援帮助。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/55.jpg)
-**新闻链接：**
+编辑整理：Jacques；
 
-[https://gettr.com/post/pyktuo6409](https://gettr.com/post/pyktuo6409)
+字幕文件制作：星塵；
 
+视频制作及上传：Cindy；
 
+G-News发布：小满；
 
-> 这96个乌克兰孩子，他们的父母选择留在乌克兰战斗，然后把孩子托付给专门的机构，新中国联邦从乌克兰把这96个孩子和老师救了出来，现在已安排孩子和老师在波兰某酒店休息，然后会安排他们飞赴西班牙。所有救援费用，吃住包括飞机……都由新中国联邦支付。 [pic.twitter.com/ZDDp77lWH2](https://t.co/ZDDp77lWH2)
-> — 草根小哥（新号） (@caogenxiaogex) [March 7, 2022](https://twitter.com/caogenxiaogex/status/1500657572168503297?ref_src=twsrc%5Etfw)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-> 新中國聯邦
-> 前線救援實況：
-> 96名烏克蘭兒童及17名老師，剛剛獲救，已經平安到達酒店。
-> 繼續努力
-> 我們在行動‼️ [pic.twitter.com/KWRudjU0Mv](https://t.co/KWRudjU0Mv)
-> — 澳喜要闻（新号） (@ahnewspace) [March 7, 2022](https://twitter.com/ahnewspace/status/1500670423599808517?ref_src=twsrc%5Etfw)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

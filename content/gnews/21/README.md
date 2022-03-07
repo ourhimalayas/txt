@@ -2,19 +2,23 @@
 ---
 
 
-## 俄乌战争｜美国防部高官：俄罗斯已投入95%的战力攻打乌克兰
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2118202/)
+## 有声｜国际深切担忧：乌核电站被俄军占领后失联
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2118257/)
 
-**撰文/ 港台前线｜发布日期/ 07/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/美國防部高官：俄羅斯已投入95的戰力攻打烏克蘭.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+By:**秘翻新闻**
 
-CNN引述美国一名国防高官指，自俄罗斯入侵乌克兰以来，一共发射了大约600枚导弹，并已将95%的战力集结在乌克兰境内。
+**2022-03-07**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-15.png)图片来源 阿波罗新闻网
+[据《阿波罗新闻网》3月7日报道，俄军3月4日攻击并夺下了乌克兰境内的欧洲最大核电厂。国际原子能总署IAEA今天表示，由于核电厂对外通讯中断，该组织对此“深感忧虑”。](https://www.aboluowang.com/2022/0307/1717378.html)
 
-据该名官员表示，美国于周日（6日）观察到，乌克兰南部城市赫尔松（Kherson）和尼古拉耶夫（Mykolaiv）战斗持续，而俄军仍在试图包围基辅、卡尔可夫（Kharkiv）、切尔尼戈夫（Chernihiv）及马里乌波尔（Mariupol）。不过，由于遭到了乌方的强烈抵抗，俄方的进攻进度有所减缓。
+[IAEA表示，他们接获乌克兰的通知，称札波罗热核电厂高层正接受俄罗斯军队指挥官的命令。据乌方通报，俄军已关闭部分行动网络和固定网络，电话线路、电子邮件和传真也无法使用。尽管手机仍可联系，但通讯品质很差。](https://www.aboluowang.com/2022/0307/1717378.html)
 
-来源｜[CNN](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-03-06-22/h_9a75a46d4bfa8041016b60472351f411)
+秘翻新闻 巴拉克 编辑报道
 
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

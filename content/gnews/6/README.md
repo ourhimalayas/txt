@@ -2,28 +2,27 @@
 ---
 
 
-## 日本3月6日确诊感染53969人、 死亡132人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2118366/)
+## 有声｜美国汽油价格飙升至2008年以来的最高水平
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2118468/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片16.jpg)[图片来源](https://news.yahoo.co.jp/pages/article/20200207)
-在东京，已确认9289人冠状病毒感染。
+By:**秘翻新闻**
 
-东京都新增感染人数为9289人，较一周前的周日（2月27日）减少1000多人。 这是自 1 月 23 日以来的第一个周日，感染人数已降至 10,000 以下。
+**2022-03-07**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-14.png)图片来源 路透社
+[《路透社》3月6日报道，周日，美国汽车协会表示，美国汽油价格过去一周跳涨11%，至2008年以来最高水平。美国普通级汽油均价周日达到每加仑4.009美元。](https://www.reuters.com/world/uk/britain-pledges-100-mln-help-keep-ukrainian-state-running-2022-03-06/)
 
-过去 7 天的平均感染人数为 11,001 人，是前一周的 98.7%。
+[美国汽车协会称，这是2008年7月以来常规级汽油的最高均价。](https://www.reuters.com/world/uk/britain-pledges-100-mln-help-keep-ukrainian-state-running-2022-03-06/)
 
-此外，奥密克戎重症病床使用率为26.2%。 新增死亡病例12人，按全市常规标准重症病例较前一日增加1人至71人。
+[根据美国汽车协会的数据显示，美国汽油价格最高的是加利福尼亚州，每加仑5.288美元，其次是夏威夷、内华达州和俄勒冈州，均超过4.5美元1加仑。](https://www.reuters.com/world/uk/britain-pledges-100-mln-help-keep-ukrainian-state-running-2022-03-06/)
 
-同时宣布，全国新增感染病例5万3969人，死亡病例132人。
+[据报道，美国原油期货上周上涨26%，收盘115.68美元，为2008年9月以来的最高收盘点位。](https://www.reuters.com/world/uk/britain-pledges-100-mln-help-keep-ukrainian-state-running-2022-03-06/)
 
-信息来源：
+秘翻新闻 冰糖葫芦喵编译报道
 
-[全国で新たに5万3969人の感染確認　死者は132人](https://news.yahoo.co.jp/articles/7363b487de0dd0e0a4e7e20f44367cf3aee4476c)
+发布 : 恩典
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,24 @@
 ---
 
 
-## 有声｜美国国务卿称北约国家同意向乌克兰派遣战机
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2118445/)
+## 有声｜保护艺术品免受破坏 乌克兰博物馆加紧行动
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2118538/)
 
 By:**秘翻新闻**
 
 **2022-03-07**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-18.png)图片来源 福克斯新闻
-[据《福克斯新闻》3月6日报道，美国国务卿安东尼·布林肯周日表示，北约国家已经为向乌克兰派遣战机开了 “绿灯”。](https://www.foxnews.com/world/nato-countries-green-light-send-fighter-jets-ukraine-blinken)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/14-10.png)图片来源 新唐人
+[据新唐人北京时间3月7日消息，俄军在乌克兰的进攻仍在继续，连日来，乌克兰利沃夫艺术博物馆加紧保护珍藏的艺术品免受战争破坏。](https://www.ntdtv.com/gb/2022/03/06/a103366296.html)
 
-[据报道，美国一直在考虑与波兰达成协议，向华沙派遣美国战机，以取代这个北约国家派往乌克兰的任何苏联时代的战斗机。](https://www.foxnews.com/world/nato-countries-green-light-send-fighter-jets-ukraine-blinken)
+[位于乌克兰西部城市利沃夫的安德烈·谢普蒂茨基国家博物馆，是乌克兰最大的国家艺术博物馆，历经两次世界大战，都得以幸存。](https://www.ntdtv.com/gb/2022/03/06/a103366296.html)
 
-[据《华尔街日报》报道，在周六与280多名美国立法者进行的放大电话会议上，乌克兰总统沃洛季米尔·泽伦斯基说，乌克兰更需要战斗机，而不是美国同意的防空导弹。](https://www.foxnews.com/world/nato-countries-green-light-send-fighter-jets-ukraine-blinken)
+[自2月24日俄罗斯对乌克兰发动战争以来，这所博物馆也随之关闭。](https://www.ntdtv.com/gb/2022/03/06/a103366296.html)
 
-[据报道，纽约州参议院多数党领袖查克·舒默周日提到了这一恳求。舒默说，如果其他国家——如波兰——决定向乌克兰提供苏联时期的喷气式飞机，他支持美国给予它们帮助。](https://www.foxnews.com/world/nato-countries-green-light-send-fighter-jets-ukraine-blinken)
+[珍藏手稿和书籍的部门负责人说， 12,000多件珍藏品已经装箱，但还没有找到可以安全存放的场所。目前，该馆的收藏品已被挪到馆内的地下防空洞。](https://www.ntdtv.com/gb/2022/03/06/a103366296.html)
 
-[另一方面，泽伦斯基呼吁在乌克兰上空设立禁飞区，但仍然没有得到美国的支持。](https://www.foxnews.com/world/nato-countries-green-light-send-fighter-jets-ukraine-blinken)
+[利沃夫市是乌克兰西部主要的工业和文化教育中心，乌克兰其他文化部门也在竭力保护艺术和文化作品。](https://www.ntdtv.com/gb/2022/03/06/a103366296.html)
 
-秘翻新闻 Grace编辑报道
+秘翻新闻 二丫编辑报道
 
 发布 : 恩典
 

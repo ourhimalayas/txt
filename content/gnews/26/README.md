@@ -2,10 +2,10 @@
 ---
 
 
-## 中共冬残奥会惨淡开场
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2118103/)
+## 中兴通讯面临违反美国缓刑条例的听证会
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2118122/)
 
-作者：日本方舟农场 – Andy5
+作者：纽约磐石农场 – 在远方
 
 
 
@@ -13,16 +13,14 @@
 
 
 
-3月4日，中共举办的冬季残奥会正式开幕，比起1个月前的冬奥会开幕式更加冷清。
+3月5日，国外媒体报道，中共中兴通讯即将于3月14日面临一项新指控，指控认为，它违反了向伊朗非法运输美国技术的认罪缓刑条例。
 
-本次中共残奥会的开幕式中，除了国际残奥会主席露面，并没有其他国家的领导人或者政府高层参与。而在2008年的残奥会开幕式上，有18国政要出席。
+2017年，中共中兴通讯违反美国法律，非法向伊朗和朝鲜出售美国技术，中兴认罪并缴纳了8.92亿美元的罚款。当时中兴方承诺接受三年缓刑条例，实施企业合规计划，设立监督机制。但在2018年，美国商务部发现中兴撒谎，随即禁止中兴与美国开展业务，此后中兴又缴纳了10亿美元，再次同意接受为期十年的缓刑条例。
 
-最值得注意的是，尽管习近平在2014年，专门出席了俄罗斯索契冬奥会的开幕式，普京却在今年选择了在中共冬奥会和残奥会之间侵略乌克兰，导致中共墙内关于残奥会的新闻几乎无人问津。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10.jpg)
+3月14日的法庭指控，同样和中兴撒谎有关。起诉书中写道，中兴非法将中国公民带到新泽西中兴通讯工作，用的是美国专为佐治亚理工学院设定的工作和学习用的J-1签证，涉嫌签证欺诈。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12.jpg)
 参考链接：
-1. [北京2022年冬残奥会隆重开幕 习近平出席开幕式并宣布北京冬残奥会开幕](http://politics.people.com.cn/n1/2022/0305/c1024-32366677.html)
-2. [2008年夏季残疾人奥林匹克运动会开幕式](https://zh.wikipedia.org/wiki/2008%E5%B9%B4%E5%A4%8F%E5%AD%A3%E6%AE%98%E7%96%BE%E4%BA%BA%E5%A5%A7%E6%9E%97%E5%8C%B9%E5%85%8B%E9%81%8B%E5%8B%95%E6%9C%83%E9%96%8B%E5%B9%95%E5%BC%8F)
-3. [习近平出席索契冬奥会开幕式](http://www.xinhuanet.com/world/2014-02/08/c_119235025.htm)
+[China’s ZTE faces hearing over possible violation of U.S. probation](https://www.reuters.com/business/media-telecom/chinas-zte-faces-hearing-over-possible-violation-us-probation-2022-03-05/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 

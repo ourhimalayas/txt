@@ -2,29 +2,25 @@
 ---
 
 
-## 新中国联邦救援前线团队在克拉科夫（Krakow)汽车站的报道
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2118433/)
+## 有声｜美国称不认为俄罗斯对敖德萨发动两栖攻击
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2118499/)
 
-**撰稿：DG**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-07-130240.jpg)图为大卫和一位乘客做了简短交流
-两辆大巴从利沃夫（Lviv) 经过大约24小时颠簸在当地时间3月6日下午驶入克拉科夫（Krakow)汽车站，满载主要是老弱妇孺，在当地政府部门帮助下通关方便很多。郭先生在直播中叮嘱不要打扰车上乘客。视频中的郭先生满面悲悯，五年以来从未见过郭先生如此面容。郭先生说当地人在逃亡中仪容整洁，保持着尊严，控制情绪不失礼貌。这位乘客说到最后眼泪几乎涌出，小撒拉轻轻的拥抱了她。小撒拉将新中国联邦人的爱用一个轻轻的拥抱温暖的传达出去。
+By:**秘翻新闻**
 
-接下来小撒拉和大卫介绍了现场的情况。
+**2022-03-07**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/13-11.png)图片来源 路透社
+[《路透社》华盛顿3月6日报道，周日，美国国防部一名高级官员表示，美国不认为俄罗斯即将在乌克兰城市敖德萨或附近发动两栖攻击。](https://www.reuters.com/world/europe/us-does-not-see-imminent-russian-amphibious-assault-odessa-us-official-2022-03-06/)
 
-小撒拉说：我们是这里唯一一家救援机构。
+[报道称，这名不愿透露姓名的官员估计，自入侵开始以来，俄罗斯已经发射了大约600枚导弹，并在乌克兰部署了约95%的预先部署在该国境外的作战部队。](https://www.reuters.com/world/europe/us-does-not-see-imminent-russian-amphibious-assault-odessa-us-official-2022-03-06/)
 
-大卫说：我们举一个简单的例子。我们到达了当地的酒店，因为一大帮中国人进来，别人都不知道我们是干什么的，就像前天我跟文贵先生讲，我们首先要跟当地的警方政府联系上。咱们首先是国际标准化救援啊，为什么不让当地人知道我们呢？所以我们和酒店的Manager(经理）一交流，大家都对我们非常友善，在给我们端食物端咖啡的时候都能看出来这种心里的接纳，这就回到刚才那句话。我们的国际形象是靠实力争取回来的，是我们每一个言行换来的，不是共产党吹出来的。
+[这名官员说，俄罗斯军队继续试图推进和孤立基辅、哈尔科夫和切尔尼夫，并遇到了“乌克兰的强烈抵抗”。](https://www.reuters.com/world/europe/us-does-not-see-imminent-russian-amphibious-assault-odessa-us-official-2022-03-06/)
 
-最新的消息是共产党在乌克兰境内所谓的协调人员已经都跑路了，都跑了。共产党滚蛋了，我们来了！新中国联邦人来了！来救乌克兰人民、救美国同胞、救中国同胞，救我们留学生。这种对比和反差，让波兰的当地人看清了谁可信、谁可交。这几天我们感觉是信心倍增，在当地扭转局面。
+秘翻新闻  冰糖葫芦喵编译报道
 
-希望越来越多的战友来到当地，亲自感受到这种变化，用我们的言行告诉乌克兰人和波兰人，我们是来拯救这些同胞们，这些朋友们，我们不是共产党！共产党已经过去了！翻篇了！我们感受到了他们友好的变化。每一个细节都能感受到！
+发布 : 恩典
 
-**参考信息**：
-
-[https://www.gettr.com/post/pyjlsl401d](https://www.gettr.com/post/pyjlsl401d)
-
-[https://www.youtube.com/watch?v=sVS9spRh1l0](https://www.youtube.com/watch?v=sVS9spRh1l0) (English)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
