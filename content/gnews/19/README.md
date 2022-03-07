@@ -2,23 +2,21 @@
 ---
 
 
-## 今日盖特大V推荐 — 安·库尔特（Ann Coulter）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2118652/)
+## 今日盖特大V推荐 — 本·卡森医生（Dr. Ben Carson）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2118721/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-567.png)
-盖特链接：**[https://gettr.com/user/anncoulter](https://gettr.com/user/anncoulter)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-571.png)
+盖特链接：**[https://gettr.com/user/benscarson](https://gettr.com/user/benscarson)**
 
-**安·库尔特克自述：**
+**本·卡森博士自述：**
 
-作家
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-568.png)图片来源：网络
-**安·库尔特简介：**
+住房和城市发展部第17任部长，退休神经外科医生。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-572.png)图片来源：网络
+**本·卡森医生简介：**
 
-安·库尔特，全名安·哈特·库尔特（Ann Hart Coulter 生于1961年12月8日）是美国保守派媒体专家、作家、联合专栏作家、政治评论员和律师。
+本·卡森医生全名本杰明·所罗门·卡森（Benjamin Solomon Carson 1951年9月18日出生）是美国退休的神经外科医生和政治家，曾于2017年至2021年担任第17任美国住房和城市发展部部长。同时，他是2016年美国总统共和党初选候选人。
 
-安·库尔特在1990年代后期以媒体专家的身份而闻名，作为对克林顿政府的直言不讳的批评者出现在印刷品和有线新闻中。库尔特写了13本书，出版了一个联合报刊专栏。她的第一本书涉及弹劾比尔·克林顿（Bill Clinton）。
-
-安·库尔特曾在美国参议院司法委员会工作。她还是美国一家非营利性公益律师事务所“个人权利中心（CIR ）”的律师。
+本·卡森医生被认为是神经外科领域的先驱。他在神经外科工作获得了无数荣誉，包括60多个荣誉博士学位和无数国家功勋奖。2001年，他被CNN和《时代》杂志评为全美20位最重要的医生和科学家之一，被国会图书馆选为200周年之际89位“活着的传奇”之一。2008年，他被授予美国最高平民奖——总统自由勋章。同时，本·卡森医生还撰写或共同撰写了六本畅销书。
 
 编撰：洛杉矶盘古农场 — 心照
 校审：洛杉矶盘古农场 — 郭友(文苏)

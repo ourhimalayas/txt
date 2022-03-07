@@ -2,30 +2,19 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月6日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2117923/)
+## 习近平一定会攻打台湾
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2117900/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-4.png)
+撰稿：追着曙光跑
 
+3月6日，郭先生在大直播爆料，习近平一定会打台湾，俄乌之战不会影响习太阳攻打台湾的计划，而且在攻打的时候会非常快、非常的凶残。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-07-at-15.32.39.jpeg)图片来源：网络
+郭先生根据情报指出，中共在总结俄乌之战的教训之后，拟对台湾作战计划如下： 
+首先，控制台湾的媒体，把台湾的电掐断，不让台湾人在媒体上有发声的机会。 其次，占领台湾的社会资源，把台湾岛东面的军事基地、高速公路、机场全炸完，直接控制核电厂和台积电。 最后，掌控台湾的社会精英，如果海外的台湾人敢发声就直接做掉。像蔡英文这样要出头的人一定会被斩首，不会让台湾出现一个”泽连斯科”。
 
-校对：Stay文苑
+台湾战争的结果，会非常惨烈！
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://www.gettr.com/post/pykr8wcff3](https://www.gettr.com/post/pykr8wcff3)
-访谈：[https://www.gettr.com/post/pyl5g40dd6](https://www.gettr.com/post/pyl5g40dd6)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-6.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+信息来源：[2022年3月6日 文贵大直播](https://gettr.com/streaming/pyhtnya292)
 
  
 

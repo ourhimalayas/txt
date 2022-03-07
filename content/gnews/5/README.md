@@ -2,32 +2,49 @@
 ---
 
 
-## 俄罗斯部队使用神秘的Z字标记引热议
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2118866/)
+## 中共冬奥会坐满观众的假照片VS俄罗斯拍到的空空如也
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2118977/)
 
-撰稿：东京樱花团/待命（文晓）
+Youtube视频链接：[https://youtu.be/RlFgSpsyoY4](https://youtu.be/RlFgSpsyoY4)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯部队使用神秘的Z字标记引热议.png)
+Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
-3月7日时事通信社消息：部署在乌克兰的俄罗斯军车上用白色喷漆标记的“Z符号”引热议。
+**郭文贵先生：**就像冬奥会，假的雪，假的雪道，你看看那个山，你看看那个雪道，你看看现场，你看看直播，你看看饭，你看看大外宣……
 
-由于俄罗斯和乌克兰都是前苏联的成员，共享一些相同的武器，普遍的看法是，这是 “为了避免对友军的误射”（美国报纸《华盛顿邮报》）。 从被乌克兰军队摧毁的车辆上也可以看到这些标记的存在。
+普京的那个哥儿们这两天天天烦死我了信息；有个战友给我发信息，连着发200多条信息把我真的，我越是这边儿法官、判决、律师，这边儿“啥啥啥啥”，就是：“七哥，你觉得我该咋办呢？” “七哥，你觉得我要怎么回复他呢？”“七哥，你觉得我是不是应该这样卖币呢？” 能把我真的是，谁都能把你弄垮了。
 
-坦克和直升机上也有标记。但有些不同，如’Z’、’V’和’O’，有些人认为它们表示所属单位。然而，一位乌克兰东部亲俄武装力量的一名前高级成员证实”Z标记的含义是保密的”，目前真相不明。
+然后就俄罗斯这哥儿们发信息：“我们现在发现一个问题，这，这，这……”然后给我发一堆的照片，就是现场的开幕式没人，竟然有中国人、政府告诉他：“你能不能介绍一个你们俄罗斯的（媒体）采访一下子？夸奖一下这个仪式。” 他说：“那你让我用啥照片？” 他说：“你们的照片都不能用。“我给你提供照片。”
 
-在2014年吞并乌克兰南部的克里米亚半岛时，没有徽章的部队作为 “治安员 “行动。 这一次，”Z “符号已经成为俄罗斯军队在国内和国外的象征。
+他说：“你知道，同样的角度拍出来的照片，我的没人，他拍的照片全是人。”  这俄罗斯哥儿们傻了，他说：“你们中国人太牛了，我几乎辨别不出来，我拍那个照片普京那个席上拍出去没人。”没人看，哪有人呢？
 
-在人们的关注下，俄罗斯国防部利用它来渲染普京总统提出的 “军事行动”。在其官方Instagram页面上，解释说这是俄语中 “为了胜利 “的 “Z “和 “任务将完成 “的 “V”，但这被认为是事后杜撰。
+但是他也跟着普京，他是讲俄语的嘛，原来中国驻俄罗斯大使馆的。“一拍全是人！” 他说，“咋整出来的人呢？它能这么夸张出来。” 他傻了，他说：“你们中国人什么是真的呀？” 兄弟姐妹们，就这个国家“假”、“骗”到了人类上灾难的级别！
 
-其他俄罗斯军事专家提出的理论是，它们是乌克兰总统Wlodimir (V) Oleksandrovich (O) Zelensky (Z)的首字母，普京称其为 “法西斯 “并视其为敌人。泽伦斯基先生也承认，自己是 “敌人的头号目标”。
+编辑整理：Jacques；
 
-而根据俄罗斯国家媒体分发的照片，国内出现了支持该政权的标志，上面写着Z符号，表示’我们不会抛弃我们的人’。
+字幕文件制作：兵嫂；
 
-信息来源：[ロシア軍、謎のZマーク　友軍への誤射回避狙いか　ウクライナ（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/dcfeb78ad7d22eb4255e98e4d99cc0d7ae79e4e4)
+视频制作及上传：Cindy；
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

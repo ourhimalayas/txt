@@ -2,29 +2,26 @@
 ---
 
 
-## 今日盖特大V推荐 — 伯纳德·B·克里克（Bernard B. Kerik）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2118636/)
+## 美国国会计划本周批准100亿美元对乌援助
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2118680/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-564.png)
-盖特链接：**[https://gettr.com/user/bernardkerik](https://gettr.com/user/bernardkerik)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-7.jpg)美国国会计划本周批准100亿美元对乌援助 网络图片
+据俄罗斯卫星通讯社3月7日报道，美国众议院议长南希·佩洛西周日表示，为回应莫斯科入侵乌克兰，国会打算在本周通过紧急拨款100亿美元以援助乌克兰。
 
-**伯纳德·B·克里克自述：**
+《华盛顿邮报》此前报道称，拜登政府要求国会批准援乌拨款。100亿美元将用于“应对人道主义危机”，帮助乌克兰进行防御，防止电网中断，以及“进一步帮助欧洲盟友”。
 
-伯纳德·B·克里克的官方 GETTR 帐户，纽约市警察局第40任警察局长和纽约时报畅销书作家
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-565.png)图片来源：网络
-**伯纳德·B·克里克简介：**
+新闻参考链接：[https://sputniknews.cn/20220307/1039765306.html](https://sputniknews.cn/20220307/1039765306.html)
 
-伯纳德·B·克里克（Bernard B. Kerik生于1955年9月4日）是一名美国顾问，前警官和纽约时报畅销书作家。他曾于1998～2000年担任纽约市惩教署署长，2000～2001年担任纽约警察局第40任局长。
+* * *
 
-伯纳德·B·克里克因出色、有功和英勇的表现而获得了30枚纽约警察局奖章，其中包括纽约市警察局的英勇勋章。由于他在911袭击事件中和之后的工作表现，被英国女王伊丽莎白二世授予大英帝国最优秀勋章（CBE）和荣誉指挥官。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 

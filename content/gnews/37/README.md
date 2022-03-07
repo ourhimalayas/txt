@@ -2,71 +2,57 @@
 ---
 
 
-## 因俄罗斯入侵乌克兰，美国预计气油价格将达到5美元/加仑
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2118002/)
+## 蓬佩奥：台湾和美国的未来是交织在一起的
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2117929/)
 
-据《DailyMail》记者道Alex Hammer 2022年3月3日报道：
-
-- 专家表示，随着石油成本在俄罗斯入侵乌克兰后的几天内继续上涨，美国人将在未来几周内看到汽油价格上涨至5美元
-- 美国全国平均价格周四飙升至每加仑3.72美元，旧金山等城市的平均价格为每加仑5.05美元，洛杉矶为5.01美元
-- AAA 数据显示，在加利福尼亚和夏威夷等燃料成本较高的州，驾车者已经支付近4.50美元/加仑的费用
-- 加利福尼亚目前的平均汽油价格是 50 个州中最高的，为每加仑4.80美元，其次是夏威夷，每加仑4.52美元，内华达州为4.02美元
-- 据石油分析师称，随着俄罗斯（世界主要石油生产国之一）与乌克兰之间的冲突加剧，这种飙升不太可能很快缓解
-- 由于俄罗斯入侵引发的航运和供应担忧，油价上涨，美国原油和布伦特原油均处于十多年来的最高点
-- 俄罗斯是主要能源生产国，因此能源价格波动较大
+前国务卿迈克.蓬佩奥： 台湾和美国的未来是交织在一起的，因为我们的利益非常一致。
 
 
-专家说，随着石油成本在俄罗斯入侵乌克兰后的几天内继续上涨，美国人预计未来几周汽油价格将上涨至每加仑5美元，而加利福尼亚州的一些地区已经如此。
 
-《GasBuddy》石油分析主管帕特里克·德哈恩（Patrick De Haan）周一在推特上说：“我们很快会看到我们有史以来主要城市汽油平均价格达到5美元/加仑，”因为全国平均价格飙升至3.61美元，此后又飙升至3.72美元，截至周四。
-
-“这将在接下来的几周内发生。”这位石油分析师断言，列出了受油价飙升打击最严重的城市，例如旧金山，周四其平均价格超过5美元大关，达到每加仑 5.05美元，而洛杉矶 ，达到了类似的5.01美元。
-
-AAA 数据显示，截至周四，全国平均水平为每加仑3.72美元，比2月份上涨 37 美分，比一年前上涨约1美元。 这一年的增长也可归因于通货膨胀和供应链问题，随后俄罗斯入侵加剧了这些问题。
-
-随着世界主要石油生产国之一俄罗斯与乌克兰之间的冲突愈演愈烈，德哈恩（De Haan）的部门分析了美国、加拿大和澳大利亚150,000多个加油站的燃料价格，目前的飙升不太可能很快缓解。
-
-德哈恩周四发推说：“对于那些认为这种#汽油价格飙升在某种程度上只存在于美国并且以某种方式决定提高价格的人来说，这是由于主要生产国的石油损失而导致的全球价格飙升。”
-
-“随着俄罗斯局势的进一步恶化，预计价格将继续攀升，可能会推高油价。”
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-557.png)由于对主要石油生产国俄罗斯的制裁，目前的全国平均水平比2月份上涨37美分，比一年前上涨约1美元 (图片来源：dailymail.com.uk)
-德哈恩周三表示，俄罗斯对乌克兰的入侵引发了高层的担忧，即世界第二大石油生产国的石油生产最终可能会被扼杀甚至制裁，导致供应减少。
-
-“这种可能性在上周大幅推高了全国汽油平均价格，情况随时可能恶化，在可预见的未来保持汽油价格上涨。”
-
-然而，数据显示，在美国燃料成本更高的州，例如加利福尼亚州和内华达州，驾车者已经为每加仑支付近4.50美元，在某些情况下甚至更多。
-
-德哈恩说，美国人的平均价格将在3月底前升至4美元/加仑，接近2008年7月美国大萧条期间记录的全国最高平均水平4.11美元。
-
-加利福尼亚目前的平均汽油价格是50个州中最高的，为每加仑4.94美元-比5美元的门槛低6美分-其次是夏威夷，为4.63美元/加仑，内华达州为4.13美元。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-558-e1646624790733.png)专家警告说，随着俄罗斯入侵乌克兰后的几天内石油成本继续上涨，美国人预计未来几周天汽油价格将上涨至每加仑 5 美元(图片来源：dailymail.com.uk)
-俄罗斯是一个主要的能源生产国，因此能源价格波动剧烈，再加上不可避免的更广泛冲突的风险，更多国家准备加入战斗，可能引发全面战争。
-
-信用评级机构惠誉的首席经济学家布莱恩·库尔顿（Brian Coulton）本周对哥伦比亚广播公司新闻表示，我们认为俄乌战争将推高石油和天然气价格，从而加剧全球和美国的通胀压力。
-
-由于俄罗斯入侵引发的航运和供应担忧，油价上涨，美国原油和布伦特原油目前均高于每桶110美元，这是自2011年以来的最高水平。
-
-美国官员最近对俄罗斯炼油行业实施的一轮制裁表明，该国尚未成为华盛顿目标的石油和汽油出口表明桶价可能会继续上涨，从而刺激汽油价格上涨。
-
-根据国际能源署的数据，俄罗斯已受到支持乌克兰的国家的制裁，旨在阻碍该国经济，它是世界第三大石油生产国和全球市场最大的石油出口国。
-
-文章观点仅代表作者个人，与Gnews平台无关
-
-文章来源：[https://www.dailymail.co.uk/news/article-10573631/Americans-warned-budget-5-gallon-gas-prices-average-rises-3-61-1-2021.html](https://www.dailymail.co.uk/news/article-10573631/Americans-warned-budget-5-gallon-gas-prices-average-rises-3-61-1-2021.html)
-
-翻译：洛杉矶盘古农场 – WH
-
-校对：洛杉矶盘古农场–轰炸机
-
-编辑：洛杉矶盘古农场–傻小子
-
-发布：洛杉矶盘古农场–子萍
+> The futures of Taiwan and the United States are intertwined, because our interests are very much aligned.
+> — Mike Pompeo (@mikepompeo) [March 6, 2022](https://twitter.com/mikepompeo/status/1500553560672591879?ref_src=twsrc%5Etfw)
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
+美国国务院： 拜登总统 [@POTUS](https://twitter.com/POTUS) 致俄罗斯人民的信息：“我不相信你们想要一场针对乌克兰 – 一个与你们有着如此深厚的家庭、历史和文化联系的国家和人民 – 的血腥、破坏性战争。” 【图片文字：致俄罗斯公民：“你们不是我们的敌人” ——总统乔拜登】
+
+
+
+> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) message to the people of Russia: “I do not believe you want a bloody, destructive war against Ukraine — a country and a people with whom you share such deep ties of family, history, and culture.” [pic.twitter.com/pC58Oj5RMz](https://t.co/pC58Oj5RMz)
+> — Department of State (@StateDept) [March 6, 2022](https://twitter.com/StateDept/status/1500553355743182858?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: 白宫@WhiteHouse 是否忘记了马杜罗@NicolasMaduro 的残酷压迫已经杀死了数千人并制造了近 600 万难民？ 马杜罗帮助致力于破坏哥伦比亚和拉丁美洲稳定的毒品恐怖分子，接待卡斯特罗的暴徒，以及与俄罗斯、#中共国、伊朗和真主党等敌人结为伙伴关系。 【转斯科特自己推文：拜登政府唯一应该与马杜罗讨论的是他辞职的时间。马杜罗是一个像普京一样的种族灭绝的暴君。美国不能依赖于一个凶残的独裁者去置换另一个，也不能以任何方式承认他的虚假政府是合法的。】
+
+
+
+> Has the [@WhiteHouse](https://twitter.com/WhiteHouse?ref_src=twsrc%5Etfw) forgotten that [@NicolasMaduro](https://twitter.com/NicolasMaduro?ref_src=twsrc%5Etfw)’s brutal oppression has killed 1,000s & created nearly 6M refugees?
+> 
+> Maduro aids narcoterrorists working to destabilize Colombia & LATAM, hosts Castro’s thugs & partners with enemies like Russia, Communist China, Iran & Hezbollah. [https://t.co/mmKiwC6H0n](https://t.co/mmKiwC6H0n)
+> — Rick Scott (@SenRickScott) [March 6, 2022](https://twitter.com/SenRickScott/status/1500518599609442308?ref_src=twsrc%5Etfw)
+
+
+
+国务卿安东尼.布林肯： 俄罗斯政府正在封锁媒体渠道并限制社交媒体——所有这些都是为了掩盖正在乌克兰领土发生的事情的真相。 俄罗斯人民应该知道以他们的名义而造成的死亡和破坏的真相。
+
+
+
+> The Russian government is blocking media outlets and restricting social media — all to obscure the truth about what is happening on the ground in Ukraine. The Russian people deserve to know the truth about the death and destruction happening in their name. [pic.twitter.com/8Jk8i32chU](https://t.co/8Jk8i32chU)
+> — Secretary Antony Blinken (@SecBlinken) [March 6, 2022](https://twitter.com/SecBlinken/status/1500293840074203138?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 俄罗斯入侵乌克兰 [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 10天了，一件事是显而易见的，[#Putin](https://twitter.com/hashtag/Putin?src=hashtag_click) 普京将永远无法成功占领和统治这个国家 只要俄罗斯人还在乌克兰，他们就会面临炸弹、狙击手和死亡
+
+
+
+> 10 days into [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw)’s invasion of [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) one thing is obvious for all to see, [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) will never be able to successfully occupy & govern the country 
+> 
+> As long as Russians are there, they will face bombs, snipers and death
+> — Marco Rubio (@marcorubio) [March 7, 2022](https://twitter.com/marcorubio/status/1500642584020013066?ref_src=twsrc%5Etfw)
+
+
 
  
 

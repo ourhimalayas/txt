@@ -2,45 +2,28 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（2月28日-3月6日）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2118670/)
+## 清华校友联署取消普京名誉博士学位
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2118729/)
 
-作者：纽约香草山金融部 – ILOVE战神
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-8.jpg)清华校友联署取消普京名誉博士学位 网络图片
+据自由亚洲电台3月6日报道，一封由叶四舟、孙怒涛领衔共210名清华校友连署的公开信，强烈呼吁校方公开声明，取消普京的名誉博士学位。同时表示，授予普京名誉博士学位是清华大学的耻辱，清华校友也为之蒙羞。
 
+公开信指出，普京是个战争狂人。他发动过对车臣、克里米亚、乔治亚等战争，最近又悍然发动了对乌克兰的战争。这是一场“赤裸裸的侵略战争”，遭到了全世界绝大多数国家的反对和谴责。
 
+据悉，2019年4月26日，清华大学授予普京名誉博士学位，以表彰他在“维护世界和平与促进人类进步事业”方面做出的“杰出贡献”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/10-03062022150124.html](https://www.rfa.org/mandarin/Xinwen/10-03062022150124.html)
 
+* * *
 
-
-过去一周喜马拉雅币价格在40美元左右浮动，平均日交易量约为7万枚喜币。喜币上市以来总交易量约2990万枚 ，占今年总发行量的仅约2.99%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide14.jpg)
-本周郭文贵先生在盖特视频中表示，俄乌战争后将诞生一个新的数字货币的金融时代，就像二战后诞生了布雷顿森林体系一样。采用去中心化技术，有稳定币、有锚定、不被垄断的数字货币才是人类真正的未来。郭先生还在直播中表示，喜币将不与任何邪恶势力为伍，是代表正义的货币。
-
-本周福布斯网站发布介绍喜马拉雅交易所的文章，标题为：“通过喜马拉雅交易所购买标志性的迈凯轮汽车提升了对加密货币的信任 — 车神塞纳驾驶过的受到高度追捧的赛车通过喜支付完成交易。” 文章表示，车神塞纳所驾驶过的赛车是世界上最具价值的收藏品，这笔交易体现了人们对喜马拉雅交易所，尤其是喜支付App不断增加的信任，也代表了人们对区块链技术不断增强的信念。文章指出，喜马拉雅交易所具有无国界、包容、安全的特点，是唯一一个将原生加密货币(HCN), 稳定币（HDO）, 和支付系统应用（HPay）整合在同一个平台的加密货币生态系统，它的使命是赋予每一个人掌控自己的财富、实现财务独立的能力。郭先生也在直播中表示，塞纳如有神助的，传奇的一生为这笔交易赋予了深远的意义。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture2-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture3-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture4-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture5.png)
-参考链接：
-1. [3月3号：尊敬的战友们好，明天是中国的农历二月初二……龙抬头，也是我母亲三年冥诞的日子，明天没有直播……文贵在此衷心地希望所有的战友．爱父母爱家人！](https://gettr.com/post/pxzpvd8eb7)
-2.[Purchase Of Iconic McLaren Vehicle Through Himalaya Exchange Raises Trust In Cryptocurrencies](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)
-3. [HIMALAYA PAY 网站](https://himalaya.exchange/himalaya-pay)
-4. [2022年3月6日 文贵大直播：新中国联邦营救行动意义；共产党给华人带来的危险；未来排华及保护华人安全；俄乌战争爆发与世界经济](https://gettr.com/post/pyhtnya292)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 
