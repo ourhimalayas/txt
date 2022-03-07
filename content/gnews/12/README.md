@@ -2,61 +2,27 @@
 ---
 
 
-## 中国人的救赎
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2120246/)
+## 俄乌冲突继续，小麦交易价格再次“涨停”，创近14年来最高
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2120310/)
 
-作者：纽约香草山教育部-蓝之灵（hortênsia)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-站在炮火纷飞最前沿
-拯救一个又一个生命
-中国的，美国的，乌克兰的
-巴士飞驰一次又一次
-鲜活生命
-救援队在救赎
+撰稿：玄鸟
+校对：Streamline
+上传：无明逆流
 
-我们是在救命吗
-我们是在行善吗
-天使在前线
-行使使命
-完成
-救赎中国人灵魂
+据美国消费者新闻与商业频道（CNBC）3月2日报道，小麦期货周三创下多年新高，因小麦主要出口国俄罗斯和乌克兰之间持续的战争，引发了市场对全球大宗商品供应的担忧。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-604.png)图片来源：Vincent Mundy | Bloomberg | Getty Images
+在商品市场出现变动之际，有报道称俄罗斯军队已经包围了乌克兰南部的两个关键城市
 
-罪孽国度
-培养魔鬼
-魔鬼统治下人们
-愚昧又愚蠢
-如果我们呼喊
-唤不醒你们
-就让我们行动
-救赎你们灵魂
+本周三，小麦期货收于每蒲式耳10.59美元，上涨7.62%，为2008年3月26日小麦期货交易价10.9125美元以来的最高水平。
 
-醒来吧
-粉红们
-不要再被愚蠢
-把魔鬼假与骗
-倒进垃圾桶
-醒来吧
-中国人
-拒绝愚弄
-向真相靠拢
-醒来吧
-同胞们
-睁开眼睛
-看见我们救赎行动
+小麦连续第二天涨停，这意味着它达到了“商品价格在单日允许的最高涨幅”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-605.png)图片来源：CNBC
+“看看现在小麦价格的变化。我们可能正在谈论一个重大的食品通胀的故事”，加拿大皇家银行资本市场（RBC Capital Markets）的全球大宗商品策略主管Helima Croft周三上午在CNBC的《全球交流 》节目上说。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-606.png)图片来源：CNBC
+摩根大通(JPMorgan)表示，俄罗斯是全球最大的小麦出口国，乌克兰是全球四大小麦出口国之一。美国银行(Bank Of America)的数据显示，在2.07亿吨国际小麦贸易中，17%来自俄罗斯，12%来自乌克兰。 玉米也是这两个国家的主要农产品，其价格在周三的高点达到了每蒲式耳7.4775美元，这是2012年12月7日达到7.5275美元以来的最高水平。玉米期货结算价为每蒲式耳7.27美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE_2022-03-04_212649.jpg)
+新闻来源：[Wheat prices trade ‘limit up’ again, hit highest in nearly 14 years as Russia-Ukraine conflict continues](https://www.cnbc.com/2022/03/02/wheat-prices-trade-limit-up-again-hit-highest-in-nearly-14-years.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
 
-审核/编辑/发稿:qiutian（邱甜）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

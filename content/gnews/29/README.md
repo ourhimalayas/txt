@@ -2,35 +2,20 @@
 ---
 
 
-## 伊说▏天使与魔鬼
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119790/)
+## 辐射灾害自救常识
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2119949/)
 
-撰稿：东京樱花团/华夏伊人
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-7.png)
-俄乌战争激战正酣，身处乌克兰的人们正在经历战火。战争让他们流离失所，家破人亡， 让女人担心，让孩子恐惧。战争最大的伤害者，是无辜的普通百姓。生与死，只在刹那间。
+乌克兰的核电站遭受俄军轰炸起火的消息让整个欧洲都感受到了威胁，与此同时，中共也对台湾虎视眈眈，甚至可能使用准核武器对台湾进行狂轰滥炸，加之热战之下两岸核电站遭受攻击或发生事故而泄露的可能性也大大增加。因此防核辐射的知识就尤为重要。这是墨尔本雅典娜农场医疗援助组战友整理制作并在盖特直播讲解用的幻灯稿，特此刊登，以期对读者有所裨益。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片9.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片10.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片11.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片12.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片13.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片14.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片15.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片16.jpg)
+资料整理/幻灯制作：Day（雅典娜医疗援助组）
+发布：枳实
 
-战争给两个原本是“同类人”带来了差异化。战争既能揭露一个人丑陋的嘴脸，又也能展现一个人闪光的一面。有人被唤醒良知，而有人却丧失良知。
-
-新中国联邦人冒着生命危险，奔赴最前线，克服种种困难，为中国人、乌克兰人以及世界任何国家和种族的人，开辟一条生命通道，把他们从炮火纷飞的战场转移到安全的地方。我们没有任何政治诉求，只想救人，挽救了一条生命，等于拯救了全世界。
-
-波兰克拉科夫，一个叫辛德勒的纳粹党党员在那里，目睹了二战期间德国纳粹在关押犹太人的集中营里的惨绝人寰的暴行，于是唤醒了他的良知和人性，用商人的身份拯救了1100多名犹太人。几十年过去了，他的善举至今感动着人们，又有多少人因为他而改变世界。今天，克拉科夫再次为饱受战争摧残的人们燃起希望。那里每时每刻都在拯救生命，安抚老人、孩子、妇女受伤的心灵。
-
-你的善行可以让更多的人活下来，这是人性的光辉！人生活在这个世上，其区别于动物最本质的一样东西就是人性。什么是人性？什么样的行为会被称作有人性的行为？虽然我们不能改变自己的出身，也不能改变他人的出身，但是我们所能做到是尊重生命，敬畏生命。因为你的善行，生命或许得以延续，世界也会因此而改变。
-
-战火和硝烟也许会让太阳失去光芒，但是我们不会失去救人于危难之中的善良和勇气。我们会唤醒人性的美好，让人感受爱，传递爱。
-
-《辛德勒的名单》在结束的部分：遥远的地平线走来了劫后余生的犹太人，人们在压抑中透过气来，他们从黑暗中走来，就如同从黑夜走向黎明。天慢慢变蓝，先是黯蓝，然后是淡蓝，最后是明亮的蓝。犹太人走在了明亮的蓝天下，历经磨难的犹太民族走在了阳光里，一个黑暗的时代终结了。
-
-蓝色是慈悲和宽广的。多年以后，相信每一个有良知和正义的人，都会想起波兰上空的那屡新中国联邦蓝。
-
-那些阻挠破坏新中国联邦人救人的人，希望你们不要泯灭人性，那将会受到上天的诅咒，人性之泯灭为何可以丧失殆尽到这步田地？不奢望你是天使，但愿你也不是魔鬼。在生命面前，一切都不重要。
-
-凡救一命，即救你自己，亦救全世界。愿世间再无战争和杀戮。
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
