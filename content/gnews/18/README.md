@@ -2,24 +2,41 @@
 ---
 
 
-## 美国新任驻华大使抵达中共国
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2117861/)
+## 美国和欧盟讨论禁止进口俄罗斯石油
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2117884/)
 
-撰稿：东京樱花团/peterwong
+编译撰稿：冰糖葫芦喵
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/美国新任驻华大使抵达中共国.png)[图片来源](https://www.caixinglobal.com/2021-08-21/biden-to-nominate-foreign-service-veteran-nicholas-burns-as-ambassador-to-china-101758355.html)
+校对与发布：灭共文明、冰糖葫芦喵
 
-美国驻华大使馆官方微信周六（3月5日）消息，新任美国驻华大使尼古拉斯·伯恩斯（Nicholas Burns）已抵达中共国，与他同行的还有因疫情延后出行的美国使团人员和家人，他们将隔离三周。
+《路透社》华盛顿3月6日报道，**周日，美国国务卿布林肯(Antony Blinken)表示，美国和欧洲盟国正在探讨禁止进口俄罗斯石油的问题，白宫与国会各主要委员会进行了协调，推动各自的禁令。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/布林肯-e1646623075512.jpg)2022年3月6日，美国国务卿布林肯在摩尔多瓦向美国大使馆人员发表讲话。(Olivier Douliery/Pool/AFP via Getty Images)
+一位熟悉谈判情况的消息人士周日对路透表示，**虽然欧洲依赖俄罗斯的原油和天然气，但在过去24小时内，欧洲对禁止俄罗斯产品的想法变得更加开放。**
 
-自特里·布兰斯塔德(Terry Branstad) 2020年10月辞职以来，美国一直没有驻华大使。美国参议院于去年12月16日批准了拜登总统对伯恩斯的提名。
+与此同时,美国众议院议长佩洛西(Nancy Pelosi)周日在信中还表示,**美国商会是正在探索立法，禁止进口俄罗斯石油**，以及**国会打算制定本周100亿美元对乌克兰的援助。**
 
-伯恩斯曾担任美国负责政治事务的副国务卿、美国驻北约和希腊大使、美国国务院发言人，以及负责苏联与俄罗斯事务的国家安全委员会成员等职务。
+报道称，布林肯正在欧洲各地与盟国协调，以应对俄罗斯入侵乌克兰的行动。
 
-消息来源:[**新任美国驻华大使伯恩斯已抵达中国**](https://cn.reuters.com/article/us-ambassador-burns-china-0306-idCNKBS2L304D?il=0)
+布林肯还强调了维持全球稳定石油供应的重要性。他在接受美国全国广播公司(NBC)的《媒体见面》(Meet the Press)节目采访时说:**“我们正在与欧洲伙伴积极讨论禁止从俄罗斯进口石油的问题，当然，与此同时，要保持全球石油供应的稳定。”**
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+周四，一个由美国两党参议员组成的小组**提出了一项禁止美国进口俄罗斯石油的法案。最终可能成为制裁的工具。**
+
+在俄罗斯入侵乌克兰后，**白宫对俄罗斯炼油厂和从未开通的北溪2号天然气管道的技术出口实施了制裁。**
+
+据美国汽车协会(AAA)数据，**美国全国每加仑汽油均价周日触及4.009美元**，为2008年7月以来最高水平。
+
+**新闻来源链接：**
+
+[U.S., European allies discuss banning imports of Russian oil | Reuters](https://www.reuters.com/business/energy/us-europeans-discussing-banning-russian-oil-imports-blinken-says-2022-03-06/)
+
+**多伦多蓝莲花农场相关链接：**
+
+[https://gettr.com/user/Blue\_Lotus](https://gettr.com/user/Blue_Lotus)
+
+[https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS\_a\_BMWw](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+
+[https://discord.com/invite/awC74U4YwJ](https://discord.com/invite/awC74U4YwJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

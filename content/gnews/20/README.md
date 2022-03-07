@@ -2,38 +2,27 @@
 ---
 
 
-## 欧盟委员会暂停与俄罗斯和白俄罗斯的跨境合作和跨区合作
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2117855/)
+## 俄罗斯各地续有反战示威，超过4600人被扣留！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2117856/)
 
-**评论：***俄乌之战让欧盟委员会意识到俄罗斯已经违反了国际法、人权、民主原则和法治，从而向乌克兰伸出了正义的救援之手。*
+俄罗斯各地周日继续有民众上街示威，反对总统普京的政府向乌克兰开战，据报有超过4600人被扣留。
 
-据《ec.europa.eu》欧盟新闻稿，2022年3月4日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-555-e1646622445132.png)图片来源：European Commission
-在俄罗斯对乌克兰进行军事侵略之后，根据欧盟委员会全面实施所有限制性措施的决定，欧盟委员会暂停与俄罗斯及其盟友白俄罗斯在欧洲的邻国跨境合作计划（ENI-CBC）以及波罗的海跨区合作计划。
+俄警方发言人称，在首都莫斯科，有2500人参加示威集会。警方采取行动带走大约1700人，扣留他们问话。第二大城市圣彼得堡也有1500人参加反战集会，大约750人被捕。
 
-限制意味着将不再向俄罗斯或白俄罗斯支付款项。暂停对涉及俄罗斯和白俄罗斯的九个ENI-CBC计划以及2014-2020年计划期间的波罗的海跨国计划。欧盟对涉及俄罗斯的八个项目的资金总额为1.78亿欧元，而欧盟对涉及白俄罗斯的两个项目的资金总额为2.57亿欧元。ENI-CBC规定，在违反国际法、人权、民主原则和法治的情况下，将暂停与外部国家的合作。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-68.jpg)图片来源：AP
 
-与这两个国家在2021-2027年期间的新计划方案合作也被暂停。
+独立监察组织 OVD-Info 提供的数字则显示，俄罗斯全国各地有65个城市和城镇都发生反战示威，多达4644人被扣留。
 
-凝聚力和改革委员会专员Elisa Ferreira说：“俄罗斯的军事侵略是对《联合国宪章》、国际法和基于规则的秩序的公然违反。暂停对俄罗斯和白俄罗斯的所有跨境和跨国计划和付款，同时加强对乌克兰的支持，是欧洲对乌克兰人民支持的具体体现。”
+简评：不管是乌克兰人民还是俄罗斯人民，没有人愿意战争。独裁野心家用无数人民的鲜血来铸就自己的意淫狂想，战争过后，受伤害的是人民，重建家园的还是人民，俄罗斯民众的反战游行表达了对普京政府的愤慨，停止战争！普京滚蛋！
 
-同时，委员会正在紧急探索法律和操作性，以加强欧盟国家（波兰、匈牙利、罗马尼亚、斯洛伐克）和乌克兰之间现有的跨境合作计划，以及乌克兰参与ENI-CBC黑海流域计划或多瑙河跨国计划。
+新闻来源：[星岛网](https://std.stheadline.com/realtime/article/1815824/%E5%8D%B3%E6%99%82-%E5%9C%8B%E9%9A%9B-%E4%BF%84%E7%83%8F%E5%B1%80%E5%8B%A2-%E4%BF%84%E7%BE%85%E6%96%AF%E5%90%84%E5%9C%B0%E7%BA%8C%E6%9C%89%E5%8F%8D%E6%88%B0%E7%A4%BA%E5%A8%81-%E9%80%BE4600%E4%BA%BA%E8%A2%AB%E6%89%A3%E7%95%99)
 
-由于欧盟和乌克兰边境地区之间现有1000多个伙伴关系，这些方案提供了向乌克兰输送快速、有效支持的机会，包括对难民的支持。
+撰稿/发布：一叶知秋
 
-文章来源：[https://ec.europa.eu/info/strategy/priorities-2019-2024/stronger-europe-world/eu-solidarity-ukraine\_en](https://ec.europa.eu/info/strategy/priorities-2019-2024/stronger-europe-world/eu-solidarity-ukraine_en)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 郭班之樱
-评论：洛杉矶盘古农场 – 郭班之樱
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 –子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

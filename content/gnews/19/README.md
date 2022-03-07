@@ -2,28 +2,24 @@
 ---
 
 
-## 俄罗斯各地续有反战示威，超过4600人被扣留！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2117856/)
+## 美国新任驻华大使抵达中共国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2117861/)
 
-俄罗斯各地周日继续有民众上街示威，反对总统普京的政府向乌克兰开战，据报有超过4600人被扣留。
+撰稿：东京樱花团/peterwong
 
-俄警方发言人称，在首都莫斯科，有2500人参加示威集会。警方采取行动带走大约1700人，扣留他们问话。第二大城市圣彼得堡也有1500人参加反战集会，大约750人被捕。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/美国新任驻华大使抵达中共国.png)[图片来源](https://www.caixinglobal.com/2021-08-21/biden-to-nominate-foreign-service-veteran-nicholas-burns-as-ambassador-to-china-101758355.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-68.jpg)图片来源：AP
+美国驻华大使馆官方微信周六（3月5日）消息，新任美国驻华大使尼古拉斯·伯恩斯（Nicholas Burns）已抵达中共国，与他同行的还有因疫情延后出行的美国使团人员和家人，他们将隔离三周。
 
-独立监察组织 OVD-Info 提供的数字则显示，俄罗斯全国各地有65个城市和城镇都发生反战示威，多达4644人被扣留。
+自特里·布兰斯塔德(Terry Branstad) 2020年10月辞职以来，美国一直没有驻华大使。美国参议院于去年12月16日批准了拜登总统对伯恩斯的提名。
 
-简评：不管是乌克兰人民还是俄罗斯人民，没有人愿意战争。独裁野心家用无数人民的鲜血来铸就自己的意淫狂想，战争过后，受伤害的是人民，重建家园的还是人民，俄罗斯民众的反战游行表达了对普京政府的愤慨，停止战争！普京滚蛋！
+伯恩斯曾担任美国负责政治事务的副国务卿、美国驻北约和希腊大使、美国国务院发言人，以及负责苏联与俄罗斯事务的国家安全委员会成员等职务。
 
-新闻来源：[星岛网](https://std.stheadline.com/realtime/article/1815824/%E5%8D%B3%E6%99%82-%E5%9C%8B%E9%9A%9B-%E4%BF%84%E7%83%8F%E5%B1%80%E5%8B%A2-%E4%BF%84%E7%BE%85%E6%96%AF%E5%90%84%E5%9C%B0%E7%BA%8C%E6%9C%89%E5%8F%8D%E6%88%B0%E7%A4%BA%E5%A8%81-%E9%80%BE4600%E4%BA%BA%E8%A2%AB%E6%89%A3%E7%95%99)
+消息来源:[**新任美国驻华大使伯恩斯已抵达中国**](https://cn.reuters.com/article/us-ambassador-burns-china-0306-idCNKBS2L304D?il=0)
 
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

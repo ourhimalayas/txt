@@ -2,33 +2,42 @@
 ---
 
 
-## 大直播后记：正义取决于你的能力
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2117999/)
+## 共产党的黑社会手段烙到北京冬奥会所有官员和裁判身上
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2118065/)
 
-整理：Grace Fang、请你喝可乐
-编辑：小红帽
+Youtube视频链接：[https://youtu.be/gYxgCWq-4F8](https://youtu.be/gYxgCWq-4F8)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/16-5.png)图片来源：雅典娜农场设计组（614）
+Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
+**郭文贵先生：**所以“谷爱凌事件”造假、欺骗全世界，对全世界的法律都是威胁。而且最夸张的事情，他这个愚蠢到了在全世界媒体面前敢如此之造假。两国——你双重身份，你在美国出生，美国长大，然后美国的娘拿美国护照，然后在中国代表中国人拿冠军。
 
-看待疫苗这个问题上，一定要看到美国高法。永远不要忘了，美国是民主法制国家。我2017年找了个退休法官学习法律，他告诉我一句话：“Miles， 你勇敢，你很善良，你也有很天真的一面。据我所知，我看了一辈子法庭判对错，凡是好人都很天真，凡是邪恶的人都极为邪恶。其中一条我告诉你，美国的法院政法系统是给总统工作的，给政府工作的。”我说：“你啥意思啊？”七哥就是很天真，你看着我很聪明，在很多方面很天真。他说：“不要相信这个世界上有正义。正义，取决你的能力。还有可能有一丝的希望，就是上天，God。”我说: “我明白了。”
+然后你再看到这个冬奥会上，中国的裁判，在中国的外国裁判已经完全就像它控制的，就像法官一样。
 
-今天你要看到这个高法的判决是美国政府无法阻挡的。你要看到这个大卡车，继加拿大大卡车，美国大卡车聚集，疫苗死亡率和美国中期大选一系列的关系。
+编辑整理：Jacques；
 
-共产党现在这个中文媒体，说他要干啥？他根本控制不住。这才是我们真正的悲哀呢。我再次请战友们一定记住，学会在新中国联邦这个平台上了解世界。什么是实力？平台， 媒体。有媒体，有钱就是世界的王。有媒体，没钱；你有钱，没媒体，随时黑掉你。有媒体，没钱是不可能。有媒体没钱，你随时出卖自己的良知。真相就在这两个之间，媒体和金钱之间，根本不在法院。
+字幕文件制作：星塵；
 
-宇伦：我看到这份（辉瑞疫苗副作用）报告的时候，我的最大的感觉就是，我看完了以后觉得不可思议。这是目前我们知道的1000多种后遗症。那将来呢？人体是一个非常非常复杂的一个机器，它的变异呢？我们的下一代呢？会不会真的就像那些电影里演的那种僵尸城市一样？我觉得这个就在眼前。那作为我们新中国联邦人，没有打疫苗的人，我觉得我们不仅仅是为了自己的健康，家人的健康，我们应该是以后世界人类的种子。
+视频制作及上传：Cindy；
 
-参考资料：[郭文贵先生2022年3月6日大直播](https://www.gettr.com/streaming/pyhtnya292)
+G-News发布：小满；
 
-发布*：tianzhihuan*
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

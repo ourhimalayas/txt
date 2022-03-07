@@ -2,42 +2,42 @@
 ---
 
 
-## 瑞典将废除中共病毒《大流行病法》
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2117959/)
+## 非洲一系列政变让亲共者下台让共产党数千亿美元打水漂
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2117995/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Coronavirus_people-1.jpg)资料图
-《布赖特巴特新闻网》2022年3月5日报道，瑞典政府将在本月底废除其《大流行病法》，并从4月开始，该国将不再把中共病毒列为“具有普遍和社会危险性”的疾病。
+Youtube视频链接：[https://youtu.be/GqSeqEU6PfE](https://youtu.be/GqSeqEU6PfE)
 
-社会事务部长莉娜·哈伦格伦(Lena Hallengren)宣布，政府将通过向瑞典议会提交终止措施的动议来废除《大流行病法》——这是被称为瑞典国会的立法机构已经要求政府做的事情。“我们的评估是，废除这项法律是可能的。如果我们判断不是这样，我们就会与国会进行新的讨论。”哈伦格伦部长说。
+Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
-“我们目前不打算以我们两年来断断续续的方式重新引入限制。但如果我们发现自己陷入这种局面，我们将不得不通过一项新法律。”哈伦格伦说。
+**郭文贵先生：**你看他们在非洲花那么多钱，非洲的这个安哥拉，那全家我都很熟啊，我这未来，非洲你七哥的板块你还没开始呢。我可能告诉你，共产党花这几千亿美元我让他变成零，还得负零。
 
-由于瑞典希望宣布中共病毒不再具有社会危险性，因此感染该病毒的人将无需寻求医疗建议，也没有进行检疫或隔离的义务。在医疗保健系统内会有例外情况，任何检测到的病例都将被追踪和报告。
+大家注意到最近非洲这些国家共产党这回他发现什么了？——一系列的政变。你们上网没有一个人报道。凡是共产党支持的国家都在政变，只是你太多事了，你们忘掉了。就所有支持的人都会打水漂。而且政变都是对方嘛，政变完你亲共的，全给你干掉，然后最后全都是反共。
 
-上个月，瑞典是宣布将取消各种中共病毒限制措施的几个欧洲国家之一，其中包括几个月前才实施的疫苗护照。总理马格达莱娜·安德森(Magdalena Andersson)表示，对中共病毒的更好了解以及公众的高疫苗接种率致使她的政府采取了取消限制的行动。
+编辑整理：Jacques；
 
-一些国家，例如意大利，仍然维持着更严格的中共病毒健康通行证制度，但有迹象表明他们也可能在不久的将来结束这些制度，意大利总理马里奥·德拉吉(Mario Draghi)上周宣布，政府将允许中共病毒紧急状态到期，并表示健康通行证制度将逐步淘汰。
+字幕文件制作：兵嫂；
 
-简评：
+视频制作及上传：Cindy；
 
-随着奥密克戎袭击全球，导致各国出现新一波感染人数高峰，但欧美各国政府并未如经历德尔塔变种那时一样，借机加强限制措施或催打中共毒疫苗，而是逐步放宽限制，甚至取消相关法律。这推动一切的背后因素，并不是政府可以控制的。中共病毒以及疫苗的本质正被逐渐揭露，人们逐渐认识到疫苗不是保护自己免受病毒感染的有效措施，而是被政府用以限制人们自由的工具。越来越多的世界人民上街游行，全世界大卡车司机的集结与和平抗议运动，包括疫苗副作用的频发，这一切的一切，让各国政府看到，它们借疫苗管控社会的阴谋即将被揭开，必须要尽快解除限制，借机从被舆论讨伐的高点下来。美高法判FDA败诉从而公布的辉瑞疫苗资料告诉世界，辉瑞公司呈报的副作用就有1291种，其中不乏首次出现的罕见疾病，而哪一种都是人的生命不可承受之重。之前疫苗副作用无法在医院立案的窘境将被推翻，接种过中共毒疫苗的人们将会认识到危险，相关的法律诉讼相信已经在路上。严苛的意大利政府也已经松口，这番长达两年的中共病毒以及疫苗之战到了一个转折点，如何面对接下的疫苗灾难将成为人类新的课题。
+G-News发布：小满；
 
-新闻链接：[https://www.breitbart.com/europe/2022/03/05/sweden-to-end-pandemic-measures-stop-classifying-covid-as-generally-and-socially-dangerous/](https://www.breitbart.com/europe/2022/03/05/sweden-to-end-pandemic-measures-stop-classifying-covid-as-generally-and-socially-dangerous/)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-翻译/简评：milkcat
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-PR:Harvey（叶知秋）
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-* * *
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-编辑：【英国伦敦喜庄园编辑部】
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,42 +2,71 @@
 ---
 
 
-## 共产党在尝试改变一切国际上已经存在的法律和游戏规则
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2117975/)
+## 因俄罗斯入侵乌克兰，美国预计气油价格将达到5美元/加仑
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2118002/)
 
-Youtube视频链接：[https://youtu.be/Z9aZwOiVTsw](https://youtu.be/Z9aZwOiVTsw)
+据《DailyMail》记者道Alex Hammer 2022年3月3日报道：
 
-odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+- 专家表示，随着石油成本在俄罗斯入侵乌克兰后的几天内继续上涨，美国人将在未来几周内看到汽油价格上涨至5美元
+- 美国全国平均价格周四飙升至每加仑3.72美元，旧金山等城市的平均价格为每加仑5.05美元，洛杉矶为5.01美元
+- AAA 数据显示，在加利福尼亚和夏威夷等燃料成本较高的州，驾车者已经支付近4.50美元/加仑的费用
+- 加利福尼亚目前的平均汽油价格是 50 个州中最高的，为每加仑4.80美元，其次是夏威夷，每加仑4.52美元，内华达州为4.02美元
+- 据石油分析师称，随着俄罗斯（世界主要石油生产国之一）与乌克兰之间的冲突加剧，这种飙升不太可能很快缓解
+- 由于俄罗斯入侵引发的航运和供应担忧，油价上涨，美国原油和布伦特原油均处于十多年来的最高点
+- 俄罗斯是主要能源生产国，因此能源价格波动较大
 
-**郭文贵先生：**所以说兄弟姐妹们，到今天你再看共产党在美国，在全世界干什么？他完全不尊重游戏规则，而且在尝试改变一切国际上已存在的法律和游戏规则。
 
-当年到美国来驻美国大使能跟美国司法部的官员勾兑，要把中国一个在美国…….,任何人到美国来，你只要脚一落地，你跟美国公民一样待遇，一样保护，任何人。这样的情况下，能勾兑把这人要遣返。把美国这个国家总统周围人全部拿下。你想想要遣返一个Miles Guo。他在改变这法律和规则。然后你看他在欧洲、在中东、在非洲。
+专家说，随着石油成本在俄罗斯入侵乌克兰后的几天内继续上涨，美国人预计未来几周汽油价格将上涨至每加仑5美元，而加利福尼亚州的一些地区已经如此。
 
-编辑整理：Jacques；
+《GasBuddy》石油分析主管帕特里克·德哈恩（Patrick De Haan）周一在推特上说：“我们很快会看到我们有史以来主要城市汽油平均价格达到5美元/加仑，”因为全国平均价格飙升至3.61美元，此后又飙升至3.72美元，截至周四。
 
-字幕文件制作：兵嫂；
+“这将在接下来的几周内发生。”这位石油分析师断言，列出了受油价飙升打击最严重的城市，例如旧金山，周四其平均价格超过5美元大关，达到每加仑 5.05美元，而洛杉矶 ，达到了类似的5.01美元。
 
-视频制作及上传：Cindy；
+AAA 数据显示，截至周四，全国平均水平为每加仑3.72美元，比2月份上涨 37 美分，比一年前上涨约1美元。 这一年的增长也可归因于通货膨胀和供应链问题，随后俄罗斯入侵加剧了这些问题。
 
-G-News发布：小满；
+随着世界主要石油生产国之一俄罗斯与乌克兰之间的冲突愈演愈烈，德哈恩（De Haan）的部门分析了美国、加拿大和澳大利亚150,000多个加油站的燃料价格，目前的飙升不太可能很快缓解。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+德哈恩周四发推说：“对于那些认为这种#汽油价格飙升在某种程度上只存在于美国并且以某种方式决定提高价格的人来说，这是由于主要生产国的石油损失而导致的全球价格飙升。”
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+“随着俄罗斯局势的进一步恶化，预计价格将继续攀升，可能会推高油价。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-557.png)由于对主要石油生产国俄罗斯的制裁，目前的全国平均水平比2月份上涨37美分，比一年前上涨约1美元 (图片来源：dailymail.com.uk)
+德哈恩周三表示，俄罗斯对乌克兰的入侵引发了高层的担忧，即世界第二大石油生产国的石油生产最终可能会被扼杀甚至制裁，导致供应减少。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+“这种可能性在上周大幅推高了全国汽油平均价格，情况随时可能恶化，在可预见的未来保持汽油价格上涨。”
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+然而，数据显示，在美国燃料成本更高的州，例如加利福尼亚州和内华达州，驾车者已经为每加仑支付近4.50美元，在某些情况下甚至更多。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+德哈恩说，美国人的平均价格将在3月底前升至4美元/加仑，接近2008年7月美国大萧条期间记录的全国最高平均水平4.11美元。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+加利福尼亚目前的平均汽油价格是50个州中最高的，为每加仑4.94美元-比5美元的门槛低6美分-其次是夏威夷，为4.63美元/加仑，内华达州为4.13美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-558-e1646624790733.png)专家警告说，随着俄罗斯入侵乌克兰后的几天内石油成本继续上涨，美国人预计未来几周天汽油价格将上涨至每加仑 5 美元(图片来源：dailymail.com.uk)
+俄罗斯是一个主要的能源生产国，因此能源价格波动剧烈，再加上不可避免的更广泛冲突的风险，更多国家准备加入战斗，可能引发全面战争。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+信用评级机构惠誉的首席经济学家布莱恩·库尔顿（Brian Coulton）本周对哥伦比亚广播公司新闻表示，我们认为俄乌战争将推高石油和天然气价格，从而加剧全球和美国的通胀压力。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+由于俄罗斯入侵引发的航运和供应担忧，油价上涨，美国原油和布伦特原油目前均高于每桶110美元，这是自2011年以来的最高水平。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+美国官员最近对俄罗斯炼油行业实施的一轮制裁表明，该国尚未成为华盛顿目标的石油和汽油出口表明桶价可能会继续上涨，从而刺激汽油价格上涨。
+
+根据国际能源署的数据，俄罗斯已受到支持乌克兰的国家的制裁，旨在阻碍该国经济，它是世界第三大石油生产国和全球市场最大的石油出口国。
+
+文章观点仅代表作者个人，与Gnews平台无关
+
+文章来源：[https://www.dailymail.co.uk/news/article-10573631/Americans-warned-budget-5-gallon-gas-prices-average-rises-3-61-1-2021.html](https://www.dailymail.co.uk/news/article-10573631/Americans-warned-budget-5-gallon-gas-prices-average-rises-3-61-1-2021.html)
+
+翻译：洛杉矶盘古农场 – WH
+
+校对：洛杉矶盘古农场–轰炸机
+
+编辑：洛杉矶盘古农场–傻小子
+
+发布：洛杉矶盘古农场–子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
  
 

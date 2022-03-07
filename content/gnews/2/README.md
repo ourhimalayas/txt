@@ -2,42 +2,46 @@
 ---
 
 
-## 七哥支持的人主政安哥拉将全部断掉占中国20%能源供应
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2118029/)
+## 银行业监管机构称中共国不会加入对俄罗斯的制裁
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2118112/)
 
-Youtube视频链接：[https://youtu.be/w\_ZFt1vXKGE](https://youtu.be/w_ZFt1vXKGE)
+***评论：**西方国家对俄罗斯制裁，是因为俄罗斯入侵了乌克兰，中共国在联合国大会紧急特别会议关于乌克兰局势决议草案中投了弃权票，和俄罗斯关系越来越密切，世人皆知，说影响有限，是不是心虚，他们自己清楚。*
 
-Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+据《路透社》记者Kevin Yao 2022年3月2日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-559-e1646626363938.png)中国银行保险监督管理委员会（CBIRC）主席郭树清于2021年3月2日在中国北京出席新闻发布会。REUTERS/Tingshu Wang
+《路透社》北京3月2日 – 中国银行业监管机构周三表示，中共国不会加入由西方主导的对俄罗斯的制裁，并补充说他认为这些措施对中国的影响将是有限的。
 
-**郭文贵先生：**他在这些国家改变游戏规则，你像安哥拉，我要支持的人上去以后，就把安哥拉现在提供中国20%的能源市场全给他停了。
+中共国拒绝谴责俄罗斯入侵乌克兰，一再批评其所谓的非法和单边制裁。
 
-共产党的回扣是40%，哇噻，你说想想有多可怕啊。就在安哥拉的石油40%的回扣。中国老百姓傻到就是没边。你想都不敢想的这个黑暗。这改变规则吧？然后从非洲到欧洲，然后到日本，到印度。
+“就金融制裁而言，我们不赞成，尤其是单方面发起的制裁，因为它们效果不佳，没有法律依据，”中国银保监会主席郭树清在一场新闻发布会上说。
 
-编辑整理：Jacques；
+“我们不会参与此类制裁。我们将继续与有关各方保持正常的经贸往来。”他说。
 
-字幕文件制作：兵嫂；
+近年来，中共国和俄罗斯的关系越来越密切，包括作为贸易伙伴。根据中国海关数据，去年两国贸易总额增长 35.9%，达到创纪录的 1469 亿美元，其中俄罗斯是石油、天然气、煤炭和农产品的主要来源，对华贸易顺差。
 
-视频制作及上传：Cindy；
+“到目前为止，制裁对中国经济和金融部门的影响还不是很大。”郭补充道。
 
-G-News发布：小满；
+“总体而言，即使在未来，它们（对中国）也不会产生太大影响，”郭说，并引用了中国经济和金融部门的韧性。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+文章观点仅代表作者个人，与Gnews平台无关。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+文章来源：[https://www.reuters.com/markets/europe/china-banking-regulator-sees-limited-impact-sanctions-russia-2022-03-02/](https://www.reuters.com/markets/europe/china-banking-regulator-sees-limited-impact-sanctions-russia-2022-03-02/)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+翻译：洛杉矶盘古农场 – Raul
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+校对：洛杉矶盘古农场 – 轰炸机
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+评论：洛杉矶盘古农场 – 傻小子
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+编辑：洛杉矶盘古农场 – 傻小子
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+发布：洛杉矶盘古农场 – 子萍
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
  
 

@@ -2,35 +2,44 @@
 ---
 
 
-## 大直播后记：新中国联邦消除中国人的心霾
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2118030/)
+## 中共以东莞嫖妓和非正常收入胁迫在港英国法官查封七哥
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2118113/)
 
-整理：清水冷香、Lucy Liu
-编辑：文泓
+Youtube视频链接：[https://youtu.be/qHYoqAzfeZk](https://youtu.be/qHYoqAzfeZk)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-41.png)图片来源：雅典娜设计组
+Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
+**郭文贵先生：**你知道共产党当年在香港的法官跟我们说什么吗？就香港查封我们钱的人，DBS的几百亿的人——法官，后来离职了，他说：“你知道当时中共国威胁我，明确告诉我 ‘你不把郭文贵Miles Guo家族的钱给封了，我就把你所有的你在东莞嫖妓的事情和你家里边不正常的钱全公布’ 。”这法官没办法，把钱全封了，现在还封着呢。
 
-我就想问所有的兄弟姐妹们，你见过中国人像新中国联邦这样从DC阿炳、大锅，到晋东南和我们的明道，以及我们冲到前线的每个人，文戈七雄、我们的英国大卫兄弟，小小妹、文耀等，我们在前线的所有兄弟有哪一个家里缺钱？哪一个生活水平不在你中共国人之上？他们都逃出地狱几十年了，他们不缺钱，生活很自由，都拿着外国护照讲流利的中国语言，他们冲到前线有一分钱回报吗？冒着风险，救了完全和你素不相识的人，我们可以不去救你们；不救你们，我们犯错吗？没有犯错。
+这法官在香港离职了，是个英国人，大家你可以查查，是在英国在香港的十大法官之一，一辈子待在香港。这是被它威胁的法官，在香港就查封这么（多）资金，就这么查封的。
 
-对我们拥有喜币，不打疫苗的人来讲，我们是世界上最高贵的族类。我们每个战友都是大熊猫级的，我就希望他们安全，我希望他们任何人都没有事儿。我看到每个镜头，我和你们的感触都不一样，因为他们是我们新中国联邦的最最昂贵的资产。他们到前线我心里好受吗？在机场小王子、瑞秋和长岛哥的别离，你知道最难受的就是七哥。这些人就是我的家人，正义小Sara一个小孩子直接就冲到前面去了。她母亲跟她作出这样决定，我几次想跟她妈妈通个电话，但就没有通，因为我不知道该说什么好。
+所以共产党的黑社会手段绝对地伸进了现在冬奥会的所有的官员和那些裁判的身上，你都明显地你违规了，判人家违规。所以说在现场的冬奥会的官员跟咱们好的，他说：“Miles，对你来讲这都是天大的好事儿，我不相信任何一个国际奥林匹克运动会的任何官员还会再跟共产党合作，还会再相信共产党，永远不可能了。就连我们这两个头儿，（女的，奥林匹克官员，冬季奥委会的官员在现场的）每天唉声叹气摇头。”就不行了，就完全失控了！
 
-但凡大家是人，有人心、有热血，你想想，这些人有必要冲上前线吗？他们有爹有妈，有兄弟，有姐妹。我们现在跟联合国这个NGO组织合作，我们不在乎，谁也不需要。九指妖、蛇妖闫、路大脑袋、高冰尘、黄河边去打电话，破坏我们跟这个组织合作，我请问兄弟姐妹们，今天我们在前线救人，跟任何组织有关系吗？我们战友去买机票，飞到那儿，你觉得跟任何组织有关系吗？我们现在已经包下了23架飞机，国际救援飞机23架，你觉得跟任何组织有关系吗？我们在要救人的时候，九指妖、路大脑袋、蛇妖闫、高冰尘全是为共产党工作的人，在黑我们，骂我们。
+编辑整理：Jacques；
 
-大家知道，当年我从清风看守所出来，每年我必上少林寺中岳庙，每年春节必往那儿大拜。那些墙上有中国道教的很多的传神的字画和故事，不一定百分百准，但我深信不疑。我深信任何人去阻挡别人救人，上面画上写的很清楚，阻挡别人救人，你的孩子，你的家人生出来没屁眼儿！还有，你会横祸死，你会代替这个人死一次。我真的相信，所以我不会阻止任何人去救人。
+字幕文件制作：星塵；
 
-九指妖、路大脑袋，蛇妖闫、高冰尘这种憎恨乌克兰，还有中国那些老百姓，人家乌克兰人（遭难）死了，你在那儿幸灾乐祸的，要知道在任何宗教上有一句很重要的话，如果你对所有的悲哀视若无睹，你还在那儿兴高采烈，那么这个灾难就会降临到你的头上。像九指妖、高冰尘、路大脑袋、蛇妖闫，还有这些华人你记住，如果天地之间有神的话，你们祖宗八辈都会进地狱，你们的孩子都会出车祸，都会死在战争里，一定的！
+视频制作及上传：Cindy；
 
-这就为什么2017年我说中国最大的（污染）不是空气的所谓雾霾，是心霾，这种心霾会让你死无葬身之地，会让你的孩子家人都死在上面。全地球75亿人口，一个跟你完全没有关系的民族被残害成这个样子，你还在这儿兴奋？招你惹你了？新中国联邦人去前线冒死救人，战友个个长得光鲜靓丽，过着生活富庶美好，不图钱不为名，也不是一份工作，他们都是抛家舍业救人去。
+G-News发布：小满；
 
-资料来源：[2022年3月6日 文贵大直播](https://gettr.com/streaming/pyhtnya292)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
