@@ -2,33 +2,39 @@
 ---
 
 
-## 乌克兰危机下，世界银行等机构纷纷与俄罗斯切割
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2119493/)
+## 英国上议院法案：禁止从“种族灭绝”国家采购医疗用品
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2120212/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-自俄乌战争打响以来，世界银行等国际机构都在争先恐后地与俄罗斯和白俄罗斯在俄乌保持距离。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-15.jpg)
-3月2日，世界银行宣布，它将 “立即 “停止在俄罗斯和白俄罗斯的所有项目，3月3日，亚投行发表一份声明表示，为了亚投行的最大利益，管理层已决定暂停所有与俄罗斯和白俄罗斯有关的活动，并接受审查。3月4日，总部位于上海的金砖国家新开发银行以“不断出现的不确定性和限制”为由，暂停了在俄罗斯的所有新交易。
+## **【雅典娜快讯】和您一起洞察世界**
 
-随着俄罗斯入侵的不断持续，除上述国际机构外，许多国家、组织和企业也在与俄罗斯断绝关系，对其实施制裁，并对支持俄罗的白俄罗斯进行共同制裁。
+整理/编辑：文泓
 
-参考链接：[New Development Bank Suspends All New Transactions In Russia Amid Ukraine Crisis](https://www.outlookindia.com/international/brics-new-development-bank-suspends-all-new-transactions-in-russia-amid-ukraine-crisis-news-185166)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-21.png)图片来源：The Epoch Times & 雅典娜设计组
 
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-总编/编辑/审核：飞虹
-校对/发稿：Hetangyuese
+当地时间3月3日，英国上议院通过一项修订法案，要求英国国民保健署（NHS）在采购医疗用品及服务时，应排除存在“种族灭绝”情况的国家。虽然未点名中共国，但提案议员在国会发言时，均直指新疆存在强迫劳动和种族灭绝问题。
 
-**更多资讯，更多关注**
+在审议该法案时，多名上议员提出修订案，要求内政大臣必须制订政策，确保英国的医疗用品和服务采购，符合英国在《防止及惩治灭绝种族罪公约》下的义务，即不得从存在严重种族灭绝风险的国家采购。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+提出修订案的奥尔顿勋爵在国会发言：“**三分之二受访者表示，他们将支持阻止政府从存在严重种族灭绝风险的地区，为国民保健署采购医疗设备。因此这项跨党派修正案的要求，得到广泛民意支持。**”
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+奥尔顿勋爵指出，自疫情以来，英国一共采购了369亿件个人防护装备，当中有241亿件来自中国，即超过65%；又从中国购买了10亿枝快速测试剂，连同个人防护装备，一共花费了48亿英镑。
+英国《每日电讯报》去年曾披露，英国政府曾向被美国指控和新疆强迫劳动有关的企业，购买价值1.5亿英镑的个人防护装备。
+
+提出修订的议员要求英国政府采取行动，阻止参与强迫劳动和种族灭绝罪行的罪犯继续赚取英国纳税人的金钱，停止助纣为虐。
+
+修订案最终在上议院获得通过，下一步将提交下议院继续审议。
+
+参考链接：[英国上议院法案：禁止从“种族灭绝”国家采购医疗用品](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/al-03042022143024.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

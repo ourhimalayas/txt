@@ -2,31 +2,21 @@
 ---
 
 
-## 正道主义的核心
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2122175/)
+## 七哥说—第54期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2122406/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+制作：Inzaghi
 
-2022-03-02直播摘录
+**天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。**
 
-你去看一看这个世界上穆斯林、佛教、基督教、天主教，你发现有分教吗？最大人类上从来没有因教而支持谁，完全是无宗教背景的。你见有什么族类分别吗？没有任何种族分别的。有什么国家分别吗？没有什么国家分别。而且老百姓真的不是为了利益来决定，真的觉得你不该打，你不该这么杀，你不能杀害这个无辜，这是正道主义的核心。维护地球人类的绝大多数人的公平、正义、安全跟和平，它才属于正道主义。所以在世界的互联网时代才诞生了今天你看到的奇迹，正义的人之不分高低，不分男女，不分老少在维护着和平和正义。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥说_郭先生_普大帝_习太阳.png)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥说_郭先生_教育_疫苗灾难_中共病毒.png)
 
-**关注我们**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-4.jpeg)
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

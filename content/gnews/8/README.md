@@ -2,33 +2,29 @@
 ---
 
 
-## 以色列调查：加强针造成的伤害比想象的要多
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2122187/)
+## 俄乌战争 联合国称已有170多万乌克兰人逃往中欧
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2122413/)
 
-翻译： Jenny Ball
+翻译：灭共文明
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-649.png)图片来源：childrenshealthdefense.org
+编辑与校对：灭共文明
 
-根据以色列卫生部进行的一项调查，与该国的被动报告系统所显示的相比，更多的以色列人在接受 COVID-19 加强注射后受到伤害和反应。
+路透社》波兰/罗马尼亚锡雷特3月7日报道，**周一，联合国难民署表示，目前已有逾170万乌克兰平民进入中欧，另有数千人涌入边境。**联合国难民署称，**其中大部分是妇女和儿童，而男性则留在家中作战。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16264533599524480240.jpg)乌克兰扎波罗什市孤儿院215名儿童赶赴波兰避难。（图片来源：网络）
+报道指出，自2月24日冲突开始以来，**波兰已经接收了100多万乌克兰难民，建立了欧洲最大的乌克兰社区**。在距离波兰与乌克兰最繁忙的边境口岸最近的一个大型城镇Przemysl火车站，**大约150名乌克兰儿童从基辅地区的孤儿院乘火车从利沃夫抵达这里。**
 
-卫生部对加强注射接受者进行了主动调查，以收集与加强剂量相关的不良事件数据，然后，将调查数据与该国被动报告系统提供的数据进行比较。
+在同一城镇，**一个儿童慈善机构准备了一个经过改造的学校体育馆来欢迎他们。波兰非政府组织Happy kids危机应对部副主管**、25岁的Przemek Macholak对路透**表示:“我们为他们准备了食物，还有很多孩子非常小，所以我们必须给他们换尿布等。”**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/MILES盖特2.jpg)俄乌战争中的乌克兰难民（图片来源：网络）
+到目前为止，**已经帮助疏散了约2000名孤儿的“快乐孩子”组织表示，他们试图在孩子们抵达波兰后不将他们分开。**
 
-调查得出结论，以色列的被动报告系统严重低估了不良事件。
+**波兰政府通过了一项法案草案，拟设立一项80亿兹罗提(17.5亿美元)的基金来帮助来自乌克兰的难民。**
 
-以色列调查的数据可以提供一些洞察力，以了解美国发生的漏报程度。
+欧盟最高外交官约瑟普博雷尔(Josep Borrell)说，**如果俄罗斯继续轰炸乌克兰，欧盟可能会看到多达500万名乌克兰难民。**
 
-它还可以证实CDC所忽略的安全信号。
+新闻来源链接：
 
-**评论：根据周三发布到辉瑞报批文件，这些不良反应都罗列在文件中，所以，用CDC “忽略 “ 安全信号就完全与事实相悖，应该是CDC有意向民众隐藏安全警告！而且，采用被动报告的形式，继续欺骗民众。更详细的调查结果请阅读另文专译。**
+[More than 1.7 million Ukrainians have fled to Central Europe, UN says | Reuters](https://www.reuters.com/world/more-than-17-million-ukrainians-have-fled-un-says-tide-refugees-grows-2022-03-07/)
 
-素材链接：[childrenshealthdefense.org][Booster Shots Causing More Injuries Than Previously Thought, Israeli Survey Shows](https://childrenshealthdefense.org/defender/booster-shots-more-injuries-israeli-survey/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ba831bd2-59ec-4f9b-999b-c1bbb0f40d90)
-
-* * *
-
-*审核：文乐
-校对：小东
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
