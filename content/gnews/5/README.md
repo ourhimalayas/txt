@@ -2,54 +2,46 @@
 ---
 
 
-## 官方文件披露辉瑞公司中共病毒疫苗有1291种副作用
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2117237/)
+## Three News on March 6th, 2022
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2117311/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/030509-1.jpg)图片 @riotimesonline.com
+Translator: 大菠萝
+Proofreader: marklism
 
-翻译：
-
-巴西英文报纸《The Rio Times》2022年03月05日里约热内卢报道，在周二发布的一份55000页的文件中，美国食品药品监督管理局(FDA)的生物制品评估和研究中心(CBER)首次允许公众查阅辉瑞公司为获得中共病毒疫苗许可而提交给FDA的临床试验数据。
-
-这遵循了美国地区法官马克·皮特曼(Mark T. Pittman)于1月6日决定拒绝FDA提出的在未来75年内压制这些数据的请求，FDA声称这是必要的，部分原因是其“资源有限”。
-
-当辉瑞公司申请FDA批准时，他们知道有近15.8万起不良事件。这确实没有给他们带来有利的一面。而现在，一份38页的报告中，有一个附录的清单，说辉瑞公司的中共病毒疫苗有1291种副作用。
-
-该清单包括急性肾损伤、急性弛缓性脊髓炎、抗精子抗体阳性、脑干栓塞、脑干血栓、心脏骤停、心力衰竭、心室血栓、心源性休克、中枢神经系统脉管炎、新生儿死亡。深静脉血栓形成, 脑干炎, 出血性脑炎, 额叶癫痫, 口吐白沫, 癫痫性精神病, 面瘫, 胎儿窘迫综合征, 胃肠道淀粉样变, 全身强直-阵挛发作, 桥本脑病, 肝血管血栓形成、带状疱疹再激活、免疫介导的肝炎、间质性肺病、颈静脉栓塞、青少年肌阵挛癫痫、肝损伤、低出生体重、儿童多系统炎症综合征、心肌炎、新生儿癫痫发作。胰腺炎、肺炎、死胎、心动过速、颞叶癫痫、睾丸自身免疫、血栓性脑梗塞、I型糖尿病、新生儿静脉血栓和椎动脉血栓等1246种接种疫苗后的其他病症。
-
-儿童健康保护组织(CHD)主席和总法律顾问玛丽·霍兰德(Mary Holland)说：“这是一个重磅炸弹。”
-
-“至少现在我们知道为什么美国食品药品监督管理局和辉瑞公司想把这些数据保密75年。这些发现应该立即终止辉瑞公司的中共病毒疫苗。潜在的严重伤害是显而易见的，那些受到疫苗伤害的人被禁止起诉辉瑞公司要求赔偿损害……”
-
-**简评：**
-很多人之所以接受辉瑞中共病毒疫苗，其中一个原因就是他们认为疫苗已经有100多年的历史，现阶段的疫苗技术是成熟的。但是他们忽视了一点，人类虽然已经使用了疫苗100多年，但人类对中共病毒的了解还刚刚开始。疫苗是老技术，但中共病毒是新事物。
-
-通过各种疫苗的研究历史，我们很容易发现，所有的疫苗研发，短则8年，长则40年，平均20年，而且更多的病毒，我们根本无法开发出疫苗。这是病毒本身的特性决定的，与疫苗技术无关。
-
-在这次的中共病毒大流行中，不到1年的时间，辉瑞的疫苗和中共国的疫苗就横空出世，这本身就令人匪夷所思。随之而来的是各国政府颁布的疫苗强制接种政策，我们不禁要问问自己，如果这个疫苗真的有效，能防止感染，拯救人类，还需要政府施行强制接种政策吗？恐怕大家都会争先恐后，生怕自己被拉下，甚至会不惜花重金接种疫苗。因此疫苗推出的时间和政府随之而来出台的强制政策，都似乎在暗示着疫苗背后有不可告人的秘密。
-
-这次辉瑞公司在法庭上的败诉，将正式开启疫苗真相的大门，当所有打了疫苗的人看到这份文件时，他们终将醒悟，他们一定会识破“主流媒体”的谎言，并对整个事件进行抽丝剥茧般的分析，最后大家会得到一个共识，那就是中国共产党是这一切事情的罪魁祸首。全世界人民共同灭共将是这个世界的主旋律。
-
-新闻链接：[Pfizer Covid vaccine has 1,291 side effects reveals official documents](https://www.riotimesonline.com/brazil-news/modern-day-censorship/pfizer-covid-vaccine-has-1291-side-effects-reveals-official-documents/)
-
-*翻译/简评: kkoto(芬兰大灰狼)*
-
-*校对:Harvey（叶知秋）*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-61.png)Picture source: The Economist
 
 
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+1. Russia-Ukraine war aggravates world food crisis and inflation.
 
 
-编辑：【英国伦敦喜庄园编辑部】
+Let’s look at a set of data: Russia accounts for 11.3% of the global crude oil export, 16.2% of global natural gas export, 26% of global wheat export, 20% of global corn export, the first of nitrogen fertilizer export, the second of tin fertilizer export, the third of phosphate fertilizer export, 49% of global nickel export, and 42% of global palladium exports.
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+The EU depends on Russia the most worldwide. Ukraine is an important breadbasket for the world, but now due to the war between Russia and Ukraine, the following week is supposed be the time to plant crops in Ukraine, and if the timing of sowing is lost this week, the harvests will be greatly impacted, however, under the current war situation, it is obvious that no one will still go to sow, which means there will be a big shortage of food next year.
 
+Agricultural fertilizers come from oil, and now Russia is at war with Ukraine, which will certainly lead to a big increase in the price of oil, and once the price of oil goes up, the price of fertilizers will go up, and then the price of food will go up. Therefore, the world food crisis is coming soon.
 
+China relies on importing about 30 to 40 percent of food every year, and now the foreign exchange is declining and food price is also rising. Will China be able to import enough food then? I wonder how many Chinese people will suffer from starvation during the coming food crisis.
+
+2. Vaccine dominoes begin to fall.
+
+The FDA lost the case in Texas and Pfizer was forced to disclose the data of vaccine: 46,000 people had participated in the experimental study, among whom 42,000 people (91.30%) had adverse reactions, and 1,200 people (2.61%) died, the percentage of which is higher than that of the global mortality rate of the Covid-19.
+
+At the same time, the side effects listed in the document are written for nine full pages. There are more than 1,000 adverse reactions listed in the currently disclosed documents, many of which are seen for the first time, including: fasciitis, eye swelling, facial paralysis, baldness, anaphylaxis, allergic reaction syndrome in pregnancy, acute cardiomyopathy, acute respiratory failure, injection site vasculitis, seizures, blood clots, arrhythmia, arthritis, asthma, bronchospasm, cardiac arrest, heart failure, chest discomfort, asphyxia, acute cutaneous lupus erythematosus, acute encephalomyelitis, acute kidney injury, acute macular outer retinopathy, aplastic anemia, chronic autoimmune glomerulonephritis, chronic cutaneous lupus erythematosus, chronic spontaneous urticaria, hemolytic anemia, colitis, dermatitis, diabetes mellitus, embolic cerebral infarction, endocrine disorders, neonatal myasthenia gravis Myelitis, non-infectious ovarian inflammation, thyroiditis, ulcerative proctitis, ocular pruritus, genital herpes, glossopharyngeal nerve palsy, hemorrhagic vasculitis, cervicitis, lupus cystitis, lupus encephalitis, multiple sclerosis, etc.
+
+FDA regulates that if one case of death happens within 30 days after an experimental trial drug is given to the testees, the experiment should be ended. But this time the experiment had not been stopped. Why?
+
+3. Australian health officials now admit that people vaccinated by the COVID-19 vaccines are now dying from myocarditis. Shane Warne, the famous cricket legend star, passed away suddenly at the age of 53 from a suspected heart attack.
+
+Original Article: [**2022****年3****月6****日新闻三则 – GNEWS**](https://gnews.org/zh-hans/2112609/)
+
+Published by:tianzhihuan
+
+**More Information from Australia Melbourne Athena Farm****：****
+**[Australia Melbourne Athena Farm Twitter](https://twitter.com/HimalayaAthena1)：
+[Australia Melbourne Athena Farm Gettr](https://www.gettr.com/user/himalayaathena)：
+[Australia Melbourne Athena Farm YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[Australia Melbourne Athena Farm Discord](https://discord.gg/dKQ6vFY9Fu)
+[Australia Melbourne Athena Farm GTV Livestream No.1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,40 +2,22 @@
 ---
 
 
-## 波兰与乌克兰边境Hrebenne
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2116638/)
+## 【G时新闻】新加坡禁止其金融机构与俄罗斯央行交易
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2117006/)
 
-意大利罗马达芬奇农场：Shuizhuyu
+加拿大温哥华扬帆农场-播报:悠然 视频制作: 阿泽西
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-3.jpg)
+据俄罗斯卫星通讯社3月5日报导，新加坡宣布禁止本国金融机构与俄罗斯中央银行进行交易。
 
+对有助于俄罗斯政府、俄罗斯中央银行，或者它们拥有或控制的其他实体吸引资金的商业活动，禁止新加坡的金融机构从事交易、签订合同或提供服务。
 
-意大利农场的战友们， 第一时间就到达了救援前线， 波兰和乌克兰的边境城市Hrebenne。
+与此同时，新加坡还宣布对俄罗斯的外贸银行、外经银行、Promsvyazbank和“俄罗斯”银行实施制裁。
 
-现在给大家发来几张从前线发来的照片， 是意大利农场的阿娜随手拍下的现场照片。
+原文链接：[https://gnews.org/zh-hans/2112551/](https://gnews.org/zh-hans/2108154/)
 
-从照片上可以看到， 有很多的热心人在边境提供免费的食物。 还有建起了很多临时的接待点和帐篷。 边境的人们都尽自己的可能提供给难民一些帮助。
+视频链接：[https://gettr.com/post/pyfy5cabaa](https://gettr.com/post/pyfy5cabaa)
 
-这些难民都是九死一生从战火中逃出来的。 他们是不幸的，遇到了战争， 而他们也是幸运的， 他们得到救助， 他们到达了安全的边境。 至少他们没有了生命危险。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-1.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-2.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-4.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-5.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-6.jpg)
-
-
-战争是残酷的，生死只在以秒计算的时间里。
-
-发表： Shuizhuyu
+发稿：野草
 
  
 

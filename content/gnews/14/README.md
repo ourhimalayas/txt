@@ -2,42 +2,25 @@
 ---
 
 
-## 俄罗斯宣布在全国范围内禁止使用 Facebook
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2117095/)
+## 泽连斯基吁俄罗斯人进行反战示威
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2117224/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+采集：玫瑰新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/ukraine-russia-conflict-103603.jpg)乌克兰总统泽连斯基以俄语发表电视讲话。他说：“俄罗斯的公民们! 对你们来说，这不仅是为乌克兰的和平而战斗! 这是为你们的国家而战。”（法新社）
+（早报讯）乌克兰总统泽连斯基周日（3月6日）呼吁俄罗斯人上街抗议克里姆林宫入侵乌克兰的决定，并指他们可能面临自身贫困和被镇压的风险。
 
-#### 翻译/编辑：Ltitle Lamp
+路透社报道，泽连斯基周日以俄语发表电视讲话。他说：“俄罗斯的公民们!对你们来说，这不仅是为乌克兰的和平而战斗！这是为你们的国家而战。如果你们现在保持沉默，那么以后只有贫穷会为你们说话。只有镇压才能给予回答。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-48.png)
+泽连斯基说，像乌克兰人民一样，俄罗斯人现在面临着“生命和奴役之间”的选择。他说，俄罗斯入侵乌克兰已进入第11天，俄军正在继续进攻，并准备轰炸黑海港口城市敖德萨。
 
+在俄罗斯，所有形式的抗议活动基本上都是非法的。自俄罗斯上周入侵乌克兰以来，有数千名俄罗斯人因为上街举行反战示威而被拘留。
 
-Western Journal报导，随着对乌克兰的持续入侵，俄罗斯宣布在全国范围内禁止使用 Facebook。
+国际制裁使俄罗斯经济陷入危机，俄当局也镇压独立媒体并限制访问面簿和其他社交媒体网站。俄罗斯人现在正准备迎接一个不确定和孤立的未来。
 
-据 CNBC 报道，俄罗斯媒体监管机构周五宣布了禁令，并声称该平台试图让俄罗斯官方媒体保持沉默。Meta 全球事务总裁尼克克莱格表示，俄罗斯当局要求该公司停止事实核查并在官方媒体的报道上贴上警告标签，但 Meta 拒绝了。
+原文链接：[https://www.zaobao.com.sg/realtime/world/story20220306-1249524](https://www.zaobao.com.sg/realtime/world/story20220306-1249524)
 
-据《卫报》报道，Meta 平台 Facebook 和 Instagram 本周将Russia Today 和 Sputnik都从欧盟用户的提要中删除。
-
-周五，这些平台还取消了在英国出现的网点。这可能是压垮俄罗斯当局的最后一根稻草。俄罗斯最终完全禁止其居民访问该平台。
-
-克莱格写道：“很快，数以百万计的普通俄罗斯人将发现自己无法获得可靠的信息，被剥夺了与家人和朋友联系的日常方式，并且无法畅所欲言。”
-
-“我们将继续尽一切努力恢复我们的服务，以便人们可以安全可靠地表达自己并组织采取行动。”
-
-据《纽约时报》记者迈克·艾萨克（Mike Isaac）称，截至周五，该禁令仅适用于 Facebook。它没有扩展到其他 Meta 平台 Instagram 和 Whatsapp，他说这些平台在该地区“比 Facebook 更受欢迎”。
-
-Facebook是致力于打击俄罗斯官方媒体的众多平台之一。据美国全国广播公司财经频道报道，谷歌和推特都已撤下在俄罗斯的广告，并表示将继续给官方媒体贴上（警告）标签。
-
-文章来源：[Russia Embraces Full Tyranny: Bans Major Social Media Platform](https://www.westernjournal.com/russia-embraces-full-tyranny-bans-major-social-media-platform/)
-
-发布：*wenly*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+审核校对：Barry Jack
+上传排版：F
 
  
 
