@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 5:08 AM (UTC)`
+
+3/6/2022 Miles Guo: What is the reason behind the huge contrast between the CCP's massive media coverage of the release of the Pfizer vaccine side effects data after the FDA lost the case and the silence of the Western media? The CCP is taking this opportunity to push the false narrative that the West is suffering in a dire situation. The Chinese people have the fluke mentality and are deceiving themselves and others because they are brainwashed by the CCP and are harmed by the herd culture.<br/><br/>3/6/2022 文贵直播：中共媒体大肆报道FDA败诉后公布辉瑞疫苗副作用数据与西方媒体沉默的巨大反差，原因何在？中共借机大肆渲染西方处于水深火热之中，被中共洗脑的中国人受羊群文化毒害而抱侥幸心理、自欺欺人<br/>
+![img](https://media.gettr.com/group47/getter/2022/03/07/05/0f26c424-d6ee-40d3-f066-ce5645605cfb/out.jpg)
+
+---
+
 `@miles 3/7/2022 4:17 AM (UTC)`
 
 【Ukraine Rescure】03/06/2022 Rule of Law Foundation and the New Federal State of China just saved 96 children and their teachers from Ukraine <br/><br/>【乌克兰救援】03/06/2022 法治基金和新中国联邦刚刚从乌克兰救援了96个孩子和老师
@@ -147,13 +154,6 @@ FDA Releases BOMBSHELL Pfizer Covid Virus Vaccine Data With Over 1,200 Side Effe
 
 The Axis of Five Evils Timeline <br/><br/>五大邪恶轴心国爆料时间线<br/><br/>
 ![img](https://media.gettr.com/group40/getter/2022/03/06/16/9bd0b806-1db2-43f6-623c-d29ebd36a633/out.jpg)
-
----
-
-`@miles 3/6/2022 1:30 PM (UTC)`
-
-2022年3月6日 文贵大直播：新中国联邦营救行动意义；共产党给华人带来的危险；未来排华及保护华人安全；俄乌战争爆发与世界经济
-![img](https://media.gettr.com/group34/origin/2022/03/06/12/bba14d65-b462-fd60-8a48-5274dce2e7b3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
