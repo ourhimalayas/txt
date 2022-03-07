@@ -2,33 +2,47 @@
 ---
 
 
-## 文贵大直播：现场连线新中国联邦乌克兰营救团队
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2119612/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2119732/)
 
-**撰稿：日本东京方舟农场  子辰**
+**整理：枳实**
+**美工：精灵蓝**
 
-3月6日，文贵大直播如期与战友们相聚在一起，郭先生在大直播中给战友们介绍了去往一线参加救援的新中国联邦救援团队战友，并在随后的直播中连线。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-74.jpg)（图片来自新中国联邦前线救援团队）
-接通新中国联邦救援团队后的画面里，看到了大卫和正义小sarah以及其它营救战友们，正在等待来自乌克兰的第二辆救援大巴的到来。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/fengmian-2.jpg)图片：雅典娜农场设计组 精灵蓝
 
-直播连线中，大卫和正义小sarah分别介绍了现场的情况，只见参加大救援活动的战友们手举新中国联邦的营救标语牌及新中国联邦的旗帜，在波兰的车站旁边井然有序地等待大巴的到来。负责人大卫介绍说，这些停车位都是和当地波兰政府经过沟通后统一安排部署的。
 
-正义小sarah也激动地说，现场除了新中国救援团队外，再看不到其他华裔面孔，通过这几天在波兰的救援行动，好多人都对这群组织救援活动的中国人刮目相看，让更多的人了解到中共不能代表所有中国人，了解到新中国联邦此次不惜任何代价，都要营救中国同胞和需要被救助的任何一个人。
+雅典娜疫情更新（2022年 3月7日）
 
-直播连线中，只见两辆大巴车缓缓地走近了停车位，在大卫和小sarah的带领下，只见现场的战友们站在车旁，安静地等待着被救助人员依次下车。我们看到车门打开后，有年纪稍大的老年妇女，有年轻妈妈带领着孩子，她们虽然经过了将近24小时的长途跋涉才抵达了波兰，除了面容稍显憔悴外，但是每个人都仪表整洁，安静沉着地等待着后续的安排工作。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-连线现场，大卫采访了一位刚下车的身穿红色羽绒服的女士，这位女士说自己是在乌克兰的边境联系到了救援团队并坐上了大巴车来到了这里。她感恩所有帮助她的人。我们大卫兄弟祝福她一切都会好起来的。
+全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/a-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/b-1.jpg)
+[2022年3月7日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月7日改进.pdf)
 
-画面转回来，连线结束后，郭先生称赞了这个饱受煎熬中的乌克兰人民，说她们虽然失去了家园但是从她们的身上可以看到一个民族的希望和精神状态。
+数据来源：
 
-最后郭先生说，我们中国人要好好珍惜现在拥有的一切，希望新中国联邦救援行动能够让越来越多的人们所了解并得到关注。通过营救行动让更多的人看到我们中国人最崭新的精神面貌。
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-参考链接：
-1.[https://gettr.com/post/pyhtnya292](https://gettr.com/post/pyhtnya292)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-撰稿：子辰
-总编：老孙
-校对发布：爱放飞
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：Frank2021
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

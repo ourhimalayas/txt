@@ -2,14 +2,14 @@
 ---
 
 
-## 樱花头条┃哈尔科夫文化学院(The Kharkiv State Academy of Culture)遭到俄军轰炸 13名学生身亡包括4名中国学生
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119856/)
+## 樱花头条┃超过25万人在德国科隆参加反战示威
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119957/)
 
 撰稿：东京樱花团/樱花传媒
 
-乌克兰当地传媒《OBOZREVATEL》报道，第二大城市哈尔科夫的哈尔科夫文化学院(The Kharkiv State Academy of Culture)遭到俄军轰炸，13名学生身亡，包括4名中国学生。
+超过25万人今日在德国科隆参加反战示威；传统的狂欢节游行被反对乌克兰战争的示威所取代。
 
-[信息来源](https://www.gettr.com/post/py4pev7ef8)
+[信息来源](https://www.gettr.com/post/pxj4s2469b)
 
 *校对：东京樱花团/asket*
 *发布：东京樱花团/tdownc2p*

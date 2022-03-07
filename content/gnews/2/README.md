@@ -2,68 +2,62 @@
 ---
 
 
-## 乌克兰救援
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2119840/)
+## 斯蒂芬·奥尔里希表示, 如果没有大流行，它将有 95% 的拒绝率接受基因治疗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2119956/)
 
-作者：香草山健身部-新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/48081bd7-46d9-4f38-a44f-dfdda6073705-1.jpg)
+Stefan Oelrich (a member of the Board of Management of Bayer AG)
+斯蒂芬·奥尔里希 (拜耳公司管理委员会成员)
 
-俄罗斯的入侵仍在继续，
-无端的杀孽还在放大。
-新中国联邦是全球唯一一个没有任何诉求，
-顶着战火进入乌克兰战区免费救人的组织，
-3月7号是个庆祝的日子，
-新中国联邦成功救助，
-近百名乌克兰师生，
-他们的平安抵达波兰边境，
-给“新中国联邦乌克兰国际人道救援行动”
-又增加了一笔功德，
-一线的战友们你们辛苦了，
-你们不缺衣不缺穿，
-过着美好的、和平的日子，
-却日夜兼程的来回穿越在散满硝烟四起的险地
-为的就是救人如救火的信念，
-善勇不分凌晨还是傍晚，
-满身正义只为救助生命，
-那两辆载有近100名乌克兰儿童和老师的大巴，
-安全的抵达波兰边境。
-你们疲惫的脸上露出灿烂的笑容，
-那是无私的阳光笑容，
-是一种救人成功的喜悦笑容，
-那是世界上最动容的笑容。
-师生们入住进喜马拉雅安排的酒店，
-酒店的爆料革命战友帮助孩子们办理入住手续。
-历代以来，
-中国人何时为他人如此不计个人安危勇往直前，
-如此不计成本的为人付出，
-如此团结一致干劲十足，
-只有在没有中国共产党的新中国联邦。
-乌克兰的师生们秩序井然，
-演绎着只有民主的文明，自由的尊严，
-那正是新中国联邦追求的目标，
-波兰的边境飘起了通灵的雪，
-那是灭共的雪，
-给舟车劳顿的战友们飘洒纯洁的光亮。
-此次协助师生的负责人Teresa对法治基金和新中国联邦深表感谢，
-称新中国联邦 救援队是天使。
-新中国联邦用实际行动向全世界证明，
-共产党不能代表中国人，
-中国人珍惜生命，热爱和平！
+We’re really taking that leap us as a company Bayer
+拜耳作为一家公司，我们确实在迈出这一步
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0309-2.jpg)
+in selling gene therapy, which to me is one of these examples
+开始销售基因疗法，对我来说就是这些例子之一
 
-审核/编辑/发稿:qiutian（邱甜）
+where really we’re going to make a difference hopefully moving forward
+我们真的会在这个领域有所作为，希望能继续前进
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+that some ultimately the the mRNA vaccines are an example for that selling gene therapy
+一些最终的 mRNA 疫苗是销售基因治疗的一个例子
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+I always like to say, if we had surveyed two years ago in the public
+我总是会说，如果我们在两年前公开调查
+
+would you be willing to take gene, gene or cell therapy
+你愿意接受基因或细胞疗法
+
+and injected into your body
+并注入你的身体里？
+
+we would have probably had a 95% refusal rate
+我们可能会有 95% 的拒绝率
+
+I think this pandemic has also opened many people’s eyes
+我想这次疫情也让很多人大开眼界
+
+to do innovation in a way that was maybe not possible before
+以前所未有的方式进行创新
+
+* * *
+
+Date:03/04/2022
+原视频标题:Stefan Oelrich said that it would had a 95% refusal rate to have gene therapy if there is no pandemic
+斯蒂芬·奥尔里希表示, 如果没有大流行，它将有 95% 的拒绝率接受基因治疗
+原视频日期：2022/03/04
+原视频链接**[https://twitter.com/orwells\_ghost\_/status/1499476478911823874?s=24](https://twitter.com/orwells_ghost_/status/1499476478911823874?s=24)**
+任务编号：KE438（3923）
+视频时间段 : 0:00-0:41
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布 : 洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
