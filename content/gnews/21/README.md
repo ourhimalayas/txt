@@ -2,18 +2,17 @@
 ---
 
 
-## 樱花头条┃俄罗斯入侵乌克兰后 日本首相呼吁节能
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2120558/)
+## 20220306文贵大直播：新中国联邦如何营救乌克兰难民的
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2120585/)
 
-撰稿：东京樱花团/樱花传媒
+作者:东京樱花团小视频组
 
-岸田首相呼吁民众比以往更要节约使用能源,他表示“我们正面临俄罗斯入侵乌克兰的极其严峻的形势”。
+校对：东京樱花团小视频组
 
-信息来源：[https://www.gettr.com/post/pxyn1x211c](https://www.gettr.com/post/pxyn1x211c)
+编辑发布：东京樱花团小视频组
 
-编辑：东京樱花团/asket、春华秋实
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
 
 
  

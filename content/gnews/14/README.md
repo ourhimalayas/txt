@@ -2,22 +2,19 @@
 ---
 
 
-## 乌克兰救援快讯 03.07 波兰热舒夫火车站难民安置服务井然有序
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2120620/)
+## 樱花头条┃日本首次由地方政府开始 对疫苗后遗症设咨询处
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2120782/)
 
-撰稿：大浪小水花
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-07-at-8.31.25-AM.png)图片来源：GETTR/正义小Sara
-波兰当地时间3月7日中午12点左右，正义小Sara向大家展示了热舒夫车站内的情况。
+撰稿：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0001-20325418684.jpg)
+日本首次由地方政府开始，着手应对疫苗后遗症。
 
-车站里人很多，主要是妇女和小孩子，还有宠物。他们大部分是从战区逃离出来的无家可归者。火车站里有很多人们捐赠的日用品和婴儿的奶粉玩具，也为宠物提供了食物和水。火车站也有供人临时居住的房间。
+信息来源：[https://www.gettr.com/post/pxye6s5d3f](https://www.gettr.com/post/pxye6s5d3f)
 
-现场有安保人员负责治安，有安保人员表示，这个安置点人们的处境相对来说算是很好的，人们可以安心的在这里休息，食物供应暂时没有问题。她提到有些安置点的情况要更差，地上挤满了人，还没有食物。
+编辑：东京樱花团/asket、春华秋实
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
 
-小Sara感觉，目前车站秩序井然，人们并没有显得很慌张，甚至能从人们脸上看到希望。她补充说，车站现场并没有发现中国人的身影，不知道目前在乌华人近况如何。
-
-【链接】[https://gettr.com/post/pymuy50204](https://gettr.com/post/pymuy50204)
-
-校对发布：Shifter
 
  
 

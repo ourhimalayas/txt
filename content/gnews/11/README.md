@@ -2,29 +2,35 @@
 ---
 
 
-## CCP病毒疫情进入第三个年头，累计死亡已达600万
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2120656/)
+## 新中国联邦乌克兰救援行动最新进展
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2120891/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0v.jpg)图片制作：澳喜农场
-本周一，全球因CCP病毒造成的官方死亡人数超过了 600 万——这似乎表明，目前已进入第三个年头的疫情大流行远远还未结束。
+作者：新西兰伊甸农场Gnews组 财经G乐部 亚伦
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月6日，郭文贵先生在大直播中透露，截至目前，由法治基金支持的新中国联邦救援队，已经在波兰建立了多个提供24小时服务的救援基地。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-07-上午9.19.45.png)
+新中国联邦的前线救援团队，是唯一进入乌克兰开展救援的中国团队。
 
-约翰霍普金斯大学记录了这一悲惨的里程碑，冰冷的数字提醒着人们，即使人们正在摘下口罩，旅行正在恢复，全球各地的企业正在重新开业——大流行的无情性质仍依旧如常。
+目前，救援队每天都安排了几辆救援大巴车，从乌克兰境内接出难民。将来可能增加到每天几十辆。现在已经安排好了二十三架救援飞机，将有需要的人员送到帕劳、加拿大和美国等国家。未来按需求，还可以增加到一百架次。救援经费的预算将从一千万欧元，增加至五千万欧元。
 
-两年多来，一些偏远的太平洋岛屿最终还是沦陷，岛民现在正努力应对着该地区CCP病毒的首次爆发和死亡——这是由具有高度传染性的 Omicron 变种所导致的。
+郭先生再次强调，此次救援没有任何条件，更不会收取任何费用。
 
-自 2020 年初大流行开始以来，世界用了七个月的时间记录了最初100万死于该病毒的人。四个月后，又有 100 万人死亡，此后每三个月就有 100 万人死亡，直到死亡人数在去年十月底达到 500 万。
+参考链接：[https://gettr.com/streaming/pyhtnya292](https://gettr.com/streaming/pyhtnya292)
 
-而现在死亡数字已经达到了 600 万——这一数字比柏林和布鲁塞尔的人口总和还要多，或者整个马里兰州的人口都多。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
-然而即便是这样一个骇人听闻的数字仍然被部分专家认为受到了低估。例如由于疫情原因而无法及时就医最终因其他疾病而死亡的人——他们的死亡或许并非直接与CCP病毒相关，但也是由于疫情间接造成的。同时笔者认为，另外一些在检测结果呈阳性之前就因为CCP病毒感染而死亡的人或许也没有被包含在这一数字当中。
+总编：文真
+编辑：Jack Li文阳  
+审核：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-Our World in Data 门户网站的数据负责人 Edouard Mathieu 表示，实际因病毒大流行而死亡人数可能是报告死亡人数的将近四倍。《经济学人》的一个团队经分析估计认为，CCP病毒疫情期间的死亡人数或在 1410 万到 2380 万之间。
-
-新闻参考链接：
-
-[Death toll surpasses 6 million for pandemic now in 3rd year](https://apnews.com/article/coronavirus-pandemic-science-business-health-lifestyle-9cd511bc84955131ba00846716e02647)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

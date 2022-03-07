@@ -2,13 +2,12 @@
 ---
 
 
-## 20220306文贵大直播：现在国外哪些国家比较安全；国内同胞没有条件的就别出来，出来会饿死的！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2120560/)
+## 20220306郭文贵大直播 ：赛纳交易的本质意义
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2120609/)
 
-作者:东京樱花团小视频组
+作者：东京樱花团小视频组
 
 校对：东京樱花团小视频组
-
 编辑发布：东京樱花团小视频组
 
 * * *
