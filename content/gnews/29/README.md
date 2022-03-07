@@ -2,18 +2,31 @@
 ---
 
 
-## 樱花头条┃甲骨文和SAP停止和俄罗斯业务 富时罗素和MSCI将俄罗斯股票排除在所有指数之外
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119972/)
+## 秘翻新闻｜新中国联邦成功救援96名乌国儿童
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2120190/)
 
-撰稿：东京樱花团/樱花传媒
+**By:[秘翻新闻](https://gettr.com/post/pymvl1c4e3)**
 
-富时罗素和MSCI将俄罗斯股票排除在所有指数之外;甲骨文暂停在俄罗斯所有业务;德国SAP也宣布停止在俄罗斯销售产品。
+**[2022-03-07](https://gettr.com/post/pymvl1c4e3)**
 
-信息来源：[https://www.gettr.com/post/pxxzz8404f](https://www.gettr.com/post/pxxzz8404f)
+**今日主题:**
 
-*编辑：东京樱花团/asket、春华秋实
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+**1.中共撤侨班机机票达1.8万 中国公民叫苦**
+
+**2.中共在乌克兰被入侵前3个月已知俄计划**
+
+**3.澳国防部长：中共若入侵 我们会送武器到台湾 **
+
+**4.国际深切担忧：乌核电站被俄军占领后失联**
+
+**5.意大利收缴受制裁俄罗斯寡头的别墅游艇**
+
+**🔗Gettr链接：**[https://gettr.com/post/pymvl1c4e3](https://gettr.com/post/pymvl1c4e3)
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

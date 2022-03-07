@@ -2,40 +2,24 @@
 ---
 
 
-## 英国上议院法案：禁止从“种族灭绝”国家采购医疗用品
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2120212/)
+## 中日财经爆┃俄乌战争导致小麦价格暴涨40%创14年新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2120383/)
 
-## **【雅典娜快讯】和您一起洞察世界**
+撰稿：东京樱花团/盐和光
 
-整理/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/03/中日财经爆┃俄乌战争导致小麦价格暴涨40创14年新高.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp26.toutiaoimg.com%2Flarge%2Ftos-cn-i-qvj2lq49k0%2Febe766c1aba84c9c9273f32affdcffc9&amp;imgrefurl=https%3A%2F%2Ffreedsnews.com%2Ffood%2F2022%2F03%2F03%2F51923.html&amp;tbnid=FbeZAhH1KbS19M&amp;vet=12ahUKEwigiuTE-LP2AhVEzSoKHX32CroQMygfegUIARDZAQ..i&amp;docid=ExthY3zUk_WcWM&amp;w=640&amp;h=427&amp;q=%E5%B0%8F%E9%BA%A6%E4%BB%B7%E6%A0%BC%E6%9A%B4%E6%B6%A8&amp;ved=2ahUKEwigiuTE-LP2AhVEzSoKHX32CroQMygfegUIARDZAQ)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-21.png)图片来源：The Epoch Times & 雅典娜设计组
+3月7日北青网报道，据路透社数据显示，俄乌两国小麦出口量合计占全球大约30%，玉米出口量合计占大约20%。随着乌克兰局势趋紧，黑海港口贸易遭到严重干扰，推高小麦等粮食价格。芝加哥期货交易所小麦价格自俄乌2月24日爆发冲突以来，涨幅高达40%。
 
+乌克兰和俄罗斯是全球小麦主要出口国，随着乌克兰局势升级，小麦价格涨至近14年来新高，世界各地消费者不得不花费更多钱买面包。联合国世界粮食计划署警告称，俄乌两国供应链紊乱将危及全球数以百万计民众的粮食安全。乌克兰素有“欧洲粮仓”之称，是玉米和小麦出口大国，据业内估算，乌克兰先前每月出口谷物五六百万吨。俄罗斯也是全球小麦出口大国，2021年，俄罗斯小麦产量为大约7600万吨。截至2022年3月4日的一周，全球小麦价格火箭式蹿升，芝加哥小麦暴涨40%，创下2008年以来的最高水平。
 
-当地时间3月3日，英国上议院通过一项修订法案，要求英国国民保健署（NHS）在采购医疗用品及服务时，应排除存在“种族灭绝”情况的国家。虽然未点名中共国，但提案议员在国会发言时，均直指新疆存在强迫劳动和种族灭绝问题。
+由于CCP新冠病和战争持续，一旦出现运输生产中断，战争影响油价暴涨，必定回抬高粮食价格，中共国经济危机进一步扩大，而粮食危机也随之加剧。
 
-在审议该法案时，多名上议员提出修订案，要求内政大臣必须制订政策，确保英国的医疗用品和服务采购，符合英国在《防止及惩治灭绝种族罪公约》下的义务，即不得从存在严重种族灭绝风险的国家采购。
+【涨价40%！小麦价格创14年新高，联合国发出警告】[https://t.ynet.cn/baijia/32316401.html?sdkver=771db3e7](https://t.ynet.cn/baijia/32316401.html?sdkver=771db3e7)
 
-提出修订案的奥尔顿勋爵在国会发言：“**三分之二受访者表示，他们将支持阻止政府从存在严重种族灭绝风险的地区，为国民保健署采购医疗设备。因此这项跨党派修正案的要求，得到广泛民意支持。**”
-
-奥尔顿勋爵指出，自疫情以来，英国一共采购了369亿件个人防护装备，当中有241亿件来自中国，即超过65%；又从中国购买了10亿枝快速测试剂，连同个人防护装备，一共花费了48亿英镑。
-英国《每日电讯报》去年曾披露，英国政府曾向被美国指控和新疆强迫劳动有关的企业，购买价值1.5亿英镑的个人防护装备。
-
-提出修订的议员要求英国政府采取行动，阻止参与强迫劳动和种族灭绝罪行的罪犯继续赚取英国纳税人的金钱，停止助纣为虐。
-
-修订案最终在上议院获得通过，下一步将提交下议院继续审议。
-
-参考链接：[英国上议院法案：禁止从“种族灭绝”国家采购医疗用品](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/al-03042022143024.html)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
