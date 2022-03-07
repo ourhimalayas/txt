@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 3:12 AM (UTC)`
+
+农场联盟工作汇报
+![img](https://media.gettr.com/group9/origin/2022/03/07/03/6efb3420-b608-438a-ce81-7fec129bd4df/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/7/2022 2:52 AM (UTC)`
 
 3/6/2022 Miles Guo: The CCP has just distributed 250 million doses of the so-called high-end Sinovac COVID vaccine to Hong Kong, calling it for "Hong Kong and Macau compatriots only";  Chinese parents think that letting their children be vaccinated is loving them, not knowing that they are actually destroying their children's lives;  the impact on humans brought by those over a thousand side effects of the COVID vaccine recently released by the FDA will be multiplied, and the death toll will be unpredictable.<br/><br/>3/6/2022 文贵直播：中共国给香港刚发了2.5亿支所谓高端“港澳同胞专用“的科兴疫苗；中共国的家长们认为给孩子打了疫苗才是爱，殊不知这是毁了孩子们的一生；FDA所公布的疫苗一千多种副作用所带来的灾难将是成倍的，带来的死亡更是无法估量<br/>
@@ -147,13 +154,6 @@ The Axis of Five Evils Timeline <br/><br/>五大邪恶轴心国爆料时间线<b
 
 【Ukraine Rescue】03/05/2022 David interviews a Chinese rescued by the first NFSC rescue bus from Ukraine<br/><br/>【乌克兰救援行动】03/05/2022 大卫采访被第一辆NFSC乌克兰救援巴士救出的中国同胞
 ![img](https://media.gettr.com/group43/getter/2022/03/06/08/c0197123-cdca-c12a-69ae-31331db938f1/out.jpg)
-
----
-
-`@miles 3/6/2022 12:17 AM (UTC)`
-
-【Ukraine Rescue】03/05/2022 NFSC Ukraine Rescue Team Interviews Mayor of Rzeszów, Poland. Mr. Mayor was not only very appreciative of the NFSC's rescue operation but also facilitated and provided support for our work.<br/><br/>【乌克兰救援行动】03/05/2022 新中国联邦乌克兰救援团队采访波兰热舒夫市长。市长先生不仅非常感谢新中国联邦的救援行动，并且为我们的工作提供了便利和支持。
-![img](https://media.gettr.com/group16/getter/2022/03/06/00/bea3140c-2cda-a63a-34de-fb1bf416ce29/out.jpg)
 
 ---
 

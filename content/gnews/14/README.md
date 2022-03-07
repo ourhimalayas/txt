@@ -2,51 +2,26 @@
 ---
 
 
-## GEDU与灭共同等重要
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2117646/)
+## 乌克兰幼童遭袭惨死，父母悲痛欲绝！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2117695/)
 
-作者：香草山信息部 6zero4
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2022年2月26日的GEDU专题大直播中，郭先生为新中国联邦勾画出了GEDU的理念和蓝图。
+俄罗斯入侵乌克兰，乌克兰南部重要战略港口城市马立波（Mariupol）连日遭俄军攻击，不少平民惨遭波及。其中1名18个月大的男婴，当地4日惨遭俄军炮火击中，父母急忙将他送进医院抢救，最后仍宣告不治，医护坐在地上伤心叹息，男童父母心碎伏在儿子遗体上哭泣！男童父母悲痛欲绝，大喊：为什么？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2620.png)
-
-郭先生2006年曾在欧洲请教当地教育家：“教育当中遇到最大的难题是什么？”教育家说：“就是专注度！” 教育家补充道：“不同教育体制、不同学校、不同老师、不同学生不可能有同样的专注度和同样的兴趣，兴趣和专注度的分配、合理的资源规划就成了在校教育体制的最大问题。”
-
-教育的本质问题就是：关注度、兴趣！但所有的教育体制都无法解决学生的关注度和兴趣的问题，所以就催生了大力灌输的填鸭式教育，催生了一个个有利于统治阶级的教育体制及其环境，所以大多数教育都是在无聊和无奈中进行的。在一个公平的合作环境中培养个体，才是好的教育！
-
-2004年，美国一个寸草不生的沙漠中的大峡谷突然间一场大雨后，随即从沙漠里长出了无穷无尽的树木，成就了一片参天的树林，因为这个环境突然适合树木的生长。摩纳哥、中东以及撒哈拉的沙漠中也有很多地方长有绿树林和鲜花，因为那里也有适合花草和树木生长和成长的环境。
-
-教育就是提供一个对自己有利、对他人也有利的互利生长环境。树林里自然成长的树木才叫树，不自然成长的树木都不叫树，而是变成了被人利用的木头。任何孩子都需要一个适合他们成长的环境，你给他什么样的环境，他就长成什么样的人材。
-
-新中国联邦第一任务是灭共，与它同等重要的使命就是建立一个良好的无种族、无政治、无宗教、无国家地域区别的国际化新文明群体教育体系！
-
-芬兰的教育是世界上最好的教育之一，GEDU可以像芬兰学校那样基本上不用考试，最后就一个国家级考试一关而过；取消中间的考试可避免学生与学生之间的恶性竞争，避免人给人打标签和评分，因为人在不同环境、不同时间会有不同的表现。即使不可避免要进行少许考试，其成绩也不能公开，更不能作奖惩的依据，考试成绩是绝对的隐私，因为一次考试可能改变一个人的一生。评价老师、学生及其文凭绝不能依赖这些所谓的参考分数。
-
-让我们的父母活得健康并有尊严，享受物质和精神上的富足生活，得到人们的尊重，并让我们的孩子得到最好的教育，才是人生最大的幸福。因此，GEDU还将恢复中华文明最宝贵的部分：让中国人学会尊重人，让中国人自信、无私、有勇气！
-
-如此，人类文明就会在生命中发生奇迹，即因果轮回！这是上天赋予人类的基本规则。任何人都不能剥夺一个人被公平教育和公平接受知识的机会。教育最终将铲除社会不公、减少社会阶级固化、提高人类文明的共享度，在健康、愉悦并与大自然和谐共存中，让人类活得更久、更远、更好、更和平！
-
-教育是一个社会走向未来的指南针，是黑暗中的一盏盏明灯。一个国家、一个社会对老师的定位一旦不清楚、不健康，而是全部工具化、功利化，则社会一定会走向灾难。GEDU将解决这些人类面临的最大威胁——根除精神毒瘤！
-
-GEDU没有任何跟新中国联邦的政治、经济有关系的要求和目的，不能把GEDU和新中国联邦追求的政治目标和思想目标放在一起，一切只为专心育人，营造并提供孩子健康成长的美好环境！
-
-图片和新闻源于:
-[https://gnews.org/zh-hans/2076501/](https://gnews.org/zh-hans/2076501/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-64.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-31.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-17.jpg)图片来源：达志影像
 
 
+新闻来源：[NOWnews](https://today.line.me/tw/v2/article/KwO55gn)
 
-审核/编辑/发稿:qiutian（邱甜）
+撰稿/发布：一叶知秋
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

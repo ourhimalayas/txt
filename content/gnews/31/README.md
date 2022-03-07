@@ -2,40 +2,31 @@
 ---
 
 
-## 波兰与乌克兰边境Hrebenne
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2116638/)
+## 新中国联邦第二批援救乌克兰难民的队员启程
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2117023/)
 
-意大利罗马达芬奇农场：Shuizhuyu
+**作者、编辑：Candy**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-3.jpg)
-
-
-意大利农场的战友们， 第一时间就到达了救援前线， 波兰和乌克兰的边境城市Hrebenne。
-
-现在给大家发来几张从前线发来的照片， 是意大利农场的阿娜随手拍下的现场照片。
-
-从照片上可以看到， 有很多的热心人在边境提供免费的食物。 还有建起了很多临时的接待点和帐篷。 边境的人们都尽自己的可能提供给难民一些帮助。
-
-这些难民都是九死一生从战火中逃出来的。 他们是不幸的，遇到了战争， 而他们也是幸运的， 他们得到救助， 他们到达了安全的边境。 至少他们没有了生命危险。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/第二批援救.png)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-2.jpg)
+3月6日美西中午时间，第二批新中国联邦的救援乌克兰难民的九人团队，已经从洛杉矶机场启程。因没有直飞波兰的飞机，他们将在欧洲某地中转一次。
 
+这些战友来自美国，但是来自分布于世界各地不同的喜马拉雅农场，于洛杉矶集结，一起飞往目的地波兰。他们将与当地的其他战友们会和，加入援救乌克兰难民的行列。他们表示，一定要尽自己最大努力，“救人救人救人”，救出更多的人，一实际行动，粉碎中共在五天前宣布的“中国难民已被全部救出”的谎言！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-4.jpg)
+他们的行动感动着无数战友和其他人，而且将会带动着无数人加入到这场正义的人道主义救援行动中！
 
+愿战友们一路平安，救出更多无辜的乌克兰难民！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-5.jpg)
+资料来源：2022.3.6GETTR 新中国联邦法制基金乌克兰人道救援行动——最前线跟踪报道
 
+***发布：Candy***
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-6.jpg)
-
-
-战争是残酷的，生死只在以秒计算的时间里。
-
-发表： Shuizhuyu
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
