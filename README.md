@@ -15,107 +15,107 @@
 
 ---
 
-### [2022年3月7日，全球中共病毒疫情情况汇总](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [3/6/2022 文贵直播: 塞纳的迈凯轮F1赛车的背后有何故事？这部赛车的交易为喜联储赢得了进入欧洲皇室的信用](/content/gnews/2/README.md)
+### [3/6/2022 文贵直播: 中国人即将面临粮食危机和经济危机等大灾难；必须要有钱、能力、社交媒体平台和国际支持才能进行救援；我们只渡有缘人](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [30 英里的“人民车队”一夜之间降落在华盛顿特区](/content/gnews/3/README.md)
+### [MV版Hcoin To the Moon上线88天第26次位列匈牙利iTunes热门MV榜首](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [在访问乌克兰边境时，布林肯承诺增加支援，但非战斗机](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [联盟工作汇报文字版2022.3.6](/content/gnews/4/README.md)
+ ` 纽约香草山MOS02`
+
+### [2022年3月7日，全球中共病毒疫情情况汇总](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【战友之声】四力角逐，四马奔腾的世代 &#8211; -从启示录第六章的四马奔腾看乌俄之战和新中国联邦](/content/gnews/4/README.md)
+### [3/6/2022 文贵直播: 塞纳的迈凯轮F1赛车的背后有何故事？这部赛车的交易为喜联储赢得了进入欧洲皇室的信用](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [30 英里的“人民车队”一夜之间降落在华盛顿特区](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【战友之声】四力角逐，四马奔腾的世代 &#8211; -从启示录第六章的四马奔腾看乌俄之战和新中国联邦](/content/gnews/8/README.md)
  ` 纽约香草山MOS03`
 
-### [与中共国一样，俄罗斯将使用数字现金逃避美国制裁](/content/gnews/5/README.md)
+### [与中共国一样，俄罗斯将使用数字现金逃避美国制裁](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [邻国脱离俄罗斯的步伐加快 摩尔多瓦和格鲁吉亚也申请加入欧盟](/content/gnews/6/README.md)
+### [邻国脱离俄罗斯的步伐加快 摩尔多瓦和格鲁吉亚也申请加入欧盟](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [88个因注射新冠疫苗死去的孩子中，76个打了辉瑞疫苗，12个打了莫德纳疫苗](/content/gnews/7/README.md)
+### [88个因注射新冠疫苗死去的孩子中，76个打了辉瑞疫苗，12个打了莫德纳疫苗](/content/gnews/11/README.md)
  ` xiaobaige`
 
-### [有声|台国防部发放《全民国防手册》指导民众避难](/content/gnews/8/README.md)
+### [有声|台国防部发放《全民国防手册》指导民众避难](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [美国SEC正在调查NFT市场潜在的证券违规行为](/content/gnews/9/README.md)
+### [美国SEC正在调查NFT市场潜在的证券违规行为](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [由于签证和其他服务的暂停，俄罗斯银行考虑发行中国银联卡](/content/gnews/10/README.md)
+### [由于签证和其他服务的暂停，俄罗斯银行考虑发行中国银联卡](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [保守派记者终于找到了福奇博士 他躲哪去了？](/content/gnews/11/README.md)
+### [保守派记者终于找到了福奇博士 他躲哪去了？](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [3/7/2022国际财经快讯：美国与欧洲盟友讨论禁止进口俄罗斯石油；乌克兰主要农产品引入出口许可证制度](/content/gnews/12/README.md)
+### [3/7/2022国际财经快讯：美国与欧洲盟友讨论禁止进口俄罗斯石油；乌克兰主要农产品引入出口许可证制度](/content/gnews/16/README.md)
  ` 秘密翻译组金融团队`
 
-### [有声|力挺乌克兰 全球各界掀起反战浪潮](/content/gnews/13/README.md)
+### [有声|力挺乌克兰 全球各界掀起反战浪潮](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [王毅表示不管国际风云如何，中俄都将保持邪恶联盟](/content/gnews/14/README.md)
+### [王毅表示不管国际风云如何，中俄都将保持邪恶联盟](/content/gnews/18/README.md)
  ` 波士顿五月花农场`
 
-### [视频|为参加救援不惜辞去工作](/content/gnews/15/README.md)
+### [视频|为参加救援不惜辞去工作](/content/gnews/19/README.md)
  ` MOSVIDEO`
 
-### [乌克兰大救援将开启人类大同的新时代](/content/gnews/16/README.md)
+### [乌克兰大救援将开启人类大同的新时代](/content/gnews/20/README.md)
  ` 波士顿五月花农场`
 
-### [曼钦支持乌克兰禁飞区的选项 并禁止进口俄石油](/content/gnews/17/README.md)
+### [曼钦支持乌克兰禁飞区的选项 并禁止进口俄石油](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月5日晚](/content/gnews/18/README.md)
+### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月5日晚](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [独裁者普京入侵乌克兰 平民受到惩罚](/content/gnews/19/README.md)
+### [独裁者普京入侵乌克兰 平民受到惩罚](/content/gnews/23/README.md)
  ` 温哥华扬帆农场`
 
-### [FDA被迫公布的辉瑞疫苗真实数据暴露了政府和大药厂的罪行](/content/gnews/20/README.md)
+### [FDA被迫公布的辉瑞疫苗真实数据暴露了政府和大药厂的罪行](/content/gnews/24/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|一周疫情、疫苗信息汇总](/content/gnews/21/README.md)
+### [有声|一周疫情、疫苗信息汇总](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [乌克兰救援的战友，将成为中国的“辛德勒”和“拉贝”](/content/gnews/22/README.md)
+### [乌克兰救援的战友，将成为中国的“辛德勒”和“拉贝”](/content/gnews/26/README.md)
  ` 波士顿五月花农场`
 
-### [有声|日本决定向被攻击国家乌克兰提供装备品](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [俄罗斯军队攻击核设施犯下了战争罪](/content/gnews/24/README.md)
+### [俄罗斯军队攻击核设施犯下了战争罪](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日产将关闭俄罗斯工厂 向乌克兰提供3亿日元援助](/content/gnews/25/README.md)
+### [日产将关闭俄罗斯工厂 向乌克兰提供3亿日元援助](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [3/6/2022 文贵直播: 战友要做好准备应对世界经济崩溃对华人的影响和中共攻打台湾的恶果；新中国联邦人要跳出主流媒体和西方政府定的标准](/content/gnews/26/README.md)
+### [3/6/2022 文贵直播: 战友要做好准备应对世界经济崩溃对华人的影响和中共攻打台湾的恶果；新中国联邦人要跳出主流媒体和西方政府定的标准](/content/gnews/29/README.md)
  ` 秘密翻译组-北美组`
 
-### [乌克兰救援行动，需要你的传播！](/content/gnews/27/README.md)
+### [乌克兰救援行动，需要你的传播！](/content/gnews/30/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [乌总统夫人指证俄军杀害儿童 新中国联邦连夜救出96名儿童送抵波兰](/content/gnews/28/README.md)
+### [乌总统夫人指证俄军杀害儿童 新中国联邦连夜救出96名儿童送抵波兰](/content/gnews/31/README.md)
  ` 日本东京方舟农场`
 
-### [3/6/2022文贵直播：辉瑞疫苗副作用让人震惊！没打疫苗的人，几乎相当于经历1万次乌克兰战争后仍能得以幸存般幸运！](/content/gnews/29/README.md)
+### [3/6/2022文贵直播：辉瑞疫苗副作用让人震惊！没打疫苗的人，几乎相当于经历1万次乌克兰战争后仍能得以幸存般幸运！](/content/gnews/32/README.md)
  ` 秘密翻译组-北美组`
 
-### [20220306郭文贵大直播 ：俄乌战局会让习近平更快更凶残的攻打台湾](/content/gnews/30/README.md)
- ` Tokyo Sakura Video Group`
-
-### [全力救援，大爱无疆](/content/gnews/31/README.md)
+### [全力救援，大爱无疆](/content/gnews/33/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [喜币铸币权——《分享时刻》](/content/gnews/32/README.md)
+### [喜币铸币权——《分享时刻》](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [被救出战火的乌克兰儿童在新中国联邦救援下前往西班牙](/content/gnews/33/README.md)
- ` 日本東京方舟農場`
-
-### [乌克兰救援快讯 03.07 波兰热舒夫火车站难民安置服务井然有序](/content/gnews/34/README.md)
- ` 秘密翻译组-原创组`
 
 ### [中共：全程接种率已超87% 将推序贯免疫接种](/content/gnews/35/README.md)
  ` 澳喜农场`
