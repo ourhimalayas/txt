@@ -2,35 +2,26 @@
 ---
 
 
-## 受俄乌关系影响，全美平均油价超4美元 /加仑
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2120247/)
+## 俄乌冲突继续，小麦交易价格再次“涨停”，创近14年来最高
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2120310/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：玄鸟
+校对：Streamline
+上传：无明逆流
 
-整理：围剿维尼熊
-编辑：skyandmoon
+据美国消费者新闻与商业频道（CNBC）3月2日报道，小麦期货周三创下多年新高，因小麦主要出口国俄罗斯和乌克兰之间持续的战争，引发了市场对全球大宗商品供应的担忧。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-604.png)图片来源：Vincent Mundy | Bloomberg | Getty Images
+在商品市场出现变动之际，有报道称俄罗斯军队已经包围了乌克兰南部的两个关键城市
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-31.png)图片来源：雅典娜设计组
+本周三，小麦期货收于每蒲式耳10.59美元，上涨7.62%，为2008年3月26日小麦期货交易价10.9125美元以来的最高水平。
 
+小麦连续第二天涨停，这意味着它达到了“商品价格在单日允许的最高涨幅”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-605.png)图片来源：CNBC
+“看看现在小麦价格的变化。我们可能正在谈论一个重大的食品通胀的故事”，加拿大皇家银行资本市场（RBC Capital Markets）的全球大宗商品策略主管Helima Croft周三上午在CNBC的《全球交流 》节目上说。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-606.png)图片来源：CNBC
+摩根大通(JPMorgan)表示，俄罗斯是全球最大的小麦出口国，乌克兰是全球四大小麦出口国之一。美国银行(Bank Of America)的数据显示，在2.07亿吨国际小麦贸易中，17%来自俄罗斯，12%来自乌克兰。 玉米也是这两个国家的主要农产品，其价格在周三的高点达到了每蒲式耳7.4775美元，这是2012年12月7日达到7.5275美元以来的最高水平。玉米期货结算价为每蒲式耳7.27美元。
 
-根据大纪元3月7日讯，俄罗斯入侵乌克兰后，汽油价格持续飙升，全美汽油平均价格已超过每加仑4美元。专家预测：继续飙升的油价可能在本周达到创纪录的高点。
-
-根据美国汽车协会（AAA）的数据，截至周日下午，全美平均每加仑汽油的价格为4.009美元。这比周六上涨了8美分，比上周上涨了40美分，比分析师的预期，提前一天达到4美元的全国平均水平。
-
-《今日美国》报导，节油应用GasBuddy的石油分析主管帕特里克‧德哈恩（Patrick De Haan）周日在推文中表示，到周二全美平均水平可能达到4.10美元。这增加了在本周末之前打破纪录的可能性。
-
-根据GasBuddy的2022年汽油预测：到5月，汽油的平均价格将涨到4.25美元，并且可能在11月之前保持在4美元以上。
-
-参考链接：[https://www.epochtimes.com/gb/22/3/6/n13626732.htm](https://www.epochtimes.com/gb/22/3/6/n13626732.htm)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Wheat prices trade ‘limit up’ again, hit highest in nearly 14 years as Russia-Ukraine conflict continues](https://www.cnbc.com/2022/03/02/wheat-prices-trade-limit-up-again-hit-highest-in-nearly-14-years.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
 
  
 

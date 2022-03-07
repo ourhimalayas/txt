@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 12:15 PM (UTC)`
+
+【Ukraine Rescue】03/06/2022  NFSC & ROLF rescuers interviewed a Ukrainian woman who was just rescued by our bus in Krakow, Poland<br/><br/>【乌克兰救援】03/06/2022 新中国联邦和法治基金的救援人员在波兰克拉科夫采访了一位刚刚被我们巴士救出的乌克兰女士<br/> 
+![img](https://media.gettr.com/group45/getter/2022/03/07/12/65f0a106-935b-3201-a001-246ac4d529bc/out.jpg)
+
+---
+
 `@miles 3/7/2022 11:52 AM (UTC)`
 
 新中国联邦 法治基金救援行动 帮助乌克兰儿童逃离战火 连线波兰前线战友 （第二部分） 2022-03-07
@@ -149,13 +156,6 @@ FDA Releases BOMBSHELL Pfizer Covid Virus Vaccine Data With Over 1,200 Side Effe
 
 3/6/2022 Miles Guo: The biggest significance of the judge's ruling on Pfizer is that it has proven the COVID vaccine is a poison, which is illegal and has never been medically approved whatsoever. The vaccinated people shall seek treatment to get rid of the toxin of the COVID vaccine ASAP. Those Chinese people who are brainwashed by the CCP will blame the COVID vaccine disaster on the US.<br/><br/>3/6/2022 文贵直播：法官对辉瑞做出的判决的最大意义是做实了疫苗是未经医学认可的违法的毒药；打了疫苗的人赶紧去治病排毒吧！被中共洗脑的中国人会把疫苗灾难甩锅给美国<br/>
 ![img](https://media.gettr.com/group6/getter/2022/03/07/00/5bd4bd6f-ef3b-ea19-9d94-9d40ad58762c/out.jpg)
-
----
-
-`@miles 3/6/2022 11:56 PM (UTC)`
-
-3/06/2022 Miles Guo: When will the world economy start to collapse? Putin's time is over, and Xi Jinping is not in good health such that he will certainly attack Taiwan quickly. The Russia-Ukraine war has led the whole world to hate Xi and the Chinese people. However, the Chinese people, who are kidnapped by the CCP, are forced to take the blame for supporting Russia.<br/><br/>3/06/2022 文贵直播：世界经济何时开始崩溃？普京的时代已结束，习太阳身体撑不住，一定会迅速打台湾；俄乌战争让全世界都恨习和中国人，而中共绑架的中国人却被迫背上了支持俄罗斯的黑锅<br/>
-![img](https://media.gettr.com/group19/getter/2022/03/06/23/d69c8032-6563-4999-dd31-c6f758556bd8/out.jpg)
 
 ---
 
