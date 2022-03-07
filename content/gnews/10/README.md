@@ -2,38 +2,31 @@
 ---
 
 
-## 有声|中共两会开幕 330名代表、委员缺席会议
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2121236/)
+## 有声|中共官媒拒不翻译国际残奥委会主席反战讲话
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2121436/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒报导，中共全国政协会议和全国人民代表大会先后于3月4日和5日在北京开幕，有330名人大代表和政协委员缺席两会会议，其中包含港区人大代表、政协委员等，缺席人数创历届之最。报导还指出，除了香港代表因疫情原因缺席两会外，大陆数百名代表缺席的原因未明，引发了舆论关注和多方揣测。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11.jpg)
-众多缺席代表委员中，中共全国政协副主席杨传堂，自2021年7月之后从未公开露面；去年11月缺席六中全会的全国政协副主席王正伟、内蒙古政府前主席布小林、北京市长陈吉宁和前司法部党组书记袁曙宏等人，目前也未确定是否出席此次两会。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+台湾媒体3月4日消息，在北京冬季残奥会开幕式上，中共官媒在直播中，对国际残奥委会主席帕森斯的反战讲话，竟然拒绝进行中文同步翻译。
 
-有分析人士称，中共高层各派明争暗斗，不断有官员落马被查，应是一些官员缺席这次两会的重要原因之一。此现象也隐约预示：中共政权已是四面楚歌、危如累卵。
+在开幕式上，帕森斯发表演说，呼吁世界和平，并表达了对乌克兰的支持。帕森斯说，21世纪应该是对话外交的时代，而不是战争和仇恨的时代。奥林匹克停战协议是联合国通过的，绝不应当违反，人类应当建立一个没有歧视、仇恨、争斗和相互包容的世界。最后，帕森斯还高喊了一声“和平”。
 
+但是中共官媒在转播时，没有将帕森斯的上述演说内容翻译出来，口译员直接陷入沉默。此举也让中共国网络世界一片质疑，网友纷纷猜测没有翻译的部分到底说了什么。
 
+文字版原文：[中共官媒拒不翻译国际残奥委会主席反战讲话](https://gnews.org/zh-hans/2114613/)
 
-文字版原文：[中共两会开幕 330名代表、委员缺席会议](https://gnews.org/zh-hans/2118104/)
+音频处理：Fei797
+发稿：Fei797
 
-音频处理：Tom Li
-发稿：Tom Li
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,29 @@
 ---
 
 
-## 视频|新中国联邦在乌克兰的救援信息
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2121395/)
+## 有声|再接再厉 继续行动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2121512/)
 
-制作：香草山视频部
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+在3月4日晚新中国联邦法治基金乌克兰人道救援行动大直播中，针对很多希望参与的战友存在的种种问题，主持人给予了详细的分析和指导。
 
-鉴于目前乌克兰局势日益恶化，新中国联邦救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
+首先，我们确实还需要50个甚至更多的战友参与到救援行动中。其次，后续报名的战友要确保有至少两周的时间可以在波兰持续工作，并且需要有波兰的签证或者其他许可。最后，希望参与的战友不要私信，要根据提示填写表格报名。
 
-自当地时间3月5日起，乌克兰免费救援巴士将于每天下午1点准时从利沃夫出发，前往波兰克拉科夫。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+文字版原文：[再接再厉 继续行动](https://gnews.org/zh-hans/2115186/)
 
-求助方式请参考以下视频。
+音频处理：Fei797
+发稿：Fei797
 
-[https://mega.nz/file/Nw4QzThA#fliTnPibSq4VUl3oII5XPZ2OOflXVF\_zfEqcLIG2OtA](https://mega.nz/file/Nw4QzThA#fliTnPibSq4VUl3oII5XPZ2OOflXVF_zfEqcLIG2OtA)
-
-发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

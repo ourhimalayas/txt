@@ -2,21 +2,27 @@
 ---
 
 
-## 视频|14. 喜马拉雅币一周分析与总结（2月28日-3月6日）
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2121353/)
+## 视频|北约拒绝在乌克兰上空设立禁飞区
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2121508/)
 
 制作：香草山视频部
 
-发稿：谐趣园
+3月4日，北约秘书长斯图尔滕贝格表示，北约不会在乌克兰上空设立禁飞区。
+
+乌克兰一再呼吁西方列强实施禁飞区，以降低俄罗斯军方从空中攻击乌克兰目标的能力。但在4日的北约外长会议后，斯图尔滕贝格发表讲话表示，由于担心与俄罗斯直接交锋会演变成更大范围的冲突，北约不会介入这场战事。他同时警告普京，如果再不停战，西方国家会推出新一轮更严厉的制裁。
+
+得知消息后，乌克兰总统泽连斯基称，北约会议是一场软弱、混乱的峰会，北约拒绝设立禁飞区为俄罗斯的进一步轰炸开了绿灯。泽连斯基认为，北约要为自己的软弱和自私导致更多人死亡负责。
+
+发稿：Daxia
+
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

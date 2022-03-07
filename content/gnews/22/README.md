@@ -2,30 +2,33 @@
 ---
 
 
-## 俄军猛烈轰炸基辅周边城市 准备全面入侵基辅
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2121047/)
+## 台湾本土新增中共病毒案例均已注射两剂以上疫苗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2121094/)
 
-**撰稿：日本东京方舟农场  海星**
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月6日，台湾中央流行疫情指挥中心宣称，台湾本土新增三名中共病毒患者，都至少注射了两剂以上中共病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-5.jpg)
+据该中心发言人庄人祥称，6日台湾新增43例中共病毒患者，其中本土案例为1名男性和2名女性。其中一名十多岁的女性，已经完整接种2剂辉瑞疫苗。另外两名患者是一对夫妻，其中70多岁的男性完整接种2剂莫德纳疫苗，他的60多岁的妻子则接种了3剂莫德纳疫苗。
 
-3月7日，多方消息透露，乌克兰首都基辅的周边城市已遭俄军猛烈轰炸，俄军正准备向基辅发动全面进攻。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-77.jpg)（图片来源：美联社）
-据《自由时报》报导，根据乌克兰官员及社交媒体平台上的消息显示，位于乌克兰首都基辅周边的4个城市，布查（Bucha）、戈斯托梅利（Hostomel）、沃尔泽利（Vorzel）和伊尔平（Irpin）自3月6日晚上至今晨期间持续遭受俄军炮击，多地发生火灾。
+对此消息，中共国有网民认为，中共的科兴疫苗比国外的疫苗更好。郭文贵先生在3月6日大直播中剖析了中共国民对疫苗的错误认知。中国人不怀疑科兴疫苗，认为科兴和国外的疫苗不一样，比国外的疫苗更有效。这是被中共长期洗脑和精神奴役的后遗症，造成中共国国民的无知，以及错误认知。科兴再发2.5亿剂港澳台专用疫苗，将会造成绝对的灾难。
 
-该报导称，乌克兰国防部官员稍早前发出警告，俄军正准备对乌克兰首都基辅发动全面进攻。对此，武装部队总参谋部表示，俄军已经开始为这项军事计划储备物资，例如将燃料从白俄罗斯经由车诺比地区运送过来。
+参考链接：[旅遊團衍生案件擴大 本土+3都打了兩劑以上疫苗](https://www.rti.org.tw/news/view/id/2126423)
 
-当日，基辅市长克里契科（Vitaly Klitschko）在指责俄罗斯故意杀害平民的同时呼吁基辅市民保持冷静，待在家里或是避难所。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-此外，昨日至今，乌克兰的第二大城市哈尔科夫（Kharkiv）以及造船工业中心尼古拉耶夫（Mykolayiv）也遭到了俄军的持续轰炸，多处民宅及工厂发生火灾。
+总编: 文真
+编辑: Ivy001
+审核: Jack Li文阳
+校正/发稿：Fei797
 
-参考链接：
-1.[https://news.ltn.com.tw/news/world/breakingnews/3851657](https://news.ltn.com.tw/news/world/breakingnews/3851657)
-2.[https://news.ltn.com.tw/news/world/breakingnews/3850905](https://news.ltn.com.tw/news/world/breakingnews/3850905)
-3.[https://news.ltn.com.tw/news/world/breakingnews/3851520](https://news.ltn.com.tw/news/world/breakingnews/3851520)
-
-撰稿：海星
-总编：老孙
-校对发布：爱放飞
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

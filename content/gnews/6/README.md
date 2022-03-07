@@ -2,24 +2,37 @@
 ---
 
 
-## 视频|SEC主席：中共250家企业可能在2024年被摘牌
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2121282/)
+## 有声|新中国联邦纽约救援团队已赴前线
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2121487/)
 
-制作：香草山视频部
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+美东时间3月4日晚，新中国联邦奔赴前线波兰参与救援的战友在纽约完成集结，大约晚上9点乘坐飞机飞往波兰，为前线带去必要的物资救济以及大量药品，如伊维菌素、青蒿素、地塞米松、维生素C、D、阿奇霉素、口罩、手套等预防中共病毒的必需品。
 
-据美国媒体3月5日消息，美国证券交易所SEC主席在本周接受采访时说，如果中共继续不遵守美国上市公司的规定，那么2024年预计会有250家中共公司被驱离美国股市，包括知名的中共大型科技公司阿里巴巴、百度、京东等。
+此次纽约救援团共有9位战友和1位常驻美国的乌克兰人一同前往。Nicole战友因雇主不允许自己去参与救援，毅然辞掉了工作。纽约的几位战友护送救援团队到达了机场。
 
-2020年，中共瑞幸的财务造假问题使美国投资者遭受了巨大损失。美国投资者意识到他们对中共公司的财务状况并不知晓，然而中共公司依然能够在美国股市进行自由交易，这种危机迫使美国出台相关法律，使中共公司或者退市，或者遵守财务透明规定，披露是否被外国政府持有或控制等相关讯息。
+在登机口，战友们还遇到了一位同去参与救援的美国人，他是一家上市公司的CEO，和战友Nicole的雇主不同的是，他鼓励自己的雇员去参与救援，他自己也身先士卒奔赴救援前线。
 
-SEC主席表示，在美国上市的公司必须遵守美国的投资者保护规则，中共公司当然不能例外，尤其要允许查看中共财务审计的内部情况，包括审计师本身。
+新中国联邦希望困在乌克兰战区的中国同胞，不要再听信中共大使馆的骗人话，能出来的尽快出来，乌克兰战区的情况时时刻刻都在变化，希望大家一定不要再错过救援机会。
 
-发稿：谐趣园
+目前纽约救援团队还在集结，后面还陆续会有团队奔赴前线参与救援。
+
+在纽约机场，送机的长岛哥接受了新中国联邦直播战友的采访。
+
+文字版原文：[新中国联邦纽约救援团队已赴前线](https://gnews.org/zh-hans/2115042/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

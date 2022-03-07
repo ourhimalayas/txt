@@ -2,23 +2,20 @@
 ---
 
 
-## 有声|波兰将扩军一倍防范俄罗斯入侵
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2121281/)
+## 视频|救援行动遭遇乌克兰当地排华情绪严重
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2121484/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-台湾媒体3月5日消息，为避免乌克兰遭受俄罗斯侵略的前车之鉴，北约成员国波兰近日宣布，准备修改法律提高明年的军费开支，把陆军人数从14万3500人，扩增到30万人，以提高防御能力。
+制作：香草山视频部
 
-波兰政府表示，因为俄乌战争，该国政府已经把注意力集中在首都华沙的防御能力上，预计明年将把军费从去年10月提案的占GDP的2.5%，提高到3%，并将视情况继续增加。如果修法顺利通过，波兰将拥有法律依据，来建设北约最强大的陆军之一。
+3月5日，新中国联邦、法治基金与国际救援组织合作，发起了乌克兰国际人道救援行动。英喜农场的大卫先期到达波兰的热舒夫市，安排从乌克兰转移出的人员撤离。
 
-波兰国防部长拉查克指出，波兰需要这样一支军队保卫祖国，尤其是当前邪恶的帝国正在东部边境重生之时。
+工作过程中，大卫发现墙内小粉红关于乌克兰的无良言论早就在乌克兰当地人中广泛传播，几乎尽人皆知。导致当地排华现象已经非常严重，在乌留学生因为华人身份无法搭乘躲避战乱的巴士、卡车、私家车。同时，乌克兰人对华人的敌对情绪，也让在乌华人随时面临着生命危险。
 
-文字版原文：[波兰将扩军一倍防范俄罗斯入侵](https://gnews.org/zh-hans/2114615/)
+大卫表示，他从当地人的眼神里能感受到他们的绝望和对华人的排斥，这种情绪很可能会演变成一种随时会爆发的仇恨和愤怒。参与这次一线救援的战友对此都有切身的感受。
 
-音频处理：Fei797
-发稿：Fei797
+发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -26,7 +23,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
