@@ -17,6 +17,23 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 2:31 PM (UTC)`
+
+啊啊啊啊啊啊
+> `@pangushixun 3/7/2022 12:05 PM (UTC)`<br/>逆行而上 千里救援 96名乌克兰儿童。巴塞罗那本地一家儿童慈善机构工作的Teresa女士得知新中国联邦组织国际救援活动后，询问战友能否对乌克兰境内一家儿童慈善机构内的几十名儿童进行营救。经过努力最终新中国联邦成功营救96名儿童，及相关陪同老师共计113人。儿童成功获救后，Teresa女士，包括乌克兰本地人十分感动，并称赞我们新中国联邦人为“天使”。<br/>Against all odds, thousands of miles were spent rescuing 96 Ukrainian children. Teresa, who works for a local children's charity in Barcelona, asked NFSC if they could rescue dozens of children from a children's charity in Ukraine after learning about the international rescue activities organized by NFSC. After the rescue, NFSC was able to rescue 96 children and 113 accompanying teachers. After the children were rescued, Ms. Teresa, including the Ukrainian locals, was very touched and praised our NFSC as "angels".<br/>#盘古时讯 <br/>#新中国联邦 <br/>#救援 #人道主义
+![img](https://media.gettr.com/group38/getter/2022/03/07/12/e370761d-6b65-7513-eec0-bb3765788bed/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@pangushixun 3/7/2022 12:05 PM (UTC)`
+
+逆行而上 千里救援 96名乌克兰儿童。巴塞罗那本地一家儿童慈善机构工作的Teresa女士得知新中国联邦组织国际救援活动后，询问战友能否对乌克兰境内一家儿童慈善机构内的几十名儿童进行营救。经过努力最终新中国联邦成功营救96名儿童，及相关陪同老师共计113人。儿童成功获救后，Teresa女士，包括乌克兰本地人十分感动，并称赞我们新中国联邦人为“天使”。<br/>Against all odds, thousands of miles were spent rescuing 96 Ukrainian children. Teresa, who works for a local children's charity in Barcelona, asked NFSC if they could rescue dozens of children from a children's charity in Ukraine after learning about the international rescue activities organized by NFSC. After the rescue, NFSC was able to rescue 96 children and 113 accompanying teachers. After the children were rescued, Ms. Teresa, including the Ukrainian locals, was very touched and praised our NFSC as "angels".<br/>#盘古时讯 <br/>#新中国联邦 <br/>#救援 #人道主义
+![img](https://media.gettr.com/group38/getter/2022/03/07/12/e370761d-6b65-7513-eec0-bb3765788bed/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@tangping 3/7/2022 10:42 AM (UTC)`
@@ -144,20 +161,6 @@ FDA Releases BOMBSHELL Pfizer Covid Virus Vaccine Data With Over 1,200 Side Effe
 
 2022.03.06 晚 新中国联邦新闻
 ![img](https://media.gettr.com/group36/origin/2022/03/07/01/6c9d1e95-5c46-aea8-252b-9abde385831d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/7/2022 12:35 AM (UTC)`
-
-3月6号：感谢在前线的所有兄弟姐妹们．天地可鉴．人神共评．我们做的事情，就是新中国联邦人未来在全世界有扮演的角色，要做的事情！太感动了。【我们已经接到全部所有96个孩子和老师们。一切顺利🙏孩子们虽然很累，但终于都安全了！我们也松了口气！现在两辆大巴送他们去宾馆休息，需要几个小时的路程。我们也会护送随行。 孩子们太累了🙏 他们休整后的下一站就是我们西班牙农场所在地西班牙巴塞罗那。我们农场团队会在文戈站长的带领下继续全程跟踪服务！感谢所有战友们的关心支持！🙏🙏我们继续加油！行动行动行动！💪💪💪 七哥，所有96个孩子和老师们刚刚都从海关出来了，一切顺利🙏两辆大巴赶往酒店，我们护送过去，巴士大概要4个小时后到达预先定的酒店。考虑到孩子们精疲力尽，都睡在了车上直播就不继续了。负责人Teresa 女士对法制基金、新中国联邦表示了深深的感谢，称我们就是天使🙏】
-![img](https://media.gettr.com/group22/getter/2022/03/07/00/c9894be2-eba1-0e4b-bc8d-c39092a3910b/out.jpg)
-
----
-
-`@miles 3/7/2022 12:29 AM (UTC)`
-
-2022.03.06 NFSC News  NFSC Ukraine Rescue Teams Arrive in Poland； NFSC- ROLF Ukraine Rescue – Transport to Safety by Coach Bus
-![img](https://media.gettr.com/group36/origin/2022/03/07/00/57989672-9f3a-b810-16a1-c4c2d4cf3040/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

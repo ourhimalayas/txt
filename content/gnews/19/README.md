@@ -2,8 +2,8 @@
 ---
 
 
-## 20220306郭文贵大直播 ：中共国最高价是墓地，最大谎言是免费病毒疫苗
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2120541/)
+## 20220306郭文贵大直播 ：中共总理李克强恐惧病毒死亡真相
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2120573/)
 
 作者：东京樱花团小视频组
 
