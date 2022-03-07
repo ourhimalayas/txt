@@ -2,18 +2,24 @@
 ---
 
 
-## Tik Tok在俄罗斯停止视频发布服务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2118296/)
+## 日本3月6日确诊感染53969人、 死亡132人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2118366/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片11-2.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg.dsb.cn%2F2018%2F0704%2F20180704220345629079005196.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dsb.cn%2F81735.html&amp;tbnid=u-MoNxgb_cV3CM&amp;vet=12ahUKEwiima3T-7L2AhUnHKYKHVM-DzQQMygJegUIARDFAQ..i&amp;docid=hpr5Qa-qpPx1j)
-据NHK3月7日消息，全球知名视频分享应用APPTikTok 6日宣布，将停止在俄罗斯的视频发布服务。
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片16.jpg)[图片来源](https://news.yahoo.co.jp/pages/article/20200207)
+在东京，已确认9289人冠状病毒感染。
 
-3月4日，在普京总统签署了一项对故意散布俄罗斯军事活动虚假信息的个人和团体进行处罚的法律修改案后，TikTok在优先考虑员工和用户的安全，以及在讨论法律上的影响等情况下，不得已决定停止提供视频发布的服务。
+东京都新增感染人数为9289人，较一周前的周日（2月27日）减少1000多人。 这是自 1 月 23 日以来的第一个周日，感染人数已降至 10,000 以下。
 
-此外，TikTok还宣布用户的短信服务将会继续进行。
+过去 7 天的平均感染人数为 11,001 人，是前一周的 98.7%。
 
-信息来源：[「TikTok」ロシアでの動画投稿サービスを停止](https://www3.nhk.or.jp/news/html/20220307/k10013517961000.html)
+此外，奥密克戎重症病床使用率为26.2%。 新增死亡病例12人，按全市常规标准重症病例较前一日增加1人至71人。
+
+同时宣布，全国新增感染病例5万3969人，死亡病例132人。
+
+信息来源：
+
+[全国で新たに5万3969人の感染確認　死者は132人](https://news.yahoo.co.jp/articles/7363b487de0dd0e0a4e7e20f44367cf3aee4476c)
 
 *校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*

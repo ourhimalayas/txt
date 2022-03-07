@@ -2,34 +2,21 @@
 ---
 
 
-## 俄罗斯正在企图控制乌克兰的其他大型核电站
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2115236/)
+## 车神塞纳迈凯伦座驾通过喜支付交易，喜交所进入欧洲皇室最高信用
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2117030/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
-3月3日，俄罗斯侵占了乌克兰的扎波罗日热核电站后，目前正在向南乌克兰核电站推进。这两座核电站是乌克兰境内最大的两座，为乌克兰境内提供约三分之一的发电。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-518.png)图片来自：nypost.com
-乌克兰一共有四座核电站，由15座反应堆组成，发电量大约为该国的一半。另外一半发电量来自煤炭，乌克兰的多数煤电厂位于顿巴斯地区，自2014年开始，俄罗斯时常侵袭这些煤电厂地区。他们认为控制乌克兰的发电能源有利于全面攻占乌克兰。
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-近年来，乌克兰已经切断了许多与俄罗斯和白俄罗斯曾在苏联时代能源共享的电网，加入西方邻国的电网。这项计划预计在2023年完成，2月24日俄罗斯入侵乌克兰的当天，工作人员仍在进行测试，希望这项工程能够加紧完成。
+3月6日，郭文贵先生于Gettr大直播中透露，由车神埃尔顿·塞纳（Ayrton Senna）驾驶过的备受追捧的F1赛车通过HPay App（喜支付应用）交易的意义重大，并表示，塞纳赛车的交易奠定Himalaya Exchange（喜交所）、HCoin（喜币）、HDO（喜美元）和HPay（喜支付）直接进入欧洲皇室的最高信用。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture111212.jpg)图片来源forbes网页截图
+塞纳的赛车由McLaren（迈凯伦）公司拥有，继劳斯莱斯、路虎等被德国、印度拿下变成纯工业产品后，McLaren（迈凯伦）成为英国汽车业的唯一一个属于英伦文化的汽车极品。
 
-俄罗斯因乌克兰的殊死抵抗恼羞成怒，不仅开始轰炸平民区，侵占核电站，一座煤电厂、一座水电站大坝还有废弃的切尔诺贝利核电站，也已经被俄占领。
+塞纳是富有的、受过高等教育的巴西人，在爱情、家庭、事业、赛车的方面，体现出巴西南美风情与欧洲或北美文化的不同。最擅长在雨中比赛的他创造了一次次的传奇，又一次次与死神擦肩而过，把赛车开到出神入化的状态。可以说，这辆车就是塞纳的“灵魂之车”。
 
-编辑/总编/审核：飞虹
+这辆标志性的迈凯伦F1赛车是通过HPay（喜支付）的点到点之间的转账，用稳定币HDO（喜美元）来完成交易。而且，此车的价值超过500万美元。郭先生再次自信地强调，HCoin（喜币）的价值一定超过比特币，而且HCoin（喜币）是正义的代表。Himalaya Exchange（喜交所）从诞生之日即有最严谨、最合法的KYC开户制度，可以杜绝任何偷税的脏钱和洗钱的犯罪，坚守西方认同的正义，这是我们最根本的原则。
 
-新闻来源：[Maps: Tracking the Russian Invasion of Ukraine](Tracking%20the%20Russian%20Invasion%20of%20Ukraine)
+塞纳赛车的交易，奠定Himalaya Exchange（喜交所）、HCoin（喜币）、HDO（喜美元）和HPay（喜支付）直接进入欧洲皇室的最高信用，皇室不是奢华，皇室是信用的象征。相信上帝会给喜联储以及G系列力量，我们也将见证更多的传奇。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,47 +2,30 @@
 ---
 
 
-## Mastercard、VISA、PayPal已关闭在俄罗斯的业务
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2118084/)
+## 中日财经爆|与建行有深度合作的俄罗斯外贸银行准备撤出欧洲市场
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2118220/)
 
-作者：银河系农场 – 骄子
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片9.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fd39raawggeifpx.cloudfront.net%2Fstyles%2F16_9_desktop%2Fs3%2Farticleimages%2F5bfce4f3370f2c28148b45db.jpg&amp;imgrefurl=https%3A%2F%2Fwww.intellinews.com%2Fukraine-unit-of-russia-s-vtb-bank-goes-bankrupt-152)
+据英国金融时报周日（3月6日）报导，在受到西方制裁的严重打击后，俄罗斯外贸银行(VTB)准备结束其欧洲业务。
 
+VTB在伦敦有一个投行部门，在德国有一家零售银行，拥有16万名客户。金融时报援引了解内部讨论情况的人士称，在该行资产被西方冻结后，它判定无法在俄罗斯以外的地区经营。
 
+路透社周三曾报导，俄罗斯第二大银行VTB的欧洲分部正在为可能的关闭做准备，因为人们越来越担心俄罗斯入侵乌克兰后西方制裁对该银行的影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+2013年5月23日，中国建设银行在其网站上发布的新闻稿称，该行近日成功参与俄罗斯外贸银行(VTB)新股增发，投资金额为1亿美元。俄罗斯外贸银行在当日早些时间也宣布了此项消息。VTB为俄罗斯第二大银行，由俄罗斯联邦政府控股。
 
+建行与俄罗斯外贸银行在2013年1月签署了《中国建设银行与俄罗斯外贸银行框架合作协议》。双方表示，将在贸易融资、卢布和人民币结算、银行间贷款服务、投资银行、零售业务等金融业务领域进行广泛合作，并将为各自在对方境内设立的分支机构提供必要支持。这是迄今为止两国金融机构间首次规模较大、影响较深的全面战略合作。
 
+消息来源:
 
-3月5日，国外媒体陆续报道，Mastercard、VISA、PayPal相继暂停了他们在俄罗斯的合作业务。Mastercard和visa表示将会逐渐停止在俄罗斯的所有交易。未来几天之内，所有在俄罗斯内发行的万事达卡和VISA卡将不再适用于任何境外交易，所有在俄罗斯外发行的万事达卡和VISA卡则将不适用于俄罗斯境内交易。它们还表示会采取行动阻止俄罗斯金融机构使用本公司的支付网络。
+[俄罗斯外贸银行准备撤出欧洲市场–英国金融时报](https://cn.reuters.com/article/vtb-plan-exit-europe-0306-sun-idCNKBS2L401Z?il=0)
 
-PayPal目前的政策为，在一段时间内支持提款，但只允许在俄罗斯境内的用户进行跨境交易，同时停止新用户注册等。该政策同样适用于其汇款工具Xoom。
+[建设银行1亿元投资俄罗斯第二大银行VTB](http://sd.ifeng.com/cj/caifutouzi/detail_2013_05/24/834988_0.shtml)
 
-据悉，PayPal的竞争对手Wise和Remitly也已经暂停在俄罗斯的服务。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-3.jpg)
-参考链接：
-1. [PayPal shuts down its services in Russia citing Ukraine aggression](https://www.reuters.com/business/paypal-shuts-down-its-services-russia-citing-ukraine-aggression-2022-03-05/)
-2. [Mastercard suspends Russian operations over Ukraine invasions](https://www.reuters.com/business/finance/mastercard-suspends-russian-operations-over-ukraine-invasions-2022-03-05/)
-3. [Visa, Mastercard suspend operations in Russia over Ukraine invasion](https://www.reuters.com/business/finance/visa-suspends-operations-russia-over-ukraine-invasion-2022-03-05/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

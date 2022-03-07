@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 5:22 AM (UTC)`
+
+3/6/2022 Miles Guo: Fellow fighters must be prepared to deal with the impacts of the collapse of the world economy on the Chinese people and the adverse consequences of the CCP's invasion of Taiwan. Citizens of the New Federal State of China must step outside the standard set by the mainstream media and Western governments. Our rescue mission in Ukraine has shown the world the positive image of the New Federal State of China, proving by our actions that the CCP is not equal to the Chinese people.<br/><br/>3/6/2022 文贵直播: 战友要做好准备应对世界经济崩溃对华人的影响和中共攻打台湾的恶果；新中国联邦人要跳出主流媒体和西方政府定的标准；我们的乌克兰救援行动向世界展示了新中国人联邦的良好形象，以行动证明了中共不等于中国人。
+![img](https://media.gettr.com/group46/getter/2022/03/07/05/b737ae26-f1d9-d682-336f-2c89ac6e4d95/out.jpg)
+
+---
+
+`@miles 3/7/2022 5:17 AM (UTC)`
+
+3/6/2022 Miles Guo: The side effects of the Pfizer vaccine are shocking! Those who are not vaccinated are almost as lucky as surviving ten thousand Ukrainian wars! The war enthusiasm demonstrated by some Chinese and the ugly acts of the CCP secretly supporting Russia are really hurting the feelings of Ukrainians!<br/><br/>3/6/2022文贵直播：辉瑞疫苗副作用让人震惊！没打疫苗的人，几乎相当于经历1万次乌克兰战争后仍能得以幸存般幸运！部分中国人表现出来的支持战争的狂热和中共暗中支持俄罗斯的丑恶行径伤害了乌克兰人的感情！<br/>
+![img](https://media.gettr.com/group35/getter/2022/03/07/05/3bd3b8e2-99c2-73ac-f3b2-0513c35727ef/out.jpg)
+
+---
+
+`@miles 3/7/2022 5:13 AM (UTC)`
+
+3/6/2022 Miles Guo: In our mission to rescue the people in Ukraine, the New Federal State of China is 1) the only Chinese team that went to the front line to save people; 2) the only team that saved Chinese, Ukrainians, and Americans without any political and economic demands or political stances; 3) the only team that saved a large number of Chinese and Americans; and 4) the only team that have told the world that there were 30,000 Chinese people in Ukraine who were abandoned by the CCP.<br/><br/>3/6/2022 文贵直播：新中国联邦在乌克兰救援中的四个唯一：1) 唯一去前线救人的中国人团队; 2) 唯一无政治经济诉求或政治立场地救中国人、乌克兰人和美国人的团队；3) 唯一救出了大量中国人和美国人的团队；4) 唯一告诉世界在乌克兰有被中共抛弃的3万中国人的团队<br/>
+![img](https://media.gettr.com/group35/getter/2022/03/07/05/babe3b16-0292-cd7e-61d1-59af7fc3f3bb/out.jpg)
+
+---
+
 `@miles 3/7/2022 5:08 AM (UTC)`
 
 3/6/2022 Miles Guo: What is the reason behind the huge contrast between the CCP's massive media coverage of the release of the Pfizer vaccine side effects data after the FDA lost the case and the silence of the Western media? The CCP is taking this opportunity to push the false narrative that the West is suffering in a dire situation. The Chinese people have the fluke mentality and are deceiving themselves and others because they are brainwashed by the CCP and are harmed by the herd culture.<br/><br/>3/6/2022 文贵直播：中共媒体大肆报道FDA败诉后公布辉瑞疫苗副作用数据与西方媒体沉默的巨大反差，原因何在？中共借机大肆渲染西方处于水深火热之中，被中共洗脑的中国人受羊群文化毒害而抱侥幸心理、自欺欺人<br/>
@@ -133,27 +154,6 @@ FDA Releases BOMBSHELL Pfizer Covid Virus Vaccine Data With Over 1,200 Side Effe
 
 新中国联邦法治基金乌克兰人道救援行动-最前线跟踪报道
 ![img](https://media.gettr.com/group8/origin/2022/03/06/19/0a988019-b522-8171-5333-7bd0df1e7404/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/6/2022 5:51 PM (UTC)`
-
-3月6号：天助我们新中国联邦……让我们展示新中国人在全世界的和平和伟大的阳光善良的一面吧。【大家都看過巜舒特拉的名單》這部電影，二戰中德國人舒特拉在克拉科夫的工廠，以招工為由解救了數千位猶太人，我去參觀過這個工廠，工廠舊址已經成為遊客必去瞻仰的地方。被救猶太人的相片，貼滿了這工廠的窗子，人們永遠不會忘記這段歷史。<br/>今天大衛和小Sarah等戰友門于第三次世界大戰中又在克拉科夫救人，新中國聯邦的義舉必將載入史冊！】
-![img](https://media.gettr.com/group27/getter/2022/03/04/17/0aae44be-681a-f3c5-b964-c1f6f9fdea2f/a86babd5c2042aa8d12285c4232d6326.jpg)
-
----
-
-`@miles 3/6/2022 4:42 PM (UTC)`
-
-03/05/2022 美国国务卿今天突然到访乌克兰且在乌克兰境内与乌克兰外长会晤。乌克兰外长库莱巴谈到美国提供的武器如何帮助乌克兰击落俄罗斯飞机和坦克。 他表示乌克兰需要更多更优质的美国武器来拯救乌克兰人民的生命<br/><br/>03/05/2022 US Secretary of State Blinken surprisingly arrives in Ukraine today and meets with the Ukrainian Foreign Minister on Ukraine soil. Ukraine Foreign Minister says weapons supplied by the US have helped destroy Russian tanks and aircrafts. He also urges the US to supply more and better weapons to save the Ukrainian people.<br/> 
-![img](https://media.gettr.com/group36/getter/2022/03/06/16/9a86bec5-f090-42c8-fb86-26a0810d84dc/out.jpg)
-
----
-
-`@miles 3/6/2022 4:40 PM (UTC)`
-
-The Axis of Five Evils Timeline <br/><br/>五大邪恶轴心国爆料时间线<br/><br/>
-![img](https://media.gettr.com/group40/getter/2022/03/06/16/9bd0b806-1db2-43f6-623c-d29ebd36a633/out.jpg)
 
 ---
 

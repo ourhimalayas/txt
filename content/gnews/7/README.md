@@ -2,45 +2,32 @@
 ---
 
 
-## 共产党员们不能容忍共产党员家庭出身的锁链女被拐遭遇
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2118204/)
+## 制裁俄罗斯 对普通民众有哪些影响?
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2118328/)
 
-Youtube视频链接：[https://youtu.be/i\_GZfShrEzo](https://youtu.be/i_GZfShrEzo)
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片12.jpg)[图片来源](https://intellinews.com/a-guide-to-sanctions-on-russia-236408/)
+俄罗斯入侵乌克兰后，西方国家纷纷出台了制裁措施，誓要让俄罗斯经济陷入深渊。而在经济高度全球化的今天，针对俄罗斯的经济制裁，也会严重影响其他国家民众的生活，其中也包括西方民众。
 
-Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+法国财政部长勒梅尔最近就说，欧盟和美国已经发动了针对俄罗斯的”经济战”。目前，西方颁布的对俄制裁措施已经大面积切断了俄罗斯与国际金融市场的联系，该国金融市场已经陷入了动荡，卢布兑美元汇率已经降至了历史最低点。
 
-**郭文贵先生：**“锁链女”的叔叔叫李爱中（还）是李天中啊？写这封信，他是共产党员，人家这个女孩的爸爸、叔叔也是共产党员，是吧？你们看这封信了吗？你们看这叔叔写的这封信了吗？新出那个验DNA的事情。
+在俄罗斯各大城市街头，民众在取款机前排起了长队，希望能够尽快取出现金。而在俄罗斯之外，民众也将感受到西方制裁带来的巨大冲击。不论是依赖乌克兰小麦的埃及，还是依赖俄罗斯天然气的德国，这场军事和经济层面的战争都将带来切肤之痛。
 
-就这件事情会让共产党内部人说：“你把瑞安平的孩子绑了给强奸24年，没事，瑞安平没什么官儿没什么钱的。但你把我们自己共产党员的家人给弄走24年，我不认可！”
+随着西方祭出一轮又一轮的对俄制裁，国际天然气和石油价格不断上涨。业内人士担心，此次交战双方分别是全球主要油气输出国之一俄罗斯以及中转国乌克兰，因此油气供应量很有可能突然暴跌。
 
-因为中国是分阶级的，啥叫“无产阶级”？就把你的产变成我的产，叫你是无产，老子有产，是吧？这叫无产阶级。我可以把你的女儿绑架了，你不能碰我的女人；我可以睡你的女人，你不能碰我的女人。所以这共产党员的孩子被弄走了24年，他们受不了，这会激起它们党内的一种瓦解。
+乌克兰的战火还让人担心小麦、玉米、油菜的供应。芝加哥期货交易所的小麦期货价格一度到达了13年来的最高点，玉米期货价格也一路走高。俄罗斯和乌克兰的小麦出口量合计占到全球小麦出口量的30%，玉米出口量占比也近20%，葵花籽油的出口量占比更是达到80%。在中东以及欧洲市场，俄罗斯以及乌克兰都是重要的小麦供应国。土耳其、埃及是俄罗斯小麦的最大进口国。
 
-编辑整理：Jacques；
+专家担心，俄罗斯在乌克兰的军事行动将进一步推高利比亚、也门、黎巴嫩等动荡国家的粮价，进一步加剧这些国家的粮食危机。
 
-字幕文件制作：星塵；
+对于全球绝大多数国家的民众而言，乌克兰战火以及随之而来的制裁措施意味着更高的通胀率。目前，铝制品价格已经上涨到了历史性高位，超越了2008年的水平。外贸圈内人士担心，西方制裁措施以及俄罗斯的反制措施将会沉重打击全球铝供给量。俄罗斯铝产量约占全球总额的6%。更高的能源价格、电力短缺也将会严重影响冶金业这个耗能大户，许多相关企业将会因为能源供应紧张而不得不停产、减产。
 
-视频制作及上传：Cindy；
+信息来源：
 
-G-News发布：小满；
+[制裁俄罗斯 我们普通人会受到哪些影响?](https://www.dw.com/zh/%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF-%E6%88%91%E4%BB%AC%E6%99%AE%E9%80%9A%E4%BA%BA%E4%BC%9A%E5%8F%97%E5%88%B0%E5%93%AA%E4%BA%9B%E5%BD%B1%E5%93%8D/a-60998602)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

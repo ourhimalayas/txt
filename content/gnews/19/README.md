@@ -2,42 +2,18 @@
 ---
 
 
-## 共产党的黑社会手段烙到北京冬奥会所有官员和裁判身上
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2118065/)
+## 俄乌战争｜美国防部高官：俄罗斯已投入95%的战力攻打乌克兰
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2118202/)
 
-Youtube视频链接：[https://youtu.be/gYxgCWq-4F8](https://youtu.be/gYxgCWq-4F8)
+**撰文/ 港台前线｜发布日期/ 07/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/美國防部高官：俄羅斯已投入95的戰力攻打烏克蘭.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+CNN引述美国一名国防高官指，自俄罗斯入侵乌克兰以来，一共发射了大约600枚导弹，并已将95%的战力集结在乌克兰境内。
 
-**郭文贵先生：**所以“谷爱凌事件”造假、欺骗全世界，对全世界的法律都是威胁。而且最夸张的事情，他这个愚蠢到了在全世界媒体面前敢如此之造假。两国——你双重身份，你在美国出生，美国长大，然后美国的娘拿美国护照，然后在中国代表中国人拿冠军。
+据该名官员表示，美国于周日（6日）观察到，乌克兰南部城市赫尔松（Kherson）和尼古拉耶夫（Mykolaiv）战斗持续，而俄军仍在试图包围基辅、卡尔可夫（Kharkiv）、切尔尼戈夫（Chernihiv）及马里乌波尔（Mariupol）。不过，由于遭到了乌方的强烈抵抗，俄方的进攻进度有所减缓。
 
-然后你再看到这个冬奥会上，中国的裁判，在中国的外国裁判已经完全就像它控制的，就像法官一样。
-
-编辑整理：Jacques；
-
-字幕文件制作：星塵；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+来源｜[CNN](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-03-06-22/h_9a75a46d4bfa8041016b60472351f411)
 
  
 

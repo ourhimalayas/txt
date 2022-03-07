@@ -2,33 +2,22 @@
 ---
 
 
-## 秘翻新闻｜在乌中国人求救信息被中共屏蔽
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2110203/)
+## 中日财经爆┃万事达卡和VISA卡退出俄罗斯
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2113278/)
 
-**By:[秘翻新闻](https://gettr.com/post/pyadcq8bff)**
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-493.png)[图片来源](https://article-image-ix.nikkei.com/https%3A%2F%2Fimgix-proxy.n8s.jp%2FDSXZQO1671413006032022000000-1.jpg?ixlib=js-2.3.2&amp;w=638&amp;h=426&amp;auto=format%2Ccompress&amp;ch=Width%2CDPR&amp;q=45&amp;fit=crop&amp;bg=FFFFFF&amp;s=51cffaa7e90d20117ef2b1f1a0742709)
+3月5日，美国主要的信用卡公司维萨（VISA）和万事达（Mastercard）相继宣布将停止在俄罗斯的支付服务。除了对在俄罗斯发行的卡进行限制外，由境外金融机构发行的卡在俄境内也不能使用。采取这些措施都是对俄入侵乌克兰的回应，可能对消费者会产生普遍的影响。
 
-**[2022-03-05](https://gettr.com/post/pyadcq8bff)**
+VISA公司首席执行官阿尔弗雷德·凯利在声明中表示，“俄罗斯对乌克兰的无端入侵以及我们所看到的不可接受的情况迫使我们采取行动，我们对影响到商家和持卡人感到遗憾，但对和平的持续威胁要求我们做出符合我们价值观的回应”。
 
-**今日主题:**
+万事达卡在上月28日已宣布将几家俄罗斯金融机构排除在了其支付网络之外。
 
-**1. 凶兆！中共开两会传故宫太和殿大门被吹倒**
+信息源：[我々は行動せざるを得ない…米ビザとマスターカード、ロシアでの決済停止](https://news.yahoo.co.jp/articles/b64a652adacbad999ff9ee3faefddd1e0f99033c#:~:text=%E6%8)
 
-**2. 中共官媒否认俄军空袭致中国留学生死亡 **
-
-**3. 联合国人权理事会成立乌克兰调查机构**
-
-**4. 俄立法钳制新闻自由 多国知名媒体暂停工作**
-
-**5. 北约拒绝乌克兰设立禁飞区**
-
-**🔗Gettr鏈接：**[https://gettr.com/post/pyadcq8bff](https://gettr.com/post/pyadcq8bff)
-
-发布:星星
-
-* * *
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
