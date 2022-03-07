@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 12:35 AM (UTC)`
+
+3月6号：感谢在前线的所有兄弟姐妹们．天地可鉴．人神共评．我们做的事情，就是新中国联邦人未来在全世界有扮演的角色，要做的事情！太感动了。【我们已经接到全部所有96个孩子和老师们。一切顺利🙏孩子们虽然很累，但终于都安全了！我们也松了口气！现在两辆大巴送他们去宾馆休息，需要几个小时的路程。我们也会护送随行。 孩子们太累了🙏 他们休整后的下一站就是我们西班牙农场所在地西班牙巴塞罗那。我们农场团队会在文戈站长的带领下继续全程跟踪服务！感谢所有战友们的关心支持！🙏🙏我们继续加油！行动行动行动！💪💪💪 七哥，所有96个孩子和老师们刚刚都从海关出来了，一切顺利🙏两辆大巴赶往酒店，我们护送过去，巴士大概要4个小时后到达预先定的酒店。考虑到孩子们精疲力尽，都睡在了车上直播就不继续了。负责人Teresa 女士对法制基金、新中国联邦表示了深深的感谢，称我们就是天使🙏】
+![img](https://media.gettr.com/group22/getter/2022/03/07/00/c9894be2-eba1-0e4b-bc8d-c39092a3910b/out.jpg)
+
+---
+
+`@miles 3/7/2022 12:29 AM (UTC)`
+
+2022.03.06 NFSC News  NFSC Ukraine Rescue Teams Arrive in Poland； NFSC- ROLF Ukraine Rescue – Transport to Safety by Coach Bus
+![img](https://media.gettr.com/group36/origin/2022/03/07/00/57989672-9f3a-b810-16a1-c4c2d4cf3040/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/7/2022 12:11 AM (UTC)`
 
 <br/>3月6号：尊敬的战友们好，你们健身了吗？传播乌克兰战争……人道危机的真相了吗？一切都已经开始。
@@ -138,20 +152,6 @@ The Axis of Five Evils Timeline <br/><br/>五大邪恶轴心国爆料时间线<b
 
 3月5号：尊敬的战友们好，今天我在外面不方便录制视频，明天上午9:00开始大直播，请战友们高度关注，我们在乌克兰前线就爰的战友们……热点问题．待明天大直播里谈！
 ![img](https://media.gettr.com/group5/getter/2022/03/05/15/2c13a671-50c9-67f9-73c9-1de295d0c9b7/out.jpg)
-
----
-
-`@miles 3/5/2022 3:22 PM (UTC)`
-
-Ukrainian American actively involved in this Ukrainian rescue operation of the NFSC to Poland.<br/><br/>美国生活的乌克兰裔积极参与到新中国联邦此次的乌克兰救援行动之中，前往波兰。 <br/> 
-![img](https://media.gettr.com/group26/getter/2022/03/05/15/71b8b055-0a7b-d183-2707-725b2742bc03/out.jpg)
-
----
-
-`@miles 3/5/2022 1:18 PM (UTC)`
-
-致乌克兰战场的所有同胞们……紧急紧急紧急。
-![img](https://media.gettr.com/group22/getter/2022/03/05/13/df4bb241-f35f-e586-aaa0-131851693d3a/out.jpg)
 
 ---
 
