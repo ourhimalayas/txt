@@ -2,50 +2,52 @@
 ---
 
 
-## 新西兰财经G乐部2022年3月7日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2120022/)
+## 中国电信巨头华为一直在帮助普京稳定被黑客攻击后的俄罗斯互联网
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2120087/)
 
-采集整理：蚂蚁的城堡
+据《每日邮报》作者：JAKE RYAN HOME AFFAIRS，2022年3月6日报道：
 
-提纲：
+- 俄罗斯媒体网站上周被黑，用“墓碑”取代网页
+- 据说华为已经“赶到俄罗斯援助”，以支持互联网网络
+- 中国网站删除了关于华为将利用其研究中心在俄罗斯培训“50,000名技术专家”以帮助网络中断的报道
+中国电信巨头华为必须接受调查，因为有报道称该公司在俄罗斯的互联网网络受到攻击后“急于向其提供援助”。
+中国的报道说，这家在英国有几个办事处的科技巨头一直在帮助弗拉基米尔-普京努力稳定俄罗斯的互联网网络，因为它受到了全球各地黑客组织的攻击
+自入侵乌克兰以来，俄罗斯政府和媒体网站一再面临着疑似针对国家的网络攻击的干扰。
 
-1、IMF工作人员关于乌克兰战争经济影响的声明
 
-2、世茂集团15城24公司商票逾期，加速自救”卖卖卖”
+上周，俄罗斯媒体网站被一个自称属于Anonymous黑客网络的组织入侵，并以纪念战争死难者的“墓碑”取代网页。
 
-3、莆田首富自救：本月到期债务还不上，甩卖超30亿元资产回血
+据报道，华为在俄罗斯有五个研究中心，据说在面对这些攻击时，华为已经“赶去援助俄罗斯”，支持其互联网网络。
 
-4、美国与欧洲盟友讨论禁止进口俄罗斯石油
+一份出现在一个中国新闻网站上但后来被删除的报告称，华为将利用其研究中心在俄罗斯培训“50,000名技术专家”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-600.png)Getty Images
+中国的报道称，科技巨头华为在英国设有多个办事处，在俄罗斯的互联网网络受到全球黑客组织的攻击后，华为一直在帮助普京努力稳定俄罗斯的互联网网络。图为周一在西班牙巴塞罗那举行的GSMA世界移动通信大会上，华为的标志在外面亮起。
 
-正文
+它补充说，该公司预计将扩展到“人工智能、云计算和人脸识别等前沿领域”。
+保守党议员伊恩-邓肯-史密斯(Iain Duncan-Smith)上周四在下议院提出了这个问题，他说：“我深为关切的是，一家被英国政府视为国家安全威胁的公司，他们无法让他们的设备留在英国的新5G系统中，却仍然在英国。”
+现在他们很可能一直在忙着帮助俄罗斯这个专制政权。
 
-1、IMF工作人员关于乌克兰战争经济影响的声明
-![img](https://media.gettr.com/group28/origin/2022/03/07/01/f2378f6d-6d6f-d05f-0cd0-4def6457c216/3da05f236955ce84248c4780299be031_500x0.png)
-乌克兰战争的经济影响,虽然目前局势仍在快速变化、未来前景充满极大的不确定性，但有关经济后果已经非常严重。能源和大宗商品（包括小麦等谷物）价格飙升，进一步加剧了源于供应链扰动和疫情后复苏带来的通胀压力。价格冲击波及全球，对贫困家庭的影响尤甚——这是因为食品和燃料在其开支中的比例更大。如果冲突升级，那么相关经济损失的破坏性将更大。针对俄罗斯的制裁措施将对全球经济和金融市场产生重大影响，对其他国家也将产生重大的溢出效应。
+现在应该进行全面调查，因为如果我们在制裁一直在帮助普京的寡头，我们也应该看看一直在帮助普京的公司。
 
-链接：[https://www.imf.org/zh/News/Articles/2022/03/05/pr2261-imf-staff-statement-on-the-economic-impact-of-war-in-ukraine](https://www.imf.org/zh/News/Articles/2022/03/05/pr2261-imf-staff-statement-on-the-economic-impact-of-war-in-ukraine)
+如果俄罗斯有一刻认为中国会打破排名，他们就不会入侵乌克兰。
+如果中国公司被发现帮助俄罗斯公司规避措施，他们就会担心美国的二次制裁。
+出于对国家安全的担忧，美国于2019年推出了制裁措施，华为受到了严重打击，并被禁止为英国的5G网络提供设备。
 
-2、世茂集团15城24公司商票逾期，加速自救”卖卖卖”
-![img](https://media.gettr.com/group41/origin/2022/03/07/01/ac4fc896-3a53-ef85-6ad7-cf4f753d960b/59e9f89d4f8a84330cf30d688705ef40_500x0.png)
-多个公开报道显示，世茂集团在全国有15城24个公司出现商票持续逾期，逾期余额少则数十万，多则数千万元。就涉及城市和公司数量而言，目前其在所有房企中排首位。这一情况的依据来源，是3月3日上海票交所公布的一组逾期名单。这份逾期名单的定义是“ 2021年9月1日至2022年2月28日出现3次以上付款逾期，且截至2022年2月28日有逾期余额或2022年2月当月出现付款逾期的承兑人”。可以看到，近期已“爆雷”或将“爆雷”的花样年、奥园、阳光城、新力、正荣等房企均榜上有名，但其中涉及项目数最多的是世茂集团。
+截至发稿时，华为没有回应。
+据报道，华为在俄罗斯有五个研究中心，据说在面对攻击时，华为“急于向俄罗斯提供援助”，支持其互联网网络。一份出现在中国新闻网站上但后来被删除的报告称，华为将利用其研究中心在俄罗斯培训“50,000名技术专家” 。
 
-链接 ：[https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-07/doc-imcwipih7023410.shtml](https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-07/doc-imcwipih7023410.shtml)
+文章观点仅代表作者个人，与Gnews平台无关
 
-3、莆田首富自救：本月到期债务还不上，甩卖超30亿元资产回血
-![img](https://media.gettr.com/group16/origin/2022/03/07/03/57c2ccfc-7525-919a-91b3-9afa9d55136f/231a05388d7e1571bb058c175e8056b5_500x0.png)
-莆田首富的宝座还没坐稳，正荣地产实际控制人欧宗荣和他创立的正荣地产一同陷入困境。一笔2亿美元的永续债突然“爽约”，让这家闽系千亿房企，迎来资本市场的至暗时刻。3月4日，正荣地产发布公告称，将延迟2月21日到期优先票据展期同意截止日期，延长至伦敦时间3月11日下午4时。
+原文连接：**[https://www.dailymail.co.uk/news/article-10583207/Chinese-telecoms-giant-Huawei-helping-Putins-efforts-stabilise-Russias-internet.html?ito=social-twitter\_mailonline](https://www.dailymail.co.uk/news/article-10583207/Chinese-telecoms-giant-Huawei-helping-Putins-efforts-stabilise-Russias-internet.html?ito=social-twitter_mailonline)**
 
-链接：[https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-07/doc-imcwiwss4518801.shtml](https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-07/doc-imcwiwss4518801.shtml)
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 傻小子
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-4、美国与欧洲盟友讨论禁止进口俄罗斯石油
-![img](https://media.gettr.com/group48/origin/2022/03/07/04/8e538792-115c-6f8a-84c1-90a0ccd6b336/14d8e590e42416560fbfe0db63b73c32_500x0.png)
-3 月 7 日（路透社）——美国国务卿安东尼·布林肯 (Antony Blinken) 周日表示，美国和欧洲盟国正在探索禁止进口俄罗斯石油，白宫与主要的国会委员会协调推进自己的禁令。一位熟悉讨论情况的消息人士周日告诉路透社，欧洲在原油和天然气方面依赖俄罗斯，但在过去 24 小时内对禁止俄罗斯产品的想法变得更加开放。根据美国能源信息署 (EIA) 的数据，2021 年美国平均每月从俄罗斯进口超过 2040 万桶原油和精炼产品，约占美国液体燃料进口量的 8%。
-
-链接 ：[https://www.reuters.com/business/energy/us-europeans-discussing-banning-russian-oil-imports-blinken-says-2022-03-06/](https://www.reuters.com/business/energy/us-europeans-discussing-banning-russian-oil-imports-blinken-says-2022-03-06/)
-
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
-
-上传排版：文勇
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

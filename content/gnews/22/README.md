@@ -2,33 +2,30 @@
 ---
 
 
-## 日本名古屋医师会医生反对给儿童接种疫苗
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2121031/)
+## 俄军猛烈轰炸基辅周边城市 准备全面入侵基辅
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2121047/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月4日，日本名古屋医师会成员浅井院长，以及前医师会医疗安全顾问宫治医生在接受媒体采访时指出，他们不会同意对5至11岁儿童接种中共病毒疫苗的做法。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-11.jpg)
-其原因在于，首先，儿童在感染中共病毒后很容易康复，真正恶化到重症甚至死亡的病例少之又少。目前，所有的中共病毒疫苗都处于实验性阶段。这意味着，所有医生都不清楚中共病毒疫苗的毒副作用。浅井院长透露，许多医生都是抱着非常恐惧的心理，在给人们接种。
+**撰稿：日本东京方舟农场  海星**
 
-无论是接种疫苗还是其他医疗行为，站在医生以及患者的角度考虑，都是把安全性排在第一位，之后才是让社会安心、以及得到治愈后的满足感。然而，在接种中共病毒疫苗上，却打乱了上述顺序，把“让社会安心”排在了首位。这两位医生还强调，现在日本政府最该做的，就是先确认疫苗的安全性。
+3月7日，多方消息透露，乌克兰首都基辅的周边城市已遭俄军猛烈轰炸，俄军正准备向基辅发动全面进攻。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-77.jpg)（图片来源：美联社）
+据《自由时报》报导，根据乌克兰官员及社交媒体平台上的消息显示，位于乌克兰首都基辅周边的4个城市，布查（Bucha）、戈斯托梅利（Hostomel）、沃尔泽利（Vorzel）和伊尔平（Irpin）自3月6日晚上至今晨期间持续遭受俄军炮击，多地发生火灾。
 
-参考链接：[20220304日本CBC採訪反對給兒童接種的名古屋醫師會醫生](https://www.gettr.com/post/pyguvhd574)
+该报导称，乌克兰国防部官员稍早前发出警告，俄军正准备对乌克兰首都基辅发动全面进攻。对此，武装部队总参谋部表示，俄军已经开始为这项军事计划储备物资，例如将燃料从白俄罗斯经由车诺比地区运送过来。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+当日，基辅市长克里契科（Vitaly Klitschko）在指责俄罗斯故意杀害平民的同时呼吁基辅市民保持冷静，待在家里或是避难所。
 
-总编: 文真
-编辑: Jack Li文阳   
-审核: 文真
-校正/发稿：Fei797
+此外，昨日至今，乌克兰的第二大城市哈尔科夫（Kharkiv）以及造船工业中心尼古拉耶夫（Mykolayiv）也遭到了俄军的持续轰炸，多处民宅及工厂发生火灾。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+参考链接：
+1.[https://news.ltn.com.tw/news/world/breakingnews/3851657](https://news.ltn.com.tw/news/world/breakingnews/3851657)
+2.[https://news.ltn.com.tw/news/world/breakingnews/3850905](https://news.ltn.com.tw/news/world/breakingnews/3850905)
+3.[https://news.ltn.com.tw/news/world/breakingnews/3851520](https://news.ltn.com.tw/news/world/breakingnews/3851520)
+
+撰稿：海星
+总编：老孙
+校对发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

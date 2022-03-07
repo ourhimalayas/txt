@@ -2,31 +2,26 @@
 ---
 
 
-## 有声|波兰将扩军一倍防范俄罗斯入侵
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2121281/)
+## 视频|新中国联邦在乌克兰的救援信息
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2121395/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-台湾媒体3月5日消息，为避免乌克兰遭受俄罗斯侵略的前车之鉴，北约成员国波兰近日宣布，准备修改法律提高明年的军费开支，把陆军人数从14万3500人，扩增到30万人，以提高防御能力。
+制作：香草山视频部
 
-波兰政府表示，因为俄乌战争，该国政府已经把注意力集中在首都华沙的防御能力上，预计明年将把军费从去年10月提案的占GDP的2.5%，提高到3%，并将视情况继续增加。如果修法顺利通过，波兰将拥有法律依据，来建设北约最强大的陆军之一。
+鉴于目前乌克兰局势日益恶化，新中国联邦救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
 
-波兰国防部长拉查克指出，波兰需要这样一支军队保卫祖国，尤其是当前邪恶的帝国正在东部边境重生之时。
+自当地时间3月5日起，乌克兰免费救援巴士将于每天下午1点准时从利沃夫出发，前往波兰克拉科夫。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
-文字版原文：[波兰将扩军一倍防范俄罗斯入侵](https://gnews.org/zh-hans/2114615/)
+求助方式请参考以下视频。
 
-音频处理：Fei797
-发稿：Fei797
+[https://mega.nz/file/Nw4QzThA#fliTnPibSq4VUl3oII5XPZ2OOflXVF\_zfEqcLIG2OtA](https://mega.nz/file/Nw4QzThA#fliTnPibSq4VUl3oII5XPZ2OOflXVF_zfEqcLIG2OtA)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+发稿：谐趣园
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
