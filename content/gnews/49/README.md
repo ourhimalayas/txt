@@ -2,22 +2,39 @@
 ---
 
 
-## 中日财经爆┃万事达卡和VISA卡退出俄罗斯
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2113278/)
+## 盖特注册用户接近五百万
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2114811/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-493.png)[图片来源](https://article-image-ix.nikkei.com/https%3A%2F%2Fimgix-proxy.n8s.jp%2FDSXZQO1671413006032022000000-1.jpg?ixlib=js-2.3.2&amp;w=638&amp;h=426&amp;auto=format%2Ccompress&amp;ch=Width%2CDPR&amp;q=45&amp;fit=crop&amp;bg=FFFFFF&amp;s=51cffaa7e90d20117ef2b1f1a0742709)
-3月5日，美国主要的信用卡公司维萨（VISA）和万事达（Mastercard）相继宣布将停止在俄罗斯的支付服务。除了对在俄罗斯发行的卡进行限制外，由境外金融机构发行的卡在俄境内也不能使用。采取这些措施都是对俄入侵乌克兰的回应，可能对消费者会产生普遍的影响。
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+自由言论平台盖特，是有史以来发展最快的社交媒体平台。
 
-VISA公司首席执行官阿尔弗雷德·凯利在声明中表示，“俄罗斯对乌克兰的无端入侵以及我们所看到的不可接受的情况迫使我们采取行动，我们对影响到商家和持卡人感到遗憾，但对和平的持续威胁要求我们做出符合我们价值观的回应”。
+盖特在推出三天的时间内，就到达一百万的注册用户，并在2022年以50%的速度增长。目前，注册用户数已接近五百万。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-06-at-8.14.53-PM.png)
+盖特在上周又掀起一个大幅增长的奇迹。在美国，仅上周日，注册量增长了550%。上周，在盖特 CEO杰森-米勒访问欧洲期间，英国的注册人数增加了61%。知名作家多米尼克-珊缪尔斯在上周一，宣布了与盖特合作。
 
-万事达卡在上月28日已宣布将几家俄罗斯金融机构排除在了其支付网络之外。
+在德国，米勒周五在科罗纳委员会的直播，浏览量达八万次。盖特在德国的注册人数增加了111%。
 
-信息源：[我々は行動せざるを得ない…米ビザとマスターカード、ロシアでの決済停止](https://news.yahoo.co.jp/articles/b64a652adacbad999ff9ee3faefddd1e0f99033c#:~:text=%E6%8)
+在巴西，盖特上周的注册人数增加了33%。这在很大程度上，得益于盖特巴西战略合作伙伴媒体，对俄罗斯入侵乌克兰的报道。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+七个月以来，盖特已经用实力和信誉，确立了作为一个自由言论社交媒体平台的地位。
+
+参考链接：[每时每刻这个世界都在发生巨变……](https://gettr.com/post/pyagi05aed)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+
+编辑：Jack Li文阳
+总编：Zion文恩
+审核：Jack Li文阳
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

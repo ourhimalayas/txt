@@ -2,47 +2,50 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2119732/)
+## 秘翻在线：习近平表示粮食多少是战术问题 粮食安全是战略问题
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2119812/)
 
-**整理：枳实**
-**美工：精灵蓝**
+**撰稿：葛大饼**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/fengmian-2.jpg)图片：雅典娜农场设计组 精灵蓝
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/22-6.jpg)图片来源：BBC
+根据2022年3月7日 中共大外宣报道， 关于粮食问题，习近平强调，“中共国要靠自力更生，自己养活自己！”
+
+新闻称中共国以占世界9%的耕地、6%的淡水资源，养育了世界近1/5的人口，从当年4亿人吃不饱到今天14亿多人吃得好，完全有能力养活中国老百姓。
+
+习近平表示粮食多一点少一点是战术问题；粮食安全则是战略问题。中共国之所以能够实现社会稳定、人心安定，一个很重要的原因就是因为政府手中有粮、心中不慌。” 中共不仅困难的时候要搞双循环，就是平时实施双循环也是最稳定、最可靠的经济布局。
+
+中共国18亿亩耕地，是红线，是战略底线，是关系国家命脉的安全线，习近平明确告诫，绝不能把工业化变成无粮化。中央要和各地签订耕地保护“军令状”，严格考核、终身追责，确保18亿亩耕地实至名归。
+
+2022年1月18日密翻在线报道，中共媒体自称“中共国粮食进口量再创新高，食物自给率持续下降”，这就是给习太阳啪啪打脸！ 粮食安全不是战术问题也不是战略问题，这是老百姓的生死问题！粮食大部分依靠进口的中共国储备粮食是为了军队打仗用的，为了维持中共的非法政权，而不是为老百姓！与此同时中共新冠病毒和疫苗会导致世界经济出问题，而最近的俄乌战争无疑让危机加剧，作为世界上两个主要谷物市场，该地区的动荡已经造成全球农作物价格飙升至创纪录水平，全球粮食库存明显在下降。欧洲老百姓已经明显感受到生活成本的增加！
+
+中共国经济奔溃加上国内人祸水灾对粮食产量的大幅削减， 很快将跟随俄罗斯被国际制裁，可想而知未来中共国老百姓的粮食问题是多严峻！
+
+**新闻来源：**
+
+[https://www.orientaldaily.com.my/news/international/2022/03/07/472284](https://www.orientaldaily.com.my/news/international/2022/03/07/472284)
 
 
-雅典娜疫情更新（2022年 3月7日）
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+> [秘翻在线：中共国粮食进口量再创新高，粮食为谁而备？](https://gnews.org/zh-hans/1875367/)
 
-全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/a-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/b-1.jpg)
-[2022年3月7日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月7日改进.pdf)
 
-数据来源：
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+> [世界粮仓中的战争让粮食大买家开始寻找替代供应](https://gnews.org/zh-hans/2076133/)
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-[covidlive.com.au](https://covidlive.com.au/)
 
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+#   
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+# 摘要：
 
-发布：Frank2021
+关于粮食安全问题，习近平说， 粮食多一点少一点是战术问题；粮食安全则是战略问题。不仅困难的时候要搞双循环，就是平时双循环也是最稳定、最可靠的经济布局。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+#  
+
+#  
 
  
 

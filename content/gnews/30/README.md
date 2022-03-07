@@ -2,15 +2,15 @@
 ---
 
 
-## 美国国会计划本周批准100亿美元对乌援助
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2118680/)
+## 中共大陆新增无症状感染病例超过确诊
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2118782/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-7.jpg)美国国会计划本周批准100亿美元对乌援助 网络图片
-据俄罗斯卫星通讯社3月7日报道，美国众议院议长南希·佩洛西周日表示，为回应莫斯科入侵乌克兰，国会打算在本周通过紧急拨款100亿美元以援助乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-9.jpg)中共大陆新增无症状感染病例超过确诊 网络图片
+据路透社3月6日报道，中共国国家卫健委6日通报，中共大陆新增新冠肺炎确诊病例327例，其中本土病例214例，创2020年2月末以来新高。当日新增本土无症状感染者达312例，大幅反超确诊病例。
 
-《华盛顿邮报》此前报道称，拜登政府要求国会批准援乌拨款。100亿美元将用于“应对人道主义危机”，帮助乌克兰进行防御，防止电网中断，以及“进一步帮助欧洲盟友”。
+中共病毒肆虐全球三年，只有中共国创造了输入病例、本土病例、本土无症状感染、本土新增病例等新名词。武汉病毒爆发的时候，中共国几百万飞往全世界各地的感染者算新增病例还是输入病例还是其他什么病例？病毒之后是后患无穷的疫苗灾难导致了现在的新冠反弹，中共手里握着还在滴着血的刀，玩起了杀人者找杀人犯的游戏。中共不灭，新冠病例会不断再创新高。
 
-新闻参考链接：[https://sputniknews.cn/20220307/1039765306.html](https://sputniknews.cn/20220307/1039765306.html)
+新闻参考链接：[https://cn.reuters.com/article/china-mainland-covid19-cases-0307-mon-idCNKBS2L4060](https://cn.reuters.com/article/china-mainland-covid19-cases-0307-mon-idCNKBS2L4060)
 
 * * *
 

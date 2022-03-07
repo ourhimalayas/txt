@@ -2,40 +2,68 @@
 ---
 
 
-## 俄罗斯军队士气低落，正进入“最危险的阶段”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2119746/)
+## 乌克兰救援
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2119840/)
 
-#### **【雅典娜观察】，与您一起洞察世界**
+作者：香草山健身部-新世界的一员
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/48081bd7-46d9-4f38-a44f-dfdda6073705-1.jpg)
 
-#### 翻译：攀登者 
-编辑：Mttfly
+俄罗斯的入侵仍在继续，
+无端的杀孽还在放大。
+新中国联邦是全球唯一一个没有任何诉求，
+顶着战火进入乌克兰战区免费救人的组织，
+3月7号是个庆祝的日子，
+新中国联邦成功救助，
+近百名乌克兰师生，
+他们的平安抵达波兰边境，
+给“新中国联邦乌克兰国际人道救援行动”
+又增加了一笔功德，
+一线的战友们你们辛苦了，
+你们不缺衣不缺穿，
+过着美好的、和平的日子，
+却日夜兼程的来回穿越在散满硝烟四起的险地
+为的就是救人如救火的信念，
+善勇不分凌晨还是傍晚，
+满身正义只为救助生命，
+那两辆载有近100名乌克兰儿童和老师的大巴，
+安全的抵达波兰边境。
+你们疲惫的脸上露出灿烂的笑容，
+那是无私的阳光笑容，
+是一种救人成功的喜悦笑容，
+那是世界上最动容的笑容。
+师生们入住进喜马拉雅安排的酒店，
+酒店的爆料革命战友帮助孩子们办理入住手续。
+历代以来，
+中国人何时为他人如此不计个人安危勇往直前，
+如此不计成本的为人付出，
+如此团结一致干劲十足，
+只有在没有中国共产党的新中国联邦。
+乌克兰的师生们秩序井然，
+演绎着只有民主的文明，自由的尊严，
+那正是新中国联邦追求的目标，
+波兰的边境飘起了通灵的雪，
+那是灭共的雪，
+给舟车劳顿的战友们飘洒纯洁的光亮。
+此次协助师生的负责人Teresa对法治基金和新中国联邦深表感谢，
+称新中国联邦 救援队是天使。
+新中国联邦用实际行动向全世界证明，
+共产党不能代表中国人，
+中国人珍惜生命，热爱和平！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/ba0d420c4b257c38.jpg)图片来源：warontherocks
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0309-2.jpg)
 
+审核/编辑/发稿:qiutian（邱甜）
 
-约翰·斯宾塞少校警告说，如果俄罗斯继续对其较小的邻国进行嗜血战争，平民伤亡可能会比第二次世界大战中的大多数战斗都大。虽然到目前为止，乌克兰人仍在获胜。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-他说：“这些城市仍然有人居住，你看到需要疏散的疏散尚未发生。这里只有一个城市很重要，俄罗斯只有一个目标，那就是夺走基辅，推翻现存政府，建立亲俄政府。”
-
-“如果普京做不到这一点，他在政治上就赢不了，不推翻现存政府，他一直都在输。”
-
-麦迪逊政策论坛城市战争研究主席斯宾塞先生告诉澳大利亚天空新闻，俄罗斯的战争才刚刚开始，正进入“最危险的阶段”。
-
-他说：“乌克兰人正在获胜。他们每天都不输，他们都会赢。”
-
-“我们都看到了普京的压力。俄罗斯的经济、普京的军队，士气低落、油尽灯枯。更加不幸的是，在城市内即将进行近距离战斗。”
-
-新闻链接：[Ukrainians are winning: Russian troops ‘demoralised’ and ‘running out of gas’](https://www.skynews.com.au/world-news/global-affairs/ukrainians-are-winning-russian-troops-demoralised-and-running-out-of-gas/video/6c08157ecdb58e54b51bb618b71bd023)
-
-发布： Frank2021
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
