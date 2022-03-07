@@ -2,39 +2,53 @@
 ---
 
 
-## 有声|力挺乌克兰 全球各界掀起反战浪潮
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2121633/)
+## 美国SEC正在调查NFT市场潜在的证券违规行为
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2121731/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-俄罗斯对乌克兰的持续入侵已造成了巨大的人道灾难，并招致了西方世界的强烈抵制和制裁，反战浪潮已在全球各个领域掀起。
+**评论：***随着NFT的普及率大幅上升，监管机构对这一资产类别的未来趋势表示担忧，审查也越来越严格。如果监管机构认为包括NFT在内的数字资产属于证券，那么它们将受到与股票相同规则的约束。*
 
-（1）零售方面。美国各地正在从货架上撤下俄罗斯制造的产品，因为几位州长签署了限制俄罗斯商品在本州销售的命令。
+据《数字货币电讯报》作者：Tom Mitchelhill 2022年3月2日报道：
 
-（2）体育方面。应国际奥委会的要求，体育联合会和体育联盟正在积极采取行动将俄罗斯的球队和运动员排除在任何赛事之外，并将主要体育赛事的举办场地从俄罗斯转移出来。
+非同质化代币(NFT)的创建者及市场交易已经成为美国证券交易委员会(SEC)的目标，因其在SEC针对未注册证券的新一轮监管中进行了非法活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-633-e1646672859230.png)图片来源：《数字货币电讯报》
+据彭博社报道，美国证券交易委员会(SEC)——由对加密货币持怀疑态度的主席詹斯勒（Gary Gensler）领导——正在调查非同质化代币(NFT)的创建者及其市场交易的证券违规行为。
 
-（3）文化娱乐方面。纽约大都会歌剧院总经理在一份声明中表示，不再与支持普京或得到他支持的艺术家或机构接触。戛纳电影节的组织者2月28日表示，不欢迎俄罗斯官方代表团和任何与俄罗斯政府有联系的人参加此次活动。华特迪士尼公司、华纳兄弟和索尼影业表示，将暂停即将在俄罗斯上映的电影。
+报告中的匿名消息人士称，SEC正在调查“某些NFT是否像传统证券一样被用来筹集资金。”
 
-（4）媒体宣传方面。元宇宙 、谷歌等各大科技巨头已迅速采取行动，限制俄罗斯国有新闻媒体 RT 和 Sputnik 的覆盖范围，以阻止错误、虚假信息的传播。流媒体巨头 Netflix 周一表示，将不会在其平台上播放任何俄罗斯频道。
+据报道，SEC执法部门的律师在过去几个月已发出传票，要求提供有关特定NFT和其他代币发行的信息。
 
-（5）贸易方面。大众汽车集团，梅赛德斯-奔驰集团表示，将不再向俄罗斯出口汽车，并将停止在俄罗斯工厂的生产。家居巨头宜家，时装零售商Mango，服装品牌H&M纷纷表示，将暂停在俄罗斯的生产，关闭其在该国的商店，并停止向俄罗斯出口商品。苹果、耐克和英国快时尚品牌Asos 和 Boohoo宣布将不再在俄罗斯销售产品。
+虽然加密借贷产品在过去一年里一直受到严格的监管审查，但是这份报告标志着调查NFT领域的重大举措。
 
-（6）航空方面。航空公司软件巨头 Sabre 3月3日宣布将终止与俄罗斯航空公司 Aeroflot 的分销协议，这将削弱该公司销售航空机票的能力。
+调查表明，SEC对如何使用碎片化NFT（fractional NFTs）尤其感兴趣。那是更有价值的NFT被标记为更小的部分并出售的场合。
 
-文字版原文：[力挺乌克兰 全球各界掀起反战浪潮](https://gnews.org/zh-hans/2111089/)
+警告信号已经很明显了，被称为“加密货币之母”的Hester Peirce早在2021年3月就表示，出售碎片化NFT可能违反法律。
 
-音频处理：Fei797
-发稿：Fei797
+“你最好小心，你创建的不是一种投资产品，而是一种证券。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+这次调查，是旨在更坚定地管理加密货币市场的一波打击行动中的最新一波。最近，SEC命令总部位于新泽西州的加密借贷公司BlockFi支付创纪录的1亿美元罚款，原因是其未能将“高收益”借贷产品列为证券。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+虽然比特币（BTC）和以太坊（ETH）因其不被SEC视为证券（至少目前还没有）而得以避免审查，其他数字资产并没有享受同样的暂缓待遇。与旧金山数字支付公司Ripple Labs（Ripple的母公司）的案件不同，自2020年底以来，该公司一直因售出过多的“未注册证券”而卷入法律案件之中。
+
+尽管当前市场行情下跌，NFT销售额还在继续增长——最大的两家NFT交易市场LooksRare和OpenSea在过去30天内共享了107亿美元的交易量。
+
+文章来源：[https://cointelegraph.com/news/sec-investigating-nft-market-over-potential-securities-violations-reports](https://cointelegraph.com/news/sec-investigating-nft-market-over-potential-securities-violations-reports)
+
+翻译：洛杉矶盘古农场 – maru
+
+校对：洛杉矶盘古农场 – Mike Li
+
+评论：洛杉矶盘古农场 – maru
+
+编辑：洛杉矶盘古农场 – Wendy
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
