@@ -2,20 +2,35 @@
 ---
 
 
-## 七哥说—第54期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2122406/)
+## 美国国务卿到访乌克兰 与乌克兰外长会晤
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2122463/)
 
-制作：Inzaghi
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+盖特消息，当地时间3月5日，美国国务卿布林肯突然到访乌克兰，并且在乌克兰境内与乌克兰外长会晤。
 
-**天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
-不抛弃，不放弃的正是你心中那一份对信念的坚定。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-1.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥说_郭先生_普大帝_习太阳.png)
+乌克兰外长库莱巴谈到，美国以及盟国提供的武器，帮助乌克兰摧毁俄罗斯的装甲车辆和坦克。 他向包括美国在内的、所有对乌克兰提供毒刺导弹的国家，表示感谢。乌克兰军人有效地利用毒刺导弹，击落俄军的轰炸攻击机，抵抗俄罗斯的侵略。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥说_郭先生_教育_疫苗灾难_中共病毒.png)
+他表示乌克兰目前亟需战斗机、攻击机和防空系统等大型防空武器，来保卫乌克兰人民的生命。同时，乌克兰希望得到国际社会更多的帮助和支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-4.jpeg)
+参考链接：[https://gettr.com/post/pyio2l79d3](https://gettr.com/post/pyio2l79d3)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
+总编：文真
+编辑：Ivy001  
+审核：Ivy001
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

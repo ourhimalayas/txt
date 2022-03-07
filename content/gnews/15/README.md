@@ -2,33 +2,32 @@
 ---
 
 
-## 以色列调查：加强针造成的伤害比想象的要多
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2122187/)
+## 为所有人祈福！
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2122319/)
 
-翻译： Jenny Ball
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-649.png)图片来源：childrenshealthdefense.org
+2022-03-02直播摘录
 
-根据以色列卫生部进行的一项调查，与该国的被动报告系统所显示的相比，更多的以色列人在接受 COVID-19 加强注射后受到伤害和反应。
+咱们现在为他们祈福一下，咱赶快为这些战友的平安、安全祈福一下。愿万佛万神赐给我们无穷无尽的力量，和上天的法力、大自然的魅力能结合在一起，让我们在乌克兰的所有的战争中的同胞都得到安全，特别是我们香草山和香港的战友们能安全地到达，和我们战友会合、聚集，希望他能得到万佛万神的庇佑。阿弥陀佛！阿弥陀佛！
 
-卫生部对加强注射接受者进行了主动调查，以收集与加强剂量相关的不良事件数据，然后，将调查数据与该国被动报告系统提供的数据进行比较。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-调查得出结论，以色列的被动报告系统严重低估了不良事件。
+**关注我们**
 
-以色列调查的数据可以提供一些洞察力，以了解美国发生的漏报程度。
+Discord 账号
 
-它还可以证实CDC所忽略的安全信号。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-**评论：根据周三发布到辉瑞报批文件，这些不良反应都罗列在文件中，所以，用CDC “忽略 “ 安全信号就完全与事实相悖，应该是CDC有意向民众隐藏安全警告！而且，采用被动报告的形式，继续欺骗民众。更详细的调查结果请阅读另文专译。**
+Gettr 账号
 
-素材链接：[childrenshealthdefense.org][Booster Shots Causing More Injuries Than Previously Thought, Israeli Survey Shows](https://childrenshealthdefense.org/defender/booster-shots-more-injuries-israeli-survey/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ba831bd2-59ec-4f9b-999b-c1bbb0f40d90)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-* * *
-
-*审核：文乐
-校对：小东
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

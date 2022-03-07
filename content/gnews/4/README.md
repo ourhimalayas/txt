@@ -2,26 +2,24 @@
 ---
 
 
-## 美国国务卿到访乌克兰 与乌克兰外长会晤
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2122463/)
+## 乌克兰将从世界银行获得七亿美元贷款
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2122503/)
 
-作者：纽约香草山农场 文真
+作者：纽约香草山 信息部 6zero4
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-盖特消息，当地时间3月5日，美国国务卿布林肯突然到访乌克兰，并且在乌克兰境内与乌克兰外长会晤。
+美国媒体报道，3月4日，世界银行行长马尔帕斯与乌克兰总统泽连斯基通话，确认了世界银行正在为乌克兰提供的金融援助。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7.jpeg)
 
-乌克兰外长库莱巴谈到，美国以及盟国提供的武器，帮助乌克兰摧毁俄罗斯的装甲车辆和坦克。 他向包括美国在内的、所有对乌克兰提供毒刺导弹的国家，表示感谢。乌克兰军人有效地利用毒刺导弹，击落俄军的轰炸攻击机，抵抗俄罗斯的侵略。
+世界银行将在本月对乌克兰发放七亿美元贷款，其中包括两亿美元的紧急金融支援。世界银行董事会正在审查一项五亿美元的贷款提议。该提议被称为“乌克兰经济紧急状况复苏融资”。同时，将设立一个多捐赠方信托基金，以帮助将来自全球的赠款资源及时输送到乌克兰。
 
-他表示乌克兰目前亟需战斗机、攻击机和防空系统等大型防空武器，来保卫乌克兰人民的生命。同时，乌克兰希望得到国际社会更多的帮助和支持。
-
-参考链接：[https://gettr.com/post/pyio2l79d3](https://gettr.com/post/pyio2l79d3)
+参考链接：[Ukraine may receive $700M in planned loans from World Bank](https://www.foxbusiness.com/markets/ukraine-loans-world-bank)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
 总编：文真
-编辑：Ivy001  
-审核：Ivy001
+编辑：Jack Li文阳     
+审核：文真
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
