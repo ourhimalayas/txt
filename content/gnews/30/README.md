@@ -2,44 +2,18 @@
 ---
 
 
-## 中共两会开幕 330名代表、委员缺席会议
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2118104/)
+## 俄乌战争｜美国防部高官：俄罗斯已投入95%的战力攻打乌克兰
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2118202/)
 
-作者：台湾宝岛农场 – dobi
+**撰文/ 港台前线｜发布日期/ 07/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/美國防部高官：俄羅斯已投入95的戰力攻打烏克蘭.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
+CNN引述美国一名国防高官指，自俄罗斯入侵乌克兰以来，一共发射了大约600枚导弹，并已将95%的战力集结在乌克兰境内。
 
+据该名官员表示，美国于周日（6日）观察到，乌克兰南部城市赫尔松（Kherson）和尼古拉耶夫（Mykolaiv）战斗持续，而俄军仍在试图包围基辅、卡尔可夫（Kharkiv）、切尔尼戈夫（Chernihiv）及马里乌波尔（Mariupol）。不过，由于遭到了乌方的强烈抵抗，俄方的进攻进度有所减缓。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-据外媒报导，中共全国政协会议和全国人民代表大会先后于3月4日和5日在北京开幕，有330名人大代表和政协委员缺席两会会议，其中包含港区人大代表、政协委员等，缺席人数创历届之最。报导还指出，除了香港代表因疫情原因缺席两会外，大陆数百名代表缺席的原因未明，引发了舆论关注和多方揣测。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11.jpg)
-众多缺席代表委员中，中共全国政协副主席杨传堂，自2021年7月之后从未公开露面；去年11月缺席六中全会的全国政协副主席王正伟、内蒙古政府前主席布小林、北京市长陈吉宁和前司法部党组书记袁曙宏等人，目前也未确定是否出席此次两会。
-
-有分析人士称，中共高层各派明争暗斗，不断有官员落马被查，应是一些官员缺席这次两会的重要原因之一。此现象也隐约预示：中共政权已是四面楚歌、危如累卵。
-
-参考链接：
-[中共兩會開幕 330名代表和委員缺席會議](https://www.epochtimes.com/b5/22/3/5/n13623968.htm)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+来源｜[CNN](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-03-06-22/h_9a75a46d4bfa8041016b60472351f411)
 
  
 

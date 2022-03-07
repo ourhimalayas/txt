@@ -2,29 +2,25 @@
 ---
 
 
-## 国际柔道联合会解除普京总统的名誉主席等职务
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2118425/)
+## 有声｜中共在乌克兰被入侵前3个月已知俄计划
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2118536/)
 
-2022-03-06
+**By:秘翻新闻**
 
-翻译：文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/03/VO4AFFQUNPU1F6SL.png)照片来源：https://www3.nhk.or.jp
-国际柔道联合会在网站上宣布，解除俄罗斯总统弗拉基米尔·普京联合会名誉主席等所有职务。
+**2022-03-07**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-07-下午1.47.13.png)图片源自:大纪元
+**[3月5日《大纪元时报》报导。一位供应链分析师援引内幕消息称，大约三个月前，中共改变了从俄罗斯订购商品的方式，以便在西方对莫斯科实施制裁的情况下保持交往。此举表明中共已经预见到俄罗斯入侵乌克兰的计划，并已做好应急措施以确保在制裁期间仍能进口俄罗斯商品。](https://www.theepochtimes.com/china-changed-supply-chain-strategy-with-russia-3-months-ahead-of-ukraine-invasion-showing-it-had-foreknowledge-analyst_4317762.html)**
 
-根据日本NHK3月7日消息，国际柔道联合会6日更新了网页内容，在俄罗斯军事入侵乌克兰之后，IJF （国际柔道联合会）在网站上宣布，解除俄罗斯总统弗拉基米尔·普京(Vladimir Putin)担任的联合会名誉主席等所有职务。
+**[大约在11月或12月，中共国将购买其俄罗斯谷物、原油和石化等产品的保险期，改在购买后立即生效。这是不同寻常的做法，因为在大量海运中，通常是卖方而不是买方承担货物的责任。而现在是中共买家承担这些风险。](https://www.theepochtimes.com/china-changed-supply-chain-strategy-with-russia-3-months-ahead-of-ukraine-invasion-showing-it-had-foreknowledge-analyst_4317762.html)**
 
-普京总统从13岁开始练习柔道，是一位取得了段位的高手，作为柔道爱好家，广为人知。
+**[这一转变表明，中共当局“至少在一段时间内，肯定知道俄罗斯关于乌克兰的计划”。而美国一位高级政策顾问最近表示，由于担心普京会发动“鲁莽入侵”乌克兰，白宫曾提前与中共接触，希望它能协助避免一场战争，但被中共拒绝了。](https://www.theepochtimes.com/china-changed-supply-chain-strategy-with-russia-3-months-ahead-of-ukraine-invasion-showing-it-had-foreknowledge-analyst_4317762.html)**
 
-国际柔道联合会上个月取消了在俄罗斯喀山举行的柔道国际赛事，同时宣布允许俄罗斯队员在不使用俄罗斯国旗或国歌的情况下参加比赛。
+（ 秘翻新闻 文雀 编译报道 ）
 
-消息来源：[国際柔道連盟 プーチン大統領の名誉会長など全職務を解任](https://www3.nhk.or.jp/news/html/20220307/k10013517941000.html)
+发布:星星
 
-编辑：LILY
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

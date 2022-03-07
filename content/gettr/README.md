@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@rockvision 3/7/2022 5:37 AM (UTC)`
+
+@Helen<br/> March 7th, 4am local time. The children and their teachers arrived in Poland on a bus from Ukraine, escorted by the NFSC volunteers. The NFSC has arranged for them to stay in a local hotel.
+![img](https://media.gettr.com/group16/gvision/2022/03/07/05/a09f4d24-0037-7c92-fd79-881e4ebb7bcf/out.jpg)
+
+---
+
 `@miles 3/7/2022 5:22 AM (UTC)`
 
 3/6/2022 Miles Guo: Fellow fighters must be prepared to deal with the impacts of the collapse of the world economy on the Chinese people and the adverse consequences of the CCP's invasion of Taiwan. Citizens of the New Federal State of China must step outside the standard set by the mainstream media and Western governments. Our rescue mission in Ukraine has shown the world the positive image of the New Federal State of China, proving by our actions that the CCP is not equal to the Chinese people.<br/><br/>3/6/2022 文贵直播: 战友要做好准备应对世界经济崩溃对华人的影响和中共攻打台湾的恶果；新中国联邦人要跳出主流媒体和西方政府定的标准；我们的乌克兰救援行动向世界展示了新中国人联邦的良好形象，以行动证明了中共不等于中国人。
@@ -147,13 +156,6 @@ FDA Releases BOMBSHELL Pfizer Covid Virus Vaccine Data With Over 1,200 Side Effe
 
 3/06/2022 Miles Guo: Why did the US court not make a ruling requiring Pfizer to release the documents related to the COVID vaccines? Why is this not covered in the English-speaking world? We don't know the real stories behind many events.<br/><br/>3/06/2022 文贵直播：为什么美国法院直到现在才做出判决要求辉瑞公布有关疫苗的文件？为什么这件事在英文世界没人报道呢？很多事件背后的真实故事是我们不知道的<br/>
 ![img](https://media.gettr.com/group47/getter/2022/03/06/21/909b2c3a-8a53-5800-b922-d585e5249ffc/out.jpg)
-
----
-
-`@miles 3/6/2022 8:20 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-最前线跟踪报道
-![img](https://media.gettr.com/group8/origin/2022/03/06/19/0a988019-b522-8171-5333-7bd0df1e7404/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

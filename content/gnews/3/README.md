@@ -2,46 +2,44 @@
 ---
 
 
-## 被绑24年横跨江泽民胡锦涛习近平的锁链女是全党作案
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2118573/)
+## SEC主席：中共250家企业可能在2024年被摘牌
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2118674/)
 
-Youtube视频链接：[https://youtu.be/fFo9xr6Ypn4](https://youtu.be/fFo9xr6Ypn4)
+作者：银河系农场 – 骄子
 
-Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
-**郭文贵先生：**除此之外 ，咱们那个哥们儿给我讲一个，他说：“你说现在在党内在想啥啊？这还用说吗？这事儿少吗？天天都在发生啊！我们从来没承诺、从来没对外说‘中国没有贩卖妇女的’ ，贩卖妇女是常态呀。而且现在很多人在批评习近平，你们真的要公平地说，这个女孩24年了被绑架，锁链24年，横跨江泽民、胡锦涛、习近平，这事儿不是习近平干的，是江泽民、胡锦涛干的。”
 
-你觉得这事儿没报道过吗？我告诉你这个女孩儿的事情在当地就被报道过，谁压下的？当年就有报道过，差点儿就找着了，包括寄出去的信，寄到这个女孩儿家里的信，信被（人）给拿掉了，谁拿掉的？这里边儿的意思大了去了！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-一，全党作案；第二，横跨三代24年；第三，这里边儿充满了迷信、祭祀、掩盖政治、相互欺骗，然后这次被爆出以后，又演了一把互相骗中央、中央骗地方、地方互相骗，然后篡改名字、篡改故事。
 
-说这个国家，你发现咱刚才说的这一切的话，就跟着两件事儿发现了吗？假，就是假，一切都是假的；第二就骗，一切都是骗。
 
-编辑整理：Jacques；
+据美国媒体3月5日消息，美国证券交易所SEC主席在本周接受采访时说，如果中共继续不遵守美国上市公司的规定，那么2024年预计会有250家中共公司被驱离美国股市，包括知名的中共大型科技公司阿里巴巴、百度、京东等。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide13.jpg)
+2020年，中共瑞幸的财务造假问题使美国投资者遭受了巨大损失。美国投资者意识到他们对中共公司的财务状况并不知晓，然而中共公司依然能够在美国股市进行自由交易，这种危机迫使美国出台相关法律，使中共公司或者退市，或者遵守财务透明规定，披露是否被外国政府持有或控制等相关讯息。
 
-字幕文件制作：兵嫂；
+SEC主席表示，在美国上市的公司必须遵守美国的投资者保护规则，中共公司当然不能例外，尤其要允许查看中共财务审计的内部情况，包括审计师本身。
 
-视频制作及上传：Cindy；
+参考链接：
+[SEC Chair: Roughly 250 Chinese companies could be delisted ‘as early as 2024’](https://finance.yahoo.com/news/sec-chair-roughly-250-chinese-companies-could-be-delisted-as-early-as-2024-122037497.html)
 
-G-News发布：小满；
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+总编/编辑/审核：飞虹
+校对/发稿：为真不破20
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+**更多资讯，更多关注**
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

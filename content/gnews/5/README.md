@@ -2,25 +2,32 @@
 ---
 
 
-## 有声｜中共在乌克兰被入侵前3个月已知俄计划
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2118536/)
+## 今日盖特大V推荐 — 安·库尔特（Ann Coulter）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2118652/)
 
-**By:秘翻新闻**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-567.png)
+盖特链接：**[https://gettr.com/user/anncoulter](https://gettr.com/user/anncoulter)**
 
-**2022-03-07**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-07-下午1.47.13.png)图片源自:大纪元
-**[3月5日《大纪元时报》报导。一位供应链分析师援引内幕消息称，大约三个月前，中共改变了从俄罗斯订购商品的方式，以便在西方对莫斯科实施制裁的情况下保持交往。此举表明中共已经预见到俄罗斯入侵乌克兰的计划，并已做好应急措施以确保在制裁期间仍能进口俄罗斯商品。](https://www.theepochtimes.com/china-changed-supply-chain-strategy-with-russia-3-months-ahead-of-ukraine-invasion-showing-it-had-foreknowledge-analyst_4317762.html)**
+**安·库尔特克自述：**
 
-**[大约在11月或12月，中共国将购买其俄罗斯谷物、原油和石化等产品的保险期，改在购买后立即生效。这是不同寻常的做法，因为在大量海运中，通常是卖方而不是买方承担货物的责任。而现在是中共买家承担这些风险。](https://www.theepochtimes.com/china-changed-supply-chain-strategy-with-russia-3-months-ahead-of-ukraine-invasion-showing-it-had-foreknowledge-analyst_4317762.html)**
+作家
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-568.png)图片来源：网络
+**安·库尔特简介：**
 
-**[这一转变表明，中共当局“至少在一段时间内，肯定知道俄罗斯关于乌克兰的计划”。而美国一位高级政策顾问最近表示，由于担心普京会发动“鲁莽入侵”乌克兰，白宫曾提前与中共接触，希望它能协助避免一场战争，但被中共拒绝了。](https://www.theepochtimes.com/china-changed-supply-chain-strategy-with-russia-3-months-ahead-of-ukraine-invasion-showing-it-had-foreknowledge-analyst_4317762.html)**
+安·库尔特，全名安·哈特·库尔特（Ann Hart Coulter 生于1961年12月8日）是美国保守派媒体专家、作家、联合专栏作家、政治评论员和律师。
 
-（ 秘翻新闻 文雀 编译报道 ）
+安·库尔特在1990年代后期以媒体专家的身份而闻名，作为对克林顿政府的直言不讳的批评者出现在印刷品和有线新闻中。库尔特写了13本书，出版了一个联合报刊专栏。她的第一本书涉及弹劾比尔·克林顿（Bill Clinton）。
 
-发布:星星
+安·库尔特曾在美国参议院司法委员会工作。她还是美国一家非营利性公益律师事务所“个人权利中心（CIR ）”的律师。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,29 @@
 ---
 
 
-## 有声｜美国国务卿称北约国家同意向乌克兰派遣战机
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2118445/)
+## 韩国将切断与俄罗斯央行的交易
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2118613/)
 
-By:**秘翻新闻**
+文 / 陈慧璋
+发布 / 2022年3月7日 11:58 AM
+采集：玫瑰新闻组
 
-**2022-03-07**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-18.png)图片来源 福克斯新闻
-[据《福克斯新闻》3月6日报道，美国国务卿安东尼·布林肯周日表示，北约国家已经为向乌克兰派遣战机开了 “绿灯”。](https://www.foxnews.com/world/nato-countries-green-light-send-fighter-jets-ukraine-blinken)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3076.jpg)韩国再次加大对俄罗斯的制裁力度。（法新社）
 
-[据报道，美国一直在考虑与波兰达成协议，向华沙派遣美国战机，以取代这个北约国家派往乌克兰的任何苏联时代的战斗机。](https://www.foxnews.com/world/nato-countries-green-light-send-fighter-jets-ukraine-blinken)
+（早报讯）韩国外交部周一（3月7日）宣布，韩国政府决定切断与俄罗斯中央银行的交易。
 
-[据《华尔街日报》报道，在周六与280多名美国立法者进行的放大电话会议上，乌克兰总统沃洛季米尔·泽伦斯基说，乌克兰更需要战斗机，而不是美国同意的防空导弹。](https://www.foxnews.com/world/nato-countries-green-light-send-fighter-jets-ukraine-blinken)
+韩联社报道，这是自西方国家因俄罗斯入侵乌克兰以来，韩国再次加大其对俄罗斯的制裁力度。
 
-[据报道，纽约州参议院多数党领袖查克·舒默周日提到了这一恳求。舒默说，如果其他国家——如波兰——决定向乌克兰提供苏联时期的喷气式飞机，他支持美国给予它们帮助。](https://www.foxnews.com/world/nato-countries-green-light-send-fighter-jets-ukraine-blinken)
+韩国外交部2月28日表示，韩国政府谴责俄罗斯对乌克兰的武力入侵，作为国际社会负责任的一员，为了和平解决事态，决定积极参与包括经济制裁在内的国际社会的努力。
 
-[另一方面，泽伦斯基呼吁在乌克兰上空设立禁飞区，但仍然没有得到美国的支持。](https://www.foxnews.com/world/nato-countries-green-light-send-fighter-jets-ukraine-blinken)
+韩国原本对制裁俄罗斯采取消极态度，至2月27日为止，在美国为追究俄罗斯入侵乌克兰的责任而公布的出口管制措施中，欧盟27国和日本、澳大利亚、英国、加拿大、新西兰等豁免，而没参与对俄制裁的韩国未能得到豁免。韩国主要媒体纷纷报道此消息后，韩国政府2月28日下午改变态度，宣布加入对俄制裁的行列。
 
-秘翻新闻 Grace编辑报道
+新闻链接：
+[韩国将切断与俄罗斯央行的交易](https://www.zaobao.com.sg/realtime/world/story20220307-1249680)
 
-发布 : 恩典
+**审核校对：Barry Jack
+上传排版：V在途中**
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

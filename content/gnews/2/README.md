@@ -2,30 +2,26 @@
 ---
 
 
-## 布林肯称美国和欧洲正在讨论禁止进口俄罗斯石油
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2118581/)
+## 俄罗斯银行在被制裁后转入中共国信用卡系统
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2118675/)
 
-![俄烏衝突〉不斷更新/布林肯：美、歐討論禁止進口俄國石油| Anue鉅亨- 國際政經](https://cimg.cnyes.cool/prod/news/4824816/l/0aafe5379d04014b323b83b5514dffa8.jpg)美国国务卿布林肯（资料图）
-据路透社3月6日报道，目前正在欧洲访问的美国国务卿布林肯周日表示，美国和欧洲盟国正在积极研究禁止进口俄罗斯石油。据消息人士说，欧洲依赖俄罗斯的原油和天然气，但在过去24小时，他们对禁止俄罗斯产品的态度变得更为开放。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-41.jpg)
+图片来源： 6do.news
 
-与此同时，美国众议院议长佩洛希在周日的一封信中也表示，众议院正在“探索”禁止进口俄罗斯石油的立法。消息人士说，白宫也正与参议院财务委员会和众议院筹款委员会讨论推进他们自己的禁令。
+零对冲网3月6日报道，在俄罗斯入侵乌克兰后不久俄罗斯的信用卡（威士卡和万事达卡）被停用，泽连斯基要求各公司停止与俄罗斯交易，并要求美国立法机构注意，在俄罗斯被踢出西方金融系统后必然会用中共国银联卡，有数百万俄罗斯人用该信用卡系统。
 
-俄罗斯入侵乌克兰后，白宫对俄罗斯的制裁涉及炼油厂和北溪二号天然气管道，但到目前为止没有将俄罗斯的石油和天然气出口作为目标，因为拜登政府正在权衡这样做对全球石油市场和美国能源价格的影响。
+路透社证实，周日俄罗斯几家银行周日说在威士卡和万事达卡宣布暂停在俄罗斯境内的服务后，他们不久将用中共国银联卡操作系统与俄罗斯自己的米尔网络相联结。
 
-新闻参考链接：[https://cn.reuters.com/article/eu-usa-russian-oil-0306-sun-idCNKBS2L408L](https://cn.reuters.com/article/eu-usa-russian-oil-0306-sun-idCNKBS2L408L)
+这将使俄罗斯可以更多地在国外进行支付，因为银联卡在全球180个国家和地区使用。
 
-编辑: MQ
+威士卡公司说在俄罗斯的用户仍然可以在俄罗斯境内购买物资和服务，但不能转账，美国运通卡公司也将不能在俄罗斯取钱，贝宝公司也宣布关闭在俄罗斯的业务。
 
-* * *
+这是全球支付系统公司新近加入的对俄罗斯的制裁行动以对抗俄罗斯对乌克兰的侵略。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+##### 新闻来源： [Russian Banks Switch To Chinese Card System As AmEx Joins Visa & MasterCard In Suspending Russian Operations](https://www.zerohedge.com/geopolitical/russian-banks-switch-chinese-card-system-amex-joins-visa-mastercard-suspending-russian)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+#  
 
  
 

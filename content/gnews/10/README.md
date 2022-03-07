@@ -2,31 +2,42 @@
 ---
 
 
-## 美国与波兰协商向乌克兰援助米格-29战斗机
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2118477/)
+## 任何族类没有我们中国人这样相信谎言维护谎言享受谎言
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2118627/)
 
-**撰稿：日本东京方舟农场  北极**
+Youtube视频链接：[https://youtu.be/Yid0RFzqOe4](https://youtu.be/Yid0RFzqOe4)
 
-据大纪元3月7日报道，拜登政府正在与波兰协商，如何有针对性地向乌克兰援助苏式米格-29战斗机。
+Youtube视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-66.png)图为MiG-29战机。（图片来自大纪元）
+**郭文贵先生：**中国人这个假，你能想到路大脑袋、蛇妖闫，小手儿，路大脑袋小手，九指，“咔”来了，是吧？“上帝呀，我代表上帝呀，我给你自由啊，我要开傻币呀！” 然后“绿帽子”塞林爹，“70天就来啦，拯救全人类啦” ，然后美国的什么这部队…… 他连美国部队的毛儿都没摸着过。还有就是蛇妖闫：“我就代替‘爆料革命’啦，10个鸡蛋，不行给你炒10个鸡蛋，不行变俩鸡蛋”；还有那什么什么从不露脸的癌症丽，还有那个找爹博……
 
-此前，乌克兰总统弗拉基米尔‧泽连斯基（Volodymyr Zelensky）向美国国会议员请求获得更多武器援助，特别是乌克兰飞行员会操作的苏式战机。
+而且中国人信这一套，最可怕的是中国人信这一套。兄弟姐妹们你们想想，你见过人类上有比中国人再相信谎言的吗？而且维护谎言的吗？经营谎言的吗？你去想想，全人类，我真的想不出任何词、任何历史、任何族类像我们中国人如此地相信谎言，如此地维护谎言，而且现在活在谎言中，享受谎言中。利益在谎言中，未来在谎言中。
 
-白宫表示，正在与波兰讨论一项用美国F-16战机换取波兰苏式战机的协议。
+编辑整理：Jacques；
 
-波兰、保加利亚和斯洛伐克等几个东欧国家在各自库存中保留了数十架俄罗斯制造的飞机。
+字幕文件制作：兵嫂；
 
-波兰自2006年首次飞行F-16战机，随后一直在对国家机队进行现代化改造，并在2020年签署了购买32架F-35战机的交易，其中第一架将于2024年到货，从而使那些较旧的俄制战机成为淘汰品。
+视频制作及上传：Cindy；
 
-美国国务卿安东尼‧布林肯（Antony Blinken）周日（3月6日）上午证实，美国正在与波兰合作制定向乌克兰援助这些飞机的计划。
+G-News发布：小满；
 
-参考链接：
-1.[https://www.epochtimes.com/gb/22/3/6/n13626518.htm](https://www.epochtimes.com/gb/22/3/6/n13626518.htm)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-撰稿：北极
-总编：老孙
-校对发布：爱放飞
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,47 +2,30 @@
 ---
 
 
-## 银行业监管机构称中共国不会加入对俄罗斯的制裁
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2118112/)
+## 中日财经爆|与建行有深度合作的俄罗斯外贸银行准备撤出欧洲市场
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2118220/)
 
-***评论：**西方国家对俄罗斯制裁，是因为俄罗斯入侵了乌克兰，中共国在联合国大会紧急特别会议关于乌克兰局势决议草案中投了弃权票，和俄罗斯关系越来越密切，世人皆知，说影响有限，是不是心虚，他们自己清楚。*
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片9.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fd39raawggeifpx.cloudfront.net%2Fstyles%2F16_9_desktop%2Fs3%2Farticleimages%2F5bfce4f3370f2c28148b45db.jpg&amp;imgrefurl=https%3A%2F%2Fwww.intellinews.com%2Fukraine-unit-of-russia-s-vtb-bank-goes-bankrupt-152)
+据英国金融时报周日（3月6日）报导，在受到西方制裁的严重打击后，俄罗斯外贸银行(VTB)准备结束其欧洲业务。
 
-据《路透社》记者Kevin Yao 2022年3月2日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-559-e1646626363938.png)中国银行保险监督管理委员会（CBIRC）主席郭树清于2021年3月2日在中国北京出席新闻发布会。REUTERS/Tingshu Wang
-《路透社》北京3月2日 – 中国银行业监管机构周三表示，中共国不会加入由西方主导的对俄罗斯的制裁，并补充说他认为这些措施对中国的影响将是有限的。
+VTB在伦敦有一个投行部门，在德国有一家零售银行，拥有16万名客户。金融时报援引了解内部讨论情况的人士称，在该行资产被西方冻结后，它判定无法在俄罗斯以外的地区经营。
 
-中共国拒绝谴责俄罗斯入侵乌克兰，一再批评其所谓的非法和单边制裁。
+路透社周三曾报导，俄罗斯第二大银行VTB的欧洲分部正在为可能的关闭做准备，因为人们越来越担心俄罗斯入侵乌克兰后西方制裁对该银行的影响。
 
-“就金融制裁而言，我们不赞成，尤其是单方面发起的制裁，因为它们效果不佳，没有法律依据，”中国银保监会主席郭树清在一场新闻发布会上说。
+2013年5月23日，中国建设银行在其网站上发布的新闻稿称，该行近日成功参与俄罗斯外贸银行(VTB)新股增发，投资金额为1亿美元。俄罗斯外贸银行在当日早些时间也宣布了此项消息。VTB为俄罗斯第二大银行，由俄罗斯联邦政府控股。
 
-“我们不会参与此类制裁。我们将继续与有关各方保持正常的经贸往来。”他说。
+建行与俄罗斯外贸银行在2013年1月签署了《中国建设银行与俄罗斯外贸银行框架合作协议》。双方表示，将在贸易融资、卢布和人民币结算、银行间贷款服务、投资银行、零售业务等金融业务领域进行广泛合作，并将为各自在对方境内设立的分支机构提供必要支持。这是迄今为止两国金融机构间首次规模较大、影响较深的全面战略合作。
 
-近年来，中共国和俄罗斯的关系越来越密切，包括作为贸易伙伴。根据中国海关数据，去年两国贸易总额增长 35.9%，达到创纪录的 1469 亿美元，其中俄罗斯是石油、天然气、煤炭和农产品的主要来源，对华贸易顺差。
+消息来源:
 
-“到目前为止，制裁对中国经济和金融部门的影响还不是很大。”郭补充道。
+[俄罗斯外贸银行准备撤出欧洲市场–英国金融时报](https://cn.reuters.com/article/vtb-plan-exit-europe-0306-sun-idCNKBS2L401Z?il=0)
 
-“总体而言，即使在未来，它们（对中国）也不会产生太大影响，”郭说，并引用了中国经济和金融部门的韧性。
+[建设银行1亿元投资俄罗斯第二大银行VTB](http://sd.ifeng.com/cj/caifutouzi/detail_2013_05/24/834988_0.shtml)
 
-文章观点仅代表作者个人，与Gnews平台无关。
-
-文章来源：[https://www.reuters.com/markets/europe/china-banking-regulator-sees-limited-impact-sanctions-russia-2022-03-02/](https://www.reuters.com/markets/europe/china-banking-regulator-sees-limited-impact-sanctions-russia-2022-03-02/)
-
-翻译：洛杉矶盘古农场 – Raul
-
-校对：洛杉矶盘古农场 – 轰炸机
-
-评论：洛杉矶盘古农场 – 傻小子
-
-编辑：洛杉矶盘古农场 – 傻小子
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
