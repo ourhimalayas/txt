@@ -2,37 +2,40 @@
 ---
 
 
-## 有声|美前参谋长联席会议主席称坚决支持台湾
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2116559/)
+## 波兰与乌克兰边境Hrebenne
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2116638/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-盖特3月3日消息，受拜登总统派遣，美国前参谋长联席会议主席、退役海军上将马伦于3月1日访问台湾。马伦表示：美国将坚守对台湾的承诺。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-243-1.png)[图源网络](https://www.dw.com/zh/%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E4%BB%A3%E8%A1%A8%E5%9B%A2%E4%B8%BA%E4%BD%95%E4%BA%8E%E6%95%8F%E6%84%9F%E6%97%B6%E6%9C%BA%E8%AE%BF%E5%8F%B0/a-60989566)
-马伦说，此次访问表达了美国政府对美台之间持续增长的重要伙伴关系的支持。当前全世界正面临罕见的困难和关键时刻，民主正面临着令人担忧的挑战。俄乌战争表明，民主比以往任何时候更需要捍卫。美国坚决反对任何单方面改变现状的意图，并将持续以台湾人民的意愿和最大利益为基准，和平解决台海问题。
+意大利罗马达芬奇农场：Shuizhuyu
 
-马伦强调说，希望他的访问，能向蔡英文总统和台湾人民，以及美国在印太地区的盟友和伙伴保证，美国将坚定地信守自己的承诺。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-3.jpg)
 
 
+意大利农场的战友们， 第一时间就到达了救援前线， 波兰和乌克兰的边境城市Hrebenne。
 
-文字版原文：[美前参谋长联席会议主席称坚决支持台湾](https://gnews.org/zh-hans/2110286/)
+现在给大家发来几张从前线发来的照片， 是意大利农场的阿娜随手拍下的现场照片。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+从照片上可以看到， 有很多的热心人在边境提供免费的食物。 还有建起了很多临时的接待点和帐篷。 边境的人们都尽自己的可能提供给难民一些帮助。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+这些难民都是九死一生从战火中逃出来的。 他们是不幸的，遇到了战争， 而他们也是幸运的， 他们得到救助， 他们到达了安全的边境。 至少他们没有了生命危险。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-1.jpg)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-2.jpg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-4.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-5.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/03-06-6.jpg)
+
+
+战争是残酷的，生死只在以秒计算的时间里。
+
+发表： Shuizhuyu
 
  
 

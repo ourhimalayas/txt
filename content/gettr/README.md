@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/7/2022 12:01 AM (UTC)`
+
+3/6/2022 Miles Guo: The biggest significance of the judge's ruling on Pfizer is that it has proven the COVID vaccine is a poison, which is illegal and has never been medically approved whatsoever. The vaccinated people shall seek treatment to get rid of the toxin of the COVID vaccine ASAP. Those Chinese people who are brainwashed by the CCP will blame the COVID vaccine disaster on the US.<br/><br/>3/6/2022 文贵直播：法官对辉瑞做出的判决的最大意义是做实了疫苗是未经医学认可的违法的毒药；打了疫苗的人赶紧去治病排毒吧！被中共洗脑的中国人会把疫苗灾难甩锅给美国<br/>
+![img](https://media.gettr.com/group6/getter/2022/03/07/00/5bd4bd6f-ef3b-ea19-9d94-9d40ad58762c/out.jpg)
+
+---
+
+`@miles 3/6/2022 11:56 PM (UTC)`
+
+3/06/2022 Miles Guo: When will the world economy start to collapse? Putin's time is over, and Xi Jinping is not in good health such that he will certainly attack Taiwan quickly. The Russia-Ukraine war has led the whole world to hate Xi and the Chinese people. However, the Chinese people, who are kidnapped by the CCP, are forced to take the blame for supporting Russia.<br/><br/>3/06/2022 文贵直播：世界经济何时开始崩溃？普京的时代已结束，习太阳身体撑不住，一定会迅速打台湾；俄乌战争让全世界都恨习和中国人，而中共绑架的中国人却被迫背上了支持俄罗斯的黑锅<br/>
+![img](https://media.gettr.com/group19/getter/2022/03/06/23/d69c8032-6563-4999-dd31-c6f758556bd8/out.jpg)
+
+---
+
 `@miles 3/6/2022 11:32 PM (UTC)`
 
 新中国联邦法治基金乌克兰救援 飞飞秀特别节目 2020 0306
@@ -138,20 +152,6 @@ Ukrainian American actively involved in this Ukrainian rescue operation of the N
 
 新中国联邦法治基金乌克兰人道救援行动-最前线跟踪报道
 ![img](https://media.gettr.com/group33/origin/2022/03/05/10/896f6e5e-1eed-fc85-35fd-6a115e3e52f8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/5/2022 10:20 AM (UTC)`
-
-⚠️⚠️Expose The Timeline of Chinese Communist Party and Russia Alliance’s Military Ambitions <br/><br/>Russia has invaded Ukraine and the world geopolitical landscape has been turned upside down. As the center of intelligence community, Mr. Guo continues to share important intelligence to Western democratic countries and people around the world. The shared intelligence has saved countless people and at the same time provided an important basis for Western democratic countries’ political strategies. People from the NFSC will always stand with the righteous people of the world!<br/><br/>⚠️⚠️关于揭露中共与俄罗斯结盟的军事野心的爆料时间线：俄罗斯已经入侵乌克兰，世界地缘政治格局发生了翻天覆地的变化。郭文贵先生早在2017年就不断警告——“黑暗已经来临，我们每个人都应该做好准备”。作为情报的汇聚点，郭先生不断向西方民主国家和全世界人民爆料重要的情报信息。新中国联邦的情报拯救了无数人，同时也为西方民主国家的政治决策提供了重要依据。新中国联邦人将永远与全世界正义的人们站在一起！
-![img](https://media.gettr.com/group17/origin/2022/03/05/10/ae09fab6-5e64-f2b5-545a-86c4f72b0f85/out.jpg)
-
----
-
-`@miles 3/5/2022 9:40 AM (UTC)`
-
-3月5号：尊敬的战友们好．是母亲给了我们的生命也影响了我们的一生……母亲也是国家和一个民族的未来的开始……！一个不懂得尊敬母亲的人和民主是不会有未来的，让我们一起到乌克兰拯救那些被战火<br/>威胁的母亲和孩子吧……
-![img](https://media.gettr.com/group33/getter/2022/03/05/09/930f2c3e-4926-7923-4a79-54b15b6411d3/out.jpg)
 
 ---
 
