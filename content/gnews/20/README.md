@@ -2,26 +2,40 @@
 ---
 
 
-## 与俄罗斯关系“坚如磐石”的中共要做俄乌战争调解人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2122509/)
+## 纳斯卡车队多方支援乌克兰抵御侵略
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2122527/)
 
-撰稿：西枫westca
+作者：纽约香草山教育部- Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，应乌克兰总统泽伦斯基的要求，纳斯卡车队老板理查德-柴尔德里斯承诺为乌克兰捐赠一百万发弹药。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-5-1.jpg)图片来源：网络照片
-据华盛顿邮报3月7日报道，中共外交部长王毅准备充当乌克兰和俄罗斯之间的调解人，愿意在必要时与国际社会共同努力，发起必要的调解，在敦促和谈方面发挥建设性作用。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-3.jpeg)
 
-王毅暗示道，习近平在2月25日与普京通话时就表示中共希望“尽快”开始和平谈判。与此同时，王毅排除了战争带来的外交影响可能破坏中国与俄罗斯日益紧密的关系的可能性，并表示北京与莫斯科的关系“坚如磐石”。当被问及冲突是否影响了双边关系时，王毅说，这种关系 “不受第三方的干扰”，并补充说。”无论国际局势多么危险，中国和俄罗斯将……不断推进新时代的全面战略伙伴关系。”
+柴尔德里斯赛车的所有者柴尔德雷斯在接受媒体访谈时宣布，他正在与阿莫公司合作，为乌克兰人提供弹药，以应对俄罗斯的入侵。该公司也表示，他们坚定地支持乌克兰的主权和独立，将尽快采取行动，支持乌克兰继续保卫自己和自由。
 
-中共官方坚持不干涉他国内政的立场，因此传统上不愿意在涉及其核心利益的争端之外发挥积极作用。近年来，中国采取了更积极的外交政策立场，并将自己定位为一些争端的中间人，包括巴基斯坦和阿富汗之间或朝鲜和韩国之间的争端。
+柴尔德里斯将要求纳斯卡车队允许车手在他们的赛车上展示对乌克兰的支持。
 
-普京对乌克兰的入侵考验了中国与俄罗斯不断深化的战略伙伴关系。北京说要尊重领土完整并保持中立，同时指责北约和美国挑起冲突，但它拒绝将其称为入侵。
+此外，亨德里克赛车队的老板亨德里克也承诺，3月6日在拉斯维加斯举行的赛事中，他的车队四辆赛车中的任何一辆每领跑一圈，将向乌克兰捐赠 2,000 美元。
 
-在一名中国公民试图逃离乌克兰时受伤后，北京对中国公民在乌克兰的安全的担忧使这种对俄罗斯的隐性辩护变得复杂。
+乌克兰最近也从邻国波兰收到了超过 1200 万枚弹药筒。北约国家也为乌克兰的努力提供武器，包括来自芬兰的超过 15万发弹药。
 
-中国外交部此前拒绝了美国对俄罗斯施加影响的呼吁，相反，中国声称，西方大国也有责任，必须采取行动化解紧张局势。中共同时否认了西方情报显示的习近平要求普京将攻击行动推迟到北京冬奥会之后的报告。周六，在与美国国务卿安东尼·布林肯的电话中，王毅呼吁美国、欧盟和北约 “与俄罗斯进行平等的对话，正视多年来积累的摩擦和问题。”
+参考链接：[NASCAR Owner Announces 1 Million Rounds of Ammunition for Ukraine](https://nationalinterest.org/blog/buzz/nascar-owner-announces-1-million-rounds-ammunition-ukraine-200957)
 
-**新闻来源：**[https://www.washingtonpost.com/world/2022/03/07/china-russia-relationship-ukraine/](https://www.washingtonpost.com/world/2022/03/07/china-russia-relationship-ukraine/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
+总编：文真
+编辑：Jack Li文阳 
+审核：Jack Li文阳
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 
