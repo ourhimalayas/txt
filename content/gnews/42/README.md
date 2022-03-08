@@ -2,21 +2,52 @@
 ---
 
 
-## 青岛疫情井喷
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119789/)
+## 中国电信巨头华为一直在帮助普京稳定被黑客攻击后的俄罗斯互联网
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2120087/)
 
-撰稿：东京樱花团/秋明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-34.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg3.jiemian.com%2F101%2Foriginal%2F20220306%2F164653358392818100.jpg&amp;imgrefurl=https%3A%2F%2Fwww.jiemian.com%2Farticle%2F7175588.html&amp;tbnid=g6YJJ8YOpCrppM&amp;vet=12ahUKEwjo-Kqt37P2AhXLRMAKHUcvD4IQMygFegUIARCcAQ..i&amp;docid=IOXtjCNNriVBAM&amp;w=600&amp;h=400&amp;itg=1&amp;q=%E9%9D%92%E5%B2%9B%E7%96%AB%E6%83%85&amp;ved=2ahUKEwjo-Kqt37P2AhXLRMAKHUcvD4IQMygFegUIARCcAQ)
-自3月3号青岛莱西七中三位学生确诊阳性以来，青岛的疫情持井喷状态迅速增加，据官方报告，截止到3月6号，累计确诊阳性136例无症状感染者115例，病毒属于奥米克戎，传染源还在调查中。
+据《每日邮报》作者：JAKE RYAN HOME AFFAIRS，2022年3月6日报道：
 
-据说该病毒在学生中间潜在传播多日，按照中共政府处理问题的风格，能捂就捂实在捂不住了才爆出来，要不然仅仅三天时间增加了一百多，还不知道这里面有多少水分？官员信誓旦旦要把病毒尽快清零，流行两年的病毒至今肆虐全球，这一世界性难题大概只有中共国官员能轻易破解！
+- 俄罗斯媒体网站上周被黑，用“墓碑”取代网页
+- 据说华为已经“赶到俄罗斯援助”，以支持互联网网络
+- 中国网站删除了关于华为将利用其研究中心在俄罗斯培训“50,000名技术专家”以帮助网络中断的报道
+中国电信巨头华为必须接受调查，因为有报道称该公司在俄罗斯的互联网网络受到攻击后“急于向其提供援助”。
+中国的报道说，这家在英国有几个办事处的科技巨头一直在帮助弗拉基米尔-普京努力稳定俄罗斯的互联网网络，因为它受到了全球各地黑客组织的攻击
+自入侵乌克兰以来，俄罗斯政府和媒体网站一再面临着疑似针对国家的网络攻击的干扰。
 
-3月7号24:00莱西启动第二轮全员核酸检测，明明可以自己在家检测，明明生产了大量医疗检测器材，源源不断输送到国外使用，偏偏不给自己国民使用，凌晨24点把大家召集起来不睡觉做这劳命伤财的无用功！可怜老百姓，在羊圈里任意宰杀还感恩戴德！人家可是百分之百真心实意！朋友圈无一例外满满的的“正能量”，笔者很想跟视频里这位辛苦劳作召集大家带好口罩保持3米距离的的女干部说一句，您的口罩没有在鼻子上端这样戴无效。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-7.jpg)
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
 
+上周，俄罗斯媒体网站被一个自称属于Anonymous黑客网络的组织入侵，并以纪念战争死难者的“墓碑”取代网页。
+
+据报道，华为在俄罗斯有五个研究中心，据说在面对这些攻击时，华为已经“赶去援助俄罗斯”，支持其互联网网络。
+
+一份出现在一个中国新闻网站上但后来被删除的报告称，华为将利用其研究中心在俄罗斯培训“50,000名技术专家”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-600.png)Getty Images
+中国的报道称，科技巨头华为在英国设有多个办事处，在俄罗斯的互联网网络受到全球黑客组织的攻击后，华为一直在帮助普京努力稳定俄罗斯的互联网网络。图为周一在西班牙巴塞罗那举行的GSMA世界移动通信大会上，华为的标志在外面亮起。
+
+它补充说，该公司预计将扩展到“人工智能、云计算和人脸识别等前沿领域”。
+保守党议员伊恩-邓肯-史密斯(Iain Duncan-Smith)上周四在下议院提出了这个问题，他说：“我深为关切的是，一家被英国政府视为国家安全威胁的公司，他们无法让他们的设备留在英国的新5G系统中，却仍然在英国。”
+现在他们很可能一直在忙着帮助俄罗斯这个专制政权。
+
+现在应该进行全面调查，因为如果我们在制裁一直在帮助普京的寡头，我们也应该看看一直在帮助普京的公司。
+
+如果俄罗斯有一刻认为中国会打破排名，他们就不会入侵乌克兰。
+如果中国公司被发现帮助俄罗斯公司规避措施，他们就会担心美国的二次制裁。
+出于对国家安全的担忧，美国于2019年推出了制裁措施，华为受到了严重打击，并被禁止为英国的5G网络提供设备。
+
+截至发稿时，华为没有回应。
+据报道，华为在俄罗斯有五个研究中心，据说在面对攻击时，华为“急于向俄罗斯提供援助”，支持其互联网网络。一份出现在中国新闻网站上但后来被删除的报告称，华为将利用其研究中心在俄罗斯培训“50,000名技术专家” 。
+
+文章观点仅代表作者个人，与Gnews平台无关
+
+原文连接：**[https://www.dailymail.co.uk/news/article-10583207/Chinese-telecoms-giant-Huawei-helping-Putins-efforts-stabilise-Russias-internet.html?ito=social-twitter\_mailonline](https://www.dailymail.co.uk/news/article-10583207/Chinese-telecoms-giant-Huawei-helping-Putins-efforts-stabilise-Russias-internet.html?ito=social-twitter_mailonline)**
+
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 傻小子
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

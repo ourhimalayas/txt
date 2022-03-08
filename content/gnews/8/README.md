@@ -2,26 +2,55 @@
 ---
 
 
-## 多個國際金融服務公司暫停俄羅斯業務
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2123246/)
+## 有声|乌克兰总统泽伦斯基请求美国提供更多飞机支援
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2123297/)
 
-采編：文萊 翻譯編輯：文所未聞
-![](https://assets.gnews.org/wp-content/uploads/2022/03/04-image-1.png)
-據加拿大《後千禧年》3月5日報道，由於俄羅斯入侵烏克蘭，國際金融巨頭Visa、萬事達以及PayPal等，當天都宣布立即暫停在俄羅斯的一切業務。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据[布赖特巴特新闻网](https://www.breitbart.com/news/zelenskyy-desperate-plea-to-us-congress-send-more-planes/)3月5日报道，乌克兰总统泽伦斯基周六向美国立法者发出请求，要求美国帮助他的军队获得更多战机，并在其首都基辅试图避免俄罗斯的入侵时，切断俄罗斯的石油进口。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/russia-ukraine-war-disinformation-photo-feb-27-2022-video-by-ukrainian-presidential-pres-640x433-2.jpg)The Associated Press
+泽伦斯基总统告诉美国立法者，他一直呆在基辅。基辅面临北部庞大的俄罗斯装甲纵队的威胁。乌克兰需要确保其天空安全，要么需要通过北约强制实施禁飞区，要么通过其提供更多战机，以便乌克兰能够更好地保卫自己。
 
-據悉，所有在俄羅斯發行的Visa卡在該國境外都將被停止使用。同時，任何由俄羅斯境外金融機構發行的信用卡在俄羅斯境內也將不再有效。
+美国国务卿安东尼·林肯在科尔佐瓦镇外的波兰-乌克兰边境与乌克兰外交部长迪姆特罗·库莱巴会面后表示，战斗机正在考虑之中。布林肯重申，美国对乌克兰的支持 “不仅是前所未有的，不仅会继续，而且会增加”。
 
-隨著俄軍對烏克蘭血腥入侵的不斷加劇，在歐美各國共同的強力製裁之下，目前俄羅斯盧布暴跌，股市崩盤，經濟已被徹底孤立。然而，中共卻倒行逆施，仍在為俄軍入侵烏克蘭提供經濟和物質支援。文貴先生對此表示，西方盟國對中共和習近平的經濟製裁和軍事打擊也已箭在弦上。
+美国国会正在研究向乌克兰提供100亿美元的军事和人道主义援助方案。
 
-校對編輯：硫酸羥氯喹64
+就在泽伦斯基总统与大约300名国会议员及其工作人员进行长达一小时的交流时，俄罗斯军队仍然在继续炮击被包围的城市。目前逃离该国的乌克兰人的数量已经增加到140万。
 
-發稿：苦盡甜來 (文來）
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0309-2.jpg)
+为了应对当前乌克兰的紧张局势，新中国联邦和法治基金已经与联合国救援组织合作，启动了国际人道救援行动，无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，符合条件的人士可以选择前往美、加、澳、新、欧盟等国。
 
-原文鏈接：
+救援对象：包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。
 
-[https://thepostmillennial.com/breaking-visa-mastercard-suspend-operations-in-russia](https://thepostmillennial.com/breaking-visa-mastercard-suspend-operations-in-russia)
+**24小时救援联系方式如下：**
 
-[https://thepostmillennial.com/paypal-suspends-services-in-russia-over-ukraine-invasion](https://thepostmillennial.com/paypal-suspends-services-in-russia-over-ukraine-invasion)
+**邮箱：
+[\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection)**
+
+**电话和短信：
++1 720-657-6776 或 +1 719-224-4232**
+
+
+
+文字版原文：[乌克兰总统泽伦斯基请求美国提供更多飞机支援](https://gnews.org/zh-hans/2117493/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,20 +2,57 @@
 ---
 
 
-## 财经｜亚股集体爆泻 恒指创五年半低位 金价暴涨逼近2000美元
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2117925/)
+## 蓬佩奥：台湾和美国的未来是交织在一起的
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2117929/)
 
-**撰文/ 港台前线｜发布日期/ 07/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/亞股集體爆瀉-恆指創五年半低位-金價暴漲逼近2000美元.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+前国务卿迈克.蓬佩奥： 台湾和美国的未来是交织在一起的，因为我们的利益非常一致。
 
-受俄乌局势持续紧张的影响，亚洲股市上周集体大泻，日经平均指数跌5.42%，报25,137.73点，台湾加权指数跌4.18%，报17,184.05点，南韩首尔综合指数跌3.49%，报2,651.21点，新加坡海峡时报指数跌1.61%，报3,201.21点，上证跌1.17%，报3,571.32点；深证跌2.1%，报12,745.65点。
 
-恒指上周跌3.35%，报21,163.7点，盘中一度跌穿2020年3月新冠病毒股灾低位，科指跌3.68%，报4,563.43点，创历史新低，今日承接跌势，开盘突泻逾1,000点，失守2万1关口，至20826点，创5年半新低。
 
-另一方面，随着美欧拟禁止俄罗斯石油进口的消息不断传出，令市场避险情绪再度升温，黄金现货价格早段一度升至2000美元每盎司，其后回落，现报每盎司1993美元水平，创自2020年8月新高。
+> The futures of Taiwan and the United States are intertwined, because our interests are very much aligned.
+> — Mike Pompeo (@mikepompeo) [March 6, 2022](https://twitter.com/mikepompeo/status/1500553560672591879?ref_src=twsrc%5Etfw)
 
-来源｜[Yahoo股市](https://tw.stock.yahoo.com)
+
+
+美国国务院： 拜登总统 [@POTUS](https://twitter.com/POTUS) 致俄罗斯人民的信息：“我不相信你们想要一场针对乌克兰 – 一个与你们有着如此深厚的家庭、历史和文化联系的国家和人民 – 的血腥、破坏性战争。” 【图片文字：致俄罗斯公民：“你们不是我们的敌人” ——总统乔拜登】
+
+
+
+> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) message to the people of Russia: “I do not believe you want a bloody, destructive war against Ukraine — a country and a people with whom you share such deep ties of family, history, and culture.” [pic.twitter.com/pC58Oj5RMz](https://t.co/pC58Oj5RMz)
+> — Department of State (@StateDept) [March 6, 2022](https://twitter.com/StateDept/status/1500553355743182858?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: 白宫@WhiteHouse 是否忘记了马杜罗@NicolasMaduro 的残酷压迫已经杀死了数千人并制造了近 600 万难民？ 马杜罗帮助致力于破坏哥伦比亚和拉丁美洲稳定的毒品恐怖分子，接待卡斯特罗的暴徒，以及与俄罗斯、#中共国、伊朗和真主党等敌人结为伙伴关系。 【转斯科特自己推文：拜登政府唯一应该与马杜罗讨论的是他辞职的时间。马杜罗是一个像普京一样的种族灭绝的暴君。美国不能依赖于一个凶残的独裁者去置换另一个，也不能以任何方式承认他的虚假政府是合法的。】
+
+
+
+> Has the [@WhiteHouse](https://twitter.com/WhiteHouse?ref_src=twsrc%5Etfw) forgotten that [@NicolasMaduro](https://twitter.com/NicolasMaduro?ref_src=twsrc%5Etfw)’s brutal oppression has killed 1,000s & created nearly 6M refugees?
+> 
+> Maduro aids narcoterrorists working to destabilize Colombia & LATAM, hosts Castro’s thugs & partners with enemies like Russia, Communist China, Iran & Hezbollah. [https://t.co/mmKiwC6H0n](https://t.co/mmKiwC6H0n)
+> — Rick Scott (@SenRickScott) [March 6, 2022](https://twitter.com/SenRickScott/status/1500518599609442308?ref_src=twsrc%5Etfw)
+
+
+
+国务卿安东尼.布林肯： 俄罗斯政府正在封锁媒体渠道并限制社交媒体——所有这些都是为了掩盖正在乌克兰领土发生的事情的真相。 俄罗斯人民应该知道以他们的名义而造成的死亡和破坏的真相。
+
+
+
+> The Russian government is blocking media outlets and restricting social media — all to obscure the truth about what is happening on the ground in Ukraine. The Russian people deserve to know the truth about the death and destruction happening in their name. [pic.twitter.com/8Jk8i32chU](https://t.co/8Jk8i32chU)
+> — Secretary Antony Blinken (@SecBlinken) [March 6, 2022](https://twitter.com/SecBlinken/status/1500293840074203138?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 俄罗斯入侵乌克兰 [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 10天了，一件事是显而易见的，[#Putin](https://twitter.com/hashtag/Putin?src=hashtag_click) 普京将永远无法成功占领和统治这个国家 只要俄罗斯人还在乌克兰，他们就会面临炸弹、狙击手和死亡
+
+
+
+> 10 days into [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw)’s invasion of [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) one thing is obvious for all to see, [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) will never be able to successfully occupy & govern the country 
+> 
+> As long as Russians are there, they will face bombs, snipers and death
+> — Marco Rubio (@marcorubio) [March 7, 2022](https://twitter.com/marcorubio/status/1500642584020013066?ref_src=twsrc%5Etfw)
+
+
 
  
 
