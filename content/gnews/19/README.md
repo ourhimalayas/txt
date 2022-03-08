@@ -2,41 +2,35 @@
 ---
 
 
-## 大直播后记：俄乌战争让中共打台湾更加凶残
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2123927/)
+## 南非法律界发声，支持乌克兰人民反抗侵略
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2124046/)
 
-整理：奮鬥、铁血丹心
-编辑：Mttfly
+作者：香草山健身部-正道新闻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年2月24日，俄罗斯入侵乌克兰，引起了全世界的反抗浪潮。南非知名的法律教授，律师，南非六个独立国家机构之一的《公共保护者》前主席，Thuli Madonsela，近日发表多篇推文，除了表达支持乌克兰抵抗侵略的壮举之外，还谴责了俄罗斯入侵、对平民的屠杀行为。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/0e8e7d66a9de8864.jpg)图片：雅典娜设计组
+3月5日，Thuli Madonsela在俄罗斯驻南非大使馆的官方推特中，回帖道，“我感谢苏联支持我们的反种族隔离斗争，以及俄罗斯在这方面的慷慨，但我选择不支持俄罗斯入侵乌克兰和屠杀平民，因为这是不合情理的违反国际法的行为”。我与乌克兰站在一起，只要某处存在不公正，任何地方都不会有可持续的和平。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-07-at-11.06.09-PM.png)
 
-文曦：我问七哥一个问题，我们医疗组的战友问，现在俄罗斯入侵乌克兰已经到第13天了，而且普京速战速决的愿望也没有达成。这个战争的进程，对中共攻打台湾会有什么影响？攻打台湾的可能性加大了呢，还是减小了呢？请七哥解读一下，谢谢。
+在3月6日，她发表推文，称赞了全球领导人“树立了一个很好的榜样，谴责俄罗斯违反国际法入侵乌克兰，违反人道主义法条约屠杀平民，并让更多的乌克兰人流离失所”。
 
-七哥：半点影响都不会有，一点都不会减少（共产党打台湾的可能性）。而且对台湾不是一件好事情，而且它在打的时候会非常的凶残。它总结完教训以后，现在咱们的内部情报就是，共产党在打的时候，习（想怎么做），我已经给大家说得非常清楚，这种情况下就不能让你有发声的机会。
+作为《公共保护者》前主席、社会正义法律信托主席、“透明国际诚信奖、德国非洲奖和非洲反腐败十字军奖”获得者，斯泰伦博斯大学教授，Thuli Madonsela在乌克兰问题上的仗义执言，不仅彰显了作为民主法制国家应有的人道主义精神，同时也表现出“彩虹之国”正确的价值取向。
 
-把你电一掐，把这整个岛东边的军事基地全炸完，高速公路、机场全给你炸了。然后直接就控制核电厂，然后以打着反台独的名义，直接把你电厂全给你占领，台积电直接给你全部占领……蔡英文一定给你斩首，它一定不会让任何人成为台湾的泽连斯基。非常糟糕，一定是这个结局，而且一定会打，而且打得非常之快、非常之惨！
+参考链接：[Thuli Madonsela on standing with Ukraine: ‘I choose not to support the slaughter of civilians’](https://www.timeslive.co.za/news/south-africa/2022-03-07-thuli-madonsela-on-standing-with-ukraine-i-choose-not-to-support-the-slaughter-of-civilians/?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1646645213)
 
-而且俄罗斯这个事情给了共产党一个最好、也是最坏的一个样板。好的是什么？就是习再想想，我这个打完以后经济制裁，我现在怎么办？这时候就告诉所有的家人，小舅子、小姨子快撤。把你们的船卖了，把房子卖了。就在英国，就现在正讨论要没收俄罗斯富豪寡头钱财的时候，每秒、每时、每刻他们都在转钱，而且是合法转走。
+审核/编辑/发稿： 谐趣园
 
-那你说共产党这些上百万亿的黑钱在战争之前不转走吗？它一定转走。金融市场还没有巨大动荡的原因是为什么？共产党正在悄悄地搬钱，这是对它的好处。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-3.png)
 
-另外一个坏处是什么呢？共产党确实想到：西方的经济制裁会是长期的，会是果绝的。习判断美国欧洲一定会参与战争，而且看到了真正的乌克兰打仗是美国、欧洲北约在背后支招。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-那绝对不是仅仅乌克兰，乌克兰没有这个能力的。乌克兰有一个泽连斯基，乌克兰有一个全面团结的群众，但是整个媒体之战和军队平民化、隐形化、把武装力量全部是民间化，这种战略严格讲打的游击战，是美国人的战法，而且是全民皆兵。
-
-所以现在共产党就学到了啊，那我下次打的时候我不能出现泽连斯基，我不让你控制媒体，而且我一定是直接斩首，我要把蔡英文等要出来当头的人全部斩绝。所以他们现在调整了所谓的对台作战预演计划，当中多了两条。首先要拿下精英和媒体和社会资源——我把电都给你断了，我把整个社会、整个发声渠道全给你变了。然后包括海外的台湾人，只要你敢说话我就给你干掉。就是这结局，非常非常不好，对台湾。谢谢。
-
-资料来源：[2022年3月6日 文贵大直播：新中国联邦营救行动意义；共产党给华人带来的危险；未来排华及保护华人安全；俄乌战争爆发与世界经济EST11:10-11:13](https://www.gettr.com/streaming/pyhtnya292)
-
-发布：tianzhihuan
-
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

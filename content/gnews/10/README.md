@@ -2,40 +2,29 @@
 ---
 
 
-## 大直播后记：人类新的媒体及新的生存模式
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2124023/)
+## 有声｜美国佛州：健康儿童不要接种中共病毒疫苗
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2124269/)
 
-整理：GHope、hys
-编辑：小红帽
+By:**秘翻新闻**
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/16-5.png)图片来源：雅典娜农场设计组（614）
+**2022-03-08**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-23.png)图片来源 AP Phone/Wilfredo Lee
+[据美联社北京时间3月8日报道，美国 佛罗里达州外科医生约瑟夫·拉达波博士周一表示，该州将正式建议不要为健康儿童接种 中共病毒 疫苗。](https://apnews.com/article/coronavirus-pandemic-health-florida-ron-desantis-florida-department-of-health-a935793abc368ffc9aa5c2a2dda23e4b)
 
+[拉达波在共和党州长罗恩·德桑蒂斯（Ron DeSantis）组织的会议上宣布了这一消息，并在讨论结束时表示：佛罗里达州卫生部将成为第一个正式建议不要为健康儿童接种中共病毒疫苗的州。此次会议中还有众多医生批评了中共病毒的封锁和强制政策。](https://apnews.com/article/coronavirus-pandemic-health-florida-ron-desantis-florida-department-of-health-a935793abc368ffc9aa5c2a2dda23e4b)
 
-我们现场的总指挥长岛哥，老班长；我们现在后勤的管家草根兄弟；财务上的管家如水和木兰；我们的秘密翻译组，我们全球各大农场，和一批又一批马上派到前线的战友，以及第五批战友都安排好了。你觉得世界上哪个组织能做到这一点？这就是新中国联邦人。
+[美国疾病控制和预防中心前传染病专家拉斯穆森博士表示，他很担心这则新会让父母质疑他们从儿科医生、美国儿科学会、疾病预防控制中心听到的信息，但拉波达认为，儿童比成人的重症率低很多，即使不幸患病，也应该因人而异进行治疗。](https://apnews.com/article/coronavirus-pandemic-health-florida-ron-desantis-florida-department-of-health-a935793abc368ffc9aa5c2a2dda23e4b)
 
-你看现场，我们的主播我们乱了吗？我们培养出一批批队伍，一批批的精英，而且是有良知，有能力有思想的。新中国联邦向世界展示了我们能不能有能力，有资格，向全世界传播——中国人不等同于中国共产党的这个真相；我们能不能给中国带来民主法制和信仰的自由。
+[佛罗里达州的这项新举措与美国疾病控制和预防中心此前的建议背道而驰，该中心至今认为所有 5 至 7 岁的儿童都应接种疫苗。](https://apnews.com/article/coronavirus-pandemic-health-florida-ron-desantis-florida-department-of-health-a935793abc368ffc9aa5c2a2dda23e4b)
 
-我们这一次是真刀真枪的。大巴车是来自乌克兰，不是在边境。我们救的人是来自乌克兰，我们正在拯救的人是被共产党说“已经救走的人”，（实际）他们是还在乌克兰的同胞。
+[目前尚不清楚该州何时会发布健康指南，拉达波也没有详细说明细节](https://apnews.com/article/coronavirus-pandemic-health-florida-ron-desantis-florida-department-of-health-a935793abc368ffc9aa5c2a2dda23e4b)
 
-我们法治基金，法治社会所有的捐款都是来自于我们所有的战友。我们没有任何人拿工资，拿待遇，全部都是无偿地，冒着生命危险到前线去救援。救援对象不分种族，不分宗教，不分族类，中国人没有过，世界上也没几个国家有做过。
+秘翻新闻 文洋 编译报道
 
-今天的这场战争，就像昨天我跟意大利的一个哥们，还有英国的一位朋友在这个小视频上谈话，他们说，miles ，你对战争的理解超过了我们的理解。我说，你有想过吗？Telegram， Facebook， Instagram为什么成为乌克兰最大的战场？而且，乌克兰是绝对K.O.整个普京和整个俄罗斯的。第二个，你想过没有，为什么全世界所有的人都站在的乌克兰正义的一边？第三个，乌克兰的泽连斯基总统，是被乌克兰民调抛弃到25%的时候，战争发生了。人家泽连斯基证明给了乌克兰人看–我是你们的总统，我和你们一样。不但如此，他还证明了–我们和欧洲人一样，我们有勇气，我们有人道，我们国际化。在泽连斯基跟欧洲国家开会以后，欧洲的所有领导人对泽连斯基评价说，他是超出了我们所有人想象的一个世界级领袖，而这个世界上所谓迷恋普京的硬肌肉，所谓的那种霸气狠气，都是大家被玩弄了。人类在社交媒体面前，你会看到，真正地让人类辨别真、假、善、恶，从社交媒体重新开始。
+发布 : 恩典
 
-新中国联邦我们在乎什么？我们要最终的结果。我们看结果。我们千万别在乎什么主流媒体，什么政府，什么国际机构的看法。他们狗屁都不是。就是他们带来了人类的灾难，包括我们中国人的灾难，我们要改变这一切。
-
-我们要成为没有（打新冠疫）苗的，不分种族，不分颜色，不分宗教的新人类。这叫新人类，新中国联邦。兄弟姐妹们，珍惜吧。没有苗，还有币，我们还在全世界救援。还有无数的战友说，七哥，我们要捐钱。大概在一段时间内，我们会开放捐HDO。大家也可以捐钱。我们的预算是多少？现在的救援是一千万欧元，未来的救援大概在五千万欧元左右，也就四亿人民币。我们将用于救援。
-
-参考资料：[2022年3月6日 文贵大直播](https://gettr.com/streaming/pyhtnya292)
-
-发布*：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

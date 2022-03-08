@@ -2,27 +2,30 @@
 ---
 
 
-## 有声｜俄罗斯预计在周二开通人道主义走廊
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2124174/)
+## 视频|新中国联邦乌克兰救援创造三个”唯一” 击破中共谎言
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2124320/)
 
-By:**秘翻新闻**
+制作：香草山视频部
 
-**2022-03-08**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-40.png)图片来源 ap photo/Emilio morenatti
-[据美联社北京时间3月8日报道，由于持续的炮击，上周末为平民建立安全人道主义走廊的努力失败了。但俄罗斯国防部周一宣布了一项新举措，称将允许平民离开乌克兰首都基辅、马里乌波尔以及哈尔科夫和苏梅市。俄罗斯首席谈判代表弗拉基米尔·梅丁斯基表示：他预计乌克兰的人道主义走廊将于周二开始运作。](https://apnews.com/article/russia-ukraine-business-europe-new-zealand-global-trade-23327d0cb464c712ee042dfac159f1a2)
+3月6日，郭文贵先生在大直播中指出，新中国联邦在乌克兰救援行动中，创造了三个“唯一“，用实际行动戳穿了中共的谎言。
 
-[在周一的会谈中，俄罗斯人提出了通往俄罗斯及其盟友白俄罗斯的撤离路线，而不是通往乌克兰西部仍然和平的地区。](https://apnews.com/article/russia-ukraine-business-europe-new-zealand-global-trade-23327d0cb464c712ee042dfac159f1a2)
+第一，新中国联邦是唯一一个，前往乌克兰战场救援的中国团体。
 
-[乌克兰总统泽连斯基在周一接近午夜的每日视频讲话中称：乌克兰周一得到的不是关于人道主义走廊的协议，而是俄罗斯坦克、俄罗斯炸弹、俄罗斯地雷。还表示：俄军甚至在马里乌波尔为人民、孩子们提供食物和药品的商定路线上挖了地雷。](https://apnews.com/article/russia-ukraine-business-europe-new-zealand-global-trade-23327d0cb464c712ee042dfac159f1a2)
+第二，新中国联邦是唯一一个，不带任何政治、经济诉求和政治立场的救援团体。
 
-[泽连斯基还表示，承诺开辟一条通往俄罗斯的救援走廊，只是莫斯科在寻求宣传上的胜利。](https://apnews.com/article/russia-ukraine-business-europe-new-zealand-global-trade-23327d0cb464c712ee042dfac159f1a2)
+第三，新中国联邦是唯一一个，不分人种、宗教，力所能及救助所有中国同胞和外国人的团体。
 
-秘翻新闻 文洋 编译报道
+中共此前谎称，在乌中国同胞已全部撤离。但郭先生透露，实际上，至少还有三万名中国同胞被中共抛弃在乌克兰。其中的工人同胞，连手机和通信能力都没有。
 
-发布 : 恩典
+新中国联邦的救援行动才刚刚开始，但已经改写了中国人在世界的人道救援历史，并向世界展现了中国人正义、阳光、爱好和平的崭新形象。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+发稿：林礼
+
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

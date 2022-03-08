@@ -2,35 +2,33 @@
 ---
 
 
-## 南非法律界发声，支持乌克兰人民反抗侵略
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2124046/)
+## 大直播后记：华人的生存危机来临
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2124275/)
 
-作者：香草山健身部-正道新闻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年2月24日，俄罗斯入侵乌克兰，引起了全世界的反抗浪潮。南非知名的法律教授，律师，南非六个独立国家机构之一的《公共保护者》前主席，Thuli Madonsela，近日发表多篇推文，除了表达支持乌克兰抵抗侵略的壮举之外，还谴责了俄罗斯入侵、对平民的屠杀行为。
+#### 整理：馨馨、铁血丹心
+编辑：Mohegayer K. Simon
 
-3月5日，Thuli Madonsela在俄罗斯驻南非大使馆的官方推特中，回帖道，“我感谢苏联支持我们的反种族隔离斗争，以及俄罗斯在这方面的慷慨，但我选择不支持俄罗斯入侵乌克兰和屠杀平民，因为这是不合情理的违反国际法的行为”。我与乌克兰站在一起，只要某处存在不公正，任何地方都不会有可持续的和平。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-28.png)图片来源：墨尔本雅典娜农场设计组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-07-at-11.06.09-PM.png)
 
-在3月6日，她发表推文，称赞了全球领导人“树立了一个很好的榜样，谴责俄罗斯违反国际法入侵乌克兰，违反人道主义法条约屠杀平民，并让更多的乌克兰人流离失所”。
+我特别感谢战友们做的PPT，太棒了。我觉得这个PPT的制作就看出了我们战友对世界局势和我们生存环境的把握和以前完全不一样，大家能深有同感，每次直播完以后我都找时间再看一遍，我觉得都让我学习了很多东西。我想说的事情，刚才PPT里面的内容都能看到中共和中国人民卷入了一个万劫不复的一个大灾难当中，这个大灾难不是说哪个人能解决的，我们也解决不了，我们只能是提前预告预告。第二个现在中国面临着粮食危机和经济危机。我可以告诉大家，早着呢！你想想中国人在全球的生存危机是什么？我们无法想象这种严重的后果，已经无法预测，会什么时候发生？
 
-作为《公共保护者》前主席、社会正义法律信托主席、“透明国际诚信奖、德国非洲奖和非洲反腐败十字军奖”获得者，斯泰伦博斯大学教授，Thuli Madonsela在乌克兰问题上的仗义执言，不仅彰显了作为民主法制国家应有的人道主义精神，同时也表现出“彩虹之国”正确的价值取向。
+我们只能尽力去挽回这些损失，我们现在最重要的是干什么呢？把新中国联邦的实力增强。记住千万不要天真的想象，你在家里躺在被窝里面，真理、公平和正义就发生在你生活中，不可能！公平真理和真相是在能力之间绝对平衡，而不是平衡是绝对平衡，你的能力决定了真相真理公平离你有多远多近。特别是像我们爆料革命当中的无苗族。任何人记住，我们如果没有能力建造这个平台，没有能力把这个平台经营下去，那你想想真相会离我们有多遥远，你们会不打针吗？我们每个农场的表现都是绝对的优秀，你看看在前线我们每个人，比如现在的文耀、文柯、文戈七雄、大卫、正义小sarah、阿炳、大锅，还有我们的东南又带着人冲到前线，大家看到的都是一个全球农场的聚集，还有刚刚又要到农场的我们的美国小李又带十几个人去了，这就是整个新中国联邦人的精气神！我们首先得有钱，你没钱去救什么援，弄不好就救你去了。
 
-参考链接：[Thuli Madonsela on standing with Ukraine: ‘I choose not to support the slaughter of civilians’](https://www.timeslive.co.za/news/south-africa/2022-03-07-thuli-madonsela-on-standing-with-ukraine-i-choose-not-to-support-the-slaughter-of-civilians/?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1646645213)
+路大脑袋、蛇妖闫卖29美金的袋子，他能去救援吗？蛇妖闫一个眼科医生能到前线去炒10个黄鸡蛋去救援吗？高冰尘那个长相能给你救援吗？还有那些伪类们。大家记住，我们是靠实力，没有钱你啥都别想。你有钱但你没有咱们大家这个能力还有这个媒体平台，你去人家平台上直播，分分钟给你封杀了，你能在那生存下去吗？如果没有整个全球的各种势力的协调，我们23架飞机哪来啊？可能安排的100架包机哪来啊？谁给你付钱啊？你甭说坐商务舱了，坐飞机轮子的机会都没有。
 
-审核/编辑/发稿： 谐趣园
+接下来兄弟姐妹们我们记住，所有刚才PPT说的都会发生，只能更坏不会更好！14亿中国同胞我们能救的是极少极少的，万年修来共渡船，千年共枕眠。人家说什么千年百年，我说万年能修来就不错了，咱们只能渡有缘人。别着急，我们救人的人你干嘛弄得自己压力那么大呢？我们现在就是把自己强大起来，让我们有更多话语权。中国共产党绝对做不到我们今天，我们绝对有信心不流血，可以不死人就能完成普大帝习太阳他们梦想的那样。我们要让世界人民真正的成为一个没有战争的和平的族类。不需要战争完成。谢谢兄弟姐妹们。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-3.png)
+资料来源：[2022年3月6日文贵大直播](https://gettr.com/streaming/pyhtnya292)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+发布：*wenly*
 
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

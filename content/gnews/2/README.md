@@ -2,25 +2,27 @@
 ---
 
 
-## 法制基金乌克兰救援第二团队飞赴波兰
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2124149/)
+## 有声｜拜登要求对加密货币的监管和发行进行研究
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2124319/)
 
-撰稿：加拿大温哥华扬帆农场 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/07-image.png)
-据3月6日盖特直播报道，美东时间当天凌晨，由美国洛杉矶盘古农场、波士顿五月花农场战友们共同组成的第二批乌克兰救援团队已准备就绪，整装待发。
+By:**秘翻新闻**
 
-据悉，该批一行九人的营救团队，当天将从洛杉矶机场出发，经欧洲转机后飞赴波兰，并与现场的先遣救援队员汇合，共同执行本次法治基金首次与联合国国际救援组织共同参与的人道救援行动。
+**2022-03-08**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-19.png)图片来源   路透社
+[据《路透社》华盛顿3月7日报道，周一，一位知情人士透露，美国总统拜登预计将签署一项行政命令，指示美国司法部、财政部和其他机构研究创建美国中央银行数字货币的法律和经济影响。](https://www.reuters.com/business/finance/biden-sign-executive-order-cryptocurrencies-this-week-source-2022-03-07/)
 
-报道指出，本次行动是新中国联邦人首次在国际上展开的大规模营救华人同胞的战地实践，目的是能够营救出更多被困在乌克兰战火中的华人同胞和当地民众。
+[该消息人士称：我们可以在180天内看到政策的重大转变。这很可能是朝着创建中央银行数字货币迈出的一步， 还表示，拜登政府内部支持这一举措的势头很猛。](https://www.reuters.com/business/finance/biden-sign-executive-order-cryptocurrencies-this-week-source-2022-03-07/)
 
-目前，随着救援行动已成功拯救出越来越多的战争难民，营救团队得到了波兰当地市政府的大力支持和协助，新中国联邦的信仰之星旗已夺目飘扬在热舒夫市的上空。
+[据报道，拜登的命令可能会在周三发布，人们担忧俄罗斯精英利用加密货币规避西方制裁，此前西方制裁已经切断了俄罗斯与全球经济大部分的联系，而中共国和其他经济体也在努力创建自己的加密货币。](https://www.reuters.com/business/finance/biden-sign-executive-order-cryptocurrencies-this-week-source-2022-03-07/)
 
-校对编辑：硫酸羟氯喹64
+[拜登的命令将要求司法部考虑是否需要制定新的法律来创造一种新货币，由联邦贸易委员会、消费者金融保护委员会和其他机构将研究对消费者的影响。](https://www.reuters.com/business/finance/biden-sign-executive-order-cryptocurrencies-this-week-source-2022-03-07/)
 
-发稿：苦尽甜来 (文来）
+秘翻新闻 冰糖葫芦喵编译报道
 
-新闻来源：[https://gettr.com/streaming/pyjlsl401d](https://gettr.com/streaming/pyjlsl401d)
+发布 : 恩典
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
