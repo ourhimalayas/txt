@@ -2,26 +2,26 @@
 ---
 
 
-## 欧洲多地爆发反战挺乌游行示威
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2127087/)
+## 前国防承包商CEO因涉嫌向中共出口军事技术被捕
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2127178/)
 
-作者：纽约磐石农场 – 在远方
+作者：纽约香草山信息部 – 6zero4
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒消息，当地时间3月5日和6日，欧洲各地成千上万民众走上街头，连续第二个周末抗议俄罗斯入侵乌克兰。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-11.jpg)
-5日有成千上万的人士涌上巴黎、纽约、罗马和苏黎世的街头，要求俄罗斯停止侵略战争。次日，欧洲大陆再次组织动员，谴责俄国政府并要求立即停火。在比利时的布鲁塞尔，约有5千民众参加了抗议，他们挥舞着乌克兰国旗，高喊着“俄罗斯人回家去”，和“不要战争”等口号；在法国，作为乌克兰首都基辅的姐妹城市的土鲁斯，集会群众聚集在象征乌克兰国旗的蓝黄色横幅下，手持染血的普京肖像，并称其为凶手。
+美国司法部3月5日宣布，77岁的加州国防承包商Tungsten Parts的前CEO乔，因涉嫌违反联邦出口法律、向中共国等国转让美国敏感国防技术而被捕。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-14.jpg)
+检察官确认，其拥有以色列和南非双重国籍的70岁弟弟德罗尔是该案的同谋。兄弟俩创建了一个可全面访问公司敏感文件的非公司账号，随后通过电子邮件蓄意将敏感的数据和图纸等军事情报传给中共。另外，德罗尔曾要求将客户图纸上“出口管制”的标识删除后，发给了一家生产平衡机的中共国供应商。警方已对在逃的弟弟发出逮捕令，哥哥将于周一出庭，据《国际武器贩运条例》，他们可能面临最高20年的监禁和100万美元的罚款。
 
-同样，在法国北部城市康城、西班牙首都马德里、巴塞罗那，塞尔维亚首都贝尔格莱德，北马其顿首都斯高比耶，以及英国、德国、保加利亚和黑山等国家，也举行了抗议集会。
+Tungsten Parts向美国军方供应稀有金属钨的武器部件，在2016至2019年期间与多家航空航天和国防公司签订了合同，其客户包括洛克希德·马丁、波音、诺斯罗普·格鲁曼、雷神和通用动力等公司，参与制造先进的高超音速空基快速反应导弹、155毫米莫代尔弹头、R9E弹头和81毫米整流锥等项目。
 
-在俄罗斯，也有数千人违反当局的命令勇敢进行反战示威，据俄国警方发言人表示，6日在莫斯科约有1700人被捕，在第二大城市圣彼得堡则有750人遭到当局拘留。
-
-参考链接：[俄羅斯人滾回去！歐洲串連示威力挺烏克蘭](https://www.rti.org.tw/news/view/id/2126454)
+参考链接：
+1). [US Defense Contractor’s Former CEO Arrested for Allegedly Exporting Military Technology to China](https://www.theepochtimes.com/former-us-defense-contractor-ceo-arrested-for-allegedly-exporting-military-technology-to-china_4319238.html/?utm_source=partner&amp;utm_campaign=TheLibertyDaily)
+2). [Former Tungsten Heavy Powder & Parts CEO Arrested and Charged with Unlawful Exportation of Defense Articles including to The People’s Republic of China](https://www.justice.gov/usao-sdca/pr/former-tungsten-heavy-powder-parts-ceo-arrested-and-charged-unlawful-exportation)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
 总编: Zion文恩
-编辑: 谐趣园
-审核: Zion文恩
+编辑: 飞虹 
+审核: 文真
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

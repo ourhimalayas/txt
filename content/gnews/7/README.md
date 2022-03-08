@@ -2,37 +2,37 @@
 ---
 
 
-## 俄罗斯政府修改专利赔偿金法律 偷盗剽窃零赔偿
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2127136/)
+## 《铁锁梦》“三八”妇女节的特别礼物
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2127272/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+作者：纽约香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月7日，郭先生在盖特发布了一首新歌《铁锁梦》，以此作为送给中共国和全世界妇女的一份特别礼物。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-4.jpeg)
 
-继2022年3月7日俄罗斯政府网站发布《俄罗斯2022年3月5日第430-p号命令》([УТВЕРЖДЕН распоряжением Правительства Российской Федерации от 5 марта 2022 г. № 430-р](http://static.government.ru/media/files/wj1HD7RqdPSxAmDlaisqG2zugWdz8Vc1.pdf))，俄罗斯政府已批准对俄罗斯、俄罗斯公司和公民采取不友好行动的外国国家和地区名单，“关于履行对某些外国债权人义务的临时程序”后，俄罗斯政府修改了法律中关于专利赔偿金的规定。
+“我本花一朵，被拐骗山中，从此亲人永相隔。囚禁二十年，我受尽了折磨，这个世界不要我”。低沉压抑，欲喊无力的女声，一下子把听者拉回徐州“锁链女”的悲惨命运中。女人如花，却在最美丽的年华遭遇一击，从此坠入无尽的深渊。令人啼笑皆非的是，事件曝光后，中共官方的五轮调查谎话连篇，丑态百出，在全世界的聚光灯下，竟然一锤定音，容不得质疑，也不允许解救。铁链女的生死，都不得而知。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-08_22-51-19.png)
+郭先生痛苦、愤懑的嗓音在呐喊，“醒来吧，别再如此冷漠；醒来吧，抛掉所有懦弱。要埋葬邪恶的中共，我们砸碎这铁锁”。现实不是只有无力地愤怒、无奈地接受这一种选择。郭先生放弃最奢华的生活，带领战友们走上消灭中共这一条无比艰辛和危险的道路，就是为了重建一人一票、法治民主、自由言论的新中国。让千千万万如花的女孩不再坠入地狱，也让无数的母亲不再撕心裂肺地哭泣。
 
-根据新的法律规定，如果专利持有人来自不友好国家和地区，其发明、实用新型或工业设计在未经授权的情况下被使用，则所需支付的赔偿金额为生产和销售商品、完成工作和提供服务的实际收益的0%，即无需为非授权使用专利做出任何赔偿。
+这个节日礼物，特别而沉重。它激发了战友们内心最深处的力量：新中国联邦人，永不为奴。灭共，是我们义不容辞的使命。
 
-天下流氓一家亲，独裁者普京和CCP“互相学习，共同进步”，普京深得反人类政权控制的中共传，俄罗斯不断释放流氓手段！
+参考链接：[03/08/2022 文贵送给中国和全世界三八妇女节的特别礼物](https://gettr.com/post/pyrjlxe80f)
 
-根据俄罗斯新法律，俄罗斯的企业可以肆无忌惮的仿制西方的药物、芯片和一切东西，除了极少数的无法偷盗的核心技术外，其它的几乎都可以仿制。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-商标、专利、著作权保护，是激励创新、打造品牌、规范市场秩序的基础，推动经济产业的兴旺发展的基石。
+总编：Zion文恩
+编辑：Zion文恩
+审核：Zion文恩
+校正/发稿：谐趣园
 
-俄罗斯新法律，让其它国家通过不断的探索、市场调查，然后花了大量钱做广告，非常畅销的产品，俄罗斯都可以仿冒做假，而无需赔偿！
-
-完全与经济发展和人类文明背道而驰，俄罗斯直接回到石器时代！
-
-还在试图与中共勾结，期望压榨中共国14亿韭菜的外国投资者，逃跑的时间不多！
-
-参考资料：
-
-[俄罗斯政府取消向不友好国家支付专利费](http://intl.ce.cn/sjjj/qy/202203/08/t20220308_37383304.shtml)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

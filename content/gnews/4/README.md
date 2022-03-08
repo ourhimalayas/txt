@@ -2,26 +2,37 @@
 ---
 
 
-## 视频|大巴驶向巴塞罗那
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2127167/)
+## 中共破坏乌克兰人道救援 天理难容
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2127312/)
 
-制作：香草山视频部
+作者：纽约香草山农场 -文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月7日，郭文贵先生在盖特视频中讲到，中共利用欺骗恐吓的手段，破坏法治基金乌克兰救援行动。
 
-波兰当地时间3月7日，乌克兰战区救出的100多个孩子及陪同老师在克拉科夫的酒店经过一夜休整以后，登上前往巴塞罗那的大巴。他们此行要经历20个小时，可能会在中途休息一下。法治基金为他们准备了酒店住宿、食物、水，和一些必备品。当然还有水、酸奶、糖果、巧克力这些抚慰孩子情绪的万能零食。虽然这些孩子7-17岁不等，还处在不经人事的阶段，但是在人类最残酷的战争中，他们是逃难出来的，却表现得并不惊慌，不哭不闹，很镇定。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-5.jpeg)
 
-战友谈及昨天接到他们的过程，在零下5度的夜里等了四个多小时才接到满载孩子的大巴。拥抱的时候，老师们都是颤抖的。从乌克兰能够平安出来，一路上经历了多少担惊受怕，但车上的孩子丝毫没有害怕的情绪，甚至还能笑出来，可想而知老师们在路上承受了多少。但这一切都值得，因为孩子们都平安出来了。
+截至目前，法治基金新中国联邦救援队已经从乌克兰战区救出，包括中国同胞和国际人士在内，200多名受困的难民。对比之下，中共不但没有意愿和能力救援在乌克兰受困的中国同胞，而且还欺骗墙内百姓，在乌克兰的同胞已经全部撤离。中共不仅放弃被困乌克兰的中国同胞，而且，为了掩盖他的谎言，还用删帖封号的方式来屏蔽中国同胞发的求救信息。
 
-法治基金会给孩子们和老师们提供一切资金和援助，帮助他们平安到达巴塞罗那。
+据郭先生透露，大量中国留学生目前仍然滞留在乌克兰。其中有一部分人躲藏在地下室中，处于断水的艰难境地。这些中国学生一直被中共的谎言愚弄，他们被通知在原地等待救援撤离，完全不知晓中共已将他们抛弃的事实。
 
-援助过程中我们注意到，其中一个孩子戴的帽子上印着中国字“孙悟空”，真是神奇的中国缘分。愿人类远离灾难，愿家园幸福美满。
+郭先生非常痛心地说，原本有一、二十名中国同胞已经登上了新中国联邦的救援大巴车，可以安全撤离乌克兰。但就在出发前，他们收到了中共驻乌使馆的信息。中共利用欺骗手段，胁迫这些中国同胞下车离开。这些同胞因惧怕和被中共洗脑的无知，错过了救援时机，目前下落不明，生死未卜。
 
-发稿：谐趣园
+参考链接：[https://gettr.com/post/pynslhaa9a](https://gettr.com/post/pynslhaa9a)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
+总编：Zion文恩
+编辑：Ivy001  
+审核：Ivy001
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
