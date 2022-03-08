@@ -2,10 +2,8 @@
 ---
 
 
-## 泽连斯基：俄罗斯导弹摧毁了乌克兰文尼察机场
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2125756/)
-
-03/06/2022 泽连斯基：俄罗斯导弹摧毁了乌克兰文尼察机场。
+## 邪恶轴心国爆料时间线
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2125800/)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
