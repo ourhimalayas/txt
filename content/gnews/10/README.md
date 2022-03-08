@@ -2,22 +2,30 @@
 ---
 
 
-## 喜联储开启国际数字货币交易之门
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2123674/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月7日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2123795/)
 
-采编/编辑撰稿： 文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/06-image-2.png)
-据《福布斯》3月4日报导，著名赛车手[埃尔顿]最近通过喜支付成功购得巴西车神塞纳曾经使用过的，并夺得过国际方程式锦标赛冠军的一辆迈凯伦赛车。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-9.png)
 
-据悉，本次以喜联储数字货币方式结算的收购，通过喜支付以喜美元完成了转账，其交易总额超过500万美元。迈凯轮赛车公司首席执行官布朗对此表示：喜交所是全球首家将原生交易币(喜币）、稳定币（喜美元）及支付应用（喜支付)集成一体的数字币综合交易平台。由于其与生俱来的包容性、无国界性以及安全和便捷性，而一跃成为当今最值得信赖的数字资产交易平台。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1-2.png)
+校对：Stay文苑
 
-评论指出，出于对喜联储和喜币的高度认可和信任，这些备受世界推崇和尊重的车神，毫不犹豫地选择喜美元来交易其顶级赛车之举，必将产生全球认知和使用喜币和喜支付的蝴蝶效应，并正式开启了喜支付无疆界自由交易的大门。
+编辑：Stay文苑
 
-校对编辑：硫酸羟氯喹64
+发稿：Stay文苑
 
-发稿：苦尽甜来 (文来）
+新闻：[https://gettr.com/post/pyrnqu5b42](https://gettr.com/post/pyrnqu5b42)
+访谈：[https://gettr.com/post/pyrgg3508e](https://gettr.com/post/pyrgg3508e)
 
-原文链接：[https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-8.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

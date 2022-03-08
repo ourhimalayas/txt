@@ -2,30 +2,40 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月7日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2123795/)
+## 北约国家向乌克兰派遣战机？ 布林肯：给“绿灯”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2123907/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-9.png)
+编译：文斗
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-37.jpg)
+美国国务卿布林肯（Antony Blinken）周日表示，北约成员国已经得“绿灯”，可以提供战斗机作为其军事援助的一部分，支持乌克兰对抗俄罗斯入侵。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1-2.png)
-校对：Stay文苑
+“这得到了（美国的）绿灯，”布林肯在接受CBS采访时说。
 
-编辑：Stay文苑
+“事实上，我们现在正在与我们的波兰朋友讨论，如果他们选择向乌克兰人提供这些战斗机，我们可以做些什么来填补他们的需求。”布林肯补充道。
 
-发稿：Stay文苑
+这一决定是在推动向乌克兰部队提供武器的过程中做出的，因为乌克兰在俄罗斯的优势火力下持续抗争。
 
-新闻：[https://gettr.com/post/pyrnqu5b42](https://gettr.com/post/pyrnqu5b42)
-访谈：[https://gettr.com/post/pyrgg3508e](https://gettr.com/post/pyrgg3508e)
+据报道，美国一直在考虑与波兰达成协议，向华沙派遣美国战机，以替换北约国家向乌克兰派遣的任何苏联时期的战斗机。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-8.jpeg)
+据《华尔街日报》报道，根据该提议，乌克兰将获得波兰在冷战结束后继承的俄制米格战斗机。
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+在周六与280多名美国立法者进行的放大电话会议上，乌克兰总统泽连斯基说，与美国同意的防空导弹相比，乌克兰更需要战斗机。
+
+美国参议院多数党领袖查克·舒默 (Chuck Schumer)周日提到了这一恳求。舒默说，如果其他国家–如波兰–决定向乌克兰提供苏联时期的喷气式飞机，他支持美国给予它们帮助。
+
+舒默指出，这些喷气式飞机为波兰和东欧其他国家所拥有，乌克兰飞行员接受了使用这些飞机的培训。
+
+据《纽约邮报》报道。“非常需要这些飞机和其他武器，”舒默说，“今天，我敦促政府探索向乌克兰转让这些特定飞机的所有可行方案。”
+
+“美国可以承诺帮助恢复一个捐助国的机队，作为转让的回报，我提出全力支持这种情况的发生，”他补充说。“我们必须用飞机和其他武器帮助乌克兰免受俄罗斯的持续轰炸和围困。”
+
+泽连斯基同时呼吁在乌克兰上空设立禁飞区，但仍未得到支持。
+
+白宫表示，不想让美国与俄罗斯发生直接冲突。俄罗斯总统普京说，将把其他国家建立禁飞区的任何企图视为积极“参与武装冲突”。
+
+白宫新闻秘书珍·普萨基 (Jen Psaki)在周四的简报会上说，设立禁飞区“本质上需要美国军队击落俄罗斯飞机，并导致–引发与俄罗斯发生潜在的直接战争，这正是我们想要避免的。”
+
+新闻来源：[https://www.foxnews.com/world/nato-countries-green-light-send-fighter-jets-ukraine-blinken](https://www.foxnews.com/world/nato-countries-green-light-send-fighter-jets-ukraine-blinken)
 
  
 

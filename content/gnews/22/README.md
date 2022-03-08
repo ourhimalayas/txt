@@ -2,22 +2,38 @@
 ---
 
 
-## 2万多名外国志愿者申请加入乌克兰特种部队与俄罗斯军队作战
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2123464/)
+## 有声|乌克兰扎波罗热市民踊跃应征入伍抵抗侵略
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2123666/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-675.png)[图片来源](https://msp.c.yimg.jp/images/v2/FUTi93tXq405grZVGgDqG93Zojd5G44eypSXWFiEGagDhw7F_zkRl0_4Xpdsuafby4iZTldufLUyozbcCsSNUfSjGG30OmvU4Z_NFs3QXtonk9LX5-RYqrcpjNWYY5caAGvuoLsTT-8NQsQDwzOk4SvPCUhm3Rego0CPlq8FWwBGdhvqyddQl6fnJuM_88gVddtrnLBqUTDFx2qpz8tm0BtCveXATHKc)
-美国有线电视新闻网报道，乌克兰国防部宣布成立了一个特殊部队“国际部队”，并开始执行打击俄罗斯入侵的战斗任务。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，网络平台流传一段乌克兰扎波罗热市征兵站的影片，现场有大量市民积极响应，充分展现了乌克兰人抵抗侵略的决心。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6.jpeg)
+乌克兰最大的核电厂扎波罗热核电厂，4日因俄军炮击起火。俄军的疯狂行为令当地居民群情激愤。当地民众热烈响应乌克兰政府的征兵令，表示愿意加入国土防卫队抵抗俄罗斯的进攻。
 
-负责监督该部门的国防部情报局局长基里洛·布达诺夫准将说，希望加入的有来自 52 个国家的 20,000 多名志愿者。
+一位乌克兰网友表示，目前许多城市征兵站都要排队4到5小时，部分国土防卫队已经完全满额而不再征召。一位25岁的青年斯皮里迪斯说，自从俄罗斯入侵乌克兰后，他和同乡的朋友们就从长住的波兰回到祖国，打算参军保卫家乡。
 
-布达诺夫先生感谢志愿者，指出他们中的大多数人在世界各地的维和行动中经验丰富。他说 “任何支持都是宝贵的”。
 
-信息来源：[**外国人義勇兵２万人超、ロシア軍と戦う特殊部隊への参加希望　ウクライナ発表**](https://news.yahoo.co.jp/articles/18c40ea33e7bc3189c9caba7c409d4a9ea7e89d8)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+文字版原文：[乌克兰扎波罗热市民踊跃应征入伍抵抗侵略](https://gnews.org/zh-hans/2122482/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

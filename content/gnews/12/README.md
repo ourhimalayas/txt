@@ -2,37 +2,24 @@
 ---
 
 
-## 有声|乌克兰扎波罗热市民踊跃应征入伍抵抗侵略
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2123666/)
+## 世界邪恶轴心五国集团
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2123789/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，网络平台流传一段乌克兰扎波罗热市征兵站的影片，现场有大量市民积极响应，充分展现了乌克兰人抵抗侵略的决心。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6.jpeg)
-乌克兰最大的核电厂扎波罗热核电厂，4日因俄军炮击起火。俄军的疯狂行为令当地居民群情激愤。当地民众热烈响应乌克兰政府的征兵令，表示愿意加入国土防卫队抵抗俄罗斯的进攻。
-
-一位乌克兰网友表示，目前许多城市征兵站都要排队4到5小时，部分国土防卫队已经完全满额而不再征召。一位25岁的青年斯皮里迪斯说，自从俄罗斯入侵乌克兰后，他和同乡的朋友们就从长住的波兰回到祖国，打算参军保卫家乡。
+#### 加拿大温哥华扬帆农场-采编 撰稿Quitman
 
 
 
-文字版原文：[乌克兰扎波罗热市民踊跃应征入伍抵抗侵略](https://gnews.org/zh-hans/2122482/)
+郭文贵先生开启的爆料革命过去几年多次直播，向全世界发出警告：以中共国和俄罗斯为核心的政治独裁国家正在抱团取暖，形成邪恶轴心集团，对抗美国和欧洲民主国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-679.png)
+文贵先生透露，习近平与普京2010年就开始合作。2012年习近平访问美国洛杉矶，同美国总统奥巴马会谈失败后，他立刻同俄罗斯的普京会谈，联合伊朗、北朝鲜、土耳其或巴基斯坦，形成五个邪恶轴心国集团，对抗美国为首的西方民主社会。普京向习近平展示了俄罗斯先进的军事武器，习近平非常高兴和感动。从此，俄罗斯的武器和军事技术大量出售给中共国。习近平领导的中共集团从骨子里崇拜俄罗斯，崇尚独裁政治，反对民主自由，绝对不愿意让人民有真正的投票权。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+郭先生指出，通过塔利班事件可以看出，一旦中共攻打台湾和收回香港，中共国，俄罗斯、伊朗、北朝鲜和土耳其，五个被制裁的国家会坚决地站在一起。俄罗斯入侵乌克兰事件清楚地表明了这个邪恶轴心五国集团已经形成。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+原文链接：[https://gettr.com/post/pyipmc1fb1](https://gettr.com/post/pyipmc1fb1)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*校对、上传：文永*
 
  
 
