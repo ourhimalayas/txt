@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/8/2022 10:28 PM (UTC)`
+
+3/8/2022 Miles Guo: The Russian-Ukrainian war has demonstrated the solidarity and toughness of the Ukrainians. But the Chinese people will have to pay a high price for this war and their stupidity and ignorance. What the CCP has done has made the world discriminate against the Chinese, while the fellow fighters of the New Federal State of China are saving all the Chinese people across the globe!<br/><br/>3/8/2022 文贵盖特：俄乌战争体现了乌克兰人的团结和坚强；中国人将为这场战争及其愚蠢、无知付出高昂的代价；中共的所作所为让全世界排华，而新中国联邦的战友们却在拯救全球的华人<br/>
+![img](https://media.gettr.com/group16/getter/2022/03/08/22/c73fcb60-bab8-22d8-489d-10f34f4532a1/out.jpg)
+
+---
+
 `@miles 3/8/2022 10:23 PM (UTC)`
 
 3/8/2022 Miles Guo’s GETTR: It is my sincere hope that the song “Chained Dream” serves as a wake up call to our fellow Chinese, so that they will abandon cowardice and stop being so apathetic; through music, we endeavor to promote world peace, and more importantly, to bring safety and dignity to Chinese women.<br/><br/>3/8/2022 文贵盖特：真心希望《锁链梦》能让中国人醒来，抛弃懦弱、不再冷漠，我们要用音乐推动世界和平、更重要的是维护中国女性的安全和尊严<br/>
@@ -147,13 +154,6 @@ We stand with our Ukrainian brothers and sisters during these trying times. Here
 ---
 
 `@miles 3/8/2022 12:10 AM (UTC)`
-
-2022.03.07 NFSC News  Ukraine Rescue Operation feels Serious Anti-Chinese Sentiment； The first bus of the NFSC & ROLF rescue team arrives in Poland
-![img](https://media.gettr.com/group21/origin/2022/03/07/23/3d0825f1-1deb-7d8d-3280-0c6ddc5b72d1/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/7/2022 11:58 PM (UTC)`
 
 2022.03.07 NFSC News  Ukraine Rescue Operation feels Serious Anti-Chinese Sentiment； The first bus of the NFSC & ROLF rescue team arrives in Poland
 ![img](https://media.gettr.com/group21/origin/2022/03/07/23/3d0825f1-1deb-7d8d-3280-0c6ddc5b72d1/9548d67018b19975dcafea4c4484666a.png)

@@ -2,27 +2,24 @@
 ---
 
 
-## 波兰希望向乌克兰提供所有 米格29 战斗机
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2128606/)
+## 巴切莱特宣布与中共国达成协议访问新疆维吾尔地区
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2128692/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+**编译：七龙珠**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip巴切莱特宣布与中共国达成协议访问新疆维吾尔地区.png)中国乌鲁鲁木齐市，女青年鲁鲁木曾走过大巴扎。EFE/EPA/吴红/档案
+联合国人权事务高级专员米歇尔-巴切莱特今天宣布与中共政府达成访问中共国的协议，此行将包括西北部的新疆地区，自2017年以来一直被关押在那里的拘留营的数十万维吾尔人。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1123.jpg)
+巴切莱特在联合国人权理事会审议世界基本自由状况的讲话中强调：“我的办公室和中共政府已经开始为这次访问开展具体工作，访问时间暂定在5月份。”
 
+**新闻来源**：[efe.com][Bachelet anuncia un acuerdo con China para visitar la región uigur de Xinjiang](https://www.efe.com/efe/espana/mundo/bachelet-anuncia-un-acuerdo-con-china-para-visitar-la-region-uigur-de-xinjiang/10001-4755899)
 
-图片来源：视频截图
+* * *
 
-波兰拥有战斗机，乌克兰飞行员也接受过战斗机培训。该国已准备好将其所有 米格29 交给美国。绕道德国的美军基地。
+***审核：Aries的星
+校对：小东
+发布：信心满满***
 
-据外交部称，波兰已决定将其全部苏联 MiG-29 战斗机库存提供给乌克兰。因此，波兰希望“立即免费”移交这架飞机——这些机器将运往莱茵兰-普法尔茨州拉姆施泰因的美国基地，在那里它们将被移交给美国政府。
-
-根据战略研究所（IISS）的信息，波兰拥有28架这样的战斗机。该国在 2000 年代初以象征性的一欧元从德国获得了这些机器。
-
-根据IISS信息，乌克兰空军只有这种类型的飞机用于防空和支持自己的地面部队，以及苏霍伊25战斗机。乌克兰飞行员只接受过这类飞机的培训。目前尚不清楚有多少乌克兰飞机在俄罗斯的袭击中被摧毁。
-
-🔗 [波兰希望向乌克兰提供所有 米格29 战斗机](波兰希望向乌克兰提供所有%20米格29%20战斗机)
-
-编辑发表： Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-4.jpeg)
 
  
 
