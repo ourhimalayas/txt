@@ -2,33 +2,79 @@
 ---
 
 
-## 大直播后记：东南亚排华情况分析
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2123904/)
+## 参议员卢比奥： 正在制定法规对中共国实施制裁,一旦发现中共用他们的CIPS系统来帮助俄罗斯绕过SWIFT制裁的话
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2123914/)
 
-整理：奮鬥、铁血丹心
-编辑：Mohegayer K. Simon
-
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-17.png)图片来源：雅典娜设计组
+参议员马可·卢比奥： 我正在制定法规。如果我们发现中共国试图使用他们的跨境国际支付系统 (CIPS) 来帮助 俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 绕过 SWIFT 制裁，本法规将对 中共国 [#China](https://twitter.com/hashtag/China?src=hashtag_click) 实施制裁 【转报道：中共国的支付系统能否成为俄罗斯的SWIFT解决方案？】
 
 
-宇伦：郭先生，我代战友问一个问题，是东南亚的，他说印尼曾经发生过大规模的排华，那么现在东南亚的新加坡、马来西亚这些地方还适合华人居住吗？还是要尽快离开。
 
-七哥：天天有人问，我再给大家说啊，新加坡这个地方华人比较多，因为他是华人还稍微好一些，但是你想得到好处待遇那是不可能的，就是你会受到这种面子、感情上或者机会平等上的伤害，但是人身安全会稍微好一点儿。但是像在越南、柬埔寨这种亲共，像印度这样的国家，像在日本，像在印度尼西亚就更不用提了。印度尼西亚是糟透了，随时爆发是秒发级的，就是完全突然之间就崩就来了，就像前天在那个曼哈顿那5个中国女性被打得鼻子眼睛斜嘴歪的，那么就那一秒钟发生的事情，但没有任何征兆没有人能控制得了。我觉得新加坡日本还好一点，像在印度尼西亚这种邪恶的种族主义国家，还是赶快离开，越南这个地方也非常之危险，柬埔寨就更别提，柬埔寨只要把洪森干掉，柬埔寨立马就马上就是反华、杀华。在非洲已经太多太多了，就更可怕了。目前看还只有欧洲相对比较安全，这是文明和邪恶的最好的体现，谢谢。
+> I am working on legislation that would impose sanctions on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) if we catch trying to use their Cross-Border International Payments System (CIPS) to help [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) get around SWIFT sanctions
+> 
+>  [https://t.co/SWFg8pr7Vp](https://t.co/SWFg8pr7Vp)
+> — Marco Rubio (@marcorubio) [March 8, 2022](https://twitter.com/marcorubio/status/1501028230718967817?ref_src=twsrc%5Etfw)
 
-马来西亚很危险，马来西亚因为华人是几乎垄断了马来西亚的经济。然后呢，马来西亚这个国家这个政府极为腐败，而且他们两党之间现在已经都知道被共产党给绑架给威胁了，被利用了，而且他们老百姓都知道，我们要想独立要想自由，首先得摆脱中共的控制，他们现在把中共和华人分开？这个问题不是世界上很多人能理解的，中国人（自己）都分开不了甭说你马来西亚人了是吧？它觉得要摆开中共就是摆脱华人，而且我在马来西亚的很多过去的合作伙伴朋友，他们连华人自己都觉得马来西亚要重生就要摆脱华人的经济控制和影响，严格讲就是中共。他们现在认为中共和华人在整个马来西亚这几个岛，包括这开发的项目和新加坡之间，他认为马来西亚已经完全被控制，这是在穆斯林国家，一旦发生像印度尼亚这种排华时候，一定不是说骂你两句踢你两脚，一定是杀、奸、烧！你愿意待在马来西亚你就待下去，我认为真的是很危险，谢谢。
 
-兄弟姐妹刚才我看了有人问黎巴嫩还有土耳其的，土耳其相对是目前我觉得是欧洲最好的，土耳其是最好的一种，生活很便宜，去很容易，而且土耳其人呢很实际，它经济很差，这时候去比较好的。像黎巴嫩这种在战火中的国家很难说，没法确定。那么现在非常清楚的国内战友，现在你没有能力出来，你不要出来，你出来以后会饿死你的，而且现在世界的经济也是在灾难中，更难生存。你在中国你跟羊竞争都找不到草吃，现在你出来你跟狮子争饭吃很难，就不要做这个错误的决定。你没有跟狮子豹子竞争PK的能力，你就不要出来。
 
-在国内我再说一遍，这个时候你如果有钱有能力的话，这个时候一定要长远打算，一定要想到现在回老家这些地方，你得有在老家那里的生存环境，在老家被那些县长镇长弄出锁链女也是分分钟发生的事，很黑暗。但是你在大城市里边一旦没电没水你咋办？这些综合的平衡，每个人情况不同。但是如果中国任何人不做好一个最坏的时刻到来的话，你记住那个最坏的时刻一定发生在你身上！就像打疫苗一样，如果你不认真地面对的话那这个疫苗就会跑到你身体里，而且你永远拿不出来。没有统一的答案没有统一的标准，因为不同的人有不同的环境，完全你自己做决定，谢谢。
+参议员汤姆.科顿： 两党都犯了这一代人最严重的错误之一是：给予共产主义中国永久最惠国待遇、并让其加入世界贸易组织。
 
-资料来源：[2022年3月6日 文贵大直播](https://gettr.com/streaming/pyhtnya292)
 
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)+1
+
+> Both parties are complicit in one of the single worst mistakes of this generation: granting Communist China Permanent Most Favored Nation status and admitting it into the World Trade Organization.
+> — Tom Cotton (@SenTomCotton) [March 8, 2022](https://twitter.com/SenTomCotton/status/1501023399174365185?ref_src=twsrc%5Etfw)
+
+
+
+众议员马乔丽·泰勒·格林： 民主党人不在乎汽油价格有多高，因为他们希望美国人放弃并购买电动汽车。 那么美国人想开车就要依赖 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)，因为 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 以超过85%的比例在电动汽车电池市场上占据主导地位，而美国则不到5%。 民主党(实践的)是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 优先。
+
+
+
+> Democrats don’t care how high gas prices go because they want Americans to give up and buy electric vehicles.
+> 
+> Then Americans will rely on China to drive because China dominates the EV battery market at over 85%, and America is less than 5%.
+> 
+> Democrats are China First.
+> — Rep. Marjorie Taylor Greene (@RepMTG) [March 8, 2022](https://twitter.com/RepMTG/status/1501003963285622787?ref_src=twsrc%5Etfw)
+
+
+
+美前国务卿迈克·蓬佩奥： 认为我们会允许俄罗斯人参与与伊朗人的协议谈判，或者美国会取消对伊朗人的恐怖指控，这完全是疯了。伊朗人正试图在世界各地杀人。 但拜登政府正在同时做这两件事。
+
+
+
+> It’s completely nutty to think that we would allow the Russians to participate in negotiating a deal with the Iranians or that the U.S. would lift the terror designations on the Iranians, who are trying to kill people all across the world. 
+> 
+> But the Biden Admin is doing both. [pic.twitter.com/W9SmYpUdHr](https://t.co/W9SmYpUdHr)
+> — Mike Pompeo (@mikepompeo) [March 7, 2022](https://twitter.com/mikepompeo/status/1500962806576861184?ref_src=twsrc%5Etfw)
+
+
+
+参议员卢比奥： 普京会毫不犹豫地在乌克兰上演生物武器假戏码，这是你会看到的那种信息舆论作为他这样做的前奏。 【转ASB军事新闻推文：大意是俄国公布文件说乌克兰在靠近俄边境研究违反联合国1号文件的生物武器，他们是由美国资助的，在五角大楼指导下已被摧毁】
+
+
+
+> [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) would not hesitate to stage or carry out a biological weapon false flag in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) and this is the kind of messaging you would see as a prelude to him doing that [pic.twitter.com/a8OpRu7hyF](https://t.co/a8OpRu7hyF)
+> — Marco Rubio (@marcorubio) [March 7, 2022](https://twitter.com/marcorubio/status/1500940810455502861?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 被全球支付网络隔绝的俄罗斯银行正在转向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的国有银行系统。
+
+
+
+> Russian banks cut off from global payment networks are turning to China’s state-run banking system.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 7, 2022](https://twitter.com/MarshaBlackburn/status/1500933383521812491?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 台湾人民从一开始就已经意识到了中国共产党的威胁。世界从台湾人民对中共极度现实的不信任中得到启发。
+
+
+
+> The Taiwanese people have been awake to the Chinese Communist Party’s threat from the beginning. The world drew inspiration from the Taiwanese people’s profound and realistic distrust of the CCP.
+> — Mike Pompeo (@mikepompeo) [March 7, 2022](https://twitter.com/mikepompeo/status/1500890828054712330?ref_src=twsrc%5Etfw)
+
+
 
  
 

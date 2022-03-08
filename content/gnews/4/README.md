@@ -2,79 +2,63 @@
 ---
 
 
-## 参议员卢比奥： 正在制定法规对中共国实施制裁,一旦发现中共用他们的CIPS系统来帮助俄罗斯绕过SWIFT制裁的话
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2123914/)
+## 俄罗斯各地有数千人在反战抗议活动中被捕
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2123941/)
 
-参议员马可·卢比奥： 我正在制定法规。如果我们发现中共国试图使用他们的跨境国际支付系统 (CIPS) 来帮助 俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 绕过 SWIFT 制裁，本法规将对 中共国 [#China](https://twitter.com/hashtag/China?src=hashtag_click) 实施制裁 【转报道：中共国的支付系统能否成为俄罗斯的SWIFT解决方案？】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-58.png)在俄罗斯圣彼得堡，警察在3月2日的抗议活动中逮捕了一名反战示威者| 德米特里·洛维茨基（Dmitri Lovetsky）/美联社
+**据《半岛电视台新闻》2****022****年3月6日报道**
 
+一个独立的抗议监督组织称，周日在俄罗斯全境的抗议活动中，警方拘留了4300多人，抗议总统弗拉基米尔·普京（Vladimir Putin）对乌克兰的入侵。
 
+根据反对派活动家和博主在社交媒体上发布的视频，数千名抗议者高呼 “反对战争！”和 “你真可耻！”。
 
-> I am working on legislation that would impose sanctions on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) if we catch trying to use their Cross-Border International Payments System (CIPS) to help [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) get around SWIFT sanctions
-> 
->  [https://t.co/SWFg8pr7Vp](https://t.co/SWFg8pr7Vp)
-> — Marco Rubio (@marcorubio) [March 8, 2022](https://twitter.com/marcorubio/status/1501028230718967817?ref_src=twsrc%5Etfw)
+在乌拉尔的叶卡捷琳堡市，有数十名抗议者被逮捕。一名抗议者被穿着防暴装备的警察打倒在地。该市一幅显示总统弗拉基米尔-普京的壁画被污损。
 
+社交媒体上的录像和照片无法得到独立核实。
 
+俄罗斯内政部早些时候说，警方拘留了约3500人，包括莫斯科的1700人，圣彼得堡的750人和其他城市的1061人。内政部说，有5200人参加了抗议活动。
 
-参议员汤姆.科顿： 两党都犯了这一代人最严重的错误之一是：给予共产主义中国永久最惠国待遇、并让其加入世界贸易组织。
+抗议监督组织OVD-Info说，它记录了56个不同城市中至少有4366人被拘留。
 
+根据OVD-Info获悉，周日的逮捕使自2月24日入侵开始以来被关押的反战抗议者总数超过了1万人。
 
+OVD-Info发言人玛丽亚·库兹涅佐娃（Maria Kuznetsova）在第比利斯通过电话告诉路透社：”螺丝被完全拧紧了，基本上我们看到的是军事审查制度”。
 
-> Both parties are complicit in one of the single worst mistakes of this generation: granting Communist China Permanent Most Favored Nation status and admitting it into the World Trade Organization.
-> — Tom Cotton (@SenTomCotton) [March 8, 2022](https://twitter.com/SenTomCotton/status/1501023399174365185?ref_src=twsrc%5Etfw)
+“我们今天看到了很大的抗议，甚至在西伯利亚的城市，我们很少看到这样的逮捕人数。”
 
+**纳瓦尔尼呼吁**
 
+社交媒体上发布的一段视频显示，一名抗议者在远东城市哈巴罗夫斯克的一个广场上喊道。”反对战争! 你怎么不觉得羞耻？” 然后两名警察逮捕了他。
 
-众议员马乔丽·泰勒·格林： 民主党人不在乎汽油价格有多高，因为他们希望美国人放弃并购买电动汽车。 那么美国人想开车就要依赖 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)，因为 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 以超过85%的比例在电动汽车电池市场上占据主导地位，而美国则不到5%。 民主党(实践的)是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 优先。
+警察用扩音器告诉哈巴罗夫斯克的一小群抗议者：”尊敬的公民，你们正在参加一个未经批准的公共活动。我们要求你们散开。”
 
+半岛电视台未能独立核实该帖子。
 
+被监禁的克里姆林宫批评家阿列克谢·纳瓦尔尼(Alexey Navalny)曾呼吁，周日在俄罗斯和世界其他地区举行抗议活动，反对入侵行为。
 
-> Democrats don’t care how high gas prices go because they want Americans to give up and buy electric vehicles.
-> 
-> Then Americans will rely on China to drive because China dominates the EV battery market at over 85%, and America is less than 5%.
-> 
-> Democrats are China First.
-> — Rep. Marjorie Taylor Greene (@RepMTG) [March 8, 2022](https://twitter.com/RepMTG/status/1501003963285622787?ref_src=twsrc%5Etfw)
+纳瓦尔尼周五说：”由于普京，俄罗斯现在对许多人来说意味着战争。” 这是不对的。攻击乌克兰的是普京而不是俄罗斯。”
 
+2月24日，普京下令开展他所谓的 “特别军事行动”，以保卫讲俄语的社区免受乌克兰的迫害，并防止美国利用乌克兰来威胁俄罗斯。
 
+西方称他的论点是毫无根据的战争借口，并实施制裁，旨在削弱俄罗斯经济。美国、英国和其他北约成员国已经向乌克兰提供了武器。
 
-美前国务卿迈克·蓬佩奥： 认为我们会允许俄罗斯人参与与伊朗人的协议谈判，或者美国会取消对伊朗人的恐怖指控，这完全是疯了。伊朗人正试图在世界各地杀人。 但拜登政府正在同时做这两件事。
+据设在莫斯科的民调机构称，自入侵以来，普京在俄罗斯的支持率已经跃升。
 
+根据国家民调机构VsTIOM的数据，在截至2月27日的一周内，总统的评分上升了6个百分点，达到70%。为克里姆林宫提供研究的FOM民调机构说，普京的评分在同一周上升了七个百分点，达到71%。
 
+一些国际广播公司，包括英国广播公司(BBC)、美国有线电视新闻网(CNN)、意大利RAI以及德国ARD和ZDF，已经表示，在俄罗斯议会通过一项法律草案，对发表所谓的关于俄罗斯入侵的 “假新闻 ” 的行为处以最高15年的监禁后，他们将停止在俄罗斯的报道。
 
-> It’s completely nutty to think that we would allow the Russians to participate in negotiating a deal with the Iranians or that the U.S. would lift the terror designations on the Iranians, who are trying to kill people all across the world. 
-> 
-> But the Biden Admin is doing both. [pic.twitter.com/W9SmYpUdHr](https://t.co/W9SmYpUdHr)
-> — Mike Pompeo (@mikepompeo) [March 7, 2022](https://twitter.com/mikepompeo/status/1500962806576861184?ref_src=twsrc%5Etfw)
+获奖的俄罗斯独立报纸《新报》说，鉴于新的法律，它也将停止对乌克兰战争的报道，而其他几家俄罗斯新闻机构已经暂停运营。
 
+原文视频：
 
-
-参议员卢比奥： 普京会毫不犹豫地在乌克兰上演生物武器假戏码，这是你会看到的那种信息舆论作为他这样做的前奏。 【转ASB军事新闻推文：大意是俄国公布文件说乌克兰在靠近俄边境研究违反联合国1号文件的生物武器，他们是由美国资助的，在五角大楼指导下已被摧毁】
-
-
-
-> [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) would not hesitate to stage or carry out a biological weapon false flag in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) and this is the kind of messaging you would see as a prelude to him doing that [pic.twitter.com/a8OpRu7hyF](https://t.co/a8OpRu7hyF)
-> — Marco Rubio (@marcorubio) [March 7, 2022](https://twitter.com/marcorubio/status/1500940810455502861?ref_src=twsrc%5Etfw)
+[https://www.aljazeera.com/news/2022/3/6/detentions-across-russia-anti-war-protests-monitor](https://www.aljazeera.com/news/2022/3/6/detentions-across-russia-anti-war-protests-monitor)
 
 
 
-参议员玛莎·布莱克本： 被全球支付网络隔绝的俄罗斯银行正在转向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的国有银行系统。
 
 
-
-> Russian banks cut off from global payment networks are turning to China’s state-run banking system.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 7, 2022](https://twitter.com/MarshaBlackburn/status/1500933383521812491?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿蓬佩奥： 台湾人民从一开始就已经意识到了中国共产党的威胁。世界从台湾人民对中共极度现实的不信任中得到启发。
-
-
-
-> The Taiwanese people have been awake to the Chinese Communist Party’s threat from the beginning. The world drew inspiration from the Taiwanese people’s profound and realistic distrust of the CCP.
-> — Mike Pompeo (@mikepompeo) [March 7, 2022](https://twitter.com/mikepompeo/status/1500890828054712330?ref_src=twsrc%5Etfw)
-
-
+翻译：叶子 | 校对：烟波浩淼 | 编辑&发布：闪电训练
 
  
 
