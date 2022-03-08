@@ -2,10 +2,12 @@
 ---
 
 
-## 3/8/2022 文贵盖特：俄乌战争体现了乌克兰人的团结和坚强；中国人将为这场战争及其愚蠢、无知付出高昂的代价
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2129000/)
+## 七哥金句：教育是人畜分开的一个重要手段
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2129099/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句.jpg)
+整理：雅典娜农场
+发布：枫叶红了
 
  
 

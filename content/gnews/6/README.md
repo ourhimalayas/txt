@@ -2,21 +2,31 @@
 ---
 
 
-## 【 #G时新闻 】星链系统为乌克兰反击俄军提供技术帮助
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2129085/)
+## 今日盖特大V推荐 — 布丽吉特·加布里埃尔（Brigitte Gabriel）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2129126/)
 
-加拿大温哥华扬帆农场 – 播报：yuyu
-加拿大温哥华扬帆农场 – 视频制作：Gracelshan
+![](https://assets.gnews.org/wp-content/uploads/2022/03/a4ef5-rr403-1.jpg)
+***盖特链接***：[https://gettr.com/user/brigitte](https://gettr.com/user/brigitte)
 
-据加拿大【后千禧年】3月6日报道，俄军本次入侵乌克兰的重要战略之一，就是首先切断乌克兰境内的国际互联网，并毁掉其所有通信网络设施。
+***布丽吉特·加布里埃尔自述：***
 
-报道称，当乌克兰部分地区的通信网络被俄军破坏后，乌克兰副总理随即请求SpaceX创始人马斯克，希望该公司能向乌克兰提供卫星互联网服务。最终，在马斯克与总统泽连斯基视频会晤后，SpaceX立即为乌克兰提供了一批星链系统设备，以用于被毁城市的网络重建。
+恐怖主义的幸存者。美国行动（ACT for America）创始人兼主席。 纽约时报畅销书作家，国家安全专家。分享、关注、喜欢不是背书。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/mmmp.png)
+**图片来源：网络**
 
-尽管普京一再威胁为乌克兰提供援助的国家，但马斯克无惧恐吓，仍然全力支援危难中的乌克兰，并在关键时刻为该国抵御并反击俄军入侵提供了可靠且强有力的通信保障。
+**布丽吉特·加布里埃尔简介：**
 
-原文链接：https://gnews.org/zh-hans/2127143/
-视频链接：https://www.gettr.com/post/pyxldy978f
-编辑/发文：文莱
+布丽吉特·加布里埃尔（Brigitte Gabriel 生于1964年10月21日）是黎巴嫩裔美国保守派作家，记者，国家安全专家，美国行动（ACT for America）创始人兼主席。
+
+布丽吉特·加布里埃尔曾是中东电视台的阿拉伯语晚间新闻广播《世界新闻》（World News）的主播。该广播覆盖以色列、埃及、叙利亚、约旦和黎巴嫩。
+
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

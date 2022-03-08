@@ -17,6 +17,28 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@pangushixun 3/8/2022 11:23 PM (UTC)`
+
+<br/>战友刚在边境的难民营采访了一个战地记者Emma，是一个法国记者，来自德国柏林，雇主是英国的时尚杂志I-D, 她听说过新中国联邦，很高兴知道我们是法治基金赞助的和新中国联邦的国际人道救援义工，她支持新中国联邦take down the CCP。 <br/><br/><br/>#盘古时讯 #乌克兰 #救援 #人道主义 #新中国联邦 #takedownCCP
+![img](https://media.gettr.com/group44/getter/2022/03/08/23/c42f5ffa-90b6-e007-328e-778c1c558591/out.jpg)
+
+---
+
+`@miles 3/8/2022 11:47 PM (UTC)`
+
+3月8号：扎扎实实的数据，反映了共产党在全世界给中国人拉仇恨的卑鄙结果……醒来吧……我们的中国同胞们。【报告称，去年全国反亚裔仇恨犯罪增加了 339% 根据数据，报告的反亚裔仇恨犯罪激增明显高于 2020 年，与前一年相比增加了 124%。 纽约市的反亚裔仇恨犯罪增加了特别剧烈，从 30 起增加到 133 起，增加了 343%。 旧金山也经历了惊人的增长，从 9 起犯罪增加到 60 起，增加了 567%。 洛杉矶也有 173% 的类似增幅！ 兄弟姐妹们 多多注意安全🙏💓 https://www.nbcnews.com/news/asian-america/anti-asian-hate-crimes-increased-339-percent-nationwide-last-year-repo-rcna14282 https://gettr.com/post/pyxyiw51d6】
+
+---
+
+`@miles 3/8/2022 11:40 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-秘翻特别节目
+![img](https://media.gettr.com/group29/origin/2022/03/08/23/dc7e86e0-a203-471d-40a2-f7735cacba13/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/8/2022 10:59 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 2022-03-08
@@ -136,27 +158,6 @@ We stand with our Ukrainian brothers and sisters during these trying times. Here
 
 3月7号：非常感谢文峰的儿子制作的，关于在乌克兰拯救儿童后的视频，太棒了。
 ![img](https://media.gettr.com/group36/getter/2022/03/08/01/272b42fa-4e89-c557-6863-bc308a01840a/out.jpg)
-
----
-
-`@miles 3/8/2022 1:09 AM (UTC)`
-
-3/7/2022 Miles Guo’s GETTR: Although the Chinese people aren’t participating in the Russia-Ukraine war, they are hated the most in the world. Thanks to our fellow fighters who have risked their lives to save nearly 100 children and more than 200 Ukrainian and international friends with their buses in Ukraine. The Chinese people in Ukraine are in a tough situation, but they are still being brainwashed by the CCP. There were 18 Chinese who even believed the lies of the CCP embassy and thus got off our bus.<br/><br/>3/7/2022 文贵盖特：中国人虽未参加俄乌之战却在全世界最遭人恨；感谢战友们冒生命危险用巴士在乌克兰救了近百个孩子、200多位乌克兰和国际人士；在乌克兰的中国人处境艰难，却仍被洗脑，竟有18人听信中共大使馆的谎话下了我们的巴士<br/>
-![img](https://media.gettr.com/group44/getter/2022/03/08/01/9a35bdf2-9c6b-9a1c-3818-5ec6c2e8730d/out.jpg)
-
----
-
-`@miles 3/8/2022 1:00 AM (UTC)`
-
-3/7/2022 Miles Guo: The CCP officials have a complete disregard for the lives of ordinary Chinese people. They shamelessly slander the New Federal State of China as an anti-Chinese organization, causing 18 Chinese people that we had already rescued to abandon our aid, really speechless! While working hard to save as many lives as possible, the NFSC rescue team should also keep yourselves safe!<br/><br/>3/7/2022 文贵直播：中共官员完全不顾普通中国人的生命，无耻地污蔑新中国联邦为反华组织，导致已被我们救助的18个中国人放弃了我们的救助，悲哀至极！新中国联邦救助团队能救则救，要保证自己的安全！<br/>
-![img](https://media.gettr.com/group37/getter/2022/03/08/01/62c6e40f-2873-793b-8542-7ba5ceda2f87/out.jpg)
-
----
-
-`@miles 3/8/2022 12:58 AM (UTC)`
-
-3/6/2022 Miles Guo: Which place is safe for the fellow fighters to go? Asia and Africa are very dangerous for the Chinese people, with Indonesia, Malaysia, India, and Vietnam being particularly dangerous. Europe is relatively safe, and Turkey is easier to go and livable. It is recommended that the fellow fighters in Communist China make long-term plans by taking into account their own situations.<br/><br/>3/6/2022 文贵直播: 战友们去哪个地方比较安全？亚洲和非洲对华人很危险，尤其是印尼、马来西亚、印度和越南；欧洲相对安全，土耳其容易去且宜居；墙内战友应根据自身情况做长远打算<br/>
-![img](https://media.gettr.com/group46/getter/2022/03/08/00/7e8a4140-a221-d621-8453-d7905e2966ed/out.jpg)
 
 ---
 
