@@ -2,30 +2,37 @@
 ---
 
 
-## 樱花FM|联合国大会紧急特别会议通过谴责俄罗斯决议
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2125938/)
+## FDA败诉！辉瑞被迫公布所有疫苗数据！副作用足足有9页！全网震惊！
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2126000/)
 
-音频：东京樱花团/战友520
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/https_______mmbiz.qpic-2.jpeg)
+据报道，3月1日，美国食药监局FDA在官司中败诉，法院要求FDA今年夏天之前要完成辉瑞新冠疫苗32.9万页完整审评文件的公开。
 
-![](https://lh3.googleusercontent.com/uDxUhvlLnIFwIf2-Y1yKdod4egEUJmjwu_r-l2Sl7Fx-rCAg2O_u8ahYoDB0ezKG_PDRap5f1WdSo_5c_X14rKec01UdEDwc2Q-QU_XyPIPrH8dScsxvaojdimL974NFPNPlK9x8)
+3月5日，FDA刚刚发布了首批文件，在众多的文件里，最让人震惊的，莫过于关于辉瑞疫苗不良反应的报告，足足有9页之多，全网为之震惊。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GqPX-Cu63VNbCrjjATxNYfc9Yg7AgWRAryOobK8jqGw.png)
+目前披露的文件中列出了1000多种不良反应，很多都是头一次披露，包括：筋膜炎、眼部肿胀、面瘫、斑秃、过敏休克、妊娠过敏反应综合征、急性心肌病、急性呼吸衰竭、注射部位血管炎、癫痫、血栓、心律失常、关节炎、哮喘、支气管痉挛、心脏骤停、心力衰竭、胸部不适、窒息、急性皮肤红斑狼疮、急性脑脊髓炎、急性肾损伤、急性黄斑外层视网膜病变、再生障碍性贫血、慢性自身免疫性肾小球肾炎、慢性皮肤红斑狼疮、慢性自发性荨麻疹、溶血性贫血、结肠炎、皮炎、糖尿病、栓塞性脑梗塞、内分泌失调、新生儿重症肌无力、脊髓炎、非感染性卵巢炎、甲状腺炎、溃疡性直肠炎、眼部瘙痒症、生殖器疱疹、舌咽神经麻痹、出血性血管炎、宫颈炎、狼疮性膀胱炎、狼疮性脑炎、多发性硬化症等等。
 
-据NHK3日早晨消息，在联合国大会就俄罗斯军事入侵乌克兰举行的紧急特别会议上，通过了谴责俄罗斯并呼吁立即撤军的决议。其中包括欧洲、美国和日本在内的141个国家投了赞成票，进一步凸显了乌克兰局势中形成了对俄罗斯的国际孤立。
+按照法院要求，FDA将在今年夏天之前发布完所有相关文件，现在才刚刚公布了150份文件。相信随着更多文件的披露，更大的争议还会陆续涌现。
 
-联合国关于俄罗斯军事入侵乌克兰的紧急特别会议于当地时间2日上午举行在美国纽约联合国总部大会堂举行。从上月28日起的三天里，193个成员国中约120个国家的代表发表了演讲，最后由美国等国家提交的决议获得通过。
+新闻链接：[https://www.globenewswire.com/news-release/2022/03/03/2396681/0/en/CHD-Says-Pfizer-and-FDA-Dropped-Data-Bombshell-on-COVID-Vaccine-Consumers.html](https://www.globenewswire.com/news-release/2022/03/03/2396681/0/en/CHD-Says-Pfizer-and-FDA-Dropped-Data-Bombshell-on-COVID-Vaccine-Consumers.html)
 
-该决议谴责了俄罗斯在乌克兰开展的军事行动以及俄罗斯加强其核力量准备的决定。对住宅区和学校等民用设施遭到袭击以及平民伤亡报告深表关切，并呼吁俄罗斯立即无条件撤军。
+编辑/校对/发稿：文留
 
-投票于亚洲时间凌晨进行，欧洲、美国、日本等141个国家赞成，俄罗斯、白俄罗斯、朝鲜等5个国家反对，中国和印度在内的共有35个国家投了弃权票。最终获得超过三分之二的赞成票通过了该决议。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-2.jpg)
 
-决议通过后，联合国秘书长安东尼奥·古特雷斯告诉记者，“接近决议并实现其目的。这是我作为秘书长的责任。我们呼吁俄罗斯结束在乌克兰的敌对行为，放下武器，打开对话和外交的大门。”古特雷斯还说：“乌克兰的领土和主权必须根据《联合国宪章》得到尊重。时间所剩无几。我们将尽最大努力立即开始和平谈判。”
+**更多资讯，更多关注**
 
-美国总统乔·拜登2日就决议通过发表讲话时谴责有35个国家投了弃权票，拜登还特别点名批评中国和印度投了弃权票。拜登说，“他们认为可以分裂北约、欧洲和美国。我们要向全世界表明，没有人能做到这一点。”
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-文字版原文：[联合国大会紧急特别会议通过谴责俄罗斯决议](https://gnews.org/zh-hans/2097629/)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

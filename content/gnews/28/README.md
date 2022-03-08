@@ -2,55 +2,22 @@
 ---
 
 
-## 视频|求婚的乌克兰士兵
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2125289/)
+## 泽连斯基将向英国会发表演说
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2125296/)
 
-作者：纽约香草山教育部-蓝之灵（hortênsia)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-你是我的新娘
-戒指和鲜花
-不能缺任何一样
-在战争中
-紧握彼此的手
-没有彷徨
-只有爱的海洋
+采集：玫瑰新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-07t234229z_1019218434_rc2zxs9kff1w_rtrmadp_3_ukraine-crisis-zelenskiy.jpg)乌克兰总统泽连斯基明晨将向英国国会发表演说。（法新社）
+乌克兰总统泽连斯基将于周二（3月8日）通过视频方式，向英国国会发表演说。
 
-奔赴前线即刻
-做我的新娘
-炮火中
-让爱有了翅膀
-让我们飞翔
+据路透社报道，自俄罗斯入侵乌克兰以来，泽连斯基曾与英国首相约翰逊多次通话，上周也向欧洲联盟发表演说，寻求欧盟成员国给予物资和军事援助。
 
-扛起炮和抢
-赶跑侵略者
-我们一起建设家乡
-你是我的新娘
-鲜花和浪漫
-不能缺任何一样
-爱的光芒
-千万丈
-照亮我心房
-我爱你
-我的新娘
-赶跑侵略者
-让乌克兰荣光
-赶跑侵略者
-我回来
-和你洞房
+泽连斯基将于8日格林威治标准时间下午5时（新加坡时间9日凌晨1时）向英国国会发表演讲。这是国家总统首次向英国议会发表演说。届时英国议员将通过隔夜安装的屏幕观看演说，现场也有500部耳机提供同步传译。
 
+原文链接：[https://www.zaobao.com.sg/realtime/world/story20220308-1250228](https://www.zaobao.com.sg/realtime/world/story20220308-1250228)
 
+审核校对：Barry Jack
+上传排版：F
 
-审核/编辑/发稿:qiutian（邱甜）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
