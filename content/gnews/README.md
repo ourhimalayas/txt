@@ -15,41 +15,41 @@
 
 ---
 
-### [Hcoin 和Hpay给你带来安全和稳定](/content/gnews/1/README.md)
+### [独裁政府对货币的控制](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [国际经济动荡与Hpay和Hcoin对世界的救赎](/content/gnews/2/README.md)
+### [利益集团带来的问题](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [新中国联邦与UBS的战争](/content/gnews/3/README.md)
+### [现代人类社会不需要政府](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [乌克兰大救援3.8. 英国小提琴老师法语祈福新中国联邦救援乌克兰96名儿童与家人团聚](/content/gnews/4/README.md)
+### [Hpay如何使用](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [Hcoin 和Hpay给你带来安全和稳定](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [国际经济动荡与Hpay和Hcoin对世界的救赎](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [文贵先生的财富观](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [乌克兰大救援3.8. 英国小提琴老师法语祈福新中国联邦救援乌克兰96名儿童与家人团聚](/content/gnews/8/README.md)
  ` 秘密翻译组-原创组`
 
-### [排华反华灾难可能会瞬间爆发 墙内同胞也要做好最坏时刻到来的准备](/content/gnews/5/README.md)
+### [排华反华灾难可能会瞬间爆发 墙内同胞也要做好最坏时刻到来的准备](/content/gnews/9/README.md)
  ` 焦點20分`
 
-### [欧盟力争今年将对俄罗斯的天然气依赖度降低近八成](/content/gnews/6/README.md)
+### [欧盟力争今年将对俄罗斯的天然气依赖度降低近八成](/content/gnews/10/README.md)
  ` 经济小组`
 
-### [UBS的邪恶勾当](/content/gnews/7/README.md)
- ` MG FARM`
-
-### [传统金融体系](/content/gnews/8/README.md)
- ` MG FARM`
-
-### [朝鲜在韩国选举前几天再次发射导弹](/content/gnews/9/README.md)
+### [朝鲜在韩国选举前几天再次发射导弹](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共攻台会更加凶残和快速 共产党正在悄悄的转移资产](/content/gnews/10/README.md)
+### [中共攻台会更加凶残和快速 共产党正在悄悄的转移资产](/content/gnews/12/README.md)
  ` 焦點20分`
-
-### [人类面临政治、经济大冲突](/content/gnews/11/README.md)
- ` MG FARM`
-
-### [共产党与西方文明的对抗](/content/gnews/12/README.md)
- ` MG FARM`
 
 ### [美国最高法院判决辉瑞和FDA公布疫苗数据](/content/gnews/13/README.md)
  ` 焦點20分`

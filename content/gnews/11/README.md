@@ -2,31 +2,43 @@
 ---
 
 
-## 人类面临政治、经济大冲突
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2127951/)
+## 朝鲜在韩国选举前几天再次发射导弹
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2127991/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+据《美国之音》作者：William Gallo，2022年3月4日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-755-e1646762599656.png)2022年3月5日，在韩国首尔的一个火车站，人们观看电视屏幕上显示的新闻广播，其中有朝鲜导弹试验的文件片段。（图片源自美国之音）
+韩国军方周六报告说，距离韩国总统选举只有四天，朝鲜向其东海岸附近的海域发射了一枚疑似弹道导弹。
 
-2022-02-25直播摘录
+韩国军方说，朝鲜从平壤的顺安地区发射了这枚推定的弹道导弹。朝鲜周六也是从这个地方进行了一次试验，它说这是在为即将到来的卫星发射做准备。
 
-你看到小土豆和美国、西方的企业，你会看到疫苗的灾难还没到五月份，早着呢，早着呢，早着呢。大抗议的时候，民主政治，他要么催生了成熟的，我们追求的正道主义的西方政治文化，要么就是把整个西方的民主政治变成了所谓过渡型的独裁政府，因为都在抗议、都在乱。那这个时候西方是很弱的，这个时候东方的还有北朝鲜啊、伊朗啊、中共啊，是吧，俄罗斯啊，然后那些小国家，什么乌干达、坦桑尼亚、尼日利亚、津巴布韦啊都跟着上来了，还包括新加坡，都想搞一个独裁者。这时候，兄弟们，我们可能面临着一个什么黑暗情况？可能十年、二十年、甚至一生，都面临着人类的政治、经济大冲突，最后形成人类的文明。我相信在这场过渡当中，爆料革命、新中国联邦，我们不需要任何人相信我们，最好不相信我们的人永远别相信我们，祝你们永远别相信我们，我们是卡扎菲、还有Micheal Jacskon的服装Style，极右主义分子，还有什么三秒、骗子，你们就相信你们的去吧。我们，我相信新中国联邦正道主义会成为人类上永远的光芒。而且会成为真正的是像人类在黑暗中看到阳光和太阳一样被人们所接受。
+日本国防部说，这枚导弹飞行了约300公里，达到550公里的最大高度。日本海岸警卫队说，这枚导弹落在了日本专属经济区外的海域。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+今年到目前为止，朝鲜已经进行了九轮发射，至少发射了13枚独立的导弹。
 
-**关注我们**
+大多数的发射都涉及短程导弹。然而，最近几个月，朝鲜多次表示它将很快进行卫星发射，此举将大大加剧朝鲜半岛的紧张局势。
 
-Discord 账号
+**北朝鲜声称发射是和平的**
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+朝鲜坚称卫星发射是和平的，但美国、日本和韩国认为它们是变相的远程导弹试验。
 
-Gettr 账号
+联合国安全理事会的一系列决议禁止朝鲜进行任何弹道导弹活动，包括任何射程的试验。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+朝鲜的最新试验发生在韩国总统选举前四天，虽然朝鲜没有成为竞选的焦点，但候选人已经警告朝鲜不要发射导弹或进行其他旨在影响投票结果的挑衅行为。
+
+文章观点仅代表作者个人，与Gnews平台无关
+
+文章来源: [https://www.reuters.com/article/us-china-xinjiang-idUSKCN2AT1BA](https://www.reuters.com/article/us-china-xinjiang-idUSKCN2AT1BA)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 –傻小子
+发布：洛杉矶盘古农场 –子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
  
 
