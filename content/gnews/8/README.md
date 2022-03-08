@@ -2,36 +2,29 @@
 ---
 
 
-## 有声|新中国联邦-乌克兰救援行动中
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2127776/)
+## 中共银联支持俄罗斯银行
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2127790/)
 
-作者/录音:香草山福音部-黎明曙光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-新中国联邦法治基金紧急救援行动，在乌克兰 妇女，儿童，华人及世界友好人士！
+采编撰稿：加拿大温哥华杨帆农场 – 自由法兰西
 
-俄罗斯战争狂人将乌克兰人民处于战火之中带给乌克兰民众炮弹与哭泣视生命为草芥導致生死离别。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-749.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0306_2.jpg)
+Source：[DW报道](https://www.dw.com/zh/%E7%BB%B4%E8%90%A8%E5%92%8C%E4%B8%87%E4%BA%8B%E8%BE%BE%E5%8D%A1%E6%9A%82%E5%81%9C%E6%9C%8D%E5%8A%A1-%E4%BF%84%E9%93%B6%E8%A1%8C%E8%BD%AC%E5%90%91%E4%B8%AD%E5%9B%BD%E9%93%B6%E8%81%94/a-61033012)
 
-乌克兰总统捍卫国家主权勇敢、智慧。站在民众之中利用网络信息展开宣传之战，告诉世界战争给乌克兰人们帶來了戰後大的災难。
+据&lt;自由亚洲电台&gt;3月6日报道，在全球金融支付服务公司VISA和[万事达]因俄罗斯入侵乌克兰而暂停在俄业务之后，俄银行拟与中共银联合作发行新的信用卡。
 
-英勇的乌克兰人全民皆兵拿起武器奋力反战，誓言把俄罗斯侵略者打回俄罗斯。
+对此，俄罗斯[联邦储蓄银行]和[阿尔法银行]当天表示，正在推动发行中共国银联系统的信用卡。同时，俄其它几家主要银行也在筹备使用银联信用卡。
 
-新中国联邦救援在乌克蘭的妇女，儿童，华人，及世界友好人士从战火中回救援到安全的港湾。
+目前，由于中共银联卡可在世界约180个国家和地区被使用，此举无疑将为俄罗斯金融体系续命。并通过继续进行海外支付，而成为俄罗斯逃避西方制裁的避风港。
 
-新中国联邦24小时救援联系方式如關注各大社交網絡媒體。
+评论指出，中共金融机构倒行逆施，进一步加剧了国际社会对中共国的敌视，而中国人民特别是海外华人将无辜成为全世界仇恨的对象，并最终沦为全球排华危机的牺牲品。
 
-音频处理/发稿：Daxia
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+发文：青青
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+原文链接： [RFA自由亚洲电台报道](https://www.rfa.org/mandarin/Xinwen/8-03062022144853.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

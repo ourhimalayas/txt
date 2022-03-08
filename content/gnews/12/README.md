@@ -2,62 +2,19 @@
 ---
 
 
-## 有声|中国人的救赎
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2127703/)
+## 拜登总统宣布禁止进口俄罗斯石油和其他能源
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2127708/)
 
-配音：香草山教育部 – 百香果
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-站在炮火纷飞最前沿
-拯救一个又一个生命
-中国的，美国的，乌克兰的
-巴士飞驰一次又一次
-鲜活生命
-救援队在救赎
+撰稿：追着曙光跑
 
-我们是在救命吗
-我们是在行善吗
-天使在前线
-行使使命
-完成
-救赎中国人灵魂
+据路透社3月8日的报道，美国总统拜登宣布禁止进口俄罗斯石油和其他能源，增强对俄罗斯施加压力，这也是美国针对俄罗斯入侵乌克兰採取的最新制裁措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-09-at-2.15.39-AM.jpeg)图片来源原新闻视频截图
+美国国会议员不断施压，要求拜登总统采取禁止进口俄罗斯石油的行动。拜登于今天（8日）下达禁令，此举将对世界能源和经济有重大影响。
 
-罪孽国度
-培养魔鬼
-魔鬼统治下人们
-愚昧又愚蠢
-如果我们呼喊
-唤不醒你们
-就让我们行动
-救赎你们灵魂
+拜登总统进一步指出，美国在与世界各地盟友和伙伴密切协商后，作出上述决定。
 
-醒来吧
-粉红们
-不要再被愚蠢
-把魔鬼假与骗
-倒进垃圾桶
-醒来吧
-中国人
-拒绝愚弄
-向真相靠拢
-醒来吧
-同胞们
-睁开眼睛
-看见我们救赎行动
+信息来源：[U.S. President Joe Biden announced a ban on Russian oil and other energy imports in retaliation for Russia’s invasion of Ukraine,](https://twitter.com/reuters/status/1501240354191790085?s=21)
 
-文字版原文：[中国人的救赎](https://gnews.org/zh-hans/2120246/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
