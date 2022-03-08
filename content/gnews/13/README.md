@@ -2,35 +2,12 @@
 ---
 
 
-## 有声|NFSC新闻、G|TV新闻访谈简报|2022年3月7日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2128852/)
+## 七哥金句：教育的本质
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2128906/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-7-556x720-1.png)
-
-
-文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年3月7日早](https://gnews.org/zh-hans/2122094/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句1-1.png)
+整理：雅典娜农场
+发布：枫叶红了
 
  
 

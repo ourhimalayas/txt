@@ -2,55 +2,93 @@
 ---
 
 
-## 波音公司暂停购买俄罗斯钛
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2128925/)
+## 安妮玛丽·霍顿对可能的白宫进口俄罗斯石油的禁令发表意见
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2129044/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/boeing_0.jpg)图片：@zerohedge.com
+Annemarie Hordern:
+We should note this is an exclusive scoop from our Bloomberg News,
+我们应该注意到这是我们彭博新闻的独家新闻
 
-摘要翻译：
+colleagues here in Washington that now this is very much so on the table and they’re kind of considering this ban of Russian oil imports.
+华盛顿的同事们说，现在这非常重要，他们正在考虑禁止俄罗斯进口石油
 
-《零对冲》2022年3月8日援引《华尔街日报》的报道，自俄罗斯入侵乌克兰以来，波音公司在用以制造其商用飞机和军用飞机的俄罗斯钛的大赌注上陷入了停滞。
+We should mention Russian oil imports, when it comes to hard core just straight crude, it’s 3%,
+当谈到硬核纯原油时，我们应该提到俄罗斯的石油进口，它是 3%。
 
-这家飞机制造商跟随许多其他西方公司暂停了在俄罗斯的业务。这场动荡可能在未来为飞机制造带来供应问题。
+When you start to factor in some of those other petroleum products, it’s about 8%.
+当你开始考虑其他一些石油产品时，大约是 8%。
 
-自入侵以来，波音公司已经关闭了其在莫斯科和基辅的工程办公室。该公司拒绝透露其与该国顶级钛供应商的合资企业将发生什么，该企业由弗拉基米尔•普京(Vladimir Putin)总统的前情报同事谢尔盖•切梅佐夫(Sergey Chemezov)控制。
+It ranks third behind Canada and Mexico just ahead of Saudi Arabia.
+它在加拿大和墨西哥之后排名第三，仅次于沙特阿拉伯。
 
-波音公司约三分之一的钛来自俄罗斯，其余来自美国、日本、中共国和哈萨克斯坦。
+But really the issue the administration has had with trying to ban oil exports imports,
+但实际上，政府在试图俄罗斯禁止石油出口方面遇到了问题
 
-波音公司的一位女发言人说：“我们的库存和钛来源的多样性为飞机生产提供了充足的供应，我们将继续采取正确的措施来确保长期连续性。”
+since the United States is the fact that they just don’t want to get rid of that supply in the market,
+因为美国是他们只是不想摆脱市场上的供应
 
-自1991年苏联解体以来，波音公司花了几十年时间在俄罗斯发展伙伴关系。该公司在俄罗斯和乌克兰有大量的投资。
+they don’t want to see a spike in prices,
+他们不希望看到价格飙升
 
-行业官员告诉《华尔街日报》，波音和其他航空航天公司已经恐慌性地囤积钛金属，并一直在与其他供应商进行谈判，因为他们担心俄罗斯会报复西方的制裁。
+this all comes down to what is it going to mean for the average American filling up their tank at the gasoline pump.
+这一切都归结为普通美国人在加油泵上加满油箱意味着什么
 
-在美国的制裁下，波音和其他航空航天公司仍然可以进口俄罗斯的钛。但是，乌克兰的进一步动荡和对俄罗斯的额外制裁可能会使西方企业面临失去获得这种坚固、轻质和防腐蚀的贵重金属的风险。
+Hostess:
+Yes, suddenly worry about the price implications.
+是的，突然担心价格影响
 
-曾在2014年俄罗斯入侵克里米亚后制定美国制裁措施的前财政部官员布赖恩·奥图尔(Brian O’Toole)警告说，任何“拥有俄罗斯供应链的公司都面临着很多问题——至少在中期内是如此”。也许这就是为什么波音公司首席执行官大卫·卡尔霍恩(David Calhoun)在1月份的电话会议上告诉投资者，波音公司的钛供应可能面临风险。
+We saw oil prices just take that a little bit higher on the back of that news. But this seems to be symbolic in nature,
+我们看到油价在那个消息的支持下稍微上涨了一点。但这似乎是象征性的
 
-“只要地缘政治局势保持平缓，就没有问题。”卡尔霍恩说，“如果不是这样，我们会受到相当长一段时间的保护，但不是永远。”而且，如果波音公司遇到钛采购问题，这很可能会破坏其预计在2023年底前将737 Max产量翻倍的计划。
+but it’s going to have impact if there is retaliation on the front of Russia.
+但如果在俄罗斯前线进行报复，就会产生影响
 
-**简评：**
-俄罗斯入侵乌克兰的这场战争，让全球陷入新一轮的供应危机。可以看到，粮食、化肥的生产与出口影响，已经使得小麦等粮食价格近日连续高涨；半导体行业刻蚀工艺必不可少的氖气因乌克兰被袭导致出口不稳定，芯片面临着与文中飞机一样的窘境，另外还有原油。这场大战双方本身加上欧美各国的制裁，让全球经济贸易陷入新的停滞与惶恐，油价、食品价格飞涨，物流供应链短缺……这一切的一切都折射在了世界人民的生活里，战争永远不是为了人民与国家利益，而是统治者的一己私欲。
+What does it mean for Europe and its supplies of most notably oil and gas, it’s getting even more expensive if you are paying in euros.
+这对欧洲及其最显着的石油和天然气供应意味着什么，如果你用欧元支付，它会变得更加昂贵
 
-随着一波波的制裁，各大企业相继退出俄罗斯市场，俄罗斯几乎被打回了“石器时代”，连宜家的撤柜都引起俄罗斯民众的疯狂抢购。而中共政府这边正在紧锣密鼓地与俄罗斯开张经贸合作，让中共国的老百姓来为俄罗斯的损失接盘。俄罗斯被踢出SWIFT系统后对接中共国的CIPS系统，如此开后门的举动，更让国际社会认定这场俄乌大战背后就是中共的搅局，欧美各国必会顺藤摸瓜，在合适的时机停掉中共国的SWIFT。那时，人民币变废纸，俄罗斯上演的一切在中共国再来一次，所有中国老百姓将为中共政权的疯狂行为买单。所以说，中共不除，全世界人民都得不到安宁。
+Annemarie Hordern:
+Yes, certainly more, that’s a great point where the euro is trading today,
+是的，当然更多，这是今天欧元交易的一个很好的点
 
-新闻链接：[Boeing Suspends Buying Russian Titanium](https://www.zerohedge.com/commodities/boeing-suspends-buying-russian-titanium-after-ukraine-invasion)
+it’s going to be a really hard hit in those inflationary pressures.
+在这些通胀压力下，这将是一个非常沉重的打击
 
-翻译/简评：milkcat
-校对:Harvey（叶知秋）
+But potentially if the United States was to do this,
+但如果美国要这样做的话
 
-* * *
+does the president Putin start to use his own fossil fuel as political weapons, which Russia has flirted with in the past.
+普京总统是否开始使用他自己的化石燃料作为政治武器，俄罗斯过去曾暗示过会这样做
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+We saw that last year when it comes to natural gas exports into Europe.
+我们去年在向欧洲出口天然气时就看到了这一点
 
+The United States has said time and time again when they have been dealing with Russia and implementing this sanctions that they want to do it in lockstep with their allies.
+美国在与俄罗斯打交道并实施制裁时一再表示，他们希望与盟友步调一致
 
-编辑：【英国伦敦喜庄园编辑部】
+So if the United States is going to be doing this, I imagine this discussion is also happening in Europe capitals.
+因此，如果美国要这样做，我想这种讨论也会在欧洲各国首都进行
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+原视频链接:[https://twitter.com/bloombergtv/status](https://twitter.com/bloombergtv/status)
 
+Date:03/05/2022
+原视频标题: Annemarie Hordern weighs in on potential White House bans
+安妮玛丽·霍顿对可能的白宫进口俄罗斯石油的禁令发表意见
 
+原视频日期：2022/03/04
+原视频链接:[https://twitter.com/bloombergtv/status](https://twitter.com/bloombergtv/status)/1499835935621619719?s=24
+任务编号：KE440（3924）
+视频时间段 : 0:00-01:41
+
+英听校：洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉磯盤古農場歡迎您加入:(或點擊上方圖片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

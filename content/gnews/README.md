@@ -15,64 +15,64 @@
 
 ---
 
-### [【 #G时新闻 】星链系统为乌克兰反击俄军提供技术帮助](/content/gnews/1/README.md)
- ` G-时新闻`
-
-### [安妮玛丽·霍顿对可能的白宫进口俄罗斯石油的禁令发表意见](/content/gnews/2/README.md)
+### [今日盖特大V推荐 — 布丽吉特·加布里埃尔（Brigitte Gabriel）](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【 #G时新闻 】美国将允许北约成员国在必要时向乌克兰派遣战斗机](/content/gnews/3/README.md)
- ` G-时新闻`
-
-### [3/8/2022 文贵盖特：俄乌战争体现了乌克兰人的团结和坚强；中国人将为这场战争及其愚蠢、无知付出高昂的代价](/content/gnews/4/README.md)
+### [3/8/2022 文贵盖特：中共动用国家级力量黑掉了我们乌克兰救援行动的邮箱并禁止文贵在油管上传视频；作为唯一代表中国拯救乌克兰妇女儿童和中国同胞的新中国联邦，救人是我们的头等大事，我们要让世界区分开中共和中国人](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [五月花简报（03/08/2022）](/content/gnews/5/README.md)
- ` mayflowertranslate`
+### [【 #G时新闻 】欧盟正式开始审批乌克兰的加入申请](/content/gnews/3/README.md)
+ ` G-时新闻`
 
-### [七哥金句：让我们的孩子和老人过得更好](/content/gnews/6/README.md)
+### [七哥金句：教育是人畜分开的一个重要手段](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [波音公司暂停购买俄罗斯钛](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [七哥金句：教育的本质](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [接种疫苗的人可能已经患上了疫苗获得性免疫缺陷综合征(二)](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [NFSC新闻、G|TV新闻访谈简报|2022年3月8日早](/content/gnews/10/README.md)
- ` 纽约香草山MOS01`
-
-### [黑道治国 | 中共动用国家力量黑客掉新中国联邦乌克兰救援行动Email](/content/gnews/11/README.md)
- ` YALUN 亚伦`
-
-### [文·贵天成——文贵先生谈“正道主义”（十七）](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|NFSC新闻、G|TV新闻访谈简报|2022年3月7日早](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [南希·梅斯：没有一个美国人希望他们的车里有俄罗斯汽油](/content/gnews/14/README.md)
+### [今日盖特大V推荐 — 反叛新闻 （Rebel News）](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|俄罗斯二次解体符合俄罗斯人利益](/content/gnews/15/README.md)
- ` MOSREC`
+### [【 #G时新闻 】星链系统为乌克兰反击俄军提供技术帮助](/content/gnews/6/README.md)
+ ` G-时新闻`
 
-### [逃离乌克兰的中国留学生批评中共大使馆反应迟缓和冷漠](/content/gnews/16/README.md)
- ` 蓝莲花农场`
+### [安妮玛丽·霍顿对可能的白宫进口俄罗斯石油的禁令发表意见](/content/gnews/7/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【粤语配音】2022年3月8日：中国共产党的丑恶和危险，唤醒无数的中国人](/content/gnews/17/README.md)
- ` MOS香港部`
+### [【 #G时新闻 】美国将允许北约成员国在必要时向乌克兰派遣战斗机](/content/gnews/8/README.md)
+ ` G-时新闻`
 
-### [有声|日本名古屋医师会医生反对给儿童接种疫苗](/content/gnews/18/README.md)
- ` MOSREC`
+### [3/8/2022 文贵盖特：俄乌战争体现了乌克兰人的团结和坚强；中国人将为这场战争及其愚蠢、无知付出高昂的代价](/content/gnews/9/README.md)
+ ` 秘密翻译组-北美组`
 
-### [接种疫苗的人可能已经患上了疫苗获得性免疫缺陷综合征(一)](/content/gnews/19/README.md)
+### [五月花简报（03/08/2022）](/content/gnews/10/README.md)
+ ` mayflowertranslate`
+
+### [七哥金句：让我们的孩子和老人过得更好](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [波音公司暂停购买俄罗斯钛](/content/gnews/12/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [七哥金句：教育的本质](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [接种疫苗的人可能已经患上了疫苗获得性免疫缺陷综合征(二)](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [巴切莱特宣布与中共国达成协议访问新疆维吾尔地区](/content/gnews/20/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年3月8日早](/content/gnews/15/README.md)
+ ` 纽约香草山MOS01`
+
+### [黑道治国 | 中共动用国家力量黑客掉新中国联邦乌克兰救援行动Email](/content/gnews/16/README.md)
+ ` YALUN 亚伦`
+
+### [有声|NFSC新闻、G|TV新闻访谈简报|2022年3月7日早](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [南希·梅斯：没有一个美国人希望他们的车里有俄罗斯汽油](/content/gnews/18/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [逃离乌克兰的中国留学生批评中共大使馆反应迟缓和冷漠](/content/gnews/19/README.md)
+ ` 蓝莲花农场`
+
+### [接种疫苗的人可能已经患上了疫苗获得性免疫缺陷综合征(一)](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [新中国联邦的乌克兰救援行动 吸引世界媒体的关注](/content/gnews/21/README.md)
@@ -96,47 +96,47 @@
 ### [锁链女，我想对你说](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国表示准备在俄、乌克兰之间“调停”（二）](/content/gnews/28/README.md)
+### [2022年3月8日，全球中共病毒疫情情况汇总](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [麦当劳将关闭在俄罗斯的所有餐厅](/content/gnews/29/README.md)
+### [中共国表示准备在俄、乌克兰之间“调停”（二）](/content/gnews/29/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [麦当劳将关闭在俄罗斯的所有餐厅](/content/gnews/30/README.md)
  ` Shuizhuyu`
 
-### [法制基金天使营救乌克兰战区儿童](/content/gnews/30/README.md)
+### [法制基金天使营救乌克兰战区儿童](/content/gnews/31/README.md)
  ` 扬帆枫叶快讯`
 
-### [解读一张漫画，“普京的最后一张王牌”](/content/gnews/31/README.md)
+### [解读一张漫画，“普京的最后一张王牌”](/content/gnews/32/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [战争局势催化黄金多头继续上扬](/content/gnews/32/README.md)
+### [战争局势催化黄金多头继续上扬](/content/gnews/33/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [中共国表示准备在俄、乌克兰之间“调停”（一）](/content/gnews/33/README.md)
+### [中共国表示准备在俄、乌克兰之间“调停”（一）](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌克兰大救援3.8. 英国小提琴老师法语祈福新中国联邦救援乌克兰96名儿童与家人团聚](/content/gnews/34/README.md)
+### [乌克兰大救援3.8. 英国小提琴老师法语祈福新中国联邦救援乌克兰96名儿童与家人团聚](/content/gnews/35/README.md)
  ` 秘密翻译组-原创组`
 
-### [2022/03/07 墙内世界](/content/gnews/35/README.md)
+### [2022/03/07 墙内世界](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [3/8/2022国际财经快讯：俄罗斯警告西方国家每桶油价将达300美元；欧佩克表示无法控制扰乱全球石油市场的事件](/content/gnews/36/README.md)
+### [3/8/2022国际财经快讯：俄罗斯警告西方国家每桶油价将达300美元；欧佩克表示无法控制扰乱全球石油市场的事件](/content/gnews/37/README.md)
  ` 秘密翻译组金融团队`
 
-### [秘翻新闻｜中俄联合洗脑编织虚假信息网 人民难逃脱](/content/gnews/37/README.md)
+### [秘翻新闻｜中俄联合洗脑编织虚假信息网 人民难逃脱](/content/gnews/38/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [巨额隔离费归了政府，隔离酒店开始了漫长的讨债之路](/content/gnews/38/README.md)
+### [巨额隔离费归了政府，隔离酒店开始了漫长的讨债之路](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [辉瑞根据法院令被迫公布提交给食药局疫苗副作用数据](/content/gnews/39/README.md)
+### [辉瑞根据法院令被迫公布提交给食药局疫苗副作用数据](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [香港疫情｜港大医学院料确诊数达顶峰 累计感染达184万人](/content/gnews/40/README.md)
+### [香港疫情｜港大医学院料确诊数达顶峰 累计感染达184万人](/content/gnews/41/README.md)
  ` 蓝莲花农场`
-
-### [“我的未来被夺走了”：俄罗斯人正在逃离避免面对战争的后果](/content/gnews/41/README.md)
- ` 澳喜农场`
 
 ### [樱花FM|俄军阵亡将士抚恤金720元人民币 乌方高额赏金劝降](/content/gnews/42/README.md)
  ` 樱花FM`

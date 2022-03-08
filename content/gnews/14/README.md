@@ -2,120 +2,69 @@
 ---
 
 
-## 南希·梅斯：没有一个美国人希望他们的车里有俄罗斯汽油
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2128846/)
+## 接种疫苗的人可能已经患上了疫苗获得性免疫缺陷综合征(二)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2128905/)
 
-There are a lot of different areas from their supply chain
-那里有许多的不同的领域，从他们的供应链
+编译：文羽
 
-his banking relationships, the Swift issue that needs to be 100% cut off
-他的银行关系，需要 100% 切断的Swift的问题
+【接上篇：接种疫苗的人可能已经患上了疫苗获得性免疫缺陷综合征(一)】
 
-We have not done that yet
-我们还没有这样做
+在截至1月21日的最近一周，据统计，完全接种疫苗的人死于Covid-19的可能性是未接种疫苗的人的两倍以上。
 
-I think they still think that if we go easy
-我认为他们仍然认为如果我们放软弱
+在1月15日开始的一周内，完全接种疫苗的人在上个月的死亡率最高，为15.49/10万。但是在1月8日开始的一周里，未接种疫苗的人的死亡率最高，为10.93/10万。
 
-we play footsie with that somehow we’ll talk our way out of this
-在某种程度上我们在示弱，我们会谈论我们的出路
+这意味着在未接种疫苗的人群中，死亡人数正在下降，但在完全接种疫苗的人群中却在稳步上升。如果疫苗是有效的，不损害先天免疫系统，就不应该发生这种情况。
 
-That’s not going to happen
-这是不会发生的
+下图显示了根据苏格兰公共卫生局提供的数字，在过去四周内，疫苗对死亡的有效性：
 
-John Bechman (Newsmax TV anchor & host)
-约翰·巴赫曼（Newsmax 电视主播和主持人）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-772-edited-1.png)tradicionviva.es
 
-Is that the way to characterize the way
-这就是表征方式的方式吗
+至少从12月25日起，该疫苗对死亡的疗效就一直是负面的，截至1月21日，已经下降到惊人的负-112%。
 
-the administration is handling the sanctions so far
-到目前为止，政府正在处理制裁
+这并不仅仅意味着疫苗不起作用。这意味着他们正在损害先天免疫系统，这就是他们平均造成的损害：
 
-playing footsie with Putin?
-对普京示弱？
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-774-edited.png)tradicionviva.es
 
-Nancy Mace (U.S. Congresswoman)
-南希·梅斯（美国国会女议员）
+然而，苏格兰数据的问题是，它只提供了每10万人中的年龄标准化比率，所以我们只能看到伤害的平均程度。
 
-Well, certainly the President Biden’s that he could go toe to toe with Putin
-好吧，拜登总统当然认为他可以与普京针锋相对
+但是根据注射covid-19会对先天免疫系统造成损害并逐周恶化的理论，我们应该预期老年人的情况会变得更加糟糕，因为他们是第一批接种疫苗的人，可悲的是，英国的数据证实了这一点。
 
-and he has been playing footsie instead
-但是他选择示弱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-776.png)tradicionviva.es
 
-But it’s not just Republicans that are asking for more sanctions
-但要求更多制裁的不仅仅是共和党人
+22年1月3日至1月30日期间，英格兰Covid-19疫苗对死亡的实际效果在80岁以上的人中低至-110.24%，在70-79岁的人中为-97%，在所有18岁以上的成年人中平均为-98.14%。 以下是完全接种死亡疫苗的人群的免疫系统表现，这意味着什么：
 
-I’ve been involved with meetings and in some briefings with both Republicans and Democrats alike
-我参与了与共和党人和民主党人的会议和一些简报会
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-778.png)tradicionviva.es
 
-and Democrats are too asking for President Biden to do more
-民主党人也要求拜登总统做更多事情
+与疫苗对免疫系统造成损害并逐周恶化的理论保持一致，我们可以看到，免疫系统表现最低的是那些首先接种疫苗的人，80岁以上的人登记的免疫系统表现为-52.4%，然后是70-79岁年龄组登记的免疫系统表现为-49.2%。
 
-And we’ve seen other countries around the world shut off their oil imports from Russia
-我们已经看到世界上其他国家关闭了从俄罗斯进口的石油
+然而，这些数据中有一个令人担忧的反常现象，因为我们应该看到30-39岁年龄组的免疫系统表现积极，约为29%，但目前却为-15.4%。这可能有几种解释，但都不是好的解释。
 
-We know that Putin funds his war regime and these battles
-我们知道普京资助他的战争政权和这些战斗
+要么是30-39岁年龄组的人真的做得更差，要么是所有其他年龄组的人做得比我们被告知的要差很多。
 
-and these fights with the oil and gas economy
-这些与石油和天然气经济的斗争
+在英格兰，所有成年人的免疫系统对死亡的平均表现相当于-50%，这与苏格兰观察到的-53%的平均表现相差不远。因为疫苗接种是在同一时间开始的，所以我们预计它们的情况会大致相同。
 
-he has created around the world, including the United States
-他在世界各地制创的，包括美国
+因此，这意味着我们可以确信，数据可靠地告诉我们，注射Covid-19不仅无效，而且会损害免疫系统，使接受者患上获得性免疫缺陷综合症，并比未接种人群更容易死亡。
 
-We import 600,000 barrels of Russian oil every day
-我们每天进口 60 万桶俄罗斯石油
+这些真正惊人的数字表明，在一个房间、一个餐厅、一个酒吧、一个夜总会、一列火车、一艘船或一架飞机上，满是未接种疫苗的人，我们比 “完全接种疫苗 “的人至少安全2倍。
 
-And I know there’s not one single American in our country today
-我知道今天我们国家没有一个美国人
+另外，未接种疫苗的人似乎正在实现对Covid-19的群体免疫，而疫苗则阻止完全接种的人实现群体免疫。
 
-that wants to put one gallon of Russian gas in their car
-在看到在乌克兰所发生的事情后
+因此，我们在这些数字中看到了对接种疫苗者所受伤害的更接近的估计，而不是我们能够看到的接种疫苗者和未接种疫苗者的病例的德尔塔数字。
 
-seeing what’s going on in Ukraine
-还想在车里加一加仑的俄罗斯汽油
+英国政府的官方Covid-19数据现在不仅显示每一个完全接种疫苗的人都会在很短的时间内患上疫苗介导的艾滋病，除非有什么大的变化，而且表明老年人已经达到了不归点。
 
-There’s more to do in the sanctions that happened on if you read the fine print
-如果您阅读细则，那么在发生的制裁中还有更多工作要做
+这将给卫生服务带来巨大的负担，并造成大量的疼痛、痛苦和死亡。所有这些都是腐败的卫生系统给我们造成的。这一定是医学史上最大的自己的目标。
 
-there are carve outs and so not all of the oligarchs
-有特例，所以不是制裁所有的寡头
+【完结】
 
-and their entire families are being targeted the way that they should be
-他们的整个家庭正以应有的方式成为目标
+来源：【tradicionviva.es】[Los vacunados ya pueden estar sufriendo el síndrome de inmunodeficiencia adquirida por la vacuna](https://www.tradicionviva.es/2022/02/10/los-vacunados-ya-pueden-estar-sufriendo-el-sindrome-de-inmunodeficiencia-adquirida-por-la-vacuna/?utm_source=mailpoet&amp;utm_medium=email&amp;utm_campaign=Novedades+Tradicion+Viva%E3%80%82)
 
-And there’s more that we should be done
-还有更多我们应该做的
+* * *
 
-both with banking with personal sanctions
-与银行业务和个人制裁的两方面
-
-and sanctions on those hosts in his inner circle
-并制裁他核心圈子里的那些大老们
-
-原视频链接[https://twitter.com/newsmax/status/1499452680258957316?s=24](https://twitter.com/newsmax/status/1499452680258957316?s=24)
-
-Date:03/04/2022
-原视频标题:Nancy Mace: Not one single American wants Russian gas in their car
-南希·梅斯：没有一个美国人希望他们的车里有俄罗斯汽油
-原视频日期：2022/03/04
-原视频链接https://twitter.com/newsmax/status/1499452680258957316?s=24
-任务编号：3922
-视频时间段 : 0:00-1:31
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+审核：Aries的星
+校对：小东
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
