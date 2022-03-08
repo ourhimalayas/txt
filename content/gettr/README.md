@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/8/2022 3:03 PM (UTC)`
+
+3月8号：尊敬的战友们好．俄乌战争，让世界看清了中国共产党的丑恶……和危险，唤醒了无数的中国人，新中国联邦人正在俄乌战场，拯救着乌克兰的妇女和孩子……和中国同胞。我们一定让世界更多的人知道中国共产党不等同于中国人。
+![img](https://media.gettr.com/group29/getter/2022/03/08/15/9c81a268-9680-cdf9-a56e-7483498566a4/out.jpg)
+
+---
+
 `@miles 3/8/2022 11:45 AM (UTC)`
 
 【Ukraine Rescue】03/07/2022 Approximately 100 children rescued from Ukraine by ROL Foundation and NFSC, along with their teachers, rested at a hotel in Krakow, Poland, before departing for Barcelona, Spain. The entire trip is supported by the ROL Foundation and NFSC with free food, accommodations, and free bus transportation.<br/><br/>【乌克兰救援】03/07/2022 由法治基金和NFSC从乌克兰救出的大约100名儿童以及他们的老师，在波兰克拉科夫的一家酒店休息后出发，前往西班牙巴塞罗那，整个行程由法治基金和NFSC提供免费食宿和免费大巴。
@@ -148,13 +155,6 @@
 
 新中国联邦 法治基金 乌克兰救援快报 2022-03-07
 ![img](https://media.gettr.com/group42/origin/2022/03/07/23/d4b9b23a-8320-8216-3d62-bbf9537a1720/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/7/2022 10:07 PM (UTC)`
-
-【Ukraine Rescue】 03/07/2022 The New Federal State of China successfully rescued about 100 children from Ukraine. Thanks to the donors of the Rule of Law Foundation, they are the hope of the country, the angels to the people in the war zone of Ukraine. <br/><br/>【乌克兰救援】 03/07/2022 新中国联邦成功救出约100名乌克兰孩子。感谢法治基金捐助者，他们是这个国家的希望， 是乌克兰战争地区人们的天使。
-![img](https://media.gettr.com/group46/getter/2022/03/07/22/46b9677e-04ab-21b6-c63a-96709f54e25b/out.jpg)
 
 ---
 
