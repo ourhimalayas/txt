@@ -2,10 +2,10 @@
 ---
 
 
-## 中共正在非常仔细地观察俄罗斯和乌克兰局势
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2125754/)
+## 入侵乌克兰：冲突造成的平民伤亡
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2125818/)
 
-03/06/2022 章家敦：中共正在非常仔细地观察俄罗斯和乌克兰局势。
+03/05/2022 随着乌克兰冲突的持续，战争造成了更多平民的伤亡，包括一名18个月大的男孩。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

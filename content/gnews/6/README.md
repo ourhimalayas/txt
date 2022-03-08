@@ -2,10 +2,10 @@
 ---
 
 
-## 万事达卡和VISA卡在俄入侵乌克兰后暂停在俄业务
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2125917/)
+## 泽伦斯基警告说，俄罗斯将迎来“审判之日”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2126053/)
 
-03/05/2022 万事达卡和VISA卡在俄入侵乌克兰后暂停在俄业务
+03/07/2022 乌克兰总统沃洛基米尔·泽伦斯基警告俄罗斯，他们对乌克兰犯下的罪行不会得到宽恕。相反，“审判之日”终将到来。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,27 +2,41 @@
 ---
 
 
-## 苦難中的節日
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/2125636/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2125708/)
 
-BY：银河系农场|楚天秋
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-59.png)
-2022年的三八婦女節，完全不同以往，墻内豐縣鎖鏈女（李瑩）引發的軒然大波，墻外烏克蘭防空設施中傳出的稚氣童聲，不一樣的悲慘境況，同樣是極權造成的災難。這兩種情況，讓多數男人感到恥辱，既沒有機會拿起武器保護戰亂中的兒童不受傷害，也無能力解救受盡虐待的婦女使其不被繼續販賣。只有一點幸運，就是網絡資訊的發達讓人類足不出戶即可瞭解別人的苦難，哪怕每一段視頻，每一首歌都是利刃，在心裏刻下一道道傷痕。但凡受過文明熏陶、良知未滅者，不可能不感同身受，有所覺醒。人類發展至今，已經不是茹毛飲血、弱肉强食的叢林時代，一定能擺脫極權的控制，走向自由。
+#### 整理：枳实
+**美工：精灵蓝**
 
-每個人來到世間，都帶著母親孕育的艱辛和分娩的痛苦，帶著親人的期盼和祝福，入侵烏克蘭的普大帝如此，放毒（COVID-19）世界慾佔台灣的習太陽亦如此。是爲所欲爲的權力讓它們失去了同情心，是對得到一切的貪婪和即將失去的不甘，讓它們失去理智變得瘋魔，對這個世界犯下纍纍罪行，它們給這個屬於婦女的節日帶來的痛苦還在持續。烏克蘭已經被炮火炸得面目全非，入侵者頻繁襲擊非軍事區域和手無寸鐵的平民。墻内所謂的疫情連綿不斷，所到之處風聲鶴唳，老百姓被核酸檢測和隔離政策控制和封禁，已經無法準確知道，這裏面有多少柔弱的女性和孩童，被中共人禍整日折磨，還要同時忍受被洗腦，被强顔歡笑的痛苦。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-731.png)圖片：雅典娜農場設計組 精靈藍
 
-世界在痛苦中覺醒。爆料革命首先告訴世界，是中共釋放了生化武器病毒（COVID-19），以强制人類接種中共毒疫苗爲目的，開啓了無差別的殺戮。新中國聯邦人是唯一深入戰爭腹地的救援隊伍，昨天救出了96名孩子和當地慈善組織的老師共計113人，這個消息令人歡欣鼓舞。在中共魔爪無法控制的地方，法治基金和法治社會已經做到了最好的人道救援。在不可預測危險的戰地，在風雪夜色的依稀燈火中，有新中國聯邦人的身影，有藍色星旗飄揚，有脫離困境的希望。新中國聯邦的影響力與日俱增，中共不會坐以待斃，它們救人不行，害人是内行，把已經坐上撤離大巴的18個同胞，硬生生給忽悠得下了車。中共這樣做只會適得其反，這些人只要有能夠幸存下來的，都可能説出被中共洗腦和抛棄的可怕經歷。
 
-中共自以爲洗腦得有多徹底，控制得有多嚴密，反抗的聲音依然一直存在，覺醒的百姓只會越來越多。到處疫情管控讓人們發現中共毒疫苗毫無用處，核酸檢測只是賺錢手段。體制内從來不管控，也不染新冠病毒，讓人們發現中共疫情造假。每一個被中共忽悠買高價機票回國，又被扣上外來輸入型而隔離的同胞，都深切體會到中共的貪婪和奸詐。知道了鎖鏈女的存在，也就知道了中共從來沒有保護婦女兒童的權益，而是殘害女性的始作俑者。知道了新中國聯邦的存在，也就知道中共視生命如草芥，大難臨頭自私自利、抛棄同胞的醜惡。普大帝發動戰爭讓俄羅斯人民陷入災難的事實，也讓更多墻内百姓對中共利用腦殘粉紅鼓吹攻臺，冷眼旁觀而毫無響應。
+雅典娜疫情更新（2022年 3月8日）
 
-郭先生把新歌《鎖鏈夢》作爲獻給婦女節的禮物，在歌裏控訴了中共對人性的踐踏，社會整體被洗腦后的冷漠，號召同胞覺醒。勇敢者已有所針對之行動，善良者會銘記這種痛苦，懦弱者深藏自己的恐懼，愚蠢者尚且麻木。這不是人生百態，這是人類埋葬醜陋極權、走向新文明時代的必經之路。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/2119732/)
 
-作者：楚天秋
+全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-732.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-733.png)
+[2022年3月8日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/%E5%85%A8%E7%90%83%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0%E6%A8%A1%E6%9D%BF-new3%E6%9C%888%E6%97%A5%E6%94%B9%E8%BF%9B.pdf)
 
-发布：天雷滚滚
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-日本[银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/345-1-1-1.jpg)
+*发布：陶子*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

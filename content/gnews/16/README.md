@@ -2,8 +2,10 @@
 ---
 
 
-## 邪恶轴心国爆料时间线
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2125800/)
+## 巨额隔离费归了政府，隔离酒店开始了漫长的讨债之路
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2125822/)
+
+03/05/2022 巨额的隔离费直接上缴了政府，隔离酒店开始了漫长的讨债之路。与此同时，家中无人看管的宠物被打着“无害化治疗”的名义残忍殴打致死。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

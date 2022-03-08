@@ -2,8 +2,8 @@
 ---
 
 
-## NFSC法治基金不论国界和民族乌克兰国际人道大救援
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2125669/)
+## 邪恶轴心国爆料时间线
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2125800/)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
