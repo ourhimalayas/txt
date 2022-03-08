@@ -2,10 +2,10 @@
 ---
 
 
-## 台湾卖台贼诋毁美国帮助台湾对抗中共
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2126136/)
+## [乌克兰救援]新中国联邦法治基金救援人员采访刚被救出的乌克兰女士
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2126370/)
 
-03/03/2022 视频曝光台湾的卖台贼，这帮人诋毁美国，反对台湾与美国交好,希望与大陆统一
+03/06/2022 新中国联邦和法治基金的救援人员在波兰克拉科夫采访了一位刚刚被我们巴士救出的乌克兰女士。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

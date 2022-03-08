@@ -2,41 +2,20 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2125708/)
+## 樱花FM|奥密克戎衍生病毒BA.2在日本流行
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2125936/)
 
-#### 整理：枳实
-**美工：精灵蓝**
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/BnUIhqvoo5txQgfA0fChGEjaIAaQh7hr5BjocP9-5-fmm33LGkCiu1OUgyi6toWwI-iS_yCpmhYxQ9gd1lfiPJtIagTr1FTyUGd9Y8CDx_xb3RgWJEEt9ai8-97gYL0fI1XKapCV)
+日本医师会(日医)的中川俊男会长在2日的记者招待会上表示，国内中共病毒（新冠病毒Covid-19）的感染情况“虽然有减少趋势，但并没有急剧减少”，这可能是奥密克戎株的衍生型BA.2具有强烈的感染力，引起感染扩大的原因，指出“新感染人数可能会增加”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-731.png)圖片：雅典娜農場設計組 精靈藍
+中川先生关于31个都道府省适用的防止蔓延等重点措施的效果称“我认为有一定的效果。(感染者数)接近高停状态，但如果没有(重点措施)的话，感染人数也许会增加更多。”另外，在海外出现了对中共病毒对策的放宽管制的举动，他表示“日本也应该根据感染状况和疫苗接种率等，做出缓和限制的判断”。另一方面，他又补充说，“现在的感染情况，没有必要大幅缓和各种限制。”
 
+文字版原文：[奥密克戎衍生病毒BA.2在日本流行](https://gnews.org/zh-hans/2098715/)
 
-雅典娜疫情更新（2022年 3月8日）
-
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/2119732/)
-
-全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-732.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-733.png)
-[2022年3月8日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/%E5%85%A8%E7%90%83%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0%E6%A8%A1%E6%9D%BF-new3%E6%9C%888%E6%97%A5%E6%94%B9%E8%BF%9B.pdf)
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-*发布：陶子*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

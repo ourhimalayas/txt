@@ -2,29 +2,13 @@
 ---
 
 
-## 【秘翻北美时评】FDA败诉 辉瑞公布全部疫苗文件
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2125640/)
+## 辉瑞根据法院令被迫公布提交给食药局疫苗副作用数据
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2125820/)
 
-BY：[秘翻北美時評](https://gettr.com/post/pyewtr57fc)
+03/05/2022 马龙博士：辉瑞公司根据法院命令被迫公布他们提交给食药局的疫苗副作用和伤害数据，这些数据本来要向公众隐瞒75年，其中副作用列表长达9页！这可能会允许人们对他们进行法律诉讼，因为他们欺诈和对公众隐瞒这些风险。
 
-***[2022-03-05](https://gettr.com/post/pyewtr57fc)***
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-
-
-**主題內容：**
-
-**1.我们是新中国联邦战友，我们来了！**
-
-**2.FDA败诉，辉瑞公布全部疫苗文件 **
-
-**3.加密货币交易在俄罗斯大行王道**
-
-🔗**鏈接：**[https://gettr.com/post/pyewtr57fc](https://gettr.com/post/pyewtr57fc)
-
-发布：陸柒陸捌
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

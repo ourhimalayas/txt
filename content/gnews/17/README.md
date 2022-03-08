@@ -2,37 +2,53 @@
 ---
 
 
-## FDA败诉！辉瑞被迫公布所有疫苗数据！副作用足足有9页！全网震惊！
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2126000/)
+## 文·贵天成——文贵先生谈“正道主义”（十四）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2126180/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/https_______mmbiz.qpic-2.jpeg)
-据报道，3月1日，美国食药监局FDA在官司中败诉，法院要求FDA今年夏天之前要完成辉瑞新冠疫苗32.9万页完整审评文件的公开。
+整理：BENJ1
+编辑：Mttfly
 
-3月5日，FDA刚刚发布了首批文件，在众多的文件里，最让人震惊的，莫过于关于辉瑞疫苗不良反应的报告，足足有9页之多，全网为之震惊。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GqPX-Cu63VNbCrjjATxNYfc9Yg7AgWRAryOobK8jqGw.png)
-目前披露的文件中列出了1000多种不良反应，很多都是头一次披露，包括：筋膜炎、眼部肿胀、面瘫、斑秃、过敏休克、妊娠过敏反应综合征、急性心肌病、急性呼吸衰竭、注射部位血管炎、癫痫、血栓、心律失常、关节炎、哮喘、支气管痉挛、心脏骤停、心力衰竭、胸部不适、窒息、急性皮肤红斑狼疮、急性脑脊髓炎、急性肾损伤、急性黄斑外层视网膜病变、再生障碍性贫血、慢性自身免疫性肾小球肾炎、慢性皮肤红斑狼疮、慢性自发性荨麻疹、溶血性贫血、结肠炎、皮炎、糖尿病、栓塞性脑梗塞、内分泌失调、新生儿重症肌无力、脊髓炎、非感染性卵巢炎、甲状腺炎、溃疡性直肠炎、眼部瘙痒症、生殖器疱疹、舌咽神经麻痹、出血性血管炎、宫颈炎、狼疮性膀胱炎、狼疮性脑炎、多发性硬化症等等。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/355a31da5cca7976.png)
 
-按照法院要求，FDA将在今年夏天之前发布完所有相关文件，现在才刚刚公布了150份文件。相信随着更多文件的披露，更大的争议还会陆续涌现。
 
-新闻链接：[https://www.globenewswire.com/news-release/2022/03/03/2396681/0/en/CHD-Says-Pfizer-and-FDA-Dropped-Data-Bombshell-on-COVID-Vaccine-Consumers.html](https://www.globenewswire.com/news-release/2022/03/03/2396681/0/en/CHD-Says-Pfizer-and-FDA-Dropped-Data-Bombshell-on-COVID-Vaccine-Consumers.html)
 
-编辑/校对/发稿：文留
+图片：雅典娜设计组（614）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-2.jpg)
 
-**更多资讯，更多关注**
+**郭文贵先生2021年8月11日直播**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+未来新型汽车，完全电子化，完全是无污染或者新型材料，你有钱更新吗？你爱一个人，结果你这个人说：我啥都不需要，我肝坏了，你帮我换个肝，需要付500美金。你说没有，这还有爱人吗？未来的爱情更加金钱化、物质化。人类只能越来越物质化，但是物质化的极端，他有宗教信仰，也极端会发展正道主义，互利化而不是互害化。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+共产主义就是互害、少数统治多数。未来的正道主义就是绝大多数人遵循同一个标准——利他，有共同的信仰，不能互害而且要保护好地球，要遵从上天的旨意，以人为本，人就是上帝，人就是万佛万神的化身。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+我们正道主义将以最大的力量保护地球，我们有这个能力，我们有这个人数，我们有这个钱，我们有这个想法，我们有这个机会。人类不可能再让资本主义这样下去，绝不会再让社会主义、共产主义存在。我们正道主义是个初级，但一定会有第三主义诞生在人类，否则人类就会毁灭。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+资本主义就是今天的美国在世界是最好的，但是资本主义的贪婪培养了，它永远会培养萨达姆、卡扎菲、北朝鲜、伊朗、中国共产党、阿富汗，只有不建立在资本之上的正道主义、利他主义才能让人类不再培养魔鬼挑战人类底线。一次次对人类像这次冠状病毒是大毁杀。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
+GFashion是一个给我们热情、激情、希望、代表我们表达宗教信仰和我们追求正道主义的一个工具，所以你看到穿衣服，我们难道未来新中国联邦人还要穿西装吗？还要穿今天看到的那些所有时尚吗？时尚已经走到了最后的胡同，已经没有任何出路了。除了搞怪、搞变、中性、极端、传统、现代、疯狂、变型、所谓新材料，没有任何出路。因为世界上只有两种主义——社会主义、资本主义，还有一帮烂流氓，它不可能表现下去。没有宗教信仰和新的灵魂的精神追求标准的情况下的建立，Fashion没有未来。
+
+**往期回顾：
+**[**文•贵天成——文贵先生谈“正道主义”（一）**](https://gnews.org/zh-hans/2061785/)**
+**[**文•贵天成——文贵先生谈“正道主义”（二）**](https://gnews.org/zh-hans/2061810/)**
+**[**文•贵天成——文贵先生谈“正道主义”（三）**](https://gnews.org/zh-hans/2064565/)**
+**[**文•贵天成——文贵先生谈“正道主义”（四）**](https://gnews.org/zh-hans/2065291/)**
+**[**文•贵天成——文贵先生谈“正道主义”（五）**](https://gnews.org/zh-hans/2066630/)**
+**[**文•贵天成——文贵先生谈“正道主义”（六）**](https://gnews.org/zh-hans/2091727/)**
+**[**文•贵天成——文贵先生谈“正道主义”（七）**](https://gnews.org/zh-hans/2087938/)**
+**[**文•贵天成——文贵先生谈“正道主义”（八）**](https://gnews.org/zh-hans/2111000/)**
+**[**文•贵天成——文贵先生谈“正道主义”（九）**](https://gnews.org/zh-hans/2111179/)**
+**[**文•贵天成——文贵先生谈“正道主义”（十）**](https://gnews.org/zh-hans/2124787/)**
+[文•贵天成——文贵先生谈“正道主义”（十二）](https://gnews.org/zh-hans/2124904/)**
+
+*发布：*星谕
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
