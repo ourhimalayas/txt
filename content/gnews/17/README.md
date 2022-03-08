@@ -2,37 +2,36 @@
 ---
 
 
-## 有声|台湾本土新增中共病毒案例均已注射两剂以上疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2127638/)
+## 俄罗斯要求解除制裁，否则将威胁伊朗核谈判破产
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2127705/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间3月6日，台湾中央流行疫情指挥中心宣称，台湾本土新增三名中共病毒患者，都至少注射了两剂以上中共病毒疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/12-5.jpg)
-据该中心发言人庄人祥称，6日台湾新增43例中共病毒患者，其中本土案例为1名男性和2名女性。其中一名十多岁的女性，已经完整接种2剂辉瑞疫苗。另外两名患者是一对夫妻，其中70多岁的男性完整接种2剂莫德纳疫苗，他的60多岁的妻子则接种了3剂莫德纳疫苗。
+***评论：**俄罗斯核威慑乌克兰以后，又威胁伊朗核谈判破产，强盗逻辑一览无遗，这个世界不是只有俄罗斯，还有善良正直的人们，当你不要世界和平的时候，终将也会被世界遗弃*。
 
-对此消息，中共国有网民认为，中共的科兴疫苗比国外的疫苗更好。郭文贵先生在3月6日大直播中剖析了中共国民对疫苗的错误认知。中国人不怀疑科兴疫苗，认为科兴和国外的疫苗不一样，比国外的疫苗更有效。这是被中共长期洗脑和精神奴役的后遗症，造成中共国国民的无知，以及错误认知。科兴再发2.5亿剂港澳台专用疫苗，将会造成绝对的灾难。
+据《华盛顿邮报》作者：Liz Sly，2022年3月5日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-747-e1646757898790.png)俄罗斯外交部长谢尔盖-拉夫罗夫周六在莫斯科举行的新闻发布会上发言。(Sergei Ilnitsky/EPA-EFE/REX/Shutterstock)
+维也纳–俄罗斯周六为恢复伊朗核协议提出了一个新的条件：要求美国保证，因入侵乌克兰而对莫斯科实施的制裁不会应用到俄罗斯与伊朗的贸易和投资。
+
+俄罗斯外交部长谢尔盖-拉夫罗夫在莫斯科提出的这一要求，有可能使恢复2015年协议的谈判脱轨，而此时维也纳的外交官们正希望在下周初敲定一项协议。
+
+文章观点仅代表作者个人，与Gnews平台无关
+
+文章来源:[https://www.washingtonpost.com/world/2022/03/05/russia-iran-nuclear-talks/](https://www.washingtonpost.com/world/2022/03/05/russia-iran-nuclear-talks/)
+
+翻译：洛杉矶盘古农场 – Mike Li
+
+校对：洛杉矶盘古农场 – 轰炸机
+
+评论：洛杉矶盘古农场 – 傻小子
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-文字版原文：[台湾本土新增中共病毒案例均已注射两剂以上疫苗](https://gnews.org/zh-hans/2121094/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
  
 
