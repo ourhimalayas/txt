@@ -2,39 +2,29 @@
 ---
 
 
-## 新中国联邦纽约救援团队已赴前线
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2127699/)
+## 中共银联支持俄罗斯银行
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2127790/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/jy-2.jpg)
+采编撰稿：加拿大温哥华杨帆农场 – 自由法兰西
 
-美东时间3月4日晚，新中国联邦奔赴前线波兰参与救援的战友在纽约完成集结，大约晚上9点乘坐飞机飞往波兰，为前线带去必要的物资救济以及大量药品，如伊维菌素、青蒿素、地塞米松、维生素C、D、阿奇霉素、口罩、手套等预防中共病毒的必需品。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-749.png)
 
-据悉，新中国联邦目前到达前线的队伍有英喜团队、纽伦堡团队，除去补给方面的救援，前线现在开始租用大巴到乌克兰去救人，截止到直播时间，已经救出一车被困人员。
+Source：[DW报道](https://www.dw.com/zh/%E7%BB%B4%E8%90%A8%E5%92%8C%E4%B8%87%E4%BA%8B%E8%BE%BE%E5%8D%A1%E6%9A%82%E5%81%9C%E6%9C%8D%E5%8A%A1-%E4%BF%84%E9%93%B6%E8%A1%8C%E8%BD%AC%E5%90%91%E4%B8%AD%E5%9B%BD%E9%93%B6%E8%81%94/a-61033012)
 
-此次纽约前线共有9位战友和1位常驻美国的乌克兰人。Nicole战友因雇主不允许自己去参与救援，毅然辞掉了工作。战友护送救援团队到达机场，此次救援新中国联邦乘坐的都是商务舱，在登机口还遇到了一位同去参与救援的美国人，他是一家上市公司的CEO，和战友Nicole的雇主不同的是，他鼓励自己的雇员去参与救援，他自己也身先士卒奔赴救援前线。
+据&lt;自由亚洲电台&gt;3月6日报道，在全球金融支付服务公司VISA和[万事达]因俄罗斯入侵乌克兰而暂停在俄业务之后，俄银行拟与中共银联合作发行新的信用卡。
 
-新中国联邦希望困在乌克兰战区的中国同胞不要再听信中共大使馆的骗人话，请不要在机场等一艘船。能出来的尽快出来，乌克兰战区的情况时时刻刻都在变化，请一定不要再错过救援机会。
+对此，俄罗斯[联邦储蓄银行]和[阿尔法银行]当天表示，正在推动发行中共国银联系统的信用卡。同时，俄其它几家主要银行也在筹备使用银联信用卡。
 
-目前纽约救援团队还在集结，后面还陆续会有团队奔赴前线参与救援。
+目前，由于中共银联卡可在世界约180个国家和地区被使用，此举无疑将为俄罗斯金融体系续命。并通过继续进行海外支付，而成为俄罗斯逃避西方制裁的避风港。
 
-新闻来源：[https://gettr.com/post/py8k3mecdc](https://gettr.com/post/py8k3mecdc)
+评论指出，中共金融机构倒行逆施，进一步加剧了国际社会对中共国的敌视，而中国人民特别是海外华人将无辜成为全世界仇恨的对象，并最终沦为全球排华危机的牺牲品。
 
-编辑/校对/发稿：小小安
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
+发文：青青
 
-**更多资讯，更多关注**
+原文链接： [RFA自由亚洲电台报道](https://www.rfa.org/mandarin/Xinwen/8-03062022144853.html)
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-50.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

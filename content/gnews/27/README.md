@@ -2,26 +2,39 @@
 ---
 
 
-## 普大帝坑惨俄罗斯！硬扛5532项制裁全球第一惨！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2127376/)
+## 新中国联邦纽约救援团队已赴前线
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2127699/)
 
-俄罗斯入侵乌克兰引发全球多国抵制，资料显示俄罗斯目前已受到5532项制裁，赢过伊朗的3616项和叙利亚的2608项，成为全球被制裁最严重的国家。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/89fa712f-564d-4f89-9865-d37930a0851a.jpg)图片：普京的桌子
-据《BBC》报导，制裁观察名单网站Castellum.ai的统计指出，俄罗斯在2月22日之前已经受到2754项制裁，挥兵乌克兰后又增加了2778项，因此总数来到5532项。
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/jy-2.jpg)
 
-在制裁当中最主要的是美国，占了21％左右，其次是英国和欧盟相加后的18％。目前各国仍持续增加对俄国制裁的力度，希望借此停止战事。
+美东时间3月4日晚，新中国联邦奔赴前线波兰参与救援的战友在纽约完成集结，大约晚上9点乘坐飞机飞往波兰，为前线带去必要的物资救济以及大量药品，如伊维菌素、青蒿素、地塞米松、维生素C、D、阿奇霉素、口罩、手套等预防中共病毒的必需品。
 
-简评：俄罗斯入侵乌克兰，普大帝个人野心的膨胀坑惨了俄罗斯人民，5532项制裁可谓全球第一惨！作为侵略者受到制裁理所应当，但为普京政权疯狂输血的中共就是穷凶极恶了，俄罗斯受到了制裁背后有多少是中国人民来买单，估计是个天文数字！玩刀者必死于刀下，作恶者早晚被群起而攻之！不是不报，时候将到！
+据悉，新中国联邦目前到达前线的队伍有英喜团队、纽伦堡团队，除去补给方面的救援，前线现在开始租用大巴到乌克兰去救人，截止到直播时间，已经救出一车被困人员。
 
-新闻来源：[自由时报](https://news.ltn.com.tw/news/world/breakingnews/3852334)
+此次纽约前线共有9位战友和1位常驻美国的乌克兰人。Nicole战友因雇主不允许自己去参与救援，毅然辞掉了工作。战友护送救援团队到达机场，此次救援新中国联邦乘坐的都是商务舱，在登机口还遇到了一位同去参与救援的美国人，他是一家上市公司的CEO，和战友Nicole的雇主不同的是，他鼓励自己的雇员去参与救援，他自己也身先士卒奔赴救援前线。
 
-撰稿/发布：一叶知秋
+新中国联邦希望困在乌克兰战区的中国同胞不要再听信中共大使馆的骗人话，请不要在机场等一艘船。能出来的尽快出来，乌克兰战区的情况时时刻刻都在变化，请一定不要再错过救援机会。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+目前纽约救援团队还在集结，后面还陆续会有团队奔赴前线参与救援。
 
+新闻来源：[https://gettr.com/post/py8k3mecdc](https://gettr.com/post/py8k3mecdc)
+
+编辑/校对/发稿：小小安
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-50.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

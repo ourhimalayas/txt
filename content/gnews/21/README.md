@@ -2,62 +2,37 @@
 ---
 
 
-## 有声|中国人的救赎
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2127703/)
+## 欧洲给特鲁多白眼
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2127862/)
 
-配音：香草山教育部 – 百香果
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-站在炮火纷飞最前沿
-拯救一个又一个生命
-中国的，美国的，乌克兰的
-巴士飞驰一次又一次
-鲜活生命
-救援队在救赎
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/03/maxresdefault-5-1.jpg)图片来源：National Post
+根据《国家邮报》 (national Post) 3月8日报道，特鲁多本周在欧洲，帮助协调对乌克兰危机的回应。到目前为止，进行得很不顺利。
 
-我们是在救命吗
-我们是在行善吗
-天使在前线
-行使使命
-完成
-救赎中国人灵魂
+首先，特鲁多在访问英国首相鲍里斯-约翰逊的官邸唐宁街10号时不得不退场。原因是反特鲁多的抗议人群挡住了通常的入口。在特鲁多与约翰逊的官方合影期间，仍然可以清楚地听到远处的 “F-ck特鲁多 “的呼声。”F-ck Trudeau” 一词，已经上了热搜。
 
-罪孽国度
-培养魔鬼
-魔鬼统治下人们
-愚昧又愚蠢
-如果我们呼喊
-唤不醒你们
-就让我们行动
-救赎你们灵魂
+由于特鲁多对自由车队的回应，特别是他利用《紧急状态法》在没有司法监督的情况下命令银行冻结抗议者账户，特鲁多最近在欧洲得到了很多负面评论。就在特鲁多抵达英国的时候，《电讯报》刊登了这篇报道，指出他的明星形象是如何因卡车司机车队而陨落的。
 
-醒来吧
-粉红们
-不要再被愚蠢
-把魔鬼假与骗
-倒进垃圾桶
-醒来吧
-中国人
-拒绝愚弄
-向真相靠拢
-醒来吧
-同胞们
-睁开眼睛
-看见我们救赎行动
+与约翰逊会面后，特鲁多与英国领导人和荷兰首相马克-吕特出席了联合新闻发布会。在那里，外国记者们很快注意到，加拿大总理实际上并不回答记者的问题。
 
-文字版原文：[中国人的救赎](https://gnews.org/zh-hans/2120246/)
+问题：加拿大是否会提高其军事预算以达到北约支出占国内生产总值2%的目标？
+他答非所问：”我们需要确保加拿大武装部队的妇女和男子拥有所有必要的装备，以便能够像我们作为北约成员一样，始终坚定地站在那里。”
 
-音频处理：Fei797
-发稿：Fei797
+问题：加拿大是否会利用其石油部门来帮助欧洲减少对俄罗斯石油的依赖？
+他答非所问：”我们需要在经济去碳化方面取得进展，但我们需要以支持人们完成这一过程的方式来做到这一点，我们将继续这样做。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+问题：制裁对遏制俄罗斯侵略的有效性？
+他答非所问：”乌克兰人挺身反抗俄罗斯侵略者的勇气鼓舞了我们所有人，也让我们感到惭愧，我们需要表现出同样的决心来反击普京。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+特鲁多对自由车队的镇压手法，证明了他是一位独裁者。现在他到欧洲“积极”地反对普京的独裁就是一个笑话。
+
+原文链接：
+[https://nationalpost.com/news/politics/first-reading-europe-rolls-its-eyes-at-justin-trudeau](https://nationalpost.com/news/politics/first-reading-europe-rolls-its-eyes-at-justin-trudeau)
+
+编辑，发稿 Spirit
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

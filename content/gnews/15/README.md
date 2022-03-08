@@ -2,28 +2,31 @@
 ---
 
 
-## 中共银联支持俄罗斯银行
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2127790/)
+## 财富跟随人心流动
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2128203/)
 
-采编撰稿：加拿大温哥华杨帆农场 – 自由法兰西
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-749.png)
+2022-02-25直播摘录
 
-Source：[DW报道](https://www.dw.com/zh/%E7%BB%B4%E8%90%A8%E5%92%8C%E4%B8%87%E4%BA%8B%E8%BE%BE%E5%8D%A1%E6%9A%82%E5%81%9C%E6%9C%8D%E5%8A%A1-%E4%BF%84%E9%93%B6%E8%A1%8C%E8%BD%AC%E5%90%91%E4%B8%AD%E5%9B%BD%E9%93%B6%E8%81%94/a-61033012)
+香港人，我告诉大家，香港的港币没有的时候人民币是什么样，你想过吗？共产党这5万币想挡住喜联储，他就没想到他对我们有多大的帮助，他所造成的恐惧，造成的这种房屋的屋内的恐惧的，有一人开枪，所有人都会往门外跑，往旮旯里跑一样，窗子都会出去，这就叫破窗效应。都往我们喜联储来，最重要的要让西方的投资机构看到，哇塞，原来中国人出来取钱地方，美国你去不了，欧洲你去不成，日本就根本不可能，愚蠢的日本的金融你就没有任何门儿可以进。你只能到新加坡和香港转悠转悠，最终你在哪儿？那不是你的安身利索之地，你的财富，你可信赖的只有一个自由流通的Hpay和喜币。共产党帮咱多大忙！我不是偷你点儿小钱，我告诉你共产党，我要把你所有的钱都给弄掉啊。你有本事你挡得住，钱是跟着人心走的，钱不是跟着权力走的。这就是世界的钱，为什么跟美元啊？他不跟俄罗斯远，也不跟你人民币，也不跟你日元，钱是跟人心的。新中国联邦的币就是人心币、良心币、未来币、稳定币、自由流通币。你5万人民币能挡得住吗？这说明你已经恐惧到了极点了，我们想不赢都不行，草根兄弟。
 
-据&lt;自由亚洲电台&gt;3月6日报道，在全球金融支付服务公司VISA和[万事达]因俄罗斯入侵乌克兰而暂停在俄业务之后，俄银行拟与中共银联合作发行新的信用卡。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-对此，俄罗斯[联邦储蓄银行]和[阿尔法银行]当天表示，正在推动发行中共国银联系统的信用卡。同时，俄其它几家主要银行也在筹备使用银联信用卡。
+**关注我们**
 
-目前，由于中共银联卡可在世界约180个国家和地区被使用，此举无疑将为俄罗斯金融体系续命。并通过继续进行海外支付，而成为俄罗斯逃避西方制裁的避风港。
+Discord 账号
 
-评论指出，中共金融机构倒行逆施，进一步加剧了国际社会对中共国的敌视，而中国人民特别是海外华人将无辜成为全世界仇恨的对象，并最终沦为全球排华危机的牺牲品。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-校对编辑：硫酸羟氯喹64
+Gettr 账号
 
-发文：青青
-
-原文链接： [RFA自由亚洲电台报道](https://www.rfa.org/mandarin/Xinwen/8-03062022144853.html)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

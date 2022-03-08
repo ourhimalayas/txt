@@ -2,31 +2,31 @@
 ---
 
 
-## 乌克兰大救援3.8. 英国小提琴老师法语祈福新中国联邦救援乌克兰96名儿童与家人团聚
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2128019/)
+## 俄罗斯经济走向及普京的未来
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2128255/)
 
-翻译：shanshan
-整理：心声
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-08-at-12.52.24-PM.png)Twitter[@YAO12145531](https://twitter.com/YAO12145531) 截图
+文编：Hima
+听写：叮叮
+视频：七哥
 
+2022-02-25直播摘录
 
-扬帆农场战友米小乐3月7日在其twitter账号写到：Hannah，英国人小提琴老师，知悉新中国联邦在乌克兰救出了90多名小朋友，并安全到达波兰，会在西班牙安顿下来。她用法语录了一段视频，传播新中国联邦在乌克兰的救援！
+刚才说对了，战友说对了，看上去大家都知道的话题，只要把SWIFT切掉，俄罗斯就绝对完，绝对完。他所谓大量的储备的黄金都扯淡的事情，记住，绝对不可能。他就不切，切掉SWIFT跟着是什么，知道吗，战友？跟着，英国第二招，把所有在伦敦的俄罗斯人立马驱逐，内部人就会加大干掉普京的步伐。但是英国人考虑到自己在，俄侨在英国的钱和影响力、房地产、金融，不敢。法国就更糟糕了，连SWIFT都不让他踢出去。而且法国，南法的投资和南法都不能有任何限制。放开了尼斯机场，你去看看，你上网络上有一个镜头，专门是尼斯私人机场的，在YOUTUBE上，24小时的。尼斯几个私人机场，包括法国南法南几个机场，几乎是没有任何飞机能停下来。你知道那个飞机，私人飞机到了尼斯是什么，过去，就是我的飞机往那儿飞的时候啊，每次往那儿飞就飞下来以后飞机要飞到另外一个城市去去，隔着去，你那时候没法停。现在是往哪停知道吗？飞机飞到尼斯，飞到南法，其他这几个机场，甚至放飞到，你比方摩纳哥他没有机场，他只能飞到尼斯，你知道吗？飞到那以后，飞机要停到西班牙去。多少架飞机，知道吗，战友们？一个俄罗斯，私人飞机，一个中国在当时最高峰的时候达到了800架，从0到60架到800架，一个俄罗斯5000架。5000架都是超级私人飞机，那些小的不算。多少游艇，你知道，在南法，知道吗？在地中海，大家知道吗？整个在地中海的所有的游艇加起来的价值是俄罗斯GDP的大概一倍。你能想象到一个俄罗斯一万多亿美元的GDP，他有1万亿多美元的奢侈品，消费品在地中海飘荡。这一万多亿美元的游艇，飞机，你知道1年的花费多少？最低是它的成本15%~20%，也就是2000亿。兄弟姐妹们，欧洲要想制裁，你根本不需要做什么，SWIFT一停，把这资产一查封，然后把这个就不允许在这个领域活动，叫领域活动。完了，马上普京内部人把他干掉了，就这么简单。
 
-Hannah在留言区问：“ 这个活动和中国政府有关吗？”我们回复：这是新中国联邦，和你们一样对中国共产党说不！NFSC将重建中国人的信仰和法治。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
-> Hannah，英国人小提琴老师，知悉新中国联邦在乌克兰救出了90多名小朋友，并安全到达波兰，会在西班牙安顿下来。她用法语录了一段视频，传播新中国联邦在乌克兰的救援！
-> Hannah：“ 这个活动和中国政府有关吗？”我们回复：这是新中国联邦，和你们一样对中国共产党说不！NFSC将重建中国人的信仰和法治。 [pic.twitter.com/FZe4aa3Td9](https://t.co/FZe4aa3Td9)
-> — 米小乐（扬帆） (@YAO12145531) [March 7, 2022](https://twitter.com/YAO12145531/status/1500905755666378753?ref_src=twsrc%5Etfw)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-
-Hannah在其个人视频里的法语与中文翻译讲话内容如下：
-
-Ce matin le Nouvel Etat Fédéral de Chine, une association caritative a sauvé 96 enfants dont les parents doivent rester en Ukraine pour se battre dans la guerre horrible. Ces enfants seront établis à Barcelone avec des familles espagnoles et quand les parents pourront s’échapper aussi le Nouvel Etat Fédéral de Chine va les réunir. Tout le monde prie pour que le voyage se déroule en toute sécurité!
-
-今天上午，新中国联邦州的慈善机构救援了96名儿童，他们的父母不得不留在乌克兰，在可怕的战争中作战。这些孩子将被安置在巴塞罗那的西班牙人家庭中，当父母也能逃脱时，新中国联邦将让他们团聚。每个人都在为安全的旅程祈祷！
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
