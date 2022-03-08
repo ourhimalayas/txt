@@ -2,35 +2,25 @@
 ---
 
 
-## 有声|乌克兰将从世界银行获得七亿美元贷款
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2123691/)
+## 俄军围困禁止逃难！乌克兰人民断水断电硬扛
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2123790/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国媒体报道，3月4日，世界银行行长马尔帕斯与乌克兰总统泽连斯基通话，确认了世界银行正在为乌克兰提供的金融援助。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7.jpeg)
-世界银行将在本月对乌克兰发放七亿美元贷款，其中包括两亿美元的紧急金融支援。世界银行董事会正在审查一项五亿美元的贷款提议。该提议被称为“乌克兰经济紧急状况复苏融资”。同时，将设立一个多捐赠方信托基金，以帮助将来自全球的赠款资源及时输送到乌克兰。
+俄罗斯入侵乌克兰，由于纵深过长受通讯和补给线影响，俄罗斯军队依旧保持缓慢推进的态势。交火最为激烈的基辅保卫战，西北方向的俄军受到重创，但在更往西边的伊尔平市，北边就是俄军纵列长达64公里的「钢铁雄师」，已经被断水、断电长达4日，且严重缺乏饮用水和食物。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3549805-PH.jpg)图片来源：AP
 
+乌克兰武装部队总参谋部指出，俄罗斯持续透过白俄罗斯的机场对乌北地区进行空袭，并炮轰平民与「人道走廊」，劫持妇女、儿童当肉盾，在民宅区域放置军用设备和弹药，让乌克兰军队不敢攻击，视国际人道法为玩物。
 
-文字版原文：[乌克兰将从世界银行获得七亿美元贷款](https://gnews.org/zh-hans/2122503/)
+简评：俄罗斯普京政权视国际人道法为玩物，国际社会应视俄罗斯普京政权为屠夫！全球的正义力量抓紧联合起来，阻止俄罗斯在乌克兰的残忍行径，今天不站出来，明天就可能成为受害者！
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1081540)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+撰稿/发布：一叶知秋
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
