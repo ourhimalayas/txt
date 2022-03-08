@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/8/2022 5:09 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-克拉科夫汽车站前线报导
+![img](https://media.gettr.com/group33/origin/2022/03/08/15/c00ad26e-ddaf-fd2c-b9c6-048994a8c003/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/8/2022 5:09 PM (UTC)`
+
+【Ukraine Rescue】03/08/2022 A violin teacher Hannah prays for the 96 children rescued by the NFSC from Ukraine and to be sent on their journey to Barcelona, Spain.<br/><br/>【乌克兰救援】03/08/2022 一位小提琴老师汉娜：为新中国联邦在乌克兰救出的96个孩子并将他们送往巴塞罗那的旅途祈祷<br/>
+![img](https://media.gettr.com/group31/getter/2022/03/08/17/6119f61f-851a-d2a4-098f-33055ab30be7/out.jpg)
+
+---
+
 `@miles 3/8/2022 3:03 PM (UTC)`
 
 3月8号：尊敬的战友们好．俄乌战争，让世界看清了中国共产党的丑恶……和危险，唤醒了无数的中国人，新中国联邦人正在俄乌战场，拯救着乌克兰的妇女和孩子……和中国同胞。我们一定让世界更多的人知道中国共产党不等同于中国人。
@@ -141,20 +155,6 @@
 
 3/6/2022 Miles Guo: The Chinese people are about to face major disasters such as food crisis and economic crisis. We must have the financial means, the ability, the social media platform, and the international support to carry out the rescue, but we can only save those who believe in us. Many people will pass away from the end of this year to the end of next year due to the COVID vaccines. We will build a new human civilization based on the Way of Righteousness.<br/><br/>3/6/2022 文贵直播: 中国人即将面临粮食危机和经济危机等大灾难；必须要有钱、能力、社交媒体平台和国际支持才能进行救援；我们只渡有缘人；今年年底到明年年底会有很多打了疫苗的人会离世；我们要建立信仰正道主义的人类新文明<br/>
 ![img](https://media.gettr.com/group20/getter/2022/03/07/23/f8858e3e-69ab-ad59-1df4-b7b23b07b09c/out.jpg)
-
----
-
-`@miles 3/7/2022 11:07 PM (UTC)`
-
-3/6/2022 Miles Guo: We, citizens of the New Federal State of China, only care about the ultimate outcome, not the mainstream media, governments, and international agencies that have brought disasters to humanity. The New Federal State of China’s rescue mission in Ukraine will accept donations using Himalaya Dollars, and all expenditures will be made public. The New Federal State of China is going to bring a new mode of life to humans - the Way of Righteousness.<br/><br/>3/6/2022 文贵直播:  新中国联邦只在乎结果，而不在乎给人类带来灾难的主流媒体、政府和国际机构；乌克兰救援行动将接受喜美元捐款并公布一切开销；新中国联邦将带来人类未来新的生存模式 - 正道主义<br/>
-![img](https://media.gettr.com/group26/getter/2022/03/07/23/50b4a985-b93e-8b1c-8db4-a5d8327daae6/out.jpg)
-
----
-
-`@miles 3/7/2022 11:07 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 2022-03-07
-![img](https://media.gettr.com/group42/origin/2022/03/07/23/d4b9b23a-8320-8216-3d62-bbf9537a1720/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
