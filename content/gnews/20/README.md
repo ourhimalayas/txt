@@ -2,37 +2,26 @@
 ---
 
 
-## 中共破坏乌克兰人道救援 天理难容
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2127312/)
+## 普大帝坑惨俄罗斯！硬扛5532项制裁全球第一惨！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2127376/)
 
-作者：纽约香草山农场 -文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月7日，郭文贵先生在盖特视频中讲到，中共利用欺骗恐吓的手段，破坏法治基金乌克兰救援行动。
+俄罗斯入侵乌克兰引发全球多国抵制，资料显示俄罗斯目前已受到5532项制裁，赢过伊朗的3616项和叙利亚的2608项，成为全球被制裁最严重的国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/89fa712f-564d-4f89-9865-d37930a0851a.jpg)图片：普京的桌子
+据《BBC》报导，制裁观察名单网站Castellum.ai的统计指出，俄罗斯在2月22日之前已经受到2754项制裁，挥兵乌克兰后又增加了2778项，因此总数来到5532项。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-5.jpeg)
+在制裁当中最主要的是美国，占了21％左右，其次是英国和欧盟相加后的18％。目前各国仍持续增加对俄国制裁的力度，希望借此停止战事。
 
-截至目前，法治基金新中国联邦救援队已经从乌克兰战区救出，包括中国同胞和国际人士在内，200多名受困的难民。对比之下，中共不但没有意愿和能力救援在乌克兰受困的中国同胞，而且还欺骗墙内百姓，在乌克兰的同胞已经全部撤离。中共不仅放弃被困乌克兰的中国同胞，而且，为了掩盖他的谎言，还用删帖封号的方式来屏蔽中国同胞发的求救信息。
+简评：俄罗斯入侵乌克兰，普大帝个人野心的膨胀坑惨了俄罗斯人民，5532项制裁可谓全球第一惨！作为侵略者受到制裁理所应当，但为普京政权疯狂输血的中共就是穷凶极恶了，俄罗斯受到了制裁背后有多少是中国人民来买单，估计是个天文数字！玩刀者必死于刀下，作恶者早晚被群起而攻之！不是不报，时候将到！
 
-据郭先生透露，大量中国留学生目前仍然滞留在乌克兰。其中有一部分人躲藏在地下室中，处于断水的艰难境地。这些中国学生一直被中共的谎言愚弄，他们被通知在原地等待救援撤离，完全不知晓中共已将他们抛弃的事实。
+新闻来源：[自由时报](https://news.ltn.com.tw/news/world/breakingnews/3852334)
 
-郭先生非常痛心地说，原本有一、二十名中国同胞已经登上了新中国联邦的救援大巴车，可以安全撤离乌克兰。但就在出发前，他们收到了中共驻乌使馆的信息。中共利用欺骗手段，胁迫这些中国同胞下车离开。这些同胞因惧怕和被中共洗脑的无知，错过了救援时机，目前下落不明，生死未卜。
+撰稿/发布：一叶知秋
 
-参考链接：[https://gettr.com/post/pynslhaa9a](https://gettr.com/post/pynslhaa9a)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
-
-总编：Zion文恩
-编辑：Ivy001  
-审核：Ivy001
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

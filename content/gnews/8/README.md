@@ -2,22 +2,54 @@
 ---
 
 
-## 视频|新中国联邦成功救出96名乌克兰儿童
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2127578/)
+## 有声|中国人的救赎
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2127703/)
 
-制作：香草山视频部
+配音：香草山教育部 – 百香果
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+站在炮火纷飞最前沿
+拯救一个又一个生命
+中国的，美国的，乌克兰的
+巴士飞驰一次又一次
+鲜活生命
+救援队在救赎
 
-3月6日文贵先生盖特，新中国联邦成功从乌克兰救出96名儿童，将安置在巴塞罗那，由西班牙农场文戈站长继续全程跟踪服务。
+我们是在救命吗
+我们是在行善吗
+天使在前线
+行使使命
+完成
+救赎中国人灵魂
 
-这96名儿童中，有几十名是当地一家儿童慈善机构的孤儿，有的则是乌克兰当地居民为保卫家园上战场，而把孩子交给了该机构。消息称，在赶往接应的路上，营救儿童及随行老师的数量一直在增加。
+罪孽国度
+培养魔鬼
+魔鬼统治下人们
+愚昧又愚蠢
+如果我们呼喊
+唤不醒你们
+就让我们行动
+救赎你们灵魂
 
-据悉，西班牙农场在接到任务后，立刻组织人员赶赴一线，并在中间大巴运送的4个小时路程中陪同护送，顺利脱离危险地。接下来落实营救难民落地后三十天生活涉及的方方面面。另外，考虑到孩子们精疲力尽，前线救援战友为了不打扰他们休息就没有继续直播了。
+醒来吧
+粉红们
+不要再被愚蠢
+把魔鬼假与骗
+倒进垃圾桶
+醒来吧
+中国人
+拒绝愚弄
+向真相靠拢
+醒来吧
+同胞们
+睁开眼睛
+看见我们救赎行动
 
-儿童成功获救后，负责人Teresa 女士，包括乌克兰本地人十分感动，对法治基金、新中国联邦表示了深深的感谢，称新中国联邦人为“天使”。
+文字版原文：[中国人的救赎](https://gnews.org/zh-hans/2120246/)
 
-发稿：Daxia
+音频处理：Fei797
+发稿：Fei797
 
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -25,7 +57,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
