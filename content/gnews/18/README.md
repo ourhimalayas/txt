@@ -2,17 +2,13 @@
 ---
 
 
-## 20220306文贵大直播：新中国联邦面对危机向世界展现了新的中国人形象之正道主义
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2124594/)
+## 一队俄罗斯俘虏称他们都是教育工作者
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2124643/)
 
-作者:东京樱花团小视频组
+03/04/2022 视频显示一支俄军小分队被俘，让人吃惊的是，经询问他们都是教育工作者。他们被骗上战场，根本不知道他们在干什么。
 
-校对：东京樱花团小视频组
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-编辑发布：东京樱花团小视频组
-
-* * *
-![此图像的alt属性为空；文件名为IMG_0887.png](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

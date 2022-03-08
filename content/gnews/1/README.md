@@ -2,37 +2,26 @@
 ---
 
 
-## 乌克兰提出紧急诉讼，俄罗斯拒绝出庭
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2124791/)
+## 众议院即将就放弃与俄罗斯和白俄罗斯的包括石油进口在内的贸易关系举行投票
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2125074/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译：Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-39.jpg)
+随着俄罗斯在在乌克兰战争的什级，欧美加大了对俄制裁的力度。《零对冲》3 月 8 日引用了路透社的报道指出众议院最快将于周二就一项两党法案进行投票，该法案将取消与俄罗斯和白俄罗斯的贸易关系，其中包括禁止进口石油。
 
-整理：围剿维尼熊
-编辑：朝花夕拾
+众议院民主党马萨诸塞州的理查德.尼尔（Richard Neal）和得克萨斯州的共和党凯文.布拉迪（Kevin Brady）众议院筹款委员会的民主党主席和共和党领袖以及奥勒冈的参议员罗恩.怀登（Ron Wyden )和迈克.克拉波（Mike Crapo）、参议院财政委员会的民主党主席和共和党高级成员宣布了两党的协议。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-49.png)图片来源：雅典娜设计组
+”虽然国会需要做更多事情，但作为对我们国家贸易政策拥有管辖权的国会议员，我们有责任使用我们掌握的工具来制止俄罗斯对乌克兰的不道德和非正义的战争，同时追穷白俄罗斯卷入战争的负责，” 民主党代表在一份声明中。
 
+众议院议长南希佩洛西表示，众议院将在本周就此事进行立法。
 
-根据德国之声中文网3月7日报道，海牙国际法庭有关俄乌战争的庭审已经开始，但俄罗斯方面拒绝出庭。主审女法官多诺霍（Joan Donoghue ）表示，俄罗斯驻荷兰大使舒尔金（ Alexander Schulgin）已通报法庭，俄罗斯政府无意参与审理活动。
+与此同时，国务卿布林肯表示，美国正在与欧洲伙伴积极讨论，他们对俄罗斯石油的依赖程度远远高于美国，如果美国禁止其进口俄石油，这些伙伴可能会陷入衰退。
 
-代表乌克兰方面出席庭审的库里尼耶维奇（ Anton Korynewytsch）对俄罗斯提出强烈谴责。他说，俄罗斯方面的缺席说明了一切。他们拒绝到庭，因为他们正在对乌克兰进行野蛮的侵略。
+为此，《卫报》报道称，拜登政府愿意在没有欧洲伙伴参与的情况下推进禁令。
 
-这是俄罗斯首次因违反1948年签署的联合国《防止及惩治灭绝种族罪公约》而接受海牙国际法庭的审理。
+更重要的是，据彭博社报道，据报道，美国国会谈判代表正在接近就紧急援助乌克兰以及政府长期资助达成协议。
 
-基辅政府指控俄罗斯正在乌克兰策划种族屠杀。
-
-一般海牙国际法庭数天内即可做出裁决。不过，阿姆斯特丹大学军事法教授基尔（ Terry Gill）表示，即便乌克兰诉讼成功，也不会发生任何变化。因为国际法庭并没有强迫败诉一方执行法庭裁决的手段。
-
-参考链接：[https://m.dw.com/zh/海牙国际法庭开庭乌克兰提告-俄罗斯缺席/a-61043983](https://m.dw.com/zh/海牙国际法庭开庭乌克兰提告-俄罗斯缺席/a-61043983)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接：[https://www.zerohedge.com/geopolitical/house-hold-imminent-vote-ditching-trade-relations-russia-belarus-including-oil-imports](https://www.zerohedge.com/geopolitical/house-hold-imminent-vote-ditching-trade-relations-russia-belarus-including-oil-imports)
 
  
 

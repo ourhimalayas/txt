@@ -2,52 +2,53 @@
 ---
 
 
-## Tik Tok禁止俄罗斯影音上传
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2124678/)
+## 文•贵天成——文贵先生谈“正道主义”（十一）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2124904/)
 
-作者：纽约香草山教育部 Naughty(文行)
+整理：BENJ1
+编辑：小红帽
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
-
-
-Tik Tok周日宣布，暂停发布所有来自俄罗斯的影音内容，以保护该公司员工免受俄罗斯有关假新闻法律的影响。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-14.jpg)图源网络
-
-目前数以百万计的人已经转向 Tik Tok，以获取乌克兰战斗的实时更新和视频剪辑。该公司不得不处理大量视频，其中包括一些未经证实的展示实地行动情况的视频，这导致人们担心Tik Tok 正在传播有关入侵的错误信息。
-
-根据《纽约时报》的评论，带有#Ukrainewar 标签的视频在Tik Tok上的浏览量已接近5亿，其中一些最受欢迎的视频获得了近100万个赞。Tik Tok上周表示，它已投入更多资源来监控有关战争的误导性内容。
-
-在俄罗斯持续入侵乌克兰之际，俄国总统普京3月4日签署一项法令，称将对发布俄军假新闻者处以15年的监禁。
-
-该法很快遭到批评人士强烈反对，美国政府也在昨天谴责这项法令，但俄罗斯总统府克里姆林宫在周末为其辩护，称该国正面临“信息战”，需要予以反击。
-
-俄罗斯记者和审查专家警告说，关闭来自俄罗斯的直播和新上传是很棘手的，因为它可能会阻止普通俄罗斯人传播独立信息。如果技术平台在俄罗斯被封锁，将会产生负面影响。
-
-参考来源：
-
-[Tik Tok Suspends Livestreaming and New Uploads From Russia](https://www.nytimes.com/2022/03/06/technology/tiktok-russia-ukraine.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/355a31da5cca7976.png)图片来源：雅典娜农场设计组（614）
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-50.png)
+**郭文贵先生2021年3月18日直播**
 
+七哥是从茅屎坑出来的，什么事都见过，也不是你们想象的什么伟光正，绝对不是。我什么事都干过，什么事都经历过。因为这些经历和干过的事情，七哥也受过很多的磨难和惩罚。最后能让我相信的是正道主义，让我相信灭共是天下唯一的正道。
+
+我也相信我们的正道主义对信仰，家庭，法治，尊重的意义。特别是我这样的人，我有儿子，有女儿，有老婆，有爹有娘，全一大家子的人。我接受不了任何所谓的这种背叛；我接受不了这种家庭的欺瞒；我接受不了这种夫妻之间互相玩弄和仇恨。这绝对是不好的，更不要说去当人家第三者，那就更是夸张至极了。因为我们都是女人生的，不能搞这个事情。但是我要说，每个人的生殖器如何使用，那都是你的自由。我们不能像共产党一样管天，管地，管生殖器。我们管不了。不要说爆料革命，新中国联邦今天是一个灭共的，一个松散性的，大家的一个，这么一个群体。
+
+**郭文贵先生2021年5月2日直播**
+
+未来的美国人民选美国政府的时候，绝不是选总统那么简单。就像现在我们整个的喜马拉雅系列，农场系列一样，是基于你的全球性、你的公平性、利益分配的公平性，以及在全世界上被认可的程度。还有更重要的事情就是信仰。你对信仰不仅要包容，而且你要真正地让大家承认，你有资格捍卫信仰。
+
+你有没有这个能力?美国现在竟然没有能力捍卫信仰。现在在美国，到处发生各种稀奇古怪的事情，极端主义者竟然威胁各宗教的存在，这太可怕了！
+
+人类从过去的民主，文明，法治的时代要过渡到一个现代化的，数字化的，有法律约束的，未来的通信用数字化作为工具的，有现代化金融系统的，最后追随正道主义的时代。
+
+这是必然的，像中东某些国家，像亚洲那些落后国家，它还搞不清楚呢。还哥们好呢。还搞什么领导，国家领导人之间的关系。未来的国家领导人可能是早上一个，晚上就换了。换谁老百姓都不在乎，但你不能换我们大家认可的这个宪法。那叫正道主义。
+
+资料来源：郭文贵先生直播视频
+
+发布：tianzhihuan
+
+往期回顾：
+[文•贵天成——文贵先生谈“正道主义”（一）](https://gnews.org/zh-hans/2061785/)
+[文•贵天成——文贵先生谈“正道主义”（二）](https://gnews.org/zh-hans/2061810/)
+[文•贵天成——文贵先生谈“正道主义”（三）](https://gnews.org/zh-hans/2064565/)
+[文•贵天成——文贵先生谈“正道主义”（四）](https://gnews.org/zh-hans/2065291/)
+[文•贵天成——文贵先生谈“正道主义”（五）](https://gnews.org/zh-hans/2066630/)
+[文•贵天成——文贵先生谈“正道主义”（六）](https://gnews.org/zh-hans/2091727/)
+[文•贵天成——文贵先生谈“正道主义”（七）](https://gnews.org/zh-hans/2087938/)
+[文•贵天成——文贵先生谈“正道主义”（八）](https://gnews.org/zh-hans/2111000/)
+[文•贵天成——文贵先生谈“正道主义”（九）](https://gnews.org/zh-hans/2111179/)
+[文•贵天成——文贵先生谈“正道主义”（十）](https://gnews.org/zh-hans/2124787/)
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,28 +2,38 @@
 ---
 
 
-## 中日财经爆┃调查显示美国在华企业更加悲观
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2124642/)
+## 乌克兰提出紧急诉讼，俄罗斯拒绝出庭
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2124791/)
 
-整理编辑：东京樱花团丨peterwong
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/调查显示美国在华企业更加悲观.png)[*图片来源*](https://i1.wp.com/m1.aboluowang.com/uploadfile/2020/0311/20200311124022738.jpg)
+整理：围剿维尼熊
+编辑：朝花夕拾
 
-美国商会周二（3月8日）发布的一项调查显示，由于中美关系紧张、防疫限制措施持续不断、监管限制和经济放缓，美国企业对在中共国经营的看法更加悲观。根据报告，会员公司对中共国市场增长的乐观看法比去年下降了11个百分点，该报告基于300多家会员公司的答覆编写。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-49.png)图片来源：雅典娜设计组
 
-中国美国商会总裁毕艾伦（Alan Beebe）在一次媒体会议上说，拜登于2020年当选后，在华美国公司中出现了短暂的乐观情绪“高峰”。
 
-企业报告说，美国和中共国之间日益紧张的关系是最大的商业挑战，其次是法律规定不一致或不明确，在雇用外国和本地人才方面都出现困难。中国严格的防疫规定使得海外雇员很难开始在中国工作，政治因素也阻碍了国内招聘。
+根据德国之声中文网3月7日报道，海牙国际法庭有关俄乌战争的庭审已经开始，但俄罗斯方面拒绝出庭。主审女法官多诺霍（Joan Donoghue ）表示，俄罗斯驻荷兰大使舒尔金（ Alexander Schulgin）已通报法庭，俄罗斯政府无意参与审理活动。
 
-美国商会（USCC）是一个代表多间企业和贸易协会的美国游说团体，并不是美国政府的官方单位。美国商会由多位政策专家、游说家和律师组成。美国商会是美国最大的游说团体之一，每年的开销金额超越了其他游说团体。
+代表乌克兰方面出席庭审的库里尼耶维奇（ Anton Korynewytsch）对俄罗斯提出强烈谴责。他说，俄罗斯方面的缺席说明了一切。他们拒绝到庭，因为他们正在对乌克兰进行野蛮的侵略。
 
-中国美国商会（The American Chamber of Commerce in the People’s Republic of China，简称AmCham China）是一个非营利性的非政府组织，其成员包括来自在中共国经营的900家美国公司的4,000名个人。商会的目的是通过一系列支持帮助美国公司在中共国取得成功。中国美国商会是唯一被中共国官方认可的代表美国在华企业的商会。
+这是俄罗斯首次因违反1948年签署的联合国《防止及惩治灭绝种族罪公约》而接受海牙国际法庭的审理。
 
-消息来源：[**美国在华企业更加悲观 因两国关系紧张且受防疫措施限制**](https://cn.reuters.com/article/us-business-china-pessimism-0308-idCNKBS2L50G8?il=0)
+基辅政府指控俄罗斯正在乌克兰策划种族屠杀。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+一般海牙国际法庭数天内即可做出裁决。不过，阿姆斯特丹大学军事法教授基尔（ Terry Gill）表示，即便乌克兰诉讼成功，也不会发生任何变化。因为国际法庭并没有强迫败诉一方执行法庭裁决的手段。
+
+参考链接：[https://m.dw.com/zh/海牙国际法庭开庭乌克兰提告-俄罗斯缺席/a-61043983](https://m.dw.com/zh/海牙国际法庭开庭乌克兰提告-俄罗斯缺席/a-61043983)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
