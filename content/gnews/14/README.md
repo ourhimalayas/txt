@@ -2,23 +2,23 @@
 ---
 
 
-## 乌克兰仍在人间！乌士兵围「炮坑」演奏国歌
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2126788/)
+## 樱花FM|美国贸易报告敦促遏制中国的强迫劳动
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2127083/)
 
-俄罗斯对乌克兰发动军事攻击已进入第13天，虽然俄罗斯拥有强大军力，但乌克兰军队仍不放弃，顽强地抵抗攻击。为了表示誓死保卫家园的决心，一群乌克兰士兵围着巨大的炮坑，演奏著乌克兰的国歌，如此坚定的意志，让网友看了心酸。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-5-1.png)
+美国贸易代表办公室（USTR）于3月1日发布了其年度贸易政策报告。 报告指出，美国将 “探索所有途径，并在必要时寻求新的措施”，以打击中国侵犯知识产权和各种不公平做法。 报告重申了将采取严厉措施遏制新疆维吾尔自治区强迫劳动。
 
-乌克兰国会女议员卢狄克（Kira Rudik）日前分享一部影片，一群乌克兰士兵站在废墟里，围着一个巨大的炮坑，每个人都拿著乐器，正在演奏乌克兰的国歌《乌克兰仍在人间》（乌克兰尚未毁灭）。
-视频来源：[Kira Rudik](https://twitter.com/kiraincongress?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1500590106763304966%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.setn.com%2FNews.aspx%3FNewsID%3D1081881)
-简评：音乐是灵魂的共鸣！正如这群乌克兰士兵演奏的《乌克兰仍在人间》，战火中的音乐是那么的让人心酸又扣人心弦，当使命与顽强一结合是不可摧毁的！俄军的炮火摧毁不了乌克兰人的意志！乌克兰仍在人间！乌克兰必胜！
+报告认为，”美国和中国这两个经济大国之间的双边关系不仅对两国而且对整个世界都有影响”，但 “中国的贸易做法正在引起摩擦”。
 
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1081881&amp;utm_source=setn.com&amp;utm_medium=topic&amp;utm_campaign=newsid_1081881)
+压低工资导致的低成本是企业选择在中国生产的一个原因。对新疆少数民族的强迫劳动是侵犯人权的行为。
 
-撰稿/发布：一叶知秋
+文字版原文：[美国贸易报告敦促遏制中国的强迫劳动](https://gnews.org/zh-hans/2091731/)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+
 
  
 

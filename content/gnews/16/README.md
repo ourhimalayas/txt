@@ -2,28 +2,30 @@
 ---
 
 
-## 俄乌开战后 中共终于公开谈战争
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2126773/)
+## 视频|俄罗斯银行信用卡系统急于启用中国银联
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2127060/)
 
-撰稿：东京樱花团/Garrettw
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄乌开战后-中共终于公开谈战争1.png)[图片来源](https://baijiahao.baidu.com/s?id=1726625159781540649&amp;wfr=spider&amp;for=pc)
+据外媒3月6日报道，数家俄罗斯银行表示，将很快启用中国银联卡运营商，加上俄罗斯自己开发的MIR支付系统来发卡。
 
-2022年3月7日中共外交部长王毅在回应乌克兰局势问题时表示，俄乌双方已经谈了两轮，希望即将开启的第三轮谈判能取得新的进展。中共认为，形势越紧，和谈越不能停止；分歧越大，越需要坐下来谈判。中共愿继续为劝和促谈发挥建设性作用，也愿意在需要的时候同国际社会一道开展必要的斡旋。
+前一天，数家国际信用卡及支付公司巨头相继宣布，暂停在俄罗斯的合作业务。随即，俄罗斯最大的联邦储蓄银行，以及阿尔法银行、和廷考夫银行等在6日发布了关于转用中国银联，发行信用卡及借记卡的公告。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄乌开战后-中共终于公开谈战争2.png)[图片来源](https://www.scmp.com/news/china/article/3169010/un-votes-condemn-russian-invasion-ukraine-china-again-stays-silent)
+资料显示，银联成立于2013年，是一家中共国支付管理公司，发行银行卡并处理与银行交易相关的业务。旗下银联国际已在70多个国家发行银行卡。
 
-在2022年2月25日联合国的举办的谴责俄罗斯入侵乌克兰的会议投票上，中共及其他少数国家投了弃权票。此次中共“两会”期间突然宣布了站在和平谈判一边，含糊其辞的表达，虚张声势的态度，不知道是受制于各国政府的压力，还是中共的缓兵之计为“占台”让出伏笔，我们拭目以待，继续关注。
+自2014年吞并克里米亚以来，俄罗斯已采取措施减少其对西方的金融依赖。俄开发的银行支付系统MIR于2015年推出，中国银联管理该系统下发行的银行卡，在俄罗斯已经有较大的影响力。
 
-消息来源:
+根据银联在2017年发布的一份说明，约有60万台POS终端和10万台ATM机，约占总数的85%，可以接受银联卡提取俄罗斯卢布。四年后，这个数字肯定有所上升。
 
-[王毅谈俄乌局势：中方愿在需要的时候开展必要斡旋](https://baijiahao.baidu.com/s?id=1726625159781540649&amp;wfr=spider&amp;for=pc)
+消息人士称，从这一点来看，中俄应对西方的金融制裁，似乎早有预案。
 
-[UN votes to condemn Russian invasion of Ukraine, but China again stays silent](https://www.scmp.com/news/china/article/3169010/un-votes-condemn-russian-invasion-ukraine-china-again-stays-silent)
+发稿：谐趣园
 
-*编辑：东京樱花团/ 喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,31 @@
 ---
 
 
-## FDA败诉！辉瑞被迫公布所有疫苗数据！副作用足足有9页！全网震惊！
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2126000/)
+## 秘翻新闻｜中俄联合洗脑编织虚假信息网 人民难逃脱
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2125925/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/https_______mmbiz.qpic-2.jpeg)
-据报道，3月1日，美国食药监局FDA在官司中败诉，法院要求FDA今年夏天之前要完成辉瑞新冠疫苗32.9万页完整审评文件的公开。
+**By:[秘翻新闻](https://gettr.com/post/pytcay5cc0)**
 
-3月5日，FDA刚刚发布了首批文件，在众多的文件里，最让人震惊的，莫过于关于辉瑞疫苗不良反应的报告，足足有9页之多，全网为之震惊。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GqPX-Cu63VNbCrjjATxNYfc9Yg7AgWRAryOobK8jqGw.png)
-目前披露的文件中列出了1000多种不良反应，很多都是头一次披露，包括：筋膜炎、眼部肿胀、面瘫、斑秃、过敏休克、妊娠过敏反应综合征、急性心肌病、急性呼吸衰竭、注射部位血管炎、癫痫、血栓、心律失常、关节炎、哮喘、支气管痉挛、心脏骤停、心力衰竭、胸部不适、窒息、急性皮肤红斑狼疮、急性脑脊髓炎、急性肾损伤、急性黄斑外层视网膜病变、再生障碍性贫血、慢性自身免疫性肾小球肾炎、慢性皮肤红斑狼疮、慢性自发性荨麻疹、溶血性贫血、结肠炎、皮炎、糖尿病、栓塞性脑梗塞、内分泌失调、新生儿重症肌无力、脊髓炎、非感染性卵巢炎、甲状腺炎、溃疡性直肠炎、眼部瘙痒症、生殖器疱疹、舌咽神经麻痹、出血性血管炎、宫颈炎、狼疮性膀胱炎、狼疮性脑炎、多发性硬化症等等。
+**[2022-03-08](https://gettr.com/post/pytcay5cc0)**
 
-按照法院要求，FDA将在今年夏天之前发布完所有相关文件，现在才刚刚公布了150份文件。相信随着更多文件的披露，更大的争议还会陆续涌现。
+**今日主题**:
 
-新闻链接：[https://www.globenewswire.com/news-release/2022/03/03/2396681/0/en/CHD-Says-Pfizer-and-FDA-Dropped-Data-Bombshell-on-COVID-Vaccine-Consumers.html](https://www.globenewswire.com/news-release/2022/03/03/2396681/0/en/CHD-Says-Pfizer-and-FDA-Dropped-Data-Bombshell-on-COVID-Vaccine-Consumers.html)
+**1. 美国佛州：健康儿童不要接种中共病毒疫苗**
 
-编辑/校对/发稿：文留
+**2. 全球四大会计事务所切断与俄罗斯联系**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-2.jpg)
+**3. 评级机构惠誉暂停在俄罗斯的商业运营**
 
-**更多资讯，更多关注**
+**4. 传广东幼儿园副园长猥亵女童 家长堵门抗议**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**5.运送俄罗斯违禁货物可能被列入黑名单**
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**🔗 Gettr链接:**[https://gettr.com/post/pytcay5cc0](https://gettr.com/post/pytcay5cc0)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+发布:星星
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
