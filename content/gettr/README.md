@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/8/2022 11:45 AM (UTC)`
+
+【Ukraine Rescue】03/07/2022 Approximately 100 children rescued from Ukraine by ROL Foundation and NFSC, along with their teachers, rested at a hotel in Krakow, Poland, before departing for Barcelona, Spain. The entire trip is supported by the ROL Foundation and NFSC with free food, accommodations, and free bus transportation.<br/><br/>【乌克兰救援】03/07/2022 由法治基金和NFSC从乌克兰救出的大约100名儿童以及他们的老师，在波兰克拉科夫的一家酒店休息后出发，前往西班牙巴塞罗那，整个行程由法治基金和NFSC提供免费食宿和免费大巴。
+![img](https://media.gettr.com/group30/getter/2022/03/08/11/de49a138-50d8-e73f-b5fa-40e1dce88502/out.jpg)
+
+---
+
 `@miles 3/8/2022 6:51 AM (UTC)`
 
 【Ukraine Rescue】03/07/2022 ROLF and NFSC rescued more Chinese compatriots from Ukriane today and some of them are very different and we will let them share their appreciations to our rescue and their feelings to the CCP when they are ready.<br/><br/>【乌克兰救援】03/07/2022法治基金和新中国联邦今天从乌克兰救出了更多中国同胞，他们中的一些人非常不同，我们将让他们分享他们对我们救援的感激之情以及他们对中共的感受。<br/>
@@ -148,13 +155,6 @@
 
 【Ukraine Rescue】 03/07/2022 The New Federal State of China successfully rescued about 100 children from Ukraine. Thanks to the donors of the Rule of Law Foundation, they are the hope of the country, the angels to the people in the war zone of Ukraine. <br/><br/>【乌克兰救援】 03/07/2022 新中国联邦成功救出约100名乌克兰孩子。感谢法治基金捐助者，他们是这个国家的希望， 是乌克兰战争地区人们的天使。
 ![img](https://media.gettr.com/group46/getter/2022/03/07/22/46b9677e-04ab-21b6-c63a-96709f54e25b/out.jpg)
-
----
-
-`@miles 3/7/2022 10:05 PM (UTC)`
-
-【乌克兰救援】 03/07/2022协助新中国联邦乌克兰儿童救援行动的人权律师感动落泪<br/><br/>【Ukraine Rescue】 03/07/2022 Human rights lawyer who assisted the NFSC's child rescue operation in Ukraine is moved to tears
-![img](https://media.gettr.com/group42/getter/2022/03/07/22/009f1488-9075-a0d2-2dca-18e184089f2d/out.jpg)
 
 ---
 

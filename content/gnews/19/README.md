@@ -2,32 +2,40 @@
 ---
 
 
-## 美议员提出《独裁者法案》 调查中共支持俄入侵乌克兰
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2125571/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2125708/)
 
-**撰稿：日本东京方舟农场 北极**
+#### 整理：枳实
+**美工：精灵蓝**
 
-据大纪元3月8日报道，美国众议员周一（3月7日）提出《独裁者法案》，调查中共在多大程度上支持俄罗斯入侵乌克兰，及其是否正协助俄罗斯逃避经济制裁。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-731.png)圖片：雅典娜農場設計組 精靈藍
 
-这项法案全称为《2022年对中共直接调查、采取行动反对俄罗斯法案》（The Direct Investigations on China, Take Action to Oppose Russia Act of 2022）或依首字母简称《独裁者法案》（DICTATOR Act）。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-6.jpeg)图为2014年5月，习近平与普京在亚信第四次峰会上擦肩而过。（图片来自大纪元）
+雅典娜疫情更新（2022年 3月8日）
 
-该法案由加州共和党众议员金映玉（Young Kim）和密歇根州民主党众议员艾丽莎‧斯洛特金（Elissa Slotkin），以及其他11名众议院一同提出。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/2119732/)
 
-法案要求，国务卿必须在法令生效后90天内向国会提交一份非保密报告，调查中共是否在支持莫斯科，并制定一个明确的战略，防止北京进一步协助莫斯科逃避制裁。同时，该法案向中共发出一个明确的信息：任何协助俄罗斯逃避美国制裁的努力都不会被容忍，并将付出严重的代价。
+全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-732.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-733.png)
+[2022年3月8日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/%E5%85%A8%E7%90%83%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0%E6%A8%A1%E6%9D%BF-new3%E6%9C%888%E6%97%A5%E6%94%B9%E8%BF%9B.pdf)
 
-在俄罗斯全面入侵乌克兰后，西方国家实施了严厉的制裁，意图使俄罗斯经济孤立，以结束其对乌克兰的军事行动。然而，中共当局却谴责了国际制裁，称这些“非法单边制裁”，将“进一步加剧分裂和对抗”，重申中俄继续进行“正常贸易合作”，在俄罗斯入侵乌克兰后仅一天，北京即取消对俄罗斯小麦进口的限制，缓解了西方制裁的影响。
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-中共外交部长王毅本周一（3月7日）在两会期间的中外记者会上，再次重申中共与俄罗斯“坚如磐石”的关系，并再次拒绝将俄罗斯对乌克兰的军事行动称为入侵，王毅甚至在针对俄罗斯与乌克兰的冲突问题上，暗示“一切都是美国的错”。
+*发布：陶子*
 
-参考链接：
-1. [https://www.epochtimes.com/gb/22/3/8/n13629892.htm](https://www.epochtimes.com/gb/22/3/8/n13629892.htm)
-2. [https://www.epochtimes.com/gb/22/3/7/n13629314.htm](https://www.epochtimes.com/gb/22/3/7/n13629314.htm)
-
-素材采编：北极
-编辑： 青城道姑
-发布：文曦
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,24 +2,46 @@
 ---
 
 
-## 俄乌战争｜欧盟正式开始审批乌克兰的加入申请
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2124393/)
+## 救援前线报道：成功营救出96个乌克兰孩子和他们的老师
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2124641/)
 
-**撰文/ 港台前线｜发布日期/ 08/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/歐盟正式開始審批烏克蘭的加入申請.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+作者：日本东京方舟农场—Miyali7768(文玉）
 
-欧盟轮值主席法国周一（7日）宣布，27国的欧盟常驻代表已经同意，正式开始审批乌克兰、格鲁吉亚以及摩尔多瓦，三个前苏联国家加入欧盟委员会的申请，并邀请各代表就申请发表意见，3国均在俄罗斯入侵乌克兰后才申请加入。
 
-按照惯例，希望成为欧盟成员国的国家，必须迈过严格的“加入门槛”，当中涉及复杂的社会、法律及政治改革，务求令该国在民主、法治等重要指标上更上一层楼，而欧盟是否还有余力吸收新成员也是审批需要考虑的必要因素。通常来说，整个审批过程需历经数年。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-47.png)
+3月4日，被困在乌克兰一个核电站的老师联系到小飞象，希望得到救援，他们想把90多个孩子送到西班牙收养家庭去。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-24.jpg)
+小飞象得知后立即将此事向郭先生汇报，随后根据郭先生发出的立即救援的指示，迅速回复老师并告诉他们波兰的接应地点。为保证安全，战友们还为他们提供了一些可行的路线信息参考。
 
-而事实上，欧盟一直不愿扩张，主要因为现有成员国，尤其法国和荷兰，对此取态谨慎，另外保加利亚、罗马尼亚等新成员在防治贪腐方面的成效不佳。
+目前孩子们已经在顺利从海关出来，战友正送他们宾馆休息，他们休整后的下一站就是我们西班牙农场所在地西班牙巴塞罗那。我们农场团队会在文戈站长的带领下继续全程跟踪服务！
 
-但这次因为俄罗斯入侵乌克兰，令加入欧盟可能成为乌克兰及邻近格鲁吉亚、摩尔多瓦的存亡关键，才迫使欧盟不得不考虑加快步伐，将三国申请提上日程。否则若依照既定规则，三国远未够资格成为欧盟成员。
+这几十个孩子是上天派来的小天使，是在帮我们救赎人类自己，他们是新中国联邦的孩子，是人类的孩子，他们必将随着新中国联邦茁壮成长，在全世界生根发芽，长成参天大树。他们必将把我们新中国联邦的爱，把上天的爱传递到每一个角落。
 
-不过，有报道指，目前27国代表仅就启动审批程序和在本周峯会讨论此事，这两点上达成共识，而在其他方面似乎仍有分歧。
+参考来源：
 
-来源｜[Politico](https://www.politico.eu/article/eu-examine-ukraine-moldova-georgia-membership-bid/)
+[https://gettr.com/post/pyktuo6409](https://gettr.com/post/pyktuo6409)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-24.jpg)
+
+
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-48.png)
+
 
  
 

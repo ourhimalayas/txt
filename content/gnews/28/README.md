@@ -2,39 +2,55 @@
 ---
 
 
-## 文贵先生盖特精要- 2022/03/07
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2125116/)
+## 视频|求婚的乌克兰士兵
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2125289/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-714.png)[盖特直播链接](https://gettr.com/post/pynslhaa9a)
+作者：纽约香草山教育部-蓝之灵（hortênsia)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+你是我的新娘
+戒指和鲜花
+不能缺任何一样
+在战争中
+紧握彼此的手
+没有彷徨
+只有爱的海洋
 
-- 乌克兰仍处于战火中，中国人未参战却招来“恨意”。
-- 俄乌战争最大赢家美国和欧洲，乌克兰人民受苦，中国人招恨意，世界未来没有独裁和皇权的土壤，只有民主一条路。
-- 截至昨天，营救行动已经救出200多个人包含乌克兰孩子、中国人、乌克兰人。中共外交部宣称全部撤出在乌克兰中国人是谎言，很多中国人在地下室并且物资短缺。营救行动不收取一分钱，向世界证明中国人和中共不一样。
-- 中共大使馆洗脑在乌克兰中国同胞，宣传营救行动为“反华势力”操作，导致已登上救援大巴的18个同胞放弃撤离机会。“伪类”冒充被救援者恶意骚扰生命救援热线。
-- 新中国联邦明确为华人发声–反对战争、反对疫苗强制、反对共产主义。
-- 中共不管“锁链女”、不顾在乌克兰同胞，只营救中共所谓的“小舅子、小姨子”。
-- 前线战友继续辛苦开展营救行动，大概超过七十战友在行动。
+奔赴前线即刻
+做我的新娘
+炮火中
+让爱有了翅膀
+让我们飞翔
+
+扛起炮和抢
+赶跑侵略者
+我们一起建设家乡
+你是我的新娘
+鲜花和浪漫
+不能缺任何一样
+爱的光芒
+千万丈
+照亮我心房
+我爱你
+我的新娘
+赶跑侵略者
+让乌克兰荣光
+赶跑侵略者
+我回来
+和你洞房
 
 
 
+审核/编辑/发稿:qiutian（邱甜）
 
-*听写：call me uncle*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-*校对: 樂禧禧*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

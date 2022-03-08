@@ -2,41 +2,26 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2125708/)
+## 两少年打篮球被便衣警暴力拘捕控袭警兼违限聚令
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2125906/)
 
-#### 整理：枳实
-**美工：精灵蓝**
+作者：东京樱花团  阿恩
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-731.png)圖片：雅典娜農場設計組 精靈藍
+![](https://assets.gnews.org/wp-content/uploads/2022/03/两少年打篮球被便衣警暴力拘捕控袭警兼违限聚令.png)
+
+港府局收紧防疫措施，人群聚集被缩小至2人。前日（6日）有市民在黄大仙凤钻苑篮球场打篮球，3名便衣警赶到驱赶，但有一对分别15岁及13岁的兄弟因篮球卡在篮球架上而未有实时离开，遭警员污言秽语辱骂并被推搡，15岁少年不忿被羞辱用胸口顶开警员，迅速被2便衣箍颈束腿暴力按在地上，该少年被控涉嫌袭警，两兄弟被控违反限聚令各被罚款5000元，目前15岁少年已被父亲保释。网上有现场市民拍摄的影片，以及目击市民讲述的经过，与媒体报导的大相径庭。
+
+港府实施剥夺人权的强制防疫政策，限制人与人之间的交流，制造隔膜和矛盾，并且只许州官放火不许百姓点灯，对违反防疫禁令的港区人大代表和高官就息事宁人，对供养他们的衣食父母就恶行恶相暴力执法。社交平台发布的影片，将香港黑警暴力执法展现人前，今日各港媒全力帮涉事的黑警粉饰，全部文章都回避警方的粗暴行为，一致认定被警暴的少年咎由自取，要求严正执法。在中共的邪恶统治下，黑白颠倒以丑为美已是“真理”，那些跟随中共作恶的蠢货在众目睽睽之下向港人施暴，完全不给自己留任何后路，中共洗脑的本事令人叹为观止。据悉，香港的纪律部队，尤其是警队的培训中，经常播放仇视民众的影片，这些影片都是经过剪辑，专挑一些暴力场景，以刺激港警痛恨港人，尤其是恨恶香港的年轻人；长期被洗脑的港警对香港社会抱以扭曲的态度，以为自己是惩恶扬善的英雄，每次出勤都会视港人为洪水猛兽，定要杀之而后快。因此不难理解这些被中共洗脑的港警怀着变态的心思挑衅港人，并仰仗中共的支持对港人痛下杀手。当然，并不是所有警队的人员都被成功洗脑，一些良知尚存的人选择离开警队，也有人用自己的方式敷衍执法行动，减少对市民的伤害。那些为中共马首是瞻的港警需要明白，你们也是中共随时抛弃的棋子，注射新冠疫苗少不了你的份，你们也会一个个倒下，中共将毫不留情地将你们和你们的家人抛入焚化炉中。
+
+资料来源：
+
+[黃大仙小兄弟打籃球違限聚令被票控　兄涉襲警遭3便衣警按地制服](https://www.hk01.com/%E7%AA%81%E7%99%BC/744323/%E9%BB%83%E5%A4%A7%E4%BB%99%E5%B0%8F%E5%85%84%E5%BC%9F%E6%89%93%E7%B1%83%E7%90%83%E9%81%95%E9%99%90%E8%81%9A%E4%BB%A4%E8%A2%AB%E7%A5%A8%E6%8E%A7-%E5%85%84%E6%B6%89%E8%A5%B2%E8%AD%A6%E9%81%AD3%E4%BE%BF%E8%A1%A3%E8%AD%A6%E6%8C%89%E5%9C%B0%E5%88%B6%E6%9C%8D)
 
 
-雅典娜疫情更新（2022年 3月8日）
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/2119732/)
-
-全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-732.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-733.png)
-[2022年3月8日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/%E5%85%A8%E7%90%83%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0%E6%A8%A1%E6%9D%BF-new3%E6%9C%888%E6%97%A5%E6%94%B9%E8%BF%9B.pdf)
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-*发布：陶子*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 /文小白
+发布：东京樱花团老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

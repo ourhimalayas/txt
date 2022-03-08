@@ -2,55 +2,33 @@
 ---
 
 
-## 视频|求婚的乌克兰士兵
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2125289/)
+## 美议员提出《独裁者法案》 调查中共支持俄入侵乌克兰
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2125571/)
 
-作者：纽约香草山教育部-蓝之灵（hortênsia)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-你是我的新娘
-戒指和鲜花
-不能缺任何一样
-在战争中
-紧握彼此的手
-没有彷徨
-只有爱的海洋
+**撰稿：日本东京方舟农场 北极**
 
-奔赴前线即刻
-做我的新娘
-炮火中
-让爱有了翅膀
-让我们飞翔
+据大纪元3月8日报道，美国众议员周一（3月7日）提出《独裁者法案》，调查中共在多大程度上支持俄罗斯入侵乌克兰，及其是否正协助俄罗斯逃避经济制裁。
 
-扛起炮和抢
-赶跑侵略者
-我们一起建设家乡
-你是我的新娘
-鲜花和浪漫
-不能缺任何一样
-爱的光芒
-千万丈
-照亮我心房
-我爱你
-我的新娘
-赶跑侵略者
-让乌克兰荣光
-赶跑侵略者
-我回来
-和你洞房
+这项法案全称为《2022年对中共直接调查、采取行动反对俄罗斯法案》（The Direct Investigations on China, Take Action to Oppose Russia Act of 2022）或依首字母简称《独裁者法案》（DICTATOR Act）。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-6.jpeg)图为2014年5月，习近平与普京在亚信第四次峰会上擦肩而过。（图片来自大纪元）
 
+该法案由加州共和党众议员金映玉（Young Kim）和密歇根州民主党众议员艾丽莎‧斯洛特金（Elissa Slotkin），以及其他11名众议院一同提出。
 
-审核/编辑/发稿:qiutian（邱甜）
+法案要求，国务卿必须在法令生效后90天内向国会提交一份非保密报告，调查中共是否在支持莫斯科，并制定一个明确的战略，防止北京进一步协助莫斯科逃避制裁。同时，该法案向中共发出一个明确的信息：任何协助俄罗斯逃避美国制裁的努力都不会被容忍，并将付出严重的代价。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+在俄罗斯全面入侵乌克兰后，西方国家实施了严厉的制裁，意图使俄罗斯经济孤立，以结束其对乌克兰的军事行动。然而，中共当局却谴责了国际制裁，称这些“非法单边制裁”，将“进一步加剧分裂和对抗”，重申中俄继续进行“正常贸易合作”，在俄罗斯入侵乌克兰后仅一天，北京即取消对俄罗斯小麦进口的限制，缓解了西方制裁的影响。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共外交部长王毅本周一（3月7日）在两会期间的中外记者会上，再次重申中共与俄罗斯“坚如磐石”的关系，并再次拒绝将俄罗斯对乌克兰的军事行动称为入侵，王毅甚至在针对俄罗斯与乌克兰的冲突问题上，暗示“一切都是美国的错”。
+
+参考链接：
+1. [https://www.epochtimes.com/gb/22/3/8/n13629892.htm](https://www.epochtimes.com/gb/22/3/8/n13629892.htm)
+2. [https://www.epochtimes.com/gb/22/3/7/n13629314.htm](https://www.epochtimes.com/gb/22/3/7/n13629314.htm)
+
+素材采编：北极
+编辑： 青城道姑
+发布：文曦
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

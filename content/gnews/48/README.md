@@ -2,31 +2,39 @@
 ---
 
 
-## COVID-19 最新情报｜金球奖影帝“火箭人”倒在舞台上 网民疑与疫苗副作用有关
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2118751/)
+## 俄罗斯或将面临重大债务违约
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2120189/)
 
-**撰文｜疫情关注组 / 发布时间｜07/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/金球獎影帝「火箭人」倒在舞台上-網民疑與疫苗副作用有關.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-英国32岁金球奖影帝泰隆·艾格顿（Taron Egerton）在当地时间5日晚上在出演伦敦大剧院首场舞台剧《公鸡》期间倒在地上，现场工作人员见状迅速拉下布幕遮掩，表演因此停止近40分钟，最后由另一名演员乔尔·哈珀·杰克逊（Joel Harper Jackson）代替出演最后15分钟。
+整理：围剿维尼熊
+编辑：木木木mmmmm
 
-舞台剧制作单位发声明指，所幸观众席中有医务人员上前及时施救，泰隆的身体已没有大碍。
-
-当事人泰隆翌日早上（6日）在个人IG上表示，目前身体已经无恙，并怀疑自己当时昏倒是因为入戏太深，造成身体无法负荷，另外，他透露自己将会继续出演该舞台剧的剩余场次。
-
-不过，网民似有不同见解，有人翻出去年上半年泰隆接种 COVID-19 疫苗的照片，怀疑今次事件与疫苗副作用有关。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0158.jpg)图片来源：FT
 
 
+根据路透社报道，俄罗斯3月6日表示，其主权债券的偿付将取决于西方国家对该国实施的制裁措施。这令外界担忧，该国可能面临重大外债违约。
 
-> 📸 Taron getting vaccinated via Instagram (April 16th, 2021) [pic.twitter.com/dEqqGKVIuH](https://t.co/dEqqGKVIuH)
-> — Taron Egerton (@DailyTaronNews) [April 17, 2021](https://twitter.com/DailyTaronNews/status/1383341355896741888?ref_src=twsrc%5Etfw)
+俄罗斯财政部表示，将按时足额偿付主权债务，但支付可能会受到国际制裁的阻碍。
 
+在普京对乌克兰开战后，俄罗斯6400亿美元储备大部分被西方冻结。
 
+俄财政部表示，从现在开始，俄罗斯将使用卢布向居民支付以外币计价的债券。
 
-因为今年32岁的泰隆正值壮年，加上《公鸡》并无打斗戏分，按理无论如何入戏都不可能会昏倒，最有可能的解释是，泰隆和近段时间其他无故倒在地上的人一样，是疫苗副作用诱发的疾病所致。
+财政部还表示，由于俄政府的限制，俄罗斯或许无法进行债券支付。
 
-来源｜[独立报](https://www.independent.co.uk/arts-entertainment/theatre-dance/news/taron-egerton-faint-london-cock-b2029494.html)
+这可能是俄罗斯在一个多世纪以来首次重大债务违约。即使在苏联解体时，俄罗斯也承担了其外债。
+
+参考链接：[俄罗斯警告主权债持有人 债券偿付要视制裁情况而定](https://cn.reuters.com/article/russia-sovereign-debts-warning-0306-sun-idCNKBS2L401H?il=0)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
