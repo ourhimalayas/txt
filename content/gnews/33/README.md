@@ -2,44 +2,50 @@
 ---
 
 
-## 美国SEC正在调查NFT市场潜在的证券违规行为
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2121731/)
+## SBA批准的COVID救济贷款恐涉数百万件欺诈申领
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2122054/)
 
-**评论：***随着NFT的普及率大幅上升，监管机构对这一资产类别的未来趋势表示担忧，审查也越来越严格。如果监管机构认为包括NFT在内的数字资产属于证券，那么它们将受到与股票相同规则的约束。*
+据《Just The News》记者：Mary Lou Lang，2022年3月5日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-647-e1646676811122.png)图片来源：blogs.mtu.edu
+欺诈者将COVID疫情经济刺激资金用于加密货币、家居装修等。
 
-据《数字货币电讯报》作者：Tom Mitchelhill 2022年3月2日报道：
+“金马蹄”来自于《Just The News》，它每周确定以突出政府浪费纳税人支出的恶劣例子。该奖项以军用飞机的马蹄形马桶座命名，早在1980年代，五角大楼每个马桶座的成本高达640美元。
 
-非同质化代币(NFT)的创建者及市场交易已经成为美国证券交易委员会(SEC)的目标，因其在SEC针对未注册证券的新一轮监管中进行了非法活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-633-e1646672859230.png)图片来源：《数字货币电讯报》
-据彭博社报道，美国证券交易委员会(SEC)——由对加密货币持怀疑态度的主席詹斯勒（Gary Gensler）领导——正在调查非同质化代币(NFT)的创建者及其市场交易的证券违规行为。
+根据司法部的说法，本周的金马蹄奖再次授予小企业管理局，该局向欺诈者发放数百万美元的 COVID-19 救济贷款。而这些欺诈者将所得款项用于支付奢侈品、加密货币和家居装修。
 
-报告中的匿名消息人士称，SEC正在调查“某些NFT是否像传统证券一样被用来筹集资金。”
+美国司法部最近宣布了几项新的起诉书，并对通过薪资保护计划 (PPP) 和经济伤害灾难贷款 (EIDL) 获得欺诈性贷款的个人进行判决。SBA监督 PPP 和 EIDL 贷款计划。
 
-据报道，SEC执法部门的律师在过去几个月已发出传票，要求提供有关特定NFT和其他代币发行的信息。
+美国司法部称，其中一起案件涉及马里兰州 24 岁的双胞胎兄弟 Jerry 和 Jaleel Phillips，他们因 100 万美元的欺诈性 PPP 和 EIDL 贷款而面临联邦指控。
 
-虽然加密借贷产品在过去一年里一直受到严格的监管审查，但是这份报告标志着调查NFT领域的重大举措。
+如果罪名成立，他们将面临最高20年的监禁。
 
-调查表明，SEC对如何使用碎片化NFT（fractional NFTs）尤其感兴趣。那是更有价值的NFT被标记为更小的部分并出售的场合。
+另一起案件涉及三名男子，他们因欺诈性地获得 270 万美元的 PPP 和 EIDL 贷款而于 2 月中旬被判刑。
 
-警告信号已经很明显了，被称为“加密货币之母”的Hester Peirce早在2021年3月就表示，出售碎片化NFT可能违反法律。
+据美国司法部报道，这三名男子与同谋一起申请欺诈性 PPP 和 EIDL 贷款，并提交虚假的税务和银行记录以支持他们的虚假贷款申请。
 
-“你最好小心，你创建的不是一种投资产品，而是一种证券。”
+这些人用他们收到的贷款购买奢侈品。
 
-这次调查，是旨在更坚定地管理加密货币市场的一波打击行动中的最新一波。最近，SEC命令总部位于新泽西州的加密借贷公司BlockFi支付创纪录的1亿美元罚款，原因是其未能将“高收益”借贷产品列为证券。
+上周，一名俄勒冈州男子还因窃取COVID-19资金而被判处61个月的联邦监狱监禁和三年有监督的释放。
 
-虽然比特币（BTC）和以太坊（ETH）因其不被SEC视为证券（至少目前还没有）而得以避免审查，其他数字资产并没有享受同样的暂缓待遇。与旧金山数字支付公司Ripple Labs（Ripple的母公司）的案件不同，自2020年底以来，该公司一直因售出过多的“未注册证券”而卷入法律案件之中。
+上周，一名坦帕妇女因严重的身份盗窃、访问设备欺诈和拥有他人的15个社会安全号码而被起诉。
 
-尽管当前市场行情下跌，NFT销售额还在继续增长——最大的两家NFT交易市场LooksRare和OpenSea在过去30天内共享了107亿美元的交易量。
+据《Just The News》报道，众议院筹款委员会高级成员、众议员凯文·布雷迪（R-Texas）最近表示，民主党人和拜登政府正试图掩盖大量的流行病救济欺诈行为。
 
-文章来源：[https://cointelegraph.com/news/sec-investigating-nft-market-over-potential-securities-violations-reports](https://cointelegraph.com/news/sec-investigating-nft-market-over-potential-securities-violations-reports)
+“目前，我们的民主党同事继续对可能是美国历史上最大的纳税人美元盗窃案视而不见。”布雷迪在一次预估800亿美元失业救济金欺诈的简报中说。
 
-翻译：洛杉矶盘古农场 – maru
+“面对涉及有组织的网络犯罪和国际犯罪团伙的无节制失业欺诈——损失了数十亿美元，民主党人无视召开国会监督听证会的一再呼吁。” 他补充说。
+
+SBA对评论请求没有回应。
+
+文章有删减。
+
+文章来源：[https://justthenews.com/accountability/waste-fraud-and-abuse/sunmillions-fraudulent-sba-approved-covid-relief-loans-paid](https://justthenews.com/accountability/waste-fraud-and-abuse/sunmillions-fraudulent-sba-approved-covid-relief-loans-paid)
+
+翻译：洛杉矶盘古农场 – Spring
 
 校对：洛杉矶盘古农场 – Mike Li
 
-评论：洛杉矶盘古农场 – maru
-
-编辑：洛杉矶盘古农场 – Wendy
+编辑：洛杉矶盘古农场 – WenXiong
 
 发布：洛杉矶盘古农场 – 子萍
 

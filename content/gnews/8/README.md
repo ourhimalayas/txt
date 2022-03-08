@@ -2,103 +2,60 @@
 ---
 
 
-## 当俄罗斯人越来越接近时，CNN的记者在基辅的破坏现场
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2122958/)
+## 中国人不该因亲俄疏美而支持乌克兰战争
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2123022/)
 
-Clarissa Ward (CNN Chief International Correspondent)
-克拉丽莎·沃德（CNN 首席国际记者）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/aaftw-neegd.jpg)
+乌克兰战争已经进行到12天，网络上关于此次战争出现了很多不同的声音。有的人反对俄罗斯入侵乌克兰的行为，而有些人认为俄罗斯是中国的好哥们，美国的“霸权主义”威胁到了俄罗斯，而支持俄罗斯对乌克兰的军事行动。
 
-These people have been under bombardment for seven straight days
-这些人已经连续 7 天受到轰炸
+**亲俄疏美？**
 
-and are only just leaving their homes and they’re leaving them reluctantly
-只是离开他们的家，他们不情愿地离开的
+从2013年，习近平上台来。中国和俄罗斯双边关系持续向好，普京作为习的铁哥们也是参加2022年北京冬奥会的唯一外国元首。自特朗普上来，中美双方贸易摩擦频发，外交关系紧张，美国甚至撤出了其驻中国大使，中国官媒也经常批判美国霸权主义。这也是我们从大陆媒体上看到的表象。
 
-and they’re leaving them with the knowledge that they might not be able to go back to them
-并且他们知道他们可能无法再回到他们的家
+那这是否意味着中国和俄罗斯更亲，和美国更疏远呢？我们通过几组数据分析，考虑到这两年疫情的特殊状况，本表将采用2019及之前的数据。
+***中国 美国 俄罗斯
+移民人数 5,500,000人 200,000人
+前往当地留学人数 474,497名 24,226名
+前往当地访问人数 330万 130万
+双边贸易额 5413.8亿美元 1003.2亿美元
+友好城市 50对友好省州和233对友好城市关系 19对友好省州和49对姊妹城市
+最近30年军事冲突 无 无***
 
-And you can see many of these people are elderly
-而且你可以看到这些人很多都是老人
+**数据来源：**
+2019年中国赴俄罗斯留学人数：https://sputniknews.cn/20200310/1030965742.html
+2019年中国赴美留学人数：https://www.sohu.com/a/457830119\_380485
+2019年在美华人：https://www.itglchina.com/thread-683.html
+2019年在俄罗斯华人：https://www.sohu.com/a/320982540\_574008
+2019年中俄贸易额：http://www.gov.cn/xinwen/2019-12/12/content\_5460690.htm
+2019年中美贸易额：http://us.mofcom.gov.cn/article/zxhz/tjsj/202011/20201103013727.shtml
+中美友好城市：http://www.news.cn/2022-02/28/c\_1128424191.htm
+中俄友好城市：https://baike.baidu.com/item/%E4%B8%AD%E4%BF%84%E5%8F%8B%E5%A5%BD%E5%9F%8E%E5%B8%82/8660289
+2019年中国赴俄旅游人数：http://www.mofcom.gov.cn/article/i/jyjl/e/201912/20191202924011.shtml
+2019年中国赴美旅游人数：https://news.sina.com.cn/o/2019-05-29/doc-ihvhiqay2163472.shtml
 
-You see them, people are so exhausted
-你看他们，人们已经筋疲力尽了
+从双方经贸，赴目的国旅游，移民，友好城市等数据可以看到，中国和地处10000公里以外的美国并不疏远，而与邻居俄罗斯也不是现象中的那么亲近。
 
-they can barely walk, they’re having to climb this sort of Twisted Metal
-他们几乎不能走路，他们不得不爬过这种扭曲的金属
+**中国和俄美两国的历史纠葛**
 
-Many of them, as you can see are elderly
-如你所见，他们中的许多人都是老年人
+1. 同盟关系。中国（中华民国）和俄罗斯（前苏联）、美国是二战的盟友，也都是联合国的常任理事国。
+2. 双方战争。1969年，中国（中华人民共和国）和前苏联因边界冲突爆发了“珍宝岛保卫战”，差点导致中苏全面战争。苏联因此陈兵150万在中苏边境，威胁对中国使用核武器。1950年朝鲜战争爆发，中国入朝同以美国为首的联合国军进行战斗，美国参谋部曾计划对中国进行核打击。
+3. 领土纠纷。中国和美国之间没有任何领土纠纷。而继承了前苏联遗产的俄罗斯还霸占中国近150万平方公里的领土（数据来源：http://www.yinzdian.com/etagid3012b0/）。
+4. 对中援助。二战中，前苏联对华支援，帮助中国抵抗日本帝国主义。在中苏蜜月期，前苏联派遣了大量工程师来到中国，在援建了156个工业项目。同样，在二战中，美国不仅资助中国，还有美国志愿航空兵组成飞虎队对抗日军。2000年，中国加入世贸后，美国将大量轻工业转移到中国，中国经济开始腾飞。
 
-They’re visibly distressed
-他们明显地很哀伤
 
-It’s just an awful, awful scene and these people are the lucky ones
-这只是一个可怕的，可怕的场景，这些人是幸运的
+从国家间的历史恩怨，领土纠纷和外交关系来看，过去的80年中，中国同俄美两国之间既有战争也有过同盟关系。俄罗斯和美国对于中国来说，不存在孰亲孰疏！国家之间的关系不是兄弟关系，不是邻里关系，不是同学关系，而是一个很复杂的综合考量。所以，当俄罗斯和美国在乌克兰问题上有分歧的时候，中共政府没有理由支持任何一方。抛开政治因素来说，所有热爱和平的中俄美三国民众都应该反对战争，阻止战争。而不是叫嚣战争，为某个政治家喝彩。
 
-just gonna help her carry this bag a second, excuse me
-只是想帮她提一下这个包，借过
+**不应该用个人喜好支持一场入侵行为**
 
-John. Well, we try to …
-约翰，好吧，我们试着……
+通过社交媒体传出的乌克兰战争视频，我们看到平民和双方士兵是最大受害者，一个个鲜活的生命瞬间凋零，大量民众流离失所。对于过去200年深受劫难的中国人民来说，这些遭遇都能感同身受。以国家之间的关系来评断战争行为的想法是狭隘的，而支持俄罗斯普京政府入侵乌克兰的行为更是要不得。这种“火上浇油”会引起中国和乌克兰两国人民之间的友好关系。要知道，乌克兰和中国历史上没有发生过任何战争，也没有任何领土争端问题，乌克兰的士兵从来没有侵犯到中国领土。中国网络上支持普京对乌发动战争的言论是极不负责任的，这些人不能代表全体中国人民！
 
-So people are obviously incredibly affected by the situation
-所以人们显然受到这种情况的难以置信的影响
+任何人都可以自由表达对人和事物的喜爱和憎恶，但是不应该用个人喜好来支持一场入侵行为！中国人和俄罗斯人，美国人、乌克兰人一样，同样热爱和平和追求平等自由！
 
-They’re frightened，they’re exhausted, they’re on edge
-他们是害怕的，他们是筋疲力尽的，他们是处于崩溃的边缘
+***文章观点仅代表作者个人，与Gnews平台无关***
 
-They’ve got their pets
-他们带上了他们的宠物
-
-They’ve grabbed whatever they can
-他们带上了他们能抓着的一切
-
-and you’re right, John, you know
-你是对的，约翰，你知道
-
-you asked me before about them going to the city
-你之前问过我他们去城市的事
-
-A lot of these people have no idea where they’re going to go
-很多人不知道他们要去哪里
-
-Once they cross this bridge
-一旦他们跨过这座桥
-
-They know that they’re in relative safety once they do it
-他们知道一旦他们这样做了，他们就处于相对安全的状态
-
-but they don’t have any idea where they’re going to go
-但他们不知道他们要去哪里
-
-They don’t have any idea where they’re going to sleep tonight
-他们不知道今晚要去哪里睡觉
-
-They don’t have any idea when they can get all their belongings from back home
-他们不知道什么时候可以回家里取回自己的东西
-
-We’re still hearing the steady thud of artillery in the distance and the fear is John
-我们仍然听到远处持续不断的炮击声，恐惧是，约翰
-
-It’s just going to keep getting closer
-它只会越来越近
-
-原视频链接[https://twitter.com/cnn/status/1500076163691171840?s=24](https://twitter.com/cnn/status/1500076163691171840?s=24)
-
-Date:03/06/2022
-原视频标题:CNN at site of destruction in Kyiv as Russians close in
-当俄罗斯人越来越接近时，CNN的记者在基辅的破坏现场
-原视频日期：2022/03/05
-原视频链接https://twitter.com/cnn/status/1500076163691171840?s=24
-任务编号：KE441（3928）
-视频时间段 : 0:00-2:11
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
+作者：洛杉矶盘古农场 — 文如
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
