@@ -2,46 +2,81 @@
 ---
 
 
-## 超过66%的以色列人正承受疫苗副作用的痛苦，其中很多人的病情严重
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2122934/)
+## 乌克兰是如何花费其价值 5000 万美元的加密货币的？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2123045/)
 
-#### 翻译                          意大利达芬奇农场                     小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-07-alle-19.20.51.png)图片来源：eventiavversinews.it
-以色列正在经历一场新的大屠杀， 这一次是托尼•福奇、唐纳德•特朗普、乔•拜登、辉瑞公司的阿尔伯特•布尔拉和所有其他全球主义者所实行的,强制人们注射新冠疫苗。
+译评：香草山商业部 — 文锤
 
-根据新的报告， 绝大多数“完全接种”的以色列人现在都因注射而遭受不良反应， 其中很多反应很严重。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-以色列卫生部发布了最近一项调查的数据，该数据显示，以色列超过66%的人已经完全接种疫苗，然后是注射了加强针，他们有疫苗的副作用，这使他们的正常生活更加困难。
 
-大约2049名公民在接受第三剂疫苗后需要三到四个星期才能康复。他们中的大多数人透露他们感觉很糟糕， 大约一半的人说现在进行正常的日常活动真的很困难。
 
-该调查于2021年9月和2021年10月通过电话进行。 只有18岁以上且近期是在接种前两剂疫苗后的第21天至30天内接种了第三剂新冠疫苗。该人群报告的不良事件从轻微到严重不等。例如，许多女性说他们月经不调， 有些甚至不得不住院。显然， 受疫苗影响最大的受访者是妇女和年轻人。
 
-“ 女性最常见的副作用是月经不调，”LifeSiteNews报道。“ 报道最多的症状是月经延迟（37.8%）、月经出血增多（31.1%）、月经提前（28.9%）、出血持续时间延长（26.7%）和月经剧烈疼痛（20%）。”
 
-新冠疫苗造成的年轻人死亡人数是没有接种疫苗的死亡人数的260倍。
+乌克兰政府在俄罗斯入侵之初曾呼吁捐款。社区做出了回应，发送了超过 5000 万美元的加密货币。乌克兰是怎么花掉这笔钱的？
 
-正如去年报道的那样， 以色列实施了世界上最激进的强制疫苗接种的国家之一。国家颁布了“绿色通行证”， 进入剧院、餐厅和其他公共场所要进行验证。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-blob.jpeg)图片来源
 
-以色列人被告知他们应该一直注射加强针来“保护”他们免受新冠感染。现在我们正看到这一政策带来的后果。
+**乌克兰花费自冲突开始以来收到的加密货币**
 
-“以色列是世界上最早发起全国疫苗加强针活动的国家之一；始于去年8月，” LifeSiteNews补充道。
+数字化转型部副部长 Alex Bornyakov 在 Twitter 上详细介绍了乌克兰如何使用加密货币捐赠。同时他估计，本周收到的金额将翻一番 ：
 
-“但不管怎样，所谓的 ‘ 革命性感染 ’ 继续发生在那些打了加强针的人身上。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-45.png)
 
-在以色列展开的加强针的活动中， 政府报告说， 前14名接种新冠疫苗的人在接种后立即检测出新冠病毒“阳性”。
+推特链接：https://twitter.com/abornyakov/status/1499742556225216512?s=21
 
-从那时起， 以色列打了加强针的严重伤亡人数剧增。
+截至 3 月 3 日，乌克兰已收到价值 5300 万美元的加密货币，其用途如下：
 
-另一项研究最近显示，接种辉瑞mRNA疫苗老人的死亡率比没有接种疫苗时的死亡率高40倍。
+- 69%（超过 3600 万美元）用于支持军队
+- 19%（超过 1000 万美元）用于人道主义援助
+- 12%（超过 600 万美元）用于一般援助
 
-同一数据集显示， 年轻人的死亡率更高，比不接种新冠疫苗的年轻人高260倍。
 
-“ 75年后真相比小说更奇怪 ” 有人在回应一项研究中的一篇文章时写道，他指的是第二次世界大战的大屠杀。“在这个星球上的所有国家中，我从未想过以色列会强迫其公民接受基因操作——委婉地称为’疫苗’，要么被当作麻风病人对待。”
+不出所料，“军队”类别获得了最多的加密货币，因为乌克兰人正在保护自己免受俄罗斯的地面和空中入侵。
 
-原文链接： [https://www.eventiavversinews.it/israele-oltre-il-66-sta-ora-soffrendo-di-reazioni-avverse-al-vaccino-molte-delle-quali-gravi/](https://www.eventiavversinews.it/israele-oltre-il-66-sta-ora-soffrendo-di-reazioni-avverse-al-vaccino-molte-delle-quali-gravi/)
+**接受加密货币的设备供应商**
 
-编辑、上传： Xiao  baige
+当乌克兰刚开始要求捐赠加密货币时，一些人担心其“兑现”并将这些数字货币变成法定货币的能力。或者干脆直接向商家和服务付款。
+
+但这些担忧似乎是没有根据的。根据 Alex Bornyakov 的说法，40% 的供应商直接接受来自乌克兰的加密货币付款。对于其余的，加密资产被转换成欧元和美元。
+
+数字化转型部副部长还证实，大多数加密货币捐赠来自希望支持乌克兰的个人，而不是公司。对于武器，设备供应商已使用加密货币来购买盔甲、绷带、夜视装备等。
+
+**Cryptos，非政治性支付工具**
+
+一些人担心乌克兰会接管加密货币，担心生态系统会被政治利用。因此，人们会记得[比特币（BTC）](https://cryptoast-fr.translate.goog/bitcoin/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)及其他数字加密货币本质上是非政治性的——正是这一方面使得其即使在处于战争状态的国家内也能进行价值交换。
+
+就像可以为持有者发送美元或欧元一样，加密货币因此只是一种工具。除了它不像卢布，它不能在银行层面被冻结……
+
+**评论：**乌俄战争期间40%的供应商（我猜想大部分是军火商）接受加密货币付款，那么当未来喜币和比特币可以互换的时候，这些军火商也可以接受喜币。推广Hpay 的战友们可以去攻城拔寨喽！
+
+**原文作者：[Marine Debelloir](https://cryptoast-fr.translate.goog/author/marine/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)**
+**原文链接：**
+**[Comment l’Ukraine a-t-elle dépensé ses 50 millions de dollars de crithomancies ? (cryptoast.fr)](https://cryptoast.fr/ukraine-depense-50-millions-dollars-cryptomonnaies/)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

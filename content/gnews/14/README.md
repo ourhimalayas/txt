@@ -2,39 +2,108 @@
 ---
 
 
-## 新中国联邦乌克兰救援卓有成效，中共令已登上救援大巴中国同胞下车
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2122775/)
+## 当俄罗斯人越来越接近时，CNN的记者在基辅的破坏现场
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2122958/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+Clarissa Ward (CNN Chief International Correspondent)
+克拉丽莎·沃德（CNN 首席国际记者）
 
-3月7日，郭文贵先生于Gettr视频中透露新中国联邦由法治基金和法治社会为主导的乌克兰救援行动立竿见影、卓有成效，并表示，为已经登上救援大巴车又因中共的欺骗阻挠而下车的中国同胞悲哀。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/sZYOmSUA.jpg)图片来源直播截图
+These people have been under bombardment for seven straight days
+这些人已经连续 7 天受到轰炸
 
+and are only just leaving their homes and they’re leaving them reluctantly
+只是离开他们的家，他们不情愿地离开的
 
-在新中国联邦全球农场的共同努力和协调下，前线战友离开自己温暖舒适的生活环境在波兰冒着生命危险开展救援行动，安排的几辆救援大巴到乌克兰战场中心，已成功救回100多位中国同胞（包括留学生等）以及200多位乌克兰人和国际人士。中共国务委员兼外交部长王毅在3月7日的两会记者会上说，“中国在乌克兰各个邻国的使馆也昼夜运转，全力安置转运我国同胞。国内各部门、各地方密切协调，迅速派出多架包机，从欧洲陆续接回离乌公民……”然而，具体实际情况是大量中国人仍然滞留在乌克兰，尤为紧急的是几百上千的躲在地下室的中国留学生已严重缺乏生活物资甚至已经没有了水源。即便至此，这些留学生们还在被灌输要听中国共产党的话。大量躲在乌克兰农村地下室的中国非法劳工，因为语言不通（大多只会说河南话、山东话、福建话）也只能听天由命。面临如此紧迫的救援形势，现在仍有中共豢养的伪类冒充需要救援者给紧急救援中心打骚扰电话，拖延救援进程、冲击救援人员的心理。
+and they’re leaving them with the knowledge that they might not be able to go back to them
+并且他们知道他们可能无法再回到他们的家
 
-令人可怜、可恨、可悲的一幕发生在昨天，18位需要救援的已经登上新中国联邦救援大巴的中国同胞在收到中共驻乌克兰大使馆给他们发的信息后，毅然决然地下了救命大巴。在大使馆的信息里把无偿、无条件救援的新中国联邦宣扬成反华、反党组织，会诈骗他们的钱财，甚至绑架他们。可怜、可恨、可悲，如果这些中国同胞将来因为错过这次救援而死在乌克兰的战场上，中共将成为谋杀他们的帮凶。
+And you can see many of these people are elderly
+而且你可以看到这些人很多都是老人
 
-已然获救却选择下车的中国同胞是悲哀的，相信原因也是多方面的：
+You see them, people are so exhausted
+你看他们，人们已经筋疲力尽了
 
-1.彰显中国人民一直被中共宣传机器愚弄，因长期受到内宣、外宣假信息的浸泡，从根本上缺乏自我对事物的认知和真相的判断；
+they can barely walk, they’re having to climb this sort of Twisted Metal
+他们几乎不能走路，他们不得不爬过这种扭曲的金属
 
-2.中共的疲民政策发挥了功效，让民众为了生计毫无时间思考，只是一味懒惰地盲从官方的消息，即使这时的信息是要他们自我灭亡；
+Many of them, as you can see are elderly
+如你所见，他们中的许多人都是老年人
 
-3.中共治下假、骗、偷盛行，让人与人之间缺乏基本的信任，人与人之间建立了无形的防备心墙。
+They’re visibly distressed
+他们明显地很哀伤
 
-与选择下车的中国同胞不同的是，中共早已安排自己的情报人员与官员亲戚从乌克兰撤离。
+It’s just an awful, awful scene and these people are the lucky ones
+这只是一个可怕的，可怕的场景，这些人是幸运的
 
-**相关****Gnews****链接：**
+just gonna help her carry this bag a second, excuse me
+只是想帮她提一下这个包，借过
 
+John. Well, we try to …
+约翰，好吧，我们试着……
 
+So people are obviously incredibly affected by the situation
+所以人们显然受到这种情况的难以置信的影响
 
+They’re frightened，they’re exhausted, they’re on edge
+他们是害怕的，他们是筋疲力尽的，他们是处于崩溃的边缘
 
+They’ve got their pets
+他们带上了他们的宠物
 
-> [中共双标救援政策放任中国同胞自灭，还试图阻止新中国联邦实施救援](https://gnews.org/zh-hans/2083197/)
+They’ve grabbed whatever they can
+他们带上了他们能抓着的一切
 
+and you’re right, John, you know
+你是对的，约翰，你知道
 
-中共双标救援政策放任中国同胞自灭，还试图阻止新中国联邦实施救援
+you asked me before about them going to the city
+你之前问过我他们去城市的事
+
+A lot of these people have no idea where they’re going to go
+很多人不知道他们要去哪里
+
+Once they cross this bridge
+一旦他们跨过这座桥
+
+They know that they’re in relative safety once they do it
+他们知道一旦他们这样做了，他们就处于相对安全的状态
+
+but they don’t have any idea where they’re going to go
+但他们不知道他们要去哪里
+
+They don’t have any idea where they’re going to sleep tonight
+他们不知道今晚要去哪里睡觉
+
+They don’t have any idea when they can get all their belongings from back home
+他们不知道什么时候可以回家里取回自己的东西
+
+We’re still hearing the steady thud of artillery in the distance and the fear is John
+我们仍然听到远处持续不断的炮击声，恐惧是，约翰
+
+It’s just going to keep getting closer
+它只会越来越近
+
+原视频链接[https://twitter.com/cnn/status/1500076163691171840?s=24](https://twitter.com/cnn/status/1500076163691171840?s=24)
+
+Date:03/06/2022
+原视频标题:CNN at site of destruction in Kyiv as Russians close in
+当俄罗斯人越来越接近时，CNN的记者在基辅的破坏现场
+原视频日期：2022/03/05
+原视频链接https://twitter.com/cnn/status/1500076163691171840?s=24
+任务编号：KE441（3928）
+视频时间段 : 0:00-2:11
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

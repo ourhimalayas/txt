@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/8/2022 1:12 AM (UTC)`
+
+3月7号：非常感谢文峰的儿子制作的，关于在乌克兰拯救儿童后的视频，太棒了。
+![img](https://media.gettr.com/group36/getter/2022/03/08/01/272b42fa-4e89-c557-6863-bc308a01840a/out.jpg)
+
+---
+
 `@miles 3/8/2022 1:09 AM (UTC)`
 
 3/7/2022 Miles Guo’s GETTR: Although the Chinese people aren’t participating in the Russia-Ukraine war, they are hated the most in the world. Thanks to our fellow fighters who have risked their lives to save nearly 100 children and more than 200 Ukrainian and international friends with their buses in Ukraine. The Chinese people in Ukraine are in a tough situation, but they are still being brainwashed by the CCP. There were 18 Chinese who even believed the lies of the CCP embassy and thus got off our bus.<br/><br/>3/7/2022 文贵盖特：中国人虽未参加俄乌之战却在全世界最遭人恨；感谢战友们冒生命危险用巴士在乌克兰救了近百个孩子、200多位乌克兰和国际人士；在乌克兰的中国人处境艰难，却仍被洗脑，竟有18人听信中共大使馆的谎话下了我们的巴士<br/>
@@ -148,14 +155,6 @@ FDA released Pfizer COVID vaccines data with more than 1,200 side effects. Pfize
 
 历史上中共使馆不管人民死活，新中国联邦法治基金前线人道主义救援行动正在进行！
 ![img](https://media.gettr.com/group14/origin/2022/03/07/13/847edc0e-5cfc-3d51-0000-9b427ce01bcc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/7/2022 2:31 PM (UTC)`
-
-啊啊啊啊啊啊
-> `@pangushixun 3/7/2022 12:05 PM (UTC)`<br/>逆行而上 千里救援 96名乌克兰儿童。巴塞罗那本地一家儿童慈善机构工作的Teresa女士得知新中国联邦组织国际救援活动后，询问战友能否对乌克兰境内一家儿童慈善机构内的几十名儿童进行营救。经过努力最终新中国联邦成功营救96名儿童，及相关陪同老师共计113人。儿童成功获救后，Teresa女士，包括乌克兰本地人十分感动，并称赞我们新中国联邦人为“天使”。<br/>Against all odds, thousands of miles were spent rescuing 96 Ukrainian children. Teresa, who works for a local children's charity in Barcelona, asked NFSC if they could rescue dozens of children from a children's charity in Ukraine after learning about the international rescue activities organized by NFSC. After the rescue, NFSC was able to rescue 96 children and 113 accompanying teachers. After the children were rescued, Ms. Teresa, including the Ukrainian locals, was very touched and praised our NFSC as "angels".<br/>#盘古时讯 <br/>#新中国联邦 <br/>#救援 #人道主义
-![img](https://media.gettr.com/group38/getter/2022/03/07/12/e370761d-6b65-7513-eec0-bb3765788bed/out.jpg)
 
 ---
 
