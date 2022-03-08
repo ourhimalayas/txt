@@ -2,26 +2,27 @@
 ---
 
 
-## 联邦办公室担心俄罗斯对德国发动网络攻击
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2126348/)
+## 特鲁多抵达欧洲商讨乌克兰局势
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2126445/)
 
-**联邦信息安全办公室（BSI）有明显迹象表明，将有针对德国 “高端目标”的攻击。**
+采编: 加拿大温哥华杨帆农场 – 苦尽甜来 (文来）
 
-作者：AFP/ 原文发布于2022年3月8日11:28（MEZ）
+编译撰稿：加拿大温哥华杨帆农场 – 苦尽甜来 (文来）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-739.png)图片来源：多伦多太阳报[Toronto Sun](https://torontosun.com/news/national/trudeau-departs-for-europe-to-meet-with-allies-on-ukraine-response)
+据【多伦多太阳报】3月6日报道，加拿大总理特鲁多当天已抵达欧洲，将与欧盟各国就俄罗斯入侵乌克兰的战争局势进行商讨。
 
-翻译：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-7.jpg)图片：黑客在准备进行网络攻击（象征性图片）。/ITAR-TASS
+据悉，特鲁多将于翌日在伦敦与英国和荷兰的首相会面。并在未来数天内前往拉脱维亚、柏林和华沙等地会见其他国家领导人。此后，还将会晤北约秘书长及加拿大武装部队成员等。
 
-据报道，与俄罗斯在乌克兰的侵略战争有关，很快就会有黑客攻击德国的目标。据《明镜周刊》周一晚间报道，德国联邦信息安全办公室（BSI）从一个“值得信赖的合作伙伴”处获得的信息表明，针对“高端目标”的攻击可能很快就要发生。根据该报告，这些信息可能是通过德国网络防御中心从国外传到BSI的。
+此外，由于俄军持续无差别的攻击，从乌克兰港口城市撤离平民的计划再次失败。目前，战争已迫使超过 100万难民逃离了乌克兰。
 
-自危机开始以来，德国以输送武器和制裁俄罗斯的方式支持乌克兰。目前安全界认为，对德国的最大威胁是针对能源供应商或军事设施的网络攻击。
+评论指出，特鲁多花费大量加拿大国民的纳税资金去欧洲进行毫无实际意义和成效的会晤，无非想借此摆脱其在国内和国际政坛中早已崩塌的人设，并企图为其即将结束的政治生涯续命。
 
-根据该报告，联邦宪法保卫局也在一份文件中警告风险增加。该周刊报道称，俄罗斯特勤局不仅有能力破坏关键基础设施，而且也有能力对政治运作进行“重大和持续”的破坏。
+校对编辑：硫酸羟氯喹64
 
-相关链接：[https://www.berliner-zeitung.de/news/bundesamt-befuerchtet-russische-cyberangriffe-auf-deutschland-li.215771](https://www.berliner-zeitung.de/news/bundesamt-befuerchtet-russische-cyberangriffe-auf-deutschland-li.215771)
+发稿：青青
 
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+原文链接： [Trudeau arrives in Europe to meet with allies on Ukraine response Toronto Sun](https://torontosun.com/news/national/trudeau-departs-for-europe-to-meet-with-allies-on-ukraine-response)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

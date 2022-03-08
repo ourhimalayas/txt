@@ -2,35 +2,28 @@
 ---
 
 
-## 俄罗斯立新法严惩描述“战争”、“入侵”的报道…切断外国媒体网站（下）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2126669/)
+## 俄乌开战后 中共终于公开谈战争
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2126773/)
 
-**翻译：宫米叶**
+撰稿：东京樱花团/Garrettw
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip俄罗斯立新法严惩描述战争、入侵的报道…切断外国媒体网站（下）.png)图片来源：yomiuri.co.jp
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄乌开战后-中共终于公开谈战争1.png)[图片来源](https://baijiahao.baidu.com/s?id=1726625159781540649&amp;wfr=spider&amp;for=pc)
 
-停止采访活动
+2022年3月7日中共外交部长王毅在回应乌克兰局势问题时表示，俄乌双方已经谈了两轮，希望即将开启的第三轮谈判能取得新的进展。中共认为，形势越紧，和谈越不能停止；分歧越大，越需要坐下来谈判。中共愿继续为劝和促谈发挥建设性作用，也愿意在需要的时候同国际社会一道开展必要的斡旋。
 
-俄罗斯开始直接压迫外国媒体。俄通信监管局4日切断了英国BBC、美国海外广播美国之音、德国公共广播德国之声等欧美媒体网站，理由是传播了关于入侵乌克兰的 “虚假信息”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄乌开战后-中共终于公开谈战争2.png)[图片来源](https://www.scmp.com/news/china/article/3169010/un-votes-condemn-russian-invasion-ukraine-china-again-stays-silent)
 
-英国BBC 4日宣布，新法“恐会将独立采访活动视为犯罪”，以确保记者安全为由，暂时停止在俄罗斯境内的采访活动。据俄贝德莫斯奇报（vedomosti）5日报道，美国的CNN、CBS和加拿大公共广播CBC等也宣布暂停在俄罗斯的活动。
+在2022年2月25日联合国的举办的谴责俄罗斯入侵乌克兰的会议投票上，中共及其他少数国家投了弃权票。此次中共“两会”期间突然宣布了站在和平谈判一边，含糊其辞的表达，虚张声势的态度，不知道是受制于各国政府的压力，还是中共的缓兵之计为“占台”让出伏笔，我们拭目以待，继续关注。
 
-美国IT“脱离”
+消息来源:
 
-不仅媒体，普京政权还加强了社交网站的监管，原因是反战的舆论以及抗议示威的号召通过社交网站扩散。俄通信监管局4日宣布，将切断对美国社交网站巨头脸书和推特的连接。
+[王毅谈俄乌局势：中方愿在需要的时候开展必要斡旋](https://baijiahao.baidu.com/s?id=1726625159781540649&amp;wfr=spider&amp;for=pc)
 
-由于这些举动，美国IT巨头正在加速远离俄罗斯。美国谷歌4日表示，暂停了搜索和视频发布网站“youtube”在俄罗斯的广告服务。谷歌发言人解释说，这是因应“特殊情况”的措施。美国微软4日也宣布，将停止在俄罗斯销售新产品和服务。有报道称，美国苹果也已停止在俄罗斯销售全部产品。
+[UN votes to condemn Russian invasion of Ukraine, but China again stays silent](https://www.scmp.com/news/china/article/3169010/un-votes-condemn-russian-invasion-ukraine-china-again-stays-silent)
 
-**新闻来源**：[yomiuri.co.jp][ロシアで新法成立、「戦争」「侵攻」と表現した報道に厳罰…外国メディアのサイト遮断](https://www.yomiuri.co.jp/world/20220306-OYT1T50033/)
-
-* * *
-
-***审核：BryanW
-校对：Orpheus
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-4.jpeg)
-
+*编辑：东京樱花团/ 喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

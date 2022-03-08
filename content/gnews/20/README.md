@@ -2,13 +2,22 @@
 ---
 
 
-## “法治基金捐助者是国家的希望，是乌克兰战区人民的天使”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2126292/)
+## 樱花FM|日本政府宣布对白俄罗斯总统实施制裁
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2126430/)
 
-【乌克兰救援】03/07/2022 由法治基金和NFSC从乌克兰救出的大约100名儿童以及他们的老师，在波兰克拉科夫的一家酒店休息后出发，前往西班牙巴塞罗那，整个行程由法治基金和NFSC提供免费食宿和免费大巴。
+音频：东京樱花团/战友520
+![](https://lh3.googleusercontent.com/tXoiQo736e5Ldk2YquwhvMHZ7gec_tryHZi-jXsKkkW5Aa8cGlAQ4EShbNUD9PVISLLQNbT5c6ALGWidzFPOOGT3_QoGSM3QPILt0-VpexxlBso3uCwpTD5md11wNYqBjt1fpuEg)
+3月3日，日本政府宣布，因白俄罗斯总统卢卡申科支持俄罗斯对乌克兰的军事入侵，对他实施制裁，冻结其资产。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+被制裁者包括总统在内还有七名国家高级官员和白俄罗斯国家军事工业委员会在内的两个组织。
 
+此外，对俄罗斯普京身边的对外情报局局长纳雷什金在内的18名个人和该国的四家主要银行也被列入资产冻结对象。
+
+文字版原文：[日本政府宣布对白俄罗斯总统实施制裁](https://gnews.org/zh-hans/2098963/)
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
