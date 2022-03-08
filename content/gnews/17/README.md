@@ -2,10 +2,10 @@
 ---
 
 
-## 拜登特使团在俄罗斯入侵乌克兰之后访台
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2122722/)
+## 美国前国务卿蓬佩奥抵达台湾
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2122737/)
 
-03/01/2022 台湾媒体：拜登特使团在俄罗斯入侵乌克兰后访台，特使团由美国前参谋长联席会议主席迈克尔·马伦率领，还包括四名前国防和安全官员
+03/02/2022 迈克·蓬佩奥：很高兴来到台湾。我一直都很期待能访问台湾人民。
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 

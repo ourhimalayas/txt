@@ -2,26 +2,32 @@
 ---
 
 
-## 国会议员向拜登施压，呼吁向乌克兰运送将欧洲战机
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2122535/)
+## 新中国联邦从战火中救出孩子们
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2122544/)
 
-翻译：灭共文明
+意大利罗马达芬奇农场：文科   Shuizhuyu
 
-编辑与校对：灭共文明
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/77A36A0A-4509-48FB-846B-253122BB3D63.jpg)
 
-《路透社》华盛顿3月7日报道，**周一，美国国会议员敦促总统拜登，在乌克兰总统泽伦斯基周六提出请求后，推动北约(NATO)和东欧国家立即向乌克兰移交战斗机。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/美国会.jpg)美国国会（图片来源：网络）
-报道称，美国外交关系委员会(Foreign Relations Committee)主席、**参议员鲍勃·梅嫩德斯**(Bob Menendez)**致信国务卿安东尼·布林肯**(Antony Blinken)**和国防部长劳埃德·奥斯汀(**Lloyd Austin)，**呼吁华盛顿承诺用升级的西方飞机替换所有捐赠的飞机，包括通过优惠融资和贷款以及补贴定价等方式。**
 
-**周六，泽伦斯基**在与美国国会议员的视频通话中表示，**呼吁欧洲国家提供俄罗斯制造的飞机，以帮助乌克兰对抗俄罗斯入侵者。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/im-497126-e1646684867638.jpg)德国向乌克兰运送更多导弹（图片来源：华尔街日报）
-据报道，**参议员梅嫩德斯在信中说，“我将支持参议院采取措施，对向乌克兰提供飞机的盟友进行补偿。”**其他提出类似要求的议员包括民主党众议员蒂姆·瑞安(Tim Ryan)和马西·卡普图尔(Marcy Kaptur)。
+新中国联邦/法治基金从乌克兰东部战区救出96名7-17岁的“孤儿”，加老师共计110 人，2辆巴士！这批“孤儿”都是乌克兰前线抱着必死的决心上战场的老百姓的小孩，委托我们送出战场，新中国联邦联系了西班牙的慈善机构安排孩子们的今后生活，新中国联邦将一路再从波兰护送到西班牙目的地！
 
-周日，众议院外交事务委员会(House Foreign Affairs Committee)共**和党首席代表迈克尔·麦考尔**(Michael McCaul)**在访问波兰边境时表示，他也鼓励拜登政府为飞机转运提供便利。**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/525A57EF-8E24-4453-AC07-550A2942827F.jpg)
 
-新闻来源链接：
 
-[U.S. lawmakers put pressure on Biden to help with transfer of European aircraft to Ukraine | Reuters](https://www.reuters.com/world/us/us-lawmakers-put-pressure-biden-help-with-transfer-european-aircraft-ukraine-2022-03-07/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6BE678CF-9623-42FB-B368-E06B972686D6.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6DA535AA-7E64-4CE8-8287-C91646A53E8B.jpg)
+
+
+新中国联邦已经有如此资源和实力， 加上前线战友的英勇， 做出了像美国和西方强国都没有做到的事情， 这是何等的珍贵和高尚。 这些孩子们的家长们都是舍身参战的勇士， 等他们长大了， 他们一定也像他们的父辈一样，遇到困难勇往直前。 新中国联邦功德无量。
+
+新中国联邦的这次救援， 不分种族， 不分政治立场， 只想救人， 救人。
+
+照片提供： 文科
+
+发表： Shuizhuyu
 
  
 
