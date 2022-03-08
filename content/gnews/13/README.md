@@ -2,52 +2,37 @@
 ---
 
 
-## Tik Tok禁止俄罗斯影音上传
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2124678/)
+## 乌克兰提出紧急诉讼，俄罗斯拒绝出庭
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2124791/)
 
-作者：纽约香草山教育部 Naughty(文行)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
+整理：围剿维尼熊
+编辑：朝花夕拾
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
-
-
-Tik Tok周日宣布，暂停发布所有来自俄罗斯的影音内容，以保护该公司员工免受俄罗斯有关假新闻法律的影响。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-14.jpg)图源网络
-
-目前数以百万计的人已经转向 Tik Tok，以获取乌克兰战斗的实时更新和视频剪辑。该公司不得不处理大量视频，其中包括一些未经证实的展示实地行动情况的视频，这导致人们担心Tik Tok 正在传播有关入侵的错误信息。
-
-根据《纽约时报》的评论，带有#Ukrainewar 标签的视频在Tik Tok上的浏览量已接近5亿，其中一些最受欢迎的视频获得了近100万个赞。Tik Tok上周表示，它已投入更多资源来监控有关战争的误导性内容。
-
-在俄罗斯持续入侵乌克兰之际，俄国总统普京3月4日签署一项法令，称将对发布俄军假新闻者处以15年的监禁。
-
-该法很快遭到批评人士强烈反对，美国政府也在昨天谴责这项法令，但俄罗斯总统府克里姆林宫在周末为其辩护，称该国正面临“信息战”，需要予以反击。
-
-俄罗斯记者和审查专家警告说，关闭来自俄罗斯的直播和新上传是很棘手的，因为它可能会阻止普通俄罗斯人传播独立信息。如果技术平台在俄罗斯被封锁，将会产生负面影响。
-
-参考来源：
-
-[Tik Tok Suspends Livestreaming and New Uploads From Russia](https://www.nytimes.com/2022/03/06/technology/tiktok-russia-ukraine.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-49.png)图片来源：雅典娜设计组
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-50.png)
+根据德国之声中文网3月7日报道，海牙国际法庭有关俄乌战争的庭审已经开始，但俄罗斯方面拒绝出庭。主审女法官多诺霍（Joan Donoghue ）表示，俄罗斯驻荷兰大使舒尔金（ Alexander Schulgin）已通报法庭，俄罗斯政府无意参与审理活动。
 
+代表乌克兰方面出席庭审的库里尼耶维奇（ Anton Korynewytsch）对俄罗斯提出强烈谴责。他说，俄罗斯方面的缺席说明了一切。他们拒绝到庭，因为他们正在对乌克兰进行野蛮的侵略。
+
+这是俄罗斯首次因违反1948年签署的联合国《防止及惩治灭绝种族罪公约》而接受海牙国际法庭的审理。
+
+基辅政府指控俄罗斯正在乌克兰策划种族屠杀。
+
+一般海牙国际法庭数天内即可做出裁决。不过，阿姆斯特丹大学军事法教授基尔（ Terry Gill）表示，即便乌克兰诉讼成功，也不会发生任何变化。因为国际法庭并没有强迫败诉一方执行法庭裁决的手段。
+
+参考链接：[https://m.dw.com/zh/海牙国际法庭开庭乌克兰提告-俄罗斯缺席/a-61043983](https://m.dw.com/zh/海牙国际法庭开庭乌克兰提告-俄罗斯缺席/a-61043983)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

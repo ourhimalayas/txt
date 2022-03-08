@@ -2,37 +2,26 @@
 ---
 
 
-## 乌克兰提出紧急诉讼，俄罗斯拒绝出庭
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2124791/)
+## 日本宣布禁止炼油设备出口俄罗斯等新制裁
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2124900/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 撰稿：JIHO 
 
-整理：围剿维尼熊
-编辑：朝花夕拾
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-2.png)图片来源：metro
+根据路透社东京消息，日本财政部周二宣布，日本在俄入侵乌克兰后冻结了另外 32 名俄罗斯和白俄罗斯官员及寡头的资产。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-49.png)图片来源：雅典娜设计组
+新增加的制裁针对20名俄罗斯人，其中包括俄罗斯总统普京政府的副幕僚长、国家议会的副主席、车臣共和国的领导人以及伏尔加集团 (Volga Group)、俄羅斯石油管道運輸公司 (Transneft)和瓦格纳集团 (Wagner Group)等与政府关系密切的公司的高管。
 
+它还包括12名白俄罗斯政府官员和商界人士，以及俄罗斯和白俄罗斯的12个组织。
 
-根据德国之声中文网3月7日报道，海牙国际法庭有关俄乌战争的庭审已经开始，但俄罗斯方面拒绝出庭。主审女法官多诺霍（Joan Donoghue ）表示，俄罗斯驻荷兰大使舒尔金（ Alexander Schulgin）已通报法庭，俄罗斯政府无意参与审理活动。
+该部在一份声明中说，从现在开始，与名单上的人进行支付和资本交易必须获得政府许可。
 
-代表乌克兰方面出席庭审的库里尼耶维奇（ Anton Korynewytsch）对俄罗斯提出强烈谴责。他说，俄罗斯方面的缺席说明了一切。他们拒绝到庭，因为他们正在对乌克兰进行野蛮的侵略。
+财政部还表示，日本还禁止出口俄罗斯炼油设备和白俄罗斯可能被其军队使用的通用物品。
 
-这是俄罗斯首次因违反1948年签署的联合国《防止及惩治灭绝种族罪公约》而接受海牙国际法庭的审理。
+它将禁止向白俄罗斯国防部、武装部队和警察组织以及位于明斯克(Minsk)的 JSC Integral 公司出口。
 
-基辅政府指控俄罗斯正在乌克兰策划种族屠杀。
-
-一般海牙国际法庭数天内即可做出裁决。不过，阿姆斯特丹大学军事法教授基尔（ Terry Gill）表示，即便乌克兰诉讼成功，也不会发生任何变化。因为国际法庭并没有强迫败诉一方执行法庭裁决的手段。
-
-参考链接：[https://m.dw.com/zh/海牙国际法庭开庭乌克兰提告-俄罗斯缺席/a-61043983](https://m.dw.com/zh/海牙国际法庭开庭乌克兰提告-俄罗斯缺席/a-61043983)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Japan unveils new sanctions on Russians, bans refinery equipment exports](https://www.reuters.com/world/asia-pacific/japan-freezes-assets-32-more-russian-belarusian-officials-oligarchs-2022-03-08/?taid=622708559fa2ce0001102a26&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
  
 
