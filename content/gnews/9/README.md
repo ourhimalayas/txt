@@ -2,23 +2,38 @@
 ---
 
 
-## 乌克兰仍在人间！乌士兵围「炮坑」演奏国歌
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2126788/)
+## 新中国联邦法制基金乌克兰人道救援行动（一）
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2126834/)
 
-俄罗斯对乌克兰发动军事攻击已进入第13天，虽然俄罗斯拥有强大军力，但乌克兰军队仍不放弃，顽强地抵抗攻击。为了表示誓死保卫家园的决心，一群乌克兰士兵围着巨大的炮坑，演奏著乌克兰的国歌，如此坚定的意志，让网友看了心酸。
+【玫瑰看新闻】每日快讯
 
-乌克兰国会女议员卢狄克（Kira Rudik）日前分享一部影片，一群乌克兰士兵站在废墟里，围着一个巨大的炮坑，每个人都拿著乐器，正在演奏乌克兰的国歌《乌克兰仍在人间》（乌克兰尚未毁灭）。
-视频来源：[Kira Rudik](https://twitter.com/kiraincongress?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1500590106763304966%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.setn.com%2FNews.aspx%3FNewsID%3D1081881)
-简评：音乐是灵魂的共鸣！正如这群乌克兰士兵演奏的《乌克兰仍在人间》，战火中的音乐是那么的让人心酸又扣人心弦，当使命与顽强一结合是不可摧毁的！俄军的炮火摧毁不了乌克兰人的意志！乌克兰仍在人间！乌克兰必胜！
+2022年3月3日大卫从救援前线给战友们报平安，已带领第一波英喜战友团队到达波兰华沙。
 
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1081881&amp;utm_source=setn.com&amp;utm_medium=topic&amp;utm_campaign=newsid_1081881)
+将在波兰边境设立临时救助点，已经解决救援撤离车辆问题
 
-撰稿/发布：一叶知秋
+救援基地正式启动
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

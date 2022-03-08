@@ -2,10 +2,10 @@
 ---
 
 
-## 英首相宣布1.75亿英镑对乌援助
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2126815/)
+## 布林肯称北约国家为向乌克兰派遣战机开了 &#8220;绿灯&#8221;
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2126852/)
 
-03/07/2022 英首相鲍里斯·约翰逊宣布1.75亿英镑对乌援助，其中1亿英镑将直接提供给乌克兰政府。
+03/06/2022 布林肯称北约国家为向乌克兰派遣战机开了 “绿灯”
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

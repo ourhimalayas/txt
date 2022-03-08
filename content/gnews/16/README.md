@@ -2,30 +2,26 @@
 ---
 
 
-## 中日财经爆┃美汽油零售价达到13年来最高点
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2126727/)
+## 俄乌开战后 中共终于公开谈战争
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2126773/)
 
-撰稿：东京樱花团/文小白
+撰稿：东京樱花团/Garrettw
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/中日财经爆┃美汽油零售价达到13年来最高点.jpg)照片来源：本文链接
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄乌开战后-中共终于公开谈战争1.png)[图片来源](https://baijiahao.baidu.com/s?id=1726625159781540649&amp;wfr=spider&amp;for=pc)
 
-在俄罗斯军事入侵乌克兰的背景下，油价飙升，美国的汽油零售价格大幅上涨，达到13年8个月以来的最高水平，引起人们对平民生活影响的担忧。
+2022年3月7日中共外交部长王毅在回应乌克兰局势问题时表示，俄乌双方已经谈了两轮，希望即将开启的第三轮谈判能取得新的进展。中共认为，形势越紧，和谈越不能停止；分歧越大，越需要坐下来谈判。中共愿继续为劝和促谈发挥建设性作用，也愿意在需要的时候同国际社会一道开展必要的斡旋。
 
-根据美国能源信息署的数据，截至6月7日，全国范围内普通汽油的平均零售价格为每加仑（3.78升）4.10美元，与一周前相比大幅增加49美分。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄乌开战后-中共终于公开谈战争2.png)[图片来源](https://www.scmp.com/news/china/article/3169010/un-votes-condemn-russian-invasion-ukraine-china-again-stays-silent)
 
-这是自2008年7月以来，13年零8个月的最高水平。
+在2022年2月25日联合国的举办的谴责俄罗斯入侵乌克兰的会议投票上，中共及其他少数国家投了弃权票。此次中共“两会”期间突然宣布了站在和平谈判一边，含糊其辞的表达，虚张声势的态度，不知道是受制于各国政府的压力，还是中共的缓兵之计为“占台”让出伏笔，我们拭目以待，继续关注。
 
-汽油价格上涨的原因是俄罗斯在入侵乌克兰后受到严厉的经济制裁，出于对产油国俄罗斯的原油供应中断的担忧。
+消息来源:
 
-美国创纪录的通货膨胀正在拖累经济，人们担心，如果汽油价格继续上涨，将对民众的生活产生重大影响。
+[王毅谈俄乌局势：中方愿在需要的时候开展必要斡旋](https://baijiahao.baidu.com/s?id=1726625159781540649&amp;wfr=spider&amp;for=pc)
 
-访问纽约一家加油站的顾客说，”如果价格再高，我就无法加油了”，或者 “我以前从未见过这样的价格。我不知道它会涨到多高，我真的很担心”，而其他人则表示，需要对俄罗斯施加压力，让其做需要做的事情，即使汽油价格更高。
+[UN votes to condemn Russian invasion of Ukraine, but China again stays silent](https://www.scmp.com/news/china/article/3169010/un-votes-condemn-russian-invasion-ukraine-china-again-stays-silent)
 
-信息来源：
-
-[米 ガソリン小売価格 13年余ぶりの高値に 原油価格高騰が背景](https://www3.nhk.or.jp/news/html/20220308/k10013519861000.html?utm_int=news-international_contents_list-items_005)
-
-*校对：东京樱花团/知了知了
+*编辑：东京樱花团/ 喜马拉雅的微尘
 发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  

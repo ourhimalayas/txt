@@ -2,10 +2,10 @@
 ---
 
 
-## 协助新中国联邦乌克兰儿童救援行动的人权律师感动落泪
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2126549/)
+## 攻击平民是触犯国际战争法的罪行，但这正是俄军所作所为
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2126631/)
 
-【乌克兰救援】 03/07/2022协助新中国联邦乌克兰儿童救援行动的人权律师感动落泪
+03/06/2022 天空新闻：在俄罗斯军队向乌克兰首都基辅推进的过程中，平民受到攻击，家庭被拆散，住宅区遭到炮击。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
