@@ -2,23 +2,24 @@
 ---
 
 
-## 有声|Mastercard、VISA、PayPal已关闭在俄罗斯的业务
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2127532/)
+## 视频|我们一夜之间变成了天使
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2127582/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月5日，国外媒体陆续报道，Mastercard、VISA、PayPal相继暂停了他们在俄罗斯的合作业务。Mastercard和visa表示将会逐渐停止在俄罗斯的所有交易。未来几天之内，所有在俄罗斯内发行的万事达卡和VISA卡将不再适用于任何境外交易，所有在俄罗斯外发行的万事达卡和VISA卡则将不适用于俄罗斯境内交易。它们还表示会采取行动阻止俄罗斯金融机构使用本公司的支付网络。
+制作：香草山视频部
 
-PayPal目前的政策为，在一段时间内支持提款，但只允许在俄罗斯境内的用户进行跨境交易，同时停止新用户注册等。该政策同样适用于其汇款工具Xoom。
+当地时间3月7日下午，西班牙巴塞罗那农场战友文戈七雄在直播中，讲述了营救乌克兰战区百名孩子的经历。
 
-据悉，PayPal的竞争对手Wise和Remitly也已经暂停在俄罗斯的服务。
+他说，当新中国联邦发起救援行动之时，西班牙农场当即行动，在巴塞罗那本地寻找能够接收几百名人员的酒店和巴士。在联系当中遇到了一个巴塞罗那的基金会，经证实他们有一个救援行动，要把上百名7-17岁困在乌克兰的孩子救出来，接到巴塞罗那。
 
-文字版原文：[Mastercard、VISA、PayPal已关闭在俄罗斯的业务](https://gnews.org/zh-hans/2118084/)
+因郭先生要求，为保证战友的安全，不可以进入乌克兰战区，遂西班牙农场当即决定，从乌克兰边境到巴塞罗那的这段路，由新中国联邦护送这些孩子。法治基金和联盟委员会高度重视，很快协调了相关人员和大巴以及物资。同时西班牙农场和巴塞罗那的基金会也很快进行了汇合。由于战乱时期边境过关的速度非常慢，他们临时把出境口改到了一个相对快速的通道，这里是一个比较偏僻的小镇。
 
-音频处理：Fei797
-发稿：Fei797
+在疲惫不堪的大巴上颠簸许久，这一百名孩子终于到达了接洽点。在酒店稍作休息以后，将开始新中国联邦护送的旅程，法治基金会一路守护他们。文戈七雄先生说，这些孩子虽然很疲惫，但是脸上都挂着笑意。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+在战争的残酷里，到处都是向外逃离的人流，那些向内逆行救人的人都是值得尊敬的。被救的老师表示，捐款法治基金的和参与救人的新中国联邦人都是天使，这是上帝都做不到的事情。此时，我们也为自己喝彩。
+
+发稿：Daxia
+
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -26,7 +27,9 @@ PayPal目前的政策为，在一段时间内支持提款，但只允许在俄�
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

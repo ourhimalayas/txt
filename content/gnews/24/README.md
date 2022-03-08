@@ -2,28 +2,40 @@
 ---
 
 
-## 星链系统为乌克兰反击俄军提供支持
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2127143/)
+## 新中国联邦法制基金乌克兰人道救援行动（三）
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2127226/)
 
-采编：加拿大温哥华杨帆农场 – 文莱
+【玫瑰看新闻】每日快讯
 
-编译撰稿：加拿大温哥华杨帆农场 – 晨熹
+2022年3月5日新中国联邦法制基金乌克兰人道救援行动-纽约救援团出发
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Zelensky-and-Musk-COVER.jpg)图片来源：https://thepostmillennial.com/
+1. 纽约援救团队去往前线路上
 
-据加拿大【后千禧年】3月6日报道，俄军本次入侵乌克兰的重要战略之一，就是首先切断乌克兰境内的国际互联网，并毁掉其所有通信网络设施。
+2. 长岛，小王子到机场为送行纽约援救团队当天合影
+![](https://assets.gnews.org/wp-content/uploads/2022/03/长岛，小王子，到机场送行当天合影.jpg)
 
-报道称，当乌克兰部分地区的通信网络被俄军破坏后，乌克兰副总理随即请求SpaceX创始人马斯克，希望该公司能向乌克兰提供卫星互联网服务。最终，在马斯克与总统泽连斯基视频会晤后，SpaceX立即为乌克兰提供了一批星链系统设备，以用于被毁城市的网络重建。
 
-尽管普京一再威胁为乌克兰提供援助的国家，但马斯克无惧恐吓，仍然全力支援危难中的乌克兰，并在关键时刻为该国抵御并反击俄军入侵提供了可靠且强有力的通信保障。
 
-校对编辑：硫酸羟氯喹64
 
-发稿：青青
+**推出问题，敲出真相，爆料在路上！**
 
-新闻来源：
+**请关注和订阅我们的以下账号：**
 
-[https://thepostmillennial.com/zelensky-thanks-elon-musk-for-supporting-ukraine](https://thepostmillennial.com/zelensky-thanks-elon-musk-for-supporting-ukraine)
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

@@ -2,20 +2,25 @@
 ---
 
 
-## 在Arsenal与Juticalpa球队之间的比赛中，球员帕西•卡斯特罗(Percy Castro),突感不适
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2127413/)
+## 视频|美法官对辉瑞的判决坐实了疫苗是毒药
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2127511/)
 
-#### 翻译                     意大利达芬奇农场                        小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-08-alle-16.35.18-1.png)图片来源：eventiavversinews.it
-这是近几个月来发生的又一起突发事故：一位身体极佳， 球艺精湛的足球运动员，在电视直播的比赛中，突然倒地，感觉呼吸困难，心脏不适。
+制作：香草山视频部
 
-倒在地上的球员是洪都拉斯的足球运动员帕西•卡斯特罗( Percy Castro)。 “ Guayape Tv”现场直播的视频极具戏剧性。可以看到帕西•卡斯特罗站着不动，他一度倒在地上，开始呼吸困难。靠近他的Juticalpa球员乔治•维尔肯(Georgie Welcome)，立即意识到情况的严重性并伸出手去帮助他。
+在3月6日的大直播中，郭文贵先生引用欧洲科学家的话说，法官判决的最大意义，就是证明了中共病毒疫苗是完全没有经过医学认可程序的毒药，也是违法的。同时也给注射了疫苗的人一个最后提醒，需要立刻开始吃药排毒，否则就再也无力回天。
 
-医生通过急救进行干预， 但几分钟后，卡斯特罗被带出现场并转移到“特罗切斯蒙塔尔万”医院。佩西•卡斯特罗在比赛第42分钟倒下，他是一名26岁的阿森纳（Arsenal）足球运动员，来自洪都拉斯首都特古西加尔巴附近的坎塔拉纳斯市。2月20日星期日的足球比赛中突然发生了刚才一幕。
+科学家还说，被共产党洗脑的中共国人最大的悲哀，是在需要医疗的时候根据钱来决定采用何种医疗手段，而不是根据医生的判断和建议，穷人会用最便宜的药，权贵则会用最贵的。而一旦发生疫苗灾难，他们会把所有责任都归罪为美国，却不明白中共才是真正的元凶。
 
-原文链接： [https://www.eventiavversinews.it/e-lennesimo-caso-negli-ultimi-mesi-video-drammatico-del-malore-improvviso-che-ha-colpito-il-calciatore-percy-castro-duran](https://www.eventiavversinews.it/e-lennesimo-caso-negli-ultimi-mesi-video-drammatico-del-malore-improvviso-che-ha-colpito-il-calciatore-percy-castro-duran)
+发稿：Daxia
 
-编辑、上传： Xiao  baige
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

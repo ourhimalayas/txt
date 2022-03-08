@@ -2,37 +2,26 @@
 ---
 
 
-## 求救信息被中共屏蔽 在乌华人成弃子
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2127366/)
+## 普大帝坑惨俄罗斯！硬扛5532项制裁全球第一惨！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2127376/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月5日，有华文媒体报道，俄罗斯入侵乌克兰后，中共官方不停地宣传所谓“基辅安全撤侨”，但实际上许多身陷东部和南部交战区的人根本就逃不出去，无法赶到基辅。而当他们尝试在大陆社交平台发布求救信息时，贴文很快被屏蔽，不允许评论、点赞，无法传播出去，并且还被告知消息不能公开，现在只能报导“正能量”。目前生活在危险战区的人，称自己已成了“被国家抛弃的人”。
+俄罗斯入侵乌克兰引发全球多国抵制，资料显示俄罗斯目前已受到5532项制裁，赢过伊朗的3616项和叙利亚的2608项，成为全球被制裁最严重的国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/89fa712f-564d-4f89-9865-d37930a0851a.jpg)图片：普京的桌子
+据《BBC》报导，制裁观察名单网站Castellum.ai的统计指出，俄罗斯在2月22日之前已经受到2754项制裁，挥兵乌克兰后又增加了2778项，因此总数来到5532项。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-2.jpeg)
+在制裁当中最主要的是美国，占了21％左右，其次是英国和欧盟相加后的18％。目前各国仍持续增加对俄国制裁的力度，希望借此停止战事。
 
-除了在乌中国人的求救信息被屏蔽，中国人在乌克兰的伤亡情况也被国内封杀。日前俄军向哈尔科夫文化学院学生宿舍开火，至少四名中国留学生被杀。但该消息在国内遭到压制，还有一些媒体称其为假消息。
+简评：俄罗斯入侵乌克兰，普大帝个人野心的膨胀坑惨了俄罗斯人民，5532项制裁可谓全球第一惨！作为侵略者受到制裁理所应当，但为普京政权疯狂输血的中共就是穷凶极恶了，俄罗斯受到了制裁背后有多少是中国人民来买单，估计是个天文数字！玩刀者必死于刀下，作恶者早晚被群起而攻之！不是不报，时候将到！
 
-有被困华人向前去采访的记者说，中共当局不但没有帮助撤离，反而耽误了他们宝贵的自救时间。当还在家中或学校等待“撤侨通知”的人们终于明白“包机”无望时，战火已经大举蔓延，他们连自行离开的机会也失去了。
+新闻来源：[自由时报](https://news.ltn.com.tw/news/world/breakingnews/3852334)
 
-参考链接：
-1. [在乌中国人求救信息被中共屏蔽](https://gnews.org/zh-hans/2110203/)
-2. [求救信息被中共屏蔽 在乌中国人：我们成了弃子](https://www.ntdtv.com/gb/2022/03/04/a103364593.html)
+撰稿/发布：一叶知秋
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
-总编：Zion文恩
-编辑：飞虹
-审核：飞虹
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
