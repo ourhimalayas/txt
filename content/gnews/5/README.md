@@ -2,41 +2,40 @@
 ---
 
 
-## 法制基金乌克兰救援美国第二团队抵达波兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2127338/)
+## 有声|救援前线报道：成功营救出96个乌克兰孩子和他们的老师
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2127462/)
 
-作者：香草山写作组- 静言
+配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月7日，由美国小李带领的新中国联邦乌克兰救援队一行10位战友，从美国洛杉矶登机后，经历24个小时，已顺利到达波兰边境城市克拉科夫，与大卫带领的第一批救援先锋队，约20位战友汇合，给连日来辛苦救援的第一批救援队，带来了新生力量。
+3月4日，被困在乌克兰一个核电站的老师联系到小飞象，希望得到救援，他们想把90多个孩子送到西班牙收养家庭去。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-24.jpg)
+小飞象得知后立即将此事向郭先生汇报，随后根据郭先生发出的立即救援的指示，迅速回复老师并告诉他们波兰的接应地点。为保证安全，战友们还为他们提供了一些可行的路线信息参考。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-3.jpeg)
+目前孩子们已经在顺利从海关出来，战友正送他们宾馆休息，他们休整后的下一站就是我们西班牙农场所在地西班牙巴塞罗那。我们农场团队会在文戈站长的带领下继续全程跟踪服务！
 
-3月3日，第一批救援队先期到达波兰华沙，在波兰边境设立了临时救助点，解决救援撤离车辆等问题，
+这几十个孩子是上天派来的小天使，是在帮我们救赎人类自己，他们是新中国联邦的孩子，是人类的孩子，他们必将随着新中国联邦茁壮成长，在全世界生根发芽，长成参天大树。他们必将把我们新中国联邦的爱，把上天的爱传递到每一个角落。
 
-3月5日，纽约救援队、西班牙救援队安全到达波兰。
 
-几天来，战友们已开展了一系列救援行动，据郭文贵先生7日的盖特消息，已成功救助200多人抵达波兰克拉科夫，其中包括99个乌克兰孩童。
 
-据郭先生透露，接下来还会有第三波救援队前往波兰，总共将会有70人左右参与救援。这是新中国联邦向世界展示其与中共国不一样性质的舞台，大幕已经开启。
+文字版原文：[救援前线报道：成功营救出96个乌克兰孩子和他们的老师](https://gnews.org/zh-hans/2124641/)
 
-参考链接：
-1. [https://gettr.com/post/py1efdcf07](https://gettr.com/post/py1efdcf07)
-2. [https://gettr.com/post/pybvgvc43d](https://gettr.com/post/pybvgvc43d)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
-
-总编：Zion文恩
-编辑：飞虹  
-审核：飞虹
-校正/发稿：谐趣园
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

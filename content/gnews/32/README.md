@@ -2,37 +2,27 @@
 ---
 
 
-## FDA败诉！辉瑞被迫公布所有疫苗数据！副作用足足有9页！全网震惊！
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2126000/)
+## 特鲁多抵达欧洲商讨乌克兰局势
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2126445/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/https_______mmbiz.qpic-2.jpeg)
-据报道，3月1日，美国食药监局FDA在官司中败诉，法院要求FDA今年夏天之前要完成辉瑞新冠疫苗32.9万页完整审评文件的公开。
+采编: 加拿大温哥华杨帆农场 – 苦尽甜来 (文来）
 
-3月5日，FDA刚刚发布了首批文件，在众多的文件里，最让人震惊的，莫过于关于辉瑞疫苗不良反应的报告，足足有9页之多，全网为之震惊。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GqPX-Cu63VNbCrjjATxNYfc9Yg7AgWRAryOobK8jqGw.png)
-目前披露的文件中列出了1000多种不良反应，很多都是头一次披露，包括：筋膜炎、眼部肿胀、面瘫、斑秃、过敏休克、妊娠过敏反应综合征、急性心肌病、急性呼吸衰竭、注射部位血管炎、癫痫、血栓、心律失常、关节炎、哮喘、支气管痉挛、心脏骤停、心力衰竭、胸部不适、窒息、急性皮肤红斑狼疮、急性脑脊髓炎、急性肾损伤、急性黄斑外层视网膜病变、再生障碍性贫血、慢性自身免疫性肾小球肾炎、慢性皮肤红斑狼疮、慢性自发性荨麻疹、溶血性贫血、结肠炎、皮炎、糖尿病、栓塞性脑梗塞、内分泌失调、新生儿重症肌无力、脊髓炎、非感染性卵巢炎、甲状腺炎、溃疡性直肠炎、眼部瘙痒症、生殖器疱疹、舌咽神经麻痹、出血性血管炎、宫颈炎、狼疮性膀胱炎、狼疮性脑炎、多发性硬化症等等。
+编译撰稿：加拿大温哥华杨帆农场 – 苦尽甜来 (文来）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-739.png)图片来源：多伦多太阳报[Toronto Sun](https://torontosun.com/news/national/trudeau-departs-for-europe-to-meet-with-allies-on-ukraine-response)
+据【多伦多太阳报】3月6日报道，加拿大总理特鲁多当天已抵达欧洲，将与欧盟各国就俄罗斯入侵乌克兰的战争局势进行商讨。
 
-按照法院要求，FDA将在今年夏天之前发布完所有相关文件，现在才刚刚公布了150份文件。相信随着更多文件的披露，更大的争议还会陆续涌现。
+据悉，特鲁多将于翌日在伦敦与英国和荷兰的首相会面。并在未来数天内前往拉脱维亚、柏林和华沙等地会见其他国家领导人。此后，还将会晤北约秘书长及加拿大武装部队成员等。
 
-新闻链接：[https://www.globenewswire.com/news-release/2022/03/03/2396681/0/en/CHD-Says-Pfizer-and-FDA-Dropped-Data-Bombshell-on-COVID-Vaccine-Consumers.html](https://www.globenewswire.com/news-release/2022/03/03/2396681/0/en/CHD-Says-Pfizer-and-FDA-Dropped-Data-Bombshell-on-COVID-Vaccine-Consumers.html)
+此外，由于俄军持续无差别的攻击，从乌克兰港口城市撤离平民的计划再次失败。目前，战争已迫使超过 100万难民逃离了乌克兰。
 
-编辑/校对/发稿：文留
+评论指出，特鲁多花费大量加拿大国民的纳税资金去欧洲进行毫无实际意义和成效的会晤，无非想借此摆脱其在国内和国际政坛中早已崩塌的人设，并企图为其即将结束的政治生涯续命。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-2.jpg)
+校对编辑：硫酸羟氯喹64
 
-**更多资讯，更多关注**
+发稿：青青
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+原文链接： [Trudeau arrives in Europe to meet with allies on Ukraine response Toronto Sun](https://torontosun.com/news/national/trudeau-departs-for-europe-to-meet-with-allies-on-ukraine-response)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
