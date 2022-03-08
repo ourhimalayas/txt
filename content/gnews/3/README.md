@@ -2,26 +2,25 @@
 ---
 
 
-## 众议院即将就放弃与俄罗斯和白俄罗斯的包括石油进口在内的贸易关系举行投票
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2125074/)
+## 助乌抗俄！首批国际佣兵抵基辅
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2125251/)
 
-翻译：Steven Hu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-39.jpg)
-随着俄罗斯在在乌克兰战争的什级，欧美加大了对俄制裁的力度。《零对冲》3 月 8 日引用了路透社的报道指出众议院最快将于周二就一项两党法案进行投票，该法案将取消与俄罗斯和白俄罗斯的贸易关系，其中包括禁止进口石油。
+俄乌第三次谈判依旧达不到停火共识，双方激战进入第13天，俄军持续往乌克兰首都基辅攻击，乌克兰开战初期向全世界招募志愿军，如今乌克兰陆军也公布第一批国际佣兵军团抵达基辅的照片，表示他们已经准备好加入战争。
 
-众议院民主党马萨诸塞州的理查德.尼尔（Richard Neal）和得克萨斯州的共和党凯文.布拉迪（Kevin Brady）众议院筹款委员会的民主党主席和共和党领袖以及奥勒冈的参议员罗恩.怀登（Ron Wyden )和迈克.克拉波（Mike Crapo）、参议院财政委员会的民主党主席和共和党高级成员宣布了两党的协议。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-12.png)图片来源：乌克兰陆军脸书
 
-”虽然国会需要做更多事情，但作为对我们国家贸易政策拥有管辖权的国会议员，我们有责任使用我们掌握的工具来制止俄罗斯对乌克兰的不道德和非正义的战争，同时追穷白俄罗斯卷入战争的负责，” 民主党代表在一份声明中。
+乌克兰外交部长先前向外界表示，有超过52个国家、超过2万人自愿加入志愿军的行列，今（8）日则公布了一张志愿军的首张合照，照片中的志愿军分别来自美国、英国、瑞典、立陶宛、墨西哥以及印度。照片中的志愿军手持枪械、相当有精神，而他们也已经抵达基辅，准备投入作战，网友们也纷纷祝福他们平安完成任务。
 
-众议院议长南希佩洛西表示，众议院将在本周就此事进行立法。
+简评：助乌抗俄！超过52个国家、超过2万人自愿加入志愿军的行列，正义的力量正在聚集，乌克兰并不孤单！愿世界各国政府抓紧行动起来，在正义面前无需犹豫彷徨，乌克兰人民需要你们！
 
-与此同时，国务卿布林肯表示，美国正在与欧洲伙伴积极讨论，他们对俄罗斯石油的依赖程度远远高于美国，如果美国禁止其进口俄石油，这些伙伴可能会陷入衰退。
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1081695)
 
-为此，《卫报》报道称，拜登政府愿意在没有欧洲伙伴参与的情况下推进禁令。
+撰稿/发布：一叶知秋
 
-更重要的是，据彭博社报道，据报道，美国国会谈判代表正在接近就紧急援助乌克兰以及政府长期资助达成协议。
-
-原文链接：[https://www.zerohedge.com/geopolitical/house-hold-imminent-vote-ditching-trade-relations-russia-belarus-including-oil-imports](https://www.zerohedge.com/geopolitical/house-hold-imminent-vote-ditching-trade-relations-russia-belarus-including-oil-imports)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

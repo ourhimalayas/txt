@@ -2,8 +2,8 @@
 ---
 
 
-## 20220306文贵大直播：俄乌战争背后的深远影响造成中国人民未来几代人将要承受的影响
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2124588/)
+## 20220306文贵大直播：新中国联邦面对危机向世界展现了新的中国人形象之正道主义
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2124594/)
 
 作者:东京樱花团小视频组
 
