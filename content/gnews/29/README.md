@@ -2,29 +2,41 @@
 ---
 
 
-## 星链系统为乌克兰反击俄军提供支持
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2127143/)
+## 法制基金乌克兰救援美国第二团队抵达波兰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2127338/)
 
-采编：加拿大温哥华杨帆农场 – 文莱
+作者：香草山写作组- 静言
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月7日，由美国小李带领的新中国联邦乌克兰救援队一行10位战友，从美国洛杉矶登机后，经历24个小时，已顺利到达波兰边境城市克拉科夫，与大卫带领的第一批救援先锋队，约20位战友汇合，给连日来辛苦救援的第一批救援队，带来了新生力量。
 
-编译撰稿：加拿大温哥华杨帆农场 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-3.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Zelensky-and-Musk-COVER.jpg)图片来源：https://thepostmillennial.com/
+3月3日，第一批救援队先期到达波兰华沙，在波兰边境设立了临时救助点，解决救援撤离车辆等问题，
 
-据加拿大【后千禧年】3月6日报道，俄军本次入侵乌克兰的重要战略之一，就是首先切断乌克兰境内的国际互联网，并毁掉其所有通信网络设施。
+3月5日，纽约救援队、西班牙救援队安全到达波兰。
 
-报道称，当乌克兰部分地区的通信网络被俄军破坏后，乌克兰副总理随即请求SpaceX创始人马斯克，希望该公司能向乌克兰提供卫星互联网服务。最终，在马斯克与总统泽连斯基视频会晤后，SpaceX立即为乌克兰提供了一批星链系统设备，以用于被毁城市的网络重建。
+几天来，战友们已开展了一系列救援行动，据郭文贵先生7日的盖特消息，已成功救助200多人抵达波兰克拉科夫，其中包括99个乌克兰孩童。
 
-尽管普京一再威胁为乌克兰提供援助的国家，但马斯克无惧恐吓，仍然全力支援危难中的乌克兰，并在关键时刻为该国抵御并反击俄军入侵提供了可靠且强有力的通信保障。
+据郭先生透露，接下来还会有第三波救援队前往波兰，总共将会有70人左右参与救援。这是新中国联邦向世界展示其与中共国不一样性质的舞台，大幕已经开启。
 
-校对编辑：硫酸羟氯喹64
+参考链接：
+1. [https://gettr.com/post/py1efdcf07](https://gettr.com/post/py1efdcf07)
+2. [https://gettr.com/post/pybvgvc43d](https://gettr.com/post/pybvgvc43d)
 
-发稿：青青
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-新闻来源：
+总编：Zion文恩
+编辑：飞虹  
+审核：飞虹
+校正/发稿：谐趣园
 
-[https://thepostmillennial.com/zelensky-thanks-elon-musk-for-supporting-ukraine](https://thepostmillennial.com/zelensky-thanks-elon-musk-for-supporting-ukraine)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

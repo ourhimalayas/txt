@@ -2,37 +2,36 @@
 ---
 
 
-## 俄罗斯要求解除制裁，否则将威胁伊朗核谈判破产
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2127705/)
+## 有声|新中国联邦-乌克兰救援行动中
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2127776/)
 
-***评论：**俄罗斯核威慑乌克兰以后，又威胁伊朗核谈判破产，强盗逻辑一览无遗，这个世界不是只有俄罗斯，还有善良正直的人们，当你不要世界和平的时候，终将也会被世界遗弃*。
+作者/录音:香草山福音部-黎明曙光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+新中国联邦法治基金紧急救援行动，在乌克兰 妇女，儿童，华人及世界友好人士！
 
-据《华盛顿邮报》作者：Liz Sly，2022年3月5日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-747-e1646757898790.png)俄罗斯外交部长谢尔盖-拉夫罗夫周六在莫斯科举行的新闻发布会上发言。(Sergei Ilnitsky/EPA-EFE/REX/Shutterstock)
-维也纳–俄罗斯周六为恢复伊朗核协议提出了一个新的条件：要求美国保证，因入侵乌克兰而对莫斯科实施的制裁不会应用到俄罗斯与伊朗的贸易和投资。
+俄罗斯战争狂人将乌克兰人民处于战火之中带给乌克兰民众炮弹与哭泣视生命为草芥導致生死离别。
 
-俄罗斯外交部长谢尔盖-拉夫罗夫在莫斯科提出的这一要求，有可能使恢复2015年协议的谈判脱轨，而此时维也纳的外交官们正希望在下周初敲定一项协议。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0306_2.jpg)
 
-文章观点仅代表作者个人，与Gnews平台无关
+乌克兰总统捍卫国家主权勇敢、智慧。站在民众之中利用网络信息展开宣传之战，告诉世界战争给乌克兰人们帶來了戰後大的災难。
 
-文章来源:[https://www.washingtonpost.com/world/2022/03/05/russia-iran-nuclear-talks/](https://www.washingtonpost.com/world/2022/03/05/russia-iran-nuclear-talks/)
+英勇的乌克兰人全民皆兵拿起武器奋力反战，誓言把俄罗斯侵略者打回俄罗斯。
 
-翻译：洛杉矶盘古农场 – Mike Li
+新中国联邦救援在乌克蘭的妇女，儿童，华人，及世界友好人士从战火中回救援到安全的港湾。
 
-校对：洛杉矶盘古农场 – 轰炸机
+新中国联邦24小时救援联系方式如關注各大社交網絡媒體。
 
-评论：洛杉矶盘古农场 – 傻小子
+音频处理/发稿：Daxia
 
-编辑：洛杉矶盘古农场 – 傻小子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

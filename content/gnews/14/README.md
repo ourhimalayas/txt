@@ -2,36 +2,37 @@
 ---
 
 
-## 有声|新中国联邦-乌克兰救援行动中
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2127776/)
+## 欧洲给特鲁多白眼
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2127862/)
 
-作者/录音:香草山福音部-黎明曙光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-新中国联邦法治基金紧急救援行动，在乌克兰 妇女，儿童，华人及世界友好人士！
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/03/maxresdefault-5-1.jpg)图片来源：National Post
+根据《国家邮报》 (national Post) 3月8日报道，特鲁多本周在欧洲，帮助协调对乌克兰危机的回应。到目前为止，进行得很不顺利。
 
-俄罗斯战争狂人将乌克兰人民处于战火之中带给乌克兰民众炮弹与哭泣视生命为草芥導致生死离别。
+首先，特鲁多在访问英国首相鲍里斯-约翰逊的官邸唐宁街10号时不得不退场。原因是反特鲁多的抗议人群挡住了通常的入口。在特鲁多与约翰逊的官方合影期间，仍然可以清楚地听到远处的 “F-ck特鲁多 “的呼声。”F-ck Trudeau” 一词，已经上了热搜。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0306_2.jpg)
+由于特鲁多对自由车队的回应，特别是他利用《紧急状态法》在没有司法监督的情况下命令银行冻结抗议者账户，特鲁多最近在欧洲得到了很多负面评论。就在特鲁多抵达英国的时候，《电讯报》刊登了这篇报道，指出他的明星形象是如何因卡车司机车队而陨落的。
 
-乌克兰总统捍卫国家主权勇敢、智慧。站在民众之中利用网络信息展开宣传之战，告诉世界战争给乌克兰人们帶來了戰後大的災难。
+与约翰逊会面后，特鲁多与英国领导人和荷兰首相马克-吕特出席了联合新闻发布会。在那里，外国记者们很快注意到，加拿大总理实际上并不回答记者的问题。
 
-英勇的乌克兰人全民皆兵拿起武器奋力反战，誓言把俄罗斯侵略者打回俄罗斯。
+问题：加拿大是否会提高其军事预算以达到北约支出占国内生产总值2%的目标？
+他答非所问：”我们需要确保加拿大武装部队的妇女和男子拥有所有必要的装备，以便能够像我们作为北约成员一样，始终坚定地站在那里。”
 
-新中国联邦救援在乌克蘭的妇女，儿童，华人，及世界友好人士从战火中回救援到安全的港湾。
+问题：加拿大是否会利用其石油部门来帮助欧洲减少对俄罗斯石油的依赖？
+他答非所问：”我们需要在经济去碳化方面取得进展，但我们需要以支持人们完成这一过程的方式来做到这一点，我们将继续这样做。”
 
-新中国联邦24小时救援联系方式如關注各大社交網絡媒體。
+问题：制裁对遏制俄罗斯侵略的有效性？
+他答非所问：”乌克兰人挺身反抗俄罗斯侵略者的勇气鼓舞了我们所有人，也让我们感到惭愧，我们需要表现出同样的决心来反击普京。”
 
-音频处理/发稿：Daxia
+特鲁多对自由车队的镇压手法，证明了他是一位独裁者。现在他到欧洲“积极”地反对普京的独裁就是一个笑话。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+原文链接：
+[https://nationalpost.com/news/politics/first-reading-europe-rolls-its-eyes-at-justin-trudeau](https://nationalpost.com/news/politics/first-reading-europe-rolls-its-eyes-at-justin-trudeau)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑，发稿 Spirit
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

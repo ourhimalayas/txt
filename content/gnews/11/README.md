@@ -2,36 +2,31 @@
 ---
 
 
-## 欧洲给特鲁多白眼
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2127862/)
+## 人类面临政治、经济大冲突
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2127951/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/03/maxresdefault-5-1.jpg)图片来源：National Post
-根据《国家邮报》 (national Post) 3月8日报道，特鲁多本周在欧洲，帮助协调对乌克兰危机的回应。到目前为止，进行得很不顺利。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-首先，特鲁多在访问英国首相鲍里斯-约翰逊的官邸唐宁街10号时不得不退场。原因是反特鲁多的抗议人群挡住了通常的入口。在特鲁多与约翰逊的官方合影期间，仍然可以清楚地听到远处的 “F-ck特鲁多 “的呼声。”F-ck Trudeau” 一词，已经上了热搜。
+2022-02-25直播摘录
 
-由于特鲁多对自由车队的回应，特别是他利用《紧急状态法》在没有司法监督的情况下命令银行冻结抗议者账户，特鲁多最近在欧洲得到了很多负面评论。就在特鲁多抵达英国的时候，《电讯报》刊登了这篇报道，指出他的明星形象是如何因卡车司机车队而陨落的。
+你看到小土豆和美国、西方的企业，你会看到疫苗的灾难还没到五月份，早着呢，早着呢，早着呢。大抗议的时候，民主政治，他要么催生了成熟的，我们追求的正道主义的西方政治文化，要么就是把整个西方的民主政治变成了所谓过渡型的独裁政府，因为都在抗议、都在乱。那这个时候西方是很弱的，这个时候东方的还有北朝鲜啊、伊朗啊、中共啊，是吧，俄罗斯啊，然后那些小国家，什么乌干达、坦桑尼亚、尼日利亚、津巴布韦啊都跟着上来了，还包括新加坡，都想搞一个独裁者。这时候，兄弟们，我们可能面临着一个什么黑暗情况？可能十年、二十年、甚至一生，都面临着人类的政治、经济大冲突，最后形成人类的文明。我相信在这场过渡当中，爆料革命、新中国联邦，我们不需要任何人相信我们，最好不相信我们的人永远别相信我们，祝你们永远别相信我们，我们是卡扎菲、还有Micheal Jacskon的服装Style，极右主义分子，还有什么三秒、骗子，你们就相信你们的去吧。我们，我相信新中国联邦正道主义会成为人类上永远的光芒。而且会成为真正的是像人类在黑暗中看到阳光和太阳一样被人们所接受。
 
-与约翰逊会面后，特鲁多与英国领导人和荷兰首相马克-吕特出席了联合新闻发布会。在那里，外国记者们很快注意到，加拿大总理实际上并不回答记者的问题。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-问题：加拿大是否会提高其军事预算以达到北约支出占国内生产总值2%的目标？
-他答非所问：”我们需要确保加拿大武装部队的妇女和男子拥有所有必要的装备，以便能够像我们作为北约成员一样，始终坚定地站在那里。”
+**关注我们**
 
-问题：加拿大是否会利用其石油部门来帮助欧洲减少对俄罗斯石油的依赖？
-他答非所问：”我们需要在经济去碳化方面取得进展，但我们需要以支持人们完成这一过程的方式来做到这一点，我们将继续这样做。”
+Discord 账号
 
-问题：制裁对遏制俄罗斯侵略的有效性？
-他答非所问：”乌克兰人挺身反抗俄罗斯侵略者的勇气鼓舞了我们所有人，也让我们感到惭愧，我们需要表现出同样的决心来反击普京。”
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-特鲁多对自由车队的镇压手法，证明了他是一位独裁者。现在他到欧洲“积极”地反对普京的独裁就是一个笑话。
+Gettr 账号
 
-原文链接：
-[https://nationalpost.com/news/politics/first-reading-europe-rolls-its-eyes-at-justin-trudeau](https://nationalpost.com/news/politics/first-reading-europe-rolls-its-eyes-at-justin-trudeau)
-
-编辑，发稿 Spirit
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

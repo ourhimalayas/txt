@@ -2,28 +2,31 @@
 ---
 
 
-## 中共银联支持俄罗斯银行
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2127790/)
+## 共产党与西方文明的对抗
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2127949/)
 
-采编撰稿：加拿大温哥华杨帆农场 – 自由法兰西
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-749.png)
+2022-02-25直播摘录
 
-Source：[DW报道](https://www.dw.com/zh/%E7%BB%B4%E8%90%A8%E5%92%8C%E4%B8%87%E4%BA%8B%E8%BE%BE%E5%8D%A1%E6%9A%82%E5%81%9C%E6%9C%8D%E5%8A%A1-%E4%BF%84%E9%93%B6%E8%A1%8C%E8%BD%AC%E5%90%91%E4%B8%AD%E5%9B%BD%E9%93%B6%E8%81%94/a-61033012)
+结果上桌子就要掀桌子，现在掀桌子就是他和普京大帝要把桌子掀了。能不能掀成呢？他是从冠状病毒、疫苗、世界经济崩塌，然后，从地缘政治扩张，最后整合全世界的所有的和他所谓的中弱国家形成的一股势力，对抗西方的基督文明，和西方的民主资本主义社会。独裁的政治对抗西方的民主的法律的政治。也就是根本能看得出来，亚洲这些国家和东欧这些国家都是什么，都是陆地国家，所有西方的最后和这些陆地国家和所谓的习太阳、普大帝对抗的都是海洋文化。他非常清楚的能分出来，这个海洋文明和陆地文明的再一次大的冲撞和PK。同时显出东西方的文化和政治利益的大冲撞。同时显示出来，一个杂教或者没有教的国家和西方的基督教、天主教文明的一场大PK。更重要的是要看到，东西方之间出现了一种从来没有的事情，就是独裁国家的政治制度和西方民主制度之间到底谁活着？
 
-据&lt;自由亚洲电台&gt;3月6日报道，在全球金融支付服务公司VISA和[万事达]因俄罗斯入侵乌克兰而暂停在俄业务之后，俄银行拟与中共银联合作发行新的信用卡。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-对此，俄罗斯[联邦储蓄银行]和[阿尔法银行]当天表示，正在推动发行中共国银联系统的信用卡。同时，俄其它几家主要银行也在筹备使用银联信用卡。
+**关注我们**
 
-目前，由于中共银联卡可在世界约180个国家和地区被使用，此举无疑将为俄罗斯金融体系续命。并通过继续进行海外支付，而成为俄罗斯逃避西方制裁的避风港。
+Discord 账号
 
-评论指出，中共金融机构倒行逆施，进一步加剧了国际社会对中共国的敌视，而中国人民特别是海外华人将无辜成为全世界仇恨的对象，并最终沦为全球排华危机的牺牲品。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-校对编辑：硫酸羟氯喹64
+Gettr 账号
 
-发文：青青
-
-原文链接： [RFA自由亚洲电台报道](https://www.rfa.org/mandarin/Xinwen/8-03062022144853.html)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

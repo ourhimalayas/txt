@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/8/2022 6:40 PM (UTC)`
+
+【UKRAINEHELP-004】<br/><br/>为应对乌克兰-波兰边境日益增多的撤离人员和难民，NFSC和法治基金(ROLF)宣布2022年3月15日免费专机的暂定行程，专机航线如下，有可能根据情况做出调整：<br/>1. 从波兰-热舒夫(Rzeszow)机场出发，经加拿大多伦多，前往美国纽约。<br/>2. 从波兰-热舒夫(Rzeszow)机场出发，直飞东南亚某国（待定）。<br/><br/>NFSC和ROLF提供免费专机，以帮助那些受俄罗斯非法入侵影响的人员，这是我们支持在被共产主义和专制政府统治的国家里争取自由的使命的一部分。<br/><br/>如果您需要搭乘我们的专机，请联系我们最新24小时服务热线。所有乘客必须满足其目的地的签证要求。如有需要，NFSC和ROLF将在出发前提供免费食宿。<br/><br/>由于中共控制了邮件服务商，意图破坏我们乌克兰救援行动，之前公布的网站和邮箱已被强行关闭，更新后的24小时紧急救援客服联系方式如下：<br/><br/>24小时客服热线（电话/短信）：<br/>+1 720-657-6776 或 <br/>+1 719-224-4232 或<br/>+48 508-532-712 或 <br/>+48 508-531-518<br/><br/>Telegram： t.me/UkraineRescue<br/><br/>盖特： gettr.com/user/UkraineRescue<br/><br/>邮箱： UkraineRescue01@protonmail.com 或 UkraineRescue02@protonmail.com <br/><br/>NFSC<br/>法治基金<br/>2022年3月8日
+![img](https://media.gettr.com/group12/getter/2022/03/08/18/2a3a4c78-a73b-bfe9-c865-81b48e1a3fed/bf8438731408b60f88add86c97561f40.jpg)
+
+---
+
 `@miles 3/8/2022 5:09 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-克拉科夫汽车站前线报导
@@ -148,13 +155,6 @@
 
 3/6/2022 Miles Guo: What are the stories behind Ayrton Senna’s McLaren F1 car? The exchange of Senna’s vehicle has earned the highest credibility for the Himalaya Exchange to be accepted by the royal families in Europe. The value of the Himalaya Coin will certainly surpass that of Bitcoin. Himalaya Coin stands for justice and will never accept tax fraud, money laundering, or collusion with the evil forces<br/><br/>3/6/2022 文贵直播: 塞纳的迈凯轮F1赛车的背后有何故事？这部赛车的交易为喜联储赢得了进入欧洲皇室的信用；喜币的价值一定会超过比特币；喜币代表正义，绝不会接受偷税、洗钱或与邪恶为伍！<br/>
 ![img](https://media.gettr.com/group13/getter/2022/03/07/23/3f780d7b-991f-a72a-41ce-14657d2db16d/out.jpg)
-
----
-
-`@miles 3/7/2022 11:11 PM (UTC)`
-
-3/6/2022 Miles Guo: The Chinese people are about to face major disasters such as food crisis and economic crisis. We must have the financial means, the ability, the social media platform, and the international support to carry out the rescue, but we can only save those who believe in us. Many people will pass away from the end of this year to the end of next year due to the COVID vaccines. We will build a new human civilization based on the Way of Righteousness.<br/><br/>3/6/2022 文贵直播: 中国人即将面临粮食危机和经济危机等大灾难；必须要有钱、能力、社交媒体平台和国际支持才能进行救援；我们只渡有缘人；今年年底到明年年底会有很多打了疫苗的人会离世；我们要建立信仰正道主义的人类新文明<br/>
-![img](https://media.gettr.com/group20/getter/2022/03/07/23/f8858e3e-69ab-ad59-1df4-b7b23b07b09c/out.jpg)
 
 ---
 
