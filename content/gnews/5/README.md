@@ -2,8 +2,10 @@
 ---
 
 
-## 铁锁梦
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2125668/)
+## 中共正在非常仔细地观察俄罗斯和乌克兰局势
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2125754/)
+
+03/06/2022 章家敦：中共正在非常仔细地观察俄罗斯和乌克兰局势。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

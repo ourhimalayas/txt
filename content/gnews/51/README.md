@@ -2,20 +2,57 @@
 ---
 
 
-## 车神塞纳迈凯伦座驾通过喜支付交易，喜交所进入欧洲皇室最高信用
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2117030/)
+## 蓬佩奥：台湾和美国的未来是交织在一起的
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2117929/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+前国务卿迈克.蓬佩奥： 台湾和美国的未来是交织在一起的，因为我们的利益非常一致。
 
-3月6日，郭文贵先生于Gettr大直播中透露，由车神埃尔顿·塞纳（Ayrton Senna）驾驶过的备受追捧的F1赛车通过HPay App（喜支付应用）交易的意义重大，并表示，塞纳赛车的交易奠定Himalaya Exchange（喜交所）、HCoin（喜币）、HDO（喜美元）和HPay（喜支付）直接进入欧洲皇室的最高信用。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture111212.jpg)图片来源forbes网页截图
-塞纳的赛车由McLaren（迈凯伦）公司拥有，继劳斯莱斯、路虎等被德国、印度拿下变成纯工业产品后，McLaren（迈凯伦）成为英国汽车业的唯一一个属于英伦文化的汽车极品。
 
-塞纳是富有的、受过高等教育的巴西人，在爱情、家庭、事业、赛车的方面，体现出巴西南美风情与欧洲或北美文化的不同。最擅长在雨中比赛的他创造了一次次的传奇，又一次次与死神擦肩而过，把赛车开到出神入化的状态。可以说，这辆车就是塞纳的“灵魂之车”。
 
-这辆标志性的迈凯伦F1赛车是通过HPay（喜支付）的点到点之间的转账，用稳定币HDO（喜美元）来完成交易。而且，此车的价值超过500万美元。郭先生再次自信地强调，HCoin（喜币）的价值一定超过比特币，而且HCoin（喜币）是正义的代表。Himalaya Exchange（喜交所）从诞生之日即有最严谨、最合法的KYC开户制度，可以杜绝任何偷税的脏钱和洗钱的犯罪，坚守西方认同的正义，这是我们最根本的原则。
+> The futures of Taiwan and the United States are intertwined, because our interests are very much aligned.
+> — Mike Pompeo (@mikepompeo) [March 6, 2022](https://twitter.com/mikepompeo/status/1500553560672591879?ref_src=twsrc%5Etfw)
 
-塞纳赛车的交易，奠定Himalaya Exchange（喜交所）、HCoin（喜币）、HDO（喜美元）和HPay（喜支付）直接进入欧洲皇室的最高信用，皇室不是奢华，皇室是信用的象征。相信上帝会给喜联储以及G系列力量，我们也将见证更多的传奇。
+
+
+美国国务院： 拜登总统 [@POTUS](https://twitter.com/POTUS) 致俄罗斯人民的信息：“我不相信你们想要一场针对乌克兰 – 一个与你们有着如此深厚的家庭、历史和文化联系的国家和人民 – 的血腥、破坏性战争。” 【图片文字：致俄罗斯公民：“你们不是我们的敌人” ——总统乔拜登】
+
+
+
+> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) message to the people of Russia: “I do not believe you want a bloody, destructive war against Ukraine — a country and a people with whom you share such deep ties of family, history, and culture.” [pic.twitter.com/pC58Oj5RMz](https://t.co/pC58Oj5RMz)
+> — Department of State (@StateDept) [March 6, 2022](https://twitter.com/StateDept/status/1500553355743182858?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: 白宫@WhiteHouse 是否忘记了马杜罗@NicolasMaduro 的残酷压迫已经杀死了数千人并制造了近 600 万难民？ 马杜罗帮助致力于破坏哥伦比亚和拉丁美洲稳定的毒品恐怖分子，接待卡斯特罗的暴徒，以及与俄罗斯、#中共国、伊朗和真主党等敌人结为伙伴关系。 【转斯科特自己推文：拜登政府唯一应该与马杜罗讨论的是他辞职的时间。马杜罗是一个像普京一样的种族灭绝的暴君。美国不能依赖于一个凶残的独裁者去置换另一个，也不能以任何方式承认他的虚假政府是合法的。】
+
+
+
+> Has the [@WhiteHouse](https://twitter.com/WhiteHouse?ref_src=twsrc%5Etfw) forgotten that [@NicolasMaduro](https://twitter.com/NicolasMaduro?ref_src=twsrc%5Etfw)’s brutal oppression has killed 1,000s & created nearly 6M refugees?
+> 
+> Maduro aids narcoterrorists working to destabilize Colombia & LATAM, hosts Castro’s thugs & partners with enemies like Russia, Communist China, Iran & Hezbollah. [https://t.co/mmKiwC6H0n](https://t.co/mmKiwC6H0n)
+> — Rick Scott (@SenRickScott) [March 6, 2022](https://twitter.com/SenRickScott/status/1500518599609442308?ref_src=twsrc%5Etfw)
+
+
+
+国务卿安东尼.布林肯： 俄罗斯政府正在封锁媒体渠道并限制社交媒体——所有这些都是为了掩盖正在乌克兰领土发生的事情的真相。 俄罗斯人民应该知道以他们的名义而造成的死亡和破坏的真相。
+
+
+
+> The Russian government is blocking media outlets and restricting social media — all to obscure the truth about what is happening on the ground in Ukraine. The Russian people deserve to know the truth about the death and destruction happening in their name. [pic.twitter.com/8Jk8i32chU](https://t.co/8Jk8i32chU)
+> — Secretary Antony Blinken (@SecBlinken) [March 6, 2022](https://twitter.com/SecBlinken/status/1500293840074203138?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 俄罗斯入侵乌克兰 [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 10天了，一件事是显而易见的，[#Putin](https://twitter.com/hashtag/Putin?src=hashtag_click) 普京将永远无法成功占领和统治这个国家 只要俄罗斯人还在乌克兰，他们就会面临炸弹、狙击手和死亡
+
+
+
+> 10 days into [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw)’s invasion of [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) one thing is obvious for all to see, [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) will never be able to successfully occupy & govern the country 
+> 
+> As long as Russians are there, they will face bombs, snipers and death
+> — Marco Rubio (@marcorubio) [March 7, 2022](https://twitter.com/marcorubio/status/1500642584020013066?ref_src=twsrc%5Etfw)
+
+
 
  
 
