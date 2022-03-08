@@ -15,28 +15,28 @@
 
 ---
 
-### [欧洲贵族的真实生活](/content/gnews/1/README.md)
+### [财富跟随人心流动](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [人民币要国际化的本质](/content/gnews/2/README.md)
+### [有良知、有勇气的新中国联邦人](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [共产党对喜币喜联储的恐惧](/content/gnews/3/README.md)
+### [欧洲贵族的真实生活](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [比特币的风险与Hcoin带来的正义的财富](/content/gnews/4/README.md)
+### [新中国联邦书写财富新故事](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [共产党的邪恶](/content/gnews/5/README.md)
+### [人民币要国际化的本质](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [比特币与黄金的风险](/content/gnews/6/README.md)
+### [共产党对喜币喜联储的恐惧](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [Hcoin的真正意义](/content/gnews/7/README.md)
+### [比特币的风险与Hcoin带来的正义的财富](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [独裁政府对货币的控制](/content/gnews/8/README.md)
+### [共产党的邪恶](/content/gnews/8/README.md)
  ` MG FARM`
 
 ### [乌克兰大救援3.8. 英国小提琴老师法语祈福新中国联邦救援乌克兰96名儿童与家人团聚](/content/gnews/9/README.md)

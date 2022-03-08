@@ -17,6 +17,30 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/8/2022 7:51 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动
+![img](https://media.gettr.com/group18/origin/2022/03/08/19/6551010a-fd16-ab17-a530-8b5acb662e25/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/8/2022 7:50 PM (UTC)`
+
+【UKRAINEHELP-004】<br/><br/>新中国联邦和法治基金关于紧急救援乌克兰的通知<br/><br/>Announcement of New Federal State of China & Rule of Law Foundation on Emergency Rescue of Ukraine<br/><br/>Оголошення про створення нової Федеральної Держави Китаю та Фонду верховенства права з надзвичайних ситуацій порятунку України<br/><br/>https://gnews.org/zh-hans/2115789/<br/><br/>24-hour Emergency Rescue Hotline (Phone/Text):<br/>+1 720-657-6776 OR <br/>+1 719-224-4232 OR<br/>+48 508-532-712 OR <br/>+48 508-531-518<br/><br/>Telegram: t.me/UkraineRescue<br/><br/>GETTR: gettr.com/user/UkraineRescue<br/><br/>E-mail: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com<br/>
+![img](https://media.gettr.com/group9/getter/2022/03/08/19/cf570dcc-4900-396b-4304-662c51bb0f0d/5eb452a2ac1a9e2a00bcd201619bebfd.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@ddnyc 3/8/2022 7:15 PM (UTC)`
+
+We stand with our Ukrainian brothers and sisters during these trying times. Here @gfashion, we say yes to FREEDOM and PEACE and no to war and occupation!
+> `@gfashion 3/8/2022 1:17 PM (UTC)`<br/>We stand with peace, not war. 
+![img](https://media.gettr.com/group39/getter/2022/03/08/13/0be820b5-8374-c893-f2ba-3fd21d99c5be/d3ebea8c53d215fffc43b071b4d9a5e9.jpg)
+
+---
+
 `@miles 3/8/2022 6:40 PM (UTC)`
 
 【UKRAINEHELP-004】<br/><br/>为应对乌克兰-波兰边境日益增多的撤离人员和难民，NFSC和法治基金(ROLF)宣布2022年3月15日免费专机的暂定行程，专机航线如下，有可能根据情况做出调整：<br/>1. 从波兰-热舒夫(Rzeszow)机场出发，经加拿大多伦多，前往美国纽约。<br/>2. 从波兰-热舒夫(Rzeszow)机场出发，直飞东南亚某国（待定）。<br/><br/>NFSC和ROLF提供免费专机，以帮助那些受俄罗斯非法入侵影响的人员，这是我们支持在被共产主义和专制政府统治的国家里争取自由的使命的一部分。<br/><br/>如果您需要搭乘我们的专机，请联系我们最新24小时服务热线。所有乘客必须满足其目的地的签证要求。如有需要，NFSC和ROLF将在出发前提供免费食宿。<br/><br/>由于中共控制了邮件服务商，意图破坏我们乌克兰救援行动，之前公布的网站和邮箱已被强行关闭，更新后的24小时紧急救援客服联系方式如下：<br/><br/>24小时客服热线（电话/短信）：<br/>+1 720-657-6776 或 <br/>+1 719-224-4232 或<br/>+48 508-532-712 或 <br/>+48 508-531-518<br/><br/>Telegram： t.me/UkraineRescue<br/><br/>盖特： gettr.com/user/UkraineRescue<br/><br/>邮箱： UkraineRescue01@protonmail.com 或 UkraineRescue02@protonmail.com <br/><br/>NFSC<br/>法治基金<br/>2022年3月8日
@@ -134,27 +158,6 @@
 🇺🇦乌克兰大救援<br/>🇺🇦Ukraine Rescue<br/><br/>🇺🇦24小时紧急救援客服联系方式如下:<br/>邮箱: ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO <br/>电话(短信或电话):<br/>+1 720-657-6776 或 <br/>+1 719-224-4232<br/><br/>🇺🇦24-Hour Emergency Rescue Support Team Contact:<br/>E-mail: ROLF@UKRAINEHELP.INFO OR NFSC@UKRAINEHELP.INFO<br/>Phone (Call or Text): <br/>+1 720-657-6776 OR <br/>+1 719-224-4232<br/><br/>🇺🇦Контакт цілодобової рятувальної служби:<br/>Електронна пошта: <br/>ROLF@UKRAINEHELP.INFO АБО NFSC@UKRAINEHELP.INFO<br/>Телефон (SMS або телефонний дзвінок): <br/>+1 720-657-6776 АБО <br/>+1 719-224-4232<br/><br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 > `@miles 3/7/2022 11:29 PM (UTC)`<br/>乌克兰🇺🇦大救援<br/>Ukraine Rescue<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group46/gvision/2022/03/07/23/d05746e7-5303-c133-d1e0-0fbda6d1b3ae/out.jpg)
-
----
-
-`@miles 3/7/2022 11:20 PM (UTC)`
-
-3/6/2022 Miles Guo: The Russia-Ukraine war has no impact on Xi Jinping's plan to invade Taiwan. Xi will take a much faster and more ruthless approach to attack Taiwan. The CCP has learned the lessons from the Russia-Ukraine war and adjusted its combat tactics against Taiwan. The CCP is secretly moving money in the event of future Western sanctions.<br/><br/>3/6/2022 文贵直播: 俄乌战局对习太阳打台湾的计划毫无影响，习将采取更快更狠的战略攻台；中共吸取了俄乌战争的经验并调整了对台作战战术；中共正在悄悄地搬钱以应对西方未来的制裁<br/>
-![img](https://media.gettr.com/group30/getter/2022/03/07/23/f6796153-b378-308f-23ab-e4e68eedc61d/out.jpg)
-
----
-
-`@miles 3/7/2022 11:17 PM (UTC)`
-
-3/7/2022 Miles Guo’s GETTR: While the CCP remains totally oblivious of the children and migrant workers trapped in Ukraine, they deployed their pawns to harass the emergency rescue hotlines of the New Federal State of China. No words can describe the evilness of the CCP’s pawns and walking dogs; the Ukrainian Embassy to Australia was impressed by the efficiency of our rescue work, and deployed 10 volunteers, and more if needed, to facilitate the rescue effort.<br/><br/>3/7/2022 文贵盖特：中共置乌克兰战区的儿童和农民工于不顾，却让伪类冒充待救援者来骚扰新中国联邦的紧急救援热线，中共及其走狗伪类坏到了极点！乌克兰驻澳洲大使馆惊讶于我们的高效救援，给10名甚至更多义工来支援救助工作。<br/>
-![img](https://media.gettr.com/group7/getter/2022/03/07/23/d821728e-a6c8-3f66-55f8-28a2ac6ea224/out.jpg)
-
----
-
-`@miles 3/7/2022 11:14 PM (UTC)`
-
-3/6/2022 Miles Guo: What are the stories behind Ayrton Senna’s McLaren F1 car? The exchange of Senna’s vehicle has earned the highest credibility for the Himalaya Exchange to be accepted by the royal families in Europe. The value of the Himalaya Coin will certainly surpass that of Bitcoin. Himalaya Coin stands for justice and will never accept tax fraud, money laundering, or collusion with the evil forces<br/><br/>3/6/2022 文贵直播: 塞纳的迈凯轮F1赛车的背后有何故事？这部赛车的交易为喜联储赢得了进入欧洲皇室的信用；喜币的价值一定会超过比特币；喜币代表正义，绝不会接受偷税、洗钱或与邪恶为伍！<br/>
-![img](https://media.gettr.com/group13/getter/2022/03/07/23/3f780d7b-991f-a72a-41ce-14657d2db16d/out.jpg)
 
 ---
 
