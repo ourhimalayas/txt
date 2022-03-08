@@ -2,31 +2,20 @@
 ---
 
 
-## 未来世界的两个财富系统
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2128297/)
+## 星链系统为乌克兰反击俄军提供支持
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2128315/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大温哥华扬帆农场    平民正道
 
-2022-02-25直播摘录
+据加拿大【后千禧年】3月6日报道，俄军本次入侵乌克兰的重要战略之一，就是首先切断乌克兰境内的国际互联网，并毁掉其所有通信网络设施。
 
-很滑稽的一件事情。欧洲，欧洲的欧元，你看现在最近发生啥事情了？欧元和美元的对比，和美元的股市和欧洲的股市。今天我都不愿跟你们深谈股市，因为没人看到其中之奥妙。为啥美国股市先涨后跌？为啥美国拜登总统就是不说清楚，只说制裁没有任何行动？为啥现在欧洲这些国元首都这么害怕，而且不搞实际行动？
+报道称，当乌克兰部分地区的通信网络被俄军破坏后，乌克兰副总理随即请求SpaceX创始人马斯克，希望该公司能向乌克兰提供卫星互联网服务。最终，在马斯克与总统泽连斯基视频会晤后，SpaceX立即为乌克兰提供了一批星链系统设备，以用于被毁城市的网络重建。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+尽管普京一再威胁为乌克兰提供援助的国家，但马斯克无惧恐吓，仍然全力支援危难中的乌克兰，并在关键时刻为该国抵御并反击俄军入侵提供了可靠且强有力的通信保障。
 
-**关注我们**
+* * *
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑： 平民正道    发布：平民正道
 
  
 

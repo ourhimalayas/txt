@@ -2,31 +2,31 @@
 ---
 
 
-## 乌克兰大救援3.8. 英国小提琴老师法语祈福新中国联邦救援乌克兰96名儿童与家人团聚
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2128019/)
+## 未来世界的两个财富系统
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2128297/)
 
-翻译：shanshan
-整理：心声
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-08-at-12.52.24-PM.png)Twitter[@YAO12145531](https://twitter.com/YAO12145531) 截图
+文编：Hima
+听写：叮叮
+视频：七哥
 
+2022-02-25直播摘录
 
-扬帆农场战友米小乐3月7日在其twitter账号写到：Hannah，英国人小提琴老师，知悉新中国联邦在乌克兰救出了90多名小朋友，并安全到达波兰，会在西班牙安顿下来。她用法语录了一段视频，传播新中国联邦在乌克兰的救援！
+很滑稽的一件事情。欧洲，欧洲的欧元，你看现在最近发生啥事情了？欧元和美元的对比，和美元的股市和欧洲的股市。今天我都不愿跟你们深谈股市，因为没人看到其中之奥妙。为啥美国股市先涨后跌？为啥美国拜登总统就是不说清楚，只说制裁没有任何行动？为啥现在欧洲这些国元首都这么害怕，而且不搞实际行动？
 
-Hannah在留言区问：“ 这个活动和中国政府有关吗？”我们回复：这是新中国联邦，和你们一样对中国共产党说不！NFSC将重建中国人的信仰和法治。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
-> Hannah，英国人小提琴老师，知悉新中国联邦在乌克兰救出了90多名小朋友，并安全到达波兰，会在西班牙安顿下来。她用法语录了一段视频，传播新中国联邦在乌克兰的救援！
-> Hannah：“ 这个活动和中国政府有关吗？”我们回复：这是新中国联邦，和你们一样对中国共产党说不！NFSC将重建中国人的信仰和法治。 [pic.twitter.com/FZe4aa3Td9](https://t.co/FZe4aa3Td9)
-> — 米小乐（扬帆） (@YAO12145531) [March 7, 2022](https://twitter.com/YAO12145531/status/1500905755666378753?ref_src=twsrc%5Etfw)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-
-Hannah在其个人视频里的法语与中文翻译讲话内容如下：
-
-Ce matin le Nouvel Etat Fédéral de Chine, une association caritative a sauvé 96 enfants dont les parents doivent rester en Ukraine pour se battre dans la guerre horrible. Ces enfants seront établis à Barcelone avec des familles espagnoles et quand les parents pourront s’échapper aussi le Nouvel Etat Fédéral de Chine va les réunir. Tout le monde prie pour que le voyage se déroule en toute sécurité!
-
-今天上午，新中国联邦州的慈善机构救援了96名儿童，他们的父母不得不留在乌克兰，在可怕的战争中作战。这些孩子将被安置在巴塞罗那的西班牙人家庭中，当父母也能逃脱时，新中国联邦将让他们团聚。每个人都在为安全的旅程祈祷！
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

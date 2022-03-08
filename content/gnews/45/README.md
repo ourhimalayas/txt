@@ -2,79 +2,22 @@
 ---
 
 
-## 参议员卢比奥： 正在制定法规对中共国实施制裁,一旦发现中共用他们的CIPS系统来帮助俄罗斯绕过SWIFT制裁的话
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2123914/)
+## 国际｜俄罗斯公布“不友善国家”名单 将台湾视为国家被嘲“颠覆中共”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2124668/)
 
-参议员马可·卢比奥： 我正在制定法规。如果我们发现中共国试图使用他们的跨境国际支付系统 (CIPS) 来帮助 俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 绕过 SWIFT 制裁，本法规将对 中共国 [#China](https://twitter.com/hashtag/China?src=hashtag_click) 实施制裁 【转报道：中共国的支付系统能否成为俄罗斯的SWIFT解决方案？】
+**撰文/ 港台前线｜发布日期/ 08/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄羅斯公佈「不友善國家」名單-將台灣視為國家被嘲「顛覆中共」.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
+自俄罗斯入侵乌克兰后，多国联手祭出制裁，俄罗斯政府周一提出反制，签署了一份对俄罗斯以及其企业、公民不友善国家的“黑名单”，美国、加拿大、欧盟国家、英国、乌克兰、瑞士、日本、韩国、澳洲、纽西兰、新加坡、台湾等通通在列。
 
+根据俄罗斯当局的命令，俄罗斯政府、民间企业或公民，如果跟清单上的国家有债务关系，俄罗斯方面的债务人可直接以卢布偿还，并以俄罗斯央行公布的卢布汇率为准。
 
-> I am working on legislation that would impose sanctions on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) if we catch trying to use their Cross-Border International Payments System (CIPS) to help [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) get around SWIFT sanctions
-> 
->  [https://t.co/SWFg8pr7Vp](https://t.co/SWFg8pr7Vp)
-> — Marco Rubio (@marcorubio) [March 8, 2022](https://twitter.com/marcorubio/status/1501028230718967817?ref_src=twsrc%5Etfw)
+不过，这份名单最有意思并不是这点，而是有一个国家被冠上了特别标注，台湾。照理说，凭俄罗斯和中共的关系，台湾是不应该出现任何一份以国家为基本单位的正式公文之中，但由于此次针对俄罗斯的制裁，台湾政府多次表示会追随美欧国家的制裁措施，并公开谴责俄罗斯对乌克兰的军事行动。
 
+因此，俄罗斯在列出台湾为不友善国家的同时，特意在后面加注“被认为是中国，但1949年以后由自己的政府统治”等字样。这样欲盖弥彰的行为，引起网友热议，有人嘲讽，“中共老大哥支持『台独』”，还有人去中共外交部发言人的社交平台留言，催促“外交部发声明谴责俄罗斯颠覆『一中』原则”。
 
-
-参议员汤姆.科顿： 两党都犯了这一代人最严重的错误之一是：给予共产主义中国永久最惠国待遇、并让其加入世界贸易组织。
-
-
-
-> Both parties are complicit in one of the single worst mistakes of this generation: granting Communist China Permanent Most Favored Nation status and admitting it into the World Trade Organization.
-> — Tom Cotton (@SenTomCotton) [March 8, 2022](https://twitter.com/SenTomCotton/status/1501023399174365185?ref_src=twsrc%5Etfw)
-
-
-
-众议员马乔丽·泰勒·格林： 民主党人不在乎汽油价格有多高，因为他们希望美国人放弃并购买电动汽车。 那么美国人想开车就要依赖 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)，因为 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 以超过85%的比例在电动汽车电池市场上占据主导地位，而美国则不到5%。 民主党(实践的)是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 优先。
-
-
-
-> Democrats don’t care how high gas prices go because they want Americans to give up and buy electric vehicles.
-> 
-> Then Americans will rely on China to drive because China dominates the EV battery market at over 85%, and America is less than 5%.
-> 
-> Democrats are China First.
-> — Rep. Marjorie Taylor Greene (@RepMTG) [March 8, 2022](https://twitter.com/RepMTG/status/1501003963285622787?ref_src=twsrc%5Etfw)
-
-
-
-美前国务卿迈克·蓬佩奥： 认为我们会允许俄罗斯人参与与伊朗人的协议谈判，或者美国会取消对伊朗人的恐怖指控，这完全是疯了。伊朗人正试图在世界各地杀人。 但拜登政府正在同时做这两件事。
-
-
-
-> It’s completely nutty to think that we would allow the Russians to participate in negotiating a deal with the Iranians or that the U.S. would lift the terror designations on the Iranians, who are trying to kill people all across the world. 
-> 
-> But the Biden Admin is doing both. [pic.twitter.com/W9SmYpUdHr](https://t.co/W9SmYpUdHr)
-> — Mike Pompeo (@mikepompeo) [March 7, 2022](https://twitter.com/mikepompeo/status/1500962806576861184?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥： 普京会毫不犹豫地在乌克兰上演生物武器假戏码，这是你会看到的那种信息舆论作为他这样做的前奏。 【转ASB军事新闻推文：大意是俄国公布文件说乌克兰在靠近俄边境研究违反联合国1号文件的生物武器，他们是由美国资助的，在五角大楼指导下已被摧毁】
-
-
-
-> [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) would not hesitate to stage or carry out a biological weapon false flag in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) and this is the kind of messaging you would see as a prelude to him doing that [pic.twitter.com/a8OpRu7hyF](https://t.co/a8OpRu7hyF)
-> — Marco Rubio (@marcorubio) [March 7, 2022](https://twitter.com/marcorubio/status/1500940810455502861?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 被全球支付网络隔绝的俄罗斯银行正在转向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的国有银行系统。
-
-
-
-> Russian banks cut off from global payment networks are turning to China’s state-run banking system.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 7, 2022](https://twitter.com/MarshaBlackburn/status/1500933383521812491?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿蓬佩奥： 台湾人民从一开始就已经意识到了中国共产党的威胁。世界从台湾人民对中共极度现实的不信任中得到启发。
-
-
-
-> The Taiwanese people have been awake to the Chinese Communist Party’s threat from the beginning. The world drew inspiration from the Taiwanese people’s profound and realistic distrust of the CCP.
-> — Mike Pompeo (@mikepompeo) [March 7, 2022](https://twitter.com/mikepompeo/status/1500890828054712330?ref_src=twsrc%5Etfw)
-
-
+来源｜[俄罗斯通讯社](https://tass.com/politics/1418197?utm_source=google.com.hk&amp;utm_medium=organic&amp;utm_campaign=google.com.hk&amp;utm_referrer=google.com.hk)
 
  
 

@@ -2,38 +2,31 @@
 ---
 
 
-## 德国健康保险公司数据证实政府严重低报疫苗副作用人数
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2127717/)
+## 乌克兰大救援3.8. 英国小提琴老师法语祈福新中国联邦救援乌克兰96名儿童与家人团聚
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2128019/)
 
-加拿大温哥华扬帆农场 – 视频组
+翻译：shanshan
+整理：心声
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-08-at-12.52.24-PM.png)Twitter[@YAO12145531](https://twitter.com/YAO12145531) 截图
 
-Edward: 你看到德国昨天的消息了吧？真是太令人震惊了。
 
-Del: 是的，你所说的引起了我们的重视，我们正想跟你谈谈，请详细讲解，这事太大了，到底是怎么回事？
+扬帆农场战友米小乐3月7日在其twitter账号写到：Hannah，英国人小提琴老师，知悉新中国联邦在乌克兰救出了90多名小朋友，并安全到达波兰，会在西班牙安顿下来。她用法语录了一段视频，传播新中国联邦在乌克兰的救援！
 
-Edward: 最根本的是，这是一场全球范围的大欺骗，不仅仅发生在美国，德国健康保险公司昨天对公众说，撇开死亡数不说，政府低报了疫苗副作用的人数。
+Hannah在留言区问：“ 这个活动和中国政府有关吗？”我们回复：这是新中国联邦，和你们一样对中国共产党说不！NFSC将重建中国人的信仰和法治。
 
-Edward: 他们对大量客户的数据分析发现了低报系数是10倍，因此他们认为实际疫苗副作用的数量是政府报告的十倍以上，他们还说我们必须公开这个信息，因为通常他们只在内部保留真实数据用于定价。而这件事实在是太谎谬了，必须公诸于众，因为这是一个伦理道德品质的问题。
 
-Del: 这是一个大约有1000至1100万用户的保险总项目，有一个超过25万人数的分项，他们用ICD进行编号，搞清人们为何付款、为何申报、为何住院，他们发现有几十万人拿到了疫苗伤害的编号。
 
-Del: 昨天你说的这些已经引起了我们的关注，有些人现在第一次听到，这事太大了，而这仅是保险公司的内部数据，政府看到的是百万数量级的民众正在受到疫苗所害，是否该有人站出来做些什么？这些数字已经失控了。
+> Hannah，英国人小提琴老师，知悉新中国联邦在乌克兰救出了90多名小朋友，并安全到达波兰，会在西班牙安顿下来。她用法语录了一段视频，传播新中国联邦在乌克兰的救援！
+> Hannah：“ 这个活动和中国政府有关吗？”我们回复：这是新中国联邦，和你们一样对中国共产党说不！NFSC将重建中国人的信仰和法治。 [pic.twitter.com/FZe4aa3Td9](https://t.co/FZe4aa3Td9)
+> — 米小乐（扬帆） (@YAO12145531) [March 7, 2022](https://twitter.com/YAO12145531/status/1500905755666378753?ref_src=twsrc%5Etfw)
 
-Edward: 让我把这些数字统计出来，在德国自己的疫苗副作用样本里，德国有8300万人口，有2.5至3百万人有副作用或进行了申报，比例占总人口的3.6%，这还不包括没有申报的或没有去看医生的…
 
-Del: 以及副作用还没出现的人群。
 
-Edward: 没错！如果你做一下统计，每25个人中就有1个人产生了疫苗不良反应。1/25，在此之前从没有哪种药在这样的情况下被通过。
+Hannah在其个人视频里的法语与中文翻译讲话内容如下：
 
-素材：文倩
+Ce matin le Nouvel Etat Fédéral de Chine, une association caritative a sauvé 96 enfants dont les parents doivent rester en Ukraine pour se battre dans la guerre horrible. Ces enfants seront établis à Barcelone avec des familles espagnoles et quand les parents pourront s’échapper aussi le Nouvel Etat Fédéral de Chine va les réunir. Tout le monde prie pour que le voyage se déroule en toute sécurité!
 
-翻译：Sarah Zhou
-
-校对：啊啊小苹果
-
-字幕：文雅
-
-编辑/上传：野草
+今天上午，新中国联邦州的慈善机构救援了96名儿童，他们的父母不得不留在乌克兰，在可怕的战争中作战。这些孩子将被安置在巴塞罗那的西班牙人家庭中，当父母也能逃脱时，新中国联邦将让他们团聚。每个人都在为安全的旅程祈祷！
 
  
 
