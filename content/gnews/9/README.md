@@ -2,32 +2,37 @@
 ---
 
 
-## 德国建材装饰连锁巨头欧倍德（OBI）撤出俄罗斯市场
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2125367/)
+## 2022/03/04  乌克兰境内核电站能引发世界级灾难
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2125607/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
+**简评：**
 
-**整理/编辑：**翼族
+乌克兰国家应急服务部门称，乌克兰境内欧洲最大的扎波罗热核电站大火已经被扑灭。在华盛顿DC的乌克兰议员Oleksandra Ustinova表示，需要在乌克兰境内设立禁飞区，关闭乌克兰领空。否则，任何一枚俄罗斯火箭，或者导弹击中乌克兰境内四座核电站的任何一座，就会引发一场世界级的灾难。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/030804.jpg)
+[GETTR视频链接](https://gettr.com/post/pyhsx226a1)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/92613_Klipart_Ekaterinburg_tts_obi_obi_250x0_5752.3840.0.0.jpg)Oops Top
+**视频字幕：**
+
+**主持人：**乌克兰国家应急服务部门称，今晚发生在欧洲最大核电站附近的大火已被扑灭，官员说火灾始于核电站后面的一个训练营地。现在加入讨论的是一名乌克兰议会成员，她现在位于华盛顿特区，感谢你在深夜过来参加节目。关于核电站的情况，你有什么可以告诉我们的？
+
+**乌克兰议员Oleksandra Ustinova：**我能得知的信息就是目前火灾已被扑灭，但是很不幸，恕我直言，我们一直在告诉世界的事，也许有一天真的会发生。我国境内有四座核电站，其中一个已完全被俄军占据，那就是大家都知道的切尔诺贝利。另一座在扎波罗热，扎波罗热的这座是全欧洲最大的核电站之一。很不幸的是，我们无法掌控俄罗斯的导弹，这也是我们一直在告诉全世界的，我们需要（在乌克兰）建立禁飞区，将领空关闭。否则，当某一枚火箭、导弹击中其中一个核电站，就会引发下一场世界级的灾难。
 
 
-由于俄罗斯入侵乌克兰，越来越多的西方国家开始对俄罗斯实施经济制裁。2022年3月8日，来自德国的建材装饰连锁巨头欧倍德（OBI）公司宣称将撤出俄罗斯市场。
 
-欧倍德公司创建于1970年，总部设在德国，是国际著名的建材家居装饰跨国连锁集团，专业经营建筑材料、五金工具、厨卫用品、家用电器、家居用品和花卉园艺产品。其控股公司是德国廷格尔曼集团（Tengelmann）。欧倍德在德国的市场知名度高达92%，是德国建材装饰零售市场的代名词。
+*字幕：free20200604|听写：云岭|翻译：nights|校对：Blue|简评/文字整理/编辑：胖丁*
 
-Baumarkt Manager杂志援引欧倍德公司的一份声明称：“欧倍德正在关闭俄罗斯的家居用品商店”。目前欧倍德在俄罗斯有27家大型商店和4900名员工。
+* * *
 
-早些时候，全球最大的服装、鞋类和配饰销售商之一的H&M集团零售连锁店暂停了在俄罗斯的销售。美国苹果公司和Netflix公司，以及耐克和阿迪达斯也做出了同样的决定。来自瑞典的家居巨头宜家（IKEA）也发表了类似的声明。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-*发布：翼族*
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

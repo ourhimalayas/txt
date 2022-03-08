@@ -2,22 +2,22 @@
 ---
 
 
-## 泽连斯基将向英国会发表演说
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2125296/)
+## 樱花FM|快讯：岸田首相表示日本接受乌克兰难民
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2125601/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-07t234229z_1019218434_rc2zxs9kff1w_rtrmadp_3_ukraine-crisis-zelenskiy.jpg)乌克兰总统泽连斯基明晨将向英国国会发表演说。（法新社）
-乌克兰总统泽连斯基将于周二（3月8日）通过视频方式，向英国国会发表演说。
+音频：东京樱花团/战友520
 
-据路透社报道，自俄罗斯入侵乌克兰以来，泽连斯基曾与英国首相约翰逊多次通话，上周也向欧洲联盟发表演说，寻求欧盟成员国给予物资和军事援助。
+![](https://lh5.googleusercontent.com/UbODCyl_Qm3Ysd-KXPx21zpMJefYvQjhtGZwO9p-EL7N-KLhgLvdOHFukhqWAu_21XJ0OdDFAg_hDiEjGTRQi7JduwzPgQft_K0mxD_To0PK4DdaEkr4I9pW1-1s4xUziQiCVwCX)
 
-泽连斯基将于8日格林威治标准时间下午5时（新加坡时间9日凌晨1时）向英国国会发表演讲。这是国家总统首次向英国议会发表演说。届时英国议员将通过隔夜安装的屏幕观看演说，现场也有500部耳机提供同步传译。
+3月2日雅虎新闻在线消息，岸田文雄首相和德国总理朔尔茨及波兰总理莫拉维茨基进行电话交谈后对记者表示，他将推动为乌克兰人民提供紧急人道主义援助，并接受逃离其国家的人进入日本。
 
-原文链接：[https://www.zaobao.com.sg/realtime/world/story20220308-1250228](https://www.zaobao.com.sg/realtime/world/story20220308-1250228)
+首先，接受在日本有亲戚和熟人的难民，但不限于此，将从人道主义的角度来应对，会在未来做出具体的调整，和边境对策也会分开考虑。
 
-审核校对：Barry Jack
-上传排版：F
+文字版原文：[快讯：岸田首相表示日本接受乌克兰难民](https://gnews.org/zh-hans/2094295/)
 
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

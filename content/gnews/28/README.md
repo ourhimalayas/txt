@@ -2,46 +2,22 @@
 ---
 
 
-## 救援前线报道：成功营救出96个乌克兰孩子和他们的老师
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2124641/)
+## 国际｜俄罗斯公布“不友善国家”名单 将台湾视为国家被嘲“颠覆中共”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2124668/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
+**撰文/ 港台前线｜发布日期/ 08/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄羅斯公佈「不友善國家」名單-將台灣視為國家被嘲「顛覆中共」.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
+自俄罗斯入侵乌克兰后，多国联手祭出制裁，俄罗斯政府周一提出反制，签署了一份对俄罗斯以及其企业、公民不友善国家的“黑名单”，美国、加拿大、欧盟国家、英国、乌克兰、瑞士、日本、韩国、澳洲、纽西兰、新加坡、台湾等通通在列。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-47.png)
-3月4日，被困在乌克兰一个核电站的老师联系到小飞象，希望得到救援，他们想把90多个孩子送到西班牙收养家庭去。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-24.jpg)
-小飞象得知后立即将此事向郭先生汇报，随后根据郭先生发出的立即救援的指示，迅速回复老师并告诉他们波兰的接应地点。为保证安全，战友们还为他们提供了一些可行的路线信息参考。
+根据俄罗斯当局的命令，俄罗斯政府、民间企业或公民，如果跟清单上的国家有债务关系，俄罗斯方面的债务人可直接以卢布偿还，并以俄罗斯央行公布的卢布汇率为准。
 
-目前孩子们已经在顺利从海关出来，战友正送他们宾馆休息，他们休整后的下一站就是我们西班牙农场所在地西班牙巴塞罗那。我们农场团队会在文戈站长的带领下继续全程跟踪服务！
+不过，这份名单最有意思并不是这点，而是有一个国家被冠上了特别标注，台湾。照理说，凭俄罗斯和中共的关系，台湾是不应该出现任何一份以国家为基本单位的正式公文之中，但由于此次针对俄罗斯的制裁，台湾政府多次表示会追随美欧国家的制裁措施，并公开谴责俄罗斯对乌克兰的军事行动。
 
-这几十个孩子是上天派来的小天使，是在帮我们救赎人类自己，他们是新中国联邦的孩子，是人类的孩子，他们必将随着新中国联邦茁壮成长，在全世界生根发芽，长成参天大树。他们必将把我们新中国联邦的爱，把上天的爱传递到每一个角落。
+因此，俄罗斯在列出台湾为不友善国家的同时，特意在后面加注“被认为是中国，但1949年以后由自己的政府统治”等字样。这样欲盖弥彰的行为，引起网友热议，有人嘲讽，“中共老大哥支持『台独』”，还有人去中共外交部发言人的社交平台留言，催促“外交部发声明谴责俄罗斯颠覆『一中』原则”。
 
-参考来源：
-
-[https://gettr.com/post/pyktuo6409](https://gettr.com/post/pyktuo6409)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-24.jpg)
-
-
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-48.png)
-
+来源｜[俄罗斯通讯社](https://tass.com/politics/1418197?utm_source=google.com.hk&amp;utm_medium=organic&amp;utm_campaign=google.com.hk&amp;utm_referrer=google.com.hk)
 
  
 
