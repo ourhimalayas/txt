@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：教育的本质
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2128906/)
+## 七哥金句：让我们的孩子和老人过得更好
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2128961/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句1-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句3.png)
 整理：雅典娜农场
 发布：枫叶红了
 

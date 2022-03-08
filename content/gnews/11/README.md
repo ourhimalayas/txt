@@ -2,119 +2,60 @@
 ---
 
 
-## 南希·梅斯：没有一个美国人希望他们的车里有俄罗斯汽油
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2128846/)
+## 黑道治国 | 中共动用国家力量黑客掉新中国联邦乌克兰救援行动Email
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2128865/)
 
-There are a lot of different areas from their supply chain
-那里有许多的不同的领域，从他们的供应链
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-his banking relationships, the Swift issue that needs to be 100% cut off
-他的银行关系，需要 100% 切断的Swift的问题
+3月8日，郭文贵先生于Gettr视频中透露，中共出于对新中国联邦乌克兰无偿救援的恐惧，再次集结国家级黑客力量对救援Email地址进行攻击篡改。而后，郭先生于自己的Gettr公布了救援计划和新的Email联系方式。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1_RImxj85v_C3u6xAOGcs52g.jpeg)图片来源have8
 
-We have not done that yet
-我们还没有这样做
 
-I think they still think that if we go easy
-我认为他们仍然认为如果我们放软弱
+战火纷飞的乌克兰救援本来就困难重重，不仅要躲避枪林弹雨的袭击，还要时刻与恶意破坏救援行动的中共搏斗、打信息战。现在全世界各界人士、各国媒体和国际救援组织都在关注和赞赏新中国联邦在乌克兰前线的救援行动，唯一代表中国人的中国团体在拯救素未谋面的中国同胞、乌克兰的妇女和孩子、以及其他国际人士。现在中共出于对救援行动的无限恐惧与嫉妒，动用了国家级别的力量把新中国联邦此次乌克兰救援行动的Email地址和扫描二维码黑客掉，紧接着用那些Email地址实施嫁祸或者欺骗的犯罪。真是应验了那句老话，中共干好事不行，干坏事天下第一。
 
-we play footsie with that somehow we’ll talk our way out of this
-在某种程度上我们在示弱，我们会谈论我们的出路
+要知道，所有新中国联邦在前线所做的一切，正是为了拯救困于乌克兰的中国同胞和其他国际人士，也是在拯救全中国人民、海外同胞的国际形象，更是在拯救华人孩子的未来。感谢所有前线救援人员和正在赶赴前线救援人员的付出，以及感谢为了救援行动而付出的所有人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/bf8438731408b60f88add86c97561f40.jpg)图片来源Miles Guo Gettr
 
-That’s not going to happen
-这是不会发生的
 
-John Bechman (Newsmax TV anchor & host)
-约翰·巴赫曼（Newsmax 电视主播和主持人）
+中共的打救援电话骚扰和国家级黑客等一切下三滥的符合中共本性的肮脏手段，并不能阻挡我们救援的决心和救援行动。
 
-Is that the way to characterize the way
-这就是表征方式的方式吗
+为应对乌克兰-波兰边境日益增多的撤离人员和难民，NFSC和法治基金（ROLF）宣布2022年3月15日免费专机的暂定行程，专机航线如下，有可能根据情况做出调整：
 
-the administration is handling the sanctions so far
-到目前为止，政府正在处理制裁
+1. 从波兰-热舒夫（Rzeszow）机场出发，经加拿大多伦多，前往美国纽约。
 
-playing footsie with Putin?
-对普京示弱？
+2. 从波兰-热舒夫（Rzeszow）机场出发，直飞东南亚某国（待定）。
 
-Nancy Mace (U.S. Congresswoman)
-南希·梅斯（美国国会女议员）
+NFSC和ROLF提供**免费专机**，以帮助那些受俄罗斯非法入侵影响的人员，这是我们支持在被共产主义和专制政府统治的国家里争取自由的使命的一部分。
 
-Well, certainly the President Biden’s that he could go toe to toe with Putin
-好吧，拜登总统当然认为他可以与普京针锋相对
+如果您需要搭乘我们的专机，请联系我们最新24小时服务热线。所有乘客必须满足其目的地的签证要求。如有需要，NFSC和ROLF将在出发前提供免费食宿。
 
-and he has been playing footsie instead
-但是他选择示弱
+由于中共控制了邮件服务商，意图破坏我们乌克兰救援行动，之前公布的网站和邮箱已被强行关闭，更新后的24小时紧急救援客服联系方式如下：
 
-But it’s not just Republicans that are asking for more sanctions
-但要求更多制裁的不仅仅是共和党人
+24小时客服热线（电话/短信）：
 
-I’ve been involved with meetings and in some briefings with both Republicans and Democrats alike
-我参与了与共和党人和民主党人的会议和一些简报会
++1 720-657-6776 或
 
-and Democrats are too asking for President Biden to do more
-民主党人也要求拜登总统做更多事情
++1 719-224-4232 或
 
-And we’ve seen other countries around the world shut off their oil imports from Russia
-我们已经看到世界上其他国家关闭了从俄罗斯进口的石油
++48 508-532-712 或
 
-We know that Putin funds his war regime and these battles
-我们知道普京资助他的战争政权和这些战斗
++48 508-531-518
 
-and these fights with the oil and gas economy
-这些与石油和天然气经济的斗争
+Telegram： t.me/UkraineRescue
 
-he has created around the world, including the United States
-他在世界各地制创的，包括美国
+盖特： [https://gettr.com/user/UkraineRescue](https://gettr.com/user/UkraineRescue)
 
-We import 600,000 barrels of Russian oil every day
-我们每天进口 60 万桶俄罗斯石油
+邮箱： [\[email protected\]](/cdn-cgi/l/email-protection#0b5e60796a62656e596e78687e6e3b3a4b7b79647f6465666a626725686466)
 
-And I know there’s not one single American in our country today
-我知道今天我们国家没有一个美国人
+或 [\[email protected\]](/cdn-cgi/l/email-protection#d481bfa6b5bdbab186b1a7b7a1b1e4e694a4a6bba0bbbab9b5bdb8fab7bbb9)
 
-that wants to put one gallon of Russian gas in their car
-在看到在乌克兰所发生的事情后
+NFSC
 
-seeing what’s going on in Ukraine
-还想在车里加一加仑的俄罗斯汽油
+法治基金
 
-There’s more to do in the sanctions that happened on if you read the fine print
-如果您阅读细则，那么在发生的制裁中还有更多工作要做
+2022年3月8日
 
-there are carve outs and so not all of the oligarchs
-有特例，所以不是制裁所有的寡头
-
-and their entire families are being targeted the way that they should be
-他们的整个家庭正以应有的方式成为目标
-
-And there’s more that we should be done
-还有更多我们应该做的
-
-both with banking with personal sanctions
-与银行业务和个人制裁的两方面
-
-and sanctions on those hosts in his inner circle
-并制裁他核心圈子里的那些大老们
-
-原视频链接[https://twitter.com/newsmax/status/1499452680258957316?s=24](https://twitter.com/newsmax/status/1499452680258957316?s=24)
-
-Date:03/04/2022
-原视频标题:Nancy Mace: Not one single American wants Russian gas in their car
-南希·梅斯：没有一个美国人希望他们的车里有俄罗斯汽油
-原视频日期：2022/03/04
-原视频链接https://twitter.com/newsmax/status/1499452680258957316?s=24
-任务编号：3922
-视频时间段 : 0:00-1:31
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+原文盖特链接：[https://gettr.com/post/pywg9uf691](https://gettr.com/post/pywg9uf691)
 
  
 
