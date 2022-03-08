@@ -2,22 +2,40 @@
 ---
 
 
-## 2万多名外国志愿者申请加入乌克兰特种部队与俄罗斯军队作战
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2123464/)
+## 有声|新闻背景——乌克兰与欧盟
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2123555/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-675.png)[图片来源](https://msp.c.yimg.jp/images/v2/FUTi93tXq405grZVGgDqG93Zojd5G44eypSXWFiEGagDhw7F_zkRl0_4Xpdsuafby4iZTldufLUyozbcCsSNUfSjGG30OmvU4Z_NFs3QXtonk9LX5-RYqrcpjNWYY5caAGvuoLsTT-8NQsQDwzOk4SvPCUhm3Rego0CPlq8FWwBGdhvqyddQl6fnJuM_88gVddtrnLBqUTDFx2qpz8tm0BtCveXATHKc)
-美国有线电视新闻网报道，乌克兰国防部宣布成立了一个特殊部队“国际部队”，并开始执行打击俄罗斯入侵的战斗任务。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+1993年11月1日，欧盟正式诞生。欧盟是欧洲多国共同建立的政治及经济联盟，现拥有的27个成员国都是民主国家。大部分的欧盟成员国属于北大西洋公约(简称北约)组织成员。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-06-%E4%B8%8A%E5%8D%8810.57.46.png)
+苏联解体后，乌克兰属于“新东欧国家”之一，乌克兰东接俄罗斯，西接波兰等国，在地缘政治上意义非常重大，乌克兰在俄罗斯和欧盟的博弈中举足轻重。
 
-负责监督该部门的国防部情报局局长基里洛·布达诺夫准将说，希望加入的有来自 52 个国家的 20,000 多名志愿者。
+2014年乌克兰与欧盟签署了政治与经济协定并获得欧盟议会和乌克兰国会批准通过，此协定是乌克兰迈向加入欧盟的第一步。然而俄罗斯普京态度强硬，要求乌克兰保持“中立”，打消乌克兰申请加入欧盟的意图。
 
-布达诺夫先生感谢志愿者，指出他们中的大多数人在世界各地的维和行动中经验丰富。他说 “任何支持都是宝贵的”。
+2022年2月24日 俄罗斯入侵乌克兰，乌克兰总统泽连斯基率领人民拼死抵抗。2022年2月28日，乌克兰总统泽连斯基宣布签署了申请加入欧盟的文件，呼吁欧洲联盟紧急通过让乌克兰正式加入欧盟。3月1日乌克兰驻欧盟代表提交文件，总统泽连斯基发表电视讲话，欧盟全体参会人员起立鼓掌，支持乌克兰申请加入欧盟。欧盟委员会主席冯德莱恩提议，给予乌克兰紧急通道待遇，尽快让乌克兰加入欧盟，成为欧盟成员国。
 
-信息来源：[**外国人義勇兵２万人超、ロシア軍と戦う特殊部隊への参加希望　ウクライナ発表**](https://news.yahoo.co.jp/articles/18c40ea33e7bc3189c9caba7c409d4a9ea7e89d8)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+
+文字版原文：[新闻背景——乌克兰与欧盟](https://gnews.org/zh-hans/2115955/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

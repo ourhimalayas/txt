@@ -2,38 +2,20 @@
 ---
 
 
-## 有声|爱尔兰总统确诊中共病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2123493/)
+## 日本15万人捐款40亿支持乌克兰 大使馆致谢
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2123588/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-爱尔兰总统希金斯（Michael D. Higgins）办公室发言人今天表示，希金斯确诊感染中共病毒，症状轻微。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide13-2.jpeg)
-80岁的希金斯和妻子莎宾娜计划走访都柏林北郊一所学校，但随后二人相继确诊。发言人还补充称，总统夫妇都接种了中共病毒疫苗加强针。据称总统夫妇中共病毒检测呈阳性，未来7天将在家进行隔离，他们仍将继续在家工作。这是希金斯首次确诊中共病毒。
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-678.png)[图片来源](https://english.madhyamam.com/world/japan-evacuates-embassy-ukraine-border-tension-continues-933466)
+乌克兰驻日本大使馆在推特上宣布，自3月7日开设专门银行账户以支持俄罗斯入侵乌克兰的人道主义援助以来，已募集到近15万人次，40亿日元的捐款。
 
-爱尔兰在疫情高峰期间，曾施行某些欧洲时间最长、最严格的防疫限制措施，但大多已经解除。进店内购物、上学必须强制佩戴口罩的规定已于2月28日解除，但确诊后必须隔离的规定仍未松绑。
+乌克兰驻日本大使馆表示，“非常感谢日本友人在乌克兰人民这个困难时期给予的支持。”
 
+信息来源：[**ウクライナへの寄付40億円に　15万人と在日大使館謝意**](https://news.yahoo.co.jp/articles/74fc377355dfee698d7c218884527787e84139cd)
 
-
-文字版原文：[爱尔兰总统确诊中共病毒](https://gnews.org/zh-hans/2116148/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
