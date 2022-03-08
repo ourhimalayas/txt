@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/8/2022 2:51 AM (UTC)`
+
+03/08/2022 文贵送给中国和全世界三八妇女节的特别礼物🎁🎁🎁🌹🌹🌹❤️❤️❤️<br/><br/>03/08/2022 A Special Gift from Miles Guo to All Women in China and the World on International Women’s Day🎁🎁🎁🌹🌹🌹❤️❤️❤️<br/><br/>《铁锁梦 Chained Dream》<br/><br/>我本花一朵<br/>A beautiful budding rose<br/> <br/>被拐骗山中<br/>abducted to the mountains<br/> <br/>从此亲人永相隔<br/>forever separated from my family since<br/> <br/>囚禁二十年我受尽了折磨<br/>Locked up and tormented for two decades<br/> <br/>这个世界不要我<br/>This world has abandoned me<br/> <br/>醒来吧 别再如此冷漠<br/>Wake up, stop being stone cold<br/> <br/>醒来吧 抛掉所有懦弱<br/>Wake up, shake off all cowardice<br/> <br/>只为能紧握住亲人手<br/>In order to hold hands of my loved ones<br/> <br/>要埋葬那邪恶的中共<br/>the evil CCP must be buried<br/> <br/>牙齿全拔落<br/>My teeth all pulled<br/> <br/>铁锁已斑驳<br/>shackles mottled<br/> <br/>这就是我的一生<br/>this is my life in its entirety<br/> <br/>你若不醒来<br/>If you stay asleep<br/> <br/>还在梦里游走<br/>and wander in your dreams<br/> <br/>永世地狱做猪狗<br/>You’ll be slaves in hell
+![img](https://media.gettr.com/group24/getter/2022/03/08/02/9fff7d3b-051e-3009-6423-152da99eda1c/out.jpg)
+
+---
+
 `@miles 3/8/2022 2:29 AM (UTC)`
 
 3/6/2022 Miles Guo: The situation in Hong Kong will only get worse! If the CCP invades Taiwan, the Allied Forces will definitely join the war. The CCP’s military bases in Fujian, Dalian, Hainan, Guangdong, Jiangxi, and Henan will be completely destroyed in 3 minutes!<br/><br/>3/6/2022 文贵直播: 香港的情况只会变得更坏！中共打台湾的话，联军一定会参战；福建、大连、海南、广东、江西、河南等地的中共军事基地将遭到毁灭性打击，3分钟就会被摧垮！
@@ -148,13 +155,6 @@
 
 💦💦💦Ukraine Humanitarian Rescue Operation of the Rule of Law Foundation & Rule of Law Society <br/><br/>🌈🌈🌈Special thanks to the ROLF & ROLS for providing the critical and decisive function during the rescue mission. The ROLF & ROLS play a key role and provide all the supports for this rescue operation. #ROLFrescue #NFSCrescue  #CCP≠Chinese<br/><br/>💥💥💥If you have family to be rescued in #ukraine , please go to website Ukrainehelp.info <br/><br/>Here is the 24-Hour Emergency Rescue Support Team Contact: <br/>💌💌💌Email: ROLF@UKRAINEHELP.INFO OR NFSC@UKRAINEHELP.INFO <br/><br/>☎️☎️☎️Phone (Call or Text): +1 720-657-6776 OR +1 719-224-4232
 ![img](https://media.gettr.com/group38/origin/2022/03/07/21/5848c027-8f29-0334-aeb6-a84e427ef6e4/out.jpg)
-
----
-
-`@miles 3/7/2022 8:32 PM (UTC)`
-
-FDA released Pfizer COVID vaccines data with more than 1,200 side effects. Pfizer knew about the side effects of the COVID vaccines one year ago (i.e. February 28, 2021). They had it documented in this document that they didn't want to release for 70 years. They wanted to hide it from us until our grandchildren are literally adults. If Pfizer knew about this, that means our public health officials including Dr. Fauci knew about this and they hid this from the American people. #VaccineSideEffects #FDA #CDC<br/><br/>FDA公布了辉瑞中共病毒疫苗数据，有超过1200种副作用。辉瑞去年2021年2月28号就知道中共病毒疫苗的副作用，他们记录在这个70年不想公布的文件中，他们想对我们隐瞒到我们的孙子长大成人。如果辉瑞知道，那么意味着包括福奇博士在内的公共卫生官员也知道，他们对美国人民隐瞒了真相！
-![img](https://media.gettr.com/group30/origin/2022/03/07/20/8dcce1a1-e715-cb9c-50df-24f7da219727/out.jpg)
 
 ---
 
