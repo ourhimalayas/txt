@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/8/2022 1:30 AM (UTC)`
+
+2022.03.07 晚 《新中国联邦新闻》 新中国联邦成功救出96名乌克兰儿童； 我们一夜之间变成了天使
+![img](https://media.gettr.com/group44/origin/2022/03/08/01/279a7560-2cd4-e61f-0309-98d4a7c9b95e/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/8/2022 1:12 AM (UTC)`
 
 3月7号：非常感谢文峰的儿子制作的，关于在乌克兰拯救儿童后的视频，太棒了。
@@ -148,13 +155,6 @@ FDA released Pfizer COVID vaccines data with more than 1,200 side effects. Pfize
 
 3月7号：尊敬的战友们好衷心的感谢在波兰和乌克兰前线的救援的所有的兄弟姐妹吗？可恨的共产党驻乌克兰大使馆……竟然将已经登上我们在乌克兰救援大巴的人．用谎言将他们骗下车，这些人现在生死未卜……共产党没有能力在乌克兰救人，并欺骗中国同胞所有中国人已经救出，却在昨天用谎言将已经马上即将离开战场的同胞骗下了车，这是何等的邪恶，这些中国同胞是何等的无知……天呢．天哪，天哪天呢？
 ![img](https://media.gettr.com/group27/getter/2022/03/07/15/17a7afd4-5620-29c4-a6d5-5311d84087df/out.jpg)
-
----
-
-`@miles 3/7/2022 3:08 PM (UTC)`
-
-历史上中共使馆不管人民死活，新中国联邦法治基金前线人道主义救援行动正在进行！
-![img](https://media.gettr.com/group14/origin/2022/03/07/13/847edc0e-5cfc-3d51-0000-9b427ce01bcc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

@@ -2,13 +2,11 @@
 ---
 
 
-## 日本各地举行集会抗议俄罗斯军事入侵乌克兰
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2123214/)
+## 3/6/2022 文贵直播: 俄乌战局对习太阳打台湾的计划毫无影响，习将采取更快更狠的战略攻台
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2123285/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1bd2939302b832bf9ee820e07d60eb6b.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
