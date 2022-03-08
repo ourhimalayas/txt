@@ -14,7 +14,11 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 3/40 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [40](/content/README-40.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
+## 頁面 3/41 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [41](/content/README-41.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
+
+[2022年1月1日文贵大直播元旦特别节目“正道至善，除恶建邦”全文字版（三）](/content/2022/01/20220101-1817244.md)
+
+[2022年1月1日 文贵大直播 元旦特别节目“正道至善，除恶建邦”全文字版（四）](/content/2022/01/20220101-1816880.md)
 
 [2021年12月29日郭文贵先生直播全文字版](/content/2021/12/20211229-1805851.md)
 
@@ -62,9 +66,5 @@
 
 [郭文贵先生2021年12月04日盖特视频（4分42秒）全文字版](/content/2021/12/20211204-1721790.md)
 
-[2021年12月3日郭文贵先生直播全文字版](/content/2021/12/20211203-1720736.md)
 
-[2021年12月1日郭文贵先生直播全文字版](/content/2021/12/20211201-1714674.md)
-
-
-## 頁面 3/40 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [40](/content/README-40.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
+## 頁面 3/41 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [41](/content/README-41.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)

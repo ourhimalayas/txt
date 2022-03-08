@@ -14,7 +14,11 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 40/40 [**<**](/content/README-39.md) [1](/content/README.md) ... [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) **40** [查看全部](/content/README-all.md)
+## 頁面 40/41 [**<**](/content/README-39.md) [1](/content/README.md) ... [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) **40** [41](/content/README-41.md) [**>**](/content/README-41.md) [查看全部](/content/README-all.md)
+
+[翻译：Bill Gertz访谈郭文贵先生：中国在美国的情报网络包括了25,000名间谍](/content/2018/04/20180418-6992843521807662530.md)
+
+[（五）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（五）](/content/2018/04/20180418-8084565878058568507.md)
 
 [（四）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（四）](/content/2018/04/20180418-5802483270047805854.md)
 
@@ -62,9 +66,5 @@
 
 [郭宝胜专访曹长青( 郭文贵爆料对中国政局与民主运动的巨大意义（视频文字版）](/content/2018/04/20180418-8737769596242434513.md)
 
-[袁红冰: 郭文贵事件对中国未来的价值|郭宝胜访谈文字版2017-6-24](/content/2018/04/20180418-8213280584796437424.md)
 
-[|郭文贵9月7号报平安是盗国集团的凶恶促使我决定美国政治庇护直播文字版](/content/2018/04/20180418-3180317526840992396.md)
-
-
-## 頁面 40/40 [**<**](/content/README-39.md) [1](/content/README.md) ... [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) **40** [查看全部](/content/README-all.md)
+## 頁面 40/41 [**<**](/content/README-39.md) [1](/content/README.md) ... [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) **40** [41](/content/README-41.md) [**>**](/content/README-41.md) [查看全部](/content/README-all.md)

@@ -14,7 +14,11 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 10/40 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [40](/content/README-40.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
+## 頁面 10/41 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [41](/content/README-41.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
+
+[全文字版2021年4月25日郭文贵先生G-TV直播](/content/2021/04/20210425-1140222.md)
+
+[全文字版2021年4月23日郭文贵先生G-TV直播](/content/2021/04/20210423-1136241.md)
 
 [全文字版2021年4月19日419断播四周年郭文贵先生G-TV直播](/content/2021/04/20210419-1125087.md)
 
@@ -62,9 +66,5 @@
 
 [文字版2020年12月14日郭先生GTV直播](/content/2020/12/20201214-672368.md)
 
-[文字版2020年12月11日郭先生GTV直播](/content/2020/12/20201211-672238.md)
 
-[文字版：2020年11月26日文贵先生直播视频](/content/2020/12/20201209-7200582879299785978.md)
-
-
-## 頁面 10/40 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [40](/content/README-40.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
+## 頁面 10/41 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [41](/content/README-41.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
