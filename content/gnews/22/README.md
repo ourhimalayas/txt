@@ -2,47 +2,28 @@
 ---
 
 
-## 救援前线报道：成功营救出96个乌克兰孩子和他们的老师
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2124641/)
+## 中日财经爆┃调查显示美国在华企业更加悲观
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2124642/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
+整理编辑：东京樱花团丨peterwong
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/调查显示美国在华企业更加悲观.png)[*图片来源*](https://i1.wp.com/m1.aboluowang.com/uploadfile/2020/0311/20200311124022738.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-47.png)
-3月4日，被困在乌克兰一个核电站的老师联系到小飞象，希望得到救援，他们想把90多个孩子送到西班牙收养家庭去。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-24.jpg)
-小飞象得知后立即将此事向郭先生汇报，随后根据郭先生发出的立即救援的指示，迅速回复老师并告诉他们波兰的接应地点。为保证安全，战友们还为他们提供了一些可行的路线信息参考。
+美国商会周二（3月8日）发布的一项调查显示，由于中美关系紧张、防疫限制措施持续不断、监管限制和经济放缓，美国企业对在中共国经营的看法更加悲观。根据报告，会员公司对中共国市场增长的乐观看法比去年下降了11个百分点，该报告基于300多家会员公司的答覆编写。
 
-目前孩子们已经在顺利从海关出来，战友正送他们宾馆休息，他们休整后的下一站就是我们西班牙农场所在地西班牙巴塞罗那。我们农场团队会在文戈站长的带领下继续全程跟踪服务！
+中国美国商会总裁毕艾伦（Alan Beebe）在一次媒体会议上说，拜登于2020年当选后，在华美国公司中出现了短暂的乐观情绪“高峰”。
 
-这几十个孩子是上天派来的小天使，是在帮我们救赎人类自己，他们是新中国联邦的孩子，是人类的孩子，他们必将随着新中国联邦茁壮成长，在全世界生根发芽，长成参天大树。他们必将把我们新中国联邦的爱，把上天的爱传递到每一个角落。
+企业报告说，美国和中共国之间日益紧张的关系是最大的商业挑战，其次是法律规定不一致或不明确，在雇用外国和本地人才方面都出现困难。中国严格的防疫规定使得海外雇员很难开始在中国工作，政治因素也阻碍了国内招聘。
 
-参考来源：
+美国商会（USCC）是一个代表多间企业和贸易协会的美国游说团体，并不是美国政府的官方单位。美国商会由多位政策专家、游说家和律师组成。美国商会是美国最大的游说团体之一，每年的开销金额超越了其他游说团体。
 
-[https://gettr.com/post/pyktuo6409](https://gettr.com/post/pyktuo6409)
+中国美国商会（The American Chamber of Commerce in the People’s Republic of China，简称AmCham China）是一个非营利性的非政府组织，其成员包括来自在中共国经营的900家美国公司的4,000名个人。商会的目的是通过一系列支持帮助美国公司在中共国取得成功。中国美国商会是唯一被中共国官方认可的代表美国在华企业的商会。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-24.jpg)
+消息来源：[**美国在华企业更加悲观 因两国关系紧张且受防疫措施限制**](https://cn.reuters.com/article/us-business-china-pessimism-0308-idCNKBS2L50G8?il=0)
 
-
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-48.png)
-
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

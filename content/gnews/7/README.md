@@ -2,36 +2,25 @@
 ---
 
 
-## 佛罗里达州将建议，反对为健康儿童接种 COVID 疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2125203/)
+## 助乌抗俄！首批国际佣兵抵基辅
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2125251/)
 
-#### 整理/编辑：小鱼儿
+俄乌第三次谈判依旧达不到停火共识，双方激战进入第13天，俄军持续往乌克兰首都基辅攻击，乌克兰开战初期向全世界招募志愿军，如今乌克兰陆军也公布第一批国际佣兵军团抵达基辅的照片，表示他们已经准备好加入战争。
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-12.png)图片来源：乌克兰陆军脸书
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/feg.jpg)图片来源：雅典娜设计组&Reddit
+乌克兰外交部长先前向外界表示，有超过52个国家、超过2万人自愿加入志愿军的行列，今（8）日则公布了一张志愿军的首张合照，照片中的志愿军分别来自美国、英国、瑞典、立陶宛、墨西哥以及印度。照片中的志愿军手持枪械、相当有精神，而他们也已经抵达基辅，准备投入作战，网友们也纷纷祝福他们平安完成任务。
 
+简评：助乌抗俄！超过52个国家、超过2万人自愿加入志愿军的行列，正义的力量正在聚集，乌克兰并不孤单！愿世界各国政府抓紧行动起来，在正义面前无需犹豫彷徨，乌克兰人民需要你们！
 
-据News4Jax新闻3月7日报道，佛罗里达州外科医生，约瑟夫·拉达波——在共和党州长罗恩·德桑蒂斯（Ron DeSantis）组织的圆桌会议上——表示，该州将成为第一个正式建议，反对为健康儿童接种 COVID-19 疫苗的州。会议中，有一群医生，批评了冠状病毒的封锁和强制政策。
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1081695)
 
-目前尚不清楚该州何时会发布健康指南，此举是佛罗里达州对白宫冠状病毒政策的最新突破。
+撰稿/发布：一叶知秋
 
-新指南与疾病控制和预防中心的建议不同，即所有 5 至 7 岁的儿童都应接种疫苗。尽管儿童感染 COVID-19 的可能性通常低于成人，但公共卫生专家强调，疫苗可进一步降低他们的风险，并有助于防止他们感染他人。
-
-佛罗里达大学教授、儿科医生和CDC前传染病专家，索尼娅·拉斯姆森博士指出，在近1000名死于COVID-19的美国儿童中，并不是所有的儿童都有基础疾病。
-
-另外，上个月末，拉达波和德桑蒂斯宣布了新的政策建议， 包括：不鼓励戴口罩；指示医生在治疗病毒患者时，运用自己的判断力——使用新兴疗法和标签外的药物。
-
-参考新闻：[Florida to recommend against COVID vaccines for healthy kids](https://www.news4jax.com/news/florida/2022/03/07/florida-to-recommend-against-covid-vaccines-for-healthy-kids/)
-
-发布： Frank2021
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

@@ -2,27 +2,36 @@
 ---
 
 
-## 立陶宛吁美国对俄采取更强硬立场
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2125256/)
+## 2022年3月7日澳洲股市简报
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2125341/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/lithuania-us-diplomacy-blinken-092940.jpg)美国国务卿布林肯（左三）在立国总统府与立陶宛总统瑙塞达（右二）会谈。（法新社）
-布林肯赞扬立陶宛支持乌克兰，并重申华盛顿力挺北大西洋公约组织。他也向立陶宛保证美国将给予防卫支持。
+**撰稿：云彩**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian 
+ASX 200 指数下跌 1% 至 7,038 点。澳交所普通股指数下跌了约 1% 至 7,321。
 
-立陶宛是曾隶属前苏联的波罗的海小国，其边境与俄罗斯及其盟友白罗斯接壤。
+随着乌克兰战争的持续升温，能源股上涨。
 
-谈及北约时，布林肯说：“没人应质疑我们的准备和决心。向（北约）成员国发动攻势，等于向整个（北约）发起进攻。”
+布伦特原油全球价格上涨逾 10%，至每桶 130.13美元。
 
-在被问及是否致力于派部队常驻立陶宛时，布林肯仅说，该议题在考虑中。
+美国基准石油西德克萨斯中质原油上涨 8%，至 125.87 美元。
 
-立陶宛外长兰茨贝尔吉斯感谢增强北约部队在东欧的部署，但补充说：“我们需要确保波罗的海国家的安全。”
+能源公司Woodside表现最好，上涨9%, Santos 上涨5.3% 。
 
-原文链接：[https://www.zaobao.com.sg/realtime/world/story20220307-1249869](https://www.zaobao.com.sg/realtime/world/story20220307-1249869)
+能源巨头壳牌因从俄罗斯购买石油而受到批评。它表示，为了确保在欧洲的石油供应保持稳定，目前仍然购买俄罗斯原油，但尽可能选择它的替代品。
 
+欧佩克上周投票反对释放额外的石油储备。
 
+贵金属上涨 3.5% 至 3,138.50 美元
 
-审核校对：Barry Jack
-上传排版：F
+黄金上涨 1.3% 至每盎司 1,992.60 美元
+
+参考资料：
+
+[Oil surges,pushing up Santos,Paladin and Woodside as ASX falls sharply](https://www.abc.net.au/news/2022-03-07/asx-santos-paladin-woodside-oil-price-surges/100887878)
+
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
+
 
  
 
