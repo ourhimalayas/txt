@@ -2,42 +2,40 @@
 ---
 
 
-## 为从乌克兰救援出来的100个孩子送行（2）
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2125679/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2125708/)
 
-**【2022.3.7 新中国联邦救援】为从乌克兰救援出来的100个孩子送行（2）**
+#### 整理：枳实
+**美工：精灵蓝**
 
-**Nichole：**
-
-这位战友您可以说两句吗？ 因为您那一天就是在寒冷的这个夜里，等小孩子们的车，等了四个小时。然后也没有一夜都没有合眼，你当时的那个感受是什么？
-
-**战友：**
-
-非常的激动，我开过去的时候，开车我感觉都开睡着了，等我开到那边见到，三个老师下来跟我拥抱的时候，他们那种心情，就说拥抱的时候，我们可以明显的感觉到，他们身体的颤抖，然后他跟我说西班牙语，就是说很亲切的感觉。我感觉这次出来做义工，是我人生最荣幸的事情，好的，谢谢大家！
-
-**记者：**
-
-刚才他们五位，陪同那个小孩的这个公益基金的老师，他们说那个法治基金派来的中国人是天使啊，是拯救他们这个民族的未来和小孩子们的天使。你听了这个话以后你有什么感触？我听到这话说实在的，我那时候有眼泪了。谢谢，流水了。
-
-**Nichole：**
-
-流水了流水了哈哈哈。然后那个阿丙姐请您说两句吗？当你看到这些，小孩子们100个孩子哈，经历30个小时的这个巴士的颠簸，逃离这个战火纷飞的乌克兰，来到这个平静的波兰。然后在这个衣食，给他们提供这个温暖食宿的情况下，然后马上就要踏上这个巴士 ，去开往这个巴塞罗那。您就是作为参与本次这个营救活动，这个中转站的这个义工，您有什么样的感受可以，跟我们战友说一下吗？
-
-**阿丙女士：**
-
-首先我觉得这些小孩子真的很勇敢哈，我见到他们他们啊非常的就是平静。我觉得肯定是他们的父母真的就为了保家，就是为了保护自己的家园，然后把孩子送出来哈。而且就很有可能这个就是真的是永别， 咱们的战友在这个时候哈，能够真的是伸出援手，能够给他们以温暖，然后又准备了很多很多的东西。我觉得真的是法治基金，真的也只有咱们可以做到这一点。新中国联邦法治基金可以做到这一点，所有啊我为我们感到真的很骄傲。
-
-**Nichole：**
-
-是的，阿丙女士，您是从这个美国专门就是飞过来，像这种大型的，跨国的营救，一般都是由联合国或者是红十字会，那么您作为就是作为一个新中国联邦和法治基金，这个赞助的就是这些义工，怎么能够在极短的时间内，做到这种大规模的，一般这种超大的，国际组织都做不到的事情。联合国在哪里？ 红十字会他们在哪里？ 他们是在哪里？
-
-**阿丙女士：**
-
-所以说嘛，真的这个是我们来到这，好像看到真的，咱们法治基金真的是有这个能力哈，能够真正的提供。在这种情况下能够提供，这就是这种大型的这种援助活动，而且就出了这么。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-731.png)圖片：雅典娜農場設計組 精靈藍
 
 
+雅典娜疫情更新（2022年 3月8日）
 
-视频剪辑：CG. |听写, 字幕：烟波浩淼 | 编辑&发布：文鸣
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/2119732/)
+
+全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-732.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-733.png)
+[2022年3月8日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/%E5%85%A8%E7%90%83%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0%E6%A8%A1%E6%9D%BF-new3%E6%9C%888%E6%97%A5%E6%94%B9%E8%BF%9B.pdf)
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+*发布：陶子*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
