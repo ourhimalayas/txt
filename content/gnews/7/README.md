@@ -2,20 +2,23 @@
 ---
 
 
-## 日本15万人捐款40亿支持乌克兰 大使馆致谢
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2123588/)
+## 喜联储开启国际数字货币交易之门
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2123674/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-678.png)[图片来源](https://english.madhyamam.com/world/japan-evacuates-embassy-ukraine-border-tension-continues-933466)
-乌克兰驻日本大使馆在推特上宣布，自3月7日开设专门银行账户以支持俄罗斯入侵乌克兰的人道主义援助以来，已募集到近15万人次，40亿日元的捐款。
+采编/编辑撰稿： 文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/06-image-2.png)
+据《福布斯》3月4日报导，著名赛车手[埃尔顿]最近通过喜支付成功购得巴西车神塞纳曾经使用过的，并夺得过国际方程式锦标赛冠军的一辆迈凯伦赛车。
 
-乌克兰驻日本大使馆表示，“非常感谢日本友人在乌克兰人民这个困难时期给予的支持。”
+据悉，本次以喜联储数字货币方式结算的收购，通过喜支付以喜美元完成了转账，其交易总额超过500万美元。迈凯轮赛车公司首席执行官布朗对此表示：喜交所是全球首家将原生交易币(喜币）、稳定币（喜美元）及支付应用（喜支付)集成一体的数字币综合交易平台。由于其与生俱来的包容性、无国界性以及安全和便捷性，而一跃成为当今最值得信赖的数字资产交易平台。
 
-信息来源：[**ウクライナへの寄付40億円に　15万人と在日大使館謝意**](https://news.yahoo.co.jp/articles/74fc377355dfee698d7c218884527787e84139cd)
+评论指出，出于对喜联储和喜币的高度认可和信任，这些备受世界推崇和尊重的车神，毫不犹豫地选择喜美元来交易其顶级赛车之举，必将产生全球认知和使用喜币和喜支付的蝴蝶效应，并正式开启了喜支付无疆界自由交易的大门。
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+校对编辑：硫酸羟氯喹64
+
+发稿：苦尽甜来 (文来）
+
+原文链接：[https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,44 @@
 ---
 
 
-## 加拿大军方预计中共可能进攻台湾
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2123420/)
+## 历史上的今天：3月8日（马航370至今下落不明）
+` 历史组` [轉載自GNews](https://gnews.org/zh-hans/2123494/)
 
-采编/编译撰稿：加拿大温哥华杨帆农场 – 薇文
+作者：纽约香草山农场教育部-马克文、朱丽叶
 
-![](https://static.tnc.news/media/2021/10/website-taiwanarmy-696x365.jpg)图片来源：https://tnc.news/
 
-拿大[真北方] 6日报道了加拿大军事情报机构担忧中国可能会对台湾发起攻击，他们怀疑俄罗斯对乌克兰的入侵会被当作烟幕惮。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-41.png)
 
-加拿大军事情报主管赖特将军在周三在下议院国防委员会报告了这一消息。他的情报部队对中国可能采取的行动保持高度警惕。一周前，情报部门就非常关注中国的动向，想知道中国是否会利用这个机会加快他们自己的计划，以加强对其海外的控制，特别是台湾。因为中国一直坚持台湾岛大陆政府的一部分，并在台湾领空附近加强了军事行动。
 
-莱特将军说，加拿大和其他西方国家已经针对俄罗斯普京政权进行大量制裁，包括加拿大将禁止俄罗斯飞机进入加拿大领空，随着国际社会特别是北约和西方国家加大反应力度，他希望中国会暂停任何独裁计划。
+2014年3月8日，马来西亚航空370号班机在执行由吉隆坡国际机场飞往北京首都国际机场航线时于马来西亚当地时间凌晨1时21分在马来西亚与越南的航空管制区内失去与塔台的联系，之后该机折返回马来西亚，并在马来西亚霹雳岛上空失去卫星联络讯号，至今下落不明。
 
-校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/03/370-3.jpg)图源网络
 
-发稿：青青
+据新中国联邦创建人Miles Guo郭文贵先生爆料，马航370号航班有多位中共国人体器官移植专家，这些医学专家给中共高官及家属做过活人器官移植手术。中共高官的邪恶势力爪牙，如孟建柱、孙立军等为了毁灭证据，利用世界只有三个国家掌握的航空航天牵引技术控制马航370号航班自行坠落，造成机毁人亡。
 
-原文链接： [Military intelligence worried about possible attack on Taiwan by China](https://tnc.news/2022/03/06/military-intelligence-worried-about-possible-attack-on-taiwan-by-china/)
+参考来源：
+
+[马航370的未解之谜何时揭开](https://gnews.org/zh-hans/143483/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-20.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-42.png)
+
 
  
 
