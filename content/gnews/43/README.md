@@ -2,21 +2,22 @@
 ---
 
 
-## 青岛疫情井喷
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2119789/)
+## 韩国海军特战队前大尉李根加入志愿军赴乌克兰前线
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2119226/)
 
-撰稿：东京樱花团/秋明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-34.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg3.jiemian.com%2F101%2Foriginal%2F20220306%2F164653358392818100.jpg&amp;imgrefurl=https%3A%2F%2Fwww.jiemian.com%2Farticle%2F7175588.html&amp;tbnid=g6YJJ8YOpCrppM&amp;vet=12ahUKEwjo-Kqt37P2AhXLRMAKHUcvD4IQMygFegUIARCcAQ..i&amp;docid=IOXtjCNNriVBAM&amp;w=600&amp;h=400&amp;itg=1&amp;q=%E9%9D%92%E5%B2%9B%E7%96%AB%E6%83%85&amp;ved=2ahUKEwjo-Kqt37P2AhXLRMAKHUcvD4IQMygFegUIARCcAQ)
-自3月3号青岛莱西七中三位学生确诊阳性以来，青岛的疫情持井喷状态迅速增加，据官方报告，截止到3月6号，累计确诊阳性136例无症状感染者115例，病毒属于奥米克戎，传染源还在调查中。
+撰稿：追着曙光跑
 
-据说该病毒在学生中间潜在传播多日，按照中共政府处理问题的风格，能捂就捂实在捂不住了才爆出来，要不然仅仅三天时间增加了一百多，还不知道这里面有多少水分？官员信誓旦旦要把病毒尽快清零，流行两年的病毒至今肆虐全球，这一世界性难题大概只有中共国官员能轻易破解！
+据韩国财经新闻3月7日的报道，韩国海军特战队（UDT）前大尉李根于6日宣布，他已启程前往正在抵抗俄罗斯入侵的乌克兰，引起韩国社会的关注。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-08-at-14.17.56.jpeg)图片来自李根的Instagram
+自从俄罗斯入侵乌克兰以来，国际社会已有约2万名“国际志愿者”前往乌克兰，参加与俄罗斯军队的战斗，但大部分志愿者都是来自欧洲。据乌克兰驻韩国大使馆的消息，俄乌开战以来，使馆收到大量有关赴乌参战的咨询。
 
-3月7号24:00莱西启动第二轮全员核酸检测，明明可以自己在家检测，明明生产了大量医疗检测器材，源源不断输送到国外使用，偏偏不给自己国民使用，凌晨24点把大家召集起来不睡觉做这劳命伤财的无用功！可怜老百姓，在羊圈里任意宰杀还感恩戴德！人家可是百分之百真心实意！朋友圈无一例外满满的的“正能量”，笔者很想跟视频里这位辛苦劳作召集大家带好口罩保持3米距离的的女干部说一句，您的口罩没有在鼻子上端这样戴无效。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-7.jpg)
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+李根于6日在Instagram上发文称，“据我所知，韩国政府目前对乌克兰下达了旅游禁令，凡入境乌克兰将被处以一年以下有期徒刑或1000万韩元（约合人民币5.1万元）以下的罚款。但我们不能对眼下乌克兰的紧张局势坐视不管，我亲自挑选了队员与我一起赴乌，如果我们能安全活着回来，我愿意接受一切处罚。”
 
+李根表示，当乌克兰总统在向世界寻求帮助时，刚好他们拥有专业的技能和知识，可以帮助到乌克兰，不能因为怕受到处罚而不伸出援手。
+
+信息来源：**[“러시아와 싸우러..” 이근, 우크라로 떠났다..”살아돌아와 처벌받겠다”](https://n.news.naver.com/article/014/0004798738)**
+
+[#KENRHEE #이근 #이근대위 #ROKSEAL#락실 #UKRAINE #우크라이나#VOLUNTEER #의용군](https://www.instagram.com/p/Caw7bMVvr-7/?utm_medium=copy_link)
 
  
 

@@ -2,39 +2,35 @@
 ---
 
 
-## 大直播后记：人类新的媒体及新的生存模式
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2124023/)
+## 南非法律界发声，支持乌克兰人民反抗侵略
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2124046/)
 
-整理：GHope、hys
-编辑：小红帽
+作者：香草山健身部-正道新闻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年2月24日，俄罗斯入侵乌克兰，引起了全世界的反抗浪潮。南非知名的法律教授，律师，南非六个独立国家机构之一的《公共保护者》前主席，Thuli Madonsela，近日发表多篇推文，除了表达支持乌克兰抵抗侵略的壮举之外，还谴责了俄罗斯入侵、对平民的屠杀行为。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/16-5.png)图片来源：雅典娜农场设计组（614）
+3月5日，Thuli Madonsela在俄罗斯驻南非大使馆的官方推特中，回帖道，“我感谢苏联支持我们的反种族隔离斗争，以及俄罗斯在这方面的慷慨，但我选择不支持俄罗斯入侵乌克兰和屠杀平民，因为这是不合情理的违反国际法的行为”。我与乌克兰站在一起，只要某处存在不公正，任何地方都不会有可持续的和平。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-07-at-11.06.09-PM.png)
 
-我们现场的总指挥长岛哥，老班长；我们现在后勤的管家草根兄弟；财务上的管家如水和木兰；我们的秘密翻译组，我们全球各大农场，和一批又一批马上派到前线的战友，以及第五批战友都安排好了。你觉得世界上哪个组织能做到这一点？这就是新中国联邦人。
+在3月6日，她发表推文，称赞了全球领导人“树立了一个很好的榜样，谴责俄罗斯违反国际法入侵乌克兰，违反人道主义法条约屠杀平民，并让更多的乌克兰人流离失所”。
 
-你看现场，我们的主播我们乱了吗？我们培养出一批批队伍，一批批的精英，而且是有良知，有能力有思想的。新中国联邦向世界展示了我们能不能有能力，有资格，向全世界传播——中国人不等同于中国共产党的这个真相；我们能不能给中国带来民主法制和信仰的自由。
+作为《公共保护者》前主席、社会正义法律信托主席、“透明国际诚信奖、德国非洲奖和非洲反腐败十字军奖”获得者，斯泰伦博斯大学教授，Thuli Madonsela在乌克兰问题上的仗义执言，不仅彰显了作为民主法制国家应有的人道主义精神，同时也表现出“彩虹之国”正确的价值取向。
 
-我们这一次是真刀真枪的。大巴车是来自乌克兰，不是在边境。我们救的人是来自乌克兰，我们正在拯救的人是被共产党说“已经救走的人”，（实际）他们是还在乌克兰的同胞。
+参考链接：[Thuli Madonsela on standing with Ukraine: ‘I choose not to support the slaughter of civilians’](https://www.timeslive.co.za/news/south-africa/2022-03-07-thuli-madonsela-on-standing-with-ukraine-i-choose-not-to-support-the-slaughter-of-civilians/?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1646645213)
 
-我们法治基金，法治社会所有的捐款都是来自于我们所有的战友。我们没有任何人拿工资，拿待遇，全部都是无偿地，冒着生命危险到前线去救援。救援对象不分种族，不分宗教，不分族类，中国人没有过，世界上也没几个国家有做过。
+审核/编辑/发稿： 谐趣园
 
-今天的这场战争，就像昨天我跟意大利的一个哥们，还有英国的一位朋友在这个小视频上谈话，他们说，miles ，你对战争的理解超过了我们的理解。我说，你有想过吗？Telegram， Facebook， Instagram为什么成为乌克兰最大的战场？而且，乌克兰是绝对K.O.整个普京和整个俄罗斯的。第二个，你想过没有，为什么全世界所有的人都站在的乌克兰正义的一边？第三个，乌克兰的泽连斯基总统，是被乌克兰民调抛弃到25%的时候，战争发生了。人家泽连斯基证明给了乌克兰人看–我是你们的总统，我和你们一样。不但如此，他还证明了–我们和欧洲人一样，我们有勇气，我们有人道，我们国际化。在泽连斯基跟欧洲国家开会以后，欧洲的所有领导人对泽连斯基评价说，他是超出了我们所有人想象的一个世界级领袖，而这个世界上所谓迷恋普京的硬肌肉，所谓的那种霸气狠气，都是大家被玩弄了。人类在社交媒体面前，你会看到，真正地让人类辨别真、假、善、恶，从社交媒体重新开始。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-3.png)
 
-新中国联邦我们在乎什么？我们要最终的结果。我们看结果。我们千万别在乎什么主流媒体，什么政府，什么国际机构的看法。他们狗屁都不是。就是他们带来了人类的灾难，包括我们中国人的灾难，我们要改变这一切。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-我们要成为没有（打新冠疫）苗的，不分种族，不分颜色，不分宗教的新人类。这叫新人类，新中国联邦。兄弟姐妹们，珍惜吧。没有苗，还有币，我们还在全世界救援。还有无数的战友说，七哥，我们要捐钱。大概在一段时间内，我们会开放捐HDO。大家也可以捐钱。我们的预算是多少？现在的救援是一千万欧元，未来的救援大概在五千万欧元左右，也就四亿人民币。我们将用于救援。
-
-参考资料：[2022年3月6日 文贵大直播](https://gettr.com/streaming/pyhtnya292)
-
-发布*：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
