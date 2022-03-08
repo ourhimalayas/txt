@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/8/2022 12:10 AM (UTC)`
+
+2022.03.07 NFSC News  Ukraine Rescue Operation feels Serious Anti-Chinese Sentiment； The first bus of the NFSC & ROLF rescue team arrives in Poland
+![img](https://media.gettr.com/group21/origin/2022/03/07/23/3d0825f1-1deb-7d8d-3280-0c6ddc5b72d1/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 3/7/2022 11:58 PM (UTC)`
+
+2022.03.07 NFSC News  Ukraine Rescue Operation feels Serious Anti-Chinese Sentiment； The first bus of the NFSC & ROLF rescue team arrives in Poland
+![img](https://media.gettr.com/group21/origin/2022/03/07/23/3d0825f1-1deb-7d8d-3280-0c6ddc5b72d1/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/7/2022 11:41 PM (UTC)`
 
 🇺🇦乌克兰大救援<br/>🇺🇦Ukraine Rescue<br/><br/>🇺🇦24小时紧急救援客服联系方式如下:<br/>邮箱: ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO <br/>电话(短信或电话):<br/>+1 720-657-6776 或 <br/>+1 719-224-4232<br/><br/>🇺🇦24-Hour Emergency Rescue Support Team Contact:<br/>E-mail: ROLF@UKRAINEHELP.INFO OR NFSC@UKRAINEHELP.INFO<br/>Phone (Call or Text): <br/>+1 720-657-6776 OR <br/>+1 719-224-4232<br/><br/>🇺🇦Контакт цілодобової рятувальної служби:<br/>Електронна пошта: <br/>ROLF@UKRAINEHELP.INFO АБО NFSC@UKRAINEHELP.INFO<br/>Телефон (SMS або телефонний дзвінок): <br/>+1 720-657-6776 АБО <br/>+1 719-224-4232<br/><br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -146,20 +160,6 @@ FDA released Pfizer COVID vaccines data with more than 1,200 side effects. Pfize
 
 【Ukraine Rescue】03/06/2022 David: So the CCP escaped, but now we, the New Federal State of China, come. We come to rescue the Ukrainian, Americans, our Chinese people and students. So our good international image is gained by our words, behavior and strength,not by CCP’s propaganda.<br/><br/>【乌克兰救援】03/06/2022 大卫：共产党滚蛋了，我们新中国联邦人来了，来救乌克兰人民，救美国同胞，救我们中国的同胞，救我们留学生。我们的国际形象是靠实力争取过来的，是靠我们每一个言行换来的，不是共产党吹出来的。<br/> 
 ![img](https://media.gettr.com/group40/getter/2022/03/07/12/d4c2a208-d9fb-67cf-957d-9399baa56ef5/out.jpg)
-
----
-
-`@miles 3/7/2022 12:15 PM (UTC)`
-
-【Ukraine Rescue】03/06/2022  NFSC & ROLF rescuers interviewed a Ukrainian woman who was just rescued by our bus in Krakow, Poland<br/><br/>【乌克兰救援】03/06/2022 新中国联邦和法治基金的救援人员在波兰克拉科夫采访了一位刚刚被我们巴士救出的乌克兰女士<br/> 
-![img](https://media.gettr.com/group45/getter/2022/03/07/12/65f0a106-935b-3201-a001-246ac4d529bc/out.jpg)
-
----
-
-`@miles 3/7/2022 11:52 AM (UTC)`
-
-新中国联邦 法治基金救援行动 帮助乌克兰儿童逃离战火 连线波兰前线战友 （第二部分） 2022-03-07
-![img](https://media.gettr.com/group44/origin/2022/03/07/11/d9a89241-a971-ab2b-a058-109564f77a69/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

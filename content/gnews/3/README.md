@@ -2,107 +2,54 @@
 ---
 
 
-## 当俄罗斯人越来越接近时，CNN的记者在基辅的破坏现场
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2122958/)
+## 莫里森宣布澳大利亚将加强武器能力以保护人民安全
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2122985/)
 
-Clarissa Ward (CNN Chief International Correspondent)
-克拉丽莎·沃德（CNN 首席国际记者）
+#### **澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
 
-These people have been under bombardment for seven straight days
-这些人已经连续 7 天受到轰炸
+整理：围剿维尼熊
+编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2022/03/794aed377fdbe48e.jpg)图为一艘美国核潜艇：澳大利亚将在AUKUS联盟下获得此类潜艇，并将为其建造基地。（U.S. Navy/AP）
+据澳大利亚人报中文网3月7日报道，澳大利亚总理莫里森（Scott Morrison）说澳将加强其武器能力，以保护澳大利亚人的安全。
 
-and are only just leaving their homes and they’re leaving them reluctantly
-只是离开他们的家，他们不情愿地离开的
+莫里森说，澳大利亚将是为数不多的能在战场上使用战斧（Tomahawk）导弹、联合导弹的增程版以及其他尖端打击能力的国家之一。
 
-and they’re leaving them with the knowledge that they might not be able to go back to them
-并且他们知道他们可能无法再回到他们的家
+**谴责俄罗斯，赞扬乌克兰**
 
-And you can see many of these people are elderly
-而且你可以看到这些人很多都是老人
+莫里森警告并呼吁，世界应该让俄罗斯为其入侵乌克兰付出最大的代价，以威慑那些侵略分子。
 
-You see them, people are so exhausted
-你看他们，人们已经筋疲力尽了
+这次俄罗斯的入侵打破了欧洲自二战以来的和平。莫里森说，这场冲突只能解释为“一个独裁者的血腥和暴力行为”，普京在“精心策划的自我辩护”中制造了这种假象。
 
-they can barely walk, they’re having to climb this sort of Twisted Metal
-他们几乎不能走路，他们不得不爬过这种扭曲的金属
+莫里森列举了澳大利亚及其盟国对莫斯科的经济制裁措施，同时提到其对乌克兰提供的防务支持。
 
-Many of them, as you can see are elderly
-如你所见，他们中的许多人都是老年人
+莫里森说，对乌克兰的入侵不会按照普京的剧本，并对乌克兰的顽强抵抗表示敬意。
 
-They’re visibly distressed
-他们明显地很哀伤
+目前莫斯科未能在乌克兰取得重大进展，这令军事分析家感到惊讶。莫里森说，普京总统将年轻的俄罗斯人送入火海，并无视无辜的平民，这与俄罗斯人民的意愿相冲突。
 
-It’s just an awful, awful scene and these people are the lucky ones
-这只是一个可怕的，可怕的场景，这些人是幸运的
+莫里森说普京的这次侵略是一个不“遵守相同规则”的独裁者的行为。
 
-just gonna help her carry this bag a second, excuse me
-只是想帮她提一下这个包，借过
+**谴责中共国为俄罗斯提供“生命经济线”**
 
-John. Well, we try to …
-约翰，好吧，我们试着……
+莫里森总理指责习近平主席“未能谴责俄罗斯对乌克兰的入侵”。在洛伊研究所的演讲中，他强调了中共国没有加入全球各国谴责莫斯科入侵乌克兰的行列中来。
 
-So people are obviously incredibly affected by the situation
-所以人们显然受到这种情况的难以置信的影响
+中共国支持俄罗斯的支付系统，这实际上是在支持俄罗斯侵略乌克兰。中共国号称尊重他国主权和领土完整，但却支持侵略行为，这显然违背了他们的承诺。
 
-They’re frightened，they’re exhausted, they’re on edge
-他们是害怕的，他们是筋疲力尽的，他们是处于崩溃的边缘
+**工党指责莫里森将国家安全政治化**
 
-They’ve got their pets
-他们带上了他们的宠物
+在莫里森宣布东海岸潜艇基地的位置之前，工党领袖安东尼·阿尔巴内塞（Anthony Albanese）再次指责他将国家安全问题政治化。
 
-They’ve grabbed whatever they can
-他们带上了他们能抓着的一切
+有传言澳大利亚政府已经确定了东海岸潜艇基地的地点，但在成为选举问题之前，这个地点是个迷。反对党领袖承认了这个传言。
 
-and you’re right, John, you know
-你是对的，约翰，你知道
+参考链接：[总理宣布建东岸潜艇基地及加强武器能力“以保护澳人安全”](https://cn.theaustralian.com.au/2022/03/07/64313/)
 
-you asked me before about them going to the city
-你之前问过我他们去城市的事
+*发布：tianzhihuan*
 
-A lot of these people have no idea where they’re going to go
-很多人不知道他们要去哪里
-
-Once they cross this bridge
-一旦他们跨过这座桥
-
-They know that they’re in relative safety once they do it
-他们知道一旦他们这样做了，他们就处于相对安全的状态
-
-but they don’t have any idea where they’re going to go
-但他们不知道他们要去哪里
-
-They don’t have any idea where they’re going to sleep tonight
-他们不知道今晚要去哪里睡觉
-
-They don’t have any idea when they can get all their belongings from back home
-他们不知道什么时候可以回家里取回自己的东西
-
-We’re still hearing the steady thud of artillery in the distance and the fear is John
-我们仍然听到远处持续不断的炮击声，恐惧是，约翰
-
-It’s just going to keep getting closer
-它只会越来越近
-
-原视频链接[https://twitter.com/cnn/status/1500076163691171840?s=24](https://twitter.com/cnn/status/1500076163691171840?s=24)
-
-Date:03/06/2022
-原视频标题:CNN at site of destruction in Kyiv as Russians close in
-当俄罗斯人越来越接近时，CNN的记者在基辅的破坏现场
-原视频日期：2022/03/05
-原视频链接https://twitter.com/cnn/status/1500076163691171840?s=24
-任务编号：KE441（3928）
-视频时间段 : 0:00-2:11
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
