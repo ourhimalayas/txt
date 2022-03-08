@@ -2,31 +2,37 @@
 ---
 
 
-## 有声|美国国务卿到访乌克兰 与乌克兰外长会晤
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2127669/)
+## 俄罗斯要求解除制裁，否则将威胁伊朗核谈判破产
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2127705/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-盖特消息，当地时间3月5日，美国国务卿布林肯突然到访乌克兰，并且在乌克兰境内与乌克兰外长会晤。
+***评论：**俄罗斯核威慑乌克兰以后，又威胁伊朗核谈判破产，强盗逻辑一览无遗，这个世界不是只有俄罗斯，还有善良正直的人们，当你不要世界和平的时候，终将也会被世界遗弃*。
 
-乌克兰外长库莱巴谈到，美国以及盟国提供的武器，帮助乌克兰摧毁俄罗斯的装甲车辆和坦克。 他向包括美国在内的、所有对乌克兰提供毒刺导弹的国家，表示感谢。乌克兰军人有效地利用毒刺导弹，击落俄军的轰炸攻击机，抵抗俄罗斯的侵略。
+据《华盛顿邮报》作者：Liz Sly，2022年3月5日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-747-e1646757898790.png)俄罗斯外交部长谢尔盖-拉夫罗夫周六在莫斯科举行的新闻发布会上发言。(Sergei Ilnitsky/EPA-EFE/REX/Shutterstock)
+维也纳–俄罗斯周六为恢复伊朗核协议提出了一个新的条件：要求美国保证，因入侵乌克兰而对莫斯科实施的制裁不会应用到俄罗斯与伊朗的贸易和投资。
 
-他表示乌克兰目前亟需战斗机、攻击机和防空系统等大型防空武器，来保卫乌克兰人民的生命。同时，乌克兰希望得到国际社会更多的帮助和支持。
+俄罗斯外交部长谢尔盖-拉夫罗夫在莫斯科提出的这一要求，有可能使恢复2015年协议的谈判脱轨，而此时维也纳的外交官们正希望在下周初敲定一项协议。
 
-文字版原文：[美国国务卿到访乌克兰 与乌克兰外长会晤](https://gnews.org/zh-hans/2122463/)
+文章观点仅代表作者个人，与Gnews平台无关
 
-音频处理：Fei797
-发稿：Fei797
+文章来源:[https://www.washingtonpost.com/world/2022/03/05/russia-iran-nuclear-talks/](https://www.washingtonpost.com/world/2022/03/05/russia-iran-nuclear-talks/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+翻译：洛杉矶盘古农场 – Mike Li
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对：洛杉矶盘古农场 – 轰炸机
+
+评论：洛杉矶盘古农场 – 傻小子
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

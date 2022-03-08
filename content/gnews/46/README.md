@@ -2,80 +2,39 @@
 ---
 
 
-## 参议员卢比奥： 正在制定法规对中共国实施制裁,一旦发现中共用他们的CIPS系统来帮助俄罗斯绕过SWIFT制裁的话
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2123914/)
+## 新中国联邦乌克兰救援卓有成效，中共令已登上救援大巴中国同胞下车
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2122775/)
 
-参议员马可·卢比奥： 我正在制定法规。如果我们发现中共国试图使用他们的跨境国际支付系统 (CIPS) 来帮助 俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 绕过 SWIFT 制裁，本法规将对 中共国 [#China](https://twitter.com/hashtag/China?src=hashtag_click) 实施制裁 【转报道：中共国的支付系统能否成为俄罗斯的SWIFT解决方案？】
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-
-
-> I am working on legislation that would impose sanctions on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) if we catch trying to use their Cross-Border International Payments System (CIPS) to help [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) get around SWIFT sanctions
-> 
->  [https://t.co/SWFg8pr7Vp](https://t.co/SWFg8pr7Vp)
-> — Marco Rubio (@marcorubio) [March 8, 2022](https://twitter.com/marcorubio/status/1501028230718967817?ref_src=twsrc%5Etfw)
+3月7日，郭文贵先生于Gettr视频中透露新中国联邦由法治基金和法治社会为主导的乌克兰救援行动立竿见影、卓有成效，并表示，为已经登上救援大巴车又因中共的欺骗阻挠而下车的中国同胞悲哀。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/sZYOmSUA.jpg)图片来源直播截图
 
 
+在新中国联邦全球农场的共同努力和协调下，前线战友离开自己温暖舒适的生活环境在波兰冒着生命危险开展救援行动，安排的几辆救援大巴到乌克兰战场中心，已成功救回100多位中国同胞（包括留学生等）以及200多位乌克兰人和国际人士。中共国务委员兼外交部长王毅在3月7日的两会记者会上说，“中国在乌克兰各个邻国的使馆也昼夜运转，全力安置转运我国同胞。国内各部门、各地方密切协调，迅速派出多架包机，从欧洲陆续接回离乌公民……”然而，具体实际情况是大量中国人仍然滞留在乌克兰，尤为紧急的是几百上千的躲在地下室的中国留学生已严重缺乏生活物资甚至已经没有了水源。即便至此，这些留学生们还在被灌输要听中国共产党的话。大量躲在乌克兰农村地下室的中国非法劳工，因为语言不通（大多只会说河南话、山东话、福建话）也只能听天由命。面临如此紧迫的救援形势，现在仍有中共豢养的伪类冒充需要救援者给紧急救援中心打骚扰电话，拖延救援进程、冲击救援人员的心理。
 
-参议员汤姆.科顿： 两党都犯了这一代人最严重的错误之一是：给予共产主义中国永久最惠国待遇、并让其加入世界贸易组织。
+令人可怜、可恨、可悲的一幕发生在昨天，18位需要救援的已经登上新中国联邦救援大巴的中国同胞在收到中共驻乌克兰大使馆给他们发的信息后，毅然决然地下了救命大巴。在大使馆的信息里把无偿、无条件救援的新中国联邦宣扬成反华、反党组织，会诈骗他们的钱财，甚至绑架他们。可怜、可恨、可悲，如果这些中国同胞将来因为错过这次救援而死在乌克兰的战场上，中共将成为谋杀他们的帮凶。
 
+已然获救却选择下车的中国同胞是悲哀的，相信原因也是多方面的：
 
+1.彰显中国人民一直被中共宣传机器愚弄，因长期受到内宣、外宣假信息的浸泡，从根本上缺乏自我对事物的认知和真相的判断；
 
-> Both parties are complicit in one of the single worst mistakes of this generation: granting Communist China Permanent Most Favored Nation status and admitting it into the World Trade Organization.
-> — Tom Cotton (@SenTomCotton) [March 8, 2022](https://twitter.com/SenTomCotton/status/1501023399174365185?ref_src=twsrc%5Etfw)
+2.中共的疲民政策发挥了功效，让民众为了生计毫无时间思考，只是一味懒惰地盲从官方的消息，即使这时的信息是要他们自我灭亡；
 
+3.中共治下假、骗、偷盛行，让人与人之间缺乏基本的信任，人与人之间建立了无形的防备心墙。
 
+与选择下车的中国同胞不同的是，中共早已安排自己的情报人员与官员亲戚从乌克兰撤离。
 
-众议员马乔丽·泰勒·格林： 民主党人不在乎汽油价格有多高，因为他们希望美国人放弃并购买电动汽车。 那么美国人想开车就要依赖 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)，因为 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 以超过85%的比例在电动汽车电池市场上占据主导地位，而美国则不到5%。 民主党(实践的)是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 优先。
-
-
-
-> Democrats don’t care how high gas prices go because they want Americans to give up and buy electric vehicles.
-> 
-> Then Americans will rely on China to drive because China dominates the EV battery market at over 85%, and America is less than 5%.
-> 
-> Democrats are China First.
-> — Rep. Marjorie Taylor Greene (@RepMTG) [March 8, 2022](https://twitter.com/RepMTG/status/1501003963285622787?ref_src=twsrc%5Etfw)
+**相关****Gnews****链接：**
 
 
 
-美前国务卿迈克·蓬佩奥： 认为我们会允许俄罗斯人参与与伊朗人的协议谈判，或者美国会取消对伊朗人的恐怖指控，这完全是疯了。伊朗人正试图在世界各地杀人。 但拜登政府正在同时做这两件事。
 
 
-
-> It’s completely nutty to think that we would allow the Russians to participate in negotiating a deal with the Iranians or that the U.S. would lift the terror designations on the Iranians, who are trying to kill people all across the world. 
-> 
-> But the Biden Admin is doing both. [pic.twitter.com/W9SmYpUdHr](https://t.co/W9SmYpUdHr)
-> — Mike Pompeo (@mikepompeo) [March 7, 2022](https://twitter.com/mikepompeo/status/1500962806576861184?ref_src=twsrc%5Etfw)
+> [中共双标救援政策放任中国同胞自灭，还试图阻止新中国联邦实施救援](https://gnews.org/zh-hans/2083197/)
 
 
-
-参议员卢比奥： 普京会毫不犹豫地在乌克兰上演生物武器假戏码，这是你会看到的那种信息舆论作为他这样做的前奏。 【转ASB军事新闻推文：大意是俄国公布文件说乌克兰在靠近俄边境研究违反联合国1号文件的生物武器，他们是由美国资助的，在五角大楼指导下已被摧毁】
-
-
-
-> [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) would not hesitate to stage or carry out a biological weapon false flag in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) and this is the kind of messaging you would see as a prelude to him doing that [pic.twitter.com/a8OpRu7hyF](https://t.co/a8OpRu7hyF)
-> — Marco Rubio (@marcorubio) [March 7, 2022](https://twitter.com/marcorubio/status/1500940810455502861?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 被全球支付网络隔绝的俄罗斯银行正在转向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的国有银行系统。
-
-
-
-> Russian banks cut off from global payment networks are turning to China’s state-run banking system.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 7, 2022](https://twitter.com/MarshaBlackburn/status/1500933383521812491?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿蓬佩奥： 台湾人民从一开始就已经意识到了中国共产党的威胁。世界从台湾人民对中共极度现实的不信任中得到启发。
-
-
-
-> The Taiwanese people have been awake to the Chinese Communist Party’s threat from the beginning. The world drew inspiration from the Taiwanese people’s profound and realistic distrust of the CCP.
-> — Mike Pompeo (@mikepompeo) [March 7, 2022](https://twitter.com/mikepompeo/status/1500890828054712330?ref_src=twsrc%5Etfw)
-
-
-
+中共双标救援政策放任中国同胞自灭，还试图阻止新中国联邦实施救援
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

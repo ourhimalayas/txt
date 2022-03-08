@@ -2,20 +2,31 @@
 ---
 
 
-## 在Arsenal与Juticalpa球队之间的比赛中，球员帕西•卡斯特罗(Percy Castro),突感不适
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2127413/)
+## 视频|普京时代已经结束 中共将会迅速攻打台湾
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2127518/)
 
-#### 翻译                     意大利达芬奇农场                        小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-08-alle-16.35.18-1.png)图片来源：eventiavversinews.it
-这是近几个月来发生的又一起突发事故：一位身体极佳， 球艺精湛的足球运动员，在电视直播的比赛中，突然倒地，感觉呼吸困难，心脏不适。
+制作：香草山视频部
 
-倒在地上的球员是洪都拉斯的足球运动员帕西•卡斯特罗( Percy Castro)。 “ Guayape Tv”现场直播的视频极具戏剧性。可以看到帕西•卡斯特罗站着不动，他一度倒在地上，开始呼吸困难。靠近他的Juticalpa球员乔治•维尔肯(Georgie Welcome)，立即意识到情况的严重性并伸出手去帮助他。
+在3月6日的大直播中，郭文贵先生表示，普京时代由于发动侵略战争而结束，中共会迅速攻打台湾，俄乌战争的代价则，是全世界都会痛恨习近平和被中共绑架的国人。
 
-医生通过急救进行干预， 但几分钟后，卡斯特罗被带出现场并转移到“特罗切斯蒙塔尔万”医院。佩西•卡斯特罗在比赛第42分钟倒下，他是一名26岁的阿森纳（Arsenal）足球运动员，来自洪都拉斯首都特古西加尔巴附近的坎塔拉纳斯市。2月20日星期日的足球比赛中突然发生了刚才一幕。
+郭先生说，世界经济的崩溃，将在5月份从美国和欧洲开始。俄乌的战争，美欧隐形支持乌克兰，乌克兰把军队平民化而藏兵于民。俄国政府现在内部已经是一团乱麻，虽然他们还在吹嘘，但事实上普京的时代已经结束，俄罗斯在世界上已经彻底失败，只是与乌克兰两国付出代价多少的问题。
 
-原文链接： [https://www.eventiavversinews.it/e-lennesimo-caso-negli-ultimi-mesi-video-drammatico-del-malore-improvviso-che-ha-colpito-il-calciatore-percy-castro-duran](https://www.eventiavversinews.it/e-lennesimo-caso-negli-ultimi-mesi-video-drammatico-del-malore-improvviso-che-ha-colpito-il-calciatore-percy-castro-duran)
+由于习近平知道自己的身体撑不了多久，因此他对台湾一定会运用闪击战术，也不会给世界任何反应机会，以免重蹈俄乌战争覆辙。而全世界也会最痛恨习近平、中共以及被中共绑架的中国老百姓。
 
-编辑、上传： Xiao  baige
+另外，中共CIPS金融系统与俄罗斯的签约，代替了西方SWIFT系统的制裁，说明中共已经公开承认了，它是俄罗斯侵略战争背后的金主和支持者。而这个代价将在战争之后开始显现，中国几代人都将难以承受。
+
+郭先生指出，这就像被注射了两三针毒疫苗、面对着死亡的中国人一样，即使在灭共以后，在全世界面前也是难以被拯救的。
+
+发稿：Daxia
+
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
