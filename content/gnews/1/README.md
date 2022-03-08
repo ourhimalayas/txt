@@ -2,41 +2,32 @@
 ---
 
 
-## 法制基金乌克兰救援美国第二团队抵达波兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2127338/)
+## 前线快报——新中国联邦乌克兰救援行动第三批人员抵达乌波边境，展开更深入的营救行动
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2127400/)
 
-作者：香草山写作组- 静言
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月7日，由美国小李带领的新中国联邦乌克兰救援队一行10位战友，从美国洛杉矶登机后，经历24个小时，已顺利到达波兰边境城市克拉科夫，与大卫带领的第一批救援先锋队，约20位战友汇合，给连日来辛苦救援的第一批救援队，带来了新生力量。
+## 2022年3月7日，俄乌战争第12天
+![](https://assets.gnews.org/wp-content/uploads/2022/03/grafik-10.png)
+乌克兰救援前线报道，新中国联邦奔赴乌克兰前线救援行动的第三批人员在美国小李战友的带领下于3月7日晚抵达波兰的克拉科夫，与大卫带领的前两批救援人员汇合，将展开进一步的人道救援行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-3.jpeg)
+根据大卫的介绍，3月7日晚将有3辆载着滞留在乌克兰的中国同胞和乌克兰难民的大巴士抵达克拉科夫车站。目前，克拉科夫是新中国联邦法治基金、法治社会救援行动的主要基地，另有其它行动小组在DC阿丙战友和意大利文科战友的带领下，在波乌边境的热舒夫 (Rzeszów)设立了救援安置点，搭起了帐篷，为过境的难民提供食物和水。
 
-3月3日，第一批救援队先期到达波兰华沙，在波兰边境设立了临时救助点，解决救援撤离车辆等问题，
+据报道，难民们是乘坐了18-20小时的巴士，从波兰与乌克兰边境的梅迪卡 (Medyka)下车，在零下几度的气温和没有水和食物情况下徒步穿过波乌边境。新中国联邦法治基金、法治社会提供的救援安置点为难民们提供了及时的服务和帮助。
 
-3月5日，纽约救援队、西班牙救援队安全到达波兰。
+同时，新中国联邦法治基金、法治社会将在波乌边境设立媒体直播基地，持续报道波乌边境的难民情况和救援行动。已有被救助的中国同胞表示愿意讲述他们在被救助的经历，请大家关注更多的来自波兰前线的救援报道。
 
-几天来，战友们已开展了一系列救援行动，据郭文贵先生7日的盖特消息，已成功救助200多人抵达波兰克拉科夫，其中包括99个乌克兰孩童。
+据大卫介绍，除了新中国联邦法治基金、法治社会组织的乌克兰难民救援行动，目前在波乌边境还没有看到其它主权国家和世界救援组织的大规模救援行动。新中国联邦法治基金、法治社会不仅快速地组织起多批的救援志愿者，更为救援行动提供了大量的物资，充分体现了新中国联邦人的凝聚力和经济实力，也向世界展示了中国人的新形象。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/grafik-7.png)
+* * *
 
-据郭先生透露，接下来还会有第三波救援队前往波兰，总共将会有70人左右参与救援。这是新中国联邦向世界展示其与中共国不一样性质的舞台，大幕已经开启。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-参考链接：
-1. [https://gettr.com/post/py1efdcf07](https://gettr.com/post/py1efdcf07)
-2. [https://gettr.com/post/pybvgvc43d](https://gettr.com/post/pybvgvc43d)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+编辑：【英国伦敦喜庄园编辑部】
 
-总编：Zion文恩
-编辑：飞虹  
-审核：飞虹
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

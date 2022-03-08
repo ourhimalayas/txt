@@ -2,37 +2,35 @@
 ---
 
 
-## 俄罗斯政府修改专利赔偿金法律 偷盗剽窃零赔偿
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2127136/)
+## 前国防承包商CEO因涉嫌向中共出口军事技术被捕
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2127178/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+作者：纽约香草山信息部 – 6zero4
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国司法部3月5日宣布，77岁的加州国防承包商Tungsten Parts的前CEO乔，因涉嫌违反联邦出口法律、向中共国等国转让美国敏感国防技术而被捕。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-14.jpg)
+检察官确认，其拥有以色列和南非双重国籍的70岁弟弟德罗尔是该案的同谋。兄弟俩创建了一个可全面访问公司敏感文件的非公司账号，随后通过电子邮件蓄意将敏感的数据和图纸等军事情报传给中共。另外，德罗尔曾要求将客户图纸上“出口管制”的标识删除后，发给了一家生产平衡机的中共国供应商。警方已对在逃的弟弟发出逮捕令，哥哥将于周一出庭，据《国际武器贩运条例》，他们可能面临最高20年的监禁和100万美元的罚款。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+Tungsten Parts向美国军方供应稀有金属钨的武器部件，在2016至2019年期间与多家航空航天和国防公司签订了合同，其客户包括洛克希德·马丁、波音、诺斯罗普·格鲁曼、雷神和通用动力等公司，参与制造先进的高超音速空基快速反应导弹、155毫米莫代尔弹头、R9E弹头和81毫米整流锥等项目。
 
-继2022年3月7日俄罗斯政府网站发布《俄罗斯2022年3月5日第430-p号命令》([УТВЕРЖДЕН распоряжением Правительства Российской Федерации от 5 марта 2022 г. № 430-р](http://static.government.ru/media/files/wj1HD7RqdPSxAmDlaisqG2zugWdz8Vc1.pdf))，俄罗斯政府已批准对俄罗斯、俄罗斯公司和公民采取不友好行动的外国国家和地区名单，“关于履行对某些外国债权人义务的临时程序”后，俄罗斯政府修改了法律中关于专利赔偿金的规定。
+参考链接：
+1). [US Defense Contractor’s Former CEO Arrested for Allegedly Exporting Military Technology to China](https://www.theepochtimes.com/former-us-defense-contractor-ceo-arrested-for-allegedly-exporting-military-technology-to-china_4319238.html/?utm_source=partner&amp;utm_campaign=TheLibertyDaily)
+2). [Former Tungsten Heavy Powder & Parts CEO Arrested and Charged with Unlawful Exportation of Defense Articles including to The People’s Republic of China](https://www.justice.gov/usao-sdca/pr/former-tungsten-heavy-powder-parts-ceo-arrested-and-charged-unlawful-exportation)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-08_22-51-19.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-根据新的法律规定，如果专利持有人来自不友好国家和地区，其发明、实用新型或工业设计在未经授权的情况下被使用，则所需支付的赔偿金额为生产和销售商品、完成工作和提供服务的实际收益的0%，即无需为非授权使用专利做出任何赔偿。
+总编: Zion文恩
+编辑: 飞虹 
+审核: 文真
+校正/发稿：Fei797
 
-天下流氓一家亲，独裁者普京和CCP“互相学习，共同进步”，普京深得反人类政权控制的中共传，俄罗斯不断释放流氓手段！
-
-根据俄罗斯新法律，俄罗斯的企业可以肆无忌惮的仿制西方的药物、芯片和一切东西，除了极少数的无法偷盗的核心技术外，其它的几乎都可以仿制。
-
-商标、专利、著作权保护，是激励创新、打造品牌、规范市场秩序的基础，推动经济产业的兴旺发展的基石。
-
-俄罗斯新法律，让其它国家通过不断的探索、市场调查，然后花了大量钱做广告，非常畅销的产品，俄罗斯都可以仿冒做假，而无需赔偿！
-
-完全与经济发展和人类文明背道而驰，俄罗斯直接回到石器时代！
-
-还在试图与中共勾结，期望压榨中共国14亿韭菜的外国投资者，逃跑的时间不多！
-
-参考资料：
-
-[俄罗斯政府取消向不友好国家支付专利费](http://intl.ce.cn/sjjj/qy/202203/08/t20220308_37383304.shtml)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

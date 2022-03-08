@@ -2,33 +2,37 @@
 ---
 
 
-## 樱花FM|美前国务卿蓬佩奥访台后全台湾大停电
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2127337/)
+## 求救信息被中共屏蔽 在乌华人成弃子
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2127366/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-10.png)
-**俄乌战争继续延烧，随时可能危及台湾，美总统特使刚访问完台湾，前国务卿蓬佩奥随即访台，引来中共语无伦次的大骂，结果全台湾大停电，相信这不是偶然事件，应引起台湾警惕。**
+作者：日本东京方舟农场—Miyali7768(文玉）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月5日，有华文媒体报道，俄罗斯入侵乌克兰后，中共官方不停地宣传所谓“基辅安全撤侨”，但实际上许多身陷东部和南部交战区的人根本就逃不出去，无法赶到基辅。而当他们尝试在大陆社交平台发布求救信息时，贴文很快被屏蔽，不允许评论、点赞，无法传播出去，并且还被告知消息不能公开，现在只能报导“正能量”。目前生活在危险战区的人，称自己已成了“被国家抛弃的人”。
 
-据中共国新华社3日消息，中共开始撕下伪装狗血喷人，“美国前国务卿蓬佩奥是窜访台湾，对这样一贯以撒谎、欺骗为荣，在位时即声名狼藉的反华政客，漏出其阴险用心，这也是民进党当局‘倚美谋独’的企图。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-2.jpeg)
 
-中共向来喜欢给欧美反共政治家贴上“反华政客”标签，不过非但不他人，却给自己造成巨大伤害。共匪绑架了全体华人，俄乌战争在中共病毒大流行期间打响也扣动了世界反华神经。中共官员他们的子女在海外难以自保，还连累整个亚裔面孔，中共这种操守可谓即蠢又坏。
+除了在乌中国人的求救信息被屏蔽，中国人在乌克兰的伤亡情况也被国内封杀。日前俄军向哈尔科夫文化学院学生宿舍开火，至少四名中国留学生被杀。但该消息在国内遭到压制，还有一些媒体称其为假消息。
 
-- ***延展阅读：***[***对台湾的“坚如磐石”的支持：前美国国防和安全官员在俄乌战争期间访问台湾***](https://www.scmp.com/news/china/diplomacy/article/3168732/robust-support-taiwan-former-top-us-defence-officials-visit)
+有被困华人向前去采访的记者说，中共当局不但没有帮助撤离，反而耽误了他们宝贵的自救时间。当还在家中或学校等待“撤侨通知”的人们终于明白“包机”无望时，战火已经大举蔓延，他们连自行离开的机会也失去了。
 
+参考链接：
+1. [在乌中国人求救信息被中共屏蔽](https://gnews.org/zh-hans/2110203/)
+2. [求救信息被中共屏蔽 在乌中国人：我们成了弃子](https://www.ntdtv.com/gb/2022/03/04/a103364593.html)
 
-新华社消息称，“蓬佩奥在任期间到处给世界添乱。”中共这一点说的不无道理，诸如蓬佩奥这样有良知的政治家言行一致，身体力行，公开谴责中共，给共产党内部“添乱”，这是美国议员们、政治家们引以为荣的事。事实上，真正添乱的是中共国四处点火。美国前国务卿蓬佩奥于3日到访台湾，[蔡英文](https://twitter.com/iingwen/status/1499286610827149313?s=20&amp;t=nMo11rLeBOc0EV4ONj9New)总统发推感谢蓬佩奥维护台湾的安全，表示这是台湾的荣誉。然而就在3日上午9时左右居然无预警地、突然地传出停电消息，范围包括台北、新北、苗栗、台中、台南、高雄。台湾电力公司（下称“台电”）称正在查找停电原因。世界上没有巧合，巧合的是新中国联邦MILES GUO先生曾经说过，台湾一些卖台贼（亲共势力）会配合中共制造混乱。一旦中共有事， [马上要对台湾采取中共侵台2号行动，制造”突发事件](https://gtv.org/video/id=61375c1e637d1e60db2fe8ad)”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-俄乌战争并没有深刻刺激到共产党习近平政权，该文说， “台独”是死路一条，支持“台独”是一条不归路，这表明习近平仍然致力于“借乱进台”计划的推行。
+总编：Zion文恩
+编辑：飞虹
+审核：飞虹
+校正/发稿：谐趣园
 
-不过对美国现任总统拜登特使访台一事，新华社所谓什么“钟声”哑口无言，只字不提，却专攻一个美国前官员蓬佩奥的访台，其用心不言而喻。拜登总统发表的《国情咨文》明确地警告了习近平，“与[美国人民对赌从来都不是好赌注](https://www.whitehouse.gov/state-of-the-union-2022/)。”
-
-文字版原文：[美前国务卿蓬佩奥访台后全台湾大停电](https://gnews.org/zh-hans/2099731/)
-
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,30 @@
 ---
 
 
-## 欧洲多地爆发反战挺乌游行示威
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2127087/)
+## 樱花FM|公交运力大减 区域隔离现雏形
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2127108/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒消息，当地时间3月5日和6日，欧洲各地成千上万民众走上街头，连续第二个周末抗议俄罗斯入侵乌克兰。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-11.jpg)
-5日有成千上万的人士涌上巴黎、纽约、罗马和苏黎世的街头，要求俄罗斯停止侵略战争。次日，欧洲大陆再次组织动员，谴责俄国政府并要求立即停火。在比利时的布鲁塞尔，约有5千民众参加了抗议，他们挥舞着乌克兰国旗，高喊着“俄罗斯人回家去”，和“不要战争”等口号；在法国，作为乌克兰首都基辅的姐妹城市的土鲁斯，集会群众聚集在象征乌克兰国旗的蓝黄色横幅下，手持染血的普京肖像，并称其为凶手。
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/z6HY4Ox9AP4HULeyJSQAoAsYurQlPxP6tt20jkyHUQb3ZTGRA_m2QduXDTAcUrKLj9aqHyeau4NSMqK_ENDw9lOzZ5Col7ccVLFiOes_iB-EqyC3uMgZxQz7QbNmAz4opYsMGn8G)
+巴士公司染疫的员工人数不断攀升，运输署批准五间巴士公司，明天起至本月16日期间调整服务，包括暂停共98条有其他替代公共交通服务的路线、5条只在假日提供服务的郊游路线及1条通宵路线，其中九巴有88条路线暂停服务。另外，超过2000名港铁员工因为感染中共病毒或需要隔离，占公司人手约两成，导致部分路线要减车。同时，渡轮和小路服务也宣布停航部分线路。
 
-同样，在法国北部城市康城、西班牙首都马德里、巴塞罗那，塞尔维亚首都贝尔格莱德，北马其顿首都斯高比耶，以及英国、德国、保加利亚和黑山等国家，也举行了抗议集会。
+中共病毒感染在香港持续扩大，多间巴士公司的司机和职员染疫被强制隔离，导致大量运营路线被迫停运，严重影响了市民出行。此外，垄断全港铁路运输的港铁也出现大面积感染个案，上千名职员被强制隔离，铁路运力严重受阻。港府一直鼓励市民使用公共交通工具，以减少尾气排放和改善交通状况，并用高油价和高停车费限制私家车的使用频率。香港的交通十分便利，除了红隧在上下班高峰期常出现车龙，其他的干线都比较顺畅，市民的出行效率极高，许多市民都是跨区工作生活。中共病毒加上强制防疫政策，迅速瘫痪了香港的公交网络，许多人被无形囚禁在一些区域，尤其是新市政的地方，离市区遥远，公共交通工具受限制，如果没有私家车就很难进入市区。
 
-在俄罗斯，也有数千人违反当局的命令勇敢进行反战示威，据俄国警方发言人表示，6日在莫斯科约有1700人被捕，在第二大城市圣彼得堡则有750人遭到当局拘留。
+建制派立法会议员总是以防疫为由提醒港府，疫情爆发下市区的人流依旧太多。建制议员传递出中共圈禁港人的要求，提出全民强检配合禁足措施，但港府也不想直接执行，以免将愤怒的民意聚焦在自己身上，而强制隔离运输公司的职员是最隐蔽的方法，表面上是无耐之举，市民于情于理不能怪罪染疫情的职员，只能接受越来越窄的生活范围。此举可以将反对的民意减至最低，届时港人只能在居住的区域活动，各区之间的连接被切断，如果中共欲把香港互联网也切断，在各区实施如论怎样残酷的管制都将得心应手。
 
-参考链接：[俄羅斯人滾回去！歐洲串連示威力挺烏克蘭](https://www.rti.org.tw/news/view/id/2126454)
+资料来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+1、[**多間巴士公司明日起暫停近百巴士線  工會料乘客影響大**](https://news.rthk.hk/rthk/ch/component/k2/1636921-20220303.htm)
 
-总编: Zion文恩
-编辑: 谐趣园
-审核: Zion文恩
-校正/发稿：Fei797
+2、[**工會指2千港鐵員工染疫隔離未能上班  倘惡化或減班次**](https://news.rthk.hk/rthk/ch/component/k2/1636891-20220303.htm)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3、[**新渡輪及富裕小輪部分航線今起停航**](https://www.wenweipo.com/a/202203/03/AP622062d9e4b036dce9997e21.html)
+
+文字版原文：[公交运力大减 区域隔离现雏形](https://gnews.org/zh-hans/2099586/)
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
