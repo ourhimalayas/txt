@@ -2,24 +2,29 @@
 ---
 
 
-## 日本JCB信用卡 将停止在俄罗斯的业务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2126599/)
+## 日本东京樱花团 中文新闻播报第十四期
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2126648/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-87.jpg)
-[图片来源](https://article-image-ix.nikkei.com/https%3A%2F%2Fimgix-proxy.n8s.jp%2FDSXZQO1680705008032022000000-1.jpg?ixlib=js-2.3.2&amp;w=638&amp;h=398&amp;auto=format%2Ccompress&amp;ch=Width%2CDPR&amp;q=45&amp;fit=crop&amp;bg=FFFFFF&amp;s=7e573b1286bf2fd9e487b9de5879decf)
+新闻内容摘要：
 
-因俄罗斯入侵乌克兰，拥有国际品牌的日本信用卡巨头（JCB）于8日宣布将停止在俄罗斯的业务。14日以后，俄罗斯境内发行的此卡将无法在境外使用。同时在境外发行的此卡将无法在俄罗斯境内使用，也不能在白俄罗斯使用。
+- 1.新中国联邦人乌克兰战区人道救援首战告捷
+- 2.美国FDA败诉，辉瑞被迫公开疫苗数据震惊世界
+- 3.俄罗斯军队炮击乌克兰 扎波罗热核电站引发火灾
+- 4.中国将国防开支提升7.1%，达到2290亿美元
+- 5.通过Hpay用喜美元购买F1赛车交易成功
+- 6.拜登总统宣布禁止50位俄罗斯寡头及其家人和密切联系者入境美国
+- 7.有上百名中国留学生因俄乌战争而被困于乌克兰东北地区苏梅，无法离开
+- 8.布林肯警告中国：世界正在关注中国对俄乌战争的反应
+- 9.普京周六表示，西方对俄罗斯的制裁类似于宣战
+- 10.美东时间3月6日晚间，文贵大直播紧急连线新中国联邦法治基金
 
-就此JCB表示，鉴于俄罗斯和乌克兰的局势，以及作为支付服务公司能否可靠地提供其支付业务角度考虑，决定暂停这项服务。
 
-#### 信息源：[JCB、ロシア業務停止　カード決済制限、ビザなどに同調](https://news.yahoo.co.jp/articles/d6e86f778214c26a3846cf58dbf9db7b3081c18d#:~:text=J)
+**播报：东京樱花团-NAN的曙光**
 
-编辑：东京樱花团/逢⑦必变
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+**发布： 东京樱花团-eiei**
 
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/erweima.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
