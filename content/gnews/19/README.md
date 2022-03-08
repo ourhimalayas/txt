@@ -2,35 +2,33 @@
 ---
 
 
-## 南非法律界发声，支持乌克兰人民反抗侵略
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2124046/)
+## 日本对俄罗斯和白罗斯祭出新制裁
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2124212/)
 
-作者：香草山健身部-正道新闻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年2月24日，俄罗斯入侵乌克兰，引起了全世界的反抗浪潮。南非知名的法律教授，律师，南非六个独立国家机构之一的《公共保护者》前主席，Thuli Madonsela，近日发表多篇推文，除了表达支持乌克兰抵抗侵略的壮举之外，还谴责了俄罗斯入侵、对平民的屠杀行为。
+文 / 陈慧璋
+发布 / 2022年3月8日 11:31 AM
+采集：玫瑰新闻组
 
-3月5日，Thuli Madonsela在俄罗斯驻南非大使馆的官方推特中，回帖道，“我感谢苏联支持我们的反种族隔离斗争，以及俄罗斯在这方面的慷慨，但我选择不支持俄罗斯入侵乌克兰和屠杀平民，因为这是不合情理的违反国际法的行为”。我与乌克兰站在一起，只要某处存在不公正，任何地方都不会有可持续的和平。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/30891.jpg)伏尔加集团的创始人是季姆琴科，该集团专注于能源，运输和基础设施资产的投资。（路透社）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-07-at-11.06.09-PM.png)
+（早报讯）日本财政部周二（3月8日）宣布冻结了另外32名俄罗斯和白罗斯官员和寡头的资产。
 
-在3月6日，她发表推文，称赞了全球领导人“树立了一个很好的榜样，谴责俄罗斯违反国际法入侵乌克兰，违反人道主义法条约屠杀平民，并让更多的乌克兰人流离失所”。
+路透社报道，日本的新制裁对象包括20名俄罗斯人，其中包括俄罗斯总统普京的副参谋长、州议会副主席、车臣共和国总统，以及伏尔加集团（Volga Group）、俄罗斯国家石油管道运输公司（Transneft）、俄罗斯私人军事企业瓦格纳集团（Wagner）等与克里姆林宫关系密切的公司高层。
 
-作为《公共保护者》前主席、社会正义法律信托主席、“透明国际诚信奖、德国非洲奖和非洲反腐败十字军奖”获得者，斯泰伦博斯大学教授，Thuli Madonsela在乌克兰问题上的仗义执言，不仅彰显了作为民主法制国家应有的人道主义精神，同时也表现出“彩虹之国”正确的价值取向。
+12名白罗斯政府官员和商界人士，以及12个俄罗斯和白罗斯组织也被列入制裁名单。
 
-参考链接：[Thuli Madonsela on standing with Ukraine: ‘I choose not to support the slaughter of civilians’](https://www.timeslive.co.za/news/south-africa/2022-03-07-thuli-madonsela-on-standing-with-ukraine-i-choose-not-to-support-the-slaughter-of-civilians/?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1646645213)
+日本财政部说，即日起，与名单上的个人或实体进行支付和资本交易均须获得日本政府的许可。
 
-审核/编辑/发稿： 谐趣园
+日本还禁止对俄罗斯出口炼油设备以及对白罗斯出口可能用于军队的通用物品。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-3.png)
+对白罗斯国防部、武装部队、警察组织，以及总部位于明斯克的半导体制造商JSC Integral的出口也一概被禁止。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+
+新闻链接：[日本对俄罗斯和白罗斯祭出新制裁](https://www.zaobao.com.sg/realtime/world/story20220308-1250069)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

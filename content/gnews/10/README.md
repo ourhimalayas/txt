@@ -2,29 +2,26 @@
 ---
 
 
-## 有声｜美国佛州：健康儿童不要接种中共病毒疫苗
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2124269/)
+## 视频|日本名古屋医师会医生反对给儿童接种疫苗
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2124315/)
 
-By:**秘翻新闻**
+制作：香草山视频部
 
-**2022-03-08**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-23.png)图片来源 AP Phone/Wilfredo Lee
-[据美联社北京时间3月8日报道，美国 佛罗里达州外科医生约瑟夫·拉达波博士周一表示，该州将正式建议不要为健康儿童接种 中共病毒 疫苗。](https://apnews.com/article/coronavirus-pandemic-health-florida-ron-desantis-florida-department-of-health-a935793abc368ffc9aa5c2a2dda23e4b)
+当地时间3月4日，日本名古屋医师会成员浅井院长，以及前医师会医疗安全顾问宫治医生在接受媒体采访时指出，他们不会同意对5至11岁儿童接种中共病毒疫苗的做法。
 
-[拉达波在共和党州长罗恩·德桑蒂斯（Ron DeSantis）组织的会议上宣布了这一消息，并在讨论结束时表示：佛罗里达州卫生部将成为第一个正式建议不要为健康儿童接种中共病毒疫苗的州。此次会议中还有众多医生批评了中共病毒的封锁和强制政策。](https://apnews.com/article/coronavirus-pandemic-health-florida-ron-desantis-florida-department-of-health-a935793abc368ffc9aa5c2a2dda23e4b)
+其原因在于，首先，儿童在感染中共病毒后很容易康复，真正恶化到重症甚至死亡的病例少之又少。目前，所有的中共病毒疫苗都处于实验性阶段。这意味着，所有医生都不清楚中共病毒疫苗的毒副作用。浅井院长透露，许多医生都是抱着非常恐惧的心理，在给人们接种。
 
-[美国疾病控制和预防中心前传染病专家拉斯穆森博士表示，他很担心这则新会让父母质疑他们从儿科医生、美国儿科学会、疾病预防控制中心听到的信息，但拉波达认为，儿童比成人的重症率低很多，即使不幸患病，也应该因人而异进行治疗。](https://apnews.com/article/coronavirus-pandemic-health-florida-ron-desantis-florida-department-of-health-a935793abc368ffc9aa5c2a2dda23e4b)
+无论是接种疫苗还是其他医疗行为，站在医生以及患者的角度考虑，都是把安全性排在第一位，之后才是让社会安心、以及得到治愈后的满足感。然而，在接种中共病毒疫苗上，却打乱了上述顺序，把“让社会安心”排在了首位。这两位医生还强调，现在日本政府最该做的，就是先确认疫苗的安全性。
 
-[佛罗里达州的这项新举措与美国疾病控制和预防中心此前的建议背道而驰，该中心至今认为所有 5 至 7 岁的儿童都应接种疫苗。](https://apnews.com/article/coronavirus-pandemic-health-florida-ron-desantis-florida-department-of-health-a935793abc368ffc9aa5c2a2dda23e4b)
+发稿：雪梨
 
-[目前尚不清楚该州何时会发布健康指南，拉达波也没有详细说明细节](https://apnews.com/article/coronavirus-pandemic-health-florida-ron-desantis-florida-department-of-health-a935793abc368ffc9aa5c2a2dda23e4b)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-秘翻新闻 文洋 编译报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

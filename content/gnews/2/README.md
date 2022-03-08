@@ -2,27 +2,25 @@
 ---
 
 
-## 有声｜拜登要求对加密货币的监管和发行进行研究
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2124319/)
+## 俄乌战争｜欧盟正式开始审批乌克兰的加入申请
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2124393/)
 
-By:**秘翻新闻**
+**撰文/ 港台前线｜发布日期/ 08/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/歐盟正式開始審批烏克蘭的加入申請.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-**2022-03-08**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-19.png)图片来源   路透社
-[据《路透社》华盛顿3月7日报道，周一，一位知情人士透露，美国总统拜登预计将签署一项行政命令，指示美国司法部、财政部和其他机构研究创建美国中央银行数字货币的法律和经济影响。](https://www.reuters.com/business/finance/biden-sign-executive-order-cryptocurrencies-this-week-source-2022-03-07/)
+欧盟轮值主席法国周一（7日）宣布，27国的欧盟常驻代表已经同意，正式开始审批乌克兰、格鲁吉亚以及摩尔多瓦，三个前苏联国家加入欧盟委员会的申请，并邀请各代表就申请发表意见，3国均在俄罗斯入侵乌克兰后才申请加入。
 
-[该消息人士称：我们可以在180天内看到政策的重大转变。这很可能是朝着创建中央银行数字货币迈出的一步， 还表示，拜登政府内部支持这一举措的势头很猛。](https://www.reuters.com/business/finance/biden-sign-executive-order-cryptocurrencies-this-week-source-2022-03-07/)
+按照惯例，希望成为欧盟成员国的国家，必须迈过严格的“加入门槛”，当中涉及复杂的社会、法律及政治改革，务求令该国在民主、法治等重要指标上更上一层楼，而欧盟是否还有余力吸收新成员也是审批需要考虑的必要因素。通常来说，整个审批过程需历经数年。
 
-[据报道，拜登的命令可能会在周三发布，人们担忧俄罗斯精英利用加密货币规避西方制裁，此前西方制裁已经切断了俄罗斯与全球经济大部分的联系，而中共国和其他经济体也在努力创建自己的加密货币。](https://www.reuters.com/business/finance/biden-sign-executive-order-cryptocurrencies-this-week-source-2022-03-07/)
+而事实上，欧盟一直不愿扩张，主要因为现有成员国，尤其法国和荷兰，对此取态谨慎，另外保加利亚、罗马尼亚等新成员在防治贪腐方面的成效不佳。
 
-[拜登的命令将要求司法部考虑是否需要制定新的法律来创造一种新货币，由联邦贸易委员会、消费者金融保护委员会和其他机构将研究对消费者的影响。](https://www.reuters.com/business/finance/biden-sign-executive-order-cryptocurrencies-this-week-source-2022-03-07/)
+但这次因为俄罗斯入侵乌克兰，令加入欧盟可能成为乌克兰及邻近格鲁吉亚、摩尔多瓦的存亡关键，才迫使欧盟不得不考虑加快步伐，将三国申请提上日程。否则若依照既定规则，三国远未够资格成为欧盟成员。
 
-秘翻新闻 冰糖葫芦喵编译报道
+不过，有报道指，目前27国代表仅就启动审批程序和在本周峯会讨论此事，这两点上达成共识，而在其他方面似乎仍有分歧。
 
-发布 : 恩典
+来源｜[Politico](https://www.politico.eu/article/eu-examine-ukraine-moldova-georgia-membership-bid/)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
