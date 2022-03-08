@@ -2,31 +2,20 @@
 ---
 
 
-## 未来世界的两个财富系统
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2128297/)
+## 北约国家获准向乌克兰派遣战斗机
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2128325/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大温哥华扬帆农场    平民正道
 
-2022-02-25直播摘录
+据《每日电讯》3月6日报道，国务卿布林肯当天表示，美国将允许北约成员国在必要时向乌克兰派遣战斗机，以协助该国抵御俄罗斯入侵。
 
-很滑稽的一件事情。欧洲，欧洲的欧元，你看现在最近发生啥事情了？欧元和美元的对比，和美元的股市和欧洲的股市。今天我都不愿跟你们深谈股市，因为没人看到其中之奥妙。为啥美国股市先涨后跌？为啥美国拜登总统就是不说清楚，只说制裁没有任何行动？为啥现在欧洲这些国元首都这么害怕，而且不搞实际行动？
+报道称，邻国波兰目前已获准可向乌克兰战区派遣军事飞机执行战争任务。对此，乌克兰驻美国大使表示，希望尽快从北约获取所需的武器弹药和军事装备以更有效地实施国家保卫战。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+据悉，乌克兰的顽强抵抗使俄军的闪电战计划落空。面对内外交困的压力和制裁，普京仍孤注一掷，不仅轰炸并占领了乌克兰境内最大核电站，还违反临时停火协议，对平民疏散通道持续进行血腥袭击。
 
-**关注我们**
+* * *
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑： 平民正道    发布：平民正道
 
  
 

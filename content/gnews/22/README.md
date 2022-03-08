@@ -2,43 +2,42 @@
 ---
 
 
-## 朝鲜在韩国选举前几天再次发射导弹
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2127991/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2128230/)
 
-据《美国之音》作者：William Gallo，2022年3月4日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-755-e1646762599656.png)2022年3月5日，在韩国首尔的一个火车站，人们观看电视屏幕上显示的新闻广播，其中有朝鲜导弹试验的文件片段。（图片源自美国之音）
-韩国军方周六报告说，距离韩国总统选举只有四天，朝鲜向其东海岸附近的海域发射了一枚疑似弹道导弹。
+翻译：土饭团
 
-韩国军方说，朝鲜从平壤的顺安地区发射了这枚推定的弹道导弹。朝鲜周六也是从这个地方进行了一次试验，它说这是在为即将到来的卫星发射做准备。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7ONLSY64BFNNZIJBN722WIFLAA-edited.jpg)图片来源：路透社
 
-日本国防部说，这枚导弹飞行了约300公里，达到550公里的最大高度。日本海岸警卫队说，这枚导弹落在了日本专属经济区外的海域。
+您若想了解全文报导内容，请点击标题链接
 
-今年到目前为止，朝鲜已经进行了九轮发射，至少发射了13枚独立的导弹。
+**1.[众议员Kim,Slotkin提出两党法案，调查中共国支持俄罗斯入侵乌克兰的情况](https://www.foxnews.com/politics/reps-kim-slotkin-bipartisan-investigate-china-russian-invasion-ukraine)**
 
-大多数的发射都涉及短程导弹。然而，最近几个月，朝鲜多次表示它将很快进行卫星发射，此举将大大加剧朝鲜半岛的紧张局势。
+福克斯新闻3月7日电，加利福尼亚州共和党众议员Young Kim和密歇根州民主党众议员Elissa Slotkin周一提出了一项两党议案，2022年对中共国的直接调查、采取行动反对俄罗斯法案，即《DICTATOR法案》，要求国务卿Antony Blinken向国会详细说明哪些与中国共产党（CCP）有关的实体可能已经协助或继续协助克里姆林宫规避美国的制裁。
 
-**北朝鲜声称发射是和平的**
+**2.[众议员Mike Gallagher: Biden的威慑战略将使台湾像乌克兰一样失败](https://www.foxnews.com/media/rep-mike-gallagher-biden-deterrence-strategy-will-fail-taiwan-like-it-did-ukraine)**
 
-朝鲜坚称卫星发射是和平的，但美国、日本和韩国认为它们是变相的远程导弹试验。
+福克斯新闻3月6日电，威斯康星州众议员Mike Gallagher在“美国周日之夜”节目中警告观众，随着俄罗斯入侵乌克兰进入第二周，中共国和伊朗将构成威胁。虽然全世界的注意力都在乌克兰，Biden没有处理好俄罗斯的问题，可能会成为更多专制国家入侵其他国家的诱因。我担心威慑会在更大的舞台上再次失败，这就是台湾的冲突。
 
-联合国安全理事会的一系列决议禁止朝鲜进行任何弹道导弹活动，包括任何射程的试验。
+**3.[中共国中兴通讯因可能违反美国规定而面临听证](https://www.reuters.com/business/media-telecom/chinas-zte-faces-hearing-over-possible-violation-us-probation-2022-03-05/)**
 
-朝鲜的最新试验发生在韩国总统选举前四天，虽然朝鲜没有成为竞选的焦点，但候选人已经警告朝鲜不要发射导弹或进行其他旨在影响投票结果的挑衅行为。
+路透社3月5日电，中共国电信设备制造商中兴通讯公司将于3月14日回到美国联邦法院，面临一项新的指控，该公司可能违反了2017年非法向伊朗运送美国技术的认罪答辩。根据3月4日提交给德克萨斯州联邦法院的一份法庭文件，可能的违规行为与涉嫌共谋进行签证欺诈有关。
 
-文章观点仅代表作者个人，与Gnews平台无关
+**4. [Biden和盟友在电话中确认将继续提高俄罗斯入侵乌克兰的成本](https://www.reuters.com/world/biden-speak-with-leaders-france-germany-britain-ukraine-crisis-2022-03-07/)**
 
-文章来源: [https://www.reuters.com/article/us-china-xinjiang-idUSKCN2AT1BA](https://www.reuters.com/article/us-china-xinjiang-idUSKCN2AT1BA)
+路透社3月7日电，白宫表示，美国总统Joe Biden与法国、德国和英国领导人在周一的视频通话中申明，他们决心继续提高俄罗斯“无端和无理入侵乌克兰”的代价。美国国务卿Antony Blinken周日表示，美国和欧洲伙伴正在探讨禁止俄罗斯石油进口，但强调了全球稳定石油供应的重要性。
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 –傻小子
-发布：洛杉矶盘古农场 –子萍
+**5.[美国国会接近达成援助乌克兰、资助政府的协议](https://www.reuters.com/world/us/democrats-aim-reset-domestic-legislative-agenda-after-biden-speech-2022-03-07/)**
 
+路透社3月7日电，美国国会谈判代表周一即将就一项法案达成协议，该法案将向乌克兰提供数十亿美元的紧急援助，以及为美国政府提供资金至9月30日，并提供资金以应对COVID-19问题。了解谈判情况的国会人士说，民主党和共和党领导人希望最早在星期二公布立法，但强调谈判尚未完成。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+* * *
 
-[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
+*审核：阿伯塔***
+***校对：信心满满***
+***发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-4.jpeg)
 
  
 

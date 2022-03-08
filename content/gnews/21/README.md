@@ -2,31 +2,31 @@
 ---
 
 
-## 乌克兰大救援3.8. 英国小提琴老师法语祈福新中国联邦救援乌克兰96名儿童与家人团聚
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2128019/)
+## 共产党对中国人的掠夺以及对新中国联邦的工具
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2128237/)
 
-翻译：shanshan
-整理：心声
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-08-at-12.52.24-PM.png)Twitter[@YAO12145531](https://twitter.com/YAO12145531) 截图
+文编：Hima
+听写：叮叮
+视频：七哥
 
+2022-02-25直播摘录
 
-扬帆农场战友米小乐3月7日在其twitter账号写到：Hannah，英国人小提琴老师，知悉新中国联邦在乌克兰救出了90多名小朋友，并安全到达波兰，会在西班牙安顿下来。她用法语录了一段视频，传播新中国联邦在乌克兰的救援！
+你知道习为啥5万人民币，最后突然间习发现了一个问题，他不但是没有超过50的权利，他发现这个事情以后，会导致一个最严重的结果，所有的共产党员银行存钱，老百姓是最愚蠢的中国人就是隔代花钱。中国人是隔代花钱，不像我说在当时我见到沼泽地，人家是那一代人是花不完的钱让你隔代花。中国人是自己卖血卖肉，自己不吃不喝，让下一代花。人家欧洲人是先享受完，给下一代花。那习近平这次发现啥问题，所有老百姓存的钱和共产党这些富豪存的钱正好相反，富豪钱全出国了，根本不在自己国存，苦的都是这些穷苦老百姓。这些人会造反的，这些人会给他玩儿命，会把钱全取出来。结果他收到了报告，所有的县、地区银行全部都有人大量往外取钱，根本对付不了，会崩塌。特别是共产党的一号文件出来，啥叫一号文件？农民一号文件，共产党打土豪分田地，一号文件。1949年之前两次所谓的一号文件，一个是什么？在农村所谓的战区，抗日，他利用老百姓的绑架，把老百姓支持流氓土匪，所谓的抗日叫老百姓根本没有选择和政府作对，就是土匪。那叫所谓的一号文件，绑架了当时的战区的农民。第二次，所谓的杀土豪分田地，就让穷人和土豪之间成为了最大的你死我活了，没办法调和的就是杀富人的这种游戏。结果老百姓以为杀了地主给我呢，结果土地成共产党的了，给收回去了，也是一号文件。最后四九年之后又来了一个，就邓小平的80年，41年啊，46年还是四几年，我记不太清楚了。两次完又来了，叫老百姓活不了了，说这地弄走了，搞搞什么责任分包，不是，搞那个人民公社，集体吃饭，他把这地给收走了，大家集体吃饭，你见过这共产党有多流氓吗？集体吃饭饿死人，没辙了，都要造反了，来了一个所谓的分包制，当时有一个所谓的在这个安徽有一个饿的受不了了，冒着法律危险，要搞一个责任承包，那就来吧，顺势而去。80年，邓小平在毛泽东死后，又是一号文件，现在头两天儿又出了个一号文件，就跟着5万块钱事儿出来了。化肥涨了一两倍，还没有开始到春天呢。你觉得他不知道农业要出大事儿吗？40~50%进口的粮食谁卖给你？你有钱买吗？今年如果战争，打完台湾以后，全世界对你制裁，你能活着吗？你怎么弄啊？所以在半年前他就准备好了人民大公社，大锅饭，这都准备了。现在要把5万人民币取的是什么概念？大家记住，我把你地收走了，我把你的行动全取走了，监控中墙头准备好了，冠状病毒已经把你给弄在家了，不行我就给你来个核糖核酸测试，我让你待在家里了，就当奴隶了，干活儿吧！然后把所谓的生产工厂搬回家里，带回村儿里，就是在家里当奴隶，都变成锁链女，男的女的都戴锁链，你都甭想再出来。然后用5万块钱的限制，你就没有大钱折腾。准备着打完台湾所谓美帝国主义跟俄罗斯这场东西方的较量，把西方金融，政治，军事拖垮，然后他想出来的奴役全世界。他没想到这5万块钱这一出来啊，他把对新中国联邦的这个害怕和老百姓财富要掠夺的这种想法，一下子点燃了一个老百姓恐惧的心理。破窗效应，这个时候这个有意思了，这个时候它事儿大了。
 
-Hannah在留言区问：“ 这个活动和中国政府有关吗？”我们回复：这是新中国联邦，和你们一样对中国共产党说不！NFSC将重建中国人的信仰和法治。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
-> Hannah，英国人小提琴老师，知悉新中国联邦在乌克兰救出了90多名小朋友，并安全到达波兰，会在西班牙安顿下来。她用法语录了一段视频，传播新中国联邦在乌克兰的救援！
-> Hannah：“ 这个活动和中国政府有关吗？”我们回复：这是新中国联邦，和你们一样对中国共产党说不！NFSC将重建中国人的信仰和法治。 [pic.twitter.com/FZe4aa3Td9](https://t.co/FZe4aa3Td9)
-> — 米小乐（扬帆） (@YAO12145531) [March 7, 2022](https://twitter.com/YAO12145531/status/1500905755666378753?ref_src=twsrc%5Etfw)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-
-Hannah在其个人视频里的法语与中文翻译讲话内容如下：
-
-Ce matin le Nouvel Etat Fédéral de Chine, une association caritative a sauvé 96 enfants dont les parents doivent rester en Ukraine pour se battre dans la guerre horrible. Ces enfants seront établis à Barcelone avec des familles espagnoles et quand les parents pourront s’échapper aussi le Nouvel Etat Fédéral de Chine va les réunir. Tout le monde prie pour que le voyage se déroule en toute sécurité!
-
-今天上午，新中国联邦州的慈善机构救援了96名儿童，他们的父母不得不留在乌克兰，在可怕的战争中作战。这些孩子将被安置在巴塞罗那的西班牙人家庭中，当父母也能逃脱时，新中国联邦将让他们团聚。每个人都在为安全的旅程祈祷！
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
