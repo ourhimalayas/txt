@@ -2,24 +2,31 @@
 ---
 
 
-## 美军在欧洲再次增兵
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2128263/)
+## 未来人生最大赢家
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2128299/)
 
-#### 编译：Cran
+文编：Hima
+听写：叮叮
+视频：七哥
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16467692261.png)Image cource: CBC news
-据多家媒体3月7日报道，美国总统乔·拜登此前曾表示，俄罗斯有19万军队处于军事准备状态。五角大楼高级国防官员说，美国将向欧洲再部署500名士兵，使欧洲大陆上的美国军队总数超过10万人。
+2022-02-25直播摘录
 
-据NBC新闻报道，五角大楼的高级官员周一说，俄罗斯在乌克兰边境集结的几乎所有军队现在都在乌克兰境内作战。 此外，在乌克兰主要城市，哈尔科夫和基辅之外的两个主要俄罗斯车队仍然停滞不前。入侵的俄罗斯军队一直在努力克服薄弱的后勤补给系统，但因为车辆发生故障或汽油耗尽，导致数十辆坦克和卡车被困在乌克兰东部和中部。但地面的后勤问题并没有阻止它用重炮轰炸乌克兰。
+我们往回看这几年，如果人在疫苗上听了我们的，你是人生的最大赢家。战争再残酷，也没有残酷过疫苗对你的伤害。啥事没有，打上几针打完了，嗝屁了，癌症，死亡。我就短短的这几天，我身边我的同事，我的朋友，家人，疫苗死亡，四十几岁的检查出癌症，一堆一堆。如果你听了爆料革命，你就会避过人类上最大的，你看乌克兰多残酷，但比疫苗差远了。台湾就是打，台湾也残酷，也没有打疫苗残酷。对台湾最大的伤害就是蔡英文，绝对不是共产党了，从现在看。如果当时听了爆料革命，已买了Hcoin，现在是，现在我看39了又，390倍的回报，你不至于今天你没有钱恐惧。在下一个五年、十年乱世，你没有希望你再没点儿钱，那真的你活的会很痛。你的老公可能就不是你的了，你的老婆也可能不是你的，你的孩子可能远离你，你的父母跟你反目，你的兄弟姐妹看不起你。如果说这几年但凡听到我们爆料革命，在乌克兰的人能躲开，台湾的人躲开，香港的人躲开，你就不至于陷入到战争和疫苗灾难。如果说在大陆有条件的战友，你能离开那几个热点地区，或者离开中国大陆，咱这太多战友都是听着暴料革命出来的，一家一家的拯救了，是吧，无数个，那你就是最幸福的人。
 
-该官员周一表示，迄今为止，俄罗斯军队已经向乌克兰目标发射了625枚导弹。导弹摧毁了全国各地的住宅楼和城市中心，从乌克兰东南部的沿海城市马里乌波尔到北部的基辅郊区。尽管俄罗斯军队目前未能实现拿下基辅和哈尔科夫的目标，但这位官员说，美国没有迹象表明克里姆林宫正在准备向前线增派现役部队。尽管如此，这位高级国防助理警告说，俄罗斯仍然有“大量”的人员和火力可启用。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-最近几周，数千名美国军人在北约东侧的国家驻扎，其中包括波兰、拉脱维亚、立陶宛和爱沙尼亚。
+**关注我们**
 
-[Source](https://www.cnbc.com/2022/03/07/pentagon-says-nearly-100percent-of-pre-set-russian-troops-are-now-in-ukraine.html)
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

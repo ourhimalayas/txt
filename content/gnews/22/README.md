@@ -2,42 +2,31 @@
 ---
 
 
-## 西喜时事新闻简报 — 美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2128230/)
+## 俄罗斯经济走向及普京的未来
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2128255/)
 
-翻译：土饭团
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7ONLSY64BFNNZIJBN722WIFLAA-edited.jpg)图片来源：路透社
+2022-02-25直播摘录
 
-您若想了解全文报导内容，请点击标题链接
+刚才说对了，战友说对了，看上去大家都知道的话题，只要把SWIFT切掉，俄罗斯就绝对完，绝对完。他所谓大量的储备的黄金都扯淡的事情，记住，绝对不可能。他就不切，切掉SWIFT跟着是什么，知道吗，战友？跟着，英国第二招，把所有在伦敦的俄罗斯人立马驱逐，内部人就会加大干掉普京的步伐。但是英国人考虑到自己在，俄侨在英国的钱和影响力、房地产、金融，不敢。法国就更糟糕了，连SWIFT都不让他踢出去。而且法国，南法的投资和南法都不能有任何限制。放开了尼斯机场，你去看看，你上网络上有一个镜头，专门是尼斯私人机场的，在YOUTUBE上，24小时的。尼斯几个私人机场，包括法国南法南几个机场，几乎是没有任何飞机能停下来。你知道那个飞机，私人飞机到了尼斯是什么，过去，就是我的飞机往那儿飞的时候啊，每次往那儿飞就飞下来以后飞机要飞到另外一个城市去去，隔着去，你那时候没法停。现在是往哪停知道吗？飞机飞到尼斯，飞到南法，其他这几个机场，甚至放飞到，你比方摩纳哥他没有机场，他只能飞到尼斯，你知道吗？飞到那以后，飞机要停到西班牙去。多少架飞机，知道吗，战友们？一个俄罗斯，私人飞机，一个中国在当时最高峰的时候达到了800架，从0到60架到800架，一个俄罗斯5000架。5000架都是超级私人飞机，那些小的不算。多少游艇，你知道，在南法，知道吗？在地中海，大家知道吗？整个在地中海的所有的游艇加起来的价值是俄罗斯GDP的大概一倍。你能想象到一个俄罗斯一万多亿美元的GDP，他有1万亿多美元的奢侈品，消费品在地中海飘荡。这一万多亿美元的游艇，飞机，你知道1年的花费多少？最低是它的成本15%~20%，也就是2000亿。兄弟姐妹们，欧洲要想制裁，你根本不需要做什么，SWIFT一停，把这资产一查封，然后把这个就不允许在这个领域活动，叫领域活动。完了，马上普京内部人把他干掉了，就这么简单。
 
-**1.[众议员Kim,Slotkin提出两党法案，调查中共国支持俄罗斯入侵乌克兰的情况](https://www.foxnews.com/politics/reps-kim-slotkin-bipartisan-investigate-china-russian-invasion-ukraine)**
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-福克斯新闻3月7日电，加利福尼亚州共和党众议员Young Kim和密歇根州民主党众议员Elissa Slotkin周一提出了一项两党议案，2022年对中共国的直接调查、采取行动反对俄罗斯法案，即《DICTATOR法案》，要求国务卿Antony Blinken向国会详细说明哪些与中国共产党（CCP）有关的实体可能已经协助或继续协助克里姆林宫规避美国的制裁。
+**关注我们**
 
-**2.[众议员Mike Gallagher: Biden的威慑战略将使台湾像乌克兰一样失败](https://www.foxnews.com/media/rep-mike-gallagher-biden-deterrence-strategy-will-fail-taiwan-like-it-did-ukraine)**
+Discord 账号
 
-福克斯新闻3月6日电，威斯康星州众议员Mike Gallagher在“美国周日之夜”节目中警告观众，随着俄罗斯入侵乌克兰进入第二周，中共国和伊朗将构成威胁。虽然全世界的注意力都在乌克兰，Biden没有处理好俄罗斯的问题，可能会成为更多专制国家入侵其他国家的诱因。我担心威慑会在更大的舞台上再次失败，这就是台湾的冲突。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-**3.[中共国中兴通讯因可能违反美国规定而面临听证](https://www.reuters.com/business/media-telecom/chinas-zte-faces-hearing-over-possible-violation-us-probation-2022-03-05/)**
+Gettr 账号
 
-路透社3月5日电，中共国电信设备制造商中兴通讯公司将于3月14日回到美国联邦法院，面临一项新的指控，该公司可能违反了2017年非法向伊朗运送美国技术的认罪答辩。根据3月4日提交给德克萨斯州联邦法院的一份法庭文件，可能的违规行为与涉嫌共谋进行签证欺诈有关。
-
-**4. [Biden和盟友在电话中确认将继续提高俄罗斯入侵乌克兰的成本](https://www.reuters.com/world/biden-speak-with-leaders-france-germany-britain-ukraine-crisis-2022-03-07/)**
-
-路透社3月7日电，白宫表示，美国总统Joe Biden与法国、德国和英国领导人在周一的视频通话中申明，他们决心继续提高俄罗斯“无端和无理入侵乌克兰”的代价。美国国务卿Antony Blinken周日表示，美国和欧洲伙伴正在探讨禁止俄罗斯石油进口，但强调了全球稳定石油供应的重要性。
-
-**5.[美国国会接近达成援助乌克兰、资助政府的协议](https://www.reuters.com/world/us/democrats-aim-reset-domestic-legislative-agenda-after-biden-speech-2022-03-07/)**
-
-路透社3月7日电，美国国会谈判代表周一即将就一项法案达成协议，该法案将向乌克兰提供数十亿美元的紧急援助，以及为美国政府提供资金至9月30日，并提供资金以应对COVID-19问题。了解谈判情况的国会人士说，民主党和共和党领导人希望最早在星期二公布立法，但强调谈判尚未完成。
-
-* * *
-
-*审核：阿伯塔***
-***校对：信心满满***
-***发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-4.jpeg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
