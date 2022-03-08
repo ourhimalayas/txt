@@ -2,30 +2,22 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月7日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2123795/)
+## 新中国联邦救援 （1）
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2123894/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-9.png)
+由于乌克兰局势的日益恶化，NFSC和法治基金与救援组织共同合作，协助华人同胞，美国及其他的各国友人免费撤离。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1-2.png)
-校对：Stay文苑
+2022 年2月24 日，俄罗斯入侵乌克兰。我现在真的很害怕， 我真的很想寻求国家的帮助 ，就是我一遍一遍给你们打电话 ，真的是我要崩溃了。我包不到车，火车站挤不进去，你让我怎么啊？我去到沃利夫 ，我一个人都不认识，怎么走啊？
 
-编辑：Stay文苑
+那么我们现在通过一系列的观察和世界上的朋友，各方面的联合之后，我们会在全世界的国际救援组织下，我们会安排新中国联邦，由法治基金法治社会主导的到乌克兰战场的，对中国同胞和美国朋友的紧急救援行动。
 
-发稿：Stay文苑
+由于乌克兰局势的日益恶化，NFSC和法治基金与救援组织共同合作，协助华人同胞，美国及其他的各国友人免费撤离，大卫带领英喜战友奔赴救援第一线 。华盛顿DC农场阿丙女士带领的第二支，救援队伍也从美国纽约赶往波兰 。3月6日，获救的乌克兰民众到达波兰，在采访中这位女士感激新中国联邦的救援 。
 
-新闻：[https://gettr.com/post/pyrnqu5b42](https://gettr.com/post/pyrnqu5b42)
-访谈：[https://gettr.com/post/pyrgg3508e](https://gettr.com/post/pyrgg3508e)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-8.jpeg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
+视频创作：爱爆彩蛋，爆彩蛋| 翻译：精糧 | 字幕：烟波浩淼 | 编辑&发布：闪电训练
 
  
 

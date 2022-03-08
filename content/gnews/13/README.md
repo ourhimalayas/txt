@@ -2,27 +2,27 @@
 ---
 
 
-## 有声｜拜登考虑放宽对委内瑞拉的制裁以孤立俄罗斯
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2124396/)
+## 秘翻在线：美国会议员提出法案，要求调查中共幕后支持俄罗斯
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2124455/)
 
-By:**秘翻新闻**
+**翻译：billwilliam**
 
-**2022-03-08**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-20.png)图片来源  John Angelillo/UPI 
-[据合众国际社北京时间3月8日报道，白宫已派出高级官员会见委内瑞拉领导人。据一位直接了解此事的人士称，拜登政府正在权衡放松对委内瑞拉制裁的可能性，以便该国能够开始生产更多石油并在国际市场上销售。此举旨在减少俄罗斯入侵乌克兰期间全球对俄罗斯石油的依赖，并将俄罗斯与其在南美的主要盟友之一隔离开来。](https://www.upi.com/Top_News/World-News/2022/03/07/venezuela-us-to-meet-venezuela-lawmakers-deal-ban-russian-oil-ukraine-invasion-rising-gas-prices/5861646685553/)
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-13.jpg)图源：asiatimes.com
+据福克斯新闻报道，加州共和党众议员杨·金（Young Kim）和密西根州民主党众议员艾丽莎·斯洛特金（Elissa Slotkin）本周一提出法案，要求国务卿布林肯向国会报告中共政府多大程度幕后支持俄罗斯侵略乌克兰。目前尚未通过，只是提出法案。
 
-[美国国务卿安东尼·布林肯周日表示，美国及其盟国正在积极探索禁止进口俄罗斯石油的方法，从而进一步损害俄罗斯经济。到目前为止，西方一直不愿对俄罗斯的能源部门实施重大制裁，因为它可能会影响全球经济，但随着欧洲努力使其能源多样化，现在越来越接近这样做了。](https://www.upi.com/Top_News/World-News/2022/03/07/venezuela-us-to-meet-venezuela-lawmakers-deal-ban-russian-oil-ukraine-invasion-rising-gas-prices/5861646685553/)
+该法案名为《2022年对中国直接调查、采取行动反对俄罗斯法案》或《独裁者法案》（The Director Investigations on China, Take Action to Oppose Russia Act of 2022 或DICTATOR Act）。《独裁者法案》要求在其颁布后 90 天内向参众两院的外交事务委员会提交一份非机密报告，美国国务院须提交报告解释哪些中共实体协助俄罗斯逃避美国制裁。法案同时规定，拜登总统应当制裁任何协助俄罗斯联邦或俄寡头逃避西方制裁的中共实体，因为俄罗斯侵略乌克兰。
 
-[共和党参议员马可·卢比奥已经批评了这些讨论，他在周末发推文称，与其生产更多的美国石油，拜登想用来自另一个凶残独裁者的石油取代俄罗斯的石油。](https://www.upi.com/Top_News/World-News/2022/03/07/venezuela-us-to-meet-venezuela-lawmakers-deal-ban-russian-oil-ukraine-invasion-rising-gas-prices/5861646685553/)
+杨·金众议员说，当美国和西方采取行动追责普京无端侵略乌克兰的行径时，中共国对俄罗斯的沉默与尊重不容忽视。她警告中共，任何协助俄罗斯逃避美国制裁的行为将付出沉重代价。随着俄罗斯无端侵略愈演愈烈，美国需要与盟友合作，通过制裁和没收资产来孤立普京政权，但需要保持这些惩罚。《独裁者法案》确保美国调查中共支持莫斯科，并阻止中共帮助普京逃避其侵略行为的后果。
 
-[但了解谈判情况的消息人士称，仅仅增加美国石油产量并不能弥补切断俄罗斯所造成的损失。](https://www.upi.com/Top_News/World-News/2022/03/07/venezuela-us-to-meet-venezuela-lawmakers-deal-ban-russian-oil-ukraine-invasion-rising-gas-prices/5861646685553/)
+而中共官员上周表示不会因为侵略乌克兰而制裁俄罗斯，并会·继续正常贸易合作。上周一份西方情报报告显示，中共事先知道俄罗斯侵略乌克兰的计划，并且要求俄罗斯将进攻时间推迟到北京冬奥会之后。在俄罗斯2月24日开战之后的第二天，中共国取消对俄小麦的进口限制，帮助缓和制裁的压力。周一的新闻发布会上，中共外长王毅仍然称俄罗斯为“最重要的战略伙伴”，并要推动新时期中俄全面伙伴关系发展。
 
-秘翻新闻 文洋 编译报道
+中共很明显就是在背后为俄罗斯提供金融支持，比如几天前在Visa和万事达取消在俄业务后，俄罗斯银行转为使用银联支付体系。在多家俄罗斯银行被SWIFT系统踢出后，中共就是俄罗斯维持侵略战争的幕后金主。郭文贵先生曾爆料，普京和习近平有2.5小时单独用翻译器密谈，约定俄罗斯攻打乌克兰，而中共取台湾。而且郭先生认为中共仍然计划攻台，甚至不惜平民死伤代价血腥狂轰滥炸。希望美国国会能尽快通过《独裁者法案》，把中共从西方金融体系彻底切除。
 
-发布 : 恩典
+**新闻来源：**
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+[https://www.foxnews.com/politics/reps-kim-slotkin-bipartisan-investigate-china-russian-invasion-ukraine](https://www.foxnews.com/politics/reps-kim-slotkin-bipartisan-investigate-china-russian-invasion-ukraine)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

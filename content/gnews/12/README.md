@@ -2,28 +2,31 @@
 ---
 
 
-## IBM公司宣布暂停在俄罗斯的活动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2124401/)
+## 德国表示将继续进口俄罗斯能源
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2124490/)
 
-![IBM公司宣布暂停在俄罗斯的活动 - 俄罗斯卫星通讯社, 1920, 08.03.2022](https://cdn.sputniknews.cn/img/102342/43/1023424344_0:0:1000:563_1920x0_80_0_0_eb1d5e05d8f2dc77fde6b6c3ffcbc180.jpg.webp)资料图
-据俄罗斯卫星通讯社华盛顿3月8日报道，IBM公司宣布暂停在俄罗斯的商业活动。IBM网站发布的公司负责人的声明称：“我们已经暂停在俄罗斯的所有商业活动”。此前该公司称正暂停向俄罗斯“出售技术”。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-俄罗斯发动对乌克兰的战争，在打击乌克兰的同时，也重重地打击了本国的经济。由于西方制裁和战争带来的不确定性，一系列跨国公司已经暂停了在俄罗斯的经济活动。此前俄罗斯的年轻人表示很不适应苹果手机和Apple Pay被暂停使用，年轻人的生活已经与数字产业密不可分。战争从来只是满足少数人的需要，大多数人却要为此付出生命和财产的代价。停止战争，通过谈判解决问题。
+整理：围剿维尼熊
+编辑：编辑：Mohegayer K. Simon
 
-新闻参考链接：[https://sputniknews.cn/20220308/1039784704.html](https://sputniknews.cn/20220308/1039784704.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-601.png)图片来源：雅典娜设计组
 
 
-编辑：【英国伦敦喜庄园编辑部】
+根据德国之声中文网报道，德国总理肖尔茨3月7日表示，目前无其它途径可确保欧洲的取暖、交通、电力供应和工业能源供应，而确保能源供应对于生存和公民的日常生活至关重要。正因如此欧洲才会特意避免制裁俄罗斯的能源。肖尔茨强调，数月来，德国政府及其在欧盟内外的合作伙伴已在全力开发俄罗斯能源的替代品。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+德国在化石燃料方面非常依赖俄罗斯。从俄罗斯进口的天然气占德国天然气总进口量约55%，煤炭占50%，原油进口占35%左右。德国政府发言人黑贝施特赖特（Steffen Hebestreit）周一表示，欧盟在与美国、英国密切协商下，已经对俄罗斯进行非常深的制裁。另外一项最新调查显示，多数德国人赞同冻结从俄罗斯进口石油和天然气。
+
+参考链接：[德国将继续进口俄罗斯能源](https://m.dw.com/zh//a-61044335)
+
+发布*：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

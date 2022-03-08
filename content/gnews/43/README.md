@@ -2,10 +2,10 @@
 ---
 
 
-## 【乌克兰救援】新中国联邦的战友为参加乌克兰救援行动不惜辞去工作
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2119403/)
+## 北约部队不直接参与乌克兰冲突，无论地面还是领空
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2119405/)
 
-【乌克兰救援】 03/05/2022新中国联邦的战友为参加乌克兰救援行动不惜辞去工作。
+03/04/2022 北约将提供广泛的必要支持，同时不让北约部队直接参与乌克兰冲突，无论地面还是领空。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

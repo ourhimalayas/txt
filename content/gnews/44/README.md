@@ -2,10 +2,10 @@
 ---
 
 
-## 美国前国务卿迈克·蓬佩奥访问台湾并表示支持
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2119401/)
+## 【乌克兰救援】新中国联邦的战友为参加乌克兰救援行动不惜辞去工作
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2119403/)
 
-03/04/2022 美国前国务卿迈克·蓬佩奥访问台湾并表示支持。
+【乌克兰救援】 03/05/2022新中国联邦的战友为参加乌克兰救援行动不惜辞去工作。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
