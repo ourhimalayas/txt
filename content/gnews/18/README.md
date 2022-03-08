@@ -2,48 +2,34 @@
 ---
 
 
-## 新中国联邦在乌克兰救援中的四个唯一 （视频）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2123158/)
+## 因“铁链女”事件，联署要求取消彭丽媛联合国身份
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2123273/)
 
-法治基金/法治社会与新中国联邦——乌克兰国际人道大救援行动
-特别感谢法治基金/法治社会的大力支持！
-#ROLF rescue #NFSC rescue #CCP≠Chinese
+![](https://assets.gnews.org/wp-content/uploads/2022/03/093b0000-0a00-0242-c832-08da004ee835_cx0_cy5_cw0_w1023_r1_s.jpg)网络图片
+编辑摘要：
 
-24小时紧急联络方式： **☎️☎️☎️**电话或短信：+1 720-657-6776 或 +1 719-224-4232 **💌💌💌**邮箱：[\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection)
+据美国之音3月8日报道，江苏徐州“铁链女”事件已经曝光三个月，政府发布的调查通报已经出到第五版，但是2014年就被联合国教科文组织（UNESCO）授予“促进女童和妇女教育特使”的中共国第一夫人彭丽媛始终一言不发，引起民众强烈不满。有人在网上发出公开信并推动联署，要求UNESCO取消彭丽媛联合国“促进女童和妇女教育特使”的荣誉职衔。目前参与公开信联署的个人和团体已经超过400个。
 
-**生 命 不 能 复 制！！！**
+一些组织和联盟在3月8日国际妇女节当天在纽约联合国广场举行示威抗议活动，要求联合国调查中共国铁链女以及中共国贩卖妇女儿童的犯罪问题，同时要求UNESCO取消彭丽媛“促进妇女儿童教育特使”的荣誉职衔。
 
+中共国人口贩卖由来已久，且屡禁不止，彭丽媛的不作为是一个原因，但是根源还在于体制。无论彭丽媛是不是“特使”，“铁链女”和“铁笼女”在中共国都不是特例，而是广泛存在。中共本质的邪恶，违背自然的计划生育政策而导致的人口严重失衡，中共以黑治国、抢劫、强奸、拐卖、杀戮、盗国、卖国的本质，决定了中共国每一个女童和妇女都可能成为“铁链女”或者“铁笼女”，男子则随时会被贩卖成奴。这个体制是一切罪恶的根源，消灭中共，才能彻底砸碎锁链和牢笼，解救每一个被囚禁的女子。
 
+新闻参考链接：[“铁链女”国际反应强烈，更多人联署要求UN科教文组织取消彭丽媛“特使”身份](https://www.voachinese.com/a/joint-letter-urging-unesco-to-revoke-peng-liyuan-s-title-as-special-envoy-for-women-20220307/6473752.html)
 
-作者：V 在途中
+*编辑：胖丁*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/30797-1.jpg)
+* * *
 
-2022年3月6日 郭文贵先生直播：
-新中国联邦在乌克兰救援中的四个唯一：
-
-**1) 唯一去前线救人的中国人团队; 
-2) 唯一无政治经济诉求或政治立场地救中国人、乌克兰人和美国人的团队；
-3) 唯一救出了大量中国人和美国人的团队；
-4) 唯一告诉世界在乌克兰有被中共抛弃的3万中国人的团队；**
-
-【Ukraine Rescue】03/05/2022 NFSC Ukraine Rescue Team Interviews Mayor of Rzeszów, Poland. Mr. Mayor was not only very appreciative of the NFSC’s rescue operation but also facilitated and provided support for our work.
-
-【乌克兰救援行动】03/05/2022 新中国联邦乌克兰救援团队采访波兰热舒夫市长。市长先生不仅非常感谢新中国联邦的救援行动，并且为我们的工作提供了便利和支持。
-
-2022年3月6日 新中国联邦和法治基金成功地救助百名乌克兰儿童逃离战火，让这些孩子安全地抵达波兰，当天深夜孩子们被安置在新中国联邦和法治基金事先订好的酒店中。
-
-在乌克兰的中国同胞们！我们不要任何个人信息！我们只希望能救助同胞还有所有愿意离开战火的国际人士平安地远离战火！
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-**亲爱的同胞们请您谨记**
-**生命不能复制！！！**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
-
-**审核校对：玫瑰天空
-上传排版：V 在途中**
 
  
 
