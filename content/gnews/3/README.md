@@ -2,26 +2,32 @@
 ---
 
 
-## 中日财经爆┃俄罗斯被摩根大通踢出所有固收指数
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2124583/)
+## 20000名外国志愿者将加入“国际军团”对抗俄罗斯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2124710/)
 
-整理编辑：东京樱花团丨peterwong
+#### 整理：围剿维尼熊
+编辑：Mohegayer K. Simon
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯被摩根大通踢出所有固收指数.png)[*图片来源*](https://images.wsj.net/im-499890?width=1280&amp;size=1.77777778)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-摩根大通3月7日加入其他指数供应商的行列对俄罗斯进行制裁，周一发表声明表示，将于3月31日把俄罗斯排除在所有固定收益指数之外。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-02-02-下午10.11.59-13.png)图片来源：雅典娜设计组
 
-摩根大通经营着广受关注的主权硬通货指数系列EMBI，以及对应的企业债务指数CEMBI，它还拥有针对新兴货币本地债务的GBI-EM指数以及由环境、社会和治理（ESG）因素管理的JESG指数。
 
-该银行周一表示，俄罗斯将被排除在EMBI系列指数之外，包括投资级和其他信用级别分项指数。俄罗斯和白俄罗斯将被排除在JESG EMBI、JESG GBI-EM和JESG CEMBI指数之外。
+根据德国之声中文网3月7日报道，乌克兰外长库列巴（Dmytro Kuleba）周日晚间表示，加入战斗的外国志愿者人数已达到约20000人，这些志愿者来自52个国家。库列巴并未透露已经有多少志愿者抵达乌克兰，也没有公布志愿者具体来自哪些国家，仅表示部分国家不允许其公民为其他国家而战。他同时也呼吁生活在海外的乌克兰人发起争取乌克兰加入欧盟的运动。
 
-摩根大通表示，以当地货币计价的俄罗斯债券将被排除在GBI-EM指数之外，这些债券的应计利息将被设定为零，并从3月7日起暂停。
+乌克兰总统泽连斯基之前就公开邀请外国志愿者到乌克兰加入“国际军团”，帮助乌克兰抵抗俄罗斯。目前丹麦已经准许国民参加乌克兰的战斗。德国也有不少民众向乌克兰大使馆询问如何才能加入国际兵团。但根据德国刑法，任何“为外国势力招募德国人服兵役”者都可能面临监禁。
 
-消息来源：[**摩根大通将把俄罗斯剔除出所有固定收益指数**](https://cn.reuters.com/article/jpmorgan-chase-russia-fixed-income-0308-idCNKBS2L506L?il=0)
+参考链接：[招募“国际军团” 乌克兰外长：2万外国人志愿参战](https://m.dw.com/zh/a-61039908)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+*发布：*Frank2021
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

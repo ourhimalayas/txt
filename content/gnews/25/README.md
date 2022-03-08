@@ -2,79 +2,46 @@
 ---
 
 
-## 参议员卢比奥： 正在制定法规对中共国实施制裁,一旦发现中共用他们的CIPS系统来帮助俄罗斯绕过SWIFT制裁的话
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2123914/)
+## 大直播后记：新中国联邦救援行动将是世界的模版
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2124318/)
 
-参议员马可·卢比奥： 我正在制定法规。如果我们发现中共国试图使用他们的跨境国际支付系统 (CIPS) 来帮助 俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 绕过 SWIFT 制裁，本法规将对 中共国 [#China](https://twitter.com/hashtag/China?src=hashtag_click) 实施制裁 【转报道：中共国的支付系统能否成为俄罗斯的SWIFT解决方案？】
+#### 整理：北酒仙翁、Rianna
+编辑：skyandmoon2012
 
-
-
-> I am working on legislation that would impose sanctions on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) if we catch trying to use their Cross-Border International Payments System (CIPS) to help [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) get around SWIFT sanctions
-> 
->  [https://t.co/SWFg8pr7Vp](https://t.co/SWFg8pr7Vp)
-> — Marco Rubio (@marcorubio) [March 8, 2022](https://twitter.com/marcorubio/status/1501028230718967817?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-8.png)
 
 
+大卫（前线发言）：我们转战了华沙、热舒夫，还有今天转战的克拉科夫。我在和咱们兄弟姐妹们一起共事的时候，给我最大的感触，就是我要和七哥分享的“团结”。团结真是在事上见，我们在一起的时候分享信息，包括早上跟阿炳，炳姐我们开会，跟后方长岛哥，跟咱们的班长还有文耀、文戈七雄和文科，我们都在联系协商今天前线的各个卡点，这辆大巴就在我们不经意之间慢慢的进了这个波兰城。
 
-参议员汤姆.科顿： 两党都犯了这一代人最严重的错误之一是：给予共产主义中国永久最惠国待遇、并让其加入世界贸易组织。
+进到波兰境内的时候，我们一直提醒司机一定要给我们发信息，因为我们特别担心车上有没有什么突发情况。他们非常冷静，就像刚才七哥讲的，这个民族在非正义战争来的时候他没有退缩。大家看她没有哭哭啼啼，刚才她退了一下，因为我在现场看到她的泪水差一点涌出来，但是她控制住了，所以这就是对我们的一种尊重。因为我们在之前告诉他，我们是法治基金、法治社会，对他这次的一个营救。
 
+所以他下来到接受采访，我们说最实在的话，我们到了一个安全的地方，这是我们仅仅能做的，但是我们愿意为此付出我们能做的一切代价。我觉得这就是七哥一直强调的：共产党代表不了中国人。新中国联邦的作用就是告诉世界真相，我们不都是共产党的视频里播放的那些垃圾人。我们帮乌克兰人，我们来到你的国家里帮，我们来到波兰的境内去帮，用行动去帮， 这比什么都有说服力。所以这几天下来，我最大的感触就是，当你尊重了对方，尊重了这个民族，他也会尊重你。
 
+所以尊重、平等是争取来的，靠实力，靠对对方的尊重，还有对正义的尊重，还有那种悲悯之心；跟国籍没关系，跟政治没关系，跟信仰没关系。所以对共产党还是那句话：你就是最大的笑话！你看不了我们新中国联邦的笑话，我们在用行动证明，共产党你完了！
 
-> Both parties are complicit in one of the single worst mistakes of this generation: granting Communist China Permanent Most Favored Nation status and admitting it into the World Trade Organization.
-> — Tom Cotton (@SenTomCotton) [March 8, 2022](https://twitter.com/SenTomCotton/status/1501023399174365185?ref_src=twsrc%5Etfw)
+七哥：谢谢各位兄弟姐妹，今天又是一个新的台阶，新的台阶啊！整个战争当中200个国家，你见有一个像我们这样的组织吗？在现场有一个像我们这样的组织吗？大卫Sara，你们每个人见过吗？有这样一个标准化、国际化、无私的，完全没有目的的，有吗？根本没有！昨天晚上的某个国际组织的主席跟我说，我们要做这个模式怎么怎么样。我给他原话说：我告诉你不要教我做什么，你们拿着全世界人民给你们数以亿计的钱，你们都花哪儿去了？我们做什么不需要你指挥。
 
+能，跟我们合作；不能，滚一边去。他说当地的政府现在特别支持，都知道了新中国联邦，都知道了法治基金、法治社会。我说法治基金、法治社会的授权是我们素未谋面的中国有正义的、和反对共产党战友捐的钱。我们不是说无穷无尽的钱，但是我们要救的是素未谋面的中国人和乌克兰人和全世界的战友和朋友，我们是真正的未来大同世界的最好的模样和范版。所以说你们在现场的时候，大卫兄弟和正义小Sarah，你感觉当地的警察和政府对我们一下子就开始越来越欢迎、越来越支持了。你们有什么感受，跟大家谈一谈。
 
+大卫：我们仅举一个简单的例子。我们到达了当地的这个酒店，我们在酒店里，因为一大帮中国人进来，别人都不知道我们是干什么的。前阵子，我跟文贵先生讲，我们首先要跟当地的警方政府联系上，咱们是真正的国际标准化的救援呀！为什么不让当地人知道我们呢？所以，我们和酒店的这个manager、员工交流，大家都对我们非常友善，在给我们端食物、端咖啡的时候，都能看出来心理的接纳。所以这就是回到刚才那句话，我们的国际形象是靠实力争取过来的，是靠我们每一人的言行换来的，不是共产党吹出来的。最新的消息是共产党在乌克兰境内所谓的协调人员已经都跑路了，都跑了。共产党完蛋了，我们来了——新中国联邦人来了，来救乌克兰人民，救美国同胞，救我们中国的同胞，救我们的留学生。所以这种对比和反差，让波兰的当地人真的是看清了谁可信、谁可交？所以这几天我们真是信心倍增，真是在当地越来越感受到我们在扭转这种局面。所以我希望越来越多的战友来到当地，亲自感受到这种变化，并且用我们的言行告诉乌克兰人和波兰人，我们是来拯救这些同胞们，这些朋友们。我们不是共产党，共产党已经过去了，已经翻篇了。所以这几天我特别的感受到了他们这种友好的变化，每一个细节都能感受到。
 
-众议员马乔丽·泰勒·格林： 民主党人不在乎汽油价格有多高，因为他们希望美国人放弃并购买电动汽车。 那么美国人想开车就要依赖 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)，因为 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 以超过85%的比例在电动汽车电池市场上占据主导地位，而美国则不到5%。 民主党(实践的)是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 优先。
+七哥：你俩太狠了，你让当地的共产党官员去的时候，你也给人家喝杯咖啡，把你的豪华车，还有厕所让他用一用。你俩别那么狠，共产党也是咱们同胞嘛，他去的时候，厕所跟我们的RV车、奔驰车、豪华酒店也让他用用是吧？看跟着共产党比爹娘还亲的共产党员看这个啥感觉。
 
+大卫： 对了七哥，我们准备就近通过援助行动来顺势给中共策反一批官员——共产党人你也可以来我们的大巴车给你救出来。
 
+七哥：现场的兄弟姐妹们一定要记住，保持你们现在的队形。救人我们是发自内心的，没有目的、没有利益，救人不要变成我们的压力，最重要的是新中国联邦。我们很自私的，我们不像共产党说的我们所有人都可以死，不可以的，战友的安全和健康一根毛都不能丢。这就是你们在前线每个战友做的事情，必须吃好睡好，必须一个毛不能丢，这是绝对的要求。第二个要求，能救人就救人，救不了也没办法，我们尽力了，但是他不能变成我们每个人的使命，还是相信自己现在做的实力，唯真不破。还有我们依靠真正的能力来做我们想做的事情，不要有任何压力。最后就是你们兄弟姐妹互相照顾，但是晚上不要串房，睡好觉保持道德。你别整出一堆新中国联邦前线的婴儿，这咋办呢？这玩意要保持啊，谢谢你们。还有什么要说的？
 
-> Democrats don’t care how high gas prices go because they want Americans to give up and buy electric vehicles.
-> 
-> Then Americans will rely on China to drive because China dominates the EV battery market at over 85%, and America is less than 5%.
-> 
-> Democrats are China First.
-> — Rep. Marjorie Taylor Greene (@RepMTG) [March 8, 2022](https://twitter.com/RepMTG/status/1501003963285622787?ref_src=twsrc%5Etfw)
+大卫：好的，首先跟七哥通报，我们不在一个酒店。而且很忙，没有时间去想其他的杂念。另外我在大直播平台给大家说一下，我们有大杀器七哥！老弟，给你搂着呢！我们有大杀器，好消息还在后面，咱们先搂住。那么后面我们有很多工作还有没落实的，我们要扎扎实实做下去，请战友们随时关注我跟小Sara的前线报道。
 
+资料来源：[2022年3月6日 文贵大直播](https://gettr.com/streaming/pyhtnya292)
 
+发布：*wenly*
 
-美前国务卿迈克·蓬佩奥： 认为我们会允许俄罗斯人参与与伊朗人的协议谈判，或者美国会取消对伊朗人的恐怖指控，这完全是疯了。伊朗人正试图在世界各地杀人。 但拜登政府正在同时做这两件事。
-
-
-
-> It’s completely nutty to think that we would allow the Russians to participate in negotiating a deal with the Iranians or that the U.S. would lift the terror designations on the Iranians, who are trying to kill people all across the world. 
-> 
-> But the Biden Admin is doing both. [pic.twitter.com/W9SmYpUdHr](https://t.co/W9SmYpUdHr)
-> — Mike Pompeo (@mikepompeo) [March 7, 2022](https://twitter.com/mikepompeo/status/1500962806576861184?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥： 普京会毫不犹豫地在乌克兰上演生物武器假戏码，这是你会看到的那种信息舆论作为他这样做的前奏。 【转ASB军事新闻推文：大意是俄国公布文件说乌克兰在靠近俄边境研究违反联合国1号文件的生物武器，他们是由美国资助的，在五角大楼指导下已被摧毁】
-
-
-
-> [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) would not hesitate to stage or carry out a biological weapon false flag in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) and this is the kind of messaging you would see as a prelude to him doing that [pic.twitter.com/a8OpRu7hyF](https://t.co/a8OpRu7hyF)
-> — Marco Rubio (@marcorubio) [March 7, 2022](https://twitter.com/marcorubio/status/1500940810455502861?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 被全球支付网络隔绝的俄罗斯银行正在转向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的国有银行系统。
-
-
-
-> Russian banks cut off from global payment networks are turning to China’s state-run banking system.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 7, 2022](https://twitter.com/MarshaBlackburn/status/1500933383521812491?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿蓬佩奥： 台湾人民从一开始就已经意识到了中国共产党的威胁。世界从台湾人民对中共极度现实的不信任中得到启发。
-
-
-
-> The Taiwanese people have been awake to the Chinese Communist Party’s threat from the beginning. The world drew inspiration from the Taiwanese people’s profound and realistic distrust of the CCP.
-> — Mike Pompeo (@mikepompeo) [March 7, 2022](https://twitter.com/mikepompeo/status/1500890828054712330?ref_src=twsrc%5Etfw)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

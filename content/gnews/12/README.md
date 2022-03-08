@@ -2,32 +2,28 @@
 ---
 
 
-## 德国表示将继续进口俄罗斯能源
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2124490/)
+## 中日财经爆┃拜登将签署研究加密货币监管与发现的行政令
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2124635/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+整理编辑：东京樱花团丨peterwong
 
-整理：围剿维尼熊
-编辑：编辑：Mohegayer K. Simon
+![](https://assets.gnews.org/wp-content/uploads/2022/03/拜登将签署研究加密货币监管与发现的行政令.png)[*图片来源*](https://static.hkej.com/hkej/images/2022/03/08/3063029_a55e36dc8882f2e0b94cab10a2844876.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-601.png)图片来源：雅典娜设计组
+据路透社3月7日报导，消息人士表示，美国总统拜登料将在本周签署一项外界期待已久的行政令，指示司法部、财政部和其他机构研究创建美国央行数字货币的法律和经济影响。
 
+白宫去年表示，正在考虑对加密货币市场进行广泛的监督，包括一项行政令，以应对日益严重的勒索软件和其他网络犯罪威胁。
 
-根据德国之声中文网报道，德国总理肖尔茨3月7日表示，目前无其它途径可确保欧洲的取暖、交通、电力供应和工业能源供应，而确保能源供应对于生存和公民的日常生活至关重要。正因如此欧洲才会特意避免制裁俄罗斯的能源。肖尔茨强调，数月来，德国政府及其在欧盟内外的合作伙伴已在全力开发俄罗斯能源的替代品。
+拜登的命令设定了180天的期限，要求在此期间内提交一系列关于“货币的未来”和“加密货币将在不断变化的环境中发挥的作用”的报告。
 
-德国在化石燃料方面非常依赖俄罗斯。从俄罗斯进口的天然气占德国天然气总进口量约55%，煤炭占50%，原油进口占35%左右。德国政府发言人黑贝施特赖特（Steffen Hebestreit）周一表示，欧盟在与美国、英国密切协商下，已经对俄罗斯进行非常深的制裁。另外一项最新调查显示，多数德国人赞同冻结从俄罗斯进口石油和天然气。
+“我们可以在180天内看到政策的重大转变，这可能是朝着创建央行数字货币迈出的一步，”该消息人士说，他提到拜登政府内部此举背后的巨大动力。
 
-参考链接：[德国将继续进口俄罗斯能源](https://m.dw.com/zh//a-61044335)
+拜登的行政令可能会在周三发布，当前人们对俄罗斯权贵利用加密货币规避西方制裁的问题更加关注，此外人们也更关注中共国和其他经济体创建自身加密货币的举措。
 
-发布*：tianzhihuan*
+消息来源：[**拜登将签署行政令 指示对加密货币的监管和发行进行研究**](https://cn.reuters.com/article/us-biden-order-crypto-currencies-0308-idCNKBS2L508T?il=0)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

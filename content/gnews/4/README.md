@@ -2,28 +2,53 @@
 ---
 
 
-## 英美为泽伦斯基出走做准备，支持组建乌克兰流亡政权
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2124572/)
+## Tik Tok禁止俄罗斯影音上传
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2124678/)
 
-撰稿：东京樱花团︱盖特第一批注册
+作者：纽约香草山教育部 Naughty(文行)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/英美为泽伦斯基出走做准备，支持组建乌克兰流亡政权.png)
 
-一个由英国和美国的情报部门和军事特种部队组成的工作团队被派往乌克兰，帮助完成从首都基辅疏散总统泽伦斯基的准备工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
 
-英国消息人士透露，乌克兰总统、政府高级成员和最高委员会（议会）领导人将逃往北约国家和其他国家，组成流亡政府。除了波兰和英国之外，不是北约成员的瑞典也被考虑作为东道国。
 
-工作团队去年抵达乌克兰，并在12月完成了基本计划的拟定。 由于乌克兰方面对入侵的抵制超过了最初的预期，而且泽伦斯基先生本人也决心暂时留在乌克兰，因此该计划被搁置了。根据情况，他可以选择撤离到乌克兰西部，那里没有被俄罗斯军队控制。
+Tik Tok周日宣布，暂停发布所有来自俄罗斯的影音内容，以保护该公司员工免受俄罗斯有关假新闻法律的影响。
 
-消息人士称，该计划已准备好随时启动。目前，英国陆军特种部队（SAS）似乎正在协助对总统进行人身保护。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-14.jpg)图源网络
 
-英美工作团队分为三组分别负责总统撤离和流亡行动、心理战和从国外带入武器、以及向乌克兰军队提供咨询和指导。
+目前数以百万计的人已经转向 Tik Tok，以获取乌克兰战斗的实时更新和视频剪辑。该公司不得不处理大量视频，其中包括一些未经证实的展示实地行动情况的视频，这导致人们担心Tik Tok 正在传播有关入侵的错误信息。
 
-信息来源：[**英米が大統領脱出準備  亡命政権樹立を支援  ウクライナ**](https://news.yahoo.co.jp/articles/9359b68370d8775304cf64d9fca24246edc5e741)
+根据《纽约时报》的评论，带有#Ukrainewar 标签的视频在Tik Tok上的浏览量已接近5亿，其中一些最受欢迎的视频获得了近100万个赞。Tik Tok上周表示，它已投入更多资源来监控有关战争的误导性内容。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+在俄罗斯持续入侵乌克兰之际，俄国总统普京3月4日签署一项法令，称将对发布俄军假新闻者处以15年的监禁。
+
+该法很快遭到批评人士强烈反对，美国政府也在昨天谴责这项法令，但俄罗斯总统府克里姆林宫在周末为其辩护，称该国正面临“信息战”，需要予以反击。
+
+俄罗斯记者和审查专家警告说，关闭来自俄罗斯的直播和新上传是很棘手的，因为它可能会阻止普通俄罗斯人传播独立信息。如果技术平台在俄罗斯被封锁，将会产生负面影响。
+
+参考来源：
+
+[Tik Tok Suspends Livestreaming and New Uploads From Russia](https://www.nytimes.com/2022/03/06/technology/tiktok-russia-ukraine.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-50.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
