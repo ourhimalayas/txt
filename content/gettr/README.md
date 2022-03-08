@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/8/2022 10:59 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 2022-03-08
+![img](https://media.gettr.com/group4/origin/2022/03/08/22/e4343220-3bc8-237e-2239-89610e523881/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/8/2022 10:28 PM (UTC)`
 
 3/8/2022 Miles Guo: The Russian-Ukrainian war has demonstrated the solidarity and toughness of the Ukrainians. But the Chinese people will have to pay a high price for this war and their stupidity and ignorance. What the CCP has done has made the world discriminate against the Chinese, while the fellow fighters of the New Federal State of China are saving all the Chinese people across the globe!<br/><br/>3/8/2022 文贵盖特：俄乌战争体现了乌克兰人的团结和坚强；中国人将为这场战争及其愚蠢、无知付出高昂的代价；中共的所作所为让全世界排华，而新中国联邦的战友们却在拯救全球的华人<br/>
@@ -150,13 +157,6 @@ We stand with our Ukrainian brothers and sisters during these trying times. Here
 
 3/6/2022 Miles Guo: Which place is safe for the fellow fighters to go? Asia and Africa are very dangerous for the Chinese people, with Indonesia, Malaysia, India, and Vietnam being particularly dangerous. Europe is relatively safe, and Turkey is easier to go and livable. It is recommended that the fellow fighters in Communist China make long-term plans by taking into account their own situations.<br/><br/>3/6/2022 文贵直播: 战友们去哪个地方比较安全？亚洲和非洲对华人很危险，尤其是印尼、马来西亚、印度和越南；欧洲相对安全，土耳其容易去且宜居；墙内战友应根据自身情况做长远打算<br/>
 ![img](https://media.gettr.com/group46/getter/2022/03/08/00/7e8a4140-a221-d621-8453-d7905e2966ed/out.jpg)
-
----
-
-`@miles 3/8/2022 12:10 AM (UTC)`
-
-2022.03.07 NFSC News  Ukraine Rescue Operation feels Serious Anti-Chinese Sentiment； The first bus of the NFSC & ROLF rescue team arrives in Poland
-![img](https://media.gettr.com/group21/origin/2022/03/07/23/3d0825f1-1deb-7d8d-3280-0c6ddc5b72d1/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
