@@ -2,31 +2,31 @@
 ---
 
 
-## 乌克兰大救援3.8. 英国小提琴老师法语祈福新中国联邦救援乌克兰96名儿童与家人团聚
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2128019/)
+## 未来人生最大赢家
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2128299/)
 
-翻译：shanshan
-整理：心声
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-08-at-12.52.24-PM.png)Twitter[@YAO12145531](https://twitter.com/YAO12145531) 截图
+文编：Hima
+听写：叮叮
+视频：七哥
 
+2022-02-25直播摘录
 
-扬帆农场战友米小乐3月7日在其twitter账号写到：Hannah，英国人小提琴老师，知悉新中国联邦在乌克兰救出了90多名小朋友，并安全到达波兰，会在西班牙安顿下来。她用法语录了一段视频，传播新中国联邦在乌克兰的救援！
+我们往回看这几年，如果人在疫苗上听了我们的，你是人生的最大赢家。战争再残酷，也没有残酷过疫苗对你的伤害。啥事没有，打上几针打完了，嗝屁了，癌症，死亡。我就短短的这几天，我身边我的同事，我的朋友，家人，疫苗死亡，四十几岁的检查出癌症，一堆一堆。如果你听了爆料革命，你就会避过人类上最大的，你看乌克兰多残酷，但比疫苗差远了。台湾就是打，台湾也残酷，也没有打疫苗残酷。对台湾最大的伤害就是蔡英文，绝对不是共产党了，从现在看。如果当时听了爆料革命，已买了Hcoin，现在是，现在我看39了又，390倍的回报，你不至于今天你没有钱恐惧。在下一个五年、十年乱世，你没有希望你再没点儿钱，那真的你活的会很痛。你的老公可能就不是你的了，你的老婆也可能不是你的，你的孩子可能远离你，你的父母跟你反目，你的兄弟姐妹看不起你。如果说这几年但凡听到我们爆料革命，在乌克兰的人能躲开，台湾的人躲开，香港的人躲开，你就不至于陷入到战争和疫苗灾难。如果说在大陆有条件的战友，你能离开那几个热点地区，或者离开中国大陆，咱这太多战友都是听着暴料革命出来的，一家一家的拯救了，是吧，无数个，那你就是最幸福的人。
 
-Hannah在留言区问：“ 这个活动和中国政府有关吗？”我们回复：这是新中国联邦，和你们一样对中国共产党说不！NFSC将重建中国人的信仰和法治。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
-> Hannah，英国人小提琴老师，知悉新中国联邦在乌克兰救出了90多名小朋友，并安全到达波兰，会在西班牙安顿下来。她用法语录了一段视频，传播新中国联邦在乌克兰的救援！
-> Hannah：“ 这个活动和中国政府有关吗？”我们回复：这是新中国联邦，和你们一样对中国共产党说不！NFSC将重建中国人的信仰和法治。 [pic.twitter.com/FZe4aa3Td9](https://t.co/FZe4aa3Td9)
-> — 米小乐（扬帆） (@YAO12145531) [March 7, 2022](https://twitter.com/YAO12145531/status/1500905755666378753?ref_src=twsrc%5Etfw)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-
-Hannah在其个人视频里的法语与中文翻译讲话内容如下：
-
-Ce matin le Nouvel Etat Fédéral de Chine, une association caritative a sauvé 96 enfants dont les parents doivent rester en Ukraine pour se battre dans la guerre horrible. Ces enfants seront établis à Barcelone avec des familles espagnoles et quand les parents pourront s’échapper aussi le Nouvel Etat Fédéral de Chine va les réunir. Tout le monde prie pour que le voyage se déroule en toute sécurité!
-
-今天上午，新中国联邦州的慈善机构救援了96名儿童，他们的父母不得不留在乌克兰，在可怕的战争中作战。这些孩子将被安置在巴塞罗那的西班牙人家庭中，当父母也能逃脱时，新中国联邦将让他们团聚。每个人都在为安全的旅程祈祷！
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

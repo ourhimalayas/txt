@@ -2,46 +2,29 @@
 ---
 
 
-## 锁链女，我想对你说
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2128516/)
+## 世界足球先生莱万多夫斯基终止与中共华为合作
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2128598/)
 
-**作者：加州建房哥
-编辑：Candy**
+**撰稿：日本东京方舟农场 海星**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/铁链女.png)图片来源：bannedbook网
+3月7日，世界足球先生莱万多夫斯基（Robert Lewandowski）的经纪人萨威斯拉克（Tomasz Zawislak）发布声明表示，莱万多夫斯基将终止与中共华为合作。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/世足.jpg)（图片来源：法新社、自由时报）
 
-***这首诗来自正在波兰参加救援乌克兰难民的战友，他在休息时听了郭先生演唱的新歌《锁链梦》之后，抑制不住自己的泪水，有感而发。郭先生的这首歌是作为他献给全球妇女节日的礼物，作者写成这首诗表达了他自己、同时也代表了我们新中国联邦人对铁链女的挂念和解救出无数铁链女、消灭产生铁链女的邪恶体制的决心。***
+据《自由时报》报导，莱万多夫斯基的经纪人萨威斯拉克于3月7日在致法新社的声明中表示，我方已做出決定，将停止与华为品牌的营销合作关系，并且已经终止了所有推广服务。据悉，莱万多夫斯基放弃了今年刚签订的3年500万欧元的代言费。
 
-这个世界不要我
-那是因为我们还不知道你被锁
+该报导指出，莱万多夫斯基的这项决定可能与日前发表在英国《每日电讯报》上的1篇报导有关。这篇报导指控中共华为公司正在协助俄罗斯维护网络，反击支持乌克兰黑客团体发动的网络攻击。
 
-牙齿全拔，何等邪恶
-仿佛看到你拔牙时的挣扎哭嚎
-舌头被割，此恨怎么诉说
-眼前有你被割舌后血脸模糊的画面闪过
+莱万多夫斯基是波兰国家足球队球员，并于2020年和2021年两次获得“世界足球先生”称号。他曾在今年二月底的一场比赛中佩戴乌克兰国旗颜色的臂章，以示对乌克兰的声援。他当时表示：”世界无法接受正在乌克兰发生的事情，我希望全世界能支援乌克兰。”
 
-24年的日日夜夜
-没能治好邻舍的冷漠
-如今知你苦难这么多
-再不解你这铁锁
-我们怎能安心苟活
+参考链接：
+1.[https://news.ltn.com.tw/news/world/breakingnews/3852803](https://news.ltn.com.tw/news/world/breakingnews/3852803)
+2. [https://www.ftvnews.com.tw/news/detail/2022308W0242](https://www.ftvnews.com.tw/news/detail/2022308W0242)
+3.[https://zh.wikipedia.org/wiki/%E7%BD%97%E4%BC%AF%E7%89%B9%C2%B7%E8%8E%B1%E4%B8%87%E5%A4%9A%E5%A4%AB%E6%96%AF%E5%9F%BA](https://zh.wikipedia.org/wiki/%E7%BD%97%E4%BC%AF%E7%89%B9%C2%B7%E8%8E%B1%E4%B8%87%E5%A4%9A%E5%A4%AB%E6%96%AF%E5%9F%BA)
 
-众兄弟姐妹的今生
-都在为给你解锁而活
-话不多说，你等等我
-我们人人都把你放在心窝
-
-2022年3月8日
-
-***发布：Candy***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+撰稿：海星
+总编：青城道姑
+校对发布：Linda
 
  
 

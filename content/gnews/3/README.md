@@ -2,34 +2,24 @@
 ---
 
 
-## MV版Hcoin To the Moon上线89天第27次位列匈牙利iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2128617/)
+## 【粤语配音】2022年3月8日：中国共产党的丑恶和危险，唤醒无数的中国人
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2128795/)
 
-3/8/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线89天第27次位列匈牙利iTunes热门音乐视频榜榜首，第41次位列前三名
+紐約香草山-香港部
 
-* * *
+3月8号我们所有的战友应该都看到了，七哥在我们的盖特上，我发出的致以中国三八妇女节的礼物，《锁链梦》这个歌我相信，每个人听到的时候都会受不了，我们要做的是什么？用这个音乐推动世界的和平，维护人类的尊严，特别是维护我们中国女人的安全和尊严。
 
-[【PDF 下载】Tuesday 8 Mar 2022 – Songs by Miles Guo – iTunes Charts Ranking Record](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-8-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-8-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+《锁链梦》这个歌词的每一个字，都是感动着上天的愿中国少一些这样的《锁链梦》所唱的这种女人的经历，我也希望我们真的中国人能早日醒来，抛弃我们的懦弱，不要再如此冷漠了。
 
-* * *
+俄乌战争，兄弟姐妹们，让我们真真正正的看到了战争和独裁的这种残酷，也能看到我们每个人所面临很，有可能发生在我们身边的，这种人性的残酷和战争，面对人性的现实的时候，一个没有信仰，一个没有任何勇气，一个懦弱的民族是多大的悲剧，乌克兰让我们看到人家的使命感，一个真的族群的团结，更重要的是让我们看到，这个国家真的是太坚强太伟大了。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-8-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-8-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-8-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-8-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-8-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-8-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-8-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-8-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-8-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-8-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-8-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-8-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
+接下来就是中国人买单，俄罗斯的帐，现在全世界都是认为共产党在后面付的钱，共产党挑拨起来的（战争），这个世界人类上最滑稽的是人家两国打仗，另外一国买单，然后挨揍的未来最惨的竟然是第三国，中共国
 
+一个外交部中国政府的官员，能对着全世界撒这样的谎，“我的人全救出去了”，我们每时每刻都在救人我们的战友在前线做的事情，在拯救全中国人，拯救所有海外中国人的安全，拯救中国人孩子的未来。
 
-[【PDF 下载】Tuesday 8 Mar 2022 – Songs by Miles Guo – iTunes Charts Ranking Record](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-8-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-8-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+共产党恐惧到什么程度，把我们救援整个email全部黑客掉，我的YouTube账号昨天停止上传视频，我的昨天的两个手机全黑客不能使用，你想他们动了多大的力量，我们发到全球的扫码、全球的email，被你黑了，然后篡改了，然后用那些email用那些代码，去干它们犯罪的事情，如果我们不是救人你怕我们干什么？我们要到前线去骗人、骗钱的话，用得着你黑客我们的email吗？我们就被政府给抓了
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+现在全世界的所有的各方，包括媒体、国际救援组织，都在关注着新中国联邦在前线救人，只有一个群体代表中国人的新中国联邦，在拯救素未谋面的、从不认识的，乌克兰妇女和孩子和中国同胞，我们不图任何回报，不要任何利益，不要您任何认可，但是我们要对得住良心，这个时候我们要救中国同胞，我们要救所有乌克兰的妇女和孩子，让世界知道共产党不等同于中国人，中国人不能被中国共产党所有的人所代表
 
  
 

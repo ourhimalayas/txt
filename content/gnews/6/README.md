@@ -2,26 +2,48 @@
 ---
 
 
-## 普京的女友在瑞士某处“小屋藏娇”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2128569/)
+## 新中国联邦的乌克兰救援行动 吸引世界媒体的关注
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2128688/)
 
-#### 编译：Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16467732631.png)MIGnews.com
-据英国镜报3月6日报道，据消息人士透露，在乌克兰战争期间，艾丽娜·卡巴耶娃（Alina Kabaeva）和她的孩子被俄罗斯总统弗拉基米尔·普京藏在瑞士的一处“非常私密、非常安全”的小屋里。
+作者：纽约香草山健身部-Ivy001
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-45.png)
+俄罗斯入侵乌克兰已经进入第十三天，前世界目光聚焦于乌克兰。波兰边境由于大量乌克兰难民涌入，已经成为难民救援中心，和全球媒体云集之地。正在波兰边境展开救援行动的新中国联邦，为世界各个媒体所关注。
 
-38岁的卡巴耶娃，曾被称为“俄罗斯最灵活的女人”，据说她和69岁的普京有四个孩子。这位运动员和俄罗斯总统之间的恋情最早是在2008年传闻的，据信她在2015年参加一项公开活动时怀着普京的孩子。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2751.jpg)
 
-卡巴耶娃是艺术体操史上获得奖牌最多的体操运动员之一，她在悉尼和雅典获得2枚奥运会奖牌、14枚世界锦标赛奖牌，和25枚欧洲锦标赛奖牌。她有一个迈巴赫豪华轿车车队供她使用，在莫斯科一家咖啡馆里，她被一队手持机枪的保安包围。
+日本时间3月8日，日本唯一的国有电视台NHK，派记者现场报道了乌克兰的救援现况，和新中国联邦的救援点，还有亮眼的蓝色联邦七芒星旗，就在记者身后飘扬。虽然，日本记者没有提及我们新中国联邦，但是，整个报道一直可以看见清晰的新中国联邦旗在飘扬。。
 
-许多俄罗斯人认为她是普京与62岁的前第一夫人柳德米拉（ Lyudmila）婚姻破裂的原因，柳德米拉是普京两个成年女儿的母亲。邻国白俄罗斯的独裁者亚历山大·卢卡申科暗示，普京的离婚决定是因为卡巴耶娃“对总统施加了压力”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-2.jpg)
 
-据消息人士透露，普京将他的情妇和他们的四个孩子藏在以中立国著称的瑞士。卡巴耶娃和普京有两个小男孩和双胞胎女孩，他们出生在瑞士。“孩子们都有瑞士护照，我想她也有。” 知情者道。
+同日，前线Nicole 发回的消息，她采访了一位来自德国的法籍战地记者Emma。Emma在采访中表示，她知道新中国联邦，支持新中国联邦“消灭中国共产党”的主张。并且，她看到我们新中国联邦在乌克兰救援的高效和不计回报的付出，非常感动，认为我们新中国联邦人是热爱和平善良的人，不等同于中国共产党。Emma最后还和Nicole一起喊出：“Take down the CCP!”
 
-多年来，普京一直被外遇的谣言所困扰，他一直否认这一点。前妻说，“弗拉基米尔完全沉浸在他的工作中。我们的孩子已经长大，他们每个人都过着自己的生活……我真的不喜欢公开。” 在一起观看芭蕾舞表演后，普京在国家电视台上承认，他和妻子不再同居的谣言是“真实的”，她已经“完成了作为俄罗斯第一夫人的使命”。
+前线Nicole 还发回消息，来自纽约，全球第三大联播网——CBS的直播车就在我们的直播中心旁边，在过去的两天时间里，他们一直都在关注我们的救援行动。明天，他们的早间新闻主播Tony会到现场, 来跟纽约总部连线直播。
 
-在他执政期间，柳德米拉只有在礼节要求时才出现，几年前，因为她在电视上没有戴结婚戒指，出现过争议。柳德米拉说：“我们的婚姻结束了，因为我们几乎看不到对方”。”政治对手阿列克西·纳瓦尔尼（Alexi Navalny）曾声称，普京在一次秘密仪式上与这位前奥运体操运动员卡巴耶娃结婚。
+正如郭文贵先生所述：世界上尚没有一个国家像新中国联邦这样去前线救援！随着乌克兰救援行动的展开，我们救出越来越多的人，新中国联邦就越来越为人所知，新中国联邦将走向越来越广阔的世界舞台！
 
-Source: [1](https://www.mirror.co.uk/news/world-news/putin-hiding-olympian-lover-4-26399997) [2](https://www.dailymail.co.uk/news/article-10583735/Putins-gymnast-lover-hiding-private-secure-chalet-Switzerland.html)
+新闻链接：
+
+[https://gettr.com/post/pyuqvv79a5](https://gettr.com/post/pyuqvv79a5)
+
+[https://gettr.com/post/pyuzpydcd6](https://gettr.com/post/pyuzpydcd6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-23.jpg)
+
+编辑/校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-46.png)
+
 
  
 

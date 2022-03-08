@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/8/2022 10:23 PM (UTC)`
+
+3/8/2022 Miles Guo’s GETTR: It is my sincere hope that the song “Chained Dream” serves as a wake up call to our fellow Chinese, so that they will abandon cowardice and stop being so apathetic; through music, we endeavor to promote world peace, and more importantly, to bring safety and dignity to Chinese women.<br/><br/>3/8/2022 文贵盖特：真心希望《锁链梦》能让中国人醒来，抛弃懦弱、不再冷漠，我们要用音乐推动世界和平、更重要的是维护中国女性的安全和尊严<br/>
+![img](https://media.gettr.com/group24/getter/2022/03/08/22/a6dc8d07-b985-1ee8-633a-85dc58dc14ef/out.jpg)
+
+---
+
 `@miles 3/8/2022 7:51 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动
@@ -150,14 +157,6 @@ We stand with our Ukrainian brothers and sisters during these trying times. Here
 
 2022.03.07 NFSC News  Ukraine Rescue Operation feels Serious Anti-Chinese Sentiment； The first bus of the NFSC & ROLF rescue team arrives in Poland
 ![img](https://media.gettr.com/group21/origin/2022/03/07/23/3d0825f1-1deb-7d8d-3280-0c6ddc5b72d1/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/7/2022 11:41 PM (UTC)`
-
-🇺🇦乌克兰大救援<br/>🇺🇦Ukraine Rescue<br/><br/>🇺🇦24小时紧急救援客服联系方式如下:<br/>邮箱: ROLF@UKRAINEHELP.INFO 或 NFSC@UKRAINEHELP.INFO <br/>电话(短信或电话):<br/>+1 720-657-6776 或 <br/>+1 719-224-4232<br/><br/>🇺🇦24-Hour Emergency Rescue Support Team Contact:<br/>E-mail: ROLF@UKRAINEHELP.INFO OR NFSC@UKRAINEHELP.INFO<br/>Phone (Call or Text): <br/>+1 720-657-6776 OR <br/>+1 719-224-4232<br/><br/>🇺🇦Контакт цілодобової рятувальної служби:<br/>Електронна пошта: <br/>ROLF@UKRAINEHELP.INFO АБО NFSC@UKRAINEHELP.INFO<br/>Телефон (SMS або телефонний дзвінок): <br/>+1 720-657-6776 АБО <br/>+1 719-224-4232<br/><br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-> `@miles 3/7/2022 11:29 PM (UTC)`<br/>乌克兰🇺🇦大救援<br/>Ukraine Rescue<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group46/gvision/2022/03/07/23/d05746e7-5303-c133-d1e0-0fbda6d1b3ae/out.jpg)
 
 ---
 
