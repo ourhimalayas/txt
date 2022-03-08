@@ -15,35 +15,35 @@
 
 ---
 
-### [独裁政府对货币的控制](/content/gnews/1/README.md)
+### [比特币的风险与Hcoin带来的正义的财富](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [利益集团带来的问题](/content/gnews/2/README.md)
+### [共产党的邪恶](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [现代人类社会不需要政府](/content/gnews/3/README.md)
+### [比特币与黄金的风险](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [Hpay如何使用](/content/gnews/4/README.md)
+### [Hcoin的真正意义](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [Hcoin 和Hpay给你带来安全和稳定](/content/gnews/5/README.md)
+### [独裁政府对货币的控制](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [国际经济动荡与Hpay和Hcoin对世界的救赎](/content/gnews/6/README.md)
+### [利益集团带来的问题](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [文贵先生的财富观](/content/gnews/7/README.md)
+### [现代人类社会不需要政府](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [乌克兰大救援3.8. 英国小提琴老师法语祈福新中国联邦救援乌克兰96名儿童与家人团聚](/content/gnews/8/README.md)
+### [Hpay如何使用](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [乌克兰大救援3.8. 英国小提琴老师法语祈福新中国联邦救援乌克兰96名儿童与家人团聚](/content/gnews/9/README.md)
  ` 秘密翻译组-原创组`
 
-### [排华反华灾难可能会瞬间爆发 墙内同胞也要做好最坏时刻到来的准备](/content/gnews/9/README.md)
+### [排华反华灾难可能会瞬间爆发 墙内同胞也要做好最坏时刻到来的准备](/content/gnews/10/README.md)
  ` 焦點20分`
-
-### [欧盟力争今年将对俄罗斯的天然气依赖度降低近八成](/content/gnews/10/README.md)
- ` 经济小组`
 
 ### [朝鲜在韩国选举前几天再次发射导弹](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -99,77 +99,77 @@
 ### [北约国家获准向乌克兰派遣战斗机](/content/gnews/28/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [法制基金乌克兰救援美国第二团队抵达波兰](/content/gnews/29/README.md)
+### [撤出俄罗斯的外国公司名单不断增加](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [撤出俄罗斯的外国公司名单不断增加](/content/gnews/30/README.md)
- ` NFSC News`
-
-### [新中国联邦乌克兰援救行动已成功救出首批受困人员](/content/gnews/31/README.md)
+### [新中国联邦乌克兰援救行动已成功救出首批受困人员](/content/gnews/30/README.md)
  ` 焦點20分`
 
-### [2022/03/07 墙内世界](/content/gnews/32/README.md)
+### [2022/03/07 墙内世界](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [3/8/2022国际财经快讯：俄罗斯警告西方国家每桶油价将达300美元；欧佩克表示无法控制扰乱全球石油市场的事件](/content/gnews/33/README.md)
+### [3/8/2022国际财经快讯：俄罗斯警告西方国家每桶油价将达300美元；欧佩克表示无法控制扰乱全球石油市场的事件](/content/gnews/32/README.md)
  ` 秘密翻译组金融团队`
 
-### [秘翻新闻｜中俄联合洗脑编织虚假信息网 人民难逃脱](/content/gnews/34/README.md)
+### [秘翻新闻｜中俄联合洗脑编织虚假信息网 人民难逃脱](/content/gnews/33/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [巨额隔离费归了政府，隔离酒店开始了漫长的讨债之路](/content/gnews/35/README.md)
+### [巨额隔离费归了政府，隔离酒店开始了漫长的讨债之路](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [辉瑞根据法院令被迫公布提交给食药局疫苗副作用数据](/content/gnews/36/README.md)
+### [辉瑞根据法院令被迫公布提交给食药局疫苗副作用数据](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [香港疫情｜港大医学院料确诊数达顶峰 累计感染达184万人](/content/gnews/37/README.md)
+### [香港疫情｜港大医学院料确诊数达顶峰 累计感染达184万人](/content/gnews/36/README.md)
  ` 蓝莲花农场`
 
-### [“我的未来被夺走了”：俄罗斯人正在逃离避免面对战争的后果](/content/gnews/38/README.md)
+### [“我的未来被夺走了”：俄罗斯人正在逃离避免面对战争的后果](/content/gnews/37/README.md)
  ` 澳喜农场`
 
-### [中共习近平联组会上称粮食生产靠自力更生](/content/gnews/39/README.md)
+### [中共习近平联组会上称粮食生产靠自力更生](/content/gnews/38/README.md)
  ` 波士顿五月花农场金融部`
 
-### [樱花FM|俄军阵亡将士抚恤金720元人民币 乌方高额赏金劝降](/content/gnews/40/README.md)
+### [樱花FM|俄军阵亡将士抚恤金720元人民币 乌方高额赏金劝降](/content/gnews/39/README.md)
  ` 樱花FM`
 
-### [【秘翻新视野】社交媒体：现代战争的新阵地](/content/gnews/41/README.md)
+### [【秘翻新视野】社交媒体：现代战争的新阵地](/content/gnews/40/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [新西兰财经G乐部2022年3月8日:财经新闻整理](/content/gnews/42/README.md)
+### [新西兰财经G乐部2022年3月8日:财经新闻整理](/content/gnews/41/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [中日财经爆┃拜登本周有望公布数字货币行政令](/content/gnews/43/README.md)
+### [中日财经爆┃拜登本周有望公布数字货币行政令](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际｜俄罗斯公布“不友善国家”名单 将台湾视为国家被嘲“颠覆中共”](/content/gnews/44/README.md)
+### [国际｜俄罗斯公布“不友善国家”名单 将台湾视为国家被嘲“颠覆中共”](/content/gnews/43/README.md)
  ` 關注組`
 
-### [俄乌战争｜欧盟正式开始审批乌克兰的加入申请](/content/gnews/45/README.md)
+### [俄乌战争｜欧盟正式开始审批乌克兰的加入申请](/content/gnews/44/README.md)
  ` 關注組`
 
-### [参议员卢比奥： 正在制定法规对中共国实施制裁,一旦发现中共用他们的CIPS系统来帮助俄罗斯绕过SWIFT制裁的话](/content/gnews/46/README.md)
+### [参议员卢比奥： 正在制定法规对中共国实施制裁,一旦发现中共用他们的CIPS系统来帮助俄罗斯绕过SWIFT制裁的话](/content/gnews/45/README.md)
  ` 美国政要直译推`
 
-### [新中国联邦乌克兰救援卓有成效，中共令已登上救援大巴中国同胞下车](/content/gnews/47/README.md)
+### [新中国联邦乌克兰救援卓有成效，中共令已登上救援大巴中国同胞下车](/content/gnews/46/README.md)
  ` YALUN 亚伦`
 
-### [乌克兰局势——新中国人在行动](/content/gnews/48/README.md)
+### [乌克兰局势——新中国人在行动](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌总统夫人指证俄军杀害儿童 新中国联邦连夜救出96名儿童送抵波兰](/content/gnews/49/README.md)
+### [乌总统夫人指证俄军杀害儿童 新中国联邦连夜救出96名儿童送抵波兰](/content/gnews/48/README.md)
  ` 日本东京方舟农场`
 
-### [中共：全程接种率已超87% 将推序贯免疫接种](/content/gnews/50/README.md)
+### [中共：全程接种率已超87% 将推序贯免疫接种](/content/gnews/49/README.md)
  ` 澳喜农场`
 
-### [COVID-19 最新情报｜金球奖影帝“火箭人”倒在舞台上 网民疑与疫苗副作用有关](/content/gnews/51/README.md)
+### [COVID-19 最新情报｜金球奖影帝“火箭人”倒在舞台上 网民疑与疫苗副作用有关](/content/gnews/50/README.md)
  ` 關注組`
 
-### [俄乌战争｜美国防部高官：俄罗斯已投入95%的战力攻打乌克兰](/content/gnews/52/README.md)
+### [俄乌战争｜美国防部高官：俄罗斯已投入95%的战力攻打乌克兰](/content/gnews/51/README.md)
  ` 關注組`
+
+### [NFSC与法治基金国际人道救援行动公告和最新救援信息](/content/gnews/52/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/53/README.md)
  ` 纽约香草山MOS02`
