@@ -2,33 +2,48 @@
 ---
 
 
-## 俄罗斯寡头阿布拉莫维奇有关的游艇离开巴塞罗那
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2128539/)
+## 新中国联邦的乌克兰救援行动 吸引世界媒体的关注
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2128688/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：纽约香草山健身部-Ivy001
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-45.png)
+俄罗斯入侵乌克兰已经进入第十三天，前世界目光聚焦于乌克兰。波兰边境由于大量乌克兰难民涌入，已经成为难民救援中心，和全球媒体云集之地。正在波兰边境展开救援行动的新中国联邦，为世界各个媒体所关注。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/77CTUWPMANL6XOAVQLTKWQHE7Y.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2751.jpg)
 
+日本时间3月8日，日本唯一的国有电视台NHK，派记者现场报道了乌克兰的救援现况，和新中国联邦的救援点，还有亮眼的蓝色联邦七芒星旗，就在记者身后飘扬。虽然，日本记者没有提及我们新中国联邦，但是，整个报道一直可以看见清晰的新中国联邦旗在飘扬。。
 
-图片来源：路透社
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-2.jpg)
 
-一艘与俄罗斯寡头罗曼·阿布拉莫维奇有关的超级游艇于周二离开巴塞罗那，该游艇一直在当地一家造船厂进行维修，船舶追踪数据显示。
+同日，前线Nicole 发回的消息，她采访了一位来自德国的法籍战地记者Emma。Emma在采访中表示，她知道新中国联邦，支持新中国联邦“消灭中国共产党”的主张。并且，她看到我们新中国联邦在乌克兰救援的高效和不计回报的付出，非常感动，认为我们新中国联邦人是热爱和平善良的人，不等同于中国共产党。Emma最后还和Nicole一起喊出：“Take down the CCP!”
 
-据监测网站 Marine Traffic 显示，这艘 140 米（460 英尺）长的 Solaris 在百慕大旗帜下航行，下午 5 点刚过，就离开了西班牙公司 MB92 的巴塞罗那造船厂。据同一网站称，周二（格林威治标准时间 1600 点）。 MB92拒绝置评。
+前线Nicole 还发回消息，来自纽约，全球第三大联播网——CBS的直播车就在我们的直播中心旁边，在过去的两天时间里，他们一直都在关注我们的救援行动。明天，他们的早间新闻主播Tony会到现场, 来跟纽约总部连线直播。
 
-据奢侈品出版物《SuperYachtFan》、《SuperYacht Times》和《福布斯》报道，这艘在德国造船厂建造并于去年年初首次下海的超级游艇是阿布拉莫维奇拥有的一系列游艇之一。
+正如郭文贵先生所述：世界上尚没有一个国家像新中国联邦这样去前线救援！随着乌克兰救援行动的展开，我们救出越来越多的人，新中国联邦就越来越为人所知，新中国联邦将走向越来越广阔的世界舞台！
 
-阿布拉莫维奇上周将切尔西足球俱乐部挂牌出售，并承诺将从收益中捐出资金帮助乌克兰战争的受害者，到目前为止，他还没有成为因莫斯科入侵而受到任何制裁的目标。
+新闻链接：
 
-阿布拉莫维奇的一位女发言人说：“我们从不对游艇或任何其他车辆或船只的动向发表评论。”
+[https://gettr.com/post/pyuqvv79a5](https://gettr.com/post/pyuqvv79a5)
 
-一位业内消息人士称，这艘船自 2021 年底以来一直在巴塞罗那造船厂。目前尚不清楚它的去向。
+[https://gettr.com/post/pyuzpydcd6](https://gettr.com/post/pyuzpydcd6)
 
-三位消息人士周二告诉路透社，欧盟委员会已经准备好针对俄罗斯和白俄罗斯入侵乌克兰的新一揽子制裁措施，这将打击更多的俄罗斯寡头和政治家以及白俄罗斯的三家银行。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-23.jpg)
 
-🔗 [俄罗斯寡头阿布拉莫维奇有关的游艇离开巴塞罗那](俄罗斯寡头阿布拉莫维奇有关的游艇离开巴塞罗那)
+编辑/校对/发稿：遍地开花
 
-编辑发表： Shuizhuyu
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-46.png)
+
 
  
 

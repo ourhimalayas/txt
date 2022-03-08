@@ -2,35 +2,55 @@
 ---
 
 
-## 有声|NFSC新闻、G|TV新闻访谈简报|2022年3月7日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2128852/)
+## 波音公司暂停购买俄罗斯钛
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2128925/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/boeing_0.jpg)图片：@zerohedge.com
+
+摘要翻译：
+
+《零对冲》2022年3月8日援引《华尔街日报》的报道，自俄罗斯入侵乌克兰以来，波音公司在用以制造其商用飞机和军用飞机的俄罗斯钛的大赌注上陷入了停滞。
+
+这家飞机制造商跟随许多其他西方公司暂停了在俄罗斯的业务。这场动荡可能在未来为飞机制造带来供应问题。
+
+自入侵以来，波音公司已经关闭了其在莫斯科和基辅的工程办公室。该公司拒绝透露其与该国顶级钛供应商的合资企业将发生什么，该企业由弗拉基米尔•普京(Vladimir Putin)总统的前情报同事谢尔盖•切梅佐夫(Sergey Chemezov)控制。
+
+波音公司约三分之一的钛来自俄罗斯，其余来自美国、日本、中共国和哈萨克斯坦。
+
+波音公司的一位女发言人说：“我们的库存和钛来源的多样性为飞机生产提供了充足的供应，我们将继续采取正确的措施来确保长期连续性。”
+
+自1991年苏联解体以来，波音公司花了几十年时间在俄罗斯发展伙伴关系。该公司在俄罗斯和乌克兰有大量的投资。
+
+行业官员告诉《华尔街日报》，波音和其他航空航天公司已经恐慌性地囤积钛金属，并一直在与其他供应商进行谈判，因为他们担心俄罗斯会报复西方的制裁。
+
+在美国的制裁下，波音和其他航空航天公司仍然可以进口俄罗斯的钛。但是，乌克兰的进一步动荡和对俄罗斯的额外制裁可能会使西方企业面临失去获得这种坚固、轻质和防腐蚀的贵重金属的风险。
+
+曾在2014年俄罗斯入侵克里米亚后制定美国制裁措施的前财政部官员布赖恩·奥图尔(Brian O’Toole)警告说，任何“拥有俄罗斯供应链的公司都面临着很多问题——至少在中期内是如此”。也许这就是为什么波音公司首席执行官大卫·卡尔霍恩(David Calhoun)在1月份的电话会议上告诉投资者，波音公司的钛供应可能面临风险。
+
+“只要地缘政治局势保持平缓，就没有问题。”卡尔霍恩说，“如果不是这样，我们会受到相当长一段时间的保护，但不是永远。”而且，如果波音公司遇到钛采购问题，这很可能会破坏其预计在2023年底前将737 Max产量翻倍的计划。
+
+**简评：**
+俄罗斯入侵乌克兰的这场战争，让全球陷入新一轮的供应危机。可以看到，粮食、化肥的生产与出口影响，已经使得小麦等粮食价格近日连续高涨；半导体行业刻蚀工艺必不可少的氖气因乌克兰被袭导致出口不稳定，芯片面临着与文中飞机一样的窘境，另外还有原油。这场大战双方本身加上欧美各国的制裁，让全球经济贸易陷入新的停滞与惶恐，油价、食品价格飞涨，物流供应链短缺……这一切的一切都折射在了世界人民的生活里，战争永远不是为了人民与国家利益，而是统治者的一己私欲。
+
+随着一波波的制裁，各大企业相继退出俄罗斯市场，俄罗斯几乎被打回了“石器时代”，连宜家的撤柜都引起俄罗斯民众的疯狂抢购。而中共政府这边正在紧锣密鼓地与俄罗斯开张经贸合作，让中共国的老百姓来为俄罗斯的损失接盘。俄罗斯被踢出SWIFT系统后对接中共国的CIPS系统，如此开后门的举动，更让国际社会认定这场俄乌大战背后就是中共的搅局，欧美各国必会顺藤摸瓜，在合适的时机停掉中共国的SWIFT。那时，人民币变废纸，俄罗斯上演的一切在中共国再来一次，所有中国老百姓将为中共政权的疯狂行为买单。所以说，中共不除，全世界人民都得不到安宁。
+
+新闻链接：[Boeing Suspends Buying Russian Titanium](https://www.zerohedge.com/commodities/boeing-suspends-buying-russian-titanium-after-ukraine-invasion)
+
+翻译/简评：milkcat
+校对:Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-7-556x720-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
-文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年3月7日早](https://gnews.org/zh-hans/2122094/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,26 +2,119 @@
 ---
 
 
-## 郭先生谈自己的经历
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2128620/)
+## 南希·梅斯：没有一个美国人希望他们的车里有俄罗斯汽油
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2128846/)
 
-七哥一生之伟大之辉煌，拥有从来不去利用，而拥有从来不背叛，我才能活到今天。
+There are a lot of different areas from their supply chain
+那里有许多的不同的领域，从他们的供应链
 
-【郭先生直播摘要】**2022.2.27 **郭先生谈自己的经历
+his banking relationships, the Swift issue that needs to be 100% cut off
+他的银行关系，需要 100% 切断的Swift的问题
 
-郭先生**:**
+We have not done that yet
+我们还没有这样做
 
-起码你们不了解七哥的人生，你们太不了解了，你们真是有拥有一个真是天仙般的，就是一个黄花处女的美女在你前边，但你把他当成了就是街头的那些女子。这就你们对待我很不公平，我这么说你未来会懂的。
+I think they still think that if we go easy
+我认为他们仍然认为如果我们放软弱
 
-七哥的人生的经历，乌克兰为啥我这么说？我到乌克兰去，乌克兰啥样的美女没有？我到乌克兰去我跟一个银行谈合作，银行的副行长后来是乌克兰最有钱的人家之一。她说我跟很多中国人见面，像那么干净的，这么有品位的，这么会生活的、这么有礼貌都没见过。乌克兰人对中国人真的很友好，到北京去住在盘古以后告诉我来，我已经在你盘古了，人家私人飞机都落下来了，给我带着我爱吃东西，带着俄罗斯的鱼子酱，我们两个人在我的总统套房，听着那最棒的音乐，她慢慢的跳着乌克兰独有的漫舞，像慢镜头似的。你在这种事情多了，香港的女的，任何一个香港你知道长得好看的出了名的，没跟七哥打过交道的不多。你是因为你看媒体《壹周刊》看多了，你觉得何超琼她生活中真的很漂亮，属虎的啊很漂亮，人也很有个性很有才华，但说实在话在香港认识七哥的那真的不算啥。
+we play footsie with that somehow we’ll talk our way out of this
+在某种程度上我们在示弱，我们会谈论我们的出路
 
-七哥一生中被两件事所围绕着，一个是美女，爱这是肯定的，美女的爱。这从来到今天到啥时候没改变过，只多不少。第二个，七个就被很多很多，真的比我年龄大比我成功的人在呵护着。这就是我对天地之间我永远存有感恩之心，我所有认识的男人当中，比我成功比我年龄大，对我的好都超过自己孩子，包括贺玲乐先生。我跟你们说过他儿子跟我吵架，他选择了我。夏平女士，他儿子跟我吵架选择了我。日本的我们的合作的两个三菱的两个董事，儿子妒忌。郭文贵说话的时候你让他随便说，你一眼盯着我说三句话你就让我闭嘴，妒忌，最后也选择了我。
+That’s not going to happen
+这是不会发生的
 
-我一生中被成功的男人呵护着保护着，我一生中被很多天下之奇女美女爱着。但是这两样你知道什么东西会打破它吗？辜负了成功男人的信任，失去了他对你的尊重，他就会伤害你甚至远离你。天下的美女对你的爱，只要你玩弄她欺骗她或你乱爱，这些就会毁掉你也会失去这些。七哥一生之伟大之辉煌，拥有从来不去利用，而拥有从来不背叛，我才能活到今天。
+John Bechman (Newsmax TV anchor & host)
+约翰·巴赫曼（Newsmax 电视主播和主持人）
 
-就像我和战友，我跟卡利西好，我约卡利西去开房去，开三次房，卡利西就该说了我跟七哥上过床。七哥也就是两秒，她控制不住的不是她好她坏，我跟凯伦，凯伦她也会这么说，它是女性的本能。因为什么？你不可能是她想象那么完美，七哥说啥臭味没有，那可能就凯瑞说我跟他接触，我发现他有一种狗屁味，散发着臭味。记住拥有即使失去，失去你有可能成为伤害，这就是贪、嗔、痴、慢、疑如何利用欲望，你千万不要成为欲望的奴隶。
+Is that the way to characterize the way
+这就是表征方式的方式吗
 
-视频剪辑：北方信使|听写：烟波浩淼 | 翻译：Arthur | Polaris |视频制作+字幕：CG. |编辑：昆汀Tse|发布：断播
+the administration is handling the sanctions so far
+到目前为止，政府正在处理制裁
+
+playing footsie with Putin?
+对普京示弱？
+
+Nancy Mace (U.S. Congresswoman)
+南希·梅斯（美国国会女议员）
+
+Well, certainly the President Biden’s that he could go toe to toe with Putin
+好吧，拜登总统当然认为他可以与普京针锋相对
+
+and he has been playing footsie instead
+但是他选择示弱
+
+But it’s not just Republicans that are asking for more sanctions
+但要求更多制裁的不仅仅是共和党人
+
+I’ve been involved with meetings and in some briefings with both Republicans and Democrats alike
+我参与了与共和党人和民主党人的会议和一些简报会
+
+and Democrats are too asking for President Biden to do more
+民主党人也要求拜登总统做更多事情
+
+And we’ve seen other countries around the world shut off their oil imports from Russia
+我们已经看到世界上其他国家关闭了从俄罗斯进口的石油
+
+We know that Putin funds his war regime and these battles
+我们知道普京资助他的战争政权和这些战斗
+
+and these fights with the oil and gas economy
+这些与石油和天然气经济的斗争
+
+he has created around the world, including the United States
+他在世界各地制创的，包括美国
+
+We import 600,000 barrels of Russian oil every day
+我们每天进口 60 万桶俄罗斯石油
+
+And I know there’s not one single American in our country today
+我知道今天我们国家没有一个美国人
+
+that wants to put one gallon of Russian gas in their car
+在看到在乌克兰所发生的事情后
+
+seeing what’s going on in Ukraine
+还想在车里加一加仑的俄罗斯汽油
+
+There’s more to do in the sanctions that happened on if you read the fine print
+如果您阅读细则，那么在发生的制裁中还有更多工作要做
+
+there are carve outs and so not all of the oligarchs
+有特例，所以不是制裁所有的寡头
+
+and their entire families are being targeted the way that they should be
+他们的整个家庭正以应有的方式成为目标
+
+And there’s more that we should be done
+还有更多我们应该做的
+
+both with banking with personal sanctions
+与银行业务和个人制裁的两方面
+
+and sanctions on those hosts in his inner circle
+并制裁他核心圈子里的那些大老们
+
+原视频链接[https://twitter.com/newsmax/status/1499452680258957316?s=24](https://twitter.com/newsmax/status/1499452680258957316?s=24)
+
+Date:03/04/2022
+原视频标题:Nancy Mace: Not one single American wants Russian gas in their car
+南希·梅斯：没有一个美国人希望他们的车里有俄罗斯汽油
+原视频日期：2022/03/04
+原视频链接https://twitter.com/newsmax/status/1499452680258957316?s=24
+任务编号：3922
+视频时间段 : 0:00-1:31
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

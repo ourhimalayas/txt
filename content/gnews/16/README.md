@@ -2,27 +2,24 @@
 ---
 
 
-## 越南要求中共军演勿侵犯其专属经济区
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2128554/)
+## 巴切莱特宣布与中共国达成协议访问新疆维吾尔地区
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2128692/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+**编译：七龙珠**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip巴切莱特宣布与中共国达成协议访问新疆维吾尔地区.png)中国乌鲁鲁木齐市，女青年鲁鲁木曾走过大巴扎。EFE/EPA/吴红/档案
+联合国人权事务高级专员米歇尔-巴切莱特今天宣布与中共政府达成访问中共国的协议，此行将包括西北部的新疆地区，自2017年以来一直被关押在那里的拘留营的数十万维吾尔人。
 
-3月7日，因中共近日在南海实施军事训练，越南外交部对此表示，要求中共国尊重并不侵犯越南专属经济区和大陆棚，不采取使情势复杂化的行为。
+巴切莱特在联合国人权理事会审议世界基本自由状况的讲话中强调：“我的办公室和中共政府已经开始为这次访问开展具体工作，访问时间暂定在5月份。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/越南.jpg)图为越南外交部发言人黎氏秋姮（图片来自欧新社资料照）
+**新闻来源**：[efe.com][Bachelet anuncia un acuerdo con China para visitar la región uigur de Xinjiang](https://www.efe.com/efe/espana/mundo/bachelet-anuncia-un-acuerdo-con-china-para-visitar-la-region-uigur-de-xinjiang/10001-4755899)
 
-据《自由时报》报道，近日中共国海南海事局声明指出，自4日晚间6时到15日晚间6时进行军事训练，警告船只禁止进入，并提供了有关水域的坐标，位置大约在海南三亚和越南顺化之间。
+* * *
 
-对此，越南外交部发言人黎氏秋姮7日表示，中共国的上述公告中所涉及的部分水域属于1982年《联合国海洋法公约》确定的越南专属经济区和大陆棚。
+***审核：Aries的星
+校对：小东
+发布：信心满满***
 
-黎氏秋姮说，越方要求中共国尊重并不侵犯越南专属经济区和大陆棚，不采取使形势复杂化的行为。
-
-参考链接：
-[https://news.ltn.com.tw/news/world/breakingnews/3852431](https://news.ltn.com.tw/news/world/breakingnews/3852431)
-
-撰稿：幽蘭自得
-总编：青城道姑
-校对发布：Linda
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-4.jpeg)
 
  
 

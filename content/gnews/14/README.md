@@ -2,29 +2,37 @@
 ---
 
 
-## 世界足球先生莱万多夫斯基终止与中共华为合作
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2128598/)
+## 有声|日本名古屋医师会医生反对给儿童接种疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2128740/)
 
-**撰稿：日本东京方舟农场 海星**
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间3月4日，日本名古屋医师会成员浅井院长，以及前医师会医疗安全顾问宫治医生在接受媒体采访时指出，他们不会同意对5至11岁儿童接种中共病毒疫苗的做法。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-11.jpg)
+其原因在于，首先，儿童在感染中共病毒后很容易康复，真正恶化到重症甚至死亡的病例少之又少。目前，所有的中共病毒疫苗都处于实验性阶段。这意味着，所有医生都不清楚中共病毒疫苗的毒副作用。浅井院长透露，许多医生都是抱着非常恐惧的心理，在给人们接种。
 
-3月7日，世界足球先生莱万多夫斯基（Robert Lewandowski）的经纪人萨威斯拉克（Tomasz Zawislak）发布声明表示，莱万多夫斯基将终止与中共华为合作。
+无论是接种疫苗还是其他医疗行为，站在医生以及患者的角度考虑，都是把安全性排在第一位，之后才是让社会安心、以及得到治愈后的满足感。然而，在接种中共病毒疫苗上，却打乱了上述顺序，把“让社会安心”排在了首位。这两位医生还强调，现在日本政府最该做的，就是先确认疫苗的安全性。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/世足.jpg)（图片来源：法新社、自由时报）
 
-据《自由时报》报导，莱万多夫斯基的经纪人萨威斯拉克于3月7日在致法新社的声明中表示，我方已做出決定，将停止与华为品牌的营销合作关系，并且已经终止了所有推广服务。据悉，莱万多夫斯基放弃了今年刚签订的3年500万欧元的代言费。
 
-该报导指出，莱万多夫斯基的这项决定可能与日前发表在英国《每日电讯报》上的1篇报导有关。这篇报导指控中共华为公司正在协助俄罗斯维护网络，反击支持乌克兰黑客团体发动的网络攻击。
+文字版原文：[日本名古屋医师会医生反对给儿童接种疫苗](https://gnews.org/zh-hans/2121031/)
 
-莱万多夫斯基是波兰国家足球队球员，并于2020年和2021年两次获得“世界足球先生”称号。他曾在今年二月底的一场比赛中佩戴乌克兰国旗颜色的臂章，以示对乌克兰的声援。他当时表示：”世界无法接受正在乌克兰发生的事情，我希望全世界能支援乌克兰。”
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-参考链接：
-1.[https://news.ltn.com.tw/news/world/breakingnews/3852803](https://news.ltn.com.tw/news/world/breakingnews/3852803)
-2. [https://www.ftvnews.com.tw/news/detail/2022308W0242](https://www.ftvnews.com.tw/news/detail/2022308W0242)
-3.[https://zh.wikipedia.org/wiki/%E7%BD%97%E4%BC%AF%E7%89%B9%C2%B7%E8%8E%B1%E4%B8%87%E5%A4%9A%E5%A4%AB%E6%96%AF%E5%9F%BA](https://zh.wikipedia.org/wiki/%E7%BD%97%E4%BC%AF%E7%89%B9%C2%B7%E8%8E%B1%E4%B8%87%E5%A4%9A%E5%A4%AB%E6%96%AF%E5%9F%BA)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-撰稿：海星
-总编：青城道姑
-校对发布：Linda
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
