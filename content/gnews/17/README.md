@@ -2,30 +2,22 @@
 ---
 
 
-## 俄军空袭乌国2油库 基辅4城重启人道走廊
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2123906/)
+## 加拿大军方希望中國會暫停任何獨裁計劃
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2123932/)
 
-乌俄代表已在白俄罗斯城市布雷斯特展开第三轮停战会谈，但未有积极进展。第二次谈判结果，俄罗斯宣布俄罗斯时间当地时间7日上午10点起停火，对乌国首都基辅、第二大城哈尔科夫等地停火，第三度开放「人道走廊」让平民撤离。
+采編/編譯撰稿：加拿大溫哥華楊帆農場 – 薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-672.png)圖片來源：https://tnc.news/
+加拿大[真北方] 6日報道了加拿大軍事情報機構擔憂中國可能會對臺灣發起攻擊，他們懷疑俄羅斯對烏克蘭的入侵會被當作煙幕憚。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3556813-PH.jpg)图片来源：基辅独立报
+加拿大軍事情報主管賴特將軍在周三在下議院國防委員會報告了這一消息。他的情報部隊對中國可能采取的行動保持高度警惕。一周前，情報部門就非常關註中國的動向，想知道中國是否會利用這個機會加快他們自己的計劃，以加強對其海外的控製，特別是臺灣。因為中國一直堅持臺灣島大陸政府的一部分，並在臺灣領空附近加強了軍事行動。
 
-据《俄新社》报导，俄罗斯国防部宣布，从俄罗斯时间7日上午10点起，对基辅、哈尔科夫、苏梅、马力波等4地停火，开通6条人道走廊。不过7日俄军空袭乌克兰日托米尔储油库，2座储油库燃起巨大火光。
+萊特將軍說，加拿大和其他西方國家已經針對俄羅斯普京政權進行大量製裁，包括加拿大將禁止俄羅斯飛機進入加拿大領空，隨著國際社會特別是北約和西方國家加大反應力度，他希望中國會暫停任何獨裁計劃。
 
-简评：俄乌局势未来怎样未可知，但暂时的4地停火，开通6条人道救援通道，就是民众保命逃离的生命线。新中国联邦人道救援行动正在全力救援想要撤离战火的人们，请大家抓紧与新中国联邦联系！
+校對編輯：硫酸羥氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-40.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-62.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-30.jpg)
+發稿：青青
 
-
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1081520&amp;utm_source=setn.com&amp;utm_medium=topic&amp;utm_campaign=newsid_1081520)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+原文鏈接： [Military intelligence worried about possible attack on Taiwan by China](https://tnc.news/2022/03/06/military-intelligence-worried-about-possible-attack-on-taiwan-by-china/)
 
  
 
