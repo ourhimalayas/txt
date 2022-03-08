@@ -2,27 +2,29 @@
 ---
 
 
-## 特鲁多抵达欧洲商讨乌克兰局势
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2126445/)
+## 日本东京樱花团 中文新闻播报第十四期
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2126648/)
 
-采编: 加拿大温哥华杨帆农场 – 苦尽甜来 (文来）
+新闻内容摘要：
 
-编译撰稿：加拿大温哥华杨帆农场 – 苦尽甜来 (文来）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-739.png)图片来源：多伦多太阳报[Toronto Sun](https://torontosun.com/news/national/trudeau-departs-for-europe-to-meet-with-allies-on-ukraine-response)
-据【多伦多太阳报】3月6日报道，加拿大总理特鲁多当天已抵达欧洲，将与欧盟各国就俄罗斯入侵乌克兰的战争局势进行商讨。
+- 1.新中国联邦人乌克兰战区人道救援首战告捷
+- 2.美国FDA败诉，辉瑞被迫公开疫苗数据震惊世界
+- 3.俄罗斯军队炮击乌克兰 扎波罗热核电站引发火灾
+- 4.中国将国防开支提升7.1%，达到2290亿美元
+- 5.通过Hpay用喜美元购买F1赛车交易成功
+- 6.拜登总统宣布禁止50位俄罗斯寡头及其家人和密切联系者入境美国
+- 7.有上百名中国留学生因俄乌战争而被困于乌克兰东北地区苏梅，无法离开
+- 8.布林肯警告中国：世界正在关注中国对俄乌战争的反应
+- 9.普京周六表示，西方对俄罗斯的制裁类似于宣战
+- 10.美东时间3月6日晚间，文贵大直播紧急连线新中国联邦法治基金
 
-据悉，特鲁多将于翌日在伦敦与英国和荷兰的首相会面。并在未来数天内前往拉脱维亚、柏林和华沙等地会见其他国家领导人。此后，还将会晤北约秘书长及加拿大武装部队成员等。
 
-此外，由于俄军持续无差别的攻击，从乌克兰港口城市撤离平民的计划再次失败。目前，战争已迫使超过 100万难民逃离了乌克兰。
+**播报：东京樱花团-NAN的曙光**
 
-评论指出，特鲁多花费大量加拿大国民的纳税资金去欧洲进行毫无实际意义和成效的会晤，无非想借此摆脱其在国内和国际政坛中早已崩塌的人设，并企图为其即将结束的政治生涯续命。
+**发布： 东京樱花团-eiei**
 
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-原文链接： [Trudeau arrives in Europe to meet with allies on Ukraine response Toronto Sun](https://torontosun.com/news/national/trudeau-departs-for-europe-to-meet-with-allies-on-ukraine-response)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/erweima.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
