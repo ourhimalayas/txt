@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/8/2022 6:51 AM (UTC)`
+
+【Ukraine Rescue】03/07/2022 ROLF and NFSC rescued more Chinese compatriots from Ukriane today and some of them are very different and we will let them share their appreciations to our rescue and their feelings to the CCP when they are ready.<br/><br/>【乌克兰救援】03/07/2022法治基金和新中国联邦今天从乌克兰救出了更多中国同胞，他们中的一些人非常不同，我们将让他们分享他们对我们救援的感激之情以及他们对中共的感受。<br/>
+![img](https://media.gettr.com/group43/getter/2022/03/08/06/e16c37a8-d57c-6cfa-a87c-b7dba1304d71/out.jpg)
+
+---
+
 `@miles 3/8/2022 2:51 AM (UTC)`
 
 03/08/2022 文贵送给中国和全世界三八妇女节的特别礼物🎁🎁🎁🌹🌹🌹❤️❤️❤️<br/><br/>03/08/2022 A Special Gift from Miles Guo to All Women in China and the World on International Women’s Day🎁🎁🎁🌹🌹🌹❤️❤️❤️<br/><br/>《铁锁梦 Chained Dream》<br/><br/>我本花一朵<br/>A beautiful budding rose<br/> <br/>被拐骗山中<br/>abducted to the mountains<br/> <br/>从此亲人永相隔<br/>forever separated from my family since<br/> <br/>囚禁二十年我受尽了折磨<br/>Locked up and tormented for two decades<br/> <br/>这个世界不要我<br/>This world has abandoned me<br/> <br/>醒来吧 别再如此冷漠<br/>Wake up, stop being stone cold<br/> <br/>醒来吧 抛掉所有懦弱<br/>Wake up, shake off all cowardice<br/> <br/>只为能紧握住亲人手<br/>In order to hold hands of my loved ones<br/> <br/>要埋葬那邪恶的中共<br/>the evil CCP must be buried<br/> <br/>牙齿全拔落<br/>My teeth all pulled<br/> <br/>铁锁已斑驳<br/>shackles mottled<br/> <br/>这就是我的一生<br/>this is my life in its entirety<br/> <br/>你若不醒来<br/>If you stay asleep<br/> <br/>还在梦里游走<br/>and wander in your dreams<br/> <br/>永世地狱做猪狗<br/>You’ll be slaves in hell
@@ -148,13 +155,6 @@
 
 【乌克兰救援】 03/07/2022协助新中国联邦乌克兰儿童救援行动的人权律师感动落泪<br/><br/>【Ukraine Rescue】 03/07/2022 Human rights lawyer who assisted the NFSC's child rescue operation in Ukraine is moved to tears
 ![img](https://media.gettr.com/group42/getter/2022/03/07/22/009f1488-9075-a0d2-2dca-18e184089f2d/out.jpg)
-
----
-
-`@miles 3/7/2022 9:52 PM (UTC)`
-
-💦💦💦Ukraine Humanitarian Rescue Operation of the Rule of Law Foundation & Rule of Law Society <br/><br/>🌈🌈🌈Special thanks to the ROLF & ROLS for providing the critical and decisive function during the rescue mission. The ROLF & ROLS play a key role and provide all the supports for this rescue operation. #ROLFrescue #NFSCrescue  #CCP≠Chinese<br/><br/>💥💥💥If you have family to be rescued in #ukraine , please go to website Ukrainehelp.info <br/><br/>Here is the 24-Hour Emergency Rescue Support Team Contact: <br/>💌💌💌Email: ROLF@UKRAINEHELP.INFO OR NFSC@UKRAINEHELP.INFO <br/><br/>☎️☎️☎️Phone (Call or Text): +1 720-657-6776 OR +1 719-224-4232
-![img](https://media.gettr.com/group38/origin/2022/03/07/21/5848c027-8f29-0334-aeb6-a84e427ef6e4/out.jpg)
 
 ---
 

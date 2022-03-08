@@ -2,27 +2,27 @@
 ---
 
 
-## 有声｜拜登要求对加密货币的监管和发行进行研究
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2124319/)
+## 秘翻在线：美国会议员提出法案，要求调查中共幕后支持俄罗斯
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2124455/)
 
-By:**秘翻新闻**
+**翻译：billwilliam**
 
-**2022-03-08**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-19.png)图片来源   路透社
-[据《路透社》华盛顿3月7日报道，周一，一位知情人士透露，美国总统拜登预计将签署一项行政命令，指示美国司法部、财政部和其他机构研究创建美国中央银行数字货币的法律和经济影响。](https://www.reuters.com/business/finance/biden-sign-executive-order-cryptocurrencies-this-week-source-2022-03-07/)
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-13.jpg)图源：asiatimes.com
+据福克斯新闻报道，加州共和党众议员杨·金（Young Kim）和密西根州民主党众议员艾丽莎·斯洛特金（Elissa Slotkin）本周一提出法案，要求国务卿布林肯向国会报告中共政府多大程度幕后支持俄罗斯侵略乌克兰。目前尚未通过，只是提出法案。
 
-[该消息人士称：我们可以在180天内看到政策的重大转变。这很可能是朝着创建中央银行数字货币迈出的一步， 还表示，拜登政府内部支持这一举措的势头很猛。](https://www.reuters.com/business/finance/biden-sign-executive-order-cryptocurrencies-this-week-source-2022-03-07/)
+该法案名为《2022年对中国直接调查、采取行动反对俄罗斯法案》或《独裁者法案》（The Director Investigations on China, Take Action to Oppose Russia Act of 2022 或DICTATOR Act）。《独裁者法案》要求在其颁布后 90 天内向参众两院的外交事务委员会提交一份非机密报告，美国国务院须提交报告解释哪些中共实体协助俄罗斯逃避美国制裁。法案同时规定，拜登总统应当制裁任何协助俄罗斯联邦或俄寡头逃避西方制裁的中共实体，因为俄罗斯侵略乌克兰。
 
-[据报道，拜登的命令可能会在周三发布，人们担忧俄罗斯精英利用加密货币规避西方制裁，此前西方制裁已经切断了俄罗斯与全球经济大部分的联系，而中共国和其他经济体也在努力创建自己的加密货币。](https://www.reuters.com/business/finance/biden-sign-executive-order-cryptocurrencies-this-week-source-2022-03-07/)
+杨·金众议员说，当美国和西方采取行动追责普京无端侵略乌克兰的行径时，中共国对俄罗斯的沉默与尊重不容忽视。她警告中共，任何协助俄罗斯逃避美国制裁的行为将付出沉重代价。随着俄罗斯无端侵略愈演愈烈，美国需要与盟友合作，通过制裁和没收资产来孤立普京政权，但需要保持这些惩罚。《独裁者法案》确保美国调查中共支持莫斯科，并阻止中共帮助普京逃避其侵略行为的后果。
 
-[拜登的命令将要求司法部考虑是否需要制定新的法律来创造一种新货币，由联邦贸易委员会、消费者金融保护委员会和其他机构将研究对消费者的影响。](https://www.reuters.com/business/finance/biden-sign-executive-order-cryptocurrencies-this-week-source-2022-03-07/)
+而中共官员上周表示不会因为侵略乌克兰而制裁俄罗斯，并会·继续正常贸易合作。上周一份西方情报报告显示，中共事先知道俄罗斯侵略乌克兰的计划，并且要求俄罗斯将进攻时间推迟到北京冬奥会之后。在俄罗斯2月24日开战之后的第二天，中共国取消对俄小麦的进口限制，帮助缓和制裁的压力。周一的新闻发布会上，中共外长王毅仍然称俄罗斯为“最重要的战略伙伴”，并要推动新时期中俄全面伙伴关系发展。
 
-秘翻新闻 冰糖葫芦喵编译报道
+中共很明显就是在背后为俄罗斯提供金融支持，比如几天前在Visa和万事达取消在俄业务后，俄罗斯银行转为使用银联支付体系。在多家俄罗斯银行被SWIFT系统踢出后，中共就是俄罗斯维持侵略战争的幕后金主。郭文贵先生曾爆料，普京和习近平有2.5小时单独用翻译器密谈，约定俄罗斯攻打乌克兰，而中共取台湾。而且郭先生认为中共仍然计划攻台，甚至不惜平民死伤代价血腥狂轰滥炸。希望美国国会能尽快通过《独裁者法案》，把中共从西方金融体系彻底切除。
 
-发布 : 恩典
+**新闻来源：**
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+[https://www.foxnews.com/politics/reps-kim-slotkin-bipartisan-investigate-china-russian-invasion-ukraine](https://www.foxnews.com/politics/reps-kim-slotkin-bipartisan-investigate-china-russian-invasion-ukraine)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

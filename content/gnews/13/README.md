@@ -2,30 +2,27 @@
 ---
 
 
-## 视频|纳斯卡车队多方支援乌克兰抵御侵略
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2124312/)
+## 有声｜拜登考虑放宽对委内瑞拉的制裁以孤立俄罗斯
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2124396/)
 
-制作：香草山视频部
+By:**秘翻新闻**
 
-近日，应乌克兰总统泽伦斯基的要求，纳斯卡车队老板理查德-柴尔德里斯承诺为乌克兰捐赠一百万发弹药。
+**2022-03-08**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-20.png)图片来源  John Angelillo/UPI 
+[据合众国际社北京时间3月8日报道，白宫已派出高级官员会见委内瑞拉领导人。据一位直接了解此事的人士称，拜登政府正在权衡放松对委内瑞拉制裁的可能性，以便该国能够开始生产更多石油并在国际市场上销售。此举旨在减少俄罗斯入侵乌克兰期间全球对俄罗斯石油的依赖，并将俄罗斯与其在南美的主要盟友之一隔离开来。](https://www.upi.com/Top_News/World-News/2022/03/07/venezuela-us-to-meet-venezuela-lawmakers-deal-ban-russian-oil-ukraine-invasion-rising-gas-prices/5861646685553/)
 
-柴尔德里斯赛车的所有者柴尔德雷斯在接受媒体访谈时宣布，他正在与阿莫公司合作，为乌克兰人提供弹药，以应对俄罗斯的入侵。该公司也表示，他们坚定地支持乌克兰的主权和独立，将尽快采取行动，支持乌克兰继续保卫自己和自由。
+[美国国务卿安东尼·布林肯周日表示，美国及其盟国正在积极探索禁止进口俄罗斯石油的方法，从而进一步损害俄罗斯经济。到目前为止，西方一直不愿对俄罗斯的能源部门实施重大制裁，因为它可能会影响全球经济，但随着欧洲努力使其能源多样化，现在越来越接近这样做了。](https://www.upi.com/Top_News/World-News/2022/03/07/venezuela-us-to-meet-venezuela-lawmakers-deal-ban-russian-oil-ukraine-invasion-rising-gas-prices/5861646685553/)
 
-柴尔德里斯将要求纳斯卡车队允许车手在他们的赛车上展示对乌克兰的支持。
+[共和党参议员马可·卢比奥已经批评了这些讨论，他在周末发推文称，与其生产更多的美国石油，拜登想用来自另一个凶残独裁者的石油取代俄罗斯的石油。](https://www.upi.com/Top_News/World-News/2022/03/07/venezuela-us-to-meet-venezuela-lawmakers-deal-ban-russian-oil-ukraine-invasion-rising-gas-prices/5861646685553/)
 
-此外，亨德里克赛车队的老板亨德里克也承诺，3月6日在拉斯维加斯举行的赛事中，他的车队四辆赛车中的任何一辆每领跑一圈，将向乌克兰捐赠 2,000 美元。
+[但了解谈判情况的消息人士称，仅仅增加美国石油产量并不能弥补切断俄罗斯所造成的损失。](https://www.upi.com/Top_News/World-News/2022/03/07/venezuela-us-to-meet-venezuela-lawmakers-deal-ban-russian-oil-ukraine-invasion-rising-gas-prices/5861646685553/)
 
-乌克兰最近也从邻国波兰收到了超过 1200 万枚弹药筒。北约国家也为乌克兰的努力提供武器，包括来自芬兰的超过 15万发弹药。
+秘翻新闻 文洋 编译报道
 
-发稿：雪梨
+发布 : 恩典
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

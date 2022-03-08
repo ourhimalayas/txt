@@ -2,25 +2,28 @@
 ---
 
 
-## 视频|乌克兰DAO出售NFT筹集资金帮助乌克兰人
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2124313/)
+## IBM公司宣布暂停在俄罗斯的活动
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2124401/)
 
-制作：香草山视频部
+![IBM公司宣布暂停在俄罗斯的活动 - 俄罗斯卫星通讯社, 1920, 08.03.2022](https://cdn.sputniknews.cn/img/102342/43/1023424344_0:0:1000:563_1920x0_80_0_0_eb1d5e05d8f2dc77fde6b6c3ffcbc180.jpg.webp)资料图
+据俄罗斯卫星通讯社华盛顿3月8日报道，IBM公司宣布暂停在俄罗斯的商业活动。IBM网站发布的公司负责人的声明称：“我们已经暂停在俄罗斯的所有商业活动”。此前该公司称正暂停向俄罗斯“出售技术”。
 
-3月3日，外媒报道，去中心化自治组织 “乌克兰DAO” 制作的乌克兰一比一国旗签名令牌 (NFT)，众筹了2,188 个以太坊币 ， 价值约合610万美元。收益将捐给乌克兰的非营利组织，帮助那些受俄罗斯入侵影响的乌克兰人。
+俄罗斯发动对乌克兰的战争，在打击乌克兰的同时，也重重地打击了本国的经济。由于西方制裁和战争带来的不确定性，一系列跨国公司已经暂停了在俄罗斯的经济活动。此前俄罗斯的年轻人表示很不适应苹果手机和Apple Pay被暂停使用，年轻人的生活已经与数字产业密不可分。战争从来只是满足少数人的需要，大多数人却要为此付出生命和财产的代价。停止战争，通过谈判解决问题。
 
-乌克兰DAO的联合创始人之一的托洛康尼科娃表示，在联系了当地不同的非营利组织，并比较之后，他们确定为军队提供装备的乌克兰非营利组织 Come Back Alive 是“最值得信赖和最有效的”选择。并且，他们决定这笔钱将只用于医疗，不用于军备。
+新闻参考链接：[https://sputniknews.cn/20220308/1039784704.html](https://sputniknews.cn/20220308/1039784704.html)
 
-周三，乌克兰副总理米哈伊洛·费多罗夫宣布，该国计划继续通过出售NFT筹集资金，迄今已筹集了近4000万美元。目前，乌克兰DAO 仍在继续接受直接的加密货币捐赠。
+编辑：胖丁
 
-发稿：雪梨
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
