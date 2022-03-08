@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/8/2022 1:09 AM (UTC)`
+
+3/7/2022 Miles Guo’s GETTR: Although the Chinese people aren’t participating in the Russia-Ukraine war, they are hated the most in the world. Thanks to our fellow fighters who have risked their lives to save nearly 100 children and more than 200 Ukrainian and international friends with their buses in Ukraine. The Chinese people in Ukraine are in a tough situation, but they are still being brainwashed by the CCP. There were 18 Chinese who even believed the lies of the CCP embassy and thus got off our bus.<br/><br/>3/7/2022 文贵盖特：中国人虽未参加俄乌之战却在全世界最遭人恨；感谢战友们冒生命危险用巴士在乌克兰救了近百个孩子、200多位乌克兰和国际人士；在乌克兰的中国人处境艰难，却仍被洗脑，竟有18人听信中共大使馆的谎话下了我们的巴士<br/>
+![img](https://media.gettr.com/group44/getter/2022/03/08/01/9a35bdf2-9c6b-9a1c-3818-5ec6c2e8730d/out.jpg)
+
+---
+
+`@miles 3/8/2022 1:00 AM (UTC)`
+
+3/7/2022 Miles Guo: The CCP officials have a complete disregard for the lives of ordinary Chinese people. They shamelessly slander the New Federal State of China as an anti-Chinese organization, causing 18 Chinese people that we had already rescued to abandon our aid, really speechless! While working hard to save as many lives as possible, the NFSC rescue team should also keep yourselves safe!<br/><br/>3/7/2022 文贵直播：中共官员完全不顾普通中国人的生命，无耻地污蔑新中国联邦为反华组织，导致已被我们救助的18个中国人放弃了我们的救助，悲哀至极！新中国联邦救助团队能救则救，要保证自己的安全！<br/>
+![img](https://media.gettr.com/group37/getter/2022/03/08/01/62c6e40f-2873-793b-8542-7ba5ceda2f87/out.jpg)
+
+---
+
+`@miles 3/8/2022 12:58 AM (UTC)`
+
+3/6/2022 Miles Guo: Which place is safe for the fellow fighters to go? Asia and Africa are very dangerous for the Chinese people, with Indonesia, Malaysia, India, and Vietnam being particularly dangerous. Europe is relatively safe, and Turkey is easier to go and livable. It is recommended that the fellow fighters in Communist China make long-term plans by taking into account their own situations.<br/><br/>3/6/2022 文贵直播: 战友们去哪个地方比较安全？亚洲和非洲对华人很危险，尤其是印尼、马来西亚、印度和越南；欧洲相对安全，土耳其容易去且宜居；墙内战友应根据自身情况做长远打算<br/>
+![img](https://media.gettr.com/group46/getter/2022/03/08/00/7e8a4140-a221-d621-8453-d7905e2966ed/out.jpg)
+
+---
+
 `@miles 3/8/2022 12:10 AM (UTC)`
 
 2022.03.07 NFSC News  Ukraine Rescue Operation feels Serious Anti-Chinese Sentiment； The first bus of the NFSC & ROLF rescue team arrives in Poland
@@ -135,31 +156,6 @@ FDA released Pfizer COVID vaccines data with more than 1,200 side effects. Pfize
 啊啊啊啊啊啊
 > `@pangushixun 3/7/2022 12:05 PM (UTC)`<br/>逆行而上 千里救援 96名乌克兰儿童。巴塞罗那本地一家儿童慈善机构工作的Teresa女士得知新中国联邦组织国际救援活动后，询问战友能否对乌克兰境内一家儿童慈善机构内的几十名儿童进行营救。经过努力最终新中国联邦成功营救96名儿童，及相关陪同老师共计113人。儿童成功获救后，Teresa女士，包括乌克兰本地人十分感动，并称赞我们新中国联邦人为“天使”。<br/>Against all odds, thousands of miles were spent rescuing 96 Ukrainian children. Teresa, who works for a local children's charity in Barcelona, asked NFSC if they could rescue dozens of children from a children's charity in Ukraine after learning about the international rescue activities organized by NFSC. After the rescue, NFSC was able to rescue 96 children and 113 accompanying teachers. After the children were rescued, Ms. Teresa, including the Ukrainian locals, was very touched and praised our NFSC as "angels".<br/>#盘古时讯 <br/>#新中国联邦 <br/>#救援 #人道主义
 ![img](https://media.gettr.com/group38/getter/2022/03/07/12/e370761d-6b65-7513-eec0-bb3765788bed/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@pangushixun 3/7/2022 12:05 PM (UTC)`
-
-逆行而上 千里救援 96名乌克兰儿童。巴塞罗那本地一家儿童慈善机构工作的Teresa女士得知新中国联邦组织国际救援活动后，询问战友能否对乌克兰境内一家儿童慈善机构内的几十名儿童进行营救。经过努力最终新中国联邦成功营救96名儿童，及相关陪同老师共计113人。儿童成功获救后，Teresa女士，包括乌克兰本地人十分感动，并称赞我们新中国联邦人为“天使”。<br/>Against all odds, thousands of miles were spent rescuing 96 Ukrainian children. Teresa, who works for a local children's charity in Barcelona, asked NFSC if they could rescue dozens of children from a children's charity in Ukraine after learning about the international rescue activities organized by NFSC. After the rescue, NFSC was able to rescue 96 children and 113 accompanying teachers. After the children were rescued, Ms. Teresa, including the Ukrainian locals, was very touched and praised our NFSC as "angels".<br/>#盘古时讯 <br/>#新中国联邦 <br/>#救援 #人道主义
-![img](https://media.gettr.com/group38/getter/2022/03/07/12/e370761d-6b65-7513-eec0-bb3765788bed/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@tangping 3/7/2022 10:42 AM (UTC)`
-
-《铁锁梦》终于完成了👍💪期待上线❤️
-![img](https://media.gettr.com/group21/getter/2022/03/07/10/89fb4282-3740-a089-70a0-3f4c026c9eb2/out.jpg)
-
----
-
-`@miles 3/7/2022 12:25 PM (UTC)`
-
-【Ukraine Rescue】03/06/2022 David: So the CCP escaped, but now we, the New Federal State of China, come. We come to rescue the Ukrainian, Americans, our Chinese people and students. So our good international image is gained by our words, behavior and strength,not by CCP’s propaganda.<br/><br/>【乌克兰救援】03/06/2022 大卫：共产党滚蛋了，我们新中国联邦人来了，来救乌克兰人民，救美国同胞，救我们中国的同胞，救我们留学生。我们的国际形象是靠实力争取过来的，是靠我们每一个言行换来的，不是共产党吹出来的。<br/> 
-![img](https://media.gettr.com/group40/getter/2022/03/07/12/d4c2a208-d9fb-67cf-957d-9399baa56ef5/out.jpg)
 
 ---
 

@@ -2,107 +2,46 @@
 ---
 
 
-## 当俄罗斯人越来越接近时，CNN的记者在基辅的破坏现场
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2122958/)
+## 超过66%的以色列人正承受疫苗副作用的痛苦，其中很多人的病情严重
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2122934/)
 
-Clarissa Ward (CNN Chief International Correspondent)
-克拉丽莎·沃德（CNN 首席国际记者）
+#### 翻译                          意大利达芬奇农场                     小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-07-alle-19.20.51.png)图片来源：eventiavversinews.it
+以色列正在经历一场新的大屠杀， 这一次是托尼•福奇、唐纳德•特朗普、乔•拜登、辉瑞公司的阿尔伯特•布尔拉和所有其他全球主义者所实行的,强制人们注射新冠疫苗。
 
-These people have been under bombardment for seven straight days
-这些人已经连续 7 天受到轰炸
+根据新的报告， 绝大多数“完全接种”的以色列人现在都因注射而遭受不良反应， 其中很多反应很严重。
 
-and are only just leaving their homes and they’re leaving them reluctantly
-只是离开他们的家，他们不情愿地离开的
+以色列卫生部发布了最近一项调查的数据，该数据显示，以色列超过66%的人已经完全接种疫苗，然后是注射了加强针，他们有疫苗的副作用，这使他们的正常生活更加困难。
 
-and they’re leaving them with the knowledge that they might not be able to go back to them
-并且他们知道他们可能无法再回到他们的家
+大约2049名公民在接受第三剂疫苗后需要三到四个星期才能康复。他们中的大多数人透露他们感觉很糟糕， 大约一半的人说现在进行正常的日常活动真的很困难。
 
-And you can see many of these people are elderly
-而且你可以看到这些人很多都是老人
+该调查于2021年9月和2021年10月通过电话进行。 只有18岁以上且近期是在接种前两剂疫苗后的第21天至30天内接种了第三剂新冠疫苗。该人群报告的不良事件从轻微到严重不等。例如，许多女性说他们月经不调， 有些甚至不得不住院。显然， 受疫苗影响最大的受访者是妇女和年轻人。
 
-You see them, people are so exhausted
-你看他们，人们已经筋疲力尽了
+“ 女性最常见的副作用是月经不调，”LifeSiteNews报道。“ 报道最多的症状是月经延迟（37.8%）、月经出血增多（31.1%）、月经提前（28.9%）、出血持续时间延长（26.7%）和月经剧烈疼痛（20%）。”
 
-they can barely walk, they’re having to climb this sort of Twisted Metal
-他们几乎不能走路，他们不得不爬过这种扭曲的金属
+新冠疫苗造成的年轻人死亡人数是没有接种疫苗的死亡人数的260倍。
 
-Many of them, as you can see are elderly
-如你所见，他们中的许多人都是老年人
+正如去年报道的那样， 以色列实施了世界上最激进的强制疫苗接种的国家之一。国家颁布了“绿色通行证”， 进入剧院、餐厅和其他公共场所要进行验证。
 
-They’re visibly distressed
-他们明显地很哀伤
+以色列人被告知他们应该一直注射加强针来“保护”他们免受新冠感染。现在我们正看到这一政策带来的后果。
 
-It’s just an awful, awful scene and these people are the lucky ones
-这只是一个可怕的，可怕的场景，这些人是幸运的
+“以色列是世界上最早发起全国疫苗加强针活动的国家之一；始于去年8月，” LifeSiteNews补充道。
 
-just gonna help her carry this bag a second, excuse me
-只是想帮她提一下这个包，借过
+“但不管怎样，所谓的 ‘ 革命性感染 ’ 继续发生在那些打了加强针的人身上。”
 
-John. Well, we try to …
-约翰，好吧，我们试着……
+在以色列展开的加强针的活动中， 政府报告说， 前14名接种新冠疫苗的人在接种后立即检测出新冠病毒“阳性”。
 
-So people are obviously incredibly affected by the situation
-所以人们显然受到这种情况的难以置信的影响
+从那时起， 以色列打了加强针的严重伤亡人数剧增。
 
-They’re frightened，they’re exhausted, they’re on edge
-他们是害怕的，他们是筋疲力尽的，他们是处于崩溃的边缘
+另一项研究最近显示，接种辉瑞mRNA疫苗老人的死亡率比没有接种疫苗时的死亡率高40倍。
 
-They’ve got their pets
-他们带上了他们的宠物
+同一数据集显示， 年轻人的死亡率更高，比不接种新冠疫苗的年轻人高260倍。
 
-They’ve grabbed whatever they can
-他们带上了他们能抓着的一切
+“ 75年后真相比小说更奇怪 ” 有人在回应一项研究中的一篇文章时写道，他指的是第二次世界大战的大屠杀。“在这个星球上的所有国家中，我从未想过以色列会强迫其公民接受基因操作——委婉地称为’疫苗’，要么被当作麻风病人对待。”
 
-and you’re right, John, you know
-你是对的，约翰，你知道
+原文链接： [https://www.eventiavversinews.it/israele-oltre-il-66-sta-ora-soffrendo-di-reazioni-avverse-al-vaccino-molte-delle-quali-gravi/](https://www.eventiavversinews.it/israele-oltre-il-66-sta-ora-soffrendo-di-reazioni-avverse-al-vaccino-molte-delle-quali-gravi/)
 
-you asked me before about them going to the city
-你之前问过我他们去城市的事
-
-A lot of these people have no idea where they’re going to go
-很多人不知道他们要去哪里
-
-Once they cross this bridge
-一旦他们跨过这座桥
-
-They know that they’re in relative safety once they do it
-他们知道一旦他们这样做了，他们就处于相对安全的状态
-
-but they don’t have any idea where they’re going to go
-但他们不知道他们要去哪里
-
-They don’t have any idea where they’re going to sleep tonight
-他们不知道今晚要去哪里睡觉
-
-They don’t have any idea when they can get all their belongings from back home
-他们不知道什么时候可以回家里取回自己的东西
-
-We’re still hearing the steady thud of artillery in the distance and the fear is John
-我们仍然听到远处持续不断的炮击声，恐惧是，约翰
-
-It’s just going to keep getting closer
-它只会越来越近
-
-原视频链接[https://twitter.com/cnn/status/1500076163691171840?s=24](https://twitter.com/cnn/status/1500076163691171840?s=24)
-
-Date:03/06/2022
-原视频标题:CNN at site of destruction in Kyiv as Russians close in
-当俄罗斯人越来越接近时，CNN的记者在基辅的破坏现场
-原视频日期：2022/03/05
-原视频链接https://twitter.com/cnn/status/1500076163691171840?s=24
-任务编号：KE441（3928）
-视频时间段 : 0:00-2:11
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑、上传： Xiao  baige
 
  
 
