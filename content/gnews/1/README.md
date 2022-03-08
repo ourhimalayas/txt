@@ -2,24 +2,30 @@
 ---
 
 
-## 世界邪恶轴心五国集团
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2123789/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月7日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2123795/)
 
-#### 加拿大温哥华扬帆农场-采编 撰稿Quitman
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-9.png)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1-2.png)
+校对：Stay文苑
 
+编辑：Stay文苑
 
-郭文贵先生开启的爆料革命过去几年多次直播，向全世界发出警告：以中共国和俄罗斯为核心的政治独裁国家正在抱团取暖，形成邪恶轴心集团，对抗美国和欧洲民主国家。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-679.png)
-文贵先生透露，习近平与普京2010年就开始合作。2012年习近平访问美国洛杉矶，同美国总统奥巴马会谈失败后，他立刻同俄罗斯的普京会谈，联合伊朗、北朝鲜、土耳其或巴基斯坦，形成五个邪恶轴心国集团，对抗美国为首的西方民主社会。普京向习近平展示了俄罗斯先进的军事武器，习近平非常高兴和感动。从此，俄罗斯的武器和军事技术大量出售给中共国。习近平领导的中共集团从骨子里崇拜俄罗斯，崇尚独裁政治，反对民主自由，绝对不愿意让人民有真正的投票权。
+发稿：Stay文苑
 
-郭先生指出，通过塔利班事件可以看出，一旦中共攻打台湾和收回香港，中共国，俄罗斯、伊朗、北朝鲜和土耳其，五个被制裁的国家会坚决地站在一起。俄罗斯入侵乌克兰事件清楚地表明了这个邪恶轴心五国集团已经形成。
+新闻：[https://gettr.com/post/pyrnqu5b42](https://gettr.com/post/pyrnqu5b42)
+访谈：[https://gettr.com/post/pyrgg3508e](https://gettr.com/post/pyrgg3508e)
 
-原文链接：[https://gettr.com/post/pyipmc1fb1](https://gettr.com/post/pyipmc1fb1)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-8.jpeg)
 
-
-
-*校对、上传：文永*
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

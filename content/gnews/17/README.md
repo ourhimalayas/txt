@@ -2,11 +2,20 @@
 ---
 
 
-## 3/6/2022 文贵直播: 香港的情况只会变得更坏！中共打台湾的话，联军一定会参战；福建、大连、海南、广东、江西、河南等地的中共军事基地将遭到毁灭性打击，3分钟就会被摧垮
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2123527/)
+## 日本15万人捐款40亿支持乌克兰 大使馆致谢
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2123588/)
 
-秘密翻译组-北美组
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-678.png)[图片来源](https://english.madhyamam.com/world/japan-evacuates-embassy-ukraine-border-tension-continues-933466)
+乌克兰驻日本大使馆在推特上宣布，自3月7日开设专门银行账户以支持俄罗斯入侵乌克兰的人道主义援助以来，已募集到近15万人次，40亿日元的捐款。
 
+乌克兰驻日本大使馆表示，“非常感谢日本友人在乌克兰人民这个困难时期给予的支持。”
+
+信息来源：[**ウクライナへの寄付40億円に　15万人と在日大使館謝意**](https://news.yahoo.co.jp/articles/74fc377355dfee698d7c218884527787e84139cd)
+
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

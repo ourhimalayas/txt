@@ -2,25 +2,22 @@
 ---
 
 
-## 加拿大军方预计中共可能进攻台湾
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2123420/)
+## 2万多名外国志愿者申请加入乌克兰特种部队与俄罗斯军队作战
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2123464/)
 
-采编/编译撰稿：加拿大温哥华杨帆农场 – 薇文
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-675.png)[图片来源](https://msp.c.yimg.jp/images/v2/FUTi93tXq405grZVGgDqG93Zojd5G44eypSXWFiEGagDhw7F_zkRl0_4Xpdsuafby4iZTldufLUyozbcCsSNUfSjGG30OmvU4Z_NFs3QXtonk9LX5-RYqrcpjNWYY5caAGvuoLsTT-8NQsQDwzOk4SvPCUhm3Rego0CPlq8FWwBGdhvqyddQl6fnJuM_88gVddtrnLBqUTDFx2qpz8tm0BtCveXATHKc)
+美国有线电视新闻网报道，乌克兰国防部宣布成立了一个特殊部队“国际部队”，并开始执行打击俄罗斯入侵的战斗任务。
 
-![](https://static.tnc.news/media/2021/10/website-taiwanarmy-696x365.jpg)图片来源：https://tnc.news/
+负责监督该部门的国防部情报局局长基里洛·布达诺夫准将说，希望加入的有来自 52 个国家的 20,000 多名志愿者。
 
-拿大[真北方] 6日报道了加拿大军事情报机构担忧中国可能会对台湾发起攻击，他们怀疑俄罗斯对乌克兰的入侵会被当作烟幕惮。
+布达诺夫先生感谢志愿者，指出他们中的大多数人在世界各地的维和行动中经验丰富。他说 “任何支持都是宝贵的”。
 
-加拿大军事情报主管赖特将军在周三在下议院国防委员会报告了这一消息。他的情报部队对中国可能采取的行动保持高度警惕。一周前，情报部门就非常关注中国的动向，想知道中国是否会利用这个机会加快他们自己的计划，以加强对其海外的控制，特别是台湾。因为中国一直坚持台湾岛大陆政府的一部分，并在台湾领空附近加强了军事行动。
+信息来源：[**外国人義勇兵２万人超、ロシア軍と戦う特殊部隊への参加希望　ウクライナ発表**](https://news.yahoo.co.jp/articles/18c40ea33e7bc3189c9caba7c409d4a9ea7e89d8)
 
-莱特将军说，加拿大和其他西方国家已经针对俄罗斯普京政权进行大量制裁，包括加拿大将禁止俄罗斯飞机进入加拿大领空，随着国际社会特别是北约和西方国家加大反应力度，他希望中国会暂停任何独裁计划。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-原文链接： [Military intelligence worried about possible attack on Taiwan by China](https://tnc.news/2022/03/06/military-intelligence-worried-about-possible-attack-on-taiwan-by-china/)
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

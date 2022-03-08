@@ -2,22 +2,41 @@
 ---
 
 
-## 喜联储开启国际数字货币交易之门
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2123674/)
+## 有声|纳斯卡车队多方支援乌克兰抵御侵略
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2123724/)
 
-采编/编辑撰稿： 文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/06-image-2.png)
-据《福布斯》3月4日报导，著名赛车手[埃尔顿]最近通过喜支付成功购得巴西车神塞纳曾经使用过的，并夺得过国际方程式锦标赛冠军的一辆迈凯伦赛车。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，应乌克兰总统泽伦斯基的要求，纳斯卡车队老板理查德-柴尔德里斯承诺为乌克兰捐赠一百万发弹药。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-3.jpeg)
+柴尔德里斯赛车的所有者柴尔德雷斯在接受媒体访谈时宣布，他正在与阿莫公司合作，为乌克兰人提供弹药，以应对俄罗斯的入侵。该公司也表示，他们坚定地支持乌克兰的主权和独立，将尽快采取行动，支持乌克兰继续保卫自己和自由。
 
-据悉，本次以喜联储数字货币方式结算的收购，通过喜支付以喜美元完成了转账，其交易总额超过500万美元。迈凯轮赛车公司首席执行官布朗对此表示：喜交所是全球首家将原生交易币(喜币）、稳定币（喜美元）及支付应用（喜支付)集成一体的数字币综合交易平台。由于其与生俱来的包容性、无国界性以及安全和便捷性，而一跃成为当今最值得信赖的数字资产交易平台。
+柴尔德里斯将要求纳斯卡车队允许车手在他们的赛车上展示对乌克兰的支持。
 
-评论指出，出于对喜联储和喜币的高度认可和信任，这些备受世界推崇和尊重的车神，毫不犹豫地选择喜美元来交易其顶级赛车之举，必将产生全球认知和使用喜币和喜支付的蝴蝶效应，并正式开启了喜支付无疆界自由交易的大门。
+此外，亨德里克赛车队的老板亨德里克也承诺，3月6日在拉斯维加斯举行的赛事中，他的车队四辆赛车中的任何一辆每领跑一圈，将向乌克兰捐赠 2,000 美元。
 
-校对编辑：硫酸羟氯喹64
+乌克兰最近也从邻国波兰收到了超过 1200 万枚弹药筒。北约国家也为乌克兰的努力提供武器，包括来自芬兰的超过 15万发弹药。
 
-发稿：苦尽甜来 (文来）
 
-原文链接：[https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)
+
+文字版原文：[纳斯卡车队多方支援乌克兰抵御侵略](https://gnews.org/zh-hans/2122527/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
