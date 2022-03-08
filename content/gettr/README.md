@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/8/2022 2:29 AM (UTC)`
+
+3/6/2022 Miles Guo: The situation in Hong Kong will only get worse! If the CCP invades Taiwan, the Allied Forces will definitely join the war. The CCP’s military bases in Fujian, Dalian, Hainan, Guangdong, Jiangxi, and Henan will be completely destroyed in 3 minutes!<br/><br/>3/6/2022 文贵直播: 香港的情况只会变得更坏！中共打台湾的话，联军一定会参战；福建、大连、海南、广东、江西、河南等地的中共军事基地将遭到毁灭性打击，3分钟就会被摧垮！
+![img](https://media.gettr.com/group39/getter/2022/03/08/02/64d14a00-b9d3-8358-2e85-e5090895c1cf/out.jpg)
+
+---
+
 `@miles 3/8/2022 2:08 AM (UTC)`
 
 2022.03.07 晚 《新中国联邦新闻访谈》俄乌战争最新军事进展；战友前线救援展现新中国联邦形象；从乌克兰难民现状看未来可能在中共国发生的人道主义灾难；德州联邦法官判決，辉瑞公司疫苗副作用大公开
@@ -148,13 +155,6 @@
 
 FDA released Pfizer COVID vaccines data with more than 1,200 side effects. Pfizer knew about the side effects of the COVID vaccines one year ago (i.e. February 28, 2021). They had it documented in this document that they didn't want to release for 70 years. They wanted to hide it from us until our grandchildren are literally adults. If Pfizer knew about this, that means our public health officials including Dr. Fauci knew about this and they hid this from the American people. #VaccineSideEffects #FDA #CDC<br/><br/>FDA公布了辉瑞中共病毒疫苗数据，有超过1200种副作用。辉瑞去年2021年2月28号就知道中共病毒疫苗的副作用，他们记录在这个70年不想公布的文件中，他们想对我们隐瞒到我们的孙子长大成人。如果辉瑞知道，那么意味着包括福奇博士在内的公共卫生官员也知道，他们对美国人民隐瞒了真相！
 ![img](https://media.gettr.com/group30/origin/2022/03/07/20/8dcce1a1-e715-cb9c-50df-24f7da219727/out.jpg)
-
----
-
-`@miles 3/7/2022 3:41 PM (UTC)`
-
-3月7号：中国共产党驻乌克兰的大使馆，<br/>你们睁开你们的狗眼看一看，我们拯救了这么多素昧谋面的乌克兰的孩子……你们能做到吗？你们永远做不到。你们欺骗中国同胞欺骗中国在乌克兰的留学的孩子，让他们的生命处在战争的极度危险之中，这笔帐早晚会和你们算得！
-![img](https://media.gettr.com/group10/getter/2022/03/07/15/e6604085-e576-c480-9340-d7cd4cfff9e9/out.jpg)
 
 ---
 
