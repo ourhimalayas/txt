@@ -2,48 +2,96 @@
 ---
 
 
-## 新中国联邦的乌克兰救援行动 吸引世界媒体的关注
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2128688/)
+## 接种疫苗的人可能已经患上了疫苗获得性免疫缺陷综合征(一)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2128721/)
 
-作者：纽约香草山健身部-Ivy001
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-45.png)
-俄罗斯入侵乌克兰已经进入第十三天，前世界目光聚焦于乌克兰。波兰边境由于大量乌克兰难民涌入，已经成为难民救援中心，和全球媒体云集之地。正在波兰边境展开救援行动的新中国联邦，为世界各个媒体所关注。
+**编译：文羽**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip接种疫苗的人可能已经患上了疫苗获得性免疫缺陷综合征.png)图片来源：**tradicionviva.es**
+英国政府关于Covid-19的官方数据几个月来一直表明，大多数完全接种疫苗的人正在发展全面的Covid-19疫苗引起的获得性免疫缺陷综合症（AIDS），现在最新的数据表明，大量完全接种疫苗的英国人可能已经达到了不归路，现在正在遭受这种自身免疫性疾病的困扰。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2751.jpg)
+英格兰的Covid-19数据是由英国卫生安全局制作的（见这里）。他们的最新数据可在此下载PDF文件。[https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment\_data/file/1052353/Vaccine\_surveillance\_report\_-\_week\_5.pdf](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1052353/Vaccine_surveillance_report_-_week_5.pdf)
 
-日本时间3月8日，日本唯一的国有电视台NHK，派记者现场报道了乌克兰的救援现况，和新中国联邦的救援点，还有亮眼的蓝色联邦七芒星旗，就在记者身后飘扬。虽然，日本记者没有提及我们新中国联邦，但是，整个报道一直可以看见清晰的新中国联邦旗在飘扬。。
+第43页包含了从3.1.22到30.1.22按疫苗接种情况统计的英格兰Covid-19病例数据–从3.1.22到30.1.22按疫苗接种情况统计的英格兰Covid-19病例：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip英格兰Covid-19病例.png)
 
-同日，前线Nicole 发回的消息，她采访了一位来自德国的法籍战地记者Emma。Emma在采访中表示，她知道新中国联邦，支持新中国联邦“消灭中国共产党”的主张。并且，她看到我们新中国联邦在乌克兰救援的高效和不计回报的付出，非常感动，认为我们新中国联邦人是热爱和平善良的人，不等同于中国共产党。Emma最后还和Nicole一起喊出：“Take down the CCP!”
+下表显示了2022年1月3日至1月30日期间英格兰按疫苗接种情况划分的病例总数：
 
-前线Nicole 还发回消息，来自纽约，全球第三大联播网——CBS的直播车就在我们的直播中心旁边，在过去的两天时间里，他们一直都在关注我们的救援行动。明天，他们的早间新闻主播Tony会到现场, 来跟纽约总部连线直播。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip2022年1月3日至1月30日期间英格兰按疫苗接种情况划分的病例总数.png)
 
-正如郭文贵先生所述：世界上尚没有一个国家像新中国联邦这样去前线救援！随着乌克兰救援行动的展开，我们救出越来越多的人，新中国联邦就越来越为人所知，新中国联邦将走向越来越广阔的世界舞台！
+下图显示了1月3日至1月30日期间英格兰18岁及以上人群中按疫苗接种情况划分的病例总数：
 
-新闻链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip1月3日至1月30日期间英格兰18岁及以上人群中按疫苗接种情况划分的病.png)
 
-[https://gettr.com/post/pyuqvv79a5](https://gettr.com/post/pyuqvv79a5)
+你可以清楚地看到，尽管未接种疫苗的人群被迫比完全接种疫苗的人群遭受更多的限制，但英格兰正在经历一场完全接种疫苗的大流行，在2022年1月，18岁以上接种疫苗的人群记录了惊人的167万个病例，而18岁以上未接种疫苗的人群中只有228750个病例。
 
-[https://gettr.com/post/pyuzpydcd6](https://gettr.com/post/pyuzpydcd6)
+英国卫生安全局（UKHSA）欣然向我们提供了按疫苗接种状况划分的每10万人口的病例率。然而，他们的第2周–2022年–疫苗监测报告是他们最后一次公布每10万名双重疫苗接种者的病例率，而从那时起只选择公布每10万名三重疫苗接种者的病例率。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-23.jpg)
+但是，幸运的是，我们可以发现这些病例在双重疫苗接种者中的比率是多少。
 
-编辑/校对/发稿：遍地开花
+这些是根据英国卫生署疫苗监测报告–2022年第5周–计算出的英格兰所有18岁及以上已接种双重和三重疫苗的人群规模。
 
-**更多资讯，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip英国卫生署疫苗监测报告-2022年第5周-计算出的英格兰所有18岁及以上已接种双重和三重疫苗的人群规模.png)
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+以下是英格兰18岁以上各年龄组按疫苗接种情况划分的Covid-19病例率，以及英格兰所有成年人的平均病例率/10万：
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip18岁以上各年龄组按疫苗接种情况划分的Covid-19病例率.png)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+现在我们知道了病例率，我们可以使用辉瑞公司的疫苗有效性公式来计算疫苗在现实世界中的有效性。
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+未接种疫苗的病例率-接种疫苗的病例率/未接种疫苗的病例率=疫苗效力
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-46.png)
+p. 18-80岁以上的双重接种：1,846.38 – 5,226.1 / 1,846.38 = 负-183%。
 
+因此，在英格兰，所有成年人的Covid-19疫苗的平均实际效果为负-183%。这意味着完全接种疫苗的成年人比未接种疫苗的成年人更有可能获得Covid-19。这就是接种疫苗对英国人民的影响。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip接种疫苗对英国人民的影响.png)
+
+但是，疫苗效力并不是真正衡量一种疫苗的标准，而是衡量接受疫苗者的免疫系统与未接种疫苗者的免疫系统的表现相比。
+
+但疫苗在最初的培养后并不停留，它让你的免疫系统来处理其余的事情。因此，当权威人士说，疫苗的有效性会随着时间的推移而减弱，他们真正的意思是，你的免疫系统的性能会随着时间的推移而削弱。
+
+我们在这里看到的问题是，免疫系统没有恢复到其原始的自然状态。如果是这样，感染Covid-19的结果将与未接种疫苗人群的结果相似。
+
+相反，它持续下降的速度意味着未接种疫苗的人群拥有更好的免疫系统功能，这意味着Covid-19注射疫苗正在彻底消灭接种疫苗的免疫系统。
+
+但是为了计算免疫系统的表现，我们必须稍微改变用于计算疫苗效力的计算方法，用我们的反应除以接种疫苗或未接种疫苗的较高比率。
+
+未接种疫苗的病例率-接种疫苗的病例率/未接种疫苗的最高病例率/接种疫苗的病例率=免疫系统性能，p.18-80岁以上的双重接种：1.846,38 – 5.226,1 / 5.226,1 = 负65%。
+
+这意味着，平均而言，完全接种疫苗的英国人目前的免疫反应比未接种covid-19疫苗的人低65%，但下图也显示了各年龄组的真实损害程度。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip完全接种疫苗的英国人目前的免疫反应比未接种covid-19疫苗的人.png)
+
+因此，在英国，一般完全接种疫苗的人有最后35%的免疫系统来抵御某些种类的病毒和某些种类的癌症，等等。问题是，他们剩余的35%的免疫系统何时会被耗尽？
+
+不幸的是，关于英格兰和苏格兰的住院和死亡的进一步数据表明，对于一些完全接种的人来说，可能已经完全用尽了疫苗。
+
+因为covid-19疫苗现在也显示出对住院和死亡的负面功效，也就是说，接种了所有疫苗的人比未接种疫苗的人更容易因covid-19而住院和死亡，这表明covid-19疫苗引起的获得性免疫缺陷综合症已经受到影响。
+
+苏格兰公共卫生局每周发布一份Covid-19统计报告，其中包含按疫苗接种状态分类的Covid-19病例、住院和死亡数据。
+
+根据2月2日星期三公布的报告，下图显示了21年12月25日至22年1月21日期间苏格兰按疫苗接种情况划分的Covid-19死亡比例：
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip21年12月25日至22年1月21日期间苏格兰按疫苗接种情况划分的Covid-19死亡比例.png)
+
+下图显示了苏格兰每10万人中按年龄标准化的covid-19死亡率，按疫苗接种状况分类。
+
+这些数据是从22年2月2日星期三发表的PHS Covid-19统计报告第54页上的表16中提取的。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip22年2月2日星期三发表的PHS-Covid-19统计报告第54页上的表16中提取的.png)
+
+【接下篇：[接种疫苗的人可能已经患上了疫苗获得性免疫缺陷综合征(二)](https://gnews.org/zh-hans/2128905/)】
+
+**来源：【tradicionviva.es】[Los vacunados ya pueden estar sufriendo el síndrome de inmunodeficiencia adquirida por la vacuna](https://www.tradicionviva.es/2022/02/10/los-vacunados-ya-pueden-estar-sufriendo-el-sindrome-de-inmunodeficiencia-adquirida-por-la-vacuna/?utm_source=mailpoet&amp;utm_medium=email&amp;utm_campaign=Novedades+Tradicion+Viva%E3%80%82)**
+
+* * *
+
+***审核：Aries的星
+校对：小东
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-4.jpeg)
 
  
 

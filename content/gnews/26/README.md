@@ -2,29 +2,48 @@
 ---
 
 
-## 世界足球先生莱万多夫斯基终止与中共华为合作
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2128598/)
+## 新中国联邦的乌克兰救援行动 吸引世界媒体的关注
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2128688/)
 
-**撰稿：日本东京方舟农场 海星**
+作者：纽约香草山健身部-Ivy001
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-45.png)
+俄罗斯入侵乌克兰已经进入第十三天，前世界目光聚焦于乌克兰。波兰边境由于大量乌克兰难民涌入，已经成为难民救援中心，和全球媒体云集之地。正在波兰边境展开救援行动的新中国联邦，为世界各个媒体所关注。
 
-3月7日，世界足球先生莱万多夫斯基（Robert Lewandowski）的经纪人萨威斯拉克（Tomasz Zawislak）发布声明表示，莱万多夫斯基将终止与中共华为合作。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2751.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/世足.jpg)（图片来源：法新社、自由时报）
+日本时间3月8日，日本唯一的国有电视台NHK，派记者现场报道了乌克兰的救援现况，和新中国联邦的救援点，还有亮眼的蓝色联邦七芒星旗，就在记者身后飘扬。虽然，日本记者没有提及我们新中国联邦，但是，整个报道一直可以看见清晰的新中国联邦旗在飘扬。。
 
-据《自由时报》报导，莱万多夫斯基的经纪人萨威斯拉克于3月7日在致法新社的声明中表示，我方已做出決定，将停止与华为品牌的营销合作关系，并且已经终止了所有推广服务。据悉，莱万多夫斯基放弃了今年刚签订的3年500万欧元的代言费。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-2.jpg)
 
-该报导指出，莱万多夫斯基的这项决定可能与日前发表在英国《每日电讯报》上的1篇报导有关。这篇报导指控中共华为公司正在协助俄罗斯维护网络，反击支持乌克兰黑客团体发动的网络攻击。
+同日，前线Nicole 发回的消息，她采访了一位来自德国的法籍战地记者Emma。Emma在采访中表示，她知道新中国联邦，支持新中国联邦“消灭中国共产党”的主张。并且，她看到我们新中国联邦在乌克兰救援的高效和不计回报的付出，非常感动，认为我们新中国联邦人是热爱和平善良的人，不等同于中国共产党。Emma最后还和Nicole一起喊出：“Take down the CCP!”
 
-莱万多夫斯基是波兰国家足球队球员，并于2020年和2021年两次获得“世界足球先生”称号。他曾在今年二月底的一场比赛中佩戴乌克兰国旗颜色的臂章，以示对乌克兰的声援。他当时表示：”世界无法接受正在乌克兰发生的事情，我希望全世界能支援乌克兰。”
+前线Nicole 还发回消息，来自纽约，全球第三大联播网——CBS的直播车就在我们的直播中心旁边，在过去的两天时间里，他们一直都在关注我们的救援行动。明天，他们的早间新闻主播Tony会到现场, 来跟纽约总部连线直播。
 
-参考链接：
-1.[https://news.ltn.com.tw/news/world/breakingnews/3852803](https://news.ltn.com.tw/news/world/breakingnews/3852803)
-2. [https://www.ftvnews.com.tw/news/detail/2022308W0242](https://www.ftvnews.com.tw/news/detail/2022308W0242)
-3.[https://zh.wikipedia.org/wiki/%E7%BD%97%E4%BC%AF%E7%89%B9%C2%B7%E8%8E%B1%E4%B8%87%E5%A4%9A%E5%A4%AB%E6%96%AF%E5%9F%BA](https://zh.wikipedia.org/wiki/%E7%BD%97%E4%BC%AF%E7%89%B9%C2%B7%E8%8E%B1%E4%B8%87%E5%A4%9A%E5%A4%AB%E6%96%AF%E5%9F%BA)
+正如郭文贵先生所述：世界上尚没有一个国家像新中国联邦这样去前线救援！随着乌克兰救援行动的展开，我们救出越来越多的人，新中国联邦就越来越为人所知，新中国联邦将走向越来越广阔的世界舞台！
 
-撰稿：海星
-总编：青城道姑
-校对发布：Linda
+新闻链接：
+
+[https://gettr.com/post/pyuqvv79a5](https://gettr.com/post/pyuqvv79a5)
+
+[https://gettr.com/post/pyuzpydcd6](https://gettr.com/post/pyuzpydcd6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-23.jpg)
+
+编辑/校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-46.png)
+
 
  
 
