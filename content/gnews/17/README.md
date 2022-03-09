@@ -2,21 +2,29 @@
 ---
 
 
-## 【 #G时新闻 】星链系统为乌克兰反击俄军提供技术帮助
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2129085/)
+## 今日盖特大V推荐 — 反叛新闻 （Rebel News）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2129086/)
 
-加拿大温哥华扬帆农场 – 播报：yuyu
-加拿大温哥华扬帆农场 – 视频制作：Gracelshan
+![](https://assets.gnews.org/wp-content/uploads/2022/03/acr0r-0vai4.jpg)
+盖特链接：[https://gettr.com/user/rebelnewsonline](https://gettr.com/user/rebelnewsonline)
 
-据加拿大【后千禧年】3月6日报道，俄军本次入侵乌克兰的重要战略之一，就是首先切断乌克兰境内的国际互联网，并毁掉其所有通信网络设施。
+**反叛新闻自述：**
 
-报道称，当乌克兰部分地区的通信网络被俄军破坏后，乌克兰副总理随即请求SpaceX创始人马斯克，希望该公司能向乌克兰提供卫星互联网服务。最终，在马斯克与总统泽连斯基视频会晤后，SpaceX立即为乌克兰提供了一批星链系统设备，以用于被毁城市的网络重建。
+讲述故事的另一面
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7bhyk1.jpg)**图片来源：网络**
+**反叛新闻简介：**
 
-尽管普京一再威胁为乌克兰提供援助的国家，但马斯克无惧恐吓，仍然全力支援危难中的乌克兰，并在关键时刻为该国抵御并反击俄军入侵提供了可靠且强有力的通信保障。
+反叛新闻（也称为The Rebel Media和The Rebel）是由反叛新闻网络有限公司运营的加拿大右翼政治和社会评论媒体网站。它由前太阳新闻网名人以斯拉·黎凡特（Ezra Levant）和布赖恩·李利（Brian Lilley）于2015年2月创立。
 
-原文链接：https://gnews.org/zh-hans/2127143/
-视频链接：https://www.gettr.com/post/pyxldy978f
-编辑/发文：文莱
+反叛新闻仅在互联网上广播其内容，有时被视为加拿大版的布莱巴特新闻（Breitbart News）。该平台在意识形态上反对穆斯林圣战。
+
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

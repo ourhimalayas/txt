@@ -2,34 +2,38 @@
 ---
 
 
-## 战争局势催化黄金多头继续上扬
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2128342/)
+## 新中国联邦成功救出96名乌克兰儿童
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2128276/)
 
-**编译：Elli**
+作者：首尔天池农场—追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+3月6日文贵先生盖特，新中国联邦成功从乌克兰救出96名儿童，将安置在巴塞罗那，由西班牙农场文戈站长继续全程跟踪服务。
 
-本周黄金价格突破 1925美金/oz 关口，中期和主体趋势转为看涨，还不到历史最高点。黄金价格在接近 2020 年 8 月（2100 美元）高点时可能会遇到一些阻力，但谁知道呢，多头势头如此强劲，根据基于道指黄金价格计算出的影子黄金价格指标，贵金属价格非常便宜。但如果乌克兰战争紧张局势迅速缓和，你会看到股市反弹，黄金、白银和美元遭到抛售，而这种情况下，黄金价格在 1800美金/oz左右会筑底巩固。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-757.png)图片来源：https://stockcharts.com/h-sc/ui
-目前，鉴于石油、小麦和其他一些金属等大宗商品的走势，黄金和白银的上涨空间很大。小麦价格在过去一个月几乎翻了一番，钯金价格自 1 月中旬以来上涨了 50% 以上。油价每天每桶上涨 4 或 5 美元，WTIC 昨日盘中触及 130 美元/桶的高位。取暖油在一周内从 2.75 美元飙升至 4 美元以上，本周末镍和铜飙升至历史新高， CRB 和许多大宗商品已经变成抛物线价格走势。
+这96名儿童中，有几十名是当地一家儿童慈善机构的孤儿，有的则是乌克兰当地居民为保卫家园上战场，而把孩子交给了该机构。消息称，在赶往接应的路上，营救儿童及随行老师的数量一直在增加。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-16.jpg)
+据悉，西班牙农场在接到任务后，立刻组织人员赶赴一线，并在中间大巴运送的4个小时路程中陪同护送，顺利脱离危险地。接下来落实营救难民落地后三十天生活涉及的方方面面。另外，考虑到孩子们精疲力尽，前线救援战友为了不打扰他们休息就没有继续直播了。
 
-极其荒唐的是，美国中央银行似乎仍无法找到在此加息 25 个基点的合理性。
+儿童成功获救后，负责人Teresa 女士，包括乌克兰本地人十分感动，对法治基金、新中国联邦表示了深深的感谢，称新中国联邦人为“天使”。
 
-黄金在 5 月之前可能会涨到 2500 美元/oz，战争局势升级会让黄金继续会迅速走高。其实即使没有战争的催化剂，黄金也是在一个被低估的位置不断渗透向上。
+参考链接：
+1. [感谢在前线的所有兄弟姐妹们](https://gettr.com/post/pyktuo6409)
+2. [新中国联邦、法治基金乌克兰战区大营救行动特别报道](https://gettr.com/post/pyldpz4b78)
 
-黄金的多头走势持续，贵金属矿产股票将很容易翻倍。随着美元体系自身内爆，贵金属股票翻倍的价格跟未来几年强劲价格走势比，不过是九牛一毛。
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-**原文链接：**
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
 
-付费分析Ed Bugo [https://dollarvigilante.com/members-area/](https://dollarvigilante.com/members-area/)
+**更多资讯，更多关注**
 
-**编辑：LILY**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**发布：歪桑**
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-20220308
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
