@@ -2,53 +2,35 @@
 ---
 
 
-## 解读一张漫画，“普京的最后一张王牌”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2128355/)
+## 大巴驶向巴塞罗那
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2128278/)
 
-**编译和评论：16626  沉默老歌**
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+波兰当地时间3月7日，乌克兰战区救出的100多个孩子及陪同老师在克拉科夫的酒店经过一夜休整以后，登上前往巴塞罗那的大巴。他们此行要经历20个小时，可能会在中途休息一下。法治基金为他们准备了酒店住宿、食物、水，和一些必备品。当然还有水、酸奶、糖果、巧克力这些抚慰孩子情绪的万能零食。虽然这些孩子7-17岁不等，还处在不经人事的阶段，但是在人类最残酷的战争中，他们是逃难出来的，却表现得并不惊慌，不哭不闹，很镇定。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-19.jpg)
+战友谈及昨天接到他们的过程，在零下5度的夜里等了四个多小时才接到满载孩子的大巴。拥抱的时候，老师们都是颤抖的。从乌克兰能够平安出来，一路上经历了多少担惊受怕，但车上的孩子丝毫没有害怕的情绪，甚至还能笑出来，可想而知老师们在路上承受了多少。但这一切都值得，因为孩子们都平安出来了。
 
-**普京的最后一张王牌**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/A8A655FB-1DC8-4DD2-BFFA-06321F3FA047.png)屏幕截图：[https://www.lapresse.ca/debats/caricatures/2022-03-05/l-atout-de-poutine.php](https://www.lapresse.ca/debats/caricatures/2022-03-05/l-atout-de-poutine.php) 
-**自封拥有最强大的核武器**
+法治基金会给孩子们和老师们提供一切资金和援助，帮助他们平安到达巴塞罗那。
 
-题为《普京的最后一张王牌》漫画显示，普京自封拥有最强大的核武器。
+援助过程中我们注意到，其中一个孩子戴的帽子上印着中国字“孙悟空”，真是神奇的中国缘分。愿人类远离灾难，愿家园幸福美满。
 
-**核讹诈似乎要把裤裆撑破**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/08D0668A-0674-40A3-B317-65F9948DDE92.png)**屏幕截图：**[**https://www.lapresse.ca/debats/caricatures/2022-03-05/l-atout-de-poutine.php**](https://www.lapresse.ca/debats/caricatures/2022-03-05/l-atout-de-poutine.php)** ，普京的最后一张王牌**
- 
-而且普京胆大包天，核讹诈似乎要把裤裆撑破，大有要启动核按钮，露出核弹头之势，这胆量之大令川普和金三胖都目瞪口呆。
+参考链接：[新中国联邦 法治基金救援行动 帮助乌克兰儿童逃离战火 连线波兰前线战友 2022-03-07](https://gettr.com/post/pymh9z57db)
 
-2022年3月2日文贵在大直播中指出（[https://www.gettr.com/streaming/pxru0n55ba](https://www.gettr.com/streaming/pxru0n55ba) ），
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-**怎么可能把核武器威胁变成真的？**
+总编/编辑/审核：飞虹
+校对/发稿：Hetangyuese
 
-核战争不会发生，俄罗斯和中共国狼狈为奸，人类一旦把这个核武器的恐惧放下的时候，你还有什么威胁人类啊？ …，他们太愚蠢了，太疯狂了，太无知了，怎么可能让你把核武器威胁变成真的？那不就等死吗？ 怎么可能！
+**更多资讯，更多关注**
 
-**评论：**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**普京赤裸裸的流氓本质**
-
-普京为了阻止北约军事力量的介入，竟然口出狂言进行核讹诈。要知道一旦启动核按钮，地球上的人类文明就将终止，普京赤裸裸的流氓本质暴露无遗。普京打乌克兰意图想控制欧洲，习要打台湾，更想拿下亚洲。两个做白日梦的疯子，还梦想连手挑战美国，控制全世界，他们真是“太愚蠢了，太疯狂了，太无知了”，太小看当今世界的正义力量了，太小看我们新中国联邦的力量了。
-
-**普京对邪恶战争的心虚和对失败的****担****忧**
-
-如果不是愚蠢和无知的话，这就恰恰证明了，普京的核威胁正是他对发动这场邪恶战争的心虚和对失败的担忧与恐惧，普京的时代结束了。
-
-**声明：**
-
-由于语言和文化背景的不同，本文（或本视频）中对原文（或原视频）的翻译不能也不可能保证完全表达原文（或原视频）的内容。读者（或观众）要想了解确切的信息请参考下面链接指向的原文（或原视频）。
-
-本文（或本视频）内容仅代表作者个人观点，与发布本文（或本视频）任何媒体平台无关。
-
-**原文链接：**
-
-[L’atout de Poutine](https://www.lapresse.ca/debats/caricatures/2022-03-05/l-atout-de-poutine.php)
-
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220308
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

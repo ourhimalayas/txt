@@ -2,46 +2,35 @@
 ---
 
 
-## 驰援乌克兰，波兰将所有米格-29战机部署到美军基地
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2129301/)
+## 英国将与美国同步禁止俄罗斯石油进口
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2129360/)
 
-#### 【雅典娜快讯】，紧贴时代脉博
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-01T162931Z_1690425859_RC2QTS9EJGMT_RTRMADP_3_UKRAINE-CRISIS-ESTONIA-BRITAIN.jpg)英国首相约翰逊资料图片 © 路透社图片
 
-翻译/编辑：文泓
+编辑摘要：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-26.png)图片来源：DW & 雅典娜设计组
+据法国国际广播电台暨彭博社3月8日报道，英国政府计划禁止所有俄罗斯石油的进口，这是英国政府就乌克兰战争对普京政府采取的最新制裁措施。该禁令将与美国同步，在未来几个月内分阶段实施，且不包括俄罗斯天然气。
+
+由于通货膨胀率飙升，英国人已经面临着生活成本危机，税收负担也将达到20世纪50年代以来的最高水平。禁止俄罗斯石油可能会令英国的能源价格进一步上涨。
+
+断臂求生，是西方国家不得不面对的问题。普京侵略乌克兰的战争，既有中共背后的经济支持，也有西方国家不得不购买俄罗斯能源提供的资金。禁止俄罗斯石油进口，会造成美国和英国国内的能源价格进一步提高，但是也会部分切断普京的战争资金。中共的经济援助不会持续太久，因为习近平也只剩下半条命在苦苦支撑。现在到了决战的时刻，要么中俄扩张打败西方，要么西方联合起来消灭中俄。
+
+[新闻参考链接](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220308-%E8%8B%B1%E5%9B%BD%E5%B0%86%E4%B8%8E%E7%BE%8E%E5%9B%BD%E5%90%8C%E6%AD%A5%E7%A6%81%E6%AD%A2%E8%BF%9B%E5%8F%A3%E4%BF%84%E7%BD%97%E6%96%AF%E7%9F%B3%E6%B2%B9)
+
+*编辑：胖丁*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-当地时间3月8日波兰宣布，在俄乌冲突期间，他们决定将该国老式的米格-29战斗机部署到美军位于德国的拉姆施泰因空军基地。
+编辑：【英国伦敦喜庄园编辑部】
 
-波兰外交部发布声明，经总统和政府协商后，相关部门立即着手无偿部署所有的米格-29战机到拉姆施泰因空军基地，并交由美国政府使用。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-同时，波兰也要求美国向其提供“具有相应作战能力的二手飞机”，并补充说华沙下一步“也准备确定购买飞机型号”。
 
-波兰政府还呼吁，拥有米格-29飞机的其他北约成员国将其飞机转移到美军基地，这些飞机最初是在1970年代由苏联制造的，乌克兰飞行员均受过驾驶苏式战机的训练。
-
-美国副国务卿维多利亚·纽兰在华盛顿的一个国会委员会上说：“我刚看到了波兰政府的公告，稍后我们将回应这一提议。”
-
-波兰政府的决定是在美国和波兰官员就华沙是否将其战斗机提供给乌克兰军方发表声明之后做出的。
-
-3月6日，美国国务卿布林肯曾表示，波兰已获准向乌克兰派遣战斗机。
-
-自2月24日俄罗斯入侵战争开始以来，乌克兰总统泽连斯基政府多次要求北约和美国派遣战斗机和其他武器，同时还呼吁设立禁飞区。北约首席和白宫官员表示，他们没有考虑设立禁飞区的要求，因为这意味着北约或美国的飞机会击落俄罗斯的飞机，双方开战。
-
-据参议院多数党领袖查克·舒默称，在周六与美国国会议员的电话会议上，泽连斯基重申乌克兰正在寻求军用飞机，他特别需要俄罗斯制造的飞机。
-
-周日俄罗斯国防部发出警告，任何允许乌克兰使用各自机场对俄罗斯资产进行攻击的国家都可被视为已卷入冲突。
-
-参考链接：[Poland to Send All MiG-29 Fighter Jets to US Base Amid Ukraine Conflict (theepochtimes.com)](https://www.theepochtimes.com/poland-to-send-all-mig-29-fighter-jets-to-us-base-amid-ukraine-conflict_4324640.html?utm_source=gettr)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

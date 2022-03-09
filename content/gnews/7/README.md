@@ -2,31 +2,46 @@
 ---
 
 
-## 美国宣布禁运俄罗斯能源
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2129272/)
+## 驰援乌克兰，波兰将所有米格-29战机部署到美军基地
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2129301/)
 
-#### 发布 / 2022年3月9日 6:58 AM
-采集：玫瑰新闻组
+#### 【雅典娜快讯】，紧贴时代脉博
 
-![美国总统拜登当地时间周二（3月8日）宣布，对俄罗斯能源实施禁运。（彭博社）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/2022-03/090322_news_biden.jpg?VersionId=9YdIVDhU4o9RTwXkFXDadCbkckWl.Hui&amp;itok=QqGvIHGI)美国总统拜登当地时间周二（3月8日）宣布，对俄罗斯能源实施禁运。（彭博社）
+翻译/编辑：文泓
 
-美国总统拜登当地时间周二（3月8日）宣布，对俄罗斯能源实施禁运。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-26.png)图片来源：DW & 雅典娜设计组
 
-据路透社报道，拜登宣布将禁止俄罗斯石油和其他能源进口美国，加大了对俄罗斯入侵乌克兰的制裁行动。
 
-拜登在白宫对记者说：“我们将对俄罗斯石油和天然气能源全面实施禁运。这意味着美国港口将不再接受俄罗斯石油进口。美国人民对（俄罗斯总统）普京的战争机器给予另一记重击。”
+当地时间3月8日波兰宣布，在俄乌冲突期间，他们决定将该国老式的米格-29战斗机部署到美军位于德国的拉姆施泰因空军基地。
 
-拜登说，美国在与世界各地盟友和伙伴密切协商后，作出上述决定。
+波兰外交部发布声明，经总统和政府协商后，相关部门立即着手无偿部署所有的米格-29战机到拉姆施泰因空军基地，并交由美国政府使用。
 
-他预测石油价格将因此宣布进一步上升，但誓言将竭尽所能帮助美国人民降低影响。
+同时，波兰也要求美国向其提供“具有相应作战能力的二手飞机”，并补充说华沙下一步“也准备确定购买飞机型号”。
 
-拜登同时还警告美国汽油公司不要借机牟利。
+波兰政府还呼吁，拥有米格-29飞机的其他北约成员国将其飞机转移到美军基地，这些飞机最初是在1970年代由苏联制造的，乌克兰飞行员均受过驾驶苏式战机的训练。
 
-新闻链接：
-[美国宣布禁运俄罗斯能源](https://www.zaobao.com.sg/realtime/world/story20220309-1250275)
+美国副国务卿维多利亚·纽兰在华盛顿的一个国会委员会上说：“我刚看到了波兰政府的公告，稍后我们将回应这一提议。”
 
-**审核校对：Barry Jack
-上传排版：V在途中**
+波兰政府的决定是在美国和波兰官员就华沙是否将其战斗机提供给乌克兰军方发表声明之后做出的。
+
+3月6日，美国国务卿布林肯曾表示，波兰已获准向乌克兰派遣战斗机。
+
+自2月24日俄罗斯入侵战争开始以来，乌克兰总统泽连斯基政府多次要求北约和美国派遣战斗机和其他武器，同时还呼吁设立禁飞区。北约首席和白宫官员表示，他们没有考虑设立禁飞区的要求，因为这意味着北约或美国的飞机会击落俄罗斯的飞机，双方开战。
+
+据参议院多数党领袖查克·舒默称，在周六与美国国会议员的电话会议上，泽连斯基重申乌克兰正在寻求军用飞机，他特别需要俄罗斯制造的飞机。
+
+周日俄罗斯国防部发出警告，任何允许乌克兰使用各自机场对俄罗斯资产进行攻击的国家都可被视为已卷入冲突。
+
+参考链接：[Poland to Send All MiG-29 Fighter Jets to US Base Amid Ukraine Conflict (theepochtimes.com)](https://www.theepochtimes.com/poland-to-send-all-mig-29-fighter-jets-to-us-base-amid-ukraine-conflict_4324640.html?utm_source=gettr)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
