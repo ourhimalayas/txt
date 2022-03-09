@@ -2,28 +2,22 @@
 ---
 
 
-## 中日财经爆|惠誉再砍俄罗斯主权评级 违约仅一步之遥
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2129667/)
+## 违反国际法！俄罗斯使用地雷在基辅附近炸死平民
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2129708/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6-1.jpg)[图片来源](https://pledgetimes.com/fitch-downgrades-russias-sovereign-rating-six-notches-to-b/)
-惠誉周二（3月8日）宣布再调降俄罗斯主权评级等六个级距，由已属垃圾等级的“B”进一步降至“C”，称由于制裁和贸易限制削弱了俄罗斯偿还债务的意愿，该国即将爆发债务违约。
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-792.png)[图片来源](https://afpbb.ismcdn.jp/mwimgs/8/3/810wm/img_83c535fbdb624d70bd9e4ae5ccb9a94d203495.jpg)
+据乌克兰监察员8日向法新社透露。在乌克兰首都基辅北郊切尔尼吉夫道路上，一个地雷在一辆行驶的汽车下爆炸，造成三名成人和儿童死亡，三人受伤。
 
-俄罗斯入侵乌克兰后遭到西方制裁，其金融市场出现剧烈震荡，引发外界对该国偿债能力和意愿的极大担忧。
+监察员柳德米拉·杰尼索娃称，这是自俄罗斯入侵乌克兰以来，首次有平民死于地雷。杰尼索万强调，国际法禁止对平民使用地雷进行杀伤。
 
-惠誉提到普京的总统令，可能会用卢布偿还特定国家债权人的外币主权债务。
+杰尼索万先生在Telegram 中解释说，在受损汽车行驶区域的道路上，地雷被稻草和垃圾覆盖。据说这些地雷是由俄罗斯军队安装的，但没有提供如何识别安装者的详细信息。
 
-惠誉评级中的“C ”仅比违约高出一个级距，使其与穆迪目前的给予的“Ca”评级一致。
+信息来源：[地雷で民間人3人死亡、子ども3人負傷 キエフ近郊](https://news.yahoo.co.jp/articles/727d037099a7588615d2a532a19309588d91f17e)
 
-惠誉在不到一周前取消了俄罗斯的投资级评级，将其评级从“BBB ”降至“B”级。穆迪和标普也下调了俄罗斯的主权评级。
-
-消息来源:
-
-[惠誉再度大砍俄罗斯主权评等 称即将爆发债务违约](https://cn.reuters.com/article/fitch-russia-rating-0308-tues-idCNKBS2L602T?il=0)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

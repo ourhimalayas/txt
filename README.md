@@ -15,116 +15,116 @@
 
 ---
 
-### [郭文贵精品视频-中共邪恶无底线救命信息通道被骇断](/content/gnews/1/README.md)
+### [辩鉴善恶智愚](/content/gnews/1/README.md)
+ ` 纽约香草山MOS03`
+
+### [乌国防部称瓦格纳主义者已经在乌境内被消灭](/content/gnews/2/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [危险！！！这就是俄国开始栽赃嫁祸的方式](/content/gnews/3/README.md)
+ ` 美国政要直译推`
+
+### [郭文贵精品视频-中共邪恶无底线救命信息通道被骇断](/content/gnews/4/README.md)
  ` cindy`
 
-### [乌克兰前沿每日报道](/content/gnews/2/README.md)
+### [乌克兰前沿每日报道](/content/gnews/5/README.md)
  ` 秘密翻译组-原创组`
 
-### [中国报告指美国实行种族灭绝 “旨在化解对中共侵犯新疆人权指责”](/content/gnews/3/README.md)
+### [中国报告指美国实行种族灭绝 “旨在化解对中共侵犯新疆人权指责”](/content/gnews/6/README.md)
  ` 波士顿五月花农场金融部`
 
-### [文•贵天成——文贵先生谈“孟建柱”（十八）](/content/gnews/4/README.md)
+### [文•贵天成——文贵先生谈“孟建柱”（十八）](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乌克兰人道救援！蓝莲花战友顺利登机、 奔赴前线！](/content/gnews/5/README.md)
+### [乌克兰人道救援！蓝莲花战友顺利登机、 奔赴前线！](/content/gnews/8/README.md)
  ` 蓝莲花农场`
 
-### [谁主导了八年抗战](/content/gnews/6/README.md)
+### [谁主导了八年抗战](/content/gnews/9/README.md)
  ` 历史组`
 
-### [文•贵天成——文贵先生谈“孟建柱”（十六）](/content/gnews/7/README.md)
+### [文•贵天成——文贵先生谈“孟建柱”（十六）](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [违反国际法！俄罗斯使用地雷在基辅附近炸死平民](/content/gnews/8/README.md)
+### [违反国际法！俄罗斯使用地雷在基辅附近炸死平民](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花深度报道┃新冷战系列二：中俄的同盟国](/content/gnews/9/README.md)
+### [樱花深度报道┃新冷战系列二：中俄的同盟国](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃大宗商品连续涨价对世界经济产生巨大影响](/content/gnews/10/README.md)
+### [中日财经爆┃大宗商品连续涨价对世界经济产生巨大影响](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|惠誉再砍俄罗斯主权评级 违约仅一步之遥](/content/gnews/11/README.md)
+### [中日财经爆|惠誉再砍俄罗斯主权评级 违约仅一步之遥](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [三八妇女节的那些女人](/content/gnews/12/README.md)
+### [三八妇女节的那些女人](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|镍价暴涨 中国青山集团面临爆仓将赔掉10年总利润](/content/gnews/13/README.md)
+### [中日财经爆|镍价暴涨 中国青山集团面临爆仓将赔掉10年总利润](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|美国宣布禁止进口俄罗斯石油 高油价都是普京的错](/content/gnews/14/README.md)
+### [中日财经爆|美国宣布禁止进口俄罗斯石油 高油价都是普京的错](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国去年至少6州政府遭中共黑客袭击](/content/gnews/15/README.md)
+### [美国去年至少6州政府遭中共黑客袭击](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [CIA局长在美国国会作证：普京决心统治乌克兰](/content/gnews/16/README.md)
+### [法新社：全球超过 600 万人死于中共病毒](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [法新社：全球超过 600 万人死于中共病毒](/content/gnews/17/README.md)
+### [郭文贵先生2022年3月8日盖特视频（9分25秒）全文字版](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生2022年3月8日盖特视频（9分25秒）全文字版](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文贵先生提醒战友，一定要注意安全](/content/gnews/19/README.md)
+### [文贵先生提醒战友，一定要注意安全](/content/gnews/21/README.md)
  ` 纽约香草山MOS02`
 
-### [乌克兰军歌荡气回肠！俄罗斯战歌忽悠青少年送死](/content/gnews/20/README.md)
+### [乌克兰军歌荡气回肠！俄罗斯战歌忽悠青少年送死](/content/gnews/22/README.md)
  ` 蓝莲花农场`
 
-### [中共阻挠法治基金乌克兰人道救援行动](/content/gnews/21/README.md)
+### [中共阻挠法治基金乌克兰人道救援行动](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [中共为更快杀死香港缩短接种毒疫苗间隔时间](/content/gnews/22/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年3月8日晚](/content/gnews/24/README.md)
+ ` 纽约香草山MOS01`
+
+### [中共为更快杀死香港缩短接种毒疫苗间隔时间](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [CDC隐瞒新冠关键数据](/content/gnews/23/README.md)
+### [CDC隐瞒新冠关键数据](/content/gnews/26/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [纽约CBS转播车与法治基金直播中心为邻](/content/gnews/24/README.md)
+### [纽约CBS转播车与法治基金直播中心为邻](/content/gnews/27/README.md)
  ` 纽约香草山MOS02`
 
-### [新西兰住院确诊患者中60%已接种中共病毒疫苗](/content/gnews/25/README.md)
+### [新西兰住院确诊患者中60%已接种中共病毒疫苗](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯入侵乌克兰：3月8日最新情况综述](/content/gnews/26/README.md)
- ` 波士顿五月花农场金融部`
-
-### [美宣布禁止俄罗斯石油进口 英国跟进](/content/gnews/27/README.md)
+### [美宣布禁止俄罗斯石油进口 英国跟进](/content/gnews/29/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [【快讯】乌克兰大救援：紧急包车撤离华人夫妇共8人](/content/gnews/28/README.md)
+### [【快讯】乌克兰大救援：紧急包车撤离华人夫妇共8人](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`
 
-### [新中国联邦救援团队前往波兰边境难民营建立新闻直播中心](/content/gnews/29/README.md)
+### [新中国联邦救援团队前往波兰边境难民营建立新闻直播中心](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [新中国联邦承担起了“国家保护责任”，96名乌克兰孩子成功被救出](/content/gnews/30/README.md)
+### [新中国联邦承担起了“国家保护责任”，96名乌克兰孩子成功被救出](/content/gnews/32/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [3/8/2022 文贵盖特：中共动用国家级力量黑掉了我们乌克兰救援行动的邮箱并禁止文贵在油管上传视频；作为唯一代表中国拯救乌克兰妇女儿童和中国同胞的新中国联邦，救人是我们的头等大事，我们要让世界区分开中共和中国人](/content/gnews/31/README.md)
+### [3/8/2022 文贵盖特：中共动用国家级力量黑掉了我们乌克兰救援行动的邮箱并禁止文贵在油管上传视频；作为唯一代表中国拯救乌克兰妇女儿童和中国同胞的新中国联邦，救人是我们的头等大事，我们要让世界区分开中共和中国人](/content/gnews/33/README.md)
  ` 秘密翻译组-北美组`
 
-### [乌克兰难民为点滴之恩感谢战友](/content/gnews/32/README.md)
+### [乌克兰难民为点滴之恩感谢战友](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【 #G时新闻 】欧盟正式开始审批乌克兰的加入申请](/content/gnews/33/README.md)
+### [【 #G时新闻 】欧盟正式开始审批乌克兰的加入申请](/content/gnews/35/README.md)
  ` G-时新闻`
 
-### [五月花简报（03/08/2022）](/content/gnews/34/README.md)
- ` mayflowertranslate`
-
-### [黑道治国 | 中共动用国家力量黑客掉新中国联邦乌克兰救援行动Email](/content/gnews/35/README.md)
+### [黑道治国 | 中共动用国家力量黑客掉新中国联邦乌克兰救援行动Email](/content/gnews/36/README.md)
  ` YALUN 亚伦`
 
-### [接种疫苗的人可能已经患上了疫苗获得性免疫缺陷综合征(一)](/content/gnews/36/README.md)
+### [接种疫苗的人可能已经患上了疫苗获得性免疫缺陷综合征(一)](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [新中国联邦的乌克兰救援行动 吸引世界媒体的关注](/content/gnews/37/README.md)
- ` 纽约香草山MOS02`
 
 ### [世界足球先生莱万多夫斯基终止与中共华为合作](/content/gnews/38/README.md)
  ` 日本東京方舟農場`
