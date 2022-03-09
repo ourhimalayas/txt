@@ -2,37 +2,26 @@
 ---
 
 
-## 乌克兰大救援：是谁黑客并篡改法治基金救援邮箱？
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2132146/)
+## 战争犯子要和平！俄罗斯呼吁与美国恢复类似冷战时期的“和平共处”关系
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2132213/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/03/The-Vanguard-Group.jpg)
+撰稿：东京樱花团/Ob
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/战争犯子要和平！俄罗斯呼吁与美国恢复类似冷战时期的和平共处关系.png)
 
-**乌克兰救援任务的电子邮件被中共黑客和篡改**
+国际文传电讯社(Ifax)周二（3月8日）援引俄罗斯外交部的话说，俄罗斯和美国应该回到类似冷战时期的“和平共处”原则。
 
-3 月 8 日，郭文贵先生在盖特视频中透露，我们与世界分享的乌克兰救援任务二维码和电子邮件被中共攻击和篡改。
+国际文传电讯社报导说，俄外交部还表示，对于与美国进行坦率和相互尊重的对话持开放态度，两国恢复正常关系的希望依然存在。
 
-郭先生在视频中说：“中共的恐惧已经达到了这样的程度，他们入侵了我们向球发送救援信息的电子邮件黑掉。昨天我的 YouTube 帐户禁止了视频上传功能。我的两部手机被黑客入侵并瘫痪”。
+这是一个多么荒唐的时代，老鼠竟然让猫当伴娘。在社交媒体如此发达的今天，在识字率这么高的今天，我们仍然看到无处不在的荒唐和逻辑。流氓总是一副无赖的嘴脸，赚了便宜还卖乖，当了婊子还要立牌坊，“啥都要双赢”的思维逻辑，就当别人是傻子?战争犯就是战争犯，侵略就是侵略，怎么也不可能因为你的巧舌如簧而改变。
 
-法治基金会的志愿者每天秉承“无私献奉”的新中国联邦精神，每天救助着素不相识的妇女、儿童和中国同胞。由于 NFSC 的救援行动在 Getter 上直播，全世界都可以观看。自NFSC出现在乌克兰的第一天起，包括媒体在内的国际救援组织和机构就一直密切关注着它。
+信息来源：
 
-中共害怕NFSC在乌克兰救援的国际影响，“共产党动用了最大的国家力量黑客掉我们的救援邮箱，他们害怕我们去救人。”郭文贵指出了共产党黑客邮箱的原因。
+[俄罗斯呼吁与美国恢复类似冷战时期的“和平共处”关系–Ifax](https://cn.reuters.com/article/CNTopGenNews/idCNKBS2L511G?irpc=932)
 
-法治基金义工小王子说，这个邮箱是通过Godaddy注册的。根据温哥华杨帆农场战友Forfree提供的线索，发现在cnn的一篇文章（[https://money.cnn.com/quote/sharehold…](https://money.cnn.com/quote/shareholders/shareholders.html?symb=GDDY&amp;subView=institutional)）上可以看到godaddy的最大股东是vanguard group（先锋集团）！
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-897.png)
-大家从辉瑞集团的分析中已经早就熟悉了这个先锋集团。它和共产党深度勾兑。郭先生在2021年8月24号就爆料“先锋集团是中国国药的投资者控制的”，和韩正儿子的42公司极其密切。先锋集团就是所有的辉瑞制药、所有的科兴疫苗、所有的中国国药的疫苗的其中投资者股东。先锋集团和江家、鼎晖、比尔盖茨、黑石关系紧密。
-
-Forfree说：“这次godaddy恶意停用我们的救援网站和邮箱，背后估计就是CCP通过先锋下的黑手。godaddy看来本来就有很多害人的黑历史，和CCP有扯不清的关系”。
-
-新闻来源：
-
-[Forfree getter](https://gettr.com/comment/crs7hi63da)
-
-[CNN Business](https://money.cnn.com/quote/shareholders/shareholders.html?symb=GDDY&amp;subView=institutional)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

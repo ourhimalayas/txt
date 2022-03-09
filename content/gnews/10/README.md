@@ -2,24 +2,16 @@
 ---
 
 
-## 【快讯】大救援行动：梅迪卡救援中心直播新闻站首播
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2132109/)
+## 中共网络信息超限战已经犯下反人类罪
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2132130/)
 
-整撰：奔跑吧黄小鸭
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-43.jpg)图片来自：https://gettr.com/
-波兰时间3月9日上午11点左右，救援团队在波兰边境梅迪卡营救中心搭建了新中国联邦的新闻直播站，主播依然是Nicole，新闻站的首播为全球华人带来了大救援前线最真实的现场报道。
+文贵大直播20220309
 
-梅迪卡是波兰边境的小镇，现在已成为很大的难民营救中心，每天有大量从乌克兰逃离出来的妇女和儿童涌到这里，波兰的气温基本在零度上下5度左右，这里有很多救援帐篷，供刚刚逃离乌克兰的难民临时的歇息和充饥。
+撰稿：顽童（纽伦堡正义）文仁（77功成）
 
-这里也是国际红十字会等一些国际公益组织提供人道援助服务的汇聚地，很多国际媒体和记者们在这里搭建临时新闻站点。新中国联邦在距离边境大概100米、50米处分别有2个帐篷，直播新闻站就在其中，新中国联邦人是唯一出现在这里的华人面孔。
-
-Nicole现场报道，据不完全统计，**自大救援行动启动以来至今，新中国联邦的救援巴士已成功撤离了100多位中国同胞（其中包括一直没得到及时救助的中国留学生），350多位乌克兰人、美国人等国际友人**。
-
-其中有一项跨国营救活动，是在法治基金与波兰政府、乌克兰政府及西班牙某公益基金一起合作，援助百名师生从乌克兰利沃夫到波兰克拉科夫的撤离，并安排波兰的住宿和送往西班牙巴塞罗那的全程接应和费用。刚刚得知的消息是，**98名乌克兰战地儿童、老师和西班牙公益组织的律师等共113人已顺利地抵达目的地**。
-
-参考链接：
-
-[乌克兰国际人道救援 —新中国联邦 (gettr.com)](https://gettr.com/streaming/pz0aqdd74c)
+美工：长颈鹿（雅典娜）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-6.png)
+*发布：Theodosia*
 
  
 

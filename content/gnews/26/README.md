@@ -2,25 +2,40 @@
 ---
 
 
-## 救援前线随笔
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2131464/)
+## 美国小李一行到达救援前线
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2131722/)
 
-意大利罗马达芬奇农场：文涛
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/BD61E57D-AD46-423D-91F9-6D3D16630316.jpg)
+作者: 银河系农场—骄子
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/F49679D4-2745-4786-9770-3FA92FE08F12.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-50.png)
+当地时间3月7日晚，美国小李一行十余人到达波兰克拉科夫救援大本营。此行经过24+4小时的颠簸，集结于此。战友相见分外亲切，大家互相拥抱，有的用家乡话聊天问候，有的认出彼此是一起在SEC门口战斗过的面孔。旅途虽远，但热诚的问候和暖心的笑容一扫旅程的乏劳。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-8.30.29-PM.png)图片来源: Gettr (@pangushixun)
+大本营所在的这个酒店条件在本地来说是档次较高的。酒店坐落在一个边陲小城，且在战争时期，餐食尽管没那么丰富，但战友表示已经非常好了。
+
+战友大卫在交谈中说，因为这是一个国际大救援，我们根本没有经验。但是经过这么几天的磨合，在大巴接人，酒店接应方面已经顺利完善了流程，一些细节方面还有待改善。
+
+这是新中国联邦到达救援前线的第五批团队，不同的救援团队到达以后，稍作休息后，会即刻奔赴不同的救援地点。
+
+参考链接: [https://gettr.com/post/pyq34v03b1](https://gettr.com/post/pyq34v03b1)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
+
+编辑/校对/发稿: 卡夫卡的甲壳虫
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6D2728ED-6CB0-4D57-82C8-E3B169493D05.jpg)
-
-
-2022年3月8日天气没有好转还刮起风来，估计晚上还会下雪![❄️](https://discord.com/assets/18154d25de86594ea07571e133b92e05.svg)出来的人还是很多，沉重的行囊蹒跚的脚步，不时传来孩子的哭声。旁边一位老奶奶注视着远方，眼神中透露出焦虑与无奈。老奶奶说“那是家的方向，那里还有亲人”！我不知道用什么方式去安慰她，伏下身将头埋在她的胸前，奶奶抚摸着我的头，泪水顺着脸颊流了下来，那一刻任何的语言都显得苍白无力。那一刻让我懂得“爱”可以包容一切。没有谁愿意背井离乡过着颠沛流离的生活，更没有谁希望战争降临到自己国土，战争中受伤最深的永远是孩子、妇女和老人。我把老人冰冷的手放在自己的脸颊想用我唯一的一点热量温暖老人冰冷的心，老人慢慢的将手抽回，替我擦去眼角的泪水，我们虽然没有说一句话但她用眼神告诉我“放心吧，孩子！一切都回过去”奶奶愿你早日于家人团聚，重回故土，享受晚年！人类不需要相互伤害，愿人类永远和平！
-
-图片提供：文涛
-
-编辑发布： Shuizhuyu
 
 
 

@@ -2,25 +2,42 @@
 ---
 
 
-## 2022年3月9日澳洲股市简报
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2132198/)
+## 有声|北京残奥委会开幕式残奥委会主席反战言论 遭中共审查
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132249/)
 
-**撰稿：云彩**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
-美国和英国将禁止俄罗斯石油和能源进口，澳大利亚股市收盘大幅上涨。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+不久前有记者控诉在北京冬奥期间，中共要求记者必须将所采访的内容都先交由中共审核，且对于采访内容都要以中共事先准备好的答案作为最终回答，毫无采访的自由可言。4日，在北京残奥委会开幕式上，中共企图再透过媒体的操弄，藉以操控信息的争议又见一桩。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/id13624611-000_324G4B3-600x400-1.jpg)
+据外媒报导，国际残奥委员会（International Paralympic Committee，简称IPC）主席安德鲁‧帕森斯（Andrew Parsons）4日在北京残奥委会开幕式发表演讲时提到——根据联合国针对奥运会和残奥会期间的奥林匹克休战协议决议，是必须遵守，不可违反的。他显然是指俄罗斯入侵乌克兰事件。同时他也强调「21 世纪是对话和外交的时代，而不是战争和仇恨的时代。」等反战言论，疑似遭到中共官媒CCTV在直播过程中刻意操弄，让主席帕森斯谴责战争时的言论部分，不但没有被译成中文，还刻意降低当时的音量，导致帕森斯的言论无法被听到。残奥委会对中共官媒刻意打压言论自由的做法感到不满。
 
-ASX 200 指数上涨 1%,收盘 7,053点。澳交所普通股指数上涨 1.1% ，收盘7,331。其中科技、电信、非必需消费品和银行股领涨。
+《体育超级大国：内部人士对中国追求最好的看法》一书作者马克‧德雷尔（Mark Dreyer）将这一系列事件描述为（中共）预先计划好的控制信息尝试。
 
-美国基准石油西德克萨斯中质原油上涨 1.9% 至 126.10 美元/桶。全球基准布伦特原油飙升 7.7%至131.308 美元/桶。
+且据BBC报导，英超及德甲计划在本周末的比赛中，透过集体行动表达对乌克兰的支持，因此中共转播版权持有者已告知两家联赛，中共本周末将不会转播本轮赛事。
 
-虽然疫情有所缓解，但是物价上涨ˎ银行即将加息ˎ汽油价格上涨ˎ洪水灾害和乌克兰战争等坏消息让3月份消费者信心指数下降4.2% 。
+基于上述，不难看出中共想方设法阻止，不愿人民听到和了解事实的真相，突显了中共对于俄罗斯入侵乌克兰行动抱持观望、不谴责的态度。报导中还提到，相对于在俄乌战争前，中共曾多次吹捧奥林匹克休战是为了和平，并谴责美国等国家不支持该决议是「与奥林匹克大家庭作对」的说法来看，中共的两套标准和诚信劣行可见一斑。
 
-参考资料：
 
-[ASX closes higher on broad gains, oil jumps on US and UK ban of Russian oil](https://www.abc.net.au/news/2022-03-09/markets-wall-street-dow-jones-asx-oil-biden-ukraine-russia-uk-ga/100894058)
 
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
+文字版原文：[北京残奥委会开幕式残奥委会主席反战言论 遭中共审查](https://gnews.org/zh-hans/2123224/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
