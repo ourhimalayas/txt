@@ -2,38 +2,26 @@
 ---
 
 
-## 英国停止进口俄石油，年底前有望找到替代供应源
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2129555/)
+## CIA局长在美国国会作证：普京决心统治乌克兰
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2129634/)
 
-#### 整理：围剿维尼熊
-编辑：朝花夕拾
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-63.png)[图片链接](https://jp.reuters.com/article/usa-biden-cia-idJPKBN29G1K6)
+3月8日，美国中央情报局（CIA）局长伯恩斯在众议院情报问题特别委员会的听证会上说，普京意在霸占和控制乌克兰，未来几周战斗将更加激烈。
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+在听证会上伯恩斯先生透露，他分析了俄罗斯方面的一些误判，指出普京大部分的行动都是无效的。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-30.jpg)图片来源：雅典娜设计组
+普京认为乌克兰很弱，强大的俄罗斯军队可以迅速夺取决定性的胜利。但是两天内攻下基辅的目标，即使在近两个星期后也未能完成。由于战争形势越来越不乐观，普京急于快速结束战争而无视平民的伤亡。
 
+普京错误认为，俄罗斯将能够承受经济制裁，理由是法国总统大选和德国新总理上任使得法德两国无暇有效应对。
 
-根据中央社3月9日报道，英国政府8日宣布，将在年底前分阶段停止进口俄罗斯石油。英国官员指出，全球石油市场竞争激烈，英国企业有望在年底前找到替代供应源。
+孤家寡人的普京一意孤行，终将是拿破仑和希特勒的宿命。
 
-此外，英国政府将成立特别的工作小组，协助企业在过渡期找到替代的石油来源。
+信息源：[「プーチン氏はウクライナ支配を決意」　CIA長官が米議会証言](https://news.yahoo.co.jp/articles/eff0d9e68f51b2f7234f76c2f0aa322030259d06)
 
-英国政府强调，由于石油出口收入在俄罗斯联邦税收的占比高达17%，进口禁令加强了对俄罗斯的制裁，为其入侵乌克兰付出巨大代价。
-
-商务部新闻稿表示，英国8%石油来自俄罗斯，但英国也是重要的原油和石油产品生产国。除俄罗斯，英国也从荷兰、瑞典、比利时、沙特阿拉伯和美国进口石油。
-
-商务部还指出，俄罗斯石油已受国际市场排挤，近70%产品找不到买主。在竞争激烈的全球石油市场，俄罗斯很容易被其他出口国取代。
-
-参考链接：[https://www.cna.com.tw/news/aopl/202203090014.aspx](https://www.cna.com.tw/news/aopl/202203090014.aspx)
-
-*发布：*Frank2021
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

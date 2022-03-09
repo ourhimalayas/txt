@@ -2,48 +2,60 @@
 ---
 
 
-## 新中国联邦的乌克兰救援行动 吸引世界媒体的关注
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2128688/)
+## 黑道治国 | 中共动用国家力量黑客掉新中国联邦乌克兰救援行动Email
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2128865/)
 
-作者：纽约香草山健身部-Ivy001
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-45.png)
-俄罗斯入侵乌克兰已经进入第十三天，前世界目光聚焦于乌克兰。波兰边境由于大量乌克兰难民涌入，已经成为难民救援中心，和全球媒体云集之地。正在波兰边境展开救援行动的新中国联邦，为世界各个媒体所关注。
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2751.jpg)
+3月8日，郭文贵先生于Gettr视频中透露，中共出于对新中国联邦乌克兰无偿救援的恐惧，再次集结国家级黑客力量对救援Email地址进行攻击篡改。而后，郭先生于自己的Gettr公布了救援计划和新的Email联系方式。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1_RImxj85v_C3u6xAOGcs52g.jpeg)图片来源have8
 
-日本时间3月8日，日本唯一的国有电视台NHK，派记者现场报道了乌克兰的救援现况，和新中国联邦的救援点，还有亮眼的蓝色联邦七芒星旗，就在记者身后飘扬。虽然，日本记者没有提及我们新中国联邦，但是，整个报道一直可以看见清晰的新中国联邦旗在飘扬。。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-2.jpg)
+战火纷飞的乌克兰救援本来就困难重重，不仅要躲避枪林弹雨的袭击，还要时刻与恶意破坏救援行动的中共搏斗、打信息战。现在全世界各界人士、各国媒体和国际救援组织都在关注和赞赏新中国联邦在乌克兰前线的救援行动，唯一代表中国人的中国团体在拯救素未谋面的中国同胞、乌克兰的妇女和孩子、以及其他国际人士。现在中共出于对救援行动的无限恐惧与嫉妒，动用了国家级别的力量把新中国联邦此次乌克兰救援行动的Email地址和扫描二维码黑客掉，紧接着用那些Email地址实施嫁祸或者欺骗的犯罪。真是应验了那句老话，中共干好事不行，干坏事天下第一。
 
-同日，前线Nicole 发回的消息，她采访了一位来自德国的法籍战地记者Emma。Emma在采访中表示，她知道新中国联邦，支持新中国联邦“消灭中国共产党”的主张。并且，她看到我们新中国联邦在乌克兰救援的高效和不计回报的付出，非常感动，认为我们新中国联邦人是热爱和平善良的人，不等同于中国共产党。Emma最后还和Nicole一起喊出：“Take down the CCP!”
+要知道，所有新中国联邦在前线所做的一切，正是为了拯救困于乌克兰的中国同胞和其他国际人士，也是在拯救全中国人民、海外同胞的国际形象，更是在拯救华人孩子的未来。感谢所有前线救援人员和正在赶赴前线救援人员的付出，以及感谢为了救援行动而付出的所有人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/bf8438731408b60f88add86c97561f40.jpg)图片来源Miles Guo Gettr
 
-前线Nicole 还发回消息，来自纽约，全球第三大联播网——CBS的直播车就在我们的直播中心旁边，在过去的两天时间里，他们一直都在关注我们的救援行动。明天，他们的早间新闻主播Tony会到现场, 来跟纽约总部连线直播。
 
-正如郭文贵先生所述：世界上尚没有一个国家像新中国联邦这样去前线救援！随着乌克兰救援行动的展开，我们救出越来越多的人，新中国联邦就越来越为人所知，新中国联邦将走向越来越广阔的世界舞台！
+中共的打救援电话骚扰和国家级黑客等一切下三滥的符合中共本性的肮脏手段，并不能阻挡我们救援的决心和救援行动。
 
-新闻链接：
+为应对乌克兰-波兰边境日益增多的撤离人员和难民，NFSC和法治基金（ROLF）宣布2022年3月15日免费专机的暂定行程，专机航线如下，有可能根据情况做出调整：
 
-[https://gettr.com/post/pyuqvv79a5](https://gettr.com/post/pyuqvv79a5)
+1. 从波兰-热舒夫（Rzeszow）机场出发，经加拿大多伦多，前往美国纽约。
 
-[https://gettr.com/post/pyuzpydcd6](https://gettr.com/post/pyuzpydcd6)
+2. 从波兰-热舒夫（Rzeszow）机场出发，直飞东南亚某国（待定）。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-23.jpg)
+NFSC和ROLF提供**免费专机**，以帮助那些受俄罗斯非法入侵影响的人员，这是我们支持在被共产主义和专制政府统治的国家里争取自由的使命的一部分。
 
-编辑/校对/发稿：遍地开花
+如果您需要搭乘我们的专机，请联系我们最新24小时服务热线。所有乘客必须满足其目的地的签证要求。如有需要，NFSC和ROLF将在出发前提供免费食宿。
 
-**更多资讯，更多关注**
+由于中共控制了邮件服务商，意图破坏我们乌克兰救援行动，之前公布的网站和邮箱已被强行关闭，更新后的24小时紧急救援客服联系方式如下：
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+24小时客服热线（电话/短信）：
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
++1 720-657-6776 或
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
++1 719-224-4232 或
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
++48 508-532-712 或
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-46.png)
++48 508-531-518
 
+Telegram： t.me/UkraineRescue
+
+盖特： [https://gettr.com/user/UkraineRescue](https://gettr.com/user/UkraineRescue)
+
+邮箱： [\[email protected\]](/cdn-cgi/l/email-protection#0b5e60796a62656e596e78687e6e3b3a4b7b79647f6465666a626725686466)
+
+或 [\[email protected\]](/cdn-cgi/l/email-protection#d481bfa6b5bdbab186b1a7b7a1b1e4e694a4a6bba0bbbab9b5bdb8fab7bbb9)
+
+NFSC
+
+法治基金
+
+2022年3月8日
+
+原文盖特链接：[https://gettr.com/post/pywg9uf691](https://gettr.com/post/pywg9uf691)
 
  
 
