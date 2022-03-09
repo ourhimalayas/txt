@@ -2,41 +2,43 @@
 ---
 
 
-## 让领导先走！乌军方疑利用信息战再毙俄军一高级军官
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2129437/)
+## 解读一张漫画，“国际妇女权利日：3 月 8 日，三八妇女节”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2129481/)
 
-作者：波士顿五月花背靠背（frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-9.42.55-AM.png)图片来源：互联网
-乌克兰国防部情报局周一（3月7日）发布信息称，在哈尔科夫附近的战斗中，俄罗斯中央军区第41集团军少将、参谋长、第一副司令员维塔利·格拉西莫夫（Vitaly Petrovich Gerasimov）阵亡。多名俄罗斯高级军官也被打死打伤。
+2022-03-08
 
-如果属实，这是俄罗斯普京上月24日宣布入侵乌克兰以来，又一损失一名高级指挥人员。【1】
+编译和评论：16626、沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/03/HL8454I0Y5ZIC6C5O9.png)屏幕截图：[La caricature de Julien Dufour](https://www.journaldemontreal.com/2022/03/08/la-caricature-de-julien-dufour)
+## 国际妇女权利日
 
-乌情报局还吐槽俄罗斯的俄罗斯军队通信。
+题为《国际妇女权利日》漫画显示，吸引世界媒体的关注的救援行动开始了，不过接受救援的多是妇女和儿童。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/O@D8MZZD92QQBDMCBV.png)屏幕截图：[La caricature de Julien Dufour](https://www.journaldemontreal.com/2022/03/08/la-caricature-de-julien-dufour)
+2022年3月8日文贵在盖特中指出（[https://gettr.com/post/pyvi5n6af7](https://gettr.com/post/pyvi5n6af7) ）
 
-据法新社报道，新闻调查机构贝灵猫（Bellingcat）网站表示，他们已通过一个俄罗斯消息源确认了侵略乌克兰的俄军将领格拉西莫夫将军的死亡。据该调查机构执行董事格罗泽夫在推特上说，在电话中，你听到驻乌克兰的俄联邦安全局（FSB）官员问他的上司是否可以通过安全的Era系统进行通话。其上司说Era不工作了”。【2】
+**致以中国三八妇女节的礼物**
 
-**第一位被乌军方击毙的俄罗斯高级军官是****苏霍维斯基少将**
+3月8号我们所有的战友应该都看到了，七哥在我们的盖特上，我发出的致以中国三八妇女节的礼物，《锁链梦》这个歌我相信，每个人听到的时候都会受不了，我们要做的是什么？用这个音乐推动世界的和平，维护人类的尊严，特别是维护我们中国女人的安全和尊严。
 
-据雅虎新闻3月3日报道，乌克兰军方宣布击毙了一名俄军少将、中央军区第41军团副指挥官苏霍维斯基（Andrei Sukhovetskiy）【3】
+## 我们要救所有乌克兰的妇女和孩子
 
-乌克兰抗击俄罗斯入侵，非常成功利用信息网络战对入侵者造成巨大伤害，严重打击俄罗斯士气。
+现在全世界的所有的各方，包括媒体、国际救援组织，都在关注着新中国联邦在前线救人，只有一个群体代表中国人的新中国联邦，在拯救素未谋面的、从不认识的，乌克兰妇女和孩子和中国同胞，我们不图任何回报，不要任何利益，不要您任何认可，但是我们要对得住良心，这个时候我们要救中国同胞，我们要救所有乌克兰的妇女和孩子，让世界知道共产党不等同于中国人，中国人不能被中国共产党所有的人所代表。
 
-此前乌克兰国家安全局征召国际黑客加入IT军团发起信息网络战。乌克兰国家安全局2 月28日在推特发出的一条推文说，“网络战线现已开放！帮助乌克兰网络专家入侵占领者的平台……这一次，你可以和我们一起在网络战线上战斗。”【4】
+## 让世界知道共产党不等同于中国人
 
-参考链接：
+## 中国人不能被中国共产党所有的人所代表
 
-【1】[俄军少将在哈尔科夫附近被清算](https://gur.gov.ua/content/pid-kharkovom-likvidovano-heneralmaiora-rosiiskoi-armii.html)
+参考资料
 
-【2】[俄罗斯加密通讯系统在乌克兰“破功”](https://www.rfi.fr/cn/%25E5%259B%25BD%25E9%2599%2585/20220308-%25E4%25BF%2584%25E7%25BD%2597%25E6%2596%25AF%25E5%258A%25A0%25E5%25AF%2586%25E9%2580%259A%25E8%25AE%25AF%25E7%25B3%25BB%25E7%25BB%259F%25E5%259C%25A8%25E4%25B9%258C%25E5%2585%258B%25E5%2585%25B0-%25E7%25A0%25B4%25E5%258A%259F)
+1. [https://gettr.com/post/pyvi5n6af7](https://gettr.com/post/pyvi5n6af7)
+2. [La caricature de Julien Dufour](https://www.journaldemontreal.com/2022/03/08/la-caricature-de-julien-dufour)
 
-【3】[乌克兰捷报！传击毙俄军副指挥官](https://tw.news.yahoo.com/%25E7%2583%258F%25E5%2585%258B%25E8%2598%25AD%25E6%258D%25B7%25E5%25A0%25B1-%25E5%2582%25B3%25E6%2593%258A%25E6%2596%2583%25E4%25BF%2584%25E8%25BB%258D%25E5%2589%25AF%25E6%258C%2587%25E6%258F%25AE%25E5%25AE%2598-140022347.html)
 
-【4】[“和我们一起在网络战线战斗” 乌克兰征召全球网军 反击俄罗斯](https://www.voachinese.com/a/ukraine-it-army-20220228/6464220.html)
+编辑：LILY
+发布：肥鯮
 
-* * *
-
-*编辑&发布：Vicky*
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
