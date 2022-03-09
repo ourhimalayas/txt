@@ -15,62 +15,62 @@
 
 ---
 
-### [【快讯】乌克兰大救援：紧急包车撤离华人夫妇共8人](/content/gnews/1/README.md)
+### [英国将与美国同步禁止俄罗斯石油进口](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美宣布禁止俄罗斯石油进口 英国跟进](/content/gnews/2/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [【快讯】乌克兰大救援：紧急包车撤离华人夫妇共8人](/content/gnews/3/README.md)
  ` 秘密翻译组-原创组`
 
-### [驰援乌克兰，波兰将所有米格-29战机部署到美军基地](/content/gnews/2/README.md)
+### [驰援乌克兰，波兰将所有米格-29战机部署到美军基地](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在40.703 HDO](/content/gnews/3/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在40.703 HDO](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [警惕中共在海外挑起排华事端](/content/gnews/4/README.md)
+### [警惕中共在海外挑起排华事端](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [美国宣布禁运俄罗斯能源](/content/gnews/5/README.md)
+### [美国宣布禁运俄罗斯能源](/content/gnews/7/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [新中国联邦救援团队前往波兰边境难民营建立新闻直播中心](/content/gnews/6/README.md)
+### [新中国联邦救援团队前往波兰边境难民营建立新闻直播中心](/content/gnews/8/README.md)
  ` NFSC News`
 
-### [新中国联邦承担起了“国家保护责任”，96名乌克兰孩子成功被救出](/content/gnews/7/README.md)
+### [新中国联邦承担起了“国家保护责任”，96名乌克兰孩子成功被救出](/content/gnews/9/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美媒：英国将禁运俄罗斯石油](/content/gnews/8/README.md)
+### [美媒：英国将禁运俄罗斯石油](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [郭先生盖特03.08:中共再次“动用了国家最大的力量”黑客和篡改了救援乌克兰难民的邮箱地址](/content/gnews/9/README.md)
+### [郭先生盖特03.08:中共再次“动用了国家最大的力量”黑客和篡改了救援乌克兰难民的邮箱地址](/content/gnews/11/README.md)
  ` 秘密翻译组-原创组`
 
-### [阿根廷桑坦德银行将提供以农产品为基础的代币担保贷款](/content/gnews/10/README.md)
- ` 纽约香草山MOS02`
-
-### [中共十三届人大五次会议政府报告的谎言、真相与恐惧](/content/gnews/11/README.md)
+### [中共十三届人大五次会议政府报告的谎言、真相与恐惧](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [反击俄罗斯入侵 美国宣布禁止从俄进口石油](/content/gnews/12/README.md)
+### [反击俄罗斯入侵 美国宣布禁止从俄进口石油](/content/gnews/13/README.md)
  ` 蓝莲花农场`
 
-### [今日盖特大V推荐 — 布丽吉特·加布里埃尔（Brigitte Gabriel）](/content/gnews/13/README.md)
+### [今日盖特大V推荐 — 布丽吉特·加布里埃尔（Brigitte Gabriel）](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [3/8/2022 文贵盖特：中共动用国家级力量黑掉了我们乌克兰救援行动的邮箱并禁止文贵在油管上传视频；作为唯一代表中国拯救乌克兰妇女儿童和中国同胞的新中国联邦，救人是我们的头等大事，我们要让世界区分开中共和中国人](/content/gnews/14/README.md)
+### [3/8/2022 文贵盖特：中共动用国家级力量黑掉了我们乌克兰救援行动的邮箱并禁止文贵在油管上传视频；作为唯一代表中国拯救乌克兰妇女儿童和中国同胞的新中国联邦，救人是我们的头等大事，我们要让世界区分开中共和中国人](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [乌克兰难民为点滴之恩感谢战友](/content/gnews/15/README.md)
+### [乌克兰难民为点滴之恩感谢战友](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【 #G时新闻 】欧盟正式开始审批乌克兰的加入申请](/content/gnews/16/README.md)
+### [【 #G时新闻 】欧盟正式开始审批乌克兰的加入申请](/content/gnews/17/README.md)
  ` G-时新闻`
 
-### [今日盖特大V推荐 — 反叛新闻 （Rebel News）](/content/gnews/17/README.md)
+### [今日盖特大V推荐 — 反叛新闻 （Rebel News）](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【 #G时新闻 】星链系统为乌克兰反击俄军提供技术帮助](/content/gnews/18/README.md)
+### [【 #G时新闻 】星链系统为乌克兰反击俄军提供技术帮助](/content/gnews/19/README.md)
  ` G-时新闻`
-
-### [如果海外资金被冻结，俄罗斯威胁要没收俄罗斯人的储蓄](/content/gnews/19/README.md)
- ` 纽约香草山MOS02`
 
 ### [【 #G时新闻 】美国将允许北约成员国在必要时向乌克兰派遣战斗机](/content/gnews/20/README.md)
  ` G-时新闻`
@@ -114,11 +114,11 @@
 ### [麦当劳将关闭在俄罗斯的所有餐厅](/content/gnews/33/README.md)
  ` Shuizhuyu`
 
-### [法制基金天使营救乌克兰战区儿童](/content/gnews/34/README.md)
- ` 扬帆枫叶快讯`
-
-### [解读一张漫画，“普京的最后一张王牌”](/content/gnews/35/README.md)
+### [解读一张漫画，“普京的最后一张王牌”](/content/gnews/34/README.md)
  ` 温哥华圆成农场🇨🇦`
+
+### [大巴驶向巴塞罗那](/content/gnews/35/README.md)
+ ` NFSC News`
 
 ### [新中国联邦成功救出96名乌克兰儿童](/content/gnews/36/README.md)
  ` NFSC News`
