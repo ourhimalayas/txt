@@ -2,35 +2,38 @@
 ---
 
 
-## 澳大利亚，可怕的洪水，但未接种疫苗的志愿者被禁止提供帮助
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2133210/)
+## 日国防大臣岸信夫会见乌克兰驻日大使
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2133287/)
 
-#### 翻译                         意大利达芬奇农场                      小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-09-alle-18.52.52.png)图片来源：eventiavversinews.it
-在澳大利亚新南威尔士州遭受为期一周的暴雨和洪水肆虐后，WYONG SES (民防) 通过其脸书页面向社区发出呼吁， 要求志愿者帮助为绝望的居民填沙袋。
+**编译：文舞两道**
 
-这确实是个自然灾害， 被定义为“每百年”发生一次的气侯现象，这意味着整个社区的救援努力应该是理所当然的。
+3月9日，日本国防部长岸信夫就俄罗斯的军事入侵问题会见了乌克兰驻日本大使科桑斯基，岸大臣介绍说自卫队已向乌克兰提供了防弹衣和其他物资，并表示将继续提供更多的援助。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/03D7814C-A6B4-4CD0-AACA-FAFC46440F76.jpeg)照片来源：https://www3.nhk.or.jp/
+岸大臣对因俄罗斯的侵略而丧生乌克兰的人们，表达了深切的悲伤和问候。
 
-但事情并非如此。
+岸大臣还谴责了俄罗斯的军事入侵是对国际法的严重违反，并重申一贯支持乌克兰的主权和领土完整，与其他国家联合起来，维护国际秩序。
 
-令当地SES工作人员感到沮丧的是，新南威尔士州政府和SES领导层决定只允许社区中完全接种疫苗的成员干填满沙袋的工作。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-09-alle-19.27.47.png)
-新南威尔士州受洪水影响地区的当地居民已经将目标对准了社交媒体， 表达了他们的怀疑和愤慨， 即在他们的社区发生真正危机的时候，尽管他们愿意并且有能力， 但他们却不被允许提供帮助。
+3月8日晚，日本派出了一架装满防弹衣和头盔的自卫队飞机援助乌克兰，承诺日本会继续提供更多的援助。
 
-他们写道：“ 受到自然灾害袭击的人似乎并不介意未接种疫苗的人在他们需要时会帮助他们”。
+对此，科桑斯基大使表示感谢，他说：”我谨代表乌克兰人民，对日本的大力支持表示衷心的感谢”。
 
-“ 志愿者很少， 如果有人准备好了， 我不在乎他们是否接种过疫苗，”一位当地市民说。
+科桑斯基大使告诉记者：”我们估计俄罗斯的侵略会进一步加剧，他们可能正试图攻击首都基辅，我们需要对乌克兰各种形式的支持”。
 
-“ 这不会让我担心，” 另一个说，“我不在乎，” 第三个说。
+**消息来源：**
 
-随着未来几天和几周内一些地区更加糟糕的天气还会发生在同样的地区， 现在的重点是新南威尔士州的领导层计划如何应对这种情况。
+[https://www3.nhk.or.jp/news/html/20220309/k10013521841000.html?utm\_int=news-international\_contents\_list-items\_007](https://www3.nhk.or.jp/news/html/20220309/k10013521841000.html?utm_int=news-international_contents_list-items_007%20\h)
 
-正如ADF特种部队前军官Stuart Gadenne告诉我的那样，由于这些规定，他没被批准参加SES的救援工作， 州政府必须彻底重新考虑这一决定并采取不同的方法。
+**编辑：LILY**
 
-原文链接： [https://www.eventiavversinews.it/australia-terribile-alluvione-ma-ai-volontari-non-vaccinati-e-vietato-aiutare-video/](https://www.eventiavversinews.it/australia-terribile-alluvione-ma-ai-volontari-non-vaccinati-e-vietato-aiutare-video/)
+**发布：歪桑**
 
-编辑、上传： Xiao  baige
+20220309
 
+20220309
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

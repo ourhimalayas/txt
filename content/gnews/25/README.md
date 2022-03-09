@@ -2,31 +2,36 @@
 ---
 
 
-## Coinbase表明支持对俄制裁，封锁2.5万个俄罗斯加密货币地址
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2133269/)
+## 物流瘫痪，俄罗斯遭痛击（中）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2133443/)
 
-作者：波士顿五月花 – 文雀
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-Coinbase法务长格雷瓦尔表示，制裁对国家安全及阻吓非法侵略至为关键，Coinbase承诺遵守当局颁布各项经济制裁，并重申基于加密货币可追踪原则，可能会使打击非法账户变得更加容易。不过，Coinbase并没有进一步透露涉事帐户被关闭的具体时间，以及有多少帐户与当前的制裁直接有关。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-27.jpg)
-早前，Coinbase、币安及Kraken等加密货币巨头先前回绝了乌克兰政府要求，完全封锁俄罗斯账户。币安行政总裁赵长鹏给出的理由是，加密货币市场规模不足以让俄罗斯这样的大国用来突破经济封锁。因此，到目前为止，还是有相当一部分的俄罗斯公民暂时没有被封锁的风险。
+翻译：宫米叶
 
-参考链接：[Coinbase says it’s blocking 25,000 Russia-linked crypto addresses](https://www.theverge.com/2022/3/7/22965605/coinbase-russian-sanctions-address-blocking＞)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-3-1.jpg)图片来源：cn.nikkei.com
 
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+【接上篇：[物流瘫痪，俄罗斯遭痛击（上）](https://gnews.org/zh-hans/2133418/)】
 
-总编/编辑/审核：天滅中共 
-校对/发稿：Hetangyuese
+根据船舶信息公司MarineTraffic的分析，包括国内海运，新罗西斯克4日的进出港的船舶数为113艘，与2月后2周的平均143艘相比有所减少。
 
-**更多资讯，更多关注**
+由于经济制裁，航运界最大的地中海邮轮公司(瑞士)和马士基公司(丹麦)停止了连接俄罗斯的货运业务。除符拉迪沃斯托克港外，日本三家航运公司共同出资的“海洋网络快递(ONE)”也停止了。事实上，海参崴港作为目前能通往俄罗斯的唯一海路，集装箱贸易量也只占总数的两成。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+海参崴是西伯利亚铁路的终点站。如果黑海和波罗的海的货运停止的话，应该会退而求其次转而使用铁路维持运输。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+分析美国1日在中途车站之一的伯力货场上空从planet waves拍摄的卫星照片，可以发现与2月2日相比货车数量有所减少。这可能表明，由于卢布贬值等经济混乱，产品无法交易导致物流出现问题。
+
+东京海上日动火灾保险等各保险公司将俄罗斯黑海沿岸的主要港口指定为危险度较高的“保外水域”，通过该水域的货主必须另行购买船舶战争保险才能得到补偿。保险金与赔偿金“根据战况的不同，也可以设想是通常的5倍”。也有些航运公司预计不会盈利，停止航行。
+
+【接下篇：[物流瘫痪，俄罗斯遭痛击（下）](https://gnews.org/zh-hans/2133486/)】
+
+**参考资料：**[nikkei][物流まひ、ロシア痛撃](https://www.nikkei.com/article/DGKKZO58832450W2A300C2MM8000/?unlock=1)
+
+* * *
+
+*审核：BryanW*
+*校对：天天*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-6.jpeg)
 
  
 

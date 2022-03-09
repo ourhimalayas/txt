@@ -2,35 +2,20 @@
 ---
 
 
-## Hcoin To the Moon上线97天第34次位列新加坡iTunes摇滚音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2133808/)
+## 特鲁多渎职滥权民意尽失
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2133996/)
 
-3/9/2022 郭文贵先生的歌曲Hcoin To the Moon上线97天第34次位列新加坡iTunes摇滚音乐榜首
+加拿大温哥华扬帆农场    平民正道
+
+据加拿大[国家邮报]3月6日报道，最新民调显示，由于特鲁多对[自由车队]反疫苗护照抗议活动的拙劣对策，近半数加拿大人对其自由党政府极为不满，并已逐渐失去民意的支持。
+
+报道称，目前只有约20%的人对当局作出正面评价，而大部分受访者则认为：自由党政府越权采取的[紧急状态法]，不仅未给特鲁多带来任何政治资本，反而制造了社会矛盾。
+
+此外，特鲁多妄称所有和平抗议者都是“厌恶女性的极端种族主义者”谬论，再次重创了其领导人形象，也激化了局势。著名[里德研究所]主席对此表示：特鲁多一改以往巧言令色的圆滑形象，肆无忌惮地开始使用政治暴力，以期实现其极权专政的梦想。
 
 * * *
 
-[【PDF 下载】Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_102.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
-
-
-[【PDF 下载】Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+编辑： 平民正道    发布：平民正道
 
  
 

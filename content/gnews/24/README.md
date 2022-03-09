@@ -2,18 +2,16 @@
 ---
 
 
-## 2022年3月9日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2133271/)
+## 五月花简报（03/09/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2133460/)
 
-制作：DT新闻组
+编辑：波士顿五月花—-冲天一怒
 
-**中共的杀戮还在继续……**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/B804E4B5-9D3D-40F7-9A5E-12C6F3005A80.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0120.jpg)
+*发布：思澈*
 
-发稿：信心的选择
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-6.jpeg)
 
  
 

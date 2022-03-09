@@ -2,124 +2,36 @@
 ---
 
 
-## 2022/03/09 文贵先生直播重点大纲
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2133667/)
+## Hcoin To the Moon上线97天第34次位列新加坡iTunes摇滚音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2133808/)
 
-[![](https://express.adobe.com/page/1gX3t1DW7bDfr/images/db2fc74b-a1e9-4881-8d12-657d07338dd1.png?asset_id=c9527862-1092-4f22-8f4e-25293eddb3cd&amp;img_etag=%22fe37e87a6777396e809b9e83a154b1a8%22&amp;size=2560)](https://express.adobe.com/page/1gX3t1DW7bDfr/images/db2fc74b-a1e9-4881-8d12-657d07338dd1.png?asset_id=c9527862-1092-4f22-8f4e-25293eddb3cd&amp;img_etag=%22fe37e87a6777396e809b9e83a154b1a8%22&amp;size=1024)
-[**GETTR视频链接**](https://www.gettr.com/streaming/pz1ocoe7cb)
+3/9/2022 郭文贵先生的歌曲Hcoin To the Moon上线97天第34次位列新加坡iTunes摇滚音乐榜首
 
-❖ 共产党对爆料革命发动全面疯狂攻击，新中国联邦乌克兰救援团成世界焦点
+* * *
 
-（GETTR：00:19:01—00:22:05）
+[【PDF 下载】Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-过去的几十天，可以说是我身心俱累的一段时间，心理面对极大挑战。PAG官司共产党发动猛烈攻击让七哥个人破产；母亲的冥诞三周年；锁链女《铁索梦》的虐心演绎；俄乌战争爆发，大批战友派到前线救援。这些事情都交织在一起，但依然未能阻挡我们战斗的脚步，我们新中国联邦的前线救援团队成了世界最亮眼的人道主义救援团体，这也是全世界第一次黄皮肤的华人无差别地救助西方人。
+* * *
 
-❖ 新中国联邦人道救助打脸中共无耻撒谎（GETTR：00:22:08—00:23:38）
-
-新中国联邦救出乌克兰九十多个孩子，对西方的震撼前所未有。我们救出的几百个人有一百多个华人同胞，但共产党七天前就宣布所有华人都被救走。无知小粉红不知道人类灾难已来临，只有新中国联邦人在世界上为中国人呐喊。谎言，在中共国管用，但在世界上肯定不会一直管用。
-
-❖ 人类进入前所未有的大变局，“无皇有主”时代正式到来（GETTR：00:23:41—00:25:49）
-
-内容：人类已经进入了一个前所未有的大变局，一个“无皇有主”的时代将正式到来。没有皇帝，以民为主。世界上再也不会有今天的俄罗斯，也不会有今天的欧洲板块，更不会有今天所谓的“大中国”。整个中国会被解体，台湾、香港、新疆……都将成为独立的国，而且这不会是外国势力干涉，而是中国人自愿的。加拿大会摆脱美国而独立，澳大利亚会崛起。
-
-❖ 欧洲将以乌克兰为大中心重新建立大欧洲板块（GETTR：00:25:48—00:27:59）
-
-整个世界的变局，欧洲不再分东欧、西欧、中东欧……欧洲将以乌克兰为大中心重新建立大欧洲板块。俄乌战争，乌克兰奠定了人类缺乏的正义和勇气，汇集了全世界年轻的有良知的人。乌克兰将会以高科技为中心发展出新的能源中心，代替天然气和石油。未来的通信、网络、科技、太空……都会以乌克兰和乌克兰人为中心，建立欧洲大中心。数字经济、数字货币、数字安全，都会在乌克兰发展，这也是人类新的未来。
-
-❖ 七哥爆料五年所遭受的困难太大了（GETTR：00:45:01—00:49:10）
-
-七哥五年能和战友们保持联系并且还能出镜，这背后的难度太大了。共产党造假视频；多少次让船失控；让飞机失控；无数起七哥周围人各种账号被关闭，爆料革命的艰难是大家无法想象的。推特、YouTube数据被篡改；盖特被黑掉5800万到8000万的有效登记客户；GTV五年受到虚假报案就有上万起。
-
-❖ 共产党阻止救人，不是谋杀，而是屠杀！（GETTR：00:49:38—00:55:10）
-
-共产党把铁锁女说成是从大秦朝就存在的普遍现象，还说俄罗斯打乌克兰是为了维护人类的正义而开战，他们说的这些谎言一定会遭受上天诅咒的。共产党在阻止救人，已经不是谋杀，而是屠杀。在前线如果扫码没有了，那不是道德问题，而是生死问题。爆料革命走到今天已经看出媒体太重要了。我们唱的歌是呐喊；是呼吁；是在到处救人。歌声就是我们爆料革命队伍的探照灯，共产党却把这盏照亮黑暗的智慧之灯给你灭掉，也不让任何你要救的人听到你的声音。七哥的手机和电脑都是受监控的，但七哥从来不怕。上传的歌曲也受到各种阻碍。共产党用一国之重器来打压我们。
-
-❖ 我们的救援得到了很多认可（GETTR：00:55:11—00:58:26）
-
-只要七哥登陆Facebook，不论用谁的电脑注册都会被关闭。在谷歌上七哥的个人信息曾打破过600亿次的搜索，但会一夜归零。在中国历史上黄皮肤人第一次救白皮肤人，并且无利、无欲、无求。中国人也是第一次走在世界的最前面救人，现在太多人和我说，他们不知道中国人还会干这事。昨天英国的前首相和我说，我做了一个了不起的工作。他们脑子里根深蒂固的就是懦弱的中国人、自私的中国人、冷漠的中国人。
-
-❖ 大卫介绍救援现场的情况，我们做的是最好的（GETTR：01:01:45—01:03:48）
-[![](https://express.adobe.com/page/1gX3t1DW7bDfr/images/60ea4174-568d-4e96-96b7-34a0bf1c60a2.png?asset_id=681e18f4-5c6e-4b4a-ac71-0dc0fac088d5&amp;img_etag=%2287ea188dea2603672b93ae822cae858a%22&amp;size=1024)](https://express.adobe.com/page/1gX3t1DW7bDfr/images/60ea4174-568d-4e96-96b7-34a0bf1c60a2.png?asset_id=681e18f4-5c6e-4b4a-ac71-0dc0fac088d5&amp;img_etag=%2287ea188dea2603672b93ae822cae858a%22&amp;size=1024)
-内容：现在现场有媒体记者、有救援人员、有当地人员、有警察官员。我们新中国联邦战友的精神风貌、救援物资、救援力量和决心都展现在全世界面前了。目前有一个50平米的帐篷平台，后面还会搭建200多平米的帐篷，其中也包括了媒体接待区，工作人员的安全活动区，这些可以给难民提供很好的休息区和食物。文科的团队很辛苦，做了很多工作，得到了西方援助机构同仁的尊重和认可。
-
-❖ 大卫体会到我们华人被国际社会的尊重（GETTR：01:12:57—01:13:57）
-
-这是一次国际人道主义危机，在目前没有看到一个主权国家来救援。只有我们新中国联邦，从道义上，经济能力上，和现场的效果和影响力真的是国际水平，佩服七哥的战略安排。我们也学到了很多，最重要的是有一个机会和国际社会交流，从来没有感受到我们华人这么被尊重。
-
-❖ 通过这次大救援我们要展现给世界人民中国人的新形象（GETTR：01:27:53—01:29:24）
-
-大卫兄弟和前线战友们的相互配合，做得太好了，要的就是这个结果。我们一定要分功明确，集体作战，这次新中国联邦让全世界看到中国人可以干事，可以团结。更重要的是过去大家都是在网上见，这回是面对面的交流。我们要培养出和寻找回来中国人最善良的、内心里最独有的文化。我们是善良和平的民族；我们是一个为真不破的民族；我们是非常尊重人的民族；我们是很有良知和人性的民族。你们在一起要展示给世界人民互敬、互亲、互爱，更重要的是不要有小我。
-
-❖ 俄乌战争导致世界地缘政治板块的巨变（GETTR：01:43:42—01:45:25）
-
-欧洲依靠俄罗斯石油、天然气的时代已经过去，人类很快将进入太空、新能源、高科技、数字化的时代。这次俄乌战争后，乌克兰所表现出的勇气和精神会取代俄国和欧洲其他国家，会成为欧洲真正的中心。亚洲的中心，既不会是邪恶的共产党，也不会是懦弱的日本，那会是谁呢，咱们拭目以待。中国在彻底摆脱共产主义魔掌后，会解体，但分而不离，形成联邦的形式，比如新疆、西藏、广东、香港、台湾、东北等将彻底独立，但分而不离。这片土地和14亿人的人心都需要一个彻底的治愈。
-
-❖ 中共最后的苟延残喘，穷凶极恶（GETTR：01:45:27—01:46:37）
-
-最凶险的时刻还没有到来，从三点底到四月份，共产党先会在中东发动区域性能源战争，然后是台湾，最后的结果只有一个，就是把自己作死。中国共产党只有两个选择，跟俄翻脸，他翻不起，习会被内部做掉；跟美国翻脸，他也翻不起，那中共怎么办，只能不断发动区域性战争和放毒。
-
-❖ 国内的形势日益严峻，HPay是战乱发生时安全救命的重要方法
-
-（GETTR：01:46:39—01:54:18）
-
-共产党刚刚在国内大肆宣传自己已经有了两年到两年半的储备粮食，一共35亿斤粮食。这个总量相当于全球粮食的300%，为什么又在撒谎？他们在恐惧些什么？好似1958年的粮食危机又一次要重现了，然后还有战乱、疫情和最恐怖的疫苗灾难，这次会出现多少皑皑的白骨，让人不敢想象。国内的战争发生时，最大的问题就是通讯和支付方式。中共的金融系统会被制裁，就像现在的俄罗斯一样。Hpay是唯一稳定可靠的支付交易系统，无成本、无风险，只要有Hpay 、一部手机和一个翻墙软件就可以在战乱中获得一线生机。交通、食物、药物等等基本的物资都可以通过Hpay得到满足。
-
-❖ 救援时刻（02:00:02—02:01:14）
-
-这就是我们力所能及和正在做，也将继续做和越做越多的事情。在这关键时刻，我们推出了与整个世界与国家完全相反的歌《锁链梦》。有关铁链女的故事，它彻底打破了中共的所有谣言，“依法治国”；“中国妇女是半边天”；“中国是世界上最安全的社会”；“最伟大的共产党领导的安全的、自由的、有民主、有信仰的社会”；“中国女性世界地位最高”。从这首歌也看出中国有男人、有正义，我始终相信90%的中共党员是好人，只是被共产党操控洗脑了。
-
-❖ 《铁锁梦》的选择和意义（GETTR：02:01:14—02:11:27）
-[![](https://express.adobe.com/page/1gX3t1DW7bDfr/images/bdaf87d9-15e7-45f1-8ebf-a95473e2f5c2.png?asset_id=6556dc03-c042-49af-a7aa-e2a95948d503&amp;img_etag=%227b3e65d14072af2a060e0aad092ca2c3%22&amp;size=1024)](https://express.adobe.com/page/1gX3t1DW7bDfr/images/bdaf87d9-15e7-45f1-8ebf-a95473e2f5c2.png?asset_id=6556dc03-c042-49af-a7aa-e2a95948d503&amp;img_etag=%227b3e65d14072af2a060e0aad092ca2c3%22&amp;size=1024)
-由于网络信息时代的到来，这个事件迅速发酵。它是中国几百万几千万女性的一闷棍变成性奴的代表。惨状令任何有良知的人无法接受。海外伪类无人替她说话，新中国联邦救人也无人与我们站在一起。任何人在此事上有党派和民族之分都是猪狗不如的。万佛万神护佑的梅艳芳女士的《女人花》，唱出了中国女人的凄凉与无奈。《女人花》是中国男人的失败；铁锁女是中国男人的悲哀；男人欺凌霸占女人，令我很心痛《女人花》这首歌。经我们的改编真正有了它的价值，让我看到了，我母亲、杨改兰所有中国女人的命运。这首歌与正义信仰有关，让人找到人性和良知，明白人与神的关系，明白人应该怎么活着。
-
-❖ 七哥对创作《铁锁梦》的体验（GETTR：02:25:36—02:29:38）
-
-内容：我每晚喝两次安眠药，每次睡不超过两小时要频繁开会。许多大事、好事，给你们挣钱的事。半夜唐平发来歌的样板，我唱后痛哭流涕。音乐是为别人唱的，不是为钱为名而唱的。唱出你心中的所有。音乐女神的核心，就是向大地唱出心中无穷无尽的大自然的密码和力量。唐平找到了密码，歌词是威廉王的神来之笔，一切荣耀归于上帝。
-
-❖ 威廉王谈创作《锁链梦》的感受（02:29:48—02:37:49）
-
-如果创作音乐的人一下子就能让听者从心底被打动，那才是一个真正成功的音乐。每首歌都必须有含义、有逻辑。七哥才是这首歌真正的制作人，最后的画龙点睛之笔绝了，一下子就表达到了骨髓、升华了。一个创作者无论创作什么，如果连自己都不能感动，那就无法感动任何人。七哥创作的最后一句达到了能沟通天地的神来之笔。
-
-❖ TEX谈对歌曲《锁链梦》的感受（02:39:21—02:46:31）
-
-音乐就是一个非常诚实的东西。七哥对这首歌的感情的投放是让人震撼的。一个人内在感情的外放和表达跟用音乐诠释出别人的感情之间是有一段距离的。“牙齿全拔落，铁锁已斑驳，这就是我的一生。”这三句太震撼了，就这么三句，一个人的一辈子就这么毁掉了。历史上传唱度非常高的歌曲并不是在音乐上特别完美的作品，但是它带出来的意境的完美表现出了人类的本质。当一首歌能够让人与人之间有心灵上的碰撞和沟通，那就是绝唱。
-
-❖ PPT：《从中国女性的悲惨命运看中共是套在人类头上的锁链》（02:48:16—02:55:12）
-[![](https://express.adobe.com/page/1gX3t1DW7bDfr/images/bbaf0494-a247-49ca-80b8-44bdeff44169.png?asset_id=093751b6-6b21-417c-a6cb-c5d798daf251&amp;img_etag=%22ea756940133f39a31e0ea370c7319da2%22&amp;size=1024)](https://express.adobe.com/page/1gX3t1DW7bDfr/images/bbaf0494-a247-49ca-80b8-44bdeff44169.png?asset_id=093751b6-6b21-417c-a6cb-c5d798daf251&amp;img_etag=%22ea756940133f39a31e0ea370c7319da2%22&amp;size=1024)
-❖ 音乐是人与人之间的语言（03:00:05—03:00:32）
-
-音乐，我们重新以新的角度来看，我认为音乐是打开人与人之间的隔膜。语言、种族、地域的密码，只有找到感觉对上密码，就是找到锁匙，谁都可以听得懂，可以感受到。这种感受就像频率一样是可以收到讯号的。
-
-❖ 中国人被共产党在精神上牢牢地锁着（03:15:21—03:16:54）
-
-内容：中国人被锁在了精神的锁上。中国男人还被中国的处女文化束缚着，被共产党劳劳地锁着。男人为了找处女强奸自己的亲人，中国每时每刻都在遭受被强奸的折磨。当年宋庆龄告诉身边的人，一生最错误的事情就是相信了共产党，中国已经邪恶到不能再邪恶了。
-
-❖ 战友们要不惜代价去把《铁锁梦》这首歌传播到国内去（03:18:02—03:19:45）
-
-如果这首歌还不能让你醒来，那你真的已经不是人了。战友们要想尽办法不惜一切代价去将这首歌传播到国内去。不要被中国的三·八妇女节所蒙骗，一个站不起来的民族，永远是懦夫。
-
-❖ 共产党会有更疯狂的行动（03:27:26—03:31:21）
-
-共产党会真正开始行动，习看到普京现况不会害怕，相反他看到希望，希望欧美出现奸细，从中得利。俄罗斯横扫乌克兰，他进台湾。他看到美国是最大受益者，民主世界再容不下普和习。他的目标就是中美一起治理地球，两大国关系开始恢复。认为欧美供应链没有中共国不行，当普京出事，他会踢走俄罗斯所有东西。这前提是世界石油能源，他会挑起能源战争，打垮世界经济，然后侵略台湾。这场乌克兰的代理战争，美国的高科技、电子战、通讯战占据了绝对优势，但共产党会玩得更狠，但死得也很快。
-
-❖ 三件事要做好准备（03:31:31—03:32:47）
-
-1. 喜联储在我们的捧场下，会有很多好消息。
-2. 新的媒体平台，在两周后会有更多奇迹。
-3. 所有疫苗制药厂会被人类大审判。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_102.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
 
 
-共产党被制裁的结果比俄罗斯还夸张，新中国联邦人是各个民族信赖的，我们就是希望、阳光、未来。
+[【PDF 下载】Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-9-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*听写：* *风云007、文评、万物归一、阿甘、雅慧、trustguo、乐禧禧* *| 校对：trustguo* *| Page：我是球大哥*
-[![](https://express.adobe.com/page/1gX3t1DW7bDfr/images/6f7d1e61-4a08-4822-8ef2-ebfe30c3fee0.jpg?asset_id=885950a2-4f24-4fda-a943-7478a4ed841d&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/1gX3t1DW7bDfr/images/6f7d1e61-4a08-4822-8ef2-ebfe30c3fee0.jpg?asset_id=885950a2-4f24-4fda-a943-7478a4ed841d&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

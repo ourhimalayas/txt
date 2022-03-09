@@ -2,33 +2,34 @@
 ---
 
 
-## 有声|中兴通讯面临违反美国缓刑条例的听证会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2133106/)
+## 乌克兰称来自52个国家的2万多名志愿者报名参加战斗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2133265/)
 
-配音：香草山教育部 – 百香果
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+作者：纽约香草山教育部 – Naughty(文行**)**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+据外媒3月6日报道，乌克兰外长库列巴表示，来自 52 个国家的2万多名志愿者已经报名，自愿参与到新成立的国际军团中，为乌克兰作战。不过，他没有透露有多少志愿者已经抵达乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-25.jpg)
+上周，乌克兰总统泽连斯基公开邀请“世界公民”加入乌克兰国防，并取消对外国战士的签证要求，反响很大，乌克兰收到了大量的申请。 库列巴在6日的晚上的电视讲话中说，“今天全世界都站在乌克兰一边，不仅在言辞上，而且在行动上，” 考虑到有些国家禁止本国公民为其他国家作战，库列巴没有就志愿者的国籍做进一步说明。
 
+参考链接：
+1. [20,000 foreign volunteers have signed up to fight in Ukraine: officials](https://nypost.com/2022/03/06/20k-foreign-volunteers-signed-up-to-fight-in-ukraine-officials/)
+2. [Ukraine says 20,000 volunteers from 52 countries sign up to fight](https://www.timesofisrael.com/liveblog_entry/ukraine-says-20000-volunteers-from-52-countries-sign-up-to-fight/)
 
-3月5日，国外媒体报道，中共中兴通讯即将于3月14日面临一项新指控，指控认为，它违反了向伊朗非法运输美国技术的认罪缓刑条例。
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-2017年，中共中兴通讯违反美国法律，非法向伊朗和朝鲜出售美国技术，中兴认罪并缴纳了8.92亿美元的罚款。当时中兴方承诺接受三年缓刑条例，实施企业合规计划，设立监督机制。但在2018年，美国商务部发现中兴撒谎，随即禁止中兴与美国开展业务，此后中兴又缴纳了10亿美元，再次同意接受为期十年的缓刑条例。
-
-3月14日的法庭指控，同样和中兴撒谎有关。起诉书中写道，中兴非法将中国公民带到新泽西中兴通讯工作，用的是美国专为佐治亚理工学院设定的工作和学习用的J-1签证，涉嫌签证欺诈。
-
-文字版原文：[中兴通讯面临违反美国缓刑条例的听证会](https://gnews.org/zh-hans/2118122/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+总编/编辑/审核：天滅中共/飞虹
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

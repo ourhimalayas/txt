@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 10:29 PM (UTC)`
+
+3/9/2022 Miles Guo: Here are the three major events coming next -  1) There will be a lot of good news for the Himalaya Coin; 2) our new media platform will bring about more miracles; and 3) vaccine manufacturers like Pfizer will be brought to justice by the entire humanity. The CCP will be subject to more severe sanctions than Russia. Citizens of the New Federal State of China will be respected by the whole world.<br/><br/>3/9/2022 文贵直播：接下来的三件大事 - 1) 喜币会有很多好消息; 2) 新媒体平台会诞生更多奇迹；3) 辉瑞等疫苗厂商会被全人类审判；中共将受到比俄罗斯更大的制裁；新中国联邦人将得到全世界的尊重<br/>
+![img](https://media.gettr.com/group40/getter/2022/03/09/22/ac1a1be7-c8e0-a143-83f3-5975f956f01d/out.jpg)
+
+---
+
 `@miles 3/9/2022 10:16 PM (UTC)`
 
 3/9/2022 Miles Guo: The dilemma of Russia's invasion of Ukraine is intensifying the CCP’s ambition to confront the West; the CCP will wage energy and regional wars in the Middle East and elsewhere between late March and April this year; Taiwan is still in grave danger; why the CCP has stored up grains for 2.5 year supply?<br/><br/>3/9/2022 文贵直播：俄乌战争困境加剧中共对抗西方的野心；中共将在三月底到四月之间，在中东和其他地区发动能源和区域性战争，台湾依然深处危机; 中共为什么要储备两年半的粮食？<br/>
@@ -147,13 +154,6 @@ Due to the Chinese Communist Party manipulating our email service provider with 
 
 ❤️❤️❤️The International Humanitarian Rescue Operation of the Rule of Law Foundation and the New Federal State of China #NFSCrescue #ROLFrescue #CCP≠Chinese<br/><br/>🙏🙏🙏Three rescue buses with a total of nearly 200 people were safely evacuated from the Ukrainian battlefield on March 7, 2022 <br/><br/>The true feelings from the members of the Whistleblower Movement and the New Federal State of China to save people cannot be stopped, neither by the Communist Party nor anyone.<br/><br/>💥💥💥If you have family to be rescued in #Ukraine , here is the 24-Hour Emergency Rescue Support Team Contact: <br/>💌💌💌Email: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com <br/>☎️☎️☎️Phone (Call or Text): <br/>+1 720-657-6776 OR <br/>+1 719-224-4232 OR<br/>+48 508-532-712 OR <br/>+48 508-531-518
 ![img](https://media.gettr.com/group50/origin/2022/03/09/00/2af7e663-6a8a-faf9-be9d-765f5fbba057/out.jpg)
-
----
-
-`@miles 3/9/2022 12:10 AM (UTC)`
-
-2022.03.08 NFSC News  Remembering Those Who Are Still Suffering； / NFSC’s Spanish Farm’s Efforts in Rescuing the 96 Ukrainian Children
-![img](https://media.gettr.com/group7/origin/2022/03/09/00/e4f2b2f9-9400-22ce-b581-cb7d33e633de/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

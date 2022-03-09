@@ -2,31 +2,37 @@
 ---
 
 
-## 英国承诺提供 1 亿美元帮助维持乌克兰政府运转
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2133264/)
+## 新中国联邦法治基金为乌难民提供切实的物资援助
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2133376/)
 
-作者：纽约香草山教育部 – Naughty(文行**)**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒3月6日报道，英国首相办公室表示，英国将通过世界银行向乌克兰提供 1 亿美元援助，以维持乌克兰国家核心职能的运转并减轻俄罗斯入侵造成的财政压力。 英国希望通过提供防御性军事援助、再次主张对克里姆林宫实施更严厉的制裁，以及提供财政支持等措施，寻求在国际社会应对俄乌危机中发挥核心作用。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-24.jpg)
-不过，仍有很多声音批评约翰逊政府的制裁过于缓慢，同时，难民计划也令人失望。 英国当局表示，除了已经承诺的 2.9095 亿美元之外，最新一轮的资助可用于支付乌克兰公共部门工人的工资，支付养老金和社会保障金。 这笔资金将通过世界银行多方捐助者信托基金支付，该基金旨在加快对乌克兰的捐款，并已被其他一些国家使用。
+**整理：文晋、大甜甜
+编辑：Candy**
 
-参考链接：[Britain pledges $100 million to help keep Ukrainian state running](https://www.reuters.com/world/uk/britain-pledges-100-mln-help-keep-ukrainian-state-running-2022-03-06/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/波兰现场.png)
 
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-总编/编辑/审核：天滅中共/飞虹
-校对/发稿：Hetangyuese
+美东时间3月9日上午，在文贵大直播中连线在波兰现场援救乌克兰难民的大卫先生，他向大家介绍了现场的情况：
 
-**更多资讯，更多关注**
+我们为了给难民更好的服务，真正感受到被救援助的力量，就在刚才说的开辟了250平米，有媒体区，关键是有休息区，让他们能在这吃一顿热饭，大家可以看到他们走过来。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+乌克兰这个民族真的值得我们尊重，蒙受了这样大的灾难，但是你看他们的眼神里， 留着那种坚定，那种自信，还有那种团结，那种Keep calm， Carry On，就是英国二战时候经常说的一句名言。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+我特别希望我们中华同胞，台湾、香港同胞，我们有爆料革命、有新中国联邦、有法治基金，我们走过来这5年爆料革命的艰辛历程，我们应该成长、成熟，让我们坚定不再被共产党欺骗，不再被共产党所迫。有新中国联邦和爆料革命，我们什么都可以做到！
+
+看看我们今天实现的这个金融体系，媒体体系，国际声誉，国际信誉，我们都可以做到。这次国际援救也是展示我们新中国联邦实力和国际形象的一个绝好机会。我就来这几天，我切身感受到了这种人与人之间， 华人和我们身上的一种使命，我以咱们新中国联邦的每一位战友为骄傲！
+
+接下来我们会把这个帐篷连在一起，留一个安全通道，所以还在和很多专业公司联系，后面会越来越好。我们也会有团队轮班的来到这个卡点进行建设。这就是我们给大家呈现的唯真不破，只说事，事上见！
+
+资料来源：2022.3.9GETTR文贵大直播
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

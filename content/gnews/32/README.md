@@ -2,49 +2,32 @@
 ---
 
 
-## 拜登将发布关于数字货币的行政命令
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2132952/)
+## 英国承诺提供 1 亿美元帮助维持乌克兰政府运转
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2133264/)
 
-翻译：wenwu
+作者：纽约香草山教育部 – Naughty(文行**)**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+外媒3月6日报道，英国首相办公室表示，英国将通过世界银行向乌克兰提供 1 亿美元援助，以维持乌克兰国家核心职能的运转并减轻俄罗斯入侵造成的财政压力。 英国希望通过提供防御性军事援助、再次主张对克里姆林宫实施更严厉的制裁，以及提供财政支持等措施，寻求在国际社会应对俄乌危机中发挥核心作用。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-24.jpg)
+不过，仍有很多声音批评约翰逊政府的制裁过于缓慢，同时，难民计划也令人失望。 英国当局表示，除了已经承诺的 2.9095 亿美元之外，最新一轮的资助可用于支付乌克兰公共部门工人的工资，支付养老金和社会保障金。 这笔资金将通过世界银行多方捐助者信托基金支付，该基金旨在加快对乌克兰的捐款，并已被其他一些国家使用。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-908.png)图片来源：nypost.com
+参考链接：[Britain pledges $100 million to help keep Ukrainian state running](https://www.reuters.com/world/uk/britain-pledges-100-mln-help-keep-ukrainian-state-running-2022-03-06/)
 
-拜登总统预计将在本周签署一项关于数字货币的行政命令，这将标志着向监管数字货币的交易方式迈出了第一步。
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-此举是由于政府官员在最近几周对俄罗斯利用数字货币来规避针对其入侵乌克兰的严厉制裁的影响而表示担忧。这些制裁使卢布跌至历史低点，并关闭了该国的股票市场。
+总编/编辑/审核：天滅中共/飞虹
+校对/发稿：Hetangyuese
 
-两位熟悉这一过程的人士说，关于数字货币的行政命令预计将在本周发布，而且在战争之前就已经开始了。这两个人都以匿名的方式发言，以预览该命令。
+**更多资讯，更多关注**
 
-该命令预计将描述：包括财政部在内的政府机构需要做什么来制定关于数字货币的政策和法规；预计它将包括要求国务院确保美国的数字货币法律与美国盟友的法律相一致；它将要求金融稳定监督委员会——来负责监测美国金融系统的稳定性——也就是关于研究非法金融问题。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-此外，该命令将探索新的中央银行数字货币的可能性。美联储在1月份发布了一份关于央行数字货币为主题的文件，探讨了美国支持的数字货币的风险和好处。可见，数字货币将在未来几年内成为美国经济的一部分。
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-虽然美国官员淡化了数字货币对俄罗斯逃避制裁能力的重要性，但它仍然是一个问题。
-
-财政部长珍妮特·耶伦（Janet Yellen）上周说：“我们将继续研究制裁的运作方式，并评估该制裁是否存在漏洞，我们有可能解决这些问题。我经常听到有人提到（这漏洞是）数字货币，这也是一个需要关注的通道。”
-
-一位不愿透露姓名的美国高级政府官员说，总统的国家安全团队已经在关注莫斯科可能试图利用和创建空壳公司和替代性金融机构，来规避制裁。
-
-在拜登政府试图确保对俄罗斯的制裁产生最大影响的过程中，数字货币是拜登政府正在寻求支持的几个领域之一。这位官员说，过去在伊朗和委内瑞拉逃避制裁的经验为拜登政府提供了参考。预计在未来几天和几周内还将公布额外的出口管制和新的制裁目标，以应对俄罗斯对制裁规避的努力。
-
-周一，财政部金融犯罪执法网络发布了一份警报，建议金融机构“警惕”与俄罗斯乌克兰战争有关的任何逃避制裁的努力。
-
-代理局长希姆·达斯（Him Das）在一份声明中说：“虽然我们没有看到利用数字货币等方法广泛逃避我们的制裁，但及时报告可疑活动有助于我们的国家安全和我们支持乌克兰及其人民。”
-
-补充报道：
-
-据《[数字货币政治报](https://www.cryptopolitan.com/russia-crypto-currency-cracked-down/)》2022年3月7日报道，新加坡金融管理局（MAS）发布新法规：也就是对俄罗斯的制裁措施包括锁定数字货币和不可伪造的代币（NFT）交易，以防止洗钱和恐怖主义融资；新加坡金融管理局已建议新加坡金融机构冻结多家俄罗斯银行的资产，包括VTB银行、Promsvyazbank、Bank Rossiya和Vnesheconombank。
-
-上周三，韩国最大的数字资产交易所之一GoPax，通过冻结20个账户的代币，暂停了俄罗斯用户。其他本地交易所跟随GoPax的决定，已经阻止了俄罗斯IP地址进行数字货币交易（俄罗斯拥有价值466亿美元的数字货币投资）。
-
-新闻来源：[nypost.com] [Biden to issue executive order on cryptocurrency](https://nypost.com/2022/03/08/biden-to-issue-executive-order-on-cryptocurrency/) |发布时间：2022年03月08日
-
-* * *
-
-*审核：文乐
-校对：小东
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-6.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,38 @@
 ---
 
 
-## 乌克兰称来自52个国家的2万多名志愿者报名参加战斗
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2133265/)
+## 物流瘫痪，俄罗斯遭痛击（上）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2133418/)
 
-作者：纽约香草山教育部 – Naughty(文行**)**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-据外媒3月6日报道，乌克兰外长库列巴表示，来自 52 个国家的2万多名志愿者已经报名，自愿参与到新成立的国际军团中，为乌克兰作战。不过，他没有透露有多少志愿者已经抵达乌克兰。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-25.jpg)
-上周，乌克兰总统泽连斯基公开邀请“世界公民”加入乌克兰国防，并取消对外国战士的签证要求，反响很大，乌克兰收到了大量的申请。 库列巴在6日的晚上的电视讲话中说，“今天全世界都站在乌克兰一边，不仅在言辞上，而且在行动上，” 考虑到有些国家禁止本国公民为其他国家作战，库列巴没有就志愿者的国籍做进一步说明。
+翻译：宫米叶
 
-参考链接：
-1. [20,000 foreign volunteers have signed up to fight in Ukraine: officials](https://nypost.com/2022/03/06/20k-foreign-volunteers-signed-up-to-fight-in-ukraine-officials/)
-2. [Ukraine says 20,000 volunteers from 52 countries sign up to fight](https://www.timesofisrael.com/liveblog_entry/ukraine-says-20000-volunteers-from-52-countries-sign-up-to-fight/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-3-1.jpg)图片来源：cn.nikkei.com
 
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+欧洲大半海上集装箱运输被切断，对世界经济也造成影响。
 
-总编/编辑/审核：天滅中共/飞虹
-校对/发稿：Hetangyuese
+物流瘫痪，俄罗斯遭痛击。
 
-**更多资讯，更多关注**
+欧洲大半海上集装箱运输被切断，对世界经济也造成影响。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+由于以欧美为主导的制裁加强，俄罗斯的物流逐渐陷入瘫痪状态。欧盟(EU)各国海关停止对俄罗斯的海路出口，在该国进口集装箱贸易占大多数的海路运输实质上停止。稀缺资源和谷物的出口受到阻碍，零部件和产品的进口也停滞下来。俄罗斯经济事实上正与世界切割，物流停止也会对世界经济造成影响。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+荷兰海关当局1日透露，“拦截了运往俄罗斯的集装箱”，原因是由于对俄罗斯进行新的制裁，需要检查货物中是否包含被制裁物品。许多货物仍然停在鹿特丹。德国汉堡的航站楼运营公司也宣布停止处理俄罗斯起降集装箱。
+
+负责俄罗斯物流的主要港口有面向波罗的海的圣彼得堡、黑海方向的新罗西斯克、远东一侧的海参崴等。据俄罗斯港口统计，3个港口占2021年俄罗斯集装箱贸易量(563万TEU)的74%。
+
+在亚洲到俄罗斯的货运中，一般将用巨型船只运来的集装箱通过鹿特丹、汉堡等转运成中小型船只。但是由于欧洲主要港口的海关拒绝转运送朝俄罗斯的货物，因此几乎不可能有船只去往俄罗斯。
+
+【接下篇：[物流瘫痪，俄罗斯遭痛击（中）](https://gnews.org/zh-hans/2133443/)】
+
+**参考资料：**[nikkei][物流まひ、ロシア痛撃](https://www.nikkei.com/article/DGKKZO58832450W2A300C2MM8000/?unlock=1)
+
+* * *
+
+*审核：BryanW*
+*校对：天天*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-6.jpeg)
 
  
 
