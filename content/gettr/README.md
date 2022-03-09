@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 1:00 AM (UTC)`
+
+❤️❤️❤️The International Humanitarian Rescue Operation of the Rule of Law Foundation and the New Federal State of China #NFSCrescue #ROLFrescue #CCP≠Chinese<br/><br/>🙏🙏🙏Three rescue buses with a total of nearly 200 people were safely evacuated from the Ukrainian battlefield on March 7, 2022 <br/><br/>The true feelings from the members of the Whistleblower Movement and the New Federal State of China to save people cannot be stopped, neither by the Communist Party nor anyone.<br/><br/>💥💥💥If you have family to be rescued in #Ukraine , here is the 24-Hour Emergency Rescue Support Team Contact: <br/>💌💌💌Email: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com <br/>☎️☎️☎️Phone (Call or Text): <br/>+1 720-657-6776 OR <br/>+1 719-224-4232 OR<br/>+48 508-532-712 OR <br/>+48 508-531-518
+![img](https://media.gettr.com/group50/origin/2022/03/09/00/2af7e663-6a8a-faf9-be9d-765f5fbba057/out.jpg)
+
+---
+
 `@miles 3/9/2022 12:10 AM (UTC)`
 
 2022.03.08 NFSC News  Remembering Those Who Are Still Suffering； / NFSC’s Spanish Farm’s Efforts in Rescuing the 96 Ukrainian Children
@@ -151,13 +158,6 @@ We stand with our Ukrainian brothers and sisters during these trying times. Here
 
 2022.03.07 晚 《新中国联邦新闻访谈》俄乌战争最新军事进展；战友前线救援展现新中国联邦形象；从乌克兰难民现状看未来可能在中共国发生的人道主义灾难；德州联邦法官判決，辉瑞公司疫苗副作用大公开
 ![img](https://media.gettr.com/group5/origin/2022/03/08/02/ebf5d20d-38b9-ee37-79de-f9c359f17ce9/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/8/2022 1:30 AM (UTC)`
-
-2022.03.07 晚 《新中国联邦新闻》 新中国联邦成功救出96名乌克兰儿童； 我们一夜之间变成了天使
-![img](https://media.gettr.com/group44/origin/2022/03/08/01/279a7560-2cd4-e61f-0309-98d4a7c9b95e/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
