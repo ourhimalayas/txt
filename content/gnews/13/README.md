@@ -2,27 +2,23 @@
 ---
 
 
-## 美佛罗里达州率先提出“健康儿童无需接种新冠疫苗”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2130951/)
+## 中日财经爆┃东京原油期货时隔13年半首次突破8万日元水平
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2131013/)
 
-撰稿：东京樱花团丨立正道
+撰稿：东京樱花团/peterwong
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/美佛罗里达州率先提出健康儿童无需接种新冠疫苗.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/东京原油期货时隔13年半首次突破8万日元水平.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fss0.bdstatic.com%2F70cFuHSh_Q1YnxGkpoWK1HF6hhy%2Fit%2Fu%3D2004993622%2C3406733644%26fm%3D26%26gp%3D0.jpg&amp;imgrefurl=http%3A%2F%2Fwww.cindaqh.com%2Fa%2F20200212-29717.html&amp;tbnid=iq6sN9Umd2-F0M&amp;vet=12ahUKEwiWhPLsu7j2AhWQvKQKHZSHCWAQMyg3egQIARBM..i&amp;docid=y0Z0YWtZkmVHGM&amp;w=500&amp;h=333&amp;itg=1&amp;q=%E4%B8%9C%E4%BA%AC%E5%8E%9F%E6%B2%B9%E6%9C%9F%E8%B4%A7%20%E4%B8%AD%E4%B8%9C%E5%8E%9F%E6%B2%B9%E6%9C%9F%E8%B4%A7&amp;ved=2ahUKEwiWhPLsu7j2AhWQvKQKHZSHCWAQMyg3egQIARBM)
 
-美国佛罗里达州对健康儿童劝告“不要接种新冠疫苗”的方针，但引起了争议因为此举与联邦指南相悖，美国联邦建议5～11岁儿童接种疫苗的政策。
+3月9日，在东京商品交易所，由于买单聚集，中东原油期货暂时触及8万日元/千升的水平。这是自2008年8月以来（大约13年半）价格首次突破8万日元。
 
-据纽约时报消息，佛罗里达州医务总监拉达波（Joseph A.Ladapo）当地时间3月7日表示：“佛罗里达州卫生部是第一个对健康儿童接种疫苗正式提出反对意见的卫生部门”。他在州长罗恩·德桑蒂斯（Ron DeSantis）召集的一场讨论会结束时宣布了这一决定。在讨论会中，拉达波和其他一些小组成员引用了一些研究，表明儿童从新冠疫苗中获得的免疫力很有限，或者很快就会减弱，而且儿童的感染率本就低于成年人。
+在美国拜登政府宣布全面禁止进口俄罗斯原油和其他商品作为对俄罗斯入侵乌克兰的额外制裁后，由于对供需紧张状况的担忧，原油期货价格飙升。
 
-但联邦政府认为，许多研究表明，随着时间的推移，接种疫苗后对感染的抗体会减弱，但住院率和死亡率会降低。美国疾病控制预防中心（CDC）去年11月批准针对5~11岁儿童紧急使用疫苗，CDC警告说新冠肺炎会折磨儿童和住院，也可能因并发症死亡。
+消息来源:
 
-周一（7日）下午，当被问到佛罗里达州的这一举动时，白宫新闻发言人普萨基表示，联邦政府关于疫苗的建议得到了审查，家长对他们应该有信心。
+[東京市場の原油先物、１３年半ぶり８万円突破…米のロシア産禁輸受け急騰](https://www.yomiuri.co.jp/economy/20220309-OYT1T50208/)
 
-笔者认为，虽然英国研究儿童的新冠死亡率只有200万分之一，但在FDA败诉、辉瑞公司被迫公布疫苗副作用高达1000多种后，白宫却仍坚持儿童要接种疫苗，真是让人不寒而栗，令人深思！
-
-信息来源：[**米フロリダ州「健康な子供にワクチン接種の必要はない」**](https://news.yahoo.co.jp/articles/cce4d0e4765e6dffe263e457110c3b62179834a6)
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 

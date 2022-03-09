@@ -2,24 +2,24 @@
 ---
 
 
-## 中日财经爆┃大宗商品连续涨价对世界经济产生巨大影响
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2129675/)
+## 中日财经爆| 中共国房企禹洲集团爆雷 公告票据违约
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2130034/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7-1.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.feednavigator.com%2Fvar%2Fwrbm_gb_food_pharma%2Fstorage%2Fimages%2F_aliases%2Fwrbm_large%2Fpublications%2Ffeed%2Ffeednavigator.com%2Farticle%2F2020%2F11%2F24%2Fla-nina-and-global-stockpiling-could-c)
-据NHK3月9日消息，随着俄罗斯入侵乌克兰，能源、粮食和金属等多种产品的价格不断上涨，对世界经济产生的影响将越来越大。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-10.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fi1.hexun.com%2F2021-07-27%2F204038999.jpg&amp;imgrefurl=http%3A%2F%2Fm.163fans.com%2Fnews%2Fshow%2F6043%2F&amp;tbnid=mjc8x0mrDAfiXM&amp;vet=12ahUKEwiu3oO9mbj2AhUE3pQKHaKfAi0QMygDegUIARCsAQ..i&amp;docid=blQWHMF0HsGm_M&amp;w=)
+3月7日，中共国又一房企爆雷违约，禹洲集团发布公告称其未在宽限期届满前支付一笔到期的优先票据利息，已构成违约。
 
-在美国和英国宣布了一系列禁令和逐步停止进口俄罗斯原油的背景下，纽约原油市场，作为国际原油价格指标的WTI期货价格8日一度触及每桶129美元的水平，价格一直保持高位。
+禹洲集团周二股票盘中重挫逾8%，创2009年11月上市以来新低，该股此前已连续两个交易日收跌。公司公告称，其未在宽限期届满前支付2023年到期的8.5%优先票据的利息，已构成违约。
 
-7日晚，芝加哥期货交易所小麦期货一度上涨至每蒲式耳13.63美元，创下2008年2月以来约14年来的首次历史新高。市场官员表示，对俄罗斯和乌克兰出口停滞的担忧仍在继续，“据报道，乌克兰港口的出口已经受到阻碍。”
+公告显示，公司发行的并于联交所上市的2023年到期的8.5%优先票据的利息2,125万美元，已于2022年2月4日到期应付。根据2023年票据II的信托契据，有30天宽限期支付利息以避免违约事件。但宽限期现已届满而公司并无于届满前支付有关款项。
 
-伦敦金属交易所镍期货价格8日急速飙升至每吨101365美元，是前一个交易日的两倍。交易所不得不采取不同寻常的措施暂停交易。镍是用于不锈钢和电动汽车电池的原料，由于担心生产国俄罗斯的供应停滞，价格一直不停上涨。
+上述未支付已构成2023年票据II下的违约事件。因此，2023年票据II的持有人可以要求即刻尝付本金和应计利息。截至本公告发布之日，2023年票据II的未偿还本金为5亿美元。公司暂未收到任何该票据持有人的即刻还款通知。
 
-8日，作为安全性高，能规避风险的黄金期货价格每盎司上涨至2078美元80美分，创下了一年七个月以来的新高。
+禹洲集团主要从事房地产开发业务，该股过去一年已累跌逾八成。
 
-如果大宗商品价格持续上涨，全球性的通胀加速将不可避免，由此会阻碍本来就不堪一击的后疫情时代的经济复苏，为全球的经济带来巨大的不利影响。
+消息来源:
 
-信息来源：[原油 小麦 金属… 相次ぐ価格高騰 世界経済への悪影響も懸念](https://www3.nhk.or.jp/news/html/20220309/k10013521491000.html)
+[《股市简讯》中国房企禹洲集团重挫逾8%创新低，2023年到期票据付息违约](https://cn.reuters.com/article/%E3%80%8A%E8%82%A1%E5%B8%82%E7%AE%80%E8%AE%AF%E3%80%8B%E4%B8%AD%E5%9B%BD%E6%88%BF%E4%BC%81%E7%A6%B9%E6%B4%B2%E9%9B%86%E5%9B%A2%E9%87%8D%E6%8C%AB%E9%80%BE8%25%E5%88%9B%E6%96%B0%E4%BD%8E%EF%BC%8C2023%E5%B9%B4%E5%88%B0%E6%9C%9F%25)
 
 *校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*

@@ -2,22 +2,26 @@
 ---
 
 
-## 有声｜妇女节前后 中共国网民用各种方式声援铁链女
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2130663/)
+## 有声｜麦当劳宣布暂时关闭在俄847家门店
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2130731/)
 
-**By:秘翻新闻**
+By:**秘翻新闻**
 
 **2022-03-09**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片777-1.png)图片源自:新唐人
-据[新唐人](https://www.ntdtv.com/gb/2022/03/08/a103368082.html)北京时间3月9日消息，在中共政权袒护妇女拐卖的阴云笼罩下，今年中共国的妇女节消费气氛转淡。众多网民纷纷用贴图、连锁公开信、横幅和行为艺术声援“铁链女”，呼唤正义。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-15.png)图片来源 路透社
+[《路透社》纽约3月8日报道，周二麦当劳公司宣布，将暂时关闭包括普希金广场在内的在俄所有的847家门店。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
-有人发帖呼吁“保持愤怒：持续关注‘铁链女’ 苦难不该如此之快就被遗忘，也不能允许黑暗这么快就隐藏”。
+[报道指出，麦当劳餐厅的关闭在俄罗斯也具有重要的象征意义。麦当劳1990年在莫斯科市中心开设的第一家分店，在苏联解体后成为美国资本主义繁荣的象征。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
-有许多妇女在三八节当天，采用行为艺术的方式，身挂铁链、锁头走上街头。有的配上标语，直言表达诉求。也有的只是用铁链、锁头、打上红叉的口罩和鲜花等道具，隐晦地表达对中共政府打压真相、包庇犯罪的愤怒。
+[麦当劳表示，虽然俄罗斯所有门店被关闭，但是仍会继续向俄罗斯的6.2万名员工支付工资。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
-（ 秘翻新闻 二丫编辑报道）
+[与此同时，连锁咖啡店星巴克也宣布暂时关闭门店，百事可乐停止销售其软饮料品牌，可口可乐停止在俄罗斯的业务。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
-发布:星星
+[马萨诸塞大学政治学教授马斯格雷夫说，麦当劳的关闭表明，西方对俄罗斯迅速而广泛的制裁将产生持久的经济影响。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
+
+秘翻新闻 冰糖葫芦喵编译报道
+
+发布 : 恩典
 
 * * *
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)

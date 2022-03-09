@@ -2,24 +2,26 @@
 ---
 
 
-## 中日财经爆┃东京原油期货时隔13年半首次突破8万日元水平
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2131013/)
+## 俄乌模特联手共秀乌菜，俄女模：不要战争！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2131053/)
 
-撰稿：东京樱花团/peterwong
+台北国际连锁加盟大展将在3月11号在世贸一馆登场，9日举办展前记者会，其中最大亮点，就是邀请到俄罗斯以及乌克兰女模，两人分别穿著乌克兰国旗顏色、黄色及蓝色服装，联手秀出创意乌国料理，希望用行动期盼世界和平，不要战争。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/东京原油期货时隔13年半首次突破8万日元水平.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fss0.bdstatic.com%2F70cFuHSh_Q1YnxGkpoWK1HF6hhy%2Fit%2Fu%3D2004993622%2C3406733644%26fm%3D26%26gp%3D0.jpg&amp;imgrefurl=http%3A%2F%2Fwww.cindaqh.com%2Fa%2F20200212-29717.html&amp;tbnid=iq6sN9Umd2-F0M&amp;vet=12ahUKEwiWhPLsu7j2AhWQvKQKHZSHCWAQMyg3egQIARBM..i&amp;docid=y0Z0YWtZkmVHGM&amp;w=500&amp;h=333&amp;itg=1&amp;q=%E4%B8%9C%E4%BA%AC%E5%8E%9F%E6%B2%B9%E6%9C%9F%E8%B4%A7%20%E4%B8%AD%E4%B8%9C%E5%8E%9F%E6%B2%B9%E6%9C%9F%E8%B4%A7&amp;ved=2ahUKEwiWhPLsu7j2AhWQvKQKHZSHCWAQMyg3egQIARBM)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/63203f7f-06b9-47f3-abec-b1986f650743.jpg)图片来源：民视新闻网
 
-3月9日，在东京商品交易所，由于买单聚集，中东原油期货暂时触及8万日元/千升的水平。这是自2008年8月以来（大约13年半）价格首次突破8万日元。
+乌克兰女模Sheri 说，来台湾努力工作，但也很担心家人，俄罗斯女模Liliya说，不少国家联手对俄罗斯祭出经济制裁，也没办法从俄罗斯寄钱到台湾，已经影响到在台的俄罗斯学生，俄罗斯人民都很善良，台湾人也很善良，希望不要战争。
 
-在美国拜登政府宣布全面禁止进口俄罗斯原油和其他商品作为对俄罗斯入侵乌克兰的额外制裁后，由于对供需紧张状况的担忧，原油期货价格飙升。
+简评：乌克兰人民很善良，俄罗斯人民也很善良，两军对垒受伤害的也是两国人民！当善良被邪恶驱使，就会助长邪恶的野心，只有回归正道主义才能共建美好家园！台北举办方用心良苦，俄乌模特联手共秀乌菜才是民意！
 
-消息来源:
+新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022309W0236)
 
-[東京市場の原油先物、１３年半ぶり８万円突破…米のロシア産禁輸受け急騰](https://www.yomiuri.co.jp/economy/20220309-OYT1T50208/)
+撰稿/发布：一叶知秋
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
