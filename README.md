@@ -15,113 +15,113 @@
 
 ---
 
-### [灭共者之郭氏情报站（36）2022/03/09 文贵大直播](/content/gnews/1/README.md)
- ` MOS Designer香草山设计部`
-
-### [2022/03/09 文贵先生直播重点大纲](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [3/9/2022 文贵直播：俄乌战争困境加剧中共对抗西方的野心；中共将在三月底到四月之间，在中东和其他地区发动能源和区域性战争，台湾依然深处危机](/content/gnews/3/README.md)
- ` 秘密翻译组-北美组`
-
-### [阻绝人道主义救助，中共犯下严重国际法罪行](/content/gnews/4/README.md)
- ` 秘密翻译组-原创组`
-
-### [福克斯采访：俄罗斯富豪们是否有能力改变普京](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [乌克兰大救援3.9.2022 阻绝人道主义救助，中共犯下严重国际法罪行](/content/gnews/6/README.md)
- ` 秘密翻译组-原创组`
-
-### [强国奇闻(10)](/content/gnews/7/README.md)
- ` 纽约香草山MOS03`
-
-### [乌克兰小朋友登车直播](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [物流瘫痪，俄罗斯遭痛击（下）](/content/gnews/9/README.md)
+### [日本、美国、英国和欧盟的所有成员国&#8230;&#8230;俄罗斯已将48个国家和地区定为 &#8220;不友好国家&#8221;](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [五月花简报（03/09/2022）](/content/gnews/10/README.md)
- ` mayflowertranslate`
-
-### [新中国联邦人与乌克兰人民同在](/content/gnews/11/README.md)
- ` 焦點20分`
-
-### [物流瘫痪，俄罗斯遭痛击（中）](/content/gnews/12/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [三八妇女节随想](/content/gnews/13/README.md)
- ` XINYUAN`
-
-### [物流瘫痪，俄罗斯遭痛击（上）](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [新中国联邦法治基金为乌难民提供切实的物资援助](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [波兰难民营负责人请求新中国联邦救援团队帮助](/content/gnews/16/README.md)
- ` 纽约香草山MOS02`
-
-### [2022年3月9日大直播速记精萃](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [日国防大臣岸信夫会见乌克兰驻日大使](/content/gnews/18/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [时隔1年零4个月 日经平均收盘价首次跌破2万5000日元](/content/gnews/19/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2022年3月9日，全球中共病毒疫情情况汇总](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [乌克兰情报局称第二位俄军将领遭击毙](/content/gnews/21/README.md)
- ` NFSC News`
-
-### [加拿大在乌克兰问题上再制裁 10 名俄罗斯人](/content/gnews/22/README.md)
- ` MG FARM`
-
-### [澳大利亚，可怕的洪水，但未接种疫苗的志愿者被禁止提供帮助](/content/gnews/23/README.md)
- ` xiaobaige`
-
-### [拜登的行政命令为数字货币研究带来紧迫性](/content/gnews/24/README.md)
- ` 温哥华扬帆农场`
-
-### [有声|中兴通讯面临违反美国缓刑条例的听证会](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [新西兰财经G乐部2022年3月9日:财经新闻整理](/content/gnews/26/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [拜登将发布关于数字货币的行政命令](/content/gnews/27/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [新中国联邦在波兰难民救助站设下最大救援帐篷](/content/gnews/28/README.md)
- ` 日本东京方舟农场`
-
-### [研究表明轻微的CCP病毒感染也会导致大脑出现变化](/content/gnews/29/README.md)
- ` 澳喜特战旅Gnews`
-
-### [逃离乌克兰的中共国学生抨击大使馆应对迟缓](/content/gnews/30/README.md)
+### [随着川普对拙劣的发布做出反应，数字世界收购暴跌](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|切尔诺贝利核电站被断电](/content/gnews/31/README.md)
+### [中共国的铁锁梦](/content/gnews/3/README.md)
+ ` MOS Designer香草山设计部`
+
+### [3/9/2022 文贵直播：接下来的三件大事 &#8211; 1) 喜币会有很多好消息; 2) 新媒体平台会诞生更多奇迹；3) 辉瑞等疫苗厂商会被全人类审判](/content/gnews/4/README.md)
+ ` 秘密翻译组-北美组`
+
+### [灭共者之郭氏情报站（36）2022/03/09 文贵大直播](/content/gnews/5/README.md)
+ ` MOS Designer香草山设计部`
+
+### [2022/03/09 文贵先生直播重点大纲](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [3/9/2022 文贵直播：俄乌战争困境加剧中共对抗西方的野心；中共将在三月底到四月之间，在中东和其他地区发动能源和区域性战争，台湾依然深处危机](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
+
+### [阻绝人道主义救助，中共犯下严重国际法罪行](/content/gnews/8/README.md)
+ ` 秘密翻译组-原创组`
+
+### [福克斯采访：俄罗斯富豪们是否有能力改变普京](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [乌克兰大救援3.9.2022 阻绝人道主义救助，中共犯下严重国际法罪行](/content/gnews/10/README.md)
+ ` 秘密翻译组-原创组`
+
+### [强国奇闻(10)](/content/gnews/11/README.md)
+ ` 纽约香草山MOS03`
+
+### [刺突蛋白和氧化石墨烯解毒方案](/content/gnews/12/README.md)
+ ` XINYUAN`
+
+### [乌克兰小朋友登车直播](/content/gnews/13/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [物流瘫痪，俄罗斯遭痛击（下）](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [五月花简报（03/09/2022）](/content/gnews/15/README.md)
+ ` mayflowertranslate`
+
+### [物流瘫痪，俄罗斯遭痛击（中）](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [物流瘫痪，俄罗斯遭痛击（上）](/content/gnews/17/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [新中国联邦法治基金为乌难民提供切实的物资援助](/content/gnews/18/README.md)
+ ` 雅典娜GNotes`
+
+### [波兰难民营负责人请求新中国联邦救援团队帮助](/content/gnews/19/README.md)
+ ` 纽约香草山MOS02`
+
+### [2022年3月9日大直播速记精萃](/content/gnews/20/README.md)
+ ` 雅典娜GNotes`
+
+### [日国防大臣岸信夫会见乌克兰驻日大使](/content/gnews/21/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [2022年3月9日，全球中共病毒疫情情况汇总](/content/gnews/22/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [乌克兰称来自52个国家的2万多名志愿者报名参加战斗](/content/gnews/23/README.md)
+ ` NFSC News`
+
+### [英国承诺提供 1 亿美元帮助维持乌克兰政府运转](/content/gnews/24/README.md)
+ ` NFSC News`
+
+### [乌克兰总统泽连斯基拒絕俄罗斯提出的停战条件](/content/gnews/25/README.md)
+ ` NFSC News`
+
+### [乌克兰情报局称第二位俄军将领遭击毙](/content/gnews/26/README.md)
+ ` NFSC News`
+
+### [加拿大在乌克兰问题上再制裁 10 名俄罗斯人](/content/gnews/27/README.md)
+ ` MG FARM`
+
+### [澳大利亚，可怕的洪水，但未接种疫苗的志愿者被禁止提供帮助](/content/gnews/28/README.md)
+ ` xiaobaige`
+
+### [拜登的行政命令为数字货币研究带来紧迫性](/content/gnews/29/README.md)
+ ` 温哥华扬帆农场`
+
+### [有声|中兴通讯面临违反美国缓刑条例的听证会](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [有声|佛州将反对为健康儿童接种中共病毒疫苗](/content/gnews/32/README.md)
+### [拜登将发布关于数字货币的行政命令](/content/gnews/31/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [新中国联邦在波兰难民救助站设下最大救援帐篷](/content/gnews/32/README.md)
+ ` 日本东京方舟农场`
+
+### [有声|切尔诺贝利核电站被断电](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [有声|郭先生提醒墙外战友提防排华袭击](/content/gnews/33/README.md)
+### [有声|佛州将反对为健康儿童接种中共病毒疫苗](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [【 G时新闻 】美议员提出《独裁者法案》调查中共支持俄入侵乌克兰](/content/gnews/34/README.md)
+### [【 G时新闻 】美议员提出《独裁者法案》调查中共支持俄入侵乌克兰](/content/gnews/35/README.md)
  ` G-时新闻`
 
-### [扒皮中共特级战斗英雄－黄继光](/content/gnews/35/README.md)
+### [扒皮中共特级战斗英雄－黄继光](/content/gnews/36/README.md)
  ` 军情启示录`
-
-### [3/9/2022 国际财经快讯：随着俄罗斯制裁的升级，西方经济处于衰退的边缘；市场暂停，油价降温，股市反弹](/content/gnews/36/README.md)
- ` 秘密翻译组金融团队`
 
 ### [西方制裁已经严重影响到俄罗斯民众生活](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
