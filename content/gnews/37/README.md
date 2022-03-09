@@ -2,26 +2,28 @@
 ---
 
 
-## 中共阻挠法治基金乌克兰人道救援行动
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2129582/)
+## 中日财经爆|惠誉再砍俄罗斯主权评级 违约仅一步之遥
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2129667/)
 
-作者：加拿大温哥华扬帆农场 – 晨熹
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6-1.jpg)[图片来源](https://pledgetimes.com/fitch-downgrades-russias-sovereign-rating-six-notches-to-b/)
+惠誉周二（3月8日）宣布再调降俄罗斯主权评级等六个级距，由已属垃圾等级的“B”进一步降至“C”，称由于制裁和贸易限制削弱了俄罗斯偿还债务的意愿，该国即将爆发债务违约。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a-8-edited.jpg)图片来源：盖特
+俄罗斯入侵乌克兰后遭到西方制裁，其金融市场出现剧烈震荡，引发外界对该国偿债能力和意愿的极大担忧。
 
+惠誉提到普京的总统令，可能会用卢布偿还特定国家债权人的外币主权债务。
 
-据3月8日文贵先生盖特消息，本次法治基金组织的乌克兰人道救援行动中使用的紧急救援邮箱突然被GODADDY公司关停，并因此阻碍了救援行动的顺利进行。据悉，目前的联系方式已经更新，并新增了Telegram和Gettr等多种联系渠道。
+惠誉评级中的“C ”仅比违约高出一个级距，使其与穆迪目前的给予的“Ca”评级一致。
 
-消息称，中共在近日不仅黑客掉文贵先生和多名前线救援战友的互联网设备，还胁迫YouTube暂停其上传视频的账号，并同时以非法手段冻结了用于本次救援的付费邮箱和域名。
+惠誉在不到一周前取消了俄罗斯的投资级评级，将其评级从“BBB ”降至“B”级。穆迪和标普也下调了俄罗斯的主权评级。
 
-这一系列流氓手段的操作，不仅验证了中共政权的下作和邪恶，而且也鲜明体现出法治基金本次救援行动所产生的巨大国际影响力，更看到中共对日渐崛起的人类正义力量——新中国联邦的深深恐惧。
+消息来源:
 
-* * *
+[惠誉再度大砍俄罗斯主权评等 称即将爆发债务违约](https://cn.reuters.com/article/fitch-russia-rating-0308-tues-idCNKBS2L602T?il=0)
 
-撰稿：晨熹， 校对编辑，发稿：硫酸羟氯喹64
-
-新闻来源：[https://gettr.com/streaming/pywfu457e9](https://gettr.com/streaming/pywfu457e9)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

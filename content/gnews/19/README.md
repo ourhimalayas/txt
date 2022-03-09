@@ -2,32 +2,25 @@
 ---
 
 
-## 伦敦证交所集团：暂停在俄提供新产品和服务
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2130122/)
+## 视频|中共病毒导致全球官方死亡人数突破600万
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2130269/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+制作：香草山视频部
 
-整理：围剿维尼熊
-编辑：木木木mmmmm
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0160.jpg)图片来自：Jack Taylor/Getty Images
-伦敦证券交易所集团（LSEG）3月8日表示，从格林尼治时间周三12:00起，暂停在俄罗斯提供包括新闻和评论在内的新的产品和服务。
+3月6日，根据约翰·霍普金斯大学发布的数据，中共病毒大流行已进入第三年，由此造成的全球官方死亡人数突破了600万。
 
-据路透社报导，LSEG这一决定是对俄罗斯上周颁布的一项新法律做出的回应。这项新法律规定，故意传播俄罗斯当局所称的“假新闻”将被视为刑事犯罪，相关记者可能会遭到长达15年的监禁。
+在2020年初大流行开始的七个月后，全球死于该病毒的人数达到100万。四个月后，又有100万人死亡，此后每三个月就有100万人死亡，直到2021年十月底，死亡人数达到500万。奥密克戎出现以来，虽然死亡人数增加的速度明显趋缓，至今，仍然达到了600万人，这一数字超过了柏林和布鲁塞尔的人口总和，比整个马里兰州的人口还要多。
 
-根据该法律，报导任何可能损害俄罗斯军队声誉的事件都是非法的，包括俄军在乌克兰遭遇军事挫折和造成平民伤亡的消息。
+然而，“我们的数据世界 “门户网站的主管爱德华·马蒂厄说，官方确认的死亡人数只占中共病毒导致的真实死亡人数的一小部分，一方面因为测试有限，另一方面，在死亡原因的归属方面存在严重偏差。他认为，真实数据可能接近报告的死亡人数的四倍。而据《经济学人》的一个团队对超额死亡即特定时期观察到的死亡人数与同一时期的预期死亡人数之间的差异的分析估计，全球因中共病毒死亡的人数在1400万到2350万之间。
 
-LSEG称，它还暂停了让其产品和服务在俄罗斯进行任何新的销售，但当前获得服务的客户可以继续使用其数据产品。
+发稿：雪梨
 
-参考链接：[伦敦证交所集团：暂停在俄发布新闻和评论](https://www.epochtimes.com/gb/22/3/8/n13631258.htm)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

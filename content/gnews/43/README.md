@@ -2,30 +2,41 @@
 ---
 
 
-## 世界足球先生莱万多夫斯基终止与中共华为合作
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2128598/)
+## 纽约CBS转播车与法治基金直播中心为邻
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2129508/)
 
-**撰稿：日本东京方舟农场 海星**
+作者: 香草山写作组-静言
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-46.png)
+3月8日，从波兰与乌克兰交界的难民营，法治基金乌克兰救援队直播中心Nicole传来消息，在战友直播车旁边，有辆相对小型，但顶上安装着卫星通信设备的车，Nicole上前与忙碌着的几位男士打招呼，发现他们是全球第三大联播网的纽约CBS的转播车。他们表示已经来此处两天了，明天早晨早间新闻主播Tony将来现场，与他们在纽约的总部连线。
 
-3月7日，世界足球先生莱万多夫斯基（Robert Lewandowski）的经纪人萨威斯拉克（Tomasz Zawislak）发布声明表示，莱万多夫斯基将终止与中共华为合作。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2761.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/世足.jpg)（图片来源：法新社、自由时报）
+难民营现场还有许多新闻转播车与新闻从业人员，等候着报道各种现况。
 
-据《自由时报》报导，莱万多夫斯基的经纪人萨威斯拉克于3月7日在致法新社的声明中表示，我方已做出決定，将停止与华为品牌的营销合作关系，并且已经终止了所有推广服务。据悉，莱万多夫斯基放弃了今年刚签订的3年500万欧元的代言费。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2762.jpg)
 
-该报导指出，莱万多夫斯基的这项决定可能与日前发表在英国《每日电讯报》上的1篇报导有关。这篇报导指控中共华为公司正在协助俄罗斯维护网络，反击支持乌克兰黑客团体发动的网络攻击。
+Nicole现场采访了一名来自德国柏林的法国战地记者Emma，这位受雇于英国时尚杂志I-D的女士，大学专业是国际政治。当Nicole向Emma介绍自己是法制基金与新中国联邦救援队一员时，Emma兴奋地说，她知道新中国联邦，表示很高兴见到法制基金赞助的救援队来救助乌克兰难民。当Nicole 继续传达新中国联邦救人的正道主义理念，而CCP是一个不顾自己人民死活的独裁政权时，这位来自德国的年轻记者，与Nicole 同声喊出：Take down the CCP！
 
-莱万多夫斯基是波兰国家足球队球员，并于2020年和2021年两次获得“世界足球先生”称号。他曾在今年二月底的一场比赛中佩戴乌克兰国旗颜色的臂章，以示对乌克兰的声援。他当时表示：”世界无法接受正在乌克兰发生的事情，我希望全世界能支援乌克兰。”
+新闻链接：
 
-参考链接：
-1.[https://news.ltn.com.tw/news/world/breakingnews/3852803](https://news.ltn.com.tw/news/world/breakingnews/3852803)
-2. [https://www.ftvnews.com.tw/news/detail/2022308W0242](https://www.ftvnews.com.tw/news/detail/2022308W0242)
-3.[https://zh.wikipedia.org/wiki/%E7%BD%97%E4%BC%AF%E7%89%B9%C2%B7%E8%8E%B1%E4%B8%87%E5%A4%9A%E5%A4%AB%E6%96%AF%E5%9F%BA](https://zh.wikipedia.org/wiki/%E7%BD%97%E4%BC%AF%E7%89%B9%C2%B7%E8%8E%B1%E4%B8%87%E5%A4%9A%E5%A4%AB%E6%96%AF%E5%9F%BA)
+[https://gettr.com/post/pyxncs95d4](https://gettr.com/post/pyxncs95d4)
 
-撰稿：海星
-总编：青城道姑
-校对发布：Linda
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-23.jpg)
 
+编辑/校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-45.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

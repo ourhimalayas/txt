@@ -2,24 +2,24 @@
 ---
 
 
-## 美国去年至少6州政府遭中共黑客袭击
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2129635/)
+## 中日财经爆┃大宗商品连续涨价对世界经济产生巨大影响
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2129675/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-30.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fnews.usni.org%2Fwp-content%2Fuploads%2F2013%2F02%2FScreen-Shot-2013-02-19-at-12.31.38-PM.png&amp;imgrefurl=https%3A%2F%2Fnews.usni.org%2F2013%2F02%2F19%2Fsecurity-firm-pla-unit-major-u-s-hacker&amp;tbnid=ezFOzm)
-美国网络安全公司麦迪安(Mandiant)周二（3月8日）发布的一份报告说，为中共政府工作的黑客“APT41”去年侵入了美国至少六个州政府的计算机网络。
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7-1.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.feednavigator.com%2Fvar%2Fwrbm_gb_food_pharma%2Fstorage%2Fimages%2F_aliases%2Fwrbm_large%2Fpublications%2Ffeed%2Ffeednavigator.com%2Farticle%2F2020%2F11%2F24%2Fla-nina-and-global-stockpiling-could-c)
+据NHK3月9日消息，随着俄罗斯入侵乌克兰，能源、粮食和金属等多种产品的价格不断上涨，对世界经济产生的影响将越来越大。
 
-麦迪安公司的报告没有指明受到侵入的州，也没有提供侵入的动机。黑客行动从2021年5月开始，一直持续到今年2月。但众所周知，据信对这些攻击负责的中共国黑客团伙“APT41”发起黑客行动既出于传统的间谍活动的考虑，也是为了经济利益。
+在美国和英国宣布了一系列禁令和逐步停止进口俄罗斯原油的背景下，纽约原油市场，作为国际原油价格指标的WTI期货价格8日一度触及每桶129美元的水平，价格一直保持高位。
 
-总部位于弗吉尼亚州莱斯顿的麦迪安公司的首席威胁分析师杰夫·阿克曼(Geoff Ackerman)表示：“尽管正在持续的乌克兰危机理所当然地引起了全世界的关注，而且俄罗斯的网络威胁的可能性也是真实存在的，但我们必须记住，世界各地的其他主要威胁行为者仍在一如既往地开展行动。”
+7日晚，芝加哥期货交易所小麦期货一度上涨至每蒲式耳13.63美元，创下2008年2月以来约14年来的首次历史新高。市场官员表示，对俄罗斯和乌克兰出口停滞的担忧仍在继续，“据报道，乌克兰港口的出口已经受到阻碍。”
 
-他在声明中补充说：“我们不能让其他的网络活动半途消失，尤其是考虑到我们观察到，最活跃的威胁行为者之一的APT41的这一行动一直持续到今天。”
+伦敦金属交易所镍期货价格8日急速飙升至每吨101365美元，是前一个交易日的两倍。交易所不得不采取不同寻常的措施暂停交易。镍是用于不锈钢和电动汽车电池的原料，由于担心生产国俄罗斯的供应停滞，价格一直不停上涨。
 
-麦迪安的这份报告把黑客攻击与APT41联系在一起。美国司法部2020年的一份起诉书中提到了APT41。这份起诉书指控中共国黑客攻击了美国和海外的100多家公司和机构，包括社交媒体和视频游戏公司、大学和电信提供商。
+8日，作为安全性高，能规避风险的黄金期货价格每盎司上涨至2078美元80美分，创下了一年七个月以来的新高。
 
-消息来源:
+如果大宗商品价格持续上涨，全球性的通胀加速将不可避免，由此会阻碍本来就不堪一击的后疫情时代的经济复苏，为全球的经济带来巨大的不利影响。
 
-[网络公司：至少有6个州政府遭到中国黑客的袭击](https://www.voachinese.com/a/us-china-cyber-security-hacking-20220308/6475803.html)
+信息来源：[原油 小麦 金属… 相次ぐ価格高騰 世界経済への悪影響も懸念](https://www3.nhk.or.jp/news/html/20220309/k10013521491000.html)
 
 *校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*
