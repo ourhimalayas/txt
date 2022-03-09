@@ -2,35 +2,28 @@
 ---
 
 
-## 法治基金新闻直播中心首现边境救援基地
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2129939/)
+## 中日财经爆| 中共国房企禹洲集团爆雷 公告票据违约
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2130034/)
 
-作者：香草山农场-静言，saner三二
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月8日，据爆料革命前线战友传回的消息显示，乌克兰战地救援行动的新闻直播中心已经在乌克兰边境的难民营中搭建并调试完毕，救援直播团队之后会从前线将第一手新闻报道直接送回盖特直播节目总部。 据悉，该难民营目前已有多家国际媒体在此设立了各自的直播点和采访中心。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-10.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fi1.hexun.com%2F2021-07-27%2F204038999.jpg&amp;imgrefurl=http%3A%2F%2Fm.163fans.com%2Fnews%2Fshow%2F6043%2F&amp;tbnid=mjc8x0mrDAfiXM&amp;vet=12ahUKEwiu3oO9mbj2AhUE3pQKHaKfAi0QMygDegUIARCsAQ..i&amp;docid=blQWHMF0HsGm_M&amp;w=)
+3月7日，中共国又一房企爆雷违约，禹洲集团发布公告称其未在宽限期届满前支付一笔到期的优先票据利息，已构成违约。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-4.jpeg)
+禹洲集团周二股票盘中重挫逾8%，创2009年11月上市以来新低，该股此前已连续两个交易日收跌。公司公告称，其未在宽限期届满前支付2023年到期的8.5%优先票据的利息，已构成违约。
 
-此外，位于波兰和乌克兰边境的村庄米蒂卡如今是乌克兰难民逃生的必经之地，这里也是新中国联邦最主要的救援基地。随着从世界各地出发的、由新中国联邦战友组成的救援团队陆续到达乌克兰，各农场分队目前已经有了明确的分工：意大利文科团队负责指挥基地的营救行动；华盛顿农场的阿丙团队负责搭建和调试战地新闻直播中心；洛杉矶明道团队则是负责米蒂卡的战地新闻直播。
+公告显示，公司发行的并于联交所上市的2023年到期的8.5%优先票据的利息2,125万美元，已于2022年2月4日到期应付。根据2023年票据II的信托契据，有30天宽限期支付利息以避免违约事件。但宽限期现已届满而公司并无于届满前支付有关款项。
 
-据前线回传的资料显示，在新中国联邦救援团队前往乌克兰边境的途中，红十字国际委员会的物资运输车辆也正在驶往边境难民营。在那里，波兰民众捐赠了大量的衣服、食物和帐篷，用以为寻求帮助的难民提供少许安身之所。
+上述未支付已构成2023年票据II下的违约事件。因此，2023年票据II的持有人可以要求即刻尝付本金和应计利息。截至本公告发布之日，2023年票据II的未偿还本金为5亿美元。公司暂未收到任何该票据持有人的即刻还款通知。
 
-参考链接：[DC农场战友Nicole从救援前线发回的报道：新中国联邦在前线的直播中心。](https://gettr.com/post/pyvybqd0ad)
+禹洲集团主要从事房地产开发业务，该股过去一年已累跌逾八成。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+消息来源:
 
-总编：Irene木木
-编辑：宁文静
-审核：Irene木木
-校正/发稿：谐趣园
+[《股市简讯》中国房企禹洲集团重挫逾8%创新低，2023年到期票据付息违约](https://cn.reuters.com/article/%E3%80%8A%E8%82%A1%E5%B8%82%E7%AE%80%E8%AE%AF%E3%80%8B%E4%B8%AD%E5%9B%BD%E6%88%BF%E4%BC%81%E7%A6%B9%E6%B4%B2%E9%9B%86%E5%9B%A2%E9%87%8D%E6%8C%AB%E9%80%BE8%25%E5%88%9B%E6%96%B0%E4%BD%8E%EF%BC%8C2023%E5%B9%B4%E5%88%B0%E6%9C%9F%25)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

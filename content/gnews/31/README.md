@@ -2,52 +2,16 @@
 ---
 
 
-## 西方制裁已经严重影响到俄罗斯民众生活
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2131623/)
+## 从中国女性的悲惨命运看中共是套在人类头上的锁链
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2132134/)
 
-#### **【雅典娜观察】和您一起洞察世界**
+文贵大直播20220309
 
-整理/编辑：文泓
+撰稿：Poplar（盘古）dingding（香草山）坐看云起时（扬帆）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-49.png)图片来源： 澳洲新闻网 &雅典娜设计组
-
-
-当地时间3月7日，据法新社报道，因俄罗斯入侵乌克兰，西方国家纷纷对俄国祭出制裁措施。希梅列维奇急忙为爱猫爱狗囤积进口食品，因为这些产品可能很快就会从莫斯科的货架上消失。
-
-这位55岁的法文家教说：“我的生活快崩塌了，近年来所习惯的进口产品和服饰等所有高档用品都已经成为过去时了。”
-
-一夜之间，Zara、H&M、宜家家居（Ikea）和欧倍德（OBI）等许多其他大型零售、连锁店一夜之间在俄罗斯暂停营业，让位于首都莫斯科许多购物中心内的店面也纷纷关闭。
-
-希梅列维奇说，自俄罗斯上月24日进攻乌克兰以来，她的大多数学生都已取消上课，许多学生在面对政府强制性的法律规定，以及即将到来的经济困境，都决定离开俄罗斯，包括她的儿子也在昨天远走高飞。
-
-她说：“最困难的倒不是缩衣节食，而是和儿子分离，以及面对全世界的内疚感。”
-
-自从俄罗斯入侵乌克兰以来，西方祭出愈来愈多严厉制裁，让许多人认为未来的日子恐怕更难过。
-
-19岁的新闻系学生诺曼柯表示，在西班牙服装业巨头Inditex宣布退出俄罗斯市场后，她便失去在Inditex旗下流行品牌Oysho服饰店的工作。
-
-卢布在前所未有的制裁压力下暴跌，她表示，自己若负担得起的话，希望能在未来几天内买点化妆品。当她走进莫斯科一间卖场时说：“我听说价格已经跳涨4倍。”
-
-诺曼柯也认为自己恐怕得放弃成为一名记者的梦想，**因为在俄乌冲突后，俄罗斯通过一项法律，刻意散布有关俄罗斯军队的“假新闻”者，最高将处以****15****年徒刑。**
-
-她说：“**在这种审查制度下，谁还需要这种职业**？我如何才能在俄罗斯的世界里生活？”
-
-诺曼柯提着一个粉红色小袋子走出一家内衣店时说：“这是我最后一次来买我喜爱的品牌，因为全都关门了。”
-
-室内设计师洛兹尼萨在莫斯科药局采买时告诉记者，他在过去这几天内流失很多客户，但最让他担心的是孩子的未来，以及年迈父母能否买到进口药品。
-
-47岁的洛兹尼萨说：**“如果明年情况没有好转，那么我将不计一切代价让我的孩子离开这里。”**至于其他，他相信俄罗斯人会展现出韧性，“伊朗人已经对制裁见怪不怪了”。
-
-原文链接：[国际品牌纷撤 西方制裁踩到俄罗斯民众痛处](https://cn.theaustralian.com.au/2022/03/08/64397/)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+美工：跟着北美教练（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片9-1.png)
+*发布：Theodosia*
 
  
 

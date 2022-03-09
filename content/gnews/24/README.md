@@ -2,41 +2,27 @@
 ---
 
 
-## 有声|法制基金乌克兰救援美国第二团队抵达波兰
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132537/)
+## 美国汽油价格再创历史新高
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2132635/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月7日，由美国小李带领的新中国联邦乌克兰救援队一行10位战友，从美国洛杉矶登机后，经历24个小时，已顺利到达波兰边境城市克拉科夫，与大卫带领的第一批救援先锋队，约20位战友汇合，给连日来辛苦救援的第一批救援队，带来了新生力量。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-3.jpeg)
-3月3日，第一批救援队先期到达波兰华沙，在波兰边境设立了临时救助点，解决救援撤离车辆等问题，
+采编：加拿大温哥华杨帆农场 – 文莱
 
-3月5日，纽约救援队、西班牙救援队安全到达波兰。
+编译撰稿：加拿大温哥华杨帆农场 – 自由法兰西
 
-几天来，战友们已开展了一系列救援行动，据郭文贵先生7日的盖特消息，已成功救助200多人抵达波兰克拉科夫，其中包括99个乌克兰孩童。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_20220309-103531_Discord2-1.jpg)图片来源：thepostmillennial.
 
-据郭先生透露，接下来还会有第三波救援队前往波兰，总共将会有70人左右参与救援。这是新中国联邦向世界展示其与中共国不一样性质的舞台，大幕已经开启。
+![](https://gnews.org/3bab0b72-a2ea-4fa3-be68-494a9d5e0580)
+据加拿大《后千禧年》3月6日报道，美国汽车协会最新数据显示，全国当天汽油平均价格为4.09美元每加仑，并仍保持不断上涨趋势，创下有史以来7日均价最高涨幅。
 
+据悉，欧美目前对俄罗斯入侵乌克兰进行的严厉经济制裁，直接导致了全球原油产量的急剧下降，并造成当今油价失控飙升。
 
+随着俄乌战事升级，预计未来很长一段时间内，汽油价格将继续上涨，并将很快突破4.25美元每加仑。
 
-文字版原文：[法制基金乌克兰救援美国第二团队抵达波兰](https://gnews.org/zh-hans/2127338/)
+校对编辑：硫酸羟氯喹64
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+发稿：文明(添草灭共)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接： [https://thepostmillennial.com/national-average-gas-price-jumps-over-4](https://thepostmillennial.com/national-average-gas-price-jumps-over-4)
 
  
 

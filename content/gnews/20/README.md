@@ -2,27 +2,36 @@
 ---
 
 
-## 美国汽油价格再创历史新高
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2132635/)
+## 新中国联邦法制基金乌克兰人道救援行动（五）
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2132722/)
 
-采编：加拿大温哥华杨帆农场 – 文莱
+【玫瑰看新闻】每日快讯
 
-编译撰稿：加拿大温哥华杨帆农场 – 自由法兰西
+1.第三分队从西班牙出发
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西班牙6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/西班牙4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/西班牙5.jpg)
+2.神奇四侠， 2pac和二花 平安落地
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西班牙7.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_20220309-103531_Discord2-1.jpg)图片来源：thepostmillennial.
 
-![](https://gnews.org/3bab0b72-a2ea-4fa3-be68-494a9d5e0580)
-据加拿大《后千禧年》3月6日报道，美国汽车协会最新数据显示，全国当天汽油平均价格为4.09美元每加仑，并仍保持不断上涨趋势，创下有史以来7日均价最高涨幅。
+**推出问题，敲出真相，爆料在路上！**
 
-据悉，欧美目前对俄罗斯入侵乌克兰进行的严厉经济制裁，直接导致了全球原油产量的急剧下降，并造成当今油价失控飙升。
+**请关注和订阅我们的以下账号：**
 
-随着俄乌战事升级，预计未来很长一段时间内，汽油价格将继续上涨，并将很快突破4.25美元每加仑。
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
 
-校对编辑：硫酸羟氯喹64
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
 
-发稿：文明(添草灭共)
+**玫瑰看新闻YOUTUBE账号**：
 
-原文链接： [https://thepostmillennial.com/national-average-gas-price-jumps-over-4](https://thepostmillennial.com/national-average-gas-price-jumps-over-4)
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 
