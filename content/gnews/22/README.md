@@ -2,59 +2,28 @@
 ---
 
 
-## 大数据显示：疫苗的毒性依制造批次而有显著的差异
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2129989/)
+## 中日财经爆| 中共国房企禹洲集团爆雷 公告票据违约
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2130034/)
 
-作者：香草山信息部–我不在这里
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国自核准给老百姓接种中共病毒疫苗，至今已经一年多了。美国的疫苗不良事件报告系统（VAERS），也因此累积了长期并且巨大的数据库，足以让科学家们应用用统计学的专业角度，来客观的评估结果。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-10.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fi1.hexun.com%2F2021-07-27%2F204038999.jpg&amp;imgrefurl=http%3A%2F%2Fm.163fans.com%2Fnews%2Fshow%2F6043%2F&amp;tbnid=mjc8x0mrDAfiXM&amp;vet=12ahUKEwiu3oO9mbj2AhUE3pQKHaKfAi0QMygDegUIARCsAQ..i&amp;docid=blQWHMF0HsGm_M&amp;w=)
+3月7日，中共国又一房企爆雷违约，禹洲集团发布公告称其未在宽限期届满前支付一笔到期的优先票据利息，已构成违约。
 
-在欧美有几个独立的个人或团队，下载了VARS所提供的数据，他们都不约而同的发现，每一个“批次”的疫苗，对人体的“杀伤力”有明显的差异。他们发现其中有 5% 的“批次”编号不同的疫苗，是造成90%疫苗不良反应或死亡的罪魁祸首。
+禹洲集团周二股票盘中重挫逾8%，创2009年11月上市以来新低，该股此前已连续两个交易日收跌。公司公告称，其未在宽限期届满前支付2023年到期的8.5%优先票据的利息，已构成违约。
 
-其中的一个德国的调查团队甚至认为：“这批数据显示了，疫苗制造商正在更大的公共试验中，进行秘密实验。他们似乎实际上就是在对公众进行致命剂量的测试”。
+公告显示，公司发行的并于联交所上市的2023年到期的8.5%优先票据的利息2,125万美元，已于2022年2月4日到期应付。根据2023年票据II的信托契据，有30天宽限期支付利息以避免违约事件。但宽限期现已届满而公司并无于届满前支付有关款项。
 
-郭文贵先生曾多次的表示，在中国大陆，共产党有计划性的，给不同的省份的百姓及共产党官员，施打毒性强度不同的疫苗。无独有偶的，我们看见此黑暗势力，同时也在张牙舞爪的侵害和欺诈西方国家的人民。不过却又很遗憾的，西方国家的百姓已经开始意识到VARS数据所代表的血腥事实，这个事实与政府和媒体所宣传的疫苗好处是相抵触的。
+上述未支付已构成2023年票据II下的违约事件。因此，2023年票据II的持有人可以要求即刻尝付本金和应计利息。截至本公告发布之日，2023年票据II的未偿还本金为5亿美元。公司暂未收到任何该票据持有人的即刻还款通知。
 
-最后让我们也一起来阅览 VARS 最新一期，针对疫苗副作用所做出的数据图表。对读者您而言，它所显示的真相又是什么呢？
+禹洲集团主要从事房地产开发业务，该股过去一年已累跌逾八成。
 
-表1: 按目前制造商划分的批号分布情况，相對應于前一期所累計的數據。
+消息来源:
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_2-2.png)
+[《股市简讯》中国房企禹洲集团重挫逾8%创新低，2023年到期票据付息违约](https://cn.reuters.com/article/%E3%80%8A%E8%82%A1%E5%B8%82%E7%AE%80%E8%AE%AF%E3%80%8B%E4%B8%AD%E5%9B%BD%E6%88%BF%E4%BC%81%E7%A6%B9%E6%B4%B2%E9%9B%86%E5%9B%A2%E9%87%8D%E6%8C%AB%E9%80%BE8%25%E5%88%9B%E6%96%B0%E4%BD%8E%EF%BC%8C2023%E5%B9%B4%E5%88%B0%E6%9C%9F%25)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-6.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-7.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_2-3.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_3-1.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_4.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_5.png)
-
-参考链接：
-
-1. [Hot Lots Update for Covid-19 Jabs part I](https://vaersanalysis.info/2022/01/15/hot-lots-update-for-covid-19-jabs-data-through-1-7-22/)
-2. [Hot Lots Update for Covid-19 Jabs part II](https://vaersanalysis.info/2022/01/16/hot-lots-update-for-covid-19-jabs-data-through-1-7-22-part-ii/)
-3. [Reiner Fuellmich:”New Findings… Enough to Dismantle the Entire (VAX) Industry!”](https://thereisnopandemic.net/2022/01/03/reiner-fuellmich-new-findings-enough-to-dismantle-the-entire-vax-industry/)
-4. [BREAKING: Deadly Vax Lot Numbers IDENTIFIED, Still in Circulation!](https://thereisnopandemic.net/2022/01/05/breaking-deadly-vax-lot-numbers-identified-still-in-circulation/)
-5. [How Bad is My Batch](https://www.howbadismybatch.com)
-6. [TheEagle’s VAERS Dashboard](https://public.tableau.com/app/profile/alberto.benavidez/viz/WelcomeTheEaglesVAERSDashboard/ByLotLookup)
-7. [“How Bad is my Batch”](https://rwmalonemd.substack.com/p/how-bad-is-my-batch)
-
-
-审核/编辑/发稿:qiutian（邱甜）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

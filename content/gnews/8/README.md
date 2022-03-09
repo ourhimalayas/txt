@@ -2,32 +2,25 @@
 ---
 
 
-## 伦敦证交所集团：暂停在俄提供新产品和服务
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2130122/)
+## 视频|新中国联邦前线救援团队已从乌克兰战区救出超过200人
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2130283/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+制作：香草山视频部
 
-整理：围剿维尼熊
-编辑：木木木mmmmm
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0160.jpg)图片来自：Jack Taylor/Getty Images
-伦敦证券交易所集团（LSEG）3月8日表示，从格林尼治时间周三12:00起，暂停在俄罗斯提供包括新闻和评论在内的新的产品和服务。
+**郭文贵先生****在****最新一则盖特中表示，新中国联邦****的****多位爆料革命战友，远赴乌克兰参与前线救援，截至目前，已经救出上百名乌克兰儿童，以及包括中国人、乌克兰人在内的各国人士总共两百余人。**
 
-据路透社报导，LSEG这一决定是对俄罗斯上周颁布的一项新法律做出的回应。这项新法律规定，故意传播俄罗斯当局所称的“假新闻”将被视为刑事犯罪，相关记者可能会遭到长达15年的监禁。
+**郭先生透露，在昨天的一场救援行动中，中共大使馆编造谎言，成功误导了十几位已经坐上救援巴士的中国人弃车而逃，郭先生对此深表遗憾，并怒斥中共为达目的，全然不顾错过救援的中国人可能面临的安全风险，简直视人命如草芥。**
 
-根据该法律，报导任何可能损害俄罗斯军队声誉的事件都是非法的，包括俄军在乌克兰遭遇军事挫折和造成平民伤亡的消息。
+**郭先生强调，新中国联邦的这次救援行动，最重要的目的就是救人，证明中国人不同于共产党，中国人不但不会祸乱世界，还愿意为实现这个世界的和平美好身体力行。**
 
-LSEG称，它还暂停了让其产品和服务在俄罗斯进行任何新的销售，但当前获得服务的客户可以继续使用其数据产品。
+发稿：谐趣园
 
-参考链接：[伦敦证交所集团：暂停在俄发布新闻和评论](https://www.epochtimes.com/gb/22/3/8/n13631258.htm)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

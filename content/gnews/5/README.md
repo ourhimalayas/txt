@@ -2,27 +2,35 @@
 ---
 
 
-## 视频|前俄罗斯新闻主播谈俄罗斯的言论审查
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2130186/)
+## 禁令风险警示买家，更多俄罗斯石油被大幅打折
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2130318/)
 
-制作：香草山视频部
+翻译：文扬
+编辑：skyandmoon2012
 
-**外****媒****3****月****7****日****消息，前俄罗斯国家电视台新闻女主播安娜****·****库尔金说，居住在俄罗斯的人如果被认为反对政府，便会遭受极端的困境。**** ****库尔金来自俄罗斯，十年前定居到美国西雅图。促使她离开俄罗斯的原因就是俄罗斯当局对言论的审查。**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/GNH38PP5ECKQIQY.png)图片来源：雅典娜设计组
 
-**而现在，随着俄罗斯对乌克兰的入侵，俄罗斯政府变本加厉，不仅相继禁止了各大社交媒体平台，对其他媒体的言论审查也更为严格，很多媒体被迫关闭。普京还签署了一项法律，来威胁那些反对俄罗斯入侵乌克兰的人。**
 
-**库尔金曾在俄罗斯的国家电视台工作了****15****年之多，她说，当人们说出俄罗斯当局的某些真相时，可能会面临长达****15****年的监禁。**
+（彭博社）——来自远东的俄罗斯索科尔石油（Sokol）船货以大幅折扣报价，因为该国入侵乌克兰以及原油进口禁令的前景使买家对处理其石油持谨慎态度。
 
-**俄罗斯有很多记者都因为说真话受到审查、监禁，甚至杀害。在言论审查和的高压之下，人们活得就像一个机器，终日忙碌却一生毫无所成，被圈在贷款中无法自拔。安娜****·****库尔金为自己曾经的国家入侵乌克兰感到心碎，并为那些同样反对战争的俄罗斯人感到担忧，她清楚俄当局会对他们造成的迫害。**
+知情人士表示，一家贸易公司提供了5月份装船的货物，该货物将从东部港口德卡斯特里（De-Kastri）装船。与迪拜的基准价格相比，每桶折扣高达14美元。这比上周托克集团以每桶1美元的溢价向索科尔提供的价格要低得多。
 
-发稿：谐趣园
+由于中东的迪拜价格标价相对于伦敦的布伦特原油下跌，导致船运进一步贬值，因此出现了大幅折扣。知情人士说，这批货物没有立即进行交易或成交，贸易公司在现货市场上私下向亚洲炼油商展示了这批货物。这与大多数买家回避俄罗斯旗舰产品乌拉尔的情况类似，尽管其报价也很有吸引力。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+随着美国考虑对欧佩克+生产商实施更严厉的处罚，贸易商和炼油商对俄罗斯原油越来越警惕。 尽管出于安全考虑，买家一直对从波罗的海和黑海西部港口进口原油持谨慎态度，但担忧现在正蔓延到东部港口德卡斯特里和科兹米诺。因为潜在的制裁可能涉及所有俄罗斯出口，无论装载港口在哪里。
+
+上周五，壳牌公司(Shell Plc)以创纪录的折扣购买一船乌拉尔石油的举动遭到了一连串的批评。这家总部设在伦敦的公司后来表示，它将在政府的指导下驾驭市场。英国石油公司(BP Plc)和埃克森美孚(Exxon Mobil Corp.)等其他石油巨头早些时候承诺退出俄罗斯，而道达尔能源公司(TotalEnergies SE)表示其交易员将不再购买该国的原油。
+
+原文链接： [More Russian Oil Deeply Discounted as Ban Risk Alarms Buyers (yahoo.com)](https://finance.yahoo.com/news/more-russian-oil-heavily-discounted-094720437.html?fr=sychp_catchall)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

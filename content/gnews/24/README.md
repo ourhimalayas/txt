@@ -2,46 +2,31 @@
 ---
 
 
-## 爱马仕、香奈儿等世界知名奢侈品牌宣布暂时关闭在俄业务
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2129952/)
+## 中共发布虚假信息 令中国同胞错失获救机会
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2130031/)
 
-作者：首尔天池农场 – zzballack
+**撰稿：日本东京方舟农场 Miyali7768(文玉) 幽蘭自得**
 
+3月7日，新中国联邦创始人郭文贵先生在GETTR发视频揭示，因中共发布虚假信息，称新中国联邦为反华组织，导致已登上新中国联邦救援大巴的18位中国同胞离开巴士，错失获救机会。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/虚假.jpg)（图片来自GETTR）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+郭先生在视频中指出，在日前新中国联邦法治基金、法治社会组织的紧急救援行动中，本来已经登上救援大巴的18名华人同胞，因看到中共发布的虚假信息，称新中国联邦是反华反党组织，“小心被绑架、被骗钱”，导致这18个中国同胞又从救援大巴下车，丧失获救机会，目前生死未卜。
 
+郭先生揭露，中共不仅不作为，还在媒体上发布虚假信息，公然谎称在乌华人已经全部撤出。他表示，现在的实际情况是，在战区的地下室里还有很多缺水断食的学生和躲在农村什么语言都不会的在乌克兰打工的华人，至今未得到中共的任何帮助，仍处于自生自灭状态。
 
+与此同时，新中国联邦正投入庞大的人力、物力，花重金包下大巴车、大力神飞机，从各个农场派出救援团队前往乌克兰利沃夫市组织开展人道救援活动，在各个社交媒体平台发布救援信息，免费救助华人同胞及国际友人。
 
-据外媒3月6日的报道，爱马仕、路易·威登、卡地亚 、香奈儿以及古驰等全球知名的奢侈时尚品牌宣布，由于对欧洲目前的局势越来越担心，他们将暂停在俄罗斯的所有业务，立即生效。
+对此，郭先生强烈谴责，中共视人命为草芥，对在乌华人同胞不管不顾。更令人不齿的是，中共发布虚假信息，阻挠新中国联邦对在乌同胞施救。他说，如果这18个中国同胞无法离开乌克兰，并丧生于战争之中，中共需要为此责任。
 
-柏金包的制造商爱马仕和拥有卡地亚的历峰集团，是第一批宣布关闭在俄商店的时尚品牌母公司，路威酩轩集团、开云 和香奈儿随后也关闭了商店。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-3.jpg)
-香奈儿公司在媒体上发帖指出，鉴于对目前的局势越来越担心，因此决定暂时停止在俄罗斯的业务。
-
-LMVH也证实，他们在俄罗斯的124家门店将全部关闭，但他将继续支付在该国的3500名员工的工资。 开云、LMVH和世界领先的美容公司之一欧莱雅都承诺提供财政支持，帮助乌克兰难民。
+郭先生表示，当前部分中国同胞，已经被中共洗脑洗得丧失了正常的思维逻辑，不辨是非，不知善恶。并对这18位丧失救援机会的中国同胞感到惋惜。
 
 参考链接：
-[Luxury Fashion Brands Hermès, Chanel, Louis Vuitton, and Gucci… Temporarily Close Business Operations in Russia](https://www.thegatewaypundit.com/2022/03/luxury-fashion-brands-hermes-chanel-louis-vuitton-gucci-temporarily-close-business-operations-russia/)
+[https://gettr.com/post/pynslhaa9a](https://gettr.com/post/pynslhaa9a)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+撰稿：Miyali7768(文玉) 幽兰自得
+总编：老孙
+校对发布：Linda
 
  
 

@@ -2,25 +2,26 @@
 ---
 
 
-## 有声｜波兰国足队长解除华为合约 弃年薪500万欧赞助
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2129982/)
+## 欧洲27国大使联名文章谈及病毒起源 中共紧急删除
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2130033/)
 
-**By:秘翻新闻**
+撰稿：东京樱花团/加一颗稻草
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-40.jpg)[图片来源](https://www.khmertimeskh.com/50720616/eu-china-ties-vital-amid-global-crisis/)
+为纪念与中国建交45周年，欧盟27国大使联名发表题为“全球危机下欧中关系至关重要”(EU-China ties vital amid global crisis)的文章，但中国日报却删除了涉及中共病毒（新冠病毒）的部分内容。
 
-**2022-03-09**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-41.jpg)图片源自:自由亚洲
-据《[自由亚洲电台](https://www.rfa.org/cantonese/news/uk-sanction-03082022120027.html)》3月8日报道，波兰国家足球队队长、FIFA 两届「足球先生」利云度夫斯基周二宣布，解除与赞助商华为的合约，但没有披露具体的解约原因。
+对照一下欧盟驻华代表网站上发表的文章原文发现，中共官方英文媒体“中国日报”星期二（3月8抗日）刊发的这篇文章开头的一段里，“但是冠状病毒的爆发”( But the outbreak of the coronavirus)之后的“在中国，以及在过去三个月，随后又蔓延到世界其他地方”（in China, and its subsequent spread to the rest of the world over the past three months）被删除。对此，欧盟驻华代表郁白拒绝评论中国日报删除该文部分内容的原因。
 
-此前，华为被指协助俄罗斯「保护网络」，避免遭声援乌克兰的黑客攻击。
+现在各国逐渐放开防疫管制政策，因疫苗接种的管制抗议，以及各种副作用正在引起民众关注，各国政府必然会把病毒溯源工作提上日程。中共作为病毒的制造者和投放者，此时如坐针毡。任何有关病毒来自武汉的话题都会采用屏蔽信息的一贯做法，企图逃避病毒追责的恐惧已经使中共手足无措。这次的做法足以证明这一点。
 
-利云度夫斯基早前也曾就俄罗斯入侵乌克兰发声，又要求国际体坛立刻制裁俄罗斯，及表明不会参与世界杯外围赛对俄罗斯的比赛。
+众所周知，中共制造病毒并投放全世界。任何的狡辩和栽赃别国的做法只会使其遭到更严厉的打击。中共政权在全球各国的压力之下岌岌可危。
 
-（ 秘翻新闻 Milojai 编辑报道 ）
+信息来源：
 
-发布:星星
+[**欧盟：中国日报删除欧洲27国大使联名文章部分内容令人遗憾**](https://www.voachinese.com/a/eu-envoy-says-removal-phrase-op-ed-in-china-newspaper-regrettable-20200507/5409985.html)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

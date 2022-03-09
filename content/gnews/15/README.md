@@ -2,29 +2,33 @@
 ---
 
 
-## 俄罗斯政客提议将停产的外资工厂国有化
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2130052/)
+## 伦敦证交所集团：暂停在俄提供新产品和服务
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2130122/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-798.png)图片来自网络
-俄罗斯执政党的一名高级成员提议将因俄罗斯入侵乌克兰而在该国关闭运营的外资工厂国有化。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-包括福特和耐克在内的几家外国公司已经宣布暂时关闭在俄罗斯的商店和工厂，以便向俄罗斯施压，使其停止对乌克兰的入侵。
+整理：围剿维尼熊
+编辑：木木木mmmmm
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0160.jpg)图片来自：Jack Taylor/Getty Images
+伦敦证券交易所集团（LSEG）3月8日表示，从格林尼治时间周三12:00起，暂停在俄罗斯提供包括新闻和评论在内的新的产品和服务。
 
-很明显，外国公司的停产决定给俄罗斯人带来了不便，也激怒了俄罗斯执政当局。
+据路透社报导，LSEG这一决定是对俄罗斯上周颁布的一项新法律做出的回应。这项新法律规定，故意传播俄罗斯当局所称的“假新闻”将被视为刑事犯罪，相关记者可能会遭到长达15年的监禁。
 
-执政党委员会秘书安德烈·图尔恰克在统一俄罗斯网站上发表声明说，关闭业务是对俄罗斯的一场战争。但他承认将外资工厂收归国有是一个极端措施。
+根据该法律，报导任何可能损害俄罗斯军队声誉的事件都是非法的，包括俄军在乌克兰遭遇军事挫折和造成平民伤亡的消息。
 
-该声明提到芬兰私营食品公司Fazer、Valio和Paulig是最新宣布在俄罗斯关闭的公司。
+LSEG称，它还暂停了让其产品和服务在俄罗斯进行任何新的销售，但当前获得服务的客户可以继续使用其数据产品。
 
-Fazer公司在圣彼得堡有三家面包店，制作巧克力、面包和糕点。在莫斯科的一家分公司雇用了约2300名员工。Valio有一家奶酪工厂，在俄罗斯有400名员工。Paulig在俄罗斯有一家咖啡烘焙厂，雇佣了200名员工。
+参考链接：[伦敦证交所集团：暂停在俄发布新闻和评论](https://www.epochtimes.com/gb/22/3/8/n13631258.htm)
 
-同样在中共国也有很多外资公司，中共一旦攻打台湾，中共必将遭到国际社会的严厉制裁。到那时，这些外资公司不但生产会受到影响，公司也可能被中共国有化。
+*发布：tianzhihuan*
 
-因此，奉劝目前还在中共国运营的外资企业尽早撤离中共国。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-消息来源：[Russia proposes nationalising foreign-owned factories that shut operations](https://www.reuters.com/business/russia-proposes-nationalising-foreign-owned-factories-that-shut-operations-2022-03-08/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,36 @@
 ---
 
 
-## 欧洲27国大使联名文章谈及病毒起源 中共紧急删除
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2130033/)
+## 乌克兰救援快讯：近百名乌克兰师生已平安抵达波兰边境
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2130089/)
 
-撰稿：东京樱花团/加一颗稻草
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-40.jpg)[图片来源](https://www.khmertimeskh.com/50720616/eu-china-ties-vital-amid-global-crisis/)
-为纪念与中国建交45周年，欧盟27国大使联名发表题为“全球危机下欧中关系至关重要”(EU-China ties vital amid global crisis)的文章，但中国日报却删除了涉及中共病毒（新冠病毒）的部分内容。
+撰稿：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-50.png)
+据参与“新中国联邦乌克兰国际人道救援行动”一线战友证实，当地时间3月7日凌晨4点左右，两辆载有近100名乌克兰儿童和老师的大巴已经安全抵达波兰边境。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-800.png)
+喜马拉雅农场联盟已经提前为他们安排好了入住酒店，酒店现场有爆料革命战友负责接待，帮助孩子们办理酒店入住手续。
 
-对照一下欧盟驻华代表网站上发表的文章原文发现，中共官方英文媒体“中国日报”星期二（3月8抗日）刊发的这篇文章开头的一段里，“但是冠状病毒的爆发”( But the outbreak of the coronavirus)之后的“在中国，以及在过去三个月，随后又蔓延到世界其他地方”（in China, and its subsequent spread to the rest of the world over the past three months）被删除。对此，欧盟驻华代表郁白拒绝评论中国日报删除该文部分内容的原因。
+天空下着小雪，乘车前来的乌克兰老师和孩子们虽然一路劳顿，但秩序井然，给接待战友留下了深刻的印象。
 
-现在各国逐渐放开防疫管制政策，因疫苗接种的管制抗议，以及各种副作用正在引起民众关注，各国政府必然会把病毒溯源工作提上日程。中共作为病毒的制造者和投放者，此时如坐针毡。任何有关病毒来自武汉的话题都会采用屏蔽信息的一贯做法，企图逃避病毒追责的恐惧已经使中共手足无措。这次的做法足以证明这一点。
+俄罗斯的入侵仍在继续，已经有超过150万人逃离了乌克兰。
 
-众所周知，中共制造病毒并投放全世界。任何的狡辩和栽赃别国的做法只会使其遭到更严厉的打击。中共政权在全球各国的压力之下岌岌可危。
+到目前为止，新中国联邦是全球唯一一个没有任何诉求，顶着战火进入乌克兰战区免费救人的组织；是唯一一个不分种族不分国籍向难民提供救助的组织；是唯一一个把被CCP抛弃的中国人救出灾难的组织。
 
-信息来源：
+“新中国联邦乌克兰国际人道救援行动”从3月5日发起到现在短短几十个小时，已经成功从乌克兰救出包括中国人在内的各国民众数百人，新中国联邦用实际行动向全世界证明共产党不能代表中国人，中国人珍惜生命，中国人热爱和平！
 
-[**欧盟：中国日报删除欧洲27国大使联名文章部分内容令人遗憾**](https://www.voachinese.com/a/eu-envoy-says-removal-phrase-op-ed-in-china-newspaper-regrettable-20200507/5409985.html)
+链接：[【乌克兰救援】03/06/2022 法治基金和新中国联邦刚刚从乌克兰救援了96个孩子和老师](https://gettr.com/post/pylvyb6739)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-15.jpg)
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
