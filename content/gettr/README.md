@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 10:06 PM (UTC)`
+
+致乌克兰战场的所有同胞们……紧急紧急紧急。<br/><br/>由于中共控制了邮件服务商，意图破坏我们乌克兰救援行动，之前公布的网站和邮箱已被强行关闭，更新后的24小时紧急救援客服联系方式如下：<br/><br/>24小时客服热线（电话/短信）：<br/>+1 720-657-6776 <br/>+1 719-224-4232<br/>+48 508-532-712 <br/>+48 508-531-518<br/><br/>Telegram： t.me/UkraineRescue<br/><br/>盖特： gettr.com/user/UkraineRescue<br/><br/>邮箱： UkraineRescue01@protonmail.com 或 UkraineRescue02@protonmail.com <br/>
+![img](https://media.gettr.com/group36/getter/2022/03/09/22/cda11034-b39f-ffe5-8eaf-837c1f41d23b/out.jpg)
+
+---
+
 `@miles 3/9/2022 6:21 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
@@ -149,12 +156,6 @@ Due to the Chinese Communist Party manipulating our email service provider with 
 
 <br/>战友刚在边境的难民营采访了一个战地记者Emma，是一个法国记者，来自德国柏林，雇主是英国的时尚杂志I-D, 她听说过新中国联邦，很高兴知道我们是法治基金赞助的和新中国联邦的国际人道救援义工，她支持新中国联邦take down the CCP。 <br/><br/><br/>#盘古时讯 #乌克兰 #救援 #人道主义 #新中国联邦 #takedownCCP
 ![img](https://media.gettr.com/group44/getter/2022/03/08/23/c42f5ffa-90b6-e007-328e-778c1c558591/out.jpg)
-
----
-
-`@miles 3/8/2022 11:47 PM (UTC)`
-
-3月8号：扎扎实实的数据，反映了共产党在全世界给中国人拉仇恨的卑鄙结果……醒来吧……我们的中国同胞们。【报告称，去年全国反亚裔仇恨犯罪增加了 339% 根据数据，报告的反亚裔仇恨犯罪激增明显高于 2020 年，与前一年相比增加了 124%。 纽约市的反亚裔仇恨犯罪增加了特别剧烈，从 30 起增加到 133 起，增加了 343%。 旧金山也经历了惊人的增长，从 9 起犯罪增加到 60 起，增加了 567%。 洛杉矶也有 173% 的类似增幅！ 兄弟姐妹们 多多注意安全🙏💓 https://www.nbcnews.com/news/asian-america/anti-asian-hate-crimes-increased-339-percent-nationwide-last-year-repo-rcna14282 https://gettr.com/post/pyxyiw51d6】
 
 ---
 
