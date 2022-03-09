@@ -2,35 +2,27 @@
 ---
 
 
-## 禁令风险警示买家，更多俄罗斯石油被大幅打折
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2130318/)
+## 波兰边界地带一处难民营现场状况
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2130472/)
 
-翻译：文扬
-编辑：skyandmoon2012
+作者：波士顿五月花背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-1.52.13-PM.png)图片来源：互联网
+新中国联邦战友Nicole周二（3月8日）从波兰边界地带一处难民营报道，一些救援组织给乌克兰难民捐助衣物等物资，新中国联邦直播设备正在架设中，有媒体进驻难民营，好心的波兰人民给乌克兰难民捐赠新鲜食品、战地餐车、帐篷、热牛肉汤等。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-1.53.42-PM.png)图片来自Nicole战友前线采访视频截图 
+UNITED SIKHS是一个公民和人权、人道主义援助非营利组织和救灾非政府组织，也是联合国附属组织，旨在帮助不分肤色、种族、性别、国籍或信仰的人。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/GNH38PP5ECKQIQY.png)图片来源：雅典娜设计组
+新中国联邦在乌克兰紧急救援行动不分国籍，免费撤离，3月6日，已成功从乌克兰救出96名孩子喝当地慈善组织教师，一共113人。
 
+据Nicole战友报道，明道战友正在架设新中国联邦直播设备，一会测试设备，并与小福利战友联合直播。
 
-（彭博社）——来自远东的俄罗斯索科尔石油（Sokol）船货以大幅折扣报价，因为该国入侵乌克兰以及原油进口禁令的前景使买家对处理其石油持谨慎态度。
+难民营地有战地餐车（下图左一），从供给食品的车辆上看到有土豆、红萝卜、大蒜、黄油等（下图右一）。据Nicole战友当地情况了解，这些物资都是波兰好心人捐赠帮助乌克兰难民的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-1.55.02-PM.png)图片来自Nicole战友前线采访视频截图 
+难民进入遮风挡雨爱心帐篷，免费供应牛肉热汤（如下图）。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-1.56.08-PM.png)
+乌克兰难民包括女人和孩子正在帐篷内喝着热牛肉汤 图片来自Nicole战友前线采访视频截图 
+* * *
 
-知情人士表示，一家贸易公司提供了5月份装船的货物，该货物将从东部港口德卡斯特里（De-Kastri）装船。与迪拜的基准价格相比，每桶折扣高达14美元。这比上周托克集团以每桶1美元的溢价向索科尔提供的价格要低得多。
-
-由于中东的迪拜价格标价相对于伦敦的布伦特原油下跌，导致船运进一步贬值，因此出现了大幅折扣。知情人士说，这批货物没有立即进行交易或成交，贸易公司在现货市场上私下向亚洲炼油商展示了这批货物。这与大多数买家回避俄罗斯旗舰产品乌拉尔的情况类似，尽管其报价也很有吸引力。
-
-随着美国考虑对欧佩克+生产商实施更严厉的处罚，贸易商和炼油商对俄罗斯原油越来越警惕。 尽管出于安全考虑，买家一直对从波罗的海和黑海西部港口进口原油持谨慎态度，但担忧现在正蔓延到东部港口德卡斯特里和科兹米诺。因为潜在的制裁可能涉及所有俄罗斯出口，无论装载港口在哪里。
-
-上周五，壳牌公司(Shell Plc)以创纪录的折扣购买一船乌拉尔石油的举动遭到了一连串的批评。这家总部设在伦敦的公司后来表示，它将在政府的指导下驾驭市场。英国石油公司(BP Plc)和埃克森美孚(Exxon Mobil Corp.)等其他石油巨头早些时候承诺退出俄罗斯，而道达尔能源公司(TotalEnergies SE)表示其交易员将不再购买该国的原油。
-
-原文链接： [More Russian Oil Deeply Discounted as Ban Risk Alarms Buyers (yahoo.com)](https://finance.yahoo.com/news/more-russian-oil-heavily-discounted-094720437.html?fr=sychp_catchall)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*编辑&发布：Vicky*
 
  
 

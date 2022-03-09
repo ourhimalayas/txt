@@ -2,29 +2,35 @@
 ---
 
 
-## 日本东京樱花团 中文新闻播报第十五期
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2130634/)
+## 有声|四力角逐，四马奔腾的世代 – -从启示录第六章的四马奔腾看俄乌之战和新中国联邦
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2130704/)
 
-新闻内容摘要：
+配音：香草山福音部 – Daxia
 
-- 1.新中国联邦法治基金的救援行动已经将96名乌克兰儿童以及老师送往安全地带
-- 2.俄罗斯3月6日在表示，其主权债券的偿付将取决于西方国家
-- 3.日本外交部宣布已将全俄罗斯的危险度提升至3级
-- 4.新社交平台盖特在推出三天的时间内，就到达一百万的注册用户
-- 5.俄罗斯封锁了脸书(Facebook)和其他一些网站
-- 6.俄罗斯卢布大幅贬值,数字货币交易和使用未受阻碍
-- 7.瑞典政府将在本月底废除其《大流行病法》
-- 8.美国国务卿称北约国家同意向乌克兰派遣战机
-- 9.随着辉瑞疫苗真相的公开，会有更多的人对疫苗说不
-- 10.2022年1-2月，中共国对俄罗斯出口126.18亿美元
+关于启示录第六章的四匹马（白马，红马，黑马和灰马）已经有许多不同的解读和理解，随着末后世代的瘟疫，战争，饥荒的蔓延，以及世界上四种势力的角逐，这四匹马对于有信仰的人们有着崭新的意义和洞见，这里重新审视世界上的四大势力与这四匹马的对应关系和启示。
 
 
-**播报：东京樱花团-理想国**
 
-**发布： 东京樱花团-eiei**
+**文字版原文：[【信仰之声】四力角逐，四马奔腾的世代 – -从启示录第六章的四马奔腾看俄乌之战和新中国联邦](https://gnews.org/zh-hans/2121867/)**
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/erweima.png)
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
