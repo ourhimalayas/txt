@@ -2,24 +2,37 @@
 ---
 
 
-## 【 G时新闻 】美议员提出《独裁者法案》调查中共支持俄入侵乌克兰
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2132633/)
+## 有声|切尔诺贝利核电站被断电
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132726/)
 
-**播报：加拿大温哥华扬帆农场 – 莉李鲤**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月9日，乌克兰外交部长库莱巴发推表示，切尔诺贝利核电站的整条供电线路及其由俄军控制的所有核设施均遭到破坏。
 
-**视频制作：加拿大温哥华扬帆农场 –  文雅**
+切尔诺贝利已断电。我敦促整个国际社会紧急要求俄罗斯停火，并允许维修人员尽快恢复电力供应。
 
-大家好！今天的主题是美议员提出《独裁者法案》 调查中共支持俄入侵乌克兰！
+这些备用柴油发电机仅够为核电站及其设施提供48小时的电力。然后将导致关闭乏核燃料储存的冷却系统，这将威胁到核辐射的泄漏。俄罗斯的野蛮战争威胁着整个欧洲。普京必须立即制止这种情况！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/id12954441-radiation-copy-450x253-1.jpeg)
 
-据大纪元3月8日报道，美国众议员周一（3月7日）提出《独裁者法案》，调查中共在多大程度上支持俄罗斯入侵乌克兰，及其是否正协助俄罗斯逃避经济制裁。 这项法案全称为《2022年对中共直接调查、采取行动反对俄罗斯法案》（The Direct Investigations on China, Take Action to Oppose Russia Act of 2022）或依首字母简称《独裁者法案》（DICTATOR Act）。 该法案由加州共和党众议员金映玉（Young Kim）和密歇根州民主党众议员艾丽莎‧斯洛特金（Elissa Slotkin），以及其他11名众议院一同提出。 法案要求，国务卿必须在法令生效后90天内向国会提交一份非保密报告，调查中共是否在支持莫斯科，并制定一个明确的战略，防止北京进一步协助莫斯科逃避制裁。同时，该法案向中共发出一个明确的信息：任何协助俄罗斯逃避美国制裁的努力都不会被容忍，并将付出严重的代价。在俄罗斯全面入侵乌克兰后，西方国家实施了严厉的制裁，意图使俄罗斯经济孤立，以结束其对乌克兰的军事行动。
 
-然而，中共当局却谴责了国际制裁，称这些“非法单边制裁”，将“进一步加剧分裂和对抗”，重申中俄继续进行“正常贸易合作”，在俄罗斯入侵乌克兰后仅一天，北京即取消对俄罗斯小麦进口的限制，缓解了西方制裁的影响。 中共外交部长王毅本周一（3月7日）在两会期间的中外记者会上，再次重申中共与俄罗斯“坚如磐石”的关系，并再次拒绝将俄罗斯对乌克兰的军事行动称为入侵，王毅甚至在针对俄罗斯与乌克兰的冲突问题上，暗示“一切都是美国的错”。
+文字版原文：[切尔诺贝利核电站被断电](https://gnews.org/zh-hans/2131755/)
 
-**原文链接：**[https://gnews.org/zh-hans/2125571/](https://gnews.org/zh-hans/2125571/)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-**视频链接：**[https://gettr.com/post/pyzojfc970](https://gettr.com/post/pyzojfc970)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**编辑/上传：野草**
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,37 +2,31 @@
 ---
 
 
-## 有声|切尔诺贝利核电站被断电
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132726/)
+## 新中国联邦在波兰难民救助站设下最大救援帐篷
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2132936/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月9日，乌克兰外交部长库莱巴发推表示，切尔诺贝利核电站的整条供电线路及其由俄军控制的所有核设施均遭到破坏。
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-切尔诺贝利已断电。我敦促整个国际社会紧急要求俄罗斯停火，并允许维修人员尽快恢复电力供应。
+3月9日，新中国联邦法制基金、法治社会发起的乌克兰救援团队在波兰梅迪卡难民救助站设下最大救援帐篷，为逃离乌克兰战区的难民提供最专业、最温暖的救助。
 
-这些备用柴油发电机仅够为核电站及其设施提供48小时的电力。然后将导致关闭乏核燃料储存的冷却系统，这将威胁到核辐射的泄漏。俄罗斯的野蛮战争威胁着整个欧洲。普京必须立即制止这种情况！
-![](https://assets.gnews.org/wp-content/uploads/2022/03/id12954441-radiation-copy-450x253-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-103.jpg)图为新中国联邦前线救援战友为乌克兰难民发放毛毯（图片来自GETTR）
 
+波兰梅迪卡（Medyka）是波乌边境中离乌克兰最近的一个波兰城市，是乌克兰难民逃离战区的一个主要出口，很多国际媒体以及援助乌克兰的国际组织已聚集在此。
 
-文字版原文：[切尔诺贝利核电站被断电](https://gnews.org/zh-hans/2131755/)
+新中国联邦的前线救援团队也于昨日在此设下救援帐篷，为乌克兰难民提供食物和毛毯。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+专业的救援能力、及时的物资调配，让新中国联邦在梅迪卡难民救助站脱颖而出。梅迪卡当地的市长今日下午将该救助站中最大的摊位给了新中国联邦，而原本该区域是预留给国际红十字会的，但红十字会迟迟没有动作，所以当地市长做出决定将该区域给了新中国联邦，以便更好地救助乌克兰难民。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+据新中国联邦前线地救援战友透露，新中国联邦将在该区域设下4个50平米的救援大帐篷，以及1个存放物资、设备的工作篷，他们将在此为乌克兰难民提供了最专业、最温暖的救助。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+新中国联邦是在梅迪卡的唯一个不是政府机构的组织，但在做着很多政府机构该做却不做的乌克兰救援工作，并且做到了最好。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+参考链接：
+1.[https://www.gettr.com/streaming/pz1ocoe7cb](https://www.gettr.com/streaming/pz1ocoe7cb)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+素材采编：幽蘭自得
+总编：青城道姑
+校对发布：爱放飞
 
  
 

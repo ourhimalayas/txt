@@ -2,53 +2,34 @@
 ---
 
 
-## Charterflugzeuge für die Rettungsaktion stehen bereit
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2129088/)
+## 三八妇女节的那些女人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2129659/)
 
-**UKRAINEHELP-004**
+撰稿：东京樱花团/秋明
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-3.jpg)
+三八妇女节，朋友圈的女神们晒出美食鲜花礼物……优雅低调的闪耀出一连串的幸福
 
-Übersetzer: Maosheng, LK / Korrektor: Wenbin
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-2-1.jpg)Bild: Gettr.com
-Als Reaktion auf die steigende Zahl von Evakuierten und Flüchtlingen an der ukrainisch-polnischen Grenze geben die NFSC und die Rule-of-Law-Foundation (ROLF) einen vorläufigen Zeitplan für die ersten kostenlosen Charterflüge am 15. März 2022 auf den folgenden Strecken bekannt, der je nach den Umständen angepasst werden kann:
+三八妇女节， 听说为铁链女发声的乌衣姑娘又被抓了，被合肥，六安，徐州联合抓捕，目前音讯全无
 
-1. Abflug von Polen – Rzeszow Flughafen nach New York, USA über Toronto, Kanada.
-2. Direktflug von Polen – Rzeszow Flughafen in ein Land in Südostasien (wird noch angekündigt).
+三八妇女节，铁链女，铁笼女，地牢女，裹衣女……依然不知谁家女儿
 
+那些犯下滔天罪孽的禽兽、贩卖人口产业链的各个人渣，那些罪恶的源头，依然没有得到法律惩罚，相反，国家公权力把他们保护起来，禁区无人可入可查。
 
-Die NFSC und ROLF stellen kostenlose Charterflüge zur Verfügung, um den von der illegalen russischen Invasion Betroffenen zu helfen und dies ist Teil unserer Mission, den Kampf für die Freiheit in Ländern zu unterstützen, die von kommunistischen und autoritären Regierungen beherrscht werden.
+于是
 
-Wenn Sie einen unserer Charterflüge nehmen möchten, wenden Sie sich bitte an unsere aktuelle 24-Stunden-Service-Hotline. Alle Passagiere müssen die Visabestimmungen ihres Reiseziels erfüllen. Bei Bedarf stellen die NFSC und ROLF vor der Abreise kostenlose Unterkunft und Verpflegung zur Verfügung.
+三八妇女节，又看到几个花骨朵样的女孩走失，多少家庭支离破碎，多少亲人一夜崩溃？
 
-Da die Kommunistische Partei Chinas (CCP) die Kontrolle über unseren E-Mail-Anbieter ausgeübt hat und unsere Rettungsaktion in der Ukraine absichtlich sabotiert hat, wurden die zuvor veröffentlichte Website und die E-Mail-Adresse zwangsweise geschlossen.
+三八妇女节，有人在山顶欢娱，有人在山崖命悬，有人在谷底哀嚎，有遍野尸骨无名
 
-Die aktualisierten Kontaktdaten für den 24-Stunden-Notfall-Rettungsdienst lauten wie folgt:
+只是你不知道自己的下个角色在哪里？
 
-24-Stunden-Notfall-Rettungsdienst-Hotline (Telefon/SMS):
+Takedown ccp!
 
-+1 720-657-6776 oder
+解救千千万万被暴虐残害悲苦的华夏女儿!
 
-+1 719-224-4232 oder
-
-+48 508-532-712 oder
-
-+48 508-531-518
-
-Telegram： [t.me/UkraineRescue](https://t.me/UkraineRescue)
-
-Gettr： [gettr.com/user/UkraineRes…](http://gettr.com/user/UkraineRescue)
-
-E-Mail: [\[email protected\]](/cdn-cgi/l/email-protection) oder UkraineRescue02[\[email protected\]](/cdn-cgi/l/email-protection)
-
-NFSC
-
-Rule of Law Foundation
-
-8. März 2022
-
-相关链接：[https://gettr.com/post/pywg9uf691](https://gettr.com/post/pywg9uf691)
-
-Veröffentlicht von: LK
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

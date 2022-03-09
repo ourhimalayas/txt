@@ -2,38 +2,33 @@
 ---
 
 
-## 有声|佛州将反对为健康儿童接种中共病毒疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132693/)
+## 研究表明轻微的CCP病毒感染也会导致大脑出现变化
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2132908/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月7日，由于联邦卫生官员批准并鼓励在5岁的儿童中使用辉瑞公司的疫苗，佛罗里达州卫生部长约瑟夫·拉达波博士在州长德桑蒂斯组织的一次圆桌会议上表示，该州将正式提议，反对为健康儿童提供中共病毒疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-4.jpeg)
-尽管有专家担心这项反对措施可能使父母对从儿科医生、美国儿科学会和疾病控制中心听到的信息产生质疑，但拉波达认为，一般情况下，儿童比成人转为重症的可能性低很多，即使不幸患病，也应该因人而异进行量化与个性化的治疗。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.9-D.jpg)网络图片
+近日一项新的研究表明，CCP病毒感染可能会加速大脑的衰老以及其他异常变化，即便感染症状表现轻微。这项研究于本周发表在《自然》杂志上，研究规模据信是同类研究中最大的。
 
-二月底，拉达波和德桑蒂斯已经宣布了新的政策建议，不鼓励戴口罩，并指示医生在治疗病毒患者时行使自己的判断力，包括使用新兴疗法和标签外药物。
+研究发现，与没有感染CCP病毒的人士相比，CCP病毒感染者的大脑灰质损失和脑组织异常更多——其中许多变化发生在与嗅觉相关的大脑区域。
 
+牛津大学神经科学副教授、主要作者 Gwenaëlle Douaud 说：“我们也很惊讶地看到：即使是轻度感染，患者的大脑仍然存在明显差异。”
 
+这一研究结果来自2020 年 3 月至 2021 年 4 月期间感染 CCP病毒的 401 名患者的大脑成像，其样本包括感染前和感染后平均四个半月。Gwenaëlle Douaud和同事们将这些结果与 384 名年龄、社会经济学和风险因素（如血压和肥胖）相似的未感染者的脑成像进行了比较。
 
-文字版原文：[佛州将反对为健康儿童接种中共病毒疫苗](https://gnews.org/zh-hans/2130001/)
+785 名参与者的年龄在 51 至 81 岁之间，并且都是英国生物银行的一部分——该数据库是一个持续的政府健康数据库，包含 500,000 人，始于 2012 年。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+Douaud 副教授解释说，随着年龄的增长，人们在大脑的记忆相关区域每年会失去 0.2% 到 0.3% 的灰质是正常的，但在研究评估中，感染冠状病毒患者的组织损失了额外的 0.2% 至 2%。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+除了成像之外，参与者还使用 Trail Making Test 测试了他们的执行和认知功能，这是一种用于帮助检测与痴呆相关的认知障碍并测试一个人的大脑处理速度和功能的工具。研究人员发现，那些脑组织损失最大的人在这次考试中表现也最差。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+尽管受影响最严重的大脑区域似乎与嗅觉系统有关，但 Douaud 副教授表示，目前尚不清楚为什么会出现这种情况。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+“由于我们在受感染参与者的大脑中看到的异常变化可能部分与他们的嗅觉丧失有关，因此恢复嗅觉可能会导致这些大脑异常随着时间的推移变得不那么明显……不过找出答案的最好方法，是在一两年后再次扫描这些参与者。”
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+新闻参考链接：
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[9 News](https://www.9news.com.au/world/study-links-even-mild-covid19-to-changes-in-the-brain/f853cbb7-3f5a-4bca-b9e0-85e41aa2a785)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

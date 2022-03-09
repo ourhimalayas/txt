@@ -2,30 +2,50 @@
 ---
 
 
-## 新冠疫苗导致的胎儿死亡数量增加了20倍， 但CDC仍建议孕妇接种疫苗
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2131186/)
+## 新中国联邦法制基金乌克兰救援团建战地新闻直播中心
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2131596/)
 
-#### 编译               意大利达芬奇农场                   小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-09-alle-09.35.15.png)图片来源：eventiavversinews.it
-据Health Impact News 报道，FDA和CDC继续执行将mRNA疫苗投入市场这一犯罪行为，尽管有压倒性的证据证明它们会导致伤害和死亡。现在向美国政府的疫苗不良系统VAERS报告了超过100万例死亡和受伤病例; 现在甚至开始在亲制药企业媒体上进行报告， 因为保险公司继续报告他们从2021年开始的数据， 当新冠疫苗推出以后，人寿和健康保险索赔急剧增加。
+作者：香草山农场写作组 – 静言
 
-自上周五更新VAERS数据库（包括截至22年2月18日的数据）以来，由于向孕妇和育龄妇女注射新冠疫苗， 已记录了3725例胎儿死亡。这些胎儿的死亡大多数发生在注射了辉瑞疫苗之后。
 
-根据疾病预防控制中心的数据， 美国目前已经接种了5.5亿剂新冠疫苗。这意味着每接种147651剂新冠疫苗，VAERS报告就有1例胎儿死亡。
 
-相比之下， 从2006年到2019年， 美国接种了超过40亿剂（4.092.757.049）剂疫苗。在这14年中， VAERS报告了1369例胎儿死亡。这意味着从2006年到2019年， 每注射2.989.596剂疫苗，就有1名胎儿死亡报告上报给VAERS。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-与2006年至2019年14年间接种的所有疫苗相比， 接种新冠疫苗后的胎儿死亡人数增加了1,925%。但是CDC对孕妇关于新冠疫苗的建议没有改变: 他们建议现在尝试怀孕或将来可能怀孕的女性及其伴侣接种新冠疫苗。此外所有怀孕、母乳喂养、现在试图怀孕或将来可能怀孕的人都应该接种加强针。
 
-CDC 没有建议在接种新冠疫苗之前进行常规的妊娠检测。如果您正在尝试怀孕或可能想要怀孕， 则无需避免接种新冠疫苗。那些想要怀孕的人不需要在接种新冠疫苗后避免怀孕。如果您在接种了第一剂新冠疫苗后怀孕，您还应该接种第二剂以获得最大保护。
 
-那些接种了CDC建议的新冠疫苗之后失去了孩子的母亲们在阅读了这些建议后，他们会怎么想呢？
+3月8日，新中国联邦法治基金乌克兰救援队前线发回简讯，参与救援的各个分队会有明确分工。
 
-简评： 尽管有科学数据作为依据，还有有良知的医生和科学家在大声疾呼停止新冠疫苗， 但屠杀还在继续。从这些惊人的死亡率和造成的伤害来看，新冠疫苗给人类带来的灾难会是乌克兰战争的千倍、万倍都不止。
+华盛顿农场阿丙团队将前往波兰与乌克兰交界的小镇Medyka, 建立战地新闻直播中心，此镇是乌克兰人逃生必经之地。昨天刚刚到达的洛杉矶团队负责人明道，负责Medyka的战地新闻报道。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture-27.jpg)
+鉴于目前乌克兰局势日益恶化，新中国联邦救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
+自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发前往波兰。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+求助方式请参考以下视频。
 
-原文链接： [https://www.eventiavversinews.it/le-morti-fetali-a-seguito-di-vaccini-covid-19-aumentano-di-20-volte-ma-il-cdc-li-raccomanda-ancora-per-le-donne-incinte/](https://www.eventiavversinews.it/le-morti-fetali-a-seguito-di-vaccini-covid-19-aumentano-di-20-volte-ma-il-cdc-li-raccomanda-ancora-per-le-donne-incinte/)
+意大利文科团队将在Medyka 指挥营救行动。
 
-编辑、上传                Xiao   baige
+当地时间8日早晨还有另外一条喜讯，在救援队前往乌克兰边境救援的路上，看见一辆有红十字会标记的大巴往乌克兰边境开去。连日来辛苦疲惫且孤单营救的新中国联邦战友们，心里感到无比温暖，愿更多正义力量加入营救乌克兰难民的阵营。
+
+参考链接：
+[新中国联邦和法治基金关于紧急救援乌克兰的通知](https://gettr.com/post/pyw9zs571a)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/审核：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
