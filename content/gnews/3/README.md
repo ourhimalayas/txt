@@ -2,25 +2,47 @@
 ---
 
 
-## 俄乌战争将导致全球粮食危机
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2133226/)
+## 在价格飙升的情况下，汽油盗窃似乎呈上升趋势
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2133291/)
 
-采编撰稿：加拿大温哥华杨帆农场 –  文莱
+作者：Michael Ranger
+翻译：HimaFAFA
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-99.png)
+大多伦多地区的汽油零售价持续大幅上涨，一些加油站经营者称，有司机加完油后不付钱就离开了。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-62-1.jpg)图片来源：breitbart
+据CityNews获悉，最近几周，多伦多西区有7家加油站都发生了盗油事件，其中包括Etobicoke的Kipling和Dundas附近一间加油站，该加油站至少被盗了价值1000元的汽油。
 
+店员说，偷窃行为都会被摄像头拍下来，但有时候，这些司机的车牌是偷来的。
 
-据美国【布莱特巴特新闻】3月8日报道，由于俄罗斯和乌克兰都是全球粮食供应的主要来源地，也都拥有世界上最大规模的先进化肥生产公司，因此，俄军入侵乌克兰将导致世界粮食供应危机。
+据某间加油站的店员说，一名司机用一辆挂着偷来的车牌的U-Haul面包车偷走了价值200多元的汽油。
 
-报道称，俄乌战争对乌克兰化肥公司的生产和出口都造成了毁灭性打击。全球范围内的化肥及其原材料供应不足，正在对各国粮食供应造成灾难性影响。同时，由于俄乌的粮食供应及储备均占全球重要比例，因此战争恶果将损害到全世界。
+警方说，他们会调查每一起事件，那些被抓住的人将面临包括偷窃在内的刑事指控。
 
-据悉，在俄乌战争爆发之前，天然气价格的持续上涨已经导致化肥成本急剧上升，加之全球食品生产中的部分关键营养素都来自俄罗斯，因此，欧美对该国的全面制裁将加剧粮食供应的限制。
+更多的加油站表示，他们可能会改用先付费再加油的方式，避免再被盗油。
 
-校对编辑：硫酸羟氯喹64
+目前，多伦多地区的汽油价格为每升184.9分，预计明天周三将再次上涨。
 
-发稿：文明(添草灭共)
+GasBuddy.com的分析师Patrick de Hann表示：“在加拿大，这个价格已经创下了历史新高。在接下来的一到两周内，加拿大大部分地区的汽油价格将继续上涨每升5到15分。所以无论你在美国或加拿大的哪个地方，痛苦都是一样的。”
 
-原文链接： [Ukraine War Will Have ‘Catastrophic’ Effect on Food Supply – Agri Org (breitbart.com)](https://www.breitbart.com/europe/2022/03/08/global-food-crisis-ukraine-war-will-have-catastrophic-effect-on-global-food-supply-agri-org/)
+在油价最贵的卑诗省，目前的零售价已经超过了每升2元。全国其他各地的油价数字也令人瞠目。
+
+分析称，俄罗斯入侵乌克兰将油价推至至少8年未见的水平，原因是石油公司避开俄罗斯的原油，西方的制裁又将一些俄罗斯银行排除在全球支付系统之外，严重扰乱了俄罗斯的原油出口。
+
+来源：https://toronto.citynews.ca/2022/03/08/gas-prices-theft-gta/
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

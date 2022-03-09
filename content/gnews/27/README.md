@@ -2,37 +2,39 @@
 ---
 
 
-## 有声|佛州将反对为健康儿童接种中共病毒疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132693/)
+## 妇女节当天世界为铁链女发声
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2132835/)
 
-配音：香草山佛教部 – 李傻
+作者：银河系农场 – 骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月7日，由于联邦卫生官员批准并鼓励在5岁的儿童中使用辉瑞公司的疫苗，佛罗里达州卫生部长约瑟夫·拉达波博士在州长德桑蒂斯组织的一次圆桌会议上表示，该州将正式提议，反对为健康儿童提供中共病毒疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-4.jpeg)
-尽管有专家担心这项反对措施可能使父母对从儿科医生、美国儿科学会和疾病控制中心听到的信息产生质疑，但拉波达认为，一般情况下，儿童比成人转为重症的可能性低很多，即使不幸患病，也应该因人而异进行量化与个性化的治疗。
+3月8日国际妇女节当天，郭文贵先生在盖特平台上发布了歌曲《锁链梦》作为最特别的礼物，送给全天下的女性同胞。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-12.jpg)
+与此同时，墙内关注“锁链女”事件的民众也在盖特和其他社交媒体平台上为这些受害女性发声：有网友展示了自制的标语牌，其上写着锁链女那句被世界遗弃的悲凉语句，以及“关注女性儿童，关注未来”的呼吁；还有相关的歌曲唱出了民众希望救援这些受害女性的诉求。此外，有位作家发表文章称，她尝试佩戴了两个小时的自制锁链后，已经让她无法呼吸，但“锁链女”却被铁链禁锢了24年，这一难以承受的苦痛让这位作家潸然落泪。另有上海地区的学生身缠锁链作为行为艺术，向公众揭示“锁链女”事件。
 
-二月底，拉达波和德桑蒂斯已经宣布了新的政策建议，不鼓励戴口罩，并指示医生在治疗病毒患者时行使自己的判断力，包括使用新兴疗法和标签外药物。
+另一方面，锁链女的事件也在国际上引起了重大关注：近日，国际品牌在巴黎时装周上让模特戴着锁链走秀，表达出对锁链女的声援。
 
+参考链接：
+1). [转自主内作家沙光：这根链子约三斤重，我录制视频戴了两个小时，倍觉窒息，可见，疯县锁链女子常年遭此桎梏，何堪忍受。\[流泪\]\[心碎\]\[发怒\]](https://gettr.com/post/pyo9m3752d)
+2). [2022年巴黎时装周， 时尚是人的时尚 因为善良，同理心，所以有人类同胞。 为锁链女祝福。](https://gettr.com/post/pyrvi529ad)
+3). [三八缚女结，我们替千万女同胞发声。](https://gettr.com/post/pytc7i26a3)
+4). [一位奶爸**👨‍🍼**战友。 憋不住来KTV房唱铁锁梦，**😂😂**](https://gettr.com/post/pytca822e1)
+5).[铭记历史，拯救铁链女靠战友们行动。](https://gettr.com/post/pytr3o80a4)
+6).[2022 #巴黎时装周 off-white向丰县 #锁链女 致敬— 剪断锁链 三八妇女节—— 祝世界所有女同胞都不沦为 锁链女](https://gettr.com/post/pyrse1a150)
+7). [Shanghai Yangpu street, International Women’s Day performance art 上海杨浦街头，国际妇女节行为艺术](https://gettr.com/post/pyunap8bb6)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-文字版原文：[佛州将反对为健康儿童接种中共病毒疫苗](https://gnews.org/zh-hans/2130001/)
+总编/编辑/审核: Irene木木
+校正/发稿：Fei797
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,33 +2,26 @@
 ---
 
 
-## 有声|中兴通讯面临违反美国缓刑条例的听证会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2133106/)
+## 俄乌战争将导致全球粮食危机
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2133226/)
 
-配音：香草山教育部 – 百香果
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+采编撰稿：加拿大温哥华杨帆农场 –  文莱
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-62-1.jpg)图片来源：breitbart
 
 
-3月5日，国外媒体报道，中共中兴通讯即将于3月14日面临一项新指控，指控认为，它违反了向伊朗非法运输美国技术的认罪缓刑条例。
+据美国【布莱特巴特新闻】3月8日报道，由于俄罗斯和乌克兰都是全球粮食供应的主要来源地，也都拥有世界上最大规模的先进化肥生产公司，因此，俄军入侵乌克兰将导致世界粮食供应危机。
 
-2017年，中共中兴通讯违反美国法律，非法向伊朗和朝鲜出售美国技术，中兴认罪并缴纳了8.92亿美元的罚款。当时中兴方承诺接受三年缓刑条例，实施企业合规计划，设立监督机制。但在2018年，美国商务部发现中兴撒谎，随即禁止中兴与美国开展业务，此后中兴又缴纳了10亿美元，再次同意接受为期十年的缓刑条例。
+报道称，俄乌战争对乌克兰化肥公司的生产和出口都造成了毁灭性打击。全球范围内的化肥及其原材料供应不足，正在对各国粮食供应造成灾难性影响。同时，由于俄乌的粮食供应及储备均占全球重要比例，因此战争恶果将损害到全世界。
 
-3月14日的法庭指控，同样和中兴撒谎有关。起诉书中写道，中兴非法将中国公民带到新泽西中兴通讯工作，用的是美国专为佐治亚理工学院设定的工作和学习用的J-1签证，涉嫌签证欺诈。
+据悉，在俄乌战争爆发之前，天然气价格的持续上涨已经导致化肥成本急剧上升，加之全球食品生产中的部分关键营养素都来自俄罗斯，因此，欧美对该国的全面制裁将加剧粮食供应的限制。
 
-文字版原文：[中兴通讯面临违反美国缓刑条例的听证会](https://gnews.org/zh-hans/2118122/)
+校对编辑：硫酸羟氯喹64
 
-音频处理：Fei797
-发稿：Fei797
+发稿：文明(添草灭共)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+原文链接： [Ukraine War Will Have ‘Catastrophic’ Effect on Food Supply – Agri Org (breitbart.com)](https://www.breitbart.com/europe/2022/03/08/global-food-crisis-ukraine-war-will-have-catastrophic-effect-on-global-food-supply-agri-org/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

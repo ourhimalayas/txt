@@ -2,51 +2,30 @@
 ---
 
 
-## 多伦多警方警告居民警惕“祖父母骗局”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2133116/)
+## 纳斯达克通知 辉瑞从纽约证券交易所退市
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2133228/)
 
-作者：Austin Delaney
-翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/03/70_104035136.jpg)
-多伦多警方向有老人的家庭发出警告，有骗子专门盯上这些老人，这个骗局今年已经使受害者损失了百万元。
+翻译：灭共文明
 
-该骗局是一个人打电话给老人，假装是他们的孙子，说他们被警察抓住遇到”大麻烦”，需要钱才能从监狱保释。
+编辑与校对：冰糖葫芦喵
 
-多伦多警察局警员Ella Bhardwaj说：”他们会听起来很痛苦，哭着说他们有麻烦，他们需要帮助，需要钱。然后电话会被转给一个自称是律师或警察的人，并要求现金才能释放他们。”
+据美国投资研究平台《寻找阿尔法》（Seeking Alpha ）3月8日报道，**在纳斯达克宣布辉瑞公司的退市通知后，阿里那生物制药公司（Arena Pharma）一度走高。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image_1227740128-e1646850547370.jpg)辉瑞制药公司（图片来源：网络）
+报道称，**纳斯达克的退市通知显示，由于完成对辉瑞公司的出售，该公司的最后一个交易日将是在本周四，3月10日。**
 
-Bhardwaj说，骗子会告诉老年受害者去银行提取大笔现金以确保他们的孙子获释。并说会有一个快递员来他们家取钱，只有这样，孩子才会从警方的拘留中获释。
+根据纳斯达克的退市通知，**合并暂定在周五开市前完成。**为了迎接合并，该股将在周四晚上8点的盘后交易中停牌。
 
-警方表示，这些”孙子”从未被警方拘留，而且钱也会有去无回。
+有消息称，**辉瑞公司刚刚向证券交易委员会(SEC)提交了一份表格25**。在这表格25中说，**他们想把他们的证券从交易所摘牌，他们想要推出公开市场。这意味着辉瑞将不再是一家上市公司。**
 
-在最近的一起案件中，一位祖父母被告知要从银行取25,000元，并等待快递员来取钱。受害者想帮助家人，却上了当。
+**郭文贵先生在3月9日的大直播中说，未来辉瑞、莫得那、强生等这些推出毒疫苗的大制药公司，都将面临雪崩式的民事诉讼。**
 
-Bhardwaj说，这决不是警察的做事方式。
+新闻来源链接：
 
-Bhardwaj说：”任何时候，警察都不会要求你去银行取出一大笔钱，让快递员去你家取钱。警察不会这样做。”
+[Arena Pharma stock ticks higher on Nasdaq delisting notice for Pfizer deal (NASDAQ:ARNA) | Seeking Alpha](https://seekingalpha.com/news/3810906-arena-pharma-ticks-higher-on-nasdaq-delisting-notice-for-pfizer-deal)
 
-一年多来，有80位祖父母成为这种电话诈骗的受害者，总共被骗了近100万元。
+[Pfizer delisting from New York Stock exchange! | Truth11.com](https://truth11.com/2022/03/09/pfizer-delisting-from-new-york-stock-exchange/)
 
-魁北克省拉瓦尔市24岁的Nikolaos Antonopoulos，实施诈骗后在多伦多家中被捕。据称他要求受害者再提供21,000元，以使他们的孙子从警方拘留中安全获释。
-
-这一次受害者报了警。他被指控犯有五项超过5,000元的欺诈罪。
-
-多伦多警方表示，他们希望任何其他受害者能够站出来。
-
-来源：https://toronto.ctvnews.ca/toronto-police-warn-residents-about-grandparents-scam-costing-people-thousands-of-dollars-1.5811352
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[2022年3月9日 文贵大直播：是谁黑掉乌克兰救援邮件官网；是谁暂禁郭先生油管上传视频；什么力量封杀乌克兰救援信息；《铁锁梦》创作及推出后感受 (gettr.com)](https://www.gettr.com/streaming/pz1ocoe7cb)
 
  
 
