@@ -2,29 +2,36 @@
 ---
 
 
-## 俄罗斯政客提议将停产的外资工厂国有化
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2130052/)
+## 乌克兰救援快讯：近百名乌克兰师生已平安抵达波兰边境
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2130089/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-798.png)图片来自网络
-俄罗斯执政党的一名高级成员提议将因俄罗斯入侵乌克兰而在该国关闭运营的外资工厂国有化。
+撰稿：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-50.png)
+据参与“新中国联邦乌克兰国际人道救援行动”一线战友证实，当地时间3月7日凌晨4点左右，两辆载有近100名乌克兰儿童和老师的大巴已经安全抵达波兰边境。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-800.png)
+喜马拉雅农场联盟已经提前为他们安排好了入住酒店，酒店现场有爆料革命战友负责接待，帮助孩子们办理酒店入住手续。
 
-包括福特和耐克在内的几家外国公司已经宣布暂时关闭在俄罗斯的商店和工厂，以便向俄罗斯施压，使其停止对乌克兰的入侵。
+天空下着小雪，乘车前来的乌克兰老师和孩子们虽然一路劳顿，但秩序井然，给接待战友留下了深刻的印象。
 
-很明显，外国公司的停产决定给俄罗斯人带来了不便，也激怒了俄罗斯执政当局。
+俄罗斯的入侵仍在继续，已经有超过150万人逃离了乌克兰。
 
-执政党委员会秘书安德烈·图尔恰克在统一俄罗斯网站上发表声明说，关闭业务是对俄罗斯的一场战争。但他承认将外资工厂收归国有是一个极端措施。
+到目前为止，新中国联邦是全球唯一一个没有任何诉求，顶着战火进入乌克兰战区免费救人的组织；是唯一一个不分种族不分国籍向难民提供救助的组织；是唯一一个把被CCP抛弃的中国人救出灾难的组织。
 
-该声明提到芬兰私营食品公司Fazer、Valio和Paulig是最新宣布在俄罗斯关闭的公司。
+“新中国联邦乌克兰国际人道救援行动”从3月5日发起到现在短短几十个小时，已经成功从乌克兰救出包括中国人在内的各国民众数百人，新中国联邦用实际行动向全世界证明共产党不能代表中国人，中国人珍惜生命，中国人热爱和平！
 
-Fazer公司在圣彼得堡有三家面包店，制作巧克力、面包和糕点。在莫斯科的一家分公司雇用了约2300名员工。Valio有一家奶酪工厂，在俄罗斯有400名员工。Paulig在俄罗斯有一家咖啡烘焙厂，雇佣了200名员工。
+链接：[【乌克兰救援】03/06/2022 法治基金和新中国联邦刚刚从乌克兰救援了96个孩子和老师](https://gettr.com/post/pylvyb6739)
 
-同样在中共国也有很多外资公司，中共一旦攻打台湾，中共必将遭到国际社会的严厉制裁。到那时，这些外资公司不但生产会受到影响，公司也可能被中共国有化。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-15.jpg)
 
-因此，奉劝目前还在中共国运营的外资企业尽早撤离中共国。
+校正/发稿：浪迹天涯
 
-消息来源：[Russia proposes nationalising foreign-owned factories that shut operations](https://www.reuters.com/business/russia-proposes-nationalising-foreign-owned-factories-that-shut-operations-2022-03-08/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

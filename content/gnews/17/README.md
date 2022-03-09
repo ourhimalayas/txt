@@ -2,32 +2,25 @@
 ---
 
 
-## 伦敦证交所集团：暂停在俄提供新产品和服务
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2130122/)
+## 视频|佛州将反对为健康儿童接种中共病毒疫苗
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2130261/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+制作：香草山视频部
 
-整理：围剿维尼熊
-编辑：木木木mmmmm
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0160.jpg)图片来自：Jack Taylor/Getty Images
-伦敦证券交易所集团（LSEG）3月8日表示，从格林尼治时间周三12:00起，暂停在俄罗斯提供包括新闻和评论在内的新的产品和服务。
+3月7日，由于联邦卫生官员批准并鼓励在5岁的儿童中使用辉瑞公司的疫苗，佛罗里达州卫生部长约瑟夫·拉达波博士在州长德桑蒂斯组织的一次圆桌会议上表示，该州将正式提议，反对为健康儿童提供中共病毒疫苗。
 
-据路透社报导，LSEG这一决定是对俄罗斯上周颁布的一项新法律做出的回应。这项新法律规定，故意传播俄罗斯当局所称的“假新闻”将被视为刑事犯罪，相关记者可能会遭到长达15年的监禁。
+尽管有专家担心这项反对措施可能使父母对从儿科医生、美国儿科学会和疾病控制中心听到的信息产生质疑，但拉波达认为，一般情况下，儿童比成人转为重症的可能性低很多，即使不幸患病，也应该因人而异进行量化与个性化的治疗。
 
-根据该法律，报导任何可能损害俄罗斯军队声誉的事件都是非法的，包括俄军在乌克兰遭遇军事挫折和造成平民伤亡的消息。
+二月底，拉达波和德桑蒂斯已经宣布了新的政策建议，不鼓励戴口罩，并指示医生在治疗病毒患者时行使自己的判断力，包括使用新兴疗法和标签外药物。
 
-LSEG称，它还暂停了让其产品和服务在俄罗斯进行任何新的销售，但当前获得服务的客户可以继续使用其数据产品。
+发稿：雪梨
 
-参考链接：[伦敦证交所集团：暂停在俄发布新闻和评论](https://www.epochtimes.com/gb/22/3/8/n13631258.htm)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
