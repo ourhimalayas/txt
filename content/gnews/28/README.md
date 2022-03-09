@@ -2,31 +2,41 @@
 ---
 
 
-## 切尔诺贝利核电站被断电
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2131755/)
+## 拜登政府向数百家媒体支付款项用来推广中共病毒疫苗
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2131782/)
 
-作者：香草山健身部—正道新闻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-【新闻链接】[https://twitter.com/dmytrokuleba/status/1501531656204783620?s=21](https://twitter.com/dmytrokuleba/status/1501531656204783620?s=21)
-3月9日，乌克兰外交部长库莱巴发推表示，切尔诺贝利核电站的整条供电线路及其由俄军控制的所有核设施均遭到破坏。
-
-切尔诺贝利已断电。我敦促整个国际社会紧急要求俄罗斯停火，并允许维修人员尽快恢复电力供应。
-
-这些备用柴油发电机仅够为核电站及其设施提供48小时的电力。然后将导致关闭乏核燃料储存的冷却系统，这将威胁到核辐射的泄漏。俄罗斯的野蛮战争威胁着整个欧洲。普京必须立即制止这种情况！
+作者: 银河系农场—骄子
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
+据外媒报道，美国卫生与公众服务部（United States Department of Health and Human Services，缩写：HHS）向数百家美国媒体公司支付款项用来推广中共病毒疫苗的广告。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-8.50.58-PM.png)图片来源: 网络
+美国政府机构HHS从ABC、CBS、NBC、FOX NEWS、CNN等多家主流媒体购买广告，主要方式为投放文章和视频片段，这些内容全部对中共病毒疫苗持有积极的态度，更夸张的是纳税人资金并未披露。据悉该笔资金来自2021年度纳税人资助的10亿美元联邦竞选资金，旨在增强美国人对中共病毒疫苗的信心。
 
-审核/编辑/发稿:qiutian（邱甜）
+另外这些主流媒体还对那些对中共病毒来自武汉实验室，以及对中共病毒疫苗持怀疑态度的看法进行打击，反过来指责他们传播错误信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+目前HHS尚未披露具体每个媒体的费用。
+
+新闻来源: [https://www.lifesitenews.com/news/report-biden-admin-gave-taxpayer-dollars-to-legacy-media-outlets-to-promote-covid-jabs/](https://www.lifesitenews.com/news/report-biden-admin-gave-taxpayer-dollars-to-legacy-media-outlets-to-promote-covid-jabs/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
+
+
+
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,79 +2,28 @@
 ---
 
 
-## 危险！！！这就是俄国开始栽赃嫁祸的方式
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2129815/)
+## 中日财经爆| 中共国房企禹洲集团爆雷 公告票据违约
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2130034/)
 
-马可·卢比奥： 危险！！！ 这就是俄国开始栽赃嫁祸的方式。 如果乌克兰发生生物武器事件，100% 确定是俄罗斯人干的 【图片大意：俄外交部称发现乌克兰实验室在发展生物武器，由美国防部资助】
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-10.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fi1.hexun.com%2F2021-07-27%2F204038999.jpg&amp;imgrefurl=http%3A%2F%2Fm.163fans.com%2Fnews%2Fshow%2F6043%2F&amp;tbnid=mjc8x0mrDAfiXM&amp;vet=12ahUKEwiu3oO9mbj2AhUE3pQKHaKfAi0QMygDegUIARCsAQ..i&amp;docid=blQWHMF0HsGm_M&amp;w=)
+3月7日，中共国又一房企爆雷违约，禹洲集团发布公告称其未在宽限期届满前支付一笔到期的优先票据利息，已构成违约。
 
+禹洲集团周二股票盘中重挫逾8%，创2009年11月上市以来新低，该股此前已连续两个交易日收跌。公司公告称，其未在宽限期届满前支付2023年到期的8.5%优先票据的利息，已构成违约。
 
+公告显示，公司发行的并于联交所上市的2023年到期的8.5%优先票据的利息2,125万美元，已于2022年2月4日到期应付。根据2023年票据II的信托契据，有30天宽限期支付利息以避免违约事件。但宽限期现已届满而公司并无于届满前支付有关款项。
 
-> DANGER!!!
-> This is how [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) sets up false flags 
-> 
-> If there is a biological weapons incident in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) be 100% certain its the Russians who did it [pic.twitter.com/r5F0q0rUvr](https://t.co/r5F0q0rUvr)
-> — Marco Rubio (@marcorubio) [March 8, 2022](https://twitter.com/marcorubio/status/1501299527659274247?ref_src=twsrc%5Etfw)
+上述未支付已构成2023年票据II下的违约事件。因此，2023年票据II的持有人可以要求即刻尝付本金和应计利息。截至本公告发布之日，2023年票据II的未偿还本金为5亿美元。公司暂未收到任何该票据持有人的即刻还款通知。
 
+禹洲集团主要从事房地产开发业务，该股过去一年已累跌逾八成。
 
+消息来源:
 
-比尔·格茨: 国防情报局负责人表示，普京威胁使用核武器是真实的，“我们应该相信他的话”国防情报局还估计有2000至4000名俄罗斯士兵丧生
+[《股市简讯》中国房企禹洲集团重挫逾8%创新低，2023年到期票据付息违约](https://cn.reuters.com/article/%E3%80%8A%E8%82%A1%E5%B8%82%E7%AE%80%E8%AE%AF%E3%80%8B%E4%B8%AD%E5%9B%BD%E6%88%BF%E4%BC%81%E7%A6%B9%E6%B4%B2%E9%9B%86%E5%9B%A2%E9%87%8D%E6%8C%AB%E9%80%BE8%25%E5%88%9B%E6%96%B0%E4%BD%8E%EF%BC%8C2023%E5%B9%B4%E5%88%B0%E6%9C%9F%25)
 
-
-
-> DIA director says the Putin threat to use nukes is real and “we should take him at his word” DIA also estimates 2,000 to 4,000 Russian troops killed [https://t.co/DhonHqFXmC](https://t.co/DhonHqFXmC)
-> — Bill Gertz (@BillGertz) [March 9, 2022](https://twitter.com/BillGertz/status/1501392135190298631?ref_src=twsrc%5Etfw)
-
-
-
-众议员吉姆·班克斯： 拜登对俄罗斯的制裁却让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 得以救助俄罗斯银行。 拜登必须实施适用于北京的连带制裁！ 【附南华早报文章：[#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 警告肖尔茨和马克龙‘制裁俄罗斯会拖累世界经济’】
-
-
-
-> Biden’s sanctions on Russia allow the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) to bail out Russian banks. 
-> 
-> Biden must impose secondary sanctions which apply to Beijing! [https://t.co/QZdVKPMxvr](https://t.co/QZdVKPMxvr)
-> — Jim Banks (@RepJimBanks) [March 8, 2022](https://twitter.com/RepJimBanks/status/1501344040272420868?ref_src=twsrc%5Etfw)
-
-
-
-众议员吉姆·班克斯： 普京的情况并不好，习近平显然不希望他的公民看到当你入侵一个主权国家时会发生什么。 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 【附[http://axios.com](https://t.co/bZseuGwPHd)新闻：大事：中共国管制乌克兰（新闻）】
-
-
-
-> Things aren’t going great for Putin and Xi obviously doesn't want his citizens to see what happens when you invade a sovereign nation. [#taiwan](https://twitter.com/hashtag/taiwan?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/BJdiWtZbWB](https://t.co/BJdiWtZbWB)
-> — Jim Banks (@RepJimBanks) [March 8, 2022](https://twitter.com/RepJimBanks/status/1501331865365581824?ref_src=twsrc%5Etfw)
-
-
-
-参议员霍利新闻办： 霍利参议员询问美国核力量指挥官，中共国是否已准备好对美军使用核武器。他的回答是：肯定的。
-
-
-
-> Senator Hawley asks the commander of America’s nuclear forces whether China is getting ready to use nuclear weapons against U.S. troops. His answer: unequivocally yes. [pic.twitter.com/fffK9CXm4i](https://t.co/fffK9CXm4i)
-> — Senator Hawley Press Office (@SenHawleyPress) [March 8, 2022](https://twitter.com/SenHawleyPress/status/1501302530399162382?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克.蓬佩奥： 台湾是全亚洲最具活力的民主国家，处于当今自由与暴政斗争的最前沿。
-
-
-
-> Taiwan the most vibrant democracy in all of Asia and is at the forefront of today’s fight between freedom and tyranny.
-> — Mike Pompeo (@mikepompeo) [March 8, 2022](https://twitter.com/mikepompeo/status/1501324235561742338?ref_src=twsrc%5Etfw)
-
-
-
-参议员泰德·克鲁兹： 阻止普京的战争机器需要削减他向欧洲出售天然气和石油的能力。 欧洲对能源的需求首先可以通过美国能源以及来自我们的合作伙伴和盟友的能源来满足。
-
-
-
-> Stopping Putin's war machine requires cutting his ability to sell gas and oil to Europe.
-> 
-> Europe’s demand for energy can be met first and foremost with American energy, along with energy from our partners and allies. [pic.twitter.com/5kx9Pac8ps](https://t.co/5kx9Pac8ps)
-> — Senator Ted Cruz (@SenTedCruz) [March 9, 2022](https://twitter.com/SenTedCruz/status/1501379242243735553?ref_src=twsrc%5Etfw)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

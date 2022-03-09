@@ -2,25 +2,45 @@
 ---
 
 
-## 特鲁多渎职滥权民意尽失
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2132342/)
+## 有声|113位乌克兰小孩与慈善机构人员前往巴塞罗那
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132358/)
 
-采编/编译撰稿：加拿大温哥华杨帆农场 – 薇文
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2022年3月7日早上7点，从波兰克拉科夫传来新中国联邦战友发来的视频，从大巴车上鱼贯而下的96名乌克兰孩子与其他当地慈善机构人员或老师共113人，坐了30小时的大巴安全抵达波兰克拉科夫。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image1-4.jpg)
+在到达地等候多时的战友们热情地迎上前去，递上热水，巧克力，点心等食物，为这些从乌克兰战火中逃出的难民们，接风洗尘，送去人间温暖。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_20220309-093546_Discord2-edited.jpg)图片来源: Getty/Alamy
+据前线战友报道，这些孩子均在7-17岁之间，一路虽然饥饿难眠，劳累辛苦，但孩子们安静淡定，遵守规则，表现出极高的文明礼貌风貌，给现场战友留下深刻的印象。迎接的战友纷纷留下热泪。
+
+被救的孩子们及其他人员将马不停蹄，即将前往西班牙巴塞罗那等安全地点，西班牙的战友们早已做好迎接的准备。
+
+后方新中国联邦的接洽人员，纷纷收到被救乌克兰难民的感谢。一位乌克兰女士用文字与语音说：我一上大巴就睡过去了，感谢你们的救援，你们的救援团队太棒了。
+
+据参与营救这些孩子们的一位人权律师志愿者说，这是一项非常艰难的工作，没有你们的帮助，是不可能做到的。感谢法治基金。
+
+危难时刻，唯有新中国联邦人代表中国人民，发挥着人道主义精神，不仅救助同胞，更向国际社会伸出援手，显示出正道主义的魅力。
 
 
-据加拿大[国家邮报]3月6日报道，最新民调显示，由于特鲁多对[自由车队]反疫苗护照抗议活动的拙劣对策，近半数加拿大人对其自由党政府极为不满，并已逐渐失去民意的支持。
 
-报道称，目前只有约20%的人对当局作出正面评价，而大部分受访者则认为：自由党政府越权采取的[紧急状态法]，不仅未给特鲁多带来任何政治资本，反而制造了社会矛盾。
+文字版原文：[113位乌克兰小孩与慈善机构人员前往巴塞罗那](https://gnews.org/zh-hans/2123759/)
 
-此外，特鲁多妄称所有和平抗议者都是“厌恶女性的极端种族主义者”谬论，再次重创了其领导人形象，也激化了局势。著名[里德研究所]主席对此表示：特鲁多一改以往巧言令色的圆滑形象，肆无忌惮地开始使用政治暴力，以期实现其极权专政的梦想。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-校对编辑：硫酸羟氯喹64
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-发稿：文明(添草灭共)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-新闻来源：[Trudeau pays price for trucker protest fallout as ratings take a dive](https://nationalpost.com/news/canada/trudeau-pays-price-for-trucker-protest-fallout-as-ratings-take-a-dive)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

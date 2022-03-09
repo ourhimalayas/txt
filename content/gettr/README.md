@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 3:16 PM (UTC)`
+
+【Ukraine Rescue】03/08/22 The couple(Chinese husband/Ukrainian wife) that were rescued by NFSC and ROLF introduces fellow Chinese compatriots’ situation in Ukraine<br/><br/>【乌克兰救援】03/08/22 被新中国联邦和法治基金救援的中乌夫妇介绍乌克兰境内华人当下的状态<br/>
+![img](https://media.gettr.com/group41/getter/2022/03/09/15/6d1e0bab-f2f6-64b9-ac67-7cbf45f86077/out.jpg)
+
+---
+
 `@miles 3/9/2022 1:45 PM (UTC)`
 
 2022年3月9日 文贵大直播：是谁黑掉乌克兰救援邮件官网；是谁暂禁郭先生油管上传视频；什么力量封杀乌克兰救援信息；《铁锁梦》创作及推出后感受
@@ -148,13 +155,6 @@ Due to the Chinese Communist Party manipulating our email service provider with 
 
 新中国联邦法治基金乌克兰人道救援行动-秘翻特别节目
 ![img](https://media.gettr.com/group29/origin/2022/03/08/23/dc7e86e0-a203-471d-40a2-f7735cacba13/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/8/2022 10:59 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 2022-03-08
-![img](https://media.gettr.com/group4/origin/2022/03/08/22/e4343220-3bc8-237e-2239-89610e523881/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

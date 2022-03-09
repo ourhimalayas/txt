@@ -2,26 +2,35 @@
 ---
 
 
-## 战争犯子要和平！俄罗斯呼吁与美国恢复类似冷战时期的“和平共处”关系
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2132213/)
+## 班农先生呼吁将中共剔出SWIFT
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2132229/)
 
-撰稿：东京樱花团/Ob
+作者：香草山农场 – 文鹰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月8日，据盖特消息显示，班农先生和纳瓦罗先生在“战斗室”节目中呼吁称，美国应该尽快剔除中共央行的SWIFT美元支付系统。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-17.jpg)
+据悉，郭文贵先生早先多次在直播中强调，中共对香港人民的暴政统治、对新疆人民的反人类罪行、对世界使用中共病毒疫苗进行大屠杀，以及对俄罗斯侵略乌克兰行动的鼎力支持，这些恶行中的任意一项都值得被国际社会用金融核武器SWIFT制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/战争犯子要和平！俄罗斯呼吁与美国恢复类似冷战时期的和平共处关系.png)
+对此，班农先生指出，如果要对中共中央银行进行制裁，就必须将中共央行从SWIFT美元支付系统中剔除并关闭香港交易所。此举也将迫使邪恶的中共、朝鲜、伊朗和俄罗斯等独裁政权垮台。
 
-国际文传电讯社(Ifax)周二（3月8日）援引俄罗斯外交部的话说，俄罗斯和美国应该回到类似冷战时期的“和平共处”原则。
+班农先生也提到，自俄乌战争爆发至今，西方对俄罗斯进行的所有经济战策略都采取了战斗室所提出的建议。至于中共，其作为一个跨国犯罪组织，是这场俄乌战争背后的阴谋怂恿者与支持者，更是世界一切灾难的根源。只有消灭了中共，世界才会和平。
 
-国际文传电讯社报导说，俄外交部还表示，对于与美国进行坦率和相互尊重的对话持开放态度，两国恢复正常关系的希望依然存在。
+参考链接：[新中国联邦 法治基金 乌克兰救援快报 2022-03-07](https://gettr.com/post/pyqwfo6dd8)
 
-这是一个多么荒唐的时代，老鼠竟然让猫当伴娘。在社交媒体如此发达的今天，在识字率这么高的今天，我们仍然看到无处不在的荒唐和逻辑。流氓总是一副无赖的嘴脸，赚了便宜还卖乖，当了婊子还要立牌坊，“啥都要双赢”的思维逻辑，就当别人是傻子?战争犯就是战争犯，侵略就是侵略，怎么也不可能因为你的巧舌如簧而改变。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-信息来源：
+总编: Irene木木
+编辑: 静言
+审核: Irene木木
+校正/发稿：Fei797
 
-[俄罗斯呼吁与美国恢复类似冷战时期的“和平共处”关系–Ifax](https://cn.reuters.com/article/CNTopGenNews/idCNKBS2L511G?irpc=932)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

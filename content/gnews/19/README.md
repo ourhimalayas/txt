@@ -2,36 +2,32 @@
 ---
 
 
-## 乌克兰大救援：是谁黑客并篡改法治基金救援邮箱？
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2132146/)
+## 防御性部署：美运送爱国者导弹至波兰
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2132177/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/03/The-Vanguard-Group.jpg)
+**撰稿：日本东京方舟农场 北极**
 
+据中央社3月9日报道，美军欧洲司令部发言人本周二晚表示，美国正在向波兰运送两个爱国者导弹连，来增加北约的防御性部署。
 
-**乌克兰救援任务的电子邮件被中共黑客和篡改**
+爱国者导弹系统为防空导弹系统，用于应对和摧毁来袭的短程弹道导弹、先进飞机和巡航导弹。
 
-3 月 8 日，郭文贵先生在盖特视频中透露，我们与世界分享的乌克兰救援任务二维码和电子邮件被中共攻击和篡改。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-2-2.jpeg)美国欧洲司令部发言人8日晚间表示，美国正在运送两个连的爱国者飞弹至波兰。 图为爱国者三型（PAC-3）飞弹。（图片来自中央社）
 
-郭先生在视频中说：“中共的恐惧已经达到了这样的程度，他们入侵了我们向球发送救援信息的电子邮件黑掉。昨天我的 YouTube 帐户禁止了视频上传功能。我的两部手机被黑客入侵并瘫痪”。
+美军欧洲司令部（US European Command）发言人米勒（Adam Miller）上尉发布声明称，美国国防部长指示美军欧洲司令部，将驻扎欧洲和非洲的两个爱国者导弹连运送至波兰，这一举动是因应波兰盟友的请求。
 
-法治基金会的志愿者每天秉承“无私献奉”的新中国联邦精神，每天救助着素不相识的妇女、儿童和中国同胞。由于 NFSC 的救援行动在 Getter 上直播，全世界都可以观看。自NFSC出现在乌克兰的第一天起，包括媒体在内的国际救援组织和机构就一直密切关注着它。
+米勒解释说，“根据《北大西洋公约》第5条的集体防卫条款，一旦确认成员国遭到攻击，盟国将立即做出反应。”
 
-中共害怕NFSC在乌克兰救援的国际影响，“共产党动用了最大的国家力量黑客掉我们的救援邮箱，他们害怕我们去救人。”郭文贵指出了共产党黑客邮箱的原因。
+米勒强调，此举旨在消除盟友的疑虑。
 
-法治基金义工小王子说，这个邮箱是通过Godaddy注册的。根据温哥华杨帆农场战友Forfree提供的线索，发现在cnn的一篇文章（[https://money.cnn.com/quote/sharehold…](https://money.cnn.com/quote/shareholders/shareholders.html?symb=GDDY&amp;subView=institutional)）上可以看到godaddy的最大股东是vanguard group（先锋集团）！
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-897.png)
-大家从辉瑞集团的分析中已经早就熟悉了这个先锋集团。它和共产党深度勾兑。郭先生在2021年8月24号就爆料“先锋集团是中国国药的投资者控制的”，和韩正儿子的42公司极其密切。先锋集团就是所有的辉瑞制药、所有的科兴疫苗、所有的中国国药的疫苗的其中投资者股东。先锋集团和江家、鼎晖、比尔盖茨、黑石关系紧密。
+据维基百科显示，《北大西洋公约》第5条规定，一旦确认成员国受到攻击，其他成员国将作出即时反应。该条款被理解为各国部队将自动参战，并不再需要各国政府的参战授权，即集体自卫权。
 
-Forfree说：“这次godaddy恶意停用我们的救援网站和邮箱，背后估计就是CCP通过先锋下的黑手。godaddy看来本来就有很多害人的黑历史，和CCP有扯不清的关系”。
+参考链接：
+1. [https://www.cna.com.tw/news/aopl/202203090141.aspx](https://www.cna.com.tw/news/aopl/202203090141.aspx)
+2. [https://reurl.cc/LpopmL](https://reurl.cc/LpopmL)
 
-新闻来源：
-
-[Forfree getter](https://gettr.com/comment/crs7hi63da)
-
-[CNN Business](https://money.cnn.com/quote/shareholders/shareholders.html?symb=GDDY&amp;subView=institutional)
-
-
+素材采编：北极
+编辑：青城道姑
+发布：文曦
 
  
 

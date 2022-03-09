@@ -2,35 +2,29 @@
 ---
 
 
-## 班农先生呼吁将中共剔出SWIFT
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2132229/)
+## 乌克兰前市长称人们正在挨饿，人道主义灾难即将来临
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2132235/)
 
-作者：香草山农场 – 文鹰
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月8日，据盖特消息显示，班农先生和纳瓦罗先生在“战斗室”节目中呼吁称，美国应该尽快剔除中共央行的SWIFT美元支付系统。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-17.jpg)
-据悉，郭文贵先生早先多次在直播中强调，中共对香港人民的暴政统治、对新疆人民的反人类罪行、对世界使用中共病毒疫苗进行大屠杀，以及对俄罗斯侵略乌克兰行动的鼎力支持，这些恶行中的任意一项都值得被国际社会用金融核武器SWIFT制裁。
+#### 撰稿：彩虹       
 
-对此，班农先生指出，如果要对中共中央银行进行制裁，就必须将中共央行从SWIFT美元支付系统中剔除并关闭香港交易所。此举也将迫使邪恶的中共、朝鲜、伊朗和俄罗斯等独裁政权垮台。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-898.png)图片来源：CBS
+据《国会山报》3月8日报道，乌克兰一个城市的前市长说，随着与俄罗斯的战争继续，人们正在挨饿，一场人道主义灾难正在逼近。
 
-班农先生也提到，自俄乌战争爆发至今，西方对俄罗斯进行的所有经济战策略都采取了战斗室所提出的建议。至于中共，其作为一个跨国犯罪组织，是这场俄乌战争背后的阴谋怂恿者与支持者，更是世界一切灾难的根源。只有消灭了中共，世界才会和平。
+根据一些乌克兰记者的报道，沃洛迪米尔·卡尔普留克（Volodymyr Karplyuk）在2014年至2018年期间担任伊尔彭市（Irpen）市长，他在脸书（Facebook）上写道：“伊尔彭市及其周围的村庄正在呈现一场绝对的人道主义灾难。俄罗斯士兵占领了Vorzel、Hostomel、Zabucha和Mylhailivka-Rubezhivka，不让居民离开自己的家。”
 
-参考链接：[新中国联邦 法治基金 乌克兰救援快报 2022-03-07](https://gettr.com/post/pyqwfo6dd8)
+这位前市长说，俄罗斯人正在向住宅开枪，并威胁要杀死伊尔彭的现任市长。医院遭到炮击，一些医疗用品被俄罗斯人拿走。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+除了缺乏食物，该市和邻近村庄的其他公共设施，如电、水、通信和手机连接也很不稳定。俄罗斯人正在向属于红十字会的汽车射击，不允许该组织接近尸体。
 
-总编: Irene木木
-编辑: 静言
-审核: Irene木木
-校正/发稿：Fei797
+这位前市长呼吁国际社会进行干预，他说：“Irpen、Bucha、Gostomel、Vorzel、Mykhailivka-Rubezhivka、Zabuchcha都处于人道主义灾难的中心。我们需要一条绿色通道来帮助市民，但俄罗斯人不允许这样做。当地居民正在被饿死，被关在冰冷的地窖里。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+文章说，由于战争，已经有200多万乌克兰人成为了难民，逃往周边国家。
+
+**新闻来源**
+
+[Former mayor of Ukrainian city says people starving, humanitarian disaster approaching](https://thehill.com/policy/international/597453-former-mayor-of-ukrainian-city-says-people-starving-humanitarian)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
