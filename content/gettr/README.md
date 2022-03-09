@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 11:39 AM (UTC)`
+
+【Ukrainian Rescue】03/08/22 Chinese husband and his Ukrainian wife rescued by NFSC and ROLF explains how they got hold of us<br/><br/>【乌克兰救援】03/08/22 被新中国联邦和法治基金救援的中国男士及其乌克兰夫人讲述是如何同我们取得联系的<br/>
+![img](https://media.gettr.com/group49/getter/2022/03/09/11/e8ad1814-f08b-8470-f95f-81297587509e/out.jpg)
+
+---
+
 `@miles 3/9/2022 10:47 AM (UTC)`
 
 【Ukrainian Rescue】03/08/22 Chinese husband and his Ukrainian wife rescued by NFSC and ROLF explains how they decided to leave Ukraine and take our rescue bus ASAP<br/><br/>【乌克兰救援】03/08/22 被新中国联邦和法治基金救援的中国男士及其乌克兰夫人讲述如何做出决定坐巴士尽快离开<br/>
@@ -148,13 +155,6 @@ Due to the Chinese Communist Party manipulating our email service provider with 
 
 新中国联邦法治基金乌克兰人道救援行动
 ![img](https://media.gettr.com/group18/origin/2022/03/08/19/6551010a-fd16-ab17-a530-8b5acb662e25/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/8/2022 7:50 PM (UTC)`
-
-【UKRAINEHELP-004】<br/><br/>新中国联邦和法治基金关于紧急救援乌克兰的通知<br/><br/>Announcement of New Federal State of China & Rule of Law Foundation on Emergency Rescue of Ukraine<br/><br/>Оголошення про створення нової Федеральної Держави Китаю та Фонду верховенства права з надзвичайних ситуацій порятунку України<br/><br/>https://gnews.org/zh-hans/2115789/<br/><br/>24-hour Emergency Rescue Hotline (Phone/Text):<br/>+1 720-657-6776 OR <br/>+1 719-224-4232 OR<br/>+48 508-532-712 OR <br/>+48 508-531-518<br/><br/>Telegram: t.me/UkraineRescue<br/><br/>GETTR: gettr.com/user/UkraineRescue<br/><br/>E-mail: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com<br/>
-![img](https://media.gettr.com/group9/getter/2022/03/08/19/cf570dcc-4900-396b-4304-662c51bb0f0d/5eb452a2ac1a9e2a00bcd201619bebfd.jpg)
 
 ---
 
