@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 10:16 PM (UTC)`
+
+3/9/2022 Miles Guo: The dilemma of Russia's invasion of Ukraine is intensifying the CCP’s ambition to confront the West; the CCP will wage energy and regional wars in the Middle East and elsewhere between late March and April this year; Taiwan is still in grave danger; why the CCP has stored up grains for 2.5 year supply?<br/><br/>3/9/2022 文贵直播：俄乌战争困境加剧中共对抗西方的野心；中共将在三月底到四月之间，在中东和其他地区发动能源和区域性战争，台湾依然深处危机; 中共为什么要储备两年半的粮食？<br/>
+![img](https://media.gettr.com/group13/getter/2022/03/09/22/bc5044c7-7fcb-c202-d2f9-f0265dcd6470/out.jpg)
+
+---
+
 `@miles 3/9/2022 10:06 PM (UTC)`
 
 致乌克兰战场的所有同胞们……紧急紧急紧急。<br/><br/>由于中共控制了邮件服务商，意图破坏我们乌克兰救援行动，之前公布的网站和邮箱已被强行关闭，更新后的24小时紧急救援客服联系方式如下：<br/><br/>24小时客服热线（电话/短信）：<br/>+1 720-657-6776 <br/>+1 719-224-4232<br/>+48 508-532-712 <br/>+48 508-531-518<br/><br/>Telegram： t.me/UkraineRescue<br/><br/>盖特： gettr.com/user/UkraineRescue<br/><br/>邮箱： UkraineRescue01@protonmail.com 或 UkraineRescue02@protonmail.com <br/>
@@ -147,15 +154,6 @@ Due to the Chinese Communist Party manipulating our email service provider with 
 
 2022.03.08 NFSC News  Remembering Those Who Are Still Suffering； / NFSC’s Spanish Farm’s Efforts in Rescuing the 96 Ukrainian Children
 ![img](https://media.gettr.com/group7/origin/2022/03/09/00/e4f2b2f9-9400-22ce-b581-cb7d33e633de/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@pangushixun 3/8/2022 11:23 PM (UTC)`
-
-<br/>战友刚在边境的难民营采访了一个战地记者Emma，是一个法国记者，来自德国柏林，雇主是英国的时尚杂志I-D, 她听说过新中国联邦，很高兴知道我们是法治基金赞助的和新中国联邦的国际人道救援义工，她支持新中国联邦take down the CCP。 <br/><br/><br/>#盘古时讯 #乌克兰 #救援 #人道主义 #新中国联邦 #takedownCCP
-![img](https://media.gettr.com/group44/getter/2022/03/08/23/c42f5ffa-90b6-e007-328e-778c1c558591/out.jpg)
 
 ---
 
