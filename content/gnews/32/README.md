@@ -2,32 +2,33 @@
 ---
 
 
-## 英国承诺提供 1 亿美元帮助维持乌克兰政府运转
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2133264/)
+## 波兰难民营负责人请求新中国联邦救援团队帮助
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2133317/)
 
-作者：纽约香草山教育部 – Naughty(文行**)**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒3月6日报道，英国首相办公室表示，英国将通过世界银行向乌克兰提供 1 亿美元援助，以维持乌克兰国家核心职能的运转并减轻俄罗斯入侵造成的财政压力。 英国希望通过提供防御性军事援助、再次主张对克里姆林宫实施更严厉的制裁，以及提供财政支持等措施，寻求在国际社会应对俄乌危机中发挥核心作用。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-24.jpg)
-不过，仍有很多声音批评约翰逊政府的制裁过于缓慢，同时，难民计划也令人失望。 英国当局表示，除了已经承诺的 2.9095 亿美元之外，最新一轮的资助可用于支付乌克兰公共部门工人的工资，支付养老金和社会保障金。 这笔资金将通过世界银行多方捐助者信托基金支付，该基金旨在加快对乌克兰的捐款，并已被其他一些国家使用。
+作者：纽约香草山农场教育部 – saner三二
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+乌克兰当地时间3月9日，位于波兰边境口岸米蒂卡（Medyka）的难民安置点，天空飘着小雪，天气十分寒冷。新中国联邦救援团队迅速地搭建起了救援帐篷，供难民暂时休息，并热心给予帮助。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5eb452a2ac1a9e2a00bcd201619bebfd.jpg)
+救援团队的行动力和专业表现赢得了波兰当地难民营救组织负责人的高度赞扬，他表示，由于难民不断涌入，安置点供难民简单休息的帐篷难以负荷，他们联系了国际红十字会，对方却不提供更多帐篷，令人气愤。该负责人听闻新中国联邦救援团队准备搭建大型帐篷（5乘10米）供更多难民休息，主动联系文科战友，表示愿意提供难民安置点最好的位置用于帐篷搭建。
 
-参考链接：[Britain pledges $100 million to help keep Ukrainian state running](https://www.reuters.com/world/uk/britain-pledges-100-mln-help-keep-ukrainian-state-running-2022-03-06/)
+新中国联邦救援团队立即行动，由于该位置无法驶入货运车辆，前线战友们一趟趟人工搬运帐篷各部件，毫无怨言。文科战友表示，他们希望为难民们提供力所能及的帮助，这是真正的救助行动，而不是像中共国大使馆宣称已救出所有身在乌克兰的中国人，实则还有很多中国人困在乌克兰当地。
 
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+截至发稿之际，帐篷正在紧张有序搭建中。搭建位置位于国际媒体中心旁边，届时，世界各国媒体的镜头中都将出现新中国联邦国旗的标志性蓝色。
 
-总编/编辑/审核：天滅中共/飞虹
-校对/发稿：Hetangyuese
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-50.png)
+
+**校对/发稿：**Fei797
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

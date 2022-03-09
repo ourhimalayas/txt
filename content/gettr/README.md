@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 10:50 PM (UTC)`
+
+3/9/2022 Miles Guo: The CCP will start taking action around the world between late March and April. Xi Jinping will take a chance by using the Middle East to provoke an energy war to bring down the world economy and attack Taiwan. The CCP will resort to more ruthless means, but it will also perish sooner. The New Federal State of China will clean up the battlefield.<br/><br/>3/9/2022 文贵直播：中共将在3月底到4月在世界上开始行动，习将冒险一搏，用中东挑起能源战争打垮世界经济并攻打台湾，中共将采取更狠的手段，但也会更快灭亡，新中国联邦将打扫战场<br/>
+![img](https://media.gettr.com/group5/getter/2022/03/09/22/51f3e37e-1541-bba7-9ee3-49606ac1bb56/out.jpg)
+
+---
+
 `@miles 3/9/2022 10:29 PM (UTC)`
 
 3/9/2022 Miles Guo: Here are the three major events coming next -  1) There will be a lot of good news for the Himalaya Coin; 2) our new media platform will bring about more miracles; and 3) vaccine manufacturers like Pfizer will be brought to justice by the entire humanity. The CCP will be subject to more severe sanctions than Russia. Citizens of the New Federal State of China will be respected by the whole world.<br/><br/>3/9/2022 文贵直播：接下来的三件大事 - 1) 喜币会有很多好消息; 2) 新媒体平台会诞生更多奇迹；3) 辉瑞等疫苗厂商会被全人类审判；中共将受到比俄罗斯更大的制裁；新中国联邦人将得到全世界的尊重<br/>
@@ -147,13 +154,6 @@ Due to the Chinese Communist Party manipulating our email service provider with 
 
 2022.03.08 晚 《新中国联邦新闻》
 ![img](https://media.gettr.com/group5/origin/2022/03/09/01/bf76dc0d-3ee5-a534-7b73-bbba65593ede/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/9/2022 1:00 AM (UTC)`
-
-❤️❤️❤️The International Humanitarian Rescue Operation of the Rule of Law Foundation and the New Federal State of China #NFSCrescue #ROLFrescue #CCP≠Chinese<br/><br/>🙏🙏🙏Three rescue buses with a total of nearly 200 people were safely evacuated from the Ukrainian battlefield on March 7, 2022 <br/><br/>The true feelings from the members of the Whistleblower Movement and the New Federal State of China to save people cannot be stopped, neither by the Communist Party nor anyone.<br/><br/>💥💥💥If you have family to be rescued in #Ukraine , here is the 24-Hour Emergency Rescue Support Team Contact: <br/>💌💌💌Email: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com <br/>☎️☎️☎️Phone (Call or Text): <br/>+1 720-657-6776 OR <br/>+1 719-224-4232 OR<br/>+48 508-532-712 OR <br/>+48 508-531-518
-![img](https://media.gettr.com/group50/origin/2022/03/09/00/2af7e663-6a8a-faf9-be9d-765f5fbba057/out.jpg)
 
 ---
 

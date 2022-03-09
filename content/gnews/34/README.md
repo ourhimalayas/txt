@@ -2,40 +2,31 @@
 ---
 
 
-## 拜登的行政命令为数字货币研究带来紧迫性
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2133175/)
+## Coinbase表明支持对俄制裁，封锁2.5万个俄罗斯加密货币地址
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2133269/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/03/bie.jpg)图片来源：Thirsty for News
-根据《福布斯》3月9日报道，美国总统拜登周三公布了一项期待已久的行政命令，责成联邦机构研究加密货币，并为新生市场制定政策建议，这是数字货币采用方面至关重要的一步，有助于包括比特币和以太币在内的主要加密货币平抑近期的损失。
+作者：波士顿五月花 – 文雀
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+Coinbase法务长格雷瓦尔表示，制裁对国家安全及阻吓非法侵略至为关键，Coinbase承诺遵守当局颁布各项经济制裁，并重申基于加密货币可追踪原则，可能会使打击非法账户变得更加容易。不过，Coinbase并没有进一步透露涉事帐户被关闭的具体时间，以及有多少帐户与当前的制裁直接有关。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-27.jpg)
+早前，Coinbase、币安及Kraken等加密货币巨头先前回绝了乌克兰政府要求，完全封锁俄罗斯账户。币安行政总裁赵长鹏给出的理由是，加密货币市场规模不足以让俄罗斯这样的大国用来突破经济封锁。因此，到目前为止，还是有相当一部分的俄罗斯公民暂时没有被封锁的风险。
 
-拜登在周三的一份声明中宣布了第一个 “全政府 “的联邦政策，通过指导政府机构采取一系列围绕金融稳定、非法金融、金融包容性和投资者保护的措施，来 “应对加密货币的风险并利用其潜在利益”。
+参考链接：[Coinbase says it’s blocking 25,000 Russia-linked crypto addresses](https://www.theverge.com/2022/3/7/22965605/coinbase-russian-sanctions-address-blocking＞)
 
-也许是最令人期待的措施，该命令指示美国政府 “紧急 “研究和开发潜在的美国中央银行数字货币，通常被称为 “数字美元”，但它没有为任何试点项目制定具体的时间表。
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-虽然没有概述任何新的监管，但该命令要求金融稳定监督委员会识别和减轻加密货币带来的任何系统性金融风险，并制定适当的政策建议以解决任何监管漏洞。
+总编/编辑/审核：天滅中共 
+校对/发稿：Hetangyuese
 
-该行政命令还指示商务部建立一个框架，以帮助政府机构将数字资产技术纳入其政策、操作方法和研究与开发。主要加密货币在周三早些时候飙升，此前财政部长珍妮特-耶伦的声明吹捧 “负责任的创新”，似乎是过早地发布在网上，比特币和以太币分别攀升了8%和5%。
-在周三上午的电子邮件评论中，经纪商GlobalBlock的分析师Marcus Sotiriou表示，”相对温和 “的命令有助于给加密货币市场带来 “一些清晰度”，称其为 “美国监管的积极迹象”，几个月来，由于对数字货币打击措施的担忧削弱了投资者的情绪。
+**更多资讯，更多关注**
 
-关键背景
-去年，机构的蓬勃发展将加密货币提升到流星般的高点，但缺乏集中监管长期以来一直是几位美国高官的担忧，对严厉的政府监管的担忧曾经震动了这个新生的市场。美国证券交易委员会(SEC)主席加里-根斯勒(Gary Gensler)曾多次表示，加密货币值得政府进行更多审查，特别是因为尽管没有监管，但它们可能会牵涉到证券、商品和银行法。去年，他呼吁国会加大对加密货币行业的监管力度。他说：”现在，我们只是在加密货币方面没有足够的投资者保护，坦率地说，在这个时候，它更像一个狂野的西部。”
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-巨大的数字
-1.9万亿美元。这是周三上午全球加密货币的价值，比11月超过3万亿美元的历史高点下降了大约36%，但在过去两年里，增长了惊人的630%。
-
-变化
-根据美国银行的数据，尽管全球至少有86%的央行积极探索数字货币的发展，但美联储对此类项目的时间表保持谨慎，去年夏天表示，央行正在 “非常仔细地研究我们是否可以发行数字美元的问题”，但又说，”我们不需要成为第一个，我们需要把这件事做好。” 美联储官员在1月份的一份报告中写道，引入数字美元 “将代表美国货币的一个非常重要的创新”。”因此，与公众和主要利益相关者的广泛磋商是必不可少的。” 周三的命令 “鼓励 “美联储继续其研究，并要求它帮助支持美国政府的探索性努力。
-
-需要注意的事项
-根据该行政命令，财政部说它将与其他机构合作，编写一份关于货币和支付系统未来的报告。
-
-原文链接：
-[https://www.forbes.com/sites/jonathanponciano/2022/03/09/bidens-crypto-executive-order-puts-urgency-on-digital-dollar-research-and-fuels-bitcoin-ether-prices/?sh=14f423c33bbd](https://www.forbes.com/sites/jonathanponciano/2022/03/09/bidens-crypto-executive-order-puts-urgency-on-digital-dollar-research-and-fuels-bitcoin-ether-prices/?sh=14f423c33bbd)
-
-编辑，发稿 Spirit
-
-
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

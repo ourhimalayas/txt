@@ -2,51 +2,47 @@
 ---
 
 
-## 特鲁多为卡车司机的抗议付出了代价
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2133631/)
+## 随着川普对拙劣的发布做出反应，数字世界收购暴跌
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2133739/)
 
-作者：Jamie Johnson
-翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-102.png)
-据报道，加拿大总理杜鲁多在加拿大卡车司机抗议活动的处理方式上受到批评，包括引入紧急立法，这导致他的支持率直线下降。
+***评论：**用户追逐前总统川普的热情转移到社交媒体应用程序Truth Social，但川普本人甚至还没有在上面发贴，尽管报告显示有100多万的用户等待注册，如果不能尽快的解决用户等待问题，可能会使潜在客户流失*。
 
-因为抗议新冠疫苗的规定，数百名卡车司机在渥太华封锁街道和高速公路长达三周，首都陷入停顿，加美边境口岸也出现拥堵。杜鲁多颁布了50多年来未使用的紧急权力，数十人被捕，才让这场混乱得以结束。
+据《FX Street》股市记者  2022年3月8日报道：
 
-一项民意调查发现，近一半的加拿大人表示，由于杜鲁多对车队的反应，他们对杜鲁多的印象有所恶化，而另一项调查则表示，大多数人认为是杜鲁多的言行激化了局面。
+- 纳斯达克股票代码：DWAC 在周一的交易时段下跌了 14.56%。
+- 前总统川普对*Truth Social*的启动失败感到愤怒。
+- 社交媒体平台的候补名单已达到 100 万用户。
 
-Nanos Research的一项调查发现，47%的加拿大人表示，由于杜鲁多政府对示威活动的反应，他们对杜鲁多的印象有所恶化，只有20%的人表示印象有所改善。
 
-民调专家Nik Nanos表示：“从调查中可以清楚地看出，尽管加拿大人普遍支持总理的所作所为，但他的个人声望已经因为车队抗议而受到了打击。”
+纳斯达克股票代码：DWAC 周一大幅结束了其最近 7 天的连续上涨，因为合并前的 SPAC 股票暴跌。本周开始，DWAC 股价下跌 14.56%，收于 83.34 美元。
 
-安格斯•里德研究所(Angus Reid Institute)在卑诗省进行的一项调查中，65%的受访者表示，杜鲁多针对示威者的言论令紧张局势恶化。
+DWAC 的泡沫破灭了吗？很难说，但毫无疑问，以目前的价格来看，这只股票仍然被高估了。随着全球市场自由落体，周一 DWAC 也可能受到下行抛售压力的打击。投资者权衡了乌克兰的持续局势，并担心全球能源价格上涨可能会减缓经济并进一步推高通胀。
 
-当抗议开始时，杜鲁多称该组织是持有“不可接受观点”的“少数边缘人”。去年秋天，他说一些反对接种疫苗的人“通常是厌恶女性的人，也经常是种族主义者，这是一个小群体，但占据了空间。”这进一步激怒了示威者。
+前总统川普终于对他的社交媒体应用程序 Truth Social 的艰难推出进行了权衡。有报道称，有人无意中听到川普在电话中大喊缺乏积极的媒体报道和该应用程序的启动不顺利。截至上周，川普本人甚至还没有在该网站上发帖，成功进入该应用程序的用户抱怨缺乏用户参与度和过度回收的内容。川普似乎厌倦了发布，有些人甚至认为他可能会完全放弃这个项目。
 
-抗议者Ashtyn Lammers说：“这不仅仅是因为一些小小的不便，比如不能在餐馆吃饭。”
+**DWAC 股票预测**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-924-e1646860084759.png)
+随着用户继续等待注册该应用程序的机会，报告显示候补名单已达到 100 万用户。不过，人们可能会失去耐心，因为该应用在 Apple App Store 上下载次数最多的应用中已从第 1 位跌至第 118 位。围绕该应用程序发布的整体情绪一直是负面的，这当然无济于事，这可能也会让潜在用户和股东流失。
 
-“人们失去了生计，失去了工作。由于总理煽动的分裂，朋友和家人被拆散。”
+文章观点仅代表作者个人，与Gnews平台无关
 
-加拿大是世界上疫苗接种率最高的国家之一，81%的人接种了两剂。杜鲁多在去年秋季赢得了大选，但再次未能赢得多数席位。
+文章来源：[https://www.fxstreet.com/news/dwac-stock-price-digital-world-acquisition-plummets-as-trump-reacts-to-botched-launch-202203081055](https://www.fxstreet.com/news/dwac-stock-price-digital-world-acquisition-plummets-as-trump-reacts-to-botched-launch-202203081055)
 
-他在上月曾表示：“坦率地说，这是有效的。我们发现加拿大的疫情曲线比其他地方要低。我们看到死亡率降低了。我们看到了更快的经济复苏，因为加拿大人加快了步伐，因为加拿大人接种了疫苗。”
+翻译：洛杉矶盘古农场 – Raul
 
-安格斯·里德研究所所长Shachi Kurl说：“杜鲁多善于利用自我感觉良好的形象和轻松沟通的能力。他现在毫不掩饰、毫无歉意地加倍、三倍地强调这种政治手段。”
+校对：洛杉矶盘古农场– Mike Li
 
-来源：https://nationalpost.com/news/canada/trudeau-pays-price-for-trucker-protest-fallout-as-ratings-take-a-dive
+评论：洛杉矶盘古农场–傻小子
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+编辑：洛杉矶盘古农场–傻小子
 
-**关注我们**
+发布：洛杉矶盘古农场–子萍
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
  
 
