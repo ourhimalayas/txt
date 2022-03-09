@@ -2,41 +2,56 @@
 ---
 
 
-## 【每日聚焦】俄乌战事3月9日简要
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2131836/)
+## 欧洲国家首脑非正式会议 俄罗斯入侵乌克兰是核心话题
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2132018/)
 
-**撰稿：蓝莲花农场 文斌**
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-1、俄罗斯部队继续在基辅东部、西北部和西部郊区集结，以便在未来几天对基辅发起攻击。据报道，属于车臣领导人拉马赞-卡德罗夫的部队、俄罗斯的Rosgvardia内务安全部队以及Liga（前瓦格纳）私人军事公司在基辅西郊的出现可能表明，俄罗斯军队正在努力集结足够的地面作战力量，以便向基辅发起进攻。基辅附近的俄军取得的成果有限，但是还在继续尝试对基辅西部进行包围。基辅西部的伊尔平地区和东部的布罗瓦里地区是重点。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-2、切尔尼科夫：乌军继续打击俄军补给线，标枪反坦克导弹显示威力，有视频显示打击俄罗斯坦克的效果。
+根据欧洲理事会（European Council）和欧盟理事会(Council of European Union)消息，欧洲国家元首或政府首脑将于2022年3月10日至11日在凡尔赛(Versailles)举行非正式会议，讨论俄罗斯对乌克兰的军事侵略及其后果，并讨论如何加强欧洲主权、减少依赖以及设计新的增长和投资模式。会议由轮值国主席、法国总统马克龙主持。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/president-michel-s-invitation-letter-to-the-informal-euco-on-10-11-march-2022-1-scaled.jpg)
+根据欧盟理事会主席、比利时人Charles Michel发出的邀请函，明天（3月10日）下午4时，各国元首或政府首脑报到，会议从下午5:30开始，各国元首同欧洲议会主席交换意见。明天的目标是关注乌克兰局势以及国防和能源。
 
-3、苏梅地区：继续遭受空袭，南部城市Lebedyn（列宾）由于俄军空袭两座住宅被毁，国民防卫部门从废墟中救出5人。
+后天，也就是3月11日，上午的会议和工作午餐将专门讨论欧洲国家的新增长和投资模式，欧洲央行行长和欧元集团总裁也将出席。
 
-4、苏梅方向：乌军继续骚扰从苏梅通往基辅东部的漫长俄军的地面补给线。乌克兰总参谋部在3月8日报告说，目前在切尔尼戈夫附近的俄罗斯部队似乎正在向东移动，估计这些部队可能会寻求与来自苏梅附近的部队会合，以帮助他们巩固和保护其延伸的战线，支持计划中的对基辅的进攻。
+俄罗斯把战争带回了欧洲，这种对乌克兰的无端军事侵略严重违反国际法，破坏欧洲安全，俄罗斯正在给乌克兰人民带来难以形容的痛苦。
 
-5、哈尔科夫：根据一段视频显示，一名俄军被俘士兵说他被派往乌克兰是去攻占哈尔科夫，封锁所有通往城市的主要道路。他们还得到命令，”向任何抵抗开火”。哈尔科夫附近的俄罗斯部队在过去几天里一直在稳步转移，以确保补给线的安全。
+欧盟领导人谴责俄罗斯对乌克兰的军事入侵，赞赏乌克兰人民捍卫国家的勇气，欧洲和欧盟与乌克兰一道，坚定地站在自由和民主的一边，乌克兰是欧洲大家庭的一部分。
 
-6、顿巴斯地区：俄罗斯军队用迫击炮轰击Novoluhans’ke（新卢汉斯） ，暂无人员伤亡报道。
+针对俄罗斯的侵略，欧盟展现了团结和力量。欧盟对俄罗斯实施了有史以来最严厉的制裁。欧洲联盟及其成员国正在向乌克兰提供协调一致的人道主义、政治、财政和物质支持。欧洲联盟会员国在收容无数逃离战争的人方面也表现出极大的团结。
 
-7、在过去24小时内，乌克兰东部和乌克兰西南部的局势基本没有变化。乌克兰总参谋部报告说，俄罗斯进一步努力向扎波罗热市推进，这可能证实俄罗斯打算把封锁该城市作为优先事项。但是，俄军向扎波罗热推进的部队似乎太小，不足以包围或占领该城。
+俄罗斯入侵乌克兰的最新发展及其后果，将是这次欧盟领导人在非正式会议期间讨论的核心话题。
 
-8、俄军黑海舰队的一艘护卫舰在Odesa外海被击沉。
+面对最近发生的多重危机和挑战，欧洲比以往任何时候都更加紧迫地采取果断步骤来维护主权，减少依赖，并设计一种新的增长和投资模式。
 
-9、第一副内政部长叶夫亨·叶宁 3 月 9 日表示，如果外国志愿者愿意，他们将能够获得乌克兰公民身份。自3月6日以来，已有2万名外国志愿者加入乌克兰军队与俄罗斯作战。
+在这次非正式会议上，将重点关注三个具体问题，即：
 
-10、人道救援方面：乌克兰期待在3月9日实现临时停火，从10个城市疏散平民。路线包括从Enerhodar和Mariupol到Zaporizhzhia，从Sumy到Poltava，从Izium到Lozova，从Volnovakha到Pokrovsk，从Vorzel, Borodianka, Bucha, Irpin, Hostomel到Kyiv；并且从Vorzel、Borodyanka、Bucha、Irpin和Gostomel疏散的大巴已经到位。
+加强欧洲的防御能力；
 
-11、泽连斯基：战机从波兰转移到乌克兰问题亟待解决，他表示将继续保卫乌克兰的国土，并再次要求为乌克兰提供军机；同时白宫官员表示，美国副总统卡马拉-哈里斯将于周三前往波兰，讨论如何为乌克兰提供 “军事援助”，几个小时前，华盛顿拒绝了华沙提出的提供苏联时代的战斗机的请求。
+减少欧洲对能源的依赖，特别是对俄罗斯天然气、石油和煤炭的依赖，以及
 
-12、乌克兰能源公司：切尔诺贝利核电站和Slavutich镇因俄军行动而完全停电。
+建立更强大的经济基础。
 
-校对：文斌/发布：一叶知秋
+3月9日，针对俄罗斯入侵乌克兰，欧洲联盟同意将更多俄罗斯垄断寡头和高级官员纳入新的制裁黑名单，并加强对加密货币转帐的规定，以及锁定海运事业。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-09_21-24-09.png)
+
+欧盟轮值主席国法国的代表机构在推特发文表示，因白俄罗斯协助俄罗斯入侵乌克兰，欧盟已批准将白俄3家银行逐出环球银行金融电信协会（SWIFT）支付讯息系统。
+
+欧盟加强加密货币转帐规定的行动，目的在防止黑名单内的个人和公司利用加密数位系统，绕过欧盟的制裁。欧盟还扩大禁止出口俄罗斯的科技产品清单，以削弱俄国的工业基础。
+
+欧盟外交和安全政策高级代表何塞普·博雷尔表示，欧盟必须用更多的手段增加对俄罗斯的压力，欧盟将针对俄罗斯政府的100多名高级官员实施新的一揽子制裁措施。
+
+参考资料：
+
+[Боррель заявил о новом пакете санкций ЕС в отношении россиян](https://vz.ru/news/2022/3/9/1147689.html)
+
+[Invitation letter by President Charles Michel to the members of the European Council ahead of their informal meeting of 10 and 11 March 2022](https://www.consilium.europa.eu/en/press/press-releases/2022/03/08/invitation-letter-by-president-charles-michel-to-the-members-of-the-european-council-ahead-of-their-informal-meeting-of-10-and-11-march-2022/)
+
+[Informal meeting of heads of state or government, Versailles, 10-11 March 2022](https://www.consilium.europa.eu/en/meetings/european-council/2022/03/10-11/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

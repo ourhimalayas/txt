@@ -2,50 +2,40 @@
 ---
 
 
-## 新中国联邦法制基金乌克兰救援团建战地新闻直播中心
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2131596/)
+## 拜登政府向数百家媒体支付款项用来推广中共病毒疫苗
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2131782/)
 
-作者：香草山农场写作组 – 静言
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+作者: 银河系农场—骄子
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
+据外媒报道，美国卫生与公众服务部（United States Department of Health and Human Services，缩写：HHS）向数百家美国媒体公司支付款项用来推广中共病毒疫苗的广告。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-8.50.58-PM.png)图片来源: 网络
+美国政府机构HHS从ABC、CBS、NBC、FOX NEWS、CNN等多家主流媒体购买广告，主要方式为投放文章和视频片段，这些内容全部对中共病毒疫苗持有积极的态度，更夸张的是纳税人资金并未披露。据悉该笔资金来自2021年度纳税人资助的10亿美元联邦竞选资金，旨在增强美国人对中共病毒疫苗的信心。
 
-3月8日，新中国联邦法治基金乌克兰救援队前线发回简讯，参与救援的各个分队会有明确分工。
+另外这些主流媒体还对那些对中共病毒来自武汉实验室，以及对中共病毒疫苗持怀疑态度的看法进行打击，反过来指责他们传播错误信息。
 
-华盛顿农场阿丙团队将前往波兰与乌克兰交界的小镇Medyka, 建立战地新闻直播中心，此镇是乌克兰人逃生必经之地。昨天刚刚到达的洛杉矶团队负责人明道，负责Medyka的战地新闻报道。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture-27.jpg)
-鉴于目前乌克兰局势日益恶化，新中国联邦救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
-自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发前往波兰。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
-求助方式请参考以下视频。
+目前HHS尚未披露具体每个媒体的费用。
 
-意大利文科团队将在Medyka 指挥营救行动。
+新闻来源: [https://www.lifesitenews.com/news/report-biden-admin-gave-taxpayer-dollars-to-legacy-media-outlets-to-promote-covid-jabs/](https://www.lifesitenews.com/news/report-biden-admin-gave-taxpayer-dollars-to-legacy-media-outlets-to-promote-covid-jabs/)
 
-当地时间8日早晨还有另外一条喜讯，在救援队前往乌克兰边境救援的路上，看见一辆有红十字会标记的大巴往乌克兰边境开去。连日来辛苦疲惫且孤单营救的新中国联邦战友们，心里感到无比温暖，愿更多正义力量加入营救乌克兰难民的阵营。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
 
-参考链接：
-[新中国联邦和法治基金关于紧急救援乌克兰的通知](https://gettr.com/post/pyw9zs571a)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

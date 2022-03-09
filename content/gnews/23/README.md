@@ -2,24 +2,51 @@
 ---
 
 
-## 中日财经爆┃拜登禁止俄原油进口，转购委内瑞拉
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2131131/)
+## 新中国联邦法制基金乌克兰救援团建战地新闻直播中心
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2131596/)
 
-撰写：东京樱花团/Garrettw
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-12.jpg)[图片来源](https://baijiahao.baidu.com/s?id=1726739522594136000&amp;wfr=spider&amp;for=pc)
-从历史上看委内瑞拉拥有世界上最大的石油储备，它的大部分原油都被出口到美国的炼油厂。马杜罗周一证实，委内瑞拉打算增加其原油产量，此举是在俄罗斯因入侵乌克兰而受到制裁，石油出口急剧下降的情况下进行的。马杜罗说：“我们已经准备好恢复生产。一百万、两百万或三百万桶，一切都可以！”他说：“一切以和平的名义！”
+作者：香草山农场写作组 – 静言
 
-美国的交易可能说起来容易做起来难。经过多年的管理不善和缺乏对石油设施的维护，该国的石油产量几乎处于历史最低水平。
 
-委内瑞拉此时高调宣布：以和平的名义，增加原油产量，表面是是为了国家利益和世界和平，实际上选边站，站在了美国为首的一边。马杜罗政权之前和中共的勾兑更加说明了中共现在是穷途末路，万人唾弃的。郭文贵先生曾经说过中共的抱团取暖，中共，俄罗斯，北朝鲜，伊朗，委内瑞拉等。现在第一个站出来的是委内瑞拉，剩下国家的还远吗？俄罗斯的这次战争，习普的二人计划，还会按部就班吗？
 
-消息来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-[March 8, 2022 Russia-Ukraine news](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-03-08-22/index.html)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+
+3月8日，新中国联邦法治基金乌克兰救援队前线发回简讯，参与救援的各个分队会有明确分工。
+
+华盛顿农场阿丙团队将前往波兰与乌克兰交界的小镇Medyka, 建立战地新闻直播中心，此镇是乌克兰人逃生必经之地。昨天刚刚到达的洛杉矶团队负责人明道，负责Medyka的战地新闻报道。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture-27.jpg)
+鉴于目前乌克兰局势日益恶化，新中国联邦救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
+自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发前往波兰。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+求助方式请参考以下视频。
+
+意大利文科团队将在Medyka 指挥营救行动。
+
+当地时间8日早晨还有另外一条喜讯，在救援队前往乌克兰边境救援的路上，看见一辆有红十字会标记的大巴往乌克兰边境开去。连日来辛苦疲惫且孤单营救的新中国联邦战友们，心里感到无比温暖，愿更多正义力量加入营救乌克兰难民的阵营。
+
+参考链接：
+[新中国联邦和法治基金关于紧急救援乌克兰的通知](https://gettr.com/post/pyw9zs571a)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/审核：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,31 @@
 ---
 
 
-## 救援前线随笔
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2131464/)
+## 切尔诺贝利核电站被断电
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2131755/)
 
-意大利罗马达芬奇农场：文涛
+作者：香草山健身部—正道新闻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+【新闻链接】[https://twitter.com/dmytrokuleba/status/1501531656204783620?s=21](https://twitter.com/dmytrokuleba/status/1501531656204783620?s=21)
+3月9日，乌克兰外交部长库莱巴发推表示，切尔诺贝利核电站的整条供电线路及其由俄军控制的所有核设施均遭到破坏。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/BD61E57D-AD46-423D-91F9-6D3D16630316.jpg)
+切尔诺贝利已断电。我敦促整个国际社会紧急要求俄罗斯停火，并允许维修人员尽快恢复电力供应。
 
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/F49679D4-2745-4786-9770-3FA92FE08F12.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6D2728ED-6CB0-4D57-82C8-E3B169493D05.jpg)
-
-
-2022年3月8日天气没有好转还刮起风来，估计晚上还会下雪![❄️](https://discord.com/assets/18154d25de86594ea07571e133b92e05.svg)出来的人还是很多，沉重的行囊蹒跚的脚步，不时传来孩子的哭声。旁边一位老奶奶注视着远方，眼神中透露出焦虑与无奈。老奶奶说“那是家的方向，那里还有亲人”！我不知道用什么方式去安慰她，伏下身将头埋在她的胸前，奶奶抚摸着我的头，泪水顺着脸颊流了下来，那一刻任何的语言都显得苍白无力。那一刻让我懂得“爱”可以包容一切。没有谁愿意背井离乡过着颠沛流离的生活，更没有谁希望战争降临到自己国土，战争中受伤最深的永远是孩子、妇女和老人。我把老人冰冷的手放在自己的脸颊想用我唯一的一点热量温暖老人冰冷的心，老人慢慢的将手抽回，替我擦去眼角的泪水，我们虽然没有说一句话但她用眼神告诉我“放心吧，孩子！一切都回过去”奶奶愿你早日于家人团聚，重回故土，享受晚年！人类不需要相互伤害，愿人类永远和平！
-
-图片提供：文涛
-
-编辑发布： Shuizhuyu
+这些备用柴油发电机仅够为核电站及其设施提供48小时的电力。然后将导致关闭乏核燃料储存的冷却系统，这将威胁到核辐射的泄漏。俄罗斯的野蛮战争威胁着整个欧洲。普京必须立即制止这种情况！
 
 
 
+审核/编辑/发稿:qiutian（邱甜）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

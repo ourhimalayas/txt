@@ -2,45 +2,47 @@
 ---
 
 
-## 新中国联邦前线救援团队已从乌克兰战区救出超过200人
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2130078/)
+## 普京藏在瑞士的情人和他们的孩子
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2130555/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+编译： Jenny Ball
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-803-edited.png)joe.co.uk
 
+普京一直否认与前奥运体操运动员阿丽娜·卡巴耶娃（ Alina Kabaeva）有染，
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+而普京这位传闻中的情妇阿丽娜，显然正带着他们四个年幼的孩子躲在瑞士。
 
+卡巴耶娃在 2004 年雅典奥运会上获得艺术体操金牌，据信他们育有两个男孩和一对双胞胎女孩。这是俄罗斯总统从未证实过的。
 
+一位消息人士告诉《第六页》（Page Six）：“当普京对乌克兰发动袭击，袭击无辜公民并引发难民危机时，他的家人却躲在瑞士某处的一个非常私人和非常安全的小木屋里——至少现在是这样。”
 
-郭文贵先生在最新一则盖特中表示，新中国联邦的多位爆料革命战友，远赴乌克兰参与前线救援，截至目前，已经救出上百名乌克兰儿童，以及包括中国人、乌克兰人在内的各国人士总共两百余人。
+他们的孩子都出生在瑞士，“持有瑞士护照”。
 
-郭先生透露，在昨天的一场救援行动中，中共大使馆编造谎言，成功误导了十几位已经坐上救援巴士的中国人弃车而逃，郭先生对此深表遗憾，并怒斥中共为达目的，全然不顾错过救援的中国人可能面临的安全风险，简直视人命如草芥。
+普京从未谈论过他的私生活，批评那些“带着鼻涕和色情幻想潜入他人生活”的人，并表示他不允许“干涉”他的私生活。
 
-郭先生强调，新中国联邦的这次救援行动，最重要的目的就是救人，证明中国人不同于共产党，中国人不但不会祸乱世界，还愿意为实现这个世界的和平美好身体力行。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-4.jpg)
-参考链接：
-[3月7号：尊敬的战友们好衷心的感谢在波兰和乌克兰前线的救援的所有的兄弟姐妹吗？可恨的共产党驻乌克兰大使馆……竟然将已经登上我们在乌克兰救援大巴的人．用谎言将他们骗下车，这些人现在生死未卜……](https://gettr.com/post/pynslhaa9a) （视频： 0:47～02:58）
+普京与空姐柳德米拉·普京娜结婚约 30 年，但在 2013 年宣布离婚。他们有两个女儿，分别是 36 岁和 35 岁的玛丽亚和卡特琳娜。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+从那以后，他一直否认与卡巴耶娃有染的传闻。一些人称，这对夫妇在俄罗斯东正教的私人仪式上秘密结婚。
 
-总编/编辑/审核：天滅中共
-校对/发稿：为真不破20
+卡巴耶娃成为亲克里姆林宫的议员，2014 年被克里姆林宫任命负责运营国有的国家媒体集团，据报道其年薪为 1000 万美元。
 
-**更多资讯，更多关注**
+不过，瑞士出人意料地决定不在入侵乌克兰的事情上保持中立，对俄罗斯入侵该国采取强硬立场。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+2月底，瑞士联邦委员会宣布冻结了一些俄罗斯个人和公司的资产，并表示，“还将对俄罗斯总统普京、总理米哈伊尔·米舒斯京和外交部长谢尔盖·拉夫罗夫，实施金融制裁，并立即生效。”
 
+目前尚不清楚这些制裁是否会影响卡巴耶娃和她的孩子们。
 
+点评：为什么独裁者都把自己的财富，最心爱的人和孩子送往他们要颠覆的西方民主国家？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+素材链接：【joe.co.uk】[Vladimir Putin hiding lover Alina Kabaeva and their kids in Switzerland](https://www.joe.co.uk/news/vladimir-putin-hiding-lover-alina-kabaeva-and-their-kids-in-switzerland-321499)
 
+* * *
 
-
+审核：文乐
+校对：花羽
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

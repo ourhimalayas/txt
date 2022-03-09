@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 1:45 PM (UTC)`
+
+2022年3月9日 文贵大直播：是谁黑掉乌克兰救援邮件官网；是谁暂禁郭先生油管上传视频；什么力量封杀乌克兰救援信息；《铁锁梦》创作及推出后感受
+![img](https://media.gettr.com/group20/origin/2022/03/09/12/73f2d452-db85-211f-745b-e55857bacdfd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/9/2022 12:54 PM (UTC)`
 
 【Ukraine Rescue】03/08/22 David talks to a couple(Chinese husband/Ukrainian wife)  that were rescued by NFSC and ROLF at a bus hub Krakow, Poland: all we want is to save the lives of our fellow Chinese, regardless of their political views.<br/><br/>【乌克兰救援】03/08/22 大卫在克拉科夫汽车站和一对被新中国联邦和法治基金救援的中乌夫妇交谈：我们只想救助中国同胞，无论政治观点。<br/>
@@ -148,13 +155,6 @@ Due to the Chinese Communist Party manipulating our email service provider with 
 
 新中国联邦 法治基金 乌克兰救援快报 2022-03-08
 ![img](https://media.gettr.com/group4/origin/2022/03/08/22/e4343220-3bc8-237e-2239-89610e523881/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/8/2022 10:28 PM (UTC)`
-
-3/8/2022 Miles Guo: The Russian-Ukrainian war has demonstrated the solidarity and toughness of the Ukrainians. But the Chinese people will have to pay a high price for this war and their stupidity and ignorance. What the CCP has done has made the world discriminate against the Chinese, while the fellow fighters of the New Federal State of China are saving all the Chinese people across the globe!<br/><br/>3/8/2022 文贵盖特：俄乌战争体现了乌克兰人的团结和坚强；中国人将为这场战争及其愚蠢、无知付出高昂的代价；中共的所作所为让全世界排华，而新中国联邦的战友们却在拯救全球的华人<br/>
-![img](https://media.gettr.com/group16/getter/2022/03/08/22/c73fcb60-bab8-22d8-489d-10f34f4532a1/out.jpg)
 
 ---
 
