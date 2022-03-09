@@ -2,33 +2,28 @@
 ---
 
 
-## 波兰：目前超106万人逃离乌克兰，涌入波兰避难
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2130818/)
+## 美国禁止中共国半导体等相关产品出口俄罗斯
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2130827/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-94.jpg)
+[图片链接](https://pc.watch.impress.co.jp/img/pcw/docs/1115/964/html/photo012_o.jpg.html)
 
-整理/编辑：小鱼儿
+3月8日，美国商务部长雷蒙德警告说，如果中共国公司不配合美国实施的对俄罗斯高科技产品出口的管制，中共国公司可能被 “有效关闭”。这对俄罗斯入侵乌克兰施加压力的一部分。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-93.png)图片来源：雅典娜设计组&timesofisrael
+美国的法规涵盖了使用美国技术制造商品的外国公司。中共国的半导体制造公司也在使用美国制造的生产设备和其他产品。
 
+莱蒙德指出，俄罗斯试图通过第三国规避制裁和出口管制。
 
-据日本国际传媒(NHK WORLD-JAPAN)3月8日报道，波兰内务与行政部透露，自俄军2月24日发动军事入侵以来，截止3月6日已有106万7000人涌入波兰。
+如果向俄罗斯出口半导体等产品，中共国公司将被禁止使用美国制造的生产设备和软件，这将导致中共国的半导体制造能力被摧毁。
 
-3月6日，单日入境人数达14万2300人，是俄军入侵以来人数最多的一天。当地天气寒冷，即便是白天气温也接近零度。
+信息源：
 
-同时，据联合国难民署（UNHCR）统计，截至3月6日，已有173万5000人从乌克兰前往国外避难。除波兰以外，还有18万人涌入匈牙利，将近13万人抵达斯洛伐克，8万人抵达摩尔多瓦。
+##### [米、中国の対露輸出に警告　先端技術規制に同調迫る](https://www.sankei.com/article/20220309-KFTBZR4YJ5J7FJR2QQ6K2EXV2Q/)
 
-参考新闻：[逾106万人从乌克兰涌入波兰避难](https://www3.nhk.or.jp/nhkworld/zh/news/353377/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
 
 
  

@@ -2,29 +2,40 @@
 ---
 
 
-## 美国禁止中共国半导体等相关产品出口俄罗斯
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2130827/)
+## 中共谴责澳大利亚参与美国的“五四三二”阵营
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2130849/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-94.jpg)
-[图片链接](https://pc.watch.impress.co.jp/img/pcw/docs/1115/964/html/photo012_o.jpg.html)
+#### 整理/编辑：小红帽
 
-3月8日，美国商务部长雷蒙德警告说，如果中共国公司不配合美国实施的对俄罗斯高科技产品出口的管制，中共国公司可能被 “有效关闭”。这对俄罗斯入侵乌克兰施加压力的一部分。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-美国的法规涵盖了使用美国技术制造商品的外国公司。中共国的半导体制造公司也在使用美国制造的生产设备和其他产品。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4bvbd6fc3b19441osa8_800C450.jpg)图片来源：https://parstoday.com/zh/news/china-i53899
 
-莱蒙德指出，俄罗斯试图通过第三国规避制裁和出口管制。
 
-如果向俄罗斯出口半导体等产品，中共国公司将被禁止使用美国制造的生产设备和软件，这将导致中共国的半导体制造能力被摧毁。
+根据澳大利亚人报3月9日报道，中共国外交部长王毅表示，澳大利亚是美国最忠实的帮凶，以“印太版北约”来限制中共国这个崛起的大国。
 
-信息源：
+虽然王毅没有直接点名澳大利亚，但他概述了堪培拉政府在他所称的华盛顿“五四三二”阵势中的“信徒”角色。
 
-##### [米、中国の対露輸出に警告　先端技術規制に同調迫る](https://www.sankei.com/article/20220309-KFTBZR4YJ5J7FJR2QQ6K2EXV2Q/)
+王毅针对美国的“印太战略”准备的讲话强调了使澳大利亚和中共国关系陷入五十年低谷的安全问题的广泛性。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+除美国之外，澳大利亚是唯一一个加入了王毅所说的“挑拨地区对抗”的全部集团的国家。澳大利亚两党都一致支持这些组织的成员资格。
 
+王毅的评论是在年度电视新闻发布会上发表的。中共在全国人大会议期间利用这些会议来确定关键外交政策问题的标杆。
+
+中共国湘潭大学国际关系研究员许善品表示，堪培拉政府参与“五眼联盟”、”四方集团“（Quad）和 “AUKUS澳英美联盟”有助于“扩大“澳大利亚在该地区的影响力，并“提高其战略重要性”。
+
+即将离任的澳大利亚战略政策研究所（Australian Strategic Policy Institute）所长彼得-詹宁斯（Peter Jennings）表示：“很明显，AUKUS和四方集团真的激怒了中共。”
+
+新闻链接：[中国谴责澳大利亚参与华盛顿“五四三二”阵势](https://cn.theaustralian.com.au/2022/03/09/64405/)
+
+发布：Frank2021
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

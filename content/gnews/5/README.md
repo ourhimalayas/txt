@@ -2,38 +2,29 @@
 ---
 
 
-## 拉脱维亚议员加入国际军团帮助抗击俄罗斯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2130817/)
+## 有声｜中共国东部多地疫情再现
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2130819/)
 
-#### 整理：围剿维尼熊
-编辑：朝花夕拾
+By:**秘翻新闻**
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**2022-03-09**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/14-11.png)图片来源 网络
+[综合媒体消息。在俄罗斯侵乌战争继续推进、台海形势越发紧张、正值中共两会召开的时候，中共官媒报道，中共国东部多地爆发疫情，疫区管控升级。](https://www.ntdtv.com/gb/2022/03/08/a103367937.html)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-02-02-下午10.11.59-14.png)图片来源：雅典娜设计组
+[当地时间3月8日下午，北京市政府发布疫情通报称，3月7日0时至3月8日16时，北京市新增本土新冠肺炎确诊病例7例，其中海淀区3例、朝阳区4例。](https://www.ntdtv.com/gb/2022/03/08/a103367937.html)
 
+[位于北京的抖音母公司字节跳动有员工被确诊染疫，其位于科技园区的公司总部已被封控。官方呼吁市民，近期非必要不出京。](https://www.ntdtv.com/gb/2022/03/08/a103367937.html)
 
-根据大纪元2022年3月8日讯，拉脱维亚议会议员尤里斯‧尤拉斯（Juris Jurass）周二（3月8日）表示，他已经身在乌克兰，并加入了打击俄罗斯军队的战斗。
+[据青岛卫生健康3月8日发布消息称，8日0点至12点，山东青岛莱西市新增12例本土确诊病例、63例无症状感染者。](https://www.ntdtv.com/gb/2022/03/08/a103367937.html)
 
-尤拉斯是拉脱维亚议会法律事务委员会（Legal Affairs Committee）的负责人。
+[网易新闻3月7日消息称，吉林省吉林市疫情防控指挥部决定，从3月7日零时起，至13日24时，吉林市全面停工、停业、停课，实施近乎封城的管控措施。](https://www.ntdtv.com/gb/2022/03/08/a103367937.html)
 
-拉脱维亚司法部长兼新保守党（New Conservative Party）主席亚尼斯·博尔丹斯说，尤拉斯加入了乌克兰自由战士行列是他的个人决定，并表示完全尊重尤拉斯的选择。
+秘翻新闻 二丫 菜园子编辑报道
 
-乌克兰总统泽连斯基此前号召外国人去乌克兰帮助抗击俄罗斯的入侵。该国已为海外人士建立了一个“国际军团”。
+发布 : 恩典
 
-之前也有美国公民加入了乌克兰的国际军团。退役伞兵、德克萨斯州公民保罗（Paul）即是一例。
-
-参考链接：[https://www.epochtimes.com/gb/22/3/8/n13631095.htm](https://www.epochtimes.com/gb/22/3/8/n13631095.htm)
-
-*发布：*Frank2021
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

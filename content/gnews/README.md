@@ -15,128 +15,128 @@
 
 ---
 
-### [国际｜壳牌宣布将退出所有俄罗斯石油、天然气业务](/content/gnews/1/README.md)
+### [文•贵天成——文贵先生谈“双龙计划”（四）](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共谴责澳大利亚参与美国的“五四三二”阵营](/content/gnews/2/README.md)
+ ` 走进澳洲`
+
+### [国际｜壳牌宣布将退出所有俄罗斯石油、天然气业务](/content/gnews/3/README.md)
  ` 關注組`
 
-### [美国禁止中共国半导体等相关产品出口俄罗斯](/content/gnews/2/README.md)
+### [美国禁止中共国半导体等相关产品出口俄罗斯](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声｜中共国东部多地疫情再现](/content/gnews/3/README.md)
+### [有声｜中共国东部多地疫情再现](/content/gnews/5/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [波兰：目前超106万人逃离乌克兰，涌入波兰避难](/content/gnews/4/README.md)
+### [波兰：目前超106万人逃离乌克兰，涌入波兰避难](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [拉脱维亚议员加入国际军团帮助抗击俄罗斯](/content/gnews/5/README.md)
+### [拉脱维亚议员加入国际军团帮助抗击俄罗斯](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本已向乌克兰派遣军运机运送军事防护装备](/content/gnews/6/README.md)
+### [日本已向乌克兰派遣军运机运送军事防护装备](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大药企如何赢得与廉价有效的伊维菌素的战争（2/2）](/content/gnews/7/README.md)
+### [大药企如何赢得与廉价有效的伊维菌素的战争（2/2）](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新中国联邦在乌克兰的救援行动就是拯救全体中国人](/content/gnews/8/README.md)
+### [新中国联邦在乌克兰的救援行动就是拯救全体中国人](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声｜荷兰合作银行关北京分行 韩国多家企业关中国门店](/content/gnews/9/README.md)
+### [有声｜荷兰合作银行关北京分行 韩国多家企业关中国门店](/content/gnews/11/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [東京櫻グループ・ニュースの時間 第20期](/content/gnews/10/README.md)
+### [東京櫻グループ・ニュースの時間 第20期](/content/gnews/12/README.md)
  ` Tokyo Sakura Video Group`
 
-### [有声｜麦当劳宣布暂时关闭在俄847家门店](/content/gnews/11/README.md)
+### [有声｜麦当劳宣布暂时关闭在俄847家门店](/content/gnews/13/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [日本官方电台现场见证新中国联邦乌克兰救援行动](/content/gnews/12/README.md)
+### [日本官方电台现场见证新中国联邦乌克兰救援行动](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大药企如何赢得与廉价有效的伊维菌素的战争（1/2）](/content/gnews/13/README.md)
+### [大药企如何赢得与廉价有效的伊维菌素的战争（1/2）](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|四力角逐，四马奔腾的世代 – -从启示录第六章的四马奔腾看俄乌之战和新中国联邦](/content/gnews/14/README.md)
+### [有声|四力角逐，四马奔腾的世代 – -从启示录第六章的四马奔腾看俄乌之战和新中国联邦](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声｜香港疫情失控！一成警察染疫 医院在临终病人床下塞尸袋](/content/gnews/15/README.md)
+### [有声｜香港疫情失控！一成警察染疫 医院在临终病人床下塞尸袋](/content/gnews/17/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美参议员指责CDC拒绝回答COVID疫苗安全性有效性的问题](/content/gnews/16/README.md)
+### [美参议员指责CDC拒绝回答COVID疫苗安全性有效性的问题](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声｜妇女节前后 中共国网民用各种方式声援铁链女](/content/gnews/17/README.md)
+### [有声｜妇女节前后 中共国网民用各种方式声援铁链女](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [日本东京樱花团 中文新闻播报第十五期](/content/gnews/18/README.md)
+### [日本东京樱花团 中文新闻播报第十五期](/content/gnews/20/README.md)
  ` Tokyo Sakura Video Group`
 
-### [前线快报——3月8日，前线救援队连夜为被困华人同胞安排救援通道，现已安全抵达克拉科夫](/content/gnews/19/README.md)
+### [前线快报——3月8日，前线救援队连夜为被困华人同胞安排救援通道，现已安全抵达克拉科夫](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [人道危机加深 乌克兰指责莫斯科“中世纪”围式的野蛮战法](/content/gnews/20/README.md)
+### [人道危机加深 乌克兰指责莫斯科“中世纪”围式的野蛮战法](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共式撤侨：高价票勒索 半夜强制练红歌配合其宣传](/content/gnews/21/README.md)
+### [中共式撤侨：高价票勒索 半夜强制练红歌配合其宣传](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [视频|求救信息被中共屏蔽 在乌华人成弃子](/content/gnews/22/README.md)
+### [视频|求救信息被中共屏蔽 在乌华人成弃子](/content/gnews/24/README.md)
  ` MOSVIDEO`
 
-### [普京藏在瑞士的情人和他们的孩子](/content/gnews/23/README.md)
+### [普京藏在瑞士的情人和他们的孩子](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [从乌克兰最大飞机安225被摧毁来看中共的恶](/content/gnews/24/README.md)
+### [从乌克兰最大飞机安225被摧毁来看中共的恶](/content/gnews/26/README.md)
  ` 澳喜农场`
 
-### [视频|普京核心团队出现反战声音 惊爆在美藏匿的资产](/content/gnews/25/README.md)
- ` MOSVIDEO`
-
-### [文贵先生盖特精要- 2022/03/08](/content/gnews/26/README.md)
+### [文贵先生盖特精要- 2022/03/08](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [禁令风险警示买家，更多俄罗斯石油被大幅打折](/content/gnews/27/README.md)
+### [禁令风险警示买家，更多俄罗斯石油被大幅打折](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声｜23岁香港青年因反送中10.1 屯门警民冲突被判囚4年](/content/gnews/28/README.md)
+### [有声｜23岁香港青年因反送中10.1 屯门警民冲突被判囚4年](/content/gnews/29/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [新中国联邦法制基金乌克兰人道救援行动（四）](/content/gnews/29/README.md)
+### [新中国联邦法制基金乌克兰人道救援行动（四）](/content/gnews/30/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [我和我的爆料革命-化悲愤为能量](/content/gnews/30/README.md)
+### [我和我的爆料革命-化悲愤为能量](/content/gnews/31/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [秘翻在线:报告指出美国2021年的仇亚裔犯罪比2020年增加了339%](/content/gnews/31/README.md)
+### [秘翻在线:报告指出美国2021年的仇亚裔犯罪比2020年增加了339%](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [伦敦证交所集团：暂停在俄提供新产品和服务](/content/gnews/32/README.md)
+### [伦敦证交所集团：暂停在俄提供新产品和服务](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [波兰「足球先生」放弃巨额代言 力挺乌克兰！](/content/gnews/33/README.md)
+### [波兰「足球先生」放弃巨额代言 力挺乌克兰！](/content/gnews/34/README.md)
  ` 蓝莲花农场`
 
-### [乌克兰救援快讯：近百名乌克兰师生已平安抵达波兰边境](/content/gnews/34/README.md)
+### [乌克兰救援快讯：近百名乌克兰师生已平安抵达波兰边境](/content/gnews/35/README.md)
  ` GTV News Talk`
 
-### [联俄两线开火各取所需 中共加速全球自动灭共进程（八）](/content/gnews/35/README.md)
+### [联俄两线开火各取所需 中共加速全球自动灭共进程（八）](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆| 中共国房企禹洲集团爆雷 公告票据违约](/content/gnews/36/README.md)
+### [中日财经爆| 中共国房企禹洲集团爆雷 公告票据违约](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共发布虚假信息 令中国同胞错失获救机会](/content/gnews/37/README.md)
+### [中共发布虚假信息 令中国同胞错失获救机会](/content/gnews/38/README.md)
  ` 日本東京方舟農場`
 
-### [2022年3月8日郭先生盖特 — 视频1「9分25秒」](/content/gnews/38/README.md)
+### [2022年3月8日郭先生盖特 — 视频1「9分25秒」](/content/gnews/39/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [【转】截至3.8 俄乌战事汇总（4）](/content/gnews/39/README.md)
+### [【转】截至3.8 俄乌战事汇总（4）](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [危险！！！这就是俄国开始栽赃嫁祸的方式](/content/gnews/40/README.md)
+### [危险！！！这就是俄国开始栽赃嫁祸的方式](/content/gnews/41/README.md)
  ` 美国政要直译推`
-
-### [文•贵天成——文贵先生谈“孟建柱”（十八）](/content/gnews/41/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [中日财经爆┃大宗商品连续涨价对世界经济产生巨大影响](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -165,10 +165,10 @@
 ### [辉瑞根据法院令被迫公布提交给食药局疫苗副作用数据](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [国际｜俄罗斯公布“不友善国家”名单 将台湾视为国家被嘲“颠覆中共”](/content/gnews/51/README.md)
- ` 關注組`
+### [国連総会に採択されたコア4人道主義の原則](/content/gnews/51/README.md)
+ ` nuernbergforeign`
 
-### [俄乌战争｜欧盟正式开始审批乌克兰的加入申请](/content/gnews/52/README.md)
+### [国际｜俄罗斯公布“不友善国家”名单 将台湾视为国家被嘲“颠覆中共”](/content/gnews/52/README.md)
  ` 關注組`
 
 ### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/53/README.md)

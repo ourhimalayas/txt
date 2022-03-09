@@ -2,46 +2,29 @@
 ---
 
 
-## 大药企如何赢得与廉价有效的伊维菌素的战争（1/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2130717/)
+## 有声｜麦当劳宣布暂时关闭在俄847家门店
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2130731/)
 
-编译： Jenny Ball
+By:**秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-813.png)ifesitenews.com
+**2022-03-09**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-15.png)图片来源 路透社
+[《路透社》纽约3月8日报道，周二麦当劳公司宣布，将暂时关闭包括普希金广场在内的在俄所有的847家门店。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
-医学博士安德鲁·希尔（Andrew Hill）就是这样一个人，处于这样一个位置。2020 年 10 月，世卫组织要求他审查迅速积累的证据，证明伊维菌素是一种安全有效的 COVID 治疗方法。
+[报道指出，麦当劳餐厅的关闭在俄罗斯也具有重要的象征意义。麦当劳1990年在莫斯科市中心开设的第一家分店，在苏联解体后成为美国资本主义繁荣的象征。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
-如果说希尔博士的发现有很多意义，这都是太低估的评价，事实证明，这种制造成本低廉，且已经广泛使用的仿制药，可以消灭 COVID，那么它就可以迅速部署，可以挽救无数生命。
+[麦当劳表示，虽然俄罗斯所有门店被关闭，但是仍会继续向俄罗斯的6.2万名员工支付工资。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
-希尔似乎非常有资格完成他分配的任务。作为利物浦大学药理学系的高级访问研究员，他从事病毒及其治疗研究30年。他也是比尔和梅琳达盖茨基金会以及柯林顿基金会的顾问，这并非偶然。
+[与此同时，连锁咖啡店星巴克也宣布暂时关闭门店，百事可乐停止销售其软饮料品牌，可口可乐停止在俄罗斯的业务。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
-没有人会质疑希尔博士进行此类评估的能力。但是，正如我们在整个 COVID 大流行中所看到的那样，能力不能代替品格或是勇气。
+[马萨诸塞大学政治学教授马斯格雷夫说，麦当劳的关闭表明，西方对俄罗斯迅速而广泛的制裁将产生持久的经济影响。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
-当希尔收集他的数据时，他对自己的发现越来越印象深刻。他与伊维菌素的其他倡导者一起向 NIH 作了介绍，并表示支持使用它。2020 年 12 月 29 日，他在 Twitter 上写道：“伊维菌素在不同国家的广泛随机试验中显示出对病毒清除、住院和生存的影响。”他甚至承认，如果他 58 岁的弟弟得了新冠肺炎，他会给他服用伊维菌素。
+秘翻新闻 冰糖葫芦喵编译报道
 
-他告诉一直与他合作的前线医生，他的报告几乎准备好了, 那些前线医生自己通过使用伊维菌素挽救了数千人的生命。他们焦急地等待报告的发布。而他们不是唯一在焦急地等待报告的发布的。
-
-大型制药公司也在关注。他们开发了一种实验性基因疗法来治疗 COVID。但是，如果能有效的治疗药物可用，这种“疫苗”——正如他们谨慎地提到的那样——无法获得 FDA 的批准。如果卫生组织说伊维菌素是安全有效的，他们将损失数千亿美元的销售额。
-
-希尔博士在 2021 年 1 月 18 日发表的报告中充满了证据，证明这种廉价、广泛可用的药物是人类战胜 COVID 所需的武器。但是，他却没有得出明显的结论，而是抨击说：“伊维菌素应该在更大的适当对照随机试验中得到验证，然后其结果才足以供监管机构审查。”
-
-希尔这篇论文一发表——在预印本上，而不是在经过评审的学术期刊上——这仿佛在暗示，一场大规模的诋毁伊维菌素的运动就被发动了。
-
-一线的医生们既震惊又心痛。为什么希尔有效地杀死了治疗 COVID 的最有希望的治疗药物？谁强迫希尔了？是谁把这个痛苦的结论强加给他的？
-
-苔丝·劳里（Tess Lawrie ）博士现在已经回答了这个问题。在一段精彩的 18 分钟视频（也可在 Rumble 上找到）中，她讲述了她与希尔的互动，包括最后一次 Zoom 通话的视频，她恳求他重写论文的结论，并挽救生命：“出来支持伊维菌素，”她恳求道。 “你知道科学支持它。我们可以挽救生命。人们不必要像这样地死去。”
-
-然而……
-下一篇：大药企如何赢得与廉价有效的伊维菌素的战争（2/2）
-
-素材链接：【ifesitenews.com】[How Big Pharma won its war against cheap, effective Ivermectin](https://www.lifesitenews.com/blogs/how-big-pharma-won-its-war-against-cheap-effective-ivermectin/)
+发布 : 恩典
 
 * * *
-
-审核：文乐
-校对：花羽
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
