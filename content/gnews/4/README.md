@@ -2,47 +2,34 @@
 ---
 
 
-## 安大略省政府预计不会减免汽油税
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2133141/)
+## 澳大利亚，可怕的洪水，但未接种疫苗的志愿者被禁止提供帮助
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2133210/)
 
-作者：Mike Visser and Richard Southern
-翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_0Z615952.jpg)
-随着最近几周汽油价格飙升，阿尔伯塔省政府宣布了一项计划暂停对每升汽油柴油征收13分燃油税的政策，安省司机对此心有期待，但是安省政府明确表示不太可能采取类似举措。
+#### 翻译                         意大利达芬奇农场                      小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-09-alle-18.52.52.png)图片来源：eventiavversinews.it
+在澳大利亚新南威尔士州遭受为期一周的暴雨和洪水肆虐后，WYONG SES (民防) 通过其脸书页面向社区发出呼吁， 要求志愿者帮助为绝望的居民填沙袋。
 
-安省能源厅长Todd Smith说：我们已经采取措施让安省司机喘口气。安省在2018年削减了交易上限，这使汽油价格每升降低了4.3分，我们也要求联邦政府考虑削减税收。
+这确实是个自然灾害， 被定义为“每百年”发生一次的气侯现象，这意味着整个社区的救援努力应该是理所当然的。
 
-Smith指出最近安省宣布的举措包括取消车牌贴纸费用和取消两条多伦多地区高速公路的通行费，以此为司机省钱。相反，他呼吁联邦政府暂停即将于4月1日增加的碳税。
+但事情并非如此。
 
-联邦政府计划中的碳税增加预计将使每升汽油价格再上涨8分。这次上涨正赶上俄罗斯入侵乌克兰导致油价飙升之际。
+令当地SES工作人员感到沮丧的是，新南威尔士州政府和SES领导层决定只允许社区中完全接种疫苗的成员干填满沙袋的工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-09-alle-19.27.47.png)
+新南威尔士州受洪水影响地区的当地居民已经将目标对准了社交媒体， 表达了他们的怀疑和愤慨， 即在他们的社区发生真正危机的时候，尽管他们愿意并且有能力， 但他们却不被允许提供帮助。
 
-Todd Smith说碳税推高了所有商品的价格，让生活变得更加昂贵，特别是在这个特殊时候，联邦政府带头暂停增加碳税是有意义的。
+他们写道：“ 受到自然灾害袭击的人似乎并不介意未接种疫苗的人在他们需要时会帮助他们”。
 
-安省绿党领袖Mike Schreiner则认为消费者将从碳税计划增长中受益。他说，碳定价实际上给了人们回扣，对于大多数人来说，这将有助于他们解决负担能力方面的挑战，我想说不要摆脱那些碳退税，我想要那些碳税回扣给安大略人。
+“ 志愿者很少， 如果有人准备好了， 我不在乎他们是否接种过疫苗，”一位当地市民说。
 
-虽然阿尔伯塔人将在加油站获得一些临时实惠，但任何可能在安省暂停省级汽油税的举措都不会得到反对党领袖的支持。
+“ 这不会让我担心，” 另一个说，“我不在乎，” 第三个说。
 
-安省新民主党领袖Andrea Horwath说，取消这些汽油税不是一个好主意，因为它们为我们的医疗保健和教育系统以及许多其他事情提供资金。油价监管是要走的路，当我们上台组建政府时，我们会解决这个问题。
+随着未来几天和几周内一些地区更加糟糕的天气还会发生在同样的地区， 现在的重点是新南威尔士州的领导层计划如何应对这种情况。
 
-随着6月省选的临近，安省的自由党正在搁置任何关于暂停省级汽油税的讨论，以支持增加购买电动汽车的激励措施。自由党领袖Steven Del Duca 说：我认为有责任帮助人们摆脱使用燃油汽车。
+正如ADF特种部队前军官Stuart Gadenne告诉我的那样，由于这些规定，他没被批准参加SES的救援工作， 州政府必须彻底重新考虑这一决定并采取不同的方法。
 
-目前GTA油价为每升184.9分，预计周三将再次上涨。在上周飙升之前，安省加油站的历史最高记录是每升1.61元。
+原文链接： [https://www.eventiavversinews.it/australia-terribile-alluvione-ma-ai-volontari-non-vaccinati-e-vietato-aiutare-video/](https://www.eventiavversinews.it/australia-terribile-alluvione-ma-ai-volontari-non-vaccinati-e-vietato-aiutare-video/)
 
-来源：https://toronto.citynews.ca/2022/03/08/ontario-gas-taxes-no-relief/
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑、上传： Xiao  baige
 
  
 

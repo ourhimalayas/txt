@@ -2,33 +2,37 @@
 ---
 
 
-## 约克区警方正在进行的调查中查获了价值超过 21.5 万元的被盗奢侈品
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2133055/)
+## 多伦多警方警告居民警惕“祖父母骗局”
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2133116/)
 
-作者：Aileen Zangouei
-翻译: HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-97.png)
-日前万锦市华人区一家商店被偷，奢侈商品被盗。警方在调查过程中，逮捕了3名嫌犯，并查获了价值超过21万元的奢侈品和现金。
+作者：Austin Delaney
+翻译：HimaFAFA
+![](https://assets.gnews.org/wp-content/uploads/2022/03/70_104035136.jpg)
+多伦多警方向有老人的家庭发出警告，有骗子专门盯上这些老人，这个骗局今年已经使受害者损失了百万元。
 
-3月3日，警方接到报案称，位于Hwy 7与Kennedy Road附近的一家商店发生盗窃案，价值2500元的香水被偷走。
+该骗局是一个人打电话给老人，假装是他们的孙子，说他们被警察抓住遇到”大麻烦”，需要钱才能从监狱保释。
 
-警方开始展开调查这起事件，并锁定了三名嫌疑人。第二天，警方开具搜查令，来到宾顿市一处民宅展开搜查。
+多伦多警察局警员Ella Bhardwaj说：”他们会听起来很痛苦，哭着说他们有麻烦，他们需要帮助，需要钱。然后电话会被转给一个自称是律师或警察的人，并要求现金才能释放他们。”
 
-大批被盗财物在这次搜查中被查获，总价值超过21万5000元。被盗的奢侈品包括香水、服饰和时尚配件，例如市售价格在2500至5000元之间的Lady Dior迷你钱包、售价在1500至3500元的Prada迷你钱包、服饰、鞋子和墨镜等。警方还找到了大笔现金。
+Bhardwaj说，骗子会告诉老年受害者去银行提取大笔现金以确保他们的孙子获释。并说会有一个快递员来他们家取钱，只有这样，孩子才会从警方的拘留中获释。
 
-警方认为，这批赃物与近期在大多伦多的地区其他多处商家发生的盗窃案件有关。
+警方表示，这些”孙子”从未被警方拘留，而且钱也会有去无回。
 
-30岁的Christelle Pascall被控三项盗窃5000元以下财物罪名、持有犯罪所得物超过5000元、未能遵守法庭禁令罪。
+在最近的一起案件中，一位祖父母被告知要从银行取25,000元，并等待快递员来取钱。受害者想帮助家人，却上了当。
 
-31岁的Alijione Martin被控两项盗窃5000元以下财物、持有犯罪所得物超过5000元罪名。
+Bhardwaj说，这决不是警察的做事方式。
 
-5来自多伦多的58岁男子Catherine Wilson被控持有犯罪所得物超过5000元罪名。
+Bhardwaj说：”任何时候，警察都不会要求你去银行取出一大笔钱，让快递员去你家取钱。警察不会这样做。”
 
-此案仍在进一步调查中。
+一年多来，有80位祖父母成为这种电话诈骗的受害者，总共被骗了近100万元。
 
-警方呼吁目击者或其他受害者前来报案。
+魁北克省拉瓦尔市24岁的Nikolaos Antonopoulos，实施诈骗后在多伦多家中被捕。据称他要求受害者再提供21,000元，以使他们的孙子从警方拘留中安全获释。
 
-来源：https://www.yorkregion.com/news-story/10585274-dior-prada-among-stolen-merchandise-worth-over-215k-seized-in-ongoing-york-regional-police-investigation/
+这一次受害者报了警。他被指控犯有五项超过5,000元的欺诈罪。
+
+多伦多警方表示，他们希望任何其他受害者能够站出来。
+
+来源：https://toronto.ctvnews.ca/toronto-police-warn-residents-about-grandparents-scam-costing-people-thousands-of-dollars-1.5811352
 
 **免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 ![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)

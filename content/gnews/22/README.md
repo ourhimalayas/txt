@@ -2,26 +2,29 @@
 ---
 
 
-## 韩国前海军特战队军官志愿奔赴乌克兰前线
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2132785/)
+## 妇女节当天世界为铁链女发声
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2132835/)
 
-作者：首尔天池农场 – 追着曙光跑
+作者：银河系农场 – 骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月7日，据多家媒体报道，韩国前海军海豹突击队成员李根表示，他目前已经和队员们一起启程前往乌克兰，帮助该国抵御俄罗斯的入侵。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-17.jpg)
-资料显示，韩国政府已经向该国居民下达了对乌克兰的旅游禁令。根据要求，近期入境乌克兰的韩国民众将被处以一年以下的有期徒刑或1000万韩元以下的罚款。对此，李根在其社交媒体平台上强调，作为一个经过特殊训练的、拥有专业技能和知识的前特战队军官，他不能对眼下乌克兰的紧张局势坐视不理。为此，他将组织有共同意愿的队员一并前往乌克兰参与援助，且若他能从战场上生还，他愿意接受一切处罚。
+3月8日国际妇女节当天，郭文贵先生在盖特平台上发布了歌曲《锁链梦》作为最特别的礼物，送给全天下的女性同胞。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-12.jpg)
+与此同时，墙内关注“锁链女”事件的民众也在盖特和其他社交媒体平台上为这些受害女性发声：有网友展示了自制的标语牌，其上写着锁链女那句被世界遗弃的悲凉语句，以及“关注女性儿童，关注未来”的呼吁；还有相关的歌曲唱出了民众希望救援这些受害女性的诉求。此外，有位作家发表文章称，她尝试佩戴了两个小时的自制锁链后，已经让她无法呼吸，但“锁链女”却被铁链禁锢了24年，这一难以承受的苦痛让这位作家潸然落泪。另有上海地区的学生身缠锁链作为行为艺术，向公众揭示“锁链女”事件。
 
-报道也提及，自俄罗斯入侵乌克兰以来，全球约有两万名“国际志愿者”已经前往乌克兰，加入了与俄罗斯军队的战斗中。早先，乌克兰总统泽连斯基也公开呼吁称，希望海外的志愿者能够参与保卫乌克兰的行动。而据乌克兰驻各国使馆发布的消息显示，使馆持续收到了各地居民大量有关赴乌参战的咨询。
+另一方面，锁链女的事件也在国际上引起了重大关注：近日，国际品牌在巴黎时装周上让模特戴着锁链走秀，表达出对锁链女的声援。
 
 参考链接：
-1). [**“러시아와 싸우러..” 이근, 우크라로 떠났다..”살아돌아와 처벌받겠다”**](https://n.news.naver.com/article/014/0004798738)
-2). [국민 여러분,당신이 의미 있는 일을 하기 위해 노력할수록 언제나 인생의 패배자들이 당신을 질투하여 당신을 비방하고 밑으로 끌어내리려고 할 것입니다.](https://www.instagram.com/p/Caw7bMVvr-7/?utm_medium=copy_link)
+1). [转自主内作家沙光：这根链子约三斤重，我录制视频戴了两个小时，倍觉窒息，可见，疯县锁链女子常年遭此桎梏，何堪忍受。\[流泪\]\[心碎\]\[发怒\]](https://gettr.com/post/pyo9m3752d)
+2). [2022年巴黎时装周， 时尚是人的时尚 因为善良，同理心，所以有人类同胞。 为锁链女祝福。](https://gettr.com/post/pyrvi529ad)
+3). [三八缚女结，我们替千万女同胞发声。](https://gettr.com/post/pytc7i26a3)
+4). [一位奶爸**👨‍🍼**战友。 憋不住来KTV房唱铁锁梦，**😂😂**](https://gettr.com/post/pytca822e1)
+5).[铭记历史，拯救铁链女靠战友们行动。](https://gettr.com/post/pytr3o80a4)
+6).[2022 #巴黎时装周 off-white向丰县 #锁链女 致敬— 剪断锁链 三八妇女节—— 祝世界所有女同胞都不沦为 锁链女](https://gettr.com/post/pyrse1a150)
+7). [Shanghai Yangpu street, International Women’s Day performance art 上海杨浦街头，国际妇女节行为艺术](https://gettr.com/post/pyunap8bb6)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-总编: Irene木木
-编辑: 宁文静
-审核: Irene木木
+总编/编辑/审核: Irene木木
 校正/发稿：Fei797
 
 **更多资讯，更多关注**
@@ -31,6 +34,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
