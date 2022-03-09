@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 12:54 PM (UTC)`
+
+【Ukraine Rescue】03/08/22 David talks to a couple(Chinese husband/Ukrainian wife)  that were rescued by NFSC and ROLF at a bus hub Krakow, Poland: all we want is to save the lives of our fellow Chinese, regardless of their political views.<br/><br/>【乌克兰救援】03/08/22 大卫在克拉科夫汽车站和一对被新中国联邦和法治基金救援的中乌夫妇交谈：我们只想救助中国同胞，无论政治观点。<br/>
+![img](https://media.gettr.com/group41/getter/2022/03/09/12/704e7c13-140c-08da-0628-f34f93f5a4fa/out.jpg)
+
+---
+
 `@miles 3/9/2022 12:24 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导
@@ -148,13 +155,6 @@ Due to the Chinese Communist Party manipulating our email service provider with 
 
 3/8/2022 Miles Guo: The Russian-Ukrainian war has demonstrated the solidarity and toughness of the Ukrainians. But the Chinese people will have to pay a high price for this war and their stupidity and ignorance. What the CCP has done has made the world discriminate against the Chinese, while the fellow fighters of the New Federal State of China are saving all the Chinese people across the globe!<br/><br/>3/8/2022 文贵盖特：俄乌战争体现了乌克兰人的团结和坚强；中国人将为这场战争及其愚蠢、无知付出高昂的代价；中共的所作所为让全世界排华，而新中国联邦的战友们却在拯救全球的华人<br/>
 ![img](https://media.gettr.com/group16/getter/2022/03/08/22/c73fcb60-bab8-22d8-489d-10f34f4532a1/out.jpg)
-
----
-
-`@miles 3/8/2022 10:23 PM (UTC)`
-
-3/8/2022 Miles Guo’s GETTR: It is my sincere hope that the song “Chained Dream” serves as a wake up call to our fellow Chinese, so that they will abandon cowardice and stop being so apathetic; through music, we endeavor to promote world peace, and more importantly, to bring safety and dignity to Chinese women.<br/><br/>3/8/2022 文贵盖特：真心希望《锁链梦》能让中国人醒来，抛弃懦弱、不再冷漠，我们要用音乐推动世界和平、更重要的是维护中国女性的安全和尊严<br/>
-![img](https://media.gettr.com/group24/getter/2022/03/08/22/a6dc8d07-b985-1ee8-633a-85dc58dc14ef/out.jpg)
 
 ---
 

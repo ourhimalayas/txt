@@ -2,36 +2,56 @@
 ---
 
 
-## 德勤、安永、毕马威和普华永道撤出俄罗斯和白俄罗斯市场
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2131663/)
+## 乌克兰救援报道
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2131687/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-6.jpg)
+作者：香草山健身部-新世界的一员
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+俄罗斯入侵乌克兰已经进入第十三天，
+全世界目光聚焦于乌克兰。
+波兰边境由于大量乌克兰难民的涌入，
+成为了难民的救援中心，
+也成为了全球媒体的云集之地。
+正在波兰边境展开救援行动的新中国联邦，
+引起了世界各个媒体的关注。
+日本唯一的国有电视台NHK，派记者现场报道了乌克兰的救援现况，
+录制现场就是新中国联邦的救援点，
+那亮眼的蓝色联邦七芒星旗，飘扬在记者身后，
+虽说日本记者没有提及新中国联邦，
+但是，整个报道一直清晰的新中国联邦国旗在飘扬。
+飘扬在所有关注乌俄战争的人们面前。
+我们新中国联邦在乌克兰高效的救援，
+不计回报的付出，热爱和平，
+受到了各方的尊重和支持，
+更有德国的法籍战地记者Emma，
+知道了新中国联邦，
+并支持新中国联邦“消灭中国共产党”，
+她对新中国联邦不计成本的救援非常感动，
+认为我们新中国联邦人是热爱和平善良的人，
+不等同于中国共产党。
+Emma最后还和Nicole战友一起喊出：“Take down the CCP!”
+全球第三大联播网——CBS的直播车
+一直都在关注我们的救援行动。
+他们的早间新闻主播Tony会到现场跟纽约总部连线直播。
+正如郭文贵先生所述：
+世界上尚没有一个国家像新中国联邦这样去前线救援！
+随着乌克兰救援行动的展开，我们救出越来越多的人，
+新中国联邦就越来越为人所知，
+新中国联邦将走向越来越广阔的世界舞台！
 
-图片来自原文
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-34.jpg)
 
-随着俄罗斯与乌克兰战争的加剧，制裁导致许多公司认为继续在俄罗斯开展业务的声誉和财务风险太高。德勤（Deloitte）、安永(EY)、毕马威(KPMG)和普华永道(PwC)加入了一长串从俄罗斯市场撤出的公司行列。
+审核/编辑/发稿:qiutian（邱甜）
 
-这四大财务咨询公司–德勤、毕马威、安永和普华永道–已经与负责俄罗斯业务的公司切断联系，以回应该国对乌克兰的入侵。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-这些公司不会完全关闭当地业务。而是将在俄罗斯和白俄罗斯建立独立的实体，并从各自公司的企业结构中合法分离出来。
-
-毕马威的一位发言人说，我们有责任与其他全球企业一起，对俄罗斯政府的持续军事攻击乌克兰作出回应。因此，我们在俄罗斯和白俄罗斯的公司将从毕马威公司分离出来。
-
-毕马威发言人还说，这一决定与工人无关，是俄罗斯政府行动的后果。我们是一个以目标为导向和价值观驱动的组织，相信目前正在做的是正确的事情。
-
-与此同时，普华永道发表声明，将尽其所能帮助乌克兰同事，支持援助乌克兰人民的人道主义努力。
-
-德勤发言人也表达类似的观点，承认俄罗斯和白俄罗斯员工 “对其政府的行动没有发言权”。并表示将继续优先考虑员工和客户的需求，同时发挥德勤全球资源力量，解决乌克兰和整个欧洲日益增长的人道主义需求。
-
-此举将影响整个俄罗斯和白俄罗斯的大量员工，因为毕马威在该地区有超过4500名员工，德勤有3000名员工，而安永和普华永道仅在俄罗斯就分别有4700和3700名员工。
-
-安永公司表示这一决定令人心碎，然后补充说，该公司 “将努力支持 “那些失去工作的人，同时继续为原有的客户提供帮助。
-
-新闻来源链接：[https://www.zdnet.com/article/big-four-consultancy-firms-withdraw-from-russia-and-belarus/#ftag=RSSbaffb68](https://www.zdnet.com/article/big-four-consultancy-firms-withdraw-from-russia-and-belarus/#ftag=RSSbaffb68)
-
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

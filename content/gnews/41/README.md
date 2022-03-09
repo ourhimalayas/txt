@@ -2,26 +2,45 @@
 ---
 
 
-## 秘翻在线:报告指出美国2021年的仇亚裔犯罪比2020年增加了339%
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2130167/)
+## 前俄罗斯新闻主播谈俄罗斯的言论审查
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2130074/)
 
-**翻译/撰稿：zzballack**
+作者：银河系农场 – 骄子
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/22-8.jpg)               图片来源：卫报
-据《NBC新闻网》2月14日报道，美国仇恨及极端主义研究中心(Center for the Study of Hate and Extremism)最新公布的一份报告数据显示，2021年全美各地的反亚裔仇恨犯罪比2020年增加了339%，其中纽约、洛杉矶、旧金山等城市的仇亚犯罪纷纷创下新高，严重程度前所未见。
 
-研究结论指出，仇亚犯罪增加反映了仇恨犯罪整体上升的趋势。在过去一年，美国十多个大城市的警方接获的仇恨犯罪报案数量平均增加了11%。
 
-亚美公义促进会(Asian Americans Advancing Justice)主席杨重远(John C. Yang)指出，关于2021年反亚裔仇恨犯罪增加的报告并不令人惊讶。“去年3月，当8人（其中6人是亚裔女性）在亚特兰大的水疗中心被枪杀后，人们对此的担忧达到了最高点。这个问题尽管已经取得了一些进展，包括民选官员意识的提高，但并未得到弥补。我们的社区仍然受到攻击，我们必须继续努力解决反亚裔仇恨问题。” 杨重远补充说，在疫情期间，不仅亚裔社区饱受种族歧视折磨，其他族裔也同样面临各种类型的仇恨犯罪。动荡时期若能团结一致，大家都能受益。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-数据显示，2020年全美各地的反亚裔仇恨案件数量比2019年增加了124%，纽约市的数字尤其惊人，反亚裔仇恨案件从2019年的30件上升到2020年的133件，增加了343%。同期旧金山的反亚裔仇恨犯罪则从9起增加到60起，增加了567%，洛杉矶增加了173%。
 
-该报告还包括了有关针对亚裔美国人的仇恨事件统计数据。其中包括非暴力形式的歧视，比如口头骚扰和回避。这些数据来自仇恨事件追踪平台“停止仇恨亚太裔 (Stop AAPI Hate)”，该倡议从2020年3月至2021年9月收集了约10370份仇恨事件报告。
 
-郭文贵先生多次在大直播中指出，当前世界局势动荡，各种灾难频发，危机之下的各国民众最终只能找中国人、亚洲人和亚裔发泄中共病毒（Covid-19）疫情给他们带来的苦痛，排华现象会愈演愈烈。因此所有新中国联邦人要积极和广泛传播中共病毒及其疫苗真相、中共不等于中国人等等，并且通过乌克兰人道主义救援行动等善举向世界表明中国人是爱好和平、遵守国际秩序的，一改中共给世人留下的糟糕印象，将排华可能造成的灾难降低到最小。
+外媒3月7日消息，前俄罗斯国家电视台新闻女主播安娜·库尔金说，居住在俄罗斯的人如果被认为反对政府，便会遭受极端的困境。 库尔金来自俄罗斯，十年前定居到美国西雅图。促使她离开俄罗斯的原因就是俄罗斯当局对言论的审查。
 
-**新闻来源：**[Anti-Asian hate crimes increased 339 percent nationwide last year, report says](https://www.nbcnews.com/news/asian-america/anti-asian-hate-crimes-increased-339-percent-nationwide-last-year-repo-rcna14282)
+而现在，随着俄罗斯对乌克兰的入侵，俄罗斯政府变本加厉，不仅相继禁止了各大社交媒体平台，对其他媒体的言论审查也更为严格，很多媒体被迫关闭。普京还签署了一项法律，来威胁那些反对俄罗斯入侵乌克兰的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-5.jpg)
+库尔金曾在俄罗斯的国家电视台工作了15年之多，她说，当人们说出俄罗斯当局的某些真相时，可能会面临长达15年的监禁。
+
+俄罗斯有很多记者都因为说真话受到审查、监禁，甚至杀害。在言论审查和的高压之下，人们活得就像一个机器，终日忙碌却一生毫无所成，被圈在贷款中无法自拔。安娜·库尔金为自己曾经的国家入侵乌克兰感到心碎，并为那些同样反对战争的俄罗斯人感到担忧，她清楚俄当局会对他们造成的迫害。
+
+参考链接：
+[Former Russian news anchor living in Seattle discusses ongoing censorship](https://www.king5.com/article/news/local/seattle/former-russian-news-anchor-russia-censorship/281-85a323ab-c234-4184-9eac-6975bde74fc2)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编：天滅中共
+编辑/审核：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 
