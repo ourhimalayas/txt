@@ -2,29 +2,35 @@
 ---
 
 
-## 秘翻在线:报告指出美国2021年的仇亚裔犯罪比2020年增加了339%
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2130167/)
+## 法治基金新闻直播中心首现边境救援基地
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2129939/)
 
-**翻译/撰稿：zzballack**
+作者：香草山农场-静言，saner三二
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月8日，据爆料革命前线战友传回的消息显示，乌克兰战地救援行动的新闻直播中心已经在乌克兰边境的难民营中搭建并调试完毕，救援直播团队之后会从前线将第一手新闻报道直接送回盖特直播节目总部。 据悉，该难民营目前已有多家国际媒体在此设立了各自的直播点和采访中心。
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/22-8.jpg)               图片来源：卫报
-据《NBC新闻网》2月14日报道，美国仇恨及极端主义研究中心(Center for the Study of Hate and Extremism)最新公布的一份报告数据显示，2021年全美各地的反亚裔仇恨犯罪比2020年增加了339%，其中纽约、洛杉矶、旧金山等城市的仇亚犯罪纷纷创下新高，严重程度前所未见。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-4.jpeg)
 
-研究结论指出，仇亚犯罪增加反映了仇恨犯罪整体上升的趋势。在过去一年，美国十多个大城市的警方接获的仇恨犯罪报案数量平均增加了11%。
+此外，位于波兰和乌克兰边境的村庄米蒂卡如今是乌克兰难民逃生的必经之地，这里也是新中国联邦最主要的救援基地。随着从世界各地出发的、由新中国联邦战友组成的救援团队陆续到达乌克兰，各农场分队目前已经有了明确的分工：意大利文科团队负责指挥基地的营救行动；华盛顿农场的阿丙团队负责搭建和调试战地新闻直播中心；洛杉矶明道团队则是负责米蒂卡的战地新闻直播。
 
-亚美公义促进会(Asian Americans Advancing Justice)主席杨重远(John C. Yang)指出，关于2021年反亚裔仇恨犯罪增加的报告并不令人惊讶。“去年3月，当8人（其中6人是亚裔女性）在亚特兰大的水疗中心被枪杀后，人们对此的担忧达到了最高点。这个问题尽管已经取得了一些进展，包括民选官员意识的提高，但并未得到弥补。我们的社区仍然受到攻击，我们必须继续努力解决反亚裔仇恨问题。” 杨重远补充说，在疫情期间，不仅亚裔社区饱受种族歧视折磨，其他族裔也同样面临各种类型的仇恨犯罪。动荡时期若能团结一致，大家都能受益。
+据前线回传的资料显示，在新中国联邦救援团队前往乌克兰边境的途中，红十字国际委员会的物资运输车辆也正在驶往边境难民营。在那里，波兰民众捐赠了大量的衣服、食物和帐篷，用以为寻求帮助的难民提供少许安身之所。
 
-数据显示，2020年全美各地的反亚裔仇恨案件数量比2019年增加了124%，纽约市的数字尤其惊人，反亚裔仇恨案件从2019年的30件上升到2020年的133件，增加了343%。同期旧金山的反亚裔仇恨犯罪则从9起增加到60起，增加了567%，洛杉矶增加了173%。
+参考链接：[DC农场战友Nicole从救援前线发回的报道：新中国联邦在前线的直播中心。](https://gettr.com/post/pyvybqd0ad)
 
-该报告还包括了有关针对亚裔美国人的仇恨事件统计数据。其中包括非暴力形式的歧视，比如口头骚扰和回避。这些数据来自仇恨事件追踪平台“停止仇恨亚太裔 (Stop AAPI Hate)”，该倡议从2020年3月至2021年9月收集了约10370份仇恨事件报告。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-郭文贵先生多次在大直播中指出，当前世界局势动荡，各种灾难频发，危机之下的各国民众最终只能找中国人、亚洲人和亚裔发泄中共病毒（Covid-19）疫情给他们带来的苦痛，排华现象会愈演愈烈。因此所有新中国联邦人要积极和广泛传播中共病毒及其疫苗真相、中共不等于中国人等等，并且通过乌克兰人道主义救援行动等善举向世界表明中国人是爱好和平、遵守国际秩序的，一改中共给世人留下的糟糕印象，将排华可能造成的灾难降低到最小。
+总编：Irene木木
+编辑：宁文静
+审核：Irene木木
+校正/发稿：谐趣园
 
-**新闻来源：**[Anti-Asian hate crimes increased 339 percent nationwide last year, report says](https://www.nbcnews.com/news/asian-america/anti-asian-hate-crimes-increased-339-percent-nationwide-last-year-repo-rcna14282)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

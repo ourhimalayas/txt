@@ -2,43 +2,24 @@
 ---
 
 
-## 美国小李一行到达救援前线
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2131722/)
+## 中日财经爆┃拜登禁止俄原油进口，转购委内瑞拉
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2131131/)
 
-作者: 银河系农场—骄子
+撰写：东京樱花团/Garrettw
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-12.jpg)[图片来源](https://baijiahao.baidu.com/s?id=1726739522594136000&amp;wfr=spider&amp;for=pc)
+从历史上看委内瑞拉拥有世界上最大的石油储备，它的大部分原油都被出口到美国的炼油厂。马杜罗周一证实，委内瑞拉打算增加其原油产量，此举是在俄罗斯因入侵乌克兰而受到制裁，石油出口急剧下降的情况下进行的。马杜罗说：“我们已经准备好恢复生产。一百万、两百万或三百万桶，一切都可以！”他说：“一切以和平的名义！”
 
+美国的交易可能说起来容易做起来难。经过多年的管理不善和缺乏对石油设施的维护，该国的石油产量几乎处于历史最低水平。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-50.png)
-当地时间3月7日晚，美国小李一行十余人到达波兰克拉科夫救援大本营。此行经过24+4小时的颠簸，集结于此。战友相见分外亲切，大家互相拥抱，有的用家乡话聊天问候，有的认出彼此是一起在SEC门口战斗过的面孔。旅途虽远，但热诚的问候和暖心的笑容一扫旅程的乏劳。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-8.30.29-PM.png)图片来源: Gettr (@pangushixun)
-大本营所在的这个酒店条件在本地来说是档次较高的。酒店坐落在一个边陲小城，且在战争时期，餐食尽管没那么丰富，但战友表示已经非常好了。
+委内瑞拉此时高调宣布：以和平的名义，增加原油产量，表面是是为了国家利益和世界和平，实际上选边站，站在了美国为首的一边。马杜罗政权之前和中共的勾兑更加说明了中共现在是穷途末路，万人唾弃的。郭文贵先生曾经说过中共的抱团取暖，中共，俄罗斯，北朝鲜，伊朗，委内瑞拉等。现在第一个站出来的是委内瑞拉，剩下国家的还远吗？俄罗斯的这次战争，习普的二人计划，还会按部就班吗？
 
-战友大卫在交谈中说，因为这是一个国际大救援，我们根本没有经验。但是经过这么几天的磨合，在大巴接人，酒店接应方面已经顺利完善了流程，一些细节方面还有待改善。
+消息来源：
 
-这是新中国联邦到达救援前线的第五批团队，不同的救援团队到达以后，稍作休息后，会即刻奔赴不同的救援地点。
+[March 8, 2022 Russia-Ukraine news](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-03-08-22/index.html)
 
-参考链接: [https://gettr.com/post/pyq34v03b1](https://gettr.com/post/pyq34v03b1)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
-
-编辑/校对/发稿: 卡夫卡的甲壳虫
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

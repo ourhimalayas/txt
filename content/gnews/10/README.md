@@ -2,41 +2,25 @@
 ---
 
 
-## 有声|法制基金乌克兰救援美国第二团队抵达波兰
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132537/)
+## 俄罗斯外贸银行即日起实施人民币存款业务
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2132565/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月7日，由美国小李带领的新中国联邦乌克兰救援队一行10位战友，从美国洛杉矶登机后，经历24个小时，已顺利到达波兰边境城市克拉科夫，与大卫带领的第一批救援先锋队，约20位战友汇合，给连日来辛苦救援的第一批救援队，带来了新生力量。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-3.jpeg)
-3月3日，第一批救援队先期到达波兰华沙，在波兰边境设立了临时救助点，解决救援撤离车辆等问题，
+**撰稿：日本东京方舟农场  海星**
 
-3月5日，纽约救援队、西班牙救援队安全到达波兰。
+3月9日，俄罗斯外贸银行（VTB）发布公告表示，该银行即日起实施人民币存款新业务。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-100.jpg)（图片来源：网络）
+据《搜狐网》报导，VTB银行于9日发布的公告称，自3月9日起，该银行开始提供人民币存款服务，最高年利率为8%，并声称人民币是最方便和最具前景的资金配置方案之一。据悉，该银行早年曾与中共建设银行合作推出过卢布和人民币结算业务。
 
-几天来，战友们已开展了一系列救援行动，据郭文贵先生7日的盖特消息，已成功救助200多人抵达波兰克拉科夫，其中包括99个乌克兰孩童。
+VTB银行是俄罗斯第二大金融机构，由政府控股。近期，由于俄罗斯入侵乌克兰，欧盟对该银行实施了金融制裁，将其从SWIFT支付系统中剔除，因此VTB银行正准备退出欧洲市场。对此，国际金融研究所副首席经济学家伊琳娜·里巴科娃(Elina Ribakova)分析指出，制裁俄罗斯银行可能导致俄罗斯发生大规模银行挤兑和美元化，出现急剧抛售，耗尽外汇储备，最终其金融系统将走向全面崩溃。
 
-据郭先生透露，接下来还会有第三波救援队前往波兰，总共将会有70人左右参与救援。这是新中国联邦向世界展示其与中共国不一样性质的舞台，大幕已经开启。
+参考链接：
+1.[https://www.sohu.com/a/528474305\_115479](https://www.sohu.com/a/528474305_115479)
+2.[https://gnews.org/zh-hans/2118220/](https://gnews.org/zh-hans/2118220/)
+3.[https://gnews.org/zh-hans/2078517/](https://gnews.org/zh-hans/2078517/)
 
-
-
-文字版原文：[法制基金乌克兰救援美国第二团队抵达波兰](https://gnews.org/zh-hans/2127338/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+素材采编：海星
+总编：青城道姑
+校对发布：爱放飞
 
  
 
