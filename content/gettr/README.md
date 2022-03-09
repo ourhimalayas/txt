@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 11:00 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 2022-03-09
+![img](https://media.gettr.com/group8/origin/2022/03/09/22/5dc6b4d2-60d2-0c1c-47ac-41c2a2c4078c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/9/2022 10:50 PM (UTC)`
 
 3/9/2022 Miles Guo: The CCP will start taking action around the world between late March and April. Xi Jinping will take a chance by using the Middle East to provoke an energy war to bring down the world economy and attack Taiwan. The CCP will resort to more ruthless means, but it will also perish sooner. The New Federal State of China will clean up the battlefield.<br/><br/>3/9/2022 文贵直播：中共将在3月底到4月在世界上开始行动，习将冒险一搏，用中东挑起能源战争打垮世界经济并攻打台湾，中共将采取更狠的手段，但也会更快灭亡，新中国联邦将打扫战场<br/>
@@ -147,13 +154,6 @@
 
 Due to the Chinese Communist Party manipulating our email service provider with the intention of disrupting our Ukraine rescue operation, the previously announced website and email address have been forcibly closed and the updated 24-hour Emergency Rescue Support Team's contact information is as follows:<br/><br/>24-hour Emergency Rescue Hotline (Phone/Text):<br/>+1 720-657-6776 <br/>+1 719-224-4232<br/>+48 508-532-712 <br/>+48 508-531-518<br/><br/>Telegram: t.me/UkraineRescue<br/><br/>GETTR: gettr.com/user/UkraineRescue<br/><br/>E-mail: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com
 ![img](https://media.gettr.com/group43/getter/2022/03/09/02/10b89877-ed61-f97d-13a6-b4fb43d7c307/00a99eb1b6334cd90b40ed095d9357f0.jpg)
-
----
-
-`@miles 3/9/2022 1:46 AM (UTC)`
-
-2022.03.08 晚 《新中国联邦新闻》
-![img](https://media.gettr.com/group5/origin/2022/03/09/01/bf76dc0d-3ee5-a534-7b73-bbba65593ede/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
