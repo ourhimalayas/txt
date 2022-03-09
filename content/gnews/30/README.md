@@ -2,31 +2,51 @@
 ---
 
 
-## 有声 ｜美拟提案冻结俄罗斯黄金储备
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2131147/)
+## 新中国联邦法制基金乌克兰救援团建战地新闻直播中心
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2131596/)
 
-**By:[秘翻新闻](https://gettr.com/post/pyzs3abc68)**
+作者：香草山农场写作组 – 静言
 
-**[2022-03-09](https://gettr.com/post/pyzs3abc68)**
 
-**今日新闻主题:**
 
-**1. 香港疫情失控！一成警察染疫 医院在临终病人床下塞尸袋**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-**2. 妇女节前后 中共国网民用各种方式声援铁链女**
 
-**3. 美国禁止从俄罗斯进口能源 俄军推进速度明显放缓**
 
-**4. 麦当劳宣布暂时关闭在俄847家门店**
+3月8日，新中国联邦法治基金乌克兰救援队前线发回简讯，参与救援的各个分队会有明确分工。
 
-**5. 美中情局局长：不要低估习近平对台湾问题的决心**
+华盛顿农场阿丙团队将前往波兰与乌克兰交界的小镇Medyka, 建立战地新闻直播中心，此镇是乌克兰人逃生必经之地。昨天刚刚到达的洛杉矶团队负责人明道，负责Medyka的战地新闻报道。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture-27.jpg)
+鉴于目前乌克兰局势日益恶化，新中国联邦救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
+自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发前往波兰。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+求助方式请参考以下视频。
 
-**🔗Gettr链接：**[https://gettr.com/post/pyzs3abc68](https://gettr.com/post/pyzs3abc68)
+意大利文科团队将在Medyka 指挥营救行动。
 
-发布:星星
+当地时间8日早晨还有另外一条喜讯，在救援队前往乌克兰边境救援的路上，看见一辆有红十字会标记的大巴往乌克兰边境开去。连日来辛苦疲惫且孤单营救的新中国联邦战友们，心里感到无比温暖，愿更多正义力量加入营救乌克兰难民的阵营。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+参考链接：
+[新中国联邦和法治基金关于紧急救援乌克兰的通知](https://gettr.com/post/pyw9zs571a)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/审核：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

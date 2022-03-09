@@ -2,30 +2,40 @@
 ---
 
 
-## 2022.3.9大直播 世界格局即将大变 无皇有主的时代已经正式到来
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2132552/)
+## 英美宣布禁止进口俄罗斯石油和其他能源
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2132634/)
 
-撰稿：大浪小水花
+作者：首尔天池农场 – 追着曙光跑/纽约香草山农场 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月8日，据当地媒体报道，美国总统拜登当天发布声明宣布，将禁止进口俄罗斯的石油和其他能源，从而增强美国对俄罗斯所施加压力，而这也是美国针对俄罗斯入侵乌克兰行为所采取的最新制裁措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-13.jpg)
+拜登在声明中强调，该举措是美国人民对俄罗斯的另一个有力打击，目前已经受到了来自美国两党的强烈支持。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-09-at-10.05.06-PM.jpeg)
+拜登还表示，石油以及其他能源的出口是俄罗斯的经济支柱。但鉴于俄罗斯当下对乌克兰的侵略举动，美国正在与欧洲的盟友合作，用以孤立普京和俄罗斯的经济。因此，在与世界各地的盟友和伙伴密切磋商后，美国政府实施了这一最新制裁举措。
 
+同时，英国也在一份声明中宣布，将在2022年年底前逐步停止进口俄罗斯的石油和石油产品，以此作为对俄罗斯无端和无理对乌克兰发动战争的制裁。
 
-郭文贵先生在2022年3月9日的大直播中，告诉战友们未来世界即将会发生的大变局。
+对此，拜登提到，美国正在与盟友及伙伴共同合作，从而发展一套减轻依赖俄罗斯能源的长期战略；而作为制裁，这一战略正在导致俄罗斯经济的崩溃。
 
-郭先生首先提到一个无皇有主的时代已经正式到来，没有皇帝，以民为主的时代正式到来，今后的世界不会再有俄罗斯，也不会有今天的欧洲。俄罗斯和欧洲会被一个大的欧洲所代替，不可能再有俄罗斯，俄罗斯的时代过去了。
+参考链接：
+1). [US strikes harder at Putin, banning all Russian oil imports](https://apnews.com/article/russia-ukraine-war-us-russia-oil-ban-120c0152cf310a5b593f6ae7a2857e62)
+2). [UK to phase out Russian oil imports by 2023 and explore ending gas imports](https://www.theguardian.com/world/2022/mar/08/no-10-plans-cut-russian-fossil-fuels-use)
+3). [U.S. President Joe Biden announced a ban on Russian oil and other energy imports in retaliation for Russia’s invasion of Ukraine, underscoring strong bipartisan support for a move that he acknowledged would drive up U.S. energy prices https://reut.rs/3Kpgtsf](https://twitter.com/reuters/status/1501240354191790085?s=21)
 
-另外，大中国不会存在，台湾、香港、新疆、西藏，广东、东北都会独立，会在中国人自愿的情况下成立国家。而一直依附于美国的加拿大会逐渐强大，接受大量的移民，成为一个独立的个体。澳大利亚会崛起。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-郭先生特别提到，欧洲会变成以乌克兰为主的欧洲，乌克兰的正义和勇气给人类新世界奠定了基础。乌克兰会以高科技为中心，会发展出新的能源科技，代替石油和天然气。未来的网络、太空、通信技术都会以乌克兰为中心。乌克兰的经济会主要靠数字经济、数字货币和数字安全。
+总编: Irene木木
+编辑: Ivy001
+审核: 文真
+校正/发稿：Fei797
 
-郭先生指出，这个世界新的未来技术，外星人，UFO和太空科技，无人机技术都会在乌克兰产生。乌克兰人的勇敢和懂得感恩，还有乌克兰富饶的土地和发达的交通运输，会吸引全世界的年轻人和人才都会聚集过来。
-
-郭先生补充道，未来亚洲的中心就是台湾，台湾会把帛琉和周围的小国，日本北部，整个中国南海，福建东部，广西，广东东南部都会划归中华台湾国。另外，西藏、新疆都会独立。
-
-郭先生强调，普京的时代从俄乌打响第一枪就已经过去。习会非常痛苦的过去，他还会把很多中国人一起带进坟墓。北京的天安门上不会有一点共产党的标记，而且是一夜之间的时间就会发生。
-
-参考链接：[2022年3月9日文贵大直播](https://gettr.com/streaming/pz1ocoe7cb)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

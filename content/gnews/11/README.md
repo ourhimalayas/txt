@@ -2,40 +2,37 @@
 ---
 
 
-## 美国对波兰转移战斗机的提议感到震惊
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2132563/)
+## 有声|郭先生提醒墙外战友提防排华袭击
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132656/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image007-1.jpg)Alik Keplicz/美联社照片
-据美国《政治报》（Politico）3月9日报导，波兰政府周二宣布准备将其28 架MiG-29 战斗机转移到美国，并把它们移交给与俄罗斯入侵战斗的乌克兰飞行员。报导称，华沙这个提议令华盛顿“震惊”，感到完全出乎意料。五角大楼发言人柯比当地时间8日表示，这一提议“站不住脚”。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月6日的大直播中，郭先生表示，最近华人在全世界频繁遭到袭击，请亚洲战友尤其是女性要特别小心。给被中共洗脑的中国人思想排毒太难，而战友们传播疫苗真相不要在乎结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-2.jpg)
+郭先生说，近期非洲、欧洲和美国，都有无端袭击华人事件发生，因此他提醒亚洲战友，尤其是女性，在这些地方外出一定要多加注意安全。同时，给中国人排出中共种下的毒太难了，就像我们的战友在乌克兰战争中救人，竟然还有中国人不顾生死，反而先顾虑新中国联邦是否会给自己带来麻烦。
 
-报导称，此前华盛顿和华沙就将喷气式飞机转移到乌克兰进行了一周的来回谈判。
-
-美国情报界和国防部表示反对将波兰飞机转移到乌克兰，因为让飞机越过边境以及转交过程的“复杂性”。并表示，波兰政府在宣布这一消息之前没有与美国同行协商。
-
-[【援引连结】](https://www.politico.com/news/2022/03/08/poland-transfers-mig-fighters-to-the-us-as-ukraine-asks-for-help-00015259)
+对此，郭先生强调在乌克兰救人并非责任，就如同我们告诉世界中共病毒疫苗是毒药一样，不用在乎对方信不信，而对不看、不相信文贵先生直播的人，缘分也基本已尽。
 
 
 
-**推出问题，敲出真相，爆料在路上！**
+文字版原文：[郭先生提醒墙外战友提防排华袭击](https://gnews.org/zh-hans/2129871/)
 
-**请关注和订阅我们的以下账号：**
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**玫瑰看新闻YOUTUBE账号**：
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**玫瑰看新闻**
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**黑森林的故事**
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

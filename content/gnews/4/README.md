@@ -2,40 +2,38 @@
 ---
 
 
-## 英美宣布禁止进口俄罗斯石油和其他能源
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2132634/)
+## 有声|切尔诺贝利核电站被断电
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132726/)
 
-作者：首尔天池农场 – 追着曙光跑/纽约香草山农场 – Naughty(文行)
+配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月8日，据当地媒体报道，美国总统拜登当天发布声明宣布，将禁止进口俄罗斯的石油和其他能源，从而增强美国对俄罗斯所施加压力，而这也是美国针对俄罗斯入侵乌克兰行为所采取的最新制裁措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-13.jpg)
-拜登在声明中强调，该举措是美国人民对俄罗斯的另一个有力打击，目前已经受到了来自美国两党的强烈支持。
+3月9日，乌克兰外交部长库莱巴发推表示，切尔诺贝利核电站的整条供电线路及其由俄军控制的所有核设施均遭到破坏。
 
-拜登还表示，石油以及其他能源的出口是俄罗斯的经济支柱。但鉴于俄罗斯当下对乌克兰的侵略举动，美国正在与欧洲的盟友合作，用以孤立普京和俄罗斯的经济。因此，在与世界各地的盟友和伙伴密切磋商后，美国政府实施了这一最新制裁举措。
+切尔诺贝利已断电。我敦促整个国际社会紧急要求俄罗斯停火，并允许维修人员尽快恢复电力供应。
 
-同时，英国也在一份声明中宣布，将在2022年年底前逐步停止进口俄罗斯的石油和石油产品，以此作为对俄罗斯无端和无理对乌克兰发动战争的制裁。
+这些备用柴油发电机仅够为核电站及其设施提供48小时的电力。然后将导致关闭乏核燃料储存的冷却系统，这将威胁到核辐射的泄漏。俄罗斯的野蛮战争威胁着整个欧洲。普京必须立即制止这种情况！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/id12954441-radiation-copy-450x253-1.jpeg)
 
-对此，拜登提到，美国正在与盟友及伙伴共同合作，从而发展一套减轻依赖俄罗斯能源的长期战略；而作为制裁，这一战略正在导致俄罗斯经济的崩溃。
 
-参考链接：
-1). [US strikes harder at Putin, banning all Russian oil imports](https://apnews.com/article/russia-ukraine-war-us-russia-oil-ban-120c0152cf310a5b593f6ae7a2857e62)
-2). [UK to phase out Russian oil imports by 2023 and explore ending gas imports](https://www.theguardian.com/world/2022/mar/08/no-10-plans-cut-russian-fossil-fuels-use)
-3). [U.S. President Joe Biden announced a ban on Russian oil and other energy imports in retaliation for Russia’s invasion of Ukraine, underscoring strong bipartisan support for a move that he acknowledged would drive up U.S. energy prices https://reut.rs/3Kpgtsf](https://twitter.com/reuters/status/1501240354191790085?s=21)
+文字版原文：[切尔诺贝利核电站被断电](https://gnews.org/zh-hans/2131755/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
-
-总编: Irene木木
-编辑: Ivy001
-审核: 文真
-校正/发稿：Fei797
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
