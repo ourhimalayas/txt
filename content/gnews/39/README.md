@@ -2,38 +2,41 @@
 ---
 
 
-## 美宣布禁止俄罗斯石油进口 英国跟进
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2129338/)
+## 纽约CBS转播车与法治基金直播中心为邻
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2129508/)
 
-**编译：文舞两道**
+作者: 香草山写作组-静言
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-46.png)
+3月8日，从波兰与乌克兰交界的难民营，法治基金乌克兰救援队直播中心Nicole传来消息，在战友直播车旁边，有辆相对小型，但顶上安装着卫星通信设备的车，Nicole上前与忙碌着的几位男士打招呼，发现他们是全球第三大联播网的纽约CBS的转播车。他们表示已经来此处两天了，明天早晨早间新闻主播Tony将来现场，与他们在纽约的总部连线。
 
-3月8日，美国总统乔-拜登签署了一项总统令，禁止所有俄罗斯原油、天然气、煤炭和其他能源的进口，作为对继续在乌克兰进行军事侵略的俄罗斯的额外经济制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/D611CE81-560C-4C0A-B081-20D41745A834.jpeg)照片来源：https://www3.nhk.or.jp
-拜登总统说：”我们的目标是打击俄罗斯经济的大动脉”，并强调了通过禁运俄罗斯的主要能源产业来进一步增加压力的目的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2761.jpg)
 
-对美国来说，俄罗斯的石油和石油产品占其进口量的8%左右，预计将由增加的国内生产或从其他国家进口来取代。
+难民营现场还有许多新闻转播车与新闻从业人员，等候着报道各种现况。
 
-然而，由于担心供应减少，禁运导致石油期货价格飙升，美国面临着既要以强硬的方式处理俄罗斯，又要减少汽油价格上涨，对人们生活造成的影响。拜登总统说：”虽然这一决定将不可避免地增加国内成本，但我们将尽一切力量保护美国家庭和企业’’。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2762.jpg)
 
-8日，英国政府宣布在今年年底前逐步停止进口俄罗斯石油，这与美国呼吁合作加强对俄罗斯的制裁是一致的。
+Nicole现场采访了一名来自德国柏林的法国战地记者Emma，这位受雇于英国时尚杂志I-D的女士，大学专业是国际政治。当Nicole向Emma介绍自己是法制基金与新中国联邦救援队一员时，Emma兴奋地说，她知道新中国联邦，表示很高兴见到法制基金赞助的救援队来救助乌克兰难民。当Nicole 继续传达新中国联邦救人的正道主义理念，而CCP是一个不顾自己人民死活的独裁政权时，这位来自德国的年轻记者，与Nicole 同声喊出：Take down the CCP！
 
-约翰逊总理在一份声明中说：”这是对普京政权的进一步经济打击,我们将在保护英国消费者的同时实现这一目标”。
+新闻链接：
 
-英国从俄罗斯进口的石油占其总需求量的8%。至于天然气，英国对俄罗斯的依赖程度也很低，不到4%。
+[https://gettr.com/post/pyxncs95d4](https://gettr.com/post/pyxncs95d4)
 
-**消息来源**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-23.jpg)
 
-：[バイデン大統領 ロシア産原油の輸入禁止措置を発表 価格高騰も](https://www3.nhk.or.jp/news/html/20220309/k10013521431000.html?utm_int=news_contents_news-main_002%20\h)
+编辑/校对/发稿：遍地开花
 
-**编辑：LILY**
+**更多资讯，更多关注**
 
-**发布：歪桑**
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-20220308
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-45.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

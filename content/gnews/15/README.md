@@ -2,32 +2,23 @@
 ---
 
 
-## 伦敦证交所集团：暂停在俄提供新产品和服务
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2130122/)
+## 视频|撤出俄罗斯的外国公司名单不断增加
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2130260/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+制作：香草山视频部
 
-整理：围剿维尼熊
-编辑：木木木mmmmm
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0160.jpg)图片来自：Jack Taylor/Getty Images
-伦敦证券交易所集团（LSEG）3月8日表示，从格林尼治时间周三12:00起，暂停在俄罗斯提供包括新闻和评论在内的新的产品和服务。
+近日，对乌克兰的入侵正在导致大量公司离开俄罗斯，扭转了1991年苏联解体后西方和其他外国企业在那里三十年的投资。随着外国政府加大对俄罗斯的制裁力度，对其飞机关闭空域，并将一些银行锁定在SWIFT货币传输系统之外，以及卢布的暴跌，那些切断联系或审查其业务的公司名单正在不断增加。一些公司已得出结论，无论是在声誉还是财务方面的风险都太大了，无法继续下去。
 
-据路透社报导，LSEG这一决定是对俄罗斯上周颁布的一项新法律做出的回应。这项新法律规定，故意传播俄罗斯当局所称的“假新闻”将被视为刑事犯罪，相关记者可能会遭到长达15年的监禁。
+退出俄罗斯的公司包括西方主要的能源巨头：英国石油公司、壳牌公司、挪威国家石油公司和埃克森美孚。其中英国石油巨头壳牌终止了与俄罗斯最大的能源巨头——国有控股的俄罗斯天然气工业公司——的合作关系。多家全球汽车业巨头也宣布退出俄罗斯市场，包括戴姆勒卡车控股公司、沃尔沃、哈雷戴维森公司、通用汽车公司、福特汽车公司、丰田汽车公司、本田汽车公司等。支付行业巨头Visa、Mastercard 和Paypal也都已经许宣布停止其在俄罗斯的运营。
 
-根据该法律，报导任何可能损害俄罗斯军队声誉的事件都是非法的，包括俄军在乌克兰遭遇军事挫折和造成平民伤亡的消息。
+发稿：雪梨
 
-LSEG称，它还暂停了让其产品和服务在俄罗斯进行任何新的销售，但当前获得服务的客户可以继续使用其数据产品。
-
-参考链接：[伦敦证交所集团：暂停在俄发布新闻和评论](https://www.epochtimes.com/gb/22/3/8/n13631258.htm)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

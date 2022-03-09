@@ -2,25 +2,32 @@
 ---
 
 
-## 波兰「足球先生」放弃巨额代言 力挺乌克兰！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2130101/)
+## 伦敦证交所集团：暂停在俄提供新产品和服务
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2130122/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/d4cf4892-9234-4c55-99a9-67b06715c8e0.jpg)图片来源：rl9 IG
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-随着俄罗斯入侵乌克兰，2022年世界盃欧洲区附加赛第二轮的同组对手，包括捷克、波兰与瑞典足协也发表联合声明，拒绝参加任何与俄罗斯的比赛。对此，莱万多夫斯基日前也公开表态「我们不能假装什么都没有发生」，支持波兰足协不愿意跟俄罗斯交手的决定。
+整理：围剿维尼熊
+编辑：木木木mmmmm
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0160.jpg)图片来自：Jack Taylor/Getty Images
+伦敦证券交易所集团（LSEG）3月8日表示，从格林尼治时间周三12:00起，暂停在俄罗斯提供包括新闻和评论在内的新的产品和服务。
 
-由于中共通信巨头华为被指暗中帮助俄罗斯抵抗骇客，莱万多夫斯基为了力挺乌克兰，决定与华为解约，放弃今年签下的3年500万欧元代言合约，对此，华为也已证实解约消息。
+据路透社报导，LSEG这一决定是对俄罗斯上周颁布的一项新法律做出的回应。这项新法律规定，故意传播俄罗斯当局所称的“假新闻”将被视为刑事犯罪，相关记者可能会遭到长达15年的监禁。
 
-简评：中共金援俄罗斯入侵乌克兰，实乃挑起战争的幕后黑手，莱万多夫斯基放弃巨额合约勇敢发声力挺乌克兰，名副其实的足球先生。新中国联邦也有一位足球先生，愿你们能联手坚持正义，挺乌是正义的需要，灭共是正义的需要！
+根据该法律，报导任何可能损害俄罗斯军队声誉的事件都是非法的，包括俄军在乌克兰遭遇军事挫折和造成平民伤亡的消息。
 
-新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022309W0095)
+LSEG称，它还暂停了让其产品和服务在俄罗斯进行任何新的销售，但当前获得服务的客户可以继续使用其数据产品。
 
-撰稿/发布：一叶知秋
+参考链接：[伦敦证交所集团：暂停在俄发布新闻和评论](https://www.epochtimes.com/gb/22/3/8/n13631258.htm)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

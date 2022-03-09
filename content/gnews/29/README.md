@@ -2,48 +2,78 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“孟建柱”（十八）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2129767/)
+## 危险！！！这就是俄国开始栽赃嫁祸的方式
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2129815/)
 
-#### 整理：小儿
-编辑：朝花夕拾
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-1.png)图片来源：雅典娜设计组
+马可·卢比奥： 危险！！！ 这就是俄国开始栽赃嫁祸的方式。 如果乌克兰发生生物武器事件，100% 确定是俄罗斯人干的 【图片大意：俄外交部称发现乌克兰实验室在发展生物武器，由美国防部资助】
 
 
-郭文贵2017年6月30日第四次直播
 
-他们非常之兴奋干这事，我们在西方，例如把王岐山书记，还有海航，还有新华人寿，还有现在田国立先生，还有什么康典先生，还有王岐山的什么私生女，还有王岐山的私生子，这是所有的这些人，包括孟建柱海外的私生子女、情人、家人、东南亚的房地产，碧桂园绿城给他搞的这些股权这些东西，通通查封。我们要把战场引到国外来，我们不但跟西方分享利益，我告诉他们，这件事情将对世界产生巨大影响，将在中国走向民主，自由法治有绝对影响，让中国的下一代，下一阶段政府，叫他们知道这个天下不都是你说了算，这个战场不都是在你家，也可以在国外。而且这些国家的领导人和这些国家的机构兴奋至极，对我的很多想法，他们非常非常的兴奋，已经全面开始行动。对待王岐山书记要在十九大抓钱袋子啊，刀把子枪把子这个理想，这个想法一定会让他不成功，我们在十九大的时候，你们会看到一系列的国际行动，会把这些人列入（名单），梁建丽现在搞的马科斯基法案，要不把这些人家族家庭全部禁止旅游，所有海外资产全部查封。接下来，我们会有三千多个海外的这个高官贪官子女留学海外资产，全部公告查封，在海外形成一个不敢到海外腐，真的不敢腐，不想到海外腐，不敢和我们挑战，所有的民运还有海外这个积极人士还有海外华人，不能回家的同胞们，只有我们一起行动，同时揭发在你身边的这些高官的子女，LV的情人村，澳大利亚的情人村，马来西亚的华人，新加坡的华人，香港的同胞，台湾的同胞，发现贪官的情人、财富、私生子女，马上给文贵说。我们就把这些人公布于众，和西方这些所有政府合作，通过马科斯基法案，通过建立的西方民主基金，海外非法基金，通过美国的欧洲的澳大利亚的法律，反洗钱，把这些金融机构查封，把投资基金查封，那是多么有意义的事情啊，这就是文贵说的行动大于一切。
+> DANGER!!!
+> This is how [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) sets up false flags 
+> 
+> If there is a biological weapons incident in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) be 100% certain its the Russians who did it [pic.twitter.com/r5F0q0rUvr](https://t.co/r5F0q0rUvr)
+> — Marco Rubio (@marcorubio) [March 8, 2022](https://twitter.com/marcorubio/status/1501299527659274247?ref_src=twsrc%5Etfw)
 
-我们要把战场放在西方，战场的主动权在我们手里。他们能绑架我们的家人，我们在西方也能把他们的家人抓起来，他抓我们的员工，我们在这里把他们的同党抓起来，然后我们大家一起，所有的海外的同志们我们团结在一起，集体爆料，集体查他的信息，在几个国家，如果我们集体行动，把这些贪官污吏盗国贼，财富情人私生子女抓起来，他们有多么的痛苦。他不仅能让我们的家人得抑郁症，让我们一个朋友的家人去自杀，我们也让他们自杀。现在老领导说国内的9000万党员，他说我可以告诉你们，全部都是支持你，大家现在碍于，大家各个方面原因不方便站出来说话。他说不管王岐山有多厉害，十九大他要敢继续当下去， 党内有人会造反的，孟建柱要想当国家副主席，主管外交，那党会造反的。如果让王岐山当总理，韩正去当纪委书记或者政法委书记，那它的原名私生子的这个事件，和他的所有的家族过去在上海的企业公司的事情，党内是不愿意的，说这次共产党九千万党员，还有四百万的公检法干部，都了如指掌文贵的爆料事件。他说你说的真假这些人轻而易举都能得到，老百姓知不知道，他说第二重要，第一重要是九千万党员，你放心，四五个人改变不了党和国家，绝对不能绑架党和国家。而且这些老同志已经形成一致意见，如果王岐山孟建柱继续十九大控制政法委，控制中纪委，大家都非常清楚，国家不是走向改革开放民主自由，一定会回到文革时代，一定会引起内乱，而且这个内乱谁也收拾不了，那就是王岐山这种变态的性质，对中国人的仇恨转而以卖国求荣达到保护他的利益集团，而将国家置于死地，永不可再生。
 
-往期回顾：
-[文•贵天成——文贵先生谈“孟建柱”（一）](https://gnews.org/zh-hans/2050956/)
-[文•贵天成——文贵先生谈“孟建柱”（二）](https://gnews.org/zh-hans/2050401/)
-[文•贵天成——文贵先生谈“孟建柱”（三）](https://gnews.org/zh-hans/2050410/)
-[文•贵天成——文贵先生谈“孟建柱”（四）](https://gnews.org/zh-hans/2050392/)
-[文·贵天成——文贵先生谈“孟建柱”（五）](https://gnews.org/zh-hans/2050653/)
-[文•贵天成——文贵先生谈“孟建柱”（六）](https://gnews.org/zh-hans/2069519/)
-[文•贵天成——文贵先生谈“孟建柱”（七）](https://gnews.org/zh-hans/2069991/)
-[文贵天成——-文贵先生谈“孟建柱”（八）](https://gnews.org/zh-hans/2074302/)
-[文贵天成——-文贵先生谈“孟建柱”（九）](https://gnews.org/zh-hans/2074376/)
-[文贵天成——文贵先生谈“孟建柱”（十）](https://gnews.org/zh-hans/2074418/)
-[文贵天成——文贵先生谈“孟建柱”（十一）](https://gnews.org/zh-hans/2102984/)
-[文贵天成——文贵先生谈“孟建柱”（十二）](https://gnews.org/zh-hans/2103185/)
-[文贵天成——文贵先生谈“孟建柱”（十三）](https://gnews.org/zh-hans/2103229/)
-[文•贵天成——文贵先生谈“孟建柱”（十四）](https://gnews.org/zh-hans/2103512/)
-[文•贵天成——文贵先生谈“孟建柱”（十五）](https://gnews.org/zh-hans/2108151/)
-[文•贵天成——文贵先生谈“孟建柱”（十六）](https://gnews.org/zh-hans/2129720/)
-[文•贵天成——文贵先生谈“孟建柱”（十七）](https://gnews.org/zh-hans/2129507/)
 
-*发布：*Frank2021
+比尔·格茨: 国防情报局负责人表示，普京威胁使用核武器是真实的，“我们应该相信他的话”国防情报局还估计有2000至4000名俄罗斯士兵丧生
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+> DIA director says the Putin threat to use nukes is real and “we should take him at his word” DIA also estimates 2,000 to 4,000 Russian troops killed [https://t.co/DhonHqFXmC](https://t.co/DhonHqFXmC)
+> — Bill Gertz (@BillGertz) [March 9, 2022](https://twitter.com/BillGertz/status/1501392135190298631?ref_src=twsrc%5Etfw)
+
+
+
+众议员吉姆·班克斯： 拜登对俄罗斯的制裁却让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 得以救助俄罗斯银行。 拜登必须实施适用于北京的连带制裁！ 【附南华早报文章：[#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 警告肖尔茨和马克龙‘制裁俄罗斯会拖累世界经济’】
+
+
+
+> Biden’s sanctions on Russia allow the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) to bail out Russian banks. 
+> 
+> Biden must impose secondary sanctions which apply to Beijing! [https://t.co/QZdVKPMxvr](https://t.co/QZdVKPMxvr)
+> — Jim Banks (@RepJimBanks) [March 8, 2022](https://twitter.com/RepJimBanks/status/1501344040272420868?ref_src=twsrc%5Etfw)
+
+
+
+众议员吉姆·班克斯： 普京的情况并不好，习近平显然不希望他的公民看到当你入侵一个主权国家时会发生什么。 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 【附[http://axios.com](https://t.co/bZseuGwPHd)新闻：大事：中共国管制乌克兰（新闻）】
+
+
+
+> Things aren’t going great for Putin and Xi obviously doesn't want his citizens to see what happens when you invade a sovereign nation. [#taiwan](https://twitter.com/hashtag/taiwan?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/BJdiWtZbWB](https://t.co/BJdiWtZbWB)
+> — Jim Banks (@RepJimBanks) [March 8, 2022](https://twitter.com/RepJimBanks/status/1501331865365581824?ref_src=twsrc%5Etfw)
+
+
+
+参议员霍利新闻办： 霍利参议员询问美国核力量指挥官，中共国是否已准备好对美军使用核武器。他的回答是：肯定的。
+
+
+
+> Senator Hawley asks the commander of America’s nuclear forces whether China is getting ready to use nuclear weapons against U.S. troops. His answer: unequivocally yes. [pic.twitter.com/fffK9CXm4i](https://t.co/fffK9CXm4i)
+> — Senator Hawley Press Office (@SenHawleyPress) [March 8, 2022](https://twitter.com/SenHawleyPress/status/1501302530399162382?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克.蓬佩奥： 台湾是全亚洲最具活力的民主国家，处于当今自由与暴政斗争的最前沿。
+
+
+
+> Taiwan the most vibrant democracy in all of Asia and is at the forefront of today’s fight between freedom and tyranny.
+> — Mike Pompeo (@mikepompeo) [March 8, 2022](https://twitter.com/mikepompeo/status/1501324235561742338?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹： 阻止普京的战争机器需要削减他向欧洲出售天然气和石油的能力。 欧洲对能源的需求首先可以通过美国能源以及来自我们的合作伙伴和盟友的能源来满足。
+
+
+
+> Stopping Putin's war machine requires cutting his ability to sell gas and oil to Europe.
+> 
+> Europe’s demand for energy can be met first and foremost with American energy, along with energy from our partners and allies. [pic.twitter.com/5kx9Pac8ps](https://t.co/5kx9Pac8ps)
+> — Senator Ted Cruz (@SenTedCruz) [March 9, 2022](https://twitter.com/SenTedCruz/status/1501379242243735553?ref_src=twsrc%5Etfw)
+
+
 
  
 

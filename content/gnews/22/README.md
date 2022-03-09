@@ -2,28 +2,43 @@
 ---
 
 
-## 中日财经爆| 中共国房企禹洲集团爆雷 公告票据违约
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2130034/)
+## 历史今天3月8日
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2130035/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-10.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fi1.hexun.com%2F2021-07-27%2F204038999.jpg&amp;imgrefurl=http%3A%2F%2Fm.163fans.com%2Fnews%2Fshow%2F6043%2F&amp;tbnid=mjc8x0mrDAfiXM&amp;vet=12ahUKEwiu3oO9mbj2AhUE3pQKHaKfAi0QMygDegUIARCsAQ..i&amp;docid=blQWHMF0HsGm_M&amp;w=)
-3月7日，中共国又一房企爆雷违约，禹洲集团发布公告称其未在宽限期届满前支付一笔到期的优先票据利息，已构成违约。
+作者：香草山教育部-马克文、朱丽叶
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2014年3月8日，马来西亚航空MH370号班机载着239人，在由吉隆坡国际机场飞往北京首都国际机场航线时，于马来西亚当地时间凌晨1时21分在马来西亚与越南的航空管制区内失去与塔台的联系，之后该机折返飞向马来西亚，并在马来西亚霹雳岛上空失去卫星联络讯号，至今下落不明。
 
-禹洲集团周二股票盘中重挫逾8%，创2009年11月上市以来新低，该股此前已连续两个交易日收跌。公司公告称，其未在宽限期届满前支付2023年到期的8.5%优先票据的利息，已构成违约。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide13-3.jpeg)
 
-公告显示，公司发行的并于联交所上市的2023年到期的8.5%优先票据的利息2,125万美元，已于2022年2月4日到期应付。根据2023年票据II的信托契据，有30天宽限期支付利息以避免违约事件。但宽限期现已届满而公司并无于届满前支付有关款项。
+事发后，多国参与了MH370的搜索工作，据称一无所获。2018年5月29日，由于仍然未能找到MH370的残骸，马来西亚宣布停止搜索工作。
 
-上述未支付已构成2023年票据II下的违约事件。因此，2023年票据II的持有人可以要求即刻尝付本金和应计利息。截至本公告发布之日，2023年票据II的未偿还本金为5亿美元。公司暂未收到任何该票据持有人的即刻还款通知。
+新中国联邦创建人郭文贵先生爆料，马航370号航班有多位中国人体器官移植专家，这些医学专家给中共高官及家属做过多次活人器官移植手术。中共高官的邪恶势力爪牙，如孟建柱、孙立军等为了毁灭证据，利用世界只有三个国家掌握的航空航天牵引技术控制马航370号航班自行坠落，造成机毁人亡。有朝一日，马航MH370神秘失踪谜案，一定会大白天下。
 
-禹洲集团主要从事房地产开发业务，该股过去一年已累跌逾八成。
+1996年3月8日，中共于台湾海峡开始进行第二阶段导弹射击演习，借此威吓干扰台湾将举行的总统大选。
 
-消息来源:
+1995年，美国首次允许李登辉到访，李登辉成为台美断交17年后首位访美的台湾最高层官员。他在母校康奈尔大学发表“中华民国在台湾”的重要讲话。此举激怒了中共，遂以李登辉企图将台湾脱离中国为借口，武力威胁台湾。
 
-[《股市简讯》中国房企禹洲集团重挫逾8%创新低，2023年到期票据付息违约](https://cn.reuters.com/article/%E3%80%8A%E8%82%A1%E5%B8%82%E7%AE%80%E8%AE%AF%E3%80%8B%E4%B8%AD%E5%9B%BD%E6%88%BF%E4%BC%81%E7%A6%B9%E6%B4%B2%E9%9B%86%E5%9B%A2%E9%87%8D%E6%8C%AB%E9%80%BE8%25%E5%88%9B%E6%96%B0%E4%BD%8E%EF%BC%8C2023%E5%B9%B4%E5%88%B0%E6%9C%9F%25)
+1995年 ，中共在台湾海峡和台湾周围，进行第一波试射导弹、实弹演习。1996年3月8日至3月25日期间，中共进行第二波导弹发射及军事演习。台湾首次总统民主直接选举计划在1996年3月23日举行，因担心中共突然军事入侵，3月8日当天，美国立刻宣布独立号航空母舰战斗群部署到台湾东北海域，并进行大规模的海空联合演习。保障了台湾的民主选举，民选总统李登辉连任。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+参考链接：
+1. [马航370的未解之谜何时揭开](https://gnews.org/zh-hans/143483/)
+2. [台灣海峽飛彈危機](https://zh.wikipedia.org/wiki/台灣海峽飛彈危機)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
+总编：Zion文恩
+编辑：Jack Li文阳
+审核：Jack Li文阳
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

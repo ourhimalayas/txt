@@ -2,35 +2,40 @@
 ---
 
 
-## 禁令风险警示买家，更多俄罗斯石油被大幅打折
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2130318/)
+## 佛罗里达州建议健康儿童不要接种中共病毒疫苗
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2130320/)
 
-翻译：文扬
-编辑：skyandmoon2012
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220124230144-61ef8048d7d03850e23a7514jpeg-5.jpg)资料图
+来自《今日美国》网站2022年03月07日的报道，佛罗里达州卫生局局长约瑟夫·拉达波(Joseph Ladap)无视美国顶级传染病和儿科健康专家的指导，于周一宣布，该州将成为美国第一个建议健康儿童不接种中共病毒疫苗的州。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/GNH38PP5ECKQIQY.png)图片来源：雅典娜设计组
+拉达波是在西棕榈滩的圆桌会议结束时宣布这一消息的，州长罗恩·德桑蒂斯(Ron DeSantis)召开的这次会议，讨论应对中共病毒疫情时的“失败”。拉达波说，佛罗里达州“将成为第一个正式建议反对为健康儿童接种中共病毒疫苗的州”。
+
+在宣布这一消息之前，德桑蒂斯挑选的参加圆桌会议的多位健康专家贬低了该疫苗对儿童的重要性，一些人说接种疫苗的好处并没有超过风险。
+
+罗伯特·马龙博士(Dr.Robert Malone)因对中共病毒的“科学共识”持有不同的观点而崭露头角，他声称，“17000多名医生和医学科学家的共识是，儿童接种疫苗的风险-利益比没有证明接种疫苗是合理的。”
+
+简评：由于儿童还处在生理发育阶段，他们的肺部还没有足够的中共病毒特异性受体，因此中共病毒在儿童的感染率相当低。而全球只有极个别关于儿童感染中共病毒导致死亡的病例。儿童的天然免疫力为他们提供了完美的保护。因此他们根本不需要接种中共病毒疫苗。
+
+但一些黑手却千方百计的煽动政府，对儿童展开疫苗强制接种要求，这既不符合科学，也不符合道德。唯一的解释就是接种疫苗的真正目的并不是为了预防中共病毒，而中共病毒存在的目的就是为了在全球接种毒疫苗。
+
+在听取了医生、专家的建议之后，佛罗里达州决定不建议健康儿童接种中共病毒疫苗是非常正确的决定，这会使千千万万个美国儿童免于疫苗灾难。做出这种决定需要莫大的勇气，美国食品药品监督管理局公布的有关辉瑞公司疫苗副作用的报告也绝对证明了疫苗就是毒药。希望全美能有更多的州跟随佛罗里达州的脚步，认清疫苗真相，广泛宣传疫苗危害，挽救更多无辜的生命。
+
+新闻链接: [https://eu.usatoday.com/story/news/nation/2022/03/07/florida-surgeon-general-joseph-ladapo-recommend-against-covid-vaccine-healthy-kids/9412641002/](https://eu.usatoday.com/story/news/nation/2022/03/07/florida-surgeon-general-joseph-ladapo-recommend-against-covid-vaccine-healthy-kids/9412641002/)
+
+翻译/简评: kkoto(芬兰大灰狼)
+
+PR:Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-（彭博社）——来自远东的俄罗斯索科尔石油（Sokol）船货以大幅折扣报价，因为该国入侵乌克兰以及原油进口禁令的前景使买家对处理其石油持谨慎态度。
+编辑：【英国伦敦喜庄园编辑部】
 
-知情人士表示，一家贸易公司提供了5月份装船的货物，该货物将从东部港口德卡斯特里（De-Kastri）装船。与迪拜的基准价格相比，每桶折扣高达14美元。这比上周托克集团以每桶1美元的溢价向索科尔提供的价格要低得多。
-
-由于中东的迪拜价格标价相对于伦敦的布伦特原油下跌，导致船运进一步贬值，因此出现了大幅折扣。知情人士说，这批货物没有立即进行交易或成交，贸易公司在现货市场上私下向亚洲炼油商展示了这批货物。这与大多数买家回避俄罗斯旗舰产品乌拉尔的情况类似，尽管其报价也很有吸引力。
-
-随着美国考虑对欧佩克+生产商实施更严厉的处罚，贸易商和炼油商对俄罗斯原油越来越警惕。 尽管出于安全考虑，买家一直对从波罗的海和黑海西部港口进口原油持谨慎态度，但担忧现在正蔓延到东部港口德卡斯特里和科兹米诺。因为潜在的制裁可能涉及所有俄罗斯出口，无论装载港口在哪里。
-
-上周五，壳牌公司(Shell Plc)以创纪录的折扣购买一船乌拉尔石油的举动遭到了一连串的批评。这家总部设在伦敦的公司后来表示，它将在政府的指导下驾驭市场。英国石油公司(BP Plc)和埃克森美孚(Exxon Mobil Corp.)等其他石油巨头早些时候承诺退出俄罗斯，而道达尔能源公司(TotalEnergies SE)表示其交易员将不再购买该国的原油。
-
-原文链接： [More Russian Oil Deeply Discounted as Ban Risk Alarms Buyers (yahoo.com)](https://finance.yahoo.com/news/more-russian-oil-heavily-discounted-094720437.html?fr=sychp_catchall)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
