@@ -2,42 +2,34 @@
 ---
 
 
-## 俄罗斯将台湾列入不友善国家 打脸中共
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2133389/)
+## 物流瘫痪，俄罗斯遭痛击（下）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2133486/)
 
-作者：纽约磐石农场—在远方
+翻译：宫米叶
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-3-1.jpg)图片来源：cn.nikkei.com
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
-台湾媒体3月7日消息，在俄罗斯非法入侵乌克兰，并遭到全世界谴责和制裁后，普京政府也提出了反制措施。除阻止资本外流、设法稳定汇率等措施外，俄罗斯还拟定了一份不友善国家和地区的名单，准备对他们进行报复。值得注意的是，在这份名单中，除了美欧等国，亚洲的日本、韩国、新加坡等国以外，台湾也名列其中。
+【接上篇：[物流瘫痪，俄罗斯遭痛击（中）](https://gnews.org/zh-hans/2133443/)】
 
+混乱还蔓延至空运以及被封锁领空。欧盟禁止俄罗斯飞机进入欧盟领空，作为对俄罗斯的制裁。俄罗斯也禁止欧洲飞机在领空飞行。
 
+物流的停滞直接对俄罗斯国内民众的生活带来冲击。依赖进口的数码产品正在不停涨价。日本也相继采取行动停止与俄罗斯的交易，松下4日宣布，将停止家电和专业相机在俄罗斯上市。俄罗斯国内的物品短缺将在今后变得极为严重。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-30.jpg)图片来源：自由时报
+国际货币基金组织(IMF)1月时预估2022年俄罗斯实际国内生产总值(GDP)同比增长2.8%。美国高盛在1日的报告中，将2022年俄罗斯GDP的预估从原来的增长2%下调至下降7%。
 
-据悉，该名单中还特别标注，台湾虽然被认为是中国的领土，但是自1949年以后，就由自己的政府所统治。
+如果海路和空路维持现状继续受阻的话，想要把货物运到俄罗斯“只能经由中共国使用陆路或西伯利亚铁路等”(物流相关人员)。即使中共国提供了支持，也很难预测能否消除主要国家制裁的影响。
 
-有分析人士称，俄罗斯此举事实上已经清晰地表明了台湾真实的国际地位和影响力，是中共无论怎样叫嚣“台湾属于中国领土”都抹不去的。
+如果从俄罗斯出口的稀缺资源和谷物积压，将导致原材料价格上涨，对各国企业和消费者来说不堪重负。如果不能尽早实现停火，对世界经济的影响也会越来越大。
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3851684](https://news.ltn.com.tw/news/world/breakingnews/3851684)
+**参考资料：**[nikkei][物流まひ、ロシア痛撃](https://www.nikkei.com/article/DGKKZO58832450W2A300C2MM8000/?unlock=1)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
+* * *
 
+*审核：BryanW*
+*校对：天天*
+*发稿：信心的选择*
 
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-6.jpeg)
 
  
 
