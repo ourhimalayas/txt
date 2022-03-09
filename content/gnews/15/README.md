@@ -2,25 +2,34 @@
 ---
 
 
-## 美国会议员敦促同步制裁中共和俄罗斯
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2133121/)
+## 澳大利亚，可怕的洪水，但未接种疫苗的志愿者被禁止提供帮助
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2133210/)
 
-采编撰稿：加拿大温哥华杨帆农场 – 重生之鹰
+#### 翻译                         意大利达芬奇农场                      小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-09-alle-18.52.52.png)图片来源：eventiavversinews.it
+在澳大利亚新南威尔士州遭受为期一周的暴雨和洪水肆虐后，WYONG SES (民防) 通过其脸书页面向社区发出呼吁， 要求志愿者帮助为绝望的居民填沙袋。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_20220309-125618_Photos.jpg)图片来源：[breitbart.](https://www.breitbart.com/clips/2022/03/05/dem-rep-auchincloss-we-should-impose-secondary-sanctions-against-china-and-cut-off-russian-oil/)
+这确实是个自然灾害， 被定义为“每百年”发生一次的气侯现象，这意味着整个社区的救援努力应该是理所当然的。
 
+但事情并非如此。
 
-据美国[布莱特巴特新闻]报道，众议员奥金克洛斯当天要求立即停止从俄罗斯进口石油，并同时对中共国实施更严厉制裁,以此削弱中俄联合扩张的势力。
+令当地SES工作人员感到沮丧的是，新南威尔士州政府和SES领导层决定只允许社区中完全接种疫苗的成员干填满沙袋的工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-09-alle-19.27.47.png)
+新南威尔士州受洪水影响地区的当地居民已经将目标对准了社交媒体， 表达了他们的怀疑和愤慨， 即在他们的社区发生真正危机的时候，尽管他们愿意并且有能力， 但他们却不被允许提供帮助。
 
-奥金克洛斯表示:目前俄罗斯军事入侵严重受阻，士气低落，必将引发俄军更猛烈的无差别攻击而导致的大量平民伤亡。因此，必须立即停止与俄的石油交易，以断绝其最重要的外汇资金来源；同时，对中共再次实施更强硬的制裁，以进一步孤立俄罗斯。此外，继续加强与波兰、立陶宛和罗马尼亚等乌克兰周边国家的合作，与北约一道为乌军提供军事装备。
+他们写道：“ 受到自然灾害袭击的人似乎并不介意未接种疫苗的人在他们需要时会帮助他们”。
 
-评论指出：乌克兰的卫国战争已演变为世界人民捍卫自由民主，反对独裁的正义行动。国际社会在全方位支持乌克兰同时，必须首先摧毁中俄邪恶轴心，才能尽快结束战争，还乌克兰和台湾人民和平的环境！
+“ 志愿者很少， 如果有人准备好了， 我不在乎他们是否接种过疫苗，”一位当地市民说。
 
-校对编辑：硫酸羟氯喹64
+“ 这不会让我担心，” 另一个说，“我不在乎，” 第三个说。
 
-发稿：文明(添草灭共)
+随着未来几天和几周内一些地区更加糟糕的天气还会发生在同样的地区， 现在的重点是新南威尔士州的领导层计划如何应对这种情况。
 
-原文链接： [https://www.breitbart.com/clips/2022/03/05/dem-rep-auchincloss-we-should-impose-secondary-sanctions-against-china-and-cut-off-russian-oil/](https://www.breitbart.com/clips/2022/03/05/dem-rep-auchincloss-we-should-impose-secondary-sanctions-against-china-and-cut-off-russian-oil/)
+正如ADF特种部队前军官Stuart Gadenne告诉我的那样，由于这些规定，他没被批准参加SES的救援工作， 州政府必须彻底重新考虑这一决定并采取不同的方法。
+
+原文链接： [https://www.eventiavversinews.it/australia-terribile-alluvione-ma-ai-volontari-non-vaccinati-e-vietato-aiutare-video/](https://www.eventiavversinews.it/australia-terribile-alluvione-ma-ai-volontari-non-vaccinati-e-vietato-aiutare-video/)
+
+编辑、上传： Xiao  baige
 
  
 

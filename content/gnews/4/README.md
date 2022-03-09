@@ -2,45 +2,42 @@
 ---
 
 
-## 多伦多市议员和倡导者推动市政府购买市中心的空置地块以建造经济适用房
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2133315/)
+## 113位乌克兰小孩与慈善机构人员前往巴塞罗那
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2133351/)
 
-作者：Mike Walker
-翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_11135C06.jpg)
-多伦多市中心可谓寸土寸金，现在已经基本上没有多少可供开发的土地了。214-230 Sherbourne Street堪称最后的空地，现在多伦多市议员和社区倡导者正在最后一次尝试说服多伦多市购买市中心的这两处空地建经济适用房，而不是出售给开发商。
+作者：香草山写作组 静言
 
-多伦多Ward 13市议员黄慧文（Kristyn Wong-Tam）说，如果政府不采取紧急行动建造更多经济适用房，多伦多无家可归的情况会继续恶化。
 
-黄慧文已要求市政府工作人员研究购买214-230 Sherbourne Street的建经济适用房可行性，包括与收入挂钩的租金。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
 
-黄慧文说，多伦多拥有数亿元储备资金。市政工作人员早就知道这处物业，他们已经知道市议会对他们的指示，其中包括如果卖家有出售意愿，则他们有权购买该物业。
 
-该报告预计将在3月9日提交给市议会讨论，也就是卖家接受投标的两天前。
+2022年3月7日早上7点，新中国联邦战友从波兰克拉科夫传来视频，从大巴车上鱼贯而下的96名乌克兰孩子与当地慈善机构人员及老师共113人，乘坐了30小时的大巴，安全到达。
 
-这处位于Sherbourne Street和Dundas Street附近的物业已经空置了十多年。
+在救助站等候多时的战友们热情地迎上前去，递上热水，巧克力，点心等食物，为这些从乌克兰战火中逃出的难民们，接风洗尘，送去人间温暖。
 
-这两个物业没有给出售价，卖家将该物业描述为“高层开发机会”。
+据前线战友报道，这些孩子均在7-17岁之间，一路虽然饥饿难眠，劳累辛苦，但孩子们安静淡定，遵守规则，表现出极高的文明素质，给现场战友留下深刻的印象。迎接的战友纷纷留下热泪。
 
-Regent Park Community Health Centre减少危害协调员Lindsay Windhager说：我们一直在等待住房，市政府几乎没有建造任何新的、真正负担得起的、适合收入与租金挂钩的房子，在我们的社区和街道上仍有无家可归者死去。现在是时候采取一些具体行动购买位于214-230 Sherbourne的地块建设经济适用房了。
+被救的孩子们及其他人员将马不停蹄，即将前往西班牙巴塞罗那的福利机构，西班牙的战友们早已做好迎接的准备。
 
-实际上市政府此前也曾咨询过，但业主拒绝将该地块出售给市政府。
+新中国联邦救援队人员，纷纷收到来自救乌克兰难民的感谢。一位乌克兰女士用文字与语音说：我一上大巴就睡过去了，感谢你们的救援，你们的救援团队太棒了。
 
-来源：https://toronto.ctvnews.ca/toronto-councillor-and-advocates-push-city-to-purchase-vacant-downtown-properties-for-affordable-housing-1.5809707
+据参与营救这些孩子们的一位人权律师志愿者说，这是一项非常艰难的工作，没有你们的帮助，是不可能做到的。感谢法治基金。 危难时刻，唯有新中国联邦人代表中国人民，发挥着人道主义精神，不仅救助同胞，更向国际社会伸出援手，显示出正道主义的魅力。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
 
-**关注我们**
+编辑/校对/发稿：滚滚长江都是水
 
-Discord 账号
+**更多资讯，更多关注**
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-Gettr 账号
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

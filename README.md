@@ -15,65 +15,65 @@
 
 ---
 
-### [俄乌战争为数字货币带来转折](/content/gnews/1/README.md)
+### [俄罗斯将台湾列入不友善国家 打脸中共](/content/gnews/1/README.md)
  ` GTV News Talk`
 
-### [113位乌克兰小孩与慈善机构人员前往巴塞罗那](/content/gnews/2/README.md)
+### [俄乌战争为数字货币带来转折](/content/gnews/2/README.md)
  ` GTV News Talk`
 
-### [中共表态不同意对俄制裁](/content/gnews/3/README.md)
+### [观察：美国正在下一盘彻底根除欧洲安全隐患的大棋（下）](/content/gnews/3/README.md)
+ ` 蓝莲花农场`
+
+### [113位乌克兰小孩与慈善机构人员前往巴塞罗那](/content/gnews/4/README.md)
  ` GTV News Talk`
 
-### [多伦多市议员和倡导者推动市政府购买市中心的空置地块以建造经济适用房](/content/gnews/4/README.md)
+### [由于俄乌战争，多伦多一家俄罗斯酒吧计划更名](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [乌执政党立场软化，妥协中立化，美欧俄签约安全保障为条件](/content/gnews/5/README.md)
+### [中共表态不同意对俄制裁](/content/gnews/6/README.md)
+ ` GTV News Talk`
+
+### [乌执政党立场软化，妥协中立化，美欧俄签约安全保障为条件](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [艾伯塔省将停止征收省级天然气税，以抵消高昂的能源价格](/content/gnews/6/README.md)
- ` MG FARM`
-
-### [NFSC新闻、G|TV新闻访谈简报|2022年3月9日早](/content/gnews/7/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年3月9日早](/content/gnews/8/README.md)
  ` 纽约香草山MOS01`
 
-### [日国防大臣岸信夫会见乌克兰驻日大使](/content/gnews/8/README.md)
+### [日国防大臣岸信夫会见乌克兰驻日大使](/content/gnews/9/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [时隔1年零4个月 日经平均收盘价首次跌破2万5000日元](/content/gnews/9/README.md)
+### [时隔1年零4个月 日经平均收盘价首次跌破2万5000日元](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022年3月9日，全球中共病毒疫情情况汇总](/content/gnews/10/README.md)
+### [观察：美国正在下一盘彻底根除欧洲安全隐患的大棋（上）](/content/gnews/11/README.md)
+ ` 蓝莲花农场`
+
+### [2022年3月9日，全球中共病毒疫情情况汇总](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵爆料 3.9：新中国联邦人——乌克兰救援前线那道最亮丽的风景](/content/gnews/11/README.md)
+### [文贵爆料 3.9：新中国联邦人——乌克兰救援前线那道最亮丽的风景](/content/gnews/13/README.md)
  ` 秘密翻译组-原创组`
 
-### [俄乌战争将导致全球粮食危机](/content/gnews/12/README.md)
+### [俄乌战争将导致全球粮食危机](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [澳大利亚，可怕的洪水，但未接种疫苗的志愿者被禁止提供帮助](/content/gnews/13/README.md)
+### [澳大利亚，可怕的洪水，但未接种疫苗的志愿者被禁止提供帮助](/content/gnews/15/README.md)
  ` xiaobaige`
 
-### [拜登的行政命令为数字货币研究带来紧迫性](/content/gnews/14/README.md)
+### [拜登的行政命令为数字货币研究带来紧迫性](/content/gnews/16/README.md)
  ` 温哥华扬帆农场`
 
-### [美国会议员敦促同步制裁中共和俄罗斯](/content/gnews/15/README.md)
+### [美国会议员敦促同步制裁中共和俄罗斯](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|中兴通讯面临违反美国缓刑条例的听证会](/content/gnews/16/README.md)
+### [有声|中兴通讯面临违反美国缓刑条例的听证会](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [新西兰财经G乐部2022年3月9日:财经新闻整理](/content/gnews/17/README.md)
+### [新西兰财经G乐部2022年3月9日:财经新闻整理](/content/gnews/19/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [美国运通宣布暂停其在俄业务](/content/gnews/18/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [拜登将发布关于数字货币的行政命令](/content/gnews/19/README.md)
+### [拜登将发布关于数字货币的行政命令](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [麦当劳及星巴克等餐饮巨头宣布撤出俄罗斯](/content/gnews/20/README.md)
- ` 澳喜特战旅Gnews`
 
 ### [新中国联邦在波兰难民救助站设下最大救援帐篷](/content/gnews/21/README.md)
  ` 日本东京方舟农场`

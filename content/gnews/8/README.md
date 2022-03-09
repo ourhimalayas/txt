@@ -2,38 +2,31 @@
 ---
 
 
-## 日国防大臣岸信夫会见乌克兰驻日大使
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2133287/)
+## NFSC新闻、G|TV新闻访谈简报|2022年3月9日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2133297/)
 
-**编译：文舞两道**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-3.jpg)
 
-3月9日，日本国防部长岸信夫就俄罗斯的军事入侵问题会见了乌克兰驻日本大使科桑斯基，岸大臣介绍说自卫队已向乌克兰提供了防弹衣和其他物资，并表示将继续提供更多的援助。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/03D7814C-A6B4-4CD0-AACA-FAFC46440F76.jpeg)照片来源：https://www3.nhk.or.jp/
-岸大臣对因俄罗斯的侵略而丧生乌克兰的人们，表达了深切的悲伤和问候。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-9.png)
+文章仅代表作者本人观点，与Gnews无关
 
-岸大臣还谴责了俄罗斯的军事入侵是对国际法的严重违反，并重申一贯支持乌克兰的主权和领土完整，与其他国家联合起来，维护国际秩序。
+视频参看：
+[2022.03.09早 《NFSC新闻》](https://gettr.com/streaming/pz1mcb1552)
+[2022.03.09早 G|TV《新闻访谈》](https://gettr.com/streaming/pz13dj9139)
 
-3月8日晚，日本派出了一架装满防弹衣和头盔的自卫队飞机援助乌克兰，承诺日本会继续提供更多的援助。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-对此，科桑斯基大使表示感谢，他说：”我谨代表乌克兰人民，对日本的大力支持表示衷心的感谢”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-9.jpeg)
 
-科桑斯基大使告诉记者：”我们估计俄罗斯的侵略会进一步加剧，他们可能正试图攻击首都基辅，我们需要对乌克兰各种形式的支持”。
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**消息来源：**
-
-[https://www3.nhk.or.jp/news/html/20220309/k10013521841000.html?utm\_int=news-international\_contents\_list-items\_007](https://www3.nhk.or.jp/news/html/20220309/k10013521841000.html?utm_int=news-international_contents_list-items_007%20\h)
-
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220309
-
-20220309
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
