@@ -2,24 +2,27 @@
 ---
 
 
-## 【 #G时新闻 】美国将允许北约成员国在必要时向乌克兰派遣战斗机
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2129027/)
+## 乌克兰难民为点滴之恩感谢战友
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2129107/)
 
-加拿大温哥华扬帆农场 – 播报：yuyu
+**作者：**加州建房哥
+**编辑：**Candy
 
-加拿大温哥华扬帆农场- 视频制作：Gracelshan
+***3月8日，来自前线波兰在救援乌克兰难民的战友的消息：
+波兰当地已是半夜时分，来自乌克兰的难民们在寒冷的室外与我们的战友有一个短暂的接触：***
 
-据《每日电讯》3月6日报道，国务卿布林肯当天表示，美国将允许北约成员国在必要时向乌克兰派遣战斗机，以协助该国抵御俄罗斯入侵。
+这位先生是意大利人，旁边搬椅子的是他的高个子乌克兰媳妇。从乌克兰过来的，这边干冷有风，他问我们可不可以进帐篷里。我们帐篷就是为他们搭建的，当然可以啦！一个帐篷避风之恩，临别时和我们的人拥抱致谢。
 
-报道称，邻国波兰目前已获准可向乌克兰战区派遣军事飞机执行战争任务。对此，乌克兰驻美国大使表示，希望尽快从北约获取所需的武器弹药和军事装备以更有效地实施国家保卫战。
+真可谓患难之中见真情，作为有良知的人会感恩点点滴滴。
 
-据悉，乌克兰的顽强抵抗使俄军的闪电战计划落空。面对内外交困的压力和制裁，普京仍孤注一掷，不仅轰炸并占领了乌克兰境内最大核电站，还违反临时停火协议，对平民疏散通道持续进行血腥袭击。
+*发布：Candy*
 
-原文链接：[https://gnews.org/zh-hant/2127711/](https://gnews.org/zh-hant/2127711/)
-
-视频链接: [https://www.gettr.com/post/pyx7ly63a1](https://www.gettr.com/post/pyx7ly63a1)
-
-编辑/发文：hongyeca
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
