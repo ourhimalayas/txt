@@ -2,27 +2,34 @@
 ---
 
 
-## 乌克兰难民为点滴之恩感谢战友
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2129107/)
+## 反击俄罗斯入侵 美国宣布禁止从俄进口石油
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2129143/)
 
-**作者：**加州建房哥
-**编辑：**Candy
+翻译：冰糖葫芦喵
 
-***3月8日，来自前线波兰在救援乌克兰难民的战友的消息：
-波兰当地已是半夜时分，来自乌克兰的难民们在寒冷的室外与我们的战友有一个短暂的接触：***
+编辑/校对：冰糖葫芦喵
 
-这位先生是意大利人，旁边搬椅子的是他的高个子乌克兰媳妇。从乌克兰过来的，这边干冷有风，他问我们可不可以进帐篷里。我们帐篷就是为他们搭建的，当然可以啦！一个帐篷避风之恩，临别时和我们的人拥抱致谢。
+《路透社》华盛顿3月8日报道，**周二，美国总统拜登宣布，禁止进口俄罗斯石油和其他能源，反击俄罗斯入侵乌克兰的举动。这一消息促使油价上涨，基准布伦特原油升至每桶129.91美元。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/PAMKVM423BLQFBYGF4IBORGIG4-e1646781930753.jpg)美国总统拜登在白宫罗斯福厅发表讲话，宣布对俄罗斯在乌克兰的战争采取行动（路透社）
+拜登表示，美**国及其盟友实施的制裁已经导致俄罗斯经济崩溃。**他说，这一新的制裁是在与世界各地的盟友和合作伙伴密切磋商后做出的。
 
-真可谓患难之中见真情，作为有良知的人会感恩点点滴滴。
+报道指出，在2021年，美国平均每月从俄罗斯进口超过2040万桶原油和精炼石油产品，大约占美国进口液体燃料的8%。
 
-*发布：Candy*
+**美国参议员克里斯·库恩斯(Chris Coons)表示，美国正在与欧洲盟友协调，确保已经做好了基础工作，以了解如何有效实施对俄罗斯能源的禁令。**
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他表示，**我们将看到美国汽油价格上涨。**在欧洲，他们将看到物价大幅上涨。**这是捍卫自由和与乌克兰人民站在一起的代价，但这将是我们的代价。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/downsize_200k_v1.jpg)图片来源：路透社。
+**白宫一直在与美国国会领导人协调，尽快通过两党立法，禁止进口俄罗斯商品。**
+
+据报道，**美国民主和共和两党都对这一决定表示欢迎，并呼吁政府在美国国内支持更多的石油和天然气生产。**
+
+**此前**，**英国宣布将在2022年底前逐步停止进口俄罗斯石油和石油产品**，并表示将给市场和企业足够的时间来寻找进口石油的替代品。
+
+新闻来源链接:
+
+[Biden bans Russia oil imports to U.S., warns U.S. gasoline prices will rise further | Reuters](https://www.reuters.com/business/biden-announce-ban-russian-oil-tuesday-sources-2022-03-08/)
+
+
 
  
 
