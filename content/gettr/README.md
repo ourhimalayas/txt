@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 9:08 AM (UTC)`
+
+【Ukrainian Rescue】03/08/22 David interviews a Chinese husband and his Ukrainian wife rescued by NFSC and ROLF in Krakow, Poland. In this global rescue operation of the New Federal State of  China and the Rule of Law Foundation, we especially hope that lovers can stay together.<br/><br/>【乌克兰救援】03/08/22 大卫在克拉科夫汽车站采访被新中国联邦和法治基金救援的中国男士及其乌克兰夫人。我们这次全球法治基金新中国联邦这救助行动，特别希望有情人能够在一起。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group43/getter/2022/03/09/09/08225a8c-285c-cc6c-7449-e8a7afb6771d/out.jpg)
+
+---
+
 `@miles 3/9/2022 4:14 AM (UTC)`
 
 3月8号：衷心地感谢所有的朋友帮助寻找这个孩子，如果这个孩子需要任何的帮助，请一定和我们联系，我们愿意为这个孩子提供一切可能的帮助！如果需要和我本人联系请在这个的发文的，下面给我留言和留下联络方式，我们马上会和你们联系。🙏🙏🙏🙏🙏🙏🙏🙏🙏 March 8: I sincerely thank all my friends for helping to find this child. If this child needs any help, please contact us. We are willing to provide this child with all possible help!  If you need to contact me, please post here, leave a message and contact information below, and we will contact you immediately.  🙏🙏🙏🙏🙏🙏🙏🙏🙏
@@ -151,13 +158,6 @@ We stand with our Ukrainian brothers and sisters during these trying times. Here
 
 3月8号：尊敬的战友们好．俄乌战争，让世界看清了中国共产党的丑恶……和危险，唤醒了无数的中国人，新中国联邦人正在俄乌战场，拯救着乌克兰的妇女和孩子……和中国同胞。我们一定让世界更多的人知道中国共产党不等同于中国人。
 ![img](https://media.gettr.com/group29/getter/2022/03/08/15/9c81a268-9680-cdf9-a56e-7483498566a4/out.jpg)
-
----
-
-`@miles 3/8/2022 11:45 AM (UTC)`
-
-【Ukraine Rescue】03/07/2022 Approximately 100 children rescued from Ukraine by ROL Foundation and NFSC, along with their teachers, rested at a hotel in Krakow, Poland, before departing for Barcelona, Spain. The entire trip is supported by the ROL Foundation and NFSC with free food, accommodations, and free bus transportation.<br/><br/>【乌克兰救援】03/07/2022 由法治基金和NFSC从乌克兰救出的大约100名儿童以及他们的老师，在波兰克拉科夫的一家酒店休息后出发，前往西班牙巴塞罗那，整个行程由法治基金和NFSC提供免费食宿和免费大巴。
-![img](https://media.gettr.com/group30/getter/2022/03/08/11/de49a138-50d8-e73f-b5fa-40e1dce88502/out.jpg)
 
 ---
 
