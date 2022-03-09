@@ -2,10 +2,10 @@
 ---
 
 
-## 3/9/2022 文贵直播：接下来的三件大事 &#8211; 1) 喜币会有很多好消息; 2) 新媒体平台会诞生更多奇迹；3) 辉瑞等疫苗厂商会被全人类审判
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2133704/)
+## NFSC法治基金不论国界和民族乌克兰国际人道大救援
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2133930/)
 
-秘密翻译组-北美组
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

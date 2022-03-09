@@ -2,47 +2,49 @@
 ---
 
 
-## 随着川普对拙劣的发布做出反应，数字世界收购暴跌
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2133739/)
+## 全球疫情疫苗数据更新（澳洲各州第三针比例的比较）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2133956/)
 
-***评论：**用户追逐前总统川普的热情转移到社交媒体应用程序Truth Social，但川普本人甚至还没有在上面发贴，尽管报告显示有100多万的用户等待注册，如果不能尽快的解决用户等待问题，可能会使潜在客户流失*。
+整理：枳实
+美工：精灵蓝
 
-据《FX Street》股市记者  2022年3月8日报道：
-
-- 纳斯达克股票代码：DWAC 在周一的交易时段下跌了 14.56%。
-- 前总统川普对*Truth Social*的启动失败感到愤怒。
-- 社交媒体平台的候补名单已达到 100 万用户。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/image-731.png)图片：雅典娜农场设计组 精灵蓝
 
 
-纳斯达克股票代码：DWAC 周一大幅结束了其最近 7 天的连续上涨，因为合并前的 SPAC 股票暴跌。本周开始，DWAC 股价下跌 14.56%，收于 83.34 美元。
+雅典娜疫情更新（2022年 3月9日）
 
-DWAC 的泡沫破灭了吗？很难说，但毫无疑问，以目前的价格来看，这只股票仍然被高估了。随着全球市场自由落体，周一 DWAC 也可能受到下行抛售压力的打击。投资者权衡了乌克兰的持续局势，并担心全球能源价格上涨可能会减缓经济并进一步推高通胀。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-前总统川普终于对他的社交媒体应用程序 Truth Social 的艰难推出进行了权衡。有报道称，有人无意中听到川普在电话中大喊缺乏积极的媒体报道和该应用程序的启动不顺利。截至上周，川普本人甚至还没有在该网站上发帖，成功进入该应用程序的用户抱怨缺乏用户参与度和过度回收的内容。川普似乎厌倦了发布，有些人甚至认为他可能会完全放弃这个项目。
+全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-25.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/10-18.png)
+上图是澳大利亚各州第三针比例的比较，从图中可以看出，新州的比例最低，而西澳比例最高。众所周知，[中共对西澳的渗透十分严重](https://gnews.org/zh-hans/1954243/)，[西澳州长是一位著名的舔共州长](https://gnews.org/zh-hans/1354048/)，他实施疫苗强制政策也最为严苛，不仅[率先强制第三针](https://gnews.org/zh-hans/1782372/)，甚至到了不允许未接种疫苗的父母探望其生病的孩子的地步。
 
-**DWAC 股票预测**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-924-e1646860084759.png)
-随着用户继续等待注册该应用程序的机会，报告显示候补名单已达到 100 万用户。不过，人们可能会失去耐心，因为该应用在 Apple App Store 上下载次数最多的应用中已从第 1 位跌至第 118 位。围绕该应用程序发布的整体情绪一直是负面的，这当然无济于事，这可能也会让潜在用户和股东流失。
+[2022年3月9日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月9日改进.pdf)
 
-文章观点仅代表作者个人，与Gnews平台无关
+数据来源：
 
-文章来源：[https://www.fxstreet.com/news/dwac-stock-price-digital-world-acquisition-plummets-as-trump-reacts-to-botched-launch-202203081055](https://www.fxstreet.com/news/dwac-stock-price-digital-world-acquisition-plummets-as-trump-reacts-to-botched-launch-202203081055)
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-翻译：洛杉矶盘古农场 – Raul
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-校对：洛杉矶盘古农场– Mike Li
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-评论：洛杉矶盘古农场–傻小子
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-编辑：洛杉矶盘古农场–傻小子
+[covidlive.com.au](https://covidlive.com.au/)
 
-发布：洛杉矶盘古农场–子萍
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
 
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+发布：tianzhihuan
 
-[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

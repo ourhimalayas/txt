@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 11:33 PM (UTC)`
+
+3/9/2000  Miles Guo: the NFSC Ukraine rescue team has received great assistance from local Ukrainian and Polish volunteers; the rescue team has been granted the filming permit from local Polish government; Kamel told his story of his participation in the rescue team as a Ukrainian volunteer<br/><br/>3/9/2022  文贵直播：新中国联邦乌克兰救援团队得到了乌克兰和波兰本地志愿者的大力帮忙；救援队获得当地拍摄和采访许可；乌克兰志愿者Kamel讲述他参加到救援队的经历<br/>
+![img](https://media.gettr.com/group6/getter/2022/03/09/23/26bf7d59-4581-88b8-eea7-738c9b6b2383/out.jpg)
+
+---
+
 `@miles 3/9/2022 11:00 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 2022-03-09
@@ -147,13 +154,6 @@
 
 2022.03.08 晚《新中国联邦新闻访谈》俄乌战争进展； 新中国联邦法治基金欧洲大营救； 3.8 节再议“锁链女”
 ![img](https://media.gettr.com/group29/origin/2022/03/09/02/10023b72-3c9d-32e2-ec47-6b6e8a712298/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/9/2022 2:10 AM (UTC)`
-
-Due to the Chinese Communist Party manipulating our email service provider with the intention of disrupting our Ukraine rescue operation, the previously announced website and email address have been forcibly closed and the updated 24-hour Emergency Rescue Support Team's contact information is as follows:<br/><br/>24-hour Emergency Rescue Hotline (Phone/Text):<br/>+1 720-657-6776 <br/>+1 719-224-4232<br/>+48 508-532-712 <br/>+48 508-531-518<br/><br/>Telegram: t.me/UkraineRescue<br/><br/>GETTR: gettr.com/user/UkraineRescue<br/><br/>E-mail: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com
-![img](https://media.gettr.com/group43/getter/2022/03/09/02/10b89877-ed61-f97d-13a6-b4fb43d7c307/00a99eb1b6334cd90b40ed095d9357f0.jpg)
 
 ---
 
