@@ -2,25 +2,36 @@
 ---
 
 
-## 绝不屈服！泽伦斯基英国会演说 誓言奋斗到底
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2129918/)
+## 中共病毒导致全球官方死亡人数突破600万
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2130016/)
 
-乌克兰总统泽伦斯基（Volodymyr Zelenskyy）8日傍晚受邀在英国国会下议院发表演说，泽伦斯基强调为了捍卫国土，乌克兰永不投降，他也再次呼吁西方国家，协助确保乌克兰领空安全并加强制裁俄罗斯。
+作者：纽约香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月6日，根据约翰·霍普金斯大学发布的数据，中共病毒大流行已进入第三年，由此造成的全球官方死亡人数突破了600万。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-13.png)图片来源：AP Direct
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12-5.jpeg)
 
-泽伦斯基透过视讯在英国国会发表长约10分钟，院会议场座无虚席，首相强森（Boris Johnson）、外交大臣特拉斯（Liz Truss）等高阶官员都出席，而这是首度有其他国家的领导人，在英国国会下议院的院会议场发表演说，当泽伦斯基在萤幕上现身，全场议员起立鼓掌欢迎。
+在2020年初大流行开始的七个月后，全球死于该病毒的人数达到100万。四个月后，又有100万人死亡，此后每三个月就有100万人死亡，直到2021年十月底，死亡人数达到500万。奥密克戎出现以来，虽然死亡人数增加的速度明显趋缓，至今，仍然达到了600万人，这一数字超过了柏林和布鲁塞尔的人口总和，比整个马里兰州的人口还要多。
 
-简评：战争与屈辱面前，你选择了屈辱，屈辱过后，你仍得面对战争！拒绝屈辱，绝不屈服！措手不及的乌克兰人越来越团结，越来越顽强；俄罗斯内部反战情绪越来越高，反对普京越来越强烈！纸老虎普京啃不动顽强的乌克兰人！乌克兰必胜！普京快完蛋了！
+然而，“我们的数据世界 “门户网站的主管爱德华·马蒂厄说，官方确认的死亡人数只占中共病毒导致的真实死亡人数的一小部分，一方面因为测试有限，另一方面，在死亡原因的归属方面存在严重偏差。他认为，真实数据可能接近报告的死亡人数的四倍。而据《经济学人》的一个团队对超额死亡即特定时期观察到的死亡人数与同一时期的预期死亡人数之间的差异的分析估计，全球因中共病毒死亡的人数在1400万到2350万之间。
 
-新闻来源：[台视新闻网](https://news.ttv.com.tw/news/11103090000200W)
+参考链接：[Death Toll Nears 6 Million as Pandemic Enters Its 3rd Year](https://www.newsmax.com/newsfront/virus-outbreak/2022/03/06/id/1059860/)
 
-撰稿/发布：一叶知秋
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+总编：Zion文恩
+编辑：谐趣园
+审核：Zion文恩
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

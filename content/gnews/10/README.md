@@ -2,30 +2,36 @@
 ---
 
 
-## 泽伦斯基对英国人说：“我们不会放弃，我们不会输。”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2129909/)
+## 佛州将反对为健康儿童接种中共病毒疫苗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2130001/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-57.jpg)
-图片来源：网路截图
+作者：纽约香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月7日，由于联邦卫生官员批准并鼓励在5岁的儿童中使用辉瑞公司的疫苗，佛罗里达州卫生部长约瑟夫·拉达波博士在州长德桑蒂斯组织的一次圆桌会议上表示，该州将正式提议，反对为健康儿童提供中共病毒疫苗。
 
-据合众国际社3月8日报道，乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelensky）周二通过视频向英国下议院发出了一个激动人心的信息，即他的人民不会放弃与俄罗斯的斗争。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-4.jpeg)
 
-他在视频讲话中说：“我们不会放弃，我们不会输。”讲话中还呼吁英国加大对俄罗斯的制裁。“我们将在海上、空中战斗到最后…我们将继续为我们的土地而战，无论付出什么代价。我们将在森林、田野、海岸、街道上战斗…我们将在河流的两岸战斗”。这些话与英国首相温斯顿·丘吉尔1940年6月在第二次世界大战期间的战时演讲相呼应。
+尽管有专家担心这项反对措施可能使父母对从儿科医生、美国儿科学会和疾病控制中心听到的信息产生质疑，但拉波达认为，一般情况下，儿童比成人转为重症的可能性低很多，即使不幸患病，也应该因人而异进行量化与个性化的治疗。
 
-44岁的泽伦斯基提醒英国政治家，正如他们的国家在二战中被迫与纳粹作战一样，乌克兰也不希望失去自己的国家。他讲述了13天乌克兰没有发动也不想要的战争的细节。作为一个例子，他说在入侵后的第4天，乌克兰人开始抓捕俄罗斯士兵，但是并没有对他们进行折磨而且对他们很人道。在第5天，俄罗斯对乌克兰的恐怖活动正在加剧，针对儿童和城市，在全国各地不断进行炮击，包括医院，而“这并没有击垮我们。”他说。
+二月底，拉达波和德桑蒂斯已经宣布了新的政策建议，不鼓励戴口罩，并指示医生在治疗病毒患者时行使自己的判断力，包括使用新兴疗法和标签外药物。
 
-最近的俄罗斯袭击导致50多名儿童死亡。“这些是本来可以活下来的孩子，但这些人把他们从我们身边带走了。”泽伦斯基悲痛的说。
+参考链接：[Florida to recommend against COVID vaccines for healthy kids](https://www.news4jax.com/news/florida/2022/03/07/florida-to-recommend-against-covid-vaccines-for-healthy-kids/)
 
-在他15分钟的演讲接近尾声时，泽伦斯基呼吁英国承认俄罗斯是一个恐怖主义国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-这位曾是喜剧演员的乌克兰领导人援引莎士比亚的话说，有人提出了关于乌克兰是“生存还是毁灭”的问题。15天了，这个问题一直可能被问到。但现在我可以给出一个明确的答案。绝对是“生存”。泽伦斯基在讲话开始和结束时都获得了长时间的起立鼓掌。
+总编：Zion文恩
+编辑：谐趣园
+审核：Zion文恩
+校正/发稿：谐趣园
 
-英国首相鲍里斯·约翰逊（Boris Johnson）说，泽伦斯基的讲话 “打动了所有人的心”，并补充说，英国将继续对俄罗斯总统弗拉基米尔·普京施加经济压力。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-与此同时，美国总统乔·拜登（Joe Biden）宣布，美国正在禁止进口俄罗斯石油，以对俄罗斯攻击乌克兰的行为 “施加进一步的痛苦”。
-
-新闻来源：[Volodymyr Zelensky to Brits: ‘We will not give up and we will not lose’](https://www.upi.com/Top_News/World-News/2022/03/08/ukraine-president-volodymyr-zelensky-house-of-commons-speech/9651646770548/)
 
  
 

@@ -2,49 +2,26 @@
 ---
 
 
-## 普京时代已经结束 中共将会迅速攻打台湾
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2129933/)
+## 欧洲27国大使联名文章谈及病毒起源 中共紧急删除
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2130033/)
 
-作者：纽约磐石农场 – 在远方
+撰稿：东京樱花团/加一颗稻草
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-40.jpg)[图片来源](https://www.khmertimeskh.com/50720616/eu-china-ties-vital-amid-global-crisis/)
+为纪念与中国建交45周年，欧盟27国大使联名发表题为“全球危机下欧中关系至关重要”(EU-China ties vital amid global crisis)的文章，但中国日报却删除了涉及中共病毒（新冠病毒）的部分内容。
 
+对照一下欧盟驻华代表网站上发表的文章原文发现，中共官方英文媒体“中国日报”星期二（3月8抗日）刊发的这篇文章开头的一段里，“但是冠状病毒的爆发”( But the outbreak of the coronavirus)之后的“在中国，以及在过去三个月，随后又蔓延到世界其他地方”（in China, and its subsequent spread to the rest of the world over the past three months）被删除。对此，欧盟驻华代表郁白拒绝评论中国日报删除该文部分内容的原因。
 
+现在各国逐渐放开防疫管制政策，因疫苗接种的管制抗议，以及各种副作用正在引起民众关注，各国政府必然会把病毒溯源工作提上日程。中共作为病毒的制造者和投放者，此时如坐针毡。任何有关病毒来自武汉的话题都会采用屏蔽信息的一贯做法，企图逃避病毒追责的恐惧已经使中共手足无措。这次的做法足以证明这一点。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+众所周知，中共制造病毒并投放全世界。任何的狡辩和栽赃别国的做法只会使其遭到更严厉的打击。中共政权在全球各国的压力之下岌岌可危。
 
+信息来源：
 
+[**欧盟：中国日报删除欧洲27国大使联名文章部分内容令人遗憾**](https://www.voachinese.com/a/eu-envoy-says-removal-phrase-op-ed-in-china-newspaper-regrettable-20200507/5409985.html)
 
-在3月6日的大直播中，郭文贵先生表示，普京时代由于发动侵略战争而结束，中共会迅速攻打台湾，俄乌战争的代价则，是全世界都会痛恨习近平和被中共绑架的国人。
-
-郭先生说，世界经济的崩溃，将在5月份从美国和欧洲开始。俄乌的战争，美欧隐形支持乌克兰，乌克兰把军队平民化而藏兵于民。俄国政府现在内部已经是一团乱麻，虽然他们还在吹嘘，但事实上普京的时代已经结束，俄罗斯在世界上已经彻底失败，只是与乌克兰两国付出代价多少的问题。
-
-由于习近平知道自己的身体撑不了多久，因此他对台湾一定会运用闪击战术，也不会给世界任何反应机会，以免重蹈俄乌战争覆辙。而全世界也会最痛恨习近平、中共以及被中共绑架的中国老百姓。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-4.jpg)
-另外，中共CIPS金融系统与俄罗斯的签约，代替了西方SWIFT系统的制裁，说明中共已经公开承认了，它是俄罗斯侵略战争背后的金主和支持者。而这个代价将在战争之后开始显现，中国几代人都将难以承受。
-
-郭先生指出，这就像被注射了两三针毒疫苗、面对着死亡的中国人一样，即使在灭共以后，在全世界面前也是难以被拯救的。
-
-参考链接：
-[3/06/2022 文贵直播：世界经济何时开始崩溃？普京的时代已结束，习太阳身体撑不住，一定会迅速打台湾；俄乌战争让全世界都恨习和中国人，而中共绑架的中国人却被迫背上了支持俄罗斯的黑锅](https://www.gettr.com/post/pykg790ac2)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

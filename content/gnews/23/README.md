@@ -2,22 +2,28 @@
 ---
 
 
-## 法新社：全球超过 600 万人死于中共病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2129632/)
+## 中日财经爆┃大宗商品连续涨价对世界经济产生巨大影响
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2129675/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-791.png)[图片来源](https://www.afpbb.com/articles/-/3394004?pid=24265301)
-自中共病毒（新型冠状病毒）全球流行开始以来，全球已有超过 600 万人死于该病毒。法新社8日的汇总中清楚地表明了这一点。
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7-1.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.feednavigator.com%2Fvar%2Fwrbm_gb_food_pharma%2Fstorage%2Fimages%2F_aliases%2Fwrbm_large%2Fpublications%2Ffeed%2Ffeednavigator.com%2Farticle%2F2020%2F11%2F24%2Fla-nina-and-global-stockpiling-could-c)
+据NHK3月9日消息，随着俄罗斯入侵乌克兰，能源、粮食和金属等多种产品的价格不断上涨，对世界经济产生的影响将越来越大。
 
-法新社在当天下午6点汇总各地区官方数据累计，共有600万1585人死于新病毒。
+在美国和英国宣布了一系列禁令和逐步停止进口俄罗斯原油的背景下，纽约原油市场，作为国际原油价格指标的WTI期货价格8日一度触及每桶129美元的水平，价格一直保持高位。
 
-在世界大部分地区，感染人数和死亡人数目前都在迅速下降，但例外的是亚洲包括香港在内的感染传播规模是有史以来最严重的，以及包括新西兰在内的大洋洲新感染人数正在迅速增加。
+7日晚，芝加哥期货交易所小麦期货一度上涨至每蒲式耳13.63美元，创下2008年2月以来约14年来的首次历史新高。市场官员表示，对俄罗斯和乌克兰出口停滞的担忧仍在继续，“据报道，乌克兰港口的出口已经受到阻碍。”
 
-信息来源：[世界のコロナ死者、600万人超に AFP集計](https://news.yahoo.co.jp/articles/a6c1491210a5ed3b56f11ae6aa8aa8201e887749)
+伦敦金属交易所镍期货价格8日急速飙升至每吨101365美元，是前一个交易日的两倍。交易所不得不采取不同寻常的措施暂停交易。镍是用于不锈钢和电动汽车电池的原料，由于担心生产国俄罗斯的供应停滞，价格一直不停上涨。
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+8日，作为安全性高，能规避风险的黄金期货价格每盎司上涨至2078美元80美分，创下了一年七个月以来的新高。
+
+如果大宗商品价格持续上涨，全球性的通胀加速将不可避免，由此会阻碍本来就不堪一击的后疫情时代的经济复苏，为全球的经济带来巨大的不利影响。
+
+信息来源：[原油 小麦 金属… 相次ぐ価格高騰 世界経済への悪影響も懸念](https://www3.nhk.or.jp/news/html/20220309/k10013521491000.html)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
