@@ -2,24 +2,22 @@
 ---
 
 
-## 乌克兰情报局称第二位俄军将领遭击毙
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2133262/)
+## 乌克兰称来自52个国家的2万多名志愿者报名参加战斗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2133265/)
 
 作者：纽约香草山教育部 – Naughty(文行**)**
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-乌克兰国防情报局3月8日表示，俄罗斯高级将领，维塔利·格拉西莫夫，在乌克兰第二大城市哈尔科夫市附近遭到击毙，这是俄罗斯入侵乌克兰以来，第二个阵亡的俄军高级将领。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-22.jpg)
-乌克兰国防情报局指出，格拉西莫夫是俄罗斯陆军第41军团的参谋长兼第一副指挥官，曾参与车臣战争以及叙利亚战争，而且还曾因参与吞并克里米亚获颁奖章。
+据外媒3月6日报道，乌克兰外长库列巴表示，来自 52 个国家的2万多名志愿者已经报名，自愿参与到新成立的国际军团中，为乌克兰作战。不过，他没有透露有多少志愿者已经抵达乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-25.jpg)
+上周，乌克兰总统泽连斯基公开邀请“世界公民”加入乌克兰国防，并取消对外国战士的签证要求，反响很大，乌克兰收到了大量的申请。 库列巴在6日的晚上的电视讲话中说，“今天全世界都站在乌克兰一边，不仅在言辞上，而且在行动上，” 考虑到有些国家禁止本国公民为其他国家作战，库列巴没有就志愿者的国籍做进一步说明。
 
-另外，乌克兰情报部门截获的一段来自俄罗斯联邦安全局官员与前线将领的电话录音也证实了这一消息，电话中，前线将领不但向他通报了格拉西莫夫的死讯，还对俄军的通讯安全及撤离受损部队方面的严重问题作了一番抱怨。
-
-就在几天前，同属陆军第41军团，担任副指挥官的俄罗斯军官安德烈·苏霍维茨基被乌克兰军队击毙。
-
-参考链接：[Second Russian general killed in war, Ukraine says](https://www.reuters.com/world/europe/second-russian-general-killed-war-ukraine-says-2022-03-08/)
+参考链接：
+1. [20,000 foreign volunteers have signed up to fight in Ukraine: officials](https://nypost.com/2022/03/06/20k-foreign-volunteers-signed-up-to-fight-in-ukraine-officials/)
+2. [Ukraine says 20,000 volunteers from 52 countries sign up to fight](https://www.timesofisrael.com/liveblog_entry/ukraine-says-20000-volunteers-from-52-countries-sign-up-to-fight/)
 
 ![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-总编/编辑/审核：天滅中共
+总编/编辑/审核：天滅中共/飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

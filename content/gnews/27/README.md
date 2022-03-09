@@ -2,45 +2,31 @@
 ---
 
 
-## 加拿大在乌克兰问题上再制裁 10 名俄罗斯人
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2133259/)
+## 英国承诺提供 1 亿美元帮助维持乌克兰政府运转
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2133264/)
 
-作者：Mike Blanchfield
-翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_151403954.jpg)
-周一，正在英国访问的加拿大总理杜鲁多宣布制裁俄罗斯名单增加10人，而这个10人名单是普京在俄罗斯国内最大反对者列出清单上的10人。
+作者：纽约香草山教育部 – Naughty(文行**)**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+外媒3月6日报道，英国首相办公室表示，英国将通过世界银行向乌克兰提供 1 亿美元援助，以维持乌克兰国家核心职能的运转并减轻俄罗斯入侵造成的财政压力。 英国希望通过提供防御性军事援助、再次主张对克里姆林宫实施更严厉的制裁，以及提供财政支持等措施，寻求在国际社会应对俄乌危机中发挥核心作用。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-24.jpg)
+不过，仍有很多声音批评约翰逊政府的制裁过于缓慢，同时，难民计划也令人失望。 英国当局表示，除了已经承诺的 2.9095 亿美元之外，最新一轮的资助可用于支付乌克兰公共部门工人的工资，支付养老金和社会保障金。 这笔资金将通过世界银行多方捐助者信托基金支付，该基金旨在加快对乌克兰的捐款，并已被其他一些国家使用。
 
-杜鲁多在访问伦敦附近的英国军事基地后，与英国首相约翰逊和荷兰首相吕特公开谴责俄罗斯总统普京对乌克兰的袭击。
+参考链接：[Britain pledges $100 million to help keep Ukrainian state running](https://www.reuters.com/world/uk/britain-pledges-100-mln-help-keep-ukrainian-state-running-2022-03-06/)
 
-三人还公布对基辅的更多支持和对俄罗斯的惩罚，杜鲁多透露，加拿大最新一轮制裁目标，是从普京主要敌对者Alexei Navalny所编制的名单中选出，这包括前任和现任高级政府官员、特权阶级和俄罗斯领导层的支持者，杜鲁多说，这10名人士参与了这次不公义的入侵。
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-杜鲁多表示，制裁将给俄罗斯领导层带来更大压力，包括普京的核心圈子。
+总编/编辑/审核：天滅中共/飞虹
+校对/发稿：Hetangyuese
 
-据报道45岁的Alexei Navalny自2021年初从德国返回俄罗斯后一直被监禁，他多年来一直是普京的眼中钉，他曾呼吁俄罗斯人每天举行活动，抗议莫斯科入侵乌克兰。
+**更多资讯，更多关注**
 
-加拿大、英国及其北约盟国早前已拒绝乌克兰的要求，不会设立禁飞区以保护其平民免受俄罗斯轰炸，原因是担心一旦与俄罗斯飞机交战，可能会引发新的世界大战。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-当杜鲁多到唐宁街10号首相官邸时，官邸外有大批抗议者在迎接他，抗议者挥舞加拿大国旗和标语牌，要求杜鲁多释放上个月渥太华自由车队抗议活动的组织者之一Tamara Lich。
-
-未来几天，杜鲁多还将在拉脱维亚、柏林和波兰华沙与其他领导人会面。总理在欧洲的议程还包括与北约秘书长会晤。
-
-与此同时周一，加拿大外交部长Melanie Joly在罗马尼亚与高级官员交谈，因为该国向乌克兰难民敞开大门。加拿大国际发展部长Harjit Sajjan将前往日内瓦，然后与杜鲁多一起在东欧与联合国和其他国家会面，就乌克兰问题进行会谈。
-
-来源：https://www.ctvnews.ca/canada/canada-takes-direction-from-putin-rival-to-sanction-10-more-russians-over-ukraine-1.5808227
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
