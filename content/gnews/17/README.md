@@ -2,48 +2,40 @@
 ---
 
 
-## 新闻述评：泽连斯基在英国议会演讲会唤醒丘吉尔？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2132574/)
+## 英美宣布禁止进口俄罗斯石油和其他能源
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2132634/)
 
-作者：东京樱花团 | 捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-54.png)
-[图片来源](https://www.radiosvoboda.org/a/news-zelenskyi-zvernennia-do-parlamentu/31743272.html)
+作者：首尔天池农场 – 追着曙光跑/纽约香草山农场 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月8日，据当地媒体报道，美国总统拜登当天发布声明宣布，将禁止进口俄罗斯的石油和其他能源，从而增强美国对俄罗斯所施加压力，而这也是美国针对俄罗斯入侵乌克兰行为所采取的最新制裁措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-13.jpg)
+拜登在声明中强调，该举措是美国人民对俄罗斯的另一个有力打击，目前已经受到了来自美国两党的强烈支持。
 
-**世界看到了一个平民总统，一个曾经的喜剧小丑登上英国议会发表了“丘吉尔”式的演讲。企图再次唤醒美国参战，但美国政治评论声音认为他或将载入民主卫道士的史册而伟大，却注定不是丘吉尔。世界因此在等待二战历史的重演。**
+拜登还表示，石油以及其他能源的出口是俄罗斯的经济支柱。但鉴于俄罗斯当下对乌克兰的侵略举动，美国正在与欧洲的盟友合作，用以孤立普京和俄罗斯的经济。因此，在与世界各地的盟友和伙伴密切磋商后，美国政府实施了这一最新制裁举措。
 
-据[乌克兰真理报](https://www.radiosvoboda.org/a/news-zelenskyi-zvernennia-do-parlamentu/31743272.html)当地时间8日消息，乌克兰总统泽连斯基在英国议会发表讲话时引用了[丘吉尔](https://access-literature2015.cappelendamm.no/ento/tekst.html?tid=1534542&amp;sek=1709378)的话，被欧洲视为“丘吉尔时刻”。泽连斯基在英国议会提醒英国政客们说，你们在二战时期已经听到丘吉尔的讲话，并且我要再次用这鼓舞人心的讲话说：
+同时，英国也在一份声明中宣布，将在2022年年底前逐步停止进口俄罗斯的石油和石油产品，以此作为对俄罗斯无端和无理对乌克兰发动战争的制裁。
 
-*“我们不会放弃，也不会失败。我们将坚持到底，**“**我们将在海上战斗，我们将在空中战斗，我们将保卫我们的土地，不惜任何代价。我们将在森林、田野、海岸、城市和村庄、街道上战斗，我们将在山上战斗。我想补充一点：我们将在任何地方战斗，在土丘上，在卡尔米乌斯河和第聂伯河岸边，我们不会放弃。**”*
+对此，拜登提到，美国正在与盟友及伙伴共同合作，从而发展一套减轻依赖俄罗斯能源的长期战略；而作为制裁，这一战略正在导致俄罗斯经济的崩溃。
 
-泽连斯基再次引用温斯顿丘吉尔首相二战中这番反战宣言再次激发人们1斗志，引发世界关注。
+参考链接：
+1). [US strikes harder at Putin, banning all Russian oil imports](https://apnews.com/article/russia-ukraine-war-us-russia-oil-ban-120c0152cf310a5b593f6ae7a2857e62)
+2). [UK to phase out Russian oil imports by 2023 and explore ending gas imports](https://www.theguardian.com/world/2022/mar/08/no-10-plans-cut-russian-fossil-fuels-use)
+3). [U.S. President Joe Biden announced a ban on Russian oil and other energy imports in retaliation for Russia’s invasion of Ukraine, underscoring strong bipartisan support for a move that he acknowledged would drive up U.S. energy prices https://reut.rs/3Kpgtsf](https://twitter.com/reuters/status/1501240354191790085?s=21)
 
-泽连斯基在简短讲话中回忆了俄军“炮击城市居民区、炮击扎波罗热核电站。” “当俄罗斯要求我们的人放下武器时，”我看到边防部队在蛇岛上用顽强的抵抗他们回答了侵略者。 我们感受到了力量，我们人民的强大力量。当“他们用大炮、空气炸弹袭击平民和民宅时，它终于为我们展示了世界上谁是伟大的人，谁只是野兽。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-- *延展阅读*：[*乌克兰国防部**–**俄侵略军损兵超过**12,000**人，**130**架敌机和直升机被摧毁*](https://www.mil.gov.ua/news/2022/03/09/vtrati-rosijskih-okupantiv-stanovlyat-ponad-12-000-osib-znishheno-130-vorozhih-litakiv-ta-vertolotiv-%E2%80%93-generalnij-shtab-zs-ukraini/)。
+总编: Irene木木
+编辑: Ivy001
+审核: 文真
+校正/发稿：Fei797
 
-
-总统泽连斯基首谴责北约国家领袖没有勇气。“是的，我们感觉到了。我不想得罪任何人，我们觉得联盟不行，他们连天都关不上（禁飞区）。这就是为什么欧洲的安全保障必须从头开始建立，”泽连斯基补充说，“被占领的乌克兰城市中那些手无寸铁的居民在抵抗，“整个城市，数十万人”已成为英雄的城市。特别是当战争进入到“第13天，在被俄军封锁的马里乌波尔，一名儿童脱水死亡。从儿童脱水至死可见。他们不允许人们获取食物或水。这些生命必须的东西，刚刚被屏蔽了。他们在地下室。我想每个人都听到了，人们那里没有水。在俄国入侵的 13 天里，有 50 名儿童和 50 名烈士被杀。这很可怕，”泽连斯基说。
-
-在英国议会里，泽连斯基还援引英国剧作家威廉·莎士比亚《哈姆雷特》中那句“不寻求伟大，而是变得伟大”的名言来形容战争中的乌克兰，他挚爱的国家。
-
-泽伦斯基在伦敦呼吁英国加强对俄罗斯的制裁，承认其为“恐怖主义国家”。并在此建议在乌克兰设立禁飞区，设法保护乌克兰领空免受俄罗斯飞机的攻击。乌克兰总统最后说：[做你能做的，你必须做的，因你们伟大的国家和人民，这是必须做的事情](https://www.radiosvoboda.org/a/news-zelenskyi-zvernennia-do-parlamentu/31743272.html)。
-
-对此，[CNN评论文章](https://www.google.com/amp/s/amp.cnn.com/cnn/2022/03/08/politics/zelensky-ukraine-churchill-what-matters/index.html)承认乌克兰总统泽连斯基的勇敢，称“泽连斯基显然是俄罗斯侵略者的目标。然而，周一晚上，他出现在了他在基辅的官方公众场所，在 一部分是自拍的视频中，有一段展现了“世界末日总统”般的讲话。认为这位前喜剧演员引用丘吉尔的讲话比较当下的世界危机的大无畏精神“值得敬畏和赞美，与温斯顿丘吉尔的比较，来自左派、右派和媒体。人们的想法是，泽伦斯基已经用丘吉尔的无线电和圆顶礼帽换成了自己的智能手机和一件绿色 T 恤。”一个给自己定义平民总统的身份，却在英国议会发表了一份“末日宣言”，与丘吉尔首相二战中那段著名讲话相呼应，他穿越了时空，使人再回二战中浴血奋战的场面。英国“下议院为泽连斯基欢呼，并起立鼓掌。”然而，泽连斯基要的并不是掌声，而要的是历史的掌声。他不希望看到西方对俄罗斯实所谓施“严厉的制裁”却不“切断俄罗斯对西方国家的石油供应。”更不希望看到美国拒绝在乌克兰领空设立“禁飞区。”
-
-- *延展阅读*：[泽连斯基向英国议会发表讲话：“我们将在海上作战，我们将在空中作战！”我们不会投降](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220308-%E6%B3%BD%E8%BF%9E%E6%96%AF%E5%9F%BA%E5%90%91%E8%8B%B1%E5%9B%BD%E8%AE%AE%E4%BC%9A%E5%8F%91%E8%A1%A8%E8%AE%B2%E8%AF%9D-%E6%88%91%E4%BB%AC%E5%B0%86%E5%9C%A8%E6%B5%B7%E4%B8%8A%E4%BD%9C%E6%88%98%EF%BC%8C%E6%88%91%E4%BB%AC%E5%B0%86%E5%9C%A8%E7%A9%BA%E4%B8%AD%E4%BD%9C%E6%88%98-%E6%88%91%E4%BB%AC%E4%B8%8D%E4%BC%9A%E6%8A%95%E9%99%8D)!
-
-
-该评论文章结论认为，泽连斯基和丘吉尔一个关键的区别在于，丘吉尔对唤醒美国加入第二次世界大战抱有希望，它最终做到了。而“[泽连斯基被明确告知，美国不会对拥有核武器的俄罗斯举起武器，因为这可能引发第三次世界大战](https://www.google.com/amp/s/amp.cnn.com/cnn/2022/03/08/politics/zelensky-ukraine-churchill-what-matters/index.html)。”
-
-该文章作者就此采访美国总统历史学家道格拉斯·布林克利对泽连斯基的评价称，他“提出了丘吉尔的论点。但“丘吉尔在 1940 年接任首相时已经是战时领袖、战争英雄、丑闻幸存者和多产作家。他是帝国主义者，而不是纯粹的民主信徒。”布林克利认为，泽连斯基“更像是瓦茨拉夫·哈维尔而不是丘吉尔，”哈维尔是一位荒谬的剧作家，但 “没有人认为剧作家哈维尔最终会成为伟大的世界领袖，他做到了。”他似乎更倾向于认为泽连斯基“最终成为一个革命性和鼓舞人心的人 领导。”两人都掀起了东欧的革命浪潮。
-
-布林克利他还提到了罗纳德·里根，他“最终他成为了主持柏林墙倒塌的总统。”他认为“艺人有优势，因为他们能够在危机时刻与人交流。这就是你最需要的，”布林克利说，“泽连斯基将载入史册。乌克兰总统在不可能的情况下的勇敢”使普京的侵略显得很笨拙，“但俄罗斯拥有庞大的军队和资源——也有大卫和歌利亚的元素。就像北京天安门广场的孤独抗议者，”独自抵抗中共军坦克。“这是真正的勇气和勇气的东西，我认为泽连斯基将作为这些民主烈士之一载入史册，你知道，民主的烈士，”布林克利的结论是泽连斯基很可能是民主的殉道者。在未免有些高调的嘲讽。但非常残酷，面对西方的冷漠和政治上的自私。
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
