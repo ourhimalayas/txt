@@ -2,10 +2,10 @@
 ---
 
 
-## 英国和美国宣布禁止从俄罗斯进口石油、天然气和能源
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134034/)
+## 中共国对俄入侵乌克兰作何反应？
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134036/)
 
-03/09/2022 英国和美国宣布禁止所有从俄罗斯进口的石油、天然气和能源。
+03/08/2022 中共国对俄入侵乌克兰作何反应？
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

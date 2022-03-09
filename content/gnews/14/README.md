@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国对俄入侵乌克兰作何反应？
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134036/)
+## 班农：你把中共打倒了，其余的邪恶政权就都倒了
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134038/)
 
-03/08/2022 中共国对俄入侵乌克兰作何反应？
+03/07/2022 班农：你把中共打倒了，其余的邪恶政权就都倒了。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
