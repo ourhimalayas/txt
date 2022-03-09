@@ -2,56 +2,36 @@
 ---
 
 
-## 欧洲国家首脑非正式会议 俄罗斯入侵乌克兰是核心话题
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2132018/)
+## 乌克兰大救援：是谁黑客并篡改法治基金救援邮箱？
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2132146/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/03/The-Vanguard-Group.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-根据欧洲理事会（European Council）和欧盟理事会(Council of European Union)消息，欧洲国家元首或政府首脑将于2022年3月10日至11日在凡尔赛(Versailles)举行非正式会议，讨论俄罗斯对乌克兰的军事侵略及其后果，并讨论如何加强欧洲主权、减少依赖以及设计新的增长和投资模式。会议由轮值国主席、法国总统马克龙主持。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/president-michel-s-invitation-letter-to-the-informal-euco-on-10-11-march-2022-1-scaled.jpg)
-根据欧盟理事会主席、比利时人Charles Michel发出的邀请函，明天（3月10日）下午4时，各国元首或政府首脑报到，会议从下午5:30开始，各国元首同欧洲议会主席交换意见。明天的目标是关注乌克兰局势以及国防和能源。
+**乌克兰救援任务的电子邮件被中共黑客和篡改**
 
-后天，也就是3月11日，上午的会议和工作午餐将专门讨论欧洲国家的新增长和投资模式，欧洲央行行长和欧元集团总裁也将出席。
+3 月 8 日，郭文贵先生在盖特视频中透露，我们与世界分享的乌克兰救援任务二维码和电子邮件被中共攻击和篡改。
 
-俄罗斯把战争带回了欧洲，这种对乌克兰的无端军事侵略严重违反国际法，破坏欧洲安全，俄罗斯正在给乌克兰人民带来难以形容的痛苦。
+郭先生在视频中说：“中共的恐惧已经达到了这样的程度，他们入侵了我们向球发送救援信息的电子邮件黑掉。昨天我的 YouTube 帐户禁止了视频上传功能。我的两部手机被黑客入侵并瘫痪”。
 
-欧盟领导人谴责俄罗斯对乌克兰的军事入侵，赞赏乌克兰人民捍卫国家的勇气，欧洲和欧盟与乌克兰一道，坚定地站在自由和民主的一边，乌克兰是欧洲大家庭的一部分。
+法治基金会的志愿者每天秉承“无私献奉”的新中国联邦精神，每天救助着素不相识的妇女、儿童和中国同胞。由于 NFSC 的救援行动在 Getter 上直播，全世界都可以观看。自NFSC出现在乌克兰的第一天起，包括媒体在内的国际救援组织和机构就一直密切关注着它。
 
-针对俄罗斯的侵略，欧盟展现了团结和力量。欧盟对俄罗斯实施了有史以来最严厉的制裁。欧洲联盟及其成员国正在向乌克兰提供协调一致的人道主义、政治、财政和物质支持。欧洲联盟会员国在收容无数逃离战争的人方面也表现出极大的团结。
+中共害怕NFSC在乌克兰救援的国际影响，“共产党动用了最大的国家力量黑客掉我们的救援邮箱，他们害怕我们去救人。”郭文贵指出了共产党黑客邮箱的原因。
 
-俄罗斯入侵乌克兰的最新发展及其后果，将是这次欧盟领导人在非正式会议期间讨论的核心话题。
+法治基金义工小王子说，这个邮箱是通过Godaddy注册的。根据温哥华杨帆农场战友Forfree提供的线索，发现在cnn的一篇文章（[https://money.cnn.com/quote/sharehold…](https://money.cnn.com/quote/shareholders/shareholders.html?symb=GDDY&amp;subView=institutional)）上可以看到godaddy的最大股东是vanguard group（先锋集团）！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-897.png)
+大家从辉瑞集团的分析中已经早就熟悉了这个先锋集团。它和共产党深度勾兑。郭先生在2021年8月24号就爆料“先锋集团是中国国药的投资者控制的”，和韩正儿子的42公司极其密切。先锋集团就是所有的辉瑞制药、所有的科兴疫苗、所有的中国国药的疫苗的其中投资者股东。先锋集团和江家、鼎晖、比尔盖茨、黑石关系紧密。
 
-面对最近发生的多重危机和挑战，欧洲比以往任何时候都更加紧迫地采取果断步骤来维护主权，减少依赖，并设计一种新的增长和投资模式。
+Forfree说：“这次godaddy恶意停用我们的救援网站和邮箱，背后估计就是CCP通过先锋下的黑手。godaddy看来本来就有很多害人的黑历史，和CCP有扯不清的关系”。
 
-在这次非正式会议上，将重点关注三个具体问题，即：
+新闻来源：
 
-加强欧洲的防御能力；
+[Forfree getter](https://gettr.com/comment/crs7hi63da)
 
-减少欧洲对能源的依赖，特别是对俄罗斯天然气、石油和煤炭的依赖，以及
+[CNN Business](https://money.cnn.com/quote/shareholders/shareholders.html?symb=GDDY&amp;subView=institutional)
 
-建立更强大的经济基础。
 
-3月9日，针对俄罗斯入侵乌克兰，欧洲联盟同意将更多俄罗斯垄断寡头和高级官员纳入新的制裁黑名单，并加强对加密货币转帐的规定，以及锁定海运事业。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-09_21-24-09.png)
-
-欧盟轮值主席国法国的代表机构在推特发文表示，因白俄罗斯协助俄罗斯入侵乌克兰，欧盟已批准将白俄3家银行逐出环球银行金融电信协会（SWIFT）支付讯息系统。
-
-欧盟加强加密货币转帐规定的行动，目的在防止黑名单内的个人和公司利用加密数位系统，绕过欧盟的制裁。欧盟还扩大禁止出口俄罗斯的科技产品清单，以削弱俄国的工业基础。
-
-欧盟外交和安全政策高级代表何塞普·博雷尔表示，欧盟必须用更多的手段增加对俄罗斯的压力，欧盟将针对俄罗斯政府的100多名高级官员实施新的一揽子制裁措施。
-
-参考资料：
-
-[Боррель заявил о новом пакете санкций ЕС в отношении россиян](https://vz.ru/news/2022/3/9/1147689.html)
-
-[Invitation letter by President Charles Michel to the members of the European Council ahead of their informal meeting of 10 and 11 March 2022](https://www.consilium.europa.eu/en/press/press-releases/2022/03/08/invitation-letter-by-president-charles-michel-to-the-members-of-the-european-council-ahead-of-their-informal-meeting-of-10-and-11-march-2022/)
-
-[Informal meeting of heads of state or government, Versailles, 10-11 March 2022](https://www.consilium.europa.eu/en/meetings/european-council/2022/03/10-11/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

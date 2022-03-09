@@ -2,48 +2,40 @@
 ---
 
 
-## 新中国联邦法制基金乌克兰救援团建战地新闻直播中心
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2131596/)
+## 美国小李一行到达救援前线
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2131722/)
 
-作者：香草山农场写作组 – 静言
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+作者: 银河系农场—骄子
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-50.png)
+当地时间3月7日晚，美国小李一行十余人到达波兰克拉科夫救援大本营。此行经过24+4小时的颠簸，集结于此。战友相见分外亲切，大家互相拥抱，有的用家乡话聊天问候，有的认出彼此是一起在SEC门口战斗过的面孔。旅途虽远，但热诚的问候和暖心的笑容一扫旅程的乏劳。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-8.30.29-PM.png)图片来源: Gettr (@pangushixun)
+大本营所在的这个酒店条件在本地来说是档次较高的。酒店坐落在一个边陲小城，且在战争时期，餐食尽管没那么丰富，但战友表示已经非常好了。
 
-3月8日，新中国联邦法治基金乌克兰救援队前线发回简讯，参与救援的各个分队会有明确分工。
+战友大卫在交谈中说，因为这是一个国际大救援，我们根本没有经验。但是经过这么几天的磨合，在大巴接人，酒店接应方面已经顺利完善了流程，一些细节方面还有待改善。
 
-华盛顿农场阿丙团队将前往波兰与乌克兰交界的小镇Medyka, 建立战地新闻直播中心，此镇是乌克兰人逃生必经之地。昨天刚刚到达的洛杉矶团队负责人明道，负责Medyka的战地新闻报道。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture-27.jpg)
-鉴于目前乌克兰局势日益恶化，新中国联邦救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
-自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发前往波兰。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
-求助方式请参考以下视频。
+这是新中国联邦到达救援前线的第五批团队，不同的救援团队到达以后，稍作休息后，会即刻奔赴不同的救援地点。
 
-意大利文科团队将在Medyka 指挥营救行动。
+参考链接: [https://gettr.com/post/pyq34v03b1](https://gettr.com/post/pyq34v03b1)
 
-当地时间8日早晨还有另外一条喜讯，在救援队前往乌克兰边境救援的路上，看见一辆有红十字会标记的大巴往乌克兰边境开去。连日来辛苦疲惫且孤单营救的新中国联邦战友们，心里感到无比温暖，愿更多正义力量加入营救乌克兰难民的阵营。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
 
-参考链接：
-[新中国联邦和法治基金关于紧急救援乌克兰的通知](https://gettr.com/post/pyw9zs571a)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

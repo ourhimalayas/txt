@@ -2,24 +2,26 @@
 ---
 
 
-## 美国小李一行到达救援前线
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2131722/)
+## 拜登政府向数百家媒体支付款项用来推广中共病毒疫苗
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2131782/)
 
 作者: 银河系农场—骄子
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-50.png)
-当地时间3月7日晚，美国小李一行十余人到达波兰克拉科夫救援大本营。此行经过24+4小时的颠簸，集结于此。战友相见分外亲切，大家互相拥抱，有的用家乡话聊天问候，有的认出彼此是一起在SEC门口战斗过的面孔。旅途虽远，但热诚的问候和暖心的笑容一扫旅程的乏劳。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-8.30.29-PM.png)图片来源: Gettr (@pangushixun)
-大本营所在的这个酒店条件在本地来说是档次较高的。酒店坐落在一个边陲小城，且在战争时期，餐食尽管没那么丰富，但战友表示已经非常好了。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
+据外媒报道，美国卫生与公众服务部（United States Department of Health and Human Services，缩写：HHS）向数百家美国媒体公司支付款项用来推广中共病毒疫苗的广告。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-8.50.58-PM.png)图片来源: 网络
+美国政府机构HHS从ABC、CBS、NBC、FOX NEWS、CNN等多家主流媒体购买广告，主要方式为投放文章和视频片段，这些内容全部对中共病毒疫苗持有积极的态度，更夸张的是纳税人资金并未披露。据悉该笔资金来自2021年度纳税人资助的10亿美元联邦竞选资金，旨在增强美国人对中共病毒疫苗的信心。
 
-战友大卫在交谈中说，因为这是一个国际大救援，我们根本没有经验。但是经过这么几天的磨合，在大巴接人，酒店接应方面已经顺利完善了流程，一些细节方面还有待改善。
+另外这些主流媒体还对那些对中共病毒来自武汉实验室，以及对中共病毒疫苗持怀疑态度的看法进行打击，反过来指责他们传播错误信息。
 
-这是新中国联邦到达救援前线的第五批团队，不同的救援团队到达以后，稍作休息后，会即刻奔赴不同的救援地点。
+目前HHS尚未披露具体每个媒体的费用。
 
-参考链接: [https://gettr.com/post/pyq34v03b1](https://gettr.com/post/pyq34v03b1)
+新闻来源: [https://www.lifesitenews.com/news/report-biden-admin-gave-taxpayer-dollars-to-legacy-media-outlets-to-promote-covid-jabs/](https://www.lifesitenews.com/news/report-biden-admin-gave-taxpayer-dollars-to-legacy-media-outlets-to-promote-covid-jabs/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
+
+
 
 编辑/校对/发稿: 卡夫卡的甲壳虫
 
@@ -34,10 +36,6 @@
 [**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-
-
-
 
  
 

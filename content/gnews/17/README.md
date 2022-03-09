@@ -2,40 +2,38 @@
 ---
 
 
-## 拜登政府向数百家媒体支付款项用来推广中共病毒疫苗
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2131782/)
+## 【 G时新闻 】 驰援乌克兰，波兰将所有米格-29战机部署到美军基地
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2131997/)
 
-作者: 银河系农场—骄子
+**播报：加拿大温哥华扬帆农场 – 悠然**
 
+**视频制作：加拿大温哥华扬帆农场 –  文雅**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
-据外媒报道，美国卫生与公众服务部（United States Department of Health and Human Services，缩写：HHS）向数百家美国媒体公司支付款项用来推广中共病毒疫苗的广告。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-8.50.58-PM.png)图片来源: 网络
-美国政府机构HHS从ABC、CBS、NBC、FOX NEWS、CNN等多家主流媒体购买广告，主要方式为投放文章和视频片段，这些内容全部对中共病毒疫苗持有积极的态度，更夸张的是纳税人资金并未披露。据悉该笔资金来自2021年度纳税人资助的10亿美元联邦竞选资金，旨在增强美国人对中共病毒疫苗的信心。
+当地时间3月8日波兰宣布，在俄乌冲突期间，他们决定将该国老式的米格-29战斗机部署到美军位于德国的拉姆施泰因空军基地。
 
-另外这些主流媒体还对那些对中共病毒来自武汉实验室，以及对中共病毒疫苗持怀疑态度的看法进行打击，反过来指责他们传播错误信息。
+波兰外交部发布声明，经总统和政府协商后，相关部门立即着手无偿部署所有的米格-29战机到拉姆施泰因空军基地，并交由美国政府使用。
 
-目前HHS尚未披露具体每个媒体的费用。
+同时，波兰也要求美国向其提供“具有相应作战能力的二手飞机”，并补充说华沙下一步“也准备确定购买飞机型号”。
 
-新闻来源: [https://www.lifesitenews.com/news/report-biden-admin-gave-taxpayer-dollars-to-legacy-media-outlets-to-promote-covid-jabs/](https://www.lifesitenews.com/news/report-biden-admin-gave-taxpayer-dollars-to-legacy-media-outlets-to-promote-covid-jabs/)
+波兰政府还呼吁，拥有米格-29飞机的其他北约成员国将其飞机转移到美军基地，这些飞机最初是在1970年代由苏联制造的，乌克兰飞行员均受过驾驶苏式战机的训练。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
+美国副国务卿维多利亚·纽兰在华盛顿的一个国会委员会上说：“我刚看到了波兰政府的公告，稍后我们将回应这一提议。”
 
+波兰政府的决定是在美国和波兰官员就华沙是否将其战斗机提供给乌克兰军方发表声明之后做出的。
 
+3月6日，美国国务卿布林肯曾表示，波兰已获准向乌克兰派遣战斗机。
 
-编辑/校对/发稿: 卡夫卡的甲壳虫
+自2月24日俄罗斯入侵战争开始以来，乌克兰总统泽连斯基政府多次要求北约和美国派遣战斗机和其他武器，同时还呼吁设立禁飞区。北约首席和白宫官员表示，他们没有考虑设立禁飞区的要求，因为这意味着北约或美国的飞机会击落俄罗斯的飞机，双方开战。
 
-**更多资讯，更多关注**
+据参议院多数党领袖查克·舒默称，在周六与美国国会议员的电话会议上，泽连斯基重申乌克兰正在寻求军用飞机，他特别需要俄罗斯制造的飞机。
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+周日俄罗斯国防部发出警告，任何允许乌克兰使用各自机场对俄罗斯资产进行攻击的国家都可被视为已卷入冲突。
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**原文链接：**https://gnews.org/zh-hans/2129301/
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+**视频链接：**[https://gettr.com/post/pyzct8b935](https://gettr.com/post/pyzct8b935)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+**编辑****/****上传：****CTQ**
 
  
 
