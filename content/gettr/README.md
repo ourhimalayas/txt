@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 12:10 AM (UTC)`
+
+2022.03.08 NFSC News  Remembering Those Who Are Still Suffering； / NFSC’s Spanish Farm’s Efforts in Rescuing the 96 Ukrainian Children
+![img](https://media.gettr.com/group7/origin/2022/03/09/00/e4f2b2f9-9400-22ce-b581-cb7d33e633de/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@pangushixun 3/8/2022 11:23 PM (UTC)`
@@ -151,13 +158,6 @@ We stand with our Ukrainian brothers and sisters during these trying times. Here
 
 2022.03.07 晚 《新中国联邦新闻》 新中国联邦成功救出96名乌克兰儿童； 我们一夜之间变成了天使
 ![img](https://media.gettr.com/group44/origin/2022/03/08/01/279a7560-2cd4-e61f-0309-98d4a7c9b95e/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/8/2022 1:12 AM (UTC)`
-
-3月7号：非常感谢文峰的儿子制作的，关于在乌克兰拯救儿童后的视频，太棒了。
-![img](https://media.gettr.com/group36/getter/2022/03/08/01/272b42fa-4e89-c557-6863-bc308a01840a/out.jpg)
 
 ---
 

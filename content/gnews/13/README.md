@@ -2,24 +2,29 @@
 ---
 
 
-## 【 #G时新闻 】美国将允许北约成员国在必要时向乌克兰派遣战斗机
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2129027/)
+## 今日盖特大V推荐 — 反叛新闻 （Rebel News）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2129086/)
 
-加拿大温哥华扬帆农场 – 播报：yuyu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/acr0r-0vai4.jpg)
+盖特链接：[https://gettr.com/user/rebelnewsonline](https://gettr.com/user/rebelnewsonline)
 
-加拿大温哥华扬帆农场- 视频制作：Gracelshan
+**反叛新闻自述：**
 
-据《每日电讯》3月6日报道，国务卿布林肯当天表示，美国将允许北约成员国在必要时向乌克兰派遣战斗机，以协助该国抵御俄罗斯入侵。
+讲述故事的另一面
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7bhyk1.jpg)**图片来源：网络**
+**反叛新闻简介：**
 
-报道称，邻国波兰目前已获准可向乌克兰战区派遣军事飞机执行战争任务。对此，乌克兰驻美国大使表示，希望尽快从北约获取所需的武器弹药和军事装备以更有效地实施国家保卫战。
+反叛新闻（也称为The Rebel Media和The Rebel）是由反叛新闻网络有限公司运营的加拿大右翼政治和社会评论媒体网站。它由前太阳新闻网名人以斯拉·黎凡特（Ezra Levant）和布赖恩·李利（Brian Lilley）于2015年2月创立。
 
-据悉，乌克兰的顽强抵抗使俄军的闪电战计划落空。面对内外交困的压力和制裁，普京仍孤注一掷，不仅轰炸并占领了乌克兰境内最大核电站，还违反临时停火协议，对平民疏散通道持续进行血腥袭击。
+反叛新闻仅在互联网上广播其内容，有时被视为加拿大版的布莱巴特新闻（Breitbart News）。该平台在意识形态上反对穆斯林圣战。
 
-原文链接：[https://gnews.org/zh-hant/2127711/](https://gnews.org/zh-hant/2127711/)
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-视频链接: [https://www.gettr.com/post/pyx7ly63a1](https://www.gettr.com/post/pyx7ly63a1)
-
-编辑/发文：hongyeca
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

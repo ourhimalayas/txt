@@ -2,32 +2,68 @@
 ---
 
 
-## 反击俄罗斯入侵 美国宣布禁止从俄进口石油
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2129143/)
+## 阿根廷桑坦德银行将提供以农产品为基础的代币担保贷款
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2129158/)
 
-翻译：冰糖葫芦喵
+译评：香草山商业部—文锤
 
-编辑/校对：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-《路透社》华盛顿3月8日报道，**周二，美国总统拜登宣布，禁止进口俄罗斯石油和其他能源，反击俄罗斯入侵乌克兰的举动。这一消息促使油价上涨，基准布伦特原油升至每桶129.91美元。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/PAMKVM423BLQFBYGF4IBORGIG4-e1646781930753.jpg)美国总统拜登在白宫罗斯福厅发表讲话，宣布对俄罗斯在乌克兰的战争采取行动（路透社）
-拜登表示，美**国及其盟友实施的制裁已经导致俄罗斯经济崩溃。**他说，这一新的制裁是在与世界各地的盟友和合作伙伴密切磋商后做出的。
 
-报道指出，在2021年，美国平均每月从俄罗斯进口超过2040万桶原油和精炼石油产品，大约占美国进口液体燃料的8%。
 
-**美国参议员克里斯·库恩斯(Chris Coons)表示，美国正在与欧洲盟友协调，确保已经做好了基础工作，以了解如何有效实施对俄罗斯能源的禁令。**
 
-他表示，**我们将看到美国汽油价格上涨。**在欧洲，他们将看到物价大幅上涨。**这是捍卫自由和与乌克兰人民站在一起的代价，但这将是我们的代价。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/downsize_200k_v1.jpg)图片来源：路透社。
-**白宫一直在与美国国会领导人协调，尽快通过两党立法，禁止进口俄罗斯商品。**
 
-据报道，**美国民主和共和两党都对这一决定表示欢迎，并呼吁政府在美国国内支持更多的石油和天然气生产。**
+以小麦、玉米和大豆为基础的加密货币担保的贷款。这是金融巨头桑坦德银行的新举措，由此显示了其对区块链领域的承诺。我们暂时评估了这项服务中独一无二的服务，该服务将首先在阿根廷提供。
 
-**此前**，**英国宣布将在2022年底前逐步停止进口俄罗斯石油和石油产品**，并表示将给市场和企业足够的时间来寻找进口石油的替代品。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/blob-1.jpeg)图片来源于网络
 
-新闻来源链接:
+**桑坦德银行提供以农业代币为担保的贷款**
 
-[Biden bans Russia oil imports to U.S., warns U.S. gasoline prices will rise further | Reuters](https://www.reuters.com/business/biden-announce-ban-russian-oil-tuesday-sources-2022-03-08/)
+正如桑坦德阿根廷分公司在新闻稿中宣布的那样，这些新贷款适用于农业部门的参与者。最大的新奇之处在于，后者将使用基于农业原材料的代币。
+
+小麦 (WHEA)、玉米 (CORA) 和大豆 (SOYA) 代币因此以“加密谷物”的名义创建。 根据桑坦德银行的说法，该解决方案将允许农民“ 轻松、流畅地使用新的融资系统，扩大信贷能力，使用代币化谷物”。
+
+这是基于与初创公司 Agrotoken 的合作伙伴关系，该公司专门从事谷物和种子等农产品的代币化。每个代币都以美元跟踪商品的价格。最近几个月，该公司已经通过试点与阿根廷生产商测试了这一过程。
+
+根据 Agrotoken 的首席执行官兼联合创始人 Eduardo Novillo Astrada 的说法，这是世界首创：
+
+“ 这是全球首个以农产品为基础的代币借贷实验。[…]我们正在共同创造各种金融产品，为农业生产者提供服务，使他们可以轻松顺利地获得由谷物担保的新信用体系。”
+
+**多渠道基础设施**
+
+该服务基于多个区块链解决方案：以太坊(ETH) 、Algorand [(](https://cryptoast-fr.translate.goog/fiche-ethereum/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN) ALGO) 和Polygon (MATIC)。它包括一个称为“粮食储备证明 (PoGR)”的验证过程。生产者可以使用预言机创建 PoGR 证书。
+
+这使他们能够生产（铸币）有问题的代币，然后将其用作抵押品。该过程将具体商品连接到去中心[化金融](https://cryptoast-fr.translate.goog/defi-finance-decentralisee-explications/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)（DeFi）生态系统。Agrotoken 和 Santander 希望加密货币可以在交易平台和 DeFi 应用程序上使用。
+
+如果该项目成功，桑坦德很可能会被其他大公司模仿。根据桑坦德阿根廷农业工业负责人费尔南多包蒂斯塔的说法，该集团无论如何都打算继续提供这种类型的创新产品：
+
+“ 我们依靠技术和创新创造新的商业解决方案，让生活更轻松，并为农业生产者扩大机会。 ”
+
+评价：只要是被需求的东西，都有价值，只要是这样东西可以进行代币化，就可以质押贷款，未来的去中心化金融（DeFi）将会使金融业发生翻天覆地的变化，传统银行的垄断被打破，沼泽地的主人就要重新定义了，七哥在大直播里曾经比喻过一个能灭共的屁，在去中心化金融DeFi的场景下，就会产生超级无穷的价值，将在未来被严肃的看待。
+
+**原文链接：****[https://cryptoast.fr/santander-prets-garantis-tokens-produits-agricoles/](https://cryptoast.fr/santander-prets-garantis-tokens-produits-agricoles/)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
+
+校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
 
 
 
