@@ -2,36 +2,37 @@
 ---
 
 
-## 新中国联邦法制基金乌克兰人道救援行动（五）
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2132722/)
+## 有声|切尔诺贝利核电站被断电
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132726/)
 
-【玫瑰看新闻】每日快讯
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月9日，乌克兰外交部长库莱巴发推表示，切尔诺贝利核电站的整条供电线路及其由俄军控制的所有核设施均遭到破坏。
 
-1.第三分队从西班牙出发
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西班牙6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/西班牙4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/西班牙5.jpg)
-2.神奇四侠， 2pac和二花 平安落地
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西班牙7.jpg)
+切尔诺贝利已断电。我敦促整个国际社会紧急要求俄罗斯停火，并允许维修人员尽快恢复电力供应。
+
+这些备用柴油发电机仅够为核电站及其设施提供48小时的电力。然后将导致关闭乏核燃料储存的冷却系统，这将威胁到核辐射的泄漏。俄罗斯的野蛮战争威胁着整个欧洲。普京必须立即制止这种情况！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/id12954441-radiation-copy-450x253-1.jpeg)
 
 
-**推出问题，敲出真相，爆料在路上！**
+文字版原文：[切尔诺贝利核电站被断电](https://gnews.org/zh-hans/2131755/)
 
-**请关注和订阅我们的以下账号：**
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**玫瑰看新闻YOUTUBE账号**：
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**玫瑰看新闻**
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**黑森林的故事**
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

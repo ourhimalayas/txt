@@ -2,40 +2,45 @@
 ---
 
 
-## 妇女节当天世界为铁链女发声
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2132835/)
+## 美国选举诚信律师团体正成为亲共团体的目标
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2132856/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月8日国际妇女节当天，郭文贵先生在盖特平台上发布了歌曲《锁链梦》作为最特别的礼物，送给全天下的女性同胞。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-12.jpg)
-与此同时，墙内关注“锁链女”事件的民众也在盖特和其他社交媒体平台上为这些受害女性发声：有网友展示了自制的标语牌，其上写着锁链女那句被世界遗弃的悲凉语句，以及“关注女性儿童，关注未来”的呼吁；还有相关的歌曲唱出了民众希望救援这些受害女性的诉求。此外，有位作家发表文章称，她尝试佩戴了两个小时的自制锁链后，已经让她无法呼吸，但“锁链女”却被铁链禁锢了24年，这一难以承受的苦痛让这位作家潸然落泪。另有上海地区的学生身缠锁链作为行为艺术，向公众揭示“锁链女”事件。
+翻译：wenwu
 
-另一方面，锁链女的事件也在国际上引起了重大关注：近日，国际品牌在巴黎时装周上让模特戴着锁链走秀，表达出对锁链女的声援。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-903.png)图片来源：thenationalpulse.com
 
-参考链接：
-1). [转自主内作家沙光：这根链子约三斤重，我录制视频戴了两个小时，倍觉窒息，可见，疯县锁链女子常年遭此桎梏，何堪忍受。\[流泪\]\[心碎\]\[发怒\]](https://gettr.com/post/pyo9m3752d)
-2). [2022年巴黎时装周， 时尚是人的时尚 因为善良，同理心，所以有人类同胞。 为锁链女祝福。](https://gettr.com/post/pyrvi529ad)
-3). [三八缚女结，我们替千万女同胞发声。](https://gettr.com/post/pytc7i26a3)
-4). [一位奶爸**👨‍🍼**战友。 憋不住来KTV房唱铁锁梦，**😂😂**](https://gettr.com/post/pytca822e1)
-5).[铭记历史，拯救铁链女靠战友们行动。](https://gettr.com/post/pytr3o80a4)
-6).[2022 #巴黎时装周 off-white向丰县 #锁链女 致敬— 剪断锁链 三八妇女节—— 祝世界所有女同胞都不沦为 锁链女](https://gettr.com/post/pyrse1a150)
-7). [Shanghai Yangpu street, International Women’s Day performance art 上海杨浦街头，国际妇女节行为艺术](https://gettr.com/post/pyunap8bb6)
+前美国参议员汤姆·达施勒（Tom Daschle）是一名新黑钱、左翼团体的董事会成员，该组织针对保守派选举诚信律师。这个新团体被美国政府标记为努力渗透美国政治，并在一个关键的共产主义影响团体的赞助下，前往中共国旅行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+一个名为“65工程”（65 Project）的新团体曾试图阻止右翼律师为选举诚信而斗争，也曾试图取消和恐吓在2020年选举期间为该问题而斗争的律师。除了这位来自南达科他州的前民主党参议院多数党领袖之外，克林顿的长期盟友、乔治·索罗斯资助的美国媒体事务创始人大卫·布洛克（David Brock）也在为“65工程”提供咨询。
 
-总编/编辑/审核: Irene木木
-校正/发稿：Fei797
+《国家脉动》可以透露，达施勒参加了由中美交流基金会（CUSEF）赞助的中共国之行，根据美国政府的说法，中美交流基金会是一项国家支持的宣传工作，旨在“影响外国政府和其他行为者采取支持北京首选政策的行动或立场”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+CUSEF作为中共国“统一战线”的一部分发挥作用，联邦政府认为这是中共国政府的秘密行动，“以收编和抹除潜在的反对其执政的政策和权力的来源。”美国国务院还将统战（United Front）比作中共国政权的“法宝”，通过渗透到美国政治、媒体和学术界来推进其首选政策。
 
+尽管有这些关系，达施尔还是加入了一个由总部设在华盛顿特区的美国进步中心（CAP）。它是一个由学者组成的、由CUSEF赞助的前往中共国的代表团。
 
+CAP 是一个在巴拉克·奥巴马总统领导下有很大影响力的智囊团，它[指出](https://www.americanprogress.org/article/the-next-phase/)它将“派遣一个杰出的专家和官员小组前往北京进行实况调查，与中共国政府的部长和高级官员会面”：“CAP总裁兼首席执行官约翰·波德斯塔（John Podesta）率领的代表团包括参议员托马斯·达施勒、温迪·谢尔曼大使、CAP负责国家安全和国际政策的高级副总裁鲁迪·德隆、SEIU主席安迪·斯特恩、麻省理工学院教授约翰·德奇、普利兹克房地产集团主席彭尼·普利兹克、洛杉矶市议会主席埃里克·加塞蒂、蓝色引擎信息和媒体总裁埃里克·史密斯，以及金融危机调查委员会成员拜伦·乔治乌。Fontheim国际有限公司总裁 Claude Fontheim 和 CAP 工作人员 Julian Wong、Sarah Miller 和 Winny Chen 也出席了会议，为这次旅行提供支持。”
+
+“代表团会见了官员，并与著名的中共国学者、商人、宗教领袖和政策顾问就美中关系的前沿问题，包括气候变化、经济和国家安全，进行了一系列深入的讨论，”一份摘要补充道。
+
+CUSEF 在其2009年的宣传手册中夸大了这次活动，描述了以“地缘政治合作”和“军事对军事合作”为重点的“讨论会”。
+
+而代表团团长约翰·波德斯塔强调，“两国现在必须表现出承诺和决心，为未来建立一个积极、合作和全面的中美关系。”
+
+达施勒在 CUSEF 宣传册上与商务部长陈德铭合影（如下图）。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-905.png)图片来源：thenationalpulse.com
+
+“65工程”咨询委员会成员与中共之间的联系被挖掘出来，中共寻求乔·拜登在2020年获得胜利，这让人对该组织争取选举完整性的动机产生疑问。
+
+新闻来源：[thenationalpulse.com] [U.S. Election Integrity Lawyers Are Being Targeted By aGroup Whose Leader Accepted a Chinese Communist Propaganda Junket.](https://thenationalpulse.com/2022/03/08/group-targeting-election-integrity-led-by-ccp-former-senator/) | 发布时间：2022年03月08日
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-6.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

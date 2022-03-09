@@ -2,47 +2,25 @@
 ---
 
 
-## 约克区警方正在进行的调查中查获了价值超过 21.5 万元的被盗奢侈品
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2133055/)
+## 美国会议员敦促同步制裁中共和俄罗斯
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2133121/)
 
-作者：Aileen Zangouei
-翻译: HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-97.png)
-日前万锦市华人区一家商店被偷，奢侈商品被盗。警方在调查过程中，逮捕了3名嫌犯，并查获了价值超过21万元的奢侈品和现金。
+采编撰稿：加拿大温哥华杨帆农场 – 重生之鹰
 
-3月3日，警方接到报案称，位于Hwy 7与Kennedy Road附近的一家商店发生盗窃案，价值2500元的香水被偷走。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_20220309-125618_Photos.jpg)图片来源：[breitbart.](https://www.breitbart.com/clips/2022/03/05/dem-rep-auchincloss-we-should-impose-secondary-sanctions-against-china-and-cut-off-russian-oil/)
 
-警方开始展开调查这起事件，并锁定了三名嫌疑人。第二天，警方开具搜查令，来到宾顿市一处民宅展开搜查。
 
-大批被盗财物在这次搜查中被查获，总价值超过21万5000元。被盗的奢侈品包括香水、服饰和时尚配件，例如市售价格在2500至5000元之间的Lady Dior迷你钱包、售价在1500至3500元的Prada迷你钱包、服饰、鞋子和墨镜等。警方还找到了大笔现金。
+据美国[布莱特巴特新闻]报道，众议员奥金克洛斯当天要求立即停止从俄罗斯进口石油，并同时对中共国实施更严厉制裁,以此削弱中俄联合扩张的势力。
 
-警方认为，这批赃物与近期在大多伦多的地区其他多处商家发生的盗窃案件有关。
+奥金克洛斯表示:目前俄罗斯军事入侵严重受阻，士气低落，必将引发俄军更猛烈的无差别攻击而导致的大量平民伤亡。因此，必须立即停止与俄的石油交易，以断绝其最重要的外汇资金来源；同时，对中共再次实施更强硬的制裁，以进一步孤立俄罗斯。此外，继续加强与波兰、立陶宛和罗马尼亚等乌克兰周边国家的合作，与北约一道为乌军提供军事装备。
 
-30岁的Christelle Pascall被控三项盗窃5000元以下财物罪名、持有犯罪所得物超过5000元、未能遵守法庭禁令罪。
+评论指出：乌克兰的卫国战争已演变为世界人民捍卫自由民主，反对独裁的正义行动。国际社会在全方位支持乌克兰同时，必须首先摧毁中俄邪恶轴心，才能尽快结束战争，还乌克兰和台湾人民和平的环境！
 
-31岁的Alijione Martin被控两项盗窃5000元以下财物、持有犯罪所得物超过5000元罪名。
+校对编辑：硫酸羟氯喹64
 
-5来自多伦多的58岁男子Catherine Wilson被控持有犯罪所得物超过5000元罪名。
+发稿：文明(添草灭共)
 
-此案仍在进一步调查中。
-
-警方呼吁目击者或其他受害者前来报案。
-
-来源：https://www.yorkregion.com/news-story/10585274-dior-prada-among-stolen-merchandise-worth-over-215k-seized-in-ongoing-york-regional-police-investigation/
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+原文链接： [https://www.breitbart.com/clips/2022/03/05/dem-rep-auchincloss-we-should-impose-secondary-sanctions-against-china-and-cut-off-russian-oil/](https://www.breitbart.com/clips/2022/03/05/dem-rep-auchincloss-we-should-impose-secondary-sanctions-against-china-and-cut-off-russian-oil/)
 
  
 

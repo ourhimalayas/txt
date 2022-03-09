@@ -2,26 +2,33 @@
 ---
 
 
-## 美国会议员敦促同步制裁中共和俄罗斯
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2133121/)
+## 中共赌场即将崩塌，3177点小散们最后的逃命线
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2133185/)
 
-采编撰稿：加拿大温哥华杨帆农场 – 重生之鹰
+作者:香草山农场商业部 – 文韬
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+中国股市经过前两个交易日的杀跌。今日上证盘中跌破3177点，深综盘中跌破2120点。虽尾盘收复失地，但长长的一根金针探底K线，意义深远。撑了两年之久的擀面杖子，终于疲软。结合当前风起云涌的国际局势，内忧外患的经济寒冬。围绕3177点左右的小幅震荡是小散韭菜们最后的逃命线。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-104.jpg)
+未来两天两会也将结束，盘口震荡归边，回抽确认时间不会太久。莫等窗口期过去，将万劫不复。 A股补跌行情已经是箭在弦上。俄乌开战以来，欧洲股市主要经济体跌幅均在30%左右。欧洲市场俄概股更是市值跌到基本归零。俄国内证券市场更是直接闭市禁止交易。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_20220309-125618_Photos.jpg)图片来源：[breitbart.](https://www.breitbart.com/clips/2022/03/05/dem-rep-auchincloss-we-should-impose-secondary-sanctions-against-china-and-cut-off-russian-oil/)
+香港市场作为中共最前沿的金融堡垒阵地。前两个交易日就已经率先破位，跌回2016年水平。已经形成的顶部大反转形态技术分析会跌回1万点大关。这就是曾经亚洲金融中心被中共荼毒戕害的结果。
 
+地产的崩溃，两会的结束，面子工程已经不是问题。多米诺骨牌已经开始，小散们且行且珍惜。
 
-据美国[布莱特巴特新闻]报道，众议员奥金克洛斯当天要求立即停止从俄罗斯进口石油，并同时对中共国实施更严厉制裁,以此削弱中俄联合扩张的势力。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-50.png)
 
-奥金克洛斯表示:目前俄罗斯军事入侵严重受阻，士气低落，必将引发俄军更猛烈的无差别攻击而导致的大量平民伤亡。因此，必须立即停止与俄的石油交易，以断绝其最重要的外汇资金来源；同时，对中共再次实施更强硬的制裁，以进一步孤立俄罗斯。此外，继续加强与波兰、立陶宛和罗马尼亚等乌克兰周边国家的合作，与北约一道为乌军提供军事装备。
+**校对/发稿：**Fei797
 
-评论指出：乌克兰的卫国战争已演变为世界人民捍卫自由民主，反对独裁的正义行动。国际社会在全方位支持乌克兰同时，必须首先摧毁中俄邪恶轴心，才能尽快结束战争，还乌克兰和台湾人民和平的环境！
+**更多资讯，更多关注**
 
-校对编辑：硫酸羟氯喹64
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-发稿：文明(添草灭共)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-原文链接： [https://www.breitbart.com/clips/2022/03/05/dem-rep-auchincloss-we-should-impose-secondary-sanctions-against-china-and-cut-off-russian-oil/](https://www.breitbart.com/clips/2022/03/05/dem-rep-auchincloss-we-should-impose-secondary-sanctions-against-china-and-cut-off-russian-oil/)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
