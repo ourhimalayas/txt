@@ -2,10 +2,10 @@
 ---
 
 
-## 自由言论的社交媒体比任何坦克炸弹更能阻止战争恶化
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2130073/)
+## 前俄罗斯新闻主播谈俄罗斯的言论审查
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2130074/)
 
-作者：纽约磐石农场 – 在远方
+作者：银河系农场 – 骄子
 
 
 
@@ -13,20 +13,21 @@
 
 
 
-外媒3月5日报道，GETTR首席执行官杰森·米勒在接受采访时表示，他坚信，在战争期间，一个个性化、去中心化、没有“删除文化”的社交媒体，比任何的炸弹、坦克都具备更强大的力量。正如军事家或历史学家能够预测两军交战时，双方可调配的部队、导弹、飞机等战斗力，却永远无法预测公众的反应。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-3.jpg)
-米勒指出，如果说伊拉克战争是一场在新闻电视上上演的24小时战争，那么俄罗斯对乌克兰的无端袭击就已经成为第一场在社交媒体上实况战争，俄罗斯试图打信息战，来营造无坚不摧的战斗力，却在一条条俄军士兵向母亲哭泣的视像面前不攻自破。
+外媒3月7日消息，前俄罗斯国家电视台新闻女主播安娜·库尔金说，居住在俄罗斯的人如果被认为反对政府，便会遭受极端的困境。 库尔金来自俄罗斯，十年前定居到美国西雅图。促使她离开俄罗斯的原因就是俄罗斯当局对言论的审查。
 
-从乌克兰人给投降的俄罗斯士兵喂食到乌克兰军队在顿巴斯跳舞，全球数十亿观众与战争现场的人们，通过社交平台共享这些视频影像，随时了解前线真相以及开源情报，仅过去一周，Gettr的注册用户就增长了50%。因此，米勒认为，社交媒体已经成为处理地缘政治事务的核心。因此，也许社交媒体强大的柔性力量，比任何尖端武器更能阻止战争恶化。
+而现在，随着俄罗斯对乌克兰的入侵，俄罗斯政府变本加厉，不仅相继禁止了各大社交媒体平台，对其他媒体的言论审查也更为严格，很多媒体被迫关闭。普京还签署了一项法律，来威胁那些反对俄罗斯入侵乌克兰的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-5.jpg)
+库尔金曾在俄罗斯的国家电视台工作了15年之多，她说，当人们说出俄罗斯当局的某些真相时，可能会面临长达15年的监禁。
+
+俄罗斯有很多记者都因为说真话受到审查、监禁，甚至杀害。在言论审查和的高压之下，人们活得就像一个机器，终日忙碌却一生毫无所成，被圈在贷款中无法自拔。安娜·库尔金为自己曾经的国家入侵乌克兰感到心碎，并为那些同样反对战争的俄罗斯人感到担忧，她清楚俄当局会对他们造成的迫害。
 
 参考链接：
-1. [#ICYMI – GETTR’s @JasonMillerinDC : ‘Social media will do more to dissuade warfare than any tanks or bombs’](https://gettr.com/post/pyoscm1d9e)
-2. [Donald Trump’s former aide: social media will do dissuade warfare](https://www.telegraph.co.uk/news/2022/03/05/donald-trumps-former-aide-social-media-will-do-dissuade-warfare)
+[Former Russian news anchor living in Seattle discusses ongoing censorship](https://www.king5.com/article/news/local/seattle/former-russian-news-anchor-russia-censorship/281-85a323ab-c234-4184-9eac-6975bde74fc2)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-审核：飞虹
-总编/编辑：天滅中共
+总编：天滅中共
+编辑/审核：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

@@ -2,40 +2,41 @@
 ---
 
 
-## 拜登政府向数百家媒体支付款项用来推广中共病毒疫苗
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2131782/)
+## 【每日聚焦】俄乌战事3月9日简要
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2131836/)
 
-作者: 银河系农场—骄子
+**撰稿：蓝莲花农场 文斌**
 
+1、俄罗斯部队继续在基辅东部、西北部和西部郊区集结，以便在未来几天对基辅发起攻击。据报道，属于车臣领导人拉马赞-卡德罗夫的部队、俄罗斯的Rosgvardia内务安全部队以及Liga（前瓦格纳）私人军事公司在基辅西郊的出现可能表明，俄罗斯军队正在努力集结足够的地面作战力量，以便向基辅发起进攻。基辅附近的俄军取得的成果有限，但是还在继续尝试对基辅西部进行包围。基辅西部的伊尔平地区和东部的布罗瓦里地区是重点。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
-据外媒报道，美国卫生与公众服务部（United States Department of Health and Human Services，缩写：HHS）向数百家美国媒体公司支付款项用来推广中共病毒疫苗的广告。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-8.50.58-PM.png)图片来源: 网络
-美国政府机构HHS从ABC、CBS、NBC、FOX NEWS、CNN等多家主流媒体购买广告，主要方式为投放文章和视频片段，这些内容全部对中共病毒疫苗持有积极的态度，更夸张的是纳税人资金并未披露。据悉该笔资金来自2021年度纳税人资助的10亿美元联邦竞选资金，旨在增强美国人对中共病毒疫苗的信心。
+2、切尔尼科夫：乌军继续打击俄军补给线，标枪反坦克导弹显示威力，有视频显示打击俄罗斯坦克的效果。
 
-另外这些主流媒体还对那些对中共病毒来自武汉实验室，以及对中共病毒疫苗持怀疑态度的看法进行打击，反过来指责他们传播错误信息。
+3、苏梅地区：继续遭受空袭，南部城市Lebedyn（列宾）由于俄军空袭两座住宅被毁，国民防卫部门从废墟中救出5人。
 
-目前HHS尚未披露具体每个媒体的费用。
+4、苏梅方向：乌军继续骚扰从苏梅通往基辅东部的漫长俄军的地面补给线。乌克兰总参谋部在3月8日报告说，目前在切尔尼戈夫附近的俄罗斯部队似乎正在向东移动，估计这些部队可能会寻求与来自苏梅附近的部队会合，以帮助他们巩固和保护其延伸的战线，支持计划中的对基辅的进攻。
 
-新闻来源: [https://www.lifesitenews.com/news/report-biden-admin-gave-taxpayer-dollars-to-legacy-media-outlets-to-promote-covid-jabs/](https://www.lifesitenews.com/news/report-biden-admin-gave-taxpayer-dollars-to-legacy-media-outlets-to-promote-covid-jabs/)
+5、哈尔科夫：根据一段视频显示，一名俄军被俘士兵说他被派往乌克兰是去攻占哈尔科夫，封锁所有通往城市的主要道路。他们还得到命令，”向任何抵抗开火”。哈尔科夫附近的俄罗斯部队在过去几天里一直在稳步转移，以确保补给线的安全。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
+6、顿巴斯地区：俄罗斯军队用迫击炮轰击Novoluhans’ke（新卢汉斯） ，暂无人员伤亡报道。
 
+7、在过去24小时内，乌克兰东部和乌克兰西南部的局势基本没有变化。乌克兰总参谋部报告说，俄罗斯进一步努力向扎波罗热市推进，这可能证实俄罗斯打算把封锁该城市作为优先事项。但是，俄军向扎波罗热推进的部队似乎太小，不足以包围或占领该城。
 
+8、俄军黑海舰队的一艘护卫舰在Odesa外海被击沉。
 
-编辑/校对/发稿: 卡夫卡的甲壳虫
+9、第一副内政部长叶夫亨·叶宁 3 月 9 日表示，如果外国志愿者愿意，他们将能够获得乌克兰公民身份。自3月6日以来，已有2万名外国志愿者加入乌克兰军队与俄罗斯作战。
 
-**更多资讯，更多关注**
+10、人道救援方面：乌克兰期待在3月9日实现临时停火，从10个城市疏散平民。路线包括从Enerhodar和Mariupol到Zaporizhzhia，从Sumy到Poltava，从Izium到Lozova，从Volnovakha到Pokrovsk，从Vorzel, Borodianka, Bucha, Irpin, Hostomel到Kyiv；并且从Vorzel、Borodyanka、Bucha、Irpin和Gostomel疏散的大巴已经到位。
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+11、泽连斯基：战机从波兰转移到乌克兰问题亟待解决，他表示将继续保卫乌克兰的国土，并再次要求为乌克兰提供军机；同时白宫官员表示，美国副总统卡马拉-哈里斯将于周三前往波兰，讨论如何为乌克兰提供 “军事援助”，几个小时前，华盛顿拒绝了华沙提出的提供苏联时代的战斗机的请求。
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+12、乌克兰能源公司：切尔诺贝利核电站和Slavutich镇因俄军行动而完全停电。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+校对：文斌/发布：一叶知秋
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

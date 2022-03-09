@@ -2,37 +2,31 @@
 ---
 
 
-## 河北一酒店向中共当地政府讨要被拖欠的隔离费
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2131698/)
+## 切尔诺贝利核电站被断电
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2131755/)
 
-**撰稿：日本东京方舟农场 北极**
+作者：香草山健身部—正道新闻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+【新闻链接】[https://twitter.com/dmytrokuleba/status/1501531656204783620?s=21](https://twitter.com/dmytrokuleba/status/1501531656204783620?s=21)
+3月9日，乌克兰外交部长库莱巴发推表示，切尔诺贝利核电站的整条供电线路及其由俄军控制的所有核设施均遭到破坏。
 
-据大纪元报道3月8日报道，近日，网络上的一段视频曝光了河北一家酒店向中共当地政府讨要拖欠的隔离费，引起了网民热议。
+切尔诺贝利已断电。我敦促整个国际社会紧急要求俄罗斯停火，并允许维修人员尽快恢复电力供应。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/392.png)2022年3月4日，河北省石家庄市元龙国际酒店向当地政府部门讨要说法。（图片来自大纪元）
-
-该视频显示，3月4日，河北省石家庄市元龙国际酒店负责人刘女士，向当地政府部门讨要被拖欠的隔离费。该酒店曾被政府作为隔离酒店征用，但是这些隔离人员的隔离费用，全都是直接划到政府账户上，而所有隔离人员的费用均由酒店先行承担，酒店方表示快支撑不住了。
-
-据知情人士透露，当地政府部门每年仅与该酒店结一次帐。这种状况本来就搞得当事酒店的经营难以为继，但到了去政府部门结账的时候，又会遭遇各种推诿，使得酒店经营者陷入绝望。
-
-有网民表示：“回家需隔离的必须到政府指定的酒店，平时一百多点的房间现在都五百了，全部自费，翻了多少倍啊！”
-
-还有网民说：“政府一刀两割，既割酒店又割被隔离人员，无本万利呀。”
-
-更有网民一语道破，“政府这是借疫情敛财呀。”
-
-参考链接：
+这些备用柴油发电机仅够为核电站及其设施提供48小时的电力。然后将导致关闭乏核燃料储存的冷却系统，这将威胁到核辐射的泄漏。俄罗斯的野蛮战争威胁着整个欧洲。普京必须立即制止这种情况！
 
 
 
-> [巨额隔离费归了政府，隔离酒店开始了漫长的讨债之路](https://gnews.org/zh-hans/2125822/)
+审核/编辑/发稿:qiutian（邱甜）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-
-撰稿：北极
-总编：老孙
-校对发布：Linda
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
