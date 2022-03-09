@@ -2,47 +2,24 @@
 ---
 
 
-## 爱马仕、香奈儿等世界知名奢侈品牌宣布暂时关闭在俄业务
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2129952/)
+## 联俄两线开火各取所需 中共加速全球自动灭共进程（八）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2130065/)
 
-作者：首尔天池农场 – zzballack
+撰稿：东京樱花团/深藏不露
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-11.png)
+2022年3月7日，中共习近平出席军队人大代表团全体会议，做武力攻台前的总动员，为攻打台湾做最后的准备！
 
+习近平说,要全面把握依法治军战略，要坚持党对军队绝对领导，坚持抓住领导干部这个`关键少数´”“中央和国家机关、地方各级党委和政府要强化国防意识，依法保障好军事行动和军人合法权益。习近平最后说，“全军要抓紧抓实备战打仗工作，协助地方做好维护社会大局稳定工作，及时有效处置各种突发情况，保持国家安全稳定”。
 
+现在，疯狂的习近平不再做丝毫的掩饰，号令全军准备武力攻台。对国内反战者、“闹事者”做好“维稳”工作，该抓的抓、该杀的杀！俄乌胶着的战事使中共习近平一定会吸取俄罗斯的教训，会快战，会狂轰乱炸军事基地和政府机关，迅速斩首蔡英文！但是，只要台湾能撑过3个小时就赢了，因为台湾对于美日印澳的战略意义远远大于乌克兰，关乎到美日印澳的切身利益，美日澳联军一定会毫不犹豫的全上，台湾的士兵也一定会全力背水一战，那时中共必将毁于台海之战！ 俄罗斯超出意外的陷入了乌克兰战争泥潭之中，使习近平万万没想到神一样的俄罗斯普京被打回了原形！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+现在，世界各国的先进军援正源源不断的运送到乌克兰，各国的志愿军已经部分到位。2月26日欧美更是联合声明承诺确保选定的俄罗斯银行从SWIFT 消息系统中删除，将会俄罗斯对外出口贸易额产生巨大而严重经济损失。屋漏偏逢连夜雨，3月8日美国、英国更是宣布禁止进口俄罗斯石油，让财政主要依赖能源出口的俄罗斯更是一夜回到解放前。打仗实际上是打的钱粮、是经济，没有了钱粮的支撑俄罗斯普京必将兵败滑铁卢！
 
+得道多助 失道寡助！再次奉劝中共“战略家”习近平立即放弃攻打台湾，解体邪恶的中共政权，抛弃中国人民的宿敌俄罗斯，开启与美国重回友好的通道，真真正正给中国人民一人一票的选举的权力！
 
-
-据外媒3月6日的报道，爱马仕、路易·威登、卡地亚 、香奈儿以及古驰等全球知名的奢侈时尚品牌宣布，由于对欧洲目前的局势越来越担心，他们将暂停在俄罗斯的所有业务，立即生效。
-
-柏金包的制造商爱马仕和拥有卡地亚的历峰集团，是第一批宣布关闭在俄商店的时尚品牌母公司，路威酩轩集团、开云 和香奈儿随后也关闭了商店。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-3.jpg)
-香奈儿公司在媒体上发帖指出，鉴于对目前的局势越来越担心，因此决定暂时停止在俄罗斯的业务。
-
-LMVH也证实，他们在俄罗斯的124家门店将全部关闭，但他将继续支付在该国的3500名员工的工资。 开云、LMVH和世界领先的美容公司之一欧莱雅都承诺提供财政支持，帮助乌克兰难民。
-
-参考链接：
-[Luxury Fashion Brands Hermès, Chanel, Louis Vuitton, and Gucci… Temporarily Close Business Operations in Russia](https://www.thegatewaypundit.com/2022/03/luxury-fashion-brands-hermes-chanel-louis-vuitton-gucci-temporarily-close-business-operations-russia/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

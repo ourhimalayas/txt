@@ -2,57 +2,59 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“孟建柱”（十六）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2129720/)
+## 大数据显示：疫苗的毒性依制造批次而有显著的差异
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2129989/)
 
-#### 整理：小儿
-编辑：小红帽
+作者：香草山信息部–我不在这里
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国自核准给老百姓接种中共病毒疫苗，至今已经一年多了。美国的疫苗不良事件报告系统（VAERS），也因此累积了长期并且巨大的数据库，足以让科学家们应用用统计学的专业角度，来客观的评估结果。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-1.png)图片来源：雅典娜设计组（614）
+在欧美有几个独立的个人或团队，下载了VARS所提供的数据，他们都不约而同的发现，每一个“批次”的疫苗，对人体的“杀伤力”有明显的差异。他们发现其中有 5% 的“批次”编号不同的疫苗，是造成90%疫苗不良反应或死亡的罪魁祸首。
+
+其中的一个德国的调查团队甚至认为：“这批数据显示了，疫苗制造商正在更大的公共试验中，进行秘密实验。他们似乎实际上就是在对公众进行致命剂量的测试”。
+
+郭文贵先生曾多次的表示，在中国大陆，共产党有计划性的，给不同的省份的百姓及共产党官员，施打毒性强度不同的疫苗。无独有偶的，我们看见此黑暗势力，同时也在张牙舞爪的侵害和欺诈西方国家的人民。不过却又很遗憾的，西方国家的百姓已经开始意识到VARS数据所代表的血腥事实，这个事实与政府和媒体所宣传的疫苗好处是相抵触的。
+
+最后让我们也一起来阅览 VARS 最新一期，针对疫苗副作用所做出的数据图表。对读者您而言，它所显示的真相又是什么呢？
+
+表1: 按目前制造商划分的批号分布情况，相對應于前一期所累計的數據。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_2-2.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-6.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-7.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_2-3.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_3-1.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_4.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_5.png)
+
+参考链接：
+
+1. [Hot Lots Update for Covid-19 Jabs part I](https://vaersanalysis.info/2022/01/15/hot-lots-update-for-covid-19-jabs-data-through-1-7-22/)
+2. [Hot Lots Update for Covid-19 Jabs part II](https://vaersanalysis.info/2022/01/16/hot-lots-update-for-covid-19-jabs-data-through-1-7-22-part-ii/)
+3. [Reiner Fuellmich:”New Findings… Enough to Dismantle the Entire (VAX) Industry!”](https://thereisnopandemic.net/2022/01/03/reiner-fuellmich-new-findings-enough-to-dismantle-the-entire-vax-industry/)
+4. [BREAKING: Deadly Vax Lot Numbers IDENTIFIED, Still in Circulation!](https://thereisnopandemic.net/2022/01/05/breaking-deadly-vax-lot-numbers-identified-still-in-circulation/)
+5. [How Bad is My Batch](https://www.howbadismybatch.com)
+6. [TheEagle’s VAERS Dashboard](https://public.tableau.com/app/profile/alberto.benavidez/viz/WelcomeTheEaglesVAERSDashboard/ByLotLookup)
+7. [“How Bad is my Batch”](https://rwmalonemd.substack.com/p/how-bad-is-my-batch)
 
 
-**郭文贵2017年6月30日第二次直播（续）**
+审核/编辑/发稿:qiutian（邱甜）
 
-老领导说，泛亚，易租宝，退伍老兵，709律师，刘晓波的呼吁，他认为是正确的。他说，中国再想自己闭门发展是不可能的，在国际上共同合作发展是唯一之路。这些事情的发生，有国家利益的考量，但是绝大多数都是私心。特别是他认为我对老兵的呼吁是非常对的。作为一个军队领导，他说，军人，现役军人关注文贵的太多了。很多现役军人和退役军人和我联系，我说出了心声。他们知道郭文贵不是为了一己之私这样做的，我没这个必要，我也没有这个可能去说这个事情去掺和这事去。他说，我是公心。而且，老领导认为，易租宝，泛亚的钱查清楚，对这个社会的稳定很重要。他认为这件事太明目张胆地骗老百姓而且把这个法制化。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-老领导也知道一些真相，包括现在政法委孟建柱书记，傅政华和王岐山书记之间的勾结。接下来一定是习近平主席，一定是新一代的党中央，不管谁是常委，他们一定会用家庭，私人生活作为要挟，控制他们。同时他们制造了一个个的社会隐患和国际隐患，随时都可能爆发。所以老领导说，如果十九大还按照他们的思路去发展，这个7月的北戴河还按照他们的思路去发展，一定会有人上街，一定会有人造反。
-
-我有下一步计划，如果十九大还是这样开，北戴河还是这样开，你放心，文贵的爆料一定会一剑封喉。我让全世界看看他们有多么地丑陋。我现在因为要坚持郭七条，不反国家，不反民主，不反习主席。再说了，我得维护习主席的尊严和他的安全；国家的尊严和安全；民族的尊严和安全，所以我尽可能跟这方面走远点。
-
-我的诉求很简单，就是惩处这些判国贼和盗国贼们，让这盗国贼不要形成判国贼，否者我们就要发生一场革命。你们这些人说，什么郭文贵啪啪啪了。郭文贵是流氓，道德骗子。他没钱了。这跟你盗国，贪腐有得比吗？有关系吗？现在你们所有推友们，你们就把郭文贵当成最流氓的人，天天做新郎，我就是骗子，我没钱，我就是个草根，狗屁不是。你们就这么看我。他们说我啥，你就当我啥就行了。别关心郭文贵是什么人。你们看看我爆的料是真是假。这就是老领导说的，真正有意见的不在乎你郭文贵是什么人，是在乎你说的事是真是假。你说他去杀人了，他说你脸上有个鼻屎；你说他强奸了，他说你裤子拉链没拉上。就是什么呢？夏教授，你说他连痔疮都不是，还有张艺凡。你为啥不去质问王岐山，海航和孟建柱，是谁把刘小光弄这样的？是谁把雷洋弄死的？是谁把709律师抓起来的？是谁把易租宝和泛亚骗成这样子的？你不去质问，你跟我要证据链，你算老几啊？
-
-还有，现在很多人都在问我。文贵，现在这个，他说，你看看，你举报那么多事情，无一个被抓，被调查。我说，你说错了，我绝不希望十九大前任何人被抓，被调查。如果有人被抓，被调查，那就输了，因为他们杀一，然后救一万。杀一救一亿。我们不能让他杀一救一万，救一百万，然后抛出一卒子救了全盘。那是不可以的。我要的事情是全民审判，我要的是全党审判，绝不能让周永康，令计划这个事情，薄熙来的事情重演黑箱作业。绝不能让以警治国，以贪反贪发生在我的爆料事情中。我们的所有推友，所有的海内外的积极人士和国内的十四亿同胞们，必须参与到未来这个审判中，必须知道到底王岐山家里有多少钱，都玩了多少女人；孟建柱书记有多少情人，多少私生子女，玩了多少女人。孟建柱的太太在美国治病期间是谁陪着的？都干了啥。这个碧桂园绿城是谁的？海外的现金是谁的？资产是谁的？这些情人是谁的？这些DNA和你有没有关系？那一定要公审的。为啥我说一百二十天呢？十九大的时候一定会给大家一个交代。然后，十九大以后，拉开了我们在国际上和国内对盗国贼审判的序幕，这是为什么我说要三年，绝对也不会允许接受你们暗箱操作假直播假审判。我们要真正地像这个老领导和我说的那样。
-
-薄熙来把人家哥仨俩关了一个，然后杀了放在冰箱里放好几年。像老领导说的这个令计划，选好了这个国航的凤凰飞总书记，凤凰组的这个女孩们，就拉回去给睡了。（令计划）经常把女孩放在大会堂。在大会前，他有让女孩帮他口交的习惯。然后，就像老领导说的，今天这个局面那全都是江总书记控制的，习主席控制的。而且在十八大前力挽狂澜，和历届领导人都桌子底下的承诺和交易，决定下一届十九大由谁来干。那么十九大之后这个国家和民族，现在谁来控制，谁来干？那不能说你们几个上来把这个国家十几亿人民命运就决定了吧？分了全国人民利益，然后将我们的未来置于你们之手，让你们说了算。那你先把这几个盗国贼审判了。王岐山书记，孟建柱书记，傅政华，必须要公开审判。你看看文贵能不能让你接受审判。你要把郭文贵给杀了，你来这开两枪，你在全世界面前开两枪。你对我越动手，我越感谢你们。我现在就是把炮火都打到我这儿来，让全世界人都关注关注我，我就想当烈士。
-
-你录那啪啪啪那有啥用啊？那能把我能怎么着？你说你整点邪恶的，我吸毒啊，犯罪啊，杀人啊，你搞点这个。郭文贵走这条路能在乎你们这样的盗国贼们？你们真是愚蠢至极！你看公开审判之日，把你们的录像公开之时；你们的私生子女公开之时；你和范冰冰小姐怎么玩人家？人家怎么羞辱你王岐山？人家怎么骂你？许晴怎么骂你？怎么骂你鬼子六？人家的前夫在日本躲着不敢回去，都快疯了。怎么说你王岐山先生？怎么说你在海外弄钱？怎么说不让人家回国？现在你在全党还管什么党的，瞪眼说瞎话。
-
-往期回顾：
-[文•贵天成——文贵先生谈“孟建柱”（一）](https://gnews.org/zh-hans/2050956/)
-[文•贵天成——文贵先生谈“孟建柱”（二）](https://gnews.org/zh-hans/2050401/)
-[文•贵天成——文贵先生谈“孟建柱”（三）](https://gnews.org/zh-hans/2050410/)
-[文•贵天成——文贵先生谈“孟建柱”（四）](https://gnews.org/zh-hans/2050392/)
-[文·贵天成——文贵先生谈“孟建柱”（五）](https://gnews.org/zh-hans/2050653/)
-[文•贵天成——文贵先生谈“孟建柱”（六）](https://gnews.org/zh-hans/2069519/)
-[文•贵天成——文贵先生谈“孟建柱”（七）](https://gnews.org/zh-hans/2069991/)
-[文贵天成——-文贵先生谈“孟建柱”（八）](https://gnews.org/zh-hans/2074302/)
-[文贵天成——-文贵先生谈“孟建柱”（九）](https://gnews.org/zh-hans/2074376/)
-[文贵天成——文贵先生谈“孟建柱”（十）](https://gnews.org/zh-hans/2074418/)
-[文贵天成——文贵先生谈“孟建柱”（十一）](https://gnews.org/zh-hans/2102984/)
-[文贵天成——文贵先生谈“孟建柱”（十二）](https://gnews.org/zh-hans/2103185/)
-[文贵天成——文贵先生谈“孟建柱”（十三）](https://gnews.org/zh-hans/2103229/)
-[文•贵天成——文贵先生谈“孟建柱”（十四）](https://gnews.org/zh-hans/2103512/)
-[文•贵天成——文贵先生谈“孟建柱”（十五）](https://gnews.org/zh-hans/2108151/)
-
-*发布：*Frank2021
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,25 @@
 ---
 
 
-## 乌克兰难民为点滴之恩感谢战友
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2129107/)
+## 中共阻挠法治基金乌克兰人道救援行动
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2129582/)
 
-**作者：**加州建房哥
-**编辑：**Candy
+作者：加拿大温哥华扬帆农场 – 晨熹
 
-***3月8日，来自前线波兰在救援乌克兰难民的战友的消息：
-波兰当地已是半夜时分，来自乌克兰的难民们在寒冷的室外与我们的战友有一个短暂的接触：***
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a-8-edited.jpg)图片来源：盖特
 
-这位先生是意大利人，旁边搬椅子的是他的高个子乌克兰媳妇。从乌克兰过来的，这边干冷有风，他问我们可不可以进帐篷里。我们帐篷就是为他们搭建的，当然可以啦！一个帐篷避风之恩，临别时和我们的人拥抱致谢。
 
-真可谓患难之中见真情，作为有良知的人会感恩点点滴滴。
+据3月8日文贵先生盖特消息，本次法治基金组织的乌克兰人道救援行动中使用的紧急救援邮箱突然被GODADDY公司关停，并因此阻碍了救援行动的顺利进行。据悉，目前的联系方式已经更新，并新增了Telegram和Gettr等多种联系渠道。
 
-*发布：Candy*
+消息称，中共在近日不仅黑客掉文贵先生和多名前线救援战友的互联网设备，还胁迫YouTube暂停其上传视频的账号，并同时以非法手段冻结了用于本次救援的付费邮箱和域名。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+这一系列流氓手段的操作，不仅验证了中共政权的下作和邪恶，而且也鲜明体现出法治基金本次救援行动所产生的巨大国际影响力，更看到中共对日渐崛起的人类正义力量——新中国联邦的深深恐惧。
+
+* * *
+
+撰稿：晨熹， 校对编辑，发稿：硫酸羟氯喹64
+
+新闻来源：[https://gettr.com/streaming/pywfu457e9](https://gettr.com/streaming/pywfu457e9)
 
  
 

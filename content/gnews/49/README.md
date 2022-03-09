@@ -2,80 +2,26 @@
 ---
 
 
-## 参议员卢比奥： 正在制定法规对中共国实施制裁,一旦发现中共用他们的CIPS系统来帮助俄罗斯绕过SWIFT制裁的话
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2123914/)
+## 樱花FM|俄军阵亡将士抚恤金720元人民币 乌方高额赏金劝降
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2125272/)
 
-参议员马可·卢比奥： 我正在制定法规。如果我们发现中共国试图使用他们的跨境国际支付系统 (CIPS) 来帮助 俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 绕过 SWIFT 制裁，本法规将对 中共国 [#China](https://twitter.com/hashtag/China?src=hashtag_click) 实施制裁 【转报道：中共国的支付系统能否成为俄罗斯的SWIFT解决方案？】
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/H3Ro0hm8EJW7IAWVQdkuq18kzA-55oBQ17YZyO2mZGuZHpxptVxpoCY4hPeWvwrGFf7awzRHEo5eilA1mRLRV0pIdi4dqTQe-n3iUjpT3l6pbidOigczfzo9i4akg4iC_odvgBdS)
+据台湾自由时报报道，俄罗斯总统普京24日派兵入侵乌克兰，至今已迈入第7天，乌方宣称俄军死伤惨重，俄方昨（2/28）也首度坦承有官兵伤亡，但未透露确切人数。一名前乌克兰官员今天（3/1）透露俄军士兵万一阵亡家属能拿到的抚恤金金额，少到让网友直呼“该投降了！”
 
+前乌克兰官员萨姆利尼（Sergej Sumlenny）周二在推特转发俄罗斯电视台发布的消息，称俄罗斯大兵若出征阵亡，政府会给每人抚恤金1万1000卢布（约人民币720元，新台币3200元），少得可怜。反观乌克兰国防部长列兹尼科夫（Oleksii Reznikov）今晨透过脸书招降，向俄军心里战喊话“若投降就给500万卢布（约人民币24.7万，新台币145万元），且不追究罪责”，“待遇”高下立判。
 
+国外网友纷纷表示“原来士兵性命在普京眼里这么不值钱”、“我是俄国军人就叛逃了，死掉才领这些钱…”。这则消息在台湾的PTT 也引发热议，“不如直接投降，乌克兰给500万耶”、“秒选乌克兰，不用丧命钱还比较多”、“投降划算多了。”
 
-> I am working on legislation that would impose sanctions on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) if we catch trying to use their Cross-Border International Payments System (CIPS) to help [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) get around SWIFT sanctions
-> 
->  [https://t.co/SWFg8pr7Vp](https://t.co/SWFg8pr7Vp)
-> — Marco Rubio (@marcorubio) [March 8, 2022](https://twitter.com/marcorubio/status/1501028230718967817?ref_src=twsrc%5Etfw)
+自俄罗斯入侵乌克兰以来，俄罗斯受到世界各国以及国际组织一系列经济制裁，俄国内出现了普通民众彻夜在取款机前排队提款，俄罗斯不少主销进口商品的商户因为近期卢布巨幅贬值，只能暂时关闭商店，以待卢布回稳减少损失，俄罗斯股市更是一落千丈，俄罗斯股市不得不关闭休市。再结合，俄军将士在前线为国拼杀，却落得阵亡抚恤金仅720人民币的下场，
 
+普京不仅对普通民众的生计不屑一顾，而且普通士兵生命更是不值一提。古人语“匹夫一怒血溅五步，天子一怒流血漂橹。”俄罗斯这个国家的所有人已经成为满足国家独裁者欲望的工具。不幸的是，在CCP邪恶统治下中共国必将重蹈覆辙，步俄罗斯后尘，墙内民众必须觉醒，及时看清世界大势，跟随新中国联邦，才能趋利避害保全自己。
 
+文字版原文：[俄军阵亡将士抚恤金720元人民币 乌方高额赏金劝降](https://gnews.org/zh-hans/2093884/)
 
-参议员汤姆.科顿： 两党都犯了这一代人最严重的错误之一是：给予共产主义中国永久最惠国待遇、并让其加入世界贸易组织。
-
-
-
-> Both parties are complicit in one of the single worst mistakes of this generation: granting Communist China Permanent Most Favored Nation status and admitting it into the World Trade Organization.
-> — Tom Cotton (@SenTomCotton) [March 8, 2022](https://twitter.com/SenTomCotton/status/1501023399174365185?ref_src=twsrc%5Etfw)
-
-
-
-众议员马乔丽·泰勒·格林： 民主党人不在乎汽油价格有多高，因为他们希望美国人放弃并购买电动汽车。 那么美国人想开车就要依赖 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)，因为 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 以超过85%的比例在电动汽车电池市场上占据主导地位，而美国则不到5%。 民主党(实践的)是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 优先。
-
-
-
-> Democrats don’t care how high gas prices go because they want Americans to give up and buy electric vehicles.
-> 
-> Then Americans will rely on China to drive because China dominates the EV battery market at over 85%, and America is less than 5%.
-> 
-> Democrats are China First.
-> — Rep. Marjorie Taylor Greene (@RepMTG) [March 8, 2022](https://twitter.com/RepMTG/status/1501003963285622787?ref_src=twsrc%5Etfw)
-
-
-
-美前国务卿迈克·蓬佩奥： 认为我们会允许俄罗斯人参与与伊朗人的协议谈判，或者美国会取消对伊朗人的恐怖指控，这完全是疯了。伊朗人正试图在世界各地杀人。 但拜登政府正在同时做这两件事。
-
-
-
-> It’s completely nutty to think that we would allow the Russians to participate in negotiating a deal with the Iranians or that the U.S. would lift the terror designations on the Iranians, who are trying to kill people all across the world. 
-> 
-> But the Biden Admin is doing both. [pic.twitter.com/W9SmYpUdHr](https://t.co/W9SmYpUdHr)
-> — Mike Pompeo (@mikepompeo) [March 7, 2022](https://twitter.com/mikepompeo/status/1500962806576861184?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥： 普京会毫不犹豫地在乌克兰上演生物武器假戏码，这是你会看到的那种信息舆论作为他这样做的前奏。 【转ASB军事新闻推文：大意是俄国公布文件说乌克兰在靠近俄边境研究违反联合国1号文件的生物武器，他们是由美国资助的，在五角大楼指导下已被摧毁】
-
-
-
-> [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) would not hesitate to stage or carry out a biological weapon false flag in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) and this is the kind of messaging you would see as a prelude to him doing that [pic.twitter.com/a8OpRu7hyF](https://t.co/a8OpRu7hyF)
-> — Marco Rubio (@marcorubio) [March 7, 2022](https://twitter.com/marcorubio/status/1500940810455502861?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 被全球支付网络隔绝的俄罗斯银行正在转向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的国有银行系统。
-
-
-
-> Russian banks cut off from global payment networks are turning to China’s state-run banking system.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 7, 2022](https://twitter.com/MarshaBlackburn/status/1500933383521812491?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿蓬佩奥： 台湾人民从一开始就已经意识到了中国共产党的威胁。世界从台湾人民对中共极度现实的不信任中得到启发。
-
-
-
-> The Taiwanese people have been awake to the Chinese Communist Party’s threat from the beginning. The world drew inspiration from the Taiwanese people’s profound and realistic distrust of the CCP.
-> — Mike Pompeo (@mikepompeo) [March 7, 2022](https://twitter.com/mikepompeo/status/1500890828054712330?ref_src=twsrc%5Etfw)
-
-
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

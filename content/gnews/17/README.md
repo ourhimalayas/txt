@@ -2,49 +2,28 @@
 ---
 
 
-## 普京时代已经结束 中共将会迅速攻打台湾
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2129933/)
+## 中日财经爆| 中共国房企禹洲集团爆雷 公告票据违约
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2130034/)
 
-作者：纽约磐石农场 – 在远方
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-10.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fi1.hexun.com%2F2021-07-27%2F204038999.jpg&amp;imgrefurl=http%3A%2F%2Fm.163fans.com%2Fnews%2Fshow%2F6043%2F&amp;tbnid=mjc8x0mrDAfiXM&amp;vet=12ahUKEwiu3oO9mbj2AhUE3pQKHaKfAi0QMygDegUIARCsAQ..i&amp;docid=blQWHMF0HsGm_M&amp;w=)
+3月7日，中共国又一房企爆雷违约，禹洲集团发布公告称其未在宽限期届满前支付一笔到期的优先票据利息，已构成违约。
 
+禹洲集团周二股票盘中重挫逾8%，创2009年11月上市以来新低，该股此前已连续两个交易日收跌。公司公告称，其未在宽限期届满前支付2023年到期的8.5%优先票据的利息，已构成违约。
 
+公告显示，公司发行的并于联交所上市的2023年到期的8.5%优先票据的利息2,125万美元，已于2022年2月4日到期应付。根据2023年票据II的信托契据，有30天宽限期支付利息以避免违约事件。但宽限期现已届满而公司并无于届满前支付有关款项。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+上述未支付已构成2023年票据II下的违约事件。因此，2023年票据II的持有人可以要求即刻尝付本金和应计利息。截至本公告发布之日，2023年票据II的未偿还本金为5亿美元。公司暂未收到任何该票据持有人的即刻还款通知。
 
+禹洲集团主要从事房地产开发业务，该股过去一年已累跌逾八成。
 
+消息来源:
 
-在3月6日的大直播中，郭文贵先生表示，普京时代由于发动侵略战争而结束，中共会迅速攻打台湾，俄乌战争的代价则，是全世界都会痛恨习近平和被中共绑架的国人。
+[《股市简讯》中国房企禹洲集团重挫逾8%创新低，2023年到期票据付息违约](https://cn.reuters.com/article/%E3%80%8A%E8%82%A1%E5%B8%82%E7%AE%80%E8%AE%AF%E3%80%8B%E4%B8%AD%E5%9B%BD%E6%88%BF%E4%BC%81%E7%A6%B9%E6%B4%B2%E9%9B%86%E5%9B%A2%E9%87%8D%E6%8C%AB%E9%80%BE8%25%E5%88%9B%E6%96%B0%E4%BD%8E%EF%BC%8C2023%E5%B9%B4%E5%88%B0%E6%9C%9F%25)
 
-郭先生说，世界经济的崩溃，将在5月份从美国和欧洲开始。俄乌的战争，美欧隐形支持乌克兰，乌克兰把军队平民化而藏兵于民。俄国政府现在内部已经是一团乱麻，虽然他们还在吹嘘，但事实上普京的时代已经结束，俄罗斯在世界上已经彻底失败，只是与乌克兰两国付出代价多少的问题。
-
-由于习近平知道自己的身体撑不了多久，因此他对台湾一定会运用闪击战术，也不会给世界任何反应机会，以免重蹈俄乌战争覆辙。而全世界也会最痛恨习近平、中共以及被中共绑架的中国老百姓。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-4.jpg)
-另外，中共CIPS金融系统与俄罗斯的签约，代替了西方SWIFT系统的制裁，说明中共已经公开承认了，它是俄罗斯侵略战争背后的金主和支持者。而这个代价将在战争之后开始显现，中国几代人都将难以承受。
-
-郭先生指出，这就像被注射了两三针毒疫苗、面对着死亡的中国人一样，即使在灭共以后，在全世界面前也是难以被拯救的。
-
-参考链接：
-[3/06/2022 文贵直播：世界经济何时开始崩溃？普京的时代已结束，习太阳身体撑不住，一定会迅速打台湾；俄乌战争让全世界都恨习和中国人，而中共绑架的中国人却被迫背上了支持俄罗斯的黑锅](https://www.gettr.com/post/pykg790ac2)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

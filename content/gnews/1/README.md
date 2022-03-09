@@ -2,30 +2,25 @@
 ---
 
 
-## 美国政府宣布停止从俄罗斯进口石油、天然气
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2130097/)
+## 视频|新中国联邦前线救援团队已从乌克兰战区救出超过200人
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2130283/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+制作：香草山视频部
 
-整理：围剿维尼熊
-编辑：木木木mmmmm
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0159.jpg)图片来源：德国之声
-根据德国之声中文网3月9日报道，在乌克兰的请求下，美国总统拜登周二（3月8日）宣布，美国将停止从俄罗斯进口石油和天然气。
+**郭文贵先生****在****最新一则盖特中表示，新中国联邦****的****多位爆料革命战友，远赴乌克兰参与前线救援，截至目前，已经救出上百名乌克兰儿童，以及包括中国人、乌克兰人在内的各国人士总共两百余人。**
 
-拜登称，出口能源成为俄罗斯经济的主要动脉，并表示不会（进口）补贴普京的战争。至于战争和禁令推高全球市场能源价格，拜登警告石油公司及其合作伙伴不要“过度涨价”。他说：“俄罗斯的侵略正在使我们所有人付出代价，现在不是牟取暴利或测价的时候。”
+**郭先生透露，在昨天的一场救援行动中，中共大使馆编造谎言，成功误导了十几位已经坐上救援巴士的中国人弃车而逃，郭先生对此深表遗憾，并怒斥中共为达目的，全然不顾错过救援的中国人可能面临的安全风险，简直视人命如草芥。**
 
-根据美国能源信息署 (EIA) 的数据，去年，俄罗斯在美国进口原油和石油产品的来源国中排名第三，仅次于加拿大和墨西哥。但是同欧洲相比，美对俄能源进口的依赖程度要低得多。
+**郭先生强调，新中国联邦的这次救援行动，最重要的目的就是救人，证明中国人不同于共产党，中国人不但不会祸乱世界，还愿意为实现这个世界的和平美好身体力行。**
 
-参考链接：[拜登宣布美国停止从俄罗斯进口原油和天然气](https://m.dw.com/zh/%E6%8B%9C%E7%99%BB%E5%AE%A3%E5%B8%83%E7%BE%8E%E5%9B%BD%E5%81%9C%E6%AD%A2%E4%BB%8E%E4%BF%84%E7%BD%97%E6%96%AF%E8%BF%9B%E5%8F%A3%E5%8E%9F%E6%B2%B9%E5%92%8C%E5%A4%A9%E7%84%B6%E6%B0%94/a-61055840)
+发稿：谐趣园
 
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
