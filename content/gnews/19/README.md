@@ -2,22 +2,36 @@
 ---
 
 
-## 奥地利已停止强制接种新冠疫苗
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2132006/)
+## 乌克兰大救援：是谁黑客并篡改法治基金救援邮箱？
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2132146/)
 
-#### 翻译                意大利达芬奇农场                         小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-09-alle-13.02.32.png)图片来源：eventiavversinews.it
-奥地利已停止强制接种新冠病毒。正如卫生部长约翰内斯•劳赫和宪法事务部长卡洛琳•埃德施塔德勒宣布的那样，奥地利政府今天做出了决定。据奥地利媒体报道，这两位政客解释说， 由于奥米克戎是“主要变体”， 强制疫苗与现状“不再相称”。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/03/The-Vanguard-Group.jpg)
 
-该决定的依据是专家委员会的报告，该委员会将在三个月后再次开会，重新评估情况并做出新的决定。
 
-我们记得， 强制疫苗已于2月初生效。然而， 从来没有开罚单，因为违反强制接种疫苗行为应该从3月中旬开始受到惩罚。
+**乌克兰救援任务的电子邮件被中共黑客和篡改**
 
-事实上， 在2月中旬，奥地利已经与科学委员会达成一致， 宣布从3月5日起放宽一系列防疫措施：已在商店内停止强制使用绿色通行证，只在“脆弱群体环境”中使用， 例如医院和养老院。另一方面， 在超市、药店和乘坐公共交通工具时以及在“脆弱群体环境”中，必须戴口罩。
+3 月 8 日，郭文贵先生在盖特视频中透露，我们与世界分享的乌克兰救援任务二维码和电子邮件被中共攻击和篡改。
 
-原文链接：  [https://www.eventiavversinews.it/laustria-sospende-lobbligo-vaccinale-non-piu-proporzionato/](https://www.eventiavversinews.it/laustria-sospende-lobbligo-vaccinale-non-piu-proporzionato/)
+郭先生在视频中说：“中共的恐惧已经达到了这样的程度，他们入侵了我们向球发送救援信息的电子邮件黑掉。昨天我的 YouTube 帐户禁止了视频上传功能。我的两部手机被黑客入侵并瘫痪”。
 
-编辑、上传： Xiao  baige
+法治基金会的志愿者每天秉承“无私献奉”的新中国联邦精神，每天救助着素不相识的妇女、儿童和中国同胞。由于 NFSC 的救援行动在 Getter 上直播，全世界都可以观看。自NFSC出现在乌克兰的第一天起，包括媒体在内的国际救援组织和机构就一直密切关注着它。
+
+中共害怕NFSC在乌克兰救援的国际影响，“共产党动用了最大的国家力量黑客掉我们的救援邮箱，他们害怕我们去救人。”郭文贵指出了共产党黑客邮箱的原因。
+
+法治基金义工小王子说，这个邮箱是通过Godaddy注册的。根据温哥华杨帆农场战友Forfree提供的线索，发现在cnn的一篇文章（[https://money.cnn.com/quote/sharehold…](https://money.cnn.com/quote/shareholders/shareholders.html?symb=GDDY&amp;subView=institutional)）上可以看到godaddy的最大股东是vanguard group（先锋集团）！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-897.png)
+大家从辉瑞集团的分析中已经早就熟悉了这个先锋集团。它和共产党深度勾兑。郭先生在2021年8月24号就爆料“先锋集团是中国国药的投资者控制的”，和韩正儿子的42公司极其密切。先锋集团就是所有的辉瑞制药、所有的科兴疫苗、所有的中国国药的疫苗的其中投资者股东。先锋集团和江家、鼎晖、比尔盖茨、黑石关系紧密。
+
+Forfree说：“这次godaddy恶意停用我们的救援网站和邮箱，背后估计就是CCP通过先锋下的黑手。godaddy看来本来就有很多害人的黑历史，和CCP有扯不清的关系”。
+
+新闻来源：
+
+[Forfree getter](https://gettr.com/comment/crs7hi63da)
+
+[CNN Business](https://money.cnn.com/quote/shareholders/shareholders.html?symb=GDDY&amp;subView=institutional)
+
+
 
  
 

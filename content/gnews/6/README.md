@@ -2,25 +2,43 @@
 ---
 
 
-## 2022年3月9日澳洲股市简报
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2132198/)
+## 美国会推迟表决禁止从俄罗斯进口能源的法律草案
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2132368/)
 
-**撰稿：云彩**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
-美国和英国将禁止俄罗斯石油和能源进口，澳大利亚股市收盘大幅上涨。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image003-3.jpg)众议院议长南希佩洛西和她的领导团队原计划在周二投票。| 亚历克斯黄/盖蒂图片社
+据美国《政治报》（Politico）披露，在美国共和党人表示反对后，众议院已经把关于禁止从俄罗斯进口能源载体并重审俄罗斯世界贸易组织地位的法律草案从3月8日推迟至3月9日表决。
 
-ASX 200 指数上涨 1%,收盘 7,053点。澳交所普通股指数上涨 1.1% ，收盘7,331。其中科技、电信、非必需消费品和银行股领涨。
+美国共和党人称，这项法案文本中未包含美国与俄罗斯和白俄罗斯断绝贸易关系的关键条款。白宫对此解释称，是因为必须与盟友讨论这样做可能产生什么影响。
 
-美国基准石油西德克萨斯中质原油上涨 1.9% 至 126.10 美元/桶。全球基准布伦特原油飙升 7.7%至131.308 美元/桶。
+该报指出，这项法律草案允许美国对俄罗斯追加制裁，并且，重审俄罗斯在世贸组织中的地位。当前，这项法律草案的文本正在进行润色。
 
-虽然疫情有所缓解，但是物价上涨ˎ银行即将加息ˎ汽油价格上涨ˎ洪水灾害和乌克兰战争等坏消息让3月份消费者信心指数下降4.2% 。
 
-参考资料：
 
-[ASX closes higher on broad gains, oil jumps on US and UK ban of Russian oil](https://www.abc.net.au/news/2022-03-09/markets-wall-street-dow-jones-asx-oil-biden-ukraine-russia-uk-ga/100894058)
+[【援引连结】](https://www.politico.com/news/2022/03/08/pelosi-congress-vote-russia-oil-ban-00015091)
 
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
+
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

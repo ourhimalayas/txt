@@ -2,28 +2,39 @@
 ---
 
 
-## 乌克兰前市长称人们正在挨饿，人道主义灾难即将来临
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2132235/)
+## 有声|南非法律界发声，支持乌克兰人民反抗侵略
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132422/)
 
-#### 撰稿：彩虹       
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2022年2月24日，俄罗斯入侵乌克兰，引起了全世界的反抗浪潮。南非知名的法律教授，律师，南非六个独立国家机构之一的《公共保护者》前主席，Thuli Madonsela，近日发表多篇推文，除了表达支持乌克兰抵抗侵略的壮举之外，还谴责了俄罗斯入侵、对平民的屠杀行为。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-898.png)图片来源：CBS
-据《国会山报》3月8日报道，乌克兰一个城市的前市长说，随着与俄罗斯的战争继续，人们正在挨饿，一场人道主义灾难正在逼近。
+3月5日，Thuli Madonsela在俄罗斯驻南非大使馆的官方推特中，回帖道，“我感谢苏联支持我们的反种族隔离斗争，以及俄罗斯在这方面的慷慨，但我选择不支持俄罗斯入侵乌克兰和屠杀平民，因为这是不合情理的违反国际法的行为”。我与乌克兰站在一起，只要某处存在不公正，任何地方都不会有可持续的和平。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-07-at-11.06.09-PM.png)
+在3月6日，她发表推文，称赞了全球领导人“树立了一个很好的榜样，谴责俄罗斯违反国际法入侵乌克兰，违反人道主义法条约屠杀平民，并让更多的乌克兰人流离失所”。
 
-根据一些乌克兰记者的报道，沃洛迪米尔·卡尔普留克（Volodymyr Karplyuk）在2014年至2018年期间担任伊尔彭市（Irpen）市长，他在脸书（Facebook）上写道：“伊尔彭市及其周围的村庄正在呈现一场绝对的人道主义灾难。俄罗斯士兵占领了Vorzel、Hostomel、Zabucha和Mylhailivka-Rubezhivka，不让居民离开自己的家。”
+作为《公共保护者》前主席、社会正义法律信托主席、“透明国际诚信奖、德国非洲奖和非洲反腐败十字军奖”获得者，斯泰伦博斯大学教授，Thuli Madonsela在乌克兰问题上的仗义执言，不仅彰显了作为民主法制国家应有的人道主义精神，同时也表现出“彩虹之国”正确的价值取向。
 
-这位前市长说，俄罗斯人正在向住宅开枪，并威胁要杀死伊尔彭的现任市长。医院遭到炮击，一些医疗用品被俄罗斯人拿走。
 
-除了缺乏食物，该市和邻近村庄的其他公共设施，如电、水、通信和手机连接也很不稳定。俄罗斯人正在向属于红十字会的汽车射击，不允许该组织接近尸体。
 
-这位前市长呼吁国际社会进行干预，他说：“Irpen、Bucha、Gostomel、Vorzel、Mykhailivka-Rubezhivka、Zabuchcha都处于人道主义灾难的中心。我们需要一条绿色通道来帮助市民，但俄罗斯人不允许这样做。当地居民正在被饿死，被关在冰冷的地窖里。”
+文字版原文：[南非法律界发声，支持乌克兰人民反抗侵略](https://gnews.org/zh-hans/2124046/)
 
-文章说，由于战争，已经有200多万乌克兰人成为了难民，逃往周边国家。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-**新闻来源**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[Former mayor of Ukrainian city says people starving, humanitarian disaster approaching](https://thehill.com/policy/international/597453-former-mayor-of-ukrainian-city-says-people-starving-humanitarian)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
