@@ -2,45 +2,40 @@
 ---
 
 
-## 有声|113位乌克兰小孩与慈善机构人员前往巴塞罗那
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132358/)
+## 美国对波兰转移战斗机的提议感到震惊
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2132563/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-2022年3月7日早上7点，从波兰克拉科夫传来新中国联邦战友发来的视频，从大巴车上鱼贯而下的96名乌克兰孩子与其他当地慈善机构人员或老师共113人，坐了30小时的大巴安全抵达波兰克拉科夫。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image1-4.jpg)
-在到达地等候多时的战友们热情地迎上前去，递上热水，巧克力，点心等食物，为这些从乌克兰战火中逃出的难民们，接风洗尘，送去人间温暖。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image007-1.jpg)Alik Keplicz/美联社照片
+据美国《政治报》（Politico）3月9日报导，波兰政府周二宣布准备将其28 架MiG-29 战斗机转移到美国，并把它们移交给与俄罗斯入侵战斗的乌克兰飞行员。报导称，华沙这个提议令华盛顿“震惊”，感到完全出乎意料。五角大楼发言人柯比当地时间8日表示，这一提议“站不住脚”。
 
-据前线战友报道，这些孩子均在7-17岁之间，一路虽然饥饿难眠，劳累辛苦，但孩子们安静淡定，遵守规则，表现出极高的文明礼貌风貌，给现场战友留下深刻的印象。迎接的战友纷纷留下热泪。
+报导称，此前华盛顿和华沙就将喷气式飞机转移到乌克兰进行了一周的来回谈判。
 
-被救的孩子们及其他人员将马不停蹄，即将前往西班牙巴塞罗那等安全地点，西班牙的战友们早已做好迎接的准备。
+美国情报界和国防部表示反对将波兰飞机转移到乌克兰，因为让飞机越过边境以及转交过程的“复杂性”。并表示，波兰政府在宣布这一消息之前没有与美国同行协商。
 
-后方新中国联邦的接洽人员，纷纷收到被救乌克兰难民的感谢。一位乌克兰女士用文字与语音说：我一上大巴就睡过去了，感谢你们的救援，你们的救援团队太棒了。
-
-据参与营救这些孩子们的一位人权律师志愿者说，这是一项非常艰难的工作，没有你们的帮助，是不可能做到的。感谢法治基金。
-
-危难时刻，唯有新中国联邦人代表中国人民，发挥着人道主义精神，不仅救助同胞，更向国际社会伸出援手，显示出正道主义的魅力。
+[【援引连结】](https://www.politico.com/news/2022/03/08/poland-transfers-mig-fighters-to-the-us-as-ukraine-asks-for-help-00015259)
 
 
 
-文字版原文：[113位乌克兰小孩与慈善机构人员前往巴塞罗那](https://gnews.org/zh-hans/2123759/)
+**推出问题，敲出真相，爆料在路上！**
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+**请关注和订阅我们的以下账号：**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+**玫瑰看新闻YOUTUBE账号**：
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**玫瑰看新闻**
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+**黑森林的故事**
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

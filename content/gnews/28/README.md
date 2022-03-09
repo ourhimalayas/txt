@@ -2,40 +2,24 @@
 ---
 
 
-## 拜登政府向数百家媒体支付款项用来推广中共病毒疫苗
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2131782/)
+## 【快讯】大救援行动：梅迪卡救援中心直播新闻站首播
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2132109/)
 
-作者: 银河系农场—骄子
+整撰：奔跑吧黄小鸭
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-43.jpg)图片来自：https://gettr.com/
+波兰时间3月9日上午11点左右，救援团队在波兰边境梅迪卡营救中心搭建了新中国联邦的新闻直播站，主播依然是Nicole，新闻站的首播为全球华人带来了大救援前线最真实的现场报道。
 
+梅迪卡是波兰边境的小镇，现在已成为很大的难民营救中心，每天有大量从乌克兰逃离出来的妇女和儿童涌到这里，波兰的气温基本在零度上下5度左右，这里有很多救援帐篷，供刚刚逃离乌克兰的难民临时的歇息和充饥。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
-据外媒报道，美国卫生与公众服务部（United States Department of Health and Human Services，缩写：HHS）向数百家美国媒体公司支付款项用来推广中共病毒疫苗的广告。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-8.50.58-PM.png)图片来源: 网络
-美国政府机构HHS从ABC、CBS、NBC、FOX NEWS、CNN等多家主流媒体购买广告，主要方式为投放文章和视频片段，这些内容全部对中共病毒疫苗持有积极的态度，更夸张的是纳税人资金并未披露。据悉该笔资金来自2021年度纳税人资助的10亿美元联邦竞选资金，旨在增强美国人对中共病毒疫苗的信心。
+这里也是国际红十字会等一些国际公益组织提供人道援助服务的汇聚地，很多国际媒体和记者们在这里搭建临时新闻站点。新中国联邦在距离边境大概100米、50米处分别有2个帐篷，直播新闻站就在其中，新中国联邦人是唯一出现在这里的华人面孔。
 
-另外这些主流媒体还对那些对中共病毒来自武汉实验室，以及对中共病毒疫苗持怀疑态度的看法进行打击，反过来指责他们传播错误信息。
+Nicole现场报道，据不完全统计，**自大救援行动启动以来至今，新中国联邦的救援巴士已成功撤离了100多位中国同胞（其中包括一直没得到及时救助的中国留学生），350多位乌克兰人、美国人等国际友人**。
 
-目前HHS尚未披露具体每个媒体的费用。
+其中有一项跨国营救活动，是在法治基金与波兰政府、乌克兰政府及西班牙某公益基金一起合作，援助百名师生从乌克兰利沃夫到波兰克拉科夫的撤离，并安排波兰的住宿和送往西班牙巴塞罗那的全程接应和费用。刚刚得知的消息是，**98名乌克兰战地儿童、老师和西班牙公益组织的律师等共113人已顺利地抵达目的地**。
 
-新闻来源: [https://www.lifesitenews.com/news/report-biden-admin-gave-taxpayer-dollars-to-legacy-media-outlets-to-promote-covid-jabs/](https://www.lifesitenews.com/news/report-biden-admin-gave-taxpayer-dollars-to-legacy-media-outlets-to-promote-covid-jabs/)
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
-
-
-
-编辑/校对/发稿: 卡夫卡的甲壳虫
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[乌克兰国际人道救援 —新中国联邦 (gettr.com)](https://gettr.com/streaming/pz0aqdd74c)
 
  
 

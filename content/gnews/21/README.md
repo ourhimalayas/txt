@@ -2,36 +2,45 @@
 ---
 
 
-## 乌克兰大救援：是谁黑客并篡改法治基金救援邮箱？
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2132146/)
+## 有声|113位乌克兰小孩与慈善机构人员前往巴塞罗那
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132358/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/03/The-Vanguard-Group.jpg)
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2022年3月7日早上7点，从波兰克拉科夫传来新中国联邦战友发来的视频，从大巴车上鱼贯而下的96名乌克兰孩子与其他当地慈善机构人员或老师共113人，坐了30小时的大巴安全抵达波兰克拉科夫。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image1-4.jpg)
+在到达地等候多时的战友们热情地迎上前去，递上热水，巧克力，点心等食物，为这些从乌克兰战火中逃出的难民们，接风洗尘，送去人间温暖。
 
+据前线战友报道，这些孩子均在7-17岁之间，一路虽然饥饿难眠，劳累辛苦，但孩子们安静淡定，遵守规则，表现出极高的文明礼貌风貌，给现场战友留下深刻的印象。迎接的战友纷纷留下热泪。
 
-**乌克兰救援任务的电子邮件被中共黑客和篡改**
+被救的孩子们及其他人员将马不停蹄，即将前往西班牙巴塞罗那等安全地点，西班牙的战友们早已做好迎接的准备。
 
-3 月 8 日，郭文贵先生在盖特视频中透露，我们与世界分享的乌克兰救援任务二维码和电子邮件被中共攻击和篡改。
+后方新中国联邦的接洽人员，纷纷收到被救乌克兰难民的感谢。一位乌克兰女士用文字与语音说：我一上大巴就睡过去了，感谢你们的救援，你们的救援团队太棒了。
 
-郭先生在视频中说：“中共的恐惧已经达到了这样的程度，他们入侵了我们向球发送救援信息的电子邮件黑掉。昨天我的 YouTube 帐户禁止了视频上传功能。我的两部手机被黑客入侵并瘫痪”。
+据参与营救这些孩子们的一位人权律师志愿者说，这是一项非常艰难的工作，没有你们的帮助，是不可能做到的。感谢法治基金。
 
-法治基金会的志愿者每天秉承“无私献奉”的新中国联邦精神，每天救助着素不相识的妇女、儿童和中国同胞。由于 NFSC 的救援行动在 Getter 上直播，全世界都可以观看。自NFSC出现在乌克兰的第一天起，包括媒体在内的国际救援组织和机构就一直密切关注着它。
-
-中共害怕NFSC在乌克兰救援的国际影响，“共产党动用了最大的国家力量黑客掉我们的救援邮箱，他们害怕我们去救人。”郭文贵指出了共产党黑客邮箱的原因。
-
-法治基金义工小王子说，这个邮箱是通过Godaddy注册的。根据温哥华杨帆农场战友Forfree提供的线索，发现在cnn的一篇文章（[https://money.cnn.com/quote/sharehold…](https://money.cnn.com/quote/shareholders/shareholders.html?symb=GDDY&amp;subView=institutional)）上可以看到godaddy的最大股东是vanguard group（先锋集团）！
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-897.png)
-大家从辉瑞集团的分析中已经早就熟悉了这个先锋集团。它和共产党深度勾兑。郭先生在2021年8月24号就爆料“先锋集团是中国国药的投资者控制的”，和韩正儿子的42公司极其密切。先锋集团就是所有的辉瑞制药、所有的科兴疫苗、所有的中国国药的疫苗的其中投资者股东。先锋集团和江家、鼎晖、比尔盖茨、黑石关系紧密。
-
-Forfree说：“这次godaddy恶意停用我们的救援网站和邮箱，背后估计就是CCP通过先锋下的黑手。godaddy看来本来就有很多害人的黑历史，和CCP有扯不清的关系”。
-
-新闻来源：
-
-[Forfree getter](https://gettr.com/comment/crs7hi63da)
-
-[CNN Business](https://money.cnn.com/quote/shareholders/shareholders.html?symb=GDDY&amp;subView=institutional)
+危难时刻，唯有新中国联邦人代表中国人民，发挥着人道主义精神，不仅救助同胞，更向国际社会伸出援手，显示出正道主义的魅力。
 
 
+
+文字版原文：[113位乌克兰小孩与慈善机构人员前往巴塞罗那](https://gnews.org/zh-hans/2123759/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

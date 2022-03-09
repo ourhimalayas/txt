@@ -2,16 +2,25 @@
 ---
 
 
-## 中共网络信息超限战已经犯下反人类罪
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2132130/)
+## 特鲁多渎职滥权民意尽失
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2132342/)
 
-文贵大直播20220309
+采编/编译撰稿：加拿大温哥华杨帆农场 – 薇文
 
-撰稿：顽童（纽伦堡正义）文仁（77功成）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_20220309-093546_Discord2-edited.jpg)图片来源: Getty/Alamy
 
-美工：长颈鹿（雅典娜）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-6.png)
-*发布：Theodosia*
+
+据加拿大[国家邮报]3月6日报道，最新民调显示，由于特鲁多对[自由车队]反疫苗护照抗议活动的拙劣对策，近半数加拿大人对其自由党政府极为不满，并已逐渐失去民意的支持。
+
+报道称，目前只有约20%的人对当局作出正面评价，而大部分受访者则认为：自由党政府越权采取的[紧急状态法]，不仅未给特鲁多带来任何政治资本，反而制造了社会矛盾。
+
+此外，特鲁多妄称所有和平抗议者都是“厌恶女性的极端种族主义者”谬论，再次重创了其领导人形象，也激化了局势。著名[里德研究所]主席对此表示：特鲁多一改以往巧言令色的圆滑形象，肆无忌惮地开始使用政治暴力，以期实现其极权专政的梦想。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+新闻来源：[Trudeau pays price for trucker protest fallout as ratings take a dive](https://nationalpost.com/news/canada/trudeau-pays-price-for-trucker-protest-fallout-as-ratings-take-a-dive)
 
  
 

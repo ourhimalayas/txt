@@ -2,46 +2,21 @@
 ---
 
 
-## 拜登宣布禁止俄国石油进口原油价格创新高
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2132440/)
+## 美国会达成协议：提供乌克兰136亿美元紧急援助
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2132605/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image005-3.jpg)图像来源，REUTERS
-美国总统拜登8日签署了关于禁止从俄罗斯进口能源和对俄罗斯能源行业进行新投资的行政令。与此同时，一系列西方国家也表示打算逐步减少进口俄罗斯的能源。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-AP751966298861.jpg)图片来源：ShareAmerica
 
-美国总统拜登表示，这种做法是针对俄罗斯“经济命脉”采取的行动。他同时表示，作出这个决定时已经征询盟友的意见。
+美国国会两党领袖今日达成协议，提供乌克兰136亿美元紧急援助，并拨款156亿美元用来对抗中共病毒大流行。
 
-英国继美国之后，宣布在今年内将会停止从俄罗斯进口石油。英国首相约翰逊承认，这样做不会立即对俄罗斯造成打击，但是，这将会增加俄罗斯的压力。
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1082462)
 
-俄罗斯是全球继沙特阿拉伯和美国之后的世界第三大石油生产国，其国内经济十分依赖能源出口。
+撰稿/发布：一叶知秋
 
-受到消息影响，国际原油价格进一步上涨，美国布兰特原油周二最新价格为约131美元一桶，比前一天上涨约2.6%，比去年同期价格已经上涨差不多一倍。俄罗斯警告，西方国家的行动可能令石油价格涨至300美元一桶。
-
-
-
-[【援引连结】](https://www.politico.com/video/2022/03/08/biden-announces-ban-russian-oil-imports-over-ukraine-war-506936)
-
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
