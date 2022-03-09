@@ -2,21 +2,27 @@
 ---
 
 
-## 美国会达成协议：提供乌克兰136亿美元紧急援助
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2132605/)
+## 美国汽油价格再创历史新高
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2132635/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-AP751966298861.jpg)图片来源：ShareAmerica
+采编：加拿大温哥华杨帆农场 – 文莱
 
-美国国会两党领袖今日达成协议，提供乌克兰136亿美元紧急援助，并拨款156亿美元用来对抗中共病毒大流行。
+编译撰稿：加拿大温哥华杨帆农场 – 自由法兰西
 
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1082462)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_20220309-103531_Discord2-1.jpg)图片来源：thepostmillennial.
 
-撰稿/发布：一叶知秋
+![](https://gnews.org/3bab0b72-a2ea-4fa3-be68-494a9d5e0580)
+据加拿大《后千禧年》3月6日报道，美国汽车协会最新数据显示，全国当天汽油平均价格为4.09美元每加仑，并仍保持不断上涨趋势，创下有史以来7日均价最高涨幅。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+据悉，欧美目前对俄罗斯入侵乌克兰进行的严厉经济制裁，直接导致了全球原油产量的急剧下降，并造成当今油价失控飙升。
+
+随着俄乌战事升级，预计未来很长一段时间内，汽油价格将继续上涨，并将很快突破4.25美元每加仑。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+原文链接： [https://thepostmillennial.com/national-average-gas-price-jumps-over-4](https://thepostmillennial.com/national-average-gas-price-jumps-over-4)
 
  
 

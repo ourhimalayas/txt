@@ -2,40 +2,40 @@
 ---
 
 
-## 有声|中共破坏乌克兰人道救援 天理难容
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132597/)
+## 英美宣布禁止进口俄罗斯石油和其他能源
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2132634/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月7日，郭文贵先生在盖特视频中讲到，中共利用欺骗恐吓的手段，破坏法治基金乌克兰救援行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-5.jpeg)
-截至目前，法治基金新中国联邦救援队已经从乌克兰战区救出，包括中国同胞和国际人士在内，200多名受困的难民。对比之下，中共不但没有意愿和能力救援在乌克兰受困的中国同胞，而且还欺骗墙内百姓，在乌克兰的同胞已经全部撤离。中共不仅放弃被困乌克兰的中国同胞，而且，为了掩盖他的谎言，还用删帖封号的方式来屏蔽中国同胞发的求救信息。
+作者：首尔天池农场 – 追着曙光跑/纽约香草山农场 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月8日，据当地媒体报道，美国总统拜登当天发布声明宣布，将禁止进口俄罗斯的石油和其他能源，从而增强美国对俄罗斯所施加压力，而这也是美国针对俄罗斯入侵乌克兰行为所采取的最新制裁措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-13.jpg)
+拜登在声明中强调，该举措是美国人民对俄罗斯的另一个有力打击，目前已经受到了来自美国两党的强烈支持。
 
-据郭先生透露，大量中国留学生目前仍然滞留在乌克兰。其中有一部分人躲藏在地下室中，处于断水的艰难境地。这些中国学生一直被中共的谎言愚弄，他们被通知在原地等待救援撤离，完全不知晓中共已将他们抛弃的事实。
+拜登还表示，石油以及其他能源的出口是俄罗斯的经济支柱。但鉴于俄罗斯当下对乌克兰的侵略举动，美国正在与欧洲的盟友合作，用以孤立普京和俄罗斯的经济。因此，在与世界各地的盟友和伙伴密切磋商后，美国政府实施了这一最新制裁举措。
 
-郭先生非常痛心地说，原本有一、二十名中国同胞已经登上了新中国联邦的救援大巴车，可以安全撤离乌克兰。但就在出发前，他们收到了中共驻乌使馆的信息。中共利用欺骗手段，胁迫这些中国同胞下车离开。这些同胞因惧怕和被中共洗脑的无知，错过了救援时机，目前下落不明，生死未卜。
+同时，英国也在一份声明中宣布，将在2022年年底前逐步停止进口俄罗斯的石油和石油产品，以此作为对俄罗斯无端和无理对乌克兰发动战争的制裁。
 
+对此，拜登提到，美国正在与盟友及伙伴共同合作，从而发展一套减轻依赖俄罗斯能源的长期战略；而作为制裁，这一战略正在导致俄罗斯经济的崩溃。
 
+参考链接：
+1). [US strikes harder at Putin, banning all Russian oil imports](https://apnews.com/article/russia-ukraine-war-us-russia-oil-ban-120c0152cf310a5b593f6ae7a2857e62)
+2). [UK to phase out Russian oil imports by 2023 and explore ending gas imports](https://www.theguardian.com/world/2022/mar/08/no-10-plans-cut-russian-fossil-fuels-use)
+3). [U.S. President Joe Biden announced a ban on Russian oil and other energy imports in retaliation for Russia’s invasion of Ukraine, underscoring strong bipartisan support for a move that he acknowledged would drive up U.S. energy prices https://reut.rs/3Kpgtsf](https://twitter.com/reuters/status/1501240354191790085?s=21)
 
-文字版原文：[中共破坏乌克兰人道救援 天理难容](https://gnews.org/zh-hans/2127312/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+总编: Irene木木
+编辑: Ivy001
+审核: 文真
+校正/发稿：Fei797
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

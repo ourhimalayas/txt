@@ -2,48 +2,37 @@
 ---
 
 
-## 乌克兰总统表示早已不坚持加入北约
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2132613/)
+## 有声|郭先生提醒墙外战友提防排华袭击
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132656/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image009.jpg)图取自facebook.com/zelenskiy.official
-据中央社8日报导，乌克兰总统泽伦斯基（Volodymyr Zelensky）8日表示，他早已不要求让乌克兰加入北大西洋公约组织（NATO）。乌克兰加入北约这个敏感议题，是俄罗斯公开宣称的攻乌理由之一。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月6日的大直播中，郭先生表示，最近华人在全世界频繁遭到袭击，请亚洲战友尤其是女性要特别小心。给被中共洗脑的中国人思想排毒太难，而战友们传播疫苗真相不要在乎结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-2.jpg)
+郭先生说，近期非洲、欧洲和美国，都有无端袭击华人事件发生，因此他提醒亚洲战友，尤其是女性，在这些地方外出一定要多加注意安全。同时，给中国人排出中共种下的毒太难了，就像我们的战友在乌克兰战争中救人，竟然还有中国人不顾生死，反而先顾虑新中国联邦是否会给自己带来麻烦。
 
-泽伦斯基还说，愿在两个亲俄分离区的地位上“妥协”。此举显然也是在向俄罗斯致意、意在安抚。
-
-泽伦斯基在美国广播公司新闻网（ABC News）昨晚播出的访问中说：“我们了解到北约不准备接受乌克兰后，我很久以前就对这个议题平息下来。这个联盟怕麻烦，也怕和俄国对杠。”
-
-他还提及不想当个“卑躬屈膝国家”的总统。
-
-俄罗斯一直坚称不希望乌克兰加入北约。北约近年益趋东扩收纳前苏联国家，触怒了克里姆林宫。俄国认为北约扩张是一种威胁。
-
-美国广播公司询问泽伦斯基有关俄国要求时，泽伦斯基表示愿意对话。
+对此，郭先生强调在乌克兰救人并非责任，就如同我们告诉世界中共病毒疫苗是毒药一样，不用在乎对方信不信，而对不看、不相信文贵先生直播的人，缘分也基本已尽。
 
 
 
-[【援引连结】](https://www.cna.com.tw/news/aopl/202203090089.aspx)
+文字版原文：[郭先生提醒墙外战友提防排华袭击](https://gnews.org/zh-hans/2129871/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**推出问题，敲出真相，爆料在路上！**
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**请关注和订阅我们的以下账号：**
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

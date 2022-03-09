@@ -2,36 +2,20 @@
 ---
 
 
-## 新中国联邦法制基金乌克兰人道救援行动（五）
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2132722/)
+## FDA败诉德州，坐实了中共病毒疫苗是毒东西
+` DC政经` [轉載自GNews](https://gnews.org/zh-hans/2132768/)
 
-【玫瑰看新闻】每日快讯
+《2022年03月06日文贵大直播》节选
 
-1.第三分队从西班牙出发
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西班牙6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/西班牙4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/西班牙5.jpg)
-2.神奇四侠， 2pac和二花 平安落地
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西班牙7.jpg)
+欧洲科学家那天跟我说什么？他说，文贵，这个法官的判决，它最大的意义，它坐实了疫苗是完全是没有经过医学上认可的程序的，这是一个毒东西，它是违法的，它给未来所有的疫苗，就是打了疫苗的人给了最后一个提醒，你赶快治理！赶快去清毒，他说，如果人再不最后相信的话，这人就该死了，真没法救了。
 
+* * *
 
-**推出问题，敲出真相，爆料在路上！**
+素材，剪辑，字幕：小蜜蜂 | 发布：文零
 
-**请关注和订阅我们的以下账号：**
+更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/DCZJ_Gnews_960_160.png)
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
 
  
 
