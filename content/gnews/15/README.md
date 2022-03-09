@@ -2,38 +2,27 @@
 ---
 
 
-## 妇女节当天世界为铁链女发声
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2132835/)
+## 《铁锁梦》揭露出中共套在中国人乃至全人类头上的枷锁
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2132885/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月8日国际妇女节当天，郭文贵先生在盖特平台上发布了歌曲《锁链梦》作为最特别的礼物，送给全天下的女性同胞。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-12.jpg)
-与此同时，墙内关注“锁链女”事件的民众也在盖特和其他社交媒体平台上为这些受害女性发声：有网友展示了自制的标语牌，其上写着锁链女那句被世界遗弃的悲凉语句，以及“关注女性儿童，关注未来”的呼吁；还有相关的歌曲唱出了民众希望救援这些受害女性的诉求。此外，有位作家发表文章称，她尝试佩戴了两个小时的自制锁链后，已经让她无法呼吸，但“锁链女”却被铁链禁锢了24年，这一难以承受的苦痛让这位作家潸然落泪。另有上海地区的学生身缠锁链作为行为艺术，向公众揭示“锁链女”事件。
+编撰/校对：冰糖葫芦喵
 
-另一方面，锁链女的事件也在国际上引起了重大关注：近日，国际品牌在巴黎时装周上让模特戴着锁链走秀，表达出对锁链女的声援。
+**3月8日，郭文贵先生在盖特发布了歌曲《铁锁梦》，献给中国和全世界所有妇女同胞的一份特别礼物。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/郭文贵锁链女-e1646844236794.png)郭文贵先生演唱《铁锁梦》（图片来源：新中国联邦）
+这首敲击灵魂、哀婉动人的**歌曲是由唐平老师和William 王的团队制作。**通过**郭文贵先生用他那磁性嗓音演**唱，**唱出中共统治下中国女性的悲惨命运。**听起来让人心痛无比，在感性上受大极大冲击。
 
-参考链接：
-1). [转自主内作家沙光：这根链子约三斤重，我录制视频戴了两个小时，倍觉窒息，可见，疯县锁链女子常年遭此桎梏，何堪忍受。\[流泪\]\[心碎\]\[发怒\]](https://gettr.com/post/pyo9m3752d)
-2). [2022年巴黎时装周， 时尚是人的时尚 因为善良，同理心，所以有人类同胞。 为锁链女祝福。](https://gettr.com/post/pyrvi529ad)
-3). [三八缚女结，我们替千万女同胞发声。](https://gettr.com/post/pytc7i26a3)
-4). [一位奶爸**👨‍🍼**战友。 憋不住来KTV房唱铁锁梦，**😂😂**](https://gettr.com/post/pytca822e1)
-5).[铭记历史，拯救铁链女靠战友们行动。](https://gettr.com/post/pytr3o80a4)
-6).[2022 #巴黎时装周 off-white向丰县 #锁链女 致敬— 剪断锁链 三八妇女节—— 祝世界所有女同胞都不沦为 锁链女](https://gettr.com/post/pyrse1a150)
-7). [Shanghai Yangpu street, International Women’s Day performance art 上海杨浦街头，国际妇女节行为艺术](https://gettr.com/post/pyunap8bb6)
+**《铁锁梦 》歌词：Ah……我本是花一朵，被拐骗山中，从此亲人永相隔，囚禁二十年我受尽了折磨，这个世界不要我，醒来吧 别再如此冷漠，醒来吧 抛掉所有懦弱，只为能紧握住亲人手，要埋葬那邪恶的中共，牙齿全拔落，铁锁已斑驳，这就是我的一生，你若不醒来，还在梦里游走，永世地狱做猪狗……**。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/锁链女.png)徐州“锁链女（图片来源：新中国联邦）
+歌词的最后，**郭先生在歌声中呼吁，醒来吧同胞们，别再如此冷漠，让我们抛掉所有懦弱，埋葬那邪恶的中共。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+任何有良知的华人，**听到这首歌后，都会潸然泪下，内心深处的柔软都会被触动，同时增加了对中共的痛恨和对中共邪恶有了深刻的理解，更加坚定了新中国联邦和全世界共同灭共的决心。**
 
-总编/编辑/审核: Irene木木
-校正/发稿：Fei797
+新闻来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[MILES GUO on GETTR: “03/08/2022 文贵送给中国和全世界三八妇女节的特别礼物…”](https://www.gettr.com/post/pyrjlxe80f)
+
+[(598) 铁锁梦 Chained Dream – YouTube](https://www.youtube.com/watch?v=pouj5qKVV-0)
+
 
 
  
