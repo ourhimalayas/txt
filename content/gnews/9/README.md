@@ -2,29 +2,36 @@
 ---
 
 
-## 俄罗斯特工称乌克兰战争“彻底失败”
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2131515/)
+## 俄国银行遭Visa、Mastercard制裁，欲转向中国银联
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2131657/)
 
-翻译整理：意大利罗马达芬奇农场 Shuizhuyu
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/db0d5c20-4a3a-4ec3-9583-3545fa81324f_w948_r1.778_fpx44_fpy48.jpg)
+整理/编辑：小鱼儿
 
-
-图片来源： Spiegel
-
-据英国《泰晤士报》报道，俄罗斯特勤局 FSB 正在高度关注乌克兰入侵事件。 该报援引一位 FSB 举报人的话说，他在俄罗斯反对派人士泄露的一份文件中批判性地总结了这场战争。
-
-一位FSB内部人士表示，这场战争是一场“彻底的失败”，俄罗斯目前的处境堪比纳粹德国的衰落。 这份 13,000 字的文件由俄罗斯人权活动家弗拉基米尔·奥舍金 (Vladimir Osechkin) 在 Facebook 和反腐败网站 Gulagu.net 上发布。 研究平台 Bellingcat 将其归类为真实的。 因此，FSB 的另外两个消息来源“毫无疑问”该报告是由一位同事撰写的。 但是，无法独立验证其真实性。
-
-案文本身就说明了一切：FSB 基本上对克里姆林宫首席弗拉基米尔·普京的入侵计划一无所知。 即使是现在，在入侵开始十二天后，特勤局仍缺乏基本信息。 克里姆林宫没有人能准确说出俄军究竟有多少人死亡，因为“我们与重要部门失去了联系”。 因此，很可能已经有超过10,000名士兵死亡。 官方称，俄罗斯国防部表示死亡人数不到 500 人。
-
-俄罗斯联邦安全局分析师对战争的进一步进程给出了悲观的画面。 例如，俄罗斯“没有出路”：“没有可能的胜利，只有失败。”俄罗斯军队必须与非常顽固的乌克兰人作战。 即使普京的主要目标之一——杀死乌克兰总统泽连斯基——实现了，俄罗斯也几乎没有机会占领乌克兰。 “即使乌克兰人的抵抗最小，我们也需要超过 500,000 人，这还不包括补给和后勤。”
-
-🔗 [俄罗斯特工称乌克兰战争“彻底失败”](https://www.spiegel.de/ausland/ukraine-krieg-russischer-geheimdienstler-bezeichnet-invasion-angeblich-als-totalversagen-a-952c94f9-d213-4acc-8689-ff1bc4a758de?utm_source=pocket-newtab-global-de-DE)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-49.png)图片来源：雅典娜设计组&yourmicrocast
 
 
+据澳大利亚人报（The Australian）3月8日报道，国际信用卡机构威士（Visa）和万事达卡公司（Mastercard）昨天宣布，因俄罗斯侵略乌克兰，而宣布暂停俄国业务。
 
-编辑发表：Shuizhuyu
+俄罗斯银行发行的Visa和万事达卡在海外不再有效，海外发行的信用卡在俄国也不能使用。
+
+俄国银行今天表示，他们计划使用中国的银联系统，发行信用卡。
+
+俄罗斯联邦储蓄银行声明，正在研究发行联名的Mir-UnionPay信用卡，我们将在稍后通知发行的时间表。俄罗斯联邦储蓄银行，在俄罗斯私人和商业金融领域均处于领先地位，是东欧地区最大的商业银行。
+
+阿尔法银行（Alfa Bank）表示，已在和中国的银联系统研究发行信用卡。阿尔法银行是[俄罗斯](https://zh.m.wikipedia.org/wiki/%E4%BF%84%E7%BE%85%E6%96%AF)最大民营银行，总部设于莫斯科，其业务覆盖7个国家。
+
+参考新闻：[Visa和万事达卡暂停俄业务 俄国银行转和中国合作](https://cn.theaustralian.com.au/2022/03/08/64333/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
