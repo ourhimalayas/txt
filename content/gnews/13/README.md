@@ -2,32 +2,45 @@
 ---
 
 
-## 中日财经爆┃日本对俄罗斯一万亿贷款 因制裁升级或将无法收回
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2131033/)
+## 乌克兰称在哈尔科夫击毙另一名俄将军
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2131093/)
 
-撰稿：东京樱花团/peterwong
+翻译：噜噜咪
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/日本对俄罗斯一万亿贷款-因制裁升级或将无法收回.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.reuters.com%2Fresources%2Fr%2F%3Fm%3D02%26d%3D20200501%26t%3D2%26i%3D1517122213%26r%3DLYNXMPEG402TU%26w%3D800&amp;imgrefurl=https%3A%2F%2Fwww.reuters.com%2Farticle%2Fus-coal-japan-jbic-climatechange-idUSKBN22D4MG&amp;tbnid=Ktbgkvsac3ZDKM&amp;vet=12ahUKEwi9zrzjvbj2AhXIhv0HHW2nAB0QMygFegUIARCuAQ..i&amp;docid=hbkNcS1bqvYOZM&amp;w=800&amp;h=582&amp;q=JBIC&amp;ved=2ahUKEwi9zrzjvbj2AhXIhv0HHW2nAB0QMygFegUIARCuAQ)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-835.png)图片来源：independentespanol.com
 
-俄罗斯军事入侵乌克兰没有停止迹象，国际社会因此加大对俄制裁，一直向俄罗斯放贷的日本金融机构担心因经济制裁而无法收回巨额贷款。
+乌克兰声称，它已经在哈尔科夫市的战斗中击毙另一名俄罗斯将军。
 
-日本对俄罗斯的贷款，包括以卢布计价的贷款，信贷余额约为1万亿日元。根据国际清算银行（BIS）和各金融机构的披露资料，估计约7000亿日元的为三菱UFJ、三井住友、瑞穗3Mega Bank和日本国际协力银行（JBIC）。其余部分由机构投资者通过信托银行持有。
+这个陷入困境的国家的国防部声称，其部队已经杀死了俄罗斯中央军区第41军的第一副指挥官维塔利·格拉西莫夫少将。
 
-金融机构急于收集信息，以期进一步收紧经济制裁和俄罗斯政府债券违约（违约）。如果美国和欧洲禁止从俄罗斯采购原油，相关企业的现金流将恶化。俄罗斯政府债券的违约也对拥有俄罗斯货币和卢布资产的俄罗斯公司的财务产生负面影响。
+该部周一宣布“占领军高级指挥人员中又有损失”。
 
-三菱日联除了天然气和原油开发业务外，主要从事物流维修业务的融资。一位高管表示，对俄罗斯大约60%的信贷来自海外业务合作伙伴，如果汇款方式关闭或业务合作伙伴因制裁扩大而破产，“将对业务绩效产生重大影响”。
+“在哈尔科夫附近的战斗中，俄罗斯军事领导人、少将、参谋长和俄罗斯中央军区第41军第一副司令维塔利·格拉西莫夫被杀。一些俄军高级军官也被杀或受伤。
 
-JBIC一直参与对当地银行和基金的投资和贷款，对俄罗斯的贷款和投资余额约为1345亿日元（截至2021年3月）。去年11月，它刚刚签署了一项超过2000亿日元的天然气开发“北极LNG2”贷款协议。该政策是如果贷款属于合同中包含的“制裁条款”，则暂停或收回贷款，但俄罗斯政府无法预料对制裁的反应，贷款已被暂时冻结。
+维塔利·格拉西莫夫参加了第二次车臣战争和俄罗斯在叙利亚的军事行动。他们补充说：“他获得了‘归还克里米亚’的奖章。”
 
-金融机构担心美国可能会加强对在美俄罗斯相关公司和个人的制裁。对伊朗实施的制裁阻止了美国财政部外国资产控制办公室(OFAC)指定的公司和个人进行以美元计价的交易和提取资产。如果对俄罗斯采取类似措施，与俄罗斯有关的贷款可能无法广泛收回，并且“有必要在发生损失的情况下确保额外成本，”一位兆丰银行高管表示。
+“获得的数据还表明，占领者的军队在通信方面存在重大问题，他们的破损部队的撤离也存在重大问题。”
 
-消息来源:
+最近一次备受关注的杀戮，是在俄罗斯第7空降师的指挥官和第41联合武器部队的副指挥官安德烈·苏霍维茨基被狙击手射杀后发生的。
 
-[１兆円のロシア向け融資、回収懸念…日本の金融機関は情報収集急ぐ](https://news.yahoo.co.jp/articles/2d7e736865ec2bdc43c8b28cc1d1abd68c43070c)
+普京在向俄罗斯人民通报冲突进展情况的讲话中证实，在致命入侵的八天后，一位将军被杀。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+俄罗斯声称其士兵有498人在乌克兰被杀，另有1597人受伤。
+
+然而，英国官员说，实际的死伤人数几乎肯定会高出很多，并将继续上升。
+
+乌克兰军队周一表示，俄罗斯正准备对该国的首都发动猛攻。
+
+乌克兰武装部队总参谋部说，俄罗斯军队在发动全面入侵后的一个多星期内未能夺取首都，“开始为攻打基辅积累资源”。
+
+素材链接：[independentespanol.com][Ucrania afirma haber matado a otro general ruso durante los combates en Kharkiv](https://www.independentespanol.com/noticias/general-ucrania-rusia-muerte-ejercito-b2030672.html?utm_source=redirect)
+
+* * *
+
+*审核：文乐
+校对：小东
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

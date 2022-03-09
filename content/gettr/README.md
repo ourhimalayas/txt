@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 10:47 AM (UTC)`
+
+【Ukrainian Rescue】03/08/22 Chinese husband and his Ukrainian wife rescued by NFSC and ROLF explains how they decided to leave Ukraine and take our rescue bus ASAP<br/><br/>【乌克兰救援】03/08/22 被新中国联邦和法治基金救援的中国男士及其乌克兰夫人讲述如何做出决定坐巴士尽快离开<br/>
+![img](https://media.gettr.com/group45/getter/2022/03/09/10/8fb31a9e-8d77-e611-9360-c97cb43cf755/out.jpg)
+
+---
+
+`@miles 3/9/2022 10:35 AM (UTC)`
+
+【Ukrainian Rescue】03/08/22 Chinese husband and his Ukrainian wife rescued by NFSC and ROLF expresses their gratitude<br/><br/>【乌克兰救援】03/08/22 被新中国联邦和法治基金救援的中国男士及其乌克兰夫人表达感激之情<br/><br/>
+![img](https://media.gettr.com/group39/getter/2022/03/09/10/22f7447d-c438-6501-027b-01e98e96926e/out.jpg)
+
+---
+
 `@miles 3/9/2022 10:18 AM (UTC)`
 
 
@@ -141,23 +155,6 @@ Due to the Chinese Communist Party manipulating our email service provider with 
 
 【UKRAINEHELP-004】<br/><br/>新中国联邦和法治基金关于紧急救援乌克兰的通知<br/><br/>Announcement of New Federal State of China & Rule of Law Foundation on Emergency Rescue of Ukraine<br/><br/>Оголошення про створення нової Федеральної Держави Китаю та Фонду верховенства права з надзвичайних ситуацій порятунку України<br/><br/>https://gnews.org/zh-hans/2115789/<br/><br/>24-hour Emergency Rescue Hotline (Phone/Text):<br/>+1 720-657-6776 OR <br/>+1 719-224-4232 OR<br/>+48 508-532-712 OR <br/>+48 508-531-518<br/><br/>Telegram: t.me/UkraineRescue<br/><br/>GETTR: gettr.com/user/UkraineRescue<br/><br/>E-mail: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com<br/>
 ![img](https://media.gettr.com/group9/getter/2022/03/08/19/cf570dcc-4900-396b-4304-662c51bb0f0d/5eb452a2ac1a9e2a00bcd201619bebfd.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@ddnyc 3/8/2022 7:15 PM (UTC)`
-
-We stand with our Ukrainian brothers and sisters during these trying times. Here @gfashion, we say yes to FREEDOM and PEACE and no to war and occupation!
-> `@gfashion 3/8/2022 1:17 PM (UTC)`<br/>We stand with peace, not war. 
-![img](https://media.gettr.com/group39/getter/2022/03/08/13/0be820b5-8374-c893-f2ba-3fd21d99c5be/d3ebea8c53d215fffc43b071b4d9a5e9.jpg)
-
----
-
-`@miles 3/8/2022 6:40 PM (UTC)`
-
-【UKRAINEHELP-004】<br/><br/>为应对乌克兰-波兰边境日益增多的撤离人员和难民，NFSC和法治基金(ROLF)宣布2022年3月15日免费专机的暂定行程，专机航线如下，有可能根据情况做出调整：<br/>1. 从波兰-热舒夫(Rzeszow)机场出发，经加拿大多伦多，前往美国纽约。<br/>2. 从波兰-热舒夫(Rzeszow)机场出发，直飞东南亚某国（待定）。<br/><br/>NFSC和ROLF提供免费专机，以帮助那些受俄罗斯非法入侵影响的人员，这是我们支持在被共产主义和专制政府统治的国家里争取自由的使命的一部分。<br/><br/>如果您需要搭乘我们的专机，请联系我们最新24小时服务热线。所有乘客必须满足其目的地的签证要求。如有需要，NFSC和ROLF将在出发前提供免费食宿。<br/><br/>由于中共控制了邮件服务商，意图破坏我们乌克兰救援行动，之前公布的网站和邮箱已被强行关闭，更新后的24小时紧急救援客服联系方式如下：<br/><br/>24小时客服热线（电话/短信）：<br/>+1 720-657-6776 或 <br/>+1 719-224-4232 或<br/>+48 508-532-712 或 <br/>+48 508-531-518<br/><br/>Telegram： t.me/UkraineRescue<br/><br/>盖特： gettr.com/user/UkraineRescue<br/><br/>邮箱： UkraineRescue01@protonmail.com 或 UkraineRescue02@protonmail.com <br/><br/>NFSC<br/>法治基金<br/>2022年3月8日
-![img](https://media.gettr.com/group12/getter/2022/03/08/18/2a3a4c78-a73b-bfe9-c865-81b48e1a3fed/bf8438731408b60f88add86c97561f40.jpg)
 
 ---
 

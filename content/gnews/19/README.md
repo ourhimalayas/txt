@@ -2,49 +2,24 @@
 ---
 
 
-## 由于俄罗斯入侵乌克兰最有可能面临饥饿危机的国家
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2130877/)
+## 中日财经爆┃东京原油期货时隔13年半首次突破8万日元水平
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2131013/)
 
-编译： Jenny Ball
+撰稿：东京樱花团/peterwong
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-817-edited.png)naturalnews.com
+![](https://assets.gnews.org/wp-content/uploads/2022/03/东京原油期货时隔13年半首次突破8万日元水平.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fss0.bdstatic.com%2F70cFuHSh_Q1YnxGkpoWK1HF6hhy%2Fit%2Fu%3D2004993622%2C3406733644%26fm%3D26%26gp%3D0.jpg&amp;imgrefurl=http%3A%2F%2Fwww.cindaqh.com%2Fa%2F20200212-29717.html&amp;tbnid=iq6sN9Umd2-F0M&amp;vet=12ahUKEwiWhPLsu7j2AhWQvKQKHZSHCWAQMyg3egQIARBM..i&amp;docid=y0Z0YWtZkmVHGM&amp;w=500&amp;h=333&amp;itg=1&amp;q=%E4%B8%9C%E4%BA%AC%E5%8E%9F%E6%B2%B9%E6%9C%9F%E8%B4%A7%20%E4%B8%AD%E4%B8%9C%E5%8E%9F%E6%B2%B9%E6%9C%9F%E8%B4%A7&amp;ved=2ahUKEwiWhPLsu7j2AhWQvKQKHZSHCWAQMyg3egQIARBM)
 
-自然新闻 – 战争，无论看起来与世界其他地方多么孤立，但由于全球经济的连通性，在现代具有世界范围的影响，因此，俄罗斯入侵乌克兰的不利影响超出那个区域，远非令人惊悚。
+3月9日，在东京商品交易所，由于买单聚集，中东原油期货暂时触及8万日元/千升的水平。这是自2008年8月以来（大约13年半）价格首次突破8万日元。
 
-鉴于俄罗斯作为主要石油出口国的地位，各国已经在经历能源价格的急剧飙升； 作为对克里姆林宫和总统普京的制裁制度的一部分，一些国家已暂停进口俄罗斯石油，以对他的行为惩罚。
+在美国拜登政府宣布全面禁止进口俄罗斯原油和其他商品作为对俄罗斯入侵乌克兰的额外制裁后，由于对供需紧张状况的担忧，原油期货价格飙升。
 
-但俄罗斯和乌克兰也是包括化肥和粮食在内的多种商品的主要出口国，冲突已经对两国的生产和出口造成影响，这将导致一些国家出现饥饿和粮食危机。
+消息来源:
 
-根据新的盖洛普数据，最脆弱的国家当然是那些最依赖俄罗斯和乌克兰生产的小麦的国家，这些国家的大部分人口，在战争爆发前已经难以负担得起食物。此外，包括埃及、肯尼亚和土耳其在内的名单上的几个国家，也在处于内部政治不稳定和冲突，这种情况只会使人民挨饿更加恶化。
+[東京市場の原油先物、１３年半ぶり８万円突破…米のロシア産禁輸受け急騰](https://www.yomiuri.co.jp/economy/20220309-OYT1T50208/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-815-edited.png)Credit: Gallup
-
-根据盖洛普的说法，奈及利亚、菲律宾、缅甸、摩洛哥、泰国、突尼西亚和印度尼西亚也在榜上，但受灾最严重的国家可能是北约成员国土耳其。
-
-“2019 年，土耳其从俄罗斯和乌克兰进口的小麦占其总进口的整整 75%，是最依赖这些国家资源的国家之一。2021 年，绝大多数土耳其人 (51%) 报告说，在过去 12 个月内买不起食物。土耳其目前的脆弱性，可能会因其挥之不去的经济危机和高通胀而进一步加剧，”该民意调查和数据公司报告说。
-
-但埃及无疑也会陷入困境，因为它还从乌克兰和俄罗斯进口近3/4的粮食。
-
-据布赖特巴特新闻周末报道，在即将到来的全球粮食短缺的情况下，中共国打算从美国购买更多粮食。
-
-该媒体报道称，中共国在 2020 年 1 月签署的一项为期两年的贸易协议中，同意购买的 400 亿美元美国农产品中，中国比 COVID-19 大流行提前了约 60 亿美元。然而，中共突然开始弥补部分赤字，因为上周智通( ChiCom) 的买家争相弥补乌克兰谷物和玉米产量可能出现的短缺。
-
-该媒体援引《南华早报》的一篇报道称，“中共国最近订购了 10 批美国玉米，外加 20 批美国大豆，以弥补来自巴西的短缺。这些交易显然不打算公开，因为它们是由要求保持匿名的交易员向《南华早报》披露的。”
-
-“食品安全是北京的重中之重，因为该国玉米、大豆和小麦的进口量飙升至创纪录水平，增加了其对贸易紧张局势和供应冲击的脆弱性。由于对黑海贸易中断的担忧，高级官员已发布命令确保商品供应，”《南华早报》补充道。
-
-饥饿加上国内动乱是等待战火的火药桶。在乔·拜登的掌舵下，世界变得不那么安全了。
-
-素材链接：【naturalnews.com】[Here are the countries most likely to face hunger crises thanks to Russia’s invasion of Ukraine](https://www.naturalnews.com/2022-03-07-countries-most-likely-face-hunger-crises-ukraine-invasion.html)
-
-* * *
-
-审核：文乐
-校对：花羽
-发布：花羽
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-5.jpeg)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
