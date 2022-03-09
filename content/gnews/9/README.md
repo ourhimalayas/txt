@@ -2,41 +2,52 @@
 ---
 
 
-## 纽约CBS转播车与法治基金直播中心为邻
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2129508/)
+## 关于加密货币拜登即将发布行政命令
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2129547/)
 
-作者: 香草山写作组-静言
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-46.png)
-3月8日，从波兰与乌克兰交界的难民营，法治基金乌克兰救援队直播中心Nicole传来消息，在战友直播车旁边，有辆相对小型，但顶上安装着卫星通信设备的车，Nicole上前与忙碌着的几位男士打招呼，发现他们是全球第三大联播网的纽约CBS的转播车。他们表示已经来此处两天了，明天早晨早间新闻主播Tony将来现场，与他们在纽约的总部连线。
+#### 翻译：文扬
+编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2761.jpg)
+#### 【雅典娜观察】和您一起洞察世界
 
-难民营现场还有许多新闻转播车与新闻从业人员，等候着报道各种现况。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/s.jpg)图片来源：Vox & 雅典娜设计组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2762.jpg)
 
-Nicole现场采访了一名来自德国柏林的法国战地记者Emma，这位受雇于英国时尚杂志I-D的女士，大学专业是国际政治。当Nicole向Emma介绍自己是法制基金与新中国联邦救援队一员时，Emma兴奋地说，她知道新中国联邦，表示很高兴见到法制基金赞助的救援队来救助乌克兰难民。当Nicole 继续传达新中国联邦救人的正道主义理念，而CCP是一个不顾自己人民死活的独裁政权时，这位来自德国的年轻记者，与Nicole 同声喊出：Take down the CCP！
+乔·拜登总统预计在本周将签署一项关于加密货币的行政命令，这将标志着美国在监管数字货币交易方面迈出了第一步。
 
-新闻链接：
+国际社会的持续制裁使俄罗斯卢布跌至历史低点，并导致其股市关闭。近几周俄罗斯使用加密货币来逃避针对其入侵乌克兰的严厉制裁的影响，该项行政命令出台体现了美国政府对于这方面的担忧。
 
-[https://gettr.com/post/pyxncs95d4](https://gettr.com/post/pyxncs95d4)
+熟悉流程的内部人士说，关于加密货币的行政命令预计将在本周发布，而且早在乌克兰开战前就已经在制定中。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-23.jpg)
+预计该命令将规范政府机构的工作，制定数字货币的政策和法规。预计将要求国务院确保美国加密货币法律与美国盟友的法律保持一致，并将要求监督美国金融体系稳定性的金融稳定监督委员会研究非法金融问题。
 
-编辑/校对/发稿：遍地开花
+此外，该命令将探讨新的中央银行数字货币的可能性。美联储在1月份发布了一份关于该主题的文件，探讨了美国支持的数字货币的风险和好处。
 
-**更多资讯，更多关注**
+该命令中隐含的意思是，加密货币将在未来几年内继续成为美国经济的一部分。彭博新闻首先报道了白宫推进行政命令的计划。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+虽然美国官员淡化了加密货币对俄罗斯逃避制裁能力的重要性，但它仍然是一个令人关切的问题。
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+“我们将继续研究制裁的运作方式，并评估是否有遗漏的地方，我们有可能解决这些问题”，财政部长耶伦上周说：“我经常听到有人提到加密货币，这是一个需要关注的渠道。”
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+一位不愿透露姓名的高级政府官员表示，**总统的国家安全团队已经在关注莫斯科可能试图利用这些公司和替代金融机构来规避制裁的情况**。
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+在拜登政府试图确保对俄罗斯的制裁产生最大效果的过程中，加密货币是拜登政府正在寻求关注的几个领域之一。这位官员说，**过去在伊朗和委内瑞拉逃避制裁的经历为政府的努力提供了参考。该官员说，预计在未来几天和几周内还将公布更多的出口管制和新的制裁目标，以应对俄罗斯逃避制裁的行为。**
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-45.png)
+周一，财政部的金融犯罪执法网络发布警报，**建议金融机构“警惕”任何逃避与俄罗斯在乌克兰战争有关的制裁行为。**
+
+代理主任希姆·达斯在一份声明中说：“虽然我们没有看到利用加密货币等方法广泛逃避我们的制裁，但及时报告可疑活动会有助于我们的国家安全和我们支持乌克兰及其人民的努力。”
+
+原文链接： [Biden executive order on cryptocurrency expected this week – ABC News (go.com)](https://abcnews.go.com/Business/wireStory/biden-executive-order-cryptocurrency-expected-week-83307419)
+
+发布：Frank2021
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

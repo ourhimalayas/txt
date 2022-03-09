@@ -2,58 +2,25 @@
 ---
 
 
-## 新西兰财经G乐部2022年3月8日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2124846/)
+## 香港疫情｜港大医学院料确诊数达顶峰 累计感染达184万人
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2125501/)
 
-采集整理：蚂蚁的城堡
+港大医学院的最新模型推算，每日新增感染人数于3月4日已达顶峰，预料截至3月7日，全港累计感染人数已达184万人，而确诊数字将在4月23日首次降至1,000宗以下。
 
-**提纲：**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xveEtpYQ0y13d77l_ynY3q2EiiFCpUUwSc9Rv0nPUb8.jpg)图片来源：香港01
 
-1、又有房企票据违约：禹洲集团展期30日后出现利息违约，未偿还本金5亿美元
+医学院形容，中共病毒已在社区中广泛扩散，现阶段当务之急是减低重症和死亡个案。另外，模型预测截至5月1日，第五波疫情总感染人数为430万人，总死亡人数为5,008人。
 
-2、欧洲天然气一度暴涨近80%，相当于超600美元油价！
+简评：模型预测截至5月1日，疫情总感染人数为430万人，多么可怕的数字！郭文贵先生爆料称，中共病毒疫苗灾难还远没有到来，5月份是一个时间节点。对面疫情与疫苗真相，当全球的媒体陷入沉默，只有新中国联邦最早说出了真相！面对越来越严重的疫情，抓紧服用新中国联邦推荐的解药，救人第一，刻不容缓！
 
-3、芝加哥小麦期货创新高，内盘镍、不锈钢涨停
+新闻来源：[香港01](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/744477/%E7%96%AB%E6%83%85-%E6%B8%AF%E5%A4%A7%E9%86%AB%E5%AD%B8%E9%99%A2%E6%96%99%E7%A2%BA%E8%A8%BA%E6%95%B8%E5%AD%97%E5%B7%B2%E9%81%94%E9%A0%82%E5%B3%B0-%E7%B4%AF%E8%A8%88%E6%84%9F%E6%9F%93%E4%BA%BA%E6%95%B8%E9%81%94184%E8%90%AC%E4%BA%BA)
 
-4、俄罗斯警告可能切断通过北溪一号向德国输送的天然气
+撰稿/发布：一叶知秋
 
-5、FinCEN将加密货币纳入关于俄罗斯可能规避避制裁的警告中
-
-**正文**
-
-**1、又有房企票据违约：禹洲集团展期30日后出现利息违约，未偿还本金5亿美元**
-![img](https://media.gettr.com/group45/origin/2022/03/08/02/893a94dc-8845-1350-5b01-ba289f9ccd2a/5f5fb52604678dc84caf40bc73e4869e_500x0.png)
-禹洲集团发布公告，本公司发行的并于联交所上市的2023年到期的8.5%优先票据（股份代号05719）（2023年票据II）的利息2125万美元，已于2022年2月4日到期应付。根据2023年票据II的信托契 据，本公司有30天宽限期支付利息以避免违约事件。宽限期现已届满而本公司并无于届满前支付有关款项。
-
-链接：[https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-08/doc-imcwipih7225659.shtml](https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-08/doc-imcwipih7225659.shtml)
-
-**2、欧洲天然气一度暴涨近80%，相当于超600美元油价！**
-![img](https://media.gettr.com/group47/origin/2022/03/08/02/1ef754b8-1e85-d5dc-070c-e7917f673bac/52ded0f71978cfbd3fc50e4a01a9112e_500x0.png)
-3月7日，欧美各国针对俄罗斯的制裁措施继续“颠覆”着商品市场，能源商品价格继续“惊人地”上涨。在这个混乱异常的交易日中，欧洲天然气基准价格一度狂飙79%至345欧元/兆瓦时（MWh），创历史新高；同时，国际油价也刷新历史记录，布伦特原油开盘暴拉，一度拉升至130美元上方，美国WTI原油期货价格一度突破每桶130美元，两者均刷新2008年以来的新高。
-
-链接：[https://wallstreetcn.com/articles/3653558](https://wallstreetcn.com/articles/3653558)
-
-**3、芝加哥小麦期货创新高，内盘镍、不锈钢涨停**
-![img](https://media.gettr.com/group9/origin/2022/03/08/02/14f44913-fa59-9da5-65d4-bae2d9c34272/e8b81cf1244123f001046aef5f5606ae_500x0.png)
-3月8日周二，受到俄乌冲突持续升级的影响，市场担忧供应风险，芝加哥小麦期货盘中价格涨至历史新高，超过了2008年全球粮食危机期间的高点。近两周以来，由于俄乌冲突有效地切断了全球超过四分之一的小麦供应，小麦期货价格累计飙升了超过60%，全球食品成本已经升至创纪录水平。
-
-链接：[https://wallstreetcn.com/articles/3653634](https://wallstreetcn.com/articles/3653634)
-
-**4、俄罗斯警告可能切断通过北溪一号向德国输送的天然气**
-![img](https://media.gettr.com/group14/origin/2022/03/08/03/0f23e6eb-817b-0839-87ef-db17d5dc5b3f/3e57cab2cecc75ad018c48b6535a3d57_500x0.png)
-路透3月7日 – 俄罗斯副总理诺瓦克(Alexander Novak)周一表示，俄罗斯可能会切断通过北溪一号管道向德国输送的天然气，但尚未做出这样的决定。“鉴于有关欧洲能源危机对俄罗斯毫无根据的指控，以及对北溪二号实施的禁令，我们有权采取相应决定，对北溪一号天然气管道实施天然气禁运,”诺瓦克在在国家电视台播出的一份声明中说。“但到目前为止，我们还没有做出这样的决定，”他说。
-
-链接：[https://cn.reuters.com/article/russia-novak-nord-stream-1-shut-0308-idCNKBS2L506X?il=0](https://cn.reuters.com/article/russia-novak-nord-stream-1-shut-0308-idCNKBS2L506X?il=0)
-
-**5、FinCEN将加密货币纳入关于俄罗斯可能规避避制裁的警告中**
-![img](https://media.gettr.com/group44/origin/2022/03/08/03/a490fc97-4fb4-ccc6-b216-6358e671682f/506a3191e6696c1eb489bf5dc9562605_500x0.png)
-美国财政部下属机构美国金融犯罪执法网络(FinCEN)已经警告金融机构将加密货币视为俄罗斯试图用来规避与该国在乌克兰军事行动有关的制裁的一种可能手段。在周一的警告中，FinCEN提醒“了解加密货币”和可兑换虚拟货币（CVC）的美国金融机构，要报告任何可能被认为是俄罗斯逃避美国及其盟友实施的制裁的潜在方式的活动。虽然该美国监督机构表示，俄罗斯政府利用CVC来逃避大规模制裁“不一定可行”，但金融机构有义务报告来自俄罗斯和白俄罗斯个人的此类活动。
-
-链接：https://www.fincen.gov/news/news-releases/fincen-provides-financial-institutions-red-flags-potential-russian-sanctions
-
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
-
-上传排版：文勇
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

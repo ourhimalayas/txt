@@ -2,23 +2,13 @@
 ---
 
 
-## 【秘翻新视野】社交媒体：现代战争的新阵地
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2125038/)
+## 辉瑞根据法院令被迫公布提交给食药局疫苗副作用数据
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2125820/)
 
-**By:[秘翻新视野](https://gettr.com/post/pyrvev5e6a)**
+03/05/2022 马龙博士：辉瑞公司根据法院命令被迫公布他们提交给食药局的疫苗副作用和伤害数据，这些数据本来要向公众隐瞒75年，其中副作用列表长达9页！这可能会允许人们对他们进行法律诉讼，因为他们欺诈和对公众隐瞒这些风险。
 
-**[2022-03-08](https://gettr.com/post/pyrvev5e6a)**
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-**今日主题：**
-
-1.**社交媒体：现代战争的新阵地**
-
-**🔗Gettr：**[https://gettr.com/post/pyrvev5e6a](https://gettr.com/post/pyrvev5e6a)
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
