@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 9:20 AM (UTC)`
+
+【Ukrainian Rescue】03/08/22 David interviews a Chinese husband and his Ukrainian wife rescued by NFSC and ROLF in Krakow, Poland. Rescued man: I am very grateful. This rescue work is very well arranged. I really hope that the war will end soon, and we need peace.  We don't need more innocent lives being insulted and wasted.<br/><br/>【乌克兰救援】03/08/22 大卫在克拉科夫汽车站采访被新中国联邦和法治基金救援的中国男士及其乌克兰夫人。被救男士：我充满感激。这一个救援工作安排得非常的不错。我非常希望战争快点结束，我们要和平。我们不要看到更多无辜的生命被糟蹋。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group49/getter/2022/03/09/09/f87c2715-d53f-8552-0870-6f75258466ed/out.jpg)
+
+---
+
 `@miles 3/9/2022 9:08 AM (UTC)`
 
 【Ukrainian Rescue】03/08/22 David interviews a Chinese husband and his Ukrainian wife rescued by NFSC and ROLF in Krakow, Poland. In this global rescue operation of the New Federal State of  China and the Rule of Law Foundation, we especially hope that lovers can stay together.<br/><br/>【乌克兰救援】03/08/22 大卫在克拉科夫汽车站采访被新中国联邦和法治基金救援的中国男士及其乌克兰夫人。我们这次全球法治基金新中国联邦这救助行动，特别希望有情人能够在一起。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
@@ -151,13 +158,6 @@ We stand with our Ukrainian brothers and sisters during these trying times. Here
 
 【Ukraine Rescue】03/08/2022 A violin teacher Hannah prays for the 96 children rescued by the NFSC from Ukraine and to be sent on their journey to Barcelona, Spain.<br/><br/>【乌克兰救援】03/08/2022 一位小提琴老师汉娜：为新中国联邦在乌克兰救出的96个孩子并将他们送往巴塞罗那的旅途祈祷<br/>
 ![img](https://media.gettr.com/group31/getter/2022/03/08/17/6119f61f-851a-d2a4-098f-33055ab30be7/out.jpg)
-
----
-
-`@miles 3/8/2022 3:03 PM (UTC)`
-
-3月8号：尊敬的战友们好．俄乌战争，让世界看清了中国共产党的丑恶……和危险，唤醒了无数的中国人，新中国联邦人正在俄乌战场，拯救着乌克兰的妇女和孩子……和中国同胞。我们一定让世界更多的人知道中国共产党不等同于中国人。
-![img](https://media.gettr.com/group29/getter/2022/03/08/15/9c81a268-9680-cdf9-a56e-7483498566a4/out.jpg)
 
 ---
 

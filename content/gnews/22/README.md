@@ -2,20 +2,24 @@
 ---
 
 
-## 有声｜香港疫情失控！一成警察染疫 医院在临终病人床下塞尸袋
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2130679/)
+## 有声｜麦当劳宣布暂时关闭在俄847家门店
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2130731/)
 
 By:**秘翻新闻**
 
 **2022-03-09**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-17.png)图片来源 阿波罗新闻网
-[据《阿波罗新闻网》3月9日报道，香港疫情失控，死亡率飙升，一向领先全球的医疗体系已崩溃。医院尸体无处摆放，被塞到濒死病患的床下。警察系统也有一成人员染疫。](https://www.aboluowang.com/2022/0309/1718380.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-15.png)图片来源 路透社
+[《路透社》纽约3月8日报道，周二麦当劳公司宣布，将暂时关闭包括普希金广场在内的在俄所有的847家门店。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
-[在过去一周内，香港连续数日的单日新冠死亡人数都在百人以上，死亡率激增3倍，一跃成为全球发达地区中死亡率最高者。截至3月6日，以每百万人口计，香港的平均死亡人数为25.5，是美国的6倍，远超日本、韩国和新加坡等国。](https://www.aboluowang.com/2022/0309/1718380.html)
+[报道指出，麦当劳餐厅的关闭在俄罗斯也具有重要的象征意义。麦当劳1990年在莫斯科市中心开设的第一家分店，在苏联解体后成为美国资本主义繁荣的象征。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
-[面对疫情飙升，港共政府仍在执行北京的“动态清零”政策，强推所谓的“全员检测”。不过，官方强制检疫所依赖的香港警队，也面临大规模感染的困境。感染人数从两周前的三百人跃升至三千多人，约占警察系统的10%。](https://www.aboluowang.com/2022/0309/1718380.html)
+[麦当劳表示，虽然俄罗斯所有门店被关闭，但是仍会继续向俄罗斯的6.2万名员工支付工资。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
-秘翻新闻 巴拉克 编辑报道
+[与此同时，连锁咖啡店星巴克也宣布暂时关闭门店，百事可乐停止销售其软饮料品牌，可口可乐停止在俄罗斯的业务。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
+
+[马萨诸塞大学政治学教授马斯格雷夫说，麦当劳的关闭表明，西方对俄罗斯迅速而广泛的制裁将产生持久的经济影响。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
+
+秘翻新闻 冰糖葫芦喵编译报道
 
 发布 : 恩典
 

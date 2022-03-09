@@ -2,34 +2,25 @@
 ---
 
 
-## 波兰：目前超106万人逃离乌克兰，涌入波兰避难
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2130818/)
+## 国际｜壳牌宣布将退出所有俄罗斯石油、天然气业务
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2130843/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**撰文/ 港台前线｜发布日期/ 09/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-13.png)**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+當地时间8日，壳牌(Shell plc )官网发出公告，表示将有阶段性的退出所有在俄罗斯的石油、石油产品、天然气、液化天然气等业务，并停止采购俄罗斯石油。此外，壳牌将关闭在俄罗斯的加油站、航空燃料及润滑油业务。。
 
-整理/编辑：小鱼儿
+壳牌称“意识到上周购买的一批俄罗斯原油，以提练成汽油和柴油等产品….这是不正确的….我们将提供一个专门的基金在未来几天和几周内与援助伙伴、人道主义机构合作，确保用于减轻俄乌战争带给乌克兰人民的可怕后果。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-93.png)图片来源：雅典娜设计组&timesofisrael
+該公司明确表达，除政府指示外，将
 
-
-据日本国际传媒(NHK WORLD-JAPAN)3月8日报道，波兰内务与行政部透露，自俄军2月24日发动军事入侵以来，截止3月6日已有106万7000人涌入波兰。
-
-3月6日，单日入境人数达14万2300人，是俄军入侵以来人数最多的一天。当地天气寒冷，即便是白天气温也接近零度。
-
-同时，据联合国难民署（UNHCR）统计，截至3月6日，已有173万5000人从乌克兰前往国外避难。除波兰以外，还有18万人涌入匈牙利，将近13万人抵达斯洛伐克，8万人抵达摩尔多瓦。
-
-参考新闻：[逾106万人从乌克兰涌入波兰避难](https://www3.nhk.or.jp/nhkworld/zh/news/353377/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+1. 立即停止购买俄罗斯原油现货，且不会续签定期契约。
+2. 与政府协商后，将尽快改变公司的原油供应链，减少对俄罗斯的需要。但在过程中可能导致本公司产品的产量下降。
+3. 将立刻着手关闭我们在俄罗斯的加油站、航空燃料和润滑油业务。
 
 
+其他更详细资讯，均载于该公司官方网站声明之中，一切以官网意思为主。
+
+來源｜[shell](https://www.shell.com/media/news-and-media-releases/2022/shell-announces-intent-to-withdraw-from-russian-oil-and-gas.html)
 
  
 
