@@ -2,73 +2,29 @@
 ---
 
 
-## 中共尚在没有假日
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2131479/)
+## 《历史的今天》2022.03.09
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2131597/)
 
-作者：香草山健身部-新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-好几年没好好看电视剧了，
-好几年没摸麻将牌了，
-好几年没跟姐妹们玩耍了，
-那个别人眼里死了都得带上麻将牌的人死了，
-换来的是日夜磨练力求上进，
-脱胎换骨满怀喜悦的我，
-七八年的文化知识，
-能用的词句太狭隘，
-有时就想不要重复词句，
-一句词几个字会想上半天，
-久不动用的大脑会想的头晕，
-只有大量的翻阅增加知识，
-现学现用开拓思路
-有时因为需要知道文学界的意向，
-花时间翻阅公众号，
-更离不开新中国联邦的时事、新闻，
-灭共的工作也一刻都不想放松，
-随着不断努力得到的提升，
-我对知识一年比一年来的更加的渴望，
-我盯手机的时间超过了眼睛的承受能力，
-疲倦是我这几天想逃避工作的原因，
-我也想去打牌求劳逸，
-可我知道哪里能够休息呢，
-共产党不倒，
-就算眼睛休息了，心也不肯休息，
-更何况离开了手机，
-我就进入了荒芜的世界，
-离开了手机我就迷茫了心田，
-更害怕玩一次麻将就会出现无数次，
-我憎恨玩物丧志，
-我讨厌原地踏步，
-共产党不倒，哪能出现这闲情逸致。
-哪一个战友不是超负荷工作，
-每一个都身兼数职，
-新中国联邦人竟然没有一个人叫苦，
-不分能力，不分等级，众志成城，
-只为同一个理想，灭共！
-这真是亘古未有！
-期望早一点歼灭中国共产党，
-等胜利了，放松了，
-就享受七哥打造的财富帝国生活，
-去旅游，去吃天下所有的美食，
-再去访师交友，
-学一些散文，学一学诗词，
-等那时写一写美好生活，
-记录快乐时光、幸福心情，
-早灭中国共产党，
-念念不忘必有回响！
+作者：虎子哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-33.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/B-29.jpg)[图片来源](https://www.google.com.sg/url?sa=i&amp;url=https%3A%2F%2Fwww.bilibili.com%2Fvideo%2FBV11W411577a%3Ffrom%3Dsearch%26seid%3D18396113630204332130&amp;psig=AOvVaw1UT2alKYOQxFpqPdSIGIk7&amp;ust=1646891151910000&amp;source=images&amp;cd=vfe&amp;ved=0CAgQjRxqFwoTCPD92-GpuPYCFQAAAAAdAAAAABAK)
 
-审核/编辑/发稿:qiutian（邱甜）
+1. 1776年：苏格兰经济学家亚当•斯密的著作《国富论》正式出版，奠定现代经济学的基础。
+2. 1847年：美墨战争：美军自韦拉克鲁斯入侵墨西哥。
+3. 1862年：南北战争：分别隶属美利坚合众国和美利坚邦联的两艘铁甲舰在维吉尼亚州汉普顿锚地展开首次作战。
+4. 1896年：由于在阿杜瓦战役中败于阿比西尼亚，意大利弗朗西斯科•克里斯皮内阁倒台。
+5. 1908年：意大利国际米兰足球俱乐部成立。
+6. 1916年：英法签署协定，瓜分中东。
+7. 1932年：爱新觉罗•溥仪正式就任满洲国政府执政。
+8. 1945年：第二次世界大战：美军派出334架B-29轰炸机从马里亚纳群岛出发轰炸东京，造成近10万人死亡。
+9. 1984年：世界上第一只“试管羔羊”诞生，由中国蒙古族兽医学博士旭日干与日本农林水产省畜产试验场共同培育。
+10. 2006年：卡西尼-惠更斯号发现土卫二有液态水，及二氧化碳、氮和甲烷的特征。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+*发布：Theodosia*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
