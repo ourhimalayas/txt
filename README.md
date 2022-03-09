@@ -15,53 +15,53 @@
 
 ---
 
-### [拜登将发布关于数字货币的行政命令](/content/gnews/1/README.md)
+### [加拿大房地产市场可能接近转折点](/content/gnews/1/README.md)
+ ` MG FARM`
+
+### [美国运通宣布暂停其在俄业务](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [拜登将发布关于数字货币的行政命令](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [麦当劳及星巴克等餐饮巨头宣布撤出俄罗斯](/content/gnews/2/README.md)
+### [麦当劳及星巴克等餐饮巨头宣布撤出俄罗斯](/content/gnews/4/README.md)
  ` 澳喜特战旅Gnews`
 
-### [新中国联邦在波兰难民救助站设下最大救援帐篷](/content/gnews/3/README.md)
+### [新中国联邦在波兰难民救助站设下最大救援帐篷](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [研究表明轻微的CCP病毒感染也会导致大脑出现变化](/content/gnews/4/README.md)
+### [研究表明轻微的CCP病毒感染也会导致大脑出现变化](/content/gnews/6/README.md)
  ` 澳喜特战旅Gnews`
 
-### [逃离乌克兰的中共国学生抨击大使馆应对迟缓](/content/gnews/5/README.md)
+### [逃离乌克兰的中共国学生抨击大使馆应对迟缓](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国禁止俄罗斯石油进口](/content/gnews/6/README.md)
+### [美国禁止俄罗斯石油进口](/content/gnews/8/README.md)
  ` 澳喜特战旅Gnews`
 
-### [文贵大直播 3/9 中共破坏国际大救援&#8212;&#8212;不是谋杀是屠杀](/content/gnews/7/README.md)
+### [文贵大直播 3/9 中共破坏国际大救援&#8212;&#8212;不是谋杀是屠杀](/content/gnews/9/README.md)
  ` 秘密翻译组-原创组`
 
-### [《铁锁梦》揭露出中共套在中国人乃至全人类头上的枷锁](/content/gnews/8/README.md)
+### [《铁锁梦》揭露出中共套在中国人乃至全人类头上的枷锁](/content/gnews/10/README.md)
  ` 蓝莲花农场`
 
-### [中共批《纽约时报》为俄洗地，其丑恶嘴脸继续刷屏](/content/gnews/9/README.md)
+### [中共批《纽约时报》为俄洗地，其丑恶嘴脸继续刷屏](/content/gnews/11/README.md)
  ` 波士顿五月花农场`
 
-### [美国选举诚信律师团体正成为亲共团体的目标](/content/gnews/10/README.md)
+### [美国选举诚信律师团体正成为亲共团体的目标](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌克兰大救援中的善恶与因果](/content/gnews/11/README.md)
+### [乌克兰大救援中的善恶与因果](/content/gnews/13/README.md)
  ` 波士顿五月花农场`
 
-### [妇女节当天世界为铁链女发声](/content/gnews/12/README.md)
+### [妇女节当天世界为铁链女发声](/content/gnews/14/README.md)
  ` NFSC News`
 
-### [喜悦辣评——第03期](/content/gnews/13/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [布林肯表示，北约国家就向乌克兰派遣战斗机“开绿灯”](/content/gnews/14/README.md)
+### [布林肯表示，北约国家就向乌克兰派遣战斗机“开绿灯”](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [韩国前海军特战队军官志愿奔赴乌克兰前线](/content/gnews/15/README.md)
+### [韩国前海军特战队军官志愿奔赴乌克兰前线](/content/gnews/16/README.md)
  ` NFSC News`
-
-### [FDA败诉德州，坐实了中共病毒疫苗是毒东西](/content/gnews/16/README.md)
- ` DC政经`
 
 ### [泽连斯基拒绝普京的最后通牒](/content/gnews/17/README.md)
  ` NFSC News`
@@ -75,26 +75,26 @@
 ### [新中国联邦法制基金乌克兰人道救援行动（五）](/content/gnews/20/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [救援集结号！多伦多13位战友安全抵达华沙](/content/gnews/21/README.md)
- ` 蓝莲花农场`
-
-### [有声|佛州将反对为健康儿童接种中共病毒疫苗](/content/gnews/22/README.md)
+### [有声|佛州将反对为健康儿童接种中共病毒疫苗](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|郭先生提醒墙外战友提防排华袭击](/content/gnews/23/README.md)
+### [有声|郭先生提醒墙外战友提防排华袭击](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [美国汽油价格再创历史新高](/content/gnews/24/README.md)
+### [美国汽油价格再创历史新高](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [【 G时新闻 】美议员提出《独裁者法案》调查中共支持俄入侵乌克兰](/content/gnews/25/README.md)
+### [【 G时新闻 】美议员提出《独裁者法案》调查中共支持俄入侵乌克兰](/content/gnews/24/README.md)
  ` G-时新闻`
 
-### [有声|中共破坏乌克兰人道救援 天理难容](/content/gnews/26/README.md)
+### [有声|中共破坏乌克兰人道救援 天理难容](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [有声|法制基金乌克兰救援美国第二团队抵达波兰](/content/gnews/27/README.md)
+### [有声|法制基金乌克兰救援美国第二团队抵达波兰](/content/gnews/26/README.md)
  ` MOSREC`
+
+### [2022年3月9日郭先生大直播 文字同步精要](/content/gnews/27/README.md)
+ ` 焦點20分`
 
 ### [扒皮中共特级战斗英雄－黄继光](/content/gnews/28/README.md)
  ` 军情启示录`

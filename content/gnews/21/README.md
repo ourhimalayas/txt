@@ -2,21 +2,37 @@
 ---
 
 
-## 救援集结号！多伦多13位战友安全抵达华沙
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2132694/)
+## 有声|佛州将反对为健康儿童接种中共病毒疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132693/)
 
-新中国联邦乌克兰人道大救援集结号！从多伦多出发的13位战友于美东时间3月8日晚11点起飞了，经过8个多小时的飞行已安全抵达华沙 ，德国正义农场的农场主文耀战友前来热情接机！救人第一！新中国联邦在行动！
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月7日，由于联邦卫生官员批准并鼓励在5岁的儿童中使用辉瑞公司的疫苗，佛罗里达州卫生部长约瑟夫·拉达波博士在州长德桑蒂斯组织的一次圆桌会议上表示，该州将正式提议，反对为健康儿童提供中共病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-4.jpeg)
+尽管有专家担心这项反对措施可能使父母对从儿科医生、美国儿科学会和疾病控制中心听到的信息产生质疑，但拉波达认为，一般情况下，儿童比成人转为重症的可能性低很多，即使不幸患病，也应该因人而异进行量化与个性化的治疗。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-11.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-5.jpeg)
+二月底，拉达波和德桑蒂斯已经宣布了新的政策建议，不鼓励戴口罩，并指示医生在治疗病毒患者时行使自己的判断力，包括使用新兴疗法和标签外药物。
 
 
-撰稿/发布：一叶知秋
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+文字版原文：[佛州将反对为健康儿童接种中共病毒疫苗](https://gnews.org/zh-hans/2130001/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
