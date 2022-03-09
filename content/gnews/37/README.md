@@ -2,50 +2,29 @@
 ---
 
 
-## 新中国联邦法制基金乌克兰救援团建战地新闻直播中心
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2131596/)
+## 俄罗斯特工称乌克兰战争“彻底失败”
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2131515/)
 
-作者：香草山农场写作组 – 静言
+翻译整理：意大利罗马达芬奇农场 Shuizhuyu
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/db0d5c20-4a3a-4ec3-9583-3545fa81324f_w948_r1.778_fpx44_fpy48.jpg)
 
 
+图片来源： Spiegel
 
-3月8日，新中国联邦法治基金乌克兰救援队前线发回简讯，参与救援的各个分队会有明确分工。
+据英国《泰晤士报》报道，俄罗斯特勤局 FSB 正在高度关注乌克兰入侵事件。 该报援引一位 FSB 举报人的话说，他在俄罗斯反对派人士泄露的一份文件中批判性地总结了这场战争。
 
-华盛顿农场阿丙团队将前往波兰与乌克兰交界的小镇Medyka, 建立战地新闻直播中心，此镇是乌克兰人逃生必经之地。昨天刚刚到达的洛杉矶团队负责人明道，负责Medyka的战地新闻报道。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture-27.jpg)
-鉴于目前乌克兰局势日益恶化，新中国联邦救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
-自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发前往波兰。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
-求助方式请参考以下视频。
+一位FSB内部人士表示，这场战争是一场“彻底的失败”，俄罗斯目前的处境堪比纳粹德国的衰落。 这份 13,000 字的文件由俄罗斯人权活动家弗拉基米尔·奥舍金 (Vladimir Osechkin) 在 Facebook 和反腐败网站 Gulagu.net 上发布。 研究平台 Bellingcat 将其归类为真实的。 因此，FSB 的另外两个消息来源“毫无疑问”该报告是由一位同事撰写的。 但是，无法独立验证其真实性。
 
-意大利文科团队将在Medyka 指挥营救行动。
+案文本身就说明了一切：FSB 基本上对克里姆林宫首席弗拉基米尔·普京的入侵计划一无所知。 即使是现在，在入侵开始十二天后，特勤局仍缺乏基本信息。 克里姆林宫没有人能准确说出俄军究竟有多少人死亡，因为“我们与重要部门失去了联系”。 因此，很可能已经有超过10,000名士兵死亡。 官方称，俄罗斯国防部表示死亡人数不到 500 人。
 
-当地时间8日早晨还有另外一条喜讯，在救援队前往乌克兰边境救援的路上，看见一辆有红十字会标记的大巴往乌克兰边境开去。连日来辛苦疲惫且孤单营救的新中国联邦战友们，心里感到无比温暖，愿更多正义力量加入营救乌克兰难民的阵营。
+俄罗斯联邦安全局分析师对战争的进一步进程给出了悲观的画面。 例如，俄罗斯“没有出路”：“没有可能的胜利，只有失败。”俄罗斯军队必须与非常顽固的乌克兰人作战。 即使普京的主要目标之一——杀死乌克兰总统泽连斯基——实现了，俄罗斯也几乎没有机会占领乌克兰。 “即使乌克兰人的抵抗最小，我们也需要超过 500,000 人，这还不包括补给和后勤。”
 
-参考链接：
-[新中国联邦和法治基金关于紧急救援乌克兰的通知](https://gettr.com/post/pyw9zs571a)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+🔗 [俄罗斯特工称乌克兰战争“彻底失败”](https://www.spiegel.de/ausland/ukraine-krieg-russischer-geheimdienstler-bezeichnet-invasion-angeblich-als-totalversagen-a-952c94f9-d213-4acc-8689-ff1bc4a758de?utm_source=pocket-newtab-global-de-DE)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+编辑发表：Shuizhuyu
 
  
 

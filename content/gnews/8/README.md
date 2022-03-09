@@ -2,56 +2,38 @@
 ---
 
 
-## 市中心办公室删除了重返工作岗位的海报
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2133230/)
+## 日国防大臣岸信夫会见乌克兰驻日大使
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2133287/)
 
-作者：Abby Neufeld
-翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-98.png)
-多伦多市中心的一座办公楼挂起海报，欢迎员工回到办公室，却意外遭到强烈的反对，最后只能将其撤下。
+**编译：文舞两道**
 
-这些海报由Oxford Properties管理公司放置在市中心湖滨区Bay街20号的大楼大厅。
+3月9日，日本国防部长岸信夫就俄罗斯的军事入侵问题会见了乌克兰驻日本大使科桑斯基，岸大臣介绍说自卫队已向乌克兰提供了防弹衣和其他物资，并表示将继续提供更多的援助。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/03D7814C-A6B4-4CD0-AACA-FAFC46440F76.jpeg)照片来源：https://www3.nhk.or.jp/
+岸大臣对因俄罗斯的侵略而丧生乌克兰的人们，表达了深切的悲伤和问候。
 
-一个牌子上写着：“说真的，我们想你了。”
+岸大臣还谴责了俄罗斯的军事入侵是对国际法的严重违反，并重申一贯支持乌克兰的主权和领土完整，与其他国家联合起来，维护国际秩序。
 
-另一个问道：“还想念你的运动裤吗?”
+3月8日晚，日本派出了一架装满防弹衣和头盔的自卫队飞机援助乌克兰，承诺日本会继续提供更多的援助。
 
-还有一个牌子上写着：“我打赌你的狗正在想你。”
+对此，科桑斯基大使表示感谢，他说：”我谨代表乌克兰人民，对日本的大力支持表示衷心的感谢”。
 
-然而，一些路人对这些海报并不满意。
+科桑斯基大使告诉记者：”我们估计俄罗斯的侵略会进一步加剧，他们可能正试图攻击首都基辅，我们需要对乌克兰各种形式的支持”。
 
-有社交媒体用户周二在接受多伦多CTV新闻采访时分享了这些海报的图片，他说：“我认为这些海报识对那些开始回到办公室的人不太友好。”
+**消息来源：**
 
-“我的雇主接受了混合办公的模式，对此我很感激。”
+[https://www3.nhk.or.jp/news/html/20220309/k10013521841000.html?utm\_int=news-international\_contents\_list-items\_007](https://www3.nhk.or.jp/news/html/20220309/k10013521841000.html?utm_int=news-international_contents_list-items_007%20\h)
 
-还有一些用户在社交媒体上表达了他们的失望，其中一位用户称这些海报是“贬低”和“傲慢”。
+**编辑：LILY**
 
-一位推特用户写道：“狗狗会让我转身回家。”
+**发布：歪桑**
 
-Oxford Properties公司表示，这些海报显示的是“欢迎客户回到大楼”，但现在已经被撤掉。
+20220309
 
-“不幸的是，我们本想让海报看起来轻松一点，但结果却显示它很冷漠，这不是我们的本意。海报显然没有达到效果，因此于上周被拆除。”
+20220309
 
-“我们真诚地向所有被冒犯的客户、同事和公众道歉。”
-
-加拿大商业发展银行(Business Development Bank of Canada)去年最近的一项调查发现，即使疫情结束，55%的员工也希望继续在家工作。
-
-来源：https://www.cp24.com/news/downtown-office-removes-return-to-work-posters-after-messaging-sparks-controversy-1.5810403
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

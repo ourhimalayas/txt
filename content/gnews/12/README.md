@@ -2,33 +2,26 @@
 ---
 
 
-## 中共赌场即将崩塌，3177点小散们最后的逃命线
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2133185/)
+## 俄乌战争将导致全球粮食危机
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2133226/)
 
-作者:香草山农场商业部 – 文韬
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-中国股市经过前两个交易日的杀跌。今日上证盘中跌破3177点，深综盘中跌破2120点。虽尾盘收复失地，但长长的一根金针探底K线，意义深远。撑了两年之久的擀面杖子，终于疲软。结合当前风起云涌的国际局势，内忧外患的经济寒冬。围绕3177点左右的小幅震荡是小散韭菜们最后的逃命线。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-104.jpg)
-未来两天两会也将结束，盘口震荡归边，回抽确认时间不会太久。莫等窗口期过去，将万劫不复。 A股补跌行情已经是箭在弦上。俄乌开战以来，欧洲股市主要经济体跌幅均在30%左右。欧洲市场俄概股更是市值跌到基本归零。俄国内证券市场更是直接闭市禁止交易。
+采编撰稿：加拿大温哥华杨帆农场 –  文莱
 
-香港市场作为中共最前沿的金融堡垒阵地。前两个交易日就已经率先破位，跌回2016年水平。已经形成的顶部大反转形态技术分析会跌回1万点大关。这就是曾经亚洲金融中心被中共荼毒戕害的结果。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-62-1.jpg)图片来源：breitbart
 
-地产的崩溃，两会的结束，面子工程已经不是问题。多米诺骨牌已经开始，小散们且行且珍惜。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-50.png)
+据美国【布莱特巴特新闻】3月8日报道，由于俄罗斯和乌克兰都是全球粮食供应的主要来源地，也都拥有世界上最大规模的先进化肥生产公司，因此，俄军入侵乌克兰将导致世界粮食供应危机。
 
-**校对/发稿：**Fei797
+报道称，俄乌战争对乌克兰化肥公司的生产和出口都造成了毁灭性打击。全球范围内的化肥及其原材料供应不足，正在对各国粮食供应造成灾难性影响。同时，由于俄乌的粮食供应及储备均占全球重要比例，因此战争恶果将损害到全世界。
 
-**更多资讯，更多关注**
+据悉，在俄乌战争爆发之前，天然气价格的持续上涨已经导致化肥成本急剧上升，加之全球食品生产中的部分关键营养素都来自俄罗斯，因此，欧美对该国的全面制裁将加剧粮食供应的限制。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+校对编辑：硫酸羟氯喹64
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+发稿：文明(添草灭共)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+原文链接： [Ukraine War Will Have ‘Catastrophic’ Effect on Food Supply – Agri Org (breitbart.com)](https://www.breitbart.com/europe/2022/03/08/global-food-crisis-ukraine-war-will-have-catastrophic-effect-on-global-food-supply-agri-org/)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

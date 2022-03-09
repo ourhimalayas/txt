@@ -2,33 +2,26 @@
 ---
 
 
-## 有声|中兴通讯面临违反美国缓刑条例的听证会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2133106/)
+## 美国会议员敦促同步制裁中共和俄罗斯
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2133121/)
 
-配音：香草山教育部 – 百香果
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+采编撰稿：加拿大温哥华杨帆农场 – 重生之鹰
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_20220309-125618_Photos.jpg)图片来源：[breitbart.](https://www.breitbart.com/clips/2022/03/05/dem-rep-auchincloss-we-should-impose-secondary-sanctions-against-china-and-cut-off-russian-oil/)
 
 
-3月5日，国外媒体报道，中共中兴通讯即将于3月14日面临一项新指控，指控认为，它违反了向伊朗非法运输美国技术的认罪缓刑条例。
+据美国[布莱特巴特新闻]报道，众议员奥金克洛斯当天要求立即停止从俄罗斯进口石油，并同时对中共国实施更严厉制裁,以此削弱中俄联合扩张的势力。
 
-2017年，中共中兴通讯违反美国法律，非法向伊朗和朝鲜出售美国技术，中兴认罪并缴纳了8.92亿美元的罚款。当时中兴方承诺接受三年缓刑条例，实施企业合规计划，设立监督机制。但在2018年，美国商务部发现中兴撒谎，随即禁止中兴与美国开展业务，此后中兴又缴纳了10亿美元，再次同意接受为期十年的缓刑条例。
+奥金克洛斯表示:目前俄罗斯军事入侵严重受阻，士气低落，必将引发俄军更猛烈的无差别攻击而导致的大量平民伤亡。因此，必须立即停止与俄的石油交易，以断绝其最重要的外汇资金来源；同时，对中共再次实施更强硬的制裁，以进一步孤立俄罗斯。此外，继续加强与波兰、立陶宛和罗马尼亚等乌克兰周边国家的合作，与北约一道为乌军提供军事装备。
 
-3月14日的法庭指控，同样和中兴撒谎有关。起诉书中写道，中兴非法将中国公民带到新泽西中兴通讯工作，用的是美国专为佐治亚理工学院设定的工作和学习用的J-1签证，涉嫌签证欺诈。
+评论指出：乌克兰的卫国战争已演变为世界人民捍卫自由民主，反对独裁的正义行动。国际社会在全方位支持乌克兰同时，必须首先摧毁中俄邪恶轴心，才能尽快结束战争，还乌克兰和台湾人民和平的环境！
 
-文字版原文：[中兴通讯面临违反美国缓刑条例的听证会](https://gnews.org/zh-hans/2118122/)
+校对编辑：硫酸羟氯喹64
 
-音频处理：Fei797
-发稿：Fei797
+发稿：文明(添草灭共)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+原文链接： [https://www.breitbart.com/clips/2022/03/05/dem-rep-auchincloss-we-should-impose-secondary-sanctions-against-china-and-cut-off-russian-oil/](https://www.breitbart.com/clips/2022/03/05/dem-rep-auchincloss-we-should-impose-secondary-sanctions-against-china-and-cut-off-russian-oil/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

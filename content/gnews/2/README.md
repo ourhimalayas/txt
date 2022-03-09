@@ -2,30 +2,42 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月9日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2133297/)
+## 113位乌克兰小孩与慈善机构人员前往巴塞罗那
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2133351/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-3.jpg)
+作者：香草山写作组 静言
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-9.png)
-文章仅代表作者本人观点，与Gnews无关
 
-视频参看：
-[2022.03.09早 《NFSC新闻》](https://gettr.com/streaming/pz1mcb1552)
-[2022.03.09早 G|TV《新闻访谈》](https://gettr.com/streaming/pz13dj9139)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-9.jpeg)
+2022年3月7日早上7点，新中国联邦战友从波兰克拉科夫传来视频，从大巴车上鱼贯而下的96名乌克兰孩子与当地慈善机构人员及老师共113人，乘坐了30小时的大巴，安全到达。
+
+在救助站等候多时的战友们热情地迎上前去，递上热水，巧克力，点心等食物，为这些从乌克兰战火中逃出的难民们，接风洗尘，送去人间温暖。
+
+据前线战友报道，这些孩子均在7-17岁之间，一路虽然饥饿难眠，劳累辛苦，但孩子们安静淡定，遵守规则，表现出极高的文明素质，给现场战友留下深刻的印象。迎接的战友纷纷留下热泪。
+
+被救的孩子们及其他人员将马不停蹄，即将前往西班牙巴塞罗那的福利机构，西班牙的战友们早已做好迎接的准备。
+
+新中国联邦救援队人员，纷纷收到来自救乌克兰难民的感谢。一位乌克兰女士用文字与语音说：我一上大巴就睡过去了，感谢你们的救援，你们的救援团队太棒了。
+
+据参与营救这些孩子们的一位人权律师志愿者说，这是一项非常艰难的工作，没有你们的帮助，是不可能做到的。感谢法治基金。 危难时刻，唯有新中国联邦人代表中国人民，发挥着人道主义精神，不仅救助同胞，更向国际社会伸出援手，显示出正道主义的魅力。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
+
+编辑/校对/发稿：滚滚长江都是水
 
 **更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
