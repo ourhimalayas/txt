@@ -2,24 +2,45 @@
 ---
 
 
-## 中日财经爆┃东京原油期货时隔13年半首次突破8万日元水平
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2131013/)
+## 乌克兰称在哈尔科夫击毙另一名俄将军
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2131093/)
 
-撰稿：东京樱花团/peterwong
+翻译：噜噜咪
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/东京原油期货时隔13年半首次突破8万日元水平.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fss0.bdstatic.com%2F70cFuHSh_Q1YnxGkpoWK1HF6hhy%2Fit%2Fu%3D2004993622%2C3406733644%26fm%3D26%26gp%3D0.jpg&amp;imgrefurl=http%3A%2F%2Fwww.cindaqh.com%2Fa%2F20200212-29717.html&amp;tbnid=iq6sN9Umd2-F0M&amp;vet=12ahUKEwiWhPLsu7j2AhWQvKQKHZSHCWAQMyg3egQIARBM..i&amp;docid=y0Z0YWtZkmVHGM&amp;w=500&amp;h=333&amp;itg=1&amp;q=%E4%B8%9C%E4%BA%AC%E5%8E%9F%E6%B2%B9%E6%9C%9F%E8%B4%A7%20%E4%B8%AD%E4%B8%9C%E5%8E%9F%E6%B2%B9%E6%9C%9F%E8%B4%A7&amp;ved=2ahUKEwiWhPLsu7j2AhWQvKQKHZSHCWAQMyg3egQIARBM)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-835.png)图片来源：independentespanol.com
 
-3月9日，在东京商品交易所，由于买单聚集，中东原油期货暂时触及8万日元/千升的水平。这是自2008年8月以来（大约13年半）价格首次突破8万日元。
+乌克兰声称，它已经在哈尔科夫市的战斗中击毙另一名俄罗斯将军。
 
-在美国拜登政府宣布全面禁止进口俄罗斯原油和其他商品作为对俄罗斯入侵乌克兰的额外制裁后，由于对供需紧张状况的担忧，原油期货价格飙升。
+这个陷入困境的国家的国防部声称，其部队已经杀死了俄罗斯中央军区第41军的第一副指挥官维塔利·格拉西莫夫少将。
 
-消息来源:
+该部周一宣布“占领军高级指挥人员中又有损失”。
 
-[東京市場の原油先物、１３年半ぶり８万円突破…米のロシア産禁輸受け急騰](https://www.yomiuri.co.jp/economy/20220309-OYT1T50208/)
+“在哈尔科夫附近的战斗中，俄罗斯军事领导人、少将、参谋长和俄罗斯中央军区第41军第一副司令维塔利·格拉西莫夫被杀。一些俄军高级军官也被杀或受伤。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+维塔利·格拉西莫夫参加了第二次车臣战争和俄罗斯在叙利亚的军事行动。他们补充说：“他获得了‘归还克里米亚’的奖章。”
+
+“获得的数据还表明，占领者的军队在通信方面存在重大问题，他们的破损部队的撤离也存在重大问题。”
+
+最近一次备受关注的杀戮，是在俄罗斯第7空降师的指挥官和第41联合武器部队的副指挥官安德烈·苏霍维茨基被狙击手射杀后发生的。
+
+普京在向俄罗斯人民通报冲突进展情况的讲话中证实，在致命入侵的八天后，一位将军被杀。
+
+俄罗斯声称其士兵有498人在乌克兰被杀，另有1597人受伤。
+
+然而，英国官员说，实际的死伤人数几乎肯定会高出很多，并将继续上升。
+
+乌克兰军队周一表示，俄罗斯正准备对该国的首都发动猛攻。
+
+乌克兰武装部队总参谋部说，俄罗斯军队在发动全面入侵后的一个多星期内未能夺取首都，“开始为攻打基辅积累资源”。
+
+素材链接：[independentespanol.com][Ucrania afirma haber matado a otro general ruso durante los combates en Kharkiv](https://www.independentespanol.com/noticias/general-ucrania-rusia-muerte-ejercito-b2030672.html?utm_source=redirect)
+
+* * *
+
+*审核：文乐
+校对：小东
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
