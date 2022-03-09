@@ -2,41 +2,41 @@
 ---
 
 
-## 让领导先走！乌军方疑利用信息战再毙俄军一高级军官
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2129437/)
+## 纽约CBS转播车与法治基金直播中心为邻
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2129508/)
 
-作者：波士顿五月花背靠背（frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-9.42.55-AM.png)图片来源：互联网
-乌克兰国防部情报局周一（3月7日）发布信息称，在哈尔科夫附近的战斗中，俄罗斯中央军区第41集团军少将、参谋长、第一副司令员维塔利·格拉西莫夫（Vitaly Petrovich Gerasimov）阵亡。多名俄罗斯高级军官也被打死打伤。
+作者: 香草山写作组-静言
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-46.png)
+3月8日，从波兰与乌克兰交界的难民营，法治基金乌克兰救援队直播中心Nicole传来消息，在战友直播车旁边，有辆相对小型，但顶上安装着卫星通信设备的车，Nicole上前与忙碌着的几位男士打招呼，发现他们是全球第三大联播网的纽约CBS的转播车。他们表示已经来此处两天了，明天早晨早间新闻主播Tony将来现场，与他们在纽约的总部连线。
 
-如果属实，这是俄罗斯普京上月24日宣布入侵乌克兰以来，又一损失一名高级指挥人员。【1】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2761.jpg)
 
-乌情报局还吐槽俄罗斯的俄罗斯军队通信。
+难民营现场还有许多新闻转播车与新闻从业人员，等候着报道各种现况。
 
-据法新社报道，新闻调查机构贝灵猫（Bellingcat）网站表示，他们已通过一个俄罗斯消息源确认了侵略乌克兰的俄军将领格拉西莫夫将军的死亡。据该调查机构执行董事格罗泽夫在推特上说，在电话中，你听到驻乌克兰的俄联邦安全局（FSB）官员问他的上司是否可以通过安全的Era系统进行通话。其上司说Era不工作了”。【2】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2762.jpg)
 
-**第一位被乌军方击毙的俄罗斯高级军官是****苏霍维斯基少将**
+Nicole现场采访了一名来自德国柏林的法国战地记者Emma，这位受雇于英国时尚杂志I-D的女士，大学专业是国际政治。当Nicole向Emma介绍自己是法制基金与新中国联邦救援队一员时，Emma兴奋地说，她知道新中国联邦，表示很高兴见到法制基金赞助的救援队来救助乌克兰难民。当Nicole 继续传达新中国联邦救人的正道主义理念，而CCP是一个不顾自己人民死活的独裁政权时，这位来自德国的年轻记者，与Nicole 同声喊出：Take down the CCP！
 
-据雅虎新闻3月3日报道，乌克兰军方宣布击毙了一名俄军少将、中央军区第41军团副指挥官苏霍维斯基（Andrei Sukhovetskiy）【3】
+新闻链接：
 
-乌克兰抗击俄罗斯入侵，非常成功利用信息网络战对入侵者造成巨大伤害，严重打击俄罗斯士气。
+[https://gettr.com/post/pyxncs95d4](https://gettr.com/post/pyxncs95d4)
 
-此前乌克兰国家安全局征召国际黑客加入IT军团发起信息网络战。乌克兰国家安全局2 月28日在推特发出的一条推文说，“网络战线现已开放！帮助乌克兰网络专家入侵占领者的平台……这一次，你可以和我们一起在网络战线上战斗。”【4】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-23.jpg)
 
-参考链接：
+编辑/校对/发稿：遍地开花
 
-【1】[俄军少将在哈尔科夫附近被清算](https://gur.gov.ua/content/pid-kharkovom-likvidovano-heneralmaiora-rosiiskoi-armii.html)
+**更多资讯，更多关注**
 
-【2】[俄罗斯加密通讯系统在乌克兰“破功”](https://www.rfi.fr/cn/%25E5%259B%25BD%25E9%2599%2585/20220308-%25E4%25BF%2584%25E7%25BD%2597%25E6%2596%25AF%25E5%258A%25A0%25E5%25AF%2586%25E9%2580%259A%25E8%25AE%25AF%25E7%25B3%25BB%25E7%25BB%259F%25E5%259C%25A8%25E4%25B9%258C%25E5%2585%258B%25E5%2585%25B0-%25E7%25A0%25B4%25E5%258A%259F)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-【3】[乌克兰捷报！传击毙俄军副指挥官](https://tw.news.yahoo.com/%25E7%2583%258F%25E5%2585%258B%25E8%2598%25AD%25E6%258D%25B7%25E5%25A0%25B1-%25E5%2582%25B3%25E6%2593%258A%25E6%2596%2583%25E4%25BF%2584%25E8%25BB%258D%25E5%2589%25AF%25E6%258C%2587%25E6%258F%25AE%25E5%25AE%2598-140022347.html)
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-【4】[“和我们一起在网络战线战斗” 乌克兰征召全球网军 反击俄罗斯](https://www.voachinese.com/a/ukraine-it-army-20220228/6464220.html)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-* * *
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-*编辑&发布：Vicky*
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-45.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

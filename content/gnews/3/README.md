@@ -2,32 +2,37 @@
 ---
 
 
-## 又一千亿房企——禹洲集团暴雷
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2129513/)
+## 英国停止进口俄石油，年底前有望找到替代供应源
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2129555/)
 
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0308%2Fe02ec3a8j00r8etc4002bc000k000kpm.jpg&amp;thumbnail=690x10000&amp;quality=75&amp;type=jpg)
-据网易新闻3月8日报道，继闽系房企阳光城、正荣之后，又一个闽系千亿房企—禹州集团3月7日发布公告，2023年到期的8.5%优先票据（即2023年票据II）利息2125万美元，已于2022年2月4日到期应付，但是公司在30天宽限期内并未支付利息，已构成违约事件。
+#### 整理：围剿维尼熊
+编辑：朝花夕拾
 
-禹洲集团2023年票据II的未偿还本金共计5亿美元，待偿美元债为13.5亿美元，2024年为10亿美元，2025年为8.95亿美元，2026年为9.35亿美元。禹洲集团相继出售旗下物业公司及香港一处物业和健采有限公司部分股权等，依然资不抵债。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-1月6日，联合评级国际有限公司将禹洲集团的国际长期发行人评级从“BB-”下调至“B”，同时将由禹洲发行的高级无抵押美元票据的国际长期发行债务评级从“BB-”下调至“B”，继续把禹洲的评级列入负面观察名单。联合国际认为禹洲能否筹集到足够的离岸资金来偿还以上到期的高级美元票据存在很高的不确定性。
-
-中共的经济犹如随时爆发的火山，已经积攒了足够的能量，只待那一瞬间的爆发。大大小小的房企暴雷，只是部分的能量释放，最后中共一定会死于自己亲手制造的全球经济、政治、病毒、疫苗和战争灾难，被全球爆发的愤怒的火山所埋葬。
-
-新闻参考链接：[https://c.m.163.com/news/a/H1UI4BGB05394IK2.html?spss=newsapp](https://c.m.163.com/news/a/H1UI4BGB05394IK2.html?spss=newsapp)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-30.jpg)图片来源：雅典娜设计组
 
 
-编辑：【英国伦敦喜庄园编辑部】
+根据中央社3月9日报道，英国政府8日宣布，将在年底前分阶段停止进口俄罗斯石油。英国官员指出，全球石油市场竞争激烈，英国企业有望在年底前找到替代供应源。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+此外，英国政府将成立特别的工作小组，协助企业在过渡期找到替代的石油来源。
+
+英国政府强调，由于石油出口收入在俄罗斯联邦税收的占比高达17%，进口禁令加强了对俄罗斯的制裁，为其入侵乌克兰付出巨大代价。
+
+商务部新闻稿表示，英国8%石油来自俄罗斯，但英国也是重要的原油和石油产品生产国。除俄罗斯，英国也从荷兰、瑞典、比利时、沙特阿拉伯和美国进口石油。
+
+商务部还指出，俄罗斯石油已受国际市场排挤，近70%产品找不到买主。在竞争激烈的全球石油市场，俄罗斯很容易被其他出口国取代。
+
+参考链接：[https://www.cna.com.tw/news/aopl/202203090014.aspx](https://www.cna.com.tw/news/aopl/202203090014.aspx)
+
+*发布：*Frank2021
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

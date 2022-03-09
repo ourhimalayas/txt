@@ -2,46 +2,48 @@
 ---
 
 
-## 锁链女，我想对你说
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2128516/)
+## 新中国联邦的乌克兰救援行动 吸引世界媒体的关注
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2128688/)
 
-**作者：加州建房哥
-编辑：Candy**
+作者：纽约香草山健身部-Ivy001
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-45.png)
+俄罗斯入侵乌克兰已经进入第十三天，前世界目光聚焦于乌克兰。波兰边境由于大量乌克兰难民涌入，已经成为难民救援中心，和全球媒体云集之地。正在波兰边境展开救援行动的新中国联邦，为世界各个媒体所关注。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/铁链女.png)图片来源：bannedbook网
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2751.jpg)
 
+日本时间3月8日，日本唯一的国有电视台NHK，派记者现场报道了乌克兰的救援现况，和新中国联邦的救援点，还有亮眼的蓝色联邦七芒星旗，就在记者身后飘扬。虽然，日本记者没有提及我们新中国联邦，但是，整个报道一直可以看见清晰的新中国联邦旗在飘扬。。
 
-***这首诗来自正在波兰参加救援乌克兰难民的战友，他在休息时听了郭先生演唱的新歌《锁链梦》之后，抑制不住自己的泪水，有感而发。郭先生的这首歌是作为他献给全球妇女节日的礼物，作者写成这首诗表达了他自己、同时也代表了我们新中国联邦人对铁链女的挂念和解救出无数铁链女、消灭产生铁链女的邪恶体制的决心。***
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-2.jpg)
 
-这个世界不要我
-那是因为我们还不知道你被锁
+同日，前线Nicole 发回的消息，她采访了一位来自德国的法籍战地记者Emma。Emma在采访中表示，她知道新中国联邦，支持新中国联邦“消灭中国共产党”的主张。并且，她看到我们新中国联邦在乌克兰救援的高效和不计回报的付出，非常感动，认为我们新中国联邦人是热爱和平善良的人，不等同于中国共产党。Emma最后还和Nicole一起喊出：“Take down the CCP!”
 
-牙齿全拔，何等邪恶
-仿佛看到你拔牙时的挣扎哭嚎
-舌头被割，此恨怎么诉说
-眼前有你被割舌后血脸模糊的画面闪过
+前线Nicole 还发回消息，来自纽约，全球第三大联播网——CBS的直播车就在我们的直播中心旁边，在过去的两天时间里，他们一直都在关注我们的救援行动。明天，他们的早间新闻主播Tony会到现场, 来跟纽约总部连线直播。
 
-24年的日日夜夜
-没能治好邻舍的冷漠
-如今知你苦难这么多
-再不解你这铁锁
-我们怎能安心苟活
+正如郭文贵先生所述：世界上尚没有一个国家像新中国联邦这样去前线救援！随着乌克兰救援行动的展开，我们救出越来越多的人，新中国联邦就越来越为人所知，新中国联邦将走向越来越广阔的世界舞台！
 
-众兄弟姐妹的今生
-都在为给你解锁而活
-话不多说，你等等我
-我们人人都把你放在心窝
+新闻链接：
 
-2022年3月8日
+[https://gettr.com/post/pyuqvv79a5](https://gettr.com/post/pyuqvv79a5)
 
-***发布：Candy***
+[https://gettr.com/post/pyuzpydcd6](https://gettr.com/post/pyuzpydcd6)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-23.jpg)
+
+编辑/校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-46.png)
+
 
  
 

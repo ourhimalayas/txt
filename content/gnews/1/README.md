@@ -2,37 +2,25 @@
 ---
 
 
-## 英国停止进口俄石油，年底前有望找到替代供应源
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2129555/)
+## 中共阻挠法治基金乌克兰人道救援行动
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2129582/)
 
-#### 整理：围剿维尼熊
-编辑：朝花夕拾
+作者：加拿大温哥华扬帆农场 – 晨熹
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-30.jpg)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a-8-edited.jpg)图片来源：盖特
 
 
-根据中央社3月9日报道，英国政府8日宣布，将在年底前分阶段停止进口俄罗斯石油。英国官员指出，全球石油市场竞争激烈，英国企业有望在年底前找到替代供应源。
+据3月8日文贵先生盖特消息，本次法治基金组织的乌克兰人道救援行动中使用的紧急救援邮箱突然被GODADDY公司关停，并因此阻碍了救援行动的顺利进行。据悉，目前的联系方式已经更新，并新增了Telegram和Gettr等多种联系渠道。
 
-此外，英国政府将成立特别的工作小组，协助企业在过渡期找到替代的石油来源。
+消息称，中共在近日不仅黑客掉文贵先生和多名前线救援战友的互联网设备，还胁迫YouTube暂停其上传视频的账号，并同时以非法手段冻结了用于本次救援的付费邮箱和域名。
 
-英国政府强调，由于石油出口收入在俄罗斯联邦税收的占比高达17%，进口禁令加强了对俄罗斯的制裁，为其入侵乌克兰付出巨大代价。
+这一系列流氓手段的操作，不仅验证了中共政权的下作和邪恶，而且也鲜明体现出法治基金本次救援行动所产生的巨大国际影响力，更看到中共对日渐崛起的人类正义力量——新中国联邦的深深恐惧。
 
-商务部新闻稿表示，英国8%石油来自俄罗斯，但英国也是重要的原油和石油产品生产国。除俄罗斯，英国也从荷兰、瑞典、比利时、沙特阿拉伯和美国进口石油。
+* * *
 
-商务部还指出，俄罗斯石油已受国际市场排挤，近70%产品找不到买主。在竞争激烈的全球石油市场，俄罗斯很容易被其他出口国取代。
+撰稿：晨熹， 校对编辑，发稿：硫酸羟氯喹64
 
-参考链接：[https://www.cna.com.tw/news/aopl/202203090014.aspx](https://www.cna.com.tw/news/aopl/202203090014.aspx)
-
-*发布：*Frank2021
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[https://gettr.com/streaming/pywfu457e9](https://gettr.com/streaming/pywfu457e9)
 
  
 
