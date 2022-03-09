@@ -16,6 +16,8 @@
 ---
 ## 頁面 31/41 [**<**](/content/README-30.md) [1](/content/README.md) ... [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) **31** [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) ... [41](/content/README-41.md) [**>**](/content/README-32.md) [查看全部](/content/README-all.md)
 
+[文字版：郭文贵先生10月16日直播政法委以黑治国比黑还黑！孟宏伟怎么回国的？怎么被抓的？王建是怎么死的？王岐山赴以色列人民币“偷”技术 赴沙特 人民币换石油](/content/2018/10/20181017-1150776472458713125.md)
+
 [文字版：20181012 郭文贵直播1700家中资公司 150家中资银行 等待正义惩罚 向大家公布美国财政部海外资产控制办公室合规制栽措施！！](/content/2018/10/20181013-4266410200280515458.md)
 
 [文字版：2018年10月10日，文贵先生过媒体直播——江，朱，王家族正在砸船式洗钱，公布11月记者招待会地点](/content/2018/10/20181012-1934130956992732839.md)
@@ -63,8 +65,6 @@
 [文字版：8月29日2018 年文贵先生报平安直播: 谈王健事件发布会的准备工作；班农开会8小时基本内容](/content/2018/09/20180901-709890250224874284.md)
 
 [文字版：路德访谈前白宫切尼副总统国安顾问叶望辉、曹长青：中美贸易战、美国中期选举、郭文贵爆料的意义](/content/2018/08/20180830-588921941020307115.md)
-
-[文字版8月24日澳大利亚是西方向中共说不的开始！西方的一根筋为什么能赢中共的千招会！西方用法律．宗教．科技．赢到了什么！](/content/2018/08/20180827-8438310387412088286.md)
 
 
 ## 頁面 31/41 [**<**](/content/README-30.md) [1](/content/README.md) ... [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) **31** [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) ... [41](/content/README-41.md) [**>**](/content/README-32.md) [查看全部](/content/README-all.md)

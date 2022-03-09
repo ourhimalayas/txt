@@ -16,6 +16,8 @@
 ---
 ## 頁面 20/41 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [41](/content/README-41.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年12月8日文贵报平安](/content/2019/12/20191210-8975996201411180459.md)
+
 [文字版：2019年12月7日郭先生对话钢铁侠](/content/2019/12/20191209-6749356903573144336.md)
 
 [文字版: 2019年12月4日郭文贵先生谈郑若骅被绑架回京的经过以及给盘古、政泉和裕达同事们发出的安全保护办法](/content/2019/12/20191205-3740864739432231815.md)
@@ -63,8 +65,6 @@
 [文字版：2019年11月12日郭文贵先生关于香港最新局势紧急直播](/content/2019/11/20191113-7768308991130879569.md)
 
 [文字版：2019年11月11日文贵班农谈](/content/2019/11/20191113-3588929521846219666.md)
-
-[文字版：2019年11月10日文贵报平安直播](/content/2019/11/20191112-8738069601493230135.md)
 
 
 ## 頁面 20/41 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [41](/content/README-41.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)

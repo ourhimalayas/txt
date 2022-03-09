@@ -16,6 +16,8 @@
 ---
 ## 頁面 18/41 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [41](/content/README-41.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年1月30日文贵谈中南坑政治局常委有人会死，不死不会发生大事](/content/2020/02/20200201-4702863158571733458.md)
+
 [文字版：2020年1月29日文贵谈CCP统治下的孤国孤市孤镇孤村](/content/2020/02/20200201-2569965414035506727.md)
 
 [文字版：2020年1月28日文贵直播谈WHO已经认错，CCP对疫情必须承担责任](/content/2020/01/20200130-8782739626371859630.md)
@@ -63,8 +65,6 @@
 [文字版：2020年1月6日文贵第二次直播-到底谁是傅希秋，他是什么样的骗子](/content/2020/01/20200109-5452647040359019543.md)
 
 [文字版：2020年1月6日文贵报平安第一次直播-谈灭爆小组网络占山头插红旗全线失败](/content/2020/01/20200108-9198356254528115677.md)
-
-[文字版：2020年1月5日文贵报平安直播傅希秋是挂牌特务，艾未未等欺民贼将被扫入历史的垃圾桶！ ](/content/2020/01/20200107-1241924630704189229.md)
 
 
 ## 頁面 18/41 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [41](/content/README-41.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)

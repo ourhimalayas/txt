@@ -16,6 +16,8 @@
 ---
 ## 頁面 38/41 [**<**](/content/README-37.md) [1](/content/README.md) ... [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) **38** [39](/content/README-39.md) [40](/content/README-40.md) [41](/content/README-41.md) [**>**](/content/README-39.md) [查看全部](/content/README-all.md)
 
+[文字版：卢比奥质问郭文贵FB账户被关是否由于受中国政府压力](/content/2018/04/20180418-5547948456904349057.md)
+
 [文字版：2017年11月2日曹长青：怎么看郭文贵的“不反习”和“保命保财报仇”？](/content/2018/04/20180418-343207939646177641.md)
 
 [翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生](/content/2018/04/20180418-7772488713239018228.md)
@@ -63,8 +65,6 @@
 [华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片](/content/2018/04/20180418-8134538330051894256.md)
 
 [推特党筹委会: 推友就郭文贵推号被禁言致推特公司的公开信及首批签名 ](/content/2018/04/20180418-6592319178525638083.md)
-
-[金融时报 :中共十九大因流亡商人郭文贵爆料乌云笼罩](/content/2018/04/20180418-2687199289814745562.md)
 
 
 ## 頁面 38/41 [**<**](/content/README-37.md) [1](/content/README.md) ... [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) **38** [39](/content/README-39.md) [40](/content/README-40.md) [41](/content/README-41.md) [**>**](/content/README-39.md) [查看全部](/content/README-all.md)
