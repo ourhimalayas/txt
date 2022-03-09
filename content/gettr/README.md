@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 4:14 AM (UTC)`
+
+3月8号：衷心地感谢所有的朋友帮助寻找这个孩子，如果这个孩子需要任何的帮助，请一定和我们联系，我们愿意为这个孩子提供一切可能的帮助！如果需要和我本人联系请在这个的发文的，下面给我留言和留下联络方式，我们马上会和你们联系。🙏🙏🙏🙏🙏🙏🙏🙏🙏 March 8: I sincerely thank all my friends for helping to find this child. If this child needs any help, please contact us. We are willing to provide this child with all possible help!  If you need to contact me, please post here, leave a message and contact information below, and we will contact you immediately.  🙏🙏🙏🙏🙏🙏🙏🙏🙏
+![img](https://media.gettr.com/group39/getter/2022/03/09/04/32054710-fb43-75a3-a571-b914c623f348/f1b2af283429d7c1bed4887fa1a84bff.jpg)
+
+---
+
 `@miles 3/9/2022 2:15 AM (UTC)`
 
 2022.03.08 晚《新中国联邦新闻访谈》俄乌战争进展； 新中国联邦法治基金欧洲大营救； 3.8 节再议“锁链女”
@@ -151,13 +158,6 @@ We stand with our Ukrainian brothers and sisters during these trying times. Here
 
 【Ukraine Rescue】03/07/2022 Approximately 100 children rescued from Ukraine by ROL Foundation and NFSC, along with their teachers, rested at a hotel in Krakow, Poland, before departing for Barcelona, Spain. The entire trip is supported by the ROL Foundation and NFSC with free food, accommodations, and free bus transportation.<br/><br/>【乌克兰救援】03/07/2022 由法治基金和NFSC从乌克兰救出的大约100名儿童以及他们的老师，在波兰克拉科夫的一家酒店休息后出发，前往西班牙巴塞罗那，整个行程由法治基金和NFSC提供免费食宿和免费大巴。
 ![img](https://media.gettr.com/group30/getter/2022/03/08/11/de49a138-50d8-e73f-b5fa-40e1dce88502/out.jpg)
-
----
-
-`@miles 3/8/2022 6:51 AM (UTC)`
-
-【Ukraine Rescue】03/07/2022 ROLF and NFSC rescued more Chinese compatriots from Ukriane today and some of them are very different and we will let them share their appreciations to our rescue and their feelings to the CCP when they are ready.<br/><br/>【乌克兰救援】03/07/2022法治基金和新中国联邦今天从乌克兰救出了更多中国同胞，他们中的一些人非常不同，我们将让他们分享他们对我们救援的感激之情以及他们对中共的感受。<br/>
-![img](https://media.gettr.com/group43/getter/2022/03/08/06/e16c37a8-d57c-6cfa-a87c-b7dba1304d71/out.jpg)
 
 ---
 
