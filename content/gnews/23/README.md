@@ -2,27 +2,37 @@
 ---
 
 
-## 美国汽油价格再创历史新高
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2132635/)
+## 有声|郭先生提醒墙外战友提防排华袭击
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2132656/)
 
-采编：加拿大温哥华杨帆农场 – 文莱
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月6日的大直播中，郭先生表示，最近华人在全世界频繁遭到袭击，请亚洲战友尤其是女性要特别小心。给被中共洗脑的中国人思想排毒太难，而战友们传播疫苗真相不要在乎结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-2.jpg)
+郭先生说，近期非洲、欧洲和美国，都有无端袭击华人事件发生，因此他提醒亚洲战友，尤其是女性，在这些地方外出一定要多加注意安全。同时，给中国人排出中共种下的毒太难了，就像我们的战友在乌克兰战争中救人，竟然还有中国人不顾生死，反而先顾虑新中国联邦是否会给自己带来麻烦。
 
-编译撰稿：加拿大温哥华杨帆农场 – 自由法兰西
+对此，郭先生强调在乌克兰救人并非责任，就如同我们告诉世界中共病毒疫苗是毒药一样，不用在乎对方信不信，而对不看、不相信文贵先生直播的人，缘分也基本已尽。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_20220309-103531_Discord2-1.jpg)图片来源：thepostmillennial.
 
-![](https://gnews.org/3bab0b72-a2ea-4fa3-be68-494a9d5e0580)
-据加拿大《后千禧年》3月6日报道，美国汽车协会最新数据显示，全国当天汽油平均价格为4.09美元每加仑，并仍保持不断上涨趋势，创下有史以来7日均价最高涨幅。
 
-据悉，欧美目前对俄罗斯入侵乌克兰进行的严厉经济制裁，直接导致了全球原油产量的急剧下降，并造成当今油价失控飙升。
+文字版原文：[郭先生提醒墙外战友提防排华袭击](https://gnews.org/zh-hans/2129871/)
 
-随着俄乌战事升级，预计未来很长一段时间内，汽油价格将继续上涨，并将很快突破4.25美元每加仑。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-校对编辑：硫酸羟氯喹64
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-发稿：文明(添草灭共)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-原文链接： [https://thepostmillennial.com/national-average-gas-price-jumps-over-4](https://thepostmillennial.com/national-average-gas-price-jumps-over-4)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
