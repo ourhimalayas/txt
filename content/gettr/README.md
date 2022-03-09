@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 12:24 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导
+![img](https://media.gettr.com/group37/origin/2022/03/09/12/1a708eec-ba0b-14e7-2f4b-3ddf6b18b8d5/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/9/2022 11:39 AM (UTC)`
 
 【Ukrainian Rescue】03/08/22 Chinese husband and his Ukrainian wife rescued by NFSC and ROLF explains how they got hold of us<br/><br/>【乌克兰救援】03/08/22 被新中国联邦和法治基金救援的中国男士及其乌克兰夫人讲述是如何同我们取得联系的<br/>
@@ -148,13 +155,6 @@ Due to the Chinese Communist Party manipulating our email service provider with 
 
 3/8/2022 Miles Guo’s GETTR: It is my sincere hope that the song “Chained Dream” serves as a wake up call to our fellow Chinese, so that they will abandon cowardice and stop being so apathetic; through music, we endeavor to promote world peace, and more importantly, to bring safety and dignity to Chinese women.<br/><br/>3/8/2022 文贵盖特：真心希望《锁链梦》能让中国人醒来，抛弃懦弱、不再冷漠，我们要用音乐推动世界和平、更重要的是维护中国女性的安全和尊严<br/>
 ![img](https://media.gettr.com/group24/getter/2022/03/08/22/a6dc8d07-b985-1ee8-633a-85dc58dc14ef/out.jpg)
-
----
-
-`@miles 3/8/2022 7:51 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动
-![img](https://media.gettr.com/group18/origin/2022/03/08/19/6551010a-fd16-ab17-a530-8b5acb662e25/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
