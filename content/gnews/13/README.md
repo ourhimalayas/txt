@@ -2,20 +2,28 @@
 ---
 
 
-## 中日财经爆┃东京原油期货时隔13年半首次突破8万日元水平
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2131013/)
+## 中日财经爆┃日本对俄罗斯一万亿贷款 因制裁升级或将无法收回
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2131033/)
 
 撰稿：东京樱花团/peterwong
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/东京原油期货时隔13年半首次突破8万日元水平.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fss0.bdstatic.com%2F70cFuHSh_Q1YnxGkpoWK1HF6hhy%2Fit%2Fu%3D2004993622%2C3406733644%26fm%3D26%26gp%3D0.jpg&amp;imgrefurl=http%3A%2F%2Fwww.cindaqh.com%2Fa%2F20200212-29717.html&amp;tbnid=iq6sN9Umd2-F0M&amp;vet=12ahUKEwiWhPLsu7j2AhWQvKQKHZSHCWAQMyg3egQIARBM..i&amp;docid=y0Z0YWtZkmVHGM&amp;w=500&amp;h=333&amp;itg=1&amp;q=%E4%B8%9C%E4%BA%AC%E5%8E%9F%E6%B2%B9%E6%9C%9F%E8%B4%A7%20%E4%B8%AD%E4%B8%9C%E5%8E%9F%E6%B2%B9%E6%9C%9F%E8%B4%A7&amp;ved=2ahUKEwiWhPLsu7j2AhWQvKQKHZSHCWAQMyg3egQIARBM)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/日本对俄罗斯一万亿贷款-因制裁升级或将无法收回.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.reuters.com%2Fresources%2Fr%2F%3Fm%3D02%26d%3D20200501%26t%3D2%26i%3D1517122213%26r%3DLYNXMPEG402TU%26w%3D800&amp;imgrefurl=https%3A%2F%2Fwww.reuters.com%2Farticle%2Fus-coal-japan-jbic-climatechange-idUSKBN22D4MG&amp;tbnid=Ktbgkvsac3ZDKM&amp;vet=12ahUKEwi9zrzjvbj2AhXIhv0HHW2nAB0QMygFegUIARCuAQ..i&amp;docid=hbkNcS1bqvYOZM&amp;w=800&amp;h=582&amp;q=JBIC&amp;ved=2ahUKEwi9zrzjvbj2AhXIhv0HHW2nAB0QMygFegUIARCuAQ)
 
-3月9日，在东京商品交易所，由于买单聚集，中东原油期货暂时触及8万日元/千升的水平。这是自2008年8月以来（大约13年半）价格首次突破8万日元。
+俄罗斯军事入侵乌克兰没有停止迹象，国际社会因此加大对俄制裁，一直向俄罗斯放贷的日本金融机构担心因经济制裁而无法收回巨额贷款。
 
-在美国拜登政府宣布全面禁止进口俄罗斯原油和其他商品作为对俄罗斯入侵乌克兰的额外制裁后，由于对供需紧张状况的担忧，原油期货价格飙升。
+日本对俄罗斯的贷款，包括以卢布计价的贷款，信贷余额约为1万亿日元。根据国际清算银行（BIS）和各金融机构的披露资料，估计约7000亿日元的为三菱UFJ、三井住友、瑞穗3Mega Bank和日本国际协力银行（JBIC）。其余部分由机构投资者通过信托银行持有。
+
+金融机构急于收集信息，以期进一步收紧经济制裁和俄罗斯政府债券违约（违约）。如果美国和欧洲禁止从俄罗斯采购原油，相关企业的现金流将恶化。俄罗斯政府债券的违约也对拥有俄罗斯货币和卢布资产的俄罗斯公司的财务产生负面影响。
+
+三菱日联除了天然气和原油开发业务外，主要从事物流维修业务的融资。一位高管表示，对俄罗斯大约60%的信贷来自海外业务合作伙伴，如果汇款方式关闭或业务合作伙伴因制裁扩大而破产，“将对业务绩效产生重大影响”。
+
+JBIC一直参与对当地银行和基金的投资和贷款，对俄罗斯的贷款和投资余额约为1345亿日元（截至2021年3月）。去年11月，它刚刚签署了一项超过2000亿日元的天然气开发“北极LNG2”贷款协议。该政策是如果贷款属于合同中包含的“制裁条款”，则暂停或收回贷款，但俄罗斯政府无法预料对制裁的反应，贷款已被暂时冻结。
+
+金融机构担心美国可能会加强对在美俄罗斯相关公司和个人的制裁。对伊朗实施的制裁阻止了美国财政部外国资产控制办公室(OFAC)指定的公司和个人进行以美元计价的交易和提取资产。如果对俄罗斯采取类似措施，与俄罗斯有关的贷款可能无法广泛收回，并且“有必要在发生损失的情况下确保额外成本，”一位兆丰银行高管表示。
 
 消息来源:
 
-[東京市場の原油先物、１３年半ぶり８万円突破…米のロシア産禁輸受け急騰](https://www.yomiuri.co.jp/economy/20220309-OYT1T50208/)
+[１兆円のロシア向け融資、回収懸念…日本の金融機関は情報収集急ぐ](https://news.yahoo.co.jp/articles/2d7e736865ec2bdc43c8b28cc1d1abd68c43070c)
 
 *编辑：东京樱花团/知了知了
 发布：东京樱花团/老黑*

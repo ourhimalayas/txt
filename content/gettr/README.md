@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/9/2022 10:18 AM (UTC)`
+
+
+![img](https://media.gettr.com/group14/origin/2022/03/09/10/c054b13c-a75d-6345-ca1d-ef10678daae9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/9/2022 9:58 AM (UTC)`
+
+新中国联邦乌克兰救援行动成功在波兰梅迪卡设置了救助站。日本NHK在乌克兰边境的现场报道中，新中国联邦旗帜成最美背景<br/><br/>The Ukraine Rescue Operation of NFSC has successfully set up a reception spot in Medyka, Poland. During a news broadcast on the Ukrainian border by Japan's NHK, the New Federal State of China's flag is the most beautiful background<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group25/getter/2022/03/09/09/da2f1870-c0d8-2983-15a2-afda7f87c52f/out.jpg)
+
+---
+
 `@miles 3/9/2022 9:20 AM (UTC)`
 
 【Ukrainian Rescue】03/08/22 David interviews a Chinese husband and his Ukrainian wife rescued by NFSC and ROLF in Krakow, Poland. Rescued man: I am very grateful. This rescue work is very well arranged. I really hope that the war will end soon, and we need peace.  We don't need more innocent lives being insulted and wasted.<br/><br/>【乌克兰救援】03/08/22 大卫在克拉科夫汽车站采访被新中国联邦和法治基金救援的中国男士及其乌克兰夫人。被救男士：我充满感激。这一个救援工作安排得非常的不错。我非常希望战争快点结束，我们要和平。我们不要看到更多无辜的生命被糟蹋。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
@@ -144,20 +158,6 @@ We stand with our Ukrainian brothers and sisters during these trying times. Here
 
 【UKRAINEHELP-004】<br/><br/>为应对乌克兰-波兰边境日益增多的撤离人员和难民，NFSC和法治基金(ROLF)宣布2022年3月15日免费专机的暂定行程，专机航线如下，有可能根据情况做出调整：<br/>1. 从波兰-热舒夫(Rzeszow)机场出发，经加拿大多伦多，前往美国纽约。<br/>2. 从波兰-热舒夫(Rzeszow)机场出发，直飞东南亚某国（待定）。<br/><br/>NFSC和ROLF提供免费专机，以帮助那些受俄罗斯非法入侵影响的人员，这是我们支持在被共产主义和专制政府统治的国家里争取自由的使命的一部分。<br/><br/>如果您需要搭乘我们的专机，请联系我们最新24小时服务热线。所有乘客必须满足其目的地的签证要求。如有需要，NFSC和ROLF将在出发前提供免费食宿。<br/><br/>由于中共控制了邮件服务商，意图破坏我们乌克兰救援行动，之前公布的网站和邮箱已被强行关闭，更新后的24小时紧急救援客服联系方式如下：<br/><br/>24小时客服热线（电话/短信）：<br/>+1 720-657-6776 或 <br/>+1 719-224-4232 或<br/>+48 508-532-712 或 <br/>+48 508-531-518<br/><br/>Telegram： t.me/UkraineRescue<br/><br/>盖特： gettr.com/user/UkraineRescue<br/><br/>邮箱： UkraineRescue01@protonmail.com 或 UkraineRescue02@protonmail.com <br/><br/>NFSC<br/>法治基金<br/>2022年3月8日
 ![img](https://media.gettr.com/group12/getter/2022/03/08/18/2a3a4c78-a73b-bfe9-c865-81b48e1a3fed/bf8438731408b60f88add86c97561f40.jpg)
-
----
-
-`@miles 3/8/2022 5:09 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-克拉科夫汽车站前线报导
-![img](https://media.gettr.com/group33/origin/2022/03/08/15/c00ad26e-ddaf-fd2c-b9c6-048994a8c003/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/8/2022 5:09 PM (UTC)`
-
-【Ukraine Rescue】03/08/2022 A violin teacher Hannah prays for the 96 children rescued by the NFSC from Ukraine and to be sent on their journey to Barcelona, Spain.<br/><br/>【乌克兰救援】03/08/2022 一位小提琴老师汉娜：为新中国联邦在乌克兰救出的96个孩子并将他们送往巴塞罗那的旅途祈祷<br/>
-![img](https://media.gettr.com/group31/getter/2022/03/08/17/6119f61f-851a-d2a4-098f-33055ab30be7/out.jpg)
 
 ---
 
