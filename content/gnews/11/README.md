@@ -2,24 +2,29 @@
 ---
 
 
-## 视频|求救信息被中共屏蔽 在乌华人成弃子
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2130565/)
+## 有声｜麦当劳宣布暂时关闭在俄847家门店
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2130731/)
 
-制作：香草山视频部
+By:**秘翻新闻**
 
-3月5日，有华文媒体报道，俄罗斯入侵乌克兰后，中共官方不停地宣传所谓“基辅安全撤侨”，但实际上许多身陷东部和南部交战区的人根本就逃不出去，无法赶到基辅。而当他们尝试在大陆社交平台发布求救信息时，贴文很快被屏蔽，不允许评论、点赞，无法传播出去，并且还被告知消息不能公开，现在只能报导“正能量”。目前生活在危险战区的人，称自己已成了“被国家抛弃的人”。
+**2022-03-09**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-15.png)图片来源 路透社
+[《路透社》纽约3月8日报道，周二麦当劳公司宣布，将暂时关闭包括普希金广场在内的在俄所有的847家门店。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
-除了在乌中国人的求救信息被屏蔽，中国人在乌克兰的伤亡情况也被国内封杀。日前俄军向哈尔科夫文化学院学生宿舍开火，至少四名中国留学生被杀。但该消息在国内遭到压制，还有一些媒体称其为假消息。
+[报道指出，麦当劳餐厅的关闭在俄罗斯也具有重要的象征意义。麦当劳1990年在莫斯科市中心开设的第一家分店，在苏联解体后成为美国资本主义繁荣的象征。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
-有被困华人向前去采访的记者说，中共当局不但没有帮助撤离，反而耽误了他们宝贵的自救时间。当还在家中或学校等待“撤侨通知”的人们终于明白“包机”无望时，战火已经大举蔓延，他们连自行离开的机会也失去了。
+[麦当劳表示，虽然俄罗斯所有门店被关闭，但是仍会继续向俄罗斯的6.2万名员工支付工资。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
-发稿：林礼
+[与此同时，连锁咖啡店星巴克也宣布暂时关闭门店，百事可乐停止销售其软饮料品牌，可口可乐停止在俄罗斯的业务。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+[马萨诸塞大学政治学教授马斯格雷夫说，麦当劳的关闭表明，西方对俄罗斯迅速而广泛的制裁将产生持久的经济影响。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
+秘翻新闻 冰糖葫芦喵编译报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

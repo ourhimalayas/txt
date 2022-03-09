@@ -2,35 +2,29 @@
 ---
 
 
-## 有声|四力角逐，四马奔腾的世代 – -从启示录第六章的四马奔腾看俄乌之战和新中国联邦
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2130704/)
+## 有声｜中共国东部多地疫情再现
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2130819/)
 
-配音：香草山福音部 – Daxia
+By:**秘翻新闻**
 
-关于启示录第六章的四匹马（白马，红马，黑马和灰马）已经有许多不同的解读和理解，随着末后世代的瘟疫，战争，饥荒的蔓延，以及世界上四种势力的角逐，这四匹马对于有信仰的人们有着崭新的意义和洞见，这里重新审视世界上的四大势力与这四匹马的对应关系和启示。
+**2022-03-09**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/14-11.png)图片来源 网络
+[综合媒体消息。在俄罗斯侵乌战争继续推进、台海形势越发紧张、正值中共两会召开的时候，中共官媒报道，中共国东部多地爆发疫情，疫区管控升级。](https://www.ntdtv.com/gb/2022/03/08/a103367937.html)
 
+[当地时间3月8日下午，北京市政府发布疫情通报称，3月7日0时至3月8日16时，北京市新增本土新冠肺炎确诊病例7例，其中海淀区3例、朝阳区4例。](https://www.ntdtv.com/gb/2022/03/08/a103367937.html)
 
+[位于北京的抖音母公司字节跳动有员工被确诊染疫，其位于科技园区的公司总部已被封控。官方呼吁市民，近期非必要不出京。](https://www.ntdtv.com/gb/2022/03/08/a103367937.html)
 
-**文字版原文：[【信仰之声】四力角逐，四马奔腾的世代 – -从启示录第六章的四马奔腾看俄乌之战和新中国联邦](https://gnews.org/zh-hans/2121867/)**
+[据青岛卫生健康3月8日发布消息称，8日0点至12点，山东青岛莱西市新增12例本土确诊病例、63例无症状感染者。](https://www.ntdtv.com/gb/2022/03/08/a103367937.html)
 
-发稿：雪梨
+[网易新闻3月7日消息称，吉林省吉林市疫情防控指挥部决定，从3月7日零时起，至13日24时，吉林市全面停工、停业、停课，实施近乎封城的管控措施。](https://www.ntdtv.com/gb/2022/03/08/a103367937.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+秘翻新闻 二丫 菜园子编辑报道
 
-**更多资讯，更多关注**
+发布 : 恩典
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

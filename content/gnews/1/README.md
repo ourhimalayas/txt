@@ -2,29 +2,26 @@
 ---
 
 
-## 有声｜麦当劳宣布暂时关闭在俄847家门店
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2130731/)
+## 国际｜壳牌宣布将退出所有俄罗斯石油、天然气业务
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2130843/)
 
-By:**秘翻新闻**
+**撰文/ 港台前线｜发布日期/ 09/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-13.png)**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+當地时间8日，壳牌(Shell plc )官网发出公告，表示将有阶段性的退出所有在俄罗斯的石油、石油产品、天然气、液化天然气等业务，并停止采购俄罗斯石油。此外，壳牌将关闭在俄罗斯的加油站、航空燃料及润滑油业务。。
 
-**2022-03-09**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/12-15.png)图片来源 路透社
-[《路透社》纽约3月8日报道，周二麦当劳公司宣布，将暂时关闭包括普希金广场在内的在俄所有的847家门店。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
+壳牌称“意识到上周购买的一批俄罗斯原油，以提练成汽油和柴油等产品….这是不正确的….我们将提供一个专门的基金在未来几天和几周内与援助伙伴、人道主义机构合作，确保用于减轻俄乌战争带给乌克兰人民的可怕后果。”
 
-[报道指出，麦当劳餐厅的关闭在俄罗斯也具有重要的象征意义。麦当劳1990年在莫斯科市中心开设的第一家分店，在苏联解体后成为美国资本主义繁荣的象征。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
+該公司明确表达，除政府指示外，将
 
-[麦当劳表示，虽然俄罗斯所有门店被关闭，但是仍会继续向俄罗斯的6.2万名员工支付工资。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
+1. 立即停止购买俄罗斯原油现货，且不会续签定期契约。
+2. 与政府协商后，将尽快改变公司的原油供应链，减少对俄罗斯的需要。但在过程中可能导致本公司产品的产量下降。
+3. 将立刻着手关闭我们在俄罗斯的加油站、航空燃料和润滑油业务。
 
-[与此同时，连锁咖啡店星巴克也宣布暂时关闭门店，百事可乐停止销售其软饮料品牌，可口可乐停止在俄罗斯的业务。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
 
-[马萨诸塞大学政治学教授马斯格雷夫说，麦当劳的关闭表明，西方对俄罗斯迅速而广泛的制裁将产生持久的经济影响。](https://www.reuters.com/business/retail-consumer/mcdonalds-close-restaurants-russia-2022-03-08/)
+其他更详细资讯，均载于该公司官方网站声明之中，一切以官网意思为主。
 
-秘翻新闻 冰糖葫芦喵编译报道
+來源｜[shell](https://www.shell.com/media/news-and-media-releases/2022/shell-announces-intent-to-withdraw-from-russian-oil-and-gas.html)
 
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

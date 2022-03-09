@@ -2,21 +2,34 @@
 ---
 
 
-## 视频|普京核心团队出现反战声音 惊爆在美藏匿的资产
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2130507/)
+## 有声|四力角逐，四马奔腾的世代 – -从启示录第六章的四马奔腾看俄乌之战和新中国联邦
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2130704/)
 
-制作：香草山视频部
+配音：香草山福音部 – Daxia
 
-3月2日的《文贵大直播》中，郭先生揭露，在俄乌战局焦灼之际，普京核心团队为求自保，（对俄乌战争的）态度急剧转变，出现反战声音，战争进入了一个特别时期。俄罗斯在美国藏匿资产高达17万亿（美元），只有独裁国家通过控制媒体才会做出这种可怕的事情，把国家的一切都卖了；中共比起俄罗斯，有过之而无不及。世界没有比当下的中共和俄罗斯再邪恶的政权。
+关于启示录第六章的四匹马（白马，红马，黑马和灰马）已经有许多不同的解读和理解，随着末后世代的瘟疫，战争，饥荒的蔓延，以及世界上四种势力的角逐，这四匹马对于有信仰的人们有着崭新的意义和洞见，这里重新审视世界上的四大势力与这四匹马的对应关系和启示。
 
 
 
-发稿：林礼
+**文字版原文：[【信仰之声】四力角逐，四马奔腾的世代 – -从启示录第六章的四马奔腾看俄乌之战和新中国联邦](https://gnews.org/zh-hans/2121867/)**
+
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
