@@ -2,79 +2,73 @@
 ---
 
 
-## 危险！！！这就是俄国开始栽赃嫁祸的方式
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2129815/)
+## 【转】截至3.8 俄乌战事汇总（4）
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2129912/)
 
-马可·卢比奥： 危险！！！ 这就是俄国开始栽赃嫁祸的方式。 如果乌克兰发生生物武器事件，100% 确定是俄罗斯人干的 【图片大意：俄外交部称发现乌克兰实验室在发展生物武器，由美国防部资助】
+#### 采集：文洋
+![](https://assets.gnews.org/wp-content/uploads/2022/03/sZYOmSUA_mosaic-1.png)
+1. 美国白宫：拜登的行政令禁止从俄罗斯进口原油、石油、石油燃料、石油及其蒸馏产品、液化天然气，煤、以及煤炭产品。
+2. 美国情报部门负责人：俄罗斯使用加密货币完全破坏西方的制裁将是一个挑战。
+3. 乌克兰财政部：尽管俄罗斯对乌克兰发动特别军事行动，乌克兰仍承诺按时足额偿还债务。
+4. 欧盟委员会副主席兼“外长”博雷利：欧盟不打算禁止从俄罗斯进口能源。（卫星新闻）
+5. 美国中情局局长伯恩斯：美国应该认真对待俄罗斯的要求，即美国的制裁不应干扰莫斯科与伊朗做生意的能力。
+6. 惠誉：美国企业在俄罗斯的风险敞口很低，但间接风险很广泛。
+7. 乌克兰央行购买了200亿乌克兰格里夫尼亚的政府战争债券。
+8. 乌克兰警方官员称，过去24小时内，东部哈尔科夫市有27名平民死亡。
+9. 据俄新社：俄罗斯总统普京签署了限制进出口的特别经济措施法令，以保护俄罗斯安全。
+10. 美国官员：最近美国汽油价格飙升是俄罗斯总统普京的选择和“这场不必要的战争”的结果。
+11. 美国官员：现在是石油和天然气公司与华尔街合作提高美国产量的时候了。
+12. 美国官员：我们无法预测普京下一步会做什么，“但我们已经做好了一切准备”。
+13. 乌克兰哈尔科夫地区的州长称，俄罗斯在过去一天试图进入哈尔科夫市的所有企图都被击退。
+14. 白宫新闻秘书珍·普萨基：禁止俄罗斯能源进口意味着禁止签订新合同，并为履行现有合同提供45天的时间。
+15. 伦敦金属交易所（LME）：目前预计将在英国时间上午9点左右恢复镍交易。
+16. 伦敦金属交易所（LME）：由于地缘政治事件和价格上涨，整体大宗商品市场的信贷状况承受到压力。
+17. 伦敦金属交易所（LME）：清算所全部会员符合全面的保证金要求，尚未针对恢复伦镍交易设定日期；预计不会在3月11日之前重启镍交易。
+18. 白宫国家经济委员会主任布赖恩·迪斯：美国及其盟国正在咨询是否需要释放更多石油。
+19. 白宫国家经济委员会主任布赖恩·迪斯：美国采取必要措施减轻制裁的影响。
+20. 白宫国家经济委员会主任布赖恩·迪斯：相信今天宣布的俄罗斯石油进口禁令的影响不会是长期的。
+21. 美国白宫：人道主义走廊上空的有限禁飞区仍将令人担忧，而且会不断升级。
+22. 【LME：预计将为镍的所有直接合约设定10%左右的涨跌幅限制】
+伦敦金属交易所（LME）公告称，目前预计，将在所有执行场所为镍的所有直接合约设定10%左右的涨跌幅限制，具体仍有待进一步分析。这将限制恢复交易后可能发生的直接波动的上限，并允许以有序的方式管理由此产生的影响。在交易恢复当天，涨跌幅以3月7日收盘价为基准。
+23. 美国参议院多数党领袖舒默：向乌克兰提供的超过120亿美元的紧急援助、针对新冠疫情提供的150亿美元将纳入综合支出法案
+24. 美国白宫：俄罗斯和美国仍有阻止伊朗获得核武器的共同愿望。
+25. 美国白宫：美国不期望也不要求欧洲国家效仿对俄石油进口禁令。
+26. 白宫新闻秘书珍·普萨基：目前并不缺乏钻探的地方，也不缺乏获取石油的途径。
+27. 美国参议院多数党领袖舒默：拜登没有限制国内石油生产。
+28. 美国财政部：拜登政府对俄罗斯石油进口的禁令并没有禁止里海管道财团的原油交易。
+29. 美国总统拜登：天然气价格将会上涨。
+30. 【受俄乌紧张局势影响希腊电价再创新高】
+希腊电力价格3月8日盘前批发价为每兆瓦时426.9欧元，最高价达600.07欧元，创下希腊证券交易所史上最高的价格。近两个月来，由于俄乌局势紧张，国际能源价格上涨，希腊电费飙升，天然气价格也大幅上涨了20%至25%，对希腊经济造成巨大影响。希腊财政部此前发布的数据显示，希腊26%的进口石油和39%的进口天然气来自俄罗斯。此外，希腊财政部预计，国际天然气价格每上涨10美元，希腊的GDP就会损失6亿欧元。
+31. 美国副国务卿：美国方面正在考虑在波兰部署一些爱国者导弹系统。
+32. 美国副国务卿：土耳其根据蒙特勒公约采取了“强有力的行动”，拒绝军舰进入黑海。
+33. 美国副国务卿：对波兰为乌克兰提供战机表示“惊讶”。
+34. 塞尔维亚将从3月10日起禁止出口面粉、玉米和植物油。
+35. 俄罗斯央行官方声明显示，拥有外币账户的客户最多可以提取1万美元，该规定将一直持续到9月9日。
+36. 国家卫健委：昨日新增本土确诊病例233例，新增本土无症状感染者322例。
+37. 【光大期货：沪镍主力合约迎来三个涨停板，但仍需上涨约18%才能与伦镍匹配】
+光大期货表示，昨日LME宣布暂停镍交易，取消所有在英国时间2022年3月8日凌晨00:00或之后在场外交易和LME select屏幕交易系统执行的镍交易，并预计3月11日前不会重启交易。也就是LME再次开盘以50300美元/吨计算，结合内外价差，预计沪镍仍需上涨约18%才能与之匹配。不过，LME重启交易后各种可能性都存在，因此建议盘中多空头以风控为上，场外投资者不轻易入场参与，等待该风险事件结束。
+38. 机构分析：美页岩油增产或是两害相权取其轻的选择预计增加美国页岩油产量可以取代美国从俄罗斯进口石油，甚至可以取代相当一部分俄罗斯出口到欧洲的石油。挑战当然存在。扩大美国钻探作业需要更多工人、资本和原材料，所有这些供应都不充足。而更大的障碍或许是：扩大石油钻井会违背拜登政府抗击气候变化的承诺。不过，需要对当前的这种极端情况做出回应。鉴于油价突破120美元/桶，未来几个月美国CPI势将达到9%，而能源出口收入增加则会为俄罗斯的军事行动提供资金，因此没有什么轻松选项。增加页岩油产量可能被证明是两害相权取其轻的选择。
+39. 亚马逊公司已停止接收来自俄罗斯和白俄罗斯的云服务新客户。（卫星新闻）
+40. 俄国民卫队称，扎波罗热核电站的情况在俄国民卫队士兵的完全控制下，核电站人员正常工作。（卫星新闻）
+41. 俄国民卫队称，在与乌克兰国民警卫队就转交扎波罗热核电站谈判后，近240名乌克兰人放下武器并被放行回家。（卫星新闻）
+42. 美军欧洲司令部称，美国应波兰之邀正向该国投送2个连的“爱国者”防空导弹系统以抗击“对北约的潜在威胁”。（卫星新闻）
+43. 俄罗斯国民卫队称，夺取扎波罗热核电站控制权后，在此发现了500多件带有弹药的乌克兰国民警卫队的武器，目前武器已被没收；在扎波罗热核电站所发现的重武器表明乌克兰国民警卫队认真准备进行防御战。（卫星新闻）
+44. 新中国联邦救援信息：
+由于被中共控制了邮件服务商，意图破坏本次乌克兰救援行动，之前公布的网站和邮箱已被强行关闭，更新后的24小时紧急救援客服联系方式如下：
+24小时客服热线（电话/短信）：
++1 720-657-6776 或
++1 719-224-4232 或
++48 508-532-712 或
++48 508-531-518
+Telegram： t.me/UkraineRescue
+盖特： gettr.com/user/UkraineRes…
+邮箱： [\[email protected\]](/cdn-cgi/l/email-protection) 或
+[\[email protected\]](/cdn-cgi/l/email-protection)
+NFSC
+法治基金
+2022年3月8日
 
-
-
-> DANGER!!!
-> This is how [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) sets up false flags 
-> 
-> If there is a biological weapons incident in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) be 100% certain its the Russians who did it [pic.twitter.com/r5F0q0rUvr](https://t.co/r5F0q0rUvr)
-> — Marco Rubio (@marcorubio) [March 8, 2022](https://twitter.com/marcorubio/status/1501299527659274247?ref_src=twsrc%5Etfw)
-
-
-
-比尔·格茨: 国防情报局负责人表示，普京威胁使用核武器是真实的，“我们应该相信他的话”国防情报局还估计有2000至4000名俄罗斯士兵丧生
-
-
-
-> DIA director says the Putin threat to use nukes is real and “we should take him at his word” DIA also estimates 2,000 to 4,000 Russian troops killed [https://t.co/DhonHqFXmC](https://t.co/DhonHqFXmC)
-> — Bill Gertz (@BillGertz) [March 9, 2022](https://twitter.com/BillGertz/status/1501392135190298631?ref_src=twsrc%5Etfw)
-
-
-
-众议员吉姆·班克斯： 拜登对俄罗斯的制裁却让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 得以救助俄罗斯银行。 拜登必须实施适用于北京的连带制裁！ 【附南华早报文章：[#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 警告肖尔茨和马克龙‘制裁俄罗斯会拖累世界经济’】
-
-
-
-> Biden’s sanctions on Russia allow the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) to bail out Russian banks. 
-> 
-> Biden must impose secondary sanctions which apply to Beijing! [https://t.co/QZdVKPMxvr](https://t.co/QZdVKPMxvr)
-> — Jim Banks (@RepJimBanks) [March 8, 2022](https://twitter.com/RepJimBanks/status/1501344040272420868?ref_src=twsrc%5Etfw)
-
-
-
-众议员吉姆·班克斯： 普京的情况并不好，习近平显然不希望他的公民看到当你入侵一个主权国家时会发生什么。 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 【附[http://axios.com](https://t.co/bZseuGwPHd)新闻：大事：中共国管制乌克兰（新闻）】
-
-
-
-> Things aren’t going great for Putin and Xi obviously doesn't want his citizens to see what happens when you invade a sovereign nation. [#taiwan](https://twitter.com/hashtag/taiwan?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/BJdiWtZbWB](https://t.co/BJdiWtZbWB)
-> — Jim Banks (@RepJimBanks) [March 8, 2022](https://twitter.com/RepJimBanks/status/1501331865365581824?ref_src=twsrc%5Etfw)
-
-
-
-参议员霍利新闻办： 霍利参议员询问美国核力量指挥官，中共国是否已准备好对美军使用核武器。他的回答是：肯定的。
-
-
-
-> Senator Hawley asks the commander of America’s nuclear forces whether China is getting ready to use nuclear weapons against U.S. troops. His answer: unequivocally yes. [pic.twitter.com/fffK9CXm4i](https://t.co/fffK9CXm4i)
-> — Senator Hawley Press Office (@SenHawleyPress) [March 8, 2022](https://twitter.com/SenHawleyPress/status/1501302530399162382?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克.蓬佩奥： 台湾是全亚洲最具活力的民主国家，处于当今自由与暴政斗争的最前沿。
-
-
-
-> Taiwan the most vibrant democracy in all of Asia and is at the forefront of today’s fight between freedom and tyranny.
-> — Mike Pompeo (@mikepompeo) [March 8, 2022](https://twitter.com/mikepompeo/status/1501324235561742338?ref_src=twsrc%5Etfw)
-
-
-
-参议员泰德·克鲁兹： 阻止普京的战争机器需要削减他向欧洲出售天然气和石油的能力。 欧洲对能源的需求首先可以通过美国能源以及来自我们的合作伙伴和盟友的能源来满足。
-
-
-
-> Stopping Putin's war machine requires cutting his ability to sell gas and oil to Europe.
-> 
-> Europe’s demand for energy can be met first and foremost with American energy, along with energy from our partners and allies. [pic.twitter.com/5kx9Pac8ps](https://t.co/5kx9Pac8ps)
-> — Senator Ted Cruz (@SenTedCruz) [March 9, 2022](https://twitter.com/SenTedCruz/status/1501379242243735553?ref_src=twsrc%5Etfw)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16467988861.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
