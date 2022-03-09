@@ -2,35 +2,29 @@
 ---
 
 
-## 波兰：目前超106万人逃离乌克兰，涌入波兰避难
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2130818/)
+## 有声｜中共国东部多地疫情再现
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2130819/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+By:**秘翻新闻**
 
-整理/编辑：小鱼儿
+**2022-03-09**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/14-11.png)图片来源 网络
+[综合媒体消息。在俄罗斯侵乌战争继续推进、台海形势越发紧张、正值中共两会召开的时候，中共官媒报道，中共国东部多地爆发疫情，疫区管控升级。](https://www.ntdtv.com/gb/2022/03/08/a103367937.html)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-93.png)图片来源：雅典娜设计组&timesofisrael
+[当地时间3月8日下午，北京市政府发布疫情通报称，3月7日0时至3月8日16时，北京市新增本土新冠肺炎确诊病例7例，其中海淀区3例、朝阳区4例。](https://www.ntdtv.com/gb/2022/03/08/a103367937.html)
 
+[位于北京的抖音母公司字节跳动有员工被确诊染疫，其位于科技园区的公司总部已被封控。官方呼吁市民，近期非必要不出京。](https://www.ntdtv.com/gb/2022/03/08/a103367937.html)
 
-据日本国际传媒(NHK WORLD-JAPAN)3月8日报道，波兰内务与行政部透露，自俄军2月24日发动军事入侵以来，截止3月6日已有106万7000人涌入波兰。
+[据青岛卫生健康3月8日发布消息称，8日0点至12点，山东青岛莱西市新增12例本土确诊病例、63例无症状感染者。](https://www.ntdtv.com/gb/2022/03/08/a103367937.html)
 
-3月6日，单日入境人数达14万2300人，是俄军入侵以来人数最多的一天。当地天气寒冷，即便是白天气温也接近零度。
+[网易新闻3月7日消息称，吉林省吉林市疫情防控指挥部决定，从3月7日零时起，至13日24时，吉林市全面停工、停业、停课，实施近乎封城的管控措施。](https://www.ntdtv.com/gb/2022/03/08/a103367937.html)
 
-同时，据联合国难民署（UNHCR）统计，截至3月6日，已有173万5000人从乌克兰前往国外避难。除波兰以外，还有18万人涌入匈牙利，将近13万人抵达斯洛伐克，8万人抵达摩尔多瓦。
+秘翻新闻 二丫 菜园子编辑报道
 
-参考新闻：[逾106万人从乌克兰涌入波兰避难](https://www3.nhk.or.jp/nhkworld/zh/news/353377/)
+发布 : 恩典
 
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,25 @@
 ---
 
 
-## 美国禁止中共国半导体等相关产品出口俄罗斯
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2130827/)
+## 国际｜壳牌宣布将退出所有俄罗斯石油、天然气业务
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2130843/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-94.jpg)
-[图片链接](https://pc.watch.impress.co.jp/img/pcw/docs/1115/964/html/photo012_o.jpg.html)
+**撰文/ 港台前线｜发布日期/ 09/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-13.png)**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+當地时间8日，壳牌(Shell plc )官网发出公告，表示将有阶段性的退出所有在俄罗斯的石油、石油产品、天然气、液化天然气等业务，并停止采购俄罗斯石油。此外，壳牌将关闭在俄罗斯的加油站、航空燃料及润滑油业务。。
 
-3月8日，美国商务部长雷蒙德警告说，如果中共国公司不配合美国实施的对俄罗斯高科技产品出口的管制，中共国公司可能被 “有效关闭”。这对俄罗斯入侵乌克兰施加压力的一部分。
+壳牌称“意识到上周购买的一批俄罗斯原油，以提练成汽油和柴油等产品….这是不正确的….我们将提供一个专门的基金在未来几天和几周内与援助伙伴、人道主义机构合作，确保用于减轻俄乌战争带给乌克兰人民的可怕后果。”
 
-美国的法规涵盖了使用美国技术制造商品的外国公司。中共国的半导体制造公司也在使用美国制造的生产设备和其他产品。
+該公司明确表达，除政府指示外，将
 
-莱蒙德指出，俄罗斯试图通过第三国规避制裁和出口管制。
+1. 立即停止购买俄罗斯原油现货，且不会续签定期契约。
+2. 与政府协商后，将尽快改变公司的原油供应链，减少对俄罗斯的需要。但在过程中可能导致本公司产品的产量下降。
+3. 将立刻着手关闭我们在俄罗斯的加油站、航空燃料和润滑油业务。
 
-如果向俄罗斯出口半导体等产品，中共国公司将被禁止使用美国制造的生产设备和软件，这将导致中共国的半导体制造能力被摧毁。
 
-信息源：
+其他更详细资讯，均载于该公司官方网站声明之中，一切以官网意思为主。
 
-##### [米、中国の対露輸出に警告　先端技術規制に同調迫る](https://www.sankei.com/article/20220309-KFTBZR4YJ5J7FJR2QQ6K2EXV2Q/)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
-
+來源｜[shell](https://www.shell.com/media/news-and-media-releases/2022/shell-announces-intent-to-withdraw-from-russian-oil-and-gas.html)
 
  
 
