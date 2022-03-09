@@ -2,42 +2,38 @@
 ---
 
 
-## 俄罗斯将台湾列入不友善国家 打脸中共
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2133389/)
+## 物流瘫痪，俄罗斯遭痛击（上）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2133418/)
 
-作者：纽约磐石农场—在远方
+翻译：宫米叶
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-3-1.jpg)图片来源：cn.nikkei.com
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
-台湾媒体3月7日消息，在俄罗斯非法入侵乌克兰，并遭到全世界谴责和制裁后，普京政府也提出了反制措施。除阻止资本外流、设法稳定汇率等措施外，俄罗斯还拟定了一份不友善国家和地区的名单，准备对他们进行报复。值得注意的是，在这份名单中，除了美欧等国，亚洲的日本、韩国、新加坡等国以外，台湾也名列其中。
+欧洲大半海上集装箱运输被切断，对世界经济也造成影响。
 
+物流瘫痪，俄罗斯遭痛击。
 
+欧洲大半海上集装箱运输被切断，对世界经济也造成影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-30.jpg)图片来源：自由时报
+由于以欧美为主导的制裁加强，俄罗斯的物流逐渐陷入瘫痪状态。欧盟(EU)各国海关停止对俄罗斯的海路出口，在该国进口集装箱贸易占大多数的海路运输实质上停止。稀缺资源和谷物的出口受到阻碍，零部件和产品的进口也停滞下来。俄罗斯经济事实上正与世界切割，物流停止也会对世界经济造成影响。
 
-据悉，该名单中还特别标注，台湾虽然被认为是中国的领土，但是自1949年以后，就由自己的政府所统治。
+荷兰海关当局1日透露，“拦截了运往俄罗斯的集装箱”，原因是由于对俄罗斯进行新的制裁，需要检查货物中是否包含被制裁物品。许多货物仍然停在鹿特丹。德国汉堡的航站楼运营公司也宣布停止处理俄罗斯起降集装箱。
 
-有分析人士称，俄罗斯此举事实上已经清晰地表明了台湾真实的国际地位和影响力，是中共无论怎样叫嚣“台湾属于中国领土”都抹不去的。
+负责俄罗斯物流的主要港口有面向波罗的海的圣彼得堡、黑海方向的新罗西斯克、远东一侧的海参崴等。据俄罗斯港口统计，3个港口占2021年俄罗斯集装箱贸易量(563万TEU)的74%。
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3851684](https://news.ltn.com.tw/news/world/breakingnews/3851684)
+在亚洲到俄罗斯的货运中，一般将用巨型船只运来的集装箱通过鹿特丹、汉堡等转运成中小型船只。但是由于欧洲主要港口的海关拒绝转运送朝俄罗斯的货物，因此几乎不可能有船只去往俄罗斯。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
+【接下篇：[物流瘫痪，俄罗斯遭痛击（中）](https://gnews.org/zh-hans/2133443/)】
 
+**参考资料：**[nikkei][物流まひ、ロシア痛撃](https://www.nikkei.com/article/DGKKZO58832450W2A300C2MM8000/?unlock=1)
 
+* * *
 
-编辑/校对/发稿：滚滚长江都是水
+*审核：BryanW*
+*校对：天天*
+*发稿：信心的选择*
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-6.jpeg)
 
  
 

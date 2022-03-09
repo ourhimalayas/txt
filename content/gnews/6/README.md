@@ -2,30 +2,28 @@
 ---
 
 
-## 俄乌战争为数字货币带来转折
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2133382/)
+## 俄罗斯将台湾列入不友善国家 打脸中共
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2133389/)
 
-作者：银河系农场—骄子
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-50.png)
+作者：纽约磐石农场—在远方
 
 
-因俄罗斯对乌克兰的入侵，乌克兰呼吁各大数字货币交易所冻结俄罗斯人的账户，但许多加密货币交易所并未采取任何措施。相反，更多的数字货币正在帮助俄罗斯逃脱经济制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
+台湾媒体3月7日消息，在俄罗斯非法入侵乌克兰，并遭到全世界谴责和制裁后，普京政府也提出了反制措施。除阻止资本外流、设法稳定汇率等措施外，俄罗斯还拟定了一份不友善国家和地区的名单，准备对他们进行报复。值得注意的是，在这份名单中，除了美欧等国，亚洲的日本、韩国、新加坡等国以外，台湾也名列其中。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-49.jpg)
 
-同情乌克兰的人目前筹集了价值5400多万美元的数字货币资产。而在俄罗斯，数字货币在不知不觉中帮助被制裁的俄罗斯寡头保护他们的财富。
 
-支持者认为数字货币拥有自由主义精神，反对者认为数字货币除了洗钱和对冲投资以外没什么价值，并且还要耗费大量的电力和燃料。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-30.jpg)图片来源：自由时报
 
-数字货币走在人类历史的进程中，尚未有法律方面的规定来制衡数字货币的发展。目前数字货币市场的份额并不大，且持有者大部分为犯罪分子。由于数字货币的区块链加密技术，数字资产可以得到多层保护，一些拥有密钥的使用者若拒不合作，政府可能制裁不到任何账户，这对政府来说是非常棘手的。
+据悉，该名单中还特别标注，台湾虽然被认为是中国的领土，但是自1949年以后，就由自己的政府所统治。
 
-在俄乌战争之际，政府认为必须推出一些可靠的立法来约束数字货币。
+有分析人士称，俄罗斯此举事实上已经清晰地表明了台湾真实的国际地位和影响力，是中共无论怎样叫嚣“台湾属于中国领土”都抹不去的。
 
-新闻来源：[https://www.nbcnews.com/tech/crypto/ukraine-conflict-became-turning-point-cryptocurrency-rcna18705?cid=sm\_npd\_nn\_tw\_ma](https://www.nbcnews.com/tech/crypto/ukraine-conflict-became-turning-point-cryptocurrency-rcna18705?cid=sm_npd_nn_tw_ma)
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3851684](https://news.ltn.com.tw/news/world/breakingnews/3851684)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
+
+
 
 编辑/校对/发稿：滚滚长江都是水
 

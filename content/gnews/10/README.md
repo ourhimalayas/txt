@@ -2,46 +2,33 @@
 ---
 
 
-## 由于俄乌战争，多伦多一家俄罗斯酒吧计划更名
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2133344/)
+## 波兰难民营负责人请求新中国联邦救援团队帮助
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2133317/)
 
-作者：Brooke Houghton
-作者：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_091410G2.jpg)
-由于乌克兰和俄罗斯冲突期间增加大量负面评论和威胁信息， 多伦多的俄罗斯主题酒吧Pravda Vodka Bar被迫更名。
+作者：纽约香草山农场教育部 – saner三二
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+乌克兰当地时间3月9日，位于波兰边境口岸米蒂卡（Medyka）的难民安置点，天空飘着小雪，天气十分寒冷。新中国联邦救援团队迅速地搭建起了救援帐篷，供难民暂时休息，并热心给予帮助。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5eb452a2ac1a9e2a00bcd201619bebfd.jpg)
+救援团队的行动力和专业表现赢得了波兰当地难民营救组织负责人的高度赞扬，他表示，由于难民不断涌入，安置点供难民简单休息的帐篷难以负荷，他们联系了国际红十字会，对方却不提供更多帐篷，令人气愤。该负责人听闻新中国联邦救援团队准备搭建大型帐篷（5乘10米）供更多难民休息，主动联系文科战友，表示愿意提供难民安置点最好的位置用于帐篷搭建。
 
-多伦多律师兼Pravda Vodka Bar老板Jasmine Daya告诉Narcity，与过去两年COVID-19大流行期间相比，俄罗斯入侵乌克兰后的日子里，这家俄罗斯主题酒吧的日子更加艰难。
+新中国联邦救援团队立即行动，由于该位置无法驶入货运车辆，前线战友们一趟趟人工搬运帐篷各部件，毫无怨言。文科战友表示，他们希望为难民们提供力所能及的帮助，这是真正的救助行动，而不是像中共国大使馆宣称已救出所有身在乌克兰的中国人，实则还有很多中国人困在乌克兰当地。
 
-Daya说，这非常困难，现在我的首要任务始终是确保客人的安全和员工的安全。来自社区内部甚至国外的评论让她“感到担忧”。
+截至发稿之际，帐篷正在紧张有序搭建中。搭建位置位于国际媒体中心旁边，届时，世界各国媒体的镜头中都将出现新中国联邦国旗的标志性蓝色。
 
-现在这加拿大的俄罗斯人成为过街老鼠，人们对俄罗斯文化和我们的业务进行了很多攻击。对酒吧发表了很多负面评论，语音信息，社交媒体信息和谷歌负面评论。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-50.png)
 
-Daya说，这些威胁攻击信息包括，酒吧要去掉“令人讨厌的名字”，摆脱所有俄罗斯文化。
+**校对/发稿：**Fei797
 
-Daya表示，从我的心来讲我向世界上许多正在受苦的人表示同情。从某种意义上说，我的心为乌克兰人民和他们现在所忍受的一切感到悲哀。但现在把世界各地的俄罗斯人当成攻击目标，这不公平，因为战争不是他们的错。
+**更多资讯，更多关注**
 
-实际上Daya既不是俄罗斯人也不是乌克兰人，她只是拥有一家俄罗斯酒吧而已。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-Pravda Vodka Bar从这个星期五开始将改名为Brash & Sassy Vodka Bar，提供新的食物和鸡尾酒菜单以及与1920年代主题相匹配的装饰。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-Daya说她在2020年收购Pravda Vodka Bar时就已经决定要做出改变，但是当前的事件推动她加快了日程安排，包括尽快改名。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-来源：https://www.narcity.com/toronto/a-russian-bar-in-toronto-changed-their-name-quicker-than-planned-due-to-negative-comments
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

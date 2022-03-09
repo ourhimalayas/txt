@@ -2,42 +2,45 @@
 ---
 
 
-## 113位乌克兰小孩与慈善机构人员前往巴塞罗那
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2133351/)
+## 由于俄乌战争，多伦多一家俄罗斯酒吧计划更名
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2133344/)
 
-作者：香草山写作组 静言
+作者：Brooke Houghton
+作者：HimaFAFA
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_091410G2.jpg)
+由于乌克兰和俄罗斯冲突期间增加大量负面评论和威胁信息， 多伦多的俄罗斯主题酒吧Pravda Vodka Bar被迫更名。
 
+多伦多律师兼Pravda Vodka Bar老板Jasmine Daya告诉Narcity，与过去两年COVID-19大流行期间相比，俄罗斯入侵乌克兰后的日子里，这家俄罗斯主题酒吧的日子更加艰难。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
+Daya说，这非常困难，现在我的首要任务始终是确保客人的安全和员工的安全。来自社区内部甚至国外的评论让她“感到担忧”。
 
+现在这加拿大的俄罗斯人成为过街老鼠，人们对俄罗斯文化和我们的业务进行了很多攻击。对酒吧发表了很多负面评论，语音信息，社交媒体信息和谷歌负面评论。
 
-2022年3月7日早上7点，新中国联邦战友从波兰克拉科夫传来视频，从大巴车上鱼贯而下的96名乌克兰孩子与当地慈善机构人员及老师共113人，乘坐了30小时的大巴，安全到达。
+Daya说，这些威胁攻击信息包括，酒吧要去掉“令人讨厌的名字”，摆脱所有俄罗斯文化。
 
-在救助站等候多时的战友们热情地迎上前去，递上热水，巧克力，点心等食物，为这些从乌克兰战火中逃出的难民们，接风洗尘，送去人间温暖。
+Daya表示，从我的心来讲我向世界上许多正在受苦的人表示同情。从某种意义上说，我的心为乌克兰人民和他们现在所忍受的一切感到悲哀。但现在把世界各地的俄罗斯人当成攻击目标，这不公平，因为战争不是他们的错。
 
-据前线战友报道，这些孩子均在7-17岁之间，一路虽然饥饿难眠，劳累辛苦，但孩子们安静淡定，遵守规则，表现出极高的文明素质，给现场战友留下深刻的印象。迎接的战友纷纷留下热泪。
+实际上Daya既不是俄罗斯人也不是乌克兰人，她只是拥有一家俄罗斯酒吧而已。
 
-被救的孩子们及其他人员将马不停蹄，即将前往西班牙巴塞罗那的福利机构，西班牙的战友们早已做好迎接的准备。
+Pravda Vodka Bar从这个星期五开始将改名为Brash & Sassy Vodka Bar，提供新的食物和鸡尾酒菜单以及与1920年代主题相匹配的装饰。
 
-新中国联邦救援队人员，纷纷收到来自救乌克兰难民的感谢。一位乌克兰女士用文字与语音说：我一上大巴就睡过去了，感谢你们的救援，你们的救援团队太棒了。
+Daya说她在2020年收购Pravda Vodka Bar时就已经决定要做出改变，但是当前的事件推动她加快了日程安排，包括尽快改名。
 
-据参与营救这些孩子们的一位人权律师志愿者说，这是一项非常艰难的工作，没有你们的帮助，是不可能做到的。感谢法治基金。 危难时刻，唯有新中国联邦人代表中国人民，发挥着人道主义精神，不仅救助同胞，更向国际社会伸出援手，显示出正道主义的魅力。
+来源：https://www.narcity.com/toronto/a-russian-bar-in-toronto-changed-their-name-quicker-than-planned-due-to-negative-comments
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-编辑/校对/发稿：滚滚长江都是水
+**关注我们**
 
-**更多资讯，更多关注**
+Discord 账号
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+Gettr 账号
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
