@@ -15,47 +15,47 @@
 
 ---
 
-### [欧议员谴责特鲁多对车队“侵犯人权”](/content/gnews/1/README.md)
+### [“自古以来”的悖论](/content/gnews/1/README.md)
+ ` 银河勇气之星`
+
+### [人类是自己的主人](/content/gnews/2/README.md)
+ ` 银河勇气之星`
+
+### [拜登签署行政令 要求政府评估发行数字美元的利弊](/content/gnews/3/README.md)
  ` 日本东京方舟农场`
 
-### [战争进入第三周，俄乌外长土耳其会晤](/content/gnews/2/README.md)
+### [巾帼不让须眉 伟大的乌克兰女战士](/content/gnews/4/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [中共对台湾和支持台湾的外部势力发出威胁性警告](/content/gnews/5/README.md)
+ ` 儒为`
+
+### [乌克兰男童哭着穿越边境！波兰防卫队爆现状：一家平安！](/content/gnews/6/README.md)
+ ` 蓝莲花农场`
+
+### [中共国极力宣传美国在乌克兰实验室的阴谋论](/content/gnews/7/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [欧议员谴责特鲁多对车队“侵犯人权”](/content/gnews/8/README.md)
+ ` 日本东京方舟农场`
+
+### [战争进入第三周，俄乌外长土耳其会晤](/content/gnews/9/README.md)
  ` Shuizhuyu`
 
-### [2022/03/07 北约拒绝泽连斯基在乌克兰上空设立禁飞区](/content/gnews/3/README.md)
+### [2022/03/07 北约拒绝泽连斯基在乌克兰上空设立禁飞区](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共网络审查隐瞒真相禁止民众批评俄罗斯入侵乌克兰](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [俄罗斯士兵的葬礼因审查而被禁止](/content/gnews/5/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [回国参军的主教练和在战争中身亡的运动员](/content/gnews/6/README.md)
+### [回国参军的主教练和在战争中身亡的运动员](/content/gnews/11/README.md)
  ` G-NEWS TAIWAN`
 
-### [乌克兰以公民被围困为由 禁止小麦和谷物出口](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [日本资生堂停止向俄罗斯供货](/content/gnews/8/README.md)
+### [日本资生堂停止向俄罗斯供货](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [秘翻在线：拜登签署行政令加强对数字资产管理，喜币的诞生恰逢其时](/content/gnews/9/README.md)
+### [秘翻在线：拜登签署行政令加强对数字资产管理，喜币的诞生恰逢其时](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [白宫：俄罗斯可能在乌克兰使用化学武器](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [J.K. 罗琳抨击英国政客拒绝定义什么是女人](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [台国安局证实 中共“运8”在南海坠机](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [03/10每日播报｜社媒消息:蓬佩奥 班农先生](/content/gnews/13/README.md)
+### [03/10每日播报｜社媒消息:蓬佩奥 班农先生](/content/gnews/14/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [秘翻在线：禹洲集团爆雷 ，一二线城市的韭菜已经没钱了](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [【秘翻新视野】美议员提法案 调查中共支持俄入侵乌克兰](/content/gnews/15/README.md)
  ` 秘密翻译组-即时新闻播报组`
@@ -90,86 +90,86 @@
 ### [中共会发起一场能源或区域性战争，国内蕴含着粮食危机](/content/gnews/25/README.md)
  ` 雅典娜GNotes`
 
-### [实验失败：奥地利暂停“不相称”的疫苗强制令](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中国将形成“分而不离”的政治局面](/content/gnews/27/README.md)
+### [中国将形成“分而不离”的政治局面](/content/gnews/26/README.md)
  ` 雅典娜GNotes`
 
-### [美国将“关闭”违反对俄出售芯片禁令的中共国芯片制造商](/content/gnews/28/README.md)
+### [美国将“关闭”违反对俄出售芯片禁令的中共国芯片制造商](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共两会｜国防部：对“台独”行径绝不姑息 民进党是动荡的根源](/content/gnews/29/README.md)
+### [中共两会｜国防部：对“台独”行径绝不姑息 民进党是动荡的根源](/content/gnews/28/README.md)
  ` 關注組`
 
-### [【快讯】乌克兰大救援：清晨的新中国联邦梅迪卡救助站](/content/gnews/30/README.md)
+### [【快讯】乌克兰大救援：清晨的新中国联邦梅迪卡救助站](/content/gnews/29/README.md)
  ` 秘密翻译组-原创组`
 
-### [俄乌战争｜美众议院通过俄罗斯石油禁令及拨款136亿美元援助乌克兰](/content/gnews/31/README.md)
+### [俄乌战争｜美众议院通过俄罗斯石油禁令及拨款136亿美元援助乌克兰](/content/gnews/30/README.md)
  ` 關注組`
 
-### [巴西出动军机 援助俄乌战争难民](/content/gnews/32/README.md)
+### [巴西出动军机 援助俄乌战争难民](/content/gnews/31/README.md)
  ` 日本东京方舟农场`
 
-### [中共官媒、社媒禁止民众批评俄罗斯入侵乌克兰](/content/gnews/33/README.md)
+### [中共官媒、社媒禁止民众批评俄罗斯入侵乌克兰](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [全球农产品价格暴涨，引发人们对粮食短缺的担忧](/content/gnews/34/README.md)
+### [全球农产品价格暴涨，引发人们对粮食短缺的担忧](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|新中国联邦,法治基金人类神奇的使节](/content/gnews/35/README.md)
+### [有声|新中国联邦,法治基金人类神奇的使节](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [随着黄金上涨，美元崩盘可能是俄乌战争最重要的结果](/content/gnews/36/README.md)
+### [随着黄金上涨，美元崩盘可能是俄乌战争最重要的结果](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [前线快报——3月9日 前线救援队集结波乌边境梅迪卡救援站，分工明确，集体作战，全力支援救助来自乌克兰的难民](/content/gnews/37/README.md)
+### [前线快报——3月9日 前线救援队集结波乌边境梅迪卡救援站，分工明确，集体作战，全力支援救助来自乌克兰的难民](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [国际｜ 在野“保守派”尹锡悦当选南韩总统 主张“亲美抗中”](/content/gnews/38/README.md)
+### [国际｜ 在野“保守派”尹锡悦当选南韩总统 主张“亲美抗中”](/content/gnews/37/README.md)
  ` 關注組`
 
-### [拜登总统指示加快对发行“数字美元”可行性的验证](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [蓬佩奥:中共是我们这个时代的核心威胁](/content/gnews/40/README.md)
+### [蓬佩奥:中共是我们这个时代的核心威胁](/content/gnews/38/README.md)
  ` 美国政要直译推`
 
-### [纳瓦罗：中共是当前世界危机的根源，我们必须消灭它](/content/gnews/41/README.md)
+### [纳瓦罗：中共是当前世界危机的根源，我们必须消灭它](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [班农：你把中共打倒了，其余的邪恶政权就都倒了](/content/gnews/42/README.md)
+### [班农：你把中共打倒了，其余的邪恶政权就都倒了](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2022年3月9日大直播速记精萃](/content/gnews/43/README.md)
+### [乌克兰大救援3.9.2022 阻绝人道主义救助，中共犯下严重国际法罪行](/content/gnews/41/README.md)
+ ` 秘密翻译组-原创组`
+
+### [2022年3月9日大直播速记精萃](/content/gnews/42/README.md)
  ` 雅典娜GNotes`
 
-### [西方制裁已经严重影响到俄罗斯民众生活](/content/gnews/44/README.md)
+### [西方制裁已经严重影响到俄罗斯民众生活](/content/gnews/43/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新中国联邦法制基金乌克兰救援团建战地新闻直播中心](/content/gnews/45/README.md)
+### [新中国联邦法制基金乌克兰救援团建战地新闻直播中心](/content/gnews/44/README.md)
  ` NFSC News`
 
-### [俄罗斯特工称乌克兰战争“彻底失败”](/content/gnews/46/README.md)
+### [俄罗斯特工称乌克兰战争“彻底失败”](/content/gnews/45/README.md)
  ` Shuizhuyu`
 
-### [新冠疫苗导致的胎儿死亡数量增加了20倍， 但CDC仍建议孕妇接种疫苗](/content/gnews/47/README.md)
+### [新冠疫苗导致的胎儿死亡数量增加了20倍， 但CDC仍建议孕妇接种疫苗](/content/gnews/46/README.md)
  ` xiaobaige`
 
-### [有声 ｜美拟提案冻结俄罗斯黄金储备](/content/gnews/48/README.md)
+### [有声 ｜美拟提案冻结俄罗斯黄金储备](/content/gnews/47/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜23岁香港青年因反送中10.1 屯门警民冲突被判囚4年](/content/gnews/49/README.md)
+### [有声｜23岁香港青年因反送中10.1 屯门警民冲突被判囚4年](/content/gnews/48/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [新中国联邦前线救援团队已从乌克兰战区救出超过200人](/content/gnews/50/README.md)
+### [新中国联邦前线救援团队已从乌克兰战区救出超过200人](/content/gnews/49/README.md)
  ` NFSC News`
 
-### [前俄罗斯新闻主播谈俄罗斯的言论审查](/content/gnews/51/README.md)
+### [前俄罗斯新闻主播谈俄罗斯的言论审查](/content/gnews/50/README.md)
  ` NFSC News`
 
-### [中日财经爆| 中共国房企禹洲集团爆雷 公告票据违约](/content/gnews/52/README.md)
+### [中日财经爆| 中共国房企禹洲集团爆雷 公告票据违约](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [《避风港HAVEN》直播内容精选（第十九集 ·上）](/content/gnews/52/README.md)
+ ` 喜马拉雅纽约磐石农场`
 
 ### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/53/README.md)
  ` 纽约香草山MOS02`
