@@ -2,29 +2,202 @@
 ---
 
 
-## 日本东京樱花团 中文新闻播报第十六期
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2136300/)
+## 每日快报：空袭摧毁乌克兰妇产医院，17人受伤
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2136335/)
 
-新闻内容摘要：
+*作者：文零*
 
-- 1.日本政府决定对俄罗斯官员和白俄罗斯总统卢卡申科的家人进行制裁
-- 2.因俄罗斯入侵乌克兰，欧美等国相继对俄罗斯采取禁止其飞机进入
-- 3.青岛的疫情持井喷状态迅速增加
-- 4.自俄罗斯入侵乌克兰后，多国联手祭出制裁，俄罗斯政府周一提出反制
-- 5.美国参议员马可·卢比奥： 我正在制定法规
-- 6.欧盟轮值主席法国7日宣布，27国的欧盟常驻代表已经同意
-- 7.乌克兰战争爆发不到两周，已有超过1200名平民伤亡
-- 8.乌克兰总统泽连斯基将于8日格林威治标准时间下午5时
-- 9.3月7日，郭文贵先生于Gettr视频中透露新中国联邦由法治基金和法治社会
-- 10.最近科学家们在一项研究中，比较人们感染新冠病毒前后大脑扫描结果
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
+
+# ***今日摘要***
+
+1. [空袭摧毁乌克兰妇产医院，17人受伤](https://apnews.com/article/russia-ukraine-kyiv-europe-2bed71c00916d44ea951c5809b446db3)
+2. [美国谴责对乌克兰儿童医院无辜者的“野蛮”袭击](https://www.reuters.com/world/europe/russia-promises-silence-ukrainians-flee-battered-cities-2022-03-09/)
+3. [英国告诉西方，是时候对俄罗斯的普京采取更强硬的态度了](https://www.reuters.com/world/europe/time-get-tougher-with-russias-putin-britain-tells-west-2022-03-09/)
+4. [美国驳回俄罗斯对乌克兰生物战实验室的指控](https://www.newsmax.com/newsfront/bio/2022/03/09/id/1060470/)
+5. [拜登签署关于加密货币的命令，因为它的使用爆炸式增长](https://apnews.com/article/biden-cryptocurrency-executive-order-7af1d9bfda2d22046547fd9d51711ef5)
 
 
-**播报：东京樱花团-战友520**
+# 重要事件
 
-**发布： 东京樱花团-eiei**
+- [**03.09. APNEWS：空袭摧毁乌克兰妇产医院，17人受伤；Airstrike hits Ukraine maternity hospital, 17 reported hurt**](https://apnews.com/article/russia-ukraine-kyiv-europe-2bed71c00916d44ea951c5809b446db3)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/erweima.png)
+
+乌克兰马里乌波尔（美联社）——周三，俄罗斯空袭摧毁了被围困的港口城市马里乌波尔的一家妇产医院，西方越来越多地警告说，莫斯科的入侵即将采取更加野蛮和不分青红皂白的转变。乌克兰官员说，这次袭击造成至少17人受伤。
+
+当马里乌波尔建筑群被一系列爆炸击中时，地面震动了一英里多，这些爆炸炸毁了窗户并撕毁了一座建筑物的大部分前部。警察和士兵赶到现场疏散受害者，在担架上抬出一名身负重伤、流血不止的妇女，小雪飘落在燃烧的汽车和被爆炸击碎的树木上。另一个女人抱着她的孩子哭了起来。在院子里，一个爆炸坑至少延伸了两层楼深。“今天，俄罗斯犯下了巨大的罪行。”地区高级警官沃洛迪米尔·尼库林(Volodymir Nikulin)站在废墟中说，“这是没有任何正当理由的战争罪。”
+
+泽连斯基总统说，罢工将儿童和其他人困在瓦砾下。“一家儿童医院，一家妇产医院，他们是如何威胁俄罗斯联邦的？”泽连斯基在他的夜间视频讲话中问道，并用俄语表达了他对空袭的恐惧。“这是什么国家，俄罗斯联邦，怕医院，怕妇产医院，把他们给毁了？”他敦促西方实施更严厉的制裁，让俄罗斯“不再有任何可能继续这场种族灭绝”。
+
+- [**03.09.REUTERS：美国谴责对乌克兰儿童医院无辜者的“野蛮”袭击；U.S. condemns ‘barbaric’ attack on innocents at Ukraine children’s hospital**](https://www.reuters.com/world/europe/russia-promises-silence-ukrainians-flee-battered-cities-2022-03-09/)
+
+
+路透乌克兰利沃夫3月9日 -美国周三谴责对乌克兰一家儿童医院的轰炸是“野蛮的”，官员称俄罗斯空袭将患者埋在瓦砾中，尽管达成了让人们逃离被围困的马里乌波尔市的停火协议。当局称这次袭击造成分娩妇女受伤并将儿童留在残骸中，这是为期14天的入侵中最新的严峻事件，是自1945年以来对欧洲国家的最大袭击。
+
+尽管俄罗斯承诺停止射击，以便至少一些被困平民可以逃离这座城市，但破坏还是发生了，数十万人在没有水或电力的情况下躲避了一个多星期。
+
+- [**03.09.REUTERS：英国告诉西方，是时候对俄罗斯的普京采取更强硬的态度了；Time to get tougher with Russia’s Putin, Britain tells West**](https://www.reuters.com/world/europe/time-get-tougher-with-russias-putin-britain-tells-west-2022-03-09/)
+
+
+伦敦，3月9日（路透社）——英国外交大臣利兹·特拉斯（Liz Truss）周四将呼吁西方对俄罗斯总统弗拉基米尔·普京（Vladimir Putin）采取更强硬的态度，因为俄罗斯总统弗拉基米尔·普京（Vladimir Putin）破坏了乌克兰的“全球安全架构”，并加强了制裁的“弊端”。
+
+美国之行的第二天，特拉斯将告诉大西洋理事会智囊团的听众，在俄罗斯入侵乌克兰之后，西方绝不能再“让这种侵略肆无忌惮地发展”。“我们必须挺身而出，我们必须保证，我们永远不会再让这种侵略肆无忌惮地发展，这意味着现在就采取行动，这意味着要强硬——因为我们知道，如果我们不这样做，成本只会上升。”特拉斯说。普京侵犯了“我们共存的规则——主权、民主、联合国宪章，他破坏了全球安全的架构。”她说，“如果我们让普京的扩张主义不受挑战，它将向世界各地的潜在侵略者和独裁者发出一个危险的信息。”她将入侵乌克兰描述为“9/11规模的范式转变”。
+
+- [**03.09.NEWSMAX：美国驳回俄罗斯对乌克兰生物战实验室的指控；US Dismisses Russian Claims of Biowarfare Labs in Ukraine**](https://www.newsmax.com/newsfront/bio/2022/03/09/id/1060470/)
+
+
+美国周三否认俄罗斯再次指控华盛顿在乌克兰经营生物战实验室，称这些说法“可笑”，并暗示莫斯科可能正在为使用化学或生物武器奠定基础。
+
+周二晚些时候，俄罗斯再次指责美国多年来一直在与乌克兰实验室合作开发生物武器。俄罗斯媒体的此类断言在莫斯科军队进入乌克兰前夕有所增加，最近由外交部发言人玛丽亚·扎哈罗娃(Maria Zakharova)于周三发表。
+
+五角大楼发言人约翰·柯比周三表示：“俄罗斯的指控是荒谬的，它们是可笑的，你知道，用我的爱尔兰天主教祖父的话来说，是无稽之谈。这没什么，这是典型的俄罗斯宣传。”美国国务院发言人内德·普莱斯在周三发表的一份声明中表示，俄罗斯“正在编造虚假借口，试图为其在乌克兰的可怕行动辩护”。白宫新闻秘书珍·普萨基（Jen Psaki）援引所谓的俄罗斯的“虚假声明”在推特上写道：“是俄罗斯在使用化学武器方面有着长期且有据可查的记录，包括企图暗杀和毒杀普京的政治敌人，例如阿列克谢·纳瓦尔尼。”
+
+周三，俄罗斯驻华盛顿大使馆没有立即回应美国的说法。
+
+- [**03.09.APNEWS：拜登签署关于加密货币的命令，因为它的使用爆炸式增长；Biden signs order on cryptocurrency as its use explodes**](https://apnews.com/article/biden-cryptocurrency-executive-order-7af1d9bfda2d22046547fd9d51711ef5)
+
+
+华盛顿（美联社）——美国总统乔·拜登周三签署了一项关于政府监管加密货币的行政命令，敦促美联储探索央行是否应该介入并创建自己的数字货币。
+
+财政部长珍妮特·耶伦表示，这项努力将“促进一个更公平、更具包容性和更高效的金融体系”，同时打击非法金融，防止金融稳定和国家安全面临的风险。一位高级政府官员周二在不愿透露姓名的情况下预览了该命令，白宫设定的条款表示，拜登政府将加密货币的爆炸式普及视为检查数字资产风险和收益的机会。根据行政命令，拜登还指示财政部和其他联邦机构研究加密货币对金融稳定和国家安全的影响。 拜登的高级经济和国家安全顾问布赖恩·迪斯和杰克·沙利文分别表示，该命令为美国建立了第一个全面的联邦数字资产战略。
+
+# 更多要闻链接
+
+1. [俄罗斯军队在基辅外的坦克车队中被冻住，未来的夜晚更冷](https://www.washingtonexaminer.com/policy/defense-national-security/colder-nights-ahead-for-russian-forces-frozen-in-tank-convoy-outside-kyiv)
+2. [乌克兰召集公民黑客大军与俄罗斯进行信息战](https://www.washingtontimes.com/news/2022/mar/9/ukraine-musters-army-citizen-hackers-info-wars-rus/)
+3. [白宫警告俄罗斯可能在乌克兰使用化学武器](https://www.newsmax.com/world/globaltalk/russia-ukraine-war-biden/2022/03/09/id/1060468/)
+4. [借鉴乌克兰全民皆兵,台湾“史上最硬” 后备军人教育召集上路](https://www.voachinese.com/a/taiwan-boosts-combat-readiness-by-reinforcing-reservist-training-20220309/6475058.html)
+5. [美国祝贺韩国当选总统](https://www.voachinese.com/a/us-south-korea-/6478063.html)
+
+
+# 每日推特文摘
+
+
+
+3/9/2022文贵直播：中共将在3月底到4月在世界上开始行动，习将冒险一搏，用中东挑起能源战争打垮世界经济并攻打台湾，中共将采取更狠的手段，但也会更快灭亡，新中国联邦将打扫战场。
+
+
+
+
+
+> 3/9/2022 文贵直播：中共将在3月底到4月在世界上开始行动，习将冒险一搏，用中东挑起能源战争打垮世界经济并攻打台湾，中共将采取更狠的手段，但也会更快灭亡，新中国联邦将打扫战场
+>  [https://t.co/BkDXdF4Xuz](https://t.co/BkDXdF4Xuz)
+> — yanhuali(澳喜特战旅) (@yanhuali2) [March 10, 2022](https://twitter.com/yanhuali2/status/1501723985834561537?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+郭文贵先生在最新一则盖特中表示，新中国联邦的多位爆料革命战友，远赴乌克兰参与前线救援，截至目前，已经救出上百名乌克兰儿童，以及包括中国人、乌克兰人在内的各国人士总共两百余人。
+
+
+
+
+
+> 郭文贵先生在最新一则盖特中表示，新中国联邦的多位爆料革命战友，远赴乌克兰参与前线救援，截至目前，已经救出上百名乌克兰儿童，以及包括中国人、乌克兰人在内的各国人士总共两百余人。 [https://t.co/hJk93jBVll](https://t.co/hJk93jBVll)
+> — Tracy Lin (澳喜特战旅) (@TracyLi01702193) [March 9, 2022](https://twitter.com/TracyLi01702193/status/1501683170445754368?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+#新中国联邦 战友和 #法治基金 #乌克兰 前线救援行动，准备了充足的物资，正在向难民发放，更多的物资在路上。
+
+
+
+
+
+> [#新中国联邦](https://twitter.com/hashtag/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6?src=hash&amp;ref_src=twsrc%5Etfw) 战友 和 [#法治基金](https://twitter.com/hashtag/%E6%B3%95%E6%B2%BB%E5%9F%BA%E9%87%91?src=hash&amp;ref_src=twsrc%5Etfw) [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hash&amp;ref_src=twsrc%5Etfw) 前线救援行动，准备了充足的物资，正在向难民发放，更多的物资在路上[#TheNewFederalStateOfChina](https://twitter.com/hashtag/TheNewFederalStateOfChina?src=hash&amp;ref_src=twsrc%5Etfw) [#ROLF](https://twitter.com/hashtag/ROLF?src=hash&amp;ref_src=twsrc%5Etfw) [#UkraineRescue](https://twitter.com/hashtag/UkraineRescue?src=hash&amp;ref_src=twsrc%5Etfw) team on the [@Poland](https://twitter.com/Poland?ref_src=twsrc%5Etfw) frontline handing out supplies to refugees escaping from the [#UkraineRussianWar](https://twitter.com/hashtag/UkraineRussianWar?src=hash&amp;ref_src=twsrc%5Etfw) [@MFA\_Ukraine](https://twitter.com/MFA_Ukraine?ref_src=twsrc%5Etfw) [@Ukraine](https://twitter.com/Ukraine?ref_src=twsrc%5Etfw) [https://t.co/zTbfQTJSJl](https://t.co/zTbfQTJSJl) [pic.twitter.com/CSbFtsQUfX](https://t.co/CSbFtsQUfX)
+> — 李昂纳多-DC Rescue (@RealLiAngNaDuo) [March 9, 2022](https://twitter.com/RealLiAngNaDuo/status/1501579671300976642?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+【乌克兰救援】03/09/22新中国联邦和法治基金乌克兰救援行动的免费撤离专机计划安排和站点设置。
+
+
+
+
+
+> 【Ukrainian Rescue】03/09/22 The schedule of the free chartered rescue flights and the rescue site from the New Federal State of China and the Rule of Law Foundation
+> 【乌克兰救援】03/09/22新中国联邦和法治基金乌克兰救援行动的免费撤离专机计划安排和站点设置
+>  [https://t.co/Yp25kqkmIk](https://t.co/Yp25kqkmIk)
+> — 88jj（加拿大圆成农场特战队） (@2\_88jj) [March 10, 2022](https://twitter.com/2_88jj/status/1501758607469445121?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+无声胜有声，新中国联邦的旗帜飘扬在镜头的最重要位置!
+
+日本唯一的国营电视台NHK播报了乌克兰救援现场的救援实况。
+
+尽管并没有提到新中国联邦，但画面中新中国联邦的旗帜几乎贯穿整个报道。
+
+
+
+
+
+> 无声胜有声，新中国联邦的旗帜飘扬在镜头的最重要位置 !👇
+> 日本唯一的国营电视台NHK播报了乌克兰救援现场的救援实况。
+> 尽管并没有提到新中国联邦，但画面中新中国联邦的旗帜几乎贯穿整个报道。 [pic.twitter.com/nySgtmC19X](https://t.co/nySgtmC19X)
+> — 澳喜 农场 (重生10) (@aussiefarm2) [March 9, 2022](https://twitter.com/aussiefarm2/status/1501502400750063621?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+#法治基金#新中国联邦#乌克兰国际人道救援#前线播报
+
+3月8日，从克拉科夫救援基地派出的两辆物资补给车出发！驶往边境梅迪卡救援站！
+
+
+
+
+
+> [#法治基金](https://twitter.com/hashtag/%E6%B3%95%E6%B2%BB%E5%9F%BA%E9%87%91?src=hash&amp;ref_src=twsrc%5Etfw) [#新中国联邦](https://twitter.com/hashtag/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6?src=hash&amp;ref_src=twsrc%5Etfw) [#乌克兰国际人道救援](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0%E5%9B%BD%E9%99%85%E4%BA%BA%E9%81%93%E6%95%91%E6%8F%B4?src=hash&amp;ref_src=twsrc%5Etfw) [#前线播报](https://twitter.com/hashtag/%E5%89%8D%E7%BA%BF%E6%92%AD%E6%8A%A5?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 3月8日，从克拉科夫救援基地派出的两辆物资补给车出发！驶往边境梅迪卡救援站！ [pic.twitter.com/sOaUMkazam](https://t.co/sOaUMkazam)
+> — 存在主义咖啡馆 3 (@ExistCafe2021) [March 10, 2022](https://twitter.com/ExistCafe2021/status/1501748376693768196?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+真正的黑暗还没有来临
+
+
+
+
+
+> 真正的黑暗还没有来临 [pic.twitter.com/9v0LV6IGyA](https://t.co/9v0LV6IGyA)
+> — QMAY (@Q\_May\_007) [March 10, 2022](https://twitter.com/Q_May_007/status/1501740771438993411?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+
+
+*编辑：文零
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

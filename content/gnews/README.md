@@ -15,116 +15,116 @@
 
 ---
 
-### [秘翻新闻｜全球300家大企业抵制 俄罗斯经济已死](/content/gnews/1/README.md)
+### [政府雇数百家媒体宣传COVID疫苗并做全面正面报道](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [北京残奥委会开幕式残奥委会主席反战言论 遭中共审查](/content/gnews/2/README.md)
+ ` GTV新聞訪談`
+
+### [秘翻新闻｜全球300家大企业抵制 俄罗斯经济已死](/content/gnews/3/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [乌难民才出虎口又入狼窝 德国疫苗纳粹搞强制接种](/content/gnews/2/README.md)
+### [乌难民才出虎口又入狼窝 德国疫苗纳粹搞强制接种](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【 蓝枫法律 】 数字货币概述](/content/gnews/3/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [中日财经爆┃泰禾集团近500亿债务到期未还 “辟谣”没破产](/content/gnews/4/README.md)
+### [美国分析称俄军使用非制导炸弹是平民伤亡增加的因素](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [锁链梦女士](/content/gnews/5/README.md)
+### [【 蓝枫法律 】 数字货币概述](/content/gnews/6/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [中日财经爆┃泰禾集团近500亿债务到期未还 “辟谣”没破产](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [锁链梦女士](/content/gnews/8/README.md)
  ` 骄子`
 
-### [【 蓝枫法律 】 加密货币的著名案例](/content/gnews/6/README.md)
+### [【 蓝枫法律 】 加密货币的著名案例](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [中日财经爆┃俄罗斯卢布暴跌 国内通货膨胀加剧](/content/gnews/7/README.md)
+### [中日财经爆┃俄罗斯卢布暴跌 国内通货膨胀加剧](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [每日快报：空袭摧毁乌克兰妇产医院，17人受伤](/content/gnews/8/README.md)
+### [每日快报：空袭摧毁乌克兰妇产医院，17人受伤](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [福奇、瓦伦斯基和柯林斯都密谋用大流行病进行大规模谋杀](/content/gnews/9/README.md)
+### [福奇、瓦伦斯基和柯林斯都密谋用大流行病进行大规模谋杀](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [李白诗酒](/content/gnews/10/README.md)
- ` 骄子`
-
-### [日本东京樱花团 中文新闻播报第十六期](/content/gnews/11/README.md)
+### [日本东京樱花团 中文新闻播报第十六期](/content/gnews/13/README.md)
  ` Tokyo Sakura Video Group`
 
-### [【 蓝枫法律 】 全球数字货币法规的七大底层逻辑概述](/content/gnews/12/README.md)
+### [【 蓝枫法律 】 全球数字货币法规的七大底层逻辑概述](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [美国务院有关中俄散布乌克兰生化武器试验项目谎言的声明](/content/gnews/13/README.md)
+### [美国务院有关中俄散布乌克兰生化武器试验项目谎言的声明](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄乌战争后民天下诞生，任何独裁都将消失](/content/gnews/14/README.md)
+### [俄乌战争后民天下诞生，任何独裁都将消失](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [中共会发起一场能源或区域性战争，国内蕴含着粮食危机](/content/gnews/15/README.md)
+### [中共会发起一场能源或区域性战争，国内蕴含着粮食危机](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [实验失败：奥地利暂停“不相称”的疫苗强制令](/content/gnews/16/README.md)
+### [实验失败：奥地利暂停“不相称”的疫苗强制令](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中国将形成“分而不离”的政治局面](/content/gnews/17/README.md)
+### [中国将形成“分而不离”的政治局面](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [中日财经爆┃俄央行宣布半年内提现不能超过1万美元](/content/gnews/18/README.md)
+### [中日财经爆┃俄央行宣布半年内提现不能超过1万美元](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [前美官员：俄士兵被骗去打仗](/content/gnews/19/README.md)
+### [前美官员：俄士兵被骗去打仗](/content/gnews/21/README.md)
  ` 日本東京方舟農場`
 
-### [IMF向乌克兰提供14亿美元紧急财政援助](/content/gnews/20/README.md)
+### [IMF向乌克兰提供14亿美元紧急财政援助](/content/gnews/22/README.md)
  ` 日本东京方舟农场`
 
-### [美国将“关闭”违反对俄出售芯片禁令的中共国芯片制造商](/content/gnews/21/README.md)
+### [美国将“关闭”违反对俄出售芯片禁令的中共国芯片制造商](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共两会｜国防部：对“台独”行径绝不姑息 民进党是动荡的根源](/content/gnews/22/README.md)
+### [中共两会｜国防部：对“台独”行径绝不姑息 民进党是动荡的根源](/content/gnews/24/README.md)
  ` 關注組`
 
-### [俄乌冲突导致比特币价格大幅动荡](/content/gnews/23/README.md)
- ` 日本東京方舟農場`
-
-### [【快讯】乌克兰大救援：清晨的新中国联邦梅迪卡救助站](/content/gnews/24/README.md)
+### [【快讯】乌克兰大救援：清晨的新中国联邦梅迪卡救助站](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [俄乌战争｜美众议院通过俄罗斯石油禁令及拨款136亿美元援助乌克兰](/content/gnews/25/README.md)
+### [俄乌战争｜美众议院通过俄罗斯石油禁令及拨款136亿美元援助乌克兰](/content/gnews/26/README.md)
  ` 關注組`
 
-### [巴西出动军机 援助俄乌战争难民](/content/gnews/26/README.md)
+### [巴西出动军机 援助俄乌战争难民](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [中共官媒、社媒禁止民众批评俄罗斯入侵乌克兰](/content/gnews/27/README.md)
+### [中共官媒、社媒禁止民众批评俄罗斯入侵乌克兰](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [全球农产品价格暴涨，引发人们对粮食短缺的担忧](/content/gnews/28/README.md)
+### [全球农产品价格暴涨，引发人们对粮食短缺的担忧](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|新中国联邦,法治基金人类神奇的使节](/content/gnews/29/README.md)
+### [有声|新中国联邦,法治基金人类神奇的使节](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [随着黄金上涨，美元崩盘可能是俄乌战争最重要的结果](/content/gnews/30/README.md)
+### [随着黄金上涨，美元崩盘可能是俄乌战争最重要的结果](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [前线快报——3月9日 前线救援队集结波乌边境梅迪卡救援站，分工明确，集体作战，全力支援救助来自乌克兰的难民](/content/gnews/31/README.md)
+### [前线快报——3月9日 前线救援队集结波乌边境梅迪卡救援站，分工明确，集体作战，全力支援救助来自乌克兰的难民](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [随着死亡人数上升香港推迟大规模COVID-19检测计划](/content/gnews/32/README.md)
+### [随着死亡人数上升香港推迟大规模COVID-19检测计划](/content/gnews/33/README.md)
  ` 澳喜农场`
 
-### [国际｜ 在野“保守派”尹锡悦当选南韩总统 主张“亲美抗中”](/content/gnews/33/README.md)
+### [国际｜ 在野“保守派”尹锡悦当选南韩总统 主张“亲美抗中”](/content/gnews/34/README.md)
  ` 關注組`
 
-### [秘翻在线：新中国联邦在波兰的救助活动引起悉尼乌克兰社区协会关注](/content/gnews/34/README.md)
+### [秘翻在线：新中国联邦在波兰的救助活动引起悉尼乌克兰社区协会关注](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登总统指示加快对发行“数字美元”可行性的验证](/content/gnews/35/README.md)
+### [拜登总统指示加快对发行“数字美元”可行性的验证](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [蓬佩奥:中共是我们这个时代的核心威胁](/content/gnews/36/README.md)
+### [蓬佩奥:中共是我们这个时代的核心威胁](/content/gnews/37/README.md)
  ` 美国政要直译推`
-
-### [《避风港HAVEN》直播内容精选（第十八集）](/content/gnews/37/README.md)
- ` 喜马拉雅纽约磐石农场`
 
 ### [纳瓦罗：中共是当前世界危机的根源，我们必须消灭它](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
