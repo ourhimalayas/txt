@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：现代化战争
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2139764/)
+## 七哥金句：可以不干事但千万别干假事儿
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2139970/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句5--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句10--scaled.jpg)
 发布：枫叶红了
 
  

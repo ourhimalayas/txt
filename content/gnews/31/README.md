@@ -2,40 +2,29 @@
 ---
 
 
-## 美情报官员警告不应低估中共攻台野心
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2138825/)
+## 加拿大温哥华扬帆农场救援团队抵达前线
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2138959/)
 
-作者：纽约磐石农场—在远方/波士顿五月花农场-文雀/纽约香草山农场-云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月8日，据当地媒体报道，美国联邦众议院情报委员会当天举行了有关当前全球威胁的听证会。会上，除了俄罗斯近期对乌克兰的侵略战争外，中共对台海地区的威胁也广受关注。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-16.jpg)
-美国中情局局长伯恩斯表示，俄罗斯在俄乌战争中受到的巨大挫折以及其所招致的全球制裁虽然让中共政府大为不安，但美国决不可低估中共妄图武力犯台的野心。
+采编撰稿：加拿大温哥华杨帆农场 – 文莱，坐看云起时
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-991.png)图片来源：GETTR
+据3月9日盖特消息，由[加拿大温哥华扬帆农场]战友们组成的[法治基金]乌克兰人道救援团队，当天已陆续抵达波兰华沙，各项救援行动正在有条不紊地按预定计划执行之中。
 
-伯恩斯指出，俄罗斯与中共的伙伴关系从2019年起就一直有所增强。然而，俄罗斯在此次交战中遭遇的困境出乎中共的预料，习近平也顾虑其继续与普京交好会给中共经济带来的影响。为此，中共正在密切关注着美欧对俄罗斯制裁所导致的结果，并以此评估其犯台军事计划未来可能的走向。
+据悉，日前从加拿大多伦多机场出发的13位战友目前都已平安抵达华沙机场，在顺利办理完通关手续后，与当地现场负责接机的文耀战友成功汇合。此外，身处温哥华的7位飞赴前线战友，由于没有疫苗护照，未能在温哥华机场登机，而被迫辗转驱车南下入境美国至西雅图机场并最终成功登机。预计翌日将转机土耳其抵达波兰华沙。
 
-另一方面，美国国家情报总监办公室也在最新的年度威胁评估报告中指出，中共与俄罗斯目前是全球范围内最大的威胁。该报告提及，中共在向台湾施加压力的同时，还在继续进行其历史上最大的核力量扩张和核武库多样化的进程。此外，中共入侵台湾的行为也将给全球半导体芯片供应链带来严重的干扰。
+在此预祝[加拿大温哥华扬帆农场]前线救援团队的行动顺利，安全，成功！并敬请关注本节目对本次行动后续进展情况的及时报道。
 
-对此，伯恩斯警告称，中共正在试图修改全球规范制度来使自身获利，尤其是中共入侵台湾的野心不可估量，其必将伺机对台动用武力，美国必须严加防范。
+校对编辑：硫酸羟氯喹64
 
-参考链接：
-1). [美：俄侵烏受挫讓北京不安  但不應低估對台決心](https://www.rti.org.tw/news/view/id/2126671)
-2). [美：俄侵烏受挫讓北京不安 但不應低估對台決心](https://www.cna.com.tw/news/aopl/202203090010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-3). [美情报机构年度威胁评估报告：中俄是最大敌人，伊朗朝鲜也不可小觑](https://www.caus.com/detail/49687)
+发稿：青青
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+新闻来源：
 
-总编: Irene木木
-编辑: 宁文静
-审核: Irene木木/Ivy001
-校正/发稿：Fei797
+[https://gettr.com/post/pz1bte9543](https://gettr.com/post/pz1bte9543)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://gettr.com/post/pz0gn21135](https://gettr.com/post/pz0gn21135)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

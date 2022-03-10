@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：HPay和 Hcoin能让你活得安全
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2139736/)
+## 七哥金句：教育的核心
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2139931/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句4--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句8--scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句9--scaled.jpg)
 发布：枫叶红了
 
  

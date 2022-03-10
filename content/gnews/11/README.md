@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：精神境界
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2139651/)
+## 七哥金句：现代化战争
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2139764/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句2--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句5--scaled.jpg)
 发布：枫叶红了
 
  
