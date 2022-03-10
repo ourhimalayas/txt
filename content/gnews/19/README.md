@@ -2,37 +2,39 @@
 ---
 
 
-## 随着死亡人数上升香港推迟大规模COVID-19检测计划
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2135544/)
+## 俄罗斯宣布3月11日与全球断网，疑准备大规模网络攻击
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2135657/)
 
-撰稿：小湫
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-944.png)图片来自网络
-香港特区行政长官林郑月娥周三表示，减少新冠肺炎死亡人数的飙升是香港首要任务，并暂停了对全体居民进行检测的计划，这是政府应对大流行的最新举措。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-林郑月娥表示，在全市范围内进行检测“没有具体的时间框架”。两周前，她宣布将于本月进行检测。她早些时候的声明，加上有关该市随之实施封锁的传言，导致商店货架空空如也，居民们纷纷囤积日用品。林郑月娥说：“如果我们想要做得更好，我们必须告诉人们，除非你得到相反结果，否则你不能外出。”
+翻译/编辑：小红帽
 
-这个拥有740万人口的城市正受到欧米克隆病毒螺旋式爆发的影响，医院和停尸房都爆满，平时熙熙攘攘的金融中心的餐馆和其他商店的营业时间也被缩短或关闭。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/cycber_attact.jpg)图片来源：www.ft.com
 
-自去年12月底第五波疫情爆发以来，已有超过50万患者感染病毒和2600多人死亡。
 
-林郑月娥在与其他高级官员举行的新闻发布会上表示，政府正专注于减少死亡人数和危重病例，以及病毒的快速传播，并在国家坚定支持抗击疫情的口号的背景下表示。
+根据自然新闻网3月9日报道，随着俄罗斯总统弗拉基米尔·普京继续入侵邻国乌克兰，俄罗斯政府本周初宣布，该国将与全球互联网断开连接，以抵御外部网络攻击。
 
-中国大陆也在努力应对新病例的激增，尽管其规模比香港小得多。周三，中国又报告了233例国内传播病例，使总病例数达到899例。上周五，每日病例数恢复到三位数，这是自2020年武汉首次发现疫情后不久以来的最高数字。
+但这一决定让其他人怀疑，普京可能正计划对包括美国在内的西方国家发起自己的攻击。
 
-最近发现的大部分病例发生在中国东北的吉林省和东部沿海的山东省。吉林省位于香港以北2000多公里(1200英里)。北京本身也有6例新增病例。
+“俄罗斯将在3月11日与全球互联网完全断开，”Strange Sounds网站指出，并补充说：“不迟于3月11日，所有服务器和域必须转移到俄罗斯区域 (.ru)。此外，正在收集有关站点网络基础设施的详细数据。”
 
-中国已经对特定社区进行了大规模检测和封锁，但没有报道称整个城市都被封锁了，这发生在最近刚刚结束的北京冬季奥运会之前。
+与此同时，世界经济论坛已从其网站上删除了Cyber​​ Polygon——该网站描述了一场大规模的网络攻击，基本上将整个世界送回了1800年代，当时还没有电力和现代通信模式。
 
-在香港，林郑月娥呼吁私营医院提供支持和合作，以协助处理病人数量。她说，一些私立医院已经同意为COVID-19患者提供床位。
+此外，以监视海底光纤和互联网电缆而闻名的俄罗斯海军间谍船Yantar 已离开其基地。
 
-过去两个月的病例激增给医疗系统带来了压力，许多公立医院已经达到了容量。由于公共太平间空间不足，官员们已经部署了冷藏箱来存放尸体。
+在俄罗斯消息来源中，Yantar被描述为‘特殊用途船’或‘海洋学船’。然而，在西方，它被视为一艘间谍船。“它的长处是调查海底电缆，并可能窃听、清除或破坏它们。”Strange Sounds在另一份报告中指出。
 
-评论：香港越来越中共化，随着疫苗接种率的攀升，距离郭先生说的五月份疫苗灾难也越来越近。很多香港病例也许并非病毒感染，而是疫苗灾难，只是官方在极力掩盖。
+新闻链接：[Russia may be preparing massive cyberattack after announcing country will disconnect from global internet on March 11](https://www.naturalnews.com/2022-03-09-russia-massive-cyberattack-disconnecting-from-global-internet.html)
 
-参考信息：
+发布：tianzhihuan
 
-[Hong Kong delays mass COVID-19 testing plan as deaths rise](https://www.foxnews.com/health/hong-kong-delays-mass-covid-testing-plan-deaths)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

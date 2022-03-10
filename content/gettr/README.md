@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 6:35 AM (UTC)`
+
+【Ukrainian Rescue】03/09/22 NFSC and ROL Foundation Ukraine Rescue Operation has received significant attention from the international community<br/><br/>【乌克兰救援】03/09/22新中国联邦和法治基金乌克兰救援行动得到了国际社会的广泛关注<br/><br/>
+![img](https://media.gettr.com/group38/getter/2022/03/10/06/17806b6d-7bd9-cb8a-799b-200ec5868924/out.jpg)
+
+---
+
+`@miles 3/10/2022 6:32 AM (UTC)`
+
+【Ukrainian Rescue】03/09/22 The CCP Pseudo-Government Launches Shameless Hacking and Smear Campaign Against the NFSC and ROL Foundation's Ukraine Rescue Operation<br/><br/>【乌克兰救援】03/09/22 中共伪政府对新中国联邦和法治基金乌克兰救援行动发动无耻的黑客攻击和抹黑<br/><br/>
+![img](https://media.gettr.com/group19/getter/2022/03/10/06/3f45b4b3-2067-bc87-69ce-090f6312db0c/out.jpg)
+
+---
+
 `@miles 3/10/2022 5:49 AM (UTC)`
 
 3月10号：这个世界好人比坏人多……邪不压正，不能因为你块头大．就欺负弱小，不能因为你强大．你就可以欺负任何人，乌克兰的精神将改变这个已经被金钱搞乱的世界．被极权统治的世界．穷凶极恶的共产党还会继续放毒的！他们正在准备再一次的放毒．最大的可能是在中东开始。现在已经开始制造舆论环境．找好替罪羊了。【七哥您好! 不知道这是不是要再次发动病毒战的前兆。先栽赃，再散播病毒。🙏🙏🙏🙏】
@@ -139,20 +153,6 @@
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
 ![img](https://media.gettr.com/group12/origin/2022/03/09/18/21c37345-bee0-327e-300a-e221a858a771/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/9/2022 3:16 PM (UTC)`
-
-【Ukraine Rescue】03/08/22 The couple(Chinese husband/Ukrainian wife) that were rescued by NFSC and ROLF introduces fellow Chinese compatriots’ situation in Ukraine<br/><br/>【乌克兰救援】03/08/22 被新中国联邦和法治基金救援的中乌夫妇介绍乌克兰境内华人当下的状态<br/>
-![img](https://media.gettr.com/group41/getter/2022/03/09/15/6d1e0bab-f2f6-64b9-ac67-7cbf45f86077/out.jpg)
-
----
-
-`@miles 3/9/2022 1:45 PM (UTC)`
-
-2022年3月9日 文贵大直播：是谁黑掉乌克兰救援邮件官网；是谁暂禁郭先生油管上传视频；什么力量封杀乌克兰救援信息；《铁锁梦》创作及推出后感受
-![img](https://media.gettr.com/group20/origin/2022/03/09/12/73f2d452-db85-211f-745b-e55857bacdfd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

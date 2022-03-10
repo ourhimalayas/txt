@@ -2,38 +2,30 @@
 ---
 
 
-## 俄罗斯宣布3月11日与全球断网，疑准备大规模网络攻击
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2135657/)
+## 美国参议员约翰逊和克鲁兹将与 “人民车队 ”会面
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2135765/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：玄鸟
+校对：Streamline
+上传：无明逆流
 
-翻译/编辑：小红帽
+据极限新闻网（Newsmax）3月7日报道，威斯康星州的共和党参议员罗恩·约翰逊（Ron Johnson）和德克萨斯州的共和党参议员特德·克鲁兹（Ted Cruz），将于本周二与“抗议中共病毒疫苗和口罩强制令”的卡车司机会面（消息来源于国会山报）。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-948.png)图片来源：Win McNamee/Getty
+“人民车队”于2月23日离开加利福尼亚州的阿德兰托体育场，自周日以来，一直在华盛顿郊外的首都环城公路上堵塞交通，期望以此结束 “过度强制令导致的紧急状态”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/cycber_attact.jpg)图片来源：www.ft.com
+该项目的全国组织者莫琳-斯蒂尔（Maureen Steele）上个月告诉Newsmax，他们在阿德兰托（Adelanto）的最初送行活动中，就已经有 “超过1100辆车”的加入。
 
+“这还不算现在加入这个车队的卡车和房车。这确实是由卡车司机领导的人民车队”，她说，“他们是核心中坚力量”。
 
-根据自然新闻网3月9日报道，随着俄罗斯总统弗拉基米尔·普京继续入侵邻国乌克兰，俄罗斯政府本周初宣布，该国将与全球互联网断开连接，以抵御外部网络攻击。
+该组织从加拿大规模更大的卡车司机抗议活动中汲取灵感，加拿大那场抗议活动从一月到二月持续了整整一个月。
 
-但这一决定让其他人怀疑，普京可能正计划对包括美国在内的西方国家发起自己的攻击。
+周一，五角大楼新闻秘书约翰-柯比在一份声明中表示，由于持续的抗议活动，国防部长劳埃德-奥斯汀批准了哥伦比亚特区的请求，派遣国民警卫队协助美国国会警察。
 
-“俄罗斯将在3月11日与全球互联网完全断开，”Strange Sounds网站指出，并补充说：“不迟于3月11日，所有服务器和域必须转移到俄罗斯区域 (.ru)。此外，正在收集有关站点网络基础设施的详细数据。”
+据据《国会山报》(The Hill)报道，这一决定是在国会警察(Capitol Police)针对抗议活动发布紧急声明一天后做出的。
 
-与此同时，世界经济论坛已从其网站上删除了Cyber​​ Polygon——该网站描述了一场大规模的网络攻击，基本上将整个世界送回了1800年代，当时还没有电力和现代通信模式。
+据Axios网当时的报道，奥斯汀曾在上个月批准，从2月26日至3月7日向国家首都部署700名非武装的国民警卫队士兵，以协助该市在卡车司机车队到达之前进行交通管制。
 
-此外，以监视海底光纤和互联网电缆而闻名的俄罗斯海军间谍船Yantar 已离开其基地。
-
-在俄罗斯消息来源中，Yantar被描述为‘特殊用途船’或‘海洋学船’。然而，在西方，它被视为一艘间谍船。“它的长处是调查海底电缆，并可能窃听、清除或破坏它们。”Strange Sounds在另一份报告中指出。
-
-新闻链接：[Russia may be preparing massive cyberattack after announcing country will disconnect from global internet on March 11](https://www.naturalnews.com/2022-03-09-russia-massive-cyberattack-disconnecting-from-global-internet.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Sens. Johnson, Cruz to Meet With ‘People’s Convoy’](https://www.newsmax.com/politics/trucker-protest-mandates/2022/03/07/id/1060097/)
 
  
 

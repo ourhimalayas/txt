@@ -2,25 +2,34 @@
 ---
 
 
-## 国际｜ 在野“保守派”尹锡悦当选南韩总统 主张“亲美抗中”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2135535/)
+## 有声|新中国联邦,法治基金人类神奇的使节
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2135641/)
 
-**撰文/ 港台前线｜发布日期/ 10/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/在野「保守派」尹錫悅當選南韓總統-主張「親美抗中」.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+作者:香草山福音部-melisa/录音-黎明曙光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+新中国联邦法治基金成功从乌克兰救出96名儿童！
 
-南韩总统大选今日（10日）凌晨宣布点票结果，最大保守派在野党“国民力量”候选人尹锡悦以0.8百分点的微小优势，险胜执政共同民主党候选人的李在明，成为南韩首位由前检察总长及政治素人当选的总统。
+并免费安排到西班牙巴塞羅那宾馆！
 
-今届选举投票率为77.1%，较上届低0.1百分点，两位候选人的得票率分别是48.56%（尹锡悦），及47.83%（李在明），是南韩自1987年实施总统直选制度以来差距最少的一届选举，凸显尹锡悦代表的保守派，与李在明代表的进步派之间分化严重。
+这一行动令人感慨，令人敬佩并受到乌克兰人们的尊重和感谢!
 
-尹锡悦在胜选后发表感言时表示，他会以国家团结为首要任务。而外交政策方面，与现任总统文在寅大不相同，尹主张“亲美抗中”，提出增加部署曾受到中共强烈反对、被现届政府冻结的“萨德”（THAAD）导弹防御系统，同时主张经济逐步减少依赖中国市场；另外，北韩方面，他更倾向“先发制人”的攻击态度。美国白宫在祝贺尹锡悦当选时称，总统拜登期待与尹锡悦携手，扩大盟友间的紧密合作。
+新中国联邦，法治基金实施人道救援，称为人类的使节！
 
-值得留意是，保守派今次事隔五年重夺政权，打破了一直以来，两个阵营每十年轮流执政的惯例。不过，国会第一大党，仍然由李在明所属的共同民主党把持。
+新中国联邦战友们不畏战火的安危到达前线实施救援行动！
 
-尹锡悦被西方传媒形容为“南韩特朗普”，主要因为他从政日子较短，对多个受争议问题的立场也有别于传统政客，吸引不少选民支持，比如承诺5年内增加250万房屋供应，减少物业税、重返拥核路线、兴建核电厂等等，另外他还支持废除政府的性别平等及女性家庭部，被指为笼络呢部分男性选民，打击近年急速冒起的女权主义。
+正如孙悟空腾空而降-新中国联邦人！
 
-来源｜[Chosun](https://biz.chosun.com/policy/politics/election2022/2022/03/10/EYCLO33LOND27KMMXZ77GOCL5U/)、[Asiae](https://cm.asiae.co.kr/article/2022031005233771114)
+音频处理/发稿：Daxia
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

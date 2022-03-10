@@ -2,34 +2,27 @@
 ---
 
 
-## 有声|新中国联邦,法治基金人类神奇的使节
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2135641/)
+## 樱花FM|欧盟同意接受乌克兰难民 无需申请紧急措施
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2135729/)
 
-作者:香草山福音部-melisa/录音-黎明曙光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-新中国联邦法治基金成功从乌克兰救出96名儿童！
+音频：东京樱花团/战友520
 
-并免费安排到西班牙巴塞羅那宾馆！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/欧盟同意接受乌克兰难民-无需申请紧急措施.png)
 
-这一行动令人感慨，令人敬佩并受到乌克兰人们的尊重和感谢!
+3日，欧盟（EU）同意在每个欧盟国家接受从被俄罗斯入侵的乌克兰撤离的人员，并允许他们留下。这是一项紧急支援措施，可以在欧盟工作和让儿童能够接受教育，而无需常规难民申请的程序。
 
-新中国联邦，法治基金实施人道救援，称为人类的使节！
+这是27个成员国内政部长理事会同意的。除了乌克兰公民，我们还接受居住在该国的欧盟以外的人，同时考虑到每个国家的法律制度。还为住房、医疗和福利提供支持。暂时是一年的期限，但如果情况没有改善，就会延长。据说，由于局势的迅速发展，将有可能逃离乌克兰，并允许没有有效护照的人进入或停留，由各国自行决定。
 
-新中国联邦战友们不畏战火的安危到达前线实施救援行动！
+文字版原文：
 
-正如孙悟空腾空而降-新中国联邦人！
 
-音频处理/发稿：Daxia
+| [欧盟同意接受乌克兰难民 无需申请紧急措施](https://gnews.org/zh-hans/2102596/) |   |
+| --- | --- |
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/asket   
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
