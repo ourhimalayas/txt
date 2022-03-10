@@ -2,31 +2,19 @@
 ---
 
 
-## 有声|台湾启动民间向乌克兰捐赠物资项目
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2139126/)
+## 2022年3月10日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2139184/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间3月7日，据台湾媒体报道，台湾外交部当天公告表示，从即日起至3月18日，当地民间向乌克兰捐赠物资项目将正式开放通道。
+制作：DT新闻组
 
-据悉，台湾民众可以在每天早上10点到下午5点之间将捐赠物品送至外交部西侧门；或者，捐赠者也可选择邮寄的方式将物品送至外交部并注明“捐赠乌克兰物资”。对于大量物资捐赠者，台湾外交部也开通联系方式，用以确保政府可以安排适当的运送方式将物资投放至乌克兰前线。
+**中共的杀戮还在继续……**
 
-报道显示，在3月7日捐赠开放首日，台湾当地已经有许多热心的民众前往捐赠现场，奉献爱心。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0153-2.jpg)
 
-文字版原文：[台湾启动民间向乌克兰捐赠物资项目](https://gnews.org/zh-hans/2129981/)
+发稿：信心的选择
 
-音频处理：Fei797
-发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-6.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

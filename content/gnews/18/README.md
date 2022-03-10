@@ -2,32 +2,40 @@
 ---
 
 
-## 为最坏的时刻准备
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2138925/)
+## 历史上的今天——历史上的今天起义日
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2139001/)
 
-文编：Hima
-听写：Mr Hu
-视频：七哥
+作者：纽约香草山农场 – 马克文、朱丽叶
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1955年后，中共政府在中国四川和青海等藏区强制推行了人民公社制度和“大跃进”运动。在此期间，中共派遣军队镇压、屠杀了大批藏民，还没收当地牧民的财产并大量摧毁当地寺院；同时，中共还强迫该地区众多僧人还俗，妄图灭绝藏族的宗教和传统文化。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-13.jpg)
+资料显示，西藏的精神领袖和族群头人在当地藏人心中有着至高无上的地位。因此，自1958年起，为了更有效地镇压并控制西藏人民，中共通过请客吃饭或开办学习班等阴谋诡计，将那些有威望的藏人首领全部控制了起来，且他们当中的绝大多数人最终都下落不明、不知生死。
 
-2022-03-06直播摘录
+直至1959年年初，中共西藏军区的副司令员邓少东邀请达赖喇嘛于当年3月10日前往当地军区礼堂观看文工团演出。更甚者，中共拒绝让达赖喇嘛的警卫团随行护卫。消息一经传出，各地的藏民蜂拥包围了罗布林卡宫，请求达赖喇嘛取消这次军区之行。随后，这一诉求抗议演变成了大规模的起义运动，藏民们强烈要求中共政府离开西藏。
 
-目前土耳其相对欧洲是最好的，生活很便宜，去很容易，而且土耳其人很实际，经济很差，这是去比较好，像黎巴嫩这样的战火国家没法确定，国内的战友现在要非常清楚，现在你没有能力出来的，你不要出来，你出来以后会饿死你的，而且世界经济也是灾难，更难生存，在中国跟羊都找不到草吃，现在出来你跟狮子，豹子竞争，没有这个PK能力，你就不要出来，在国内如果有钱，有能力的话，这个时候一定要长远打算，要想到现在真的要回老家这些地方，你得有在老家的生存环境，在老家被县长，镇长，弄成锁链女也是分分钟发生的事，很黑暗。但是你在大城市里面，一旦没电，没水你咋办？这些每个人情况不同，但是如果中国任何一个人，不做好一个最坏的时刻准备，那最坏的时刻一定会发生你身上，就像打疫苗一样，如果你不认真面对的话，那这个疫苗就会打到你身体里而且永远拿不出来，没有统一的答案，统一的标准，因为不同的人，不同的环境，完全自己做决定。
+1959年3月10日，中共军队与当地藏民在藏区发生了严重的武装冲突，其中，拉萨地区的交战最为激烈。而在共军炮击藏族反抗民众并强行占领了罗布林卡宫之后，原西藏政府首脑、第十四世达赖喇嘛与八万西藏人流亡至印度并成立了西藏流亡政府，其主张西藏独立和大藏区自治。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+后来，这些流亡海外的藏族人将1959年3月10日定为西藏人民起义日，用以纪念当年的西藏抗暴运动。
 
-**关注我们**
+参考链接：
+1). [西藏的秘密戰爭，究竟發生了什麼？（上）](https://cn.nytimes.com/china/20160621/china-tibet-lhasa-1959-dalai-lama/zh-hant/)
+2). [《1959 拉萨！》前言](https://www.dw.com/zh/1959-%E6%8B%89%E8%90%A8%E5%89%8D%E8%A8%80/a-6407303)
+3). [1959年藏区骚乱](https://zh.wikipedia.org/wiki/1959%E5%B9%B4%E8%97%8F%E5%8C%BA%E9%AA%9A%E4%B9%B1)
+4). [西藏人民起义日](https://zh.wikipedia.org/wiki/%E8%A5%BF%E8%97%8F%E4%BA%BA%E6%B0%91%E8%B5%B7%E4%B9%89%E6%97%A5)
 
-Discord 账号
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+总编: Irene木木
+编辑/审核: Jack Li文阳
+校正/发稿：Fei797
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

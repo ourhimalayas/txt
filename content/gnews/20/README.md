@@ -2,34 +2,34 @@
 ---
 
 
-## 中共病毒轻症同样导致大脑萎缩退化
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2138900/)
+## 中共开始疫苗副作用维稳
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2138946/)
 
-作者：纽约香草山农场 – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月7日，据有关医学平台消息显示，牛津大学一项最新经过同行评审的研究结果表明，中共病毒肺炎会导致患者大脑的嗅觉和记忆相关区域发生退行性变化，这些退化症状对于那些轻症感染者也不例外。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-18.jpg)
-据了解，此次调查涉及了接近八百位51到81岁的英国老年人，研究期间有超过一半的观察者感染了中共病毒肺炎，另有15人需要接受住院治疗。研究过程中，工作人员对这些老人的大脑先后进行了两次CT扫描，两次的平均间隔时间为38个月，而这两次CT扫描的主要观测区域为大脑中与气味和事件记忆相关的部分，包括眶额皮层、海马旁回、梨状皮层和嗅结节等。
+中共国家卫生健康委员会（卫健委）近日向17个省卫健委发布公文：有部分人员在微信群中透露本人或家属接种疫苗以后，患了白血病，并进行接龙，下一步有可能组织集体活动？！
 
-其后，经研究人员分析发现，随着时间的推移，中共病毒感染者的嗅觉相关区域平均每年的损失率为0.7%，其中，患者海马旁回和初级嗅觉皮层的损伤率高达1.3%到1.8%，是未感染者的六倍有余。此外，在感染中共病毒后，老人们的认知能力会显著下降，患者需要花费更长的时间完成研究中的相关测试任务。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/srg.jpg)
 
-参考链接：
-1). [Covid Can Shrink the Brain as Much as a Decade of Aging, Study Finds](https://www.bloomberg.com/news/articles/2022-03-07/brain-shrinkage-cognitive-decline-found-months-after-mild-covid)
-2). [SARS-CoV-2 is associated with changes in brain structure in UK Biobank](https://www.nature.com/articles/s41586-022-04569-5)
+重点来了：“鉴于当前两会及北京冬季残奥委会即将召开，这类行为可能会引发炒作，影响社会安定。现将人员名单转发给各省卫健委，要求高度重视，进一步加强规范管理，出现异常行为要及时反应处置，重要的情况要向国家卫健委通报。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+新一轮的网络维稳来了。
 
-总编: Irene木木
-编辑/审核: 飞虹
-校正/发稿：Fei797
+每一次的维稳，是要掩盖一些真相，这次是什么真相呢？
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+罹患白血病的患者增多了，疫苗打入人体之后，副作用随着时间的推移，开始伤害身体了。
+
+中共一贯的作风，不去解决问题，而是去解决提出问题的人。我们的战友尝试在微信朋友圈转发9页的有关辉瑞疫苗1000多项副作用的文章，传播的结果呢？仅自己能阅读，他人无法阅读。
+
+即使在海外注册的公众号也已经被中共监控隔离！这也是为什么在中共国听不到任何有关疫苗副作用的新闻。中共通过微信、聊天室等各种网络手段连通公安系统直接定位到个人，以维稳的手段来阻止疫苗副作用信息的传播，导致所有人都认为接种疫苗是安全的。
+
+Emerald Robinson文章指出，早在一月份，FDA已经公布了辉瑞疫苗临床数据，显示有1291种副作用，本来这些数据要隐藏75年，由于法律败诉不得不公开。
+
+多项副作用包括：急性出血、脑出血、婴儿的各种炎症、急性肾损伤、血栓等。与此同时，辉瑞同时又在对血管、血液病专项以及免疫专项进行收购。
+
+公开辉瑞疫苗的多项副作用，是在辉瑞公司法律败诉后被迫发布的！疫苗灾难的发生是不可避免的，更可悲的是墙内的同胞不认为悲剧会降落自己的身上，无知和侥幸，无视真相，不辨善恶，终将把大多数的同胞拖向深渊。
+
+文案编辑：雪菜
+校对整理：**wuxin**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

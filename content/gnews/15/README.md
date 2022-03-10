@@ -2,29 +2,31 @@
 ---
 
 
-## 加拿大温哥华扬帆农场救援团队抵达前线
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2138959/)
+## 有声|台湾启动民间向乌克兰捐赠物资项目
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2139126/)
 
-采编撰稿：加拿大温哥华杨帆农场 – 文莱，坐看云起时
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-991.png)图片来源：GETTR
-据3月9日盖特消息，由[加拿大温哥华扬帆农场]战友们组成的[法治基金]乌克兰人道救援团队，当天已陆续抵达波兰华沙，各项救援行动正在有条不紊地按预定计划执行之中。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间3月7日，据台湾媒体报道，台湾外交部当天公告表示，从即日起至3月18日，当地民间向乌克兰捐赠物资项目将正式开放通道。
 
-据悉，日前从加拿大多伦多机场出发的13位战友目前都已平安抵达华沙机场，在顺利办理完通关手续后，与当地现场负责接机的文耀战友成功汇合。此外，身处温哥华的7位飞赴前线战友，由于没有疫苗护照，未能在温哥华机场登机，而被迫辗转驱车南下入境美国至西雅图机场并最终成功登机。预计翌日将转机土耳其抵达波兰华沙。
+据悉，台湾民众可以在每天早上10点到下午5点之间将捐赠物品送至外交部西侧门；或者，捐赠者也可选择邮寄的方式将物品送至外交部并注明“捐赠乌克兰物资”。对于大量物资捐赠者，台湾外交部也开通联系方式，用以确保政府可以安排适当的运送方式将物资投放至乌克兰前线。
 
-在此预祝[加拿大温哥华扬帆农场]前线救援团队的行动顺利，安全，成功！并敬请关注本节目对本次行动后续进展情况的及时报道。
+报道显示，在3月7日捐赠开放首日，台湾当地已经有许多热心的民众前往捐赠现场，奉献爱心。
 
-校对编辑：硫酸羟氯喹64
+文字版原文：[台湾启动民间向乌克兰捐赠物资项目](https://gnews.org/zh-hans/2129981/)
 
-发稿：青青
+音频处理：Fei797
+发稿：Fei797
 
-新闻来源：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-[https://gettr.com/post/pz1bte9543](https://gettr.com/post/pz1bte9543)
-
-[https://gettr.com/post/pz0gn21135](https://gettr.com/post/pz0gn21135)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

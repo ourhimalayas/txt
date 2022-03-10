@@ -2,18 +2,10 @@
 ---
 
 
-## 2022年3月10日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2139184/)
+## 3/9/2022 文贵直播：文贵在过去几十天遇到了诸多挑战 ；战友们创造了人类前所未有的救援行动，震撼了西方
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2139259/)
 
-制作：DT新闻组
-
-**中共的杀戮还在继续……**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0153-2.jpg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-6.jpeg)
+秘密翻译组-北美组
 
  
 
