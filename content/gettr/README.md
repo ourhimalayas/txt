@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 2:42 AM (UTC)`
+
+3月9号：乌克兰协会发出新中国联邦在波兰🇵🇱对乌克兰队救援信息，对我们在乌克兰🇺🇦战场对乌克兰妇女儿童的救援有巨大的帮助，希望大家广泛转发．救人一命．胜造七级浮屠。<br/><br/>【悉尼的乌克兰协会已经把救援信息放上他们网站首页了🌻🌻🌻🌻🌻🌻 】<br/><br/>https://www.hromada.org.au/
+
+---
+
 `@miles 3/10/2022 2:39 AM (UTC)`
 
 2022.03.09 晚《新中国联邦新闻访谈》国内外华人灾难显现；俄乌战争对华人的影响；新世界被迫诞生
@@ -147,13 +153,6 @@
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导
 ![img](https://media.gettr.com/group37/origin/2022/03/09/12/1a708eec-ba0b-14e7-2f4b-3ddf6b18b8d5/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/9/2022 11:39 AM (UTC)`
-
-【Ukrainian Rescue】03/08/22 Chinese husband and his Ukrainian wife rescued by NFSC and ROLF explains how they got hold of us<br/><br/>【乌克兰救援】03/08/22 被新中国联邦和法治基金救援的中国男士及其乌克兰夫人讲述是如何同我们取得联系的<br/>
-![img](https://media.gettr.com/group49/getter/2022/03/09/11/e8ad1814-f08b-8470-f95f-81297587509e/out.jpg)
 
 ---
 

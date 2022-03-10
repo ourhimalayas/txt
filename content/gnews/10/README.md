@@ -2,10 +2,10 @@
 ---
 
 
-## 3/9/2022 文贵直播：新中国联邦在梅迪卡的救援团队太牛了！我们提供的食物和毛毯让难民非常感动，战友们热情高涨并受到了各国友人的尊重与帮助
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2134709/)
+## NESC法治基金不论国界和民族乌克兰国际人道大救援
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134821/)
 
-秘密翻译组-北美组
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

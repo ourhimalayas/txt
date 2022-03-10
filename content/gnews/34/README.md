@@ -2,50 +2,73 @@
 ---
 
 
-## 全球疫情疫苗数据更新（澳洲各州第三针比例的比较）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2133956/)
+## 刺突蛋白和氧化石墨烯解毒方案
+` XINYUAN` [轉載自GNews](https://gnews.org/zh-hans/2133608/)
 
-整理：枳实
-美工：精灵蓝
+转载: 澳喜农场—XINYUAN
+![](https://assets.gnews.org/wp-content/uploads/2022/03/800px-R-N-Acetylcysteine_Structural_Formulae.png)
+N-乙酰半胱氨酸(NAC)是非常安全且便宜的药品，NAC可以在药店和健康商店的柜台上买到。几十年来被人们广泛使用，被很多的医院使用，对人体的健康非常重要，但鲜为人知。研究认为，NAC可能会刺激谷胱甘肽的合成。谷胱甘肽是人体重要的抗氧化物，特别是肝脏解毒过程中所需要的重要物质。谷胱甘肽是一种帮助对抗自由基的化合物，自由基是不稳定的原子，会引起炎症和损伤。人们服用它有各种各样的原因。NAC对于我们的身体有很多好处和功效，它对神经具有很好的保护作用，对帕金森症和其他的精神系统疾病有很好的效果。它可以缓解自闭症，包括帮助治疗从心理障碍到慢性肺部疾病的各种医疗问题，以及提高运动成绩。NAC对肝脏非常重要，在喝酒前补充NAC可以减少酒精对肝脏的伤害。NAC是一种非常强大的对乙酰苯酚的药物的解毒剂，在医疗上被用来减少乙酰氨基酚类药物（解热镇痛类药）对身体的毒害，例如：泰诺，扑热息痛和芬必得的毒害，和酒精一样，乙酰氨基酚通过耗尽肝脏内的谷胱甘肽导致肝脏损伤。当体内的NAC浓度高的时候，那么对乙酰氨基酚过量导致的死亡概率会大大的降低。很多的研究发现，NAC可以改善男女的生育能力。根据2017年的同一份综述，补充NAC可能有助于降低早产风险，有助于对抗早产的风险因素。作者引用了一项研究，在怀孕16周后，每天服用0.6克的NAC和孕激素，可以帮助有早产史和细菌性阴道病的妇女预防早产。《细胞杂志》2017年的一篇综述的作者得出结论，服用NAC可能对多囊卵巢综合征(PCOS)患者有益。补充NAC，有其他潜在的好处。一些非常小的研究，但来源可靠的案例报告表明，NAC可能有助于:
+尼古丁依赖
+大麻依赖
+可卡因依赖
+赌瘾
+病理咬指甲
+皮肤病
+对动物来源的初步研究也表明，NAC可能有助于海洛因依赖和酒精的不良影响。补充NAC的副作用通常比较轻微，可能包括：
+腹泻
+眼睛刺激性
+疲劳
+恶心
+皮疹
+呕吐
+很少有人报告有更严重的副作用，如低血压、哮喘发作和不明原因的头痛。服用硝化甘油——如药片、贴片或药膏——的人不应服用NAC，因为这种组合可能导致血压极低和头痛。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/image-731.png)图片：雅典娜农场设计组 精灵蓝
+下面是刺突蛋白和氧化石墨烯解毒方案
 
+NAC ————— 2克
+锌 —————— 50亳克
+维生素D3 ——– 10000 IU
+维生素C ———- 2克
+槲皮素 ———— 1克
+莽草酸 ———— 1克
+螺旋藻提取物 — 1.5克
 
-雅典娜疫情更新（2022年 3月9日）
+以上成份维持服用一个月可以降解疫苗带来的副作用。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+这是更新后的营养方案，用于保护那些接触过刺突蛋白、氧化石墨烯和 mRNA 的人。同样的方案，也可用于保护那些担心刺突蛋白和氧化石墨烯从接触人身上脱落的人。
 
-全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-25.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/10-18.png)
-上图是澳大利亚各州第三针比例的比较，从图中可以看出，新州的比例最低，而西澳比例最高。众所周知，[中共对西澳的渗透十分严重](https://gnews.org/zh-hans/1954243/)，[西澳州长是一位著名的舔共州长](https://gnews.org/zh-hans/1354048/)，他实施疫苗强制政策也最为严苛，不仅[率先强制第三针](https://gnews.org/zh-hans/1782372/)，甚至到了不允许未接种疫苗的父母探望其生病的孩子的地步。
+我们现在有证据表明最新的包含：mRNA、刺突蛋白、氧化石墨烯、SM-102 和许多其他潜在的有毒物质。如果你知道有人接触过并需要帮助，请向他们提供此营养方案：
+• NAC（N-乙酰半胱氨酸）(加速解毒，被认为是体内超级解毒剂穀胱甘肽的生产者） 剂量：每天空腹服用 1200-2400 毫克。推荐使用 NAC 对氧化石墨烯和 SM-102 进行解毒。美国食品和药物管理局，最近把无须处方购买NAC定为非法，因此很难找到 NAC。
+• 锌（每天 30-80 毫克，视免疫压力而定）
+• 维生素 D3（每天 10,000 IU）
+• Lypospheric Vitamin C 脂质体维生素 C （30 毫升，每天两次）
+• 槲皮素 Quercetin (500-1000 毫克，每天两次）
+莽草酸主要来源：
+• 莽草酸或莽草酸松针茶（来自绿色食用松针） 有些松针有毒，小心！喝松针茶时，也要喝掉积累的油/树脂！莽草酸及其衍生物具有：抗癌、抗病毒、抗菌、抗凝血和抗血栓的特性。
+• 茴香和/或八角茶：这些也是莽草酸（已知可中和刺突蛋白）的极好来源•柑橘类水果（尤其是血橙，因为橙皮苷含量高——橙皮苷是一种查耳酮，如槲皮素，可以使刺突蛋白失效）
+薄荷（橙皮苷含量很高）
+帮助使刺突蛋白失效的超级草药：
+\*五味子Schizandra Berry (莽草酸含量高）
+\*三果实Triphala 配方 – 在梵文中，Triphala 一词的意思是“三种水果”：印度醋栗 (Emblica officinalis)、黑木莓 (Terminalia chebula) 和黑木莓 (Terminalia belerica) 的组合。
+\*榄仁Terminalia 果实富含莽草酸。
+\*圣约翰草 St John’s Wart（莽草酸存在于整个植物和花中）
+\*紫草叶 Comfrey Leaf（富含莽草酸）
+\*小白菊 Feverfew（叶子和花富含莽草酸）
+\*银杏叶 Ginkgo Biloba Leaf（富含莽草酸）
+\*大海索草Giant Hyssop 或 欧薄荷Horsemint (Agastache urtifolia)（富含莽草酸）
+\*枫香树LiquidAmbar（甜胶树） 尖刺豆荚茶富含莽草酸。
+食物：胡萝卜和胡萝卜汁（富含莽草酸）
+蒲公英叶（Common dandelion (Taraxacum officinale) 在体外实验有效阻断 ACE2 细胞表面受体与刺突蛋白 D614、突变体 D614G、N501Y、K417N 和 E484K 之间的相互作用）植物芽：
+小麦草和小麦草汁Wheatgrass and Wheatgrass Juice（幼叶莽草酸含量高）
+豆科豆类通常被认为富含莽草酸。
+在5 种豆芽的测试中，发现均富含莽草酸：红腰豆 (Phaseolus vulgaris)、蛾豆 (Vigna aconitifolia)、大豆 (Glycine max)、绿豆 (Vigna radiata) 和苜蓿 (Medicago saliva)。这些都是在发芽期间接受莽草酸含量的分析，因此发芽过程是激活莽草酸产生的关键。
 
-[2022年3月9日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月9日改进.pdf)
+本文转载自：LightGroup荷光者联盟
 
-数据来源：
+英文来源 [\[email protected\]](/cdn-cgi/l/email-protection)olf 【转载不代表本网站医疗建议】
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+(本文仅代表个人观点)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/logo正版澳喜2-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

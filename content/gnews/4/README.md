@@ -2,39 +2,28 @@
 ---
 
 
-## 2020年3月9日本星期将是灭共里程碑的一周—全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2134818/)
+## 普大帝沦为地痞，竟多次暗杀泽伦斯基
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2134887/)
 
-哎呀，这感觉相当的好啊，哎呀，兄弟姐妹们啥情况啊，这是啥情况啊？又熔断又脆断。亚洲、欧洲、美国都来了，华尔街还有这所谓的这些贵族们、大佬们、盗国贼们欺压老百姓欺压了几十年了，骗那么多钱，助纣为虐培养了共产党的这个吸血机。现在该到这帮王八蛋买单的时候了，你看那多漂亮，你看看，你看看，你看看，你看看。
+撰稿：东京樱花团/知了知了
 
-这视频随便用，你们别问我能不能用，随便用！咱高兴了，咱干嘛不用啊？你看看今天早上吃早饭没直播，给路德先生让时间，我要直播吃饭就把你们馋死，太好吃了，太好吃了。今天有好吃的，后悔了没直播啊。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/普大帝沦为地痞，竟多次暗杀泽伦斯基.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2FDDFE%2Fproduction%2F_101203865_putin23mar18afp.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fworld-44029265&amp;tbnid=sStGv6pfHZxBVM&amp;vet=12ahUKEwjLhIG19rn2AhUNyioKHZe6C44QMygCegUIARC_AQ..i&amp;docid=kJGLrImjmEQL2M&amp;w=640&amp;h=360&amp;q=%E6%99%AE%E4%BA%AC&amp;ved=2ahUKEwjLhIG19rn2AhUNyioKHZe6C44QMygCegUIARC_AQ)
 
-这还都没开始呢，兄弟姐妹们这才哪到哪呀？得折腾几回、几个起伏，把共产党身上的几根儿，本来就是一个鸡，一个落汤鸡，长了几根毛。当自己是凤凰了共产党，还想统治全世界，把毛给你摘了，让你看看你自己再给你搁个镜子，摆你前面，让你照照，共产党。照完以后你再看看你还欺压老百姓、杀香港同胞、欺骗全世界。后面的鞭炮看到没有，听到鞭炮声了吗？高兴不？我今天晚上放烟火，今天晚上在船上大放烟火。
+俄罗斯入侵乌克兰后，乌克兰总统泽伦斯基多次在镜头前表示，他是俄军抓捕及猎杀的头号目标，也时不时传出有俄军试图暗杀他的消息。一名泽伦斯基最亲近的幕僚透露，泽伦斯基总统自开战以来，已经成功躲过十几次暗杀。
 
-整理：喜马拉雅的肉夹馍；
+根据英媒《镜报》报导，一名泽伦斯基的幕僚波多利亚克表示，前阵子有消息说总统遭到3次暗杀，事实是已经遭到了十多次暗杀，“我们持续在掌握消息，像有些（暗杀）组织一直想混进政府部门”、“我们有一个非常强大的情报和反情报网络，所有的组织、集团都在路上被清算。”
 
-校对：喜马拉雅的馍夹肉；
+先前曾经传出有2个不同的组织被派遣去暗杀泽伦斯基，其中一个是俄罗斯雇用的瓦格纳佣兵集团，另一个则是车臣特种部队，不过2个组织的行动均被乌克兰挫败，甚至有一支车臣特种部队小队被直接歼灭。
 
-发布：Maarago；
+俄入侵乌克兰已进入第14天，乌军众志成城万众一心抵抗俄侵略军，仍掌握首都基辅的控制权，第2大城哈尔科夫的乌军也在持续抵抗，相持之下，俄军消耗巨大，难以承受战争开销。普大帝敢冒天下之大不韪暗杀乌克兰总统泽伦斯基，也侧面说明了普大帝面临巨大的内外压力，必须快速结束乌克兰战争。一旦战争进入僵持阶段，俄罗斯必定内外交困，普大帝或被内部干掉。乌克兰人民顽强的坚守必将成为俄罗斯帝国的坟场，普大帝的刑场。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+信息来源：
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+[烏克蘭總統幕僚爆料：澤倫斯基被暗殺「至少十幾次」](https://www.ettoday.net/news/20220310/2204890.htm)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

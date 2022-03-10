@@ -2,10 +2,10 @@
 ---
 
 
-## 【乌克兰救援】被新中国联邦法治基金救援的中乌夫妇讲述如何决定坐巴士尽快离开
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134118/)
+## 班农：你把中共打倒了，其余的邪恶政权就都倒了
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134038/)
 
-03/08/22 被新中国联邦和法治基金救援的中国男士及其乌克兰夫人讲述如何做出决定坐巴士尽快离开。
+03/07/2022 班农：你把中共打倒了，其余的邪恶政权就都倒了。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

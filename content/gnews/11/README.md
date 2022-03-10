@@ -2,67 +2,38 @@
 ---
 
 
-## 千年一叹
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2134705/)
+## 2020年3月9日本星期将是灭共里程碑的一周—全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2134818/)
 
-**作者：**小儿
-**编辑：**blame
+哎呀，这感觉相当的好啊，哎呀，兄弟姐妹们啥情况啊，这是啥情况啊？又熔断又脆断。亚洲、欧洲、美国都来了，华尔街还有这所谓的这些贵族们、大佬们、盗国贼们欺压老百姓欺压了几十年了，骗那么多钱，助纣为虐培养了共产党的这个吸血机。现在该到这帮王八蛋买单的时候了，你看那多漂亮，你看看，你看看，你看看，你看看。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/endwillcome.png)雅典娜设计组（Rosie Lee）
+这视频随便用，你们别问我能不能用，随便用！咱高兴了，咱干嘛不用啊？你看看今天早上吃早饭没直播，给路德先生让时间，我要直播吃饭就把你们馋死，太好吃了，太好吃了。今天有好吃的，后悔了没直播啊。
 
+这还都没开始呢，兄弟姐妹们这才哪到哪呀？得折腾几回、几个起伏，把共产党身上的几根儿，本来就是一个鸡，一个落汤鸡，长了几根毛。当自己是凤凰了共产党，还想统治全世界，把毛给你摘了，让你看看你自己再给你搁个镜子，摆你前面，让你照照，共产党。照完以后你再看看你还欺压老百姓、杀香港同胞、欺骗全世界。后面的鞭炮看到没有，听到鞭炮声了吗？高兴不？我今天晚上放烟火，今天晚上在船上大放烟火。
 
-求仙也好，问道也罢
-原来人们苦求的长生
-不过是在一呼一吸之间
+整理：喜马拉雅的肉夹馍；
 
-秦皇也好，汉武也罢
-只是往日神往的风流
-也只寄于茶余饭后之间
+校对：喜马拉雅的馍夹肉；
 
-流年也好，今昔也罢
-曾经浩荡千年的历史
-无声穿梭钟表滴答之间
+发布：Maarago；
 
-草芥也好，天命也罢
-繁华虚掩埋藏的罪恶
-终将昭彰天地人世之间
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-逝者也好，来者也罢
-伪善共产深植的邪恶
-早已冠绝前尘后世之间
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
 
-粉红也好，韭菜也罢
-天地初生赋予的良知
-悄然锁于无知愚昧之间
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-故乡也好，异国也罢
-同片星空众人的身体
-无辜困于病毒疫苗之间
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-东方也好，西方也罢
-恶意的潘多拉盒子
-致你我于害与被害之间
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-律师也好，法官也罢
-良善期盼苦寻的正义
-公然毁于媒体金钱之间
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-冬去也好，春来也罢
-指尖滑过叠叠的黄卷
-默默逝于青灯苦叹之间
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-罢了！
-收拾心绪，振奋精神，跟随战神而起！
-我们的战斗，一旦开始，永不停息！
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-*发布：翼族*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

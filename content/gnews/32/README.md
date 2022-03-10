@@ -2,62 +2,49 @@
 ---
 
 
-## 拜登宣布禁止进口俄罗斯石油 警告油价会进一步上涨
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2134030/)
+## 全球疫情疫苗数据更新（澳洲各州第三针比例的比较）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2133956/)
 
-随着政府加大对俄罗斯经济的制裁力度，此举可能会更加推高能源价格。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/51-Picture-1.png)图片来自网络
+整理：枳实
+美工：精灵蓝
+
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/image-731.png)图片：雅典娜农场设计组 精灵蓝
 
 
-**据《NBC新闻》克里斯汀·韦尔克（Kristen Welker）、彼得·亚历山大（Peter Alexander）和丽贝卡·沙巴德（Rebecca Shabad）2022 年 3 月 8 日报道**
+雅典娜疫情更新（2022年 3月9日）
 
-华盛顿——美国总统乔·拜登周二宣布，美国将禁止进口俄罗斯能源产品来瞄准 “俄罗斯经济的大动脉”。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-拜登在白宫的讲话中说：“我们正在禁止所有俄罗斯石油、天然气和能源的进口。这意味着美国港口将不再接受俄罗斯石油，美国人民将对普京的战争机器进行又一次强大的打击。”
+全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-25.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/10-18.png)
+上图是澳大利亚各州第三针比例的比较，从图中可以看出，新州的比例最低，而西澳比例最高。众所周知，[中共对西澳的渗透十分严重](https://gnews.org/zh-hans/1954243/)，[西澳州长是一位著名的舔共州长](https://gnews.org/zh-hans/1354048/)，他实施疫苗强制政策也最为严苛，不仅[率先强制第三针](https://gnews.org/zh-hans/1782372/)，甚至到了不允许未接种疫苗的父母探望其生病的孩子的地步。
 
-总统警告说，此举可能会提高美国的汽油价格，但有必要加大对俄罗斯经济的制裁压力，以应对其对乌克兰的战争。
+[2022年3月9日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月9日改进.pdf)
 
-拜登说，“普京的战争已经在加油站伤害美国家庭，我将尽我所能，尽量减少普京涨价对国内的影响。”
+数据来源：
 
-该价格周二在美国创下历史新高。由于汽油价格肯定会在今年的中期选举中，成为一个巨大的政治问题，拜登的大部分言论都将美国的愤怒直接集中在普京身上，同时还鼓励美国能源公司生产更多的国内石油。
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-总统表示，美国已与世界各地，特别是欧洲的盟友 “密切协商”，决定禁止俄罗斯的能源产品。他说，其中许多合作伙伴可能无法采取同样的行动。
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-“美国在国内生产的石油远远超过整个欧洲，”拜登说，他说美国是能源净出口国。 “当其他国家无法迈出这一步时，我们可以，但我们正在与欧洲和我们的合作伙伴密切合作，制定一项长期战略，以减少他们对俄罗斯能源的依赖。”
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-一位高级政府官员说，随后，拜登签署了一项行政命令，禁止进口俄罗斯石油、液化天然气和煤炭。该命令阻止了对这些能源产品的任何新采购，并减少了已经签订合同的现有采购的交付。白宫表示，该行动还禁止美国对俄罗斯能源部门进行新的投资，并禁止美国人参与流入俄罗斯该部门的外国投资。
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-这位官员说，对新合同的禁令立即生效，政府允许现有合同有 45 天的缓冲期。
+[covidlive.com.au](https://covidlive.com.au/)
 
-白宫表示，美国之所以能够迈出这一步，是因为国内能源生产和基础设施强劲。俄罗斯石油占美国石油进口总量的不到 10%，而它占欧洲进口量的三分之一。
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
 
-这位官员表示，普京 “无端而残酷的战争导致能源价格上涨”，称自俄罗斯于 2021 年 11 月开始在乌克兰边境集结军队以来，汽油价格已上涨约 75%。
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-与此同时，众议院议长南希·佩洛西（Nancy Pelosi）周二下午告诉她的核心小组，众议院将在当天晚些时候就禁止俄罗斯石油的立法进行投票，尽管拜登不需要国会采取行动来推进这项禁令。该法案仍在编写中，预计将比总统宣布的更进一步。
+发布：tianzhihuan
 
-在拜登发表讲话之前，英国商业和能源大臣夸西·克瓦滕（Kwasi Kwarteng）宣布，他的政府将在 2022 年底前逐步停止进口俄罗斯石油和石油产品。
-
-“这种转变将给市场、企业和供应链足够的时间来取代占英国需求的 8% 的俄罗斯进口产品。” 他在一系列推文中说。 “企业应利用今年确保平稳过渡，以免影响消费者。”
-
-周二早些时候，壳牌（Shell）宣布将立即停止购买俄罗斯原油，并将“分阶段”退出对所有俄罗斯碳氢化合物的参与，包括石油、天然气和石油产品。
-
-由于俄罗斯对乌克兰的军事入侵，国会议员一直呼吁拜登政府禁止从俄罗斯进口能源。一个由两党议员构成的小组周一宣布了一项关于切断这些产品的立法提议。
-
-乌克兰官员曾敦促美国对俄罗斯实施更严厉的制裁，包括对其能源产品实施制裁。乌克兰外交部长德米特罗·库莱巴（Dmytro Kuleba） 周一在《华盛顿邮报》（Washington Post）的一篇专栏文章中写道，除其他措施外，“各国必须停止购买俄罗斯石油，这些石油现在沾满了乌克兰人的鲜血。”
-
-由于汽油价格已经很高，政府一直对制裁俄罗斯石油持谨慎态度。
-
-欧洲国家一直抵制禁止俄罗斯石油的前景。德国总理奥拉夫·舒尔茨（Olaf Scholz）周一表示，欧洲有意识地排出了对俄罗斯能源供应制裁的可能性，因为“目前没有其他方法可以确保欧洲的供热、交通、电力供应和工业能源供应。”
-
-舒尔茨表示，德国一直在与其盟国合作开发俄罗斯能源的替代品，但这“不会在一夜之间发生”。他补充说：“因此，我们有意识地决定继续与俄罗斯能源供应领域的商业活动。”
-
-周一，英国首相鲍里斯·约翰逊（Boris Johnson）表示，“摆脱对俄罗斯碳氢化合物的依赖是完全正确的做法，但我们必须循序渐进。”
-
-他说：“我们必须确保我们有替代供应，我们正在研究的一件事是使用更多我们自己的碳氢化合物的可能性。”
-
-原文链接：[https://www.nbcnews.com/politics/politics-news/us-ban-russian-oil-imports-rcna19119](https://www.nbcnews.com/politics/politics-news/us-ban-russian-oil-imports-rcna19119)
-
-翻译：Nick | 校对：JS709 | 编辑&发布：叶子
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
