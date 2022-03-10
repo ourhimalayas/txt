@@ -2,22 +2,28 @@
 ---
 
 
-## 美官方文件披露辉瑞疫苗的致命副作用
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2137838/)
+## 拜登宣布禁止进口俄罗斯石油
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2137857/)
 
-采编/编译撰稿：加拿大温哥华杨帆农场 – 薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-982.png)图片来源：riotimesonline.com
-据[里约时报]3月7日报道，美国【食品和药物监管局】试图隐瞒辉瑞疫苗数据的要求被法院驳回后，被迫解封了有关其新冠病毒疫苗临床试验数据的文件。
+采编：加拿大温哥华杨帆农场 –风云小哥
 
-报道称，这份长达5.5万页的秘密文件显示，辉瑞疫苗大约有1300种副作用，并详细记录了近16万个疫苗伤害病例。其中包括：脑血栓，心。co’m肌炎，消化和呼吸系统病变，糖尿病，脊髓炎，面瘫和死胎等严重威胁到人体健康的致命疾病。
+翻译编辑：加拿大温哥华杨帆农场 –文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-983.png)图片来源：NBC News
 
-对此，儿童健康保护组织负责人指出，这份披露辉瑞疫苗真相的报告所造成的影响如重磅炸弹，并应立即终止任何类似疫苗的接种使用。
+
+据英国《独立报》3月8日报道，美国总统拜登当天宣布，将禁止俄罗斯石油产品进口到美国市场，以此断绝俄总统普京入侵乌克兰的资金来源。
+
+据悉，该项与欧盟密切协商后做出的，包括对俄罗斯石油、天然气和能源进口的禁令得到了各界广泛支持。同时，该决定还禁止美国对俄罗斯能源部门进行新的投资。
+
+报道称，美国是能源出口国，国内石油供给量足以支持该禁令的实施 。但由于欧洲严重依赖俄罗斯能源进口，而无法立即效仿美国执行相同措施。因此，欧盟转向其他国家能源供给势在必行。
+
+目前，石油和天然气出口是俄罗斯主要财政收入来源，该禁令无疑将进一步孤立该国经济，并将加速该国陷入对乌克兰的战争泥潭中。
 
 校对编辑：硫酸羟氯喹64
 
-发稿：青青
+发稿：晨熹 青青
 
-新闻来源：[Pfizer Covid vaccine has 1,291 side effects reveals official documents](https://www.riotimesonline.com/brazil-news/modern-day-censorship/pfizer-covid-vaccine-has-1291-side-effects-reveals-official-documents/)
+原文链接：https://www.independent.co.uk/news/world/americas/us-politics/biden-russia-oil-ban-ukraine-us-b2031052.html
 
 
 

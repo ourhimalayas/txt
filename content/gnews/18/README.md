@@ -2,48 +2,35 @@
 ---
 
 
-## 俄罗斯入侵乌克兰战争第14 天- -挖万人坑；撤离的孕妇
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2138158/)
+## 【每日聚焦】俄乌战事3月10日简要
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2138226/)
 
-【玫瑰看新闻】每日快讯
+**撰稿：蓝莲花农场 文斌**
 
-俄罗斯入侵乌克兰的第14 天发生了更多的流血和破坏，因为无情的攻击迫使更多的乌克兰居民逃离。美联社摄影师拍摄的照片显示，一些难民从一座临时搭建的桥上滑溜溜的木板撤离——乌克兰人几天前炸毁了从乌尔平镇通往基辅首都的混凝土道路，以减缓俄军的进攻。
+1、警示：俄罗斯正在散播和利用他们所谓的 “化武袭击”言论，来为俄军动用生化武器创造条件。在这种情况下，俄罗斯军队将可能使用危险的生化武器，可能在乌克兰东部；但也可能在俄罗斯境内，俄罗斯会立即指责是乌克兰军队所为。俄罗斯国内的媒体，现在大多与国际信息空间隔绝，将利用这一假象来激起国内的愤怒，并为在乌克兰的进一步战争升级找到借口。在乌克兰的同胞应该抓紧时间撤离。
 
-其他图片显示一名军事牧师试图安慰一名哭泣的女人；将居民运送到安全地带的军用车辆车队；以及坐在或站在疏散巴士上的焦急难民，他们的脸上表现出震惊、悲伤和无奈。
+2、基辅：乌军在基辅地区Borodyanka附近炮击并摧毁俄罗斯坦克，在基辅东部击退俄军在Brovary区的进攻。俄罗斯在基辅西边的日托米尔地区的Korosten’进行空袭，1人死亡，数人受伤。乌克兰国防军击退了俄军在莫什春定居点附近逼迫伊尔平河的企图，俄军被击退，定居点被解放。
 
-虽然俄罗斯军队没有表现出撤退的迹象，但地面上的乌克兰战士发誓不会让步。
+3、俄军正试图恢复遭受重创的部队的战斗力，重新集结并且不放弃从西部和西南部封锁基辅的想法。不排除以被占领定居点居民疏散为幌子的俄军的破坏和侦察小组渗透到基辅。
 
-以下是乌克兰战区一些照片：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image004-1.jpg)
-在被围困的乌克兰马里乌波尔港，蒙面工人将尸体简单处理，埋入一条 25 英尺长的壕沟，该壕沟在俄罗斯军队的持续炮击中仓促挖掘。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image006-2.jpg)2022 年3 月9 日，星期三，乌克兰的马里乌波尔，乌克兰急救人员和志愿者从一家妇产医院抬着一名受伤的孕妇，该医院因炮击而受损。（美联社照片/Evgeniy Maloletka）
-在城市的其他地方，四名男子冲出一家严重受损的妇产医院，用担架运送一名流血的孕妇。另一名身穿睡衣、脸上有伤口的孕妇小心翼翼地走下一个布满碎片的楼梯，而在院子里，紧急救援人员在一片荒凉的风景中穿行，那里到处都是破损的汽车和被炸裂的窗户玻璃碎片.
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image008-2.jpg)2022 年3 月9 日，星期三，在乌克兰基辅的一个分流点，一名军事牧师试图安慰一名从Irpin 撤离的哭泣妇女。（美联社照片/Vadim Ghirda）![](https://assets.gnews.org/wp-content/uploads/2022/03/image010-2.jpg)2022 年3 月9 日，星期三，乌克兰急救人员在乌克兰马里乌波尔的一家妇产医院工作。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image013.jpg)2022 年3 月9 日，星期三，一名乌克兰军人在乌克兰基辅郊区的Irpin 看着接近的车辆时采取射击姿势。（美联社照片/Vadim Ghirda）![](https://assets.gnews.org/wp-content/uploads/2022/03/image014.jpg)2022 年3 月9 日，星期三，乌克兰人从乌克兰基辅郊区的Irpin 撤离时进入公共汽车。（美联社照片/Felipe Dana）![](https://assets.gnews.org/wp-content/uploads/2022/03/image016.jpg)2022 年3 月9 日，星期三，一名从乌克兰首都周边地区撤离的妇女在抵达乌克兰基辅的一个分流点后拿着一盘食物。（美联社照片/Vadim Ghirda）![](https://assets.gnews.org/wp-content/uploads/2022/03/image018.jpg)2022 年3 月9 日，星期三，在乌克兰基辅郊区的Irpin 撤离平民的车队离开时，汽车驶过一辆被摧毁的俄罗斯坦克。（美联社照片/Vadim Ghirda）![](https://assets.gnews.org/wp-content/uploads/2022/03/image020.jpg)2022 年3 月9 日，星期三，一名妇女在乌克兰马里乌波尔被炮击损坏的妇产医院外走。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image022.jpg)2022 年3 月9 日，星期三，从邻国乌克兰逃离战争的人们睡在波兰普热梅希尔的普热梅希尔火车站。（美联社照片/丹尼尔科尔）![](https://assets.gnews.org/wp-content/uploads/2022/03/image024.jpg)2022 年3 月9 日，星期三，一名男子在乌克兰马里乌波尔的一栋被炮击损坏的公寓楼前骑自行车。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image026.jpg)2022 年3 月9 日，星期三，一名受伤的孕妇在乌克兰马里乌波尔的一家妇产医院走下楼，该医院因炮击而受损。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image028.jpg)2022 年3 月9 日，星期三，乌克兰人在乌克兰基辅郊区逃离Irpin 时，穿过一座被毁坏的桥下的临时小路。（美联社照片/Felipe Dana）![](https://assets.gnews.org/wp-content/uploads/2022/03/image030.jpg)2022 年3 月9 日，星期三，乌克兰领土防御部队成员在乌克兰基辅郊区训练使用NLAW 反坦克武器。（美联社照片/Efrem Lukatsky）![](https://assets.gnews.org/wp-content/uploads/2022/03/image032.jpg)2022 年3 月9 日，星期三，一名男子带着他的孩子离开乌克兰马里乌波尔一家受损的妇产医院。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image035.jpg)2022 年3 月9 日，星期三，在乌克兰基辅郊区逃离Irpin 时，一名儿童被推着婴儿车穿过临时路径。（美联社照片/Felipe Dana）![](https://assets.gnews.org/wp-content/uploads/2022/03/image037.jpg)2022 年3 月9 日，星期三，人们在乌克兰马里乌波尔郊区的井边排队取水。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image038.jpg)2022 年3 月9 日，星期三，乌克兰马里乌波尔发生炮击后，浓烟升起。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image040.jpg)2022 年3 月9 日，星期三，一名妇女在乌克兰马里乌波尔被炮击损坏的妇产医院外走。（美联社照片/Evgeniy Maloletka）
+4、哈尔科夫的Barabashova街道遭受炮击；在Chuhuiv的乌克兰安全局 (SBU)大楼成为袭击目标，附近的房屋也遭到破坏；俄罗斯对哈尔科夫州的Zolochiv（佐洛奇夫）的炮击造成1死2伤
 
+5、最新信息，昨天对马里乌波尔市一家医院的空袭炸死3人，包括一名儿童；欧盟外交政策和安全主管称俄罗斯轰炸一家儿童医院是令人发指的战争罪行；英国国防部称俄罗斯高层领导人将面临战争罪的审判。
 
+6、 Mykolayiv方向：乌克兰总参谋部称，在Mykolayiv方向，俄军试图在Luparevo、Pravdyno、Blagodatne、Novohryhorivka、Kalynivka、Kiselivka、Pershotravneve、Oleksandrivka、Burgunka、Bereslav、Tavriysk 的定居点站稳脚跟，在Mykolayiv北部，乌克兰TB2无人机击毁俄装甲车。
 
+7、乌克兰外长表示，他的政府知道“北约还没有准备好采取集体行动制止战争并保护乌克兰平民免受俄罗斯空袭。”但是他指出加入北约的计划是乌克兰的基本国策，他们无意改变这一点。他在会见俄罗斯外长拉夫罗夫后发表讲话说，俄罗斯目前无意真正停火，他们想要的是乌克兰投降，但是这不可能，乌克兰会一直战斗。他说拉夫罗夫没有同意在马里乌波尔建立人道主义走廊。
 
-[【援引连结】](https://apnews.com/article/russia-ukraine-kyiv-europe-0496e642a4a0d8d7d7fe900a8bcab2f1)
+8、英国称，”最近几天，俄罗斯在乌克兰上空的总体空中活动明显减少，可能是由于乌克兰防空部队出乎意料的有效性和持久性”。
 
-**推出问题，敲出真相，爆料在路上！**
+9、3月9日，美军已将爱国者反导弹系统部署到波兰热舒夫-雅辛卡机场，以保护美国、波兰和其他盟国在该国的部队安全。
 
-**请关注和订阅我们的以下账号：**
+校对：文斌/发布：一叶知秋
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
