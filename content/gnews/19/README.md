@@ -2,18 +2,25 @@
 ---
 
 
-## 由于未接种新冠疫苗，德约科维奇无法入境美国参赛
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2136465/)
+## 乌克兰男童哭着穿越边境！波兰防卫队爆现状：一家平安！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2136633/)
 
-#### 翻译/撰稿：zzballack
+俄乌冲突持续上演，根据联合国统计，目前已有170万民难民逃离乌克兰。其中有一名年纪4岁多的乌克兰男童，独自拎着娃娃走在通往波兰的路上。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-46.jpg)图片来源：路透社
-据《网关专家》（Gateway Pundit）3月10日报道，网球巨星诺瓦克·德约科维奇（Novak Djokovic）3月9日通过其个人推特宣布，尽管他被自动列入了将于本月在美国加利福尼亚州和佛罗里达州举行的印第安维尔斯大师赛（BNP Paribas Open）和迈阿密公开赛 (Miami Open)的参赛名单，但由于美国疾控中心（CDC）坚持其规定，要求所有外国公民必须接种了新冠疫苗才能获得进入美国的签证，因此尚未接种新冠疫苗的他无法入境美国参赛。
+在画面中，只见男童只身一人，身旁并没有其他亲属，让不少人十分惊讶且心痛。此男童牵动着太多人的心，郭文贵也希望找到这个孩子给养起来，希望战友们能帮忙找到。
+视频来源：新西兰农场
+但事后根据波兰防卫队指出，这名乌克兰男童只有4岁，并非独自穿越边境，他的家人其实就走在他的前方，希望大家不用太过担心。
 
-今年一月，德约科维奇同样因为未接种疫苗而被澳州政府拒绝进入该国，从而失去了参加澳网公开赛的机会。另外，反对医疗暴政的勇敢立场使得德约科维奇无法参加今年的所有重要比赛。今年截至目前，他只打了三场比赛。但他上个月在接受英国BBC采访时明确表示，自己宁愿放弃比赛和网球荣誉，也不愿被强迫接种实验性的新冠疫苗，他愿意付出这些代价。
+牵挂小男童的朋友们！心里的这块石头可以落了地，男童平安，一家平安，大家可以安心了！
 
-新闻来源：[BREAKING: Biden Admin Denies Former World No. 1 Tennis Champ Novak Djokovic’s Access to Country Due to Vaccine Status — But Opened Border to 2 Million Unvaccinated Illegal Aliens in Last Year](https://www.thegatewaypundit.com/2022/03/breaking-biden-admin-denies-former-world-no-1-tennis-champ-novak-djokovics-access-country-due-vaccine-status-opened-border-2-million-unvaccinated-illegal-aliens-last-year/)
+新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022310W0295)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

@@ -15,113 +15,113 @@
 
 ---
 
-### [有声｜人民币国际结算增加 专家：俄资金临时避险](/content/gnews/1/README.md)
+### [有声｜乌克兰官员称准备将敏感数据转移到其他国家](/content/gnews/1/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [2022/03/08 北约国家将要助战乌克兰](/content/gnews/2/README.md)
+### [有声｜全球300家大企业抵制 俄罗斯经济已死](/content/gnews/2/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [日本研制出奥密克戎毒株亚型“BA.2”的治疗新药](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声｜欧盟扩大对俄制裁 黑名单新增160人](/content/gnews/4/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [有声｜Twitter推出旨在绕过俄罗斯封锁的服务](/content/gnews/5/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [与乌克兰基金会主席的对话](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [有声｜大翻盘！对中强硬派候选人当选韩国总统](/content/gnews/7/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [有声｜舆论关注铁链女 西安《窦娥冤》演出被叫停](/content/gnews/8/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [库莱巴会见拉夫罗夫：仍未停火](/content/gnews/9/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [Omicron子变体或导致澳洲部分地区新冠病例在数周内倍增](/content/gnews/10/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [有声｜人民币国际结算增加 专家：俄资金临时避险](/content/gnews/11/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [2022/03/08 北约国家将要助战乌克兰](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声｜乌克兰称 一家儿童医院遭受俄罗斯的袭击](/content/gnews/3/README.md)
+### [有声｜乌克兰称 一家儿童医院遭受俄罗斯的袭击](/content/gnews/13/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [“自古以来”的悖论](/content/gnews/4/README.md)
+### [“自古以来”的悖论](/content/gnews/14/README.md)
  ` 银河勇气之星`
 
-### [2022/03/06泽连斯基：不会原谅俄罗斯对乌克兰的摧毁和杀戮](/content/gnews/5/README.md)
+### [2022/03/06泽连斯基：不会原谅俄罗斯对乌克兰的摧毁和杀戮](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [被俄军占领的切尔诺贝利核电站已停止传送安全数据，核电站员工的状况堪忧](/content/gnews/6/README.md)
+### [被俄军占领的切尔诺贝利核电站已停止传送安全数据，核电站员工的状况堪忧](/content/gnews/16/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [人类是自己的主人](/content/gnews/7/README.md)
- ` 银河勇气之星`
-
-### [拜登签署行政令 要求政府评估发行数字美元的利弊](/content/gnews/8/README.md)
+### [拜登签署行政令 要求政府评估发行数字美元的利弊](/content/gnews/17/README.md)
  ` 日本东京方舟农场`
 
-### [巾帼不让须眉 伟大的乌克兰女战士](/content/gnews/9/README.md)
+### [巾帼不让须眉 伟大的乌克兰女战士](/content/gnews/18/README.md)
  ` 波士顿五月花农场金融部`
 
-### [中共对台湾和支持台湾的外部势力发出威胁性警告](/content/gnews/10/README.md)
- ` 儒为`
-
-### [乌克兰男童哭着穿越边境！波兰防卫队爆现状：一家平安！](/content/gnews/11/README.md)
+### [乌克兰男童哭着穿越边境！波兰防卫队爆现状：一家平安！](/content/gnews/19/README.md)
  ` 蓝莲花农场`
 
-### [中共国极力宣传美国在乌克兰实验室的阴谋论](/content/gnews/12/README.md)
+### [中共国极力宣传美国在乌克兰实验室的阴谋论](/content/gnews/20/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [拉夫罗夫和库莱巴的停火谈判在一个半小时后破裂](/content/gnews/13/README.md)
+### [拉夫罗夫和库莱巴的停火谈判在一个半小时后破裂](/content/gnews/21/README.md)
  ` Shuizhuyu`
 
-### [欧议员谴责特鲁多对车队“侵犯人权”](/content/gnews/14/README.md)
- ` 日本东京方舟农场`
-
-### [战争进入第三周，俄乌外长土耳其会晤](/content/gnews/15/README.md)
- ` Shuizhuyu`
-
-### [2022/03/07 北约拒绝泽连斯基在乌克兰上空设立禁飞区](/content/gnews/16/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：拜登签署行政令加强对数字资产管理，喜币的诞生恰逢其时](/content/gnews/17/README.md)
+### [秘翻在线：中共国红十字会声称应乌克兰要求提供500万冥币的物资援助](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [03/10每日播报｜社媒消息:蓬佩奥 班农先生](/content/gnews/18/README.md)
+### [秘翻新闻｜全球300家大企业抵制 俄罗斯经济已死](/content/gnews/23/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [由于未接种新冠疫苗，德约科维奇无法入境美国参赛](/content/gnews/19/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：中共国红十字会声称应乌克兰要求提供500万冥币的物资援助](/content/gnews/20/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [政府雇数百家媒体宣传COVID疫苗并做全面正面报道](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [秘翻新闻｜全球300家大企业抵制 俄罗斯经济已死](/content/gnews/22/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [美国务院有关中俄散布乌克兰生化武器试验项目谎言的声明](/content/gnews/23/README.md)
+### [美国务院有关中俄散布乌克兰生化武器试验项目谎言的声明](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄乌战争后民天下诞生，任何独裁都将消失](/content/gnews/24/README.md)
+### [俄乌战争后民天下诞生，任何独裁都将消失](/content/gnews/25/README.md)
  ` 雅典娜GNotes`
 
-### [中共会发起一场能源或区域性战争，国内蕴含着粮食危机](/content/gnews/25/README.md)
+### [中共会发起一场能源或区域性战争，国内蕴含着粮食危机](/content/gnews/26/README.md)
  ` 雅典娜GNotes`
 
-### [中国将形成“分而不离”的政治局面](/content/gnews/26/README.md)
+### [中国将形成“分而不离”的政治局面](/content/gnews/27/README.md)
  ` 雅典娜GNotes`
 
-### [美国将“关闭”违反对俄出售芯片禁令的中共国芯片制造商](/content/gnews/27/README.md)
+### [美国将“关闭”违反对俄出售芯片禁令的中共国芯片制造商](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共两会｜国防部：对“台独”行径绝不姑息 民进党是动荡的根源](/content/gnews/28/README.md)
+### [中共两会｜国防部：对“台独”行径绝不姑息 民进党是动荡的根源](/content/gnews/29/README.md)
  ` 關注組`
 
-### [【快讯】乌克兰大救援：清晨的新中国联邦梅迪卡救助站](/content/gnews/29/README.md)
+### [【快讯】乌克兰大救援：清晨的新中国联邦梅迪卡救助站](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`
 
-### [俄乌战争｜美众议院通过俄罗斯石油禁令及拨款136亿美元援助乌克兰](/content/gnews/30/README.md)
+### [俄乌战争｜美众议院通过俄罗斯石油禁令及拨款136亿美元援助乌克兰](/content/gnews/31/README.md)
  ` 關注組`
 
-### [巴西出动军机 援助俄乌战争难民](/content/gnews/31/README.md)
+### [巴西出动军机 援助俄乌战争难民](/content/gnews/32/README.md)
  ` 日本东京方舟农场`
 
-### [中共官媒、社媒禁止民众批评俄罗斯入侵乌克兰](/content/gnews/32/README.md)
+### [中共官媒、社媒禁止民众批评俄罗斯入侵乌克兰](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [全球农产品价格暴涨，引发人们对粮食短缺的担忧](/content/gnews/33/README.md)
+### [全球农产品价格暴涨，引发人们对粮食短缺的担忧](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|新中国联邦,法治基金人类神奇的使节](/content/gnews/34/README.md)
+### [有声|新中国联邦,法治基金人类神奇的使节](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [随着黄金上涨，美元崩盘可能是俄乌战争最重要的结果](/content/gnews/35/README.md)
+### [随着黄金上涨，美元崩盘可能是俄乌战争最重要的结果](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
-
-### [前线快报——3月9日 前线救援队集结波乌边境梅迪卡救援站，分工明确，集体作战，全力支援救助来自乌克兰的难民](/content/gnews/36/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [国际｜ 在野“保守派”尹锡悦当选南韩总统 主张“亲美抗中”](/content/gnews/37/README.md)
  ` 關注組`

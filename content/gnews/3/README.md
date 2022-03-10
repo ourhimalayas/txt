@@ -2,29 +2,28 @@
 ---
 
 
-## 有声｜乌克兰称 一家儿童医院遭受俄罗斯的袭击
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2136710/)
+## 日本研制出奥密克戎毒株亚型“BA.2”的治疗新药
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2136930/)
 
-By:**秘翻新闻**
+撰稿：东京樱花团丨立正道
 
-**2022-03-10**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-108.png)图片来源 路透社
-[《路透社》乌克兰利沃夫3月9日报道，乌克兰称，俄罗斯周三发动空袭，严重破坏了被围困的乌克兰港口城市-马里乌波尔的一家儿童医院，爆炸令很多病人被埋在瓦砾下。](https://www.reuters.com/world/europe/russia-promises-silence-ukrainians-flee-battered-cities-2022-03-09/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/日本研制出奥密克戎毒株亚型BA.2的治疗新药.png)
 
-[乌克兰总统泽伦斯基称这次轰炸是暴行。市议会表示，这家医院曾多次遭到空袭，造成巨大破坏。俄罗斯军队直接袭击了妇产医院。妇女和孩子们都被埋在废墟下。](https://www.reuters.com/world/europe/russia-promises-silence-ukrainians-flee-battered-cities-2022-03-09/)
+《新英格兰医学杂志》电子版10日刊登了日本东京大学研究小组在细胞实验中研制出了治疗新型冠状病毒的中和抗体药和抗病毒药，此药针对海外扩散较广泛的新冠病毒奥密克戎毒株亚型“BA.2”有较好疗效。
 
-[据报道，乌克兰外交部发布的视频显示，医院的窗户被炸毁，瓦砾堆在燃烧。顿涅茨克地区州长表示，爆炸导致17人受伤，其中包括分娩中的妇女。](https://www.reuters.com/world/europe/russia-promises-silence-ukrainians-flee-battered-cities-2022-03-09/)
+奥密克戎变异株因基因序列不同存在着BA.1和BA.2等亚型，现在包括日本国内及世界主流是BA.1，但丹麦和印度等地可能是感染力更高的BA.2为主流，日本国内也担心BA.2株会成为主流。
 
-[乌克兰外长德米特罗·库勒巴表示，俄罗斯违反了南部港口附近的停火协议。俄罗斯继续在马里乌波尔扣押40多万人作为人质，阻止人道主义援助和撤离。库勒巴还在Twitter上写道，狂轰滥炸仍在继续，近3000名新生儿缺乏食品和药物。](https://www.reuters.com/world/europe/russia-promises-silence-ukrainians-flee-battered-cities-2022-03-09/)
+东大团队使用培养细胞验证了BA.2亚型的治疗药物的有效性。结果是通过将中和抗体药的索特罗维单抗（Sotrovimab）或者卡西瑞单抗（Casirivimab）和伊德单抗（Imdevimab）两种抗体组合使用的罗纳普里夫（Ronapreve），确认了阻碍病毒细胞感染的效果。此外，Paxlovid Pack中使用的抗病毒药物瑞德西韦和莫努匹拉韦，以及尼马托瑞韦也被发现具有抑制病毒在细胞中生长的作用。
 
-[乌克兰表示，自俄罗斯入侵以来，全国已有67名儿童死亡，马里乌波尔至少有1170名平民死亡。](https://www.reuters.com/world/europe/russia-promises-silence-ukrainians-flee-battered-cities-2022-03-09/)
+在团队过去的实验中确认了Ronapreve对BA.1的效果显著下降，从这次的结果来看却确认了对BA.2有一定的效果。只是与来自中国武汉的传统株的有效性相比，抗病毒药最多只下降了1/3左右，而中和抗体药的罗纳普里夫下降约为63分之1，索特罗维单抗约下降到50分之1。
 
-秘翻新闻 冰糖葫芦喵编译报道
+该团队中的东京大学特聘教授河冈义裕表示，“虽然人们担心抗体药物对BA.2的效果会比对别的株低一点，但是低分子化合物瑞德西韦、莫努匹韦和尼玛瑞韦仍非常有效。应该尽快建立一个系统，让患者尽快接受这些低分子化合物的治疗。”
 
-发布 : 恩典
+信息来源：[**コロナ治療薬、オミクロン株「ＢＡ・２」にも効果  東大など確認**](https://news.yahoo.co.jp/articles/6891f235f3e2ac40b0d15e4e962655830632cf1f)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
