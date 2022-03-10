@@ -2,40 +2,29 @@
 ---
 
 
-## 高盛成为第一家退出俄罗斯的美国银行
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2139452/)
+## 有声|Coinbase表明支持对俄制裁，封锁2.5万个俄罗斯加密货币地址
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2139620/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+Coinbase法务长格雷瓦尔表示，制裁对国家安全及阻吓非法侵略至为关键，Coinbase承诺遵守当局颁布各项经济制裁，并重申基于加密货币可追踪原则，可能会使打击非法账户变得更加容易。不过，Coinbase并没有进一步透露涉事帐户被关闭的具体时间，以及有多少帐户与当前的制裁直接有关。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2CGOJCSTRZKWFJDX7SHWNDIJKE.jpg)
+早前，Coinbase、币安及Kraken等加密货币巨头先前回绝了乌克兰政府要求，完全封锁俄罗斯账户。币安行政总裁赵长鹏给出的理由是，加密货币市场规模不足以让俄罗斯这样的大国用来突破经济封锁。因此，到目前为止，还是有相当一部分的俄罗斯公民暂时没有被封锁的风险。
 
+文字版原文：[Coinbase表明支持对俄制裁，封锁2.5万个俄罗斯加密货币地址](https://gnews.org/zh-hans/2133269/)
 
-图片来源：路透社
+音频处理：Fei797
+发稿：Fei797
 
-高盛集团 (GS.N) 周四表示，将关闭其俄罗斯业务，成为俄罗斯入侵乌克兰后第一家退出的美国主要银行，并对竞争对手施加压力。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-在俄罗斯受到国际制裁的情况下，西方金融机构在俄罗斯开展业务变得越来越困难，银行一直在争论是否留下。
-
-根据国际清算银行的数据，虽然欧洲银行对俄罗斯的敞口最大，但美国银行的敞口仍然很大，总计 147 亿美元。
-
-该银行在一份电子邮件声明中表示：“高盛正在按照监管和许可要求逐步关闭其在俄罗斯的业务。”
-
-据一位不愿透露姓名的知情人士透露，高盛将结束这些业务，而不是立即退出，任何损失都将是“无关紧要的”。
-
-三位知情人士称，在俄罗斯上个月入侵乌克兰之后，高盛在莫斯科的大约一半员工已经或正在搬到迪拜。该银行在莫斯科有大约 80 名员工。
-
-一位消息人士称，据了解，高盛的俄罗斯负责人仍留在莫斯科。
-
-在其年度文件中，该银行披露了对俄罗斯的信贷敞口为 6.5 亿美元。
-
-高盛股价在午盘交易中下跌 2.8% 至 325.97 美元。 截至周三收盘，高盛今年已下跌12.8%。
-
-🔗
-
-[https://www.reuters.com/business/finance/goldman-sachs-exit-russia-bloomberg-news-2022-03-10/](https://www.reuters.com/business/finance/goldman-sachs-exit-russia-bloomberg-news-2022-03-10/)
-
-编辑发表： Shuizhuyu
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

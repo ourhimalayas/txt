@@ -2,26 +2,41 @@
 ---
 
 
-## 秘翻在线: 中共运8反潜机近日在演习中坠海
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2139673/)
+## 有声|乌克兰救援3月8日信息
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2139701/)
 
-撰稿：西枫westca
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美东时间3月8日晚间，获得了几条新中国联邦和法治基金乌克兰救援行动的最新消息。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-6.jpg)图片来源：网络照片
-据三立新闻网3月9日报道， 来自中共的一架运8反潜机近日在南海坠海意外。中共选在邻近海域发布禁航区从事搜救及军事训练，目的是在全球降低关注南海之际，测试美国及其他南海各国底线。
+截至当日晚间6点，乌克兰首都基辅有大量人群正在徒步逃离，而当地苏梅仍有两百余华人留学生。据苏梅官方电报群消息指出，乌克兰副总统确认目前新中国联邦对苏梅华人留学生的第二批救援行动已经开始。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-4.jpg)
+目前哈尔科夫、布尔塔瓦、科列门秋格、基洛夫格勒几个城市都有火车可以抵达利沃夫。
 
-中共在俄乌之间均存有战略利益，随着战事的发展，中共基于国际秩序巨变、全球经济震荡，恐冲击其维稳大局，现表露态度愿与国际社会共同斡旋的立场； 同时，中共仍有意利用俄乌战事之际，持续对台政经打压、军事胁迫、统战渗透等手段，图谋耗损台湾国防资源、分化官民和谐、打击民心士气等目的。
+俄军坦克在基辅附近击毁一辆疏散难民的大巴车，导致包括司机在内的3人受伤。同时俄军对苏梅也进行了空袭。
 
-另据美国情报界3月8日预测，中国今年将增加在台湾周围的军事活动，并试图对台湾政府施加更大的压力，以侵蚀其政治主权。 并迫使邻国默许北京的偏好，包括其领土和海洋主张以及对台湾的主权主张。
+为扩大救援行动，新中国联邦已在波兰新建了更多的救助点。
 
-战争没有赢家，受害的终究是老百姓。任何挑起战争的一方都是人类文明的罪犯。 民主社会不能容忍以武力破坏任何一个国家的领土、主权完整。
 
-**新闻来源：**
 
-[西南空域天天擾台！國安局首證實：解放軍機運-８墜落南海 | 政治 | 三立新聞網 SETN.COM](https://www.setn.com/News.aspx?NewsID=1082719&amp;from=y)
+文字版原文：[乌克兰救援3月8日信息](https://gnews.org/zh-hans/2135111/)
 
-[China to increase military aggression around Taiwan: US intelligence report | Taiwan News | 2022-03-09 12:59:00](https://www.taiwannews.com.tw/en/news/4466575)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,12 +2,16 @@
 ---
 
 
-## 七哥金句：教育的核心
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2139931/)
+## 【#G时新闻】- 波兰众议院已批准一项帮助乌克兰难民的法律。
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2140020/)
 
-整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句8--scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句9--scaled.jpg)
-发布：枫叶红了
+主播：加拿大温哥华扬帆农场 – 悠然
+
+视频制作： – 文雅
+
+上传： -亲帆
+
+盖特连接：[https://gettr.com/post/pz6acd3d8b](https://gettr.com/post/pz6acd3d8b)
 
  
 

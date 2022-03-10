@@ -2,33 +2,31 @@
 ---
 
 
-## 有声|新中国联邦法治基金乌克兰人道救援信息
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2139722/)
+## 最大的谎言
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2139836/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-鉴于目前乌克兰局势日益恶化，新中国联邦救援和法治基金救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
+文编：Hima
+听写：文龙
+视频：七哥
 
-自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发，前往波兰。此外，新中国联邦和法治基金的第一批救援专机将于近期从波兰出发。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1266-1-1.png)
-文字版原文：[新中国联邦法治基金乌克兰人道救援信息](https://gnews.org/zh-hans/2135275/)
+2022-03-06直播摘录
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+最大的谎言，现在给你最便宜的，最盈利的，超过毒品的叫做～冠状CCP病毒疫苗，还要你的命。如果以上这事情是我编的，是我们胡说八道，你就远离我们，去信那些比爹娘还亲的党去，不要信我们，不要听我的。我千言万语无法说出我内心的这种几天来世界局势和中国人民和乌克兰救援。还有现在中国面临的这种感觉，这种悲剧。我们活每一天，每一秒，我都在感谢上天。我每次提到的时候都在问上天，你为什么给我这么多责任，给我们这么多机会，让我们那么多战友没有打疫苗？再说一遍，没打疫苗，我们每天都像过年一样活着。我说的五月份，你们现在明白吗？现在是三月份，我在过去一年，你们无数次问我，七哥，啥时候停止疫苗，我说2020年年底不超过三月份，2022年我说对了吗？疫苗灾难是五月份对吗？
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**关注我们**
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+Discord 账号
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+Gettr 账号
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

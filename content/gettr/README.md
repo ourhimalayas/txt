@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 9:49 PM (UTC)`
+
+【Ukraine Rescue】03/10/22 NFSC Ukraine Rescue  Station in Medyka, Poland has attracted not only a large number of refugees but also international media attention due to its well-equipped facilities.<br/><br/>【乌克兰救援】03/10/22 新中国联邦乌克兰救援行动在波兰梅迪卡的救援站因设施完备，不仅吸引了大批难民，也赢得了国际媒体的关注
+![img](https://media.gettr.com/group49/getter/2022/03/10/21/3d9af961-db3c-ce0d-3d99-63fe339aa65b/out.jpg)
+
+---
+
 `@miles 3/10/2022 9:36 PM (UTC)`
 
 【Ukraine Rescue Operation by #NFSC and #ROLF】🇺🇦🆘📣 <br/><br/>Mar.9, German musician #DavideMartello played a piano solo 🎹at the #Medyka refugee camp in #Poland for all the donors of the #RuleofLawFoundation <br/><br/>#UkraineRescue<br/>#iStandWithUkraine 🇺🇦<br/><br/>【 #新中国联邦乌克兰救援行动】🇺🇦🆘📣 <br/><br/>3月9日德国音乐家 #达维德马特洛 🎹 在波兰#Medyka 难民营特别为所有 #法治基金 #ROLF 的捐款者演奏了一首钢琴曲<br/><br/>#乌克兰人道主义救援🇺🇦<br/>#法治基金 <br/>#新中国联邦
@@ -152,13 +159,6 @@
 `@miles 3/10/2022 2:42 AM (UTC)`
 
 3月9号：乌克兰协会发出新中国联邦在波兰🇵🇱对乌克兰队救援信息，对我们在乌克兰🇺🇦战场对乌克兰妇女儿童的救援有巨大的帮助，希望大家广泛转发．救人一命．胜造七级浮屠。<br/><br/>【悉尼的乌克兰协会已经把救援信息放上他们网站首页了🌻🌻🌻🌻🌻🌻 】<br/><br/>https://www.hromada.org.au/
-
----
-
-`@miles 3/10/2022 2:39 AM (UTC)`
-
-2022.03.09 晚《新中国联邦新闻访谈》国内外华人灾难显现；俄乌战争对华人的影响；新世界被迫诞生
-![img](https://media.gettr.com/group20/origin/2022/03/10/02/c4ff9983-f987-0ab2-9db2-a398475f2745/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
