@@ -2,40 +2,29 @@
 ---
 
 
-## 历史上的今天——历史上的今天起义日
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2139001/)
+## 加拿大温哥华扬帆农场救援团队抵达前线
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2138959/)
 
-作者：纽约香草山农场 – 马克文、朱丽叶
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1955年后，中共政府在中国四川和青海等藏区强制推行了人民公社制度和“大跃进”运动。在此期间，中共派遣军队镇压、屠杀了大批藏民，还没收当地牧民的财产并大量摧毁当地寺院；同时，中共还强迫该地区众多僧人还俗，妄图灭绝藏族的宗教和传统文化。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-13.jpg)
-资料显示，西藏的精神领袖和族群头人在当地藏人心中有着至高无上的地位。因此，自1958年起，为了更有效地镇压并控制西藏人民，中共通过请客吃饭或开办学习班等阴谋诡计，将那些有威望的藏人首领全部控制了起来，且他们当中的绝大多数人最终都下落不明、不知生死。
+采编撰稿：加拿大温哥华杨帆农场 – 文莱，坐看云起时
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-991.png)图片来源：GETTR
+据3月9日盖特消息，由[加拿大温哥华扬帆农场]战友们组成的[法治基金]乌克兰人道救援团队，当天已陆续抵达波兰华沙，各项救援行动正在有条不紊地按预定计划执行之中。
 
-直至1959年年初，中共西藏军区的副司令员邓少东邀请达赖喇嘛于当年3月10日前往当地军区礼堂观看文工团演出。更甚者，中共拒绝让达赖喇嘛的警卫团随行护卫。消息一经传出，各地的藏民蜂拥包围了罗布林卡宫，请求达赖喇嘛取消这次军区之行。随后，这一诉求抗议演变成了大规模的起义运动，藏民们强烈要求中共政府离开西藏。
+据悉，日前从加拿大多伦多机场出发的13位战友目前都已平安抵达华沙机场，在顺利办理完通关手续后，与当地现场负责接机的文耀战友成功汇合。此外，身处温哥华的7位飞赴前线战友，由于没有疫苗护照，未能在温哥华机场登机，而被迫辗转驱车南下入境美国至西雅图机场并最终成功登机。预计翌日将转机土耳其抵达波兰华沙。
 
-1959年3月10日，中共军队与当地藏民在藏区发生了严重的武装冲突，其中，拉萨地区的交战最为激烈。而在共军炮击藏族反抗民众并强行占领了罗布林卡宫之后，原西藏政府首脑、第十四世达赖喇嘛与八万西藏人流亡至印度并成立了西藏流亡政府，其主张西藏独立和大藏区自治。
+在此预祝[加拿大温哥华扬帆农场]前线救援团队的行动顺利，安全，成功！并敬请关注本节目对本次行动后续进展情况的及时报道。
 
-后来，这些流亡海外的藏族人将1959年3月10日定为西藏人民起义日，用以纪念当年的西藏抗暴运动。
+校对编辑：硫酸羟氯喹64
 
-参考链接：
-1). [西藏的秘密戰爭，究竟發生了什麼？（上）](https://cn.nytimes.com/china/20160621/china-tibet-lhasa-1959-dalai-lama/zh-hant/)
-2). [《1959 拉萨！》前言](https://www.dw.com/zh/1959-%E6%8B%89%E8%90%A8%E5%89%8D%E8%A8%80/a-6407303)
-3). [1959年藏区骚乱](https://zh.wikipedia.org/wiki/1959%E5%B9%B4%E8%97%8F%E5%8C%BA%E9%AA%9A%E4%B9%B1)
-4). [西藏人民起义日](https://zh.wikipedia.org/wiki/%E8%A5%BF%E8%97%8F%E4%BA%BA%E6%B0%91%E8%B5%B7%E4%B9%89%E6%97%A5)
+发稿：青青
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+新闻来源：
 
-总编: Irene木木
-编辑/审核: Jack Li文阳
-校正/发稿：Fei797
+[https://gettr.com/post/pz1bte9543](https://gettr.com/post/pz1bte9543)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://gettr.com/post/pz0gn21135](https://gettr.com/post/pz0gn21135)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

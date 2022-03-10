@@ -2,39 +2,71 @@
 ---
 
 
-## 大直播后记：中共的疯狂和疫苗灾难的可怕
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2140364/)
+## 拜登总统：“普京的战争已经在油价上伤害了美国家庭……我将尽我所能，尽量减少普京造成在国内价格上涨后果”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2140402/)
 
-整理：hys、铁血丹心
-编辑：Kelly
+Joe Biden (the U.S. President)
+乔·拜登（美国总统
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-13.png)图片来源：雅典娜设计组（614）
+the decision today is not without cost here at home
+今天的决定在国内并非没有代价
 
+Putin’s war is already hurting American families at the gas pump
+普京的战争已经在油价上伤害了美国家庭
 
-这一次世界版图格局的打破，中国彻底会形成最后的联邦制。我刚才说的解体，解体完以后就形成什么呢？ 叫分而不离，就是新的中国联邦形式。 都分开了，但是并没有离开中国板块，而且都是自愿的。我深信新中国联邦在不参予政治的情况下一定会达到这一点，让台湾、新疆、西藏、广东、东北、香港彻底独立，但是分而不离，这样对世界是安全的，因为14亿中国人对土地，给人心带来的雾霾和（环境）污染需要几百年治愈。这次俄乌战争，让世界看到共产党的操纵和背后的金钱支持，接下来共产党会在什么地方干另外一仗呢？
+Since Putin began his military buildup on Ukrainian borders
+自从普京开始在乌克兰边境进行军事集结以来
 
-我告诉大家，记住我今天说的话，从3月底到4月份，你会看到在中东，整个能源和战争中更凶险的事情发生，然后是台湾！记住我今天说的话，我知道共产党想干什么，世界最残酷的（时候）还没有开始，包括整个的俄乌战争。 普京只有两个选项，穷凶极恶，彻底服软，这两样他都不会做，他想做也做不成，穷凶极恶，然后他被干掉。中国共产党绑架中国人只有两条，一个与俄翻脸，它翻不起，习会被内部做掉；与美国翻脸，它翻不起。那它怎么办？只有放毒，发动另外一场能源和区域性战争，大家看着中东，然后是台湾！最后共产党是把它自己作死！
+just since then, the price of the gas at the pump in America went up 75 cents
+从那时起，美国的汽油价格上涨了75美分
 
-中国共产党刚刚在内部大肆宣传，我们有了两年到两年半的储备粮食。中国人需要18亿斤的粮食，中国人不要说一天所谓的三两肉，18亿斤粮食乘以2是多少？35亿斤！中国人啥也不吃，只吃粮，两年35亿斤的粮食，这是把全世界粮食不是50%买走了，（而）是300%买走了，就是明年没有收割的粮食，都已经在共产党的粮库里了。 它在恐惧什么？它在骗什么？
+And with this action is going to go up further
+并且随着这个行动将进一步上升
 
-你们还记得1958年吗？我还没出生的时候，你们还没出生的时候，毛泽东见印度、（苏联）的总统的时候告诉说，你看我们中国粮食产太多了怎么处理呀？ 赫鲁晓夫一本正经地说：“我们可以考虑帮你解决这个问题，我们帮你消化一部分。” 1958年（饿）死了多少人？几千万人！共产党毛泽东对着赫鲁晓夫抽着烟，翘着二郎腿，刚吃过唐平老家的湖南的菜，五花肉、湖南鱼。对着是印度的大国总统说，什么（尼赫鲁）：“这个我们粮食过剩咋办？”就那一分钟说话中间平均死多少人？
+I’m going to do everything I can to minimize Putin’s price hike here at home
+我将尽我所能减少普京造成的在国内的物价上涨
 
-今天中共又来了，我们粮食已经储备了两年半。中国印出来的叫钢镚，从小我们叫钢蹦，过去是银币、镍币，现在已经变成钢镚。然后纸币还马上要出现，还要废掉一部分。中国人再不醒来，不是地狱做猪狗，是真的连死都找不着门！
+In coordination with our partners
+并与我们的合作伙伴协调
 
-最后我告诉你们，兄弟姐妹们，战争、中东、放毒都不是最恐惧的，最恐惧的是疫苗灾难！我们新加坡的阿伟昨天给我发个信息说感谢七哥，他太太，旁边人劝他太太打疫苗，他太太最后相信新中国联邦，他太太跟他妈妈一开始不支持爆料革命到后来支持爆料革命，最后劝她打疫苗的俩人昨天全死了，40多岁，他太太特别感动。昨天我们日本的一个叫阿信的战友，劝他打疫苗的人也死了，也是40来岁，还留下俩孩子。我们在柬埔寨的一个战友是在政府工作的警察，去强迫（别人）打疫苗的和劝他打疫苗的俩人一家死了一个。
+we’ve already announced that we’re releasing 60 million barrels of oil from our joint oil reserves
+我们已经宣布，我们将从我们的联合石油储备中释放6000万桶石油
 
-现在这个世界疫苗灾难还真的没有开始，那么我们所有的战友和同胞们记住，怎么能让你们在战争和未来的血腥当中的让你们自己安全呢？我告诉大家，你们不懂得什么叫HPAY 、HCOIN？ ！今天从俄乌战争就知道，美国把整个俄罗斯所有的SWIFT剔除以后，俄罗斯人叫天天不灵，叫地地不应，哭爹喊娘也没用。国内的战友记住，很快比俄罗斯还惨的这一天一定会到中国来。
+Half of that 30 billion, million excuse me
+那些的一半300亿，3000万，抱歉
 
-资料来源：[2022年3月9日文贵大直播](https://www.gettr.com/streaming/pz1ocoe7cb)
+is coming from the United States
+是来自美国的
 
-发布*：tianzhihuan*
+And we’re taking steps to ensure the reliable supply of global energy
+我们正在采取措施确保全球能源的可靠供应
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+are also going to keep working with every tool at our disposal
+还将继续使用我们可以使用的所有工具
+
+protect American families and businesses
+保护美国家庭和企业
+
+原视频链接[https://twitter.com/cspan/status/1501237745863299080?s=24](https://twitter.com/cspan/status/1501237745863299080?s=24)
+
+Date:03/08/2022
+原视频标题:President Biden: ” Putin’s war is already hurting American families at the gas pump…I’m going to do everything I can to minimize Putin’s price hike here at home.”
+拜登总统：“普京的战争已经在油价上伤害了美国家庭……我将尽我所能，尽量减少普京造成的在国内的价格上涨的后果”
+原视频日期：2022/03/08
+原视频链接https://twitter.com/cspan/status/1501237745863299080?s=24
+任务编号：KE446（3959）
+视频时间段 : 0:00-0:48
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 –
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
