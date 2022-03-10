@@ -2,10 +2,10 @@
 ---
 
 
-## 【乌克兰救援】新中国联邦救援行动的计划安排和站点设置
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2137331/)
+## 【乌克兰救援】新中国联邦乌克兰救援行动得到国际广泛关注
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2137434/)
 
-【乌克兰救援】03/09/22新中国联邦和法治基金乌克兰救援行动的免费撤离专机计划安排和站点设置
+【乌克兰救援】03/09/22新中国联邦和法治基金乌克兰救援行动得到了国际社会的广泛关注
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

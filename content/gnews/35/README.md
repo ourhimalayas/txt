@@ -2,21 +2,31 @@
 ---
 
 
-## 中共会发起一场能源或区域性战争，国内蕴含着粮食危机
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2136246/)
+## 秘翻新闻｜全球300家大企业抵制 俄罗斯经济已死
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2136397/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+**By:[秘翻新闻](https://gettr.com/post/pz7c8lf9ca)**
 
-*发布：陶子*
+**2022-03-10**
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**今日新闻主题:**
 
+**1. 舆论关注铁链女 西安《窦娥冤》演出被叫停**
+
+**2.泽连斯基：近 35,000 人通过人道主义走廊获救**
+
+**3.欧盟扩大对俄制裁 黑名单新增160人**
+
+**4.人民币国际结算增加 专家：俄资金临时避险**
+
+**5.乌克兰警告切尔诺贝利存在核泄漏的风险**
+
+**🔗Gettr链接：**[https://gettr.com/post/pz7c8lf9ca](https://gettr.com/post/pz7c8lf9ca)
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

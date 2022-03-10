@@ -2,13 +2,16 @@
 ---
 
 
-## 日本NHK在乌边境的报道中新中国联邦旗帜成最美背景
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2137369/)
+## 20220309郭文贵大直播 ：七哥、唐平团队创作铁锁梦歌曲的经历
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2137473/)
 
-03/08/2022 新中国联邦乌克兰救援行动成功在波兰梅迪卡设置了救助站。日本NHK在乌克兰边境的现场报道中，新中国联邦旗帜成最美背景。
+作者：东京樱花团小视频组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

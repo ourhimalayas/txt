@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 1:35 PM (UTC)`
+
+2022.03.10 早 《新中国联邦新闻》 战场相遇即亲人； 米蒂卡前线信息更新
+![img](https://media.gettr.com/group22/origin/2022/03/10/12/99877d59-dc58-f039-42f1-5617f066eb66/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@ripplenews 3/10/2022 12:21 PM (UTC)`
@@ -152,13 +159,6 @@
 
 3/9/2022 Miles Guo: The rescue team of the New Federal State of China in Medyka is so remarkable! The refugees were touched by the food and blankets we provided. The fellow fighters are enthusiastic, and they are respected and helped by friends from all over the world. We are so proud to be the citizens of the New Federal State of China!<br/><br/>3/9/2022 文贵直播：新中国联邦在梅迪卡的救援团队太牛了！我们提供的食物和毛毯让难民非常感动，战友们热情高涨并受到了各国友人的尊重与帮助；我们为我们是新中国联邦人而感到无比自豪！<br/>
 ![img](https://media.gettr.com/group26/getter/2022/03/10/01/a4f7c54b-eba6-2313-239d-c3437edb8914/out.jpg)
-
----
-
-`@miles 3/10/2022 12:35 AM (UTC)`
-
-2022.03.08《The Fringe》 Episode 143
-![img](https://media.gettr.com/group6/origin/2022/03/10/00/3292af85-a1a2-3131-dff7-a5d24498fa8d/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
