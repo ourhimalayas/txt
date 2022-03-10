@@ -2,18 +2,10 @@
 ---
 
 
-## 2022年3月10日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2139184/)
+## 3/9/2022 文贵直播：台湾、西藏和新疆的独立已毫无悬念；习的时代将带走很多中国人并以极其痛苦的方式终结
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2139228/)
 
-制作：DT新闻组
-
-**中共的杀戮还在继续……**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0153-2.jpg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-6.jpeg)
+秘密翻译组-北美组
 
  
 
