@@ -2,29 +2,37 @@
 ---
 
 
-## 视频|全球媒体聚焦乌克兰救援 新中国联邦受关注
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2138608/)
+## 有声|超过40万的黑客志愿者帮助乌克兰
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2138614/)
 
-制作：香草山视频部
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+外媒3月5日报道，日前一名乌克兰的网路安全官员称，超过40万人自愿帮助乌克兰政府，他们运用数字手段扰乱俄罗斯政府和军事目标。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-2.jpg)
+乌克兰这名官员说，志愿者一直在努力收集情报，并攻击俄罗斯的军事系统，并且还通过电话、邮件、讯息直接与俄罗斯民众取得舆论联系，传播残酷战争的真实图片。在乌克兰政府认可的社交媒体telegram一个群组上，已经在策划对俄罗斯资产的黑客攻击。他补充说，这些黑客永远不会攻击民用目标，只针对军事目标。其他一些散乱的黑客组织也或多或少对俄罗斯的网络造成了中断。
 
-**俄罗斯入侵乌克兰已经进入第十三天，由于大量乌克兰难民涌入波兰，目前，波兰边境已经成为难民救援中心，和全球媒体云集之地。**
+据悉，乌克兰在被俄罗斯入侵之前和入侵期间都遭到了俄罗斯的网路攻击，该名官员表示，我们从来不赞成网路空间的非法活动，但是俄罗斯的做法本身是毫无底线的入侵行为，反抗成为必需的手段。
 
-**日本唯一的国有电视台****NHK****，派驻记者现场报道了乌克兰的救援现况。报道画面中，不但有新中国联邦的救援点和忙碌的救援队员，还长时间以飘扬着的新中国联邦国旗为背景。**
 
-**法治基金救援前线人员****Nicole****发回消息，全球第三大联播网——****CBS****的直播车，就停驻在新中国联邦的直播中心旁。据悉，****CBS****早间新闻主播****Tony****将抵达乌克兰，现场与纽约总部连线报道。**
 
-**此外，Nicole采访了一位来自德国的法籍战地记者Emma。她受雇于英国时尚杂志I-D，大学专业是国际政治。Emma在采访中兴奋地表示，她知道新中国联邦，支持新中国联邦“消灭中国共产党”的主张。她看到新中国联邦在乌克兰救援行动的高效，和不计回报的付出，非常感动。她认为，新中国联邦人是热爱和平、善良的中国人，不等同于中国共产党。 Nicole继续传达新中国联邦救人的正道主义理念，而中共是一个不顾老百姓死活的独裁政权时，这位来自德国的年轻女士，与Nicole同声喊出：Take down the CCP。**
+文字版原文：[超过40万的黑客志愿者帮助乌克兰](https://gnews.org/zh-hans/2129934/)
 
-发稿：Daxia
-
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
