@@ -2,31 +2,37 @@
 ---
 
 
-## 2022/03/08 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2137849/)
+## 有声|妇女节当天世界为铁链女发声
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2138057/)
 
-1. 3月7日，陕西西安，市民面对再次因疫情被封锁的小区，只能无奈感叹。
-2. 3月5日，湖北武汉。中共政府采用连坐的疫情管理方式，一人不做核酸检测，全楼栋就会全员持续被关禁闭。引导百姓互斗是中共惯用手段。
-3. 3月6日，广东深圳。为了上班，市民们每日都会如此，被迫奔跑在核酸检测的路上。疫情让政府的权力无限放大。
-4. 3月6日，广东深圳疫情下“尽责”的工作人员，10步一岗哨防止百姓翻墙逃出。中共政府永远热衷建墙围困百姓。
-5. 3月7日，广东深圳一核酸检测的现场，做核酸检测的百姓比春运时火车站的人都多。
-6. 中共国内招临时工面试现场，名为检查面试者四肢是否健全，实则只是想挑选顺从、忍耐力高的面试者。
-7. 3月6日，贵州黔东南。市民吐槽修路后却人为添加障碍物，使得腿脚不便者无法通行。
-8. 3月7日，中共国内被压榨的货车司机常态，运输货物需要自己无偿替货主卸货(或给卸货工人好处费)，几近成为了行业的潜规则。
-9. 3月5日，吉林辽源，一餐厅食品卫生问题被曝光。店员从清洗抹布的脏水桶内捞出餐具漏勺，仅擦拭后即放在了桌子上。
-10. 3月4日，为了禁止百姓燃烧秸秆，吉林通化市快大茂镇政府再现雷人标语。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月8日国际妇女节当天，郭文贵先生在盖特平台上发布了歌曲《锁链梦》作为最特别的礼物，送给全天下的女性同胞。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-12.jpg)
+与此同时，墙内关注“锁链女”事件的民众也在盖特和其他社交媒体平台上为这些受害女性发声：有网友展示了自制的标语牌，其上写着锁链女那句被世界遗弃的悲凉语句，以及“关注女性儿童，关注未来”的呼吁；还有相关的歌曲唱出了民众希望救援这些受害女性的诉求。此外，有位作家发表文章称，她尝试佩戴了两个小时的自制锁链后，已经让她无法呼吸，但“锁链女”却被铁链禁锢了24年，这一难以承受的苦痛让这位作家潸然落泪。另有上海地区的学生身缠锁链作为行为艺术，向公众揭示“锁链女”事件。
+
+另一方面，锁链女的事件也在国际上引起了重大关注：近日，国际品牌在巴黎时装周上让模特戴着锁链走秀，表达出对锁链女的声援。
 
 
-* * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+文字版原文：[妇女节当天世界为铁链女发声](https://gnews.org/zh-hans/2132835/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-编辑：【英国伦敦喜庄园编辑部】
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
