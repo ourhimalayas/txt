@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 3:08 AM (UTC)`
+
+【Ukrainian Rescue】03/09/22 The schedule of the free chartered rescue flights and the rescue site from the New Federal State of China and the Rule of Law Foundation.<br/><br/>【乌克兰救援】03/09/22新中国联邦和法治基金乌克兰救援行动的免费撤离专机计划安排和站点设置<br/><br/>
+![img](https://media.gettr.com/group20/getter/2022/03/10/03/bb50f761-824d-fb8f-62d9-82d1ca1931d2/out.jpg)
+
+---
+
 `@miles 3/10/2022 2:42 AM (UTC)`
 
 3月9号：乌克兰协会发出新中国联邦在波兰🇵🇱对乌克兰队救援信息，对我们在乌克兰🇺🇦战场对乌克兰妇女儿童的救援有巨大的帮助，希望大家广泛转发．救人一命．胜造七级浮屠。<br/><br/>【悉尼的乌克兰协会已经把救援信息放上他们网站首页了🌻🌻🌻🌻🌻🌻 】<br/><br/>https://www.hromada.org.au/
@@ -146,13 +153,6 @@
 
 【Ukraine Rescue】03/08/22 David talks to a couple(Chinese husband/Ukrainian wife)  that were rescued by NFSC and ROLF at a bus hub Krakow, Poland: all we want is to save the lives of our fellow Chinese, regardless of their political views.<br/><br/>【乌克兰救援】03/08/22 大卫在克拉科夫汽车站和一对被新中国联邦和法治基金救援的中乌夫妇交谈：我们只想救助中国同胞，无论政治观点。<br/>
 ![img](https://media.gettr.com/group41/getter/2022/03/09/12/704e7c13-140c-08da-0628-f34f93f5a4fa/out.jpg)
-
----
-
-`@miles 3/9/2022 12:24 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导
-![img](https://media.gettr.com/group37/origin/2022/03/09/12/1a708eec-ba0b-14e7-2f4b-3ddf6b18b8d5/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

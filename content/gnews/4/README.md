@@ -2,28 +2,34 @@
 ---
 
 
-## 普大帝沦为地痞，竟多次暗杀泽伦斯基
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2134887/)
+## 大直播后记：新中国联邦前线战友最帅
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2134964/)
 
-撰稿：东京樱花团/知了知了
+#### 整理：Anita、Lucy Liu
+编辑：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/普大帝沦为地痞，竟多次暗杀泽伦斯基.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2FDDFE%2Fproduction%2F_101203865_putin23mar18afp.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fworld-44029265&amp;tbnid=sStGv6pfHZxBVM&amp;vet=12ahUKEwjLhIG19rn2AhUNyioKHZe6C44QMygCegUIARC_AQ..i&amp;docid=kJGLrImjmEQL2M&amp;w=640&amp;h=360&amp;q=%E6%99%AE%E4%BA%AC&amp;ved=2ahUKEwjLhIG19rn2AhUNyioKHZe6C44QMygCegUIARC_AQ)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-13.png)图片来源：雅典娜农场设计组（614）
 
-俄罗斯入侵乌克兰后，乌克兰总统泽伦斯基多次在镜头前表示，他是俄军抓捕及猎杀的头号目标，也时不时传出有俄军试图暗杀他的消息。一名泽伦斯基最亲近的幕僚透露，泽伦斯基总统自开战以来，已经成功躲过十几次暗杀。
 
-根据英媒《镜报》报导，一名泽伦斯基的幕僚波多利亚克表示，前阵子有消息说总统遭到3次暗杀，事实是已经遭到了十多次暗杀，“我们持续在掌握消息，像有些（暗杀）组织一直想混进政府部门”、“我们有一个非常强大的情报和反情报网络，所有的组织、集团都在路上被清算。”
+说实话,今天2pack、法图麦丹尼尔、Allen，这些男人出现在镜头，我是完全不知道的，甚至有点震惊。说实在话，你们比在任何环境下直播都帅。你们的脸色，是你们真实的自己，你们男人的形象。这真地给梳了辫子那么多年，被称做东亚病夫的，我们中国的男人，在精神上和身体上，出了个最好的榜样。
 
-先前曾经传出有2个不同的组织被派遣去暗杀泽伦斯基，其中一个是俄罗斯雇用的瓦格纳佣兵集团，另一个则是车臣特种部队，不过2个组织的行动均被乌克兰挫败，甚至有一支车臣特种部队小队被直接歼灭。
+头两天看到大卫，文戈在前线，今天看到你们，真的是太棒了。兄弟姐妹们，你们今天真的太帅了。我也看到我们这正义小Sara。你看这个小女人啊，个子跟我母亲几乎一样高，但是那个力量巨大。希望正义小Sara未来能生出像我这样的儿子出来。这小家伙太可爱了。她母亲非常愿意让她上前线啊。
 
-俄入侵乌克兰已进入第14天，乌军众志成城万众一心抵抗俄侵略军，仍掌握首都基辅的控制权，第2大城哈尔科夫的乌军也在持续抵抗，相持之下，俄军消耗巨大，难以承受战争开销。普大帝敢冒天下之大不韪暗杀乌克兰总统泽伦斯基，也侧面说明了普大帝面临巨大的内外压力，必须快速结束乌克兰战争。一旦战争进入僵持阶段，俄罗斯必定内外交困，普大帝或被内部干掉。乌克兰人民顽强的坚守必将成为俄罗斯帝国的坟场，普大帝的刑场。
+你们看到大卫—铁血组成员，这几天我看着大卫最起码瘦了5磅，还有后边很多战友，我们的阿炳，阿文。大卫兄弟，你们目前看来已经代替了红十字会了。这帮红十字会就是骗子，骗钱。我们是最大的，最牛的。
 
-信息来源：
+刚才有人给我打电话，问：“Miles，你这个法治基金，法治社会在这儿。是不是你们的法治社会？”我说：“当然是我们的了。”他还给我拍了个照片。就在你们旁边一个朋友，他是英国的，英国国家新闻中心的，刚才给你们拍照。他说：“这是不是你们的人呢？”我说：“当然是我们的人了。”他们很惊讶，他说：“现在这里最重要的焦点中的焦点就是这个法治基金、法治社会，新中国联邦啊！ ”
 
-[烏克蘭總統幕僚爆料：澤倫斯基被暗殺「至少十幾次」](https://www.ettoday.net/news/20220310/2204890.htm)
+参考资料：郭文贵先生2022年3月9日大直播
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+发布*：*Frank2021
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

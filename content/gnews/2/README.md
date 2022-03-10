@@ -2,28 +2,68 @@
 ---
 
 
-## 俄妄称美石油禁运为宣战　拜登中东商讨被拒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2134909/)
+## 2020年3月9日到2022年3月9日共产党还能喘息几天
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2134985/)
 
-撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2022/03/第三道大门-400x225_副本.jpg)
+郭文贵先生在[2022年3月9日 文贵大直播：是谁黑掉乌克兰救援邮件官网；是谁暂禁郭先生油管上传视频；什么力量封杀乌克兰救援信息；《铁锁梦》创作及推出后感受](https://gettr.com/streaming/pz1ocoe7cb)直播00:18:31:01时间点提到：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄妄称美石油禁运为宣战　拜登中东商讨被拒.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fthumbor.ftacademy.cn%2Funsafe%2F634x357%2Fpicture%2F7%2F000138227_piclink.jpg&amp;imgrefurl=http%3A%2F%2Fcn.ft.com%2Finteractive%2F64260&amp;tbnid=QM-yPcqyV-dupM&amp;vet=12ahUKEwjb4cH2_bn2AhVUNuwKHe1SD-gQMygpegUIARDFAg..i&amp;docid=ZRC8-pw7exo_yM&amp;w=634&amp;h=357&amp;itg=1&amp;q=%E4%BF%84%E7%BD%97%E6%96%AF%E7%9F%B3%E6%B2%B9%E7%A6%81%E8%BF%90&amp;ved=2ahUKEwjb4cH2_bn2AhVUNuwKHe1SD-gQMygpegUIARDFAg)
+[今天特别高兴，今天是三月九号，三月九号是2022年和2020的三月九号，大家还记得当年发生什么事情？大家去想想当时我在哪直播。]
 
-美国总统拜登9日上午宣布，禁止俄罗斯石油、煤炭及相关产品进口。根据美国CNN报导，俄罗斯克里姆林宫发言人佩斯科夫9日表示，“毫无疑问，美国已经向俄罗斯宣战，他们正在发动了这场战争，这是事实。”并称“俄罗斯将会做‘最符合我们利益’的事情”。
+那么2020年3月9日七哥在哪里直播呢？
 
-拜登9日宣布，禁止俄罗斯的石油、煤炭进口，锁定俄国2大经济命脉展开打击，英国随后也宣布跟进制裁，今年底前逐步停止进口俄罗斯石油和石油产品，持续就俄国无端和无理对乌克兰发动战争追责。
+以下为2020年3月9日七哥直播的视频——
 
-另据《华尔街日报》透露，拜登在宣布禁止进口俄石油、煤炭前，曾经试图打电话给沙特阿拉伯、阿联酋，想要讨论稳定国际油价议题，不过两国领导人均拒接电话。
+郭先生在直播中提到：[这是啥情况啊？又熔断又脆断。亚洲、欧洲、美国都来了，华尔街还有这所谓的这些贵族们、大佬们、盗国贼们欺压老百姓欺压了几十年了，骗那么多钱，助纣为虐培养了共产党的这个吸血机。现在该到这帮王八蛋买单的时候了。]
 
-郭文贵先生在3月9日的大直播里透露，中共将于3月底至4月，在中东引发能源战争。本次沙特和阿联酋拒接拜登总统电话，或为此事埋下伏笔。
+[这还都没开始呢，兄弟姐妹们这才哪到哪呀？得折腾几回、几个起伏，把共产党身上的几根儿，本来就是一个鸡，一个落汤鸡，长了几根毛。当自己是凤凰了共产党，还想统治全世界，把毛给你摘了，让你看看你自己再给你搁个镜子，摆你前面，让你照照，共产党。照完以后你再看看你还欺压老百姓、杀香港同胞、欺骗全世界。后面的鞭炮看到没有，听到鞭炮声了吗？高兴不？我今天晚上放烟火，今天晚上在船上大放烟火。]
 
-信息来源：
+郭文贵先生在2022年3月9日的大直播中特意提到2020年3月9日的直播，通过回看2020年3月9日的直播并结合灭共第三道大门已经打开的情况，我们可以大胆分析一下，结下来会发生哪些大事——
 
-[克里姆林宫：禁运俄石油「美国已宣战」　拜登打给沙乌被拒接](https://www.ettoday.net/news/20220310/2204902.htm)
+1、香港港币跌破点；
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+2、香港的A股休市；
+
+3、香港的恒生休市；
+
+4、港币、人民币停止交易；
+
+5、中共党卫军出现在南海、东海；
+
+6、上海股市、深圳股市、香港股市关闭；
+
+7、美国对病毒来自中共没有任何怀疑，并出第一份公告；
+
+8、美国停掉中共国的SWIFT系统；
+
+根据以上情况建议墙内同胞战友们赶紧进行喜币KYC，因为在接下来当中共国所有支付系统都瘫痪的时候，只有H-Pay可以让墙内战友实现支付转账和采购保命物资，余日不多，且行且珍惜！
+
+（文章内容仅代表作者个人观点）
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

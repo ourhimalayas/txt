@@ -2,67 +2,27 @@
 ---
 
 
-## 千年一叹
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2134705/)
+## IMF批准14亿美元紧急贷款给乌克兰支撑经济
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2134755/)
 
-**作者：**小儿
-**编辑：**blame
+发布 / 2022年3月10日 9:43 AM
+采集：玫瑰新闻组
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/endwillcome.png)雅典娜设计组（Rosie Lee）
+![IMF指俄罗斯入侵乌克兰对当地造成严重的人道苦难，预估乌国今年将陷入深度衰退。（法新社档案照片）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/2022-03/files-somalia-imf-economy-politics-aid-175425.jpg?VersionId=8_xtJN_k_8cAzx0uwOi8irJQCSgELXRL&amp;itok=fHSkeiYW)IMF指俄罗斯入侵乌克兰对当地造成严重的人道苦难，预估乌国今年将陷入深度衰退。（法新社档案照片）
 
+国际货币基金组织（IMF）批准14亿美元（约19亿新元）紧急贷款给乌克兰支撑该国经济。
 
-求仙也好，问道也罢
-原来人们苦求的长生
-不过是在一呼一吸之间
+据彭博社报道，IMF指俄罗斯入侵乌克兰对当地造成严重的人道苦难，预估乌国今年将陷入深度衰退。IMF在声明中说，上述贷款源自快速融资工具（Rapid Financing Instrument），意味着无需顾及借贷国家的经济情况。
 
-秦皇也好，汉武也罢
-只是往日神往的风流
-也只寄于茶余饭后之间
+IMF说，俄乌战事开打以来近两周，已有超过200万难民逃离，乌克兰当地主要设施被大规模毁坏。这场战事带来极其严重的经济结果，令乌克兰经济增长前景充满不确定性。
 
-流年也好，今昔也罢
-曾经浩荡千年的历史
-无声穿梭钟表滴答之间
+IMF总干事格奥尔基耶娃在声明中说：“俄罗斯军事入侵乌克兰，必须为所造成的巨大人道和经济危机负责。生命的悲惨牺牲，大量难民涌现，以及设施和生产能力受到大规模毁坏，都对造成严重的人道苦难，并将引致乌克兰今年陷入深度衰退。融资需求量大且紧急，并将随着战争持续而显著提高。”
 
-草芥也好，天命也罢
-繁华虚掩埋藏的罪恶
-终将昭彰天地人世之间
+新闻链接：
+[IMF批准14亿美元紧急贷款给乌克兰支撑经济](https://www.zaobao.com.sg/realtime/world/story20220310-1250809)
 
-逝者也好，来者也罢
-伪善共产深植的邪恶
-早已冠绝前尘后世之间
-
-粉红也好，韭菜也罢
-天地初生赋予的良知
-悄然锁于无知愚昧之间
-
-故乡也好，异国也罢
-同片星空众人的身体
-无辜困于病毒疫苗之间
-
-东方也好，西方也罢
-恶意的潘多拉盒子
-致你我于害与被害之间
-
-律师也好，法官也罢
-良善期盼苦寻的正义
-公然毁于媒体金钱之间
-
-冬去也好，春来也罢
-指尖滑过叠叠的黄卷
-默默逝于青灯苦叹之间
-
-罢了！
-收拾心绪，振奋精神，跟随战神而起！
-我们的战斗，一旦开始，永不停息！
-
-*发布：翼族*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+审核校对：Barry Jack
+上传排版：V在途中
 
  
 
