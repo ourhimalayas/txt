@@ -2,27 +2,29 @@
 ---
 
 
-## 俄罗斯提出反制裁措施
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2139429/)
+## 有声|Coinbase表明支持对俄制裁，封锁2.5万个俄罗斯加密货币地址
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2139620/)
 
-翻译/整理： 意大利罗马达芬奇农场  ZQ
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+Coinbase法务长格雷瓦尔表示，制裁对国家安全及阻吓非法侵略至为关键，Coinbase承诺遵守当局颁布各项经济制裁，并重申基于加密货币可追踪原则，可能会使打击非法账户变得更加容易。不过，Coinbase并没有进一步透露涉事帐户被关闭的具体时间，以及有多少帐户与当前的制裁直接有关。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1128.jpg)
+早前，Coinbase、币安及Kraken等加密货币巨头先前回绝了乌克兰政府要求，完全封锁俄罗斯账户。币安行政总裁赵长鹏给出的理由是，加密货币市场规模不足以让俄罗斯这样的大国用来突破经济封锁。因此，到目前为止，还是有相当一部分的俄罗斯公民暂时没有被封锁的风险。
 
+文字版原文：[Coinbase表明支持对俄制裁，封锁2.5万个俄罗斯加密货币地址](https://gnews.org/zh-hans/2133269/)
 
-莫斯科宣布在年底前禁止200多种外国制造的产品和设备出口。
-该清单包括以前从48个国家进口到俄罗斯的货物和设备，包括欧盟国家和美国。
+音频处理：Fei797
+发稿：Fei797
 
-俄罗斯周四宣布对200多种外国制造的产品和设备实施出口禁令，直到今年年底，这是俄罗斯对反制裁的一部分回应。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-该措施涉及以前从国外进口到俄罗斯的货物和设备。
-“俄罗斯总理米修斯丁签署的一项命令说：”该清单包括技术、通信和医疗设备、车辆、农业机械和电气设备–总共有200多种商品。
-该命令说：”这项措施对于提供俄罗斯市场的稳定性是必要的。
-
-🔗 [俄罗斯提出反制裁措施](俄罗斯禁止出口，反击制裁)
-
-编辑校对发表： Shuizhuyu
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

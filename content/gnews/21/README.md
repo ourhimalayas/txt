@@ -2,29 +2,21 @@
 ---
 
 
-## 有声|Coinbase表明支持对俄制裁，封锁2.5万个俄罗斯加密货币地址
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2139620/)
+## 批评亚伦•罗杰斯没有接种新冠疫苗的教练得了血栓之后，两个脚趾截肢
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2139659/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-Coinbase法务长格雷瓦尔表示，制裁对国家安全及阻吓非法侵略至为关键，Coinbase承诺遵守当局颁布各项经济制裁，并重申基于加密货币可追踪原则，可能会使打击非法账户变得更加容易。不过，Coinbase并没有进一步透露涉事帐户被关闭的具体时间，以及有多少帐户与当前的制裁直接有关。
+#### 翻译                          意大利达芬奇农场                    小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-10-alle-18.40.00.png)图片来源：eventiavversinews.it
+杰克逊州立大学教练迪昂•桑蒂斯透露， 他在经历了三个具有生命危险的血栓后接受了左脚两个脚趾的截肢手术。2021年11月，桑德斯批评亚伦•罗杰斯（Aaron Rodgers）决定不接种新冠疫苗， 桑蒂斯说：“你是领袖，你的团队中的大多数人，85%或90%都接种了疫苗，”
 
-早前，Coinbase、币安及Kraken等加密货币巨头先前回绝了乌克兰政府要求，完全封锁俄罗斯账户。币安行政总裁赵长鹏给出的理由是，加密货币市场规模不足以让俄罗斯这样的大国用来突破经济封锁。因此，到目前为止，还是有相当一部分的俄罗斯公民暂时没有被封锁的风险。
+桑蒂斯在密西西比州的一家医院住院三周，被切除了左脚的大脚趾和第二脚趾。
 
-文字版原文：[Coinbase表明支持对俄制裁，封锁2.5万个俄罗斯加密货币地址](https://gnews.org/zh-hans/2133269/)
+桑德斯在轮椅上度过了2021年赛季的最后一段时间，当时诊断结果是血栓，他有膝盖以下截肢的风险。桑蒂斯说“ 最难的是你曾经是个运动员”，“现在你甚至不知道你是否还能走路，你只是感到疼痛，你只是想出院， 你只是想出去”。桑蒂斯对《今日美国》报记者说：“这是一个漫长的旅程，但是我在这儿，我很感恩 。”
 
-音频处理：Fei797
-发稿：Fei797
+原文链接：[https://www.eventiavversinews.it/lallenatore-che-ha-criticato-aaron-rodgers-per-non-aver-ricevuto-il-vaccino-ha-avuto-due-dita-amputate-a-seguito-di-coaguli-di-sangue/](https://www.eventiavversinews.it/lallenatore-che-ha-criticato-aaron-rodgers-per-non-aver-ricevuto-il-vaccino-ha-avuto-due-dita-amputate-a-seguito-di-coaguli-di-sangue/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+编辑、上传： Xiao  baige
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

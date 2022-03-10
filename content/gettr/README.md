@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 10:09 PM (UTC)`
+
+3/9/2022 Miles Guo: There is no doubt that Taiwan, Tibet, and Xinjiang will be independent. Xi’s days will end up in an extremely painful way with numerous Chinese people following him to the graves. Himalaya Coin will undergo a small yet qualitative change in two weeks, and there will be a piece of shocking news about it coming up in five to six weeks.<br/><br/>3/9/2022 文贵直播：台湾、西藏和新疆的独立已毫无悬念；习的时代将带走很多中国人并以极其痛苦的方式终结；喜币在两周后将有小的质的改变并且在5到6周后会有惊天的消息<br/>
+![img](https://media.gettr.com/group6/getter/2022/03/10/22/7f82c370-c693-b57c-a66c-4c850d44cbf3/out.jpg)
+
+---
+
+`@miles 3/10/2022 10:02 PM (UTC)`
+
+The New Federal State of China and Rule of Law Foundation would like to find the boy in the video and his family, and we are willing to provide the support and assistance they need.<br/>Please contact our 24-hour helpline<br/><br/>新中国联邦及法治基金希望寻找视频中的小朋友及其家人，我们愿意为他们提供所需要的支援和救助。请联系我们24小时救助热线<br/><br/>Нова Федеральна Держава Китаю та Фонд Верховенство Права хотіли би знайти хлопчика на відео та його сім'ю, і ми готові надати їм необхідну підтримку та допомогу.<br/>Зверніться до нашої цілодобової гарячої лінії за адресою：<br/><br/>+1 720-657-6776 <br/>+1 719-224-4232<br/>+48 508-532-712 <br/>+48 508-531-518
+![img](https://media.gettr.com/group20/getter/2022/03/10/22/3ba87e08-1fe5-79a0-19f7-5579382eb73c/out.jpg)
+
+---
+
+`@miles 3/10/2022 9:56 PM (UTC)`
+
+【Ukraine Rescue】03/10/22 Many international rescuers who moved by NFSC members’s international spirit volunteered to help us setting up the  Ukraine Rescue  Station in Medyka, Poland <br/><br/>【乌克兰救援】03/10/22 很多国际救援人员被新中国联邦志愿者的精神所感动，协助我们快速搭建起了梅迪卡的救援站。
+![img](https://media.gettr.com/group50/getter/2022/03/10/21/1aacf217-6084-97d2-a339-5fb687b40c1c/out.jpg)
+
+---
+
 `@miles 3/10/2022 9:49 PM (UTC)`
 
 【Ukraine Rescue】03/10/22 NFSC Ukraine Rescue  Station in Medyka, Poland has attracted not only a large number of refugees but also international media attention due to its well-equipped facilities.<br/><br/>【乌克兰救援】03/10/22 新中国联邦乌克兰救援行动在波兰梅迪卡的救援站因设施完备，不仅吸引了大批难民，也赢得了国际媒体的关注
@@ -139,26 +160,6 @@
 
 【Ukrainian Rescue】03/09/22 The CCP Pseudo-Government Launches Shameless Hacking and Smear Campaign Against the NFSC and ROL Foundation's Ukraine Rescue Operation<br/><br/>【乌克兰救援】03/09/22 中共伪政府对新中国联邦和法治基金乌克兰救援行动发动无耻的黑客攻击和抹黑<br/><br/>
 ![img](https://media.gettr.com/group19/getter/2022/03/10/06/3f45b4b3-2067-bc87-69ce-090f6312db0c/out.jpg)
-
----
-
-`@miles 3/10/2022 5:49 AM (UTC)`
-
-3月10号：这个世界好人比坏人多……邪不压正，不能因为你块头大．就欺负弱小，不能因为你强大．你就可以欺负任何人，乌克兰的精神将改变这个已经被金钱搞乱的世界．被极权统治的世界．穷凶极恶的共产党还会继续放毒的！他们正在准备再一次的放毒．最大的可能是在中东开始。现在已经开始制造舆论环境．找好替罪羊了。【七哥您好! 不知道这是不是要再次发动病毒战的前兆。先栽赃，再散播病毒。🙏🙏🙏🙏】
-![img](https://media.gettr.com/group21/getter/2022/03/10/05/2cda1f82-8ae8-b159-1b4c-eb2d399184b3/34e8190979e8eecaad0b5724addf6aff.jpg)
-
----
-
-`@miles 3/10/2022 3:08 AM (UTC)`
-
-【Ukrainian Rescue】03/09/22 The schedule of the free chartered rescue flights and the rescue site from the New Federal State of China and the Rule of Law Foundation.<br/><br/>【乌克兰救援】03/09/22新中国联邦和法治基金乌克兰救援行动的免费撤离专机计划安排和站点设置<br/><br/>
-![img](https://media.gettr.com/group20/getter/2022/03/10/03/bb50f761-824d-fb8f-62d9-82d1ca1931d2/out.jpg)
-
----
-
-`@miles 3/10/2022 2:42 AM (UTC)`
-
-3月9号：乌克兰协会发出新中国联邦在波兰🇵🇱对乌克兰队救援信息，对我们在乌克兰🇺🇦战场对乌克兰妇女儿童的救援有巨大的帮助，希望大家广泛转发．救人一命．胜造七级浮屠。<br/><br/>【悉尼的乌克兰协会已经把救援信息放上他们网站首页了🌻🌻🌻🌻🌻🌻 】<br/><br/>https://www.hromada.org.au/
 
 ---
 

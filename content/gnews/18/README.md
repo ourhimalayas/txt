@@ -2,20 +2,41 @@
 ---
 
 
-## 批评亚伦•罗杰斯没有接种新冠疫苗的教练得了血栓之后，两个脚趾截肢
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2139659/)
+## 有声|乌克兰救援3月8日信息
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2139701/)
 
-#### 翻译                          意大利达芬奇农场                    小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-10-alle-18.40.00.png)图片来源：eventiavversinews.it
-杰克逊州立大学教练迪昂•桑蒂斯透露， 他在经历了三个具有生命危险的血栓后接受了左脚两个脚趾的截肢手术。2021年11月，桑德斯批评亚伦•罗杰斯（Aaron Rodgers）决定不接种新冠疫苗， 桑蒂斯说：“你是领袖，你的团队中的大多数人，85%或90%都接种了疫苗，”
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美东时间3月8日晚间，获得了几条新中国联邦和法治基金乌克兰救援行动的最新消息。
 
-桑蒂斯在密西西比州的一家医院住院三周，被切除了左脚的大脚趾和第二脚趾。
+截至当日晚间6点，乌克兰首都基辅有大量人群正在徒步逃离，而当地苏梅仍有两百余华人留学生。据苏梅官方电报群消息指出，乌克兰副总统确认目前新中国联邦对苏梅华人留学生的第二批救援行动已经开始。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-4.jpg)
+目前哈尔科夫、布尔塔瓦、科列门秋格、基洛夫格勒几个城市都有火车可以抵达利沃夫。
 
-桑德斯在轮椅上度过了2021年赛季的最后一段时间，当时诊断结果是血栓，他有膝盖以下截肢的风险。桑蒂斯说“ 最难的是你曾经是个运动员”，“现在你甚至不知道你是否还能走路，你只是感到疼痛，你只是想出院， 你只是想出去”。桑蒂斯对《今日美国》报记者说：“这是一个漫长的旅程，但是我在这儿，我很感恩 。”
+俄军坦克在基辅附近击毁一辆疏散难民的大巴车，导致包括司机在内的3人受伤。同时俄军对苏梅也进行了空袭。
 
-原文链接：[https://www.eventiavversinews.it/lallenatore-che-ha-criticato-aaron-rodgers-per-non-aver-ricevuto-il-vaccino-ha-avuto-due-dita-amputate-a-seguito-di-coaguli-di-sangue/](https://www.eventiavversinews.it/lallenatore-che-ha-criticato-aaron-rodgers-per-non-aver-ricevuto-il-vaccino-ha-avuto-due-dita-amputate-a-seguito-di-coaguli-di-sangue/)
+为扩大救援行动，新中国联邦已在波兰新建了更多的救助点。
 
-编辑、上传： Xiao  baige
+
+
+文字版原文：[乌克兰救援3月8日信息](https://gnews.org/zh-hans/2135111/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

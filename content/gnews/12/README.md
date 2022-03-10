@@ -2,31 +2,22 @@
 ---
 
 
-## 最大的谎言
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2139836/)
+## 俄罗斯承认在乌克兰使用了温压武器
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2139881/)
 
-文编：Hima
-听写：文龙
-视频：七哥
+翻译/整理: 萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Immagine-8.jpg)图片来自repubblica.it
+现在普通平民在战争面前所面临的风险越来越大，在致命的集束炸弹之后，一种可怕的武器正在乌克兰进入战场:温压导弹，它甚至能够杀死那些被保护在房屋或掩体中的人。爆炸具有破坏氧气的效果，导致致命的空气爆炸和毁灭性的大火，甚至在避难所也可能蔓延开来。克里姆林宫承认它在乌克兰城市使用了这种类型的火箭。
 
-2022-03-06直播摘录
+它们也被称为“真空炸弹”，可以在非常高的温度下产生爆炸，受害者有感觉空气被排出的感觉。专家解释说它们会造成严重的创伤，特别是对肺部。它们释放的气溶胶很容易穿透所有封闭的结构，比如用来攻击掩体、防御工事和隧道。
 
-最大的谎言，现在给你最便宜的，最盈利的，超过毒品的叫做～冠状CCP病毒疫苗，还要你的命。如果以上这事情是我编的，是我们胡说八道，你就远离我们，去信那些比爹娘还亲的党去，不要信我们，不要听我的。我千言万语无法说出我内心的这种几天来世界局势和中国人民和乌克兰救援。还有现在中国面临的这种感觉，这种悲剧。我们活每一天，每一秒，我都在感谢上天。我每次提到的时候都在问上天，你为什么给我这么多责任，给我们这么多机会，让我们那么多战友没有打疫苗？再说一遍，没打疫苗，我们每天都像过年一样活着。我说的五月份，你们现在明白吗？现在是三月份，我在过去一年，你们无数次问我，七哥，啥时候停止疫苗，我说2020年年底不超过三月份，2022年我说对了吗？疫苗灾难是五月份对吗？
+德国军队在第二次世界大战中使用了第一代温压弹药。苏联军队在阿富汗战争的最后阶段，特别是在车臣战争的最后阶段使用了它们。五角大楼在打击圣战恐怖主义把一些温压炸弹投放到托拉博拉岛最后一个基地组织抵抗组织的洞穴中，企图杀死奥萨马·本·拉登。2017 年 4 月，特朗普总统下令将其投放到阿富汗的 ISIS 基地。现在的克里姆林宫已经拥有世界上最大的非核爆炸装置，它重 7.1 吨，引发的爆炸相当于 44 吨 TNT。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+国际特赦组织的 Riccardo Noury 称这是一种战争罪。无论武器的类型，以及是否有禁止它的公约，在城市环境中使用它，就有可能杀死在地下避难的居民，平民很可能成为受害者。
 
-**关注我们**
+原文链接: [https://www.repubblica.it/esteri/2022/03/02/news/ucraina\_russia\_armi\_termobariche\_siria-339992481/](https://www.repubblica.it/esteri/2022/03/02/news/ucraina_russia_armi_termobariche_siria-339992481/)
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+责任编辑/发布:意大利达芬奇农场   萧亦
 
  
 
