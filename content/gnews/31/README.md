@@ -2,10 +2,10 @@
 ---
 
 
-## 【乌克兰救援】新中国联邦救援行动的计划安排和站点设置
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2137331/)
+## 日本NHK在乌边境的报道中新中国联邦旗帜成最美背景
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2137369/)
 
-【乌克兰救援】03/09/22新中国联邦和法治基金乌克兰救援行动的免费撤离专机计划安排和站点设置
+03/08/2022 新中国联邦乌克兰救援行动成功在波兰梅迪卡设置了救助站。日本NHK在乌克兰边境的现场报道中，新中国联邦旗帜成最美背景。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

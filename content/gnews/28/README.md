@@ -2,10 +2,10 @@
 ---
 
 
-## 日本NHK在乌边境的报道中新中国联邦旗帜成最美背景
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2137369/)
+## 新中国联邦乌克兰救援行动得到了西方人关注
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2137388/)
 
-03/08/2022 新中国联邦乌克兰救援行动成功在波兰梅迪卡设置了救助站。日本NHK在乌克兰边境的现场报道中，新中国联邦旗帜成最美背景。
+03/08/2022 英国小提琴老师汉娜：为新中国联邦在乌克兰救出96个孩子并将送往巴塞罗那的旅途祈祷。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
