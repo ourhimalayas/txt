@@ -2,12 +2,24 @@
 ---
 
 
-## 班农战斗室志愿者正在群阅辉瑞文件：36名儿童参试验
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2137527/)
+## 美官方文件披露辉瑞疫苗的致命副作用
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2137838/)
 
-03/09/2022 班农战斗室志愿者正在群阅辉瑞文件，已有发现浮出水面：36名儿童参与了这些试验，其中包括一个两个月大的婴儿；中共病毒疫苗可能导致中共病毒感染；以及非常严重的肌肉疼痛等。
+采编/编译撰稿：加拿大温哥华杨帆农场 – 薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-982.png)图片来源：riotimesonline.com
+据[里约时报]3月7日报道，美国【食品和药物监管局】试图隐瞒辉瑞疫苗数据的要求被法院驳回后，被迫解封了有关其新冠病毒疫苗临床试验数据的文件。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+报道称，这份长达5.5万页的秘密文件显示，辉瑞疫苗大约有1300种副作用，并详细记录了近16万个疫苗伤害病例。其中包括：脑血栓，心。co’m肌炎，消化和呼吸系统病变，糖尿病，脊髓炎，面瘫和死胎等严重威胁到人体健康的致命疾病。
+
+对此，儿童健康保护组织负责人指出，这份披露辉瑞疫苗真相的报告所造成的影响如重磅炸弹，并应立即终止任何类似疫苗的接种使用。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源：[Pfizer Covid vaccine has 1,291 side effects reveals official documents](https://www.riotimesonline.com/brazil-news/modern-day-censorship/pfizer-covid-vaccine-has-1291-side-effects-reveals-official-documents/)
+
+
 
  
 

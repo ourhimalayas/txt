@@ -2,24 +2,46 @@
 ---
 
 
-## 美官方文件披露辉瑞疫苗的致命副作用
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2137838/)
+## 乌克兰战争：随着阿联酋支持供应增加油价暴跌超17%
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2138061/)
 
-采编/编译撰稿：加拿大温哥华杨帆农场 – 薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-982.png)图片来源：riotimesonline.com
-据[里约时报]3月7日报道，美国【食品和药物监管局】试图隐瞒辉瑞疫苗数据的要求被法院驳回后，被迫解封了有关其新冠病毒疫苗临床试验数据的文件。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image001-2.jpg)自俄罗斯上个月入侵乌克兰以来，油价一直在上涨。照片：123RF
+3月10日据RNZ报道，在阿拉伯联合酋长国表示支持增加产量后，油价暴跌。在强大的石油卡特尔欧佩克成员国阿联酋发表声明后，国际基准布伦特原油一度下跌超过17%。
 
-报道称，这份长达5.5万页的秘密文件显示，辉瑞疫苗大约有1300种副作用，并详细记录了近16万个疫苗伤害病例。其中包括：脑血栓，心。co’m肌炎，消化和呼吸系统病变，糖尿病，脊髓炎，面瘫和死胎等严重威胁到人体健康的致命疾病。
+由于俄罗斯入侵乌克兰引发的供应中断，油价连续数周飙升。
 
-对此，儿童健康保护组织负责人指出，这份披露辉瑞疫苗真相的报告所造成的影响如重磅炸弹，并应立即终止任何类似疫苗的接种使用。
+不断上涨的物价给世界各地的家庭带来了财务压力。
 
-校对编辑：硫酸羟氯喹64
+国际能源署(IEA) 最近也同意从国家战略储备中释放6000 万桶石油，但这一举措不足以应对近期油价上涨。
 
-发稿：青青
+该机构周三表示，可能会进一步开发石油储备。
 
-新闻来源：[Pfizer Covid vaccine has 1,291 side effects reveals official documents](https://www.riotimesonline.com/brazil-news/modern-day-censorship/pfizer-covid-vaccine-has-1291-side-effects-reveals-official-documents/)
+亚洲股市跟随美国和欧洲股市上涨。日本日经指数早盘上涨逾3%，香港恒生指数上涨2.3%。
 
 
+
+[【援引连结】](https://www.rnz.co.nz/news/world/463075/war-in-ukraine-oil-prices-plunge-as-uae-supports-supply-boost)
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

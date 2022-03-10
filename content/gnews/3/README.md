@@ -2,22 +2,48 @@
 ---
 
 
-## 伊拉克人抗议食品价格上涨
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2137861/)
+## 乌克兰妇产医院遭到空袭17人受伤
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2138117/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-10-223014.jpg)
-据半岛新闻报道，俄罗斯和乌克兰是小麦和葵花籽油的主要生产国，这些商品被中东国家大量进口。但近期伊拉克贫困的南部地区爆发了抗议活动，原因是官员将食品价格上涨归咎于乌克兰的冲突。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image002-2.jpg)
+据美联社于在周三报导，俄罗斯空袭摧毁了港口城市马里乌波尔的一家妇产医院。乌克兰官员说，这次袭击造成至少17 人受伤。
 
-大约一个星期以来，当地市场上食用油和面粉的价格飙升，政府官员试图通过各种声明和措施来解决日益增长的愤怒。内政部宣布已逮捕31人，他们被指控 “提高食品价格和虐待公民”。星期三，纳西里亚的一名抗议者谴责 “操纵价格的商人的贪婪”。
+当马里乌波尔建筑群被一系列爆炸击中时，地面震动了一英里多，这些爆炸炸毁了窗户，并且，摧毁了建筑物的大部分前部。在院子里，一个爆炸坑至少延伸了两层楼深。
 
-黎巴嫩也由于经济的挑战燃料和小麦短缺加剧。
+世界卫生组织表示，自战斗开始以来，已确认有18 起针对医疗设施和救护车的袭击事件，造成了10 人死亡。目前尚不清楚该数字是否包括对妇产医院的袭击。
 
-七哥说道“中东地区会有动荡”，伊拉克已经开始了。接下来，会不会更多国家出现同样的问题而导致动荡。
+美国国务院表示，美国国务卿布林肯在与乌克兰国务卿德米特罗·库莱巴的电话中谴责了俄罗斯的“不合情理的袭击”。
 
-**新闻来源：**[https://www.aljazeera.com/news/2022/3/9/iraq-protest-food-prices-russia-ukraine-war](https://www.aljazeera.com/news/2022/3/9/iraq-protest-food-prices-russia-ukraine-war)
+泽连斯基办公室表示，在为期9 天的城市围困中，约有1,200 人死亡。
 
-[https://www.aljazeera.com/news/2022/3/8/lebanese-fearful-as-fuel-and-wheat-shortage-deepens](https://www.aljazeera.com/news/2022/3/8/lebanese-fearful-as-fuel-and-wheat-shortage-deepens)
+自普京的军队入侵以来，据信已有数千人丧生，包括平民和士兵。联合国估计有超过200 万人逃离乌克兰，这是自二战结束以来欧洲最大的难民外流。
+
+随着莫斯科军队加强对城市的轰炸，俄乌危机可能会变得更加糟糕。
+
+
+
+[【援引连结】](https://apnews.com/article/russia-ukraine-kyiv-europe-2bed71c00916d44ea951c5809b446db3)
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

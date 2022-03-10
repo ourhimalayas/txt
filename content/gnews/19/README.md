@@ -2,46 +2,50 @@
 ---
 
 
-## 中共黑客利用钓鱼软件帮助俄罗斯入侵乌克兰
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2137620/)
+## 欧盟新增俄罗斯160人入黑名单
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2137917/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1638315122177-7a23fd4dd0af45c4b548f1afb2f2c326-800x468-1.jpeg)
+3月10日，欧洲联盟（EU）宣布扩大对俄罗斯制裁，今天将160名俄国寡头与政坛人士增列至黑名单，另也锁定加密资产与海事部门祭出限制措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+27国组成的欧盟先前已以明斯克当局支持克里姆林宫的攻击为由，将白俄罗斯3家银行逐出环球银行金融电信协会（SWIFT）支付系统。
 
-根据谷歌TAG和网络安全公司Proofpoint的研究，中共国黑客加入了针对俄罗斯入侵乌克兰和相关难民危机的攻击。
+欧盟执行委员会主席范德赖恩（Ursula von der Leyen）推文说：“我们正在更进一步收紧制裁网，回应俄罗斯对乌克兰的军事侵略。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/China-has-an-interest-in-Ukraine-with-Russia-being-a-key-ally-1.jpg)
+一份声明指出，俄罗斯上议院有146人被增至黑名单，14名克里姆林宫相关寡头人物与其亲属也被列入资产冻结与签证禁令黑名单。
 
-谷歌周一报道称，该公司网络威胁分析小组(TAG)发现，一个名为Mustang Panda的中共国黑客组织，以与俄罗斯入侵乌克兰有关的消息为诱饵，针对欧洲（尤其是外交）实体发送带有恶意附件的网络钓鱼电子邮件。例如名称为“欧盟与乌克兰边境的情况.zip”的附件（Situation at the EU borders with Ukraine.zip）。
+受冲击的包括亿万富翁梅里尼钦科（Andrei Melnichenko）、俄罗斯航空公司（Aeroflot）执行长波卢博亚里诺夫（Mikhail Poluboyarinov）、钢管大亨斯维塔科夫（Dmitry Pumpyansky），以及化工鉅子马泽平（Dmitry Mazepin）和他身为一级方程式（Formula One, F1）赛车手的儿子尼基塔（Nikita）。
 
-包含在这个zip附件文件中的是一个同名的（病毒或网络钓鱼）可执行文件，它是一个基本下载器，在执行时，会下载几个最终可执行文件的其它文件。
+欧盟也把俄罗斯外交部长拉夫罗夫（Sergei Lavrov）的女婿、食品零售商维诺克鲁夫（Alexander Vinokurov）列入黑名单，显示制裁范围已逐渐扩大到知名人物的亲戚。
 
-为了减轻伤害，谷哥TAG部门向有关当局通报了其调查结果，并补充说：Mustang Panda针对欧洲组织的钓鱼手法与过去经常观察到它针对东南亚目标时采用的手法有所不同。
+欧盟另扩大对加密货币的限制，以避免遭制裁的个人与公司利用加密数位系统规避制裁。
 
-与此同时，网络安全公司Proofpoint表示，它已经看到一个名为RedDelta的黑客组织最近活动有所增加，该组织以前与Mustang Panda有联系，一些研究人员认为Mustang Panda和RedDelta就是同一组黑客人员。
+针对海事部门的制裁，则将限制「航海与无线电通讯技术」出口到俄罗斯。
 
-2月28日，正当俄罗斯的炮弹如雨点般袭击乌克兰城市时，RedDelta黑客使用被黑欧洲和北约成员国外交官的电子邮件地址，向另一个国家的外交办公室发送带有恶意软件附件的电子邮件。Proofpoint没有挑明这两个被黑客的国家名字。
 
-Google和Proofpoint同时检测到这一相同的黑客活动，该钓鱼附件的标题同样为“欧盟与乌克兰边境的情况.zip”。攻击的最终目的似乎是在肉鸡（目标PC机）上启动一个名为PlugX的远程控制（访问）工具。
 
-Proofpoint还看到RedDelta黑客发送包含“跟踪像素”（自动回复）的网络钓鱼电子邮件。消息中的一个小图像告诉攻击者，钓鱼电子邮件已被打开，因此收件人可能更容易受到进一步的团体攻击。自从俄罗斯军队开始在乌克兰边境集结以来，这些黑客活动节奏，特别是针对欧洲政府的运动黑客活动，已经急剧增加。
+[【援引连结】](https://www.swissinfo.ch/chi/afp/%E6%AC%A7%E7%9B%9F%E6%96%B0%E5%A2%9E%E4%BF%84%E7%BD%97%E6%96%AF160%E4%BA%BA%E5%85%A5%E9%BB%91%E5%90%8D%E5%8D%95/47419112)
 
-连续多年针对欧洲外交实体的黑客活动表明，这属于RedDelta的任务领域。在当前欧洲的地缘政治冲突和经济动荡时期，这项针对欧洲实体的政府有组织黑客活动可能会有所增加。
+**推出问题，敲出真相，爆料在路上！**
 
-Proofpoint上周透露，与白俄罗斯有关的其他黑客，从乌克兰军方官员被黑掉的帐户发送针对难民危机的网络钓鱼电子邮件。
+**请关注和订阅我们的以下账号：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Ukrainian-government-agencies-and-cybersecurity.jpg)
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
 
-参考资料：
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
 
-[Chinese Hackers Launch Attacks On European Officials In Russia-Ukraine War](https://www.forbes.com/sites/thomasbrewster/2022/03/08/chinese-hackers-ramp-up-europe-attacks-in-time-with-russia-ukraine-war/?sh=50820ee15ee1)
+**玫瑰看新闻YOUTUBE账号**：
 
-[Warning: Hackers Are Targeting The Ukraine Refugee Crisis](https://www.forbes.com/sites/thomasbrewster/2022/03/02/warning-hackers-are-targeting-the-ukraine-refugee-crisis/?sh=6f779af87f8b)
+**玫瑰看新闻**
 
-[China Behind Another Cyber Attack in the US – Hacked Into US Computers and Networks Accessing Systems Remotely](https://www.thegatewaypundit.com/2021/04/china-behind-another-cyber-attack-us-hacked-us-computers-networks-accessing-systems-remotely/)
+**黑森林的故事**
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 
