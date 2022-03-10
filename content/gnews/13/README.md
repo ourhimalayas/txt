@@ -2,39 +2,31 @@
 ---
 
 
-## 高盛成为第一家退出俄罗斯的美国银行
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2139452/)
+## 涨的最高的和最贵的是什么？
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2139622/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+文编：Hima
+听写：Mr Hu
+视频：七哥
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2CGOJCSTRZKWFJDX7SHWNDIJKE.jpg)
+2022-03-06直播摘录
 
+就我们看完卫辉制药这个公布和法官判决，这些所有疫苗的这些所谓的癌症啊，一千多种症状啊，说我们全家扑腾扑腾全跪在那儿，给菩萨上香，我说的部级干部啊。妻子是军人，你救了我们全家，你救了我孙子，救了我孙女儿。而我们这家人家的命，随时你可以拿走，多活一天都是你的。我们旁边死多少人？我管这一摊儿，我还不知道，下面儿一告诉来，车货增加百分之几百，医院紧急死亡，心脏病，心肌炎，眼梗，心梗，各种梗。他说就我管这个领域。给李克强报告的时候，我刚要说，李克强一挥手说，回头我有事儿找你啊，有事儿找你。他说，我没理解过来，我刚到这，回头我说了，我要找你啊，我要找你。我太了解李克强了。就中国知识分子最卑鄙的一面儿，都是李克强身上都有。表面伟大，咬耳朵，录音电话，背后拉三结伙，背后说人，他都是中国知识分子的卑鄙的共产党的教育的结果。我说我太了解他了，他说七哥，到最后下来我才知道，他怕我说出我这里死人的真相。兄弟姐妹们，你觉得一个国家一个民族打这么多人？远在几千公里之外的老朋友，跟你没有任何冲突，死都死在战争里，被打烂，然后自己的人天天在死，还不让说，你觉得这个政府是多么的邪恶呀。铁链女在哪儿呢？有多少个铁链女被发生了？就这样的国家，现在要宗教自由，信仰自由，然后告诉你说，你们活在中国，你就偷偷的乐吧。然后中国的官员说，让中国14亿人准点儿开锅，有饭吃，你就去感恩党吧。中国人卖的最多是什么？假药、假化肥。假食品，地沟油。然后现在是棺材。涨的最高的和最贵的是什么？火化人和墓地。
 
-图片来源：路透社
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-高盛集团 (GS.N) 周四表示，将关闭其俄罗斯业务，成为俄罗斯入侵乌克兰后第一家退出的美国主要银行，并对竞争对手施加压力。
+**关注我们**
 
-在俄罗斯受到国际制裁的情况下，西方金融机构在俄罗斯开展业务变得越来越困难，银行一直在争论是否留下。
+Discord 账号
 
-根据国际清算银行的数据，虽然欧洲银行对俄罗斯的敞口最大，但美国银行的敞口仍然很大，总计 147 亿美元。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-该银行在一份电子邮件声明中表示：“高盛正在按照监管和许可要求逐步关闭其在俄罗斯的业务。”
+Gettr 账号
 
-据一位不愿透露姓名的知情人士透露，高盛将结束这些业务，而不是立即退出，任何损失都将是“无关紧要的”。
-
-三位知情人士称，在俄罗斯上个月入侵乌克兰之后，高盛在莫斯科的大约一半员工已经或正在搬到迪拜。该银行在莫斯科有大约 80 名员工。
-
-一位消息人士称，据了解，高盛的俄罗斯负责人仍留在莫斯科。
-
-在其年度文件中，该银行披露了对俄罗斯的信贷敞口为 6.5 亿美元。
-
-高盛股价在午盘交易中下跌 2.8% 至 325.97 美元。 截至周三收盘，高盛今年已下跌12.8%。
-
-🔗
-
-[https://www.reuters.com/business/finance/goldman-sachs-exit-russia-bloomberg-news-2022-03-10/](https://www.reuters.com/business/finance/goldman-sachs-exit-russia-bloomberg-news-2022-03-10/)
-
-编辑发表： Shuizhuyu
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

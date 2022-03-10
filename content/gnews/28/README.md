@@ -2,39 +2,28 @@
 ---
 
 
-## 有声|美国小李一行到达救援前线
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2138884/)
+## 加拿大温哥华扬帆农场救援团队抵达前线
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2138959/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间3月7日晚，美国小李一行十余人到达波兰克拉科夫救援大本营。此行经过24+4小时的颠簸，集结于此。战友相见分外亲切，大家互相拥抱，有的用家乡话聊天问候，有的认出彼此是一起在SEC门口战斗过的面孔。旅途虽远，但热诚的问候和暖心的笑容一扫旅程的乏劳。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-8.30.29-PM.png)图片来源: Gettr (@pangushixun)
-大本营所在的这个酒店条件在本地来说是档次较高的。酒店坐落在一个边陲小城，且在战争时期，餐食尽管没那么丰富，但战友表示已经非常好了。
+采编撰稿：加拿大温哥华杨帆农场 – 文莱，坐看云起时
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-991.png)图片来源：GETTR
+据3月9日盖特消息，由[加拿大温哥华扬帆农场]战友们组成的[法治基金]乌克兰人道救援团队，当天已陆续抵达波兰华沙，各项救援行动正在有条不紊地按预定计划执行之中。
 
-战友大卫在交谈中说，因为这是一个国际大救援，我们根本没有经验。但是经过这么几天的磨合，在大巴接人，酒店接应方面已经顺利完善了流程，一些细节方面还有待改善。
+据悉，日前从加拿大多伦多机场出发的13位战友目前都已平安抵达华沙机场，在顺利办理完通关手续后，与当地现场负责接机的文耀战友成功汇合。此外，身处温哥华的7位飞赴前线战友，由于没有疫苗护照，未能在温哥华机场登机，而被迫辗转驱车南下入境美国至西雅图机场并最终成功登机。预计翌日将转机土耳其抵达波兰华沙。
 
-这是新中国联邦到达救援前线的第五批团队，不同的救援团队到达以后，稍作休息后，会即刻奔赴不同的救援地点。
+在此预祝[加拿大温哥华扬帆农场]前线救援团队的行动顺利，安全，成功！并敬请关注本节目对本次行动后续进展情况的及时报道。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源：
+
+[https://gettr.com/post/pz1bte9543](https://gettr.com/post/pz1bte9543)
+
+[https://gettr.com/post/pz0gn21135](https://gettr.com/post/pz0gn21135)
 
 
-
-文字版原文：[美国小李一行到达救援前线](https://gnews.org/zh-hans/2131722/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

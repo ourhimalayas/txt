@@ -2,45 +2,29 @@
 ---
 
 
-## 文贵先生盖特精要- 2022/03/10
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2139431/)
+## 有声|Coinbase表明支持对俄制裁，封锁2.5万个俄罗斯加密货币地址
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2139620/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1007.png)[盖特直播链接](https://gettr.com/post/pz8tus184b)
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+Coinbase法务长格雷瓦尔表示，制裁对国家安全及阻吓非法侵略至为关键，Coinbase承诺遵守当局颁布各项经济制裁，并重申基于加密货币可追踪原则，可能会使打击非法账户变得更加容易。不过，Coinbase并没有进一步透露涉事帐户被关闭的具体时间，以及有多少帐户与当前的制裁直接有关。
 
-- 英国战友场外交易以110美元价格成交10万币，相信会挣更多回来。但是奉劝一句–投资有风险，务必要小心。
-- 俄乌战争中，独见新中国联邦在前线搭起帐篷，积极救援从乌克兰逃出来的人。乌克兰人展现出不一样的“精气神”。
-- 欧洲福利好、气候好，造成欧洲人不思进取并且懒惰。在欧洲和美国最勤劳群体实属波兰人和乌克兰人。中共国的人勤劳却懦弱。
-- 某位在乌克兰生活几十年的朋友向七哥表示需要逃出乌克兰，只因生活周围被炸得稀烂。
-- 中共国向救出撤离人员收取高昂机票费用和隔离费用。
-- 香港经济一塌糊涂，中共出动千亿元救场，股市即将跌破二万点。香港警察感染病毒人数多，是对镇压“香港运动”的报应。
-- 中共蠢蠢欲动欲再次放毒，造成世界经济灾难。中共的作恶将被全球算账。
-- HCoin价值接近四十四美元，交易量高达二十七万。HPay（支付系统）是在中共国内部出现动乱的时候能够救命的东西，而且不收取一分费用。
-- 未接种疫苗人是幸福的一类人，接种疫苗者生活在恐慌中。希望战友们珍惜生活在海外的良好环境。中国人不接受中共代表。
-- 世界经济处于大变化中，数字货币在几个月后大变样。拜登总统首次提及美元搞数字货币化，改变先前不搞美元数字化的政策，美元是美国强大的基础。
-- 明天直播再聊。
+早前，Coinbase、币安及Kraken等加密货币巨头先前回绝了乌克兰政府要求，完全封锁俄罗斯账户。币安行政总裁赵长鹏给出的理由是，加密货币市场规模不足以让俄罗斯这样的大国用来突破经济封锁。因此，到目前为止，还是有相当一部分的俄罗斯公民暂时没有被封锁的风险。
 
+文字版原文：[Coinbase表明支持对俄制裁，封锁2.5万个俄罗斯加密货币地址](https://gnews.org/zh-hans/2133269/)
 
-*听写：call me uncle*
+音频处理：Fei797
+发稿：Fei797
 
-*校对: 乐禧禧*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
-
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
