@@ -2,31 +2,44 @@
 ---
 
 
-## 它属于我们新中国联邦的最最昂贵的资产
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2139327/)
+## 文贵先生盖特精要- 2022/03/10
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2139431/)
 
-文编：Hima
-听写：Mr Hu
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1007.png)[盖特直播链接](https://gettr.com/post/pz8tus184b)
 
-2022-03-06直播摘录
+- 英国战友场外交易以110美元价格成交10万币，相信会挣更多回来。但是奉劝一句–投资有风险，务必要小心。
+- 俄乌战争中，独见新中国联邦在前线搭起帐篷，积极救援从乌克兰逃出来的人。乌克兰人展现出不一样的“精气神”。
+- 欧洲福利好、气候好，造成欧洲人不思进取并且懒惰。在欧洲和美国最勤劳群体实属波兰人和乌克兰人。中共国的人勤劳却懦弱。
+- 某位在乌克兰生活几十年的朋友向七哥表示需要逃出乌克兰，只因生活周围被炸得稀烂。
+- 中共国向救出撤离人员收取高昂机票费用和隔离费用。
+- 香港经济一塌糊涂，中共出动千亿元救场，股市即将跌破二万点。香港警察感染病毒人数多，是对镇压“香港运动”的报应。
+- 中共蠢蠢欲动欲再次放毒，造成世界经济灾难。中共的作恶将被全球算账。
+- HCoin价值接近四十四美元，交易量高达二十七万。HPay（支付系统）是在中共国内部出现动乱的时候能够救命的东西，而且不收取一分费用。
+- 未接种疫苗人是幸福的一类人，接种疫苗者生活在恐慌中。希望战友们珍惜生活在海外的良好环境。中国人不接受中共代表。
+- 世界经济处于大变化中，数字货币在几个月后大变样。拜登总统首次提及美元搞数字货币化，改变先前不搞美元数字化的政策，美元是美国强大的基础。
+- 明天直播再聊。
 
-从普京到乌克兰去，要杀掉一个犹太人的总统，去抓纳粹这种荒唐的谎言，跟共产党今天这种谎言有没有异曲同工之妙？你见过中国人像新中国联邦这样？从我们冲到前线的每个人，他们哪一个家里缺钱，哪个不在你中国人的生活之上。他们都逃出你们的地狱几十年了，他们不缺钱，生活很自由，都拿外国护照，讲流利的中国语言。他们冲到前线有一分钱回报吗？冒着这风险？就这完全和你素不相识的人去救人。 我们不需要去救你们。不救你们，我们犯错吗？对我们拥有喜币不打疫苗的人来讲，我们是世界最高贵的民族，我们的战友每个都是大熊猫级的。我就希望他们安全，我希望他们任何人都没有事儿。我看到每个镜头的感触都不一样了，因为它属于我们新中国联邦的最最昂贵的资产。在机场，小王子，瑞秋和长岛哥的这种别离啊，这些人就是我的家人，正义小撒，一个小毛孩子，直接就冲到前面去了，她母亲跟她做出这样决定，我跟她母亲，我几次想跟她妈通个电话，我就没有通，我不知道该说什么好。你们但凡大家是人心有血液，你们想想，这些人有必要冲上前线，他们有爹有妈，有兄弟有姐妹。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+*听写：call me uncle*
 
-**关注我们**
+*校对: 乐禧禧*
 
-Discord 账号
+* * *
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-Gettr 账号
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
+
+
+
 
  
 
