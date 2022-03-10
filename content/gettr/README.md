@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 12:56 PM (UTC)`
+
+【Ukraine Rescue】03/10/2022 Volunteer Wenge Qixiong and Qingfeng distributing food, blankets and other rescue supplies to refugees at the NFSC and ROL Foundation’s rescue station in Medyka, near the border with Ukraine<br/><br/>【乌克兰救援】3月10日 文戈七雄战友和青峰战友在位于波乌边境Medyka的新中国联邦和法治基金救助站，为难民发放食物，毛毯等救援物资
+![img](https://media.gettr.com/group24/getter/2022/03/10/12/1a3723d2-f1f4-7210-3331-13cd43d98fb0/out.jpg)
+
+---
+
 `@miles 3/10/2022 12:43 PM (UTC)`
 
 【Ukrainian Rescue】03/09/22 Volunteer of NFSC & ROL Foundation Ukraine Rescue Operation interview a Germany musician who plays piano for the refugees at a rescue station in Medyka by the Ukraine/Poland border <br/><br/>【乌克兰救援】03/09/22新中国联邦和法治基金救援行动志愿者采访在乌波边境梅迪卡救助站为难民演奏的德国钢琴家<br/>
@@ -148,13 +155,6 @@
 
 3/9/2022 Miles Guo: Despite the cold weather, the fellow fighters of the New Federal State of China arrived in Medyka, Poland at the earliest time possible to help the refugees and save the world selflessly! The relief work of the New Federal State of China and the Rule of Law Foundation is respected and recognized by fellow international aid agencies!<br/><br/>3/9/2022 文贵直播：新中国联邦的战友们不顾寒冷，在第一时间到达波兰梅迪卡，无私地帮助难民和拯救世界！新中国联邦法治基金的救援工作得到了国际援助机构同仁的尊重和认可！<br/>
 ![img](https://media.gettr.com/group26/getter/2022/03/10/00/ebe0c998-921a-976b-7fc5-d5ef04c929a1/out.jpg)
-
----
-
-`@miles 3/10/2022 12:14 AM (UTC)`
-
-3/9/2022 Miles Guo: the NFSC Ukraine rescue team has received great assistance from local Ukrainian and Polish volunteers; the rescue team has been granted the filming permit from local Polish government; Kamel told his story of his participation in the rescue team as a Ukrainian volunteer<br/><br/>3/9/2022  文贵直播：新中国联邦乌克兰救援团队得到了乌克兰和波兰本地志愿者的大力帮忙；救援队获得当地拍摄和采访许可；乌克兰志愿者Kamel讲述他参加到救援队的经历
-![img](https://media.gettr.com/group31/getter/2022/03/10/00/c8c6d234-b907-22bd-4f23-fcd30279dd5c/out.jpg)
 
 ---
 
