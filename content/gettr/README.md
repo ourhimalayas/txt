@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 9:36 PM (UTC)`
+
+【Ukraine Rescue Operation by #NFSC and #ROLF】🇺🇦🆘📣 <br/><br/>Mar.9, German musician #DavideMartello played a piano solo 🎹at the #Medyka refugee camp in #Poland for all the donors of the #RuleofLawFoundation <br/><br/>#UkraineRescue<br/>#iStandWithUkraine 🇺🇦<br/><br/>【 #新中国联邦乌克兰救援行动】🇺🇦🆘📣 <br/><br/>3月9日德国音乐家 #达维德马特洛 🎹 在波兰#Medyka 难民营特别为所有 #法治基金 #ROLF 的捐款者演奏了一首钢琴曲<br/><br/>#乌克兰人道主义救援🇺🇦<br/>#法治基金 <br/>#新中国联邦
+![img](https://media.gettr.com/group18/getter/2022/03/10/21/f65d1d0b-b21b-d93e-0622-fe77d8f1cdd0/out.jpg)
+
+---
+
 `@miles 3/10/2022 3:39 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
@@ -152,13 +159,6 @@
 
 2022.03.09 晚《新中国联邦新闻访谈》国内外华人灾难显现；俄乌战争对华人的影响；新世界被迫诞生
 ![img](https://media.gettr.com/group20/origin/2022/03/10/02/c4ff9983-f987-0ab2-9db2-a398475f2745/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/10/2022 1:55 AM (UTC)`
-
-【Ukrainian Rescue】03/09/22: Fellow Fighter of NFSC:  Having witnessed our excellence in the rescue work here, the local on-site manager in Poland arranged the best spot for us to set up the tent near the bus pick-up point. They were outraged by the response that they couldn’t even get a single tent from the local Red Cross. The real rescuers are people from the New Federal State of China.<br/><br/>【乌克兰救援】03/09/22新中国联邦战友：看到我们的救援行动非常的棒，波兰当地负责人将最好的地方安排给我们搭帐篷。当地红十字会连个帐篷都不给他们提供，他们非常的气愤。我们新中国联邦才是真正的救助。
-![img](https://media.gettr.com/group23/getter/2022/03/10/01/c4712556-d09c-3125-0ac3-7e574e81fd27/out.jpg)
 
 ---
 
