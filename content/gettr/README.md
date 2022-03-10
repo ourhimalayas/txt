@@ -17,6 +17,29 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 12:20 PM (UTC)`
+
+3月10号：尊敬的战友们好．我发出乌克兰悉尼协会关于．新中国联邦拯救乌克兰儿童的置顶的报道后，中国共产党疯狂的给乌克兰政府施压，随后悉尼乌克兰协会的救援信息就删除了．共产党是多么的怕我们！五年前所有欲强加给我们的恐惧．正在百倍万倍的轮回给共产党！共产党，你完了👉中南坑的老杂毛们……你们彻底的完了！你们会非常极端的痛苦的遭受……我们对你的折磨👉😹😹😹😹😹😹😹【悉尼乌克兰协会的救援信息已经删除，ccp这么快就施压了。】
+![img](https://media.gettr.com/group46/getter/2022/03/10/12/0588a48e-00e2-fea6-320e-78133fb307ce/2f87a8be68007b9051f483a5ebc5b624.jpg)
+
+---
+
+`@miles 3/10/2022 12:19 PM (UTC)`
+
+【Ukraine Rescue】03/08/2022  Interviewing Peter, a German doctor from International medical team: I hope all the Chinese people will be like the people of the New Federal State of China, for their views and actions.  China and the traditional culture were destroyed by CCP. CCP doesn’t represent China, nor the Chinese people and the culture. <br/><br/>【乌克兰救援】03/08/2022 采访国际医疗救援队的德国医生彼得：希望以后所有的中国人都能够像此时此刻他看到的新中国联邦人一样。中国和中国的传统文化就是被共产党破坏了，中共不代表中国，更不代表中国人和中国人的文化。
+![img](https://media.gettr.com/group50/getter/2022/03/10/12/f534a8e3-1fec-ddb1-7480-ee17457b163e/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@20minfocus 3/10/2022 11:45 AM (UTC)`
+
+小提琴老师 #Hannah 听到100名儿童在西班牙安顿好之后，刚成为母亲的她，再次为 #新中国联邦人正义的救援行动 感动，送给新中国联邦所有参与救援的志愿者一首曲子。<br/><br/>#Hannah -a violinist has just become a mother. After she heard that 100 children were settled safely in Spain, she was moved again by the #NFSC’s brave rescue action and contributed a violin piece she played to all the volunteers who have participated in the rescue action.
+![img](https://media.gettr.com/group37/getter/2022/03/10/11/e38505fe-a452-a616-04b4-5cd9157f7ea3/out.jpg)
+
+---
+
 `@miles 3/10/2022 11:03 AM (UTC)`
 
 【Ukrainian Rescue】03/09/22 NFSC & ROL Foundation Ukraine Rescue Operation set up a rescue station in Medyka by the Ukraine/Poland border, and has successfully rescued hundreds of refugees out of Ukraine<br/><br/>【乌克兰救援】03/09/22新中国联邦和法治基金救援行动在乌波边境梅迪卡设立救助站并已成功营救出数百位难民<br/><br/>
@@ -86,13 +109,6 @@
 
 ---
 
-`@miles 3/10/2022 2:14 AM (UTC)`
-
-【Ukraine Rescue】03/08/2022  Interviewing Peter, the translator of NFSC frontline rescue team: I hope all the Chinese people will be like the people of the New Federal State of China, for their views and actions.  China and the traditional culture were destroyed by CCP. CCP doesn’t represent China, nor the Chinese people and the culture. <br/><br/>【乌克兰救援】03/08/2022 采访新中国联邦前线救援团队翻译，彼得：希望以后所有的中国人都能够像此时此刻他看到的新中国联邦人一样。中国和中国的传统文化就是被共产党破坏了，中共不代表中国，更不代表中国人和中国人的文化。
-![img](https://media.gettr.com/group10/getter/2022/03/10/02/75659867-6bb7-ff1f-e076-f428e991aa6e/out.jpg)
-
----
-
 `@miles 3/10/2022 1:55 AM (UTC)`
 
 【Ukrainian Rescue】03/09/22: Fellow Fighter of NFSC:  Having witnessed our excellence in the rescue work here, the local on-site manager in Poland arranged the best spot for us to set up the tent near the bus pick-up point. They were outraged by the response that they couldn’t even get a single tent from the local Red Cross. The real rescuers are people from the New Federal State of China.<br/><br/>【乌克兰救援】03/09/22新中国联邦战友：看到我们的救援行动非常的棒，波兰当地负责人将最好的地方安排给我们搭帐篷。当地红十字会连个帐篷都不给他们提供，他们非常的气愤。我们新中国联邦才是真正的救助。
@@ -139,20 +155,6 @@
 
 2022.03.09 NFSC News    NFSC rescued more than 200 people from Ukraine； Information of NSFC’s Ukraine Humanitarian Rescue
 ![img](https://media.gettr.com/group36/origin/2022/03/09/23/c901f1fb-7d02-c544-d71c-8b645000a81b/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/9/2022 11:00 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 2022-03-09
-![img](https://media.gettr.com/group8/origin/2022/03/09/22/5dc6b4d2-60d2-0c1c-47ac-41c2a2c4078c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/9/2022 10:50 PM (UTC)`
-
-3/9/2022 Miles Guo: The CCP will start taking action around the world between late March and April. Xi Jinping will take a chance by using the Middle East to provoke an energy war to bring down the world economy and attack Taiwan. The CCP will resort to more ruthless means, but it will also perish sooner. The New Federal State of China will clean up the battlefield.<br/><br/>3/9/2022 文贵直播：中共将在3月底到4月在世界上开始行动，习将冒险一搏，用中东挑起能源战争打垮世界经济并攻打台湾，中共将采取更狠的手段，但也会更快灭亡，新中国联邦将打扫战场<br/>
-![img](https://media.gettr.com/group5/getter/2022/03/09/22/51f3e37e-1541-bba7-9ee3-49606ac1bb56/out.jpg)
 
 ---
 
