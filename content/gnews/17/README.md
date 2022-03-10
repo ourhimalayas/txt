@@ -2,47 +2,20 @@
 ---
 
 
-## 乌克兰前官员部长持枪加入防卫军 称：为了不让子孙上战场
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2135110/)
+## 乌克兰的18家医疗设施在战争期间被袭击
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2135212/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+#### 翻译/撰稿：zzballack
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-4.jpg)图片来源：华尔街日报
+据《新闻极限》（Newsmax）3月9日报道，世卫组织总干事谭德赛3月9日在一场媒体简报会上声称，经确认，在俄罗斯入侵乌克兰期间，发生了18起针对医疗设施、工作人员和救护车的袭击。这些袭击已造成10人死亡、16人受伤。
 
+谭德赛说：“这些袭击摧毁了整个社区的医疗服务。自俄入侵以来，有200多万人逃离了乌克兰，其中大多数是妇女和儿童。难民存在体温过低、冻伤、呼吸道疾病、缺乏对心血管疾病和癌症的治疗以及心理健康等问题。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+世卫组织人员向欧洲各国的乌克兰难民提供精神健康和社会心理支持，并向乌克兰提供了81公吨的物资。谭德赛对此表示感谢，并补充说，世卫组织正在努力建立一个渠道为乌克兰的卫生设施提供物资。谭德赛另外还呼吁俄罗斯应致力于和平解决这场危机，并允许有需求的人能安全、不受阻碍地获得人道主义援助。
 
-
-
-乌克兰前基础建设部长欧梅利安加入乌克兰国土防卫军，他表示战争让他变得不再宽容，但他没有选择，如果不是他上战场，未来就是他的孩子或孙子上战场。
-
-欧梅利安早年在乌克兰外交、环保及财政部门任职，曾被派驻维也纳。2016～2019年，他出任基础建设部长，展开了一系列交通基础建设改革。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-7.jpg)
-2月底俄乌开战后，欧梅利安不顾家人和朋友反对，加入乌克兰的民兵组织「国土防卫军」，据报导指出这只防卫军有一半的人从来没有拿过枪。
-
-他指控俄军弹炮无差别攻击平民，摧毁住宅区，并切断食物和水供应，造成数百平民丧生。但他有信心乌克兰终将获胜，因为乌克兰的领袖、军队和人民会持续战斗，绝对不会缴械投降。
-
-参考链接：
-[烏克蘭前部長持槍死守基輔 為了不讓子孫上戰場【專訪】](https://www.cna.com.tw/news/aopl/202203060114.aspx)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编：zhong
-编辑/审核：飞虹，zhong
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+新闻来源：[WHO: 18 Health Facilities Attacked in Ukraine Leaving 10 Dead](https://www.newsmax.com/newsfront/who-ukraine-russia/2022/03/09/id/1060445/)
 
  
 

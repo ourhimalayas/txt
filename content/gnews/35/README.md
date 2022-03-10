@@ -2,67 +2,49 @@
 ---
 
 
-## 乌克兰大救援3.9.2022 阻绝人道主义救助，中共犯下严重国际法罪行
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2133635/)
+## 全球疫情疫苗数据更新（澳洲各州第三针比例的比较）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2133956/)
 
-作者：Jeremiah 
-校对：心声
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-09-at-3.15.26-PM.jpeg)图片：Vanguard
-俄乌战争之中，新中国联邦通过法治基金开展了人道主义救援，遭到了中共的各种阻拦和破坏。中共为维护自己的政权和到达欺骗宣传目的，对新中国联邦救援工作进行诋毁和抹黑，破坏救援邮件和联系方式，并在社交媒体上删除发布救援相关的账号和信息，阻断被救民众和营救团队的联系。目前，仍有多名中国学生、工人和商人在乌克兰境内无法得到救助，很多人在地下室躲避轰炸，正面临缺水缺食物的严重人道主义灾难。
+整理：枳实
+美工：精灵蓝
 
-剑桥大学出版社在2010年发布相关国际组织法律研究显示，**中共恶意阻止法治基金在战争地区的人道主义救援，造成众多人员无法得到救助的恶行，已构成“阻绝人道主义救援”（Denial of Humanitarian Assistance），严重触犯国际法**。“阻绝人道主义救援”主要构成了以下罪行：
-
-- **战争罪（****War Crime****）**
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/image-731.png)图片：雅典娜农场设计组 精灵蓝
 
 
-《国际刑事法院规约》和1977年《第一附加议定书》将战争罪定义为任何违反战争法规和惯例的行为。在法庭判例中，各个国家将较为严重的违反国际人道的行为纳入了战争罪的范围中。在国际性武装冲突中严重违反国籍人道法的各种行为中，包括：
+雅典娜疫情更新（2022年 3月9日）
 
-1. **以断绝平民粮食作为战争方法，使平民无法取得其生存所必需的物品，包括阻碍提供救济物品。**
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
+全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-25.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/10-18.png)
+上图是澳大利亚各州第三针比例的比较，从图中可以看出，新州的比例最低，而西澳比例最高。众所周知，[中共对西澳的渗透十分严重](https://gnews.org/zh-hans/1954243/)，[西澳州长是一位著名的舔共州长](https://gnews.org/zh-hans/1354048/)，他实施疫苗强制政策也最为严苛，不仅[率先强制第三针](https://gnews.org/zh-hans/1782372/)，甚至到了不允许未接种疫苗的父母探望其生病的孩子的地步。
 
-该行为受到《第二附加议定书》和习惯国际法的禁止 。中共主动通过信息战和技术干扰，阻拦法治基金在运送物资、车辆运送、人员安置和媒体传播的行为，构成了“阻碍提供救济物品”的犯罪行为，并形成了“使平民无法取得企生存所必需的物品”的恶劣后果。
+[2022年3月9日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月9日改进.pdf)
 
-《联合国宪章》及相关文献中，明确规定了在人道主义救援中，非政府组织的合法存在和重要意义。法治基金及志愿者，在执行人道援助时，遭受中共及网络水军的各类攻击，也违背了这一条。
+数据来源：
 
-**2. 以依照《联合国宪章》执行人道援助或维持和平的所涉人员或物体为攻击目标，如果这些人员或物体有权得到国际人道法给予平民和民用物体的保护。**
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-根据《国际刑事法院规约》和相关规定，在国际武装冲突中，如果一个行为主体有意采取某行为，导致受保护人员因某一行为或疏忽而死亡，则构成**蓄意杀害和谋杀**（willful kill and murder），属于“战争罪”的范畴。这里的受保护人员包括在战争中的平民、记者和战俘等人员。
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-**二、危害人类罪 （****Crime Against Humanity****）**
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-“危害人类罪”是指在广泛或有系统地针对任何平民人口进行的攻击中，在明知这一攻击的情况下，作为攻击的一部分而实施的一种行为。其中与此次事件相关的至少有以下两点：
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-1. **违反国际法基本规则，监禁或以其他方式严重剥夺人身自由****;  **
+[covidlive.com.au](https://covidlive.com.au/)
 
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
 
-据报道，中共对部分转移到罗马尼亚的留学生使用监禁和限制人身自由的方式，禁止其活动并组织，防止其其接触到新中国联邦的营救信息和消息，违反了国际法基本规则。
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-- **基于政治、种族、民族、族裔、文化、宗教、第**** 3 ****款所界定的性别或公认为国际法不容的其他理由，对任何可以识别的群体或集体进行的迫害，且与本款提及的任何一种行为有关，或与灭绝种族罪行或战争罪行有关****; **
+发布：tianzhihuan
 
-
-中共针对在乌克兰战区的华人，通过社交媒体的控制、官方媒体的宣传、使领馆的直接干预，阻碍其信息渠道，并散布人员已经全部获救等虚假消息，致使大量留学生和侨民无法获得人道主义救助，使整个在乌华人随时死亡和人道主义灾难的境地，属于对“可识别群体和集体进行的迫害”。
-
-**三、种族灭绝罪****(Genocide)**
-
-联合国《防止及惩治灭绝种族罪公约》中对种族灭绝的定义是，蓄意全部或局部消灭某一民族、人种、种族或宗教团体，包括犯有下列行为者：
-
-(a) 杀害该团体的成员；
-(b) 致使该团体的成员在身体上或精神上遭受严重伤害；
-(c) 故意使该团体处于某种生活状况下，以毁灭其全部或局部的生命；
-
-目前中共阻碍救援的作为，使得部分在乌华人群体在轰炸中死去，躲避战乱的民众长期被困在极端恶劣的环境之中，遭受身体和精神的伤害，并可能造成大面积的人员死亡，是属于对在乌华人团体的种族灭绝罪。
-
-**中共“阻绝人道主义救援”的行为，违反了国际法，践踏了人类的尊严和基本权益，并造成了恶劣的后果和影响，当接受法律的制裁，并受到世界的唾弃。**
-
-此外，以上的罪行的主体和实施人密切相关：凡是参与“阻绝人道主义救援”行为的个人，都涉嫌违反了战争罪、危害人类罪和种族灭绝罪，将为其行为负责。因此，无论是中共政府官员、网络水军和伪类，还是服从中共命令的国内外企业，在法律的面前一定要考虑清楚，自己的不人道和拥护中共的行为，不仅可能会给他人带来灾难，也会将自己推向战后的审判，接受法律的审判和人类的唾骂。
-
-参考来源：
-
-[https://legal.un.org/ilc/reports/2016/chinese/chp4.pdf](https://legal.un.org/ilc/reports/2016/chinese/chp4.pdf)
-
-[https://ihl-databases.icrc.org/customary-ihl/chi/docindex/v1\_rul\_rule156](https://ihl-databases.icrc.org/customary-ihl/chi/docindex/v1_rul_rule156)
-
-[https://www.icrc.org/en/doc/resources/documents/article/other/57jq32.htm](https://www.icrc.org/en/doc/resources/documents/article/other/57jq32.htm)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
