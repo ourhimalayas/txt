@@ -2,38 +2,24 @@
 ---
 
 
-## 有声|妇女节当天世界为铁链女发声
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2138057/)
+## 樱花FM|日本170多位诺贝尔奖获得者联名谴责俄罗斯入侵乌克兰
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2138139/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月8日国际妇女节当天，郭文贵先生在盖特平台上发布了歌曲《锁链梦》作为最特别的礼物，送给全天下的女性同胞。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-12.jpg)
-与此同时，墙内关注“锁链女”事件的民众也在盖特和其他社交媒体平台上为这些受害女性发声：有网友展示了自制的标语牌，其上写着锁链女那句被世界遗弃的悲凉语句，以及“关注女性儿童，关注未来”的呼吁；还有相关的歌曲唱出了民众希望救援这些受害女性的诉求。此外，有位作家发表文章称，她尝试佩戴了两个小时的自制锁链后，已经让她无法呼吸，但“锁链女”却被铁链禁锢了24年，这一难以承受的苦痛让这位作家潸然落泪。另有上海地区的学生身缠锁链作为行为艺术，向公众揭示“锁链女”事件。
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/xWsTAyVQ1tfReZPng1-oZ17BNKwAOhvnl0JDlUzMjbxFE8t0Y-5xM9XZJIV0jRKgEUH46btlZzjiO7XapJbRr2Lr-iwqAbrNw-A27SBMFBO7x8i0GydH_M1BytUEskfhQ3JExhST)
+170多名诺贝尔奖获得者联合发表公开信，谴责俄罗斯入侵乌克兰。
 
-另一方面，锁链女的事件也在国际上引起了重大关注：近日，国际品牌在巴黎时装周上让模特戴着锁链走秀，表达出对锁链女的声援。
+信中批评“俄罗斯总统普京等人发动的战争是不公正、残酷、毫无结果的”，呼吁停止和撤回入侵。对此表示赞同的白川先生在接受采访时表示，“这是一场单方面的战争，平民伤亡和破坏的可怕局面让我深感悲痛。”
 
+利根川进（1987年生理医学奖）、山中伸也（2012年同奖）、大村聪（第15届同奖）、大隅良典（2016年同奖）、本庶佑（第18届同奖）、野依良治（2001年化学奖） 、天野浩（2014 年物理奖）、梶田隆章（2015 年奖）等日本科学家加入了支持者的行列。
 
+随着2000年获得化学奖的白川秀树和筑波大学名誉教授等几位日本获奖者的加入，支持者的人数不断增加。
 
-文字版原文：[妇女节当天世界为铁链女发声](https://gnews.org/zh-hans/2132835/)
+文字版原文：[日本170多位诺贝尔奖获得者联名谴责俄罗斯入侵乌克兰](https://gnews.org/zh-hans/2110001/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

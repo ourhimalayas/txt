@@ -2,30 +2,37 @@
 ---
 
 
-## 拜登宣布禁止进口俄罗斯石油
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2137857/)
+## 有声|妇女节当天世界为铁链女发声
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2138057/)
 
-采编：加拿大温哥华杨帆农场 –风云小哥
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月8日国际妇女节当天，郭文贵先生在盖特平台上发布了歌曲《锁链梦》作为最特别的礼物，送给全天下的女性同胞。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-12.jpg)
+与此同时，墙内关注“锁链女”事件的民众也在盖特和其他社交媒体平台上为这些受害女性发声：有网友展示了自制的标语牌，其上写着锁链女那句被世界遗弃的悲凉语句，以及“关注女性儿童，关注未来”的呼吁；还有相关的歌曲唱出了民众希望救援这些受害女性的诉求。此外，有位作家发表文章称，她尝试佩戴了两个小时的自制锁链后，已经让她无法呼吸，但“锁链女”却被铁链禁锢了24年，这一难以承受的苦痛让这位作家潸然落泪。另有上海地区的学生身缠锁链作为行为艺术，向公众揭示“锁链女”事件。
 
-翻译编辑：加拿大温哥华杨帆农场 –文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-983.png)图片来源：NBC News
-
-
-据英国《独立报》3月8日报道，美国总统拜登当天宣布，将禁止俄罗斯石油产品进口到美国市场，以此断绝俄总统普京入侵乌克兰的资金来源。
-
-据悉，该项与欧盟密切协商后做出的，包括对俄罗斯石油、天然气和能源进口的禁令得到了各界广泛支持。同时，该决定还禁止美国对俄罗斯能源部门进行新的投资。
-
-报道称，美国是能源出口国，国内石油供给量足以支持该禁令的实施 。但由于欧洲严重依赖俄罗斯能源进口，而无法立即效仿美国执行相同措施。因此，欧盟转向其他国家能源供给势在必行。
-
-目前，石油和天然气出口是俄罗斯主要财政收入来源，该禁令无疑将进一步孤立该国经济，并将加速该国陷入对乌克兰的战争泥潭中。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：晨熹 青青
-
-原文链接：https://www.independent.co.uk/news/world/americas/us-politics/biden-russia-oil-ban-ukraine-us-b2031052.html
+另一方面，锁链女的事件也在国际上引起了重大关注：近日，国际品牌在巴黎时装周上让模特戴着锁链走秀，表达出对锁链女的声援。
 
 
+
+文字版原文：[妇女节当天世界为铁链女发声](https://gnews.org/zh-hans/2132835/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

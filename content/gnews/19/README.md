@@ -2,25 +2,35 @@
 ---
 
 
-## 中共国新增确诊病例再创下两年来新高纪录
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2138233/)
+## Hcoin To the Moon上线98天第35次位列新加坡iTunes摇滚音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2138409/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+3/10/2022 郭文贵先生的歌曲Hcoin To the Moon上线98天第35次位列新加坡iTunes摇滚音乐榜首
 
-据《大纪元》3月10日报道，在中共长期清零的政策下，中共国的本土疫情却一直没有断过，今年以来，确诊病例不减反增，近日的新增确诊病例再创下两年来新高纪录，且本土疫情的源头至今没有查出。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-111.jpg)图为2022年1月21日黄浦区昭通路居民区的情况（图片来自STF/AFP via Getty Images）
-据中共卫健委3月9日的数据显示，中共国内地单日累计新增确诊病例528例，其中新增本土确诊病例402例，新增本土无症状感染者435例，涉及吉林、广东、山东、江苏、上海、浙江等二十多个省市。相比7日单日累计新增确诊病例526例，再创近两年来单日新增确诊病例最高纪录。
+* * *
 
-由于中共习惯隐瞒疫情真相，实际的感染人数可能比官方公布的数据还多。
+[【PDF 下载】Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-报道称，自2019年年末湖北武汉爆发中共病毒以来，中共采取了严厉的“清零”政策，之后又采取“动态清零”。中共一度向外界宣传其清零政策如何成功，然而中共国的本土疫情却一直没有断过，而且一些本土确诊者的感染源仍然是谜。
+* * *
 
-参考链接：
-1.[https://www.epochtimes.com/b5/22/3/10/n13636238.htm](https://www.epochtimes.com/b5/22/3/10/n13636238.htm)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_102.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
 
-素材采编：幽蘭自得
-总编：老孙
-校对发布：爱放飞
+
+[【PDF 下载】Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-10-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
