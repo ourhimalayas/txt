@@ -2,30 +2,35 @@
 ---
 
 
-## 法治基金救援已成功营救数百名战争难民
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2138854/)
+## 有声|新中国联邦前线救援团队已从乌克兰战区救出超过200人
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2138835/)
 
-采编撰稿：加拿大温哥华杨帆农场 – 晨熹
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+郭文贵先生在最新一则盖特中表示，新中国联邦的多位爆料革命战友，远赴乌克兰参与前线救援，截至目前，已经救出上百名乌克兰儿童，以及包括中国人、乌克兰人在内的各国人士总共两百余人。
 
+郭先生透露，在昨天的一场救援行动中，中共大使馆编造谎言，成功误导了十几位已经坐上救援巴士的中国人弃车而逃，郭先生对此深表遗憾，并怒斥中共为达目的，全然不顾错过救援的中国人可能面临的安全风险，简直视人命如草芥。
 
+郭先生强调，新中国联邦的这次救援行动，最重要的目的就是救人，证明中国人不同于共产党，中国人不但不会祸乱世界，还愿意为实现这个世界的和平美好身体力行。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-4.jpg)
+文字版原文：[新中国联邦前线救援团队已从乌克兰战区救出超过200人](https://gnews.org/zh-hans/2130078/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-990.png)图片来源：GETTR
-据3月9日盖特来自乌波边境救援现场的消息，法治基金乌克兰人道救援行动已成功营救出100多名华人同胞，350多位乌克兰人和其他国籍的战争难民，其中大部分都是妇女和儿童。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-为保障现场救援顺利进行，无数[新中国联邦]战友们义无反顾，高效组织并分别负责起现场救援、难民接待、多语种翻译、运输协调、后勤保障、救援信息传送和现场报道等多项任务。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-对此，救援团队在乌波边境麦迪卡市专门设置了营救中心，为流离失所的难民免费提供食物、热水和御寒物资。此外，还在克拉科夫市的酒店设置了临时接待中心，为被营救出的民众提供30天免费食宿。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-据悉，自本月15日起，法治基金将提供免费撤离至美加和东南亚的航班。由于[新中国联邦]是目前为数不多参与现场救援的唯一华人组织，因而备受世界瞩目并吸引了来自全球各大媒体的争相追踪和报道。
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源：[https://gettr.com/streaming/pz0aqdd74c](https://gettr.com/streaming/pz0aqdd74c)
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
