@@ -2,47 +2,25 @@
 ---
 
 
-## 随着川普对拙劣的发布做出反应，数字世界收购暴跌
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2133739/)
+## 乌克兰官方最新立场：中立可以谈 寸土不会让
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2133874/)
 
-***评论：**用户追逐前总统川普的热情转移到社交媒体应用程序Truth Social，但川普本人甚至还没有在上面发贴，尽管报告显示有100多万的用户等待注册，如果不能尽快的解决用户等待问题，可能会使潜在客户流失*。
+文 / 李月霞
+发布 / 2022年3月10日 12:26 AM
+采集：玫瑰新闻组
 
-据《FX Street》股市记者  2022年3月8日报道：
+![战争迫使乌克兰人逃往波兰等接壤国家。联合国估计，迄今已有多达220万人逃离乌克兰。（法新社）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/images/202203/20220310/poland-ukraine-russia-refugees-conflict-45006934.jpg?VersionId=KOSAUCFBLeEOFBLO36iHDYiC4uNoanwd&amp;itok=pLpeKJiG)战争迫使乌克兰人逃往波兰等接壤国家。联合国估计，迄今已有多达220万人逃离乌克兰。（法新社）
 
-- 纳斯达克股票代码：DWAC 在周一的交易时段下跌了 14.56%。
-- 前总统川普对*Truth Social*的启动失败感到愤怒。
-- 社交媒体平台的候补名单已达到 100 万用户。
+（早报讯）乌克兰总统泽连斯基的首席外交政策智囊表明，只要获得安全保障，乌克兰就会对讨论俄罗斯提出的中立要求持开放态度，但任何一寸领土都不会放弃。
 
+泽连斯基的副幕僚长伊霍尔·若夫克瓦（Ihor Zhovkva）周三（3月9日）接受彭博电视采访时说：“当然，我们为外交解决做好准备了。”
 
-纳斯达克股票代码：DWAC 周一大幅结束了其最近 7 天的连续上涨，因为合并前的 SPAC 股票暴跌。本周开始，DWAC 股价下跌 14.56%，收于 83.34 美元。
+他说，安全保障应该由乌克兰的各邻国提供，但他对此没有详述。
 
-DWAC 的泡沫破灭了吗？很难说，但毫无疑问，以目前的价格来看，这只股票仍然被高估了。随着全球市场自由落体，周一 DWAC 也可能受到下行抛售压力的打击。投资者权衡了乌克兰的持续局势，并担心全球能源价格上涨可能会减缓经济并进一步推高通胀。
+新闻链接：[乌克兰官方最新立场：中立可以谈 寸土不会让](https://www.zaobao.com.sg/realtime/world/story20220310-1250640)
 
-前总统川普终于对他的社交媒体应用程序 Truth Social 的艰难推出进行了权衡。有报道称，有人无意中听到川普在电话中大喊缺乏积极的媒体报道和该应用程序的启动不顺利。截至上周，川普本人甚至还没有在该网站上发帖，成功进入该应用程序的用户抱怨缺乏用户参与度和过度回收的内容。川普似乎厌倦了发布，有些人甚至认为他可能会完全放弃这个项目。
-
-**DWAC 股票预测**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-924-e1646860084759.png)
-随着用户继续等待注册该应用程序的机会，报告显示候补名单已达到 100 万用户。不过，人们可能会失去耐心，因为该应用在 Apple App Store 上下载次数最多的应用中已从第 1 位跌至第 118 位。围绕该应用程序发布的整体情绪一直是负面的，这当然无济于事，这可能也会让潜在用户和股东流失。
-
-文章观点仅代表作者个人，与Gnews平台无关
-
-文章来源：[https://www.fxstreet.com/news/dwac-stock-price-digital-world-acquisition-plummets-as-trump-reacts-to-botched-launch-202203081055](https://www.fxstreet.com/news/dwac-stock-price-digital-world-acquisition-plummets-as-trump-reacts-to-botched-launch-202203081055)
-
-翻译：洛杉矶盘古农场 – Raul
-
-校对：洛杉矶盘古农场– Mike Li
-
-评论：洛杉矶盘古农场–傻小子
-
-编辑：洛杉矶盘古农场–傻小子
-
-发布：洛杉矶盘古农场–子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

@@ -2,20 +2,10 @@
 ---
 
 
-## 西媒头条 — 第186期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2133858/)
+## NFSC法治基金不论国界和民族乌克兰国际人道大救援
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2133930/)
 
-**制作：蚂蚁兄弟**
-
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220309.001.jpeg)
-
-**发稿：信心满满**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-6.jpeg)
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
