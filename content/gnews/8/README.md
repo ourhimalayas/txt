@@ -2,39 +2,30 @@
 ---
 
 
-## 有声|爱马仕、香奈儿等世界知名奢侈品牌宣布暂时关闭在俄业务
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2138696/)
+## 法治基金救援已成功营救数百名战争难民
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2138854/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据外媒3月6日的报道，爱马仕、路易·威登、卡地亚 、香奈儿以及古驰等全球知名的奢侈时尚品牌宣布，由于对欧洲目前的局势越来越担心，他们将暂停在俄罗斯的所有业务，立即生效。
-
-柏金包的制造商爱马仕和拥有卡地亚的历峰集团，是第一批宣布关闭在俄商店的时尚品牌母公司，路威酩轩集团、开云 和香奈儿随后也关闭了商店。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-3.jpg)
-香奈儿公司在媒体上发帖指出，鉴于对目前的局势越来越担心，因此决定暂时停止在俄罗斯的业务。
-
-LMVH也证实，他们在俄罗斯的124家门店将全部关闭，但他将继续支付在该国的3500名员工的工资。 开云、LMVH和世界领先的美容公司之一欧莱雅都承诺提供财政支持，帮助乌克兰难民。
+采编撰稿：加拿大温哥华杨帆农场 – 晨熹
 
 
 
-文字版原文：[爱马仕、香奈儿等世界知名奢侈品牌宣布暂时关闭在俄业务](https://gnews.org/zh-hans/2129952/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-990.png)图片来源：GETTR
+据3月9日盖特来自乌波边境救援现场的消息，法治基金乌克兰人道救援行动已成功营救出100多名华人同胞，350多位乌克兰人和其他国籍的战争难民，其中大部分都是妇女和儿童。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+为保障现场救援顺利进行，无数[新中国联邦]战友们义无反顾，高效组织并分别负责起现场救援、难民接待、多语种翻译、运输协调、后勤保障、救援信息传送和现场报道等多项任务。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+对此，救援团队在乌波边境麦迪卡市专门设置了营救中心，为流离失所的难民免费提供食物、热水和御寒物资。此外，还在克拉科夫市的酒店设置了临时接待中心，为被营救出的民众提供30天免费食宿。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+据悉，自本月15日起，法治基金将提供免费撤离至美加和东南亚的航班。由于[新中国联邦]是目前为数不多参与现场救援的唯一华人组织，因而备受世界瞩目并吸引了来自全球各大媒体的争相追踪和报道。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+校对编辑：硫酸羟氯喹64
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发稿：青青
+
+新闻来源：[https://gettr.com/streaming/pz0aqdd74c](https://gettr.com/streaming/pz0aqdd74c)
 
  
 

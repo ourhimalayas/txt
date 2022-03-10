@@ -2,40 +2,34 @@
 ---
 
 
-## 有声|前俄罗斯新闻主播谈俄罗斯的言论审查
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2138793/)
+## 中共病毒轻症同样导致大脑萎缩退化
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2138900/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-外媒3月7日消息，前俄罗斯国家电视台新闻女主播安娜·库尔金说，居住在俄罗斯的人如果被认为反对政府，便会遭受极端的困境。 库尔金来自俄罗斯，十年前定居到美国西雅图。促使她离开俄罗斯的原因就是俄罗斯当局对言论的审查。
+作者：纽约香草山农场 – 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月7日，据有关医学平台消息显示，牛津大学一项最新经过同行评审的研究结果表明，中共病毒肺炎会导致患者大脑的嗅觉和记忆相关区域发生退行性变化，这些退化症状对于那些轻症感染者也不例外。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-18.jpg)
+据了解，此次调查涉及了接近八百位51到81岁的英国老年人，研究期间有超过一半的观察者感染了中共病毒肺炎，另有15人需要接受住院治疗。研究过程中，工作人员对这些老人的大脑先后进行了两次CT扫描，两次的平均间隔时间为38个月，而这两次CT扫描的主要观测区域为大脑中与气味和事件记忆相关的部分，包括眶额皮层、海马旁回、梨状皮层和嗅结节等。
 
-而现在，随着俄罗斯对乌克兰的入侵，俄罗斯政府变本加厉，不仅相继禁止了各大社交媒体平台，对其他媒体的言论审查也更为严格，很多媒体被迫关闭。普京还签署了一项法律，来威胁那些反对俄罗斯入侵乌克兰的人。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-5.jpg)
-库尔金曾在俄罗斯的国家电视台工作了15年之多，她说，当人们说出俄罗斯当局的某些真相时，可能会面临长达15年的监禁。
+其后，经研究人员分析发现，随着时间的推移，中共病毒感染者的嗅觉相关区域平均每年的损失率为0.7%，其中，患者海马旁回和初级嗅觉皮层的损伤率高达1.3%到1.8%，是未感染者的六倍有余。此外，在感染中共病毒后，老人们的认知能力会显著下降，患者需要花费更长的时间完成研究中的相关测试任务。
 
-俄罗斯有很多记者都因为说真话受到审查、监禁，甚至杀害。在言论审查和的高压之下，人们活得就像一个机器，终日忙碌却一生毫无所成，被圈在贷款中无法自拔。安娜·库尔金为自己曾经的国家入侵乌克兰感到心碎，并为那些同样反对战争的俄罗斯人感到担忧，她清楚俄当局会对他们造成的迫害。
+参考链接：
+1). [Covid Can Shrink the Brain as Much as a Decade of Aging, Study Finds](https://www.bloomberg.com/news/articles/2022-03-07/brain-shrinkage-cognitive-decline-found-months-after-mild-covid)
+2). [SARS-CoV-2 is associated with changes in brain structure in UK Biobank](https://www.nature.com/articles/s41586-022-04569-5)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
+总编: Irene木木
+编辑/审核: 飞虹
+校正/发稿：Fei797
 
-文字版原文：[前俄罗斯新闻主播谈俄罗斯的言论审查](https://gnews.org/zh-hans/2130074/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

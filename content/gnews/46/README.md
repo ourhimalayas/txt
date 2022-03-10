@@ -2,40 +2,18 @@
 ---
 
 
-## 我们用音乐维护中国女性的安全和尊严
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2135525/)
+## 俄乌战争｜美众议院通过俄罗斯石油禁令及拨款136亿美元援助乌克兰
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2135831/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月8日，郭文贵先生在一则盖特视频中再次提到了《锁链梦》这首歌曲的意义。
+**撰文/ 港台前线｜发布日期/ 10/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/美眾議院通過俄羅斯石油禁令及撥款136億美元援助烏克蘭.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-5.jpeg)
+美国国会众议院周三（9日）以414票对17票通过禁止美国进口俄罗斯石油和其他能源产品的法案，该禁令将在签署成为法律后的45天内生效，不过它有一条补充条款，即允许总统在“符合国家利益”的情况下进口某些产品，但须经国会审查。
 
-郭先生指出，每一个听到《锁链梦》的人都会被深深地震撼和触动。而于他本人而言， 更有一种无法形容的力量推动他完成了这首歌曲的演唱。
+另外，众议院还同时批准向乌克兰提供136亿美元的紧急援助，用于加强乌克兰军力及向平民提供人道救助。两项决议罕见均获民主、共和两党共识，两党议员还要求当局对俄罗斯入侵乌克兰进行更严厉的惩罚。
 
-郭先生解释道，这首歌中的每一句歌词都充满了血和泪，令人悲痛不已。为此，他祈愿中国能不再有像锁链女这样悲惨的女性，更希望这首歌能够唤醒国人，让他们可以彻底抛弃懦弱，不再如此冷漠。
-
-郭先生还补充道，新中国联邦要用音乐推动世界的和平并维护人类的尊严，特别是要维护中国女性的安全和尊严。
-
-详情，请收看以下视频。
-
-参考链接：[https://www.gettr.com/post/pyx6rmb5ef](https://www.gettr.com/post/pyx6rmb5ef)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
-
-总编：Irene木木
-编辑：Ivy001
-审核：Irene木木
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+来源｜[路透社](https://www.reuters.com/world/us/us-congress-reaches-govt-spending-deal-including-136-bln-ukraine-2022-03-09/)
 
  
 

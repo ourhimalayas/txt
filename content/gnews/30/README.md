@@ -2,48 +2,32 @@
 ---
 
 
-## 俄罗斯入侵乌克兰战争第14 天- -挖万人坑；撤离的孕妇
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2138158/)
+## 大直播后记：锁链女之歌力量超越导弹
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2138392/)
 
-【玫瑰看新闻】每日快讯
+整理：美哥、奮鬥
+编辑：Mohegayer K. Simon
 
-俄罗斯入侵乌克兰的第14 天发生了更多的流血和破坏，因为无情的攻击迫使更多的乌克兰居民逃离。美联社摄影师拍摄的照片显示，一些难民从一座临时搭建的桥上滑溜溜的木板撤离——乌克兰人几天前炸毁了从乌尔平镇通往基辅首都的混凝土道路，以减缓俄军的进攻。
-
-其他图片显示一名军事牧师试图安慰一名哭泣的女人；将居民运送到安全地带的军用车辆车队；以及坐在或站在疏散巴士上的焦急难民，他们的脸上表现出震惊、悲伤和无奈。
-
-虽然俄罗斯军队没有表现出撤退的迹象，但地面上的乌克兰战士发誓不会让步。
-
-以下是乌克兰战区一些照片：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image004-1.jpg)
-在被围困的乌克兰马里乌波尔港，蒙面工人将尸体简单处理，埋入一条 25 英尺长的壕沟，该壕沟在俄罗斯军队的持续炮击中仓促挖掘。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image006-2.jpg)2022 年3 月9 日，星期三，乌克兰的马里乌波尔，乌克兰急救人员和志愿者从一家妇产医院抬着一名受伤的孕妇，该医院因炮击而受损。（美联社照片/Evgeniy Maloletka）
-在城市的其他地方，四名男子冲出一家严重受损的妇产医院，用担架运送一名流血的孕妇。另一名身穿睡衣、脸上有伤口的孕妇小心翼翼地走下一个布满碎片的楼梯，而在院子里，紧急救援人员在一片荒凉的风景中穿行，那里到处都是破损的汽车和被炸裂的窗户玻璃碎片.
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image008-2.jpg)2022 年3 月9 日，星期三，在乌克兰基辅的一个分流点，一名军事牧师试图安慰一名从Irpin 撤离的哭泣妇女。（美联社照片/Vadim Ghirda）![](https://assets.gnews.org/wp-content/uploads/2022/03/image010-2.jpg)2022 年3 月9 日，星期三，乌克兰急救人员在乌克兰马里乌波尔的一家妇产医院工作。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image013.jpg)2022 年3 月9 日，星期三，一名乌克兰军人在乌克兰基辅郊区的Irpin 看着接近的车辆时采取射击姿势。（美联社照片/Vadim Ghirda）![](https://assets.gnews.org/wp-content/uploads/2022/03/image014.jpg)2022 年3 月9 日，星期三，乌克兰人从乌克兰基辅郊区的Irpin 撤离时进入公共汽车。（美联社照片/Felipe Dana）![](https://assets.gnews.org/wp-content/uploads/2022/03/image016.jpg)2022 年3 月9 日，星期三，一名从乌克兰首都周边地区撤离的妇女在抵达乌克兰基辅的一个分流点后拿着一盘食物。（美联社照片/Vadim Ghirda）![](https://assets.gnews.org/wp-content/uploads/2022/03/image018.jpg)2022 年3 月9 日，星期三，在乌克兰基辅郊区的Irpin 撤离平民的车队离开时，汽车驶过一辆被摧毁的俄罗斯坦克。（美联社照片/Vadim Ghirda）![](https://assets.gnews.org/wp-content/uploads/2022/03/image020.jpg)2022 年3 月9 日，星期三，一名妇女在乌克兰马里乌波尔被炮击损坏的妇产医院外走。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image022.jpg)2022 年3 月9 日，星期三，从邻国乌克兰逃离战争的人们睡在波兰普热梅希尔的普热梅希尔火车站。（美联社照片/丹尼尔科尔）![](https://assets.gnews.org/wp-content/uploads/2022/03/image024.jpg)2022 年3 月9 日，星期三，一名男子在乌克兰马里乌波尔的一栋被炮击损坏的公寓楼前骑自行车。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image026.jpg)2022 年3 月9 日，星期三，一名受伤的孕妇在乌克兰马里乌波尔的一家妇产医院走下楼，该医院因炮击而受损。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image028.jpg)2022 年3 月9 日，星期三，乌克兰人在乌克兰基辅郊区逃离Irpin 时，穿过一座被毁坏的桥下的临时小路。（美联社照片/Felipe Dana）![](https://assets.gnews.org/wp-content/uploads/2022/03/image030.jpg)2022 年3 月9 日，星期三，乌克兰领土防御部队成员在乌克兰基辅郊区训练使用NLAW 反坦克武器。（美联社照片/Efrem Lukatsky）![](https://assets.gnews.org/wp-content/uploads/2022/03/image032.jpg)2022 年3 月9 日，星期三，一名男子带着他的孩子离开乌克兰马里乌波尔一家受损的妇产医院。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image035.jpg)2022 年3 月9 日，星期三，在乌克兰基辅郊区逃离Irpin 时，一名儿童被推着婴儿车穿过临时路径。（美联社照片/Felipe Dana）![](https://assets.gnews.org/wp-content/uploads/2022/03/image037.jpg)2022 年3 月9 日，星期三，人们在乌克兰马里乌波尔郊区的井边排队取水。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image038.jpg)2022 年3 月9 日，星期三，乌克兰马里乌波尔发生炮击后，浓烟升起。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image040.jpg)2022 年3 月9 日，星期三，一名妇女在乌克兰马里乌波尔被炮击损坏的妇产医院外走。（美联社照片/Evgeniy Maloletka）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-29.png)图片来源：墨尔本雅典娜农场设计组
 
 
+这就是我觉得《女人花》最大的魅力，打开了一个世纪的黑暗之门——把阳光照进去，给人们希望。90%的中国人都会明白醒来，特别衷心地感谢唐平，这是唐平和威廉王的一场人生巨作，这是他们鲜血和生命之作。所有参与制作的战友，都参与了这场伟大史诗。绝对超过导弹，超过普京的那100发巡航导弹，比他的那个直升机什么米29、米37要杀伤力大得多，而且永远永远都不会消失。它会影响我们整个中国女人，用什么语言形容都不为过。
 
+这首歌是七哥一生当中，到目前为止，我认为除了灭共之外，让我最有成就感的一件事，可以排在第2位。我真的不能说我跟上帝对话了，你们觉得我神经病了，我觉得我得到了上天的启示，为我的母亲，为我们的中国的女性，为中国人在世界上的女性地位，真真正正地打开了一扇门，那就是阳光之门，照进黑暗。如果你不信，你继续在梦里游走，那你就是在地狱。
 
-[【援引连结】](https://apnews.com/article/russia-ukraine-kyiv-europe-0496e642a4a0d8d7d7fe900a8bcab2f1)
+同胞快醒来，从此要战斗，我们砸碎这铁锁。每一个词每一个字，它真的比1万发导弹都管用。这一次让我真的体会到了社交媒体、音乐的巨大的力量。我就刚才在直播当中，有人给我发信息，就是七哥这首歌完了之后。我们怎么样怎么样，包括体制内，我们绝对跟共产党干到底，你说怎么办？行动。还有说我是管火车的、我管飞机、还有说管电厂的，怎么办七哥？特别是四川的某空军，刘亚洲的几个部下之一，说怎么行动，我随时准备行动。
 
-**推出问题，敲出真相，爆料在路上！**
+实际上飞机你能炸碎几个人？普京已经告诉你没用的。只有彻底把共产党给灭了才管用，我们会把它灭了。等那一天的时候，我要好好给你们唱唱《女人花》。我唱得比你们现在听到的，唱得好的多的多，唐平可以作证，我很惊讶他们没有把我这么多唱的东西给剪辑出来。完全不用心，我无数次唱的，我真的唱的太好了。我真不夸张地说我看着镜子，深深地说我真的很爱你郭文贵。我能张嘴是上天给我们一个生存一口气，这个灵魂在带我走向我想去的地方。所以我要对着镜子说我真的很爱你郭文贵，就因为你唱这首歌。唐平威廉王，我用什么话都不能感激，你俩就是上天派来的新中国联邦的音乐天使，缪斯女神的化身。很多战友的帮助，新中国联邦永远不会忘。什么共产党的进行曲，你觉得俗不俗？
 
-**请关注和订阅我们的以下账号：**
+资料来源：[2022年3月9日文贵大直播](https://www.gettr.com/streaming/pz1ocoe7cb)
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+发布：tianzhihuan
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
