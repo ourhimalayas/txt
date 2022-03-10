@@ -15,119 +15,119 @@
 
 ---
 
-### [随着死亡人数上升香港推迟大规模COVID-19检测计划](/content/gnews/1/README.md)
- ` 澳喜农场`
+### [有声｜中共国撤侨:半夜要开会早上还要歌唱祖国](/content/gnews/1/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
-### [国际｜ 在野“保守派”尹锡悦当选南韩总统 主张“亲美抗中”](/content/gnews/2/README.md)
- ` 關注組`
-
-### [文贵视角:中共国在俄乌战争中犯下屠杀罪](/content/gnews/3/README.md)
- ` 秘密翻译组-原创组`
-
-### [币圈新闻动态：喜币（HCN）价格目前在42.700 HDO](/content/gnews/4/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [【秘翻在线】众议院通过了向乌克兰提供136亿美元援助的法案](/content/gnews/5/README.md)
+### [秘翻在线： 尹锡烈当选感言“伟大的国民的胜利…”](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【粤语配音】2022年3月9日：做好准备等待三件事](/content/gnews/6/README.md)
- ` MOS香港部`
-
-### [【秘翻在线】美参议员呼吁对俄罗斯银行实施二级制裁，以防止中共削弱制裁](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [澳大利亚每日要闻（财经篇）](/content/gnews/8/README.md)
- ` 走进澳洲`
-
-### [视频|新中国联邦法治基金乌克兰人道救援信息](/content/gnews/9/README.md)
- ` MOSVIDEO`
-
-### [秘翻在线：新中国联邦在波兰的救助活动引起悉尼乌克兰社区协会关注](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国国务院批驳中俄散布乌克兰生化武器试验项目谎言](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [视频|反亚裔仇恨犯罪暴增](/content/gnews/12/README.md)
- ` MOSVIDEO`
-
-### [樱花FM|诺贝尔奖获得者联名抗议俄罗斯对乌克兰的军事进攻](/content/gnews/13/README.md)
- ` 樱花FM`
-
-### [视频|中共国房地产持续爆雷 股市暴跌](/content/gnews/14/README.md)
- ` MOSVIDEO`
-
-### [普京的俄罗斯重演伊拉克危机石油换食物2.0？](/content/gnews/15/README.md)
- ` 澳喜农场`
-
-### [秘翻在线：白宫斥责俄罗斯放假消息，把其在乌克兰发动生化战嫁祸于美国](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [樱花FM|中日财经爆:金融核弹要爆了！郭树清坦言：房价下跌就是一个巨大的金融危机！](/content/gnews/17/README.md)
- ` 樱花FM`
-
-### [【粤语配音】2022年3月9日：中共接下来要干什么？](/content/gnews/18/README.md)
- ` MOS香港部`
-
-### [视频| 妇女节当天世界为铁链女发声](/content/gnews/19/README.md)
- ` MOSVIDEO`
-
-### [20220309郭文贵大直播 ：人类将迎来没有皇帝以民为主的时代，俄罗斯会消失，中国将应民意分化](/content/gnews/20/README.md)
- ` Tokyo Sakura Video Group`
-
-### [乌克兰前沿每日报道](/content/gnews/21/README.md)
- ` 秘密翻译组-原创组`
-
-### [新中国联邦法治基金乌克兰人道救援信息](/content/gnews/22/README.md)
- ` NFSC News`
-
-### [中共国仍表示与俄罗斯的关系“坚如磐石”](/content/gnews/23/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [新中国联邦救援信息 赫然出现在悉尼的乌克兰协会网站首页](/content/gnews/24/README.md)
- ` 蓝莲花农场`
-
-### [美国佛州反对儿童接种新冠病毒疫苗](/content/gnews/25/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [拜登总统指示加快对发行“数字美元”可行性的验证](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [蓬佩奥:中共是我们这个时代的核心威胁](/content/gnews/27/README.md)
- ` 美国政要直译推`
-
-### [新中国联邦新闻、GTV新闻访谈简报|2022年3月9日晚](/content/gnews/28/README.md)
- ` 纽约香草山MOS01`
-
-### [NESC法治基金不论国界和民族乌克兰国际人道大救援](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【乌克兰救援】新中国联邦将勇敢善良的中国人和中共分开](/content/gnews/30/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【乌克兰救援】新中国联邦救援队在乌波边境设立新的紧急救援站](/content/gnews/31/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [《避风港HAVEN》直播内容精选（第十八集）](/content/gnews/32/README.md)
- ` 喜马拉雅纽约磐石农场`
-
-### [纳瓦罗：中共是当前世界危机的根源，我们必须消灭它](/content/gnews/33/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [班农：你把中共打倒了，其余的邪恶政权就都倒了](/content/gnews/34/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [拜登宣布禁止进口俄罗斯石油 警告油价会进一步上涨](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [美国FDA收了辉瑞多少钱？](/content/gnews/36/README.md)
+### [随着黄金上涨，美元崩盘可能是俄乌战争最重要的结果](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乌克兰大救援3.9.2022 阻绝人道主义救助，中共犯下严重国际法罪行](/content/gnews/37/README.md)
+### [视频|法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/4/README.md)
+ ` MOSVIDEO`
+
+### [前线快报——3月9日 前线救援队集结波乌边境梅迪卡救援站，分工明确，集体作战，全力支援救助来自乌克兰的难民](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声｜ 泽连斯基：近 35,000 人通过人道主义走廊获救](/content/gnews/6/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [主流媒体的落幕和社交媒体的崛起，去中心化才是核心](/content/gnews/7/README.md)
+ ` 澳喜农场`
+
+### [随着死亡人数上升香港推迟大规模COVID-19检测计划](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [国际｜ 在野“保守派”尹锡悦当选南韩总统 主张“亲美抗中”](/content/gnews/9/README.md)
+ ` 關注組`
+
+### [文贵视角:中共国在俄乌战争中犯下屠杀罪](/content/gnews/10/README.md)
  ` 秘密翻译组-原创组`
 
-### [物流瘫痪，俄罗斯遭痛击（下）](/content/gnews/38/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [币圈新闻动态：喜币（HCN）价格目前在42.700 HDO](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【秘翻在线】众议院通过了向乌克兰提供136亿美元援助的法案](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [【粤语配音】2022年3月9日：做好准备等待三件事](/content/gnews/13/README.md)
+ ` MOS香港部`
+
+### [【秘翻在线】美参议员呼吁对俄罗斯银行实施二级制裁，以防止中共削弱制裁](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [澳大利亚每日要闻（财经篇）](/content/gnews/15/README.md)
+ ` 走进澳洲`
+
+### [视频|新中国联邦法治基金乌克兰人道救援信息](/content/gnews/16/README.md)
+ ` MOSVIDEO`
+
+### [秘翻在线：新中国联邦在波兰的救助活动引起悉尼乌克兰社区协会关注](/content/gnews/17/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国国务院批驳中俄散布乌克兰生化武器试验项目谎言](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [樱花FM|郭文贵先生2022年3月3日盖特视频（9分35秒）全文字版](/content/gnews/19/README.md)
+ ` 樱花FM`
+
+### [普京的俄罗斯重演伊拉克危机石油换食物2.0？](/content/gnews/20/README.md)
+ ` 澳喜农场`
+
+### [秘翻在线：白宫斥责俄罗斯放假消息，把其在乌克兰发动生化战嫁祸于美国](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [【粤语配音】2022年3月9日：中共接下来要干什么？](/content/gnews/22/README.md)
+ ` MOS香港部`
+
+### [20220309郭文贵大直播 ：人类将迎来没有皇帝以民为主的时代，俄罗斯会消失，中国将应民意分化](/content/gnews/23/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [乌克兰前沿每日报道](/content/gnews/24/README.md)
+ ` 秘密翻译组-原创组`
+
+### [新中国联邦法治基金乌克兰人道救援信息](/content/gnews/25/README.md)
+ ` NFSC News`
+
+### [中共国仍表示与俄罗斯的关系“坚如磐石”](/content/gnews/26/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [拜登总统指示加快对发行“数字美元”可行性的验证](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [蓬佩奥:中共是我们这个时代的核心威胁](/content/gnews/28/README.md)
+ ` 美国政要直译推`
+
+### [中共国房地产持续爆雷 股市暴跌](/content/gnews/29/README.md)
+ ` NFSC News`
+
+### [新中国联邦新闻、GTV新闻访谈简报|2022年3月9日晚](/content/gnews/30/README.md)
+ ` 纽约香草山MOS01`
+
+### [NESC法治基金不论国界和民族乌克兰国际人道大救援](/content/gnews/31/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【乌克兰救援】新中国联邦将勇敢善良的中国人和中共分开](/content/gnews/32/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [《避风港HAVEN》直播内容精选（第十八集）](/content/gnews/33/README.md)
+ ` 喜马拉雅纽约磐石农场`
+
+### [纳瓦罗：中共是当前世界危机的根源，我们必须消灭它](/content/gnews/34/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [班农：你把中共打倒了，其余的邪恶政权就都倒了](/content/gnews/35/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [拜登宣布禁止进口俄罗斯石油 警告油价会进一步上涨](/content/gnews/36/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美国FDA收了辉瑞多少钱？](/content/gnews/37/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [乌克兰大救援3.9.2022 阻绝人道主义救助，中共犯下严重国际法罪行](/content/gnews/38/README.md)
+ ` 秘密翻译组-原创组`
 
 ### [2022年3月9日大直播速记精萃](/content/gnews/39/README.md)
  ` 雅典娜GNotes`

@@ -2,10 +2,8 @@
 ---
 
 
-## 【乌克兰救援】新中国联邦救援队在乌波边境设立新的紧急救援站
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134644/)
-
-03/07/2022 新中国联邦救援队在乌波边境设立新的紧急救援站。
+## NESC法治基金不论国界和民族乌克兰国际人道大救援
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134821/)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
