@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 3:39 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
+![img](https://media.gettr.com/group22/origin/2022/03/10/14/3ceaaf4b-7bf7-b23f-fe18-c9a0794fed82/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/10/2022 2:35 PM (UTC)`
 
 【Ukrainian Rescue】03/09/22 Volunteer of NFSC & ROL Foundation Ukraine Rescue Operation interview a Germany musician who plays piano for the refugees at a rescue station in Medyka by the Ukraine/Poland border <br/><br/>【乌克兰救援】03/09/22新中国联邦和法治基金救援行动志愿者采访在乌波边境梅迪卡救助站为难民演奏的德国钢琴家
@@ -152,13 +159,6 @@
 
 【Ukrainian Rescue】03/09/22: Fellow Fighter of NFSC:  Having witnessed our excellence in the rescue work here, the local on-site manager in Poland arranged the best spot for us to set up the tent near the bus pick-up point. They were outraged by the response that they couldn’t even get a single tent from the local Red Cross. The real rescuers are people from the New Federal State of China.<br/><br/>【乌克兰救援】03/09/22新中国联邦战友：看到我们的救援行动非常的棒，波兰当地负责人将最好的地方安排给我们搭帐篷。当地红十字会连个帐篷都不给他们提供，他们非常的气愤。我们新中国联邦才是真正的救助。
 ![img](https://media.gettr.com/group23/getter/2022/03/10/01/c4712556-d09c-3125-0ac3-7e574e81fd27/out.jpg)
-
----
-
-`@miles 3/10/2022 1:40 AM (UTC)`
-
-2022.03.09 晚 《新中国联邦新闻》欧盟力争今年将对俄罗斯的天然气依赖度降低近八成；全球媒体聚焦乌克兰救援 新中国联邦受关注
-![img](https://media.gettr.com/group3/origin/2022/03/10/01/14369be1-1757-221d-5a74-730489f8c9ff/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
