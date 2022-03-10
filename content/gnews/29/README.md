@@ -2,10 +2,10 @@
 ---
 
 
-## 乌克兰境内的冲突引发了自二战以来最大的欧洲难民危机
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2137364/)
+## 乌克兰平民拿起武器保卫他们的社区和国家
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2137366/)
 
-03/08/2022 Sky News：乌克兰境内的冲突爆发不到两周，引发了自二战以来最大的欧洲难民危机。
+03/07/2022 澳大利亚天空新闻：深深的愤怒和对复仇的渴望让乌克兰平民拿起武器保卫他们的社区和国家。乌克兰前总统警告乌克兰将来会有更多的平民死于这场战争。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

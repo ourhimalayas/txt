@@ -2,10 +2,10 @@
 ---
 
 
-## 【乌克兰救援】新中国联邦救援行动的计划安排和站点设置
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2137331/)
+## 乌克兰境内的冲突引发了自二战以来最大的欧洲难民危机
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2137364/)
 
-【乌克兰救援】03/09/22新中国联邦和法治基金乌克兰救援行动的免费撤离专机计划安排和站点设置
+03/08/2022 Sky News：乌克兰境内的冲突爆发不到两周，引发了自二战以来最大的欧洲难民危机。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 20220309郭文贵大直播 ：七哥、唐平团队创作铁锁梦歌曲的经历
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2137473/)
+## 20220309郭文贵大直播 ：新中国联邦唯真不破同世界正义力量组成一个大家庭
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2137511/)
 
 作者：东京樱花团小视频组
 
