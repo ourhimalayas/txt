@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 1:55 AM (UTC)`
+
+【Ukrainian Rescue】03/09/22: Fellow Fighter of NFSC:  Having witnessed our excellence in the rescue work here, the local on-site manager in Poland arranged the best spot for us to set up the tent near the bus pick-up point. They were outraged by the response that they couldn’t even get a single tent from the local Red Cross. The real rescuers are people from the New Federal State of China.<br/><br/>【乌克兰救援】03/09/22新中国联邦战友：看到我们的救援行动非常的棒，波兰当地负责人将最好的地方安排给我们搭帐篷。当地红十字会连个帐篷都不给他们提供，他们非常的气愤。我们新中国联邦才是真正的救助。
+![img](https://media.gettr.com/group23/getter/2022/03/10/01/c4712556-d09c-3125-0ac3-7e574e81fd27/out.jpg)
+
+---
+
+`@miles 3/10/2022 1:40 AM (UTC)`
+
+2022.03.09 晚 《新中国联邦新闻》欧盟力争今年将对俄罗斯的天然气依赖度降低近八成；全球媒体聚焦乌克兰救援 新中国联邦受关注
+![img](https://media.gettr.com/group3/origin/2022/03/10/01/14369be1-1757-221d-5a74-730489f8c9ff/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/10/2022 1:37 AM (UTC)`
 
 2022.03.09 晚 《新中国联邦新闻》欧盟力争今年将对俄罗斯的天然气依赖度降低近八成；全球媒体聚焦乌克兰救援 新中国联邦受关注
@@ -140,20 +154,6 @@
 
 【Ukrainian Rescue】03/08/22 Chinese husband and his Ukrainian wife rescued by NFSC and ROLF explains how they decided to leave Ukraine and take our rescue bus ASAP<br/><br/>【乌克兰救援】03/08/22 被新中国联邦和法治基金救援的中国男士及其乌克兰夫人讲述如何做出决定坐巴士尽快离开<br/>
 ![img](https://media.gettr.com/group45/getter/2022/03/09/10/8fb31a9e-8d77-e611-9360-c97cb43cf755/out.jpg)
-
----
-
-`@miles 3/9/2022 10:35 AM (UTC)`
-
-【Ukrainian Rescue】03/08/22 Chinese husband and his Ukrainian wife rescued by NFSC and ROLF expresses their gratitude<br/><br/>【乌克兰救援】03/08/22 被新中国联邦和法治基金救援的中国男士及其乌克兰夫人表达感激之情<br/><br/>
-![img](https://media.gettr.com/group39/getter/2022/03/09/10/22f7447d-c438-6501-027b-01e98e96926e/out.jpg)
-
----
-
-`@miles 3/9/2022 10:18 AM (UTC)`
-
-
-![img](https://media.gettr.com/group14/origin/2022/03/09/10/c054b13c-a75d-6345-ca1d-ef10678daae9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
