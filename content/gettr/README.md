@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 8:11 AM (UTC)`
+
+
+![img](https://media.gettr.com/group15/origin/2022/03/10/08/b3c7e124-3452-e750-8129-db78912c7aa3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/10/2022 6:42 AM (UTC)`
 
 3/9/2022 Miles Guo: The authenticity, bravery, and selflessness of our fellow fighters who are on the front lines of this rescue operation have shaped the image of the new Chinese. In this international humanitarian crisis, there has been no organization involved in rescue on behalf of a nation. The outstanding rescue operation of the NFSC & ROLF has become the center of attention and has earned the admiration and respect for the new Chinese from our international friends.<br/><br/>3/9/2022 文贵直播：前线战友们真诚勇敢的无私付出塑造了新中国人的形象；在这场国际人道危机中，尚无以国家名义参与救援的组织；新中国联邦、法治基金国际水平的救援成为了现场的焦点，并让新中国人受到了国际友人的钦佩和尊重<br/>
@@ -146,13 +153,6 @@
 
 3/9/2022 Miles Guo: The dilemma of Russia's invasion of Ukraine is intensifying the CCP’s ambition to confront the West; the CCP will wage energy and regional wars in the Middle East and elsewhere between late March and April this year; Taiwan is still in grave danger; why the CCP has stored up grains for 2.5 year supply?<br/><br/>3/9/2022 文贵直播：俄乌战争困境加剧中共对抗西方的野心；中共将在三月底到四月之间，在中东和其他地区发动能源和区域性战争，台湾依然深处危机; 中共为什么要储备两年半的粮食？<br/>
 ![img](https://media.gettr.com/group13/getter/2022/03/09/22/bc5044c7-7fcb-c202-d2f9-f0265dcd6470/out.jpg)
-
----
-
-`@miles 3/9/2022 10:06 PM (UTC)`
-
-致乌克兰战场的所有同胞们……紧急紧急紧急。<br/><br/>由于中共控制了邮件服务商，意图破坏我们乌克兰救援行动，之前公布的网站和邮箱已被强行关闭，更新后的24小时紧急救援客服联系方式如下：<br/><br/>24小时客服热线（电话/短信）：<br/>+1 720-657-6776 <br/>+1 719-224-4232<br/>+48 508-532-712 <br/>+48 508-531-518<br/><br/>Telegram： t.me/UkraineRescue<br/><br/>盖特： gettr.com/user/UkraineRescue<br/><br/>邮箱： UkraineRescue01@protonmail.com 或 UkraineRescue02@protonmail.com <br/>
-![img](https://media.gettr.com/group36/getter/2022/03/09/22/cda11034-b39f-ffe5-8eaf-837c1f41d23b/out.jpg)
 
 ---
 
