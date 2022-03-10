@@ -2,43 +2,22 @@
 ---
 
 
-## 中共拒绝谴责俄侵乌克兰，立陶宛力挺台湾不让步
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2137258/)
+## 中日财经爆┃为降负债7折出售，SOHO成为下一个恒大
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2137437/)
 
-#### **【雅典娜观察】和您一起洞察世界**
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-981.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fthumbor.ftacademy.cn%2Funsafe%2F900x506%2Fpicture%2F2%2F000119212_piclink.jpg&amp;imgrefurl=http%3A%2F%2Fwww.ftchinese.com%2Fstory%2F001093923%3Ffull%3Dy&amp;tbnid=Lp02AEk8FW1FzM&amp;vet=12ahUKEwj8svXEwLv2AhXSxSoKHbRxAgAQMygFegUIARCwAQ..i&amp;docid=Es6qDyD-RbXciM&amp;w=900&amp;h=506&amp;q=soho%20%E4%B8%AD%E5%9B%BD&amp;ved=2ahUKEwj8svXEwLv2AhXSxSoKHbRxAgAQMygFegUIARCwAQ)
+3月10日新京报报道，SOHO中国方面宣布，为了优化资产结构、缓解资金压力，该公司以七折价格推出了3.2万平米的房源，覆盖银河SOHO、三里屯SOHO、SOHO东海广场、SOHO中山广场等9个项目。SOHO中国董事长潘石屹表示，此次销售房源的收入将全部用于降负债。
 
-**整理/编辑：文泓**
+SOHO是北京最大的房地产开发商，主要在北京和上海城市中心开发高档商业地产。前身北京红石实业有限责任公司，成立于1995年，由潘石屹（现SOHO中国董事长）和其妻张欣（现SOHO中国总裁）联手创建，2021年6月16日，SOHO中国方面对外回应，宣布黑石已发出全面收购要约，取得SOHO中国的控股权。交易完成后，SOHO中国现有控股股东将保留9%的股权。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-57.png)图片来源：The Straits times & 雅典娜设计组
+2021年底SOHO达到83.4%的平均出租率，其中上海古北SOHO实现满租、北京丽泽SOHO出租率也突破了80%，均达到两个项目入市以来的最高水平，目前SOHO中国净资产负债率约为44%，在中共国房地产行业均保持在100%负债的情况下，SOHO保持在行业内的较低水平，在这较低负债状况也难以维持现状，需要七折价格售卖项目，入不支出才会有如此操作，房地产商也许没有想象的那么光鲜，SOHO必将成为下一个恒大，面临着破产倒闭。
 
+信息源：[【SOHO中国拟7折出售3.2万平方米房源，收入用于降负债】](https://me.mbd.baidu.com/r/CAKA3LxUzu?f=cp&amp;rs=1439551835&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=4e9e3094003fbc20&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-3月9日，据英国学术期刊《经济学人》报导，俄罗斯侵略乌克兰，中共国不予谴责，让立陶宛更清楚俄中两国存在威胁的相互关联性，未来无论哪一个政党执政，都难以在“台湾代表处”议题对北京让步。
-
-台湾驻立陶宛代表黄钧耀告诉《经济学人》，对西方民主国家而言，像立陶宛这样的小国家能挺住风暴，意义非常深远。
-
-立陶宛与中共国的关系，因为立陶宛去年率先宣布退出中共国与中东欧国家的17+1互动机制，在5G基础建设上排除中国电信巨擘华为，允许台湾成立“台湾代表处”等事件而导致恶化。随即中共以政治、经贸手段胁迫报复立陶宛，包括技术阻挠双边进出口贸易、施压欧盟各国企业将立陶宛排除于供应链之外等。
-
-《经济学人》指出，立陶宛近年来对中共国的立场趋于强硬，中共拒绝谴责俄罗斯侵略乌克兰，更触动曾遭苏联占领近50年的立陶宛等波罗的海国家的敏感神经。其中，立陶宛同时与两个极权国家俄罗斯及白俄罗斯为邻，这次俄罗斯更是借道白俄罗斯入侵乌克兰。
-
-即使立陶宛、爱沙尼亚、拉脱维亚等波罗的海国家已在2004年加入北大西洋公约组织（NATO），它们仍担忧俄罗斯总统普京将力图收回曾被苏联占领的土地。在这样的情况下，北京与莫斯科交好显然只会恶化中共国在立陶宛的形象。
-
-尤其是中共国与俄罗斯的安全合作更让立陶宛警惕，2017年俄中首度在波罗的海举行海军联合演习，中共当时出动旅洋级导弹驱逐舰等先进军备，其舰船停泊在紧邻立陶宛的俄罗斯飞地加里宁格勒州，那里有俄罗斯波罗的海舰队基地和指挥总部。
-
-维尔纽斯大学国际关系副教授安卓约斯卡斯说：“我们越来越不会把中国和俄罗斯的作为分开来看。”
-
-曾访问台湾、因为批判北京践踏人权而遭中共列入黑名单的立陶宛在野社会民主党国会议员萨卡利埃内认为，台湾代表处改名的机率很低，“中国的施压胁迫已让这条路行不通”。俄罗斯入侵乌克兰也让立陶宛政坛更加意识到，向威权流氓低头的危险性。
-
-原文链接：[中共支持俄入侵乌克兰让立陶宛更不会让步](https://www.cna.com.tw/news/aopl/202203090435.aspx)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,20 @@
 ---
 
 
-## 巴西出动军机 援助俄乌战争难民
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2135760/)
+## 中共会发起一场能源或区域性战争，国内蕴含着粮食危机
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2136246/)
 
-**撰稿：日本东京方舟农场  北极**
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-据中央社报道，巴西空军运输机KC-390运载超过11吨物资于3月9日飞抵波兰华沙，以援助俄乌战争的难民。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-109.jpg)KC-390运输机。（图片来自维基百科）
-这架KC-390于7日从巴西利亚出发，9日抵达波兰华沙。本次任务除了接运逃离乌克兰的42名巴西侨民外，还将营救23名乌克兰人和1名波兰人，他们已获得入境巴西的人道主义签证。此外，还有6只属于这些家庭的猫犬。
+*发布：陶子*
 
-这架空军运输机共载运11.6吨的捐赠物资，包括50台巴西自主技术制造的净水器，每天可净化约30万公升水;50组太阳能电池板自主供应能源设备;约9公吨（相当于36万餐）高营养脱水食物，以及半公吨基本用品和医疗用品。
-
-KC-390是在南半球研制的最大军用飞机，也是巴西国防战略项目之一。本次行动得到了巴西政府司法和公共安全部、国防部、外交部和卫生部之间的协调部署。
-
-巴西外交部、司法和公共安全部3日发布了一项法令，规定为乌克兰公民和受俄乌战争影响或流离失所的无国籍人士，授予6个月的临时签证和用于人道主义目的的2年居留许可。
-
-参考链接：
-1.[https://www.cna.com.tw/news/aopl/202203100023.aspx](https://www.cna.com.tw/news/aopl/202203100023.aspx)
-
-素材采编：北极
-总编：老孙
-校对发布：爱放飞
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

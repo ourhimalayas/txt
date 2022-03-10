@@ -17,6 +17,17 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@ripplenews 3/10/2022 12:21 PM (UTC)`
+
+❤️❤️❤️International Humanitarian Rescue Operation of Rule of Law Foundation and New Federal State of China #NFSCrescue #ROLFrescue #CCP≠Chinese<br/><br/>1️⃣Fellow Fighters are on the way to Medyka Rescue Station on a snowy day<br/><br/>2️⃣Fellow Fighters work with local authorities in Poland to build tents for Ukrainian refugees<br/><br/>3️⃣Fellow Fighters and Mr. Miles Guo chant 'Take Down The CCP' during the live broadcast.<br/><br/>💥💥💥If you have family to be rescued in #Ukraine , here is the 24-Hour Emergency Rescue Support Team Contact: <br/>💌💌💌Email: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com <br/>☎️☎️☎️Phone (Call or Text): <br/>+1 720-657-6776 OR <br/>+1 719-224-4232 OR<br/>+48 508-532-712 OR <br/>+48 508-531-518
+![img](https://media.gettr.com/group33/origin/2022/03/10/12/794a860e-73ab-394e-6d44-c1d90e3b185a/out.jpg)
+> `@ripplenews 3/9/2022 1:41 PM (UTC)`<br/>
+![img](https://media.gettr.com/group42/getter/2022/03/09/13/9539bb84-3756-e8e7-e84c-c7c4b8c3c2aa/9c4968822e4b9d89b0d3412b6d79ef17.jpg)
+
+---
+
 `@miles 3/10/2022 12:56 PM (UTC)`
 
 【Ukraine Rescue】03/10/2022 Volunteer Wenge Qixiong and Qingfeng distributing food, blankets and other rescue supplies to refugees at the NFSC and ROL Foundation’s rescue station in Medyka, near the border with Ukraine<br/><br/>【乌克兰救援】3月10日 文戈七雄战友和青峰战友在位于波乌边境Medyka的新中国联邦和法治基金救助站，为难民发放食物，毛毯等救援物资
@@ -148,13 +159,6 @@
 
 2022.03.08《The Fringe》 Episode 143
 ![img](https://media.gettr.com/group6/origin/2022/03/10/00/3292af85-a1a2-3131-dff7-a5d24498fa8d/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/10/2022 12:19 AM (UTC)`
-
-3/9/2022 Miles Guo: Despite the cold weather, the fellow fighters of the New Federal State of China arrived in Medyka, Poland at the earliest time possible to help the refugees and save the world selflessly! The relief work of the New Federal State of China and the Rule of Law Foundation is respected and recognized by fellow international aid agencies!<br/><br/>3/9/2022 文贵直播：新中国联邦的战友们不顾寒冷，在第一时间到达波兰梅迪卡，无私地帮助难民和拯救世界！新中国联邦法治基金的救援工作得到了国际援助机构同仁的尊重和认可！<br/>
-![img](https://media.gettr.com/group26/getter/2022/03/10/00/ebe0c998-921a-976b-7fc5-d5ef04c929a1/out.jpg)
 
 ---
 

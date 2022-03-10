@@ -2,33 +2,43 @@
 ---
 
 
-## Omicron子变体或导致澳洲部分地区新冠病例在数周内倍增
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2136822/)
+## 中共拒绝谴责俄侵乌克兰，立陶宛力挺台湾不让步
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2137258/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/03/101-8.jpg)图片来自网络
-根据澳大利亚最新新冠病例数据，该国新南威尔士州的 COVID-19 病例可能会在几周内翻倍，因为Omicron 变种病毒的一个子变体目前正在席卷全州。
+#### **【雅典娜观察】和您一起洞察世界**
 
-新南威尔士州今天记录了总共16,288 例新病例，与周日记录的 8782 例每日病例相比出现了显著增加，因此预计病例在未来也会继续上升。
+**整理/编辑：文泓**
 
-新南威尔士州卫生部长布拉德·哈扎德在该地区预算评估听证会上表示，新南威尔士州大学的初步数据表明，新冠病例新增感染可能会在六周内“增加一倍以上”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-57.png)图片来源：The Straits times & 雅典娜设计组
 
-他说 Omicron 的 BA.2 子变体被认为比 BA.1 谱系更具传染性，因此正在成为社区中占主导地位的 Omicron 变体。这一结论目前仍是初步的，还需要更多深入研究，不过BA.2子变体是否会最终超越BA.1确实是卫生官员目前所担心的。自 1 月下旬以来，BA.2子变体就开始在澳大利亚出现。
 
-目前在新南威尔士州，仍有 991 名CCP病毒感染患者住院，数据略有下降，同时有39 名患者处于重症监护状态。
+3月9日，据英国学术期刊《经济学人》报导，俄罗斯侵略乌克兰，中共国不予谴责，让立陶宛更清楚俄中两国存在威胁的相互关联性，未来无论哪一个政党执政，都难以在“台湾代表处”议题对北京让步。
 
-Omicron的BA.2子变体相较原始版本有许多突变，它具有在初始Omicron版本中未见的额外基因变化。马萨诸塞大学医学院的病毒学家 Jeremy Luban 博士表示，目前尚不清楚这些突变有多么重要，尤其是在先前遭遇原始 Omicron 的人群当中。
+台湾驻立陶宛代表黄钧耀告诉《经济学人》，对西方民主国家而言，像立陶宛这样的小国家能挺住风暴，意义非常深远。
 
-根据英国和丹麦的早期研究，BA.2 的传播能力比最初的 Omicron 变体 BA.1 还要高出约 30%。尽管全球范围内的 COVID-19 病例一直在下降，但由 BA.2 引起的病例的相对比例一直在增加。与 BA.1 毒株一样，BA.2 也具有帮助它摆脱疫苗和大多数单克隆抗体治疗的一些特性。
+立陶宛与中共国的关系，因为立陶宛去年率先宣布退出中共国与中东欧国家的17+1互动机制，在5G基础建设上排除中国电信巨擘华为，允许台湾成立“台湾代表处”等事件而导致恶化。随即中共以政治、经贸手段胁迫报复立陶宛，包括技术阻挠双边进出口贸易、施压欧盟各国企业将立陶宛排除于供应链之外等。
 
-新闻参考链接：
+《经济学人》指出，立陶宛近年来对中共国的立场趋于强硬，中共拒绝谴责俄罗斯侵略乌克兰，更触动曾遭苏联占领近50年的立陶宛等波罗的海国家的敏感神经。其中，立陶宛同时与两个极权国家俄罗斯及白俄罗斯为邻，这次俄罗斯更是借道白俄罗斯入侵乌克兰。
 
-[Explainer: What we know about BA.2 variant, the ‘stealth’ version of Omicron](https://www.9news.com.au/health/explainer-what-we-know-about-ba2-variant-stealth-version-of-omicron/f475a14d-edba-4fe4-b521-a7c1eb7ca0f7)
+即使立陶宛、爱沙尼亚、拉脱维亚等波罗的海国家已在2004年加入北大西洋公约组织（NATO），它们仍担忧俄罗斯总统普京将力图收回曾被苏联占领的土地。在这样的情况下，北京与莫斯科交好显然只会恶化中共国在立陶宛的形象。
 
-[NSW COVID-19 cases tipped to double in weeks as Omicron sub-variant spreads](https://www.9news.com.au/national/coronavirus-australia-updates-covid-19-cases-spike-in-nsw-numbers-around-australia/e9f6f97f-1ff7-41a3-8228-0fda8bbc8bb6)
+尤其是中共国与俄罗斯的安全合作更让立陶宛警惕，2017年俄中首度在波罗的海举行海军联合演习，中共当时出动旅洋级导弹驱逐舰等先进军备，其舰船停泊在紧邻立陶宛的俄罗斯飞地加里宁格勒州，那里有俄罗斯波罗的海舰队基地和指挥总部。
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+维尔纽斯大学国际关系副教授安卓约斯卡斯说：“我们越来越不会把中国和俄罗斯的作为分开来看。”
+
+曾访问台湾、因为批判北京践踏人权而遭中共列入黑名单的立陶宛在野社会民主党国会议员萨卡利埃内认为，台湾代表处改名的机率很低，“中国的施压胁迫已让这条路行不通”。俄罗斯入侵乌克兰也让立陶宛政坛更加意识到，向威权流氓低头的危险性。
+
+原文链接：[中共支持俄入侵乌克兰让立陶宛更不会让步](https://www.cna.com.tw/news/aopl/202203090435.aspx)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
