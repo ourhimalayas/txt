@@ -2,30 +2,22 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月10日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2138467/)
+## 乌克兰注定成为普京的滑铁卢
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2138609/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-3.jpg)
+采编撰稿：加拿大温哥华杨帆农场 – 自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-988.png)图片来源：每日邮报
+据&lt;每日邮报&gt;3月7日报道，英国的军事专家认为，俄罗斯对乌克兰所采取的军事入侵战略极不明智，俄军当前的拙劣作战表现，标志着普京掌权时代的即将终结。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-1-2.png)
-文章仅代表作者本人观点，与Gnews无关
+报道指出，出兵攻占乌克兰是普京致命的战略失误，并完全低估了乌克兰人民的顽强战斗力和国内外各方势力的抵抗。目前，俄军首尾难顾，补给缺乏，举步维艰。恼羞成怒之下的无差别狂轰滥炸，已导致成千上万平民死亡，数百万人成为战争难民，乌克兰政府存在每一天，都标志着该国的政治胜利和普京的绝望堕落。
 
-视频参看：
-[2022.03.10早 《NFSC新闻》](https://gettr.com/streaming/pz8oymd954)
-[2022.03.10早 G|TV《新闻访谈》](https://gettr.com/streaming/pz8ietfbdf)
+评论指出：普京原本试图利用中共同时入侵台湾之际，迅速占领乌克兰以重置冷战后由俄罗斯控制的欧洲架构。但事与愿违，习近平的临阵毁约，最终演变成普习独裁者自己的灭顶之灾。讽刺的是，五十年前的史诗级电影&lt;滑铁卢战役&gt;就拍摄于乌克兰。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-10.jpeg)
+发稿：青青
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接：https://www.dailymail.co.uk/news/article-10585727/After-Putin-finished-Military-experts-say-Russian-leader-estimated-Ukraine.html
 
  
 

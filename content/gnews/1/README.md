@@ -2,22 +2,12 @@
 ---
 
 
-## 乌克兰注定成为普京的滑铁卢
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2138609/)
+## 3月9日文贵大直播要点（图片1-5）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2138643/)
 
-采编撰稿：加拿大温哥华杨帆农场 – 自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-988.png)图片来源：每日邮报
-据&lt;每日邮报&gt;3月7日报道，英国的军事专家认为，俄罗斯对乌克兰所采取的军事入侵战略极不明智，俄军当前的拙劣作战表现，标志着普京掌权时代的即将终结。
-
-报道指出，出兵攻占乌克兰是普京致命的战略失误，并完全低估了乌克兰人民的顽强战斗力和国内外各方势力的抵抗。目前，俄军首尾难顾，补给缺乏，举步维艰。恼羞成怒之下的无差别狂轰滥炸，已导致成千上万平民死亡，数百万人成为战争难民，乌克兰政府存在每一天，都标志着该国的政治胜利和普京的绝望堕落。
-
-评论指出：普京原本试图利用中共同时入侵台湾之际，迅速占领乌克兰以重置冷战后由俄罗斯控制的欧洲架构。但事与愿违，习近平的临阵毁约，最终演变成普习独裁者自己的灭顶之灾。讽刺的是，五十年前的史诗级电影&lt;滑铁卢战役&gt;就拍摄于乌克兰。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-原文链接：https://www.dailymail.co.uk/news/article-10585727/After-Putin-finished-Military-experts-say-Russian-leader-estimated-Ukraine.html
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/03/BD04950B-9E3C-4620-9D96-FCB8B81065AF.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/9CF0C0EE-619B-49C2-9257-0E37EECFF3B2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/256CF79D-2570-4A87-B276-90FE50E971A0.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/285EB920-8D91-4E69-8D0D-A801F6372190.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/05A70884-4BCD-483B-BF67-D00BE5542177.jpeg)
+发布：水涨船高
 
  
 
