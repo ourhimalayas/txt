@@ -2,13 +2,11 @@
 ---
 
 
-## 中共谎言被戳穿 苏梅地区仍有留学生未被救出
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2134478/)
+## 3/9/2022 文贵直播：新中国联邦的战友们不顾寒冷，在第一时间到达波兰梅迪卡，无私地帮助难民和拯救世界
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2134580/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220310-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

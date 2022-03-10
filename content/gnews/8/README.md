@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯各地数千人在反战抗议活动中被捕
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134347/)
+## 平民在俄军向基辅挺进的炮火中逃离
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134372/)
 
-03/07/2022 据人权监督组织称，俄罗斯各地数千人在反战抗议活动中被捕
+03/07/2022 随着普京的部队继续向乌克兰首都推进，俄军的攻势在基辅北部持续进行。家庭和儿童不得不在纷飞的战火中逃离。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
