@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 10:28 AM (UTC)`
+
+
+![img](https://media.gettr.com/group13/origin/2022/03/10/10/56c04704-2c07-0412-0844-4ceff83a507b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/10/2022 8:11 AM (UTC)`
 
 
@@ -146,13 +153,6 @@
 
 3/9/2022 Miles Guo: Here are the three major events coming next -  1) There will be a lot of good news for the Himalaya Coin; 2) our new media platform will bring about more miracles; and 3) vaccine manufacturers like Pfizer will be brought to justice by the entire humanity. The CCP will be subject to more severe sanctions than Russia. Citizens of the New Federal State of China will be respected by the whole world.<br/><br/>3/9/2022 文贵直播：接下来的三件大事 - 1) 喜币会有很多好消息; 2) 新媒体平台会诞生更多奇迹；3) 辉瑞等疫苗厂商会被全人类审判；中共将受到比俄罗斯更大的制裁；新中国联邦人将得到全世界的尊重<br/>
 ![img](https://media.gettr.com/group40/getter/2022/03/09/22/ac1a1be7-c8e0-a143-83f3-5975f956f01d/out.jpg)
-
----
-
-`@miles 3/9/2022 10:16 PM (UTC)`
-
-3/9/2022 Miles Guo: The dilemma of Russia's invasion of Ukraine is intensifying the CCP’s ambition to confront the West; the CCP will wage energy and regional wars in the Middle East and elsewhere between late March and April this year; Taiwan is still in grave danger; why the CCP has stored up grains for 2.5 year supply?<br/><br/>3/9/2022 文贵直播：俄乌战争困境加剧中共对抗西方的野心；中共将在三月底到四月之间，在中东和其他地区发动能源和区域性战争，台湾依然深处危机; 中共为什么要储备两年半的粮食？<br/>
-![img](https://media.gettr.com/group13/getter/2022/03/09/22/bc5044c7-7fcb-c202-d2f9-f0265dcd6470/out.jpg)
 
 ---
 
