@@ -2,18 +2,18 @@
 ---
 
 
-## 中共两会｜国防部：对“台独”行径绝不姑息 民进党是动荡的根源
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2136015/)
+## 俄乌战争｜美众议院通过俄罗斯石油禁令及拨款136亿美元援助乌克兰
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2135831/)
 
 **撰文/ 港台前线｜发布日期/ 10/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/國防部：對台獨行徑絕不姑息-民進黨是動盪的根源.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/美眾議院通過俄羅斯石油禁令及撥款136億美元援助烏克蘭.jpg)
 **更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-十三届全国人大五次会议解放军和武警部队代表团发言人吴谦，在回应政府工作报告时批评，台湾民进党勾结外部势力，进行谋“独”挑衅，是造成当前台海局势紧张且动荡的根源。
+美国国会众议院周三（9日）以414票对17票通过禁止美国进口俄罗斯石油和其他能源产品的法案，该禁令将在签署成为法律后的45天内生效，不过它有一条补充条款，即允许总统在“符合国家利益”的情况下进口某些产品，但须经国会审查。
 
-他表示，中共坚决反对“台独”，并反对外部势力干涉，，坚持“和平统一、一国两制”的方针，美日试图通过打“台湾牌”，实现“以台制华”的政治图谋，注定难以成真；解放军对台独分裂行径和外部势力干涉，绝不姑息、绝不容忍、露头就打。
+另外，众议院还同时批准向乌克兰提供136亿美元的紧急援助，用于加强乌克兰军力及向平民提供人道救助。两项决议罕见均获民主、共和两党共识，两党议员还要求当局对俄罗斯入侵乌克兰进行更严厉的惩罚。
 
-来源｜[文汇报](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;cad=rja&amp;uact=8&amp;ved=2ahUKEwjdkfjN9rr2AhVnJkQIHVX5ACAQxfQBKAB6BAgEEAI&amp;url=https%3A%2F%2Fwww.wenweipo.com%2Fa%2F202203%2F10%2FAP62296b7be4b036dce99cde99.html&amp;usg=AOvVaw1oEB80jBu0Sw9wAoA4NrV3)
+来源｜[路透社](https://www.reuters.com/world/us/us-congress-reaches-govt-spending-deal-including-136-bln-ukraine-2022-03-09/)
 
  
 
