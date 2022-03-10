@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 12:43 PM (UTC)`
+
+【Ukrainian Rescue】03/09/22 Volunteer of NFSC & ROL Foundation Ukraine Rescue Operation interview a Germany musician who plays piano for the refugees at a rescue station in Medyka by the Ukraine/Poland border <br/><br/>【乌克兰救援】03/09/22新中国联邦和法治基金救援行动志愿者采访在乌波边境梅迪卡救助站为难民演奏的德国钢琴家<br/>
+![img](https://media.gettr.com/group9/getter/2022/03/10/12/82b86d81-5426-f792-7ba8-14557d925c04/out.jpg)
+
+---
+
 `@miles 3/10/2022 12:20 PM (UTC)`
 
 3月10号：尊敬的战友们好．我发出乌克兰悉尼协会关于．新中国联邦拯救乌克兰儿童的置顶的报道后，中国共产党疯狂的给乌克兰政府施压，随后悉尼乌克兰协会的救援信息就删除了．共产党是多么的怕我们！五年前所有欲强加给我们的恐惧．正在百倍万倍的轮回给共产党！共产党，你完了👉中南坑的老杂毛们……你们彻底的完了！你们会非常极端的痛苦的遭受……我们对你的折磨👉😹😹😹😹😹😹😹【悉尼乌克兰协会的救援信息已经删除，ccp这么快就施压了。】
@@ -148,13 +155,6 @@
 
 3/9/2022 Miles Guo: the NFSC Ukraine rescue team has received great assistance from local Ukrainian and Polish volunteers; the rescue team has been granted the filming permit from local Polish government; Kamel told his story of his participation in the rescue team as a Ukrainian volunteer<br/><br/>3/9/2022  文贵直播：新中国联邦乌克兰救援团队得到了乌克兰和波兰本地志愿者的大力帮忙；救援队获得当地拍摄和采访许可；乌克兰志愿者Kamel讲述他参加到救援队的经历
 ![img](https://media.gettr.com/group31/getter/2022/03/10/00/c8c6d234-b907-22bd-4f23-fcd30279dd5c/out.jpg)
-
----
-
-`@miles 3/10/2022 12:01 AM (UTC)`
-
-2022.03.09 NFSC News    NFSC rescued more than 200 people from Ukraine； Information of NSFC’s Ukraine Humanitarian Rescue
-![img](https://media.gettr.com/group36/origin/2022/03/09/23/c901f1fb-7d02-c544-d71c-8b645000a81b/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

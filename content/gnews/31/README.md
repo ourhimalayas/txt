@@ -2,18 +2,26 @@
 ---
 
 
-## 中共两会｜国防部：对“台独”行径绝不姑息 民进党是动荡的根源
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2136015/)
+## 美国将“关闭”违反对俄出售芯片禁令的中共国芯片制造商
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2136044/)
 
-**撰文/ 港台前线｜发布日期/ 10/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/國防部：對台獨行徑絕不姑息-民進黨是動盪的根源.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5F5B24E4-C0D3-4681-9437-32EDF367637C_w1023_r1_s.jpg)图片来源：美国之音
+据美国之音3月10日报道，在美国及其盟友采取行动阻止俄罗斯获得芯片的几天后，美国商务部长雷蒙多在接受采访时表示，如果中共国的企业违反对俄罗斯出售芯片和其他先进技术的禁令，美国将切断它们生产其产品所需的美国设备和软件的供应，“实质上关闭”中共国主要的芯片制造商中芯国际（SMIC）。
 
-十三届全国人大五次会议解放军和武警部队代表团发言人吴谦，在回应政府工作报告时批评，台湾民进党勾结外部势力，进行谋“独”挑衅，是造成当前台海局势紧张且动荡的根源。
+在入侵乌克兰之前，俄罗斯大部分的芯片来自中共国。如果有关公司绕开针对俄罗斯的新出口限制，美国将把这些公司列入贸易黑名单。美国正在加大努力，阻止种类繁多的技术进入上个月入侵乌克兰的俄罗斯。
 
-他表示，中共坚决反对“台独”，并反对外部势力干涉，，坚持“和平统一、一国两制”的方针，美日试图通过打“台湾牌”，实现“以台制华”的政治图谋，注定难以成真；解放军对台独分裂行径和外部势力干涉，绝不姑息、绝不容忍、露头就打。
+白宫发言人莎琪7日在发布会上也表示，如果中共国不遵守对俄罗斯的制裁，美国有采取行动的手段，目前美国也看到中共国在遵守已经制定的制裁。对此雷蒙多表示，中共国是出于自身利益而遵守这些制裁的，他们这样做并不是出于好心。它将对中共国生产芯片的能力造成毁灭性的打击。 新闻参考链接：[https://www.voachinese.com/a/us-china-russia-sanctions-20220309/6477610.html](https://www.voachinese.com/a/us-china-russia-sanctions-20220309/6477610.html)
 
-来源｜[文汇报](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;cad=rja&amp;uact=8&amp;ved=2ahUKEwjdkfjN9rr2AhVnJkQIHVX5ACAQxfQBKAB6BAgEEAI&amp;url=https%3A%2F%2Fwww.wenweipo.com%2Fa%2F202203%2F10%2FAP62296b7be4b036dce99cde99.html&amp;usg=AOvVaw1oEB80jBu0Sw9wAoA4NrV3)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
