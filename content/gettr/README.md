@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 11:05 PM (UTC)`
+
+3/9/2022 Miles Guo: “Chained Dream” is a masterpiece of Tang Ping and William Wong. This song can do far more harm to the CCP than missiles and has opened the door for the Chinese women to let the sun shine into the darkness, indicating the tremendous power of social media and music. Singing “Chained Dream” has so far given me the most sense of achievement apart from taking down the CCP.<br/><br/>3/9/2022 文贵直播：《铁锁梦》是唐平和威廉王的人生巨作，这首歌对中共的杀伤力远超导弹，它为中国女性打开了阳光之门，体现出了社交媒体和音乐的巨大力量！演唱《铁锁梦》是除了灭共以外迄今最让文贵有成就感的事！<br/>
+![img](https://media.gettr.com/group33/getter/2022/03/10/23/cc28c083-6c06-61d1-667b-a13dd1a9499e/out.jpg)
+
+---
+
+`@miles 3/10/2022 10:58 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特别节目 2022-03-10
+![img](https://media.gettr.com/group17/origin/2022/03/10/22/896920cc-9c81-638f-e636-44aa9999aebd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/10/2022 10:45 PM (UTC)`
 
 3/9/2022 Miles Guo: The COVID vaccine disaster will be the most terrible thing. The essence of the Russia-Ukraine war is the war between the US and the CCP, with the Chinese people being sacrificed. I strongly recommend that fellow fighters in Communist China download and use the Himalaya Pay ASAP to save yourselves in the war!<br/><br/>3/9/2022 文贵直播：最恐怖的将是疫苗灾难；俄乌之战的本质是美中的战争，中国人是战争中的牺牲品；文贵建议国内战友们尽快下载和使用喜支付以在战争中自救！<br/>
@@ -144,22 +158,6 @@ The New Federal State of China and Rule of Law Foundation would like to find the
 
 【Ukraine Rescue】03/08/2022  Interviewing Peter, a German doctor from International medical team: I hope all the Chinese people will be like the people of the New Federal State of China, for their views and actions.  China and the traditional culture were destroyed by CCP. CCP doesn’t represent China, nor the Chinese people and the culture. <br/><br/>【乌克兰救援】03/08/2022 采访国际医疗救援队的德国医生彼得：希望以后所有的中国人都能够像此时此刻他看到的新中国联邦人一样。中国和中国的传统文化就是被共产党破坏了，中共不代表中国，更不代表中国人和中国人的文化。
 ![img](https://media.gettr.com/group50/getter/2022/03/10/12/f534a8e3-1fec-ddb1-7480-ee17457b163e/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@20minfocus 3/10/2022 11:45 AM (UTC)`
-
-小提琴老师 #Hannah 听到100名儿童在西班牙安顿好之后，刚成为母亲的她，再次为 #新中国联邦人正义的救援行动 感动，送给新中国联邦所有参与救援的志愿者一首曲子。<br/><br/>#Hannah -a violinist has just become a mother. After she heard that 100 children were settled safely in Spain, she was moved again by the #NFSC’s brave rescue action and contributed a violin piece she played to all the volunteers who have participated in the rescue action.
-![img](https://media.gettr.com/group37/getter/2022/03/10/11/e38505fe-a452-a616-04b4-5cd9157f7ea3/out.jpg)
-
----
-
-`@miles 3/10/2022 11:03 AM (UTC)`
-
-【Ukrainian Rescue】03/09/22 NFSC & ROL Foundation Ukraine Rescue Operation set up a rescue station in Medyka by the Ukraine/Poland border, and has successfully rescued hundreds of refugees out of Ukraine<br/><br/>【乌克兰救援】03/09/22新中国联邦和法治基金救援行动在乌波边境梅迪卡设立救助站并已成功营救出数百位难民<br/><br/>
-![img](https://media.gettr.com/group12/getter/2022/03/10/11/4be27f34-586c-21b0-f8c2-b3ebdc36a5a1/out.jpg)
 
 ---
 
