@@ -2,30 +2,25 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月10日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2138467/)
+## 视频|壳牌公司宣布将退出所有俄罗斯石油、天然气业务并停止采购俄国石油
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2138574/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-3.jpg)
+制作：香草山视频部
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-1-2.png)
-文章仅代表作者本人观点，与Gnews无关
+**當地时间****8****日，****知名石油公司****壳牌****于****官网发出公告，表示将有阶段性的退出所有在俄罗斯的石油、石油产品、天然气、液化天然气等业务，并停止采购俄罗斯石油。此外，壳牌将关闭在俄罗斯的加油站、航空燃料及润滑油业务。。**
 
-视频参看：
-[2022.03.10早 《NFSC新闻》](https://gettr.com/streaming/pz8oymd954)
-[2022.03.10早 G|TV《新闻访谈》](https://gettr.com/streaming/pz8ietfbdf)
+**壳牌公司发表声明，称“公司意识到上周购买的一批俄罗斯原油，以提练成汽油和柴油等产品….这是不正确的….并将提供一个专门的基金在未来几天和几周内与援助伙伴、人道主义机构合作，确保用于减轻俄乌战争带给乌克兰人民的可怕后果。”**
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-10.jpeg)
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
 **更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
