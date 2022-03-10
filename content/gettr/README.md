@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 12:01 AM (UTC)`
+
+2022.03.09 NFSC News    NFSC rescued more than 200 people from Ukraine； Information of NSFC’s Ukraine Humanitarian Rescue
+![img](https://media.gettr.com/group36/origin/2022/03/09/23/c901f1fb-7d02-c544-d71c-8b645000a81b/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/9/2022 11:33 PM (UTC)`
 
 3/9/2000  Miles Guo: the NFSC Ukraine rescue team has received great assistance from local Ukrainian and Polish volunteers; the rescue team has been granted the filming permit from local Polish government; Kamel told his story of his participation in the rescue team as a Ukrainian volunteer<br/><br/>3/9/2022  文贵直播：新中国联邦乌克兰救援团队得到了乌克兰和波兰本地志愿者的大力帮忙；救援队获得当地拍摄和采访许可；乌克兰志愿者Kamel讲述他参加到救援队的经历<br/>
@@ -147,13 +154,6 @@
 
 3月8号：衷心地感谢所有的朋友帮助寻找这个孩子，如果这个孩子需要任何的帮助，请一定和我们联系，我们愿意为这个孩子提供一切可能的帮助！如果需要和我本人联系请在这个的发文的，下面给我留言和留下联络方式，我们马上会和你们联系。🙏🙏🙏🙏🙏🙏🙏🙏🙏 March 8: I sincerely thank all my friends for helping to find this child. If this child needs any help, please contact us. We are willing to provide this child with all possible help!  If you need to contact me, please post here, leave a message and contact information below, and we will contact you immediately.  🙏🙏🙏🙏🙏🙏🙏🙏🙏
 ![img](https://media.gettr.com/group39/getter/2022/03/09/04/32054710-fb43-75a3-a571-b914c623f348/f1b2af283429d7c1bed4887fa1a84bff.jpg)
-
----
-
-`@miles 3/9/2022 2:15 AM (UTC)`
-
-2022.03.08 晚《新中国联邦新闻访谈》俄乌战争进展； 新中国联邦法治基金欧洲大营救； 3.8 节再议“锁链女”
-![img](https://media.gettr.com/group29/origin/2022/03/09/02/10023b72-3c9d-32e2-ec47-6b6e8a712298/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
