@@ -2,48 +2,46 @@
 ---
 
 
-## 俄罗斯入侵乌克兰战争第14 天- -挖万人坑；撤离的孕妇
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2138158/)
+## 拜登签署研发美国央行数字货币的行政命令
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2138506/)
 
-【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GettyImages-1222294839-scaled-e16468620335283.jpg)网络图片
+日本《共同社》2022年3月9土耳其安塔利亚报道，美国总统乔![]()拜登于周三签署一项行政命令，要求美国政府通过评估美国央行数字货币(CBDC)的风险和收益，研究发行该数字货币的可行性。
 
-俄罗斯入侵乌克兰的第14 天发生了更多的流血和破坏，因为无情的攻击迫使更多的乌克兰居民逃离。美联社摄影师拍摄的照片显示，一些难民从一座临时搭建的桥上滑溜溜的木板撤离——乌克兰人几天前炸毁了从乌尔平镇通往基辅首都的混凝土道路，以减缓俄军的进攻。
+宣布这一消息时，已有100多个国家正在探索或试点央行数字货币，在推行国家主权货币数字形式的全球竞赛中，中共国被认为在主要经济体中处于领先地位。
 
-其他图片显示一名军事牧师试图安慰一名哭泣的女人；将居民运送到安全地带的军用车辆车队；以及坐在或站在疏散巴士上的焦急难民，他们的脸上表现出震惊、悲伤和无奈。
+在该行政命令中，拜登列出了处理数字资产的关键优先事项，如消费者和投资者保护、金融稳定、通过数字资产减少非法金融活动，以及促进美国在全球金融体系中的领导地位。
 
-虽然俄罗斯军队没有表现出撤退的迹象，但地面上的乌克兰战士发誓不会让步。
+白宫表示，财政部和其他机构将制定政策建议，以解决日益增长的数字资产领域和金融市场变化对诸如消费者和企业的影响，并着眼于公平的经济增长。
 
-以下是乌克兰战区一些照片：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image004-1.jpg)
-在被围困的乌克兰马里乌波尔港，蒙面工人将尸体简单处理，埋入一条 25 英尺长的壕沟，该壕沟在俄罗斯军队的持续炮击中仓促挖掘。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image006-2.jpg)2022 年3 月9 日，星期三，乌克兰的马里乌波尔，乌克兰急救人员和志愿者从一家妇产医院抬着一名受伤的孕妇，该医院因炮击而受损。（美联社照片/Evgeniy Maloletka）
-在城市的其他地方，四名男子冲出一家严重受损的妇产医院，用担架运送一名流血的孕妇。另一名身穿睡衣、脸上有伤口的孕妇小心翼翼地走下一个布满碎片的楼梯，而在院子里，紧急救援人员在一片荒凉的风景中穿行，那里到处都是破损的汽车和被炸裂的窗户玻璃碎片.
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image008-2.jpg)2022 年3 月9 日，星期三，在乌克兰基辅的一个分流点，一名军事牧师试图安慰一名从Irpin 撤离的哭泣妇女。（美联社照片/Vadim Ghirda）![](https://assets.gnews.org/wp-content/uploads/2022/03/image010-2.jpg)2022 年3 月9 日，星期三，乌克兰急救人员在乌克兰马里乌波尔的一家妇产医院工作。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image013.jpg)2022 年3 月9 日，星期三，一名乌克兰军人在乌克兰基辅郊区的Irpin 看着接近的车辆时采取射击姿势。（美联社照片/Vadim Ghirda）![](https://assets.gnews.org/wp-content/uploads/2022/03/image014.jpg)2022 年3 月9 日，星期三，乌克兰人从乌克兰基辅郊区的Irpin 撤离时进入公共汽车。（美联社照片/Felipe Dana）![](https://assets.gnews.org/wp-content/uploads/2022/03/image016.jpg)2022 年3 月9 日，星期三，一名从乌克兰首都周边地区撤离的妇女在抵达乌克兰基辅的一个分流点后拿着一盘食物。（美联社照片/Vadim Ghirda）![](https://assets.gnews.org/wp-content/uploads/2022/03/image018.jpg)2022 年3 月9 日，星期三，在乌克兰基辅郊区的Irpin 撤离平民的车队离开时，汽车驶过一辆被摧毁的俄罗斯坦克。（美联社照片/Vadim Ghirda）![](https://assets.gnews.org/wp-content/uploads/2022/03/image020.jpg)2022 年3 月9 日，星期三，一名妇女在乌克兰马里乌波尔被炮击损坏的妇产医院外走。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image022.jpg)2022 年3 月9 日，星期三，从邻国乌克兰逃离战争的人们睡在波兰普热梅希尔的普热梅希尔火车站。（美联社照片/丹尼尔科尔）![](https://assets.gnews.org/wp-content/uploads/2022/03/image024.jpg)2022 年3 月9 日，星期三，一名男子在乌克兰马里乌波尔的一栋被炮击损坏的公寓楼前骑自行车。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image026.jpg)2022 年3 月9 日，星期三，一名受伤的孕妇在乌克兰马里乌波尔的一家妇产医院走下楼，该医院因炮击而受损。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image028.jpg)2022 年3 月9 日，星期三，乌克兰人在乌克兰基辅郊区逃离Irpin 时，穿过一座被毁坏的桥下的临时小路。（美联社照片/Felipe Dana）![](https://assets.gnews.org/wp-content/uploads/2022/03/image030.jpg)2022 年3 月9 日，星期三，乌克兰领土防御部队成员在乌克兰基辅郊区训练使用NLAW 反坦克武器。（美联社照片/Efrem Lukatsky）![](https://assets.gnews.org/wp-content/uploads/2022/03/image032.jpg)2022 年3 月9 日，星期三，一名男子带着他的孩子离开乌克兰马里乌波尔一家受损的妇产医院。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image035.jpg)2022 年3 月9 日，星期三，在乌克兰基辅郊区逃离Irpin 时，一名儿童被推着婴儿车穿过临时路径。（美联社照片/Felipe Dana）![](https://assets.gnews.org/wp-content/uploads/2022/03/image037.jpg)2022 年3 月9 日，星期三，人们在乌克兰马里乌波尔郊区的井边排队取水。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image038.jpg)2022 年3 月9 日，星期三，乌克兰马里乌波尔发生炮击后，浓烟升起。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image040.jpg)2022 年3 月9 日，星期三，一名妇女在乌克兰马里乌波尔被炮击损坏的妇产医院外走。（美联社照片/Evgeniy Maloletka）
+该命令还鼓励美联储继续研究央行数字货币，包括制定一项支持其工作的政府行动计划，并寻求美国参与多国实验。
+
+白宫表示，这些努力旨在确保 “美国在国际上的领导地位，以促进符合美国优先和民主价值观的CBDC发展”。
+
+今年一月，美国央行表示，其正在就发行本国数字货币进行的讨论中迈出了“第一步”，因为它发布的一份报告称，潜在利益将包括帮助维护美元的国际主导地位。
+
+该报告是美联储的第一份此类报告，并未就推出央行数字货币做出结论，而是侧重于发行数字货币的利弊分析。
+
+中共国已经在试点使用数字人民币，这引起了美国一些专家的担忧，即世界第二大经济体的央行数字货币可能最终会削弱美元的主导地位。
+
+据白宫报告，包括加密货币在内的数字资产近年来呈爆炸式增长，已于去年十一月突破3万亿美元的市值，高于此前五年的140亿美元。
+
+简评：
+
+美国总统拜登正式签署研究数字货币可行性的行政命令，意味着全球第一大经济体也必须跟随世界潮流的发展，进入数字货币时代。还有另一重要原因，就是中共国已于2020年率先在深圳试点数字人民币，如果美国落后，将会严重影响美元的国际主导地位。以国家信用为背书的法币，因大量超发的货币，而面临即将到来的崩溃，目前各国的通货膨胀即是征兆。未来必将是法币和数字货币并行的时代。而由郭文贵先生设计，由喜马拉雅联储（HIMALAYA EXCHANGE）在2021年11月发行的喜币（HCN&HDO），以上市4个月就增长440倍的骄人业绩说明它一定会成为未来众多数字货币中的领导者和数字货币领域的规则制定者。
+
+新闻链接: [https://english.kyodonews.net/news/2022/03/45b7e707b479-biden-signs-order-to-explore-us-central-bank-digital-currency.html](https://english.kyodonews.net/news/2022/03/45b7e707b479-biden-signs-order-to-explore-us-central-bank-digital-currency.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
-[【援引连结】](https://apnews.com/article/russia-ukraine-kyiv-europe-0496e642a4a0d8d7d7fe900a8bcab2f1)
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

@@ -2,37 +2,38 @@
 ---
 
 
-## 多家国际知名媒体对新中国联邦救援团队进行拍摄采访
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2137702/)
+## 有声|妇女节当天世界为铁链女发声
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2138057/)
 
-【撰稿】香草山农场教育部——saner三二
+配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-乌克兰当地时间3月10日，位于波兰边境口岸梅迪卡（Medyka）的难民安置点，气温大约零下一度。新中国联邦救援团队的大型帐篷已于昨晚搭建完毕，新中国联邦的国旗飘扬在帐篷外，正位于国际媒体中心后，是任何媒体镜头都无法避开的醒目存在。
+3月8日国际妇女节当天，郭文贵先生在盖特平台上发布了歌曲《锁链梦》作为最特别的礼物，送给全天下的女性同胞。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-12.jpg)
+与此同时，墙内关注“锁链女”事件的民众也在盖特和其他社交媒体平台上为这些受害女性发声：有网友展示了自制的标语牌，其上写着锁链女那句被世界遗弃的悲凉语句，以及“关注女性儿童，关注未来”的呼吁；还有相关的歌曲唱出了民众希望救援这些受害女性的诉求。此外，有位作家发表文章称，她尝试佩戴了两个小时的自制锁链后，已经让她无法呼吸，但“锁链女”却被铁链禁锢了24年，这一难以承受的苦痛让这位作家潸然落泪。另有上海地区的学生身缠锁链作为行为艺术，向公众揭示“锁链女”事件。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_6740.jpg)
-
-据前线记者Nicole报道，其他国际组织的义工被新中国联邦救援团队的精神所感染，主动提供帮助，大家通力合作，仅用了3到4个小时就完成了帐篷的搭建。
-
-该帐篷面积为5乘10米，是整个难民安置点面积最大、最好、设施最现代化的救援帐篷，是刚下大巴车的乌克兰难民们第一个奔向的地点。帐篷内设有三个燃气炉24小时供难民取暖，并提供毛毯、瓶装水、食品、水果、巧克力等物资，还准备了给孩子的玩具。从昨晚帐篷搭建完毕起，许多老人、妇女、孩子，包括他们的宠物，都在此得到了很好的照顾和休息，不少难民久久不愿离开。
-
-新中国联邦的救援帐篷也吸引了许多国际媒体的注意。今早开始，来自美联社、彭博社、西班牙国际公益基金会等多家国际媒体的记者、摄影师就前来救援帐篷对新中国联邦救援团队进行拍摄、采访。在参观拍摄了帐篷内部的良好设施和前线义工们对于难民的热情帮助之后，记者们都称赞新中国联邦的救援行动“出色、专业”、“令人印象深刻”、“不可思议”。
-
-与此同时，记者们都急切地想知道“什么是新中国联邦”、“什么是法治基金”、“为什么在危险的战争前线突然出现一批如此专业、无私的中国救援者”。前线记者Nicole对媒体记者们的问题进行一一解答，采访结束后，多位记者衷心祝福新中国联邦取得成功。
-
-【新闻来源】波兰救援基地前线报道
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-- 审核/编辑/发稿:qiutian（邱甜）
+另一方面，锁链女的事件也在国际上引起了重大关注：近日，国际品牌在巴黎时装周上让模特戴着锁链走秀，表达出对锁链女的声援。
 
 
+
+文字版原文：[妇女节当天世界为铁链女发声](https://gnews.org/zh-hans/2132835/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

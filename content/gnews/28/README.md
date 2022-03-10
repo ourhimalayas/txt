@@ -2,37 +2,25 @@
 ---
 
 
-## 有声|妇女节当天世界为铁链女发声
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2138057/)
+## 中共国新增确诊病例再创下两年来新高纪录
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2138233/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月8日国际妇女节当天，郭文贵先生在盖特平台上发布了歌曲《锁链梦》作为最特别的礼物，送给全天下的女性同胞。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-12.jpg)
-与此同时，墙内关注“锁链女”事件的民众也在盖特和其他社交媒体平台上为这些受害女性发声：有网友展示了自制的标语牌，其上写着锁链女那句被世界遗弃的悲凉语句，以及“关注女性儿童，关注未来”的呼吁；还有相关的歌曲唱出了民众希望救援这些受害女性的诉求。此外，有位作家发表文章称，她尝试佩戴了两个小时的自制锁链后，已经让她无法呼吸，但“锁链女”却被铁链禁锢了24年，这一难以承受的苦痛让这位作家潸然落泪。另有上海地区的学生身缠锁链作为行为艺术，向公众揭示“锁链女”事件。
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-另一方面，锁链女的事件也在国际上引起了重大关注：近日，国际品牌在巴黎时装周上让模特戴着锁链走秀，表达出对锁链女的声援。
+据《大纪元》3月10日报道，在中共长期清零的政策下，中共国的本土疫情却一直没有断过，今年以来，确诊病例不减反增，近日的新增确诊病例再创下两年来新高纪录，且本土疫情的源头至今没有查出。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-111.jpg)图为2022年1月21日黄浦区昭通路居民区的情况（图片来自STF/AFP via Getty Images）
+据中共卫健委3月9日的数据显示，中共国内地单日累计新增确诊病例528例，其中新增本土确诊病例402例，新增本土无症状感染者435例，涉及吉林、广东、山东、江苏、上海、浙江等二十多个省市。相比7日单日累计新增确诊病例526例，再创近两年来单日新增确诊病例最高纪录。
 
+由于中共习惯隐瞒疫情真相，实际的感染人数可能比官方公布的数据还多。
 
+报道称，自2019年年末湖北武汉爆发中共病毒以来，中共采取了严厉的“清零”政策，之后又采取“动态清零”。中共一度向外界宣传其清零政策如何成功，然而中共国的本土疫情却一直没有断过，而且一些本土确诊者的感染源仍然是谜。
 
-文字版原文：[妇女节当天世界为铁链女发声](https://gnews.org/zh-hans/2132835/)
+参考链接：
+1.[https://www.epochtimes.com/b5/22/3/10/n13636238.htm](https://www.epochtimes.com/b5/22/3/10/n13636238.htm)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+素材采编：幽蘭自得
+总编：老孙
+校对发布：爱放飞
 
  
 

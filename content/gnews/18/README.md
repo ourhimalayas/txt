@@ -2,30 +2,27 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月10日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2138467/)
+## 视频|欧盟力争今年将对俄罗斯的天然气依赖度降低近八成
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2138606/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-3.jpg)
+制作：香草山视频部
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-1-2.png)
-文章仅代表作者本人观点，与Gnews无关
+**3****月****8****日，欧盟委员会****3****月****8****日提出一份新的能源战略，争取在今年将对俄罗斯天然气的进口需求减少近****80%****，在****2030****年前彻底脱离对俄罗斯的天然气和化石能源供应的依赖。**
 
-视频参看：
-[2022.03.10早 《NFSC新闻》](https://gettr.com/streaming/pz8oymd954)
-[2022.03.10早 G|TV《新闻访谈》](https://gettr.com/streaming/pz8ietfbdf)
+**在能源安全辩论中，欧盟委员会建议成员国从现在就开始储存明年的能源。在天然气供应方面，欧盟将进口更多的液化天然气，增加来自俄罗斯以外的管道供应，同时推动可再生能源的普及并提高能源效率，减少对天然气的依赖。**
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+**欧盟各国的部长们一直在讨论跟随欧盟禁止从俄罗斯进口石油，但没有明确的共识。德国总理奥拉夫·肖尔茨表示，俄罗斯的供应目前仍然是 “必要的”。逐步淘汰俄罗斯石油和煤炭可能比天然气更简单，因为欧盟有更广泛的替代供应商可以提供帮助。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-10.jpeg)
+发稿：Daxia
+
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
 **更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
