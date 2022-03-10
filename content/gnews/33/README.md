@@ -2,20 +2,26 @@
 ---
 
 
-## 批评亚伦•罗杰斯没有接种新冠疫苗的教练得了血栓之后，两个脚趾截肢
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2139659/)
+## 秘翻在线: 中共运8反潜机近日在演习中坠海
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2139673/)
 
-#### 翻译                          意大利达芬奇农场                    小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-10-alle-18.40.00.png)图片来源：eventiavversinews.it
-杰克逊州立大学教练迪昂•桑蒂斯透露， 他在经历了三个具有生命危险的血栓后接受了左脚两个脚趾的截肢手术。2021年11月，桑德斯批评亚伦•罗杰斯（Aaron Rodgers）决定不接种新冠疫苗， 桑蒂斯说：“你是领袖，你的团队中的大多数人，85%或90%都接种了疫苗，”
+撰稿：西枫westca
 
-桑蒂斯在密西西比州的一家医院住院三周，被切除了左脚的大脚趾和第二脚趾。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-6.jpg)图片来源：网络照片
+据三立新闻网3月9日报道， 来自中共的一架运8反潜机近日在南海坠海意外。中共选在邻近海域发布禁航区从事搜救及军事训练，目的是在全球降低关注南海之际，测试美国及其他南海各国底线。
 
-桑德斯在轮椅上度过了2021年赛季的最后一段时间，当时诊断结果是血栓，他有膝盖以下截肢的风险。桑蒂斯说“ 最难的是你曾经是个运动员”，“现在你甚至不知道你是否还能走路，你只是感到疼痛，你只是想出院， 你只是想出去”。桑蒂斯对《今日美国》报记者说：“这是一个漫长的旅程，但是我在这儿，我很感恩 。”
+中共在俄乌之间均存有战略利益，随着战事的发展，中共基于国际秩序巨变、全球经济震荡，恐冲击其维稳大局，现表露态度愿与国际社会共同斡旋的立场； 同时，中共仍有意利用俄乌战事之际，持续对台政经打压、军事胁迫、统战渗透等手段，图谋耗损台湾国防资源、分化官民和谐、打击民心士气等目的。
 
-原文链接：[https://www.eventiavversinews.it/lallenatore-che-ha-criticato-aaron-rodgers-per-non-aver-ricevuto-il-vaccino-ha-avuto-due-dita-amputate-a-seguito-di-coaguli-di-sangue/](https://www.eventiavversinews.it/lallenatore-che-ha-criticato-aaron-rodgers-per-non-aver-ricevuto-il-vaccino-ha-avuto-due-dita-amputate-a-seguito-di-coaguli-di-sangue/)
+另据美国情报界3月8日预测，中国今年将增加在台湾周围的军事活动，并试图对台湾政府施加更大的压力，以侵蚀其政治主权。 并迫使邻国默许北京的偏好，包括其领土和海洋主张以及对台湾的主权主张。
 
-编辑、上传： Xiao  baige
+战争没有赢家，受害的终究是老百姓。任何挑起战争的一方都是人类文明的罪犯。 民主社会不能容忍以武力破坏任何一个国家的领土、主权完整。
+
+**新闻来源：**
+
+[西南空域天天擾台！國安局首證實：解放軍機運-８墜落南海 | 政治 | 三立新聞網 SETN.COM](https://www.setn.com/News.aspx?NewsID=1082719&amp;from=y)
+
+[China to increase military aggression around Taiwan: US intelligence report | Taiwan News | 2022-03-09 12:59:00](https://www.taiwannews.com.tw/en/news/4466575)
 
  
 
