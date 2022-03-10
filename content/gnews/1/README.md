@@ -2,10 +2,10 @@
 ---
 
 
-## 蓬佩奥：俄罗斯意欲摧毁乌克兰人民的斗志
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134232/)
+## 乌克兰哈尔科夫的学校被俄罗斯炸弹轰炸
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134360/)
 
-03/07/2022 前国务卿迈克·蓬佩奥对布林肯国务卿承认俄罗斯战争罪行的可信报告进行了评述。他还认为，俄罗斯正试图摧毁乌克兰人民的战斗意志。
+03/08/2022 乌克兰第二大城市哈尔科夫的学校和幼儿园也成了俄罗斯炸弹摧毁的目标。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国对俄入侵乌克兰作何反应？
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134036/)
+## 【乌克兰救援】被新中国联邦和法治基金救援的中国男士及其乌克兰夫人讲述是如何同我们取得联系的。
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134105/)
 
-03/08/2022 中共国对俄入侵乌克兰作何反应？
+03/08/22 被新中国联邦和法治基金救援的中国男士及其乌克兰夫人讲述是如何同我们取得联系的。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
