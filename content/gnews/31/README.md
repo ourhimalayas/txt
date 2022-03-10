@@ -2,47 +2,39 @@
 ---
 
 
-## 美国FDA收了辉瑞多少钱？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2133986/)
+## 俄罗斯国内反战抗议活动持续，4300多人遭拘留
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2134010/)
 
-翻译：不要代表我Kari
-编辑：守望黎明
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+据一个独立的抗议监督组织称，过去的这个周日在俄罗斯全境的抗议活动中，警方拘留了4300多人，抗议总统弗拉基米尔-普京对乌克兰的入侵。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/11-21.png)图片来源：WDIO.com&雅典娜设计组
+根据发布在社交媒体上的视频，数千名抗议者高呼 “反对战争！”和 “你真可耻！”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-29.jpg)
+俄罗斯内政部说，有5200人参加了全国范围内的抗议活动。名为OVD-Info的抗议监督组织说，它记录了在56个不同城市至少有4366人被拘留。
+
+一些俄罗斯国家控制的媒体对周日的抗议活动进行了简短的报道。
+
+俄罗斯总统普京称2月24日发起的入侵为 “特别军事行动”。西方称他的论点是毫无根据的战争借口，多个国家已经对俄实施制裁。但是战争还在持续，无辜平民还在失去生命，大量难民还在惶恐的逃离乌克兰。
+
+参考来源：[More than 4,300 detained at anti-war protests in Russia](https://www.reuters.com/world/europe/more-than-64-people-detained-anti-war-protests-russia-protest-monitor-2022-03-06/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=Reuters%20Daily%20Briefing&amp;utm_content=7-3-22&amp;utm_campaign=7-3-22)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
 
-美国食品与药物管理局FDA漏报了每年从辉瑞公司收到资金的记录。FDA上周披露了一大批与新冠疫苗审批过程有关的文件。在联邦法官马克-皮特曼（Mark Pittman）于1月命令FDA每月披露55,000页文件，这些文件就是根据法庭的命令披露的。
 
-3月1日公布的这批文件包含一些令人不安的秘密，比如FDA和辉瑞公司事先就知道该疫苗导致的上千种不良副作用。但文件中明显缺少了一项数据，那就是FDA每年从辉瑞公司收到的资金记录。
 
-有几份文件提到，辉瑞公司向美国食品和药物管理局FDA支付了2,875,842美元的用于患者处方药的费用，这是一项常规标准收费，已列在了FDA的网站上。但我们要查找的是FDA每年从辉瑞公司收到的数亿美元，这在被披露的文件中却没有任何记载。
-
-我们知道美国食品和药物管理局FDA收到了这笔钱，因为这是他们自己说的。上个月，前线新闻报道了Veritas项目（Project Veritas）的一个爆炸性视频，该视频显示美国食品和药物管理局FDA的一名高管无意中承认的令人震惊的事实。
-
-FDA负责应对措施的执行官克里斯托弗-科尔（Christopher Cole）无意中向卧底的Veritas项目记者承认，美国食品和药物管理局收黑钱来批准某些产品。科尔说过：“制药公司、食品公司、疫苗公司，他们每年会向我们支付数以亿计的美元，用以雇用和留任审查员来批准他们的产品。”
-
-美国食品和药物管理局FDA的审查团队一般由项目经理、医务人员、药理学/毒理学专家、统计学家、临床药理学家、生物药理学专家和化学家/生物学家/微生物学家组成。
-
-已发布的文件中包括责任转移条款，其中列出了主办责任从生物技术公司（BioNTech SE ）转移到了辉瑞公司。大部分责任与签约评估疫苗的临床研究人员有关联。但最终的责任只是“年度审查”。
-
-与调查员和临床研究人员不同，美国食品和药物管理局FDA的药物审查员不是外包的，也不是单独签约的。
-
-上周前线新闻报道，一位与辉瑞公司签约监督新冠疫苗的临床研究人员正在起诉辉瑞公司和美国食品和药物管理局的欺诈行为。
-
-辉瑞公司与Ventavia公司签订了合同，由后者监督关键的疫苗第三阶段临床试验。只有通过这一试验，疫苗才能获得FDA的紧急使用授权。Ventavia公司指派布鲁克-杰克逊（Brooke Jackson）监督三个临床试验点中的两个。
-
-这位杰克逊先生写道：“虽然我在这家公司工作的时间不长，但我看到的不当行为是普遍而且明目张胆的，我每天都记录到了许多违反美国食品和药物管理局（FDA）联邦法规的行为。”
-
-原文链接：[55,000 FDA-released vaccine-related documents contain glaring omission](https://americasfrontlinedoctors.org/news/post/the-fda-just-released-55000-documents-related-to-the-vaccine-we-noticed-something-missing/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,48 +2,46 @@
 ---
 
 
-## 全球疫情疫苗数据更新（澳洲各州第三针比例的比较）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2133956/)
+## 美国FDA收了辉瑞多少钱？
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2133986/)
 
-整理：枳实
-美工：精灵蓝
+翻译：不要代表我Kari
+编辑：守望黎明
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/image-731.png)图片：雅典娜农场设计组 精灵蓝
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/11-21.png)图片来源：WDIO.com&雅典娜设计组
 
 
-雅典娜疫情更新（2022年 3月9日）
+美国食品与药物管理局FDA漏报了每年从辉瑞公司收到资金的记录。FDA上周披露了一大批与新冠疫苗审批过程有关的文件。在联邦法官马克-皮特曼（Mark Pittman）于1月命令FDA每月披露55,000页文件，这些文件就是根据法庭的命令披露的。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+3月1日公布的这批文件包含一些令人不安的秘密，比如FDA和辉瑞公司事先就知道该疫苗导致的上千种不良副作用。但文件中明显缺少了一项数据，那就是FDA每年从辉瑞公司收到的资金记录。
 
-全球和澳洲疫情疫苗关键数据和图表今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-25.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/10-18.png)
-上图是澳大利亚各州第三针比例的比较，从图中可以看出，新州的比例最低，而西澳比例最高。众所周知，[中共对西澳的渗透十分严重](https://gnews.org/zh-hans/1954243/)，[西澳州长是一位著名的舔共州长](https://gnews.org/zh-hans/1354048/)，他实施疫苗强制政策也最为严苛，不仅[率先强制第三针](https://gnews.org/zh-hans/1782372/)，甚至到了不允许未接种疫苗的父母探望其生病的孩子的地步。
+有几份文件提到，辉瑞公司向美国食品和药物管理局FDA支付了2,875,842美元的用于患者处方药的费用，这是一项常规标准收费，已列在了FDA的网站上。但我们要查找的是FDA每年从辉瑞公司收到的数亿美元，这在被披露的文件中却没有任何记载。
 
-[2022年3月9日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月9日改进.pdf)
+我们知道美国食品和药物管理局FDA收到了这笔钱，因为这是他们自己说的。上个月，前线新闻报道了Veritas项目（Project Veritas）的一个爆炸性视频，该视频显示美国食品和药物管理局FDA的一名高管无意中承认的令人震惊的事实。
 
-数据来源：
+FDA负责应对措施的执行官克里斯托弗-科尔（Christopher Cole）无意中向卧底的Veritas项目记者承认，美国食品和药物管理局收黑钱来批准某些产品。科尔说过：“制药公司、食品公司、疫苗公司，他们每年会向我们支付数以亿计的美元，用以雇用和留任审查员来批准他们的产品。”
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+美国食品和药物管理局FDA的审查团队一般由项目经理、医务人员、药理学/毒理学专家、统计学家、临床药理学家、生物药理学专家和化学家/生物学家/微生物学家组成。
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+已发布的文件中包括责任转移条款，其中列出了主办责任从生物技术公司（BioNTech SE ）转移到了辉瑞公司。大部分责任与签约评估疫苗的临床研究人员有关联。但最终的责任只是“年度审查”。
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+与调查员和临床研究人员不同，美国食品和药物管理局FDA的药物审查员不是外包的，也不是单独签约的。
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+上周前线新闻报道，一位与辉瑞公司签约监督新冠疫苗的临床研究人员正在起诉辉瑞公司和美国食品和药物管理局的欺诈行为。
 
-[covidlive.com.au](https://covidlive.com.au/)
+辉瑞公司与Ventavia公司签订了合同，由后者监督关键的疫苗第三阶段临床试验。只有通过这一试验，疫苗才能获得FDA的紧急使用授权。Ventavia公司指派布鲁克-杰克逊（Brooke Jackson）监督三个临床试验点中的两个。
 
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+这位杰克逊先生写道：“虽然我在这家公司工作的时间不长，但我看到的不当行为是普遍而且明目张胆的，我每天都记录到了许多违反美国食品和药物管理局（FDA）联邦法规的行为。”
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+原文链接：[55,000 FDA-released vaccine-related documents contain glaring omission](https://americasfrontlinedoctors.org/news/post/the-fda-just-released-55000-documents-related-to-the-vaccine-we-noticed-something-missing/)
 
 发布：tianzhihuan
 
-**更多资讯，请关注：****
+更多资讯，请关注：**
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
