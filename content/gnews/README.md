@@ -15,77 +15,77 @@
 
 ---
 
-### [当你生命中遇到所谓的地狱给他发出的死亡信息，叫：愚蠢、蛊惑、谣言、仇恨](/content/gnews/1/README.md)
- ` MG FARM`
+### [中共国版“北约东扩”论？王毅批美国搞“印太版北约”](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰战争背后的真相](/content/gnews/2/README.md)
+### [辉瑞疫苗能被美国高法判决背后的沼泽力量](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [受俄罗斯军队攻击影响，人道救援通道仅成功救出一部分](/content/gnews/3/README.md)
+### [我们行善成了罪了是吗？](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [当你生命中遇到所谓的地狱给他发出的死亡信息，叫：愚蠢、蛊惑、谣言、仇恨](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [乌克兰战争背后的真相](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [受俄罗斯军队攻击影响，人道救援通道仅成功救出一部分](/content/gnews/6/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美英发誓要击败俄罗斯入侵乌克兰， 布林肯“坚信普京必败”](/content/gnews/4/README.md)
+### [美英发誓要击败俄罗斯入侵乌克兰， 布林肯“坚信普京必败”](/content/gnews/7/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美国议员立法控制数字人民币对全球数字金融领域的影响](/content/gnews/5/README.md)
+### [美国议员立法控制数字人民币对全球数字金融领域的影响](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【#G时新闻】- 波兰众议院已批准一项帮助乌克兰难民的法律。](/content/gnews/6/README.md)
+### [【#G时新闻】- 波兰众议院已批准一项帮助乌克兰难民的法律。](/content/gnews/9/README.md)
  ` G-时新闻`
 
-### [七哥金句：世上让你最幸福快乐的是解脱](/content/gnews/7/README.md)
+### [七哥金句：世上让你最幸福快乐的是解脱](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [这个疫苗它有两个标准](/content/gnews/8/README.md)
+### [这个疫苗它有两个标准](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [中国控制](/content/gnews/9/README.md)
- ` MG FARM`
-
-### [【 #G时新闻 】法治基金乌克兰人道救援邮箱被黑](/content/gnews/10/README.md)
+### [【 #G时新闻 】法治基金乌克兰人道救援邮箱被黑](/content/gnews/12/README.md)
  ` G-时新闻`
 
-### [七哥金句：可以不干事但千万别干假事儿](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [俄罗斯承认在乌克兰使用了温压武器](/content/gnews/12/README.md)
+### [俄罗斯承认在乌克兰使用了温压武器](/content/gnews/13/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [救援前线：记者妮可接受西班牙公益基金会采访](/content/gnews/13/README.md)
+### [救援前线：记者妮可接受西班牙公益基金会采访](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [习面对实则中美之战的俄乌战争不惧怕，妄图放手一搏换取美中共治](/content/gnews/14/README.md)
+### [习面对实则中美之战的俄乌战争不惧怕，妄图放手一搏换取美中共治](/content/gnews/15/README.md)
  ` YALUN 亚伦`
 
-### [有声|灭共者之郭氏情报站（36）2022/03/09 文贵大直播](/content/gnews/15/README.md)
+### [有声|灭共者之郭氏情报站（36）2022/03/09 文贵大直播](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [新中国联邦乌克兰救援行动正改变作全世界对中国人的印象](/content/gnews/16/README.md)
+### [新中国联邦乌克兰救援行动正改变作全世界对中国人的印象](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|新中国联邦法治基金乌克兰人道救援信息](/content/gnews/17/README.md)
+### [有声|新中国联邦法治基金乌克兰人道救援信息](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|乌克兰救援3月8日信息](/content/gnews/18/README.md)
+### [有声|乌克兰救援3月8日信息](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [媒体报道：格哈德·施罗德应乌克兰的要求会见弗拉基米尔·普京](/content/gnews/19/README.md)
+### [媒体报道：格哈德·施罗德应乌克兰的要求会见弗拉基米尔·普京](/content/gnews/20/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [秘翻在线: 中共运8反潜机近日在演习中坠海](/content/gnews/20/README.md)
+### [秘翻在线: 中共运8反潜机近日在演习中坠海](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [批评亚伦•罗杰斯没有接种新冠疫苗的教练得了血栓之后，两个脚趾截肢](/content/gnews/21/README.md)
+### [批评亚伦•罗杰斯没有接种新冠疫苗的教练得了血栓之后，两个脚趾截肢](/content/gnews/22/README.md)
  ` xiaobaige`
 
-### [五月花简报（03/10/2022）](/content/gnews/22/README.md)
- ` mayflowertranslate`
-
-### [正义取决你的能力](/content/gnews/23/README.md)
- ` MG FARM`
-
-### [有声|Coinbase表明支持对俄制裁，封锁2.5万个俄罗斯加密货币地址](/content/gnews/24/README.md)
+### [有声|Coinbase表明支持对俄制裁，封锁2.5万个俄罗斯加密货币地址](/content/gnews/23/README.md)
  ` MOSREC`
+
+### [乌克兰大救援3.9.2022: 法治基金国际人道救援展现新中国联邦人的良善形象 赢得广泛国际赞誉](/content/gnews/24/README.md)
+ ` 秘密翻译组-原创组`
 
 ### [欧盟领导人告诉乌克兰：“你属于我们的家庭”](/content/gnews/25/README.md)
  ` Shuizhuyu`
@@ -132,23 +132,23 @@
 ### [新西兰财经G乐部2022年3月10日:财经新闻整理](/content/gnews/39/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [2022/03/08 墙内世界](/content/gnews/40/README.md)
+### [视频|全球媒体聚焦乌克兰救援 新中国联邦受关注](/content/gnews/40/README.md)
+ ` MOSVIDEO`
+
+### [2022/03/08 墙内世界](/content/gnews/41/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农战斗室志愿者正在群阅辉瑞文件：36名儿童参试验](/content/gnews/41/README.md)
+### [班农战斗室志愿者正在群阅辉瑞文件：36名儿童参试验](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [3/10/2022 国际财经快讯：保时捷因乌克兰零部件短缺而停止Taycan生产; 镍市场危机迫使LME紧急设法止损](/content/gnews/42/README.md)
+### [3/10/2022 国际财经快讯：保时捷因乌克兰零部件短缺而停止Taycan生产; 镍市场危机迫使LME紧急设法止损](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [中日财经爆┃美国恢复进口委内瑞拉石油 获释两囚犯](/content/gnews/43/README.md)
+### [中日财经爆┃美国恢复进口委内瑞拉石油 获释两囚犯](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共拒绝谴责俄侵乌克兰，立陶宛力挺台湾不让步](/content/gnews/44/README.md)
+### [中共拒绝谴责俄侵乌克兰，立陶宛力挺台湾不让步](/content/gnews/45/README.md)
  ` 墨尔本雅典娜农场`
-
-### [拜登签署行政令 要求政府评估发行数字美元的利弊](/content/gnews/45/README.md)
- ` 日本东京方舟农场`
 
 ### [秘翻新闻｜全球300家大企业抵制 俄罗斯经济已死](/content/gnews/46/README.md)
  ` 秘密翻译组-即时新闻播报组`

@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 10:19 PM (UTC)`
+
+3/10/2022 Miles Guo’s GETTR: What does it mean for President Biden to propose the digital dollar for the first time? Citizens of the New Federal State of China who are unvaccinated and own the Himalaya Coin are going to show the world the image of the new Chinese who are respectable, peaceful, law-abiding, and trustworthy just like the fellow fighters at the front line of the Ukraine rescue operation. The CCP cannot represent the Chinese people!<br/><br/>3/10/2022 文贵盖特：拜登总统首次提出数字化美元意味着什么？无苗有币的新中国联邦人要和冲在前线的战友们一样向世界展示有尊严、和平、守法、守信的新中国人形象，共产党不能代表中国人！<br/>
+![img](https://media.gettr.com/group46/getter/2022/03/10/22/ee6a45b3-a6ac-c8ce-e80f-468c0db205ca/out.jpg)
+
+---
+
+`@miles 3/10/2022 10:15 PM (UTC)`
+
+3/9/2022 Miles Guo: The NFSC & ROLF Ukraine rescue mission is real, while the CCP is full of lies. The UK will pay the salaries of the Ukrainian officials, and Ukraine will be the center of Europe in the future. China will have a federal system, with each region being independent but not separated. This will bring peace to the world and help eliminate the poison left by the CCP.<br/><br/>3/9/2022 文贵直播：新中国联邦法治基金的救援行动是真实的，而中共却谎话连篇；英国给乌克兰的官员发工资，乌克兰将成为未来欧洲的中心；中国将实施各地区分而不离的联邦制，这将给世界带来和平并有助于排除中共的余毒<br/>
+![img](https://media.gettr.com/group22/getter/2022/03/10/22/40ce6d16-bb12-ac87-dfe9-1cb103e434b6/out.jpg)
+
+---
+
+`@miles 3/10/2022 10:11 PM (UTC)`
+
+3/9/2022 Miles Guo: I have come across numerous challenges in the past dozens of days. But the fellow fighters have launched an unprecedented rescue operation in the history of humanity that has stunned the West. The CCP is still lying through its teeth in terms of rescuing the Chinese people in Ukraine, but the Little Pinks have no idea that they are stepping into the biggest catastrophe that the Chinese people have ever experienced in the past thousands of years.<br/><br/>3/9/2022 文贵直播：文贵在过去几十天遇到了诸多挑战 ；战友们创造了人类前所未有的救援行动，震撼了西方；中共在乌克兰撤侨上满口谎言，小粉红们却不知自己已进入中国人千年未有的大灾难！<br/>
+![img](https://media.gettr.com/group46/getter/2022/03/10/22/7dff925c-0e3d-6150-e04a-7121a58ee8bc/out.jpg)
+
+---
+
 `@miles 3/10/2022 10:09 PM (UTC)`
 
 3/9/2022 Miles Guo: There is no doubt that Taiwan, Tibet, and Xinjiang will be independent. Xi’s days will end up in an extremely painful way with numerous Chinese people following him to the graves. Himalaya Coin will undergo a small yet qualitative change in two weeks, and there will be a piece of shocking news about it coming up in five to six weeks.<br/><br/>3/9/2022 文贵直播：台湾、西藏和新疆的独立已毫无悬念；习的时代将带走很多中国人并以极其痛苦的方式终结；喜币在两周后将有小的质的改变并且在5到6周后会有惊天的消息<br/>
@@ -139,27 +160,6 @@ The New Federal State of China and Rule of Law Foundation would like to find the
 
 
 ![img](https://media.gettr.com/group15/origin/2022/03/10/08/b3c7e124-3452-e750-8129-db78912c7aa3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/10/2022 6:42 AM (UTC)`
-
-3/9/2022 Miles Guo: The authenticity, bravery, and selflessness of our fellow fighters who are on the front lines of this rescue operation have shaped the image of the new Chinese. In this international humanitarian crisis, there has been no organization involved in rescue on behalf of a nation. The outstanding rescue operation of the NFSC & ROLF has become the center of attention and has earned the admiration and respect for the new Chinese from our international friends.<br/><br/>3/9/2022 文贵直播：前线战友们真诚勇敢的无私付出塑造了新中国人的形象；在这场国际人道危机中，尚无以国家名义参与救援的组织；新中国联邦、法治基金国际水平的救援成为了现场的焦点，并让新中国人受到了国际友人的钦佩和尊重<br/>
-![img](https://media.gettr.com/group10/getter/2022/03/10/06/cf3689ff-63f1-3a87-2c23-b0f56c052e9a/out.jpg)
-
----
-
-`@miles 3/10/2022 6:35 AM (UTC)`
-
-【Ukrainian Rescue】03/09/22 NFSC and ROL Foundation Ukraine Rescue Operation has received significant attention from the international community<br/><br/>【乌克兰救援】03/09/22新中国联邦和法治基金乌克兰救援行动得到了国际社会的广泛关注<br/><br/>
-![img](https://media.gettr.com/group38/getter/2022/03/10/06/17806b6d-7bd9-cb8a-799b-200ec5868924/out.jpg)
-
----
-
-`@miles 3/10/2022 6:32 AM (UTC)`
-
-【Ukrainian Rescue】03/09/22 The CCP Pseudo-Government Launches Shameless Hacking and Smear Campaign Against the NFSC and ROL Foundation's Ukraine Rescue Operation<br/><br/>【乌克兰救援】03/09/22 中共伪政府对新中国联邦和法治基金乌克兰救援行动发动无耻的黑客攻击和抹黑<br/><br/>
-![img](https://media.gettr.com/group19/getter/2022/03/10/06/3f45b4b3-2067-bc87-69ce-090f6312db0c/out.jpg)
 
 ---
 
