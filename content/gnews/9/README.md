@@ -2,23 +2,35 @@
 ---
 
 
-## 樱花FM|中日财经爆|俄罗斯入侵乌克兰 国际粮价指数创11年新高
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2138140/)
+## 有声|中共借FDA败诉大肆宣传抹黑美国
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2138265/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/QqI6FQtZWb2HqS-qqKeqQ1tSS_mWwFwRAnUXSngryGtqkDsW8wid-jK029owauA3J6YugoLkFByRTqUn6rdI9edsiN4cdeJEep3MSorqs9ySV8ZjXvk8IPJKDwssii7LlPgKxOHW)
-联合国粮食及农业组织（FAO）3月4日公布的世界食品价格指数为140.7，环比上涨5.3点，这是自2011年2月以来11年来的最高值。除了全球食品需求增加外，俄罗斯入侵乌克兰导致的供应不稳定也推高了价格。
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+日前，美国FDA在一场官司中败诉，法院要求FDA要将辉瑞新冠疫苗32.9万页完整审评文件公开， 而在公开的首批文件中，提到疫苗副作用高达1291种。按照常理，这一消息的披露本来是为了引起公众对疫苗安全的警惕，但中共官媒在宣传时，却政治挂帅，把重点引至美国政府视人命于无物，借此继续洗脑中国民众，相信“西方人民处于水深火热之中”
 
-食品价格指数反映粮食、肉类、奶制品等五类商品的交易价格，被视为食品价格的代表指数。食用油价格涨幅明显，比上月上涨15.8个百分点。主要因素是需求增加，但担心俄罗斯军队正在扩大控制区域的黑海地区的出口将被推迟也导致价格上涨。
+对此， 郭文贵先生认为，中共知道，无法控制这则新闻在中国大陆传开，因此刻意将新闻重点落在西方政府的无能上，利用一部分中国人“事不关己 高高挂起”的自私性格，以及侥幸心理，弱化中国人对于中共疫苗安全性的关注。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-4.jpg)
 
-小麦等粮食价格比上月上涨4.2个百分点。3月4日在芝加哥交易所，作为代表指标的期货价格暂时触及1蒲式耳=13.4美元，创出新高。占世界小麦出口 30% 的俄罗斯和乌克兰的供应不安全现象普遍存在，未来高价格很可能会持续。
 
-文字版原文：[中日财经爆|俄罗斯入侵乌克兰 国际粮价指数创11年新高](https://gnews.org/zh-hans/2110014/)
+文字版原文：[中共借FDA败诉大肆宣传抹黑美国](https://gnews.org/zh-hans/2130077/)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

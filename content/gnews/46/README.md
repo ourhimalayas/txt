@@ -2,56 +2,41 @@
 ---
 
 
-## 蓬佩奥:中共是我们这个时代的核心威胁
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2135121/)
+## 米蒂卡前线信息更新
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2135515/)
 
-美前国务卿迈克·蓬佩奥： 在经济实力和下一代技术的推动下，[#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click) 独裁世界的黑暗未来变得越来越现实。这就是为什么 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 造成的危险是我们这个时代的核心威胁。
+作者：纽约香草山农场-Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月9日，前线记者Nicole再次从波兰边境小镇米蒂卡发回了前线救援的最新消息。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-7.jpeg)
 
+据悉，鉴于米蒂卡地处波兰与乌克兰交界的特殊地理位置，很多从乌克兰撤离的难民都会经过这里。为此，全球各地的媒体和救援组织也相继在这里扎营。这其中，新中国联邦战友们克服了种种困难，率先在此建立起了安置点，用以接待难民。
 
-> The dark future of a world under a communist dictatorship, empowered by economic strength and next-generation technologies, has become more and more realistic. That’s why the danger posed by the CCP is the central threat of our time.
-> — Mike Pompeo (@mikepompeo) [March 10, 2022](https://twitter.com/mikepompeo/status/1501736871331708930?ref_src=twsrc%5Etfw)
+据现场资料显示，新中国联邦和法治基金的救援团队已经搭建好了两顶帐篷供人们短暂休息。而随着更多新中国联邦救援者的到达，大量的物资和帐篷将陆续抵达救援点，从而将使更多的难民可以得到帮助。
 
+另据记者Nicole的报道，米蒂卡救援现场还有包括美国、英国、日本和土耳其在内的多家国际媒体驻扎。由于新中国联邦队伍是当地唯一的一支中国人救援团队，在场的各国媒体都对其深感好奇，便纷纷前来采访，这也让世界更为了解新中国联邦。
 
+对此，文科战友也在接受采访时提到，在了解过战友们搭建米帝卡救助点的经过后，各国媒体、其他国际救援团队和当地波兰人都被新中国联邦战友不辞辛苦的真诚付出所感动并对他们大加赞赏。
 
-参议员汤姆·科顿： 帮助乌克兰抵御残酷无情的独裁者符合我们的最大利益。 美国人认识到这一点——无论拜登政府承认与否。
-
-
-
-> Helping Ukraine defend itself against a ruthless dictator is in our best interest.
-> 
-> Americans recognize that—whether the Biden administration does or not.
-> — Tom Cotton (@SenTomCotton) [March 9, 2022](https://twitter.com/SenTomCotton/status/1501704136835878913?ref_src=twsrc%5Etfw)
+晚些时候，文戈七雄战友也反馈道，经过西班牙巴塞罗那救助机构的确认，早先被救出乌克兰的98名师生已经安全抵达指定地点。在法治基金和广大战友们的支持下，前线救援战友再次用行动证明了新中国联邦的实力。
 
 
 
-参议员马可·卢比奥： 一周来我每天都提到这个是有原因的 当俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 设置了虚假的生物或化学（武器）标志时，他们正在做着过去所做的一切 【转卫报报道：英美担心俄罗斯可能会为使用化学武器做准备】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
+总编：Irene木木
+编辑：Ivy001
+审核：Irene木木
+校正/发稿：谐趣园
 
-
-> I have mentioned this every day for a week for a reason[#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) is doing everything it has done in the past when they have set up a biological or chemical false flag [https://t.co/Ah2wQB28U5](https://t.co/Ah2wQB28U5)
-> — Marco Rubio (@marcorubio) [March 9, 2022](https://twitter.com/marcorubio/status/1501667575708753924?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·加西亚： 别搞错了—— [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 是我们最大的威胁。 最近，美国司法部@TheJusticeDept 终止了“中国倡议”，这是一项旨在保护美国实验室和企业免受经济间谍和财产盗窃的关键计划。 【转lawfareblog 报道：美国司法部终止有争议的“中国倡议”项目】 这一决定是拜登政府“撤资警察”和努力重新想象“安全”的样子的延续。 我们已经看到了这一决定的影响，因为6个美国国家机构受到了 [#CCP](https://gettr.com/hashtag/%23CCP) [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 政府支持的黑客组织的攻击。 【转cnn : 网络安全公司称 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 黑客入侵了六家美国国家机构】 正如我们在“撤资警察”运动中看到的那样，犯罪率正在上升。 当像 [#习近平](https://gettr.com/hashtag/%23%E4%B9%A0%E8%BF%91%E5%B9%B3) 主席这样的外国领导人在试图破坏美国，而美国政府却同时心甘情愿地撤走“警察”时——就会产生现实的后果。
-
-
-
-> Make no mistake – China is our greatest threat. Recently, [@TheJusticeDept](https://twitter.com/TheJusticeDept?ref_src=twsrc%5Etfw) terminated the "China Initiative" which was a critical program that sought to protect U.S. laboratories & businesses from economic espionage & property theft.[https://t.co/Vh9bEENknu](https://t.co/Vh9bEENknu)
-> — Rep. Mike Garcia (@RepMikeGarcia) [March 9, 2022](https://twitter.com/RepMikeGarcia/status/1501655143137386500?ref_src=twsrc%5Etfw)
-
-
-
-比尔·戈茨： 高级军事和国防官员告诉国会，俄罗斯入侵乌克兰引发了对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 袭击 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的新担忧。 美国正在中国附近加强力量并敦促台北准备抵抗力量 【附华盛顿时报上 比尔·戈茨文章：俄罗斯入侵增加了中共国攻击台湾的新的危险】
-
-
-
-> Russia’s invasion of Ukraine prompts new fears of a Chinese attack on Taiwan, senior military and defense officials told Congress. US is bolstering forces near China and urging Taipei to prepare resistance forces [https://t.co/YWW4dH9Ofw](https://t.co/YWW4dH9Ofw)
-> — Bill Gertz (@BillGertz) [March 9, 2022](https://twitter.com/BillGertz/status/1501671202145779715?ref_src=twsrc%5Etfw)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

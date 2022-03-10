@@ -2,35 +2,24 @@
 ---
 
 
-## 乌克兰人的坚强和团结是中国人学习的楷模
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2138048/)
+## 樱花FM|日本170多位诺贝尔奖获得者联名谴责俄罗斯入侵乌克兰
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2138139/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在3月8日的盖特视频中指出，此次俄乌战争充分体现出了乌克兰人团结和坚强的民族精神。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-10-上午9.34.30.png)
-郭先生表示，乌克兰人良好的族群关系和使命感让他们这次紧紧地团结在了一起，为了自己的家人、土地、资产、安全和尊严誓死不屈地顽强战斗，向全世界证明了乌克兰的坚强和伟大。到最后，普京发动的这场侵略战争只会以失败告终。
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/xWsTAyVQ1tfReZPng1-oZ17BNKwAOhvnl0JDlUzMjbxFE8t0Y-5xM9XZJIV0jRKgEUH46btlZzjiO7XapJbRr2Lr-iwqAbrNw-A27SBMFBO7x8i0GydH_M1BytUEskfhQ3JExhST)
+170多名诺贝尔奖获得者联合发表公开信，谴责俄罗斯入侵乌克兰。
 
-郭先生还提到，而今，全世界都明白中共才是俄罗斯背后的金主和挑拨战争的主谋，这将导致被中共绑架的中国人最终承受这场战争所带来的高昂代价。
+信中批评“俄罗斯总统普京等人发动的战争是不公正、残酷、毫无结果的”，呼吁停止和撤回入侵。对此表示赞同的白川先生在接受采访时表示，“这是一场单方面的战争，平民伤亡和破坏的可怕局面让我深感悲痛。”
 
-但郭先生也补充道，目前，新中国联邦在乌克兰的战友们不仅正在努力地拯救着所有海外中国人的安全，他们更是在拯救着海内外换人的未来。
+利根川进（1987年生理医学奖）、山中伸也（2012年同奖）、大村聪（第15届同奖）、大隅良典（2016年同奖）、本庶佑（第18届同奖）、野依良治（2001年化学奖） 、天野浩（2014 年物理奖）、梶田隆章（2015 年奖）等日本科学家加入了支持者的行列。
 
-参考链接：[https://www.gettr.com/post/pyx8jl8f44](https://www.gettr.com/post/pyx8jl8f44)
+随着2000年获得化学奖的白川秀树和筑波大学名誉教授等几位日本获奖者的加入，支持者的人数不断增加。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
+文字版原文：[日本170多位诺贝尔奖获得者联名谴责俄罗斯入侵乌克兰](https://gnews.org/zh-hans/2110001/)
 
-总编：Irene木木
-编辑：Irene木木
-审核：宁文静
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

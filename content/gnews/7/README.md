@@ -2,48 +2,34 @@
 ---
 
 
-## 俄罗斯入侵乌克兰战争第14 天- -挖万人坑；撤离的孕妇
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2138158/)
+## 福奇施压中共控制的《福布斯》取消了报道其丑闻的专栏
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2138270/)
 
-【玫瑰看新闻】每日快讯
+#### 撰稿：彩虹       
 
-俄罗斯入侵乌克兰的第14 天发生了更多的流血和破坏，因为无情的攻击迫使更多的乌克兰居民逃离。美联社摄影师拍摄的照片显示，一些难民从一座临时搭建的桥上滑溜溜的木板撤离——乌克兰人几天前炸毁了从乌尔平镇通往基辅首都的混凝土道路，以减缓俄军的进攻。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-987.png)图片来源：C-SPAN
+3月9日，《国家脉动》主编拉希姆·卡萨姆（Raheem J. Kassam）发表文章，披露在美国政府，特别是托尼·福奇（Tony Fauci）的NIH（国家卫生研究院）施加压力后，长期倡导透明度的亚当·安德烈耶斯基（Adam Andrzejewski）被取消他长达8年的《福布斯》专栏。
 
-其他图片显示一名军事牧师试图安慰一名哭泣的女人；将居民运送到安全地带的军用车辆车队；以及坐在或站在疏散巴士上的焦急难民，他们的脸上表现出震惊、悲伤和无奈。
+这个故事的主角亚当·安德烈耶斯基是OpenTheBooks.com的首席执行官和创始人，在被《福布斯》解雇后，他在其新的平台Substack专栏中转述了这个故事。
 
-虽然俄罗斯军队没有表现出撤退的迹象，但地面上的乌克兰战士发誓不会让步。
+安德烈耶斯基回忆说，在对他的一些以福斯为重点的专栏表示不满，包括对福奇家庭财务状况的爆炸性披露后，“（NIH）两位院长、两位局长和两位高级公关人员在一个星期天的早上给《福布斯》的负责人发了一封电子邮件，并不是因为他们想纠正关于福奇的旅行报销的记录。他们发送那封邮件是为了暗地里地传递一个信息：我们不喜欢安德烈耶斯基的监督工作，我们希望你能做点什么。不幸的是，《福布斯》很快就服从了。”
 
-以下是乌克兰战区一些照片：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image004-1.jpg)
-在被围困的乌克兰马里乌波尔港，蒙面工人将尸体简单处理，埋入一条 25 英尺长的壕沟，该壕沟在俄罗斯军队的持续炮击中仓促挖掘。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image006-2.jpg)2022 年3 月9 日，星期三，乌克兰的马里乌波尔，乌克兰急救人员和志愿者从一家妇产医院抬着一名受伤的孕妇，该医院因炮击而受损。（美联社照片/Evgeniy Maloletka）
-在城市的其他地方，四名男子冲出一家严重受损的妇产医院，用担架运送一名流血的孕妇。另一名身穿睡衣、脸上有伤口的孕妇小心翼翼地走下一个布满碎片的楼梯，而在院子里，紧急救援人员在一片荒凉的风景中穿行，那里到处都是破损的汽车和被炸裂的窗户玻璃碎片.
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image008-2.jpg)2022 年3 月9 日，星期三，在乌克兰基辅的一个分流点，一名军事牧师试图安慰一名从Irpin 撤离的哭泣妇女。（美联社照片/Vadim Ghirda）![](https://assets.gnews.org/wp-content/uploads/2022/03/image010-2.jpg)2022 年3 月9 日，星期三，乌克兰急救人员在乌克兰马里乌波尔的一家妇产医院工作。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image013.jpg)2022 年3 月9 日，星期三，一名乌克兰军人在乌克兰基辅郊区的Irpin 看着接近的车辆时采取射击姿势。（美联社照片/Vadim Ghirda）![](https://assets.gnews.org/wp-content/uploads/2022/03/image014.jpg)2022 年3 月9 日，星期三，乌克兰人从乌克兰基辅郊区的Irpin 撤离时进入公共汽车。（美联社照片/Felipe Dana）![](https://assets.gnews.org/wp-content/uploads/2022/03/image016.jpg)2022 年3 月9 日，星期三，一名从乌克兰首都周边地区撤离的妇女在抵达乌克兰基辅的一个分流点后拿着一盘食物。（美联社照片/Vadim Ghirda）![](https://assets.gnews.org/wp-content/uploads/2022/03/image018.jpg)2022 年3 月9 日，星期三，在乌克兰基辅郊区的Irpin 撤离平民的车队离开时，汽车驶过一辆被摧毁的俄罗斯坦克。（美联社照片/Vadim Ghirda）![](https://assets.gnews.org/wp-content/uploads/2022/03/image020.jpg)2022 年3 月9 日，星期三，一名妇女在乌克兰马里乌波尔被炮击损坏的妇产医院外走。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image022.jpg)2022 年3 月9 日，星期三，从邻国乌克兰逃离战争的人们睡在波兰普热梅希尔的普热梅希尔火车站。（美联社照片/丹尼尔科尔）![](https://assets.gnews.org/wp-content/uploads/2022/03/image024.jpg)2022 年3 月9 日，星期三，一名男子在乌克兰马里乌波尔的一栋被炮击损坏的公寓楼前骑自行车。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image026.jpg)2022 年3 月9 日，星期三，一名受伤的孕妇在乌克兰马里乌波尔的一家妇产医院走下楼，该医院因炮击而受损。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image028.jpg)2022 年3 月9 日，星期三，乌克兰人在乌克兰基辅郊区逃离Irpin 时，穿过一座被毁坏的桥下的临时小路。（美联社照片/Felipe Dana）![](https://assets.gnews.org/wp-content/uploads/2022/03/image030.jpg)2022 年3 月9 日，星期三，乌克兰领土防御部队成员在乌克兰基辅郊区训练使用NLAW 反坦克武器。（美联社照片/Efrem Lukatsky）![](https://assets.gnews.org/wp-content/uploads/2022/03/image032.jpg)2022 年3 月9 日，星期三，一名男子带着他的孩子离开乌克兰马里乌波尔一家受损的妇产医院。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image035.jpg)2022 年3 月9 日，星期三，在乌克兰基辅郊区逃离Irpin 时，一名儿童被推着婴儿车穿过临时路径。（美联社照片/Felipe Dana）![](https://assets.gnews.org/wp-content/uploads/2022/03/image037.jpg)2022 年3 月9 日，星期三，人们在乌克兰马里乌波尔郊区的井边排队取水。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image038.jpg)2022 年3 月9 日，星期三，乌克兰马里乌波尔发生炮击后，浓烟升起。（美联社照片/Evgeniy Maloletka）![](https://assets.gnews.org/wp-content/uploads/2022/03/image040.jpg)2022 年3 月9 日，星期三，一名妇女在乌克兰马里乌波尔被炮击损坏的妇产医院外走。（美联社照片/Evgeniy Maloletka）
+2022年1月15日，《福布斯》执行编辑卡罗琳·霍华德（Caroline Howard）给安杰伊夫斯基的一封电子邮件中说：“我看到这是你在三周内写的第三篇关于福奇的文章。呃”。接着，霍华德指责安杰伊夫斯基是在搞宣传，而不是在做新闻。
 
+仅一天后，作为政府雇员的美国国立卫生研究院的两位院长、两位局长和两位高级公关官员向福布斯施加了压力。他们声称，福奇从未“收集”过金钱上的礼物，而是以安杰伊夫斯基报道的相同金额收取门票的票面价值。换句话说：一个没有区别的区别。
 
+但是，很快，正如安泽耶夫斯基所说，福布斯很快就屈膝了：“在NIH向兰德尔·莱恩（Randall Lane）发送电子邮件后的24小时内，我的《福布斯》固定编辑打电话宣布了新的规则。《福布斯》禁止我写关于福奇的文章，并规定今后所有要写的话题都要预先得到批准。然后，《福布斯》不再有声响，而是在大约10天后的1月28日终止了我的专栏。就在《福布斯》取消我专栏的那天，编辑们就立刻转向了。一篇关于福奇的新文章《福奇的画像将很快挂在史密森尼博物馆》就被发表了，当然，这篇文章被指定为‘编辑精选’”。
 
+文章指出，2014年，福布斯被一家中共国公司接管，当时《华盛顿邮报》对此作了报道。
 
-[【援引连结】](https://apnews.com/article/russia-ukraine-kyiv-europe-0496e642a4a0d8d7d7fe900a8bcab2f1)
+2014年，一家名为本汇鲸媒体投资有限公司（Integrated Whale Media）的香港投资集团购买了美国最知名的媒体公司之一福布斯传媒的大部分股份，自收购以来，已经发生了几起涉及中共国的报道的编辑干预事件，使人们对《福布斯》杂志的编辑独立性承诺产生了疑问。
 
-**推出问题，敲出真相，爆料在路上！**
+安泽耶夫斯基披露，10月9日，长期从事中共国问题评论的章家墩（Gordon Chang）先生收到了《福布斯》意见编辑阿维克·罗伊（Avik S.A. Roy）的一封邮件。在安泽耶夫斯基的请求下，章家墩先生将该邮件转给了他。邮件中说：“由于《福布斯》内容的重大重组，我们将结束与你的官方关系，作为重组的结果，你为我们写的文章将不再储存在《、福布斯服务器上，也不会出现在福布斯网站上。”
 
-**请关注和订阅我们的以下账号：**
+**新闻来源**
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+[REVEALED: China-Owned Forbes Fired a Top Transparency Columnist After a Pressure Campaign from Fauci’s NIH](https://thenationalpulse.com/2022/03/09/revealed-china-owned-forbes-fired-a-top-transparency-columnist-after-a-pressure-campaign-from-faucis-nih/)
 
  
 

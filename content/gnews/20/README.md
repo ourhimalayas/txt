@@ -2,35 +2,24 @@
 ---
 
 
-## 泽连斯基总统在英国国会发表历史性演说
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2138049/)
+## 樱花FM|中日财经爆|俄罗斯入侵乌克兰 国际粮价指数创11年新高
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2138140/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月8日，据相关媒体报道，乌克兰总统泽连斯基当天在英国国会下议院发表了一场历史性的演说。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-10-上午9.34.36.png)
-据悉，泽连斯基在演说中先是对俄罗斯长达13天的侵略行为表示了谴责。他指出，这次侵略战争给乌克兰人民带来了深重灾难。但泽连斯基也强调，乌克兰人民绝不放弃反抗，并且当地民众坚信，战争罪犯必将受到国际社会审判。至于乌克兰的立场，泽连斯基表示，乌克兰为了生存和自由将不计代价地奋战到底。
+音频：东京樱花团/战友520
+![](https://lh5.googleusercontent.com/QqI6FQtZWb2HqS-qqKeqQ1tSS_mWwFwRAnUXSngryGtqkDsW8wid-jK029owauA3J6YugoLkFByRTqUn6rdI9edsiN4cdeJEep3MSorqs9ySV8ZjXvk8IPJKDwssii7LlPgKxOHW)
+联合国粮食及农业组织（FAO）3月4日公布的世界食品价格指数为140.7，环比上涨5.3点，这是自2011年2月以来11年来的最高值。除了全球食品需求增加外，俄罗斯入侵乌克兰导致的供应不稳定也推高了价格。
 
-此外，泽连斯基还向英国政府发出呼吁称，英国需要加强对俄罗斯这个恐怖主义大国的制裁。同时，乌克兰需要英国的帮助来确保该国领空的安全。
+食品价格指数反映粮食、肉类、奶制品等五类商品的交易价格，被视为食品价格的代表指数。食用油价格涨幅明显，比上月上涨15.8个百分点。主要因素是需求增加，但担心俄罗斯军队正在扩大控制区域的黑海地区的出口将被推迟也导致价格上涨。
 
-报道也提到，泽连斯基是第一个在英国下议院发表演说的外国领袖，且在其演说开始之前，英国首相、外交大臣和国防大臣等高级官员全体起立，用长达40秒的掌声表达了对泽连斯基的敬意。
+小麦等粮食价格比上月上涨4.2个百分点。3月4日在芝加哥交易所，作为代表指标的期货价格暂时触及1蒲式耳=13.4美元，创出新高。占世界小麦出口 30% 的俄罗斯和乌克兰的供应不安全现象普遍存在，未来高价格很可能会持续。
 
-参考链接：[英國會歷史性演說 澤倫斯基：烏克蘭不會投降！](https://news.ltn.com.tw/news/world/breakingnews/3853265)
+文字版原文：[中日财经爆|俄罗斯入侵乌克兰 国际粮价指数创11年新高](https://gnews.org/zh-hans/2110014/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
 
-总编：Irene木木
-编辑：宁文静
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
