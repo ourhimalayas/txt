@@ -24,50 +24,50 @@
 ### [日本研制出奥密克戎毒株亚型“BA.2”的治疗新药](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声｜欧盟扩大对俄制裁 黑名单新增160人](/content/gnews/4/README.md)
+### [2022/03/07 班农战斗室：媒体高官为了钱推销疫苗](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声｜欧盟扩大对俄制裁 黑名单新增160人](/content/gnews/5/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜Twitter推出旨在绕过俄罗斯封锁的服务](/content/gnews/5/README.md)
+### [有声｜Twitter推出旨在绕过俄罗斯封锁的服务](/content/gnews/6/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [与乌克兰基金会主席的对话](/content/gnews/6/README.md)
+### [与乌克兰基金会主席的对话](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声｜大翻盘！对中强硬派候选人当选韩国总统](/content/gnews/7/README.md)
+### [有声｜大翻盘！对中强硬派候选人当选韩国总统](/content/gnews/8/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜舆论关注铁链女 西安《窦娥冤》演出被叫停](/content/gnews/8/README.md)
+### [有声｜舆论关注铁链女 西安《窦娥冤》演出被叫停](/content/gnews/9/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [库莱巴会见拉夫罗夫：仍未停火](/content/gnews/9/README.md)
+### [库莱巴会见拉夫罗夫：仍未停火](/content/gnews/10/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [Omicron子变体或导致澳洲部分地区新冠病例在数周内倍增](/content/gnews/10/README.md)
+### [Omicron子变体或导致澳洲部分地区新冠病例在数周内倍增](/content/gnews/11/README.md)
  ` 澳喜特战旅Gnews`
 
-### [有声｜人民币国际结算增加 专家：俄资金临时避险](/content/gnews/11/README.md)
+### [有声｜人民币国际结算增加 专家：俄资金临时避险](/content/gnews/12/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [2022/03/08 北约国家将要助战乌克兰](/content/gnews/12/README.md)
+### [2022/03/08 北约国家将要助战乌克兰](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声｜乌克兰称 一家儿童医院遭受俄罗斯的袭击](/content/gnews/13/README.md)
+### [有声｜乌克兰称 一家儿童医院遭受俄罗斯的袭击](/content/gnews/14/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [“自古以来”的悖论](/content/gnews/14/README.md)
+### [“自古以来”的悖论](/content/gnews/15/README.md)
  ` 银河勇气之星`
 
-### [2022/03/06泽连斯基：不会原谅俄罗斯对乌克兰的摧毁和杀戮](/content/gnews/15/README.md)
+### [2022/03/06泽连斯基：不会原谅俄罗斯对乌克兰的摧毁和杀戮](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [被俄军占领的切尔诺贝利核电站已停止传送安全数据，核电站员工的状况堪忧](/content/gnews/16/README.md)
+### [被俄军占领的切尔诺贝利核电站已停止传送安全数据，核电站员工的状况堪忧](/content/gnews/17/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [拜登签署行政令 要求政府评估发行数字美元的利弊](/content/gnews/17/README.md)
+### [拜登签署行政令 要求政府评估发行数字美元的利弊](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
-
-### [巾帼不让须眉 伟大的乌克兰女战士](/content/gnews/18/README.md)
- ` 波士顿五月花农场金融部`
 
 ### [乌克兰男童哭着穿越边境！波兰防卫队爆现状：一家平安！](/content/gnews/19/README.md)
  ` 蓝莲花农场`
