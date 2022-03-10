@@ -2,51 +2,35 @@
 ---
 
 
-## 欧盟新增俄罗斯160人入黑名单
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2137917/)
+## 中共乌克兰撤侨新闻再现假照片
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2138050/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1638315122177-7a23fd4dd0af45c4b548f1afb2f2c326-800x468-1.jpeg)
-3月10日，欧洲联盟（EU）宣布扩大对俄罗斯制裁，今天将160名俄国寡头与政坛人士增列至黑名单，另也锁定加密资产与海事部门祭出限制措施。
+作者：纽约香草山农场—Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月9日，俄罗斯入侵乌克兰的战争已经跨入了第十四天，但中共在乌克兰的撤侨救援行动依然迟缓，备受国内外诟病。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-10-上午9.34.42.png)
+据中共官媒声称，中共政府自3月初开始就已经开始了所谓的撤侨任务：中共扬言已经包机将滞留在乌克兰的中国人全数成功救援回国，相关新闻还附上了中共宣传用的“撤侨照片”。
 
-27国组成的欧盟先前已以明斯克当局支持克里姆林宫的攻击为由，将白俄罗斯3家银行逐出环球银行金融电信协会（SWIFT）支付系统。
+但是，经过爆料革命战友对比分析后发现，中共官媒报道的乌克兰撤侨新闻中的三张照片与中共2011年在北非撤侨、2016年在新西兰撤侨和印度此次在乌克兰撤侨的照片一模一样。另据郭文贵先生在直播中透露，中共根本没有在乌克兰有任何的撤侨救援行动，乌克兰当地至今还有几百个中国留学生躲在基辅的地下室，他们没有食物和水，只能向日本人求救，希望能够得到些许帮助。
 
-欧盟执行委员会主席范德赖恩（Ursula von der Leyen）推文说：“我们正在更进一步收紧制裁网，回应俄罗斯对乌克兰的军事侵略。”
+对此，战友们也评论称，中共的乌克兰撤侨行动还是其一贯的“假骗偷”手段，所有的新闻无非是宣传给墙内民众看的一场表演。
 
-一份声明指出，俄罗斯上议院有146人被增至黑名单，14名克里姆林宫相关寡头人物与其亲属也被列入资产冻结与签证禁令黑名单。
+参考链接：[第一批中国留学生撤离基辅，线路选择有讲究，取道第三国包机回国](https://www.sohu.com/a/526222720_492332)
 
-受冲击的包括亿万富翁梅里尼钦科（Andrei Melnichenko）、俄罗斯航空公司（Aeroflot）执行长波卢博亚里诺夫（Mikhail Poluboyarinov）、钢管大亨斯维塔科夫（Dmitry Pumpyansky），以及化工鉅子马泽平（Dmitry Mazepin）和他身为一级方程式（Formula One, F1）赛车手的儿子尼基塔（Nikita）。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
-欧盟也把俄罗斯外交部长拉夫罗夫（Sergei Lavrov）的女婿、食品零售商维诺克鲁夫（Alexander Vinokurov）列入黑名单，显示制裁范围已逐渐扩大到知名人物的亲戚。
+总编：Irene木木
+编辑：Irene木木
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-欧盟另扩大对加密货币的限制，以避免遭制裁的个人与公司利用加密数位系统规避制裁。
-
-针对海事部门的制裁，则将限制「航海与无线电通讯技术」出口到俄罗斯。
-
-
-
-[【援引连结】](https://www.swissinfo.ch/chi/afp/%E6%AC%A7%E7%9B%9F%E6%96%B0%E5%A2%9E%E4%BF%84%E7%BD%97%E6%96%AF160%E4%BA%BA%E5%85%A5%E9%BB%91%E5%90%8D%E5%8D%95/47419112)
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,35 @@
 ---
 
 
-## 拜登宣布禁止进口俄罗斯石油
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2137857/)
+## 乌克兰人的坚强和团结是中国人学习的楷模
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2138048/)
 
-采编：加拿大温哥华杨帆农场 –风云小哥
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在3月8日的盖特视频中指出，此次俄乌战争充分体现出了乌克兰人团结和坚强的民族精神。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-10-上午9.34.30.png)
+郭先生表示，乌克兰人良好的族群关系和使命感让他们这次紧紧地团结在了一起，为了自己的家人、土地、资产、安全和尊严誓死不屈地顽强战斗，向全世界证明了乌克兰的坚强和伟大。到最后，普京发动的这场侵略战争只会以失败告终。
 
-翻译编辑：加拿大温哥华杨帆农场 –文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-983.png)图片来源：NBC News
+郭先生还提到，而今，全世界都明白中共才是俄罗斯背后的金主和挑拨战争的主谋，这将导致被中共绑架的中国人最终承受这场战争所带来的高昂代价。
 
+但郭先生也补充道，目前，新中国联邦在乌克兰的战友们不仅正在努力地拯救着所有海外中国人的安全，他们更是在拯救着海内外换人的未来。
 
-据英国《独立报》3月8日报道，美国总统拜登当天宣布，将禁止俄罗斯石油产品进口到美国市场，以此断绝俄总统普京入侵乌克兰的资金来源。
+参考链接：[https://www.gettr.com/post/pyx8jl8f44](https://www.gettr.com/post/pyx8jl8f44)
 
-据悉，该项与欧盟密切协商后做出的，包括对俄罗斯石油、天然气和能源进口的禁令得到了各界广泛支持。同时，该决定还禁止美国对俄罗斯能源部门进行新的投资。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
-报道称，美国是能源出口国，国内石油供给量足以支持该禁令的实施 。但由于欧洲严重依赖俄罗斯能源进口，而无法立即效仿美国执行相同措施。因此，欧盟转向其他国家能源供给势在必行。
+总编：Irene木木
+编辑：Irene木木
+审核：宁文静
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-目前，石油和天然气出口是俄罗斯主要财政收入来源，该禁令无疑将进一步孤立该国经济，并将加速该国陷入对乌克兰的战争泥潭中。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：晨熹 青青
-
-原文链接：https://www.independent.co.uk/news/world/americas/us-politics/biden-russia-oil-ban-ukraine-us-b2031052.html
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

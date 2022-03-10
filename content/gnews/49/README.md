@@ -2,27 +2,51 @@
 ---
 
 
-## 有声｜23岁香港青年因反送中10.1 屯门警民冲突被判囚4年
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2130317/)
+## 新中国联邦法制基金乌克兰救援团建战地新闻直播中心
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2131596/)
 
-**By:秘翻新闻**
+作者：香草山农场写作组 – 静言
 
-**2022-03-09**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片55.png)图片源自:自由亚洲电台
-据[《自由亚洲电台》](https://www.rfa.org/cantonese/news/htm/hk-10-1court-03082022072446.html)3月8日报道，周二，香港区域法院就10.1屯门警民冲突一案，判处被告——23岁的发型师助理叶浩轩监禁4年。
 
-2019年10月1日，香港警方禁止民阵举办「没有国庆 ，只有国殇」的游行，但市民发起多区示威，其中屯门大会堂外发生警民冲突。
 
-叶浩轩被指控暴动、袭警及管有物品意图损坏财产罪。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-区域法院暂委法官高伟雄判刑时指，被告当时为拯救被制伏的女友而冲向警员。
 
-（ 秘翻新闻 Milojai 编辑报道 ）
 
-发布:星星
+3月8日，新中国联邦法治基金乌克兰救援队前线发回简讯，参与救援的各个分队会有明确分工。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
+华盛顿农场阿丙团队将前往波兰与乌克兰交界的小镇Medyka, 建立战地新闻直播中心，此镇是乌克兰人逃生必经之地。昨天刚刚到达的洛杉矶团队负责人明道，负责Medyka的战地新闻报道。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture-27.jpg)
+鉴于目前乌克兰局势日益恶化，新中国联邦救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
+自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发前往波兰。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+求助方式请参考以下视频。
+
+意大利文科团队将在Medyka 指挥营救行动。
+
+当地时间8日早晨还有另外一条喜讯，在救援队前往乌克兰边境救援的路上，看见一辆有红十字会标记的大巴往乌克兰边境开去。连日来辛苦疲惫且孤单营救的新中国联邦战友们，心里感到无比温暖，愿更多正义力量加入营救乌克兰难民的阵营。
+
+参考链接：
+[新中国联邦和法治基金关于紧急救援乌克兰的通知](https://gettr.com/post/pyw9zs571a)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/审核：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
