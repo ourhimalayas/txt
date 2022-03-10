@@ -2,21 +2,26 @@
 ---
 
 
-## 只要有网络，中共都能找到你
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2136127/)
+## 中日财经爆┃资生堂停止向俄罗斯出口化妆品 广告商业活动也暂停
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2136241/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+撰稿：东京樱花团/peterwong
 
-*发布：陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/资生堂停止向俄罗斯出口化妆品-广告商业活动也暂停.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.yuxiblog.com%2Fwp-content%2Fuploads%2F2019%2F04%2F20190425143321.jpg&amp;imgrefurl=https%3A%2F%2Fwww.yuxiblog.com%2Fhow-about-shiseido-skincare-products%2F&amp;tbnid=WrPtA_1Obgsl9M&amp;vet=12ahUKEwje8tHw-rr2AhVqgv0HHdqNAXgQMygGegUIARDDAg..i&amp;docid=ANUPsgFfWclW8M&amp;w=660&amp;h=370&amp;q=%E8%B5%84%E7%94%9F%E5%A0%82&amp;hl=zh-CN&amp;ved=2ahUKEwje8tHw-rr2AhVqgv0HHdqNAXgQMygGegUIARDDAg)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+3月10日，资生堂宣布将立即停止向俄罗斯出口化妆品。在俄罗斯的广告等商业活动也将完全暂停。
 
+该公司一直从欧洲向俄罗斯出口化妆品，资生堂将在必要的时期内保证其俄罗斯员工的就业和薪酬。
+
+资生堂是日本一家跨国化妆品及日用品公司，其名源自中国古籍《易经》之“至哉坤元,万物资生”。其化妆品市占率在日本国内排名第一，世界则位居第五。
+
+消息来源:
+
+[資生堂、ロシアへの化粧品輸出を即時停止…広告宣伝も全面中止](https://www.yomiuri.co.jp/economy/20220310-OYT1T50142/)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,18 +2,25 @@
 ---
 
 
-## 中共两会｜国防部：对“台独”行径绝不姑息 民进党是动荡的根源
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2136015/)
+## 视频|郭先生揭露中共干扰乌克兰救援行动
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2136045/)
 
-**撰文/ 港台前线｜发布日期/ 10/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/國防部：對台獨行徑絕不姑息-民進黨是動盪的根源.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+制作：香草山视频部
 
-十三届全国人大五次会议解放军和武警部队代表团发言人吴谦，在回应政府工作报告时批评，台湾民进党勾结外部势力，进行谋“独”挑衅，是造成当前台海局势紧张且动荡的根源。
+3月8日，郭文贵先生在盖特视频中再次提到了中共对新中国联邦在乌克兰救援行动的干扰。
 
-他表示，中共坚决反对“台独”，并反对外部势力干涉，，坚持“和平统一、一国两制”的方针，美日试图通过打“台湾牌”，实现“以台制华”的政治图谋，注定难以成真；解放军对台独分裂行径和外部势力干涉，绝不姑息、绝不容忍、露头就打。
+郭先生表示，自俄罗斯入侵乌克兰以来，中共处处阻拦新中国联邦和法治基金对乌克兰的国际人道救援行动：中共先是在乌克兰留学中心平台污蔑新中国联邦欺骗在乌中国留学生，其后又发信息将已经搭乘了救援大巴的18位中国同胞诱骗下车；此外，中共还派人骚扰法治基金的救援热线电话，并鼓动大外宣媒体多方攻击新中国联邦的救援行动。 如今，中共再次黑客攻击新中国联邦国际人道主义救援的邮箱，试图扰乱救助信息并断绝求救者的希望。
 
-来源｜[文汇报](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;cad=rja&amp;uact=8&amp;ved=2ahUKEwjdkfjN9rr2AhVnJkQIHVX5ACAQxfQBKAB6BAgEEAI&amp;url=https%3A%2F%2Fwww.wenweipo.com%2Fa%2F202203%2F10%2FAP62296b7be4b036dce99cde99.html&amp;usg=AOvVaw1oEB80jBu0Sw9wAoA4NrV3)
+另一方面，中共外交部谎称其已完成在乌的撤侨任务，但郭先生透露，在乌克兰的战火中，目前仍有成千上万的华人正躲在地下室、焦急地等待着救援。
+
+郭先生指出，中共非但自身没有能力救援，其还大肆拦阻新中国联邦的救助行动。 然而，中共的这些举动已经全然暴露在全球正义人士的眼中，其所犯下的罪行也终将被审判。
+
+发稿：林礼
+
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

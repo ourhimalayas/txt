@@ -2,8 +2,8 @@
 ---
 
 
-## 中共用一国之力黑七哥社交媒体账号
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2136137/)
+## 中共会发起一场能源或区域性战争，国内蕴含着粮食危机
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2136246/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
