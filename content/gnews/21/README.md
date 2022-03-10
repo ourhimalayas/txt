@@ -2,35 +2,32 @@
 ---
 
 
-## 有声|新中国联邦的乌克兰救援行动 吸引世界媒体的关注
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2140009/)
+## 当你生命中遇到所谓的地狱给他发出的死亡信息，叫：愚蠢、蛊惑、谣言、仇恨
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2140073/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-俄罗斯入侵乌克兰已经进入第十三天，前世界目光聚焦于乌克兰。波兰边境由于大量乌克兰难民涌入，已经成为难民救援中心，和全球媒体云集之地。正在波兰边境展开救援行动的新中国联邦，为世界各个媒体所关注。
+文编：Hima
+听写：文龙
+视频：七哥
 
-日本时间3月8日，日本唯一的国有电视台NHK，派记者现场报道了乌克兰的救援现况，和新中国联邦的救援点，还有亮眼的蓝色联邦七芒星旗，就在记者身后飘扬。虽然，日本记者没有提及我们新中国联邦，但是，整个报道一直可以看见清晰的新中国联邦旗在飘扬。
+2022-03-06直播摘录
 
-同日，前线Nicole 发回的消息，她采访了一位来自德国的法籍战地记者Emma。Emma在采访中表示，她知道新中国联邦，支持新中国联邦“消灭中国共产党”的主张。并且，她看到我们新中国联邦在乌克兰救援的高效和不计回报的付出，非常感动，认为我们新中国联邦人是热爱和平善良的人，不等同于中国共产党。Emma最后还和Nicole一起喊出：“Take down the CCP!”
+在中岳庙还有一句非常决绝的话：当你生命中遇到所谓的地狱给他发出的死亡信息，叫：愚蠢、蛊惑、谣言、仇恨。不是阎王爷发出勾你的勾子，不是你想象的什么勾命魂儿，勾拿着镰刀什么的，他用各种办法让你去他那里报道去，让你相信谎言，传播谎言。然后让你给你脑子中上愚蠢，我觉得中国道教真挺高的，我觉得像你相信愚蠢，就像九指妖是吧，每天醒来睡觉都在干一件事儿，新中国联邦他毁我们，大家你们想想啊，如果没有人攻击我们，没有人用自己的生命和谣言，证明我们的真理，我们多糊涂啊。这也是中岳庙描述的很多真相，很多善良，是因为愚蠢、蛊惑、谣言、伤害、贪婪给你给你带来的，那是阎王爷给她这人发出这些勾魂勾儿的时候，给好人留下的礼物。如果大家想想，没有黄河边，九指妖，路大脑袋，蛇妖闫，咱大家知不知道我们有多好？你没有共产党这种流氓，你真不知道，我们新中国联邦多重要对中国人。 远在非洲，还有在欧洲，还有那个意大利，我们有几个华人在大街上突然间冲出来，叫人家不知道谁，拿着一种软乎乎的东西，身上抽的都懵了。前天看到纽约了吗？你们一定要注意啊，在纽约第五大道，就在希尔顿的楼下。五个华裔被打的脸，嘴都全打歪歪了。看到了吧，纽约，多少华人，现在纽约，你知道我很多这个安保的，还有美国的这个管安全的高手，说一定要让你们的战友，亚洲的战友，亚裔女性，真的不要去这些这些不安全的地区。
 
-前线Nicole 还发回消息，来自纽约，全球第三大联播网——CBS的直播车就在我们的直播中心旁边，在过去的两天时间里，他们一直都在关注我们的救援行动。明天，他们的早间新闻主播Tony会到现场, 来跟纽约总部连线直播。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-正如郭文贵先生所述：世界上尚没有一个国家像新中国联邦这样去前线救援！随着乌克兰救援行动的展开，我们救出越来越多的人，新中国联邦就越来越为人所知，新中国联邦将走向越来越广阔的世界舞台！
+**关注我们**
 
-文字版原文：[新中国联邦的乌克兰救援行动 吸引世界媒体的关注](https://gnews.org/zh-hans/2128688/)
+Discord 账号
 
-音频处理：Fei797
-发稿：Fei797
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+Gettr 账号
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
