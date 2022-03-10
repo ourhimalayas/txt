@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 2:14 AM (UTC)`
+
+【Ukraine Rescue】03/08/2022  Interviewing Peter, the translator of NFSC frontline rescue team: I hope all the Chinese people will be like the people of the New Federal State of China, for their views and actions.  China and the traditional culture were destroyed by CCP. CCP doesn’t represent China, nor the Chinese people and the culture. <br/><br/>【乌克兰救援】03/08/2022 采访新中国联邦前线救援团队翻译，彼得：希望以后所有的中国人都能够像此时此刻他看到的新中国联邦人一样。中国和中国的传统文化就是被共产党破坏了，中共不代表中国，更不代表中国人和中国人的文化。
+![img](https://media.gettr.com/group10/getter/2022/03/10/02/75659867-6bb7-ff1f-e076-f428e991aa6e/out.jpg)
+
+---
+
 `@miles 3/10/2022 1:55 AM (UTC)`
 
 【Ukrainian Rescue】03/09/22: Fellow Fighter of NFSC:  Having witnessed our excellence in the rescue work here, the local on-site manager in Poland arranged the best spot for us to set up the tent near the bus pick-up point. They were outraged by the response that they couldn’t even get a single tent from the local Red Cross. The real rescuers are people from the New Federal State of China.<br/><br/>【乌克兰救援】03/09/22新中国联邦战友：看到我们的救援行动非常的棒，波兰当地负责人将最好的地方安排给我们搭帐篷。当地红十字会连个帐篷都不给他们提供，他们非常的气愤。我们新中国联邦才是真正的救助。
@@ -147,13 +154,6 @@
 
 【Ukrainian Rescue】03/08/22 Chinese husband and his Ukrainian wife rescued by NFSC and ROLF explains how they decided to leave Ukraine and take our rescue bus ASAP<br/><br/>【乌克兰救援】03/08/22 被新中国联邦和法治基金救援的中国男士及其乌克兰夫人讲述如何做出决定坐巴士尽快离开<br/>
 ![img](https://media.gettr.com/group45/getter/2022/03/09/10/8fb31a9e-8d77-e611-9360-c97cb43cf755/out.jpg)
-
----
-
-`@miles 3/9/2022 10:35 AM (UTC)`
-
-【Ukrainian Rescue】03/08/22 Chinese husband and his Ukrainian wife rescued by NFSC and ROLF expresses their gratitude<br/><br/>【乌克兰救援】03/08/22 被新中国联邦和法治基金救援的中国男士及其乌克兰夫人表达感激之情<br/><br/>
-![img](https://media.gettr.com/group39/getter/2022/03/09/10/22f7447d-c438-6501-027b-01e98e96926e/out.jpg)
 
 ---
 
