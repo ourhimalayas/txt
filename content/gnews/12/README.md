@@ -2,43 +2,55 @@
 ---
 
 
-## 大直播后记：人类已经进入了前所未有的大变局
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2135047/)
+## 蓬佩奥:中共是我们这个时代的核心威胁
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2135121/)
 
-整理：Anita、Lucy Liu
-编辑：Mttfly
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/c282807f0ec6e5c7.jpg)图片来源：雅典娜设计组
+美前国务卿迈克·蓬佩奥： 在经济实力和下一代技术的推动下，[#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click) 独裁世界的黑暗未来变得越来越现实。这就是为什么 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 造成的危险是我们这个时代的核心威胁。
 
 
-世界上不可能再看到未来的俄罗斯，也不会有今天的欧洲。你会很快看到俄罗斯和欧洲被一个大的欧洲整体所代替。它过去叫Europe，欧洲。现在我告诉你，叫乌克兰洲，urope（音译）。没有俄罗斯，叫uros（音译）。不可能再有俄罗斯存在，它就变化会这么大。
 
-你会看到所谓的大中国不会存在，整个中国会被解体。所有的台湾、香港、新疆、西藏、广东，甚至东北都会被解体。然后中华民国会成立一个叫中华台湾国、西藏国、新疆国、广东国或者粤国。整个福建朝东都会划给台湾，而且不是外国势力的干涉，是中国人自愿的。
+> The dark future of a world under a communist dictatorship, empowered by economic strength and next-generation technologies, has become more and more realistic. That’s why the danger posed by the CCP is the central threat of our time.
+> — Mike Pompeo (@mikepompeo) [March 10, 2022](https://twitter.com/mikepompeo/status/1501736871331708930?ref_src=twsrc%5Etfw)
 
-然后你会看到，世界上就像我以前说的一样，加拿大会逐渐地从美国的裤裆里站立起来，成为一个独立的个体。大量的移民，澳大利亚会崛起。大家会看到整个世界的变局。
 
-欧洲板块彻底没有什么东欧、中东欧、西欧，而是会成为以乌克兰为主的这么一个欧洲。乌克兰的经济靠什么支撑？乌克兰这一次给人类奠定了基础——人类上缺乏的正义和勇气。
 
-乌克兰会以什么为中心？我告诉大家——高科技。它会发展为新的能源中心代替天然气和石油。它也会发展未来的通信、网络、科技、太空。都会以乌克兰人和乌克兰为中心，建立欧洲的大中心。
+参议员汤姆·科顿： 帮助乌克兰抵御残酷无情的独裁者符合我们的最大利益。 美国人认识到这一点——无论拜登政府承认与否。
 
-第二，经济体靠数字经济、数字货币。还有一个最重要的，叫数字安全。你们会看到这个世界新的未来。UFO、还有太空科技，包括无人机，以及你们最想探索太空的所有的一切幻想，可能都会在乌克兰这个地方发生。因为全世界的年轻人、有良知的人都会聚向那里。为什么？那里的人勇敢，那里的人懂得感恩，而且那里的土地富饶，那里的交通条件从黑海、死海、到地中海、到红海，都会成为最天然的条件。
 
-那整个亚洲呢？就是台湾。你别看岛小，台湾会把帛琉，整个周围那些小国家，甚至日本的北部（编辑推测南部）以及整个中国南海，福建东部以及广西附近，整个广东东半部全划为中华民国、中华台湾国。你会看到西藏、新疆大解体，这是没有任何疑念的。
 
-普京时代已经彻底过去了，七哥早就告诉你们，他只要打响第一枪就过去了。习的时代不是过去了，习的时代在extremely painful（极度痛苦）。很多中国人会extremely painful到坟墓里。你会看到天安门上不会有一点共产党的标志在那里，而且是一夜之间，我说一夜都很长了。
+> Helping Ukraine defend itself against a ruthless dictator is in our best interest.
+> 
+> Americans recognize that—whether the Biden administration does or not.
+> — Tom Cotton (@SenTomCotton) [March 9, 2022](https://twitter.com/SenTomCotton/status/1501704136835878913?ref_src=twsrc%5Etfw)
 
-喜币现在40.5美元，接下来的两周，会有一个小的质的改变。五周到六周，你会看到一个惊天的消息。我再给你们重申一遍。3月底到4月15号，是共产党在世界上疯狂的开始。
 
-资料来源：[2022年3月9日 文贵大直播：是谁黑掉乌克兰救援邮件官网；是谁暂禁郭先生油管上传视频；什么力量封杀乌克兰救援信息；《铁锁梦》创作及推出后感受EST9:10-9:20](https://www.gettr.com/streaming/pz1ocoe7cb)
 
-发布：tianzhihuan
+参议员马可·卢比奥： 一周来我每天都提到这个是有原因的 当俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 设置了虚假的生物或化学（武器）标志时，他们正在做着过去所做的一切 【转卫报报道：英美担心俄罗斯可能会为使用化学武器做准备】
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+> I have mentioned this every day for a week for a reason[#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) is doing everything it has done in the past when they have set up a biological or chemical false flag [https://t.co/Ah2wQB28U5](https://t.co/Ah2wQB28U5)
+> — Marco Rubio (@marcorubio) [March 9, 2022](https://twitter.com/marcorubio/status/1501667575708753924?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加西亚： 别搞错了—— [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 是我们最大的威胁。 最近，美国司法部@TheJusticeDept 终止了“中国倡议”，这是一项旨在保护美国实验室和企业免受经济间谍和财产盗窃的关键计划。 【转lawfareblog 报道：美国司法部终止有争议的“中国倡议”项目】 这一决定是拜登政府“撤资警察”和努力重新想象“安全”的样子的延续。 我们已经看到了这一决定的影响，因为6个美国国家机构受到了 [#CCP](https://gettr.com/hashtag/%23CCP) [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 政府支持的黑客组织的攻击。 【转cnn : 网络安全公司称 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 黑客入侵了六家美国国家机构】 正如我们在“撤资警察”运动中看到的那样，犯罪率正在上升。 当像 [#习近平](https://gettr.com/hashtag/%23%E4%B9%A0%E8%BF%91%E5%B9%B3) 主席这样的外国领导人在试图破坏美国，而美国政府却同时心甘情愿地撤走“警察”时——就会产生现实的后果。
+
+
+
+> Make no mistake – China is our greatest threat. Recently, [@TheJusticeDept](https://twitter.com/TheJusticeDept?ref_src=twsrc%5Etfw) terminated the "China Initiative" which was a critical program that sought to protect U.S. laboratories & businesses from economic espionage & property theft.[https://t.co/Vh9bEENknu](https://t.co/Vh9bEENknu)
+> — Rep. Mike Garcia (@RepMikeGarcia) [March 9, 2022](https://twitter.com/RepMikeGarcia/status/1501655143137386500?ref_src=twsrc%5Etfw)
+
+
+
+比尔·戈茨： 高级军事和国防官员告诉国会，俄罗斯入侵乌克兰引发了对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 袭击 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的新担忧。 美国正在中国附近加强力量并敦促台北准备抵抗力量 【附华盛顿时报上 比尔·戈茨文章：俄罗斯入侵增加了中共国攻击台湾的新的危险】
+
+
+
+> Russia’s invasion of Ukraine prompts new fears of a Chinese attack on Taiwan, senior military and defense officials told Congress. US is bolstering forces near China and urging Taipei to prepare resistance forces [https://t.co/YWW4dH9Ofw](https://t.co/YWW4dH9Ofw)
+> — Bill Gertz (@BillGertz) [March 9, 2022](https://twitter.com/BillGertz/status/1501671202145779715?ref_src=twsrc%5Etfw)
+
+
 
  
 

@@ -2,10 +2,8 @@
 ---
 
 
-## 【乌克兰救援】被法治基金和新中国联邦所救助的乌克兰儿童已抵达法国，稍后前往目的地──西班牙巴塞罗纳。
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134635/)
-
-03/07/2022 被法治基金和新中国联邦所救助的乌克兰儿童已抵达法国，稍后前往目的地──西班牙巴塞罗纳。
+## NESC法治基金不论国界和民族乌克兰国际人道大救援
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134821/)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

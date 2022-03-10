@@ -2,10 +2,10 @@
 ---
 
 
-## 【乌克兰救援】新中国联邦救援队在乌波边境设立新的紧急救援站
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134644/)
+## 退役美军中士协助训练乌克兰抵抗军战士
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134859/)
 
-03/07/2022 新中国联邦救援队在乌波边境设立新的紧急救援站。
+03/08/2022 退役美军中士协助训练乌克兰抵抗军战士。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
