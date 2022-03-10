@@ -2,10 +2,10 @@
 ---
 
 
-## 【乌克兰救援】新中国联邦救援队在乌波边境设立新的紧急救援站
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134644/)
+## 【乌克兰救援】新中国联邦将勇敢善良的中国人和中共分开
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134646/)
 
-03/07/2022 新中国联邦救援队在乌波边境设立新的紧急救援站。
+03/07/2022 新中国联邦将勇敢善良的中国人和中共分开。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
