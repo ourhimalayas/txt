@@ -2,16 +2,13 @@
 ---
 
 
-## 20220309郭文贵大直播 ：七哥、唐平团队创作铁锁梦歌曲的经历
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2137473/)
+## 【乌克兰救援】新中国联邦乌克兰救援行动已成功营救数百难民
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2137550/)
 
-作者：东京樱花团小视频组
+【乌克兰救援】03/09/22新中国联邦和法治基金救援行动在乌波边境梅迪卡设立救助站并已成功营救出数百位难民
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
