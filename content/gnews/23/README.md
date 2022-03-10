@@ -2,52 +2,37 @@
 ---
 
 
-## 随着黄金上涨，美元崩盘可能是俄乌战争最重要的结果
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2135596/)
+## 今日盖特大V推荐 — 安迪·恩戈（Andy Ngo）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2135711/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏      
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-946.png)
+盖特链接：[**https://gettr.com/user/MrAndyNgo**](https://gettr.com/user/MrAndyNgo)
 
-翻译/编辑：小红帽
+**安迪·恩戈自述：**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/gold.jpeg)图片来源：www.forbes.com
+纽约时报畅销书“ 揭开面纱 （Unmasked)”的作者；
+特约编辑@TPostMillennial；
+联系，支持，关注：
+**[https://linktr.ee/AndyNgo](https://linktr.ee/AndyNgo)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-947.png)图片来源：网络
+**安迪·恩戈简介：**
 
+安迪·恩戈（出生于1986）是美国保守记者和社交媒体人物，因报道俄勒冈州波特兰市街头抗议而闻名。他是加拿大保守新闻网站《后千禧年》的编辑。他曾在《华尔街日报》和《旁观者》写专栏。恩戈是福克斯新闻的常客。
 
-根据自然新闻网3月9日报道，自二战以来，美元一直是世界的储备货币，但随着俄罗斯和乌克兰之间战争的爆发，全球正处于下一场全球冲突的边缘，一项新的分析发现，美元很可能成为最大的牺牲品。
+2019年，恩戈在报道“俄勒冈州波特兰市骄傲的男孩”游行时遭到反抗议者的袭击和伤害。这次袭击引起了全国的关注。
 
-《华尔街日报》专栏作家乔恩·辛德鲁(Jon Sindreu)在分析中首先提出了一个问题：“什么是钱？”并继续指出，这是过去几百年经济学家在转向西方对俄罗斯的一项制裁之前，一直在思考的问题。该制裁可能会产生持久的、改变全球的影响。
+在《揭开面纱：在安拉法破坏民主的激进计划中》一书中，恩戈揭露了安提法左翼激进组织的暴力极端主义运动的内幕，他因此受到人生危胁。在报道波特兰市因乔治·弗洛伊德（George Floyd）被警察过度执法而死亡的抗议活动时遭到安提法人士的殴打和追捕。
 
-为了回答他的问题，辛德鲁指出了 “俄罗斯中央银行储备的封锁”，他说 “这对世界上最大的国家–特别是中共国来说有了新的意义”，因为它突出了“积累外国资产”的内在风险，这将导致“军事和经济集团”的距离越来越远。
+揭开面纱：在安拉法破坏民主的激进计划中（**Unmasked: Inside Antifa’s Radical Plan to Destroy Democracy**）书本网址：
+[**https://www.amazon.com/Unmasked-Antifas-Radical-Destroy-Democracy/dp/154605958X/ref=nodl\_?tag=nypost-20&asc\_refurl=https://nypost.com/2021/01/30/how-a-portland-radical-murdered-a-trump-supporter/&asc\_source=web**](https://www.amazon.com/Unmasked-Antifas-Radical-Destroy-Democracy/dp/154605958X/ref=nodl_?tag=nypost-20&amp;asc_refurl=https://nypost.com/2021/01/30/how-a-portland-radical-murdered-a-trump-supporter/&amp;asc_source=web)
 
-在俄罗斯入侵后，美国和西方盟国阻止俄罗斯中央银行动用其6300亿美元的外汇储备货币中的绝大部分，并补充说“将货币体系武器化以对抗20国集团国家将产生持久的影响”。
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+校审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-辛德鲁在一张图表中指出，世界各国持有的价值超过15万亿美元的储备中，绝大多数是“货币”–即纸币，而以黄金和其他投资资产持有的数量要少得多。
-
-根据国际货币基金组织的数据，1997年的亚洲金融危机吓得发展中国家积累了更多的资金，以保护其货币不受崩盘的影响，并将官方储备从不到2万亿美元推到2021年创纪录的14.9万亿美元。
-
-虽然中央银行最近试图购买和遣返黄金，但它只占其资产的13%。外币占78%。其余的是国际货币基金组织和特别提款权——国际货币基金组织创造的硬通货债权。
-
-这位专栏作家说，一段时间以来，许多经济学家将这种货币储备等同于猪圈里的储蓄。这反过来又对应于对实体经济的海外投资。
-
-但最近的一些事件揭示了为什么这种想法是错误的。除了黄金之外，其他资产都是别人的负债–有人可以随便决定自己不值钱。
-
-辛德鲁列举了几个最近的例子，比如去年国际货币基金组织切断了塔利班获得阿富汗资金和特别提款权的途径，以及对伊朗的制裁。这证明在海外持有储备并不能阻止美国财政部采取行动。”
-
-虽然美国和北约盟国阻止了俄罗斯银行获取储备，但他们并没有采取行动阻止新的美元和欧元流入，主要是通过出售石油和其他能源。尽管如此，美国及其西方盟国所做的却展示了将其货币作为储备的实际风险，这促使俄罗斯和中共国推动购买更多硬通货。
-
-由于大多数国家与西方接轨和北京当局的资本控制，美元王者地位的风险仍然有限。但随着美国和西方采取的每一项行动，切断各国花费他们被允许积累的储备，这种情况正在发生变化。
-
-囤积商品是一种选择。这个难题为北京当局创造了另一个激励因素，即通过将其经济重新定位为国内消费，以减少其贸易顺差，尽管这已被证明具有挑战性。辛德鲁最后得出结论–投资者能做什么？这一次，老套路可能并不是不明智的：“购买黄金。世界上的许多中央银行肯定会这样做。”
-
-新闻链接：[Dollar collapse could be the most significant result of the Russia-Ukraine war as gold rises, analysis warns](https://www.naturalnews.com/2022-03-09-dollar-collapse-could-be-result-russia-ukraine-war-gold-rises.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

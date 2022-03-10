@@ -2,34 +2,28 @@
 ---
 
 
-## 有声|新中国联邦,法治基金人类神奇的使节
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2135641/)
+## 巴西出动军机 援助俄乌战争难民
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2135760/)
 
-作者:香草山福音部-melisa/录音-黎明曙光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-新中国联邦法治基金成功从乌克兰救出96名儿童！
+**撰稿：日本东京方舟农场  北极**
 
-并免费安排到西班牙巴塞羅那宾馆！
+据中央社报道，巴西空军运输机KC-390运载超过11吨物资于3月9日飞抵波兰华沙，以援助俄乌战争的难民。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-109.jpg)KC-390运输机。（图片来自维基百科）
+这架KC-390于7日从巴西利亚出发，9日抵达波兰华沙。本次任务除了接运逃离乌克兰的42名巴西侨民外，还将营救23名乌克兰人和1名波兰人，他们已获得入境巴西的人道主义签证。此外，还有6只属于这些家庭的猫犬。
 
-这一行动令人感慨，令人敬佩并受到乌克兰人们的尊重和感谢!
+这架空军运输机共载运11.6吨的捐赠物资，包括50台巴西自主技术制造的净水器，每天可净化约30万公升水;50组太阳能电池板自主供应能源设备;约9公吨（相当于36万餐）高营养脱水食物，以及半公吨基本用品和医疗用品。
 
-新中国联邦，法治基金实施人道救援，称为人类的使节！
+KC-390是在南半球研制的最大军用飞机，也是巴西国防战略项目之一。本次行动得到了巴西政府司法和公共安全部、国防部、外交部和卫生部之间的协调部署。
 
-新中国联邦战友们不畏战火的安危到达前线实施救援行动！
+巴西外交部、司法和公共安全部3日发布了一项法令，规定为乌克兰公民和受俄乌战争影响或流离失所的无国籍人士，授予6个月的临时签证和用于人道主义目的的2年居留许可。
 
-正如孙悟空腾空而降-新中国联邦人！
+参考链接：
+1.[https://www.cna.com.tw/news/aopl/202203100023.aspx](https://www.cna.com.tw/news/aopl/202203100023.aspx)
 
-音频处理/发稿：Daxia
+素材采编：北极
+总编：老孙
+校对发布：爱放飞
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

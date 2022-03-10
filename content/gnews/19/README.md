@@ -2,22 +2,37 @@
 ---
 
 
-## 全球农产品价格暴涨，引发人们对粮食短缺的担忧
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2135692/)
+## 高端芯片断供将重创俄罗斯军工产业
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2135767/)
 
-#### 翻译/撰稿：zzballack
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-5.jpg)图片来源：彭博社
-据《布雷特巴特新闻网》（Breitbart News）3月9日报道，自俄罗斯入侵乌克兰以来，全球粮食价格不断攀升，达到六十年来的最高水平。
+整理：围剿维尼熊
+编辑：小红帽
 
-乌俄两国总计向世界供应了29%的小麦、19%的玉米和80%的葵花籽油。福克斯商业新闻报道说：“这种依赖性让许多贸易商担心，任何进一步的军事行动都可能引发粮食进口商大规模争夺货源，以取代通常来自黑海地区的供应。芝加哥商品交易所上周五（3月4日）的谷物期货收盘价为12.09美元，比前一周高41%，这是六十多年来的最大涨幅。周一（3月8日），该价格连续第六天收盘上涨。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/TSMC.jpeg)图片来源：搜狐
 
-而化肥的价格已经比去年同期上涨了近100%。根据道琼斯的数据，尿素氮的价格几乎上升了99%，磷酸氢二铵的价格上升了68%。
 
-农民瑞克·苏依达姆（Ryck Suydam）告诉《福克斯商业》频道说，他去年花费了1.7万美元为自己的300英亩农场施肥，但今年仅为一半土地施肥就需要花费3.4万美元。“一些农民今年打算休耕，不打算给田地施肥种作物，因为会亏本。为了解决化肥紧张的问题，美国需要增加天然气的产量，使其副产品氮气更容易买得起和获得。这个国家有大量的天然气，打开阀门和管道，让更多的天然气流动起来，使价格下降，这样就可以生产和获得更多的肥料。”
+根据自由亚洲3月9日报道，俄乌战争使俄罗斯受到了全球制裁。台积电、英特尔、三星等是否会停止对俄芯片供应则特别引人关注。
 
-新闻来源：[Grain Prices Soar to Highest in Six Decades, Spark Concern of Food Shortages](https://www.breitbart.com/politics/2022/03/09/grain-prices-soar-to-highest-in-six-decades-spark-concern-of-food-shortages/)
+俄罗斯入侵乌克兰后，欧美对俄罗斯实施科技出口管制措施。台湾也依据防止武器扩散的《瓦圣纳协议》，将对输往俄罗斯的产品进行严格审查。
+
+台积电于9日对是否已对俄罗斯停止供货等相关制裁问题表示：“台积公司一向遵循全球适用之相关法规，目前并无其他相关公开资讯。”有学者认为，长期缺乏芯片将导致俄罗斯军工产业遭受重创。
+
+淡江大学欧洲研究所副教授崔琳表示，俄罗斯国内生产的半导体数量很少，严重依赖进口。俄国处理器品牌Elbrus和 Baikal也均由台积电生产。所以在先进高端芯片方面，对俄伤害会愈来愈明显。
+
+台湾经济研究院产经资料库总监刘佩真指出，“中共国半导体近年受到中美贸易战等影响，发展停滞，可说自身难保。若对俄国提供援助的话，会影响后续美国对中共的制裁。”
+
+参考链接：[俄罗斯若长期缺乏台积电芯片 将无法支持军事发展](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/hx-03092022073310.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

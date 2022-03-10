@@ -2,78 +2,24 @@
 ---
 
 
-## 乌克兰总统泽连斯基：“我们将战斗到底”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2135784/)
+## 【快讯】乌克兰大救援：清晨的新中国联邦梅迪卡救助站
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2135869/)
 
-Volodymy Zelensky (Ukrainian President)
-弗拉基米尔·泽连斯基 (乌克兰总统)
+整撰：奔跑吧黄小鸭
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2jpg.jpg)图片来自：https://gettr.com/截图
+波兰时间3月10日7点左右，从大救援行动波兰前线发来最新的画面，位于波乌边境户外的梅迪卡救援中心寒冷而漆黑，新中国联邦的救助站点在一条从乌克兰进入波兰境内的必经通道上显得非常明亮，长长的救助站搭着顶棚，站前摆满了食品等很多救援物资，供逃到波兰的难民们随时取用。有一口红色、很大的锅正冒着热气，看上去正煮着食物，救援团队成员们守候在这里为不断涌来的难民们提供服务。
 
-We will not give up and we will not lose
-我们不会放弃，我们不会输
+从直播画面中我们留意到，天色虽然暗淡，梅迪卡救援中心却象普通的集市一样川流不息地过往着人群，有人点着自己想吃的食物，妇女亲吻着孩子，人们相互交谈着……与这里平和的景象正好相反的是，距离百米外的乌克兰边境处，神色紧张的人们排着长长的队伍等候过境，几十个小时的逃生已让他们饥寒交迫、疲惫不堪。
 
-We will fight until the end … at sea, in the air
-我们将战斗到最后……在海上，在空中
+据联合国最新数据显示，从俄罗斯入侵乌克兰至今，已有200万难民逃离乌克兰，其中约有133万人进入波兰，大多数难民是妇女儿童，据救助儿童会表示，其中估计有80 万儿童，占难民总数的40%，许多儿童都是独自旅行无人陪伴。昨天一个乌克兰孩子哭着走在难民中心的背影让无数人心碎，这样的案例在乌克兰战争中无时不刻正在发生。
 
-We will continue fighting for our land
-我们将继续为我们的国土而战
+战争让无辜的乌克兰人失去家园、骨肉分离，甚至失去亲人，新中国联邦爱好和平反对不正义的战争，法治基金乌克兰国际人道救援行动正竭力拯救仍滞留在乌克兰战区的中国同胞，并为乌克兰人等国际友人提供援助。大救援行动无关政治、无关种族和宗教信仰，只为救助更多有需要的人。
 
-Whatever the cost
-不管付出什么代价
+昨天的前线直播中，战地记者兼主播Nicole称，自大救援行动启动至今，已成功撤离了100多位中国同胞和350多位乌克兰人、美国人等国际友人，为有需要的人提供的免费包机计划于3月15日起飞。
 
-We will fight in the forests, in the fields, on the shores, in the streets
-我们将在森林、田野、海岸、街道上战斗
+参考链接：
 
-I would like to add … that we will fight on the banks of different rivers like Dnieper
-我想补充一点……我们将在第聂伯河等不同河流的岸边作战
-
-And we are looking for your help, for the help of the civilized countries
-我们正在寻求你的帮助，寻求文明国家的帮助
-
-We are thankful for this help
-我们感谢您的帮助
-
-I’m very grateful to you Boris (Johnson)
-我非常感谢你鲍里斯（约翰逊）
-
-Please increase the pressure of sanctions against this country (Russia)
-请加大对这个国家（俄罗斯）的制裁压力
-
-And please recognize this country as a terrorist state
-请承认这个国家是一个恐怖主义国家
-
-And please make sure that our Ukrainian skies are safe
-请确保我们的乌克兰领空是安全的
-
-Please make sure that you do what needs to be done
-请确保你做了需要做的事情
-
-And wha is stipulated by the greatness of your country
-以及伟大的贵国所赋予的事情
-
-Best of all to Ukraine and to the United Kingdom
-最美好的祝愿给乌克兰和英国
-
-* * *
-
-Date:03/08/2022
-原视频标题:Ukrainian President Zelensky: “we will fight to the end”
-乌克兰总统泽连斯基：“我们将战斗到底”
-原视频日期：2022/03/08
-原视频链接**[https://twitter.com/cnn/status/1501260322233012230?s=24](https://twitter.com/cnn/status/1501260322233012230?s=24)**
-任务编号：KE445（3958）
-视频时间段 : 0:00-1:38
-英听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-
-* * *
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播 (gettr.com)](https://gettr.com/streaming/pz2ezj1f8b)
 
  
 
