@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 10:25 PM (UTC)`
+
+【Ukraine Rescue】 03/10/22 March 10, Wenge Qixiong & Wenke from NFSC and ROLF at the Medyka Rescue Station on the Polish-Ukrainian border, presenting information to foreign journalists about our rescue efforts to provide free flights, food and accommodations.<br/><br/>【乌克兰救援】3月10日，文戈七雄战友和文科战友，在位于波乌边境的Medyka新中国联邦和法治基金救援站，向外国记者介绍我们提供免费航班和食宿的救援信息<br/>
+![img](https://media.gettr.com/group43/getter/2022/03/10/22/46cbc342-dc6f-bbb4-b85e-e0ab48334d58/out.jpg)
+
+---
+
 `@miles 3/10/2022 10:19 PM (UTC)`
 
 3/10/2022 Miles Guo’s GETTR: What does it mean for President Biden to propose the digital dollar for the first time? Citizens of the New Federal State of China who are unvaccinated and own the Himalaya Coin are going to show the world the image of the new Chinese who are respectable, peaceful, law-abiding, and trustworthy just like the fellow fighters at the front line of the Ukraine rescue operation. The CCP cannot represent the Chinese people!<br/><br/>3/10/2022 文贵盖特：拜登总统首次提出数字化美元意味着什么？无苗有币的新中国联邦人要和冲在前线的战友们一样向世界展示有尊严、和平、守法、守信的新中国人形象，共产党不能代表中国人！<br/>
@@ -153,13 +160,6 @@ The New Federal State of China and Rule of Law Foundation would like to find the
 
 
 ![img](https://media.gettr.com/group13/origin/2022/03/10/10/56c04704-2c07-0412-0844-4ceff83a507b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/10/2022 8:11 AM (UTC)`
-
-
-![img](https://media.gettr.com/group15/origin/2022/03/10/08/b3c7e124-3452-e750-8129-db78912c7aa3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
