@@ -2,10 +2,10 @@
 ---
 
 
-## 新中国联邦乌克兰救援行动得到了西方人关注
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2137388/)
+## 【乌克兰救援】新中国联邦乌克兰救援行动得到国际广泛关注
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2137434/)
 
-03/08/2022 英国小提琴老师汉娜：为新中国联邦在乌克兰救出96个孩子并将送往巴塞罗那的旅途祈祷。
+【乌克兰救援】03/09/22新中国联邦和法治基金乌克兰救援行动得到了国际社会的广泛关注
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

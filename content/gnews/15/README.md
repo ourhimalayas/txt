@@ -2,20 +2,16 @@
 ---
 
 
-## 樱花FM|中日财经爆:印度指控华为逃税
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2137487/)
+## 樱花FM|中日财经爆：日经指数3月4日下跌591点，收于25985点
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2137492/)
 
 音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/mbASv9otSodtLPnYDIWqmLdjnVZjoKrA0fqmiOlQoemIrKYq7sRcv_i69AqcXGtTlQt27S8UFOvwuvIKKtkZ51AJRzBiVYmNgbTUaiH2uAU-l0OeBfP6iyvrCLaLzsgmnrBPCLs2)
-路透社3月3日报道，一位印度政府消息人透露，印度对中共国电信设备制造商华为的一项税务调查发现，华为操纵账簿以减少其在印度的应税收入。
+![](https://lh4.googleusercontent.com/r8J0YGjRvGCyyl2OJQz-SRKXXirj03cbbJPl3qkHjY3SSpuEBPUlfV9CGbcRRN6MHgLIfh4hqMXPsq7fk16jP06TkCvD7_dYJyotcwxcu9lMvWX_6T-iMOXQScxBEIG6pnv3Et4R)
+3月4日在东京证券交易所，日经平均指数（225只成分股）收盘价较前一交易日下跌591.80点，报25985.47点，6个工作日以来首次跌破26000点。据报道，俄罗斯军队袭击了乌克兰的核电站，外界普遍担心乌克兰局势会变得更加紧张，并出现盘中跌幅超过800点的场景。
 
-印度财政部并未指明是哪一家公司，仅称在上月对一家大型电信集团位于印度三个城市的办事处进行所得税突击检查时，该集团“未能就纳税申报问题提供任何实质性和适当的理由”。
+东京证券交易所股价指数（TOPIX）显示整个东京证券交易所第一部的价格走势，下跌36.86点，收盘报1844.94点。
 
-印度当地媒体2月16日援引官方消息报导，印度税务部门对中共国电信设备制造商华为在印度的多处办公场所进行了搜查，此为逃漏税调查的一部分，近期对中共国几家智能手机企业也进行了相关调查。
-
-新德里电视台（NDTV）援引印度报业托拉斯（Press Trust of India）报导，官员们查看了财务文件、账簿和公司记录、华为的印度业务和海外交易。
-
-文字版原文：[中日财经爆|印度指控华为逃税](https://gnews.org/zh-hans/2105073/)
+文字版原文：[中日财经爆|日经指数3月4日下跌591点，收于25985点](https://gnews.org/zh-hans/2105026/)
 
 *编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*
