@@ -2,30 +2,37 @@
 ---
 
 
-## 美国参议员约翰逊和克鲁兹将与 “人民车队 ”会面
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2135765/)
+## 高端芯片断供将重创俄罗斯军工产业
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2135767/)
 
-撰稿：玄鸟
-校对：Streamline
-上传：无明逆流
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据极限新闻网（Newsmax）3月7日报道，威斯康星州的共和党参议员罗恩·约翰逊（Ron Johnson）和德克萨斯州的共和党参议员特德·克鲁兹（Ted Cruz），将于本周二与“抗议中共病毒疫苗和口罩强制令”的卡车司机会面（消息来源于国会山报）。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-948.png)图片来源：Win McNamee/Getty
-“人民车队”于2月23日离开加利福尼亚州的阿德兰托体育场，自周日以来，一直在华盛顿郊外的首都环城公路上堵塞交通，期望以此结束 “过度强制令导致的紧急状态”。
+整理：围剿维尼熊
+编辑：小红帽
 
-该项目的全国组织者莫琳-斯蒂尔（Maureen Steele）上个月告诉Newsmax，他们在阿德兰托（Adelanto）的最初送行活动中，就已经有 “超过1100辆车”的加入。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/TSMC.jpeg)图片来源：搜狐
 
-“这还不算现在加入这个车队的卡车和房车。这确实是由卡车司机领导的人民车队”，她说，“他们是核心中坚力量”。
 
-该组织从加拿大规模更大的卡车司机抗议活动中汲取灵感，加拿大那场抗议活动从一月到二月持续了整整一个月。
+根据自由亚洲3月9日报道，俄乌战争使俄罗斯受到了全球制裁。台积电、英特尔、三星等是否会停止对俄芯片供应则特别引人关注。
 
-周一，五角大楼新闻秘书约翰-柯比在一份声明中表示，由于持续的抗议活动，国防部长劳埃德-奥斯汀批准了哥伦比亚特区的请求，派遣国民警卫队协助美国国会警察。
+俄罗斯入侵乌克兰后，欧美对俄罗斯实施科技出口管制措施。台湾也依据防止武器扩散的《瓦圣纳协议》，将对输往俄罗斯的产品进行严格审查。
 
-据据《国会山报》(The Hill)报道，这一决定是在国会警察(Capitol Police)针对抗议活动发布紧急声明一天后做出的。
+台积电于9日对是否已对俄罗斯停止供货等相关制裁问题表示：“台积公司一向遵循全球适用之相关法规，目前并无其他相关公开资讯。”有学者认为，长期缺乏芯片将导致俄罗斯军工产业遭受重创。
 
-据Axios网当时的报道，奥斯汀曾在上个月批准，从2月26日至3月7日向国家首都部署700名非武装的国民警卫队士兵，以协助该市在卡车司机车队到达之前进行交通管制。
+淡江大学欧洲研究所副教授崔琳表示，俄罗斯国内生产的半导体数量很少，严重依赖进口。俄国处理器品牌Elbrus和 Baikal也均由台积电生产。所以在先进高端芯片方面，对俄伤害会愈来愈明显。
 
-新闻来源：[Sens. Johnson, Cruz to Meet With ‘People’s Convoy’](https://www.newsmax.com/politics/trucker-protest-mandates/2022/03/07/id/1060097/)
+台湾经济研究院产经资料库总监刘佩真指出，“中共国半导体近年受到中美贸易战等影响，发展停滞，可说自身难保。若对俄国提供援助的话，会影响后续美国对中共的制裁。”
+
+参考链接：[俄罗斯若长期缺乏台积电芯片 将无法支持军事发展](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/hx-03092022073310.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

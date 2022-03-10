@@ -2,45 +2,38 @@
 ---
 
 
-## 反亚裔仇恨犯罪暴增
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2135271/)
+## 秘翻在线：新中国联邦在波兰的救助活动引起悉尼乌克兰社区协会关注
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2135426/)
 
-作者：纽约香草山健身部 – Ivy001
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+**撰稿：西枫westca**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/44-2.jpg)
+悉尼Hronada（乌克兰社区协会的网站）3月10日发布消息，乌克兰社区从喜马拉雅澳喜农场获知，他们现在正在波兰开展国际人道主义行动，帮助流离失所的人们疏散到其他国家。喜马拉雅澳喜农场是一个反对中共极权主义的全球运动的分支机构。他们的网站有更多关于他们对中国新联邦（NFSC）的愿景， 以及由郭文贵先生领导的为中国人带来法治、民主和自由的爆料革命。
 
 
 
-3月8日，文贵先生在盖特对战友们发出警示：由于中共在全世界犯下的罪行，令到中国人被迫成为中共的代罪羔羊。反亚裔仇恨犯罪暴增，针对亚裔美国人社区的仇恨犯罪已经达到前所未有的水平。
-
-仇恨和极端主义研究中心公布的仇恨犯罪数据汇编显示，去年反亚裔仇恨犯罪与前年相比增加了339%，纽约、旧金山、洛杉矶和其他城市在2020年超过了往年的记录。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12-2.jpg)
-根据数据，2021年报告的反亚裔仇恨犯罪激增，明显高于2020年，当时与前一年相比增加了124%。纽约市的上升幅度特别大，从30起到133起，增加了343%。旧金山也经历了一个惊人的跳跃，从9起犯罪到60起，增加了567%。而洛杉矶也有类似的大幅增长，达到173%。
-
-参考链接：
-[3月8号：扎扎实实的数据，反映了共产党在全世界给中国人拉仇恨的卑鄙结果……醒来吧……我们的中国同胞们。](https://gettr.com/post/pyxs52ff20)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/审核：zhong
-编辑：Jack Li文阳，zhong
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+> [Homepage](https://www.himalayaustralia.com.au/)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+为了应对乌克兰-波兰边境越来越多的疏散人员和难民，新中国联邦（NFSC）和法治基金会（ROLF）宣布暂定于2022年3月15日安排第一批免费包机航班。其航线有两个：
+
+1. 从波兰-热舒夫机场出发，经加拿大多伦多到美国纽约。
+2. 从波兰-热舒夫机场出发，前往东南亚某国。(待确认)
 
 
+如果有意参加这个计划，请联系24小时服务热线。所有乘客必须符合目的地的签证要求。如有需要，新中国联邦和法制基金会将在出发前提供免费住宿和食物。
+
+24小时紧急救援热线（电话/短信）。+1 720-657-6776 或 +1 719-224-4232+48 508-532-712 或 +48 508-531-518
+
+电报：t.me/UkraineRescue
+
+GETTR: gettr.com/user/UkraineRescue
+
+电子邮件。[\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection)
+
+悉尼Hronada 是一家位于悉尼的乌克兰社区协会，成立于1949年。目标是在悉尼推广和发展乌克兰 – 澳大利亚文化。该协会是一个无党派的社区组织。目前由于担心乌克兰的当前局势，Hromada正试图引起公众对乌克兰事件的关注，积极而大力宣布其立场，不允许传播有关它的虚假和抹黑信息。这应该是第一家世界媒体报道新中国联邦在波兰的人道救援活动。
+
+**新闻来源：**[Sydney Hromada – Українська Громада Сіднею](https://www.hromada.org.au/)
 
  
 

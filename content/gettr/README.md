@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 6:42 AM (UTC)`
+
+3/9/2022 Miles Guo: The authenticity, bravery, and selflessness of our fellow fighters who are on the front lines of this rescue operation have shaped the image of the new Chinese. In this international humanitarian crisis, there has been no organization involved in rescue on behalf of a nation. The outstanding rescue operation of the NFSC & ROLF has become the center of attention and has earned the admiration and respect for the new Chinese from our international friends.<br/><br/>3/9/2022 文贵直播：前线战友们真诚勇敢的无私付出塑造了新中国人的形象；在这场国际人道危机中，尚无以国家名义参与救援的组织；新中国联邦、法治基金国际水平的救援成为了现场的焦点，并让新中国人受到了国际友人的钦佩和尊重<br/>
+![img](https://media.gettr.com/group10/getter/2022/03/10/06/cf3689ff-63f1-3a87-2c23-b0f56c052e9a/out.jpg)
+
+---
+
 `@miles 3/10/2022 6:35 AM (UTC)`
 
 【Ukrainian Rescue】03/09/22 NFSC and ROL Foundation Ukraine Rescue Operation has received significant attention from the international community<br/><br/>【乌克兰救援】03/09/22新中国联邦和法治基金乌克兰救援行动得到了国际社会的广泛关注<br/><br/>
@@ -146,13 +153,6 @@
 
 致乌克兰战场的所有同胞们……紧急紧急紧急。<br/><br/>由于中共控制了邮件服务商，意图破坏我们乌克兰救援行动，之前公布的网站和邮箱已被强行关闭，更新后的24小时紧急救援客服联系方式如下：<br/><br/>24小时客服热线（电话/短信）：<br/>+1 720-657-6776 <br/>+1 719-224-4232<br/>+48 508-532-712 <br/>+48 508-531-518<br/><br/>Telegram： t.me/UkraineRescue<br/><br/>盖特： gettr.com/user/UkraineRescue<br/><br/>邮箱： UkraineRescue01@protonmail.com 或 UkraineRescue02@protonmail.com <br/>
 ![img](https://media.gettr.com/group36/getter/2022/03/09/22/cda11034-b39f-ffe5-8eaf-837c1f41d23b/out.jpg)
-
----
-
-`@miles 3/9/2022 6:21 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
-![img](https://media.gettr.com/group12/origin/2022/03/09/18/21c37345-bee0-327e-300a-e221a858a771/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

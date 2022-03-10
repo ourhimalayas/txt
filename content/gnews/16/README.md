@@ -2,30 +2,37 @@
 ---
 
 
-## 中共官媒、社媒禁止民众批评俄罗斯入侵乌克兰
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2135702/)
+## 今日盖特大V推荐 — 安迪·恩戈（Andy Ngo）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2135711/)
 
-![乌克兰难民](https://gdb.voanews.com/02280000-0aff-0242-9a59-08da02222de6_w1023_r1_s.jpg)乌克兰难民（VOA）
-据美国之音3月10日报道，最近，中共官媒和社交媒体正在压制批评俄罗斯入侵乌克兰的声音。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-946.png)
+盖特链接：[**https://gettr.com/user/MrAndyNgo**](https://gettr.com/user/MrAndyNgo)
 
-自从普京与习近平2月4日签署联合声明以来，中共国的外交政策“一直锁定在亲俄”立场。国际残奥委员会主席安德鲁·帕森斯在北京残奥会的开幕致辞中关于俄乌战争的发言被CCTV中央电视台禁声。中共视频流媒体公司爱奇艺因英超联赛支持乌克兰而拒绝转播英超联赛。微博、微信也在封杀批评普京和反战言论的帖子。人权观察中共国问题高级研究员王亚秋表示，由于北京和莫斯科是战略盟友，北京“阻止中共国人知道真相”。
+**安迪·恩戈自述：**
 
-全世界人民都支持和平、反对战争，只有中共媒体支持俄罗斯普京。信息管控一直是中国共产党统治中国的基础。没有审查和宣传，没有欺骗和误导公众，党根本无法执政。党的伟大正确完全在于宣传。
+纽约时报畅销书“ 揭开面纱 （Unmasked)”的作者；
+特约编辑@TPostMillennial；
+联系，支持，关注：
+**[https://linktr.ee/AndyNgo](https://linktr.ee/AndyNgo)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-947.png)图片来源：网络
+**安迪·恩戈简介：**
 
-新闻参考链接：[https://www.voachinese.com/a/chinese-state-media-and-the-internet-ban-opinion-critical-of-russia-s-invasion-of-ukraine/6477511.html](https://www.voachinese.com/a/chinese-state-media-and-the-internet-ban-opinion-critical-of-russia-s-invasion-of-ukraine/6477511.html)
+安迪·恩戈（出生于1986）是美国保守记者和社交媒体人物，因报道俄勒冈州波特兰市街头抗议而闻名。他是加拿大保守新闻网站《后千禧年》的编辑。他曾在《华尔街日报》和《旁观者》写专栏。恩戈是福克斯新闻的常客。
 
-编辑：胖丁
+2019年，恩戈在报道“俄勒冈州波特兰市骄傲的男孩”游行时遭到反抗议者的袭击和伤害。这次袭击引起了全国的关注。
 
-* * *
+在《揭开面纱：在安拉法破坏民主的激进计划中》一书中，恩戈揭露了安提法左翼激进组织的暴力极端主义运动的内幕，他因此受到人生危胁。在报道波特兰市因乔治·弗洛伊德（George Floyd）被警察过度执法而死亡的抗议活动时遭到安提法人士的殴打和追捕。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+揭开面纱：在安拉法破坏民主的激进计划中（**Unmasked: Inside Antifa’s Radical Plan to Destroy Democracy**）书本网址：
+[**https://www.amazon.com/Unmasked-Antifas-Radical-Destroy-Democracy/dp/154605958X/ref=nodl\_?tag=nypost-20&asc\_refurl=https://nypost.com/2021/01/30/how-a-portland-radical-murdered-a-trump-supporter/&asc\_source=web**](https://www.amazon.com/Unmasked-Antifas-Radical-Destroy-Democracy/dp/154605958X/ref=nodl_?tag=nypost-20&amp;asc_refurl=https://nypost.com/2021/01/30/how-a-portland-radical-murdered-a-trump-supporter/&amp;asc_source=web)
 
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+校审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

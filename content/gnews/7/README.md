@@ -2,79 +2,20 @@
 ---
 
 
-## 乌克兰总统泽连斯基：“我们将战斗到底”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2135784/)
+## 樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（九）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2135785/)
 
-Volodymy Zelensky (Ukrainian President)
-弗拉基米尔·泽连斯基 (乌克兰总统)
+撰稿：东京樱花团/深藏不露
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-949.png)
+2022年3月9日郭文贵先生大直播爆料：普京时代已经彻底过去了，他只要打响第一枪就过去了。习近平的时代不仅是过去了，而且是习近平将在极度痛苦走向灭亡！你将会看到天安门上不会有一点共产党的标志在那里，而且是一夜之间，我说一夜都很长了！3月底到4月15号，是共产党在世界疯狂的开始，你会看到在中东，整个能源和战争中的更凶险的事情发生，然后是台湾！世界的最残酷的时候还没有开始，包括整个的俄乌战争。中国人再不醒来，不是地狱做猪狗，真的连死都找不着！最后，俄乌战争、中东战争、再次放毒这些都不是最恐惧的，最恐惧的是疫苗灾难！
 
-We will not give up and we will not lose
-我们不会放弃，我们不会输
+中共习近平希望美欧在俄乌之战中出现奸细，他好坐收渔翁之力！他幻想俄罗斯横扫乌克兰，而他取台湾。但是，没想到美国才是俄乌之战中最大受益者。习近平非常清楚，这个世界上的民主社会不再容忍习近平和普京了！现在，只有把自己变成一个力量大到无限大的强者，他才会安全，他老爸的坟才不会被掘！目前，他只有冒险一搏，而且他更坚信在没有俄罗斯之后，才能真正地实现他的目的—-中美共同治理地球！他坚定地认为美国和欧洲的所有供应链都需要中国的14亿奴隶来生产，当普京被灭的时候，他会把俄罗斯所有的东西踢的干干净净！邪恶的习近平一定会这么做的，但前提是需要必须通过世界石油能源战争来打垮世界经济打服美国！霍尔木兹海峡、伊朗、沙特、中东都是习近平的战略的抓手，习近平百分百确信伊朗、沙特已经完全被中共控制，阿联酋由于卖油也必须得低下头来、卡塔尔被它百分之百控制，整个中东已经没有几个地方能和美国好了！霍尔木兹海峡、非洲安哥拉中共控制着20%的石油……所以，中共现在要利用中东利益之争和西方对石油的依赖挑起一场能源战争打垮世界的经济！能源一出问题，西方经济受影响巨大，而中共可以通过俄罗斯获得能源，和利用非人道的、残酷邪恶的集权统治体制而不受太大影响！到时，西方经济大乱，无暇顾及，中共习近平就迅速打台湾 ！另外，邪恶的习近平还盘算着美国军人打了疫苗，寄希望通过疫苗灾难大面积爆发，美军失去部分战斗力而无奈臣服！到时，再向美国谈判，中美之间我让你当老大，我当老二，我有14亿奴隶给你们继续生产，有无限的锁链女供你们享用……
 
-We will fight until the end … at sea, in the air
-我们将战斗到最后……在海上，在空中
+同胞们，这场残酷浩劫只是刚刚开始，习近平一定不会怕也不会退缩，他会有更疯狂的行动！最终这场乌克兰的代理人战争，美国的高科技、电子战、通信战会占绝对的优势而大胜，共产党对台湾一定会比俄罗斯玩的还狠，中共病毒和乌克兰战争的最终结局一定是普京和习近平的灭亡。从美国和欧洲对付俄乌战争来看，美国谋略绝对高深，习近平这些计谋连我都能想到的，美国绝对想的到！所以，我相信美国一定会挖好坑逼习近平出手，绞索都准备好了，现在就等习近平把脖子伸出来！到那时，西方对中共的制裁会严厉冷酷，无数双贪婪的眼睛都在盯着中共UBS那50万亿美元呢，这么肥的肉谁都想吃一口！习近平这个世界独裁政权定将万劫不复，新的世界秩序，一定是千年和平为基础的民主世界秩序。新中国联邦人，作为世界上最爱好和平的民族，将会成为新世界秩序的和平使者！！
 
-We will continue fighting for our land
-我们将继续为我们的国土而战
-
-Whatever the cost
-不管付出什么代价
-
-We will fight in the forests, in the fields, on the shores, in the streets
-我们将在森林、田野、海岸、街道上战斗
-
-I would like to add … that we will fight on the banks of different rivers like Dnieper
-我想补充一点……我们将在第聂伯河等不同河流的岸边作战
-
-And we are looking for your help, for the help of the civilized countries
-我们正在寻求你的帮助，寻求文明国家的帮助
-
-We are thankful for this help
-我们感谢您的帮助
-
-I’m very grateful to you Boris (Johnson)
-我非常感谢你鲍里斯（约翰逊）
-
-Please increase the pressure of sanctions against this country (Russia)
-请加大对这个国家（俄罗斯）的制裁压力
-
-And please recognize this country as a terrorist state
-请承认这个国家是一个恐怖主义国家
-
-And please make sure that our Ukrainian skies are safe
-请确保我们的乌克兰领空是安全的
-
-Please make sure that you do what needs to be done
-请确保你做了需要做的事情
-
-And wha is stipulated by the greatness of your country
-以及伟大的贵国所赋予的事情
-
-Best of all to Ukraine and to the United Kingdom
-最美好的祝愿给乌克兰和英国
-
-* * *
-
-Date:03/08/2022
-原视频标题:Ukrainian President Zelensky: “we will fight to the end”
-乌克兰总统泽连斯基：“我们将战斗到底”
-原视频日期：2022/03/08
-原视频链接**[https://twitter.com/cnn/status/1501260322233012230?s=24](https://twitter.com/cnn/status/1501260322233012230?s=24)**
-任务编号：KE445（3958）
-视频时间段 : 0:00-1:38
-英听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-
-* * *
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

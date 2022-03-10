@@ -2,38 +2,22 @@
 ---
 
 
-## 俄罗斯宣布3月11日与全球断网，疑准备大规模网络攻击
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2135657/)
+## 全球农产品价格暴涨，引发人们对粮食短缺的担忧
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2135692/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 翻译/撰稿：zzballack
 
-翻译/编辑：小红帽
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-5.jpg)图片来源：彭博社
+据《布雷特巴特新闻网》（Breitbart News）3月9日报道，自俄罗斯入侵乌克兰以来，全球粮食价格不断攀升，达到六十年来的最高水平。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/cycber_attact.jpg)图片来源：www.ft.com
+乌俄两国总计向世界供应了29%的小麦、19%的玉米和80%的葵花籽油。福克斯商业新闻报道说：“这种依赖性让许多贸易商担心，任何进一步的军事行动都可能引发粮食进口商大规模争夺货源，以取代通常来自黑海地区的供应。芝加哥商品交易所上周五（3月4日）的谷物期货收盘价为12.09美元，比前一周高41%，这是六十多年来的最大涨幅。周一（3月8日），该价格连续第六天收盘上涨。”
 
+而化肥的价格已经比去年同期上涨了近100%。根据道琼斯的数据，尿素氮的价格几乎上升了99%，磷酸氢二铵的价格上升了68%。
 
-根据自然新闻网3月9日报道，随着俄罗斯总统弗拉基米尔·普京继续入侵邻国乌克兰，俄罗斯政府本周初宣布，该国将与全球互联网断开连接，以抵御外部网络攻击。
+农民瑞克·苏依达姆（Ryck Suydam）告诉《福克斯商业》频道说，他去年花费了1.7万美元为自己的300英亩农场施肥，但今年仅为一半土地施肥就需要花费3.4万美元。“一些农民今年打算休耕，不打算给田地施肥种作物，因为会亏本。为了解决化肥紧张的问题，美国需要增加天然气的产量，使其副产品氮气更容易买得起和获得。这个国家有大量的天然气，打开阀门和管道，让更多的天然气流动起来，使价格下降，这样就可以生产和获得更多的肥料。”
 
-但这一决定让其他人怀疑，普京可能正计划对包括美国在内的西方国家发起自己的攻击。
-
-“俄罗斯将在3月11日与全球互联网完全断开，”Strange Sounds网站指出，并补充说：“不迟于3月11日，所有服务器和域必须转移到俄罗斯区域 (.ru)。此外，正在收集有关站点网络基础设施的详细数据。”
-
-与此同时，世界经济论坛已从其网站上删除了Cyber​​ Polygon——该网站描述了一场大规模的网络攻击，基本上将整个世界送回了1800年代，当时还没有电力和现代通信模式。
-
-此外，以监视海底光纤和互联网电缆而闻名的俄罗斯海军间谍船Yantar 已离开其基地。
-
-在俄罗斯消息来源中，Yantar被描述为‘特殊用途船’或‘海洋学船’。然而，在西方，它被视为一艘间谍船。“它的长处是调查海底电缆，并可能窃听、清除或破坏它们。”Strange Sounds在另一份报告中指出。
-
-新闻链接：[Russia may be preparing massive cyberattack after announcing country will disconnect from global internet on March 11](https://www.naturalnews.com/2022-03-09-russia-massive-cyberattack-disconnecting-from-global-internet.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Grain Prices Soar to Highest in Six Decades, Spark Concern of Food Shortages](https://www.breitbart.com/politics/2022/03/09/grain-prices-soar-to-highest-in-six-decades-spark-concern-of-food-shortages/)
 
  
 
