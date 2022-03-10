@@ -2,28 +2,41 @@
 ---
 
 
-## 拜登总统指示加快对发行“数字美元”可行性的验证
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2135136/)
+## 新中国联邦法治基金乌克兰人道救援信息
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2135275/)
 
-撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-3月9日，美国总统乔·拜登签署了一项关于数字资产战略的总统令，指示政府机构加紧研究和技术开发，以验证发行“数字美元”的可能性。并讨论如何在中共已经先行一步的情况下积极推进。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/拜登总统指示加快对发行数字美元可行性的验证.png)[照片来源](https://www3.nhk.or.jp/news/html/20220310/k10013523231000.html)
 
-发行“数字美元”的目的是确保美国的国际主导权，并明却表示“如果发行被认为符合国家利益，将考虑使用数字美元。”
+鉴于目前乌克兰局势日益恶化，新中国联邦救援和法治基金救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
 
-关于数字美元，从侵犯用户隐私和网络攻击风险的角度来看，出现了一些谨慎的意见，但中国在“数字人民币”实际应用方面的试行，使之处于领先地位。为此，作为拜登政府也将积极推进。
+自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发，前往波兰。此外，新中国联邦和法治基金的第一批救援专机将于近期从波兰出发。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
-数字货币是中央银行发行的可以像纸币和硬币一样使用的电子货币，各国的研究和讨论也越来越活跃。如果主要货币的美元实现了数字化，将对各国的战略产生巨大影响。
+求助方式请参考以下视频。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1266-1.png)
+参考链接：
+[新中国联邦和法治基金关于紧急救援乌克兰的通知](https://gettr.com/post/pyw9zs571a)
 
-此外，拜登总统还在总统令中宣布，他将与各国合作，防止不正当使用加密货币资产。拜登说，在加强对继续入侵乌克兰的俄罗斯的经济制裁的同时，加密资产有可能被当作逃避制裁的漏洞，因此需要强化措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-信息来源：[バイデン大統領 「デジタルドル」検証加速を指示 中国念頭に](https://www3.nhk.or.jp/news/html/20220310/k10013523231000.html)
+总编：zhong
+校对/发稿：为真不破20
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
