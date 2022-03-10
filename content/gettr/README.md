@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 11:03 AM (UTC)`
+
+【Ukrainian Rescue】03/09/22 NFSC & ROL Foundation Ukraine Rescue Operation set up a rescue station in Medyka by the Ukraine/Poland border, and has successfully rescued hundreds of refugees out of Ukraine<br/><br/>【乌克兰救援】03/09/22新中国联邦和法治基金救援行动在乌波边境梅迪卡设立救助站并已成功营救出数百位难民<br/><br/>
+![img](https://media.gettr.com/group12/getter/2022/03/10/11/4be27f34-586c-21b0-f8c2-b3ebdc36a5a1/out.jpg)
+
+---
+
 `@miles 3/10/2022 10:28 AM (UTC)`
 
 
@@ -146,13 +153,6 @@
 
 3/9/2022 Miles Guo: The CCP will start taking action around the world between late March and April. Xi Jinping will take a chance by using the Middle East to provoke an energy war to bring down the world economy and attack Taiwan. The CCP will resort to more ruthless means, but it will also perish sooner. The New Federal State of China will clean up the battlefield.<br/><br/>3/9/2022 文贵直播：中共将在3月底到4月在世界上开始行动，习将冒险一搏，用中东挑起能源战争打垮世界经济并攻打台湾，中共将采取更狠的手段，但也会更快灭亡，新中国联邦将打扫战场<br/>
 ![img](https://media.gettr.com/group5/getter/2022/03/09/22/51f3e37e-1541-bba7-9ee3-49606ac1bb56/out.jpg)
-
----
-
-`@miles 3/9/2022 10:29 PM (UTC)`
-
-3/9/2022 Miles Guo: Here are the three major events coming next -  1) There will be a lot of good news for the Himalaya Coin; 2) our new media platform will bring about more miracles; and 3) vaccine manufacturers like Pfizer will be brought to justice by the entire humanity. The CCP will be subject to more severe sanctions than Russia. Citizens of the New Federal State of China will be respected by the whole world.<br/><br/>3/9/2022 文贵直播：接下来的三件大事 - 1) 喜币会有很多好消息; 2) 新媒体平台会诞生更多奇迹；3) 辉瑞等疫苗厂商会被全人类审判；中共将受到比俄罗斯更大的制裁；新中国联邦人将得到全世界的尊重<br/>
-![img](https://media.gettr.com/group40/getter/2022/03/09/22/ac1a1be7-c8e0-a143-83f3-5975f956f01d/out.jpg)
 
 ---
 
