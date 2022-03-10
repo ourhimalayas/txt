@@ -2,65 +2,43 @@
 ---
 
 
-## 2022年3月9日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2134224/)
+## 共产党的黑暗势力是全球的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2134298/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/snapshot3_副本.jpg)
-盖特连接：[2022年3月9日 文贵大直播：是谁黑掉乌克兰救援邮件官网；是谁暂禁郭先生油管上传视频；什么力量封杀乌克兰救援信息；《铁锁梦》创作及推出后感受](https://gettr.com/streaming/pz1ocoe7cb)
+整理：Lucy Liu、奋斗
+编辑：Candy
 
-1、人类无皇有主时代到来，无俄罗斯，无欧洲，以乌克兰为中心欧洲即将诞生；
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-03-下午1.48.25.png)
 
-2、以乌克兰为主的欧洲：高科技，新能源，数字经济，数字安全，太空科技，无人机；
 
-3、加拿大逐渐强大独立、澳大利亚崛起；
+郭先生：（关于）俄罗斯打乌克兰竟然编造谎言，有咱们老椅子战友给我发信息说：因为乌克兰有三个核电站，核武器库；俄罗斯是维护人类的正义才打乌克兰，拯救全人类。就这种谎言，我真的不如说小王子长了俩生殖器。就这种智商！
 
-4、新疆西藏，广东独立，大中国解体（分而不离联邦制）；
+你（如果认为这）就是真的（原因），你全家都会遭受诅咒的。就像高冰尘这种孙子，他女儿、他老婆一定会遭受比锁链女还惨的待遇，因为他害人呢！路大脑袋、蛇妖闫和九指妖，他们在阻止救人，这不是谋杀，这是屠杀！
 
-5、亚洲的南海广西、福建潮东，帛琉甚至日本南部成为中华民国台湾；
+人家（在）前线救人呢，在前线人家扫一下码就进来；扫码没了，把我们定为骗子，然后就失望了。在战争中对别人的失望，不是一个道德问题，是生死的问题！你根本没办法评估，或者到法院，法官告诉你到底影响救多少人？你能算出来吗？世界上没有这个方式。死的人，再也不会说话。
 
-6、喜币2周内有一个小的质的提升，5周有大的提升；
+你们想过爆料革命能走到今天，这个媒体有多重要吗？没有媒体，咱今天能干啥？ 兄弟姐妹们，我们唱的歌是歌吗？那是呐喊，是呼吁，是在到处救人！如果说今天我们爆料革命是一个部队在拯救人类的话，那歌声就是我们的大广播、大喇叭，就是我们的探照灯，来告诉人我们来救你。
 
-7、3月底到4月15日，是共产党在世界上疯狂的开始；
+但是共产党呢？却要把这个灯给你打灭，照亮黑暗的那盏智慧之灯要给你灭掉，要把你的声音全部关掉，不让任何需要救助的人听到你的声音！
 
-8、乌克兰救援：这是历史上第一次黄皮肤的人救白人，无利、无权、无求；
+前天，我说把我们在3月8号献给“三八节”的礼物上传到盖特和YouTube去吧。我说完话30分钟，YouTube就给我发了个信息：你的频道由于违反社区规则停止七天上传。我说咋回事啊？过了几分钟唐平妹妹再传那个歌（就不能上传了），中间不到30分钟。结果木兰给我回去一看，找出我2020年的有个视频讲到了病毒。你看看，马上给你捋到2020年。
 
-9、共产党黑客：文贵先生YouTube，GTV数据，GETTR事实上5800-8000万有效登记客户丢失；
+我知道这些狗日的都在看着我手机，我郭文贵要是不拿手机就不是人，我跟你全玩明的！共产党你有一个敢的吗？我就带着手机，你们这帮给共产党作恶的人，都在镜头前面呢！30分钟，YouTube就开始刷新，不让我上传这个歌。接下来马上就在同一时间不到40分钟，GoDaddy干掉。不到两个小时，我身边是四个手机，俩手机完全打不开，就在我旁边的电脑都打不开，而且我要跟Webex开会时，视频没有。
 
-10、3月底到4月15日中共将于中东台湾，放毒和发动一场能源战和区域性战争；
+大家记住，只要你用了WiFi、用了蓝牙，（他们）就会找到你，他们就会控制你。这是2017年说的，不是今天说的。最可怕的事情是：这是在美利坚共和国，还有在其他国家。共产党的黑暗势力是全球的，你们想过吗？
 
-11、俄乌战争，实际是欧美和普&习（独裁者）的战争；
+木兰上传完我们的歌曲以后，有人说她：你这个照片模糊啊，你这个封面模糊啊！“七哥，他们找我们麻烦呢。”当时（木兰）跟唐平她们两个女孩，只是发出一个女人的正义的声音，多么的弱小，你共产党以一国之重器来打压！
 
-12、俄罗斯的现状很快会降临在中国（善用HPAY）；
+资料来源：2022.3.9GETTR 文贵大直播（9：30-9：40AM）
 
-13、《锁链梦》背后。文贵先生近息不善，昔2月初服安眠药，每卧不过五时。小唐姐为歌既佳，醉后裸唱。助中国寻回失良知勇气；
+***发布：Candy***
 
-14、文贵先生非常尊重的千亿富豪嫂子，11岁被亲戚叔叔强奸了，因为家人生活需要依靠而不敢发声。中共不灭，中国人都是 #锁链女！
-
-15、习近平不会怕，中国人更残酷的现实还没有开始。 3月底到4月15日；
-
-**注：大直播音频——**
-
-编辑整理：文俊；
-
-发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

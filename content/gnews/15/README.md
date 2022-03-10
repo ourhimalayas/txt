@@ -2,10 +2,10 @@
 ---
 
 
-## 平民在俄军向基辅挺进的炮火中逃离
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134372/)
+## 【乌克兰救援】新中国联邦救援队在乌波边境设立新的紧急救援站
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134644/)
 
-03/07/2022 随着普京的部队继续向乌克兰首都推进，俄军的攻势在基辅北部持续进行。家庭和儿童不得不在纷飞的战火中逃离。
+03/07/2022 新中国联邦救援队在乌波边境设立新的紧急救援站。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

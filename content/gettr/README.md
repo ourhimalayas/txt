@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 2:39 AM (UTC)`
+
+2022.03.09 晚《新中国联邦新闻访谈》国内外华人灾难显现；俄乌战争对华人的影响；新世界被迫诞生
+![img](https://media.gettr.com/group20/origin/2022/03/10/02/c4ff9983-f987-0ab2-9db2-a398475f2745/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/10/2022 2:14 AM (UTC)`
 
 【Ukraine Rescue】03/08/2022  Interviewing Peter, the translator of NFSC frontline rescue team: I hope all the Chinese people will be like the people of the New Federal State of China, for their views and actions.  China and the traditional culture were destroyed by CCP. CCP doesn’t represent China, nor the Chinese people and the culture. <br/><br/>【乌克兰救援】03/08/2022 采访新中国联邦前线救援团队翻译，彼得：希望以后所有的中国人都能够像此时此刻他看到的新中国联邦人一样。中国和中国的传统文化就是被共产党破坏了，中共不代表中国，更不代表中国人和中国人的文化。
@@ -147,13 +154,6 @@
 
 【Ukrainian Rescue】03/08/22 Chinese husband and his Ukrainian wife rescued by NFSC and ROLF explains how they got hold of us<br/><br/>【乌克兰救援】03/08/22 被新中国联邦和法治基金救援的中国男士及其乌克兰夫人讲述是如何同我们取得联系的<br/>
 ![img](https://media.gettr.com/group49/getter/2022/03/09/11/e8ad1814-f08b-8470-f95f-81297587509e/out.jpg)
-
----
-
-`@miles 3/9/2022 10:47 AM (UTC)`
-
-【Ukrainian Rescue】03/08/22 Chinese husband and his Ukrainian wife rescued by NFSC and ROLF explains how they decided to leave Ukraine and take our rescue bus ASAP<br/><br/>【乌克兰救援】03/08/22 被新中国联邦和法治基金救援的中国男士及其乌克兰夫人讲述如何做出决定坐巴士尽快离开<br/>
-![img](https://media.gettr.com/group45/getter/2022/03/09/10/8fb31a9e-8d77-e611-9360-c97cb43cf755/out.jpg)
 
 ---
 

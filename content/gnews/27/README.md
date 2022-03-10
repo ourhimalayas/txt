@@ -2,10 +2,10 @@
 ---
 
 
-## 【乌克兰救援】被新中国联邦法治基金救援的中乌夫妇讲述如何决定坐巴士尽快离开
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134118/)
+## 【乌克兰救援】被新中国联邦和法治基金救援的中乌夫妇表达感激之情
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134125/)
 
-03/08/22 被新中国联邦和法治基金救援的中国男士及其乌克兰夫人讲述如何做出决定坐巴士尽快离开。
+03/08/22 被新中国联邦和法治基金救援的中乌夫妇表达感激之情。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
