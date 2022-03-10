@@ -2,17 +2,34 @@
 ---
 
 
-## 【粤语配音】2022年3月9日：做好准备等待三件事
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2135474/)
+## 有声|新中国联邦,法治基金人类神奇的使节
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2135641/)
 
-紐約香草山-香港部
+作者:香草山福音部-melisa/录音-黎明曙光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+新中国联邦法治基金成功从乌克兰救出96名儿童！
 
-你们要做好准备三件事，喜币，我相信，他们喜联储在我们战友的给它帮衬，香港人叫帮衬，在我们给他们捧场的情况下，会有很多好消息，帮衬他们的情况下，你们走着看
+并免费安排到西班牙巴塞羅那宾馆！
 
-第二，媒体新的平台会助长新的..大家会在未来两周你们会看到，你们会看到更多的奇迹，你们看到川普总统所谓的Truth Media，已经被KO的啥都不是了吧，七哥说对了吧，是吧？还有一个你们会看到辉瑞制药、莫德纳制药、什么科兴制药会被人类大审判，全部就像围猎一样，吃得连渣都不会剩，最后你会看到共产党被制裁的结果，经济制裁、什么流动制裁，要比俄罗斯还夸张。
+这一行动令人感慨，令人敬佩并受到乌克兰人们的尊重和感谢!
 
-新中国联邦人真的是稀少的、无苗、有币、有未来、受世界上各个民族尊敬的信赖的人，你们走到哪里，你们就是希望，你们就是阳光，你们就是太阳，这不是我吹的，你们已经看到，这一天已经属于我们了，好好把握吧，兄弟姐妹们，谢谢
+新中国联邦，法治基金实施人道救援，称为人类的使节！
 
+新中国联邦战友们不畏战火的安危到达前线实施救援行动！
+
+正如孙悟空腾空而降-新中国联邦人！
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

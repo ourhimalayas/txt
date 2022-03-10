@@ -2,49 +2,37 @@
 ---
 
 
-## 前线快报——3月9日 前线救援队集结波乌边境梅迪卡救援站，分工明确，集体作战，全力支援救助来自乌克兰的难民
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2135582/)
+## 今日盖特大V推荐 — 安迪·恩戈（Andy Ngo）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2135711/)
 
-## 2022年3月9日，俄乌战争第14天
-![](https://assets.gnews.org/wp-content/uploads/2022/03/grafik-16.png)2022年3月9日大直播中联线梅迪卡救援站的前线战友
-视频链接：[https://www.gettr.com/post/pz1ocoe7cb](https://www.gettr.com/post/pz1ocoe7cb)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-946.png)
+盖特链接：[**https://gettr.com/user/MrAndyNgo**](https://gettr.com/user/MrAndyNgo)
 
-在文贵大直播中，身处救援第一线梅迪卡（Medyka）救援站的新中国联邦战友们与观众们连线，现场播报了最新的对乌救援工作进展。
+**安迪·恩戈自述：**
 
-令人振奋和自豪的好消息是，波兰当地管理机构将最重要最核心的救援区域留给了新中国联邦、法治基金、法治社会的救援团队。据文科战友分享，原本该区域是预留给国际红十字会的，但他们迟迟没有行动，于是当地（政府）把该区域给了新中国联邦救援队使用。
+纽约时报畅销书“ 揭开面纱 （Unmasked)”的作者；
+特约编辑@TPostMillennial；
+联系，支持，关注：
+**[https://linktr.ee/AndyNgo](https://linktr.ee/AndyNgo)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-947.png)图片来源：网络
+**安迪·恩戈简介：**
 
-据大卫先生介绍，我们将在该区域搭建5个50平米共250平米的大型帐篷，作为难民休息区、工作人员安全活动区、媒体接待区等。同时一线战友们正在辛苦工作，搬运物资，准备给难民发放毛毯、食物、水等。由于条件艰苦，车辆无法到达，很多物资只能人力搬运。但是新中国联邦、法治基金的无我无私救援活动得到了现场所有国际救援团队的认可，很多国际友人也加入了人力搬运的行列，帮助战友们运送物资。
+安迪·恩戈（出生于1986）是美国保守记者和社交媒体人物，因报道俄勒冈州波特兰市街头抗议而闻名。他是加拿大保守新闻网站《后千禧年》的编辑。他曾在《华尔街日报》和《旁观者》写专栏。恩戈是福克斯新闻的常客。
 
-镜头前出现了多位来自全世界各地战友的身影，甚至还有来自乌克兰、波兰和世界各地的西方人闻讯主动加入我们的义工团队。虽然每天都只能休息1-2个小时，然而他们依然精神十足地全心全意在进行救援活动。文贵先生评价：男战友“比任何时候上直播都要帅”，女战友是“勇敢的女人最漂亮”。我们用行动把物资、力量、决心展示在世界面前，得到了国际援助机构的尊重和认可，展示了新中国联邦人的新形象。
+2019年，恩戈在报道“俄勒冈州波特兰市骄傲的男孩”游行时遭到反抗议者的袭击和伤害。这次袭击引起了全国的关注。
 
-现场的战友表示，看到各个救援环节都被安排得井然有序且专业高效，真是为身为一名新中国联邦人而感到骄傲和自豪。
+在《揭开面纱：在安拉法破坏民主的激进计划中》一书中，恩戈揭露了安提法左翼激进组织的暴力极端主义运动的内幕，他因此受到人生危胁。在报道波特兰市因乔治·弗洛伊德（George Floyd）被警察过度执法而死亡的抗议活动时遭到安提法人士的殴打和追捕。
 
-大卫先生说道，感谢文贵先生的战略安排，让我们有机会和国际社会交流，从这次救援活动中也学到了很多。每次的救援方案会咨询当地法律专家和营救专家，一切听指挥，展示了新中国联邦人的执行力和纪律性。华人得到了尊重，所有人都对我们的团队竖大拇指。
+揭开面纱：在安拉法破坏民主的激进计划中（**Unmasked: Inside Antifa’s Radical Plan to Destroy Democracy**）书本网址：
+[**https://www.amazon.com/Unmasked-Antifas-Radical-Destroy-Democracy/dp/154605958X/ref=nodl\_?tag=nypost-20&asc\_refurl=https://nypost.com/2021/01/30/how-a-portland-radical-murdered-a-trump-supporter/&asc\_source=web**](https://www.amazon.com/Unmasked-Antifas-Radical-Destroy-Democracy/dp/154605958X/ref=nodl_?tag=nypost-20&amp;asc_refurl=https://nypost.com/2021/01/30/how-a-portland-radical-murdered-a-trump-supporter/&amp;asc_source=web)
 
-随后直播镜头向观众展示了法治基金，新中国联邦前线救援队为难民发放的免费物资，包括毛毯、新鲜水果、水及其他食物。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/grafik-17.png)新中国联邦救援队在梅迪卡救援站给越过边境的难民分发物资点
-文贵先生看到前线的实况，十分感动。他表示，这是我们第一次在前线，“集体作战、高科技作战”，考验的是金钱能力、作战能力、人性，良知和道德，展现给世界的是我们的“真实、勇敢、团结”的形象，今天你们为新中国联邦写下了“浓墨重彩”的一笔。我们一定要分工明确，集体作战。这一次新中国联邦要全世界看到的是中国人可以干事、可以团结，不是一个人是狼，两个人是羊。这次是面对面，不仅是“网”上见，更是“事”上见。这一刻对我们每个人，每一分、每一秒、每个动作都有非凡的意义。
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+校审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-一位曾投资裕达国贸的日本大集团老板看到我们的前线、我们的组织、我们的形象、我们的人、我们的年轻、我们的活力，和我们在前线真心的救人，而且组织这么棒。他说，日本从来没有这样真心的救援，他为此感到可耻，希望代表亚洲人来感谢战友们。
-
-文贵先生说，我们今天的直播，不是习近平和李克强每年春节前的例行作秀直播，那是提前几个月准备，几个省戒严，之后皇帝来揭揭锅、掀掀被子。我们这是在全世界的摄像机和媒体下的现场大救援，这高下立判，一个真、一个假，一个天、一个地，云泥之别。更重要的是小飞象讲的，“从来没有为做中国人感到这样自豪。”
-
-最后，新中国联邦法治基金法治社会救援队的战友们在镜头前集结，大声喊出“Take down the CCP!”和“共产党你完啦！”的口号，在群情激昂的气氛中结束了前线直播。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/grafik-18.png)
-视频链接：[https://www.gettr.com/post/pz23ol1f0b](https://www.gettr.com/post/pz23ol1f0b)
-
-战争一日不结束，救援一日不停止。新中国联邦人在战火中逆行前线进行人道救援，还要面对中共及其爪牙的迫害、威胁和干扰。不仅救援服务器、专用Email被黑掉，还有若干中共特务打假求救电话和造谣侮辱。中共不但自己不救人，反而阻止新中国联邦人救人。毫无疑问中共是世界上最邪恶最Low的犯罪团伙。但这一切逆增上缘只会突显爆料革命的伟大，更强调了中共≠中国人。新中国联邦人将受到全世界的认可和欢迎。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/grafik-14.png)
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
