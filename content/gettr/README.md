@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 1:19 AM (UTC)`
+
+3/9/2022 Miles Guo: The rescue team of the New Federal State of China in Medyka is so remarkable! The refugees were touched by the food and blankets we provided. The fellow fighters are enthusiastic, and they are respected and helped by friends from all over the world. We are so proud to be the citizens of the New Federal State of China!<br/><br/>3/9/2022 文贵直播：新中国联邦在梅迪卡的救援团队太牛了！我们提供的食物和毛毯让难民非常感动，战友们热情高涨并受到了各国友人的尊重与帮助；我们为我们是新中国联邦人而感到无比自豪！<br/>
+![img](https://media.gettr.com/group26/getter/2022/03/10/01/a4f7c54b-eba6-2313-239d-c3437edb8914/out.jpg)
+
+---
+
 `@miles 3/10/2022 12:35 AM (UTC)`
 
 2022.03.08《The Fringe》 Episode 143
@@ -147,13 +154,6 @@
 
 新中国联邦乌克兰救援行动成功在波兰梅迪卡设置了救助站。日本NHK在乌克兰边境的现场报道中，新中国联邦旗帜成最美背景<br/><br/>The Ukraine Rescue Operation of NFSC has successfully set up a reception spot in Medyka, Poland. During a news broadcast on the Ukrainian border by Japan's NHK, the New Federal State of China's flag is the most beautiful background<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group25/getter/2022/03/09/09/da2f1870-c0d8-2983-15a2-afda7f87c52f/out.jpg)
-
----
-
-`@miles 3/9/2022 9:20 AM (UTC)`
-
-【Ukrainian Rescue】03/08/22 David interviews a Chinese husband and his Ukrainian wife rescued by NFSC and ROLF in Krakow, Poland. Rescued man: I am very grateful. This rescue work is very well arranged. I really hope that the war will end soon, and we need peace.  We don't need more innocent lives being insulted and wasted.<br/><br/>【乌克兰救援】03/08/22 大卫在克拉科夫汽车站采访被新中国联邦和法治基金救援的中国男士及其乌克兰夫人。被救男士：我充满感激。这一个救援工作安排得非常的不错。我非常希望战争快点结束，我们要和平。我们不要看到更多无辜的生命被糟蹋。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group49/getter/2022/03/09/09/f87c2715-d53f-8552-0870-6f75258466ed/out.jpg)
 
 ---
 

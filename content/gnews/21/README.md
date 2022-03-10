@@ -2,10 +2,10 @@
 ---
 
 
-## 【乌克兰救援】被新中国联邦和法治基金救援的中乌夫妇介绍乌境内华人当下状况
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134116/)
+## 【乌克兰救援】被新中国联邦和法治基金救援的中乌夫妇表达感激之情
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134125/)
 
-03/08/22 被新中国联邦和法治基金救援的中乌夫妇介绍乌克兰境内华人当下的状况。
+03/08/22 被新中国联邦和法治基金救援的中乌夫妇表达感激之情。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

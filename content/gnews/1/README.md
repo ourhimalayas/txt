@@ -2,13 +2,13 @@
 ---
 
 
-## 平民在俄军向基辅挺进的炮火中逃离
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134372/)
+## 中共谎言被戳穿 苏梅地区仍有留学生未被救出
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2134478/)
 
-03/07/2022 随着普京的部队继续向乌克兰首都推进，俄军的攻势在基辅北部持续进行。家庭和儿童不得不在纷飞的战火中逃离。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220310-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
