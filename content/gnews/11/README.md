@@ -2,8 +2,8 @@
 ---
 
 
-## 人类前所未有的大变局
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2136040/)
+## 3月底至4月15号是共产党在世界疯狂的开始,为前线战友和处在战争中的人们祈福
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2136083/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

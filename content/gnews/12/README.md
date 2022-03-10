@@ -2,8 +2,8 @@
 ---
 
 
-## 我们的大救援，中国人历史上的第一次
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2136028/)
+## 未来喜币会有大惊喜
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2136075/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

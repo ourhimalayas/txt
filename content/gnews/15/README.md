@@ -2,19 +2,29 @@
 ---
 
 
-## 中共两会｜国防部：对“台独”行径绝不姑息 民进党是动荡的根源
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2136015/)
+## 有声｜俄乌开战以来已有超过100万儿童逃离了乌克兰
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2136069/)
 
-**撰文/ 港台前线｜发布日期/ 10/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/國防部：對台獨行徑絕不姑息-民進黨是動盪的根源.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+**By:秘翻新闻**
 
-十三届全国人大五次会议解放军和武警部队代表团发言人吴谦，在回应政府工作报告时批评，台湾民进党勾结外部势力，进行谋“独”挑衅，是造成当前台海局势紧张且动荡的根源。
+**2022-03-10**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-10-下午3.20.22.png)
+据[《福克斯新闻》](https://www.foxnews.com/world/russia-ukraine-war-more-than-1-million-children-fled-ukraine-since-start-invasion)3月9日报道，联合国儿童基金会执行主任周三表示，自近两周前俄罗斯开始入侵以来，已有超过100万儿童逃离乌克兰，前往邻国。
 
-他表示，中共坚决反对“台独”，并反对外部势力干涉，，坚持“和平统一、一国两制”的方针，美日试图通过打“台湾牌”，实现“以台制华”的政治图谋，注定难以成真；解放军对台独分裂行径和外部势力干涉，绝不姑息、绝不容忍、露头就打。
+联合国难民机构表示，自俄乌开战以来，已有超过200万人逃离乌克兰。
 
-来源｜[文汇报](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;cad=rja&amp;uact=8&amp;ved=2ahUKEwjdkfjN9rr2AhVnJkQIHVX5ACAQxfQBKAB6BAgEEAI&amp;url=https%3A%2F%2Fwww.wenweipo.com%2Fa%2F202203%2F10%2FAP62296b7be4b036dce99cde99.html&amp;usg=AOvVaw1oEB80jBu0Sw9wAoA4NrV3)
+路透社报道，逃离的人主要是妇女和儿童. 联合国儿童基金会表示，许多逃离的儿童要么无人陪伴，要么与父母或家人分离。该机构警告说，没有父母照顾的儿童 “遭受暴力、虐待和剥削的风险更大”。
 
+另据联合国儿童基金会的凯瑟琳·拉塞尔在一份声明中表示，自俄罗斯总统普京于2月24日下令入侵乌克兰以来的几周内，至少有37名儿童被杀害，50名儿童受伤。
+
+联合国儿童基金会补充说：当这些儿童被跨境转移时，风险会成倍增加。 在紧急情况下，贩运的风险也会飙升。
+
+（ 秘翻新闻 Grace编辑报道 ）
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
