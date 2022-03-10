@@ -15,161 +15,161 @@
 
 ---
 
-### [中共国版“北约东扩”论？王毅批美国搞“印太版北约”](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [拜登签署关于加密货币的命令因其使用的爆炸式增长](/content/gnews/1/README.md)
+ ` 【🌹玫瑰新闻】`
 
-### [辉瑞疫苗能被美国高法判决背后的沼泽力量](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [我们行善成了罪了是吗？](/content/gnews/3/README.md)
- ` MG FARM`
-
-### [当你生命中遇到所谓的地狱给他发出的死亡信息，叫：愚蠢、蛊惑、谣言、仇恨](/content/gnews/4/README.md)
- ` MG FARM`
-
-### [乌克兰战争背后的真相](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [受俄罗斯军队攻击影响，人道救援通道仅成功救出一部分](/content/gnews/6/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [美英发誓要击败俄罗斯入侵乌克兰， 布林肯“坚信普京必败”](/content/gnews/7/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [美国议员立法控制数字人民币对全球数字金融领域的影响](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【#G时新闻】- 波兰众议院已批准一项帮助乌克兰难民的法律。](/content/gnews/9/README.md)
- ` G-时新闻`
-
-### [七哥金句：世上让你最幸福快乐的是解脱](/content/gnews/10/README.md)
+### [大直播后记：共产党将会真正地开始行动](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [这个疫苗它有两个标准](/content/gnews/11/README.md)
- ` MG FARM`
-
-### [【 #G时新闻 】法治基金乌克兰人道救援邮箱被黑](/content/gnews/12/README.md)
- ` G-时新闻`
-
-### [俄罗斯承认在乌克兰使用了温压武器](/content/gnews/13/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [救援前线：记者妮可接受西班牙公益基金会采访](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [习面对实则中美之战的俄乌战争不惧怕，妄图放手一搏换取美中共治](/content/gnews/15/README.md)
- ` YALUN 亚伦`
-
-### [有声|灭共者之郭氏情报站（36）2022/03/09 文贵大直播](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [新中国联邦乌克兰救援行动正改变作全世界对中国人的印象](/content/gnews/17/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [有声|新中国联邦法治基金乌克兰人道救援信息](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [有声|乌克兰救援3月8日信息](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [媒体报道：格哈德·施罗德应乌克兰的要求会见弗拉基米尔·普京](/content/gnews/20/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-### [秘翻在线: 中共运8反潜机近日在演习中坠海](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [批评亚伦•罗杰斯没有接种新冠疫苗的教练得了血栓之后，两个脚趾截肢](/content/gnews/22/README.md)
- ` xiaobaige`
-
-### [有声|Coinbase表明支持对俄制裁，封锁2.5万个俄罗斯加密货币地址](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [乌克兰大救援3.9.2022: 法治基金国际人道救援展现新中国联邦人的良善形象 赢得广泛国际赞誉](/content/gnews/24/README.md)
- ` 秘密翻译组-原创组`
-
-### [欧盟领导人告诉乌克兰：“你属于我们的家庭”](/content/gnews/25/README.md)
- ` Shuizhuyu`
-
-### [高盛成为第一家退出俄罗斯的美国银行](/content/gnews/26/README.md)
- ` Shuizhuyu`
-
-### [俄罗斯提出反制裁措施](/content/gnews/27/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [俄军被吊打 中共在猥琐 新中国联邦在营救](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2022年3月10日，全球中共病毒疫情情况汇总](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [沙特和阿联酋拒绝接受拜登讨论乌克兰局势的呼吁，转而与普京对话](/content/gnews/30/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [承认台湾主权——普京的乌克兰战争应该成为支持民主国家的警钟](/content/gnews/31/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [乌克兰妇产医院遭空袭17人受伤](/content/gnews/32/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [历史上的今天——历史上的今天起义日](/content/gnews/33/README.md)
- ` NFSC News`
-
-### [乌克兰救援：我看到无数个郭文贵在成长](/content/gnews/34/README.md)
- ` 秘密翻译组-原创组`
-
-### [加拿大温哥华扬帆农场救援团队抵达前线](/content/gnews/35/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [中共开始疫苗副作用维稳](/content/gnews/36/README.md)
- ` 焦點20分`
-
-### [法治基金救援已成功营救数百名战争难民](/content/gnews/37/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [中共阻挠法治基金乌克兰人道救援行动](/content/gnews/38/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [新西兰财经G乐部2022年3月10日:财经新闻整理](/content/gnews/39/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [视频|全球媒体聚焦乌克兰救援 新中国联邦受关注](/content/gnews/40/README.md)
- ` MOSVIDEO`
-
-### [2022/03/08 墙内世界](/content/gnews/41/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [班农战斗室志愿者正在群阅辉瑞文件：36名儿童参试验](/content/gnews/42/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [3/10/2022 国际财经快讯：保时捷因乌克兰零部件短缺而停止Taycan生产; 镍市场危机迫使LME紧急设法止损](/content/gnews/43/README.md)
- ` 秘密翻译组金融团队`
-
-### [中日财经爆┃美国恢复进口委内瑞拉石油 获释两囚犯](/content/gnews/44/README.md)
+### [樱花数据分析┃加拿大安省：两针和三针接种者防感染有效率为“负值”](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共拒绝谴责俄侵乌克兰，立陶宛力挺台湾不让步](/content/gnews/45/README.md)
+### [《铁链梦》唤醒同胞别再冷漠懦弱](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [3/10/2022 文贵盖特：拜登总统首次提出数字化美元意味着什么？无苗有币的新中国联邦人要和冲在前线的战友们一样向世界展示有尊严、和平、守法、守信的新中国人形象，共产党不能代表中国人](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
+
+### [超过8万乌克兰人来到德国寻求庇护](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新中国联邦乌克兰前线救援直击中共虚假撤侨](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中日财经爆┃币安赵长鹏之后,“币圈大佬”孙宇晨涉多项违法被美国FBI调查](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [俄乌外长在土耳其首次举行会谈无果](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [乌驻德大使批德国背后捅刀，呼吁北约设禁飞区](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [真承诺假斡旋？国际应否继续期待北京协助俄乌停火](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国版“北约东扩”论？王毅批美国搞“印太版北约”](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [辉瑞疫苗能被美国高法判决背后的沼泽力量](/content/gnews/13/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [我们行善成了罪了是吗？](/content/gnews/14/README.md)
+ ` MG FARM`
+
+### [当你生命中遇到所谓的地狱给他发出的死亡信息，叫：愚蠢、蛊惑、谣言、仇恨](/content/gnews/15/README.md)
+ ` MG FARM`
+
+### [乌克兰战争背后的真相](/content/gnews/16/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [受俄罗斯军队攻击影响，人道救援通道仅成功救出一部分](/content/gnews/17/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [美英发誓要击败俄罗斯入侵乌克兰， 布林肯“坚信普京必败”](/content/gnews/18/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [美国议员立法控制数字人民币对全球数字金融领域的影响](/content/gnews/19/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【#G时新闻】- 波兰众议院已批准一项帮助乌克兰难民的法律。](/content/gnews/20/README.md)
+ ` G-时新闻`
+
+### [有声|新中国联邦的乌克兰救援行动 吸引世界媒体的关注](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [七哥金句：世上让你最幸福快乐的是解脱](/content/gnews/22/README.md)
+ ` 雅典娜GNotes`
+
+### [这个疫苗它有两个标准](/content/gnews/23/README.md)
+ ` MG FARM`
+
+### [【 #G时新闻 】法治基金乌克兰人道救援邮箱被黑](/content/gnews/24/README.md)
+ ` G-时新闻`
+
+### [俄罗斯承认在乌克兰使用了温压武器](/content/gnews/25/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [救援前线：记者妮可接受西班牙公益基金会采访](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻新闻｜全球300家大企业抵制 俄罗斯经济已死](/content/gnews/46/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [习面对实则中美之战的俄乌战争不惧怕，妄图放手一搏换取美中共治](/content/gnews/27/README.md)
+ ` YALUN 亚伦`
 
-### [中共两会｜国防部：对“台独”行径绝不姑息 民进党是动荡的根源](/content/gnews/47/README.md)
- ` 關注組`
+### [有声|灭共者之郭氏情报站（36）2022/03/09 文贵大直播](/content/gnews/28/README.md)
+ ` MOSREC`
 
-### [俄乌战争｜美众议院通过俄罗斯石油禁令及拨款136亿美元援助乌克兰](/content/gnews/48/README.md)
- ` 關注組`
+### [新中国联邦乌克兰救援行动正改变作全世界对中国人的印象](/content/gnews/29/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [国际｜ 在野“保守派”尹锡悦当选南韩总统 主张“亲美抗中”](/content/gnews/49/README.md)
- ` 關注組`
+### [媒体报道：格哈德·施罗德应乌克兰的要求会见弗拉基米尔·普京](/content/gnews/30/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [特鲁多政府以大流行病援助的名义花费了数十亿美元的公共资金](/content/gnews/50/README.md)
- ` 加拿大温哥华扬帆农场视频组`
+### [秘翻在线: 中共运8反潜机近日在演习中坠海](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [欧盟力争今年将对俄罗斯的天然气依赖度降低近八成](/content/gnews/51/README.md)
+### [批评亚伦•罗杰斯没有接种新冠疫苗的教练得了血栓之后，两个脚趾截肢](/content/gnews/32/README.md)
+ ` xiaobaige`
+
+### [乌克兰大救援3.9.2022: 法治基金国际人道救援展现新中国联邦人的良善形象 赢得广泛国际赞誉](/content/gnews/33/README.md)
+ ` 秘密翻译组-原创组`
+
+### [欧盟领导人告诉乌克兰：“你属于我们的家庭”](/content/gnews/34/README.md)
+ ` Shuizhuyu`
+
+### [高盛成为第一家退出俄罗斯的美国银行](/content/gnews/35/README.md)
+ ` Shuizhuyu`
+
+### [俄军被吊打 中共在猥琐 新中国联邦在营救](/content/gnews/36/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2022年3月10日，全球中共病毒疫情情况汇总](/content/gnews/37/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [历史上的今天——历史上的今天起义日](/content/gnews/38/README.md)
  ` NFSC News`
 
-### [新中国联邦人在乌克兰](/content/gnews/52/README.md)
+### [乌克兰救援：我看到无数个郭文贵在成长](/content/gnews/39/README.md)
+ ` 秘密翻译组-原创组`
+
+### [加拿大温哥华扬帆农场救援团队抵达前线](/content/gnews/40/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [法治基金救援已成功营救数百名战争难民](/content/gnews/41/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [中共阻挠法治基金乌克兰人道救援行动](/content/gnews/42/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [2022/03/08 墙内世界](/content/gnews/43/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [班农战斗室志愿者正在群阅辉瑞文件：36名儿童参试验](/content/gnews/44/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中日财经爆┃美国恢复进口委内瑞拉石油 获释两囚犯](/content/gnews/45/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共拒绝谴责俄侵乌克兰，立陶宛力挺台湾不让步](/content/gnews/46/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻新闻｜全球300家大企业抵制 俄罗斯经济已死](/content/gnews/47/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [中共两会｜国防部：对“台独”行径绝不姑息 民进党是动荡的根源](/content/gnews/48/README.md)
+ ` 關注組`
+
+### [俄乌战争｜美众议院通过俄罗斯石油禁令及拨款136亿美元援助乌克兰](/content/gnews/49/README.md)
+ ` 關注組`
+
+### [欧盟力争今年将对俄罗斯的天然气依赖度降低近八成](/content/gnews/50/README.md)
+ ` NFSC News`
+
+### [新中国联邦人在乌克兰](/content/gnews/51/README.md)
  ` Little c`
+
+### [有声 ｜美拟提案冻结俄罗斯黄金储备](/content/gnews/52/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
 ### [班农先生呼吁中国卡车司机为自由而战](/content/gnews/53/README.md)
  ` 纽约香草山MOS02`

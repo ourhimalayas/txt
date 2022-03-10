@@ -17,10 +17,17 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 3/10/2022 10:25 PM (UTC)`
+`@miles 3/10/2022 10:45 PM (UTC)`
 
-【Ukraine Rescue】 03/10/22 March 10, Wenge Qixiong & Wenke from NFSC and ROLF at the Medyka Rescue Station on the Polish-Ukrainian border, presenting information to foreign journalists about our rescue efforts to provide free flights, food and accommodations.<br/><br/>【乌克兰救援】3月10日，文戈七雄战友和文科战友，在位于波乌边境的Medyka新中国联邦和法治基金救援站，向外国记者介绍我们提供免费航班和食宿的救援信息<br/>
-![img](https://media.gettr.com/group43/getter/2022/03/10/22/46cbc342-dc6f-bbb4-b85e-e0ab48334d58/out.jpg)
+3/9/2022 Miles Guo: The COVID vaccine disaster will be the most terrible thing. The essence of the Russia-Ukraine war is the war between the US and the CCP, with the Chinese people being sacrificed. I strongly recommend that fellow fighters in Communist China download and use the Himalaya Pay ASAP to save yourselves in the war!<br/><br/>3/9/2022 文贵直播：最恐怖的将是疫苗灾难；俄乌之战的本质是美中的战争，中国人是战争中的牺牲品；文贵建议国内战友们尽快下载和使用喜支付以在战争中自救！<br/>
+![img](https://media.gettr.com/group48/getter/2022/03/10/22/38a588bb-b6e7-88da-a46e-48b5fb899798/out.jpg)
+
+---
+
+`@miles 3/10/2022 10:41 PM (UTC)`
+
+【Ukraine Rescue】 03/10/22 March 10, Wenge Qixiong & Mingdao from NFSC and ROLF at the Medyka Rescue Station on the Polish-Ukrainian border, presenting information to foreign journalists about our rescue efforts to provide free flights, food and accommodations.<br/><br/>【乌克兰救援】3月10日，文戈七雄战友和明道战友，在位于波乌边境的Medyka新中国联邦和法治基金救援站，向外国记者介绍我们提供免费航班和食宿的救援信息
+![img](https://media.gettr.com/group46/getter/2022/03/10/22/c696ee51-d3e9-abb7-2aef-434fe70c5587/out.jpg)
 
 ---
 
@@ -153,13 +160,6 @@ The New Federal State of China and Rule of Law Foundation would like to find the
 
 【Ukrainian Rescue】03/09/22 NFSC & ROL Foundation Ukraine Rescue Operation set up a rescue station in Medyka by the Ukraine/Poland border, and has successfully rescued hundreds of refugees out of Ukraine<br/><br/>【乌克兰救援】03/09/22新中国联邦和法治基金救援行动在乌波边境梅迪卡设立救助站并已成功营救出数百位难民<br/><br/>
 ![img](https://media.gettr.com/group12/getter/2022/03/10/11/4be27f34-586c-21b0-f8c2-b3ebdc36a5a1/out.jpg)
-
----
-
-`@miles 3/10/2022 10:28 AM (UTC)`
-
-
-![img](https://media.gettr.com/group13/origin/2022/03/10/10/56c04704-2c07-0412-0844-4ceff83a507b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
