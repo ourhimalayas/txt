@@ -2,30 +2,35 @@
 ---
 
 
-## 白宫：俄罗斯可能在乌克兰使用化学武器
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2136520/)
+## 2022/03/07 北约拒绝泽连斯基在乌克兰上空设立禁飞区
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2136591/)
 
-撰稿：东京樱花团丨加一颗稻草
+[![](https://express.adobe.com/page/j0chTM07mw44K/images/b4339a6e-a4dc-4364-84e7-8c9c752073f1.png?asset_id=ea17f0cc-2295-4c29-a5ba-33b7df0d5a0b&amp;img_etag=%221cc616bbe27ee60ea0d78456e03bdc87%22&amp;size=2560)](https://express.adobe.com/page/j0chTM07mw44K/images/b4339a6e-a4dc-4364-84e7-8c9c752073f1.png?asset_id=ea17f0cc-2295-4c29-a5ba-33b7df0d5a0b&amp;img_etag=%221cc616bbe27ee60ea0d78456e03bdc87%22&amp;size=1024)
+**简评：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/白宫：俄罗斯可能在乌克兰使用化学武器.png)[*图片来源*](https://ichef.bbci.co.uk/news/976/cpsprodpb/14DDF/production/_123617458_gettyimages-1239028742.jpg)
+俄乌战争在继续，大约150万乌克兰人逃往邻国，形成了二战以来欧洲最大的难民危机。北约拒绝了乌克兰总统泽连斯基要求在乌克兰上空设立禁飞区。美国国务卿布林肯表示，美国将与波兰合作向乌克兰提供战斗机。普京继续推进其侵略行为，战争也许会持续一段时间，但是最终乌克兰一定会胜利。
 
-美国白宫新闻秘书普萨基（Jen Psaki）表示，俄罗斯可能会在乌克兰使用化学或生物武器，或者制造使用这些武器的“假旗”行动（即嫁祸或栽赃行动）。普萨基在推特上批评俄罗斯散布美国正在乌克兰开发化学武器的“虚假声明”。
+GETTR视频链接：[https://gettr.com/post/pz145g6100](https://gettr.com/post/pz145g6100)
 
-她说，俄罗斯可能正在为在乌克兰使用化学或生物武器做准备，尽管她没有提供任何证据。
+**视频字幕：**
 
-普萨基说：“既然俄罗斯提出了这些虚假声明，而中共国似乎也支持这种宣传，我们都应该警惕俄罗斯可能在乌克兰使用化学或生物武器，或者利用它们制造假旗行动。”
+**女主持人：**周日，随着俄罗斯再次发动炮击，从被围困的乌克兰港口城市马里波勒撤离平民的第二次努力失败。
 
-俄罗斯国防部在周三早些时候表示，乌克兰军队已将约80吨氨水运往哈尔科夫的佐洛奇夫。美国副国务卿纽兰（Victoria Nuland）周二在华盛顿举行的国会听证会上表示，美国正在帮助乌克兰当局保护该国的生物研究设施不被俄罗斯人占领。BBC安全事务记者戈登·科雷拉（Gordon Corera）说，西方官员表示对使用化学武器的担忧源于俄罗斯声称可能为某种“假旗”说法“做好准备”。
+**男主持人：**与此同时，乌克兰人的大规模外流正在造成官方所说的二战以来欧洲最大的难民危机。目前北约正在拒绝乌克兰总统关于乌克兰上空建立禁飞区的请求，但是国务卿安东尼·布林肯表示，美国正在与波兰合作研究向乌克兰提供战斗机的可能性。
 
-在一条推文中，俄罗斯大使馆声称“最近发现的文件”显示，在直接靠近俄罗斯的乌克兰实验室发现了生物武器组成部分，而该实验室是由美国国防部提供资金。美国驳斥了这些说法，称这是“多年来我们在乌克兰和其他国家反复看到俄罗斯人采取的那种虚假信息行动”。
+**国务卿布林肯：**弗拉基米·普京继续推进其侵略行为，所以我说，我担心战争可能会持续一段时间，但是会结束的，最终乌克兰一定会胜利。
 
-俄罗斯官员和媒体最近几天还声称，乌克兰正计划制造一种所谓的脏弹，用于散播放射性物质。与此同时，俄罗斯外交部长声称乌克兰一直在寻求核武器。一些人认为，莫斯科正在推动这些主张，以便就俄国入侵乌克兰的原因向本国公众提供某种理由。但西方官员也担心它们可能被用作“假旗”事件的基础。
+**男主持人：**自俄罗斯入侵以来，总共150万乌克兰人逃往邻国。
 
-信息来源：[**Russia could launch chemical attack in Ukraine – White House**](https://www.bbc.com/news/uk-60683248)
+*编辑：【英国伦敦喜庄园编辑部】*
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+*字幕：雨中漫步|听写：雨中漫步|翻译：Roberts| 校对：Blue|简评/文字整理/编辑：胖丁| Page：小六月*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+[![](https://express.adobe.com/page/j0chTM07mw44K/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/j0chTM07mw44K/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

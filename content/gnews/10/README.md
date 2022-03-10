@@ -2,19 +2,30 @@
 ---
 
 
-## 由于未接种新冠疫苗，德约科维奇无法入境美国参赛
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2136465/)
+## 白宫：俄罗斯可能在乌克兰使用化学武器
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2136520/)
 
-#### 翻译/撰稿：zzballack
+撰稿：东京樱花团丨加一颗稻草
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-46.jpg)图片来源：路透社
-据《网关专家》（Gateway Pundit）3月10日报道，网球巨星诺瓦克·德约科维奇（Novak Djokovic）3月9日通过其个人推特宣布，尽管他被自动列入了将于本月在美国加利福尼亚州和佛罗里达州举行的印第安维尔斯大师赛（BNP Paribas Open）和迈阿密公开赛 (Miami Open)的参赛名单，但由于美国疾控中心（CDC）坚持其规定，要求所有外国公民必须接种了新冠疫苗才能获得进入美国的签证，因此尚未接种新冠疫苗的他无法入境美国参赛。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/白宫：俄罗斯可能在乌克兰使用化学武器.png)[*图片来源*](https://ichef.bbci.co.uk/news/976/cpsprodpb/14DDF/production/_123617458_gettyimages-1239028742.jpg)
 
-今年一月，德约科维奇同样因为未接种疫苗而被澳州政府拒绝进入该国，从而失去了参加澳网公开赛的机会。另外，反对医疗暴政的勇敢立场使得德约科维奇无法参加今年的所有重要比赛。今年截至目前，他只打了三场比赛。但他上个月在接受英国BBC采访时明确表示，自己宁愿放弃比赛和网球荣誉，也不愿被强迫接种实验性的新冠疫苗，他愿意付出这些代价。
+美国白宫新闻秘书普萨基（Jen Psaki）表示，俄罗斯可能会在乌克兰使用化学或生物武器，或者制造使用这些武器的“假旗”行动（即嫁祸或栽赃行动）。普萨基在推特上批评俄罗斯散布美国正在乌克兰开发化学武器的“虚假声明”。
 
-新闻来源：[BREAKING: Biden Admin Denies Former World No. 1 Tennis Champ Novak Djokovic’s Access to Country Due to Vaccine Status — But Opened Border to 2 Million Unvaccinated Illegal Aliens in Last Year](https://www.thegatewaypundit.com/2022/03/breaking-biden-admin-denies-former-world-no-1-tennis-champ-novak-djokovics-access-country-due-vaccine-status-opened-border-2-million-unvaccinated-illegal-aliens-last-year/)
+她说，俄罗斯可能正在为在乌克兰使用化学或生物武器做准备，尽管她没有提供任何证据。
 
+普萨基说：“既然俄罗斯提出了这些虚假声明，而中共国似乎也支持这种宣传，我们都应该警惕俄罗斯可能在乌克兰使用化学或生物武器，或者利用它们制造假旗行动。”
+
+俄罗斯国防部在周三早些时候表示，乌克兰军队已将约80吨氨水运往哈尔科夫的佐洛奇夫。美国副国务卿纽兰（Victoria Nuland）周二在华盛顿举行的国会听证会上表示，美国正在帮助乌克兰当局保护该国的生物研究设施不被俄罗斯人占领。BBC安全事务记者戈登·科雷拉（Gordon Corera）说，西方官员表示对使用化学武器的担忧源于俄罗斯声称可能为某种“假旗”说法“做好准备”。
+
+在一条推文中，俄罗斯大使馆声称“最近发现的文件”显示，在直接靠近俄罗斯的乌克兰实验室发现了生物武器组成部分，而该实验室是由美国国防部提供资金。美国驳斥了这些说法，称这是“多年来我们在乌克兰和其他国家反复看到俄罗斯人采取的那种虚假信息行动”。
+
+俄罗斯官员和媒体最近几天还声称，乌克兰正计划制造一种所谓的脏弹，用于散播放射性物质。与此同时，俄罗斯外交部长声称乌克兰一直在寻求核武器。一些人认为，莫斯科正在推动这些主张，以便就俄国入侵乌克兰的原因向本国公众提供某种理由。但西方官员也担心它们可能被用作“假旗”事件的基础。
+
+信息来源：[**Russia could launch chemical attack in Ukraine – White House**](https://www.bbc.com/news/uk-60683248)
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

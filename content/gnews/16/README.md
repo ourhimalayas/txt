@@ -2,24 +2,19 @@
 ---
 
 
-## 美国分析称俄军使用非制导炸弹是平民伤亡增加的因素
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2136385/)
+## 由于未接种新冠疫苗，德约科维奇无法入境美国参赛
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2136465/)
 
-撰稿：东京樱花团/待命（文晓）
+#### 翻译/撰稿：zzballack
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/美国分析称俄军使用非制导炸弹是平民伤亡增加的因素.png)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-46.jpg)图片来源：路透社
+据《网关专家》（Gateway Pundit）3月10日报道，网球巨星诺瓦克·德约科维奇（Novak Djokovic）3月9日通过其个人推特宣布，尽管他被自动列入了将于本月在美国加利福尼亚州和佛罗里达州举行的印第安维尔斯大师赛（BNP Paribas Open）和迈阿密公开赛 (Miami Open)的参赛名单，但由于美国疾控中心（CDC）坚持其规定，要求所有外国公民必须接种了新冠疫苗才能获得进入美国的签证，因此尚未接种新冠疫苗的他无法入境美国参赛。
 
-3月10日时事通信社华盛顿消息：9日，五角大楼的一名高级官员警告说，俄罗斯军队可能在乌克兰使用非制导炸弹。
+今年一月，德约科维奇同样因为未接种疫苗而被澳州政府拒绝进入该国，从而失去了参加澳网公开赛的机会。另外，反对医疗暴政的勇敢立场使得德约科维奇无法参加今年的所有重要比赛。今年截至目前，他只打了三场比赛。但他上个月在接受英国BBC采访时明确表示，自己宁愿放弃比赛和网球荣誉，也不愿被强迫接种实验性的新冠疫苗，他愿意付出这些代价。
 
-因为使用非制导炸弹无法精确控制炸弹的落点，往往会造成更多的平民伤亡。俄罗斯军队可能会因不顾平民伤亡进行不分青红皂白的攻击而遭到国际社会更强烈的谴责。
+新闻来源：[BREAKING: Biden Admin Denies Former World No. 1 Tennis Champ Novak Djokovic’s Access to Country Due to Vaccine Status — But Opened Border to 2 Million Unvaccinated Illegal Aliens in Last Year](https://www.thegatewaypundit.com/2022/03/breaking-biden-admin-denies-former-world-no-1-tennis-champ-novak-djokovics-access-country-due-vaccine-status-opened-border-2-million-unvaccinated-illegal-aliens-last-year/)
 
-这位高级官员告诉记者，有迹象表明，俄罗斯军队实际上正在投掷无制导炸弹。并指出，民用设施的破坏和平民伤亡正在增加。目前还不清楚这是否是其侵略行动的一部分，还是他们在精确制导炸弹的使用方面存在问题。
-
-信息来源：[ロシア軍、無誘導爆弾使用　民間人犠牲増加の要因　米分析（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/0009cb0902f9de6187e39d13cf7dd0d6d1ea7350)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

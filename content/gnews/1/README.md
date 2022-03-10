@@ -2,20 +2,39 @@
 ---
 
 
-## 俄罗斯士兵的葬礼因审查而被禁止
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2136555/)
+## 欧议员谴责特鲁多对车队“侵犯人权”
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2136613/)
 
-翻译/整理: 萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Immagine-7.jpg)图片来自today.it
-一位女士向为数不多的俄罗斯独立报纸之一的《新公报》透露俄罗斯暂时禁止为在乌克兰战争中阵亡的士兵举行葬礼，原因是有助于“不引起家庭恐慌”。这位女士还透露:俄罗斯自去年 3 月 2 日以来一直没有公布在战争中阵亡士兵的官方数字，试图隐瞒乌克兰冲突导致国家军队死亡的真实程度。
+**撰稿: 日本东京方舟农场** ** JIHO**
 
-俄罗斯并未正式承认这场战争，他们称之为乌克兰的“特别行动”。同时“隐藏”被杀士兵的尸体，以免进一步激起街头反对战争的抗议活动。
+一位芬兰的欧洲议会议员Laura Huhtasaari呼吁欧盟（EU）[谴责](https://www.europarl.europa.eu/RegData/questions/ecrites/2022/000702/P9_QE%282022%29000702_EN.pdf)加拿大总理贾斯汀·特鲁多（Justin Trudeau）对渥太华和平卡车车队抗议者的暴力镇压。
 
-乌克兰总统[泽连斯基](https://www.today.it/mondo/villa-zelensky-forte-dei-marmi-gossip.html)指责普京下令焚烧死者遗体。据英国《每日电讯报》和《卫报 》报道，移动火化炉跟随俄罗斯军队进入乌克兰。但到目前为止，有多少俄罗斯士兵在乌克兰丧生？据五角大楼称，在近两周的入侵中，有 2004 至 4000 名俄罗斯士兵在基辅及其周边地区丧生，但根据俄罗斯国防军的说法，他们是 498 人（1,597 人受伤）。而根据乌克兰武装部队人员在Facebook上发布的最新公告，他们已经超过了1.2万人。
+Laura Huhtasaari写信给欧盟委员会副主席和欧盟外交和安全政策高级代表，要求欧盟澄清它对特鲁多的行为的立场。Laura写道:”欧盟在多个场合谴责了各国的侵犯人权行为，委员会或欧盟外交与安全政策高级代表是否打算谴责加拿大在加拿大车队示威中对和平抗议采取的措施，欧盟对加拿大政府反对和平抗议的行动持何立场？ ”
 
-原文链接: [https://www.today.it/mondo/funerali-soldati-russi-morti-guerra-ucraina.html](https://www.today.it/mondo/funerali-soldati-russi-morti-guerra-ucraina.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-2-3.jpeg)图片来自网络
 
-责任编辑/发布:意大利达芬奇农场   萧亦
+Laura 的书面答复问题还谈到了这样一个事实，即 2020 年特鲁多曾[公开支持](https://thewire.in/diplomacy/trudeau-canada-farmer-protest-internal-affair)印度德里农民的类似示威活动，这让他激怒了印度外交部。
+
+特鲁多当时表示：“加拿大将永远支持世界各地和平抗议的权利，我们很高兴看到缓和对话的进展。”
+
+特鲁多的双重标准不仅在欧洲议会引起了胡塔萨里的注意，而且还促使印度最大的两个政治机构之一的印度人民党（Bharatiya Janata Party）的外交事务负责人在推特上[指责特鲁多](https://tnc.news/2022/02/15/indian-politician-calls-out-trudeaus-hypocrisy-on-civil-rights/)援引《紧急情况法》 .
+
+“这是（贾斯汀·特鲁多）在印度发生街头抗议时，‘加拿大将永远在那里捍卫和平抗议者的权利’，”维杰·乔泰瓦勒博士在推特上写道。
+
+在使用该法案行使紧急权力后，特鲁多政府下令在加拿大首都进行军事化警察行动，以清除市中心的示威者。市、省和联邦警察联合逮捕数百人，一些旁观者甚至被防暴马践踏。
+
+《紧急情况法》还赋予联邦政府冻结卡车司机资产的权力，包括加密货币钱包。
+
+“加拿大已经决定，除其他外，冻结参加示威的人的银行账户，并威胁要逮捕和平示威者” Laura写道。
+
+其他欧洲政客，包括罗马尼亚 MEP [Cristian Terhes](https://tnc.news/2022/02/22/romanian-parliamentarian-calls-trudeau-tyrant-and-dictator-over-ottawa-crackdown/)和英国议员[Marcus](https://tnc.news/2022/02/16/trudeau-condemned-around-the-world-for-moving-to-crush-protests/) Fysh也抨击了特鲁多的专制策略。
+
+参考链接：
+[https://tnc.news/2022/03/09/european-politician-condemns-trudeaus-human-rights-violation-against-convoy/](https://tnc.news/2022/03/09/european-politician-condemns-trudeaus-human-rights-violation-against-convoy/)
+
+素材采编：JIHO
+编辑：青城道姑
+发布：文曦
 
  
 
