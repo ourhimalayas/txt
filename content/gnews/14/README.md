@@ -2,23 +2,22 @@
 ---
 
 
-## 视频|台湾启动民间向乌克兰捐赠物资项目
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2136097/)
+## 俄乌战争后民天下诞生，任何独裁都将消失
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2136251/)
 
-制作：香草山视频部
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-当地时间3月7日，据台湾媒体报道，台湾外交部当天公告表示，从即日起至3月18日，当地民间向乌克兰捐赠物资项目将正式开放通道。
+*发布：陶子*
 
-据悉，台湾民众可以在每天早上10点到下午5点之间将捐赠物品送至外交部西侧门；或者，捐赠者也可选择邮寄的方式将物品送至外交部并注明“捐赠乌克兰物资”。对于大量物资捐赠者，台湾外交部也开通联系方式，用以确保政府可以安排适当的运送方式将物资投放至乌克兰前线。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-报道显示，在3月7日捐赠开放首日，台湾当地已经有许多热心的民众前往捐赠现场，奉献爱心。
 
-发稿：林礼
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
