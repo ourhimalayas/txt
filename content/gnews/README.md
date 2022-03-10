@@ -15,71 +15,71 @@
 
 ---
 
-### [“自古以来”的悖论](/content/gnews/1/README.md)
- ` 银河勇气之星`
+### [有声｜人民币国际结算增加 专家：俄资金临时避险](/content/gnews/1/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
-### [人类是自己的主人](/content/gnews/2/README.md)
- ` 银河勇气之星`
-
-### [拜登签署行政令 要求政府评估发行数字美元的利弊](/content/gnews/3/README.md)
- ` 日本东京方舟农场`
-
-### [巾帼不让须眉 伟大的乌克兰女战士](/content/gnews/4/README.md)
- ` 波士顿五月花农场金融部`
-
-### [中共对台湾和支持台湾的外部势力发出威胁性警告](/content/gnews/5/README.md)
- ` 儒为`
-
-### [乌克兰男童哭着穿越边境！波兰防卫队爆现状：一家平安！](/content/gnews/6/README.md)
- ` 蓝莲花农场`
-
-### [中共国极力宣传美国在乌克兰实验室的阴谋论](/content/gnews/7/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [拉夫罗夫和库莱巴的停火谈判在一个半小时后破裂](/content/gnews/8/README.md)
- ` Shuizhuyu`
-
-### [欧议员谴责特鲁多对车队“侵犯人权”](/content/gnews/9/README.md)
- ` 日本东京方舟农场`
-
-### [战争进入第三周，俄乌外长土耳其会晤](/content/gnews/10/README.md)
- ` Shuizhuyu`
-
-### [2022/03/07 北约拒绝泽连斯基在乌克兰上空设立禁飞区](/content/gnews/11/README.md)
+### [2022/03/08 北约国家将要助战乌克兰](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [回国参军的主教练和在战争中身亡的运动员](/content/gnews/12/README.md)
- ` G-NEWS TAIWAN`
-
-### [秘翻在线：拜登签署行政令加强对数字资产管理，喜币的诞生恰逢其时](/content/gnews/13/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [03/10每日播报｜社媒消息:蓬佩奥 班农先生](/content/gnews/14/README.md)
+### [有声｜乌克兰称 一家儿童医院遭受俄罗斯的袭击](/content/gnews/3/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【秘翻新视野】美议员提法案 调查中共支持俄入侵乌克兰](/content/gnews/15/README.md)
+### [“自古以来”的悖论](/content/gnews/4/README.md)
+ ` 银河勇气之星`
+
+### [2022/03/06泽连斯基：不会原谅俄罗斯对乌克兰的摧毁和杀戮](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [被俄军占领的切尔诺贝利核电站已停止传送安全数据，核电站员工的状况堪忧](/content/gnews/6/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [人类是自己的主人](/content/gnews/7/README.md)
+ ` 银河勇气之星`
+
+### [拜登签署行政令 要求政府评估发行数字美元的利弊](/content/gnews/8/README.md)
+ ` 日本东京方舟农场`
+
+### [巾帼不让须眉 伟大的乌克兰女战士](/content/gnews/9/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [中共对台湾和支持台湾的外部势力发出威胁性警告](/content/gnews/10/README.md)
+ ` 儒为`
+
+### [乌克兰男童哭着穿越边境！波兰防卫队爆现状：一家平安！](/content/gnews/11/README.md)
+ ` 蓝莲花农场`
+
+### [中共国极力宣传美国在乌克兰实验室的阴谋论](/content/gnews/12/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [拉夫罗夫和库莱巴的停火谈判在一个半小时后破裂](/content/gnews/13/README.md)
+ ` Shuizhuyu`
+
+### [欧议员谴责特鲁多对车队“侵犯人权”](/content/gnews/14/README.md)
+ ` 日本东京方舟农场`
+
+### [战争进入第三周，俄乌外长土耳其会晤](/content/gnews/15/README.md)
+ ` Shuizhuyu`
+
+### [2022/03/07 北约拒绝泽连斯基在乌克兰上空设立禁飞区](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：拜登签署行政令加强对数字资产管理，喜币的诞生恰逢其时](/content/gnews/17/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [03/10每日播报｜社媒消息:蓬佩奥 班农先生](/content/gnews/18/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [由于未接种新冠疫苗，德约科维奇无法入境美国参赛](/content/gnews/16/README.md)
+### [由于未接种新冠疫苗，德约科维奇无法入境美国参赛](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共国红十字会声称应乌克兰要求提供500万冥币的物资援助](/content/gnews/17/README.md)
+### [秘翻在线：中共国红十字会声称应乌克兰要求提供500万冥币的物资援助](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [政府雇数百家媒体宣传COVID疫苗并做全面正面报道](/content/gnews/18/README.md)
+### [政府雇数百家媒体宣传COVID疫苗并做全面正面报道](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻新闻｜全球300家大企业抵制 俄罗斯经济已死](/content/gnews/19/README.md)
+### [秘翻新闻｜全球300家大企业抵制 俄罗斯经济已死](/content/gnews/22/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [【 蓝枫法律 】 数字货币概述](/content/gnews/20/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [【 蓝枫法律 】 加密货币的著名案例](/content/gnews/21/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [【 蓝枫法律 】 全球数字货币法规的七大底层逻辑概述](/content/gnews/22/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
 
 ### [美国务院有关中俄散布乌克兰生化武器试验项目谎言的声明](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

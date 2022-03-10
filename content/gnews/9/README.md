@@ -2,39 +2,36 @@
 ---
 
 
-## 欧议员谴责特鲁多对车队“侵犯人权”
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2136613/)
+## 巾帼不让须眉 伟大的乌克兰女战士
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2136649/)
 
-**撰稿: 日本东京方舟农场** ** JIHO**
+作者：波士顿五月花背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-10-at-6.30.38-PM-1.png)图片 来源：互联网
+网络一段震撼人心的视频：”我们是乌克兰女人，我们祝福我们人们保护我们的土地，我们已经把我们的孩子安置在安全的地方，我们国家的血脉得到了可靠的保护，我们加入到男人和乌克兰部队中共同作战，我们将消灭在乌克兰每英寸土地上的敌人，我们将像射击疯狗一样射击你们（俄罗斯入侵者），荣耀荣归乌克兰，死亡属于敌人。”【1】
 
-一位芬兰的欧洲议会议员Laura Huhtasaari呼吁欧盟（EU）[谴责](https://www.europarl.europa.eu/RegData/questions/ecrites/2022/000702/P9_QE%282022%29000702_EN.pdf)加拿大总理贾斯汀·特鲁多（Justin Trudeau）对渥太华和平卡车车队抗议者的暴力镇压。
+据美国有线电视新闻网（CNN）对留在基辅乌克兰议会议员吉拉·鲁迪克(Kira Rudik) 采访得知目前与俄罗斯作战的士兵中有 15% 是女性，在抵抗组织中战斗的女性甚至更多。
 
-Laura Huhtasaari写信给欧盟委员会副主席和欧盟外交和安全政策高级代表，要求欧盟澄清它对特鲁多的行为的立场。Laura写道:”欧盟在多个场合谴责了各国的侵犯人权行为，委员会或欧盟外交与安全政策高级代表是否打算谴责加拿大在加拿大车队示威中对和平抗议采取的措施，欧盟对加拿大政府反对和平抗议的行动持何立场？ ”
+鲁迪克议员称，女性可以选择支持乌克兰军队并且不会被告知要带着孩子离开，这是一种特权，现在是根据自己的选择而战。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-2-3.jpeg)图片来自网络
+鲁迪克说：“我认为现在在军队中战斗的女性人数实际上更高，并且在尽可能多的地方与俄罗斯人作战。”【2】
 
-Laura 的书面答复问题还谈到了这样一个事实，即 2020 年特鲁多曾[公开支持](https://thewire.in/diplomacy/trudeau-canada-farmer-protest-internal-affair)印度德里农民的类似示威活动，这让他激怒了印度外交部。
+根据乌克兰多媒体广播平台（UKRINFORM）报道，2020年有58,000 名女性在乌克兰武装部队服役。
 
-特鲁多当时表示：“加拿大将永远支持世界各地和平抗议的权利，我们很高兴看到缓和对话的进展。”
+维基百科显示乌克兰武装部队2018年现役人数255,000人。按2020年女性服役人数，占比超过22%。
 
-特鲁多的双重标准不仅在欧洲议会引起了胡塔萨里的注意，而且还促使印度最大的两个政治机构之一的印度人民党（Bharatiya Janata Party）的外交事务负责人在推特上[指责特鲁多](https://tnc.news/2022/02/15/indian-politician-calls-out-trudeaus-hypocrisy-on-civil-rights/)援引《紧急情况法》 .
+据《乌克兰世界》报道， 2014 年俄罗斯入侵时，许多女性“作为志愿者”为乌克兰而战，而“男性则被调动到前线”。女性争取平等的斗争促使了 2018 年的一项新法律，该法律“允许女性获得所有军衔和职位，在兵役中享有平等的责任和权利”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-10-at-6.38.10-PM.png)图片来源：互联网
+2021 年 12 月 28 日，第 128 山地突击独立旅从乌克兰西部乌日霍罗德联合部队行动 (JFO) 地区返回后，手持步枪的士兵在欢迎仪式上游行。（Serhii Hudak/Ukrinform/Future Publishing via Getty Images）。
 
-“这是（贾斯汀·特鲁多）在印度发生街头抗议时，‘加拿大将永远在那里捍卫和平抗议者的权利’，”维杰·乔泰瓦勒博士在推特上写道。
+从中共国历来宣传“女性半边天”，现实中却诞生无数的“锁链女”，“铁笼女”，让中国百姓陷入无尽人权灾难，而乌克兰女性志愿者扛枪上前线，女性争取的平等成功的让女性在军队拥有与男性平等的权力和权力，乌克兰女性是真正的半边天。
 
-在使用该法案行使紧急权力后，特鲁多政府下令在加拿大首都进行军事化警察行动，以清除市中心的示威者。市、省和联邦警察联合逮捕数百人，一些旁观者甚至被防暴马践踏。
+【1】[伟大的乌克兰女战士](https://gettr.com/post/pz7mg95383)
 
-《紧急情况法》还赋予联邦政府冻结卡车司机资产的权力，包括加密货币钱包。
+【2】[乌克兰妇女正在向世界展示她们在与俄罗斯的斗争中的实力](https://taskandpurpose.com/news/ukraine-women-military/)
 
-“加拿大已经决定，除其他外，冻结参加示威的人的银行账户，并威胁要逮捕和平示威者” Laura写道。
+* * *
 
-其他欧洲政客，包括罗马尼亚 MEP [Cristian Terhes](https://tnc.news/2022/02/22/romanian-parliamentarian-calls-trudeau-tyrant-and-dictator-over-ottawa-crackdown/)和英国议员[Marcus](https://tnc.news/2022/02/16/trudeau-condemned-around-the-world-for-moving-to-crush-protests/) Fysh也抨击了特鲁多的专制策略。
-
-参考链接：
-[https://tnc.news/2022/03/09/european-politician-condemns-trudeaus-human-rights-violation-against-convoy/](https://tnc.news/2022/03/09/european-politician-condemns-trudeaus-human-rights-violation-against-convoy/)
-
-素材采编：JIHO
-编辑：青城道姑
-发布：文曦
+*编辑&发布：Vicky*
 
  
 

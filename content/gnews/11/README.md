@@ -2,35 +2,26 @@
 ---
 
 
-## 2022/03/07 北约拒绝泽连斯基在乌克兰上空设立禁飞区
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2136591/)
+## 乌克兰男童哭着穿越边境！波兰防卫队爆现状：一家平安！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2136633/)
 
-[![](https://express.adobe.com/page/j0chTM07mw44K/images/b4339a6e-a4dc-4364-84e7-8c9c752073f1.png?asset_id=ea17f0cc-2295-4c29-a5ba-33b7df0d5a0b&amp;img_etag=%221cc616bbe27ee60ea0d78456e03bdc87%22&amp;size=2560)](https://express.adobe.com/page/j0chTM07mw44K/images/b4339a6e-a4dc-4364-84e7-8c9c752073f1.png?asset_id=ea17f0cc-2295-4c29-a5ba-33b7df0d5a0b&amp;img_etag=%221cc616bbe27ee60ea0d78456e03bdc87%22&amp;size=1024)
-**简评：**
+俄乌冲突持续上演，根据联合国统计，目前已有170万民难民逃离乌克兰。其中有一名年纪4岁多的乌克兰男童，独自拎着娃娃走在通往波兰的路上。
 
-俄乌战争在继续，大约150万乌克兰人逃往邻国，形成了二战以来欧洲最大的难民危机。北约拒绝了乌克兰总统泽连斯基要求在乌克兰上空设立禁飞区。美国国务卿布林肯表示，美国将与波兰合作向乌克兰提供战斗机。普京继续推进其侵略行为，战争也许会持续一段时间，但是最终乌克兰一定会胜利。
+在画面中，只见男童只身一人，身旁并没有其他亲属，让不少人十分惊讶且心痛。此男童牵动着太多人的心，郭文贵也希望找到这个孩子给养起来，希望战友们能帮忙找到。
+视频来源：新西兰农场
+但事后根据波兰防卫队指出，这名乌克兰男童只有4岁，并非独自穿越边境，他的家人其实就走在他的前方，希望大家不用太过担心。
 
-GETTR视频链接：[https://gettr.com/post/pz145g6100](https://gettr.com/post/pz145g6100)
+牵挂小男童的朋友们！心里的这块石头可以落了地，男童平安，一家平安，大家可以安心了！
 
-**视频字幕：**
+新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022310W0295)
 
-**女主持人：**周日，随着俄罗斯再次发动炮击，从被围困的乌克兰港口城市马里波勒撤离平民的第二次努力失败。
+撰稿/发布：一叶知秋
 
-**男主持人：**与此同时，乌克兰人的大规模外流正在造成官方所说的二战以来欧洲最大的难民危机。目前北约正在拒绝乌克兰总统关于乌克兰上空建立禁飞区的请求，但是国务卿安东尼·布林肯表示，美国正在与波兰合作研究向乌克兰提供战斗机的可能性。
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
-**国务卿布林肯：**弗拉基米·普京继续推进其侵略行为，所以我说，我担心战争可能会持续一段时间，但是会结束的，最终乌克兰一定会胜利。
-
-**男主持人：**自俄罗斯入侵以来，总共150万乌克兰人逃往邻国。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*字幕：雨中漫步|听写：雨中漫步|翻译：Roberts| 校对：Blue|简评/文字整理/编辑：胖丁| Page：小六月*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
-
-[![](https://express.adobe.com/page/j0chTM07mw44K/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/j0chTM07mw44K/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
