@@ -2,79 +2,61 @@
 ---
 
 
-## 乌克兰总统泽连斯基：“我们将战斗到底”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2135784/)
+## 樱花FM|樱花深度报道:为什么美国需要迅速采取行动防止俄罗斯将食品供应链武器化（五）
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2135957/)
 
-Volodymy Zelensky (Ukrainian President)
-弗拉基米尔·泽连斯基 (乌克兰总统)
+音频：东京樱花团/战友520
 
-We will not give up and we will not lose
-我们不会放弃，我们不会输
+![](https://assets.gnews.org/wp-content/uploads/2022/03/为什么美国需要迅速采取行动防止俄罗斯将食品供应链武器化（五）.png)
 
-We will fight until the end … at sea, in the air
-我们将战斗到最后……在海上，在空中
+【编者按】正在俄罗斯进入乌克兰，侵犯乌克兰领土完整和国家主权之际，美国《政治杂志》（Politico）2月27日发表专题文章，警告国际社会：俄罗斯和中国正在联手加强自己的关系，削弱美国及其全球盟国力量。“普京可以，在中国的帮助下，利用乌克兰战争颠覆全球经济。”“这种伙伴关系现在是俄罗斯无耻入侵乌克兰的推动力。在这场冲突的混乱以及对乌克兰生命和独立的威胁中，一个关键的合作阴谋被严重低估了：俄罗斯如何依靠中国的支持来武器化全球食品供应链。如果没有西方的迅速反应，莫斯科和北京很快就有能力颠覆世界经济并显着改变全球的权力动态。”
 
-We will continue fighting for our land
-我们将继续为我们的国土而战
+美国应该如何应对
 
-Whatever the cost
-不管付出什么代价
+保卫北约联盟是而且应该是美国及其盟国的首要任务。但如果他们现在不准备捍卫这些全球供应链，他们以后可能会失去这样做的能力。虽然声称尊重俄罗斯的行动和乌克兰的主权，中国似乎确实处于一个艰难的境地，但谈话很廉价，局势不稳定，而且中国成为俄罗斯担保人的经济和战略动机仍然很强。
 
-We will fight in the forests, in the fields, on the shores, in the streets
-我们将在森林、田野、海岸、街道上战斗
+有效的应对措施至少需要三种主要方法：
 
-I would like to add … that we will fight on the banks of different rivers like Dnieper
-我想补充一点……我们将在第聂伯河等不同河流的岸边作战
+1. 离间俄罗斯和中国的关系，让中国对与俄罗斯的关系感到不安；
 
-And we are looking for your help, for the help of the civilized countries
-我们正在寻求你的帮助，寻求文明国家的帮助
+2. 集结粮食供应，为最依赖乌克兰出口的国家提供恢复力，并在此过程中明确保障乌克兰的经济主权和生存权力；
 
-We are thankful for this help
-我们感谢您的帮助
+3. 观察俄罗斯的海上行动——海军和商业——并准备好应对这些行动。
 
-I’m very grateful to you Boris (Johnson)
-我非常感谢你鲍里斯（约翰逊）
+这三种方法必须同时执行。
 
-Please increase the pressure of sanctions against this country (Russia)
-请加大对这个国家（俄罗斯）的制裁压力
+1. 推动俄罗斯和中国之间的楔子
 
-And please recognize this country as a terrorist state
-请承认这个国家是一个恐怖主义国家
+如果美国和其他主要粮食生产国停止向中国运送粮食，以同时抗议北京对莫斯科的支持，并帮助弥补流向脆弱或脆弱国家的全球供应减少，这将显著改变动态。中国将立即感受到其选择与俄罗斯结盟的影响。受到国际舆论的谴责而丢脸以及关键供应的影响可能会促使中国终止俄罗斯所依赖的保证。
 
-And please make sure that our Ukrainian skies are safe
-请确保我们的乌克兰领空是安全的
+2. 支持乌克兰及其贸易伙伴
 
-Please make sure that you do what needs to be done
-请确保你做了需要做的事情
+与此同时，美国应通过调集粮食供应（主要来自本应运往中国的粮食）以维持对乌克兰伙伴的贸易订单，明确保证乌克兰的经济主权和生存权力。如果乌克兰的主要伙伴——如印度尼西亚、菲律宾、越南、马来西亚、泰国、韩国、埃及和摩洛哥——都支持这一努力，即使不直接提供军事援助，他们也可以有意义地支持乌克兰独立和领土完整。
 
-And wha is stipulated by the greatness of your country
-以及伟大的贵国所赋予的事情
+尽管俄罗斯努力进行敌意收购，但这样的临时措施将使乌克兰在市场上保持其一席之地，同时也保持关键的 GDP 流量。乌克兰政府可以与美国合作，谈判以粮食为基础的收入的支付方式——例如，可能以军事装备的形式。
 
-Best of all to Ukraine and to the United Kingdom
-最美好的祝愿给乌克兰和英国
+如果有足够的意愿，这种国家可以更进一步地团结在一起，努力将俄罗斯赶出关键市场，特别是在主权问题迫在眉睫的世界部分地区。虽然如果中国转向俄罗斯来弥补其他伙伴的供应损失，这可能不会在经济上损害俄罗斯，但它会削弱俄罗斯的一些霸权影响运动。
 
-* * *
+3. 关注海上行动
 
-Date:03/08/2022
-原视频标题:Ukrainian President Zelensky: “we will fight to the end”
-乌克兰总统泽连斯基：“我们将战斗到底”
-原视频日期：2022/03/08
-原视频链接**[https://twitter.com/cnn/status/1501260322233012230?s=24](https://twitter.com/cnn/status/1501260322233012230?s=24)**
-任务编号：KE445（3958）
-视频时间段 : 0:00-1:38
-英听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
+最后，在海上行动方面，俄罗斯似乎正准备保护世界不同地区的补给线。据报道，过去几个月俄罗斯海军在几个地方出现了异常的海军动向，包括欧洲的挪威和爱尔兰附近、非洲的几内亚湾，就在本周，16 艘俄罗斯军舰在叙利亚附近形成了奇怪的编队。此外，鉴于俄罗斯商业舰队的海上混合侵略历史悠久，还必须注意其行动和行为的异常（按旗帜、管理、所有权和实益所有权）。
 
-* * *
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+在过去的两年里，这场大流行暴露了全球供应链的脆弱程度。它们不仅是抽象概念，而且是物理现实，因此它们可以以多种方式被破坏。去年，Ever Given号货船仅在苏伊士运河停留 6 天，就给航运业造成每小时 4 亿美元的损失，并导致关键货物短缺。无法对船员更换进行分类使托运人争先恐后地维护路线和时间表，从而影响了各种货物的供应链。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+大流行仍然是一个挑战——但对全球食品供应链的邪恶控制可能会真正破坏世界经济及其权力动态。要阻止中国支持的俄罗斯接管全球粮食安全的可能性，时间至关重要。
 
+（全文完）
+
+文字版原文：
+
+
+| [樱花深度报道┃为什么美国需要迅速采取行动防止俄罗斯将食品供应链武器化（五）](https://gnews.org/zh-hans/2102827/) |   |
+| --- | --- |
+
+
+*编辑：东京樱花团/asket   
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,103 +2,54 @@
 ---
 
 
-## 《避风港HAVEN》直播内容精选（第十八集）
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/2134607/)
+## 蓬佩奥:中共是我们这个时代的核心威胁
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2135121/)
 
-视频剪辑：文舒
-病案**1)**问：我的兩歲幼兒，因為需要發展早療，所以每週五天都需要外出一對一接觸打過疫苗的療程老師，有些老師都被逼打第三劑了，孩子不會說話表達，但這週時常會摸心，我擔心他有**shedding **心臟也受傷害，請問我該如何檢測和治療他？幼兒大約**12**公斤**.**
-
-**Eglise医生: 目前对幼儿是没有特殊的预防以及治疗方案的。特别是两岁以下的婴幼儿，要避免刺突蛋白脱落造成的损伤的唯一办法就是远离“祸源” — 疫苗接种者。或者家长可以自学成为早疗师？**
-
-病案**2)**问：墙内到医院开检查单，医生会不会问为什么检查这几项，你哪来不舒服啊，怎么回答比较好？
-
-**Eglise医生: 你只要举几个例子，几个你想要的检测指标相关的可能的临床症状，比如：我们做检查是为了看是否有血栓或者免疫过敏因子，这些指标是不是高，除了血常规的一些基本指标例如红细胞,白细胞和血小板基数，我们想要知道C反应蛋白，需要的症状：胸前区不适疼痛，胸闷，或者睡眠中突然心率加快导致突然醒来，再难以入睡，如果是血栓症状，通常是从下肢开始静脉血栓，可以抱怨自己腿痛，痛到不能走路，还有膝关节疼痛，这个症状很重要，因为如果免疫系统出现问题，往往反映在大关节上，免疫物质容易沉降在那个位置，所以关节会比较早出现症状。还有比方说夜间盗汗，失眠。这些主述应该足以让医师开出你想要的检查单。**
-
-病案**3) **问：
-
-**1. **目前有没有关于婴儿的案例？
-
-**2. **母乳中是否会携带羟氯喹，帮助抵抗病毒？
-
-**3.**如果婴儿已经出现症状，是否需要任何治疗？
-
-**Eglise医生: **
-
-1. **答：目前有婴儿感染案例，我知道的一位小患者只有8个月大。**
-2. **答：如果母亲在服用羟氯喹预防，是可以通过母乳传递给婴儿的。**
-3. **答：应该不需要，母乳已经将羟氯喹传给了婴儿。婴儿应该已经得到了治疗。但我有点担心，假如婴儿出现高热，那就建议咨询儿科医生.通常三个月以内的婴儿，不建议用任何退烧药，而应该采用物理退烧治疗，而三个月以上的婴儿可以考虑用？泰诺可能都不行。泰诺要六个月以上的幼儿才可以使用。建议用药前一定要看说明书确认。**
+美前国务卿迈克·蓬佩奥： 在经济实力和下一代技术的推动下，[#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click) 独裁世界的黑暗未来变得越来越现实。这就是为什么 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 造成的危险是我们这个时代的核心威胁。
 
 
-病案**4)**问：我和我儿子上个月都感染了病毒，我们俩都没打疫苗，当时症状都很轻，我们也及时服用了一个星期的药，用的是**B**药方，转阴后到现在刚好一个月了，除了偶尔还有点疲劳，胃口比之前稍微差一点，没啥后遗症，现在我们想用这款青蒿素保健品来排毒，请问我们该如何使用它，饭前，饭后，一次服用多少，要服用多久**?**我们都是成年人。
 
-**Eglise**医生:可以参考我的改进版用药方案，治疗后遗症可以用青蒿素保健品，我不主张空腹服用任何药物，所以应该饭后服。看青蒿素保健品的剂量，假如100毫克或是200毫克的小剂量可以服用3-4周，有人连续服用3个月也未出现问题。
+> The dark future of a world under a communist dictatorship, empowered by economic strength and next-generation technologies, has become more and more realistic. That’s why the danger posed by the CCP is the central threat of our time.
+> — Mike Pompeo (@mikepompeo) [March 10, 2022](https://twitter.com/mikepompeo/status/1501736871331708930?ref_src=twsrc%5Etfw)
 
-你可以考虑服用几周就停1-2周。只要未出现肝脏受影响的症状，例如：疲倦，厌食，皮肤颜色改变，巩膜颜色改变这些明显的肝功出问题的症状就没问题。保险起见，可以在服用一段时间后去做一个肝功检查。
 
-威廉王服用**4**50毫克的青蒿素保健品经验分享：服用一周停用一周。
 
-病案**5)**问：我姐姐上个月感染后第三天开始按照治疗方案用药，症状消失后改为预防方案用药。最近比较严重的后遗症是晚上失眠，做梦，感觉大脑里有个机器一直在高速运转，停不下来。请问医生她这种情况要加量或者加什么药吗**? **还是继续现在的方案再观察一阵子**?**
+参议员汤姆·科顿： 帮助乌克兰抵御残酷无情的独裁者符合我们的最大利益。 美国人认识到这一点——无论拜登政府承认与否。
 
-**Eglise医生:有这种失眠多梦（噩梦）的新冠后遗症案例很多，很普遍，这是Omicron典型的后遗症，是新冠病毒对交感神经产生了影响。建议从加强现有的槲皮素和其它维生素服用剂量开始，因为这些有免疫调节的营养素能帮助控制炎症细胞因子的释放，尤其是槲皮素，我建议增量的1500-2000毫克/天，如果胃肠没有不适，剂量甚至可以更高到3000-4000毫克。也建议加服非处方的抗组胺药物，就是抗过敏药。通常用药两周左右，另外加褪黑素。建议每晚睡前服用10毫克（最大剂量）四周。然后再依据症状改变做调整。**
 
-病案**6)**问：我墙内亲人患有精神分裂症，在服用利培酮片，打了三针，请问用青蒿琥脂，伊维菌素解疫苗毒，有药物冲突吗，还是分开服用？** **
 
-**Eglise医生: 利培酮片与治疗心血管病和帕金森病药物有拮抗，如果患者没有同时服用治疗这些疾病的药物，那就可以服用青蒿素和伊维菌素. 但假如有，那一定要与他的临床医生商量，另外青蒿素以及伊维菌素都经过肝脏代谢，所以在有肝功能检测的情况下服用，至于青蒿素琥脂只能按产品说明书，单独间歇性的服用，而伊维菌素加在间歇期服用。不建议青蒿素琥脂和伊维菌素同一天服用，我们前几期讲过青蒿素琥脂排毒，有疗程的，通常是5天或7天，每天200毫克的剂量，然后再用伊维菌素预防方案（每周两次，每次12毫克）。我强烈建议一定要做肝功能检测来指导下一步用药。**
+> Helping Ukraine defend itself against a ruthless dictator is in our best interest.
+> 
+> Americans recognize that—whether the Biden administration does or not.
+> — Tom Cotton (@SenTomCotton) [March 9, 2022](https://twitter.com/SenTomCotton/status/1501704136835878913?ref_src=twsrc%5Etfw)
 
-**现场问答：**
 
-1.四岁孩子可以服用粒装的黑孜然籽油预防吗？
 
-**答：四岁的孩子知道可以吞咽药丸的，可以，但要训练一下，防止噎呛。**
+参议员马可·卢比奥： 一周来我每天都提到这个是有原因的 当俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 设置了虚假的生物或化学（武器）标志时，他们正在做着过去所做的一切 【转卫报报道：英美担心俄罗斯可能会为使用化学武器做准备】
 
-2.请问我现在就是S蛋白毒源了，老婆和六岁的小孩子，可以用预防方案长期排毒吗？
 
-**答：是的，而且我建议太太做预防时要用到足量（一周两次伊维菌素），同时加强黑孜然籽油和槲皮素及NAC的服用，孩子也是按照儿童预防方案。特别是维生素和营养素类的要用足量。**
 
-3. 我已经服用半个月的阿斯匹林（325毫克），手上的血丝还是很明显，手脚刺痛感又回来了，最近每天痔疮出血不少，是不是阿斯匹林的溶栓效果还没有到达手脚的毛细血管呢？
+> I have mentioned this every day for a week for a reason[#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) is doing everything it has done in the past when they have set up a biological or chemical false flag [https://t.co/Ah2wQB28U5](https://t.co/Ah2wQB28U5)
+> — Marco Rubio (@marcorubio) [March 9, 2022](https://twitter.com/marcorubio/status/1501667575708753924?ref_src=twsrc%5Etfw)
 
-**答：服用阿斯匹林能看到体表，特别是手脚上的静脉发生变化的可能性比较小，但痔疮出血到有可能与服用阿斯匹林相关。通常普通人服用这个治疗剂量的阿斯匹林2-3周不会反应这么大。应该是综合因素引起的。但痔疮出血需要引起注意。**
 
-4. 一直服用预防药物，两个月前感染Omicron症状不是很严重，咳嗽两周了，可以使用青蒿琥脂的治疗方案吗？没打疫苗。
 
-**答：完全可以，可以参考前几期我们说过的青蒿琥脂治疗方案用药。**
+众议员迈克·加西亚： 别搞错了—— [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 是我们最大的威胁。 最近，美国司法部@TheJusticeDept 终止了“中国倡议”，这是一项旨在保护美国实验室和企业免受经济间谍和财产盗窃的关键计划。 【转lawfareblog 报道：美国司法部终止有争议的“中国倡议”项目】 这一决定是拜登政府“撤资警察”和努力重新想象“安全”的样子的延续。 我们已经看到了这一决定的影响，因为6个美国国家机构受到了 [#CCP](https://gettr.com/hashtag/%23CCP) [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 政府支持的黑客组织的攻击。 【转cnn : 网络安全公司称 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 黑客入侵了六家美国国家机构】 正如我们在“撤资警察”运动中看到的那样，犯罪率正在上升。 当像 [#习近平](https://gettr.com/hashtag/%23%E4%B9%A0%E8%BF%91%E5%B9%B3) 主席这样的外国领导人在试图破坏美国，而美国政府却同时心甘情愿地撤走“警察”时——就会产生现实的后果。
 
-5. 先生打了疫苗他没有症状，但每天都检测，检测出阳性，该怎么办？
 
-**答：首先你用检测来判断是否感染了病毒，是错误的，因为现在病毒核酸核糖检测PCR已经被CDC淘汰了，甚至抗原抗体检测很在理，但试剂测试盒的有效性和质量是有疑问的，因为它的准确率不会高于50%的，所以你每次检测，假如阳性可能是阴性; 但如果是阳性，也可能有50%的可能是假阴性，以症状为主。**
 
-威廉王：我们也建议只要你感觉不舒服就按治疗方案用药治疗一周，再按预防方案服药，根本不必检测。
+> Make no mistake – China is our greatest threat. Recently, [@TheJusticeDept](https://twitter.com/TheJusticeDept?ref_src=twsrc%5Etfw) terminated the "China Initiative" which was a critical program that sought to protect U.S. laboratories & businesses from economic espionage & property theft.[https://t.co/Vh9bEENknu](https://t.co/Vh9bEENknu)
+> — Rep. Mike Garcia (@RepMikeGarcia) [March 9, 2022](https://twitter.com/RepMikeGarcia/status/1501655143137386500?ref_src=twsrc%5Etfw)
 
-**Eglise：这种测试（每天测）问题太大了，只能造成情绪紧张，带来焦虑。**
 
-6. 请问打了两针疫苗的中年人，一周只吃一次500毫克的青蒿素能解毒吗？
 
-**答：每周500毫克？那远远不够，我还以为是每天500毫克。如果每天500毫克保健品，服用一周，停1-2周，间歇性服药，可能还有效。还应该加服伊维菌素作为解毒药物，而不仅仅依靠青蒿素保健品。我们多次提及，要用预防方案加青蒿素，给予时日会有效。**
+比尔·戈茨： 高级军事和国防官员告诉国会，俄罗斯入侵乌克兰引发了对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 袭击 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的新担忧。 美国正在中国附近加强力量并敦促台北准备抵抗力量 【附华盛顿时报上 比尔·戈茨文章：俄罗斯入侵增加了中共国攻击台湾的新的危险】
 
-7. 问4岁小孩可以用青蒿素加红枣煮茶吗？请看视频：
-视频剪辑：文舒
-8. 问：家里有S蛋白毒源（喵族），孩子目前没症状，可以不吃预防药物吗？
 
-**答：那就每天祷告上帝吧。**
 
-**其实，并不是你服用了那些营养素，S蛋白就不会攻击你.问题是，假如你平常把你的机体免疫力调整到一个很好的水平，即便是遇到病毒或有毒成分引起机体发生变化，例如出现症状，发烧咳嗦等毒性症状，因为营养素保护了免疫细胞，使得免疫细胞迅速作出反应，而减短病程，减轻症状，更快恢复。**
+> Russia’s invasion of Ukraine prompts new fears of a Chinese attack on Taiwan, senior military and defense officials told Congress. US is bolstering forces near China and urging Taipei to prepare resistance forces [https://t.co/YWW4dH9Ofw](https://t.co/YWW4dH9Ofw)
+> — Bill Gertz (@BillGertz) [March 9, 2022](https://twitter.com/BillGertz/status/1501671202145779715?ref_src=twsrc%5Etfw)
 
-Eglise讲解槲皮素视频：
-视频剪辑：文舒
-文案：Eglise/万物有灵/Gloria
-
-视频：文舒
-
-听写：Jenny
-
-文稿整理/编辑发布：Jenny
-
-[《避风港HAVEN》盖特直播链接（第十八集）](https://gettr.com/post/py0i5haed5)
-
-[Eglise医生关于Omicron病毒预防及治疗建议方案 – 更新版](https://gnews.org/zh-hans/1853397/)
-
-[Eglise医生关于新冠預防及治療建議方案Omicron更新版（均飯後服用）](https://gnews.org/zh-hant/1853467/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/预防方案.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/治疗方案.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
 
 
  

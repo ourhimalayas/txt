@@ -2,12 +2,30 @@
 ---
 
 
-## 纳瓦罗：中共是当前世界危机的根源，我们必须消灭它
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134291/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月9日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2135040/)
 
-03/07/2022 纳瓦罗：中共正与俄罗斯联合，利用混乱来实现其去美元化和统治世界的目标。 班农：我们将通过咬掉蛇头来重构世界，而蛇头就是中国共产党。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-6.png)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/pz5cf58dc4](https://gettr.com/post/pz5cf58dc4)
+访谈：[https://gettr.com/post/pz5f4zcd59](https://gettr.com/post/pz5f4zcd59)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-9.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

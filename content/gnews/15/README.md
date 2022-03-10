@@ -2,29 +2,19 @@
 ---
 
 
-## 樱花FM|切尔诺贝利重现？俄军攻击欧洲最大核电站发生火灾
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2135816/)
+## 中共两会｜国防部：对“台独”行径绝不姑息 民进党是动荡的根源
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2136015/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/切尔诺贝利重现？俄军攻击欧洲最大核电站发生火灾.png)
-3月4日凌晨，位于乌克兰东南部的欧洲最大的扎波罗热核电站受到俄罗斯的军事袭击，发生了火灾。
+**撰文/ 港台前线｜发布日期/ 10/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/國防部：對台獨行徑絕不姑息-民進黨是動盪的根源.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-乌克兰和俄罗斯军队在该工厂附近发生了激烈的战斗。乌克兰核当局称，扎波罗热核电站的一个发电机组被俄罗斯的军事攻击击中，该核电站的一部分正在起火。 消防队受到攻击，无法开始灭火。
+十三届全国人大五次会议解放军和武警部队代表团发言人吴谦，在回应政府工作报告时批评，台湾民进党勾结外部势力，进行谋“独”挑衅，是造成当前台海局势紧张且动荡的根源。
 
-如果它发生爆炸，将造成切尔诺贝利核电站十倍的损失，世界的安全受到威胁。
+他表示，中共坚决反对“台独”，并反对外部势力干涉，，坚持“和平统一、一国两制”的方针，美日试图通过打“台湾牌”，实现“以台制华”的政治图谋，注定难以成真；解放军对台独分裂行径和外部势力干涉，绝不姑息、绝不容忍、露头就打。
 
-世界已经进入了一个相当可怕的局面， 各国应该一起努力，抗议俄罗斯。
+来源｜[文汇报](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;cad=rja&amp;uact=8&amp;ved=2ahUKEwjdkfjN9rr2AhVnJkQIHVX5ACAQxfQBKAB6BAgEEAI&amp;url=https%3A%2F%2Fwww.wenweipo.com%2Fa%2F202203%2F10%2FAP62296b7be4b036dce99cde99.html&amp;usg=AOvVaw1oEB80jBu0Sw9wAoA4NrV3)
 
-文字版原文：
-
-
-| [切尔诺贝利重现？俄军攻击欧洲最大核电站发生火灾](https://gnews.org/zh-hans/2102796/) |   |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket   
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

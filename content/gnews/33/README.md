@@ -2,55 +2,81 @@
 ---
 
 
-## 蓬佩奥:中共是我们这个时代的核心威胁
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2135121/)
+## 中共国仍表示与俄罗斯的关系“坚如磐石”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2135266/)
 
-美前国务卿迈克·蓬佩奥： 在经济实力和下一代技术的推动下，[#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click) 独裁世界的黑暗未来变得越来越现实。这就是为什么 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 造成的危险是我们这个时代的核心威胁。
+据《大纪元》记者：Dorothy Li，2022年3月7日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-936-e1646886098250.png)2022年3月7日，乌克兰第二大城市哈尔科夫遭到炮击后，一名乌克兰军人正在观察破坏情况。
+图片来源：SERGEY BOBOK/AFP 通过 Getty Images
+在俄罗斯入侵乌克兰的第12天，中共政权将其与莫斯科的关系描述为“坚如磐石”，并且“不会受到第三方的影响”。
+
+该政权发表声明之际，国际社会越来越呼吁北京谴责莫斯科的侵略，该政权一直拒绝采取这一立场。
+
+中共国外交部长王毅3月7日称，俄罗斯是北京“最重要的战略伙伴”，两国关系是“世界上最重要的双边关系之一”。
+
+“无论国际形势多么险恶，中俄都将牢牢把握战略重点，推动新时代全面战略伙伴关系与协作发展。”王毅在北京的橡皮图章立法机关年会期间的新闻发布会上对记者说。
+
+这位高级外交官发表上述言论的前一天，美国和澳大利亚呼吁北京加入针对俄罗斯冲突的全球行动。
+
+在中共国领导人习近平和俄罗斯总统弗拉基米尔·普京在北京冬奥会开幕当天宣布建立“没有限制的伙伴关系”后不到三周，俄罗斯就发动了入侵。
+
+两国领导人发表了一份冗长的联合文件，其中俄罗斯支持北京对自治台湾的领土主张，中共国政权支持俄罗斯反对北约进一步扩大，这是入侵的一个关键理由。
+
+自入侵以来，中共国政权一再拒绝公开支持任何一方，而是走上了一条尴尬的外交钢丝，观察人士指出，其中包括不一致的信息。
+
+中共国政权拒绝将莫斯科的行动定性为入侵，并指责华盛顿挑起冲突。它还要求西方国家尊重俄罗斯的“正当安全关切”，同时坚持所有国家的主权都应得到尊重。与此同时，它呼吁通过谈判解决危机。
+
+中共国在联合国的两次投票中投了弃权票，其中包括联合国安理会要求莫斯科停止对乌克兰的袭击并立即撤军的提案。
+
+此外，北京拒绝加入美国、欧洲和其他对俄罗斯实施制裁的国家。相反，该政权表示将继续与莫斯科进行正常贸易，并取消了对俄罗斯小麦进口的限制。
+
+此类行动使许多人得出结论，北京实际上采取了亲俄立场，但不愿公开这样做，以免激起愤怒或引发国际社会的制裁。
+
+当被问及北京为何拒绝谴责俄罗斯的侵略时，王重申北京根据“是非曲直”来判断“乌克兰的局势”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-937-e1646886063902.png)2022年3月7日，一位父亲在敖德萨中央火车站的疏散列车前向家人告别时哭泣。
+图片来源：Bulent Kilic/法新社通过 Getty Images
+联合国人权办公室3月5日表示，自俄罗斯入侵开始以来，至少有364名平民死亡，同时指出这一数字可能被大大低估。超过170万人逃离了乌克兰的战争。
+
+美国国务卿布林肯在3月5日的电话中告诉王毅，“全世界都在关注”哪些国家捍卫自由和主权。
+
+王在3月7日的简报会上表示，北京将与国际社会合作，“在需要时提供必要的调解”，但没有提供细节。
+
+台湾：
+
+战争期间，自治岛台湾面临的困境备受关注，台湾与乌克兰一样，面临来自其更大邻国的日益严重的侵略，该邻国一心想要将领土置于其控制之下，必要时使用武力。
+
+然而，王试图驳斥将台湾和乌克兰问题混为一谈，声称这样做是在“赤裸裸的双重标准”，因为该岛一直是中共国的一部分，因此是一个国内问题——一个长期存在的问题。根据中国共产党的立场，乌克兰危机是邻国之间的争端。
+
+近年来，作为恐吓和削弱台湾防御行动的一部分，中共国政权大幅增加了对民主岛屿的军事骚扰。与此同时，自乌克兰战争爆发以来，台湾已提高警戒级别，但没有报告中共国有异常军事行动。
+
+对此，台湾陆委会回应称，中共政权的军事骚扰和外交孤立台北等行为是地区紧张局势升级的真正原因。
+
+“这也解释了为什么它不愿意谴责俄罗斯的侵略。”该委员会在一份声明中说。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-938-e1646886132308.png)2022年3月1日，一名示威者在台湾台北莫斯科代表处外举行的反对俄罗斯入侵乌克兰的集会上举着标语牌。
+图片来源：Ann Wang/路透社
+3月7日，台湾外长吴钊燮宣布向乌克兰难民提供数百万美元援助，表示台湾人民正在从乌克兰与俄罗斯的斗争中汲取灵感。
+
+他在台北的新闻发布会上说：“让我从心底里说：‘你一直是台湾人民在面对威权威胁和胁迫时的鼓舞。’”
+
+“很多台湾人会像我现在这样说：‘我是乌克兰人’。”吴说，他坐在一面印有“台湾与乌克兰站在一起”的乌克兰国旗前。
+
+美联社和路透社为本报告做出了贡献。
+
+文章来源：[https://www.theepochtimes.com/china-says-its-ties-with-russia-rock-solid-despite-ukraine-war\_4321781.html?utm\_medium=social&utm\_source=twitter&utm\_campaign=digitalsub](https://www.theepochtimes.com/china-says-its-ties-with-russia-rock-solid-despite-ukraine-war_4321781.html?utm_medium=social&amp;utm_source=twitter&amp;utm_campaign=digitalsub)
+
+翻译：洛杉矶盘古农场 – Raul
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 –子萍
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-> The dark future of a world under a communist dictatorship, empowered by economic strength and next-generation technologies, has become more and more realistic. That’s why the danger posed by the CCP is the central threat of our time.
-> — Mike Pompeo (@mikepompeo) [March 10, 2022](https://twitter.com/mikepompeo/status/1501736871331708930?ref_src=twsrc%5Etfw)
-
-
-
-参议员汤姆·科顿： 帮助乌克兰抵御残酷无情的独裁者符合我们的最大利益。 美国人认识到这一点——无论拜登政府承认与否。
-
-
-
-> Helping Ukraine defend itself against a ruthless dictator is in our best interest.
-> 
-> Americans recognize that—whether the Biden administration does or not.
-> — Tom Cotton (@SenTomCotton) [March 9, 2022](https://twitter.com/SenTomCotton/status/1501704136835878913?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可·卢比奥： 一周来我每天都提到这个是有原因的 当俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 设置了虚假的生物或化学（武器）标志时，他们正在做着过去所做的一切 【转卫报报道：英美担心俄罗斯可能会为使用化学武器做准备】
-
-
-
-> I have mentioned this every day for a week for a reason[#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) is doing everything it has done in the past when they have set up a biological or chemical false flag [https://t.co/Ah2wQB28U5](https://t.co/Ah2wQB28U5)
-> — Marco Rubio (@marcorubio) [March 9, 2022](https://twitter.com/marcorubio/status/1501667575708753924?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·加西亚： 别搞错了—— [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 是我们最大的威胁。 最近，美国司法部@TheJusticeDept 终止了“中国倡议”，这是一项旨在保护美国实验室和企业免受经济间谍和财产盗窃的关键计划。 【转lawfareblog 报道：美国司法部终止有争议的“中国倡议”项目】 这一决定是拜登政府“撤资警察”和努力重新想象“安全”的样子的延续。 我们已经看到了这一决定的影响，因为6个美国国家机构受到了 [#CCP](https://gettr.com/hashtag/%23CCP) [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 政府支持的黑客组织的攻击。 【转cnn : 网络安全公司称 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 黑客入侵了六家美国国家机构】 正如我们在“撤资警察”运动中看到的那样，犯罪率正在上升。 当像 [#习近平](https://gettr.com/hashtag/%23%E4%B9%A0%E8%BF%91%E5%B9%B3) 主席这样的外国领导人在试图破坏美国，而美国政府却同时心甘情愿地撤走“警察”时——就会产生现实的后果。
-
-
-
-> Make no mistake – China is our greatest threat. Recently, [@TheJusticeDept](https://twitter.com/TheJusticeDept?ref_src=twsrc%5Etfw) terminated the "China Initiative" which was a critical program that sought to protect U.S. laboratories & businesses from economic espionage & property theft.[https://t.co/Vh9bEENknu](https://t.co/Vh9bEENknu)
-> — Rep. Mike Garcia (@RepMikeGarcia) [March 9, 2022](https://twitter.com/RepMikeGarcia/status/1501655143137386500?ref_src=twsrc%5Etfw)
-
-
-
-比尔·戈茨： 高级军事和国防官员告诉国会，俄罗斯入侵乌克兰引发了对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 袭击 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的新担忧。 美国正在中国附近加强力量并敦促台北准备抵抗力量 【附华盛顿时报上 比尔·戈茨文章：俄罗斯入侵增加了中共国攻击台湾的新的危险】
-
-
-
-> Russia’s invasion of Ukraine prompts new fears of a Chinese attack on Taiwan, senior military and defense officials told Congress. US is bolstering forces near China and urging Taipei to prepare resistance forces [https://t.co/YWW4dH9Ofw](https://t.co/YWW4dH9Ofw)
-> — Bill Gertz (@BillGertz) [March 9, 2022](https://twitter.com/BillGertz/status/1501671202145779715?ref_src=twsrc%5Etfw)
-
-
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
  
 
