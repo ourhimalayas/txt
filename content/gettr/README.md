@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/10/2022 2:35 PM (UTC)`
+
+【Ukrainian Rescue】03/09/22 Volunteer of NFSC & ROL Foundation Ukraine Rescue Operation interview a Germany musician who plays piano for the refugees at a rescue station in Medyka by the Ukraine/Poland border <br/><br/>【乌克兰救援】03/09/22新中国联邦和法治基金救援行动志愿者采访在乌波边境梅迪卡救助站为难民演奏的德国钢琴家
+![img](https://media.gettr.com/group4/getter/2022/03/10/14/3c79f9ca-2cea-4d8c-43d3-f736755b27c1/out.jpg)
+
+---
+
+`@miles 3/10/2022 2:33 PM (UTC)`
+
+3月10号：尊敬的战友们好！世界正处在极度的不稳定，政治．经济都在过山车当中，只有新中国联邦抓住了世界政治经济．货币数字化的前所未有的机会，正在创造一个诚实有信仰．有币无苗的新新人类！
+![img](https://media.gettr.com/group41/getter/2022/03/10/14/20ec9670-26fc-880e-3d75-d4245ddf89cc/out.jpg)
+
+---
+
 `@miles 3/10/2022 1:35 PM (UTC)`
 
 2022.03.10 早 《新中国联邦新闻》 战场相遇即亲人； 米蒂卡前线信息更新
@@ -39,13 +53,6 @@
 
 【Ukraine Rescue】03/10/2022 Volunteer Wenge Qixiong and Qingfeng distributing food, blankets and other rescue supplies to refugees at the NFSC and ROL Foundation’s rescue station in Medyka, near the border with Ukraine<br/><br/>【乌克兰救援】3月10日 文戈七雄战友和青峰战友在位于波乌边境Medyka的新中国联邦和法治基金救助站，为难民发放食物，毛毯等救援物资
 ![img](https://media.gettr.com/group24/getter/2022/03/10/12/1a3723d2-f1f4-7210-3331-13cd43d98fb0/out.jpg)
-
----
-
-`@miles 3/10/2022 12:43 PM (UTC)`
-
-【Ukrainian Rescue】03/09/22 Volunteer of NFSC & ROL Foundation Ukraine Rescue Operation interview a Germany musician who plays piano for the refugees at a rescue station in Medyka by the Ukraine/Poland border <br/><br/>【乌克兰救援】03/09/22新中国联邦和法治基金救援行动志愿者采访在乌波边境梅迪卡救助站为难民演奏的德国钢琴家<br/>
-![img](https://media.gettr.com/group9/getter/2022/03/10/12/82b86d81-5426-f792-7ba8-14557d925c04/out.jpg)
 
 ---
 
@@ -152,13 +159,6 @@
 
 2022.03.09 晚 《新中国联邦新闻》欧盟力争今年将对俄罗斯的天然气依赖度降低近八成；全球媒体聚焦乌克兰救援 新中国联邦受关注
 ![img](https://media.gettr.com/group3/origin/2022/03/10/01/14369be1-1757-221d-5a74-730489f8c9ff/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/10/2022 1:19 AM (UTC)`
-
-3/9/2022 Miles Guo: The rescue team of the New Federal State of China in Medyka is so remarkable! The refugees were touched by the food and blankets we provided. The fellow fighters are enthusiastic, and they are respected and helped by friends from all over the world. We are so proud to be the citizens of the New Federal State of China!<br/><br/>3/9/2022 文贵直播：新中国联邦在梅迪卡的救援团队太牛了！我们提供的食物和毛毯让难民非常感动，战友们热情高涨并受到了各国友人的尊重与帮助；我们为我们是新中国联邦人而感到无比自豪！<br/>
-![img](https://media.gettr.com/group26/getter/2022/03/10/01/a4f7c54b-eba6-2313-239d-c3437edb8914/out.jpg)
 
 ---
 
