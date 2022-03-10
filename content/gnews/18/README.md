@@ -2,39 +2,31 @@
 ---
 
 
-## 有声|爱马仕、香奈儿等世界知名奢侈品牌宣布暂时关闭在俄业务
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2138696/)
+## 为最坏的时刻准备
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2138925/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据外媒3月6日的报道，爱马仕、路易·威登、卡地亚 、香奈儿以及古驰等全球知名的奢侈时尚品牌宣布，由于对欧洲目前的局势越来越担心，他们将暂停在俄罗斯的所有业务，立即生效。
+文编：Hima
+听写：Mr Hu
+视频：七哥
 
-柏金包的制造商爱马仕和拥有卡地亚的历峰集团，是第一批宣布关闭在俄商店的时尚品牌母公司，路威酩轩集团、开云 和香奈儿随后也关闭了商店。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-3.jpg)
-香奈儿公司在媒体上发帖指出，鉴于对目前的局势越来越担心，因此决定暂时停止在俄罗斯的业务。
+2022-03-06直播摘录
 
-LMVH也证实，他们在俄罗斯的124家门店将全部关闭，但他将继续支付在该国的3500名员工的工资。 开云、LMVH和世界领先的美容公司之一欧莱雅都承诺提供财政支持，帮助乌克兰难民。
+目前土耳其相对欧洲是最好的，生活很便宜，去很容易，而且土耳其人很实际，经济很差，这是去比较好，像黎巴嫩这样的战火国家没法确定，国内的战友现在要非常清楚，现在你没有能力出来的，你不要出来，你出来以后会饿死你的，而且世界经济也是灾难，更难生存，在中国跟羊都找不到草吃，现在出来你跟狮子，豹子竞争，没有这个PK能力，你就不要出来，在国内如果有钱，有能力的话，这个时候一定要长远打算，要想到现在真的要回老家这些地方，你得有在老家的生存环境，在老家被县长，镇长，弄成锁链女也是分分钟发生的事，很黑暗。但是你在大城市里面，一旦没电，没水你咋办？这些每个人情况不同，但是如果中国任何一个人，不做好一个最坏的时刻准备，那最坏的时刻一定会发生你身上，就像打疫苗一样，如果你不认真面对的话，那这个疫苗就会打到你身体里而且永远拿不出来，没有统一的答案，统一的标准，因为不同的人，不同的环境，完全自己做决定。
 
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
-文字版原文：[爱马仕、香奈儿等世界知名奢侈品牌宣布暂时关闭在俄业务](https://gnews.org/zh-hans/2129952/)
+Discord 账号
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Gettr 账号
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

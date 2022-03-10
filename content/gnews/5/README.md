@@ -2,28 +2,31 @@
 ---
 
 
-## 加拿大温哥华扬帆农场救援团队抵达前线
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2138959/)
+## 塞纳车的交易给我们奠定了欧洲
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2139183/)
 
-采编撰稿：加拿大温哥华杨帆农场 – 文莱，坐看云起时
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-991.png)图片来源：GETTR
-据3月9日盖特消息，由[加拿大温哥华扬帆农场]战友们组成的[法治基金]乌克兰人道救援团队，当天已陆续抵达波兰华沙，各项救援行动正在有条不紊地按预定计划执行之中。
+文编：Hima
+听写：Mr Hu
+视频：七哥
 
-据悉，日前从加拿大多伦多机场出发的13位战友目前都已平安抵达华沙机场，在顺利办理完通关手续后，与当地现场负责接机的文耀战友成功汇合。此外，身处温哥华的7位飞赴前线战友，由于没有疫苗护照，未能在温哥华机场登机，而被迫辗转驱车南下入境美国至西雅图机场并最终成功登机。预计翌日将转机土耳其抵达波兰华沙。
+2022-03-06直播摘录
 
-在此预祝[加拿大温哥华扬帆农场]前线救援团队的行动顺利，安全，成功！并敬请关注本节目对本次行动后续进展情况的及时报道。
+这场俄乌战争当中打的是什么，打的是钱，打的是信息战，然后剩下是人民的意志。我们现在看到当初美国总说了这句话，我们拥有世界50%的DGP，我整不死你吗，你觉得世界有50%的DGP整不死中共吗！我们占多少，我们现在千万别得意，当喜币成为数字货币之王的时候，比特币一定会消灭的，只有七哥告诉你们，比特币是伊朗，华尔街，共产党，俄罗斯6%拥有的人的币，你们知道今天的什么价格。黄金现在俄罗斯管用吗？你有多少黄金西方都会给你封掉，让你变成铜的不值得钱。你要不在一个合法的区域内，黄金会变成白铜都不值，别说黄铜。新中国联邦的战略谁能懂，塞纳车的交易给我们奠定了欧洲的，咱们直接进入皇室，最高的信用，皇室不是奢华皇室是信用的象征，战友们，你们知道喜币的未来吗？你们知道GTV关掉了，你才知道GTV重要是吗？但是战友们你走着看，如果有一天发现GTV回来的时候，你们一定要在镜头前展示你们的真感情，你看GTV是像塞纳车神一样，一次又一次的在面临生死存亡之际，得到上天的眷顾，重新投胎，塞纳车神讲过句话，我从来不认为我的每一次赢是我在开车，都是上帝再给我力量，他是真的，他不是共产党那些小粉红出来了吗？但是那是胡扯了，人家是真的，至于这样的事，你还会看到N个这样的传奇。
 
-校对编辑：硫酸羟氯喹64
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-发稿：青青
+**关注我们**
 
-新闻来源：
+Discord 账号
 
-[https://gettr.com/post/pz1bte9543](https://gettr.com/post/pz1bte9543)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[https://gettr.com/post/pz0gn21135](https://gettr.com/post/pz0gn21135)
+Gettr 账号
 
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

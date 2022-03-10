@@ -2,25 +2,34 @@
 ---
 
 
-## 中共阻挠法治基金乌克兰人道救援行动
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2138670/)
+## 中共病毒轻症同样导致大脑萎缩退化
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2138900/)
 
-采编撰稿：加拿大温哥华杨帆农场 – 晨熹
+作者：纽约香草山农场 – 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月7日，据有关医学平台消息显示，牛津大学一项最新经过同行评审的研究结果表明，中共病毒肺炎会导致患者大脑的嗅觉和记忆相关区域发生退行性变化，这些退化症状对于那些轻症感染者也不例外。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-18.jpg)
+据了解，此次调查涉及了接近八百位51到81岁的英国老年人，研究期间有超过一半的观察者感染了中共病毒肺炎，另有15人需要接受住院治疗。研究过程中，工作人员对这些老人的大脑先后进行了两次CT扫描，两次的平均间隔时间为38个月，而这两次CT扫描的主要观测区域为大脑中与气味和事件记忆相关的部分，包括眶额皮层、海马旁回、梨状皮层和嗅结节等。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-989.png)图片来源：GETTR
+其后，经研究人员分析发现，随着时间的推移，中共病毒感染者的嗅觉相关区域平均每年的损失率为0.7%，其中，患者海马旁回和初级嗅觉皮层的损伤率高达1.3%到1.8%，是未感染者的六倍有余。此外，在感染中共病毒后，老人们的认知能力会显著下降，患者需要花费更长的时间完成研究中的相关测试任务。
 
-据3月8日文贵先生盖特消息，本次法治基金乌克兰救援行动中使用的专门邮箱日前突遭中共黑客，并因此阻碍了行动的顺利进行。目前，救援的联系方式已经更新，并新增了Gettr信息的求助渠道。
+参考链接：
+1). [Covid Can Shrink the Brain as Much as a Decade of Aging, Study Finds](https://www.bloomberg.com/news/articles/2022-03-07/brain-shrinkage-cognitive-decline-found-months-after-mild-covid)
+2). [SARS-CoV-2 is associated with changes in brain structure in UK Biobank](https://www.nature.com/articles/s41586-022-04569-5)
 
-消息指出，中共在近日不仅黑客掉文贵先生和多名前线救援战友的互联网设备，还胁迫YouTube关闭了文贵先生的上传视频帐号，并同时以非法手段冻结了用于本次救援的付费邮箱和域名。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-以上一系列流氓手段的操作，不仅验证了中共政权的下作和邪恶，而且也鲜明体现出本次救援行动所产生的巨大国际影响力，更看到中共对日渐崛起的人类正义力量——新中国联邦的深深恐惧。
+总编: Irene木木
+编辑/审核: 飞虹
+校正/发稿：Fei797
 
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-原文链接： https://gettr.com/post/pyvi5n6af7
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,125 +15,125 @@
 
 ---
 
-### [中共病毒(COVID-19)疫苗完全不符合基本常识与逻辑](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [3/9/2022 文贵直播：台湾、西藏和新疆的独立已毫无悬念；习的时代将带走很多中国人并以极其痛苦的方式终结](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
 
-### [承认台湾主权——普京的乌克兰战争应该成为支持民主国家的警钟](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [乌克兰妇产医院遭空袭17人受伤](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [历史上的今天——历史上的今天起义日](/content/gnews/4/README.md)
- ` NFSC News`
-
-### [加拿大温哥华扬帆农场救援团队抵达前线](/content/gnews/5/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [中共开始疫苗副作用维稳](/content/gnews/6/README.md)
- ` 焦點20分`
-
-### [香港只能越来越坏](/content/gnews/7/README.md)
+### [喜币有一天一定超过比特币](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [20220309文贵大直播：乌克兰将成为欧洲高科技中心，普习消失，中共将带着部分中国人灰飞烟灭！](/content/gnews/8/README.md)
- ` Tokyo Sakura Video Group`
-
-### [中共病毒轻症同样导致大脑萎缩退化](/content/gnews/9/README.md)
- ` NFSC News`
-
-### [【 #G时新闻 】辉瑞给了美国FDA多少钱？](/content/gnews/10/README.md)
+### [【 #G时新闻 】俄罗斯入侵乌克兰的军事行动持续到第14天最新情况综述](/content/gnews/3/README.md)
  ` G-时新闻`
 
-### [有声|新中国联邦法制基金乌克兰救援团建战地新闻直播中心](/content/gnews/11/README.md)
- ` MOSREC`
+### [2022年3月10日，全球中共病毒疫情情况汇总](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [法治基金救援已成功营救数百名战争难民](/content/gnews/12/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [塞纳车的交易给我们奠定了欧洲](/content/gnews/5/README.md)
+ ` MG FARM`
 
-### [文贵先生直播精要 2022/03/09](/content/gnews/13/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [全民皆兵](/content/gnews/6/README.md)
+ ` MG FARM`
 
-### [美情报官员警告不应低估中共攻台野心](/content/gnews/14/README.md)
- ` NFSC News`
+### [中国人古时战法精妙和如今中共的人肉战争鲜明对比](/content/gnews/7/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|前俄罗斯新闻主播谈俄罗斯的言论审查](/content/gnews/15/README.md)
- ` MOSREC`
+### [马来西亚很危险](/content/gnews/8/README.md)
+ ` MG FARM`
 
-### [有声|历史今天3月8日](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [拜登将签署关于确保负责任地开发数字资产的行政命令](/content/gnews/17/README.md)
+### [沙特和阿联酋拒绝接受拜登讨论乌克兰局势的呼吁，转而与普京对话](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|爱马仕、香奈儿等世界知名奢侈品牌宣布暂时关闭在俄业务](/content/gnews/18/README.md)
+### [有声|台湾启动民间向乌克兰捐赠物资项目](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [大直播后记：威廉王创作歌曲的过程](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
+### [中共病毒(COVID-19)疫苗完全不符合基本常识与逻辑](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [中共阻挠法治基金乌克兰人道救援行动](/content/gnews/20/README.md)
+### [承认台湾主权——普京的乌克兰战争应该成为支持民主国家的警钟](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [乌克兰妇产医院遭空袭17人受伤](/content/gnews/13/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [历史上的今天——历史上的今天起义日](/content/gnews/14/README.md)
+ ` NFSC News`
+
+### [加拿大温哥华扬帆农场救援团队抵达前线](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [3月9日文贵大直播要点（图片1-5）](/content/gnews/21/README.md)
- ` 波士顿五月花农场`
+### [中共开始疫苗副作用维稳](/content/gnews/16/README.md)
+ ` 焦點20分`
 
-### [新西兰财经G乐部2022年3月10日:财经新闻整理](/content/gnews/22/README.md)
+### [欧洲相对比较安全](/content/gnews/17/README.md)
+ ` MG FARM`
+
+### [为最坏的时刻准备](/content/gnews/18/README.md)
+ ` MG FARM`
+
+### [20220309文贵大直播：乌克兰将成为欧洲高科技中心，普习消失，中共将带着部分中国人灰飞烟灭！](/content/gnews/19/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [中共病毒轻症同样导致大脑萎缩退化](/content/gnews/20/README.md)
+ ` NFSC News`
+
+### [【 #G时新闻 】辉瑞给了美国FDA多少钱？](/content/gnews/21/README.md)
+ ` G-时新闻`
+
+### [有声|新中国联邦法制基金乌克兰救援团建战地新闻直播中心](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [法治基金救援已成功营救数百名战争难民](/content/gnews/23/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [美情报官员警告不应低估中共攻台野心](/content/gnews/24/README.md)
+ ` NFSC News`
+
+### [拜登将签署关于确保负责任地开发数字资产的行政命令](/content/gnews/25/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共阻挠法治基金乌克兰人道救援行动](/content/gnews/26/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [新西兰财经G乐部2022年3月10日:财经新闻整理](/content/gnews/27/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [视频|战争大救援历史再现危难中展现人性光辉](/content/gnews/23/README.md)
+### [视频|战争大救援历史再现危难中展现人性光辉](/content/gnews/28/README.md)
  ` MOSVIDEO`
 
-### [视频|中乌夫妇接受采访感谢](/content/gnews/24/README.md)
+### [视频|中乌夫妇接受采访感谢](/content/gnews/29/README.md)
  ` MOSVIDEO`
 
-### [有声|超过40万的黑客志愿者帮助乌克兰](/content/gnews/25/README.md)
- ` MOSREC`
+### [乌克兰注定成为普京的滑铁卢](/content/gnews/30/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [视频|全球媒体聚焦乌克兰救援 新中国联邦受关注](/content/gnews/26/README.md)
+### [视频|全球媒体聚焦乌克兰救援 新中国联邦受关注](/content/gnews/31/README.md)
  ` MOSVIDEO`
 
-### [乌克兰战争救援前线报道-1:波兰MEDYKA 难民救援站](/content/gnews/27/README.md)
+### [乌克兰战争救援前线报道-1:波兰MEDYKA 难民救援站](/content/gnews/32/README.md)
  ` 滴水穿石`
 
-### [有声|普京时代已经结束 中共将会迅速攻打台湾](/content/gnews/28/README.md)
+### [有声|普京时代已经结束 中共将会迅速攻打台湾](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [视频|普京闪电攻占基辅战术失败将升级对平民袭击](/content/gnews/29/README.md)
+### [视频|壳牌公司宣布将退出所有俄罗斯石油、天然气业务并停止采购俄国石油](/content/gnews/34/README.md)
  ` MOSVIDEO`
 
-### [视频|壳牌公司宣布将退出所有俄罗斯石油、天然气业务并停止采购俄国石油](/content/gnews/30/README.md)
- ` MOSVIDEO`
-
-### [NFSC新闻、G|TV新闻访谈简报|2022年3月10日早](/content/gnews/31/README.md)
- ` 纽约香草山MOS01`
-
-### [中共国新增确诊病例再创下两年来新高纪录](/content/gnews/32/README.md)
- ` 日本东京方舟农场`
-
-### [俄罗斯入侵乌克兰战争第14 天- -挖万人坑；撤离的孕妇](/content/gnews/33/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [樱花FM|日本170多位诺贝尔奖获得者联名谴责俄罗斯入侵乌克兰](/content/gnews/34/README.md)
- ` 樱花FM`
-
-### [乌克兰妇产医院遭到空袭17人受伤](/content/gnews/35/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [美国及世界疫情简报（03-10-2022）](/content/gnews/36/README.md)
- ` 波士顿五月花农场`
-
-### [有声|妇女节当天世界为铁链女发声](/content/gnews/37/README.md)
- ` MOSREC`
-
-### [2022/03/08 墙内世界](/content/gnews/38/README.md)
+### [拜登签署研发美国央行数字货币的行政命令](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农战斗室志愿者正在群阅辉瑞文件：36名儿童参试验](/content/gnews/39/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [NFSC新闻、G|TV新闻访谈简报|2022年3月10日早](/content/gnews/36/README.md)
+ ` 纽约香草山MOS01`
 
-### [【秘翻时评】辉瑞公司申请退市](/content/gnews/40/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [中共国新增确诊病例再创下两年来新高纪录](/content/gnews/37/README.md)
+ ` 日本东京方舟农场`
+
+### [俄罗斯入侵乌克兰战争第14 天- -挖万人坑；撤离的孕妇](/content/gnews/38/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [2022/03/08 墙内世界](/content/gnews/39/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [班农战斗室志愿者正在群阅辉瑞文件：36名儿童参试验](/content/gnews/40/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [3/10/2022 国际财经快讯：保时捷因乌克兰零部件短缺而停止Taycan生产; 镍市场危机迫使LME紧急设法止损](/content/gnews/41/README.md)
  ` 秘密翻译组金融团队`
