@@ -2,13 +2,23 @@
 ---
 
 
-## 俄罗斯各地数千人在反战抗议活动中被捕
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2134347/)
+## 美国港口将不再接受俄罗斯的石油&#8211;而美国人民将对普京的战争机器进行又一次有力的打击。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2134439/)
 
-03/07/2022 据人权监督组织称，俄罗斯各地数千人在反战抗议活动中被捕
+作者:东京樱花团小视频组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
+
+
+
+
+
+校对：东京樱花团小视频组
+
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

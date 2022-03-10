@@ -31,13 +31,6 @@
 
 ---
 
-`@miles 3/10/2022 1:37 AM (UTC)`
-
-2022.03.09 晚 《新中国联邦新闻》欧盟力争今年将对俄罗斯的天然气依赖度降低近八成；全球媒体聚焦乌克兰救援 新中国联邦受关注
-![img](https://media.gettr.com/group3/origin/2022/03/10/01/14369be1-1757-221d-5a74-730489f8c9ff/9548d67018b19975dcafea4c4484666a.png)
-
----
-
 `@miles 3/10/2022 1:19 AM (UTC)`
 
 3/9/2022 Miles Guo: The rescue team of the New Federal State of China in Medyka is so remarkable! The refugees were touched by the food and blankets we provided. The fellow fighters are enthusiastic, and they are respected and helped by friends from all over the world. We are so proud to be the citizens of the New Federal State of China!<br/><br/>3/9/2022 文贵直播：新中国联邦在梅迪卡的救援团队太牛了！我们提供的食物和毛毯让难民非常感动，战友们热情高涨并受到了各国友人的尊重与帮助；我们为我们是新中国联邦人而感到无比自豪！<br/>
@@ -154,6 +147,13 @@
 
 【Ukrainian Rescue】03/08/22 Chinese husband and his Ukrainian wife rescued by NFSC and ROLF explains how they decided to leave Ukraine and take our rescue bus ASAP<br/><br/>【乌克兰救援】03/08/22 被新中国联邦和法治基金救援的中国男士及其乌克兰夫人讲述如何做出决定坐巴士尽快离开<br/>
 ![img](https://media.gettr.com/group45/getter/2022/03/09/10/8fb31a9e-8d77-e611-9360-c97cb43cf755/out.jpg)
+
+---
+
+`@miles 3/9/2022 10:35 AM (UTC)`
+
+【Ukrainian Rescue】03/08/22 Chinese husband and his Ukrainian wife rescued by NFSC and ROLF expresses their gratitude<br/><br/>【乌克兰救援】03/08/22 被新中国联邦和法治基金救援的中国男士及其乌克兰夫人表达感激之情<br/><br/>
+![img](https://media.gettr.com/group39/getter/2022/03/09/10/22f7447d-c438-6501-027b-01e98e96926e/out.jpg)
 
 ---
 
