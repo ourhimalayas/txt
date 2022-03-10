@@ -87,13 +87,13 @@
 ### [中共乌克兰撤侨新闻现假照片](/content/gnews/24/README.md)
  ` 纽约香草山MOS02`
 
-### [拜登签署加密货币管理的行政命令](/content/gnews/25/README.md)
+### [《避风港HAVEN》直播内容精选（第十八集）](/content/gnews/25/README.md)
+ ` 喜马拉雅纽约磐石农场`
+
+### [拜登签署加密货币管理的行政命令](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [纳瓦罗：中共是当前世界危机的根源，我们必须消灭它](/content/gnews/26/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【乌克兰救援】被新中国联邦和法治基金救援的中乌夫妇表达感激之情](/content/gnews/27/README.md)
+### [纳瓦罗：中共是当前世界危机的根源，我们必须消灭它](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [新中国联邦法治基金救援的专业性和安全性](/content/gnews/28/README.md)
