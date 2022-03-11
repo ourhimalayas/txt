@@ -2,30 +2,30 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月11日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2146902/)
+## 3月11号救援前线所见所闻
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2146988/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-4.jpg)
+前方记者：Nicole
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-61.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/photo_2022-03-11-16.39.32.jpeg)
+法新社AFP著名战地摄影记者 Louisa Gouliamaki 刚先睹为快来到法治基金刚搭好的梅蒂亚7星级帐篷 “非常令人叹服！“ 她看了新帐篷感叹地说。我告诉她明天一早会有NFSC Coffee（郭先生今天大直播说的的新中国联邦咖啡），如我预料的一样哈哈所有人都在疲惫的心情下，期待冬天里的温暖。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-11-164038.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3-1.png)
+这是国际红十字会的工作人员和明道战友对接今晚接待妇女儿童的工作，今晚新的大帐篷正式开放，接受红十字会负责从边境带来的难民。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-11.png)
-文章仅代表作者本人观点，与Gnews无关
+当明道告诉他，这是新中国联邦战友们第一次在战区做营救工作，他们都不敢相信，说你们做得太好了！ 他们还说，你们（法治基金）有财力准备这么好的设施。
 
-视频参看：
-[2022.03.11早 《NFSC新闻》](https://gettr.com/streaming/pzgn1j1989)
-[2022.03.11早 G|TV《新闻访谈》](https://gettr.com/streaming/pzgizq5e22)
+这是国际红十字会的工作人员和明道战友对接今晚接待妇女儿童的工作，今晚新的大帐篷正式开放，接受红十字会负责从边境带来的难民。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+这是新中国联邦战友们第一次在战区做营救工作，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1.png)
+当明道战友告知这是我们第一次组织救援工作，他们完全不敢相信，说你们做得太好了！ 他们还说，你们（法治基金）有财力准备这么好的设施。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+校对/发稿：serena
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-29.jpg)
+
+
 
  
 

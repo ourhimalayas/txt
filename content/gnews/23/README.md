@@ -2,12 +2,16 @@
 ---
 
 
-## 【乌克兰救援】乌克兰难民在新中国联邦温暖的大帐篷中休息
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2146747/)
+## 【 G时新闻 】新联邦救援前线战友介绍Starlink WIFI
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2146786/)
 
-【乌克兰救援】03/10/2022 乌克兰难民们在我们新中国联邦温暖的大帐篷中休息
+加拿大温哥华扬帆农场G-时新闻
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+新中国联邦救援前线明道战友在现场介绍了Starlink天空wifi的情況，顺便还自豪地公开透露了wifi信息 — 用户名：“新中国联邦“和密码：“Take Down the CCP”。
+
+
+
+编辑/上传：文所未闻
 
  
 

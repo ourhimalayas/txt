@@ -2,16 +2,30 @@
 ---
 
 
-## 【 G时新闻 】3/11 新联邦乌克兰人道救援前线最新报道
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2146848/)
+## NFSC新闻、G|TV新闻访谈简报|2022年3月11日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2146902/)
 
-加拿大温哥华扬帆农场G-时新闻
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-4.jpg)
 
-来自新中国联邦乌克兰人道救援前线战友的最新报道：
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-11.png)
+文章仅代表作者本人观点，与Gnews无关
 
-当地时间3月11日中午12点半梅蒂卡边境又迎来了一批乌克兰难民。法治基金和新中国联邦的帐篷里给大家供应足够的食物，热水，零食，暖气，让每个人都能感觉到家的温暖。 昨天，法制基金新联邦义工战友们和“无疆界医生”国际组织一同将护栏搬运到现场的紧急救援通道，帮助维持救援通道的有序和畅通。
+视频参看：
+[2022.03.11早 《NFSC新闻》](https://gettr.com/streaming/pzgn1j1989)
+[2022.03.11早 G|TV《新闻访谈》](https://gettr.com/streaming/pzgizq5e22)
 
-编辑/上传：文所未闻
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
