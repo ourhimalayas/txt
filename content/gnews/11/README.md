@@ -2,27 +2,43 @@
 ---
 
 
-## 美国国防部称 乌克兰是台湾防卫的典范
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2141123/)
+## 我家非常愿意收养乌克兰逃离战火的儿童给他一个温暖的家
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2141139/)
 
-翻译：冰糖葫芦喵
+作者：香草山福音部–melisa
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新中国联邦战友们救助乌克兰的儿童逃离战火免费安排他们到第三国西班牙。
 
-编辑与校对：冰糖葫芦喵
+我看到这些本有幸福家庭的孩子们远离父母关爱的儿童背景离乡真的很心疼。
 
-《路透社》华盛顿3月10日报道，周四，**美国国防部一名高级官员在参议院听证会上表示，如果中共选择通过进攻侵犯台湾的主权，乌克兰对俄罗斯军队入侵的顽强抵抗，就成为台湾防卫的典范。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/乌克兰、台湾-e1646967401867.jpg)图片来源：路透社。
-报道指出，负责战略、计划和能力的助理国防部长玛拉-卡林说：”我认为我们现在在乌克兰看到的情况对他们来说是一个非常值得研究的案例，说明为什么**台湾需要尽其所能建立不对称能力，让其民众做好准备，以便有能力抵抗中共的入侵。**“
+世上只有妈妈好!有妈的孩子象个宝，有了妈妈的怀抱幸福享受了。
 
-负责政治军事事务的助理国务卿杰西卡·刘易斯(Jessica Lewis)对参议员们说**，美国继续敦促台湾采购“在乌克兰发挥了巨大作用”的非对称系统。**
+新中国联邦战友们把孩子们安排好住处并给予无微不至的关怀,令人敬佩与感动。
 
-刘易斯表示，**台湾需要优先考虑短程防空、海军水雷、海岸防御和巡航导弹，**并补充说，美国和台湾在什么才称得上是一个不对称系统的问题上看法越来越一致。
+法治基金资助孩子们的食品住行,法治基金有实力帮助有需要的人。
 
-刘易斯说**，台湾也需要**从乌克兰的预备役部队改革中得到启示，乌克兰有志愿的领土防卫部队和大约90万预备役人员，**在人口方面“必须做好战斗的准备”。**
+这些儿童无家可归。如果有需要关怀的儿童。我家住在欧洲离西班牙不远。我们家非常愿意收养乌克兰离难儿童。我们会给乌克兰的孤儿一个关爱温暖的家。并培养孩子上国际幼儿园和学校。
 
-新闻来源链接：
+我家有空房愿意帮助离难的家庭和人员提供免费住房和30天的牛奶和面包。
 
-[Ukraine is model for Taiwan defense should China violate its ‘sovereignty’ -U.S. official | Reuters](https://www.reuters.com/world/china/ukraine-is-model-taiwan-defense-should-china-violate-its-sovereignty-us-official-2022-03-10/)
+有需要帮助的人请联系香草山农场与我联系。
 
+日期：2022.3.10.
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_6740.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+
+- 审核/编辑/发稿:qiutian（邱甜）
+
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

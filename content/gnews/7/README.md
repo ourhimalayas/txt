@@ -2,44 +2,44 @@
 ---
 
 
-## 我家非常愿意收养乌克兰逃离战火的儿童给他一个温暖的家
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2141139/)
+## 欧盟代表称普京政权在卢卡申科协助下对乌克兰发动军事侵略是要付出高昂代价
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2141183/)
 
-作者：香草山福音部–melisa
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-新中国联邦战友们救助乌克兰的儿童逃离战火免费安排他们到第三国西班牙。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image009-1.jpg) AP Photo / Virginia Mayo
+俄罗斯卫星通讯社在**3**月**10**日报导，欧盟外交与安全政策高级代表博雷利表示，欧盟在对俄罗斯实施金融制裁方面已达到其能力极限。
 
-我看到这些本有幸福家庭的孩子们远离父母关爱的儿童背景离乡真的很心疼。
+博雷利在接受法国新闻广播电台采访时说：**“**至于金融制裁，当然总是可以走得更远，我们已经达到了我们能做的极限。我们已经做了我们能做的一切。**”**博雷利指出，这里谈到的是密集制裁，这导致俄罗斯货币贬值**40%**。他补充说：**“**这些是非常严厉的制裁，给俄罗斯经济带来沉重负担。**”**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image011-1.jpg) 欧盟外交与安全政策高级代表博雷利数据图片© 路透社图片
+据欧盟委员会**3**月**9**日表示，欧盟**27**国领导人同意对俄罗斯及白俄罗斯实施新一轮的制裁计划，相关措施包括制裁**14**名俄寡头和**146**名俄联邦委员会议员，限制向三家白俄罗斯主要银行及其分支机构提供**SWIFT**国际结算系统服务，对俄实施海上航行技术出口管制，确认先前的金融制裁措施包括针对加密货币资产等。
 
-世上只有妈妈好!有妈的孩子象个宝，有了妈妈的怀抱幸福享受了。
-
-新中国联邦战友们把孩子们安排好住处并给予无微不至的关怀,令人敬佩与感动。
-
-法治基金资助孩子们的食品住行,法治基金有实力帮助有需要的人。
-
-这些儿童无家可归。如果有需要关怀的儿童。我家住在欧洲离西班牙不远。我们家非常愿意收养乌克兰离难儿童。我们会给乌克兰的孤儿一个关爱温暖的家。并培养孩子上国际幼儿园和学校。
-
-我家有空房愿意帮助离难的家庭和人员提供免费住房和30天的牛奶和面包。
-
-有需要帮助的人请联系香草山农场与我联系。
-
-日期：2022.3.10.
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_6740.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-- 审核/编辑/发稿:qiutian（邱甜）
+欧盟外交与安全政策高级代表博雷利（**Josep Borrell **）强调：**“**通过这些额外的经济部门制裁，我们正在发出一个强烈的信息：普京政权在卢卡申科的协助下对乌克兰发动的无端和无理的军事侵略是要付出高昂代价的。我们正在弥补现有制裁的漏洞，并对白俄罗斯的金融部门实施进一步的措施。**”**
 
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+[【援引连结】](https://sputniknews.cn/20220310/1039856131.html)
+
+
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 
