@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 1:24 PM (UTC)`
+
+2022年3月11日 文贵大直播：连线波兰救援基地-实况转播 乌克兰国际救援行动令共产党恐惧；新中国联邦人在国际上树立了形象；数字美元与数字货币时代中的喜币；香港冠状病毒肆虐与世界疫苗危机
+![img](https://media.gettr.com/group31/origin/2022/03/11/12/2dc5735d-2896-38ea-6f72-29f8f237ceb3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/11/2022 10:36 AM (UTC)`
 
 【Ukraine Rescue】03/10/22   Nicole introduces the rescue operation of NFSC to the volunteer of the Spanish charity foundation ‘No Name Kitchen’ and mentions that while we have been working day and night to rescue the refugees from Ukraine, the CCP government used state power to hack our email rescue system.<br/><br/>【乌克兰救援】03/10/22  妮可战友向西班牙公益基金No Name Kitchen的志愿者介绍新中国联邦的救援行动，并提到：就在我们没日没夜地救助来自乌克兰的难民时，中共政府却动用国家力量黑客攻击新中国联邦的电子邮件救援系统<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,13 +154,6 @@
 
 【Ukraine Rescue】03/10/2022 Volunteers from the NFSC and the Rule of Law Foundation joined other international aid organizations to set up a passage for Ukrainian refugees in Medyka<br/><br/>【乌克兰救援】3月10日， 新中国联邦和法治基金的志愿者与其他国际救援组织一起在Medyka设立乌克兰难民通道
 ![img](https://media.gettr.com/group31/getter/2022/03/11/00/ab18afb8-2148-0831-c0fc-016a182fd79e/out.jpg)
-
----
-
-`@miles 3/11/2022 12:05 AM (UTC)`
-
-2022.03.10 NFSC News  Global Media Focus on Ukraine Rescue, New Federal State of China in the Spotlight； A Chinese and Ukrainian Couple talked about their Rescue Experience
-![img](https://media.gettr.com/group30/origin/2022/03/11/00/eb3d4270-c320-3540-94b1-bd287cbb2aea/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
