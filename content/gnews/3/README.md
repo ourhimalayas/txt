@@ -2,24 +2,42 @@
 ---
 
 
-## 中日财经爆┃优衣库停止在俄罗斯所有50家门店的运营
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2143106/)
+## 白宫警告俄罗斯可能在乌克兰使用化学武器
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2143277/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1101.png)[图片来源](http://upload.cankaoxiaoxi.com/2022/0308/1646704879467.jpg)
-“优衣库”母公司迅销（FAST RETAILING）3月10日宣布，将暂时停止在俄罗斯所有50家门店的运营。由于反对俄罗斯入侵乌克兰，海外服装巨头纷纷退出俄罗斯业务，引起了关注。
+据《the Hill》记者：Ted Johnson，2022年3月9日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1108.png)图片来源：Oliver Contreras/Sipa USA
+白宫新闻秘书普萨基, 在莫斯科指控美国在乌克兰境内存放生物武器后，周三警告俄罗斯可能在乌克兰使用化学武器。
 
-迅销公司于2010年在莫斯科开设了第一家“优衣库”店，进入俄罗斯。目前，它拥有欧洲最多的门店。在截至2021年8月的财年合并财务报表中，俄罗斯业务领跑优衣库欧洲业务，销售额和利润均有显着增长。
+普萨基称俄罗斯的说法是“虚假的”和“荒谬的”，她警告说，这可能成为俄罗斯人在袭击乌克兰时部署化学武器的借口。
 
-迅销表示：“由于目前围绕纠纷的形势变化，以及继续经营面临的种种困难，我们决定暂停业务。”
+普萨基在一份声明中说：“这是我们多年来在乌克兰和其他国家多次从俄罗斯人那里看到的那种虚假信息行动，这些行动已被揭穿，也是我们一直警告俄罗斯人会发明的虚假借口类型的一个例子”。
 
-迅销公司是日本的零售控股公司。持有的品牌包括知名的UNIQLO(优衣库)，以及ASPESI、Comptoir des Cotonniers、Foot Park、National Standard，GU等。是世界第三大休闲服公司，同时是亚洲最大的服装公司。
+她继续说道：“此外，俄罗斯有指责西方侵犯俄罗斯自身行为的记录。去年12月，俄罗斯错误地指责美国在乌克兰部署了拥有化学武器的承包商”。
 
-消息来源：[ユニクロ、ロシア国内全店の営業一時休止…欧州で最多の５０店舗](https://www.yomiuri.co.jp/economy/20220310-OYT1T50227/)
+“这显然是俄罗斯试图为其对乌克兰的进一步有预谋和无端攻击辩护的明显策略。既然俄罗斯做出了这些虚假声明，而中共国似乎也支持这种宣传。我们都应该留意俄罗斯可能在乌克兰使用化学或生物武器，或使用它们栽赃陷害。这是一个明显的模式。”她说。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+据路透社报道，俄罗斯外交部发言人玛丽亚·扎哈罗娃（Maria Zakharova）声称，俄罗斯发现了美国在乌克兰实施的一项开发炭疽和其他生物武器计划的证据。她声称该计划得到了五角大楼的支持。
+
+美国国务院发言人内德·普莱斯在一份声明中说：“俄罗斯的这种虚假信息完全是胡说八道，而且不是俄罗斯第一次对另一个国家提出这种虚假声明。此外，多年来，这些说法已被最终反复揭穿。”
+
+五角大楼新闻秘书约翰·柯比在周三的简报会上称这些说法“荒谬”和“可笑”。
+
+白宫发出警告称，俄罗斯可能在入侵乌克兰时使用化学武器，而俄罗斯军方越来越多地瞄准平民和非政府建筑。
+
+乌克兰官员说，俄罗斯周三早些时候袭击了马里乌波尔市的一座医院大楼，包括一个产科病房。妇女和儿童试图逃离暴力的视频已经流传开来，自上个月入侵开始以来，已有数百名平民丧生。
+
+文章来源：[**https://thehill.com/homenews/administration/597586-white-house-warns-russia-could-use-chemical-weapons-in-ukraine**](https://thehill.com/homenews/administration/597586-white-house-warns-russia-could-use-chemical-weapons-in-ukraine)
+
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

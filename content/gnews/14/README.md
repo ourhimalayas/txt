@@ -2,38 +2,24 @@
 ---
 
 
-## 俄乌战争！卫星照曝「基辅」及「切尔尼戈夫」惨况
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2142873/)
+## 中日财经爆┃优衣库停止在俄罗斯所有50家门店的运营
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2143106/)
 
-俄军对乌克兰执行军事行动已迈入第16日，据美国太空科技公司「Maxar Technologies」近日所摄下的最新照片显示，乌国首都基辅（Kyiv）西北部城郊及北部切尔尼戈夫市（Chernihiv）的部分地区，都因攻击而受到严重毁损。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1101.png)[图片来源](http://upload.cankaoxiaoxi.com/2022/0308/1646704879467.jpg)
+“优衣库”母公司迅销（FAST RETAILING）3月10日宣布，将暂时停止在俄罗斯所有50家门店的运营。由于反对俄罗斯入侵乌克兰，海外服装巨头纷纷退出俄罗斯业务，引起了关注。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpwxYhUl.jpg)图片来源：欧新社
+迅销公司于2010年在莫斯科开设了第一家“优衣库”店，进入俄罗斯。目前，它拥有欧洲最多的门店。在截至2021年8月的财年合并财务报表中，俄罗斯业务领跑优衣库欧洲业务，销售额和利润均有显着增长。
 
-第二张照片显示，俄军针对基辅州的博罗江卡镇（Borodyanka）空袭后，多处民宅受损的惨况。
+迅销表示：“由于目前围绕纠纷的形势变化，以及继续经营面临的种种困难，我们决定暂停业务。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-74.jpg)图片来源：欧新社
+迅销公司是日本的零售控股公司。持有的品牌包括知名的UNIQLO(优衣库)，以及ASPESI、Comptoir des Cotonniers、Foot Park、National Standard，GU等。是世界第三大休闲服公司，同时是亚洲最大的服装公司。
 
-第三张照片指出，基辅州的斯托扬卡地区，当地一处仓库因俄军空袭，而遭熊熊大火吞噬。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-61.jpg)图片来源：欧新社
-第四张照片则显示，距离基辅约130公里的切尔尼戈夫市，当地一家名为「震央K超市」（The Epicenter K supermarket）的建筑物，遭到大火袭击，就连屋顶也被烧光，更留下多处焦黑残骸。
+消息来源：[ユニクロ、ロシア国内全店の営業一時休止…欧州で最多の５０店舗](https://www.yomiuri.co.jp/economy/20220310-OYT1T50227/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-37.jpg)图片来源：法新社
-
-最后一张照片则指出，切尔尼戈夫市内一处工业区，也因遭俄军轰炸而发生火灾。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-21.jpg)
-
-简评：乌克兰满目疮痍惨状的背后，是普京侵略称霸的野心，是中共背后资金的援助，是国际社会袖手旁观的冷漠，是全球人们对历史的遗忘与不加反思，所造就的这一切。面对这一切的苦难，我们每一个人都有原罪的，唯有正道主义才是救赎！愿乌克兰早日摆脱战火，愿全世界早日回归正道！
-
-新闻来源：[LTN](https://news.ltn.com.tw/news/world/breakingnews/3855985)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

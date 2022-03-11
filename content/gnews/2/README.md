@@ -2,26 +2,26 @@
 ---
 
 
-## 中日财经爆┃日本烟草停止俄罗斯市场经营活动
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2143113/)
+## 视频|我们用音乐维护中国女性的安全和尊严
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2143281/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1102.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.i.haymarketmedia.asia%2F%3Fn%3Dcampaign-india%252Fcontent%252F20140307052149_123Japan-Tobacco.jpg%26h%3D630%26w%3D1200%26q%3D75%26v%3D20170226%26c%3D1&amp;imgrefurl=https%3A%2F%2Fwww.campaignchina.com%2Ftag%2F%25E6%2597%25A5%25E6%259C%25AC%25E7%2583%259F%25E8%258D%2589%25E5%259B%25BD%25E9%2599%2585&amp;tbnid=ZOhqAUFGaDgmlM&amp;vet=12ahUKEwj3jpLbyr32AhVYi_0HHctGCYsQMygAegUIARC2AQ..i&amp;docid=zp-Osdt3Lg-0VM&amp;w=1200&amp;h=630&amp;q=%E6%97%A5%E6%9C%AC%E7%83%9F%E8%8D%89&amp;ved=2ahUKEwj3jpLbyr32AhVYi_0HHctGCYsQMygAegUIARC2AQ)
-日本烟草公司（JT）3月10日宣布，将暂停在俄罗斯市场的新投资和营销活动。俄罗斯的烟草生产也可能暂停。
+制作：香草山视频部
 
-JT 在俄罗斯拥有四家工厂，员工约4,000人。当地雇员的就业将得到维持。
+3月8日，郭文贵先生在一则盖特视频中再次提到了《锁链梦》这首歌曲的意义。
 
-JT表示，“俄罗斯市场的营商环境空前严峻，预计对未来业务的影响将是多方面的。”
+郭先生指出，每一个听到《锁链梦》的人都会被深深地震撼和触动。而于他本人而言， 更有一种无法形容的力量推动他完成了这首歌曲的演唱。
 
-日本烟草产业株式会社（Japan Tobacco Inc.），简称JT，是日本最大的烟草制造企业，世界第三大烟草制造商，为日经225指数成份股之一。
+郭先生解释道，这首歌中的每一句歌词都充满了血和泪，令人悲痛不已。为此，他祈愿中国能不再有像锁链女这样悲惨的女性，更希望这首歌能够唤醒国人，让他们可以彻底抛弃懦弱，不再如此冷漠。
 
-在俄罗斯销售的所有烟草产品中，有15%是由日本烟草公司的国际业务分公司日本烟草国际公司制造。日本烟草国际公司的这些产品中，有99%出产于公司位于俄罗斯圣彼得堡的Petro烟厂。
+郭先生还补充道，新中国联邦要用音乐推动世界的和平并维护人类的尊严，特别是要维护中国女性的安全和尊严。
 
-消息来源：[ＪＴ、ロシアで新規投資を一時停止…たばこ生産も一時停止の可能性](https://www.yomiuri.co.jp/economy/20220310-OYT1T50272/)
+发稿：林礼
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

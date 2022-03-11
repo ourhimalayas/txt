@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 9:00 AM (UTC)`
+
+
+![img](https://media.gettr.com/group39/origin/2022/03/11/08/01a9e243-27eb-9c84-bf34-2db913c858f0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/11/2022 7:56 AM (UTC)`
 
 
@@ -147,13 +154,6 @@
 
 3/9/2022 Miles Guo: I have come across numerous challenges in the past dozens of days. But the fellow fighters have launched an unprecedented rescue operation in the history of humanity that has stunned the West. The CCP is still lying through its teeth in terms of rescuing the Chinese people in Ukraine, but the Little Pinks have no idea that they are stepping into the biggest catastrophe that the Chinese people have ever experienced in the past thousands of years.<br/><br/>3/9/2022 文贵直播：文贵在过去几十天遇到了诸多挑战 ；战友们创造了人类前所未有的救援行动，震撼了西方；中共在乌克兰撤侨上满口谎言，小粉红们却不知自己已进入中国人千年未有的大灾难！<br/>
 ![img](https://media.gettr.com/group46/getter/2022/03/10/22/7dff925c-0e3d-6150-e04a-7121a58ee8bc/out.jpg)
-
----
-
-`@miles 3/10/2022 10:09 PM (UTC)`
-
-3/9/2022 Miles Guo: There is no doubt that Taiwan, Tibet, and Xinjiang will be independent. Xi’s days will end up in an extremely painful way with numerous Chinese people following him to the graves. Himalaya Coin will undergo a small yet qualitative change in two weeks, and there will be a piece of shocking news about it coming up in five to six weeks.<br/><br/>3/9/2022 文贵直播：台湾、西藏和新疆的独立已毫无悬念；习的时代将带走很多中国人并以极其痛苦的方式终结；喜币在两周后将有小的质的改变并且在5到6周后会有惊天的消息<br/>
-![img](https://media.gettr.com/group6/getter/2022/03/10/22/7f82c370-c693-b57c-a66c-4c850d44cbf3/out.jpg)
 
 ---
 
