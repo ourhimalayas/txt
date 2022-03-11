@@ -2,58 +2,61 @@
 ---
 
 
-## 樱花FM|台湾将捐出1亿新台币帮助波兰的乌克兰难民
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2144453/)
+## 世界经济论坛宣布与俄罗斯政府和普京切割
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2144573/)
 
-音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/Xtqam0Zq8bJT3uB_7cpzsp3gWtZgvhPB6CTMKHDEHmeCO2ZS9VZi6gmBslgcY0zuh3pexL1F-Vdoa3AqNqomtHr1l5TuBqoeFZV8KtkYYmsX3dEHx9xwbNdWJpEvi6fdAMZSZUh6)
-**外交部长吴釗燮（左）周一在台北举行的外交部新闻发布会上讲话**
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-文章译文：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-中新社台北3月7日电，外交部长吴釗燮周一宣布，台湾将捐赠1亿新台币(353万美元)，帮助在俄罗斯入侵波兰后定居的乌克兰难民。
+在美国、欧盟、加拿大和其他几个国家对俄罗斯的经济、银行业以及俄罗斯政界人士、寡头和普京本人实施了严厉的制裁之际，世界经济论坛（World Economic Forum，简称WEF）发言人Amanda Russo（阿曼达·鲁索）宣布，由于俄罗斯对乌克兰的持续入侵，世界经济论坛已经切断了与俄罗斯政府和总统弗拉基米尔·普京（Vladimir Putin）的“所有关系”。
 
-吴釗燮在新闻发布会上说，这笔捐款将很快由台湾驻波兰代表陈龙锦转交给波兰华沙的政府战略储备局，然后将用于波兰的乌克兰难民。
+Amanda Russo说，“我们没有与任何受制裁的个人接触，并冻结了与俄罗斯实体的所有关系”。世界经济论坛网站上撤下了普京的个人资料。
 
-捐赠的钱将从政府指定的账户中拨出，该账户迄今已筹集了约3亿新台币，由台湾民众捐赠，用于帮助流离失所的乌克兰人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/FMzH2DSXMAICQyq.jpg)
 
-该筹款账户将继续活跃到4月1日。
+同时，世界经济论坛在关于俄罗斯入侵乌克兰的态度上，明确“我们全力声援乌克兰人民”。WEF创始人兼执行主席克劳斯·施瓦布（Klaus Schwab）和主席博尔格·布伦德（Børge Brende）在2月27日的声明中称，“我们组织的本质信念是尊重、对话以及协作和合作努力。因此，我们强烈谴责俄罗斯对乌克兰的侵略、袭击和暴行。我们全力声援乌克兰人民和所有无辜地遭受这场完全不可接受的战争的人。我们将尽一切可能帮助并积极支持人道主义和外交努力。我们只希望——从长远来看——理性将占上风，并再次出现建立桥梁与和解的空间。”
 
-吴在讲话中说，自成立以来，政府支持的活动在不到五天的时间里已经筹集了近3亿新台币，以接受帮助乌克兰人的财政捐款。
+多年来，普京不仅多次担任Klaus Schwab领导达沃斯世界经济论坛的主题演讲者，而且他还是[世界经济论坛青年全球领袖计划](https://www.younggloballeaders.org/our-alumni-community)（[WEF’s Young Global Leaders program](https://www.younggloballeaders.org/our-alumni-community)，简称YGL）的毕业生。
 
-吴说，这些捐款表明台湾人有一个强烈的共识，即“我们关心，我们想帮助。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2vv20DIrioVX0Hw2-gdDgJaK_Usm4ya1E4ndshJ9XqQ-scaled.jpg)
 
-外交部还宣布，将连续12天接受台湾人民捐赠的救济物资。
+YGL计划还产生了其他著名的全球主义傀儡，如加拿大总理贾斯汀·特鲁多（Justin Trudeau）、美国交通部长皮特·布蒂吉格（Pete Buttigieg）、新西兰总理杰辛达·阿德恩（Jacinda Ardern）和德国总理安格拉·默克尔（Angela Merkel）。
 
-他补充说，这些捐赠的物资随后将被运往斯洛伐克，帮助在俄罗斯入侵后逃往该国的乌克兰难民。
+YGL校友是财富 500 强企业、王室、领先的非政府组织和国家非营利组织的首席执行官、民间社会的公众人物、体育名人等等。
 
-所有这些努力都是台湾作为声援乌克兰人道主义任务的一部分，据吴说，他赞扬乌克兰人以 “巨大的勇气”保卫自己的国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/responsive_large_webp_zL6ChrGq7a_-0UWxivrNjtIiGMFumsV7DRlTRZJERb8.png)
 
-“在面对来自威权政权的威胁时，你们对台湾人民来说是一种激励，”吴说。
+世界经济论坛利用其项目的这些忠实毕业生渗透到世界各地的政府中，以推进他们的全球主义乌托邦议程。
 
-同时，在台湾生活了10年的乌克兰人阿纳托利·巴库罗夫（Anatolii Bakurov）代表该国的乌克兰社区出席了周一的新闻活动。
+2017年，世界经济论坛负责人Klaus Schwab在哈佛大学约翰肯尼迪政府学院对话时说，“我们非常自豪的是，我们与我们的世界经济论坛全球青年领袖……像特鲁多一样，渗透到了各国的全球内阁中。”。
 
-巴库罗夫对台湾提供的所有帮助表示感谢，他称俄罗斯总统普京发起的持续入侵是对乌克兰人民的“种族灭绝”，但他说他的国家不会退缩。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-11_21-04-26.png)
 
-他说：“普京的所作所为实际上已经使所有乌克兰人民团结起来，共同战斗。”
+英国前首相布莱尔在2020年5月9日的讲话中称，“我们的团队现在已融入世界各地的政府，帮助他们在这场大流行期间保护人民的安全——不仅是关于Covid-19本身，还有政治和经济的附带损害”。
 
-巴库罗夫还重申了当地乌克兰社区不断呼吁台湾政府允许乌克兰难民，特别是在台湾有亲属的青少年和儿童通过特别签证或免签证入境。
+从2007年到2021年，普京和德米特里·梅德韦杰夫 (Dmitry Medvedev) 曾五次在世界经济论坛上发表讲话。普京甚至在2015年1月俄罗斯入侵克里米亚后受邀发言，但他拒绝了邀请。
 
-“我们只希望台湾政府能拿出一个方案，让更多的乌克兰人尽快来到更安全的地方，”他说。
+在2021年1月一次虚拟的达沃斯会议中，Klaus Schwab在介绍普京时称，普京的声音在世界事务中“至关重要”。2009年达沃斯会议中，Klaus Schwab在介绍普京时称，他想不出没有俄罗斯参与可以解决的具有全球重要性的单一问题。两人最后一次见面是在2021年年中，当时施瓦布告诉普京，他对参加达沃斯活动的俄罗斯代表“特别重视”。
 
-据巴库罗夫介绍，目前约有200名乌克兰人在台湾有居住权。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-11_21-03-00.png)
 
-对此，吴说，由于台湾在乌克兰没有代表处，而且两国官方互动很少，政府很难为乌克兰人提供免签证入境。
+参考资料：
 
-然而，他说他的部门正在与其他政府机构进行会谈，允许乌克兰人因某些原因来台湾，比如在当地学校学习，这样他们就可以留在台湾。
+[Davos freezes out Putin and Russian oligarchs](https://www.politico.com/news/2022/03/08/davos-putin-russian-oligarchs-00015344)
 
-吴说，这些讨论仍在进行中，如果做出最终决定，政府将正式宣布。
+[WEF’s Young Global Leaders program](https://www.younggloballeaders.org/our-alumni-community)
 
-文字版原文：[台湾将捐出1亿新台币帮助波兰的乌克兰难民](https://gnews.org/zh-hans/2127786/)
+[What we are very proud of, is that we penetrate the global cabinets of countries with our WEF Young Global Leaders… like Trudeau](https://twitter.com/MaajidNawaz/status/1485982015048622090)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+[Our teams are now embedded in governments around the world, helping them to keep their people safe during this pandemic – not just in respect of Covid-19 itself but also the political and economic collateral damage](https://twitter.com/MaajidNawaz/status/1486316343213367296)
+
+[Davos Annual Meeting 2009 – Vladimir Putin](https://www.youtube.com/watch?v=iy-el0jO1mo&amp;t=1390s)
+
+[Our full solidarity is with Ukraine’s people](https://www.weforum.org/agenda/2022/02/ukraine-our-full-solidarity/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

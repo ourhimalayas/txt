@@ -2,20 +2,18 @@
 ---
 
 
-## 樱花FM|美国禁止中共国半导体等相关产品出口俄罗斯
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2144336/)
+## 樱花FM|法新社：全球超过 600 万人死于中共病毒
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2144459/)
 
 音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/zU1wo91nseHX050IuLRcoPqZNthYpRkRH57Hos8A9nV_NT2zShHxEUao1dwai1-kNuCWrmk_ONUkzhV0VB4fpxp2fKgXFI8m79viR07YPLjDppDcO9sJVTAG1nkp-mmNaCp0Ir-6)
-3月8日，美国商务部长雷蒙德警告说，如果中共国公司不配合美国实施的对俄罗斯高科技产品出口的管制，中共国公司可能被 “有效关闭”。这对俄罗斯入侵乌克兰施加压力的一部分。
+![](https://lh6.googleusercontent.com/SkyI45RgQCTnnf5mHuNV5iidMzzOJAMIgcBBzncLSqgn8L4-tybBffoSOUDGh4XZwR8XkrUn_-xBzz9I9Z64lrtA2bXC7Eh6z1Aa-VH2nzsC97kOkWhha21fDttcy5zG7WJxJKG3)
+自中共病毒（新型冠状病毒）全球流行开始以来，全球已有超过 600 万人死于该病毒。法新社8日的汇总中清楚地表明了这一点。
 
-美国的法规涵盖了使用美国技术制造商品的外国公司。中共国的半导体制造公司也在使用美国制造的生产设备和其他产品。
+法新社在当天下午6点汇总各地区官方数据累计，共有600万1585人死于新病毒。
 
-莱蒙德指出，俄罗斯试图通过第三国规避制裁和出口管制。
+在世界大部分地区，感染人数和死亡人数目前都在迅速下降，但例外的是亚洲包括香港在内的感染传播规模是有史以来最严重的，以及包括新西兰在内的大洋洲新感染人数正在迅速增加。
 
-如果向俄罗斯出口半导体等产品，中共国公司将被禁止使用美国制造的生产设备和软件，这将导致中共国的半导体制造能力被摧毁。
-
-文字版原文：[美国禁止中共国半导体等相关产品出口俄罗斯](https://gnews.org/zh-hans/2130827/)
+文字版原文：[法新社：全球超过 600 万人死于中共病毒](https://gnews.org/zh-hans/2129632/)
 
 *编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*

@@ -2,28 +2,30 @@
 ---
 
 
-## 英國對俄羅斯386議員實施制裁
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2144504/)
+## 樱花时政┃搅浑水还是装无辜？中共宣称互联网遭受美欧攻击
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2144630/)
 
-採集：玫瑰新聞群組
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-02-15t132438z741161391rc2dks9vcvr44563174.jpg)英國宣佈對386名投票支持烏克蘭東部兩個分離地區獨立的俄羅斯杜馬（國會下議院）成員實施制裁。（路透社）
-（早報訊）英國宣佈對386名投票支持烏克蘭東部兩個分離地區獨立的俄羅斯杜馬（國會下議院）成員實施制裁，凍結他們的資產和發佈旅行禁令。
+撰稿：东京樱花团丨喜马拉雅的微尘
 
-路透社報導，英國外交部周日（3月11日）在一份聲明中說：“外交部長特拉斯今天制裁了俄羅斯杜馬的386名成員，因為他們支援烏克蘭分離地區盧甘斯克和頓涅茨克（獨立）。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/搅浑水还是装无辜？中共宣称互联网遭受美欧攻击.png)
 
-“新的制裁措施將禁止被列入名單的人前往英國，獲取在英國境內的資產，並在這裡做生意。”
+[*图片来源*](https://www.google.com.hk/imgres?imgurl=https://warontherocks.com/wp-content/uploads/2015/04/China-Binary.jpg&amp;imgrefurl=https://warontherocks.com/2015/04/why-do-the-chinese-hack-fear/&amp;tbnid=pR3VKImMhRV9rM&amp;vet=12ahUKEwim88-eir72AhVKY94KHY_-CgIQMygQegUIARCAAQ..i&amp;docid=8BvWyiW4TJlO8M&amp;w=1024&amp;h=682&amp;q=CCP%20Internet%20Hackers&amp;ved=2ahUKEwim88-eir72AhVKY94KHY_-CgIQMygQegUIARCAAQ)
 
-據報導，英國政府一天前對七名俄羅斯最富有和最有影響力的寡頭實施全面資產凍結和旅行禁令，其中包括倫敦足球俱樂部切爾西的俄羅斯老闆阿布拉莫維奇（Abramovich）。
+中共新华社3月11日消息，中共国家互联网应急中心宣称，2月下旬以来，国内互联网持续遭受境外网络攻击，境外组织通过攻击控制其境内计算机，进而对俄罗斯、乌克兰、白俄罗斯进行网络攻击。
 
-參考連結：[https://www.zaobao.com.sg/realtime/world/story20220311-1251368](https://www.zaobao.com.sg/realtime/world/story20220311-1251368)
+报道称，经分析，这些攻击地址主要来自美国，仅来自纽约州的攻击地址就有10余个，攻击流量峰值达36Gbps，87%的攻击目标是俄罗斯，也有少量攻击地址来自德国、荷兰等国家。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/搅浑水还是装无辜？中共宣称互联网遭受美欧攻击2.png)
 
+长期以来，中共一直有运用网络部队对欧美政府、企业、金融机构等进行有组织、大规模的网络攻击，窃取有关数据的同时，还肆无忌惮地利用网络信息超限战的手段全面干预包括总统大选在内的欧美政治、经济和社会的运行。
 
+俄罗斯入侵乌克兰战争爆发以来，各个领域的正义人士纷纷以实际行动支持乌克兰，对于在其中扮演不光彩角色的中共，此时大声宣称被网络攻击，个中缘由值得玩味。
 
+信息来源：[**我国互联网遭受境外网络攻击|计算机**](https://www.163.com/dy/article/H26AF5KE0534A4RJ.html?clickfrom=w_tech)
 
-審核校對：Barry Jack
-上傳排版：F
- 
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

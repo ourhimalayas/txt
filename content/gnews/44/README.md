@@ -2,63 +2,31 @@
 ---
 
 
-## 参议员泰德·克鲁兹：是时候结束暴虐的疫苗强制了！
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2141335/)
+## 香港殓房爆满 每天近百具遗体直送火葬场
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2141413/)
 
-参议员泰德·克鲁兹： 华盛顿特区以外的全国所有地区都在醒来。 是时候结束暴虐的疫苗强制了！ 【视频中克鲁兹称赞美国卡车司机的行动代表了民意，疫苗强制违宪，是时候停止了】
+发布： 2022年3月11日 10:33 AM
+采集：玫瑰新闻组
 
+![](https://img5.secretchina.com/pic/2022/2-27/p3103411a66113855-ss.jpg)
 
+冠病疫情导致香港殓房爆满，由于要加快流程以及防疫需要，每天都有近百具遗体直接运往火葬场。
 
-> The rest of the country outside of Washington, D.C. is waking up.
->  
-> It’s time to end the tyrannical vaccine mandate! [pic.twitter.com/H9MXuOb9Li](https://t.co/H9MXuOb9Li)
-> — Senator Ted Cruz (@SenTedCruz) [March 11, 2022](https://twitter.com/SenTedCruz/status/1502117538637004842?ref_src=twsrc%5Etfw)
+据星岛日报报道，疫情累计死亡个案接近3000人，遗体堆积殓房，殡仪业者指，疫情持续之下，近期每天都有近一百具遗体没有经由殡仪馆出殡，直接运往火葬场。
 
+香港食环署昨（10日）举办网上研讨会，邀请负责不同程序的相关部门、公共机构与殡仪业界参加，就如何理顺整个流程及缩减所需时间交换意见。殡仪业商会理事长郭凯邦说，业界已向相关部门反映，包括如何能加快处理遗体，以及业界在丧礼上的配合，以加快流程。
 
+郭凯邦又提到，疫情之下，近期已有愈来愈多的家属，选择不在殡仪馆办理后事，只在公立医院的殓房或公众殓房作简单丧礼或追思，然后将遗体直接运往火葬场。“除了是加快流程，也是由于在疫情之下，很多家属也担心会在殡仪馆受到感染，加上可能不会有太多亲友出席，故选择简简单单完成丧礼。”
 
-参议员兰德·保罗： 一家航空公司重新开始关心他们的员工和科学了. . .其他人会跟随吗？ 美国联合航空公司将让未接种疫苗的员工重返工作岗位
+现在全港殡仪馆总共有121个礼堂，郭凯邦称若以食环署提供逾200个火化时段计算，估计每日约有100名死者没有经由殡仪馆出殡，遗体直接运往火葬场。他也说，于公众殓房进行有关仪式并没有问题，但现在部分公立医院的殓房未能配合，并不允许业界为先人提供简单的装身，以及瞻仰遗容等程序，希望当局能够人道处理，以酌情方式让家人进行简单的仪式。
 
+他说，近期死亡人数仍在上升，难以估计何时能够见顶，希望当局可以灵活处理，否则很多丧事也要“拖长来做”，“若不允许，或作出阻挠，令先人不能留下最美好的仪容，很多家属也会感到不安及难过，故希望医院方面可作调整。”
 
+新闻链接：
+[香港殓房爆满 每天近百具遗体直送火葬场](https://www.zaobao.com.sg/realtime/china/story20220311-1251187)
 
-> One airline resumes caring about their employees and science . . . Will others follow?
-> 
-> United Airlines will let unvaccinated employees return to jobs [https://t.co/6yRt0ftRF9](https://t.co/6yRt0ftRF9)
-> — Rand Paul (@RandPaul) [March 11, 2022](https://twitter.com/RandPaul/status/1502104959290122241?ref_src=twsrc%5Etfw)
-
-
-
-比尔.格茨： 国家情报总监：乌克兰实验室没有开展生物战（研究）工作，美国的支持仅限于生物安全和安保。 对俄罗斯接管实验室的担忧是基于病原体可能被滥用 【转比尔.格茨华盛顿时报报道：国家情报总监称：乌克兰实验室不涉及生物武器，尽管俄罗斯指控】
-
-
-
-> DNI: Ukrainian labs are not conducting biowarfare work and US support was limited to biosafety and security. Concerns about Russian takeover of the labs is based on possible misuse of pathogens [https://t.co/vOGFF5wpmH](https://t.co/vOGFF5wpmH)
-> — Bill Gertz (@BillGertz) [March 10, 2022](https://twitter.com/BillGertz/status/1501973283536838656?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·华尔兹： 普京有使用构陷花招的历史。看看叙利亚，俄罗斯在阿萨德的军队中使用了少量化学制剂，以此作为使用化学武器进行报复的借口。 这可能为普京在乌克兰策划同样的事情奠定了基础。 【附福克斯视频：美国表示：我们在乌克兰没有生化武器实验室】
-
-
-
-> Putin has a history of using false flags. Just look at Syria where Russia used minor chemical agents on Assad's forces as a pretext to retaliate with chemical weapons.
-> 
-> This could be setting the stage for Putin to orchestrate the same in Ukraine. [pic.twitter.com/DOrQzN4cCz](https://t.co/DOrQzN4cCz)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 10, 2022](https://twitter.com/michaelgwaltz/status/1502048472194768897?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可·卢比奥： 极权主义精神并没有随着冷战的结束而消亡 但现在在亚洲、东欧和中东，它又一次存活于大国内部 【附视频，卢比奥议员在参议院情报听证会上致开幕词】
-
-
-
-> The spirit of totalitarianism did not die with the end of the Cold War 
-> 
-> But now in Asia, Eastern Europe and the Middle East it once again lives inside of great powers
-> 
->  [pic.twitter.com/KhOf1CCosB](https://t.co/KhOf1CCosB)
-> — Marco Rubio (@marcorubio) [March 10, 2022](https://twitter.com/marcorubio/status/1502027110168285195?ref_src=twsrc%5Etfw)
-
-
+**审核：Barry Jack
+上传排版：V在途中**
 
  
 

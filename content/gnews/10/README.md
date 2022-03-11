@@ -2,51 +2,24 @@
 ---
 
 
-## 战友给出上万条G-Fashion主意的任一条都让翻身变垃圾
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2144438/)
+## 中共吉林农科院因隐瞒疫情致大量学生病毒感染
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2144572/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8841.60%EF%BC%89%E6%88%98%E5%8F%8B%E7%BB%99%E5%87%BA%E4%B8%8A%E4%B8%87%E6%9D%A1G-Fashion%E4%B8%BB%E6%84%8F%E7%9A%84%E4%BB%BB%E4%B8%80%E6%9D%A1%E9%83%BD%E8%AE%A9%E7%BF%BB%E8%BA%AB%E5%8F%98%E5%9E%83%E5%9C%BE%E3%80%902022%E5%B9%B402%E6%9C%8811%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:7)
+整理编辑：东京樱花团｜上善若水
 
-**郭文贵先生：**安平从开始到现在，安平带给我最多的是快乐。就是安平这种真性情，她是一个很性情的人。她是爱说、爱问，但是她这个人就是个真性情，她不会糊弄你、不会瞒，跟安平从第一天我就是打开了心扉。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/中共吉林农科院因隐瞒疫情致大量学生病毒感染.png)[*图片来源*](https://static.dw.com/image/60233785_403.jpg)
 
-很多战友来都是来教我的，就是很多战友都是来教七哥的。我感受最深的就是中国人都喜欢教训别人，我真的我觉得这个世界非常……中国人咋就这么跟人家不一样的地方呢？是不是什么人都要教训别人，手指头指着你教训你。
+吉林农业科技学院因隐瞒疫情导致大量学生交叉感染。该校的网民“林凡一寻”在10日在微博发文称，学校安排所有学生在图书馆、教学楼睡“通铺”，健康人也变成了密集接触者。学生给老师哭诉，老师也不作为，互相推诿，学生崩溃大哭。有学生发烧，老师只给退烧药，如无效再换另一种药。“在宿舍等死，有同学已经没意识了，躺在寝室，等待处置”。他称，“吉林马上变成2020年初的武汉疫情了。”文中透露，隔离学生寝室门窗封闭，宿舍无厕所，同学急哭了；校内生活用品严重不足，没有饮用水喝，女生无卫生巾，血流不止，向家长哭诉校方不作为而且态度强硬；学生向政府求助，但不是拒接就是推卸责任，校方甚至施压上网求救的学生。
 
-你看中国官员只要是个官儿，他只要大一级，他就手指头点着你就教你。 从人生到哲学、从历史到政治都教你。就我跟共产党官在一起的时候，我最后练的“第一神功”就是认真的眼睛盯着他、耳朵竖着听，但我脑子已经想别的事儿去了。
+“吉林农业科技学院疫情”一度成为网络热点，事件发酵后中共为平息众怒，已将吉林农科院书记张立峰撤职，吉林农业科技学院门口集结30辆大巴，将密切接触者、次密接学生转运出校。中共国已在多地实施社区封闭措施，居民必须接受核酸检测，学校停课。
 
-我一句话都不听，因为我不愿意听他废话。我练这个功很厉害的你知道吧？ 所以我从一能干好几件事。因为我就纳闷，你就是父母你就天天教育我们呐！就像那钟仁，我们的小钟仁，我估计钟仁他爸、他妈是天天教育她，就是动不动“谢谢郭叔，做梦都郭叔在教育我。”
+根据中共官方数字，截至10日24时，中共国现有确诊病例达5,024例，其中6人重症。全国至今累计确诊病例11.2万例，4636人病亡，但是实际数字远远大于官方公布统计数据。媒体透露，中共国不太可能在明年春天之前放松所谓“清零政策”，但实验性的开放措施最早可能在今年夏天在某些城市推出。如今中共国疫情再创两年来新高，中共向来是朝令夕改，随心所欲，出台任何政策不会考虑国计民生，是否可能改变“动态清零”路线，更是不可预知。
 
-我觉得这是我最大的侮辱，咱有啥资格教训人呢？动不动就教训人干嘛呢？而且咱们战友谁来都跟我说“七哥，建议……”啥都是建议，我听到最多是来自战友的建议。经济的，七哥应该怎么做、怎么赚钱、G-Fashion应该怎么设计。
+信息来源：[**中国疫情两年新高  吉林学生求救：快变下一个武汉**](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E7%96%AB%E6%83%85%E4%B8%A4%E5%B9%B4%E6%96%B0%E9%AB%98-%E5%90%89%E6%9E%97%E5%AD%A6%E7%94%9F%E6%B1%82%E6%95%91%E5%BF%AB%E5%8F%98%E4%B8%8B%E4%B8%80%E4%B8%AA%E6%AD%A6%E6%B1%89/a-61090920)
 
-我跟你讲关于G-Fashion的设计，我们战友出了真的出了有上万条主意，哪一条采取了，我估计G-Fashion 已经都成G垃圾了，说啥的都有。我从来没想过中国人为啥就没有一个Fashion呢？
-
-就像我这个料子一样，为啥中国人没产出这个料子呢？丝绸大国、创始国为啥没有呢？都在跟我建议G-Fashion。
-
-编辑整理：Jacques；
-
-字幕档制作：兵嫂；
-
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
