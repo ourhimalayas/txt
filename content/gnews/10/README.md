@@ -2,41 +2,51 @@
 ---
 
 
-## 法治基金前线记者采访为难民演奏的德国钢琴家
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2142501/)
+## 德桑蒂斯“埋葬”推崇左翼叙事的记者时爆发出掌声
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2142618/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏 
+编译: Mandel
 
-#### 整理/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1082-edited.png)现任佛罗里达州州长罗恩·德桑蒂斯diamondandsilk.com
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-11_14-29-11.png)图片来源：郭文贵先生盖特视频截图
+佛罗里达州坦帕市的当地全国广播公司(NBC) 隶属记者埃文·多诺万 (Evan Donovan) 被州长罗恩·德桑蒂斯 (Ron DeSantis) 指责为推动虚假的左翼叙事。
 
+多诺万说：“我可以问你关于教育方面的权利，批评者称之为’不要说同性恋’的法案在 (佛罗里达州) 参议院会议上……”
 
-3月9日，在乌克兰的救援行动期间，新中国联邦和法治基金前线记者在波兰梅迪卡（乌克兰和波兰边界）的难民营采访了为难民演奏的德国钢琴家-大卫。
+德桑蒂斯没有忍耐，立即打断道：“法案里有这么说吗？法案里有这么说吗？”
 
-夜幕降临，有很多难民在篝火旁边，其中有妈妈带着小朋友在取暖。大卫 每次都在黄昏的时候来到难民营为所有的工作人员和难民现场演奏音乐。
+“我知道，你支持……” 多诺万开始回应。
 
-在钢琴演奏结束之后，有一位小朋友走到大卫的身边，给他几个深深的拥抱，以表示感谢。场面非常感人和温馨。
+”我要求你告诉我法案中的内容，因为你在推崇虚假的叙述。”德桑蒂斯回击道。“批评者说什么并不重要。”
 
-记者来到大卫面前采访， 希望大卫能对所有从纽约和欧洲远到而来的，法治基金的志愿者说几句话。
+”它禁止在课堂上讲授性身份和性别取向。”多诺万回应说。
 
-大卫表示，每个人都很重要。就像你们每个人的行动会改变这一切。我们现在都需要（对难民）提供帮助。就在现在这个时刻。经大卫介绍，他来自德国的黑森林地区。
+“为谁？为学前班到幼儿园三年级的小朋友。因此，5岁、6岁、7岁。”德桑蒂斯回应说。
 
-记者跟大卫介绍，我们是新中国联邦的志愿者，来自各行各业，说着不同的语言，在这里是为了帮助难民，无论难民的国籍和种族是什么。因为我们是同一个人类。
+德桑蒂斯补充说：“而你在这方面不诚实，不告诉人们它实际上说的是什么——这就是为什么人们不相信像你这样的人，因为你兜售虚假的叙述。”[点击观看视频。](https://www.diamondandsilk.com/applause-erupts-as-desantis-buries-a-reporter-pushing-a-left-wing-narrative-its-why-people-dont-trust-people-like-you/)
 
-大卫对新中国联邦和法治基金的行动表示赞赏。他表示完全认同新中国联邦和法治基金的救人理念。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1084.png)diamondandsilk.com/
 
-资料来源：[郭文贵先生2022年3月10日盖特视频](https://www.gettr.com/post/pz95hiaa27)
+佛罗里达州一项名为HB 1557的新法案旨在加强父母在公共教育中的权利。
 
-*发布：Frank2021*
+这项法律影响了父母对其子女的抚养和控制作出决定的基本权利，这些决定涉及到孩子的精神、情感或身体健康。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+该法案还“禁止在某些年级的课堂上讨论性取向或性别认同问题”。
 
+这激怒了LGBT (女同性恋者、男同性恋者、双性恋者和变性者) 的倡导者和民主党人。为了引起对该法案的反对，批评者给HB 1557法案换了个名字，将其称为“不要说同性恋”法案。
+
+然而，该法案没有一次使用“同性恋”一词。相反，该法案只禁止幼儿在学校逐渐地被灌输LGBT意识形态。
+
+”所以我们打消了你的这些说法。” 德桑蒂斯总结说。“而且我们将确保父母能够把他们的孩子送进幼儿园，而不会把一些这样的东西注入到他们的学校课程中。”
+
+素材链接：【diamondandsilk.com】[Applause Erupts as DeSantis Buries a Reporter Pushing a Left-Wing Narrative: ‘It’s Why People Don’t Trust People Like You’](https://www.diamondandsilk.com/applause-erupts-as-desantis-buries-a-reporter-pushing-a-left-wing-narrative-its-why-people-dont-trust-people-like-you/)
+
+* * *
+
+审核：文乐
+校对：信心满满
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-7.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

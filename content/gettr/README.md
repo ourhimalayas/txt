@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 7:56 AM (UTC)`
+
+
+![img](https://media.gettr.com/group34/origin/2022/03/11/07/9d8f4aa3-29a0-3dee-9104-e2a72181ea6f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/11/2022 7:09 AM (UTC)`
 
 3/9/2022 Miles Guo: The era of “democracy without autocracy” has officially arrived. Europe will re-integrate and make Ukraine the center of its high-tech, new energy, space technology, digital economy, and digital security. Communist China will disintegrate. Only the New Federal State of China has told the Chinese people that the anti-Chinese movements are taking place.<br/><br/>3/9/2022 文贵直播：“无皇有主”的时代已到来；欧洲将重新整合并以乌克兰为其高科技、新能源、太空科技、数字经济和数字安全的中心；中共国将解体！只有新中国联邦告诉了中国人，排华正在发生<br/>
@@ -147,13 +154,6 @@
 
 3/9/2022 Miles Guo: There is no doubt that Taiwan, Tibet, and Xinjiang will be independent. Xi’s days will end up in an extremely painful way with numerous Chinese people following him to the graves. Himalaya Coin will undergo a small yet qualitative change in two weeks, and there will be a piece of shocking news about it coming up in five to six weeks.<br/><br/>3/9/2022 文贵直播：台湾、西藏和新疆的独立已毫无悬念；习的时代将带走很多中国人并以极其痛苦的方式终结；喜币在两周后将有小的质的改变并且在5到6周后会有惊天的消息<br/>
 ![img](https://media.gettr.com/group6/getter/2022/03/10/22/7f82c370-c693-b57c-a66c-4c850d44cbf3/out.jpg)
-
----
-
-`@miles 3/10/2022 10:02 PM (UTC)`
-
-The New Federal State of China and Rule of Law Foundation would like to find the boy in the video and his family, and we are willing to provide the support and assistance they need.<br/>Please contact our 24-hour helpline<br/><br/>新中国联邦及法治基金希望寻找视频中的小朋友及其家人，我们愿意为他们提供所需要的支援和救助。请联系我们24小时救助热线<br/><br/>Нова Федеральна Держава Китаю та Фонд Верховенство Права хотіли би знайти хлопчика на відео та його сім'ю, і ми готові надати їм необхідну підтримку та допомогу.<br/>Зверніться до нашої цілодобової гарячої лінії за адресою：<br/><br/>+1 720-657-6776 <br/>+1 719-224-4232<br/>+48 508-532-712 <br/>+48 508-531-518
-![img](https://media.gettr.com/group20/getter/2022/03/10/22/3ba87e08-1fe5-79a0-19f7-5579382eb73c/out.jpg)
 
 ---
 
