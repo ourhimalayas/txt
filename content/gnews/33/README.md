@@ -2,46 +2,37 @@
 ---
 
 
-## 一周疫情、疫苗信息汇总
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2145659/)
+## 乌克兰大救援为新中国联邦带来什么？
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2145805/)
 
-作者：DC农场 -火来 /香草山 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年3月2日至3月9日，除中共国外，全球新增中共病毒确诊患者1132万例，同比上周上升了9.37%，未能延续一个月来的下降趋势;  此外，本周新增确诊死亡病例49144例，同比上周下降了9.92%，死亡人数进一步减少。截止3月9日，除中共国外，全球累计接种了78.9亿剂中共病毒疫苗，同比3月2日的接种数据增长了1.94%.
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-18.jpg)
-美洲方面，3月7日，佛罗里达州宣布正式反对为健康儿童接种中共病毒疫苗，成为美国第一个反对儿童接种的州。已经曝光的辉瑞疫苗申请文件，其多达1291种的副作用和高试验死亡率引发的社会反应，继续在全世界发酵。3月9日，旧金山政府健康部门宣布，市民进入餐厅酒吧等场所将不再需要出示疫苗接种证明或病毒阴性证明。
+作者：波士顿五月花  2020灭共必胜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220311-1.jpg)
+郭文贵先生组织新中国联邦救援的时候说过，我们不追求金钱，不追求名利，不追求任何政治诉求和谋利，我们只在乎救人，能救一个是一个。即便这样，中共和伪类们还是对新中国联邦发起攻击，说这是作秀、蹭热度、造假。
 
-国际方面，3月4日，澳州南澳警察局将取消强制令，允许该州拒绝接种中共病毒疫苗的警察重返工作岗位。3月7日，《自然》杂志发表的一项由剑桥大学研究人员完成的研究结果显示，“中共病毒”感染者数月后大脑组织出现萎缩，特别是主管嗅觉的脑组织，脑容量下降也导致认知能力有所退化，这些症状在老人和重症患者中较为明显。
+虽然新中国联邦救人不要任何回报，但此次乌克兰大救援一定会带来巨大的影响，挡也挡不住，下面盘点一下带来了什么？
 
-亚洲方面，本周香港疫情处于失控状态。3月3日，香港“中共病毒”的确诊患者达到56827例。截至3月6日，香港地区每百万人口的“中共病毒”死亡人数为25.5人，病死率达全球之最。截至3月9日，韩国单日新增中共病毒确诊病例34万余例，创历史新高。韩国政府继月初取消11类公共场所疫苗通行证制度后，从5日开始，餐厅、咖啡厅等12类公众场所的营业延至11点，与确诊患者同住的人不需要每日检测以及强制隔离。
-
-参考链接：
-
-1. [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-03-02..latest&amp;country=~World+excl.+China)
-2. [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-03-02..latest&amp;country=~World+excl.+China)
-3. [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-03-02..latest&amp;country=~World+excl.+China)
-4. [Florida to recommend against COVID vaccines for healthy kids](https://www.news4jax.com/news/florida/2022/03/07/florida-to-recommend-against-covid-vaccines-for-healthy-kids/)
-5. [Pfizer’s COVID vaccine has 1 291 RARE side effects, own report shows](https://www.msn.com/en-za/news/other/pfizers-covid-vaccine-has-1-291-rare-side-effects-own-report-shows/ar-AAULL9o)
-6. [Show your support for high-impact journalism](https://www.theguardian.com/world/2022/mar/07/covid-can-shrink-brain-and-damage-its-tissue-finds-research)
-7. [SARS-CoV-2 is associated with changes in brain structure in UK Biobank](https://www.nature.com/articles/s41586-022-04569-5)
-8. [San Francisco and Berkeley dropping proof of COVID-19 vaccine requirement for some businesses](https://www.ktvu.com/news/san-francisco-and-berkeley-dropping-proof-of-covid-19-vaccine-requirement-for-some-businesses)
-9. [신규 확진 26만 6,853명·사망자 186명 ‘역대 최다’](https://news.kbs.co.kr/news/view.do?ncd=5408883)
-10. [신규 확진 34만 2,446명…누적 500만 명 넘어](https://news.kbs.co.kr/news/view.do?ncd=5411925)
+1. 新中国联邦深入乌克兰救出大量中国同胞，戳穿了中共关于中国人都已撤出的谎言。
+2. 中共对新中国联邦救援的百般阻挠，尤其是让十几个中国同胞中途下车，生死不明。以及黑掉新中国联邦救援邮箱，这加速了中共的灭亡，但凡是人都看不下去这龌龊的行为。
+3. 世界媒体关于新中国联邦的报导和现场视频，狠狠扇了伪类和欺民贼的脸，他们整体假仁假义不干正事，还污蔑别人和他们一样。
+4. 新中国联邦是现场最有效的国际组织救援力量，相比国际红十字会的姗姗来迟，新中国联邦显得更加伟大，更加迅速，更加务实，更加不官僚。
+5. 新中国联邦是国人被共产党奴役以来，中国人第一次在海外大规模救助同胞和国际友人，打破了中国人在世界眼里，那个自私、懦弱，对灾难漠不关心的民族特性。
+6. 全世界媒体蜂拥而至，现场采访，Nicole等战友端庄大方，有逻辑、有智慧地接受采访，大大提升了新中国联邦在更多领域的知名度，同时大大地揭露了中共阻挠救人的反人类罪行，为灭共带来了更大的影响力。
+7. 此次救援会让新中国联邦结交更多有正义感的朋友，加深了和世界人民的友谊，尤其是乌克兰人和波兰人。
+8. 此次救援的正义光辉形象极大地给中国人形象加分，会让全世界越演愈烈的排华风暴得到缓解。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+也许我说的还不够全面，但是人在做、天在看。真的假不了，假的真不了。新中国联邦救人不求回报，只希望能救助更多的人类和生命。我相信这一切都是天意，是灭共道路上的重要一步，也是人类走向正道主义的重要里程碑事件。
 
-总编: Zion文恩/宁文静
-编辑: Zion文恩
-校正/发稿：Fei797
+天佑乌克兰人民，天佑新中国联邦，希望战争早日结束。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+*编辑：文合*
+
+*封面：霹雳鼠年*
+
+*发布：吐纳*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

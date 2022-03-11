@@ -2,10 +2,10 @@
 ---
 
 
-## 拜登签署行政令，要求探索创建中央银行数字货币
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2146666/)
+## 【乌克兰救援】乌克兰难民在新中国联邦温暖的大帐篷中休息
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2146747/)
 
-03/09/2022 据路透社报道，美国总统拜登签署了一项行政令，要求政府评估创建中央银行数字货币的风险和好处
+【乌克兰救援】03/10/2022 乌克兰难民们在我们新中国联邦温暖的大帐篷中休息
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
