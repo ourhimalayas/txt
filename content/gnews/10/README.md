@@ -2,22 +2,22 @@
 ---
 
 
-## 乌克兰加入欧盟或将推迟
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2141385/)
+## 樱花FM|普京签署法案 传播有关军队的 &#8220;虚假信息”将处以监禁 脸书推特也被封锁
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2141526/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-16.jpg)[图片来源](https://www.jiji.com/jc/article?k=2022031100245&amp;g=int)
-欧盟(EU)10日在巴黎郊区凡尔赛举行非正式峰会，讨论应对乌克兰的加入申请。东欧国家呼吁谈判尽早进行，但荷兰和法国表达不同意见，此议题将被推迟。
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/G7ktUGZneKhvcQpHSpwF1KJ4zDaKa6RSyvBr6MvlM9Dqp2HGZYOhDsn9kb0E4iX2ltJaF3-get2H7DyoZryQ6lSwbfRkXIiAMlMux-zLE4Sb8DsteF9mHhzKaOzvmzd0wAKRSjaT)
+俄罗斯总统普京4日签署了一项法案，规定传播有关军队的”虚假信息”将被处以最高15年的监禁。
 
-波罗的海三个国家之一的立陶宛总统瑙塞达在会前表示，“应该明确宣布乌克兰未来的加入”。对此，荷兰首相马克·吕特表示，“加入欧盟是一个长期的过程”，并表示反对允许作为特例提前加入。法国总统埃马纽埃尔·马克龙也表示，“我认为我们无法与正在交战的国家谈判加入。”
+英国广播公司（BBC）、美国CNN电视台、彭博通讯社等宣布，由于担心记者被拘留的风险，他们将暂时停止在俄罗斯的新闻活动。
 
-2 月 28 日，乌克兰总统泽连斯基签署了一份欧盟成员资格申请，并在视频信息中呼吁允许提前进入欧盟。继乌克兰之后，前苏联摩尔多瓦和格鲁吉亚也在申请加入欧盟。
+担心反战舆论高涨的俄罗斯当局也封锁了脸书、推特和西方媒体的访问权限，从而进一步加强了信息管控。其目的是消除对普京政权入侵乌克兰不利的信息。对此，美国总统发言人普萨基在新闻发布会上表示，”这意味着要切断俄罗斯国民获得信息的渠道”。
 
-信息来源：[ＥＵ首脳会議　ウクライナ加盟、見送りへ](https://news.yahoo.co.jp/articles/82bf12c58ac46578d62bd472c58c81b07ad305de)
+文字版原文：[普京签署法案 传播有关军队的 “虚假信息”将处以监禁 脸书推特也被封锁](https://gnews.org/zh-hans/2110723/)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

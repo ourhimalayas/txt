@@ -2,31 +2,31 @@
 ---
 
 
-## 秘翻新闻｜全球300家大企业抵制 俄罗斯经济已死
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2136397/)
+## 有声 ｜美拟提案冻结俄罗斯黄金储备
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2131147/)
 
-**By:[秘翻新闻](https://gettr.com/post/pz7c8lf9ca)**
+**By:[秘翻新闻](https://gettr.com/post/pyzs3abc68)**
 
-**2022-03-10**
+**[2022-03-09](https://gettr.com/post/pyzs3abc68)**
 
 **今日新闻主题:**
 
-**1. 舆论关注铁链女 西安《窦娥冤》演出被叫停**
+**1. 香港疫情失控！一成警察染疫 医院在临终病人床下塞尸袋**
 
-**2.泽连斯基：近 35,000 人通过人道主义走廊获救**
+**2. 妇女节前后 中共国网民用各种方式声援铁链女**
 
-**3.欧盟扩大对俄制裁 黑名单新增160人**
+**3. 美国禁止从俄罗斯进口能源 俄军推进速度明显放缓**
 
-**4.人民币国际结算增加 专家：俄资金临时避险**
+**4. 麦当劳宣布暂时关闭在俄847家门店**
 
-**5.乌克兰警告切尔诺贝利存在核泄漏的风险**
+**5. 美中情局局长：不要低估习近平对台湾问题的决心**
 
-**🔗Gettr链接：**[https://gettr.com/post/pz7c8lf9ca](https://gettr.com/post/pz7c8lf9ca)
+**🔗Gettr链接：**[https://gettr.com/post/pyzs3abc68](https://gettr.com/post/pyzs3abc68)
 
 发布:星星
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171752.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

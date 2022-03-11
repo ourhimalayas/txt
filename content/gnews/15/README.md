@@ -2,63 +2,45 @@
 ---
 
 
-## 参议员泰德·克鲁兹：是时候结束暴虐的疫苗强制了！
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2141335/)
+## 樱花深度报道┃西方用来对付普京的武器（上）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2141445/)
 
-参议员泰德·克鲁兹： 华盛顿特区以外的全国所有地区都在醒来。 是时候结束暴虐的疫苗强制了！ 【视频中克鲁兹称赞美国卡车司机的行动代表了民意，疫苗强制违宪，是时候停止了】
+编译：东京樱花团/Hopkins
 
+【摘要】：美国在俄罗斯入侵乌克兰之前披露情报的方式，可能会极大地改变未来的地缘政治。乌克兰危机的证据表明，这种情报披露策略的回报远远大于风险。到目前为止，无论是新冠疫情的虚假信息，还是俄罗斯/中共对2016年大选的干预，虚假信息似乎占据了上风。乌克兰危机教会了我们所有人，即使在数字时代，真相和揭露仍然可以成为强有力的武器。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西方用来对付普京的武器（上）.png)图片：The Atlantic
 
-> The rest of the country outside of Washington, D.C. is waking up.
->  
-> It’s time to end the tyrannical vaccine mandate! [pic.twitter.com/H9MXuOb9Li](https://t.co/H9MXuOb9Li)
-> — Senator Ted Cruz (@SenTedCruz) [March 11, 2022](https://twitter.com/SenTedCruz/status/1502117538637004842?ref_src=twsrc%5Etfw)
+俄罗斯入侵乌克兰看起来像是可怕的冷战重演。再一次，一个强人统治着莫斯科，俄罗斯的坦克穿过边境，一个民主的国家日复一日，在每一条街道上为了生存而战，除了自制燃烧弹和对自由的强烈信仰，一无所有。尽管人们都在谈论新兴技术和新威胁，但乌克兰发生的暴力攻击让人感觉既原始又低科技，世界突然又在倒退。
 
+然而，在所有这些过去的回声中，**俄罗斯的入侵带来了一个全新的发展，可能会极大地改变未来的地缘政治：将高度机密的情报实时公开**。
 
+美国政府从未如此迅速、如此无情地披露一个对手如此多、如此细致的细节。在过去的几个星期里，似乎每天都有新的警告。这不是含糊不清的“俄罗斯可能在做什么”之类的警告，而是“这是卫星图像，显示在边境附近的这些特定地点有多达17.5万名俄罗斯士兵”之类的警告。就在俄罗斯总统普京声称自己没有入侵计划、乌克兰总统泽伦斯基抱怨美国在大肆渲染入侵威胁并扰乱乌克兰经济之际，情报披露不断出现——详细披露了最新的军队人数和地点、入侵时间表、伤亡估计等细节。感觉就像看着一场飓风迅速登陆。
 
-参议员兰德·保罗： 一家航空公司重新开始关心他们的员工和科学了. . .其他人会跟随吗？ 美国联合航空公司将让未接种疫苗的员工重返工作岗位
+被披露的情报不只是关于军事行动。美国和英国的情报机构还详细披露了俄罗斯情报行动核心的秘密计划，包括俄罗斯将如何在基辅发动政变，建立一个傀儡政权，并进行“假旗行动”旨在制造虚假的借口，为真正的入侵动机辩护。据美国官员称，俄罗斯的一项计划包括派遣破坏分子到乌克兰东部，攻击那里的俄罗斯分裂分子，制造出乌克兰发起侵略、而普京军队赶来救援的假象。另一项涉及制作一段描绘乌克兰暴行的虚假视频，视频中有演员和尸体。
 
+这代表着极其深远的改变。情报部门是一个被严密保护的领域，官员们不愿公开他们知道什么或者他们是如何知道的，因为他们害怕暴露了自己宝贵的消息来源，或者让对手掌握了自己的底牌。过去，美国只与最亲密的盟友公开分享情报，并限制其使用。为什么这次白宫会将情报公开到这种程度？到目前为止，拜登政府对其激进坦率的情报战略并没有透露太多原因。但有三种可能的解释。
 
+**首先，我们要在谎言之前揭露真相，给世界对信息战先打个预防针**。美国及其盟国披露情报的本质一直是“不要相信克里姆林宫告诉你的任何话。”俄罗斯人是欺骗专家，在前几次事件中——比如2014年吞并克里米亚和2016年美国大选——他们占据了上风。普京的策略是用谎言淹没该区域，尽早且频繁传播虚假信息。心理学研究表明了这样做真的极其有效：谎言一旦被相信，就很难动摇，即使面对压倒性的事实。信息战中的先发优势是巨大的。在骗局发生前揭露真相有助于凝聚盟友，并在美国和海外获得支持。
 
-> One airline resumes caring about their employees and science . . . Will others follow?
-> 
-> United Airlines will let unvaccinated employees return to jobs [https://t.co/6yRt0ftRF9](https://t.co/6yRt0ftRF9)
-> — Rand Paul (@RandPaul) [March 11, 2022](https://twitter.com/RandPaul/status/1502104959290122241?ref_src=twsrc%5Etfw)
+**披露情报也给普京带来阻力，让他失去平衡**。普京没有按照自己的时间表来发号施令和处理乌克兰危机，而是不得不对华盛顿做出反应。他不得不把自己最宝贵的资产时间花在担心自己的情报弱点上：美国及其盟友是如何知道他们所知道的事情的？他们将如何利用这些信息？俄罗斯情报机构的哪些漏洞必须修复？普京越是对自己的情报失误耿耿于怀，他就越不会把注意力放在伤害他人上。美国网络司令部在2018年采取了类似的方法，称为持续接触。这个想法很简单，但很强大：通过让对手更努力地防守来削弱对手的进攻。普京是这种战略的理想目标。他是一名有妄想症倾向的前俄罗斯情报人员，不仅对外国的敌人，他对国内的敌人也非常痴迷。
 
+**最后，主动披露情报会让其他国家更难以在冲突中袖手旁观，或者躲在普京的遮遮掩掩的故事后面，向他提供无声的支持**。你可以把它看作是一种反向秘密行动——强迫各方揭露真实情况，这样每个人都不能骑墙，必须选边站。
 
+（未完待续）
 
-比尔.格茨： 国家情报总监：乌克兰实验室没有开展生物战（研究）工作，美国的支持仅限于生物安全和安保。 对俄罗斯接管实验室的担忧是基于病原体可能被滥用 【转比尔.格茨华盛顿时报报道：国家情报总监称：乌克兰实验室不涉及生物武器，尽管俄罗斯指控】
+作者：艾米·泽加特（Amy Zegart）/《大西洋》杂志特约作家
 
+*艾米·泽加特（Amy Zegart），是斯坦福大学胡佛研究所和弗里曼·斯波格利研究所的高级研究员，著有《间谍、谎言和算法：美国情报的历史和未来》*。
 
+信息来源：
 
-> DNI: Ukrainian labs are not conducting biowarfare work and US support was limited to biosafety and security. Concerns about Russian takeover of the labs is based on possible misuse of pathogens [https://t.co/vOGFF5wpmH](https://t.co/vOGFF5wpmH)
-> — Bill Gertz (@BillGertz) [March 10, 2022](https://twitter.com/BillGertz/status/1501973283536838656?ref_src=twsrc%5Etfw)
+[The Weapon the West Used Against Putin](https://www.theatlantic.com/ideas/archive/2022/03/russia-ukraine-invasion-classified-intelligence/626557/)
 
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
 
-
-众议员迈克·华尔兹： 普京有使用构陷花招的历史。看看叙利亚，俄罗斯在阿萨德的军队中使用了少量化学制剂，以此作为使用化学武器进行报复的借口。 这可能为普京在乌克兰策划同样的事情奠定了基础。 【附福克斯视频：美国表示：我们在乌克兰没有生化武器实验室】
-
-
-
-> Putin has a history of using false flags. Just look at Syria where Russia used minor chemical agents on Assad's forces as a pretext to retaliate with chemical weapons.
-> 
-> This could be setting the stage for Putin to orchestrate the same in Ukraine. [pic.twitter.com/DOrQzN4cCz](https://t.co/DOrQzN4cCz)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 10, 2022](https://twitter.com/michaelgwaltz/status/1502048472194768897?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可·卢比奥： 极权主义精神并没有随着冷战的结束而消亡 但现在在亚洲、东欧和中东，它又一次存活于大国内部 【附视频，卢比奥议员在参议院情报听证会上致开幕词】
-
-
-
-> The spirit of totalitarianism did not die with the end of the Cold War 
-> 
-> But now in Asia, Eastern Europe and the Middle East it once again lives inside of great powers
-> 
->  [pic.twitter.com/KhOf1CCosB](https://t.co/KhOf1CCosB)
-> — Marco Rubio (@marcorubio) [March 10, 2022](https://twitter.com/marcorubio/status/1502027110168285195?ref_src=twsrc%5Etfw)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
 
  
 
