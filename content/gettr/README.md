@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 10:36 AM (UTC)`
+
+【Ukraine Rescue】03/10/22   Nicole introduces the rescue operation of NFSC to the volunteer of the Spanish charity foundation ‘No Name Kitchen’ and mentions that while we have been working day and night to rescue the refugees from Ukraine, the CCP government used state power to hack our email rescue system.<br/><br/>【乌克兰救援】03/10/22  妮可战友向西班牙公益基金No Name Kitchen的志愿者介绍新中国联邦的救援行动，并提到：就在我们没日没夜地救助来自乌克兰的难民时，中共政府却动用国家力量黑客攻击新中国联邦的电子邮件救援系统<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group26/getter/2022/03/11/10/4dc8c683-1bc3-ba52-cdec-66dc0f266490/out.jpg)
+
+---
+
 `@miles 3/11/2022 10:05 AM (UTC)`
 
 【Ukraine Rescue】WenGeQiXiong explains the New Federal State of China’s rescue operation to a foreign reporter. We provide free shuttle buses from Lviv in Ukraine to Krakow in Poland. We also offer free flights to refugees, including Chinese, Ukrainians, or any foreign national who needs help.<br/><br/>【乌克兰救援】文戈七雄向外国记者介绍新中国联邦救援行动。提供从乌克兰利沃夫到波兰克拉科夫的免费巴士。还面向华人、乌克兰人及任何需要帮助的外国人提供免费包机<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #rolfrescue 
@@ -147,13 +154,6 @@
 
 2022.03.10 NFSC News  Global Media Focus on Ukraine Rescue, New Federal State of China in the Spotlight； A Chinese and Ukrainian Couple talked about their Rescue Experience
 ![img](https://media.gettr.com/group30/origin/2022/03/11/00/eb3d4270-c320-3540-94b1-bd287cbb2aea/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/10/2022 11:05 PM (UTC)`
-
-3/9/2022 Miles Guo: “Chained Dream” is a masterpiece of Tang Ping and William Wong. This song can do far more harm to the CCP than missiles and has opened the door for the Chinese women to let the sun shine into the darkness, indicating the tremendous power of social media and music. Singing “Chained Dream” has so far given me the most sense of achievement apart from taking down the CCP.<br/><br/>3/9/2022 文贵直播：《铁锁梦》是唐平和威廉王的人生巨作，这首歌对中共的杀伤力远超导弹，它为中国女性打开了阳光之门，体现出了社交媒体和音乐的巨大力量！演唱《铁锁梦》是除了灭共以外迄今最让文贵有成就感的事！<br/>
-![img](https://media.gettr.com/group33/getter/2022/03/10/23/cc28c083-6c06-61d1-667b-a13dd1a9499e/out.jpg)
 
 ---
 
