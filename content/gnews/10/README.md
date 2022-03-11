@@ -2,27 +2,31 @@
 ---
 
 
-## 有声｜美国防官员：乌克兰将成为台湾防御的示范
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2142211/)
+## 樱花FM|日本3月6日确诊感染53969人、 死亡132人
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2142244/)
 
-By:**秘翻新闻**
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/日本3月6日确诊感染53969人、-死亡132人.png)
+在东京，已确认9289人冠状病毒感染。
 
-**2022-03-11**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-24.png)图片来源  路透社
-[路透社华盛顿3月10日报道，美国高级国防官员周四在参议院听证会上表示，如果中国选择通过攻击侵犯台湾的“主权”，乌克兰的顽强抵抗可能成为台湾自卫的典范。](https://www.reuters.com/world/china/ukraine-is-model-taiwan-defense-should-china-violate-its-sovereignty-us-official-2022-03-10/)
+东京都新增感染人数为9289人，较一周前的周日（2月27日）减少1000多人。 这是自 1 月 23 日以来的第一个周日，感染人数已降至 10,000 以下。
 
-[助理国防部长玛拉·卡林说，“我们现在在乌克兰看到的情况对台湾来说是一个非常有价值的案例研究，说明为什么台湾需要尽其所能建立不对称能力，让其人民做好准备，这样它就可以尽可能对抗中国的侵略，”](https://www.reuters.com/world/china/ukraine-is-model-taiwan-defense-should-china-violate-its-sovereignty-us-official-2022-03-10/)
+过去 7 天的平均感染人数为 11,001 人，是前一周的 98.7%。
 
-[助理国务卿杰西卡刘易斯告诉参议员，美国继续敦促台湾采购不对称系统。台湾需要优先考虑短程防空、海军水雷、海岸防御和巡航导弹。目前，美国和台湾越来越多地就什么是非对称系统达成一致意见。](https://www.reuters.com/world/china/ukraine-is-model-taiwan-defense-should-china-violate-its-sovereignty-us-official-2022-03-10/)
+此外，奥密克戎重症病床使用率为26.2%。 新增死亡病例12人，按全市常规标准重症病例较前一日增加1人至71人。
 
-[据称，基于乌克兰后备军改革的启示，台湾刚刚创建了“一个全面的国防动员组织体系”，并与美国国民警卫队合作。](https://www.reuters.com/world/china/ukraine-is-model-taiwan-defense-should-china-violate-its-sovereignty-us-official-2022-03-10/)
+同时宣布，全国新增感染病例5万3969人，死亡病例132人。
 
-秘翻新闻 自由信仰 编译报道
+文字版原文：
 
-发布 : 恩典
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
+| [日本3月6日确诊感染53969人、 死亡132人](https://gnews.org/zh-hans/2118366/) |   |
+| --- | --- |
+
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

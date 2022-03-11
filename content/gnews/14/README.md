@@ -2,18 +2,20 @@
 ---
 
 
-## 樱花FM|美国新任驻华大使抵达中共国
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2142199/)
+## 樱花FM|中日财经爆:俄罗斯威胁世界 其主权债务或将违约
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2142201/)
 
 音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/SQJ5M6TfatgGhlpWYe62O4QVhMwsGwyKGvnLp8SWWgIoVO_EUylKGGO7dK-1HNaw0ryF-1sP0Vb42b4EpA3sumQKhWVIR_nIm8NceSYLlMqqokisyM4yrvOxD7389lYCMdVBvDir)
-美国驻华大使馆官方微信周六（3月5日）消息，新任美国驻华大使尼古拉斯·伯恩斯（Nicholas Burns）已抵达中共国，与他同行的还有因疫情延后出行的美国使团人员和家人，他们将隔离三周。
+![](https://lh5.googleusercontent.com/JxaZEofckpM0hs8nqiAj9RXzUHiwDMxqLY-L6ZS1998KfhOG_LDR7C4QdVnNS_QNV6MGznxfD8ljsy5koaNwsHfZNC0SvD-hqDLBeWBxHaQfzLV65S-q7rxAnk-o2DU17VsI497N)
+俄罗斯周日（3月6日）表示，其主权债券的偿付将取决于西方国家对该国实施的制裁措施。这令外界担忧，该国可能面临重大外债违约，相似场景出现在前苏联1917年十月革命后的几年中。
 
-自特里·布兰斯塔德(Terry Branstad) 2020年10月辞职以来，美国一直没有驻华大使。美国参议院于去年12月16日批准了拜登总统对伯恩斯的提名。
+俄罗斯财政部表示，从现在开始，俄罗斯将使用卢布向居民支付以外币计价的债券。向非居民支付这种款项的实际可能性，将取决于外国对俄罗斯联邦采取的限制性措施。由于俄政府的限制，俄罗斯或许无法进行债券支付。
 
-伯恩斯曾担任美国负责政治事务的副国务卿、美国驻北约和希腊大使、美国国务院发言人，以及负责苏联与俄罗斯事务的国家安全委员会成员等职务。
+在俄罗斯总统普京于2月24日下令军事入侵乌克兰后，其6,400亿美元储备大部分被西方冻结，这引发了俄罗斯技术性违约的可能性。
 
-文字版原文：[美国新任驻华大使抵达中共国](https://gnews.org/zh-hans/2117861/)
+这可能是俄罗斯在一个多世纪以来首次重大债务违约。即使在苏联解体时，俄罗斯也承担了其外债。
+
+文字版原文：[中日财经爆|俄罗斯威胁世界 其主权债务或将违约](https://gnews.org/zh-hans/2118266/)
 
 *编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*

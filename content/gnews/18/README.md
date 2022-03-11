@@ -2,31 +2,46 @@
 ---
 
 
-## 有声｜中共国疫情快速飙升 半个中国现新病例
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2141906/)
+## 受俄军控制，切尔诺贝利核电站断电
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141952/)
 
-**By:秘翻新闻**
+撰稿：日本方舟农场 Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
+3月9日早上，作为人类历史上核灾难象征的切尔诺贝利核电站，停止了向国际原子能机构传输数据。当天下午，乌克兰国家能源公司表示，切尔诺贝利核电站，已与电网断开连接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1073.png)ttutu’ptu’pitu’piatu’pian图片来自https://cdn.mos.cms.futurecdn.net
+早在2月24日，俄罗斯军队就已经侵占切尔诺贝利核电站。核电站的断电缘由尚不清楚，俄罗斯军队接下来将采取什么措施也不得而知。
 
-**2022-03-11**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5834BAC1-C7CD-4B88-A701-2B7A396C1477.jpeg)
-综合媒体消息。中国大陆的中共病毒疫情继续快速飙升。周四新增感染人数创两年以来单日感染人数新高，吉林、山东和甘肃是重灾区。
+乌克兰国家安全和情报局特别通信和信息保护局表示，核电站有2万个乏燃料组件需要持续冷却。如果没有电，水泵将无法冷却，储水池中的温度将升高。蒸发将导致核排放。设施内没有通风，所有人员将遭受危险剂量的辐射。此外，放射性云将通过风，转移到乌克兰、白俄罗斯、俄罗斯等欧洲其他地区。
 
-据中共国家卫健委周四通报，3月9日全国单日新增本土确诊病例402例，另有新增本土无症状感染者435例，创两年来中国单日新增病例的新高。
+乌克兰外长库列巴证实了这一消息，并表示，普京发动的野蛮战争正将整个欧洲置于危险之中。
 
-感染者分布在全国15个省份，吉林、山东青岛和上海市等地区是疫情重灾区。
+新闻链接：
 
-据新唐人北京时间3月11日报道，截至3月10号，上海近200个小区发现疫情，当局大力兴建方舱医院。有市民透露，已出现食物短缺危机。
+[切尔诺贝利核电站被俄军控制，国际原子能机构敦促保障核安全](https://news.un.org/zh/story/2022/02/1099752)
 
-腾讯新闻3月10日报道，3月9日，吉林省吉林市单日新增本土确诊病例134例，无症状感染者149。其中，吉林农业科技学院出现了学校聚集性疫情暴发。
+[切尔诺贝利核电站监测系统停止向国际原子能机构传输数据](https://mil.news.sina.com.cn/world/2022-03-09/doc-imcwiwss5004943.shtml)
 
-据报道，学校外集结了30辆大巴车，每辆车核载55人左右，车辆陆续进入校园，将阳性病例的密接、次密接学生转运出校。
+[外媒：乌克兰切尔诺贝利核电站已完全断电](https://www.sohu.com/a/528496947_120046968?scm=1004.844964104975351808.0.0.5610&amp;spm=smpc.home.mil-pics.2.1646823603075DfPYSas)
 
-秘翻新闻 菜园子 二丫 编辑报道
+[Chernobyl ‘cut off from grid by Russians’, sparking fears over cooling of spent nuclear fuel](https://www.independent.co.uk/news/world/europe/ukraine-chernobyl-nuclear-power-plant-outage-b2031874.html)
 
-发布:星星
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-59.jpg)
+
+编辑：飞虹
+
+总编：雪梨
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

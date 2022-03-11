@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 7:09 AM (UTC)`
+
+3/9/2022 Miles Guo: The era of “democracy without autocracy” has officially arrived. Europe will re-integrate and make Ukraine the center of its high-tech, new energy, space technology, digital economy, and digital security. Communist China will disintegrate. Only the New Federal State of China has told the Chinese people that the anti-Chinese movements are taking place.<br/><br/>3/9/2022 文贵直播：“无皇有主”的时代已到来；欧洲将重新整合并以乌克兰为其高科技、新能源、太空科技、数字经济和数字安全的中心；中共国将解体！只有新中国联邦告诉了中国人，排华正在发生<br/>
+![img](https://media.gettr.com/group19/getter/2022/03/11/07/ceb3374a-463f-9b63-72ff-61434bead21e/out.jpg)
+
+---
+
+`@miles 3/11/2022 7:05 AM (UTC)`
+
+3/9/2022 Miles Guo: The era of “democracy without autocracy” has officially arrived. Europe will re-integrate and make Ukraine the center of its high-tech, new energy, space technology, digital economy, and digital security. Communist China will disintegrate. Only the New Federal State of China has told the Chinese people that the anti-Chinese movements are taking place.<br/><br/>3/9/2022 文贵直播：“无皇有主”的时代已到来；欧洲将重新整合并以乌克兰为其高科技、新能源、太空科技、数字经济和数字安全的中心；中共国将解体！只有新中国联邦告诉了中国人，排华正在发生<br/>
+![img](https://media.gettr.com/group47/getter/2022/03/11/07/22004fd6-d1b5-f866-0399-02e90bf0a473/out.jpg)
+
+---
+
 `@miles 3/11/2022 2:47 AM (UTC)`
 
 【Ukraine Rescue】03/10/2022 The large tent built by our New Federal State of China and the Rule of Law Foundation volunteers in Medyka has become the transit point for the Red Cross<br/><br/>【乌克兰救援】03/10/2022 新中国联邦和法治基金志愿者们在Medyka搭建的大帐篷成为国际红十字会的中转站
@@ -140,20 +154,6 @@
 
 The New Federal State of China and Rule of Law Foundation would like to find the boy in the video and his family, and we are willing to provide the support and assistance they need.<br/>Please contact our 24-hour helpline<br/><br/>新中国联邦及法治基金希望寻找视频中的小朋友及其家人，我们愿意为他们提供所需要的支援和救助。请联系我们24小时救助热线<br/><br/>Нова Федеральна Держава Китаю та Фонд Верховенство Права хотіли би знайти хлопчика на відео та його сім'ю, і ми готові надати їм необхідну підтримку та допомогу.<br/>Зверніться до нашої цілодобової гарячої лінії за адресою：<br/><br/>+1 720-657-6776 <br/>+1 719-224-4232<br/>+48 508-532-712 <br/>+48 508-531-518
 ![img](https://media.gettr.com/group20/getter/2022/03/10/22/3ba87e08-1fe5-79a0-19f7-5579382eb73c/out.jpg)
-
----
-
-`@miles 3/10/2022 9:56 PM (UTC)`
-
-【Ukraine Rescue】03/10/22 Many international rescuers who moved by NFSC members’s international spirit volunteered to help us setting up the  Ukraine Rescue  Station in Medyka, Poland <br/><br/>【乌克兰救援】03/10/22 很多国际救援人员被新中国联邦志愿者的精神所感动，协助我们快速搭建起了梅迪卡的救援站。
-![img](https://media.gettr.com/group50/getter/2022/03/10/21/1aacf217-6084-97d2-a339-5fb687b40c1c/out.jpg)
-
----
-
-`@miles 3/10/2022 9:49 PM (UTC)`
-
-【Ukraine Rescue】03/10/22 NFSC Ukraine Rescue  Station in Medyka, Poland has attracted not only a large number of refugees but also international media attention due to its well-equipped facilities.<br/><br/>【乌克兰救援】03/10/22 新中国联邦乌克兰救援行动在波兰梅迪卡的救援站因设施完备，不仅吸引了大批难民，也赢得了国际媒体的关注
-![img](https://media.gettr.com/group49/getter/2022/03/10/21/3d9af961-db3c-ce0d-3d99-63fe339aa65b/out.jpg)
 
 ---
 

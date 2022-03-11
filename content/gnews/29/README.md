@@ -2,34 +2,38 @@
 ---
 
 
-## 美国联合航空公司让未接种中共病毒疫苗的员工重返工作
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2141507/)
+## 星链助力新中国联邦和法治基金的乌克兰救援行动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2141532/)
 
-#### 撰稿：彩虹 
+#### 【雅典娜快讯】，紧贴时代脉搏 
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-51.jpg)图片来源：赫芬顿邮报
-根据《国会山报》3月10日的报道，美国联合航空公司（United Airlines）将让未接种中共病毒（COVID-19）疫苗的员工在3月28日之前返回全职工作。
+整理/编辑：小红帽
 
-在《国会山报》获得的一份备忘录中，这家位于芝加哥的航空公司写道，大约2220名员工已经满足了与疫苗相关的合理便利条件，可以重返工作岗位。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-11_11-32-40.png)图片来源：郭文贵先生盖特视频截图
 
-另据《路透社》报道，联合航空公司是美国首批强制要求其雇员接种中共病毒疫苗的主要雇主之一。
 
-美联航指出，以美国疾病控制和预防中心（CDC）的口罩指南为例，最近美国的病毒病例有所下降。
+根据3月10日新中国联邦和法治基金前线记者妮可的报道，新中国联邦和法治基金的乌克兰救援行动志愿者现在所使用的通讯是由星链提供的。
 
-本月早些时候，美国疾病控制和预防中心放宽了对大多数美国人的戴口罩建议，建议生活在中共病毒“低”风险或“中”风险水平社区的人可以不戴口罩。
+妮可表示：“新中国联邦和法治基金的义工要感谢埃隆‧马斯克（Elon Musk），因为星链的两条线正好在波兰边境梅迪卡难民营，新中国联邦和法治基金两个帐篷的上面。星链让义工们的通讯非常方便。 ”
 
-备忘录说，“这些变化表明，大流行病正开始有意义地消退，因此，我们相信我们可以安全地开始让有适应能力的员工返回他们的工作岗位。”
+早在2月26日，美国太空探索技术公司（SpaceX）首席执行官埃隆‧马斯克宣布，在乌克兰启动了星链服务，为其提供网络支持。
 
-备忘录也指出，如果中共病毒的另一个变体出现，并且（向好）趋势逆转，该公司将重新评估其协议。
+星链是SpaceX公司的一项卫星宽带服务计划，通过在地球上空的预定轨道部署由1.2万颗卫星组成的巨型卫星星座、其中包括在近地轨道部署的1584颗卫星，搭建一个覆盖全球的互联网服务网络。
 
-但是，《路透社》却指出，美联航之所以如此做，是因为美国上诉法院上个月以2比1的投票结果下令，重新审查下级法院关于不阻止美联航执行其强制员工接种中共病毒疫苗任务的裁决。
+资料来源：
 
-报道说，在去年12月的一份声明中，美联航首席执行官斯科特·柯比（Scott Kirby）却说，只有200名员工在不遵守公司的强制接种中共病毒疫苗后被解雇。
+1. [郭文贵先生2022年3月11日盖文](https://www.gettr.com/post/pzd5hu2551)
+2. [马斯克称已为乌克兰启动“星链网络”](https://www.zaobao.com.sg/realtime/world/story20220227-1247089)
 
-**新闻来源**
 
-[United Airlines letting unvaccinated employees return to work](https://thehill.com/policy/transportation/aviation/597715-united-airlines-letting-unvaccinated-employees-return-to-work)
+发布： tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
