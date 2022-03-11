@@ -2,57 +2,48 @@
 ---
 
 
-## 【秘翻在线】美国发誓要停止俄罗斯的心理操纵
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2141761/)
+## 日本援乌战略防御物资起运
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141895/)
 
-**撰稿：Grace**
+撰稿: 香草山农场- Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
+3月8日，一架装载战略防御物资的日本自卫队的飞机，从航空自卫队小牧基地出发，飞往乌克兰。据悉，除了装载防弹背心、头盔和一些防护用品外，这架飞机还装载有食品、卫生用品、相机、发电机、帐篷和冬衣等战时应急物资，支援乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1072.png)图片来自：https://cdn-japantimes.com/
+日本防卫省发出声明，已和乌克兰政府约定，禁止将日本提供的防卫物资另作他用，也禁止转移给第三国使用。此外，内阁官房长官松野博一同日表示，日本并不打算向乌克兰提供致命性武器。
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-10-at-11.40.55-PM.jpeg)**图片来源： cambodiaxp**
-据《福克斯新闻》3月10日报道，俄罗斯和中共国正在加倍努力地声称美国正在饱受战争蹂躏的乌克兰各地的 “生物实验室” 进行生物武器研究。华盛顿和基辅的领导人反击说这种说法是荒谬的。
+自第二次世界大战结束后，日本一直严格遵守《和平宪法》规定，不介入海外军事活动，不向冲突各方提供防卫物资。但在3月8日的声明中，日本防卫省再度谴责俄罗斯违反国际法，对乌克兰发动战争、侵犯乌克兰主权与领土完整，动摇了欧亚的国际秩序基础。日方应乌克兰政府请求，及时提供防卫物资，并将继续尽一切努力协助乌克兰。
 
-俄罗斯克里姆林宫结盟的媒体RIA Novosti早些时候报道，俄罗斯外交官德米特里·波利安斯基（Dmitry Polyanski）已经要求联合国安理会在周五的会议上讨论所谓的研究。
+链接:
 
-据报道，俄罗斯国防部的指控美国在乌克兰实验室花费2亿美元用于所谓的 “生物武器计划”。俄罗斯声称其军队在弗拉基米尔·普京入侵乌克兰期间发现了证据，他称之为 “特别军事行动”。
+[Japan sends military protective equipment to Ukraine](https://www.ukrinform.net/rubric-ato/3424220-japan-sends-military-protective-equipment-to-ukraine.html)
 
-美国驻联合国代表团发言人奥利维亚·道尔顿（ Olivia Dalton ）周四告诉媒体说：“这正是我们警告过俄罗斯可能发起的假象努力，以证明生物或化学武器攻击的正当性。俄罗斯有使用化学武器的详细记录，并且长期以来一直违反国际法保持着生物武器计划。”
 
-“我们不会让俄罗斯心理操纵世界，或利用联合国安理会作为宣传他们的虚假信息的场所，”她补充说。
 
-据报道，周四早些时候，当被问及中共国对这些说法有什么证据时，中共外交部发言人赵立建没有提供任何证据。
 
-另一方面，周四早些时候，美国国防部官员表示，在基辅有五个生物研究实验室–侧重于 “诊断、治疗、治疗、预防和疫苗”–而不是军事或生物武器研究。
 
-这些官员说：“在乌克兰或世界其他地方没有国防部的生物武器实验室。”
+> To deliver bulletproof vests and helmets to [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw), KC-767 departed from Komaki Air base. JMOD/JSDF will continue to make every effort to assist Ukraine.
+> For [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/V74cPpTaby](https://t.co/V74cPpTaby)
+> — Japan Ministry of Defense/Self-Defense Forces (@ModJapan\_en) [March 8, 2022](https://twitter.com/ModJapan_en/status/1501219091067342848?ref_src=twsrc%5Etfw)
 
-白宫新闻秘书珍·普萨基（Jen Psaki）周三称关于美国经营的生物武器实验室全球网络的说法是 “荒谬的”。她还警告说，这些说法可能是企图为俄罗斯对乌克兰的化学或生物攻击制造掩护，并指出虚假信息是克里姆林宫武器装备的一部分。
 
-她说：“现在，俄罗斯提出了这些虚假的主张，而中共国似乎也赞同这种宣传，我们都应该警惕俄罗斯可能在乌克兰使用化学或生物武器，或者利用这些武器制造一个假的旗帜行动。这是一个明显的模式，没有人应该上当。”
 
-据报道，俄罗斯的联合国请求是在国际社会呼吁取消该国在安理会的常任理事国席位之后提出的。
+[Japan Will Send the Ukrainian Military Basic Supplies](https://www.wsj.com/livecoverage/russia-ukraine-latest-news-2022-03-04/card/japan-will-send-the-ukrainian-military-basic-supplies-VOtpnPjTX2ooK8dqQ8o8)
 
-美国田纳西州参议员玛莎·布莱克本（Marsha Blackburn）在俄罗斯入侵乌克兰的几天后说：“莫斯科正在通过其作为安理会常任理事国的角色推动联合国的决策。俄罗斯必须被放逐出国际社会。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-59.jpg)
 
-报道指出，30年前苏联解体时，俄罗斯继承了其作为联合国安理会五个常任理事国之一的席位。此举在当时没有引起争议–但它赋予克里姆林宫对安理会决定的否决权。
+编辑:飞虹
 
-报道称，上个月，当安理会提出一项谴责普京入侵乌克兰并要求俄罗斯撤军的决议时，莫斯科使用了这一否决权。
+总编: 雪梨
 
-据报道，乌克兰总统沃洛季米尔·泽伦斯基也曾经呼吁联合国撤销俄罗斯的安理会席位。
+校正/发稿：浪迹天涯
 
-另外，他在周四发布在Telegram上的一段视频中说：“在我的土地上没有开发任何化学武器或任何其他大规模杀伤性武器，全世界都知道这一点。”
-
-负责政治事务的副国务卿维多利亚-努兰德（ Victoria Nuland ）说：“乌克兰有生物研究设施。事实上，我们相当担心俄罗斯军队、俄罗斯部队可能试图控制这些设施，所以我们正在与乌克兰人合作，研究他们如何防止任何这些研究材料落入俄罗斯部队手中。”
-
-报道称，苏联解体后，美国领导了一项国际努力，以确保和拆除苏联时代遗留的大规模毁灭性武器，包括在乌克兰。2005年8月，华盛顿和基辅同意合作，以防止 “可用于开发生物武器的技术、病原体和专业知识的扩散”。
-
-白宫表示，除了在20世纪90年代未能确保许多苏联武器的安全之外，俄罗斯也有违反有关生物和化学武器的国际法律的历史。
-
-据报道，五角大楼新闻秘书约翰·柯比（John Kirby）周三也谈到了这些说法，说它们是 “胡扯” 和 “典型的俄罗斯宣传”。
-
-他说：“我们没有在乌克兰境内发展生物或化学武器，这没有发生。”
-
-**新闻来源：**** [US vows to halt gaslighting after Russia asks UN Security Council for special meeting on ‘biolabs’ in Ukraine](https://www.foxnews.com/world/ukraine-russia-un-security-council-biolabs)**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,82 @@
 ---
 
 
-## 有声｜美国防官员：乌克兰将成为台湾防御的示范
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2142211/)
+## 定格二十五岁
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2142300/)
 
-By:**秘翻新闻**
+作者：蓝之灵（Hortensia)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-12.png)
+![](https://cdn.discordapp.com/attachments/728490324502249522/951726783760326716/IMG_2402.png)
 
-**2022-03-11**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-24.png)图片来源  路透社
-[路透社华盛顿3月10日报道，美国高级国防官员周四在参议院听证会上表示，如果中国选择通过攻击侵犯台湾的“主权”，乌克兰的顽强抵抗可能成为台湾自卫的典范。](https://www.reuters.com/world/china/ukraine-is-model-taiwan-defense-should-china-violate-its-sovereignty-us-official-2022-03-10/)
+在乌克兰土地上
 
-[助理国防部长玛拉·卡林说，“我们现在在乌克兰看到的情况对台湾来说是一个非常有价值的案例研究，说明为什么台湾需要尽其所能建立不对称能力，让其人民做好准备，这样它就可以尽可能对抗中国的侵略，”](https://www.reuters.com/world/china/ukraine-is-model-taiwan-defense-should-china-violate-its-sovereignty-us-official-2022-03-10/)
+开放了生命之花
 
-[助理国务卿杰西卡刘易斯告诉参议员，美国继续敦促台湾采购不对称系统。台湾需要优先考虑短程防空、海军水雷、海岸防御和巡航导弹。目前，美国和台湾越来越多地就什么是非对称系统达成一致意见。](https://www.reuters.com/world/china/ukraine-is-model-taiwan-defense-should-china-violate-its-sovereignty-us-official-2022-03-10/)
+定格二十五岁
 
-[据称，基于乌克兰后备军改革的启示，台湾刚刚创建了“一个全面的国防动员组织体系”，并与美国国民警卫队合作。](https://www.reuters.com/world/china/ukraine-is-model-taiwan-defense-should-china-violate-its-sovereignty-us-official-2022-03-10/)
+为了祖国 献奉生命
 
-秘翻新闻 自由信仰 编译报道
+保卫这片土地
 
-发布 : 恩典
+我无比荣耀
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
+把荣光还给乌克兰
+
+让父老乡亲平安健康
+
+如果我的生命
+
+能够换来侵略者失败
+
+那么
+
+请再让我牺牲一万次
+
+勇敢的乌克兰
+
+英雄遍地
+
+我们不会放弃
+
+保卫家人和土地
+
+定格二十五岁
+
+我含笑离去
+
+等到赶跑了侵略者
+
+请记得
+
+娜塔丽娅
+
+哈尔科夫的军士
+
+乌克兰土地上
+
+英雄遍地
+
+如果我的生命
+
+能够换来 赶跑
+
+侵略者
+
+我愿意
+
+再牺牲一万次
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-50.png)
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-12.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
