@@ -2,30 +2,31 @@
 ---
 
 
-## 乌克兰救援：新中国联邦人展现了受世界人民尊重和喜欢的中国人形象
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2146277/)
+## 世界的变化
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2146389/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/03/啊.jpeg)
-图片：新中国联邦记者
+文编：Hima
+听写：叮叮
+视频：七哥
 
-新中国联邦梅迪卡营救中心 3.11.2022：
+2022-03-06直播摘录
 
-“世界各大的媒体，参观我们的帐篷，看到我们有最好、最大设备，最好服务设施的时候，他们每个人的脸上露出了不可思议的表情，因为他们没有想到，在这个乌克兰的边境，在波兰的一个小镇子上，出现这么多华人的面孔，而且他们操着英语，意大利语、西班牙语、俄语的这样一群中国人，为这些素不相识的，而且种族肤色都不一样的难民，提供着最人道的服务”，Nicole战友实时和郭文贵先生连线，讲述发生在梅迪卡难民接待中心的各国媒体对我们新中国联邦救援活动的反应。
+人类已经进入了前所未有的大变局。我昨天下午和一个咱们合作的一个公关公司，我告诉他。他在问我很多问题的时候，他说:“你觉得世界，你的判断会是什么样的？” 我说：“就像我告诉你的一样，人类走向一个真的是…无皇有主的时代，正式到来。” 什么叫无皇有主？没有皇帝，只有以民为主的天下正式到来。” 世界上不可能再看到未来的俄罗斯，不可能！也不会有今天的欧洲。你会很快看到世界上俄罗斯和欧洲被一个大的一个欧洲整体所代替。那叫什么？过去叫Europe，Europe—欧洲。现在我告诉你，叫乌克兰州，叫U-rope（音），没有俄罗斯，叫 U-yours(音)，不可能再有俄罗斯的存在，它变化就会这么大。
 
-就在她讲述的时候，有一家大的国际电视台，正拿着长焦距的摄像在对我们这边拍摄。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/不.jpeg)
-Nicole说，每一天会有世界各大的媒体，来采访拍摄法治基金和新中国联邦在梅迪卡营救中心搭建的帐篷。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-当这些媒体看到难民们能够在我们提供的舒适环境里休息，包括妇女、婴儿，还有老人，还有小猫、小狗，他们经常会问：你们这个法治基金和新中国联邦是什么样的一个组织？你们是中国人吗？
+**关注我们**
 
-我们的战友们会回答：是的，我们是新中国联邦的中国人！他们都是会心的笑了，因为，所有这些战地的记者，都是对国际政治形势很清楚的，所以，他们都清楚知道中共是伪政权，不代表中国人，更不代表中国，他们在这个梅迪卡国际难民中心见到的，才是真正的可贵的中国人，是受世界人民所尊重和喜欢的中国人！
+Discord 账号
 
-为我们前线的战友们喝彩，他们以实际行动粉碎共产党带给中国人的耻辱，他们塑造我们中国人的新形象！
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-来源：
+Gettr 账号
 
-[2022.3.11大直播](https://gettr.com/streaming/pzhjd9327f)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,40 +2,26 @@
 ---
 
 
-## 中共以疫情为理由，开始折腾小学生
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2145625/)
+## 中共凤凰卫视虚假报道掩盖俄入侵乌克兰事实
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2145626/)
 
-作者：香草山教育部 -vasavarti 文·明#5267
+编辑：思澈
+
+邪恶中共的凤凰卫视虚假报道，把入侵乌克兰的俄罗斯军人报道为乌克兰军人。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/47EFA64F-4EA7-46B8-817D-4183FCF12888.jpeg)
+
+中共凤凰卫视驻莫斯科首席记者卢宇光跟随俄罗斯军队入侵乌克兰，在报道中虚假欺骗观众把入侵的俄罗斯军人报道为乌克兰军人。乌克兰军人带着黄色袖带，俄罗斯军人带着红色袖带，这是世界公认的识别标志。
+
+优秀的战地报道既能让受众在第一时间获知前线战事，也能在一定程度上增加交战双方对战事的了解。由于战地报道对于舆论走向的引导，战地记者的工作也成为了政治传播的组成部分。
+
+中共凤凰卫视是中共喉舌，凤凰卫视报道代表了中共的政治立场，中共支持俄罗斯入侵乌克兰，支持犯罪行为的中共就是犯罪同谋者。
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+*发布：思澈*
 
 
-
-据上海卫健委信息，上海 2022 年 3 月 10 日，新增本土新冠肺炎确诊病例 11 例，新增本土无症状感染者 64 例，新增境外输入性新冠肺炎确诊病例 32 例，新增境外输入性无症状感染者 10 例。据上海市民信息，3 月 11 号，由于核酸登记人数太多，上海健康云崩溃，暂停核酸检测服务。上海的小学生在学校隔离时连床都没有，趴在桌子上，裹着被子睡觉。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-43.jpg)
-
-现在流行的病毒致病程度并不高，大部分都是无症状感染者，英国等很多国家取消了各种强制措施，不再让疫情影响人民生活，但是中共让小学生睡在教室，一张床都没有，完全是折腾。中共的疲民，苦民连孩子都不放过，实在太邪了了，必将被新中国联邦人消灭。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
-
-编辑/校对/发稿：Daxia
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
 
 
 

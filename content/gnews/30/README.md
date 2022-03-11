@@ -2,37 +2,43 @@
 ---
 
 
-## 台湾否决中资企业电视台申设案
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2145450/)
+## 中共以疫情为理由，开始折腾小学生
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2145625/)
 
-作者：纽约香草山医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月9日，台湾国家通讯传播委员会NCC否决了中资企业中天电视将其在境外的中天亚洲台转入台湾设台的申请案。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-19.jpg)
-中天电视在2020年因为老板明显违反法令，直接干预新闻播放的内容，替中共做宣传，被NCC撤销了新闻台的执照。该企业近日又重新包装，想借由境外电视台的外壳再度进入台湾。
-
-NCC的审核结果表示，该台提出的申设案，牵涉到与中共国境内电视台的合制节目，而且该台申请的是成立综合电视台，申请书中的新闻节目比重却超过一半。 这两项都违反了现行法规，因此否决了该申请案。
-
-参考链接：
-
-1. [中天亞洲台擬與東方衛視等合製節目違兩岸條例 NCC否決申設](https://www.cna.com.tw/news/ahel/202203090309.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-2. [NCC委員一致決議否決中天新聞台換照：違規嚴重 內控失靈\[影\]](https://www.cna.com.tw/news/firstnews/202011185006.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+作者：香草山教育部 -vasavarti 文·明#5267
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-总编: 宁文静
-编辑: 飞虹
-审核: Irene木木
-校正/发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+
+
+
+据上海卫健委信息，上海 2022 年 3 月 10 日，新增本土新冠肺炎确诊病例 11 例，新增本土无症状感染者 64 例，新增境外输入性新冠肺炎确诊病例 32 例，新增境外输入性无症状感染者 10 例。据上海市民信息，3 月 11 号，由于核酸登记人数太多，上海健康云崩溃，暂停核酸检测服务。上海的小学生在学校隔离时连床都没有，趴在桌子上，裹着被子睡觉。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-43.jpg)
+
+现在流行的病毒致病程度并不高，大部分都是无症状感染者，英国等很多国家取消了各种强制措施，不再让疫情影响人民生活，但是中共让小学生睡在教室，一张床都没有，完全是折腾。中共的疲民，苦民连孩子都不放过，实在太邪了了，必将被新中国联邦人消灭。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
+
+编辑/校对/发稿：Daxia
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

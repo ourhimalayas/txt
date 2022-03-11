@@ -2,32 +2,31 @@
 ---
 
 
-## 疫苗对中国人的影响
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2146274/)
+## 有声|中共病毒轻症同样导致大脑萎缩退化
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2146322/)
 
-文编：Hima
-听写：文龙
-视频：七哥
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月7日，据有关医学平台消息显示，牛津大学一项最新经过同行评审的研究结果表明，中共病毒肺炎会导致患者大脑的嗅觉和记忆相关区域发生退行性变化，这些退化症状对于那些轻症感染者也不例外。
 
-2022-03-06直播摘录
+据了解，此次调查涉及了接近八百位51到81岁的英国老年人，研究期间有超过一半的观察者感染了中共病毒肺炎，另有15人需要接受住院治疗。研究过程中，工作人员对这些老人的大脑先后进行了两次CT扫描，两次的平均间隔时间为38个月，而这两次CT扫描的主要观测区域为大脑中与气味和事件记忆相关的部分，包括眶额皮层、海马旁回、梨状皮层和嗅结节等。
 
-中国人打这个疫苗，接下去会死多少人？香港在昨天一天就发出到2.5亿只疫苗到香港，这2.5亿，只给香港700万人打的话平均打多少啊？2.5亿只。昨天一个姐妹儿跟我说，七哥，我们刚刚给香港发过去2.5亿只。是最新的科兴疫苗，高端疫苗，叫做港澳同胞专用？我想请教请教你们，觉得中国接下去，就按你们现在，别听七哥的，就说这个判决书出来，这些病灶，对中国人来说，2～3年会什么影响？
+其后，经研究人员分析发现，随着时间的推移，中共病毒感染者的嗅觉相关区域平均每年的损失率为0.7%，其中，患者海马旁回和初级嗅觉皮层的损伤率高达1.3%到1.8%，是未感染者的六倍有余。此外，在感染中共病毒后，老人们的认知能力会显著下降，患者需要花费更长的时间完成研究中的相关测试任务。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+文字版原文：[中共病毒轻症同样导致大脑萎缩退化](https://gnews.org/zh-hans/2138900/)
 
-**关注我们**
+音频处理：Fei797
+发稿：Fei797
 
-Discord 账号
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,25 @@
 ---
 
 
-## 樱花FM|贝里斯总理睽违16年 率团访问台湾
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2146045/)
+## 【美国前线医生联盟】起诉拜登政府
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2146140/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-4-3.png)
-据路透社台北消息，贝里斯总理布里仙纽（John Briceño）伉俪应中华民国政府邀请，3月8日至12日率团来台访问，此行是睽违16年后首度以总理身份来访，对增进两国互动及邦谊具有重大意义。
+** **采编/编译撰稿：加拿大温哥华杨帆农场 – 薇文
 
-贝里斯与台湾已建交33年，贝里斯为台湾14个邦交国之一。台贝双方在基础建设、公共卫生、农业、教育、妇女赋权等领域已合作密切。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-6-1-edited.jpg)图片来源：sarahwestall.com
 
-台湾外交部说，为示礼遇与重视，蔡英文总统将以隆重军礼欢迎及国宴款待布里仙纽总理伉俪一行，并将颁赠布里仙纽总理“特种大绶卿云勋章”，双方也将就台贝两国双边合作及共同关切事项交换意见。副总统赖清德将陪同参访台南，并见证昆山科技大学颁赠布里仙纽总理名誉博士学位。
 
-布里仙纽总理此次率领多位重要阁员来访，访团成员包括：妇幼特使罗莎娜（Rossana Briceño）总理夫人、外交、外贸暨移民部长柯特尼（Eamon Courtenay）、教育、文化暨科技部长冯赛卡（Francis Fonseca）、农业、粮食安全暨企业部长麦伊（Jose Mai）、内阁秘书长莱斯利（Stuart Leslie）及投资暨贸易大使布海梅（Jaime Briceño）。
+据媒体[莎拉韦斯特]3月9日报道，[美国前线医生联盟]就新冠病毒疫苗强制接种政策起诉拜登政府，指控该政策是 “世界历史上最大的欺诈”。
 
-中华民国总统府发言人张惇涵表示，期盼透过此次布里仙纽总理来访，让两国的友好邦谊更为坚实，让两国的合作关系更为提升。
+据悉，该项包括大量详实证据文件的诉状于2月16日被提交给阿拉巴马州地区法院。在这份长达193页的证据文件中，包含了符合法庭要求并与新冠病毒、政府腐败以及军队和平民健康安全有关的确凿证据。
 
-文字版原文：[贝里斯总理睽违16年 率团访问台湾](https://gnews.org/zh-hans/2130969/)
+对此，[美国前线医生联盟]要求每一位政府官员认清以上事实，选择正确立场并采取纠错行动。同时协助所有疫苗受害者能在媒体以及任何有发言权的论坛上传播真相。
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+校对编辑：硫酸羟氯喹64
 
+发稿：文明(添草灭共)
+
+原文链接： [COVID Crimes: Court Quality Evidentiary Document Being Sent to Every Elected Official in the Country](https://sarahwestall.com/covid-crimes-court-quality-evidentiary-document-being-sent-to-every-elected-official-in-the-country/)
 
  
 

@@ -2,31 +2,32 @@
 ---
 
 
-## 有声|中共病毒轻症同样导致大脑萎缩退化
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2146322/)
+## 有良知的人都会聚向乌克兰
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2146426/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月7日，据有关医学平台消息显示，牛津大学一项最新经过同行评审的研究结果表明，中共病毒肺炎会导致患者大脑的嗅觉和记忆相关区域发生退行性变化，这些退化症状对于那些轻症感染者也不例外。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-据了解，此次调查涉及了接近八百位51到81岁的英国老年人，研究期间有超过一半的观察者感染了中共病毒肺炎，另有15人需要接受住院治疗。研究过程中，工作人员对这些老人的大脑先后进行了两次CT扫描，两次的平均间隔时间为38个月，而这两次CT扫描的主要观测区域为大脑中与气味和事件记忆相关的部分，包括眶额皮层、海马旁回、梨状皮层和嗅结节等。
+2022-03-06直播摘录
 
-其后，经研究人员分析发现，随着时间的推移，中共病毒感染者的嗅觉相关区域平均每年的损失率为0.7%，其中，患者海马旁回和初级嗅觉皮层的损伤率高达1.3%到1.8%，是未感染者的六倍有余。此外，在感染中共病毒后，老人们的认知能力会显著下降，患者需要花费更长的时间完成研究中的相关测试任务。
+小飞侠最感兴趣的UFO，还有小王子。你记住，UFO、还有太空科技、包括无人机、以及你们最想探索的就是太空的所有的一切幻象，可能都会在乌克兰这个地方为中心发生，因为全世界的年轻人、有良知的人都会聚向那里，为什么？那里的人勇敢，那里的人懂得感恩。而且那里的土地富饶，那里的交通条件，一切从黑海、死海，到地中海、到红海都会成为那里的整个的最天然的条件。那整个亚洲呢？就是台湾。
 
-文字版原文：[中共病毒轻症同样导致大脑萎缩退化](https://gnews.org/zh-hans/2138900/)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-音频处理：Fei797
-发稿：Fei797
+**关注我们**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+Discord 账号
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
