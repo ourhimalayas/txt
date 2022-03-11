@@ -2,81 +2,42 @@
 ---
 
 
-## 美国正在调查和记录俄罗斯袭击乌克兰平民的报告，这些袭击可能构成战争罪
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2140486/)
+## 以信仰交者，无惧枪炮与杀戮
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2140672/)
 
-Jake Tapper (CNN anchor)
-杰克·塔珀（CNN 主播）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/英国农场262-copy-1.jpg)
+作者：文护念
 
-The International Criminal Court is opening an investigation into Russian war crimes
-国际刑事法院正在对俄罗斯战争罪行展开调查
+今世局纷纷，人心糜诈，动关诡谲，道德夷凌。俄乌战火持续升级，死伤无数，极有可能绵延到欧洲其他国家，乃至演变成第三次世界大战。当下人与人基本的共性被忽视，对于不同的民族，不同的地方关注太多，缺少相互尊重。贪、嗔、痴、慢、疑这五毒正在潜移默化地蚕食人类的“信仰体系”，甚至可以说处于崩塌的边缘。活在当下，新的信仰体系一直没有形成，而旧的亦惨遭抛弃，在这个信仰真空期的末法时代，灭佛灭神，全世界早已进入“疯狂与镇定剂齐飞，颓丧与麻醉品并驾”的病态社会。
 
-The US embassy said it’s a war crime to attack a nuclear power plant
-美国大使馆称袭击核电站是战争罪
+在俄罗斯与乌克兰的战争当中，那些所谓的主流媒体以及主流的国际机构显得十分逊色，甚至可以说毫无建树，他们盘踞着各林林总总的资源，拥有着国家机器，只为心中的“如意小算盘”各怀鬼胎地计算着如何增加自己的政治资本，无论在舆论上说的何等煽情，却始终缺乏有效的行动。可怜的是在乌克兰数百万流离失所的人民，如今他们俨然成为了各国政客谈判的“筹码”，天可怜见！真可谓是以势交者，势倾则绝；以利交者，利穷则散。
 
-They tweeted that out the US Embassy in Kyiv
-在美国驻基辅的大使馆发推文说
+然而，就在这个混沌的世界，有那么一群人逆风飞翔，夫唯大雅，卓尔不群。由新中国联邦法治基金、法治社会组织的人道主义救援行动再一次震惊了世界。新中国联邦人坚定地向世人展示了新中国人的国际形象，用实际行动很好地诠释了中国人的友善、爱好和平和中共不能代表中国人。前线的战友无惧死亡，井然有序地开展救援行动，硬是在战火弥漫的战区凿开一条生命的绿色通道，给身处绝望的人们囊萤了一点薄光；后勤的战友孜孜不倦地在各大社交平台传播救援信息，处理协调各方面的问题，面对中共百般的阻挠，甚至动用一国之力去黑客救援团队的客服联络邮件以及“生命的号码”，参与救援的人员仍各司其职，启动备用方案，更新联络方式，继续传播救援信息，努力救助每一位无辜的华族同胞以及国际友人。而中共此番卑鄙的操作反而是给我们逆增上缘，让世人更加看透其邪恶的本质，将进一步促使有良知的人与新中国联邦站在一起。
 
-but then the State Department told other embassies around the world to not retweet it
-但随后国务院告诉世界各地的其他大使馆不要转发它
+对于某些常驻在自己“信息茧房”所谓中立的人，今天你不关心政治，明天政治就可能去“关心”你。客观来讲，肉身凡胎，各有各的焦虑，人之常情。人与其他存在物的不同之处在于人能够意识到这种来自非存在的威胁，并因此会导致他们在实存上的焦虑，一旦当自己在实存境遇中遇上面对生命与死亡的焦虑、面对空虚与无意义的焦虑、面对罪疚与谴责的焦虑，当这三种焦虑一旦发展成为极端的边缘性处境，多半人都会产生路径依赖，逃避自己所处的境况，为自己的懦弱寻找一个合理的解释，届时就可以心安理得地得过且过了。由于每个人所受的教育程度不同，以及每个人成长的客观环境相异，笔者不在此剖析其当中的因由，但愿每个人都可以早日觉醒，自觉，才能觉他。
 
-which is a confusing step
-这是一个令人困惑的步骤
+郭先生曾在往期的直播中提到“正道主义”，“正”是指集宗教于现代人类行为方式的成功管理的经验一体的“正”，完全是公平与公正，以法律为基础。“道”扼言之就是手段的意思，譬如一人一票民选政府，由一群专业的人根据人民的意愿管理国家。另外郭先生还提到三点建议，第一是管人心：即恢复宗教自由，让每个人都有信仰。第二是管钱：即财富不能公有化，私人财产神圣不可侵犯。第三是管权：权力必须公有化，绝不能私有化。
 
-has the US seen evidence that Russia is committing war crimes or not?
-美国有没有看到俄罗斯犯下战争罪的证据？
+信仰源于生活却又高于生活，但最终还是要回归到平凡的生活中去。笔者才疏学浅，个人认为信仰是对大自然的心灵仰慕，对未知领域的敬畏之心，对社会公正的耐心追求，对美好人生的情感寄托。这是属于内心世界的东西，很难量化，有时候只可意会不可言传。
 
-Antony Blinken (Secretary of State)
-安东尼·布林肯（国务卿）
+对于构建属于未来中国人安身立命的信仰体系，在细节上很难去描绘。但从宏观上笔者认为，日常生活要贯穿日用常伦关系，背后有强大的天理支持，终极意义的支持，精神文明和世俗文明需分开。这种信仰体系上符合天理，下符合人心，中间符合人伦纲常。而这些都需要我们共同努力。
 
-Jake, we’ve seen very credible reports of deliberate attacks on civilians
-杰克，我们已经看到了关于蓄意袭击平民的非常可信的报道
+惟求同胞们多做一些力所能及的事情，虔诚地祈祷，放下傲慢与偏见，不要停留在口舌之争。若想要一扫笼罩在中华大地上的千年心霾，拨开云雾见天日，守得云开见月明，仍任重而道远。至于如何去填满每个人物质欲望的坎陷，进向精神升华的领域，泯除主观的成见，窍开停塞的信仰大道，亟需众人的努力。新中国联邦的“正道主义”将会拓开新中国人，乃至整个世界人文思想的曙光，届时如若有助于人类、世界、国家、民族，亦是以告慰安心，庶几对人类社会薄有交代，便可长揖世间，身随物化而无遗憾于虚生矣！
 
-which would constitute a war crime
-这将构成战争罪
+*校对：文明明|审核：仙女儿-文善*
 
-We’ve seen very credible reports about the the use of certain weapons
-我们已经看到关于使用某些武器的非常可信的报告
+* * *
 
-And what we’re doing right now is documenting all of this, putting it all together
-我们现在正在做的是记录所有这些，将它们放在一起
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-looking at it and making sure that as people and the appropriate organizations
-查看它并确保作为人和适当的组织
 
-and institutions investigate whether war crimes have been or are being committed
-和机构调查是否已经或正在犯下战争罪
+编辑：【英国伦敦喜庄园编辑部】
 
-that we can support, whatever whatever they’re doing
-我们可以支持，无论这些机构在做什么
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-So right now, we’re looking at these reports
-所以现在，我们正在查看这些报告
 
-They’re very credible, and we’re documenting everything
-他们非常可信，我们正在记录一切
-
-原视频链接[https://twitter.com/cnn/status/1500475484840288257?s=24](https://twitter.com/cnn/status/1500475484840288257?s=24)
-
-Date:03/06/2022
-原视频标题:Secretary of State Antony Blinken tells CNN’s Jake Tapper the US is investigating and documenting reports of Russian attacks on Ukrainian civilians that could constitute war crimes
-美国国务卿安东尼·布林肯告诉美国有线电视新闻网的杰克·塔珀，美国正在调查和记录俄罗斯袭击乌克兰平民的报告，这些袭击可能构成战争罪
-原视频日期：2022/03/06
-
-原视频链接[https://twitter.com/cnn/status/1500475484840288257?s=24](https://twitter.com/cnn/status/1500475484840288257?s=24)
-任务编号：KE442（3944）
-视频时间段 : 0:00-1:02
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 
 

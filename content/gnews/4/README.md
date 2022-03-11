@@ -2,131 +2,61 @@
 ---
 
 
-## 西恩·潘：美国应该支持乌克兰人和泽连斯基总统
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2140525/)
+## 焦点：法治基金介绍信成为畅行世界的通行证
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2140689/)
 
-Sean Penn (American actor)
-西恩·潘 (美国演员)
+**加拿大多伦多蓝莲花农场  丁过**
 
-Moved by him and terrified for him and for Ukraine
-被他感动并为他和乌克兰担忧
+俄罗斯总统普京悍然发动侵略乌克兰的战争后，整个欧洲陷入了战争的阴霾，但乌克兰军民的顽强抵抗振奋了情绪低落的世界。
 
-Anderson Cooper (American broadcaster)
-安德森·库珀（美国广播员）
+在众多对乌克兰难民展开救援的慈善机构中，法治基金迅速行动，凭借雄厚的实力，成为全世界唯一进行大规模前线救援的慈善组织。
 
-I have never been in a country at war in which the people are so united，so determined
-我从未到过一个人民如此团结, 如此坚定的在战争中的国家
+该组织同时租用23架大力神飞机和大量大巴车，在勇敢有爱心的乌克兰人协助下深入战区，对所有需要逃离乌克兰战场的难民进行了无差别救助，即救援对象不分国籍，一视同仁。
 
-and again, I mean，that word has become a cliche here the determination
-再说一次，我的意思是，这个词在这里已成为陈词滥调
+法治基金一系列富有成效的大规模救援行动，尤其是成功救出100名乌克兰儿童感动了天地，也让法治基金的声誉迅速传播到全世界。
 
-but the resolve here, elderly women, elderly men, children, everybody
-但是这里的决心，老年妇女，老年男子，儿童，每个人
+![](https://assets.gnews.org/wp-content/uploads/2022/03/360截图20220311084753389.jpg)
 
-the resolve to not only fight now
-决心不仅现在战斗
+下面是一个真实故事，是一名法治基金志愿者在奔赴波兰过程中的亲身经历：
 
-but fight for however long and whatever happens
-但无论发生什么，战斗多久
+3月8日，他和另外12名志愿者在多伦多皮尔逊机场塔乘晚上11时飞往华沙的航班，由于他们都没有接种疫苗，而安省的疫苗护照还没有取消，因此在登机时被拦了下来，当他们出示法治基金护照和说明他们此行的使命时，受到感动的登机口主管礼貌地将他们送上了飞机。
 
-Sean Penn
-西恩·潘
+他们抵达华沙机场办理出境时，也碰到和在多伦多皮尔逊机场同样的问题，也是靠出示法制基金介绍信后才顺利通关。
 
-Yeah, there’s no question in my mind
-是的，我没有怀疑过
+显然，法治基金介绍信已然成为在全球范围内畅通无阻的通行证。
 
-that this is not going to end soon no matter what
-无论如何，这不会很快结束
+但这仅仅是法治基金震憾世界的开始。
 
-because you will have a country of extraordinary insurgencies if Putin is successful in this
-因为如果普京在这方面取得成功，你将拥有一个异常叛乱的国家
+法治基金志愿者在波兰与乌克兰边境城市克拉科夫和梅迪卡搭建的临时大帐篷最大，最暖和舒适，设施最完备，他们为难民免费提供毛毯、食物、水果等。
 
-There is no sign that Mr. Putin is looking for an off round
-没有迹象表明普京先生正在寻找停战
+法治基金是目前乌克兰救助做得最多最好的慈善机构，已然成为一个传奇，一个救援前线的标杆。
 
-And one of the greatest feeling that I have, you know
-我最大的感觉之一，你知道
+因此他们引起了媒体的广泛关注，得到了当地政府的大力支持。
 
-I’m I’m not a war correspondent
-我不是战地记者
+仅3月10一天，就有多家来自世界各地的知名媒体和机构来到法治基金位于克拉科夫的大帐篷，拍摄报道难民问题，他们是美联社、彭博社、盖帝图片社、意大利电视台、西班牙电视台、波兰最大报纸和电视台、阿拉伯迪拜电视台等等。
 
-But I have traveled in conflict zones, and done some reporting
-但我去过冲突地区，做过一些报道
+波兰当地政府给予了法治基金救援行动最大的支持，包括提供专门的大巴停车场和治安服务，给予法治基金和新中国联邦对难民及相关人物和事件进行独立釆访和报道的权利。
 
-And I remember being in Tripoli and Benghazi during the NATO attack
-我记得在北约袭击期间在的黎波里和班加西
+最重要的是，法治基金践行的博爱精神，使不幸成为战争受害者的难民看到了人性的光辉和未来的希望。
 
-and the freedom fighters fighting
-和自由战士并肩作战
+那么法治基金从何而来？
 
-as well as against the Qaddafi forces
-以及反对卡扎菲部队
+法治基金（官方网站：www.rolfoundation.org）是一个慈善机构，是按照美国IRS的501（c）（3）法规登記的非盈利组织。
 
-And it was sketchy, but this was ominous
-这是粗略的，但这是不祥的
+资助该组织的众多人士属于一个崇尚自由和正义、热爱和平的精英群体，他们遍布世界各地。
 
-It was ominous because it was so heartbreaking in the ripple effects
-这是不祥的，因为它在连锁反应中是如此令人心碎
+已经分三批前往波兰边境进行救援的法治基金志愿者几乎全部由这个群体的人员组成，他们既是捐款者，又是前线志愿者，他们对邪恶中共的抹黑、挑难不屑一顾。
 
-it’s going to have around the world
-它将在世界各地
+可以预料，这些毅然放下舒适生活，生死无惧奔赴前线的男男女女们，他们不会停下脚步，未来，哪里有战争、瘟疫、苦难、不平，哪里就会出现他们的身影。
 
-where they were this incredible symbol of democracy, of belief and free dreaming
-他们是民主、信仰和自由梦想的不可思议的象征
+法治基金就是由这些有着高贵灵魂的男男女女构成的，他们象苦行僧一样修行，布一个叫正道主义的道，因此法治基金将永远是一个守望正义和救苦救难的诺亚方舟。
 
-is being assaulted
-正在被践踏
+校对/发布：一叶知秋
 
-And, and they’re fighting for their lives
-他们正在为自己的生命而战
-
-and they’re going to continue to fight for their lives
-他们将继续为自己的生命而战
-
-And I start to feel that we as Americans are plummeting off a cliff
-我开始觉得我们作为美国人正在从悬崖上一落千丈
-
-a top which is our flag that represents all of our dreams and the best of our history
-悬崖的顶端是我们的国旗，它代表着我们所有的梦想和我们最好的历史
-
-And that we’re plummeting where it’s going to go out of sight
-并且我们正在直线下降，它将消失在视线之外
-
-I don’t know the answers
-我不知道答案
-
-I don’t know if no fly zones will create a nuclear war
-我不知道禁飞行区会不会引发核战争
-
-I do know that we have to invest everything
-我知道我们必须投入所有的一切
-
-that we have to support the Ukrainian people and support President Zelensky
-我们必须支持乌克兰人民并支持泽连斯基总统
-
-or I do not think we will have a legitimate memory of what America hoped to be
-或者我认为我们不会对美国所希望的人有一个合理的记忆
-
-原视频链接[https://twitter.com/sophia36982957/status/1500242015233220614?s=24](https://twitter.com/sophia36982957/status/1500242015233220614?s=24)
-
-Date:03/08/2022
-原视频标题:Sean Penn：America should support the Ukrainians and President Zelensky
-西恩·潘：美国应该支持乌克兰人和泽连斯基总统
-原视频日期：2022/03/06
-原视频链接https://twitter.com/sophia36982957/status/1500242015233220614?s=24
-任务编号：KE444（3936）
-视频时间段 : 0:00-2:20
-
-英听校：洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

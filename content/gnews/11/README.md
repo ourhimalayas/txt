@@ -2,72 +2,33 @@
 ---
 
 
-## 拜登总统：“普京的战争已经在油价上伤害了美国家庭……我将尽我所能，尽量减少普京造成在国内价格上涨后果”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2140402/)
+## 有声|《铁锁梦》“三八”妇女节的特别礼物
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2140562/)
 
-Joe Biden (the U.S. President)
-乔·拜登（美国总统
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月7日，郭先生在盖特发布了一首新歌《铁锁梦》，以此作为送给中共国和全世界妇女的一份特别礼物。
 
-the decision today is not without cost here at home
-今天的决定在国内并非没有代价
+“我本花一朵，被拐骗山中，从此亲人永相隔。囚禁二十年，我受尽了折磨，这个世界不要我”。低沉压抑，欲喊无力的女声，一下子把听者拉回徐州“锁链女”的悲惨命运中。女人如花，却在最美丽的年华遭遇一击，从此坠入无尽的深渊。令人啼笑皆非的是，事件曝光后，中共官方的五轮调查谎话连篇，丑态百出，在全世界的聚光灯下，竟然一锤定音，容不得质疑，也不允许解救。铁链女的生死，都不得而知。
 
-Putin’s war is already hurting American families at the gas pump
-普京的战争已经在油价上伤害了美国家庭
+郭先生痛苦、愤懑的嗓音在呐喊，“醒来吧，别再如此冷漠；醒来吧，抛掉所有懦弱。要埋葬邪恶的中共，我们砸碎这铁锁”。现实不是只有无力地愤怒、无奈地接受这一种选择。郭先生放弃最奢华的生活，带领战友们走上消灭中共这一条无比艰辛和危险的道路，就是为了重建一人一票、法治民主、自由言论的新中国。让千千万万如花的女孩不再坠入地狱，也让无数的母亲不再撕心裂肺地哭泣。
 
-Since Putin began his military buildup on Ukrainian borders
-自从普京开始在乌克兰边境进行军事集结以来
+这个节日礼物，特别而沉重。它激发了战友们内心最深处的力量：新中国联邦人，永不为奴。灭共，是我们义不容辞的使命。
 
-just since then, the price of the gas at the pump in America went up 75 cents
-从那时起，美国的汽油价格上涨了75美分
+文字版原文：[《铁锁梦》“三八”妇女节的特别礼物](https://gnews.org/zh-hans/2127272/)
 
-And with this action is going to go up further
-并且随着这个行动将进一步上升
+音频处理：Fei797
+发稿：Fei797
 
-I’m going to do everything I can to minimize Putin’s price hike here at home
-我将尽我所能减少普京造成的在国内的物价上涨
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-In coordination with our partners
-并与我们的合作伙伴协调
-
-we’ve already announced that we’re releasing 60 million barrels of oil from our joint oil reserves
-我们已经宣布，我们将从我们的联合石油储备中释放6000万桶石油
-
-Half of that 30 billion, million excuse me
-那些的一半300亿，3000万，抱歉
-
-is coming from the United States
-是来自美国的
-
-And we’re taking steps to ensure the reliable supply of global energy
-我们正在采取措施确保全球能源的可靠供应
-
-are also going to keep working with every tool at our disposal
-还将继续使用我们可以使用的所有工具
-
-protect American families and businesses
-保护美国家庭和企业
-
-原视频链接[https://twitter.com/cspan/status/1501237745863299080?s=24](https://twitter.com/cspan/status/1501237745863299080?s=24)
-
-Date:03/08/2022
-原视频标题:President Biden: ” Putin’s war is already hurting American families at the gas pump…I’m going to do everything I can to minimize Putin’s price hike here at home.”
-拜登总统：“普京的战争已经在油价上伤害了美国家庭……我将尽我所能，尽量减少普京造成的在国内的价格上涨的后果”
-原视频日期：2022/03/08
-原视频链接https://twitter.com/cspan/status/1501237745863299080?s=24
-任务编号：KE446（3959）
-视频时间段 : 0:00-0:48
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 –
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,18 @@
 ---
 
 
-## 欧盟力争今年将对俄罗斯的天然气依赖度降低近八成
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2133880/)
+## 中共两会｜国防部：对“台独”行径绝不姑息 民进党是动荡的根源
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2136015/)
 
-作者：東京方舟農場 – 感謝郭叔
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月8日，欧盟委员会3月8日提出一份新的能源战略，争取在今年将对俄罗斯天然气的进口需求减少近80%，在2030年前彻底脱离对俄罗斯的天然气和化石能源供应的依赖。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-31.jpg)
-在能源安全辩论中，欧盟委员会建议成员国从现在就开始储存明年的能源。在天然气供应方面，欧盟将进口更多的液化天然气，增加来自俄罗斯以外的管道供应，同时推动可再生能源的普及并提高能源效率，减少对天然气的依赖。
+**撰文/ 港台前线｜发布日期/ 10/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/國防部：對台獨行徑絕不姑息-民進黨是動盪的根源.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-欧盟各国的部长们一直在讨论跟随欧盟禁止从俄罗斯进口石油，但没有明确的共识。德国总理奥拉夫·肖尔茨表示，俄罗斯的供应目前仍然是 “必要的”。逐步淘汰俄罗斯石油和煤炭可能比天然气更简单，因为欧盟有更广泛的替代供应商可以提供帮助。
+十三届全国人大五次会议解放军和武警部队代表团发言人吴谦，在回应政府工作报告时批评，台湾民进党勾结外部势力，进行谋“独”挑衅，是造成当前台海局势紧张且动荡的根源。
 
-参考链接：[EU Aims to Cut Russia Gas Dependence by Almost 80% This Year](https://www.bloomberg.com/news/articles/2022-03-07/eu-aims-to-cut-dependence-on-russian-gas-by-almost-80-this-year)
+他表示，中共坚决反对“台独”，并反对外部势力干涉，，坚持“和平统一、一国两制”的方针，美日试图通过打“台湾牌”，实现“以台制华”的政治图谋，注定难以成真；解放军对台独分裂行径和外部势力干涉，绝不姑息、绝不容忍、露头就打。
 
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编：zhong
-编辑：飞虹
-审核：飞虹
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+来源｜[文汇报](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;cad=rja&amp;uact=8&amp;ved=2ahUKEwjdkfjN9rr2AhVnJkQIHVX5ACAQxfQBKAB6BAgEEAI&amp;url=https%3A%2F%2Fwww.wenweipo.com%2Fa%2F202203%2F10%2FAP62296b7be4b036dce99cde99.html&amp;usg=AOvVaw1oEB80jBu0Sw9wAoA4NrV3)
 
  
 

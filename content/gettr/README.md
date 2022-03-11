@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 12:45 AM (UTC)`
+
+2022.03.10《The Fringe》 Episode 144
+![img](https://media.gettr.com/group39/origin/2022/03/11/00/d38f8145-1c6a-4c15-34f7-9b9be6fd6ebf/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/11/2022 12:06 AM (UTC)`
 
 【Ukraine Rescue】03/10/2022 Volunteers from the NFSC and the Rule of Law Foundation joined other international aid organizations to set up a passage for Ukrainian refugees in Medyka<br/><br/>【乌克兰救援】3月10日， 新中国联邦和法治基金的志愿者与其他国际救援组织一起在Medyka设立乌克兰难民通道
@@ -151,13 +158,6 @@ The New Federal State of China and Rule of Law Foundation would like to find the
 ![img](https://media.gettr.com/group33/origin/2022/03/10/12/794a860e-73ab-394e-6d44-c1d90e3b185a/out.jpg)
 > `@ripplenews 3/9/2022 1:41 PM (UTC)`<br/>
 ![img](https://media.gettr.com/group42/getter/2022/03/09/13/9539bb84-3756-e8e7-e84c-c7c4b8c3c2aa/9c4968822e4b9d89b0d3412b6d79ef17.jpg)
-
----
-
-`@miles 3/10/2022 12:56 PM (UTC)`
-
-【Ukraine Rescue】03/10/2022 Volunteer Wenge Qixiong and Qingfeng distributing food, blankets and other rescue supplies to refugees at the NFSC and ROL Foundation’s rescue station in Medyka, near the border with Ukraine<br/><br/>【乌克兰救援】3月10日 文戈七雄战友和青峰战友在位于波乌边境Medyka的新中国联邦和法治基金救助站，为难民发放食物，毛毯等救援物资
-![img](https://media.gettr.com/group24/getter/2022/03/10/12/1a3723d2-f1f4-7210-3331-13cd43d98fb0/out.jpg)
 
 ---
 
