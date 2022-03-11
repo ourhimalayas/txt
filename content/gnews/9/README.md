@@ -2,28 +2,52 @@
 ---
 
 
-## 乌军方摧毁俄弹导弹师 泽连斯基称在关键方向反击
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2141040/)
+## 一个乌克兰家庭（The Perebyinis family）在俄入侵后破碎
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2141125/)
 
-作者：波士顿五月花背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-11-at-10.17.16-AM.png)
-乌克兰武装部队总参谋部周四（3月10日）Facebook发布消息，3月10日星期四下午，乌克兰武装部队在切尔尼戈夫（Chernihiv）地区摧毁了一个向平民开火的伊斯坎德尔-M（Iskander-M SS-26 Stone） 弹道作战和战术导弹系统师！
+作者：纽约香草山福音部—qiutian（邱甜）
 
-俄罗斯的伊斯坎德尔导弹向顿涅茨克地区的康斯坦丁诺夫卡（ Kostiantynivka ）发射，击中了汽车仓库大楼和输电线。【1】
 
-周四乌克兰总统弗拉基米尔·泽伦斯基称乌军队正在关键方向反击。他讲话说：“我们已经保卫我们的国家第15天了。 我们已经站起来了。 乌克兰军队正在关键方向反击。”
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-11-at-10.18.07-AM.png)图片来源：互联网
-9K720 伊斯坎德尔（北约：SS-26“石头”）是一种公路机动短程弹道导弹（SRBM），最大射程可达 500 公里，使用普通的运输-竖立-发射器（TEL）和支援车辆，弹头可以是高爆、子弹药、穿地器、温压。阿尔及利亚、亚美尼亚都是该导弹买家。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-57.png)
+周日当天，俄罗斯发射迫击炮降落在基辅附近的一条平民逃生路线上，四名受害者倒在血泊中，他们是Tetiana Perebyinis和她的两个孩子，18岁的Mykyta和9岁的 Alisa，26岁的Anatoly Berezhnyi是教会志愿者。
 
-俄罗斯武装部队于 2008 年首次在与格鲁吉亚的战斗中使用该系统，并且于 2016 年向叙利亚部署了一个部队，但没有在战斗中使用该导弹。【2】
 
-【1】[乌克兰武装部队摧毁了切尔尼戈夫地区的伊斯坎德尔师](https://www.ukrinform.net/rubric-ato/3425589-ukrainian-armed-forces-destroyed-iskander-division-in-chernihiv-region.html)
 
-【2】[9K720 伊斯坎德尔 (SS-26)](https://missilethreat.csis.org/missile/ss-26-2/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1054.png)
 
-* * *
+Tetiana Perebyinis是一名会计师，她的丈夫 Serhiy 是一名计算机程序员。几周前，也就是在基辅局势恶化之前，Tetiana的公司在波兰租用了房间，并鼓励员工使用这些房间。但Tetiana直到计划撤离患有阿尔茨海默病的母亲之后才想离开。周日早上 7 点左右，Tetiana和她的孩子们开始了逃亡旅程，丈夫Serhiy被困在乌克兰东部，照顾生病的母亲。
 
-*编辑&发布：Vicky*
+当迫击炮弹落下时，一队时报记者恰好在附近，其中一位名叫Lynsey Addario的记者拍下了这家人的照片。“我想，你知道，拍照是不尊重的，但我必须拍照——这是战争罪。”Lynsey告诉哥伦比亚广播公司晚间新闻， “我认为让世界各地的人们看到这些图像真的很重要。”
+
+Tetiana Perebyinis 是一名会计师，她的丈夫 Serhiy 是一名计算机程序员。几周前，在基辅局势恶化之前，Tetiana 的公司在波兰租用了房间，并鼓励员工使用这些房间。但 Tetiana 不想离开，直到她计划撤离患有阿尔茨海默病的母亲。最后，周日早上 7 点左右，Tetiana和她的孩子们开始了他们的逃亡旅程，而Serhiy则被困在乌克兰东部，照顾生病的母亲。
+
+Tetiana Perebyinis 是一名会计师，她的丈夫 Serhiy 是一名计算机程序员。几周前，在基辅局势恶化之前，Tetiana 的公司在波兰租用了房间，并鼓励员工使用这些房间。但 Tetiana 不想离开，直到她计划撤离患有阿尔茨海默病的母亲。最后，周日早上 7 点左右，Tetiana和她的孩子们开始了他们的逃亡旅程，而Serhiy则被困在乌克兰东部，照顾生病的母亲。
+
+悲痛中Serhiy将他的妻子和孩子们安葬在乌克兰西部后，自己又回到了伊尔平帮助其他人撤离。
+
+参考来源：
+
+[Russia’s civilian attacks](https://www.nytimes.com/2022/03/10/briefing/russia-civilian-attacks-ukraine-war.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-29.jpg)
+
+审核/编辑/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-58.png)
+
 
  
 

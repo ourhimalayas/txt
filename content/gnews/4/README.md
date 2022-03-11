@@ -2,52 +2,25 @@
 ---
 
 
-## 一个乌克兰家庭（The Perebyinis family）在俄入侵后破碎
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2141125/)
+## 金钱大于良知！乌克兰公布「未制裁俄」公司名单
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2141176/)
 
-作者：纽约香草山福音部—qiutian（邱甜）
+乌克兰外交部公布了一份未制裁俄罗斯，选择继续留在当地营业的公司名单，包括50多家全球品牌公司。乌克兰外交部也向名单内所有公司呼吁，「向俄罗斯缴纳的每一卢布税款都会变成乌克兰儿童的死亡和眼泪。」
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/d3b3da7f-7c6b-43ce-b1ce-a8b1ae5bcb69.jpg)图片来源：Facebook @Міністерство закордонних справ України / MFA of Ukraine
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-57.png)
-周日当天，俄罗斯发射迫击炮降落在基辅附近的一条平民逃生路线上，四名受害者倒在血泊中，他们是Tetiana Perebyinis和她的两个孩子，18岁的Mykyta和9岁的 Alisa，26岁的Anatoly Berezhnyi是教会志愿者。
+乌克兰外交部表示，无论俄罗斯在全球投资组合中的投资规模或股份有多少，遵守环境、社会和企业管理标准和价值观的公司，没有道德或权利继续在该国活动，唯一的例外可能是基于关键人道主义需求的公司。
 
+简评：乌克兰人民正在俄罗斯的炮火中流离失所，全球有良知的公司都在联合起来抵制俄罗斯，那些还未抵制俄罗斯的全球品牌公司，不只是在帮助邪恶，更是在变相的支持战争与屠杀！这些违背了良知的公司，你们的冷漠是最好的“广告”！
 
+新闻来源：[台视新闻网](https://news.ttv.com.tw/news/11103100001400W)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1054.png)
+撰稿/发布：一叶知秋
 
-Tetiana Perebyinis是一名会计师，她的丈夫 Serhiy 是一名计算机程序员。几周前，也就是在基辅局势恶化之前，Tetiana的公司在波兰租用了房间，并鼓励员工使用这些房间。但Tetiana直到计划撤离患有阿尔茨海默病的母亲之后才想离开。周日早上 7 点左右，Tetiana和她的孩子们开始了逃亡旅程，丈夫Serhiy被困在乌克兰东部，照顾生病的母亲。
-
-当迫击炮弹落下时，一队时报记者恰好在附近，其中一位名叫Lynsey Addario的记者拍下了这家人的照片。“我想，你知道，拍照是不尊重的，但我必须拍照——这是战争罪。”Lynsey告诉哥伦比亚广播公司晚间新闻， “我认为让世界各地的人们看到这些图像真的很重要。”
-
-Tetiana Perebyinis 是一名会计师，她的丈夫 Serhiy 是一名计算机程序员。几周前，在基辅局势恶化之前，Tetiana 的公司在波兰租用了房间，并鼓励员工使用这些房间。但 Tetiana 不想离开，直到她计划撤离患有阿尔茨海默病的母亲。最后，周日早上 7 点左右，Tetiana和她的孩子们开始了他们的逃亡旅程，而Serhiy则被困在乌克兰东部，照顾生病的母亲。
-
-Tetiana Perebyinis 是一名会计师，她的丈夫 Serhiy 是一名计算机程序员。几周前，在基辅局势恶化之前，Tetiana 的公司在波兰租用了房间，并鼓励员工使用这些房间。但 Tetiana 不想离开，直到她计划撤离患有阿尔茨海默病的母亲。最后，周日早上 7 点左右，Tetiana和她的孩子们开始了他们的逃亡旅程，而Serhiy则被困在乌克兰东部，照顾生病的母亲。
-
-悲痛中Serhiy将他的妻子和孩子们安葬在乌克兰西部后，自己又回到了伊尔平帮助其他人撤离。
-
-参考来源：
-
-[Russia’s civilian attacks](https://www.nytimes.com/2022/03/10/briefing/russia-civilian-attacks-ukraine-war.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-29.jpg)
-
-审核/编辑/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-58.png)
-
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
