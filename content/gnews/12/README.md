@@ -2,30 +2,54 @@
 ---
 
 
-## 日本东京樱花团 中文新闻播报第十七期
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2143481/)
+## 枪/棒棒糖/女孩
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2143693/)
 
-新闻内容摘要：
+作者：纽约香草山教育部-蓝之灵（hortênsia)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2404.jpg)
 
-- 1.英国政府8日宣布，将在年底前分阶段停止进口俄罗斯石油
-- 2.英国政府关于新冠病毒的官方数据表明，大多数完全接种疫苗的人
-- 3.3月8日，郭文贵先生于Gettr视频中透露
-- 4.《今日美国》3月7日报道，佛罗里达州卫生局局长约瑟夫拉达波
-- 5.欧盟27国大使联名发表题为“全球危机下欧中关系至关重要”的文章
-- 6.据美国之音3月8日报道，联合国人权事务高级专员巴彻莱特8日宣布
-- 7.伦敦证券交易所集团3月8日表示，从格林尼治时间周三12:00起
-- 8.据大纪元03月06日的报道
-- 9.乌克兰总统泽伦斯基8日傍晚受邀在英国国会下议院发表演说
+手里握着枪
+嘴里含着棒棒糖
+本是花一样
+在爱的海洋
+是谁
+把你逼到了战场
 
+侵略者铁骑
+轰轰做响
+废墟下埋着的
+都是亲人和同乡
+哭声，喊声
+撕裂着空气
+本该跳着橡皮筋的你
+是谁
+把你逼到战场
 
-**播报：东京樱花团-优妃**
+保卫家乡
+为了乌克兰荣光
+让侵略者有来无回
+留下他们生命和鲜血
+奠祭乌克兰人民和故乡
+保卫乌克兰
+抗起枪
+还有
+别忘了
+一个
+甜甜的
+棒棒糖
 
-**发布： 东京樱花团-eiei**
+审核/编辑/发稿:qiutian（邱甜）
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/erweima.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,25 @@
 ---
 
 
-## 普京的化学武器演算
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2143618/)
+## 今日国际新闻快讯3月11日2022
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2143754/)
 
-信息来源：德国世界报
+新闻提供：Cici
+发稿：am夏天
+德国纽伦堡正义农场翻译部
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/FILE-In-this-photo-taken-from-vid-2.jpg)
+- 国际红十字会委员会警告乌克兰城市Mariupol遭受了俄军围城，缺水缺粮已到了极度危险的程度。
 
 
-图片来源： 美联社
+- 联合国难民署：现已有超过两百万乌克兰人撤离，二战后欧洲最急性的难民潮
 
-莫斯科指责乌克兰致力于使用生化武器。 这对乌克兰本身来说是令人震惊的。这让人想起普京已经在其他地方使用过的背信弃义的策略。
 
-西方安全界越来越担心莫斯科越来越多地指责乌克兰想要对俄罗斯使用所谓的大规模杀伤性武器。 有人担心，这可能是俄罗斯自己准备使用化学武器的宣传准备，例如，以便将乌克兰人归咎于假旗行动。
+- 高盛投资银行宣布退出俄罗斯市场，成为第一家作出如此决定的美国大型银行
 
-一些专家还担心，莫斯科可能正在计划对自己的领土进行假化学武器袭击。 这将使俄罗斯有借口对乌克兰采取更严厉、更全面的行动。
 
-简评： 邪恶的魔鬼有如此的打算， 全世界热爱和平的人们， 只能送他下地狱。 而且用如此邪恶的手段， 要嫁祸于人 ， 如果这报道都出来了 ， 全世界的人们要警觉普京！
+- 新中国联邦和法治基金在边境城市Medyka设立难民接待帐篷，提供免费的食物，热水，毛毯，天空网络等
 
-🔗 [https://www.welt.de/politik/ausland/plus237443891/Russland-Putins-Chemiewaffen-Kalkuel.html](https://www.welt.de/politik/ausland/plus237443891/Russland-Putins-Chemiewaffen-Kalkuel.html)
-
-编辑发布： Shuizhuyu
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
