@@ -2,31 +2,25 @@
 ---
 
 
-## 世界的变化
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2146389/)
+## 视频|中共乌克兰撤侨新闻再现假照片（图片见备注）
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2146436/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+制作：香草山视频部
 
-2022-03-06直播摘录
+当地时间3月9日，俄罗斯入侵乌克兰的战争已经跨入了第十四天，但中共在乌克兰的撤侨救援行动依然迟缓，备受国内外诟病。
 
-人类已经进入了前所未有的大变局。我昨天下午和一个咱们合作的一个公关公司，我告诉他。他在问我很多问题的时候，他说:“你觉得世界，你的判断会是什么样的？” 我说：“就像我告诉你的一样，人类走向一个真的是…无皇有主的时代，正式到来。” 什么叫无皇有主？没有皇帝，只有以民为主的天下正式到来。” 世界上不可能再看到未来的俄罗斯，不可能！也不会有今天的欧洲。你会很快看到世界上俄罗斯和欧洲被一个大的一个欧洲整体所代替。那叫什么？过去叫Europe，Europe—欧洲。现在我告诉你，叫乌克兰州，叫U-rope（音），没有俄罗斯，叫 U-yours(音)，不可能再有俄罗斯的存在，它变化就会这么大。
+据中共官媒声称，中共政府自3月初开始就已经开始了所谓的撤侨任务：中共扬言已经包机将滞留在乌克兰的中国人全数成功救援回国，相关新闻还附上了中共宣传用的“撤侨照片”。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+但是，经过爆料革命战友对比分析后发现，中共官媒报道的乌克兰撤侨新闻中的三张照片与中共2011年在北非撤侨、2016年在新西兰撤侨和印度此次在乌克兰撤侨的照片一模一样。另据郭文贵先生在直播中透露，中共根本没有在乌克兰有任何的撤侨救援行动，乌克兰当地至今还有几百个中国留学生躲在基辅的地下室，他们没有食物和水，只能向日本人求救，希望能够得到些许帮助。
 
-**关注我们**
+对此，战友们也评论称，中共的乌克兰撤侨行动还是其一贯的“假骗偷”手段，所有的新闻无非是宣传给墙内民众看的一场表演。
 
-Discord 账号
+发稿：文敬
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
