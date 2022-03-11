@@ -2,41 +2,26 @@
 ---
 
 
-## 俄罗斯轰炸儿童医院 乌克兰谴责种族灭绝（2/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2142985/)
+## 中日财经爆┃日本烟草停止俄罗斯市场经营活动
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2143113/)
 
-编译：peacelv
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1102.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.i.haymarketmedia.asia%2F%3Fn%3Dcampaign-india%252Fcontent%252F20140307052149_123Japan-Tobacco.jpg%26h%3D630%26w%3D1200%26q%3D75%26v%3D20170226%26c%3D1&amp;imgrefurl=https%3A%2F%2Fwww.campaignchina.com%2Ftag%2F%25E6%2597%25A5%25E6%259C%25AC%25E7%2583%259F%25E8%258D%2589%25E5%259B%25BD%25E9%2599%2585&amp;tbnid=ZOhqAUFGaDgmlM&amp;vet=12ahUKEwj3jpLbyr32AhVYi_0HHctGCYsQMygAegUIARC2AQ..i&amp;docid=zp-Osdt3Lg-0VM&amp;w=1200&amp;h=630&amp;q=%E6%97%A5%E6%9C%AC%E7%83%9F%E8%8D%89&amp;ved=2ahUKEwj3jpLbyr32AhVYi_0HHctGCYsQMygAegUIARC2AQ)
+日本烟草公司（JT）3月10日宣布，将暂停在俄罗斯市场的新投资和营销活动。俄罗斯的烟草生产也可能暂停。
 
-【上一篇：[俄罗斯轰炸儿童医院 乌克兰谴责种族灭绝（1/2）](https://gnews.org/zh-hans/2142805/)】
+JT 在俄罗斯拥有四家工厂，员工约4,000人。当地雇员的就业将得到维持。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1100-edited-1.png)reuters.com
+JT表示，“俄罗斯市场的营商环境空前严峻，预计对未来业务的影响将是多方面的。”
 
-俄罗斯的经济孤立
-俄罗斯受到西方制裁和外国公司撤离的打击。雀巢公司、香烟制造商菲利普-莫里斯公司和索尼公司周三加入了从该国撤退的跨国公司名单。
-拜登政府的一位高级官员周三说,美国正在权衡对核电供应商Rosatom的制裁。
-世界银行的首席经济学家说，莫斯科正逐渐接近债务违约。克里姆林宫正在采取措施支撑经济，并计划在卢布跌至历史最低点时对美国禁止其石油和能源出口作出回应。
-俄罗斯外交部长谢尔盖·拉夫罗夫（Sergei Lavrov）在周四与库莱巴会谈前抵达土耳其，这将是两人自入侵以来的首次会面，外交希望不大。
-乌克兰在寻求停火，解放其领土和解决所有的人道主义问题，库莱巴说，“坦率地说……我对会谈的期望很低。”
-莫斯科要求基辅采取中立态度，放弃加入北约联盟的愿望。
-泽连斯基告诉VICE在周三的一次访谈中说,他对普京会在某个阶段同意进行会议有信心。“我想他会的,我想他会看到我们是强壮的。他会,我们需要一些时间。”他说。
-西方国家说，俄罗斯正在编造借口，为一场无端的战争辩护。俄罗斯总统弗拉基米尔·普京称乌克兰是美国的殖民地，有一个傀儡政权，没有独立建国的传统。
-白宫周三表示,俄罗斯关于所谓美国涉及参与乌克兰的生物武器实验室和化学武器开发的说法是错误的。
-俄罗斯军队控制着乌克兰的东北边境、东部和东南部的领土。基辅郊区发生了战斗，同时乌克兰的第二大城市哈尔科夫正遭受轰炸。
-一支俄罗斯的武装部队在基辅的北部停滞不前，西方国家说克林姆林宫不得不调整其迅速推翻政府的计划。
-国际货币基金组织周三批准向乌克兰提供1.4亿美元的紧急资助，以帮助满足紧急支出需要。
+日本烟草产业株式会社（Japan Tobacco Inc.），简称JT，是日本最大的烟草制造企业，世界第三大烟草制造商，为日经225指数成份股之一。
 
-【完结】
+在俄罗斯销售的所有烟草产品中，有15%是由日本烟草公司的国际业务分公司日本烟草国际公司制造。日本烟草国际公司的这些产品中，有99%出产于公司位于俄罗斯圣彼得堡的Petro烟厂。
 
-素材链接：【reuters.com】[Ukraine accuses Russia of genocide after bombing of children’s hospital](https://www.reuters.com/world/europe/russia-promises-silence-ukrainians-flee-battered-cities-2022-03-09/)
+消息来源：[ＪＴ、ロシアで新規投資を一時停止…たばこ生産も一時停止の可能性](https://www.yomiuri.co.jp/economy/20220310-OYT1T50272/)
 
-* * *
-
-审核：文乐
-校对：信心满满
-发布：花羽
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-7.jpeg)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

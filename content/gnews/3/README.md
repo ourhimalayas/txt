@@ -2,41 +2,38 @@
 ---
 
 
-## 白宫警告俄罗斯可能在乌克兰使用化学武器
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2143277/)
+## 俄军再次轰炸乌克兰妇幼医院
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2143320/)
 
-据《the Hill》记者：Ted Johnson，2022年3月9日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1108.png)图片来源：Oliver Contreras/Sipa USA
-白宫新闻秘书普萨基, 在莫斯科指控美国在乌克兰境内存放生物武器后，周三警告俄罗斯可能在乌克兰使用化学武器。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-普萨基称俄罗斯的说法是“虚假的”和“荒谬的”，她警告说，这可能成为俄罗斯人在袭击乌克兰时部署化学武器的借口。
+#### 整理/编辑：围剿维尼熊
 
-普萨基在一份声明中说：“这是我们多年来在乌克兰和其他国家多次从俄罗斯人那里看到的那种虚假信息行动，这些行动已被揭穿，也是我们一直警告俄罗斯人会发明的虚假借口类型的一个例子”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/D96DB2AC-D656-475A-9737-1893DF8C3BDF.jpg)图片来源：网易
 
-她继续说道：“此外，俄罗斯有指责西方侵犯俄罗斯自身行为的记录。去年12月，俄罗斯错误地指责美国在乌克兰部署了拥有化学武器的承包商”。
 
-“这显然是俄罗斯试图为其对乌克兰的进一步有预谋和无端攻击辩护的明显策略。既然俄罗斯做出了这些虚假声明，而中共国似乎也支持这种宣传。我们都应该留意俄罗斯可能在乌克兰使用化学或生物武器，或使用它们栽赃陷害。这是一个明显的模式。”她说。
+根据中央社3月10日报道，联合国人口基金（UN Population Fund）宣布，俄罗斯袭击了乌克兰东南部城市马里乌波尔（Mariupol）一家医院。
 
-据路透社报道，俄罗斯外交部发言人玛丽亚·扎哈罗娃（Maria Zakharova）声称，俄罗斯发现了美国在乌克兰实施的一项开发炭疽和其他生物武器计划的证据。她声称该计划得到了五角大楼的支持。
+马里乌波尔市长表示，该妇幼医院遭轰炸造成3人死亡，包括1名小孩。
 
-美国国务院发言人内德·普莱斯在一份声明中说：“俄罗斯的这种虚假信息完全是胡说八道，而且不是俄罗斯第一次对另一个国家提出这种虚假声明。此外，多年来，这些说法已被最终反复揭穿。”
+联合国人口基金的乌克兰代表纳达尔（Jaime Nadal）说，马里乌波尔的医院不是唯一遭到袭击的医院。之前还有两家乌克兰妇幼医院遭到摧毁，分别是在日托米尔州（Zhytomyr）和在萨尔蒂夫斯基（Saltivsky）的妇幼医院。
 
-五角大楼新闻秘书约翰·柯比在周三的简报会上称这些说法“荒谬”和“可笑”。
+纳达尔说，乌克兰有300家医院与69家妇幼医院和产科照护中心，他同时指出联合国人口基金估计乌克兰未来3个月约有8万名孕妇要分娩。
 
-白宫发出警告称，俄罗斯可能在入侵乌克兰时使用化学武器，而俄罗斯军方越来越多地瞄准平民和非政府建筑。
+纳达尔表示，乌克兰有超过4300名孕妇在2月24日到3月7日乌克兰遭到入侵时生产。
 
-乌克兰官员说，俄罗斯周三早些时候袭击了马里乌波尔市的一座医院大楼，包括一个产科病房。妇女和儿童试图逃离暴力的视频已经流传开来，自上个月入侵开始以来，已有数百名平民丧生。
+就俄军炸毁马立波医院一事，西方国家对此予以严厉谴责。
 
-文章来源：[**https://thehill.com/homenews/administration/597586-white-house-warns-russia-could-use-chemical-weapons-in-ukraine**](https://thehill.com/homenews/administration/597586-white-house-warns-russia-could-use-chemical-weapons-in-ukraine)
+参考链接：[https://www.cna.com.tw/news/aopl/202203110109.aspx](https://www.cna.com.tw/news/aopl/202203110109.aspx)
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*发布：*Frank2021
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

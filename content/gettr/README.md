@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 9:21 AM (UTC)`
+
+【Ukraine Rescue】KlanKosova Media invite NFSC volunteers for a live interview after hearing Ukraine rescue operations sponsored by ROL Foundation <br/><br/>【乌克兰救援】克朗科索瓦电视台听说法治基金资助的乌克兰救援行动后，邀请新中国联邦的志愿者进行直播采访。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group13/getter/2022/03/11/09/5602ae24-5a0b-6704-36c7-a75eafca76d6/out.jpg)
+
+---
+
 `@miles 3/11/2022 9:00 AM (UTC)`
 
 
@@ -147,13 +154,6 @@
 
 3/9/2022 Miles Guo: The NFSC & ROLF Ukraine rescue mission is real, while the CCP is full of lies. The UK will pay the salaries of the Ukrainian officials, and Ukraine will be the center of Europe in the future. China will have a federal system, with each region being independent but not separated. This will bring peace to the world and help eliminate the poison left by the CCP.<br/><br/>3/9/2022 文贵直播：新中国联邦法治基金的救援行动是真实的，而中共却谎话连篇；英国给乌克兰的官员发工资，乌克兰将成为未来欧洲的中心；中国将实施各地区分而不离的联邦制，这将给世界带来和平并有助于排除中共的余毒<br/>
 ![img](https://media.gettr.com/group22/getter/2022/03/10/22/40ce6d16-bb12-ac87-dfe9-1cb103e434b6/out.jpg)
-
----
-
-`@miles 3/10/2022 10:11 PM (UTC)`
-
-3/9/2022 Miles Guo: I have come across numerous challenges in the past dozens of days. But the fellow fighters have launched an unprecedented rescue operation in the history of humanity that has stunned the West. The CCP is still lying through its teeth in terms of rescuing the Chinese people in Ukraine, but the Little Pinks have no idea that they are stepping into the biggest catastrophe that the Chinese people have ever experienced in the past thousands of years.<br/><br/>3/9/2022 文贵直播：文贵在过去几十天遇到了诸多挑战 ；战友们创造了人类前所未有的救援行动，震撼了西方；中共在乌克兰撤侨上满口谎言，小粉红们却不知自己已进入中国人千年未有的大灾难！<br/>
-![img](https://media.gettr.com/group46/getter/2022/03/10/22/7dff925c-0e3d-6150-e04a-7121a58ee8bc/out.jpg)
 
 ---
 
