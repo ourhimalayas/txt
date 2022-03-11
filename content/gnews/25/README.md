@@ -2,30 +2,10 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月10日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2141105/)
+## 3/10/2022 文贵直播：香港恒生指数快要跌破2万点，预示着香港经济的大崩溃; 感染CCP病毒的香港警察比普通市民要多得多，这是报应
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2141113/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-7.png)
-
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/pzc6rgef86](https://gettr.com/post/pzc6rgef86)
-访谈：[https://gettr.com/post/pzczi0cea0](https://gettr.com/post/pzczi0cea0)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-11.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+秘密翻译组-北美组
 
  
 

@@ -2,50 +2,21 @@
 ---
 
 
-## 解读一张漫画，“中共欲再次放毒，普京亲自开火箭去乌克兰”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2141310/)
+## 【 蓝枫法律 】 新中国联邦乌克兰大救援
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2141381/)
 
-2022-03-10
+#### **加拿大温哥华扬帆农场 – 蓝枫法律**
 
-编译和评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/03/C5@UWDYTCX0LS6QES.png)屏幕截图：[https://www.journaldemontreal.com/auteur/yannick-lemay](https://www.journaldemontreal.com/auteur/yannick-lemay) 
-## 普京亲自开火箭去乌克兰
+汀兰：回到法治基金和法治社会的乌克兰救援的这两个图片，再次提一下这个救援的信息，请我们每一个观众们战友们就在你手指间下载这个图片，无论你是在推特也好，还是在Facebook也好，还是在Instagram也好，就是在弹指间，转发在这些知名的人士底下，这些宗教团体底下，这些流量大的人底下，复制链接这个图片你也可以简简单单的写一下：如果你在乌克兰想要得到安全请及时拨打热线。那么生命在你的这个一念之间，就是希望大家能够得到这个消息，能够让更多的人知道，因为我们没有这个能力去前线，因为各种原因，但是我们希望更多的人可以一起努力把这个救命的信息传递到世界上各个角落，让这些跟乌克兰有千丝万缕的人能够相互之间沟通知道这个信息，使在当地的人能够拨打这个电话号码，得到及时的救助，翌珊大姐和农场的好多战友已经申请参加到现场到波兰的救援，我们为他们祷告为他们祈祷平安。
 
-漫画显示，在中共病毒的掩护下，普京亲自开火箭去乌克兰…。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6K9T@@TW6WQ18PGP2DWX.png)屏幕截图：[https://m1.quebecormedia.com/emp/emp/Poutine\_missile\_copiefbb39279-afbd-401d-ba6c-204d2b90d6f3\_ORIGINAL.jpg?impolicy=crop-resize&x=0&y=0&w=0&h=0&width=968](https://m1.quebecormedia.com/emp/emp/Poutine_missile_copiefbb39279-afbd-401d-ba6c-204d2b90d6f3_ORIGINAL.jpg?impolicy=crop-resize&amp;x=0&amp;y=0&amp;w=0&amp;h=0&amp;width=968) 
-2022年3月10日文贵在大直播中指出（[https://gnews.org/zh-hans/2139431/](https://gnews.org/zh-hans/2139431/) ，[https://gettr.com/user/miles](https://gettr.com/user/miles) ）：
+翌珊：人的生命只有一次，我们应该好好的珍惜我们的生命，相信我们每一个人都是有有使命的，我们要传播乌克兰战争真相和病毒的真相，同时要告诉人们我们是新中国联邦人，我们不是CCP，我们跟他们是不一样的，我们是要灭CCP的。听说病毒又开始了，大家要保护好自己和家人，才能去救别人。
 
-## 新中国联邦在前线搭起（巨大的）帐篷
+汀兰：为我们在前线的亲人、战友们、义工们祷告，希望他们这一次救援能顺利能够平安，为他们祈福。
 
-俄乌战争当中，只有（NFSC）新中国联邦在前线搭起（巨大的）帐篷，积极救援（照顾）从乌克兰逃出来的人，乌克兰人展现出不一样的“精气神”（勇气，力量）。
+**直播视频：https://gettr.com/streaming/pyel018cd9**
 
-## 被炸得稀烂
+**编辑****/****发文：蓝枫法律栏目**
 
-某位在乌克兰生活几十年的朋友向七哥表示需要逃出乌克兰，只因（乌克兰被炸平了）周围被炸得稀烂。
-
-**相信报应吧**
-
-香港经济一塌糊涂，中共出动千亿元救场，股市即将跌破二万点。香港警察感染病毒人数（之）多，是对镇压“香港运动”的报应（相信报应吧）。
-
-## 中共蠢蠢欲动欲再次放毒
-
-（现在）中共蠢蠢欲动欲再次放毒，（想）造成世界经济灾难。中共（的作恶）将被全球（全世界）算账。
-
-## 评论：
-
-普京，这个疯子，悍然攻打乌克兰。另一个疯子，“习太阳”妄想再次放毒全世界。普京和“习太阳”将“被全球（全世界）算账”
-
-参考资料
-
-1. [La caricature d’Ygreck](https://www.journaldemontreal.com/2022/02/28/la-caricature-dygreck)
-
-
-编辑：LILY
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

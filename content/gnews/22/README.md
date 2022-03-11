@@ -2,10 +2,10 @@
 ---
 
 
-## 2022年3月11日《樱花简报》：日本上调进口小麦价格至历史第二高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2141152/)
+## 2022年3月11日《樱花快报》：韩国新增中共病毒连续2天超30万例
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2141175/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3._11简报-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220311快报-scaled.jpg)
 
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/老黑*
