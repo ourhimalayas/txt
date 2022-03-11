@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 9:19 PM (UTC)`
+
+Nicole, [Mar 12, 2022 at 4:50 AM]<br/>👆Nicole 刚采访了这两个波兰独立制片人，她们清楚的知道中共代表邪恶，新中国联邦代表和平、人道和正义。
+![img](https://media.gettr.com/group27/getter/2022/03/11/21/ec4b3b45-23a6-79ce-2f2d-d7670443272e/out.jpg)
+
+---
+
 `@miles 3/11/2022 8:29 PM (UTC)`
 
 As our NFSC & ROLF Ukraine Rescue efforts proceeds, we have witnessed so many acts that are simple yet so touching, and so many are expressing their gratitude.  <br/>No one wants a war, all we want to do here is to try our best to save more lives, including our compatriots, regardless of their political stance, even those who may be our adversaries  在我们的救援过程中，我们经历了太多感动，太多的感谢。没有人希望发生战争，我们要做的是努力拯救每一个生命，每一个同胞，即使曾经是我们的对手，我们的敌人。
@@ -152,13 +159,6 @@ By March 10th, more and more refugees arrived in the NFSC tent. The top media gr
 
 【Ukraine Rescue】Volunteers for the Ukrainian rescue operation of the NFSC and ROL Foundation use Starlink to communicate<br/><br/>【乌克兰救援】新中国联邦、法治基金的乌克兰救援行动志愿者使用星链进行通讯
 ![img](https://media.gettr.com/group42/getter/2022/03/11/02/427c67c0-2341-ce29-267f-81f9326be99e/out.jpg)
-
----
-
-`@miles 3/11/2022 2:14 AM (UTC)`
-
-2022.03.10 晚《新中国联邦新闻访谈》 战争后的全球地缘政治；俄罗斯的家底和结局，粮食灾难和解药
-![img](https://media.gettr.com/group4/origin/2022/03/11/02/36111a37-e4a2-ebdb-ccb8-30e0473daa95/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

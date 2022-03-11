@@ -2,16 +2,12 @@
 ---
 
 
-## 【 G时新闻 】3/11 新联邦乌克兰人道救援前线最新报道
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2146848/)
+## 3月11日文贵大直播要点（图片1-4）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2146883/)
 
-加拿大温哥华扬帆农场G-时新闻
-
-来自新中国联邦乌克兰人道救援前线战友的最新报道：
-
-当地时间3月11日中午12点半梅蒂卡边境又迎来了一批乌克兰难民。法治基金和新中国联邦的帐篷里给大家供应足够的食物，热水，零食，暖气，让每个人都能感觉到家的温暖。 昨天，法制基金新联邦义工战友们和“无疆界医生”国际组织一同将护栏搬运到现场的紧急救援通道，帮助维持救援通道的有序和畅通。
-
-编辑/上传：文所未闻
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/03/213A0F47-8793-4367-917C-627B46B88B23.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/70BF4C80-0F5A-45D5-8D49-C544DC0D481F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/D4809669-7499-465A-82E5-FD8077365AA6.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/3092320D-2C7D-4BA5-BF96-7154C9AFEA7B.jpeg)
+发布：水涨船高
 
  
 

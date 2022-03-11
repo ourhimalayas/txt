@@ -2,10 +2,10 @@
 ---
 
 
-## 【乌克兰救援】乌克兰难民在新中国联邦温暖的大帐篷中休息
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2146747/)
+## 俄军空袭第尼普罗之后的惨状
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2146761/)
 
-【乌克兰救援】03/10/2022 乌克兰难民们在我们新中国联邦温暖的大帐篷中休息
+03/11/2022 俄罗斯对第尼普罗的空袭导致建筑物起火，许多建筑物被完全摧毁。人们描述他们的生活好似 “人间地狱”。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
