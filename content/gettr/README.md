@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@pangushixun 3/11/2022 2:32 PM (UTC)`
+
+波兰时间3月10日下午6:00 三位意大利赶来的志愿者，将一车物资，大部分为婴幼儿用品放在medyka 新中国联邦帐篷门口，并委托新中国联邦现场救援义工，将这些物品分发给难民。<br/><br/>#盘古时讯  <br/>#乌克兰 #救援 #人道主义 <br/>#新中国联邦
+![img](https://media.gettr.com/group35/getter/2022/03/11/14/8e2ed116-c3a3-f639-0dd6-6b619634a389/out.jpg)
+
+---
+
 `@miles 3/11/2022 4:40 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
@@ -147,13 +156,6 @@ By March 10th, more and more refugees arrived in the NFSC tent. The top media gr
 
 3/10/2022 Miles Guo: Hong Kong's HSI is about to fall below 20,000 points, signaling a major economic collapse; it is totally karma that more Hong Kong police are infected with the CCP virus than ordinary citizens; we need to learn from the Ukraine war and understand that the H-Pay is a way for Chinese people to save their lives in wartime<br/><br/>3/10/2022 文贵直播：香港恒生指数快要跌破2万点，预示着香港经济的大崩溃; 感染CCP病毒的香港警察比普通市民要多得多，这是报应；我们要从俄乌战争中学会成长，认识到喜支付是中国人在战时的救命方式<br/>
 ![img](https://media.gettr.com/group50/getter/2022/03/11/01/95c244ef-26eb-5661-fa06-b5a6b96d1187/out.jpg)
-
----
-
-`@miles 3/11/2022 1:13 AM (UTC)`
-
-3/10/2022 Miles Guo’s GETTR: Only the New Federal State of China has set up tents at the front line of the rescue operation to take care of the women and children and keep them warm. The industriousness and bravery of the Ukrainians and Poles are in stark contrast to the cowardice of the Chinese people. The CCP is ripping off the Chinese by charging them exorbitant airfares and quarantine fees!<br/><br/>3/10/2022 文贵盖特：只有新中国联邦在救援前线搭起了帐篷让妇女和儿童获得温暖和照顾；乌克兰人和波兰人的勤劳和勇敢与中国人的懦弱对比鲜明；中共用高昂的机票和隔离费玩弄和敲诈中国人！<br/>
-![img](https://media.gettr.com/group11/getter/2022/03/11/01/8ff1b9da-81c1-a42e-d42a-226c52bceab3/out.jpg)
 
 ---
 

@@ -2,35 +2,27 @@
 ---
 
 
-## MV版Hcoin To the Moon上线92天第30次位列匈牙利iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2145793/)
+## 加拿大安省将逐步取消强制口罩规定
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2145951/)
 
-3/11/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线92天第30次位列匈牙利iTunes热门音乐视频榜榜首，第44次位列前三名
+采编：加拿大温哥华杨帆农场 – 文莱
 
-* * *
+撰稿：加拿大温哥华杨帆农场 – Quitman
 
-[【PDF 下载】Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_102.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-64-2.jpg)图片来源：CTV News
 
 
-[【PDF 下载】Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-11-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+据加拿大[CTV新闻]3月9日报道，安大略省将在近期取消大部分在室内公共场所强制配戴口罩的规定。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+安省首席卫生官当天宣称，从3月21日起，该省的学校、餐厅和电影院等都将不再要求配戴口罩。而公共交通、长期护理院、医疗机构等场所在4月27日后也将取消强制口罩措施。
+
+此外，从3月14日开始，对学校、医院和长期疗养院等职员的强制疫苗接种政策也将被取消。并将不再要求在室外接触过病毒感染者的人自我隔离。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+原文链接：Mask mandate Ontario: Requirement to end in most places on March 21 | CTV News
 
  
 

@@ -2,24 +2,33 @@
 ---
 
 
-## 【 G时新闻 】中共国曾要求俄罗斯推迟战争
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2111289/)
+## 全球瞩目！新中国联邦乌克兰人道救援在行动
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2140870/)
 
-**播报：加拿大温哥华扬帆农场 – 悠然**
+3月10日，新中国联邦乌克兰人道救援行动在全世界引起了广泛的关注，来自世界各地的媒体和机构来法治基金新中国联邦的大帐篷来拍摄难民。
 
-**视频制作：加拿大温哥华扬帆农场 –  文雅**
+美联社、彭博社、盖帝图片社、意大利电视台、西班牙电视台、波兰最大报纸和电视台、阿拉伯迪拜电视台……国际红十字会的工作人员穿着他们的制服（上面有印着红十字会的标志）把过境的妇女和儿童送到新中国联邦救援大帐篷里安顿。
 
-据报道，中共国高级官员上个月告诉俄罗斯高级官员，在北京冬奥会结束后再入侵乌克兰。
+法治基金新中国联邦组织的前线救援人员和总部位于瑞士的国际人道救援机构“无疆界医生组织“ （Doctors Without Borders，简称：MSF）并肩行动 ！
 
-据《纽约时报》报道，这一消息是基于一份西方情报报告，该报告表明中共国高级官员在一定程度上了解俄罗斯与乌克兰开战的意图。 俄罗斯领导人弗拉基米尔-普京和中共国国家主席习近平在2月4日奥运会正式开始之前进行了会晤，不久之后发表了一份长篇声明，宣布两国的伙伴关系的广度“没有限制”，并谴责北约的任何进一步扩张。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/8-17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-34.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-56.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-71.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-114.jpg)
 
-新闻媒体内部曾有猜测，入侵将在北京的国际运动会之后发生。 奥运会闭幕式后的第二天，普京命令更多俄罗斯军队进入叛乱分子控制的乌克兰东部地区。仅仅四天后，俄罗斯军队就开始了对该国的全面入侵。 自入侵以来，中共国官员表现出对俄罗斯的广泛支持，以及对北约所谓的努力的持续关注。中共国外交部指责美国使乌克兰和俄罗斯之间的紧张局势升级，导致了目前的情况，同时也批评了美国和欧洲国家对俄罗斯的制裁。
 
-原文链接：https://gnews.org/zh-hans/2101382/
+素材来源：新中国联邦前线战友！感谢你们的付出，你们辛苦了！
 
-视频链接：https://gettr.com/post/py2m96af11
+撰稿/发布：一叶知秋
 
-编辑/上传：文所未闻
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

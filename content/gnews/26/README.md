@@ -2,37 +2,40 @@
 ---
 
 
-## 台湾否决中资企业电视台申设案
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2145450/)
+## 有声|乌克兰人的坚强和团结，赢得世界的尊重
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2145723/)
 
-作者：纽约香草山医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月9日，台湾国家通讯传播委员会NCC否决了中资企业中天电视将其在境外的中天亚洲台转入台湾设台的申请案。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-19.jpg)
-中天电视在2020年因为老板明显违反法令，直接干预新闻播放的内容，替中共做宣传，被NCC撤销了新闻台的执照。该企业近日又重新包装，想借由境外电视台的外壳再度进入台湾。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+郭文贵先生在3月8日的盖特视频中指出，此次俄乌战争充分体现出了乌克兰人团结和坚强的民族精神。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-10-%E4%B8%8A%E5%8D%889.34.30.png)
+郭先生表示，乌克兰人良好的族群关系和使命感让他们这次紧紧地团结在了一起，为了自己的家人、土地、资产、安全和尊严誓死不屈地顽强战斗，向全世界证明了乌克兰的坚强和伟大。到最后，普京发动的这场侵略战争只会以失败告终。
 
-NCC的审核结果表示，该台提出的申设案，牵涉到与中共国境内电视台的合制节目，而且该台申请的是成立综合电视台，申请书中的新闻节目比重却超过一半。 这两项都违反了现行法规，因此否决了该申请案。
+郭先生还提到，而今，全世界都明白中共才是俄罗斯背后的金主和挑拨战争的主谋，这将导致被中共绑架的中国人最终承受这场战争所带来的高昂代价。
 
-参考链接：
-
-1. [中天亞洲台擬與東方衛視等合製節目違兩岸條例 NCC否決申設](https://www.cna.com.tw/news/ahel/202203090309.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-2. [NCC委員一致決議否決中天新聞台換照：違規嚴重 內控失靈\[影\]](https://www.cna.com.tw/news/firstnews/202011185006.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+但郭先生也补充道，目前，新中国联邦在乌克兰的战友们不仅正在努力地拯救着所有海外中国人的安全，他们更是在拯救着海内外华人的未来。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-总编: 宁文静
-编辑: 飞虹
-审核: Irene木木
-校正/发稿：Fei797
+文字版原文：[乌克兰人的坚强和团结，赢得世界的尊重](https://gnews.org/zh-hans/2138048/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
