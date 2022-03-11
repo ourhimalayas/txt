@@ -2,25 +2,24 @@
 ---
 
 
-## 梅蒂卡救援前线跟踪报道
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2146849/)
+## 夜幕里的新中国联邦驻波兰救援营地
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2147087/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-60.png)
-前线记者：Nicole
+整理、编辑：Candy
+图片来源：玫瑰圆（网名）、Nicole、煤油灯（网名）
 
-3月11日中午12点半梅蒂卡边境又迎来了一批乌克兰难民
+这是新中国联邦和法治基金驻波兰救援乌克兰难民的营地夜间的景象。如果没有俄乌战争，该是多么恬静美好的夜晚。
+![Image](https://media.discordapp.net/attachments/950448401529577502/951911242845536327/image.png?width=721&amp;height=406)小帐篷（50平米）里人影绰绰![Image](https://media.discordapp.net/attachments/950448401529577502/951913050821263421/image.png?width=721&amp;height=406)新建的200多平米迎接难民的大棚wwawaiwai’gwai’guwai’guawai’guan外观![Image](https://media.discordapp.net/attachments/950448401529577502/951913129376366703/image.png?width=721&amp;height=406)![Image](https://media.discordapp.net/attachments/950448401529577502/951913555626692648/image.png?width=721&amp;height=406)![Image](https://images-ext-1.discordapp.net/external/cBBQ-I5NrW-Csoz6whQJvHCaSLZD-0W8Z76P82Trvxw/https/media.discordapp.net/attachments/950448401529577502/951913487746084895/image.png?width=721&amp;height=406)棚内灯火通明，电力来源于发电机，都是由法治基金提供的资金yyuyuayuanyuan’zyuan’zhyuan’zhu援助。![Image](https://media.discordapp.net/attachments/950448401529577502/951924668909109268/image.png?width=721&amp;height=406)新大棚迎来的第一批妇女儿童难民：虽然妈妈在讲电话，可能在联络相关人员，但从孩子们的神情看，他们没有受到饥饿和寒冷的威胁，身体是安全的、舒服的。
+希望战争早日结束，乌克兰人民能早日结束因战争带来的灾难，重新过上往日的美好生活！
 
-一个波兰租车公司的老板今天加入了法治基金新中国联邦的人道救援团队，他是波兰本地人（住在克拉科夫）战友们本来是打电话给他的公司要租车来梅蒂卡，他听说了我们是来救援的，就决定加入战友们，一起来梅蒂卡，他给战友们当翻译（正好我们缺翻译）在我们的营救中心帮忙。他去过中国，知道中国人的善良和友好，我们告诉他，中国人也希望能够像他的父辈一样早日脱离共产主义，获得自由。他很高兴今天能够和新中国联邦人一起参与这场人道主义的救援活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-11-161329.jpg)左三是波兰当地的租车公司老板，他跟咱们加拿大的战友们一起开了3个小时的车从克拉科夫赶到梅蒂卡难民营，他很高兴加入法治基金新中国联邦的人道救援团队
-左三是波兰当地的租车公司老板，他跟咱们加拿大的战友们一起开了3个小时的车从克拉科夫赶到梅蒂卡难民营，他很高兴加入法治基金新中国联邦的人道救援团队
+发布：Candy
 
-来自前线战友Nicole的3月11号 梅蒂卡难民营的报道
-
-发稿：serena
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-29.jpg)
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

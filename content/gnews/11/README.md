@@ -2,52 +2,71 @@
 ---
 
 
-## 美国主要通胀指标跃升至40年新高，油价继续飙升
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2147115/)
+## 灭共者之郭氏情报站（37）2022/03/11 文贵大直播
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/2147206/)
 
-作者：纽约香草山农场 – 四季
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+设计者：纽约香草山设计部 — 喜马拉雅大喵儿，天马星空J
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-据媒体3月10的报道，美国消费者价格在过去12个月中上涨了7.9%，食品、住房和天然气的成本在2月份继续上张，大多数消费品的成本在2月份上升了0.5%，天然气占CPI指数月度涨幅的近三分之一。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/download-9.jpg)“情绪调查显示，美国人甚至在危机之前就对通货膨胀非常不满，尽管支出还在维持，”亚当斯补充说。”这种最新的冲击足以迫使家庭预算发生具体的变化。”（MARCIO JOSE SANCHEZ/AP-FILE)
-
-与此同时，能源和食品成本的上升正在推动整体通货膨胀。劳工部周四报告说，2月份通货膨胀没有减弱的迹象，油价飙升推动通胀率创40年新高，当月上涨0.8%，达7.9%，汽油价格已经超过了每加仑4美元，占涨幅的近三分之一。同时，近日石油交易价格已高达每桶139美元。
-
-此外，劳工部周四报告显示，首次申请失业救济金的人数增加了11,000人，达到227,000人。劳动力市场的紧张已导致需求旺盛行业的工人工资上涨，如制造业、物流业和软件开发行业。
-
-据悉，美联储准备在下周开始一轮加息，以应对通货膨胀，但市场利率已经在采取措施之前上升。经济学家已开始下调对今年经济增长的预测，许多人将他们的预测降低了半个百分点。
-
-**原文阅读：**
-
-1. [**Inflation hits another 40-year high, as gas prices continue to surge (cnbc.com)**](https://www.cnbc.com/2022/03/10/inflation-hits-another-40-year-high-as-gas-prices-continue-to-surge.html)
-2. [**Soaring Gas Prices Drive Inflation to a 40-Year High of 7.9% in February | Economy | US News**](https://www.usnews.com/news/economy/articles/2022-03-10/soaring-gas-prices-drive-inflation-to-a-40-year-high-of-7-9-in-february)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
-
-编辑/校对/发稿：小鹿
 
 
+
+
+
+**灭共者-郭氏情报站**
+**2022年3月11日 文贵大直播**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022.03.11.png)
+
+1、共产党100年毁掉了中国人千年的形象。新中国联邦乌克兰救援行动是世界上最高档次的，没有任何利益的救援！救援素未相识的人，中国人找到良知，知道自己是可以和世界平等相处。新中国联邦人过去一切努力和锻炼，造就了今天行动的成功。
+
+2、共产党曾经是国际人权组织第一资金来源，红十字会第二位的资金投入。但现在共产党被打入塔西佗陷阱，世界无人相信！新中国联邦打痛了共产党，正在走向世界。
+
+3、警报！共产党马上要在世界上挑起比俄乌战争还要大的事情！灭共是最大的事！美国的F37B已经升空600天了，俄罗斯无法打核战，只能黏黏糊糊拖长战争！
+
+4、新中国联邦准备成立奖励系统，包括股份，奖励在前线的战友。七嫂也捐款了，家族基金也会捐款，七哥保证永远大于战友的捐款！永远不能忘记法治基金捐款的战友。捐款优先用在俄乌战场。
+
+5、美国政府对数字货币的态度重大转变，从过去考虑所有数字货币非法，到现在数字货币合法化，正式考虑数字美元。关键词：“数字美元是一个时代的需要，负责任的数字货币，加强立法监管。”
+
+6、数字货币的时代已经到来，无人能挡！数字货币为主，法币辅助的时代到来！喜币固定数量10亿个币，世界有76亿人。喜币限量，低耗能，去中心化技术，中心化管理，0误差，恢复货币的本质流通和稳定性，易支付，最新的技术。战友们拿好喜币！
+
+7、俄罗斯战友赶快走！俄罗斯想回到以前不可能，马上会解体。俄罗斯很快会禁飞，再想跑出来就不可能。在俄罗斯的任何财产都会是负担，和俄罗斯有任何关联都会是灾难！没有俄罗斯了，也没有所谓俄罗斯的盟友。
+
+8、国内疫情不是共产党放毒，共产党控制不住病毒。疫情还在继续，香港疫情爆发，会在世界各地继续上演。没有打疫苗是上天给战友的第一恩赐！病毒的死亡人数，比实际高好多倍。共产党很可能继续放毒！
+
+9、战友们务必保持清醒！防病毒，别打疫苗，吃解药是当前最重要的事！5月后世界大乱，最大的乱就是疫苗灾难！
+
+**上一期：**
+
+**[灭共者之郭氏情报站（36）2022/03/09 文贵大直播 – GNEWS](https://gnews.org/zh-hans/2133677/)**
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-12.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 11:29 PM (UTC)`
+
+This is Kharkiv's main museum, staff are racing to get priceless artworks to safety as Russian forces pound the city with artillery and airstrikes. Many of them were created by Russian artists.<br/><br/>这是哈尔科夫的主要博物馆，工作人员正在争分夺秒地将无价的艺术品运到安全地带，因为俄罗斯军队用大炮和空袭对该市进行了轰炸，其中很多艺术品是由俄罗斯艺术家创作的。
+![img](https://media.gettr.com/group50/origin/2022/03/11/23/22cec525-a3f7-cd8b-63bc-c7b9b3f63633/out.jpg)
+
+---
+
 `@miles 3/11/2022 10:59 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-11
@@ -152,13 +159,6 @@ By March 10th, more and more refugees arrived in the NFSC tent. The top media gr
 
 【Ukraine Rescue】03/10/22   A lot of media are going to report the NFSC Medyka Rescue Station for its good service. The NFSC and ROLF will assign more volunteers to this mission of international humanitarian rescue. On the contrary, the CCP hasn’t assigned anyone. <br/><br/>【乌克兰救援】03/10/22  许多媒体将报道新中国联邦的梅迪卡救援站的服务。新中国联邦和法治基金将派遣更多义工参与这场国际人道主义援救行动。相反，中共没有派遣任何人。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group46/getter/2022/03/11/09/b413cc59-b508-a913-db64-446dd696151f/out.jpg)
-
----
-
-`@miles 3/11/2022 9:33 AM (UTC)`
-
-【Ukraine Rescue】There are many volunteers from all around the world participating in the New Federal State of China’s rescue mission in Ukraine. The evil Chinese Communist Party regime hacked our emails trying to sabotage the rescue operation. They must be held accountable.<br/><br/>【乌克兰救援】新中国联邦有许多来自世界各地的义工参与乌克兰救援行动。邪恶的中共政权骇客我们的电子邮件，试图破坏救援行动。一定要追责中共。<br/>
-![img](https://media.gettr.com/group3/getter/2022/03/11/09/7388fd97-705a-78f1-8b81-fc689cc372d7/out.jpg)
 
 ---
 

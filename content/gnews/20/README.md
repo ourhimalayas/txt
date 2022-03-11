@@ -2,25 +2,30 @@
 ---
 
 
-## 法治基金救援成为媒体争相报道焦点
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2146844/)
+## 法治基金的帐篷成为红十字会的中转
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2147043/)
 
-采编撰稿： 加拿大温哥华杨帆农场 – 晨熹
+作者：来自梅蒂卡营地3月11日报道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-61.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-5-1.png)
+新的大帐篷迎来第一批妇女儿童
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-11-165614.jpg)
+ssf 是这边救援秩序的主要维护方，难民排队的围栏是他们在安排秩序，我们的场地也是在他们邀请下安排好的，我们现在和ssf是现场救援亲密的战友。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-11-165604.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-32-1.jpg)图片来源：gettr
+
+由于法治基金 新中国联邦的帐篷是难民营条件最好的，所以红十字会经过把孩子和他们的母亲安排在我们的帐篷里。这是新中国联邦跟红十字会第一次非官方合作，他们对法治基金表现了浓厚的兴趣。新中国联邦 就如帐篷外的篝火，照耀着黑夜，温暖着难民营里每个人内心的希望。
+
+新中国联邦 在梅蒂卡难民营，燃起篝火，来自前站报道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1211.png)
 
 
-据3月10日盖特直播报道：日前，法治基金救援团队在乌波边境口岸麦迪卡救援现场搭建起了一个最大、设备和服务最全的帐篷，以接纳严寒天气下仍滞留在当地的难民。
 
-据悉，帐篷内除设置桌椅，免费提供食品、饮用水和御寒用毛毯外，还加设了三个24小时燃气取暖炉，以保证被救助者能在温暖的帐篷里度过整个寒冷的夜晚。
 
-难民们的争相涌入也让该新搭建的大帐篷成为了救援现场各大媒体争相报道的焦点，也使法治基金和新中国联邦迅速成为各界最想深入了解和采访的对象。人们对所有救援团队成员所展现出来的友善以及强大的组织力和行动力赞不绝口。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-30.jpg)
 
-校对编辑：硫酸羟氯喹64
 
-发稿：文明(添草灭共)
 
-新闻来源： [https://gettr.com/streaming/pywfu457e9](https://gettr.com/streaming/pywfu457e9)
+
 
  
 
