@@ -2,33 +2,33 @@
 ---
 
 
-## 受俄罗斯军队攻击影响，人道救援通道仅成功救出一部分
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2140049/)
+## 全球瞩目！新中国联邦乌克兰人道救援在行动
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2140870/)
 
-翻译：文舞两道
+3月10日，新中国联邦乌克兰人道救援行动在全世界引起了广泛的关注，来自世界各地的媒体和机构来法治基金新中国联邦的大帐篷来拍摄难民。
 
-由于俄罗斯持续入侵乌克兰，9日在乌克兰各城市设立“人道救援通道”撤离平民，但由于俄罗斯军队的攻击，只有一部分人成功撤离。在建立通道的马里乌波尔东部，俄罗斯军队轰炸了产科和儿科医院，造成17人受伤。人道救援通道开设了从首都基辅周边地区到基辅的5条线路，以及向内陆延伸的东北部的苏梅、东部的伊久姆、博尔诺巴哈和马里乌波尔，以及南部的埃内尔戈达尔线路，共计10条线路。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/E4BA5D12-9623-4770-A5AA-62845E174DE3.jpeg)照片来源：https://www.sankei.com/
-据乌克兰媒体报道，已有40,000多人从苏梅撤离，1,000多人从埃内尔戈达尔撤离。然而，在基辅周边的线路上，由于俄军在三条线路上的攻击，大约只有3000人成功撤离出来。“虽然超过40,000人已经撤离。我们的目标是100,000人撤离，但是我们失败了”，乌克兰执政党执行官阿拉哈米亚当天在Facebook上表示。
+美联社、彭博社、盖帝图片社、意大利电视台、西班牙电视台、波兰最大报纸和电视台、阿拉伯迪拜电视台……国际红十字会的工作人员穿着他们的制服（上面有印着红十字会的标志）把过境的妇女和儿童送到新中国联邦救援大帐篷里安顿。
 
-在建立通道的马里乌波尔地区，俄罗斯军队轰炸了一家妇产科和儿童医院，造成17名工作人员和妇女受伤、目前没有死亡确认。乌克兰总统泽连斯基谴责他们是“虐杀行为”。据路透社等消息来源称，白宫和联合国也谴责了俄罗斯。与此同时，俄罗斯外交部单方面声称乌克兰的军队武装了这座医院，马里乌波尔市9日宣布，约1300名平民在俄罗斯对该市的袭击中丧生。
+法治基金新中国联邦组织的前线救援人员和总部位于瑞士的国际人道救援机构“无疆界医生组织“ （Doctors Without Borders，简称：MSF）并肩行动 ！
 
-10日，乌克兰外长克列巴与俄罗斯外长维克洛夫将在土耳其南部安塔利亚举行会晤，这是俄罗斯入侵后两国部长级的首次会谈。俄罗斯声称停火需要乌克兰“非军事化”和对俄罗斯在克里米亚半岛主权的认可，乌克兰表示不期待会谈结果，预计会谈将会非常艰难。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/8-17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-34.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-56.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-71.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-114.jpg)
 
-**消息来源：**
 
-[「人道回廊」成功は一部　ロシア軍、産科病院を爆撃　初の外相会談も停戦望み薄](https://www.sankei.com/article/20220310-M75VHFTWPNMEXGSXT7PWMN3LPM/)
+素材来源：新中国联邦前线战友！感谢你们的付出，你们辛苦了！
 
-**编辑：LILY**
+撰稿/发布：一叶知秋
 
-**发布：歪桑**
-
-20220310
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
-
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

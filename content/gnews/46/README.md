@@ -2,36 +2,31 @@
 ---
 
 
-## 向世界曝光中共阻扰救援侵犯人权的丑陋行为
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141348/)
+## 香港殓房爆满 每天近百具遗体直送火葬场
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2141413/)
 
-作者：纽约香草山  宁文静, 银河系农场  骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月11日，来自战地记者Nicole的现场报道。中共持续动用各种力量，黑客并篡改法治基金救援邮箱，给救援工作造成严重干扰。悉尼乌克兰协会将救援信息公布在官方网站首页，但该条信息只存留十个小时左右，就因中共不断施压乌克兰政府，而被迫删除。
+发布： 2022年3月11日 10:33 AM
+采集：玫瑰新闻组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-7.jpeg)
+![](https://img5.secretchina.com/pic/2022/2-27/p3103411a66113855-ss.jpg)
 
-这种泯灭人性，罔顾生死，恶意剥夺乌克兰难民选择机会的行为，让驻扎在米蒂卡基地的许多其它国家的媒体人，在得知情况之后连连摇头。Nicole相信，战友们抓住一切机会，向这些国际媒体曝光中共反人道的种种劣行，总有一天，真相会大白于天下。
+冠病疫情导致香港殓房爆满，由于要加快流程以及防疫需要，每天都有近百具遗体直接运往火葬场。
 
-参考链接：
-1. [新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播](https://gettr.com/post/pz9rok9003)
-2. [https://gettr.com/post/pz94rb8ea4](https://gettr.com/post/pz94rb8ea4)
+据星岛日报报道，疫情累计死亡个案接近3000人，遗体堆积殓房，殡仪业者指，疫情持续之下，近期每天都有近一百具遗体没有经由殡仪馆出殡，直接运往火葬场。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+香港食环署昨（10日）举办网上研讨会，邀请负责不同程序的相关部门、公共机构与殡仪业界参加，就如何理顺整个流程及缩减所需时间交换意见。殡仪业商会理事长郭凯邦说，业界已向相关部门反映，包括如何能加快处理遗体，以及业界在丧礼上的配合，以加快流程。
 
-总编：宁文静
-编辑：静言
-审核：Irene木木
-校正/发稿：谐趣园
+郭凯邦又提到，疫情之下，近期已有愈来愈多的家属，选择不在殡仪馆办理后事，只在公立医院的殓房或公众殓房作简单丧礼或追思，然后将遗体直接运往火葬场。“除了是加快流程，也是由于在疫情之下，很多家属也担心会在殡仪馆受到感染，加上可能不会有太多亲友出席，故选择简简单单完成丧礼。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+现在全港殡仪馆总共有121个礼堂，郭凯邦称若以食环署提供逾200个火化时段计算，估计每日约有100名死者没有经由殡仪馆出殡，遗体直接运往火葬场。他也说，于公众殓房进行有关仪式并没有问题，但现在部分公立医院的殓房未能配合，并不允许业界为先人提供简单的装身，以及瞻仰遗容等程序，希望当局能够人道处理，以酌情方式让家人进行简单的仪式。
 
+他说，近期死亡人数仍在上升，难以估计何时能够见顶，希望当局可以灵活处理，否则很多丧事也要“拖长来做”，“若不允许，或作出阻挠，令先人不能留下最美好的仪容，很多家属也会感到不安及难过，故希望医院方面可作调整。”
+
+新闻链接：
+[香港殓房爆满 每天近百具遗体直送火葬场](https://www.zaobao.com.sg/realtime/china/story20220311-1251187)
+
+**审核：Barry Jack
+上传排版：V在途中**
 
  
 

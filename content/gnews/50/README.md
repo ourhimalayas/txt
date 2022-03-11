@@ -2,24 +2,64 @@
 ---
 
 
-## 乌驻德大使批德国背后捅刀，呼吁北约设禁飞区
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2140176/)
+## 参议员泰德·克鲁兹：是时候结束暴虐的疫苗强制了！
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2141335/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-3.jpg)（图片来源于本文链接）
-3月7号德总理舒尔茨表示，因为欧洲的能源供应途径单一，能源供应对生活生存至关重要，因此德不会停止进口俄石油天然气。德在燃料方面严重依赖俄罗斯。根据数据统计，俄天然气占德国总进口量约55%，煤炭占50%，原油进口为35%左右。
+参议员泰德·克鲁兹： 华盛顿特区以外的全国所有地区都在醒来。 是时候结束暴虐的疫苗强制了！ 【视频中克鲁兹称赞美国卡车司机的行动代表了民意，疫苗强制违宪，是时候停止了】
 
-梅尔尼克在接受《世界报》专访时说：“这一表态无异于背后捅刀，而且会失去道德制高点，现在的问题是，乌还会有无数平民会在俄轰炸中死亡。德国无论作为北约成员还是欧盟成员国都是最迟疑最犹豫的国家。他说，在将俄逐出Swift系统和停止从俄进口能源产品上，都是首鼠两端，令人痛心。我认为德民众看到总理不能扮演领导者的角色，而是畏首畏尾，一定会觉得很尴尬。”
 
-此前德国批准向基辅提供的1000枚反坦克导弹和500件美制“毒刺”防空武器均已送达，另外还有23000顶头盔、1300件防护腰衣和50000个食品包。梅尔尼克呼吁北约在乌设置禁飞区，“让我们瞧瞧普京是否有胆量起飞”。梅尔尼克在采访中还表示，乌克兰不会投降，因为如果投降了，“乌克兰民族就将被摧毁了，乌克兰就不再存在了”。他坚信，乌克兰最终会取得这场战争的胜利。“在道义上，我们早就赢了。”
 
-信息来源：
+> The rest of the country outside of Washington, D.C. is waking up.
+>  
+> It’s time to end the tyrannical vaccine mandate! [pic.twitter.com/H9MXuOb9Li](https://t.co/H9MXuOb9Li)
+> — Senator Ted Cruz (@SenTedCruz) [March 11, 2022](https://twitter.com/SenTedCruz/status/1502117538637004842?ref_src=twsrc%5Etfw)
 
-[乌克兰大使强调建禁飞区：看普京是否有胆量起飞战机](https://www.dw.com/zh/%E4%B9%8C%E5%85%8B%E5%85%B0%E5%A4%A7%E4%BD%BF%E5%BC%BA%E8%B0%83%E5%BB%BA%E7%A6%81%E9%A3%9E%E5%8C%BA%E7%9C%8B%E6%99%AE%E4%BA%AC%E6%98%AF%E5%90%A6%E6%9C%89%E8%83%86%E9%87%8F%E8%B5%B7%E9%A3%9E%E6%88%98%E6%9C%BA/a-61080497)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+
+参议员兰德·保罗： 一家航空公司重新开始关心他们的员工和科学了. . .其他人会跟随吗？ 美国联合航空公司将让未接种疫苗的员工重返工作岗位
+
+
+
+> One airline resumes caring about their employees and science . . . Will others follow?
+> 
+> United Airlines will let unvaccinated employees return to jobs [https://t.co/6yRt0ftRF9](https://t.co/6yRt0ftRF9)
+> — Rand Paul (@RandPaul) [March 11, 2022](https://twitter.com/RandPaul/status/1502104959290122241?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨： 国家情报总监：乌克兰实验室没有开展生物战（研究）工作，美国的支持仅限于生物安全和安保。 对俄罗斯接管实验室的担忧是基于病原体可能被滥用 【转比尔.格茨华盛顿时报报道：国家情报总监称：乌克兰实验室不涉及生物武器，尽管俄罗斯指控】
+
+
+
+> DNI: Ukrainian labs are not conducting biowarfare work and US support was limited to biosafety and security. Concerns about Russian takeover of the labs is based on possible misuse of pathogens [https://t.co/vOGFF5wpmH](https://t.co/vOGFF5wpmH)
+> — Bill Gertz (@BillGertz) [March 10, 2022](https://twitter.com/BillGertz/status/1501973283536838656?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·华尔兹： 普京有使用构陷花招的历史。看看叙利亚，俄罗斯在阿萨德的军队中使用了少量化学制剂，以此作为使用化学武器进行报复的借口。 这可能为普京在乌克兰策划同样的事情奠定了基础。 【附福克斯视频：美国表示：我们在乌克兰没有生化武器实验室】
+
+
+
+> Putin has a history of using false flags. Just look at Syria where Russia used minor chemical agents on Assad's forces as a pretext to retaliate with chemical weapons.
+> 
+> This could be setting the stage for Putin to orchestrate the same in Ukraine. [pic.twitter.com/DOrQzN4cCz](https://t.co/DOrQzN4cCz)
+> — Rep. Mike Waltz (@michaelgwaltz) [March 10, 2022](https://twitter.com/michaelgwaltz/status/1502048472194768897?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 极权主义精神并没有随着冷战的结束而消亡 但现在在亚洲、东欧和中东，它又一次存活于大国内部 【附视频，卢比奥议员在参议院情报听证会上致开幕词】
+
+
+
+> The spirit of totalitarianism did not die with the end of the Cold War 
+> 
+> But now in Asia, Eastern Europe and the Middle East it once again lives inside of great powers
+> 
+>  [pic.twitter.com/KhOf1CCosB](https://t.co/KhOf1CCosB)
+> — Marco Rubio (@marcorubio) [March 10, 2022](https://twitter.com/marcorubio/status/1502027110168285195?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

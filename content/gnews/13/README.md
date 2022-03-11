@@ -2,27 +2,66 @@
 ---
 
 
-## 樱花FM|两少年打篮球被便衣警暴力拘捕控袭警兼违限聚令
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2145153/)
+## 有声|爱的传播（新中国联邦救援在行动）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2145373/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/0P0d_Mi4a3N53XFqX9NEwUa_kTpNk5YM9_JpRnf5fQyVNic0nQjSYvKclIr8NrruPUjlOrDzsuuBUzyjM_r3w1qgd2BpE1LcG5YGDwvJUIy1806aJDsv8Kw1H83vpRhdfTNToChD)
-港府局收紧防疫措施，人群聚集被缩小至2人。前日（6日）有市民在黄大仙凤钻苑篮球场打篮球，3名便衣警赶到驱赶，但有一对分别15岁及13岁的兄弟因篮球卡在篮球架上而未有实时离开，遭警员污言秽语辱骂并被推搡，15岁少年不忿被羞辱用胸口顶开警员，迅速被2便衣箍颈束腿暴力按在地上，该少年被控涉嫌袭警，两兄弟被控违反限聚令各被罚款5000元，目前15岁少年已被父亲保释。网上有现场市民拍摄的影片，以及目击市民讲述的经过，与媒体报导的大相径庭。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+救援在行动
+爱在传播
+我们的帐篷里
+有食品和火
+失去家乡的人们
+不要客气
+请吃个苹果
+烤烤火
 
-港府实施剥夺人权的强制防疫政策，限制人与人之间的交流，制造隔膜和矛盾，并且只许州官放火不许百姓点灯，对违反防疫禁令的港区人大代表和高官就息事宁人，对供养他们的衣食父母就恶行恶相暴力执法。社交平台发布的影片，将香港黑警暴力执法展现人前，今日各港媒全力帮涉事的黑警粉饰，全部文章都回避警方的粗暴行为，一致认定被警暴的少年咎由自取，要求严正执法。在中共的邪恶统治下，黑白颠倒以丑为美已是“真理”，那些跟随中共作恶的蠢货在众目睽睽之下向港人施暴，完全不给自己留任何后路，中共洗脑的本事令人叹为观止。
+传播爱
+传播勇敢和正义
+救援在寒冷里如荼如火
+老人，孩子和妇女
+得到安置
+在寒风里
+请接住毛毯和水果
+围着篝火
+享受温馨片刻
 
-据悉，香港的纪律部队，尤其是警队的培训中，经常播放仇视民众的影片，这些影片都是经过剪辑，专挑一些暴力场景，以刺激港警痛恨港人，尤其是恨恶香港的年轻人；长期被洗脑的港警对香港社会抱以扭曲的态度，以为自己是惩恶扬善的英雄，每次出勤都会视港人为洪水猛兽，定要杀之而后快。因此不难理解这些被中共洗脑的港警怀着变态的心思挑衅港人，并仰仗中共的支持对港人痛下杀手。当然，并不是所有警队的人员都被成功洗脑，一些良知尚存的人选择离开警队，也有人用自己的方式敷衍执法行动，减少对市民的伤害。那些唯中共马首是瞻的港警需要明白，你们也是中共随时抛弃的棋子，注射新冠疫苗少不了你的份，你们也会一个个倒下，中共将毫不留情地将你们和你们的家人抛入焚化炉中。
+stop the war
+Stop the war
+让爱传播
+停止侵略
+停止杀戮
+让人们回归故土
+不再流离失所
+Stop the war
+stop the war
+传播爱与温暖
+停止侵略
+停止杀戮
+让人们回归故土
+愉快生活
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2406.jpg)
 
-文字版原文：
 
+文字版原文：[爱的传播（新中国联邦救援在行动）](https://gnews.org/zh-hans/2143803/)
 
-| [两少年打篮球被便衣警暴力拘捕控袭警兼违限聚令](https://gnews.org/zh-hans/2125906/) |   |
-| --- | --- |
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

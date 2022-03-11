@@ -2,41 +2,30 @@
 ---
 
 
-## 郭文贵先生警示世界 中共或在四月搅动中东局势
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141403/)
+## 中日财经爆|中共国扛不住卢布贬值 只能扩大交易幅度
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2141446/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月9日的大直播中，郭文贵先生再一次发出预警，3月底到4月中旬，中共或在中东地区发起疯狂的行动，趁乱局入侵台湾，但最终会作茧自缚。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7-2.jpg)[图片来源](https://chaslaukoniukh.com/en/fall-of-the-russian-ruble-en/)
+中共国外汇交易中心周四（3月10日）称，为顺应市场发展要求，决定自周五(11日)起，银行间外汇市场人民币兑俄罗斯卢布即期交易价浮动幅度由5%扩大至10%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-6.jpeg)
+外汇交易中心网站发布的公告并指出，即每日银行间外汇市场人民币兑俄罗斯卢布的即期交易价可在交易中心对外公布的当日人民币兑俄罗斯卢布中间价上下10%的幅度内浮动。
 
-郭先生指出，习并不会如外界猜测的放弃攻台野心，相反，在看到美国成为乌克兰危机中最大受益者之后，将会坚定夺取台湾的信心。未来五到六周，中共会利用再次释放病毒的机会，挑起中东局势，发动能源战争，趁世界乱作一团，迅速发动台海区域性战争，拿下台湾，解决中共国内忧外患的困局。在实现中华大一统的夙愿之后，将要求与美国推进所谓的“中美共同治理地球”。
+俄罗斯军事入侵乌克兰，遭到西方民主国家的集体大规模经济制裁，卢布大幅度贬值。
 
-早在2021年8月16日，郭先生就提到中共会在中东有所行动，通过控制马六甲海峡、霍尔木兹海峡，让中东别无选择地用石油等能源来报复日本，掐住韩国的命脉，让这两国无力阻止中共向亚洲和世界的扩张。然而，郭先生强调，中共的疯狂举动，将招致全世界的制裁和围剿，最后一定以自取灭亡而告终。
+中共国前外管局国际收支司司长管涛认为，由于近期国际市场卢布兑美元汇率波动加剧，而境内市场人民币兑非美货币5%的波幅不足以吸收外围市场影响，扩大波幅后能够较好反应国际外汇市场的变化。
 
-参考链接：
-1. https://www.gettr.com/post/p7uqcv0a97
-2. [https://gettr.com/post/pz3zdza229](https://gettr.com/post/pz3zdza229)
-3. [ロシア産原油輸入禁止 日本はすぐに輸入を止めるのは難しいか](https://www3.nhk.or.jp/news/html/20220309/k10013522551000.html?utm_int=news-new_contents_latest_002)
-4. [https://gettr.com/post/pz3wlidd32](https://gettr.com/post/pz3wlidd32)
+“人民币/卢布价格主要取决于美元兑卢布和人民币的变动，”一中资行交易员表示，近期卢布大幅波动，所以要扩大交易区间。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+过去两周，卢布兑美元[RUB=](https://cn.reuters.com/quote/RUBUSD)下跌约45%，卢布兑人民币[CNYRUB=](https://cn.reuters.com/quote/CNYRUBUSD)亦跌近40%。
 
-总编：宁文静
-编辑：玫瑰圓
-审核：宁文静
-校正/发稿：谐趣园
+消息来源:
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[俄罗斯卢布剧烈波动 中国外汇交易中心扩大人民币兑卢布交易幅度](https://cn.reuters.com/article/russian-rouble-fluctuations-china-yuan-0-idCNKBS2L7148?il=0)
 
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,43 @@
 ---
 
 
-## 赵立坚要卖国? 公然默认俄罗斯承认台湾国
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2145376/)
+## 防火墙不是物理化防火墙,它是意识形态是国家恐怖主义
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2145535/)
 
-撰稿/配图：东京樱花团/Ob
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8853.60%EF%BC%89%E9%98%B2%E7%81%AB%E5%A2%99%E4%B8%8D%E6%98%AF%E7%89%A9%E7%90%86%E5%8C%96%E9%98%B2%E7%81%AB%E5%A2%99%2C%E5%AE%83%E6%98%AF%E6%84%8F%E8%AF%86%E5%BD%A2%E6%80%81%E6%98%AF%E5%9B%BD%E5%AE%B6%E6%81%90%E6%80%96%E4%B8%BB%E4%B9%89%E3%80%902022%E5%B9%B402%E6%9C%8811%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:7)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/赵立坚要卖国-公然默认俄罗斯承认台湾国.png)
+**郭文贵先生：**在日本怎么让国内听到声音？当然七哥有办法。我防火墙千万别想像，共产党在就永远有防火墙，防火墙不是物理化防火墙，它是一个意识形态，它是一个国家恐怖主义的防火墙，防火墙根本没、不存在。
 
-看中国2022年3月11日讯，俄罗斯入侵乌克兰残杀无辜平民引发国际制裁，近日俄国也祭出反制手段，发布一份“不友善国家”名单，其中台湾也入列，甚至标注“1949年以后由自己政府治理”。对于俄罗斯轻易践踏中国主权行为，有记者提出质疑，中共国外交部发言人赵立坚10日硬吐18个字回应。
+就像谷爱凌说的，你上谷歌、上苹果上下载一个VPN就可以翻墙了吗？这话都说了，你觉得她说的话不是真的吗？是真的，真要想翻墙不存在墙，是中国人心里边、精神上那个墙。
 
-俄罗斯政府3月7日签署一份对俄罗斯及其企业、公民采取不友善行动的外国名单，名单中包括美国、加拿大、欧盟国家、英国、乌克兰、瑞士、日本、韩国、澳洲、新西兰、新加坡和台湾等。值得一提的是，俄罗斯特别在该名单中将台湾加注，“1949年以后由自己政府治理”。
+谷爱凌就是在国内呢，你都相信这种事情，那有墙吗？墙在你心里边，在你脑子里边，真正的墙就是共产党，不把共产党灭了，灭什么墙？！战友们别天真，别天真，别天真，我听到你问这问题的时候，我就着急呀，着急呀，谢谢。
 
-相关消息传出后引发两岸民众热议。不少网友留言高呼，“俄罗斯政府要承认台湾是独立国家了吗？”“他们（中共）有抗议俄罗斯把台湾列入不友善国家这件事吗？”也有网友说，北京看到名单后一定认为俄罗斯“辱华”、“这是打脸北京啊？”
+编辑整理：Jacques；
 
-面对外界议论纷纷，有媒体记者在中共国外交部3月10日的例行记者会上向赵立坚提问，“近日，俄罗斯发布了一份不友善国家和地区的名单。中方如何评论？如果将来俄罗斯采取具体行动，中方如何回应？”对此，赵立坚仅短短回应，“俄罗斯作为主权国家，有权作出自己的决定”。
+字幕档制作：兵嫂；
 
-俄爹终究是俄爹，扇你个耳光，骂你俩句你得认着。面对彪悍的俄罗斯人，中共也得忍气吞声。跳不起来的战狼，也许在想这王八蛋直接不给面子，嘴上却在嘀咕这是兄弟内部矛盾不能撕破脸。中共始终是在战斗，始终有你我，始终有敌人，始终有对手，中共是一个不可合作的典范。中共啥都不认，中共唯一认的就是拳头，要共匪乖乖就范唯有拳头!
+视频制作及上传：Cindy；
 
-消息来源：
+G-News发布：海贼王M.D.LUFFY；
 
-[俄国不友善国家名单曝光 赵立坚吐18字只能硬吞(图)](https://m.secretchina.com/news/gb/2022/03/11/1000186.html)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
