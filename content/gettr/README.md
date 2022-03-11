@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 1:36 AM (UTC)`
+
+2022.03.10 晚《新中国联邦新闻访谈》人类"无皇有主"时代将至 世界新格局即将诞生；中共谎称已做好粮食储备 HPay化身救命钱包
+![img](https://media.gettr.com/group47/origin/2022/03/11/01/94440d75-4e9f-615c-4f54-cccffbe7fd58/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 3/11/2022 1:36 AM (UTC)`
+
+3/10/2022 Miles Guo: Hong Kong's HSI is about to fall below 20,000 points, signaling a major economic collapse; it is totally karma that more Hong Kong police are infected with the CCP virus than ordinary citizens; we need to learn from the Ukraine war and understand that the H-Pay is a way for Chinese people to save their lives in wartime<br/><br/>3/10/2022 文贵直播：香港恒生指数快要跌破2万点，预示着香港经济的大崩溃; 感染CCP病毒的香港警察比普通市民要多得多，这是报应；我们要从俄乌战争中学会成长，认识到喜支付是中国人在战时的救命方式<br/>
+![img](https://media.gettr.com/group50/getter/2022/03/11/01/95c244ef-26eb-5661-fa06-b5a6b96d1187/out.jpg)
+
+---
+
 `@miles 3/11/2022 1:13 AM (UTC)`
 
 3/10/2022 Miles Guo’s GETTR: Only the New Federal State of China has set up tents at the front line of the rescue operation to take care of the women and children and keep them warm. The industriousness and bravery of the Ukrainians and Poles are in stark contrast to the cowardice of the Chinese people. The CCP is ripping off the Chinese by charging them exorbitant airfares and quarantine fees!<br/><br/>3/10/2022 文贵盖特：只有新中国联邦在救援前线搭起了帐篷让妇女和儿童获得温暖和照顾；乌克兰人和波兰人的勤劳和勇敢与中国人的懦弱对比鲜明；中共用高昂的机票和隔离费玩弄和敲诈中国人！<br/>
@@ -140,20 +154,6 @@ The New Federal State of China and Rule of Law Foundation would like to find the
 
 【Ukrainian Rescue】03/09/22 Volunteer of NFSC & ROL Foundation Ukraine Rescue Operation interview a Germany musician who plays piano for the refugees at a rescue station in Medyka by the Ukraine/Poland border <br/><br/>【乌克兰救援】03/09/22新中国联邦和法治基金救援行动志愿者采访在乌波边境梅迪卡救助站为难民演奏的德国钢琴家
 ![img](https://media.gettr.com/group4/getter/2022/03/10/14/3c79f9ca-2cea-4d8c-43d3-f736755b27c1/out.jpg)
-
----
-
-`@miles 3/10/2022 2:33 PM (UTC)`
-
-3月10号：尊敬的战友们好！世界正处在极度的不稳定，政治．经济都在过山车当中，只有新中国联邦抓住了世界政治经济．货币数字化的前所未有的机会，正在创造一个诚实有信仰．有币无苗的新新人类！
-![img](https://media.gettr.com/group41/getter/2022/03/10/14/20ec9670-26fc-880e-3d75-d4245ddf89cc/out.jpg)
-
----
-
-`@miles 3/10/2022 1:35 PM (UTC)`
-
-2022.03.10 早 《新中国联邦新闻》 战场相遇即亲人； 米蒂卡前线信息更新
-![img](https://media.gettr.com/group22/origin/2022/03/10/12/99877d59-dc58-f039-42f1-5617f066eb66/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

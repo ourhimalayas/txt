@@ -2,48 +2,28 @@
 ---
 
 
-## 俄军被吊打 中共在猥琐 新中国联邦在营救
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2139368/)
+## 媒体报道：格哈德·施罗德应乌克兰的要求会见弗拉基米尔·普京
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2139686/)
 
-作者：Bryan
+**《政客》报道，格哈德·施罗德在莫斯科与俄罗斯总统弗拉基米尔·普京会面。这是乌克兰人所希望的。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unknown-9.png)
+作者：BLZ / Kuri 原文发布于2022年3月10日20:38
+翻译：LK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-7-1.jpg)图片：前总理格哈德·施罗德祝贺弗拉基米尔·普京就任俄罗斯总统。摄于2018年/dpa/Alexei Druzhinin
 
-自从俄罗斯发动了对乌克兰的侵略以来，俄军的伤亡人数已经3倍于阿富汗7年战争。毫无疑问，俄罗斯已经走向灭亡。
+据媒体《政客》（Politico）的欧洲分支报道，称前总理格哈德·施罗德将在莫斯科与俄罗斯总统弗拉基米尔·普京会面（[Gerhard Schröder in Moskau sein, um sich mit dem russischen Staatspräsidenten Wladimir Putin zu treffen](https://www.politico.eu/article/gerhard-schroder-in-moscow-to-meet-putin-in-ukraine-peace-bid-sources)）根据《图片报》（[Bild-Zeitung soll er](https://www.bild.de/politik/2022/politik/medienbericht-altkanzler-schroeder-trifft-putin-in-moskau-79411314.bild.html) ）的网站报道，他将对乌克兰冲突进行调解。据称，社民党领导层对此行程一无所知。然而，记者Florian Eder写道，施罗德是应乌克兰人的要求动身前往的。
 
-已经四架SU-34战斗机被击落，要知道SU-34是当今世界上数一数二的飞机，被肩扛式单兵武器打下来，确实值得思考。SU-34携带的对地攻击导弹/炸弹射程都在30km以上，而肩扛式防空武器射程绝对超不过5km。
+“消息人士告诉Politico网站，施罗德访问莫斯科之前，他在伊斯坦布尔与一名乌克兰政治家进行了会谈，他是该国与俄罗斯和平谈判代表团的成员，”Politico网站称（[heißt es auf der Website von Politico.](https://www.politico.eu/article/gerhard-schroder-in-moscow-to-meet-putin-in-ukraine-peace-bid-sources)）。 乌克兰人想知道格哈德·施罗德是否能在俄罗斯和乌克兰之间建立一座桥梁。会议将在星期四晚上举行。
 
-同样值得思考的是俄军2018年下水服役的隐形驱逐舰，被乌克兰用火箭炮打沉了，还是在夜间。虽说是可携带制导弹头的火箭炮。
+乌克兰驻柏林大使Andrij Melnyk先生上周已经暗示，施罗德可以充当调解人（[dass Schröder als Vermittler fungieren könnte](https://www.bild.de/politik/ausland/politik-ausland/ukrainischer-botschafter-ueber-ex-kanzler-schroeder-koennte-versuchen-zu-vermitt-79344776.bild.html)）。Politico称，乌克兰议员Rustem Umerov先生已邀请施罗德尝试进行调解。他们将于周一在伊斯坦布尔会面。据称，乌克兰总统泽连斯基亲自恳请施罗德介入。施罗德曾说，他不确定普京是否想要见他，但他会尝试。然后他给普京的一个亲信打电话，问他是否可以来。普京的亲信开了绿灯，并表示周三一架俄罗斯飞机将在伊斯坦布尔接施罗德。
 
-还有一个，乌军居然使用迫击炮，德国在二战时期使用的武器，这次直接把库存捐赠给乌克兰，炸毁了俄军的后勤补给车队。
+施罗德的妻子So-yeon Schröder-Kim女士在社交媒体上宣布，她经常被问及她的丈夫是否可以调解冲突。 “许多人（……）亲自与我联系，询问我丈夫是否可以与普京先生谈论乌克兰的战争。”（[„Viele Menschen haben sich (…) bei mir persönlich gemeldet, ob mein Mann nicht mit Herrn Putin über den Krieg in der Ukraine reden könnte.“](https://www.waz.de/politik/gerhard-schroeder-frau-ukraine-russland-kritik-instagram-post-id234709823.html)） 除其他外，现在这种敦促可能也导致了施罗德与普京的会面。两人是多年的朋友。
 
-对于不熟悉军事武器的读者可能有点懵逼。
+在乌克兰战争和俄罗斯入侵开始后，前总理格哈德·施罗德因没有与总统弗拉基米尔·普京保持距离，以及放弃与俄罗斯国有公司俄罗斯天然气工业股份公司的业务关系而受到批评。
 
-打个比方吧，就好像拿着一把生锈的菜刀去砍翻了坦克。
-
-单凭乌克兰的军事实力，别说撑几天，能撑住几个小时就已经是胜利了。这一下把俄军拖入绞肉机，来多少都废掉。
-
-俄罗斯确实有全球定位系统，但是被黑废了
-俄罗斯确实有先进的战斗机，但是被击落了
-俄罗斯确实有牛逼的隐形舰，但是被击沉了
-
-于是，只能把枪口对准手无寸铁的老百姓
-于是，只能把炮口对准毫无抵抗的居民楼
-
-流离失所的百姓，满眼迷离的孩子，满身鲜血的卫士，都是中共与普京欠下的血债，
-坚强勇敢的战士，睿智果敢的总统，不畏艰险的救援，都是正义与人性闪耀的光辉。
-
-新中国联邦人，不畏艰险，逆行而上，挽救生命，可歌可泣。
-新中国联邦人，不畏阻挠，组织有序，前赴后继，感天动地。
-
-* * *
-
-*审核：Aries的星*
-*校对：信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-6.jpeg)
-
+相关链接：[https://www.berliner-zeitung.de/wochenende/laut-medienberichten-trifft-altkanzler-gerhard-schroeder-in-moskau-wladimir-putin-li.216269](https://www.berliner-zeitung.de/wochenende/laut-medienberichten-trifft-altkanzler-gerhard-schroeder-in-moskau-wladimir-putin-li.216269)
+发布：LK
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
