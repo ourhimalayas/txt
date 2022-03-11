@@ -2,20 +2,28 @@
 ---
 
 
-## 【#G时新闻】文戈七雄向外国记者介绍新中国联邦救援行
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2146791/)
+## 法治基金的帐篷成为红十字会的中转
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2147043/)
 
-【#G时新闻】，文戈七雄，新中国联邦救援行
+作者：来自梅蒂卡营地3月11日报道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-61.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-5-1.png)
+新的大帐篷迎来第一批妇女儿童
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-11-165614.jpg)
+ssf 是这边救援秩序的主要维护方，难民排队的围栏是他们在安排秩序，我们的场地也是在他们邀请下安排好的，我们现在和ssf是现场救援亲密的战友。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-11-165604.jpg)
 
-加拿大温哥华杨帆农场 – G时新闻
 
-文戈七雄向外国记者介绍新中国联邦救援行 ：
+由于法治基金 新中国联邦的帐篷是难民营条件最好的，所以红十字会经过把孩子和他们的母亲安排在我们的帐篷里。这是新中国联邦跟红十字会第一次非官方合作，他们对法治基金表现了浓厚的兴趣。新中国联邦 就如帐篷外的篝火，照耀着黑夜，温暖着难民营里每个人内心的希望。
 
-包括提供从乌克兰利沃夫到波兰克拉科夫的免费巴士。还面向华人、乌克兰人及任何需要帮助的外国人提供免费包机。
+新中国联邦 在梅蒂卡难民营，燃起篝火，来自前站报道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1211.png)
 
-视频链接：https://gettr.com/post/pzh4d9dbdc
 
-核对/发稿：青青
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-30.jpg)
+
+
 
 
 

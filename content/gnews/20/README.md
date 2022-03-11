@@ -2,31 +2,22 @@
 ---
 
 
-## 我们是人道大救援
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2146633/)
+## 【#G时新闻】文戈七雄向外国记者介绍新中国联邦救援行
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2146791/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+【#G时新闻】，文戈七雄，新中国联邦救援行
 
-2022-03-09直播摘录
+加拿大温哥华杨帆农场 – G时新闻
 
-前线的大救援是新中国联邦第一次展示给世界中国共产党不能代表我们中国人，中国人绝对不等同于共产党。我们讨厌这场没有任何理由的非正义的、完全被歪曲化的战争，更不应该把乌克兰的老人、孩子、女人毁于一旦。我们是人道大救援，没有任何利益，没有任何诉求，也不要任何权力。我们会接下来会更大规模的救援，我们的前线的战友做了伟大的事情，在今天我们不一一而说，未来我们的新中国联邦的历史上，永远不可磨灭。我们绝不会像共产党一样，篡改历史，编造故事。因为今天是直播，未来也会是直播，因为有视频，而且数据是不可更改的。
+文戈七雄向外国记者介绍新中国联邦救援行 ：
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+包括提供从乌克兰利沃夫到波兰克拉科夫的免费巴士。还面向华人、乌克兰人及任何需要帮助的外国人提供免费包机。
 
-**关注我们**
+视频链接：https://gettr.com/post/pzh4d9dbdc
 
-Discord 账号
+核对/发稿：青青
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

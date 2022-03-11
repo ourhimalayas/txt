@@ -2,47 +2,26 @@
 ---
 
 
-## 诺基亚将在印度最大电信运营商沃达丰 Idea网络中取代华为设备
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2147036/)
+## 加拿大前精英狙击手前往乌克兰参战
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2147190/)
 
-**撰稿:JIHO**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/123-2.png)**图片来自网络**
-根据路透社3 月 11 日消息，三位熟悉内情的消息人士称，芬兰诺基亚正在进行谈判，以取代印度电信网络中的华为 4G 无线设备，这是这家芬兰公司最大的交换交易之一。
+撰稿：西枫westca
 
-消息人士称，该交易使诺基亚将在印度首都德里的 Vodafone Idea 网络中部署 12000 个支持 5G 的无线电站点和 4000 个小型蜂窝。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-7.jpg)图片来源：网络照片
+据国家邮报3月11日报道，前加拿大精英狙击手”瓦利”为了响应乌克兰总统泽连斯基呼吁外国战斗人员协助对俄罗斯的战争，离开了襁褓中的儿子和妻子，与其他三名加拿大退伍军人带着狙击装备前往乌克兰。
 
-电信专家说，在出现某些安全问题后，印度的电信运营商一直在减少对华为的依赖，沃达丰Idea的举动对华为在印度的前景是一个打击，并补充说更多的运营商可能会选择取代这家中国公司作为供应商。
+这位40岁的程序员说，”我不再是一个好士兵了。但我仍然很好，我计划为这个如此想要自由的国家的胜利做出贡献，至少一点点。“  “瓦利”在阿富汗战争期间两次在加拿大皇家步兵团服役，2009年至2011年在坎大哈担任狙击手，并于2015年作为库尔德部队的志愿战士在伊拉克与伊斯兰国作战。2017年他曾在两英里外在摩苏尔射杀了一名ISIS武装分子。
 
-华为表示，该公司不对具体项目发表评论。诺基亚拒绝置评，而沃达丰idea没有回应置评请求。
+近日，“瓦利”在网上分享了他在乌克兰的经历，在他抵达乌克兰几天后，一支特警队突袭了他与其他外国战士一起的藏身处。”他说，”这是一种震撼人们的经历，他们被推到墙上，有的被推到地上。特警队用俄语与他对峙，”瓦利”说他认为他会被当作俄罗斯士兵抓起来并可能被杀。”房子里的士兵像囚犯一样把手举在空中。其中一名志愿者正在和他的妻子通电话。他也被摔在地上。然而，很快，特警队就发现这群外国人在那里帮忙，最后，他们一起开玩笑。”这让每个人都心情愉快。它甚至能使我们在乌克兰建立更多的联系“。
 
-出于安全考虑，包括美国、英国和瑞典在内的几个国家已经禁止运营商使用华为制造的设备。华为否认存在安全风险。
+“瓦利”说，在目睹了乌克兰公民的痛苦之后，他有了对抗俄罗斯的动力，我想帮助他们，就这么简单。当我看到一座被摧毁的建筑物时，我看到拥有它的人，看到他的养老基金化为乌有，””瓦利”解释说。”我去那里是出于人道主义原因。他还讲述了城市公寓楼居民的快速反应，他们切断了电力，将俄罗斯士兵困在大楼的电梯里。
 
-印度 Ambit Capital 电信分析师 Vivekanand Subbaraman 表示：“不幸的是，由于安全问题和政府压力，别无选择，只能撤掉华为。”
+但是离开最困难的部分是错过了儿子的第一个生日，“瓦利”说。”我知道，这太可怕了，”。”但是我，在我的脑海中，当我看到乌克兰的破坏画面时，我看到的是我的儿子，处于危险之中，他正在受苦。
 
-“这些担忧不是你可以希望消除的。”
+根据官方数据，来自52个国家的20，000多名外国志愿者已报名参加反对俄罗斯入侵的战斗。
 
-Vodafone Idea 在 1 月份同意将欠政府的电波使用费转换为股权，使印度政府拥有该公司 35.8% 的股份。
-
-Vodafone 集团持有 28.5%，Aditya Birla 集团 持有 17.8%。
-
-尽管印度并未禁止华为，但该国并未将包括华为在内的中国公司列入获准进行 5G 试验的供应商名单。
-
-在交换交易中，运营商会更换现有的供应商，诺基亚早些时候曾分别在英国、比利时和卢森堡的BT、Orange、Proximus等运营商中更换了华为的设备。
-
-华为向 Vodafone Idea 和 Bharti Airtel 提供电信设备，前者是其在印度的最大客户之一。Bharti Airtel 的供应商也包括爱立信。
-
-“（印度）市场非常复杂，面临许多挑战，我们正在密切关注这个市场的发展，”华为表示。
-
-根据研究公司 Dell’Oro 的数据，华为在全球电信设备市场的份额为 29%，其次是诺基亚和爱立信，各占 15%。
-
-消息人士称，诺基亚的设备将允许 Vodafone Idea 从同一平台管理 2G、3G、4G 和 5G 网络，部署可能从下个月开始。
-
-参考链接：
-[https://www.reuters.com/business/media-telecom/exclusive-nokia-set-replace-huawei-gear-parts-vodafone-ideas-india-network-2022-03-11/?taid=622b2836bdf7bb000139ff10&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/business/media-telecom/exclusive-nokia-set-replace-huawei-gear-parts-vodafone-ideas-india-network-2022-03-11/?taid=622b2836bdf7bb000139ff10&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
-
-撰稿：JIHO
-总编：老孙
-校对发布：Linda
+**新闻来源：**[Elite Canadian sniper leaves family behind to fight for Ukraine: ‘I had to go’ | National Post](https://nationalpost.com/news/world/deadly-canadian-sniper-volunteers-to-fight-war-in-ukraine)
 
  
 

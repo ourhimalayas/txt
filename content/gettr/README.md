@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 10:59 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-11
+![img](https://media.gettr.com/group33/origin/2022/03/11/22/db52cafe-a379-7bfe-3855-53fa74025c02/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/11/2022 10:46 PM (UTC)`
 
 3/11/2022 Miles Guo: What is the NFSC coffee served by the New Federal State of China? Why should we provide the refugees with freshly ground coffee? Fellow fighters are working day and night to help rescue refugees, and some of them even got sick. The New Federal State of China has become the focus of the world’s media.<br/><br/>3/11/2022 文贵直播：什么是新中国联邦NFSC咖啡？为什么要在救援现场为难民准备现磨的咖啡？战友们夜以继日地救助难民，甚至有战友都病了；新中国联邦人已成为全球媒体的焦点<br/>
@@ -152,13 +159,6 @@ By March 10th, more and more refugees arrived in the NFSC tent. The top media gr
 
 【Ukraine Rescue】There are many volunteers from all around the world participating in the New Federal State of China’s rescue mission in Ukraine. The evil Chinese Communist Party regime hacked our emails trying to sabotage the rescue operation. They must be held accountable.<br/><br/>【乌克兰救援】新中国联邦有许多来自世界各地的义工参与乌克兰救援行动。邪恶的中共政权骇客我们的电子邮件，试图破坏救援行动。一定要追责中共。<br/>
 ![img](https://media.gettr.com/group3/getter/2022/03/11/09/7388fd97-705a-78f1-8b81-fc689cc372d7/out.jpg)
-
----
-
-`@miles 3/11/2022 9:29 AM (UTC)`
-
-【Ukraine Rescue】03/10/22 The CCP interferes with NFSC and ROLF's rescue, depriving people's freedom to escape<br/><br/>【乌克兰救援】03/10/22  中共干扰新中国联邦和法治基金的救援行动，剥夺人们逃生的自由<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group34/getter/2022/03/11/09/2373979e-fc1a-a9f7-e734-5aa77d669cf3/out.jpg)
 
 ---
 

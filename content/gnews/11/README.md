@@ -2,28 +2,18 @@
 ---
 
 
-## 新中国联邦救援3月11日前线报道
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2146843/)
+## 新中国联邦乌克兰救援行动 3月11日波兰梅迪卡难民营
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2147072/)
 
-![This image has an empty alt attribute; its file name is good-58.png](https://assets.gnews.org/wp-content/uploads/2022/03/good-58.png)
-前方记者：Nicole
-![This image has an empty alt attribute; its file name is image-1-3.png](https://assets.gnews.org/wp-content/uploads/2022/03/image-1-3.png)
-当地时间3月10日下午6:00 三位意大利赶来的志愿者，将一车物资，大部分为婴幼儿用品放在medyka 新中国联邦搭建帐篷门口，并委托新中国联邦现场救援义工，将这些物品分发给难民
-![This image has an empty alt attribute; its file name is image0-46.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/image0-46.jpg)
-第二天来自新中国联邦的义工们开始忙碌的一天。
+编撰：冰糖葫芦喵
 
-这是文道与明道在磋商工作。
+据新中国联邦法制基金救援前线消息，3月11日中午12点半,波兰梅迪卡边境又迎来了一批乌克兰难民。波兰当地的租车公司老板加入到加拿大战友救援团队，驱车3个小时从克拉科夫赶到波兰梅迪卡（Medyka）难民营。他表示，他很高兴加入法治基金新中国联邦的人道救援团队。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/加拿大战友-e1647036785663.png)左三是波兰当地的租车公司老板和加拿大战友们 图片来源：NFSC NEWS)
+新中国联邦在寒风中燃起的篝火，既温暖了失去家园的难民，同时它带来的光明穿透了无尽的黑暗给人类带来巨大的希望。
 
-明道为了保证直播坚守他的阵地，从不进帐篷休息，认真而敬业。
-明道负责这次救援前线的直播中心，每天早上8点半，他是第一个到达梅蒂卡救援营地架起直播器材的摄影师（其他的国际媒体早上10点多才陆陆续续到达） 也是晚上最后一个离开营地的摄影师（其他的媒体下午5点多几乎都走了）为了保证直播不受干扰，明道每天在寒冷的户外工作10多个小时，基本都是站着，也从来不进帐篷取暖休息， 大家看到画面上，我们的直播中心很简单，只有一个折叠桌，一个纸箱子。 一口大锅战友从早到晚一直在旁边协助明道。
-![This image has an empty alt attribute; its file name is image-1205.png](https://assets.gnews.org/wp-content/uploads/2022/03/image-1205.png)
-这是咱们的房车，文科战友昨天累得病倒了就睡在房车里面，今天好多了。
+视频来自：新中国联邦前线小小酥战友未经剪辑的视频。
 
-感谢荷兰战友送米饭和炒菜，意大利文科战友一行来边境2个多星期，吃到了久违的中国饭 荷兰战友做好菜包装、空运到波兰，再专门送去前线 。
-
-校对/发稿：Serena
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-29.jpg)
+消息来源：新中国联邦记者Niclo战友。
 
  
 

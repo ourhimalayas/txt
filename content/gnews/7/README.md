@@ -2,30 +2,18 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月11日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2146902/)
+## 直面邪恶才是最大的善道
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2147121/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-4.jpg)
+**郭先生：**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-11.png)
-文章仅代表作者本人观点，与Gnews无关
+我们一定记住：不要因为你想做好人而你失去了面对坏人的勇气，因为你想自己永生不死，所谓来到善道轮回，你不再面对这种丑恶和危险。不！只有面对邪恶,直击邪恶，才是最大的善道！
 
-视频参看：
-[2022.03.11早 《NFSC新闻》](https://gettr.com/streaming/pzgn1j1989)
-[2022.03.11早 G|TV《新闻访谈》](https://gettr.com/streaming/pzgizq5e22)
+中国人就是给自己的懦弱,自私,冷酷找出太多的借口，包括佛教,道教。我很不爽的事情就是，你们有地狱，佛教里边有地藏菩萨。为什么不能面对坏人呢? 对待坏人对待这种恶行，必须加以阻止和惩罚。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+我4天没有喝咖啡了。4天没喝咖啡的感觉你们知道是什么样吗?就是现在我这个样！我今天早上喝了咖啡，咖啡特别香。我突然想起了中岳庙有一句话：得到和失去之间, 它就是人生！习惯和习惯改变, 就是你的修行。当时我到中岳庙去，我不懂。我越来越懂，我每天感恩。我们习惯了人撒谎，你永远不去纠正他，他就撒谎成了真理。我们只有改变这种熟悉撒谎的环境，我们才能直击那种谎言！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+视频剪辑：文知| 听写：雨山溪桥客 |翻译：中年少女| 校对：tonyj |视频制作+字幕：刀锋舞者 | 编辑&发布：叶子
 
  
 
