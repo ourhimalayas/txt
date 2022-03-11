@@ -2,34 +2,24 @@
 ---
 
 
-## 全球瞩目！新中国联邦乌克兰人道救援在行动
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2140870/)
+## 中日财经爆┃G7紧急会议商讨投资液化天然气以减少俄罗斯依赖
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2141384/)
 
-3月10日，新中国联邦乌克兰人道救援行动在全世界引起了广泛的关注，来自世界各地的媒体和机构来法治基金新中国联邦的大帐篷来拍摄难民。
+撰稿：东京樱花团/文小白G7
 
-美联社、彭博社、盖帝图片社、意大利电视台、西班牙电视台、波兰最大报纸和电视台、阿拉伯迪拜电视台……国际红十字会的工作人员穿着他们的制服（上面有印着红十字会的标志）把过境的妇女和儿童送到新中国联邦救援大帐篷里安顿。
+为了应对乌克兰紧张局势的升级，日本时间10日晚10点，七国集团（G7）国家的能源部长在网上举行了一次紧急会议，并发表声明，称需要进行LNG（液化天然气）相关投资，以实现能源多样化，从而减少欧洲对俄罗斯天然气的依赖。日本的经济产业大臣萩生田出席了会议。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-50.jpg)照片来源：本文链接
+会后发表了联合声明，谴责了俄罗斯军队对乌克兰核电站和其他设施的攻击，”因为任何破坏用于和平目的的设施违反了国际法原则”。
 
-法治基金新中国联邦组织的前线救援人员和总部位于瑞士的国际人道救援机构“无疆界医生组织“ （Doctors Without Borders，简称：MSF）并肩行动 ！
+声明说，为了减少欧洲对俄罗斯天然气的依赖，”我们需要投资LNG=液化天然气”，我们应该努力使我们的能源来源多样化。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/8-17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-34.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-56.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-71.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-114.jpg)
+乌克兰能源部长哈尔申科也出席了会议，他 “请求所有友好和志同道合的国家提供支持”。
 
+信息来源：[ロシア依存低減へ “LNGの投資必要” G7エネルギー相緊急会合](https://www3.nhk.or.jp/news/html/20220311/k10013525311000.html?utm_int=news-international_contents_list-items_006)
 
-素材来源：新中国联邦前线战友！感谢你们的付出，你们辛苦了！
-
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

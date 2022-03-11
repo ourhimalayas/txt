@@ -2,33 +2,24 @@
 ---
 
 
-## 快讯：俄罗斯“民族品牌”拉达汽车因西方制裁被迫停产
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2142864/)
+## 中日财经爆┃优衣库停止在俄罗斯所有50家门店的运营
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2143106/)
 
-撰稿：一碗兰州（文远）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-11-190726.png)
-图片来自网络
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1101.png)[图片来源](http://upload.cankaoxiaoxi.com/2022/0308/1646704879467.jpg)
+“优衣库”母公司迅销（FAST RETAILING）3月10日宣布，将暂时停止在俄罗斯所有50家门店的运营。由于反对俄罗斯入侵乌克兰，海外服装巨头纷纷退出俄罗斯业务，引起了关注。
 
-据《华尔街日报》报道，俄罗斯标志性汽车制造商拉达汽车厂因母公司AvtoVAZ遭受西方制裁，缺乏制造汽车所需的必要零件而导致停产，数千名工人已放假。
+迅销公司于2010年在莫斯科开设了第一家“优衣库”店，进入俄罗斯。目前，它拥有欧洲最多的门店。在截至2021年8月的财年合并财务报表中，俄罗斯业务领跑优衣库欧洲业务，销售额和利润均有显着增长。
 
-拉达（Lada）是俄罗斯生产商AvtoVAZ旗下的汽车品牌，自1970年代的苏联时期开始投产，在苏联、东欧国家及中国享有极大知名度，是俄罗斯唯一拥有巨大市场份额的本土品牌，2021全年营收31.3亿欧元、年销量达35万辆，被称为“俄罗斯民族精神的一部分”。
+迅销表示：“由于目前围绕纠纷的形势变化，以及继续经营面临的种种困难，我们决定暂停业务。”
 
-报道称AvtoVAZ的一位发言人表示：“由于全球芯片短缺，Lada公司计划停产至3月11日。”他没有就制裁发表评论。
+迅销公司是日本的零售控股公司。持有的品牌包括知名的UNIQLO(优衣库)，以及ASPESI、Comptoir des Cotonniers、Foot Park、National Standard，GU等。是世界第三大休闲服公司，同时是亚洲最大的服装公司。
 
-知情人士透露，AvtoVAZ有超过20%的零部件是进口的。如果制裁继续，Lada汽车工厂可能需要数月甚至数年的时间才能恢复正常生产。
+消息来源：[ユニクロ、ロシア国内全店の営業一時休止…欧州で最多の５０店舗](https://www.yomiuri.co.jp/economy/20220310-OYT1T50227/)
 
-自俄罗斯入侵乌克兰以来，西方对俄罗斯相继出台多项严厉制裁措施。导致Lada这一俄罗斯标志性汽车制造商停产。
-
-这是俄罗斯经济受西方制裁影响的一个具体例子，普京的侵略战争同样给俄罗斯人民带来灾难，新车短缺只是刚刚开始。
-
-参考消息：
-
-华尔街日报：[Iconic Russian Car Maker, Known for Cold War Self-Reliance, Halts Production](https://www.wsj.com/articles/russian-car-maker-known-for-cold-war-self-reliance-idles-factories-11646828796?mod=e2tw)
-
-*审核：文筝*
-
-*发布：信心满满*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

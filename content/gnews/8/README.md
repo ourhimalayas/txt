@@ -2,37 +2,35 @@
 ---
 
 
-## 新中国联邦前线记者采访国际医疗救援队的德国医生
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2142820/)
+## 共和党参议员推动限制外资持有的债务
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2143012/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：小湫
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-11-192452.png)2022年1月19日，Ernst在新闻发布会上发言
+爱荷华州参议员Joni Ernst R-Iowa正主导提出《国家债务即国家安全法案》（The National Debt is National Security Act），这是一项新法案，要求外国政府、实体和个人持有的美国国债不得超过三分之一。
 
-整理/编辑：小红帽
+参议员比尔·卡西迪（Sen. Bill Cassidy R-La），印第安纳州共和党参议员迈克·布劳恩(Mike Braun)在内的共和党参议员推动了这项计划。与此同时，他们认为俄罗斯对乌克兰持续不断的侵略行动以及中国日益加剧的敌意，正威胁着美国的国家安全。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-11_15-54-49.png)图片来源：郭文贵先生盖特视频截图
+根据美国财政部数据，美国的国债上个月达到了创纪录的30万亿美元，美国的外债总额超过7.7万亿美元，中国拥有大约1.07万亿美元。
 
+Ernst 在宣布新法案时向福克斯新闻数字频道(Fox News Digital)发表声明称:”美国不应欠像中国共产党这样的对手超过1万亿美元。”她同时指出，这尤其令人震惊的是，中国用美国支付的利息来资助新疆的强制劳改营建设。外国敌对实体对我们国家债务的所有权不仅对我们的经济有害，也是对我们国家安全的直接威胁。
 
-3月8日，在乌克兰的救援行动期间，新中国联邦和法治基金的前线记者妮可采访了国际医疗救援队的德国医生彼得。
+随着该法案的出台，参议员希望美国的国债不再被中共国利用。
 
-妮可问彼得：“你刚才讲的，你对共产主义有很深刻的认识，因为你的父母是出生在东德。”
+该法案的共同提案人之一参议院 Mike Braun表示：我很荣幸能与参议员Ernst共同发起《国家债务即国家安全法案》，以限制中共的经济影响力，维护我们的经济和国家安全。允许中共国和其他对手控制我们的大部分债务是对国家安全的威胁。我们需要控制支出，限制中国对美国的影响力。
 
-彼得说：“咱们是从东德到西德过来的。咱们不能在学校学习，因为我的父母的爸爸妈妈不是工人，所以终究不能上大学。所以咱们要去西柏林。后来有那个柏林墙，我们需要很多力量。那是一个很困难的时期，都是共产党造成的。所以我们不喜欢共产党。”
+2021年，在一次政府试图控制支出的努力中，恩斯特曾帮助推动了《联邦债务紧急控制法》(Federal Debt Emergency control Act)，要求管理和预算办公室(Office of Management and Budget, OMB)在任何一个财政年度，如果联邦债务超过当年国内生产总值(GDP)的100%，就宣布进入“联邦债务紧急状态”。
 
-妮可继续问道：“我们有很多观众，都是脱离了共产主义和共产党的，热爱自由和法治的华人。你和你的家庭经历了从前东德脱离共产主义的时期。那么，你对我们这些中国人，可以讲两句话吗？”
+周三晚上，众议院投票通过了1.5万亿美元，该法案将为政府提供资金，截至9月30日，其中包括在乌克兰与俄罗斯战争期间向乌克兰提供的136亿美元援助。
 
-彼得表示，希望有一天，以后所有的中国人都能够像此时此刻，他所看到的新中国联邦人一样。中国和中国的传统文化就是被共产党破坏了，中共不代表中国，更不代表中国人和中国人的文化。
+参考信息：
 
-资料来源：[郭文贵先生2022年3月10日盖特视频](https://www.gettr.com/post/pz8hj0cb9f)
+[Republican senators spearhead push to limit foreign-owned debt amid Russia-Ukraine war](https://www.foxnews.com/politics/republican-senators-foreign-debt-russia-ukraine)
 
-发布： tianzhihuan
+*审核：文筝*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*发布：信心满满*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,84 +2,37 @@
 ---
 
 
-## 乌克兰在该国北部、南部和东部受到俄罗斯大炮的袭击
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2142780/)
+## 俄乌战争！卫星照曝「基辅」及「切尔尼戈夫」惨况
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2142873/)
 
-Charles Stratford
-查尔斯·斯特拉特福
+俄军对乌克兰执行军事行动已迈入第16日，据美国太空科技公司「Maxar Technologies」近日所摄下的最新照片显示，乌国首都基辅（Kyiv）西北部城郊及北部切尔尼戈夫市（Chernihiv）的部分地区，都因攻击而受到严重毁损。
 
-scene after devastation here in the center of Kharkiv
-在哈尔科夫市中心遭受破坏之后的景象
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phpwxYhUl.jpg)图片来源：欧新社
 
-Ukraine Second City, second largest city absolutely shocked by what we see
-乌克兰第二城市，第二大城市，我们所看到的绝对震惊
+第二张照片显示，俄军针对基辅州的博罗江卡镇（Borodyanka）空袭后，多处民宅受损的惨况。
 
-I’m just going to turn the camera around
-我只是要把相机转过来
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-74.jpg)图片来源：欧新社
 
-and show you for example, this street
-并给你看，例如，这条街
+第三张照片指出，基辅州的斯托扬卡地区，当地一处仓库因俄军空袭，而遭熊熊大火吞噬。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-61.jpg)图片来源：欧新社
+第四张照片则显示，距离基辅约130公里的切尔尼戈夫市，当地一家名为「震央K超市」（The Epicenter K supermarket）的建筑物，遭到大火袭击，就连屋顶也被烧光，更留下多处焦黑残骸。
 
-This is what the power of Russian bombing can do to civilian areas of this city
-这就是俄罗斯轰炸的威力, 可以对这座城市的平民区造成的影响
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-37.jpg)图片来源：法新社
 
-This scene this street completely and utterly devastated some of the buildings still on fire
-这一幕，这条街彻底摧毁了一些仍在着火的建筑物
+最后一张照片则指出，切尔尼戈夫市内一处工业区，也因遭俄军轰炸而发生火灾。
 
-for panoramic here, you can see one of Kharkiv’s main churches
-在这里看全景，可以看到哈尔科夫的主要教堂之一
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-21.jpg)
 
-the steeples for couplers on the top of that church, very, very damaged
-那个教堂顶部的耦合器尖顶， 损坏的很厉害
+简评：乌克兰满目疮痍惨状的背后，是普京侵略称霸的野心，是中共背后资金的援助，是国际社会袖手旁观的冷漠，是全球人们对历史的遗忘与不加反思，所造就的这一切。面对这一切的苦难，我们每一个人都有原罪的，唯有正道主义才是救赎！愿乌克兰早日摆脱战火，愿全世界早日回归正道！
 
-All the windows blown out of that church
-那个教堂的所有窗户都被炸飞了
+新闻来源：[LTN](https://news.ltn.com.tw/news/world/breakingnews/3855985)
 
-as I say, this essential Kharkiv
-正如我所说，这个位置对哈尔科夫十分重要
+撰稿/发布：一叶知秋
 
-many of the buildings on the other side are government buildings
-对面的很多建筑都是政府大楼
-
-It’s the scene of where we saw that huge shell drop
-这是三四天前我们看到巨大的
-
-three or four days ago on the city
-炮弹落在城市里的场景
-
-The people here that you speak to cannot in any way get their head around
-在这里与你交谈的人无论如何都无法理解
-
-how Vladimir Putin could do this to a city like Kharkiv
-弗拉基米尔·普京怎么会对哈尔科夫这样的平民区作出攻击
-
-I mean, some of the people that we spoke to literally walking around in a daze
-我的意思是，我们交谈过的一些人确实在茫然的走来走去
-
-unable to comprehend what has just happened
-无法理解刚刚发生的事情
-
-* * *
-
-Date:03/09/2022
-原视频标题:Ukraine under attack from Russian shelling and artillery in north, south and east of the country
-乌克兰在该国北部、南部和东部受到俄罗斯大炮的袭击
-原视频日期：2022/03/07
-原视频链接**[https://twitter.com/carlbildt/status/1501043083454169099?s=24](https://twitter.com/carlbildt/status/1501043083454169099?s=24)**
-任务编号：KE447（3950）
-视频时间段 : 0:00-1:24
-英听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-
-* * *
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

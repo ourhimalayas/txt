@@ -2,25 +2,20 @@
 ---
 
 
-## 乌克兰救援前线图片集（一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2142693/)
+## 俄罗斯入侵乌克兰2周内71名儿童死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2142809/)
 
-**整理：**雅典娜情报组（禄森）
-**编辑：**翼族
-![](https://assets.gnews.org/wp-content/uploads/2022/03/photo_2022-03-10_19-49-55.jpg)
-Nicole女士是本次法治基金发起的乌克兰救援行动的前线记者，她从救援现场发来了很多照片。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-71.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-17.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片8-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片11-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片12-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片10-3.png)
-来自世界各地的媒体机构来到法治基金新中国联邦的大帐篷前报道乌克兰战争和难民，对新中国联邦的救援行动赞美有加。这些媒体包括：美联社、彭博社、盖帝图片社、意大利电视台、西班牙电视台、波兰最大报纸和电视台、阿拉伯迪拜电视台、科索沃电视台、英国时尚杂志I-D、塞尔维亚电视台、波斯尼亚国家电视台、日本NHK电视台、法国24电视台等等。
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1090.png)[图片来源](https://www.jiji.com/jc/article?k=2022031100552&amp;g=int&amp;p=20220311ds46&amp;rel=pv)
+基辅AFP时事，乌克兰最高会议(议会)人权监察专员吕德米拉·德尼索娃10日透露。2月24日俄罗斯入侵乌克兰后，截至3月10日的2周内至少有71名儿童死亡，超过100人受伤。
 
-*发布：翼族*
+乌克兰9日，东南部马里乌波尔产科医院遭到俄罗斯攻击，包括1名女孩在内的3人死亡。国际谴责高涨。丹尼索瓦先生还介绍了孩子死亡的例子。首都基辅西部日特米尔州空袭摧毁7栋房屋，3名儿童死亡。据说东部李珠姆住宅也遭到炮击，2名儿童死亡。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+消息来源：[２週間で子供７１人死亡　ロシアのウクライナ侵攻](https://www.jiji.com/jc/article?k=2022031100552&amp;g=int)
 
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
