@@ -2,22 +2,48 @@
 ---
 
 
-## 樱花FM|中共病毒疫苗真相快速揭盖：辉瑞文件列出1000多种不良反应！
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2141876/)
+## 日本援乌战略防御物资起运
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141895/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/BxKrRwaiytvTEUl8b_broY9LGJ67Uahb9za3inRl7ocdV7TW79eaFVzjVV8naNfLP-hbmZ97AlZWkgX8MSm8Sm3WOheT_8DP5XQQgogEs_6gLiArta64LZSIwzrY7KQJqQ3ZeAbE)
-3月6日，郭文贵先生盖特发布消息：
+撰稿: 香草山农场- Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
+3月8日，一架装载战略防御物资的日本自卫队的飞机，从航空自卫队小牧基地出发，飞往乌克兰。据悉，除了装载防弹背心、头盔和一些防护用品外，这架飞机还装载有食品、卫生用品、相机、发电机、帐篷和冬衣等战时应急物资，支援乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1072.png)图片来自：https://cdn-japantimes.com/
+日本防卫省发出声明，已和乌克兰政府约定，禁止将日本提供的防卫物资另作他用，也禁止转移给第三国使用。此外，内阁官房长官松野博一同日表示，日本并不打算向乌克兰提供致命性武器。
 
-FDA败诉！辉瑞被迫公布所有疫苗数据！副作用足足有9页！全网惊呆…目前披露的文件中列出了1000多种不良反应，很多都是头一次看到，包括： 筋膜炎、眼部肿胀、面瘫、斑秃、过敏休克、妊娠过敏反应综合征、急性心肌病、急性呼吸衰竭、注射部位血管炎、癫痫、血栓、心律失常、关节炎、哮喘、支气管痉挛、心脏骤停、心力衰竭、胸部不适、窒息、急性皮肤红斑狼疮、急性脑脊髓炎、急性肾损伤、急性黄斑外层视网膜病变、再生障碍性贫血、慢性自身免疫性肾小球肾炎、慢性皮肤红斑狼疮、慢性自发性荨麻疹、溶血性贫血、结肠炎、皮炎、糖尿病、栓塞性脑梗塞、内分泌失调、新生儿重症肌无力、脊髓炎、非感染性卵巢炎、甲状腺炎、溃疡性直肠炎、眼部瘙痒症、生殖器疱疹、舌咽神经麻痹、出血性血管炎、宫颈炎、狼疮性膀胱炎、狼疮性脑炎、多发性硬化症等等。
+自第二次世界大战结束后，日本一直严格遵守《和平宪法》规定，不介入海外军事活动，不向冲突各方提供防卫物资。但在3月8日的声明中，日本防卫省再度谴责俄罗斯违反国际法，对乌克兰发动战争、侵犯乌克兰主权与领土完整，动摇了欧亚的国际秩序基础。日方应乌克兰政府请求，及时提供防卫物资，并将继续尽一切努力协助乌克兰。
 
-两年多来，郭文贵先生一直告诉世人，中共病毒（新冠病毒）和疫苗是武器，疫苗有毒，可是又有多少人为了利益不顾一切，还有多少无辜的人相信政府相信媒体。随着此次FDA败诉，辉瑞被迫公开所有数据，中共病毒疫苗真相正在快速揭盖，正义正在到来。
+链接:
 
-文字版原文：[中共病毒疫苗真相快速揭盖：辉瑞文件列出1000多种不良反应！](https://gnews.org/zh-hans/2113009/)
+[Japan sends military protective equipment to Ukraine](https://www.ukrinform.net/rubric-ato/3424220-japan-sends-military-protective-equipment-to-ukraine.html)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+
+
+
+
+> To deliver bulletproof vests and helmets to [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw), KC-767 departed from Komaki Air base. JMOD/JSDF will continue to make every effort to assist Ukraine.
+> For [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/V74cPpTaby](https://t.co/V74cPpTaby)
+> — Japan Ministry of Defense/Self-Defense Forces (@ModJapan\_en) [March 8, 2022](https://twitter.com/ModJapan_en/status/1501219091067342848?ref_src=twsrc%5Etfw)
+
+
+
+[Japan Will Send the Ukrainian Military Basic Supplies](https://www.wsj.com/livecoverage/russia-ukraine-latest-news-2022-03-04/card/japan-will-send-the-ukrainian-military-basic-supplies-VOtpnPjTX2ooK8dqQ8o8)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-59.jpg)
+
+编辑:飞虹
+
+总编: 雪梨
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

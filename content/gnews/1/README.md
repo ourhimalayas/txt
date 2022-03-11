@@ -2,36 +2,25 @@
 ---
 
 
-## 台湾法务部侦办违法中资公司
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141984/)
+## 有声｜意大利废除中资收购军用无人机公司交易
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2142094/)
 
-撰稿：香草山农场-云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
-3月9日，台湾法务部调查局联合五个地方检查署，动员百名调查官，对中资公司违法在台湾吸收高科技人才、及窃取科技机密的行为进行扫荡。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1074.png)图片来自：https://pic1.zhimg.com/
-据悉，中共经由第三方投资公司的名义，恶意隐匿身分或资金来源进入台湾成立空壳公司，在台湾从事恶意挖角及窃取科技机密的不法行为，已经危害到台湾的国家安全。
+By:**秘翻新闻**
 
-台湾法务部表示，将持续侦办中共对台的不法案件，确保台湾的国家安全。
+**2022-03-11**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-22.png)图片来源 shan heldpa/pictura alliance
+[据《阿波罗新闻网》3月11日报道，路透社引述三位知情人士说，意大利政府3月10日废除了中共国投资者收购当地一家军用无人机公司的交易。](https://www.aboluowang.com/2022/0311/1719100.html)
 
-新闻连接：
+[意大利去年对中资企业在2018年收购意大利军用无人机制造商阿尔卑飞机公司的交易展开了调查。当局经过调查后决定废除这笔交易，因为根据旨在保护意大利重要战略性资产的“黄金权力”法规，当事人应该提前告知政府这笔交易。](https://www.aboluowang.com/2022/0311/1719100.html)
 
-[阻中國挖角高科技人才 調查局動員百人偵辦8家違法陸企](https://www.cna.com.tw/news/asoc/202203090233.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+[参与2018年收购的中资企业是中国企业联合投资控股和中车资本控股。他们通过多种投资工具购买了阿尔卑公司75%的股份。](https://www.aboluowang.com/2022/0311/1719100.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-59.jpg)
+秘翻新闻 巴拉克 编辑报道
 
-编辑：玫瑰园
+发布 : 恩典
 
-总编：雪梨
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
