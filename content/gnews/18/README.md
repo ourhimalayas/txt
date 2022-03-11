@@ -2,23 +2,24 @@
 ---
 
 
-## 欧盟会议激烈讨论5小时 一致同意让乌克兰加入
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2143774/)
+## 一位39岁妇女的证词：我打了疫苗以后在体内引爆了一颗炸弹
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2143827/)
 
-欧盟10日于法国巴黎郊外的凡尔赛举行领导人会议，讨论让乌克兰加入欧盟一事。立陶宛总统瑙塞达11日稍早透露，欧盟领导人对乌克兰的欧洲一体化皆表达同意，「英勇的乌克兰民族，值得了解他们在欧盟受到欢迎」。
+#### 翻译                    意大利达芬奇农场                       小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-11-alle-12.13.34.png)图片来源：ilparagone.it
+这位妇女叫斯坦法尼娅，她和许多其他意大利人一样，按政府的指示（或者更确切地说是强制执行）接种了疫苗。像许多人一样，她随后发现自己不得不应付新冠疫苗的副作用， 这个话题在意大利十分热门。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpEn8Iqe.jpg)图片来源：路透
+39岁的斯坦法尼娅的故事是由“听我说”委员会讲述，该委员会致力于帮助因疫苗接种受到伤害的人，该委员会收集并发表了她的证词。
 
-「凡尔赛的历史性夜晚。」瑙塞达指出，经过5个小时的激烈讨论，欧盟领导人对乌克兰的「欧洲一体化」皆表达同意，「这个过程开始了。现在由我们和乌克兰人来快速完成」。瑙塞达也强调，「英勇的乌克兰民族，值得了解他们在欧盟受到欢迎」。
+斯坦法尼娅于2021年6月26日接受了第一剂辉瑞疫苗，自此开始了她的噩梦：“当天晚上我的左脚脚趾开始感到微热。 第二天，我感到身体每个部位都疼痛。小腿刺痛， 腋窝疼痛及遍布全身的刺痛感。晚上我没有伸腿放松，而是蜷缩起来。我感到腿变得麻木了。” 接下来的几天， 情况变得更糟糕了。
 
-新闻来源：[LTN](https://news.ltn.com.tw/news/world/breakingnews/3856512)
+小指疼得抽痛， 左脚踝肿成了一个球，“ 像水肿”， 脚底肿了， 手也肿了。“ 就好像我的身体里突然爆炸了一样。”那时斯坦法尼娅决定去看医生，但是医生也不知道怎么帮助她：“ 我觉得自己完全被抛弃了。医生也不能确认是疫苗的副作用，他帮不了我。我度过了一个地狱般的夏天。我经常在看电视的时候突然腿就麻木了，我很害怕我会瘫痪。”
 
-撰稿/发布：一叶知秋
+那时，她联系过另一位医生，那位医生建议她不要打第二剂，并为她提供了豁免再次接种新冠疫苗的医疗文件。然而，伤害已经造成了。“  你觉得你的身体跟以前不一样了。”斯坦法尼娅解释说她仍然有刺痛和麻木感：“有些早上， 我没有力气拿着手中那杯牛奶。吃早饭的时候， 我觉得腿往下坠， 手指刺痛，好像受到了鞭打。我每时每刻都生活在这种境况中。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+原文链接：[https://www.ilparagone.it/attualita/ho-fatto-il-vaccino-ed-e-esplosa-una-bomba-nel-mio-corpo-la-drammatica-testimonianza-di-stefania-39-anni/](https://www.ilparagone.it/attualita/ho-fatto-il-vaccino-ed-e-esplosa-una-bomba-nel-mio-corpo-la-drammatica-testimonianza-di-stefania-39-anni/)
+
+编辑、上传： Xiao  baige
 
  
 

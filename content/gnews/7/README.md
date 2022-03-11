@@ -2,21 +2,29 @@
 ---
 
 
-## 秘翻在线：美国，欧盟，G7计划撤销俄罗斯最优惠的贸易地位
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2143852/)
+## 有声｜通胀创40年新高：2月CPI同比上涨7.9%
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2144043/)
 
-撰稿：文贺JP
-![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-16.jpg)图片来源：CBS NEWS
-一位知情人士告诉哥伦比亚广播公司新闻，拜登总统将于周五宣布，美国、欧盟和G7国家将采取行动，撤销俄罗斯因入侵乌克兰而获得的“最惠国”贸易地位。
+By:**秘翻新闻**
 
-拜登此举之际，两党议员都呼吁他撤销与俄罗斯正式所谓的‘永久正常贸易关系’。这将允许美国和盟国对俄罗斯进口产品征收关税。
+**2022-03-11**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/311_5.jpg)图片来源 AFP
+据[彭博数据](https://finance.yahoo.com/news/consumer-price-index-cpi-inflation-february-2022-203614415.html)3月10日报道， 美国劳工统计局通报了美国2月份消费者物价指数CPI与去年相比上涨7.9%，创下 1982 年以来最快的年度涨幅，这打破了1 月份7.5% 的40年高位。
 
-与此同时，白宫新闻秘书詹·普萨基周四晚间在推特上表示，拜登政府收到的报道称，“俄罗斯可能正在考虑扣押暂停在俄运营或退出俄市场的美国和国际公司的资产” 。
+能源价格飙升是 CPI 数据高涨的关键因素之一，甚至在俄罗斯入侵乌克兰并引发对全球能源中断的担忧之前，石油和天然气价格就在上涨。2 月，能源指数上涨3.5%，为 10 月以来的最大月度涨幅。与去年相比，能源指数上涨了 25.6%。
 
-信息来源：[https://www.cbsnews.com/news/russia-favored-trade-status-white-house-us-companies-assets/](https://www.cbsnews.com/news/russia-favored-trade-status-white-house-us-companies-assets/)
+在周四上午的一份声明中，美国总统拜登指出，俄罗斯在乌克兰的战争是最近价格上涨的主要原因。
 
-校正: Eric Kim
+有评论认为：美元地位正由于飞涨的通胀而受到削弱，美元如果快速加息缩表，将势必带来全球性经济危机。俄罗斯入侵乌克兰引发的剧烈通胀，将迫使拜登采用更为激进的措施抑制通胀。
 
+（秘翻新闻 自由信仰 编译报道）
+
+发布：文橙
+
+
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,26 @@
 ---
 
 
-## 一位39岁妇女的证词：我打了疫苗以后在体内引爆了一颗炸弹
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2143827/)
+## 联合国人权办公室报告称俄罗斯在乌克兰使用集束炸弹
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2143990/)
 
-#### 翻译                    意大利达芬奇农场                       小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-11-alle-12.13.34.png)图片来源：ilparagone.it
-这位妇女叫斯坦法尼娅，她和许多其他意大利人一样，按政府的指示（或者更确切地说是强制执行）接种了疫苗。像许多人一样，她随后发现自己不得不应付新冠疫苗的副作用， 这个话题在意大利十分热门。
+翻译：冰糖葫芦喵
 
-39岁的斯坦法尼娅的故事是由“听我说”委员会讲述，该委员会致力于帮助因疫苗接种受到伤害的人，该委员会收集并发表了她的证词。
+编辑与校对：冰糖葫芦喵
 
-斯坦法尼娅于2021年6月26日接受了第一剂辉瑞疫苗，自此开始了她的噩梦：“当天晚上我的左脚脚趾开始感到微热。 第二天，我感到身体每个部位都疼痛。小腿刺痛， 腋窝疼痛及遍布全身的刺痛感。晚上我没有伸腿放松，而是蜷缩起来。我感到腿变得麻木了。” 接下来的几天， 情况变得更糟糕了。
+《路透社》日内瓦3月11日报道，**周五，联合国人权事务高级专员办公室表示，已收到几宗俄罗斯军队在乌克兰人口稠密地区使用集束炸弹的”可靠报告”，并称滥用此类武器可能构成战争罪。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/集束炸弹-1-e1647000073275.jpg)图片来源：路透社。
+发言人利兹·罗塞尔(Liz Throssell)告诉日内瓦的记者，由于集束弹药的广域效应，**在人口稠密地区使用集束弹药不符合有关敌对行动的国际人道主义法原则。**
 
-小指疼得抽痛， 左脚踝肿成了一个球，“ 像水肿”， 脚底肿了， 手也肿了。“ 就好像我的身体里突然爆炸了一样。”那时斯坦法尼娅决定去看医生，但是医生也不知道怎么帮助她：“ 我觉得自己完全被抛弃了。医生也不能确认是疫苗的副作用，他帮不了我。我度过了一个地狱般的夏天。我经常在看电视的时候突然腿就麻木了，我很害怕我会瘫痪。”
+罗塞尔强调，我们提醒**俄罗斯当局，针对平民和平民目标的直接攻击，以及对城镇和村庄的所谓地区轰炸和其他形式的不分青红皂白的攻击，都是国际法所禁止的，可能构成战争罪。**
 
-那时，她联系过另一位医生，那位医生建议她不要打第二剂，并为她提供了豁免再次接种新冠疫苗的医疗文件。然而，伤害已经造成了。“  你觉得你的身体跟以前不一样了。”斯坦法尼娅解释说她仍然有刺痛和麻木感：“有些早上， 我没有力气拿着手中那杯牛奶。吃早饭的时候， 我觉得腿往下坠， 手指刺痛，好像受到了鞭打。我每时每刻都生活在这种境况中。
+当被问及Facebook可能会改变政策，允许一些用户呼吁对俄罗斯和俄罗斯士兵实施暴力时，斯罗塞尔表示“令人担忧”，并表示她的办公室将向该公司提出此事。
 
-原文链接：[https://www.ilparagone.it/attualita/ho-fatto-il-vaccino-ed-e-esplosa-una-bomba-nel-mio-corpo-la-drammatica-testimonianza-di-stefania-39-anni/](https://www.ilparagone.it/attualita/ho-fatto-il-vaccino-ed-e-esplosa-una-bomba-nel-mio-corpo-la-drammatica-testimonianza-di-stefania-39-anni/)
+新闻来源按链接：
 
-编辑、上传： Xiao  baige
+[UN rights office has credible reports of Russian cluster bomb use in Ukraine | Reuters](https://www.reuters.com/world/un-rights-office-has-credible-reports-russian-cluster-bomb-use-ukraine-2022-03-11/)
+
+
 
  
 

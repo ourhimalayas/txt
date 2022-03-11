@@ -2,47 +2,40 @@
 ---
 
 
-## 2022/03/07 新冠疫苗能够引发乳腺癌
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2143870/)
+## 中共虐待两次并且心理和精神受到巨大伤害的郭美受牵累
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2144054/)
 
-**简评：**
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8836.60%EF%BC%89%E4%B8%AD%E5%85%B1%E8%99%90%E5%BE%85%E4%B8%A4%E6%AC%A1%E5%B9%B6%E4%B8%94%E5%BF%83%E7%90%86%E5%92%8C%E7%B2%BE%E7%A5%9E%E5%8F%97%E5%88%B0%E5%B7%A8%E5%A4%A7%E4%BC%A4%E5%AE%B3%E7%9A%84%E9%83%AD%E7%BE%8E%E5%8F%97%E7%89%B5%E7%B4%AF%E3%80%902022%E5%B9%B402%E6%9C%8811%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:d)
 
-大规模疫苗接种后，癌症数量剧增。国防部数据显示，癌症在军队增加了300%。Dr. Stephanie Seneff专门研究过疫苗会加速癌症发病率的可能性。认为从前患有癌症，并接种了新冠疫苗的人，潜伏的癌症会复发，尤其是乳腺癌。
+**郭文贵先生：**但是很不幸，你看我儿子、我闺女因此而受到牵累，我女儿人生第一次出庭，本来承诺好的我女儿出庭的所有出庭文字一个不说出去，最后全部给公开。
 
-人体有一种抑制乳腺癌产生的BRCA蛋白质，疫苗中的刺突蛋白进入人体后能够抑制BRCA蛋白，引发乳腺癌。通过往年和其他疫苗的数据比对，COVID-19疫苗引发乳腺癌的比例在百分之90以上。
+因为我女儿受过共产党两次虐待，我女儿的心理、精神受到巨大的伤害。你想想一个当爹的想女儿的处境我有多痛苦？但是，女儿她毕竟出来了。出来以后，我知道我说这个结果一定是这样结果的，因为这件事情已经不能用法律来衡量，所以说它结果就这么出来了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0310-3.jpg)
+编辑整理：Jacques；
 
-[**GETTR视频链接**](https://gettr.com/post/pz90lufe03)
+字幕档制作：兵嫂；
 
-**视频字幕：**
+视频制作及上传：Cindy；
 
-**主持人**：炎症会导致不同的健康问题，我们知道你在谈论淋巴结。为什么我们现在看到这么多的癌症，有什么潜在的原因吗？最近出来的国防部数据，癌症在军队增加300%，有什么潜在的原因吗？
+G-News发布：海贼王M.D.LUFFY；
 
-**Dr. Stephanie Seneff**：我完全认为有。事实上，我已经写过论文，讨论过疫苗会加速癌症发病率的可能性。我认为任何患有癌症，然后接种了这种疫苗的人，潜伏的癌症会复发，我认为很多情况下都会发生。事实上我看了很多资料，有很多信号，尤其乳腺癌非常有意思，当然，淋巴结直接得到疫苗。12淋巴结是一个指标。正常情況下，如果你淋巴结肿大，应该去检查一下乳腺癌。现在他们说，那只是疫苗，不要担心。嗯，我不知道，也许它跟癌症有关。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-有一项关于刺突蛋白的研究表明，首先，它进入细胞核，第二，在细胞核中抑制一种叫做BRCA的蛋白质，这是很著名的蛋白质。之所以说它著名，是因为它与乳腺癌有关的基因突变有很大的关系。基因变异后抑制此蛋白质，刺突蛋白也有这个作用。它抑制BRCA蛋白，所以会引起乳腺癌。我看了各种资料，有很强的信号表明尤其与乳腺癌有关，也与许多不同的癌症和恶性肿瘤有关。各种数据，美国疫苗不良反应事件报告系统，反覆研究很有意思。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-我一直在研究，就我所看到的这些数字是惊人的。我看2021年的数据，看了一些乳腺癌与COVID-19疫苗的联系，然后我查看2021年期间与任何疫苗相关的所有乳腺癌病例，流感疫苗、MMR疫苗—麻疹、腮腺炎和风疹疫苗，各种不同的疫苗，然后看二者的比率。我发现大量不同严重问题的症状，结果是98%、99%、97%。也就是说与其他疫苗相比，COVID-19疫苗的比例都在百分之90大几。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-*编辑：【英国伦敦喜庄园编辑部】*
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-*字幕：Vekap* *| 听写：云岭 | 翻译：Roberts* *| PR：clau**|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-* * *
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+G-TV：日本银河系农场。
 
  
 
