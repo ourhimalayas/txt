@@ -2,37 +2,31 @@
 ---
 
 
-## 52岁参议员金伯利•基钦突然去世，其去年接种两剂疫苗
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2141763/)
+## 有声｜中共国疫情快速飙升 半个中国现新病例
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2141906/)
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+**By:秘翻新闻**
 
-编辑/整理：小鱼儿
+**2022-03-11**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5834BAC1-C7CD-4B88-A701-2B7A396C1477.jpeg)
+综合媒体消息。中国大陆的中共病毒疫情继续快速飙升。周四新增感染人数创两年以来单日感染人数新高，吉林、山东和甘肃是重灾区。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/10-19.png)图片来源：雅典娜设计组&Adelaide Now
+据中共国家卫健委周四通报，3月9日全国单日新增本土确诊病例402例，另有新增本土无症状感染者435例，创两年来中国单日新增病例的新高。
 
+感染者分布在全国15个省份，吉林、山东青岛和上海市等地区是疫情重灾区。
 
-据九台新闻（9news）3月11日报道，昨天，参议员金伯利·基钦（ Kimberley Kitching） ，在墨尔本疑似“心脏病”发作。突然去世，享年 52 岁。基钦参议员出生于布里斯班，1995 年移居墨尔本。
+据新唐人北京时间3月11日报道，截至3月10号，上海近200个小区发现疫情，当局大力兴建方舱医院。有市民透露，已出现食物短缺危机。
 
-密友、前联邦工党领袖比尔·肖顿说：“我接到她丈夫的可怕电话，说她走了。所以我们跑到斯特拉斯莫尔的这条街上，她把车停在了那里，她心脏病发作了，我们和她的丈夫一起等到殡仪馆的车到来，这太可怕了。” 另外，据基钦参议员个人推文显示，去年7月，已经接种第二剂疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-23.png)
-目前，不确定基钦是否，接种第三剂疫苗。
+腾讯新闻3月10日报道，3月9日，吉林省吉林市单日新增本土确诊病例134例，无症状感染者149。其中，吉林农业科技学院出现了学校聚集性疫情暴发。
 
-昨天早些时候，基钦参议员在脸书上，分享了支持昆州和新州人们受洪水影响的信息，“我的想法是与那些在新州和昆州失去家园、企业和亲人的人同在。”
+据报道，学校外集结了30辆大巴车，每辆车核载55人左右，车辆陆续进入校园，将阳性病例的密接、次密接学生转运出校。
 
-很遗憾，我们失去了一位有爱心、有正义感的参议员朋友，一路走好。
+秘翻新闻 菜园子 二丫 编辑报道
 
-参考新闻：[Labor Senator Kimberley Kitching dies aged 52](https://www.9news.com.au/national/kimberley-kitching-dead-victorian-labor-senator-was-52/a63c9639-5071-4248-a5e5-629e4fed7ead)
+发布:星星
 
-发布：
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

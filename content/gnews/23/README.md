@@ -2,30 +2,47 @@
 ---
 
 
-## 中日财经爆|中共国扛不住卢布贬值 只能扩大交易幅度
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2141446/)
+## 志愿者向外国记者介绍免费的航班和食宿救援信息
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2141656/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7-2.jpg)[图片来源](https://chaslaukoniukh.com/en/fall-of-the-russian-ruble-en/)
-中共国外汇交易中心周四（3月10日）称，为顺应市场发展要求，决定自周五(11日)起，银行间外汇市场人民币兑俄罗斯卢布即期交易价浮动幅度由5%扩大至10%。
+#### 【雅典娜快讯】，紧贴时代脉搏 
 
-外汇交易中心网站发布的公告并指出，即每日银行间外汇市场人民币兑俄罗斯卢布的即期交易价可在交易中心对外公布的当日人民币兑俄罗斯卢布中间价上下10%的幅度内浮动。
+整理/编辑：小红帽
 
-俄罗斯军事入侵乌克兰，遭到西方民主国家的集体大规模经济制裁，卢布大幅度贬值。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/8-27.png)图片来源：郭文贵先生盖特视频截图
 
-中共国前外管局国际收支司司长管涛认为，由于近期国际市场卢布兑美元汇率波动加剧，而境内市场人民币兑非美货币5%的波幅不足以吸收外围市场影响，扩大波幅后能够较好反应国际外汇市场的变化。
 
-“人民币/卢布价格主要取决于美元兑卢布和人民币的变动，”一中资行交易员表示，近期卢布大幅波动，所以要扩大交易区间。
+根据3月10日新中国联邦和法治基金前线视频报道，新中国联邦和法治基金志愿者文戈七雄和明道，在位于波乌边境的梅迪卡（Medyka）新中国联邦和法治基金救援站，向来自巴尔干的外国记者介绍新中国联邦和法治基金提供免费航班和食宿的救援信息。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-11_12-00-46.png)
+文戈七雄向巴尔干记者介绍：“我们（新中国联邦和法治基金的志愿者）是中国人。这个救援行动是由法治基金赞助的。”
 
-过去两周，卢布兑美元[RUB=](https://cn.reuters.com/quote/RUBUSD)下跌约45%，卢布兑人民币[CNYRUB=](https://cn.reuters.com/quote/CNYRUBUSD)亦跌近40%。
+巴尔干记者问：“你们计划在这里待几天？”
 
-消息来源:
+文戈七雄答：“一个月或者更长时间，直到人们安全，战争结束，我们的工作就完成了。”
 
-[俄罗斯卢布剧烈波动 中国外汇交易中心扩大人民币兑卢布交易幅度](https://cn.reuters.com/article/russian-rouble-fluctuations-china-yuan-0-idCNKBS2L7148?il=0)
+巴尔干记者问：“你们提供什么服务？”
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+文戈七雄答：“各种服务，免费航班，免费酒店。我们来这里帮助灾难中的人们！”
+
+听到这，巴尔干记者当场表示非常惊讶“你们真的太棒了！”巴尔干记者随即跟文戈七雄战友握手，表示对新中国联邦和法治基金行动的肯定和赞赏。“愿上帝保佑你们！”巴尔干记者说。
+
+“韩国人，中国人，美国人，所有人都会得到我们的帮助。”文戈七雄补充。
+
+听到这里，巴尔干记者表示希望邀请新中国联邦和法治基金的志愿者参加他们的采访。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-21.png)
+在接下来的采访里，志愿者文戈七雄和明道为巴尔干记者详细介绍了新中国联邦和法治基金为乌克兰救援行动所提供的服务。
+
+资料来源：[郭文贵先生2022年3月11日盖文](https://www.gettr.com/post/pzd5hu2551)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

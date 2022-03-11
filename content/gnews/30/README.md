@@ -2,64 +2,54 @@
 ---
 
 
-## 参议员泰德·克鲁兹：是时候结束暴虐的疫苗强制了！
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2141335/)
+## 樱花时政┃吉林高校疫情失控 学生上网泣血求助
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2141438/)
 
-参议员泰德·克鲁兹： 华盛顿特区以外的全国所有地区都在醒来。 是时候结束暴虐的疫苗强制了！ 【视频中克鲁兹称赞美国卡车司机的行动代表了民意，疫苗强制违宪，是时候停止了】
+撰稿：东京樱花团/秋明
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-6.jpg)[图片来源](https://www.google.com.hk/search?q=%E5%90%89%E6%9E%97%E5%86%9C%E4%B8%9A%E7%A7%91%E6%8A%80%E5%AD%A6%E9%99%A2%E6%84%9F%E6%9F%93&amp;newwindow=1&amp;sxsrf=APq-WBtuwTiZoLE5bdl_1RHaxjUTGkPMxw:1646965983510&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwj70p2zgr32AhUFwYsBHd2XACUQ)
+3月10日，吉林农业科技学院一微博名@林凡一寻的学生通过微博发布求助信息称，“学校感染人数占了吉林疫情的半壁江山，同学们要挺不住了，希望舆论平台可以帮助我们，每个人都是一份力量，求求了，帮帮同学们吧！”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6-2.jpg)
+@林凡一寻在求助博文中，曝光了很多骇人听闻的内幕：
 
+1、学校现在一直压着我们的微博热搜，给发微博的同学打电话，压热搜；
 
+2、被隔离的同学刚刚被转走，但是在这之前全都大通铺，把所有需要隔离的同学放在图书馆和教学楼，交叉感染，没有病的同学也变成了密集，学生哭着给老师打电话，老师也不知道怎么办，全都在学校堆着，学生都崩溃大哭，吉林马上变成下一个武汉初的疫情了
 
-> The rest of the country outside of Washington, D.C. is waking up.
->  
-> It’s time to end the tyrannical vaccine mandate! [pic.twitter.com/H9MXuOb9Li](https://t.co/H9MXuOb9Li)
-> — Senator Ted Cruz (@SenTedCruz) [March 11, 2022](https://twitter.com/SenTedCruz/status/1502117538637004842?ref_src=twsrc%5Etfw)
+3、现在我们学生孤立无援，正常的同学们在寝室没有水喝，消毒设施严重不足，学校说没了就是没了，补不补再说，态度很强硬
 
+4、志愿者大都是学生，穿防护服为我们风里雨里冒险，很多也被感染去隔离了，一个公寓由几十个志愿者，变成几个志愿者，根本没人再敢当了，学生们心寒了，每个人都在崩溃大哭
 
+5、九公寓的人，被隔离了好几百人，密接和次密接，后来直接把阴性的转移走，阳性的等死
 
-参议员兰德·保罗： 一家航空公司重新开始关心他们的员工和科学了. . .其他人会跟随吗？ 美国联合航空公司将让未接种疫苗的员工重返工作岗位
+6、我们公寓的人有很多发烧的，老师一直给退烧药，跟我们说吃了捂着被子睡一觉，还是还没退烧，老师给你换一种药，就是在宿舍挺死，
 
+7、有个同学现在已经没意识了，躺在寝室，等待处置，一波又一波
 
+8、生活必须品严重不足，女生卫生巾都没了，学生边流血边疼，哭着给家里打电话，学校严重不作为
 
-> One airline resumes caring about their employees and science . . . Will others follow?
-> 
-> United Airlines will let unvaccinated employees return to jobs [https://t.co/6yRt0ftRF9](https://t.co/6yRt0ftRF9)
-> — Rand Paul (@RandPaul) [March 11, 2022](https://twitter.com/RandPaul/status/1502104959290122241?ref_src=twsrc%5Etfw)
+9、被隔离的同学寝室门被胶布封着，不让上厕所，宿舍里也没厕所，同学都要急哭了，
 
+10、有阳性的，室友不隔离，就让等，变成全学校是阳性的，学校就高兴了吗？
 
+11、给吉林防控各种打电话，不是拒接就是推卸责任，没有人管我们，现在我们就是俎上鱼肉，任人宰割
 
-比尔.格茨： 国家情报总监：乌克兰实验室没有开展生物战（研究）工作，美国的支持仅限于生物安全和安保。 对俄罗斯接管实验室的担忧是基于病原体可能被滥用 【转比尔.格茨华盛顿时报报道：国家情报总监称：乌克兰实验室不涉及生物武器，尽管俄罗斯指控】
+@林凡一寻的这篇求助博文发布数小时后就引发了全网关注。
 
+有知情人士透露，吉林农业科技学院最终被确诊人数，或将是一个恐怖的数字。而造成这一惨重结果的原因，或许涉嫌瞒报和人祸的因素。
 
+而在诸多该校学生的留言中，越来越多的信息又被曝光了出来。
 
-> DNI: Ukrainian labs are not conducting biowarfare work and US support was limited to biosafety and security. Concerns about Russian takeover of the labs is based on possible misuse of pathogens [https://t.co/vOGFF5wpmH](https://t.co/vOGFF5wpmH)
-> — Bill Gertz (@BillGertz) [March 10, 2022](https://twitter.com/BillGertz/status/1501973283536838656?ref_src=twsrc%5Etfw)
+学生@暴富le留言称，“同学们有多么绝望你们能体会吗？身边都是阳性，全是危险，自已无处可藏，当三月六号第一例阳性出现，学校没有及时采取正确措施开始，到阴阳混杂，不进行救治，给你只有一句再等，再等，再等，你是什么心情，你能等多久？”
 
+学生@爱吃草莓冰淇淋呢称，“我们被隔离期间，确诊的人数持续增加，人心惶惶，学校还压着不让往外放，对于我们同学也不管不顾，阳性不去医院，确诊不隔离，阴阳混住，密接人员，都在图书馆或者f楼混住，学校的做法太让学生们心寒了。”
 
+从学生们爆料的这些信息的字里行间里，分明看出了大大的两个字——人祸。
 
-众议员迈克·华尔兹： 普京有使用构陷花招的历史。看看叙利亚，俄罗斯在阿萨德的军队中使用了少量化学制剂，以此作为使用化学武器进行报复的借口。 这可能为普京在乌克兰策划同样的事情奠定了基础。 【附福克斯视频：美国表示：我们在乌克兰没有生化武器实验室】
+可以说，绝大部分被感染的学生，不是被疫情坑死的，而是被人祸害死的。他们恐慌的也不是疫情本身，而是中共视生命如无物的心。
 
-
-
-> Putin has a history of using false flags. Just look at Syria where Russia used minor chemical agents on Assad's forces as a pretext to retaliate with chemical weapons.
-> 
-> This could be setting the stage for Putin to orchestrate the same in Ukraine. [pic.twitter.com/DOrQzN4cCz](https://t.co/DOrQzN4cCz)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 10, 2022](https://twitter.com/michaelgwaltz/status/1502048472194768897?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可·卢比奥： 极权主义精神并没有随着冷战的结束而消亡 但现在在亚洲、东欧和中东，它又一次存活于大国内部 【附视频，卢比奥议员在参议院情报听证会上致开幕词】
-
-
-
-> The spirit of totalitarianism did not die with the end of the Cold War 
-> 
-> But now in Asia, Eastern Europe and the Middle East it once again lives inside of great powers
-> 
->  [pic.twitter.com/KhOf1CCosB](https://t.co/KhOf1CCosB)
-> — Marco Rubio (@marcorubio) [March 10, 2022](https://twitter.com/marcorubio/status/1502027110168285195?ref_src=twsrc%5Etfw)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

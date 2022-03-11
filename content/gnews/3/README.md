@@ -2,48 +2,32 @@
 ---
 
 
-## 日本援乌战略防御物资起运
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141895/)
+## 知情者：拜登将提出取消俄罗斯永久正常贸易关系地位
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2141972/)
 
-撰稿: 香草山农场- Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
-3月8日，一架装载战略防御物资的日本自卫队的飞机，从航空自卫队小牧基地出发，飞往乌克兰。据悉，除了装载防弹背心、头盔和一些防护用品外，这架飞机还装载有食品、卫生用品、相机、发电机、帐篷和冬衣等战时应急物资，支援乌克兰。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1072.png)图片来自：https://cdn-japantimes.com/
-日本防卫省发出声明，已和乌克兰政府约定，禁止将日本提供的防卫物资另作他用，也禁止转移给第三国使用。此外，内阁官房长官松野博一同日表示，日本并不打算向乌克兰提供致命性武器。
+文 / 陈慧璋
+更新 / 2022年3月11日 12:18 AM
+采集：玫瑰新闻组
 
-自第二次世界大战结束后，日本一直严格遵守《和平宪法》规定，不介入海外军事活动，不向冲突各方提供防卫物资。但在3月8日的声明中，日本防卫省再度谴责俄罗斯违反国际法，对乌克兰发动战争、侵犯乌克兰主权与领土完整，动摇了欧亚的国际秩序基础。日方应乌克兰政府请求，及时提供防卫物资，并将继续尽一切努力协助乌克兰。
-
-链接:
-
-[Japan sends military protective equipment to Ukraine](https://www.ukrinform.net/rubric-ato/3424220-japan-sends-military-protective-equipment-to-ukraine.html)
+![两名知情者向路透社披露，美国总统拜登将在周五提出终止俄罗斯的永久正常贸易关系地位。（彭博社）](https://www.zaobao.com.sg/s3/files/styles/article_large_full/public/images/202203/20220311/3850678560-3.jpg?itok=fheP4CVC)两名知情者向路透社披露，美国总统拜登将在周五提出终止俄罗斯的永久正常贸易关系地位。（彭博社）
 
 
+（早报讯）两名知情者向路透社披露，美国总统拜登将在周五（3月11日）提出终止俄罗斯的永久正常贸易关系，为美国提高对俄罗斯进口商品的关税扫清障碍。
+
+此举标志着美国及其盟友对俄罗斯总统普京的施压行动再次升级。
+
+美国一高级官员表示，要取消俄罗斯的永久正常贸易关系地位须经过国会，必须得到国会两院的支持。
+
+美国至今已为俄罗斯入侵乌克兰对其祭出一连串的惩罚性措施，把俄罗斯银行、寡头、精英人士等都列入制裁措施。3月8日，拜登刚签署行政令，宣布立即停止从俄罗斯进口石油、液化天然气和煤炭，称此举将切断俄罗斯经济的“主动脉”。
+
+新闻链接：
+[知情者：拜登将提出取消俄罗斯永久正常贸易关系地位](https://www.zaobao.com.sg/realtime/world/story20220311-1251210)
+
+**审核：Barry Jack
+上传排版：V在途中**
 
 
 
-> To deliver bulletproof vests and helmets to [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw), KC-767 departed from Komaki Air base. JMOD/JSDF will continue to make every effort to assist Ukraine.
-> For [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/V74cPpTaby](https://t.co/V74cPpTaby)
-> — Japan Ministry of Defense/Self-Defense Forces (@ModJapan\_en) [March 8, 2022](https://twitter.com/ModJapan_en/status/1501219091067342848?ref_src=twsrc%5Etfw)
-
-
-
-[Japan Will Send the Ukrainian Military Basic Supplies](https://www.wsj.com/livecoverage/russia-ukraine-latest-news-2022-03-04/card/japan-will-send-the-ukrainian-military-basic-supplies-VOtpnPjTX2ooK8dqQ8o8)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-59.jpg)
-
-编辑:飞虹
-
-总编: 雪梨
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

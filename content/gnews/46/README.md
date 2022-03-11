@@ -2,32 +2,28 @@
 ---
 
 
-## 2022/03/08 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2137849/)
+## 媒体报道：格哈德·施罗德应乌克兰的要求会见弗拉基米尔·普京
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2139686/)
 
-1. 3月7日，陕西西安，市民面对再次因疫情被封锁的小区，只能无奈感叹。
-2. 3月5日，湖北武汉。中共政府采用连坐的疫情管理方式，一人不做核酸检测，全楼栋就会全员持续被关禁闭。引导百姓互斗是中共惯用手段。
-3. 3月6日，广东深圳。为了上班，市民们每日都会如此，被迫奔跑在核酸检测的路上。疫情让政府的权力无限放大。
-4. 3月6日，广东深圳疫情下“尽责”的工作人员，10步一岗哨防止百姓翻墙逃出。中共政府永远热衷建墙围困百姓。
-5. 3月7日，广东深圳一核酸检测的现场，做核酸检测的百姓比春运时火车站的人都多。
-6. 中共国内招临时工面试现场，名为检查面试者四肢是否健全，实则只是想挑选顺从、忍耐力高的面试者。
-7. 3月6日，贵州黔东南。市民吐槽修路后却人为添加障碍物，使得腿脚不便者无法通行。
-8. 3月7日，中共国内被压榨的货车司机常态，运输货物需要自己无偿替货主卸货(或给卸货工人好处费)，几近成为了行业的潜规则。
-9. 3月5日，吉林辽源，一餐厅食品卫生问题被曝光。店员从清洗抹布的脏水桶内捞出餐具漏勺，仅擦拭后即放在了桌子上。
-10. 3月4日，为了禁止百姓燃烧秸秆，吉林通化市快大茂镇政府再现雷人标语。
+**《政客》报道，格哈德·施罗德在莫斯科与俄罗斯总统弗拉基米尔·普京会面。这是乌克兰人所希望的。**
 
+作者：BLZ / Kuri 原文发布于2022年3月10日20:38
+翻译：LK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-7-1.jpg)图片：前总理格哈德·施罗德祝贺弗拉基米尔·普京就任俄罗斯总统。摄于2018年/dpa/Alexei Druzhinin
 
-* * *
+据媒体《政客》（Politico）的欧洲分支报道，称前总理格哈德·施罗德将在莫斯科与俄罗斯总统弗拉基米尔·普京会面（[Gerhard Schröder in Moskau sein, um sich mit dem russischen Staatspräsidenten Wladimir Putin zu treffen](https://www.politico.eu/article/gerhard-schroder-in-moscow-to-meet-putin-in-ukraine-peace-bid-sources)）根据《图片报》（[Bild-Zeitung soll er](https://www.bild.de/politik/2022/politik/medienbericht-altkanzler-schroeder-trifft-putin-in-moskau-79411314.bild.html) ）的网站报道，他将对乌克兰冲突进行调解。据称，社民党领导层对此行程一无所知。然而，记者Florian Eder写道，施罗德是应乌克兰人的要求动身前往的。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+“消息人士告诉Politico网站，施罗德访问莫斯科之前，他在伊斯坦布尔与一名乌克兰政治家进行了会谈，他是该国与俄罗斯和平谈判代表团的成员，”Politico网站称（[heißt es auf der Website von Politico.](https://www.politico.eu/article/gerhard-schroder-in-moscow-to-meet-putin-in-ukraine-peace-bid-sources)）。 乌克兰人想知道格哈德·施罗德是否能在俄罗斯和乌克兰之间建立一座桥梁。会议将在星期四晚上举行。
 
+乌克兰驻柏林大使Andrij Melnyk先生上周已经暗示，施罗德可以充当调解人（[dass Schröder als Vermittler fungieren könnte](https://www.bild.de/politik/ausland/politik-ausland/ukrainischer-botschafter-ueber-ex-kanzler-schroeder-koennte-versuchen-zu-vermitt-79344776.bild.html)）。Politico称，乌克兰议员Rustem Umerov先生已邀请施罗德尝试进行调解。他们将于周一在伊斯坦布尔会面。据称，乌克兰总统泽连斯基亲自恳请施罗德介入。施罗德曾说，他不确定普京是否想要见他，但他会尝试。然后他给普京的一个亲信打电话，问他是否可以来。普京的亲信开了绿灯，并表示周三一架俄罗斯飞机将在伊斯坦布尔接施罗德。
 
-编辑：【英国伦敦喜庄园编辑部】
+施罗德的妻子So-yeon Schröder-Kim女士在社交媒体上宣布，她经常被问及她的丈夫是否可以调解冲突。 “许多人（……）亲自与我联系，询问我丈夫是否可以与普京先生谈论乌克兰的战争。”（[„Viele Menschen haben sich (…) bei mir persönlich gemeldet, ob mein Mann nicht mit Herrn Putin über den Krieg in der Ukraine reden könnte.“](https://www.waz.de/politik/gerhard-schroeder-frau-ukraine-russland-kritik-instagram-post-id234709823.html)） 除其他外，现在这种敦促可能也导致了施罗德与普京的会面。两人是多年的朋友。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+在乌克兰战争和俄罗斯入侵开始后，前总理格哈德·施罗德因没有与总统弗拉基米尔·普京保持距离，以及放弃与俄罗斯国有公司俄罗斯天然气工业股份公司的业务关系而受到批评。
 
+相关链接：[https://www.berliner-zeitung.de/wochenende/laut-medienberichten-trifft-altkanzler-gerhard-schroeder-in-moskau-wladimir-putin-li.216269](https://www.berliner-zeitung.de/wochenende/laut-medienberichten-trifft-altkanzler-gerhard-schroeder-in-moskau-wladimir-putin-li.216269)
+发布：LK
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,34 @@
 ---
 
 
-## 俄乌外长在土耳其首次举行会谈无果
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2140182/)
+## 全球瞩目！新中国联邦乌克兰人道救援在行动
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2140870/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-69.png)（图片来源于本文链接）
-俄外长拉夫罗夫和乌外长库列巴3月10日在土耳其进行会谈。这是2月24日俄入侵乌以来两国外长的首次会谈，乌外长在会谈后表示没有取得进展。库列巴9号说，“坦率说，我对会谈的期望有限，乌克兰正在寻求停火、解放其领土并解决所有人道主义问题。”他声称，与拉夫罗夫会谈的成功与否取决于普汀给拉夫罗夫“下了什么样的指令，”“我想重申，乌克兰没有投降，也不会投降。”
+3月10日，新中国联邦乌克兰人道救援行动在全世界引起了广泛的关注，来自世界各地的媒体和机构来法治基金新中国联邦的大帐篷来拍摄难民。
 
-在两国外长会谈之际，乌总统泽连斯基呼吁西方加强对俄的制裁，“以便让他们坐到谈判桌前，结束这场残酷的战争。”他在10日接受媒体采访时表示，相信普京会在某个阶段同意会谈。“我认为他看到了我们的强大。他会的。我们需要一些时间”，泽连斯基说。
+美联社、彭博社、盖帝图片社、意大利电视台、西班牙电视台、波兰最大报纸和电视台、阿拉伯迪拜电视台……国际红十字会的工作人员穿着他们的制服（上面有印着红十字会的标志）把过境的妇女和儿童送到新中国联邦救援大帐篷里安顿。
 
-另一方面，泽连斯基也表现出一些妥协的意愿。被问及“如何看待接受顿巴斯独立、克里米亚归属俄罗斯的要求，以及为了和平准备放弃什么”的时候答道，“在任何谈判中，目标都是结束战争。而且我也准备作出一些妥协”他说，“不是不能作出妥协，但这些妥协绝不能是对国家的背叛”。他也强调，另外一方也必须准备好作出妥协。他在接受美国媒体ABC采访时表示，愿意就东部分离主义地区以及被俄并吞的克里米亚地位问题举行会谈，他表示重要的是倾听当地人民的意愿。乌克兰暂时不会加入北约。
+法治基金新中国联邦组织的前线救援人员和总部位于瑞士的国际人道救援机构“无疆界医生组织“ （Doctors Without Borders，简称：MSF）并肩行动 ！
 
-信息来源：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/8-17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-34.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-56.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-71.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-114.jpg)
 
-[土耳其斡旋下 俄乌外长开始举行谈判](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220310-%E5%9C%9F%E8%80%B3%E5%85%B6%E6%96%A1%E6%97%8B%E4%B8%8B-%E4%BF%84%E4%B9%8C%E5%A4%96%E9%95%BF%E5%BC%80%E5%A7%8B%E4%B8%BE%E8%A1%8C%E8%B0%88%E5%88%A4)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+素材来源：新中国联邦前线战友！感谢你们的付出，你们辛苦了！
+
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

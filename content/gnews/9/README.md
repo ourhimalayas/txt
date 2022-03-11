@@ -2,88 +2,46 @@
 ---
 
 
-## 美国：乔·拜登的新法令对加密货币的监管有何规定？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2141841/)
+## 受俄军控制，切尔诺贝利核电站断电
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141952/)
 
-译评：香草山商业部 — 文锤
+撰稿：日本方舟农场 Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
+3月9日早上，作为人类历史上核灾难象征的切尔诺贝利核电站，停止了向国际原子能机构传输数据。当天下午，乌克兰国家能源公司表示，切尔诺贝利核电站，已与电网断开连接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1073.png)ttutu’ptu’pitu’piatu’pian图片来自https://cdn.mos.cms.futurecdn.net
+早在2月24日，俄罗斯军队就已经侵占切尔诺贝利核电站。核电站的断电缘由尚不清楚，俄罗斯军队接下来将采取什么措施也不得而知。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+乌克兰国家安全和情报局特别通信和信息保护局表示，核电站有2万个乏燃料组件需要持续冷却。如果没有电，水泵将无法冷却，储水池中的温度将升高。蒸发将导致核排放。设施内没有通风，所有人员将遭受危险剂量的辐射。此外，放射性云将通过风，转移到乌克兰、白俄罗斯、俄罗斯等欧洲其他地区。
 
+乌克兰外长库列巴证实了这一消息，并表示，普京发动的野蛮战争正将整个欧洲置于危险之中。
 
+新闻链接：
 
+[切尔诺贝利核电站被俄军控制，国际原子能机构敦促保障核安全](https://news.un.org/zh/story/2022/02/1099752)
 
+[切尔诺贝利核电站监测系统停止向国际原子能机构传输数据](https://mil.news.sina.com.cn/world/2022-03-09/doc-imcwiwss5004943.shtml)
 
-今年早些时候宣布，乔·拜登关于加密货币的行政命令是意料之中的。我们现在通过将要讨论的要点了解它的内容。禁令的可能性正在转向妥协，并讨论了美国中央银行数字货币的可能性。
+[外媒：乌克兰切尔诺贝利核电站已完全断电](https://www.sohu.com/a/528496947_120046968?scm=1004.844964104975351808.0.0.5610&amp;spm=smpc.home.mil-pics.2.1646823603075DfPYSas)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/blob-2.jpeg)图片来源于网络
-
-**征求所有州和政府机构的行政命令**
-
-如果说[加密货币生态系统](https://cryptoast-fr.translate.goog/fiches-crypto/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)中有一个话题引起了质疑，那就是监管。每个政府都对其公告和立场负责。在欧洲，MiCA受到了一些惊恐的关注，而在美国 ，人们期待着有关乔·拜登总统行政命令的公告。
-
-在接下来的工作中，所有美国州以及各种金融监管实体都将参与其中。如果我们不能说具体在那里，我们仍然固定在 7 个主轴上，这些主轴将用于制定横渡大西洋的规则（包括欧洲）：
-
-- 消费者和投资者保护；
-- 金融稳定;
-- 打击非法融资；
-- 美国在全球该领域的领导地位；
-- 金融包容性;
-- 数字资产的开发及其负责任的使用；
-- 一种可能的未来[央行数字货币（MNBC）](https://cryptoast-fr.translate.goog/monnaies-numeriques-banque-centrale-mnbc-cest-quoi/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)。
+[Chernobyl ‘cut off from grid by Russians’, sparking fears over cooling of spent nuclear fuel](https://www.independent.co.uk/news/world/europe/ukraine-chernobyl-nuclear-power-plant-outage-b2031874.html)
 
 
-美国有义务，文本仅限于美国，但是，欧洲了解其内容仍然很重要，因为我们欧洲自己的监管机构可以精确地模仿国外的做法。
 
-使用和利用底层技术（[即区块链](https://cryptoast-fr.translate.goog/qu-est-ce-que-la-blockchain/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)）的愿望是明确的，但加密货币的地位却不那么明显。另请注意，“ 加密货币”一词仅在文本介绍中提到过两次。其余时间，  首选的是“数字资产”的概念：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-59.jpg)
 
-“近年来，包括加密货币在内的数字资产出现了爆炸性增长，去年 11 月的市值超过了 3 万亿美元，高于五年前的 140 亿美元。调查表明，大约 16% 的美国成年人（约 4000 万人）投资、交易或使用过加密货币。”
+编辑：飞虹
 
-首次为每个管理部门分配了明确的角色。例如，财政部将负责提出保护投资者的建议。金融稳定监督委员会 (FSOC) 将防止全球经济可能面临的风险。[与稳定币](https://cryptoast-fr.translate.goog/etats-unis-sec-regulation-stablecoins/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)相关的技能分离。
+总编：雪梨
 
-**乔·拜登法令的要点**
-
-不出所料，文中提出的正是消费者保护、打击非法融资和系统性风险等常见论点。但是请注意，从长远来看，2021 年非法活动仅占[加密交易总额的 0.15%](https://cryptoast-fr.translate.goog/activite-criminelle-cryptomonnaies-chute-volume-augmentation-valeur-2021/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)。
-
-美国领导力问题很明显，白宫要求政府采取具体措施支持该行业的技术进步，以确保美国在国际影响力中的首选之地。商务部还将负责制定战略以提高该国在这一层面的竞争力。
-
-还讨论了 MNBC 的可能性。其未来的方向并不确定，但乔·拜登在他的法令中要求进行完整的可行性研究，以判断在美国采用或不采用数字货币的相关性。
-
-就像这里的 MiCA 一样，工作量[证明对](https://cryptoast-fr.translate.goog/qu-est-ce-que-le-pow-proof-of-work/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)气候的影响问题也摆在桌面上，目前还没有某种明确措施。
-
-如果公告没有准确说明加密货币在美国经济中的地位，那么似乎全面禁令的幽灵正在消失，这有利于政府的妥协。加密社区似乎普遍欢迎这个趋势。
-
-因此，我们仍在等待下一步措施、它们对价格的影响以及它们对我们欧洲自己的法规的影响。应该记住，监管不一定是坏事，整个细微差别在于该监管的严重程度。
-
-**评价：**监管，监管，监管，颤抖吧比特币，币安币。七哥准确的把握了数字加密货币未来的命脉，即只有合规被监管的数字加密货币才能活下来，美国的标准将会被欧洲效仿，美国和欧洲的标准几乎是世界数字加密货币监管的标准，然而喜联储就是这些标准制定的参与者之一。
-
-**原文作者：****[Vincent Maire](https://cryptoast.fr/author/vincent-maire/)**
-
-**原文链接：[États-Unis : que dit le nouveau décret de Joe Biden concernant la régulation des cryptomonnaies ? (cryptoast.fr)](https://cryptoast.fr/etats-unis-decret-joe-biden-regulation-cryptomonnaies/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
-
-校对/发稿：小鹿
-
-
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

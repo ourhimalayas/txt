@@ -2,37 +2,28 @@
 ---
 
 
-## 美众议院通过法案，禁止从俄罗斯进口石油
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141740/)
+## 樱花FM|世界首次克隆梅树开花
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2141880/)
 
-作者：香草山农场 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在当前俄乌战争局势下，美国众议院于周三晚间，以 414 票对 17 票的压倒性票数顺利通过法案，禁止从俄罗斯进口石油。
+音频：东京樱花团/战友520
+![](https://lh3.googleusercontent.com/m9Ku184IQacvnfVGHYDcN6VgA9b4Jl7BGxBueyZA3TXzdbsKviZZj7pQfQJQWH15G_yyTlOUwMQIU7PHBa7-IbgTCSkyBtT2soPbcPegQ1AWgtRqyNAjb51q34ULSzgeoeRdoxaM)
+3月4日，北野天满宫（京都上京区）和住友林业宣布，通过克隆该神社的神树“飞天梅”，培育的树苗首次在神社院内开花。据该公司称，这是世界上首次克隆梅树开花。这对被奉为神灵的老树的延续意义重大。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-15.jpg)
+现在的飞天梅是在江户时期嫁接的，估计有350多年的历史，由于虫害病菌的侵蚀树木的衰老显现，花色由浓变淡，活力下降。
 
-相对于拜登此前颁发的行政命令，该法案更进一步，美国敦促审查俄罗斯在世界贸易组织中的地位，并要求对俄罗斯官员的侵犯人权行为进行制裁，从经济上彻底孤立俄罗斯。
+2009年起，天满宫与住友林业协作开始对梅树进行克隆繁殖，于2017年在寺庙内的梅园栽种了五株克隆树苗。
 
-在世界能源价格飙升的当下，美国立法者通力合作，支持乌克兰。据悉，该法案已提交至参议院。
+本月4日，其中一棵已3米多高的树苗最先开出了一朵深红色的梅花。 其他树苗也绽出花蕾，就像主神殿前的飞天梅树一样，花期渐进。
 
-链接：
+与通常树木嫁相比，克隆技术更适合繁殖老树。由于是在无菌状态下培养的，不容易受到疾病和虫害的影响。
 
-- [House approves ban on Russian oil to US, bolstering Biden](https://news.yahoo.com/house-approves-ban-russian-oil-042807034.html?guccounter=1)
+采集梅树细胞和调整适合细胞生长的培养液是最困难的环节，这个技术难题的解决，给千年老树的延续带来了希望。
 
+文字版原文：[世界首次克隆梅树开花](https://gnews.org/zh-hans/2113137/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
-
-总编/编辑：雪梨
-审核：雪梨
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

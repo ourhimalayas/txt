@@ -2,31 +2,36 @@
 ---
 
 
-## 樱花FM|中日财经爆：日本海关去年查获的盗版商品 75%来自中共国
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2141929/)
+## 台湾法务部侦办违法中资公司
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141984/)
 
-音频：东京樱花团/战友520
+撰稿：香草山农场-云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
+3月9日，台湾法务部调查局联合五个地方检查署，动员百名调查官，对中资公司违法在台湾吸收高科技人才、及窃取科技机密的行为进行扫荡。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1074.png)图片来自：https://pic1.zhimg.com/
+据悉，中共经由第三方投资公司的名义，恶意隐匿身分或资金来源进入台湾成立空壳公司，在台湾从事恶意挖角及窃取科技机密的不法行为，已经危害到台湾的国家安全。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/中日财经爆：日本海关去年查获的盗版商品-75来自中共国.png)
+台湾法务部表示，将持续侦办中共对台的不法案件，确保台湾的国家安全。
 
-日本海关去年查获盗版商品进口数量，较前年约增加40%左右，涉案产品有四分之三来自中共国。
+新闻连接：
 
-据日本财务省表示，日本全国海关过去一年查到的进口盗版品案件数为2万8千多件，较前年稍减6.7%；但盗版品进口数量为81万9千多个，则较前年增加39.1%。盗版品来源国中，以中共国为最大宗，占75.1%；种类则以服装类近11万笔最多，其次为耳机等电器商品、包包等。
+[阻中國挖角高科技人才 調查局動員百人偵辦8家違法陸企](https://www.cna.com.tw/news/asoc/202203090233.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-进口盗版品中，除了有《鬼灭之刃》的玩具、文具等周边，苹果的耳机等等，甚至可见用去年东京奥运、今年北京冬奥的图样仿制的奖牌或马克杯仿冒品。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-59.jpg)
 
-为了加强取缔输入日本的仿冒品，日本国会已提出针对企业与个人的进口相关法案。
+编辑：玫瑰园
 
-文字版原文：
+总编：雪梨
 
+校正/发稿：浪迹天涯
 
-| [中日财经爆|日本海关去年查获的盗版商品 75%来自中共国](https://gnews.org/zh-hans/2110046/) |  |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

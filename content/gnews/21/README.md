@@ -2,35 +2,36 @@
 ---
 
 
-## 美国联合航空公司让未接种中共病毒疫苗的员工重返工作
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2141507/)
+## 美国务院谴责中俄关于其在乌克兰进行生化武器实验的谣言
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141741/)
 
-#### 撰稿：彩虹 
+作者：波士顿五月花 – 文雀
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月9日，鉴于中共外交部和俄罗斯发表的、关于美国在乌克兰进行生物武器实验的不实言论，美国国务院发布官方说明，谴责俄罗斯散布虚假信息，并抨击中共附和该阴谋论的丑恶行径。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-51.jpg)图片来源：赫芬顿邮报
-根据《国会山报》3月10日的报道，美国联合航空公司（United Airlines）将让未接种中共病毒（COVID-19）疫苗的员工在3月28日之前返回全职工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-8.jpg)
 
-在《国会山报》获得的一份备忘录中，这家位于芝加哥的航空公司写道，大约2220名员工已经满足了与疫苗相关的合理便利条件，可以重返工作岗位。
+美国国务院发言人内德·普赖斯表示，克里姆林宫故意散布美国正在乌克兰从事生化武器实验，是赤裸裸谎言，是无稽之谈。俄罗斯企图制造虚假借口，为其对乌克兰的侵略行动找到合法理由。他还表示，美国完全遵守《化学武器公约》和《生物武器公约》的义务，没有在乌克兰没有进行生物武器实验，也不会在任何地方开发或拥有这类武器。而俄罗斯却违反公然《化学武器公约》和《生物武器公约》，进行生化武器实验。
 
-另据《路透社》报道，联合航空公司是美国首批强制要求其雇员接种中共病毒疫苗的主要雇主之一。
+链接：
 
-美联航指出，以美国疾病控制和预防中心（CDC）的口罩指南为例，最近美国的病毒病例有所下降。
+- [China accuses US of ‘biological military activities’ in Ukraine](https://www.foxnews.com/world/china-us-biolabs-ukraine-russia)
+- [The Kremlin’s Allegations of Chemical and Biological Weapons Laboratories in Ukraine](https://www.state.gov/the-kremlins-allegations-of-chemical-and-biological-weapons-laboratories-in-ukraine/)
 
-本月早些时候，美国疾病控制和预防中心放宽了对大多数美国人的戴口罩建议，建议生活在中共病毒“低”风险或“中”风险水平社区的人可以不戴口罩。
 
-备忘录说，“这些变化表明，大流行病正开始有意义地消退，因此，我们相信我们可以安全地开始让有适应能力的员工返回他们的工作岗位。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-备忘录也指出，如果中共病毒的另一个变体出现，并且（向好）趋势逆转，该公司将重新评估其协议。
+总编/编辑: 雪梨
+审核: 雪梨
+校正/发稿：海阔天空1
 
-但是，《路透社》却指出，美联航之所以如此做，是因为美国上诉法院上个月以2比1的投票结果下令，重新审查下级法院关于不阻止美联航执行其强制员工接种中共病毒疫苗任务的裁决。
-
-报道说，在去年12月的一份声明中，美联航首席执行官斯科特·柯比（Scott Kirby）却说，只有200名员工在不遵守公司的强制接种中共病毒疫苗后被解雇。
-
-**新闻来源**
-
-[United Airlines letting unvaccinated employees return to work](https://thehill.com/policy/transportation/aviation/597715-united-airlines-letting-unvaccinated-employees-return-to-work)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

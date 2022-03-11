@@ -2,36 +2,42 @@
 ---
 
 
-## 美国务院谴责中俄关于其在乌克兰进行生化武器实验的谣言
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141741/)
+## 乌克兰前沿每日报道
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2141887/)
 
-作者：波士顿五月花 – 文雀
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月9日，鉴于中共外交部和俄罗斯发表的、关于美国在乌克兰进行生物武器实验的不实言论，美国国务院发布官方说明，谴责俄罗斯散布虚假信息，并抨击中共附和该阴谋论的丑恶行径。
+整理：奔跑吧黄小鸭
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-58.jpg)3 月 9 日，乌克兰紧急救援人员和志愿者从被轰炸的马里乌波尔的妇产医院中抬着一名受伤孕妇（图片来自https://www.rfi.fr/cn）
+基辅时间3月11日，今天是俄罗斯入侵乌克兰的第十六天，已有大量无辜的平民伤亡。以下是最新的相关消息
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/12-8.jpg)
+**俄乌前沿最新动态**
 
-美国国务院发言人内德·普赖斯表示，克里姆林宫故意散布美国正在乌克兰从事生化武器实验，是赤裸裸谎言，是无稽之谈。俄罗斯企图制造虚假借口，为其对乌克兰的侵略行动找到合法理由。他还表示，美国完全遵守《化学武器公约》和《生物武器公约》的义务，没有在乌克兰没有进行生物武器实验，也不会在任何地方开发或拥有这类武器。而俄罗斯却违反公然《化学武器公约》和《生物武器公约》，进行生化武器实验。
+- 乌克兰马里乌波尔副市长告诉 BBC，周三俄罗斯轰炸了一家妇产医院，造成三人死亡，其中包括一名儿童。至少还有 17 人受伤，其中一些包括孕妇
+- 乌克兰国家紧急服务中心表示，哈尔科夫市附近的一栋民宅遭到俄军夜间炮击后，有四人丧生，其中两人是儿童。救援人员今天将继续搜索伤亡者
+- 乌克兰当地官员说，俄罗斯战机夜间空袭了苏梅地区东北部城市奥赫蒂尔卡。到目前为止，已造成至少三人死亡，一名 13 岁的男孩和两名女性
+- 一位不愿透露姓名的美国官员估计，在战争两周内丧生的俄罗斯士兵人数约为 5,000 至 6,000 人，受伤人数估计约为 15,000 至 18,000 人。乌克兰声称有12,000名俄罗斯士兵在战斗中丧生。上周，俄罗斯表示，在乌克兰阵亡的士兵不到 500 人
+- 美国国务院认为，俄军在摧毁了许多关键基础设施后，已经包围了“多个”城市。俄罗斯的袭击导致受困地区的居民没有水、电、食物和药品，许多人由于“无情的轰炸”而无法逃脱
+- 一名美国高级国防官员表示，俄军在过去 24 小时内已向基辅移动了5公里，这意味着俄军距离市中心只有 15 公里。自入侵乌克兰开始以来，俄军已经发射了 775 枚“各式各样”的导弹
+- 一位乌克兰议员告诉 BBC，俄罗斯军队已经包围了东南部城市马里乌波尔，而轰炸机则全天候向这座城市投掷炸药。居民被迫住在地下室，他们只剩下“两到三天”的食物。从街头已收集到 1,207 具，由于无法辨认也无法到达城外的墓地，有 47 人被埋在乱葬坑中
+- 俄罗斯与乌克兰外长在土耳其的和谈进展甚微
+- 据联合国称，自俄罗斯入侵乌克兰以来的两周内，约有 230 万人逃离了该国
+- 苏联时代的汽车制造商拉达正在停产。该公司表示，严重的西方制裁已无法再获得所需的零件和供应品。去年，拉达汽车占俄罗斯汽车销量的 21%。该公司归法国汽车制造商雷诺所有，但其车辆由当地汽车制造商 AvtoVAZ 组装。
 
-链接：
 
-- [China accuses US of ‘biological military activities’ in Ukraine](https://www.foxnews.com/world/china-us-biolabs-ukraine-russia)
-- [The Kremlin’s Allegations of Chemical and Biological Weapons Laboratories in Ukraine](https://www.state.gov/the-kremlins-allegations-of-chemical-and-biological-weapons-laboratories-in-ukraine/)
+**世界各国最新动态**
+
+- BBC报道，与普京结盟的顿涅茨克领导人丹尼斯·普希林接受中共大外宣CGTN的采访，CGTN是对普希林“独家”专访的两家中共媒体之一。普希林说，导致平民死亡的是乌克兰的武装行动。值得注意的是，在整个入侵过程中，中共媒体一直为俄罗斯或亲俄势力提供发言平台
+- 高盛和摩根大通宣布将关闭其在俄罗斯的业务。对莫斯科打击更大的可能来自西联汇款的退出，该公司周四也宣布暂停在俄罗斯和白俄罗斯服务
+- 美国华特迪士尼公司华纳音乐、索尼音乐集团和优衣库等公司宣布“暂停”在俄罗斯的业务
+- 重型设备巨头卡特彼勒和约翰迪尔正在暂停与俄罗斯合作伙伴的合作。两家公司都表示将向人道主义救援工作捐款。其他主要制造商如小松、日立和 JCB 已经停止对俄罗斯的出口
+- 在俄罗斯入侵乌克兰之后，瑞典政府正在将其军费开支从 2020 年的 1.5% 增加到该国 GDP 的 2%。瑞典不是北约成员国，瑞典政府表示，现在加入可能会破坏欧洲的安全并进一步加剧紧张局势。
+- 国际货币基金组织总裁表示，俄罗斯经济面临“深度衰退”，该国债务可能违约造成的影响将蔓延到全球经济，导致能源和食品成本上升。
+- 英国政府对切尔西足球俱乐部老板罗曼·阿布拉莫维奇实施了经济制裁。他的资产（包括俱乐部）已被冻结。以色列大屠杀纪念馆宣布将暂停与阿布相关的机构。四年前，在英国推迟了阿布的签证续签之后，他成为了以色列公民
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+原文链接：
 
-总编/编辑: 雪梨
-审核: 雪梨
-校正/发稿：海阔天空1
+[Ukraine: Zelensky, US ridicule Russian chemical weapons claims – BBC News (www-bbc-com.translate.goog)](https://www-bbc-com.translate.goog/news/live/world-europe-60685883?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=sc)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
