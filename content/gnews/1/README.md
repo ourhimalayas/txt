@@ -2,11 +2,14 @@
 ---
 
 
-## 3/10/2022 文贵直播：香港恒生指数快要跌破2万点，预示着香港经济的大崩溃; 感染CCP病毒的香港警察比普通市民要多得多，这是报应
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2141113/)
+## 2022年3月11日《樱花简报》：日本上调进口小麦价格至历史第二高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2141152/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3._11简报-scaled.jpg)
 
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,41 +2,25 @@
 ---
 
 
-## 有声|英美宣布禁止进口俄罗斯石油和其他能源
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2140855/)
+## 以乌克兰为镜！ 台湾须强化不对称战力与作战准备
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2140952/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月8日，据当地媒体报道，美国总统拜登当天发布声明宣布，将禁止进口俄罗斯的石油和其他能源，从而增强美国对俄罗斯所施加压力，而这也是美国针对俄罗斯入侵乌克兰行为所采取的最新制裁措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-13.jpg)
-拜登在声明中强调，该举措是美国人民对俄罗斯的另一个有力打击，目前已经受到了来自美国两党的强烈支持。
+美国助理防长卡尔林3月11日出席国会听证会表示，乌克兰情势非常值得台湾研究，从此可看出台湾须打造不对称战力，让人民做好作战准备，才能在主权遭中共侵犯时尽快动作。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-15.png)图片来源：美联社
+由于俄乌爆发战火，美方能如何提供乌克兰更多协助成为听证会重点。但为了避免印太区域也上演类似冲突，参议院外委会主席梅南德兹（BobMenendez）、共和党首席议员里契（Jim Risch）双双关心起台湾防卫战力。
 
-拜登还表示，石油以及其他能源的出口是俄罗斯的经济支柱。但鉴于俄罗斯当下对乌克兰的侵略举动，美国正在与欧洲的盟友合作，用以孤立普京和俄罗斯的经济。因此，在与世界各地的盟友和伙伴密切磋商后，美国政府实施了这一最新制裁举措。
+简评：据郭文贵先生爆料称，俄乌战争习大神发现美国是最大收益者，西方社会已经容不下他和普京这样的独裁者。中共如今不敢跟俄罗斯翻脸，也不敢跟美国翻脸，走上绝路的中共会放毒，发动另一场能源与区域性战争。
 
-同时，英国也在一份声明中宣布，将在2022年年底前逐步停止进口俄罗斯的石油和石油产品，以此作为对俄罗斯无端和无理对乌克兰发动战争的制裁。
+就此看来，台湾的危险已经越来越大，随时都可能遭受中共的攻击，正如美国助理防长卡尔林所说，台湾须打造不对称战力，让人民做好作战准备，才能在主权遭中共侵犯时尽快动作。
 
-对此，拜登提到，美国正在与盟友及伙伴共同合作，从而发展一套减轻依赖俄罗斯能源的长期战略；而作为制裁，这一战略正在导致俄罗斯经济的崩溃。
+新闻来源：[联合新闻网](https://udn.com/news/story/10930/6156502?from=udn-catebreaknews_ch2)
 
+撰稿/发布：一叶知秋
 
-
-文字版原文：[英美宣布禁止进口俄罗斯石油和其他能源](https://gnews.org/zh-hans/2132634/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

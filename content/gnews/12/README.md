@@ -2,12 +2,10 @@
 ---
 
 
-## 3月10日文贵盖特（图片1-3）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2140964/)
+## 3/10/2022 文贵盖特：只有新中国联邦在救援前线搭起了帐篷让妇女和儿童获得温暖和照顾；乌克兰人和波兰人的勤劳和勇敢与中国人的懦弱对比鲜明
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2141018/)
 
-设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2D3959E9-4403-4D48-A14E-A67030251D67.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/5D5B3A29-4E6E-4355-8379-87D415019F67.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/3AC8B98F-35CE-47DB-BB92-5276EEA248BD.jpeg)
-发布：水涨船高
+秘密翻译组-北美组
 
  
 

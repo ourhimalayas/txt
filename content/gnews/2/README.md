@@ -2,26 +2,33 @@
 ---
 
 
-## 凯特王妃挺乌克兰！闻战地儿童近况强忍泪水
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2141049/)
+## 2022年3月10日澳洲股市简报
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2141144/)
 
-凯特王妃3月9日受邀参观乌克兰文化中心，过程中深受感动强忍泪水，这天她也特别穿上乌克兰「国旗蓝」的毛衣，以服装代表支持立场。
+**撰稿：云彩**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
+油价下跌导致澳大利亚股市大幅上涨。ASX 200 指数上涨 1.1%，收盘 7,130 点。澳交所普通股指数上涨了约 1.1%，收盘7,410点。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/220310-18843-1-9fAnl.jpg)图片来源：istyle
+澳元下跌 0.1% ，1澳元兑美元 73.16 美分。
 
-威廉王子与凯特王妃两人受邀访问在英国的乌克兰文化中心，选在乌俄战争持续开火期间别有表明立场意味。凯特王妃一向拥有高衣品，也懂得以服装发声，因此特别选穿 Alexander McQueen 羊绒套头衫，顏色正是乌克兰的国旗色「蓝色」，毛衣上别了一个爱心装点的乌克兰国旗徽章。
+能源、矿业和公用事业股下跌，科技、非必需消费品和银行股上涨。
 
-简评：在俄乌战争之际，全球挺乌成为潮流，服装是一种文化，服装是一种表达，服装是一种立场，凯特王妃以服装挺乌克兰更是一种呼吁与传播！服饰含义的表达已成为“媒体超限战”中射向邪恶的子弹，Gfashion未来将会出如何的新款？全球拭目以待！服饰灭共，时尚潮流灭共，就在新中国联邦Gfashion！
+镍矿公司Nickel Mines Limited 再次成为表现最差的股票，下跌 12.8%，此前该公司承认其主要股东和中国合资伙伴青山控股因空头头寸导致交易暂停而蒙受数十亿美元的损失。 本周镍矿已下跌超过 20%。
 
-新闻来源：[LTN](https://istyle.ltn.com.tw/article/18843)
+有报道称美国正从伊拉克和阿拉伯联合酋长国等其他国家寻找石油，市场价格暴跌。
 
-撰稿/发布：一叶知秋
+全球基准布伦特原油结算价下跌 13% 至 111.14 美元/桶。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+美国基准石油西德克萨斯中质原油下跌超过 12.5% 至 108.70 美元/桶。
 
+参考资料：
+
+[ASX rises amid oil price plunge, RBA’s deputy governor Guy Debelle quitting to join Fortescue](https://www.abc.net.au/news/2022-03-10/markets-wall-street-dow-jones-asx/100897468)
+
+*编辑：云彩*
+
+*发布：云彩*
+![]()
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
