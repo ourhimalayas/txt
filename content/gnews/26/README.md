@@ -2,27 +2,34 @@
 ---
 
 
-## 基辅市长：首都一半人口已逃离家园
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2140715/)
+## 新中国联邦和法治基金志愿协助设立难民通道
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2141102/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ukraine-russia-conflict-074134.jpg)乌克兰首都基辅市长克里琴科说，根据政府最新信息，每两个基辅居民中就有一个已经离开了这个城市。（法新社）
-（早报讯）俄罗斯军队已逼近乌克兰首都基辅东北部边缘。基辅市长克里琴科说，基辅目前有一半的人口已经逃离家园。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-法新社报道，克里琴科周四（3月10日）告诉乌克兰电视台，根据政府最新信息，每两个基辅居民中就有一个已经离开了这个城市。目前有近200万人已经离开。根据网站citypopulation.de数据，大基辅地区去年的人口为350万。
+整理/编辑：小红帽
 
-克里琴科还说，基辅已变成一个堡垒。“每条街道、每座建筑、每个检查站都已加固了。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-44.png)图片来源：郭文贵先生盖特视频截图
 
-据报道，俄罗斯军队已经将他们的装甲车开到了基辅东北部边缘地区，试图将该城市包围。
 
-法新社战地记者也目睹该区斯基宾村（Skybyn）上空升起了烟尘。该村距离基辅东北部城市界限的最后一个检查站仅几百米。
+根据3月10日新中国联邦和法治基金前线记者的视频报道，新中国联邦和法治基金的志愿者与其他国际救援组织一起，在波兰的梅迪卡（Medyka）设立乌克兰难民通道。
 
-乌克兰士兵也说，军队昨晚为一条进入基辅主要公路的控制权进行了一夜激战。
+从前线记者发回的视频可以看到，新中国联邦和法治基金的志愿者都在忙碌地搬运围栏，以设置特定的区域用于难民通行。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-38.png)
+视频显示，各国际救援组织与新中国联邦和法治基金的志愿者合作无间且同心协力地完成工作。期间，有难民对志愿者点头表示感激。现场充满了志愿者搬运设施的勤劳身影。
 
-参考链接：[https://www.zaobao.com.sg/realtime/world/story20220310-1251012](https://www.zaobao.com.sg/realtime/world/story20220310-1251012)
+此次乌克兰救援行动，由法治基金，法治社会大力支持。新中国联邦作为唯一的一个华人团体来到乌克兰前线参加救援行动，目标是灭掉中共，实现世界和平。
 
-审核校对：Barry Jack
-上传排版：F
+资料来源：[郭文贵先生2022年3月11日盖文](https://www.gettr.com/post/pzcf16a7d4g)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

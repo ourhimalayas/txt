@@ -2,41 +2,36 @@
 ---
 
 
-## 克劳斯·施瓦布的大重置注定要失败
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2141124/)
+## 新中国联邦和法治基金的救援帐篷成国际红十字会中转站
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2141286/)
 
-作者：加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-50.png)
+#### 【雅典娜快讯】，紧贴时代脉搏 
 
+整理/编辑：小红帽
 
-根据《LifeSiteNews》2月24日报道，自从COVID极权主义出现以来，大重置、克劳斯·施瓦布和他的世界经济论坛（WEF）的脑残粉，占据了对人类威胁的中心舞台。 所有常见的左派角色和达沃斯有关，名人、前国家元首、科学家和各类 “专家 “都加入了一个新的技术官僚生活方式，计划抛弃旧的世界秩序，迎接新的世界秩序。
-
-根据大重置的说法，”你将什么都不拥有，而且很快乐”。 大重置的想法是非常危险的，尽管计划最终会失败，但在失败的同时，已经并将继续造成损害。这些疯狂的计划与现实相矛盾。
-
-曾经有一本官方的《技术官僚》杂志，说的许多话与今天世界经济论坛大重置人群说的一样。他们谈到了新型经济、机器人、不同类型的能源，以及由 “科学程序 “管理的政府系统。
-
-“技术民主 “这个词不仅仅是一个用来描述科技世界或科技世界秩序的词，还是几十年前的一种哲学和运动。该运动背后的思想家希望用 “能源证书 “取代货币，由技术官僚根据数学公式分配给公民。今天，我们称他的想法为 “碳信用”，或类似的东西。
-
-虽然施瓦布的弟子喋喋不休地谈论像机器一样改造人类，但他们肯定会失败，致命的缺陷是，技术官僚根本不知道人类是什么，因此无法治理人类。 你和我不会一无所有，不会永远戴着口罩，你和我不会无休止地把实验性药物注射到我们的身体里。你和我都是人，我们是自由的，我们不会作为那些疯狂的科幻邪教的奴隶而生活。 大重置鼓吹者与圣经中的那些做恶的人没有区别，他们的愚蠢最终使他们走向灭亡，而真理将与理智的人们一起赢得这场正邪之战。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-48.png)图片来源：郭文贵先生盖特视频截图
 
 
+根据3月10日新中国联邦和法治基金前线记者的视频报道，新中国联邦和法治基金的志愿者在波兰梅迪卡（Medyka）搭建的救援大帐篷已被用作国际红十字会中转站。
 
-参考链接：
+据前线记者报道，在新中国联邦和法治基金的大帐篷里边，有国际红十字会的人员，还有波兰的义工。他们把一群从乌克兰边境过来的小孩子和他们的妈妈安置在帐篷里面。由于国际红十字会知道新中国联邦和法治基金所准备的大帐篷条件和设置是最好的，所以把乌克兰过来的家庭安置在帐篷里面，并同时安排车辆把他们带到附近的学校里面。
 
-[https://www.lifesitenews.com/blogs/klaus-schwabs-great-reset-is-doomed-to-fail-heres-why/](https://www.lifesitenews.com/blogs/klaus-schwabs-great-reset-is-doomed-to-fail-heres-why/)
+由于现在难民营里每一个帐篷都非常拥挤，所以国际红十字会要把这些家庭带到附近的学校安置。日后，国际红十字会在转移乌克兰家庭的时候，会把新中国联邦和法治基金的大帐篷作为一个中转站。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-29.png)
+新中国联邦和法治基金的志愿者们没有想到，新中国联邦和法治基金的帐篷竟然在这么短的时间里成了国际红十字会的运输中转站。
 
-编辑/校对/发稿：有莫举名
+据了解，搭建这个帐篷的地方是波兰当地留给红十字会的。但是因为波兰当局迟迟收不到红字会的答复，于是就把这个地方让给了新中国联邦和法治基金搭建这个大帐篷。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-14.jpg)
+资料来源：[郭文贵先生2022年3月11日盖文](https://www.gettr.com/post/pzd3qc9a16)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-49.png)
+发布：tianzhihuan
 
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,45 +2,63 @@
 ---
 
 
-## 2022年3月10日文贵先生盖特视频摘要
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2141135/)
+## 参议员泰德·克鲁兹：是时候结束暴虐的疫苗强制了！
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2141335/)
 
-整理：顺其自然
-编辑：Mttfly
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3.10-2.jpg)图片来源：雅典娜设计组
+参议员泰德·克鲁兹： 华盛顿特区以外的全国所有地区都在醒来。 是时候结束暴虐的疫苗强制了！ 【视频中克鲁兹称赞美国卡车司机的行动代表了民意，疫苗强制违宪，是时候停止了】
 
 
-1）英国一个战友以43美元的价格买了三万个喜币。在场外交易中，他又以110美元的价格买了十万币。
 
-2）在乌克兰救援中，只有新中国联邦（NFSC）搭起了帐篷，燃起了巨大的篝火。还有大量的食物、毛毯。照顾逃离乌克兰的人，他们很多是步行走出来的。
+> The rest of the country outside of Washington, D.C. is waking up.
+>  
+> It’s time to end the tyrannical vaccine mandate! [pic.twitter.com/H9MXuOb9Li](https://t.co/H9MXuOb9Li)
+> — Senator Ted Cruz (@SenTedCruz) [March 11, 2022](https://twitter.com/SenTedCruz/status/1502117538637004842?ref_src=twsrc%5Etfw)
 
-3）欧洲资源太好，福利太好，导致他们都很懒惰。但波兰人、乌克兰人是在欧洲干活最多，最勤劳的。现在他们又成为勤劳、勇敢、团结的象征。
 
-4）从乌克兰回到中国的很多同胞要买高额的机票和交非常贵的隔离费。这就是比爹娘还亲的共产党，共产党就是趁机敲诈。
 
-5）香港股市跌破2万就会完蛋，现在中共花1000多亿救场，但也快突破两万了。现在香港一天几万人感染，香港的警察感染的比普通民众多，这就是报应。想想过去被跳楼、被自杀的孩子，他们的灵魂就真的没有力量吗？
+参议员兰德·保罗： 一家航空公司重新开始关心他们的员工和科学了. . .其他人会跟随吗？ 美国联合航空公司将让未接种疫苗的员工重返工作岗位
 
-6）现在共产党蠢蠢欲动还要放毒，搞世界经济灾难。只要你中共敢行动，这个世界会最终一起跟你算帐。
 
-7）Hpay是在共产党内部出现战争动乱的时候救命的东西，看看乌克兰。
 
-8）现在打了疫苗的人每时每刻都活在恐慌之中，珍惜没打疫苗，还没在战争中的生活吧！
+> One airline resumes caring about their employees and science . . . Will others follow?
+> 
+> United Airlines will let unvaccinated employees return to jobs [https://t.co/6yRt0ftRF9](https://t.co/6yRt0ftRF9)
+> — Rand Paul (@RandPaul) [March 11, 2022](https://twitter.com/RandPaul/status/1502104959290122241?ref_src=twsrc%5Etfw)
 
-9）拜登第一次提出美元也要搞数字化了。一月底的时候，美国说不研究美元数字化，短短几十天就发生了这么大的变化。
 
-整理者评：郭先生的情报是习铁了心要打台湾，那时联军会轰炸国内的军事基地，但老百姓也不能不过日子啊！那时的国内肯定和现在的乌克兰、俄罗斯很像。请问有没有在乌克兰或者俄罗斯的网友，或者有亲朋好友在这两个国家的？比如怎么购物？还有没有网络？借记卡能不能用？知情者可以提供这方面的详细资料，好让国内的同胞做好准备。
 
-资料来源：[3月10号：尊敬的战友们好！世界正处在极度的不稳定，政治．经济都在过山车当中，只有新中国联邦抓住了世界政治经济．货币数字化的前所未有的机会，正在创造一个诚实有信仰．有币无苗的新新人类！](https://www.gettr.com/post/pz8tus184b)
+比尔.格茨： 国家情报总监：乌克兰实验室没有开展生物战（研究）工作，美国的支持仅限于生物安全和安保。 对俄罗斯接管实验室的担忧是基于病原体可能被滥用 【转比尔.格茨华盛顿时报报道：国家情报总监称：乌克兰实验室不涉及生物武器，尽管俄罗斯指控】
 
-发布：tianzhihuan
 
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+> DNI: Ukrainian labs are not conducting biowarfare work and US support was limited to biosafety and security. Concerns about Russian takeover of the labs is based on possible misuse of pathogens [https://t.co/vOGFF5wpmH](https://t.co/vOGFF5wpmH)
+> — Bill Gertz (@BillGertz) [March 10, 2022](https://twitter.com/BillGertz/status/1501973283536838656?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·华尔兹： 普京有使用构陷花招的历史。看看叙利亚，俄罗斯在阿萨德的军队中使用了少量化学制剂，以此作为使用化学武器进行报复的借口。 这可能为普京在乌克兰策划同样的事情奠定了基础。 【附福克斯视频：美国表示：我们在乌克兰没有生化武器实验室】
+
+
+
+> Putin has a history of using false flags. Just look at Syria where Russia used minor chemical agents on Assad's forces as a pretext to retaliate with chemical weapons.
+> 
+> This could be setting the stage for Putin to orchestrate the same in Ukraine. [pic.twitter.com/DOrQzN4cCz](https://t.co/DOrQzN4cCz)
+> — Rep. Mike Waltz (@michaelgwaltz) [March 10, 2022](https://twitter.com/michaelgwaltz/status/1502048472194768897?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 极权主义精神并没有随着冷战的结束而消亡 但现在在亚洲、东欧和中东，它又一次存活于大国内部 【附视频，卢比奥议员在参议院情报听证会上致开幕词】
+
+
+
+> The spirit of totalitarianism did not die with the end of the Cold War 
+> 
+> But now in Asia, Eastern Europe and the Middle East it once again lives inside of great powers
+> 
+>  [pic.twitter.com/KhOf1CCosB](https://t.co/KhOf1CCosB)
+> — Marco Rubio (@marcorubio) [March 10, 2022](https://twitter.com/marcorubio/status/1502027110168285195?ref_src=twsrc%5Etfw)
+
+
 
  
 

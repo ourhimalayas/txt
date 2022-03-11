@@ -2,28 +2,58 @@
 ---
 
 
-## 媒体报道：格哈德·施罗德应乌克兰的要求会见弗拉基米尔·普京
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2139686/)
+## 美英发誓要击败俄罗斯入侵乌克兰， 布林肯“坚信普京必败”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2140027/)
 
-**《政客》报道，格哈德·施罗德在莫斯科与俄罗斯总统弗拉基米尔·普京会面。这是乌克兰人所希望的。**
+**编译: 真北007**
 
-作者：BLZ / Kuri 原文发布于2022年3月10日20:38
-翻译：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-7-1.jpg)图片：前总理格哈德·施罗德祝贺弗拉基米尔·普京就任俄罗斯总统。摄于2018年/dpa/Alexei Druzhinin
+来自FOX NEWS  三月九日的新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/04A5E616-C4DE-4724-9106-DAC133454FBA.jpeg)**图片来源：**https://www.foxnews.com
+战争已进行两周， 普京的部队仍在继续疯狂打击乌克兰， 但是美国和英国周三发誓要击败俄罗斯总统普京。
 
-据媒体《政客》（Politico）的欧洲分支报道，称前总理格哈德·施罗德将在莫斯科与俄罗斯总统弗拉基米尔·普京会面（[Gerhard Schröder in Moskau sein, um sich mit dem russischen Staatspräsidenten Wladimir Putin zu treffen](https://www.politico.eu/article/gerhard-schroder-in-moscow-to-meet-putin-in-ukraine-peace-bid-sources)）根据《图片报》（[Bild-Zeitung soll er](https://www.bild.de/politik/2022/politik/medienbericht-altkanzler-schroeder-trifft-putin-in-moskau-79411314.bild.html) ）的网站报道，他将对乌克兰冲突进行调解。据称，社民党领导层对此行程一无所知。然而，记者Florian Eder写道，施罗德是应乌克兰人的要求动身前往的。
+美国国务卿安东尼·布林肯在与英国外交大臣伊丽莎白举行的联合新闻发布会上对记者说：“我绝对确信普京会失败，无论俄罗斯在乌克兰取得什么样的短期战术成功，但是俄罗斯都将遭受战略失败”。
 
-“消息人士告诉Politico网站，施罗德访问莫斯科之前，他在伊斯坦布尔与一名乌克兰政治家进行了会谈，他是该国与俄罗斯和平谈判代表团的成员，”Politico网站称（[heißt es auf der Website von Politico.](https://www.politico.eu/article/gerhard-schroder-in-moscow-to-meet-putin-in-ukraine-peace-bid-sources)）。 乌克兰人想知道格哈德·施罗德是否能在俄罗斯和乌克兰之间建立一座桥梁。会议将在星期四晚上举行。
+“你可以赢得一场战斗，但这并不意味着你赢得了战争”，他继续说道，“你可以夺取一座城市，但你无法夺取它的人心和意志”。
 
-乌克兰驻柏林大使Andrij Melnyk先生上周已经暗示，施罗德可以充当调解人（[dass Schröder als Vermittler fungieren könnte](https://www.bild.de/politik/ausland/politik-ausland/ukrainischer-botschafter-ueber-ex-kanzler-schroeder-koennte-versuchen-zu-vermitt-79344776.bild.html)）。Politico称，乌克兰议员Rustem Umerov先生已邀请施罗德尝试进行调解。他们将于周一在伊斯坦布尔会面。据称，乌克兰总统泽连斯基亲自恳请施罗德介入。施罗德曾说，他不确定普京是否想要见他，但他会尝试。然后他给普京的一个亲信打电话，问他是否可以来。普京的亲信开了绿灯，并表示周三一架俄罗斯飞机将在伊斯坦布尔接施罗德。
+俄罗斯军队继续推进向乌克兰城市的进攻，安全官员认为他们将试图包围首都基辅，以推翻民选政府并用“傀儡政权”取而代之。
 
-施罗德的妻子So-yeon Schröder-Kim女士在社交媒体上宣布，她经常被问及她的丈夫是否可以调解冲突。 “许多人（……）亲自与我联系，询问我丈夫是否可以与普京先生谈论乌克兰的战争。”（[„Viele Menschen haben sich (…) bei mir persönlich gemeldet, ob mein Mann nicht mit Herrn Putin über den Krieg in der Ukraine reden könnte.“](https://www.waz.de/politik/gerhard-schroeder-frau-ukraine-russland-kritik-instagram-post-id234709823.html)） 除其他外，现在这种敦促可能也导致了施罗德与普京的会面。两人是多年的朋友。
+美国和北约表示，他们的部队不会在乌克兰与俄罗斯进行军事接触，而是通过严厉制裁克里姆林宫，并向基辅提供防御援助。
 
-在乌克兰战争和俄罗斯入侵开始后，前总理格哈德·施罗德因没有与总统弗拉基米尔·普京保持距离，以及放弃与俄罗斯国有公司俄罗斯天然气工业股份公司的业务关系而受到批评。
+美国和英国共同提供了超过 14 亿美元的安全援助，包括地对空导弹防御系统，如标枪、毒刺和 MANPAD 导弹，这些都是肩扛式防空武器。
 
-相关链接：[https://www.berliner-zeitung.de/wochenende/laut-medienberichten-trifft-altkanzler-gerhard-schroeder-in-moskau-wladimir-putin-li.216269](https://www.berliner-zeitung.de/wochenende/laut-medienberichten-trifft-altkanzler-gerhard-schroeder-in-moskau-wladimir-putin-li.216269)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01.jpg)
+乌克兰总统泽连斯基呼吁美国和北约实施禁飞区，禁止俄罗斯飞机打击空中目标。
+
+波兰周二意外宣布，将把所有 MiG-29 战机送往美国位于德国的拉姆施泰因空军基地，乌克兰呼吁尽快交付这些飞机。
+
+但美国国防官员警告说，从位于北约盟国的美国基地部署战机可能会进一步加剧俄罗斯的侵略，英国外交大臣对此表示赞同。
+
+“帮助保护天空的最好方法是通过防空武器”，特拉斯告诉记者，“现实情况是，设立禁飞区将导致北约与俄罗斯直接对抗”。
+
+英国周三宣布，它将向乌克兰派遣防空系统，以帮助应对俄罗斯向乌克兰进行的大量导弹攻击。
+
+但美国和英国都表示，他们的最终目标是继续让俄罗斯的现实经济变得越来越困难，并呼吁印度和海湾国家等国家效仿，放弃与莫斯科的石油关系。
+
+“现在不是放松的时候，普京必须输”，特拉斯说，“我们从历史中知道，侵略者只了解一件事，那就是力量”。
+
+“我们知道，如果我们现在做得不够，世界各地的其他侵略者将更加胆大妄为，而且我们知道，如果普京在乌克兰不被阻止，将对欧洲和全球安全产生可怕的影响”，她补充说。
+
+**点评：独裁者没有好下场，独裁侵略者会更糟，独裁侵略加上人类大屠杀、战争罪，岂有不被消灭之理。普京使用了国际公约禁用的集束炸弹和准核武真空弹，轰炸民居甚至妇幼医院，侵略造成了数百万难民的人道灾难。失道寡助，得道多助，对俄罗斯的是各种大规模的制裁，对乌克兰的是成百上千亿的物资及武器援助，和成千上万战斗者的志愿和雇佣加入。 任何战争，正义的一方必胜，普京将一败涂地，身败名裂。**
+
+**原文链接：**
+
+[US, UK vow to defeat Russia in Ukraine, Blinken ‘absolutely convinced that Putin will fail’](https://www.foxnews.com/politics/us-uk-vow-defeat-russia-putin)
+
+**编辑：LILY**
+
+**发布：歪桑**
+
+20220310
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

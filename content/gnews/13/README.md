@@ -2,53 +2,50 @@
 ---
 
 
-## 一个乌克兰家庭（The Perebyinis family）在俄入侵后破碎
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2141125/)
+## 解读一张漫画，“中共欲再次放毒，普京亲自开火箭去乌克兰”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2141310/)
 
-作者：纽约香草山福音部—qiutian（邱甜）
+2022-03-10
 
+编译和评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/03/C5@UWDYTCX0LS6QES.png)屏幕截图：[https://www.journaldemontreal.com/auteur/yannick-lemay](https://www.journaldemontreal.com/auteur/yannick-lemay) 
+## 普京亲自开火箭去乌克兰
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-57.png)
-周日当天，俄罗斯发射迫击炮降落在基辅附近的一条平民逃生路线上，四名受害者倒在血泊中，他们是Tetiana Perebyinis和她的两个孩子，18岁的Mykyta和9岁的 Alisa，26岁的Anatoly Berezhnyi是教会志愿者。
+漫画显示，在中共病毒的掩护下，普京亲自开火箭去乌克兰…。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6K9T@@TW6WQ18PGP2DWX.png)屏幕截图：[https://m1.quebecormedia.com/emp/emp/Poutine\_missile\_copiefbb39279-afbd-401d-ba6c-204d2b90d6f3\_ORIGINAL.jpg?impolicy=crop-resize&x=0&y=0&w=0&h=0&width=968](https://m1.quebecormedia.com/emp/emp/Poutine_missile_copiefbb39279-afbd-401d-ba6c-204d2b90d6f3_ORIGINAL.jpg?impolicy=crop-resize&amp;x=0&amp;y=0&amp;w=0&amp;h=0&amp;width=968) 
+2022年3月10日文贵在大直播中指出（[https://gnews.org/zh-hans/2139431/](https://gnews.org/zh-hans/2139431/) ，[https://gettr.com/user/miles](https://gettr.com/user/miles) ）：
 
+## 新中国联邦在前线搭起（巨大的）帐篷
 
+俄乌战争当中，只有（NFSC）新中国联邦在前线搭起（巨大的）帐篷，积极救援（照顾）从乌克兰逃出来的人，乌克兰人展现出不一样的“精气神”（勇气，力量）。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1054.png)
+## 被炸得稀烂
 
-Tetiana Perebyinis是一名会计师，她的丈夫 Serhiy 是一名计算机程序员。几周前，也就是在基辅局势恶化之前，Tetiana的公司在波兰租用了房间，并鼓励员工使用这些房间。但Tetiana直到计划撤离患有阿尔茨海默病的母亲之后才想离开。周日早上 7 点左右，Tetiana和她的孩子们开始了逃亡旅程，丈夫Serhiy被困在乌克兰东部，照顾生病的母亲。
+某位在乌克兰生活几十年的朋友向七哥表示需要逃出乌克兰，只因（乌克兰被炸平了）周围被炸得稀烂。
 
-当迫击炮弹落下时，一队时报记者恰好在附近，其中一位名叫Lynsey Addario的记者拍下了这家人的照片。“我想，你知道，拍照是不尊重的，但我必须拍照——这是战争罪。”Lynsey告诉哥伦比亚广播公司晚间新闻， “我认为让世界各地的人们看到这些图像真的很重要。”
+**相信报应吧**
 
-Tetiana Perebyinis 是一名会计师，她的丈夫 Serhiy 是一名计算机程序员。几周前，在基辅局势恶化之前，Tetiana 的公司在波兰租用了房间，并鼓励员工使用这些房间。但 Tetiana 不想离开，直到她计划撤离患有阿尔茨海默病的母亲。最后，周日早上 7 点左右，Tetiana和她的孩子们开始了他们的逃亡旅程，而Serhiy则被困在乌克兰东部，照顾生病的母亲。
+香港经济一塌糊涂，中共出动千亿元救场，股市即将跌破二万点。香港警察感染病毒人数（之）多，是对镇压“香港运动”的报应（相信报应吧）。
 
-Tetiana Perebyinis 是一名会计师，她的丈夫 Serhiy 是一名计算机程序员。几周前，在基辅局势恶化之前，Tetiana 的公司在波兰租用了房间，并鼓励员工使用这些房间。但 Tetiana 不想离开，直到她计划撤离患有阿尔茨海默病的母亲。最后，周日早上 7 点左右，Tetiana和她的孩子们开始了他们的逃亡旅程，而Serhiy则被困在乌克兰东部，照顾生病的母亲。
+## 中共蠢蠢欲动欲再次放毒
 
-悲痛中Serhiy将他的妻子和孩子们安葬在乌克兰西部后，自己又回到了伊尔平帮助其他人撤离。
+（现在）中共蠢蠢欲动欲再次放毒，（想）造成世界经济灾难。中共（的作恶）将被全球（全世界）算账。
 
-参考来源：
+## 评论：
 
-[Russia’s civilian attacks](https://www.nytimes.com/2022/03/10/briefing/russia-civilian-attacks-ukraine-war.html)
+普京，这个疯子，悍然攻打乌克兰。另一个疯子，“习太阳”妄想再次放毒全世界。普京和“习太阳”将“被全球（全世界）算账”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-29.jpg)
+参考资料
 
-审核/编辑/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+1. [La caricature d’Ygreck](https://www.journaldemontreal.com/2022/02/28/la-caricature-dygreck)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-58.png)
+编辑：LILY
+发布：肥鯮
 
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
