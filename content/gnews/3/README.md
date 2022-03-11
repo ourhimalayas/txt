@@ -2,25 +2,25 @@
 ---
 
 
-## 拜登行政命令加快数字货币应用
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2146782/)
+## 法治基金救援成为媒体争相报道焦点
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2146844/)
 
-采编撰稿： 加拿大温哥华杨帆农场 – Spirit
+采编撰稿： 加拿大温哥华杨帆农场 – 晨熹
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-22-2.jpg)图片来源：forbes
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-32-1.jpg)图片来源：gettr
 
 
-据《福布斯》3月9日报道，为推动新兴数字金融系统的应用，美国总统拜登当天颁布行政令，责成联邦机构尽快为潜在的数字货币市场制定相关规则和政策。
+据3月10日盖特直播报道：日前，法治基金救援团队在乌波边境口岸麦迪卡救援现场搭建起了一个最大、设备和服务最全的帐篷，以接纳严寒天气下仍滞留在当地的难民。
 
-报道称，美国政府将采取一系列“维持数字金融市场稳定和保护数字货币投资者”的措施，以降低该市场的风险并充分利用其潜在利益，并紧急研究和开发潜在的中央银行数字货币。
+据悉，帐篷内除设置桌椅，免费提供食品、饮用水和御寒用毛毯外，还加设了三个24小时燃气取暖炉，以保证被救助者能在温暖的帐篷里度过整个寒冷的夜晚。
 
-此外，该行政令还要求金融监督委员会识别和减轻数字货币带来的任何系统性风险，以协助政府机构将数字资产技术纳入其政策制定和操作方法之中。并将同时与财政部合作，起草关于已被甄选的数字货币及其支付系统未来发展和应用的报告。
+难民们的争相涌入也让该新搭建的大帐篷成为了救援现场各大媒体争相报道的焦点，也使法治基金和新中国联邦迅速成为各界最想深入了解和采访的对象。人们对所有救援团队成员所展现出来的友善以及强大的组织力和行动力赞不绝口。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文明(添草灭共)
 
-新闻来源：[https://www.forbes.com/sites/jonathanponciano/2022/03/09/bidens-crypto-executive-order-puts-urgency-on-digital-dollar-research-and-fuels-bitcoin-ether-prices/?sh=14f423c33bbd](https://www.forbes.com/sites/jonathanponciano/2022/03/09/bidens-crypto-executive-order-puts-urgency-on-digital-dollar-research-and-fuels-bitcoin-ether-prices/?sh=14f423c33bbd)
+新闻来源： [https://gettr.com/streaming/pywfu457e9](https://gettr.com/streaming/pywfu457e9)
 
  
 
