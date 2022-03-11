@@ -2,46 +2,71 @@
 ---
 
 
-## 台湾部长称中共国战争对各方都是一场灾难
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2140354/)
+## 拜登总统：“普京的战争已经在油价上伤害了美国家庭……我将尽我所能，尽量减少普京造成在国内价格上涨后果”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2140402/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/台湾-2.jpg)
-3月10日据美联社报导，台湾国防部长周四表示，与威胁要入侵台湾的中共国发生冲突，无论结果如何，都将是各方的灾难。
+Joe Biden (the U.S. President)
+乔·拜登（美国总统
 
-中共国在很大程度上支持俄罗斯入侵乌克兰，这场冲突与北京对台湾的态度相呼应。
+the decision today is not without cost here at home
+今天的决定在国内并非没有代价
 
-台湾国防部长邱国正告诉记者：
+Putin’s war is already hurting American families at the gas pump
+普京的战争已经在油价上伤害了美国家庭
 
-“没有人想要战争，”“这真的必须彻底考虑。”“如果你真的开战，那对所有人来说都是灾难性的，”
+Since Putin began his military buildup on Ukrainian borders
+自从普京开始在乌克兰边境进行军事集结以来
 
-邱还表示。台湾防务机构“观望、倾听，但我们闭口不谈。我们正在关注事态发展并做好准备，但我们不会公开讨论或辩论。”
+just since then, the price of the gas at the pump in America went up 75 cents
+从那时起，美国的汽油价格上涨了75美分
 
-新中国联邦郭文贵先生在3月9日大直播中提到，从3月底到4月份，会看到在中东，整个能源和战争中的更凶险的事情发生，然后是台湾！世界的最残酷的时刻还没有开始，包括整个的俄乌战争。中国共产党绑架的中国人只有两条路：一个是与俄翻脸，它翻不起，习会被内部做掉；与美国翻脸，它翻不起。那它怎么办？文贵先生说，“只有放毒，发动另外一场能源和区域性战争，大家看着中东吧，然后看台湾吧！”中共即将发起更凶险的战争！
+And with this action is going to go up further
+并且随着这个行动将进一步上升
 
-希望台湾同胞可以在文贵先生对于台湾提出的多次警示信息中提前做好一切准备。
+I’m going to do everything I can to minimize Putin’s price hike here at home
+我将尽我所能减少普京造成的在国内的物价上涨
 
-[【援引连结】](https://apnews.com/article/russia-ukraine-europe-china-beijing-legislature-8b2cc1032dcb6c88384519eb58b5841c)
+In coordination with our partners
+并与我们的合作伙伴协调
 
-**推出问题，敲出真相，爆料在路上！**
+we’ve already announced that we’re releasing 60 million barrels of oil from our joint oil reserves
+我们已经宣布，我们将从我们的联合石油储备中释放6000万桶石油
 
-**请关注和订阅我们的以下账号：**
+Half of that 30 billion, million excuse me
+那些的一半300亿，3000万，抱歉
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+is coming from the United States
+是来自美国的
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+And we’re taking steps to ensure the reliable supply of global energy
+我们正在采取措施确保全球能源的可靠供应
 
-**玫瑰看新闻YOUTUBE账号**：
+are also going to keep working with every tool at our disposal
+还将继续使用我们可以使用的所有工具
 
-**玫瑰看新闻**
+protect American families and businesses
+保护美国家庭和企业
 
-**黑森林的故事**
+原视频链接[https://twitter.com/cspan/status/1501237745863299080?s=24](https://twitter.com/cspan/status/1501237745863299080?s=24)
 
-**ROSE NEWS**
+Date:03/08/2022
+原视频标题:President Biden: ” Putin’s war is already hurting American families at the gas pump…I’m going to do everything I can to minimize Putin’s price hike here at home.”
+拜登总统：“普京的战争已经在油价上伤害了美国家庭……我将尽我所能，尽量减少普京造成的在国内的价格上涨的后果”
+原视频日期：2022/03/08
+原视频链接https://twitter.com/cspan/status/1501237745863299080?s=24
+任务编号：KE446（3959）
+视频时间段 : 0:00-0:48
 
-**【玫瑰看新闻】推特账号**：
+英听校: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 –
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**ROSE NEWS (@ROSENEWS4)A**
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

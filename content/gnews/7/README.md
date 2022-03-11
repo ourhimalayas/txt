@@ -2,71 +2,34 @@
 ---
 
 
-## 拜登总统：“普京的战争已经在油价上伤害了美国家庭……我将尽我所能，尽量减少普京造成在国内价格上涨后果”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2140402/)
+## 新中国联邦救援行动感动了多伦多机场和航空公司
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/2140485/)
 
-Joe Biden (the U.S. President)
-乔·拜登（美国总统
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1050-edited.png)
+视同为中共国的加拿大省，在配合中共打压新中国联邦的恶行是罄竹难书的。新中国联邦第三批乌克兰救援人员加拿大温哥华地区战友被无情地拒绝登机，彰显加拿大遭中共渗透程度之深的同时，也给数千里之外多伦多地区等待登机的救援战友带来了几丝不安。
 
-the decision today is not without cost here at home
-今天的决定在国内并非没有代价
+一旦因无疫苗护照不能登机，退票、重新购票的经济损失、时间成本，对实力雄厚的新中国联邦人来说不在话下，只是不能为早一天到达救援现场，多救出一位战火蹂躏下的难民而心急如焚。在责任心、担当，以及义无反顾，勇往直前的心态驱使下，卢比肯、翌珊、哈雷等负责人在上级领导鼓励下，决定带13名勇士“闯关”。
 
-Putin’s war is already hurting American families at the gas pump
-普京的战争已经在油价上伤害了美国家庭
+卢比肯与哈雷商定，以“硬磨”、“软泡”、“常规”策略进行试闯。哈雷、Kent、玲兰等去不同的值机柜台，卢比肯外围游弋观察动向，辨别值机负责人。从蒙特利尔一早赶赴多伦多的翌珊等，留在前多伦多农场办公室作为后续梯队。
 
-Since Putin began his military buildup on Ukrainian borders
-自从普京开始在乌克兰边境进行军事集结以来
+进入卢比肯视野的情况很不乐观，值机柜台的空乘人员大都在摇头，甚至出现了争执的拒绝姿态……到了出击的时候了！此时，卢比肯也认准了谁是值机负责人（后来知道，她叫Ivana），果断上前，进一步说明来历，结合介绍信展示新中国联邦。流利的语言，真挚的倾诉，难以拒绝的表白，Ivana开始犹豫，卢比肯、哈雷乘势动之以情，讲述了新中国联邦在乌克兰救援行动，如何救出了96名孩子等等，Ivana仿佛听到了轰鸣的战机、呼啸导弹、隆隆的坦克，以及婴儿的哭叫、老人的悲嗥，她再也不能犹豫了，一边安抚着强忍泪水的铮铮男儿卢比肯、哈雷，一边答应马上请示汇报…..
 
-just since then, the price of the gas at the pump in America went up 75 cents
-从那时起，美国的汽油价格上涨了75美分
+事已至此，闯关成功应该是八九不离十的事情了。
 
-And with this action is going to go up further
-并且随着这个行动将进一步上升
+果不其然，不到十分钟，Ivana传达了上级的指示，放行！
 
-I’m going to do everything I can to minimize Putin’s price hike here at home
-我将尽我所能减少普京造成的在国内的物价上涨
+登机前，Ivana很高兴地与多伦多地区的乌克兰救援战友一起合影留念。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-11_02-38-06.jpg)
+翌珊得到消息后兴奋不已，第一时间转告给了前来相送的、久别的多伦多地区的战友，包括为大家准备好了茶果饮料、备餐零食的文枫，专程赶来的Jackie、千叶草大姐、曝二代一家、坐看云起时、UCOOL、一拳、游子吟、文昌魚、北方的太阳、约瑟、文晓等若干战友。
 
-In coordination with our partners
-并与我们的合作伙伴协调
+一拳、游子吟亲赴机场，为出发的战友送行。还要特别感谢从蒙特利尔开车送战友到多伦多的Frank先生和崔先生，他们放下手中的工作，驱车来回1千多公里，当天返回，以另一种方式支持了参加乌克兰救援的战友。
 
-we’ve already announced that we’re releasing 60 million barrels of oil from our joint oil reserves
-我们已经宣布，我们将从我们的联合石油储备中释放6000万桶石油
+爆料革命考验人，爆料革命凝聚人，新中国联邦人正在为同一个灭共目标，紧跟文贵先生，团结一心地前进着。
 
-Half of that 30 billion, million excuse me
-那些的一半300亿，3000万，抱歉
+战友们加油！
 
-is coming from the United States
-是来自美国的
-
-And we’re taking steps to ensure the reliable supply of global energy
-我们正在采取措施确保全球能源的可靠供应
-
-are also going to keep working with every tool at our disposal
-还将继续使用我们可以使用的所有工具
-
-protect American families and businesses
-保护美国家庭和企业
-
-原视频链接[https://twitter.com/cspan/status/1501237745863299080?s=24](https://twitter.com/cspan/status/1501237745863299080?s=24)
-
-Date:03/08/2022
-原视频标题:President Biden: ” Putin’s war is already hurting American families at the gas pump…I’m going to do everything I can to minimize Putin’s price hike here at home.”
-拜登总统：“普京的战争已经在油价上伤害了美国家庭……我将尽我所能，尽量减少普京造成的在国内的价格上涨的后果”
-原视频日期：2022/03/08
-原视频链接https://twitter.com/cspan/status/1501237745863299080?s=24
-任务编号：KE446（3959）
-视频时间段 : 0:00-0:48
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 –
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**华盛顿DC农场 望七星
+编辑发布 银河**
 
  
 

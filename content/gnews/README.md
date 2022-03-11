@@ -15,83 +15,83 @@
 
 ---
 
-### [细数中共乌克兰撤侨谎言，尽显新中国联邦行动力量（一）](/content/gnews/1/README.md)
+### [【 #G时新闻 】美国市场禁止进口俄罗斯石油产品](/content/gnews/1/README.md)
+ ` G-时新闻`
+
+### [细数中共乌克兰撤侨谎言，尽显新中国联邦行动力量（二）](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国正在调查和记录俄罗斯袭击乌克兰平民的报告，这些袭击可能构成战争罪](/content/gnews/2/README.md)
+### [有声|《铁锁梦》“三八”妇女节的特别礼物](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [西恩·潘：美国应该支持乌克兰人和泽连斯基总统](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新中国联邦救援行动感动了多伦多机场和航空公司](/content/gnews/3/README.md)
+### [细数中共乌克兰撤侨谎言，尽显新中国联邦行动力量（一）](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国正在调查和记录俄罗斯袭击乌克兰平民的报告，这些袭击可能构成战争罪](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [新中国联邦救援行动感动了多伦多机场和航空公司](/content/gnews/7/README.md)
  ` 华盛顿DC-Russian`
 
-### [全球疫情疫苗数据更新（澳洲新增病例可能再次跃增）](/content/gnews/4/README.md)
+### [全球疫情疫苗数据更新（澳洲新增病例可能再次跃增）](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [3/9/2022 文贵直播：《铁锁梦》是唐平和威廉王的人生巨作，这首歌对中共的杀伤力远超导弹，它为中国女性打开了阳光之门，体现出了社交媒体和音乐的巨大力量](/content/gnews/5/README.md)
+### [3/9/2022 文贵直播：《铁锁梦》是唐平和威廉王的人生巨作，这首歌对中共的杀伤力远超导弹，它为中国女性打开了阳光之门，体现出了社交媒体和音乐的巨大力量](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [英国防部证实俄军在乌克兰使用“真空弹” 最严重会让人体蒸发](/content/gnews/6/README.md)
- ` 【🌹玫瑰新闻】`
+### [2022年3月9日《文贵大直播》全文字版](/content/gnews/10/README.md)
+ ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [拜登总统：“普京的战争已经在油价上伤害了美国家庭……我将尽我所能，尽量减少普京造成在国内价格上涨后果”](/content/gnews/7/README.md)
+### [拜登总统：“普京的战争已经在油价上伤害了美国家庭……我将尽我所能，尽量减少普京造成在国内价格上涨后果”](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [惊喜](/content/gnews/8/README.md)
- ` 纽约香草山MOS02`
-
-### [大直播后记：中共的疯狂和疫苗灾难的可怕](/content/gnews/9/README.md)
+### [大直播后记：中共的疯狂和疫苗灾难的可怕](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [3/9/2022 文贵直播：最恐怖的将是疫苗灾难；俄乌之战的本质是美中的战争，中国人是战争中的牺牲品](/content/gnews/10/README.md)
+### [3/9/2022 文贵直播：最恐怖的将是疫苗灾难；俄乌之战的本质是美中的战争，中国人是战争中的牺牲品](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [台湾部长称中共国战争对各方都是一场灾难](/content/gnews/11/README.md)
+### [台湾部长称中共国战争对各方都是一场灾难](/content/gnews/14/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [拜登签署关于加密货币的命令因其使用的爆炸式增长](/content/gnews/12/README.md)
+### [拜登签署关于加密货币的命令因其使用的爆炸式增长](/content/gnews/15/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [大直播后记：共产党将会真正地开始行动](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [樱花数据分析┃加拿大安省：两针和三针接种者防感染有效率为“负值”](/content/gnews/14/README.md)
+### [樱花数据分析┃加拿大安省：两针和三针接种者防感染有效率为“负值”](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [《铁链梦》唤醒同胞别再冷漠懦弱](/content/gnews/15/README.md)
+### [《铁链梦》唤醒同胞别再冷漠懦弱](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [3/10/2022 文贵盖特：拜登总统首次提出数字化美元意味着什么？无苗有币的新中国联邦人要和冲在前线的战友们一样向世界展示有尊严、和平、守法、守信的新中国人形象，共产党不能代表中国人](/content/gnews/16/README.md)
- ` 秘密翻译组-北美组`
-
-### [超过8万乌克兰人来到德国寻求庇护](/content/gnews/17/README.md)
+### [超过8万乌克兰人来到德国寻求庇护](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦乌克兰前线救援直击中共虚假撤侨](/content/gnews/18/README.md)
+### [新中国联邦乌克兰前线救援直击中共虚假撤侨](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃币安赵长鹏之后,“币圈大佬”孙宇晨涉多项违法被美国FBI调查](/content/gnews/19/README.md)
+### [中日财经爆┃币安赵长鹏之后,“币圈大佬”孙宇晨涉多项违法被美国FBI调查](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄乌外长在土耳其首次举行会谈无果](/content/gnews/20/README.md)
+### [俄乌外长在土耳其首次举行会谈无果](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌驻德大使批德国背后捅刀，呼吁北约设禁飞区](/content/gnews/21/README.md)
+### [乌驻德大使批德国背后捅刀，呼吁北约设禁飞区](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国版“北约东扩”论？王毅批美国搞“印太版北约”](/content/gnews/22/README.md)
+### [中共国版“北约东扩”论？王毅批美国搞“印太版北约”](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [辉瑞疫苗能被美国高法判决背后的沼泽力量](/content/gnews/23/README.md)
+### [辉瑞疫苗能被美国高法判决背后的沼泽力量](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [受俄罗斯军队攻击影响，人道救援通道仅成功救出一部分](/content/gnews/24/README.md)
+### [受俄罗斯军队攻击影响，人道救援通道仅成功救出一部分](/content/gnews/25/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美英发誓要击败俄罗斯入侵乌克兰， 布林肯“坚信普京必败”](/content/gnews/25/README.md)
+### [美英发誓要击败俄罗斯入侵乌克兰， 布林肯“坚信普京必败”](/content/gnews/26/README.md)
  ` 温哥华圆成农场🇨🇦`
-
-### [有声|新中国联邦的乌克兰救援行动 吸引世界媒体的关注](/content/gnews/26/README.md)
- ` MOSREC`
 
 ### [俄罗斯承认在乌克兰使用了温压武器](/content/gnews/27/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`

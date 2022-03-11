@@ -2,84 +2,45 @@
 ---
 
 
-## 美国正在调查和记录俄罗斯袭击乌克兰平民的报告，这些袭击可能构成战争罪
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2140486/)
+## 细数中共乌克兰撤侨谎言，尽显新中国联邦行动力量（二）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2140624/)
 
-Jake Tapper (CNN anchor)
-杰克·塔珀（CNN 主播）
+编者：WLQF
 
-The International Criminal Court is opening an investigation into Russian war crimes
-国际刑事法院正在对俄罗斯战争罪行展开调查
+【接上篇：[细数中共乌克兰撤侨谎言，尽显新中国联邦行动力量（一）](https://gnews.org/zh-hans/2140503/)】
 
-The US embassy said it’s a war crime to attack a nuclear power plant
-美国大使馆称袭击核电站是战争罪
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1050-edited.png)
 
-They tweeted that out the US Embassy in Kyiv
-在美国驻基辅的大使馆发推文说
+**3.****俄乌战争全面爆发后，中共迟迟无任何撤侨与救助在乌同胞之行动，仍忙于虚假政治宣传，严重威胁在乌中国同胞的生命安全。在此危难之际，文贵先生领衔的新中国联邦2022年2月26日公布了乌克兰救援方案并全面展开国际人道救援大行动**
 
-but then the State Department told other embassies around the world to not retweet it
-但随后国务院告诉世界各地的其他大使馆不要转发它
+2022年2月26日，文贵先生举行了《关于救援在乌克兰中国同胞和美国友人方案》的紧急直播。文贵先生在直播中表示，中共只顾自己在乌克兰的家人和私生子，丝毫没有进行撤侨和任何救助普通华人的行动。新中国联邦将和联合国救援组织合作，在法治基金和法治社会的主导下优先救助新中国联邦战友的家人和美国朋友，并尽可能救助在乌克兰的所有国家的人。根据新中国联邦发布的公告显示，新中国联邦将无偿安排专机协助有需要的人士撤离到安全中转国，并提供30天以内的免费食宿，对符合条件的人士将派专机将其送往美、加、奥、新、欧盟等国。救援对象包括在乌克兰的新中国联邦战友及家人、华人同胞、美国及各国友人。
 
-which is a confusing step
-这是一个令人困惑的步骤
+新中国联邦（英文全称The New Federal State of China，缩写NFSC）是为迎接没有中国共产党的时代所筹划的，新的全球华人社会组织形式。北京时间2020年6月4日上午7时37分，纽约当地时间6月3日下午7时37分，新中国联邦在美国纽约市成立。灭共之后，新中国联邦将参照西方民主法治体系和相应国际法，在国际机构和喜马拉雅监督机构的共同监督下，制定宪法 ，建立三权分立的政体，“一人一票” 产生新政府。
 
-has the US seen evidence that Russia is committing war crimes or not?
-美国有没有看到俄罗斯犯下战争罪的证据？
+在新中国联邦公布人道主义救援行动后，便立即得到了社会的广泛响应与关注。在面对新中国联邦采取的实际行动面前，中共坐不住了。随即，中共驻乌大使范先荣于2022年2月27日作出了回应，以视频的形式假惺惺地致信全体在乌中国同胞。在视频致信中，范先荣表示，当前乌克兰安全形势确实困难了，且每天还在出现新的情况，他们与在乌同胞一样也非常害怕。与此同时，范先荣还表示，目前的安全条件还不具备，建议等安全了再组织撤侨。笔者相信，任何人看到或听到中共驻乌大使范先荣的发言，内心都会充满愤怒，久久不会平静。通过这件事情，我们14亿同胞应该也必须看清楚认识到，中国共产党是一个彻头彻尾的骗子政党。在同胞需要救助的时候，他们只会选择欺骗与退缩，选择谎言与懦弱。中国共产党欺骗了中国人民70多年，同胞们，该我们醒醒了。
 
-Antony Blinken (Secretary of State)
-安东尼·布林肯（国务卿）
+**4.****新中国联邦在2022年2月26日起全面展开国际人道救援行动之际，中共又一次上演了世界乱源的角色，不仅传播虚假信息阻止新中国联邦的救援行动，还以撤离在乌官员家人及情报人员为名谎称官方撤侨，公然欺骗中国14亿人民**
 
-Jake, we’ve seen very credible reports of deliberate attacks on civilians
-杰克，我们已经看到了关于蓄意袭击平民的非常可信的报道
+新中国联邦为应对乌克兰当前紧张局势发起的国际人道救援行动在2022年2月26日正式展开后，中共内部便立即召开会议。会议内部要求想尽一切办法阻止新中国联邦开展的救援计划。我们可以清晰地看到，与为善相比，中共作恶的速度可见一斑。2022年2月28日，中共乌克兰留学中心微信公众号上发布一则所谓的紧急通知。在该通知中，中共污蔑新中国联邦为境外反华组织，并撒谎称新中国联邦开展的救援行动旨在搜集乌克兰华人的个人信息。这就是中共的邪恶，它不仅不想方设法积极营救在乌克兰战区随时面临生命危险的中国同胞，而且还想尽一切之办法，动用一切之力量阻止其他任何机构去援助他们。在战争面前，在保护同胞的生命面前，人权高于一切。但中共在这样的时刻还在以政治为借口绑架乌克兰的中国同胞，使他们处于极度危险之中，这是在赤裸裸的犯罪，他们完全不把在乌中国同胞放在眼里。
 
-which would constitute a war crime
-这将构成战争罪
+中共驻乌克兰大使馆2月28日晚声称，已经“组织”首批400名中国留学生从乌克兰的奥德萨撤离，而且当天也将有二百多名中国留学生从乌克兰首都基辅撤离。中共的谎言无处不在，连这样的信息也都在撒谎，简直是天理不容。那么事实上，目前中共在乌克兰的所有救援行动只是安排了两台大客车，大概有60多人，其中大多数都是中共官员的家人以及中共在乌情报人员。更荒唐的是，中共驻乌克兰使馆在2022年3月5日宣布，绝大部分在乌中国人已经撤离，已基本完成撤侨工作。但根据文贵先生在2022年3月6日直播中的爆料表示，截止目前，乌克兰至少还有3万名中国人滞留，而中共已经完全抛弃了他们，尤其是那些在乌打工的中国工人境遇更加糟糕。
 
-We’ve seen very credible reports about the the use of certain weapons
-我们已经看到关于使用某些武器的非常可信的报告
+相反我们再看真正服务于中国人民的新中国联邦此次开展的国际人道救援行动，以下三个唯一便可以说明一切问题。
 
-And what we’re doing right now is documenting all of this, putting it all together
-我们现在正在做的是记录所有这些，将它们放在一起
+（1）在俄乌战争期间，全球唯一一个进入乌克兰战区救人的中国人的组织是新中国联邦。
 
-looking at it and making sure that as people and the appropriate organizations
-查看它并确保作为人和适当的组织
+（2）新中国联邦是中国人中唯一一个，没有任何立场，没有任何政治诉求，去救助中国人、乌克兰人和世界各国友人的组织。
 
-and institutions investigate whether war crimes have been or are being committed
-和机构调查是否已经或正在犯下战争罪
+（3）真正在乌克兰内部救出很多中国人和外国人的组织只有新中国联邦。
 
-that we can support, whatever whatever they’re doing
-我们可以支持，无论这些机构在做什么
+【接下篇：[细数中共乌克兰撤侨谎言，尽显新中国联邦行动力量（三）](https://gnews.org/zh-hans/2137536/)】
 
-So right now, we’re looking at these reports
-所以现在，我们正在查看这些报告
+* * *
 
-They’re very credible, and we’re documenting everything
-他们非常可信，我们正在记录一切
-
-原视频链接[https://twitter.com/cnn/status/1500475484840288257?s=24](https://twitter.com/cnn/status/1500475484840288257?s=24)
-
-Date:03/06/2022
-原视频标题:Secretary of State Antony Blinken tells CNN’s Jake Tapper the US is investigating and documenting reports of Russian attacks on Ukrainian civilians that could constitute war crimes
-美国国务卿安东尼·布林肯告诉美国有线电视新闻网的杰克·塔珀，美国正在调查和记录俄罗斯袭击乌克兰平民的报告，这些袭击可能构成战争罪
-原视频日期：2022/03/06
-
-原视频链接[https://twitter.com/cnn/status/1500475484840288257?s=24](https://twitter.com/cnn/status/1500475484840288257?s=24)
-任务编号：KE442（3944）
-视频时间段 : 0:00-1:02
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
-
+审核：阿伯塔
+校对：信心满满
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-6.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

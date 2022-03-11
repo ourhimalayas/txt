@@ -2,55 +2,131 @@
 ---
 
 
-## 全球疫情疫苗数据更新（澳洲新增病例可能再次跃增）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2140434/)
+## 西恩·潘：美国应该支持乌克兰人和泽连斯基总统
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2140525/)
 
-整理：枳实
-美工：精灵蓝
+Sean Penn (American actor)
+西恩·潘 (美国演员)
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/image-731.png)图片：雅典娜农场设计组 精灵蓝
+Moved by him and terrified for him and for Ukraine
+被他感动并为他和乌克兰担忧
 
+Anderson Cooper (American broadcaster)
+安德森·库珀（美国广播员）
 
-雅典娜疫情更新（2022年 3月9日）
+I have never been in a country at war in which the people are so united，so determined
+我从未到过一个人民如此团结, 如此坚定的在战争中的国家
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+and again, I mean，that word has become a cliche here the determination
+再说一次，我的意思是，这个词在这里已成为陈词滥调
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-113.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-59.png)
-**疫情新闻**
+but the resolve here, elderly women, elderly men, children, everybody
+但是这里的决心，老年妇女，老年男子，儿童，每个人
 
-继上周南澳警察的疫苗强制取消之后，近日[澳大利亚昆士兰的救生员的疫苗强制也取消了](https://www.couriermail.com.au/news/queensland/surf-life-saving-queensland-dumps-covid19-jab-mandate/news-story/13e48a63d123039e1a703af9156976b9)，未接种疫苗的救生员得以重返工作岗位。
+the resolve to not only fight now
+决心不仅现在战斗
 
-疫苗毒针广泛注射之后，突发猝死的新闻越来越多。[工党联邦参议员Kimberley Kitching今日突发心脏病死亡，年仅52岁](https://www.news.com.au/national/politics/labor-senator-kimberley-kitching-dies-at-52-from-heart-attack/news-story/bf3b22aedeb9363610513bca2c4d3b34)。
+but fight for however long and whatever happens
+但无论发生什么，战斗多久
 
-澳大利亚的疫情正在复燃。新南威尔士州卫生部长布拉德·哈扎德在新南威尔士州预算预估听证会上表示，[新南威尔士州大学的初步数据表明，新增病例可能在六周内“增加一倍以上”。](https://www.9news.com.au/national/coronavirus-australia-updates-covid-19-cases-spike-in-nsw-numbers-around-australia/e9f6f97f-1ff7-41a3-8228-0fda8bbc8bb6) 他说 Omicron 的 BA.2 子变体被认为比 BA.1 谱系更具传染性，正在成为占主导地位的 Omicron 变体。
+Sean Penn
+西恩·潘
 
-[2022年3月9日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月9日改进.pdf)
+Yeah, there’s no question in my mind
+是的，我没有怀疑过
 
-数据来源：
+that this is not going to end soon no matter what
+无论如何，这不会很快结束
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+because you will have a country of extraordinary insurgencies if Putin is successful in this
+因为如果普京在这方面取得成功，你将拥有一个异常叛乱的国家
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+There is no sign that Mr. Putin is looking for an off round
+没有迹象表明普京先生正在寻找停战
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+And one of the greatest feeling that I have, you know
+我最大的感觉之一，你知道
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+I’m I’m not a war correspondent
+我不是战地记者
 
-[covidlive.com.au](https://covidlive.com.au/)
+But I have traveled in conflict zones, and done some reporting
+但我去过冲突地区，做过一些报道
 
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+And I remember being in Tripoli and Benghazi during the NATO attack
+我记得在北约袭击期间在的黎波里和班加西
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+and the freedom fighters fighting
+和自由战士并肩作战
 
-发布：tianzhihuan
+as well as against the Qaddafi forces
+以及反对卡扎菲部队
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+And it was sketchy, but this was ominous
+这是粗略的，但这是不祥的
+
+It was ominous because it was so heartbreaking in the ripple effects
+这是不祥的，因为它在连锁反应中是如此令人心碎
+
+it’s going to have around the world
+它将在世界各地
+
+where they were this incredible symbol of democracy, of belief and free dreaming
+他们是民主、信仰和自由梦想的不可思议的象征
+
+is being assaulted
+正在被践踏
+
+And, and they’re fighting for their lives
+他们正在为自己的生命而战
+
+and they’re going to continue to fight for their lives
+他们将继续为自己的生命而战
+
+And I start to feel that we as Americans are plummeting off a cliff
+我开始觉得我们作为美国人正在从悬崖上一落千丈
+
+a top which is our flag that represents all of our dreams and the best of our history
+悬崖的顶端是我们的国旗，它代表着我们所有的梦想和我们最好的历史
+
+And that we’re plummeting where it’s going to go out of sight
+并且我们正在直线下降，它将消失在视线之外
+
+I don’t know the answers
+我不知道答案
+
+I don’t know if no fly zones will create a nuclear war
+我不知道禁飞行区会不会引发核战争
+
+I do know that we have to invest everything
+我知道我们必须投入所有的一切
+
+that we have to support the Ukrainian people and support President Zelensky
+我们必须支持乌克兰人民并支持泽连斯基总统
+
+or I do not think we will have a legitimate memory of what America hoped to be
+或者我认为我们不会对美国所希望的人有一个合理的记忆
+
+原视频链接[https://twitter.com/sophia36982957/status/1500242015233220614?s=24](https://twitter.com/sophia36982957/status/1500242015233220614?s=24)
+
+Date:03/08/2022
+原视频标题:Sean Penn：America should support the Ukrainians and President Zelensky
+西恩·潘：美国应该支持乌克兰人和泽连斯基总统
+原视频日期：2022/03/06
+原视频链接https://twitter.com/sophia36982957/status/1500242015233220614?s=24
+任务编号：KE444（3936）
+视频时间段 : 0:00-2:20
+
+英听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
