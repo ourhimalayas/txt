@@ -2,26 +2,37 @@
 ---
 
 
-## 樱花FM|138名滞留乌克兰留学生求助：我们迫切想要回家！
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2141623/)
+## 52岁参议员金伯利•基钦突然去世，其去年接种两剂疫苗
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2141763/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/zww_7v1kA7f4TIPMeh20HThYRnZem0mNDwnh-bf1Mi7gytHEUHukniJ81LkRPmcRaWLbYAdUWw3EpHloaV7kFVkgOPdLy5IBUyopE6Tl1uYAd27bD_GWO5EOOBrbIHu-_ElHTfmF)
-3月5号，微信“天涯笔客”公众号发布一篇文章关于138名留学生滞留乌克兰等待救援的信息。
+#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
 
-一个网名叫@兰亭序的留学生从乌克兰发布救助信息称，“希望大家关心一下乌克兰苏梅地区一百多名留学生，附近火车站被炸，桥也被炸，物资也撑不了多久，目前一直无法撤离，感谢大家了。我们目前统计还有138人。未从乌克兰苏梅地区撤出，请有关部门协调。让我们回家，我们都是留学生。”
+编辑/整理：小鱼儿
 
-还有一个网名叫@提壶续水的留学生发来求助信息，“我们是滞留在苏梅的留学生，从24日乌克兰爆发战争开始，我们就一直按照使馆和学校的一切指示照办，我们没有现金，购买食物需要现金不能刷卡，食物也不多，很多人一起凑活着吃饭，一天也最多一顿饭，出门买东西更是恐慌，不敢出门，时刻准备去防空洞.在防空洞的环境更是艰苦，我们几十个人在一个小小的房间，里面还是暖气供应管，不能睡不能吃喝，因为我们还要顾及疫情要带上口罩，也没有厕所，硬憋着撤出防空洞去解决.我们迫切的想要撤离苏梅，很多女生都在情绪崩溃，已经连续哭了好几天了，没有食物没有交通，我们只是想回家。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/10-19.png)图片来源：雅典娜设计组&Adelaide Now
 
-截止发稿，新浪微博已经删除了乌克兰求助信息。笔者尝试给作者留言大体说有渠道无偿援助出境，问他图片的出处平台，留了救援电话，目前没有回音。
 
-笔者迫不及待想把新中国联邦的救援告诉他们，同时写篇文章，将该信息传递出来让更多人知道真相。希望国人平安！
+据九台新闻（9news）3月11日报道，昨天，参议员金伯利·基钦（ Kimberley Kitching） ，在墨尔本疑似“心脏病”发作。突然去世，享年 52 岁。基钦参议员出生于布里斯班，1995 年移居墨尔本。
 
-文字版原文：[138名滞留乌克兰留学生求助：我们迫切想要回家！](https://gnews.org/zh-hans/2111548/)
+密友、前联邦工党领袖比尔·肖顿说：“我接到她丈夫的可怕电话，说她走了。所以我们跑到斯特拉斯莫尔的这条街上，她把车停在了那里，她心脏病发作了，我们和她的丈夫一起等到殡仪馆的车到来，这太可怕了。” 另外，据基钦参议员个人推文显示，去年7月，已经接种第二剂疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-23.png)
+目前，不确定基钦是否，接种第三剂疫苗。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+昨天早些时候，基钦参议员在脸书上，分享了支持昆州和新州人们受洪水影响的信息，“我的想法是与那些在新州和昆州失去家园、企业和亲人的人同在。”
+
+很遗憾，我们失去了一位有爱心、有正义感的参议员朋友，一路走好。
+
+参考新闻：[Labor Senator Kimberley Kitching dies aged 52](https://www.9news.com.au/national/kimberley-kitching-dead-victorian-labor-senator-was-52/a63c9639-5071-4248-a5e5-629e4fed7ead)
+
+发布：
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

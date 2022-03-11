@@ -2,36 +2,24 @@
 ---
 
 
-## 欧洲议会将宣布俄罗斯为“流氓国家”
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2141281/)
+## 中日财经爆┃G7紧急会议商讨投资液化天然气以减少俄罗斯依赖
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2141384/)
 
-作者：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-50.png)
+撰稿：东京樱花团/文小白G7
 
+为了应对乌克兰紧张局势的升级，日本时间10日晚10点，七国集团（G7）国家的能源部长在网上举行了一次紧急会议，并发表声明，称需要进行LNG（液化天然气）相关投资，以实现能源多样化，从而减少欧洲对俄罗斯天然气的依赖。日本的经济产业大臣萩生田出席了会议。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-50.jpg)照片来源：本文链接
+会后发表了联合声明，谴责了俄罗斯军队对乌克兰核电站和其他设施的攻击，”因为任何破坏用于和平目的的设施违反了国际法原则”。
 
-台媒消息，当地时间3月1日，乌克兰总统泽连斯基通过视频，在欧盟议会发表了动人的演说，呼吁欧洲与乌克兰一起抵抗俄罗斯的侵略。而欧盟议会文件则显示，将会正式宣布俄罗斯为流氓国家。
+声明说，为了减少欧洲对俄罗斯天然气的依赖，”我们需要投资LNG=液化天然气”，我们应该努力使我们的能源来源多样化。
 
-泽连斯基说，乌克兰为了成为平等的欧洲成员而奋战，请欧洲证明不会丢下乌克兰。生命将战胜死亡，光明将战胜黑暗。在欧盟议会现场，许多议员身穿带有乌克兰旗帜，写着“支持乌克兰”字样的T恤，或身披蓝黄色围巾，纷纷起立为泽连斯基热烈鼓掌。
+乌克兰能源部长哈尔申科也出席了会议，他 “请求所有友好和志同道合的国家提供支持”。
 
-根据欧盟会议有关文件，议员将要求欧盟扩大对俄制裁范围，旨在削弱俄罗斯经济和工业基础，尤其是军工复合体。并且欧盟议员将宣布，普京的作为让人回想起20世纪独裁者的可怕声明，俄罗斯的侵略行为让其实质上成为了流氓国家。欧盟议会并将以“英雄”来形容泽连斯基。
+信息来源：[ロシア依存低減へ “LNGの投資必要” G7エネルギー相緊急会合](https://www3.nhk.or.jp/news/html/20220311/k10013525311000.html?utm_int=news-international_contents_list-items_006)
 
-
-
-参考链接：
-
-[https://news.ltn.com.tw/news/world/breakingnews/3845396](https://news.ltn.com.tw/news/world/breakingnews/3845396)
-
-编辑/校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-25.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-50.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

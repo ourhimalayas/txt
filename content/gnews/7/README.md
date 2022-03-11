@@ -2,39 +2,30 @@
 ---
 
 
-## 星链助力新中国联邦和法治基金的乌克兰救援行动
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2141532/)
+## 樱花FM|台湾将参照乌克兰武装部队加强后备力量
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2141696/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏 
+音频：东京樱花团/战友520
+![](https://lh5.googleusercontent.com/CIt9JtqXao3gLDMLV8VcTOmACCQNj5cst4ZqLMTXiL5BkSVOv2Si8vKKRvhRIiFTpUMjA_FLaNfGvsCS1mGCG8S69VjtbsdgUUZNjG5hhDBctg7c6w-9gY0Qw3Jq1E4heZ7sHgWX)
+台湾国防部为加强紧急情况下动员后备部队力量，并将训练天数增加了一倍。调整后的第一次训练拟于5日开始。
 
-整理/编辑：小红帽
+国防部表示，动员了大量预备役军人的乌克兰武装部队将 “作为未来的参考”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-11_11-32-40.png)图片来源：郭文贵先生盖特视频截图
+为了应对来自中共日益增长的军事压力，台湾国防部一直在努力加强其预备役部队在紧急情况下的战斗能力。具体措施之一是将每次训练的天数增加一倍，达到14天。
 
+调整后的第一次训练从5日开始在台湾各地依次举行，在大约有500人被召集的北部桃园，从早上开始就有人陆续前往指定地点集合。
 
-根据3月10日新中国联邦和法治基金前线记者妮可的报道，新中国联邦和法治基金的乌克兰救援行动志愿者现在所使用的通讯是由星链提供的。
+延长训练天数是在俄罗斯入侵乌克兰之前决定的，
 
-妮可表示：“新中国联邦和法治基金的义工要感谢埃隆‧马斯克（Elon Musk），因为星链的两条线正好在波兰边境梅迪卡难民营，新中国联邦和法治基金两个帐篷的上面。星链让义工们的通讯非常方便。 ”
+国防部表示，”将为台湾在组织和训练预备役部队以及如何部署作参考”。
 
-早在2月26日，美国太空探索技术公司（SpaceX）首席执行官埃隆‧马斯克宣布，在乌克兰启动了星链服务，为其提供网络支持。
+蔡英文政府希望在台湾出现紧急情况时得到美国的支持，但鉴于去年美国从阿富汗撤军以及目前的乌克兰局势，蔡英文政府一再强调自己的立场，即台湾必须首先拥有保卫自己的决心和能力。
 
-星链是SpaceX公司的一项卫星宽带服务计划，通过在地球上空的预定轨道部署由1.2万颗卫星组成的巨型卫星星座、其中包括在近地轨道部署的1584颗卫星，搭建一个覆盖全球的互联网服务网络。
+文字版原文：[台湾将参照乌克兰武装部队加强后备力量](https://gnews.org/zh-hans/2111504/)
 
-资料来源：
-
-1. [郭文贵先生2022年3月11日盖文](https://www.gettr.com/post/pzd5hu2551)
-2. [马斯克称已为乌克兰启动“星链网络”](https://www.zaobao.com.sg/realtime/world/story20220227-1247089)
-
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

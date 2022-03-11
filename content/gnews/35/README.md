@@ -2,27 +2,33 @@
 ---
 
 
-## 基辅市长：首都一半人口已逃离家园
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2140715/)
+## 全球瞩目！新中国联邦乌克兰人道救援在行动
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2140870/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ukraine-russia-conflict-074134.jpg)乌克兰首都基辅市长克里琴科说，根据政府最新信息，每两个基辅居民中就有一个已经离开了这个城市。（法新社）
-（早报讯）俄罗斯军队已逼近乌克兰首都基辅东北部边缘。基辅市长克里琴科说，基辅目前有一半的人口已经逃离家园。
+3月10日，新中国联邦乌克兰人道救援行动在全世界引起了广泛的关注，来自世界各地的媒体和机构来法治基金新中国联邦的大帐篷来拍摄难民。
 
-法新社报道，克里琴科周四（3月10日）告诉乌克兰电视台，根据政府最新信息，每两个基辅居民中就有一个已经离开了这个城市。目前有近200万人已经离开。根据网站citypopulation.de数据，大基辅地区去年的人口为350万。
+美联社、彭博社、盖帝图片社、意大利电视台、西班牙电视台、波兰最大报纸和电视台、阿拉伯迪拜电视台……国际红十字会的工作人员穿着他们的制服（上面有印着红十字会的标志）把过境的妇女和儿童送到新中国联邦救援大帐篷里安顿。
 
-克里琴科还说，基辅已变成一个堡垒。“每条街道、每座建筑、每个检查站都已加固了。”
+法治基金新中国联邦组织的前线救援人员和总部位于瑞士的国际人道救援机构“无疆界医生组织“ （Doctors Without Borders，简称：MSF）并肩行动 ！
 
-据报道，俄罗斯军队已经将他们的装甲车开到了基辅东北部边缘地区，试图将该城市包围。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/8-17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-34.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-56.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-71.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-114.jpg)
 
-法新社战地记者也目睹该区斯基宾村（Skybyn）上空升起了烟尘。该村距离基辅东北部城市界限的最后一个检查站仅几百米。
 
-乌克兰士兵也说，军队昨晚为一条进入基辅主要公路的控制权进行了一夜激战。
+素材来源：新中国联邦前线战友！感谢你们的付出，你们辛苦了！
 
-参考链接：[https://www.zaobao.com.sg/realtime/world/story20220310-1251012](https://www.zaobao.com.sg/realtime/world/story20220310-1251012)
+撰稿/发布：一叶知秋
 
-审核校对：Barry Jack
-上传排版：F
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
