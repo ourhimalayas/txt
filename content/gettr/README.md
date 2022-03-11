@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 9:54 PM (UTC)`
+
+Moldova - one of Europe's smallest and poorest countries, urges other countries to take more refugees as its health system is strained. The sheer volume of Ukrainians fleeing the terror and crossing into other countries has left some border areas overwhelmed.<br/><br/>摩尔多瓦--欧洲最小和最贫穷的国家之一，敦促其他国家接收更多的难民，因为其卫生系统已经十分紧张。逃离恐怖并进入其他国家的乌克兰人的数量之多，使一些边境地区不堪重负。<br/>
+![img](https://media.gettr.com/group42/getter/2022/03/11/21/f38fcf70-a0fb-d2d1-0dd0-4e74751cc58d/out.jpg)
+
+---
+
 `@miles 3/11/2022 9:19 PM (UTC)`
 
 Nicole, [Mar 12, 2022 at 4:50 AM]<br/>👆Nicole 刚采访了这两个波兰独立制片人，她们清楚的知道中共代表邪恶，新中国联邦代表和平、人道和正义。
@@ -152,13 +159,6 @@ By March 10th, more and more refugees arrived in the NFSC tent. The top media gr
 
 【Ukraine Rescue】03/10/2022 The large tent built by our New Federal State of China and the Rule of Law Foundation volunteers in Medyka has become the transit point for the Red Cross<br/><br/>【乌克兰救援】03/10/2022 新中国联邦和法治基金志愿者们在Medyka搭建的大帐篷成为国际红十字会的中转站
 ![img](https://media.gettr.com/group26/getter/2022/03/11/02/3b3dbce8-8fa7-72c7-97df-ab6eedb6e4fc/out.jpg)
-
----
-
-`@miles 3/11/2022 2:24 AM (UTC)`
-
-【Ukraine Rescue】Volunteers for the Ukrainian rescue operation of the NFSC and ROL Foundation use Starlink to communicate<br/><br/>【乌克兰救援】新中国联邦、法治基金的乌克兰救援行动志愿者使用星链进行通讯
-![img](https://media.gettr.com/group42/getter/2022/03/11/02/427c67c0-2341-ce29-267f-81f9326be99e/out.jpg)
 
 ---
 
