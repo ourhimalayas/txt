@@ -2,40 +2,26 @@
 ---
 
 
-## 2022/03/08 美国与乌克兰合作保护乌克兰生物研究设施
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2143942/)
+## 樱花FM|CIA局长在美国国会作证：普京决心统治乌克兰
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2144071/)
 
-**简评：**
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/4xklE_lclNtsrPEmYw6ist6zSmSDDrSYjox9ILAXaze1rqAB-YFjBaWMnMmtIb2p5jo54wBoL6c7NOCzewGaRIgefTi9tg_01D85CQahNENbZT1iJRZntGB5zeiPfO6RklLiuGq7)
+3月8日，美国中央情报局（CIA）局长伯恩斯在众议院情报问题特别委员会的听证会上说，普京意在霸占和控制乌克兰，未来几周战斗将更加激烈。
 
-美国助理国务卿Victoria Nuland宣布美国正在与乌克兰合作，以防止生物研究设施落入俄罗斯手中，俄罗斯也许正在谋求对这些设施的控制。
+在听证会上伯恩斯先生透露，他分析了俄罗斯方面的一些误判，指出普京大部分的行动都是无效的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0510.jpg)
+普京认为乌克兰很弱，强大的俄罗斯军队可以迅速夺取决定性的胜利。但是两天内攻下基辅的目标，即使在近两个星期后也未能完成。由于战争形势越来越不乐观，普京急于快速结束战争而无视平民的伤亡。
 
-[**GETTR视频链接**](https://gettr.com/post/pz8xim7bff)
+普京错误认为，俄罗斯将能够承受经济制裁，理由是法国总统大选和德国新总理上任使得法德两国无暇有效应对。
 
-**视频字幕：**
+孤家寡人的普京一意孤行，终将是拿破仑和希特勒的宿命。
 
-乌克兰有生物研究设施，事实上，我们现在对俄军非常关注，俄罗斯也许正在谋求对这些设施的控制。因此，我们正在与乌克兰人合作，研究如何防止这些资料在俄罗斯军队靠近时落入俄军之手。
+文字版原文：[CIA局长在美国国会作证：普京决心统治乌克兰](https://gnews.org/zh-hans/2129634/)
 
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*字幕：Vekap* *| 听写：云岭 | 翻译：Roberts* *| PR：nights* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
-
-
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
