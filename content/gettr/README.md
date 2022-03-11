@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 9:39 AM (UTC)`
+
+【Ukraine Rescue】03/10/22   A lot of media are going to report the NFSC Medyka Rescue Station for its good service. The NFSC and ROLF will assign more volunteers to this mission of international humanitarian rescue. On the contrary, the CCP hasn’t assigned anyone. <br/><br/>【乌克兰救援】03/10/22  许多媒体将报道新中国联邦的梅迪卡救援站的服务。新中国联邦和法治基金将派遣更多义工参与这场国际人道主义援救行动。相反，中共没有派遣任何人。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group46/getter/2022/03/11/09/b413cc59-b508-a913-db64-446dd696151f/out.jpg)
+
+---
+
+`@miles 3/11/2022 9:33 AM (UTC)`
+
+【Ukraine Rescue】There are many volunteers from all around the world participating in the New Federal State of China’s rescue mission in Ukraine. The evil Chinese Communist Party regime hacked our emails trying to sabotage the rescue operation. They must be held accountable.<br/><br/>【乌克兰救援】新中国联邦有许多来自世界各地的义工参与乌克兰救援行动。邪恶的中共政权骇客我们的电子邮件，试图破坏救援行动。一定要追责中共。<br/>
+![img](https://media.gettr.com/group3/getter/2022/03/11/09/7388fd97-705a-78f1-8b81-fc689cc372d7/out.jpg)
+
+---
+
+`@miles 3/11/2022 9:29 AM (UTC)`
+
+【Ukraine Rescue】03/10/22 The CCP interferes with NFSC and ROLF's rescue, depriving people's freedom to escape<br/><br/>【乌克兰救援】03/10/22  中共干扰新中国联邦和法治基金的救援行动，剥夺人们逃生的自由<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group34/getter/2022/03/11/09/2373979e-fc1a-a9f7-e734-5aa77d669cf3/out.jpg)
+
+---
+
 `@miles 3/11/2022 9:21 AM (UTC)`
 
 【Ukraine Rescue】KlanKosova Media invite NFSC volunteers for a live interview after hearing Ukraine rescue operations sponsored by ROL Foundation <br/><br/>【乌克兰救援】克朗科索瓦电视台听说法治基金资助的乌克兰救援行动后，邀请新中国联邦的志愿者进行直播采访。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
@@ -133,27 +154,6 @@
 
 3/9/2022 Miles Guo: The COVID vaccine disaster will be the most terrible thing. The essence of the Russia-Ukraine war is the war between the US and the CCP, with the Chinese people being sacrificed. I strongly recommend that fellow fighters in Communist China download and use the Himalaya Pay ASAP to save yourselves in the war!<br/><br/>3/9/2022 文贵直播：最恐怖的将是疫苗灾难；俄乌之战的本质是美中的战争，中国人是战争中的牺牲品；文贵建议国内战友们尽快下载和使用喜支付以在战争中自救！<br/>
 ![img](https://media.gettr.com/group48/getter/2022/03/10/22/38a588bb-b6e7-88da-a46e-48b5fb899798/out.jpg)
-
----
-
-`@miles 3/10/2022 10:41 PM (UTC)`
-
-【Ukraine Rescue】 03/10/22 March 10, Wenge Qixiong & Mingdao from NFSC and ROLF at the Medyka Rescue Station on the Polish-Ukrainian border, presenting information to foreign journalists about our rescue efforts to provide free flights, food and accommodations.<br/><br/>【乌克兰救援】3月10日，文戈七雄战友和明道战友，在位于波乌边境的Medyka新中国联邦和法治基金救援站，向外国记者介绍我们提供免费航班和食宿的救援信息
-![img](https://media.gettr.com/group46/getter/2022/03/10/22/c696ee51-d3e9-abb7-2aef-434fe70c5587/out.jpg)
-
----
-
-`@miles 3/10/2022 10:19 PM (UTC)`
-
-3/10/2022 Miles Guo’s GETTR: What does it mean for President Biden to propose the digital dollar for the first time? Citizens of the New Federal State of China who are unvaccinated and own the Himalaya Coin are going to show the world the image of the new Chinese who are respectable, peaceful, law-abiding, and trustworthy just like the fellow fighters at the front line of the Ukraine rescue operation. The CCP cannot represent the Chinese people!<br/><br/>3/10/2022 文贵盖特：拜登总统首次提出数字化美元意味着什么？无苗有币的新中国联邦人要和冲在前线的战友们一样向世界展示有尊严、和平、守法、守信的新中国人形象，共产党不能代表中国人！<br/>
-![img](https://media.gettr.com/group46/getter/2022/03/10/22/ee6a45b3-a6ac-c8ce-e80f-468c0db205ca/out.jpg)
-
----
-
-`@miles 3/10/2022 10:15 PM (UTC)`
-
-3/9/2022 Miles Guo: The NFSC & ROLF Ukraine rescue mission is real, while the CCP is full of lies. The UK will pay the salaries of the Ukrainian officials, and Ukraine will be the center of Europe in the future. China will have a federal system, with each region being independent but not separated. This will bring peace to the world and help eliminate the poison left by the CCP.<br/><br/>3/9/2022 文贵直播：新中国联邦法治基金的救援行动是真实的，而中共却谎话连篇；英国给乌克兰的官员发工资，乌克兰将成为未来欧洲的中心；中国将实施各地区分而不离的联邦制，这将给世界带来和平并有助于排除中共的余毒<br/>
-![img](https://media.gettr.com/group22/getter/2022/03/10/22/40ce6d16-bb12-ac87-dfe9-1cb103e434b6/out.jpg)
 
 ---
 
