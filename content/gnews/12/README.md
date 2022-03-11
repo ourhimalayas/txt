@@ -2,27 +2,35 @@
 ---
 
 
-## 欧盟遏制俄罗斯信息战以捍卫乌克兰
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2146477/)
+## 以民为天下的政权诞生
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2146592/)
 
-采编撰稿：加拿大温哥华杨帆农场 – 重生之鹰
+文编：Hima
+听写：叮叮
+视频：七哥
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-63-1.jpg)图片来源：timesofisrael
+2022-03-09直播摘录
 
+那么我们中国所有的战友和同胞们记住，怎么能让你在战争和未来的血腥当中能让你们安全呢？我告诉大家，你们不懂什么叫HPay、 HCoin。今天你从俄乌战争你就知道，美国把整个俄罗斯的所有的Swfit踢出以后，俄罗斯人叫天天不灵，叫地地不应，哭爹哭娘不管用，不管多有钱的人他们现在真的是不能拿着现金去支付你平常的豪华费用去，没有支付系统，没有钱，你不可能拿着黄金去买面包去。
 
-据[以色列时报] 3月8日报道，欧盟当天决定：将暂停在欧盟国家播放俄罗斯国家媒体《卫星》和《今日俄罗斯》等的电视节目，以杜绝该国针对入侵乌克兰而日益猖獗的虚假消息传播。
+所有国内的战友，记住今天七哥说的一句话，很快这一天会比俄罗斯还惨会到中国来，美欧一定会在世界上分出来“无皇有主”的人类的新模式，也就是没有任何集权，包括中东所有皇室集权都会消失，人类上只有一个方式就是民主的——以民为天下的政权正式诞生，不可能再有任何独裁政府。那么他们现在第一个做什么？
 
-对此，欧盟外交政策负责人表示，由于上述俄罗斯媒体是受独裁者普京当局操控的宣传武器，因此禁播令将有效遏制俄政府当前恶意发动的信息战。此外，欧盟将对那些散布虚假战争信息，美化俄军侵略罪行的网络平台，社交帐户和科技媒体公司进行制裁，
+大家记住，现在的战争是什么？乌克兰是美欧的战争代理人，俄罗斯是中共的代理人或中共和俄罗斯的所谓的独裁者的代理人，严格讲是美中的战争，俄罗斯和俄罗斯派到前线的人、乌克兰都是牺牲者。这就像非洲大草原上大迁移一样，现在大草原上最猛的几个动物，狮子、猎狗、豹子，现在猎狗和豹子在挑战全部动物，所有全要猎杀掉，所有的动物现在想要把这个豹子或者猎狗要干掉，狮子当然开心啦，最大受益者就是狮子。狮子就是美国，猎狗就是中共，豹子就是俄罗斯，猎狗和豹子倒下一方或两方都倒最大赢家是狮子，但是草原上会出现新的物种，不可能是一王独霸，那就是当年印度在非洲迁移大草原上释放的印度虎还有中国的东北虎。
 
-评论指出:在俄乌鏖战的关键时刻，欧盟领导人必须认清：保卫乌克兰免遭俄军的涂炭，即是捍卫欧洲乃至整个世界的和平和自由。欧洲的民主不应被独裁的普京暴政恣意践踏。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-校对编辑：硫酸羟氯喹64
+**关注我们**
 
-发稿：文明(添草灭共)
+Discord 账号
 
-原文链接：[https://www.timesofisrael.com/eu-pledges-to-safeguard-democracy-by-fighting-russias-information-war-in-europe/](https://www.timesofisrael.com/eu-pledges-to-safeguard-democracy-by-fighting-russias-information-war-in-europe/)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

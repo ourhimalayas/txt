@@ -15,113 +15,113 @@
 
 ---
 
-### [拜登签署行政令，要求探索创建中央银行数字货币](/content/gnews/1/README.md)
+### [俄军空袭第尼普罗之后的惨状](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [救人！不需要任何的回报](/content/gnews/2/README.md)
- ` MG FARM`
-
-### [纳瓦罗：“即使俄罗斯赢得乌克兰战争，最终也会沦为中共国殖民地”](/content/gnews/3/README.md)
+### [【乌克兰救援】乌克兰难民在新中国联邦温暖的大帐篷中休息](/content/gnews/2/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [我们是人道大救援](/content/gnews/4/README.md)
+### [疾控中心数据显示疫苗导致所有年龄组的超额死亡率](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【乌克兰救援】新中国联邦将有更多义工参与援救，中共却未派遣任何人](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [拜登签署行政令，要求探索创建中央银行数字货币](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [救人！不需要任何的回报](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [唯一能救你的就是HPay](/content/gnews/5/README.md)
+### [纳瓦罗：“即使俄罗斯赢得乌克兰战争，最终也会沦为中共国殖民地”](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [我们是人道大救援](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [国际知名企业纷纷关闭在俄业务](/content/gnews/6/README.md)
+### [唯一能救你的就是HPay](/content/gnews/9/README.md)
+ ` MG FARM`
+
+### [国际知名企业纷纷关闭在俄业务](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [世界的最残酷的还没有开始](/content/gnews/7/README.md)
+### [世界的最残酷的还没有开始](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [以民为天下的政权诞生](/content/gnews/8/README.md)
+### [以民为天下的政权诞生](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [亚洲的中心](/content/gnews/9/README.md)
+### [亚洲的中心](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [高低立见，一个真一个假](/content/gnews/10/README.md)
+### [高低立见，一个真一个假](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [我们新中国联邦的前线人员太伟大了！](/content/gnews/11/README.md)
+### [我们新中国联邦的前线人员太伟大了！](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [欧盟遏制俄罗斯信息战以捍卫乌克兰](/content/gnews/12/README.md)
+### [欧盟遏制俄罗斯信息战以捍卫乌克兰](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [世界各地媒体来采访法治基金 新中国联邦](/content/gnews/13/README.md)
- ` Tokyo Sakura Video Group`
+### [快来参观我们新中国联邦驻波兰营地的豪华新大棚](/content/gnews/17/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [俄罗斯在可能的债务违约后将面临的后果](/content/gnews/14/README.md)
+### [俄罗斯在可能的债务违约后将面临的后果](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|中共病毒轻症同样导致大脑萎缩退化](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [有声|惊喜](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [乌克兰救援：新中国联邦人展现了受世界人民尊重和喜欢的中国人形象](/content/gnews/17/README.md)
+### [乌克兰救援：新中国联邦人展现了受世界人民尊重和喜欢的中国人形象](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
 
-### [2022年3月11日，全球中共病毒疫情情况汇总](/content/gnews/18/README.md)
+### [2022年3月11日，全球中共病毒疫情情况汇总](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新西兰财经G乐部2022年3月11日:财经新闻整理](/content/gnews/19/README.md)
+### [新西兰财经G乐部2022年3月11日:财经新闻整理](/content/gnews/21/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [【转】截至3.11 俄乌战事汇总（3）](/content/gnews/20/README.md)
+### [【转】截至3.11 俄乌战事汇总（3）](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|中共国房地产持续爆雷 股市暴跌](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [【美国前线医生联盟】起诉拜登政府](/content/gnews/22/README.md)
+### [【美国前线医生联盟】起诉拜登政府](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [【乌克兰救援】新中国联邦救援大帐篷成为国际红十字会的中转站](/content/gnews/23/README.md)
+### [【乌克兰救援】新中国联邦救援大帐篷成为国际红十字会的中转站](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [樱花FM|贝里斯总理睽违16年 率团访问台湾](/content/gnews/24/README.md)
+### [樱花FM|贝里斯总理睽违16年 率团访问台湾](/content/gnews/25/README.md)
  ` 樱花FM`
 
-### [【乌克兰救援】新中国联邦志愿者与其他国际救援组织一起设立难民通道](/content/gnews/25/README.md)
+### [【乌克兰救援】新中国联邦志愿者与其他国际救援组织一起设立难民通道](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [奥地利暂停强制疫苗接种政策](/content/gnews/26/README.md)
+### [奥地利暂停强制疫苗接种政策](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【乌克兰救援】新中国联邦为营救的人员提供免费机票和30天酒店服务](/content/gnews/27/README.md)
+### [【乌克兰救援】新中国联邦为营救的人员提供免费机票和30天酒店服务](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌克兰大救援为新中国联邦带来什么？](/content/gnews/28/README.md)
+### [乌克兰大救援为新中国联邦带来什么？](/content/gnews/29/README.md)
  ` 波士顿五月花农场`
 
-### [人类的大善之光在梅迪卡闪耀](/content/gnews/29/README.md)
+### [人类的大善之光在梅迪卡闪耀](/content/gnews/30/README.md)
  ` 波士顿五月花农场`
 
-### [一周疫情、疫苗信息汇总](/content/gnews/30/README.md)
+### [一周疫情、疫苗信息汇总](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [中共以疫情为理由，开始折腾小学生](/content/gnews/31/README.md)
+### [中共以疫情为理由，开始折腾小学生](/content/gnews/32/README.md)
  ` 纽约香草山MOS03`
 
-### [03/10/22 中共政府动用国家力量黑客并攻击新中国联邦的电子邮件救援系统](/content/gnews/32/README.md)
+### [03/10/22 中共政府动用国家力量黑客并攻击新中国联邦的电子邮件救援系统](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [怎样瓦解小粉红](/content/gnews/33/README.md)
+### [怎样瓦解小粉红](/content/gnews/34/README.md)
  ` 纽约香草山MOS03`
 
-### [【每日聚焦】俄乌战事3月11日简要](/content/gnews/34/README.md)
+### [【每日聚焦】俄乌战事3月11日简要](/content/gnews/35/README.md)
  ` 蓝莲花农场`
 
-### [美国及世界疫情简报（03-11-2022）](/content/gnews/35/README.md)
- ` 波士顿五月花农场`
-
-### [樱花FM|中日财经爆:镍价暴涨 中国青山集团面临爆仓将赔掉10年总利润](/content/gnews/36/README.md)
- ` 樱花FM`
+### [英國對俄羅斯386議員實施制裁](/content/gnews/36/README.md)
+ ` 喜马拉雅农场新西兰站`
 
 ### [乌克兰反击战 展现西方国家的高科技力量](/content/gnews/37/README.md)
  ` 科海拾星`
