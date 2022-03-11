@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 4:40 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
+![img](https://media.gettr.com/group26/origin/2022/03/11/16/c646eef0-f311-18ec-f032-c6715b79d617/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/11/2022 4:14 PM (UTC)`
 
 By March 10th, more and more refugees arrived in the NFSC tent. The top media groups also came to the tent to interview or report. They highly praised the NFSC and ROLF. Meanwhile, medical practitioners and other rescue organizations such as Starlink worked seamlessly with our comrades in arm to resettle the refugees.<br/>The NFSC and the ROLF Ukraine rescue hotline: +1 720-657-6776 or +1 719-224-4232; email: UkraineRescue01@protonmail.com or UkraineRescue02@protonmail.com. <br/>截止到3月10日，新中国联邦帐篷迎来越多越多的难民，各大媒体在帐篷前或采访或报道，他们对新中国联邦和法治基金高度赞扬。到达此地的其他救援组织如医生、星链等等，都在和新中國聯邦人亲密合作安置难民。
@@ -147,13 +154,6 @@ By March 10th, more and more refugees arrived in the NFSC tent. The top media gr
 
 3/10/2022 Miles Guo’s GETTR: Only the New Federal State of China has set up tents at the front line of the rescue operation to take care of the women and children and keep them warm. The industriousness and bravery of the Ukrainians and Poles are in stark contrast to the cowardice of the Chinese people. The CCP is ripping off the Chinese by charging them exorbitant airfares and quarantine fees!<br/><br/>3/10/2022 文贵盖特：只有新中国联邦在救援前线搭起了帐篷让妇女和儿童获得温暖和照顾；乌克兰人和波兰人的勤劳和勇敢与中国人的懦弱对比鲜明；中共用高昂的机票和隔离费玩弄和敲诈中国人！<br/>
 ![img](https://media.gettr.com/group11/getter/2022/03/11/01/8ff1b9da-81c1-a42e-d42a-226c52bceab3/out.jpg)
-
----
-
-`@miles 3/11/2022 12:45 AM (UTC)`
-
-2022.03.10《The Fringe》 Episode 144
-![img](https://media.gettr.com/group39/origin/2022/03/11/00/d38f8145-1c6a-4c15-34f7-9b9be6fd6ebf/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

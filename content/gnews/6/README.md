@@ -2,40 +2,59 @@
 ---
 
 
-## 只要能拿钱搞定对UBS就不是事,它是拿钱没买得了七哥
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2145782/)
+## 奥地利暂停强制疫苗接种政策
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2145959/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8859.60%EF%BC%89%E5%8F%AA%E8%A6%81%E8%83%BD%E6%8B%BF%E9%92%B1%E6%90%9E%E5%AE%9A%E5%AF%B9UBS%E5%B0%B1%E4%B8%8D%E6%98%AF%E4%BA%8B%2C%E5%AE%83%E6%98%AF%E6%8B%BF%E9%92%B1%E6%B2%A1%E4%B9%B0%E5%BE%97%E4%BA%86%E4%B8%83%E5%93%A5%E3%80%902022%E5%B9%B402%E6%9C%8811%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:0)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GettyImages-1369978158-e1646828033713-640x481-1.jpg)图片：来自Michael Gruber摄/盖蒂图片社
 
-**郭文贵先生：**这就是现在看冬奥会谷爱凌、“锁链女”等等等等，这一切的事件包括UBS，UBS他要是晚发一点牌照，他把股票不自己吞了，和他所有的Stephen Wong（王贯中）——大中华区私人银行董事，他不威胁他，现在也跑了听说去伦敦了啊，这事对他太好了。共产党跟他都是钱吗，用完就威胁吗，那未来很有可能出来作证啊，说做污点证人，我们站在一起。
+翻译：
 
-你想想大英帝国，英国的法律，你想想会是什么感觉？所以UBS案子，这真是大家不知道你说得很容易，你见过有一个人告过UBS吗？像我这样的你见过吗？从第一天就拿钱给你买了，是吧？！这能钱搞定的事在UBS面前都不是事了，他不就是钱没买得了七哥吗，要钱买了不就买了吗，就这么简单嘛，是吧？
+来自布赖特巴特新闻网2022年3月9日的报道，在威胁要通过罚款甚至可能坐牢来执行这一举措数月之后，奥地利已经暂停了其境内的强制疫苗接种政策。
 
-编辑整理：Jacques；
+奥地利当局在2月份宣布放宽该国对未接种者的“新冠病毒隔离”措施后，就一直暗示要放弃这项措施，但现在已经确认暂停这项政策，因为它与中共病毒的奥密克戎变种所造成的威胁“不相称”。
 
-字幕档制作：兵嫂；
+根据《克朗报》（*Kronen Zeitung*）的一份报告，该措施被暂停的消息是在周三宣布的，恰好发生在对那些没有注射疫苗的人要处以最高3600欧元的罚款之前。担任奥地利宪法部长的卡罗琳·埃德斯塔德勒(Karoline Edtstadler)解释说，该措施将被暂停，“因为有许多论点认为，对基本权利的侵犯是不正当的”。
 
-视频制作及上传：Cindy；
+然而，虽然强制接种可能会暂时消失，但埃德斯塔德勒和卫生部长约翰内斯·劳赫(Johannes Rauch)都强调，这项法律并没有被完全删除，如果政府认为有必要，可以随时实施。
 
-G-News发布：海贼王M.D.LUFFY；
+奥地利是最早用疫苗强制接种令来威胁其居民的欧洲国家之一，它在去年11月告诉居民，要么接种疫苗，要么面临法律后果。强制接种疫苗的措施随后于2月初正式出台，但由于各种原因，对违反新规则的处罚要到本月中旬才会被强制执行。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+然而，尽管存在威胁，疫苗强制接种政策似乎并没有对疫苗接种产生明显的积极影响。《克朗报》在2月份的一份报告中称，这项强制措施对维也纳接受疫苗接种的人数没有积极影响，随着这项措施的实施，首都的疫苗接种人数甚至出现了下降。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+《明镜周刊》现在似乎也支持这一说法，该周刊报道说，强制接种“在奥地利几乎没有任何影响”，并称自2月初规定生效以来，只有约26,000人接种了对抗这种疾病的疫苗。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+事实上，该国卫生部的数字表明，只有不到一百万人无视强制命令，仍未接种中共病毒疫苗，约占这个德语国家人口的13%。同时，在整个强制接种的过程中，全国各地继续发生反对该措施的抗议活动，尽管有国家当局的骚扰，仍有数千人上街要求取消该强制措施。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+该国还举行了至少一次类似加拿大自由车队运动的示威活动，尽管抗议活动被当局裁定为非法，但上个月仍有车辆游行穿过维也纳市中心。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+**简评：**
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+中共病毒疫苗就是一场骗局，从一开始辉瑞公司和所谓的“主流媒体”就在撒谎，而且其撒谎的模式都很中共化。从最开始说疫苗能100%防感染，到80%，60%……最后到不防感染，但防重症。导致很多打了疫苗但还是被感染的人相信疫苗还是有用的。但大家可能忽视了一点，那就是你没有发展成重症的原因不是疫苗而是你体内的自然免疫力。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+疫苗真的有效根本就不需要强制措施，民众会抢着打，不用说免费，就是收费，大家也会抢着排队去打。因此，政府推出的各种强制措施和各种惩罚行为本身就证明了政府的态度，那就是疫苗无用，但由于与黑暗势力的利益牵扯太深，于是它们就动用公权力强迫民众接种疫苗。
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+在美加欧的疫苗接种的高压态势下，各国疫苗接种率都出奇的相似。几乎都有80%左右的人接种了疫苗，而剩下的20%左右都对疫苗持有怀疑态度。在3月1日，FDA公布的辉瑞疫苗的临床数据，其结果震撼了世界，短期内就有超过1200多种副作用，而长期副作用就更不为人所知。那些对疫苗持有怀疑态度的人，是依靠坚定的信念和对事实真相的理性分析，才成功地逃过了正在爆发的疫苗危机。虽然没有打疫苗，但新中国联邦的战友不会幸灾乐祸，我们会继续传播病毒、疫苗真相。而且我们相信，世界人民一定会从中共病毒和毒疫苗的虚假宣传中醒过来，最终合力消灭病毒之母—-中国共产党。
 
-G-TV：日本银河系农场。
+
+
+新闻链接：[Failed Experiment: Austria Suspends ‘Not Proportionate’ Forced Vaccination Requirement](https://www.breitbart.com/europe/2022/03/09/failed-experiment-austria-suspends-not-proportionate-forced-vaccination-requirement/)
+
+*翻译/简评: kkoto(芬兰大灰狼)*
+
+*校对: Harvey（叶知秋）*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

@@ -2,33 +2,37 @@
 ---
 
 
-## 吉林长春因CCP病毒疫情开启封闭式管理
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2144820/)
+## 台陆委会严词驳斥中共涉台言论
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2145209/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3.11-E.jpg)网络图片
-中共国于周五下令封锁东北重要城市长春的 900 万居民，原因是该地区因高度传染性的 Omicron 变异毒株而导致新增确诊病例出现上升。
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月10日，据台湾媒体报道，中华民国大陆委员会副主委邱垂正当天严厉地驳斥了中共当局在两会期间的涉台言论。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20.jpg)
+陆委会表示，中华民国决不承认和接受中共所谓“一个中国”的原则。因此，中共在两会期间试图通过媒体和学者对外释放所谓“对台战略”的行为，无非是自我宣传和自欺欺人的做法。
 
-居民必须留在家中，允许一名家庭成员每两天出去购买食物和其他必需品。所有居民都必须接受三轮大规模的病毒检测，同时非必要业务将被关闭，交通也将暂停。
+台湾方面还指出，中共政府一直以来拒绝承认中华民国是主权国家的事实，甚至还企图在二十大后形成中共高层的统一对台工作部署，这些荒谬与欺骗性的举动对两岸关系的发展毫无助益。
 
-最新的封锁措施还在山东省的禹城实施，该城有大约50万人口。这些迹象表明中共国仍然在坚持过去两年里一贯严厉的防疫措施——尽管早些时候有迹象表明当局似乎打算采取更多有针对性的灵活政策。
+陆委会也强调称，鉴于中共始终不愿意放弃武力犯台的野心，以及积极奉行对外武力扩张的政策，加之其持续对台湾进行军事威吓与挑衅的做法，这一系列的举措都是造成台海地区局势紧张的根本原因。
 
-中共国周五在全国报告了另外 397 起本地传播病例，其中 98 起在该国汽车工业中心长春周边的吉林省。自上周晚些时候首次爆发最新疫情以来，官方报道的该省总病例已超过1,100例。
+为此，台湾当局明确道，台湾将持续与包括美、日在内的国际社会共同合作，用以维护台海及印太地区的和平与稳定。
 
-周五，长春市实施上仅上报了2例病例，而最近几天的总数则达到78例。中共当局表示，在对大流行采取“零容忍”态度的情况下，只要发现一例或多例感染，就将封锁相关社区。
+参考链接：[中共兩會涉台言論 陸委會：自我宣傳、自欺欺人](https://www.rti.org.tw/news/view/id/2126855)
 
-附近与省份同名的吉林市则报告了93例确诊。当局已经下令对该市进行部分封锁，并切断当地与其他城市的旅行联系。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-吉林农业科技大学的官员在校园内报告了一系列感染事件后被解雇，学生们在社交媒体上抱怨检测呈阳性的人被限制在学校图书馆和其他条件恶劣的建筑物中。
+总编: 宁文静 
+编辑: Irene木木
+审核: 宁文静
+校正/发稿：Fei797
 
-据中共官媒报道，该校目前已记录确诊病患74例，6000多人遭转移进行隔离。航拍图像显示，身穿防护服的学生们在寒冷和黑暗中排队等候转移。
-
-*发布：Gradient Boost*
-
-新闻参考链接：
-
-[China locks down city of 9 million amid new spike in cases](https://apnews.com/article/covid-health-china-changchun-fbe63032924a44e4f7874d0bf0a2988f)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

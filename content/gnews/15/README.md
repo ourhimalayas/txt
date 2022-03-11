@@ -2,46 +2,41 @@
 ---
 
 
-## 一周疫情、疫苗信息汇总
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2145659/)
+## 只要能拿钱搞定对UBS就不是事,它是拿钱没买得了七哥
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2145782/)
 
-作者：DC农场 -火来 /香草山 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年3月2日至3月9日，除中共国外，全球新增中共病毒确诊患者1132万例，同比上周上升了9.37%，未能延续一个月来的下降趋势;  此外，本周新增确诊死亡病例49144例，同比上周下降了9.92%，死亡人数进一步减少。截止3月9日，除中共国外，全球累计接种了78.9亿剂中共病毒疫苗，同比3月2日的接种数据增长了1.94%.
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-18.jpg)
-美洲方面，3月7日，佛罗里达州宣布正式反对为健康儿童接种中共病毒疫苗，成为美国第一个反对儿童接种的州。已经曝光的辉瑞疫苗申请文件，其多达1291种的副作用和高试验死亡率引发的社会反应，继续在全世界发酵。3月9日，旧金山政府健康部门宣布，市民进入餐厅酒吧等场所将不再需要出示疫苗接种证明或病毒阴性证明。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8859.60%EF%BC%89%E5%8F%AA%E8%A6%81%E8%83%BD%E6%8B%BF%E9%92%B1%E6%90%9E%E5%AE%9A%E5%AF%B9UBS%E5%B0%B1%E4%B8%8D%E6%98%AF%E4%BA%8B%2C%E5%AE%83%E6%98%AF%E6%8B%BF%E9%92%B1%E6%B2%A1%E4%B9%B0%E5%BE%97%E4%BA%86%E4%B8%83%E5%93%A5%E3%80%902022%E5%B9%B402%E6%9C%8811%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:0)
 
-国际方面，3月4日，澳州南澳警察局将取消强制令，允许该州拒绝接种中共病毒疫苗的警察重返工作岗位。3月7日，《自然》杂志发表的一项由剑桥大学研究人员完成的研究结果显示，“中共病毒”感染者数月后大脑组织出现萎缩，特别是主管嗅觉的脑组织，脑容量下降也导致认知能力有所退化，这些症状在老人和重症患者中较为明显。
+**郭文贵先生：**这就是现在看冬奥会谷爱凌、“锁链女”等等等等，这一切的事件包括UBS，UBS他要是晚发一点牌照，他把股票不自己吞了，和他所有的Stephen Wong（王贯中）——大中华区私人银行董事，他不威胁他，现在也跑了听说去伦敦了啊，这事对他太好了。共产党跟他都是钱吗，用完就威胁吗，那未来很有可能出来作证啊，说做污点证人，我们站在一起。
 
-亚洲方面，本周香港疫情处于失控状态。3月3日，香港“中共病毒”的确诊患者达到56827例。截至3月6日，香港地区每百万人口的“中共病毒”死亡人数为25.5人，病死率达全球之最。截至3月9日，韩国单日新增中共病毒确诊病例34万余例，创历史新高。韩国政府继月初取消11类公共场所疫苗通行证制度后，从5日开始，餐厅、咖啡厅等12类公众场所的营业延至11点，与确诊患者同住的人不需要每日检测以及强制隔离。
+你想想大英帝国，英国的法律，你想想会是什么感觉？所以UBS案子，这真是大家不知道你说得很容易，你见过有一个人告过UBS吗？像我这样的你见过吗？从第一天就拿钱给你买了，是吧？！这能钱搞定的事在UBS面前都不是事了，他不就是钱没买得了七哥吗，要钱买了不就买了吗，就这么简单嘛，是吧？
 
-参考链接：
+编辑整理：Jacques；
 
-1. [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-03-02..latest&amp;country=~World+excl.+China)
-2. [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-03-02..latest&amp;country=~World+excl.+China)
-3. [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-03-02..latest&amp;country=~World+excl.+China)
-4. [Florida to recommend against COVID vaccines for healthy kids](https://www.news4jax.com/news/florida/2022/03/07/florida-to-recommend-against-covid-vaccines-for-healthy-kids/)
-5. [Pfizer’s COVID vaccine has 1 291 RARE side effects, own report shows](https://www.msn.com/en-za/news/other/pfizers-covid-vaccine-has-1-291-rare-side-effects-own-report-shows/ar-AAULL9o)
-6. [Show your support for high-impact journalism](https://www.theguardian.com/world/2022/mar/07/covid-can-shrink-brain-and-damage-its-tissue-finds-research)
-7. [SARS-CoV-2 is associated with changes in brain structure in UK Biobank](https://www.nature.com/articles/s41586-022-04569-5)
-8. [San Francisco and Berkeley dropping proof of COVID-19 vaccine requirement for some businesses](https://www.ktvu.com/news/san-francisco-and-berkeley-dropping-proof-of-covid-19-vaccine-requirement-for-some-businesses)
-9. [신규 확진 26만 6,853명·사망자 186명 ‘역대 최다’](https://news.kbs.co.kr/news/view.do?ncd=5408883)
-10. [신규 확진 34만 2,446명…누적 500만 명 넘어](https://news.kbs.co.kr/news/view.do?ncd=5411925)
+字幕档制作：兵嫂；
 
+视频制作及上传：Cindy；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+G-News发布：海贼王M.D.LUFFY；
 
-总编: Zion文恩/宁文静
-编辑: Zion文恩
-校正/发稿：Fei797
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
