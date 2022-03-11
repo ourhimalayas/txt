@@ -2,48 +2,30 @@
 ---
 
 
-## 全球疫情疫苗数据更新（澳洲新增病例可能再次跃增）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2140434/)
+## 多与少的战争
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2140563/)
 
-整理：枳实
-美工：精灵蓝
+**【雅典娜观察】与您一起洞察世界**
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/image-731.png)图片：雅典娜农场设计组 精灵蓝
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-70.jpg)雅典娜设计组（精灵蓝）
 
 
-雅典娜疫情更新（2022年 3月9日）
+**作者：**空心的柚子
+**编辑：**翼族
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+读书时老师讲到苏格拉底之死，“一个伟大的哲学家，就这样被众人一人一票给投死了，所以民主不一定就是好的，真理被少数人掌握，所以社会主义才是适合中国人的。”后面的话我不太记得了，反正就是中国历史上的农民起义，造成了很大的文明倒退，死了很多人，所以大家要好好读书，等成了精英后你就明白了。
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-113.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-59.png)
-**疫情新闻**
+眼下，我仿佛明白了一点点——国人的苦难其实并不是什么民不民主的问题，而是连最基本的权力都没有！人们常说邪不压正，正义必胜。一个说理的地方都没有的族群，何来的正义必胜？每日为口腹奔波，哪有心思和力气去表达自己的正义？那什么是民主？我认为多数人有权、有力、有智慧这就是民主。
 
-继上周南澳警察的疫苗强制取消之后，近日[澳大利亚昆士兰的救生员的疫苗强制也取消了](https://www.couriermail.com.au/news/queensland/surf-life-saving-queensland-dumps-covid19-jab-mandate/news-story/13e48a63d123039e1a703af9156976b9)，未接种疫苗的救生员得以重返工作岗位。
+普大帝入侵乌克兰，我觉得本质上就是一个多与少的战争。来看看战争之前普大帝的表演——北约东扩威胁俄罗斯的安全，乌克兰签有协议不能加入北约，为了维护俄罗斯的自身安全，所以要打乌克兰——听上去彷佛“合情合理”，我看着都觉得普大帝还真有点“智慧”，他这样说显然是为了争取民众支持，出师有名方能百战百胜。独裁者的算盘总是打得挺响，而他们的悲哀，就在于把众人对他的恐惧当成尊敬，把众人对他的沉默当成了支持，仗着自己地盘大人口多，说动手就动手完全不顾众人的真实感受。只是理想很丰满现实很骨感，普大帝陷入的不只是乌克兰人民的汪洋大海，更陷入了世界人民的汪洋大海，我觉得他可能半夜会从睡梦中醒来，大腿拍烂悔不该当初，怎么就不弄个问卷调查，了解一下俄罗斯真正的民意呢？又或许是我太天真，独裁者的眼里怎么会有民意？
 
-疫苗毒针广泛注射之后，突发猝死的新闻越来越多。[工党联邦参议员Kimberley Kitching今日突发心脏病死亡，年仅52岁](https://www.news.com.au/national/politics/labor-senator-kimberley-kitching-dies-at-52-from-heart-attack/news-story/bf3b22aedeb9363610513bca2c4d3b34)。
+另一方面我不清楚乌克兰人民的真实想法……但如果换做我的话，要是之前国土被占，我可能因为弱小不敢反抗，忍忍算了，但到了现在竟然说我威胁到了强盗的安全，然后开始炸我房子，杀我妻儿，这就是不共戴天之仇了，我肯定不会怂，也不能怂。幸好多数人都站了出来，各国人民的支援，心存正义的人们出钱的出钱，出力的出力。我很幸运出生在这个时代，这个时代没有那么多历史书里的英雄，但是这个时代有最广泛的人民英雄，那些在战场上抵御入侵的普通人，那些来自各个国家的支援者，扛枪送物资的人，前线拯救平民的自愿者，甚至包括在网络上挑战喷子伪类和五毛水军的正义之士……这个时代的伟大之处就是能让普通人有能力发出自己的声音，有能力让每个人去做自己认为对的事，有能力让多数人集结起来与少数人开战。
 
-澳大利亚的疫情正在复燃。新南威尔士州卫生部长布拉德·哈扎德在新南威尔士州预算预估听证会上表示，[新南威尔士州大学的初步数据表明，新增病例可能在六周内“增加一倍以上”。](https://www.9news.com.au/national/coronavirus-australia-updates-covid-19-cases-spike-in-nsw-numbers-around-australia/e9f6f97f-1ff7-41a3-8228-0fda8bbc8bb6) 他说 Omicron 的 BA.2 子变体被认为比 BA.1 谱系更具传染性，正在成为占主导地位的 Omicron 变体。
+普大帝的这场不义之战一开始就注定了失败，我这样说不是想说一开始我就知道，也不是因为郭先生说过会失败，而是我想起了历史，我们伟大的厉害国里的厉害帝王与高句丽的战争，都是表面上的以大欺小和以多欺少。我查阅过相关的资料，所谓的高句丽不是单单的一个国家，同样的情况普大帝面对的不是单单的一个乌克兰，而是乌克兰背后的支持者们，他们正在全力以赴。在和平的问题上，多数终将战胜少数！
 
-[2022年3月9日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月9日改进.pdf)
+**【后记：**我相信世界人民会原谅俄罗斯人民，因为俄罗斯人民站上了街头表达了对战争的厌恶，对和平的渴望，他们从一个专制走向另一个专制，但是他们醒过来了。而作为中国人呢？百亿点击量救不了一个铁链女，网上充斥着各种对乌的调侃，遇事总是麻木不仁……这两天，天津“学生餐事件”中“炮灰”家长的视频又让我对未来的希望增加了许多，中国人还是人，是属于地球上芸芸众生中的一员，都希望和平快乐的过完这一生。我坚信只要给我们以自由发声的平台，让多数人表达自己的意愿，给我们以力量，展现我们的行为，我们中国人跟世界上爱好和平的人一样，一定会融入世界这个大家庭。作为新中国联邦的一员我很自豪可以提早一步展现自己的意愿发出自己的声音，我也相信通过我们新联邦战友不断的宣传扩散，会有越来越多的人加入，最终我们一定会成为多数，打败那些少数阴谋家和独裁者。**】**
 
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
+*发布：翼族*
 
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
