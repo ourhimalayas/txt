@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 10:32 PM (UTC)`
+
+3/11/2022 Miles Guo: The NFSC & ROLF Ukraine rescue mission has received wide attention from the world media in Medyka, Poland. Fellow fighters left behind their families and jobs to save the refugees without demanding anything in return. We, citizens of the New Federal State of China, are the real Chinese people respected and loved by the world.<br/><br/>3/11/2022 文贵直播：新中国联邦法治基金的救援行动在波兰梅迪卡受到了国际媒体的广泛关注；战友们抛家舍业来救援难民，不求任何回报，我们新中国联邦人是为世界尊重和喜欢的真正的中国人<br/>
+![img](https://media.gettr.com/group31/getter/2022/03/11/22/49e6940c-0f12-940d-bc6e-b428cb52d6ba/out.jpg)
+
+---
+
+`@miles 3/11/2022 10:26 PM (UTC)`
+
+According to Newsmax, Russian troops appear to be stepping up the violence of their attacks in Ukraine, although they are getting their heads handed to them everywhere they go<br/><br/>Newsmax新闻：俄军似乎正在进一步升级他们的暴力袭击，尽管他们所到之处都要被剿杀
+![img](https://media.gettr.com/group47/getter/2022/03/11/22/6006340a-afa4-8c16-9570-890d9a57b06e/out.jpg)
+
+---
+
 `@miles 3/11/2022 10:16 PM (UTC)`
 
 Russia expert Leon Aron discusses how failed military defeats have toppled previous Russian regimes and why the war in Ukraine could ‘undermine Putin’s regimes very severely’ as the truth about the invasion and deaths of Russian soldiers begins to trickle into Russia<br/><br/>俄罗斯专家莱昂·阿隆讨论失败的军事行动如何推翻了曾经的俄罗斯政权，以及乌克兰战争为什么会“非常严重地削弱普京政权”，因为入侵乌克兰的真相和俄军士兵的死亡开始逐渐传入俄罗斯
@@ -145,20 +159,6 @@ By March 10th, more and more refugees arrived in the NFSC tent. The top media gr
 
 【Ukraine Rescue】KlanKosova Media invite NFSC volunteers for a live interview after hearing Ukraine rescue operations sponsored by ROL Foundation <br/><br/>【乌克兰救援】克朗科索瓦电视台听说法治基金资助的乌克兰救援行动后，邀请新中国联邦的志愿者进行直播采访。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
 ![img](https://media.gettr.com/group13/getter/2022/03/11/09/5602ae24-5a0b-6704-36c7-a75eafca76d6/out.jpg)
-
----
-
-`@miles 3/11/2022 9:00 AM (UTC)`
-
-
-![img](https://media.gettr.com/group39/origin/2022/03/11/08/01a9e243-27eb-9c84-bf34-2db913c858f0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/11/2022 7:56 AM (UTC)`
-
-
-![img](https://media.gettr.com/group34/origin/2022/03/11/07/9d8f4aa3-29a0-3dee-9104-e2a72181ea6f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

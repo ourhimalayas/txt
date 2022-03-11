@@ -15,26 +15,26 @@
 
 ---
 
-### [诺基亚将在印度最大电信运营商沃达丰 Idea网络中取代华为设备](/content/gnews/1/README.md)
+### [因疫情严峻 吉林长春市全城“封闭管理”](/content/gnews/1/README.md)
  ` 日本東京方舟農場`
 
-### [3月11号救援前线所见所闻](/content/gnews/2/README.md)
+### [诺基亚将在印度最大电信运营商沃达丰 Idea网络中取代华为设备](/content/gnews/2/README.md)
+ ` 日本東京方舟農場`
+
+### [3月11号救援前线所见所闻](/content/gnews/3/README.md)
  ` 纽约香草山MOS02`
 
-### [新冠病毒被证明伤害患者大脑](/content/gnews/3/README.md)
+### [新冠病毒被证明伤害患者大脑](/content/gnews/4/README.md)
  ` 扬帆枫叶快讯`
 
-### [《甜甜的巧克力》](/content/gnews/4/README.md)
+### [《甜甜的巧克力》](/content/gnews/5/README.md)
  ` 纽约香草山MOS03`
 
-### [五月花简报（03/11/2022）](/content/gnews/5/README.md)
+### [五月花简报（03/11/2022）](/content/gnews/6/README.md)
  ` mayflowertranslate`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年3月11日早](/content/gnews/6/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年3月11日早](/content/gnews/7/README.md)
  ` 纽约香草山MOS01`
-
-### [3月11日文贵大直播要点（图片1-4）](/content/gnews/7/README.md)
- ` 波士顿五月花农场`
 
 ### [梅蒂卡救援前线跟踪报道](/content/gnews/8/README.md)
  ` 纽约香草山MOS02`
