@@ -2,27 +2,58 @@
 ---
 
 
-## 视频|日本援乌战略防御物资起运
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2145366/)
+## 俄罗斯指控美国违反《禁止生物武器公约》
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2145420/)
 
-制作：香草山视频部
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-3月8日，一架装载战略防御物资的日本自卫队的飞机，从航空自卫队小牧基地出发，飞往乌克兰。据悉，除了装载防弹背心、头盔和一些防护用品外，这架飞机还装载有食品、卫生用品、相机、发电机、帐篷和冬衣等战时应急物资，支援乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-日本防卫省发出声明，已和乌克兰政府约定，禁止将日本提供的防卫物资另作他用，也禁止转移给第三国使用。此外，内阁官房长官松野博一同日表示，日本并不打算向乌克兰提供致命性武器。
+几个月来，俄罗斯一直在为入侵乌克兰制造借口。3月11日上午11点，俄罗斯又将利用联合国这个平台，把对乌克兰的入侵说成俄罗斯部队被部署到乌克兰来保护生物武器实验室。
 
-自第二次世界大战结束后，日本一直严格遵守《和平宪法》规定，不介入海外军事活动，不向冲突各方提供防卫物资。但在3月8日的声明中，日本防卫省再度谴责俄罗斯违反国际法，对乌克兰发动战争、侵犯乌克兰主权与领土完整，动摇了欧亚的国际秩序基础。日方应乌克兰政府请求，及时提供防卫物资，并将继续尽一切努力协助乌克兰。
+3月11日上午11点，联合国安理会应俄罗斯的要求安排了一次会议，讨论莫斯科独裁者声称的“美国在乌克兰领土上的军事生物活动”。俄罗斯声称，将出示大量令人惊呆的证据，表明美国过去17年来一直支持乌克兰研究生化武器。
 
-发稿：Daxia
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-11_22-55-10.png)
 
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+俄方声称，俄罗斯将揭露美国严重违反《关于禁止细菌（生物）和毒素武器的发展、生产和储存以及销毁这类武器的公约》。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+《关于禁止细菌（生物）和毒素武器的发展、生产和储存以及销毁这类武器的公约》（[CONVENTION ON THE PROHIBITION OF THE DEVELOPMENT, RODUCTION AND STOCKPILING OF BACTERIOLOGICAL (BIOLOGICAL) AND TOXIN WEAPONS AND ON THEIR DESTRUCTION](https://front.un-arm.org/wp-content/uploads/2020/12/BWC-text-English-1.pdf)），简称《禁止生物武器公约》（Biological Weapons Convention，简称BWC），又称《生物与有毒武器公约》（Biological and Toxin Weapons Convention，简称BTWC），是生效于1975年3月26日的首条禁止生产武器的国际裁军条约。至此为止已有183个国家批准加入了该公约。
+
+缔约国在任何情况下不发展、不生产、不储存、不取得除和平用途外的微生物制剂、毒素及其武器；也不协助、鼓励或引导他国取得这类制剂、毒素及其武器；缔约国在公约生效后9个月内销毁一切这类制剂、毒素及其武器；缔约国可向联合国安理会控诉其他国家违反该公约的行为。
+
+此前美国强烈否认了俄罗斯关于乌克兰在美国支持下经营化学和生物实验室的指控。上周，美国情报分析员在获得情报显示俄罗斯化学和生物武器部队被激活并进入乌克兰时感到震惊，他们得出结论认为俄罗斯正准备使用化学和/或生物武器。
+
+针对本周俄罗斯外交部发言人玛丽亚·扎哈罗娃（Maria Zakharova）在没有证据的情况下提出的指控，白宫新闻秘书詹·普萨基（Jen Psaki）周三公开警告称，俄罗斯可能会对其入侵的邻国乌克兰使用化学或生物武器。
+
+普萨基称俄罗斯的指控是“荒谬的”，并在推特上写道：“这显然是俄罗斯的一种策略，试图为其对乌克兰的进一步有预谋、无端和无理的攻击辩护。”
+
+乌克兰总统泽连斯基否认俄罗斯指控乌克兰准备使用化学或生物武器进行攻击。和Psaki 一样，他说指控本身就是一个不好的迹象。泽连斯基在周四晚间向全国发表的讲话中说，“这让我非常担心，因为我们经常相信，如果你想了解俄罗斯的计划，那就是俄罗斯指责其他人的计划。我是一个讲道理的人，一个讲道理的国家和讲道理人民的总统。我是两个孩子的父亲，在我的土地上没有开发任何化学武器或任何其他大规模杀伤性武器。全世界都知道这一点。”
+
+五角大楼新闻秘书约翰·柯比（John Kirby）周三称俄罗斯的说法是“一派胡言”（a bunch of malarkey）。道尔顿说，“俄罗斯在使用化学武器方面有着悠久的历史，长期以来一直维持着违反国际法的生物武器计划”，以及“错误地指责西方俄罗斯本身正在犯下的违法行为的记录。 ”
+
+俄罗斯可能会寻求制造借口，进一步升级为期两周的对乌克兰的入侵，这场非正义的入侵由于受到比预期更强大的乌克兰人民的英勇防御和反击而放缓，但目前并未停止。
+
+多年来，国际社会一直在评估俄罗斯使用化学武器对普京的敌人进行暗杀，例如现在在俄罗斯监狱中的阿列克谢·纳瓦尔尼（Alexey Navalny）和居住在英国的前俄罗斯间谍谢尔盖·斯克里帕尔（Sergei Skripal）。俄罗斯还支持叙利亚的阿萨德政府，该政府在长达 11 年的内战中对其人民使用了化学武器。
+
+美国副大使理查德米尔斯说，俄罗斯最近为了证明它对乌克兰发动的有预谋和非正义的战争而撒下的网络谎言，应该清晰的表明，俄罗斯在谈论叙利亚使用化学武器时永远不应当被信任。
+
+英国副大使詹姆斯·卡里乌基（James Kariuki）告诉安理会，俄罗斯在乌克兰的行动——“包围城市、滥杀平民、迫使数百万人逃离以寻求安全”——与其在叙利亚的行动“有明显的相似之处，遗憾的是，这种比较也延伸到了化学武器，因为我们看到熟悉的俄罗斯化学武器虚假信息的幽灵在乌克兰再次抬头。”
+
+联合国发言人斯蒂芬·杜加里克（Stephane Dujarric）周四重申了他周三所说的话——世界卫生组织一直在与乌克兰政府合作，“表示他们不知道乌克兰政府有任何不符合国际条约义务的活动，包括化学武器或生物武器。”
+
+俄罗斯歪曲事实，为入侵乌克兰制造借口，被正义所不耻！俄罗斯可能会对其入侵的邻国乌克兰使用化学或生物武器。
+
+参考资料：
+
+[UN council to meet on Russian claim of US labs in Ukraine](https://apnews.com/article/russia-ukraine-united-nations-jen-psaki-moscow-europe-2bdbc57e596327f2d159993d1107f93b)
+
+[禁止生物武器公约](https://zh.wikipedia.org/wiki/%E7%A6%81%E6%AD%A2%E7%94%9F%E7%89%A9%E6%AD%A6%E5%99%A8%E5%85%AC%E7%B4%84)
+
+[CONVENTION ON THE PROHIBITION OF THE DEVELOPMENT, PRODUCTION AND STOCKPILING OF BACTERIOLOGICAL (BIOLOGICAL) AND TOXIN WEAPONS AND ON THEIR DESTRUCTION](https://front.un-arm.org/wp-content/uploads/2020/12/BWC-text-English-1.pdf)
+
+[Russia Convenes UN Security Council Meeting to Present BioLab Evidence — Friday at 11 AM](https://www.thegatewaypundit.com/2022/03/breaking-russia-convenes-un-security-council-meeting-present-biolab-evidence-friday-10/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

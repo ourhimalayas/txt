@@ -2,26 +2,30 @@
 ---
 
 
-## 难民营里的钢琴曲
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141382/)
+## 郭文贵先生警示世界 中共或在四月搅动中东局势
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141403/)
 
-作者：纽约香草山农场 – 宁文静
+作者：日本方舟农场 Andy5
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月9日，据前线回传的消息显示，地处乌克兰和波兰边境的米蒂卡难民营，在夜幕时分传出了美妙的钢琴曲，这也为身处战争阴影和痛苦中的人们送去了心灵的抚慰。
+在3月9日的大直播中，郭文贵先生再一次发出预警，3月底到4月中旬，中共或在中东地区发起疯狂的行动，趁乱局入侵台湾，但最终会作茧自缚。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-8.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-6.jpeg)
 
-战地记者Nicole报道，每天傍晚，来自德国的音乐家达维德·马特洛会在难民营中一架破旧的钢琴前为大家演奏乐曲。此时，乌克兰边境的气候依然严寒，逃难的母亲们带着自己的孩子坐在营地的篝火前取暖，悦耳的钢琴曲交织在不时飘落的雪花中，给那些故土被毁、亲人离散又饱受战争摧残的难民们带来少许的安慰。
+郭先生指出，习并不会如外界猜测的放弃攻台野心，相反，在看到美国成为乌克兰危机中最大受益者之后，将会坚定夺取台湾的信心。未来五到六周，中共会利用再次释放病毒的机会，挑起中东局势，发动能源战争，趁世界乱作一团，迅速发动台海区域性战争，拿下台湾，解决中共国内忧外患的困局。在实现中华大一统的夙愿之后，将要求与美国推进所谓的“中美共同治理地球”。
 
-当Nicole向马特洛介绍我们这支新中国联邦和法治基金的救援团队时，马特洛特意为所有法治基金的捐款者送上了一首名为“在彩虹之上玩耍”的曲子，用以感谢所有捐款者的爱心和慷慨。
+早在2021年8月16日，郭先生就提到中共会在中东有所行动，通过控制马六甲海峡、霍尔木兹海峡，让中东别无选择地用石油等能源来报复日本，掐住韩国的命脉，让这两国无力阻止中共向亚洲和世界的扩张。然而，郭先生强调，中共的疯狂举动，将招致全世界的制裁和围剿，最后一定以自取灭亡而告终。
 
-参考链接：[德国音乐家Davide Martello 在难民营为法治基金所有的捐赠者弹奏钢琴曲](https://gettr.com/post/pz3g1c2f67)
+参考链接：
+1. https://www.gettr.com/post/p7uqcv0a97
+2. [https://gettr.com/post/pz3zdza229](https://gettr.com/post/pz3zdza229)
+3. [ロシア産原油輸入禁止 日本はすぐに輸入を止めるのは難しいか](https://www3.nhk.or.jp/news/html/20220309/k10013522551000.html?utm_int=news-new_contents_latest_002)
+4. [https://gettr.com/post/pz3wlidd32](https://gettr.com/post/pz3wlidd32)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
 总编：宁文静
 编辑：玫瑰圓
-审核：Irene木木
+审核：宁文静
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -31,6 +35,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

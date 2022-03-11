@@ -2,25 +2,25 @@
 ---
 
 
-## 向世界曝光中共阻扰救援侵犯人权的丑陋行为
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141348/)
+## 难民营里的钢琴曲
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141382/)
 
-作者：纽约香草山  宁文静, 银河系农场  骄子
+作者：纽约香草山农场 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月11日，来自战地记者Nicole的现场报道。中共持续动用各种力量，黑客并篡改法治基金救援邮箱，给救援工作造成严重干扰。悉尼乌克兰协会将救援信息公布在官方网站首页，但该条信息只存留十个小时左右，就因中共不断施压乌克兰政府，而被迫删除。
+当地时间3月9日，据前线回传的消息显示，地处乌克兰和波兰边境的米蒂卡难民营，在夜幕时分传出了美妙的钢琴曲，这也为身处战争阴影和痛苦中的人们送去了心灵的抚慰。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-7.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-8.jpeg)
 
-这种泯灭人性，罔顾生死，恶意剥夺乌克兰难民选择机会的行为，让驻扎在米蒂卡基地的许多其它国家的媒体人，在得知情况之后连连摇头。Nicole相信，战友们抓住一切机会，向这些国际媒体曝光中共反人道的种种劣行，总有一天，真相会大白于天下。
+战地记者Nicole报道，每天傍晚，来自德国的音乐家达维德·马特洛会在难民营中一架破旧的钢琴前为大家演奏乐曲。此时，乌克兰边境的气候依然严寒，逃难的母亲们带着自己的孩子坐在营地的篝火前取暖，悦耳的钢琴曲交织在不时飘落的雪花中，给那些故土被毁、亲人离散又饱受战争摧残的难民们带来少许的安慰。
 
-参考链接：
-1. [新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播](https://gettr.com/post/pz9rok9003)
-2. [https://gettr.com/post/pz94rb8ea4](https://gettr.com/post/pz94rb8ea4)
+当Nicole向马特洛介绍我们这支新中国联邦和法治基金的救援团队时，马特洛特意为所有法治基金的捐款者送上了一首名为“在彩虹之上玩耍”的曲子，用以感谢所有捐款者的爱心和慷慨。
+
+参考链接：[德国音乐家Davide Martello 在难民营为法治基金所有的捐赠者弹奏钢琴曲](https://gettr.com/post/pz3g1c2f67)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
 总编：宁文静
-编辑：静言
+编辑：玫瑰圓
 审核：Irene木木
 校正/发稿：谐趣园
 
@@ -31,8 +31,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

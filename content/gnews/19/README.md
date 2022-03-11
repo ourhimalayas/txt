@@ -2,35 +2,37 @@
 ---
 
 
-## 救援前线：荷兰战友辗转千里为前线送中餐
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2145139/)
+## 台陆委会严词驳斥中共涉台言论
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2145209/)
 
-作者/编辑：文泓
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月10日，据台湾媒体报道，中华民国大陆委员会副主委邱垂正当天严厉地驳斥了中共当局在两会期间的涉台言论。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20.jpg)
+陆委会表示，中华民国决不承认和接受中共所谓“一个中国”的原则。因此，中共在两会期间试图通过媒体和学者对外释放所谓“对台战略”的行为，无非是自我宣传和自欺欺人的做法。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/@2@Y9ADJEX1YQ8AOC7L@MY.png)图片来源：救援前线电报群视频截屏
+台湾方面还指出，中共政府一直以来拒绝承认中华民国是主权国家的事实，甚至还企图在二十大后形成中共高层的统一对台工作部署，这些荒谬与欺骗性的举动对两岸关系的发展毫无助益。
 
+陆委会也强调称，鉴于中共始终不愿意放弃武力犯台的野心，以及积极奉行对外武力扩张的政策，加之其持续对台湾进行军事威吓与挑衅的做法，这一系列的举措都是造成台海地区局势紧张的根本原因。
 
-当地时间3月11日，据新中国联邦记者妮可前方报道，今天救援中心收到一份特殊的礼物——中餐，由荷兰战友空运至波兰华沙，再由华沙陆路辗转数小时抵达边境口岸梅迪卡小镇。这是一批真空包装的中餐食品，食材也很有特色，有扒鸡、鸡翅、猪蹄、宫保鸡丁、鸡蛋、点心和白米饭等。
+为此，台湾当局明确道，台湾将持续与包括美、日在内的国际社会共同合作，用以维护台海及印太地区的和平与稳定。
 
-当然，这些食材在和平时期都不值一提，甚至俊男倩女们为了抵御卡路里刻意与它们保持距离。但是，今天这批食材送到救援前线意义完全不一样。
+参考链接：[中共兩會涉台言論 陸委會：自我宣傳、自欺欺人](https://www.rti.org.tw/news/view/id/2126855)
 
-在俄乌战争全面爆发的今天，战火纷飞、物质匮乏，当地食不果腹已成为常态。新中国联邦战友们依托法治基金的强力支援，不至于挨饿，但在遥远的波兰，让东方人的胃长期吃面包、牛肉恐怕都难以承受。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-后方战友心系前线，难能可贵的是荷兰的战友千里迢迢空运了一批真空包装的中餐，让远离故土的同胞，可以感受家乡的味道，这是既是一份浓浓的战友情谊，也体现了我们新中国联邦人拥有共同基因，前方与后方无距离心连心。
+总编: 宁文静 
+编辑: Irene木木
+审核: 宁文静
+校正/发稿：Fei797
 
-以下是美图欣赏（图片来源均为视频截屏）：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/H763NCNCI@PL0EVPPW.png)图1：房车&餐车![](https://assets.gnews.org/wp-content/uploads/2022/03/1-121.png)图2：扒鸡![](https://assets.gnews.org/wp-content/uploads/2022/03/2-65.png)图3：鸡蛋和面点![](https://assets.gnews.org/wp-content/uploads/2022/03/4-48.png)图4：鸡翅![](https://assets.gnews.org/wp-content/uploads/2022/03/6-51.png)图5：宫保鸡丁![](https://assets.gnews.org/wp-content/uploads/2022/03/7-33.png)图6：猪蹄
-资料来源：救援前线电报群
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

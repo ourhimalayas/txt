@@ -2,25 +2,38 @@
 ---
 
 
-## 新冠病毒被证明伤害患者大脑
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2145284/)
+## 有声|新中国联邦救援团队将在波兰边境营建200平米大型救援帐篷
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2145415/)
 
-采编/编译撰稿： 加拿大温哥华杨帆农场 – 文莱
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- 乌克兰当地时间3月11日，位于波兰边境口岸米蒂卡（Medyka）的难民安置点，新中国联邦救援团队搭建的50平米大型帐篷已经成为了难民营最醒目、设施最现代化、物资最齐备的救援基地，给难民们带去诸多帮助和温暖。
+- 仅过去一天，已有8家以上的国家级媒体前来采访拍摄。据前线记者Nicole报道，新中国联邦和法治基金提供的更多救援物资正在源源不断运抵，其中包括一个200平米的救援帐篷和数台发电车，届时这座大型救援帐篷将为更多难民提供帮助。
+- 【新闻来源】波兰救援基地前线报道
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-63.jpg)图片来源：theconversation.com
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_6748-960x720-1.jpg)
 
 
-据加拿大【CTV新闻】3月7日报道，《自然》杂志日前发表的最新研究报告表明，即使是轻度新冠病毒患者，其大脑组织将出现某种程度的变异，并且都在与气味神经相关的大脑区域。
 
-数据显示，在785名成年受测人群中，与健康者相比，新冠病毒感染者的部分大脑组织均出现大幅度萎缩，并因此严重影响患者的情感认知行为，以及记忆和嗅觉能力。
 
-报道称，能够测量到该病毒所造成的大脑变异程度，对进一步研究相应治疗方案极具参考价值，并因此将有可能解决长期困扰新冠病毒感染者难以治愈的病症，如持续性疲劳和嗅觉丧失等。
+文字版原文：[新中国联邦救援团队将在波兰边境营建200平米大型救援帐篷](https://gnews.org/zh-hans/2144231/)
 
-校对编辑：硫酸羟氯喹64
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-发稿：文明(添草灭共)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-新闻来源： [COVID-19 can shrink some brain regions: U.K. study | CTV News](https://www.ctvnews.ca/health/coronavirus/covid-19-can-damage-brain-tissue-u-k-study-suggests-1.5810041)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

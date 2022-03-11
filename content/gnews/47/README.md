@@ -2,40 +2,31 @@
 ---
 
 
-## 郭文贵先生警示世界 中共或在四月搅动中东局势
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141403/)
+## 香港殓房爆满 每天近百具遗体直送火葬场
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2141413/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月9日的大直播中，郭文贵先生再一次发出预警，3月底到4月中旬，中共或在中东地区发起疯狂的行动，趁乱局入侵台湾，但最终会作茧自缚。
+发布： 2022年3月11日 10:33 AM
+采集：玫瑰新闻组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-6.jpeg)
+![](https://img5.secretchina.com/pic/2022/2-27/p3103411a66113855-ss.jpg)
 
-郭先生指出，习并不会如外界猜测的放弃攻台野心，相反，在看到美国成为乌克兰危机中最大受益者之后，将会坚定夺取台湾的信心。未来五到六周，中共会利用再次释放病毒的机会，挑起中东局势，发动能源战争，趁世界乱作一团，迅速发动台海区域性战争，拿下台湾，解决中共国内忧外患的困局。在实现中华大一统的夙愿之后，将要求与美国推进所谓的“中美共同治理地球”。
+冠病疫情导致香港殓房爆满，由于要加快流程以及防疫需要，每天都有近百具遗体直接运往火葬场。
 
-早在2021年8月16日，郭先生就提到中共会在中东有所行动，通过控制马六甲海峡、霍尔木兹海峡，让中东别无选择地用石油等能源来报复日本，掐住韩国的命脉，让这两国无力阻止中共向亚洲和世界的扩张。然而，郭先生强调，中共的疯狂举动，将招致全世界的制裁和围剿，最后一定以自取灭亡而告终。
+据星岛日报报道，疫情累计死亡个案接近3000人，遗体堆积殓房，殡仪业者指，疫情持续之下，近期每天都有近一百具遗体没有经由殡仪馆出殡，直接运往火葬场。
 
-参考链接：
-1. https://www.gettr.com/post/p7uqcv0a97
-2. [https://gettr.com/post/pz3zdza229](https://gettr.com/post/pz3zdza229)
-3. [ロシア産原油輸入禁止 日本はすぐに輸入を止めるのは難しいか](https://www3.nhk.or.jp/news/html/20220309/k10013522551000.html?utm_int=news-new_contents_latest_002)
-4. [https://gettr.com/post/pz3wlidd32](https://gettr.com/post/pz3wlidd32)
+香港食环署昨（10日）举办网上研讨会，邀请负责不同程序的相关部门、公共机构与殡仪业界参加，就如何理顺整个流程及缩减所需时间交换意见。殡仪业商会理事长郭凯邦说，业界已向相关部门反映，包括如何能加快处理遗体，以及业界在丧礼上的配合，以加快流程。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+郭凯邦又提到，疫情之下，近期已有愈来愈多的家属，选择不在殡仪馆办理后事，只在公立医院的殓房或公众殓房作简单丧礼或追思，然后将遗体直接运往火葬场。“除了是加快流程，也是由于在疫情之下，很多家属也担心会在殡仪馆受到感染，加上可能不会有太多亲友出席，故选择简简单单完成丧礼。”
 
-总编：宁文静
-编辑：玫瑰圓
-审核：宁文静
-校正/发稿：谐趣园
+现在全港殡仪馆总共有121个礼堂，郭凯邦称若以食环署提供逾200个火化时段计算，估计每日约有100名死者没有经由殡仪馆出殡，遗体直接运往火葬场。他也说，于公众殓房进行有关仪式并没有问题，但现在部分公立医院的殓房未能配合，并不允许业界为先人提供简单的装身，以及瞻仰遗容等程序，希望当局能够人道处理，以酌情方式让家人进行简单的仪式。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他说，近期死亡人数仍在上升，难以估计何时能够见顶，希望当局可以灵活处理，否则很多丧事也要“拖长来做”，“若不允许，或作出阻挠，令先人不能留下最美好的仪容，很多家属也会感到不安及难过，故希望医院方面可作调整。”
 
+新闻链接：
+[香港殓房爆满 每天近百具遗体直送火葬场](https://www.zaobao.com.sg/realtime/china/story20220311-1251187)
+
+**审核：Barry Jack
+上传排版：V在途中**
 
  
 

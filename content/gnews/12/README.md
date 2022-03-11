@@ -2,31 +2,33 @@
 ---
 
 
-## 视频|新中国联邦人将迎来三件大事
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2145382/)
+## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月9日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2145516/)
 
-制作：香草山视频部
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
-3月9日，郭文贵先生在大直播中宣布，新中国联邦即将迎来三件大事：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-6-1187x1536-1.png)
 
-1.喜联储将发布关于喜币的利好消息；
 
-2.未来两周，新媒体平台将诞生更多奇迹；
+文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年3月9日晚](https://gnews.org/zh-hans/2135040/)
 
-3.辉瑞等疫苗厂商将受到人类的审判，中共将受到西方严厉的制裁。
-
-无苗有币、爱好和平的新中国联邦人将受到全世界的尊重。（请播放视频，视频时长1‘13“）
-
-发稿：Daxia
-
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
