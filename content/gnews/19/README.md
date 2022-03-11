@@ -2,28 +2,28 @@
 ---
 
 
-## 台陆委会严词驳斥中共涉台言论
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2145209/)
+## 台湾否决中资企业电视台申设案
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2145450/)
 
-作者：纽约磐石农场 – 在远方
+作者：纽约香草山医疗部 – 云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月10日，据台湾媒体报道，中华民国大陆委员会副主委邱垂正当天严厉地驳斥了中共当局在两会期间的涉台言论。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20.jpg)
-陆委会表示，中华民国决不承认和接受中共所谓“一个中国”的原则。因此，中共在两会期间试图通过媒体和学者对外释放所谓“对台战略”的行为，无非是自我宣传和自欺欺人的做法。
+3月9日，台湾国家通讯传播委员会NCC否决了中资企业中天电视将其在境外的中天亚洲台转入台湾设台的申请案。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-19.jpg)
+中天电视在2020年因为老板明显违反法令，直接干预新闻播放的内容，替中共做宣传，被NCC撤销了新闻台的执照。该企业近日又重新包装，想借由境外电视台的外壳再度进入台湾。
 
-台湾方面还指出，中共政府一直以来拒绝承认中华民国是主权国家的事实，甚至还企图在二十大后形成中共高层的统一对台工作部署，这些荒谬与欺骗性的举动对两岸关系的发展毫无助益。
+NCC的审核结果表示，该台提出的申设案，牵涉到与中共国境内电视台的合制节目，而且该台申请的是成立综合电视台，申请书中的新闻节目比重却超过一半。 这两项都违反了现行法规，因此否决了该申请案。
 
-陆委会也强调称，鉴于中共始终不愿意放弃武力犯台的野心，以及积极奉行对外武力扩张的政策，加之其持续对台湾进行军事威吓与挑衅的做法，这一系列的举措都是造成台海地区局势紧张的根本原因。
+参考链接：
 
-为此，台湾当局明确道，台湾将持续与包括美、日在内的国际社会共同合作，用以维护台海及印太地区的和平与稳定。
+1. [中天亞洲台擬與東方衛視等合製節目違兩岸條例 NCC否決申設](https://www.cna.com.tw/news/ahel/202203090309.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+2. [NCC委員一致決議否決中天新聞台換照：違規嚴重 內控失靈\[影\]](https://www.cna.com.tw/news/firstnews/202011185006.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-参考链接：[中共兩會涉台言論 陸委會：自我宣傳、自欺欺人](https://www.rti.org.tw/news/view/id/2126855)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-总编: 宁文静 
-编辑: Irene木木
-审核: 宁文静
+总编: 宁文静
+编辑: 飞虹
+审核: Irene木木
 校正/发稿：Fei797
 
 **更多资讯，更多关注**
