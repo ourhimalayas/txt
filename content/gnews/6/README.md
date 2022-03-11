@@ -2,26 +2,58 @@
 ---
 
 
-## 韩国候任总统将重塑美日韩关系
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2143791/)
+## 爱的传播（新中国联邦救援在行动）
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2143803/)
 
-撰稿人：东京樱花团/山顶闲人
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-6.jpg)图片来源
-3月11日据共同社今天报道称，日本首相岸田与韩国候任总统尹锡悦通电话确认携手改善关系。两人还商定了尽快举行面对面会谈的方针。有关如何应对朝鲜核与导弹开发及绑架问题，确认了将紧密合作。尹锡悦展现出改善对日关系的意向，岸田欲关注其方面的动向。
+作者：纽约香草山教育部-蓝之灵（hortênsia)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+救援在行动
+爱在传播
+我们的帐篷里
+有食品和火
+失去家乡的人们
+不要客气
+请吃个苹果
+烤烤火
 
-据岸田就日韩关系表示，“期待您的领导力，愿为改善日韩关系共同携手。”尹锡悦也回应称，“重视日韩关系，愿为改善而合作。”会谈时间持续了约15分钟。另外，日本首相岸田文雄和韩国当选总统尹锡悦表示，他们周五同意在应对朝鲜不断变化的军事威胁方面加强与美国的三方联系。
+传播爱
+传播勇敢和正义
+救援在寒冷里如荼如火
+老人，孩子和妇女
+得到安置
+在寒风里
+请接住毛毯和水果
+围着篝火
+享受温馨片刻
 
-共同社说，岸田还在会谈中表示，“健全的日韩关系对于维护基于规则的国际秩序，确保世界和平、稳定与繁荣而言不可或缺。”他强调了加上美国的日美韩三国合作重要性，并称“有必要基于邦交正常化以来构筑的友好合作关系，发展双边关系”。
+stop the war
+Stop the war
+让爱传播
+停止侵略
+停止杀戮
+让人们回归故土
+不再流离失所
+Stop the war
+stop the war
+传播爱与温暖
+停止侵略
+停止杀戮
+让人们回归故土
+愉快生活
 
-韩国前任左翼总统文在寅在任期间，一味在朝鲜半岛问题上对中共和朝鲜金家政权退让妥协，并排出议长参加北京冬奥会开幕式。而对在日本和美国在领土问题与驻军问题上多次激化矛盾，使本身较为牢固的美日韩关系日趋恶化。韩国大选结束，候任总统尹锡悦立志要改善与美日关系，三方将加强合作，对中共和朝鲜金家政权采取有效行动，相信尹锡悦一扫文在寅在任时期的外交阴霾，重塑新形势下的美日韩关系，让韩国在外交上重回西方阵营。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2406.jpg)
 
-新闻来源
+审核/编辑/发稿:qiutian（邱甜）
 
-[韩国大选撬动了美日韩关系](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20220311-%E9%9F%A9%E5%9B%BD%E5%A4%A7%E9%80%89%E4%BF%AE%E6%92%AC%E5%8A%A8%E4%BA%86%E7%BE%8E%E6%97%A5%E9%9F%A9%E5%85%B3%E7%B3%BB)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
