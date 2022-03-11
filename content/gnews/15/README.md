@@ -2,17 +2,19 @@
 ---
 
 
-## 【锁链梦•人道救援版】砸碎全球邪恶的锁链，正道主义在行动！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2143265/)
+## 视频|俄罗斯逼近基辅 乌克兰民众流离失所
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2143305/)
 
-俄罗斯入侵乌克兰，无数的人道灾难正在发生，新中国联邦的人道救援行动正在争分夺秒的救援每一位灾难中的人们！正道主义砸碎全球邪恶的锁链，新中国联邦在行动！
-视频来源：GETTR
-撰稿/发布：一叶知秋
+制作：香草山视频部
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+随着俄罗斯军队逐渐向乌克兰首都基辅逼近，该地区的乌克兰民众已经连续七天承受着来自俄罗斯的轰炸。然而，当地大部分都是老年人，可他们也不得不被迫离开自己的家乡，而且他们也明白，自己或许再也无法回来。但是，他们至今都不知道自己还能够前往何方。
+
+发稿：林礼
+
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
