@@ -2,29 +2,31 @@
 ---
 
 
-## 有声|英国承诺提供 1 亿美元帮助维持乌克兰政府运转
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2140985/)
+## 解放军以军演为名秘密搜救坠落军机
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2141010/)
 
-配音：香草山教育部 – 百香果
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-外媒3月6日报道，英国首相办公室表示，英国将通过世界银行向乌克兰提供 1 亿美元援助，以维持乌克兰国家核心职能的运转并减轻俄罗斯入侵造成的财政压力。 英国希望通过提供防御性军事援助、再次主张对克里姆林宫实施更严厉的制裁，以及提供财政支持等措施，寻求在国际社会应对俄乌危机中发挥核心作用。
+![资料照：中国军机J-15战机在军演中从辽宁号航母上起飞。（2016年12月23日）](https://gdb.voanews.com/6F8A7328-3896-45A8-8105-86813CD80792_cx0_cy10_cw0_w1023_r1_s.jpg)资料照：中国军机J-15战机在军演中从辽宁号航母上起飞。（2016年12月23日）
+据美国之音3月11日报道，台湾国安局局长陈明通10日证实，中共国本月早些时候有一架军机在南中国海接近越南的水域坠毁，解放军以进行军事演习为名封锁了相关海域，展开搜救。
 
-不过，仍有很多声音批评约翰逊政府的制裁过于缓慢，同时，难民计划也令人失望。 英国当局表示，除了已经承诺的 2.9095 亿美元之外，最新一轮的资助可用于支付乌克兰公共部门工人的工资，支付养老金和社会保障金。 这笔资金将通过世界银行多方捐助者信托基金支付，该基金旨在加快对乌克兰的捐款，并已被其他一些国家使用。
+陈明通的说法印证了越南一名军事记者的一篇推文，声称中共国空军一架运-8反潜机3月1日在中共国海南三亚西南海域疑似坠海失联。解放军宣布3月1日至2日两天，从3月5日起进行为期一个多星期的军事演习。该记者表示，这两次军演只是解放军为展开搜救行动而释放的烟幕弹。
 
-文字版原文：[英国承诺提供 1 亿美元帮助维持乌克兰政府运转](https://gnews.org/zh-hans/2133264/)
+中共国是南中国海主权纠纷中最大的声索国，声称对几乎全部南中国海拥有主权。陈明通表示，解放军的这次行动在于趁全球关注俄乌战争而对南中国海的关注度下降之际，测试美国及其它南中国海声索国的反应。俄乌战争越深入，中共越想迅速拿回台湾。前方打仗，后方军演，中共一直都在为战争做准备。
 
-音频处理：Fei797
-发稿：Fei797
+新闻参考链接：[https://www.voachinese.com/a/taiwan-says-china-closed-off-part-of-south-china-sea-to-look-for-crashed-plane-20220310/6479377.html](https://www.voachinese.com/a/taiwan-says-china-closed-off-part-of-south-china-sea-to-look-for-crashed-plane-20220310/6479377.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+编辑：胖丁
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

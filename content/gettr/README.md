@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 2:47 AM (UTC)`
+
+【Ukraine Rescue】03/10/2022 The large tent built by our New Federal State of China and the Rule of Law Foundation volunteers in Medyka has become the transit point for the Red Cross<br/><br/>【乌克兰救援】03/10/2022 新中国联邦和法治基金志愿者们在Medyka搭建的大帐篷成为国际红十字会的中转站
+![img](https://media.gettr.com/group26/getter/2022/03/11/02/3b3dbce8-8fa7-72c7-97df-ab6eedb6e4fc/out.jpg)
+
+---
+
 `@miles 3/11/2022 2:24 AM (UTC)`
 
 【Ukraine Rescue】Volunteers for the Ukrainian rescue operation of the NFSC and ROL Foundation use Starlink to communicate<br/><br/>【乌克兰救援】新中国联邦、法治基金的乌克兰救援行动志愿者使用星链进行通讯
@@ -147,13 +154,6 @@ The New Federal State of China and Rule of Law Foundation would like to find the
 
 【Ukraine Rescue】03/10/22 NFSC Ukraine Rescue  Station in Medyka, Poland has attracted not only a large number of refugees but also international media attention due to its well-equipped facilities.<br/><br/>【乌克兰救援】03/10/22 新中国联邦乌克兰救援行动在波兰梅迪卡的救援站因设施完备，不仅吸引了大批难民，也赢得了国际媒体的关注
 ![img](https://media.gettr.com/group49/getter/2022/03/10/21/3d9af961-db3c-ce0d-3d99-63fe339aa65b/out.jpg)
-
----
-
-`@miles 3/10/2022 9:36 PM (UTC)`
-
-【Ukraine Rescue Operation by #NFSC and #ROLF】🇺🇦🆘📣 <br/><br/>Mar.9, German musician #DavideMartello played a piano solo 🎹at the #Medyka refugee camp in #Poland for all the donors of the #RuleofLawFoundation <br/><br/>#UkraineRescue<br/>#iStandWithUkraine 🇺🇦<br/><br/>【 #新中国联邦乌克兰救援行动】🇺🇦🆘📣 <br/><br/>3月9日德国音乐家 #达维德马特洛 🎹 在波兰#Medyka 难民营特别为所有 #法治基金 #ROLF 的捐款者演奏了一首钢琴曲<br/><br/>#乌克兰人道主义救援🇺🇦<br/>#法治基金 <br/>#新中国联邦
-![img](https://media.gettr.com/group18/getter/2022/03/10/21/f65d1d0b-b21b-d93e-0622-fe77d8f1cdd0/out.jpg)
 
 ---
 

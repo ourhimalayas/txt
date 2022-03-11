@@ -2,39 +2,25 @@
 ---
 
 
-## 有声|波兰难民营负责人请求新中国联邦救援团队帮助
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2140920/)
+## 以乌克兰为镜！ 台湾须强化不对称战力与作战准备
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2140952/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-乌克兰当地时间3月9日，位于波兰边境口岸米蒂卡（Medyka）的难民安置点，天空飘着小雪，天气十分寒冷。新中国联邦救援团队迅速地搭建起了救援帐篷，供难民暂时休息，并热心给予帮助。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5eb452a2ac1a9e2a00bcd201619bebfd.jpg)
-救援团队的行动力和专业表现赢得了波兰当地难民营救组织负责人的高度赞扬，他表示，由于难民不断涌入，安置点供难民简单休息的帐篷难以负荷，他们联系了国际红十字会，对方却不提供更多帐篷，令人气愤。该负责人听闻新中国联邦救援团队准备搭建大型帐篷（5乘10米）供更多难民休息，主动联系文科战友，表示愿意提供难民安置点最好的位置用于帐篷搭建。
+美国助理防长卡尔林3月11日出席国会听证会表示，乌克兰情势非常值得台湾研究，从此可看出台湾须打造不对称战力，让人民做好作战准备，才能在主权遭中共侵犯时尽快动作。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-15.png)图片来源：美联社
+由于俄乌爆发战火，美方能如何提供乌克兰更多协助成为听证会重点。但为了避免印太区域也上演类似冲突，参议院外委会主席梅南德兹（BobMenendez）、共和党首席议员里契（Jim Risch）双双关心起台湾防卫战力。
 
-新中国联邦救援团队立即行动，由于该位置无法驶入货运车辆，前线战友们一趟趟人工搬运帐篷各部件，毫无怨言。文科战友表示，他们希望为难民们提供力所能及的帮助，这是真正的救助行动，而不是像中共国大使馆宣称已救出所有身在乌克兰的中国人，实则还有很多中国人困在乌克兰当地。
+简评：据郭文贵先生爆料称，俄乌战争习大神发现美国是最大收益者，西方社会已经容不下他和普京这样的独裁者。中共如今不敢跟俄罗斯翻脸，也不敢跟美国翻脸，走上绝路的中共会放毒，发动另一场能源与区域性战争。
 
-截至发稿之际，帐篷正在紧张有序搭建中。搭建位置位于国际媒体中心旁边，届时，世界各国媒体的镜头中都将出现新中国联邦国旗的标志性蓝色。
+就此看来，台湾的危险已经越来越大，随时都可能遭受中共的攻击，正如美国助理防长卡尔林所说，台湾须打造不对称战力，让人民做好作战准备，才能在主权遭中共侵犯时尽快动作。
 
+新闻来源：[联合新闻网](https://udn.com/news/story/10930/6156502?from=udn-catebreaknews_ch2)
 
+撰稿/发布：一叶知秋
 
-文字版原文：[波兰难民营负责人请求新中国联邦救援团队帮助](https://gnews.org/zh-hans/2133317/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
