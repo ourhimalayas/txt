@@ -2,42 +2,30 @@
 ---
 
 
-## 新中国联邦法制基金乌克兰人道救援行动（十）
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2142416/)
+## 尹锡悦当选韩国新任总统 对外关系政策备受关注
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2142711/)
 
-【玫瑰看新闻】每日快讯
+**撰稿：日本东京方舟农场 目该赛   **
 
-1.2022年3月6日新中国联邦法制基金从乌克兰把这96个孩子和十几位老师救了出来，他们已经抵达波兰的酒店，休整之后会安排他们赴西班牙。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-9.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-4.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-3.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/5-2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-3.jpeg)
+据《韩联社》3月10日报道，韩国最大在野党总统候选人尹锡悦10日赢得第20届总统选举，其执政后对外关系走向备受关注。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/400.jpg)图为3月10日在首尔汝矣岛国会图书馆尹锡悦举双手致意。 （图片来自韩联社/国会摄影记者团）
 
+据报道，从尹锡悦的竞选纲领来看，尹锡悦提出的政策重点在于加强韩美同盟关系。从其负责外交安全事务的幕僚阵容来看，国会议员赵太庸、前外交部第二次官（副部长）金圣翰等“美国通”居多，而“中（共）国通”阵容相对薄弱。
 
+在外交政策方面，尹锡悦对朝鲜和中共国采取更强硬的立场，提倡降低对华依赖度。相比之下，他更希望提升与美国的联系，包括重建韩美同盟，并在半导体、核电以及其他尖端技术方面与华盛顿合作。
 
-2.2022年3月7 由法治基金和NFSC从乌克兰救出的大约100名儿童以及他们的老师，在波兰克拉科夫的一家酒店休息后出发，前往西班牙巴塞罗那，整个行程由法治基金和NFSC提供免费食宿和免费大巴
+据了解，为了应对朝鲜的威胁，尹锡悦在竞选期间还提出可能扩大部署萨德（THAAD）反导系统。其首席外交顾问金星汉（Kim Sung-han）今年2月也曾向外媒表示，尹锡悦计划增购萨德系统，并部署在更靠近首尔的地方。若这些计划得到落实，韩中关系有可能陷入僵局。
 
+参考链接：
+1.[https://m-cn.yna.co.kr/view/ACK20220310001500881?section=politics/index](https://m-cn.yna.co.kr/view/ACK20220310001500881?section=politics/index)
+2.[https://www.bbc.com/zhongwen/simp/world-60686843](https://www.bbc.com/zhongwen/simp/world-60686843)
+3.[https://m.mobile01.com/topicdetail.php?f=780&t=6554871](https://m.mobile01.com/topicdetail.php?f=780&amp;t=6554871)
 
-
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+撰稿：目该赛
+编辑：幽蘭自得
+总编：老孙
+校对发布：Linda
 
  
 

@@ -2,63 +2,28 @@
 ---
 
 
-## 中国人都是铁链女
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2139526/)
+## 媒体报道：格哈德·施罗德应乌克兰的要求会见弗拉基米尔·普京
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2139686/)
 
-撰稿：纽约香草山金融部 – AT
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-我本花一朵 
-被拐骗山中 
-从此亲人永相隔 
-囚禁二十年
-我受尽了折磨
-这个世界不要我
-醒来吧 别再如此冷漠
-醒来吧 抛掉所有懦弱 
-只为能紧握住亲人手 
-要埋葬那邪恶的中共 
+**《政客》报道，格哈德·施罗德在莫斯科与俄罗斯总统弗拉基米尔·普京会面。这是乌克兰人所希望的。**
 
-牙齿全拔落 
-铁锁已斑驳 
-这就是我的一生
-你若不醒来 
-还在梦里游走 
-永世地狱做猪狗 
+作者：BLZ / Kuri 原文发布于2022年3月10日20:38
+翻译：LK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-7-1.jpg)图片：前总理格哈德·施罗德祝贺弗拉基米尔·普京就任俄罗斯总统。摄于2018年/dpa/Alexei Druzhinin
 
-牙齿全拔落
-铁锁已斑驳 
-同胞快醒来 
-从此站着活 
-我们砸碎这铁锁
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2747.jpg)
-这是一首献给所有被中共奴役的中国人的歌！
-这首歌不只在写一位被绑架，被强奸，被虐待的中国女人的悲惨人生，它是所有中国人一生的缩影。
+据媒体《政客》（Politico）的欧洲分支报道，称前总理格哈德·施罗德将在莫斯科与俄罗斯总统弗拉基米尔·普京会面（[Gerhard Schröder in Moskau sein, um sich mit dem russischen Staatspräsidenten Wladimir Putin zu treffen](https://www.politico.eu/article/gerhard-schroder-in-moscow-to-meet-putin-in-ukraine-peace-bid-sources)）根据《图片报》（[Bild-Zeitung soll er](https://www.bild.de/politik/2022/politik/medienbericht-altkanzler-schroeder-trifft-putin-in-moskau-79411314.bild.html) ）的网站报道，他将对乌克兰冲突进行调解。据称，社民党领导层对此行程一无所知。然而，记者Florian Eder写道，施罗德是应乌克兰人的要求动身前往的。
 
-铁链女因为反抗，被拔掉所有牙齿；她因为要说出真相，被剪掉舌头；她因为要逃跑，被用铁链捆绑了24年。
+“消息人士告诉Politico网站，施罗德访问莫斯科之前，他在伊斯坦布尔与一名乌克兰政治家进行了会谈，他是该国与俄罗斯和平谈判代表团的成员，”Politico网站称（[heißt es auf der Website von Politico.](https://www.politico.eu/article/gerhard-schroder-in-moscow-to-meet-putin-in-ukraine-peace-bid-sources)）。 乌克兰人想知道格哈德·施罗德是否能在俄罗斯和乌克兰之间建立一座桥梁。会议将在星期四晚上举行。
 
-在中共统治中国的70年里，新疆人，西藏人，内蒙人，青海人以及所有生活在中国这片土地的人民都此起彼伏地奋起反抗过中共的独裁统治，但都被中共派军队残暴震压。中共建起防火墙，控制一切媒体，让中国人不知道真相，不能发声。停办护照，关闭国门，把中国人禁锢在山河破碎的国土上永世为奴。
+乌克兰驻柏林大使Andrij Melnyk先生上周已经暗示，施罗德可以充当调解人（[dass Schröder als Vermittler fungieren könnte](https://www.bild.de/politik/ausland/politik-ausland/ukrainischer-botschafter-ueber-ex-kanzler-schroeder-koennte-versuchen-zu-vermitt-79344776.bild.html)）。Politico称，乌克兰议员Rustem Umerov先生已邀请施罗德尝试进行调解。他们将于周一在伊斯坦布尔会面。据称，乌克兰总统泽连斯基亲自恳请施罗德介入。施罗德曾说，他不确定普京是否想要见他，但他会尝试。然后他给普京的一个亲信打电话，问他是否可以来。普京的亲信开了绿灯，并表示周三一架俄罗斯飞机将在伊斯坦布尔接施罗德。
 
-我们每一个人来到世上，都应该有像花一样有美丽的生命，都应该绽放光芒，都应该享受大自然的阳光，雨露，可中国人，自从出生起，生命就已经枯萎了，没有感受到过生命的美好与尊严。
+施罗德的妻子So-yeon Schröder-Kim女士在社交媒体上宣布，她经常被问及她的丈夫是否可以调解冲突。 “许多人（……）亲自与我联系，询问我丈夫是否可以与普京先生谈论乌克兰的战争。”（[„Viele Menschen haben sich (…) bei mir persönlich gemeldet, ob mein Mann nicht mit Herrn Putin über den Krieg in der Ukraine reden könnte.“](https://www.waz.de/politik/gerhard-schroeder-frau-ukraine-russland-kritik-instagram-post-id234709823.html)） 除其他外，现在这种敦促可能也导致了施罗德与普京的会面。两人是多年的朋友。
 
-中国人从出生到死亡都是被中共控制计划的，中国人不能左右自己的人生，包括生命，思想及身体。所有的中国人都被邪恶的中共的有形或无形的锁链锁住了。
+在乌克兰战争和俄罗斯入侵开始后，前总理格哈德·施罗德因没有与总统弗拉基米尔·普京保持距离，以及放弃与俄罗斯国有公司俄罗斯天然气工业股份公司的业务关系而受到批评。
 
-新中国联邦带给所有渴求自由与正义的中国人挣脱锁链的机会，这是百年来，中国人最接近自由的一次，我们要抗争，坚持到底，永不放弃，让中国人永不为奴！
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-11.jpeg)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
-
+相关链接：[https://www.berliner-zeitung.de/wochenende/laut-medienberichten-trifft-altkanzler-gerhard-schroeder-in-moskau-wladimir-putin-li.216269](https://www.berliner-zeitung.de/wochenende/laut-medienberichten-trifft-altkanzler-gerhard-schroeder-in-moskau-wladimir-putin-li.216269)
+发布：LK
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

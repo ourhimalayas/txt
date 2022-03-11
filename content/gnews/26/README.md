@@ -2,37 +2,31 @@
 ---
 
 
-## 52岁参议员金伯利•基钦突然去世，其去年接种两剂疫苗
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2141763/)
+## 有声｜中共称撤侨完毕 滞乌中国留学生：心凉了
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2142387/)
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+**By:秘翻新闻**
 
-编辑/整理：小鱼儿
+**2022-03-11**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片22.jpg)
+乌克兰大使馆日前发布消息宣称，所有中国人已撤出乌克兰，却遭仍滞留在乌克兰的中国公民和留学生的打脸。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/10-19.png)图片来源：雅典娜设计组&Adelaide Now
+中共党媒报导，8号上午，被战火困在苏梅州的最后一批中国留学生乘大巴撤离，共计115人。至此，在乌的所有中国人已撤出乌克兰的危险区域。
 
+3月10号，仍被困在乌克兰的中国留学生林同学说：看到这个报导，我的心直接哇哇的凉。他表示，大使馆送走了115人，但苏梅州还有4个人没送走。大使馆知情，但以人太少为由让这4个学生自己想办法去到150公里外的接应点。
 
-据九台新闻（9news）3月11日报道，昨天，参议员金伯利·基钦（ Kimberley Kitching） ，在墨尔本疑似“心脏病”发作。突然去世，享年 52 岁。基钦参议员出生于布里斯班，1995 年移居墨尔本。
+林同学说，他多次尝试逃离，但战火纷飞，路上又有层层哨卡走不了。
 
-密友、前联邦工党领袖比尔·肖顿说：“我接到她丈夫的可怕电话，说她走了。所以我们跑到斯特拉斯莫尔的这条街上，她把车停在了那里，她心脏病发作了，我们和她的丈夫一起等到殡仪馆的车到来，这太可怕了。” 另外，据基钦参议员个人推文显示，去年7月，已经接种第二剂疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-23.png)
-目前，不确定基钦是否，接种第三剂疫苗。
+被困哈尔科夫的中国留学生赵同学称，在俄军入侵前，其它国家的学生已撤离，但他相信大使馆会统一撤侨，因此没有撤离。
 
-昨天早些时候，基钦参议员在脸书上，分享了支持昆州和新州人们受洪水影响的信息，“我的想法是与那些在新州和昆州失去家园、企业和亲人的人同在。”
+中共因撤侨行动迟缓，导致众多中国留学生和华人一度滞留乌克兰。据郭文贵先生在3月6日的大直播中爆料，截至当日，乌克兰还有约3万中国公民和留学生没有撤离。
 
-很遗憾，我们失去了一位有爱心、有正义感的参议员朋友，一路走好。
+（秘翻新闻 二丫 Julia 编辑报道）
 
-参考新闻：[Labor Senator Kimberley Kitching dies aged 52](https://www.9news.com.au/national/kimberley-kitching-dead-victorian-labor-senator-was-52/a63c9639-5071-4248-a5e5-629e4fed7ead)
+发布:星星
 
-发布：
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

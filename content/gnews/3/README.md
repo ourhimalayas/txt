@@ -2,31 +2,33 @@
 ---
 
 
-## 尹锡悦当选韩国新任总统 对外关系政策备受关注
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2142711/)
+## 快讯：俄罗斯“民族品牌”拉达汽车因西方制裁被迫停产
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2142864/)
 
-**撰稿：日本东京方舟农场 目该赛   **
+撰稿：一碗兰州（文远）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-11-190726.png)
+图片来自网络
 
-据《韩联社》3月10日报道，韩国最大在野党总统候选人尹锡悦10日赢得第20届总统选举，其执政后对外关系走向备受关注。
+据《华尔街日报》报道，俄罗斯标志性汽车制造商拉达汽车厂因母公司AvtoVAZ遭受西方制裁，缺乏制造汽车所需的必要零件而导致停产，数千名工人已放假。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/400.jpg)图为3月10日在首尔汝矣岛国会图书馆尹锡悦举双手致意。 （图片来自韩联社/国会摄影记者团）
+拉达（Lada）是俄罗斯生产商AvtoVAZ旗下的汽车品牌，自1970年代的苏联时期开始投产，在苏联、东欧国家及中国享有极大知名度，是俄罗斯唯一拥有巨大市场份额的本土品牌，2021全年营收31.3亿欧元、年销量达35万辆，被称为“俄罗斯民族精神的一部分”。
 
-据报道，从尹锡悦的竞选纲领来看，尹锡悦提出的政策重点在于加强韩美同盟关系。从其负责外交安全事务的幕僚阵容来看，国会议员赵太庸、前外交部第二次官（副部长）金圣翰等“美国通”居多，而“中（共）国通”阵容相对薄弱。
+报道称AvtoVAZ的一位发言人表示：“由于全球芯片短缺，Lada公司计划停产至3月11日。”他没有就制裁发表评论。
 
-在外交政策方面，尹锡悦对朝鲜和中共国采取更强硬的立场，提倡降低对华依赖度。相比之下，他更希望提升与美国的联系，包括重建韩美同盟，并在半导体、核电以及其他尖端技术方面与华盛顿合作。
+知情人士透露，AvtoVAZ有超过20%的零部件是进口的。如果制裁继续，Lada汽车工厂可能需要数月甚至数年的时间才能恢复正常生产。
 
-据了解，为了应对朝鲜的威胁，尹锡悦在竞选期间还提出可能扩大部署萨德（THAAD）反导系统。其首席外交顾问金星汉（Kim Sung-han）今年2月也曾向外媒表示，尹锡悦计划增购萨德系统，并部署在更靠近首尔的地方。若这些计划得到落实，韩中关系有可能陷入僵局。
+自俄罗斯入侵乌克兰以来，西方对俄罗斯相继出台多项严厉制裁措施。导致Lada这一俄罗斯标志性汽车制造商停产。
 
-参考链接：
-1.[https://m-cn.yna.co.kr/view/ACK20220310001500881?section=politics/index](https://m-cn.yna.co.kr/view/ACK20220310001500881?section=politics/index)
-2.[https://www.bbc.com/zhongwen/simp/world-60686843](https://www.bbc.com/zhongwen/simp/world-60686843)
-3.[https://m.mobile01.com/topicdetail.php?f=780&t=6554871](https://m.mobile01.com/topicdetail.php?f=780&amp;t=6554871)
+这是俄罗斯经济受西方制裁影响的一个具体例子，普京的侵略战争同样给俄罗斯人民带来灾难，新车短缺只是刚刚开始。
 
-撰稿：目该赛
-编辑：幽蘭自得
-总编：老孙
-校对发布：Linda
+参考消息：
 
+华尔街日报：[Iconic Russian Car Maker, Known for Cold War Self-Reliance, Halts Production](https://www.wsj.com/articles/russian-car-maker-known-for-cold-war-self-reliance-idles-factories-11646828796?mod=e2tw)
+
+*审核：文筝*
+
+*发布：信心满满*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
