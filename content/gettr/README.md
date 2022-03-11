@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 9:47 AM (UTC)`
+
+【乌克兰救援】03/10/22  乌克兰难民们在我们温暖的大帐篷中休息<br/><br/>【Ukraine Rescue】03/10/22 Ukrainian refugees rest in our big warm tent<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group13/getter/2022/03/11/09/8b800798-7350-bba7-f84a-693127e74424/out.jpg)
+
+---
+
 `@miles 3/11/2022 9:39 AM (UTC)`
 
 【Ukraine Rescue】03/10/22   A lot of media are going to report the NFSC Medyka Rescue Station for its good service. The NFSC and ROLF will assign more volunteers to this mission of international humanitarian rescue. On the contrary, the CCP hasn’t assigned anyone. <br/><br/>【乌克兰救援】03/10/22  许多媒体将报道新中国联邦的梅迪卡救援站的服务。新中国联邦和法治基金将派遣更多义工参与这场国际人道主义援救行动。相反，中共没有派遣任何人。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,13 +154,6 @@
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特别节目 2022-03-10
 ![img](https://media.gettr.com/group17/origin/2022/03/10/22/896920cc-9c81-638f-e636-44aa9999aebd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/10/2022 10:45 PM (UTC)`
-
-3/9/2022 Miles Guo: The COVID vaccine disaster will be the most terrible thing. The essence of the Russia-Ukraine war is the war between the US and the CCP, with the Chinese people being sacrificed. I strongly recommend that fellow fighters in Communist China download and use the Himalaya Pay ASAP to save yourselves in the war!<br/><br/>3/9/2022 文贵直播：最恐怖的将是疫苗灾难；俄乌之战的本质是美中的战争，中国人是战争中的牺牲品；文贵建议国内战友们尽快下载和使用喜支付以在战争中自救！<br/>
-![img](https://media.gettr.com/group48/getter/2022/03/10/22/38a588bb-b6e7-88da-a46e-48b5fb899798/out.jpg)
 
 ---
 

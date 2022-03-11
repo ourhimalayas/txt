@@ -2,38 +2,35 @@
 ---
 
 
-## 俄军再次轰炸乌克兰妇幼医院
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2143320/)
+## 美国将旅客口罩强制要求延长至4月18日
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2143321/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+据《NewsMax》记者：Newsmax Wires，2022年3月10日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1109.png)图片源自：Spencer Platt/Getty
+据政府官员称，乔·拜登政府将把旅客在飞机、火车和交通枢纽佩戴口罩的要求延长至4月18日，公共卫生当局正在审查何时应该放弃强制令。
 
-#### 整理/编辑：围剿维尼熊
+预计将于周四晚些时候宣布的这一举措将延长原定于3月18日到期的当前要求。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/D96DB2AC-D656-475A-9737-1893DF8C3BDF.jpg)图片来源：网易
+据一位不愿透露姓名的官员透露，疾病预防控制中心正在根据其新发布的“COVID-19 社区级别”，制定“修订后的政策框架”，以确定交通系统何时需要佩戴口罩。
 
+运输安全管理局的延期是在 CDC 的建议下进行的。航空公司和一些政府官员认为，这可能是口罩要求在全国范围内的最后一次延伸。
 
-根据中央社3月10日报道，联合国人口基金（UN Population Fund）宣布，俄罗斯袭击了乌克兰东南部城市马里乌波尔（Mariupol）一家医院。
+截至3月3日，超过90%的美国人口居住在 COVID-19 社区级别较低或中等的地区，不再建议在室内环境中佩戴口罩。
 
-马里乌波尔市长表示，该妇幼医院遭轰炸造成3人死亡，包括1名小孩。
+CDC主任Rochelle Walensky博士在3月2日，解释了为什么该机构推迟取消要求，却允许人们在电影院和体育场馆不戴口罩聚集。
 
-联合国人口基金的乌克兰代表纳达尔（Jaime Nadal）说，马里乌波尔的医院不是唯一遭到袭击的医院。之前还有两家乌克兰妇幼医院遭到摧毁，分别是在日托米尔州（Zhytomyr）和在萨尔蒂夫斯基（Saltivsky）的妇幼医院。
+本报告包含来自路透社和美联社的材料。
 
-纳达尔说，乌克兰有300家医院与69家妇幼医院和产科照护中心，他同时指出联合国人口基金估计乌克兰未来3个月约有8万名孕妇要分娩。
+文章来源：[**https://www.newsmax.com/newsfront/transit-mask-mandate-extend/2022/03/10/id/1060576/**](https://www.newsmax.com/newsfront/transit-mask-mandate-extend/2022/03/10/id/1060576/)
 
-纳达尔表示，乌克兰有超过4300名孕妇在2月24日到3月7日乌克兰遭到入侵时生产。
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – WenXiong
+编辑：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-就俄军炸毁马立波医院一事，西方国家对此予以严厉谴责。
-
-参考链接：[https://www.cna.com.tw/news/aopl/202203110109.aspx](https://www.cna.com.tw/news/aopl/202203110109.aspx)
-
-*发布：*Frank2021
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

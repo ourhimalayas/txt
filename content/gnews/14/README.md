@@ -2,17 +2,27 @@
 ---
 
 
-## 【锁链梦•人道救援版】砸碎全球邪恶的锁链，正道主义在行动！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2143265/)
+## 乌克兰：不会再向俄罗斯购买核燃料
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2143271/)
 
-俄罗斯入侵乌克兰，无数的人道灾难正在发生，新中国联邦的人道救援行动正在争分夺秒的救援每一位灾难中的人们！正道主义砸碎全球邪恶的锁链，新中国联邦在行动！
-视频来源：GETTR
-撰稿/发布：一叶知秋
+文 / 陈慧璋
+更新 / 2022年3月11日 3:22 PM
+采集：玫瑰新闻组
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3075.jpg)路透社报道，乌克兰国有核电公司Energoatom周五（3月11日）宣布，该公司将不会再向俄罗斯购买核燃料。（路透社）
+
+
+（早报讯）路透社报道，乌克兰国有核电公司Energoatom周五（3月11日）宣布，该公司将不会再向俄罗斯购买核燃料。
+
+乌克兰经营的核反应堆都是前苏联时代的产物，并从俄罗斯和美国进口核燃料。
+
+新闻链接：
+[乌克兰：不会再向俄罗斯购买核燃料](https://www.zaobao.com.sg/realtime/world/story20220311-1251328)
+
+**审核：Barry Jack
+上传排版：V在途中**
+
+
 
  
 

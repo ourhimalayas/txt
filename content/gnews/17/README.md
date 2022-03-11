@@ -2,20 +2,22 @@
 ---
 
 
-## 中日财经爆┃优衣库停止在俄罗斯所有50家门店的运营
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2143106/)
+## 中日财经爆┃日本烟草停止俄罗斯市场经营活动
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2143113/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1101.png)[图片来源](http://upload.cankaoxiaoxi.com/2022/0308/1646704879467.jpg)
-“优衣库”母公司迅销（FAST RETAILING）3月10日宣布，将暂时停止在俄罗斯所有50家门店的运营。由于反对俄罗斯入侵乌克兰，海外服装巨头纷纷退出俄罗斯业务，引起了关注。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1102.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.i.haymarketmedia.asia%2F%3Fn%3Dcampaign-india%252Fcontent%252F20140307052149_123Japan-Tobacco.jpg%26h%3D630%26w%3D1200%26q%3D75%26v%3D20170226%26c%3D1&amp;imgrefurl=https%3A%2F%2Fwww.campaignchina.com%2Ftag%2F%25E6%2597%25A5%25E6%259C%25AC%25E7%2583%259F%25E8%258D%2589%25E5%259B%25BD%25E9%2599%2585&amp;tbnid=ZOhqAUFGaDgmlM&amp;vet=12ahUKEwj3jpLbyr32AhVYi_0HHctGCYsQMygAegUIARC2AQ..i&amp;docid=zp-Osdt3Lg-0VM&amp;w=1200&amp;h=630&amp;q=%E6%97%A5%E6%9C%AC%E7%83%9F%E8%8D%89&amp;ved=2ahUKEwj3jpLbyr32AhVYi_0HHctGCYsQMygAegUIARC2AQ)
+日本烟草公司（JT）3月10日宣布，将暂停在俄罗斯市场的新投资和营销活动。俄罗斯的烟草生产也可能暂停。
 
-迅销公司于2010年在莫斯科开设了第一家“优衣库”店，进入俄罗斯。目前，它拥有欧洲最多的门店。在截至2021年8月的财年合并财务报表中，俄罗斯业务领跑优衣库欧洲业务，销售额和利润均有显着增长。
+JT 在俄罗斯拥有四家工厂，员工约4,000人。当地雇员的就业将得到维持。
 
-迅销表示：“由于目前围绕纠纷的形势变化，以及继续经营面临的种种困难，我们决定暂停业务。”
+JT表示，“俄罗斯市场的营商环境空前严峻，预计对未来业务的影响将是多方面的。”
 
-迅销公司是日本的零售控股公司。持有的品牌包括知名的UNIQLO(优衣库)，以及ASPESI、Comptoir des Cotonniers、Foot Park、National Standard，GU等。是世界第三大休闲服公司，同时是亚洲最大的服装公司。
+日本烟草产业株式会社（Japan Tobacco Inc.），简称JT，是日本最大的烟草制造企业，世界第三大烟草制造商，为日经225指数成份股之一。
 
-消息来源：[ユニクロ、ロシア国内全店の営業一時休止…欧州で最多の５０店舗](https://www.yomiuri.co.jp/economy/20220310-OYT1T50227/)
+在俄罗斯销售的所有烟草产品中，有15%是由日本烟草公司的国际业务分公司日本烟草国际公司制造。日本烟草国际公司的这些产品中，有99%出产于公司位于俄罗斯圣彼得堡的Petro烟厂。
+
+消息来源：[ＪＴ、ロシアで新規投資を一時停止…たばこ生産も一時停止の可能性](https://www.yomiuri.co.jp/economy/20220310-OYT1T50272/)
 
 *编辑：东京樱花团/知了知了
 发布：东京樱花团/平安卿卿*
