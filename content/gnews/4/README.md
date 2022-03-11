@@ -2,12 +2,29 @@
 ---
 
 
-## 中共国家媒体推动普京关于入侵乌克兰的谎言
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2143563/)
+## 普京的化学武器演算
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2143618/)
 
-03/10/2022 在公开声明和国际峰会上，中共官员试图在乌克兰战争问题上采取看似中立的立场，既不谴责俄罗斯的行动，也不排除中共政府在推动和平方面充当调解人的可能性。但是，尽管其国际信息让许多人猜测北京的真实意图，但其国内媒体对俄罗斯入侵的大部分报道却讲述了一个完全不同的故事。
-**By：【秘密翻译组-精翻组 G-Translators/Elite Team】**
+信息来源：德国世界报
 
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/FILE-In-this-photo-taken-from-vid-2.jpg)
+
+
+图片来源： 美联社
+
+莫斯科指责乌克兰致力于使用生化武器。 这对乌克兰本身来说是令人震惊的。这让人想起普京已经在其他地方使用过的背信弃义的策略。
+
+西方安全界越来越担心莫斯科越来越多地指责乌克兰想要对俄罗斯使用所谓的大规模杀伤性武器。 有人担心，这可能是俄罗斯自己准备使用化学武器的宣传准备，例如，以便将乌克兰人归咎于假旗行动。
+
+一些专家还担心，莫斯科可能正在计划对自己的领土进行假化学武器袭击。 这将使俄罗斯有借口对乌克兰采取更严厉、更全面的行动。
+
+简评： 邪恶的魔鬼有如此的打算， 全世界热爱和平的人们， 只能送他下地狱。 而且用如此邪恶的手段， 要嫁祸于人 ， 如果这报道都出来了 ， 全世界的人们要警觉普京！
+
+🔗 [https://www.welt.de/politik/ausland/plus237443891/Russland-Putins-Chemiewaffen-Kalkuel.html](https://www.welt.de/politik/ausland/plus237443891/Russland-Putins-Chemiewaffen-Kalkuel.html)
+
+编辑发布： Shuizhuyu
 
  
 

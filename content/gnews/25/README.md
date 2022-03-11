@@ -2,24 +2,42 @@
 ---
 
 
-## 乌克兰救援前线图片集（一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2142693/)
+## 韩国报告了创纪录的342,446例新的中共病毒病例
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2142680/)
 
-**整理：**雅典娜情报组（禄森）
-**编辑：**翼族
-![](https://assets.gnews.org/wp-content/uploads/2022/03/photo_2022-03-10_19-49-55.jpg)
-Nicole女士是本次法治基金发起的乌克兰救援行动的前线记者，她从救援现场发来了很多照片。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-71.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-17.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片8-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片11-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片12-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片10-3.png)
-来自世界各地的媒体机构来到法治基金新中国联邦的大帐篷前报道乌克兰战争和难民，对新中国联邦的救援行动赞美有加。这些媒体包括：美联社、彭博社、盖帝图片社、意大利电视台、西班牙电视台、波兰最大报纸和电视台、阿拉伯迪拜电视台、科索沃电视台、英国时尚杂志I-D、塞尔维亚电视台、波斯尼亚国家电视台、日本NHK电视台、法国24电视台等等。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture3-4.png)
 
-*发布：翼族*
+图片来自原文
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+3月9日，周三，韩国疾病控制和预防机构说，在奥米克戎（Omicron）感染激增的情况下，韩国报告的中共病毒（COVID-19）病例创下每日342446例的新高。
+
+韩国疾病预防控制局补充说，该国还报告了另外158例中共病毒死亡案例。
+
+韩国正处于奥米克戎的高峰期，本月大多数日子都有超过20万个新增中共病毒病例记录。
+
+卫生当局说，目前有100多万人在检测出阳性后在家中隔离。
+
+本周三是韩国准备总统选举的最后一天，为确保全体国民能够投票，该国上个月修订了选举法。
+
+感染者或被隔离者可以步行进入或乘坐当地办公室提供的出租车或救护车前往投票站，在隔离的投票间投票。
+
+感染者或被隔离者在提前投票的第二天结束时被分配到一个小时的时间，周三则是一个半小时。
+
+尽管政府的大流行病管理不是竞选活动的重点，但奥米克戎正在影响投票，因为随着投票的开始会促使中共病毒感染病例达到历史最高水平。
+
+备注：
+
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- Covid疫苗本身就是随时爆发的病毒
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
+
+
+新闻来源链接：[https://www.channelnewsasia.com/asia/covid-19-south-korea-new-cases-record-mar-9-2550231](https://www.channelnewsasia.com/asia/covid-19-south-korea-new-cases-record-mar-9-2550231)
+
+本文作者：Rebecca (一切心皆不可得！)  
+上传排版：Hong
 
  
 
