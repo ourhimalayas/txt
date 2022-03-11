@@ -2,20 +2,39 @@
 ---
 
 
-## 秘翻在线：美国，欧盟，G7计划撤销俄罗斯最优惠的贸易地位
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2143852/)
+## 2022/03/08 美国与乌克兰合作保护乌克兰生物研究设施
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2143942/)
 
-撰稿：文贺JP
-![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-16.jpg)图片来源：CBS NEWS
-一位知情人士告诉哥伦比亚广播公司新闻，拜登总统将于周五宣布，美国、欧盟和G7国家将采取行动，撤销俄罗斯因入侵乌克兰而获得的“最惠国”贸易地位。
+**简评：**
 
-拜登此举之际，两党议员都呼吁他撤销与俄罗斯正式所谓的‘永久正常贸易关系’。这将允许美国和盟国对俄罗斯进口产品征收关税。
+美国助理国务卿Victoria Nuland宣布美国正在与乌克兰合作，以防止生物研究设施落入俄罗斯手中，俄罗斯也许正在谋求对这些设施的控制。
 
-与此同时，白宫新闻秘书詹·普萨基周四晚间在推特上表示，拜登政府收到的报道称，“俄罗斯可能正在考虑扣押暂停在俄运营或退出俄市场的美国和国际公司的资产” 。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0510.jpg)
 
-信息来源：[https://www.cbsnews.com/news/russia-favored-trade-status-white-house-us-companies-assets/](https://www.cbsnews.com/news/russia-favored-trade-status-white-house-us-companies-assets/)
+[**GETTR视频链接**](https://gettr.com/post/pz8xim7bff)
 
-校正: Eric Kim
+**视频字幕：**
+
+乌克兰有生物研究设施，事实上，我们现在对俄军非常关注，俄罗斯也许正在谋求对这些设施的控制。因此，我们正在与乌克兰人合作，研究如何防止这些资料在俄罗斯军队靠近时落入俄军之手。
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕：Vekap* *| 听写：云岭 | 翻译：Roberts* *| PR：nights* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+
+
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
