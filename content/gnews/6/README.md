@@ -2,12 +2,30 @@
 ---
 
 
-## 3月11日文贵大直播要点（图片1-4）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2146883/)
+## NFSC新闻、G|TV新闻访谈简报|2022年3月11日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2146902/)
 
-设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/03/213A0F47-8793-4367-917C-627B46B88B23.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/70BF4C80-0F5A-45D5-8D49-C544DC0D481F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/D4809669-7499-465A-82E5-FD8077365AA6.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/3092320D-2C7D-4BA5-BF96-7154C9AFEA7B.jpeg)
-发布：水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-4.jpg)
+
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-11.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.03.11早 《NFSC新闻》](https://gettr.com/streaming/pzgn1j1989)
+[2022.03.11早 G|TV《新闻访谈》](https://gettr.com/streaming/pzgizq5e22)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

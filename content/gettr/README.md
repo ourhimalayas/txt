@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 10:16 PM (UTC)`
+
+Russia expert Leon Aron discusses how failed military defeats have toppled previous Russian regimes and why the war in Ukraine could ‘undermine Putin’s regimes very severely’ as the truth about the invasion and deaths of Russian soldiers begins to trickle into Russia<br/><br/>俄罗斯专家莱昂·阿隆讨论失败的军事行动如何推翻了曾经的俄罗斯政权，以及乌克兰战争为什么会“非常严重地削弱普京政权”，因为入侵乌克兰的真相和俄军士兵的死亡开始逐渐传入俄罗斯
+![img](https://media.gettr.com/group6/getter/2022/03/11/22/eadeca9f-b02e-fe6a-a63a-2d9bdd5f6f14/out.jpg)
+
+---
+
+`@miles 3/11/2022 10:13 PM (UTC)`
+
+<br/>3月11号：战争中的温暖．黑暗中的智慧的火光……人类的希望……新中国联邦。
+![img](https://media.gettr.com/group42/getter/2022/03/11/22/631a0bce-dfc5-5204-1780-d33a02a73276/8876bb684f46060753e626bc8c8c4114.jpg)
+
+---
+
 `@miles 3/11/2022 10:02 PM (UTC)`
 
 Chelsea FC owner and Vladimir Putin ally Roman Abramovich are among a list of Russian oligarchs being sanctioned by the UK. No more ticket sales will be allowed, player transfers and new contracts will be banned, merchandise sales will also not be allowed. His plan of selling Chelsea FC will also not be allowed to go ahead for the time being. <br/><br/>切尔西俱乐部老板、普京的盟友阿布拉莫维奇是被英国制裁的俄罗斯寡头名单中的一个。切尔西将不被允许再出售门票，禁止球员转会和新合同，也不允许销售商品。他出售切尔西俱乐部的计划也将暂时不被允许进行。<br/>
@@ -145,20 +159,6 @@ By March 10th, more and more refugees arrived in the NFSC tent. The top media gr
 
 
 ![img](https://media.gettr.com/group34/origin/2022/03/11/07/9d8f4aa3-29a0-3dee-9104-e2a72181ea6f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/11/2022 7:09 AM (UTC)`
-
-3/9/2022 Miles Guo: The era of “democracy without autocracy” has officially arrived. Europe will re-integrate and make Ukraine the center of its high-tech, new energy, space technology, digital economy, and digital security. Communist China will disintegrate. Only the New Federal State of China has told the Chinese people that the anti-Chinese movements are taking place.<br/><br/>3/9/2022 文贵直播：“无皇有主”的时代已到来；欧洲将重新整合并以乌克兰为其高科技、新能源、太空科技、数字经济和数字安全的中心；中共国将解体！只有新中国联邦告诉了中国人，排华正在发生<br/>
-![img](https://media.gettr.com/group19/getter/2022/03/11/07/ceb3374a-463f-9b63-72ff-61434bead21e/out.jpg)
-
----
-
-`@miles 3/11/2022 7:05 AM (UTC)`
-
-3/9/2022 Miles Guo: The era of “democracy without autocracy” has officially arrived. Europe will re-integrate and make Ukraine the center of its high-tech, new energy, space technology, digital economy, and digital security. Communist China will disintegrate. Only the New Federal State of China has told the Chinese people that the anti-Chinese movements are taking place.<br/><br/>3/9/2022 文贵直播：“无皇有主”的时代已到来；欧洲将重新整合并以乌克兰为其高科技、新能源、太空科技、数字经济和数字安全的中心；中共国将解体！只有新中国联邦告诉了中国人，排华正在发生<br/>
-![img](https://media.gettr.com/group47/getter/2022/03/11/07/22004fd6-d1b5-f866-0399-02e90bf0a473/out.jpg)
 
 ---
 

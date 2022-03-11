@@ -2,33 +2,16 @@
 ---
 
 
-## 唯一能救你的就是HPay
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2146631/)
+## 447家在俄罗斯的意大利企业被抛弃
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2146622/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 翻译                                  意大利达芬奇农场                         小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-11-alle-20.13.56.png)图片来源：tgcom24.mediaset.it
+意大利工业家联合会主席卡洛•波诺里( Carlo Bonomi )在萨勒诺(Salerno)举行的一年一度工业家联合会上发表讲话，他发出了警告, 这是两年之后的又一次会议。会议主题是关于俄罗斯联邦与乌克兰之间的危机。波诺里回忆说“ 共有447家意大利企业在俄罗斯运行，营业额为74亿欧元，投资量超过110亿欧元， 但没人考虑它们，这些企业被抛弃。
 
-2022-03-09直播摘录
+原文链接：tgcom24.mediaset.it/2022/video/bonomi-447-imprese-italiane-in-russia-sono-abbandonate-\_47218360-02k.shtml
 
-狮子是全家做战，集体作战，但是虎是从来一个人做战，而且绝不输狮子，这是七哥爱看动物世界的根本原因。现在这个世界来了猎狗，中共的猎狗和俄罗斯的豹子两个之间想要干掉整个动物世界、甚至挑战狮子，狮子躲在后面去了。现在由这些小斑马什么动物出来了，猫科动物，也就是乌克兰开始要跟这两个作战，作完战以后草原上会诞生新的物种，新的霸王。那中国人是什么？中国人就是那被吃掉的一个又一个被吃掉的皑皑的白骨，无处不在的，也就是你的小白兔、小山羊什么的小鹿什么的，你就是这个牺牲品，战争中的食物。
-
-能救你的是什么？对俄罗斯所有的金融制裁，你都要想到唯一一个HPay，HPay不收你一分钱，你知道吗国内的战友？不要你一分钱，你没有任何风险，我想骗都骗不了你，我想强奸你，我也没那么多肾能强奸你。你有一个HPAY，有一个能充电的手机，有一个翻墙的办法，这是唯一救你的。因为你的钱你可给你家人和别人买东西，还有更多地使用HPay之间战友们可以买粮食，可以救你的命，可以买药，甚至是交通。听七哥的，完全不花成本地不用你有任何风险地下载一个HPay。到那时候我们就可以在一万五千里甚至在月球上也可以救你，只要HPay能用，我们就可以给你发钱，你就可以买东西，就这么简单。如果过去你问我怎么解决战争中的问题，包括台湾的同胞，HPay可以让你看到俄罗斯和乌克兰的这个战争中的最最大的灾难，通信、支付和购买你必备的生活品。
-
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑、上传： Xiao    baige
 
  
 
