@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 2:24 AM (UTC)`
+
+【Ukraine Rescue】Volunteers for the Ukrainian rescue operation of the NFSC and ROL Foundation use Starlink to communicate<br/><br/>【乌克兰救援】新中国联邦、法治基金的乌克兰救援行动志愿者使用星链进行通讯
+![img](https://media.gettr.com/group42/getter/2022/03/11/02/427c67c0-2341-ce29-267f-81f9326be99e/out.jpg)
+
+---
+
+`@miles 3/11/2022 2:14 AM (UTC)`
+
+2022.03.10 晚《新中国联邦新闻访谈》 战争后的全球地缘政治；俄罗斯的家底和结局，粮食灾难和解药
+![img](https://media.gettr.com/group4/origin/2022/03/11/02/36111a37-e4a2-ebdb-ccb8-30e0473daa95/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/11/2022 1:36 AM (UTC)`
 
 2022.03.10 晚《新中国联邦新闻访谈》人类"无皇有主"时代将至 世界新格局即将诞生；中共谎称已做好粮食储备 HPay化身救命钱包
@@ -140,20 +154,6 @@ The New Federal State of China and Rule of Law Foundation would like to find the
 
 【Ukraine Rescue Operation by #NFSC and #ROLF】🇺🇦🆘📣 <br/><br/>Mar.9, German musician #DavideMartello played a piano solo 🎹at the #Medyka refugee camp in #Poland for all the donors of the #RuleofLawFoundation <br/><br/>#UkraineRescue<br/>#iStandWithUkraine 🇺🇦<br/><br/>【 #新中国联邦乌克兰救援行动】🇺🇦🆘📣 <br/><br/>3月9日德国音乐家 #达维德马特洛 🎹 在波兰#Medyka 难民营特别为所有 #法治基金 #ROLF 的捐款者演奏了一首钢琴曲<br/><br/>#乌克兰人道主义救援🇺🇦<br/>#法治基金 <br/>#新中国联邦
 ![img](https://media.gettr.com/group18/getter/2022/03/10/21/f65d1d0b-b21b-d93e-0622-fe77d8f1cdd0/out.jpg)
-
----
-
-`@miles 3/10/2022 3:39 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
-![img](https://media.gettr.com/group22/origin/2022/03/10/14/3ceaaf4b-7bf7-b23f-fe18-c9a0794fed82/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/10/2022 2:35 PM (UTC)`
-
-【Ukrainian Rescue】03/09/22 Volunteer of NFSC & ROL Foundation Ukraine Rescue Operation interview a Germany musician who plays piano for the refugees at a rescue station in Medyka by the Ukraine/Poland border <br/><br/>【乌克兰救援】03/09/22新中国联邦和法治基金救援行动志愿者采访在乌波边境梅迪卡救助站为难民演奏的德国钢琴家
-![img](https://media.gettr.com/group4/getter/2022/03/10/14/3c79f9ca-2cea-4d8c-43d3-f736755b27c1/out.jpg)
 
 ---
 

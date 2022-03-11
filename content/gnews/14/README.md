@@ -2,30 +2,41 @@
 ---
 
 
-## 美国副总统哈里斯支持对俄罗斯进行战争罪调查
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2140740/)
+## 有声|英美宣布禁止进口俄罗斯石油和其他能源
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2140855/)
 
-![美国副总统哈里斯与波兰总统杜达在华沙举行联合记者会。(2022年3月10日)](https://gdb.voanews.com/093a0000-0a00-0242-a759-08da02ab903a_w1023_r1_s.jpg)美国副总统哈里斯与波兰总统杜达在华沙举行联合记者会。(2022年3月10日)
-据美国之音3月11日报道，美国副总统卡玛拉·哈里斯10日表示支持对俄罗斯入侵乌克兰与轰炸平民，包括一家妇幼医院的儿童及孕妇进行国际战争罪调查。哈里斯宣布在5400万美元的援助后，美国将提供新的5300万美元的人道援助。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月8日，据当地媒体报道，美国总统拜登当天发布声明宣布，将禁止进口俄罗斯的石油和其他能源，从而增强美国对俄罗斯所施加压力，而这也是美国针对俄罗斯入侵乌克兰行为所采取的最新制裁措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-13.jpg)
+拜登在声明中强调，该举措是美国人民对俄罗斯的另一个有力打击，目前已经受到了来自美国两党的强烈支持。
 
-乌克兰外长德米特罗·库列巴与俄罗斯外长谢尔盖·拉夫罗夫的首次高层会晤没有在外交方面取得进展。俄罗斯方面似乎将继续展开攻势。乌克兰总统泽连斯基称攻击医院是“种族灭绝”，并再次呼吁北约在乌克兰实施禁飞区。美国拒绝实施禁飞区，担心会卷入与俄罗斯的直接冲突。
+拜登还表示，石油以及其他能源的出口是俄罗斯的经济支柱。但鉴于俄罗斯当下对乌克兰的侵略举动，美国正在与欧洲的盟友合作，用以孤立普京和俄罗斯的经济。因此，在与世界各地的盟友和伙伴密切磋商后，美国政府实施了这一最新制裁举措。
 
-战争给无辜的平民带来的就是无辜的伤害，尤其是妇女和儿童。悍然发动战争、轰炸平民就是屠杀，应该追究俄罗斯的战争罪。
+同时，英国也在一份声明中宣布，将在2022年年底前逐步停止进口俄罗斯的石油和石油产品，以此作为对俄罗斯无端和无理对乌克兰发动战争的制裁。
 
-新闻参考链接：[https://www.voachinese.com/a/us-vice-president-endorses-calls-for-war-crimes-probe-into-russia-s-invasion-of-ukraine-20220310/6479719.html](https://www.voachinese.com/a/us-vice-president-endorses-calls-for-war-crimes-probe-into-russia-s-invasion-of-ukraine-20220310/6479719.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+对此，拜登提到，美国正在与盟友及伙伴共同合作，从而发展一套减轻依赖俄罗斯能源的长期战略；而作为制裁，这一战略正在导致俄罗斯经济的崩溃。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+文字版原文：[英美宣布禁止进口俄罗斯石油和其他能源](https://gnews.org/zh-hans/2132634/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
