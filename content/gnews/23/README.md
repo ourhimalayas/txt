@@ -2,27 +2,16 @@
 ---
 
 
-## 欧盟遏制俄罗斯信息战以捍卫乌克兰
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2146477/)
+## 447家在俄罗斯的意大利企业被抛弃
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2146622/)
 
-采编撰稿：加拿大温哥华杨帆农场 – 重生之鹰
+#### 翻译                                  意大利达芬奇农场                         小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-11-alle-20.13.56.png)图片来源：tgcom24.mediaset.it
+意大利工业家联合会主席卡洛•波诺里( Carlo Bonomi )在萨勒诺(Salerno)举行的一年一度工业家联合会上发表讲话，他发出了警告, 这是两年之后的又一次会议。会议主题是关于俄罗斯联邦与乌克兰之间的危机。波诺里回忆说“ 共有447家意大利企业在俄罗斯运行，营业额为74亿欧元，投资量超过110亿欧元， 但没人考虑它们，这些企业被抛弃。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-63-1.jpg)图片来源：timesofisrael
+原文链接：tgcom24.mediaset.it/2022/video/bonomi-447-imprese-italiane-in-russia-sono-abbandonate-\_47218360-02k.shtml
 
-
-据[以色列时报] 3月8日报道，欧盟当天决定：将暂停在欧盟国家播放俄罗斯国家媒体《卫星》和《今日俄罗斯》等的电视节目，以杜绝该国针对入侵乌克兰而日益猖獗的虚假消息传播。
-
-对此，欧盟外交政策负责人表示，由于上述俄罗斯媒体是受独裁者普京当局操控的宣传武器，因此禁播令将有效遏制俄政府当前恶意发动的信息战。此外，欧盟将对那些散布虚假战争信息，美化俄军侵略罪行的网络平台，社交帐户和科技媒体公司进行制裁，
-
-评论指出:在俄乌鏖战的关键时刻，欧盟领导人必须认清：保卫乌克兰免遭俄军的涂炭，即是捍卫欧洲乃至整个世界的和平和自由。欧洲的民主不应被独裁的普京暴政恣意践踏。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-原文链接：[https://www.timesofisrael.com/eu-pledges-to-safeguard-democracy-by-fighting-russias-information-war-in-europe/](https://www.timesofisrael.com/eu-pledges-to-safeguard-democracy-by-fighting-russias-information-war-in-europe/)
-
-
+编辑、上传： Xiao    baige
 
  
 

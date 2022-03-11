@@ -2,34 +2,42 @@
 ---
 
 
-## 乌克兰反击战 展现西方国家的高科技力量
-` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2144490/)
+## 中共以疫情为理由，开始折腾小学生
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2145625/)
 
-【撰稿】纽约香草山健身部—Ivy001
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-乌克兰在抵抗俄罗斯侵略的战争中，西方国家的高科技，发挥了重要的作用。因为精准的定位科技，加上先进的高科技武器，在短短的十几天反击战中，乌克兰军队就斩首了四名俄罗斯高级将领。
+作者：香草山教育部 -vasavarti 文·明#5267
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/NLAW反坦克导弹-1.jpg)
 
-目前，美国和北约各国已经向乌克兰提供超过2万单兵携带式反坦克武器。其中就有美国的标枪反坦克导弹，英国的NLAW反坦克导弹，两者就是坦克、装甲车和油罐车的克星，使得俄罗斯在乌克兰的地面部队推进非常缓慢。而毒刺飞弹加无人飞机，还有卫星定位的配合，让俄罗斯战机在进入乌克兰领空就被击落，完全没有发挥出空中优势，形成有效的空中攻击。无论空中还是地面，俄罗斯军队都没有能达成快速推进的目标，让普京希望以闪电战，迅速占领乌克兰的计划落空。
 
-在网络基站受到俄罗斯攻击，面临断网之时，乌克兰总统泽连斯基向伊隆.马斯克求救，希望可以连接星链。马斯克仅仅花了几小时，就通知乌克兰，已经连接好星链，可以开始使用了。没有地面基站的星链，完全无惧俄罗斯的断网攻击，使得乌克兰的网络，在俄罗斯的炮火攻击14天后，仍然保持畅顺良好，信息传递完全不受影响。并且，粉碎了俄罗斯企图通过控制网络，来制造舆论和封锁信息的计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
 
-现代战争，其实就是高科技之战、信息之战。
 
-【编辑】文真
 
-校对/发稿：菩提树
-![](https://cdn.discordapp.com/attachments/942386408801337424/948070260186161232/3.png)
+据上海卫健委信息，上海 2022 年 3 月 10 日，新增本土新冠肺炎确诊病例 11 例，新增本土无症状感染者 64 例，新增境外输入性新冠肺炎确诊病例 32 例，新增境外输入性无症状感染者 10 例。据上海市民信息，3 月 11 号，由于核酸登记人数太多，上海健康云崩溃，暂停核酸检测服务。上海的小学生在学校隔离时连床都没有，趴在桌子上，裹着被子睡觉。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-43.jpg)
+
+现在流行的病毒致病程度并不高，大部分都是无症状感染者，英国等很多国家取消了各种强制措施，不再让疫情影响人民生活，但是中共让小学生睡在教室，一张床都没有，完全是折腾。中共的疲民，苦民连孩子都不放过，实在太邪了了，必将被新中国联邦人消灭。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
+
+编辑/校对/发稿：Daxia
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+
+
 
  
 

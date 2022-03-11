@@ -2,62 +2,36 @@
 ---
 
 
-## 新西兰财经G乐部2022年3月11日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2146203/)
+## 俄罗斯在可能的债务违约后将面临的后果
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2146347/)
 
-采集整理：蚂蚁的城堡
+#### 编译： Cran
 
-提纲：
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1647020663.png)Youtube screen shot 
+据多家媒体3月10日报道，国际货币基金组织（IMF）警告，俄罗斯非常接近债务违约。违约将使其借贷成本升高或难以续贷。作为应对，莫斯科将会减少政府支出和提高税收。
 
-1、潘石屹解释七折卖楼：公司近期需要还债
+在西方的制裁后，俄罗斯几乎无力偿还债务。国际货币基金组织总裁克里斯蒂娜·乔治娃（Kristalina Georgieva）周四告诉记者，制裁将使俄罗斯不能将其在 IFM 的 “特别提款权”，转换为货币。惠誉评级（Fitch Ratings）本周表示，俄罗斯的债券违约 “迫在眉睫”。
 
-2、阳光城危机持续发酵：业绩恶化巨额亏损，核心高管争相逃离
+普京上周签署了一项允许以卢布偿还外债的法令。下周三，俄罗斯政府必须支付1.17亿美元（8900万英镑）的部分美元债务。如果以卢布支付，最终可能引发货币互换。
 
-3、被罚3060万元：控制20家券商44个账户、限制期内交易达11亿元
+**历史上的违约国**
 
-4、李小加称LME宣布镍交易无效符合交易规则
+追踪全球主权债务违约情况的加拿大银行和英格兰银行估计，2020年全球违约的政府债务总额为4432亿美元，约为世界公共债务的0.5%。最近违约的政府包括阿根廷、伯利兹、厄瓜多尔和苏里南，这些国家通常无法跟上以外币计价的付款。
 
-5、加密货币相关股票在对行政命令的积极反应中大幅上涨
+包括美国和英国在内的一些国家有着良好的历史记录。然而，这两个国家过去都曾违约——包括1672年查理二世统治时期的英国，和1862年美国内战期间的美国。
 
-正文
+**违约的后果**
 
-**1、潘石屹解释七折卖楼：公司近期需要还债**
-![img](https://media.gettr.com/group9/origin/2022/03/11/08/e23c9e40-5b33-cdf0-24d4-7ed25004a7d0/53ed964b70253f39a131550588525b46_500x0.png)
-3月10日，SOHO董事长潘石屹在SOHO中国2022年首场租赁表彰会暨优质房源推介会上坦言，公司遇到了困难。潘石屹表示，公司现在一律按照市场估值的七折来打折销售第一批3万平方米的房子。对于为何要出售这3万平方米的房子，潘石屹称因为公司近期需要还债，债务金额和这些房子的销售额差不多。
+鉴于违约带来的声誉受损，使得未来借贷变得更加困难，成本也更高。入侵乌克兰后，俄罗斯在全球舞台上处于孤立状态。西方还阻止俄罗斯在伦敦和纽约等资本市场筹集新资金。据国际金融协会称，提高融资成本的制裁，可能迫使莫斯科削减支出或提高税收。
 
-链接：[https://finance.sina.com.cn/chanjing/dckb/2022-03-11/doc-imcwiwss5363946.shtml](https://finance.sina.com.cn/chanjing/dckb/2022-03-11/doc-imcwiwss5363946.shtml)
+除了俄罗斯的金融体系给该国带来的经济痛苦，还可能会对全球银行体系产生间接影响。然而，包括英格兰银行行长安德鲁·贝利（Andrew Bailey）在内的许多经济学家都认为，俄罗斯与世界其它地区的金融联系很小，不具有系统重要性。
 
-**2、阳光城危机持续发酵：业绩恶化巨额亏损，核心高管争相逃离**
-![img](https://media.gettr.com/group32/origin/2022/03/11/08/f5cf9a26-7f7c-bafd-6349-23a3148e6428/9d3d07cc97199405efe2b7e012f019f5_500x0.png)
-阳光城危机持续发酵。3月10日公司执行副总裁阚乃桂辞职，同时控股股东及其一致行动人所持部分股权被司法冻结。业绩恶化巨额亏损-战略股东撤退-核心高管争相逃离-流动性危机爆发-股价持续承压，实际控制人林腾蛟有心无力，只能看着自己的股份数次被动减持，或等候处置。
+国际清算银行的数据显示，外国银行在俄罗斯的风险约为1210亿美元，主要在欧洲。世界银行的莱因哈特（Reinhart）对路透社表示，迄今为止影响有限，但仍有可能出现风险。“我担心我看不到的东西，” 她说。“看似金融机构资本充足，但资产负债表往往不透明……存在俄罗斯私营部门违约的问题。
 
-链接： [https://finance.sina.com.cn/chanjing/gsnews/2022-03-11/doc-imcwipih7815233.shtml](https://finance.sina.com.cn/chanjing/gsnews/2022-03-11/doc-imcwipih7815233.shtml)
+IMF的乔治耶娃说，虽然国际货币基金组织成员国高度关注这场战争，但董事会尚未讨论暂停俄罗斯在该基金组织的成员资格。她说，该国需要被排除在外，因为它违反了国际货币基金组织协议条款规定的经济义务。
 
-**3、被罚3060万元：控制20家券商44个账户、限制期内交易达11亿元**
-![img](https://media.gettr.com/group18/origin/2022/03/11/08/b8bc3a8a-0dd6-7810-a9af-50476b1a1de0/ea290b3670f517f99af53d9296307af8_500x0.png)
-3月10日，北京证监局披露了对樊晖的行政处罚决定书。决定书显示，自2018年2月7日起，樊晖使用实际控制的44个账户组成的账户组交易“国城矿业”，然而，樊晖在持股比例超过5%后，未按法律规定履行信息披露义务。至2019年4月18日，扣除账户组内账户之间成交金额，账户组限制转让期内累计交易金额高达11.20亿元。北京证监局对樊晖处以3060万元罚款。
-
-财经G评：在中共国玩资本要讲究“姓氏”，不姓赵的全部都有罪！
-
-链接：[https://finance.sina.com.cn/jjxw/2022-03-11/doc-imcwiwss5447634.shtml](https://finance.sina.com.cn/jjxw/2022-03-11/doc-imcwiwss5447634.shtml)
-
-**4、李小加称LME宣布镍交易无效符合交易规则**
-![img](https://media.gettr.com/group14/origin/2022/03/11/09/f42143ba-49f7-b0c5-1b24-0260202e4ce5/c886086967d2dbff560490e1b0237c51_500x0.png)
-近期，LME（伦敦金属交易所）金属镍极端交易行情引发广泛关注，多空双方激烈交锋，正在市场推测镍空头可能面临巨额亏损时，LME作出决定——取消3月8日执行的所有伦镍交易，暂停交易并且本周五之前都不会恢复。对此，证券时报记者昨日在中共国政协闭幕会后追访到港交所原行政总裁李小加。他表示，这是LME清算所基于交易清算规则所做的决定。
-
-财经G评：2012年LME（伦敦金属交易所）被港交所收购就姓了“共”，不负众望的变成流氓、无赖！配方一样！
-
-链接 [https://finance.sina.com.cn/stock/hkstock/hkstocknews/2022-03-11/doc-imcwiwss5363433.shtml](https://finance.sina.com.cn/stock/hkstock/hkstocknews/2022-03-11/doc-imcwiwss5363433.shtml)
-
-**5、加密货币相关股票在对行政命令的积极反应中大幅上涨**
-![img](https://media.gettr.com/group46/origin/2022/03/11/09/b4a69a6f-6377-f1a1-975c-d97ec2a884c8/18fc939aa5dabac334fb5382e675850e_500x0.png)
-美国总统乔•拜登(Joe Biden)签署了人们期待已久的行政命令，要求美国联邦机构为数字资产创建一个监管框架，并探索未来的数字美元，这一命令引发了更广泛的市场反应，加密货币相关公司的股价大幅上涨。Coinbase (COIN)收盘时大涨10.5%，而比特币倡导者Michael Saylor的MicroStrategy(MSTR)上涨6.4%。区块链相关的交易所交易基金(ETF)也受到了市场对加密货币重拾信心的影响，ProShares比特币策略ETF (BITO)上涨10%，Valkyrie比特币策略ETF (BTF)收盘上涨10.3%。
-
-链接： [https://cointelegraphcn.com/news/crypto-related-stocks-jump-in-positive-reaction-to-executive-order](https://cointelegraphcn.com/news/crypto-related-stocks-jump-in-positive-reaction-to-executive-order)
-
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
-
-上传排版：文勇
+Source: [1](https://www.theguardian.com/world/2022/mar/11/what-happens-if-russia-cant-pay-its-debts-after-western-sanctions) [2](https://www.bnnbloomberg.ca/imf-no-longer-sees-russian-debt-default-as-an-improbable-event-1.1735856)
 
  
 

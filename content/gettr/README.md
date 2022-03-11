@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 10:02 PM (UTC)`
+
+Chelsea FC owner and Vladimir Putin ally Roman Abramovich are among a list of Russian oligarchs being sanctioned by the UK. No more ticket sales will be allowed, player transfers and new contracts will be banned, merchandise sales will also not be allowed. His plan of selling Chelsea FC will also not be allowed to go ahead for the time being. <br/><br/>切尔西俱乐部老板、普京的盟友阿布拉莫维奇是被英国制裁的俄罗斯寡头名单中的一个。切尔西将不被允许再出售门票，禁止球员转会和新合同，也不允许销售商品。他出售切尔西俱乐部的计划也将暂时不被允许进行。<br/>
+![img](https://media.gettr.com/group25/getter/2022/03/11/21/9fcca112-1b74-0bd5-d084-a2801b32317e/out.jpg)
+
+---
+
 `@miles 3/11/2022 9:54 PM (UTC)`
 
 Moldova - one of Europe's smallest and poorest countries, urges other countries to take more refugees as its health system is strained. The sheer volume of Ukrainians fleeing the terror and crossing into other countries has left some border areas overwhelmed.<br/><br/>摩尔多瓦--欧洲最小和最贫穷的国家之一，敦促其他国家接收更多的难民，因为其卫生系统已经十分紧张。逃离恐怖并进入其他国家的乌克兰人的数量之多，使一些边境地区不堪重负。<br/>
@@ -152,13 +159,6 @@ By March 10th, more and more refugees arrived in the NFSC tent. The top media gr
 
 3/9/2022 Miles Guo: The era of “democracy without autocracy” has officially arrived. Europe will re-integrate and make Ukraine the center of its high-tech, new energy, space technology, digital economy, and digital security. Communist China will disintegrate. Only the New Federal State of China has told the Chinese people that the anti-Chinese movements are taking place.<br/><br/>3/9/2022 文贵直播：“无皇有主”的时代已到来；欧洲将重新整合并以乌克兰为其高科技、新能源、太空科技、数字经济和数字安全的中心；中共国将解体！只有新中国联邦告诉了中国人，排华正在发生<br/>
 ![img](https://media.gettr.com/group47/getter/2022/03/11/07/22004fd6-d1b5-f866-0399-02e90bf0a473/out.jpg)
-
----
-
-`@miles 3/11/2022 2:47 AM (UTC)`
-
-【Ukraine Rescue】03/10/2022 The large tent built by our New Federal State of China and the Rule of Law Foundation volunteers in Medyka has become the transit point for the Red Cross<br/><br/>【乌克兰救援】03/10/2022 新中国联邦和法治基金志愿者们在Medyka搭建的大帐篷成为国际红十字会的中转站
-![img](https://media.gettr.com/group26/getter/2022/03/11/02/3b3dbce8-8fa7-72c7-97df-ab6eedb6e4fc/out.jpg)
 
 ---
 

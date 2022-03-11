@@ -2,10 +2,10 @@
 ---
 
 
-## 拜登签署行政令，要求探索创建中央银行数字货币
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2146666/)
+## 俄军空袭第尼普罗之后的惨状
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2146761/)
 
-03/09/2022 据路透社报道，美国总统拜登签署了一项行政令，要求政府评估创建中央银行数字货币的风险和好处
+03/11/2022 俄罗斯对第尼普罗的空袭导致建筑物起火，许多建筑物被完全摧毁。人们描述他们的生活好似 “人间地狱”。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

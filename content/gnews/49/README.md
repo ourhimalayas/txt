@@ -2,35 +2,31 @@
 ---
 
 
-## 乌克兰将成为欧洲的大中心
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141456/)
+## 有声｜中共国疫情快速飙升 半个中国现新病例
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2141906/)
 
-作者：首尔天池农场—追着曙光跑
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月8日的“文贵大直播”中，郭先生指出，经过俄乌战争，乌克兰人把正义和勇气重新带回人类的心中。乌克兰也会因此而重生，将蜕变成为欧洲的大中心。
+**By:秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-1.jpeg)
+**2022-03-11**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5834BAC1-C7CD-4B88-A701-2B7A396C1477.jpeg)
+综合媒体消息。中国大陆的中共病毒疫情继续快速飙升。周四新增感染人数创两年以来单日感染人数新高，吉林、山东和甘肃是重灾区。
 
-郭先生认为，未来乌克兰以高科技为中心，像UFO、太空科技、无人机，以及人类一直梦寐以求的探索太空的愿望，都将在这里发展和实现；经历俄乌战争，俄罗斯的能源不再作为欧洲的主要供应来源，欧洲必须发展新的能源与之相抗衡。而乌克兰会成为新的能源中心，代替天然气和石油；未来的通信、网络、科技、太空等领域，也会以乌克兰为中心，在此基础上建立欧洲的大中心；俄乌战争之后，西方对俄罗斯的制裁方式之一，即剔除SWIFT系统，将引发人类发展新的支付系统，使数字货币和数字经济应运而生，相应的需要一个安全的数字安全环境，乌克兰也会成为数字安全中心。
+据中共国家卫健委周四通报，3月9日全国单日新增本土确诊病例402例，另有新增本土无症状感染者435例，创两年来中国单日新增病例的新高。
 
-乌克兰之所以能够成为各领域的中心，原因在于，乌克兰不但交通便利、土地富饶，而且经过战争的洗礼，它也会成为全世界年轻人和有良知人的聚集地。最重要的是，乌克兰人不但勇敢，而且懂得感恩！
+感染者分布在全国15个省份，吉林、山东青岛和上海市等地区是疫情重灾区。
 
-参考链接：[https://gettr.com/streaming/pz1ocoe7cb](https://gettr.com/streaming/pz1ocoe7cb)
+据新唐人北京时间3月11日报道，截至3月10号，上海近200个小区发现疫情，当局大力兴建方舱医院。有市民透露，已出现食物短缺危机。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+腾讯新闻3月10日报道，3月9日，吉林省吉林市单日新增本土确诊病例134例，无症状感染者149。其中，吉林农业科技学院出现了学校聚集性疫情暴发。
 
-总编：宁文静
-编辑：飞虹
-审核：宁文静
-校正/发稿：谐趣园
+据报道，学校外集结了30辆大巴车，每辆车核载55人左右，车辆陆续进入校园，将阳性病例的密接、次密接学生转运出校。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+秘翻新闻 菜园子 二丫 编辑报道
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
