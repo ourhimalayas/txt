@@ -2,28 +2,31 @@
 ---
 
 
-## 【 G时新闻 】普京停战的条件
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2146198/)
+## 疫苗对中国人的影响
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2146274/)
 
-播报：加拿大温哥华扬帆农场 – 七彩虹
+文编：Hima
+听写：文龙
+视频：七哥
 
-视频制作：加拿大温哥华扬帆农场 – 文雅
+2022-03-06直播摘录
 
-普京2月28日在与法国总统马克龙的电话中提出了结束俄罗斯入侵乌克兰的条件。
+中国人打这个疫苗，接下去会死多少人？香港在昨天一天就发出到2.5亿只疫苗到香港，这2.5亿，只给香港700万人打的话平均打多少啊？2.5亿只。昨天一个姐妹儿跟我说，七哥，我们刚刚给香港发过去2.5亿只。是最新的科兴疫苗，高端疫苗，叫做港澳同胞专用？我想请教请教你们，觉得中国接下去，就按你们现在，别听七哥的，就说这个判决书出来，这些病灶，对中国人来说，2～3年会什么影响？
 
-据俄罗斯总统办公室称，普京提出将乌克兰的 “非军事化和和非纳粹化”作为结束战争的条件，并要求西方国家承认俄罗斯在克里米亚半岛的主权。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-俄罗斯军队当天炮击了乌克兰第二大城市哈尔科夫。据当局称，至少有11人被杀。哈尔科夫省长说，目标是一个居民区，没有重要的基础设施，也没有军事单位在那里。
+**关注我们**
 
-27日到达该地区的一名法新社摄影师看到一所被摧毁的学校和几辆被烧毁的俄罗斯军车。街道上还出现了几名身穿军装的俄罗斯人的尸体。
+Discord 账号
 
-据乌克兰方面称，自2月24日入侵开始以来，已有350多名平民被杀，包括14名儿童。根据联合国（UN）的数据，被迫背井离乡的人数已经上升到50多万人。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-上周末，首都基辅以及哈尔科夫遭到袭击，但西方国防当局和乌克兰政府表示，到目前为止，没有任何主要城市被俄罗斯人占领。据乌克兰当局称，南部小城别尔江斯克已经被占领。
+Gettr 账号
 
-原文链接：https://gnews.org/zh-hans/2084554/
-视频链接：https://gettr.com/post/pxqm7c3cfc
-编辑/上传：文莱
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
