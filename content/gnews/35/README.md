@@ -2,33 +2,48 @@
 ---
 
 
-## 全球瞩目！新中国联邦乌克兰人道救援在行动
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2140870/)
+## 拜登签署关于加密货币的命令因其使用的爆炸式增长
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2140327/)
 
-3月10日，新中国联邦乌克兰人道救援行动在全世界引起了广泛的关注，来自世界各地的媒体和机构来法治基金新中国联邦的大帐篷来拍摄难民。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image002-3.jpg)
+据美联社3月10日报道，美国总统乔·拜登周三签署了一项关于政府监管加密货币的行政命令，敦促美联储探索央行是否应该介入并创建自己的数字货币。根据行政命令，拜登还指示财政部和其他联邦机构研究加密货币对金融稳定和国家安全的影响。
 
-美联社、彭博社、盖帝图片社、意大利电视台、西班牙电视台、波兰最大报纸和电视台、阿拉伯迪拜电视台……国际红十字会的工作人员穿着他们的制服（上面有印着红十字会的标志）把过境的妇女和儿童送到新中国联邦救援大帐篷里安顿。
+财政部长珍妮特耶伦表示，这项努力将“促进一个更公平、更具包容性和更高效的金融体系”，同时打击非法金融，防止金融稳定和国家安全面临的风险。
 
-法治基金新中国联邦组织的前线救援人员和总部位于瑞士的国际人道救援机构“无疆界医生组织“ （Doctors Without Borders，简称：MSF）并肩行动 ！
+拜登的高级经济和国家安全顾问布赖恩·迪斯和杰克·沙利文分别表示，该命令为美国建立了第一个全面的联邦数字资产战略。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/8-17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-34.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-56.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-71.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-114.jpg)
+据白宫称，100 多个国家已经开始或正在试行自己的数字主权货币。
+
+在拜登的行政命令发布后，比特币和加密货币相关股票周三获得提振。
+
+据Coindesk 称，比特币价格上涨9.8% 至42,211 美元。加密货币交易所Coinbase Global 的股票在午盘交易中飙升9.3%，而在线经纪公司Robinhood Markets 上涨4.5%。
+
+专注于加密货币挖矿的Riot Blockchain 股价上涨11.5%。数字支付平台也有所增长。PayPal 上涨4.9%，Block 上涨10.55%。
 
 
-素材来源：新中国联邦前线战友！感谢你们的付出，你们辛苦了！
 
-撰稿/发布：一叶知秋
+[【援引连结】](https://apnews.com/article/biden-cryptocurrency-executive-order-7af1d9bfda2d22046547fd9d51711ef5)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

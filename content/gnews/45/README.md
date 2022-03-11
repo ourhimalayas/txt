@@ -2,28 +2,40 @@
 ---
 
 
-## 媒体报道：格哈德·施罗德应乌克兰的要求会见弗拉基米尔·普京
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2139686/)
+## 历史上的今天——历史上的今天起义日
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2139001/)
 
-**《政客》报道，格哈德·施罗德在莫斯科与俄罗斯总统弗拉基米尔·普京会面。这是乌克兰人所希望的。**
+作者：纽约香草山农场 – 马克文、朱丽叶
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1955年后，中共政府在中国四川和青海等藏区强制推行了人民公社制度和“大跃进”运动。在此期间，中共派遣军队镇压、屠杀了大批藏民，还没收当地牧民的财产并大量摧毁当地寺院；同时，中共还强迫该地区众多僧人还俗，妄图灭绝藏族的宗教和传统文化。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-13.jpg)
+资料显示，西藏的精神领袖和族群头人在当地藏人心中有着至高无上的地位。因此，自1958年起，为了更有效地镇压并控制西藏人民，中共通过请客吃饭或开办学习班等阴谋诡计，将那些有威望的藏人首领全部控制了起来，且他们当中的绝大多数人最终都下落不明、不知生死。
 
-作者：BLZ / Kuri 原文发布于2022年3月10日20:38
-翻译：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-7-1.jpg)图片：前总理格哈德·施罗德祝贺弗拉基米尔·普京就任俄罗斯总统。摄于2018年/dpa/Alexei Druzhinin
+直至1959年年初，中共西藏军区的副司令员邓少东邀请达赖喇嘛于当年3月10日前往当地军区礼堂观看文工团演出。更甚者，中共拒绝让达赖喇嘛的警卫团随行护卫。消息一经传出，各地的藏民蜂拥包围了罗布林卡宫，请求达赖喇嘛取消这次军区之行。随后，这一诉求抗议演变成了大规模的起义运动，藏民们强烈要求中共政府离开西藏。
 
-据媒体《政客》（Politico）的欧洲分支报道，称前总理格哈德·施罗德将在莫斯科与俄罗斯总统弗拉基米尔·普京会面（[Gerhard Schröder in Moskau sein, um sich mit dem russischen Staatspräsidenten Wladimir Putin zu treffen](https://www.politico.eu/article/gerhard-schroder-in-moscow-to-meet-putin-in-ukraine-peace-bid-sources)）根据《图片报》（[Bild-Zeitung soll er](https://www.bild.de/politik/2022/politik/medienbericht-altkanzler-schroeder-trifft-putin-in-moskau-79411314.bild.html) ）的网站报道，他将对乌克兰冲突进行调解。据称，社民党领导层对此行程一无所知。然而，记者Florian Eder写道，施罗德是应乌克兰人的要求动身前往的。
+1959年3月10日，中共军队与当地藏民在藏区发生了严重的武装冲突，其中，拉萨地区的交战最为激烈。而在共军炮击藏族反抗民众并强行占领了罗布林卡宫之后，原西藏政府首脑、第十四世达赖喇嘛与八万西藏人流亡至印度并成立了西藏流亡政府，其主张西藏独立和大藏区自治。
 
-“消息人士告诉Politico网站，施罗德访问莫斯科之前，他在伊斯坦布尔与一名乌克兰政治家进行了会谈，他是该国与俄罗斯和平谈判代表团的成员，”Politico网站称（[heißt es auf der Website von Politico.](https://www.politico.eu/article/gerhard-schroder-in-moscow-to-meet-putin-in-ukraine-peace-bid-sources)）。 乌克兰人想知道格哈德·施罗德是否能在俄罗斯和乌克兰之间建立一座桥梁。会议将在星期四晚上举行。
+后来，这些流亡海外的藏族人将1959年3月10日定为西藏人民起义日，用以纪念当年的西藏抗暴运动。
 
-乌克兰驻柏林大使Andrij Melnyk先生上周已经暗示，施罗德可以充当调解人（[dass Schröder als Vermittler fungieren könnte](https://www.bild.de/politik/ausland/politik-ausland/ukrainischer-botschafter-ueber-ex-kanzler-schroeder-koennte-versuchen-zu-vermitt-79344776.bild.html)）。Politico称，乌克兰议员Rustem Umerov先生已邀请施罗德尝试进行调解。他们将于周一在伊斯坦布尔会面。据称，乌克兰总统泽连斯基亲自恳请施罗德介入。施罗德曾说，他不确定普京是否想要见他，但他会尝试。然后他给普京的一个亲信打电话，问他是否可以来。普京的亲信开了绿灯，并表示周三一架俄罗斯飞机将在伊斯坦布尔接施罗德。
+参考链接：
+1). [西藏的秘密戰爭，究竟發生了什麼？（上）](https://cn.nytimes.com/china/20160621/china-tibet-lhasa-1959-dalai-lama/zh-hant/)
+2). [《1959 拉萨！》前言](https://www.dw.com/zh/1959-%E6%8B%89%E8%90%A8%E5%89%8D%E8%A8%80/a-6407303)
+3). [1959年藏区骚乱](https://zh.wikipedia.org/wiki/1959%E5%B9%B4%E8%97%8F%E5%8C%BA%E9%AA%9A%E4%B9%B1)
+4). [西藏人民起义日](https://zh.wikipedia.org/wiki/%E8%A5%BF%E8%97%8F%E4%BA%BA%E6%B0%91%E8%B5%B7%E4%B9%89%E6%97%A5)
 
-施罗德的妻子So-yeon Schröder-Kim女士在社交媒体上宣布，她经常被问及她的丈夫是否可以调解冲突。 “许多人（……）亲自与我联系，询问我丈夫是否可以与普京先生谈论乌克兰的战争。”（[„Viele Menschen haben sich (…) bei mir persönlich gemeldet, ob mein Mann nicht mit Herrn Putin über den Krieg in der Ukraine reden könnte.“](https://www.waz.de/politik/gerhard-schroeder-frau-ukraine-russland-kritik-instagram-post-id234709823.html)） 除其他外，现在这种敦促可能也导致了施罗德与普京的会面。两人是多年的朋友。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
 
-在乌克兰战争和俄罗斯入侵开始后，前总理格哈德·施罗德因没有与总统弗拉基米尔·普京保持距离，以及放弃与俄罗斯国有公司俄罗斯天然气工业股份公司的业务关系而受到批评。
+总编: Irene木木
+编辑/审核: Jack Li文阳
+校正/发稿：Fei797
 
-相关链接：[https://www.berliner-zeitung.de/wochenende/laut-medienberichten-trifft-altkanzler-gerhard-schroeder-in-moskau-wladimir-putin-li.216269](https://www.berliner-zeitung.de/wochenende/laut-medienberichten-trifft-altkanzler-gerhard-schroeder-in-moskau-wladimir-putin-li.216269)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

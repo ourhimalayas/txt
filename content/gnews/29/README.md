@@ -2,26 +2,39 @@
 ---
 
 
-## 新中国联邦人道救援 ，意大利志愿者委托物资！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2141365/)
+## 新中国联邦乌克兰大营救
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2141353/)
 
-当地时间3月10日下午6:00 三位意大利赶来的志愿者，将一车物资，大部分为婴幼儿用品放在medyka 新中国联邦搭建帐篷门口，并委托新中国联邦现场救援义工，将这些物品分发给难民。
+**作者：加州建房哥
+编辑：Candy**
 
-新中国联邦乌克兰人道救援，不图名，不图利，不要一分钱，前线战友冒着风险无私忘我，就是救人！秒杀中共的谎言救援！致敬前线的英雄！
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1057.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1-2.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/新中国联邦救援3月9日.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1055.png)图片来源：郭文贵先生GETTR视频截图
 
 
-素材来源：新中国联邦前线战友！感谢你们的付出，你们辛苦了！
+*作者是在波兰营地救援乌克兰难民的战友。夜已过半，思量了自己正在进行的救援工作，睡不着了。随手写了一首打油诗，分享给了我们群里的兄弟姐妹们。现在我把它分享给更多的战友，以更多地了解那些冒着生命危险、不惧严寒、无我工作在战地上的战友们。*
 
-撰稿/发布：一叶知秋
+俄乌战争在眼前，
+被困同类心胆寒。
+妇幼老弱无人怜，
+正道英豪心如煎。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+万里奔袭来救援，
+吃住运输不收钱。
+生命至上真理念，
+完胜共匪黑假骗！
+
+
+```
+发布：Candy
+
+更多资讯，请关注：
+澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
+澳大利亚墨尔本雅典娜农场Gettr：himalayaathena
+澳大利亚墨尔本雅典娜农场YouTube
+澳大利亚墨尔本雅典娜农场Discord
+澳大利亚墨尔本雅典娜农场GTV直播1台
+```
+
 
  
 

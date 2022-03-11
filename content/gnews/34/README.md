@@ -2,34 +2,33 @@
 ---
 
 
-## 新中国联邦和法治基金志愿协助设立难民通道
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2141102/)
+## 全球瞩目！新中国联邦乌克兰人道救援在行动
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2140870/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+3月10日，新中国联邦乌克兰人道救援行动在全世界引起了广泛的关注，来自世界各地的媒体和机构来法治基金新中国联邦的大帐篷来拍摄难民。
 
-整理/编辑：小红帽
+美联社、彭博社、盖帝图片社、意大利电视台、西班牙电视台、波兰最大报纸和电视台、阿拉伯迪拜电视台……国际红十字会的工作人员穿着他们的制服（上面有印着红十字会的标志）把过境的妇女和儿童送到新中国联邦救援大帐篷里安顿。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-44.png)图片来源：郭文贵先生盖特视频截图
+法治基金新中国联邦组织的前线救援人员和总部位于瑞士的国际人道救援机构“无疆界医生组织“ （Doctors Without Borders，简称：MSF）并肩行动 ！
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/8-17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-34.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-56.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-71.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-114.jpg)
 
 
-根据3月10日新中国联邦和法治基金前线记者的视频报道，新中国联邦和法治基金的志愿者与其他国际救援组织一起，在波兰的梅迪卡（Medyka）设立乌克兰难民通道。
+素材来源：新中国联邦前线战友！感谢你们的付出，你们辛苦了！
 
-从前线记者发回的视频可以看到，新中国联邦和法治基金的志愿者都在忙碌地搬运围栏，以设置特定的区域用于难民通行。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-38.png)
-视频显示，各国际救援组织与新中国联邦和法治基金的志愿者合作无间且同心协力地完成工作。期间，有难民对志愿者点头表示感激。现场充满了志愿者搬运设施的勤劳身影。
+撰稿/发布：一叶知秋
 
-此次乌克兰救援行动，由法治基金，法治社会大力支持。新中国联邦作为唯一的一个华人团体来到乌克兰前线参加救援行动，目标是灭掉中共，实现世界和平。
-
-资料来源：[郭文贵先生2022年3月11日盖文](https://www.gettr.com/post/pzcf16a7d4g)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
