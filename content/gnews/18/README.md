@@ -2,61 +2,33 @@
 ---
 
 
-## 世界经济论坛宣布与俄罗斯政府和普京切割
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2144573/)
+## 南非西开普省限制俄罗斯领事馆举行任何活动
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2144980/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+【撰稿】香草山健身组-正道新闻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月11日，西开普省长通过自己推特宣布：今天上午，我会见了乌克兰驻南非大使柳博夫·阿布拉维托娃女士，在会上我介绍了我们的明确立场，即我们强烈谴责俄罗斯对乌克兰的非法侵略。我还对生命的损失表示了极大的悲痛。这场无端的非法战争，威胁到世界和平和自由国际秩序的基础，不能以中立和沉默来应对。它需要我们所有人采取立场。我敦促西里尔·拉马福萨总统和纳莱迪·潘多尔部长尽快与乌克兰驻南非大使会面，亲耳听到普京总统发动恐怖的战争。
+为此西开普省长温德宣布，禁止俄罗斯使领馆官员参加该省任何官方活动，并禁止省议会官员参加俄罗斯使领馆举办的任何活动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+温德之前因发表支持乌克兰的言论而受到抨击。非国大则表示，由DA党掌控的西开普省政府没有对俄乌战争采取正确立场。温德反驳说，西开普省政府采取了与国家的不同立场，他们在周四的一次会议上决定采取明确立场，谴责俄罗斯侵略乌克兰，并呼吁停火。他们反对南非在俄乌危机中 “模棱两可”的立场。他说：“作为一个省政府，作出这样的决定并不常见，但我们必须向当地民众、乌克兰人民和世界其他国家表明，当民主价值观遭遇严重侵害时，我们不能也不会保持‘中立’。”
+西开普省政府还呼吁俄罗斯军队全面撤出乌克兰。温德说：“我们谴责对乌克兰主权的侵害，也注意到许多俄罗斯公民也起来抗议这场战争，数千人因此而被捕。这种反民主的镇压行为需要最强烈的谴责。”
 
-在美国、欧盟、加拿大和其他几个国家对俄罗斯的经济、银行业以及俄罗斯政界人士、寡头和普京本人实施了严厉的制裁之际，世界经济论坛（World Economic Forum，简称WEF）发言人Amanda Russo（阿曼达·鲁索）宣布，由于俄罗斯对乌克兰的持续入侵，世界经济论坛已经切断了与俄罗斯政府和总统弗拉基米尔·普京（Vladimir Putin）的“所有关系”。
+非洲正义的力量与声音已经站出来，作为一个省长，能够先于国家做出表态支持乌克兰，谴责俄罗斯实属不易之举。星星之火可以燎原，相信越来越多的非洲人民、组织机构和当地政府会站出来行使正义的呐喊，消灭邪恶的普京及其背后支持者中共。
 
-Amanda Russo说，“我们没有与任何受制裁的个人接触，并冻结了与俄罗斯实体的所有关系”。世界经济论坛网站上撤下了普京的个人资料。
+参考链接：[https://twitter.com/alanwinde/status/1502216697436119043?s=20&t=wyjBiE67Llc9hXJ44aG68Q https://www.westerncape.gov.za/news/premier-alan-winde-provincial-cabinet%E2%80%99s-condemnation-russia%E2%80%99s-invasion](https://twitter.com/alanwinde/status/1502216697436119043?s=20&amp;t=wyjBiE67Llc9hXJ44aG68Q%20https://www.westerncape.gov.za/news/premier-alan-winde-provincial-cabinet%E2%80%99s-condemnation-russia%E2%80%99s-invasion)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FMzH2DSXMAICQyq.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-同时，世界经济论坛在关于俄罗斯入侵乌克兰的态度上，明确“我们全力声援乌克兰人民”。WEF创始人兼执行主席克劳斯·施瓦布（Klaus Schwab）和主席博尔格·布伦德（Børge Brende）在2月27日的声明中称，“我们组织的本质信念是尊重、对话以及协作和合作努力。因此，我们强烈谴责俄罗斯对乌克兰的侵略、袭击和暴行。我们全力声援乌克兰人民和所有无辜地遭受这场完全不可接受的战争的人。我们将尽一切可能帮助并积极支持人道主义和外交努力。我们只希望——从长远来看——理性将占上风，并再次出现建立桥梁与和解的空间。”
+- 审核/编辑/发稿:qiutian（邱甜）
 
-多年来，普京不仅多次担任Klaus Schwab领导达沃斯世界经济论坛的主题演讲者，而且他还是[世界经济论坛青年全球领袖计划](https://www.younggloballeaders.org/our-alumni-community)（[WEF’s Young Global Leaders program](https://www.younggloballeaders.org/our-alumni-community)，简称YGL）的毕业生。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2vv20DIrioVX0Hw2-gdDgJaK_Usm4ya1E4ndshJ9XqQ-scaled.jpg)
-
-YGL计划还产生了其他著名的全球主义傀儡，如加拿大总理贾斯汀·特鲁多（Justin Trudeau）、美国交通部长皮特·布蒂吉格（Pete Buttigieg）、新西兰总理杰辛达·阿德恩（Jacinda Ardern）和德国总理安格拉·默克尔（Angela Merkel）。
-
-YGL校友是财富 500 强企业、王室、领先的非政府组织和国家非营利组织的首席执行官、民间社会的公众人物、体育名人等等。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/responsive_large_webp_zL6ChrGq7a_-0UWxivrNjtIiGMFumsV7DRlTRZJERb8.png)
-
-世界经济论坛利用其项目的这些忠实毕业生渗透到世界各地的政府中，以推进他们的全球主义乌托邦议程。
-
-2017年，世界经济论坛负责人Klaus Schwab在哈佛大学约翰肯尼迪政府学院对话时说，“我们非常自豪的是，我们与我们的世界经济论坛全球青年领袖……像特鲁多一样，渗透到了各国的全球内阁中。”。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-11_21-04-26.png)
-
-英国前首相布莱尔在2020年5月9日的讲话中称，“我们的团队现在已融入世界各地的政府，帮助他们在这场大流行期间保护人民的安全——不仅是关于Covid-19本身，还有政治和经济的附带损害”。
-
-从2007年到2021年，普京和德米特里·梅德韦杰夫 (Dmitry Medvedev) 曾五次在世界经济论坛上发表讲话。普京甚至在2015年1月俄罗斯入侵克里米亚后受邀发言，但他拒绝了邀请。
-
-在2021年1月一次虚拟的达沃斯会议中，Klaus Schwab在介绍普京时称，普京的声音在世界事务中“至关重要”。2009年达沃斯会议中，Klaus Schwab在介绍普京时称，他想不出没有俄罗斯参与可以解决的具有全球重要性的单一问题。两人最后一次见面是在2021年年中，当时施瓦布告诉普京，他对参加达沃斯活动的俄罗斯代表“特别重视”。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-11_21-03-00.png)
-
-参考资料：
-
-[Davos freezes out Putin and Russian oligarchs](https://www.politico.com/news/2022/03/08/davos-putin-russian-oligarchs-00015344)
-
-[WEF’s Young Global Leaders program](https://www.younggloballeaders.org/our-alumni-community)
-
-[What we are very proud of, is that we penetrate the global cabinets of countries with our WEF Young Global Leaders… like Trudeau](https://twitter.com/MaajidNawaz/status/1485982015048622090)
-
-[Our teams are now embedded in governments around the world, helping them to keep their people safe during this pandemic – not just in respect of Covid-19 itself but also the political and economic collateral damage](https://twitter.com/MaajidNawaz/status/1486316343213367296)
-
-[Davos Annual Meeting 2009 – Vladimir Putin](https://www.youtube.com/watch?v=iy-el0jO1mo&amp;t=1390s)
-
-[Our full solidarity is with Ukraine’s people](https://www.weforum.org/agenda/2022/02/ukraine-our-full-solidarity/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

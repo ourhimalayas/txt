@@ -2,35 +2,26 @@
 ---
 
 
-## 今恐大决战？美防部：俄军车队24小时内向基辅推进4.8公里
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2144415/)
+## 美国将与欧盟和七国集团一起取消俄罗斯最惠国待遇
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2144525/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpORrzvH.jpeg)美国太空科技公司「Maxar Technologies」10日所公布的卫星照片显示，俄国军车目前位于距离乌国首都基辅西北方17英里（约27公里）的奥泽拉（Ozera）镇。 （欧新社）
-【2022年03月11日讯】俄罗斯向乌克兰开战已进入第16天，据美国国防部官员的说法指出，俄军绵延于首都基辅（Kyiv）郊区长达64公里的大型车队，在过去24小时内，向前推进了3英里（约4.8公里），今（11日）恐爆发大决战。
+#### 撰稿：彩虹 
 
-据英媒《天空新闻》报导，美国高阶国防官员指出，俄军绵延于基辅外的大型车队，在过去24小时内向前推进了4.8公里，目前推估距离市中心仅剩15公里的距离。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-19.jpg)图片来源：美国之音
+根据《新闻极限》3月10日引述美联社的报道，因俄罗斯入侵乌克兰，美国总统拜登周五将宣布与欧盟（European Union）和七国集团（Group of Seven）一起取消其“最惠国待遇“（Most Favored Nation）的贸易地位。
 
-以下是俄军在过去24小时内所发生的变化：
+报道说，据一位熟悉此事的不愿透露姓名的消息人士讲，每个国家都必须遵循自己的国家程序剥夺俄罗斯的最惠国待遇，这将使美国和盟国能够对俄罗斯的进口产品征收关税，增加对俄罗斯经济的孤立，作为对俄罗斯入侵乌克兰的孤立惩罚。
 
-\*俄军已从西北方路线推进至基辅，目前位于安托诺夫（Antonov，亦称戈斯托梅利，Gostomel）机场附近。
+报道认为，拜登此举是因为美国两党一直在施加压力，要求取消与俄罗斯正式的“永久正常贸易关系”。同时，乌克兰总统弗拉基米尔·泽连斯基 (Volodymyr Zelenskyy)在周末对国会的讲话中也敦促美国和盟国对俄罗斯采取这一行动。
 
-\*俄军在基辅以东的方向，正延着两条平行线向前推近。
+白宫表示，拜登将在周五上午发表讲话，宣布有关“继续要求俄罗斯对其无端和无理的乌克兰战争负责的行动”。
 
-\*部分俄军已转移至乌克兰东北部的苏梅州（Sumy），但目前不清楚确切调动原因。
+报道指，加拿大是上周第一个取消对俄罗斯最惠国待遇的美国主要盟友。
 
-\*乌北切尔尼戈夫（Chernihiv）地区遭到孤立，此处的俄军并未跨越市区，乌军仍在抵御，战况激烈。
+**新闻来源**
 
-\*乌克兰南方滨亚速海（The Azov Sea）的马立波市（Mariupol）已遭俄军包围，正在向前推进，但俄国尚未拿下该市的掌控权。
-
-美国高阶国防官员补充，尽管乌克兰目前仍有大部分固定翼飞机能用，但乌军使用的次数并不多，他们反倒锁定地对空飞弹系统、可携式防空飞弹系统及反装甲系统取而代之。
-
-美国分析指出，俄军在地面进攻成效不如预期，目前依旧仰赖远程火力炮轰，透过飞机轰炸及地面移动发射器，执行攻击行动。 （自由时报）
-
-参考链接：[https://mingdemedia.org/jinkongdajuezhanmeifangbuejunchedui24xiaoshineixiangjifutuijin4-8gongli/](https://mingdemedia.org/jinkongdajuezhanmeifangbuejunchedui24xiaoshineixiangjifutuijin4-8gongli/)
-
-审核校对：Barry Jack
-上传排版：F
+[US, Allies to Revoke ‘Most Favored Nation’ Status for Russia](https://www.newsmax.com/newsfront/russia-ukraine-war-trade/2022/03/10/id/1060686/)
 
  
 

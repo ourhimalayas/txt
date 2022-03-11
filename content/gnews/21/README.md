@@ -2,27 +2,30 @@
 ---
 
 
-## 美国将与欧盟和七国集团一起取消俄罗斯最惠国待遇
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2144525/)
+## 樱花时政┃搅浑水还是装无辜？中共宣称互联网遭受美欧攻击
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2144630/)
 
-#### 撰稿：彩虹 
+撰稿：东京樱花团丨喜马拉雅的微尘
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-19.jpg)图片来源：美国之音
-根据《新闻极限》3月10日引述美联社的报道，因俄罗斯入侵乌克兰，美国总统拜登周五将宣布与欧盟（European Union）和七国集团（Group of Seven）一起取消其“最惠国待遇“（Most Favored Nation）的贸易地位。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/搅浑水还是装无辜？中共宣称互联网遭受美欧攻击.png)
 
-报道说，据一位熟悉此事的不愿透露姓名的消息人士讲，每个国家都必须遵循自己的国家程序剥夺俄罗斯的最惠国待遇，这将使美国和盟国能够对俄罗斯的进口产品征收关税，增加对俄罗斯经济的孤立，作为对俄罗斯入侵乌克兰的孤立惩罚。
+[*图片来源*](https://www.google.com.hk/imgres?imgurl=https://warontherocks.com/wp-content/uploads/2015/04/China-Binary.jpg&amp;imgrefurl=https://warontherocks.com/2015/04/why-do-the-chinese-hack-fear/&amp;tbnid=pR3VKImMhRV9rM&amp;vet=12ahUKEwim88-eir72AhVKY94KHY_-CgIQMygQegUIARCAAQ..i&amp;docid=8BvWyiW4TJlO8M&amp;w=1024&amp;h=682&amp;q=CCP%20Internet%20Hackers&amp;ved=2ahUKEwim88-eir72AhVKY94KHY_-CgIQMygQegUIARCAAQ)
 
-报道认为，拜登此举是因为美国两党一直在施加压力，要求取消与俄罗斯正式的“永久正常贸易关系”。同时，乌克兰总统弗拉基米尔·泽连斯基 (Volodymyr Zelenskyy)在周末对国会的讲话中也敦促美国和盟国对俄罗斯采取这一行动。
+中共新华社3月11日消息，中共国家互联网应急中心宣称，2月下旬以来，国内互联网持续遭受境外网络攻击，境外组织通过攻击控制其境内计算机，进而对俄罗斯、乌克兰、白俄罗斯进行网络攻击。
 
-白宫表示，拜登将在周五上午发表讲话，宣布有关“继续要求俄罗斯对其无端和无理的乌克兰战争负责的行动”。
+报道称，经分析，这些攻击地址主要来自美国，仅来自纽约州的攻击地址就有10余个，攻击流量峰值达36Gbps，87%的攻击目标是俄罗斯，也有少量攻击地址来自德国、荷兰等国家。
 
-报道指，加拿大是上周第一个取消对俄罗斯最惠国待遇的美国主要盟友。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/搅浑水还是装无辜？中共宣称互联网遭受美欧攻击2.png)
 
-**新闻来源**
+长期以来，中共一直有运用网络部队对欧美政府、企业、金融机构等进行有组织、大规模的网络攻击，窃取有关数据的同时，还肆无忌惮地利用网络信息超限战的手段全面干预包括总统大选在内的欧美政治、经济和社会的运行。
 
-[US, Allies to Revoke ‘Most Favored Nation’ Status for Russia](https://www.newsmax.com/newsfront/russia-ukraine-war-trade/2022/03/10/id/1060686/)
+俄罗斯入侵乌克兰战争爆发以来，各个领域的正义人士纷纷以实际行动支持乌克兰，对于在其中扮演不光彩角色的中共，此时大声宣称被网络攻击，个中缘由值得玩味。
 
+信息来源：[**我国互联网遭受境外网络攻击|计算机**](https://www.163.com/dy/article/H26AF5KE0534A4RJ.html?clickfrom=w_tech)
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

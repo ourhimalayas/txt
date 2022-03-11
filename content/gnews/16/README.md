@@ -2,24 +2,49 @@
 ---
 
 
-## 樱花FM|俄方提出的“人道主义走廊”危险巨大，基辅拒绝
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2144811/)
+## 普京告诉马克龙乌克兰是他的女人,习皇帝定要解放台湾
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2145000/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/L8Q9dxvN9nnlnm6tsherxGjzms2fTjOtDH9wOY8FGPHwkrSbQsEjUhI350hqzZPCM7TnUfmSkQQVldKDMcw9N-SjxpbFH-8KZuGQtCd8EA2QyOMIkI6-MgZXkzX7iJ2IQFkPlujk)
-俄军方宣布在乌克兰开放多个“人道主义走廊”。据俄国防部称，基辅、哈尔科夫、马里乌波尔和苏梅等城市从3月7日上午10点开始暂时停火，允许平民疏散。上周末，港口城市马里乌波尔两次疏散平民的尝试均告失败。俄方并没说明“人道主义走廊”开放时长。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8845.60%EF%BC%89%E6%99%AE%E4%BA%AC%E5%91%8A%E8%AF%89%E9%A9%AC%E5%85%8B%E9%BE%99%E4%B9%8C%E5%85%8B%E5%85%B0%E6%98%AF%E4%BB%96%E7%9A%84%E5%A5%B3%E4%BA%BA%2C%E4%B9%A0%E7%9A%87%E5%B8%9D%E5%AE%9A%E8%A6%81%E8%A7%A3%E6%94%BE%E5%8F%B0%E6%B9%BE%E3%80%902022%E5%B9%B402%E6%9C%8811%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:f)
 
-俄军方表示，法国总统马克龙向俄罗斯总统普京提出“个人请求”后做出了相关决定。此前两人通过两小时的电话。俄国防部公布了基辅、马里乌波尔、哈尔科夫等地的疏散路线图。最近几天，这几个城市都遭到了俄罗斯的大规模炮击。俄军方公布的疏散路线中，基辅的民众先前往白俄罗斯的戈梅利，然后从那里乘飞机前往俄罗斯。马里乌波尔的平民将被疏散到俄罗斯南部城市罗斯托夫，苏梅的人们将被暂时送到乌克兰中部城市波尔塔瓦。
+**郭文贵先生：**还有打不打乌克兰、打不打台湾，我告诉你已经不在你决定范围之内了。你看看普京跟马克龙见面儿是吧？就是原话就是：“你别给我废话，乌克兰就是我的女人。”这话普京说的——“乌克兰就是我的女人！”是吧？！谁都别想动，就属于我的了，我想啥时候拿回来就拿回来，他没有选择。
 
-莫斯科表示已经向联合国、欧洲安全与合作组织（OSCE）和红十字国际委员会（ICRC）通报了走廊事宜，并呼吁乌克兰“严格遵守”疏散条件。乌方谴责俄此举完全不道德。乌总统泽连斯基发言人发布了一份声明，其中指出“人民的痛苦被用来作为媒体宣传的工具。”声明尤其批评莫斯科提出的“人道主义走廊”路线，指出路线通往俄罗斯或其盟国白俄罗斯。然而，这关乎到乌克兰的公民：“他们应该有权利被疏散到乌克兰境内。”
+你说普京你知道跟外交部的还有那个国安委的人说什么吗？说你们这游戏玩儿的是特别好，但是你们老百姓真的会不懂吗？你真觉得他们不懂吗？普京就这么问他们，都傻在那儿不吱声，谁敢回普京这话？这是普京身边的人告诉我的。
 
-上周末，两次试图疏散东南部城市马里乌波尔居民的行动均告失败，俄乌互相指责对方违反了商定的停火协议。这座城市被俄军包围。援助组织无国界医生形容马里乌波尔的局势是“灾难性的”。该组织行动总监利戈索指出，情况“一天比一天糟糕”，通过人道主义通道疏散民众至关重要。
+普京就这么原话问的，你们老百姓真的不懂吗？真傻吗？然后普京笑着，就跟那小孩儿似的笑着说：“你们真会玩啊，你们真敢玩啊。”就是意思是你真敢骗呐、你真敢忽悠啊！
 
-文字版原文：[俄方提出的“人道主义走廊”危险巨大，基辅拒绝](https://gnews.org/zh-hans/2126690/)
+欸，但是报告给习近平说：普京大加赞叹，美轮美奂、绝美呀！哈哈哇塞！这个就七哥就高兴的不行了，我就希望这种感觉就是他们骗了老百姓还有人再骗他，这个感觉我就非常爽了，你知道吗？他骗老百姓我很不爽，但有人反过来再骗一下“习太阳”我很爽，为什么？他要为这场欺骗的游戏、虚假的游戏他要买单。你骗子国最后就是毁灭共产党最有力的武器之一。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+然后告诉必须打台湾，不打台湾你就不是太阳，只有你打台湾，你生下来就是秦始皇再世啊。
+
+你打台湾，台湾90%的人就欢迎你去呀，台湾人就在家里挂上习主席、“习太阳”的像啊，是吧？习主席那不会问他此话当真？（习认为）当然了！他觉得当然了！这不就是我们想要的吗？
+
+编辑整理：Jacques；
+
+字幕档制作：兵嫂；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
