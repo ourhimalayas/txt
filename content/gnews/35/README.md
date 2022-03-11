@@ -2,28 +2,23 @@
 ---
 
 
-## 【秘翻晚间新闻】SEC退市风险名单引爆在美中概股
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2143988/)
+## 联合国：已有250万乌克兰人逃离家园
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2144316/)
 
-By:**[秘翻晚间新闻](https://gettr.com/post/pzeibr2ff2)**
+采集：玫瑰新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/hungary-ukraine-russia-conflict-refugees44863767.jpg)联合国难民署说，自俄罗斯2月24日入侵乌克兰以来，已有约250万人逃离乌克兰。（法新社）
+（早报讯）联合国周五（3月11日）最新数据显示，自俄罗斯2月24日入侵乌克兰以来，已有约250万人逃离乌克兰。另外，有200万人因战争而在国内流离失所。
 
-[**2022-03-11**](https://gettr.com/post/pzeibr2ff2)
+法新社报道，联合国难民总署署长格兰迪将乌克兰大规模流离失所归咎于所谓的“毫无意义的战争”。格兰迪在推特上说：“不幸的是，来自乌克兰的难民人数今天已经达到了250万。”。
 
-**新闻内容:**
+他说：“我们还估计约200万人在乌克兰境内流离失所。数百万人因这场毫无意义的战争被迫离开家园。”
 
-1. SEC退市风险名单引爆在美中概股
-2. 乌克兰控俄罗斯再轰一核研究设施
-3. 吉林学生与发烧者同宿 学校粗暴打压 学生求援
+联合国国际移民组织发言人狄龙则说，逃离乌克兰的250万人中包括11.6万名来自其他国家的国民。联合国难民署估计，随着战事持续，最终可能有400万人离开乌克兰。
 
+参考链接：[https://www.zaobao.com.sg/realtime/world/story20220311-1251367](https://www.zaobao.com.sg/realtime/world/story20220311-1251367)
 
-喜欢记得点赞订阅分享喔！
-Gettr链接：[**https://gettr.com/post/pzeibr2ff2**](https://gettr.com/post/pzeibr2ff2)
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
-
+审核校对：Barry Jack
+上传排版：F
 
  
 

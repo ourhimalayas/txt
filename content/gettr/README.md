@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 4:14 PM (UTC)`
+
+By March 10th, more and more refugees arrived in the NFSC tent. The top media groups also came to the tent to interview or report. They highly praised the NFSC and ROLF. Meanwhile, medical practitioners and other rescue organizations such as Starlink worked seamlessly with our comrades in arm to resettle the refugees.<br/>The NFSC and the ROLF Ukraine rescue hotline: +1 720-657-6776 or +1 719-224-4232; email: UkraineRescue01@protonmail.com or UkraineRescue02@protonmail.com. <br/>截止到3月10日，新中国联邦帐篷迎来越多越多的难民，各大媒体在帐篷前或采访或报道，他们对新中国联邦和法治基金高度赞扬。到达此地的其他救援组织如医生、星链等等，都在和新中國聯邦人亲密合作安置难民。
+![img](https://media.gettr.com/group6/origin/2022/03/11/16/ed02b7c7-d10d-7231-01e0-9d853cef3224/out.jpg)
+
+---
+
 `@miles 3/11/2022 1:24 PM (UTC)`
 
 2022年3月11日 文贵大直播：连线波兰救援基地-实况转播 乌克兰国际救援行动令共产党恐惧；新中国联邦人在国际上树立了形象；数字美元与数字货币时代中的喜币；香港冠状病毒肆虐与世界疫苗危机
@@ -147,13 +154,6 @@
 
 2022.03.10《The Fringe》 Episode 144
 ![img](https://media.gettr.com/group39/origin/2022/03/11/00/d38f8145-1c6a-4c15-34f7-9b9be6fd6ebf/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/11/2022 12:06 AM (UTC)`
-
-【Ukraine Rescue】03/10/2022 Volunteers from the NFSC and the Rule of Law Foundation joined other international aid organizations to set up a passage for Ukrainian refugees in Medyka<br/><br/>【乌克兰救援】3月10日， 新中国联邦和法治基金的志愿者与其他国际救援组织一起在Medyka设立乌克兰难民通道
-![img](https://media.gettr.com/group31/getter/2022/03/11/00/ab18afb8-2148-0831-c0fc-016a182fd79e/out.jpg)
 
 ---
 
