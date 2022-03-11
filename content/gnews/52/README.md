@@ -2,64 +2,35 @@
 ---
 
 
-## 参议员泰德·克鲁兹：是时候结束暴虐的疫苗强制了！
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2141335/)
+## 难民营里的钢琴曲
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141382/)
 
-参议员泰德·克鲁兹： 华盛顿特区以外的全国所有地区都在醒来。 是时候结束暴虐的疫苗强制了！ 【视频中克鲁兹称赞美国卡车司机的行动代表了民意，疫苗强制违宪，是时候停止了】
+作者：纽约香草山农场 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月9日，据前线回传的消息显示，地处乌克兰和波兰边境的米蒂卡难民营，在夜幕时分传出了美妙的钢琴曲，这也为身处战争阴影和痛苦中的人们送去了心灵的抚慰。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-8.jpeg)
 
+战地记者Nicole报道，每天傍晚，来自德国的音乐家达维德·马特洛会在难民营中一架破旧的钢琴前为大家演奏乐曲。此时，乌克兰边境的气候依然严寒，逃难的母亲们带着自己的孩子坐在营地的篝火前取暖，悦耳的钢琴曲交织在不时飘落的雪花中，给那些故土被毁、亲人离散又饱受战争摧残的难民们带来少许的安慰。
 
-> The rest of the country outside of Washington, D.C. is waking up.
->  
-> It’s time to end the tyrannical vaccine mandate! [pic.twitter.com/H9MXuOb9Li](https://t.co/H9MXuOb9Li)
-> — Senator Ted Cruz (@SenTedCruz) [March 11, 2022](https://twitter.com/SenTedCruz/status/1502117538637004842?ref_src=twsrc%5Etfw)
+当Nicole向马特洛介绍我们这支新中国联邦和法治基金的救援团队时，马特洛特意为所有法治基金的捐款者送上了一首名为“在彩虹之上玩耍”的曲子，用以感谢所有捐款者的爱心和慷慨。
 
+参考链接：[德国音乐家Davide Martello 在难民营为法治基金所有的捐赠者弹奏钢琴曲](https://gettr.com/post/pz3g1c2f67)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-参议员兰德·保罗： 一家航空公司重新开始关心他们的员工和科学了. . .其他人会跟随吗？ 美国联合航空公司将让未接种疫苗的员工重返工作岗位
+总编：宁文静
+编辑：玫瑰圓
+审核：Irene木木
+校正/发稿：谐趣园
 
-
-
-> One airline resumes caring about their employees and science . . . Will others follow?
-> 
-> United Airlines will let unvaccinated employees return to jobs [https://t.co/6yRt0ftRF9](https://t.co/6yRt0ftRF9)
-> — Rand Paul (@RandPaul) [March 11, 2022](https://twitter.com/RandPaul/status/1502104959290122241?ref_src=twsrc%5Etfw)
-
-
-
-比尔.格茨： 国家情报总监：乌克兰实验室没有开展生物战（研究）工作，美国的支持仅限于生物安全和安保。 对俄罗斯接管实验室的担忧是基于病原体可能被滥用 【转比尔.格茨华盛顿时报报道：国家情报总监称：乌克兰实验室不涉及生物武器，尽管俄罗斯指控】
-
-
-
-> DNI: Ukrainian labs are not conducting biowarfare work and US support was limited to biosafety and security. Concerns about Russian takeover of the labs is based on possible misuse of pathogens [https://t.co/vOGFF5wpmH](https://t.co/vOGFF5wpmH)
-> — Bill Gertz (@BillGertz) [March 10, 2022](https://twitter.com/BillGertz/status/1501973283536838656?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·华尔兹： 普京有使用构陷花招的历史。看看叙利亚，俄罗斯在阿萨德的军队中使用了少量化学制剂，以此作为使用化学武器进行报复的借口。 这可能为普京在乌克兰策划同样的事情奠定了基础。 【附福克斯视频：美国表示：我们在乌克兰没有生化武器实验室】
-
-
-
-> Putin has a history of using false flags. Just look at Syria where Russia used minor chemical agents on Assad's forces as a pretext to retaliate with chemical weapons.
-> 
-> This could be setting the stage for Putin to orchestrate the same in Ukraine. [pic.twitter.com/DOrQzN4cCz](https://t.co/DOrQzN4cCz)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 10, 2022](https://twitter.com/michaelgwaltz/status/1502048472194768897?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可·卢比奥： 极权主义精神并没有随着冷战的结束而消亡 但现在在亚洲、东欧和中东，它又一次存活于大国内部 【附视频，卢比奥议员在参议院情报听证会上致开幕词】
-
-
-
-> The spirit of totalitarianism did not die with the end of the Cold War 
-> 
-> But now in Asia, Eastern Europe and the Middle East it once again lives inside of great powers
-> 
->  [pic.twitter.com/KhOf1CCosB](https://t.co/KhOf1CCosB)
-> — Marco Rubio (@marcorubio) [March 10, 2022](https://twitter.com/marcorubio/status/1502027110168285195?ref_src=twsrc%5Etfw)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

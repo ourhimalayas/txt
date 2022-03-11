@@ -2,30 +2,35 @@
 ---
 
 
-## 中日财经爆|中共国扛不住卢布贬值 只能扩大交易幅度
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2141446/)
+## 乌克兰将成为欧洲的大中心
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141456/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7-2.jpg)[图片来源](https://chaslaukoniukh.com/en/fall-of-the-russian-ruble-en/)
-中共国外汇交易中心周四（3月10日）称，为顺应市场发展要求，决定自周五(11日)起，银行间外汇市场人民币兑俄罗斯卢布即期交易价浮动幅度由5%扩大至10%。
+作者：首尔天池农场—追着曙光跑
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月8日的“文贵大直播”中，郭先生指出，经过俄乌战争，乌克兰人把正义和勇气重新带回人类的心中。乌克兰也会因此而重生，将蜕变成为欧洲的大中心。
 
-外汇交易中心网站发布的公告并指出，即每日银行间外汇市场人民币兑俄罗斯卢布的即期交易价可在交易中心对外公布的当日人民币兑俄罗斯卢布中间价上下10%的幅度内浮动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-1.jpeg)
 
-俄罗斯军事入侵乌克兰，遭到西方民主国家的集体大规模经济制裁，卢布大幅度贬值。
+郭先生认为，未来乌克兰以高科技为中心，像UFO、太空科技、无人机，以及人类一直梦寐以求的探索太空的愿望，都将在这里发展和实现；经历俄乌战争，俄罗斯的能源不再作为欧洲的主要供应来源，欧洲必须发展新的能源与之相抗衡。而乌克兰会成为新的能源中心，代替天然气和石油；未来的通信、网络、科技、太空等领域，也会以乌克兰为中心，在此基础上建立欧洲的大中心；俄乌战争之后，西方对俄罗斯的制裁方式之一，即剔除SWIFT系统，将引发人类发展新的支付系统，使数字货币和数字经济应运而生，相应的需要一个安全的数字安全环境，乌克兰也会成为数字安全中心。
 
-中共国前外管局国际收支司司长管涛认为，由于近期国际市场卢布兑美元汇率波动加剧，而境内市场人民币兑非美货币5%的波幅不足以吸收外围市场影响，扩大波幅后能够较好反应国际外汇市场的变化。
+乌克兰之所以能够成为各领域的中心，原因在于，乌克兰不但交通便利、土地富饶，而且经过战争的洗礼，它也会成为全世界年轻人和有良知人的聚集地。最重要的是，乌克兰人不但勇敢，而且懂得感恩！
 
-“人民币/卢布价格主要取决于美元兑卢布和人民币的变动，”一中资行交易员表示，近期卢布大幅波动，所以要扩大交易区间。
+参考链接：[https://gettr.com/streaming/pz1ocoe7cb](https://gettr.com/streaming/pz1ocoe7cb)
 
-过去两周，卢布兑美元[RUB=](https://cn.reuters.com/quote/RUBUSD)下跌约45%，卢布兑人民币[CNYRUB=](https://cn.reuters.com/quote/CNYRUBUSD)亦跌近40%。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-消息来源:
+总编：宁文静
+编辑：飞虹
+审核：宁文静
+校正/发稿：谐趣园
 
-[俄罗斯卢布剧烈波动 中国外汇交易中心扩大人民币兑卢布交易幅度](https://cn.reuters.com/article/russian-rouble-fluctuations-china-yuan-0-idCNKBS2L7148?il=0)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
