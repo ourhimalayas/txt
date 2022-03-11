@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 10:46 PM (UTC)`
+
+3/11/2022 Miles Guo: What is the NFSC coffee served by the New Federal State of China? Why should we provide the refugees with freshly ground coffee? Fellow fighters are working day and night to help rescue refugees, and some of them even got sick. The New Federal State of China has become the focus of the world’s media.<br/><br/>3/11/2022 文贵直播：什么是新中国联邦NFSC咖啡？为什么要在救援现场为难民准备现磨的咖啡？战友们夜以继日地救助难民，甚至有战友都病了；新中国联邦人已成为全球媒体的焦点<br/>
+![img](https://media.gettr.com/group48/getter/2022/03/11/22/4aab8aad-41a7-5e0d-e862-e5ee0a88a926/out.jpg)
+
+---
+
 `@miles 3/11/2022 10:32 PM (UTC)`
 
 3/11/2022 Miles Guo: The NFSC & ROLF Ukraine rescue mission has received wide attention from the world media in Medyka, Poland. Fellow fighters left behind their families and jobs to save the refugees without demanding anything in return. We, citizens of the New Federal State of China, are the real Chinese people respected and loved by the world.<br/><br/>3/11/2022 文贵直播：新中国联邦法治基金的救援行动在波兰梅迪卡受到了国际媒体的广泛关注；战友们抛家舍业来救援难民，不求任何回报，我们新中国联邦人是为世界尊重和喜欢的真正的中国人<br/>
@@ -152,13 +159,6 @@ By March 10th, more and more refugees arrived in the NFSC tent. The top media gr
 
 【Ukraine Rescue】03/10/22 The CCP interferes with NFSC and ROLF's rescue, depriving people's freedom to escape<br/><br/>【乌克兰救援】03/10/22  中共干扰新中国联邦和法治基金的救援行动，剥夺人们逃生的自由<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
 ![img](https://media.gettr.com/group34/getter/2022/03/11/09/2373979e-fc1a-a9f7-e734-5aa77d669cf3/out.jpg)
-
----
-
-`@miles 3/11/2022 9:21 AM (UTC)`
-
-【Ukraine Rescue】KlanKosova Media invite NFSC volunteers for a live interview after hearing Ukraine rescue operations sponsored by ROL Foundation <br/><br/>【乌克兰救援】克朗科索瓦电视台听说法治基金资助的乌克兰救援行动后，邀请新中国联邦的志愿者进行直播采访。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group13/getter/2022/03/11/09/5602ae24-5a0b-6704-36c7-a75eafca76d6/out.jpg)
 
 ---
 
