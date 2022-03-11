@@ -2,28 +2,46 @@
 ---
 
 
-## 媒体报道：格哈德·施罗德应乌克兰的要求会见弗拉基米尔·普京
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2139686/)
+## 乌克兰大救援3.9.2022: 法治基金国际人道救援展现新中国联邦人的良善形象 赢得广泛国际赞誉
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2139555/)
 
-**《政客》报道，格哈德·施罗德在莫斯科与俄罗斯总统弗拉基米尔·普京会面。这是乌克兰人所希望的。**
+撰稿：文舞
+校对：心声
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-10-at-3.34.15-PM.png)乌克兰边境100米的梅迪卡难民营（来自Nicole现场报道）
+在纽约总部基地的主持人罗伊（Roy）于2022年3月10日早11点左右，通过[Gettr平台](https://gettr.com/post/pz9rok9003)向波兰梅迪卡（Medyka）难民基地的主持人尼克（Nicole）进行了现场24分钟左右实时直播报道。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1010.png)
+新中国联邦法制基金提供最好的救援条件 赢得广泛国际赞誉
 
-作者：BLZ / Kuri 原文发布于2022年3月10日20:38
-翻译：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-7-1.jpg)图片：前总理格哈德·施罗德祝贺弗拉基米尔·普京就任俄罗斯总统。摄于2018年/dpa/Alexei Druzhinin
+罗伊感谢了伊隆·马斯克（Elon Musk）的天空WI-FI（StarLink）保障了新中国联邦和法治基金两个营帐的互联网的运营和方便。
 
-据媒体《政客》（Politico）的欧洲分支报道，称前总理格哈德·施罗德将在莫斯科与俄罗斯总统弗拉基米尔·普京会面（[Gerhard Schröder in Moskau sein, um sich mit dem russischen Staatspräsidenten Wladimir Putin zu treffen](https://www.politico.eu/article/gerhard-schroder-in-moscow-to-meet-putin-in-ukraine-peace-bid-sources)）根据《图片报》（[Bild-Zeitung soll er](https://www.bild.de/politik/2022/politik/medienbericht-altkanzler-schroeder-trifft-putin-in-moskau-79411314.bild.html) ）的网站报道，他将对乌克兰冲突进行调解。据称，社民党领导层对此行程一无所知。然而，记者Florian Eder写道，施罗德是应乌克兰人的要求动身前往的。
+从乌克兰边境过来的难民90%都是妇女和儿童，这是因为18岁到60岁的没有3个小孩的男性都必须留下来为自己的国家而战。
 
-“消息人士告诉Politico网站，施罗德访问莫斯科之前，他在伊斯坦布尔与一名乌克兰政治家进行了会谈，他是该国与俄罗斯和平谈判代表团的成员，”Politico网站称（[heißt es auf der Website von Politico.](https://www.politico.eu/article/gerhard-schroder-in-moscow-to-meet-putin-in-ukraine-peace-bid-sources)）。 乌克兰人想知道格哈德·施罗德是否能在俄罗斯和乌克兰之间建立一座桥梁。会议将在星期四晚上举行。
+新中国联邦、法治基金为逃离乌克兰的难民提供了最好的营地、新鲜的水果、热茶、咖啡、供暖设施，这吸引来了现场的国家媒体和电视台。其中今天新中国联邦、法治基金将会接受包括西班牙的公益基金，纽约的彭博社、美联社，还有波兰、意大利等七、八家媒体电视台的采访。
 
-乌克兰驻柏林大使Andrij Melnyk先生上周已经暗示，施罗德可以充当调解人（[dass Schröder als Vermittler fungieren könnte](https://www.bild.de/politik/ausland/politik-ausland/ukrainischer-botschafter-ueber-ex-kanzler-schroeder-koennte-versuchen-zu-vermitt-79344776.bild.html)）。Politico称，乌克兰议员Rustem Umerov先生已邀请施罗德尝试进行调解。他们将于周一在伊斯坦布尔会面。据称，乌克兰总统泽连斯基亲自恳请施罗德介入。施罗德曾说，他不确定普京是否想要见他，但他会尝试。然后他给普京的一个亲信打电话，问他是否可以来。普京的亲信开了绿灯，并表示周三一架俄罗斯飞机将在伊斯坦布尔接施罗德。
+据前线主持人尼克报道：“这是因为只有新中国联邦的华人才为乌克兰难民提供了最好（国家级别）的避难所；其次，是出于在梅卡迪难民营的新闻媒体记者心中所充满的，对于新中国联邦和法治基金的好奇。”
 
-施罗德的妻子So-yeon Schröder-Kim女士在社交媒体上宣布，她经常被问及她的丈夫是否可以调解冲突。 “许多人（……）亲自与我联系，询问我丈夫是否可以与普京先生谈论乌克兰的战争。”（[„Viele Menschen haben sich (…) bei mir persönlich gemeldet, ob mein Mann nicht mit Herrn Putin über den Krieg in der Ukraine reden könnte.“](https://www.waz.de/politik/gerhard-schroeder-frau-ukraine-russland-kritik-instagram-post-id234709823.html)） 除其他外，现在这种敦促可能也导致了施罗德与普京的会面。两人是多年的朋友。
+尼克说：“新中国联邦、法治基金乌克兰人道救援行动改变了过去70年在中共国统治下，世界对（洗脑后）的中国人所持有的（负面）形象，作为一个能够参与这次救援行动的中国人，我感动非常的自豪。” 她说，这场乌克兰难民的救援行动所投入的义工远远不止观众在镜头前所看到的黄夹克人，还有包括了身处在北美洲、欧洲、亚洲、太平洋的新中国联邦人。
 
-在乌克兰战争和俄罗斯入侵开始后，前总理格哈德·施罗德因没有与总统弗拉基米尔·普京保持距离，以及放弃与俄罗斯国有公司俄罗斯天然气工业股份公司的业务关系而受到批评。
+**中共黑客新中国联邦人道救援构成危害人类罪**
 
-相关链接：[https://www.berliner-zeitung.de/wochenende/laut-medienberichten-trifft-altkanzler-gerhard-schroeder-in-moskau-wladimir-putin-li.216269](https://www.berliner-zeitung.de/wochenende/laut-medienberichten-trifft-altkanzler-gerhard-schroeder-in-moskau-wladimir-putin-li.216269)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01.jpg)
+值得一提的是，中国共产党也为这个处于俄乌战争背后的避难所投入了其邪恶的力量。比如：中共伪政权通过其国家力量黑客并破坏新中国联邦和法治基金的人道救援行动所需的电子邮箱、扫描的二维码等，这造成了很多的乌克兰难民得不到我们的救援信息。
+
+中共恶意破坏新中国联邦、法治基金的人道救援行动，足以构成大屠杀。在此希望呼吁，国际机构能制裁中共伪政权所犯的反人类罪行。
+
+“每一个人都在摇脑袋。”当地人或各方媒体得知新中国联邦、法治基金的人道救援行动被邪恶的中共伪政权恶意黑客后，尼克报道。最后，她补充道：我们应当揭露中共反人类的罪行。
+
+第一批来波兰的义工（文科、明道等），他们每天只睡两小时，基本每个义工都在长时间的工作。（新中国联邦人为什么要做这事情）我们背后有一个强大的法治基金的力量，而且每个人的心中都有一个共同的信仰：那就是推翻中国共产党（体制），告诉全世界中国共产党不能代表中国、中国人。所有的义工对于能够参与此次救援行动，内心里都是感到开心的、是非常荣幸的。
+
+**当地人对新中国联邦义工的感想**
+
+与当地人语言不通的“一口大锅干革命”战友在深夜的营帐里接待了一名素不相识的老太太，在这乌克兰难民营里两人深情拥抱；’安娜’战友为妇女和婴儿送上了纸尿布。” 现场主持人尼克说道。值得一提的是，我们新中国联邦、法治基金人道救援行动的义工是现场24小时轮流值班制的，这已经在当地人里面广为流传。
+
+这将是近70以来，世界对于中国人从来没有得到过的赞赏！
+
+来源链接：[https://gettr.com/post/pz9rok9003](https://gettr.com/post/pz9rok9003)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

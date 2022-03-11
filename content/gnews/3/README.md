@@ -2,23 +2,45 @@
 ---
 
 
-## 有声｜194位诺贝尔奖获得者联署声援乌克兰
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2142044/)
+## 新西兰议会一致通过俄罗斯制裁法案
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2142210/)
 
-By:**秘翻新闻**
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image015.jpg)外交部长Nanaia Mahuta 照片：Pool image / Robert Kitchin /Stuff
+3月10日，新西兰议会一致通过了历史性的制裁立法，以应对俄罗斯对乌克兰的战争。新西兰众议院紧急通过的法案允许对俄罗斯和与入侵乌克兰有关的俄罗斯个人实施制裁。
 
-**2022-03-11**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-28.png)图片来源 诺贝尔官方网
-[诺贝尔官方网3月10日消息， 194位诺贝尔奖得主联名发表“公开信”，声援乌克兰，呼吁和平，反对战争，谴责俄罗斯的入侵，认为俄罗斯的入侵跟当年纳粹德国对波兰和苏联的入侵类似。](https://nlcampaigns.org/ukraine.html)
+外交部长Nanaia Mahuta 表示，制裁不是针对俄罗斯人，而是针对那些与战争有关的俄罗斯人，或者对弗拉基米尔普京政权具有经济或战略重要性的人。
 
-[公开信签署者都在各自领域里大名鼎鼎，包括库切，阿列克谢耶维奇，格吕克，石黑一雄，耶利内克，帕慕克，略萨，莫迪亚诺，赫塔米勒等大家。](https://nlcampaigns.org/ukraine.html)
+她说，第一批正在按计划进行，预计将在下周做出决定。
 
-秘翻新闻 文雀 编译报道
+国家党外交事务发言人格里布朗利表示，这不仅对乌克兰人，而且对整个世界来说都是一个艰难的时期。
 
-发布 : 恩典
+National 和Act 都对没有尽快实施新西兰制裁制度表示失望。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
+
+
+**[【援引连结】](https://www.rnz.co.nz/news/political/463022/parliament-unanimously-passes-russia-sanctions-bill)**
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

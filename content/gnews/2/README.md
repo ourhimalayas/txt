@@ -2,37 +2,27 @@
 ---
 
 
-## 樱花FM|俄罗斯企业争相在中国银行开立账户
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2142070/)
+## 有声｜美国防官员：乌克兰将成为台湾防御的示范
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2142211/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯企业争相在中国银行开立账户.png)
-根据路透社援引匿名消息人士称，由于美国和欧洲的制裁使得俄罗斯企业的经营生存越来越困难，一家在中国的银行声称，俄罗斯公司企图开立新银行账户的请求激增。
+By:**秘翻新闻**
 
-瑞士信贷的Zoltan Poszer最近接受彭博社采访时警告说：“对俄罗斯的制裁，以及禁止大多数俄罗斯银行使用SWIFT， 这可能导致俄罗斯公司更多的依赖人民币，正如我所说的，人民币目前仅占世界储备的2.7%。
+**2022-03-11**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-24.png)图片来源  路透社
+[路透社华盛顿3月10日报道，美国高级国防官员周四在参议院听证会上表示，如果中国选择通过攻击侵犯台湾的“主权”，乌克兰的顽强抵抗可能成为台湾自卫的典范。](https://www.reuters.com/world/china/ukraine-is-model-taiwan-defense-should-china-violate-its-sovereignty-us-official-2022-03-10/)
 
-这位在中国一家国有银行莫斯科分行工作并了解其业务的人告诉路透社，“过去几天里，有200-300家公司与我们联系，希望开立新账户，并且大多数希望在银行开立账户的公司都与中国做了很多生意。”
+[助理国防部长玛拉·卡林说，“我们现在在乌克兰看到的情况对台湾来说是一个非常有价值的案例研究，说明为什么台湾需要尽其所能建立不对称能力，让其人民做好准备，这样它就可以尽可能对抗中国的侵略，”](https://www.reuters.com/world/china/ukraine-is-model-taiwan-defense-should-china-violate-its-sovereignty-us-official-2022-03-10/)
 
-另一位与俄罗斯关系密切的中国商人这样说：“这是非常简单的逻辑，如果您不能使用美元或者欧元，并且美国和欧洲停止向您销售产品，您别无选择，只能求助于中国，这种趋势是不可避免的。”
+[助理国务卿杰西卡刘易斯告诉参议员，美国继续敦促台湾采购不对称系统。台湾需要优先考虑短程防空、海军水雷、海岸防御和巡航导弹。目前，美国和台湾越来越多地就什么是非对称系统达成一致意见。](https://www.reuters.com/world/china/ukraine-is-model-taiwan-defense-should-china-violate-its-sovereignty-us-official-2022-03-10/)
 
-中共国等新兴市场巨头愿意与莫斯科保持商业关系，这表明“西方媒体对二战以来欧洲最大的危机存在分歧”
+[据称，基于乌克兰后备军改革的启示，台湾刚刚创建了“一个全面的国防动员组织体系”，并与美国国民警卫队合作。](https://www.reuters.com/world/china/ukraine-is-model-taiwan-defense-should-china-violate-its-sovereignty-us-official-2022-03-10/)
 
-最终，这一趋势会削弱美元在全球贸易中的地位。
+秘翻新闻 自由信仰 编译报道
 
-但这并不是说卢布贬值没有造成问题，许多中国公司正试图推迟交付，以避免其卢布持有量的潜在损失。上海俄罗斯企业家Konstantin Popov说，公司将转向人民币卢布业务，但无论如何，由于人民币和卢布的汇率也在变化，那么俄罗斯的物价水平将会比原先高出两倍，三倍或者四倍。
+发布 : 恩典
 
-从长远看，俄罗斯对中国商品的需求仍然能在增长，对于俄罗斯来说，面对制裁，关键还是要解决贸易结算的问题。
-
-文字版原文：
-
-
-| [俄罗斯企业争相在中国银行开立账户](https://gnews.org/zh-hans/2110194/) |  |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket   
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

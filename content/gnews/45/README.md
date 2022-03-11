@@ -2,33 +2,28 @@
 ---
 
 
-## 新中国联邦乌克兰救援行动正改变作全世界对中国人的印象
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2139784/)
+## 媒体报道：格哈德·施罗德应乌克兰的要求会见弗拉基米尔·普京
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2139686/)
 
-某个国际组织的一个主席说，当地的政府现在都特别支持。都知道了新中国联邦，都知道法治基金法制社会。
+**《政客》报道，格哈德·施罗德在莫斯科与俄罗斯总统弗拉基米尔·普京会面。这是乌克兰人所希望的。**
 
-**【郭先生直播摘要】****2022.3.6 ****新中国联邦乌克兰救援计划**
+作者：BLZ / Kuri 原文发布于2022年3月10日20:38
+翻译：LK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-7-1.jpg)图片：前总理格哈德·施罗德祝贺弗拉基米尔·普京就任俄罗斯总统。摄于2018年/dpa/Alexei Druzhinin
 
-**郭先生：**
+据媒体《政客》（Politico）的欧洲分支报道，称前总理格哈德·施罗德将在莫斯科与俄罗斯总统弗拉基米尔·普京会面（[Gerhard Schröder in Moskau sein, um sich mit dem russischen Staatspräsidenten Wladimir Putin zu treffen](https://www.politico.eu/article/gerhard-schroder-in-moscow-to-meet-putin-in-ukraine-peace-bid-sources)）根据《图片报》（[Bild-Zeitung soll er](https://www.bild.de/politik/2022/politik/medienbericht-altkanzler-schroeder-trifft-putin-in-moskau-79411314.bild.html) ）的网站报道，他将对乌克兰冲突进行调解。据称，社民党领导层对此行程一无所知。然而，记者Florian Eder写道，施罗德是应乌克兰人的要求动身前往的。
 
-兄弟姐妹们和大卫兄弟和小Sarah，我们今天又是一个新的台阶，新的台阶。整个战争当中，二百个国家，你见有一个像我们这样的组织吗？在现场有一个我们这样的组织吗？大卫小Sarah。你们每个人见过吗？有一个这么标准这么国际化的，这么无私的完全没有目的的有吗？根本没有。
+“消息人士告诉Politico网站，施罗德访问莫斯科之前，他在伊斯坦布尔与一名乌克兰政治家进行了会谈，他是该国与俄罗斯和平谈判代表团的成员，”Politico网站称（[heißt es auf der Website von Politico.](https://www.politico.eu/article/gerhard-schroder-in-moscow-to-meet-putin-in-ukraine-peace-bid-sources)）。 乌克兰人想知道格哈德·施罗德是否能在俄罗斯和乌克兰之间建立一座桥梁。会议将在星期四晚上举行。
 
-就像昨天晚上某个国际组织的一个主席跟我说，我们要做这个我们要做那个。我给他原话说，我告诉你，不要教我要做什么，你们拿着全世界人民给你们数以亿计的钱，你们都花哪去了？我们在做什么不需要你们指挥，你们要么跟我合作，要么别指手画脚。
+乌克兰驻柏林大使Andrij Melnyk先生上周已经暗示，施罗德可以充当调解人（[dass Schröder als Vermittler fungieren könnte](https://www.bild.de/politik/ausland/politik-ausland/ukrainischer-botschafter-ueber-ex-kanzler-schroeder-koennte-versuchen-zu-vermitt-79344776.bild.html)）。Politico称，乌克兰议员Rustem Umerov先生已邀请施罗德尝试进行调解。他们将于周一在伊斯坦布尔会面。据称，乌克兰总统泽连斯基亲自恳请施罗德介入。施罗德曾说，他不确定普京是否想要见他，但他会尝试。然后他给普京的一个亲信打电话，问他是否可以来。普京的亲信开了绿灯，并表示周三一架俄罗斯飞机将在伊斯坦布尔接施罗德。
 
-他说当地的政府现在都特别支持，都知道了新中国联邦，都知道法治基金法制社会。我说法治基金法制社会是我们素未谋面的中国有正义的，反对共产党的战友捐的钱。我们不是无穷尽的钱，但是我们要救的是素未谋面的中国人，和乌克兰人和全世界的战友。我们是真正的未来大同世界的做好的模样和范本。
+施罗德的妻子So-yeon Schröder-Kim女士在社交媒体上宣布，她经常被问及她的丈夫是否可以调解冲突。 “许多人（……）亲自与我联系，询问我丈夫是否可以与普京先生谈论乌克兰的战争。”（[„Viele Menschen haben sich (…) bei mir persönlich gemeldet, ob mein Mann nicht mit Herrn Putin über den Krieg in der Ukraine reden könnte.“](https://www.waz.de/politik/gerhard-schroeder-frau-ukraine-russland-kritik-instagram-post-id234709823.html)） 除其他外，现在这种敦促可能也导致了施罗德与普京的会面。两人是多年的朋友。
 
-所以现在你们在现场的时候，大卫兄弟和正义小Sarah，你感觉到当地的政府，和警察对我们一下子就开始越来越欢迎和支持了。你们有什么感受跟大家谈一谈，那么最新的消息是共产党在乌克兰境内，所谓的协调人员已经都跑路了，都跑了。那么共产党滚蛋了，我们来了。新中国联邦人来了，来帮助乌克兰人民，救美国同胞，救我们中国同胞，救我们留学生。
+在乌克兰战争和俄罗斯入侵开始后，前总理格哈德·施罗德因没有与总统弗拉基米尔·普京保持距离，以及放弃与俄罗斯国有公司俄罗斯天然气工业股份公司的业务关系而受到批评。
 
-所以这种对比和反差，让当地的波兰人真的是看清了，谁可信谁这可交。所以说这几天我们感觉是，真是信心倍增，真是在当地越来越感受到我们，在扭转这种局面，所以我希望越来越多的战友来到当地，亲自感受到这种变化。
-
-并且用我们的言行告诉乌克兰人和波兰人，我们是来拯救这些同胞们，这些朋友们。我们不是共产党，共产党已经过去了，已经翻篇了。所以这几天我特别感受到了，他们友好的这种变化。每一个细节都能感受到。
-
-现场的兄弟姐妹们一定要记住，保持你们现在的队型。我们救人，我们是发自内心的，没有目的没有利益的。我们救人不要变成我们的压力，最重要的是新中国联邦人很自私的，我们不像共产党说的。
-
-我们所有人都不可以死去，不可以的。战友的安全和健康一点都不能受到损害，这就是你们在前线每个战友做的事情，必须吃好睡好，必须一根毛不能丢。这是绝对的要求。第二个我告诉大家，能救人就救人，救不了没办法我们尽力了，但是不能变成我们每个人的责任。
-
-视频剪辑：GC 听写|：雨山溪桥客 | 翻译：Arthur |校对：Polaris |编辑&发布：叶子
-
+相关链接：[https://www.berliner-zeitung.de/wochenende/laut-medienberichten-trifft-altkanzler-gerhard-schroeder-in-moskau-wladimir-putin-li.216269](https://www.berliner-zeitung.de/wochenende/laut-medienberichten-trifft-altkanzler-gerhard-schroeder-in-moskau-wladimir-putin-li.216269)
+发布：LK
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
