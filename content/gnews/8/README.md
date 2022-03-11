@@ -2,25 +2,31 @@
 ---
 
 
-## 视频|中共乌克兰撤侨新闻再现假照片（图片见备注）
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2146436/)
+## 共产党的疯狂快开始了
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2146494/)
 
-制作：香草山视频部
+文编：Hima
+听写：叮叮
+视频：七哥
 
-当地时间3月9日，俄罗斯入侵乌克兰的战争已经跨入了第十四天，但中共在乌克兰的撤侨救援行动依然迟缓，备受国内外诟病。
+2022-03-09直播摘录
 
-据中共官媒声称，中共政府自3月初开始就已经开始了所谓的撤侨任务：中共扬言已经包机将滞留在乌克兰的中国人全数成功救援回国，相关新闻还附上了中共宣传用的“撤侨照片”。
+今天我再给你们重申一遍：3月底到4月15号，是共产党在世界上开始疯狂的开始。它的疯狂在哪里，你们知道吗？一会儿你们可以问我，提醒我别让我忘了，我先今天跟你们说到这儿，俄乌战争意谓着什么？让我们现在首先大家一起开始，Rachel、小王子……
 
-但是，经过爆料革命战友对比分析后发现，中共官媒报道的乌克兰撤侨新闻中的三张照片与中共2011年在北非撤侨、2016年在新西兰撤侨和印度此次在乌克兰撤侨的照片一模一样。另据郭文贵先生在直播中透露，中共根本没有在乌克兰有任何的撤侨救援行动，乌克兰当地至今还有几百个中国留学生躲在基辅的地下室，他们没有食物和水，只能向日本人求救，希望能够得到些许帮助。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-对此，战友们也评论称，中共的乌克兰撤侨行动还是其一贯的“假骗偷”手段，所有的新闻无非是宣传给墙内民众看的一场表演。
+**关注我们**
 
-发稿：文敬
+Discord 账号
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
