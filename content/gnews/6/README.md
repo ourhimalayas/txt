@@ -2,58 +2,48 @@
 ---
 
 
-## 爱的传播（新中国联邦救援在行动）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2143803/)
+## 2022/03/07 新冠疫苗能够引发乳腺癌
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2143870/)
 
-作者：纽约香草山教育部-蓝之灵（hortênsia)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-救援在行动
-爱在传播
-我们的帐篷里
-有食品和火
-失去家乡的人们
-不要客气
-请吃个苹果
-烤烤火
+**简评：**
 
-传播爱
-传播勇敢和正义
-救援在寒冷里如荼如火
-老人，孩子和妇女
-得到安置
-在寒风里
-请接住毛毯和水果
-围着篝火
-享受温馨片刻
+大规模疫苗接种后，癌症数量剧增。国防部数据显示，癌症在军队增加了300%。Dr. Stephanie Seneff专门研究过疫苗会加速癌症发病率的可能性。认为从前患有癌症，并接种了新冠疫苗的人，潜伏的癌症会复发，尤其是乳腺癌。
 
-stop the war
-Stop the war
-让爱传播
-停止侵略
-停止杀戮
-让人们回归故土
-不再流离失所
-Stop the war
-stop the war
-传播爱与温暖
-停止侵略
-停止杀戮
-让人们回归故土
-愉快生活
+人体有一种抑制乳腺癌产生的BRCA蛋白质，疫苗中的刺突蛋白进入人体后能够抑制BRCA蛋白，引发乳腺癌。通过往年和其他疫苗的数据比对，COVID-19疫苗引发乳腺癌的比例在百分之90以上。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2406.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0310-3.jpg)
 
-审核/编辑/发稿:qiutian（邱甜）
+[**GETTR视频链接**](https://gettr.com/post/pz90lufe03)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+**视频字幕：**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**主持人**：炎症会导致不同的健康问题，我们知道你在谈论淋巴结。为什么我们现在看到这么多的癌症，有什么潜在的原因吗？最近出来的国防部数据，癌症在军队增加300%，有什么潜在的原因吗？
+
+**Dr. Stephanie Seneff**：我完全认为有。事实上，我已经写过论文，讨论过疫苗会加速癌症发病率的可能性。我认为任何患有癌症，然后接种了这种疫苗的人，潜伏的癌症会复发，我认为很多情况下都会发生。事实上我看了很多资料，有很多信号，尤其乳腺癌非常有意思，当然，淋巴结直接得到疫苗。12淋巴结是一个指标。正常情況下，如果你淋巴结肿大，应该去检查一下乳腺癌。现在他们说，那只是疫苗，不要担心。嗯，我不知道，也许它跟癌症有关。
+
+有一项关于刺突蛋白的研究表明，首先，它进入细胞核，第二，在细胞核中抑制一种叫做BRCA的蛋白质，这是很著名的蛋白质。之所以说它著名，是因为它与乳腺癌有关的基因突变有很大的关系。基因变异后抑制此蛋白质，刺突蛋白也有这个作用。它抑制BRCA蛋白，所以会引起乳腺癌。我看了各种资料，有很强的信号表明尤其与乳腺癌有关，也与许多不同的癌症和恶性肿瘤有关。各种数据，美国疫苗不良反应事件报告系统，反覆研究很有意思。
+
+我一直在研究，就我所看到的这些数字是惊人的。我看2021年的数据，看了一些乳腺癌与COVID-19疫苗的联系，然后我查看2021年期间与任何疫苗相关的所有乳腺癌病例，流感疫苗、MMR疫苗—麻疹、腮腺炎和风疹疫苗，各种不同的疫苗，然后看二者的比率。我发现大量不同严重问题的症状，结果是98%、99%、97%。也就是说与其他疫苗相比，COVID-19疫苗的比例都在百分之90大几。
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕：Vekap* *| 听写：云岭 | 翻译：Roberts* *| PR：clau**|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+
+
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

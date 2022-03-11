@@ -2,10 +2,10 @@
 ---
 
 
-## 安东尼·布林肯：制裁正在对俄罗斯经济产生破坏性影响
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2140191/)
+## 安东尼·布林肯：美国支持波兰向乌克兰人提供战机
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2140196/)
 
-03/06/2022 安东尼·布林肯：制裁正在对俄罗斯经济产生破坏性影响。
+03/06/2022 安东尼·布林肯：美国支持波兰向乌克兰人提供米格、苏式战斗机，以及乌克兰人可以驾驶的飞机。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

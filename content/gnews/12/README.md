@@ -2,24 +2,58 @@
 ---
 
 
-## 欧盟会议激烈讨论5小时 一致同意让乌克兰加入
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2143774/)
+## 爱的传播（新中国联邦救援在行动）
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2143803/)
 
-欧盟10日于法国巴黎郊外的凡尔赛举行领导人会议，讨论让乌克兰加入欧盟一事。立陶宛总统瑙塞达11日稍早透露，欧盟领导人对乌克兰的欧洲一体化皆表达同意，「英勇的乌克兰民族，值得了解他们在欧盟受到欢迎」。
+作者：纽约香草山教育部-蓝之灵（hortênsia)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+救援在行动
+爱在传播
+我们的帐篷里
+有食品和火
+失去家乡的人们
+不要客气
+请吃个苹果
+烤烤火
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpEn8Iqe.jpg)图片来源：路透
+传播爱
+传播勇敢和正义
+救援在寒冷里如荼如火
+老人，孩子和妇女
+得到安置
+在寒风里
+请接住毛毯和水果
+围着篝火
+享受温馨片刻
 
-「凡尔赛的历史性夜晚。」瑙塞达指出，经过5个小时的激烈讨论，欧盟领导人对乌克兰的「欧洲一体化」皆表达同意，「这个过程开始了。现在由我们和乌克兰人来快速完成」。瑙塞达也强调，「英勇的乌克兰民族，值得了解他们在欧盟受到欢迎」。
+stop the war
+Stop the war
+让爱传播
+停止侵略
+停止杀戮
+让人们回归故土
+不再流离失所
+Stop the war
+stop the war
+传播爱与温暖
+停止侵略
+停止杀戮
+让人们回归故土
+愉快生活
 
-新闻来源：[LTN](https://news.ltn.com.tw/news/world/breakingnews/3856512)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2406.jpg)
 
-撰稿/发布：一叶知秋
+审核/编辑/发稿:qiutian（邱甜）
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
