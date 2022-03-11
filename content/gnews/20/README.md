@@ -2,48 +2,35 @@
 ---
 
 
-## 日本援乌战略防御物资起运
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141895/)
+## 国际救援人员被新中国联邦志愿者感动，主动帮忙搭帐篷
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2141977/)
 
-撰稿: 香草山农场- Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
-3月8日，一架装载战略防御物资的日本自卫队的飞机，从航空自卫队小牧基地出发，飞往乌克兰。据悉，除了装载防弹背心、头盔和一些防护用品外，这架飞机还装载有食品、卫生用品、相机、发电机、帐篷和冬衣等战时应急物资，支援乌克兰。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1072.png)图片来自：https://cdn-japantimes.com/
-日本防卫省发出声明，已和乌克兰政府约定，禁止将日本提供的防卫物资另作他用，也禁止转移给第三国使用。此外，内阁官房长官松野博一同日表示，日本并不打算向乌克兰提供致命性武器。
+#### 【雅典娜快讯】，紧贴时代脉搏 
 
-自第二次世界大战结束后，日本一直严格遵守《和平宪法》规定，不介入海外军事活动，不向冲突各方提供防卫物资。但在3月8日的声明中，日本防卫省再度谴责俄罗斯违反国际法，对乌克兰发动战争、侵犯乌克兰主权与领土完整，动摇了欧亚的国际秩序基础。日方应乌克兰政府请求，及时提供防卫物资，并将继续尽一切努力协助乌克兰。
+整理/编辑：小红帽
 
-链接:
-
-[Japan sends military protective equipment to Ukraine](https://www.ukrinform.net/rubric-ato/3424220-japan-sends-military-protective-equipment-to-ukraine.html)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-11_13-14-50.png)图片来源：郭文贵先生盖特视频截图
 
 
+根据3月10日新中国联邦和法治基金前线记者妮可报道，很多国际救援人员被新中国联邦和法治基金志愿者的精神所感动，主动协助志愿者快速搭建起梅迪卡救援站的救援帐篷。
 
+妮可表示，昨天，新中国联邦和法治基金搭建了一个新的帐篷，全程只花了3-4个小时。除了新中国联邦和法治基金的志愿者以外，有很多国际救援人员受到新中国联邦和法治基金的志愿者的精神感染，都纷纷过来帮助。
 
+经过众人的齐心协力，在3-4小时之内， 就很快地把这个新帐篷给搭建好了。
 
-> To deliver bulletproof vests and helmets to [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw), KC-767 departed from Komaki Air base. JMOD/JSDF will continue to make every effort to assist Ukraine.
-> For [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/V74cPpTaby](https://t.co/V74cPpTaby)
-> — Japan Ministry of Defense/Self-Defense Forces (@ModJapan\_en) [March 8, 2022](https://twitter.com/ModJapan_en/status/1501219091067342848?ref_src=twsrc%5Etfw)
+随后，新中国联邦和法治基金的帐篷被国际红十字会作为运输乌克兰难民家庭的中转站。同时，Elon Mask也安排了星链的天空WIFI在新中国联邦和法治基金两个帐篷的正上空，为当地的志愿者提供稳定和快速的通讯服务。
 
+资料来源：[郭文贵先生2022年3月11日盖文](https://www.gettr.com/post/pzb8yl94fc)
 
+发布：tianzhihuan
 
-[Japan Will Send the Ukrainian Military Basic Supplies](https://www.wsj.com/livecoverage/russia-ukraine-latest-news-2022-03-04/card/japan-will-send-the-ukrainian-military-basic-supplies-VOtpnPjTX2ooK8dqQ8o8)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-59.jpg)
-
-编辑:飞虹
-
-总编: 雪梨
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

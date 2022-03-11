@@ -2,37 +2,46 @@
 ---
 
 
-## 52岁参议员金伯利•基钦突然去世，其去年接种两剂疫苗
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2141763/)
+## 受俄军控制，切尔诺贝利核电站断电
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141952/)
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+撰稿：日本方舟农场 Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
+3月9日早上，作为人类历史上核灾难象征的切尔诺贝利核电站，停止了向国际原子能机构传输数据。当天下午，乌克兰国家能源公司表示，切尔诺贝利核电站，已与电网断开连接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1073.png)ttutu’ptu’pitu’piatu’pian图片来自https://cdn.mos.cms.futurecdn.net
+早在2月24日，俄罗斯军队就已经侵占切尔诺贝利核电站。核电站的断电缘由尚不清楚，俄罗斯军队接下来将采取什么措施也不得而知。
 
-编辑/整理：小鱼儿
+乌克兰国家安全和情报局特别通信和信息保护局表示，核电站有2万个乏燃料组件需要持续冷却。如果没有电，水泵将无法冷却，储水池中的温度将升高。蒸发将导致核排放。设施内没有通风，所有人员将遭受危险剂量的辐射。此外，放射性云将通过风，转移到乌克兰、白俄罗斯、俄罗斯等欧洲其他地区。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/10-19.png)图片来源：雅典娜设计组&Adelaide Now
+乌克兰外长库列巴证实了这一消息，并表示，普京发动的野蛮战争正将整个欧洲置于危险之中。
+
+新闻链接：
+
+[切尔诺贝利核电站被俄军控制，国际原子能机构敦促保障核安全](https://news.un.org/zh/story/2022/02/1099752)
+
+[切尔诺贝利核电站监测系统停止向国际原子能机构传输数据](https://mil.news.sina.com.cn/world/2022-03-09/doc-imcwiwss5004943.shtml)
+
+[外媒：乌克兰切尔诺贝利核电站已完全断电](https://www.sohu.com/a/528496947_120046968?scm=1004.844964104975351808.0.0.5610&amp;spm=smpc.home.mil-pics.2.1646823603075DfPYSas)
+
+[Chernobyl ‘cut off from grid by Russians’, sparking fears over cooling of spent nuclear fuel](https://www.independent.co.uk/news/world/europe/ukraine-chernobyl-nuclear-power-plant-outage-b2031874.html)
 
 
-据九台新闻（9news）3月11日报道，昨天，参议员金伯利·基钦（ Kimberley Kitching） ，在墨尔本疑似“心脏病”发作。突然去世，享年 52 岁。基钦参议员出生于布里斯班，1995 年移居墨尔本。
 
-密友、前联邦工党领袖比尔·肖顿说：“我接到她丈夫的可怕电话，说她走了。所以我们跑到斯特拉斯莫尔的这条街上，她把车停在了那里，她心脏病发作了，我们和她的丈夫一起等到殡仪馆的车到来，这太可怕了。” 另外，据基钦参议员个人推文显示，去年7月，已经接种第二剂疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-23.png)
-目前，不确定基钦是否，接种第三剂疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-59.jpg)
 
-昨天早些时候，基钦参议员在脸书上，分享了支持昆州和新州人们受洪水影响的信息，“我的想法是与那些在新州和昆州失去家园、企业和亲人的人同在。”
+编辑：飞虹
 
-很遗憾，我们失去了一位有爱心、有正义感的参议员朋友，一路走好。
+总编：雪梨
 
-参考新闻：[Labor Senator Kimberley Kitching dies aged 52](https://www.9news.com.au/national/kimberley-kitching-dead-victorian-labor-senator-was-52/a63c9639-5071-4248-a5e5-629e4fed7ead)
+校正/发稿：浪迹天涯
 
-发布：
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
