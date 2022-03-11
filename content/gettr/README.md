@@ -19,6 +19,16 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@ddnyc 3/11/2022 5:31 PM (UTC)`
+
+ It’s the shoulder for me…@gfashion <br/>www.GFASHION.com
+> `@gfashion 3/11/2022 5:25 PM (UTC)`<br/>The coolest one shoulder turtleneck is 🔛.                                                          Shop Now https://gfashion.com/products/one-shoulder-turtleneck
+![img](https://media.gettr.com/group16/getter/2022/03/11/17/b098ba5a-b07e-0d2d-4443-56189704a5b7/8d5ec36b79d11302fdb1c6681e99f61e.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@pangushixun 3/11/2022 2:32 PM (UTC)`
 
 波兰时间3月10日下午6:00 三位意大利赶来的志愿者，将一车物资，大部分为婴幼儿用品放在medyka 新中国联邦帐篷门口，并委托新中国联邦现场救援义工，将这些物品分发给难民。<br/><br/>#盘古时讯  <br/>#乌克兰 #救援 #人道主义 <br/>#新中国联邦
@@ -149,13 +159,6 @@ By March 10th, more and more refugees arrived in the NFSC tent. The top media gr
 
 2022.03.10 晚《新中国联邦新闻访谈》人类"无皇有主"时代将至 世界新格局即将诞生；中共谎称已做好粮食储备 HPay化身救命钱包
 ![img](https://media.gettr.com/group47/origin/2022/03/11/01/94440d75-4e9f-615c-4f54-cccffbe7fd58/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/11/2022 1:36 AM (UTC)`
-
-3/10/2022 Miles Guo: Hong Kong's HSI is about to fall below 20,000 points, signaling a major economic collapse; it is totally karma that more Hong Kong police are infected with the CCP virus than ordinary citizens; we need to learn from the Ukraine war and understand that the H-Pay is a way for Chinese people to save their lives in wartime<br/><br/>3/10/2022 文贵直播：香港恒生指数快要跌破2万点，预示着香港经济的大崩溃; 感染CCP病毒的香港警察比普通市民要多得多，这是报应；我们要从俄乌战争中学会成长，认识到喜支付是中国人在战时的救命方式<br/>
-![img](https://media.gettr.com/group50/getter/2022/03/11/01/95c244ef-26eb-5661-fa06-b5a6b96d1187/out.jpg)
 
 ---
 

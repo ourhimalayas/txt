@@ -2,40 +2,64 @@
 ---
 
 
-## 中日财经爆| SEC发布退市风险名单 中概股暴跌蒸发超4000亿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2141415/)
+## 参议员泰德·克鲁兹：是时候结束暴虐的疫苗强制了！
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2141335/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-4.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fpic1.zhimg.com%2Fv2-82b780157e770203eca1de621404cc94_1440w.jpg%3Fsource%3D172ae18b&amp;imgrefurl=https%3A%2F%2Fzhuanlan.zhihu.com%2Fp%2F149619239&amp;tbnid=oXp4OuAFVrNu9M&amp;vet=12ahUKEwjU4rmwhb32AhU26WEKHZsQDcwQM)
-美国热门中概股周四（3月10日）迎来暴跌行情，多只龙头股出现两位数的崩溃式跌幅，市值蒸发超4000亿。起因是美国证监会（SEC）周二披露的一份包括五家在美上市中共国企业退市风险名单，
+参议员泰德·克鲁兹： 华盛顿特区以外的全国所有地区都在醒来。 是时候结束暴虐的疫苗强制了！ 【视频中克鲁兹称赞美国卡车司机的行动代表了民意，疫苗强制违宪，是时候停止了】
 
-美国证监会SEC周二（3月8日）基于外国公司问责法（HFCAA）列出了五家公司的名单，要求这些公司在3月29日之前对中国国资背景等信息做更进一步的披露，否则会被强制退市。
 
-SEC网站披露的暂定名单包括，百济神州、百胜中国、再鼎医药、盛美半导体与和黄医药，依据《外国公司问责法》认定为有退市风险的“相关发行人”。SEC并称，被临时认定的发行人若认为被认定错误，将有15个工作日与委员会工作人员联系，并应在信函中附上证据支持。发行人在最终确定之前不受外国公司问责法要求约束。
 
-华尔街对冲基金人士解释称，“可能是这几家公司最近发了年报，显示公司董事会可能出现中共国政府指派的官员，表明有政府的资产在里面，这就导致美国审计部门难以获得充分的审计信息，违反了外国公司问责法。”
+> The rest of the country outside of Washington, D.C. is waking up.
+>  
+> It’s time to end the tyrannical vaccine mandate! [pic.twitter.com/H9MXuOb9Li](https://t.co/H9MXuOb9Li)
+> — Senator Ted Cruz (@SenTedCruz) [March 11, 2022](https://twitter.com/SenTedCruz/status/1502117538637004842?ref_src=twsrc%5Etfw)
 
-五家公司在早盘交易中跌幅介于7.5-27.6%，其中盛美跌幅逼近三成。
 
-阿里巴巴美股大跌超9%，至逾五年低位，年初迄今跌幅扩大至超两成。腾讯控股挫逾6%。
 
-京东集团美股周四一度重挫18.9%，至近两年低位。滴滴、拼多多、网易、百度、哔哩哔哩和贝壳跌幅在6.7-17.7%之间。
+参议员兰德·保罗： 一家航空公司重新开始关心他们的员工和科学了. . .其他人会跟随吗？ 美国联合航空公司将让未接种疫苗的员工重返工作岗位
 
-据路透社统计，仅阿里巴巴、拼多多、网易、百度和京东等几家中概股合计蒸发的市值已高达4,000亿元人民币。
 
-教育股和造车新势力同样跌势惨重。高途、好未来和新东方跌幅在5.9-10%之间。小鹏汽车、蔚来和理想汽车跌幅介于5.6-9.7%。
 
-追踪在美上市中概股的纳斯达克金龙中国指数一度狂泻10.1%，至近六年低位。若跌势维持，该指数将创2008年末以来最大单日跌幅。
+> One airline resumes caring about their employees and science . . . Will others follow?
+> 
+> United Airlines will let unvaccinated employees return to jobs [https://t.co/6yRt0ftRF9](https://t.co/6yRt0ftRF9)
+> — Rand Paul (@RandPaul) [March 11, 2022](https://twitter.com/RandPaul/status/1502104959290122241?ref_src=twsrc%5Etfw)
 
-分析人士指出，欧美交易所暂停俄罗斯公司存托凭证和股票的交易，让海外投资者担忧未来中概股或遭遇与俄罗斯存托凭证类似的命运，监管方面也没有见到有利转变。
 
-消息来源:
 
-**[焦点：退市风险名单引爆美中概股“血屠”之夜 中国证监会凌晨紧急回应](https://cn.reuters.com/article/china-csrc-us-sec-delist-0311-idCNKCS2L803K?il=0)**
+比尔.格茨： 国家情报总监：乌克兰实验室没有开展生物战（研究）工作，美国的支持仅限于生物安全和安保。 对俄罗斯接管实验室的担忧是基于病原体可能被滥用 【转比尔.格茨华盛顿时报报道：国家情报总监称：乌克兰实验室不涉及生物武器，尽管俄罗斯指控】
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+
+
+> DNI: Ukrainian labs are not conducting biowarfare work and US support was limited to biosafety and security. Concerns about Russian takeover of the labs is based on possible misuse of pathogens [https://t.co/vOGFF5wpmH](https://t.co/vOGFF5wpmH)
+> — Bill Gertz (@BillGertz) [March 10, 2022](https://twitter.com/BillGertz/status/1501973283536838656?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·华尔兹： 普京有使用构陷花招的历史。看看叙利亚，俄罗斯在阿萨德的军队中使用了少量化学制剂，以此作为使用化学武器进行报复的借口。 这可能为普京在乌克兰策划同样的事情奠定了基础。 【附福克斯视频：美国表示：我们在乌克兰没有生化武器实验室】
+
+
+
+> Putin has a history of using false flags. Just look at Syria where Russia used minor chemical agents on Assad's forces as a pretext to retaliate with chemical weapons.
+> 
+> This could be setting the stage for Putin to orchestrate the same in Ukraine. [pic.twitter.com/DOrQzN4cCz](https://t.co/DOrQzN4cCz)
+> — Rep. Mike Waltz (@michaelgwaltz) [March 10, 2022](https://twitter.com/michaelgwaltz/status/1502048472194768897?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 极权主义精神并没有随着冷战的结束而消亡 但现在在亚洲、东欧和中东，它又一次存活于大国内部 【附视频，卢比奥议员在参议院情报听证会上致开幕词】
+
+
+
+> The spirit of totalitarianism did not die with the end of the Cold War 
+> 
+> But now in Asia, Eastern Europe and the Middle East it once again lives inside of great powers
+> 
+>  [pic.twitter.com/KhOf1CCosB](https://t.co/KhOf1CCosB)
+> — Marco Rubio (@marcorubio) [March 10, 2022](https://twitter.com/marcorubio/status/1502027110168285195?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
