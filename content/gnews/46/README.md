@@ -2,33 +2,36 @@
 ---
 
 
-## 全球瞩目！新中国联邦乌克兰人道救援在行动
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2140870/)
+## 向世界曝光中共阻扰救援侵犯人权的丑陋行为
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141348/)
 
-3月10日，新中国联邦乌克兰人道救援行动在全世界引起了广泛的关注，来自世界各地的媒体和机构来法治基金新中国联邦的大帐篷来拍摄难民。
+作者：纽约香草山  宁文静, 银河系农场  骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月11日，来自战地记者Nicole的现场报道。中共持续动用各种力量，黑客并篡改法治基金救援邮箱，给救援工作造成严重干扰。悉尼乌克兰协会将救援信息公布在官方网站首页，但该条信息只存留十个小时左右，就因中共不断施压乌克兰政府，而被迫删除。
 
-美联社、彭博社、盖帝图片社、意大利电视台、西班牙电视台、波兰最大报纸和电视台、阿拉伯迪拜电视台……国际红十字会的工作人员穿着他们的制服（上面有印着红十字会的标志）把过境的妇女和儿童送到新中国联邦救援大帐篷里安顿。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-7.jpeg)
 
-法治基金新中国联邦组织的前线救援人员和总部位于瑞士的国际人道救援机构“无疆界医生组织“ （Doctors Without Borders，简称：MSF）并肩行动 ！
+这种泯灭人性，罔顾生死，恶意剥夺乌克兰难民选择机会的行为，让驻扎在米蒂卡基地的许多其它国家的媒体人，在得知情况之后连连摇头。Nicole相信，战友们抓住一切机会，向这些国际媒体曝光中共反人道的种种劣行，总有一天，真相会大白于天下。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/8-17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-34.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-56.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-71.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-114.jpg)
+参考链接：
+1. [新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播](https://gettr.com/post/pz9rok9003)
+2. [https://gettr.com/post/pz94rb8ea4](https://gettr.com/post/pz94rb8ea4)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-素材来源：新中国联邦前线战友！感谢你们的付出，你们辛苦了！
+总编：宁文静
+编辑：静言
+审核：Irene木木
+校正/发稿：谐趣园
 
-撰稿/发布：一叶知秋
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

@@ -2,49 +2,36 @@
 ---
 
 
-## 普京告诉马克龙乌克兰是他的女人,习皇帝定要解放台湾
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2145000/)
+## 中日财经爆┃中概股正变“中丐股”：股价狂跌28%！爱奇艺又传多名高管请辞
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2145133/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8845.60%EF%BC%89%E6%99%AE%E4%BA%AC%E5%91%8A%E8%AF%89%E9%A9%AC%E5%85%8B%E9%BE%99%E4%B9%8C%E5%85%8B%E5%85%B0%E6%98%AF%E4%BB%96%E7%9A%84%E5%A5%B3%E4%BA%BA%2C%E4%B9%A0%E7%9A%87%E5%B8%9D%E5%AE%9A%E8%A6%81%E8%A7%A3%E6%94%BE%E5%8F%B0%E6%B9%BE%E3%80%902022%E5%B9%B402%E6%9C%8811%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:f)
+撰稿：东京樱花团/喜马拉雅的微尘
 
-**郭文贵先生：**还有打不打乌克兰、打不打台湾，我告诉你已经不在你决定范围之内了。你看看普京跟马克龙见面儿是吧？就是原话就是：“你别给我废话，乌克兰就是我的女人。”这话普京说的——“乌克兰就是我的女人！”是吧？！谁都别想动，就属于我的了，我想啥时候拿回来就拿回来，他没有选择。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/中日财经爆┃中概股正变中丐股：股价狂跌28！爱奇艺又传多名高管请辞.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://cdn.pingwest.com/portal/2020/09/07/9j_6Sd458rmmXAMeS4R_mNyhn224aHaj.jpeg&amp;imgrefurl=https://www.pingwest.com/a/217732&amp;tbnid=-B8j-1a6K2anOM&amp;vet=12ahUKEwjJv6KNmL72AhVPA6YKHSX8Dn4QMygGegUIARDEAQ..i&amp;docid=NMN92Mg3s-QzyM&amp;w=1080&amp;h=668&amp;q=%E7%88%B1%E5%A5%87%E8%89%BA&amp;ved=2ahUKEwjJv6KNmL72AhVPA6YKHSX8Dn4QMygGegUIARDEAQ)
 
-你说普京你知道跟外交部的还有那个国安委的人说什么吗？说你们这游戏玩儿的是特别好，但是你们老百姓真的会不懂吗？你真觉得他们不懂吗？普京就这么问他们，都傻在那儿不吱声，谁敢回普京这话？这是普京身边的人告诉我的。
+郭文贵先生对于中概股变“中丐股”的断言，正在快速得到验证兑现。
 
-普京就这么原话问的，你们老百姓真的不懂吗？真傻吗？然后普京笑着，就跟那小孩儿似的笑着说：“你们真会玩啊，你们真敢玩啊。”就是意思是你真敢骗呐、你真敢忽悠啊！
+3月10日，美国证监会（SEC）披露的一份包括五家在美上市的中国企业退市风险名单，令中概股周四全面大跌，导致多只龙头股出现两位数的跌幅。其中爱奇艺更是出现高达28%的崩溃式暴跌。
 
-欸，但是报告给习近平说：普京大加赞叹，美轮美奂、绝美呀！哈哈哇塞！这个就七哥就高兴的不行了，我就希望这种感觉就是他们骗了老百姓还有人再骗他，这个感觉我就非常爽了，你知道吗？他骗老百姓我很不爽，但有人反过来再骗一下“习太阳”我很爽，为什么？他要为这场欺骗的游戏、虚假的游戏他要买单。你骗子国最后就是毁灭共产党最有力的武器之一。
+近期，爱奇艺多名业务高管请辞的消息：《爱奇艺为盈利正削减内容投入，众剧集遭搁置》一度冲上热搜。在周四股价暴跌之后，爱奇艺人事问题更加引人关注。
 
-然后告诉必须打台湾，不打台湾你就不是太阳，只有你打台湾，你生下来就是秦始皇再世啊。
+3月11日，爱奇艺向媒体表示，报道里提到的多名业务高管并未离职。在上述文章中所提到的综艺规划部和综艺宣推部负责人杨洋，爱奇艺剧集和动漫营销内容营销总监陈麒伊已离职，但他们并非高管，而是部门总监。
 
-你打台湾，台湾90%的人就欢迎你去呀，台湾人就在家里挂上习主席、“习太阳”的像啊，是吧？习主席那不会问他此话当真？（习认为）当然了！他觉得当然了！这不就是我们想要的吗？
+去年以来，在持续巨亏、大规模裁员和股价大跌之后，爱奇艺高层动荡的传言不断。
 
-编辑整理：Jacques；
+在俄罗斯入侵乌克兰之后，随着西方国家制裁的不断升级，全球对于中概股甚至与中共相关的投资的信心已经瓦解。
 
-字幕档制作：兵嫂；
+春江水暖鸭先知。爱奇艺以及其他中概股的结局，或许高管远比外人更清楚。
 
-视频制作及上传：Cindy；
+信息来源：
 
-G-News发布：海贼王M.D.LUFFY；
+[热门中概股集体大跌：爱奇艺跌28% 拼多多跌17%](https://news.mydrivers.com/1/819/819505.htm)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+[爱奇艺多名业务高管否认请辞传闻](https://www.163.com/dy/article/H26GQTAI0514D3UH.html?clickfrom=w_tech)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
-
+*编辑：东京樱花团/逢⑦必变
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

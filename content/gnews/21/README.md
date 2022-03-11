@@ -2,30 +2,33 @@
 ---
 
 
-## 樱花时政┃搅浑水还是装无辜？中共宣称互联网遭受美欧攻击
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2144630/)
+## 吉林长春因CCP病毒疫情开启封闭式管理
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2144820/)
 
-撰稿：东京樱花团丨喜马拉雅的微尘
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.11-E.jpg)网络图片
+中共国于周五下令封锁东北重要城市长春的 900 万居民，原因是该地区因高度传染性的 Omicron 变异毒株而导致新增确诊病例出现上升。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/搅浑水还是装无辜？中共宣称互联网遭受美欧攻击.png)
+居民必须留在家中，允许一名家庭成员每两天出去购买食物和其他必需品。所有居民都必须接受三轮大规模的病毒检测，同时非必要业务将被关闭，交通也将暂停。
 
-[*图片来源*](https://www.google.com.hk/imgres?imgurl=https://warontherocks.com/wp-content/uploads/2015/04/China-Binary.jpg&amp;imgrefurl=https://warontherocks.com/2015/04/why-do-the-chinese-hack-fear/&amp;tbnid=pR3VKImMhRV9rM&amp;vet=12ahUKEwim88-eir72AhVKY94KHY_-CgIQMygQegUIARCAAQ..i&amp;docid=8BvWyiW4TJlO8M&amp;w=1024&amp;h=682&amp;q=CCP%20Internet%20Hackers&amp;ved=2ahUKEwim88-eir72AhVKY94KHY_-CgIQMygQegUIARCAAQ)
+最新的封锁措施还在山东省的禹城实施，该城有大约50万人口。这些迹象表明中共国仍然在坚持过去两年里一贯严厉的防疫措施——尽管早些时候有迹象表明当局似乎打算采取更多有针对性的灵活政策。
 
-中共新华社3月11日消息，中共国家互联网应急中心宣称，2月下旬以来，国内互联网持续遭受境外网络攻击，境外组织通过攻击控制其境内计算机，进而对俄罗斯、乌克兰、白俄罗斯进行网络攻击。
+中共国周五在全国报告了另外 397 起本地传播病例，其中 98 起在该国汽车工业中心长春周边的吉林省。自上周晚些时候首次爆发最新疫情以来，官方报道的该省总病例已超过1,100例。
 
-报道称，经分析，这些攻击地址主要来自美国，仅来自纽约州的攻击地址就有10余个，攻击流量峰值达36Gbps，87%的攻击目标是俄罗斯，也有少量攻击地址来自德国、荷兰等国家。
+周五，长春市实施上仅上报了2例病例，而最近几天的总数则达到78例。中共当局表示，在对大流行采取“零容忍”态度的情况下，只要发现一例或多例感染，就将封锁相关社区。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/搅浑水还是装无辜？中共宣称互联网遭受美欧攻击2.png)
+附近与省份同名的吉林市则报告了93例确诊。当局已经下令对该市进行部分封锁，并切断当地与其他城市的旅行联系。
 
-长期以来，中共一直有运用网络部队对欧美政府、企业、金融机构等进行有组织、大规模的网络攻击，窃取有关数据的同时，还肆无忌惮地利用网络信息超限战的手段全面干预包括总统大选在内的欧美政治、经济和社会的运行。
+吉林农业科技大学的官员在校园内报告了一系列感染事件后被解雇，学生们在社交媒体上抱怨检测呈阳性的人被限制在学校图书馆和其他条件恶劣的建筑物中。
 
-俄罗斯入侵乌克兰战争爆发以来，各个领域的正义人士纷纷以实际行动支持乌克兰，对于在其中扮演不光彩角色的中共，此时大声宣称被网络攻击，个中缘由值得玩味。
+据中共官媒报道，该校目前已记录确诊病患74例，6000多人遭转移进行隔离。航拍图像显示，身穿防护服的学生们在寒冷和黑暗中排队等候转移。
 
-信息来源：[**我国互联网遭受境外网络攻击|计算机**](https://www.163.com/dy/article/H26AF5KE0534A4RJ.html?clickfrom=w_tech)
+*发布：Gradient Boost*
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+新闻参考链接：
+
+[China locks down city of 9 million amid new spike in cases](https://apnews.com/article/covid-health-china-changchun-fbe63032924a44e4f7874d0bf0a2988f)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

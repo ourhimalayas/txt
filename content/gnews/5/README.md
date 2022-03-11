@@ -2,34 +2,35 @@
 ---
 
 
-## 救援前线：荷兰战友辗转千里为前线送中餐
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2145139/)
+## 有声|联合国以141票通过谴责俄罗斯入侵乌克兰的决议
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2145302/)
 
-作者/编辑：文泓
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月2日，141个国家投票赞成联合国大会决议，谴责俄罗斯对乌克兰的野蛮侵略，并要求所有俄罗斯军队立即完全撤出乌克兰领土。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/@2@Y9ADJEX1YQ8AOC7L@MY.png)图片来源：救援前线电报群视频截屏
+联大全会投票是在俄罗斯否决了由15个成员组成的联合国安理会的类似决议后进行的。白俄罗斯、朝鲜、厄立特里亚和叙利亚等四个国家，与俄罗斯一起投票反对该决议，而中国、印度等35个国家投了弃权票。与俄罗斯有着密切历史渊源的塞尔维亚对该决议投了赞成票，令人惊讶。阿拉伯联合酋长国和以色列，之前因拒绝对俄罗斯的侵略行为发表意见而遭到批评，这次也选择对该决议投赞成票。
 
+观察人士分析，印度从苏联时代起就与俄罗斯有着长期的军事联系，令美国头疼。而中共国在此战争背后的支持与舆论导向，更让世界看清了其邪恶本质。投票结果表明，一个全球性的反普京联盟已经形成并正在运作。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-9-1.jpg)
+文字版原文：[联合国以141票通过谴责俄罗斯入侵乌克兰的决议](https://gnews.org/zh-hans/2141437/)
 
-当地时间3月11日，据新中国联邦记者妮可前方报道，今天救援中心收到一份特殊的礼物——中餐，由荷兰战友空运至波兰华沙，再由华沙陆路辗转数小时抵达边境口岸梅迪卡小镇。这是一批真空包装的中餐食品，食材也很有特色，有扒鸡、鸡翅、猪蹄、宫保鸡丁、鸡蛋、点心和白米饭等。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-当然，这些食材在和平时期都不值一提，甚至俊男倩女们为了抵御卡路里刻意与它们保持距离。但是，今天这批食材送到救援前线意义完全不一样。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-在俄乌战争全面爆发的今天，战火纷飞、物质匮乏，当地食不果腹已成为常态。新中国联邦战友们依托法治基金的强力支援，不至于挨饿，但在遥远的波兰，让东方人的胃长期吃面包、牛肉恐怕都难以承受。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-后方战友心系前线，难能可贵的是荷兰的战友千里迢迢空运了一批真空包装的中餐，让远离故土的同胞，可以感受家乡的味道，这是既是一份浓浓的战友情谊，也体现了我们新中国联邦人拥有共同基因，前方与后方无距离心连心。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-以下是美图欣赏（图片来源均为视频截屏）：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/H763NCNCI@PL0EVPPW.png)图1：房车&餐车![](https://assets.gnews.org/wp-content/uploads/2022/03/1-121.png)图2：扒鸡![](https://assets.gnews.org/wp-content/uploads/2022/03/2-65.png)图3：鸡蛋和面点![](https://assets.gnews.org/wp-content/uploads/2022/03/4-48.png)图4：鸡翅![](https://assets.gnews.org/wp-content/uploads/2022/03/6-51.png)图5：宫保鸡丁![](https://assets.gnews.org/wp-content/uploads/2022/03/7-33.png)图6：猪蹄
-资料来源：救援前线电报群
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-发布：tianzhihuan
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,31 +2,35 @@
 ---
 
 
-## 樱花FM|中日财经爆：日本1月经常帐赤字1.18万亿 创8年来新高
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2145004/)
+## 救援前线：荷兰战友辗转千里为前线送中餐
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2145139/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/R8wIvUodVb81ydxIBd2kzTlok8C2RtGs_2X1sFQZdc5yoNFw15Cbx7NqzrcLTeMClYgf_auxob5ruXXwnIlC5wMdd-DwklUvMlqe7Pb4MM_5e99DsMua8565EdfEjS6CvToGEy-u)
-路透社3月8日报导，日本1月录得自2014年初以来最大经常帐赤字，因石油进口成本跳升抵消了投资收益的增加，乌克兰危机和中共病毒疫情带来的不确定性依然存在。
+作者/编辑：文泓
 
-经常帐数据凸显出资源匮乏的日本经济对于大宗商品和原材料进口的依赖，这种依赖性导致贸易逆差扩大，因其最大贸易伙伴中共国的需求放缓。
-
-数据显示，作为世界第三大经济体的日本1月经常帐赤字为1.1887万亿日圆（103.1亿美元），这是连续第二个月出现赤字，此前中共国在农历新年假期前需求放缓，拖累了日本经济从中共病毒（新冠病毒）引发的低迷中复苏。这也是1985年以来可比数据中的第二大逆差。
-
-飙升的燃料成本使1月进口额比去年同期增加了39.9%，超过了出口15.2%的增幅。疲软的日圆亦抬高进口成本，在一定程度上推动了贸易逆差。
-
-除日本购买力下降之外，数据还显示外国游客人数锐减，使旅游账户的盈余减少到只有123亿日圆。数据显示，服务账户赤字达到7,379亿日圆。
-
-文字版原文：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/@2@Y9ADJEX1YQ8AOC7L@MY.png)图片来源：救援前线电报群视频截屏
 
 
-| [中日财经爆┃日本1月经常帐赤字1.18万亿 创8年来新高](https://gnews.org/zh-hans/2124593/) |   |
-| --- | --- |
+当地时间3月11日，据新中国联邦记者妮可前方报道，今天救援中心收到一份特殊的礼物——中餐，由荷兰战友空运至波兰华沙，再由华沙陆路辗转数小时抵达边境口岸梅迪卡小镇。这是一批真空包装的中餐食品，食材也很有特色，有扒鸡、鸡翅、猪蹄、宫保鸡丁、鸡蛋、点心和白米饭等。
 
+当然，这些食材在和平时期都不值一提，甚至俊男倩女们为了抵御卡路里刻意与它们保持距离。但是，今天这批食材送到救援前线意义完全不一样。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+在俄乌战争全面爆发的今天，战火纷飞、物质匮乏，当地食不果腹已成为常态。新中国联邦战友们依托法治基金的强力支援，不至于挨饿，但在遥远的波兰，让东方人的胃长期吃面包、牛肉恐怕都难以承受。
+
+后方战友心系前线，难能可贵的是荷兰的战友千里迢迢空运了一批真空包装的中餐，让远离故土的同胞，可以感受家乡的味道，这是既是一份浓浓的战友情谊，也体现了我们新中国联邦人拥有共同基因，前方与后方无距离心连心。
+
+以下是美图欣赏（图片来源均为视频截屏）：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/H763NCNCI@PL0EVPPW.png)图1：房车&餐车![](https://assets.gnews.org/wp-content/uploads/2022/03/1-121.png)图2：扒鸡![](https://assets.gnews.org/wp-content/uploads/2022/03/2-65.png)图3：鸡蛋和面点![](https://assets.gnews.org/wp-content/uploads/2022/03/4-48.png)图4：鸡翅![](https://assets.gnews.org/wp-content/uploads/2022/03/6-51.png)图5：宫保鸡丁![](https://assets.gnews.org/wp-content/uploads/2022/03/7-33.png)图6：猪蹄
+资料来源：救援前线电报群
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

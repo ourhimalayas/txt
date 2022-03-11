@@ -2,23 +2,19 @@
 ---
 
 
-## 樱花FM|中日财经爆:英国推新法案打击俄罗斯权贵“黑钱”
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2145005/)
+## 樱花FM|政府修改规则向乌克兰输送自卫装备
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2145152/)
 
 音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/oLvGRF-r5URJZwmDfHWD9zNy8aWJpLXeBh0E5Q0ElEMX--od66ywx4inLIFxKi24ZyBByaq9CuYGyu9g3nckvgeQpMKTHvG4l8v6jwSKP5Ag39odWoczE28L7bg_6wOA_zgOLYnD)
-英国周一（3月7日）制定打击“黑钱”的办法，推出“阻碍”俄罗斯总统普京的新法案，使得与他关系密切的人士更难利用伦敦为所欲为。
+![](https://lh5.googleusercontent.com/FM1EyT0wMXSEPzu50tyAE_BFsfODP3VxaFkgfQQ43TwZ9RS2p3IecEHq9dyZ0PvqkDdrHqF2sDT-GylxHG7piEuOHWLRwpp-KzD2BATWR7MFOob7NleTWRv6Uh_UFJIJsuarfefK)
+3月8日，在自民党防卫联合会议上，政府为向正在遭受俄罗斯入侵的乌克兰提供防弹背心等自卫装备，决定修改有关装备品出口规则的《防卫装备转移三原则》的使用指南。修改后，自民党打算最早在当天开始将这些物资装上日本境内基地的自卫对飞机，开始输送。
 
-拖延已久的《经济犯罪法案》出台之际，正值立法者不分党派呼吁政府采取更多措施，阻止俄罗斯资金流入伦敦，以回应普京对乌克兰的军事入侵。
-
-内政大臣帕特尔（Priti Patel）对议会表示，新法律表明政府“决心肃清我们经济中的黑钱，更重要的是，打击普京和他的亲信”。
-
-国际透明组织（Transparency International）的英国政策主任Duncan Hames表示，最重要的一步是建立新的登记册，要求在英国拥有房产的匿名外国业主披露自己的身份，以阻止一些人躲在空壳公司背后。
+《防卫装备转移三原则》是在2014年废除了基于《武器出口三原则》的现行禁运政策，允许在一定条件下出口国防装备的规则。使用指南规定了允许海外出口的具体规则。
 
 文字版原文：
 
 
-| [中日财经爆┃英国推新法案打击俄罗斯权贵“黑钱”](https://gnews.org/zh-hans/2124627/) |   |
+| [政府修改规则向乌克兰输送自卫装备](https://gnews.org/zh-hans/2125236/) |   |
 | --- | --- |
 
 

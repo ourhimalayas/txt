@@ -2,24 +2,64 @@
 ---
 
 
-## 俄乌外长在土耳其首次举行会谈无果
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2140182/)
+## 参议员泰德·克鲁兹：是时候结束暴虐的疫苗强制了！
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2141335/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-69.png)（图片来源于本文链接）
-俄外长拉夫罗夫和乌外长库列巴3月10日在土耳其进行会谈。这是2月24日俄入侵乌以来两国外长的首次会谈，乌外长在会谈后表示没有取得进展。库列巴9号说，“坦率说，我对会谈的期望有限，乌克兰正在寻求停火、解放其领土并解决所有人道主义问题。”他声称，与拉夫罗夫会谈的成功与否取决于普汀给拉夫罗夫“下了什么样的指令，”“我想重申，乌克兰没有投降，也不会投降。”
+参议员泰德·克鲁兹： 华盛顿特区以外的全国所有地区都在醒来。 是时候结束暴虐的疫苗强制了！ 【视频中克鲁兹称赞美国卡车司机的行动代表了民意，疫苗强制违宪，是时候停止了】
 
-在两国外长会谈之际，乌总统泽连斯基呼吁西方加强对俄的制裁，“以便让他们坐到谈判桌前，结束这场残酷的战争。”他在10日接受媒体采访时表示，相信普京会在某个阶段同意会谈。“我认为他看到了我们的强大。他会的。我们需要一些时间”，泽连斯基说。
 
-另一方面，泽连斯基也表现出一些妥协的意愿。被问及“如何看待接受顿巴斯独立、克里米亚归属俄罗斯的要求，以及为了和平准备放弃什么”的时候答道，“在任何谈判中，目标都是结束战争。而且我也准备作出一些妥协”他说，“不是不能作出妥协，但这些妥协绝不能是对国家的背叛”。他也强调，另外一方也必须准备好作出妥协。他在接受美国媒体ABC采访时表示，愿意就东部分离主义地区以及被俄并吞的克里米亚地位问题举行会谈，他表示重要的是倾听当地人民的意愿。乌克兰暂时不会加入北约。
 
-信息来源：
+> The rest of the country outside of Washington, D.C. is waking up.
+>  
+> It’s time to end the tyrannical vaccine mandate! [pic.twitter.com/H9MXuOb9Li](https://t.co/H9MXuOb9Li)
+> — Senator Ted Cruz (@SenTedCruz) [March 11, 2022](https://twitter.com/SenTedCruz/status/1502117538637004842?ref_src=twsrc%5Etfw)
 
-[土耳其斡旋下 俄乌外长开始举行谈判](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220310-%E5%9C%9F%E8%80%B3%E5%85%B6%E6%96%A1%E6%97%8B%E4%B8%8B-%E4%BF%84%E4%B9%8C%E5%A4%96%E9%95%BF%E5%BC%80%E5%A7%8B%E4%B8%BE%E8%A1%8C%E8%B0%88%E5%88%A4)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+
+参议员兰德·保罗： 一家航空公司重新开始关心他们的员工和科学了. . .其他人会跟随吗？ 美国联合航空公司将让未接种疫苗的员工重返工作岗位
+
+
+
+> One airline resumes caring about their employees and science . . . Will others follow?
+> 
+> United Airlines will let unvaccinated employees return to jobs [https://t.co/6yRt0ftRF9](https://t.co/6yRt0ftRF9)
+> — Rand Paul (@RandPaul) [March 11, 2022](https://twitter.com/RandPaul/status/1502104959290122241?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨： 国家情报总监：乌克兰实验室没有开展生物战（研究）工作，美国的支持仅限于生物安全和安保。 对俄罗斯接管实验室的担忧是基于病原体可能被滥用 【转比尔.格茨华盛顿时报报道：国家情报总监称：乌克兰实验室不涉及生物武器，尽管俄罗斯指控】
+
+
+
+> DNI: Ukrainian labs are not conducting biowarfare work and US support was limited to biosafety and security. Concerns about Russian takeover of the labs is based on possible misuse of pathogens [https://t.co/vOGFF5wpmH](https://t.co/vOGFF5wpmH)
+> — Bill Gertz (@BillGertz) [March 10, 2022](https://twitter.com/BillGertz/status/1501973283536838656?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·华尔兹： 普京有使用构陷花招的历史。看看叙利亚，俄罗斯在阿萨德的军队中使用了少量化学制剂，以此作为使用化学武器进行报复的借口。 这可能为普京在乌克兰策划同样的事情奠定了基础。 【附福克斯视频：美国表示：我们在乌克兰没有生化武器实验室】
+
+
+
+> Putin has a history of using false flags. Just look at Syria where Russia used minor chemical agents on Assad's forces as a pretext to retaliate with chemical weapons.
+> 
+> This could be setting the stage for Putin to orchestrate the same in Ukraine. [pic.twitter.com/DOrQzN4cCz](https://t.co/DOrQzN4cCz)
+> — Rep. Mike Waltz (@michaelgwaltz) [March 10, 2022](https://twitter.com/michaelgwaltz/status/1502048472194768897?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 极权主义精神并没有随着冷战的结束而消亡 但现在在亚洲、东欧和中东，它又一次存活于大国内部 【附视频，卢比奥议员在参议院情报听证会上致开幕词】
+
+
+
+> The spirit of totalitarianism did not die with the end of the Cold War 
+> 
+> But now in Asia, Eastern Europe and the Middle East it once again lives inside of great powers
+> 
+>  [pic.twitter.com/KhOf1CCosB](https://t.co/KhOf1CCosB)
+> — Marco Rubio (@marcorubio) [March 10, 2022](https://twitter.com/marcorubio/status/1502027110168285195?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

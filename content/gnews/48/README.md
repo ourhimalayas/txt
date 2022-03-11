@@ -2,24 +2,34 @@
 ---
 
 
-## 乌驻德大使批德国背后捅刀，呼吁北约设禁飞区
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2140176/)
+## 全球瞩目！新中国联邦乌克兰人道救援在行动
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2140870/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-3.jpg)（图片来源于本文链接）
-3月7号德总理舒尔茨表示，因为欧洲的能源供应途径单一，能源供应对生活生存至关重要，因此德不会停止进口俄石油天然气。德在燃料方面严重依赖俄罗斯。根据数据统计，俄天然气占德国总进口量约55%，煤炭占50%，原油进口为35%左右。
+3月10日，新中国联邦乌克兰人道救援行动在全世界引起了广泛的关注，来自世界各地的媒体和机构来法治基金新中国联邦的大帐篷来拍摄难民。
 
-梅尔尼克在接受《世界报》专访时说：“这一表态无异于背后捅刀，而且会失去道德制高点，现在的问题是，乌还会有无数平民会在俄轰炸中死亡。德国无论作为北约成员还是欧盟成员国都是最迟疑最犹豫的国家。他说，在将俄逐出Swift系统和停止从俄进口能源产品上，都是首鼠两端，令人痛心。我认为德民众看到总理不能扮演领导者的角色，而是畏首畏尾，一定会觉得很尴尬。”
+美联社、彭博社、盖帝图片社、意大利电视台、西班牙电视台、波兰最大报纸和电视台、阿拉伯迪拜电视台……国际红十字会的工作人员穿着他们的制服（上面有印着红十字会的标志）把过境的妇女和儿童送到新中国联邦救援大帐篷里安顿。
 
-此前德国批准向基辅提供的1000枚反坦克导弹和500件美制“毒刺”防空武器均已送达，另外还有23000顶头盔、1300件防护腰衣和50000个食品包。梅尔尼克呼吁北约在乌设置禁飞区，“让我们瞧瞧普京是否有胆量起飞”。梅尔尼克在采访中还表示，乌克兰不会投降，因为如果投降了，“乌克兰民族就将被摧毁了，乌克兰就不再存在了”。他坚信，乌克兰最终会取得这场战争的胜利。“在道义上，我们早就赢了。”
+法治基金新中国联邦组织的前线救援人员和总部位于瑞士的国际人道救援机构“无疆界医生组织“ （Doctors Without Borders，简称：MSF）并肩行动 ！
 
-信息来源：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/8-17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-34.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-56.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-71.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-114.jpg)
 
-[乌克兰大使强调建禁飞区：看普京是否有胆量起飞战机](https://www.dw.com/zh/%E4%B9%8C%E5%85%8B%E5%85%B0%E5%A4%A7%E4%BD%BF%E5%BC%BA%E8%B0%83%E5%BB%BA%E7%A6%81%E9%A3%9E%E5%8C%BA%E7%9C%8B%E6%99%AE%E4%BA%AC%E6%98%AF%E5%90%A6%E6%9C%89%E8%83%86%E9%87%8F%E8%B5%B7%E9%A3%9E%E6%88%98%E6%9C%BA/a-61080497)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+素材来源：新中国联邦前线战友！感谢你们的付出，你们辛苦了！
+
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
