@@ -2,8 +2,8 @@
 ---
 
 
-## 辉瑞公司完全知道他们的疫苗是危险的，小罗伯特-肯尼迪：&#8221;根据他们自己的研究，因这种疫苗而死于心脏病的风险比你不接种疫苗要高500%，所以他们知道他们要杀死很多人，而且他们还在做。
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2140716/)
+## 20220309文贵大直播：邪恶的共产党正在跑步奔向地狱
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2140807/)
 
 作者:东京樱花团小视频组
 
@@ -13,8 +13,6 @@
 
 * * *
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

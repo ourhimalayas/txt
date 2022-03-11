@@ -2,27 +2,37 @@
 ---
 
 
-## 基辅市长：首都一半人口已逃离家园
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2140715/)
+## 有声|法治基金新闻直播中心首现边境救援基地
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2140791/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ukraine-russia-conflict-074134.jpg)乌克兰首都基辅市长克里琴科说，根据政府最新信息，每两个基辅居民中就有一个已经离开了这个城市。（法新社）
-（早报讯）俄罗斯军队已逼近乌克兰首都基辅东北部边缘。基辅市长克里琴科说，基辅目前有一半的人口已经逃离家园。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间3月8日，据爆料革命前线战友传回的消息显示，乌克兰战地救援行动的新闻直播中心已经在乌克兰边境的难民营中搭建并调试完毕，救援直播团队之后会从前线将第一手新闻报道直接送回盖特直播节目总部。 据悉，该难民营目前已有多家国际媒体在此设立了各自的直播点和采访中心。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-4.jpeg)
+此外，位于波兰和乌克兰边境的村庄米蒂卡如今是乌克兰难民逃生的必经之地，这里也是新中国联邦最主要的救援基地。随着从世界各地出发的、由新中国联邦战友组成的救援团队陆续到达乌克兰，各农场分队目前已经有了明确的分工：意大利文科团队负责指挥基地的营救行动；华盛顿农场的阿丙团队负责搭建和调试战地新闻直播中心；洛杉矶明道团队则是负责米蒂卡的战地新闻直播。
 
-法新社报道，克里琴科周四（3月10日）告诉乌克兰电视台，根据政府最新信息，每两个基辅居民中就有一个已经离开了这个城市。目前有近200万人已经离开。根据网站citypopulation.de数据，大基辅地区去年的人口为350万。
+据前线回传的资料显示，在新中国联邦救援团队前往乌克兰边境的途中，红十字国际委员会的物资运输车辆也正在驶往边境难民营。在那里，波兰民众捐赠了大量的衣服、食物和帐篷，用以为寻求帮助的难民提供少许安身之所。
 
-克里琴科还说，基辅已变成一个堡垒。“每条街道、每座建筑、每个检查站都已加固了。”
 
-据报道，俄罗斯军队已经将他们的装甲车开到了基辅东北部边缘地区，试图将该城市包围。
 
-法新社战地记者也目睹该区斯基宾村（Skybyn）上空升起了烟尘。该村距离基辅东北部城市界限的最后一个检查站仅几百米。
+文字版原文：[法治基金新闻直播中心首现边境救援基地](https://gnews.org/zh-hans/2129939/)
 
-乌克兰士兵也说，军队昨晚为一条进入基辅主要公路的控制权进行了一夜激战。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-参考链接：[https://www.zaobao.com.sg/realtime/world/story20220310-1251012](https://www.zaobao.com.sg/realtime/world/story20220310-1251012)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-审核校对：Barry Jack
-上传排版：F
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,131 +2,24 @@
 ---
 
 
-## 西恩·潘：美国应该支持乌克兰人和泽连斯基总统
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2140525/)
+## 【 #G时新闻 】波兰众议院已批准一项帮助乌克兰难民的法律
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2140677/)
 
-Sean Penn (American actor)
-西恩·潘 (美国演员)
+播报：加拿大温哥华扬帆农场 – 悠然
 
-Moved by him and terrified for him and for Ukraine
-被他感动并为他和乌克兰担忧
+视频制作：加拿大温哥华扬帆农场 – 文雅
 
-Anderson Cooper (American broadcaster)
-安德森·库珀（美国广播员）
+439名代表投了赞成票，只有12人投了反对票，大多数极右翼联邦党代表投了反对票。根据它，难民在证明自己的身份后将能够得到一个PESEL税号，他们在波兰的逗留时间为18个月，并可延长类似的时间。
 
-I have never been in a country at war in which the people are so united，so determined
-我从未到过一个人民如此团结, 如此坚定的在战争中的国家
+难民还将有权使用公共服务，包括波兰的医疗保健，并将其子女送到波兰的学校。
 
-and again, I mean，that word has become a cliche here the determination
-再说一次，我的意思是，这个词在这里已成为陈词滥调
+接待来自乌克兰家庭的波兰人将得到地方政府的支持–两个月内每天40兹罗提（280格里夫纳），即每月约1200兹罗提（8300格里夫纳）(280USD左右）
 
-but the resolve here, elderly women, elderly men, children, everybody
-但是这里的决心，老年妇女，老年男子，儿童，每个人
+原文链接：[https://gnews.org/zh-hans/2134496/](https://gnews.org/zh-hans/2134496/)
 
-the resolve to not only fight now
-决心不仅现在战斗
+视频链接: [https://gettr.com/post/pz6acd3d8b](https://gettr.com/post/pz6acd3d8b)
 
-but fight for however long and whatever happens
-但无论发生什么，战斗多久
-
-Sean Penn
-西恩·潘
-
-Yeah, there’s no question in my mind
-是的，我没有怀疑过
-
-that this is not going to end soon no matter what
-无论如何，这不会很快结束
-
-because you will have a country of extraordinary insurgencies if Putin is successful in this
-因为如果普京在这方面取得成功，你将拥有一个异常叛乱的国家
-
-There is no sign that Mr. Putin is looking for an off round
-没有迹象表明普京先生正在寻找停战
-
-And one of the greatest feeling that I have, you know
-我最大的感觉之一，你知道
-
-I’m I’m not a war correspondent
-我不是战地记者
-
-But I have traveled in conflict zones, and done some reporting
-但我去过冲突地区，做过一些报道
-
-And I remember being in Tripoli and Benghazi during the NATO attack
-我记得在北约袭击期间在的黎波里和班加西
-
-and the freedom fighters fighting
-和自由战士并肩作战
-
-as well as against the Qaddafi forces
-以及反对卡扎菲部队
-
-And it was sketchy, but this was ominous
-这是粗略的，但这是不祥的
-
-It was ominous because it was so heartbreaking in the ripple effects
-这是不祥的，因为它在连锁反应中是如此令人心碎
-
-it’s going to have around the world
-它将在世界各地
-
-where they were this incredible symbol of democracy, of belief and free dreaming
-他们是民主、信仰和自由梦想的不可思议的象征
-
-is being assaulted
-正在被践踏
-
-And, and they’re fighting for their lives
-他们正在为自己的生命而战
-
-and they’re going to continue to fight for their lives
-他们将继续为自己的生命而战
-
-And I start to feel that we as Americans are plummeting off a cliff
-我开始觉得我们作为美国人正在从悬崖上一落千丈
-
-a top which is our flag that represents all of our dreams and the best of our history
-悬崖的顶端是我们的国旗，它代表着我们所有的梦想和我们最好的历史
-
-And that we’re plummeting where it’s going to go out of sight
-并且我们正在直线下降，它将消失在视线之外
-
-I don’t know the answers
-我不知道答案
-
-I don’t know if no fly zones will create a nuclear war
-我不知道禁飞行区会不会引发核战争
-
-I do know that we have to invest everything
-我知道我们必须投入所有的一切
-
-that we have to support the Ukrainian people and support President Zelensky
-我们必须支持乌克兰人民并支持泽连斯基总统
-
-or I do not think we will have a legitimate memory of what America hoped to be
-或者我认为我们不会对美国所希望的人有一个合理的记忆
-
-原视频链接[https://twitter.com/sophia36982957/status/1500242015233220614?s=24](https://twitter.com/sophia36982957/status/1500242015233220614?s=24)
-
-Date:03/08/2022
-原视频标题:Sean Penn：America should support the Ukrainians and President Zelensky
-西恩·潘：美国应该支持乌克兰人和泽连斯基总统
-原视频日期：2022/03/06
-原视频链接https://twitter.com/sophia36982957/status/1500242015233220614?s=24
-任务编号：KE444（3936）
-视频时间段 : 0:00-2:20
-
-英听校：洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑/发文：hongyeca
 
  
 

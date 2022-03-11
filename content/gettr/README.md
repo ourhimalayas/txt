@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 1:13 AM (UTC)`
+
+3/10/2022 Miles Guo’s GETTR: Only the New Federal State of China has set up tents at the front line of the rescue operation to take care of the women and children and keep them warm. The industriousness and bravery of the Ukrainians and Poles are in stark contrast to the cowardice of the Chinese people. The CCP is ripping off the Chinese by charging them exorbitant airfares and quarantine fees!<br/><br/>3/10/2022 文贵盖特：只有新中国联邦在救援前线搭起了帐篷让妇女和儿童获得温暖和照顾；乌克兰人和波兰人的勤劳和勇敢与中国人的懦弱对比鲜明；中共用高昂的机票和隔离费玩弄和敲诈中国人！<br/>
+![img](https://media.gettr.com/group11/getter/2022/03/11/01/8ff1b9da-81c1-a42e-d42a-226c52bceab3/out.jpg)
+
+---
+
 `@miles 3/11/2022 12:45 AM (UTC)`
 
 2022.03.10《The Fringe》 Episode 144
@@ -147,17 +154,6 @@ The New Federal State of China and Rule of Law Foundation would like to find the
 
 2022.03.10 早 《新中国联邦新闻》 战场相遇即亲人； 米蒂卡前线信息更新
 ![img](https://media.gettr.com/group22/origin/2022/03/10/12/99877d59-dc58-f039-42f1-5617f066eb66/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@ripplenews 3/10/2022 12:21 PM (UTC)`
-
-❤️❤️❤️International Humanitarian Rescue Operation of Rule of Law Foundation and New Federal State of China #NFSCrescue #ROLFrescue #CCP≠Chinese<br/><br/>1️⃣Fellow Fighters are on the way to Medyka Rescue Station on a snowy day<br/><br/>2️⃣Fellow Fighters work with local authorities in Poland to build tents for Ukrainian refugees<br/><br/>3️⃣Fellow Fighters and Mr. Miles Guo chant 'Take Down The CCP' during the live broadcast.<br/><br/>💥💥💥If you have family to be rescued in #Ukraine , here is the 24-Hour Emergency Rescue Support Team Contact: <br/>💌💌💌Email: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com <br/>☎️☎️☎️Phone (Call or Text): <br/>+1 720-657-6776 OR <br/>+1 719-224-4232 OR<br/>+48 508-532-712 OR <br/>+48 508-531-518
-![img](https://media.gettr.com/group33/origin/2022/03/10/12/794a860e-73ab-394e-6d44-c1d90e3b185a/out.jpg)
-> `@ripplenews 3/9/2022 1:41 PM (UTC)`<br/>
-![img](https://media.gettr.com/group42/getter/2022/03/09/13/9539bb84-3756-e8e7-e84c-c7c4b8c3c2aa/9c4968822e4b9d89b0d3412b6d79ef17.jpg)
 
 ---
 
