@@ -2,26 +2,18 @@
 ---
 
 
-## 全球瞩目！新中国联邦乌克兰人道救援在行动
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2140870/)
+## 以乌克兰为镜！ 台湾须强化不对称战力与作战准备
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2140952/)
 
-3月10日，新中国联邦乌克兰人道救援行动在全世界引起了广泛的关注，来自世界各地的媒体和机构来法治基金新中国联邦的大帐篷来拍摄难民。
+美国助理防长卡尔林3月11日出席国会听证会表示，乌克兰情势非常值得台湾研究，从此可看出台湾须打造不对称战力，让人民做好作战准备，才能在主权遭中共侵犯时尽快动作。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-15.png)图片来源：美联社
+由于俄乌爆发战火，美方能如何提供乌克兰更多协助成为听证会重点。但为了避免印太区域也上演类似冲突，参议院外委会主席梅南德兹（BobMenendez）、共和党首席议员里契（Jim Risch）双双关心起台湾防卫战力。
 
-美联社、彭博社、盖帝图片社、意大利电视台、西班牙电视台、波兰最大报纸和电视台、阿拉伯迪拜电视台……国际红十字会的工作人员穿着他们的制服（上面有印着红十字会的标志）把过境的妇女和儿童送到新中国联邦救援大帐篷里安顿。
+简评：据郭文贵先生爆料称，俄乌战争习大神发现美国是最大收益者，西方社会已经容不下他和普京这样的独裁者。中共如今不敢跟俄罗斯翻脸，也不敢跟美国翻脸，走上绝路的中共会放毒，发动另一场能源与区域性战争。
 
-法治基金新中国联邦组织的前线救援人员和总部位于瑞士的国际人道救援机构“无疆界医生组织“ （Doctors Without Borders，简称：MSF）并肩行动 ！
+就此看来，台湾的危险已经越来越大，随时都可能遭受中共的攻击，正如美国助理防长卡尔林所说，台湾须打造不对称战力，让人民做好作战准备，才能在主权遭中共侵犯时尽快动作。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/8-17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-34.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-56.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-71.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-114.jpg)
-
-
-素材来源：新中国联邦前线战友！感谢你们的付出，你们辛苦了！
+新闻来源：[联合新闻网](https://udn.com/news/story/10930/6156502?from=udn-catebreaknews_ch2)
 
 撰稿/发布：一叶知秋
 

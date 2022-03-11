@@ -2,27 +2,41 @@
 ---
 
 
-## 基辅市长：首都一半人口已逃离家园
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2140715/)
+## 有声|英美宣布禁止进口俄罗斯石油和其他能源
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2140855/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ukraine-russia-conflict-074134.jpg)乌克兰首都基辅市长克里琴科说，根据政府最新信息，每两个基辅居民中就有一个已经离开了这个城市。（法新社）
-（早报讯）俄罗斯军队已逼近乌克兰首都基辅东北部边缘。基辅市长克里琴科说，基辅目前有一半的人口已经逃离家园。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月8日，据当地媒体报道，美国总统拜登当天发布声明宣布，将禁止进口俄罗斯的石油和其他能源，从而增强美国对俄罗斯所施加压力，而这也是美国针对俄罗斯入侵乌克兰行为所采取的最新制裁措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-13.jpg)
+拜登在声明中强调，该举措是美国人民对俄罗斯的另一个有力打击，目前已经受到了来自美国两党的强烈支持。
 
-法新社报道，克里琴科周四（3月10日）告诉乌克兰电视台，根据政府最新信息，每两个基辅居民中就有一个已经离开了这个城市。目前有近200万人已经离开。根据网站citypopulation.de数据，大基辅地区去年的人口为350万。
+拜登还表示，石油以及其他能源的出口是俄罗斯的经济支柱。但鉴于俄罗斯当下对乌克兰的侵略举动，美国正在与欧洲的盟友合作，用以孤立普京和俄罗斯的经济。因此，在与世界各地的盟友和伙伴密切磋商后，美国政府实施了这一最新制裁举措。
 
-克里琴科还说，基辅已变成一个堡垒。“每条街道、每座建筑、每个检查站都已加固了。”
+同时，英国也在一份声明中宣布，将在2022年年底前逐步停止进口俄罗斯的石油和石油产品，以此作为对俄罗斯无端和无理对乌克兰发动战争的制裁。
 
-据报道，俄罗斯军队已经将他们的装甲车开到了基辅东北部边缘地区，试图将该城市包围。
+对此，拜登提到，美国正在与盟友及伙伴共同合作，从而发展一套减轻依赖俄罗斯能源的长期战略；而作为制裁，这一战略正在导致俄罗斯经济的崩溃。
 
-法新社战地记者也目睹该区斯基宾村（Skybyn）上空升起了烟尘。该村距离基辅东北部城市界限的最后一个检查站仅几百米。
 
-乌克兰士兵也说，军队昨晚为一条进入基辅主要公路的控制权进行了一夜激战。
 
-参考链接：[https://www.zaobao.com.sg/realtime/world/story20220310-1251012](https://www.zaobao.com.sg/realtime/world/story20220310-1251012)
+文字版原文：[英美宣布禁止进口俄罗斯石油和其他能源](https://gnews.org/zh-hans/2132634/)
 
-审核校对：Barry Jack
-上传排版：F
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
