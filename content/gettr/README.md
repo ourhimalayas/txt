@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/11/2022 12:06 AM (UTC)`
+
+【Ukraine Rescue】03/10/2022 Volunteers from the NFSC and the Rule of Law Foundation joined other international aid organizations to set up a passage for Ukrainian refugees in Medyka<br/><br/>【乌克兰救援】3月10日， 新中国联邦和法治基金的志愿者与其他国际救援组织一起在Medyka设立乌克兰难民通道
+![img](https://media.gettr.com/group31/getter/2022/03/11/00/ab18afb8-2148-0831-c0fc-016a182fd79e/out.jpg)
+
+---
+
+`@miles 3/11/2022 12:05 AM (UTC)`
+
+2022.03.10 NFSC News  Global Media Focus on Ukraine Rescue, New Federal State of China in the Spotlight； A Chinese and Ukrainian Couple talked about their Rescue Experience
+![img](https://media.gettr.com/group30/origin/2022/03/11/00/eb3d4270-c320-3540-94b1-bd287cbb2aea/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/10/2022 11:05 PM (UTC)`
 
 3/9/2022 Miles Guo: “Chained Dream” is a masterpiece of Tang Ping and William Wong. This song can do far more harm to the CCP than missiles and has opened the door for the Chinese women to let the sun shine into the darkness, indicating the tremendous power of social media and music. Singing “Chained Dream” has so far given me the most sense of achievement apart from taking down the CCP.<br/><br/>3/9/2022 文贵直播：《铁锁梦》是唐平和威廉王的人生巨作，这首歌对中共的杀伤力远超导弹，它为中国女性打开了阳光之门，体现出了社交媒体和音乐的巨大力量！演唱《铁锁梦》是除了灭共以外迄今最让文贵有成就感的事！<br/>
@@ -144,20 +158,6 @@ The New Federal State of China and Rule of Law Foundation would like to find the
 
 【Ukraine Rescue】03/10/2022 Volunteer Wenge Qixiong and Qingfeng distributing food, blankets and other rescue supplies to refugees at the NFSC and ROL Foundation’s rescue station in Medyka, near the border with Ukraine<br/><br/>【乌克兰救援】3月10日 文戈七雄战友和青峰战友在位于波乌边境Medyka的新中国联邦和法治基金救助站，为难民发放食物，毛毯等救援物资
 ![img](https://media.gettr.com/group24/getter/2022/03/10/12/1a3723d2-f1f4-7210-3331-13cd43d98fb0/out.jpg)
-
----
-
-`@miles 3/10/2022 12:20 PM (UTC)`
-
-3月10号：尊敬的战友们好．我发出乌克兰悉尼协会关于．新中国联邦拯救乌克兰儿童的置顶的报道后，中国共产党疯狂的给乌克兰政府施压，随后悉尼乌克兰协会的救援信息就删除了．共产党是多么的怕我们！五年前所有欲强加给我们的恐惧．正在百倍万倍的轮回给共产党！共产党，你完了👉中南坑的老杂毛们……你们彻底的完了！你们会非常极端的痛苦的遭受……我们对你的折磨👉😹😹😹😹😹😹😹【悉尼乌克兰协会的救援信息已经删除，ccp这么快就施压了。】
-![img](https://media.gettr.com/group46/getter/2022/03/10/12/0588a48e-00e2-fea6-320e-78133fb307ce/2f87a8be68007b9051f483a5ebc5b624.jpg)
-
----
-
-`@miles 3/10/2022 12:19 PM (UTC)`
-
-【Ukraine Rescue】03/08/2022  Interviewing Peter, a German doctor from International medical team: I hope all the Chinese people will be like the people of the New Federal State of China, for their views and actions.  China and the traditional culture were destroyed by CCP. CCP doesn’t represent China, nor the Chinese people and the culture. <br/><br/>【乌克兰救援】03/08/2022 采访国际医疗救援队的德国医生彼得：希望以后所有的中国人都能够像此时此刻他看到的新中国联邦人一样。中国和中国的传统文化就是被共产党破坏了，中共不代表中国，更不代表中国人和中国人的文化。
-![img](https://media.gettr.com/group50/getter/2022/03/10/12/f534a8e3-1fec-ddb1-7480-ee17457b163e/out.jpg)
 
 ---
 
