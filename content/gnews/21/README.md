@@ -2,46 +2,32 @@
 ---
 
 
-## 一周疫情、疫苗信息汇总
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2145659/)
+## 2022.3.11大直播 乌克兰救援行动 让全世界认识新中国联邦人
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2145762/)
 
-作者：DC农场 -火来 /香草山 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年3月2日至3月9日，除中共国外，全球新增中共病毒确诊患者1132万例，同比上周上升了9.37%，未能延续一个月来的下降趋势;  此外，本周新增确诊死亡病例49144例，同比上周下降了9.92%，死亡人数进一步减少。截止3月9日，除中共国外，全球累计接种了78.9亿剂中共病毒疫苗，同比3月2日的接种数据增长了1.94%.
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-18.jpg)
-美洲方面，3月7日，佛罗里达州宣布正式反对为健康儿童接种中共病毒疫苗，成为美国第一个反对儿童接种的州。已经曝光的辉瑞疫苗申请文件，其多达1291种的副作用和高试验死亡率引发的社会反应，继续在全世界发酵。3月9日，旧金山政府健康部门宣布，市民进入餐厅酒吧等场所将不再需要出示疫苗接种证明或病毒阴性证明。
+撰稿：大浪小水花
 
-国际方面，3月4日，澳州南澳警察局将取消强制令，允许该州拒绝接种中共病毒疫苗的警察重返工作岗位。3月7日，《自然》杂志发表的一项由剑桥大学研究人员完成的研究结果显示，“中共病毒”感染者数月后大脑组织出现萎缩，特别是主管嗅觉的脑组织，脑容量下降也导致认知能力有所退化，这些症状在老人和重症患者中较为明显。
-
-亚洲方面，本周香港疫情处于失控状态。3月3日，香港“中共病毒”的确诊患者达到56827例。截至3月6日，香港地区每百万人口的“中共病毒”死亡人数为25.5人，病死率达全球之最。截至3月9日，韩国单日新增中共病毒确诊病例34万余例，创历史新高。韩国政府继月初取消11类公共场所疫苗通行证制度后，从5日开始，餐厅、咖啡厅等12类公众场所的营业延至11点，与确诊患者同住的人不需要每日检测以及强制隔离。
-
-参考链接：
-
-1. [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-03-02..latest&amp;country=~World+excl.+China)
-2. [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-03-02..latest&amp;country=~World+excl.+China)
-3. [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-03-02..latest&amp;country=~World+excl.+China)
-4. [Florida to recommend against COVID vaccines for healthy kids](https://www.news4jax.com/news/florida/2022/03/07/florida-to-recommend-against-covid-vaccines-for-healthy-kids/)
-5. [Pfizer’s COVID vaccine has 1 291 RARE side effects, own report shows](https://www.msn.com/en-za/news/other/pfizers-covid-vaccine-has-1-291-rare-side-effects-own-report-shows/ar-AAULL9o)
-6. [Show your support for high-impact journalism](https://www.theguardian.com/world/2022/mar/07/covid-can-shrink-brain-and-damage-its-tissue-finds-research)
-7. [SARS-CoV-2 is associated with changes in brain structure in UK Biobank](https://www.nature.com/articles/s41586-022-04569-5)
-8. [San Francisco and Berkeley dropping proof of COVID-19 vaccine requirement for some businesses](https://www.ktvu.com/news/san-francisco-and-berkeley-dropping-proof-of-covid-19-vaccine-requirement-for-some-businesses)
-9. [신규 확진 26만 6,853명·사망자 186명 ‘역대 최다’](https://news.kbs.co.kr/news/view.do?ncd=5408883)
-10. [신규 확진 34만 2,446명…누적 500만 명 넘어](https://news.kbs.co.kr/news/view.do?ncd=5411925)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_6908.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+郭文贵先生在2022年3月11日大直播中连线了在乌克兰一线报道的战地记者Nicole战友。
 
-总编: Zion文恩/宁文静
-编辑: Zion文恩
-校正/发稿：Fei797
+郭先生称赞Nicole在前线的采访，向全世界展示了我们新中联邦人自信、美丽、热情、国际化的形象。一夜之间改变了中国人在世界上那种又傻又愚蠢、满嘴谎言的形象。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+Nicole表示，新中国立邦的设备最齐全服务最周到的救助站出现在梅迪卡难民营的时候，现场每个人的脸上都露出了不可思议的表情。他们第一次在这种国际人道救援的场合看到一群中国人操着各种不同的的语言，在为难民提供着最人道的服务，这跟中共治下中国人脏乱差的形象形成了鲜明的对比。
+
+各大的媒媒体纷纷来到新中国联邦的大帐篷采访，并表示在梅迪卡难民营见到的新中国联邦战友才是是真正的、可贵的中国人，是受世界人民所尊重和和喜欢的中国人。
+
+郭先生嘱咐战友，现场准备充足的、新鲜的咖啡，因为对西方人来说，早上一杯咖啡对他们来讲是一天一切的美好的开始。郭先生说在难民营能有一场现场现磨的咖啡，再加上现场提供的水果战友们真诚的笑容，几乎是不可思议的。这咖啡就叫NFSC咖啡。
+
+Nicole表示，作为一个中国人，能够参与这场法治基金和新中国联邦组织的这场人道的救援行动，感到非常的骄傲和自豪，这是一次终生难忘的人生体验。Nicole向所有的法制基金捐助者表示感谢，感谢法制基金新中国联邦给了中国人一次向全世界证明中共不代表中国人的机会。
+
+郭先生称，共产党已经让中国人成为了全世界的公敌，郭先生称，在梅迪卡难民营参与救援战友的形象和语言已经震撼了世界。他叮嘱一线救援的战友不能有傲慢，不能有虚假，必须真诚，而且要高质量，要把这次救援做成世界上最高档次的一场救援。
+
+郭先生强调，在这种最血腥的战争面前，新中国联邦代表中国人建立了人类上前所未有的最高级的、最真情、最温馨的避难所。向全世界证明了中国人不是东亚病夫，中国人是有世界观的。中国人热爱生命、爱好和平。在追求世界正义和和平面前，我们一点不输西方人。所以给中国人只要给中国人一个机会，中国人做得会很好。
+
+参考链接：[2022年3月11日文贵大直播](https://gettr.com/streaming/pzg47d4994)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

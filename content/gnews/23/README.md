@@ -2,161 +2,46 @@
 ---
 
 
-## 《共产党统治中国的150个家族》之“王岐山”篇（二）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2145539/)
-
-**出品：西班牙巴塞罗那喜悦农场**
-
-**作者：DT挖掘机团队**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip共产党统治中国的150个家族1.png)
-
-【接上篇：[《共产党统治中国的150个家族》之“王岐山”篇（一）](https://gnews.org/zh-hans/2145392/)】
-
-内容：
-
-7.8 王岐山家族
-
-岳父：姚依林（1917年9月6日－1994年12月11日），第十三届中共中央政治局常委。
-
-岳母：洪寿子（1918年-2007）。
-
-妻姐：姚明瑞（1945年-2009年9月26日），中华人民共和国对外贸易经济合作部发展司调研员。
-
-（姚明瑞生有一女一儿，一女叫刘新杨，一儿即是刘呈杰。刘新杨与刘呈杰是同母异父的姐弟！姚明瑞与王岐山另有一个私生子贯君！这关系已经乱套了）
-
-妻姐夫：孙凤山（1948年8月6日-）。
-
-妻哥：姚明伟（1947年2月-2001年10月30日），前中国机械工业联合会党委书记兼会长。
-
-侄子：姚庆（1976年10月26日-）。德国前副总理，飞利浦罗斯勒，和姚庆是同父异母的兄弟！
-
-侄媳：赵俊（1981年10月22日-），中国内地女演员、模特。
-
-侄孙女：姚蓉。
-
-妻妹：姚明端（1950年11月28日-）。
-
-妻妹夫：孟学农（1949年8月-），前山西省省长，前北京市市长。
-
-7.9 王岐山家族
-
-姚依林和第一任妻子周彬共有三个女儿一个儿子，三女分别是姚明瑞、姚明珊和姚明端，儿子叫做姚明伟（姚明伟的儿子叫姚庆，是姚家唯一男性第三代）。其中姚明珊嫁给了王岐山。
-
-姚依林妻子洪寿子的侄子洪宁
-
-《华尔街日报》2013年9月3日报道称，在香港的数家跨国投资银行长期以来一直雇佣中共高官亲属，以争取获得关键的上市交易。文章列举了分别于2010年和2006年在香港首次公开募股（IPO）的中国农业银行股份有限公司和中国工商银行股份有限公司。这两家公司各自筹得220亿美元。而参与这两笔交易的几家投行都聘用了所谓的“太子党”。
-
-获得聘用的这些太子党不仅了解中国金融系统，而且在中国内地有广泛的人脉。此外，这些人大都毕业于西方名牌大学，受过良好教育。香港IPO热潮期间的大单交易对银行来说意味着数千万美元的收入。
-
-7.10 王岐山家族
-
-美国银行高盛集团（Goldman Sachs Group Inc.）在中国农业银行的IPO交易中扮演了关键角色。2010年成为高盛集团合伙人之一的洪宁在农行IPO交易中做作的工作得到中国高层的高度赞赏。《华尔街日报》说，洪宁的妻子（刘新杨）与中国副总理王岐山有关，而王本人早先曾帮助协调中国的金融政策。
-
-洪宁亦为高盛高华董事总经理。他于2005年自瑞士信贷第一波士顿（CS First Boston）转战高盛高华，2007升任董事总经理。洪宁出现在纪念姚依林诞辰一百周年纪念会上。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip姚依林诞辰一百周年纪念会.png)
-
-7.11 王岐山家族
-
-姚依林第二任妻子洪寿子的侄子洪宁的妻弟刘呈杰（刘呈杰的爹，是？？？）
-
-这位高盛集团全伙人洪宁何许人也？据推测洪宁是姚依林妻子的侄子。洪宁的妻子叫刘新杨，于2017年8月2日因病去世， 8月5日王岐山携刘呈杰参加了刘新杨葬礼。由此得出结论刘新杨的弟弟即是刘呈杰，但是，不是同一个爹！！！是同一个妈（就是王岐山的大姨姐：姚明瑞！这位大姨姐和王岐山还有个私生子，叫：贯君！）！
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip王岐山家谱.png)
-
-7.12 王岐山家族
-
-王岐山家谱
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip王岐山家谱1.png)
-
-7.13 王岐山家族
-
-姚庆、孙瑶、贯君、刘呈杰及陈峰的完整企业关联结构图
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip姚庆、孙瑶、贯君、刘呈杰及陈峰的完整企业关联结构图.png)
-
-
-
-姚庆：公司构成图：
-
-吉艾科技北京（股份）公司—-
-
-天津安埔胜利石油工程技术有限公司—-
-
-(福建旺德福能源有限公司)
-
-天津振荣安埔能源技术有限公司
-
-广州戎飞纯滕资产管理有限公司
-
-广东振戎能源有限公司
-
-广州辕联戎贸易有限公司
-
-广州珍章容贸易有限公司
-
-广州合致资贸易有限公司
-
-广州艾春生明物流有限公司
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/捕获.png)
-
-孙瑶，公司构成图：
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/捕获-1.png)
-
-海航股份有限公司控股：
-
-扬子江快运航空有限公司
-
-海南海航航空进出口有限公司
-
-海航基础股份有限公司
-
-海南新国宾馆有限公司
-
-海航进出口有限公司
-
-深圳前海瑞领方圆投资合伙企业
-
-上海瑞领股权投资基金管理
-
-重庆瑞领四联新能源产业
-
-芜湖金色富渝股权投资合伙企业
-
-兴业国际信托有限公司
-
-嘉兴兴晟海新投资合伙企业
-
-贯君，刘呈杰：
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/捕获-2.png)
-
-科瑞集团：
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/捕获-3.png)
-
-海口惠时投资有限公司
-
-天津燕山股权投资基金
-
-陈峰，企业结构图：
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/捕获-4.png)
-
-【接下篇：《共产党统治中国的150个家族》之“江泽民”篇】
-
-* * *
-
-***审核：Bryan
-校对：信心满满
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3.jpeg)
-
+## 一周疫情、疫苗信息汇总
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2145659/)
+
+作者：DC农场 -火来 /香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年3月2日至3月9日，除中共国外，全球新增中共病毒确诊患者1132万例，同比上周上升了9.37%，未能延续一个月来的下降趋势;  此外，本周新增确诊死亡病例49144例，同比上周下降了9.92%，死亡人数进一步减少。截止3月9日，除中共国外，全球累计接种了78.9亿剂中共病毒疫苗，同比3月2日的接种数据增长了1.94%.
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-18.jpg)
+美洲方面，3月7日，佛罗里达州宣布正式反对为健康儿童接种中共病毒疫苗，成为美国第一个反对儿童接种的州。已经曝光的辉瑞疫苗申请文件，其多达1291种的副作用和高试验死亡率引发的社会反应，继续在全世界发酵。3月9日，旧金山政府健康部门宣布，市民进入餐厅酒吧等场所将不再需要出示疫苗接种证明或病毒阴性证明。
+
+国际方面，3月4日，澳州南澳警察局将取消强制令，允许该州拒绝接种中共病毒疫苗的警察重返工作岗位。3月7日，《自然》杂志发表的一项由剑桥大学研究人员完成的研究结果显示，“中共病毒”感染者数月后大脑组织出现萎缩，特别是主管嗅觉的脑组织，脑容量下降也导致认知能力有所退化，这些症状在老人和重症患者中较为明显。
+
+亚洲方面，本周香港疫情处于失控状态。3月3日，香港“中共病毒”的确诊患者达到56827例。截至3月6日，香港地区每百万人口的“中共病毒”死亡人数为25.5人，病死率达全球之最。截至3月9日，韩国单日新增中共病毒确诊病例34万余例，创历史新高。韩国政府继月初取消11类公共场所疫苗通行证制度后，从5日开始，餐厅、咖啡厅等12类公众场所的营业延至11点，与确诊患者同住的人不需要每日检测以及强制隔离。
+
+参考链接：
+
+1. [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-03-02..latest&amp;country=~World+excl.+China)
+2. [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-03-02..latest&amp;country=~World+excl.+China)
+3. [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-03-02..latest&amp;country=~World+excl.+China)
+4. [Florida to recommend against COVID vaccines for healthy kids](https://www.news4jax.com/news/florida/2022/03/07/florida-to-recommend-against-covid-vaccines-for-healthy-kids/)
+5. [Pfizer’s COVID vaccine has 1 291 RARE side effects, own report shows](https://www.msn.com/en-za/news/other/pfizers-covid-vaccine-has-1-291-rare-side-effects-own-report-shows/ar-AAULL9o)
+6. [Show your support for high-impact journalism](https://www.theguardian.com/world/2022/mar/07/covid-can-shrink-brain-and-damage-its-tissue-finds-research)
+7. [SARS-CoV-2 is associated with changes in brain structure in UK Biobank](https://www.nature.com/articles/s41586-022-04569-5)
+8. [San Francisco and Berkeley dropping proof of COVID-19 vaccine requirement for some businesses](https://www.ktvu.com/news/san-francisco-and-berkeley-dropping-proof-of-covid-19-vaccine-requirement-for-some-businesses)
+9. [신규 확진 26만 6,853명·사망자 186명 ‘역대 최다’](https://news.kbs.co.kr/news/view.do?ncd=5408883)
+10. [신규 확진 34만 2,446명…누적 500만 명 넘어](https://news.kbs.co.kr/news/view.do?ncd=5411925)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-4.png)
+
+总编: Zion文恩/宁文静
+编辑: Zion文恩
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
