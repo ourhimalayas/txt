@@ -2,28 +2,40 @@
 ---
 
 
-## 悉尼乌克兰协会因中共压力撤除新中国联邦救援信息
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2145804/)
+## 中共以疫情为理由，开始折腾小学生
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2145625/)
 
-翻译：文斗
+作者：香草山教育部 -vasavarti 文·明#5267
 
-郭文贵先生3月11日直播中透露，悉尼乌克兰协会受到中共施压，要求撤除其网站上的新中国联邦救援信息。
 
-此前，3月10日，在澳大利亚悉尼的乌克兰协会网站首页发布了新中国联邦救援信息。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-122.jpg)
-但不久后，这个[网页](https://www.hromada.org.au/?p=203)被删除。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-80.jpg)
-秘密翻译组联络了乌克兰协会询问删帖原因，乌克兰协会回复称：“因为收到了许多人的投诉…救援热线无法提供有关广告航班的任何详细信息…
 
-此外，一些投诉指控欺诈。因此，该协会决定在进行调查时暂停此帖子。”
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-63.jpg)
-面对中共的邪恶与无耻，我们无意苛责悉尼乌克兰协会。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
 
-中共迫使悉尼乌克兰协会撤除新中国联邦救援信息，是中共对身陷乌克兰战区的亟需救助的各国人民生命安全直接侵犯，再次暴露中共是世界和平与安全的破坏者。
 
-新中国联邦仍然保持最大的热诚，克服中共阻碍及其他困难，继续执行营救工作。
 
-相关报道：[https://gnews.org/zh-hans/2141639/](https://gnews.org/zh-hans/2141639/)
+据上海卫健委信息，上海 2022 年 3 月 10 日，新增本土新冠肺炎确诊病例 11 例，新增本土无症状感染者 64 例，新增境外输入性新冠肺炎确诊病例 32 例，新增境外输入性无症状感染者 10 例。据上海市民信息，3 月 11 号，由于核酸登记人数太多，上海健康云崩溃，暂停核酸检测服务。上海的小学生在学校隔离时连床都没有，趴在桌子上，裹着被子睡觉。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-43.jpg)
+
+现在流行的病毒致病程度并不高，大部分都是无症状感染者，英国等很多国家取消了各种强制措施，不再让疫情影响人民生活，但是中共让小学生睡在教室，一张床都没有，完全是折腾。中共的疲民，苦民连孩子都不放过，实在太邪了了，必将被新中国联邦人消灭。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
+
+编辑/校对/发稿：Daxia
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
 
 
 

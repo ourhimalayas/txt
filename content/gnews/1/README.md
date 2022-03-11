@@ -2,36 +2,31 @@
 ---
 
 
-## 俄罗斯在可能的债务违约后将面临的后果
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2146347/)
+## 世界的变化
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2146389/)
 
-#### 编译： Cran
+文编：Hima
+听写：叮叮
+视频：七哥
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1647020663.png)Youtube screen shot 
-据多家媒体3月10日报道，国际货币基金组织（IMF）警告，俄罗斯非常接近债务违约。违约将使其借贷成本升高或难以续贷。作为应对，莫斯科将会减少政府支出和提高税收。
+2022-03-06直播摘录
 
-在西方的制裁后，俄罗斯几乎无力偿还债务。国际货币基金组织总裁克里斯蒂娜·乔治娃（Kristalina Georgieva）周四告诉记者，制裁将使俄罗斯不能将其在 IFM 的 “特别提款权”，转换为货币。惠誉评级（Fitch Ratings）本周表示，俄罗斯的债券违约 “迫在眉睫”。
+人类已经进入了前所未有的大变局。我昨天下午和一个咱们合作的一个公关公司，我告诉他。他在问我很多问题的时候，他说:“你觉得世界，你的判断会是什么样的？” 我说：“就像我告诉你的一样，人类走向一个真的是…无皇有主的时代，正式到来。” 什么叫无皇有主？没有皇帝，只有以民为主的天下正式到来。” 世界上不可能再看到未来的俄罗斯，不可能！也不会有今天的欧洲。你会很快看到世界上俄罗斯和欧洲被一个大的一个欧洲整体所代替。那叫什么？过去叫Europe，Europe—欧洲。现在我告诉你，叫乌克兰州，叫U-rope（音），没有俄罗斯，叫 U-yours(音)，不可能再有俄罗斯的存在，它变化就会这么大。
 
-普京上周签署了一项允许以卢布偿还外债的法令。下周三，俄罗斯政府必须支付1.17亿美元（8900万英镑）的部分美元债务。如果以卢布支付，最终可能引发货币互换。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**历史上的违约国**
+**关注我们**
 
-追踪全球主权债务违约情况的加拿大银行和英格兰银行估计，2020年全球违约的政府债务总额为4432亿美元，约为世界公共债务的0.5%。最近违约的政府包括阿根廷、伯利兹、厄瓜多尔和苏里南，这些国家通常无法跟上以外币计价的付款。
+Discord 账号
 
-包括美国和英国在内的一些国家有着良好的历史记录。然而，这两个国家过去都曾违约——包括1672年查理二世统治时期的英国，和1862年美国内战期间的美国。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-**违约的后果**
+Gettr 账号
 
-鉴于违约带来的声誉受损，使得未来借贷变得更加困难，成本也更高。入侵乌克兰后，俄罗斯在全球舞台上处于孤立状态。西方还阻止俄罗斯在伦敦和纽约等资本市场筹集新资金。据国际金融协会称，提高融资成本的制裁，可能迫使莫斯科削减支出或提高税收。
-
-除了俄罗斯的金融体系给该国带来的经济痛苦，还可能会对全球银行体系产生间接影响。然而，包括英格兰银行行长安德鲁·贝利（Andrew Bailey）在内的许多经济学家都认为，俄罗斯与世界其它地区的金融联系很小，不具有系统重要性。
-
-国际清算银行的数据显示，外国银行在俄罗斯的风险约为1210亿美元，主要在欧洲。世界银行的莱因哈特（Reinhart）对路透社表示，迄今为止影响有限，但仍有可能出现风险。“我担心我看不到的东西，” 她说。“看似金融机构资本充足，但资产负债表往往不透明……存在俄罗斯私营部门违约的问题。
-
-IMF的乔治耶娃说，虽然国际货币基金组织成员国高度关注这场战争，但董事会尚未讨论暂停俄罗斯在该基金组织的成员资格。她说，该国需要被排除在外，因为它违反了国际货币基金组织协议条款规定的经济义务。
-
-Source: [1](https://www.theguardian.com/world/2022/mar/11/what-happens-if-russia-cant-pay-its-debts-after-western-sanctions) [2](https://www.bnnbloomberg.ca/imf-no-longer-sees-russian-debt-default-as-an-improbable-event-1.1735856)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

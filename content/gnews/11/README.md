@@ -2,12 +2,18 @@
 ---
 
 
-## 【乌克兰救援】中共阻挠救援的反人道行径正被国际媒体知晓
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2146199/)
+## 2022年3月11日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2146241/)
 
-【乌克兰救援】03/10/2022 中共干扰新中国联邦和法治基金的救援行动，剥夺人们逃生的自由
+制作：DT新闻组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**中共的杀戮还在继续……**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0166.jpg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3.jpeg)
 
  
 

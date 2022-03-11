@@ -2,32 +2,31 @@
 ---
 
 
-## 中国人在全世界被共产党掠夺财富
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2146321/)
+## 有声|中共病毒轻症同样导致大脑萎缩退化
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2146322/)
 
-文编：Hima
-听写：文龙
-视频：七哥
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月7日，据有关医学平台消息显示，牛津大学一项最新经过同行评审的研究结果表明，中共病毒肺炎会导致患者大脑的嗅觉和记忆相关区域发生退行性变化，这些退化症状对于那些轻症感染者也不例外。
 
-2022-03-06直播摘录
+据了解，此次调查涉及了接近八百位51到81岁的英国老年人，研究期间有超过一半的观察者感染了中共病毒肺炎，另有15人需要接受住院治疗。研究过程中，工作人员对这些老人的大脑先后进行了两次CT扫描，两次的平均间隔时间为38个月，而这两次CT扫描的主要观测区域为大脑中与气味和事件记忆相关的部分，包括眶额皮层、海马旁回、梨状皮层和嗅结节等。
 
-打了2针3针毒疫苗的时候，面对着死亡的时候，告诉你，这个民族现在同样的在世界的人类面前被打入了三针以上的疫苗，这就是俄乌战争的结果。在这个经济上，对我们的伤害你是无法想象的，俄罗斯，你们没有常识，因为绝大多数都过着平民的生活，俄罗斯的富豪的生活在全世界被围殴被围猎的感觉你们没感觉，就我这要卖船，卖飞机的，卖游艇的，卖房子的，一系列的就崩溃了。中国人在全世界被共产党掠夺的财富，和在全世界藏的这些所谓的各个的狗粮啊，都会被世界挖出来。最惨的事情，所有中国城和中国面孔，亚洲面孔都被牵扯其中。战友们要做好准备，世界经济根本没有开始走向灾难。中国人要为共产党这次，这场愚蠢的绑架的行动，参与到俄乌战争，这个事情对我们的影响是没法想象的。另外一个大家记住，打台湾一定是灾难的结果，我们千万别忘了台湾同胞、台湾战友，在帕劳要做好准备。另外一个在现场看到，我们战友们一定队形不要乱，新中国联邦展示的已经超过230个国家的所有的，在现场展示的勇气和能力。而且我们是到乌克兰去救人的，能救一个是一个，每一个人背后都有几个家庭鲜活的生命。刚才这个舆论说，主流媒体又来了，主流媒体，我最不爱听的话，我最恨的就是主流媒体，每天主流媒体都要采访我们，主流媒体报道我们，那是我们的羞辱，是我们的耻辱。你们记住，兄弟们姐妹们，你不跨过主流媒体这一块儿，你不跨过所谓西方政府这一块儿的话，你将在新中国联盟这事儿上，你会永远是痛苦的。因为你决定你自己的标准的时候，用这两个流氓机构来衡量你，你就是悲惨的。就是因为这两个所谓你认为来肯定你的标准，才铸就了俄罗斯和乌克兰的灾难灾，铸就了中国人被洗脑。
+其后，经研究人员分析发现，随着时间的推移，中共病毒感染者的嗅觉相关区域平均每年的损失率为0.7%，其中，患者海马旁回和初级嗅觉皮层的损伤率高达1.3%到1.8%，是未感染者的六倍有余。此外，在感染中共病毒后，老人们的认知能力会显著下降，患者需要花费更长的时间完成研究中的相关测试任务。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+文字版原文：[中共病毒轻症同样导致大脑萎缩退化](https://gnews.org/zh-hans/2138900/)
 
-**关注我们**
+音频处理：Fei797
+发稿：Fei797
 
-Discord 账号
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

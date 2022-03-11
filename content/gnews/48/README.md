@@ -2,64 +2,35 @@
 ---
 
 
-## 参议员泰德·克鲁兹：是时候结束暴虐的疫苗强制了！
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2141335/)
+## 乌克兰将成为欧洲的大中心
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141456/)
 
-参议员泰德·克鲁兹： 华盛顿特区以外的全国所有地区都在醒来。 是时候结束暴虐的疫苗强制了！ 【视频中克鲁兹称赞美国卡车司机的行动代表了民意，疫苗强制违宪，是时候停止了】
+作者：首尔天池农场—追着曙光跑
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月8日的“文贵大直播”中，郭先生指出，经过俄乌战争，乌克兰人把正义和勇气重新带回人类的心中。乌克兰也会因此而重生，将蜕变成为欧洲的大中心。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-1.jpeg)
 
+郭先生认为，未来乌克兰以高科技为中心，像UFO、太空科技、无人机，以及人类一直梦寐以求的探索太空的愿望，都将在这里发展和实现；经历俄乌战争，俄罗斯的能源不再作为欧洲的主要供应来源，欧洲必须发展新的能源与之相抗衡。而乌克兰会成为新的能源中心，代替天然气和石油；未来的通信、网络、科技、太空等领域，也会以乌克兰为中心，在此基础上建立欧洲的大中心；俄乌战争之后，西方对俄罗斯的制裁方式之一，即剔除SWIFT系统，将引发人类发展新的支付系统，使数字货币和数字经济应运而生，相应的需要一个安全的数字安全环境，乌克兰也会成为数字安全中心。
 
-> The rest of the country outside of Washington, D.C. is waking up.
->  
-> It’s time to end the tyrannical vaccine mandate! [pic.twitter.com/H9MXuOb9Li](https://t.co/H9MXuOb9Li)
-> — Senator Ted Cruz (@SenTedCruz) [March 11, 2022](https://twitter.com/SenTedCruz/status/1502117538637004842?ref_src=twsrc%5Etfw)
+乌克兰之所以能够成为各领域的中心，原因在于，乌克兰不但交通便利、土地富饶，而且经过战争的洗礼，它也会成为全世界年轻人和有良知人的聚集地。最重要的是，乌克兰人不但勇敢，而且懂得感恩！
 
+参考链接：[https://gettr.com/streaming/pz1ocoe7cb](https://gettr.com/streaming/pz1ocoe7cb)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-参议员兰德·保罗： 一家航空公司重新开始关心他们的员工和科学了. . .其他人会跟随吗？ 美国联合航空公司将让未接种疫苗的员工重返工作岗位
+总编：宁文静
+编辑：飞虹
+审核：宁文静
+校正/发稿：谐趣园
 
-
-
-> One airline resumes caring about their employees and science . . . Will others follow?
-> 
-> United Airlines will let unvaccinated employees return to jobs [https://t.co/6yRt0ftRF9](https://t.co/6yRt0ftRF9)
-> — Rand Paul (@RandPaul) [March 11, 2022](https://twitter.com/RandPaul/status/1502104959290122241?ref_src=twsrc%5Etfw)
-
-
-
-比尔.格茨： 国家情报总监：乌克兰实验室没有开展生物战（研究）工作，美国的支持仅限于生物安全和安保。 对俄罗斯接管实验室的担忧是基于病原体可能被滥用 【转比尔.格茨华盛顿时报报道：国家情报总监称：乌克兰实验室不涉及生物武器，尽管俄罗斯指控】
-
-
-
-> DNI: Ukrainian labs are not conducting biowarfare work and US support was limited to biosafety and security. Concerns about Russian takeover of the labs is based on possible misuse of pathogens [https://t.co/vOGFF5wpmH](https://t.co/vOGFF5wpmH)
-> — Bill Gertz (@BillGertz) [March 10, 2022](https://twitter.com/BillGertz/status/1501973283536838656?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·华尔兹： 普京有使用构陷花招的历史。看看叙利亚，俄罗斯在阿萨德的军队中使用了少量化学制剂，以此作为使用化学武器进行报复的借口。 这可能为普京在乌克兰策划同样的事情奠定了基础。 【附福克斯视频：美国表示：我们在乌克兰没有生化武器实验室】
-
-
-
-> Putin has a history of using false flags. Just look at Syria where Russia used minor chemical agents on Assad's forces as a pretext to retaliate with chemical weapons.
-> 
-> This could be setting the stage for Putin to orchestrate the same in Ukraine. [pic.twitter.com/DOrQzN4cCz](https://t.co/DOrQzN4cCz)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 10, 2022](https://twitter.com/michaelgwaltz/status/1502048472194768897?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可·卢比奥： 极权主义精神并没有随着冷战的结束而消亡 但现在在亚洲、东欧和中东，它又一次存活于大国内部 【附视频，卢比奥议员在参议院情报听证会上致开幕词】
-
-
-
-> The spirit of totalitarianism did not die with the end of the Cold War 
-> 
-> But now in Asia, Eastern Europe and the Middle East it once again lives inside of great powers
-> 
->  [pic.twitter.com/KhOf1CCosB](https://t.co/KhOf1CCosB)
-> — Marco Rubio (@marcorubio) [March 10, 2022](https://twitter.com/marcorubio/status/1502027110168285195?ref_src=twsrc%5Etfw)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
