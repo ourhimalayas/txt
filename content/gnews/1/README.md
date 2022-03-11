@@ -2,33 +2,41 @@
 ---
 
 
-## 中共助俄散布谣言以捏造侵略正当性
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2144796/)
+## 共产党的疯狂已经彻底完蛋,冬奥会成为习近平的谢幕演出
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2144873/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3.11-D.jpg)网络图片
-随着俄罗斯逐渐加强对乌克兰展开侵略，它仍然持续得到中共国各方面的帮助，例如散布煽动性和未经证实的谎言——即“美国正在资助乌克兰的生物武器实验室”。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8844.60%EF%BC%89%E5%85%B1%E4%BA%A7%E5%85%9A%E7%9A%84%E7%96%AF%E7%8B%82%E5%B7%B2%E7%BB%8F%E5%BD%BB%E5%BA%95%E5%AE%8C%E8%9B%8B%2C%E5%86%AC%E5%A5%A5%E4%BC%9A%E6%88%90%E4%B8%BA%E4%B9%A0%E8%BF%91%E5%B9%B3%E7%9A%84%E8%B0%A2%E5%B9%95%E6%BC%94%E5%87%BA%E3%80%902022%E5%B9%B402%E6%9C%8811%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:5)
 
-美国迅速驳斥了俄罗斯的阴谋论，联合国表示没有收到任何支持这一说法的信息，但这并没有阻止假消息的扩散。
+**郭文贵先生：**再一个，没打疫苗你就是天下的赢者，你珍惜这个没打疫苗，你能活下去远比你意淫所跟你没有关系的谷爱凌拿广告费的这个假、骗要实在的多。所以说兄弟姐妹们这个时候，我们要看到共产党的疯狂，在全世界上它已经彻底完了，冬奥会成了习最后的一次表演。
 
-几周前，中俄两个威权国家之间通过伙伴关系来表示他们之间的协作“没有限制”，这似乎旨在通过舆论模糊俄罗斯的入侵行径。美国官员将这种故意混淆的策略称为“信息作战”，一些人担心这可能对真相构成误导。
+冬奥会让俄罗斯离它——真的看到这个国家是疯狂的。就像普京说了一堆坏话，但是他们给习报告的时候：普京说这是美轮美奂、绝美。他就没有说你们老百姓没饭吃，你们的保险、你们的零政策、你们搞这么漂亮这个实际意义，还有你们现在中国国内这一系列问题。
 
-中国外交部在本周进一步助长了假消息的火势，多次重申俄罗斯关于“乌克兰生化实验室”的说法，并呼吁进行调查。
+编辑整理：Jacques；
 
-外交部战狼赵立坚本周四表示：“俄罗斯的这次军事行动已经揭开了美国在乌克兰实验室的秘密，这不是可以敷衍的事情。”这一说辞与被提及武汉病毒实验室时的反应形成鲜明反差，将中共及其喉舌的无耻展现在世界面前。
+字幕档制作：兵嫂；
 
-事实上，五角大楼新闻秘书约翰·柯比称俄罗斯的说法是“一派胡言”。在周四参议院情报委员会的证词中，中央情报局局长威廉·伯恩斯则担心俄罗斯可能正在为化学或生物袭击奠定舆论基础，并将自己即将开展的邪恶行径嫁祸到美国或乌克兰头上。
+视频制作及上传：Cindy；
 
-威廉·伯恩斯表示：“正如你们所有人都非常清楚的那样，这在很大程度上是俄罗斯剧本的一部分……他们对自己的公民使用了这些武器，他们至少鼓励在叙利亚和其他地方使用这些武器，所以我们非常重视这一点。”
+G-News发布：海贼王M.D.LUFFY；
 
-俄罗斯、中国和美国都是反对使用化学或生物武器的国际公约的签署国。但国际社会普遍认为，俄罗斯曾使用化学武器对“普京大帝的敌人”进行暗杀企图。俄罗斯还支持叙利亚的阿萨德政府，该政府在长达十年的内战中对其人民使用了化学武器。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-*发布：Gradient Boost*
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-新闻参考链接：
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[China amplifies unsupported Russian claim of Ukraine biolabs](https://apnews.com/article/russia-ukraine-covid-health-biological-weapons-china-39eeee023efdf7ea59c4a20b7e018169)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
