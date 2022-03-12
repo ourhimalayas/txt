@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 8:15 AM (UTC)`
+
+
+![img](https://media.gettr.com/group12/origin/2022/03/12/07/021f74f1-c770-3b2e-6df2-eba05efd2466/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/12/2022 7:40 AM (UTC)`
 
 3/11/2022 Miles Guo: Many media outlets around the world want to cooperate with the New Federal State of China. For the first time in the history of China we are showing the foreigners that the Chinese people are equal to the world by using live broadcasts. You should feel happy because the New Federal State of China will play a central role on the world stage.<br/><br/>3/11/2022 文贵直播：全球有很多媒体要和新中国联邦合作；我们是中国人有史以来第一次用直播向外国人展示中国人和世界是平等的；新中国联邦会成为世界舞台的主角，大家就偷着乐吧！<br/>
@@ -146,13 +153,6 @@ Wars for any reason are all crimes<br/>出于任何原因的战争都是犯罪<b
 
 3/11/2022 Miles Guo: The NFSC & ROLF rescue volunteers are the only Chinese on site in Medyka, and the presence of the new Chinese and the top-notch facilities and services provided by the Rule of Law Foundation has shocked the world and has differentiated the Chinese people from the CCP！<br/><br/>3/11/2022 文贵直播：新中国联邦法治基金的救援义工是梅迪卡现场唯一的华人，新中国人的出现和法治基金提供的最顶级的设施与服务震撼了世界，并把中国人与中共区分开来！<br/>
 ![img](https://media.gettr.com/group32/getter/2022/03/12/00/bde3c534-9836-5efc-de71-2652b8773d2d/out.jpg)
-
----
-
-`@miles 3/11/2022 11:59 PM (UTC)`
-
-2022.03.11 NFSC News  CCP Virus Outbreak in Hong Kong Caused Panic Buying； Mild Infection of CCP Virus May Cause Brain Atrophy Or Deterioration
-![img](https://media.gettr.com/group17/origin/2022/03/11/23/c9dd196b-91eb-fe84-66c3-16841df00289/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
