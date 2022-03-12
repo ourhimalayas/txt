@@ -2,96 +2,42 @@
 ---
 
 
-## 乌克兰最新的平民伤亡情况
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2151520/)
+## 数字货币最新进展
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151654/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-20.png)
+作者：加拿大温哥华扬帆农场 – Spirit；波士顿五月花 – 文雀
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月9日，美国总统拜登公布了一项行政命令，责成联邦机构研究加密货币，并为新生市场制定政策建议。
 
-图片来自原文
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-20.jpg)
 
-联合国驻乌克兰人权监测团
+拜登在声明中宣布了第一个”全政府”的联邦政策，通过指导政府机构采取一系列围绕金融稳定、非法金融、金融包容性和投资者保护的措施，来”应对加密货币的风险并利用其潜在利益”。 该命令指示美国政府”紧急”研究和开发潜在的美国中央银行数字货币，并要求金融稳定监督委员会识别和减轻加密货币带来的任何系统性金融风险，制定适当的政策建议以解决任何监管漏洞。同时指示商务部建立一个框架，以帮助政府机构将数字资产技术纳入其政策、操作方法和研究与开发。
 
-自2014年以来，联合国人权事务高级专员办事处一直记录乌克兰的平民伤亡情况。报告的依据是联合国乌克兰人权监测团（HRMMU）通过采访受害者及其亲属、证人、分析与HRMMU秘密分享的确凿材料、官方记录、公开来源的文件、照片和视频材料、法医记录和报告、刑事调查材料、法庭文件、国际和国内非政府组织的报告、执法和军事人员的公开报告、医疗机构和地方当局的数据而收集的信息。所有来源和信息都会被评估其相关性和可信度，并与其他信息进行交叉检查。
+同时，泰国内阁8日放宽了对数字资产投资的税收规定。泰财政部长表示，新规则将允许交易者用数字货币投资的税收收益来抵消年度损失，并免除授权数字货币交易 7% 的增值税。
 
-2022年2月24日凌晨4点（乌克兰当地时间），俄罗斯军队对乌克兰开始武装进攻。
+而在实际应用中，自俄乌战争爆发以来，乌克兰的一些军备供应商筹集了价值超过6000万美元的数字货币，并将其中一些资金用于燃料、食品和其他军备的购买。乌克兰数字化转型部长兼副总理博尼雅科夫认为，数字货币是一种比银行转账更灵活、更便宜的工具。
 
-截至2022年3月8日午夜12点（当地时间），联合国人权事务高级专员办事处（OHCHR）统计共有1424名平民伤亡记录，其中516人死亡，908人受伤。
+链接：
 
-详细伤亡内容：
+- [Biden’s Crypto Executive Order Puts ‘Urgency’ On Digital Dollar Research And Fuels Bitcoin, Ether Prices](https://www.forbes.com/sites/jonathanponciano/2022/03/09/bidens-crypto-executive-order-puts-urgency-on-digital-dollar-research-and-fuels-bitcoin-ether-prices/?sh=14f423c33bbd)
+- [Ukraine Is Buying Bulletproof Vests and Night-Vision Goggles Using Crypto](https://www.coindesk.com/policy/2022/03/07/ukraine-is-buying-bulletproof-vests-and-night-vision-goggles-using-crypto/)
+- [Thailand approves relaxed tax rules for digital assets](https://www.reuters.com/markets/funds/thailand-approves-relaxed-tax-rules-digital-assets-2022-03-08/?rpc=401&amp;)
 
-**516人死亡**
 
-98名男性
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-60名女性
+总编：雪梨
+编辑：宁文静
+审核：木木
+校正/发稿：海阔天空1
 
-9名男孩
-
-5名女孩
-
-性别不详的23名儿童
-
-性别不详的321名成年人
-
-**908人受伤**
-
-78名男性
-
-57名女性
-
-12名女孩
-
-4名男孩
-
-性别不详的34名儿童
-
-性别不详的723名成年人
-
-地理分布伤亡情况：
-
-**在顿涅茨克（Donetsk）和卢甘斯克（Luhansk）地区**
-
-共573人伤亡
-
-111人死亡
-
-462人受伤
-
-在乌克兰政府控制领土上
-
-共436人伤亡
-
-87人死亡
-
-349人受伤
-
-在自称 “共和国 “控制的领土上
-
-共137人伤亡
-
-24人死亡
-
-113人受伤
-
-在乌克兰其他地区：基辅市（Kyiv），以及切尔卡什（Cherkasy）、切尔尼戈夫（Chernihiv）、哈尔科夫（Kharkiv）、赫尔松（Kherson）、基辅（Kyiv）、尼古拉耶夫（Mykolaiv）、奥德萨（Odesa）、苏梅（Sumy）、扎波罗热（Zaporizhzhia）和日托米尔地区（Zhytomyr），发生伤亡时还处于乌克兰政府控制
-
-共851人伤亡
-
-405人死亡
-
-446人受伤
-
-其中大多数平民伤亡是俄罗斯军队使用了影响范围很大的爆炸性武器造成的。武器包括：重炮、多管火箭系统的炮击、导弹，以及空袭。
-
-人权高专办认为，因信息的延迟、需等待证实的报告等因素，实际伤亡数字要高得多，特别是在政府控制的领土上。
-
-例如，涉及沃尔诺瓦哈（Volnovakha）、马里乌波尔（Mariupol）、伊齐姆（Izium）等城镇，据称那里有数百名平民伤亡，但需得到进一步证实，没有包括在上述统计数字中。
-
-新闻来源链接：[https://www.ohchr.org/EN/NewsEvents/Pages/DisplayNews.aspx?LangID=E&NewsID=28241](https://www.ohchr.org/EN/NewsEvents/Pages/DisplayNews.aspx?LangID=E&amp;NewsID=28241)
-
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

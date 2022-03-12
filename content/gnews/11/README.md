@@ -2,28 +2,32 @@
 ---
 
 
-## 欧盟首脑会议 乌克兰入欧搁置
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2151606/)
+## 报告显示 完全接种疫苗者最终会丧失免疫功能
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2151709/)
 
-翻译：宫米叶
+翻译：冰糖葫芦喵
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/下载-1-1.jpg)图片来源：163.com
+编辑与校对：冰糖葫芦喵
 
-欧盟(EU)10日在巴黎郊区凡尔赛举行非正式首脑会议，商讨对乌克兰申请入欧的回应。东欧国家要求进入早期加盟谈判，但荷兰和法国表示为难，此事很可能被搁置。
+《真相卫报》3月12日报道，**最新的英国公共卫生部门关于中共病毒病例的疫苗监测报告显示，40-70岁的接种人群已经丧失了40%的免疫系统能力。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/疫苗-e1647093021816.jpg)图片源自本文
+据报道，完全接种疫苗的人的免疫系统每周下降5%，如果这一趋势继续下去，那么30-50岁的人的免疫系统将会100%退化，直到圣诞节前都不会有病毒防御。
 
-波罗的海三国之一，立陶宛总统纳尔塞达在会议前呼吁，“应该明确地商讨乌克兰未来的加盟”。对此，荷兰首相吕路特表示“加入欧盟是一个长期进程”，并对开特例认可（乌克兰）提前加入表示否定立场。法国总统马克龙也说：“我不认为我们可以与交战中的国家谈判加盟。”
+根据每四周一次的疫苗监测报告显示，中共病毒疫苗对免疫系统造成的渐进损害。40-69岁的人的免疫系统能力下降了40%，每周下降3.3%。
 
-2月28日，乌克兰总统泽连斯基在欧盟的加入申请书上签字，在视频留言中呼吁认可开特例提早加入。前苏联的摩尔多瓦、格鲁吉亚也是继乌克兰之后申请加入欧盟的。
+**30岁以上的人将在6个月内丧失免疫能力。30-50岁的人直到圣诞节前都会失去这种能力。**
 
-**参考资料：**[news.yahoo.co.jp][ＥＵ首脳会議　ウクライナ加盟、見送りへ](https://news.yahoo.co.jp/articles/82bf12c58ac46578d62bd472c58c81b07ad305de)
+加强针和疫苗的效果是一样的，因为试验性的，所以疫苗副作用。我们在上面告诉过你，**如果你注射了加强针，你会更快地患上获得性免疫缺陷综合症。**
 
-* * *
+根据报道表明**，中共病毒疫苗随着时间的推移而失去效力，但它们会损害免疫系统，直到接种疫苗的人完全丧失免疫系统。**
 
-*审核：BryanW*
-*校对：天天*
-*发稿：信心的选择*
+新材采集：文逗
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3.jpeg)
+新闻来源链接：
+
+[Government Reports State The Fully Vaccinated People Develop Acquired Immunodeficiency Syndrome! – The True Defender !](https://thetruedefender.com/government-reports-state-the-fully-vaccinated-people-develop-acquired-immunodeficiency-syndrome/?fbclid=IwAR0lMACqs0nxBIDsm1DHw2u_DysEorRAuvln8IjqVMzONoaJDtpKn_bn1aA)
+
+
 
  
 

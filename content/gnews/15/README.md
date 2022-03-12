@@ -2,13 +2,38 @@
 ---
 
 
-## 【乌克兰救援】 文戈七雄和青峰战友在位于波乌边境Medyka的新中国联邦和法治基金救助站，为难民发放食物，毛毯等救援物资
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2151527/)
+## 194位诺奖得主对乌克兰声援支持
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151655/)
 
-3月10日 文戈七雄战友和青峰战友在位于波乌边境Medyka的新中国联邦和法治基金救助站，为难民发放食物，毛毯等救援物资。
+作者：波士顿五月花 – 文雀
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月10日，诺贝尔奖官方网站更新了主页最新消息：194位诺贝尔奖得主发布联名声明，声援乌克兰，呼吁和平，反对战争，谴责俄罗斯的入侵，认为俄罗斯的入侵跟当年纳粹德国对波兰和苏联的入侵类似。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-21.jpg)
 
+声明的签署者都在各自的领域里声名显赫，包括达赖喇嘛、吉米·卡特 ，1975年医学奖得主大卫·巴尔的摩等，无法一一列举。
+
+声明中说：俄罗斯的入侵公然违反了《联合国宪章》，它无视1994年的布达佩斯备忘录，该备忘录要求俄罗斯和其他国家尊重乌克兰的主权、独立和现有边界。发动战争是通往未来的一种毫无根据、血腥和徒劳的方式。俄罗斯的入侵将在未来几十年玷污俄罗斯的国际声誉。
+
+链接：
+
+- [Nobel Laureate Support for Ukraine](https://nlcampaigns.org/ukraine.html)
+- [Nobelprize](https://www.nobelprize.org/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+总编/编辑：飞虹
+审核：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

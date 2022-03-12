@@ -2,17 +2,11 @@
 ---
 
 
-## 【#G时新闻】来自新联邦乌克兰人道救援前线战友的报道：
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2151630/)
+## BBC新闻：亚洲对因乌克兰入侵而对俄罗斯的制裁有何反应？
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2151748/)
 
-当地时间3月11日中午12点半梅蒂卡边境又迎来了一批乌克兰难民。 **🔥** – [#法治基金](https://gettr.com/hashtag/%23%E6%B3%95%E6%B2%BB%E5%9F%BA%E9%87%91)[#新中国联邦](https://gettr.com/hashtag/%23%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6) 的帐篷里给大家供应足够的食物，热水，零食，暖气让每个人都能感觉到舒适。 **🔥** – 昨天法制基金新联邦义工战友们和“无疆界医生”国际组织一同将护栏搬运到现场的紧急救援通道。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-68.jpg)
-播报：文广
-
-视频制作：文所未闻
-
-盖特链接：[https://gettr.com/post/pzi79x5166](https://gettr.com/post/pzi79x5166)
-
+03/12/2022 BBC新闻：虽然西方对俄罗斯进行了经济制裁，但亚洲国家的反应并不像欧洲和北美那样统一
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
