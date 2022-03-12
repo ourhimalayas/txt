@@ -2,27 +2,25 @@
 ---
 
 
-## 欧盟遏制俄罗斯信息战以捍卫乌克兰
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2146477/)
+## 国际知名企业纷纷关闭在俄业务
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2146614/)
 
-采编撰稿：加拿大温哥华杨帆农场 – 重生之鹰
+采编撰稿：加拿大温哥华杨帆农场 – 自由法兰西
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-63-1.jpg)图片来源：timesofisrael
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-1-6-edited.jpg)图片来源：theguardian
 
 
-据[以色列时报] 3月8日报道，欧盟当天决定：将暂停在欧盟国家播放俄罗斯国家媒体《卫星》和《今日俄罗斯》等的电视节目，以杜绝该国针对入侵乌克兰而日益猖獗的虚假消息传播。
+据英国《卫报》3曰8日报道，在[麦当劳]近日宣布将关闭其在俄罗斯的850家餐厅后，[可口可乐]、[百事可乐]和[星巴克]等国际餐饮企业随后也宣布暂停在该国的业务。
 
-对此，欧盟外交政策负责人表示，由于上述俄罗斯媒体是受独裁者普京当局操控的宣传武器，因此禁播令将有效遏制俄政府当前恶意发动的信息战。此外，欧盟将对那些散布虚假战争信息，美化俄军侵略罪行的网络平台，社交帐户和科技媒体公司进行制裁，
+据悉，尽管麦当劳会继续为俄所有员工支付工资，但却无法预测餐厅将何时重新经营，并称其价值观决定了该企业不能无视正在乌克兰发生的人道灾难。
 
-评论指出:在俄乌鏖战的关键时刻，欧盟领导人必须认清：保卫乌克兰免遭俄军的涂炭，即是捍卫欧洲乃至整个世界的和平和自由。欧洲的民主不应被独裁的普京暴政恣意践踏。
+此外，Netflix、李维斯、巴宝莉和宜家等世界知名消费品牌也都停止了在俄业务。国际最大会计师事务所之一的[毕马威]和[普华永道]等专业公司也相继终止了在俄罗斯和白俄罗斯的服务。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文明(添草灭共)
 
-原文链接：[https://www.timesofisrael.com/eu-pledges-to-safeguard-democracy-by-fighting-russias-information-war-in-europe/](https://www.timesofisrael.com/eu-pledges-to-safeguard-democracy-by-fighting-russias-information-war-in-europe/)
-
-
+原文链接： [https://www.theguardian.com/world/2022/mar/08/mcdonalds-bows-to-pressure-and-closes-all-its-russian-restaurants](https://www.theguardian.com/world/2022/mar/08/mcdonalds-bows-to-pressure-and-closes-all-its-russian-restaurants)
 
  
 

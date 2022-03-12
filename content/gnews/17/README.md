@@ -2,137 +2,31 @@
 ---
 
 
-## 英国外交大臣伊丽莎白·特拉斯说俄罗斯对马里乌波尔妇产科和儿童病房的袭击是可恶、鲁莽的令人震惊
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2147120/)
+## 大直播后记：中国人找到真颜色
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2147273/)
 
-Question
-问题
+整理：Grace Fang、sadhu
+编辑：Mohegayer K. Simon
 
-After the direct strike on a children’s hospital in Mariupol
-在马里乌波尔的一家儿童医院遭到直接袭击之后
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-29.png)图片来源：墨尔本雅典娜农场设计组
 
-President Zelenskyy is asking you both and NATO to stop the killings – close the skies
-泽连斯基总统要求你们和北约停止杀戮—建立禁飞区
 
-he says – and that if you don’t, you’re an accomplice to terror
-他说—如果你不这样做，你就是恐怖的帮凶
+封神榜：其实这几天看到我们前线的战友，我首先感到的是敬佩，敬佩我们前线的战友的这一系列的付出与行动。其次就像上一次大直播小飞象说的感到自豪，这真是第一次感到作为中国人是如此的自豪。然后第3点是感到羡慕，我也特别羡慕那些能去到前线的我们的战友们，我们看到俄罗斯侵略乌克兰的前几天，最尴尬处境的却是中国人，因为很奇怪的是乌克兰民众迅速能看到中共国墙内，那些猪狗不如的，譬如什么“乌克兰男人要是战死了可以娶乌克兰的美女”这种言论，以及各种各样中共国小粉红对俄罗斯的侵略的支持。而前线一些俄军也不想打仗，也知道俄罗斯背后有中共的资助，而导致他们被普京当成棋子派往乌克兰成为侵略者。这造成了一个非常荒唐的结果，就是两边在打仗却都排华反华，这可以说就是共产党对人民的大屠杀，是共产党做的，把身处在乌克兰的中国人处在最危险的境界。谢谢。
 
-How do you explain to him
-你怎么跟他解释？
+澄道：其实我最大的感受就是这两天，七哥昨天、前天讲的两句话，印象特别深。他提到波兰和乌克兰将来是未来的欧洲的中心。为什么呢？因为他提到了勇敢和懂得感恩。其实我们新中国联邦人就是中国人的代表，就代表了勇敢和感恩。爆料革命，这一路走来，这5年，七哥刚才问，说你最大的感想是什么？其实我最大的感想就是：我的名字叫澄道，其实是错的，应该叫澄道来了。为什么？因为当时，在这个爆料革命之前那个澄道已经死了。就像七哥说的，因为爆料革命我又活回来，所以，用七哥的话说，最帅的男人就是勇敢的人，最美的女人就是勇敢的女人，我们新中国联邦做到了new China Face。谢谢。
 
-that there is no possibility of a no-fly zone in these circumstances?
-在这种情况下没有禁飞区的可能性吗？
+文贵先生：刚才大家都讲得特别好，我想给大家说的事情，共产党为什么恐惧？因为中国人迅速地找到了自己的真颜色，叫true color! Eric，你们都是秘密翻译组的人，就是秘密翻译组这么多今天没有参加直播的战友们，可以说是扛起了过去这几年爆料革命的半边天下。但是秘密翻译组的却很少人出来露脸，也很少人要功劳。就连去报喜币, 讲利益的时候，秘密翻译组也是最最干净的，也是最最害羞的，甚至有人是让出来，木兰让出来50万个币啊，50万个币是多少钱? 大家算一算。秘密翻译组扛着半边天，但是这说明了什么？共产党说自己是无产阶级，共产党不崇洋媚外，他比爹娘还亲，他是无神论者。但是共产党的真实情况是我从小到大都见过的，我从赵家沟走出，从赵家沟坐火车来到了北京城，来到了山东老家。我都看到，绝对是你穿好衣服，穿坏衣服，你爹妈是谁？你是城里人还是县里人，你是北京人还是地方人，那绝对分阶级的。在火车上有餐厅、有餐车、有VIP车、有卧铺车、有硬座车，还有人说有在厕所里的，还有人说有在那个是16公分的，就比棺材板还窄的那个椅子下边一两天的，你说分不分阶级啊？最重要的事情啊，当年很有幸，看到了邓小平，旁边有讲英文的，那邓家都不一样。讲英文是最高级的。大概按照那个逻辑的话，秘翻组今天你们是最高级的中国人。你们不但会讲英语，有的人还讲英文，加德文、意大利文、法文、俄罗斯文，你们是最高级、最高级的人。
 
-Elizabeth Truss (British Foreign Secretary)
-伊丽莎白·特拉斯（英国外交大臣）
+资料来源：[2022年3月11日文贵大直播](https://www.gettr.com/streaming/pzg47d4994)
 
-Well, as I’ve said, Sarah
-好吧，正如我所说，莎拉
+发布：tianzhihuan
 
-the best way to help protect the skies is through anti-air weaponry
-帮助保护天空的最好方法是使用防空武器
-
-which the UK is now going to be supplying to Ukraine
-英国现在将防空武器供应给乌克兰
-
-That’s what the defense secretary announced earlier today
-这就是国防部长今天早些时候宣布的事情
-
-and of course the attack on the hospital is absolutely abhorrent, reckless, and appalling
-当然，对医院的袭击是绝对可恶、鲁莽和骇人听闻的
-
-And the UK is the forefront of supplying humanitarian aid into Ukraine
-英国是向乌克兰提供人道主义援助的最前沿
-
-We’ve already pledged 200 million of humanitarian aid
-我们已经承诺提供 2 亿人道援助
-
-our DEC appeal has now reached 130 million
-我们的 DEC（灾害应急委员会）呼吁现已达到 1.3 亿
-
-which is the largest amount it’s ever achieved since 2004
-这是自 2004 年以来最大的数额
-
-So the British people are foursquare behind the people of Ukraine
-所以英国人民全力在背后支持乌克兰人民
-
-and we’re doing all we can to support
-我们正在竭尽全力支持
-
-Antony Blinken (Secretary State)
-安东尼·布林肯（国务卿）
-
-And I would just add, as we already said
-正如我们已经说过的，我想补充一下
-
-First, we both, our government both , our people both
-首先，我们双方，我们的双方政府，我们双方的人民
-
-have tremendous admiration for President Zelenskyy, for his entire team
-非常钦佩泽连斯基总统，和他的整个团队
-
-for the Ukrainian people that they represent
-以及他们所代表的乌克兰人民
-
-But the courage they’ve shown, the strength, the determination
-他们表现出的勇气、力量和决心
-
-the dignity faced with this Russian onslaught, is extraordinary
-面对这场俄罗斯猛攻的尊严，非同寻常
-
-and it’s powerfully moving, I think, to people around the world
-我认为它对世界各地的人们产生了强烈的影响
-
-If I were in President Zelenskyy’s position
-如果我处于泽连斯基总统的位置
-
-I’m sure I would be asking for everything possible in his mind to help the Ukrainian people
-我敢肯定，我会在他的脑海里尽一切可能帮助乌克兰人民
-
-And as the foreign secretary and I have laid out, both of our countries
-正如我和外交大臣所说，我们两国
-
-and so many others, have done extraordinary things to make sure
-和许多其他人，已经做了非凡的事情来确保
-
-that the Ukrainians have in their hands the means to effectively defend themselves
-乌克兰人掌握了有效自卫的手段
-
-against this war of choice from Russia
-反对俄罗斯选择的这场战争
-
-as well as to do everything we can with very significant resources
-以及利用非常重要的资源尽我们所能
-
-to care for Ukrainian people to the best of our ability inside Ukraine
-在乌克兰境内尽我们所能照顾
-
-those who have been forced to flee outside of Ukraine
-那些被迫逃离乌克兰的境外乌克兰人民
-
-to meet their humanitarian needs
-以满足他们的人道主义需求
-
-原视频链接[https://twitter.com/**inty**/status/1501611076286251008?s=24](https://twitter.com/inty/status/1501611076286251008?s=24)
-
-Date:03/10/2022
-原视频标题:UK Foreign Secretary Elizabeth Truss said the attack on the hospital is absolutely abhorrent, reckless, and appalling
-英国外交大臣伊丽莎白·特拉斯说，俄罗斯对马里乌波尔妇产科和儿童病房的袭击是可恶的、鲁莽的和令人震惊的
-原视频日期：2022/03/10
-原视频链接https://twitter.com/**inty**/status/1501611076286251008?s=24
-任务编号：KE448（3969）
-视频时间段 : 0:00-2:13
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

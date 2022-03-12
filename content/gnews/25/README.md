@@ -2,25 +2,30 @@
 ---
 
 
-## 法治基金救援成为媒体争相报道焦点
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2146844/)
+## NFSC新闻、G|TV新闻访谈简报|2022年3月11日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2146902/)
 
-采编撰稿： 加拿大温哥华杨帆农场 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-4.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-32-1.jpg)图片来源：gettr
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-11.png)
+文章仅代表作者本人观点，与Gnews无关
 
+视频参看：
+[2022.03.11早 《NFSC新闻》](https://gettr.com/streaming/pzgn1j1989)
+[2022.03.11早 G|TV《新闻访谈》](https://gettr.com/streaming/pzgizq5e22)
 
-据3月10日盖特直播报道：日前，法治基金救援团队在乌波边境口岸麦迪卡救援现场搭建起了一个最大、设备和服务最全的帐篷，以接纳严寒天气下仍滞留在当地的难民。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-据悉，帐篷内除设置桌椅，免费提供食品、饮用水和御寒用毛毯外，还加设了三个24小时燃气取暖炉，以保证被救助者能在温暖的帐篷里度过整个寒冷的夜晚。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1.png)
 
-难民们的争相涌入也让该新搭建的大帐篷成为了救援现场各大媒体争相报道的焦点，也使法治基金和新中国联邦迅速成为各界最想深入了解和采访的对象。人们对所有救援团队成员所展现出来的友善以及强大的组织力和行动力赞不绝口。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-新闻来源： [https://gettr.com/streaming/pywfu457e9](https://gettr.com/streaming/pywfu457e9)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

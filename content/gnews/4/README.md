@@ -2,11 +2,13 @@
 ---
 
 
-## 3/11/2022 文贵直播：新中国联邦法治基金的救援行动在波兰梅迪卡受到了国际媒体的广泛关注
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2147314/)
+## 日本对经济困难的留学生发放10万元补助
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2147434/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7f228052af34309952b3f44f9ab5734e.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

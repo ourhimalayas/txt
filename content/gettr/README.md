@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 12:16 AM (UTC)`
+
+3/11/2022 Miles Guo: The NFSC & ROLF rescue volunteers are the only Chinese on site in Medyka, and the presence of the new Chinese and the top-notch facilities and services provided by the Rule of Law Foundation has shocked the world and has differentiated the Chinese people from the CCP！<br/><br/>3/11/2022 文贵直播：新中国联邦法治基金的救援义工是梅迪卡现场唯一的华人，新中国人的出现和法治基金提供的最顶级的设施与服务震撼了世界，并把中国人与中共区分开来！<br/>
+![img](https://media.gettr.com/group32/getter/2022/03/12/00/bde3c534-9836-5efc-de71-2652b8773d2d/out.jpg)
+
+---
+
+`@miles 3/11/2022 11:59 PM (UTC)`
+
+2022.03.11 NFSC News  CCP Virus Outbreak in Hong Kong Caused Panic Buying； Mild Infection of CCP Virus May Cause Brain Atrophy Or Deterioration
+![img](https://media.gettr.com/group17/origin/2022/03/11/23/c9dd196b-91eb-fe84-66c3-16841df00289/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/11/2022 11:29 PM (UTC)`
 
 This is Kharkiv's main museum, staff are racing to get priceless artworks to safety as Russian forces pound the city with artillery and airstrikes. Many of them were created by Russian artists.<br/><br/>这是哈尔科夫的主要博物馆，工作人员正在争分夺秒地将无价的艺术品运到安全地带，因为俄罗斯军队用大炮和空袭对该市进行了轰炸，其中很多艺术品是由俄罗斯艺术家创作的。
@@ -145,20 +159,6 @@ By March 10th, more and more refugees arrived in the NFSC tent. The top media gr
 
 【Ukraine Rescue】WenGeQiXiong explains the New Federal State of China’s rescue operation to a foreign reporter. We provide free shuttle buses from Lviv in Ukraine to Krakow in Poland. We also offer free flights to refugees, including Chinese, Ukrainians, or any foreign national who needs help.<br/><br/>【乌克兰救援】文戈七雄向外国记者介绍新中国联邦救援行动。提供从乌克兰利沃夫到波兰克拉科夫的免费巴士。还面向华人、乌克兰人及任何需要帮助的外国人提供免费包机<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #rolfrescue 
 ![img](https://media.gettr.com/group24/getter/2022/03/11/10/4eeb99e8-4f37-ab7b-7cdc-cf426831a0d1/out.jpg)
-
----
-
-`@miles 3/11/2022 9:47 AM (UTC)`
-
-【乌克兰救援】03/10/22  乌克兰难民们在我们温暖的大帐篷中休息<br/><br/>【Ukraine Rescue】03/10/22 Ukrainian refugees rest in our big warm tent<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group13/getter/2022/03/11/09/8b800798-7350-bba7-f84a-693127e74424/out.jpg)
-
----
-
-`@miles 3/11/2022 9:39 AM (UTC)`
-
-【Ukraine Rescue】03/10/22   A lot of media are going to report the NFSC Medyka Rescue Station for its good service. The NFSC and ROLF will assign more volunteers to this mission of international humanitarian rescue. On the contrary, the CCP hasn’t assigned anyone. <br/><br/>【乌克兰救援】03/10/22  许多媒体将报道新中国联邦的梅迪卡救援站的服务。新中国联邦和法治基金将派遣更多义工参与这场国际人道主义援救行动。相反，中共没有派遣任何人。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group46/getter/2022/03/11/09/b413cc59-b508-a913-db64-446dd696151f/out.jpg)
 
 ---
 
