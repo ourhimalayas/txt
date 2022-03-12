@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 4:56 AM (UTC)`
+
+Wars for any reason are all crimes<br/>出于任何原因的战争都是犯罪<br/>【"帮帮我”---乌克兰老人在寒风中艰难地等待撤离】 <br/>#ukrainehelp #ukrainehotline #nfscrescueteam
+![img](https://media.gettr.com/group43/origin/2022/03/12/04/d485e497-1c66-1ab0-10ba-c0a0a4ee6aad/out.jpg)
+
+---
+
 `@miles 3/12/2022 4:49 AM (UTC)`
 
 【Ukraine Rescue】The second rescue tent of the New Federal State of China in Medyka, Poland has been set up  and ready to use<br/><br/>【乌克兰救援】新中国联邦在波兰梅迪卡的第二个救援大帐篷已经开始使用<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
@@ -146,13 +153,6 @@ This is Kharkiv's main museum, staff are racing to get priceless artworks to saf
 
 3/11/2022 Miles Guo: The NFSC & ROLF Ukraine rescue mission has received wide attention from the world media in Medyka, Poland. Fellow fighters left behind their families and jobs to save the refugees without demanding anything in return. We, citizens of the New Federal State of China, are the real Chinese people respected and loved by the world.<br/><br/>3/11/2022 文贵直播：新中国联邦法治基金的救援行动在波兰梅迪卡受到了国际媒体的广泛关注；战友们抛家舍业来救援难民，不求任何回报，我们新中国联邦人是为世界尊重和喜欢的真正的中国人<br/>
 ![img](https://media.gettr.com/group31/getter/2022/03/11/22/49e6940c-0f12-940d-bc6e-b428cb52d6ba/out.jpg)
-
----
-
-`@miles 3/11/2022 10:26 PM (UTC)`
-
-According to Newsmax, Russian troops appear to be stepping up the violence of their attacks in Ukraine, although they are getting their heads handed to them everywhere they go<br/><br/>Newsmax新闻：俄军似乎正在进一步升级他们的暴力袭击，尽管他们所到之处都要被剿杀
-![img](https://media.gettr.com/group47/getter/2022/03/11/22/6006340a-afa4-8c16-9570-890d9a57b06e/out.jpg)
 
 ---
 

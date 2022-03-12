@@ -2,8 +2,8 @@
 ---
 
 
-## 我们的救援行动是最好的 无数战友捐款法治基金支持救援行动
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148833/)
+## 为什么海外要饭党做不出救援
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148919/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

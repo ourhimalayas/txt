@@ -2,25 +2,40 @@
 ---
 
 
-## CCP中共新闻：中央纪委国家监委驻国家安全部纪检监察组原组长刘彦平被查
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2148534/)
+## 乌克兰数学奥林匹克亚军在哈尔科夫被俄军炸死
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2148713/)
 
-发布 / 2022年3月12日 10:35 AM
-采集：玫瑰新闻组
+作者：波士顿五月花—文雀
 
-![](https://n.sinaimg.cn/transform/20151027/eB0C-fxkaiqx4305528.jpg)
 
-CCP中共新闻：中央纪委国家监委网站今天上午发布消息：中央纪委国家监委驻国家安全部纪检监察组原组长刘彦平涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-64.png)
+Yuliia Zdanovska（尤妮亚·兹丹诺斯卡），21岁，乌克兰人，2017年代表乌克兰参加欧洲女子数学奥林匹克竞赛，获得银牌。她在哈尔科夫做志愿者工作，在俄军一次轰炸事件中丧生。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/182119.png)
+在过去的六个月里，她是乌克兰学习中心的一员，向新一代教授计算机科学。对于她的丧生，国际数学界正在哀悼。尽管俄罗斯对哈尔科夫的学校、住宅楼和其他民用目标进行无情炮击，但她拒绝离开，她告诉她“为了乌克兰教育”但同时，她将“留在哈尔科夫，直到获胜”。
 
-公开资料显示，现年66岁的刘彦平，河北丰南人，1979年12月加入中国共产党，1974年4月参加工作，中国政法大学法律专业毕业。
+参考来源：
 
-刘彦平曾长期公安系统工作，2011年8月任公安部部长助理、党委委员，2013年6月任公安部副部长。2015年5月，刘彦平卸任公安部副部长，随后担任国安部纪委书记，后任中央纪委国家监委驻国安部纪检监察组组长。
+[https://www.cronica.com.mx/academia/bombardeos-fallece-ucraniana-yuliia-zdanovska-medallista-olimpiada-matematicas.html＞](https://www.cronica.com.mx/academia/bombardeos-fallece-ucraniana-yuliia-zdanovska-medallista-olimpiada-matematicas.html＞)
 
-新闻链接：
-[中共CCP新闻：中央纪委国家监委驻国家安全部纪检监察组原组长刘彦平被查](https://www.zaobao.com.sg/realtime/china/story20220312-1251531)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-32.jpg)
 
-**审核：Barry Jack
-上传排版：V在途中**
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-65.png)
+
 
 
 

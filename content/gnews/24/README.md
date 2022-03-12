@@ -2,32 +2,24 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月11日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2148306/)
+## 星链系统助力法治基金乌克兰救援行动
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2148416/)
 
-作者：香草山翻译部
+采编撰稿：加拿大温哥华杨帆农场 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1229.png)图片来源：Gettr
+据3月10日文贵先生盖特报道，本次法治基金乌克兰人道救援行动得到了SpaceX 总裁埃隆·马斯克的特别支持，该公司的星链系统将对位于波兰麦迪卡紧急营救中心提供卫星互联网服务。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-4.jpg)
+据悉，该公司星链系统恰好处于法治基金麦迪卡营救中心的两个救援帐篷上方，可即刻为该中心提供高速和高质的互联网服务，其安全性和稳定性将极大提高救援行动中前后方人员之间信息沟通的效率。
+
+报道指出，此次SpaceX星链系统的助力无疑将根本保障本次新中国联邦在乌克兰人道救援的行动成果，同时也更加受到国际社会各界的广泛关注。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青 晨熹
+
+新闻来源：[https://gettr.com/post/pzd5hu2551](https://gettr.com/post/pzd5hu2551)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-8.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/pzjcja0896](https://gettr.com/post/pzjcja0896)
-访谈：[https://gettr.com/post/pzjyew582d](https://gettr.com/post/pzjyew582d)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

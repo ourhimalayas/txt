@@ -2,8 +2,8 @@
 ---
 
 
-## 现场战友的辛苦付出
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148847/)
+## 现场救援让世界震惊
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148933/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
