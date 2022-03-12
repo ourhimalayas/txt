@@ -2,28 +2,27 @@
 ---
 
 
-## 流亡的白俄罗斯领导人说 人民正抵制俄罗斯对乌克兰的入侵
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2150643/)
+## 俄军距基辅仅约25公里
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2150699/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture6-2.png)
-图片来自原文
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-白俄罗斯流亡的反对派领导人斯维亚特拉娜-齐哈努斯卡娅（Sviatlana Tsikhanouskaya）说，乌克兰应注意俄罗斯飞机的动向。白俄罗斯人民已经前往乌克兰，积极抵制俄罗斯军队对乌克兰的入侵，帮助保卫基辅免受俄罗斯的攻击。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Russia-Ukraine-War.jpg)
 
-在渥太华的一个国防会议上斯维亚特拉娜-齐哈努斯卡娅警告说，大多数白俄罗斯人不支持入侵乌克兰，白俄罗斯的反战情绪正在上升。白俄罗斯和乌克兰的命运是相互关联的。
 
-乌克兰对克里姆林宫的大胆抵抗正在激励白俄罗斯对卢卡申科的抵抗。
+图片来源：美联社
 
-她警告说，普京使用核武器的威胁极为令人担忧。必须阻止独裁者。
+莫斯科的军队显然正准备对乌克兰首都发动重大袭击，而且越来越近了。专家们已经对“消耗战”发出警告。与此同时，马里乌波尔的情况正在恶化。
 
-她呼吁，加拿大和其他西方国家对白俄罗斯实行更严厉的制裁，包括对其国有银行的制裁，并警告说，俄罗斯正在利用白俄罗斯的银行来规避对其本国机构的制裁。这是个 “巨大的漏洞”，她说。
+俄军显然加强了向乌克兰首都基辅方向的攻击。从晚上到周六，至少触发了三个飞行警报。据美国有线电视新闻网报道，周六早上，从远处可以听到该市的“几分钟”炮击声。
 
-将白俄罗斯从SWIFT银行系统（金融机构使用的信息传递系统）中删除。
+根据乌克兰总参谋部周六晚上在 Facebook 上发布的一份报告，俄罗斯目前正在北部城市边界附近的萨西米亚和南部的维申基附近进行进攻。这些攻势在某些领域取得了部分成功。
 
-新闻来源链接：[https://globalnews.ca/news/8674790/belarus-ukraine-russia-invasion/](https://globalnews.ca/news/8674790/belarus-ukraine-russia-invasion/)
+据伦敦智库查塔姆研究所的一名军事研究人员称，俄罗斯对基辅的大规模袭击因此只是几小时或几天的事情。马蒂厄·布勒格说，在乌克兰首都前面长达 60 多公里的纵队中被困数日的俄罗斯军队现在已经重新集结。
 
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
+🔗 [https://www.welt.de/politik/ausland/article237490273/Krieg-in-der-Ukraine-Russische-Armee-nur-noch-etwa-25-Kilometer-von-Kiew-entfernt.html](https://www.welt.de/politik/ausland/article237490273/Krieg-in-der-Ukraine-Russische-Armee-nur-noch-etwa-25-Kilometer-von-Kiew-entfernt.html)
+
+编辑发表： Shuizhuyu
 
  
 

@@ -2,29 +2,29 @@
 ---
 
 
-## 2022/03/10 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2150563/)
+## 俄罗斯航天局警告国际空间站坠毁
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2150663/)
 
-1. 3月8日，湖南长沙某医院排队挂号和超大人流量的现场画面。为什么中共国病人会越来越年轻化？是什么原因让中共国医院永远不缺生意？
-2. 网络上流传清晨北京某医院开门后，人们疯狂奔跑去往窗口排队挂号的恐怖场景。
-3. 3月9日，广东深圳。号称南山区拥有最多居住人口的南山村因疫情开始封村。中共只管封锁，不管百姓生死的过往行为，让人们非常恐惧，纷纷翻墙逃离封
-4. 在出现疫情的城市，外卖小哥们因担心被封在疫区断了生计，只能自带帐篷和被子，四处流浪席地而睡。
-5. 中共政府不断收紧防疫政策，出行、乘坐公共交通都需要48小时的核酸检测，又人为制造了大量市民排队。这样的政策引发了老百姓之间的互斗。
-6. 为了防止工厂员工压力过大跳楼，上汽集团员工宿舍楼布置的“保护网”。中共国血汗工厂的标准配置！
-7. 3月10日，在上海集训备战的U17国家男子足球队被曝光集体剃寸头。压抑个性，奴化百姓是共产主义的特性。
-8. 3月8日，四川成都。儿子患病白发老人为了生活，每天街头卖菜至凌晨，饿了便在微弱灯光下吃口冷饭
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0100.jpg)
 
 
-* * *
+图片来源：视频截图
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+警告来自 Telegram：俄罗斯航天局 Roskosmos 负责人指出 ISS 空间站的供应问题。据称，一些“疯狂国家”的制裁甚至可能导致车站崩溃。
 
+俄罗斯航天局 Roscosmos 负责人德米特里·罗戈津（Dmitry Rogozin）警告西方，国际空间站（ISS）可能会坠毁。
 
-编辑：【英国伦敦喜庄园编辑部】
+罗戈津周六在信使服务电报中表示，对俄罗斯实施的制裁正在影响为国际空间站提供服务的俄罗斯航天器的运行。这主要影响车站的俄罗斯部分，该部分负责修正航向。结果，这座500吨重的结构可能会掉到地上，“掉进海里或掉到陆地上”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+“俄罗斯部分确保空间站的轨道得到纠正（平均每年 11 次），同时也是为了防止空间碎片，”罗戈津解释说。
+
+他还发布了一张世界地图，以显示国际空间站可能坠毁的位置。因此，俄罗斯基本上是安全的。但其他国家，特别是西方国家，应该“考虑制裁俄罗斯联邦的代价，”罗戈津警告说。
+
+🔗 [https://www.welt.de/politik/ausland/article237490255/Ukraine-News-im-Liveticker-Russische-Raumfahrtbehoerde-warnt-vor-Absturz-der-ISS.html](https://www.welt.de/politik/ausland/article237490255/Ukraine-News-im-Liveticker-Russische-Raumfahrtbehoerde-warnt-vor-Absturz-der-ISS.html)
+
+编辑发表： Shuizhuyu
 
  
 
