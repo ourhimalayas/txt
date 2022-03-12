@@ -2,39 +2,26 @@
 ---
 
 
-## 新中国联邦人：崭新的中国形象
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2148407/)
+## 中日财经爆|俄罗斯入侵乌克兰 将导致全球粮价再涨22%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2149502/)
 
-作者：银河系农场—骄子，纽约香草山农场-静言
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在了解了新中国联邦和法治基金救援团队在乌克兰当地令人赞叹的救助工作后，各地的善心人士和其他救援机构纷纷与前线战友对接，希望可以一同参与对乌克兰难民的援助工作。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-17.png)[图片来源](https://www.tuliu.com/read-127715.html)
+联合国粮农组织周五（3月11日）表示，由于俄罗斯军事入侵乌克兰仍在持续，导致国际食品和饲料价格可能上涨22%，进而全球营养不良人口激增。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-5.jpeg)
+总部位于罗马的联合国粮农组织(FAO)表示，目前还不清楚战乱中的乌克兰能否收获庄稼，而俄罗斯未来一年的出口前景也存在不确定性。
 
-消息显示，来自科索沃的一家非政府救援团队目前已经到达了米蒂卡现场，他们希望可以和新中国联邦合作，共同参与此次救援行动。目前，他们正在就流动厕所供应和帐篷搭建项目与前线战友接洽。
+国际粮农组织表示，俄罗斯是全球最大的小麦出口国，乌克兰是第五大小麦出口国。它们提供了全球19%的大麦、14%的小麦和4%的玉米，占全球谷物出口的三分之一以上。俄罗斯也是全球主要化肥供应国。
 
-此外，波兰克拉科夫一家租车公司的老板彼得也加入了新中国联邦和法治基金的救援团队，与前线战友们一同接待那些刚刚逃离乌克兰的民众。彼得表示，一位爆料革命的战友在跟他租车时提到了这一救援项目。仔细资讯了相关情况后，彼得当即决定加入战友团队，一同前往米蒂卡救助点。眼下，彼得正在以翻译员的角色与战友们协力合作。
+2月，粮农组织的食品价格指数创下历史新高。由于世界各地遭受冲突的影响，未来几个月的价格指数肯定还会继续攀升。报告称:“令人担忧的是，由此造成的全球供应缺口可能会使国际食品和饲料价格在本已高企的水平上再上涨8-22%”。
 
-在3月11日接受直播团队的采访时，这些救援人员谈道，这是他们第一次在国际救援行动的现场看到中国人的团队。令人惊讶的是，新中国联邦和法治基金的团队展现出了强大有序的组织能力和坚实可靠的经济实力。当被问及对中共政府的评价，他们提出，中国人民已经受够了中共独裁的压迫，为此，中国人应该早日脱离共产主义。
+粮农组织称，包括许多最不发达国家在内的50个国家所进口粮食的30%或更多的小麦供应依赖于俄罗斯和乌克兰，这使得这些国家尤其脆弱。到2022、2023年，全球营养不良人口数量可能增加800万至1,300万人。
 
-最后，这些受访者纷纷感叹，和新中国联邦人一起参与这场人道主义的救援活动是一件令人高兴的事。他们还将新中国联邦的49星旗全景展示在了镜头前。
+消息来源:[联合国粮农组织称乌克兰冲突将致高企的国际食品和饲料价格再涨20%](https://cn.reuters.com/article/fao-ukraine-war-food-price-0312-idCNKCS2L902Q?il=0)
 
-参考链接：[Watch MILES GUO live on GETTR新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导](https://gettr.com/post/pzefoe95e4)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
-
-总编：Irene木木
-编辑：Ivy001
-审核：Irene木木
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/逢⑦必变
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

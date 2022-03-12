@@ -2,25 +2,33 @@
 ---
 
 
-## 入侵乌克兰导致俄罗斯经济濒临绝境
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2152079/)
+## 中日财经爆┃经济制裁让俄罗斯的失业率飙升
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2152110/)
 
-撰稿：东京樱花团︱盖特第一批注册
+撰稿：东京樱花团/道来
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/入侵乌克兰导致俄罗斯经济濒临绝境.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/经济制裁让俄罗斯的失业率飙升.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg95.699pic.com%2Fphoto%2F30685%2F7843.jpg_wh300.jpg&amp;imgrefurl=https%3A%2F%2F699pic.com%2Ftupian%2Fshiyelv.html&amp;tbnid=PxNoUCHU57qQLM&amp;vet=12ahUKEwj13ojN2sD2AhVVzioKHSBsBlgQMyheegUIARCfAQ..i&amp;docid=q9KP3CpGbyxgZM&amp;w=464&amp;h=300&amp;q=%E5%A4%B1%E4%B8%9A%E7%8E%87&amp;ved=2ahUKEwj13ojN2sD2AhVVzioKHSBsBlgQMyheegUIARCfAQ)
 
-入侵乌克兰使低迷的俄罗斯经济雪上加霜。在经济前景不确定和被国际社会指责为侵略的背景下，外国公司相继宣布从俄罗斯撤出或暂停业务，这将导致资源、零售、食品和饮料、汽车、金融、IT和娱乐等行业大批员工失业。
+全球许多国家公布了对俄罗斯经济制裁的政策来对抗俄罗斯对乌克兰发动的军事战争。据报道，目前已超出了330公司宣布暂停或退出在俄罗斯的相关业务，这将促使俄罗斯的失业率上升。
 
-俄罗斯被排除在“环球银行间电信协会”（SWIFT）之外，使得卢布对美元的汇率相比俄乌战争之前下跌了40~50%。由于经济制裁，约60%的外汇储备6300亿美元被冻结，俄罗斯中央银行无法买入卢布止跌。
+许多全球化企业如麦当劳，宣布在俄将暂停850店铺，这将导致62000人员失业。百事公司在俄的业务调整将会带来约20000人员失业。
 
-为了阻止卢布继续贬值，俄罗斯中央银行于3月9日宣布停止卢布兑换外币业务，并限制客户从外币账户中提款，到9月底为止累计提外币不得超过1万美元。如果金额超过1万美元，客户将只被允许以卢布提款。卢布信用恶化的根本问题如果得不到解决，卢布将继续贬值。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2经济制裁让俄罗斯的失业率飙升2.png)[图片来源](https://cdn.statcdn.com/Infographic/images/normal/27023.jpeg)
 
-在首都莫斯科，目前没有明显的商品短缺或价格上涨。 然而，一些店铺已经开始限购白糖、植物油和罐头等商品。 由于原材料和库存的减少，预计未来的通货膨胀将加速。
+根据2022年2月最新统计，日本约有350家在俄罗斯的企业，包括制造业，贸易商社，金融，保险，运输和通信行业。有约80家企业业务受到战争带来影响，宣布宣布将缩小或停止在俄业务。如索尼，优衣库，资生堂等企业调整线上线下业务或暂停业务。丰田，日产，三菱等日本汽车制造企业宣布在俄汽车生产工厂停产。这些都会使俄罗斯失业人员的增多。
 
-信息来源：[**国際圧力でロシア経済が大混乱  侵攻の代償重く**](https://www.sankei.com/article/20220311-UZE6MRHQORPSZJA53XUST7W6PI/?ownedutm_source=owned%20site&amp;ownedutm_medium=referral&amp;ownedutm_campaign=ranking&amp;ownedutm_content=%E5%9B%BD%E9%9A%9B%E5%9C%A7%E5%8A%9B%E3%81%A7%E3%83%AD%E3%82%B7%E3%82%A2%E7%B5%8C%E6%B8%88%E3%81%8C%E5%A4%A7%E6%B7%B7%E4%B9%B1%20%E4%BE%B5%E6%94%BB%E3%81%AE%E4%BB%A3%E5%84%9F%E9%87%8D%E3%81%8F)
+随着俄罗斯对乌克兰的持续军事进攻，越来越多的企业对俄罗斯失去信心。失业人员逐渐增多将不可避免。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
+信息来源：
+
+[https://www.statista.com/chart/27023/employees-of-companies-withdrawing-from-the-russian-market/](https://www.statista.com/chart/27023/employees-of-companies-withdrawing-from-the-russian-market/)
+
+[https://www.tdb.co.jp/report/watching/press/pdf/p220213.pdf](https://www.tdb.co.jp/report/watching/press/pdf/p220213.pdf)
+
+[https://www3.nhk.or.jp/news/html/20220311/k10013527281000.html](https://www3.nhk.or.jp/news/html/20220311/k10013527281000.html)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
