@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 12:39 AM (UTC)`
+
+【Ukraine Rescue】03/11/22 NFSC & ROLF Ukraine Rescue Operation in cooperation with Médecins sans frontières, setting up a rescue access to welcome a new group of Ukrainian refugees.<br/><br/>【乌克兰救援】03/11/22 新中国联邦义工和无疆界医生组织合作设立救援通道，迎来了新的一批乌克兰难民。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group11/getter/2022/03/12/00/977c11c4-e528-896d-f797-9e76ddcfaaa5/out.jpg)
+
+---
+
 `@miles 3/12/2022 12:16 AM (UTC)`
 
 3/11/2022 Miles Guo: The NFSC & ROLF rescue volunteers are the only Chinese on site in Medyka, and the presence of the new Chinese and the top-notch facilities and services provided by the Rule of Law Foundation has shocked the world and has differentiated the Chinese people from the CCP！<br/><br/>3/11/2022 文贵直播：新中国联邦法治基金的救援义工是梅迪卡现场唯一的华人，新中国人的出现和法治基金提供的最顶级的设施与服务震撼了世界，并把中国人与中共区分开来！<br/>
@@ -152,13 +159,6 @@ By March 10th, more and more refugees arrived in the NFSC tent. The top media gr
 
 【Ukraine Rescue】03/10/22   Nicole introduces the rescue operation of NFSC to the volunteer of the Spanish charity foundation ‘No Name Kitchen’ and mentions that while we have been working day and night to rescue the refugees from Ukraine, the CCP government used state power to hack our email rescue system.<br/><br/>【乌克兰救援】03/10/22  妮可战友向西班牙公益基金No Name Kitchen的志愿者介绍新中国联邦的救援行动，并提到：就在我们没日没夜地救助来自乌克兰的难民时，中共政府却动用国家力量黑客攻击新中国联邦的电子邮件救援系统<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group26/getter/2022/03/11/10/4dc8c683-1bc3-ba52-cdec-66dc0f266490/out.jpg)
-
----
-
-`@miles 3/11/2022 10:05 AM (UTC)`
-
-【Ukraine Rescue】WenGeQiXiong explains the New Federal State of China’s rescue operation to a foreign reporter. We provide free shuttle buses from Lviv in Ukraine to Krakow in Poland. We also offer free flights to refugees, including Chinese, Ukrainians, or any foreign national who needs help.<br/><br/>【乌克兰救援】文戈七雄向外国记者介绍新中国联邦救援行动。提供从乌克兰利沃夫到波兰克拉科夫的免费巴士。还面向华人、乌克兰人及任何需要帮助的外国人提供免费包机<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #rolfrescue 
-![img](https://media.gettr.com/group24/getter/2022/03/11/10/4eeb99e8-4f37-ab7b-7cdc-cf426831a0d1/out.jpg)
 
 ---
 

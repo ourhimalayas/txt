@@ -2,10 +2,21 @@
 ---
 
 
-## 3/11/2022 文贵直播：新中国联邦法治基金的救援义工是梅迪卡现场唯一的华人，新中国人的出现和法治基金提供的最顶级的设施与服务震撼了世界，并把中国人与中共区分开来
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2147464/)
+## 欧美制裁俄罗斯再加码，取消俄最惠国待遇！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2147481/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/dfef026c-986b-4a5e-93e5-1ef151a7328b.jpg)图片来源：RTV影片
+
+俄罗斯入侵乌克兰经谈判毫无停手之意，西方制裁俄罗斯再加码，美国携手欧盟和七大工业国集团(G7)，宣布将撤销俄罗斯「最惠国待遇」，为后续提高对俄罗斯关税铺路。同时禁止进口来自俄罗斯的奢侈品，也不准俄国从世界银行等机构借钱。
+
+新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022312W0005)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

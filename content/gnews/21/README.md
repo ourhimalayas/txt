@@ -2,24 +2,26 @@
 ---
 
 
-## 夜幕里的新中国联邦驻波兰救援营地
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2147087/)
+## 加拿大前精英狙击手前往乌克兰参战
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2147190/)
 
-整理、编辑：Candy
-图片来源：玫瑰圆（网名）、Nicole、煤油灯（网名）
+撰稿：西枫westca
 
-这是新中国联邦和法治基金驻波兰救援乌克兰难民的营地夜间的景象。如果没有俄乌战争，该是多么恬静美好的夜晚。
-![Image](https://media.discordapp.net/attachments/950448401529577502/951911242845536327/image.png?width=721&amp;height=406)小帐篷（50平米）里人影绰绰![Image](https://media.discordapp.net/attachments/950448401529577502/951913050821263421/image.png?width=721&amp;height=406)新建的200多平米迎接难民的大棚wwawaiwai’gwai’guwai’guawai’guan外观![Image](https://media.discordapp.net/attachments/950448401529577502/951913129376366703/image.png?width=721&amp;height=406)![Image](https://media.discordapp.net/attachments/950448401529577502/951913555626692648/image.png?width=721&amp;height=406)![Image](https://images-ext-1.discordapp.net/external/cBBQ-I5NrW-Csoz6whQJvHCaSLZD-0W8Z76P82Trvxw/https/media.discordapp.net/attachments/950448401529577502/951913487746084895/image.png?width=721&amp;height=406)棚内灯火通明，电力来源于发电机，都是由法治基金提供的资金yyuyuayuanyuan’zyuan’zhyuan’zhu援助。![Image](https://media.discordapp.net/attachments/950448401529577502/951924668909109268/image.png?width=721&amp;height=406)新大棚迎来的第一批妇女儿童难民：虽然妈妈在讲电话，可能在联络相关人员，但从孩子们的神情看，他们没有受到饥饿和寒冷的威胁，身体是安全的、舒服的。
-希望战争早日结束，乌克兰人民能早日结束因战争带来的灾难，重新过上往日的美好生活！
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-7.jpg)图片来源：网络照片
+据国家邮报3月11日报道，前加拿大精英狙击手”瓦利”为了响应乌克兰总统泽连斯基呼吁外国战斗人员协助对俄罗斯的战争，离开了襁褓中的儿子和妻子，与其他三名加拿大退伍军人带着狙击装备前往乌克兰。
 
-发布：Candy
+这位40岁的程序员说，”我不再是一个好士兵了。但我仍然很好，我计划为这个如此想要自由的国家的胜利做出贡献，至少一点点。“  “瓦利”在阿富汗战争期间两次在加拿大皇家步兵团服役，2009年至2011年在坎大哈担任狙击手，并于2015年作为库尔德部队的志愿战士在伊拉克与伊斯兰国作战。2017年他曾在两英里外在摩苏尔射杀了一名ISIS武装分子。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+近日，“瓦利”在网上分享了他在乌克兰的经历，在他抵达乌克兰几天后，一支特警队突袭了他与其他外国战士一起的藏身处。”他说，”这是一种震撼人们的经历，他们被推到墙上，有的被推到地上。特警队用俄语与他对峙，”瓦利”说他认为他会被当作俄罗斯士兵抓起来并可能被杀。”房子里的士兵像囚犯一样把手举在空中。其中一名志愿者正在和他的妻子通电话。他也被摔在地上。然而，很快，特警队就发现这群外国人在那里帮忙，最后，他们一起开玩笑。”这让每个人都心情愉快。它甚至能使我们在乌克兰建立更多的联系“。
+
+“瓦利”说，在目睹了乌克兰公民的痛苦之后，他有了对抗俄罗斯的动力，我想帮助他们，就这么简单。当我看到一座被摧毁的建筑物时，我看到拥有它的人，看到他的养老基金化为乌有，””瓦利”解释说。”我去那里是出于人道主义原因。他还讲述了城市公寓楼居民的快速反应，他们切断了电力，将俄罗斯士兵困在大楼的电梯里。
+
+但是离开最困难的部分是错过了儿子的第一个生日，“瓦利”说。”我知道，这太可怕了，”。”但是我，在我的脑海中，当我看到乌克兰的破坏画面时，我看到的是我的儿子，处于危险之中，他正在受苦。
+
+根据官方数据，来自52个国家的20，000多名外国志愿者已报名参加反对俄罗斯入侵的战斗。
+
+**新闻来源：**[Elite Canadian sniper leaves family behind to fight for Ukraine: ‘I had to go’ | National Post](https://nationalpost.com/news/world/deadly-canadian-sniper-volunteers-to-fight-war-in-ukraine)
 
  
 
