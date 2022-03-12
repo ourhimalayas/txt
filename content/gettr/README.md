@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 9:13 AM (UTC)`
+
+【Ukraine Rescue】03/11/22  At 3:37 a.m. local time, another group of refugees, many of them children, arrived at the NFSC relief tent. NFSC volunteers gave them candies and chocolates, and a cute girl smiled sweetly at the volunteers.<br/><br/>【乌克兰救援】03/11/22 又一批难民于波兰凌晨3点37分进入新中国联邦救援帐篷，里面有许多孩子，新中国联邦前线义工给他们分发糖果和巧克力,其中一个萌娃萌翻全场。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group36/getter/2022/03/12/09/9dc15edd-47ef-f651-af8d-fae053cff2fe/out.jpg)
+
+---
+
 `@miles 3/12/2022 9:05 AM (UTC)`
 
 【Ukraine Rescue】03/11/22 Soldiers and volunteers keep sending refugee children and adult refugees to our tent as the rescue tents of the New Federal State of China in Medyka, Poland is the largest, warmest and the best equipped<br/><br/>【乌克兰救援】03/11/22 士兵和志愿者们不断把逃难儿童和难民送往新中国联邦在波兰梅迪卡的救援帐篷，因为我们的帐篷最大、最温暖、设施最好<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
@@ -146,13 +153,6 @@ Wars for any reason are all crimes<br/>出于任何原因的战争都是犯罪<b
 
 2022.03.11 NFSC News  CCP Virus Outbreak in Hong Kong Caused Panic Buying； Mild Infection of CCP Virus May Cause Brain Atrophy Or Deterioration
 ![img](https://media.gettr.com/group14/origin/2022/03/12/00/5e708cd0-4770-90cf-7702-5d9e570538e8/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/12/2022 12:39 AM (UTC)`
-
-【Ukraine Rescue】03/11/22 NFSC & ROLF Ukraine Rescue Operation in cooperation with Médecins sans frontières, setting up a rescue access to welcome a new group of Ukrainian refugees.<br/><br/>【乌克兰救援】03/11/22 新中国联邦义工和无疆界医生组织合作设立救援通道，迎来了新的一批乌克兰难民。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group11/getter/2022/03/12/00/977c11c4-e528-896d-f797-9e76ddcfaaa5/out.jpg)
 
 ---
 
