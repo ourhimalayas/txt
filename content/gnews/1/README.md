@@ -2,11 +2,11 @@
 ---
 
 
-## 唯一能救你的是HPAY
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2147975/)
+## “铁链梦”录制经过
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148066/)
 
-#### 視頻剪輯: WinterGuo ；開智則立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蝸牛 ；牛魔王
-視頻定位：BENJ1；WEI
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
 *发布：陶子*
 

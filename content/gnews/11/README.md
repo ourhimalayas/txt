@@ -2,35 +2,32 @@
 ---
 
 
-## 有声|我们用音乐维护中国女性的安全和尊严
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2147844/)
+## 10艘俄罗斯舰艇通过津轻海峡为哪般
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2147979/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月8日，郭文贵先生在一则盖特视频中再次提到了《锁链梦》这首歌曲的意义。
+**编译：文舞两道**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/B1157F2C-6F99-4B48-A63C-E0583BD62472.jpeg)图片来源：https://www3.nhk.or.jp/news
+日本防卫省3月11日宣布，3月10日至11日有10艘俄罗斯海军舰艇通过了津轻海峡，由于俄罗斯军队最近在日本周边频繁活动，防卫省正在收集情报分析俄罗斯此次航行的目的。
 
-郭先生指出，每一个听到《锁链梦》的人都会被深深地震撼和触动。而于他本人而言， 更有一种无法形容的力量推动他完成了这首歌曲的演唱。
+据防卫省消息，海上自卫队的巡航机和巡航舰证实，10日凌晨2点左右，10艘俄罗斯海军舰艇在北海道襟裳岬东北偏东约180公里处的太平洋海域航行，其中驱逐舰和护卫舰11日通过津轻海峡进入日本海。
 
-郭先生解释道，这首歌中的每一句歌词都充满了血和泪，令人悲痛不已。为此，他祈愿中国能不再有像锁链女这样悲惨的女性，更希望这首歌能够唤醒国人，让他们可以彻底抛弃懦弱，不再如此冷漠。
+俄罗斯海军上月以来一直在鄂霍次克海进行大规模海上演习，这10艘舰艇可能是参加了此次演习的舰艇。
 
-郭先生还补充道，新中国联邦要用音乐推动世界的和平并维护人类的尊严，特别是要维护中国女性的安全和尊严。
+津轻海峡是“国际海峡”，包括军舰在内的外国船只的航行是国际公认的。一名防卫省官员在接受采访时表示，“这么多俄罗斯海军舰艇突然经过津轻海峡，可能是对日本制裁俄罗斯不满的威慑行为。”
 
-详情，请收看以下视频。
+**消息来源：**
 
-文字版原文：[我们用音乐维护中国女性的安全和尊严](https://gnews.org/zh-hans/2135525/)
+[ロシア海軍の艦艇10隻 津軽海峡を通過 “日本けん制の可能性”](https://www3.nhk.or.jp/news/html/20220311/k10013526001000.html?utm_int=news_contents_news-main_003)
 
-音频处理：Fei797
-发稿：Fei797
+**编辑：LILY**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+**发布：歪桑**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+20220311
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
