@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 11:17 PM (UTC)`
+
+【Ukraine Rescue】03/12/2022 Fellow fighter Nicole introduces NFSC and ROLF Ukraine Rescue Operation to a media from Roma：The Chinese Communist government does nothing to help Chinese people in Ukraine. Only the New Federal State of China and Rule of Law foundation do everything to save the Chinese people in Ukraine<br/><br/>【乌克兰救援】03/12/2022 妮可战友向罗马媒体介绍新中国联邦和法治基金在乌的救援行动：中共政府对在乌克兰的华人无所作为，只有新中国联邦和法治基金在尽一切努力拯救在乌华人<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group48/getter/2022/03/12/23/3af2091e-40a2-42d7-4c2e-07fe7a86d626/out.jpg)
+
+---
+
 `@miles 3/12/2022 11:00 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-12
@@ -154,13 +161,6 @@
 
 3/11/2022 Miles Guo: Many media outlets around the world want to cooperate with the New Federal State of China. For the first time in the history of China we are showing the foreigners that the Chinese people are equal to the world by using live broadcasts. You should feel happy because the New Federal State of China will play a central role on the world stage.<br/><br/>3/11/2022 文贵直播：全球有很多媒体要和新中国联邦合作；我们是中国人有史以来第一次用直播向外国人展示中国人和世界是平等的；新中国联邦会成为世界舞台的主角，大家就偷着乐吧！<br/>
 ![img](https://media.gettr.com/group21/getter/2022/03/12/07/f81aa80c-a1bc-114a-7a8f-506d13ae58ba/out.jpg)
-
----
-
-`@miles 3/12/2022 7:31 AM (UTC)`
-
-3/11/2022 Miles Guo: The NFSC & ROLF Ukraine rescue mission has demonstrated the most unique and best aspects of the Chinese people, showing that the Chinese are like the rest of the world instead of the slaves that make low-end products and commit counterfeiting. This is unacceptable to the CCP!<br/><br/>3/11/2022 文贵直播：新中国联邦法治基金乌克兰救援行动展示出了中国人最独特和最优秀的一面，说明中国人和全世界一样，并不是生产低端产品和造假的奴隶，这让中共无法接受！<br/>
-![img](https://media.gettr.com/group48/getter/2022/03/12/07/4297ecb8-15a6-c9bf-4911-ba4b33b13ac9/out.jpg)
 
 ---
 
