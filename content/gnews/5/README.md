@@ -2,42 +2,56 @@
 ---
 
 
-## 马斯克敦促拜登：提高石油产量 缓解能源紧张
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2151627/)
+## 中共病毒疫苗使Moderna首席执行官的金色降落伞增加近100倍
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2151664/)
 
-翻译：噜噜咪
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/oil1.png)图片来源：thedcpatriot.com
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-随着俄罗斯对乌克兰持续进行入侵，美国对俄罗斯的制裁，以及拜登团队对化石燃料发动以“气候变化”为重点的战争，石油价格急剧飙升。
+Moderna的董事会在去年底批准了首席执行官Stephane Bancel的金色降落伞计划，价值超过9.26亿美元，高于中共病毒（Covid-19）颠覆世界秩序之前2019年的940万美元。
 
-显而易见的解决方案是鼓励在美国生产化石燃料，但这似乎是拜登政府不愿意做的事情，但非常明显，它需要做。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-12_21-09-19.png)
 
-当运输部长布塔朱吉被MSNBC主播史蒂芬妮·露蕾问到：“我意识到这有争议，它有巨大的环境影响，是否有一些事情，总统是否可以考虑批准Keystone管道的建设？或者与伊朗达成一些协议？”
+金色降落伞，英文Golden Parachute，也可也翻译成黄金降落伞，是一种公司被收购的情况下，公司高层管理人员无论是主动还是被迫离开公司，都可以得到一笔巨额安置补偿费用的补偿协议。西文管理学认为，金色降落伞是管理层抵御恶意收购的一种防御措施，但其弊端是，巨额补偿有可能诱导管理层低价出售企业。
 
-布塔朱吉回答说：“你看，总统已经说过，所有的选择都在桌面上。但我们也需要确保我们不是在为眼前的短期问题寻求永久的解决方案，而是在短期内采取更多的战略和战术行动，从而产生影响，就像你的战略储备，它的存在部分是为了应对这样的情况。总统已经制定了政策，通过为这个国家建立更多的多元化和本土的能源基地，帮助缓冲未来能源市场的任何波动的影响。”
+补偿金额高的会达到数千万甚至数亿美元，因此使收购方的收购成本增加。其他抵御恶意收购的措施还有股份回购、白衣骑士、毒丸防御、银色降落伞、皇冠上的珍珠、焦土战术、帕克门、超级多数条款等等。除了极少数权贵阶层，金色降落伞类似的计划过去在基本生存权都毫无保障的中共国非常少见。
 
-布塔朱吉其实可以省点氧气简单说个“不”字来表达他的意思。
+现年49岁的Stephane Bancel出生于法国，在法国雷恩的CentraleSupélec和明尼苏达大学获得工程学位。据福布斯报道，他还拥有哈佛工商管理硕士学位。在2011年年中加入Moderna之前，他是法国诊断公司BioMérieux的首席执行官。据报道，Bancel身家已经达到43亿美元。
 
-埃隆·马斯克是SpaceX公司的创始人、首席执行官和总工程师，特斯拉公司的早期投资者、首席执行官和产品设计师，Boring公司的创始人，以及Neuraink和OpenA的联合创始人，他比拜登和布塔朱吉的智慧总和要多很多倍，他在周五的一系列推文中说得很明显。“讨厌这样说，但我们需要立即增加石油和天然气产量。非常时期需要非常措施。显然，这将对特斯拉产生负面影响，但可持续能源解决方案根本无法即时反应，来弥补俄罗斯的石油和天然气出口。”
+自2020年初中共病毒大流行开始以来，Moderna的情况发生了很大变化。它从当年的亏损7.47亿美元到2021年收入122亿美元，主要收入来自其唯一可商用的Covid-19病毒疫苗的销售。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-12_21-20-32.png)
+去年，Bancel的总收入为1820万美元，比2020年增长了41%。包括990,385美元的基本工资、1500万美元的股票奖励和期权以及150万美元的奖金。Moderna为他和他的家人额外花费了661,000美元的个人安全保障。
 
-马斯克说得很有道理，特别是关于需要取代俄罗斯的产量，正如InsideEVs在马斯克的推文中报道的俄罗斯联邦的石油产量，这是很庞大的。根据美国能源信息署的数据，俄罗斯联邦是世界第三大石油生产国，占全球产量的11%。唯二超过俄罗斯的国家是美国，占20%，沙特阿拉伯占12%。至于天然气，俄罗斯是仅次于美国的世界第二大生产国。
+Bancel的大部分黄金降落伞都是股票的形式兑现。Moderna的股价自中共病毒大流行以来一直上下波动，在去年8月10日达到每股497.49美元的峰值，本周四为139.52美元，比起最高时下跌了357.97美元。因此很难确定Bancel是否以及何时兑现它们的价值。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-12_20-43-42.png)
+Bancel并不是Moderna唯一从COVID疫苗成功中获利的高管。
 
-幸运的是，不仅仅是马斯克在呼吁美国开始开采更多的石油。美国国会参议员马克·鲁比奥也是如此，他说：“我不会听到我想听到的，那就是总统宣布美国将重新开始积极生产石油和天然气，并将其出口，而且我们将在制裁和消除进口俄罗斯石油的同时，进行这项工作。”
+Moderna总裁斯蒂芬﹒霍格（Stephen Hoge）去年获得了780万美元的报酬，其中包括价值600万美元的股票奖励和期权以及819,000美元的奖金。但Hoge最大的收入是去年他套现了1.659亿美元的股票期权。
 
-鲁比奥随后补充说：“美国需要回到我们在2019年和2020年的那个点，当时我们的出口量超过进口量。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-12_21-49-44.png)
 
-在本文作者看来，大多数美国人认为美国需要开采更多的石油，特别是在我们关闭了俄罗斯的石油管道之后。
+同样，Moderna首席技术官胡安﹒安德烈斯（Juan Andres）去年赚了660万美元，其中包括500万美元的股票奖励和期权以及756,000美元的奖金。他在去年套现了1.943亿美元的期权。
 
-**参考资料：**[thedcpatriot][Elon Musk Urges United States and Biden to Ramp Up Oil Production to Help Americans](https://thedcpatriot.com/elon-musk-urges-united-states-and-biden-to-ramp-up-oil-production-to-help-americans/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-12_21-50-08.png)
 
-* * *
+Hoge 2021年的总薪酬（不包括套现期权）比2020年增加了48%，而Andres的薪酬增加了55%。
 
-*审核：文乐*
-*校对：小东*
-*发稿：信心的选择*
+Moderna预计其2022年Covid-19病毒疫苗的销售收入将达到190亿美元，几乎所有这些收入都来自美国、英国、德国等主要发达国家。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3.jpeg)
+但疫苗灾难逐步暴发，这些人能不能在2022年底前，被知道真相的民众撕碎，都是未知数，更不要说兑现它们的金色降落伞！
+
+据说Bancel的最后一个已知住址是位于波士顿查尔斯顿社区的煤气灯区（Gas Light District, located in the Charlestown neighborhood of Boston）的一个三卧室两浴室，具有开放式客厅/餐厅和厨师厨房的公寓，该公寓价值120万美元。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-12_21-19-36.png)
+
+今后会有多少被疫苗灾难夺去生命的冤魂光顾这套公寓，去向Bancel这些因中共病毒疫苗而大发横财的精英们索命，不得而知！
+
+参考资料：
+
+[Moderna approved a $926MILLION golden parachute for its CEO at the end of 2021 in the event he’s replaced: French-born executive, 49, is already worth $4.3BN and lives in $1.2M Boston apartment](https://www.dailymail.co.uk/news/article-10600721/Moderna-approves-golden-parachute-CEO-worth-926-MILLION-event-hes-replaced.html)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

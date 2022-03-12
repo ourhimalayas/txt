@@ -2,49 +2,35 @@
 ---
 
 
-## 通过向联合国安理会撒谎，俄罗斯再次向自己开枪
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2151180/)
+## 千难万险无阻救援行动
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151208/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-3月11日，乌克兰常驻联合国代表谢尔盖·基斯利茨亚（Serhiy Kyslytsya）周五在在召开联合国安理会关于“美国在乌克兰领土上的军事和生物活动”的会议上说，俄罗斯再次自投罗网。
+作者：纽约香草山农场 静言，银河系农场 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据前线记者Nicole回传的消息显示，自救援团队抵达波兰米蒂卡救助点后，救援战友们很长时间都在极为艰难的条件中尽力救助那些从乌克兰逃离的难民。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-12-at-8.43.44-PM.png)
+在此期间，明道战友主要负责救助点的现场直播工作。与其他国家和机构的媒体工作人员相比，明道战友是真正地拿真心在救人：他每天到的最早，却走的最晚，这中间的十几个小时，明道战友都需要站在低于零度的寒风中工作。因此，尽管乌克兰前线直播的器材很简单，但新中国联邦和法治基金的直播团队维持着每天多场的救援直播报道，从而可以尽快给后方战友发回最新的救援信息，坚守着爆料革命唯真不破的理念。
 
-“我们清楚地知道，普京幻想在乌克兰有不稳定的生物或化学武器或其他威胁的狂热痴迷是非常危险的。这可能正式表明俄罗斯正在准备另一次‘发动在外国’的恶性行动。”这位外交官说。
+另一方面，记者Nicole也提到，前线的生活条件至今仍然相当艰苦，尤其是当地极其缺少流动厕所：几十万难民和救援人员共同使用极少数的流动厕所。为此，大多数的救援人员都尽可能地减少水分摄入。
 
-同时，他转向俄罗斯代表：“你还打算用什么来对付乌克兰？撞击导弹、多管火箭发射器、大炸弹？我们已经看到了这一切。下一步是什么？氨、磷？而下一个目标会是什么？一个多住房单元？还是一个空心房？还是一所学校？也许还是一个文化遗产地？”
+但即便如此，经过前线战友的通力配合，新中国联邦和法治基金救援难民的工作正在渐入佳境：难民到达营地以后都可以稍作休息，热的食物、水、保暖用品，甚至是宠物用品都已经在营地中全数供应。
 
-基斯利茨亚说，乌克兰士兵从俄罗斯俘虏那里获得的文件和照片证实，对居民区的轰炸已经计划了很久。俄罗斯轰炸机在基辅的一次侵袭中证实，他们故意向居民区投掷炸弹。
+参考链接：[新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导](https://gettr.com/streaming/pzefoe95e4)
 
-基斯利茨亚说：“通过恢复这次会议，侵略国再次自投罗网。”他指出，更明显的是“普京和他的使团，包括俄罗斯驻联合国代表团的大使身份”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-用乌克兰代表的话说，俄罗斯对其本国人民的安全以及被遗弃在乌克兰田野上的数千具俄罗斯士兵的尸体漠不关心。
+编辑：宁文静
+总编：Irene木木
+审核：Irene木木
+校正/发稿：我不在这里
 
-他认为，俄罗斯能够通过散布虚假信息进行操纵，是对安全理事会成员的不尊重，破坏了安理会作为一个机构的公信力。
-
-常驻代表补充说：“确实应该由安理会来处理俄罗斯联邦从2022年2月24日起每天犯下的战争罪和反人类罪。”
-
-他呼吁俄罗斯代表要求莫斯科释放被侵略者绑架的梅利托波尔市长。
-
-基斯利茨亚还宣读了194位诺贝尔奖获得者的呼吁书中的几段。“我们对乌克兰人民和自由独立的乌克兰国家表示支持，它正处于俄罗斯侵略的边缘。这让人想起纳粹德国在1939年对波兰的入侵（使用类似的成功挑衅的伎俩）和1941年对俄罗斯联邦的入侵。我们是在利用乌克兰人民的怨恨和力量”。
-
-据报道，俄罗斯于3月11日召开了联合国安理会会议，“讨论美国在乌克兰领土上的军事和生物活动”。
-
-俄罗斯穷途末路，只能通过卑鄙龌龊无耻的栽赃嫁祸于美乌，中共背后支持俄罗斯，注定了邪恶力量的灭亡。时间会证明一切的，正义一定会战胜邪恶。
-
-[https://www.ukrinform.ua/rubric-polytics/3427177-brehneu-na-radbezi-oon-rosia-znovu-vistrilila-sobi-v-nogu-kislica.html](https://www.ukrinform.ua/rubric-polytics/3427177-brehneu-na-radbezi-oon-rosia-znovu-vistrilila-sobi-v-nogu-kislica.html)
-
-校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

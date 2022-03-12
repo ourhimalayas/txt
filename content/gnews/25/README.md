@@ -2,21 +2,31 @@
 ---
 
 
-## 乌克兰救援前线视频（一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2151103/)
+## 秘翻新闻｜俄乌战争打醒中国留学生 小粉红转向反共
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2151135/)
 
-**视频制作：**蛮吉
-**封面设计：**Rosie Lee
-**监制：**精靈藍
-**编辑/发布：**翼族
+**By:[秘翻新闻](https://gettr.com/post/pzlj9n4c0c)**
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**2022-03-12**
 
+**新闻内容:**
+
+**1. 李克强确认自己将在明年卸任中共总理**
+
+**2.上海疫情严重实施软封城  “健康云”再次崩溃**
+
+**3. 普京或高估了中共援助 局势令中共不安**
+
+**4. 俄罗斯寡头警：不要把俄罗斯带回苏联时代**
+
+**5.俄富豪为避制裁 通过加密货币转移资产**
+
+**🔗Gettr链接:**[https://gettr.com/post/pzlj9n4c0c](https://gettr.com/post/pzlj9n4c0c)
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
