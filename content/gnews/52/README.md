@@ -2,35 +2,30 @@
 ---
 
 
-## 难民营里的钢琴曲
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2141382/)
+## 中日财经爆|中共国扛不住卢布贬值 只能扩大交易幅度
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2141446/)
 
-作者：纽约香草山农场 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月9日，据前线回传的消息显示，地处乌克兰和波兰边境的米蒂卡难民营，在夜幕时分传出了美妙的钢琴曲，这也为身处战争阴影和痛苦中的人们送去了心灵的抚慰。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7-2.jpg)[图片来源](https://chaslaukoniukh.com/en/fall-of-the-russian-ruble-en/)
+中共国外汇交易中心周四（3月10日）称，为顺应市场发展要求，决定自周五(11日)起，银行间外汇市场人民币兑俄罗斯卢布即期交易价浮动幅度由5%扩大至10%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-8.jpeg)
+外汇交易中心网站发布的公告并指出，即每日银行间外汇市场人民币兑俄罗斯卢布的即期交易价可在交易中心对外公布的当日人民币兑俄罗斯卢布中间价上下10%的幅度内浮动。
 
-战地记者Nicole报道，每天傍晚，来自德国的音乐家达维德·马特洛会在难民营中一架破旧的钢琴前为大家演奏乐曲。此时，乌克兰边境的气候依然严寒，逃难的母亲们带着自己的孩子坐在营地的篝火前取暖，悦耳的钢琴曲交织在不时飘落的雪花中，给那些故土被毁、亲人离散又饱受战争摧残的难民们带来少许的安慰。
+俄罗斯军事入侵乌克兰，遭到西方民主国家的集体大规模经济制裁，卢布大幅度贬值。
 
-当Nicole向马特洛介绍我们这支新中国联邦和法治基金的救援团队时，马特洛特意为所有法治基金的捐款者送上了一首名为“在彩虹之上玩耍”的曲子，用以感谢所有捐款者的爱心和慷慨。
+中共国前外管局国际收支司司长管涛认为，由于近期国际市场卢布兑美元汇率波动加剧，而境内市场人民币兑非美货币5%的波幅不足以吸收外围市场影响，扩大波幅后能够较好反应国际外汇市场的变化。
 
-参考链接：[德国音乐家Davide Martello 在难民营为法治基金所有的捐赠者弹奏钢琴曲](https://gettr.com/post/pz3g1c2f67)
+“人民币/卢布价格主要取决于美元兑卢布和人民币的变动，”一中资行交易员表示，近期卢布大幅波动，所以要扩大交易区间。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+过去两周，卢布兑美元[RUB=](https://cn.reuters.com/quote/RUBUSD)下跌约45%，卢布兑人民币[CNYRUB=](https://cn.reuters.com/quote/CNYRUBUSD)亦跌近40%。
 
-总编：宁文静
-编辑：玫瑰圓
-审核：Irene木木
-校正/发稿：谐趣园
+消息来源:
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[俄罗斯卢布剧烈波动 中国外汇交易中心扩大人民币兑卢布交易幅度](https://cn.reuters.com/article/russian-rouble-fluctuations-china-yuan-0-idCNKBS2L7148?il=0)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

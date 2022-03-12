@@ -2,25 +2,42 @@
 ---
 
 
-## 【G时新闻】联合国：已有250万乌克兰人逃离家园
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2148359/)
+## 乌克兰数学奥林匹克亚军在哈尔科夫被俄军炸死
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2148713/)
 
-播报：加拿大温哥华杨帆农场 – 文广
-视频制作：加拿大温哥华杨帆农场 – 文所未闻
+作者：波士顿五月花—文雀
 
-早报讯）联合国周五（3月11日）最新数据显示，自俄罗斯2月24日入侵乌克兰以来，已有约250万人逃离乌克兰。另外，有200万人因战争而在国内流离失所。
 
-法新社报道，联合国难民总署署长格兰迪将乌克兰大规模流离失所归咎于所谓的“毫无意义的战争”。格兰迪在推特上说：“不幸的是，来自乌克兰的难民人数今天已经达到了250万。”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-64.png)
+Yuliia Zdanovska（尤妮亚·兹丹诺斯卡），21岁，乌克兰人，2017年代表乌克兰参加欧洲女子数学奥林匹克竞赛，获得银牌。她在哈尔科夫做志愿者工作，在俄军一次轰炸事件中丧生。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/182119.png)
+在过去的六个月里，她是乌克兰学习中心的一员，向新一代教授计算机科学。对于她的丧生，国际数学界正在哀悼。尽管俄罗斯对哈尔科夫的学校、住宅楼和其他民用目标进行无情炮击，但她拒绝离开，她告诉她“为了乌克兰教育”但同时，她将“留在哈尔科夫，直到获胜”。
 
-他说：“我们还估计约200万人在乌克兰境内流离失所。数百万人因这场毫无意义的战争被迫离开家园。”
+参考来源：
 
-联合国国际移民组织发言人狄龙则说，逃离乌克兰的250万人中包括11.6万名来自其他国家的国民。联合国难民署估计，随着战事持续，最终可能有400万人离开乌克兰。
+[https://www.cronica.com.mx/academia/bombardeos-fallece-ucraniana-yuliia-zdanovska-medallista-olimpiada-matematicas.html＞](https://www.cronica.com.mx/academia/bombardeos-fallece-ucraniana-yuliia-zdanovska-medallista-olimpiada-matematicas.html＞)
 
-核对/发稿：青青
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-32.jpg)
 
-原文链接 https://gnews.org/zh-hans/2144316/
+编辑/校对/发稿：兰兰
 
-盖特链接：https://gettr.com/post/pzi79x5166
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-65.png)
+
+
+
 
  
 

@@ -2,30 +2,48 @@
 ---
 
 
-## 新中国联邦与各类国际组织通力合作安置难民
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2148856/)
+## 志愿者新设的救援通道迎来了新的一批乌克兰难民
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2148934/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
-波兰当地时间3月11日，随着难民数量越来越多，到达梅迪卡难民安置处的各类国际组织越来越多。其中有数家国际主流媒体，包括美联社和彭博社，他们的媒体报道人员在新中国联邦的帐篷内拍摄难民，在帐篷外做采访报道。多位战友被媒体采访。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1232.png)
-除了媒体，还有很多国际组织或个人方面的救援先后到达了此地。3月10日，三位意大利志愿者将一车婴幼儿用品委托给战友，请战友将这些物品发给难民。国际红十字会的救援人员把妇女儿童指引到新中国联邦的大帐篷里休息，无疆界医生组织找文科战友帮忙搬运物资。
+#### 【雅典娜快讯】，紧贴时代脉搏 
 
-现场参与救援的人员虽然来自不同的组织、不同的国家，但是都在通力合作救助难民。新中国联邦的战友多次受到难民、媒体和其他救援组织的高度赞扬。
+整理/编辑：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-59.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/10-22.png)图片来源：郭文贵先生盖特视频截图
 
-编辑/总编:飞虹
 
-校正/发稿：浪迹天涯
+根据3月11日新中国联邦和法治基金前线记者报道，新中国联邦义工和无疆界医生组织合作设立的救援通道，迎来了新的一批乌克兰难民。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
+从视频可以看到，在刚刚从边境过来，长长的难民们队伍里，有小孩和用手推车推着的猫和狗。
+
+记者跟乌克兰难民们打招呼，并告知在新中国联邦和法治基金的帐篷里面提供着，食物、点心、巧克力和糖果。
+
+在长长的难民队伍当中，主要是小孩和妇女比较多，其中还有一些年纪比较大的难民。因为乌克兰男人都要留在乌克兰境内打仗。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/12-18.png)
+
+
+记者身处的地方是乌克兰边境救援难民必经的通道。昨天无疆界医生组织与新中国联邦和法治基金的志愿者设立这个救援通道的栏杆。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/11-27.png)
+
+
+现场有很多媒体在报道。等乌克兰难民出了这个救援长廊以后，就会陆续到新中国联邦和法治基金的帐篷里面休息。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/9-25.png)
+
+
+资料来源：[郭文贵先生2022年3月12日盖特视频](https://www.gettr.com/post/pzjsxece3f)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

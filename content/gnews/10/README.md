@@ -2,21 +2,36 @@
 ---
 
 
-## 新中国联邦和法制基金战友们在乌克兰现场救援的表现证明了中国人和西方人一样，这是共产党无法接受的。
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148883/)
+## 新中国联邦救援战友接受囯际媒体采访
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2148942/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
+波兰当地时间3月10日，在梅迪卡小镇，新中国联邦前线参与救援的战友Nicole和文戈七雄，接受了国外记者的采访。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1234.png)
+Nicole向记者表明了我们新中国联邦与中共的不同，提到新中国联邦和法治基金的此次国际大救援行动被共产党恶意破坏，指出他们黑客我们的救援邮箱，企图破坏我们的声誉。
 
-*发布：陶子*
+文戈七雄战友详细介绍了我们新中国联邦人的各种救助措施，并呼吁采访记者扩散我们的联系方式，让更多的人可以得救。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[#救援前线素材区](https://discord.com/channels/872153398588370944/950448401529577502/951305153695334450)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
+
+编辑：玫瑰圆
+
+总编：飞虹
+
+审核：宁文静
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

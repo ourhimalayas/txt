@@ -2,20 +2,26 @@
 ---
 
 
-## 共产党威胁驻澳乌克兰大使馆
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148873/)
+## 美国总统拜登抓准数字货币3重点，喜币因绝对信用成为稳定创造者
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2148938/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-*发布：陶子*
+3月11日，郭文贵先生于Gettr大直播中透露，美国政府对数字货币的态度有了重大转变，从过去认为所有数字货币皆是非法，到现在支持数字货币合法化，并表示，数字货币时代的到来无法阻挡。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/dcb2dbd304747c853a2b7afcbc80e47a.jpg)图片来源Gettr Himalaya Exchange
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+美国总统拜登准确地抓住数字货币所需的3个重点，即必须有中心化负责、必须在政府监管的同时腾挪出绝对的发展空间和必须解决产出时高耗能的问题。HCoin（喜币）在比特币致命缺点之上做了重点防范和提前的政策设定，每年发行的数额有限制，做到在稳定币（HDO）、法币和浮动币（HCoin）之间的完美平衡，有20%的黄金锚定（天下只此一家），有绝对的中心化责任，而且没有高耗能。
+
+不出意外，HPay（喜支付），HCoin（喜币）成为美国、日本、欧洲等各国最着重调研的支付系统和数字货币之一，尤其是针对HCoin（喜币）的白皮书。最终的结果一定是只有去中心化技术而缺乏中心化负责的数字货币会被这些政府取缔，去中心化技术的前提是必须有中心化责任的管理系统。
+
+至此，数字货币作为主、法币作为辅的金融时代到来。数字货币的时代不是悄悄到来，而是不可逆转地、轰轰烈烈地、摧枯拉朽地来到这个世界，如闪电无法阻挡。
+
+HCoin（喜币）、HDO（喜美元）作为数字货币的规则制定者和开拓者，当可以直接通过HPay（喜支付）购买商品的时刻将是质的改变；当一个主权国家批准HCoin（喜币）和HDO（喜美元）流通的时刻将是质质的改变；当一个主权国家、金融机构入金投资HCoin（喜币）和HDO（喜美元）的时刻将是质质质的改变。
+
+通常，铸币权的更迭伴随着战争与死亡，用丰盈的鲜血来浇灌。HCoin（喜币）不需要战争与鲜血，完全靠信用，做世界的和平使者。因为绝对的信用，成为稳定的创造者。
+
+所以，请握紧HCoin（喜币），准备起飞。
 
  
 

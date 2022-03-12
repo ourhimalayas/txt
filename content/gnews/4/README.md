@@ -2,20 +2,56 @@
 ---
 
 
-## 为什么海外要饭党做不出救援
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148919/)
+## 活着
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2149006/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+作者：香草山香港部—格格樹
 
-*发布：陶子*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-70.png)
+
+
+活着，这是一个人的生存本性。
+
+无论遇到什么挫折和苦难，眼泪擦干后依然都得重新站起来。
+
+也许你会认为是一种盲目乐观的态度，也许你会认为是一种粗糙的人生哲理。
+
+没有什么比活着更容易，也没有什么比活着更难。
+
+时至如今，作为时代变迁中的我们，同样都在现实生活中不断挣扎求存，我们放弃了很多。有些人陷入囚笼，有些人远走他乡，有些人甚至失去生命，只求为下一代换一个安稳的、有尊严的日子。他们有选择的权利活着吗？他们又有活着的权利吗？
+
+我们的生活本不该这样，但他确实就这样发生了。
+
+到处充满着无奈，充满着遗憾，充满着疲惫，充满着谎言，充满着无声愤怒，同时还夹杂着曾经的快乐和希望以及受伤的心灵。这样的内心是何等的煎熬。
+
+活着本没有意义，意义只在于让我们更好地活着。
+
+唏嘘感慨岁月故事的此时，多年后人们如何看待我们的故事？
+
+深处此刻的我们无法去参透，也许应该像春草一般，在寒冷风中顽强地活着，等待春风吹过之时，希望又重生……
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-72.png)
+
+
+
 
  
 

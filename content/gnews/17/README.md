@@ -2,22 +2,31 @@
 ---
 
 
-## 新中国联邦法治基金救援中心获最佳位置 引世人瞩目
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2148719/)
+## 法治基金营地是乌克兰难民的温暖庇护所
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2148889/)
 
-撰稿: 纽约香草山金融部-AT；日本东京方舟农场-Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
-3月9日，梅迪卡难民救援中心场地的负责人，把难民救援中心最好的一块位置划拨给了新中国联邦和法治基金，我们可以在这里搭建一个50平方米的救援帐篷。这是一个大巴上下车的地点，是难民最集中的位置。因为其他车辆无法靠近，前线战友们通过肩扛手抬，把需要的部件一个一个运送过去。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1231.png)
-10日，国际红十字会看到我们搭建的梅迪卡难民救援营地设施优良，齐备，随即决定将这里设为乌克兰难民中转站。越过边境的难民，可以在这里临时休息安顿，然后从这里再被转移到其他安全地区。现在，难民救援中心的每一座帐篷都人满为患。 当天，美联社的摄影师、波兰最大媒体FAKT、波兰电视台、国际红十字会、迪拜电视台等世界媒体对新中国联邦救援小组进行了拍摄采访。新中国联邦、法治基金率先于世界各个国家、机构、组织的人道救援行动，越来越引起世人的关注，新中国联邦人越来越受到国际社会的尊重和认可。
+撰稿：纽约香草山金融部-AT
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
+波兰当地时间3月10日晚9点多，由新中国联邦发起，法治基金赞助的乌克兰救援行动小组，在梅迪卡，设置了最大救援营地，为逃难至此的乌克兰难民安置了一个温馨的庇护所。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1233.png)
+外面气温大约零下5度左右，聚集在新中国联邦营地内的基本都是老人，妇女和儿童。从他们身上看不到逃离战区的狼狈和惶恐，大家很镇定，放松，有的在取暖闲聊，有的在吃饭，或休息，也有乌克兰小朋友高兴地帮助新中国联邦的志愿者发放食物，俨然回到自己的家一样。帐篷内有先进的取暖设备，温暖如春，为难民准备了充足的毯子，水果，矿泉水，热汤，巧克力，饼干，和最好的沙滩椅。
+
+这里虽然离战区很近，气候严寒，但法治基金的帐篷为逃离家园的乌克兰难民，撑起了一片难得的温暖安宁的空间。
 
 新闻连接：
 
-[【乌克兰救援】03/09/22](https://gettr.com/post/pz5m7i4bb0)
+
+
+> 3月9日晚上9点: [#新中国联邦](https://twitter.com/hashtag/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6?src=hash&amp;ref_src=twsrc%5Etfw) 人在救援前线给乌克兰受难民众（老人妇女儿童们）分发食物，他们可以在帐篷里面取暖而避免受冻挨饿。感谢 [#法治基金](https://twitter.com/hashtag/%E6%B3%95%E6%B2%BB%E5%9F%BA%E9%87%91?src=hash&amp;ref_src=twsrc%5Etfw) 的所有捐款者们，你们捐助的每一分钱现在正在为人道主义救援发挥作用。[#Ukrainesos](https://twitter.com/hashtag/Ukrainesos?src=hash&amp;ref_src=twsrc%5Etfw) #乌克兰#UkraineRefugees [#UkraineRescue](https://twitter.com/hashtag/UkraineRescue?src=hash&amp;ref_src=twsrc%5Etfw) [#NFSC](https://twitter.com/hashtag/NFSC?src=hash&amp;ref_src=twsrc%5Etfw) [#ROLFRescue](https://twitter.com/hashtag/ROLFRescue?src=hash&amp;ref_src=twsrc%5Etfw) [#法治社会](https://twitter.com/hashtag/%E6%B3%95%E6%B2%BB%E7%A4%BE%E4%BC%9A?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/W02mBpYP7b](https://t.co/W02mBpYP7b)
+> — 三顾茅厕 (@sangumaoce) [March 10, 2022](https://twitter.com/sangumaoce/status/1501737639338143746?ref_src=twsrc%5Etfw)
+
+
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
 
-编辑/总编/审核:飞虹
+编辑：静言
+
+总编/审核：飞虹
 
 校正/发稿：浪迹天涯
 
@@ -27,7 +36,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-4.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
