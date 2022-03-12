@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 7:17 PM (UTC)`
+
+3月12号：永远相信．正义多于邪恶，好人多过坏人。【乌克兰 小男孩帮战友挂我们的横幅……<br/>让人动容的画面🙏🌹】
+![img](https://media.gettr.com/group48/getter/2022/03/12/19/c4f9939d-2822-946a-7106-dd36e84de713/d7aaac10caa92742985f138f3e1652ce.jpg)
+
+---
+
 `@miles 3/12/2022 3:47 PM (UTC)`
 
 【Ukraine Rescue】03/12/2022 Fellow fighter Nicole introduces the New Federal State of China and the Rule of Law Foundation Ukraine Rescue Operation to the biggest Polish news FAKT, also revealing the Chinese government has been interfering and sabotaging our rescue operation all along<br/><br/>【乌克兰救援】03/12/2022 妮可战友向波兰最大报纸FAKT介绍新中国联邦和法治基金的乌克兰救援行动，并揭露中共政府一直在干扰破坏我们的救援工作<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -149,13 +156,6 @@ Wars for any reason are all crimes<br/>出于任何原因的战争都是犯罪<b
 
 【Ukraine Rescue】03/11/2022 New Federal State of China built the second huge tent in Medyka, Poland to help Ukrainian refugees.<br/><br/>【乌克兰救援】03/11/2022 新中国联邦在波兰梅迪卡建起了第二个巨型帐篷，救援乌克兰难民<br/><br/> 
 ![img](https://media.gettr.com/group21/getter/2022/03/12/02/5eb9aadd-9e00-72c7-a063-df510f12521f/out.jpg)
-
----
-
-`@miles 3/12/2022 2:10 AM (UTC)`
-
-2022.03.11 晚《新中国联邦新闻访谈》 乌克兰救援活动最新进展；粮食价格暴涨，粮食危机在路上，中共国何去何从；分析和驳斥小粉红支持俄罗斯入侵的‘理论基础’；普京认为和谈出现‘积极转变’，释放何种讯号；中共国疫情又起，创武汉以来最高纪录，强制清零何时休。
-![img](https://media.gettr.com/group50/origin/2022/03/12/02/8dc52e23-720e-ae2b-76c0-f34551c30f80/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
