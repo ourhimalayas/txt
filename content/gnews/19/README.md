@@ -2,8 +2,8 @@
 ---
 
 
-## 20220311郭文贵大直播 ：如果感染了病毒就伤了战友与七哥的心
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2149938/)
+## 20220311郭文贵大直播 ：新中国联邦唯真不破
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2149982/)
 
 作者：东京樱花团小视频组
 
