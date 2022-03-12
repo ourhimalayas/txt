@@ -2,40 +2,23 @@
 ---
 
 
-## 中共国吉林省新冠病毒大爆发，大学出现聚集性疫情
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2150582/)
+## 乌克兰副总理喊话华硕：停止与俄商业合作关系！暂未回应
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2150879/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/03/96c9d060-d024-4f3b-9d7f-3856c8acc563.jpg)图片来源：华硕官网
 
-整理/编辑：围剿维尼熊
+俄罗斯侵略乌克兰以来引多国谴责及经济制裁。乌克兰副总理兼数位转型部长费多罗夫10日以公开信的方式向华硕董事长施崇棠呼吁，华硕应停止与俄罗斯的商业合作关系。对此，华硕时至12日傍晚暂时没有回应。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1647081447022.jpg)图片来源：中国新闻网
+简评：对于俄罗斯的制裁，越积极主动了越好，都到这个时候了还没行动，不光是给自己品牌抹黑的问题，还是正义良知的考验！乌克兰副总理都喊话了，还没有得到回应，华硕真够可以的，准备跟俄罗斯一路走到黑吗？
 
+新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022312W0132)
 
-根据大纪元3月12日讯，中共国吉林省疫情近期持续升温，并出现大面积传播。长春市宣布“封城”，吉林市长被免职。
+撰稿/发布：一叶知秋
 
-根据吉林省当局3月11日通报，该省的6个市州和1个省直管县有疫情报告。吉林市、长春市出现社区传播，短时间内筛查发现的感染者数仍将快速增加。
-
-直到3月11日，长春市宣布“封城，通知全市范围内启动三轮全员核酸，全市小区村单位进行封闭式管理。
-
-吉林农业科技学院之前也被爆料，该学校出现了聚集性疫情爆发。后有自称是吉林农业科技学院的学生在社交媒体上爆料，学校一直都在隐瞒疫情爆发事实。
-
-据报导，吉林农业科技学院此次疫情爆发，属于学校刻意隐瞒疫情不报。
-
-3月6日至今，吉林农业科技学院共报告了核酸阳性和无症状感染者超过120人。目前该校党委书记张立峰已被免职。
-
-不过，中共的疫情数据一直受到质疑。中共还封杀民间的不同声音，并抓捕敢于在网上透露实情的人们。
-
-参考链接：[https://www.epochtimes.com/gb/22/3/11/n13639947.htm](https://www.epochtimes.com/gb/22/3/11/n13639947.htm)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

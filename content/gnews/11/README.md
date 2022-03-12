@@ -2,91 +2,24 @@
 ---
 
 
-## 乌克兰不哭
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2150921/)
+## 【 G时新闻 】 欧盟遏制俄罗斯信息战以捍卫乌克兰
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2151273/)
 
-作者：香草山教育部 – 蓝之灵（Hortensia)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-11.png)
-乌克兰的孩子在哭泣
+**播报：加拿大温哥华扬帆农场 – 悠然**
 
-爸爸妈妈在死去
+**视频制作：加拿大温哥华扬帆农场 – 文雅**
 
-曾经快乐家园
+据[以色列时报] 3月8日报道，欧盟当天决定：将暂停在欧盟国家播放俄罗斯国家媒体《卫星》和《今日俄罗斯》等的电视节目，以杜绝该国针对入侵乌克兰而日益猖獗的虚假消息传播。
 
-炮灰纷飞
+对此，欧盟外交政策负责人表示，由于上述俄罗斯媒体是受独裁者普京当局操控的宣传武器，因此禁播令将有效遏制俄政府当前恶意发动的信息战。此外，欧盟将对那些散布虚假战争信息，美化俄军侵略罪行的网络平台，社交帐户和科技媒体公司进行制裁，
 
-一片废墟
+评论指出:在俄乌鏖战的关键时刻，欧盟领导人必须认清：保卫乌克兰免遭俄军的涂炭，即是捍卫欧洲乃至整个世界的和平和自由。欧洲的民主不应被独裁的普京暴政恣意践踏。
 
-我好害怕
+**原文链接：**https://gnews.org/zh-hans/2146477/
 
-恐惧，又恐惧
+**视频链接：**https://gettr.com/post/pzjowj9f2b
 
-乌克兰的女人在哭泣
-
-丈夫和儿子在死去
-![](https://assets.gnews.org/wp-content/uploads/2022/03/trim.331D2257-3A5E-4681-A417-8B0AEC51C9BA_Moment.jpg)
-支离破碎的国土
-
-侵略者到处肆虐
-
-我们好无助
-
-祈求上天相助
-
-乌克兰在哭泣
-
-魔鬼踏上了铁蹄
-
-摧毁美丽建筑
-
-摧毁和平土地
-
-战斗，战斗
-
-反抗侵略者
-
-是神的意志
-
-反抗，反抗
-
-赶跑侵略者
-
-英雄在努力
-
-乌克兰不哭
-
-断壁残垣
-
-记录侵略者罪孽
-
-赶跑侵略者
-
-让审判带来正义公理
-
-乌克兰不哭
-
-眼泪不能重生沃土
-
-英雄们在努力
-
-赶跑侵略者
-
-让希望再次升起
-
-（创作灵感来源）：[https://gettr.com/post/pz0k9ic567](https://gettr.com/post/pz0k9ic567)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-6.jpg)
-
-编辑/校对/发稿：林礼
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**编辑****/****上传：****CTQ**
 
  
 

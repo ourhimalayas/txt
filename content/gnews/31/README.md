@@ -2,35 +2,29 @@
 ---
 
 
-## 韩国确诊病例全国累计首次突破500万，每10人就有一个确诊患者
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2150348/)
+## 2022/03/10 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2150563/)
 
-作者：首尔天池农场—追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
+1. 3月8日，湖南长沙某医院排队挂号和超大人流量的现场画面。为什么中共国病人会越来越年轻化？是什么原因让中共国医院永远不缺生意？
+2. 网络上流传清晨北京某医院开门后，人们疯狂奔跑去往窗口排队挂号的恐怖场景。
+3. 3月9日，广东深圳。号称南山区拥有最多居住人口的南山村因疫情开始封村。中共只管封锁，不管百姓生死的过往行为，让人们非常恐惧，纷纷翻墙逃离封
+4. 在出现疫情的城市，外卖小哥们因担心被封在疫区断了生计，只能自带帐篷和被子，四处流浪席地而睡。
+5. 中共政府不断收紧防疫政策，出行、乘坐公共交通都需要48小时的核酸检测，又人为制造了大量市民排队。这样的政策引发了老百姓之间的互斗。
+6. 为了防止工厂员工压力过大跳楼，上汽集团员工宿舍楼布置的“保护网”。中共国血汗工厂的标准配置！
+7. 3月10日，在上海集训备战的U17国家男子足球队被曝光集体剃寸头。压抑个性，奴化百姓是共产主义的特性。
+8. 3月8日，四川成都。儿子患病白发老人为了生活，每天街头卖菜至凌晨，饿了便在微弱灯光下吃口冷饭
 
 
-![](https://image.ajunews.com/content/image/2022/03/09/20220309204243482604.jpg)（韩联社）
+* * *
 
-3月9日韩国媒体报道， 韩国中央防疫对策本部通报，截至当日零时，单日新增中共病毒确诊病例34万2446例，创历史新高。全国累计病例达到521万2118例，首次突破500万大关，其中每10个韩国人中就有一个确诊患者。 与此同时，重症病例当天增加80例，死亡人数增加158人，全国新增居家治疗患者29万人，累计达121万人。 韩国5126万人口中，完成第三剂疫苗接种的人数已占总人口的 62%。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-参考链接：
-
-[https://news.kbs.co.kr/news/view.do?ncd=5411925](https://news.kbs.co.kr/news/view.do?ncd=5411925)
-
-编辑/校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-33.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

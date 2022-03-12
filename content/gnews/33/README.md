@@ -2,60 +2,26 @@
 ---
 
 
-## 03/12每日播报｜社媒消息:班农战斗室 罗伯特马龙博士
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2150264/)
+## 乌克兰救援前线图片集（三）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2150437/)
 
-**[BY:秘翻新闻](秘翻新闻)**
+**整理：**雅典娜情报组（禄森、翼族）
+**编辑：**翼族
+![](https://assets.gnews.org/wp-content/uploads/2022/03/photo_2022-03-10_00-42-04.jpg)
+本次法治基金和新中国联邦发起的乌克兰救援活动，虽然准备时间很短，但在全球各地战友的通力合作下，各方面的工作都取得了成功。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/photo_2022-03-09_19-06-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/photo_2022-03-11_16-37-28.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/photo_2022-03-11_16-39-50.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/photo_2022-03-12_21-39-19.jpg)
+据郭文贵先生称，原凤凰卫视的创始人给他发信息说，“我看到你们在前线做的事情，凤凰现在做不到”，这是对新中国联邦战友工作的高度评价。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片17.jpg)
+由于现场没有网络，因此前线战友们使用了最新的卫星网络Starlink，通过实测，无线路由器速度大约20MB/s，通过网线可以达到200MB/s以上。
 
-***[2022-03-12](https://gettr.com/post/pzlj9n4c0c)***
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-133.jpg)
-**一、**[**班农战斗室3月12日在盖特发文：**](https://gettr.com/post/pzh46a6ff9)
+*发布：翼族*
 
-前贝莱德公司的投资经理爱德华·唐德说：“X世代和千禧世代、即20至60岁年龄段的人正在开始加速死亡，这与新冠疫苗的推出和强制政策的执行时间相吻合。因此可以说，政府正在通过疫苗强制令屠杀人民。“
-
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-82.jpg)
-**二、[罗伯特马龙博士3月11日在盖特发文：](https://gettr.com/post/pzgmzda1fd)**
-
-**在最近的一次采访中，我谈到了如下几点：**2021年，美国和澳大利亚等国家，为什么在有其他更传统的疫苗可以使用的情况下，只提供基因治疗疫苗；世界经济论坛参与了政府的疫苗决策；安东尼福奇，美国国家过敏和传染病研究所以及经济利益冲突；新冠病毒的起源，以及在病毒中发现的福林裂解位点和一个超级抗原序列；《细胞》2022年1月发表的一篇来自斯坦福大学的最新论文显示，新冠疫苗的mRNA在人体淋巴结中至少可以存在60天；为什么没有做有关遗传毒性和生殖毒性的报告；接种疫苗后出现的艾滋病和癌症；群体性精神病；新冠奥米炕变种的起源。
-
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-66.jpg)
-**三、**[**美国作家内奥米·沃尔夫 (Naomi Wolf) 3月12日在盖特发文：**](https://gettr.com/post/pzhx7sc9f2)
-
-我让我们的团队发布了一份辉瑞公司的内部文件。文件显示，在MRNA疫苗试验中，小鼠和大鼠体内被注入了脂质纳米颗粒。可以证实，让生物科技行业为之兴奋的微小硬脂肪材料外壳—脂质纳米颗粒在数小时内离开肌肉，进入血液并进入肝脏。脂质纳米颗粒也会通过尿液和粪便排出体外。这可能就是为什么当我问到包含脂质纳米颗粒的分泌物会对废水、水道和农业产生什么影响时，推特将我驱逐出平台。美国疾控中心、食品药品监管局和美国医学会保证疫苗原材料会停留在二头肌中，这一直都是一个致命的谎言，他们都知道这一点。
-
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-40.jpg)
-**四、[大纪元3月11日在盖特发文：](https://gettr.com/post/pzgogy2197)**
-
-**乌克兰军官说，大约有100名美国公民已获准加入与俄罗斯作战的乌克兰军队。在乌克兰总统泽连斯基寻求帮助后，约2万名外国人获得批准参与对俄作战。**
-
-** **【推文转报道，这些美国人包括参加过伊拉克和阿富汗战争的退伍军人和直升机飞行员。乌克兰军官克博里斯·克雷姆涅茨基（Borys Kremenetskyi）表示，这些志愿者不是来赚钱的雇佣兵，而是来帮助乌克兰争取自由的热心人士。他们认为这场战争是不公平的、没有理由的，因此觉得必须提供帮助。】
-
-**秘翻新闻 Stephanie 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-24.jpg)
-**五、**[**五月花农场商业部3月11日在盖特发文：**](https://gettr.com/post/pzc9yq6ba9)
-
-**高盛和摩根大通关闭在俄业务。 **
-
-【盖文转《路透社》报道，高盛集团和摩根大通本周四宣布将关闭在俄业务。他们是首批在俄罗斯入侵乌克兰后关闭在俄业务的美国银行。高盛对俄罗斯的信贷风险敞口为6.5亿美元，该公司表示正在关闭在俄业务，此举可能会增加竞争对手跟进的压力。据一位熟悉情况的消息人士称，高盛认为任何损失都是 “无关紧要的”。仅仅几个小时后，摩根大通也表示正在“积极关闭在俄业务”，并且不在那里开展任何新业务。】
-
-**秘翻新闻 巴拉克 编译报道**
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-54.png)
-**六、**[**Disclose.tv 3月12日在盖特发文：**](https://gettr.com/post/pzhjxo87c9)
-
-YouTube 在全球范围内屏蔽所有获得俄罗斯官方资助的媒体频道。俄罗斯将从下周一开始禁止 Instagram。
-
-**秘翻新闻 Stephanie 编译报道**
-
-发布：陸柒陸捌
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

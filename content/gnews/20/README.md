@@ -2,27 +2,40 @@
 ---
 
 
-## 俄军距基辅仅约25公里
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2150699/)
+## 美情报总监称乌克兰没有发展生化武器
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2151071/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：纽约磐石农场—在远方
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Russia-Ukraine-War.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
 
-图片来源：美联社
 
-莫斯科的军队显然正准备对乌克兰首都发动重大袭击，而且越来越近了。专家们已经对“消耗战”发出警告。与此同时，马里乌波尔的情况正在恶化。
+```
+台媒报道，美国国家情报总监海恩斯3月10日表示，乌克兰生物实验室不生产武器，也不进行危险研究，重重打脸俄罗斯一贯虚假信息战手法。
 
-俄军显然加强了向乌克兰首都基辅方向的攻击。从晚上到周六，至少触发了三个飞行警报。据美国有线电视新闻网报道，周六早上，从远处可以听到该市的“几分钟”炮击声。
+ 据悉，俄罗斯外交部发言人9日指控，已经在乌克兰找到所谓“确切证据”，并称乌克兰卫生机构于2月24日下令摧毁瘟疫、霍乱、炭疽等病毒样本，并要求美国出面解释。对此，在美国参议院特别委员会10日召开的听证会上，情报总监海恩斯表示，乌克兰有十几个生物实验室，用于对应生物防御和公共卫生。美国在生物安全背景下，向乌克兰以及其他许多国家提供援助，这些实验室都没有任何武器开发。
+海恩斯称经过美国情报机构评估，乌克兰并没有寻求研发生物武器与核武器的计划。而俄罗斯污蔑乌克兰寻求使用核、生、化武器，是其一贯的虚假宣传做法，并善于编造嫁祸于人的借口，是俄方“假旗行动”的新动向。
+```
 
-根据乌克兰总参谋部周六晚上在 Facebook 上发布的一份报告，俄罗斯目前正在北部城市边界附近的萨西米亚和南部的维申基附近进行进攻。这些攻势在某些领域取得了部分成功。
 
-据伦敦智库查塔姆研究所的一名军事研究人员称，俄罗斯对基辅的大规模袭击因此只是几小时或几天的事情。马蒂厄·布勒格说，在乌克兰首都前面长达 60 多公里的纵队中被困数日的俄罗斯军队现在已经重新集结。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-188.jpeg)
 
-🔗 [https://www.welt.de/politik/ausland/article237490273/Krieg-in-der-Ukraine-Russische-Armee-nur-noch-etwa-25-Kilometer-von-Kiew-entfernt.html](https://www.welt.de/politik/ausland/article237490273/Krieg-in-der-Ukraine-Russische-Armee-nur-noch-etwa-25-Kilometer-von-Kiew-entfernt.html)
+编辑/校对/发稿：文敬
 
-编辑发表： Shuizhuyu
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-189.jpeg)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
+
+
+
 
  
 
