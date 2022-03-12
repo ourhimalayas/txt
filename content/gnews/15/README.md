@@ -2,35 +2,29 @@
 ---
 
 
-## IMF批准向乌克兰提供14亿美元紧急融资
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2149614/)
+## 大直播后记：中国男人可以有很好的形象
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2149753/)
 
-作者：纽约香草山 Naughty(文行) / 日本东京方舟农场–Kevin wang ）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月10日，国际货币基金 IMF表示， 将向乌克兰提供14亿美元的紧急融资，以应对乌境内出现的“大规模人道主义和经济危机”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-12-上午2.18.54.png)
-根据IMF的快速融资工具支付的这一笔资金，相当于乌克兰在IMF约50％的份额。预计将有助于短期内满足紧急支出需求，帮助促进其他合作伙伴的融资，同时在条件允许的情况下，设计一个专注于复原和成长的适当经济计划。
+整理；HYS、大甜甜
+编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-12.png)
+我一看到我们的Eric，听到他声音我就开心。我觉得中国的男人都拥有Eric这样的內在的这种智慧，这个外表和内在的这种不和谐的勇敢，还有这种幽默。中国男人就有救了啊，就是舒服。
 
-IMF总裁乔治·艾娃指出，俄罗斯对乌克兰的军事入侵，已经造成了非常严重的后果。在13天内有超过200万人逃离，该国的关键基础设施也遭到大规模破坏。预计今年的乌克兰经济将陷入严重衰退。她补充说，该项援助计划提供了关键的财政支持，并促进资金大规模动员以减轻战争的经济冲击。 据悉， IMF去年12月已拨付7亿美元给乌克兰，去年8月也提供“特别提款权”SDR共27亿美元。此外，世界银行执行董事会本月7日也以通过了对乌克兰的7.23亿美元贷款与拨款。
+中国男人走哪儿都让人不舒服，耷拉着肩，然后不相称的牛仔裤。中国男人穿牛仔裤，我觉着就跟病人跟穿装尸袋没啥两样，我觉得。特别是有人穿的不协调的时候，再穿个所谓的老头鞋，这个所谓的舒服的鞋，耷拉着肩，然后眼睛看人，总看人家的这个膝盖。就中国男人已经不是东亚病夫了，就东亚懦夫，你就无法形容。
 
-参考链接：
-1.[IMF board to consider $1.4 bln in funding for Ukraine on Wednesday – Georgieva](https://www.reuters.com/markets/europe/imf-board-consider-14-bln-funding-ukraine-wednesday-georgieva-2022-03-09/)
-2.[IMF批准14億美元助烏克蘭 英國加拿大也增軍援](https://www.cna.com.tw/news/aopl/202203100132.aspx)
+但是在Eric这里全都没有。 幽默、诙谐、智慧、包容，总能是给你带来无穷无尽的那种遐想。而且这真的是幽默，一点儿也不下三滥。不像那些欺民贼似的，一说就全完蛋了。还有智慧、还有专业、还有特别是中国男人没有的，对世界的认知。今天特别荣幸我们跟Eric再一次主持，由这个秘翻组包场的大直播。今天澄道，跟晓理都是第二次、第三次了，但是封神榜第一次，小伙子，很紧张，不要紧张。但是晓理，我已经领教了，化千斤于无影之中。今天我需要我们的直播，能给战友们带来前线更多的信息。刚才看了我们前线连线，我希望现在我们还继续连线，先说一下，我们人道救援行动的整个情况。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
+资料来源：[2022年3月11日文贵大直播](https://www.gettr.com/streaming/pzg47d4994)
 
-总编：宁文静
-编辑：宁文静
-审核：雪梨
-校正/发稿：呼吸的雾霾（文小呼吸）
+发布：tianzhihuan
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

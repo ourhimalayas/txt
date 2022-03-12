@@ -2,27 +2,39 @@
 ---
 
 
-## 美国总统拜登抓准数字货币3重点，喜币因绝对信用成为稳定创造者
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2148938/)
+## 一个乌克兰家庭的故事
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2149333/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+作者：纽约香草山福音部 – qiutian（邱甜）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+周日，由于遭遇俄罗斯迫击炮，有四个人躺在基辅郊区 Irpin 的一个十字路口附近。
 
-3月11日，郭文贵先生于Gettr大直播中透露，美国政府对数字货币的态度有了重大转变，从过去认为所有数字货币皆是非法，到现在支持数字货币合法化，并表示，数字货币时代的到来无法阻挡。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/dcb2dbd304747c853a2b7afcbc80e47a.jpg)图片来源Gettr Himalaya Exchange
+![](https://assets.gnews.org/wp-content/uploads/2022/03/捕获-5.png)
+
+当迫击炮弹落下时，一队时报记者恰好在附近，其中一位名叫 Lynsey Addario 的记者拍下了这家人的照片。 “我想，你知道，拍照是不尊重的，但我必须拍照——这是战争罪，”林西告诉哥伦比亚广播公司晚间新闻。 “我认为让世界各地的人们看到这些图像真的很重要。”
+
+在袭击发生后的几天里，我的同事写下了四名受害者的名字：Tetiana Perebyinis 和她的两个孩子，18 岁的 Mykyta 和 9 岁的 Alisa，以及 26 岁的 Anatoly Berezhnyi教会志愿者。
+
+Tetiana Perebyinis 是一名会计师，她的丈夫 Serhiy 是一名计算机程序员。几周前，在基辅局势恶化之前，Tetiana 的公司在波兰租用了房间，并鼓励员工使用这些房间。但 Tetiana 不想离开，直到她计划撤离患有阿尔茨海默病的母亲。最后，周日早上 7 点左右，Tetiana和她的孩子们开始了他们的旅程，而Serhiy则被困在乌克兰东部，照顾生病的母亲。
+
+Serhiy将他的妻子和孩子们安葬在乌克兰西部后，自己又回到了伊尔平帮助其他人撤离。
+
+参考链接：
+
+- [Russia’s civilian attacks](https://www.nytimes.com/2022/03/10/briefing/russia-civilian-attacks-ukraine-war.html)
 
 
-美国总统拜登准确地抓住数字货币所需的3个重点，即必须有中心化负责、必须在政府监管的同时腾挪出绝对的发展空间和必须解决产出时高耗能的问题。HCoin（喜币）在比特币致命缺点之上做了重点防范和提前的政策设定，每年发行的数额有限制，做到在稳定币（HDO）、法币和浮动币（HCoin）之间的完美平衡，有20%的黄金锚定（天下只此一家），有绝对的中心化责任，而且没有高耗能。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-不出意外，HPay（喜支付），HCoin（喜币）成为美国、日本、欧洲等各国最着重调研的支付系统和数字货币之一，尤其是针对HCoin（喜币）的白皮书。最终的结果一定是只有去中心化技术而缺乏中心化负责的数字货币会被这些政府取缔，去中心化技术的前提是必须有中心化责任的管理系统。
+编辑/校正/发稿：海阔天空1
 
-至此，数字货币作为主、法币作为辅的金融时代到来。数字货币的时代不是悄悄到来，而是不可逆转地、轰轰烈烈地、摧枯拉朽地来到这个世界，如闪电无法阻挡。
-
-HCoin（喜币）、HDO（喜美元）作为数字货币的规则制定者和开拓者，当可以直接通过HPay（喜支付）购买商品的时刻将是质的改变；当一个主权国家批准HCoin（喜币）和HDO（喜美元）流通的时刻将是质质的改变；当一个主权国家、金融机构入金投资HCoin（喜币）和HDO（喜美元）的时刻将是质质质的改变。
-
-通常，铸币权的更迭伴随着战争与死亡，用丰盈的鲜血来浇灌。HCoin（喜币）不需要战争与鲜血，完全靠信用，做世界的和平使者。因为绝对的信用，成为稳定的创造者。
-
-所以，请握紧HCoin（喜币），准备起飞。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

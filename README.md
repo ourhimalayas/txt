@@ -15,122 +15,122 @@
 
 ---
 
-### [俄罗斯将利用平民的伤亡和对城市的破坏迫使泽伦斯基投降](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新文件披露辉瑞蓄意隐瞒至少158,000起不良事件](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [勇气与救援-正道主义将成为新人类典范](/content/gnews/3/README.md)
- ` 历史组`
-
-### [全球媒体将报道新中国联邦和法治基金的救援服务](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共病毒造成的死亡可能是所记录的三倍多](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [俄乌战争使全球最大资产管理公司贝莱德亏损170亿美元](/content/gnews/6/README.md)
- ` 日本東京方舟農場`
-
-### [俄罗斯与中共联手打出“生化武器实验室”这张王牌](/content/gnews/7/README.md)
- ` 澳喜农场`
-
-### [截至3.12 俄乌战事汇总（1）](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [英国对俄罗斯386议员实施制裁](/content/gnews/9/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [辉瑞股价大幅下跌透露什么信号](/content/gnews/10/README.md)
- ` 澳喜农场`
-
-### [中共恶劣的假撤侨](/content/gnews/11/README.md)
- ` 历史组`
-
-### [视频|新中国联邦人珍惜美好环境 展现正面形象](/content/gnews/12/README.md)
- ` MOSVIDEO`
-
-### [樱花时政┃中共国与俄罗斯联手绕开制裁，俄石油销售从未停止](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [03/11/22 波兰当地一位汽车租赁公司老板得知很多新中国联邦和法治基金的义工来自加拿大和美国后，受到感召加入救援队伍](/content/gnews/14/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [IMF批准向乌克兰提供14亿美元紧急融资](/content/gnews/15/README.md)
- ` NFSC News`
-
-### [外媒再度披露俄军在乌克兰前线暴行](/content/gnews/16/README.md)
- ` NFSC News`
-
-### [《锁链梦》创作幕后的故事](/content/gnews/17/README.md)
- ` NFSC News`
-
-### [安倍在马来西亚演讲称：俄罗斯对乌克兰的入侵 &#8220;不仅限于欧洲&#8221;](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [视频|乌克兰将成为欧洲的大中心](/content/gnews/19/README.md)
- ` MOSVIDEO`
-
-### [视频|郭文贵先生警示世界 中共或在四月搅动中东局势](/content/gnews/20/README.md)
- ` MOSVIDEO`
-
-### [03/09/22 新中国联邦和法治基金救援行动志愿者采访在乌波边境梅迪卡救助站为难民演奏的德国钢琴家](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新中國聯邦人用行動告訴世界“中共不等於中國人”](/content/gnews/22/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [中日财经爆|俄罗斯入侵乌克兰 将导致全球粮价再涨22%](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中日财经爆|美元兑日圆创五年来新高 报117.32日圆](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [03/11/22 新中国联邦义工和无疆界医生组织合作设立救援通道，迎来了新的一批乌克兰难民](/content/gnews/25/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [法治基金救援昭示“中共不等于中国人”](/content/gnews/26/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [大直播后记：通过行动打痛中共](/content/gnews/27/README.md)
- ` 雅典娜GNotes`
-
-### [传奇赛车手塞纳的灵魂赛车通过H-Pay的完美交易](/content/gnews/28/README.md)
- ` 纽约香草山MOS02`
-
-### [中日财经爆|美国宣布将取消俄罗斯贸易最惠国待遇](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [如何将俄罗斯踢出WTO, IMF, World Bank](/content/gnews/30/README.md)
- ` GTV News Talk`
-
-### [乌克兰准备将敏感数据转移到另一个国家](/content/gnews/31/README.md)
- ` GTV News Talk`
-
-### [一个乌克兰家庭的故事](/content/gnews/32/README.md)
- ` GTV News Talk`
-
-### [国际社会担心普京可能会使用化学武器](/content/gnews/33/README.md)
- ` GTV News Talk`
-
-### [美国总统拜登抓准数字货币3重点，喜币因绝对信用成为稳定创造者](/content/gnews/34/README.md)
- ` YALUN 亚伦`
-
-### [波兰汽车租赁公司老板被志愿者感召加入救援队伍](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
-
-### [Nicole 采访阿丙连线飞飞](/content/gnews/36/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在44.466 HDO](/content/gnews/1/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [滴滴出行暂停香港上市计划，股价爆跌，投资者损失惨重](/content/gnews/37/README.md)
- ` 纽约香草山MOS01`
+### [20220311郭文贵大直播 ：中国人爱的国是中南坑盗国贼家族的国](/content/gnews/2/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [中共病毒疫情蔓延整个亚洲 死亡人数突破100万](/content/gnews/38/README.md)
+### [樱花时政┃俄入侵致450万乌克兰人逃离，纳尔瓦尼呼吁俄罗斯人举行反战抗议](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登总统：不会在乌克兰与俄罗斯开战,防止第三次世界大战](/content/gnews/39/README.md)
- ` 美国政要直译推`
+### [20220311郭文贵大直播 ：喜币的稳定性和固定的发行数字、易用的支付系统，天下无敌](/content/gnews/4/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [中共国居民可购买试剂自测新冠病毒透露什么信号](/content/gnews/5/README.md)
+ ` 澳喜农场`
+
+### [基辅妇产医院出于对俄罗斯袭击的担心，在地下室接生婴儿](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [樱花时政┃金正恩下令扩建洲际弹道导弹发射场](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [民调显示大多美国人认为中共是美国的头号经济和安全威胁](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中日财经爆┃德意志银行宣布将退出俄罗斯业务](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [是谁改变了伊维菌素功效的科学结论？](/content/gnews/10/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [日本政府计划于今夏开始接种第四剂疫苗… &#8220;我们已对需求量有所预期&#8221;](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [樱花时政┃日本为乌克兰提供1亿美元人道主义援助](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [乌克兰人道主义救援波兰基地“新中国联邦咖啡”的意义之我见](/content/gnews/13/README.md)
+ ` 澳喜农场`
+
+### [有声｜伦敦证券交易所暂停在俄罗斯所有服务](/content/gnews/14/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [大直播后记：中国男人可以有很好的形象](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [俄罗斯将利用平民的伤亡和对城市的破坏迫使泽伦斯基投降](/content/gnews/16/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [新文件披露辉瑞蓄意隐瞒至少158,000起不良事件](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [勇气与救援-正道主义将成为新人类典范](/content/gnews/18/README.md)
+ ` 历史组`
+
+### [全球媒体将报道新中国联邦和法治基金的救援服务](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [截至3.12 俄乌战事汇总（1）](/content/gnews/20/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [英国对俄罗斯386议员实施制裁](/content/gnews/21/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [樱花时政┃中共国与俄罗斯联手绕开制裁，俄石油销售从未停止](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [03/11/22 波兰当地一位汽车租赁公司老板得知很多新中国联邦和法治基金的义工来自加拿大和美国后，受到感召加入救援队伍](/content/gnews/23/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [安倍在马来西亚演讲称：俄罗斯对乌克兰的入侵 &#8220;不仅限于欧洲&#8221;](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [03/09/22 新中国联邦和法治基金救援行动志愿者采访在乌波边境梅迪卡救助站为难民演奏的德国钢琴家](/content/gnews/25/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [新中國聯邦人用行動告訴世界“中共不等於中國人”](/content/gnews/26/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [中日财经爆|俄罗斯入侵乌克兰 将导致全球粮价再涨22%](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中日财经爆|美元兑日圆创五年来新高 报117.32日圆](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [03/11/22 新中国联邦义工和无疆界医生组织合作设立救援通道，迎来了新的一批乌克兰难民](/content/gnews/29/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [法治基金救援昭示“中共不等于中国人”](/content/gnews/30/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [大直播后记：通过行动打痛中共](/content/gnews/31/README.md)
+ ` 雅典娜GNotes`
+
+### [中日财经爆|美国宣布将取消俄罗斯贸易最惠国待遇](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [乌克兰准备将敏感数据转移到另一个国家](/content/gnews/33/README.md)
+ ` GTV News Talk`
+
+### [一个乌克兰家庭的故事](/content/gnews/34/README.md)
+ ` GTV News Talk`
+
+### [国际社会担心普京可能会使用化学武器](/content/gnews/35/README.md)
+ ` GTV News Talk`
+
+### [美国总统拜登抓准数字货币3重点，喜币因绝对信用成为稳定创造者](/content/gnews/36/README.md)
+ ` YALUN 亚伦`
+
+### [波兰汽车租赁公司老板被志愿者感召加入救援队伍](/content/gnews/37/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [Nicole 采访阿丙连线飞飞](/content/gnews/38/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [滴滴出行暂停香港上市计划，股价爆跌，投资者损失惨重](/content/gnews/39/README.md)
+ ` 纽约香草山MOS01`
 
 ### [日本对经济困难的留学生发放10万元补助](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

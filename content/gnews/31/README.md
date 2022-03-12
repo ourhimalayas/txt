@@ -2,39 +2,36 @@
 ---
 
 
-## 乌克兰准备将敏感数据转移到另一个国家
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2149334/)
+## 大直播后记：通过行动打痛中共
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2149412/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3 月 9 日（路透社）- 一名高级网络安全官员周三告诉路透社，如果俄罗斯入侵部队深入该国，乌克兰政府将准备将其数据和服务器转移到国外。
+整理：HYS、sadhu
+编辑：Mohegayer K. Simon
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-70.png)
-
-乌克兰国家特别通信和信息保护局副局长维克多-佐拉表示，如果俄罗斯拥有乌克兰政府数据库和情报文件，战局将会对乌克兰更为不利。佐拉表示他的部门正在为这种紧急情况进行规划，为应对任何俄罗斯夺取敏感政府文件的威胁做好准备。
-
-从2月24日俄罗斯入侵乌克兰后，政府官员已经将设备和备份运送到俄罗斯军队无法到达的乌克兰更安全的地区。
-佐拉称，这一举措只有在乌克兰立法者批准监管变更后才会发生。
-
-佐拉表示，目前乌克兰已经收到了来自不同国家的数据托管提议，但他拒绝透露是哪些国家。他说，由于距离较近的原因，欧洲国家将会是首选。
-
-参考链接：
-
-- [Exclusive: Ukraine prepares potential move of sensitive data to another country – official](https://www.reuters.com/world/europe/exclusive-ukraine-prepares-potential-move-sensitive-data-another-country-2022-03-09/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-16.png)图片来源：墨尔本雅典娜农场设计组
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+文贵先生：大家看到下面这个画面，不是我们在看，是全世界都在看。这真的是中国人过去几千年来唯一的一次，全面的、直播的展示给外国人，中国人和全世界平等的参与一个国际人道救援行动，而且我们第一次救的是白人。乌克兰是白人中的优秀的白人。乌克兰人、波兰人过去对中国都是很友好的，但是这次是受害者。而我们代表着中国人，带着相反的一面的时候，这种化学的力量是很大的。你们真的要看到我们在前线的战友们的伟大，文科、文戈7雄、阿炳、文耀、大卫、老马、索马、小妹、小李、明道，你看这个直播，头两天根本不行。刚才明道你看到现场，都上去了。你看在现场的直播的效果，这是战争，就是战场啊，Eric。共产党能做到吗？他做不到，做到你得花多少钱？得申请几亿美元几十亿美元吧。又是一场贪污的大戏。兄弟姐妹们，你们真的是像中国外交部发言人说的，你们活在中国，你偷着乐吧。现在我要告诉你们，你们加入新中国联邦，你偷着乐吧，世界一切都变了。其中新中国联邦是主角, 绝不是配角，你会看到更多意想不到的事情发生，谢谢。
 
-编辑：雪梨
-校正/发稿：海阔天空1
+澄道：好的，我看到这两天的直播，其中有一件事，我就特别有感触，就是红十字会。他已经拿我们这个新中国联邦的前线的大本营，当成一个中转站了，而且大家都知道红十字会就是应该在战争期间，救助这些难民的。可是我们新中国联邦做到了，而且还得到了他的尊重和认可。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我就想问一下七哥，我们整个的这场活动，现在已经是毋庸置疑的，在世界上已经竖起了华人的新形象。我真的为此而感到骄傲和自豪，但是这中间有一个过程，就是我们如何能够，让我们的心里能承受未来这个新形象，在中国人当中和世界当中能够得到更深的落实。谢谢七哥。
+
+文贵先生：我觉得秘翻组，在用你们的特长，向全世界传播新中国联邦的追求、信仰、目标。在前线的战场上，战友同样的用自己的冒险和辛苦，在拯救更多的乌克兰人，这所有的目的就是传播新中国联邦的未来的形象。这是最好的一个行动方式。我觉得澄道，你要想的另外一个事情就是，为什么这个时候共产党在全世界打出所有的拳，而我们新中国联邦却把共产党打入到世界的塔西佗陷阱。没人来相信他，现在是国际政治、国际立场和人道，进入了一个塔西佗陷阱的效应。最可笑的事情，它是联合国里边所谓人道救援组织、人权组织的最大的资金赞助者。红十字会最大的资金来源中国排在第2位，美国排第1位，现在却是我们在救红十字会。
+
+共产党自从威胁乌克兰卸下网站，这就说明我们对共产党的打击是非常之大。它越痛，说明我们干的越好。那么接下来我们最好的方式，就是大家认真的用你们手中现在的特长，像秘密翻译组用你们的能力广泛的、认真的、准确的传播新中国联邦在前线救援的信息，和全世界反对这场非正义战争的准确的信息，让更多的中国人和全世界人民看清楚这场战争的本质。这就是我想说的新中国联邦即将走向世界成为主角，谁也挡不住。谢谢！
+
+资料来源：[2022年3月11日文贵大直播](https://www.gettr.com/streaming/pzg47d4994)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
