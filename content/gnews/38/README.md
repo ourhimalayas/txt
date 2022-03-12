@@ -2,11 +2,22 @@
 ---
 
 
-## 中共散布美国实验室拥有和使用生化武器的虚假信息
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2150456/)
+## 乌克兰救援前线视频（二）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2151160/)
 
-03/10//2022 中共外交部发言人赵立坚：我们呼吁有关各方，从乌克兰和周边地区乃至全世界人民的健康和安全出发，确保相关实验室的安全。我们也再次敦促美国切实履行国际义务，对其境内外生物军事活动作出全面澄清，并接受多边核查，同时尽快完成其库存化学武器的销毁工作。
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**视频制作：**蛮吉
+**封面设计：**Rosie Lee
+**封底设计：**Rosie Lee
+**监制：**精靈藍
+**编辑/发布：**翼族
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

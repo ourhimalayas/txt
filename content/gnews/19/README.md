@@ -2,35 +2,16 @@
 ---
 
 
-## 有声|全球最大黑客组织「匿名者」：瘫痪俄网站
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2152028/)
+## 意大利外交部长说：“泽连斯基是世界英雄”
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2152080/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据外媒报导，全球最大黑客组织“匿名者”（Anonymous）曾在上月24日发文号召全球黑客攻击俄罗斯媒体网站、政府官网、银行以及企业等网站。如今，据称，「匿名者」旗下的黑客团队「NB65」，已经成功瘫痪俄罗斯航天（Roscosmos）控制中心，致使俄罗斯目前无法与自己发射的间谍卫星取得联系。NB65还表示：“直到俄罗斯停止投掷炸弹、杀害平民和试图入侵的那刻前，我们将不会停手。”
+#### 翻译                   意大利达芬奇农场                      小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-12-alle-15.23.30.png)图片来源：imolaoggi.it
+意大利外交部长迪马约对《晚邮报》记者说：“ 泽连斯基？他是一位世界英雄，值得意大利议会倾听他的讲话，虽然他要对我们说的话我们还不能去做。意大利向普京要求什么？他应该表现出他真的想做他正在说的。我同意德拉吉德看法， 到目前为止， 普京没有真正地表现出想要和平。乌克兰中立、去纳粹化、顿巴斯和克里米亚领土问题是一个借口， 还是谈判的基础？普京必须证明这一点。如果我害怕更剧烈的升级？为了避免这种情况， 我们必须严重削弱普京。欢迎第四套制裁措施和所有削弱俄罗斯经济的举措。我反对那些说制裁无效， 制裁的影响是巨大的。”
 
-战争爆发以来，“匿名者”向俄罗斯政府、官媒等官方机构发起网络攻势，表达了对俄罗斯侵略乌克兰行为的不满。而美国CNBC网站也表示，“匿名者”所提及的俄罗斯官方网站中，很多确实处于瘫痪状态，或者最近一度瘫痪。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/202108031405-main.jpg)
+原文链接： [https://www.imolaoggi.it/2022/03/12/ucraina-di-maio-zelensky-eroe-mondiale/](https://www.imolaoggi.it/2022/03/12/ucraina-di-maio-zelensky-eroe-mondiale/)
 
-
-文字版原文：[全球最大黑客组织「匿名者」：瘫痪俄网站](https://gnews.org/zh-hans/2141198/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑、上传： Xiao   baige
 
  
 

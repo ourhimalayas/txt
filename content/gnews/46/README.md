@@ -2,35 +2,24 @@
 ---
 
 
-## 豪华帐篷迎来第一批“住客”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2148356/)
+## 中日财经爆|美国宣布将取消俄罗斯贸易最惠国待遇
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2149376/)
 
-作者：纽约香草山农场-文真，静言
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-到了当地时间3月11日晚间，新中国联邦和法治基金的这顶新帐篷迎来了第一批逃难的老幼妇孺。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-76.png)[图片来源](https://www.hongruimy.com/a/34751)
+美国总统拜登于星期五（3月11日）宣布，由于俄罗斯入侵乌克兰，美国、欧盟和七国集团（G7）将暂停与俄罗斯的正常贸易关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-2.jpeg)
+撤销俄罗斯的“最惠国”贸易地位，意味着美国及其盟国能够启动对许多俄罗斯商品征收关税的程序，从而进一步削弱俄罗斯经济。对此，国际货币基金组织预测，俄罗斯经济今年将陷入“深度衰退”。美国官员也表示，各国都必须按照各自国内的程序来改变俄罗斯的贸易地位。
 
-早先，明道战友已经和红十字国际委员会对接了在新帐篷中接待妇女和儿童难民的工作。而对于此时第一批住进的难民家庭，前线战友们则细心地送上了点心与热水。同时，当地的义工也多番与他们交谈，平息他们先前一路辗转的焦虑内心。
+拜登在白宫宣布这一消息时说：“这将使俄罗斯更难与美国做生意，而且这是与其他国家的统一行动。这些国家加起来占全球经济总量的一半。这将是对俄罗斯经济的又一次毁灭性打击。他们的经济已经受到我们制裁的严重影响”。
 
-另一方面，当明道战友告诉红十字国际委员会的工作人员，这是新中国联邦和法治基金救助团队第一次在战区做营救工作时，他们难以置信地称赞，这个团队的救助工作竟然做的如此出色。此外，这些工作人员也赞扬了法治基金慷慨提供的优良设备。
+美国及其盟国此前已经针对俄罗斯实施了一系列前所未有的制裁以及出口和银行限制，以此施压俄罗斯总统普京结束对乌克兰的战争。这是二战以来欧洲发生的最大战争。
 
-参考链接：[NFSC Morning News 03/12/2022](https://gettr.com/streaming/pzmmvs3e2d)
+消息来源:[拜登宣布将取消俄罗斯贸易最惠国待遇](https://www.voachinese.com/a/biden-calls-for-suspension-of-normal-trade-ties-with-russia-20220311/6481151.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
-
-总编：Irene木木
-编辑：谐趣园
-审核：Irene木木
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/逢⑦必变
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
