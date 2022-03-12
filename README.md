@@ -87,41 +87,41 @@
 ### [俄罗斯威胁要攻击北约运往乌克兰的武器](/content/gnews/24/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [MV版Hcoin To the Moon上线93天第31次位列匈牙利iTunes热门MV榜首](/content/gnews/25/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [有声|台湾各界捐款乌克兰总额接近5.3亿新台币](/content/gnews/26/README.md)
+### [有声|台湾各界捐款乌克兰总额接近5.3亿新台币](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [COVID病毒疫苗创造亿万富翁 中共国6人上榜](/content/gnews/27/README.md)
+### [COVID病毒疫苗创造亿万富翁 中共国6人上榜](/content/gnews/26/README.md)
  ` 温哥华扬帆农场`
 
-### [泽伦斯基向俄罗斯妈妈喊话：不要送自己儿子参战](/content/gnews/28/README.md)
+### [泽伦斯基向俄罗斯妈妈喊话：不要送自己儿子参战](/content/gnews/27/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [西班牙基金会的塔尼娅女士采访在乌克兰救援前线的Nicole战友](/content/gnews/29/README.md)
+### [西班牙基金会的塔尼娅女士采访在乌克兰救援前线的Nicole战友](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [德意志银行逆潮流而动与俄保持联系](/content/gnews/30/README.md)
+### [德意志银行逆潮流而动与俄保持联系](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登排除第三次世界大战可能性并对与普京关系密切人员实施新制裁](/content/gnews/31/README.md)
+### [拜登排除第三次世界大战可能性并对与普京关系密切人员实施新制裁](/content/gnews/30/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [乌克兰称俄军炮击破坏了尼古拉耶夫癌症医院及住宅楼](/content/gnews/32/README.md)
+### [乌克兰称俄军炮击破坏了尼古拉耶夫癌症医院及住宅楼](/content/gnews/31/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [吉林农业科技学校瞒报疫情 导致新冠群聚性感染](/content/gnews/33/README.md)
+### [吉林农业科技学校瞒报疫情 导致新冠群聚性感染](/content/gnews/32/README.md)
  ` 日本东京方舟农场`
 
-### [入侵乌克兰导致俄罗斯经济濒临绝境](/content/gnews/34/README.md)
+### [入侵乌克兰导致俄罗斯经济濒临绝境](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共病毒疫苗被错误的数据和宣传所掩盖](/content/gnews/35/README.md)
+### [中共病毒疫苗被错误的数据和宣传所掩盖](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [泽连斯基：乌克兰处于“转折点”俄罗斯人在基辅附近重新集结](/content/gnews/36/README.md)
+### [泽连斯基：乌克兰处于“转折点”俄罗斯人在基辅附近重新集结](/content/gnews/35/README.md)
  ` 【🌹玫瑰新闻】`
+
+### [文贵视角3.12：同胞快醒来 从此要站着活 我们砸碎这铁锁](/content/gnews/36/README.md)
+ ` 秘密翻译组-原创组`
 
 ### [有声|Godaddy公司背后隐现中共黑手](/content/gnews/37/README.md)
  ` MOSREC`
