@@ -2,35 +2,45 @@
 ---
 
 
-## 美欧将取消俄罗斯贸易最惠国待遇
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2152262/)
+## 泽伦斯基向俄罗斯妈妈喊话：不要送自己儿子参战
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2152300/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月11日，据相关媒体报道，美国总统拜登当天发布声明表示，美国将与欧盟和G7集团联合，共同取消俄罗斯的最惠国贸易待遇。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-12-上午10.25.49.png)
-消息人士透露，取消最惠国待遇的这一举动将允许美国政府对俄罗斯的进口产品征收关税，用以在经济层面上孤立俄罗斯，从而达到对俄军入侵乌克兰行为的制裁。至于其他盟国也将遵循类似的经济制裁政策。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image011-2.jpg)乌克兰总泽伦斯基。美联社
+乌克兰总统泽伦斯基在3月11日发布最新影片，呼吁俄罗斯母亲不要送自己儿子上战场攻打乌克兰，并对他们的行踪保持警惕。
 
-据悉，乌克兰总统泽连斯基正在极力敦促欧美国家对俄罗斯进行经济制裁。同时，美国两党也向联邦政府施压，要求取消美国与俄罗斯的“永久正常贸易关系”。为此，拜登总统当天承诺，将继续采取制裁行动，用以追究俄罗斯对乌克兰无理由入侵的责任。
+泽伦斯基在Telegram发布的影片中表示：“我想再度跟俄国母亲们喊话，尤其是被征召入伍者的母亲，不要把你们的孩子送到国外参战。” 他说，“请确认你们儿子的行踪。你们对儿子可能被送上战场攻打乌克兰，哪怕仅有一点怀疑，请立刻行动”阻止他赔上性命或遭到俘虏。
 
-报道提及，加拿大已于上周取消了俄罗斯的最惠国贸易待遇。
+他也说：“乌克兰从未想要这场恐怖的战争。尽管乌克兰不想要战争，我们仍必须捍卫自己。”
 
-参考链接：[US, Allies to Revoke ‘Most Favored Nation’ Status for Russia](https://www.usnews.com/news/politics/articles/2022-03-10/us-allies-to-revoke-most-favored-nation-status-for-russia)
+俄罗斯9日首度承认派出征召入伍的军人到乌克兰参战，并且，宣布有些人已被乌军俘虏。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
-总编：Irene木木
-编辑：静言
-审核：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[【援引连结】](https://www.sydneytoday.com/content-1022438966804004)
+
+
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

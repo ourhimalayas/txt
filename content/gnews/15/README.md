@@ -2,67 +2,35 @@
 ---
 
 
-## COVID病毒疫苗创造亿万富翁 中共国6人上榜
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2152315/)
+## “儿童被埋在瓦砾下”&#8211;俄罗斯空袭妇产医院
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2152393/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+#### 作者：加拿大温哥华扬帆农场 — 视频组
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+今晚的第一篇报道来自我们的国际记者Orla Guerin，先提醒一下，她的报道中包含一些令人痛心的画面。
 
-中共病毒疫苗对于普通人来说，是索命，而对于少数人来说，意味着大发横财！
+乌克兰称俄罗斯对一家妇产医院进行了空袭，幸存者从残垣断壁中走出来。当地官员说，受伤的人中有孕妇。本来应该有一个停火协议，让平民安全逃离。相反，看这，大楼外的巨大弹坑。乌克兰总统Volodymyr Zelensky（沃洛基米尔-泽伦斯基）称这是一场暴行，并说有儿童被埋在瓦砾下。
 
-Moderna依靠唯一可商用的Covid-19疫苗销售，从前年亏损7.47亿美元到去年收入122亿美元。不计算股票期权套现，首席执行官斯蒂芬﹒班塞尔去年总收入为1820万美元，比2020年增长了41%。去年底，Moderna董事会批准了班塞尔的金色降落伞，由中共病毒颠覆世界秩序之前2019年的940万美元，提升到价值超过9.26亿美元，提升97.5倍。Moderna总裁斯蒂芬﹒霍格、首席技术官胡安﹒安德烈斯去年分别获得780和660万美元的报酬，分别比前年高出48%和55%。股票期权套现1.659和1.943亿美元。
+俄罗斯人想夺走我们的孩子、妇女和医生的生命，人们已经战斗了14天，这场战争要夺走每一个战火下的孩子的生命。
+俄罗斯的回应是’我们不向平民目标开火’，他们对我们遇到的那些逃离俄罗斯对紧邻首都基辅的伊尔平的轰炸的人说。今天，许多人不得不从这里被抬走。他们在炮击中幸存下来。现在，他们不得不过着难民一样的漂泊生活。自俄罗斯入侵以来，在短短的14天内，有一百万乌克兰儿童背井离乡，令人震惊。联合国称这是黑暗历史的开始。嗯，一小时又一小时，人们不断离开伊尔平。该地的居民正在被清空。而且不仅仅发生在这里。乌克兰的其他城市也在遭受俄罗斯人的轰炸，或者平民被赶走。这只是二战以来欧洲增长最快的难民危机的一角。我们在路上遇到了新近无家可归的Svetlana。“我们的房子没了”，她说，”我们已经在地窖里呆了14天，没有灯光、水和暖气。但我们肯定会回来的。”
 
-从COVID疫苗中大发横财的远不止Moderna高管。
+再往前走，朋友和邻居们重逢了，他们不肯定会再次见面的，这是巨大的解脱。
 
-2021年5月20日，人民疫苗联盟（[The People’s Vaccine Alliance](https://peoplesvaccine.org/)）在G20领导人全球健康峰会之前透露，由于垄断COVID疫苗的制药公司正在赚取巨额利润，自COVID大流行开始以来，至少有9人成为新的亿万富翁。这九位新亿万富翁的总净资产为193亿美元。
+Svetlana拥抱着一个朋友的孩子。“你还活着，我的阳光”，她说。在乌克兰军队的注视下，许多人今天设法从伊尔平走到相对安全的地带。我们在镇郊看到了这些乌克兰士兵。他说：”我们走吧，我们没有时间了，留给伊尔平的时间可能不多了。”俄罗斯军队已经向里面推进。这是沿路布置的如果他们试图进入。记者Orla Guerin，BBC新闻，伊尔平。
 
-此外，八位现有的亿万富翁，他们在COVID-19疫苗制药公司拥有广泛的投资组合，他们的总财富增加了322亿美元。
+让我们连线首席国际记者Lyse Doucet，他在首都基辅。Lyse，我们究竟该如何看待今天这样一个日子，俄罗斯人允许一些乌克兰公民安全通行，但又轰炸了一家妇产医院。
 
-人民疫苗联盟列出的9位新疫苗亿万富翁，按他们的净资产顺序是：
+乌克兰人包括泽伦斯基总统一直在恳请世界在这场战争中给予帮助，然而这场战争每天都在发生，让人难以置信。我们仍然不知道俄罗斯是否故意针对那家医院轰炸。如果是故意的话这是犯了战争罪。这场战争就是这个模式。联合国说，到目前为止，有18家医院以及学校、孤儿院和幼儿园成为打击目标。而就Mariupol市而言，今天不仅仅是一家妇产医院被攻击，它是整个城市的痛苦。在过去的一周里，他们没有食物、没有水、没有暖气、没有煤气。今天是连续第五天，他们试图利用本应是人道主义救援通道的机会，把物资运进去，把人运出来。它没有起作用，很多战斗还在进行，横尸遍街。今天有一场集体埋葬，有70人被埋，没有仪式，没有家人到场。战争已进入第三周，死者没有任何尊严可言。而对于活着的人来说，危险越来越大，破坏越来越大，但反抗也越来越大。
+Lyse，谢谢你。Lyse Doucet在基辅为您报道。
 
-1. Moderna首席执行官Stéphane Bancel（43亿美元）
-
-2.BioNTech首席执行官兼联合创始人Ugur Sahin（40亿美元）
-
-3. Moderna创始投资者、免疫学家Timothy Springer（22亿美元）
-
-4.Moderna董事长Noubar Afeyan（19亿美元）
-
-5.制造和包装Moderna疫苗的ROVI董事长JuanLopez-Belmonte（18亿美元）
-
-6.Moderna科学家和创始投资者Robert Langer（16亿美元）
-
-7.中共国[天津康希诺生物](https://www.cansinotech.com.cn/)（CanSino Biologics）联合创始人、董事长兼首席科学官朱涛（13亿美元）
-
-8.中共国[天津康希诺生物](https://www.cansinotech.com.cn/)（CanSino Biologics）联合创始人兼高级副总裁邱东旭（12美元）
-
-9.中共国[天津康希诺生物](https://www.cansinotech.com.cn/)（CanSino Biologics）联合创始人兼高级副总裁毛慧华（10亿美元）
-
-财富增长的8位疫苗亿万富翁分别是：
-
-#  
+素材 – 蓝色天空
+听写 – 文倩
+翻译 – Aima
+字幕 – 文雅
+校对 – abbs
+发布/上传 – 文永
 
 
-| **姓名** | **角色****/****描述** | **2021****（****10****亿美元）** | **2020****（10亿美元）** |
-| --- | --- | --- | --- |
-| 蒋仁生家族 | 中共国[重庆智飞生物制品股份有限公司](http://www.zhifeishengwu.com/)主席 | 24.4 | 7.6 |
-| Cyrus Poonawalla | 印度血清研究所创始人 | 12.7 | 8.2 |
-| 谢炳（Tse Ping） | 中共国[国药控股股份有限公司](https://www.sinopharmholding.com/) | 8.9 | 7.3 |
-| 吴冠江 | 中共国[重庆智飞生物制品股份有限公司](http://www.zhifeishengwu.com/)联合创始人 | 5.1 | 1.8 |
-| Thomas Struengmann家族 | 投资组合包括德国的 BioNTech 和乌拉圭的 Mega Pharma | 11 | 9.6 |
-| Andreas Struengmann家族 | 投资组合包括德国的 BioNTech 和乌拉圭的 Mega Pharma | 11 | 9.6 |
-| Pankaj Patel | 控制上市公司 Cadila Healthcare。该公司现在生产治疗 Covid-19 的药物，例如来自吉利德的 Remdesivir。其 Covid-19 疫苗 ZyCoV-D 正在进行临床试验。 | 5 | 2.9 |
-| Patrick Soon-Shiong | ImmunityBio ，入选美国联邦政府的“曲速行动”，以帮助快速开发 Covid-19 疫苗。 | 7.5 | 6.4 |
-
-
-这17位都是“疫苗经济”的巨大受益者，在疫苗灾难随时爆发的未来，绞刑架上一个都不能少！
-
-参考数据：
-
-[COVID vaccines create 9 new billionaires with combined wealth greater than cost of vaccinating world’s poorest countries](https://www.oxfam.org/en/press-releases/covid-vaccines-create-9-new-billionaires-combined-wealth-greater-cost-vaccinating)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
