@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 2:12 AM (UTC)`
+
+【Ukraine Rescue】03/11/2022 New Federal State of China built the second huge tent in Medyka, Poland to help Ukrainian refugees.<br/><br/>【乌克兰救援】03/11/2022 新中国联邦在波兰梅迪卡建起了第二个巨型帐篷，救援乌克兰难民<br/><br/> 
+![img](https://media.gettr.com/group21/getter/2022/03/12/02/5eb9aadd-9e00-72c7-a063-df510f12521f/out.jpg)
+
+---
+
+`@miles 3/12/2022 2:10 AM (UTC)`
+
+2022.03.11 晚《新中国联邦新闻访谈》 乌克兰救援活动最新进展；粮食价格暴涨，粮食危机在路上，中共国何去何从；分析和驳斥小粉红支持俄罗斯入侵的‘理论基础’；普京认为和谈出现‘积极转变’，释放何种讯号；中共国疫情又起，创武汉以来最高纪录，强制清零何时休。
+![img](https://media.gettr.com/group50/origin/2022/03/12/02/8dc52e23-720e-ae2b-76c0-f34551c30f80/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/12/2022 2:05 AM (UTC)`
 
 3/11/2022 Miles Guo: Fellow fighter Nicole's personal experience shows that the CCP has ruined the image of the Chinese in the international arena and that only New Federal State of China and the Rule of Law Foundation have given us the opportunity to tell the world that the CCP does not represent the Chinese, and that the Chinese people are pursuing rule of law, freedom, and justice!<br/><br/>3/11/2022 文贵直播：Nicole战友用亲身经历说明中共毁掉了中国人在国际上的形象，而新中国联邦、法治基金给了我们机会告诉全世界中共代表不了中国人，中国人追求法治、自由和正义！<br/>
@@ -139,22 +153,6 @@ Moldova - one of Europe's smallest and poorest countries, urges other countries 
 
 Nicole, [Mar 12, 2022 at 4:50 AM]<br/>👆Nicole 刚采访了这两个波兰独立制片人，她们清楚的知道中共代表邪恶，新中国联邦代表和平、人道和正义。
 ![img](https://media.gettr.com/group27/getter/2022/03/11/21/ec4b3b45-23a6-79ce-2f2d-d7670443272e/out.jpg)
-
----
-
-`@miles 3/11/2022 8:29 PM (UTC)`
-
-As our NFSC & ROLF Ukraine Rescue efforts proceeds, we have witnessed so many acts that are simple yet so touching, and so many are expressing their gratitude.  <br/>No one wants a war, all we want to do here is to try our best to save more lives, including our compatriots, regardless of their political stance, even those who may be our adversaries  在我们的救援过程中，我们经历了太多感动，太多的感谢。没有人希望发生战争，我们要做的是努力拯救每一个生命，每一个同胞，即使曾经是我们的对手，我们的敌人。
-![img](https://media.gettr.com/group26/origin/2022/03/11/20/55e3bb41-45d6-bd2d-bb03-660f53b02fde/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@pangushixun 3/11/2022 2:32 PM (UTC)`
-
-波兰时间3月10日下午6:00 三位意大利赶来的志愿者，将一车物资，大部分为婴幼儿用品放在medyka 新中国联邦帐篷门口，并委托新中国联邦现场救援义工，将这些物品分发给难民。<br/><br/>#盘古时讯  <br/>#乌克兰 #救援 #人道主义 <br/>#新中国联邦
-![img](https://media.gettr.com/group35/getter/2022/03/11/14/8e2ed116-c3a3-f639-0dd6-6b619634a389/out.jpg)
 
 ---
 
