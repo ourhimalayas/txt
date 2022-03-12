@@ -2,42 +2,32 @@
 ---
 
 
-## 数字货币最新进展
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151654/)
+## 纽约西藏人：中领馆前抗议并纪念拉萨事件63周年
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2151851/)
 
-作者：加拿大温哥华扬帆农场 – Spirit；波士顿五月花 – 文雀
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月9日，美国总统拜登公布了一项行政命令，责成联邦机构研究加密货币，并为新生市场制定政策建议。
+**撰稿：日本东京方舟农场 子辰**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-20.jpg)
+近期，近千名纽约的西藏人在中领馆前参加集会，抗议中共对西藏的野蛮占领，并要求中共报告自焚藏人的现状，释放被抓的藏人。并在现场焚烧了中共的国旗。
 
-拜登在声明中宣布了第一个”全政府”的联邦政策，通过指导政府机构采取一系列围绕金融稳定、非法金融、金融包容性和投资者保护的措施，来”应对加密货币的风险并利用其潜在利益”。 该命令指示美国政府”紧急”研究和开发潜在的美国中央银行数字货币，并要求金融稳定监督委员会识别和减轻加密货币带来的任何系统性金融风险，制定适当的政策建议以解决任何监管漏洞。同时指示商务部建立一个框架，以帮助政府机构将数字资产技术纳入其政策、操作方法和研究与开发。
+1959年3月10日，数千名拉萨藏人聚集在达赖喇嘛的住所外，为了阻止达赖去观看解放军的一场歌舞表演，尤其是解放军不允许达赖带自己的警卫出席的情况下，那次的聚会就被中共定性为叛乱，之后更是开始了大屠杀。
 
-同时，泰国内阁8日放宽了对数字资产投资的税收规定。泰财政部长表示，新规则将允许交易者用数字货币投资的税收收益来抵消年度损失，并免除授权数字货币交易 7% 的增值税。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-11.jpeg)（图片来自大纪元）
 
-而在实际应用中，自俄乌战争爆发以来，乌克兰的一些军备供应商筹集了价值超过6000万美元的数字货币，并将其中一些资金用于燃料、食品和其他军备的购买。乌克兰数字化转型部长兼副总理博尼雅科夫认为，数字货币是一种比银行转账更灵活、更便宜的工具。
+据悉，当时的中共解放军的排炮对着密集逃跑的人群，那些试图越过拉萨河往南逃跑的几千人，包括在罗布林卡北面的上千人，中共进行了猛烈的炮击，最后将这些尸体在拉萨河边焚烧然后丢进了拉萨河。
 
-链接：
+据这次纽约集会的参加者，自由西藏学生运动（Student for Free Tibet）的洛桑（Lobsang Tseten）在集会中说，我们在纽约纪念“西藏起义”，抗议中共入侵西藏63周年。
 
-- [Biden’s Crypto Executive Order Puts ‘Urgency’ On Digital Dollar Research And Fuels Bitcoin, Ether Prices](https://www.forbes.com/sites/jonathanponciano/2022/03/09/bidens-crypto-executive-order-puts-urgency-on-digital-dollar-research-and-fuels-bitcoin-ether-prices/?sh=14f423c33bbd)
-- [Ukraine Is Buying Bulletproof Vests and Night-Vision Goggles Using Crypto](https://www.coindesk.com/policy/2022/03/07/ukraine-is-buying-bulletproof-vests-and-night-vision-goggles-using-crypto/)
-- [Thailand approves relaxed tax rules for digital assets](https://www.reuters.com/markets/funds/thailand-approves-relaxed-tax-rules-digital-assets-2022-03-08/?rpc=401&amp;)
+同时这次集会的参与者还上要求，被中共一直掩盖的发生在2月25日，年仅25岁的西藏著名歌手才旺罗布（Tsewang Norbu）在拉萨布达拉宫前的自焚真相，这位歌手也成为自2009年以来的第158位自焚的藏人。
 
+最后洛桑说，我们抗议中共对西藏的凶恶政策，要求中共报告才旺罗布的生死现状，并要求中共立即释放西藏著名学者果谢绕嘉措。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+参考链接： 
+[https://www.epochtimes.com/b5/22/3/12/n13640541.htm](https://www.epochtimes.com/b5/22/3/12/n13640541.htm)
 
-总编：雪梨
-编辑：宁文静
-审核：木木
-校正/发稿：海阔天空1
+素材采编：子辰
+总辑：青城道姑
+发布：文曦
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

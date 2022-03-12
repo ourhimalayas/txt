@@ -2,26 +2,35 @@
 ---
 
 
-## 北京开始吹“未接种疫苗”的风
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2152138/)
+## 美欧将取消俄罗斯贸易最惠国待遇
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2152262/)
 
-撰写：东京樱花团/Garrettw
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月11日，据相关媒体报道，美国总统拜登当天发布声明表示，美国将与欧盟和G7集团联合，共同取消俄罗斯的最惠国贸易待遇。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-12-上午10.25.49.png)
+消息人士透露，取消最惠国待遇的这一举动将允许美国政府对俄罗斯的进口产品征收关税，用以在经济层面上孤立俄罗斯，从而达到对俄军入侵乌克兰行为的制裁。至于其他盟国也将遵循类似的经济制裁政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/北京开始吹未接种疫苗的风.png)[图片来源](https://baijiahao.baidu.com/s?id=1727086676657778058&amp;wfr=spider&amp;for=pc)
+据悉，乌克兰总统泽连斯基正在极力敦促欧美国家对俄罗斯进行经济制裁。同时，美国两党也向联邦政府施压，要求取消美国与俄罗斯的“永久正常贸易关系”。为此，拜登总统当天承诺，将继续采取制裁行动，用以追究俄罗斯对乌克兰无理由入侵的责任。
 
-3月12日，在北京市中共病毒（新冠病毒Covid-19）疫情防控工作新闻发布会上介绍，3月11日16时至12日16时，北京市新增本土感染者3例。门头沟区、顺义区、朝阳区各1例。另据顺义区副区长冯江全介绍，顺义区新增的一确诊病例因禁忌症未接种新冠疫苗，曾于3月8日乘坐私家车前往故宫博物院游览。
+报道提及，加拿大已于上周取消了俄罗斯的最惠国贸易待遇。
 
-中共公然在老百姓的比较关注的疫情权威发布会上，直接说出该确诊者因禁忌未接种疫苗，这种含沙射影的表述，目的在于提醒那些未接种疫苗的人，未来会面临诸多风险和相关性责任，在威胁和恐吓那些未接种的人赶快接种疫苗。穷途末路的中共，还要在濒临灭忙之际带走更多的无辜百姓。
+参考链接：[US, Allies to Revoke ‘Most Favored Nation’ Status for Russia](https://www.usnews.com/news/politics/articles/2022-03-10/us-allies-to-revoke-most-favored-nation-status-for-russia)
 
-疫苗到底有没有用，我们都心知肚明，中共的伎俩我们要揭穿唤醒更多的人不要打疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
-消息来源：
+总编：Irene木木
+编辑：静言
+审核：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[北京新增3病例，其中一人为地坛医院保洁](https://baijiahao.baidu.com/s?id=1727086676657778058&amp;wfr=spider&amp;for=pc)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

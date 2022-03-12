@@ -2,29 +2,13 @@
 ---
 
 
-## 【秘翻晚间新闻】SEC退市风险名单引爆在美中概股
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2143988/)
+## 日本对经济困难的留学生发放10万元补助
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2147434/)
 
-By:**[秘翻晚间新闻](https://gettr.com/post/pzeibr2ff2)**
-
-[**2022-03-11**](https://gettr.com/post/pzeibr2ff2)
-
-**新闻内容:**
-
-1. SEC退市风险名单引爆在美中概股
-2. 乌克兰控俄罗斯再轰一核研究设施
-3. 吉林学生与发烧者同宿 学校粗暴打压 学生求援
-
-
-喜欢记得点赞订阅分享喔！
-Gettr链接：[**https://gettr.com/post/pzeibr2ff2**](https://gettr.com/post/pzeibr2ff2)
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7f228052af34309952b3f44f9ab5734e.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

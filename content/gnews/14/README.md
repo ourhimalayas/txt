@@ -2,38 +2,102 @@
 ---
 
 
-## 大直播后记：新中国联邦救援行动是黑暗中的一盏灯
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2152152/)
+## 电子游戏界陆续展开对俄罗斯区的封锁
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2152296/)
 
-整理：奮鬥、大甜甜
-编辑：朝花夕拾
+作者 台湾宝岛农场 Y.M.O
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-190.jpeg)
+乌克兰副总理Mykhailo Fedorov于3月2日在推特上发表了一封公开信，他呼吁所有的游戏厂商暂时封禁来自俄罗斯和白俄罗斯玩家的账号，禁止这些国家的电竞选手参与国际电竞比赛，并且取消在这些国家境内举办的所有国际赛事，他相信通过这些行动能让俄罗斯公民积极主动地制止对乌克兰的军事侵略。并且在3月3日于推特上点名腾讯、Epic、任天堂、R星、科乐美、万代南梦宫、动视暴雪等多家游戏厂商，要求他们在俄罗斯禁售游戏。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-19.png)图片来源：雅典娜设计组
+3月4日EA发表声明，表示除了在相关FIFA系列游戏中移除俄罗斯国家队及俱乐部，其它所有游戏和相关内容在俄罗斯和白俄罗斯的销售业务都将停止。并且将与相关游戏平台一起合作从它们的商店中删除EA的游戏并阻止在该地区销售新的游戏内容。
+
+3月4日，微软宣布暂停在俄罗斯所有的服务和销售，可能包括 XBOX 和所有游戏服务。与此同时，动视暴雪也宣布暂停在俄罗斯的游戏销售，并将竭尽所能地帮助受战争影响的员工及其家人。 另外虽然我没有看到贝塞斯达的回应，但由于贝塞斯达已经被微软收购，所以贝塞斯达和微软态度保持一致的可能性不小。
+
+3月6日，Epic通过推特宣布作为对俄罗斯入侵乌克兰的回应，他们将停止在俄罗斯的游戏销售业务。
+
+3月7日，育碧宣布鉴于乌克兰正在发生的悲剧，决定暂停在俄罗斯的游戏销售业务。
+
+3月10日，索尼宣布中止在俄罗斯的所有软件和硬件销售，呼吁乌克兰和平并捐款200万美金。
+
+任天堂发言人表示任天堂已停止所有在俄罗斯的软硬件销售服务，并表示现在物流和支付方面存在挑战，无法处理卢布付款，所以关闭俄罗斯eShop。
+
+虽然不是所有的游戏厂商都发表封锁俄罗斯地区的声明，但如果从平台来看，主机端索尼、微软、任天堂都已经宣布主动禁止或者事实上无法提供服务，PC端Epic商城已经宣布，EA自家的origin平台也已经封锁。而Steam平台虽然没有主动封锁，但由于其它金融制裁的关系俄罗斯地区玩家的所有数位支付通道事实上已经被切断。手机端我不了解但在主机端和PC端上可以说所有平台已经全灭。在这些对俄罗斯的封锁声明当中最引人注意的一条其实来自波兰厂商 CD PROJEKT RED。因为在它发出声明之后产生了一些不想看到的后续。
+
+CD PROJEKT RED在3月3日宣布将停止向俄罗斯与白俄罗斯销售旗下的游戏。CD PROJEKT RED表示他们深知与战争无关的俄罗斯与白俄罗斯玩家将会受到这一决定的影响，但他们希望通过这一行动，引起各界对这一事件的关注。然而在CD PROJEKT RED公告之后《巫师3：狂猎》、《赛博朋克2077》等CDPR旗下游戏steam平台页面出现了大量差评，并且几乎都是中文。
+
+首先封锁的是俄罗斯与白俄罗斯地区，按理说如果出现差评应该都是俄文才对，steam并没有封锁俄区即使俄罗斯玩家不能购买游戏发评论还是做得到的，中文玩家如此悍跳真是让人一头雾水。另外这些中文评论是不是由中共水军所发目前并没有办法确定，不过以我个人的观察来看墙内的电子游戏玩家最看重的是自己能不能玩到心仪的游戏，俄罗斯区玩家能不能玩到其实并不关心。别看俄乌局势愈演愈烈，其实对他们来说关注度可能还不如steam域名被中共拉黑来得高。因此这些中文差评我更倾向于这是来自集体意志的需求。
+
+这里还是要补充一下墙内玩家对CD PROJEKT RED的一些看法。CD PROJEKT RED在墙内有一个外号叫作“波兰蠢驴”。指的是他们制作的dlc价格并不昂贵，内容却十分丰富。特别是以《巫师3》为代表，一个dlc的体量甚至和一个新游戏没什么区别。这样超高的性价比以至于都在调侃他们这么卖游戏会不会亏本，至少在墙内玩家圈子里这个外号算是比较褒义的。
+
+但问题也就出在这里。世界范围内的民众并不会将一般玩家和中共水军或小粉红区别开来，他们会认为这都是中国人的评论。对自己有利的时候调侃为波兰蠢驴，对俄爹不利的时候就发出各种指责。即使我们不谈论俄罗斯，波兰和乌克兰可是接壤的，CD PROJEKT RED作为一个波兰游戏厂商就算不知道全部真相那了解的东西也比这些中文差评多吧。或者说这些发出中文差评的人在身体以及精神上有哪一点做到了接壤呢？包括育碧在基辅也有工作室，很多游戏厂商都有来自乌克兰的员工。这样的声明对乌克兰员工也是一种支持与关怀，不过这些中文键盘侠们到最后能不能得到支持与关怀就不好说了。
+
+不论这些中文差评是谁发出，它们的出现本身对于中国人的形象就是很大的损害。这也就像文贵先生一直说的那样，比起灭共和消灭中共病毒及揭露中共病毒疫苗真相来说，更困难的是拯救墙内被荼毒百年的人心。其实对于中共的参与程度乌克兰心里也清楚，乌克兰副总理Mykhailo Fedorov的推特中特别点到了腾讯的名字。要知道腾讯既没有站得住的电子游戏平台，也没有什么经典的电子游戏作品，唯一上得了台面的身份就是英雄联盟的中共国代理商。这么一堆世界知名游戏厂商中混杂着腾讯的名字，给人感觉就像是打草惊蛇一样，借由这些游戏厂商的反应让世界看清楚这各方势力的身份和目的。
+
+新闻链接
+
+乌克兰副总理Mykhailo Fedorov推特
 
 
-封神榜：我们看到这一次整个乌克兰的战争中，中共的所作所为，他不仅不救自己的国民，他还阻碍我们去救人，而他所做的一些所谓的救援行动纯粹是在做秀。有的中国国民已经逃到了罗马尼亚，他要在罗马尼亚上飞机，要回中共国，机票18000，还被半夜拉起来，到机场要唱《我和我的祖国》。而我们新中国联邦的所作所为完全不是口号，而是战友们实打实的在前线，联系大巴、发放物资、24小时的客服。战友们的行动不仅是救出了身处炮火中的中国同胞，还有乌克兰人，各国人，还有孩子。这些行动扭转了中国人的形象。然后我的问题是，因为我们这些行动毕竟也有一定的能见度，也让世界各国人能够看到，那是不是可以说，可以相对程度的来减轻那些处于徘徊，危机一触即发的所有海外华人所面临的危险？谢谢七哥。
 
-七哥：谢谢啊，封神榜。这个不是改变，我觉得是本质性的改变。就像七哥说的，一灯能除千年暗一样。现在海外华人所面临的就是一个黑夜，极黑的黑夜，你不能说把它变成比白天还亮，我们真的做不到，谁也做不到。因为共产党这些年，和在全世界干下这些坏事，短短过去的一百天，想想冬奥会，谷爱凌事件，和所有的这些参加冬奥会的运动员所遭受的事件，还有现在所谓的冬季残奥会——开幕式封杀国际奥林匹克嘴的这种形象，这种造假。以及在乌克兰战争发生后，中国发生了简直是不可思议的，现在中共国在干什么？想办法把中国人派到前线，为俄罗斯人去挖战壕，去埋尸体去。
+> [@Xbox](https://twitter.com/Xbox?ref_src=twsrc%5Etfw) [@PlayStation](https://twitter.com/PlayStation?ref_src=twsrc%5Etfw)
+> 
+> You are definitely aware of what is happening in Ukraine right now. Russia declare war not for Ukraine but for all civilized world. If you support human values, you should live the Russian market! [pic.twitter.com/tnQr13BsSv](https://t.co/tnQr13BsSv)
+> — Mykhailo Fedorov (@FedorovMykhailo) [March 2, 2022](https://twitter.com/FedorovMykhailo/status/1498945221337534469?ref_src=twsrc%5Etfw)
 
-而且整个中共国更可怕的是，到现在在联合国还支持俄罗斯这场非正义的战争。而且现在你看盖特，看所有的Gnews下面的留言，还有各社交媒体都在干什么？在传播着一场巨大的谎言：说乌克兰有三个什么核电站，准备发展核武器，俄罗斯普京在拯救全人类。他大爷的，你拯救全人类，要杀掉整个俄罗斯。那些孩子们惹你了吗？那些医院惹你了吗？就这种谎言他都敢撒，他的无知愚昧到了你无法想象的卑鄙的程度。
 
-最可悲的是把14亿中国人全给裹进去了，找了一帮小粉红，这帮王八蛋，真的活埋一万次都不拉倒的。他竟然诅咒人家俄罗斯人，在全世界的媒体面前瞪着眼撒谎。这个时候，我们现在海外华人是最最危险的。每天每时每刻你看，昨天在洛杉矶，在旧金山有发现华人大街上被骂被打，华人的店第二天很多都关了。就连法拉盛，华人占绝大多数地方，都经常发现有人拿枪指着，远在非洲到处都是。印尼现在很多华人已经准备好撤（离），甚至于很多华人已经把门用所谓双层锁锁上了—无知到了极点，你锁上了你的门，你能锁着你的后门吗？你都不出去了吗？
 
-当年印尼排华的时候，很多华人家里边被杀被奸，很多小孩儿就是浑身是血跑到印尼大使馆——中华人民共和国共产党驻印尼大使馆。结果，中国所谓的代表中国人民的比爹娘还亲的大使馆说什么？这属于印尼内部事情，全给轰出去了。轰出去，当即就在印尼大使馆的西侧墙，西侧墙有一个沟，去看一看那个当时的印尼大使馆有一个沟，那个沟旁边是印尼大使馆所有的搞活动的地方，有一个台子。当场中国人在现场被奸、被杀，最小的七岁的女孩。那时候（中共）大使馆他们已经有监控设备了，那时候就有了，看着没管。在大使馆拉出来的人，当场女性被头砍掉以后拿竹签挑着放大使馆前面。十多岁的女孩被强奸完以后，已经跟肉体一样了，从这个肛门插过去，从胸口插出来一个棍子，挂在了大使馆门口，你们华人还再来找吗？
 
-你不要再进（中共驻印尼的大使馆）了，他们不管你的。但是新中国联邦这个行动，就像黑暗中的一盏灯，最起码让你知道这不是黑夜。你可能会因为这盏灯，就不会绊倒，你不会掉坑里面去。但绝对不是比爹娘还亲的中国共产党，当你遭受排华的时候，他们把这个灯给你整掉了，整灭了，你一定会栽死在阴沟里。
 
-现在有本事的华人，你去到所有的中国共产党比你爹娘还亲的各地大使馆去看看，（他们）能不能帮你。在乌克兰出去的学生，他救你，是因为新中国联邦在前线救人，他怕我们跟他抢人。我们某种程度上促使了共产党把他们救回去，但共产党不甘心，这些奴隶救了，你怎么能白救呢？要你18000的（机）票，21天的隔离，加上7000块钱，两万块钱给你干掉了。两万块钱，三四千美金呢，相当于当地的钱，好多钱啊。然后那些愚蠢的中国的有些人，这些小粉红说，乌克兰男人死了娶乌克兰女人。我过一段时间，我就在乌克兰发大量的广告，任何有良知的乌克兰人不要嫁给中国人，嫁给中国人的就要离开。因为这是国仇，族耻。他们竟然呼吁把男人杀掉，去娶人家的女人，这种轮回报应，一定会发生在这种王八蛋身上的。
+> [@EpicGames](https://twitter.com/EpicGames?ref_src=twsrc%5Etfw), [@Nintendo](https://twitter.com/Nintendo?ref_src=twsrc%5Etfw), [@RockstarGames](https://twitter.com/RockstarGames?ref_src=twsrc%5Etfw), [@2K](https://twitter.com/2K?ref_src=twsrc%5Etfw), [@MoontonGames](https://twitter.com/MoontonGames?ref_src=twsrc%5Etfw), [@BandaiNamcoUS](https://twitter.com/BandaiNamcoUS?ref_src=twsrc%5Etfw), [@PdxInteractive](https://twitter.com/PdxInteractive?ref_src=twsrc%5Etfw), [@ATVI\_AB](https://twitter.com/ATVI_AB?ref_src=twsrc%5Etfw), [@Konami](https://twitter.com/Konami?ref_src=twsrc%5Etfw), [@bethesda](https://twitter.com/bethesda?ref_src=twsrc%5Etfw), [@TencentGames](https://twitter.com/TencentGames?ref_src=twsrc%5Etfw), [@supercell](https://twitter.com/supercell?ref_src=twsrc%5Etfw) russia showed true face. It doesn’t have any respect for the principles and humanity. Stop this by halting your games in russia!
+> — Mykhailo Fedorov (@FedorovMykhailo) [March 3, 2022](https://twitter.com/FedorovMykhailo/status/1499307028430401536?ref_src=twsrc%5Etfw)
 
-资料来源：[2022年3月11日文贵大直播](https://www.gettr.com/streaming/pzg47d4994)
 
-发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+微软声明
+
+[https://blogs.microsoft.com/on-the-issues/2022/03/04/microsoft-suspends-russia-sales-ukraine-conflict/](https://blogs.microsoft.com/on-the-issues/2022/03/04/microsoft-suspends-russia-sales-ukraine-conflict/)
+
+EA声明
+
+[https://www.ea.com/news/update-on-electronic-arts-titles-in-russia-and-belarus](https://www.ea.com/news/update-on-electronic-arts-titles-in-russia-and-belarus)
+
+育碧声明
+
+[https://news.ubisoft.com/en-us/article/2dkkIG51BCP24JwGGvDry9/how-ubisoft-is-supporting-our-teams-and-the-people-of-ukraine](https://news.ubisoft.com/en-us/article/2dkkIG51BCP24JwGGvDry9/how-ubisoft-is-supporting-our-teams-and-the-people-of-ukraine)
+
+索尼声明
+
+
+
+> [pic.twitter.com/1KV95QiFHN](https://t.co/1KV95QiFHN)
+> — PlayStation (@PlayStation) [March 9, 2022](https://twitter.com/PlayStation/status/1501689329730478081?ref_src=twsrc%5Etfw)
+
+
+
+Epic声明
+
+
+
+> Epic is stopping commerce with Russia in our games in response to its invasion of Ukraine. We’re not blocking access for the same reason other communication tools remain online: the free world should keep all lines of dialogue open.
+> — Epic Games Newsroom (@EpicNewsroom) [March 5, 2022](https://twitter.com/EpicNewsroom/status/1500236775448588295?ref_src=twsrc%5Etfw)
+
+
+
+动视暴雪声明
+
+[https://activisionblizzard.com/newsroom/2022/03/supporting-the-ukrainian-people](https://activisionblizzard.com/newsroom/2022/03/supporting-the-ukrainian-people)
+
+CD PROJEKT RED声明
+
+[https://en.cdprojektred.com/news/important-update-2/](https://en.cdprojektred.com/news/important-update-2/)
+
+* * *
+
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
  
 

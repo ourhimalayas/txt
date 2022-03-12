@@ -2,25 +2,35 @@
 ---
 
 
-## 视频|俄联邦安全局内部报告称，乌克兰战争俄将彻底失败
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2152304/)
+## MV版Hcoin To the Moon上线93天第31次位列匈牙利iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2152468/)
 
-制作：香草山视频部
+3/12/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线93天第31次位列匈牙利iTunes热门音乐视频榜榜首，第45次位列前三名
 
-国外媒体3月7日报导，俄罗斯联邦安全局的举报人称，俄罗斯安全机构中的情报人员“对普京总统入侵乌克兰的计划一无所知”。他们将俄罗斯描述为“彻底的失败，只能与纳粹德国的崩溃相提并论”。
+* * *
 
-俄罗斯联邦安全局脱胎于克格勃，由普京的心腹亚历山大·博尔特尼科夫领导。他们从20世纪70年代就认识，当时都在列宁格勒担任克格勃官员。
+[【PDF 下载】Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-安全局的官员们被命令评估西方制裁所带来的影响，但被告知这是一项假设性的逐项核查工作，必须以一种使俄罗斯成为胜利者的方式来撰写分析报告，否则就会被质疑没有做好工作。但最后报告得出结论：总的来说，俄罗斯没有出路。没有可能胜利的选项，只有失败。
+* * *
 
-安全局的内部报告称，车臣领导人、普京的盟友卡德罗夫，在被派去刺杀乌总统泽连斯基的“杀手部队”被乌克兰军队摧毁后，正处于与俄罗斯直接冲突的边缘。即使泽连斯基被杀，俄罗斯也没有希望占领乌克兰。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_102.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
 
-发稿：谐趣园
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+[【PDF 下载】Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
