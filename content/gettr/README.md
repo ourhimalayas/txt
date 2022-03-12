@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 3:20 PM (UTC)`
+
+3月12号：尊敬的战友们好，新中国联邦人……正在乌克兰战场……中东的能源市场，全世界的数字货币领域，向世界展示爱好和平，聪明，智慧无私新中国人的国际形象。正在全世界阻止由于共产党，在全世界制造的仇恨，导致，将发生大规模排华的灾难的到来，任何一个新中国联邦人，都是中华民族的英雄，我们一定要阻止在全世界排华灾难的发生！建立良好的新中国人形象！
+![img](https://media.gettr.com/group41/getter/2022/03/12/15/b1fb53f5-1892-b337-4beb-ccc2a5bba5f7/out.jpg)
+
+---
+
 `@miles 3/12/2022 1:56 PM (UTC)`
 
 【Ukraine Rescue】03/12/2022 Fellow fighter Nicole introduces the New Federal State of China and the Rule of Law Foundation Ukraine Rescue Operation to the biggest Polish news FAKT, also revealing the Chinese government has been interfering and sabotaging our rescue operation all along<br/><br/>【乌克兰救援】03/12/2022 妮可战友向波兰最大报纸FAKT介绍新中国联邦和法治基金的乌克兰救援行动，并揭露中共政府一直在干扰破坏我们的救援工作<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -149,13 +156,6 @@ Wars for any reason are all crimes<br/>出于任何原因的战争都是犯罪<b
 
 2022.03.11 晚《新中国联邦新闻访谈》 乌克兰救援活动最新进展；粮食价格暴涨，粮食危机在路上，中共国何去何从；分析和驳斥小粉红支持俄罗斯入侵的‘理论基础’；普京认为和谈出现‘积极转变’，释放何种讯号；中共国疫情又起，创武汉以来最高纪录，强制清零何时休。
 ![img](https://media.gettr.com/group50/origin/2022/03/12/02/8dc52e23-720e-ae2b-76c0-f34551c30f80/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/12/2022 2:05 AM (UTC)`
-
-3/11/2022 Miles Guo: Fellow fighter Nicole's personal experience shows that the CCP has ruined the image of the Chinese in the international arena and that only New Federal State of China and the Rule of Law Foundation have given us the opportunity to tell the world that the CCP does not represent the Chinese, and that the Chinese people are pursuing rule of law, freedom, and justice!<br/><br/>3/11/2022 文贵直播：Nicole战友用亲身经历说明中共毁掉了中国人在国际上的形象，而新中国联邦、法治基金给了我们机会告诉全世界中共代表不了中国人，中国人追求法治、自由和正义！<br/>
-![img](https://media.gettr.com/group38/getter/2022/03/12/02/fcc451d0-895a-267e-e75e-39b370f239e8/out.jpg)
 
 ---
 
