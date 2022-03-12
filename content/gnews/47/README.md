@@ -2,31 +2,37 @@
 ---
 
 
-## 3月11号救援前线所见所闻
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2146988/)
+## 豪华帐篷暂为难民提供安身之所
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2148325/)
 
-前方记者：Nicole
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-61.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/photo_2022-03-11-16.39.32.jpeg)
-法新社AFP著名战地摄影记者 Louisa Gouliamaki 刚先睹为快来到法治基金刚搭好的梅蒂亚7星级帐篷 “非常令人叹服！“ 她看了新帐篷感叹地说。我告诉她明天一早会有NFSC Coffee（郭先生今天大直播说的的新中国联邦咖啡），如我预料的一样哈哈所有人都在疲惫的心情下，期待冬天里的温暖。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-11-164038.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3-1.png)
-这是国际红十字会的工作人员和明道战友对接今晚接待妇女儿童的工作，今晚新的大帐篷正式开放，接受红十字会负责从边境带来的难民。
+作者：纽约香草山农场-文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+除却食物方面的改善外，据新中国联邦和法治基金前线直播团队在波兰梅蒂卡救援站发回的消息显示，经过救援团队日以继夜的工作，占地250平米的豪华七星级救助帐篷目前已经搭建完毕，将从即日起投入使用，为更多的难民提供舒适的休息区。
 
-当明道告诉他，这是新中国联邦战友们第一次在战区做营救工作，他们都不敢相信，说你们做得太好了！ 他们还说，你们（法治基金）有财力准备这么好的设施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-2.jpeg)
 
-这是国际红十字会的工作人员和明道战友对接今晚接待妇女儿童的工作，今晚新的大帐篷正式开放，接受红十字会负责从边境带来的难民。
+前线记者表示，这一豪华帐篷高大、宽敞、明亮，且内部功能区域划分明确，还专门设有用餐区以及配备了高规格取暖设备的休息区。
 
-这是新中国联邦战友们第一次在战区做营救工作，
+对此，郭文贵先生在3月11日的大直播中特别高兴地赞叹，新中国联邦和法治基金在乌克兰的救援行动已经达到了国际一流的水准。
 
-当明道战友告知这是我们第一次组织救援工作，他们完全不敢相信，说你们做得太好了！ 他们还说，你们（法治基金）有财力准备这么好的设施。
+据悉，法新社的著名战地摄影记者路易莎-古里亚马基也对这个全营地最大、最好的帐篷感到非常好奇。在参观完新帐篷的内外设施后，路易莎非常感慨谈及，新中国联邦和法治基金的这项救援工作真是令人叹服。而在得知救助团队还会为所有人员准备现磨、现煮的 “新中国联邦咖啡”后，路易莎非常开心地表示一定会专门前来品尝。
 
-校对/发稿：serena
+参考链接：[这个帐篷是整个难民营里面设置是最好的](https://www.gettr.com/post/pzhyjy649e)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
+总编：Irene木木
+编辑：Ivy001
+审核：Irene木木
+校正/发稿：谐趣园
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-29.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

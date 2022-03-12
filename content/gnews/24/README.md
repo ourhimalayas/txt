@@ -2,42 +2,48 @@
 ---
 
 
-## 数字货币最新进展
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151654/)
+## 有声|Godaddy公司背后隐现中共黑手
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2151980/)
 
-作者：加拿大温哥华扬帆农场 – Spirit；波士顿五月花 – 文雀
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月9日，美国总统拜登公布了一项行政命令，责成联邦机构研究加密货币，并为新生市场制定政策建议。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月9日，由新中国联邦发起，法治基金资助的乌克兰救援行动进入第12天。新中国联邦乌克兰人道救援行动客服组使用的邮箱被Godaddy公司无故封杀。 救援行动小组紧急启用备用邮箱及联系方式，请以郭文贵先生gettr发布为准。并请广泛传播。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-20.jpg)
+数日前，小王子收到Godaddy公司邮件，要求小王子证明他是本人，并要求他证明由他购买并捐赠给救援行动组的网站域名和邮箱所用的信用卡是他本人所有。小王子立即提供了其要求得所有身份文件及书面声明。但是，乌克兰救援行动的专用邮箱账号仍被停用，不能登陆。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-36.jpg)
+Godaddy公司客服人员在收到小王子资料后，表示会尽快回复，但小王子当再联系时，客服人员又表示没有收到资料，要求再次提供，如此反复，小王子经过整晚的努力，共提供了十几次资料后，再追踪客服时，客服人员竟然拒绝接听小王子电话。
 
-拜登在声明中宣布了第一个”全政府”的联邦政策，通过指导政府机构采取一系列围绕金融稳定、非法金融、金融包容性和投资者保护的措施，来”应对加密货币的风险并利用其潜在利益”。 该命令指示美国政府”紧急”研究和开发潜在的美国中央银行数字货币，并要求金融稳定监督委员会识别和减轻加密货币带来的任何系统性金融风险，制定适当的政策建议以解决任何监管漏洞。同时指示商务部建立一个框架，以帮助政府机构将数字资产技术纳入其政策、操作方法和研究与开发。
+Godaddy公司在明知法治基金和新中国联邦在进行乌克兰紧急人道救援行动的情况下，仍然无正当理由停用救援网站和联系邮箱，他们的行为严重干扰了新中国联邦和法治基金的救援工作。乌克兰前线战况瞬息万变，及时沟通非常重要，他们的阻挠极有可能使得在战区的等待被救援人员与救援小组间的联系中断，造成本不会发生的人员伤亡。
 
-同时，泰国内阁8日放宽了对数字资产投资的税收规定。泰财政部长表示，新规则将允许交易者用数字货币投资的税收收益来抵消年度损失，并免除授权数字货币交易 7% 的增值税。
+Godaday公司封杀对乌克兰战区紧急人道救援网站域名及邮箱的行为，如同屠杀，是反人类的行为。如果造成前线救援人员及被救援人员生命财产损失，不排除其会被采取法律行动，追究其责任。
 
-而在实际应用中，自俄乌战争爆发以来，乌克兰的一些军备供应商筹集了价值超过6000万美元的数字货币，并将其中一些资金用于燃料、食品和其他军备的购买。乌克兰数字化转型部长兼副总理博尼雅科夫认为，数字货币是一种比银行转账更灵活、更便宜的工具。
+Godaddy公司操作手法与中共非常相似，不得不让人怀疑它背后隐藏着中共的身影。在Godaddy 停掉救援邮箱的同时，You Tube 公司禁止了郭文贵先生账号上传视频。自乌克兰紧急人道救援行动开始以来，中共对新中国联邦的人道救援行动进行了频繁地干扰，造谣，污蔑，并骚扰客服救援电话，多名客服人员的手机和电脑遭到黑客攻击。
 
-链接：
+前线救援及后方救援都是战场，救援行动小组对此早有预案，救援行动仍在积极有效开展。
 
-- [Biden’s Crypto Executive Order Puts ‘Urgency’ On Digital Dollar Research And Fuels Bitcoin, Ether Prices](https://www.forbes.com/sites/jonathanponciano/2022/03/09/bidens-crypto-executive-order-puts-urgency-on-digital-dollar-research-and-fuels-bitcoin-ether-prices/?sh=14f423c33bbd)
-- [Ukraine Is Buying Bulletproof Vests and Night-Vision Goggles Using Crypto](https://www.coindesk.com/policy/2022/03/07/ukraine-is-buying-bulletproof-vests-and-night-vision-goggles-using-crypto/)
-- [Thailand approves relaxed tax rules for digital assets](https://www.reuters.com/markets/funds/thailand-approves-relaxed-tax-rules-digital-assets-2022-03-08/?rpc=401&amp;)
+新中国联邦及法治基金的救援行动组做好了应对中共更多打压及破坏的准备，但绝不会退缩，不会放弃任何一个生命，将救援每一位需要帮助的人。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-总编：雪梨
-编辑：宁文静
-审核：木木
-校正/发稿：海阔天空1
+文字版原文：[Godaddy公司背后隐现中共黑手](https://gnews.org/zh-hans/2139525/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

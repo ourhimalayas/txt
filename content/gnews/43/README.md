@@ -2,37 +2,24 @@
 ---
 
 
-## 豪华帐篷暂为难民提供安身之所
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2148325/)
+## 中日财经爆|美国宣布将取消俄罗斯贸易最惠国待遇
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2149376/)
 
-作者：纽约香草山农场-文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-除却食物方面的改善外，据新中国联邦和法治基金前线直播团队在波兰梅蒂卡救援站发回的消息显示，经过救援团队日以继夜的工作，占地250平米的豪华七星级救助帐篷目前已经搭建完毕，将从即日起投入使用，为更多的难民提供舒适的休息区。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-76.png)[图片来源](https://www.hongruimy.com/a/34751)
+美国总统拜登于星期五（3月11日）宣布，由于俄罗斯入侵乌克兰，美国、欧盟和七国集团（G7）将暂停与俄罗斯的正常贸易关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-2.jpeg)
+撤销俄罗斯的“最惠国”贸易地位，意味着美国及其盟国能够启动对许多俄罗斯商品征收关税的程序，从而进一步削弱俄罗斯经济。对此，国际货币基金组织预测，俄罗斯经济今年将陷入“深度衰退”。美国官员也表示，各国都必须按照各自国内的程序来改变俄罗斯的贸易地位。
 
-前线记者表示，这一豪华帐篷高大、宽敞、明亮，且内部功能区域划分明确，还专门设有用餐区以及配备了高规格取暖设备的休息区。
+拜登在白宫宣布这一消息时说：“这将使俄罗斯更难与美国做生意，而且这是与其他国家的统一行动。这些国家加起来占全球经济总量的一半。这将是对俄罗斯经济的又一次毁灭性打击。他们的经济已经受到我们制裁的严重影响”。
 
-对此，郭文贵先生在3月11日的大直播中特别高兴地赞叹，新中国联邦和法治基金在乌克兰的救援行动已经达到了国际一流的水准。
+美国及其盟国此前已经针对俄罗斯实施了一系列前所未有的制裁以及出口和银行限制，以此施压俄罗斯总统普京结束对乌克兰的战争。这是二战以来欧洲发生的最大战争。
 
-据悉，法新社的著名战地摄影记者路易莎-古里亚马基也对这个全营地最大、最好的帐篷感到非常好奇。在参观完新帐篷的内外设施后，路易莎非常感慨谈及，新中国联邦和法治基金的这项救援工作真是令人叹服。而在得知救助团队还会为所有人员准备现磨、现煮的 “新中国联邦咖啡”后，路易莎非常开心地表示一定会专门前来品尝。
+消息来源:[拜登宣布将取消俄罗斯贸易最惠国待遇](https://www.voachinese.com/a/biden-calls-for-suspension-of-normal-trade-ties-with-russia-20220311/6481151.html)
 
-参考链接：[这个帐篷是整个难民营里面设置是最好的](https://www.gettr.com/post/pzhyjy649e)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
-
-总编：Irene木木
-编辑：Ivy001
-审核：Irene木木
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/逢⑦必变
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

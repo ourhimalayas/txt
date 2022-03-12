@@ -2,46 +2,34 @@
 ---
 
 
-## 有声|2022年2月国际社会对中共的打击制裁汇总与分析
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2151949/)
+## 中日财经爆┃经济制裁让俄罗斯的失业率飙升
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2152110/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据不完全统计，在2022年2月，国际社会对中共的打击制裁共计12次。其中，美国发起7次、欧洲3次、印度2次。制裁人员包括习近平，和中共最重要的全国代表大会所有官员，制裁范围涉及中共的军事、教育、科技、通讯等领域。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-16.jpg)
-国际社会对中共的打击制裁有如下四种：
+撰稿：东京樱花团/道来
 
-一、4次议会提案，包括《堵住解放军漏洞法》《制裁中共法》《禁止中国共产党出乎当事方意料法》《保护高等教育免受中共影响法》；
+![](https://assets.gnews.org/wp-content/uploads/2022/03/经济制裁让俄罗斯的失业率飙升.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg95.699pic.com%2Fphoto%2F30685%2F7843.jpg_wh300.jpg&amp;imgrefurl=https%3A%2F%2F699pic.com%2Ftupian%2Fshiyelv.html&amp;tbnid=PxNoUCHU57qQLM&amp;vet=12ahUKEwj13ojN2sD2AhVVzioKHSBsBlgQMyheegUIARCfAQ..i&amp;docid=q9KP3CpGbyxgZM&amp;w=464&amp;h=300&amp;q=%E5%A4%B1%E4%B8%9A%E7%8E%87&amp;ved=2ahUKEwj13ojN2sD2AhVVzioKHSBsBlgQMyheegUIARCfAQ)
 
-二、3次议会决议，美国众议院通过《2022年美国竞争法》、欧盟执委会公布《欧洲晶片法案》、爱尔兰参议院通过决议“认定中共在新疆犯有种族灭绝罪”；
+全球许多国家公布了对俄罗斯经济制裁的政策来对抗俄罗斯对乌克兰发动的军事战争。据报道，目前已超出了330公司宣布暂停或退出在俄罗斯的相关业务，这将促使俄罗斯的失业率上升。
 
-三、4次针对中共企业的具体制裁，其中美国发起2次，印度2次；
+许多全球化企业如麦当劳，宣布在俄将暂停850店铺，这将导致62000人员失业。百事公司在俄的业务调整将会带来约20000人员失业。
 
-四、1次对中共发起的法律诉讼，即欧盟委员会代表27个成员国在世贸组织对中共发起诉讼。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2经济制裁让俄罗斯的失业率飙升2.png)[图片来源](https://cdn.statcdn.com/Infographic/images/normal/27023.jpeg)
 
-其中，对中共的打击制裁最有威慑力的法案是《制裁中共法》，对中共芯片行业的制裁最有影响力的是《2022年美国竟争法》和《欧洲晶片法案》。
+根据2022年2月最新统计，日本约有350家在俄罗斯的企业，包括制造业，贸易商社，金融，保险，运输和通信行业。有约80家企业业务受到战争带来影响，宣布宣布将缩小或停止在俄业务。如索尼，优衣库，资生堂等企业调整线上线下业务或暂停业务。丰田，日产，三菱等日本汽车制造企业宣布在俄汽车生产工厂停产。这些都会使俄罗斯失业人员的增多。
 
+随着俄罗斯对乌克兰的持续军事进攻，越来越多的企业对俄罗斯失去信心。失业人员逐渐增多将不可避免。
 
+信息来源：
 
-文字版原文：[2022年2月国际社会对中共的打击制裁汇总与分析](https://gnews.org/zh-hans/2141743/)
+[https://www.statista.com/chart/27023/employees-of-companies-withdrawing-from-the-russian-market/](https://www.statista.com/chart/27023/employees-of-companies-withdrawing-from-the-russian-market/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+[https://www.tdb.co.jp/report/watching/press/pdf/p220213.pdf](https://www.tdb.co.jp/report/watching/press/pdf/p220213.pdf)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[https://www3.nhk.or.jp/news/html/20220311/k10013527281000.html](https://www3.nhk.or.jp/news/html/20220311/k10013527281000.html)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

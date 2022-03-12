@@ -2,32 +2,42 @@
 ---
 
 
-## 报告显示 完全接种疫苗者最终会丧失免疫功能
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2151709/)
+## 泽连斯基：乌克兰处于“转折点”俄罗斯人在基辅附近重新集结
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2152025/)
 
-翻译：冰糖葫芦喵
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image001-3.jpg)
+2022年3月12日，据路透社报导，俄军攻势如今已进入第3周，泽伦斯基以一连串演说凝聚民心。他说，乌克兰**“**已达到战略转折点」，「不可能说得出我们还要几天才能解放乌克兰的土地，但我们能说我们会做到。我们已持续迈向目标，迈向胜利。**”**
 
-编辑与校对：冰糖葫芦喵
+俄军轰炸各地城市，似乎正重整旗鼓，可能攻击乌克兰首都基辅，卫星影像显示俄炮兵持续开火逼近。
 
-《真相卫报》3月12日报道，**最新的英国公共卫生部门关于中共病毒病例的疫苗监测报告显示，40-70岁的接种人群已经丧失了40%的免疫系统能力。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/疫苗-e1647093021816.jpg)图片源自本文
-据报道，完全接种疫苗的人的免疫系统每周下降5%，如果这一趋势继续下去，那么30-50岁的人的免疫系统将会100%退化，直到圣诞节前都不会有病毒防御。
+俄罗斯乌克兰2月24日开战，今天进入第17天。
 
-根据每四周一次的疫苗监测报告显示，中共病毒疫苗对免疫系统造成的渐进损害。40-69岁的人的免疫系统能力下降了40%，每周下降3.3%。
+为加大对莫斯科的压力，美国总统拜登11日表示，七大工业国集团（G7）将取消俄罗斯最惠国待遇，这意味华府将能调高对莫斯科商品关税，重创俄罗斯经济，使其为军事入侵乌克兰付出代价。
 
-**30岁以上的人将在6个月内丧失免疫能力。30-50岁的人直到圣诞节前都会失去这种能力。**
+欧洲联盟执委会主席范德赖恩表示，即将提出第4波制裁进一步孤立俄罗斯，她说，当炸弹伤害乌克兰人民时，推动战争者不该再享受奢侈生活，将禁止欧盟国家向俄国出口欧盟的奢侈品等。
 
-加强针和疫苗的效果是一样的，因为试验性的，所以疫苗副作用。我们在上面告诉过你，**如果你注射了加强针，你会更快地患上获得性免疫缺陷综合症。**
+[【援引连结】](https://www.reuters.com/world/europe/ukraine-turning-point-zelenskiy-says-russians-regroup-near-kyiv-2022-03-12/)
 
-根据报道表明**，中共病毒疫苗随着时间的推移而失去效力，但它们会损害免疫系统，直到接种疫苗的人完全丧失免疫系统。**
+**推出问题，敲出真相，爆料在路上！**
 
-新材采集：文逗
+**请关注和订阅我们的以下账号：**
 
-新闻来源链接：
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
 
-[Government Reports State The Fully Vaccinated People Develop Acquired Immunodeficiency Syndrome! – The True Defender !](https://thetruedefender.com/government-reports-state-the-fully-vaccinated-people-develop-acquired-immunodeficiency-syndrome/?fbclid=IwAR0lMACqs0nxBIDsm1DHw2u_DysEorRAuvln8IjqVMzONoaJDtpKn_bn1aA)
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
 
+**玫瑰看新闻YOUTUBE账号**：
 
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 
