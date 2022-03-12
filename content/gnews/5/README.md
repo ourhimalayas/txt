@@ -2,49 +2,26 @@
 ---
 
 
-## 记录战友的辛苦
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2152589/)
+## 西班牙全科医生发现注射了第三剂新冠疫苗之后，在颈部和腋部出现大量腺病
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2152682/)
 
-作者：香草山健身部-新世界的一员
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3296C8D0-70CE-4DD5-BEA8-AA261877AD14.jpeg)
+#### 翻译                       意大利达芬奇农场                             小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-12-alle-16.41.08.png)图片来源：eventiavversinews.it
+西班牙当地报纸《Levante-EI Mercantil Valenciano》报道称，据巴伦西亚全科医生们称，在接种第三剂新冠疫苗后，爆发了新的不良反应，大约涉及到8%的接种者。
 
+是出现了结节，腋窝和颈部的腺病。
 
-救援的前线，梅迪卡，
-救援难民的工作渐入佳境。
-难民到达以后可以稍作休息，热的食物，水，保暖用品、宠物用品都应有尽有。
-新中国联邦搭建起超大的帐篷，
-以接待更多的难民。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0DCCC501-45CD-4FB8-99F0-7B057A543FB3.jpeg)
-战友在救援中表现了无私无我的精神，
-文科战友累到呕吐，生病，
-所幸已有好转，
-荷兰战友开了20几个小时的车，
-只为前线送来自制的米饭和菜，
-战友们吃到了久违的中国饭菜。
-吃出幸福的滋味，
-明道战友负责现场的直播工作，
-从早上到的最早，到晚上走的最晚，
-中间十几个小时站在零下温度的寒风中工作，
-一口大锅战友密切配合，还照顾战友的身体，
-亲煮姜汤送暖，
-尽管战友们的直播器材很简单，
-但一天连续几场前线救援直播，
-给后方战友发回最新的救援讯息，
-保持着我们爆料革命的唯真不破。
-Nicole战友绝口不提辛苦和劳累，
-她说的最困难竟然只是内急，
-因为有几个流动厕所，
-但当地日流动人口达到几十万，
-厕所根本无法使用。
-战友们只能尽量少喝水，
-晚上离开的时候女孩子都是互相结伴去大自然中解决。
-尽管现场条件如此艰难，
-但是没有一个战友有丝毫的抱怨。
-这种无我精神是新中国联邦人最好的写照。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
-编輯/校正/发稿：玫瑰圓
-![](https://assets.gnews.org/wp-content/uploads/2022/03/40A63979-B746-4334-BFD8-F134630392A6.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/DFFC85C3-5506-4BF9-BDEE-A0E3AE3E71E0.jpeg)
+事实上，这些结节是位于这些区域的淋巴结的炎症，并且恰恰在最接近疫苗注射区域的淋巴结，这些炎症最恰当的名字就是腺病，引起腺病的原因是多种多样的。由于疫苗对免疫系统造成的刺激而造成肿大。
 
+淋巴结的功能是过滤和排除身体某些部位的淋巴液。淋巴中含有白细胞，正是由于这些白细胞浓度异常，才会发生炎症， 这些肿块出现在腋窝或颈部区域。
+
+当然淋巴结肿大可能是对感染的反应或癌症等更严重疾病的症状。在注射了新冠疫苗的情况下，炎症与感染的状况非常相似。免疫系统对疫苗产生反应并受到过度刺激， 导致白细胞在最靠近受到攻击的区域的淋巴结中积聚， 在这种情况下是疫苗。这种白细胞在淋巴结中的积聚导致炎症并出现肿块。
+
+第三次注射后腺病病例增加过多，证明了免疫系统在这种情况产生了严重的炎症。
+
+原文链接：[https://www.eventiavversinews.it/spagna-nella-comunita-valenciana-i-medici-di-medicina-generale-riscontrano-un-alto-numero-di-adenopatie-dopo-la-terza-dose-sul-collo-e-sotto-le-ascelle/](https://www.eventiavversinews.it/spagna-nella-comunita-valenciana-i-medici-di-medicina-generale-riscontrano-un-alto-numero-di-adenopatie-dopo-la-terza-dose-sul-collo-e-sotto-le-ascelle/)
+
+编辑、上传： Xiao  baige
 
  
 
