@@ -2,32 +2,25 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月11日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2148306/)
+## 【G时新闻】联合国：已有250万乌克兰人逃离家园
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2148359/)
 
-作者：香草山翻译部
+播报：加拿大温哥华杨帆农场 – 文广
+视频制作：加拿大温哥华杨帆农场 – 文所未闻
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-4.jpg)
+早报讯）联合国周五（3月11日）最新数据显示，自俄罗斯2月24日入侵乌克兰以来，已有约250万人逃离乌克兰。另外，有200万人因战争而在国内流离失所。
 
+法新社报道，联合国难民总署署长格兰迪将乌克兰大规模流离失所归咎于所谓的“毫无意义的战争”。格兰迪在推特上说：“不幸的是，来自乌克兰的难民人数今天已经达到了250万。”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-8.png)
-校对：Stay文苑
+他说：“我们还估计约200万人在乌克兰境内流离失所。数百万人因这场毫无意义的战争被迫离开家园。”
 
-编辑：Stay文苑
+联合国国际移民组织发言人狄龙则说，逃离乌克兰的250万人中包括11.6万名来自其他国家的国民。联合国难民署估计，随着战事持续，最终可能有400万人离开乌克兰。
 
-发稿：Stay文苑
+核对/发稿：青青
 
-新闻：[https://gettr.com/post/pzjcja0896](https://gettr.com/post/pzjcja0896)
-访谈：[https://gettr.com/post/pzjyew582d](https://gettr.com/post/pzjyew582d)
+原文链接 https://gnews.org/zh-hans/2144316/
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+盖特链接：https://gettr.com/post/pzi79x5166
 
  
 

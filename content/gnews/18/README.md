@@ -2,36 +2,72 @@
 ---
 
 
-## 波兰汽车租赁公司老板被志愿者感召加入救援队伍
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2148274/)
+## 韩国保守派政治新人赢得总统选举
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2148345/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-整理/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-12_10-45-53.png)图片来源：郭文贵先生盖特视频截图
+作者：MOS—柳是多水土透
 
 
-根据3月11日新中国联邦和法治基金前线记者报道，波兰当地一位汽车租赁公司老板得知很多新中国联邦和法治基金的志愿者来自加拿大和美国后，受到感召加入救援队伍。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-62.png)
+韩国保守派反对党候选人尹锡悦在周四赢得选举，他将在未来5年的任期内领导亚洲第四大经济体。尹今年60岁，曾在现任总统文在寅政府中任职总检察长。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3HVAG2GZMJNR7AJSGH5QAIRAQU.jpg)图源路透社
+尹锡悦隶属于人民力量党，得票48.6%，略高于执政民主党李在明，李得票47.8%。本次大选为韩国近代史上竞争最激烈的一次大选。当地时间早上5:30在99.8%的选票统计完毕后，李承认败选并祝贺尹成为候任总统。尹将于本月履新接替宪法任期限制的文在寅。
 
-这位波兰志愿者名字叫皮特，来自波兰的克拉科夫市。皮特是当地一家租车公司的老板。
+以下是竞选期间，尹做出的政策承诺：
 
-当时，新中国联邦和法治基金志愿者打电话想从皮特的公司租车。当他听到志愿者做的是人道主义救援行动的，他提出要跟志愿者一起参加救援行动。随之，皮特陪同新中国联邦和法治基金的加拿大志愿者，从克拉科夫到新中国联邦和法治基金在梅迪卡的营救中心。期间，皮特不但给新中国联邦和法治基金志愿者带路，而且还帮忙翻译。
+1.经济
 
-皮特分享了自己加入新中国联邦和法治基金救援团队的感受。因为皮特去过中国三四次，对中国人有所了解。他觉得中国人非常友好，中国人互相协作、乐于助人。皮特认为这次营救行动非常棒。当他得知新中国联邦和法治基金的志愿者来自加拿大和美国后，就觉得自己也应该过来帮忙。这也是他加入救援队伍的主要原因。
+支持市场经济，以私营企业而非政府工程创造就业，减少对公司的政策管制，并对数字资产行业去监管化，400亿美元救援资金帮助受疫情影响的小型企业。
 
-本次乌克兰救援行动由法治基金资助。法治基金是一家位于纽约的非营利组织，为所有人提供人道援助。这次，法治基金派遣了来自北美和欧洲的志愿者，来到波兰的难民营帮助乌克兰人和所有人。
+2.税收
 
-资料来源：[郭文贵先生2022年3月11日盖特视频](https://www.gettr.com/post/pzjpgr741d)
+降低资本利得税和不动产税，以增加房产交易，将数字货币投资的个税起征点由250万提升至5000万韩元（约4万美元）。
 
-发布：tianzhihuan
+3.房地产
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+降低政府监管，由市场原则引导地产发展，5年内创造250万套新房，其中50万在首尔市。
+
+4.北韩
+
+重启无核化谈判，增加军事开支，强化美韩关系，对北魁超音速导弹保留先发制人打击选项，建立美日韩三方会谈机制，剔除原5方会谈的中俄。
+
+5.外交
+
+购买更多的美萨德导弹系统压制北魁军，加入美澳日印四方（Quad）会议，“重置”与中共关系。
+
+6.性别
+
+废除“性别与家庭部”。
+
+参考来源：
+
+1.[S.Korea elects conservative outsider as president in tectonic shift](https://www.reuters.com/world/asia-pacific/south-korean-conservative-opposition-candidate-yoon-elected-president-2022-03-09/)
+
+2.[Factbox: Where S.Korea’s conservative president-elect Yoon Suk-yeol stands on the issues](https://www.reuters.com/world/china/where-skoreas-conservative-president-elect-yoon-suk-yeol-stands-issues-2022-03-09/)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-31.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-63.png)
+
+
+
 
  
 

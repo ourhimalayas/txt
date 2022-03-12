@@ -2,8 +2,8 @@
 ---
 
 
-## 阻止救人信息等同屠杀
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2148545/)
+## 医生勇敢说出研究结果竟被惩罚
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2148656/)
 
 台灣寶島農場
 

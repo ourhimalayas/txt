@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 4:38 AM (UTC)`
+
+【Ukraine Rescue】03/11/22 Fellow fighter Nicole interview two journalists from Poland who volunteered to make a documentary on the rescue volunteers at the Ukraine-Poland border. They realized the difference between the citizens of the NFSC and the CCP and expressed their gratitude to the volunteers of the NFSC and the donors of the ROLF.          <br/><br/>【乌克兰救援】03/11/22  妮可战友采访了波兰的两名为救援义工自发拍摄纪录片的记者，她们明白了新中国联邦人与中共的不同，并对新中国联邦志愿者和法治基金捐款者表示感谢。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group12/getter/2022/03/12/04/90a464c8-0694-c230-3a1a-9e986101e21b/out.jpg)
+
+---
+
 `@miles 3/12/2022 3:49 AM (UTC)`
 
 3/11/2022 Miles Guo: It took the CCP 100 years to destroy the thousands of years of civilization and the decent image of the Chinese people, but the New Federal State of China, the Rule of Law Foundation, the Rule of Law Society, and our frontline fellow fighters are proving to the world that the Chinese are not sick men of Asia, instead we are pursuing justice, and we are peace-loving and capable of engaging in the humanitarian assistance and rescue.<br/><br/>3/11/2022 文贵直播：中共用了100年将中国人千年文明和形象全毁；但新中国联邦、法治基金和前线的战友们向世界证明了，中国人不是东亚病夫，我们爱好正义、和平并有能力参与人道救助<br/>
@@ -146,13 +153,6 @@ According to Newsmax, Russian troops appear to be stepping up the violence of th
 
 Russia expert Leon Aron discusses how failed military defeats have toppled previous Russian regimes and why the war in Ukraine could ‘undermine Putin’s regimes very severely’ as the truth about the invasion and deaths of Russian soldiers begins to trickle into Russia<br/><br/>俄罗斯专家莱昂·阿隆讨论失败的军事行动如何推翻了曾经的俄罗斯政权，以及乌克兰战争为什么会“非常严重地削弱普京政权”，因为入侵乌克兰的真相和俄军士兵的死亡开始逐渐传入俄罗斯
 ![img](https://media.gettr.com/group6/getter/2022/03/11/22/eadeca9f-b02e-fe6a-a63a-2d9bdd5f6f14/out.jpg)
-
----
-
-`@miles 3/11/2022 10:13 PM (UTC)`
-
-<br/>3月11号：战争中的温暖．黑暗中的智慧的火光……人类的希望……新中国联邦。
-![img](https://media.gettr.com/group42/getter/2022/03/11/22/631a0bce-dfc5-5204-1780-d33a02a73276/8876bb684f46060753e626bc8c8c4114.jpg)
 
 ---
 
