@@ -2,39 +2,39 @@
 ---
 
 
-## 俄罗斯对乌克兰大范围导弹袭击，军用机场再遭轰炸
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2149566/)
+## 外媒再度披露俄军在乌克兰前线暴行
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2149613/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：日本方舟农场 Andy5 / Miyali7768(文玉）/纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月10日，据多家国际媒体报道，随着俄罗斯的入侵战争进入了第十五天，其暴烈的军事行动已经导致超过两百万乌克兰难民流离失所，这当中还包括一百余万乌克兰儿童。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-12-上午2.18.45.png)
+数据显示，乌克兰目前已有37名儿童在战争中死亡，超过50名儿童受伤。然而，此前一天，俄罗斯军队仍然违背在马里乌波尔停火的承诺，炮火轰炸了当地的一所儿童医院，造成17人受伤。另据前线流出的视频显示，出于对乌克兰市民反抗的不满，一名俄罗斯将领下令屠杀乌克兰某城镇的所有居民，甚至为此射杀任何试图违令的俄军士兵。
 
-整理/编辑：围剿维尼熊
+据悉，国际社会对此表达强烈的谴责。各国政要纷纷强调，俄罗斯军队针对乌克兰医院、供水、卫生设备和校园等基础设施的攻击是极其不道德的，其对包括当地儿童在内的平民施以军事手段的残忍攻击也必须立刻停止。而俄罗斯的多数前线士兵也表示，俄罗斯没有理由在乌克兰的领土上战斗。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/20.jpg)图片来源：腾讯网&雅典娜设计组
+目前，俄罗斯正在试图对乌克兰首都基辅展开包围作战。但是，乌克兰军队的顽强抵抗和近期严寒的天气正在迅速地消耗着俄军的燃料和补给品。
 
+参考链接：
+1.[https://www.gettr.com/post/pz7d4y4965](https://www.gettr.com/post/pz7d4y4965)
+2.[乌克兰指俄军轰炸一妇幼医院 至少17人受伤](https://www.8world.com/world/ukraine-says-russia-bombed-childrens-hospital-in-besieged-mariupol-1750116)
+3.[无差别轰炸乌克兰妇幼医院，哲连斯基怒斥“孩子跟孕妇威胁俄罗斯了吗，这什么国家！”](https://www.storm.mg/article/4232407)
+4.[裝甲車變冰箱、車內士兵凍死… 專家：俄軍車隊恐被酷寒毀滅](https://news.ltn.com.tw/news/world/breakingnews/3854647)
 
-根据大纪元3月12日讯，周五（3月11日）凌晨，俄罗斯对乌克兰进行多次大范围导弹袭击，攻击目标包括乌克兰西部军用机场，并首次袭击乌克兰中部城市第聂伯罗（Dnipro）。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
-美国有线电视新闻网（CNN）报导，乌克兰西北部城市卢茨克（Lutsk）的机场遭到俄军袭击，受损严重。卢茨克市所在的伏林州（Volyn）州长表示，机场遭到四枚导弹袭击，造成两人丧生。
+总编：宁文静
+编辑：静言/Irene木木
+审核：飞虹/Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-在卢茨克市以南150英里处的伊万诺-弗兰科夫斯克市（Ivano-Frankivsk），军用机场冒起浓烟。该机场也曾在战争爆发首日遭到俄军袭击。
-
-俄罗斯国防部发声明说：“3月11日早间，俄方高精准远程武器袭击了乌克兰卢茨克市和伊万诺-弗兰科夫斯克市的军用设施，那里的军用机场停用。”
-
-乌克兰中部城市第聂伯罗（Dnipro）及其附近区域也遭到空袭，受到严重损毁。乌克兰国家紧急服务部门在官方电报频道中表示，空袭造成一人丧生，其中一次袭击的地点附近有幼儿园和民宅。
-
-联合国人权事务高级专员办事处（OHCHR）周五表示，乌克兰死亡人数持续增加，民众陷入苦难。该机构呼吁俄军立即停止战争。
-
-参考链接：[https://www.epochtimes.com/gb/22/3/11/n13639970.htm](https://www.epochtimes.com/gb/22/3/11/n13639970.htm)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

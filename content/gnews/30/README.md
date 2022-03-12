@@ -2,31 +2,31 @@
 ---
 
 
-## 一个乌克兰家庭的故事
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2149333/)
+## 乌克兰准备将敏感数据转移到另一个国家
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2149334/)
 
-作者：纽约香草山福音部 – qiutian（邱甜）
+作者：纽约香草山教育部 – Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-周日，由于遭遇俄罗斯迫击炮，有四个人躺在基辅郊区 Irpin 的一个十字路口附近。
+3 月 9 日（路透社）- 一名高级网络安全官员周三告诉路透社，如果俄罗斯入侵部队深入该国，乌克兰政府将准备将其数据和服务器转移到国外。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/捕获-5.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-70.png)
 
-当迫击炮弹落下时，一队时报记者恰好在附近，其中一位名叫 Lynsey Addario 的记者拍下了这家人的照片。 “我想，你知道，拍照是不尊重的，但我必须拍照——这是战争罪，”林西告诉哥伦比亚广播公司晚间新闻。 “我认为让世界各地的人们看到这些图像真的很重要。”
+乌克兰国家特别通信和信息保护局副局长维克多-佐拉表示，如果俄罗斯拥有乌克兰政府数据库和情报文件，战局将会对乌克兰更为不利。佐拉表示他的部门正在为这种紧急情况进行规划，为应对任何俄罗斯夺取敏感政府文件的威胁做好准备。
 
-在袭击发生后的几天里，我的同事写下了四名受害者的名字：Tetiana Perebyinis 和她的两个孩子，18 岁的 Mykyta 和 9 岁的 Alisa，以及 26 岁的 Anatoly Berezhnyi教会志愿者。
+从2月24日俄罗斯入侵乌克兰后，政府官员已经将设备和备份运送到俄罗斯军队无法到达的乌克兰更安全的地区。
+佐拉称，这一举措只有在乌克兰立法者批准监管变更后才会发生。
 
-Tetiana Perebyinis 是一名会计师，她的丈夫 Serhiy 是一名计算机程序员。几周前，在基辅局势恶化之前，Tetiana 的公司在波兰租用了房间，并鼓励员工使用这些房间。但 Tetiana 不想离开，直到她计划撤离患有阿尔茨海默病的母亲。最后，周日早上 7 点左右，Tetiana和她的孩子们开始了他们的旅程，而Serhiy则被困在乌克兰东部，照顾生病的母亲。
-
-Serhiy将他的妻子和孩子们安葬在乌克兰西部后，自己又回到了伊尔平帮助其他人撤离。
+佐拉表示，目前乌克兰已经收到了来自不同国家的数据托管提议，但他拒绝透露是哪些国家。他说，由于距离较近的原因，欧洲国家将会是首选。
 
 参考链接：
 
-- [Russia’s civilian attacks](https://www.nytimes.com/2022/03/10/briefing/russia-civilian-attacks-ukraine-war.html)
+- [Exclusive: Ukraine prepares potential move of sensitive data to another country – official](https://www.reuters.com/world/europe/exclusive-ukraine-prepares-potential-move-sensitive-data-another-country-2022-03-09/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-编辑/校正/发稿：海阔天空1
+编辑：雪梨
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

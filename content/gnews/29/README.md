@@ -2,31 +2,42 @@
 ---
 
 
-## 乌克兰准备将敏感数据转移到另一个国家
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2149334/)
+## 如何将俄罗斯踢出WTO, IMF, World Bank
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2149335/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：MOS – 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3 月 9 日（路透社）- 一名高级网络安全官员周三告诉路透社，如果俄罗斯入侵部队深入该国，乌克兰政府将准备将其数据和服务器转移到国外。
+二战带来的毁灭与重建过程中，美国及同盟建立了几个管理全球经济秩序的机构。任务是消除贫困，重建欧洲，和平解决贸易争端。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-70.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-129.jpg)
 
-乌克兰国家特别通信和信息保护局副局长维克多-佐拉表示，如果俄罗斯拥有乌克兰政府数据库和情报文件，战局将会对乌克兰更为不利。佐拉表示他的部门正在为这种紧急情况进行规划，为应对任何俄罗斯夺取敏感政府文件的威胁做好准备。
+1945年以来，首次欧洲大战在乌克兰爆发，一些西方国家正在讨论如何将俄联邦从世界贸易组织，国际货币基金组织，世界银行中踢出，作为发动侵略战争的惩罚。
 
-从2月24日俄罗斯入侵乌克兰后，政府官员已经将设备和备份运送到俄罗斯军队无法到达的乌克兰更安全的地区。
-佐拉称，这一举措只有在乌克兰立法者批准监管变更后才会发生。
+IMF
+乌克兰和俄国在苏联解体后的1992年加入IMF，但由于协议条约中不含武装冲突条款，所以退出机制仅限于莫斯科不提交储备资产，贸易，外汇等经济数据。
 
-佐拉表示，目前乌克兰已经收到了来自不同国家的数据托管提议，但他拒绝透露是哪些国家。他说，由于距离较近的原因，欧洲国家将会是首选。
+如果违规发生并且没有改正，有70%投票权的成员国可以在“合理时限”后，暂停俄罗斯投票权，经过下一个“合理时限”后，80%的多数派可以强制俄国退出该组织。
+
+WTO
+美国和欧洲盟友同时在检视暂停俄“最惠国待遇”的方法，成功后将允许施加显著高于WTO成员的关税。
+
+美国法律规定，取消最惠国待遇需国会授权。周五提交表决的预算法案中，排除了取消俄永久贸易正常关系条款，但授权对俄WTO成员资格进行复核。
+
+俄在19年谈判后，于2012年加入WTO。由于没有开除条款，取消成员资格将极为困难。WTO需要66%多数派同意创建此程序，然后由75%多数投票移除俄国。历史上多数决定由其164个成员国一致同意后通过，这种非投票性过程消解了结构性改变。
+
+WORLD BANK GROUP
+战争开始后，世界银行已经停止了所有俄国和白俄罗斯项目，含对白俄新冠紧急救援贷款5亿1100万美元。
+
+如果俄未能完成世行协议条款中的义务，多数投票股东可以暂停莫斯科的会员资格，一年后如果没能逆转将会自动开除。
 
 参考链接：
 
-- [Exclusive: Ukraine prepares potential move of sensitive data to another country – official](https://www.reuters.com/world/europe/exclusive-ukraine-prepares-potential-move-sensitive-data-another-country-2022-03-09/)
+- [Explainer: Ousting Russia from WTO, IMF would mark end of an era](https://www.reuters.com/markets/asia/ousting-russia-wto-imf-would-mark-end-an-era-2022-03-09/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-编辑：雪梨
-校正/发稿：海阔天空1
+编辑/校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

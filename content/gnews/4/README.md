@@ -2,28 +2,24 @@
 ---
 
 
-## 中共病毒肆虐全国 上海告急！关闭学校 兴建医院
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2149591/)
+## 拜登说如果北约与俄罗斯冲突将是“第三次世界大战”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2149617/)
 
-翻译：Steven Hu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-65.jpg)
-图片来源：谷歌图片
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-23.jpg)
+图片来源：weareunited.com.my
 
-据彭博社报道，尽管有传言称北京可能会放弃其有争议的动态清零病毒政策，但随着奥米克绒（omicron ）变体在中国急速扩散，拥有近 2500 万人口的上海这个中国的金融中心城市已决定关闭学校并迅速建造医院。
+零对冲网3月11日报道，周五拜登在关于俄乌战争问题的讲话中要求中止与俄罗斯的正常贸易关系，明确通过增加进口税，宣布阻止俄罗斯产的伏特加和鱼子酱的进口。
 
-这是自武汉以来的最近一次被称为“最严重”的爆发。截至周五已确认约 1,000 例国内病例，高于一周前的 300 例。 这是自武汉最初爆发后的两年来所记录的最高新病例数。
+但他讲话的最重要部分是拜登再次申明美国不会直接加入与俄罗斯的冲突，因为这会引发在北约和俄罗斯之间的“第三次世界大战”。
 
-但在上海周五报告的 75 例新冠病毒病例中，只有两例被认为是由社区传播引起的，这或许可以解释为什么当局尚未部署全市范围的检测。
+拜登说： “ 我们将继续与我们在欧洲的盟友站在一起，并传递非错误性信息，我们将保护每一寸的北约领土。但是我们不会在乌克兰战场上与俄罗斯打战，当北约和俄罗斯发生直接冲突时，就是第三次世界大战，这是我们要尽力预防的。”
 
-上海因奥米克绒变种的国内感染人数激增而受到影响，这就是为什么被认为是该市没有釆用严厉的封锁措施而受到的影响，而这些措施直到现在也大多只是用于较小的城市。
+有记者问：“如果普京用化学武器攻击的话，美国会不会有军事反应？”  拜登说：“如果他们用化学武器的话，俄罗斯将付出沉重的代价。”
 
-当局同时表示，他们将在周五晚些时候首次允许使用快速抗原检测。 虽然在世界其他地区广泛使用，但快速检测之前在中国受到限制。
+#### 新闻来源： [Biden: NATO-Russia Conflict Would Be “World War 3”, Warns Kremlin Of “Severe Price” If Chemical Weapons Used](https://www.zerohedge.com/geopolitical/biden-nato-russia-conflict-would-unleash-world-war-3-warns-russia-severe-price-if)
 
-与俄罗斯和朝鲜接壤的东北部吉林省爆发疫情，导致首都长春周五被封锁。
-
-从周六开始，上海的初中及以下学生将恢复远程学习。 中国航空当局也在考虑限制国际航班进入该市。 官员们指出，所有抵达中国的旅客都必须进行酒店隔离几周，然后才能获准出活动。
-
-原文链接：[https://www.zerohedge.com/markets/shanghai-shutters-schools-builds-hospitals-covid-comes-roaring-back-across-china](https://www.zerohedge.com/markets/shanghai-shutters-schools-builds-hospitals-covid-comes-roaring-back-across-china)
+#  
 
  
 
