@@ -2,8 +2,8 @@
 ---
 
 
-## 20220311郭文贵大直播 ：没有CCP，才有正义和平的幸福生活
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2150000/)
+## 20220311郭文贵大直播 ：美国将立法支持数字货币合法化
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2150033/)
 
 作者：东京樱花团小视频组
 

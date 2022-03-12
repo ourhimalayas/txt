@@ -2,39 +2,26 @@
 ---
 
 
-## 一个乌克兰家庭的故事
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2149333/)
+## 中日财经爆|美元兑日圆创五年来新高 报117.32日圆
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2149485/)
 
-作者：纽约香草山福音部 – qiutian（邱甜）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-周日，由于遭遇俄罗斯迫击炮，有四个人躺在基辅郊区 Irpin 的一个十字路口附近。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-35.png)[图片来源](https://www.voachinese.com/a/6462796.html)
+美元周五上涨（3月11日），兑避险日圆创下五年最高，在俄罗斯总统普京表示与乌克兰之间的谈判取得一些进展后，随即大宗商品相关货币大幅下挫。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/捕获-5.png)
+普京在与白俄罗斯总统卢卡申科的会晤中表示，与乌克兰的谈判出现了“一些积极的变化”，且谈判几乎每天都在进行。
 
-当迫击炮弹落下时，一队时报记者恰好在附近，其中一位名叫 Lynsey Addario 的记者拍下了这家人的照片。 “我想，你知道，拍照是不尊重的，但我必须拍照——这是战争罪，”林西告诉哥伦比亚广播公司晚间新闻。 “我认为让世界各地的人们看到这些图像真的很重要。”
+消息传出后，美元指数最初下跌，但随后逐渐恢复涨势，盘尾上涨0.76%，至99.11。本周势将上涨0.56%，上周上涨2%，为2020年4月以来的最大单周百分比涨幅。而美元兑日圆触及五年最高 ，日圆兑美元下跌1.03%，报117.32日圆。
 
-在袭击发生后的几天里，我的同事写下了四名受害者的名字：Tetiana Perebyinis 和她的两个孩子，18 岁的 Mykyta 和 9 岁的 Alisa，以及 26 岁的 Anatoly Berezhnyi教会志愿者。
+俄罗斯2月24日入侵乌克兰,造成市场受到干扰，导致大宗商品价格波动，进而威胁到全球经济增长前景。
 
-Tetiana Perebyinis 是一名会计师，她的丈夫 Serhiy 是一名计算机程序员。几周前，在基辅局势恶化之前，Tetiana 的公司在波兰租用了房间，并鼓励员工使用这些房间。但 Tetiana 不想离开，直到她计划撤离患有阿尔茨海默病的母亲。最后，周日早上 7 点左右，Tetiana和她的孩子们开始了他们的旅程，而Serhiy则被困在乌克兰东部，照顾生病的母亲。
+预期美国联邦储备理事会(美联储/FED)将在3月15-16日政策会议结束时开始升息，以遏制通胀，进而支撑美元的稳定。
 
-Serhiy将他的妻子和孩子们安葬在乌克兰西部后，自己又回到了伊尔平帮助其他人撤离。
+消息来源:[美元兑日圆创五年最高 乌克兰局势不确定性拖累欧元下跌](https://cn.reuters.com/article/global-fx-market-ny-0312-idCNKCS2L901W?il=0)
 
-参考链接：
-
-- [Russia’s civilian attacks](https://www.nytimes.com/2022/03/10/briefing/russia-civilian-attacks-ukraine-war.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-编辑/校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/逢⑦必变
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
