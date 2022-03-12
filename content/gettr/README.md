@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 2:05 AM (UTC)`
+
+3/11/2022 Miles Guo: Fellow fighter Nicole's personal experience shows that the CCP has ruined the image of the Chinese in the international arena and that only New Federal State of China and the Rule of Law Foundation have given us the opportunity to tell the world that the CCP does not represent the Chinese, and that the Chinese people are pursuing rule of law, freedom, and justice!<br/><br/>3/11/2022 文贵直播：Nicole战友用亲身经历说明中共毁掉了中国人在国际上的形象，而新中国联邦、法治基金给了我们机会告诉全世界中共代表不了中国人，中国人追求法治、自由和正义！<br/>
+![img](https://media.gettr.com/group38/getter/2022/03/12/02/fcc451d0-895a-267e-e75e-39b370f239e8/out.jpg)
+
+---
+
 `@miles 3/12/2022 1:36 AM (UTC)`
 
 2022.03.11 晚 《新中国联邦新闻》新中国联邦法治基金救援中心获最佳位置 引世人瞩目；新中国联邦与各类国际组织通力合作安置难民
@@ -148,13 +155,6 @@ As our NFSC & ROLF Ukraine Rescue efforts proceeds, we have witnessed so many ac
 
 波兰时间3月10日下午6:00 三位意大利赶来的志愿者，将一车物资，大部分为婴幼儿用品放在medyka 新中国联邦帐篷门口，并委托新中国联邦现场救援义工，将这些物品分发给难民。<br/><br/>#盘古时讯  <br/>#乌克兰 #救援 #人道主义 <br/>#新中国联邦
 ![img](https://media.gettr.com/group35/getter/2022/03/11/14/8e2ed116-c3a3-f639-0dd6-6b619634a389/out.jpg)
-
----
-
-`@miles 3/11/2022 4:40 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
-![img](https://media.gettr.com/group26/origin/2022/03/11/16/c646eef0-f311-18ec-f032-c6715b79d617/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

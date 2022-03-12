@@ -2,23 +2,28 @@
 ---
 
 
-## 梅蒂卡救援前线跟踪报道
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2146849/)
+## 法治基金的帐篷成为红十字会的中转
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2147043/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-60.png)
-前线记者：Nicole
+作者：来自梅蒂卡营地3月11日报道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-61.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-5-1.png)
+新的大帐篷迎来第一批妇女儿童
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-11-165614.jpg)
+ssf 是这边救援秩序的主要维护方，难民排队的围栏是他们在安排秩序，我们的场地也是在他们邀请下安排好的，我们现在和ssf是现场救援亲密的战友。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-11-165604.jpg)
 
-3月11日中午12点半梅蒂卡边境又迎来了一批乌克兰难民
 
-一个波兰租车公司的老板今天加入了法治基金新中国联邦的人道救援团队，他是波兰本地人（住在克拉科夫）战友们本来是打电话给他的公司要租车来梅蒂卡，他听说了我们是来救援的，就决定加入战友们，一起来梅蒂卡，他给战友们当翻译（正好我们缺翻译）在我们的营救中心帮忙。他去过中国，知道中国人的善良和友好，我们告诉他，中国人也希望能够像他的父辈一样早日脱离共产主义，获得自由。他很高兴今天能够和新中国联邦人一起参与这场人道主义的救援活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-11-161329.jpg)左三是波兰当地的租车公司老板，他跟咱们加拿大的战友们一起开了3个小时的车从克拉科夫赶到梅蒂卡难民营，他很高兴加入法治基金新中国联邦的人道救援团队
-左三是波兰当地的租车公司老板，他跟咱们加拿大的战友们一起开了3个小时的车从克拉科夫赶到梅蒂卡难民营，他很高兴加入法治基金新中国联邦的人道救援团队
+由于法治基金 新中国联邦的帐篷是难民营条件最好的，所以红十字会经过把孩子和他们的母亲安排在我们的帐篷里。这是新中国联邦跟红十字会第一次非官方合作，他们对法治基金表现了浓厚的兴趣。新中国联邦 就如帐篷外的篝火，照耀着黑夜，温暖着难民营里每个人内心的希望。
 
-来自前线战友Nicole的3月11号 梅蒂卡难民营的报道
+新中国联邦 在梅蒂卡难民营，燃起篝火，来自前站报道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1211.png)
 
-发稿：serena
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-29.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-30.jpg)
+
+
 
 
 

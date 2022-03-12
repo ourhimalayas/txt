@@ -2,23 +2,89 @@
 ---
 
 
-## 【#G时新闻】乌克兰要求欧美协助建立禁飞区
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2147610/)
+## 有声|定格二十五岁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2147767/)
 
-播报：加拿大温哥华杨帆农场 – 七彩虹
-视频制作：加拿大温哥华杨帆农场 – GraceIsha
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)![](https://cdn.discordapp.com/attachments/728490324502249522/951726783760326716/IMG_2402.png)
+在乌克兰土地上
 
-据【路透社】2月28日报道，乌克兰总统泽连斯基在俄军机无差别轰炸该国城市后要求国际社会为乌克兰提供针对俄罗斯的禁飞区，欧美及其盟国对此已初步达成了一致的支持。
+开放了生命之花
 
-报道称，俄乌双方日前进行的数小时停火谈判未能取得成功，俄军随即对拥有140万人口的[哈尔科夫]市发动猛烈空袭，并造成包括妇孺在内的大量平民伤亡。因此泽连斯基促请北约，应立即阻止俄罗斯的军机和导弹侵入乌克兰领空。
+定格二十五岁
 
-据悉，尽管美国已排除了直接派遣部队与俄军地面作战的可能性，但国际社会对普京威胁将使用核武器表示严重担忧。由于美方对乌克兰的禁飞区诉求表示支持，因此美军在执行此任务时，极有可能会造成美俄的直接军事冲突。
+为了祖国 献奉生命
 
-编辑核对/上传：青青
+保卫这片土地
 
-原文链接：https://gnews.org/zh-hant/2094586/
+我无比荣耀
 
-视频链接：https://gettr.com/post/pxvxlw3769
+把荣光还给乌克兰
+
+让父老乡亲平安健康
+
+如果我的生命
+
+能够换来侵略者失败
+
+那么
+
+请再让我牺牲一万次
+
+勇敢的乌克兰
+
+英雄遍地
+
+我们不会放弃
+
+保卫家人和土地
+
+定格二十五岁
+
+我含笑离去
+
+等到赶跑了侵略者
+
+请记得
+
+娜塔丽娅
+
+哈尔科夫的军士
+
+乌克兰土地上
+
+英雄遍地
+
+如果我的生命
+
+能够换来 赶跑
+
+侵略者
+
+我愿意
+
+再牺牲一万次
+
+
+
+文字版原文：[定格二十五岁](https://gnews.org/zh-hans/2142300/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

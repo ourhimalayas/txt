@@ -2,21 +2,25 @@
 ---
 
 
-## YouTube扩大制裁！在全世界封锁俄罗斯官媒频道
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2147645/)
+## 【#G时新闻】普京企图利用核讹诈对抗美欧经济制裁
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2147859/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0512ed4a-e839-4729-b599-43c891edb6e3.jpg)
-俄罗斯入侵乌克兰，战火延烧到第17天，国际社会扩大制裁俄罗斯。YouTube宣布，将在全球封锁俄国官媒「今日俄罗斯」（RT）和「俄罗斯卫星通讯社」（Sputnik）等俄罗斯官方资助的YouTube频道。
+主播：加拿大温哥华扬帆农场 – 文广
 
-新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022312W0012)
+视频制作：加拿大温哥华扬帆农场 – Gracelshan
 
-撰稿/发布：一叶知秋
+据外媒2月27日报道，普京已经下令俄罗斯核威慑力量进入高度戒备状态。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+据报道，普京在与高级官员举行的会议上说，北约主要大国发表了 “侵略性声明”，同时西方国家联合对俄罗斯实施了严厉的金融制裁。普京已命令俄罗斯国防部长和军方总参谋长，将核威慑力量置于 “特别战斗值班制度”中。普京以此暗示，会以核威胁来应对西方国家的制裁。
 
+郭文贵先生在27日大直播中特别强调，俄罗斯完全低估了乌克兰的实力，用最传统的战争方式进攻乌克兰，企图用最短的时间占领基辅，却遭到乌克兰人的顽强抵抗，使俄军损失惨重，也令世界跌破眼镜。俄方接下来会不惜一切代价，甚至可能动用核武器。如果不能停战，乌克兰的局势将会非常惨烈。
+
+编辑/上传：让子弹飞飞飞
+
+盖特链接：https://gettr.com/post/pxgdxp0863
+
+原文链接：https://gnews.org/zh-hans/2082305/
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
