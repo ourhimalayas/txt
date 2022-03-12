@@ -2,13 +2,15 @@
 ---
 
 
-## 日本对经济困难的留学生发放10万元补助
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2147434/)
+## SpaceX将重点转向乌克兰的星际链接，星际飞船的进展推迟了
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2147568/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7f228052af34309952b3f44f9ab5734e.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+制作：peacelv
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
