@@ -2,28 +2,79 @@
 ---
 
 
-## 用钢琴曲致敬所有法治基金捐款者
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2148983/)
+## 我本是个爱棒棒糖的女孩
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2149267/)
 
-作者：加拿大温哥华扬帆农场-晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1238.png)图片来源：Gettr
-据3月10日盖特直播报道，法治基金乌克兰人道救援行动波兰救援基地搭建起的临时难民营外，志愿者和义工们点燃了一堆篝火，篝火边聚拢了很多滞留在此取暖、过夜的难民。
+作者：香草山健身部 – 新世界的一员
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-13.png)
+我本是个爱棒棒糖的女孩，
 
-每当夜幕降临，德国战地钢琴家Davide Martello就开始为大家弹奏起乐曲，沉浸在美妙乐曲中的人们，或许可以暂时忘掉战争带来的伤痛。
+我本是个跟伙伴们玩游戏的女孩，
 
-当钢琴家认识现场救援人员并了解到法治基金是救援行动的组织者后，他欣然决定为法治基金所有捐款者演奏一曲《Somewhere Over the Rainbow》，以此向所有法治基金的捐款者表达敬意！
+我本是个坐在教室读书的女孩。
 
-当音乐再次响起时，大家又都静静地呼吸在乐曲声里。音乐超越国界直击心灵，期盼拯救战火中更多无辜的生命。人性的光辉在此刻是如此的闪耀，救援现场感人至深的这一幕将令很多在场的人终身难忘。
+可是这刻我的手里握着枪，
+![](https://assets.gnews.org/wp-content/uploads/2022/03/EEE7CB90-0477-4860-8BB5-68293744839C_4_5005_c.jpeg)
+眼里只有坚毅的勇敢，
 
-校对编辑：硫酸羟氯喹64
+都只为侵略者还在践踏我的家园。
 
-发稿：青青 晨熹
+我本是美丽的一朵花，
 
-新闻来源：[https://gettr.com/streaming/pywfu457e9](https://gettr.com/streaming/pywfu457e9)
+在爸爸妈妈爱的海洋，
 
+我本是邻居家乖巧伶俐的女孩，
 
+和伙伴们玩耍在草地上，
 
+我本是带着狗狗奔跑在阳光下的女孩，
 
+侵略者的铁骑摧毁了我喜欢的美好的一切，
+
+轰轰的炮火纷飞，
+
+废墟下埋着亲人和同乡，
+
+哭声、喊声撕裂着空气，
+
+撕裂着每一颗爱好和平的心，
+
+是入侵者无情的屠杀逼我上了战场。
+
+我本是美丽的温柔女孩，
+
+我本是爸爸妈妈怀里撒娇的女孩，
+
+我本是喜欢跳跳蹦蹦的可爱女孩，
+
+可是侵略者还在炮轰我的家国，
+
+是他们的残忍逼我上了战场，
+
+保家卫国是乌克兰的荣光，
+
+让侵略者有来无回，
+
+留下他们罪恶的生命和鲜血，
+
+要奠祭乌克兰人民的英魂，
+
+小小的年龄抗起了枪，
+
+别忘了含一个甜甜的棒棒糖……
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-3.png)
+
+编辑/校对/发稿：林礼
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

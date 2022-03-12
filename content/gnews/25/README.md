@@ -2,42 +2,34 @@
 ---
 
 
-## 高盛和摩根大通撤出俄罗斯
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2149098/)
+## 俄乌战或致全球粮食更为短缺
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2149268/)
 
-撰稿：纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
-据国外媒体3月10日报道，当天，高盛披露了关闭俄罗斯业务的计划。数小时后，美国资产最大的银行摩根大通也紧随其后。这两家银行都表示，他们是按照政府指示行事的。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1235.png)图片来自：https://www.npr.org
-高盛自 1998 年以来一直在俄罗斯开展业务，拥有近 100 名员工，提供投资银行服务。目前高盛并没有给出何时完成裁员的时间表。
+整理/编辑：围剿维尼熊
+![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
+根据大纪元3月12日讯，联合国粮食及农业组织（FAO）发布报告表示，由于俄乌冲突，国际粮食和饲料价格可能上涨高达22%，这也许会导致低开发国家的营养不良人数激增。
 
-摩根大通表示，摩根一直在按照世界各国政府的指示积极处理俄罗斯的业务，并没有在俄罗斯寻求任何新业务。
+自俄罗斯入侵乌克兰以来，全球粮食总产量已下降，导致出口粮食急剧减少。
 
-鉴于银行是受俄罗斯监管的实体，任何退出该国的行为都不会是一夜之间的事情。据专家称，在一个国家结束银行业务可能需要一年以上的时间。
+俄罗斯和乌克兰共供应了世界上19%的大麦，14%的小麦，以及4%的玉米。此外，俄罗斯还是一个主要的化肥出口国。
 
-另据知情人士透露，在宣布这一消息之前，高盛在俄罗斯的部分员工已经决定迁往迪拜。
+粮农组织的粮食价格指数（food price index），在2月份创下了历史新高，如果战事持续延烧，乌克兰今年是否能收获农作物还是个未知数。
 
-链接：
+自2020年中共病毒大流行以来，食品价格已经上涨。几个粮食出口国宣布了粮食出口限制，或正考虑禁止出口，以保护其国内供应。
 
-[Goldman Sachs and JPMorgan withdraw from Russia as Wall Street joins exodus](https://www.ft.com/content/402a96df-fe97-44db-8df0-e0feba2fceaa)
+联合国粮食及农业组织已敦促主要的粮食生产国，不要对自己的产品实施出口限制。
 
-[Wall Street banks Goldman Sachs and JPMorgan Chase are pulling out of Russia](https://www.npr.org/2022/03/10/1085699374/goldman-sachs-russia)
+参考链接：[https://www.epochtimes.com/gb/22/3/12/n13640384.htm](https://www.epochtimes.com/gb/22/3/12/n13640384.htm)
 
+*发布：tianzhihuan*
 
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
-
-编辑/总编/审核：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

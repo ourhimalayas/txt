@@ -2,13 +2,13 @@
 ---
 
 
-## 疾控中心数据显示疫苗导致所有年龄组的超额死亡率
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2146727/)
+## 日本对经济困难的留学生发放10万元补助
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2147434/)
 
-03/10/2022 前贝莱德投资经理爱德华·多德：疾控中心数据显示疫苗导致所有年龄组的超额死亡率。到2021秋季，25至44 岁的千禧一代的超额死亡率增加了84%。 即有61,000名千禧一代超额死亡。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7f228052af34309952b3f44f9ab5734e.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

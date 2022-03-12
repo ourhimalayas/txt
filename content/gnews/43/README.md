@@ -2,27 +2,26 @@
 ---
 
 
-## 【秘翻晚间新闻】SEC退市风险名单引爆在美中概股
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2143988/)
+## 欧盟遏制俄罗斯信息战以捍卫乌克兰
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2146477/)
 
-By:**[秘翻晚间新闻](https://gettr.com/post/pzeibr2ff2)**
+采编撰稿：加拿大温哥华杨帆农场 – 重生之鹰
 
-[**2022-03-11**](https://gettr.com/post/pzeibr2ff2)
-
-**新闻内容:**
-
-1. SEC退市风险名单引爆在美中概股
-2. 乌克兰控俄罗斯再轰一核研究设施
-3. 吉林学生与发烧者同宿 学校粗暴打压 学生求援
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-63-1.jpg)图片来源：timesofisrael
 
 
-喜欢记得点赞订阅分享喔！
-Gettr链接：[**https://gettr.com/post/pzeibr2ff2**](https://gettr.com/post/pzeibr2ff2)
+据[以色列时报] 3月8日报道，欧盟当天决定：将暂停在欧盟国家播放俄罗斯国家媒体《卫星》和《今日俄罗斯》等的电视节目，以杜绝该国针对入侵乌克兰而日益猖獗的虚假消息传播。
 
-发布 : 恩典
+对此，欧盟外交政策负责人表示，由于上述俄罗斯媒体是受独裁者普京当局操控的宣传武器，因此禁播令将有效遏制俄政府当前恶意发动的信息战。此外，欧盟将对那些散布虚假战争信息，美化俄军侵略罪行的网络平台，社交帐户和科技媒体公司进行制裁，
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
+评论指出:在俄乌鏖战的关键时刻，欧盟领导人必须认清：保卫乌克兰免遭俄军的涂炭，即是捍卫欧洲乃至整个世界的和平和自由。欧洲的民主不应被独裁的普京暴政恣意践踏。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+原文链接：[https://www.timesofisrael.com/eu-pledges-to-safeguard-democracy-by-fighting-russias-information-war-in-europe/](https://www.timesofisrael.com/eu-pledges-to-safeguard-democracy-by-fighting-russias-information-war-in-europe/)
+
 
 
  
