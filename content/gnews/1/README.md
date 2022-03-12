@@ -2,20 +2,89 @@
 ---
 
 
-## YouTube扩大制裁！在全世界封锁俄罗斯官媒频道
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2147645/)
+## 有声|定格二十五岁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2147767/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0512ed4a-e839-4729-b599-43c891edb6e3.jpg)
-俄罗斯入侵乌克兰，战火延烧到第17天，国际社会扩大制裁俄罗斯。YouTube宣布，将在全球封锁俄国官媒「今日俄罗斯」（RT）和「俄罗斯卫星通讯社」（Sputnik）等俄罗斯官方资助的YouTube频道。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)![](https://cdn.discordapp.com/attachments/728490324502249522/951726783760326716/IMG_2402.png)
+在乌克兰土地上
 
-新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022312W0012)
+开放了生命之花
 
-撰稿/发布：一叶知秋
+定格二十五岁
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+为了祖国 献奉生命
+
+保卫这片土地
+
+我无比荣耀
+
+把荣光还给乌克兰
+
+让父老乡亲平安健康
+
+如果我的生命
+
+能够换来侵略者失败
+
+那么
+
+请再让我牺牲一万次
+
+勇敢的乌克兰
+
+英雄遍地
+
+我们不会放弃
+
+保卫家人和土地
+
+定格二十五岁
+
+我含笑离去
+
+等到赶跑了侵略者
+
+请记得
+
+娜塔丽娅
+
+哈尔科夫的军士
+
+乌克兰土地上
+
+英雄遍地
+
+如果我的生命
+
+能够换来 赶跑
+
+侵略者
+
+我愿意
+
+再牺牲一万次
+
+
+
+文字版原文：[定格二十五岁](https://gnews.org/zh-hans/2142300/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

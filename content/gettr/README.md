@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 1:36 AM (UTC)`
+
+2022.03.11 晚 《新中国联邦新闻》新中国联邦法治基金救援中心获最佳位置 引世人瞩目；新中国联邦与各类国际组织通力合作安置难民
+![img](https://media.gettr.com/group41/origin/2022/03/12/01/fb12c1b2-b4ba-a268-6bea-7f9a9d323c14/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/12/2022 1:21 AM (UTC)`
 
  3月11号：七哥厉害不？⋯你们服不服？…。服不服。 <br/><br/>https://ishare.ifeng.com/c/s/v006aVWvHy8xHpCv1AFw3ZWBdgp0tFKZ-_a6NeAvdylawuIisBWj9Dd4mtz7v--0DkFTRGLrgyMfozxdPJNb-_7m5WBcQ____?spss=np&channelId=&aman=6eh6f5xd96ee2fRc0bFcbcla84Rb0dM3f5Na45z785&gud=604888987K179e8005000B004
@@ -148,13 +155,6 @@ As our NFSC & ROLF Ukraine Rescue efforts proceeds, we have witnessed so many ac
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
 ![img](https://media.gettr.com/group26/origin/2022/03/11/16/c646eef0-f311-18ec-f032-c6715b79d617/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/11/2022 4:14 PM (UTC)`
-
-By March 10th, more and more refugees arrived in the NFSC tent. The top media groups also came to the tent to interview or report. They highly praised the NFSC and ROLF. Meanwhile, medical practitioners and other rescue organizations such as Starlink worked seamlessly with our comrades in arm to resettle the refugees.<br/>The NFSC and the ROLF Ukraine rescue hotline: +1 720-657-6776 or +1 719-224-4232; email: UkraineRescue01@protonmail.com or UkraineRescue02@protonmail.com. <br/>截止到3月10日，新中国联邦帐篷迎来越多越多的难民，各大媒体在帐篷前或采访或报道，他们对新中国联邦和法治基金高度赞扬。到达此地的其他救援组织如医生、星链等等，都在和新中國聯邦人亲密合作安置难民。
-![img](https://media.gettr.com/group6/origin/2022/03/11/16/ed02b7c7-d10d-7231-01e0-9d853cef3224/out.jpg)
 
 ---
 
