@@ -2,35 +2,28 @@
 ---
 
 
-## 名声与愤怒：中共国对美国出生的奥运运动员的巨大不同反应。
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2146549/)
+## 欧盟遏制俄罗斯信息战以捍卫乌克兰
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2146477/)
 
-编译：文羽
+采编撰稿：加拿大温哥华杨帆农场 – 重生之鹰
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-11-195631.jpg)图片来源：cnnespanol.cnn.com
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-63-1.jpg)图片来源：timesofisrael
 
-北京（CNN）–在一周的时间里，三位美国出生的华裔运动员成为北京冬奥会的焦点，在中共国引起了非常不同的反应。
 
-这三个人都在美国接受训练，而且只相差几岁，但他们在通往奥运会的道路上出现了分歧：自由式滑雪运动员谷爱凌和花样滑冰运动员朱易选择为中共国队参赛，而另一位滑冰明星陈巍则选择了美国队。
+据[以色列时报] 3月8日报道，欧盟当天决定：将暂停在欧盟国家播放俄罗斯国家媒体《卫星》和《今日俄罗斯》等的电视节目，以杜绝该国针对入侵乌克兰而日益猖獗的虚假消息传播。
 
-顾雏军和陈晓东获得了金牌，而朱晓东则连续两次在冰上表演失败。他们在奥运主办国得到的公众反应也出现了不同的变化。
+对此，欧盟外交政策负责人表示，由于上述俄罗斯媒体是受独裁者普京当局操控的宣传武器，因此禁播令将有效遏制俄政府当前恶意发动的信息战。此外，欧盟将对那些散布虚假战争信息，美化俄军侵略罪行的网络平台，社交帐户和科技媒体公司进行制裁，
 
-**北京****2022****年冬奥会：新闻、结果、奖牌和更多信息**
+评论指出:在俄乌鏖战的关键时刻，欧盟领导人必须认清：保卫乌克兰免遭俄军的涂炭，即是捍卫欧洲乃至整个世界的和平和自由。欧洲的民主不应被独裁的普京暴政恣意践踏。
 
-谷被誉为民族英雄，赢得了人心、名声和财富；朱在网上受到追捧，被指责给她的祖国带来“耻辱”；而陈则被贴上“叛徒”的标签，因“侮辱中国”而受到民族主义者的愤怒。
+校对编辑：硫酸羟氯喹64
 
-在历史上分歧最大、控制最严、政治最紧张的一届奥运会期间，这些年轻的运动员被卷入了恶化的中美关系中。
+发稿：文明(添草灭共)
 
-华裔美国人曾经被视为可以帮助建立两国之间的桥梁的文化大使，现在却受到越来越多的审查，在双方的政治断层之间摇摆不定。
+原文链接：[https://www.timesofisrael.com/eu-pledges-to-safeguard-democracy-by-fighting-russias-information-war-in-europe/](https://www.timesofisrael.com/eu-pledges-to-safeguard-democracy-by-fighting-russias-information-war-in-europe/)
 
-来源：[cnnespanol.cnn.com][Fama y furia: las reacciones extremadamente diferentes en China ante los atletas olímpicos nacidos en EE.UU.](https://cnnespanol.cnn.com/2022/02/12/reacciones-de-china-ante-los-atletas-olimpicos-nacidos-en-ee-uu-trax/)
 
-* * *
 
-*审核：Aries的星
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

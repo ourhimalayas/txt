@@ -2,16 +2,11 @@
 ---
 
 
-## 20220311郭文贵大直播 ：没有CCP，才有正义和平的幸福生活
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2150000/)
+## 【乌克兰救援】新中国联邦在波兰梅迪卡的第二个救援帐篷已经开始使用
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2150176/)
 
-作者：东京樱花团小视频组
-
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
+【乌克兰救援】新中国联邦在波兰梅迪卡的第二个救援帐篷已经开始使用
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

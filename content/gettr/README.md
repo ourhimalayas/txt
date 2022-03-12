@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 9:05 AM (UTC)`
+
+【Ukraine Rescue】03/11/22 Soldiers and volunteers keep sending refugee children and adult refugees to our tent as the rescue tents of the New Federal State of China in Medyka, Poland is the largest, warmest and the best equipped<br/><br/>【乌克兰救援】03/11/22 士兵和志愿者们不断把逃难儿童和难民送往新中国联邦在波兰梅迪卡的救援帐篷，因为我们的帐篷最大、最温暖、设施最好<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
+![img](https://media.gettr.com/group5/getter/2022/03/12/09/90a77458-fab4-c555-919a-23233a7e7bd8/out.jpg)
+
+---
+
 `@miles 3/12/2022 8:15 AM (UTC)`
 
 
@@ -146,13 +153,6 @@ Wars for any reason are all crimes<br/>出于任何原因的战争都是犯罪<b
 
 【Ukraine Rescue】03/11/22 NFSC & ROLF Ukraine Rescue Operation in cooperation with Médecins sans frontières, setting up a rescue access to welcome a new group of Ukrainian refugees.<br/><br/>【乌克兰救援】03/11/22 新中国联邦义工和无疆界医生组织合作设立救援通道，迎来了新的一批乌克兰难民。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group11/getter/2022/03/12/00/977c11c4-e528-896d-f797-9e76ddcfaaa5/out.jpg)
-
----
-
-`@miles 3/12/2022 12:16 AM (UTC)`
-
-3/11/2022 Miles Guo: The NFSC & ROLF rescue volunteers are the only Chinese on site in Medyka, and the presence of the new Chinese and the top-notch facilities and services provided by the Rule of Law Foundation has shocked the world and has differentiated the Chinese people from the CCP！<br/><br/>3/11/2022 文贵直播：新中国联邦法治基金的救援义工是梅迪卡现场唯一的华人，新中国人的出现和法治基金提供的最顶级的设施与服务震撼了世界，并把中国人与中共区分开来！<br/>
-![img](https://media.gettr.com/group32/getter/2022/03/12/00/bde3c534-9836-5efc-de71-2652b8773d2d/out.jpg)
 
 ---
 
