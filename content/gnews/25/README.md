@@ -2,24 +2,42 @@
 ---
 
 
-## 拜登签署禁止美国行政部门不正确标示台湾领土
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2148932/)
+## 高盛和摩根大通撤出俄罗斯
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2149098/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/a50541e3-82de-4b4b-96e7-60b94ee86125.jpg)
+撰稿：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
+据国外媒体3月10日报道，当天，高盛披露了关闭俄罗斯业务的计划。数小时后，美国资产最大的银行摩根大通也紧随其后。这两家银行都表示，他们是按照政府指示行事的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1235.png)图片来自：https://www.npr.org
+高盛自 1998 年以来一直在俄罗斯开展业务，拥有近 100 名员工，提供投资银行服务。目前高盛并没有给出何时完成裁员的时间表。
 
-美国总统拜登在当地时间周五正式签署1.5兆美元的支出法案，法案中禁止美国行政部门花钱制作、采购或展示任何「不正确标示」台湾领土的地图；并将拨款提供乌克兰人道与军事援助。
+摩根大通表示，摩根一直在按照世界各国政府的指示积极处理俄罗斯的业务，并没有在俄罗斯寻求任何新业务。
 
-简评：据郭文贵先生爆料称，人类将进去无皇有主 的时代到来。世界上没有俄罗斯，没有现在所谓的欧洲， 新的大欧洲即将诞生。大中国会被解体，新疆国，粤国等等。 台湾会把帕劳，甚至日本南部地区整合在一起，福建潮东都自愿的划归台湾。共产党会在一夜之间消失在北京天门城楼。拜登签署不正确标示台湾领土的地图的法案，正在预示郭文贵先生的爆料，台湾加油，新中国联邦与你们同在！
+鉴于银行是受俄罗斯监管的实体，任何退出该国的行为都不会是一夜之间的事情。据专家称，在一个国家结束银行业务可能需要一年以上的时间。
 
-新闻来源：[台视新闻网](https://news.ttv.com.tw/news/11103120001500W)
+另据知情人士透露，在宣布这一消息之前，高盛在俄罗斯的部分员工已经决定迁往迪拜。
 
-撰稿/发布：一叶知秋
+链接：
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+[Goldman Sachs and JPMorgan withdraw from Russia as Wall Street joins exodus](https://www.ft.com/content/402a96df-fe97-44db-8df0-e0feba2fceaa)
 
+[Wall Street banks Goldman Sachs and JPMorgan Chase are pulling out of Russia](https://www.npr.org/2022/03/10/1085699374/goldman-sachs-russia)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
+
+编辑/总编/审核：飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

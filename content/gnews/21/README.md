@@ -2,29 +2,39 @@
 ---
 
 
-## 用钢琴曲致敬所有法治基金捐款者
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2148983/)
+## 外媒报道：习近平是普京侵略乌克兰同谋
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2149206/)
 
-作者：加拿大温哥华扬帆农场-晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1238.png)图片来源：Gettr
-据3月10日盖特直播报道，法治基金乌克兰人道救援行动波兰救援基地搭建起的临时难民营外，志愿者和义工们点燃了一堆篝火，篝火边聚拢了很多滞留在此取暖、过夜的难民。
+作者：纽约香草山 -侠肝义胆
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-70.png)
+外媒3月10日报道:习近平是普京侵略乌克兰的同谋。 自从俄罗斯总统普京野蛮入侵乌克兰以来，中共政府一直试图扮演一个客观中立者和解决俄乌危机的关键角色。然而事实上，中共国家主席习近平是普京的侵略同谋者。毫无疑问，中共已经做出了选择支持俄罗斯，而站在乌克兰和西方民主世界对立面。
 
-每当夜幕降临，德国战地钢琴家Davide Martello就开始为大家弹奏起乐曲，沉浸在美妙乐曲中的人们，或许可以暂时忘掉战争带来的伤痛。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-62.png)
 
-当钢琴家认识现场救援人员并了解到法治基金是救援行动的组织者后，他欣然决定为法治基金所有捐款者演奏一曲《Somewhere Over the Rainbow》，以此向所有法治基金的捐款者表达敬意！
+据有关媒体报道，习近平不仅为普京入侵乌克兰开绿灯，还要求普京等到北京冬奥运会结束开始侵略乌克兰。普京在冬奥会闭幕式后，立即宣布俄罗斯承认乌克兰东部两个州独立，并在三天后发动了对乌克兰的军事袭击。这个时间表不言自明的证实了习普狼狈为奸的事实。 
 
-当音乐再次响起时，大家又都静静地呼吸在乐曲声里。音乐超越国界直击心灵，期盼拯救战火中更多无辜的生命。人性的光辉在此刻是如此的闪耀，救援现场感人至深的这一幕将令很多在场的人终身难忘。
+美国前国家安全副顾问告诉媒体，普京以向中共抵押俄罗斯的未来为代价，以恳求者的身份去了北京，并得到了中共对他的侵略战争的支持。所以事实上，习近平就是普京的同谋者。我们必须揭露这个真相，而不是错误的判断中共国是一个中立的旁观者。 
 
-校对编辑：硫酸羟氯喹64
+中共一直试图说服西方相信其中立立场，同时利用各种媒体在国际上混淆视听。中共命令其社交媒体删除所有亲乌克兰和西方民主的帖子。中共媒体甚至派记者到前线宣传俄罗斯军队的正义性。而中共外交部则完全附和，俄罗斯政府对美国控制乌克兰生物武器实验室的诬蔑指控，但美国政府坚决否认了这种荒谬的指控。
 
-发稿：青青 晨熹
+资料链接：[https://www.washingtonpost.com/opinions/2022/03/10/china-is-part-of-problem-in-ukraine-not-solution/](https://www.washingtonpost.com/opinions/2022/03/10/china-is-part-of-problem-in-ukraine-not-solution/)
 
-新闻来源：[https://gettr.com/streaming/pywfu457e9](https://gettr.com/streaming/pywfu457e9)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
 
+编辑/校对/发稿：Daxia
 
+**更多资讯，更多关注**
 
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-72.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

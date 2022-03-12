@@ -2,26 +2,20 @@
 ---
 
 
-## 视频| IMF批准向乌克兰提供14亿美元紧急融资
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2149172/)
+## 没有比行动更重要
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2149259/)
 
-- 制作：香草山视频部
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
+*发布：陶子*
 
-3月10日，国际货币基金 IMF表示， 将向乌克兰提供14亿美元的紧急融资，以应对乌境内出现的“大规模人道主义和经济危机”。
-
-根据IMF的快速融资工具支付的这一笔资金，相当于乌克兰在IMF约50％的份额。预计将有助于短期内满足紧急支出需求，帮助促进其他合作伙伴的融资，同时在条件允许的情况下，设计一个专注于复原和成长的适当经济计划。
-
-IMF总裁乔治·艾娃指出，俄罗斯对乌克兰的军事入侵，已经造成了非常严重的后果。在13天内有超过200万人逃离，该国的关键基础设施也遭到大规模破坏。预计今年的乌克兰经济将陷入严重衰退。她补充说，该项援助计划提供了关键的财政支持，并促进资金大规模动员以减轻战争的经济冲击。
-
-据悉， IMF去年12月已拨付7亿美元给乌克兰，去年8月也提供“特别提款权”SDR共27亿美元。此外，世界银行执行董事会本月7日也以通过了对乌克兰的7.23亿美元贷款与拨款。
-
-发稿：qiutian（邱甜）
-
-**更多资讯，更多关注
-[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

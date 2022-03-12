@@ -2,48 +2,36 @@
 ---
 
 
-## 志愿者新设的救援通道迎来了新的一批乌克兰难民
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2148934/)
+## 台湾各界捐款乌克兰总额接近5.3亿新台币
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2149146/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏 
+撰稿：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
+据台湾媒体报道，为应对俄罗斯侵略乌克兰，台湾外交部2日公布了通过赈灾基金会成立的赈济乌克兰专户账号，从3日起接受ATM、银行转账，线上刷卡汇款，为期1个月。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1236.png)图片来自：https://news.ltn.com.tw
+账户开设后，各界踊跃捐款。至当地时间3月11日下午14点15分，捐款已累计接近5.3亿新台币，累计捐款笔数为8万7060笔。
 
-整理/编辑：小红帽
+其中台湾政府总统、副总统、行政院长、立法院长等多位院长，以及基隆、桃园等市的市长，都捐出一个月月薪。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/10-22.png)图片来源：郭文贵先生盖特视频截图
-
-
-根据3月11日新中国联邦和法治基金前线记者报道，新中国联邦义工和无疆界医生组织合作设立的救援通道，迎来了新的一批乌克兰难民。
-
-从视频可以看到，在刚刚从边境过来，长长的难民们队伍里，有小孩和用手推车推着的猫和狗。
-
-记者跟乌克兰难民们打招呼，并告知在新中国联邦和法治基金的帐篷里面提供着，食物、点心、巧克力和糖果。
-
-在长长的难民队伍当中，主要是小孩和妇女比较多，其中还有一些年纪比较大的难民。因为乌克兰男人都要留在乌克兰境内打仗。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/12-18.png)
+赈灾基金会表示，捐款中还包括中华电信捐款1000万新台币，小企业主捐款200万新台币，个人捐款300万新台币。
 
 
-记者身处的地方是乌克兰边境救援难民必经的通道。昨天无疆界医生组织与新中国联邦和法治基金的志愿者设立这个救援通道的栏杆。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/11-27.png)
+链接：[賑濟烏克蘭捐款總額破5.69億元 聯邦銀、自由時報系、瓏山林響應（不斷更新）](https://news.ltn.com.tw/news/politics/breakingnews/3846490)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
 
-现场有很多媒体在报道。等乌克兰难民出了这个救援长廊以后，就会陆续到新中国联邦和法治基金的帐篷里面休息。
+编辑/总编/审核：飞虹
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/9-25.png)
+校正/发稿：浪迹天涯
 
-
-资料来源：[郭文贵先生2022年3月12日盖特视频](https://www.gettr.com/post/pzjsxece3f)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
