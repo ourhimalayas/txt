@@ -2,33 +2,26 @@
 ---
 
 
-## 俄罗斯威胁要攻击北约运往乌克兰的武器
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2152570/)
+## 西班牙全科医生发现注射了第三剂新冠疫苗之后，在颈部和腋部出现大量腺病
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2152682/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/n.jpg)infowarsarmy.com
-据《零对冲》3月12日报道，俄罗斯威胁要攻击北约运往乌克兰的武器，称之为”合法的目标”。
+#### 翻译                       意大利达芬奇农场                             小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-12-alle-16.41.08.png)图片来源：eventiavversinews.it
+西班牙当地报纸《Levante-EI Mercantil Valenciano》报道称，据巴伦西亚全科医生们称，在接种第三剂新冠疫苗后，爆发了新的不良反应，大约涉及到8%的接种者。
 
-克里姆林宫周六警告说，俄罗斯军方已准备好对继续涌入乌克兰的西方武器运输进行攻击。这为与西方和北约之间可能出现的冲突升级创造了条件。俄罗斯副总理谢尔盖·里亚布科夫在其国家电视台说，华盛顿在过去几天被告知，莫斯科将把进入乌克兰的武器供应车队视为 “合法目标”。
+是出现了结节，腋窝和颈部的腺病。
 
-“我们警告美国，一些国家精心策划的输送武器到乌克兰的举动是危险的，它将这些车队变成‘合法目标’。”里亚布科夫在讲话中说，这是对西方的一个严厉警告。
+事实上，这些结节是位于这些区域的淋巴结的炎症，并且恰恰在最接近疫苗注射区域的淋巴结，这些炎症最恰当的名字就是腺病，引起腺病的原因是多种多样的。由于疫苗对免疫系统造成的刺激而造成肿大。
 
-他补充说，俄罗斯已经正式警告 “向乌克兰贸然转让便携式防空系统、反坦克导弹系统等武器的后果”，从莫斯科的角度来看，美国政府没有认真对待这些警告。
+淋巴结的功能是过滤和排除身体某些部位的淋巴液。淋巴中含有白细胞，正是由于这些白细胞浓度异常，才会发生炎症， 这些肿块出现在腋窝或颈部区域。
 
-在俄罗斯2月24日入侵乌克兰的前几周，美国驻基辅大使馆曾在推特上发布照片，说有一批重要的武器运抵。美国授权波罗的海盟友转让标枪反坦克导弹，以供应乌克兰军队，同时，英国也送来了多轮运输机装载的弹药和武器系统。
+当然淋巴结肿大可能是对感染的反应或癌症等更严重疾病的症状。在注射了新冠疫苗的情况下，炎症与感染的状况非常相似。免疫系统对疫苗产生反应并受到过度刺激， 导致白细胞在最靠近受到攻击的区域的淋巴结中积聚， 在这种情况下是疫苗。这种白细胞在淋巴结中的积聚导致炎症并出现肿块。
 
-他们相信”毒刺 “防空导弹的供应也在加紧进行。俄罗斯的新警告也是在美国和波兰的米格-29飞机一事失败之后发出的。华沙曾过早地提出将其所有的米格-29飞机交给美国，以便它们可以从德国的拉姆施泰因空军基地飞入乌克兰。拜登政府说这个提议是一个 “惊喜”，而五角大楼则断然拒绝了这个计划，说鉴于这些飞机必须从西方进入乌克兰，有可能发生空中交火事件，造成北约与俄罗斯军队直接冲突的风险太高。
+第三次注射后腺病病例增加过多，证明了免疫系统在这种情况产生了严重的炎症。
 
-最近的战场视频似乎证实，在许多情况下，入侵的俄罗斯坦克和装甲车被西方提供的 “标枪 “和其他反装甲导弹摧毁，这些导弹掌握在乌克兰军队手中。
+原文链接：[https://www.eventiavversinews.it/spagna-nella-comunita-valenciana-i-medici-di-medicina-generale-riscontrano-un-alto-numero-di-adenopatie-dopo-la-terza-dose-sul-collo-e-sotto-le-ascelle/](https://www.eventiavversinews.it/spagna-nella-comunita-valenciana-i-medici-di-medicina-generale-riscontrano-un-alto-numero-di-adenopatie-dopo-la-terza-dose-sul-collo-e-sotto-le-ascelle/)
 
-毫无疑问，克里姆林宫将这些攻击归咎于西方，因为是用北约提供的先进武器进行的。
-
-**评论**：郭先生早就告诉我们，俄乌之战是中美代理人的战争。战争由普京发动，何时结束就由不得他了。目前看，俄军进退失距，打不赢，停不了，只能黏黏糊糊地弄下去，苦的是乌克兰及俄罗斯普通人，他们付出的是生命的代价。
-
-原文链接：
-
-[https://www.zerohedge.com/geopolitical/russia-threatens-attack-nato-weapons-shipments-ukraine-legitimate-targets](https://www.zerohedge.com/geopolitical/russia-threatens-attack-nato-weapons-shipments-ukraine-legitimate-targets)
-
-**编译 发布：意大利达芬奇农场 Roma**
+编辑、上传： Xiao  baige
 
  
 

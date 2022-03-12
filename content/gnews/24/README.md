@@ -2,35 +2,33 @@
 ---
 
 
-## MV版Hcoin To the Moon上线93天第31次位列匈牙利iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2152468/)
+## 俄罗斯威胁要攻击北约运往乌克兰的武器
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2152570/)
 
-3/12/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线93天第31次位列匈牙利iTunes热门音乐视频榜榜首，第45次位列前三名
+![](https://assets.gnews.org/wp-content/uploads/2022/03/n.jpg)infowarsarmy.com
+据《零对冲》3月12日报道，俄罗斯威胁要攻击北约运往乌克兰的武器，称之为”合法的目标”。
 
-* * *
+克里姆林宫周六警告说，俄罗斯军方已准备好对继续涌入乌克兰的西方武器运输进行攻击。这为与西方和北约之间可能出现的冲突升级创造了条件。俄罗斯副总理谢尔盖·里亚布科夫在其国家电视台说，华盛顿在过去几天被告知，莫斯科将把进入乌克兰的武器供应车队视为 “合法目标”。
 
-[【PDF 下载】Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+“我们警告美国，一些国家精心策划的输送武器到乌克兰的举动是危险的，它将这些车队变成‘合法目标’。”里亚布科夫在讲话中说，这是对西方的一个严厉警告。
 
-* * *
+他补充说，俄罗斯已经正式警告 “向乌克兰贸然转让便携式防空系统、反坦克导弹系统等武器的后果”，从莫斯科的角度来看，美国政府没有认真对待这些警告。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_102.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
+在俄罗斯2月24日入侵乌克兰的前几周，美国驻基辅大使馆曾在推特上发布照片，说有一批重要的武器运抵。美国授权波罗的海盟友转让标枪反坦克导弹，以供应乌克兰军队，同时，英国也送来了多轮运输机装载的弹药和武器系统。
 
+他们相信”毒刺 “防空导弹的供应也在加紧进行。俄罗斯的新警告也是在美国和波兰的米格-29飞机一事失败之后发出的。华沙曾过早地提出将其所有的米格-29飞机交给美国，以便它们可以从德国的拉姆施泰因空军基地飞入乌克兰。拜登政府说这个提议是一个 “惊喜”，而五角大楼则断然拒绝了这个计划，说鉴于这些飞机必须从西方进入乌克兰，有可能发生空中交火事件，造成北约与俄罗斯军队直接冲突的风险太高。
 
-[【PDF 下载】Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+最近的战场视频似乎证实，在许多情况下，入侵的俄罗斯坦克和装甲车被西方提供的 “标枪 “和其他反装甲导弹摧毁，这些导弹掌握在乌克兰军队手中。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+毫无疑问，克里姆林宫将这些攻击归咎于西方，因为是用北约提供的先进武器进行的。
+
+**评论**：郭先生早就告诉我们，俄乌之战是中美代理人的战争。战争由普京发动，何时结束就由不得他了。目前看，俄军进退失距，打不赢，停不了，只能黏黏糊糊地弄下去，苦的是乌克兰及俄罗斯普通人，他们付出的是生命的代价。
+
+原文链接：
+
+[https://www.zerohedge.com/geopolitical/russia-threatens-attack-nato-weapons-shipments-ukraine-legitimate-targets](https://www.zerohedge.com/geopolitical/russia-threatens-attack-nato-weapons-shipments-ukraine-legitimate-targets)
+
+**编译 发布：意大利达芬奇农场 Roma**
 
  
 

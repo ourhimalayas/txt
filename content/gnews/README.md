@@ -15,92 +15,92 @@
 
 ---
 
-### [DC每日热点0312](/content/gnews/1/README.md)
+### [习近平追求极致的权力 中共将挑起能源战 意图打垮世界经济 借机侵占台湾](/content/gnews/1/README.md)
+ ` 焦點20分`
+
+### [新中国联邦成功的从乌克兰境内救助98个孩子以及福利机构的老师](/content/gnews/2/README.md)
+ ` 焦點20分`
+
+### [中东能源战 俄乌战争升级 攻台，粮食危机 关键时刻有Hpay 就有救命钱](/content/gnews/3/README.md)
+ ` 焦點20分`
+
+### [DC每日热点0312](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [3/12/2022文贵盖特：在香港踩着尸体找尸体；共产党还鼓励中国人去乌克兰给俄罗斯当炮灰，跟着共产党、走进火葬场，信不信由你](/content/gnews/2/README.md)
+### [2022年3月11日 《文贵大直播》全文字版](/content/gnews/5/README.md)
+ ` 温哥华扬帆农场《文贵大直播》全文听写组`
+
+### [3/12/2022文贵盖特：在香港踩着尸体找尸体；共产党还鼓励中国人去乌克兰给俄罗斯当炮灰，跟着共产党、走进火葬场，信不信由你](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [全球科技公司正争相招聘乌克兰高科技人才](/content/gnews/3/README.md)
+### [全球科技公司正争相招聘乌克兰高科技人才](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国公司在俄罗斯面临资产被扣押的风险](/content/gnews/4/README.md)
+### [美国公司在俄罗斯面临资产被扣押的风险](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国制裁更多的俄罗斯政治家和寡头](/content/gnews/5/README.md)
+### [美国制裁更多的俄罗斯政治家和寡头](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [八成加拿大人认为疫情极大扰乱了生活](/content/gnews/6/README.md)
+### [八成加拿大人认为疫情极大扰乱了生活](/content/gnews/10/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [俄罗斯-乌克兰战争，什么是普京的打法？](/content/gnews/7/README.md)
+### [俄罗斯-乌克兰战争，什么是普京的打法？](/content/gnews/11/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [俄罗斯占据扎波罗热核电站，核监测数据停止——IAEA](/content/gnews/8/README.md)
+### [俄罗斯占据扎波罗热核电站，核监测数据停止——IAEA](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌克兰大救援 3.11.2022 中共的假恶丑逃和新中国联邦人的真善美勇形成鲜明对照](/content/gnews/9/README.md)
+### [乌克兰大救援 3.11.2022 中共的假恶丑逃和新中国联邦人的真善美勇形成鲜明对照](/content/gnews/13/README.md)
  ` 秘密翻译组-原创组`
 
-### [文贵直播精要 2022/03/11](/content/gnews/10/README.md)
+### [文贵直播精要 2022/03/11](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年3月12日早](/content/gnews/11/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年3月12日早](/content/gnews/15/README.md)
  ` 纽约香草山MOS01`
 
-### [【商见你我他】周新闻简讯（二）](/content/gnews/12/README.md)
+### [【商见你我他】周新闻简讯（二）](/content/gnews/16/README.md)
  ` MayflowerBiz`
 
-### [2022年2月国际社会对中共的打击制裁汇总与分析](/content/gnews/13/README.md)
+### [2022年2月国际社会对中共的打击制裁汇总与分析](/content/gnews/17/README.md)
  ` 经济小组`
 
-### [【转】截至3.12 俄乌战事汇总（2）](/content/gnews/14/README.md)
+### [【转】截至3.12 俄乌战事汇总（2）](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022/03/12 英喜时事速递](/content/gnews/15/README.md)
+### [2022/03/12 英喜时事速递](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [这个世界需要你](/content/gnews/16/README.md)
+### [这个世界需要你](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西班牙全科医生发现注射了第三剂新冠疫苗之后，在颈部和腋部出现大量腺病](/content/gnews/17/README.md)
+### [西班牙全科医生发现注射了第三剂新冠疫苗之后，在颈部和腋部出现大量腺病](/content/gnews/21/README.md)
  ` xiaobaige`
 
-### [总统拜登发布“确保对数字货币有责任的发展”的总统行政命令 美国数字货币的冬天过去了](/content/gnews/18/README.md)
+### [总统拜登发布“确保对数字货币有责任的发展”的总统行政命令 美国数字货币的冬天过去了](/content/gnews/22/README.md)
  ` 经济小组`
 
-### [记录战友的辛苦](/content/gnews/19/README.md)
+### [记录战友的辛苦](/content/gnews/23/README.md)
  ` 纽约香草山MOS02`
 
-### [视频|新中国联邦救援战友接受囯际媒体采访](/content/gnews/20/README.md)
- ` MOSVIDEO`
-
-### [俄罗斯威胁要攻击北约运往乌克兰的武器](/content/gnews/21/README.md)
+### [俄罗斯威胁要攻击北约运往乌克兰的武器](/content/gnews/24/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [视频|日企相继暂停在俄业务](/content/gnews/22/README.md)
- ` MOSVIDEO`
-
-### [视频|台湾各界捐款乌克兰总额接近5.3亿新台币](/content/gnews/23/README.md)
- ` MOSVIDEO`
-
-### [MV版Hcoin To the Moon上线93天第31次位列匈牙利iTunes热门MV榜首](/content/gnews/24/README.md)
+### [MV版Hcoin To the Moon上线93天第31次位列匈牙利iTunes热门MV榜首](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|台湾各界捐款乌克兰总额接近5.3亿新台币](/content/gnews/25/README.md)
+### [有声|台湾各界捐款乌克兰总额接近5.3亿新台币](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [COVID病毒疫苗创造亿万富翁 中共国6人上榜](/content/gnews/26/README.md)
+### [COVID病毒疫苗创造亿万富翁 中共国6人上榜](/content/gnews/27/README.md)
  ` 温哥华扬帆农场`
 
-### [泽伦斯基向俄罗斯妈妈喊话：不要送自己儿子参战](/content/gnews/27/README.md)
+### [泽伦斯基向俄罗斯妈妈喊话：不要送自己儿子参战](/content/gnews/28/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [西班牙基金会的塔尼娅女士采访在乌克兰救援前线的Nicole战友](/content/gnews/28/README.md)
+### [西班牙基金会的塔尼娅女士采访在乌克兰救援前线的Nicole战友](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [大直播后记：新中国联邦救援行动是黑暗中的一盏灯](/content/gnews/29/README.md)
- ` 雅典娜GNotes`
 
 ### [德意志银行逆潮流而动与俄保持联系](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
