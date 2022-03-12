@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 10:50 PM (UTC)`
+
+3/12/2022 Miles Guo’s GETTR: Only the kind people of the New Federal State of China have provided coffee, gas heaters, and hot water for the refugees fleeing Ukraine in the bitter cold. The virus is wreaking havoc in Hong Kong, and there are corpses everywhere. The CCP doesn't allow the people to talk about the new variant of the virus in Hong Kong which has a high infection and mortality rate. The virus could probably be released by CCP to slaughter the people of Hong Kong!<br/><br/>3/12/2022 文贵盖特：只有善良的新中国联邦人为在严寒中走出乌克兰的难民提供了咖啡、热气炉和热水；香港疫情肆虐，到处都是尸体；中共不让谈香港新的变种病毒，其感染率和死亡率都高，可能是中共放毒以屠杀香港人！
+![img](https://media.gettr.com/group48/getter/2022/03/12/22/cd476d37-77ad-65cd-85fa-39fd4820111a/out.jpg)
+
+---
+
 `@miles 3/12/2022 9:51 PM (UTC)`
 
 3月12号：新中国联邦人在乌克兰战场上的表现，时时刻刻，在改变了全世界人民如何看待中国人．和中国共产党，我们不被中国共产党代表，我们要消灭中国共产党，我们的世界观对．人道．人性，人格的尊重，将改变全世界过去对所有中国人的一切的看法。
@@ -154,13 +161,6 @@
 
 Miles Guo: We have no more excuses, but to fight until taking down the CCP! <br/><br/>文贵：我们没有任何理由，没有任何借口，只有奋斗，战斗，直到消灭共产党！
 ![img](https://media.gettr.com/group26/getter/2022/03/12/05/2526bc5c-578c-5139-ddf6-c6ed51997855/out.jpg)
-
----
-
-`@miles 3/12/2022 5:20 AM (UTC)`
-
-3/11/2022 Miles Guo: The NFSC & ROLF Ukraine rescue mission has demonstrated that we save people without any discrimination based upon differences in terms of race/ethnicity, religion, nationality, or region. Our rescue operation is of great significance as it is like a light in the darkness, and the closer you get to this light and the earlier you are enlightened, the better the chance you will have to survive in the darkness.<br/><br/>3/11/2022 文贵直播：新中国联邦救援行动展示了我们的救助无种族宗教差别、无国家、地域差别，就像黑暗中的一盏灯，离这盏灯越近、越早开智的人，就越可能不被黑暗吞噬掉，意义重大！
-![img](https://media.gettr.com/group17/getter/2022/03/12/05/5a5ee25e-2d0d-9ad2-951e-ef4e10a11a94/out.jpg)
 
 ---
 
