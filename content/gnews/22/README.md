@@ -2,27 +2,41 @@
 ---
 
 
-## 有声｜李克强确认自己将在明年卸任中共总理
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2148858/)
+## 法治基金营地是乌克兰难民的温暖庇护所
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2148889/)
 
-By:**秘翻新闻**
+撰稿：纽约香草山金融部-AT
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
+波兰当地时间3月10日晚9点多，由新中国联邦发起，法治基金赞助的乌克兰救援行动小组，在梅迪卡，设置了最大救援营地，为逃难至此的乌克兰难民安置了一个温馨的庇护所。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1233.png)
+外面气温大约零下5度左右，聚集在新中国联邦营地内的基本都是老人，妇女和儿童。从他们身上看不到逃离战区的狼狈和惶恐，大家很镇定，放松，有的在取暖闲聊，有的在吃饭，或休息，也有乌克兰小朋友高兴地帮助新中国联邦的志愿者发放食物，俨然回到自己的家一样。帐篷内有先进的取暖设备，温暖如春，为难民准备了充足的毯子，水果，矿泉水，热汤，巧克力，饼干，和最好的沙滩椅。
 
-**2022-03-12**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-32.png)图片来源 Leo RAMIREZ/AFP
-[据大纪元3月11日报道，3月11日，中共国务院总理李克强在人大会议结束后的记者会表示，他将在这届任期届满后卸任。](https://www.epochtimes.com/gb/22/3/11/n13639587.htm)
+这里虽然离战区很近，气候严寒，但法治基金的帐篷为逃离家园的乌克兰难民，撑起了一片难得的温暖安宁的空间。
 
-[现年66岁的李克强今天在第十三届全国人大第五次会议闭幕后，向记者表示，今年是本届中共政府任期的最后一年，也是我担任总理的最后一年。新华社在两会授权发布的内容中低调报导了该内容。](https://www.epochtimes.com/gb/22/3/11/n13639587.htm)
+新闻连接：
 
-[中共二十大预计在今年秋天召开，届时中共领导层将重新洗牌，继而政府内阁在明年两会上也将更替，李克强自2013年以来一直担任总理，但中共宪法规定总理只能连任两届。](https://www.epochtimes.com/gb/22/3/11/n13639587.htm)
 
-[中共2018年3月曾修宪，使国家主席和副主席得以连任超过两届。预计现任中共党魁习近平将在今年的二十大上打破先例开启第三个任期，继续担任中共最高领导人，并于次年继续担任国家主席。](https://www.epochtimes.com/gb/22/3/11/n13639587.htm)
 
-秘翻新闻 二丫编辑报道
+> 3月9日晚上9点: [#新中国联邦](https://twitter.com/hashtag/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6?src=hash&amp;ref_src=twsrc%5Etfw) 人在救援前线给乌克兰受难民众（老人妇女儿童们）分发食物，他们可以在帐篷里面取暖而避免受冻挨饿。感谢 [#法治基金](https://twitter.com/hashtag/%E6%B3%95%E6%B2%BB%E5%9F%BA%E9%87%91?src=hash&amp;ref_src=twsrc%5Etfw) 的所有捐款者们，你们捐助的每一分钱现在正在为人道主义救援发挥作用。[#Ukrainesos](https://twitter.com/hashtag/Ukrainesos?src=hash&amp;ref_src=twsrc%5Etfw) #乌克兰#UkraineRefugees [#UkraineRescue](https://twitter.com/hashtag/UkraineRescue?src=hash&amp;ref_src=twsrc%5Etfw) [#NFSC](https://twitter.com/hashtag/NFSC?src=hash&amp;ref_src=twsrc%5Etfw) [#ROLFRescue](https://twitter.com/hashtag/ROLFRescue?src=hash&amp;ref_src=twsrc%5Etfw) [#法治社会](https://twitter.com/hashtag/%E6%B3%95%E6%B2%BB%E7%A4%BE%E4%BC%9A?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/W02mBpYP7b](https://t.co/W02mBpYP7b)
+> — 三顾茅厕 (@sangumaoce) [March 10, 2022](https://twitter.com/sangumaoce/status/1501737639338143746?ref_src=twsrc%5Etfw)
 
-发布 : 恩典
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
+
+编辑：静言
+
+总编/审核：飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

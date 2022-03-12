@@ -2,24 +2,36 @@
 ---
 
 
-## 拜登签署禁止美国行政部门不正确标示台湾领土
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2148932/)
+## 新中国联邦救援战友接受囯际媒体采访
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2148942/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/a50541e3-82de-4b4b-96e7-60b94ee86125.jpg)
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
+波兰当地时间3月10日，在梅迪卡小镇，新中国联邦前线参与救援的战友Nicole和文戈七雄，接受了国外记者的采访。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1234.png)
+Nicole向记者表明了我们新中国联邦与中共的不同，提到新中国联邦和法治基金的此次国际大救援行动被共产党恶意破坏，指出他们黑客我们的救援邮箱，企图破坏我们的声誉。
 
-美国总统拜登在当地时间周五正式签署1.5兆美元的支出法案，法案中禁止美国行政部门花钱制作、采购或展示任何「不正确标示」台湾领土的地图；并将拨款提供乌克兰人道与军事援助。
+文戈七雄战友详细介绍了我们新中国联邦人的各种救助措施，并呼吁采访记者扩散我们的联系方式，让更多的人可以得救。
 
-简评：据郭文贵先生爆料称，人类将进去无皇有主 的时代到来。世界上没有俄罗斯，没有现在所谓的欧洲， 新的大欧洲即将诞生。大中国会被解体，新疆国，粤国等等。 台湾会把帕劳，甚至日本南部地区整合在一起，福建潮东都自愿的划归台湾。共产党会在一夜之间消失在北京天门城楼。拜登签署不正确标示台湾领土的地图的法案，正在预示郭文贵先生的爆料，台湾加油，新中国联邦与你们同在！
+新闻来源：[#救援前线素材区](https://discord.com/channels/872153398588370944/950448401529577502/951305153695334450)
 
-新闻来源：[台视新闻网](https://news.ttv.com.tw/news/11103120001500W)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
 
-撰稿/发布：一叶知秋
+编辑：玫瑰圆
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+总编：飞虹
 
+审核：宁文静
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

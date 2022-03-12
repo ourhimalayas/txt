@@ -2,20 +2,26 @@
 ---
 
 
-## 为什么共产党进入了国际政治塔西佗陷阱
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148961/)
+## 视频|外媒再度披露俄军在乌克兰前线暴行
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2149147/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+- 制作：香草山视频部
 
-*发布：陶子*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+当地时间3月10日，据多家国际媒体报道，随着俄罗斯的入侵战争进入了第十五天，其暴烈的军事行动已经导致超过两百万乌克兰难民流离失所，这当中还包括一百余万乌克兰儿童。
+
+数据显示，乌克兰目前已有37名儿童在战争中死亡，超过50名儿童受伤。然而，此前一天，俄罗斯军队仍然违背在马里乌波尔停火的承诺，炮火轰炸了当地的一所儿童医院，造成17人受伤。另据前线流出的视频显示，出于对乌克兰市民反抗的不满，一名俄罗斯将领下令屠杀乌克兰某城镇的所有居民，甚至为此射杀任何试图违令的俄军士兵。
+
+据悉，国际社会对此表达强烈的谴责。各国政要纷纷强调，俄罗斯军队针对乌克兰医院、供水、卫生设备和校园等基础设施的攻击是极其不道德的，其对包括当地儿童在内的平民施以军事手段的残忍攻击也必须立刻停止。而俄罗斯的多数前线士兵也表示，俄罗斯没有理由在乌克兰的领土上战斗。
+
+目前，俄罗斯正在试图对乌克兰首都基辅展开包围作战。但是，乌克兰军队的顽强抵抗和近期严寒的天气正在迅速地消耗着俄军的燃料和补给品。
+
+发稿：qiutian（邱甜）
+
+**更多资讯，更多关注
+[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 
