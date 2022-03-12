@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 5:55 AM (UTC)`
+
+Miles Guo: We have no more excuses, but to fight until taking down the CCP! <br/><br/>文贵：我们没有任何理由，没有任何借口，只有奋斗，战斗，直到消灭共产党！
+![img](https://media.gettr.com/group26/getter/2022/03/12/05/2526bc5c-578c-5139-ddf6-c6ed51997855/out.jpg)
+
+---
+
 `@miles 3/12/2022 5:20 AM (UTC)`
 
 3/11/2022 Miles Guo: The NFSC & ROLF Ukraine rescue mission has demonstrated that we save people without any discrimination based upon differences in terms of race/ethnicity, religion, nationality, or region. Our rescue operation is of great significance as it is like a light in the darkness, and the closer you get to this light and the earlier you are enlightened, the better the chance you will have to survive in the darkness.<br/><br/>3/11/2022 文贵直播：新中国联邦救援行动展示了我们的救助无种族宗教差别、无国家、地域差别，就像黑暗中的一盏灯，离这盏灯越近、越早开智的人，就越可能不被黑暗吞噬掉，意义重大！
@@ -146,13 +153,6 @@ This is Kharkiv's main museum, staff are racing to get priceless artworks to saf
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-11
 ![img](https://media.gettr.com/group33/origin/2022/03/11/22/db52cafe-a379-7bfe-3855-53fa74025c02/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/11/2022 10:46 PM (UTC)`
-
-3/11/2022 Miles Guo: What is the NFSC coffee served by the New Federal State of China? Why should we provide the refugees with freshly ground coffee? Fellow fighters are working day and night to help rescue refugees, and some of them even got sick. The New Federal State of China has become the focus of the world’s media.<br/><br/>3/11/2022 文贵直播：什么是新中国联邦NFSC咖啡？为什么要在救援现场为难民准备现磨的咖啡？战友们夜以继日地救助难民，甚至有战友都病了；新中国联邦人已成为全球媒体的焦点<br/>
-![img](https://media.gettr.com/group48/getter/2022/03/11/22/4aab8aad-41a7-5e0d-e862-e5ee0a88a926/out.jpg)
 
 ---
 
