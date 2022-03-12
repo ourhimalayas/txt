@@ -17,6 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 7:53 PM (UTC)`
+
+3月12号：我们要唱尽天下歌……让共产党无歌可唱——歌死共产党【共匪吓死啦……女人花下架了了】
+![img](https://media.gettr.com/group19/getter/2022/03/12/19/3910810e-9d08-5183-e42e-1d5ca55a8e53/07a7f5baa0d6b990a792a7932f315bf7.jpg)
+
+---
+
+`@miles 3/12/2022 7:43 PM (UTC)`
+
+3月12号：能让战地记者和有正义的人．有良知的人。在这种寒冷的战地冬天．喝上一杯新鲜的热咖啡，这是多么的浪漫．多么的有力量，好人必有好报．他们，每个人都应该有很好的咖啡喝。
+> `@himalayadcfarm 3/12/2022 7:04 PM (UTC)`<br/>🆘🇺🇦 Latest from Nicole on the #UkrainianFront: <br/>Louise, a famous AFP war correspondent who has experienced countless refugee camps, came to our tent with a look of disbelief on her face! She repeatedly exclaimed: how perfect! <br/>❤️ The new Chinese Federation's 🌈coffee🌈 illustrates true love: not just giving help for free, but giving the best and most needed to those refugees who are suffering from war! We don't just provide some hot coffee but we are giving hope to the people who lost their beautiful homes and loved ones!<br/>#NFSCRescue <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine
+![img](https://media.gettr.com/group5/origin/2022/03/12/19/3ca95d89-59f1-dec5-b72d-758e2597b901/out.jpg)
+
+---
+
 `@miles 3/12/2022 7:40 PM (UTC)`
 
 <br/>3月12号：伟大的新中国联邦……伟大的法制基金的所有的捐款战友们。
@@ -143,20 +158,6 @@ Wars for any reason are all crimes<br/>出于任何原因的战争都是犯罪<b
 
 3/11/2022 Miles Guo: It took the CCP 100 years to destroy the thousands of years of civilization and the decent image of the Chinese people, but the New Federal State of China, the Rule of Law Foundation, the Rule of Law Society, and our frontline fellow fighters are proving to the world that the Chinese are not sick men of Asia, instead we are pursuing justice, and we are peace-loving and capable of engaging in the humanitarian assistance and rescue.<br/><br/>3/11/2022 文贵直播：中共用了100年将中国人千年文明和形象全毁；但新中国联邦、法治基金和前线的战友们向世界证明了，中国人不是东亚病夫，我们爱好正义、和平并有能力参与人道救助<br/>
 ![img](https://media.gettr.com/group14/getter/2022/03/12/03/39a19bb2-3a78-663c-edd8-04b4ec0bf0e9/out.jpg)
-
----
-
-`@miles 3/12/2022 3:38 AM (UTC)`
-
-3/11/2022 Miles Guo: The rescue operation conducted by the fellow fighters is spreading the words about the future and the image of the New Federal State of China, which has pushed the CCP into the Tacitus Trap. Please widely disseminate the accurate information about the New Federal State of China’s rescue mission and the revelation of the unjust nature of this war. No one can stop the New Federal State of China from entering the center of the world stage.<br/><br/>3/11/2022 文贵直播：战友们的救援行动就是在传播新中国联邦的未来和形象，中共已被我们打入“塔西佗陷阱”；请广泛传播新中国联邦救援和揭露这场战争非正义本质的准确信息；新中国联邦走向世界成为主角无人可挡！<br/>
-![img](https://media.gettr.com/group42/getter/2022/03/12/03/7e4ebc3d-3a02-149b-099e-2d2ef300b417/out.jpg)
-
----
-
-`@miles 3/12/2022 3:11 AM (UTC)`
-
-3/11/2022 Miles Guo: Why is the CCP so scared of the Ukraine rescue operation launched by the New Federal State of China? Because Chinese people have quickly found their true color and it’s proven that decent Chinese people have tastes, courage and is able to contribute by giving assistance to others, and therefore this is a deadly attack to the CCP<br/><br/>3/11/2022 文贵直播：新中国联邦乌克兰救援为什么让共产党感到恐惧？因为中国人迅速找到了自己的真颜色，证明中国人有正义、有品位、勇敢、无私奉献，这对中共是致命的<br/>
-![img](https://media.gettr.com/group11/getter/2022/03/12/03/95a8ee91-988a-5276-9e25-5b6ae3a2457b/out.jpg)
 
 ---
 
