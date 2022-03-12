@@ -2,33 +2,11 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月11日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2148306/)
+## 摩尔多瓦敦促其他国家接收更多的难民
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2148464/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-4.jpg)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-8.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/pzjcja0896](https://gettr.com/post/pzjcja0896)
-访谈：[https://gettr.com/post/pzjyew582d](https://gettr.com/post/pzjyew582d)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+03/10/2022 摩尔多瓦–欧洲最小和最贫穷的国家之一，敦促其他国家接收更多的难民，因为其卫生系统已经十分紧张。逃离恐怖并进入其他国家的乌克兰人的数量之多，使一些边境地区不堪重负。
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

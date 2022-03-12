@@ -2,32 +2,24 @@
 ---
 
 
-## 视频|梅蒂卡站新建250平豪华帐篷受到广泛赞誉
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2148082/)
+## 香港疫情依然严峻，疫情平稳未见下降！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2148209/)
 
-【撰稿】纽约香草山 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月11日晚间，法治基金新中国联邦乌克兰救援梅蒂卡站，前线直播团队发布最新消息，经过连续工作，波兰梅蒂卡救助站250平豪华七星级帐篷搭建工作完成，即日起投入使用，准备为更多难民提供舒适的休息区。
-报道视频显示，新的帐篷宽敞明亮，功能区域划分明确，专门设有用餐区，和配备了高规格取暖设备的休息区。郭文贵先生在3月11日大直播中，特别强调，法治基金新中国联邦乌克兰救援行动已经达到国际一流水准。
-据现场记者Nicole报道，法新社AFP著名战地摄影记者路易莎-古里亚马基（ Louisa Gouliamaki）在参观完新帐篷后，非常感慨的表示，这项工作令人叹服。当Nicole告诉路易莎，救助团队还为所有人准备了现磨现煮的 “新中国联邦咖啡” ，路易莎非常开心，表示一定会专门来品尝。
-截至目前最新消息，新建大帐篷将迎来第一批妇女和儿童。
-目前，国际红十字会的工作人员已经和明道战友对接了今晚接待妇女儿童的工作。今晚新的大帐篷正式开放，接受红十字会负责从边境带来的难民。 当明道告诉他，这是新中国联邦救助团队第一次在战区做营救工作，他们惊讶地表示，因为法治基金新中国联邦的救助工作非常出色，简直难以置信。他们还赞扬了，法治基金财力雄厚，有能力准备这么好的设施。
+香港疫情仍然严峻，11日新增29,381宗确诊个案，当中10,493宗属快速测试阳性个案，第五波疫情至今则共录得634,169宗确诊个案。连同呈报滞后的个案，昨日再多294名病人死亡，死亡人数再创新高。
 
-【视频链接】[https://discord.com/channels/872153398588370944/950448401529577502/951898288926367824](https://discord.com/channels/872153398588370944/950448401529577502/951898288926367824)
-【图片链接】[https://discord.com/channels/872153398588370944/950448401529577502/951913051291021362](https://discord.com/channels/872153398588370944/950448401529577502/951913051291021362)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/360截图20220312105131281.jpg)资料来源：卫生防护中心
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+简评：香港作为中共病毒疫苗接种率比较高的地区，当疫苗灾难来临时将是不敢想象的人间惨剧，死亡人数再创新高是一个很可怕的标志，香港同胞们，醒来的抓紧服用新中国联邦推荐的解药，不要再被中共欺骗了。
 
-- 审核/编辑/发稿:qiutian（邱甜）
+新闻来源：[香港01](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/745981/%E6%9C%80%E6%96%B0%E7%96%AB%E6%83%85-%E7%96%AB%E6%83%85%E5%B9%B3%E7%A9%A9%E6%9C%AA%E8%A6%8B%E4%B8%8B%E9%99%8D-%E6%AD%BB%E4%BA%A1%E4%BA%BA%E6%95%B8%E7%BA%8C%E5%8D%87-%E4%BE%9D%E7%84%B6%E5%9A%B4%E5%B3%BB)
 
+撰稿/发布：一叶知秋
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,10 +2,32 @@
 ---
 
 
-## 3/11/2022 文贵直播：新中国联邦乌克兰救援为什么让共产党感到恐惧？因为中国人迅速找到了自己的真颜色，证明中国人有正义、有品位、勇敢、无私奉献，这对中共是致命的
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2148237/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月11日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2148306/)
 
-秘密翻译组-北美组
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-4.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-8.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/pzjcja0896](https://gettr.com/post/pzjcja0896)
+访谈：[https://gettr.com/post/pzjyew582d](https://gettr.com/post/pzjyew582d)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

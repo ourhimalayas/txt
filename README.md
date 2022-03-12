@@ -15,106 +15,106 @@
 
 ---
 
-### [有声｜五角大楼官员警告：俄军正在向基辅集结](/content/gnews/1/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [中共的邪恶](/content/gnews/1/README.md)
+ ` G-NEWS TAIWAN`
 
-### [樱花FM|邪恶的中共政权才是万恶之源（六）](/content/gnews/2/README.md)
- ` 樱花FM`
-
-### [俄军似乎在升级对乌克兰的暴力袭击，即使他们屡战屡败](/content/gnews/3/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [五角大楼：美国不支持向乌克兰派遣波兰战机](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|美众议院通过法案，禁止从俄罗斯进口石油](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [大直播后记：铸币权的重要](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [新中国联邦新闻、GTV新闻访谈简报|2022年3月11日晚](/content/gnews/7/README.md)
- ` 纽约香草山MOS01`
-
-### [篝火有暖人有情](/content/gnews/8/README.md)
- ` 纽约香草山MOS03`
-
-### [《一日一春》](/content/gnews/9/README.md)
- ` MayflowerBiz`
-
-### [樱花FM|吸烟环境会导致新冠患者病情加重](/content/gnews/10/README.md)
- ` 樱花FM`
-
-### [波兰汽车租赁公司老板被志愿者感召加入救援队伍](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [Nicole 采访阿丙连线飞飞](/content/gnews/12/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [樱花FM|日本15万人捐款40亿支持乌克兰 大使馆致谢](/content/gnews/13/README.md)
- ` 樱花FM`
-
-### [每日快报：拜登呼吁终止俄罗斯的 &#8220;最惠国待遇 &#8220;贸易地位](/content/gnews/14/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [美囯正在加快把便携式导弹运送到乌克兰](/content/gnews/15/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [樱花FM|樱花深度报道:新冷战系列一：威权主义轴心](/content/gnews/16/README.md)
- ` 樱花FM`
-
-### [3/11/2022 文贵直播：新中国联邦乌克兰救援为什么让共产党感到恐惧？因为中国人迅速找到了自己的真颜色，证明中国人有正义、有品位、勇敢、无私奉献，这对中共是致命的](/content/gnews/17/README.md)
+### [3/11/2022 文贵直播：新中国联邦、法治基金和前线的战友们向世界证明了，中国人不是东亚病夫，我们爱好正义、和平并有能力参与人道救助](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [对辉瑞等制药公司的审判即将发生，新中国联邦将迎来美好未来](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
+### [阻止救人信息等同屠杀](/content/gnews/3/README.md)
+ ` G-NEWS TAIWAN`
 
-### [香港疫情依然严峻，疫情平稳未见下降！](/content/gnews/19/README.md)
- ` 蓝莲花农场`
+### [乌克兰和欧洲以及和台湾和亚洲的未来](/content/gnews/4/README.md)
+ ` G-NEWS TAIWAN`
 
-### [欧洲央行将在乌克兰“分水岭”时刻关闭货币开关](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [3/11/2022 文贵直播：战友们的救援行动就是在传播新中国联邦的未来和形象，中共已被我们打入“塔西佗陷阱”](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
 
-### [樱花FM|2万多名外国志愿者申请加入乌克兰特种部队与俄罗斯军队作战](/content/gnews/21/README.md)
+### [有声｜俄富豪为避制裁 通过加密货币转移资产](/content/gnews/6/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [摩尔多瓦敦促其他国家接收更多的难民](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [樱花FM|英美为泽伦斯基出走做准备，支持组建乌克兰流亡政权](/content/gnews/8/README.md)
  ` 樱花FM`
 
-### [五角大楼重新组建团队，加速向乌克兰和盟友提供武器](/content/gnews/22/README.md)
+### [星链系统助力法治基金乌克兰救援行动](/content/gnews/9/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [【 G时新闻 】拜登签署加密货币管理的行政命令](/content/gnews/10/README.md)
+ ` G-时新闻`
+
+### [美国财政部表示对俄制裁扩大到加密货币](/content/gnews/11/README.md)
  ` 蓝莲花农场`
 
-### [视频|梅蒂卡站新建250平豪华帐篷受到广泛赞誉](/content/gnews/23/README.md)
- ` 纽约香草山MOS02`
-
-### [波兰边境难民营里德国钢琴师为法治基金捐款者演奏](/content/gnews/24/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [10艘俄罗斯舰艇通过津轻海峡为哪般](/content/gnews/25/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [五角大楼重启快速反应组，以应对军备采购和转移武器需求的大增](/content/gnews/26/README.md)
+### [俄罗斯鲁莽行动和违反核安全原则的行为](/content/gnews/12/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [波兰营地新中国联邦志愿者夜间值班迎难民](/content/gnews/27/README.md)
+### [韩国保守派政治新人赢得总统选举](/content/gnews/13/README.md)
+ ` GTV News Talk`
+
+### [俄军似乎在升级对乌克兰的暴力袭击，即使他们屡战屡败](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [五角大楼：美国不支持向乌克兰派遣波兰战机](/content/gnews/15/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [大直播后记：铸币权的重要](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [新中国联邦新闻、GTV新闻访谈简报|2022年3月11日晚](/content/gnews/17/README.md)
+ ` 纽约香草山MOS01`
+
+### [波兰汽车租赁公司老板被志愿者感召加入救援队伍](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国警告中共政府不要阻碍联合国人权专员在新疆的调查](/content/gnews/28/README.md)
+### [Nicole 采访阿丙连线飞飞](/content/gnews/19/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美囯正在加快把便携式导弹运送到乌克兰](/content/gnews/20/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [3/11/2022 文贵直播：新中国联邦乌克兰救援为什么让共产党感到恐惧？因为中国人迅速找到了自己的真颜色，证明中国人有正义、有品位、勇敢、无私奉献，这对中共是致命的](/content/gnews/21/README.md)
+ ` 秘密翻译组-北美组`
+
+### [对辉瑞等制药公司的审判即将发生，新中国联邦将迎来美好未来](/content/gnews/22/README.md)
+ ` 雅典娜GNotes`
+
+### [香港疫情依然严峻，疫情平稳未见下降！](/content/gnews/23/README.md)
+ ` 蓝莲花农场`
+
+### [欧洲央行将在乌克兰“分水岭”时刻关闭货币开关](/content/gnews/24/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [视频|梅蒂卡站新建250平豪华帐篷受到广泛赞誉](/content/gnews/25/README.md)
+ ` 纽约香草山MOS02`
+
+### [波兰边境难民营里德国钢琴师为法治基金捐款者演奏](/content/gnews/26/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [乌克兰儿童在俄乌战火中的命运：被杀、被伤或被救](/content/gnews/27/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [波兰营地新中国联邦志愿者夜间值班迎难民](/content/gnews/28/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国警告中共政府不要阻碍联合国人权专员在新疆的调查](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共病毒疫情蔓延整个亚洲 死亡人数突破100万](/content/gnews/29/README.md)
+### [前线快报&#8212;-3月11日 前线救援团队凌晨接应安全撤离的乌克兰战区民众130人](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共病毒疫情蔓延整个亚洲 死亡人数突破100万](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登总统：不会在乌克兰与俄罗斯开战,防止第三次世界大战](/content/gnews/30/README.md)
+### [拜登总统：不会在乌克兰与俄罗斯开战,防止第三次世界大战](/content/gnews/32/README.md)
  ` 美国政要直译推`
 
-### [日本对经济困难的留学生发放10万元补助](/content/gnews/31/README.md)
+### [日本对经济困难的留学生发放10万元补助](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [红十字会的红马甲继续送来难民](/content/gnews/32/README.md)
- ` 纽约香草山MOS02`
-
-### [3月11号救援前线所见所闻](/content/gnews/33/README.md)
- ` 纽约香草山MOS02`
-
-### [梅蒂卡救援前线跟踪报道](/content/gnews/34/README.md)
+### [3月11号救援前线所见所闻](/content/gnews/34/README.md)
  ` 纽约香草山MOS02`
 
 ### [新中国联邦救援3月11日前线报道](/content/gnews/35/README.md)
