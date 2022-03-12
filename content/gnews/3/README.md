@@ -2,27 +2,34 @@
 ---
 
 
-## 视频|法治基金营地是乌克兰难民的温暖庇护所
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2152568/)
+## 报道称以色列总理建议乌克兰投降
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2152600/)
 
-制作：香草山视频部
+#### 撰稿：彩虹       
 
-波兰当地时间3月10日晚9点多，由新中国联邦发起，法治基金赞助的乌克兰救援行动小组，在梅迪卡，设置了最大救援营地，为逃难至此的乌克兰难民安置了一个温馨的庇护所。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1339.png)图片来源：以色列时报
+据《新闻极限》3月11日报道，一位乌克兰官员告诉《耶路撒冷邮报》，周二，以色列总理纳夫塔利·贝内特（Naftali Bennett）在电话中告诉乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelenskyy），建议乌克兰向俄罗斯投降。
 
-外面气温大约零下5度左右，聚集在新中国联邦营地内的基本都是老人，妇女和儿童。从他们身上看不到逃离战区的狼狈和惶恐，大家很镇定，放松，有的在取暖闲聊，有的在吃饭，或休息，也有乌克兰小朋友高兴地帮助新中国联邦的志愿者发放食物，俨然回到自己的家一样。帐篷内有先进的取暖设备，温暖如春，为难民准备了充足的毯子，水果，矿泉水，热汤，巧克力，饼干，和最好的沙滩椅。
+据《周报》（The Week）报道，周一公开发布的协议将要求乌克兰将克里米亚半岛（Crimea Peninsula）正式割让给俄罗斯，承认分离主义的顿涅茨克（Donetsk）州和卢甘斯克（Luhansk）州的独立，并修改其宪法，禁止加入西方组织机构。
 
-这里虽然离战区很近，气候严寒，但法治基金的帐篷为逃离家园的乌克兰难民，撑起了一片难得的温暖安宁的空间。
+消息人士称，贝内特主动打电话说：“如果我是你，我会为我人民的生命着想，接受这个提议。”
 
-发稿：Daxia
+泽伦斯基回应说：“我听到了”。
 
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+报道说，贝内特还要求乌克兰停止向西方国家申请更多的军事和国防援助，认为这可能会使局势升级，从而损害调解努力。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+据报道，泽伦斯基和他的顾问们对这一建议感到不快。
+
+该官员称：“贝内特告诉我们要投降，我们无意这样做。我们知道普京的提议只是一个开始。”
+
+这位官员说，乌克兰政府相信，贝内特希望参与两国之间的外交努力，更多的是出于不想公开反对俄罗斯的立场，而不是希望公平地结束冲突。
+
+**新闻来源**
+
+[Report: Zelenskyy Refuses Israeli PM’s Advice to Surrender to Russia](https://www.newsmax.com/newsfront/ukraine-russia-negotiations-peace-deal/2022/03/11/id/1060864/)
+
+
 
  
 
