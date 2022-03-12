@@ -2,22 +2,51 @@
 ---
 
 
-## 乌克兰救援前线视频（二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2151160/)
+## 音乐视频诗朗诵《坠落》
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2151248/)
 
-**视频制作：**蛮吉
-**封面设计：**Rosie Lee
-**封底设计：**Rosie Lee
-**监制：**精靈藍
-**编辑/发布：**翼族
+作者: 关山月
+供稿：桑桠
+编辑发稿：am夏天
+喜马拉雅纽伦堡正义农场创意部
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-11-at-19.48.07.png)
 
+一片树叶从枝头坠落
+震动了整个深秋的良心
+一片羽毛从天空坠落
+留下了鸟雀们飞翔的岁月
+一片雪花在飘落中融化
+一切都在逝去，空气惊愕
+
+还有什么将要坠落
+会是浮云还是大海
+还有那飘渺的记忆
+而大海终将零落星际
+流落银河，光影破碎
+可能还会跌破仰视的目光
+
+残阳喋血，霓虹坍塌
+卑微的物质斑驳而去
+青春比落日走得更为惨烈
+爱情和生活都在塌陷
+泪水在眼角计量着苦难
+坠落大地，没有声息
+
+一切都在坠落
+诗人的心魂战栗不已
+春花秋实，坠落的季节
+风花雪月，坠落的青春
+恩义情仇，友情在坠落
+虚妄梦幻，理想在坠落
+
+一切的一切都在坠落
+怎么就看不见铁链的坠落
+凝血的铁链、陈腐的铁链
+多灾多难的大地呀
+你忍受了多少无奈的坠落
+却等不到那魔咒之链，坠落炼狱
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,31 @@
 ---
 
 
-## 北约重新定位罗马尼亚
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2150922/)
+## 秘翻新闻｜俄乌战争打醒中国留学生 小粉红转向反共
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2151135/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+**By:[秘翻新闻](https://gettr.com/post/pzlj9n4c0c)**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Ukraine-Konflikt-Militaeruebung-in-Rumaenien.jpg)
+**2022-03-12**
 
+**新闻内容:**
 
-图片来源：德新社
+**1. 李克强确认自己将在明年卸任中共总理**
 
-在访问罗马尼亚期间，美国副总统卡马拉哈里斯想发出一个明确的信息：西方已经认识到其在东南侧的脆弱性。 北约正在做出回应——现场有一个工作组。 但一位专家在其他地方看到了最大的危险。
+**2.上海疫情严重实施软封城  “健康云”再次崩溃**
 
-在乌克兰战争中，罗马尼亚正在成为新的地缘政治重量级人物。 由于其在黑海的战略位置以及作为乌克兰的邻国，北约正在这里大规模武装自己。 周五，美国副总统卡马拉哈里斯将访问布加勒斯特，强调该联盟准备自卫。 但北约长期以来一直低估罗马尼亚的核心重要性。 现在该国的脆弱性还取决于俄罗斯军队在乌克兰的进一步推进。
+**3. 普京或高估了中共援助 局势令中共不安**
 
-🔗 [https://www.welt.de/politik/ausland/plus237479777/Rumaenien-Hier-zieht-die-Nato-die-rote-Linie-fuer-Putin.html](https://www.welt.de/politik/ausland/plus237479777/Rumaenien-Hier-zieht-die-Nato-die-rote-Linie-fuer-Putin.html)
+**4. 俄罗斯寡头警：不要把俄罗斯带回苏联时代**
 
-编辑发表： Shuizhuyu
+**5.俄富豪为避制裁 通过加密货币转移资产**
 
+**🔗Gettr链接:**[https://gettr.com/post/pzlj9n4c0c](https://gettr.com/post/pzlj9n4c0c)
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

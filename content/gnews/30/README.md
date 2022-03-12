@@ -2,32 +2,23 @@
 ---
 
 
-## 高盛成为第一家在乌克兰被侵期间退出俄罗斯的华尔街主要银行
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2150694/)
+## 乌克兰副总理喊话华硕：停止与俄商业合作关系！暂未回应
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2150879/)
 
-作者：波士顿五月花 ——文雀
+![](https://assets.gnews.org/wp-content/uploads/2022/03/96c9d060-d024-4f3b-9d7f-3856c8acc563.jpg)图片来源：华硕官网
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+俄罗斯侵略乌克兰以来引多国谴责及经济制裁。乌克兰副总理兼数位转型部长费多罗夫10日以公开信的方式向华硕董事长施崇棠呼吁，华硕应停止与俄罗斯的商业合作关系。对此，华硕时至12日傍晚暂时没有回应。
 
+简评：对于俄罗斯的制裁，越积极主动了越好，都到这个时候了还没行动，不光是给自己品牌抹黑的问题，还是正义良知的考验！乌克兰副总理都喊话了，还没有得到回应，华硕真够可以的，准备跟俄罗斯一路走到黑吗？
 
-高盛几天前就已经开始将部分员工从俄罗斯迁往迪拜。
-包括 PayPal、Mastercard 和 Visa在内的众多支付公司也已开始退出俄罗斯市场。 
-西联汇款周四宣布将暂停在俄罗斯和白俄罗斯的业务，同样，Revolut 、 Zepz（WorldRemit）、Wise、TransferGo 和 Remitly 等金融科技公司已决定禁止在俄罗斯和白俄罗斯进行转账。
-而花旗集团去年宣布将关闭其在俄罗斯和其他几个国家的消费银行业务。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-184.jpeg)
-参考链接 [https://www.theblockcrypto.com/linked/137277/goldman-sachs-becomes-first-major-wall-street-bank-to-e i xit-russia-amid-ukraine-invasion](https://www.theblockcrypto.com/linked/137277/goldman-sachs-becomes-first-major-wall-street-bank-to-e%20i%20xit-russia-amid-ukraine-)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-185.jpeg)
-编辑/校对/发稿：文敬
+新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022312W0132)
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+撰稿/发布：一叶知秋
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
-
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
