@@ -2,23 +2,40 @@
 ---
 
 
-## 北约重新定位罗马尼亚
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2150922/)
+## 美情报总监称乌克兰没有发展生化武器
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2151071/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：纽约磐石农场—在远方
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Ukraine-Konflikt-Militaeruebung-in-Rumaenien.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
 
-图片来源：德新社
 
-在访问罗马尼亚期间，美国副总统卡马拉哈里斯想发出一个明确的信息：西方已经认识到其在东南侧的脆弱性。 北约正在做出回应——现场有一个工作组。 但一位专家在其他地方看到了最大的危险。
+```
+台媒报道，美国国家情报总监海恩斯3月10日表示，乌克兰生物实验室不生产武器，也不进行危险研究，重重打脸俄罗斯一贯虚假信息战手法。
 
-在乌克兰战争中，罗马尼亚正在成为新的地缘政治重量级人物。 由于其在黑海的战略位置以及作为乌克兰的邻国，北约正在这里大规模武装自己。 周五，美国副总统卡马拉哈里斯将访问布加勒斯特，强调该联盟准备自卫。 但北约长期以来一直低估罗马尼亚的核心重要性。 现在该国的脆弱性还取决于俄罗斯军队在乌克兰的进一步推进。
+ 据悉，俄罗斯外交部发言人9日指控，已经在乌克兰找到所谓“确切证据”，并称乌克兰卫生机构于2月24日下令摧毁瘟疫、霍乱、炭疽等病毒样本，并要求美国出面解释。对此，在美国参议院特别委员会10日召开的听证会上，情报总监海恩斯表示，乌克兰有十几个生物实验室，用于对应生物防御和公共卫生。美国在生物安全背景下，向乌克兰以及其他许多国家提供援助，这些实验室都没有任何武器开发。
+海恩斯称经过美国情报机构评估，乌克兰并没有寻求研发生物武器与核武器的计划。而俄罗斯污蔑乌克兰寻求使用核、生、化武器，是其一贯的虚假宣传做法，并善于编造嫁祸于人的借口，是俄方“假旗行动”的新动向。
+```
 
-🔗 [https://www.welt.de/politik/ausland/plus237479777/Rumaenien-Hier-zieht-die-Nato-die-rote-Linie-fuer-Putin.html](https://www.welt.de/politik/ausland/plus237479777/Rumaenien-Hier-zieht-die-Nato-die-rote-Linie-fuer-Putin.html)
 
-编辑发表： Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-188.jpeg)
+
+编辑/校对/发稿：文敬
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-189.jpeg)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
+
+
+
 
  
 

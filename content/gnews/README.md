@@ -15,104 +15,104 @@
 
 ---
 
-### [【 G时新闻 】 欧美制裁俄罗斯再加码，取消俄罗斯最惠国待遇！](/content/gnews/1/README.md)
- ` G-时新闻`
-
-### [【乌克兰救援】 文戈七雄和青峰战友在位于波乌边境Medyka的新中国联邦和法治基金救助站，为难民发放食物，毛毯等救援物资](/content/gnews/2/README.md)
+### [【乌克兰救援】03/11/22 新联邦救援帐篷迎来许多孩子，乌克兰萌娃萌翻全场](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌克兰最新的平民伤亡情况](/content/gnews/3/README.md)
+### [欧盟首脑会议 乌克兰入欧搁置](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [新中国联邦巨型救援帐篷陆续救助超400名乌克兰难民](/content/gnews/3/README.md)
+ ` 日本东京方舟农场`
+
+### [【 G时新闻 】 欧美制裁俄罗斯再加码，取消俄罗斯最惠国待遇！](/content/gnews/4/README.md)
+ ` G-时新闻`
+
+### [【乌克兰救援】 文戈七雄和青峰战友在位于波乌边境Medyka的新中国联邦和法治基金救助站，为难民发放食物，毛毯等救援物资](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [乌克兰最新的平民伤亡情况](/content/gnews/6/README.md)
  ` topnews`
 
-### [有声｜俄军在乌克兰多地轰炸 致更多平民死伤](/content/gnews/4/README.md)
+### [有声｜俄军在乌克兰多地轰炸 致更多平民死伤](/content/gnews/7/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [樱花时政┃入侵者俄罗斯再一次受到世界制裁](/content/gnews/5/README.md)
+### [樱花时政┃入侵者俄罗斯再一次受到世界制裁](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——捷报（新韵）](/content/gnews/6/README.md)
+### [樱花灭共诗——捷报（新韵）](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声｜金龙中国股指重挫10% 中概股跌跌不休](/content/gnews/7/README.md)
+### [有声｜金龙中国股指重挫10% 中概股跌跌不休](/content/gnews/10/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [拜登关于数字资产的新行政命令助长了美国的加密货币经济](/content/gnews/8/README.md)
+### [拜登关于数字资产的新行政命令助长了美国的加密货币经济](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声｜拜登签行政令 禁进口俄国伏特加、钻石和海鲜](/content/gnews/9/README.md)
+### [有声｜拜登签行政令 禁进口俄国伏特加、钻石和海鲜](/content/gnews/12/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [澳大利亚拟更改针对“密接人员”的隔离政策](/content/gnews/10/README.md)
+### [澳大利亚拟更改针对“密接人员”的隔离政策](/content/gnews/13/README.md)
  ` 澳喜特战旅Gnews`
 
-### [【 G时新闻 】 欧盟遏制俄罗斯信息战以捍卫乌克兰](/content/gnews/11/README.md)
- ` G-时新闻`
-
-### [音乐视频诗朗诵《坠落》](/content/gnews/12/README.md)
+### [音乐视频诗朗诵《坠落》](/content/gnews/14/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [有声｜俄罗斯寡头：不要把俄罗斯带回苏联时代](/content/gnews/13/README.md)
+### [有声｜俄罗斯寡头：不要把俄罗斯带回苏联时代](/content/gnews/15/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [新报告显示，COVID-19的真实死亡人数可能比我们想象的高三倍](/content/gnews/14/README.md)
+### [新报告显示，COVID-19的真实死亡人数可能比我们想象的高三倍](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [通过向联合国安理会撒谎，俄罗斯再次向自己开枪](/content/gnews/15/README.md)
+### [通过向联合国安理会撒谎，俄罗斯再次向自己开枪](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [乌克兰救援前线视频（二）](/content/gnews/16/README.md)
+### [乌克兰救援前线视频（二）](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [240平米巨型救援帐篷首晚接待乌克兰难民超400人](/content/gnews/17/README.md)
+### [240平米巨型救援帐篷首晚接待乌克兰难民超400人](/content/gnews/19/README.md)
  ` 纽约香草山MOS02`
 
-### [秘翻新闻｜俄乌战争打醒中国留学生 小粉红转向反共](/content/gnews/18/README.md)
+### [秘翻新闻｜俄乌战争打醒中国留学生 小粉红转向反共](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [乌克兰救援前线视频（一）](/content/gnews/19/README.md)
+### [乌克兰救援前线视频（一）](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美情报总监称乌克兰没有发展生化武器](/content/gnews/20/README.md)
+### [美情报总监称乌克兰没有发展生化武器](/content/gnews/22/README.md)
  ` GTV News Talk`
 
-### [新闻述评：新中国联邦在乌克兰“国际救援”中击溃共产党](/content/gnews/21/README.md)
+### [新闻述评：新中国联邦在乌克兰“国际救援”中击溃共产党](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北约重新定位罗马尼亚](/content/gnews/22/README.md)
+### [北约重新定位罗马尼亚](/content/gnews/24/README.md)
  ` Shuizhuyu`
 
-### [国际妇女节之际维吾尔妇女们没有什么可庆祝的](/content/gnews/23/README.md)
+### [国际妇女节之际维吾尔妇女们没有什么可庆祝的](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭文贵直播摘要和音频 2022.03.11](/content/gnews/24/README.md)
+### [郭文贵直播摘要和音频 2022.03.11](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [欧盟扩大对乌克兰人道援助“难民人数预计增长数百万人”](/content/gnews/25/README.md)
+### [欧盟扩大对乌克兰人道援助“难民人数预计增长数百万人”](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌克兰副总理喊话华硕：停止与俄商业合作关系！暂未回应](/content/gnews/26/README.md)
+### [乌克兰副总理喊话华硕：停止与俄商业合作关系！暂未回应](/content/gnews/28/README.md)
  ` 蓝莲花农场`
 
-### [美国对俄罗斯亿万富翁普京发言人家属实施新制裁](/content/gnews/27/README.md)
- ` Shuizhuyu`
-
-### [全球疫情疫苗数据更新](/content/gnews/28/README.md)
+### [全球疫情疫苗数据更新](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [高盛成为第一家在乌克兰被侵期间退出俄罗斯的华尔街主要银行](/content/gnews/29/README.md)
+### [高盛成为第一家在乌克兰被侵期间退出俄罗斯的华尔街主要银行](/content/gnews/30/README.md)
  ` GTV News Talk`
 
-### [大直播后记：七哥永远直奔主题，坚定灭共](/content/gnews/30/README.md)
+### [大直播后记：七哥永远直奔主题，坚定灭共](/content/gnews/31/README.md)
  ` 雅典娜GNotes`
 
-### [2022/03/10 墙内世界](/content/gnews/31/README.md)
+### [2022/03/10 墙内世界](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共散布美国实验室拥有和使用生化武器的虚假信息](/content/gnews/32/README.md)
+### [中共散布美国实验室拥有和使用生化武器的虚假信息](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [乌克兰救援前线图片集（三）](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [大直播后记：喜币创造第三代货币](/content/gnews/34/README.md)
  ` 雅典娜GNotes`
