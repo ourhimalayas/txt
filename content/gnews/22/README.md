@@ -2,31 +2,26 @@
 ---
 
 
-## 法治基金营地是乌克兰难民的温暖庇护所
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2148889/)
+## 新中国联邦救援战友接受囯际媒体采访
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2148942/)
 
-撰稿：纽约香草山金融部-AT
+撰稿：银河系农场—骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
-波兰当地时间3月10日晚9点多，由新中国联邦发起，法治基金赞助的乌克兰救援行动小组，在梅迪卡，设置了最大救援营地，为逃难至此的乌克兰难民安置了一个温馨的庇护所。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1233.png)
-外面气温大约零下5度左右，聚集在新中国联邦营地内的基本都是老人，妇女和儿童。从他们身上看不到逃离战区的狼狈和惶恐，大家很镇定，放松，有的在取暖闲聊，有的在吃饭，或休息，也有乌克兰小朋友高兴地帮助新中国联邦的志愿者发放食物，俨然回到自己的家一样。帐篷内有先进的取暖设备，温暖如春，为难民准备了充足的毯子，水果，矿泉水，热汤，巧克力，饼干，和最好的沙滩椅。
+波兰当地时间3月10日，在梅迪卡小镇，新中国联邦前线参与救援的战友Nicole和文戈七雄，接受了国外记者的采访。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1234.png)
+Nicole向记者表明了我们新中国联邦与中共的不同，提到新中国联邦和法治基金的此次国际大救援行动被共产党恶意破坏，指出他们黑客我们的救援邮箱，企图破坏我们的声誉。
 
-这里虽然离战区很近，气候严寒，但法治基金的帐篷为逃离家园的乌克兰难民，撑起了一片难得的温暖安宁的空间。
+文戈七雄战友详细介绍了我们新中国联邦人的各种救助措施，并呼吁采访记者扩散我们的联系方式，让更多的人可以得救。
 
-新闻连接：
-
-
-
-> 3月9日晚上9点: [#新中国联邦](https://twitter.com/hashtag/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6?src=hash&amp;ref_src=twsrc%5Etfw) 人在救援前线给乌克兰受难民众（老人妇女儿童们）分发食物，他们可以在帐篷里面取暖而避免受冻挨饿。感谢 [#法治基金](https://twitter.com/hashtag/%E6%B3%95%E6%B2%BB%E5%9F%BA%E9%87%91?src=hash&amp;ref_src=twsrc%5Etfw) 的所有捐款者们，你们捐助的每一分钱现在正在为人道主义救援发挥作用。[#Ukrainesos](https://twitter.com/hashtag/Ukrainesos?src=hash&amp;ref_src=twsrc%5Etfw) #乌克兰#UkraineRefugees [#UkraineRescue](https://twitter.com/hashtag/UkraineRescue?src=hash&amp;ref_src=twsrc%5Etfw) [#NFSC](https://twitter.com/hashtag/NFSC?src=hash&amp;ref_src=twsrc%5Etfw) [#ROLFRescue](https://twitter.com/hashtag/ROLFRescue?src=hash&amp;ref_src=twsrc%5Etfw) [#法治社会](https://twitter.com/hashtag/%E6%B3%95%E6%B2%BB%E7%A4%BE%E4%BC%9A?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/W02mBpYP7b](https://t.co/W02mBpYP7b)
-> — 三顾茅厕 (@sangumaoce) [March 10, 2022](https://twitter.com/sangumaoce/status/1501737639338143746?ref_src=twsrc%5Etfw)
-
-
+新闻来源：[#救援前线素材区](https://discord.com/channels/872153398588370944/950448401529577502/951305153695334450)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
 
-编辑：静言
+编辑：玫瑰圆
 
-总编/审核：飞虹
+总编：飞虹
+
+审核：宁文静
 
 校正/发稿：浪迹天涯
 
