@@ -2,31 +2,37 @@
 ---
 
 
-## 上海强行封锁上百小区 当地民众怨声载道
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2153082/)
+## 前线快报&#8212;-3月12日 包括一名出生6天的婴儿在内的12名乌克兰妇女和儿童已撤离前往波兰
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2153263/)
 
-**撰稿：日本东京方舟农场 海星**
+**3月12日 俄乌战争第17天，乌克兰—利沃夫Lviv前线报道**
 
-3月11日，上海政府以疫情扩散为由，强行封锁上百个小区，要求全民进行核酸检测。对此，当地民众纷纷抱怨，该措施严重影响基本生活。
+**包括一名出生才6天的婴儿在内的12名乌克兰妇女和儿童，顺利从乌克兰利沃夫登上救援大巴已安全撤离前往波兰**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/031101.jpg)
+[盖特视频链接](https://www.gettr.com/post/pzoe866b2c)
 
-据《亚洲自由电台》报导，上海政府声称3月10日新增11例本土确诊病例、32例境外移入病例，疫情扩散迅速。于是，当局开始强行封锁居民住宅区，多达200个，并要求居民熬夜核酸检测。
+从东部战区逃出来的12名被困乌克兰民众，包括一个才出生6天的婴儿和多名妇女儿童，登上了法治基金和新中国联邦的救援大巴。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-56.jpg)（图片来源：盖特/GETTR）
+难民通过联系前线救援队在乌的志愿者，历经周折，安全从利沃夫出发往波兰撤离。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1348.png)
+愿这个在战火中出生的宝宝能够在和平安全的环境下健康成长，停止战争，呼吁和平！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1349.png)
+新中国联邦、法治基金、法治社会与国际救援组织合作，免费帮助华人同胞、乌克兰同胞、美国同胞以及全球同胞撤离乌克兰战区。根据求助者的护照及签证情况，撤离地点为美国和其他安全中转国。请有需要的全球同胞与新中国联邦24小时紧急救援客服联系。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/grafik-21.png)
+***编辑：【英国伦敦喜庄园编辑部】***
 
-据悉，许多网民纷纷将封区的视频上传至微博，惊呼 “这边封掉了……我的天！”。也有网友发文称半夜收到通知，指零时开始小区将封闭大门，只进不出，并要求48小时内完成两次核酸检测。有人还贴出居民彻夜排队核酸检测的照片，抱怨道“凌晨两点了，核酸队伍还那么长”、“半夜两点钟，弄个大喇叭喊让做核酸，还让不让人睡觉”。
+* * *
 
-除此之外，还有不少居民抱怨小区临时被封，外卖、快递都被叫停，有视频显示一位外卖小哥刚进小区送外卖，却因无预警封锁措施出不去小区，焦急地在门口大喊“给我一张床，我就住这了”。更有甚者，有学校竟将小学生封锁在教室，不准回家，小朋友们只能打地铺睡觉。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-此外，上海政府还在嘉定赛车场南边以及万体馆建造方舱医院，以便进一步管控民众。
 
-参考链接：
-1. [https://www.rfa.org/mandarin/yataibaodao/huanjing/cm-03112022114109.html](https://www.rfa.org/mandarin/yataibaodao/huanjing/cm-03112022114109.html)
-2. [https://gettr.com/post/pzfbcz5383](https://gettr.com/post/pzfbcz5383)
-3. [https://gettr.com/post/pzfmyz6653](https://gettr.com/post/pzfmyz6653)
+编辑：【英国伦敦喜庄园编辑部】
 
-撰稿：海星
-总编：老孙
-校对发布：小斐
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

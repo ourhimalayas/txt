@@ -2,44 +2,26 @@
 ---
 
 
-## 泽伦斯基向俄罗斯妈妈喊话：不要送自己儿子参战
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2152300/)
+## 西班牙全科医生发现注射了第三剂新冠疫苗之后，在颈部和腋部出现大量腺病
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2152682/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image011-2.jpg)乌克兰总泽伦斯基。美联社
-乌克兰总统泽伦斯基在3月11日发布最新影片，呼吁俄罗斯母亲不要送自己儿子上战场攻打乌克兰，并对他们的行踪保持警惕。
+#### 翻译                       意大利达芬奇农场                             小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-12-alle-16.41.08.png)图片来源：eventiavversinews.it
+西班牙当地报纸《Levante-EI Mercantil Valenciano》报道称，据巴伦西亚全科医生们称，在接种第三剂新冠疫苗后，爆发了新的不良反应，大约涉及到8%的接种者。
 
-泽伦斯基在Telegram发布的影片中表示：“我想再度跟俄国母亲们喊话，尤其是被征召入伍者的母亲，不要把你们的孩子送到国外参战。” 他说，“请确认你们儿子的行踪。你们对儿子可能被送上战场攻打乌克兰，哪怕仅有一点怀疑，请立刻行动”阻止他赔上性命或遭到俘虏。
+是出现了结节，腋窝和颈部的腺病。
 
-他也说：“乌克兰从未想要这场恐怖的战争。尽管乌克兰不想要战争，我们仍必须捍卫自己。”
+事实上，这些结节是位于这些区域的淋巴结的炎症，并且恰恰在最接近疫苗注射区域的淋巴结，这些炎症最恰当的名字就是腺病，引起腺病的原因是多种多样的。由于疫苗对免疫系统造成的刺激而造成肿大。
 
-俄罗斯9日首度承认派出征召入伍的军人到乌克兰参战，并且，宣布有些人已被乌军俘虏。
+淋巴结的功能是过滤和排除身体某些部位的淋巴液。淋巴中含有白细胞，正是由于这些白细胞浓度异常，才会发生炎症， 这些肿块出现在腋窝或颈部区域。
 
+当然淋巴结肿大可能是对感染的反应或癌症等更严重疾病的症状。在注射了新冠疫苗的情况下，炎症与感染的状况非常相似。免疫系统对疫苗产生反应并受到过度刺激， 导致白细胞在最靠近受到攻击的区域的淋巴结中积聚， 在这种情况下是疫苗。这种白细胞在淋巴结中的积聚导致炎症并出现肿块。
 
+第三次注射后腺病病例增加过多，证明了免疫系统在这种情况产生了严重的炎症。
 
-[【援引连结】](https://www.sydneytoday.com/content-1022438966804004)
+原文链接：[https://www.eventiavversinews.it/spagna-nella-comunita-valenciana-i-medici-di-medicina-generale-riscontrano-un-alto-numero-di-adenopatie-dopo-la-terza-dose-sul-collo-e-sotto-le-ascelle/](https://www.eventiavversinews.it/spagna-nella-comunita-valenciana-i-medici-di-medicina-generale-riscontrano-un-alto-numero-di-adenopatie-dopo-la-terza-dose-sul-collo-e-sotto-le-ascelle/)
 
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+编辑、上传： Xiao  baige
 
  
 
