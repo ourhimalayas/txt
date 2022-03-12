@@ -2,37 +2,30 @@
 ---
 
 
-## 有声|欧盟领导人一致同意乌克兰加盟请求
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2153136/)
+## 【 G时新闻 】俄罗斯占据扎波罗热核电站，核监测数据停止
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2153262/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒报道，立陶宛总统瑙赛达3月11日发表推文透露，欧盟领导人对乌克兰的加盟请求全部表示同意。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-51.png)
-乌克兰总统泽连斯基，近期曾积极呼吁欧盟承认乌克兰为成员国，在2月28日也签署了申请书，正式要求加入欧盟。上月23日，波兰总统杜达和立陶宛总统瑙赛达在基辅发表联合声明，表示乌克兰应当获得欧盟候选国地位。
+**播报：加拿大温哥华扬帆农场 – 文广**
 
-据悉，欧盟10日在法国巴黎郊外凡尔赛举行领导人会议，经过5个小时的激烈讨论，欧盟领导人对乌克兰的欧洲一体化要求，全部表示同意。 瑙塞达强调说，英勇的乌克兰民族，值得了解他们在欧盟受到欢迎。
+**视频制作：加拿大温哥华扬帆农场 –  GraceIshan**
 
+国际原子能总署(IAEA)9日宣布，关于俄军占据的乌克兰东南部扎波罗热核电站的情况，来自其核物质监测系统的通信联系已经中断。
 
+就在前一天，IAEA表示来自乌克兰北部切尔诺贝利核电站放射性废弃物设施的数据传输也已经中断。
 
-文字版原文：[欧盟领导人一致同意乌克兰加盟请求](https://gnews.org/zh-hans/2149269/)
+IAEA在声明中称：“存在大量使用完和未使用核燃料等物质的这两个核电站突然中断向IAEA总部传输数据（使格洛西事务局局长）非常担忧。”
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+原因尚未明确，停止传输数据的机器状态也不明了。据悉，来自乌其他核电站的数据传输仍在继续。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+IAEA称，来自扎波罗热核电站的报告显示，4根外部高压电线中有2根受损，目前可以使用的有2根。必需品还需要1根电线、多余的第5根留作备用，以及备用的柴油发电机。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+此外，在本月4日该核电站一带发生的战斗中，核反应堆一座变压器的冷却系统遭到损坏，正进行着紧急维修。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+原文链接：[https://gnews.org/zh-hans/2152765/](https://gnews.org/zh-hans/2134296/)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+视频链接：[https://www.gettr.com/post/pzo31t67fd](https://www.gettr.com/post/pzo31t67fd)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发稿：野草
 
  
 

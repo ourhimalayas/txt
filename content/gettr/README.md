@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 11:35 PM (UTC)`
+
+【Ukraine Rescue】03/12/22 The NFSC & ROLF Ukraine Rescue team member Nicole says in an interview with HAYAT TV from Bosnia and Herzegovina: Over the past two weeks, we have successfully rescued more than 100 Chinese people, including Chinese students, more than 350 Ukrainians, Americans, and people from all other nationalities. We also rescued 100 children from an orphanage. We're only here to save people.<br/><br/>【乌克兰救援】03/12/22 新中国联邦和法治基金乌克兰救援团队成员妮可在接受来自波黑HAYAT电视台记者采访时说：在过去的两周里，我们成功营救了包括中国留学生在内的100多名中国人和350多名乌克兰、美国以及其他国籍人士，并从孤儿院救出 100 名儿童，我们只为救人而来<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group33/getter/2022/03/12/23/bf55efea-7c48-08aa-bda4-4a5331f7848e/out.jpg)
+
+---
+
+`@miles 3/12/2022 11:28 PM (UTC)`
+
+3/11/2022 Miles Guo: The professionalism exhibited by our fellow fighters, who have been working as volunteers on the front line of the Ukraine rescue operation, has earned the respect and attracted the attention of the whole world. Unlike the overseas Chinese pro-democracy activists who live on donations and gain fame through improper means, we, citizens of the New Federal State of China, who gathered together because of faith, have shown the world the best image of the Chinese people.<br/><br/>3/11/2022 文贵直播: 义工战友们在救援前线表现出来的专业精神赢得了全世界的尊敬和关注！不同于只靠捐款度日、沽名钓誉的海外民运分子，新中国联邦人因信仰凝聚在一起，展现出中国人最好的一面！<br/>
+![img](https://media.gettr.com/group8/getter/2022/03/12/23/45061f47-c44e-9c7e-3e6d-ae8339baa3fc/out.jpg)
+
+---
+
 `@miles 3/12/2022 11:17 PM (UTC)`
 
 【Ukraine Rescue】03/12/2022 Fellow fighter Nicole introduces NFSC and ROLF Ukraine Rescue Operation to a media from Roma：The Chinese Communist government does nothing to help Chinese people in Ukraine. Only the New Federal State of China and Rule of Law foundation do everything to save the Chinese people in Ukraine<br/><br/>【乌克兰救援】03/12/2022 妮可战友向罗马媒体介绍新中国联邦和法治基金在乌的救援行动：中共政府对在乌克兰的华人无所作为，只有新中国联邦和法治基金在尽一切努力拯救在乌华人<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,20 +161,6 @@
 
 【Ukraine Rescue】03/11/22 Soldiers and volunteers keep sending refugee children and adult refugees to our tent as the rescue tents of the New Federal State of China in Medyka, Poland is the largest, warmest and the best equipped<br/><br/>【乌克兰救援】03/11/22 士兵和志愿者们不断把逃难儿童和难民送往新中国联邦在波兰梅迪卡的救援帐篷，因为我们的帐篷最大、最温暖、设施最好<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
 ![img](https://media.gettr.com/group5/getter/2022/03/12/09/90a77458-fab4-c555-919a-23233a7e7bd8/out.jpg)
-
----
-
-`@miles 3/12/2022 8:15 AM (UTC)`
-
-
-![img](https://media.gettr.com/group12/origin/2022/03/12/07/021f74f1-c770-3b2e-6df2-eba05efd2466/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/12/2022 7:40 AM (UTC)`
-
-3/11/2022 Miles Guo: Many media outlets around the world want to cooperate with the New Federal State of China. For the first time in the history of China we are showing the foreigners that the Chinese people are equal to the world by using live broadcasts. You should feel happy because the New Federal State of China will play a central role on the world stage.<br/><br/>3/11/2022 文贵直播：全球有很多媒体要和新中国联邦合作；我们是中国人有史以来第一次用直播向外国人展示中国人和世界是平等的；新中国联邦会成为世界舞台的主角，大家就偷着乐吧！<br/>
-![img](https://media.gettr.com/group21/getter/2022/03/12/07/f81aa80c-a1bc-114a-7a8f-506d13ae58ba/out.jpg)
 
 ---
 
