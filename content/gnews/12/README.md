@@ -2,47 +2,50 @@
 ---
 
 
-## 志愿者新设的救援通道迎来了新的一批乌克兰难民
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2148934/)
+## 因使用爆炸式增长，拜登签署关于加密货币的命令
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2148980/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏 
-
-整理/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/10-22.png)图片来源：郭文贵先生盖特视频截图
+作者：新西兰伊甸农场—玫瑰
 
 
-根据3月11日新中国联邦和法治基金前线记者报道，新中国联邦义工和无疆界医生组织合作设立的救援通道，迎来了新的一批乌克兰难民。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-68.png)
+据美联社3月10日报道，美国总统乔·拜登周三签署了一项关于政府监管加密货币的行政命令，敦促美联储探索央行是否应该介入并创建自己的数字货币。根据行政命令，拜登还指示财政部和其他联邦机构研究加密货币对金融稳定和国家安全的影响。
 
-从视频可以看到，在刚刚从边境过来，长长的难民们队伍里，有小孩和用手推车推着的猫和狗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1000-2.jpeg)图源网络
 
-记者跟乌克兰难民们打招呼，并告知在新中国联邦和法治基金的帐篷里面提供着，食物、点心、巧克力和糖果。
+财政部长珍妮特·耶伦表示，这项努力将“促进一个更公平、更具包容性和更高效的金融体系”，同时打击非法金融，防止金融稳定和国家安全面临的风险。
 
-在长长的难民队伍当中，主要是小孩和妇女比较多，其中还有一些年纪比较大的难民。因为乌克兰男人都要留在乌克兰境内打仗。
+拜登的高级经济和国家安全顾问布赖恩·迪斯和杰克·沙利文分别表示，该命令为美国建立了第一个全面的联邦数字资产战略。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/12-18.png)
+据白宫称，100 多个国家已经开始或正在试行自己的数字主权货币。在拜登的行政命令发布后，比特币和加密货币相关股票周三获得提振。
 
+据 Coindesk 称，比特币价格上涨 9.8% 至 42,211 美元。加密货币交易所 Coinbase Global 的股票在午盘交易中飙升 9.3%，而在线经纪公司 Robinhood Markets 上涨 4.5%。专注于加密货币挖矿的 Riot Blockchain 股价上涨 11.5%。数字支付平台也有所增长。PayPal 上涨 4.9%，Block 上涨 10.55%。
 
-记者身处的地方是乌克兰边境救援难民必经的通道。昨天无疆界医生组织与新中国联邦和法治基金的志愿者设立这个救援通道的栏杆。
+参考来源：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/11-27.png)
+[Biden signs order on cryptocurrency as its use explodes](https://apnews.com/article/biden-cryptocurrency-executive-order-7af1d9bfda2d22046547fd9d51711ef5)
 
-
-现场有很多媒体在报道。等乌克兰难民出了这个救援长廊以后，就会陆续到新中国联邦和法治基金的帐篷里面休息。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/9-25.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-34.jpg)
 
 
-资料来源：[郭文贵先生2022年3月12日盖特视频](https://www.gettr.com/post/pzjsxece3f)
 
-发布：tianzhihuan
+编辑/校对/发稿：兰兰
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-69.png)
+
 
  
 

@@ -2,57 +2,42 @@
 ---
 
 
-## 活着
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2149006/)
+## 高盛和摩根大通撤出俄罗斯
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2149098/)
 
-作者：香草山香港部—格格樹
+撰稿：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
+据国外媒体3月10日报道，当天，高盛披露了关闭俄罗斯业务的计划。数小时后，美国资产最大的银行摩根大通也紧随其后。这两家银行都表示，他们是按照政府指示行事的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1235.png)图片来自：https://www.npr.org
+高盛自 1998 年以来一直在俄罗斯开展业务，拥有近 100 名员工，提供投资银行服务。目前高盛并没有给出何时完成裁员的时间表。
+
+摩根大通表示，摩根一直在按照世界各国政府的指示积极处理俄罗斯的业务，并没有在俄罗斯寻求任何新业务。
+
+鉴于银行是受俄罗斯监管的实体，任何退出该国的行为都不会是一夜之间的事情。据专家称，在一个国家结束银行业务可能需要一年以上的时间。
+
+另据知情人士透露，在宣布这一消息之前，高盛在俄罗斯的部分员工已经决定迁往迪拜。
+
+链接：
+
+[Goldman Sachs and JPMorgan withdraw from Russia as Wall Street joins exodus](https://www.ft.com/content/402a96df-fe97-44db-8df0-e0feba2fceaa)
+
+[Wall Street banks Goldman Sachs and JPMorgan Chase are pulling out of Russia](https://www.npr.org/2022/03/10/1085699374/goldman-sachs-russia)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-70.png)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
 
-活着，这是一个人的生存本性。
+编辑/总编/审核：飞虹
 
-无论遇到什么挫折和苦难，眼泪擦干后依然都得重新站起来。
-
-也许你会认为是一种盲目乐观的态度，也许你会认为是一种粗糙的人生哲理。
-
-没有什么比活着更容易，也没有什么比活着更难。
-
-时至如今，作为时代变迁中的我们，同样都在现实生活中不断挣扎求存，我们放弃了很多。有些人陷入囚笼，有些人远走他乡，有些人甚至失去生命，只求为下一代换一个安稳的、有尊严的日子。他们有选择的权利活着吗？他们又有活着的权利吗？
-
-我们的生活本不该这样，但他确实就这样发生了。
-
-到处充满着无奈，充满着遗憾，充满着疲惫，充满着谎言，充满着无声愤怒，同时还夹杂着曾经的快乐和希望以及受伤的心灵。这样的内心是何等的煎熬。
-
-活着本没有意义，意义只在于让我们更好地活着。
-
-唏嘘感慨岁月故事的此时，多年后人们如何看待我们的故事？
-
-深处此刻的我们无法去参透，也许应该像春草一般，在寒冷风中顽强地活着，等待春风吹过之时，希望又重生……
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
-
-编辑/校对/发稿：兰兰
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-72.png)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

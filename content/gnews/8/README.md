@@ -2,32 +2,36 @@
 ---
 
 
-## 因使用爆炸式增长，拜登签署关于加密货币的命令
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2148980/)
+## 活着
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2149006/)
 
-作者：新西兰伊甸农场—玫瑰
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-68.png)
-据美联社3月10日报道，美国总统乔·拜登周三签署了一项关于政府监管加密货币的行政命令，敦促美联储探索央行是否应该介入并创建自己的数字货币。根据行政命令，拜登还指示财政部和其他联邦机构研究加密货币对金融稳定和国家安全的影响。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1000-2.jpeg)图源网络
-
-财政部长珍妮特·耶伦表示，这项努力将“促进一个更公平、更具包容性和更高效的金融体系”，同时打击非法金融，防止金融稳定和国家安全面临的风险。
-
-拜登的高级经济和国家安全顾问布赖恩·迪斯和杰克·沙利文分别表示，该命令为美国建立了第一个全面的联邦数字资产战略。
-
-据白宫称，100 多个国家已经开始或正在试行自己的数字主权货币。在拜登的行政命令发布后，比特币和加密货币相关股票周三获得提振。
-
-据 Coindesk 称，比特币价格上涨 9.8% 至 42,211 美元。加密货币交易所 Coinbase Global 的股票在午盘交易中飙升 9.3%，而在线经纪公司 Robinhood Markets 上涨 4.5%。专注于加密货币挖矿的 Riot Blockchain 股价上涨 11.5%。数字支付平台也有所增长。PayPal 上涨 4.9%，Block 上涨 10.55%。
-
-参考来源：
-
-[Biden signs order on cryptocurrency as its use explodes](https://apnews.com/article/biden-cryptocurrency-executive-order-7af1d9bfda2d22046547fd9d51711ef5)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-34.jpg)
+作者：香草山香港部—格格樹
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-70.png)
+
+
+活着，这是一个人的生存本性。
+
+无论遇到什么挫折和苦难，眼泪擦干后依然都得重新站起来。
+
+也许你会认为是一种盲目乐观的态度，也许你会认为是一种粗糙的人生哲理。
+
+没有什么比活着更容易，也没有什么比活着更难。
+
+时至如今，作为时代变迁中的我们，同样都在现实生活中不断挣扎求存，我们放弃了很多。有些人陷入囚笼，有些人远走他乡，有些人甚至失去生命，只求为下一代换一个安稳的、有尊严的日子。他们有选择的权利活着吗？他们又有活着的权利吗？
+
+我们的生活本不该这样，但他确实就这样发生了。
+
+到处充满着无奈，充满着遗憾，充满着疲惫，充满着谎言，充满着无声愤怒，同时还夹杂着曾经的快乐和希望以及受伤的心灵。这样的内心是何等的煎熬。
+
+活着本没有意义，意义只在于让我们更好地活着。
+
+唏嘘感慨岁月故事的此时，多年后人们如何看待我们的故事？
+
+深处此刻的我们无法去参透，也许应该像春草一般，在寒冷风中顽强地活着，等待春风吹过之时，希望又重生……
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
 
 编辑/校对/发稿：兰兰
 
@@ -35,16 +39,18 @@
 
 [**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
 [**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-69.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-72.png)
+
+
 
 
  

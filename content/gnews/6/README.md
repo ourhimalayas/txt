@@ -2,8 +2,8 @@
 ---
 
 
-## 爆料革命是一个部队，努力拯救人类
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2148982/)
+## 最让人恐惧的是疫苗灾难
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2149077/)
 
 台灣寶島農場
 
