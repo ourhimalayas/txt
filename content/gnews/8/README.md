@@ -2,25 +2,27 @@
 ---
 
 
-## 俄军距基辅仅约25公里
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2150699/)
+## 美国对俄罗斯亿万富翁普京发言人家属实施新制裁
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2150781/)
 
 翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Russia-Ukraine-War.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0101.jpg)
 
 
-图片来源：美联社
+图片来源：路透社
 
-莫斯科的军队显然正准备对乌克兰首都发动重大袭击，而且越来越近了。专家们已经对“消耗战”发出警告。与此同时，马里乌波尔的情况正在恶化。
+美国周五对俄罗斯亿万富翁维克多·维克塞尔伯格、总统弗拉基米尔·普京的发言人和立法者的三名家庭成员实施制裁，这是对俄罗斯入侵乌克兰的最新惩罚。
 
-俄军显然加强了向乌克兰首都基辅方向的攻击。从晚上到周六，至少触发了三个飞行警报。据美国有线电视新闻网报道，周六早上，从远处可以听到该市的“几分钟”炮击声。
+自 2 月 24 日发起入侵以来，俄罗斯面临着一系列制裁措施，这是自二战以来对欧洲国家的最大袭击。美国财政部在一份声明中表示，受周五制裁打击的人包括俄罗斯第二大银行 VTB 银行 (VTBR.MM) 董事会的 10 名成员，以及俄罗斯议会下议院杜马的 12 名成员。
 
-根据乌克兰总参谋部周六晚上在 Facebook 上发布的一份报告，俄罗斯目前正在北部城市边界附近的萨西米亚和南部的维申基附近进行进攻。这些攻势在某些领域取得了部分成功。
+财政部长珍妮特耶伦说：“财政部继续要求俄罗斯官员为普京发动无理无端的战争负责。”
 
-据伦敦智库查塔姆研究所的一名军事研究人员称，俄罗斯对基辅的大规模袭击因此只是几小时或几天的事情。马蒂厄·布勒格说，在乌克兰首都前面长达 60 多公里的纵队中被困数日的俄罗斯军队现在已经重新集结。
+普京的发言人德米特里佩斯科夫于 3 月 3 日成为目标。周五的措施扩大到他的妻子和两个成年子女。财政部在新闻稿中说，他们过着“与佩斯科夫公务员薪水不相符的奢侈生活方式”。
 
-🔗 [https://www.welt.de/politik/ausland/article237490273/Krieg-in-der-Ukraine-Russische-Armee-nur-noch-etwa-25-Kilometer-von-Kiew-entfernt.html](https://www.welt.de/politik/ausland/article237490273/Krieg-in-der-Ukraine-Russische-Armee-nur-noch-etwa-25-Kilometer-von-Kiew-entfernt.html)
+克里姆林宫没有立即回复路透社的置评请求。
+
+🔗 [https://www.reuters.com/markets/europe/us-targets-russian-oligarchs-elites-fresh-sanctions-2022-03-11/](https://www.reuters.com/markets/europe/us-targets-russian-oligarchs-elites-fresh-sanctions-2022-03-11/)
 
 编辑发表： Shuizhuyu
 

@@ -2,23 +2,23 @@
 ---
 
 
-## 乌克兰副总理喊话华硕：停止与俄商业合作关系！暂未回应
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2150879/)
+## 北约重新定位罗马尼亚
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2150922/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/96c9d060-d024-4f3b-9d7f-3856c8acc563.jpg)图片来源：华硕官网
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-俄罗斯侵略乌克兰以来引多国谴责及经济制裁。乌克兰副总理兼数位转型部长费多罗夫10日以公开信的方式向华硕董事长施崇棠呼吁，华硕应停止与俄罗斯的商业合作关系。对此，华硕时至12日傍晚暂时没有回应。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Ukraine-Konflikt-Militaeruebung-in-Rumaenien.jpg)
 
-简评：对于俄罗斯的制裁，越积极主动了越好，都到这个时候了还没行动，不光是给自己品牌抹黑的问题，还是正义良知的考验！乌克兰副总理都喊话了，还没有得到回应，华硕真够可以的，准备跟俄罗斯一路走到黑吗？
 
-新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022312W0132)
+图片来源：德新社
 
-撰稿/发布：一叶知秋
+在访问罗马尼亚期间，美国副总统卡马拉哈里斯想发出一个明确的信息：西方已经认识到其在东南侧的脆弱性。 北约正在做出回应——现场有一个工作组。 但一位专家在其他地方看到了最大的危险。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+在乌克兰战争中，罗马尼亚正在成为新的地缘政治重量级人物。 由于其在黑海的战略位置以及作为乌克兰的邻国，北约正在这里大规模武装自己。 周五，美国副总统卡马拉哈里斯将访问布加勒斯特，强调该联盟准备自卫。 但北约长期以来一直低估罗马尼亚的核心重要性。 现在该国的脆弱性还取决于俄罗斯军队在乌克兰的进一步推进。
+
+🔗 [https://www.welt.de/politik/ausland/plus237479777/Rumaenien-Hier-zieht-die-Nato-die-rote-Linie-fuer-Putin.html](https://www.welt.de/politik/ausland/plus237479777/Rumaenien-Hier-zieht-die-Nato-die-rote-Linie-fuer-Putin.html)
+
+编辑发表： Shuizhuyu
 
  
 

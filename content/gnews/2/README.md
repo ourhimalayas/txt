@@ -2,31 +2,41 @@
 ---
 
 
-## 欧盟扩大对乌克兰人道援助“难民人数预计增长数百万人”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2150884/)
+## 新中国联邦前线救援团现场3月9日信息
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2150953/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1261-edited.png)news.yahoo.co.jp
-欧盟(EU)3月8日拨款5亿欧元(5.4700万美元)用于向乌克兰提供人道主义援助。欧盟表示，到目前为止，已经接收了200多万乌克兰难民，还有数百万人涌入。
+作者：纽约磐石农场—在远方
 
-欧洲委员约翰森(内部事务官)在欧洲议会表示：“事态不会很快平息。他指出，(俄罗斯)总统普京既不后悔，也不克制，也毫无人性地进行战争“，”预计还会有数百万人避难，我们应该接收难民他们。“
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
-欧盟在过去12天接受的难民人数超过了2015年和16年叙利亚内战中涌入的难民人数总和。
 
-约翰森委员称，有100多万人逃往波兰，近50万人逃往罗马尼亚，匈牙利和斯洛伐克各有10万多人前往。
+在3月9日的大直播中，郭文贵先生与身处波兰梅迪卡救援前线的，新中国联邦战友现场联线，战友们自信地表示，凭借热情的服务与出色的工作，新中国联邦广泛赢得了各国友人的尊重与帮助。
 
-5亿欧元人道主义援助的一部分将转给乌克兰邻国摩尔多瓦。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-186.jpeg)图片来源：文贵大直播
 
-来源：【news.yahoo.co.jp】[ＥＵ、ウクライナ人道支援拡大　「避難民は数百万人増加へ」](https://news.yahoo.co.jp/articles/36c4aaabc528da6e7840b3f608d6c7b91288e1c1)
 
-* * *
+```
+视频中，小李、明道兄弟、文戈等战友介绍，喜马拉雅联盟委员会主席老班长，秘书长长岛哥，以及前线现场总指挥大卫等，均冲锋在前，第一时间站在第一线展开工作。目前所有救援物资已经全部到位。我们救援团队的出色表现，胜过了其他所有团队的工作。战友们给乌克兰难民提供的食物和毛毯，让他们非常感动。虽然天气很冷，但是战友们热情高涨。
+```
 
-审核：BryanW
-校对：天天
-发布：花羽
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3.jpeg)
+国际友人们也自发的帮助我们的救援团队搬运物资，他们对新中国联邦人跨越半个地球，来到波乌边境进行人道主义救援，表示由衷的敬佩和感谢。战友们也为自己是新中国联邦人而感到无比的骄傲和自豪。
 
+参考链接 https ://www.gettr.com/post/pz568xa690
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-187.jpeg)
+
+编辑：静言
+校对/发稿：文敬
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
 
  

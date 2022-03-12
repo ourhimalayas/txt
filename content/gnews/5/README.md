@@ -2,47 +2,47 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2150738/)
+## 郭文贵直播摘要和音频 2022.03.11
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2150888/)
 
-整理：枳实
-美工：精灵蓝
+摘要撰稿人：文俊
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-129.png)图片：雅典娜农场设计组 精灵蓝
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/03/58f40a45be8872f9f4d0af763eaef754.jpg)
+### 视频链接：
+
+[https://www.gettr.com/post/pzg47d4994](https://www.gettr.com/post/pzg47d4994)
+
+### 音频链接：
+
+### 摘要：
+
+- 新中国联邦前线的救援报道，即使是凤凰卫视也做不到
+- 新中国联邦救援现场，唯一提供现磨咖啡（NFSC咖啡）的救援团队
+- 这几天乌克兰救援开支不到200万美元，但是法治基金的捐款远远超过这个数字
+- 共产党怕中国人有良知、正义、勇气和受到世界的尊重
+- 共产党是奴隶主，怕奴隶站起来反抗。更怕站起来的奴隶与代表奴隶抗争
+- 共产党马上要在世界上挑起比俄乌战争还要大的事情
+- 俄罗斯无法打核战，美国的F37B已经升空600天了，只能黏黏糊糊拖长战争
+- 新中国联邦准备成立奖励系统，新G-TV 股份，奖励在前线的战友
+- 喜币有责任，没有高耗能，去中心化的技术，有中心化的管理
+- 美日欧政府都在认真研究喜联储系统
+- 实体店第一条内裤用HDO交易之时，对喜币来说是质的改变，主权国家接受HDO、HCN作为主权货币，是质质质质的改变。主权国家基金宣布投资HDO的时候，是质质质质质质的改变
+- 未来一定是数字货币为主，法币为辅的时代
+- 俄罗斯会解体，俄罗斯想回到以前不可能了
+- 国内疫情，不是共产党放毒，是病毒失控
+- 病毒还在继续，继续重视病毒
+- 香港疫情爆发，会在世界各地继续上演
+- 担心共产党在中东放毒
+- 疫苗灾难：5月后世界大乱
+- 应对排华，耐心不求回报传播爆料革命信息
 
 
-雅典娜疫情更新（2022年 3月11日）
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-71.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-65.png)
-[2022年3月11日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月11日改进.pdf)
 
-数据来源：
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑发布：闪电训练
 
  
 

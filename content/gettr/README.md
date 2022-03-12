@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 11:59 AM (UTC)`
+
+
+![img](https://media.gettr.com/group12/origin/2022/03/12/07/021f74f1-c770-3b2e-6df2-eba05efd2466/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/12/2022 11:34 AM (UTC)`
 
 【Ukraine Rescue】03/11/22 The rescue tents of the New Federal State of China in Medyka, Poland continue to welcome many children, women and elderly refugees at 1 o'clock in the middle of the night<br/><br/>【乌克兰救援】03/11/22 新中国联邦在波兰梅迪卡的救援帐篷半夜1点还不停地迎入很多的孩子、妇女和老人难民<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
@@ -149,12 +156,6 @@ Wars for any reason are all crimes<br/>出于任何原因的战争都是犯罪<b
 
 2022.03.11 晚 《新中国联邦新闻》新中国联邦法治基金救援中心获最佳位置 引世人瞩目；新中国联邦与各类国际组织通力合作安置难民
 ![img](https://media.gettr.com/group41/origin/2022/03/12/01/fb12c1b2-b4ba-a268-6bea-7f9a9d323c14/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/12/2022 1:21 AM (UTC)`
-
- 3月11号：七哥厉害不？⋯你们服不服？…。服不服。 <br/><br/>https://ishare.ifeng.com/c/s/v006aVWvHy8xHpCv1AFw3ZWBdgp0tFKZ-_a6NeAvdylawuIisBWj9Dd4mtz7v--0DkFTRGLrgyMfozxdPJNb-_7m5WBcQ____?spss=np&channelId=&aman=6eh6f5xd96ee2fRc0bFcbcla84Rb0dM3f5Na45z785&gud=604888987K179e8005000B004
 
 ---
 

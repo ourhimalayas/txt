@@ -2,28 +2,32 @@
 ---
 
 
-## 流亡的白俄罗斯领导人说 人民正抵制俄罗斯对乌克兰的入侵
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2150643/)
+## 高盛成为第一家在乌克兰被侵期间退出俄罗斯的华尔街主要银行
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2150694/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture6-2.png)
-图片来自原文
+作者：波士顿五月花 ——文雀
 
-白俄罗斯流亡的反对派领导人斯维亚特拉娜-齐哈努斯卡娅（Sviatlana Tsikhanouskaya）说，乌克兰应注意俄罗斯飞机的动向。白俄罗斯人民已经前往乌克兰，积极抵制俄罗斯军队对乌克兰的入侵，帮助保卫基辅免受俄罗斯的攻击。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
-在渥太华的一个国防会议上斯维亚特拉娜-齐哈努斯卡娅警告说，大多数白俄罗斯人不支持入侵乌克兰，白俄罗斯的反战情绪正在上升。白俄罗斯和乌克兰的命运是相互关联的。
 
-乌克兰对克里姆林宫的大胆抵抗正在激励白俄罗斯对卢卡申科的抵抗。
+高盛几天前就已经开始将部分员工从俄罗斯迁往迪拜。
+包括 PayPal、Mastercard 和 Visa在内的众多支付公司也已开始退出俄罗斯市场。 
+西联汇款周四宣布将暂停在俄罗斯和白俄罗斯的业务，同样，Revolut 、 Zepz（WorldRemit）、Wise、TransferGo 和 Remitly 等金融科技公司已决定禁止在俄罗斯和白俄罗斯进行转账。
+而花旗集团去年宣布将关闭其在俄罗斯和其他几个国家的消费银行业务。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-184.jpeg)
+参考链接 [https://www.theblockcrypto.com/linked/137277/goldman-sachs-becomes-first-major-wall-street-bank-to-e i xit-russia-amid-ukraine-invasion](https://www.theblockcrypto.com/linked/137277/goldman-sachs-becomes-first-major-wall-street-bank-to-e%20i%20xit-russia-amid-ukraine-)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-185.jpeg)
+编辑/校对/发稿：文敬
 
-她警告说，普京使用核武器的威胁极为令人担忧。必须阻止独裁者。
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-她呼吁，加拿大和其他西方国家对白俄罗斯实行更严厉的制裁，包括对其国有银行的制裁，并警告说，俄罗斯正在利用白俄罗斯的银行来规避对其本国机构的制裁。这是个 “巨大的漏洞”，她说。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
-将白俄罗斯从SWIFT银行系统（金融机构使用的信息传递系统）中删除。
-
-新闻来源链接：[https://globalnews.ca/news/8674790/belarus-ukraine-russia-invasion/](https://globalnews.ca/news/8674790/belarus-ukraine-russia-invasion/)
-
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
 
  
 

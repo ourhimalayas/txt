@@ -2,32 +2,47 @@
 ---
 
 
-## 高盛成为第一家在乌克兰被侵期间退出俄罗斯的华尔街主要银行
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2150694/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2150738/)
 
-作者：波士顿五月花 ——文雀
+整理：枳实
+美工：精灵蓝
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-129.png)图片：雅典娜农场设计组 精灵蓝
 
 
-高盛几天前就已经开始将部分员工从俄罗斯迁往迪拜。
-包括 PayPal、Mastercard 和 Visa在内的众多支付公司也已开始退出俄罗斯市场。 
-西联汇款周四宣布将暂停在俄罗斯和白俄罗斯的业务，同样，Revolut 、 Zepz（WorldRemit）、Wise、TransferGo 和 Remitly 等金融科技公司已决定禁止在俄罗斯和白俄罗斯进行转账。
-而花旗集团去年宣布将关闭其在俄罗斯和其他几个国家的消费银行业务。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-184.jpeg)
-参考链接 [https://www.theblockcrypto.com/linked/137277/goldman-sachs-becomes-first-major-wall-street-bank-to-e i xit-russia-amid-ukraine-invasion](https://www.theblockcrypto.com/linked/137277/goldman-sachs-becomes-first-major-wall-street-bank-to-e%20i%20xit-russia-amid-ukraine-)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-185.jpeg)
-编辑/校对/发稿：文敬
+雅典娜疫情更新（2022年 3月11日）
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-71.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-65.png)
+[2022年3月11日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月11日改进.pdf)
 
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
