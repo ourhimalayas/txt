@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 3:38 AM (UTC)`
+
+3/11/2022 Miles Guo: The rescue operation conducted by the fellow fighters is spreading the words about the future and the image of the New Federal State of China, which has pushed the CCP into the Tacitus Trap. Please widely disseminate the accurate information about the New Federal State of China’s rescue mission and the revelation of the unjust nature of this war. No one can stop the New Federal State of China from entering the center of the world stage.<br/><br/>3/11/2022 文贵直播：战友们的救援行动就是在传播新中国联邦的未来和形象，中共已被我们打入“塔西佗陷阱”；请广泛传播新中国联邦救援和揭露这场战争非正义本质的准确信息；新中国联邦走向世界成为主角无人可挡！<br/>
+![img](https://media.gettr.com/group42/getter/2022/03/12/03/7e4ebc3d-3a02-149b-099e-2d2ef300b417/out.jpg)
+
+---
+
 `@miles 3/12/2022 3:11 AM (UTC)`
 
 3/11/2022 Miles Guo: Why is the CCP so scared of the Ukraine rescue operation launched by the New Federal State of China? Because Chinese people have quickly found their true color and it’s proven that decent Chinese people have tastes, courage and is able to contribute by giving assistance to others, and therefore this is a deadly attack to the CCP<br/><br/>3/11/2022 文贵直播：新中国联邦乌克兰救援为什么让共产党感到恐惧？因为中国人迅速找到了自己的真颜色，证明中国人有正义、有品位、勇敢、无私奉献，这对中共是致命的<br/>
@@ -146,13 +153,6 @@ Russia expert Leon Aron discusses how failed military defeats have toppled previ
 
 Chelsea FC owner and Vladimir Putin ally Roman Abramovich are among a list of Russian oligarchs being sanctioned by the UK. No more ticket sales will be allowed, player transfers and new contracts will be banned, merchandise sales will also not be allowed. His plan of selling Chelsea FC will also not be allowed to go ahead for the time being. <br/><br/>切尔西俱乐部老板、普京的盟友阿布拉莫维奇是被英国制裁的俄罗斯寡头名单中的一个。切尔西将不被允许再出售门票，禁止球员转会和新合同，也不允许销售商品。他出售切尔西俱乐部的计划也将暂时不被允许进行。<br/>
 ![img](https://media.gettr.com/group25/getter/2022/03/11/21/9fcca112-1b74-0bd5-d084-a2801b32317e/out.jpg)
-
----
-
-`@miles 3/11/2022 9:54 PM (UTC)`
-
-Moldova - one of Europe's smallest and poorest countries, urges other countries to take more refugees as its health system is strained. The sheer volume of Ukrainians fleeing the terror and crossing into other countries has left some border areas overwhelmed.<br/><br/>摩尔多瓦--欧洲最小和最贫穷的国家之一，敦促其他国家接收更多的难民，因为其卫生系统已经十分紧张。逃离恐怖并进入其他国家的乌克兰人的数量之多，使一些边境地区不堪重负。<br/>
-![img](https://media.gettr.com/group42/getter/2022/03/11/21/f38fcf70-a0fb-d2d1-0dd0-4e74751cc58d/out.jpg)
 
 ---
 

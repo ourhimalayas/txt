@@ -2,20 +2,27 @@
 ---
 
 
-## YouTube扩大制裁！在全世界封锁俄罗斯官媒频道
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2147645/)
+## 五角大楼重启快速反应组，以应对军备采购和转移武器需求的大增
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2147978/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0512ed4a-e839-4729-b599-43c891edb6e3.jpg)
-俄罗斯入侵乌克兰，战火延烧到第17天，国际社会扩大制裁俄罗斯。YouTube宣布，将在全球封锁俄国官媒「今日俄罗斯」（RT）和「俄罗斯卫星通讯社」（Sputnik）等俄罗斯官方资助的YouTube频道。
+文 / 陈慧璋
+发布 / 2022年3月12日 7:38 AM
+采集：玫瑰新闻组
 
-新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022312W0012)
+![美国国防部采办办公室近日忙于应对盟友的要求，包括通过第三方把它们的军备转移到乌克兰，或为自己添购军备以加强防御。（路透社）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/images/202203/20220312/2022-03-11t202412z883426729rc27vs9qyco45048242.jpg?VersionId=STKWp28NSqTpigz696KUibMo0Hi_VLcI&amp;itok=tG0dhM4q)美国国防部采办办公室近日忙于应对盟友的要求，包括通过第三方把它们的军备转移到乌克兰，或为自己添购军备以加强防御。（路透社）
 
-撰稿/发布：一叶知秋
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+（早报讯）据三名知情人士，美国五角大楼重新启动采办快速反应小组，以回应盟友和乌克兰对新军购和转移现有武器大增的需求。
+
+路透社报道，知情者说，美国国防部采办办公室近日忙于应对欧洲盟友的要求，包括通过第三方把它们的军备转移到乌克兰，或为自己添购军备以加强防御。
+
+据悉，该快速反应小组是在近日重启，旨为加强协调和简化销售与转移程序，并优先考虑美国盟友的要求。
+
+新闻链接：
+[军备采购和转移武器需求大增 五角大楼重启快速反应组](https://www.zaobao.com.sg/realtime/world/story20220312-1251513)
+
+**审核：Barry Jack
+上传排版：V在途中**
 
  
 

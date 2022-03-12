@@ -2,27 +2,22 @@
 ---
 
 
-## 五角大楼重启快速反应组，以应对军备采购和转移武器需求的大增
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2147978/)
+## 只有彻底把共产党灭了，才能砸碎中国人精神上的枷锁
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148200/)
 
-文 / 陈慧璋
-发布 / 2022年3月12日 7:38 AM
-采集：玫瑰新闻组
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-![美国国防部采办办公室近日忙于应对盟友的要求，包括通过第三方把它们的军备转移到乌克兰，或为自己添购军备以加强防御。（路透社）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/images/202203/20220312/2022-03-11t202412z883426729rc27vs9qyco45048242.jpg?VersionId=STKWp28NSqTpigz696KUibMo0Hi_VLcI&amp;itok=tG0dhM4q)美国国防部采办办公室近日忙于应对盟友的要求，包括通过第三方把它们的军备转移到乌克兰，或为自己添购军备以加强防御。（路透社）
+*发布：陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 
-（早报讯）据三名知情人士，美国五角大楼重新启动采办快速反应小组，以回应盟友和乌克兰对新军购和转移现有武器大增的需求。
-
-路透社报道，知情者说，美国国防部采办办公室近日忙于应对欧洲盟友的要求，包括通过第三方把它们的军备转移到乌克兰，或为自己添购军备以加强防御。
-
-据悉，该快速反应小组是在近日重启，旨为加强协调和简化销售与转移程序，并优先考虑美国盟友的要求。
-
-新闻链接：
-[军备采购和转移武器需求大增 五角大楼重启快速反应组](https://www.zaobao.com.sg/realtime/world/story20220312-1251513)
-
-**审核：Barry Jack
-上传排版：V在途中**
 
  
 

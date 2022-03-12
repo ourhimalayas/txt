@@ -2,23 +2,25 @@
 ---
 
 
-## 所有中国人都被锁在了一个精神的枷锁上
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148176/)
+## 樱花FM|日本15万人捐款40亿支持乌克兰 大使馆致谢
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2148265/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/日本15万人捐款40亿支持乌克兰-大使馆致谢.png)
+乌克兰驻日本大使馆在推特上宣布，自3月7日开设专门银行账户以支持俄罗斯入侵乌克兰的人道主义援助以来，已募集到近15万人次，40亿日元的捐款。
 
-*发布：陶子*
+乌克兰驻日本大使馆表示，“非常感谢日本友人在乌克兰人民这个困难时期给予的支持。”
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+文字版原文：
 
 
+| [日本15万人捐款40亿支持乌克兰 大使馆致谢](https://gnews.org/zh-hans/2123588/) |   |
+| --- | --- |
 
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
