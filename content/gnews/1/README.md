@@ -2,31 +2,37 @@
 ---
 
 
-## 上海强行封锁上百小区 当地民众怨声载道
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2153082/)
+## 有声|欧盟领导人一致同意乌克兰加盟请求
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2153136/)
 
-**撰稿：日本东京方舟农场 海星**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台媒报道，立陶宛总统瑙赛达3月11日发表推文透露，欧盟领导人对乌克兰的加盟请求全部表示同意。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-51.png)
+乌克兰总统泽连斯基，近期曾积极呼吁欧盟承认乌克兰为成员国，在2月28日也签署了申请书，正式要求加入欧盟。上月23日，波兰总统杜达和立陶宛总统瑙赛达在基辅发表联合声明，表示乌克兰应当获得欧盟候选国地位。
 
-3月11日，上海政府以疫情扩散为由，强行封锁上百个小区，要求全民进行核酸检测。对此，当地民众纷纷抱怨，该措施严重影响基本生活。
+据悉，欧盟10日在法国巴黎郊外凡尔赛举行领导人会议，经过5个小时的激烈讨论，欧盟领导人对乌克兰的欧洲一体化要求，全部表示同意。 瑙塞达强调说，英勇的乌克兰民族，值得了解他们在欧盟受到欢迎。
 
-据《亚洲自由电台》报导，上海政府声称3月10日新增11例本土确诊病例、32例境外移入病例，疫情扩散迅速。于是，当局开始强行封锁居民住宅区，多达200个，并要求居民熬夜核酸检测。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-56.jpg)（图片来源：盖特/GETTR）
 
-据悉，许多网民纷纷将封区的视频上传至微博，惊呼 “这边封掉了……我的天！”。也有网友发文称半夜收到通知，指零时开始小区将封闭大门，只进不出，并要求48小时内完成两次核酸检测。有人还贴出居民彻夜排队核酸检测的照片，抱怨道“凌晨两点了，核酸队伍还那么长”、“半夜两点钟，弄个大喇叭喊让做核酸，还让不让人睡觉”。
+文字版原文：[欧盟领导人一致同意乌克兰加盟请求](https://gnews.org/zh-hans/2149269/)
 
-除此之外，还有不少居民抱怨小区临时被封，外卖、快递都被叫停，有视频显示一位外卖小哥刚进小区送外卖，却因无预警封锁措施出不去小区，焦急地在门口大喊“给我一张床，我就住这了”。更有甚者，有学校竟将小学生封锁在教室，不准回家，小朋友们只能打地铺睡觉。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-此外，上海政府还在嘉定赛车场南边以及万体馆建造方舱医院，以便进一步管控民众。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-参考链接：
-1. [https://www.rfa.org/mandarin/yataibaodao/huanjing/cm-03112022114109.html](https://www.rfa.org/mandarin/yataibaodao/huanjing/cm-03112022114109.html)
-2. [https://gettr.com/post/pzfbcz5383](https://gettr.com/post/pzfbcz5383)
-3. [https://gettr.com/post/pzfmyz6653](https://gettr.com/post/pzfmyz6653)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-撰稿：海星
-总编：老孙
-校对发布：小斐
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

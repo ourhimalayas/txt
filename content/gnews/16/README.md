@@ -2,29 +2,23 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月12日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2152747/)
+## 乌克兰大救援 3.11.2022 中共的假恶丑逃和新中国联邦人的真善美勇形成鲜明对照
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2152757/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-4.jpg)
+作者：Evalu  (密翻原创组）
+校对：心声
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-12-at-12.59.58-PM-1.png)图片来源：[https://gettr.com/post/pzixy27bc2](https://gettr.com/post/pzixy27bc2)
+在3月11日文贵先生大直播现场连接了靠近乌克兰边境的波兰小城Medyka进行紧张的救援行动的新中国联邦人。妮可(Nicole)在新中国联邦搭建的大帐篷前介绍了救援情况，镜头前大家看到不断有人进进出出，在寒冷的天气下，帐篷提供了温暖的设拖，提供了水，食物，糖果，巧克力，还准备了咖啡，可以让疲惫的从乌克兰撤出来的老弱妇孺有一个温暖的休息场所。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-12.png)
-文章仅代表作者本人观点，与Gnews无关
+妮可介绍了新中国联邦搭建的帐篷在当地最大，而且设施最全，已经引起了很多世界媒体的关注，如美国之音，波兰报纸电视台，彭博社，美联社，西班牙媒体，阿拉伯媒体，并与无疆界医生团体，科索沃救援团体等合作，而且国际红十字会义工在安排难民们进入新中国联邦的帐篷。
 
-视频参看：
-[2022.03.12早 《NFSC新闻》](https://gettr.com/streaming/pzmmvs3e2d)
+妮可介绍曾接待一位波兰的救援义工，对方一开始对写着中文字的帐蓬有些迟疑，以为是中共的帐篷，而在波兰义工的心目中，中共是邪恶的，是反人类的，怎么会出现在救援现场？经过妮可解释，对方才恍然大悟，真正地理解了中国人不等于中共，中共不能代表中国人，并对新中国联邦人深表敬佩。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+所有这些，都显示新中国联邦人代表着真实，善良，正义正道，在现场的新中国联邦人展现出的精神面貌和外表着装等都是那么的美好风采，他们冒着严寒和新冠疫情以及战争近在眼前的危险，在前线日夜不停地进行救援行动，展示出无比的勇气，在世界面前，真正地展现了中国人的品格。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+反观中共，单单在俄乌战争中，扮演了帮助俄罗斯侵略乌克兰的丑恶角色，中共残酷压迫剥削杀戳中国人民，在国际上搞蓝金黄，搞造假，欺骗，撒谎，在真正需要救援的时候，却躲了起来，没有一个中共代表出现在救援现场，仅仅从这次的救援行动，就可以很明显的看出新中国联邦与中共的天差地别，那就是新中国联邦代表着真善美勇，而中共代表的是假恶丑躲。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源：[https://gettr.com/post/pzixy27bc2](https://gettr.com/post/pzixy27bc2)
 
  
 

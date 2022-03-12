@@ -2,39 +2,33 @@
 ---
 
 
-## 有声|台湾各界捐款乌克兰总额接近5.3亿新台币
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2152407/)
+## 俄罗斯威胁要攻击北约运往乌克兰的武器
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2152570/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据台湾媒体报道，为应对俄罗斯侵略乌克兰，台湾外交部2日公布了通过赈灾基金会成立的赈济乌克兰专户账号，从3日起接受ATM、银行转账，线上刷卡汇款，为期1个月。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1236.png)图片来自：https://news.ltn.com.tw
-账户开设后，各界踊跃捐款。至当地时间3月11日下午14点15分，捐款已累计接近5.3亿新台币，累计捐款笔数为8万7060笔。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/n.jpg)infowarsarmy.com
+据《零对冲》3月12日报道，俄罗斯威胁要攻击北约运往乌克兰的武器，称之为”合法的目标”。
 
-其中台湾政府总统、副总统、行政院长、立法院长等多位院长，以及基隆、桃园等市的市长，都捐出一个月月薪。
+克里姆林宫周六警告说，俄罗斯军方已准备好对继续涌入乌克兰的西方武器运输进行攻击。这为与西方和北约之间可能出现的冲突升级创造了条件。俄罗斯副总理谢尔盖·里亚布科夫在其国家电视台说，华盛顿在过去几天被告知，莫斯科将把进入乌克兰的武器供应车队视为 “合法目标”。
 
-赈灾基金会表示，捐款中还包括中华电信捐款1000万新台币，小企业主捐款200万新台币，个人捐款300万新台币。
+“我们警告美国，一些国家精心策划的输送武器到乌克兰的举动是危险的，它将这些车队变成‘合法目标’。”里亚布科夫在讲话中说，这是对西方的一个严厉警告。
 
+他补充说，俄罗斯已经正式警告 “向乌克兰贸然转让便携式防空系统、反坦克导弹系统等武器的后果”，从莫斯科的角度来看，美国政府没有认真对待这些警告。
 
+在俄罗斯2月24日入侵乌克兰的前几周，美国驻基辅大使馆曾在推特上发布照片，说有一批重要的武器运抵。美国授权波罗的海盟友转让标枪反坦克导弹，以供应乌克兰军队，同时，英国也送来了多轮运输机装载的弹药和武器系统。
 
-文字版原文：[台湾各界捐款乌克兰总额接近5.3亿新台币](https://gnews.org/zh-hans/2149146/)
+他们相信”毒刺 “防空导弹的供应也在加紧进行。俄罗斯的新警告也是在美国和波兰的米格-29飞机一事失败之后发出的。华沙曾过早地提出将其所有的米格-29飞机交给美国，以便它们可以从德国的拉姆施泰因空军基地飞入乌克兰。拜登政府说这个提议是一个 “惊喜”，而五角大楼则断然拒绝了这个计划，说鉴于这些飞机必须从西方进入乌克兰，有可能发生空中交火事件，造成北约与俄罗斯军队直接冲突的风险太高。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+最近的战场视频似乎证实，在许多情况下，入侵的俄罗斯坦克和装甲车被西方提供的 “标枪 “和其他反装甲导弹摧毁，这些导弹掌握在乌克兰军队手中。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+毫无疑问，克里姆林宫将这些攻击归咎于西方，因为是用北约提供的先进武器进行的。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**评论**：郭先生早就告诉我们，俄乌之战是中美代理人的战争。战争由普京发动，何时结束就由不得他了。目前看，俄军进退失距，打不赢，停不了，只能黏黏糊糊地弄下去，苦的是乌克兰及俄罗斯普通人，他们付出的是生命的代价。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+原文链接：
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[https://www.zerohedge.com/geopolitical/russia-threatens-attack-nato-weapons-shipments-ukraine-legitimate-targets](https://www.zerohedge.com/geopolitical/russia-threatens-attack-nato-weapons-shipments-ukraine-legitimate-targets)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**编译 发布：意大利达芬奇农场 Roma**
 
  
 
