@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 9:51 PM (UTC)`
+
+3月12号：新中国联邦人在乌克兰战场上的表现，时时刻刻，在改变了全世界人民如何看待中国人．和中国共产党，我们不被中国共产党代表，我们要消灭中国共产党，我们的世界观对．人道．人性，人格的尊重，将改变全世界过去对所有中国人的一切的看法。
+> `@himalayaukclub 3/12/2022 9:39 PM (UTC)`<br/>👏今天的好消息是我们的救援大巴上营救了一名才出生6天大的婴儿，应该是目前救援行动中年龄最小的对象了！愿这个在战火中出生的宝宝能够在和平安全的环境下健康成长🕊️🕊️🕊️ #呼吁和平停止战争 🙅🙅🙅<br/><br/>#法治基金 #新中国联邦 #乌克兰救援 #前线快报  <br/>📍2022年3月12日   乌克兰—利沃夫Lviv<br/><br/>从东部战区跑出来的12名被困乌克兰民众，包括一名才出生6天的婴儿和多名 #妇女儿童，登上了法治基金和新中国联邦的救援大巴🚍🚍🚍<br/>难民通过联系 #前线救援队 在乌的志愿者，历经周折，安全从 #利沃夫 出发往波兰撤离<br/><br/><br/>🆘24小时客服热线（电话/短信）：<br/>+1 720-657-6776或 +1 719-224-4232 或+48 508-532-712 或 +48 508-531-518<br/>Telegram： t.me/UkraineRescue<br/>邮箱： UkraineRescue01@protonmail.com 或 UkraineRescue02@protonmail.com
+![img](https://media.gettr.com/group36/origin/2022/03/12/21/a14edf8d-d162-6109-7c41-f5d25b5f5a50/out.jpg)
+
+---
+
 `@miles 3/12/2022 8:49 PM (UTC)`
 
 3/12/2022 Miles Guo: Nucleic acid tests are being performed all over communist China, followed by lockdowns of towns and cities; in Hong Kong, one has to go through piles of corpses in order to find the bodies of his loved ones; the CCP is enticing Chinese people to go to Ukraine, who will inevitably become the cannon fodders of Russia; I warned earlier that “if you follow the CCP, you are running into the crematorium”, it is up to you to make the decision.<br/><br/>3/12/2022文贵盖特：中共国国内从北到南到处搞核糖核酸、一个城一个城的封，在香港踩着尸体找尸体；共产党还鼓励中国人去乌克兰给俄罗斯当炮灰，跟着共产党、走进火葬场，信不信由你
@@ -153,13 +161,6 @@ Miles Guo: We have no more excuses, but to fight until taking down the CCP! <br/
 
 3/11/2022 Miles Guo: The NFSC & ROLF Ukraine rescue mission has demonstrated that we save people without any discrimination based upon differences in terms of race/ethnicity, religion, nationality, or region. Our rescue operation is of great significance as it is like a light in the darkness, and the closer you get to this light and the earlier you are enlightened, the better the chance you will have to survive in the darkness.<br/><br/>3/11/2022 文贵直播：新中国联邦救援行动展示了我们的救助无种族宗教差别、无国家、地域差别，就像黑暗中的一盏灯，离这盏灯越近、越早开智的人，就越可能不被黑暗吞噬掉，意义重大！
 ![img](https://media.gettr.com/group17/getter/2022/03/12/05/5a5ee25e-2d0d-9ad2-951e-ef4e10a11a94/out.jpg)
-
----
-
-`@miles 3/12/2022 4:56 AM (UTC)`
-
-Wars for any reason are all crimes<br/>出于任何原因的战争都是犯罪<br/>【"帮帮我”---乌克兰老人在寒风中艰难地等待撤离】 <br/>#ukrainehelp #ukrainehotline #nfscrescueteam
-![img](https://media.gettr.com/group43/origin/2022/03/12/04/d485e497-1c66-1ab0-10ba-c0a0a4ee6aad/out.jpg)
 
 ---
 
