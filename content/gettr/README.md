@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 8:49 PM (UTC)`
+
+3/12/2022 Miles Guo: Nucleic acid tests are being performed all over communist China, followed by lockdowns of towns and cities; in Hong Kong, one has to go through piles of corpses in order to find the bodies of his loved ones; the CCP is enticing Chinese people to go to Ukraine, who will inevitably become the cannon fodders of Russia; I warned earlier that “if you follow the CCP, you are running into the crematorium”, it is up to you to make the decision.<br/><br/>3/12/2022文贵盖特：中共国国内从北到南到处搞核糖核酸、一个城一个城的封，在香港踩着尸体找尸体；共产党还鼓励中国人去乌克兰给俄罗斯当炮灰，跟着共产党、走进火葬场，信不信由你
+![img](https://media.gettr.com/group40/getter/2022/03/12/20/192ab101-50a7-95c9-e822-1554360f39b3/out.jpg)
+
+---
+
 `@miles 3/12/2022 8:31 PM (UTC)`
 
 🙏🙏🙏
@@ -153,13 +160,6 @@ Miles Guo: We have no more excuses, but to fight until taking down the CCP! <br/
 
 Wars for any reason are all crimes<br/>出于任何原因的战争都是犯罪<br/>【"帮帮我”---乌克兰老人在寒风中艰难地等待撤离】 <br/>#ukrainehelp #ukrainehotline #nfscrescueteam
 ![img](https://media.gettr.com/group43/origin/2022/03/12/04/d485e497-1c66-1ab0-10ba-c0a0a4ee6aad/out.jpg)
-
----
-
-`@miles 3/12/2022 4:49 AM (UTC)`
-
-【Ukraine Rescue】The second rescue tent of the New Federal State of China in Medyka, Poland has been set up  and ready to use<br/><br/>【乌克兰救援】新中国联邦在波兰梅迪卡的第二个救援大帐篷已经开始使用<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
-![img](https://media.gettr.com/group24/getter/2022/03/12/04/6ab82061-0af3-8bfc-ba6a-ed6f6d0379d4/out.jpg)
 
 ---
 
