@@ -2,27 +2,26 @@
 ---
 
 
-## 视频|新中国联邦救援战友接受囯际媒体采访
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2152571/)
+## 西班牙全科医生发现注射了第三剂新冠疫苗之后，在颈部和腋部出现大量腺病
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2152682/)
 
-制作：香草山视频部
+#### 翻译                       意大利达芬奇农场                             小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-12-alle-16.41.08.png)图片来源：eventiavversinews.it
+西班牙当地报纸《Levante-EI Mercantil Valenciano》报道称，据巴伦西亚全科医生们称，在接种第三剂新冠疫苗后，爆发了新的不良反应，大约涉及到8%的接种者。
 
-波兰当地时间3月10日，在梅迪卡小镇，新中国联邦前线参与救援的战友Nicole和文戈七雄，接受了国外记者的采访。
+是出现了结节，腋窝和颈部的腺病。
 
-Nicole向记者表明了我们新中国联邦与中共的不同，提到新中国联邦和法治基金的此次国际大救援行动被共产党恶意破坏，指出他们黑客我们的救援邮箱，企图破坏我们的声誉。
+事实上，这些结节是位于这些区域的淋巴结的炎症，并且恰恰在最接近疫苗注射区域的淋巴结，这些炎症最恰当的名字就是腺病，引起腺病的原因是多种多样的。由于疫苗对免疫系统造成的刺激而造成肿大。
 
-文戈七雄战友详细介绍了我们新中国联邦人的各种救助措施，并呼吁采访记者扩散我们的联系方式，让更多的人可以得救。
+淋巴结的功能是过滤和排除身体某些部位的淋巴液。淋巴中含有白细胞，正是由于这些白细胞浓度异常，才会发生炎症， 这些肿块出现在腋窝或颈部区域。
 
-发稿：Daxia
+当然淋巴结肿大可能是对感染的反应或癌症等更严重疾病的症状。在注射了新冠疫苗的情况下，炎症与感染的状况非常相似。免疫系统对疫苗产生反应并受到过度刺激， 导致白细胞在最靠近受到攻击的区域的淋巴结中积聚， 在这种情况下是疫苗。这种白细胞在淋巴结中的积聚导致炎症并出现肿块。
 
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+第三次注射后腺病病例增加过多，证明了免疫系统在这种情况产生了严重的炎症。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+原文链接：[https://www.eventiavversinews.it/spagna-nella-comunita-valenciana-i-medici-di-medicina-generale-riscontrano-un-alto-numero-di-adenopatie-dopo-la-terza-dose-sul-collo-e-sotto-le-ascelle/](https://www.eventiavversinews.it/spagna-nella-comunita-valenciana-i-medici-di-medicina-generale-riscontrano-un-alto-numero-di-adenopatie-dopo-la-terza-dose-sul-collo-e-sotto-le-ascelle/)
+
+编辑、上传： Xiao  baige
 
  
 
