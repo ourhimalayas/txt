@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 11:00 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-12
+![img](https://media.gettr.com/group50/origin/2022/03/12/22/ecf26bc6-6a2a-bf0e-714f-900e1f8f1461/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/12/2022 10:50 PM (UTC)`
 
 3/12/2022 Miles Guo’s GETTR: Only the kind people of the New Federal State of China have provided coffee, gas heaters, and hot water for the refugees fleeing Ukraine in the bitter cold. The virus is wreaking havoc in Hong Kong, and there are corpses everywhere. The CCP doesn't allow the people to talk about the new variant of the virus in Hong Kong which has a high infection and mortality rate. The virus could probably be released by CCP to slaughter the people of Hong Kong!<br/><br/>3/12/2022 文贵盖特：只有善良的新中国联邦人为在严寒中走出乌克兰的难民提供了咖啡、热气炉和热水；香港疫情肆虐，到处都是尸体；中共不让谈香港新的变种病毒，其感染率和死亡率都高，可能是中共放毒以屠杀香港人！
@@ -154,13 +161,6 @@
 
 3/11/2022 Miles Guo: The NFSC & ROLF Ukraine rescue mission has demonstrated the most unique and best aspects of the Chinese people, showing that the Chinese are like the rest of the world instead of the slaves that make low-end products and commit counterfeiting. This is unacceptable to the CCP!<br/><br/>3/11/2022 文贵直播：新中国联邦法治基金乌克兰救援行动展示出了中国人最独特和最优秀的一面，说明中国人和全世界一样，并不是生产低端产品和造假的奴隶，这让中共无法接受！<br/>
 ![img](https://media.gettr.com/group48/getter/2022/03/12/07/4297ecb8-15a6-c9bf-4911-ba4b33b13ac9/out.jpg)
-
----
-
-`@miles 3/12/2022 5:55 AM (UTC)`
-
-Miles Guo: We have no more excuses, but to fight until taking down the CCP! <br/><br/>文贵：我们没有任何理由，没有任何借口，只有奋斗，战斗，直到消灭共产党！
-![img](https://media.gettr.com/group26/getter/2022/03/12/05/2526bc5c-578c-5139-ddf6-c6ed51997855/out.jpg)
 
 ---
 

@@ -2,24 +2,24 @@
 ---
 
 
-## 中日财经爆|俄罗斯入侵乌克兰 将导致全球粮价再涨22%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2149502/)
+## 樱花时政┃中共国与俄罗斯联手绕开制裁，俄石油销售从未停止
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2149616/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-17.png)[图片来源](https://www.tuliu.com/read-127715.html)
-联合国粮农组织周五（3月11日）表示，由于俄罗斯军事入侵乌克兰仍在持续，导致国际食品和饲料价格可能上涨22%，进而全球营养不良人口激增。
+撰稿：东京樱花团/ Calvin
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6-3.jpg)[图片来源](https://www.reuters.com/business/energy/exclusive-russias-surgut-allows-oil-sales-china-without-credit-guarantees-2022-03-11/)
+路透社新加坡3月11日电——三名知情人士表示，俄罗斯生产商Surgutneftegaz允许中共国买家在不提供信用证（LC）担保的情况下获得石油，以绕过西方的制裁。条款的变化允许Surgutneftegaz继续将ESPO Blend原油从俄罗斯远东的科兹米诺港出售给世界顶级石油进口国中共国。
 
-总部位于罗马的联合国粮农组织(FAO)表示，目前还不清楚战乱中的乌克兰能否收获庄稼，而俄罗斯未来一年的出口前景也存在不确定性。
+4月份，俄罗斯ESPO原油出口量将达到每天75.4万桶，是中共国最大的现货原油来源。在2月24日俄罗斯开始入侵乌克兰后，全球市场的油价已升至14年来的最高水平。俄罗斯是世界原油和石油产品总和的最大出口国。
 
-国际粮农组织表示，俄罗斯是全球最大的小麦出口国，乌克兰是第五大小麦出口国。它们提供了全球19%的大麦、14%的小麦和4%的玉米，占全球谷物出口的三分之一以上。俄罗斯也是全球主要化肥供应国。
+西方对入侵的制裁（俄罗斯称之为“特别军事行动”）导致银行停止为所有来自俄罗斯的石油发放信用证。中共国一再表示反对制裁，称制裁无效，并坚称将与俄罗斯保持正常的经贸交流。消息人士称，为了绕过这些限制，中共国公司正在使用开放式账户进行交易，这是允许客户以延迟付款方式购买商品的交易模式，并要求在货物装载后三天内全额付款。由于事情的敏感性，他们无法命名。目前还不清楚哪些银行参与了其中。而石油出口商Surgut拒绝置评。而信用证允许30天付款，并由银行支持，被视为双方最强大的担保。
 
-2月，粮农组织的食品价格指数创下历史新高。由于世界各地遭受冲突的影响，未来几个月的价格指数肯定还会继续攀升。报告称:“令人担忧的是，由此造成的全球供应缺口可能会使国际食品和饲料价格在本已高企的水平上再上涨8-22%”。
+消息人士表示，双方被迫为已经交易并将于3月和4月装载的货物找到了解决方案，但没有提供数量的信息。
 
-粮农组织称，包括许多最不发达国家在内的50个国家所进口粮食的30%或更多的小麦供应依赖于俄罗斯和乌克兰，这使得这些国家尤其脆弱。到2022、2023年，全球营养不良人口数量可能增加800万至1,300万人。
+消息来源：
 
-消息来源:[联合国粮农组织称乌克兰冲突将致高企的国际食品和饲料价格再涨20%](https://cn.reuters.com/article/fao-ukraine-war-food-price-0312-idCNKCS2L902Q?il=0)
+[EXCLUSIVE Russia’s Surgut works with China to allow oil sales to go on](https://www.reuters.com/business/energy/exclusive-russias-surgut-allows-oil-sales-china-without-credit-guarantees-2022-03-11/)
 
-*校对：东京樱花团/逢⑦必变
+*校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
