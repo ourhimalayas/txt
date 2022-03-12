@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 11:53 PM (UTC)`
+
+3/11/2022 Miles Guo: The CCP is hiring people to dig up and transport bodies on the battlefield of the Russia-Ukraine war by paying them as much as 100,000 yuan a month. However, the CCP is not going to let them use the BeiDou Navigation Satellite System that it has been touting, but to use the Americans’ GPS. The CCP is going to make the Chinese people cannon fodder on the battlefield, isn’t it?<br/><br/>3/11/2022 文贵直播：中共开出10万月薪雇人去俄乌战场挖尸体、运送尸体；中共竟然不给他们使用其鼓吹的北斗导航系统，却用的是美国人的GPS，这不明摆着把中国人拿去战场当炮灰吗！
+![img](https://media.gettr.com/group42/getter/2022/03/12/23/0f007eac-254c-1b6a-eeb0-f0f59a934e4c/out.jpg)
+
+---
+
 `@miles 3/12/2022 11:35 PM (UTC)`
 
 【Ukraine Rescue】03/12/22 The NFSC & ROLF Ukraine Rescue team member Nicole says in an interview with HAYAT TV from Bosnia and Herzegovina: Over the past two weeks, we have successfully rescued more than 100 Chinese people, including Chinese students, more than 350 Ukrainians, Americans, and people from all other nationalities. We also rescued 100 children from an orphanage. We're only here to save people.<br/><br/>【乌克兰救援】03/12/22 新中国联邦和法治基金乌克兰救援团队成员妮可在接受来自波黑HAYAT电视台记者采访时说：在过去的两周里，我们成功营救了包括中国留学生在内的100多名中国人和350多名乌克兰、美国以及其他国籍人士，并从孤儿院救出 100 名儿童，我们只为救人而来<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -154,13 +161,6 @@
 
 【Ukraine Rescue】03/11/22  At 3:37 a.m. local time, another group of refugees, many of them children, arrived at the NFSC relief tent. NFSC volunteers gave them candies and chocolates, and a cute girl smiled sweetly at the volunteers.<br/><br/>【乌克兰救援】03/11/22 又一批难民于波兰凌晨3点37分进入新中国联邦救援帐篷，里面有许多孩子，新中国联邦前线义工给他们分发糖果和巧克力,其中一个萌娃萌翻全场。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
 ![img](https://media.gettr.com/group36/getter/2022/03/12/09/9dc15edd-47ef-f651-af8d-fae053cff2fe/out.jpg)
-
----
-
-`@miles 3/12/2022 9:05 AM (UTC)`
-
-【Ukraine Rescue】03/11/22 Soldiers and volunteers keep sending refugee children and adult refugees to our tent as the rescue tents of the New Federal State of China in Medyka, Poland is the largest, warmest and the best equipped<br/><br/>【乌克兰救援】03/11/22 士兵和志愿者们不断把逃难儿童和难民送往新中国联邦在波兰梅迪卡的救援帐篷，因为我们的帐篷最大、最温暖、设施最好<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
-![img](https://media.gettr.com/group5/getter/2022/03/12/09/90a77458-fab4-c555-919a-23233a7e7bd8/out.jpg)
 
 ---
 
