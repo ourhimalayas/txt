@@ -2,35 +2,40 @@
 ---
 
 
-## 韩国确诊病例全国累计首次突破500万，每10人就有一个确诊患者
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2150348/)
+## 中共国吉林省新冠病毒大爆发，大学出现聚集性疫情
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2150582/)
 
-作者：首尔天池农场—追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
+整理/编辑：围剿维尼熊
 
-![](https://image.ajunews.com/content/image/2022/03/09/20220309204243482604.jpg)（韩联社）
-
-3月9日韩国媒体报道， 韩国中央防疫对策本部通报，截至当日零时，单日新增中共病毒确诊病例34万2446例，创历史新高。全国累计病例达到521万2118例，首次突破500万大关，其中每10个韩国人中就有一个确诊患者。 与此同时，重症病例当天增加80例，死亡人数增加158人，全国新增居家治疗患者29万人，累计达121万人。 韩国5126万人口中，完成第三剂疫苗接种的人数已占总人口的 62%。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1647081447022.jpg)图片来源：中国新闻网
 
 
+根据大纪元3月12日讯，中共国吉林省疫情近期持续升温，并出现大面积传播。长春市宣布“封城”，吉林市长被免职。
 
-参考链接：
+根据吉林省当局3月11日通报，该省的6个市州和1个省直管县有疫情报告。吉林市、长春市出现社区传播，短时间内筛查发现的感染者数仍将快速增加。
 
-[https://news.kbs.co.kr/news/view.do?ncd=5411925](https://news.kbs.co.kr/news/view.do?ncd=5411925)
+直到3月11日，长春市宣布“封城，通知全市范围内启动三轮全员核酸，全市小区村单位进行封闭式管理。
 
-编辑/校对/发稿：有莫举名
+吉林农业科技学院之前也被爆料，该学校出现了聚集性疫情爆发。后有自称是吉林农业科技学院的学生在社交媒体上爆料，学校一直都在隐瞒疫情爆发事实。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-33.jpg)
+据报导，吉林农业科技学院此次疫情爆发，属于学校刻意隐瞒疫情不报。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
+3月6日至今，吉林农业科技学院共报告了核酸阳性和无症状感染者超过120人。目前该校党委书记张立峰已被免职。
 
+不过，中共的疫情数据一直受到质疑。中共还封杀民间的不同声音，并抓捕敢于在网上透露实情的人们。
+
+参考链接：[https://www.epochtimes.com/gb/22/3/11/n13639947.htm](https://www.epochtimes.com/gb/22/3/11/n13639947.htm)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

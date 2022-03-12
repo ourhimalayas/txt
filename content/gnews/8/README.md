@@ -2,29 +2,42 @@
 ---
 
 
-## 美国对俄罗斯亿万富翁普京发言人家属实施新制裁
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2150781/)
+## 新中国联邦前线救援团现场3月9日信息
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2150953/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：纽约磐石农场—在远方
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0101.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
 
-图片来源：路透社
+在3月9日的大直播中，郭文贵先生与身处波兰梅迪卡救援前线的，新中国联邦战友现场联线，战友们自信地表示，凭借热情的服务与出色的工作，新中国联邦广泛赢得了各国友人的尊重与帮助。
 
-美国周五对俄罗斯亿万富翁维克多·维克塞尔伯格、总统弗拉基米尔·普京的发言人和立法者的三名家庭成员实施制裁，这是对俄罗斯入侵乌克兰的最新惩罚。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-186.jpeg)图片来源：文贵大直播
 
-自 2 月 24 日发起入侵以来，俄罗斯面临着一系列制裁措施，这是自二战以来对欧洲国家的最大袭击。美国财政部在一份声明中表示，受周五制裁打击的人包括俄罗斯第二大银行 VTB 银行 (VTBR.MM) 董事会的 10 名成员，以及俄罗斯议会下议院杜马的 12 名成员。
 
-财政部长珍妮特耶伦说：“财政部继续要求俄罗斯官员为普京发动无理无端的战争负责。”
+```
+视频中，小李、明道兄弟、文戈等战友介绍，喜马拉雅联盟委员会主席老班长，秘书长长岛哥，以及前线现场总指挥大卫等，均冲锋在前，第一时间站在第一线展开工作。目前所有救援物资已经全部到位。我们救援团队的出色表现，胜过了其他所有团队的工作。战友们给乌克兰难民提供的食物和毛毯，让他们非常感动。虽然天气很冷，但是战友们热情高涨。
+```
 
-普京的发言人德米特里佩斯科夫于 3 月 3 日成为目标。周五的措施扩大到他的妻子和两个成年子女。财政部在新闻稿中说，他们过着“与佩斯科夫公务员薪水不相符的奢侈生活方式”。
 
-克里姆林宫没有立即回复路透社的置评请求。
+国际友人们也自发的帮助我们的救援团队搬运物资，他们对新中国联邦人跨越半个地球，来到波乌边境进行人道主义救援，表示由衷的敬佩和感谢。战友们也为自己是新中国联邦人而感到无比的骄傲和自豪。
 
-🔗 [https://www.reuters.com/markets/europe/us-targets-russian-oligarchs-elites-fresh-sanctions-2022-03-11/](https://www.reuters.com/markets/europe/us-targets-russian-oligarchs-elites-fresh-sanctions-2022-03-11/)
+参考链接 https ://www.gettr.com/post/pz568xa690
 
-编辑发表： Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-187.jpeg)
+
+编辑：静言
+校对/发稿：文敬
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+
 
  
 

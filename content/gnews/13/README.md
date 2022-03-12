@@ -2,32 +2,47 @@
 ---
 
 
-## 高盛成为第一家在乌克兰被侵期间退出俄罗斯的华尔街主要银行
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2150694/)
+## 郭文贵直播摘要和音频 2022.03.11
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2150888/)
 
-作者：波士顿五月花 ——文雀
+摘要撰稿人：文俊
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/03/58f40a45be8872f9f4d0af763eaef754.jpg)
+### 视频链接：
+
+[https://www.gettr.com/post/pzg47d4994](https://www.gettr.com/post/pzg47d4994)
+
+### 音频链接：
+
+### 摘要：
+
+- 新中国联邦前线的救援报道，即使是凤凰卫视也做不到
+- 新中国联邦救援现场，唯一提供现磨咖啡（NFSC咖啡）的救援团队
+- 这几天乌克兰救援开支不到200万美元，但是法治基金的捐款远远超过这个数字
+- 共产党怕中国人有良知、正义、勇气和受到世界的尊重
+- 共产党是奴隶主，怕奴隶站起来反抗。更怕站起来的奴隶与代表奴隶抗争
+- 共产党马上要在世界上挑起比俄乌战争还要大的事情
+- 俄罗斯无法打核战，美国的F37B已经升空600天了，只能黏黏糊糊拖长战争
+- 新中国联邦准备成立奖励系统，新G-TV 股份，奖励在前线的战友
+- 喜币有责任，没有高耗能，去中心化的技术，有中心化的管理
+- 美日欧政府都在认真研究喜联储系统
+- 实体店第一条内裤用HDO交易之时，对喜币来说是质的改变，主权国家接受HDO、HCN作为主权货币，是质质质质的改变。主权国家基金宣布投资HDO的时候，是质质质质质质的改变
+- 未来一定是数字货币为主，法币为辅的时代
+- 俄罗斯会解体，俄罗斯想回到以前不可能了
+- 国内疫情，不是共产党放毒，是病毒失控
+- 病毒还在继续，继续重视病毒
+- 香港疫情爆发，会在世界各地继续上演
+- 担心共产党在中东放毒
+- 疫苗灾难：5月后世界大乱
+- 应对排华，耐心不求回报传播爆料革命信息
 
 
-高盛几天前就已经开始将部分员工从俄罗斯迁往迪拜。
-包括 PayPal、Mastercard 和 Visa在内的众多支付公司也已开始退出俄罗斯市场。 
-西联汇款周四宣布将暂停在俄罗斯和白俄罗斯的业务，同样，Revolut 、 Zepz（WorldRemit）、Wise、TransferGo 和 Remitly 等金融科技公司已决定禁止在俄罗斯和白俄罗斯进行转账。
-而花旗集团去年宣布将关闭其在俄罗斯和其他几个国家的消费银行业务。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-184.jpeg)
-参考链接 [https://www.theblockcrypto.com/linked/137277/goldman-sachs-becomes-first-major-wall-street-bank-to-e i xit-russia-amid-ukraine-invasion](https://www.theblockcrypto.com/linked/137277/goldman-sachs-becomes-first-major-wall-street-bank-to-e%20i%20xit-russia-amid-ukraine-)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-185.jpeg)
-编辑/校对/发稿：文敬
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
+
+编辑发布：闪电训练
 
  
 

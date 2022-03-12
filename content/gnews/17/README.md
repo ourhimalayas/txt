@@ -2,28 +2,44 @@
 ---
 
 
-## 大直播后记：七哥永远直奔主题，坚定灭共
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2150623/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2150738/)
 
-整理：Grace Fang、sadhu
-编辑：skyandmoon
+整理：枳实
+美工：精灵蓝
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-19.png)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-129.png)图片：雅典娜农场设计组 精灵蓝
 
 
-文贵：专打坦克，这种小导弹——针刺导弹，这个东西就厉害了，PRG也是美国的。现在乌克兰人在那儿打坦克、打将军 、打飞机，还都是把对方的通信给毁掉和破解的情况下。中共还用GPS把人送到前线，那美军真的在任何地方——在被窝里，人拿着遥控器，就可以把去了前线的中国人Bang Bang Bang，全给打成烂肉。有多邪恶啊！中国共产党太可怕，太可怕了。
+雅典娜疫情更新（2022年 3月11日）
 
-晓理：中共把十四亿老百姓同胞出卖的这种行为，以及我们看到的，把大家当做奴隶的这种行为，真的是罄竹难书。我作为一个中国女性，这几天感触特别深。因为我们知道这个铁链女的事情，实际上我们可以看到中共国不光有铁链女，还有很多铁笼女，还有很多不知道去向的儿童，那我现在应该庆幸我没有遇到吗？还是当时有可能也是其中的一位？ 但是，当我们看到新中国联邦的女性站在最前线，看到我们的Nichole 战友、看到我们的文耀姐在最前线，也看到我们整天一起战斗的这些战友们。作为新中国联邦的女性，真的感到非常的自豪。而且我能感觉到我们周围的这些战友都特别的可爱，也很善良。因为每次我们做节目，看到很多的报道里有说到，孩子在战乱中跟家人被迫分离，变得无依无靠，然后我们看到他们绝望得在哭。 游走在人群中，我相信都能触动到我们每一个人心灵深处那个最柔软的地方。我们的战友，他们都在说：“真想去领养这个孩子，希望能给他们一个避风港。”那我也在这里问一下文贵先生：“我们新中国联邦以后是否会有这样的一个机构，或者是组织去收养、帮助这些孩子吗？谢谢!”
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-文贵：谢谢！作为一个中国女性，今天唯一的女性。作为代表在这儿，今天女性不是半边天，你现在是10%。现在是我们4个男人对1个女性。现在你是15%的天下或者25%的天下。晓理说的非常好，我们中国人最起码的常识要有。特别是女性，看到这个锁链女，还有国内的这些孩子的丢失，这就是共产党的邪恶。一年几百万人，这是官方说的。 几百万是什么概念？一个曼哈顿的人全消失了，被绑架了。还是每年都这样！ 我相信会达到1000万的。 这1000万个人（的背后）就有1000万个家庭被毁。 中国人像猪狗一样的活着，我觉得猪狗也不会这样吧？大家看到很多视频。 一个狗救自己的孩子、猪救自己的孩子，动身救自己的孩子啊！小鹿救自己的孩子那种伟大！但是中国人他就能（这样）活着。孩子丢了、娘丢了， 他就能活着，多可怕！
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-71.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-65.png)
+[2022年3月11日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月11日改进.pdf)
 
-资料来源：[2022年3月11日文贵大直播](https://www.gettr.com/streaming/pzg47d4994)
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
 发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
