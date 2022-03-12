@@ -2,46 +2,21 @@
 ---
 
 
-## 日企相继暂停在俄业务
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151657/)
+## 【粤语配音】2022年3月11日：轰轰烈烈数字货币时代即将到来
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2151846/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月10日，据多家外媒报导，随着俄罗斯侵略乌克兰战争的持续，日本知名企业纷纷暂停与俄罗斯有关的业务往来。
+紐約香草山-香港部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-17.jpg)
+我可以负责任的告诉大家，H-Pay和喜马拉雅币是美国政府研究当中，最重要的币和系统之一，特别是白皮书，我相信美日欧这些国家一定会研究喜币。
 
-经营服装连锁品牌“优衣库”的日本迅销公司10日宣布，在俄罗斯运营的50家门店，将关停在俄罗斯的业务。当天，日立制作所也宣布应乌克兰政府的要求，三菱电机则宣布以物流混乱为由，将暂停在俄业务。
+拜登总统说了一句话：“负责任的数字货币和立法方案”，去中心化币，它是一个开始，一定会被消失，最后是各国政府一定说，所有的去中心化的币，一定不允许你交易在这些国家，一定不会，听我的兄弟姐妹们，能卖的赶快卖，别等着像这次战争来了，你想跑都来不及了，第二，一定会在全世界说，你要有任何数字货币负责任，就是说这个技术是可以去中心化的，政府可以说，允许你是去中心化的技术，但是你必须有中心化的责任的系统，那就必须稳定币、法币和数字货币有一个平衡，再一个要有锚定，然后政府一定加大你这个钱的监管，什么叫监管？就是你从法币来的钱，去哪儿了，我得管。
 
-任天堂公司最近也宣布，其出品的家用游戏机及相关软件在内的所有商品，已停止对俄出货。
+这三条那就了不的了，然后你再可以支付，在这个支付系统的时候，可能是未来政府三五年都搞不定的事儿，因为这个数据你是很难把握的，因为互联网时代，但拜登总统给了你一个地图，美国要立法，要立法在全世界最前面，让你所有的数字货币，在政府的范围之内，进行现代化的运作，负责任的运作，这个时候大家要看到喜币就值钱了。
 
-索尼已停止在俄罗斯销售其 PlayStation 游戏机和软件。爱普生也将暂停向俄罗斯和白俄罗斯出口其产品，并承诺向联合国难民署提供 100 万美元，以支持人道主义救济乌克兰。
+所以喜币的稳定性和固定的数字，和他交易的这种支付系统，天下无敌，再加上20%的黄金，天下没有的，唯此一家，而且它是最新的技术，只要是喜币HCN、HDO在实体店开始交易的第一天，能买第一条内裤，它就是质的改变，在任何一个主权国家批准它流通，HCN、HDO，我告诉你们战友们，那将是质质质的改变，任何一个国家主权机构进来投资，只投资一个币，这就完全是质质质的改变。
 
-运营乌冬面连锁店“丸龟制面”的东利多控股公司，正准备暂停在俄全部7家店铺的营业。
+所以说拜登总统这一场的几十天的变化，是美国制定政策以来，连战争它都没有反应那么快，就是美国人在反应这个数字货币上，比乌克兰与俄罗斯的战争反应还快，因为这个时代谁也挡不住，数字货币的时代，不是已经悄悄到来，是不可逆转的、轰轰烈烈地、摧枯拉朽地来到了这个世界，即使美帝国主义也必须跪下来双手迎接，你没有选择，最后是法币和数字货币共存时代，我要告诉你们大概是什么时代，是数字货币作为主，法币作为负的金融时代的到来，希望大家真正能意识到喜币是我们最美好的未来，谢谢！
 
-日本烟草产业公司已宣布将暂停在俄新的投资及促销活动，还可能暂停在俄的4家工厂。
-
-链接：
-
-- [Japanese companies Sony and Epson withdraw from Russian market.](https://kyivindependent.com/uncategorized/japanese-companies-sony-and-epson-withdraw-from-russian-market/)
-- [Uniqlo operator, Japan Tobacco to suspend some Russia operations in U-turn](https://www.rappler.com/business/uniqlo-operator-fast-retailing-japan-tobacco-suspend-russia-operations-ukraine-invasion/)
-- [Japan’s Sony and Nintendo halt business in Russia](https://www.aljazeera.com/economy/2022/3/10/japans-sony-and-nintendo-halt-business-in-russia)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
-
-总编：飞虹
-编辑：静言
-审核：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

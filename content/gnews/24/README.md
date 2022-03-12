@@ -2,25 +2,34 @@
 ---
 
 
-## 救援无私无我休戚与共
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151212/)
+## 亚裔纽约地铁无故遇袭
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151626/)
 
-作者：纽约香草山农场 文真
+作者：MOS – 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-鉴于米蒂卡救助点艰苦的环境，据救援前线记者报道，爆料革命在欧洲地区的战友当天给前线救援团队送去了大量封装好的即食中餐。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-12-at-8.49.43-PM.png)
-据了解，这些欧洲的战友们提前将食材烹饪完毕，然后将真空包装的熟食空运至波兰华沙，再由地处华沙的战友接力送去米蒂卡前线。据视频资料显示，这些中餐营养丰富、荤素兼备，而且只需稍稍加热后，前线的救援战友们就可以方便地享用到美味的食物。
+3月6日国外媒体报道，当天早晨8点30左右，曼哈顿地铁站发生了一起袭击案，一名亚裔受害者表示，袭击他的人没有说一句话，就将他的脸砍了一刀。
 
-目前，这些食物已经被仔细地收纳在新中国联邦的救援房车旁边，而当地的战友们则拥挤在狭小的房车内，一起分享这些带着久违乡土气息的餐食。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-19.jpg)
 
-对此，前线记者表示，欧洲战友们送去的不仅仅是单纯的食物与物品，其更是后方战友们对前线救援团队的爱心与关怀。
+据警方报告，当时，39岁的亚裔受害者正在一辆北行的J线地铁上。当列车进入下东区的德兰西街/埃塞克斯街站时，一名陌生人用剃须刀片划破了他的脸。
 
-参考链接：[NFSC Morning News 03/12/2022](https://gettr.com/streaming/pzmmvs3e2d)
+随后，受害者跟踪了袭击他的人，并把袭击者指给警察看。警方逮捕了袭击者，并指控他犯有攻击和篡改证据的重罪。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+纽约警察局的一位发言人称这次袭击是“无端的”。
 
-编辑/总编/审核：Irene木木
-校正/发稿：我不在这里
+警方表示，由于受害者是亚裔，他们向纽约市警察局的仇恨犯罪特别小组报告了这起袭击事件。
+
+链接：
+
+- [Straphanger slashed in the face with razor blade on NYC subway, cops say](https://nypost.com/2022/03/06/straphanger-slashed-in-the-face-with-razor-blade-nyc-subway-cops-say/)
+- [Just WHAT does it take to get jailed in NYC? Serial criminal awaiting sentencing for assault with a deadly weapon is bailed yet again ‘after slashing Asian subway passenger’s face with a RAZOR’](https://www.dailymail.co.uk/news/article-10589915/Serial-criminal-awaiting-sentencing-assault-deadly-weapon-arrested-attack-subway.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+总编/编辑：飞虹
+审核：木木
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

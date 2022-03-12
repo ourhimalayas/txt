@@ -2,42 +2,38 @@
 ---
 
 
-## 新中国联邦巨型救援帐篷陆续救助超400名乌克兰难民
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2151584/)
+## 194位诺奖得主对乌克兰声援支持
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151655/)
 
-**撰稿：日本方舟农场  幽蘭自得**
+作者：波士顿五月花 – 文雀
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月10日，诺贝尔奖官方网站更新了主页最新消息：194位诺贝尔奖得主发布联名声明，声援乌克兰，呼吁和平，反对战争，谴责俄罗斯的入侵，认为俄罗斯的入侵跟当年纳粹德国对波兰和苏联的入侵类似。
 
-3月12日，新中国联邦在梅迪卡难民救助站新建的240平方的巨型救援帐篷，截至当地时间上午9点已救助超400名乌克兰难民。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-21.jpg)
 
-据新中国联邦的前线战友报道，由新中国联邦法制基金、法治社会发起的乌克兰人道救援行动昨日在波乌边境的梅迪卡难民救助站建起了又一个救援帐篷。该帐篷面积达240平方米，比救助站的所有帐篷加起来的面积还要大很多。
+声明的签署者都在各自的领域里声名显赫，包括达赖喇嘛、吉米·卡特 ，1975年医学奖得主大卫·巴尔的摩等，无法一一列举。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-2-5.jpg)图为新中国联邦的巨型救援帐篷（图片来自GNEWS）
+声明中说：俄罗斯的入侵公然违反了《联合国宪章》，它无视1994年的布达佩斯备忘录，该备忘录要求俄罗斯和其他国家尊重乌克兰的主权、独立和现有边界。发动战争是通往未来的一种毫无根据、血腥和徒劳的方式。俄罗斯的入侵将在未来几十年玷污俄罗斯的国际声誉。
 
-该帐篷新增8个取暖设备，以及一台现磨咖啡机，还有很多其他救援物资。
+链接：
 
-昨晚帐篷一建成就迎来一批刚逃离乌克兰战区的妇女、儿童和老人。新中国联邦的前线战友为他们搬行李，分发食物、毛毯，还给小朋友们发零食和小糖果。
-
-随后，乌克兰当地的志愿者以及国际红十字会也将他们救援的乌克兰难民送到新中国联邦的巨型帐篷。
-
-截至当地时间上午九点左右，新中国联邦已陆续救助了超400名乌克兰难民，90%以上是妇女、儿童、老人。
-
-当看到这些妇女、儿童时，新中国联邦的前线战友表示，“能帮助这些乌克兰朋友，我们感到很高兴。但同时，又感到非常难过，因为这些妇女和儿童，有可能再也见不到她们的丈夫、她们爸爸了。”
-
-除了在波乌边境救助乌克兰难民外，新中国联邦的前线战友还一直在乌克兰战区营救需要救援的人，并将他们安全送达新中国联邦设在波兰边境的安置点。
-
-截至昨日，新中国联邦已顺利将98名乌克兰儿童，150名华人，还有350多位国际友人送离战区。随着营救行动的持续进行，救援人数一直在增加。目前，新中国联邦正在与时间赛跑，希望能够帮助更多的人逃离战场。
-
-参考链接：
-[https://www.gettr.com/streaming/pzl3nbdce3](https://www.gettr.com/streaming/pzl3nbdce3)
-
-素材采编：幽蘭自得
-总编：老孙
-校对发布：文曦
+- [Nobel Laureate Support for Ukraine](https://nlcampaigns.org/ukraine.html)
+- [Nobelprize](https://www.nobelprize.org/)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
+总编/编辑：飞虹
+审核：飞虹
+校正/发稿：海阔天空1
 
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
