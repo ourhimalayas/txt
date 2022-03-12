@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 3:11 AM (UTC)`
+
+3/11/2022 Miles Guo: Why is the CCP so scared of the Ukraine rescue operation launched by the New Federal State of China? Because Chinese people have quickly found their true color and it’s proven that decent Chinese people have tastes, courage and is able to contribute by giving assistance to others, and therefore this is a deadly attack to the CCP<br/><br/>3/11/2022 文贵直播：新中国联邦乌克兰救援为什么让共产党感到恐惧？因为中国人迅速找到了自己的真颜色，证明中国人有正义、有品位、勇敢、无私奉献，这对中共是致命的<br/>
+![img](https://media.gettr.com/group11/getter/2022/03/12/03/95a8ee91-988a-5276-9e25-5b6ae3a2457b/out.jpg)
+
+---
+
 `@miles 3/12/2022 2:12 AM (UTC)`
 
 【Ukraine Rescue】03/11/2022 New Federal State of China built the second huge tent in Medyka, Poland to help Ukrainian refugees.<br/><br/>【乌克兰救援】03/11/2022 新中国联邦在波兰梅迪卡建起了第二个巨型帐篷，救援乌克兰难民<br/><br/> 
@@ -146,13 +153,6 @@ Chelsea FC owner and Vladimir Putin ally Roman Abramovich are among a list of Ru
 
 Moldova - one of Europe's smallest and poorest countries, urges other countries to take more refugees as its health system is strained. The sheer volume of Ukrainians fleeing the terror and crossing into other countries has left some border areas overwhelmed.<br/><br/>摩尔多瓦--欧洲最小和最贫穷的国家之一，敦促其他国家接收更多的难民，因为其卫生系统已经十分紧张。逃离恐怖并进入其他国家的乌克兰人的数量之多，使一些边境地区不堪重负。<br/>
 ![img](https://media.gettr.com/group42/getter/2022/03/11/21/f38fcf70-a0fb-d2d1-0dd0-4e74751cc58d/out.jpg)
-
----
-
-`@miles 3/11/2022 9:19 PM (UTC)`
-
-Nicole, [Mar 12, 2022 at 4:50 AM]<br/>👆Nicole 刚采访了这两个波兰独立制片人，她们清楚的知道中共代表邪恶，新中国联邦代表和平、人道和正义。
-![img](https://media.gettr.com/group27/getter/2022/03/11/21/ec4b3b45-23a6-79ce-2f2d-d7670443272e/out.jpg)
 
 ---
 
