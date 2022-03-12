@@ -2,28 +2,33 @@
 ---
 
 
-## 蓬佩奥呼吁承认台湾主权
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151625/)
+## 亚裔纽约地铁无故遇袭
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151626/)
 
-作者：日本东京方舟农场 – Miyali7768(文玉）
+作者：MOS – 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国媒体3月9消息，前国务卿彭培奥先生在接受采访时表示，随着俄罗斯入侵乌克兰，我们目睹了一个独裁者完全不顾和平或邻国的主权，入侵一个自由的主权国家，为民主国家敲响了警钟。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/12-10.jpg)
-彭培奥先生认为，俄罗斯入侵乌克兰的行为提醒我们需要表明对台湾主权的立场，以使习近平充分了解美与台的关系。 中共一直试图将台湾置于其控制之下，这一野心近年来变得更加强大。
+3月6日国外媒体报道，当天早晨8点30左右，曼哈顿地铁站发生了一起袭击案，一名亚裔受害者表示，袭击他的人没有说一句话，就将他的脸砍了一刀。
 
-蓬佩奥最后强调，如果中共能够以武力夺取台湾，它就可能控制全球市场的先进芯片制造市场。这对美国及其盟友来说将是灾难性的。同样，保证台湾经济自由不受中共的控制，对美国和全世界未来的繁荣至关重要。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-19.jpg)
+
+据警方报告，当时，39岁的亚裔受害者正在一辆北行的J线地铁上。当列车进入下东区的德兰西街/埃塞克斯街站时，一名陌生人用剃须刀片划破了他的脸。
+
+随后，受害者跟踪了袭击他的人，并把袭击者指给警察看。警方逮捕了袭击者，并指控他犯有攻击和篡改证据的重罪。
+
+纽约警察局的一位发言人称这次袭击是“无端的”。
+
+警方表示，由于受害者是亚裔，他们向纽约市警察局的仇恨犯罪特别小组报告了这起袭击事件。
 
 链接：
 
-- [We should send a strong message to President Xi now by recognizing Taiwan as a free and sovereign country.](https://gettr.com/post/pz1ebocd37)
-- [Recognize Taiwan sovereignty – Putin’s Ukraine war should be wake-up call on support for democracies](https://www.foxnews.com/opinion/recognize-taiwan-sovereignty-putin-ukraine-wakeup-call-michael-pompeo)
+- [Straphanger slashed in the face with razor blade on NYC subway, cops say](https://nypost.com/2022/03/06/straphanger-slashed-in-the-face-with-razor-blade-nyc-subway-cops-say/)
+- [Just WHAT does it take to get jailed in NYC? Serial criminal awaiting sentencing for assault with a deadly weapon is bailed yet again ‘after slashing Asian subway passenger’s face with a RAZOR’](https://www.dailymail.co.uk/news/article-10589915/Serial-criminal-awaiting-sentencing-assault-deadly-weapon-arrested-attack-subway.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-总编：雪梨
-编辑：静言
-审核：雪梨
+总编/编辑：飞虹
+审核：木木
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

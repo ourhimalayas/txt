@@ -2,19 +2,11 @@
 ---
 
 
-## 2022年3月12日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2151746/)
+## 1800 万人死于生物武器实验室制造的中共病毒
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2151869/)
 
-制作：DT新闻组
-
-**中共的杀戮还在继续……**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0196.jpg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3.jpeg)
-
+03/11/2022 史蒂夫·班农：根据英国广播公司最近的一份报道，1800万人死于中共生物武器实验室制造的中共病毒，而不是600万人。
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,29 @@
 ---
 
 
-## 数字货币最新进展
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151654/)
+## 194位诺奖得主对乌克兰声援支持
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151655/)
 
-作者：加拿大温哥华扬帆农场 – Spirit；波士顿五月花 – 文雀
+作者：波士顿五月花 – 文雀
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月9日，美国总统拜登公布了一项行政命令，责成联邦机构研究加密货币，并为新生市场制定政策建议。
+3月10日，诺贝尔奖官方网站更新了主页最新消息：194位诺贝尔奖得主发布联名声明，声援乌克兰，呼吁和平，反对战争，谴责俄罗斯的入侵，认为俄罗斯的入侵跟当年纳粹德国对波兰和苏联的入侵类似。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-20.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-21.jpg)
 
-拜登在声明中宣布了第一个”全政府”的联邦政策，通过指导政府机构采取一系列围绕金融稳定、非法金融、金融包容性和投资者保护的措施，来”应对加密货币的风险并利用其潜在利益”。 该命令指示美国政府”紧急”研究和开发潜在的美国中央银行数字货币，并要求金融稳定监督委员会识别和减轻加密货币带来的任何系统性金融风险，制定适当的政策建议以解决任何监管漏洞。同时指示商务部建立一个框架，以帮助政府机构将数字资产技术纳入其政策、操作方法和研究与开发。
+声明的签署者都在各自的领域里声名显赫，包括达赖喇嘛、吉米·卡特 ，1975年医学奖得主大卫·巴尔的摩等，无法一一列举。
 
-同时，泰国内阁8日放宽了对数字资产投资的税收规定。泰财政部长表示，新规则将允许交易者用数字货币投资的税收收益来抵消年度损失，并免除授权数字货币交易 7% 的增值税。
-
-而在实际应用中，自俄乌战争爆发以来，乌克兰的一些军备供应商筹集了价值超过6000万美元的数字货币，并将其中一些资金用于燃料、食品和其他军备的购买。乌克兰数字化转型部长兼副总理博尼雅科夫认为，数字货币是一种比银行转账更灵活、更便宜的工具。
+声明中说：俄罗斯的入侵公然违反了《联合国宪章》，它无视1994年的布达佩斯备忘录，该备忘录要求俄罗斯和其他国家尊重乌克兰的主权、独立和现有边界。发动战争是通往未来的一种毫无根据、血腥和徒劳的方式。俄罗斯的入侵将在未来几十年玷污俄罗斯的国际声誉。
 
 链接：
 
-- [Biden’s Crypto Executive Order Puts ‘Urgency’ On Digital Dollar Research And Fuels Bitcoin, Ether Prices](https://www.forbes.com/sites/jonathanponciano/2022/03/09/bidens-crypto-executive-order-puts-urgency-on-digital-dollar-research-and-fuels-bitcoin-ether-prices/?sh=14f423c33bbd)
-- [Ukraine Is Buying Bulletproof Vests and Night-Vision Goggles Using Crypto](https://www.coindesk.com/policy/2022/03/07/ukraine-is-buying-bulletproof-vests-and-night-vision-goggles-using-crypto/)
-- [Thailand approves relaxed tax rules for digital assets](https://www.reuters.com/markets/funds/thailand-approves-relaxed-tax-rules-digital-assets-2022-03-08/?rpc=401&amp;)
+- [Nobel Laureate Support for Ukraine](https://nlcampaigns.org/ukraine.html)
+- [Nobelprize](https://www.nobelprize.org/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-总编：雪梨
-编辑：宁文静
-审核：木木
+总编/编辑：飞虹
+审核：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

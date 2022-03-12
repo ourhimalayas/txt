@@ -2,31 +2,37 @@
 ---
 
 
-## 俄联邦安全局内部报告称，乌克兰战争俄将彻底失败
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151656/)
+## 日企相继暂停在俄业务
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151657/)
 
-作者：MOS – 柳是多水土透
+作者：纽约香草山教育部 – Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-国外媒体3月7日报导，俄罗斯联邦安全局的举报人称，俄罗斯安全机构中的情报人员“对普京总统入侵乌克兰的计划一无所知”。他们将俄罗斯描述为“彻底的失败，只能与纳粹德国的崩溃相提并论”。
+3月10日，据多家外媒报导，随着俄罗斯侵略乌克兰战争的持续，日本知名企业纷纷暂停与俄罗斯有关的业务往来。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-22-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-17.jpg)
 
-俄罗斯联邦安全局脱胎于克格勃，由普京的心腹亚历山大·博尔特尼科夫领导。他们从20世纪70年代就认识，当时都在列宁格勒担任克格勃官员。
+经营服装连锁品牌“优衣库”的日本迅销公司10日宣布，在俄罗斯运营的50家门店，将关停在俄罗斯的业务。当天，日立制作所也宣布应乌克兰政府的要求，三菱电机则宣布以物流混乱为由，将暂停在俄业务。
 
-安全局的官员们被命令评估西方制裁所带来的影响，但被告知这是一项假设性的逐项核查工作，必须以一种使俄罗斯成为胜利者的方式来撰写分析报告，否则就会被质疑没有做好工作。但最后报告得出结论：总的来说，俄罗斯没有出路。没有可能胜利的选项，只有失败。
+任天堂公司最近也宣布，其出品的家用游戏机及相关软件在内的所有商品，已停止对俄出货。
 
-安全局的内部报告称，车臣领导人、普京的盟友卡德罗夫，在被派去刺杀乌总统泽连斯基的“杀手部队”被乌克兰军队摧毁后，正处于与俄罗斯直接冲突的边缘。即使泽连斯基被杀，俄罗斯也没有希望占领乌克兰。
+索尼已停止在俄罗斯销售其 PlayStation 游戏机和软件。爱普生也将暂停向俄罗斯和白俄罗斯出口其产品，并承诺向联合国难民署提供 100 万美元，以支持人道主义救济乌克兰。
+
+运营乌冬面连锁店“丸龟制面”的东利多控股公司，正准备暂停在俄全部7家店铺的营业。
+
+日本烟草产业公司已宣布将暂停在俄新的投资及促销活动，还可能暂停在俄的4家工厂。
 
 链接：
 
-- [This war will be a total failure, FSB whistleblower says](https://www.thetimes.co.uk/article/this-war-will-be-a-total-failure-fsb-whistleblower-says-wl2gtdl9m)
+- [Japanese companies Sony and Epson withdraw from Russian market.](https://kyivindependent.com/uncategorized/japanese-companies-sony-and-epson-withdraw-from-russian-market/)
+- [Uniqlo operator, Japan Tobacco to suspend some Russia operations in U-turn](https://www.rappler.com/business/uniqlo-operator-fast-retailing-japan-tobacco-suspend-russia-operations-ukraine-invasion/)
+- [Japan’s Sony and Nintendo halt business in Russia](https://www.aljazeera.com/economy/2022/3/10/japans-sony-and-nintendo-halt-business-in-russia)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
 总编：飞虹
-编辑：静言/飞虹
-审核：木木
+编辑：静言
+审核：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

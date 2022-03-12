@@ -2,46 +2,33 @@
 ---
 
 
-## 日企相继暂停在俄业务
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151657/)
+## 报告显示 完全接种疫苗者最终会丧失免疫功能
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2151709/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月10日，据多家外媒报导，随着俄罗斯侵略乌克兰战争的持续，日本知名企业纷纷暂停与俄罗斯有关的业务往来。
+翻译：冰糖葫芦喵
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-17.jpg)
+编辑与校对：冰糖葫芦喵
 
-经营服装连锁品牌“优衣库”的日本迅销公司10日宣布，在俄罗斯运营的50家门店，将关停在俄罗斯的业务。当天，日立制作所也宣布应乌克兰政府的要求，三菱电机则宣布以物流混乱为由，将暂停在俄业务。
+《真相卫报》3月12日报道，**最新的英国公共卫生部门关于中共病毒病例的疫苗监测报告显示，40-70岁的接种人群已经丧失了40%的免疫系统能力。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/疫苗-e1647093021816.jpg)图片源自本文
+据报道，完全接种疫苗的人的免疫系统每周下降5%，如果这一趋势继续下去，那么30-50岁的人的免疫系统将会100%退化，直到圣诞节前都不会有病毒防御。
 
-任天堂公司最近也宣布，其出品的家用游戏机及相关软件在内的所有商品，已停止对俄出货。
+根据每四周一次的疫苗监测报告显示，中共病毒疫苗对免疫系统造成的渐进损害。40-69岁的人的免疫系统能力下降了40%，每周下降3.3%。
 
-索尼已停止在俄罗斯销售其 PlayStation 游戏机和软件。爱普生也将暂停向俄罗斯和白俄罗斯出口其产品，并承诺向联合国难民署提供 100 万美元，以支持人道主义救济乌克兰。
+**30岁以上的人将在6个月内丧失免疫能力。30-50岁的人直到圣诞节前都会失去这种能力。**
 
-运营乌冬面连锁店“丸龟制面”的东利多控股公司，正准备暂停在俄全部7家店铺的营业。
+加强针和疫苗的效果是一样的，因为试验性的，所以疫苗副作用。我们在上面告诉过你，**如果你注射了加强针，你会更快地患上获得性免疫缺陷综合症。**
 
-日本烟草产业公司已宣布将暂停在俄新的投资及促销活动，还可能暂停在俄的4家工厂。
+根据报道表明**，中共病毒疫苗随着时间的推移而失去效力，但它们会损害免疫系统，直到接种疫苗的人完全丧失免疫系统。**
 
-链接：
+新材采集：文逗
 
-- [Japanese companies Sony and Epson withdraw from Russian market.](https://kyivindependent.com/uncategorized/japanese-companies-sony-and-epson-withdraw-from-russian-market/)
-- [Uniqlo operator, Japan Tobacco to suspend some Russia operations in U-turn](https://www.rappler.com/business/uniqlo-operator-fast-retailing-japan-tobacco-suspend-russia-operations-ukraine-invasion/)
-- [Japan’s Sony and Nintendo halt business in Russia](https://www.aljazeera.com/economy/2022/3/10/japans-sony-and-nintendo-halt-business-in-russia)
+新闻来源链接：
+
+[Government Reports State The Fully Vaccinated People Develop Acquired Immunodeficiency Syndrome! – The True Defender !](https://thetruedefender.com/government-reports-state-the-fully-vaccinated-people-develop-acquired-immunodeficiency-syndrome/?fbclid=IwAR0lMACqs0nxBIDsm1DHw2u_DysEorRAuvln8IjqVMzONoaJDtpKn_bn1aA)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-总编：飞虹
-编辑：静言
-审核：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

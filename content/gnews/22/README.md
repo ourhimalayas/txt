@@ -2,29 +2,31 @@
 ---
 
 
-## 194位诺奖得主对乌克兰声援支持
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151655/)
+## 俄联邦安全局内部报告称，乌克兰战争俄将彻底失败
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151656/)
 
-作者：波士顿五月花 – 文雀
+作者：MOS – 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月10日，诺贝尔奖官方网站更新了主页最新消息：194位诺贝尔奖得主发布联名声明，声援乌克兰，呼吁和平，反对战争，谴责俄罗斯的入侵，认为俄罗斯的入侵跟当年纳粹德国对波兰和苏联的入侵类似。
+国外媒体3月7日报导，俄罗斯联邦安全局的举报人称，俄罗斯安全机构中的情报人员“对普京总统入侵乌克兰的计划一无所知”。他们将俄罗斯描述为“彻底的失败，只能与纳粹德国的崩溃相提并论”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-21.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-22-scaled.jpg)
 
-声明的签署者都在各自的领域里声名显赫，包括达赖喇嘛、吉米·卡特 ，1975年医学奖得主大卫·巴尔的摩等，无法一一列举。
+俄罗斯联邦安全局脱胎于克格勃，由普京的心腹亚历山大·博尔特尼科夫领导。他们从20世纪70年代就认识，当时都在列宁格勒担任克格勃官员。
 
-声明中说：俄罗斯的入侵公然违反了《联合国宪章》，它无视1994年的布达佩斯备忘录，该备忘录要求俄罗斯和其他国家尊重乌克兰的主权、独立和现有边界。发动战争是通往未来的一种毫无根据、血腥和徒劳的方式。俄罗斯的入侵将在未来几十年玷污俄罗斯的国际声誉。
+安全局的官员们被命令评估西方制裁所带来的影响，但被告知这是一项假设性的逐项核查工作，必须以一种使俄罗斯成为胜利者的方式来撰写分析报告，否则就会被质疑没有做好工作。但最后报告得出结论：总的来说，俄罗斯没有出路。没有可能胜利的选项，只有失败。
+
+安全局的内部报告称，车臣领导人、普京的盟友卡德罗夫，在被派去刺杀乌总统泽连斯基的“杀手部队”被乌克兰军队摧毁后，正处于与俄罗斯直接冲突的边缘。即使泽连斯基被杀，俄罗斯也没有希望占领乌克兰。
 
 链接：
 
-- [Nobel Laureate Support for Ukraine](https://nlcampaigns.org/ukraine.html)
-- [Nobelprize](https://www.nobelprize.org/)
+- [This war will be a total failure, FSB whistleblower says](https://www.thetimes.co.uk/article/this-war-will-be-a-total-failure-fsb-whistleblower-says-wl2gtdl9m)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-总编/编辑：飞虹
-审核：飞虹
+总编：飞虹
+编辑：静言/飞虹
+审核：木木
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

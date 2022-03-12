@@ -2,32 +2,32 @@
 ---
 
 
-## 亚裔纽约地铁无故遇袭
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151626/)
+## 数字货币最新进展
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151654/)
 
-作者：MOS – 柳是多水土透
+作者：加拿大温哥华扬帆农场 – Spirit；波士顿五月花 – 文雀
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月6日国外媒体报道，当天早晨8点30左右，曼哈顿地铁站发生了一起袭击案，一名亚裔受害者表示，袭击他的人没有说一句话，就将他的脸砍了一刀。
+3月9日，美国总统拜登公布了一项行政命令，责成联邦机构研究加密货币，并为新生市场制定政策建议。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-19.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-20.jpg)
 
-据警方报告，当时，39岁的亚裔受害者正在一辆北行的J线地铁上。当列车进入下东区的德兰西街/埃塞克斯街站时，一名陌生人用剃须刀片划破了他的脸。
+拜登在声明中宣布了第一个”全政府”的联邦政策，通过指导政府机构采取一系列围绕金融稳定、非法金融、金融包容性和投资者保护的措施，来”应对加密货币的风险并利用其潜在利益”。 该命令指示美国政府”紧急”研究和开发潜在的美国中央银行数字货币，并要求金融稳定监督委员会识别和减轻加密货币带来的任何系统性金融风险，制定适当的政策建议以解决任何监管漏洞。同时指示商务部建立一个框架，以帮助政府机构将数字资产技术纳入其政策、操作方法和研究与开发。
 
-随后，受害者跟踪了袭击他的人，并把袭击者指给警察看。警方逮捕了袭击者，并指控他犯有攻击和篡改证据的重罪。
+同时，泰国内阁8日放宽了对数字资产投资的税收规定。泰财政部长表示，新规则将允许交易者用数字货币投资的税收收益来抵消年度损失，并免除授权数字货币交易 7% 的增值税。
 
-纽约警察局的一位发言人称这次袭击是“无端的”。
-
-警方表示，由于受害者是亚裔，他们向纽约市警察局的仇恨犯罪特别小组报告了这起袭击事件。
+而在实际应用中，自俄乌战争爆发以来，乌克兰的一些军备供应商筹集了价值超过6000万美元的数字货币，并将其中一些资金用于燃料、食品和其他军备的购买。乌克兰数字化转型部长兼副总理博尼雅科夫认为，数字货币是一种比银行转账更灵活、更便宜的工具。
 
 链接：
 
-- [Straphanger slashed in the face with razor blade on NYC subway, cops say](https://nypost.com/2022/03/06/straphanger-slashed-in-the-face-with-razor-blade-nyc-subway-cops-say/)
-- [Just WHAT does it take to get jailed in NYC? Serial criminal awaiting sentencing for assault with a deadly weapon is bailed yet again ‘after slashing Asian subway passenger’s face with a RAZOR’](https://www.dailymail.co.uk/news/article-10589915/Serial-criminal-awaiting-sentencing-assault-deadly-weapon-arrested-attack-subway.html)
+- [Biden’s Crypto Executive Order Puts ‘Urgency’ On Digital Dollar Research And Fuels Bitcoin, Ether Prices](https://www.forbes.com/sites/jonathanponciano/2022/03/09/bidens-crypto-executive-order-puts-urgency-on-digital-dollar-research-and-fuels-bitcoin-ether-prices/?sh=14f423c33bbd)
+- [Ukraine Is Buying Bulletproof Vests and Night-Vision Goggles Using Crypto](https://www.coindesk.com/policy/2022/03/07/ukraine-is-buying-bulletproof-vests-and-night-vision-goggles-using-crypto/)
+- [Thailand approves relaxed tax rules for digital assets](https://www.reuters.com/markets/funds/thailand-approves-relaxed-tax-rules-digital-assets-2022-03-08/?rpc=401&amp;)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-总编/编辑：飞虹
+总编：雪梨
+编辑：宁文静
 审核：木木
 校正/发稿：海阔天空1
 
