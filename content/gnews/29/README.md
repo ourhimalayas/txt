@@ -2,28 +2,28 @@
 ---
 
 
-## 3月11号救援前线所见所闻
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2146988/)
+## 法治基金的帐篷成为红十字会的中转
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2147043/)
 
-前方记者：Nicole
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-61.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/photo_2022-03-11-16.39.32.jpeg)
-法新社AFP著名战地摄影记者 Louisa Gouliamaki 刚先睹为快来到法治基金刚搭好的梅蒂亚7星级帐篷 “非常令人叹服！“ 她看了新帐篷感叹地说。我告诉她明天一早会有NFSC Coffee（郭先生今天大直播说的的新中国联邦咖啡），如我预料的一样哈哈所有人都在疲惫的心情下，期待冬天里的温暖。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-11-164038.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3-1.png)
-这是国际红十字会的工作人员和明道战友对接今晚接待妇女儿童的工作，今晚新的大帐篷正式开放，接受红十字会负责从边境带来的难民。
+作者：来自梅蒂卡营地3月11日报道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-61.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-5-1.png)
+新的大帐篷迎来第一批妇女儿童
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-11-165614.jpg)
+ssf 是这边救援秩序的主要维护方，难民排队的围栏是他们在安排秩序，我们的场地也是在他们邀请下安排好的，我们现在和ssf是现场救援亲密的战友。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-11-165604.jpg)
 
-当明道告诉他，这是新中国联邦战友们第一次在战区做营救工作，他们都不敢相信，说你们做得太好了！ 他们还说，你们（法治基金）有财力准备这么好的设施。
 
-这是国际红十字会的工作人员和明道战友对接今晚接待妇女儿童的工作，今晚新的大帐篷正式开放，接受红十字会负责从边境带来的难民。
+由于法治基金 新中国联邦的帐篷是难民营条件最好的，所以红十字会经过把孩子和他们的母亲安排在我们的帐篷里。这是新中国联邦跟红十字会第一次非官方合作，他们对法治基金表现了浓厚的兴趣。新中国联邦 就如帐篷外的篝火，照耀着黑夜，温暖着难民营里每个人内心的希望。
 
-这是新中国联邦战友们第一次在战区做营救工作，
-
-当明道战友告知这是我们第一次组织救援工作，他们完全不敢相信，说你们做得太好了！ 他们还说，你们（法治基金）有财力准备这么好的设施。
-
-校对/发稿：serena
+新中国联邦 在梅蒂卡难民营，燃起篝火，来自前站报道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1211.png)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-29.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-30.jpg)
+
+
 
 
 

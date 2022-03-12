@@ -2,90 +2,27 @@
 ---
 
 
-## 有声|定格二十五岁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2147767/)
+## 樱花FM|中日财经爆:俄乌战争导致小麦价格暴涨40%创14年新高
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2147862/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)![](https://cdn.discordapp.com/attachments/728490324502249522/951726783760326716/IMG_2402.png)
-在乌克兰土地上
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄乌战争导致小麦价格暴涨40创14年新高.png)
+3月7日北青网报道，据路透社数据显示，俄乌两国小麦出口量合计占全球大约30%，玉米出口量合计占大约20%。随着乌克兰局势趋紧，黑海港口贸易遭到严重干扰，推高小麦等粮食价格。芝加哥期货交易所小麦价格自俄乌2月24日爆发冲突以来，涨幅高达40%。
 
-开放了生命之花
+乌克兰和俄罗斯是全球小麦主要出口国，随着乌克兰局势升级，小麦价格涨至近14年来新高，世界各地消费者不得不花费更多钱买面包。联合国世界粮食计划署警告称，俄乌两国供应链紊乱将危及全球数以百万计民众的粮食安全。乌克兰素有“欧洲粮仓”之称，是玉米和小麦出口大国，据业内估算，乌克兰先前每月出口谷物五六百万吨。俄罗斯也是全球小麦出口大国，2021年，俄罗斯小麦产量为大约7600万吨。截至2022年3月4日的一周，全球小麦价格火箭式蹿升，芝加哥小麦暴涨40%，创下2008年以来的最高水平。
 
-定格二十五岁
+由于CCP新冠病和战争持续，一旦出现运输生产中断，战争影响油价暴涨，必定回抬高粮食价格，中共国经济危机进一步扩大，而粮食危机也随之加剧。
 
-为了祖国 献奉生命
-
-保卫这片土地
-
-我无比荣耀
-
-把荣光还给乌克兰
-
-让父老乡亲平安健康
-
-如果我的生命
-
-能够换来侵略者失败
-
-那么
-
-请再让我牺牲一万次
-
-勇敢的乌克兰
-
-英雄遍地
-
-我们不会放弃
-
-保卫家人和土地
-
-定格二十五岁
-
-我含笑离去
-
-等到赶跑了侵略者
-
-请记得
-
-娜塔丽娅
-
-哈尔科夫的军士
-
-乌克兰土地上
-
-英雄遍地
-
-如果我的生命
-
-能够换来 赶跑
-
-侵略者
-
-我愿意
-
-再牺牲一万次
+文字版原文：
 
 
+| [中日财经爆┃俄乌战争导致小麦价格暴涨40%创14年新高](https://gnews.org/zh-hans/2120383/) |   |
+| --- | --- |
 
-文字版原文：[定格二十五岁](https://gnews.org/zh-hans/2142300/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

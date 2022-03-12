@@ -2,27 +2,33 @@
 ---
 
 
-## 樱花FM|英国首相约翰逊向美国报纸投稿：禁止所有俄罗斯银行使用SWIFT
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2147611/)
+## 有声|泽连斯基总统在英国国会发表历史性演说
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2147678/)
 
-音频：东京樱花团/战友520
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间3月8日，据相关媒体报道，乌克兰总统泽连斯基当天在英国国会下议院发表了一场历史性的演说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/英国首相约翰逊向美国报纸投稿：禁止所有俄罗斯银行使用SWIFT-1.png)
+据悉，泽连斯基在演说中先是对俄罗斯长达13天的侵略行为表示了谴责。他指出，这次侵略战争给乌克兰人民带来了深重灾难。但泽连斯基也强调，乌克兰人民绝不放弃反抗，并且当地民众坚信，战争罪犯必将受到国际社会审判。至于乌克兰的立场，泽连斯基表示，乌克兰为了生存和自由将不计代价地奋战到底。
 
-3月6日，英国首相约翰逊在美国《纽约时报》的一篇专栏文章中呼吁“对俄罗斯施加最大的经济压力”，并强调需要将所有俄罗斯银行排除在世界最大的国际支付网络——环球银行金融电信协会（SWIFT）之外。
+此外，泽连斯基还向英国政府发出呼吁称，英国需要加强对俄罗斯这个恐怖主义大国的制裁。同时，乌克兰需要英国的帮助来确保该国领空的安全。
 
-欧盟决定经济制裁七家俄罗斯银行，但不包括最大的银行，源于担心对能源供应有影响。约翰逊先生呼吁欧洲国家结束对俄罗斯的能源依赖，对欧洲的石油和天然气供应才是俄罗斯总统弗拉基米尔-普京的“资金来源”。
+报道也提到，泽连斯基是第一个在英国下议院发表演说的外国领袖，且在其演说开始之前，英国首相、外交大臣和国防大臣等高级官员全体起立，用长达40秒的掌声表达了对泽连斯基的敬意。
 
-文字版原文：
+文字版原文：[泽连斯基总统在英国国会发表历史性演说](https://gnews.org/zh-hans/2138049/)
 
+音频处理：Fei797
+发稿：Fei797
 
-| [英国首相约翰逊向美国报纸投稿：禁止所有俄罗斯银行使用SWIFT](https://gnews.org/zh-hans/2120283/) |   |
-| --- | --- |
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
