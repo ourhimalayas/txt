@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 7:40 AM (UTC)`
+
+3/11/2022 Miles Guo: Many media outlets around the world want to cooperate with the New Federal State of China. For the first time in the history of China we are showing the foreigners that the Chinese people are equal to the world by using live broadcasts. You should feel happy because the New Federal State of China will play a central role on the world stage.<br/><br/>3/11/2022 文贵直播：全球有很多媒体要和新中国联邦合作；我们是中国人有史以来第一次用直播向外国人展示中国人和世界是平等的；新中国联邦会成为世界舞台的主角，大家就偷着乐吧！<br/>
+![img](https://media.gettr.com/group21/getter/2022/03/12/07/f81aa80c-a1bc-114a-7a8f-506d13ae58ba/out.jpg)
+
+---
+
+`@miles 3/12/2022 7:31 AM (UTC)`
+
+3/11/2022 Miles Guo: The NFSC & ROLF Ukraine rescue mission has demonstrated the most unique and best aspects of the Chinese people, showing that the Chinese are like the rest of the world instead of the slaves that make low-end products and commit counterfeiting. This is unacceptable to the CCP!<br/><br/>3/11/2022 文贵直播：新中国联邦法治基金乌克兰救援行动展示出了中国人最独特和最优秀的一面，说明中国人和全世界一样，并不是生产低端产品和造假的奴隶，这让中共无法接受！<br/>
+![img](https://media.gettr.com/group48/getter/2022/03/12/07/4297ecb8-15a6-c9bf-4911-ba4b33b13ac9/out.jpg)
+
+---
+
 `@miles 3/12/2022 5:55 AM (UTC)`
 
 Miles Guo: We have no more excuses, but to fight until taking down the CCP! <br/><br/>文贵：我们没有任何理由，没有任何借口，只有奋斗，战斗，直到消灭共产党！
@@ -139,20 +153,6 @@ Wars for any reason are all crimes<br/>出于任何原因的战争都是犯罪<b
 
 2022.03.11 NFSC News  CCP Virus Outbreak in Hong Kong Caused Panic Buying； Mild Infection of CCP Virus May Cause Brain Atrophy Or Deterioration
 ![img](https://media.gettr.com/group17/origin/2022/03/11/23/c9dd196b-91eb-fe84-66c3-16841df00289/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/11/2022 11:29 PM (UTC)`
-
-This is Kharkiv's main museum, staff are racing to get priceless artworks to safety as Russian forces pound the city with artillery and airstrikes. Many of them were created by Russian artists.<br/><br/>这是哈尔科夫的主要博物馆，工作人员正在争分夺秒地将无价的艺术品运到安全地带，因为俄罗斯军队用大炮和空袭对该市进行了轰炸，其中很多艺术品是由俄罗斯艺术家创作的。
-![img](https://media.gettr.com/group50/origin/2022/03/11/23/22cec525-a3f7-cd8b-63bc-c7b9b3f63633/out.jpg)
-
----
-
-`@miles 3/11/2022 10:59 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-11
-![img](https://media.gettr.com/group33/origin/2022/03/11/22/db52cafe-a379-7bfe-3855-53fa74025c02/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
