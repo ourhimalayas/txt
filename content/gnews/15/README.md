@@ -2,22 +2,40 @@
 ---
 
 
-## 星链系统助力法治基金乌克兰救援行动
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2148416/)
+## 乌克兰数学奥林匹克亚军在哈尔科夫被俄军炸死
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2148713/)
 
-采编撰稿：加拿大温哥华杨帆农场 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1229.png)图片来源：Gettr
-据3月10日文贵先生盖特报道，本次法治基金乌克兰人道救援行动得到了SpaceX 总裁埃隆·马斯克的特别支持，该公司的星链系统将对位于波兰麦迪卡紧急营救中心提供卫星互联网服务。
+作者：波士顿五月花—文雀
 
-据悉，该公司星链系统恰好处于法治基金麦迪卡营救中心的两个救援帐篷上方，可即刻为该中心提供高速和高质的互联网服务，其安全性和稳定性将极大提高救援行动中前后方人员之间信息沟通的效率。
 
-报道指出，此次SpaceX星链系统的助力无疑将根本保障本次新中国联邦在乌克兰人道救援的行动成果，同时也更加受到国际社会各界的广泛关注。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-64.png)
+Yuliia Zdanovska（尤妮亚·兹丹诺斯卡），21岁，乌克兰人，2017年代表乌克兰参加欧洲女子数学奥林匹克竞赛，获得银牌。她在哈尔科夫做志愿者工作，在俄军一次轰炸事件中丧生。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/182119.png)
+在过去的六个月里，她是乌克兰学习中心的一员，向新一代教授计算机科学。对于她的丧生，国际数学界正在哀悼。尽管俄罗斯对哈尔科夫的学校、住宅楼和其他民用目标进行无情炮击，但她拒绝离开，她告诉她“为了乌克兰教育”但同时，她将“留在哈尔科夫，直到获胜”。
 
-校对编辑：硫酸羟氯喹64
+参考来源：
 
-发稿：青青 晨熹
+[https://www.cronica.com.mx/academia/bombardeos-fallece-ucraniana-yuliia-zdanovska-medallista-olimpiada-matematicas.html＞](https://www.cronica.com.mx/academia/bombardeos-fallece-ucraniana-yuliia-zdanovska-medallista-olimpiada-matematicas.html＞)
 
-新闻来源：[https://gettr.com/post/pzd5hu2551](https://gettr.com/post/pzd5hu2551)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-32.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-65.png)
+
 
 
 

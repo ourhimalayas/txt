@@ -2,18 +2,20 @@
 ---
 
 
-## 秘翻在线：500架客机将被 &#8220;借走&#8221;! 俄拒还租赁飞机以抵抗制裁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2148724/)
+## 共产党为什么怕我们的救援行动
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148857/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/画像1-12.png)（图片源自本文链接）
-日本雅虎网站3月12日消息：2022年3月，由日本和欧洲租赁公司拥有并由俄罗斯航空公司（包括俄罗斯航空公司和S7航空公司）租赁的515架客机可能被俄罗斯政府扣押。估计值超过一万亿日元的前所未有的“客机盗难”，将航空业置于一个很大的歧路口上。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-增加航空公司拥有的飞机数量的决定对航空公司来说是一个很大的风险，因为即使是相对较小的客机也可能价值20至30亿日元，而大飞机则高达500亿日元。另一方面，因为只需要航空公司的少量初始投资，金融机构拥有飞机并将其出租给航空公司（租赁）这中运作，在日本和世界各地被广泛采用。这是满足快速增长的客运服务需求的最佳方式，至少在中共病毒扩散之前，客运服务的需求是快速增长的，目前在役的客机中约有一半是租赁的飞机。
+*发布：陶子*
 
-俄罗斯的航空公司运营着980架飞机，其中777架是租赁的，这些租赁的飞机中有515架依靠外国租赁。
-
-情報源: [旅客機500機「借りパク」へ！ 経済制裁受けロシアがリース機返還拒否…どうするの？（乗りものニュース） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4aed13cc89f703130f9331e0c4343c0653c3454b)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

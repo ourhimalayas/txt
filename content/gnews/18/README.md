@@ -2,72 +2,46 @@
 ---
 
 
-## 韩国保守派政治新人赢得总统选举
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2148345/)
+## 美国众议院通过法案，禁止在地图中把台湾划归中共国
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2148647/)
 
-作者：MOS—柳是多水土透
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1230.png)zz’lz’l’t资料图
+台湾英文新闻网站2022年3月10日台北报道，美国众议院周三（3月9日）通过了一项支出法案，其中包括一项修正案，禁止美国行政部门购买任何将台湾划为中共国一部分的地图。
 
+周三晚上，众议院通过了一项1.5万亿美元的综合支出法案，该法案将维持联邦政府的运作，并向乌克兰和东欧提供136亿美元的援助，其中国防部分以361比69通过，国内支出部分以260比171通过。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-62.png)
-韩国保守派反对党候选人尹锡悦在周四赢得选举，他将在未来5年的任期内领导亚洲第四大经济体。尹今年60岁，曾在现任总统文在寅政府中任职总检察长。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3HVAG2GZMJNR7AJSGH5QAIRAQU.jpg)图源路透社
-尹锡悦隶属于人民力量党，得票48.6%，略高于执政民主党李在明，李得票47.8%。本次大选为韩国近代史上竞争最激烈的一次大选。当地时间早上5:30在99.8%的选票统计完毕后，李承认败选并祝贺尹成为候任总统。尹将于本月履新接替宪法任期限制的文在寅。
+法案中包括一项由共和党众议员汤姆·蒂凡尼（威斯康星州）、史蒂夫·查博特（俄亥俄州）、斯科特·佩里（宾夕法尼亚州）、卡特·坎马克（佛罗里达州）和麦克·加拉格尔（威斯康星州）提出的修正案，禁止国务院将资金用于将台湾描绘成中国领土的地图。
 
-以下是竞选期间，尹做出的政策承诺：
+在题为 “地图 ”的一节中，立法规定：“本法划拨的任何资金都不得用于制作、采购或展示任何不正确描述台湾领土和社会经济制度以及台湾当局所属岛屿或群岛的地图。”在2021年7月首次提出该法案时的发言中，蒂芙尼将该修正案描述为一项 “常识性措施”，鉴于 “我们都知道台湾从来都不是中共国的一部分”。
 
-1.经济
+蒂凡尼指出，台湾人民 “选举自己的领导人，组建自己的武装部队，执行自己的外交政策，并保持自己的国际贸易协定”。他强调，“从任何角度看”，台湾都是一个主权、民主和独立的国家，与此相反的说法 “完全是错误的”。
 
-支持市场经济，以私营企业而非政府工程创造就业，减少对公司的政策管制，并对数字资产行业去监管化，400亿美元救援资金帮助受疫情影响的小型企业。
+这位议员将美国自20世纪70年代以来奉行的 “一个中国 ”政策斥为 “中共关于台湾是共产主义中国的一部分的虚假论点”。蒂凡尼将该政策描述为 “不诚实”，并呼吁放弃它。
 
-2.税收
+他承认，虽然不可能通过拨款法案结束“一个中国”政策，但国会“至少可以要求诚实的地图，停止延续‘一个中国’的谎言”。
 
-降低资本利得税和不动产税，以增加房产交易，将数字货币投资的个税起征点由250万提升至5000万韩元（约4万美元）。
+在结束发言时，他宣布。“共产主义中国就是共产主义中国，议长先生。而台湾就是台湾。”
 
-3.房地产
+该法案还包括为美国在台湾的事实上的大使馆——美国在台协会提供3258.3万美元的资金。综合方案将由参议院审议，蒂凡尼办公室的一名代表告诉台湾新闻网，参议院可能会在 “本周末之前 ”批准该法案。
 
-降低政府监管，由市场原则引导地产发展，5年内创造250万套新房，其中50万在首尔市。
+简评: 本次立法对“错误地图”的修正，是几年来爆料革命推动下美国对中共态度的转变的一个具体体现。看似微不足道的举措，却可管中窥豹。试想在几年前，这样的立法绝对没有提出的可能性，更别说高票通过。自70年代基辛格访问中共之后，美国一直在错误的路线上狂奔，已经被中共逼到悬崖边上。现在美国开始转向，彻底推翻亲共的路线。台湾一直是中共最敏感的议题，美国在台湾问题上频频出手，是和中共彻底决裂的开始。
 
-4.北韩
+新闻链接： [https://www.taiwannews.com.tw/en/news/4468061](https://www.taiwannews.com.tw/en/news/4468061)
 
-重启无核化谈判，增加军事开支，强化美韩关系，对北魁超音速导弹保留先发制人打击选项，建立美日韩三方会谈机制，剔除原5方会谈的中俄。
+翻译/简评: Victory(木先生)
 
-5.外交
+PR:Harvey（叶知秋）
 
-购买更多的美萨德导弹系统压制北魁军，加入美澳日印四方（Quad）会议，“重置”与中共关系。
+* * *
 
-6.性别
-
-废除“性别与家庭部”。
-
-参考来源：
-
-1.[S.Korea elects conservative outsider as president in tectonic shift](https://www.reuters.com/world/asia-pacific/south-korean-conservative-opposition-candidate-yoon-elected-president-2022-03-09/)
-
-2.[Factbox: Where S.Korea’s conservative president-elect Yoon Suk-yeol stands on the issues](https://www.reuters.com/world/china/where-skoreas-conservative-president-elect-yoon-suk-yeol-stands-issues-2022-03-09/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-31.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-63.png)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

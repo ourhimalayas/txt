@@ -2,29 +2,21 @@
 ---
 
 
-## 2022年3月11日澳洲股市简报
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2148646/)
+## 新中国联邦咖啡的意义
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148820/)
 
-**撰稿：云彩**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
-ASX 200 指数收盘下跌 0.9%, 收盘 7,063 点。澳交所普通股指数下跌 1%，收盘7,340点。虽然跌幅没有华尔街那么严重，但是投资者担心通胀率达到40年高位。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-化肥公司Incitec Pivot，上涨了3%，农业化学公司 Nufarm Limited 上涨 2.5%。由于俄罗斯对乌克兰的战争，市场对澳大利亚小麦的需求强劲，这两家公司从中受益。
+*发布：陶子*
 
-矿业公司力拓Rio Tino正在终止与任何俄罗斯企业的所有商业关系。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-美国总统乔拜登宣布了一项行政命令，要求官员调查数字中央银行货币和其他加密货币问题。比特币先升后降，跌至40,000美元以下。
-
-澳大利亚储备银行也在研究数字货币。
-
-参考资料：
-
-[ASX drops but miners strong, as Wall Street tumbles on highest annual inflation in 40 years](https://www.abc.net.au/news/2022-03-11/markets-wall-street-dow-jones-asx/100901214)
-
-*编辑：云彩*
-
-*发布：云彩*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

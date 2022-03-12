@@ -2,32 +2,37 @@
 ---
 
 
-## 视频|梅蒂卡站新建250平豪华帐篷受到广泛赞誉
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2148082/)
+## 波兰汽车租赁公司老板被志愿者感召加入救援队伍
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2148274/)
 
-【撰稿】纽约香草山 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月11日晚间，法治基金新中国联邦乌克兰救援梅蒂卡站，前线直播团队发布最新消息，经过连续工作，波兰梅蒂卡救助站250平豪华七星级帐篷搭建工作完成，即日起投入使用，准备为更多难民提供舒适的休息区。
-报道视频显示，新的帐篷宽敞明亮，功能区域划分明确，专门设有用餐区，和配备了高规格取暖设备的休息区。郭文贵先生在3月11日大直播中，特别强调，法治基金新中国联邦乌克兰救援行动已经达到国际一流水准。
-据现场记者Nicole报道，法新社AFP著名战地摄影记者路易莎-古里亚马基（ Louisa Gouliamaki）在参观完新帐篷后，非常感慨的表示，这项工作令人叹服。当Nicole告诉路易莎，救助团队还为所有人准备了现磨现煮的 “新中国联邦咖啡” ，路易莎非常开心，表示一定会专门来品尝。
-截至目前最新消息，新建大帐篷将迎来第一批妇女和儿童。
-目前，国际红十字会的工作人员已经和明道战友对接了今晚接待妇女儿童的工作。今晚新的大帐篷正式开放，接受红十字会负责从边境带来的难民。 当明道告诉他，这是新中国联邦救助团队第一次在战区做营救工作，他们惊讶地表示，因为法治基金新中国联邦的救助工作非常出色，简直难以置信。他们还赞扬了，法治基金财力雄厚，有能力准备这么好的设施。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-【视频链接】[https://discord.com/channels/872153398588370944/950448401529577502/951898288926367824](https://discord.com/channels/872153398588370944/950448401529577502/951898288926367824)
-【图片链接】[https://discord.com/channels/872153398588370944/950448401529577502/951913051291021362](https://discord.com/channels/872153398588370944/950448401529577502/951913051291021362)
+整理/编辑：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-- 审核/编辑/发稿:qiutian（邱甜）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-12_10-45-53.png)图片来源：郭文贵先生盖特视频截图
 
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据3月11日新中国联邦和法治基金前线记者报道，波兰当地一位汽车租赁公司老板得知很多新中国联邦和法治基金的志愿者来自加拿大和美国后，受到感召加入救援队伍。
+
+这位波兰志愿者名字叫皮特，来自波兰的克拉科夫市。皮特是当地一家租车公司的老板。
+
+当时，新中国联邦和法治基金志愿者打电话想从皮特的公司租车。当他听到志愿者做的是人道主义救援行动的，他提出要跟志愿者一起参加救援行动。随之，皮特陪同新中国联邦和法治基金的加拿大志愿者，从克拉科夫到新中国联邦和法治基金在梅迪卡的营救中心。期间，皮特不但给新中国联邦和法治基金志愿者带路，而且还帮忙翻译。
+
+皮特分享了自己加入新中国联邦和法治基金救援团队的感受。因为皮特去过中国三四次，对中国人有所了解。他觉得中国人非常友好，中国人互相协作、乐于助人。皮特认为这次营救行动非常棒。当他得知新中国联邦和法治基金的志愿者来自加拿大和美国后，就觉得自己也应该过来帮忙。这也是他加入救援队伍的主要原因。
+
+本次乌克兰救援行动由法治基金资助。法治基金是一家位于纽约的非营利组织，为所有人提供人道援助。这次，法治基金派遣了来自北美和欧洲的志愿者，来到波兰的难民营帮助乌克兰人和所有人。
+
+资料来源：[郭文贵先生2022年3月11日盖特视频](https://www.gettr.com/post/pzjpgr741d)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,8 +2,8 @@
 ---
 
 
-## 中共的邪恶
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2148592/)
+## 新中国联邦所为是没有利益、发自内心的
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2148808/)
 
 台灣寶島農場
 

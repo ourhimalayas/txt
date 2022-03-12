@@ -2,8 +2,8 @@
 ---
 
 
-## 所有疫苗强制令应立即停止
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2148679/)
+## 新中国联邦还在全世界救援
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2148848/)
 
 台灣寶島農場
 

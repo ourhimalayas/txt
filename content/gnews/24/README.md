@@ -2,36 +2,32 @@
 ---
 
 
-## Nicole 采访阿丙连线飞飞
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2148270/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月11日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2148306/)
 
-在这些孩子们最最艰难的时刻，有我们的法治基金有我们新中国联邦，营救了他们，真的是保护了他们，希望他们在将来长大以后还能记住这一刻。
+作者：香草山翻译部
 
-**【新中国联邦救援】2022.3.7**** Nicole ****采访阿丙****和****飞飞**
-
-**Nicole:**
-
-阿丙姐， 当你看到这些小孩被成功的营救出来，您觉得您所有付出的辛苦，那一刻有什么样的感受。
-
-**阿丙****：**
-
-我真的是为这些小孩子高兴，因为刚一开始我想他们肯定是特别的焦躁，或者害怕担心。现在到了一个比较平和的地方，他们第一次发巧克力糖水果的时候还比较拘谨，上去了我估计很快就吃完了，又跑下来要拿第二次。我就看到他们调皮的样子，我就觉得特别开心，真的是非常好。我想他们也会记住这一刻，在他们最最艰难的时刻，有我们的法治基金有我们新中国联邦
-
-营救了他们，真的是保护了他们。希望他们在将来长大以后还能记住这一刻，非常感谢。
-
-**Nicole:**
-
-飞飞我们也非常感谢您，因为我们知道这场直播，是在你的当地时间凌晨两三点钟。你也是几个孩子的妈妈，所以你虽然没有能够亲身到现场来帮助这些小孩，但是你所做出的努力也是同样。我们心是一起的，我们所有人都在为这场营救在付出我们的心血，谢谢大家。小孩子在挥手呢。
-
-**飞飞：**
-
-我真的希望他们能够接下来好好的生活，我觉得这个世界太需要爱了，在这个战火纷飞的世界里。如果大家都能多一点点的这样的同理心，多一点点这样的爱心，我觉得就不会有这样的战争发生。像这些发动战争的这些人，他们如果也能看到理解到这些小孩与父母分离的痛苦，我觉得他们就不会发动这场战争。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-4.jpg)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-8.png)
+校对：Stay文苑
 
+编辑：Stay文苑
 
+发稿：Stay文苑
 
-视频剪辑，字幕：GC |听写：雨山溪桥客 | 翻译：阿基米德 | 校对：Polaris |编辑&发布：闪电训练
+新闻：[https://gettr.com/post/pzjcja0896](https://gettr.com/post/pzjcja0896)
+访谈：[https://gettr.com/post/pzjyew582d](https://gettr.com/post/pzjyew582d)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

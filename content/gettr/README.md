@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 4:49 AM (UTC)`
+
+【Ukraine Rescue】The second rescue tent of the New Federal State of China in Medyka, Poland has been set up  and ready to use<br/><br/>【乌克兰救援】新中国联邦在波兰梅迪卡的第二个救援大帐篷已经开始使用<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
+![img](https://media.gettr.com/group24/getter/2022/03/12/04/6ab82061-0af3-8bfc-ba6a-ed6f6d0379d4/out.jpg)
+
+---
+
 `@miles 3/12/2022 4:38 AM (UTC)`
 
 【Ukraine Rescue】03/11/22 Fellow fighter Nicole interview two journalists from Poland who volunteered to make a documentary on the rescue volunteers at the Ukraine-Poland border. They realized the difference between the citizens of the NFSC and the CCP and expressed their gratitude to the volunteers of the NFSC and the donors of the ROLF.          <br/><br/>【乌克兰救援】03/11/22  妮可战友采访了波兰的两名为救援义工自发拍摄纪录片的记者，她们明白了新中国联邦人与中共的不同，并对新中国联邦志愿者和法治基金捐款者表示感谢。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -146,13 +153,6 @@ This is Kharkiv's main museum, staff are racing to get priceless artworks to saf
 
 According to Newsmax, Russian troops appear to be stepping up the violence of their attacks in Ukraine, although they are getting their heads handed to them everywhere they go<br/><br/>Newsmax新闻：俄军似乎正在进一步升级他们的暴力袭击，尽管他们所到之处都要被剿杀
 ![img](https://media.gettr.com/group47/getter/2022/03/11/22/6006340a-afa4-8c16-9570-890d9a57b06e/out.jpg)
-
----
-
-`@miles 3/11/2022 10:16 PM (UTC)`
-
-Russia expert Leon Aron discusses how failed military defeats have toppled previous Russian regimes and why the war in Ukraine could ‘undermine Putin’s regimes very severely’ as the truth about the invasion and deaths of Russian soldiers begins to trickle into Russia<br/><br/>俄罗斯专家莱昂·阿隆讨论失败的军事行动如何推翻了曾经的俄罗斯政权，以及乌克兰战争为什么会“非常严重地削弱普京政权”，因为入侵乌克兰的真相和俄军士兵的死亡开始逐渐传入俄罗斯
-![img](https://media.gettr.com/group6/getter/2022/03/11/22/eadeca9f-b02e-fe6a-a63a-2d9bdd5f6f14/out.jpg)
 
 ---
 
