@@ -2,35 +2,27 @@
 ---
 
 
-## 《锁链梦》创作幕后的故事
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2149609/)
+## 英国对俄罗斯386议员实施制裁
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2149684/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月9日大直播中，郭先生与战友分享了《锁链梦》这首歌创作的幕后故事。从歌曲立意、歌词改编、演唱形式，到应郭先生的创意加入女声，每一个环节都令人动容。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-12-上午2.18.39.png)
-郭先生从徐州锁链女事件而萌生以一首特别的歌曲作为“三八”国际妇女节的礼物，送给全球女士的想法。这首歌的原曲，来自香港已逝歌手梅艳芳的《女人花》。威廉王战友改编的歌词，以第一人称代入，瞬间让听者对锁链女生不如死的境遇，感同身受。
+采集：玫瑰新闻群组
 
-郭先生试唱就难以控制悲愤的情绪。为了表达锁链女的压抑无助，郭先生建议，加入女声。唐平战友敢于突破自己，用不寻常的方式，达到了欲哭无泪的效果，可谓神来之笔。而这首歌的最后一句提高八度音量，“我们砸碎这铁锁”，将前面的压抑变成了后面的动力，抑扬顿挫之间，整首歌曲得以升华。
+![此图像的alt属性为空；文件名为2022-02-15t132438z741161391rc2dks9vcvr44563174.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/2022-02-15t132438z741161391rc2dks9vcvr44563174.jpg)英国宣布对386名投票支持乌克兰东部两个分离地区独立的俄罗斯杜马（国会下议院）成员实施制裁。 （路透社）
 
-音乐的核心就是向大地传播自然无穷无尽的密码和力量。尽管郭先生谈到这首歌就哽咽，洒尽英雄泪，但改编后的这首歌，无疑凝结了新中国联邦人独特的勇气和坚毅，以及消灭中共的决心。《锁链梦》这首歌，将成为爆料革命一个里程碑式的标志。
+（早报讯）英国宣布对386名投票支持乌克兰东部两个分离地区独立的俄罗斯杜马（国会下议院）成员实施制裁，冻结他们的资产和发布旅行禁令。
 
-参考链接：[https://gettr.com/post/pz1ocoe7cb](https://gettr.com/post/pz1ocoe7cb)
+路透社报导，英国外交部周日（3月11日）在一份声明中说：“外交部长特拉斯今天制裁了俄罗斯杜马的386名成员，因为他们支援乌克兰分离地区卢甘斯克和顿涅茨克（独立）。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
+“新的制裁措施将禁止被列入名单的人前往英国，获取在英国境内的资产，并在这里做生意。”
 
-总编：宁文静
-编辑：玫瑰圆
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+据报导，英国政府一天前对七名俄罗斯最富有和最有影响力的寡头实施全面资产冻结和旅行禁令，其中包括伦敦足球俱乐部切尔西的俄罗斯老板阿布拉莫维奇（Abramovich）。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+参考连结：[https://www.zaobao.com.sg/realtime/world/story20220311-1251368](https://www.zaobao.com.sg/realtime/world/story20220311-1251368)
+
+**审核校对：Barry Jack
+上传排版：F
+V在途中**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

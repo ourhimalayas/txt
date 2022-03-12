@@ -2,50 +2,24 @@
 ---
 
 
-## 如何将俄罗斯踢出WTO, IMF, World Bank
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2149335/)
+## 中日财经爆|美国宣布将取消俄罗斯贸易最惠国待遇
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2149376/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-二战带来的毁灭与重建过程中，美国及同盟建立了几个管理全球经济秩序的机构。任务是消除贫困，重建欧洲，和平解决贸易争端。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-76.png)[图片来源](https://www.hongruimy.com/a/34751)
+美国总统拜登于星期五（3月11日）宣布，由于俄罗斯入侵乌克兰，美国、欧盟和七国集团（G7）将暂停与俄罗斯的正常贸易关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-129.jpg)
+撤销俄罗斯的“最惠国”贸易地位，意味着美国及其盟国能够启动对许多俄罗斯商品征收关税的程序，从而进一步削弱俄罗斯经济。对此，国际货币基金组织预测，俄罗斯经济今年将陷入“深度衰退”。美国官员也表示，各国都必须按照各自国内的程序来改变俄罗斯的贸易地位。
 
-1945年以来，首次欧洲大战在乌克兰爆发，一些西方国家正在讨论如何将俄联邦从世界贸易组织，国际货币基金组织，世界银行中踢出，作为发动侵略战争的惩罚。
+拜登在白宫宣布这一消息时说：“这将使俄罗斯更难与美国做生意，而且这是与其他国家的统一行动。这些国家加起来占全球经济总量的一半。这将是对俄罗斯经济的又一次毁灭性打击。他们的经济已经受到我们制裁的严重影响”。
 
-IMF
-乌克兰和俄国在苏联解体后的1992年加入IMF，但由于协议条约中不含武装冲突条款，所以退出机制仅限于莫斯科不提交储备资产，贸易，外汇等经济数据。
+美国及其盟国此前已经针对俄罗斯实施了一系列前所未有的制裁以及出口和银行限制，以此施压俄罗斯总统普京结束对乌克兰的战争。这是二战以来欧洲发生的最大战争。
 
-如果违规发生并且没有改正，有70%投票权的成员国可以在“合理时限”后，暂停俄罗斯投票权，经过下一个“合理时限”后，80%的多数派可以强制俄国退出该组织。
+消息来源:[拜登宣布将取消俄罗斯贸易最惠国待遇](https://www.voachinese.com/a/biden-calls-for-suspension-of-normal-trade-ties-with-russia-20220311/6481151.html)
 
-WTO
-美国和欧洲盟友同时在检视暂停俄“最惠国待遇”的方法，成功后将允许施加显著高于WTO成员的关税。
-
-美国法律规定，取消最惠国待遇需国会授权。周五提交表决的预算法案中，排除了取消俄永久贸易正常关系条款，但授权对俄WTO成员资格进行复核。
-
-俄在19年谈判后，于2012年加入WTO。由于没有开除条款，取消成员资格将极为困难。WTO需要66%多数派同意创建此程序，然后由75%多数投票移除俄国。历史上多数决定由其164个成员国一致同意后通过，这种非投票性过程消解了结构性改变。
-
-WORLD BANK GROUP
-战争开始后，世界银行已经停止了所有俄国和白俄罗斯项目，含对白俄新冠紧急救援贷款5亿1100万美元。
-
-如果俄未能完成世行协议条款中的义务，多数投票股东可以暂停莫斯科的会员资格，一年后如果没能逆转将会自动开除。
-
-参考链接：
-
-- [Explainer: Ousting Russia from WTO, IMF would mark end of an era](https://www.reuters.com/markets/asia/ousting-russia-wto-imf-would-mark-end-an-era-2022-03-09/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-编辑/校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/逢⑦必变
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

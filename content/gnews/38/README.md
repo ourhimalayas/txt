@@ -2,10 +2,10 @@
 ---
 
 
-## 日本对经济困难的留学生发放10万元补助
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2147434/)
+## 中共病毒疫情蔓延整个亚洲 死亡人数突破100万
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2147735/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7f228052af34309952b3f44f9ab5734e.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220312-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
