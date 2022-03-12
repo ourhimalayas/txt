@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 7:40 PM (UTC)`
+
+<br/>3月12号：伟大的新中国联邦……伟大的法制基金的所有的捐款战友们。
+> `@himalayadcfarm 3/12/2022 7:31 PM (UTC)`<br/>🆘🇺🇦Lasest from Nicole on the #ukraineFront<br/>Our refugee camps have become a family where the world comes together in exchange! <br/>Our refugee camps become a place for donations from all over the world! <br/> 🆘🇺🇦来自#乌克兰前线Nicole最新报道：<br/>我们的营地成为世界交流汇聚的大家庭！<br/>我们的营地成为来自世界各地的捐物处！
+![img](https://media.gettr.com/group48/origin/2022/03/12/19/2dac62ff-864e-f7e7-f4e8-0c26b469fc56/out.jpg)
+
+---
+
 `@miles 3/12/2022 7:17 PM (UTC)`
 
 3月12号：永远相信．正义多于邪恶，好人多过坏人。【乌克兰 小男孩帮战友挂我们的横幅……<br/>让人动容的画面🙏🌹】
@@ -149,13 +157,6 @@ Wars for any reason are all crimes<br/>出于任何原因的战争都是犯罪<b
 
 3/11/2022 Miles Guo: Why is the CCP so scared of the Ukraine rescue operation launched by the New Federal State of China? Because Chinese people have quickly found their true color and it’s proven that decent Chinese people have tastes, courage and is able to contribute by giving assistance to others, and therefore this is a deadly attack to the CCP<br/><br/>3/11/2022 文贵直播：新中国联邦乌克兰救援为什么让共产党感到恐惧？因为中国人迅速找到了自己的真颜色，证明中国人有正义、有品位、勇敢、无私奉献，这对中共是致命的<br/>
 ![img](https://media.gettr.com/group11/getter/2022/03/12/03/95a8ee91-988a-5276-9e25-5b6ae3a2457b/out.jpg)
-
----
-
-`@miles 3/12/2022 2:12 AM (UTC)`
-
-【Ukraine Rescue】03/11/2022 New Federal State of China built the second huge tent in Medyka, Poland to help Ukrainian refugees.<br/><br/>【乌克兰救援】03/11/2022 新中国联邦在波兰梅迪卡建起了第二个巨型帐篷，救援乌克兰难民<br/><br/> 
-![img](https://media.gettr.com/group21/getter/2022/03/12/02/5eb9aadd-9e00-72c7-a063-df510f12521f/out.jpg)
 
 ---
 
