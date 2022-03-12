@@ -2,39 +2,27 @@
 ---
 
 
-## 有声|台湾各界捐款乌克兰总额接近5.3亿新台币
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2152407/)
+## 视频|新中国联邦与各类国际组织通力合作安置难民
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2152548/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据台湾媒体报道，为应对俄罗斯侵略乌克兰，台湾外交部2日公布了通过赈灾基金会成立的赈济乌克兰专户账号，从3日起接受ATM、银行转账，线上刷卡汇款，为期1个月。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1236.png)图片来自：https://news.ltn.com.tw
-账户开设后，各界踊跃捐款。至当地时间3月11日下午14点15分，捐款已累计接近5.3亿新台币，累计捐款笔数为8万7060笔。
+制作：香草山视频部
 
-其中台湾政府总统、副总统、行政院长、立法院长等多位院长，以及基隆、桃园等市的市长，都捐出一个月月薪。
+波兰当地时间3月11日，随着难民数量越来越多，到达梅迪卡难民安置处的各类国际组织越来越多。其中有数家国际主流媒体，包括美联社和彭博社，他们的媒体报道人员在新中国联邦的帐篷内拍摄难民，在帐篷外做采访报道。多位战友被媒体采访。
 
-赈灾基金会表示，捐款中还包括中华电信捐款1000万新台币，小企业主捐款200万新台币，个人捐款300万新台币。
+除了媒体，还有很多国际组织或个人方面的救援先后到达了此地。3月10日，三位意大利志愿者将一车婴幼儿用品委托给战友，请战友将这些物品发给难民。国际红十字会的救援人员把妇女儿童指引到新中国联邦的大帐篷里休息，无疆界医生组织找文科战友帮忙搬运物资。
 
+现场参与救援的人员虽然来自不同的组织、不同的国家，但是都在通力合作救助难民。新中国联邦的战友多次受到难民、媒体和其他救援组织的高度赞扬。
 
+发稿：Daxia
 
-文字版原文：[台湾各界捐款乌克兰总额接近5.3亿新台币](https://gnews.org/zh-hans/2149146/)
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
