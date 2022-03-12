@@ -2,67 +2,39 @@
 ---
 
 
-## COVID病毒疫苗创造亿万富翁 中共国6人上榜
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2152315/)
+## 有声|台湾各界捐款乌克兰总额接近5.3亿新台币
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2152407/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据台湾媒体报道，为应对俄罗斯侵略乌克兰，台湾外交部2日公布了通过赈灾基金会成立的赈济乌克兰专户账号，从3日起接受ATM、银行转账，线上刷卡汇款，为期1个月。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1236.png)图片来自：https://news.ltn.com.tw
+账户开设后，各界踊跃捐款。至当地时间3月11日下午14点15分，捐款已累计接近5.3亿新台币，累计捐款笔数为8万7060笔。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+其中台湾政府总统、副总统、行政院长、立法院长等多位院长，以及基隆、桃园等市的市长，都捐出一个月月薪。
 
-中共病毒疫苗对于普通人来说，是索命，而对于少数人来说，意味着大发横财！
-
-Moderna依靠唯一可商用的Covid-19疫苗销售，从前年亏损7.47亿美元到去年收入122亿美元。不计算股票期权套现，首席执行官斯蒂芬﹒班塞尔去年总收入为1820万美元，比2020年增长了41%。去年底，Moderna董事会批准了班塞尔的金色降落伞，由中共病毒颠覆世界秩序之前2019年的940万美元，提升到价值超过9.26亿美元，提升97.5倍。Moderna总裁斯蒂芬﹒霍格、首席技术官胡安﹒安德烈斯去年分别获得780和660万美元的报酬，分别比前年高出48%和55%。股票期权套现1.659和1.943亿美元。
-
-从COVID疫苗中大发横财的远不止Moderna高管。
-
-2021年5月20日，人民疫苗联盟（[The People’s Vaccine Alliance](https://peoplesvaccine.org/)）在G20领导人全球健康峰会之前透露，由于垄断COVID疫苗的制药公司正在赚取巨额利润，自COVID大流行开始以来，至少有9人成为新的亿万富翁。这九位新亿万富翁的总净资产为193亿美元。
-
-此外，八位现有的亿万富翁，他们在COVID-19疫苗制药公司拥有广泛的投资组合，他们的总财富增加了322亿美元。
-
-人民疫苗联盟列出的9位新疫苗亿万富翁，按他们的净资产顺序是：
-
-1. Moderna首席执行官Stéphane Bancel（43亿美元）
-
-2.BioNTech首席执行官兼联合创始人Ugur Sahin（40亿美元）
-
-3. Moderna创始投资者、免疫学家Timothy Springer（22亿美元）
-
-4.Moderna董事长Noubar Afeyan（19亿美元）
-
-5.制造和包装Moderna疫苗的ROVI董事长JuanLopez-Belmonte（18亿美元）
-
-6.Moderna科学家和创始投资者Robert Langer（16亿美元）
-
-7.中共国[天津康希诺生物](https://www.cansinotech.com.cn/)（CanSino Biologics）联合创始人、董事长兼首席科学官朱涛（13亿美元）
-
-8.中共国[天津康希诺生物](https://www.cansinotech.com.cn/)（CanSino Biologics）联合创始人兼高级副总裁邱东旭（12美元）
-
-9.中共国[天津康希诺生物](https://www.cansinotech.com.cn/)（CanSino Biologics）联合创始人兼高级副总裁毛慧华（10亿美元）
-
-财富增长的8位疫苗亿万富翁分别是：
-
-#  
+赈灾基金会表示，捐款中还包括中华电信捐款1000万新台币，小企业主捐款200万新台币，个人捐款300万新台币。
 
 
-| **姓名** | **角色****/****描述** | **2021****（****10****亿美元）** | **2020****（10亿美元）** |
-| --- | --- | --- | --- |
-| 蒋仁生家族 | 中共国[重庆智飞生物制品股份有限公司](http://www.zhifeishengwu.com/)主席 | 24.4 | 7.6 |
-| Cyrus Poonawalla | 印度血清研究所创始人 | 12.7 | 8.2 |
-| 谢炳（Tse Ping） | 中共国[国药控股股份有限公司](https://www.sinopharmholding.com/) | 8.9 | 7.3 |
-| 吴冠江 | 中共国[重庆智飞生物制品股份有限公司](http://www.zhifeishengwu.com/)联合创始人 | 5.1 | 1.8 |
-| Thomas Struengmann家族 | 投资组合包括德国的 BioNTech 和乌拉圭的 Mega Pharma | 11 | 9.6 |
-| Andreas Struengmann家族 | 投资组合包括德国的 BioNTech 和乌拉圭的 Mega Pharma | 11 | 9.6 |
-| Pankaj Patel | 控制上市公司 Cadila Healthcare。该公司现在生产治疗 Covid-19 的药物，例如来自吉利德的 Remdesivir。其 Covid-19 疫苗 ZyCoV-D 正在进行临床试验。 | 5 | 2.9 |
-| Patrick Soon-Shiong | ImmunityBio ，入选美国联邦政府的“曲速行动”，以帮助快速开发 Covid-19 疫苗。 | 7.5 | 6.4 |
 
+文字版原文：[台湾各界捐款乌克兰总额接近5.3亿新台币](https://gnews.org/zh-hans/2149146/)
 
-这17位都是“疫苗经济”的巨大受益者，在疫苗灾难随时爆发的未来，绞刑架上一个都不能少！
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-参考数据：
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[COVID vaccines create 9 new billionaires with combined wealth greater than cost of vaccinating world’s poorest countries](https://www.oxfam.org/en/press-releases/covid-vaccines-create-9-new-billionaires-combined-wealth-greater-cost-vaccinating)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
