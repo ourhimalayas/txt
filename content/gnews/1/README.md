@@ -2,40 +2,29 @@
 ---
 
 
-## 中共国吉林省新冠病毒大爆发，大学出现聚集性疫情
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2150582/)
+## 俄罗斯航天局警告国际空间站坠毁
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2150663/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-整理/编辑：围剿维尼熊
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1647081447022.jpg)图片来源：中国新闻网
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0100.jpg)
 
 
-根据大纪元3月12日讯，中共国吉林省疫情近期持续升温，并出现大面积传播。长春市宣布“封城”，吉林市长被免职。
+图片来源：视频截图
 
-根据吉林省当局3月11日通报，该省的6个市州和1个省直管县有疫情报告。吉林市、长春市出现社区传播，短时间内筛查发现的感染者数仍将快速增加。
+警告来自 Telegram：俄罗斯航天局 Roskosmos 负责人指出 ISS 空间站的供应问题。据称，一些“疯狂国家”的制裁甚至可能导致车站崩溃。
 
-直到3月11日，长春市宣布“封城，通知全市范围内启动三轮全员核酸，全市小区村单位进行封闭式管理。
+俄罗斯航天局 Roscosmos 负责人德米特里·罗戈津（Dmitry Rogozin）警告西方，国际空间站（ISS）可能会坠毁。
 
-吉林农业科技学院之前也被爆料，该学校出现了聚集性疫情爆发。后有自称是吉林农业科技学院的学生在社交媒体上爆料，学校一直都在隐瞒疫情爆发事实。
+罗戈津周六在信使服务电报中表示，对俄罗斯实施的制裁正在影响为国际空间站提供服务的俄罗斯航天器的运行。这主要影响车站的俄罗斯部分，该部分负责修正航向。结果，这座500吨重的结构可能会掉到地上，“掉进海里或掉到陆地上”。
 
-据报导，吉林农业科技学院此次疫情爆发，属于学校刻意隐瞒疫情不报。
+“俄罗斯部分确保空间站的轨道得到纠正（平均每年 11 次），同时也是为了防止空间碎片，”罗戈津解释说。
 
-3月6日至今，吉林农业科技学院共报告了核酸阳性和无症状感染者超过120人。目前该校党委书记张立峰已被免职。
+他还发布了一张世界地图，以显示国际空间站可能坠毁的位置。因此，俄罗斯基本上是安全的。但其他国家，特别是西方国家，应该“考虑制裁俄罗斯联邦的代价，”罗戈津警告说。
 
-不过，中共的疫情数据一直受到质疑。中共还封杀民间的不同声音，并抓捕敢于在网上透露实情的人们。
+🔗 [https://www.welt.de/politik/ausland/article237490255/Ukraine-News-im-Liveticker-Russische-Raumfahrtbehoerde-warnt-vor-Absturz-der-ISS.html](https://www.welt.de/politik/ausland/article237490255/Ukraine-News-im-Liveticker-Russische-Raumfahrtbehoerde-warnt-vor-Absturz-der-ISS.html)
 
-参考链接：[https://www.epochtimes.com/gb/22/3/11/n13639947.htm](https://www.epochtimes.com/gb/22/3/11/n13639947.htm)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑发表： Shuizhuyu
 
  
 

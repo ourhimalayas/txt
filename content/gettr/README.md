@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayaukclub 3/12/2022 10:40 AM (UTC)`
+
+💥💥💥Time-lapse photography of a 240 square meter tent funded by #ROLF for the #Ukrainian refugees<br/><br/>❤️❤️❤️Thanks to the frontline rescue team for all their hard work for building such a large and comfortable tent in such a short time!<br/><br/>💦💦💦法治基金为乌克兰难民资助搭建的240平米大帐篷的延时摄影，感谢拍摄者：煤油灯战友<br/><br/>💕💕💕这么短时间搭建出如此大而舒适的帐篷，感谢前线救援团队所有辛苦的付出！
+![img](https://media.gettr.com/group41/origin/2022/03/12/10/928a0a75-35ab-8e1c-58a6-311bbcbc21f3/out.jpg)
+
+---
+
 `@miles 3/12/2022 9:13 AM (UTC)`
 
 【Ukraine Rescue】03/11/22  At 3:37 a.m. local time, another group of refugees, many of them children, arrived at the NFSC relief tent. NFSC volunteers gave them candies and chocolates, and a cute girl smiled sweetly at the volunteers.<br/><br/>【乌克兰救援】03/11/22 又一批难民于波兰凌晨3点37分进入新中国联邦救援帐篷，里面有许多孩子，新中国联邦前线义工给他们分发糖果和巧克力,其中一个萌娃萌翻全场。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
@@ -146,13 +155,6 @@ Wars for any reason are all crimes<br/>出于任何原因的战争都是犯罪<b
 
 【Ukraine Rescue】03/11/22 A local Polish car rental company owner was inspired to join the rescue team after learning that many NFSC & ROLF volunteers were from Canada and the United States. <br/><br/>【乌克兰救援】03/11/22 波兰当地一位汽车租赁公司老板得知很多新中国联邦和法治基金的义工来自加拿大和美国后，受到感召加入救援队伍。<br/><br/>
 ![img](https://media.gettr.com/group17/getter/2022/03/12/00/8db6e20e-6ca3-0e21-8923-5da887ee62b2/out.jpg)
-
----
-
-`@miles 3/12/2022 12:40 AM (UTC)`
-
-2022.03.11 NFSC News  CCP Virus Outbreak in Hong Kong Caused Panic Buying； Mild Infection of CCP Virus May Cause Brain Atrophy Or Deterioration
-![img](https://media.gettr.com/group14/origin/2022/03/12/00/5e708cd0-4770-90cf-7702-5d9e570538e8/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
