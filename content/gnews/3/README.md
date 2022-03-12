@@ -2,111 +2,24 @@
 ---
 
 
-## 虚假盛世之蝼蚁
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2150433/)
+## 莫德纳CEO的“金色降落伞”赔偿高达9亿美元
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2150449/)
 
-作者：香草山教育部 – 蓝之灵（Hortensia)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-12.png)
-盛世下的蝼蚁
+#### 翻译/撰稿：zzballack
 
-喜气洋洋
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-54.jpg)图片来源：CNBC
+据《网关专家》（Gateway Pundit）3月11日报道，过去两年，莫德纳（Moderna）公司的财务状况发生了翻天覆地的变化。2020年亏损了7.47亿美元的它们，在2021的收入超过了120亿美元。令人惊讶的是，莫德纳的巨额收入全部归功于其唯一的商业化产品：实验性的mRNA新冠疫苗。
 
-只因为
+由于今年的疫苗销售额预计会超过去年，莫德纳董事会在2021年年底决定用一个巨大的“控制权变更（change-in-control）”方案来奖励其最高主管、首席执行官斯特凡·班塞尔（Stephanie Bancel）。班塞尔的“金色降落伞 (Golden parachute，指企业一旦被收购，首席执行官离职的补偿费用)”协议说，如果公司被出售或者合并，同时班塞尔在此过程中失去了工作，那么他将获得超过9.26亿美元的费用，这比之前商定的离职协议中的960万美元高出近1000%。
 
-伟大的党
+然后，据《每日邮报》（Daily Mail）报道，由于补偿费用主要以股票期权的形式支付，所以报酬是不稳定的。“班塞尔的‘金色降落伞’协议中（协议中的股价以去年12月31日的收市价253.98美元计算）的大部分与莫德纳股票挂钩，股价在大流行期间有涨有跌，因此很难确定如果班塞尔将其兑现会获得多少钱。”莫德纳的股价在2021年8月10日达到了迄今最高点497.49美元，但在3月10日，股价已跌至139.52美元。
 
-让中国
+在大流行期间，班塞尔获利颇丰。据CNBC报道，在2021年，班塞尔就赚了1820多万美元，其中包括薪金99万美元、奖金150万美元和股票奖励1500万美元。莫德纳的其他高管也大赚特赚：总裁斯蒂芬·霍格（Stephen Hoge）除了780万美元的工资和奖金，还兑现了1.659亿美元的股票期权；首席技术官胡安·安德烈斯（Juan Andres）从公司赚了660万美元，出售股票获利1.943亿美元。
 
-又大又强
+总的来说，这三位高管在过去一年中抛售了数亿股莫德纳股票，他们希望在危机结束之前抓住机会在高位套现。毕竟，随着新冠疫苗真相的逐步曝光，莫德纳股价会持续下跌，同时他们也别想逃过追责。
 
-一张大网
-
-一堵高墙
-
-墙内伟大我党
-
-墙外弥天大谎
-
-醒来吧， 韭菜
-
-看到大网
-
-醒来吧，韭菜
-
-越过高墙
-
-醒来吧，韭菜
-
-戳破弥天大谎
-
-醒来吧，韭菜
-
-看清虚假共党
-
-盛世下的韭菜
-
-得意洋洋
-
-强大我党
-
-四海名扬
-
-高墙大网
-
-掩盖真相
-
-海外战狼
-
-墙内豺狼
-
-枪你钱粮
-
-温顺绵羊
-
-辱你妻女
-
-只把奴当
-
-盛世下的蝼蚁
-
-带血带伤
-
-无知无识
-
-梦里徜徉
-
-山呼万岁
-
-赞歌共党
-
-圈禁韭菜
-
-高墙大网
-
-镰刀高扬
-
-韭菜慌张
-
-失去钱粮
-
-唯把命殇
-
-度假盛世
-
-可怜羔羊
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-2.jpg)
-
-编辑/校对/发稿：林礼
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源：[Moderna Approves $900 Million+ Golden Parachute for CEO After Company Went From Losing $747 Million In 2020 to Making $12.2 Billion in 2021 With Its Covid Jab](https://www.thegatewaypundit.com/2022/03/moderna-approves-900-million-golden-parachute-ceo-company-went-losing-747-million-2020-making-12-2-billion-2021-covid-jab/)
 
  
 

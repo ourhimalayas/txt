@@ -2,24 +2,26 @@
 ---
 
 
-## 国际社会担心普京可能会使用化学武器
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2149332/)
+## 一个乌克兰家庭的故事
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2149333/)
 
-作者：日本东京方舟农场 – Miyali7768(文玉）
+作者：纽约香草山福音部 – qiutian（邱甜）
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-英国首相鲍里斯·约翰逊（Boris Johnson）表示，他担心弗拉基米尔·普京（Vladimir Putin）可能会在乌克兰部署化学武器，因为这将超出预期。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.png)
-周三，莫斯科称已经在乌克兰发现了一个涉及瘟疫和炭疽等致命病原体的军事生物武器计划，并呼吁美国解释”乌克兰生物武器实验室”。
+周日，由于遭遇俄罗斯迫击炮，有四个人躺在基辅郊区 Irpin 的一个十字路口附近。
 
-一名美国官员驳斥了这一说法，称其为”荒谬的宣传”，并指责俄罗斯为战争寻求追溯性的借口。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/捕获-5.png)
 
-鲍里斯·约翰逊在天空新闻的Beth Rigby采访节目中说俄罗斯早些时候声称乌克兰正在储存化学武器，并计划部署它们，这都是克里姆林宫释放自己的化学武器的借口的一部分。而关于化学武器这些东西是直接来自于普金的计划。乌克兰战争结束的唯一途径是俄罗斯总统意识到他犯了一个”灾难性的错误”。
+当迫击炮弹落下时，一队时报记者恰好在附近，其中一位名叫 Lynsey Addario 的记者拍下了这家人的照片。 “我想，你知道，拍照是不尊重的，但我必须拍照——这是战争罪，”林西告诉哥伦比亚广播公司晚间新闻。 “我认为让世界各地的人们看到这些图像真的很重要。”
 
-国际战略研究所（International Institute of Strategic Studies）的威廉·阿尔伯克（William Alberque）预测，为了打击乌克兰人民的士气，普金会找借口使用化学武器，如果普金那样做的话，他们将不得不采取行动。
+在袭击发生后的几天里，我的同事写下了四名受害者的名字：Tetiana Perebyinis 和她的两个孩子，18 岁的 Mykyta 和 9 岁的 Alisa，以及 26 岁的 Anatoly Berezhnyi教会志愿者。
+
+Tetiana Perebyinis 是一名会计师，她的丈夫 Serhiy 是一名计算机程序员。几周前，在基辅局势恶化之前，Tetiana 的公司在波兰租用了房间，并鼓励员工使用这些房间。但 Tetiana 不想离开，直到她计划撤离患有阿尔茨海默病的母亲。最后，周日早上 7 点左右，Tetiana和她的孩子们开始了他们的旅程，而Serhiy则被困在乌克兰东部，照顾生病的母亲。
+
+Serhiy将他的妻子和孩子们安葬在乌克兰西部后，自己又回到了伊尔平帮助其他人撤离。
 
 参考链接：
 
-- [Ukraine war: Boris Johnson tells Sky News he fears Vladimir Putin may use chemical weapons as it is ‘straight out of Russia’s playbook’](https://news.sky.com/story/ukraine-war-boris-johnson-tells-sky-news-he-fears-vladimir-putin-may-use-chemical-weapons-as-it-is-straight-out-of-russias-playbook-12562547)
+- [Russia’s civilian attacks](https://www.nytimes.com/2022/03/10/briefing/russia-civilian-attacks-ukraine-war.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)

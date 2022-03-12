@@ -2,39 +2,24 @@
 ---
 
 
-## 一个乌克兰家庭的故事
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2149333/)
+## 中日财经爆|美国宣布将取消俄罗斯贸易最惠国待遇
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2149376/)
 
-作者：纽约香草山福音部 – qiutian（邱甜）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-周日，由于遭遇俄罗斯迫击炮，有四个人躺在基辅郊区 Irpin 的一个十字路口附近。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-76.png)[图片来源](https://www.hongruimy.com/a/34751)
+美国总统拜登于星期五（3月11日）宣布，由于俄罗斯入侵乌克兰，美国、欧盟和七国集团（G7）将暂停与俄罗斯的正常贸易关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/捕获-5.png)
+撤销俄罗斯的“最惠国”贸易地位，意味着美国及其盟国能够启动对许多俄罗斯商品征收关税的程序，从而进一步削弱俄罗斯经济。对此，国际货币基金组织预测，俄罗斯经济今年将陷入“深度衰退”。美国官员也表示，各国都必须按照各自国内的程序来改变俄罗斯的贸易地位。
 
-当迫击炮弹落下时，一队时报记者恰好在附近，其中一位名叫 Lynsey Addario 的记者拍下了这家人的照片。 “我想，你知道，拍照是不尊重的，但我必须拍照——这是战争罪，”林西告诉哥伦比亚广播公司晚间新闻。 “我认为让世界各地的人们看到这些图像真的很重要。”
+拜登在白宫宣布这一消息时说：“这将使俄罗斯更难与美国做生意，而且这是与其他国家的统一行动。这些国家加起来占全球经济总量的一半。这将是对俄罗斯经济的又一次毁灭性打击。他们的经济已经受到我们制裁的严重影响”。
 
-在袭击发生后的几天里，我的同事写下了四名受害者的名字：Tetiana Perebyinis 和她的两个孩子，18 岁的 Mykyta 和 9 岁的 Alisa，以及 26 岁的 Anatoly Berezhnyi教会志愿者。
+美国及其盟国此前已经针对俄罗斯实施了一系列前所未有的制裁以及出口和银行限制，以此施压俄罗斯总统普京结束对乌克兰的战争。这是二战以来欧洲发生的最大战争。
 
-Tetiana Perebyinis 是一名会计师，她的丈夫 Serhiy 是一名计算机程序员。几周前，在基辅局势恶化之前，Tetiana 的公司在波兰租用了房间，并鼓励员工使用这些房间。但 Tetiana 不想离开，直到她计划撤离患有阿尔茨海默病的母亲。最后，周日早上 7 点左右，Tetiana和她的孩子们开始了他们的旅程，而Serhiy则被困在乌克兰东部，照顾生病的母亲。
+消息来源:[拜登宣布将取消俄罗斯贸易最惠国待遇](https://www.voachinese.com/a/biden-calls-for-suspension-of-normal-trade-ties-with-russia-20220311/6481151.html)
 
-Serhiy将他的妻子和孩子们安葬在乌克兰西部后，自己又回到了伊尔平帮助其他人撤离。
-
-参考链接：
-
-- [Russia’s civilian attacks](https://www.nytimes.com/2022/03/10/briefing/russia-civilian-attacks-ukraine-war.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-编辑/校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/逢⑦必变
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
