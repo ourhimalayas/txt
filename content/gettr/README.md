@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 5:20 AM (UTC)`
+
+3/11/2022 Miles Guo: The NFSC & ROLF Ukraine rescue mission has demonstrated that we save people without any discrimination based upon differences in terms of race/ethnicity, religion, nationality, or region. Our rescue operation is of great significance as it is like a light in the darkness, and the closer you get to this light and the earlier you are enlightened, the better the chance you will have to survive in the darkness.<br/><br/>3/11/2022 文贵直播：新中国联邦救援行动展示了我们的救助无种族宗教差别、无国家、地域差别，就像黑暗中的一盏灯，离这盏灯越近、越早开智的人，就越可能不被黑暗吞噬掉，意义重大！
+![img](https://media.gettr.com/group17/getter/2022/03/12/05/5a5ee25e-2d0d-9ad2-951e-ef4e10a11a94/out.jpg)
+
+---
+
 `@miles 3/12/2022 4:56 AM (UTC)`
 
 Wars for any reason are all crimes<br/>出于任何原因的战争都是犯罪<br/>【"帮帮我”---乌克兰老人在寒风中艰难地等待撤离】 <br/>#ukrainehelp #ukrainehotline #nfscrescueteam
@@ -146,13 +153,6 @@ This is Kharkiv's main museum, staff are racing to get priceless artworks to saf
 
 3/11/2022 Miles Guo: What is the NFSC coffee served by the New Federal State of China? Why should we provide the refugees with freshly ground coffee? Fellow fighters are working day and night to help rescue refugees, and some of them even got sick. The New Federal State of China has become the focus of the world’s media.<br/><br/>3/11/2022 文贵直播：什么是新中国联邦NFSC咖啡？为什么要在救援现场为难民准备现磨的咖啡？战友们夜以继日地救助难民，甚至有战友都病了；新中国联邦人已成为全球媒体的焦点<br/>
 ![img](https://media.gettr.com/group48/getter/2022/03/11/22/4aab8aad-41a7-5e0d-e862-e5ee0a88a926/out.jpg)
-
----
-
-`@miles 3/11/2022 10:32 PM (UTC)`
-
-3/11/2022 Miles Guo: The NFSC & ROLF Ukraine rescue mission has received wide attention from the world media in Medyka, Poland. Fellow fighters left behind their families and jobs to save the refugees without demanding anything in return. We, citizens of the New Federal State of China, are the real Chinese people respected and loved by the world.<br/><br/>3/11/2022 文贵直播：新中国联邦法治基金的救援行动在波兰梅迪卡受到了国际媒体的广泛关注；战友们抛家舍业来救援难民，不求任何回报，我们新中国联邦人是为世界尊重和喜欢的真正的中国人<br/>
-![img](https://media.gettr.com/group31/getter/2022/03/11/22/49e6940c-0f12-940d-bc6e-b428cb52d6ba/out.jpg)
 
 ---
 
