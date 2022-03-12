@@ -2,67 +2,33 @@
 ---
 
 
-## COVID病毒疫苗创造亿万富翁 中共国6人上榜
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2152315/)
+## 俄罗斯威胁要攻击北约运往乌克兰的武器
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2152570/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/n.jpg)infowarsarmy.com
+据《零对冲》3月12日报道，俄罗斯威胁要攻击北约运往乌克兰的武器，称之为”合法的目标”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+克里姆林宫周六警告说，俄罗斯军方已准备好对继续涌入乌克兰的西方武器运输进行攻击。这为与西方和北约之间可能出现的冲突升级创造了条件。俄罗斯副总理谢尔盖·里亚布科夫在其国家电视台说，华盛顿在过去几天被告知，莫斯科将把进入乌克兰的武器供应车队视为 “合法目标”。
 
-中共病毒疫苗对于普通人来说，是索命，而对于少数人来说，意味着大发横财！
+“我们警告美国，一些国家精心策划的输送武器到乌克兰的举动是危险的，它将这些车队变成‘合法目标’。”里亚布科夫在讲话中说，这是对西方的一个严厉警告。
 
-Moderna依靠唯一可商用的Covid-19疫苗销售，从前年亏损7.47亿美元到去年收入122亿美元。不计算股票期权套现，首席执行官斯蒂芬﹒班塞尔去年总收入为1820万美元，比2020年增长了41%。去年底，Moderna董事会批准了班塞尔的金色降落伞，由中共病毒颠覆世界秩序之前2019年的940万美元，提升到价值超过9.26亿美元，提升97.5倍。Moderna总裁斯蒂芬﹒霍格、首席技术官胡安﹒安德烈斯去年分别获得780和660万美元的报酬，分别比前年高出48%和55%。股票期权套现1.659和1.943亿美元。
+他补充说，俄罗斯已经正式警告 “向乌克兰贸然转让便携式防空系统、反坦克导弹系统等武器的后果”，从莫斯科的角度来看，美国政府没有认真对待这些警告。
 
-从COVID疫苗中大发横财的远不止Moderna高管。
+在俄罗斯2月24日入侵乌克兰的前几周，美国驻基辅大使馆曾在推特上发布照片，说有一批重要的武器运抵。美国授权波罗的海盟友转让标枪反坦克导弹，以供应乌克兰军队，同时，英国也送来了多轮运输机装载的弹药和武器系统。
 
-2021年5月20日，人民疫苗联盟（[The People’s Vaccine Alliance](https://peoplesvaccine.org/)）在G20领导人全球健康峰会之前透露，由于垄断COVID疫苗的制药公司正在赚取巨额利润，自COVID大流行开始以来，至少有9人成为新的亿万富翁。这九位新亿万富翁的总净资产为193亿美元。
+他们相信”毒刺 “防空导弹的供应也在加紧进行。俄罗斯的新警告也是在美国和波兰的米格-29飞机一事失败之后发出的。华沙曾过早地提出将其所有的米格-29飞机交给美国，以便它们可以从德国的拉姆施泰因空军基地飞入乌克兰。拜登政府说这个提议是一个 “惊喜”，而五角大楼则断然拒绝了这个计划，说鉴于这些飞机必须从西方进入乌克兰，有可能发生空中交火事件，造成北约与俄罗斯军队直接冲突的风险太高。
 
-此外，八位现有的亿万富翁，他们在COVID-19疫苗制药公司拥有广泛的投资组合，他们的总财富增加了322亿美元。
+最近的战场视频似乎证实，在许多情况下，入侵的俄罗斯坦克和装甲车被西方提供的 “标枪 “和其他反装甲导弹摧毁，这些导弹掌握在乌克兰军队手中。
 
-人民疫苗联盟列出的9位新疫苗亿万富翁，按他们的净资产顺序是：
+毫无疑问，克里姆林宫将这些攻击归咎于西方，因为是用北约提供的先进武器进行的。
 
-1. Moderna首席执行官Stéphane Bancel（43亿美元）
+**评论**：郭先生早就告诉我们，俄乌之战是中美代理人的战争。战争由普京发动，何时结束就由不得他了。目前看，俄军进退失距，打不赢，停不了，只能黏黏糊糊地弄下去，苦的是乌克兰及俄罗斯普通人，他们付出的是生命的代价。
 
-2.BioNTech首席执行官兼联合创始人Ugur Sahin（40亿美元）
+原文链接：
 
-3. Moderna创始投资者、免疫学家Timothy Springer（22亿美元）
+[https://www.zerohedge.com/geopolitical/russia-threatens-attack-nato-weapons-shipments-ukraine-legitimate-targets](https://www.zerohedge.com/geopolitical/russia-threatens-attack-nato-weapons-shipments-ukraine-legitimate-targets)
 
-4.Moderna董事长Noubar Afeyan（19亿美元）
-
-5.制造和包装Moderna疫苗的ROVI董事长JuanLopez-Belmonte（18亿美元）
-
-6.Moderna科学家和创始投资者Robert Langer（16亿美元）
-
-7.中共国[天津康希诺生物](https://www.cansinotech.com.cn/)（CanSino Biologics）联合创始人、董事长兼首席科学官朱涛（13亿美元）
-
-8.中共国[天津康希诺生物](https://www.cansinotech.com.cn/)（CanSino Biologics）联合创始人兼高级副总裁邱东旭（12美元）
-
-9.中共国[天津康希诺生物](https://www.cansinotech.com.cn/)（CanSino Biologics）联合创始人兼高级副总裁毛慧华（10亿美元）
-
-财富增长的8位疫苗亿万富翁分别是：
-
-#  
-
-
-| **姓名** | **角色****/****描述** | **2021****（****10****亿美元）** | **2020****（10亿美元）** |
-| --- | --- | --- | --- |
-| 蒋仁生家族 | 中共国[重庆智飞生物制品股份有限公司](http://www.zhifeishengwu.com/)主席 | 24.4 | 7.6 |
-| Cyrus Poonawalla | 印度血清研究所创始人 | 12.7 | 8.2 |
-| 谢炳（Tse Ping） | 中共国[国药控股股份有限公司](https://www.sinopharmholding.com/) | 8.9 | 7.3 |
-| 吴冠江 | 中共国[重庆智飞生物制品股份有限公司](http://www.zhifeishengwu.com/)联合创始人 | 5.1 | 1.8 |
-| Thomas Struengmann家族 | 投资组合包括德国的 BioNTech 和乌拉圭的 Mega Pharma | 11 | 9.6 |
-| Andreas Struengmann家族 | 投资组合包括德国的 BioNTech 和乌拉圭的 Mega Pharma | 11 | 9.6 |
-| Pankaj Patel | 控制上市公司 Cadila Healthcare。该公司现在生产治疗 Covid-19 的药物，例如来自吉利德的 Remdesivir。其 Covid-19 疫苗 ZyCoV-D 正在进行临床试验。 | 5 | 2.9 |
-| Patrick Soon-Shiong | ImmunityBio ，入选美国联邦政府的“曲速行动”，以帮助快速开发 Covid-19 疫苗。 | 7.5 | 6.4 |
-
-
-这17位都是“疫苗经济”的巨大受益者，在疫苗灾难随时爆发的未来，绞刑架上一个都不能少！
-
-参考数据：
-
-[COVID vaccines create 9 new billionaires with combined wealth greater than cost of vaccinating world’s poorest countries](https://www.oxfam.org/en/press-releases/covid-vaccines-create-9-new-billionaires-combined-wealth-greater-cost-vaccinating)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+**编译 发布：意大利达芬奇农场 Roma**
 
  
 

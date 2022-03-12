@@ -15,110 +15,110 @@
 
 ---
 
-### [联合国：乌克兰战争伤害进口粮食的贫穷国家](/content/gnews/1/README.md)
+### [俄罗斯如何招募雇佣军在乌克兰作战](/content/gnews/1/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|滴滴出行暂停香港上市计划，股价爆跌，投资者损失惨重](/content/gnews/2/README.md)
+### [联合国：乌克兰战争伤害进口粮食的贫穷国家](/content/gnews/2/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [有声|滴滴出行暂停香港上市计划，股价爆跌，投资者损失惨重](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [有声|欧盟领导人一致同意乌克兰加盟请求](/content/gnews/3/README.md)
+### [有声|欧盟领导人一致同意乌克兰加盟请求](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [上海强行封锁上百小区 当地民众怨声载道](/content/gnews/4/README.md)
+### [上海强行封锁上百小区 当地民众怨声载道](/content/gnews/5/README.md)
  ` 日本東京方舟農場`
 
-### [习近平追求极致的权力 中共将挑起能源战 意图打垮世界经济 借机侵占台湾](/content/gnews/5/README.md)
+### [习近平追求极致的权力 中共将挑起能源战 意图打垮世界经济 借机侵占台湾](/content/gnews/6/README.md)
  ` 焦點20分`
 
-### [新中国联邦成功的从乌克兰境内救助98个孩子以及福利机构的老师](/content/gnews/6/README.md)
+### [新中国联邦成功的从乌克兰境内救助98个孩子以及福利机构的老师](/content/gnews/7/README.md)
  ` 焦點20分`
 
-### [中东能源战 俄乌战争升级 攻台，粮食危机 关键时刻有Hpay 就有救命钱](/content/gnews/7/README.md)
+### [中东能源战 俄乌战争升级 攻台，粮食危机 关键时刻有Hpay 就有救命钱](/content/gnews/8/README.md)
  ` 焦點20分`
 
-### [DC每日热点0312](/content/gnews/8/README.md)
+### [DC每日热点0312](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2022年3月11日 《文贵大直播》全文字版](/content/gnews/9/README.md)
+### [2022年3月11日 《文贵大直播》全文字版](/content/gnews/10/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [3/12/2022文贵盖特：在香港踩着尸体找尸体；共产党还鼓励中国人去乌克兰给俄罗斯当炮灰，跟着共产党、走进火葬场，信不信由你](/content/gnews/10/README.md)
+### [3/12/2022文贵盖特：在香港踩着尸体找尸体；共产党还鼓励中国人去乌克兰给俄罗斯当炮灰，跟着共产党、走进火葬场，信不信由你](/content/gnews/11/README.md)
  ` 秘密翻译组-北美组`
 
-### [福奇的瑞德西韦五天治疗方案的死亡率惊人](/content/gnews/11/README.md)
+### [福奇的瑞德西韦五天治疗方案的死亡率惊人](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [全球科技公司正争相招聘乌克兰高科技人才](/content/gnews/12/README.md)
+### [全球科技公司正争相招聘乌克兰高科技人才](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国公司在俄罗斯面临资产被扣押的风险](/content/gnews/13/README.md)
+### [美国公司在俄罗斯面临资产被扣押的风险](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国制裁更多的俄罗斯政治家和寡头](/content/gnews/14/README.md)
+### [美国制裁更多的俄罗斯政治家和寡头](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [八成加拿大人认为疫情极大扰乱了生活](/content/gnews/15/README.md)
+### [八成加拿大人认为疫情极大扰乱了生活](/content/gnews/16/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [俄罗斯-乌克兰战争，什么是普京的打法？](/content/gnews/16/README.md)
+### [俄罗斯-乌克兰战争，什么是普京的打法？](/content/gnews/17/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [俄罗斯占据扎波罗热核电站，核监测数据停止——IAEA](/content/gnews/17/README.md)
+### [俄罗斯占据扎波罗热核电站，核监测数据停止——IAEA](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌克兰大救援 3.11.2022 中共的假恶丑逃和新中国联邦人的真善美勇形成鲜明对照](/content/gnews/18/README.md)
+### [乌克兰大救援 3.11.2022 中共的假恶丑逃和新中国联邦人的真善美勇形成鲜明对照](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
 
-### [文贵直播精要 2022/03/11](/content/gnews/19/README.md)
+### [文贵直播精要 2022/03/11](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年3月12日早](/content/gnews/20/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年3月12日早](/content/gnews/21/README.md)
  ` 纽约香草山MOS01`
 
-### [【转】截至3.12 俄乌战事汇总（2）](/content/gnews/21/README.md)
+### [【转】截至3.12 俄乌战事汇总（2）](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022/03/12 英喜时事速递](/content/gnews/22/README.md)
+### [2022/03/12 英喜时事速递](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西班牙全科医生发现注射了第三剂新冠疫苗之后，在颈部和腋部出现大量腺病](/content/gnews/23/README.md)
+### [西班牙全科医生发现注射了第三剂新冠疫苗之后，在颈部和腋部出现大量腺病](/content/gnews/24/README.md)
  ` xiaobaige`
 
-### [记录战友的辛苦](/content/gnews/24/README.md)
+### [记录战友的辛苦](/content/gnews/25/README.md)
  ` 纽约香草山MOS02`
 
-### [俄罗斯威胁要攻击北约运往乌克兰的武器](/content/gnews/25/README.md)
+### [俄罗斯威胁要攻击北约运往乌克兰的武器](/content/gnews/26/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [COVID病毒疫苗创造亿万富翁 中共国6人上榜](/content/gnews/26/README.md)
+### [COVID病毒疫苗创造亿万富翁 中共国6人上榜](/content/gnews/27/README.md)
  ` 温哥华扬帆农场`
 
-### [泽伦斯基向俄罗斯妈妈喊话：不要送自己儿子参战](/content/gnews/27/README.md)
+### [泽伦斯基向俄罗斯妈妈喊话：不要送自己儿子参战](/content/gnews/28/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [西班牙基金会的塔尼娅女士采访在乌克兰救援前线的Nicole战友](/content/gnews/28/README.md)
+### [西班牙基金会的塔尼娅女士采访在乌克兰救援前线的Nicole战友](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [德意志银行逆潮流而动与俄保持联系](/content/gnews/29/README.md)
+### [德意志银行逆潮流而动与俄保持联系](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登排除第三次世界大战可能性并对与普京关系密切人员实施新制裁](/content/gnews/30/README.md)
+### [拜登排除第三次世界大战可能性并对与普京关系密切人员实施新制裁](/content/gnews/31/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [乌克兰称俄军炮击破坏了尼古拉耶夫癌症医院及住宅楼](/content/gnews/31/README.md)
+### [乌克兰称俄军炮击破坏了尼古拉耶夫癌症医院及住宅楼](/content/gnews/32/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [吉林农业科技学校瞒报疫情 导致新冠群聚性感染](/content/gnews/32/README.md)
+### [吉林农业科技学校瞒报疫情 导致新冠群聚性感染](/content/gnews/33/README.md)
  ` 日本东京方舟农场`
 
-### [入侵乌克兰导致俄罗斯经济濒临绝境](/content/gnews/33/README.md)
+### [入侵乌克兰导致俄罗斯经济濒临绝境](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共病毒疫苗被错误的数据和宣传所掩盖](/content/gnews/34/README.md)
+### [中共病毒疫苗被错误的数据和宣传所掩盖](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [泽连斯基：乌克兰处于“转折点”俄罗斯人在基辅附近重新集结](/content/gnews/35/README.md)
- ` 【🌹玫瑰新闻】`
 
 ### [文贵视角3.12：同胞快醒来 从此要站着活 我们砸碎这铁锁](/content/gnews/36/README.md)
  ` 秘密翻译组-原创组`
