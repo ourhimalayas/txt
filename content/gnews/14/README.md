@@ -2,102 +2,88 @@
 ---
 
 
-## 电子游戏界陆续展开对俄罗斯区的封锁
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2152296/)
+## 台海两岸关系的概括追述
+` 历史组` [轉載自GNews](https://gnews.org/zh-hans/2152305/)
 
-作者 台湾宝岛农场 Y.M.O
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-190.jpeg)
-乌克兰副总理Mykhailo Fedorov于3月2日在推特上发表了一封公开信，他呼吁所有的游戏厂商暂时封禁来自俄罗斯和白俄罗斯玩家的账号，禁止这些国家的电竞选手参与国际电竞比赛，并且取消在这些国家境内举办的所有国际赛事，他相信通过这些行动能让俄罗斯公民积极主动地制止对乌克兰的军事侵略。并且在3月3日于推特上点名腾讯、Epic、任天堂、R星、科乐美、万代南梦宫、动视暴雪等多家游戏厂商，要求他们在俄罗斯禁售游戏。
-
-3月4日EA发表声明，表示除了在相关FIFA系列游戏中移除俄罗斯国家队及俱乐部，其它所有游戏和相关内容在俄罗斯和白俄罗斯的销售业务都将停止。并且将与相关游戏平台一起合作从它们的商店中删除EA的游戏并阻止在该地区销售新的游戏内容。
-
-3月4日，微软宣布暂停在俄罗斯所有的服务和销售，可能包括 XBOX 和所有游戏服务。与此同时，动视暴雪也宣布暂停在俄罗斯的游戏销售，并将竭尽所能地帮助受战争影响的员工及其家人。 另外虽然我没有看到贝塞斯达的回应，但由于贝塞斯达已经被微软收购，所以贝塞斯达和微软态度保持一致的可能性不小。
-
-3月6日，Epic通过推特宣布作为对俄罗斯入侵乌克兰的回应，他们将停止在俄罗斯的游戏销售业务。
-
-3月7日，育碧宣布鉴于乌克兰正在发生的悲剧，决定暂停在俄罗斯的游戏销售业务。
-
-3月10日，索尼宣布中止在俄罗斯的所有软件和硬件销售，呼吁乌克兰和平并捐款200万美金。
-
-任天堂发言人表示任天堂已停止所有在俄罗斯的软硬件销售服务，并表示现在物流和支付方面存在挑战，无法处理卢布付款，所以关闭俄罗斯eShop。
-
-虽然不是所有的游戏厂商都发表封锁俄罗斯地区的声明，但如果从平台来看，主机端索尼、微软、任天堂都已经宣布主动禁止或者事实上无法提供服务，PC端Epic商城已经宣布，EA自家的origin平台也已经封锁。而Steam平台虽然没有主动封锁，但由于其它金融制裁的关系俄罗斯地区玩家的所有数位支付通道事实上已经被切断。手机端我不了解但在主机端和PC端上可以说所有平台已经全灭。在这些对俄罗斯的封锁声明当中最引人注意的一条其实来自波兰厂商 CD PROJEKT RED。因为在它发出声明之后产生了一些不想看到的后续。
-
-CD PROJEKT RED在3月3日宣布将停止向俄罗斯与白俄罗斯销售旗下的游戏。CD PROJEKT RED表示他们深知与战争无关的俄罗斯与白俄罗斯玩家将会受到这一决定的影响，但他们希望通过这一行动，引起各界对这一事件的关注。然而在CD PROJEKT RED公告之后《巫师3：狂猎》、《赛博朋克2077》等CDPR旗下游戏steam平台页面出现了大量差评，并且几乎都是中文。
-
-首先封锁的是俄罗斯与白俄罗斯地区，按理说如果出现差评应该都是俄文才对，steam并没有封锁俄区即使俄罗斯玩家不能购买游戏发评论还是做得到的，中文玩家如此悍跳真是让人一头雾水。另外这些中文评论是不是由中共水军所发目前并没有办法确定，不过以我个人的观察来看墙内的电子游戏玩家最看重的是自己能不能玩到心仪的游戏，俄罗斯区玩家能不能玩到其实并不关心。别看俄乌局势愈演愈烈，其实对他们来说关注度可能还不如steam域名被中共拉黑来得高。因此这些中文差评我更倾向于这是来自集体意志的需求。
-
-这里还是要补充一下墙内玩家对CD PROJEKT RED的一些看法。CD PROJEKT RED在墙内有一个外号叫作“波兰蠢驴”。指的是他们制作的dlc价格并不昂贵，内容却十分丰富。特别是以《巫师3》为代表，一个dlc的体量甚至和一个新游戏没什么区别。这样超高的性价比以至于都在调侃他们这么卖游戏会不会亏本，至少在墙内玩家圈子里这个外号算是比较褒义的。
-
-但问题也就出在这里。世界范围内的民众并不会将一般玩家和中共水军或小粉红区别开来，他们会认为这都是中国人的评论。对自己有利的时候调侃为波兰蠢驴，对俄爹不利的时候就发出各种指责。即使我们不谈论俄罗斯，波兰和乌克兰可是接壤的，CD PROJEKT RED作为一个波兰游戏厂商就算不知道全部真相那了解的东西也比这些中文差评多吧。或者说这些发出中文差评的人在身体以及精神上有哪一点做到了接壤呢？包括育碧在基辅也有工作室，很多游戏厂商都有来自乌克兰的员工。这样的声明对乌克兰员工也是一种支持与关怀，不过这些中文键盘侠们到最后能不能得到支持与关怀就不好说了。
-
-不论这些中文差评是谁发出，它们的出现本身对于中国人的形象就是很大的损害。这也就像文贵先生一直说的那样，比起灭共和消灭中共病毒及揭露中共病毒疫苗真相来说，更困难的是拯救墙内被荼毒百年的人心。其实对于中共的参与程度乌克兰心里也清楚，乌克兰副总理Mykhailo Fedorov的推特中特别点到了腾讯的名字。要知道腾讯既没有站得住的电子游戏平台，也没有什么经典的电子游戏作品，唯一上得了台面的身份就是英雄联盟的中共国代理商。这么一堆世界知名游戏厂商中混杂着腾讯的名字，给人感觉就像是打草惊蛇一样，借由这些游戏厂商的反应让世界看清楚这各方势力的身份和目的。
-
-新闻链接
-
-乌克兰副总理Mykhailo Fedorov推特
+作者：香草山写作组—静言
 
 
-
-> [@Xbox](https://twitter.com/Xbox?ref_src=twsrc%5Etfw) [@PlayStation](https://twitter.com/PlayStation?ref_src=twsrc%5Etfw)
-> 
-> You are definitely aware of what is happening in Ukraine right now. Russia declare war not for Ukraine but for all civilized world. If you support human values, you should live the Russian market! [pic.twitter.com/tnQr13BsSv](https://t.co/tnQr13BsSv)
-> — Mykhailo Fedorov (@FedorovMykhailo) [March 2, 2022](https://twitter.com/FedorovMykhailo/status/1498945221337534469?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-79.png)
 
 
+随着俄罗斯炮火入侵乌克兰，台海两岸的局势也日趋紧张，习近平与普京双头猎鹰联盟挑动着世界脉搏。到底习是否攻台，已是亿万人心中的疑问。台海两岸之间到底又着怎样的历史关系？
+
+根据专家研究，两岸关系的历史大致可以分为四个阶段：
+
+第一阶段：从史前时期到1620年代荷兰人占领台湾；
+
+第二阶段：荷西、明郑、清朝、日本统治台湾到1945年中华民国接管台湾；
+
+第三阶段：1949年中华民国中央政府撤离中国大陆后形成的两岸军事对峙阶段；
+
+第四阶段：80年代以来两岸结束军事对峙，关系缓和发展的阶段。
+
+也有学者将1949年后两岸关系史划分为軍事对峙、法统争执、交流缓和、意识对立、互惠协商五个時期。而现在不得不加上武力对抗。
+
+古代历史太悠久，暂且不论。从名词即可大概看出，自45年国民政府接管后，台湾即以中华民国为国号建立独立国家，大陆则被中共占领管辖。自此开始了台海两岸对峙，缓和，又驱僵持的局面。
+
+1949年3月15日，中共新华社发表题为《中国人民一定要解放台湾》的社论，第一次提出“解放台湾”的口号。中华民国政府则提出“反攻大陆”、“消灭共匪”、“解救通报”等口号对应中共，两岸进入隔绝冷战阶段。
+
+1979年1月1日，大陆全国人民代表大会常务委员会发出《告台湾同胞书》，以“和平统一、一国两制”取代原来的“解放台湾”，对台湾的态度从强硬趋向緩和。
+
+1980年6月9日，蒋经国提出“三民主义统一中国”。
+
+1981年第一家台资企业在福州落户，福建开放4个口岸为台船停泊点和台胞接待站，开创了改革开放后两岸贸易和人员往来之先河。台湾开放民众到大陆探亲，两岸民间经贸活动迅速升温。1989年6月，台湾地区正式开放大陆地区物品间接输入。
+
+1991年，台湾海基会与大陆海协会相继投入运作。
+
+1993年4月，两岸在九二共识的基础上举行汪辜会谈。
+
+1995年1月，时任中共中央总书记的江泽民，提出发展两岸关系、推进中国和平统一进程的八项主张。
+
+1999年5月，李登辉总统提出两国论，主张台湾和中国大陆的的关系是“国家与国家”。
+
+2000年民进党首次担任中华民国执政党，陈水扁在就职典礼上提出只要中共无意对台动武，本人保证在任期之內，不会宣布独立，不会更改国号等。
+
+2008年3月22日，马英九赢得中华民国总统选举，5月20日中国国民党重新执政，主张不统、不独、不武。两岸关系在“九二共识”的基础上不断发展。
+
+2014年，台湾太阳花学运遏制了两岸经济一体化的势头。民进党提出，台湾的前途由2300万人民共同決定。
+
+2015年11月7日，海峡两岸最高领导人习近平与马英九在新加坡会面。这是海峽两岸自1949年政治分立以来66年间，双方最高领导人的首次会晤。
+
+2016年5月20日民主党籍的蔡英文就任中华民国总统不承认九二共识。
+
+习近平在2019年1月2日的“《告台湾同胞书》发表40周年纪念会”时，重申海峡两岸同属一个中国，共同努力谋求国家统一的九二共识。蔡英文则表示拒绝九二共识，坚决反对一国两制。
+
+自2019年3月以来，中国人民解放军不断在台海地区进行演练，共机不断升空入台领空挑衅。
+
+至2022年2月24日俄罗斯入侵乌克兰，中共也已经到了威胁攻台的高潮阶段。新中国联播创始人郭文贵先生一直呼吁，台海危机不可避免，至此已是箭在弦上 ，一触即发。
+
+参考来源：
+
+1.[台湾海峡两岸关系史](https://zh.m.wikipedia.org/wiki/臺灣海峽兩岸關係史)
+
+2.书籍《海峡两岸关系史》 （张春英著）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-41.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-79.png)
 
-> [@EpicGames](https://twitter.com/EpicGames?ref_src=twsrc%5Etfw), [@Nintendo](https://twitter.com/Nintendo?ref_src=twsrc%5Etfw), [@RockstarGames](https://twitter.com/RockstarGames?ref_src=twsrc%5Etfw), [@2K](https://twitter.com/2K?ref_src=twsrc%5Etfw), [@MoontonGames](https://twitter.com/MoontonGames?ref_src=twsrc%5Etfw), [@BandaiNamcoUS](https://twitter.com/BandaiNamcoUS?ref_src=twsrc%5Etfw), [@PdxInteractive](https://twitter.com/PdxInteractive?ref_src=twsrc%5Etfw), [@ATVI\_AB](https://twitter.com/ATVI_AB?ref_src=twsrc%5Etfw), [@Konami](https://twitter.com/Konami?ref_src=twsrc%5Etfw), [@bethesda](https://twitter.com/bethesda?ref_src=twsrc%5Etfw), [@TencentGames](https://twitter.com/TencentGames?ref_src=twsrc%5Etfw), [@supercell](https://twitter.com/supercell?ref_src=twsrc%5Etfw) russia showed true face. It doesn’t have any respect for the principles and humanity. Stop this by halting your games in russia!
-> — Mykhailo Fedorov (@FedorovMykhailo) [March 3, 2022](https://twitter.com/FedorovMykhailo/status/1499307028430401536?ref_src=twsrc%5Etfw)
-
-
-
-微软声明
-
-[https://blogs.microsoft.com/on-the-issues/2022/03/04/microsoft-suspends-russia-sales-ukraine-conflict/](https://blogs.microsoft.com/on-the-issues/2022/03/04/microsoft-suspends-russia-sales-ukraine-conflict/)
-
-EA声明
-
-[https://www.ea.com/news/update-on-electronic-arts-titles-in-russia-and-belarus](https://www.ea.com/news/update-on-electronic-arts-titles-in-russia-and-belarus)
-
-育碧声明
-
-[https://news.ubisoft.com/en-us/article/2dkkIG51BCP24JwGGvDry9/how-ubisoft-is-supporting-our-teams-and-the-people-of-ukraine](https://news.ubisoft.com/en-us/article/2dkkIG51BCP24JwGGvDry9/how-ubisoft-is-supporting-our-teams-and-the-people-of-ukraine)
-
-索尼声明
-
-
-
-> [pic.twitter.com/1KV95QiFHN](https://t.co/1KV95QiFHN)
-> — PlayStation (@PlayStation) [March 9, 2022](https://twitter.com/PlayStation/status/1501689329730478081?ref_src=twsrc%5Etfw)
-
-
-
-Epic声明
-
-
-
-> Epic is stopping commerce with Russia in our games in response to its invasion of Ukraine. We’re not blocking access for the same reason other communication tools remain online: the free world should keep all lines of dialogue open.
-> — Epic Games Newsroom (@EpicNewsroom) [March 5, 2022](https://twitter.com/EpicNewsroom/status/1500236775448588295?ref_src=twsrc%5Etfw)
-
-
-
-动视暴雪声明
-
-[https://activisionblizzard.com/newsroom/2022/03/supporting-the-ukrainian-people](https://activisionblizzard.com/newsroom/2022/03/supporting-the-ukrainian-people)
-
-CD PROJEKT RED声明
-
-[https://en.cdprojektred.com/news/important-update-2/](https://en.cdprojektred.com/news/important-update-2/)
-
-* * *
-
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
  
 

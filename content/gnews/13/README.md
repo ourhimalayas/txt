@@ -2,44 +2,35 @@
 ---
 
 
-## 泽伦斯基向俄罗斯妈妈喊话：不要送自己儿子参战
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2152300/)
+## 有声|乌克兰数学奥林匹克亚军在哈尔科夫被俄军炸死
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2152309/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image011-2.jpg)乌克兰总泽伦斯基。美联社
-乌克兰总统泽伦斯基在3月11日发布最新影片，呼吁俄罗斯母亲不要送自己儿子上战场攻打乌克兰，并对他们的行踪保持警惕。
-
-泽伦斯基在Telegram发布的影片中表示：“我想再度跟俄国母亲们喊话，尤其是被征召入伍者的母亲，不要把你们的孩子送到国外参战。” 他说，“请确认你们儿子的行踪。你们对儿子可能被送上战场攻打乌克兰，哪怕仅有一点怀疑，请立刻行动”阻止他赔上性命或遭到俘虏。
-
-他也说：“乌克兰从未想要这场恐怖的战争。尽管乌克兰不想要战争，我们仍必须捍卫自己。”
-
-俄罗斯9日首度承认派出征召入伍的军人到乌克兰参战，并且，宣布有些人已被乌军俘虏。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+Yuliia Zdanovska（尤妮亚·兹丹诺斯卡），21岁，乌克兰人，2017年代表乌克兰参加欧洲女子数学奥林匹克竞赛，获得银牌。她在哈尔科夫做志愿者工作，在俄军一次轰炸事件中丧生。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/182119.png)
+在过去的六个月里，她是乌克兰学习中心的一员，向新一代教授计算机科学。对于她的丧生，国际数学界正在哀悼。尽管俄罗斯对哈尔科夫的学校、住宅楼和其他民用目标进行无情炮击，但她拒绝离开，她告诉她“为了乌克兰教育”但同时，她将“留在哈尔科夫，直到获胜”。
 
 
 
-[【援引连结】](https://www.sydneytoday.com/content-1022438966804004)
+文字版原文：[乌克兰数学奥林匹克亚军在哈尔科夫被俄军炸死](https://gnews.org/zh-hans/2148713/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**推出问题，敲出真相，爆料在路上！**
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**请关注和订阅我们的以下账号：**
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

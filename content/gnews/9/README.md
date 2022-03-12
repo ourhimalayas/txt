@@ -2,67 +2,25 @@
 ---
 
 
-## COVID病毒疫苗创造亿万富翁 中共国6人上榜
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2152315/)
+## 视频|乌克兰反击战 展现西方国家的高科技力量
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2152445/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+在乌克兰抵抗俄罗斯侵略的战争中，西方国家支援的高科技，发挥了重要作用。乌克兰军队利用精准的定位科技，加上先进的高科技武器，在短短的十几天保卫战中，就斩首了四名俄罗斯高级将领。
 
-中共病毒疫苗对于普通人来说，是索命，而对于少数人来说，意味着大发横财！
+目前，美国和西方国家已经向乌克兰提供了超过2万套单兵携带式反坦克武器。其中有美国的标枪反坦克导弹，英国的NLAW反坦克导弹，两者都是坦克、装甲车和油罐车的克星，有效阻碍了侵乌俄军地面部队的快速推进。另外，毒刺飞弹和无人机，加上卫星定位的配合，让俄罗斯战机在乌克兰领空被大量击落，完全失去空中优势，无法形成有效的对地攻击。无论空中还是地面，俄罗斯军队都没有能达成快速推进的目的，让普京希望以闪电战，迅速占领乌克兰的计划破产。
 
-Moderna依靠唯一可商用的Covid-19疫苗销售，从前年亏损7.47亿美元到去年收入122亿美元。不计算股票期权套现，首席执行官斯蒂芬﹒班塞尔去年总收入为1820万美元，比2020年增长了41%。去年底，Moderna董事会批准了班塞尔的金色降落伞，由中共病毒颠覆世界秩序之前2019年的940万美元，提升到价值超过9.26亿美元，提升97.5倍。Moderna总裁斯蒂芬﹒霍格、首席技术官胡安﹒安德烈斯去年分别获得780和660万美元的报酬，分别比前年高出48%和55%。股票期权套现1.659和1.943亿美元。
+在网络基站受到俄罗斯攻击，面临断网之时，乌克兰总统泽连斯基向伊隆·马斯克求救，希望能得到星链的支援。马斯克仅仅花了几小时，就为乌克兰连接好星链，并立即投入使用。星链无需地面基站，完全无惧俄罗斯的断网攻击。乌克兰的互联网络在遭受俄罗斯炮火攻击的14天后，依然保持良好畅通，信息传递完全不受影响。而且，粉碎了俄罗斯企图通过网络控制，来制造舆论和封锁信息的计划。
 
-从COVID疫苗中大发横财的远不止Moderna高管。
+现代战争，其实就是高科技之战、信息之战。
 
-2021年5月20日，人民疫苗联盟（[The People’s Vaccine Alliance](https://peoplesvaccine.org/)）在G20领导人全球健康峰会之前透露，由于垄断COVID疫苗的制药公司正在赚取巨额利润，自COVID大流行开始以来，至少有9人成为新的亿万富翁。这九位新亿万富翁的总净资产为193亿美元。
+发稿：谐趣园
 
-此外，八位现有的亿万富翁，他们在COVID-19疫苗制药公司拥有广泛的投资组合，他们的总财富增加了322亿美元。
-
-人民疫苗联盟列出的9位新疫苗亿万富翁，按他们的净资产顺序是：
-
-1. Moderna首席执行官Stéphane Bancel（43亿美元）
-
-2.BioNTech首席执行官兼联合创始人Ugur Sahin（40亿美元）
-
-3. Moderna创始投资者、免疫学家Timothy Springer（22亿美元）
-
-4.Moderna董事长Noubar Afeyan（19亿美元）
-
-5.制造和包装Moderna疫苗的ROVI董事长JuanLopez-Belmonte（18亿美元）
-
-6.Moderna科学家和创始投资者Robert Langer（16亿美元）
-
-7.中共国[天津康希诺生物](https://www.cansinotech.com.cn/)（CanSino Biologics）联合创始人、董事长兼首席科学官朱涛（13亿美元）
-
-8.中共国[天津康希诺生物](https://www.cansinotech.com.cn/)（CanSino Biologics）联合创始人兼高级副总裁邱东旭（12美元）
-
-9.中共国[天津康希诺生物](https://www.cansinotech.com.cn/)（CanSino Biologics）联合创始人兼高级副总裁毛慧华（10亿美元）
-
-财富增长的8位疫苗亿万富翁分别是：
-
-#  
-
-
-| **姓名** | **角色****/****描述** | **2021****（****10****亿美元）** | **2020****（10亿美元）** |
-| --- | --- | --- | --- |
-| 蒋仁生家族 | 中共国[重庆智飞生物制品股份有限公司](http://www.zhifeishengwu.com/)主席 | 24.4 | 7.6 |
-| Cyrus Poonawalla | 印度血清研究所创始人 | 12.7 | 8.2 |
-| 谢炳（Tse Ping） | 中共国[国药控股股份有限公司](https://www.sinopharmholding.com/) | 8.9 | 7.3 |
-| 吴冠江 | 中共国[重庆智飞生物制品股份有限公司](http://www.zhifeishengwu.com/)联合创始人 | 5.1 | 1.8 |
-| Thomas Struengmann家族 | 投资组合包括德国的 BioNTech 和乌拉圭的 Mega Pharma | 11 | 9.6 |
-| Andreas Struengmann家族 | 投资组合包括德国的 BioNTech 和乌拉圭的 Mega Pharma | 11 | 9.6 |
-| Pankaj Patel | 控制上市公司 Cadila Healthcare。该公司现在生产治疗 Covid-19 的药物，例如来自吉利德的 Remdesivir。其 Covid-19 疫苗 ZyCoV-D 正在进行临床试验。 | 5 | 2.9 |
-| Patrick Soon-Shiong | ImmunityBio ，入选美国联邦政府的“曲速行动”，以帮助快速开发 Covid-19 疫苗。 | 7.5 | 6.4 |
-
-
-这17位都是“疫苗经济”的巨大受益者，在疫苗灾难随时爆发的未来，绞刑架上一个都不能少！
-
-参考数据：
-
-[COVID vaccines create 9 new billionaires with combined wealth greater than cost of vaccinating world’s poorest countries](https://www.oxfam.org/en/press-releases/covid-vaccines-create-9-new-billionaires-combined-wealth-greater-cost-vaccinating)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

@@ -2,37 +2,23 @@
 ---
 
 
-## 有声|法治基金营地是乌克兰难民的温暖庇护所
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2152338/)
+## 视频|新中国联邦法治基金乌克兰人道救援信息
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2152479/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-波兰当地时间3月10日晚9点多，由新中国联邦发起，法治基金赞助的乌克兰救援行动小组，在梅迪卡，设置了最大救援营地，为逃难至此的乌克兰难民安置了一个温馨的庇护所。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1233.png)
-外面气温大约零下5度左右，聚集在新中国联邦营地内的基本都是老人，妇女和儿童。从他们身上看不到逃离战区的狼狈和惶恐，大家很镇定，放松，有的在取暖闲聊，有的在吃饭，或休息，也有乌克兰小朋友高兴地帮助新中国联邦的志愿者发放食物，俨然回到自己的家一样。帐篷内有先进的取暖设备，温暖如春，为难民准备了充足的毯子，水果，矿泉水，热汤，巧克力，饼干，和最好的沙滩椅。
+制作：香草山视频部
 
-这里虽然离战区很近，气候严寒，但法治基金的帐篷为逃离家园的乌克兰难民，撑起了一片难得的温暖安宁的空间。
+鉴于目前乌克兰局势日益恶化，新中国联邦和法治基金救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
 
+自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发，前往波兰。此外，新中国联邦和法治基金的第一批救援专机将于近期从波兰出发。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
+求助方式及详细信息请参考以下视频。
 
-文字版原文：[法治基金营地是乌克兰难民的温暖庇护所](https://gnews.org/zh-hans/2148889/)
+发稿：谐趣园
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

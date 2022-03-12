@@ -2,37 +2,44 @@
 ---
 
 
-## 有声|难民营里的钢琴曲
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2152283/)
+## 泽伦斯基向俄罗斯妈妈喊话：不要送自己儿子参战
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2152300/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间3月9日，据前线回传的消息显示，地处乌克兰和波兰边境的米蒂卡难民营，在夜幕时分传出了美妙的钢琴曲，这也为身处战争阴影和痛苦中的人们送去了心灵的抚慰。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-8.jpeg)
-战地记者Nicole报道，每天傍晚，来自德国的音乐家达维德·马特洛会在难民营中一架破旧的钢琴前为大家演奏乐曲。此时，乌克兰边境的气候依然严寒，逃难的母亲们带着自己的孩子坐在营地的篝火前取暖，悦耳的钢琴曲交织在不时飘落的雪花中，给那些故土被毁、亲人离散又饱受战争摧残的难民们带来少许的安慰。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image011-2.jpg)乌克兰总泽伦斯基。美联社
+乌克兰总统泽伦斯基在3月11日发布最新影片，呼吁俄罗斯母亲不要送自己儿子上战场攻打乌克兰，并对他们的行踪保持警惕。
 
-当Nicole向马特洛介绍我们这支新中国联邦和法治基金的救援团队时，马特洛特意为所有法治基金的捐款者送上了一首名为“在彩虹之上玩耍”的曲子，用以感谢所有捐款者的爱心和慷慨。
+泽伦斯基在Telegram发布的影片中表示：“我想再度跟俄国母亲们喊话，尤其是被征召入伍者的母亲，不要把你们的孩子送到国外参战。” 他说，“请确认你们儿子的行踪。你们对儿子可能被送上战场攻打乌克兰，哪怕仅有一点怀疑，请立刻行动”阻止他赔上性命或遭到俘虏。
+
+他也说：“乌克兰从未想要这场恐怖的战争。尽管乌克兰不想要战争，我们仍必须捍卫自己。”
+
+俄罗斯9日首度承认派出征召入伍的军人到乌克兰参战，并且，宣布有些人已被乌军俘虏。
 
 
 
-文字版原文：[难民营里的钢琴曲](https://gnews.org/zh-hans/2141382/)
+[【援引连结】](https://www.sydneytoday.com/content-1022438966804004)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**推出问题，敲出真相，爆料在路上！**
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+**请关注和订阅我们的以下账号：**
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

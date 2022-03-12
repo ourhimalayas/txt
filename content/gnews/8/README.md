@@ -2,25 +2,35 @@
 ---
 
 
-## 视频|数字货币最新进展
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2152319/)
+## MV版Hcoin To the Moon上线93天第31次位列匈牙利iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2152468/)
 
-制作：香草山视频部
+3/12/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线93天第31次位列匈牙利iTunes热门音乐视频榜榜首，第45次位列前三名
 
-3月9日，美国总统拜登公布了一项行政命令，责成联邦机构研究加密货币，并为新生市场制定政策建议。
+* * *
 
-拜登在声明中宣布了第一个”全政府”的联邦政策，通过指导政府机构采取一系列围绕金融稳定、非法金融、金融包容性和投资者保护的措施，来”应对加密货币的风险并利用其潜在利益”。 该命令指示美国政府”紧急”研究和开发潜在的美国中央银行数字货币，并要求金融稳定监督委员会识别和减轻加密货币带来的任何系统性金融风险，制定适当的政策建议以解决任何监管漏洞。同时指示商务部建立一个框架，以帮助政府机构将数字资产技术纳入其政策、操作方法和研究与开发。
+[【PDF 下载】Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-同时，泰国内阁8日放宽了对数字资产投资的税收规定。泰财政部长表示，新规则将允许交易者用数字货币投资的税收收益来抵消年度损失，并免除授权数字货币交易 7% 的增值税。
+* * *
 
-而在实际应用中，自俄乌战争爆发以来，乌克兰的一些军备供应商筹集了价值超过6000万美元的数字货币，并将其中一些资金用于燃料、食品和其他军备的购买。乌克兰数字化转型部长兼副总理博尼雅科夫认为，数字货币是一种比银行转账更灵活、更便宜的工具。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_102.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
 
-发稿：谐趣园
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+[【PDF 下载】Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-12-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
