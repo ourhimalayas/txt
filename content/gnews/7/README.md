@@ -2,23 +2,29 @@
 ---
 
 
-## 救援乌克兰98个孩子
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148010/)
+## 樱花FM|日美欧被认定为“不友好国家” 卢布可以偿还债务
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2148154/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+音频：东京樱花团/战友520
 
-*发布：陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/日美欧被认定为不友好国家-卢布可以偿还债务.png)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据塔斯社报道，俄罗斯政府已将因俄罗斯入侵乌克兰而对俄罗斯实施制裁的国家和地区列为“不友好国家”，并于7日公布名单。日本也被包括在内，原因是与欧洲和美国对俄罗斯的制裁同一口径。
+
+“不友好国家”还包括美国、英国、欧盟（EU）成员国，以及加拿大、澳大利亚、新加坡和台湾。
+
+不友好国家的指定基于总统指令。接受来自不友好国家或地区公司投资的企业，除了需要得到俄罗斯政府的许可才能签订合同外，俄罗斯债务人，包括政府、市政当局和企业，对于该国家和地区的债权人将能够以俄罗斯货币卢布偿还债务。
+
+文字版原文：
 
 
+| [日美欧被认定为“不友好国家” 卢布可以偿还债务](https://gnews.org/zh-hans/2123369/) |   |
+| --- | --- |
 
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

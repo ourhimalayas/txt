@@ -2,31 +2,23 @@
 ---
 
 
-## 樱花FM|中共国华为协助俄罗斯对抗网络攻击
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2148006/)
+## 到底是唱给谁听我们是救命
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148153/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/中共国华为协助俄罗斯对抗网络攻击.png)
-自俄罗斯发起对乌克兰军事进攻以来，俄罗斯不断遭受来自全世界的网络攻击。使其相关主要政府机构和媒体的网站无法正常运行。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-据相关报道，中共国电信巨头华为公司表示协助俄罗斯提升互联网网络环境以及提供相关技术来对抗来自全世界的网络攻击。
+*发布：陶子*
 
-据相关报道称，在英国的华为公司正在为提高普京的影响力而努力。为了应对国际骇客的网络攻击，正在改进俄罗斯互联网的网络环境。特别是在俄罗斯的媒体网站遭受国际骇客团体匿名者的攻击，网站内容被修改了后，华为在俄罗斯的五个研究中心的相关人员都参与到协助俄罗斯对抗来自全球的网络攻击战中。
-
-华为也表示过通过俄罗斯的这五个研究中心来培养五万技术专家，领域涉及网络安全，人工智能，云计算，和人脸识别等。
-
-如果美国发现华为协助俄罗斯，将会受到严重的制裁。所以华为的这些相关报道内容在中国国内网站报道不久就被删除了。
-
-文字版原文：
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 
-| [中共国华为协助俄罗斯对抗网络攻击](https://gnews.org/zh-hans/2121038/) |   |
-| --- | --- |
 
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,22 @@
 ---
 
 
-## 夜幕里的新中国联邦驻波兰救援营地
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2147087/)
+## 新帐篷建成 国际红十字会与NFSC对接救援工作
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2147281/)
 
-整理、编辑：Candy
-图片来源：玫瑰圆（网名）、Nicole、煤油灯（网名）
+撰稿：冰糖葫芦喵
+3月11日晚，新中国联邦与国际红十字会对接工作（图片来自：NFSC新闻）
+据新中国联邦法制基金救援前线报道，**3月11日晚间，新中国联邦（NFSC）救援团队与国际红十字会在波兰梅迪卡难民营，对接妇女儿童接待工作。**
 
-这是新中国联邦和法治基金驻波兰救援乌克兰难民的营地夜间的景象。如果没有俄乌战争，该是多么恬静美好的夜晚。
-![Image](https://media.discordapp.net/attachments/950448401529577502/951911242845536327/image.png?width=721&amp;height=406)小帐篷（50平米）里人影绰绰![Image](https://media.discordapp.net/attachments/950448401529577502/951913050821263421/image.png?width=721&amp;height=406)新建的200多平米迎接难民的大棚wwawaiwai’gwai’guwai’guawai’guan外观![Image](https://media.discordapp.net/attachments/950448401529577502/951913129376366703/image.png?width=721&amp;height=406)![Image](https://media.discordapp.net/attachments/950448401529577502/951913555626692648/image.png?width=721&amp;height=406)![Image](https://images-ext-1.discordapp.net/external/cBBQ-I5NrW-Csoz6whQJvHCaSLZD-0W8Z76P82Trvxw/https/media.discordapp.net/attachments/950448401529577502/951913487746084895/image.png?width=721&amp;height=406)棚内灯火通明，电力来源于发电机，都是由法治基金提供的资金yyuyuayuanyuan’zyuan’zhyuan’zhu援助。![Image](https://media.discordapp.net/attachments/950448401529577502/951924668909109268/image.png?width=721&amp;height=406)新大棚迎来的第一批妇女儿童难民：虽然妈妈在讲电话，可能在联络相关人员，但从孩子们的神情看，他们没有受到饥饿和寒冷的威胁，身体是安全的、舒服的。
-希望战争早日结束，乌克兰人民能早日结束因战争带来的灾难，重新过上往日的美好生活！
+**NFSC搭建的最新的搭帐篷今晚正式开放，负责接待国际红十字会从梅迪卡边境进来的乌克兰难民。**
 
-发布：Candy
+据报道，NFSC救援人员明道先生对红十字会工作人员说，这**是NFSC战友们第一次在战区做营救工作。**红十字会工作员不敢相信的说，**NFSC做的太好了。他们还钦佩地说，你们新中国联邦法制基金竟然有这么雄厚的财力准备这么好的设施。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/完工的帐篷.png)新中国联邦搭建的豪华帐篷（图片来自：NFSC新闻）
+据NFSC新闻前线消息，所有在现场的人员都知道NFSC搭建的帐篷是最好的。**那些年迈的和特别需要照顾的难民，都是第一时间送往NFSC搭建好的新帐蓬中。**
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+截至发稿，当地时间**3月12日凌晨消息，帐篷没有关门，战友们救人也没有停止，**陆陆续续又更多难民被送到NFSC的新帐篷中。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/完工的帐篷2.png)忙碌的现场战友（图片来自：NFSC新闻)
+
 
  
 

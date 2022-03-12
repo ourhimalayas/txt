@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦在乌克兰的人道大救援
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2147993/)
+## 音乐是打开人与人、人与神之间的密码和钥匙
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148134/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
