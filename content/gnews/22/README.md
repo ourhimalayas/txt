@@ -2,26 +2,53 @@
 ---
 
 
-## 樱花时政┃中共国与俄罗斯联手绕开制裁，俄石油销售从未停止
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2149616/)
+## 勇气与救援-正道主义将成为新人类典范
+` 历史组` [轉載自GNews](https://gnews.org/zh-hans/2149726/)
 
-撰稿：东京樱花团/ Calvin
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6-3.jpg)[图片来源](https://www.reuters.com/business/energy/exclusive-russias-surgut-allows-oil-sales-china-without-credit-guarantees-2022-03-11/)
-路透社新加坡3月11日电——三名知情人士表示，俄罗斯生产商Surgutneftegaz允许中共国买家在不提供信用证（LC）担保的情况下获得石油，以绕过西方的制裁。条款的变化允许Surgutneftegaz继续将ESPO Blend原油从俄罗斯远东的科兹米诺港出售给世界顶级石油进口国中共国。
+作者：纽约香草山农场教育部-马克文、朱丽叶
 
-4月份，俄罗斯ESPO原油出口量将达到每天75.4万桶，是中共国最大的现货原油来源。在2月24日俄罗斯开始入侵乌克兰后，全球市场的油价已升至14年来的最高水平。俄罗斯是世界原油和石油产品总和的最大出口国。
 
-西方对入侵的制裁（俄罗斯称之为“特别军事行动”）导致银行停止为所有来自俄罗斯的石油发放信用证。中共国一再表示反对制裁，称制裁无效，并坚称将与俄罗斯保持正常的经贸交流。消息人士称，为了绕过这些限制，中共国公司正在使用开放式账户进行交易，这是允许客户以延迟付款方式购买商品的交易模式，并要求在货物装载后三天内全额付款。由于事情的敏感性，他们无法命名。目前还不清楚哪些银行参与了其中。而石油出口商Surgut拒绝置评。而信用证允许30天付款，并由银行支持，被视为双方最强大的担保。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-75.png)
 
-消息人士表示，双方被迫为已经交易并将于3月和4月装载的货物找到了解决方案，但没有提供数量的信息。
 
-消息来源：
+2022年2月24日，俄罗斯独裁者普京发动对乌克兰的侵略战争，大军压境逼迫民主国家乌克兰屈服，放弃加入欧盟。乌克兰总统泽连斯基率领人民奋起反抗，绝不屈服大国强权，全球各地大批乌克兰人赶回祖国参加护国战争。泽连斯基成立国际军团，利用媒体、网络技术发动有效的舆论战、信息战，获得美国、欧盟等大多数国家的广泛支持，成功把俄罗斯侵略者拖入沼泽，粉碎了俄军快速占领乌克兰基普美梦。
 
-[EXCLUSIVE Russia’s Surgut works with China to allow oil sales to go on](https://www.reuters.com/business/energy/exclusive-russias-surgut-allows-oil-sales-china-without-credit-guarantees-2022-03-11/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2_copy.jpg)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+新中国联邦创建人郭文贵先生评价说：乌克兰人这次在战争的出色表现给人类奠定了基础，人类缺乏就是正义和勇气。欧洲和俄罗斯强人政治版块将发生变化，今后将是以乌克兰为中心的欧洲，发展新能源中心代替天然气和石油，科技、通信都会以乌克兰为基地。未来的UFO、外太空科技、人才都会涌向乌克兰，因为那里的人正义勇敢。
+
+乌克兰战争爆发后，数百万的儿童、老人、妇女变成了难民，他们的家园被摧毁，他们无家可归。新中国联邦、法制基金第一时间组建国际大救援团队奔赴战区，几天就救出几百个儿童、老师、妇女，并将她们带离战区进入波兰安全接待站，提供免费食宿。随后，救援团队进一步扩大救援区域，在乌克兰与波兰边境梅迪卡建立基地，在没有任何红十字会、其它国家人道救援的状况下， 搭起巨大帐篷、点起了篝火开始接待逃难的人们。
+
+郭文贵先生评价说：在人类历史上第一次出现中国黄皮肤人大规模援救西方白皮肤人，新中国联邦人秉持正道主义、无私的奉献，展现出新人类特质。乌克兰人在战争面前表现出的勇气和依旧保持着民族尊严，表明他们是高素质的人类。
+
+新中国联邦人与乌克兰人在人类最黑暗的时刻，散发出了闪耀光芒，他们成了改变世界的力量，成为新世界新人类的典范。
+
+参考来源：
+
+**[2022年3月9日 文贵大直播：是谁黑掉乌克兰救援邮件官网；是谁暂禁郭先生油管上传视频；什么力量封杀乌克兰救援信息；《铁锁梦》创作及推出后感受](https://gettr.com/streaming/pz1ocoe7cb)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-37.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-76.png)
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

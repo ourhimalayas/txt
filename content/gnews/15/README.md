@@ -2,29 +2,30 @@
 ---
 
 
-## 大直播后记：中国男人可以有很好的形象
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2149753/)
+## 中日财经爆┃德意志银行宣布将退出俄罗斯业务
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2149824/)
 
-整理；HYS、大甜甜
-编辑：朝花夕拾
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-12.png)
-我一看到我们的Eric，听到他声音我就开心。我觉得中国的男人都拥有Eric这样的內在的这种智慧，这个外表和内在的这种不和谐的勇敢，还有这种幽默。中国男人就有救了啊，就是舒服。
+撰稿：东京樱花团/peterwong
 
-中国男人走哪儿都让人不舒服，耷拉着肩，然后不相称的牛仔裤。中国男人穿牛仔裤，我觉着就跟病人跟穿装尸袋没啥两样，我觉得。特别是有人穿的不协调的时候，再穿个所谓的老头鞋，这个所谓的舒服的鞋，耷拉着肩，然后眼睛看人，总看人家的这个膝盖。就中国男人已经不是东亚病夫了，就东亚懦夫，你就无法形容。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/德意志银行宣布将退出俄罗斯业务.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.dw.com%2Fimage%2F44451497_303.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dw.com%2Fzh%2F%25E5%25BE%25B7%25E6%2584%258F%25E5%25BF%2597%25E9%2593%25B6%25E8%25A1%258C%25E6%25B2%25A1%25E6%259C%2589%25E5%2587%25BA%25E8%25B7%25AF%25E5%2590%2597%2Fa-47149256&amp;tbnid=_A8FwWCnPyCnSM&amp;vet=12ahUKEwjv79aPjsD2AhUQNBoKHb1qA50QMygCegUIARCrAQ..i&amp;docid=ZJ5UTOfK01oFQM&amp;w=700&amp;h=394&amp;q=%E5%BE%B7%E6%84%8F%E5%BF%97%E9%93%B6%E8%A1%8C&amp;ved=2ahUKEwjv79aPjsD2AhUQNBoKHb1qA50QMygCegUIARCrAQ)
 
-但是在Eric这里全都没有。 幽默、诙谐、智慧、包容，总能是给你带来无穷无尽的那种遐想。而且这真的是幽默，一点儿也不下三滥。不像那些欺民贼似的，一说就全完蛋了。还有智慧、还有专业、还有特别是中国男人没有的，对世界的认知。今天特别荣幸我们跟Eric再一次主持，由这个秘翻组包场的大直播。今天澄道，跟晓理都是第二次、第三次了，但是封神榜第一次，小伙子，很紧张，不要紧张。但是晓理，我已经领教了，化千斤于无影之中。今天我需要我们的直播，能给战友们带来前线更多的信息。刚才看了我们前线连线，我希望现在我们还继续连线，先说一下，我们人道救援行动的整个情况。
+德国最大金融公司德意志银行3月11日宣布，将逐步退出俄罗斯业务。
 
-资料来源：[2022年3月11日文贵大直播](https://www.gettr.com/streaming/pzg47d4994)
+随着俄罗斯入侵乌克兰的加剧，德意志银行因打算继续开展业务而受到批评。包括美国金融巨头在内的金融界也正在形成退出俄罗斯的势头。
 
-发布：tianzhihuan
+德意志银行在一份声明中表示，“我们正在退出在俄罗斯的现有业务，我们不会开办新业务。”
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+德意志银行股份公司（德语：Deutsche Bank AG；简称德银）是一家跨国银行，总部位于德国法兰克福，并在纽约证券交易所及法兰克福证券交易所上市，由克里斯蒂安·索温任首席首席执行官，保罗·阿赫莱特纳任监事长。
 
+德意志银行股份公司是全世界最大的投资银行之一。全球十大外汇交易商之首，市占率为15.68%，
+
+消息来源:
+
+[ドイツ銀行がロシアから撤退へ…前日に事業継続表明、批判浴び方針転換](https://www.yomiuri.co.jp/economy/20220312-OYT1T50073/)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

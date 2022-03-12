@@ -2,8 +2,8 @@
 ---
 
 
-## 20220311郭文贵大直播 ：喜币的稳定性和固定的发行数字、易用的支付系统，天下无敌
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2149887/)
+## 20220311郭文贵大直播 ：新中国联邦农场未来就是联邦政府驻外使馆的方式存在
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2149964/)
 
 作者：东京樱花团小视频组
 
