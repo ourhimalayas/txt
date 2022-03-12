@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 1:21 AM (UTC)`
+
+ 3月11号：七哥厉害不？⋯你们服不服？…。服不服。 <br/><br/>https://ishare.ifeng.com/c/s/v006aVWvHy8xHpCv1AFw3ZWBdgp0tFKZ-_a6NeAvdylawuIisBWj9Dd4mtz7v--0DkFTRGLrgyMfozxdPJNb-_7m5WBcQ____?spss=np&channelId=&aman=6eh6f5xd96ee2fRc0bFcbcla84Rb0dM3f5Na45z785&gud=604888987K179e8005000B004
+
+---
+
 `@miles 3/12/2022 12:54 AM (UTC)`
 
 【Ukraine Rescue】03/11/22 A local Polish car rental company owner was inspired to join the rescue team after learning that many NFSC & ROLF volunteers were from Canada and the United States. <br/><br/>【乌克兰救援】03/11/22 波兰当地一位汽车租赁公司老板得知很多新中国联邦和法治基金的义工来自加拿大和美国后，受到感召加入救援队伍。<br/><br/>
@@ -126,16 +132,6 @@ Nicole, [Mar 12, 2022 at 4:50 AM]<br/>👆Nicole 刚采访了这两个波兰独�
 
 As our NFSC & ROLF Ukraine Rescue efforts proceeds, we have witnessed so many acts that are simple yet so touching, and so many are expressing their gratitude.  <br/>No one wants a war, all we want to do here is to try our best to save more lives, including our compatriots, regardless of their political stance, even those who may be our adversaries  在我们的救援过程中，我们经历了太多感动，太多的感谢。没有人希望发生战争，我们要做的是努力拯救每一个生命，每一个同胞，即使曾经是我们的对手，我们的敌人。
 ![img](https://media.gettr.com/group26/origin/2022/03/11/20/55e3bb41-45d6-bd2d-bb03-660f53b02fde/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@ddnyc 3/11/2022 5:31 PM (UTC)`
-
- It’s the shoulder for me…@gfashion <br/>www.GFASHION.com
-> `@gfashion 3/11/2022 5:25 PM (UTC)`<br/>The coolest one shoulder turtleneck is 🔛.                                                          Shop Now https://gfashion.com/products/one-shoulder-turtleneck
-![img](https://media.gettr.com/group16/getter/2022/03/11/17/b098ba5a-b07e-0d2d-4443-56189704a5b7/8d5ec36b79d11302fdb1c6681e99f61e.jpg)
 
 ---
 
