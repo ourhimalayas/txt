@@ -2,8 +2,8 @@
 ---
 
 
-## 这首歌是天意，一切荣耀归于上帝
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148119/)
+## 所有中国人都被锁在了一个精神的枷锁上
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148176/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

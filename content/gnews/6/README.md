@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥深情演唱“铁链梦”
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148168/)
+## 只有彻底把共产党灭了，才能砸碎中国人精神上的枷锁
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148200/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

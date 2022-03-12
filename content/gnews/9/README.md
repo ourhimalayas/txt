@@ -2,8 +2,8 @@
 ---
 
 
-## 音乐是打开人与人、人与神之间的密码和钥匙
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148134/)
+## 不尊重女人的国家永远不可能有未来
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2148188/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

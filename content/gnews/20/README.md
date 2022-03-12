@@ -2,57 +2,50 @@
 ---
 
 
-## 美国警告中共政府不要阻碍联合国人权专员在新疆的调查
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2147906/)
+## 乌克兰儿童在俄乌战火中的命运：被杀、被伤或被救
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2147961/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WireAP_7e5985c57c254ddfbb58f5e85ce021e5_16x9_992-1.jpg)联合国人权事务高级专员米歇尔·巴切莱特。图片：Martial Trezzini摄/Keystone /美联社
-摘要翻译：
+**编译和评论：16626，Yacob**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/C82F371C-59BF-455D-B18B-9BE00F33A85E.png)**屏幕截图：**[**https://www.tvanouvelles.ca/2022/03/10/tues-blesses-traumatises-horribles-destins-pour-de-nombreux-enfants-en-ukraine**](https://www.tvanouvelles.ca/2022/03/10/tues-blesses-traumatises-horribles-destins-pour-de-nombreux-enfants-en-ukraine)** ，Jérémy Bernier 和 Olivier Faucher 以及法新社 发表于 2022年3月11日09:00 – 更新 09:00**
+**俄乌战争已造成乌克兰****至少****71 ****名儿童丧生，超过**** 100 ****名儿童受伤**
 
-来源于美国《ABC新闻》网站2022年03月10日的报道，美国周三呼吁中共政府允许联合国人权事务高级专员米歇尔·巴切莱特(Michelle Bachelet)在5月访问中共国及其新疆西部地区时“不受阻碍和不受监督地进入”。
+据乌克兰当局统计，自今年2月24日俄罗斯军事入侵乌克兰以来，造成至少 71 名乌克兰儿童丧生，超过 100 名儿童受伤。全世界的人们不久前刚刚知道，在马里乌波尔一家儿童医院遭受了俄罗斯军队的致命袭击。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/35020493-3512-495D-97CD-C27A45238EA7.png)**屏幕截图：**[**https://www.tvanouvelles.ca/2022/03/10/tues-blesses-traumatises-horribles-destins-pour-de-nombreux-enfants-en-ukraine**](https://www.tvanouvelles.ca/2022/03/10/tues-blesses-traumatises-horribles-destins-pour-de-nombreux-enfants-en-ukraine)
+**一个男人失去了他的妻子和孩子**
 
-美国常驻日内瓦联合国机构代表谢巴·克罗克(Sheba Crocker)大使表示，对巴切莱特团队工作的任何干涉，都将证实否认在新疆对维吾尔族穆斯林和其他少数民族成员的侵犯人权指控的“宣传”。
+一位年轻的母亲和她的两个孩子在试图逃离俄罗斯入侵者（的魔掌）时被炸弹炸死。她的丈夫谢尔伊·佩雷比尼斯（Serhiy Perebyinis）告诉《纽约时报》，“我认出了这些行李”。死者是他的妻子特提亚娜Tetiana和他们的两个孩子—18岁的米奇塔（MYKYTA）和9岁的艾丽莎（ALISA）。谢尔伊是通过推特Twitter上的图片得知了母子三人的死讯。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7B2545CB-B08B-42C4-9F95-D5E483E5E3C9.png)屏幕截图：[https://m1.quebecormedia.com/emp/emp/Montagee1a67092-00bd-4d55-a448-b24cbd4f7b18\_ORIGINAL.jpg?impolicy=crop-resize&x=0&y=0&w=2000&h=1125&width=940](https://m1.quebecormedia.com/emp/emp/Montagee1a67092-00bd-4d55-a448-b24cbd4f7b18_ORIGINAL.jpg?impolicy=crop-resize&amp;x=0&amp;y=0&amp;w=2000&amp;h=1125&amp;width=940)   
+报道称，谢尔伊为了照顾他生病的母亲而不得不留下来，而他的妻子带着两个孩子试图逃离他们在伊尔平（Irpin）的地下掩体，并最终逃离乌克兰。
 
-克罗克说，由联合国人权事务负责人及其团队进行的一个有可信度的访问应该包括访问已经被报道过的“暴行和侵犯与践踏人权事件的地点”。
+在逃离的过程中，这位母亲和她的孩子不得不下车步行穿过一座严重受损的桥梁。 不幸的是，一枚炸弹落在距离她们仅仅十米左右的地方，当时旁边还有一名正在帮助她们的男子，四人全部遇难，只有她们放在一个绿色笼子里的宠物狗幸存了下来。
 
-克罗克在一份声明中说：“我们呼吁中华人民共和国确保她的访问能够不受阻碍和不受监督地进入新疆所有地区，并与各种维吾尔个人和民间社会团体进行私下会面。”
+**被新中国联邦救助的乌克兰孩子们**
 
-她补充说：“对高级专员或其办公室施加的任何访问限制，或干扰他们的活动或报告，都将严重损害她访问的可信度，并证实否认在新疆发生的虐待行为的宣传”。
+在Gnews日前发表的一篇题为《乌克兰大救援：百名乌克兰儿童安全撤离后记》的文章报道称，新中国联邦和法治基金救援行动正在帮助乌克兰的儿童逃离战火，新中国联邦用行动向全世界展现无私无我的人道主义精神。3月7日，波兰时间凌晨4点，…，两辆满载着98名乌克兰儿童和多位老师的巴士，停靠在波乌边境的一家酒店旁，孩子们有序地下车并进入该酒店。他们刚刚从乌克兰某核电站附近的一所孤儿院撤离到这里，在短暂休息后将继续前往西班牙的巴塞罗那。
 
-于1月中旬上任的克罗克还呼吁巴切莱特发布她办公室的一份期待已久且拖延已久的关于新疆的报告。
+**很****显然****，****俄军****已经****把乌克兰难民的****逃生通道****列入了轰炸目标****，这违背了****战争中的****女人和孩子****应该被无条件的保护****的共识！**
 
-许多人权组织和倡导组织已经记录或公开了有关对该地区维吾尔人和其他人侵犯人权的指控，但巴切莱特办公室的报告将得到联合国的认可。
+**让我们****为****处在****战火中的平民祈祷****，****为****波兰前线****参与****难民****救援****的****新中国联邦****的****战友们****加油****！**
 
-据外国政府和研究人员称，目前已有超过100万人被限制在新疆的集中营中。中共国政府在该地区政策的批评者谴责涉嫌镇压宗教活动、强制劳动和其他措施，如针对少数民族的节育措施——称其中一些措施可能构成反人类罪。
+**声明：**
 
-中共政府否认关于侵犯人权行为的投诉，并表示这些集中营是为了支持经济发展和打击伊斯兰激进主义的职业培训。由于有报道称可能存在强迫劳动，中共政府已向外国服装和鞋类品牌施压，要求其撤销停止使用新疆棉花的决定。
+由于语言和文化背景的不同，本文（或本视频）中对原文（或原视频）的翻译不能也不可能保证完全表达原文（或原视频）的内容。读者（或观众）要想了解确切的信息请参考下面链接指向的原文（或原视频）。
 
-**简评：**
-联合国人权事务高级专员巴切莱特自2018年起开始要求不受限制地进入新疆，以便在当地开展对新疆少数民族人权的调查。但遭到了中共国官员一再拒绝。时至今日，巴切莱特也没有完成针对新疆的人权调查。我们不知道是中共蓝金黄力量在起作用还是该专员的不作为，或者二者都有。这些疑问可以通过华盛顿特区的维吾尔研究中心执行主任阿卜杜勒哈基姆·伊德里斯告诉美国之音的以下信息窥得一二：
+本文（或本视频）内容仅代表作者的观点，与发布本文（或本视频）任何媒体平台无关。
 
-自从联合国人权事务高级专员米歇尔·巴切莱特于2018年9月上任以来，她在维吾尔人权问题上一直很被动。甚至她的官员也告诉我们，她一直无视详细描述维吾尔人权(在中国)的报告和文件；在与联合国人权办公室的官员进行了长时间的交谈后，他们从该官员那里获悉，他的部门已将新疆人权状况的报告和文件汇总，并提交给巴切莱特办公室，“但是报告并没有受到重视，这些年来，巴切莱特一直小心翼翼地不激怒中共国，这就是她一直拖延这份紧急报告的原因。”
+**参考资料：**
 
-基于以上信息和中共政权以假治国的本质属性可以判断，巴切莱特既定的5月份对新疆的访问不可能会有任何实质性效果。这就与世界卫生组织到武汉调查中共病毒起源一样，这些所谓的国际组织除了与中共一起演戏给国际社会看，根本达不到任何调查真相的目的。国际社会也不要寄希望于非独立调查机构的调查结果。对于中共对新疆维吾尔族人侵犯人权的指控也好，对于中共释放新冠病毒的调查也罢，在没有消灭中共政权的情况下，这些都是纸上谈兵，因为罪犯不会主动将犯罪证据递交出去，更何况搜集证据的人可能与其已经有深度勾兑。
+[Tués, blessés, traumatisés: horribles destins pour de nombreux enfants en Ukraine](https://www.tvanouvelles.ca/2022/03/10/tues-blesses-traumatises-horribles-destins-pour-de-nombreux-enfants-en-ukraine) ，Jérémy Bernier 和 Olivier Faucher 以及法新社 发表于 2022年3月11日09:00 – 更新 09:00
 
-新闻链接：[US tells China: Give UN rights chief wide access in Xinjiang](https://abcnews.go.com/International/wireStory/us-tells-china-give-rights-chief-wide-access-83349382)
+**编辑：LUCAS**
 
-*翻译/简评：Brianchow*
-*校对：Harvey（叶知秋）*
+**发布：歪桑**
 
+20220310
 
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
