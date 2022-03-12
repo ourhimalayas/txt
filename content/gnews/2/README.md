@@ -2,28 +2,47 @@
 ---
 
 
-## 流亡的白俄罗斯领导人说 人民正抵制俄罗斯对乌克兰的入侵
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2150643/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2150738/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture6-2.png)
-图片来自原文
+整理：枳实
+美工：精灵蓝
 
-白俄罗斯流亡的反对派领导人斯维亚特拉娜-齐哈努斯卡娅（Sviatlana Tsikhanouskaya）说，乌克兰应注意俄罗斯飞机的动向。白俄罗斯人民已经前往乌克兰，积极抵制俄罗斯军队对乌克兰的入侵，帮助保卫基辅免受俄罗斯的攻击。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-129.png)图片：雅典娜农场设计组 精灵蓝
 
-在渥太华的一个国防会议上斯维亚特拉娜-齐哈努斯卡娅警告说，大多数白俄罗斯人不支持入侵乌克兰，白俄罗斯的反战情绪正在上升。白俄罗斯和乌克兰的命运是相互关联的。
 
-乌克兰对克里姆林宫的大胆抵抗正在激励白俄罗斯对卢卡申科的抵抗。
+雅典娜疫情更新（2022年 3月11日）
 
-她警告说，普京使用核武器的威胁极为令人担忧。必须阻止独裁者。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-她呼吁，加拿大和其他西方国家对白俄罗斯实行更严厉的制裁，包括对其国有银行的制裁，并警告说，俄罗斯正在利用白俄罗斯的银行来规避对其本国机构的制裁。这是个 “巨大的漏洞”，她说。
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-71.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-65.png)
+[2022年3月11日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月11日改进.pdf)
 
-将白俄罗斯从SWIFT银行系统（金融机构使用的信息传递系统）中删除。
+数据来源：
 
-新闻来源链接：[https://globalnews.ca/news/8674790/belarus-ukraine-russia-invasion/](https://globalnews.ca/news/8674790/belarus-ukraine-russia-invasion/)
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

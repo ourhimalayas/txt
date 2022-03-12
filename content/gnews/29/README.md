@@ -2,11 +2,16 @@
 ---
 
 
-## 03/11/2022 新中国联邦在波兰梅迪卡建起了第二个巨型帐篷，救援乌克兰难民
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2149939/)
+## 20220311郭文贵大直播 ：美国将立法支持数字货币合法化
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2150033/)
 
-03/11/2022 新中国联邦在波兰梅迪卡建起了第二个巨型帐篷，救援乌克兰难民
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+作者：东京樱花团小视频组
+
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

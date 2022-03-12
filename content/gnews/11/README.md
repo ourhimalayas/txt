@@ -2,24 +2,40 @@
 ---
 
 
-## 莫德纳CEO的“金色降落伞”赔偿高达9亿美元
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2150449/)
+## 中共国吉林省新冠病毒大爆发，大学出现聚集性疫情
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2150582/)
 
-#### 翻译/撰稿：zzballack
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-54.jpg)图片来源：CNBC
-据《网关专家》（Gateway Pundit）3月11日报道，过去两年，莫德纳（Moderna）公司的财务状况发生了翻天覆地的变化。2020年亏损了7.47亿美元的它们，在2021的收入超过了120亿美元。令人惊讶的是，莫德纳的巨额收入全部归功于其唯一的商业化产品：实验性的mRNA新冠疫苗。
+整理/编辑：围剿维尼熊
 
-由于今年的疫苗销售额预计会超过去年，莫德纳董事会在2021年年底决定用一个巨大的“控制权变更（change-in-control）”方案来奖励其最高主管、首席执行官斯特凡·班塞尔（Stephanie Bancel）。班塞尔的“金色降落伞 (Golden parachute，指企业一旦被收购，首席执行官离职的补偿费用)”协议说，如果公司被出售或者合并，同时班塞尔在此过程中失去了工作，那么他将获得超过9.26亿美元的费用，这比之前商定的离职协议中的960万美元高出近1000%。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1647081447022.jpg)图片来源：中国新闻网
 
-然后，据《每日邮报》（Daily Mail）报道，由于补偿费用主要以股票期权的形式支付，所以报酬是不稳定的。“班塞尔的‘金色降落伞’协议中（协议中的股价以去年12月31日的收市价253.98美元计算）的大部分与莫德纳股票挂钩，股价在大流行期间有涨有跌，因此很难确定如果班塞尔将其兑现会获得多少钱。”莫德纳的股价在2021年8月10日达到了迄今最高点497.49美元，但在3月10日，股价已跌至139.52美元。
 
-在大流行期间，班塞尔获利颇丰。据CNBC报道，在2021年，班塞尔就赚了1820多万美元，其中包括薪金99万美元、奖金150万美元和股票奖励1500万美元。莫德纳的其他高管也大赚特赚：总裁斯蒂芬·霍格（Stephen Hoge）除了780万美元的工资和奖金，还兑现了1.659亿美元的股票期权；首席技术官胡安·安德烈斯（Juan Andres）从公司赚了660万美元，出售股票获利1.943亿美元。
+根据大纪元3月12日讯，中共国吉林省疫情近期持续升温，并出现大面积传播。长春市宣布“封城”，吉林市长被免职。
 
-总的来说，这三位高管在过去一年中抛售了数亿股莫德纳股票，他们希望在危机结束之前抓住机会在高位套现。毕竟，随着新冠疫苗真相的逐步曝光，莫德纳股价会持续下跌，同时他们也别想逃过追责。
+根据吉林省当局3月11日通报，该省的6个市州和1个省直管县有疫情报告。吉林市、长春市出现社区传播，短时间内筛查发现的感染者数仍将快速增加。
 
-新闻来源：[Moderna Approves $900 Million+ Golden Parachute for CEO After Company Went From Losing $747 Million In 2020 to Making $12.2 Billion in 2021 With Its Covid Jab](https://www.thegatewaypundit.com/2022/03/moderna-approves-900-million-golden-parachute-ceo-company-went-losing-747-million-2020-making-12-2-billion-2021-covid-jab/)
+直到3月11日，长春市宣布“封城，通知全市范围内启动三轮全员核酸，全市小区村单位进行封闭式管理。
+
+吉林农业科技学院之前也被爆料，该学校出现了聚集性疫情爆发。后有自称是吉林农业科技学院的学生在社交媒体上爆料，学校一直都在隐瞒疫情爆发事实。
+
+据报导，吉林农业科技学院此次疫情爆发，属于学校刻意隐瞒疫情不报。
+
+3月6日至今，吉林农业科技学院共报告了核酸阳性和无症状感染者超过120人。目前该校党委书记张立峰已被免职。
+
+不过，中共的疫情数据一直受到质疑。中共还封杀民间的不同声音，并抓捕敢于在网上透露实情的人们。
+
+参考链接：[https://www.epochtimes.com/gb/22/3/11/n13639947.htm](https://www.epochtimes.com/gb/22/3/11/n13639947.htm)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

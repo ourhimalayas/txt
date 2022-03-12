@@ -2,34 +2,35 @@
 ---
 
 
-## 志愿者向国际媒体揭露中共如何破坏法治基金的救援行动
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2150180/)
+## 韩国确诊病例全国累计首次突破500万，每10人就有一个确诊患者
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2150348/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏  **
-
-#### 整理/编辑：小红帽   
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-12_16-31-49.png)图片来源：郭文贵先生盖特视频截图
+作者：首尔天池农场—追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
 
 
-根据3月10日新中国联邦和法治基金前线记者妮可报道，中共干扰新中国联邦和法治基金的救援行动，剥夺人们逃生的自由。
+![](https://image.ajunews.com/content/image/2022/03/09/20220309204243482604.jpg)（韩联社）
 
-波兰的梅迪卡已经成为一个全球聚焦的媒体中心。那里有来自世界各国的，国家级的电视台，广播电台和报纸。每一位来到新中国联邦和法治基金救援帐篷的人，志愿者都确保这些人知道，中共在干扰新中国联邦和法治基金救人。志愿者把中共怎么黑客救援的电子邮箱，怎样毁掉救援信息的二维码，如实地告诉每一位记者。
+3月9日韩国媒体报道， 韩国中央防疫对策本部通报，截至当日零时，单日新增中共病毒确诊病例34万2446例，创历史新高。全国累计病例达到521万2118例，首次突破500万大关，其中每10个韩国人中就有一个确诊患者。 与此同时，重症病例当天增加80例，死亡人数增加158人，全国新增居家治疗患者29万人，累计达121万人。 韩国5126万人口中，完成第三剂疫苗接种的人数已占总人口的 62%。
 
-当妮可告诉外国记者，中共怎样对救援行动搞破坏的时候，每个人都在摇头。这证明，中共真的完了。当全世界的媒体都听到，在这个人道主义救援的时候，中共竟然在剥夺人们逃生的自由。中共真的已经完蛋了。
 
-新中国联邦和法治基金的志愿者不放弃任何一个机会，跟每一个来到救援帐篷的，和志愿者交谈的所有媒体人，揭露中共破坏救人的恶行，以及中共邪恶的本性。
 
-资料来源：[郭文贵先生2022年3月11日盖特视频](https://www.gettr.com/post/pzendr9995)
+参考链接：
 
-发布：*wenly*
+[https://news.kbs.co.kr/news/view.do?ncd=5411925](https://news.kbs.co.kr/news/view.do?ncd=5411925)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑/校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-33.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
+
 
  
 

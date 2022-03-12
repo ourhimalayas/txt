@@ -2,27 +2,27 @@
 ---
 
 
-## 俄罗斯航天局警告国际空间站坠毁
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2150663/)
+## 美国对俄罗斯亿万富翁普京发言人家属实施新制裁
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2150781/)
 
 翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0100.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0101.jpg)
 
 
-图片来源：视频截图
+图片来源：路透社
 
-警告来自 Telegram：俄罗斯航天局 Roskosmos 负责人指出 ISS 空间站的供应问题。据称，一些“疯狂国家”的制裁甚至可能导致车站崩溃。
+美国周五对俄罗斯亿万富翁维克多·维克塞尔伯格、总统弗拉基米尔·普京的发言人和立法者的三名家庭成员实施制裁，这是对俄罗斯入侵乌克兰的最新惩罚。
 
-俄罗斯航天局 Roscosmos 负责人德米特里·罗戈津（Dmitry Rogozin）警告西方，国际空间站（ISS）可能会坠毁。
+自 2 月 24 日发起入侵以来，俄罗斯面临着一系列制裁措施，这是自二战以来对欧洲国家的最大袭击。美国财政部在一份声明中表示，受周五制裁打击的人包括俄罗斯第二大银行 VTB 银行 (VTBR.MM) 董事会的 10 名成员，以及俄罗斯议会下议院杜马的 12 名成员。
 
-罗戈津周六在信使服务电报中表示，对俄罗斯实施的制裁正在影响为国际空间站提供服务的俄罗斯航天器的运行。这主要影响车站的俄罗斯部分，该部分负责修正航向。结果，这座500吨重的结构可能会掉到地上，“掉进海里或掉到陆地上”。
+财政部长珍妮特耶伦说：“财政部继续要求俄罗斯官员为普京发动无理无端的战争负责。”
 
-“俄罗斯部分确保空间站的轨道得到纠正（平均每年 11 次），同时也是为了防止空间碎片，”罗戈津解释说。
+普京的发言人德米特里佩斯科夫于 3 月 3 日成为目标。周五的措施扩大到他的妻子和两个成年子女。财政部在新闻稿中说，他们过着“与佩斯科夫公务员薪水不相符的奢侈生活方式”。
 
-他还发布了一张世界地图，以显示国际空间站可能坠毁的位置。因此，俄罗斯基本上是安全的。但其他国家，特别是西方国家，应该“考虑制裁俄罗斯联邦的代价，”罗戈津警告说。
+克里姆林宫没有立即回复路透社的置评请求。
 
-🔗 [https://www.welt.de/politik/ausland/article237490255/Ukraine-News-im-Liveticker-Russische-Raumfahrtbehoerde-warnt-vor-Absturz-der-ISS.html](https://www.welt.de/politik/ausland/article237490255/Ukraine-News-im-Liveticker-Russische-Raumfahrtbehoerde-warnt-vor-Absturz-der-ISS.html)
+🔗 [https://www.reuters.com/markets/europe/us-targets-russian-oligarchs-elites-fresh-sanctions-2022-03-11/](https://www.reuters.com/markets/europe/us-targets-russian-oligarchs-elites-fresh-sanctions-2022-03-11/)
 
 编辑发表： Shuizhuyu
 
