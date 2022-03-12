@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/12/2022 3:49 AM (UTC)`
+
+3/11/2022 Miles Guo: It took the CCP 100 years to destroy the thousands of years of civilization and the decent image of the Chinese people, but the New Federal State of China, the Rule of Law Foundation, the Rule of Law Society, and our frontline fellow fighters are proving to the world that the Chinese are not sick men of Asia, instead we are pursuing justice, and we are peace-loving and capable of engaging in the humanitarian assistance and rescue.<br/><br/>3/11/2022 文贵直播：中共用了100年将中国人千年文明和形象全毁；但新中国联邦、法治基金和前线的战友们向世界证明了，中国人不是东亚病夫，我们爱好正义、和平并有能力参与人道救助<br/>
+![img](https://media.gettr.com/group14/getter/2022/03/12/03/39a19bb2-3a78-663c-edd8-04b4ec0bf0e9/out.jpg)
+
+---
+
 `@miles 3/12/2022 3:38 AM (UTC)`
 
 3/11/2022 Miles Guo: The rescue operation conducted by the fellow fighters is spreading the words about the future and the image of the New Federal State of China, which has pushed the CCP into the Tacitus Trap. Please widely disseminate the accurate information about the New Federal State of China’s rescue mission and the revelation of the unjust nature of this war. No one can stop the New Federal State of China from entering the center of the world stage.<br/><br/>3/11/2022 文贵直播：战友们的救援行动就是在传播新中国联邦的未来和形象，中共已被我们打入“塔西佗陷阱”；请广泛传播新中国联邦救援和揭露这场战争非正义本质的准确信息；新中国联邦走向世界成为主角无人可挡！<br/>
@@ -146,13 +153,6 @@ Russia expert Leon Aron discusses how failed military defeats have toppled previ
 
 <br/>3月11号：战争中的温暖．黑暗中的智慧的火光……人类的希望……新中国联邦。
 ![img](https://media.gettr.com/group42/getter/2022/03/11/22/631a0bce-dfc5-5204-1780-d33a02a73276/8876bb684f46060753e626bc8c8c4114.jpg)
-
----
-
-`@miles 3/11/2022 10:02 PM (UTC)`
-
-Chelsea FC owner and Vladimir Putin ally Roman Abramovich are among a list of Russian oligarchs being sanctioned by the UK. No more ticket sales will be allowed, player transfers and new contracts will be banned, merchandise sales will also not be allowed. His plan of selling Chelsea FC will also not be allowed to go ahead for the time being. <br/><br/>切尔西俱乐部老板、普京的盟友阿布拉莫维奇是被英国制裁的俄罗斯寡头名单中的一个。切尔西将不被允许再出售门票，禁止球员转会和新合同，也不允许销售商品。他出售切尔西俱乐部的计划也将暂时不被允许进行。<br/>
-![img](https://media.gettr.com/group25/getter/2022/03/11/21/9fcca112-1b74-0bd5-d084-a2801b32317e/out.jpg)
 
 ---
 
