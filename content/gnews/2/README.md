@@ -2,19 +2,38 @@
 ---
 
 
-## 七哥金句：我们应该，也必须救乌克兰人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2154321/)
+## 标普全球高管：欧洲将承受石油冲击之痛,但可及时转移对俄罗斯的依赖
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2154474/)
 
-整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句-乌克兰人第一战付出了生命和鲜血。但是却救了台湾人坡.jpg)
-发布：枫叶红了
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image004-3.jpg)
+**路透休斯顿****3****月****8****日**** – ****标普全球一位金融服务高管周二表示，各国拒绝进口俄罗斯石油给能源市场带来的冲击正处于开始阶段。****
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+****标普全球金融服务高级副总裁****Roger Diwan****在****CERAWeek****能源会议上表示，俄罗斯每天出口约****400****万桶石油，失去这么大的数量没有办法轻易吸收。****
+
+****Diwan****预测，欧洲将需要大约****45****天的时间来转移对俄罗斯石油和天然气的能源依赖。**
+
+[【援引连结】](https://cn.reuters.com/article/s-p-europe-russia-oil-0308-tues-idCNKBS2L605Q)
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

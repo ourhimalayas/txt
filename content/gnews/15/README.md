@@ -2,32 +2,32 @@
 ---
 
 
-## 俄在撤军时杀害了7名平民包括一名儿童
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2154037/)
+## 六枚火箭袭击了库尔德电视台、美国驻伊拉克领事馆
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2154156/)
 
-翻译：冰糖葫芦喵
+作者：夕夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-69.png)
+突发事件2022 年 3 月 12 日下午 6:54来自伊拉克国家电视台、阿拉伯天空新闻和耶路撒冷邮报正在报道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-12-下午9.10.44.png)
+伊拉克埃尔比勒的爆炸事件，有6枚火箭弹袭击了该市。据报道，袭击发生在一个正在建设中的美国领事馆附近。
 
-编辑与校对：灭共文明
+这条消息在推特上爆出，一些细节仍在不断变化，但大多数媒体报道称，库尔德卫星频道 k24 遭受了打击。
 
-《路透社》乌克兰利沃夫3月12日报道，**周六，乌克兰指责俄罗斯军队对试图逃离基辅附近战斗的妇女和儿童发动袭击，造成7名平民死亡，其中包括一名儿童。**法国称，**俄罗斯总统普京表现出他没有准备好实现和平。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏-e1647136338740.png)图片来源：路透社。
-乌克兰官员后来表示，**车队在周五遭到袭击时，并没有沿着与俄罗斯商定的 “绿色走廊 “行驶，**这纠正了他们先前关于车队在这种指定路线上的说法。
+阿拉伯天空新闻报道称，“正在伊拉克北部埃尔比勒市建造的美国大使馆总部遭到五枚远程导弹的袭击。
 
-早些时候，乌克兰总统弗拉基米尔·泽伦斯基表示，在乌克兰军队使31个俄罗斯营战术小组停止行动后，莫斯科正在派遣新的军队。
+以下是《[耶路撒冷邮报》](https://www.jpost.com/breaking-news/article-701103)的更多内容：
 
-他还表示，**到目前为止，大约有1300名乌克兰士兵丧生**，他敦促西方国家更多地参与和平谈判。**总统表示，如果俄罗斯军队试图进入首都，他们将面临一场殊死的战斗。**
 
-泽伦斯基说，**如果俄罗斯决定地毯式轰炸基辅，简单地抹去这个地区的历史……摧毁我们，，，那就让他们来吧，但乌克兰人必须自己住在这片土地上。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2345截图20220222145924_副本-e1646095011776.png)乌克兰总统泽连斯基（图片来源：网络）
-泽伦斯基与德国总理肖尔茨(Olaf Scholz)和法国总统马克龙(Emmanuel Macron)讨论了这场战争，**德国和法国领导人随后与普京通了电话，敦促他下令立即停火。**
+> 埃尔比勒省长奥梅德·霍什瑙表示，多枚导弹落入该地区，并表示尚不清楚目标是美国领事馆还是该市的机场。据 INA 称，袭击中听到了五声爆炸声。
 
-报道指出，克里姆林宫在75分钟的通话中发表的声明没有提及停火，一名法国总统官员表示，**没有发现普京方面有结束战争的意愿。**
 
-美国国务院发言人表示:“如果我们可以采取乌克兰政府认为有帮助的外交措施，我们准备采取这些措施。”
+照片和视频正在网上分享，其中一些声称显示 k24 工作室的损坏。[https://twitter.com/AmichaiStein1/status/1502797470862131207](https://twitter.com/AmichaiStein1/status/1502797470862131207)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-12-下午9.08.18-1.png)
+参考链接：[https://www.mediaite.com/news/breaking-rocket-attacks-reportedly-strike-kurdish-tv-station-u-s-consulate-in-iraq-videos-show-huge-explosions/](https://www.mediaite.com/news/breaking-rocket-attacks-reportedly-strike-kurdish-tv-station-u-s-consulate-in-iraq-videos-show-huge-explosions/)
 
-新闻来源链接：
 
-[Ukraine says Russian forces kill seven civilians in evacuation convoy | Reuters](https://www.reuters.com/world/europe/fighting-rages-outside-kyiv-ukraine-says-it-hopes-humanitarian-corridors-can-2022-03-12/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-14.jpg)
 
 
 

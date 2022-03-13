@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：我们只救命而且免费
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2154304/)
+## 七哥金句：中共和俄罗斯唤醒了对应的战争机器
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2154458/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句-30天免费吃住.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句-俄罗斯打醒了欧洲.jpg)
 发布：枫叶红了
 
 **更多资讯，请关注：****

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 2:58 AM (UTC)`
+
+3/12/2022 Miles Guo’s GETTR: The CCP has started to stir up trouble in the Middle East, and something big will happen in the world after my 3 or 4 grand live broadcasts! The fellow fighters have shown the world in Ukraine that citizens of the New Federal State of China are the greatest and purest new human beings following the Way of Righteousness. The New Federal State of China will definitely be able to take down the CCP!<br/><br/>3/12/2022 文贵盖特：中共开始在中东制造事端，3、4次大直播后世界将发生大事！战友们在乌克兰给世界展现出新中国联邦人是最伟大、纯洁和以正道主义为基础的新新人类，新中国联邦一定能灭共！<br/>
+![img](https://media.gettr.com/group9/getter/2022/03/13/02/8b7cad3b-08a4-719b-f53a-abe1dd5d1313/out.jpg)
+
+---
+
 `@miles 3/13/2022 2:50 AM (UTC)`
 
 【Ukraine Rescue】03/12/2022 NFSC & ROLF Volunteer Nicole is interviewed by Trinity Broadcasting Network at our Medyka rescue center, Poland. She explained to them that our NFSC is against the CCP and we love peace and rule of law, and we come here to provide humanitarian aid to all people.  <br/><br/>【乌克兰救援】03/12/2022 新中国联邦和法治基金义工妮可在我们波兰梅迪卡难民救助站接受全球最大宗教电视台三一广播网的采访，并向他们介绍了我们新中国联邦是反对中共的，我们爱好和平、法治，我们来这里为所有的人提供人道主义援助。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -151,14 +158,6 @@
 3月12号：能让战地记者和有正义的人．有良知的人。在这种寒冷的战地冬天．喝上一杯新鲜的热咖啡，这是多么的浪漫．多么的有力量，好人必有好报．他们，每个人都应该有很好的咖啡喝。
 > `@himalayadcfarm 3/12/2022 7:04 PM (UTC)`<br/>🆘🇺🇦 Latest from Nicole on the #UkrainianFront: <br/>Louise, a famous AFP war correspondent who has experienced countless refugee camps, came to our tent with a look of disbelief on her face! She repeatedly exclaimed: how perfect! <br/>❤️ The new Chinese Federation's 🌈coffee🌈 illustrates true love: not just giving help for free, but giving the best and most needed to those refugees who are suffering from war! We don't just provide some hot coffee but we are giving hope to the people who lost their beautiful homes and loved ones!<br/>#NFSCRescue <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine
 ![img](https://media.gettr.com/group5/origin/2022/03/12/19/3ca95d89-59f1-dec5-b72d-758e2597b901/out.jpg)
-
----
-
-`@miles 3/12/2022 7:40 PM (UTC)`
-
-<br/>3月12号：伟大的新中国联邦……伟大的法制基金的所有的捐款战友们。
-> `@himalayadcfarm 3/12/2022 7:31 PM (UTC)`<br/>🆘🇺🇦Lasest from Nicole on the #ukraineFront<br/>Our refugee camps have become a family where the world comes together in exchange! <br/>Our refugee camps become a place for donations from all over the world! <br/> 🆘🇺🇦来自#乌克兰前线Nicole最新报道：<br/>我们的营地成为世界交流汇聚的大家庭！<br/>我们的营地成为来自世界各地的捐物处！
-![img](https://media.gettr.com/group48/origin/2022/03/12/19/2dac62ff-864e-f7e7-f4e8-0c26b469fc56/out.jpg)
 
 ---
 

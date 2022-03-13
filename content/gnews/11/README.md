@@ -2,27 +2,45 @@
 ---
 
 
-## 爆料百科 &#8211; 兔子打拳一溜小动作
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2154086/)
+## 乌克兰指责俄罗斯轰炸儿童医院
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2154316/)
 
-作者：美国纽约香草山农场-爆料百科
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中国谚语是指不敢在光天化日之下进行的活动，郭文贵先生多次在直播中提到：中共最擅长的就是在桌子底下搞小动作，就是兔子打拳一溜小动作。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image002-5.jpg)2022年3月9日，乌克兰马里乌波尔，损毁严重的儿童医院。图片由第三方提供。Ukraine Military/Handout via REUTERS
+**路透乌克兰利沃夫3月10日 ，俄罗斯挥军乌克兰周四进入第三周，尽管已造成数千人丧命、200多万人沦为难民，数千人在无情的轰炸下被迫躲在被围困的城市里，但俄罗斯的关键目标无一实现。**
 
-是中共一贯的作风，就是不敢在正面里交锋，只会在背地里使阴招，中共在国内的统治，对老百姓是如此，抓捕意见人士，禁止言论自由，从来不会公开审理，都是偷偷摸摸，在国际上也是最擅长通过收买、恐吓来要挟，让对手就范，中共在美国实施3F计划、蓝金黄计划都是偷偷摸摸兔子打拳一溜小动作。
+**泽连斯基指责俄罗斯进行种族灭绝，此前乌克兰官员表示，尽管乌克兰政府签署了停火协议，让人们逃离被围困的马里乌波尔，但俄罗斯飞机周三轰炸了一家儿童医院，病人被埋在废墟中。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
+**白宫谴责对医院的轰炸是”野蛮地使用军事力量对付无辜平民”。**
 
-编辑：香草山视频部-铭心
-校正/发稿：呼吸的雾霾（文小呼吸）
+**泽连斯基再次呼吁西方国家加强对俄罗斯的制裁，”以促使他们坐在谈判桌前，结束这场残酷的战争。”他表示，对儿童医院的轰炸是”正在发生的对乌克兰人进行种族灭绝的证据”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+顿涅茨克地区长官说，有17人在这次事件中受伤。
+
+联合国儿童基金会周三表示，自2月24日入侵开始以来，乌克兰共有200多万名难民逃离该国，其中有超过100万名儿童。至少37名儿童死亡，50名受伤。**
+
+[【援引连结】](https://cn.reuters.com/article/wrapup-usa-condemnations-russia-0310-wed-idCNKBS2L7080)
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,12 +2,13 @@
 ---
 
 
-## 20220311郭文贵大直播 ：新中国联邦是黑暗世界里的一盏明灯
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2153694/)
+## 20220309文贵大直播：五年来中共从没停止对郭先生和爆料革命的攻击
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2153759/)
 
-作者：东京樱花团小视频组
+作者:东京樱花团小视频组
 
 校对：东京樱花团小视频组
+
 编辑发布：东京樱花团小视频组
 
 * * *
