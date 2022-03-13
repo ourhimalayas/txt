@@ -2,27 +2,37 @@
 ---
 
 
-## VAERS在2022年前两个月报告的心肌炎和心包炎病例已接近去年一半
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2155952/)
+## 2022/03/10 疫苗导致所有年龄组过量死亡
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2156111/)
 
-#### 翻译/撰稿：zzballack
+[![](https://express.adobe.com/page/V5LLOBcanHc2y/images/363eae43-fcab-45c7-aa9d-9197a9d8b71e.png?asset_id=451210a6-facb-4976-a0dd-4bfc61cfc322&amp;img_etag=%22da8dd3e2d74ef9531a610f0e3e0906b3%22&amp;size=2560)](https://express.adobe.com/page/V5LLOBcanHc2y/images/363eae43-fcab-45c7-aa9d-9197a9d8b71e.png?asset_id=451210a6-facb-4976-a0dd-4bfc61cfc322&amp;img_etag=%22da8dd3e2d74ef9531a610f0e3e0906b3%22&amp;size=1024)
+**简评：**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-60.jpg)图片来源：Cardiovascular Business
-据《网关专家》（Gateway Pundit）3月11日报道，疫苗不良反应报告系统（VAERS）的最新数据显示，2022年前2个月报告的心肌炎和心包炎病例数已接近去年全年的一半。这表明原本健康的美国人患上这种威胁生命的心脏疾病的速度正在加快。
+CDC疾控中心数据库有各个年龄段的数据，一位保险业分析师拿到这些数据后，按年龄进行细分，得出超额死亡的结论。从夏天进入秋天，随着强制疫苗和加强针的推行，在25至44岁的千禧年龄组，有61000名千禧一代死亡，超额死亡率增加了84%。这是有史以来最严重的超额死亡率，等于千禧一代在2021年下半年经历了一场导致58000名美军战死的越南战争。这就是疫苗导致的所有年龄组过量死亡的直接证据，是政府通过强制疫苗杀人。政客们和福奇等人在躲避。
 
-自实验性的新冠疫苗推出以来，美国的心肌炎病例呈爆炸式增长，甚至在通常不太可能患上该疾病的儿童和年轻人群体也出现了这一趋势。美国媒体《The Blaze》的高级编辑丹尼尔·霍罗威茨 (Daniel Horowitz) 对VAERS的数据进行了解析：“2021年，VAERS报告的心肌炎和心包炎病例有24177个；而在2022年，仅截止到2月25日，就已报告了11289个病例，几乎是去年总数的一半。”
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-37.png)图片来源：the gateway pundit
-如果该数字照此速率增长，那么今年与疫苗有关的心肌炎病例将是去年的三倍多。这还只是VAERS的内部数字，更不用说VAERS存在严重漏报和少报。
+[**GETTR视频链接**](https://gettr.com/post/pzlfdxc99b)
 
-对数据进行进一步剖析后发现了一些更加令人震惊的趋势，而且这些问题正在加倍恶化。最令人担忧的是，青少年和年轻人正经历的情况比其他年龄段更为糟糕。无论哪个年龄段，心肌炎和心包炎最常见于接种第二剂疫苗后。通过下面这张按照年龄和剂量划分的心肌心包炎病例分布图可以看出，17和18岁的青少年患上心肌炎或者心包炎的比率最高，尤其是在第二剂疫苗之后。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-21.png)图片来源：the gateway pundit
-然而可悲的是，美国政府仍在执意推动疫苗接种，甚至正在对幼儿和婴儿进行疫苗测试。数月来，罗伯特·马龙（Robert Malone）博士和彼得·麦卡洛（Peter McCullough）医生等良心人士一直在抨击当局的鲁莽行为，特别是他们最近决定批准为幼儿接种新冠疫苗。麦卡洛博士引用了多项研究来支持他的声明：疫苗诱发的心肌炎是一个迅速增长的问题，比美国公共卫生“专家”最初预测的情况至少多出50%。这种情况已变得如此普遍，以至于12至17岁孩子在接种疫苗后更有可能因心肌炎住院，而不是新冠病毒本身。
+**视频字幕：**
 
-新冠疫苗造成的伤害在未来数年仍将持续，无数人将因为这种实验性疫苗而遭受不必要的伤害或者死亡。除了心肌炎病例，自大流行开始以来，VAERS还报告了100多万个不良反应病例以及2万个死亡病例，这些数字只是冰山一角。在过去，如果疫苗导致的死亡人数达到两位数，就会被撤回，更不用说数万人了。强迫人们接种这种实验性疫苗完全是犯罪，是纯粹的邪恶，必须中止。
+**战斗室嘉宾**：这是CDC（疾控中心）自己的数据，各种年龄阶段混杂在一起。我的保险业专家，前南区华尔街分析师进入了CDC数据库。我们在找其他东西，但我们发现的东西相当令人震惊。他拿到这些数据，花费了一些时间和精力，做了很多功课，按年龄进行了细分。他为每个年龄组建立了基线，得出超额死亡的结论。
 
-新闻来源：[Vaccine-Injuries SKYROCKET: Two Months into 2022, Vaccine-Related Myocarditis Reports in VAERS Have Surged to Nearly Half the Total Reported in 2021](https://www.thegatewaypundit.com/2022/03/vaccine-injuries-skyrocket-two-months-2022-vaccine-related-myocarditis-reports-vaers-surged-nearly-half-total-reported-2021/)
+图表四显示千禧年龄组，即25至44岁，进入秋季后，超额死亡率增加了84%。这是有史以来，我认为最严重的超额死亡率。在图表四，先给你一个概念， 你看到强制疫苗和加强针在秋季引起加速（死亡），然后到年底又一次加速。你看到的那个数据下降是报告的问题。千禧年龄段的死亡需要时间来报告，因为它们通常不是在医院死亡。因此该数据将被更新，可能显示出连续的令人不安的趋势。
 
+从夏天进入秋天，随着强制疫苗和加强针的推行，有6万1千多名千禧一代死亡。基本上，千禧一代在2021年下半年经历了一场越南战争，美军有5万8千人死于越南战争，所以这一代人刚刚经历了越南战争。我认为这就是疫苗导致的所有年龄组过量死亡的直接证据。
+
+米歇尔.奥林斯基拒绝回答罗恩.约翰逊参议员的信件，这不是巧合。他们在躲避，福奇不见了，她不见了，他们都在躲避。所以我要把话说出来，这是一个老话题，但它需要被重新引入对话中。这就是我们所说的“政府的杀戮”，政府通过强制疫苗杀人。
+
+**班农先生**：如果你是正确的，这太具有爆炸性了，特别是说千禧一代，千禧一代在2021年经历了一场越战。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕：雨中漫步* *| 听写：云岭 | 翻译：Blue**| PR：Roberts**|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+[![](https://express.adobe.com/page/V5LLOBcanHc2y/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/V5LLOBcanHc2y/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

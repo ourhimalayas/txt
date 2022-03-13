@@ -2,23 +2,26 @@
 ---
 
 
-## 台湾｜美国2022会计年度联邦政府拨款法 三项友台条款
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2155753/)
+## 战乱中凸显人性善与恶
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2155834/)
 
-**撰文/ 港台前线****｜发****布日期/ 13/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-14.png)**更多资讯请关注官方盖****特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
-美东3月11日，拜登总统正式签署“2022会计年度联邦政府拨款法”，包括三项友台条文：
+投稿人：友情有义
+![](https://lh4.googleusercontent.com/gRwWSFxnafuTOcWAWSZUhQcruKOLZuEKr3PSieDCIagTCP97bc81KYfIWQ57AviJyHf8yxb6OEh0lTN133DgGh0DO0AAGCwxr6m0Qx5SNK-T5wW-CJrbvDZWILxvh98bS5wEGHys)
+图片来自网络
 
-1. 禁止美国政府将经费用于制作、采购或展示任何不正确标示台湾领土的地图
-2. 匡列300万美元的授权额度提供“全球合作暨训练架构”（GCTF）使用
-3. 国务卿应于立法后90天内就成立“台湾学人计划”的可行性向国会提交报告
+从一次世界大战到现在，战争的起因大都是独裁者为实现个人野心而冒险挑起的，当独裁者通过强权把国家搞得民不聊生一团糟而威胁到统制地位时，它就会用发动战争的手段转移矛盾，把世界拖入战乱的漩涡。
 
+大恶莫过于杀人，当战争恶魔降临时，无数生灵涂炭，无数家破人亡，头一天还生活在和平宁静环境中的乌克兰人转瞬间就被打入了战争的深渊。只是在俄军入侵乌克兰的这十几天里，双方就有近万人死亡，二百多万难民逃亡，战乱带给人民的死亡和痛苦是无法用数字来统计的。
+![](https://lh4.googleusercontent.com/Wq81mw9zfLWvK9omN5wYkmx6N5YFrXvqsD9wYKhzVGPpfPZbwrXVAHexaNjt7REyBac8Npt0swO7-kUSo2k4U1C4T81ES-pDTUzb1NbApT2SMcX-cSoD_L0In6u0AHadBAMOQVFe)
+大善莫过于救人，新中国联邦、法制基金在这危难时刻挺身而出，启动了对俄乌战争难民的救援活动，出钱出力派出救援队进入战区，成功救助了无数的同胞和难民，在国际灾难中展现了新中国联邦人的善良、勇敢和实力。与此同时**CCP**却在用假救援、高价机票、删除救助邮箱域名，散布假信息的卑劣手段制造混乱，使一些同胞丧失了被救的机会。对比**CCP**的破坏新中国联邦人救助行动的恶行，更凸显出新中国联邦人和平、善良、智慧和秉持正道主义的高尚人格。
 
-对此，台湾外交部回应表示，感谢拜登政府及美国国会跨党派友人，再次透过立法展现对台美关系的支持。
+战争是军事的对决，也是善恶的较量，相信人类的良知一定会战胜邪恶，世界正义联盟一定会战胜黑暗帝国，新中国联邦一定会战胜**CCP**。
 
-“全球合作暨训练架构”（GCTF），台美于2015年6月1日签署备忘录成立“全球合作暨训练架构”，目的在发挥台湾的优势及专业，针对双方共同关切的议题合作举办训练计划，并邀请印太区域国家的官员及专家参加，以协助区域国家能力建构，借此加强区域多边合作、协助我国与区域内各国政府建立伙伴关系，进一步拓展台湾国际空间。
+*审核：文筝*
 
-来源｜[GCTF](https://www.gctf.tw/tw/IdeaPurpose.htm)
+*发布：yin*
+
+![](https://lh6.googleusercontent.com/w8LMlCAeYCCPuKxveGdvcyeqg1Dd6HHwfVuUxJ34hpaMbTL0LD8zVPo5ACa3FuktSvFOIcmRQ-dNekv9ZFiBBUkbYOsSDApxh1ol6EeU7ac8c05cmsznH-u-3PJcLeMP0sErzQ3W)
 
  
 

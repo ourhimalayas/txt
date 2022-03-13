@@ -2,157 +2,28 @@
 ---
 
 
-## 爆料百科 &#8211; 邪教组织
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2155940/)
+## 救援中的真实微笑
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/2156107/)
 
-作者：美国纽约香草山农场-爆料百科
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中共统治的70年间，
+文：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/d7aaac10caa92742985f138f3e1652ce.jpg)
+乌克兰的难民中多数是妇女儿童，一个小女孩在新中国联邦的帐篷内蹦蹦跳跳，这种景象太安慰人了，还有很多小孩子在跳舞，在踢球，玩得很开心。这种景象根本不像是在逃难，倒是像来参加一场大聚会的。有的小孩居然帮助战友去挂起新中国联邦的横幅，太可爱了。我们拍下的照片里，他的个子小小的，垫着脚尖帮我们拉着，心都软了。
 
-During the 70 years of CCP rule
+我们在梅迪卡搭建起了两个超级大的帐篷，里面都有暖炉，各种各样的食物，救援物资。很多志愿者都帮我们把难民带到帐篷，也有很多捐献物资的志愿者直接把物资搬到我们的帐篷内，大家好像心照不宣知道这个帐篷最大，难民也最多，消耗的物资多一些。前两天有另外的记者还以为我们是这次救援的主办方，哈哈，这里要说到一个问题，就是国际救援组织在大灾难发生时的作用。国际红十字会每年拿着美国和中共国，还有其他一些国家的最多的钱，但是这次救援他们的帐篷还不如我们的大。一直以为，世界发生一些大的灾难，比如战争时，国际救援组织由红十字会来办，无论他们做得好或者不好，这都不是什么新鲜话题了，毕竟如果他们做的真好的话，世界上也不用成立那么多什么无国界呀，慈善基金会啊，这么多，反正这些都是用来帮助有困难的人的，至于到底有没有帮，只有他们自己知道。很多时候我们看到的电视报道，因为我们并没有去到现场，很难相信哪些是事实。这次我们新中国联邦因为有前面五年的唯真不破，什么事情都是直播完成，我们都是真实透明的，你要说什么尽管说。共产党用尽一切力量来攻击我们，尽管前期有很多伪类，比如路骗子，蛇妖等人，他们混在我们的队伍里张牙舞爪，并没有把我们真心的战友拱走，真战友永远不会离开。所以共产党对我们的攻击几乎是没有用的，因为我们坦坦荡荡。
 
-将许多组织定义为邪教组织。
+这次国际红十字会的救援，会不会像以前那样的救援程度？如果没有新中国联邦来救援，那么红十字会就自己搭一个帐篷，做点采访报道说不定就回去了。无法想象的是乌克兰那么多老百姓到底该怎么办。现场很多的记者和专业做过救援的人都说我们的救援真是专业又细致，那么可想而知，之前红十字会的救援是怎样的。去年的阿富汗一夜之间被占领了，就被占领了，我们当时要派飞机去救，但是不让去，阿富汗那么多老百姓就牺牲了。其实最主要的还是因为阿富汗那个总统跑了，他跑得最快，抛弃了他的老百姓，并且老百姓几乎毫无选择地被迫接受这些，有人甚至从飞机上掉下来了。但是乌克兰这次完全不一样，泽连斯基没离开，家人也没离开，当时美国都要让他离开然后在国外成立流亡政府的，他拒绝了。这样一个总统，鼓舞他的人民，激起斗志。乌克兰的男性都必须留下来参战，很多国外的志愿军也都前来参与作战，有一个神枪手都去了。乌克兰的难民大多数是妇女儿童，这种感觉是无法言说的，他们的丈夫和父亲在战场上，随时有可能见不到了。从乌克兰到边境这里，有的人走了一天多的路来的，抱着小孩拿着行李，天气又那么冷，对妇女儿童来说，太艰难了。
 
-it defined many organizations as cults
+这已经是战争的第二周了，依然有无数的难民长途跋涉走来。战争依然没有停止，当初俄罗斯以为几十个小时就能拿下的乌克兰，结果到现在已经这么长时间了，双方还在焦灼中，能够让战争结束的唯一方法就是消灭共产党，因为共产党资助了这场战争，要买单的都是可怜的中国老百姓。世界上永远都有这些灾难发生，所以人类建立了各种国际组织来协调这些，但是，他们好像没什么用，如果有用的话，这场战争根本就没有，那些在我们大帐篷里的孩子他们不用背井离乡做难民。再者，就算发生了战争，这些国际红十字会也可以妥善安顿难民，但是如你所知，腐败无处不在，这次的救援行动就看得出，国际红十字会每年拿的那么多钱是去哪儿了都。
 
-而中共对中国人民犯下的罪行，
+如果没有新中国联邦的这次救援行动，相信很多人都以为难民就应该邋里邋遢鼻涕眼泪挤挤攘攘的，救援就是现场拍照报道什么的，采访完难民就都回去了，不会给难民提供什么实质性的帮助的。有的时候这真的是天意，一个是勇敢不屈的乌克兰人，一个是誓必要灭掉共产党的中国人，让这样的两个民资这么一融合，并且在当地其实有很多国外的人，这是一个微型的世界，注意，没有政府，这是一个老百姓的时代。政府，就算是民选政府，也不能保护所有的老百姓，泽连斯基只能在境内抵抗俄罗斯，乌克兰的难民逃离后需要照顾，那只有我们来帮他照顾。所以这个世界上的人类都是家人，所以俄罗斯打乌克兰就是在打自己的亲人，共产党更是坏透顶了在背后资助这场战争，他不是我们的家人，地球人类应该把共产党灭掉。
 
-And the crimes committed by the CCP against the Chinese people
+* * *
 
-悉数符合邪教组织的特征。
+作者：骄子
+发布：骄子
 
-all fit the characteristics of a cult
-
-1. 教主崇拜。
-
-
-First, cult leader worship
-
-从“东方红，太阳升，中国出了个毛泽东”，
-
-from “Dongfanghong, the sun rises, China has a Mao Zedong”
-
-到当今的为我独尊的习太阳。
-
-to today’s the exclusive Xi Sun
-
-- 精神控制。中共建造“防火墙”，
-
-
-Second, mind control. The CCP built a “firewall”
-
-全面控制教育和舆论，洗脑国民，
-
-to fully control education, public opinion and brainwash the nationals
-
-让人民相信“爹亲，娘亲，不如党亲”。
-
-make the people believe that “father and mother are not as close as the CCP”
-
-- 编造邪说。共产主义早已被世界唾弃，
-
-
-Third, fabricated heresy. Communism has long been spurned by the world
-
-中共却包装美化共产主义，
-
-yet the CCP packages and glorifies communism
-
-将所谓的“毛思想”、“习思想”灌输给中国人民。
-
-and instilled the so-called “Mao Thought” and “Xi Thought” into the Chinese people
-
-- 聚敛钱财。
-
-
-Forth, gather wealth
-
-中共早期打着“打土豪，分田地”的幌子，
-
-Early in the CCP’s rule, under the guise of “fight the landlord and share the land”
-
-实为将土地收为中共所有。
-
-land was actually taken into the CCP’s possession
-
-海航王健、马云等相继卸磨杀驴，
-
-HNA Wang Jian, Jack Ma and others were killed as donkeys after the completion of their works
-
-就是当代版本“打土豪，分田地”。
-
-which is the current version of “fight the landlord and share the land”
-
-- 秘密结社。中国共产党实属外来组织，
-
-
-Fifth, secret associations. The CCP was a foreign organization
-
-成立早期活动均不公开透明。
-
-and its activities were not open and transparent in its early years
-
-- 对抗社会。
-
-
-Sixth, confront society
-
-中共制造各种政治运动，
-
-The CCP created various political movements
-
-“文化大革命”，数千万人民丧失。
-
-and the “Cultural Revolution” killed tens of millions of people
-
-制造种族大屠杀，新疆大屠杀、西藏大屠杀、香港大屠杀。
-
-It created genocide, the Xinjiang massacre, the Tibetan massacre, the Hong Kong massacre
-
-此外，中共还篡改历史，
-
-In addition, the CCP has falsified history
-
-掩盖篡权事实，
-
-and covered up the fact of usurpation of power
-
-谎称“没有共产党就没有新中国”，
-
-falsely claimed that “without the CCP there would not be a new China”
-
-“拯救56个少数民族”。
-
-and “save the 56 minorities”
-
-中共就是当今世界最大的邪教组织。
-
-The CCP is the largest cult in the world today
-
-摘要： 70年间，中共的累累罪行符合邪教组织的六大特点，
-
-Abstract: Over the period of 70 years, the cumulative crimes of the CCP fit the six characteristics of a cult:
-
-即教主崇拜、精神控制、编造邪说、聚敛财富、秘密结社、对抗社会。
-
-That is, cult leader worship, mind control, fabricated heresy, gather wealth, secret associations, and confront society
-
-此外，中共还篡改历史。中共就是当今世界最大的邪教组织。
-
-In addition, the CCP has falsified history. The CCP is the largest cult in the world today
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
-
-编辑：雪梨
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
