@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 6:01 PM (UTC)`
+
+Lydia: I just want to return to Kyiv, I love Ukraine very much. <br/><br/>蕾迪娅：我只想回到基辅，我非常爱乌克兰
+![img](https://media.gettr.com/group48/origin/2022/03/13/18/9cce0131-4dc4-253c-6aa3-6df83b861aa9/out.jpg)
+
+---
+
 `@miles 3/13/2022 5:18 PM (UTC)`
 
 小小尼莫第二期-反战主题音乐会
@@ -149,13 +156,6 @@ On the front line of relief in Ukraine, there were many women and children in th
 
 【Ukraine Rescue】03/12/2022 Award-winning AFP war correspondent is very impressed with the NFSC & ROLF's rescue center in Medyka, Poland.<br/><br/>【乌克兰救援】03/12/2022 获奖法新社战地记者对新中国联邦和法治基金的难民救助中心印象非常深刻。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group39/getter/2022/03/13/02/fe2cb4b7-73cd-e249-294c-f6e4c6e1db8b/out.jpg)
-
----
-
-`@miles 3/13/2022 2:12 AM (UTC)`
-
-2022.03.12 晚《新中国联邦新闻访谈》乌克兰最新救援信息分享；新中国联邦边境救人，中共用旧图称救援乌克兰；香港疫情肆虐，新病毒？；关于辉瑞中共疫苗副反应的质疑
-![img](https://media.gettr.com/group31/origin/2022/03/13/02/b0593707-ceea-56bc-1df3-81d51fbb7688/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

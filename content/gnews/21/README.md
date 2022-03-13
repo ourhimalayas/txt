@@ -2,36 +2,41 @@
 ---
 
 
-## 俄罗斯导弹袭击波兰附近美军曾驻扎的基地
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2158133/)
+## 俄罗斯入侵严重影响乌克兰小麦收成
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2158135/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/r.png)tradeforprofit.net
-来自3月13日《零对冲》报道称，从周四和周五开始，俄罗斯开始对乌克兰西部与波兰边境附近的目标进行令人震惊的攻击，这被视为可能是 “向北约发出的信息”，警告西方国家不要进行外部干预。
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒报道，俄罗斯入侵乌克兰正值春季小麦发芽期，若不能及时施肥，将危及乌克兰数百万人的小麦需求。乌克兰农民表示他们现在缺乏化肥、杀虫剂和除草剂，同时他们也无法获得足够的燃料来为他们的设备提供动力。
 
-周日，有新的报道称，在克里姆林宫警告北约，其军队将打击任何入境乌克兰的外部武器运输之后，又有更多的重大袭击，这次是在离波兰边境仅10英里的地方。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-3.jpeg)
 
-《华尔街日报》援引乌克兰消息人士的话说，在一个军事训练中心有35人被杀。报道说：“八枚导弹击中了亚沃洛夫的设施，这个基地直到上个月还是美国国民警卫队训练乌克兰部队的地方。袭击发生后不久，人们看到救护车冲向基地，并看到部队离开。”
+谷物经纪公司驻基辅的业务发展经理内罗巴表示，若现在不施化肥，乌克兰的冬小麦产量可能比近年来下降 15%。但一些农民警称，实际情况可能会更糟。因为近年来，黎巴嫩、埃及、也门等国家的粮食也开始依赖乌克兰小麦。俄乌战争导致小麦价格飞涨，这个月麦价已比上个月上涨了 50%。
 
-“社交媒体上的画面显示了被摧毁的建筑物和散落着碎片的阅兵场，废墟上升起了烟雾。”《世界日报》继续报道，“据利沃夫省长办公室称，这次袭击造成134人受伤，并摧毁和损坏了一些营房。”
+据报道，在乌克兰农业危机发生的同时，由于中共病毒导致的全球供应链问题，世界各地的食品价格已经飙升了几个月。
 
-对亚沃洛夫的新攻击也被视为对华盛顿的明确警告，因为众所周知，在入侵开始之前，这里曾有美国军事训练员参与短期任务，以支持乌克兰国家部队。训练一直持续到2月初。
+联合国粮食机构上周表示，世界粮食价格在2月份创下历史新高，一年内已经上涨了24%以上。世界七大发达经济体的农业部长 ，将于周五在一次虚拟会议上，讨论俄罗斯入侵对全球粮食安全的影响以及如何最好地稳定粮食市场。
 
-克里姆林宫周六警告说，俄罗斯军方已准备好针对继续涌入乌克兰的西方武器运输，为与西方和北约的潜在重大冲突升级创造条件。俄罗斯副外长谢尔盖·里亚布科夫在国家电视台说，华盛顿在过去几天被告知，莫斯科将把进入乌克兰的武器供应车队视为 “合法目标”。
+乌克兰和俄罗斯是主要的小麦出口国，合计约占世界出口的三分之一。联合国粮食署周五表示，由于乌克兰的战爭之中，国际食品和饲料价格可能上涨多达 20%，从而引发全球小麥营养的供應上不良的激增。
 
-“我们警告美国，一些国家精心策划的输送武器的举动是危险的，它将这些车队变成‘合法目标’。”里亚布科夫在讲话中说，这是对西方的一个严厉警告。
+乌克兰官员表示，仍然希望今年能有一个相对不错的收成。他们把大部分希望寄托在乌克兰西部的农民身上。到目前为止，西部地区受战争的影响很小。
 
-周日对如此接近波兰边境的训练设施采取的行动是 “莫斯科展示其轰炸（乌克兰）全境目标的能力，即使其在基辅附近的地面部队面临挫折。”《世界日报》如此评价了这次袭击。
+参考链接：[Ukraine’s farmers stalled, fueling fears of global food shortages](https://www.reuters.com/world/ukraines-farmers-stalled-fueling-fears-global-food-shortages-2022-03-11/)
 
-**评论**：俄罗斯入侵乌克兰的战争还在继续，攻不下乌首都基辅，也要给乌克兰的支持者北约和美国以颜色，这应该就是这次导弹袭击的目的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-与此同时，中共指使邪恶轴心国中的伊朗在中东制造动乱，袭击了美在伊拉克的领事馆。今天大直播里郭先生说这是中共实施的对俄罗斯的“围魏救赵”行动，他们要切断中东能源供给，将欧洲、美国及世界置于更大的灾难之中以自救。这是他们企图联合行动打垮美元，报复美国对俄罗斯并在之后同样会对中共切断SWIFT系统的重要一击的开始。
+总编：Zion文恩
+编辑：玫瑰圓
+审核：台湾宝岛农场 dobi 
+校正/发稿：谐趣园
 
-原文链接：
-
-[https://www.zerohedge.com/geopolitical/russian-missiles-obliterate-base-near-poland-previously-housed-us-troops](https://www.zerohedge.com/geopolitical/russian-missiles-obliterate-base-near-poland-previously-housed-us-troops)
-
-**编译 发布：意大利罗马达芬奇农场 Roma**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
