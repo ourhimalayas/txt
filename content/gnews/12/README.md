@@ -2,30 +2,48 @@
 ---
 
 
-## 秘翻在线：美参议员提出法案，欲制裁中共数字人民币
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2153776/)
+## 文•贵天成——文贵先生谈“生物科技”（六）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2153792/)
 
-翻译：billwilliam
+整理：BENJI
+编辑：朝花夕拾
 
-校对: Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-8.jpg)布莱克本参议员，图源washingtonexaminer
-2022年3月9日，两位美国共和党参议员比尔·卡西迪（Bill Cassidy路易斯安那州）和玛莎·布莱克本（Marsha Blackburn 田纳西州）提出《对丝绸之路说不法案》（Say No To the SilkRoad Act），将限制中共的数字人民币，因为担心中共可能利用数字人民币帮助俄罗斯绕开SWIFT制裁，或同时收集使用者的信息。目前法案仍停留在提出阶段，尚未通过。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6a612dfb3ccf6e42.png)图片来源：雅典娜设计组（614）
 
-卡西迪参议员表示，数字人民币使中共有能力收集中国公民和外国人的信息，该法案的目的是追责中共。而布莱克本参议员表示，“如果不加以控制，包括中共国数字人民币在内的技术将使俄罗斯能够逃避来自SWIFT 等系统的全球制裁，并使中共能够进一步监视和威胁其公民。 这项立法为美国提供了有关数字人民币的更多信息，以追究新的邪恶轴心”。
 
-同时支持该法案的其他共和党参议员包括托德·杨（Todd Young 印第安纳州）、泰德·科鲁兹（Ted Cruz 德克萨斯州）、辛西娅·卢米斯（Cynthia Lummis 怀俄明州）、迈克·布劳恩（Mike Braun 印第安纳州）、里克·史考特（Rick Scott 佛罗里达州）、辛迪·海德-史密斯(Cindy Hyde-Smith 密西西比州) 和汤米·特伯维尔（Tommy Tuberville 阿拉巴马州）。
+生物技术、生物芯片，青藤说对了!现在美国赌的就是赌的生物芯片，美国和日本。生物芯片在西方已经基本上……未来两年会正式地推向市场。
 
-如果该法案通过，将会要求美国国务院对中共数字人民币发出警告；同时要求美国商务部长向国会有关委员会报告基于区块链的服务网络，并提供与报告相关的建议；商务部长还要报告有关数字人民币的贸易执法行动。美国贸易代表将报告数字人民币对贸易和投资协议的影响。法案还要求管理和预算办公室为使用数字人民币的机构制定标准和指南。从美国获得军事援助的外国政府必须披露是否使用数字人民币作为结算或储备货币。
+生物芯片跟现在的疫苗啥关系？跟AI啥关系？兄弟姐妹们？想想。生物芯片出来，今天你的疫苗就管用了……
 
-在俄罗斯侵略乌克兰并遭到国际制裁的情况下，有报告认为俄罗斯会转向中共提供支付系统，比如银联卡系统。有些议员担忧俄罗斯可能会利用数字货币规避制裁。如果该法案能及时通过，将切断普京通过数字人民币洗钱的渠道。另外，拜登总统周三曾签署行政令要求建立加密货币的管理框架，足以显示美国对加密货币的重视。同时，如果数字人民币被制裁，新中国联邦的喜币作为正义的数字货币将获得全球的信赖。
+生物芯片……半导体啊，芯片是半导体的一个进展，就是像今天的芯片作为通信和电脑的核心，电脑现在不是有芯片嘛，代替了一切，未来你手机就不用这个了，它是用生物，生物科技做出来。
 
-郭文贵先生几天前爆料，中共可能在三月底准备一系列战术对抗西方，包括放毒、挑起中东能源战争、搞垮全球经济、以及侵略台湾。现在调查、制裁数字人民币迫在眉睫，不然当全球经济崩溃时，中共有可能利用数字人民币规避制裁。
+它是有生命体的，像人的大脑一样，是用生物做出来的，是药剂或者是溶剂或者是一种片剂，像人的大脑是今天的芯片的多少倍呢？600亿倍!
 
-新闻来源：
+就是今天，我给你举个例子。火柴盒这么大的一块生物芯片，就是今天所谓的硬盘，就这么大一块生物芯片，能把全地球今天人类有史以来所有的信息放到这么大一块去。就中国的高速计算机的这核那核、美国这些计算机，全人类过去的一万年一亿年的信息放到这么大一个火柴盒里去，就这么大。
 
-[https://www.cassidy.senate.gov/newsroom/press-releases/cassidy-blackburn-introduce-bill-to-crack-down-on-chinas-digital-currency#:~:text=The%20Say%20No%20To%20the%20Silk%20Road%20Act%20would%3A,recommendations%20related%20to%20the%20report](https://www.cassidy.senate.gov/newsroom/press-releases/cassidy-blackburn-introduce-bill-to-crack-down-on-chinas-digital-currency#:~:text=The%20Say%20No%20To%20the%20Silk%20Road%20Act%20would%3A,recommendations%20related%20to%20the%20report)
+生物技术、生物芯片出来了，它像你的细胞里边的10亿分之一的容量，就是今天的疫苗到你身体里边了，生物的芯片未来是你100亿分之一，是人体里边流的基因的细胞的100亿分之一，所以说它对人来讲，一旦被植入进去以后，这个人就全都被控制了。
 
-[https://cointelegraph.com/news/republican-lawmakers-introduce-bill-targeting-china-s-cbdc-on-sanctions-privacy](https://cointelegraph.com/news/republican-lawmakers-introduce-bill-targeting-china-s-cbdc-on-sanctions-privacy)
+但是它最大的目的是什么？未来AI生物芯片管理，人的行为举止、思维几乎全被控制，这是很危险的。
+
+但是初期的生物电脑在硅谷在IBM已经早就开发非常好，如果没有这个生物科技的话，IBM的量子电脑是不会有用的，它的量子电脑现在就是基于未来的生物的整个芯片开始，生物导体。
+
+所以说华为也在搞这一块。华为买通了土耳其的一个搞5G的科学家，花了几百万美元，后来给了大概几千万美元，就搞了所谓的5G技术，因为那时候美国人没重视这个问题。
+
+那么现在生物技术是俄罗斯，生物芯片技术，还有日本，然后美国，这是非常非常棒的搞的开发;然后瑞士有几个实验室搞得不错的，但最牛的现在应该是美、苏、中、日这四家。
+
+所以说人类的新的挑战在未来是巨大的。在这个时候，共产党已经成为了什么？是绝对全世界上唯一能挑战美国的，也就是能干掉美国的技术大国的研发。
+
+人类在芯片技术和生物芯片技术、量子电脑技术、5G技术上，美国人只有俩选择:一个是让共产党把自己杀了，让共产党统治世界统治美国人;另一个是把共产党给灭了，美国和欧洲把它给灭了。
+
+资料来源：郭文贵先生2021年9月26日直播
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

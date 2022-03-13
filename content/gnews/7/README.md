@@ -2,21 +2,21 @@
 ---
 
 
-## 美国军援乌克兰 拜登授权再拨2亿美元
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2153826/)
+## 乌克兰救援前线视频（三）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2153852/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3216753-PH.jpg)图片来源：拜登脸书
+**视频制作：**James
+**封面设计：**精靈藍
+**封底设计：**614
+**监制：**精靈藍
+**编辑/发布：**翼族
 
-俄罗斯入侵乌克兰在全球的制裁声讨下毫无停手之意，俄军猛烈炮轰不断，正危及当地撤离平民的各种努力。为了援助乌克兰抵抗俄军，白宫表示美国总统拜登今天授权再拨出2亿美元，用来提供武器和其他援助给乌克兰。
-
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1084176)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
