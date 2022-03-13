@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 9:21 PM (UTC)`
+
+3/13/2022 Miles Guo: In an attempt to be able to challenge or even defeat the US and Europe, the CCP and Putin are playing the strategy of “Besiege Wei to Rescue Zhao”, which is to distract the power from the rest of the world threatening them by causing greater problems in elsewhere: start with Russia’s invasion of Ukraine, then fan the flames of war in the Middle East to destroy the petroleum economics and the US dollar so as to stop the economic and financial sanctions imposed by the US and Europe, then the CCP can take chance to attack Taiwan, and (new) viruses might be released.<br/><br/>3/13/2022 文贵直播：中共和普京合演“围魏救赵”：先由俄罗斯攻打乌克兰，然后在中东挑起事端，砸烂石油经济和美元，企图阻止美欧的经济金融制裁，让中共有机会打台湾，甚至放病毒，以期和美欧抗衡到底<br/>
+![img](https://media.gettr.com/group24/getter/2022/03/13/21/42f85faa-3bdd-2eee-b950-ca4911cc47a8/out.jpg)
+
+---
+
 `@miles 3/13/2022 6:01 PM (UTC)`
 
 Lydia: I just want to return to Kyiv, I love Ukraine very much. <br/><br/>蕾迪娅：我只想回到基辅，我非常爱乌克兰
@@ -149,13 +156,6 @@ On the front line of relief in Ukraine, there were many women and children in th
 
 3/11/2022 Miles Guo: The CCP's support for Russia to invade Ukraine has put overseas Chinese in the most dangerous situation, but our Ukraine rescue operation has brought essential change to the darkness faced by the Chinese people! The Chinese were brutally raped and killed during the Indonesia's anti-Chinese riots while the CCP's Embassy sat back and did nothing about it.<br/><br/>3/11/2022 文贵直播：中共支持俄罗斯打乌克兰已将海外华人置于最危险的境地，但我们的乌克兰救援为华人面临的黑暗带来了本质性改变！华人在印尼排华事件中被残忍地奸杀，而中共大使馆却坐视不管<br/>
 ![img](https://media.gettr.com/group27/getter/2022/03/13/02/f1d4b5cb-292e-1ae2-8d87-5fdc44725d14/out.jpg)
-
----
-
-`@miles 3/13/2022 2:21 AM (UTC)`
-
-【Ukraine Rescue】03/12/2022 Award-winning AFP war correspondent is very impressed with the NFSC & ROLF's rescue center in Medyka, Poland.<br/><br/>【乌克兰救援】03/12/2022 获奖法新社战地记者对新中国联邦和法治基金的难民救助中心印象非常深刻。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group39/getter/2022/03/13/02/fe2cb4b7-73cd-e249-294c-f6e4c6e1db8b/out.jpg)
 
 ---
 
