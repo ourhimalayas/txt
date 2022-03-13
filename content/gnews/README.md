@@ -36,38 +36,38 @@
 ### [法新社获奖战地记者大赞法治基金的帐篷设施](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在44.000 HDO](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [视频|文革受害者之中国比较文学之父吴宓](/content/gnews/9/README.md)
+### [视频|文革受害者之中国比较文学之父吴宓](/content/gnews/8/README.md)
  ` MOSVIDEO`
 
-### [辉瑞疫苗报告不良反应都是是什么](/content/gnews/10/README.md)
+### [辉瑞疫苗报告不良反应都是是什么](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [【乌克兰救援】03/12/2022 新中国联邦和法治基金义工妮可在我们波兰梅迪卡难民救助站接受全球最大宗教电视台三一广播网的采访](/content/gnews/11/README.md)
+### [【乌克兰救援】03/12/2022 新中国联邦和法治基金义工妮可在我们波兰梅迪卡难民救助站接受全球最大宗教电视台三一广播网的采访](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [习共在中东挑动战火，只会加速“以美灭共”](/content/gnews/12/README.md)
+### [习共在中东挑动战火，只会加速“以美灭共”](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频| 俄罗斯侵略行为摧毁乌克兰千亿美元资产](/content/gnews/13/README.md)
+### [视频| 俄罗斯侵略行为摧毁乌克兰千亿美元资产](/content/gnews/12/README.md)
  ` MOSVIDEO`
 
-### [全球最大宗教电视台采访新中国联邦志愿者](/content/gnews/14/README.md)
+### [全球最大宗教电视台采访新中国联邦志愿者](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【乌克兰救援】03/12/2022 获奖法新社战地记者对新中国联邦和法治基金的难民救助中心印象非常深刻](/content/gnews/15/README.md)
+### [【乌克兰救援】03/12/2022 获奖法新社战地记者对新中国联邦和法治基金的难民救助中心印象非常深刻](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [大直播后记：西方说假话是要被追究的](/content/gnews/16/README.md)
+### [大直播后记：西方说假话是要被追究的](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [导弹突袭伊拉克北部城市](/content/gnews/17/README.md)
+### [导弹突袭伊拉克北部城市](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [我们只为救人而来](/content/gnews/18/README.md)
+### [我们只为救人而来](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [视频|（乌克兰最新救援信息概要）](/content/gnews/18/README.md)
+ ` MOSVIDEO`
 
 ### [【乌克兰救援】妮可战友向来自罗马的新闻媒体介绍新中国联邦和法治基金的乌克兰救援行动](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
