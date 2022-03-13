@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：互联网和媒体
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2154881/)
+## 七哥金句：韩正的一句话
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2155064/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/13-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句-韩正说一句话-1.jpg)
 发布：枫叶红了
 
 **更多资讯，请关注：****

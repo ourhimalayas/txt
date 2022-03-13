@@ -15,101 +15,101 @@
 
 ---
 
-### [【乌克兰救援】妮可战友向来自罗马的新闻媒体介绍新中国联邦和法治基金的乌克兰救援行动](/content/gnews/1/README.md)
+### [【乌克兰救援】03/12/2022 新中国联邦和法治基金义工妮可在我们波兰梅迪卡难民救助站接受全球最大宗教电视台三一广播网的采访](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [七哥金句：韩正的一句话](/content/gnews/2/README.md)
+### [习共在中东挑动战火，只会加速“以美灭共”](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [视频| 俄罗斯侵略行为摧毁乌克兰千亿美元资产](/content/gnews/3/README.md)
+ ` MOSVIDEO`
+
+### [罗伯特-马龙博士:政府已投资了10多亿来推销疫苗](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [全球最大宗教电视台采访新中国联邦志愿者](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【乌克兰救援】03/12/2022 获奖法新社战地记者对新中国联邦和法治基金的难民救助中心印象非常深刻](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [视频|美欧将取消俄罗斯贸易最惠国待遇](/content/gnews/7/README.md)
+ ` MOSVIDEO`
+
+### [大直播后记：西方说假话是要被追究的](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [郭文贵先生2022年3月12日盖特视频（9分56秒）全文字版](/content/gnews/3/README.md)
+### [导弹突袭伊拉克北部城市](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [我们只为救人而来](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【乌克兰救援】妮可战友向来自罗马的新闻媒体介绍新中国联邦和法治基金的乌克兰救援行动](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [七哥金句：韩正的一句话](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [郭文贵先生2022年3月12日盖特视频（9分56秒）全文字版](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥金句：新中国联邦的正道主义](/content/gnews/4/README.md)
+### [七哥金句：新中国联邦的正道主义](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [美日开展印太地区首次大规模双栖演习](/content/gnews/5/README.md)
+### [美日开展印太地区首次大规模双栖演习](/content/gnews/15/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [视频|新中国联邦法治基金乌克兰人道救援信息](/content/gnews/6/README.md)
+### [视频|新中国联邦人：崭新的中国形象](/content/gnews/16/README.md)
  ` MOSVIDEO`
 
-### [视频|新中国联邦人：崭新的中国形象](/content/gnews/7/README.md)
- ` MOSVIDEO`
-
-### [俄罗斯立足于在中东和非洲增加对北约的威胁](/content/gnews/8/README.md)
+### [俄罗斯立足于在中东和非洲增加对北约的威胁](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [视频|李政道与巫宁坤交错而迥异的人生](/content/gnews/9/README.md)
- ` MOSVIDEO`
-
-### [视频|美国民调显示：民众认为中共对美国威胁远大于俄罗斯](/content/gnews/10/README.md)
- ` MOSVIDEO`
-
-### [PayPal宣布将封锁所有俄罗斯人电子账户](/content/gnews/11/README.md)
+### [PayPal宣布将封锁所有俄罗斯人电子账户](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [七哥金句：互联网和媒体](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [有声|新中国联邦法治基金救援中心获最佳位置 引世人瞩目](/content/gnews/13/README.md)
+### [有声|新中国联邦法治基金救援中心获最佳位置 引世人瞩目](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [3/12/2022 文贵盖特：中共开始在中东制造事端，3、4次大直播后世界将发生大事！战友们在乌克兰给世界展现出新中国联邦人是最伟大、纯洁和以正道主义为基础的新新人类，新中国联邦一定能灭共](/content/gnews/14/README.md)
+### [3/12/2022 文贵盖特：中共开始在中东制造事端，3、4次大直播后世界将发生大事！战友们在乌克兰给世界展现出新中国联邦人是最伟大、纯洁和以正道主义为基础的新新人类，新中国联邦一定能灭共](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|因使用爆炸式增长，拜登签署关于加密货币的命令](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [俄乌两军发生激烈巷战 距离乌首都基辅不足5公里](/content/gnews/16/README.md)
+### [俄乌两军发生激烈巷战 距离乌首都基辅不足5公里](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [以爱之名给孩子打疫苗是一场悲剧](/content/gnews/17/README.md)
+### [以爱之名给孩子打疫苗是一场悲剧](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年3月12日晚](/content/gnews/18/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年3月12日晚](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [没有证据支持俄罗斯关于乌克兰生物武器计划的说法](/content/gnews/19/README.md)
+### [没有证据支持俄罗斯关于乌克兰生物武器计划的说法](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [3/11/2022 文贵直播：中共支持俄罗斯打乌克兰已将海外华人置于最危险的境地，但我们的乌克兰救援为华人面临的黑暗带来了本质性改变](/content/gnews/20/README.md)
- ` 秘密翻译组-北美组`
-
-### [【乌克兰救援】妮可战友波兰报纸FAKT介绍新中国联邦和法治基金的乌克兰救援行动](/content/gnews/21/README.md)
+### [【乌克兰救援】妮可战友波兰报纸FAKT介绍新中国联邦和法治基金的乌克兰救援行动](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌克兰：俄罗斯有意永久控制扎波罗热核电厂](/content/gnews/22/README.md)
+### [乌克兰：俄罗斯有意永久控制扎波罗热核电厂](/content/gnews/26/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [俄军接近基辅](/content/gnews/23/README.md)
+### [俄军接近基辅](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌克兰指控俄军指射杀七平民 包括一儿童](/content/gnews/24/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [梅迪卡—乌克兰难民救援地](/content/gnews/25/README.md)
+### [梅迪卡—乌克兰难民救援地](/content/gnews/28/README.md)
  ` 历史组`
 
-### [疫苗加强针导致澳中长跑冠军患上心包炎，中断比赛](/content/gnews/26/README.md)
+### [疫苗加强针导致澳中长跑冠军患上心包炎，中断比赛](/content/gnews/29/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [乌克兰指责俄罗斯轰炸儿童医院](/content/gnews/27/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [多名俄罗斯富豪在欧盟被抓，财产被没收](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [六枚火箭袭击了库尔德电视台、美国驻伊拉克领事馆](/content/gnews/29/README.md)
+### [六枚火箭袭击了库尔德电视台、美国驻伊拉克领事馆](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
 
-### [日本向乌克兰提供1亿美元人道主义援助](/content/gnews/30/README.md)
+### [日本向乌克兰提供1亿美元人道主义援助](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯称可能扣押西方公司留下的资产](/content/gnews/31/README.md)
+### [俄罗斯称可能扣押西方公司留下的资产](/content/gnews/32/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [乌克兰救援前线视频（四）](/content/gnews/32/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [七国集团与欧盟加大对俄罗斯的制裁力度](/content/gnews/33/README.md)
  ` 美国政要直译推`

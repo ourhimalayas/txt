@@ -2,28 +2,48 @@
 ---
 
 
-## 多名俄罗斯富豪在欧盟被抓，财产被没收
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2154277/)
+## 梅迪卡—乌克兰难民救援地
+` 历史组` [轉載自GNews](https://gnews.org/zh-hans/2154344/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-12.jpg)多名俄罗斯富豪在欧盟被抓，财产被没收 网络图片
-据美国之音3月13日报道，意大利当局没收了俄罗斯亿万富翁安德烈·梅尔尼琴科价值5.8亿美元、世界上最大的超级游艇。意大利政府在此之前还分别拘捕了另外两个俄罗斯富豪根纳迪·蒂姆琴科和阿列克谢·莫尔达绍夫，并没收了他们的豪华游艇。这是欧盟就俄罗斯发动乌克兰战争而采取的一部分制裁行动。这些富豪为普京政府提供了实质性的资金来源。
-
-梅尔尼琴科是俄罗斯最大的煤炭企业“西伯利亚煤炭能源公司SUEK的大股东，2021年排名福布斯全球富豪榜第105位。梅尔尼琴科是普京最内圈的人物之一，与俄罗斯政府关系密切。他与37名商界代表受邀参加2月24日与普京的会面，显示他支持破坏乌克兰领土完整、主权和独立的行动或政策，破坏或威胁到乌克兰的稳定与安全。
-
-普京发动乌克兰战争，侵犯一个独立国家的领土完整和主权利益，国际法庭正在调查普京的战争罪及危害人类罪。这些富豪虽然没有参加普京的侵略战争，但是对普京政府的经济援助等同于犯罪。这些富豪理应被制裁。
-
-新闻参考链接：[https://www.voachinese.com/a/italy-seizes-580-million-russian-superyacht-over-sanctions-20220312/6482324.html](https://www.voachinese.com/a/italy-seizes-580-million-russian-superyacht-over-sanctions-20220312/6482324.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山农场教育部-马克文、朱丽叶
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-81.png)
+Medyka（梅迪卡）是波兰东南部喀尔巴阡省普热梅希尔县的一个村庄，与乌克兰接壤。梅迪卡是Gmina Medyka市的所在地，2006年，该村的人口约为2,800人。梅迪卡是波兰和乌克兰之间连接两国的主要公路过境点之一，2022 年俄罗斯入侵乌克兰，梅迪卡是一个可以接受越过边境的乌克兰难民的地点。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/copy-2.jpg)
+
+梅迪卡的历史可以追溯到中世纪，这座城堡在 14 世纪就已经存在。1607年梅迪卡的罗马天主教圣彼得和保罗的木结构教堂建成，1663 年该定居点被授予Starostwo(王冠领土) 地位。
+
+根据历史资料，二战期间，梅迪卡曾经被苏联和德国占领过，最终于1948 年修改边界时归还给波兰。几十年来，波兰东南部小镇梅迪卡的市场一直销售香烟、伏特加、玩具等商品，广场上排列着小商店和折扣店，十分受人们青睐。乌克兰的顾客喜欢越过边境，批发这些商品，他们带回乌克兰并在附近的西部市场上转售这些商品。自俄罗斯入侵乌克兰后，数万名逃离战争的乌克兰人都要经过这里。边境口岸完全为难民开放，逃难的人群几乎都是妇女和儿童。为了到达梅迪卡边境， 他们必须跋涉几百公里。
+
+新中国联邦、法制基金第一时间组建国际大救援团队奔赴战区，派出大巴车救出几百个儿童、老师、妇女。随后，救援团队进一步扩大救援区域，在梅迪卡建立救援基地。在没有红十字会等任何其它组织或国家人道救援的状况下，搭起巨大帐篷，还在帐篷里提供能散发热量的取暖设备，为在寒冷天气下长途跋涉数百公里的难民提供临时安身之所。
+
+在梅迪卡这个乌克兰与波兰边境口岸的小镇，突然出现了来自世界各地会说各种语言华人组成的国际救援队并提供最好的设施去挽救乌克兰难民，新中国联邦、 法制基金在梅迪卡的救援行动立即成了世界各国媒体的焦点。
+
+参考来源：
+
+[Medyka](https://en.wikipedia.org/wiki/Medyka)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-45.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-81.png)
+
 
 
 

@@ -2,41 +2,35 @@
 ---
 
 
-## 有声|因使用爆炸式增长，拜登签署关于加密货币的命令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2154786/)
+## 美日开展印太地区首次大规模双栖演习
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2155031/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据美联社3月10日报道，美国总统乔·拜登周三签署了一项关于政府监管加密货币的行政命令，敦促美联储探索央行是否应该介入并创建自己的数字货币。根据行政命令，拜登还指示财政部和其他联邦机构研究加密货币对金融稳定和国家安全的影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1000-2.jpeg)图源网络
-财政部长珍妮特·耶伦表示，这项努力将“促进一个更公平、更具包容性和更高效的金融体系”，同时打击非法金融，防止金融稳定和国家安全面临的风险。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/J.png)english.kyodonews.net
+据日本共同社3月13日报道，日本陆上自卫队和美国海军陆战队已经开始了为期三周的两栖演习，以提高其对突发事件的反应能力，应对中共国正在扩大其海上实力和范围的举动。
 
-拜登的高级经济和国家安全顾问布赖恩·迪斯和杰克·沙利文分别表示，该命令为美国建立了第一个全面的联邦数字资产战略。
+据尼基·加莱戈斯（Nikki Gallegos）上尉说，这次演习将在日本中部持续到3月25日，是日本陆上自卫队两栖旅和美国第31海军陆战队远征部队在印太地区的 “首次大规模”演习。
 
-据白宫称，100 多个国家已经开始或正在试行自己的数字主权货币。在拜登的行政命令发布后，比特币和加密货币相关股票周三获得提振。
+日本陆上自卫队参谋长吉田义秀将军在本月早些时候的一次新闻发布会上说，有大约400名陆上自卫队成员和600名来自冲绳的美国海军陆战队成员参加这次训练，这对 “加强两支部队之间的互操作性”非常重要。
 
-据 Coindesk 称，比特币价格上涨 9.8% 至 42,211 美元。加密货币交易所 Coinbase Global 的股票在午盘交易中飙升 9.3%，而在线经纪公司 Robinhood Markets 上涨 4.5%。专注于加密货币挖矿的 Riot Blockchain 股价上涨 11.5%。数字支付平台也有所增长。PayPal 上涨 4.9%，Block 上涨 10.55%。
+在演习中，为保护日本偏远岛屿于2018年成立的日本陆上自卫队两栖快速部署旅的成员和美国部队将从他们在海上或空中的装备上登陆，然后在地面上进行战斗。
 
+据官员称，为了运送这支被称为日本海军陆战队的大队，日本陆上自卫队的V-22 Osprey倾斜旋翼飞机将首次参加联合演习。
 
+中共国在该地区的各个地点都宣称有领土要求，并经常向东海日本管理的尖阁诸岛（钓鱼岛）附近的水域派遣船只。
 
-文字版原文：[因使用爆炸式增长，拜登签署关于加密货币的命令](https://gnews.org/zh-hans/2148980/)
+“美国第31海军陆战队远征部队和日本陆上自卫队两栖快速部署旅是第一岛链内训练有素和准备最充分的两支危机反应部队。”美国部队的指挥官迈克尔·纳科尼（Michael Nakonieczny）上校说，并指出演习的主要目的是 “阻止竞争者和对手的侵略”。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+**评论：**就在该新闻发出的几乎同一时间，当地时间3月13日，天空台报道，美国驻伊拉克库尔德斯坦的领事馆被火箭弹击中。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+郭先生大直播里说过不止一次，俄罗斯入侵乌克兰，普京的背后金主是习与中共。俄乌交战正酣，中共必在中东搞出大动静，然后习再打台湾以实现其称霸亚洲的野心。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+美日不断开展联合演习，眼下的双栖演习同样意在应对中共的野心和疯狂。第三次世界大战已然开战，欧洲、中东、亚洲都将卷入战火硝烟。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+原文链接：
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[https://english.kyodonews.net/news/2022/03/a3e2d02bc75b-japans-gsdf-us-marines-hold-amphibious-drill-as-china-power-grows.html](https://english.kyodonews.net/news/2022/03/a3e2d02bc75b-japans-gsdf-us-marines-hold-amphibious-drill-as-china-power-grows.html)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**编译 ****发布：意大利达芬奇农场Roma**
 
  
 
