@@ -2,45 +2,26 @@
 ---
 
 
-## 中共在中东局部会有何种动作
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2155906/)
+## VAERS在2022年前两个月报告的心肌炎和心包炎病例已接近去年一半
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2155952/)
 
-撰稿：两万五，爆大料
-![](https://lh3.googleusercontent.com/YJjSyEb2-3XDx2PQ6XnSlFwyMHUxYffs5qHAh_0iRhvYF2lLiZZgkQ82zD-Ae3h6ylPEx1sau9Aa9DiWWbXwZCvh1yhfV_QCz3YyQQvfkQK6cnQEaOKV8TMVKSwhraWeGg6BMigF)
-（图片来自网络）
+#### 翻译/撰稿：zzballack
 
-**2022年3月13日，七哥在盖特中透露中共会在中东局部会有一系列小动作，本文通过网页收集了一下目前中东的有关消息，下面是一则邪恶轴心国之一伊朗的消息：“伊朗导弹攻击伊拉克库尔德斯坦地区首府埃尔比勒，击中了美国领馆”，见图1。中共媒体发布消息，指出“连续传出坏消息，伊朗打响复仇第一枪！多枚导弹深夜发射”，见图2。伊朗为何在俄罗斯进攻乌克兰的情况下，在中东发起局部战火，本文进行分析。**
-![](https://lh4.googleusercontent.com/mubgVVt0nThxqhPHf5Zv4S6lHUwc-9U8lsUNHCXKnYjm1FO8ixUjOFK8J67dxLb_use-SHDx2B1ie-ZAn1ILyoUgNu7LphzaDsc4dui-X-6-BoRseLlIZDJSUOc5xZ5OVeWtgtjT)
-图1视频拍摄
-![](https://lh3.googleusercontent.com/xcT8jeGWOPeK666JdHxfIe76FQ0g3ujEr6Dc6lYBNYcC7ZU4OY7kz06FiGIxHeZ5y7FXpAenq420DT8Fc-KoqWmbwFugU-R8bTkg3Tmp90qFSYeVqpNJdZmnDwwajxzZTdn2UutY)
-图2视频拍摄
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-60.jpg)图片来源：Cardiovascular Business
+据《网关专家》（Gateway Pundit）3月11日报道，疫苗不良反应报告系统（VAERS）的最新数据显示，2022年前2个月报告的心肌炎和心包炎病例数已接近去年全年的一半。这表明原本健康的美国人患上这种威胁生命的心脏疾病的速度正在加快。
 
-- 
+自实验性的新冠疫苗推出以来，美国的心肌炎病例呈爆炸式增长，甚至在通常不太可能患上该疾病的儿童和年轻人群体也出现了这一趋势。美国媒体《The Blaze》的高级编辑丹尼尔·霍罗威茨 (Daniel Horowitz) 对VAERS的数据进行了解析：“2021年，VAERS报告的心肌炎和心包炎病例有24177个；而在2022年，仅截止到2月25日，就已报告了11289个病例，几乎是去年总数的一半。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-37.png)图片来源：the gateway pundit
+如果该数字照此速率增长，那么今年与疫苗有关的心肌炎病例将是去年的三倍多。这还只是VAERS的内部数字，更不用说VAERS存在严重漏报和少报。
 
+对数据进行进一步剖析后发现了一些更加令人震惊的趋势，而且这些问题正在加倍恶化。最令人担忧的是，青少年和年轻人正经历的情况比其他年龄段更为糟糕。无论哪个年龄段，心肌炎和心包炎最常见于接种第二剂疫苗后。通过下面这张按照年龄和剂量划分的心肌心包炎病例分布图可以看出，17和18岁的青少年患上心肌炎或者心包炎的比率最高，尤其是在第二剂疫苗之后。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-21.png)图片来源：the gateway pundit
+然而可悲的是，美国政府仍在执意推动疫苗接种，甚至正在对幼儿和婴儿进行疫苗测试。数月来，罗伯特·马龙（Robert Malone）博士和彼得·麦卡洛（Peter McCullough）医生等良心人士一直在抨击当局的鲁莽行为，特别是他们最近决定批准为幼儿接种新冠疫苗。麦卡洛博士引用了多项研究来支持他的声明：疫苗诱发的心肌炎是一个迅速增长的问题，比美国公共卫生“专家”最初预测的情况至少多出50%。这种情况已变得如此普遍，以至于12至17岁孩子在接种疫苗后更有可能因心肌炎住院，而不是新冠病毒本身。
 
-外界解读本次伊朗发动导弹攻击的原因是与伊朗核专家法赫里扎德和伊朗伊斯兰革命卫队高级将领沙赫丹相继遭遇以色列暗杀有关。伊朗方面解释，袭击的目标是摩萨德在伊拉克的设施。摩萨德为以色列情报和特殊使命局，与[美国中央情报局](https://baike.baidu.com/item/%E7%BE%8E%E5%9B%BD%E4%B8%AD%E5%A4%AE%E6%83%85%E6%8A%A5%E5%B1%80/296816)、[克格勃](https://baike.baidu.com/item/%E5%85%8B%E6%A0%BC%E5%8B%83/124029)和[英国军情六处](https://baike.baidu.com/item/%E8%8B%B1%E5%9B%BD%E5%86%9B%E6%83%85%E5%85%AD%E5%A4%84/7511811)，并称为“世界四大[情报机构](https://baike.baidu.com/item/%E6%83%85%E6%8A%A5%E6%9C%BA%E6%9E%84/84987)”。
+新冠疫苗造成的伤害在未来数年仍将持续，无数人将因为这种实验性疫苗而遭受不必要的伤害或者死亡。除了心肌炎病例，自大流行开始以来，VAERS还报告了100多万个不良反应病例以及2万个死亡病例，这些数字只是冰山一角。在过去，如果疫苗导致的死亡人数达到两位数，就会被撤回，更不用说数万人了。强迫人们接种这种实验性疫苗完全是犯罪，是纯粹的邪恶，必须中止。
 
-本文认为伊朗借与“地缘宿敌”以色列的恩怨发动战火，目的是挑起中东的内乱，从而配合邪恶轴心国俄罗斯、中共让全球石油能源价格高涨。当石油价格高涨时，中共认为美国民众会因为高油价而出现内部动乱，中共可以高油价威胁西方民主社会，从而逼迫美国及欧盟与中共私下进行交易，筹码是台湾和乌克兰。
-
-综上，本次中东战争的大幕才刚刚开始，中共的邪恶目的及计划会如何发展，让我们拭目以待七哥的下一次爆料。
-
-参考消息：
-
-
-
-> 突发 | 刚刚伊朗发射多轮导弹，袭击了美国伊拉克埃尔比勒领事馆，造成重大伤亡，具体数字还未见报。根据英文推上几个记者观点，这是伊朗对普京的策应行动，而且他们还透露，拜登不会对伊朗此次袭击进行报复。
-> 接下来形势可能远比我们想象要复杂危险，想近期出国显然不太合适…[pic.twitter.com/mfrhVlZ2UN](https://t.co/mfrhVlZ2UN) [https://t.co/hXrSqPQX8O](https://t.co/hXrSqPQX8O)
-> — 昆侖 (@Kunluntalk) [March 12, 2022](https://twitter.com/Kunluntalk/status/1502789086326665217?ref_src=twsrc%5Etfw)
-
-
-
-[https://www.163.com/dy/article/H1QGC4B2054452QT.html](https://www.163.com/dy/article/H1QGC4B2054452QT.html)
-
-*审核：文筝*
-
-*发布：yin*
-
-![](https://lh6.googleusercontent.com/w8LMlCAeYCCPuKxveGdvcyeqg1Dd6HHwfVuUxJ34hpaMbTL0LD8zVPo5ACa3FuktSvFOIcmRQ-dNekv9ZFiBBUkbYOsSDApxh1ol6EeU7ac8c05cmsznH-u-3PJcLeMP0sErzQ3W)
+新闻来源：[Vaccine-Injuries SKYROCKET: Two Months into 2022, Vaccine-Related Myocarditis Reports in VAERS Have Surged to Nearly Half the Total Reported in 2021](https://www.thegatewaypundit.com/2022/03/vaccine-injuries-skyrocket-two-months-2022-vaccine-related-myocarditis-reports-vaers-surged-nearly-half-total-reported-2021/)
 
  
 

@@ -2,157 +2,37 @@
 ---
 
 
-## 爆料百科 &#8211; 邪教组织
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2155940/)
+## 2022/03/10 疫苗导致所有年龄组过量死亡
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2156111/)
 
-作者：美国纽约香草山农场-爆料百科
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中共统治的70年间，
+[![](https://express.adobe.com/page/V5LLOBcanHc2y/images/363eae43-fcab-45c7-aa9d-9197a9d8b71e.png?asset_id=451210a6-facb-4976-a0dd-4bfc61cfc322&amp;img_etag=%22da8dd3e2d74ef9531a610f0e3e0906b3%22&amp;size=2560)](https://express.adobe.com/page/V5LLOBcanHc2y/images/363eae43-fcab-45c7-aa9d-9197a9d8b71e.png?asset_id=451210a6-facb-4976-a0dd-4bfc61cfc322&amp;img_etag=%22da8dd3e2d74ef9531a610f0e3e0906b3%22&amp;size=1024)
+**简评：**
 
-During the 70 years of CCP rule
+CDC疾控中心数据库有各个年龄段的数据，一位保险业分析师拿到这些数据后，按年龄进行细分，得出超额死亡的结论。从夏天进入秋天，随着强制疫苗和加强针的推行，在25至44岁的千禧年龄组，有61000名千禧一代死亡，超额死亡率增加了84%。这是有史以来最严重的超额死亡率，等于千禧一代在2021年下半年经历了一场导致58000名美军战死的越南战争。这就是疫苗导致的所有年龄组过量死亡的直接证据，是政府通过强制疫苗杀人。政客们和福奇等人在躲避。
 
-将许多组织定义为邪教组织。
+[**GETTR视频链接**](https://gettr.com/post/pzlfdxc99b)
 
-it defined many organizations as cults
+**视频字幕：**
 
-而中共对中国人民犯下的罪行，
+**战斗室嘉宾**：这是CDC（疾控中心）自己的数据，各种年龄阶段混杂在一起。我的保险业专家，前南区华尔街分析师进入了CDC数据库。我们在找其他东西，但我们发现的东西相当令人震惊。他拿到这些数据，花费了一些时间和精力，做了很多功课，按年龄进行了细分。他为每个年龄组建立了基线，得出超额死亡的结论。
 
-And the crimes committed by the CCP against the Chinese people
+图表四显示千禧年龄组，即25至44岁，进入秋季后，超额死亡率增加了84%。这是有史以来，我认为最严重的超额死亡率。在图表四，先给你一个概念， 你看到强制疫苗和加强针在秋季引起加速（死亡），然后到年底又一次加速。你看到的那个数据下降是报告的问题。千禧年龄段的死亡需要时间来报告，因为它们通常不是在医院死亡。因此该数据将被更新，可能显示出连续的令人不安的趋势。
 
-悉数符合邪教组织的特征。
+从夏天进入秋天，随着强制疫苗和加强针的推行，有6万1千多名千禧一代死亡。基本上，千禧一代在2021年下半年经历了一场越南战争，美军有5万8千人死于越南战争，所以这一代人刚刚经历了越南战争。我认为这就是疫苗导致的所有年龄组过量死亡的直接证据。
 
-all fit the characteristics of a cult
+米歇尔.奥林斯基拒绝回答罗恩.约翰逊参议员的信件，这不是巧合。他们在躲避，福奇不见了，她不见了，他们都在躲避。所以我要把话说出来，这是一个老话题，但它需要被重新引入对话中。这就是我们所说的“政府的杀戮”，政府通过强制疫苗杀人。
 
-1. 教主崇拜。
+**班农先生**：如果你是正确的，这太具有爆炸性了，特别是说千禧一代，千禧一代在2021年经历了一场越战。
 
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-First, cult leader worship
 
-从“东方红，太阳升，中国出了个毛泽东”，
+*编辑：【英国伦敦喜庄园编辑部】*
 
-from “Dongfanghong, the sun rises, China has a Mao Zedong”
-
-到当今的为我独尊的习太阳。
-
-to today’s the exclusive Xi Sun
-
-- 精神控制。中共建造“防火墙”，
-
-
-Second, mind control. The CCP built a “firewall”
-
-全面控制教育和舆论，洗脑国民，
-
-to fully control education, public opinion and brainwash the nationals
-
-让人民相信“爹亲，娘亲，不如党亲”。
-
-make the people believe that “father and mother are not as close as the CCP”
-
-- 编造邪说。共产主义早已被世界唾弃，
-
-
-Third, fabricated heresy. Communism has long been spurned by the world
-
-中共却包装美化共产主义，
-
-yet the CCP packages and glorifies communism
-
-将所谓的“毛思想”、“习思想”灌输给中国人民。
-
-and instilled the so-called “Mao Thought” and “Xi Thought” into the Chinese people
-
-- 聚敛钱财。
-
-
-Forth, gather wealth
-
-中共早期打着“打土豪，分田地”的幌子，
-
-Early in the CCP’s rule, under the guise of “fight the landlord and share the land”
-
-实为将土地收为中共所有。
-
-land was actually taken into the CCP’s possession
-
-海航王健、马云等相继卸磨杀驴，
-
-HNA Wang Jian, Jack Ma and others were killed as donkeys after the completion of their works
-
-就是当代版本“打土豪，分田地”。
-
-which is the current version of “fight the landlord and share the land”
-
-- 秘密结社。中国共产党实属外来组织，
-
-
-Fifth, secret associations. The CCP was a foreign organization
-
-成立早期活动均不公开透明。
-
-and its activities were not open and transparent in its early years
-
-- 对抗社会。
-
-
-Sixth, confront society
-
-中共制造各种政治运动，
-
-The CCP created various political movements
-
-“文化大革命”，数千万人民丧失。
-
-and the “Cultural Revolution” killed tens of millions of people
-
-制造种族大屠杀，新疆大屠杀、西藏大屠杀、香港大屠杀。
-
-It created genocide, the Xinjiang massacre, the Tibetan massacre, the Hong Kong massacre
-
-此外，中共还篡改历史，
-
-In addition, the CCP has falsified history
-
-掩盖篡权事实，
-
-and covered up the fact of usurpation of power
-
-谎称“没有共产党就没有新中国”，
-
-falsely claimed that “without the CCP there would not be a new China”
-
-“拯救56个少数民族”。
-
-and “save the 56 minorities”
-
-中共就是当今世界最大的邪教组织。
-
-The CCP is the largest cult in the world today
-
-摘要： 70年间，中共的累累罪行符合邪教组织的六大特点，
-
-Abstract: Over the period of 70 years, the cumulative crimes of the CCP fit the six characteristics of a cult:
-
-即教主崇拜、精神控制、编造邪说、聚敛财富、秘密结社、对抗社会。
-
-That is, cult leader worship, mind control, fabricated heresy, gather wealth, secret associations, and confront society
-
-此外，中共还篡改历史。中共就是当今世界最大的邪教组织。
-
-In addition, the CCP has falsified history. The CCP is the largest cult in the world today
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
-
-编辑：雪梨
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*字幕：雨中漫步* *| 听写：云岭 | 翻译：Blue**| PR：Roberts**|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+[![](https://express.adobe.com/page/V5LLOBcanHc2y/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/V5LLOBcanHc2y/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

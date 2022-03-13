@@ -2,24 +2,47 @@
 ---
 
 
-## 俄罗斯利用社交媒体招募雇佣兵参加俄乌战争
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2156172/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2156298/)
 
-#### 翻译/撰稿：zzballack
+整理：枳实
+美工：精灵蓝
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-61.jpg)图片来源：The Daily Beast
-据《新闻极限》（Newsmax）3月12日报道，英国广播公司（BBC）本周六报道说，俄罗斯正在利用社交媒体平台和私人通讯APP招募一支雇佣兵军队，与俄军一起在乌克兰作战。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/1-129.png)图片：雅典娜农场设计组 精灵蓝
 
-BBC采访了一名来自瓦格纳集团 (Wagner Group)的佣兵，这个雇佣兵组织据信是由一名俄罗斯亿万富翁资助的。该佣兵表示，该组织在Telegram平台上联系其成员，在乌克兰提供“野餐”。在入侵乌克兰的头几天，他的部队被派往哈尔科夫（Kharkiv）并成功地完成了一项任务，获得了2100美元的报酬，然后返回俄罗斯。
 
-除了通过私人通讯，俄罗斯社交媒体平台“VK”也出现了一个自称是安全活动的网页，在俄罗斯入侵乌克兰的第一个星期发布了一则雇佣军征兵广告，呼吁其他前苏联国家的“卫兵（Guards）”加入，并承诺免除对他们出生地的通常限制，除了那些出生在前苏联国家格鲁吉亚、以及欠债或有犯罪记录的人。
+雅典娜疫情更新（2022年 3月12日）
 
-《耶路撒冷邮报》（Jerusalem Post）3月11日报道说，瓦格纳集团这个神秘的雇佣兵组织是在2014年俄罗斯吞并克里米亚时在乌克兰的战斗中发展起来的，然后出现在叙利亚与俄罗斯人一起战斗，在叙利亚内战中支持巴沙尔·阿萨德 (Bashar al-Assad)。领导联合国雇佣军使用问题工作组的索查·麦克劳德 (Sorcha MacLeod)告诉邮报：“从法律角度来说，瓦格纳并不存在，因为雇佣兵是违反俄罗斯和国际法律的。”
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-此外据BBC报道，普京3月11日批准使用约16000名来自中东的志愿者战士参加行动。与此同时，乌克兰总统本月早些时候宣布成立一个“国际军团”，呼吁志愿者加入作战，据称已有来自52个国家的2万名志愿者加入了战斗。
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-45.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-137.png)
+[2022年3月12日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月12日改进.pdf)
 
-新闻来源：[Report: Russia Using Social Media to Recruit Mercenaries in Ukraine Battle](https://www.newsmax.com/globaltalk/russia-ukraine-war-putin/2022/03/12/id/1060891/)
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
