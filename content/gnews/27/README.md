@@ -2,18 +2,16 @@
 ---
 
 
-## 西媒头条 — 第187期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2156718/)
+## 攻击爆料革命 绝无好下场
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2156869/)
 
-**制作：蚂蚁兄弟**
+文贵大直播20220313
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+撰稿：Poplar（盘古）文晓（樱花）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220313.001.png)
-
-***发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-8.jpeg)
+美工：Maggie（秘翻）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-5.png)
+*发布：Theodosia*
 
  
 

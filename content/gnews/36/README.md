@@ -2,30 +2,34 @@
 ---
 
 
-## 在世界媒体眼中的新中国联邦救援行动
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156255/)
+## 前线视角: 法治基金和其他国际组织的救援设施
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156257/)
 
-作者：银河系农场 骄子
+作者：纽约香草山农场 Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月12日，波兰梅迪卡救援前线报道，越来越多的国际媒体前来采访法治基金新中国联邦乌克兰救援行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-13-at-9.14.03-PM.png)
-近两日，不断有欧洲国家的媒体前来采访，包括意大利电视台、波兰最大报纸、阿拉伯电视台、波斯尼亚和黑塞哥维那电视台。采访的媒体记者都对法治基金和新中国联邦，持有高度赞扬。
+3月12日，救援前线团队记者Nicole 报道，法治基金搭建的大型帐篷正式进入接待难民工作，团队一开始运营就引来广泛关注。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-13-at-9.27.25-PM.png)
+在梅蒂卡难民营，有两个历史悠久，资金雄厚的国际难民营救组织的帐篷，一个是国际红十字基金会，一个是IOM。Nicole用镜头录下并描述了他们的帐篷与设施。
 
-值得注意的是，媒体的问题很多集中在区分中国共产党和中国人。意大利的记者直接问战友Nicole，你们是代表中国人的吗？Nicole战友为这位记者介绍新中国联邦和法治基金，并说我们是要灭掉共产党的中国人。中国人都是热爱和平善良友好热爱自由法治的人，共产党甚至为了破坏此次人道救援，黑客了联系邮箱。Nicole还邀请媒体参观了帐篷和食物，并邀请他们帮忙转发救援讯息。
+走进IOM约三十平米的帐篷，可见其设施之简陋，一张大桌子上堆着一些物品，没有椅子。旁边一辆小推车，一个垃圾桶，没看见任何可供难民休息的设备，或取用的热水与食物，也没工作人员等候。
 
-前几日，在美国、日本等主流媒体的现场报道中，都有以新中国联邦的帐篷和国旗为背景。在波兰的乌克兰救援现场，新中国联邦是所有媒体无法回避的最大最专业的救援组织。此次救援是最好的机会，让世界分开共产党和中国人。
+Nicole再来到红十字约二十平米大的军用帐篷外，找不到入口，询问后，工作人员拉开拉锁，看見里面有两位难民，设施也是非常简陋。但红十字会的帐篷，占据着难民营最佳位置，难民出关后的第一停留地点。
 
-参考链接：
+对比一下法治基金和新中国联邦的大帐篷，250平米，外观白色醒目，方正稳健，里面设施齐全，方便取用，面面俱到，工作人员义工志愿者服务周到细致。
 
-1. [American woman struggles to bring her family members to U.S. after fleeing Ukraine](https://www.cbsnews.com/video/american-woman-struggles-to-bring-her-family-members-to-us-after-fleeing-ukraine/#x)
-2. [War in Ukraine: UN says more than 2 million people have fled the country](https://www.france24.com/en/video/20220308-war-in-ukraine-un-says-more-than-2-million-people-have-fled-the-country)
+当明道战友告诉国际红十字会和IOM工作人员，新中国联邦战友们是第一次在战区做营救工作时，他们都不敢相信，连声夸赞：你们做得太好了！ 你们法治基金有财力准备这么好的设施。
 
+Nicole 最后说，难民现在越来越多，红十字会和IOM， 以及大兵们，直接把难民带到法制基金帐篷外面排起了长队，等待进入大帐篷。
+
+新中国联邦的前线战友们，在国际人道救援战场上，发挥着不可或缺的重要作用，并且越来越被世界所瞩目，其地位无可替代。
+
+参考链接：[03/13/2022 早间新闻](https://gettr.com/streaming/pzrys562af)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-编辑：文真
+编辑：玫瑰圓
 总编：Zion文恩
-审核：文真
+审核：飞虹
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**

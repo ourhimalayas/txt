@@ -2,45 +2,48 @@
 ---
 
 
-## 俄乌展开第三轮谈判,乌方吁停止攻击平民
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2157527/)
+## 有声|《甜甜的巧克力》
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2157698/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image002-6.jpg)乌克兰（左）和俄罗斯（右）代表团展开第三轮会谈。美联社
-**俄罗斯国际传真社报导，俄国与乌克兰的代表团已展开第3轮谈判。乌克兰谈判代表在会前呼吁俄方，停止攻击平民的行动。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+我们的家被匆匆塞进一个旅行箱
+妈妈的大手紧紧攥着我的小手
+一步一踉跄 在黑黑的寒夜里
+我们身后的家被轰隆隆炸成了平地……
 
-俄罗斯入侵乌克兰的攻势进入第12天，乌俄双方展开第3轮停战会谈，乌克兰谈判代表波多利雅科在会前推文呼吁俄国，停止攻击平民。
+远远的 有篝火 有热气
+那里有一个营地！
+有个阿姨微笑着塞给了我一块巧克力…..
 
-克里姆林宫稍早详列俄罗斯军队在乌克兰停战的条件，发言人佩斯科夫说，乌克兰须停止军事行动、把中立地位入宪，以及承认克里米亚是俄国领土、乌国东部两个分离主义区域独立。
+帐篷上挂着湖蓝色的旗子
+上面闪着金黄色的七芒星
 
-佩斯科夫告诉路透社，俄国已告知乌克兰，只要基辅满足俄方条件，俄国准备「随时」停止军事行动。**
+那旗子上的湖蓝色和金黄色
+和我们国旗上的蓝色和黄色
+很像 很像！
 
+美丽的阿姨微笑着 看着我
+甜甜的巧克力在嘴里化了
+帐篷很大， 火炉很暖……
 
+什么时候 我能回家？
+想念爷爷 奶奶 还有爸爸…..
 
+文字版原文：[《甜甜的巧克力》](https://gnews.org/zh-hans/2146938/)
 
+音频处理：Fei797
+发稿：Fei797
 
-[【援引连结】](https://tw.appledaily.com/international/20220307/OVYK34RTVBCALO3CZEWS3OX2IQ/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

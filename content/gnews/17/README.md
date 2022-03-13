@@ -2,25 +2,31 @@
 ---
 
 
-## 乌克兰教堂神父喊台湾万岁，感谢善款物资鼓舞人心！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2157231/)
+## Fudan University starts quasi closed campus management
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2157417/)
 
-乌克兰遭俄罗斯军事入侵，民众流离失所。台湾由外交部透过赈灾基金会成立捐款专户，善款不断涌入，累计逾5.7亿元。
+Translated by：TokyoSakura/英翻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-95.jpg)
+[Photo link](http://sh.people.com.cn/n2/2021/1126/c134768-35023407.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/614e14a5-c716-4309-9445-04c59580f635.jpg)图片来源：民视新闻网
+Shanghai Fudan University started quasi-closed campus management from 8pm today (13th), with current students and faculty staying on campus and conducting nucleic acid testing as required.
 
-外交部长吴釗燮日前也宣布，进行第一次提拨捐赠1亿元给逃离至波兰的乌克兰人。另外，我方驻教廷大使馆也到乌克兰圣索菲亚大教堂代表台湾政府捐款，神父特别以加油手势说道「Viva Taiwan（台湾万岁）」来为台湾加油。
+According to CCTV news, Fudan University’s notice shows that the campus takes a separate gate area as a unit, implements relatively closed management, teachers and students do not flow across regions, inter-campus shuttle buses are suspended. The quasi-closed management time is tentatively set for two weeks, and the end time will be notified.
 
-简评：台湾援助乌克兰值得称赞，如今乌克兰的今天，估计会是台湾的明天，希望台湾在援助乌克兰的同时，自身做好防御，谨防中共偷袭！世界与乌克兰同在，世界与台湾同在！
+Fudan will implement strict management of leaving or entering the school. Teachers and students who have a fixed residence in Shanghai can apply to leave school and stay at home and leave the school orderly after approval. If there is a real need for returning to school, teachers and students who left school can apply to their unit and return to school only after examination and approval. Teachers, students and employees who apply must submit two negative nucleic acid test reports in Shanghai within 48 hours, and strictly implement measures such as identity verification, body temperature test, health code and travel card. Outsiders are not allowed to enter the school in principle.
 
-新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022313W0069)
+Fudan University will also carry out online teaching activities in an orderly manner. Offline lectures will be suspended, and students and faculty will carry out online teaching according to the time specified in the class schedule.
 
-撰稿/发布：一叶知秋
+In addition, the cafeteria will suspend dine-in and provide packaging and take-out services, Teachers and students will wear masks throughout the meal purchase and keep a one-meter interval in line. The library, self-study classrooms, and gymnasium are only open to students and faculty in the area. The swimming pool is suspended.
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+According to the official website of Shanghai Health Commission, five cases of local confirmed cases and 78 cases of asymptomatic infections were reported in Shanghai yesterday.
+
+Original link：[https://www.zaobao.com/realtime/china/story20220313-1251825](https://www.zaobao.com/realtime/china/story20220313-1251825)
+
+**Edited by:**TokyoSakura/英翻组
+Posted by:TokyoSakura/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+
 
  
 

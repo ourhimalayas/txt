@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 3:14 PM (UTC)`
+
+我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>Ми-нові китайці, які знищили злу Комуністичну партію Китаю<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є основною причиною лих у всьому світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
+![img](https://media.gettr.com/group23/origin/2022/03/13/15/3e6c0b98-dc67-c3e8-fcc1-b6fb1f1ab890/out.jpg)
+
+---
+
 `@miles 3/13/2022 2:18 PM (UTC)`
 
 The Medyka port is a land port on the border between Poland and Ukraine. A large number of refugees are withdrawing from Ukraine. In the huge refugee center area on the Polish side of the port, a group of new Chinese faces have become the focus of international media attention in recent days.Let's have a look at this group of different new Chinese faces.<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party。<br/>The Chinese Communist Party is the root cause of all disasters and wars globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/><br/>梅迪卡口岸是波乌边境的一个陆地口岸，大量的难民源源不断地从乌克兰撤出，在口岸波兰一侧巨大的难民中心区域，一群新中国人面孔，成为这几天国际媒体关注的焦点，让我们一起走进这里，看看这一群不一样的新中国人面孔<br/>我们是消灭邪恶中国共产党的新中国人。<br/>中国共产党是全世界灾难和战争的根源，只有消灭中国共产党才能拯救全人类
@@ -149,13 +156,6 @@ On the front line of relief in Ukraine, there were many women and children in th
 
 2022.03.12 NFSC News  The New Federal State of China Cooperates with Various International Organizations Placement Refugees； NFSC & Rule of Law Foundation Rescue Center Obtain the Best Location Attracted Worldwide Attention
 ![img](https://media.gettr.com/group9/origin/2022/03/12/23/e0bff8f9-0b20-35f9-d6c9-e5dd8e0c9447/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/12/2022 11:53 PM (UTC)`
-
-3/11/2022 Miles Guo: The CCP is hiring people to dig up and transport bodies on the battlefield of the Russia-Ukraine war by paying them as much as 100,000 yuan a month. However, the CCP is not going to let them use the BeiDou Navigation Satellite System that it has been touting, but to use the Americans’ GPS. The CCP is going to make the Chinese people cannon fodder on the battlefield, isn’t it?<br/><br/>3/11/2022 文贵直播：中共开出10万月薪雇人去俄乌战场挖尸体、运送尸体；中共竟然不给他们使用其鼓吹的北斗导航系统，却用的是美国人的GPS，这不明摆着把中国人拿去战场当炮灰吗！
-![img](https://media.gettr.com/group42/getter/2022/03/12/23/0f007eac-254c-1b6a-eeb0-f0f59a934e4c/out.jpg)
 
 ---
 

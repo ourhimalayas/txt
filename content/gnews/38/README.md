@@ -2,31 +2,39 @@
 ---
 
 
-## 2022/03/12 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2155752/)
+## 在世界媒体眼中的新中国联邦救援行动
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156255/)
 
-1. 3月11日，吉林省吉林农业科技学院疫情防控混乱，导致学生感染、家长崩溃的视频被曝光，引发全网关注。
-2. 3月9日，河北迁安。一男子驾驶轿车加速冲撞路口等待红灯的多名学生及路人 ，致多人倒地，事故现场十分惨烈。
-3. 3月8日，吉林。一男子因中共疫情封控政策缺少物资在家挨饿，故意挑衅防疫人员以使让警方将其逮捕能在监狱中吃上饭。
-4. 3月11日，广东广州。广交会展馆因一疑似核酸阳性人员进入场馆采取临时封闭措施，致场馆内数万人被困隔离进行核酸检测。
-5. 3月9日，广东佛山。中共国血汗工厂的工人，在没有任何保护措施的高尘环境下进行抛光操作。
-6. 3月6日，辽宁沈阳男子点外卖汤里吃出针头，商家和外卖平台都否认是自己做的，目前未得到明确回复！
-7. 3月9日，湖北十堰。疑因被家长责骂，孩子不高兴，一脚将路边的猫踹入河里。
-8. 3月8日，福建福州。一货车因对向车远光未看清路况，撞上人为设置的限高杆。
-9. 在得知女儿生病后，80岁老父亲第一时间带着毕生积蓄前往医院。
+作者：银河系农场 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月12日，波兰梅迪卡救援前线报道，越来越多的国际媒体前来采访法治基金新中国联邦乌克兰救援行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-13-at-9.14.03-PM.png)
+近两日，不断有欧洲国家的媒体前来采访，包括意大利电视台、波兰最大报纸、阿拉伯电视台、波斯尼亚和黑塞哥维那电视台。采访的媒体记者都对法治基金和新中国联邦，持有高度赞扬。
 
+值得注意的是，媒体的问题很多集中在区分中国共产党和中国人。意大利的记者直接问战友Nicole，你们是代表中国人的吗？Nicole战友为这位记者介绍新中国联邦和法治基金，并说我们是要灭掉共产党的中国人。中国人都是热爱和平善良友好热爱自由法治的人，共产党甚至为了破坏此次人道救援，黑客了联系邮箱。Nicole还邀请媒体参观了帐篷和食物，并邀请他们帮忙转发救援讯息。
 
-* * *
+前几日，在美国、日本等主流媒体的现场报道中，都有以新中国联邦的帐篷和国旗为背景。在波兰的乌克兰救援现场，新中国联邦是所有媒体无法回避的最大最专业的救援组织。此次救援是最好的机会，让世界分开共产党和中国人。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+参考链接：
+
+1. [American woman struggles to bring her family members to U.S. after fleeing Ukraine](https://www.cbsnews.com/video/american-woman-struggles-to-bring-her-family-members-to-us-after-fleeing-ukraine/#x)
+2. [War in Ukraine: UN says more than 2 million people have fled the country](https://www.france24.com/en/video/20220308-war-in-ukraine-un-says-more-than-2-million-people-have-fled-the-country)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+编辑：文真
+总编：Zion文恩
+审核：文真
+校正/发稿：我不在这里
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

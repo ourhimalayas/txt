@@ -2,16 +2,18 @@
 ---
 
 
-## 面临俄式被制裁 中共将会如何
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2156673/)
+## 西媒头条 — 第187期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2156718/)
 
-文贵大直播20220313
+**制作：蚂蚁兄弟**
 
-撰稿：Nine Lee（DC）
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
 
-美工：新宝（银河）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-5-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-3-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-2-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8-2-scaled.jpg)
-*发布：Theodosia*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220313.001.png)
+
+***发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-8.jpeg)
 
  
 

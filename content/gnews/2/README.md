@@ -2,42 +2,31 @@
 ---
 
 
-## 有声|高盛和摩根大通撤出俄罗斯
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2157585/)
+## 优步开始向客户收取乘车及派送的额外燃油费用
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2157746/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据国外媒体3月10日报道，当天，高盛披露了关闭俄罗斯业务的计划。数小时后，美国资产最大的银行摩根大通也紧随其后。这两家银行都表示，他们是按照政府指示行事的。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1235.png)图片来自：https://www.npr.org
-高盛自 1998 年以来一直在俄罗斯开展业务，拥有近 100 名员工，提供投资银行服务。目前高盛并没有给出何时完成裁员的时间表。
-
-摩根大通表示，摩根一直在按照世界各国政府的指示积极处理俄罗斯的业务，并没有在俄罗斯寻求任何新业务。
-
-鉴于银行是受俄罗斯监管的实体，任何退出该国的行为都不会是一夜之间的事情。据专家称，在一个国家结束银行业务可能需要一年以上的时间。
-
-另据知情人士透露，在宣布这一消息之前，高盛在俄罗斯的部分员工已经决定迁往迪拜。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.13-A.jpg)网络图片
 
 
+由于当前汽油价格飙升，优步（Uber）开始向客户收取额外的燃油费用，以帮助网约车和送货司机抵消部分运营成本。
 
-文字版原文：[高盛和摩根大通撤出俄罗斯](https://gnews.org/zh-hans/2149098/)
+该公司周五宣布，根据地点的不同，每次优步旅行的临时附加费为 45 美分或 55 美分，每个 优步外卖订单则为 35 美分或 45 美分。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+这一系列举措将于下周三开始生效。总部位于旧金山的优步表示，所有的钱都将直接支付给司机。这一额外的附加费用将至少持续 60 天的时间，在此之后优步表示将会重新评估情况。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+优步表示，附加费的多少取决于平均行程距离和每个州汽油价格的上涨幅度。其竞争对手 Lyft 的发言人在周六并没有立即回应是否考虑采取类似举措。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+随着俄罗斯在乌克兰的战争愈演愈烈，美国天然气价格达到了创纪录的水平。由于总统乔拜登禁止进口俄罗斯石油、天然气和煤炭以报复入侵乌克兰，美国汽油平均价格在本周达到创纪录的每加仑 4.17 美元。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+随着夏季临近，燃料需求开始增加，上周美国汽油库存量开始下降，天然气库存也同样呈现下降趋势。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+*发布：Gradient Boost*
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+新闻参考链接：
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[AP News](https://apnews.com/article/uber-charging-new-fuel-fee-temporary-surcharge-2b6f88a6c117a2de771b44a6c4b13ec5)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

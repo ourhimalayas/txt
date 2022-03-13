@@ -2,46 +2,37 @@
 ---
 
 
-## 有声|活着
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2157573/)
+## 有声|乌克兰人民勇气将成为新世界人类的典范
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2157699/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-活着，这是一个人的生存本性。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2022年2月24日，俄罗斯独裁者普京发动对乌克兰的侵略战争，大军压境逼迫民主乌克兰国屈服，放弃加入欧盟。乌克兰总统泽连斯基率领人民奋起反抗，绝不屈服大国强权，全球各地大批乌克兰人赶回祖国参加护国战争。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-48.jpg)图片源自网络
+泽连斯基成立国际军团，利用媒体、网络技术发动有效的舆论战、信息战，获得美国、欧盟等大多数国家的广泛支持，成功的把俄罗斯侵略者拖入沼泽，粉碎了俄军快速占领乌克兰基普美梦。
 
-无论遇到什么挫折和苦难，眼泪擦干后依然都得重新站起来。
+新中国联邦创建人郭文贵先生评价说：乌克兰人这次在战争的出色表现给人类奠定了基础，人类缺乏就是正义和勇气。欧洲和俄罗斯强人政治版块将发生变化，今后将是以乌克兰为中心的欧洲，发展新能源中心代替天然气和石油，科技、通信都会以乌克兰为基地。未来的UFO、外太空科技、人才都会涌向乌克兰，因为那里的人正义勇敢，乌克兰人在战争面前依旧保持着民族尊严是高素质的人类。乌克兰人民为正义而战的勇气将成为新世界人类的典范。
 
-也许你会认为是一种盲目乐观的态度，也许你会认为是一种粗糙的人生哲理。
 
-没有什么比活着更容易，也没有什么比活着更难。
 
-时至如今，作为时代变迁中的我们，同样都在现实生活中不断挣扎求存，我们放弃了很多。有些人陷入囚笼，有些人远走他乡，有些人甚至失去生命，只求为下一代换一个安稳的、有尊严的日子。他们有选择的权利活着吗？他们又有活着的权利吗？
+文字版原文：[乌克兰人民勇气将成为新世界人类的典范](https://gnews.org/zh-hans/2149094/)
 
-我们的生活本不该这样，但他确实就这样发生了。
-
-到处充满着无奈，充满着遗憾，充满着疲惫，充满着谎言，充满着无声愤怒，同时还夹杂着曾经的快乐和希望以及受伤的心灵。这样的内心是何等的煎熬。
-
-活着本没有意义，意义只在于让我们更好地活着。
-
-唏嘘感慨岁月故事的此时，多年后人们如何看待我们的故事？
-
-深处此刻的我们无法去参透，也许应该像春草一般，在寒冷风中顽强地活着，等待春风吹过之时，希望又重生……
-
-文字版原文：[活着](https://gnews.org/zh-hans/2149006/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
