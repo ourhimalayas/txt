@@ -2,20 +2,11 @@
 ---
 
 
-## 七哥金句：韩正的一句话
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2155064/)
+## 【乌克兰救援】妮可战友向来自罗马的新闻媒体介绍新中国联邦和法治基金的乌克兰救援行动
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2155068/)
 
-整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句-韩正说一句话-1.jpg)
-发布：枫叶红了
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+【乌克兰救援】03/12/2022 妮可战友向罗马媒体介绍新中国联邦和法治基金在乌的救援行动：中共政府对在乌克兰的华人无所作为，只有新中国联邦和法治基金在尽一切努力拯救在乌华人
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

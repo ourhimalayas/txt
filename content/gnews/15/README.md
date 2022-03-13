@@ -2,28 +2,41 @@
 ---
 
 
-## 俄乌两军发生激烈巷战 距离乌首都基辅不足5公里
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2154762/)
+## 有声|因使用爆炸式增长，拜登签署关于加密货币的命令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2154786/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-145.jpg)
-乌克兰士兵手持摧毁一辆俄国装甲运兵车的“下一代轻型反战车武器”（图片来自网络）
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据美联社3月10日报道，美国总统乔·拜登周三签署了一项关于政府监管加密货币的行政命令，敦促美联储探索央行是否应该介入并创建自己的数字货币。根据行政命令，拜登还指示财政部和其他联邦机构研究加密货币对金融稳定和国家安全的影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1000-2.jpeg)图源网络
+财政部长珍妮特·耶伦表示，这项努力将“促进一个更公平、更具包容性和更高效的金融体系”，同时打击非法金融，防止金融稳定和国家安全面临的风险。
 
-俄罗斯入侵乌克兰已两周时间，目前俄军正逼近乌克兰首都基辅。周六（12日），在基辅郊外的伊尔平（Irpin），俄乌两军发生了激烈巷战。
+拜登的高级经济和国家安全顾问布赖恩·迪斯和杰克·沙利文分别表示，该命令为美国建立了第一个全面的联邦数字资产战略。
 
-据《阿波罗新闻网》3月13日报道，俄军周六（12日）在伊尔平与乌军发生激烈巷战。伊尔平距基辅边缘地区约3英里（4.8公里），基辅大部分地区都可听到两军交战的枪炮声。
+据白宫称，100 多个国家已经开始或正在试行自己的数字主权货币。在拜登的行政命令发布后，比特币和加密货币相关股票周三获得提振。
 
-《纽约时报》的报道称，俄军之前只有一次或两次如此接近乌克兰首都。有军事分析家认为，伊尔平即便失守，也不一定意味俄军会立即向基辅推进。但俄军会进一步收紧基辅周围的封锁线。
+据 Coindesk 称，比特币价格上涨 9.8% 至 42,211 美元。加密货币交易所 Coinbase Global 的股票在午盘交易中飙升 9.3%，而在线经纪公司 Robinhood Markets 上涨 4.5%。专注于加密货币挖矿的 Riot Blockchain 股价上涨 11.5%。数字支付平台也有所增长。PayPal 上涨 4.9%，Block 上涨 10.55%。
 
-乌克兰总统泽伦斯基（Volodymyr Zelensky）当日在基辅召开记者会表示，除非俄罗斯将基辅夷为平地，否则休想占领这座城市。
 
-不过，泽伦斯基同时也表示，他愿与俄罗斯总统普京会谈，并且他已与以色列总理班奈特（Naftali Bennett）商议在耶路撒冷举行会谈的可能性，并希望班奈特能对促成与俄罗斯的和平谈判产生“积极影响”。
 
-新闻链接：
+文字版原文：[因使用爆炸式增长，拜登签署关于加密货币的命令](https://gnews.org/zh-hans/2148980/)
 
-[https://www.aboluowang.com/2022/0313/1720063.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2022/0313/1720063.html?utm_source=dlvr.it&amp;utm_medium=twitter)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

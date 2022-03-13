@@ -2,35 +2,30 @@
 ---
 
 
-## 有声|新中国联邦法治基金救援中心获最佳位置 引世人瞩目
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2154838/)
+## PayPal宣布将封锁所有俄罗斯人电子账户
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2154901/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月9日，梅迪卡难民救援中心场地的负责人，把难民救援中心最好的一块位置划拨给了新中国联邦和法治基金，我们可以在这里搭建一个50平方米的救援帐篷。这是一个大巴上下车的地点，是难民最集中的位置。因为其他车辆无法靠近，前线战友们通过肩扛手抬，把需要的部件一个一个运送过去。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1231.png)
-10日，国际红十字会看到我们搭建的梅迪卡难民救援营地设施优良，齐备，随即决定将这里设为乌克兰难民中转站。越过边境的难民，可以在这里临时休息安顿，然后从这里再被转移到其他安全地区。现在，难民救援中心的每一座帐篷都人满为患。 当天，美联社的摄影师、波兰最大媒体FAKT、波兰电视台、国际红十字会、迪拜电视台等世界媒体对新中国联邦救援小组进行了拍摄采访。新中国联邦、法治基金率先于世界各个国家、机构、组织的人道救援行动，越来越引起世人的关注，新中国联邦人越来越受到国际社会的尊重和认可。
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-13_11-53-43..jpg)
+白邦瑞（图片来自网络）
 
+PayPal宣布加大对俄罗斯的制裁，将自3月18日起，封锁所有俄罗斯人的电子账户。
 
+据多家媒体综合报道，《财联社》3月13日电，PayPal支付系统宣布，将于3月18日起封锁所有俄罗斯人的电子账户。
 
-文字版原文：[新中国联邦法治基金救援中心获最佳位置 引世人瞩目](https://gnews.org/zh-hans/2148719/)
+线上支付公司PayPal在此前的3月2日，已就俄罗斯入侵乌克兰做出“停止接受来自俄罗斯的新用户”的制裁措施。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+自俄罗斯入侵乌克兰后，已有多家信用卡和电子支付公司对俄罗斯做出制裁。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+新闻链接：
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[https://www.hstong.com/news/detail/22031302250152475](https://www.hstong.com/news/detail/22031302250152475)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[https://www.jiemian.com/article/7202505.html](https://www.jiemian.com/article/7202505.html)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[https://tw.stock.yahoo.com/news/%E5%8A%A0%E5%85%A5%E5%88%B6%E8%A3%81%E8%A1%8C%E5%8B%95-paypal%E5%AE%A3%E5%B8%83%E5%81%9C%E6%AD%A2%E6%8E%A5%E5%8F%97%E4%BF%84%E7%BE%85%E6%96%AF%E6%96%B0%E7%94%A8%E6%88%B6-092309884.html](https://tw.stock.yahoo.com/news/%E5%8A%A0%E5%85%A5%E5%88%B6%E8%A3%81%E8%A1%8C%E5%8B%95-paypal%E5%AE%A3%E5%B8%83%E5%81%9C%E6%AD%A2%E6%8E%A5%E5%8F%97%E4%BF%84%E7%BE%85%E6%96%AF%E6%96%B0%E7%94%A8%E6%88%B6-092309884.html)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
 
  
 
