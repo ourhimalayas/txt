@@ -2,77 +2,41 @@
 ---
 
 
-## 七国集团与欧盟加大对俄罗斯的制裁力度
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2153793/)
+## 文•贵天成——文贵先生谈“生物科技”（四）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2153797/)
 
-**拜登总统**： 民主国家正在崛起以迎接这一时刻的到来，将世界团结到和平与安全的一边。 我们正在展示我们的力量 —— 我们不会动摇。
+整理：BENJ1
+编辑：Kelly
 
-【附拜登视频讲话, 他说： 我们将确保 [#乌克兰](https://gettr.com/hashtag/%23乌克兰) 拥有防御入侵俄军的武器。 我们将提供资金、食物和援助来拯救乌克兰人民。 我将欢迎乌克兰难民。 我们应该张开双臂欢迎他们来到这里。 我们将继续与我们在欧洲的盟友站在一起，并发出一个明确无误的信息：我们将以团结鼓舞的北约的全部力量来保卫北约的每一寸领土。 我们不会在乌克兰与俄罗斯开战。 北约和俄罗斯之间的直接对抗将会是第三次世界大战 —— 我们必须努力防止这种情况的发生。 但我们已经知道，#普京 对乌克兰的战争永远不会取得胜利。 他想要不战而主宰乌克兰，但他失败了。 他想要打破欧洲的决心，但他失败了。 他想要削弱跨大西洋联盟，但他失败了。 他想要在我们的立场上分裂美国民主，但他失败了。 美国人民团结起来了，世界团结起来了，我们与乌克兰人民站在一起。 我们不会让 [#盗国贼](https://gettr.com/hashtag/%23盗国贼) 和 [#皇帝](https://gettr.com/hashtag/%23皇帝) 来支配世界的方向。 民主国家正在崛起以迎接这一时刻，将世界团结到和平与安全的一边。 我们正在展示我们的力量，我们不会动摇。 上帝保佑你们。 上帝保佑乌克兰，上帝保佑我们的军队。】
-
-
-
-> Democracies are rising to meet this moment, rallying the world to the side of peace and security.
->  
-> We are showing our strength — and we will not falter. [pic.twitter.com/UsMf8z8P45](https://t.co/UsMf8z8P45)
-> — President Biden (@POTUS) [March 12, 2022](https://twitter.com/POTUS/status/1502460104536375297?ref_src=twsrc%5Etfw)
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/6a612dfb3ccf6e42.png)图片来源：雅典娜设计组（614）
 
 
+郭文贵先生**2021**年**2**月**13**日直播
+我再重申，日本是第三大科技储备国。你去查查日本的科技储备，每样发展下去都影响人类，生物科技、太空科技、材料科技、医疗科技，任何一样东西都可能改变人类，像那个6G（技术其他国家）都在吹牛呢，但我告诉你，6G日本人达到突破，一切互联网科技彻底改变！
 
-**美国国务院**： 美国政府正在采取行动，向普京及其核心圈子发出明确的信息，即我们将提高 [#俄罗斯](https://twitter.com/hashtag/俄罗斯?src=hashtag_click) 在 [#乌克兰](https://twitter.com/hashtag/乌克兰?src=hashtag_click) 无理开战的代价。 美国与乌克兰站在一起，确认其人民的勇敢和英雄主义行为。
+材料科技（方面），日本的材料科技任何一个升华，世界的材料，今天看的电视、电脑统统改变！日本的生物科技一旦达到升华，人的生命生存、未来干细胞（移植技术）一旦被允许的话将超过美国，人类的生存方面，日本人就真的达到了“擀面杖子想多长有多长”，女人换个胸就像换个口罩一样，换肝换肺都换了，不用去切新疆人（肝肺），杀新疆人了。这不是开玩笑的，这一切都被改变了！
 
-【附美国务院发文：针对俄罗斯联邦精英进行打击。美国国务院、财政部和商务部已采取额外的全面行动，作为我们与我们的盟友及合作伙伴，一起应对俄罗斯联邦对乌克兰发动有预谋、无端和无理的战争的一部分。 我们致力于确保俄罗斯政府为其进一步入侵乌克兰付出沉重的经济和外交代价……（并列出制裁人员名单）】
+郭文贵先生**2021**年**3**月**11**日直播
+美国经济削掉一半儿的时候，什么时候能够回来？2005（注:口误，似应为2025年）、2006（注:口误，似应为2026年）经济会回来，突飞猛涨，到那时候生物科技、太空科技、网络科技、AI，包括今天我们所想象的AI科技全部都要上线，最牛的就是社交媒体。所以说大家要记住，美国这次将是最灾难性的下坠，最快速的反弹，这是人类历史上不会再有的，因为它具备了这个条件。
 
+郭文贵先生**2021**年**3**月**17**日盖特
+我原来要收购的日本某第一大虚拟货币交易所，我是（报价）两亿五，快收购（成）了，后来四亿五，日本的一家DM公司去要买，报价四亿五。结果，中国的“火币”来了，给了五亿，涨了整整一倍在抢！为什么？共产党非常清楚：数字货币、虚拟经济、网络经济、生物科技、太空经济……下一个新时代到来的时候，谁提前了，谁抢占这个市场了，这种江湖地位，只要你自己形势上不出事儿，你一定会（到达）没法想象的高度！就像当年诞生了谷歌、facebook这样的科技大佬一样！
 
+郭文贵先生**2021**年**4**月**28**日盖特
+人类都是自私的，在最后你发现只有一个办法能解决问题的时候你不会再问正不正义，你也不会问对错与否，你就一定会对着目标去了，这个目标就是共产党。所以，兄弟姐妹们，这一刻的出现需要各种因素，包括美国病毒再次爆发，发生像印度一样的疫情，虽然我希望那一刻不要来。在澳大利亚、在日本，随着共产党的再次、多次释放病毒。
 
-> The U.S. government is taking actions and sending a clear message to Putin and his inner circle that we will up the cost of Russia's unjustified war in Ukraine. The United States stands with Ukraine and recognizes the bravery and heroism of its people. [https://t.co/RpVp0BDjxr](https://t.co/RpVp0BDjxr)
-> — Department of State (@StateDept) [March 12, 2022](https://twitter.com/StateDept/status/1502539891607019524?ref_src=twsrc%5Etfw)
+世界要解药，世界的经济再靠印钞票解决不了恶性通胀，全球经济发生局部崩塌到全面崩塌。过渡到二战以后的以超限战为特点的第三次世界大战：叫生物科技世界大战，最后迎接加密数字货币时代的到来。这个过程我们参与了，很伟大、很危险，但是我们脑子要很清楚，这个时候要记住，不要蠢蠢欲动、不要轻易出手。更重要的是我们要希望美国赢，只有美国这个国家赢了世界才是太平的、只有美国这个国家赢了才能消灭毒瘤——共产党！就这么简单。
 
+资料来源：郭先生GTV和盖特直播视频
 
+发布：tianzhihuan
 
-**众议院少数党领袖凯文·麦卡锡 **： 在拜登总统领导下，从俄罗斯进口的能源增加了 34% —— 但现在他甚至想进一步增加我们对外国能源的依赖。 当我们在自家后院拥有更清洁、更便宜的能源时，我们不需要依赖独裁者。 【附cnbc专栏文章：拜登需要迅速增加美国能源产量以减少对俄罗斯的依赖】
-
-
-
-> Under President Biden, energy imports from Russia increased by 34%—but now he wants to increase our reliance on foreign energy even more.
->  
-> We don’t need to rely on dictators when we have cleaner, cheaper energy in our own backyard.[https://t.co/BBwYXjWVgI](https://t.co/BBwYXjWVgI)
-> — Kevin McCarthy (@GOPLeader) [March 12, 2022](https://twitter.com/GOPLeader/status/1502654169529913349?ref_src=twsrc%5Etfw)
-
-
-
-**参议员马可·卢比奥**： 是时候开始为这样一个事实做准备了，普京对世界主要小麦生产国之一的犯罪入侵, 将导致包括美国在内的粮食价格大幅上涨、以及世界许多地区的粮食不安全的危机
-
-
-
-> It is time to start preparing for the fact that [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)’s criminal invasion of one of the worlds leading wheat producers is going to result in a massive increase in food prices including here in America & a food insecurity crisis in many parts of the world
-> — Marco Rubio (@marcorubio) [March 12, 2022](https://twitter.com/marcorubio/status/1502661176605487104?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎·布莱克本**： 迪士尼为了公共关系，暂停了在俄罗斯的业务往来，但他们仍在与 [#共产主义中国](https://twitter.com/hashtag/共产主义中国?src=hashtag_click) 做交易。
-
-
-
-> Disney paused business dealings in Russia for PR, but they’re still making deals with Communist China.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 12, 2022](https://twitter.com/MarshaBlackburn/status/1502751286374113295?ref_src=twsrc%5Etfw)
-
-
-
-**参议员泰德·克鲁兹**： 卡车司机正在为自由挺身而出。 他们在为每一个面临接种新冠 COVID 疫苗或被解雇最后通牒的工人挺身而出。 [#人民车队](https://twitter.com/hashtag/人民车队?src=hashtag_click)
-
-【附克鲁兹议员加入人民车队的视频讲话】
-
-
-
-> The truckers are standing up for freedom.
->  
-> They are standing up for every worker who is facing the ultimatum of take the COVID vaccine or be fired.
->  [#ThePeoplesConvoy](https://twitter.com/hashtag/ThePeoplesConvoy?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/3B9whQ5X08](https://t.co/3B9whQ5X08)
-> — Senator Ted Cruz (@SenTedCruz) [March 12, 2022](https://twitter.com/SenTedCruz/status/1502707932538023939?ref_src=twsrc%5Etfw)
-
-
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

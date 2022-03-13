@@ -2,48 +2,77 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“生物科技”（六）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2153792/)
+## 七国集团与欧盟加大对俄罗斯的制裁力度
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2153793/)
 
-整理：BENJI
-编辑：朝花夕拾
+**拜登总统**： 民主国家正在崛起以迎接这一时刻的到来，将世界团结到和平与安全的一边。 我们正在展示我们的力量 —— 我们不会动摇。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6a612dfb3ccf6e42.png)图片来源：雅典娜设计组（614）
+【附拜登视频讲话, 他说： 我们将确保 [#乌克兰](https://gettr.com/hashtag/%23乌克兰) 拥有防御入侵俄军的武器。 我们将提供资金、食物和援助来拯救乌克兰人民。 我将欢迎乌克兰难民。 我们应该张开双臂欢迎他们来到这里。 我们将继续与我们在欧洲的盟友站在一起，并发出一个明确无误的信息：我们将以团结鼓舞的北约的全部力量来保卫北约的每一寸领土。 我们不会在乌克兰与俄罗斯开战。 北约和俄罗斯之间的直接对抗将会是第三次世界大战 —— 我们必须努力防止这种情况的发生。 但我们已经知道，#普京 对乌克兰的战争永远不会取得胜利。 他想要不战而主宰乌克兰，但他失败了。 他想要打破欧洲的决心，但他失败了。 他想要削弱跨大西洋联盟，但他失败了。 他想要在我们的立场上分裂美国民主，但他失败了。 美国人民团结起来了，世界团结起来了，我们与乌克兰人民站在一起。 我们不会让 [#盗国贼](https://gettr.com/hashtag/%23盗国贼) 和 [#皇帝](https://gettr.com/hashtag/%23皇帝) 来支配世界的方向。 民主国家正在崛起以迎接这一时刻，将世界团结到和平与安全的一边。 我们正在展示我们的力量，我们不会动摇。 上帝保佑你们。 上帝保佑乌克兰，上帝保佑我们的军队。】
 
 
-生物技术、生物芯片，青藤说对了!现在美国赌的就是赌的生物芯片，美国和日本。生物芯片在西方已经基本上……未来两年会正式地推向市场。
 
-生物芯片跟现在的疫苗啥关系？跟AI啥关系？兄弟姐妹们？想想。生物芯片出来，今天你的疫苗就管用了……
+> Democracies are rising to meet this moment, rallying the world to the side of peace and security.
+>  
+> We are showing our strength — and we will not falter. [pic.twitter.com/UsMf8z8P45](https://t.co/UsMf8z8P45)
+> — President Biden (@POTUS) [March 12, 2022](https://twitter.com/POTUS/status/1502460104536375297?ref_src=twsrc%5Etfw)
 
-生物芯片……半导体啊，芯片是半导体的一个进展，就是像今天的芯片作为通信和电脑的核心，电脑现在不是有芯片嘛，代替了一切，未来你手机就不用这个了，它是用生物，生物科技做出来。
 
-它是有生命体的，像人的大脑一样，是用生物做出来的，是药剂或者是溶剂或者是一种片剂，像人的大脑是今天的芯片的多少倍呢？600亿倍!
 
-就是今天，我给你举个例子。火柴盒这么大的一块生物芯片，就是今天所谓的硬盘，就这么大一块生物芯片，能把全地球今天人类有史以来所有的信息放到这么大一块去。就中国的高速计算机的这核那核、美国这些计算机，全人类过去的一万年一亿年的信息放到这么大一个火柴盒里去，就这么大。
+**美国国务院**： 美国政府正在采取行动，向普京及其核心圈子发出明确的信息，即我们将提高 [#俄罗斯](https://twitter.com/hashtag/俄罗斯?src=hashtag_click) 在 [#乌克兰](https://twitter.com/hashtag/乌克兰?src=hashtag_click) 无理开战的代价。 美国与乌克兰站在一起，确认其人民的勇敢和英雄主义行为。
 
-生物技术、生物芯片出来了，它像你的细胞里边的10亿分之一的容量，就是今天的疫苗到你身体里边了，生物的芯片未来是你100亿分之一，是人体里边流的基因的细胞的100亿分之一，所以说它对人来讲，一旦被植入进去以后，这个人就全都被控制了。
+【附美国务院发文：针对俄罗斯联邦精英进行打击。美国国务院、财政部和商务部已采取额外的全面行动，作为我们与我们的盟友及合作伙伴，一起应对俄罗斯联邦对乌克兰发动有预谋、无端和无理的战争的一部分。 我们致力于确保俄罗斯政府为其进一步入侵乌克兰付出沉重的经济和外交代价……（并列出制裁人员名单）】
 
-但是它最大的目的是什么？未来AI生物芯片管理，人的行为举止、思维几乎全被控制，这是很危险的。
 
-但是初期的生物电脑在硅谷在IBM已经早就开发非常好，如果没有这个生物科技的话，IBM的量子电脑是不会有用的，它的量子电脑现在就是基于未来的生物的整个芯片开始，生物导体。
 
-所以说华为也在搞这一块。华为买通了土耳其的一个搞5G的科学家，花了几百万美元，后来给了大概几千万美元，就搞了所谓的5G技术，因为那时候美国人没重视这个问题。
+> The U.S. government is taking actions and sending a clear message to Putin and his inner circle that we will up the cost of Russia's unjustified war in Ukraine. The United States stands with Ukraine and recognizes the bravery and heroism of its people. [https://t.co/RpVp0BDjxr](https://t.co/RpVp0BDjxr)
+> — Department of State (@StateDept) [March 12, 2022](https://twitter.com/StateDept/status/1502539891607019524?ref_src=twsrc%5Etfw)
 
-那么现在生物技术是俄罗斯，生物芯片技术，还有日本，然后美国，这是非常非常棒的搞的开发;然后瑞士有几个实验室搞得不错的，但最牛的现在应该是美、苏、中、日这四家。
 
-所以说人类的新的挑战在未来是巨大的。在这个时候，共产党已经成为了什么？是绝对全世界上唯一能挑战美国的，也就是能干掉美国的技术大国的研发。
 
-人类在芯片技术和生物芯片技术、量子电脑技术、5G技术上，美国人只有俩选择:一个是让共产党把自己杀了，让共产党统治世界统治美国人;另一个是把共产党给灭了，美国和欧洲把它给灭了。
+**众议院少数党领袖凯文·麦卡锡 **： 在拜登总统领导下，从俄罗斯进口的能源增加了 34% —— 但现在他甚至想进一步增加我们对外国能源的依赖。 当我们在自家后院拥有更清洁、更便宜的能源时，我们不需要依赖独裁者。 【附cnbc专栏文章：拜登需要迅速增加美国能源产量以减少对俄罗斯的依赖】
 
-资料来源：郭文贵先生2021年9月26日直播
 
-发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+> Under President Biden, energy imports from Russia increased by 34%—but now he wants to increase our reliance on foreign energy even more.
+>  
+> We don’t need to rely on dictators when we have cleaner, cheaper energy in our own backyard.[https://t.co/BBwYXjWVgI](https://t.co/BBwYXjWVgI)
+> — Kevin McCarthy (@GOPLeader) [March 12, 2022](https://twitter.com/GOPLeader/status/1502654169529913349?ref_src=twsrc%5Etfw)
+
+
+
+**参议员马可·卢比奥**： 是时候开始为这样一个事实做准备了，普京对世界主要小麦生产国之一的犯罪入侵, 将导致包括美国在内的粮食价格大幅上涨、以及世界许多地区的粮食不安全的危机
+
+
+
+> It is time to start preparing for the fact that [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)’s criminal invasion of one of the worlds leading wheat producers is going to result in a massive increase in food prices including here in America & a food insecurity crisis in many parts of the world
+> — Marco Rubio (@marcorubio) [March 12, 2022](https://twitter.com/marcorubio/status/1502661176605487104?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎·布莱克本**： 迪士尼为了公共关系，暂停了在俄罗斯的业务往来，但他们仍在与 [#共产主义中国](https://twitter.com/hashtag/共产主义中国?src=hashtag_click) 做交易。
+
+
+
+> Disney paused business dealings in Russia for PR, but they’re still making deals with Communist China.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 12, 2022](https://twitter.com/MarshaBlackburn/status/1502751286374113295?ref_src=twsrc%5Etfw)
+
+
+
+**参议员泰德·克鲁兹**： 卡车司机正在为自由挺身而出。 他们在为每一个面临接种新冠 COVID 疫苗或被解雇最后通牒的工人挺身而出。 [#人民车队](https://twitter.com/hashtag/人民车队?src=hashtag_click)
+
+【附克鲁兹议员加入人民车队的视频讲话】
+
+
+
+> The truckers are standing up for freedom.
+>  
+> They are standing up for every worker who is facing the ultimatum of take the COVID vaccine or be fired.
+>  [#ThePeoplesConvoy](https://twitter.com/hashtag/ThePeoplesConvoy?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/3B9whQ5X08](https://t.co/3B9whQ5X08)
+> — Senator Ted Cruz (@SenTedCruz) [March 12, 2022](https://twitter.com/SenTedCruz/status/1502707932538023939?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 
