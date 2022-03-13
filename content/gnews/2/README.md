@@ -2,12 +2,10 @@
 ---
 
 
-## 香港正面临大量感染病例和死亡
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2156547/)
+## 新中国联邦波兰救援基地前线报导（四）
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2156663/)
 
-03/12/2022 ABC新闻网：香港正面临大量感染病例和死亡。香港当局建立隔离营来隔离轻度阳性病例，恐慌笼罩着这个城市。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+台灣寶島農場
 
  
 

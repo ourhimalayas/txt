@@ -2,10 +2,10 @@
 ---
 
 
-## 天空新闻：梅利托波尔的抗议者要求释放被俄罗斯军队“绑架”的市长
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2156407/)
+## ITV 新闻：俄罗斯发动新一轮袭击
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2156456/)
 
-03/12/2022 天空新闻报道：乌克兰梅利托波尔市的抗议者要求释放该市市长，他们认为该市长被俄罗斯军队绑架了
+03/12/2022 ITV 新闻：俄罗斯发动新一轮袭击，基辅周围的战斗越来越激烈，越来越近
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,34 +2,28 @@
 ---
 
 
-## 乌克兰救援前线视频（五）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2156376/)
+## 新中国联邦乌克兰无国界救援 重塑中国人新形象
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2156385/)
 
-**视频制作：**James
-**封面设计：**长颈鹿 
-**封底设计：**614、精靈藍 
-**监制：**精靈藍
-**编辑/发布：**翼族
+撰稿：东京樱花团/小小星
 
-我们是消灭邪恶中国共产党的新中国人！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新中国联邦乌克兰无国界救援-重塑中国人新形象.png)
 
-We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party.
+随着俄罗斯和乌克兰的开战，大量乌克兰难民逃离家园。新中国联邦人在法治基金和法治社会的资助下，战友们从世界各地来到了乌克兰和波兰边境，每天都在拯救生命。
 
-Ми-нові китайці, які знищили злу Комуністичну партію Китаю.
+救援队伍开设了24小时联络信箱和电报群。在乌克兰境内有三个重要地区，都有大巴车随时等待需要救助的人。同时还有飞往美国和东南亚的飞机，把难民们送到自己需要去的地方。并提供三十天酒店的住宿。所有所有的一切都是免费并且不分国籍肤色，帮助一切需要帮助的人！
 
-中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类！
+在芬兰边境，我们的战友们建成了最好最大最温暖的大帐篷，准备了各种食物水果，还有现磨咖啡。同时，还有战友24小时值班，这给残酷战争中的人们带来了一丝温暖！
 
-The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
+我们战友的大爱给中国人带来了前所未有的新形象！让世界知道我们，有一些中国人，是爱好和平和自由的。我们不等同于中国共产党。中国共产党代表不了我们！
 
-Комуністична партія Китаю є основною причиною лих у всьому світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
+来自世界各地的战友们，说西班牙语，俄语德语英语… 以最好的形象代表着新中国联邦人，跟世界和平相处。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+虽然现在世界的主流媒体都被邪恶势力控制中，但新中国联邦就在那里，用事实证明给世界！
 
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

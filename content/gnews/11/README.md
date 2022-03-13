@@ -2,10 +2,10 @@
 ---
 
 
-## ITV 新闻：俄罗斯发动新一轮袭击
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2156456/)
+## 香港正面临大量感染病例和死亡
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2156547/)
 
-03/12/2022 ITV 新闻：俄罗斯发动新一轮袭击，基辅周围的战斗越来越激烈，越来越近
+03/12/2022 ABC新闻网：香港正面临大量感染病例和死亡。香港当局建立隔离营来隔离轻度阳性病例，恐慌笼罩着这个城市。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

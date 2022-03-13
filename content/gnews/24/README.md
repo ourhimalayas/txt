@@ -2,40 +2,34 @@
 ---
 
 
-## 澳洲多位名人突发心脏病早逝，又一位明星球员急救脱险
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2156377/)
+## 波兰租车公司老板加入新中国联邦救援团队
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156391/)
 
-#### **【雅典娜快讯】，紧贴时代脉博**
+撰稿：纽约香草山金融部-AT
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
+3月12日，一位波兰租车公司的老板皮特，得知新中国联邦的志愿者要租车赶到梅迪卡参加救援后，便陪同一起驱车3个小时，从克拉科夫赶到梅迪卡难民营，并加入了法治基金和新中国联邦的人道救援团队。他不仅在新中国联邦的救援营地为难民们服务，还同时为救援团队当翻译。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1400.png)
+皮特是波兰本地人，在克拉科夫经营一家租车公司，当新中国联邦的加拿大战友打电话给他的公司，提出租车来梅迪卡时，他得知是人道救援的志愿者，就决定加入救援服务。
 
-**翻译/编辑：文泓**
+皮特在接受前线记者Nicole采访时表示，他去过中国，知道中国人的友好善良，乐于助人。他很高兴能够和新中国联邦人一起参与这场人道主义的救援活动。并且也代表波兰人和乌克兰人衷心感谢新中国联邦和法治基金提供的人道援助。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-68.png)图片来源：news.ebene-magazine & 雅典娜设计组
+新闻/视频连接：
 
+[乌克兰救援03/11/22](https://gettr.com/post/pzjpgr741d)
 
-**52岁的澳式足球协会首席运动员迪恩·沃利斯（Dean Wallis）因心脏病发作后接受了紧急手术。几天前同龄的澳洲著名板球明星球员肖恩·沃恩刚因心脏病突发去世，而沃利斯的生命也在一次重大的健康危机中被医生拯救。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
 
-**在周六，曾荣获两届澳式足球冠军的明星球员的迪恩·沃利斯心脏病突发送医院急救，这位52岁的中年人是在维多利亚州埃丘卡发的心脏病，被紧急送往医院进行抢救手术。**
+编辑/总编/审核:飞虹
 
-**近日，因板球名将肖恩·沃恩和维多利亚州工党参议员金伯利·基钦这些52岁的同龄人均因心脏病突发而去世，周六又发生了一起造成巨大恐慌的事件。**
+校正/发稿：浪迹天涯
 
-**沃利斯在1987年至2001年期间为轰炸机队打了127场比赛，在1993年、2000年该俱乐部夺冠。在他的球员生涯结束后，沃利斯曾在多家俱乐部担任助理教练，在上个月他还出席了俱乐部的名人堂活动。**
-
-**几乎同一时间，周五澳洲板球名将肖恩·沃恩的遗体于从泰国运抵墨尔本。周早些时候泰国警方表示，尸检结果显示沃恩的死亡是由于自然原因。**
-
-**沃恩的家人已经接受了维多利亚州政府的提议，将于3月30日在墨尔本板球场举行国葬。沃恩的家人在上周一晚上发表声明，将他去世的那晚描述为“一场无休止的噩梦”的开始。**
-
-**板球名将沃恩已确认接种了新冠疫苗加强针，早期有胸痛和心脏不适；沃利斯在澳式足球俱乐部任教练，工作前提至少也是完全接种。**
-
-参考链接：[Dean Wallis suffers heart attack: Essendon AFL premiership player, 52, rushed to hospital for life-saving surgery | 7NEWS](https://7news.com.au/sport/afl/ex-bomber-dean-wallis-suffers-heart-attack-c-6039739)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
