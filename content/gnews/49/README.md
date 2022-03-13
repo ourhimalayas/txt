@@ -2,10 +2,10 @@
 ---
 
 
-## 1800 万人死于生物武器实验室制造的中共病毒
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2151869/)
+## 刘彦平因严重违法违纪正在接受纪律审查和监察调查
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2151918/)
 
-03/11/2022 史蒂夫·班农：根据英国广播公司最近的一份报道，1800万人死于中共生物武器实验室制造的中共病毒，而不是600万人。
+03/12/2022 CCTV 3月12日新闻，刘彦平因严重违法违纪正在接受纪律审查和监察调查
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
  
 

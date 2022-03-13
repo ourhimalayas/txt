@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 7:54 AM (UTC)`
+
+
+![img](https://media.gettr.com/group42/origin/2022/03/13/07/1fc9679b-8e84-daaf-40c7-81d9e6542712/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/13/2022 5:31 AM (UTC)`
 
 On the front line of relief in Ukraine, there were many women and children in the tents of the New Federal State of China. This cute little girl, happily greeted our fellow fighters. Smiling at them and even blowing a kiss to them, smiling happily and innocently. I hope the war will end soon and return the children to a regular life! We will never allow the Chinese Communist Party to still exist in the world of our children.<br/>在乌克兰救援前线，新中国联邦的帐篷里，有很多妇女和孩子。这位可爱的小女孩，开心的和我们的战友打招呼，对着战友微笑，并且送上一个飞吻，笑得是那样开心，天真无邪。希望战争尽快结束，还所有孩子一个正常的生活。新中国联邦决不允许中国共产党仍然存在于我们孩子的世界里。
@@ -148,14 +155,6 @@ On the front line of relief in Ukraine, there were many women and children in th
 
 3/12/2022 Miles Guo: Nucleic acid tests are being performed all over communist China, followed by lockdowns of towns and cities; in Hong Kong, one has to go through piles of corpses in order to find the bodies of his loved ones; the CCP is enticing Chinese people to go to Ukraine, who will inevitably become the cannon fodders of Russia; I warned earlier that “if you follow the CCP, you are running into the crematorium”, it is up to you to make the decision.<br/><br/>3/12/2022文贵盖特：中共国国内从北到南到处搞核糖核酸、一个城一个城的封，在香港踩着尸体找尸体；共产党还鼓励中国人去乌克兰给俄罗斯当炮灰，跟着共产党、走进火葬场，信不信由你
 ![img](https://media.gettr.com/group40/getter/2022/03/12/20/192ab101-50a7-95c9-e822-1554360f39b3/out.jpg)
-
----
-
-`@miles 3/12/2022 8:31 PM (UTC)`
-
-🙏🙏🙏
-> `@gettrbrasilofc 3/12/2022 5:42 PM (UTC)`<br/>Venha acompanhar o maior evento conservador no Brasil
-![img](https://media.gettr.com/group8/origin/2022/03/12/15/23e059b9-3bca-b09b-0ed1-c19a269f218e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
