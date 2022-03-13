@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 12:00 AM (UTC)`
+
+2022.03.12 NFSC News  The New Federal State of China Cooperates with Various International Organizations Placement Refugees； NFSC & Rule of Law Foundation Rescue Center Obtain the Best Location Attracted Worldwide Attention
+![img](https://media.gettr.com/group9/origin/2022/03/12/23/e0bff8f9-0b20-35f9-d6c9-e5dd8e0c9447/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/12/2022 11:53 PM (UTC)`
 
 3/11/2022 Miles Guo: The CCP is hiring people to dig up and transport bodies on the battlefield of the Russia-Ukraine war by paying them as much as 100,000 yuan a month. However, the CCP is not going to let them use the BeiDou Navigation Satellite System that it has been touting, but to use the Americans’ GPS. The CCP is going to make the Chinese people cannon fodder on the battlefield, isn’t it?<br/><br/>3/11/2022 文贵直播：中共开出10万月薪雇人去俄乌战场挖尸体、运送尸体；中共竟然不给他们使用其鼓吹的北斗导航系统，却用的是美国人的GPS，这不明摆着把中国人拿去战场当炮灰吗！
@@ -154,13 +161,6 @@
 
 💥💥💥Time-lapse photography of a 240 square meter tent funded by #ROLF for the #Ukrainian refugees<br/><br/>❤️❤️❤️Thanks to the frontline rescue team for all their hard work for building such a large and comfortable tent in such a short time!<br/><br/>💦💦💦法治基金为乌克兰难民资助搭建的240平米大帐篷的延时摄影，感谢拍摄者：煤油灯战友<br/><br/>💕💕💕这么短时间搭建出如此大而舒适的帐篷，感谢前线救援团队所有辛苦的付出！
 ![img](https://media.gettr.com/group41/origin/2022/03/12/10/928a0a75-35ab-8e1c-58a6-311bbcbc21f3/out.jpg)
-
----
-
-`@miles 3/12/2022 9:13 AM (UTC)`
-
-【Ukraine Rescue】03/11/22  At 3:37 a.m. local time, another group of refugees, many of them children, arrived at the NFSC relief tent. NFSC volunteers gave them candies and chocolates, and a cute girl smiled sweetly at the volunteers.<br/><br/>【乌克兰救援】03/11/22 又一批难民于波兰凌晨3点37分进入新中国联邦救援帐篷，里面有许多孩子，新中国联邦前线义工给他们分发糖果和巧克力,其中一个萌娃萌翻全场。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group36/getter/2022/03/12/09/9dc15edd-47ef-f651-af8d-fae053cff2fe/out.jpg)
 
 ---
 
