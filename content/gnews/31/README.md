@@ -2,34 +2,29 @@
 ---
 
 
-## 六枚火箭袭击了库尔德电视台、美国驻伊拉克领事馆
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2154156/)
+## 视频|（乌克兰最新救援信息概要）
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2155107/)
 
-作者：夕夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-69.png)
-突发事件2022 年 3 月 12 日下午 6:54来自伊拉克国家电视台、阿拉伯天空新闻和耶路撒冷邮报正在报道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-12-下午9.10.44.png)
-伊拉克埃尔比勒的爆炸事件，有6枚火箭弹袭击了该市。据报道，袭击发生在一个正在建设中的美国领事馆附近。
+制作：香草山视频部
 
-这条消息在推特上爆出，一些细节仍在不断变化，但大多数媒体报道称，库尔德卫星频道 k24 遭受了打击。
+首先，让我们一起来了解乌克兰前线救援信息的最新情况：
 
-阿拉伯天空新闻报道称，“正在伊拉克北部埃尔比勒市建造的美国大使馆总部遭到五枚远程导弹的袭击。
+截止美东时间3月10日，据飞飞战友在盖特平台上更新的消息显示，经过小飞侠战友的确认，新中国联邦和法治基金的救援大巴已经于乌克兰当地时间当天上午11点半抵达边境城市利务辅，开始了救援工作。
 
-以下是《[耶路撒冷邮报》](https://www.jpost.com/breaking-news/article-701103)的更多内容：
+然而，奔忙于波兰米蒂卡救助点的文科战友眼下因身体不适，已经回到入住酒店修整，随后将根据其身体状况决定是否前往当地医院治疗。目前，联盟正在协调替补战友接手后续的救援工作。
 
+另据前线记者Nicole的报道，由于硬件设施良好，新中国联邦和法治基金架设在当地的大型帐篷现已被红十字国际委员会借用做转移儿童的中转站。
 
-> 埃尔比勒省长奥梅德·霍什瑙表示，多枚导弹落入该地区，并表示尚不清楚目标是美国领事馆还是该市的机场。据 INA 称，袭击中听到了五声爆炸声。
+此外，墙内有热心人士通过YouTube了解了新中国联邦和法治基金的此次救援行动。因此，这位同胞特意注册了盖特账号联络飞飞，希望可以提供些许帮助。沟通过后，这位好心人已经向法治基金捐款，用以支持前线救援团队。
 
+飞飞战友表示，新中国联邦法和治基金的人道救援行动如今已经引起了越来越多人的关注，这也使得更多的人认识到了中共的邪恶，以及新中国联邦对华人的重要意义。
 
-照片和视频正在网上分享，其中一些声称显示 k24 工作室的损坏。[https://twitter.com/AmichaiStein1/status/1502797470862131207](https://twitter.com/AmichaiStein1/status/1502797470862131207)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-12-下午9.08.18-1.png)
-参考链接：[https://www.mediaite.com/news/breaking-rocket-attacks-reportedly-strike-kurdish-tv-station-u-s-consulate-in-iraq-videos-show-huge-explosions/](https://www.mediaite.com/news/breaking-rocket-attacks-reportedly-strike-kurdish-tv-station-u-s-consulate-in-iraq-videos-show-huge-explosions/)
+发稿：林礼
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-14.jpg)
-
-
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
