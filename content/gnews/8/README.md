@@ -2,44 +2,37 @@
 ---
 
 
-## 奥地利政府宣布暂停强制接种疫苗措施
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2157302/)
+## 有声|194位诺奖得主对乌克兰声援支持
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2157482/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+配音：纽约香草山农场 -Rita七号小青蛙
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月10日，诺贝尔奖官方网站更新了主页最新消息：194位诺贝尔奖得主发布联名声明，声援乌克兰，呼吁和平，反对战争，谴责俄罗斯的入侵，认为俄罗斯的入侵跟当年纳粹德国对波兰和苏联的入侵类似。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+声明的签署者都在各自的领域里声名显赫，包括达赖喇嘛、吉米·卡特 ，1975年医学奖得主大卫·巴尔的摩等，无法一一列举。
 
-奥地利政府3月9日宣布，由于发现疫苗对Omicron变体无效，因此暂停新的强制接种疫苗措施，不再强制要求该国18岁及以上的公民接种试验性的Covid-19疫苗。
+声明中说：俄罗斯的入侵公然违反了《联合国宪章》，它无视1994年的布达佩斯备忘录，该备忘录要求俄罗斯和其他国家尊重乌克兰的主权、独立和现有边界。发动战争是通往未来的一种毫无根据、血腥和徒劳的方式。俄罗斯的入侵将在未来几十年玷污俄罗斯的国际声誉。
 
-奥地利是欧洲第一个强制要求年满18岁以上的公民接种中共病毒疫苗的国家。
 
-去年12月，奥地利总统亚历山大·范德贝伦（Alexander Van der Bellen）签署法令，自2月4日起，授权对奥地利公民实施全面和加强针疫苗接种，从3月15日开始到2024年1月31日，除了孕妇、健康状况受疫苗影响的人以及以前感染过COVID-19等特定类别的人，居住在该国的其余所有成年人都必须接种疫苗，否则将面临600欧元的罚款。
 
-从2022年2月1日起，除了18岁以下的儿童疫苗接种证书有效期为210天，入境人员疫苗接种证书有效期为270天，其它接种两剂疫苗在奥地利的疫苗接种证书有效期仅为180天。
+文字版原文：[视频|194位诺奖得主对乌克兰声援支持](https://gnews.org/zh-hans/2152151/)
 
-从3月15日起，执法部门将开始通过交通站点、随机堵车、抽查等方式检查民众的疫苗接种情况，任何违反规定的人都可能被处以“每年最多四次”的罚款，每次违规都会增加罚款。个人初犯将被处以600欧元（约687美元）的罚款，第四次可能会高达3,400欧元（约3,890美元）。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-然而，正当奥地利加大强制疫苗接种力度时，欧盟其他几个国家却已经开始取消对新冠病毒的限制措施，有些国家像丹麦、瑞典和芬兰等等，甚至完全取消了这些限制。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-3月9日，在卫生和法律专家委员会的一份报告之后，奥地利政府宣布，暂停该国强制Covid-19疫苗接种法律。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-新的强制疫苗措施最初是在奥地利COVID-19的delta变体感染激增时宣布的。但目前占主导地位的omicron变体虽然导致非常高的感染水平，但通常只会导致较轻的疾病。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-负责宪法事务的部长卡罗琳·埃德施塔特勒 (Karoline Edtstadtler) 说：“现在是时候利用这项法律的灵活性了，它允许暂停这项法律的授权。我们得出的结论是……我们将按照比例暂停疫苗接种任务，目前，许多理由表明这种对基本权利的干涉是不合理的；由于我们看到的主要变体（非常高的感染水平，但通常会导致较轻的疾病），我们认为没有必要实际这项强制疫苗接种任务。”
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-事实上，奥地利的案例证明接种中共病毒疫苗既不能预防病毒，也不能减少重症。
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-大量临床研究证明，试验性的“疫苗”导致人体免疫力急剧下降，接种疫苗只会导致更多的感染和死亡，最终呈现AIDS状态（Acquired immunodeficiency syndrome，系统性免疫缺陷状态或艾滋病）。
-
-截止至2022年3月12日，奥地利总共有3,115,867人感染过中共病毒，占该国人口的34.5%。先后有18,092,659剂中共病毒疫苗被打入人们的身体，平均每人接种两针。其中，一针、两针和三针或加强针接种率为75.27%、72.74%、55.82%。这是非常高的疫苗接种率。
-
-在奥地利311.6万感染者中，有49.4%是在今年1月22日后感染的。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Austria-COVID-19-CASES.jpg)
-参考资料：
-
-[Austria suspends vaccine mandate before enforcement starts](https://abcnews.go.com/Health/wireStory/austria-suspends-vaccine-mandate-enforcement-starts-83336461)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

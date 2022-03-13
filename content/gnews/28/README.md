@@ -2,35 +2,17 @@
 ---
 
 
-## 新中国联邦将成为世界舞台的主角
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156258/)
+## 面临俄式被制裁 中共将会如何
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2156673/)
 
-作者：纽约磐石农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月11日的大直播中，郭文贵先生表示，通过在乌克兰前线出色的救援工作，新中国联邦人向全世界充分展示了中国人的风采，新中国联邦必定将会成为世界舞台的主角。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-13-at-9.34.41-PM.png)
-郭先生说，最近全世界的主流媒体突然转向，纷纷表示要与新中国联邦合作。在波兰救援现场，战友们的所作所为通过直播快速传遍了世界。这是中国人几千年来，唯一一次以全面直播的形式，向全球展示中国人与世界平等的国际人道救援行动。
+文贵大直播20220313
 
-当我们新中国联邦，以与中共截然相反的良好形象，面对波兰人和乌克兰人的时候，所产生的能量是无比巨大的。身处救援前线战场战友们的义举，是中共绝不可能做到的。因救援资金高达几十亿美元，换做中共的话，其实质就是一场贪污大戏。
+撰稿：Nine Lee（DC）
 
-郭先生表示，加入新中国联邦绝对值得自豪与骄傲，因为世界一切都在改变，新中国联邦将会是主角，而绝不会是配角，将有更多意想不到的惊喜发生。
+美工：新宝（银河）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-5-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-3-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-2-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8-2-scaled.jpg)
+*发布：Theodosia*
 
-参考链接：[3/11/2022 Miles Guo: Many media outlets around the world want to cooperate…..](https://www.gettr.com/post/pzl73y6785)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
-
-编辑：文真
-总编：Zion文恩
-审核：文真
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,35 @@
 ---
 
 
-## 2022/03/12 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2155752/)
+## 新中国联邦将成为世界舞台的主角
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156258/)
 
-1. 3月11日，吉林省吉林农业科技学院疫情防控混乱，导致学生感染、家长崩溃的视频被曝光，引发全网关注。
-2. 3月9日，河北迁安。一男子驾驶轿车加速冲撞路口等待红灯的多名学生及路人 ，致多人倒地，事故现场十分惨烈。
-3. 3月8日，吉林。一男子因中共疫情封控政策缺少物资在家挨饿，故意挑衅防疫人员以使让警方将其逮捕能在监狱中吃上饭。
-4. 3月11日，广东广州。广交会展馆因一疑似核酸阳性人员进入场馆采取临时封闭措施，致场馆内数万人被困隔离进行核酸检测。
-5. 3月9日，广东佛山。中共国血汗工厂的工人，在没有任何保护措施的高尘环境下进行抛光操作。
-6. 3月6日，辽宁沈阳男子点外卖汤里吃出针头，商家和外卖平台都否认是自己做的，目前未得到明确回复！
-7. 3月9日，湖北十堰。疑因被家长责骂，孩子不高兴，一脚将路边的猫踹入河里。
-8. 3月8日，福建福州。一货车因对向车远光未看清路况，撞上人为设置的限高杆。
-9. 在得知女儿生病后，80岁老父亲第一时间带着毕生积蓄前往医院。
+作者：纽约磐石农场 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月11日的大直播中，郭文贵先生表示，通过在乌克兰前线出色的救援工作，新中国联邦人向全世界充分展示了中国人的风采，新中国联邦必定将会成为世界舞台的主角。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-13-at-9.34.41-PM.png)
+郭先生说，最近全世界的主流媒体突然转向，纷纷表示要与新中国联邦合作。在波兰救援现场，战友们的所作所为通过直播快速传遍了世界。这是中国人几千年来，唯一一次以全面直播的形式，向全球展示中国人与世界平等的国际人道救援行动。
 
+当我们新中国联邦，以与中共截然相反的良好形象，面对波兰人和乌克兰人的时候，所产生的能量是无比巨大的。身处救援前线战场战友们的义举，是中共绝不可能做到的。因救援资金高达几十亿美元，换做中共的话，其实质就是一场贪污大戏。
 
-* * *
+郭先生表示，加入新中国联邦绝对值得自豪与骄傲，因为世界一切都在改变，新中国联邦将会是主角，而绝不会是配角，将有更多意想不到的惊喜发生。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+参考链接：[3/11/2022 Miles Guo: Many media outlets around the world want to cooperate…..](https://www.gettr.com/post/pzl73y6785)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-编辑：【英国伦敦喜庄园编辑部】
+编辑：文真
+总编：Zion文恩
+审核：文真
+校正/发稿：我不在这里
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

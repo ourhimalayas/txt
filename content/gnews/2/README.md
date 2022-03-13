@@ -2,44 +2,41 @@
 ---
 
 
-## 俄乌展开第三轮谈判,乌方吁停止攻击平民
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2157527/)
+## 有声|高盛和摩根大通撤出俄罗斯
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2157585/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image002-6.jpg)乌克兰（左）和俄罗斯（右）代表团展开第三轮会谈。美联社
-**俄罗斯国际传真社报导，俄国与乌克兰的代表团已展开第3轮谈判。乌克兰谈判代表在会前呼吁俄方，停止攻击平民的行动。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据国外媒体3月10日报道，当天，高盛披露了关闭俄罗斯业务的计划。数小时后，美国资产最大的银行摩根大通也紧随其后。这两家银行都表示，他们是按照政府指示行事的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1235.png)图片来自：https://www.npr.org
+高盛自 1998 年以来一直在俄罗斯开展业务，拥有近 100 名员工，提供投资银行服务。目前高盛并没有给出何时完成裁员的时间表。
 
-俄罗斯入侵乌克兰的攻势进入第12天，乌俄双方展开第3轮停战会谈，乌克兰谈判代表波多利雅科在会前推文呼吁俄国，停止攻击平民。
+摩根大通表示，摩根一直在按照世界各国政府的指示积极处理俄罗斯的业务，并没有在俄罗斯寻求任何新业务。
 
-克里姆林宫稍早详列俄罗斯军队在乌克兰停战的条件，发言人佩斯科夫说，乌克兰须停止军事行动、把中立地位入宪，以及承认克里米亚是俄国领土、乌国东部两个分离主义区域独立。
+鉴于银行是受俄罗斯监管的实体，任何退出该国的行为都不会是一夜之间的事情。据专家称，在一个国家结束银行业务可能需要一年以上的时间。
 
-佩斯科夫告诉路透社，俄国已告知乌克兰，只要基辅满足俄方条件，俄国准备「随时」停止军事行动。**
-
-
+另据知情人士透露，在宣布这一消息之前，高盛在俄罗斯的部分员工已经决定迁往迪拜。
 
 
 
-[【援引连结】](https://tw.appledaily.com/international/20220307/OVYK34RTVBCALO3CZEWS3OX2IQ/)
+文字版原文：[高盛和摩根大通撤出俄罗斯](https://gnews.org/zh-hans/2149098/)
 
-**推出问题，敲出真相，爆料在路上！**
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-**请关注和订阅我们的以下账号：**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**玫瑰看新闻YOUTUBE账号**：
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**玫瑰看新闻**
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

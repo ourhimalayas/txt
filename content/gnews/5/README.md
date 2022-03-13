@@ -2,30 +2,45 @@
 ---
 
 
-## Fudan University starts quasi closed campus management
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2157417/)
+## 有声|活着
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2157573/)
 
-Translated by：TokyoSakura/英翻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-95.jpg)
-[Photo link](http://sh.people.com.cn/n2/2021/1126/c134768-35023407.html)
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+活着，这是一个人的生存本性。
 
-Shanghai Fudan University started quasi-closed campus management from 8pm today (13th), with current students and faculty staying on campus and conducting nucleic acid testing as required.
+无论遇到什么挫折和苦难，眼泪擦干后依然都得重新站起来。
 
-According to CCTV news, Fudan University’s notice shows that the campus takes a separate gate area as a unit, implements relatively closed management, teachers and students do not flow across regions, inter-campus shuttle buses are suspended. The quasi-closed management time is tentatively set for two weeks, and the end time will be notified.
+也许你会认为是一种盲目乐观的态度，也许你会认为是一种粗糙的人生哲理。
 
-Fudan will implement strict management of leaving or entering the school. Teachers and students who have a fixed residence in Shanghai can apply to leave school and stay at home and leave the school orderly after approval. If there is a real need for returning to school, teachers and students who left school can apply to their unit and return to school only after examination and approval. Teachers, students and employees who apply must submit two negative nucleic acid test reports in Shanghai within 48 hours, and strictly implement measures such as identity verification, body temperature test, health code and travel card. Outsiders are not allowed to enter the school in principle.
+没有什么比活着更容易，也没有什么比活着更难。
 
-Fudan University will also carry out online teaching activities in an orderly manner. Offline lectures will be suspended, and students and faculty will carry out online teaching according to the time specified in the class schedule.
+时至如今，作为时代变迁中的我们，同样都在现实生活中不断挣扎求存，我们放弃了很多。有些人陷入囚笼，有些人远走他乡，有些人甚至失去生命，只求为下一代换一个安稳的、有尊严的日子。他们有选择的权利活着吗？他们又有活着的权利吗？
 
-In addition, the cafeteria will suspend dine-in and provide packaging and take-out services, Teachers and students will wear masks throughout the meal purchase and keep a one-meter interval in line. The library, self-study classrooms, and gymnasium are only open to students and faculty in the area. The swimming pool is suspended.
+我们的生活本不该这样，但他确实就这样发生了。
 
-According to the official website of Shanghai Health Commission, five cases of local confirmed cases and 78 cases of asymptomatic infections were reported in Shanghai yesterday.
+到处充满着无奈，充满着遗憾，充满着疲惫，充满着谎言，充满着无声愤怒，同时还夹杂着曾经的快乐和希望以及受伤的心灵。这样的内心是何等的煎熬。
 
-Original link：[https://www.zaobao.com/realtime/china/story20220313-1251825](https://www.zaobao.com/realtime/china/story20220313-1251825)
+活着本没有意义，意义只在于让我们更好地活着。
 
-**Edited by:**TokyoSakura/英翻组
-Posted by:TokyoSakura/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+唏嘘感慨岁月故事的此时，多年后人们如何看待我们的故事？
+
+深处此刻的我们无法去参透，也许应该像春草一般，在寒冷风中顽强地活着，等待春风吹过之时，希望又重生……
+
+文字版原文：[活着](https://gnews.org/zh-hans/2149006/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

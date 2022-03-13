@@ -2,29 +2,25 @@
 ---
 
 
-## 中日财经爆┃靠压榨用户成为世界第一移动通信
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2156923/)
+## 乌克兰教堂神父喊台湾万岁，感谢善款物资鼓舞人心！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2157231/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-56.png)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp26.toutiaoimg.com%2Forigin%2Fpgc-image%2Fcf23e5cd5460403ebba2b11fd59921ce%3Ffrom%3Dpc&amp;imgrefurl=https%3A%2F%2Fwww.sypassword.com%2Fninfo%2F586&amp;tbnid=bCucRlACV9T2uM&amp;vet=12ahUKEwjYlsXgi8P2AhWRhaQKHZrsB5UQMygWegUIARDlAQ..i&amp;docid=C8Iz0vIMYLWrqM&amp;w=1005&amp;h=717&amp;itg=1&amp;q=%E4%B8%AD%E5%9B%BD%E7%A7%BB%E5%8A%A8&amp;ved=2ahUKEwjYlsXgi8P2AhWRhaQKHZrsB5UQMygWegUIARDlAQ)
+乌克兰遭俄罗斯军事入侵，民众流离失所。台湾由外交部透过赈灾基金会成立捐款专户，善款不断涌入，累计逾5.7亿元。
 
-3月11日每日经济报报道，中国移动：预计2021年度营业收入约为8448.77亿元至8525.58亿元，归属于母公司股东的净利润约为1143.07亿元至1164.64亿元，扣除非经常性损益后归属于母公司股东的净利润约为1072.85亿元至1093.28亿元。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/614e14a5-c716-4309-9445-04c59580f635.jpg)图片来源：民视新闻网
 
-移动通信集团有限公司是一家移动通信运营商，成立于2000年4月20日。公司业务主要包括移动语音和数据业务，有线宽带以及其他信息和通信，注册资本3000亿人民币，资产规模近1.7万亿人民币，员工总数近50万人该公司已经在纽约与香港上市。2019年7月，中国移动在中国500强排行中，排名第8。2020年《财富》世界500强排行榜第65名，2021年《财富》世界500强排名第56位。
+外交部长吴釗燮日前也宣布，进行第一次提拨捐赠1亿元给逃离至波兰的乌克兰人。另外，我方驻教廷大使馆也到乌克兰圣索菲亚大教堂代表台湾政府捐款，神父特别以加油手势说道「Viva Taiwan（台湾万岁）」来为台湾加油。
 
-与此同时联通和电信也公布了数据，联通2021年实现净利润63.05亿元。电信公司2021年度营业收入较上年同期增长10%—12%。
+简评：台湾援助乌克兰值得称赞，如今乌克兰的今天，估计会是台湾的明天，希望台湾在援助乌克兰的同时，自身做好防御，谨防中共偷袭！世界与乌克兰同在，世界与台湾同在！
 
-中共国移动通信手握4000多亿现金，没有负债，国企垄断生意，2021中共国上市公司年净利润，中共国移动1143亿元，位居第二，从1987年11月18日，中共国移动开通第一个移动通信系统，中共国移动的盈利能力全球第一，2020 年，移动EBITDA 率为 37.1%，位居全球第二；2020 年净利润率、总资产收益率分别为 14%、6.6%，均位居全球第一，是名符其实的吞金兽，中共国三大通信运营商靠垄断市场，压榨用户群体，从而使自己成为行业第一。
+新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022313W0069)
 
-信息来源
+撰稿/发布：一叶知秋
 
-[【中国移动：预计2021年度归属于母公司股东的净利润约为1143.07亿元至1164.64亿元】](https://mi.mbd.baidu.com/r/CEvi1uTr2g?f=cp&amp;rs=2482234166&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=cff916be4257efe1&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
-
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

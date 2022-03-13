@@ -2,25 +2,39 @@
 ---
 
 
-## 乌克兰教堂神父喊台湾万岁，感谢善款物资鼓舞人心！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2157231/)
+## 有声|美欧将取消俄罗斯贸易最惠国待遇
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2157427/)
 
-乌克兰遭俄罗斯军事入侵，民众流离失所。台湾由外交部透过赈灾基金会成立捐款专户，善款不断涌入，累计逾5.7亿元。
+配音：纽约香草山农场 -Rita七号小青蛙
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月11日，据相关媒体报道，美国总统拜登当天发布声明表示，美国将与欧盟和G7集团联合，共同取消俄罗斯的最惠国贸易待遇。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-12-%E4%B8%8A%E5%8D%8810.25.49.png)
+消息人士透露，取消最惠国待遇的这一举动将允许美国政府对俄罗斯的进口产品征收关税，用以在经济层面上孤立俄罗斯，从而达到对俄军入侵乌克兰行为的制裁。至于其他盟国也将遵循类似的经济制裁政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/614e14a5-c716-4309-9445-04c59580f635.jpg)图片来源：民视新闻网
+据悉，乌克兰总统泽连斯基正在极力敦促欧美国家对俄罗斯进行经济制裁。同时，美国两党也向联邦政府施压，要求取消美国与俄罗斯的“永久正常贸易关系”。为此，拜登总统当天承诺，将继续采取制裁行动，用以追究俄罗斯对乌克兰无理由入侵的责任。
 
-外交部长吴釗燮日前也宣布，进行第一次提拨捐赠1亿元给逃离至波兰的乌克兰人。另外，我方驻教廷大使馆也到乌克兰圣索菲亚大教堂代表台湾政府捐款，神父特别以加油手势说道「Viva Taiwan（台湾万岁）」来为台湾加油。
+报道提及，加拿大已于上周取消了俄罗斯的最惠国贸易待遇。
 
-简评：台湾援助乌克兰值得称赞，如今乌克兰的今天，估计会是台湾的明天，希望台湾在援助乌克兰的同时，自身做好防御，谨防中共偷袭！世界与乌克兰同在，世界与台湾同在！
 
-新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022313W0069)
 
-撰稿/发布：一叶知秋
+文字版原文：[美欧将取消俄罗斯贸易最惠国待遇](https://gnews.org/zh-hans/2152262/)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

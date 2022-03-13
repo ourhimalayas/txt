@@ -2,33 +2,41 @@
 ---
 
 
-## 新中国联邦建设前线基地接待大量战争难民
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156256/)
+## 借口疫情上海停运长途汽车，传闻六周国际航班取消
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2156582/)
 
-作者：香草山写作组 静言
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月12日，在救援前线梅迪卡基地，新中国联邦的一个豪华大帐篷搭建完毕，正式启用。因面积大，设施全，服务好，成为当地最受志愿者与难民欢迎的休憩场所。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-13-at-9.24.59-PM.png)
-帐篷面积达250平米，内设平整地板，多座取暖炉，桌椅板凳，食物、水、毯子等物资应有尽有。高功率发电机既能保证照明，也能为工作人员和难民提供一杯香浓的NFSC牌现磨热咖啡。战友们细心周到，代为加热婴儿食品，甚至让出自己的泡面给难民。孩子们分到糖果巧克力，欢呼雀跃，小脸蛋绽放的笑容，为逃难中的人们带来了些许欢乐。
+#### 【雅典娜快讯】，紧贴时代脉博
 
-尽管历史悠久资金雄厚的国际红十字会和国际移民组织IOM都在当地最好的位置搭建了帐篷，但因设备简陋，人手不足而未能得到青睐。而新中国联邦的大帐篷，从早到晚，甚至凌晨时分，都有络绎不绝的人们来到这里休整，成为梅迪卡基地一道最亮眼的风景线。
+整理/编辑：文泓
 
-参考链接：[看看这些孩子的笑容！](https://gettr.com/comment/cse1hu8a57)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-54.png)图片来源： 雅典娜设计组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-编辑：宁文静
-总编：Zion文恩
-审核：文真
-校正/发稿：我不在这里
+3月13日，据台湾中央社报道，中共国上海市新冠疫情持续，政府官方深夜发布加强防控措施，官方微信公众号《上海发布》12日晚间公告，市民非必要不离沪，要离沪的人员须持有48小时内核酸检测阴性报告，来沪返沪的人员须持有抵沪前48小时内核酸检测阴性报告，自发布之日起实施。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+上海长途汽车客运总站有限公司公众号昨天晚上也发布，为全力配合疫情防控工作，自2022年3月13日起，总站暂停营业，开站时间尚未定。
+
+同期已有传闻上海因为本土疫情爆发，隔离酒店和人手都不够用，因此需要从3.17开始一直到4.28（六周），取消到港国际航班。
+
+根据上海市卫健委公布，上海11日新增本土感染病例83例，创下新高，其中5例为确诊病例，78例为无症状感染者；12日新增本土感染病例65例，1例为确诊病例，64例为无症状感染者。
+
+从1日至12日，上海这一轮累计本土确诊病例40例，本土无症状感染者512例；有6个中风险地区。16个行政区中，除了崇明区外均已发现感染者。
+
+目前，上海市内地铁和公车仍有营运，但高峰时段人流也不多，街上行人已明显减少，部分行政区域的餐厅只限外带。美术馆等公共机构及超过100处公园绿地都已经关闭。上海市中小学12日起全部调整为线上教学，幼儿园、托儿所停止入园。
+
+参考链接：
+
+1、[上海嚴防疫情長途汽車停運 離返滬須持核酸證明](https://www.cna.com.tw/news/acn/202203130018.aspx)
+2、[上海或取消最近6周到港国际航班？](https://www.uscreditcardguide.com/weizhengshishanghaihuoquxiaozuijin6zhoudaogangguojihangban/)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

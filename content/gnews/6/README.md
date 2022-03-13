@@ -2,39 +2,44 @@
 ---
 
 
-## 有声|俄罗斯侵略行为摧毁乌克兰千亿美元资产
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2157391/)
+## 俄乌展开第三轮谈判,乌方吁停止攻击平民
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2157527/)
 
-配音：纽约香草山农场 -Rita七号小青蛙
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月10日，据乌克兰官方消息显示，迄今为止，俄罗斯的侵略行动已经摧毁了当地大约一千亿美元的道路、桥梁和商业活动，其对乌克兰经济造成了重大的打击。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-12-%E4%B8%8A%E5%8D%8810.25.55.png)
-乌克兰总统的首席经济顾问乌斯腾科在一份声明中表示，目前，乌克兰大约50%的商业活动已经停摆，其余的也未能全部运营。而即使俄罗斯的侵略行为立即停止，乌克兰的经济在很长一段时间期内也很难得到恢复。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image002-6.jpg)乌克兰（左）和俄罗斯（右）代表团展开第三轮会谈。美联社
+**俄罗斯国际传真社报导，俄国与乌克兰的代表团已展开第3轮谈判。乌克兰谈判代表在会前呼吁俄方，停止攻击平民的行动。
 
-目前，乌克兰仍能动用的资金包括西方社会冻结俄罗斯的三千亿美元，以及普京的寡头盟友被没收的部分资产。此外，国际货币基金和世界银行还分别向乌克兰提供了14亿和5亿美元的援助。早先，美国政府也通过了对乌克兰140亿美元的援助。但除了重建经济外，乌克兰眼下正在消耗着大量的武器和弹药。
+俄罗斯入侵乌克兰的攻势进入第12天，乌俄双方展开第3轮停战会谈，乌克兰谈判代表波多利雅科在会前推文呼吁俄国，停止攻击平民。
 
-据悉，乌斯腾科也呼吁称，世界各国政府应该抵制俄罗斯的石油和天然气，从而斩断莫斯科当局的经济来源。
+克里姆林宫稍早详列俄罗斯军队在乌克兰停战的条件，发言人佩斯科夫说，乌克兰须停止军事行动、把中立地位入宪，以及承认克里米亚是俄国领土、乌国东部两个分离主义区域独立。
+
+佩斯科夫告诉路透社，俄国已告知乌克兰，只要基辅满足俄方条件，俄国准备「随时」停止军事行动。**
 
 
 
-文字版原文：[俄罗斯侵略行为摧毁乌克兰千亿美元资产](https://gnews.org/zh-hans/2152263/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[【援引连结】](https://tw.appledaily.com/international/20220307/OVYK34RTVBCALO3CZEWS3OX2IQ/)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**推出问题，敲出真相，爆料在路上！**
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+**请关注和订阅我们的以下账号：**
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

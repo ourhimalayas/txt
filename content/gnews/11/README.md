@@ -2,34 +2,31 @@
 ---
 
 
-## 志愿者向罗马媒体介绍新中国联邦和法治基金的救援行动
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2157200/)
+## Fudan University starts quasi closed campus management
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2157417/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+Translated by：TokyoSakura/英翻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-95.jpg)
+[Photo link](http://sh.people.com.cn/n2/2021/1126/c134768-35023407.html)
 
-整理/编辑：小红帽
+Shanghai Fudan University started quasi-closed campus management from 8pm today (13th), with current students and faculty staying on campus and conducting nucleic acid testing as required.
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-13_21-39-02.png)图片来源：郭文贵先生盖特视频截图
+According to CCTV news, Fudan University’s notice shows that the campus takes a separate gate area as a unit, implements relatively closed management, teachers and students do not flow across regions, inter-campus shuttle buses are suspended. The quasi-closed management time is tentatively set for two weeks, and the end time will be notified.
 
+Fudan will implement strict management of leaving or entering the school. Teachers and students who have a fixed residence in Shanghai can apply to leave school and stay at home and leave the school orderly after approval. If there is a real need for returning to school, teachers and students who left school can apply to their unit and return to school only after examination and approval. Teachers, students and employees who apply must submit two negative nucleic acid test reports in Shanghai within 48 hours, and strictly implement measures such as identity verification, body temperature test, health code and travel card. Outsiders are not allowed to enter the school in principle.
 
-3月12日，新中国联邦和法治基金志愿者妮可向罗马媒体介绍新中国联邦和法治基金在乌克兰的救援行动。妮可强调，中共政府对在乌克兰的华人无所作为，只有新中国联邦和法治基金在尽一切努力拯救在乌克兰的华人。
+Fudan University will also carry out online teaching activities in an orderly manner. Offline lectures will be suspended, and students and faculty will carry out online teaching according to the time specified in the class schedule.
 
-在采访中，妮可向罗马媒体的记者介绍：“新中国联邦和法治基金派出华人来帮助救援。我们都是志愿者。我们不仅帮助华人和留学生。我们目前已经成功营救了350名乌克兰人在内的不同种族的人。我们也成功从乌克兰尼科波尔孤儿院救出将近100个孩子。如果没有总部位于美国纽约的法治基金，我们就无法做到这些。我们很多捐款都来自热爱自由的华人。他们渴望法治、和平、正义和自由。这就是为什么我们的志愿者都穿着这件夹克。如果人们需要，我们都会在这里。我们正提供包机，我们正将人们从波兰送往纽约。我们还有另一个包机，将人们从波兰带到东南亚某国。这一切都是免费的。我们还提供巴士，这些巴士可以不间断地将人们从战区带到波兰的安全地方。”
+In addition, the cafeteria will suspend dine-in and provide packaging and take-out services, Teachers and students will wear masks throughout the meal purchase and keep a one-meter interval in line. The library, self-study classrooms, and gymnasium are only open to students and faculty in the area. The swimming pool is suspended.
 
-记者：“是的。不过你说有些人被落下了。请问指哪些人呢？”
+According to the official website of Shanghai Health Commission, five cases of local confirmed cases and 78 cases of asymptomatic infections were reported in Shanghai yesterday.
 
-妮可：“很多中国学生和华人现在仍处于困境。他们从中共国得不到足够的救援。因为中共政府并没有尽其所能去帮助自己的国民。这就是为什么新中国联邦代表着全世界热爱和平、自由、正义的华人；也是为什么法治基金会派出新中国联邦的成员来边境帮助中国人民。”
+Original link：[https://www.zaobao.com/realtime/china/story20220313-1251825](https://www.zaobao.com/realtime/china/story20220313-1251825)
 
-资料来源：[郭文贵先生2022年3月13日盖特视频](https://www.gettr.com/post/pzpf5l8aa0)
+**Edited by:**TokyoSakura/英翻组
+Posted by:TokyoSakura/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

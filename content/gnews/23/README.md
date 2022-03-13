@@ -2,12 +2,18 @@
 ---
 
 
-## 【乌克兰救援】03/13/22 新中国联邦的大帐篷物资供应充分，乌克兰难民在这里能够得到有效救济
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2156636/)
+## 2022年3月13日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2157009/)
 
-【乌克兰救援】03/13/22 新中国联邦的大帐篷物资供应充分，乌克兰难民在这里能够得到有效救济。
+制作：DT新闻组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**中共的杀戮还在继续……**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0306.jpg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-8.jpeg)
 
  
 
