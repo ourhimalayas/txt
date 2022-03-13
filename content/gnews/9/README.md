@@ -2,41 +2,77 @@
 ---
 
 
-## 卡车抗议组织领导人塔玛拉·利希被释放
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2153706/)
+## 七国集团与欧盟加大对俄罗斯的制裁力度
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2153793/)
 
-**翻译：【日本东京方舟农场】Skyfrog**
+**拜登总统**： 民主国家正在崛起以迎接这一时刻的到来，将世界团结到和平与安全的一边。 我们正在展示我们的力量 —— 我们不会动摇。
 
-一名法官裁定，她被称为“自由车队”的主要组织者之一可以从监狱获释，条件是她离开渥太华，这个判决推翻了上月做出的决定。
+【附拜登视频讲话, 他说： 我们将确保 [#乌克兰](https://gettr.com/hashtag/%23乌克兰) 拥有防御入侵俄军的武器。 我们将提供资金、食物和援助来拯救乌克兰人民。 我将欢迎乌克兰难民。 我们应该张开双臂欢迎他们来到这里。 我们将继续与我们在欧洲的盟友站在一起，并发出一个明确无误的信息：我们将以团结鼓舞的北约的全部力量来保卫北约的每一寸领土。 我们不会在乌克兰与俄罗斯开战。 北约和俄罗斯之间的直接对抗将会是第三次世界大战 —— 我们必须努力防止这种情况的发生。 但我们已经知道，#普京 对乌克兰的战争永远不会取得胜利。 他想要不战而主宰乌克兰，但他失败了。 他想要打破欧洲的决心，但他失败了。 他想要削弱跨大西洋联盟，但他失败了。 他想要在我们的立场上分裂美国民主，但他失败了。 美国人民团结起来了，世界团结起来了，我们与乌克兰人民站在一起。 我们不会让 [#盗国贼](https://gettr.com/hashtag/%23盗国贼) 和 [#皇帝](https://gettr.com/hashtag/%23皇帝) 来支配世界的方向。 民主国家正在崛起以迎接这一时刻，将世界团结到和平与安全的一边。 我们正在展示我们的力量，我们不会动摇。 上帝保佑你们。 上帝保佑乌克兰，上帝保佑我们的军队。】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-138.jpg)（图片来源： www.cbc.ca）
 
-49岁的塔玛拉·利希是GoFundMe（众酬捐款平台）活动的幕后主导，该活动筹集了1000多万美元，以支持渥太华的抗议活动，该活动后来演变为长达数周的占领活动。
 
-她于2月17日被捕，并被控在警方清理渥太华市中心街道上剩下的抗议者之前，在进行恶意教唆。
+> Democracies are rising to meet this moment, rallying the world to the side of peace and security.
+>  
+> We are showing our strength — and we will not falter. [pic.twitter.com/UsMf8z8P45](https://t.co/UsMf8z8P45)
+> — President Biden (@POTUS) [March 12, 2022](https://twitter.com/POTUS/status/1502460104536375297?ref_src=twsrc%5Etfw)
 
-利希仍被拘留，并于 2 月 22 日被拒绝保释，但随后提出上诉，随后 3 月 2 日举行保释审查听证会。
 
-原审法官说，她不相信利希会回家并停止她所谓的咨询。
 
-周一，高级法院大法官约翰·约翰斯顿表示，利希应该被释放，但表示对她“仍需要一些监督措施”。
+**美国国务院**： 美国政府正在采取行动，向普京及其核心圈子发出明确的信息，即我们将提高 [#俄罗斯](https://twitter.com/hashtag/俄罗斯?src=hashtag_click) 在 [#乌克兰](https://twitter.com/hashtag/乌克兰?src=hashtag_click) 无理开战的代价。 美国与乌克兰站在一起，确认其人民的勇敢和英雄主义行为。
 
-一位提名的担保人负责在获释期间监督利希，他提供了 20,000 美元的保证金，以帮助确保利希能够维持她的保释条件。利希将追加 5,000 美元的保证金。
+【附美国务院发文：针对俄罗斯联邦精英进行打击。美国国务院、财政部和商务部已采取额外的全面行动，作为我们与我们的盟友及合作伙伴，一起应对俄罗斯联邦对乌克兰发动有预谋、无端和无理的战争的一部分。 我们致力于确保俄罗斯政府为其进一步入侵乌克兰付出沉重的经济和外交代价……（并列出制裁人员名单）】
 
-这些条件包括24小时内离开渥太华，不使用社交媒体，不与某些合作组织者联系。
 
-在他的判决中，约翰斯顿说，利希有一份工作，她是一名“有价值的员工”，她没有犯罪记录，而渥太华的风险——那里的街道大部分已经恢复正常——现在造成的影响已经被“最小化”。
 
-他指出，对利希的审判可能不会持续几个月，如果她被定罪，她的还押时间将超过她的刑期，他说:“利希不太可能面临长期监禁。”
+> The U.S. government is taking actions and sending a clear message to Putin and his inner circle that we will up the cost of Russia's unjustified war in Ukraine. The United States stands with Ukraine and recognizes the bravery and heroism of its people. [https://t.co/RpVp0BDjxr](https://t.co/RpVp0BDjxr)
+> — Department of State (@StateDept) [March 12, 2022](https://twitter.com/StateDept/status/1502539891607019524?ref_src=twsrc%5Etfw)
 
-注：本文仅代表作者观点。
 
-原文链接：
-[https://www.cbc.ca/news/canada/ottawa/tamara-lich-convoy-bail-review-march-2-2022-1.6375798](https://www.cbc.ca/news/canada/ottawa/tamara-lich-convoy-bail-review-march-2-2022-1.6375798)
 
-素材採編：妙喜小油鍋
-校对：妙喜小油鍋
-发布：Linda
+**众议院少数党领袖凯文·麦卡锡 **： 在拜登总统领导下，从俄罗斯进口的能源增加了 34% —— 但现在他甚至想进一步增加我们对外国能源的依赖。 当我们在自家后院拥有更清洁、更便宜的能源时，我们不需要依赖独裁者。 【附cnbc专栏文章：拜登需要迅速增加美国能源产量以减少对俄罗斯的依赖】
+
+
+
+> Under President Biden, energy imports from Russia increased by 34%—but now he wants to increase our reliance on foreign energy even more.
+>  
+> We don’t need to rely on dictators when we have cleaner, cheaper energy in our own backyard.[https://t.co/BBwYXjWVgI](https://t.co/BBwYXjWVgI)
+> — Kevin McCarthy (@GOPLeader) [March 12, 2022](https://twitter.com/GOPLeader/status/1502654169529913349?ref_src=twsrc%5Etfw)
+
+
+
+**参议员马可·卢比奥**： 是时候开始为这样一个事实做准备了，普京对世界主要小麦生产国之一的犯罪入侵, 将导致包括美国在内的粮食价格大幅上涨、以及世界许多地区的粮食不安全的危机
+
+
+
+> It is time to start preparing for the fact that [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)’s criminal invasion of one of the worlds leading wheat producers is going to result in a massive increase in food prices including here in America & a food insecurity crisis in many parts of the world
+> — Marco Rubio (@marcorubio) [March 12, 2022](https://twitter.com/marcorubio/status/1502661176605487104?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎·布莱克本**： 迪士尼为了公共关系，暂停了在俄罗斯的业务往来，但他们仍在与 [#共产主义中国](https://twitter.com/hashtag/共产主义中国?src=hashtag_click) 做交易。
+
+
+
+> Disney paused business dealings in Russia for PR, but they’re still making deals with Communist China.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 12, 2022](https://twitter.com/MarshaBlackburn/status/1502751286374113295?ref_src=twsrc%5Etfw)
+
+
+
+**参议员泰德·克鲁兹**： 卡车司机正在为自由挺身而出。 他们在为每一个面临接种新冠 COVID 疫苗或被解雇最后通牒的工人挺身而出。 [#人民车队](https://twitter.com/hashtag/人民车队?src=hashtag_click)
+
+【附克鲁兹议员加入人民车队的视频讲话】
+
+
+
+> The truckers are standing up for freedom.
+>  
+> They are standing up for every worker who is facing the ultimatum of take the COVID vaccine or be fired.
+>  [#ThePeoplesConvoy](https://twitter.com/hashtag/ThePeoplesConvoy?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/3B9whQ5X08](https://t.co/3B9whQ5X08)
+> — Senator Ted Cruz (@SenTedCruz) [March 12, 2022](https://twitter.com/SenTedCruz/status/1502707932538023939?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 
