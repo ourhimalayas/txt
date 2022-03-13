@@ -2,31 +2,44 @@
 ---
 
 
-## Fudan University starts quasi closed campus management
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2157417/)
+## 普丁侵乌又受挫,乌克兰东部亲俄军事团体首领丧命
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2157581/)
 
-Translated by：TokyoSakura/英翻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-95.jpg)
-[Photo link](http://sh.people.com.cn/n2/2021/1126/c134768-35023407.html)
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image003-8.jpg)**英媒报导，乌克兰东部分离领土顿内次克地区的反乌军事团体「斯巴达营」领袖佐加（遗照）在一场战役中中弹身亡  美联社**
+**俄罗斯总统普丁入侵乌克兰的行动再传受挫，英媒报导，乌国东部顿内次克地区的反乌军事团体「斯巴达营」领袖佐加已经身亡。
 
-Shanghai Fudan University started quasi-closed campus management from 8pm today (13th), with current students and faculty staying on campus and conducting nucleic acid testing as required.
+英国《每日邮报》报导，军头佐加在乌克兰东部的沃尔诺瓦哈镇战役中，中弹丧命。
 
-According to CCTV news, Fudan University’s notice shows that the campus takes a separate gate area as a unit, implements relatively closed management, teachers and students do not flow across regions, inter-campus shuttle buses are suspended. The quasi-closed management time is tentatively set for two weeks, and the end time will be notified.
+亲俄分离主义分子在乌国东部成立「顿内次克共和国」,佐加领导的在地组织「斯巴达营」成员犹如新纳粹，自2014年成形以来，被认为犯下残忍战争罪，还曾射杀乌克兰战俘。
 
-Fudan will implement strict management of leaving or entering the school. Teachers and students who have a fixed residence in Shanghai can apply to leave school and stay at home and leave the school orderly after approval. If there is a real need for returning to school, teachers and students who left school can apply to their unit and return to school only after examination and approval. Teachers, students and employees who apply must submit two negative nucleic acid test reports in Shanghai within 48 hours, and strictly implement measures such as identity verification, body temperature test, health code and travel card. Outsiders are not allowed to enter the school in principle.
+「顿内次克共和国」领导人普希林透过Telegram证实佐加死亡，并称他「是在确保平民离开期间受到致命伤」。
 
-Fudan University will also carry out online teaching activities in an orderly manner. Offline lectures will be suspended, and students and faculty will carry out online teaching according to the time specified in the class schedule.
+2016年，「斯巴达营」前领导人巴夫洛夫在自家公寓电梯被土制炸弹炸死，随后由佐加接任首领。
 
-In addition, the cafeteria will suspend dine-in and provide packaging and take-out services, Teachers and students will wear masks throughout the meal purchase and keep a one-meter interval in line. The library, self-study classrooms, and gymnasium are only open to students and faculty in the area. The swimming pool is suspended.
+**
 
-According to the official website of Shanghai Health Commission, five cases of local confirmed cases and 78 cases of asymptomatic infections were reported in Shanghai yesterday.
+[【援引连结】](https://tw.appledaily.com/international/20220308/NQMGJDAPMVDBRHHU3RLZA4FTJY/)
 
-Original link：[https://www.zaobao.com/realtime/china/story20220313-1251825](https://www.zaobao.com/realtime/china/story20220313-1251825)
+**推出问题，敲出真相，爆料在路上！**
 
-**Edited by:**TokyoSakura/英翻组
-Posted by:TokyoSakura/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+**请关注和订阅我们的以下账号：**
 
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

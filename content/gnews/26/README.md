@@ -2,28 +2,33 @@
 ---
 
 
-## 新中国联邦乌克兰无国界救援 重塑中国人新形象
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2156385/)
+## 新中国联邦咖啡为乌克兰难民带去切实温暖
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2156406/)
 
-撰稿：东京樱花团/小小星
+【撰稿】香草山农场教育部——saner三二
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+乌克兰当地时间3月13日，位于波兰边境口岸米蒂卡（Medyka）的难民安置点，新中国联邦搭建的240平米盘古七星级救援帐篷已经接待上千名难民，被郭文贵先生命名的NFSC咖啡（新中国联邦咖啡）让救援帐篷成为了一个汇聚全球爱心的国际大家庭。乌克兰难民们和各国战地记者、新闻工作者纷纷前来，在这寒冷而艰苦的边境口岸，一杯热呼呼的咖啡给他们带去切实温暖。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新中国联邦乌克兰无国界救援-重塑中国人新形象.png)
+据接待难民长达26小时的Allen战友介绍，13日早上6点起，短短几小时内，粗略估计帐篷内的咖啡机已提供400到500杯咖啡。刚刚通过边境口岸的乌克兰难民们虽十分疲惫，但仍井然有序地排队等候自己的咖啡。如今，整个米蒂卡救援基地所有人都知道，新中国联邦救援团队有“巨大的帐篷，和美味的咖啡”。
 
-随着俄罗斯和乌克兰的开战，大量乌克兰难民逃离家园。新中国联邦人在法治基金和法治社会的资助下，战友们从世界各地来到了乌克兰和波兰边境，每天都在拯救生命。
+据前线记者Nicole报道，各国媒体记者也来到帐篷内，享受一杯咖啡的同时，互相交流、采访难民、采访新中国联邦的前线战友，他们对于“新中国联邦人是消灭共产党的中国人”这一认知进一步加深。新中国联邦的七星级帐篷俨然已成为米蒂卡难民营的媒体中心。
 
-救援队伍开设了24小时联络信箱和电报群。在乌克兰境内有三个重要地区，都有大巴车随时等待需要救助的人。同时还有飞往美国和东南亚的飞机，把难民们送到自己需要去的地方。并提供三十天酒店的住宿。所有所有的一切都是免费并且不分国籍肤色，帮助一切需要帮助的人！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-18.png)
 
-在芬兰边境，我们的战友们建成了最好最大最温暖的大帐篷，准备了各种食物水果，还有现磨咖啡。同时，还有战友24小时值班，这给残酷战争中的人们带来了一丝温暖！
+【新闻来源】波兰救援基地前线报道
 
-我们战友的大爱给中国人带来了前所未有的新形象！让世界知道我们，有一些中国人，是爱好和平和自由的。我们不等同于中国共产党。中国共产党代表不了我们！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-来自世界各地的战友们，说西班牙语，俄语德语英语… 以最好的形象代表着新中国联邦人，跟世界和平相处。
+- 审核/编辑/发稿:qiutian（邱甜）
 
-虽然现在世界的主流媒体都被邪恶势力控制中，但新中国联邦就在那里，用事实证明给世界！
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

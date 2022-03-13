@@ -2,16 +2,17 @@
 ---
 
 
-## 20220311郭文贵大直播 ：法制基金法制社会战友捐款的合理合法使用优先用于俄乌战事救援
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2156621/)
+## 面临俄式被制裁 中共将会如何
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2156673/)
 
-作者：东京樱花团小视频组
+文贵大直播20220313
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+撰稿：Nine Lee（DC）
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
+美工：新宝（银河）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-5-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-3-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-2-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8-2-scaled.jpg)
+*发布：Theodosia*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
