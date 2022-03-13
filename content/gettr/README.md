@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 1:32 PM (UTC)`
+
+【Ukraine Rescue】03/11/2022 Three Kosovo associates from an American NGO, Refugee Direct Aid, are surprised to see Chinese faces in the scene of the Ukraine rescue. They express admiration of what the NFSC has done for rescuing Ukrainian refugees and their willingness to offer more help and cooperation with the NFSC<br/><br/>【乌克兰救援】03/11/2022 美国非政府组织“难民直接援助”的三位科索沃员工表示很惊讶看到中国面孔出现在乌克兰援救现场。他们对新中国联邦为乌克兰救援所做的工作表示钦佩，并愿意为新中国联邦提供更多帮助与合作 
+![img](https://media.gettr.com/group35/getter/2022/03/13/13/d681d20f-a800-46e8-c279-45f222a7201e/out.jpg)
+
+---
+
 `@miles 3/13/2022 12:46 PM (UTC)`
 
 2022年3月13日 文贵大直播：如果西方切断中共国的SWIFT、禁止中共国参与国际外汇交易，查封盗国贼家族在海外的资产，会涉及多大规模在中共国会发生什么？爆料革命警告中东事端；中共在俄乌战争之后的下一步动作 在中东会发生什么；刘彦平 傅政华 孙立军 吴征杨澜 王岐山 孟建柱 胡舒立 单伟健 张明鹏（大连西区法院）刘强（辽宁副省长）将会是什么下场
@@ -149,13 +156,6 @@ On the front line of relief in Ukraine, there were many women and children in th
 
 【Ukraine Rescue】03/12/22 The NFSC & ROLF Ukraine Rescue team member Nicole says in an interview with HAYAT TV from Bosnia and Herzegovina: Over the past two weeks, we have successfully rescued more than 100 Chinese people, including Chinese students, more than 350 Ukrainians, Americans, and people from all other nationalities. We also rescued 100 children from an orphanage. We're only here to save people.<br/><br/>【乌克兰救援】03/12/22 新中国联邦和法治基金乌克兰救援团队成员妮可在接受来自波黑HAYAT电视台记者采访时说：在过去的两周里，我们成功营救了包括中国留学生在内的100多名中国人和350多名乌克兰、美国以及其他国籍人士，并从孤儿院救出 100 名儿童，我们只为救人而来<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group33/getter/2022/03/12/23/bf55efea-7c48-08aa-bda4-4a5331f7848e/out.jpg)
-
----
-
-`@miles 3/12/2022 11:28 PM (UTC)`
-
-3/11/2022 Miles Guo: The professionalism exhibited by our fellow fighters, who have been working as volunteers on the front line of the Ukraine rescue operation, has earned the respect and attracted the attention of the whole world. Unlike the overseas Chinese pro-democracy activists who live on donations and gain fame through improper means, we, citizens of the New Federal State of China, who gathered together because of faith, have shown the world the best image of the Chinese people.<br/><br/>3/11/2022 文贵直播: 义工战友们在救援前线表现出来的专业精神赢得了全世界的尊敬和关注！不同于只靠捐款度日、沽名钓誉的海外民运分子，新中国联邦人因信仰凝聚在一起，展现出中国人最好的一面！<br/>
-![img](https://media.gettr.com/group8/getter/2022/03/12/23/45061f47-c44e-9c7e-3e6d-ae8339baa3fc/out.jpg)
 
 ---
 
