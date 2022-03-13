@@ -2,31 +2,41 @@
 ---
 
 
-## 新中国联邦驻波兰梅迪卡的战地钢琴曲
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2158624/)
+## 有声|美国民调显示：民众认为中共对美国威胁远大于俄罗斯
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2158641/)
 
-**整理、编辑：Candy**
-**视频来源：Nicole**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/钢琴家.png)图片来源：前线记者Nicole传来的视频
-[https://mega.nz/file/RJ8HXKxJ#3ymIGWNrjQVhbpQNkfEgZnQhVwqq1YaxbTmLXo5B8lA](https://mega.nz/file/RJ8HXKxJ#3ymIGWNrjQVhbpQNkfEgZnQhVwqq1YaxbTmLXo5B8lA)
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美媒3月11日报道，当天公布的一项民意调查显示，绝大多数美国人认为中共在经济和安全方面对美国的威胁比俄罗斯大得多。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-22.jpg)
+美国的两家调查公司，在3月2日到3月7日对1500名登记选民进行了该项民意调查。当被问及哪个国家对美国构成最大的经济威胁时，73%的受访者回答是中共国，而只有14%的人说是俄罗斯。
 
-波兰当地时间3月13日下午4点，战地钢琴家把他的钢琴搬到了新中国联邦在波兰梅迪亚国际救援中心的豪华帐篷前，义务为难民们演出钢琴曲。他演奏的都是反对战争、表达人民热爱和平心愿的著名曲目。
+当被问及哪个国家对美国构成最大的安全威胁时，52%的人也说是中共国，而只有32%的受访者说是俄罗斯。
 
-工作在营地的新中国联邦记者Nicole，在影片中对正在演奏的音乐、周围环境、备用的篝火木柴、外国媒体等都给与了非常详实的介绍；还看到了战友为钢琴家送上热腾腾的新中国联邦咖啡；旁边的观众都在享受其中，小孩子们闲适地跟家人在一起……一派温暖的气氛。音乐让人们暂时忘掉了战争，忘掉了战争给人们带来的痛苦。
+尽管俄罗斯总统普京入侵乌克兰影响全球安全局势，但美国人仍然认为中共国在经济和军事上对美国的威胁比俄罗斯大得多。正是基于这种认知，多数美国人对美国直接出兵干预俄乌战争，表示反对或持怀疑态度。但多数美国人倾向于支持美国对乌克兰提供更多军事和人道援助，而要求对俄罗斯采取更多的制裁措施。
 
-明道做为直播组的负责人，每天七点多钟出门到营地，提前准备好直播设备，以保证直播的顺利进行。一天总是不停地工作着，没有休息的时间。晚上直播结束之后要收拾好设备，一般八、九点钟，有时十一、二点才离开。
+有关人士认为，美国民众已经很清醒地看到，中共是俄罗斯侵略战争幕后黑手。这种民意基础，也一定会影响美国政府对中共采取更严厉的制裁措施。
 
-战斗在前线的新中国联邦人，让我们说一声：你们辛苦了！同时也向你们表达我们忠心的敬意！因为你们向世界展示了新中国联邦人的国际形象，和法治基金的经济实力。
 
-你们正在告知而且证明给世界：我们是反对邪恶的中国共产党的新中国联邦人，中共是一切罪恶的根源，传播武汉生化病毒、制造疫苗灾难，包括正在进行在俄乌战争。只有消灭中共，才能解救全人类！
 
-***发布：Candy***
+文字版原文：[美国民调显示：民众认为中共对美国威胁远大于俄罗斯](https://gnews.org/zh-hans/2151992/)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

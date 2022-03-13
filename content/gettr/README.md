@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 10:00 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-13
+![img](https://media.gettr.com/group18/origin/2022/03/13/21/20553cf7-cb05-5c5e-6cba-f333fc527b02/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/13/2022 9:33 PM (UTC)`
 
 3/13/2022 Miles Guo: We have arrived at the front line as the new Chinese taking down the CCP. We’ve become the Chinese people who are mutually respectful, civilized, clean, honest, and united, but many of our issues have also been exposed. We are way too individualistic and self-righteous, we lack respect for others and disregards others’ strengths, and we always give advice without taking enough action.<br/><br/>3/13/2022 文贵直播: 我们到了前线，成为消灭中国共产党的新中国人，成为互相尊重，文明，干净，诚实，团结的中国人，但也暴露了我们的很多问题，我们个人主义太强、自以为是、不尊重别人、不看别人优点、老提意见、行动力差<br/>
@@ -149,13 +156,6 @@ On the front line of relief in Ukraine, there were many women and children in th
 
 【Ukraine Rescue】03/12/2022 NFSC & ROLF Volunteer Nicole is interviewing the sister of the Trinity Broadcasting Network’s journalist, who is also Ukrainian, at our Medyka rescue center, Poland. Nicole told her that the NFSC people are helping the Ukrainians and fighting the communist dictatorship too and we will win.<br/><br/>【乌克兰救援】03/12/2022 新中国联邦和法治基金义工妮可在我们波兰梅迪卡难民救助站采访全球最大宗教电视台三一广播网乌克兰记者的妹妹，向她介绍新中国联邦人在帮助救援乌克兰人，也在同共产主义独裁作斗争，我们一定会赢！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group19/getter/2022/03/13/03/2e6ea64d-2771-b01e-ba0e-b791b8a47e16/out.jpg)
-
----
-
-`@miles 3/13/2022 2:58 AM (UTC)`
-
-3/12/2022 Miles Guo’s GETTR: The CCP has started to stir up trouble in the Middle East, and something big will happen in the world after my 3 or 4 grand live broadcasts! The fellow fighters have shown the world in Ukraine that citizens of the New Federal State of China are the greatest and purest new human beings following the Way of Righteousness. The New Federal State of China will definitely be able to take down the CCP!<br/><br/>3/12/2022 文贵盖特：中共开始在中东制造事端，3、4次大直播后世界将发生大事！战友们在乌克兰给世界展现出新中国联邦人是最伟大、纯洁和以正道主义为基础的新新人类，新中国联邦一定能灭共！<br/>
-![img](https://media.gettr.com/group9/getter/2022/03/13/02/8b7cad3b-08a4-719b-f53a-abe1dd5d1313/out.jpg)
 
 ---
 

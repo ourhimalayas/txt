@@ -2,52 +2,52 @@
 ---
 
 
-## 美财政部强调对俄制裁扩大到加密货币
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2158244/)
+## 高盛：俄乌战争令美国经济衰退风险增加35%
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2158281/)
 
-编译：Jenny Ball
+据《Washington Examiner》经济记者：Zachary Halaschak, 2022年3月11日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1431-e1647191088628.png)图片来源：shrn.org
+高盛大幅下调美国经济增长预期，并警告称俄罗斯入侵乌克兰后可能会出现经济衰退。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1430-edited.png)reuters.com
+这家金融服务巨头在此前预测今年美国国内生产总值GDP增长2%，后将增长预测下调至1.75%。下调源自俄罗斯军队继续入侵乌克兰，这场战争导致能源价格飙升并导致更加严厉地制裁莫斯科。
 
-在2022年3月4日拍摄的这张插图中，Coinbase 徽标前面显示了加密货币的表示。REUTERS/Dado Ruvic/Illustration/
+高盛首席经济学家 Jan Hatzius 表示：“我们现在认为，美国在明年进入衰退的风险与目前基于收益曲线斜率模型所暗示的20-35%的衰退可能性大体一致。”
 
-华盛顿，3 月 11 日（路透社）——美国财政部外国资产控制办公室 (OFAC) 周五发布了新指南，阐明美国公民和数字资产公司，必须遵守对俄罗斯的制裁，即使在促进加密货币交易时也是如此。
+高盛最近表示，它正在“关闭”其在俄罗斯的业务，并将遵守为应对冲突而对莫斯科实施的制裁。
 
-OFAC 在指南中表示，美国人民以及从事加密货币交易的企业，“必须警惕规避OFAC法规的企图”，并应“采取基于风险的措施，确保他们不参与被禁止的交易。”
+随着COVID-19大流行即将结束，供应链仍处于混乱状态。乌克兰的战争正在加剧全球正在经历的通胀压力，尤其是在美国。
 
-这一警告发布之际，加密货币行业的许多人正在回应一些立法者的担忧，即数字资产可能被用来规避西方在俄罗斯入侵乌克兰后对俄罗斯实施的制裁。
+美国最近宣布将禁止进口俄罗斯石油，以回应俄罗斯总统弗拉基米尔·普京的入侵决定。这使得美国及其欧洲盟友实施的一系列制裁措施中又增加一项。
 
-拜登政府官员曾表示，他们不相信俄罗斯能够使用加密货币完全逃避制裁，但仍警告公司要保持警惕。
+周五一加仑汽油的全国平均价格达到了4.33美元。美国石油基准——西德克萨斯中质原油期货价格——上涨至107美元，较战争爆发前的90美元涨幅巨大。周日，WTI原油一度触及130美元，为2008年以来的最高水平。
 
-在周一发布的指导中，金融犯罪执法网路（FinCEN）表示，加密货币交易所必须报告任何可疑活动，但周五的通知进一步明确指出，交易所被禁止从事或促进非法交易。
+能源价格上涨加剧了国内不断攀升的通胀率，截至2月份的12个月通胀率达到 7.9%，这是自1982年以来的最快通胀率。
 
-正如一些乌克兰官员所呼吁的那样，包括币库(Coinbase)和币安(Binance)在内的主要加密货币交易所，没有响应阻止俄罗斯用户的呼吁。
+为应对物价上涨，美联储正准备进行多年来的首次加息，预计首次加息将在下周的联邦公开市场委员会会议之后进行。
 
-西方对俄罗斯实施了前所未有的严厉制裁，原因是其对乌克兰的军事攻击是二战以来欧洲最大规模的军事攻击。企业的反应各不相同，一些公司采取法律要求的措施，而另一些则采取自愿措施。
+美联储主席杰罗姆·鲍威尔（Jerome Powell）最近在国会作证时表示，俄罗斯继续入侵乌克兰将推高油价，但向立法者保证，央行随时准备应对冲突带来的经济影响。
 
-加密货币提供的匿名性引起了监管机构的担忧，即这种技术可能被用来破坏制裁。
+“在短期内，我们已经看到这一点，油价比两个月、三个月前的水平大幅上涨，”鲍威尔上周在参议院银行委员会上表示。 “这将涉及汽油价格和其他燃料价格，这将体现在更高的通货膨胀中。真正的问题是，它们的程度如何，更重要的是，它们的持久性如何。”
 
-周二，德国表示扩大对莫斯科的制裁，应排除使用加密货币来规避这些措施。爱沙尼亚还呼吁限制加密货币，以填补制裁漏洞。
+鲍威尔指出，战争和随后的制裁对经济的近期影响“仍然高度不确定”。
 
-周一，美国财政部表示，使用加密货币大规模规避制裁“不一定可行”，呼吁公司保持警惕。
+他补充说：“在这种环境下制定适当的货币政策需要认识到经济以意想不到的方式发展。我们需要灵活应对传入的数据和不断变化的前景”。
 
-一揽子禁令？
+原文链接：[https://www.washingtonexaminer.com/news/risk-of-us-recession-35-as-russia-wages-war-in-ukraine-goldman-sachs](https://www.washingtonexaminer.com/news/risk-of-us-recession-35-as-russia-wages-war-in-ukraine-goldman-sachs)
 
-PayPal、Visa、万事达卡等传统支付公司已暂停在俄罗斯的服务。乌克兰副总理曾呼吁，他们和加密公司以及其他公司切断与俄罗斯的联系。
+翻译：洛杉矶盘古农场 – 海潮
 
-然而，加密货币交易所并未默许全面禁止俄罗斯用户的呼吁，专家表示，这一决定削弱了孤立莫斯科的企图。
+校对：洛杉矶盘古农场 – Mike Li
 
-评论：任何用来违法犯罪的货币都将被淘汰！
+编辑：洛杉矶盘古农场 – WenXiong
 
-素材链接：【reuters.com】[U.S. Treasury Department stresses that Russia sanctions extend to cryptocurrency](https://www.reuters.com/business/finance/us-treasury-department-stresses-that-russia-sanctions-extend-cryptocurrency-2022-03-11/?utm_source=newsletter&amp;utm_medium=email&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
+发布：洛杉矶盘古农场 – 子萍
 
-* * *
 
-审核：文乐
-校对：信心满满
-发布：花羽
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-8.jpeg)
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
  
 
