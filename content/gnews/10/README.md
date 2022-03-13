@@ -2,32 +2,37 @@
 ---
 
 
-## 2022.3.13大直播 郭文贵先生连线乌克兰救援一线战友
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2157934/)
+## 新型中共病毒变种导致香港疫情爆发
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2157978/)
 
-撰稿：大浪小水花
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在2022年3月12的盖特中谈到了香港爆发疫情的真实内幕。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-13-at-9.11.08-PM.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-3.jpeg)
 
+郭先生提到他有一位来自黑龙江的老朋友，在香港居住多年，现在不幸确诊感染中共病毒。他告诉郭先生，现在的香港已经彻底死了，病死的尸体到处都是。他去找染病去世的朋友的尸体的时候，几乎是踩着尸体过去的。 很多年轻力壮的人因感染中共病毒死去，让郭先生的这位朋友感到非常疑惑。
 
-郭文贵先生在2022年3月13日大直播中，跟在梅迪卡难民营一线的战地记者Nicole战友进行了连线。
+据郭先生透露，这次香港爆发的病毒不仅仅是奥米炕，大多数还是冠状病毒。这次的病毒感染率高，死亡率高，传染速度非常快。这次香港爆发的病毒是一种新型中共病毒变种，但中共不准报道。 这很可能就是中共故意释放，以达到短期内大规模死人的目的。
 
-Nicole向郭先生和战友们介绍了救援现场最近发生的一些情况。
+郭先生表示，现在香港情况非常悲惨。由于中共在香港加大金融管制，香港银行已经不允许大额转款。
 
-Nicole说，新中国联邦法治基金救助站昨天晚上迎接了四五百名的从边境过来的乌克兰的妇女和小孩，为了确保帐篷内暖气、电力，还有救援物资的供给，值班战友们通宵工作。
+参考链接：[https://gettr.com/post/pzmei76928](https://gettr.com/post/pzmei76928)
 
-Nicole提到，波兰的军队和国际红十字会，还有很多来自世界各国的民间的团体，纷纷把他们带来的救援物资送到新中国联邦法治基金的救助站，现在救助站的物资非常充足。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-Nicole特别提到，救援一线的战友不光是在救难民，也是在救助这些义工。昨天晚上发生了一件紧急事件，有一位六七十岁的德国老人，由于健康原因，突然倒地不起。幸亏现场有一位叫文桑的战友是中医推拿师，他紧急给这位老人进行了抢救，在附近的医院救护车到来之前，老人恢复了神志。
+总编：Zion文恩
+编辑：文真
+审核：文真
+校正/发稿：谐趣园
 
-Nicole提到，有几位前来采访的记者表示，新中国联邦法治基金这次救援行动不仅是救援乌克兰人民，救援的不光是人，救援的是这几十年来被中共破坏掉的自由、人性、正道、和平。他们向爆料新中国联邦战友们致以深深地敬意。
-
-郭先生赞扬Nicole展示了中国女性阳光、健康、自信的一面，而且非常的有礼貌。郭先生表示在全世界排华即将蔓延的时候，救援前线战友们做的每件事情都是伟大的。郭先生嘱咐一线救援的战友们要注意安全和身体健康。
-
-郭先生还特别强调，新中国联邦爆料革命的每位战友要明确我们的口号：我们是消灭中国共产党的新中国人。世界所有战争和灾难的根源就是中国共产党，解决全世界所有问题的唯一方法就是消灭中国共产党。我们和乌克兰在一起。
-
-参考链接：[2022年3月19日文贵大直播](https://gettr.com/streaming/pzrn4eb349)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
