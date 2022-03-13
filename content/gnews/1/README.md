@@ -2,27 +2,74 @@
 ---
 
 
-## 战乱中凸显人性善与恶
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2155834/)
+## 基辅市长克里琴科向俄罗斯发出激昂的喊话，并告诉普京 &#8220;你将付出代价“
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2155847/)
 
-投稿人：友情有义
-![](https://lh4.googleusercontent.com/gRwWSFxnafuTOcWAWSZUhQcruKOLZuEKr3PSieDCIagTCP97bc81KYfIWQ57AviJyHf8yxb6OEh0lTN133DgGh0DO0AAGCwxr6m0Qx5SNK-T5wW-CJrbvDZWILxvh98bS5wEGHys)
-图片来自网络
+作者：纽约香草山信息部 我不在這裡
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**视频内容的翻译：**
 
-从一次世界大战到现在，战争的起因大都是独裁者为实现个人野心而冒险挑起的，当独裁者通过强权把国家搞得民不聊生一团糟而威胁到统制地位时，它就会用发动战争的手段转移矛盾，把世界拖入战乱的漩涡。
+这是给俄罗斯人的信息，给那些还能思考的俄罗斯人的信息。
+你们的帝国野心、对乌克兰的入侵和
+你们所谓的军队的野蛮行为，已经播下了永恒的仇恨。
 
-大恶莫过于杀人，当战争恶魔降临时，无数生灵涂炭，无数家破人亡，头一天还生活在和平宁静环境中的乌克兰人转瞬间就被打入了战争的深渊。只是在俄军入侵乌克兰的这十几天里，双方就有近万人死亡，二百多万难民逃亡，战乱带给人民的死亡和痛苦是无法用数字来统计的。
-![](https://lh4.googleusercontent.com/Wq81mw9zfLWvK9omN5wYkmx6N5YFrXvqsD9wYKhzVGPpfPZbwrXVAHexaNjt7REyBac8Npt0swO7-kUSo2k4U1C4T81ES-pDTUzb1NbApT2SMcX-cSoD_L0In6u0AHadBAMOQVFe)
-大善莫过于救人，新中国联邦、法制基金在这危难时刻挺身而出，启动了对俄乌战争难民的救援活动，出钱出力派出救援队进入战区，成功救助了无数的同胞和难民，在国际灾难中展现了新中国联邦人的善良、勇敢和实力。与此同时**CCP**却在用假救援、高价机票、删除救助邮箱域名，散布假信息的卑劣手段制造混乱，使一些同胞丧失了被救的机会。对比**CCP**的破坏新中国联邦人救助行动的恶行，更凸显出新中国联邦人和平、善良、智慧和秉持正道主义的高尚人格。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen_Shot_2022-03-13_at_3.50.25_PM.png)
 
-战争是军事的对决，也是善恶的较量，相信人类的良知一定会战胜邪恶，世界正义联盟一定会战胜黑暗帝国，新中国联邦一定会战胜**CCP**。
+“政府是一回事，而俄罗斯公众是另一回事”，这些话绝对是胡说八道！
 
-*审核：文筝*
+是你们相信了卑鄙的宣传，并且
+不相信你在乌克兰的亲戚和朋友所讲的话。
+是你们8年来一直保持沉默，
+当你们的国家占领了克里米亚和顿巴斯的一部分之后。
+是你们用傲慢的态度对待乌克兰人，认为不存在这样一个民族。
+是你们分享了关于一些纳粹的神话和其它的无稽之谈!
+是你们的士兵，同时也是你们的丈夫或儿子，现在已经来到了乌克兰，
+我和你们都知道这件事。
+是你们给他们打电话，询问他们在那里的 “任务 “进展如何。
+请记住，我们不需要被解放!
+我们在自己的土地上，建立自己的国家！
+而且我们会成功的！
+乌克兰是一个自由的国家，它选择了一条民主的欧洲之路!
+我们将为我们的选择而战!
+今天，我们比以往任何时候，都更加团结和坚定地进行这场斗争。
+不是我们来到你们土地上，
+而是你们来到我们的土地上、杀害我们的孩子、
+把我们的城市和家园炸成一片废墟！
+你们必须知道，你们每个人在这里都被称为恶魔（ORK）!
+现在的俄罗斯人没有好坏之分，因为你们沉默不语，并
+听从一个疯狂独裁者的宣传。
 
-*发布：yin*
+整个文明世界今天都站在勇敢的乌克兰人一边。
+整个世界都钦佩我们如何建设自己的国家。
+这对我们来说，要抵抗你们的侵略肯定是困难的，
+但我们不会放弃，因为我们没有恐惧。
+而你们的军队已经明白了这一点。
+任何对愿意为捍卫自己的国家而不惧怕牺牲的人，
+发出最后通牒都会失败。
+请记住，无论你现在多么努力地想摧毁乌克兰和乌克兰人，
+任何进一步的企图都会毁掉你们自己的国家!
+种下风的人将收获旋风。
+如果你不想落得完全孤立无援的下场，就不要因恐惧或冷漠而害怕！
+要像乌克兰人一样勇敢地行动起来。
+像乌克兰人一样勇敢地拯救你们的国家！
+我们不会放弃我们的国家，我们永远不会放弃!
+我为自己是一名乌克兰人感到自豪，
+它是一个强大的、热爱自由的、英雄的民族的代表!
+荣耀属于乌克兰!
 
-![](https://lh6.googleusercontent.com/w8LMlCAeYCCPuKxveGdvcyeqg1Dd6HHwfVuUxJ34hpaMbTL0LD8zVPo5ACa3FuktSvFOIcmRQ-dNekv9ZFiBBUkbYOsSDApxh1ol6EeU7ac8c05cmsznH-u-3PJcLeMP0sErzQ3W)
+视频链接：[MAYOR of Kyiv Vitali Klitschko gives an emotive and powerful message to the Russian military and its leader Vladimir Putin.](https://www.youtube.com/watch?v=5x1WNBX8Ou4)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+
+审核/编辑/发稿：qiutian（邱甜）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
