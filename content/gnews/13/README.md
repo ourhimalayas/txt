@@ -2,64 +2,35 @@
 ---
 
 
-## 俄可能绕开SWIFT制裁，但代价高昂
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2153472/)
+## 大直播后记：俄罗斯必将解体，乌克兰救援活动不是私活
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2153637/)
 
-作者：MOS – 柳是多水土透
+整理：HYS、铁血丹心
+编辑：skyandmoon
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
-
-
-西方国家已禁止部分俄银行使用SWIFT支付网络，若乌克兰冲突不结束，制裁可能进一步升级。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/12-03-2022.jpg)图片来源网络
-
-金融专家认为，俄理论上可以寻求替换SWIFT通讯系统，但显著增加的交易成本，以及对俄企业产生的风险会使进出口贸易量降低，至少短期是如此。
-
-Society for Worldwide Interbank Financial Telecommunication (SWIFT)是银行间使用的安全信息网络，主要支持跨境支付。俄联邦是此系统的顶级用户，并且自2015年开始拥有一个董事席位。300多个俄银行使用SWIFT作为国内和国际转账的主要通讯方式。
-
-以下三个原因说明为什么SWIFT很难被取代：
-
-1. 俄罗斯通信系统 SPFS
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-19.png)图片来源：雅典娜设计组
 
 
-银行可以使用俄央行开发的System for Transfer of Financial Messages (SPFS)，去年中央银行称国内交易已经可以在此平台转账。
+我能不能提一个问题？来自一个所罗门战友，他在土耳其也帮着接应我们的前线。他提一个问题，俄罗斯情况会恶化，而且白俄罗斯也肯定是一起受到制裁，那么俄罗斯的战友需要准备哪些东西？
 
-但SPFS缺乏国际连接，“现在只有亚美尼亚，土耳其，乌兹别克斯坦和哈萨克斯坦可用”，摩根斯坦利的分析师本周说道。
+七哥：很多战友给我发信息，我很抱歉很多战友问我，我都没回复。今天艾瑞克兄弟代大家问这个问题，我简单回复一下。我不想太多的预测，因为我不愿像路大脑骗似的卖29美金的口袋。还有这个Sara叫傻币，现在等她的还有叫傻TV，都没出来呢！所以说我觉得最好的就是，如果你爱一个人的话，你就让他别打疫苗；如果你恨一个人，就要他去打疫苗，还有你恨一个人就叫他买傻币。
 
-理论上，俄可以SPFS发送货款至上述国家，再用SWIFT转发至第三方。但突然跃升的交易量会吸引监管机构的注意，同时西方银行会因合规风险孤立这些联络银行。
+还有一个国内的朋友说：“哎呀七哥呀，我这好久没联系，在路大脑袋蛇妖闫的事情上，我错误的选择了跟了他们。”我说我特别开心，如果现在真的有些人就去看路大脑袋的直播，对我们就是最好的。让我们能辨别是非、愚蠢和智慧、现在和未来、生与死的关系。路大脑袋啥都给你能预言了，人类的未来都给预言完了。这战争就是他是唯一的骗术。想想伊萨贝拉杨，这些垃圾、猪狗！想一想在战争面前，你看他们变得多么不堪一击，多么的无知和愚蠢，他们能干啥？他能走出他家直播室？他能走出前面100米？他的手都发抖，上个超市买东西，像偷东西一样，看看价钱找点便宜货，在外国人面前就像狗一样，他们永远不可能到今天这个地步！
 
-2.中共 CIPS SYSTEM
+那么在俄罗斯这个地方，很多战友我想跟你们说一句话：基本的常识是要有的——俄罗斯想再回到以前永远不可能，而且一定会消失，俄罗斯被解体。你在俄罗斯，马上就会被禁飞，你想再出来是不可能的。你要有俄罗斯的任何护照，任何资产，任何所谓的有价值的东西，都将是你的负担。俄罗斯这仨字跟你任何东西连在一起那都是灾难！这还用我说吗？那你说我让你干啥去？ 什么白俄罗斯？ 什么哈阿赛拜疆、哈萨克斯坦，全世界跟俄罗斯比，他还差得远！
 
-CIPS的局限性在于只能处理以人民币计价的交易，Morgan Stanley的分析师认为只有1.9%的国际交易使用了人民币结算，而美元达到跨境交易的40%。
+大家看到在撒哈拉沙漠，还有非洲大草原上的时候，你会发现一个什么情况？这个狮子本来只是吃小鹿，吃完就走了，剩下的就秃鹫出来吃。这是一个生物链，这个中间最忌讳的是啥，你看到没有？人家本来吃小鹿，把大鹿全赶完了，剩下最弱的吃掉，这叫围猎啊！这个时候你会发现有一些不要脸的，不知道死活的一些动物就冲进来了。豹子在旁边看着他，鬣狗看到了，小水牛跑过来了。人家一看水牛过来了，摁倒就吃了，我们不要当那个被摁倒的，（而是）人家看着我在主战场。
 
-此外CIPS的运行要依靠SWIFT网络连接，违反制裁的交易不能规避法务风险。
+资料來源：[2022.3.11文贵大直播](https://www.gettr.com/streaming/pzg47d4994)
 
-3. 定制的双边系统
+发布：tianzhihuan
 
-境外贸易伙伴可能以电话，传真，APP等方式联络俄国进出口商，并得到付款。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-中共为帮伊朗逃脱制裁出口石油，使用了独立双边通信系统与昆仑银行对接。此方式要求两国设置交易处理团队，发送款项需要两份传真，并以两个电话确认成功接收。出错和安全风险将使小额支付不经济，此外，美财政部获悉昆仑的违规行为后，已经对其实施了二级制裁。
-
-
-
-相关链接:
-
-[https://www.reuters.com/markets/europe/russia-could-work-around-swift-ban-with-high-costs-2022-03-07/](https://www.reuters.com/markets/europe/russia-could-work-around-swift-ban-with-high-costs-2022-03-07/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-189.jpeg)
-
-
-
-编辑/校对/发稿：Petite abeille
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,110 +15,110 @@
 
 ---
 
-### [卡车抗议组织领导人塔玛拉·利希被释放](/content/gnews/1/README.md)
- ` 日本東京方舟農場`
-
-### [20220311郭文贵大直播 ：新中国联邦是黑暗世界里的一盏明灯](/content/gnews/2/README.md)
- ` Tokyo Sakura Video Group`
-
-### [新中国联邦法治基金乌克兰救援行动-波兰前线报导](/content/gnews/3/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [临终时生命历程会在眼前闪回吗？一名温哥华男子的脑部扫描证实了可能性！](/content/gnews/4/README.md)
- ` 日本東京方舟農場`
-
-### [从印尼血腥排华到乌克兰高价机票撤侨，中共作孽百姓买单](/content/gnews/5/README.md)
- ` YALUN 亚伦`
-
-### [大直播后记：俄罗斯必将解体，乌克兰救援活动不是私活](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [《铁锁梦》歌曲创作背后的故事](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [分析：全球银行退出俄罗斯面临代价高昂且过程艰难](/content/gnews/8/README.md)
- ` 日本東京方舟農場`
-
-### [【 G时新闻 】SpaceX公司为麦迪卡营救中心提供卫星互联网服务](/content/gnews/9/README.md)
- ` G-时新闻`
-
-### [五角大楼：美国对中共入侵台湾的反应将与乌克兰“不同”](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [乌核研究设施遭炮击毁坏，IAEA：未造成辐射外泄](/content/gnews/11/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [普丁侵乌又受挫，乌克兰东部亲俄军事团体首领丧命](/content/gnews/12/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [俄可能绕开SWIFT制裁，但代价高昂](/content/gnews/13/README.md)
- ` GTV News Talk`
-
-### [华夏专栏┃中国民主化进程的必然实现（续）一星星之火 可以燎原](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [成年人达不到立案标准！传85后女子失踪 公安拒立案并威胁家人](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [苏俄神话破灭？吃20年前的军粮 喷气式飞机配备旧式武器](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国疫情爆发，多点开花](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄乌展开第三轮谈判,乌方吁停止攻击平民](/content/gnews/18/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [3/12/2022 文贵盖特：只有善良的新中国联邦人为在严寒中走出乌克兰的难民提供了咖啡、热气炉和热水；香港疫情肆虐，到处都是尸体](/content/gnews/19/README.md)
- ` 秘密翻译组-北美组`
-
-### [被俘的俄羅斯士兵在烏克蘭投降後哭訴](/content/gnews/20/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [【 G时新闻 】乌克兰称俄军炮击破坏了尼古拉耶夫癌症医院及住宅楼](/content/gnews/21/README.md)
- ` G-时新闻`
-
-### [新西兰中共病毒新闻更新：当地时间3月12日新增 7 人死亡18699 例新增病例](/content/gnews/22/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [這是需要我們站起來的時刻](/content/gnews/23/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [加拿大政府证实 完全接种疫苗死亡比例占七成](/content/gnews/24/README.md)
+### [美国军援乌克兰 拜登授权再拨2亿美元](/content/gnews/1/README.md)
  ` 蓝莲花农场`
 
-### [【粤语配音】2022年3月12日：新中国联邦人正在向世界展示中国人的新形象](/content/gnews/25/README.md)
- ` MOS香港部`
+### [文•贵天成——文贵先生谈“生物科技”（四）](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [前北约总司令韦斯利克拉克将军谈俄罗斯入侵乌克兰](/content/gnews/26/README.md)
- ` 【🌹玫瑰新闻】`
+### [文•贵天成——文贵先生谈“生物科技”（六）](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [前线快报&#8212;-3月12日 包括一名出生6天的婴儿在内的12名乌克兰妇女和儿童已撤离前往波兰](/content/gnews/27/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [俄罗斯参与了帮助伊朗破坏美国石油制裁的阴谋](/content/gnews/4/README.md)
+ ` 日本東京方舟農場`
 
-### [【 G时新闻 】俄罗斯占据扎波罗热核电站，核监测数据停止](/content/gnews/28/README.md)
+### [秘翻在线：美参议员提出法案，欲制裁中共数字人民币](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [20220309文贵大直播：五年来中共从没停止对郭先生和爆料革命的攻击](/content/gnews/6/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [夏威夷将在3月26日解除戴口罩的命令——该州是美国最后一个取消该命令的州](/content/gnews/7/README.md)
+ ` 日本東京方舟農場`
+
+### [乌克兰鼓励俄军投降！缴械投降获500万卢布并赦免](/content/gnews/8/README.md)
+ ` 蓝莲花农场`
+
+### [卡车抗议组织领导人塔玛拉·利希被释放](/content/gnews/9/README.md)
+ ` 日本東京方舟農場`
+
+### [20220311郭文贵大直播 ：新中国联邦是黑暗世界里的一盏明灯](/content/gnews/10/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [新中国联邦法治基金乌克兰救援行动-波兰前线报导](/content/gnews/11/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [临终时生命历程会在眼前闪回吗？一名温哥华男子的脑部扫描证实了可能性！](/content/gnews/12/README.md)
+ ` 日本東京方舟農場`
+
+### [大直播后记：俄罗斯必将解体，乌克兰救援活动不是私活](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [分析：全球银行退出俄罗斯面临代价高昂且过程艰难](/content/gnews/14/README.md)
+ ` 日本東京方舟農場`
+
+### [【 G时新闻 】SpaceX公司为麦迪卡营救中心提供卫星互联网服务](/content/gnews/15/README.md)
  ` G-时新闻`
 
-### [俄罗斯如何招募雇佣军在乌克兰作战](/content/gnews/29/README.md)
+### [五角大楼：美国对中共入侵台湾的反应将与乌克兰“不同”](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [乌核研究设施遭炮击毁坏，IAEA：未造成辐射外泄](/content/gnews/17/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [联合国：乌克兰战争伤害进口粮食的贫穷国家](/content/gnews/30/README.md)
+### [普丁侵乌又受挫，乌克兰东部亲俄军事团体首领丧命](/content/gnews/18/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [华夏专栏┃中国民主化进程的必然实现（续）一星星之火 可以燎原](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [成年人达不到立案标准！传85后女子失踪 公安拒立案并威胁家人](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [苏俄神话破灭？吃20年前的军粮 喷气式飞机配备旧式武器](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国疫情爆发，多点开花](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [俄乌展开第三轮谈判,乌方吁停止攻击平民](/content/gnews/23/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [3/12/2022 文贵盖特：只有善良的新中国联邦人为在严寒中走出乌克兰的难民提供了咖啡、热气炉和热水；香港疫情肆虐，到处都是尸体](/content/gnews/24/README.md)
+ ` 秘密翻译组-北美组`
+
+### [新西兰中共病毒新闻更新：当地时间3月12日新增 7 人死亡18699 例新增病例](/content/gnews/25/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [加拿大政府证实 完全接种疫苗死亡比例占七成](/content/gnews/26/README.md)
+ ` 蓝莲花农场`
+
+### [【粤语配音】2022年3月12日：新中国联邦人正在向世界展示中国人的新形象](/content/gnews/27/README.md)
+ ` MOS香港部`
+
+### [前北约总司令韦斯利克拉克将军谈俄罗斯入侵乌克兰](/content/gnews/28/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [前线快报&#8212;-3月12日 包括一名出生6天的婴儿在内的12名乌克兰妇女和儿童已撤离前往波兰](/content/gnews/29/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [俄罗斯如何招募雇佣军在乌克兰作战](/content/gnews/30/README.md)
  ` 【🌹玫瑰新闻】`
 
 ### [有声|滴滴出行暂停香港上市计划，股价爆跌，投资者损失惨重](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [有声|欧盟领导人一致同意乌克兰加盟请求](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [福奇的瑞德西韦五天治疗方案的死亡率惊人](/content/gnews/33/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [八成加拿大人认为疫情极大扰乱了生活](/content/gnews/34/README.md)
+### [八成加拿大人认为疫情极大扰乱了生活](/content/gnews/32/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [乌克兰大救援 3.11.2022 中共的假恶丑逃和新中国联邦人的真善美勇形成鲜明对照](/content/gnews/35/README.md)
+### [俄罗斯-乌克兰战争，什么是普京的打法？](/content/gnews/33/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [乌克兰大救援 3.11.2022 中共的假恶丑逃和新中国联邦人的真善美勇形成鲜明对照](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`
+
+### [【转】截至3.12 俄乌战事汇总（2）](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [记录战友的辛苦](/content/gnews/36/README.md)
  ` 纽约香草山MOS02`
@@ -159,14 +159,14 @@
 ### [纽约西藏人：中领馆前抗议并纪念拉萨事件63周年](/content/gnews/48/README.md)
  ` 日本东京方舟农场`
 
-### [数字货币最新进展](/content/gnews/49/README.md)
- ` NFSC News`
-
-### [秘翻新闻｜俄乌战争打醒中国留学生 小粉红转向反共](/content/gnews/50/README.md)
+### [秘翻新闻｜俄乌战争打醒中国留学生 小粉红转向反共](/content/gnews/49/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共散布美国实验室拥有和使用生化武器的虚假信息](/content/gnews/51/README.md)
+### [中共散布美国实验室拥有和使用生化武器的虚假信息](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [CCP 的地方债](/content/gnews/51/README.md)
+ ` 纽约香草山MOS01`
 
 ### [樱花时政┃中共国与俄罗斯联手绕开制裁，俄石油销售从未停止](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
