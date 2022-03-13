@@ -2,38 +2,38 @@
 ---
 
 
-## 俄罗斯第三名将军在乌克兰被击毙
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156464/)
+## 美国称从伊朗发射的导弹击中驻伊拉克领事馆附近
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2156511/)
 
-撰稿: 纽约香草山教育部- Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
-3月12日，国外媒体报道，一位西方国家官员称，俄罗斯将军柯列斯尼可夫少将被乌克兰部队击毙。这是俄罗斯入侵乌克兰以来第三名被乌克兰部队击毙的俄罗斯将军。俄罗斯国防部未就此事作出及时回应。国防部网站则显示，柯列斯尼可夫现任俄罗斯东部军区司令。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1403.png)
-该官员称，俄罗斯入侵乌克兰刚刚两周的时间，被杀将领数量已经跟俄罗斯在整个叙利亚冲突期间一样多。
+编译：意大利罗马达芬奇农场 ZQ
 
-乌克兰军方在推特上确认了该高级军官被消灭的消息，并表示：“俄罗斯侵略者会在乌克兰失去更多军官。”
-
-据报道，目前乌克兰的顽强抵抗以及天气寒冷和物资不足的问题使俄罗斯部队士气低落。
-
-链接:
-
-**[Third Russian general killed in Ukraine ‘in sign of weakness among Putin’s forces’](https://www.independent.co.uk/news/world/europe/ukraine-russian-general-dead-putin-b2034205.html?amp)**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/600x-1.jpg)
 
 
+图片来源：法新社/盖蒂图片社
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
+周日，多达12枚导弹袭击了位于伊拉克北部城市埃尔比勒的一个庞大的美国领事馆建筑群，一名美国国防官员和一名伊拉克官员说，这是一次从邻国伊朗发动的袭击。
 
-编辑/总编/审核: 飞虹
+在这次袭击中没有人员伤亡的报道，这标志着美国和伊朗之间的关系明显升级。这对长期敌人之间的敌意经常在伊拉克上演，伊拉克政府与这两个国家都是盟友。
 
-校正/发稿：浪迹天涯
+在巴格达的伊拉克官员最初说，有几枚导弹击中了美国驻伊尔比勒的领事馆，它是袭击的目标。后来，库尔德斯坦外交媒体办公室主任劳克-加法里说，没有一枚导弹击中美国设施，但该院周围地区被击中。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
+这位美国国防部官员说，目前还不能确定究竟发射了多少枚导弹，以及这些导弹究竟落在哪里。第二位美国官员说，任何美国政府设施都没有受到损害，没有迹象表明目标是领事馆大楼，该大楼是新的，目前无人居住。
+
+这位伊拉克官员和美国官员都没有被授权与媒体讨论这一事件，他们在匿名的情况下对美联社进行了采访。
+
+位于美国领事馆附近的卫星广播频道Kurdistan24在袭击发生后不久就从他们的演播室开始播出，显示出演播室地板上的玻璃碎片和残骸。
+
+在这次袭击发生的几天前，伊朗说它将对以色列在叙利亚大马士革附近的袭击进行报复，这次袭击杀死了伊朗革命卫队的两名成员。周日，伊朗国营的伊斯兰共和国通讯社援引伊拉克媒体的话，承认在埃尔比勒发生的袭击事件，但没有说这些袭击源自哪里。
+
+伊朗发言人驳斥了关于伊朗是伊尔比勒袭击事件幕后推手的指控。伊朗议会国家安全和外交政策委员会发言人马哈茂德-阿巴斯扎德说，到目前为止，这一指控还无法得到证实。
+
+“他在接受当地新闻网站采访时说：”如果伊朗决定进行报复……那将是非常、非常严重、强烈的。
+
+链接：[https://www.bloomberg.com/news/articles/2022-03-12/u-s-consulate-in-iraq-s-kurdistan-hit-by-rockets-sky](https://www.bloomberg.com/news/articles/2022-03-12/u-s-consulate-in-iraq-s-kurdistan-hit-by-rockets-sky)
+
+编辑校对发表： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

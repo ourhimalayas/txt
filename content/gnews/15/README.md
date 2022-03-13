@@ -2,12 +2,16 @@
 ---
 
 
-## 【乌克兰救援】03/13/22 新中国联邦的大帐篷物资供应充分，乌克兰难民在这里能够得到有效救济
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2156636/)
+## 面临俄式被制裁 中共将会如何
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2156673/)
 
-【乌克兰救援】03/13/22 新中国联邦的大帐篷物资供应充分，乌克兰难民在这里能够得到有效救济。
+文贵大直播20220313
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+撰稿：Nine Lee（DC）
+
+美工：新宝（银河）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-5-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-3-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-2-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8-2-scaled.jpg)
+*发布：Theodosia*
 
  
 
