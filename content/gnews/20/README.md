@@ -2,24 +2,20 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月13日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2158505/)
+## 香草山翻译部周刊|2022年3月13日第39期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2158611/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-5.jpg)
 
 作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-1-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CN-0313-1.png)
 文章仅代表作者本人观点，与Gnews无关
 
-视频参看：
-[2022.03.13早 《NFSC新闻》](https://gettr.com/streaming/pzruu7f0db)
-[2022.03.13早 G|TV《新闻访谈》](https://gettr.com/streaming/pzrys562af)
-
+总编： GBWater
 编辑： Lakers
-校对： Lakers
 发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-13.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-14.jpeg)
 
 **更多资讯，更多关注**
 [纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

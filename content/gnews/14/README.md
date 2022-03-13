@@ -2,36 +2,39 @@
 ---
 
 
-## 美国警告如果中共助俄逃避制裁将面临严重后果
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2158623/)
+## 有声|五家中资公司进入退市清单引中概股暴跌
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2158661/)
 
-翻译：灭共文明
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月10日，美国证监会SEC官网披露，有五家中概股因《外国公司问责法案》而被列入预定摘牌名单。消息一出，引发多支中概股惨遭血洗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-23-1.jpg)
+这五家公司分别是百济神州，百胜中国，再鼎医药，盛美半导体，以及和黄医药。当天，多支中共龙头股出现两位数崩溃式跌幅，造成纳斯达克金龙中国指数一度狂跌10%。其中，逸仙电商暴跌近40%，贝壳跌幅达24%，爱奇艺跌21%。
 
-编辑与校对：灭共文明
+对此，华尔街对冲基金人士解释，这几家公司刚刚发布年报，显示公司董事会出现中共国政府指派的官员，表明有政府资产牵涉其中，这就导致美国审计部门难以获得充分的审计信息，违反了外国公司问责法。俄乌战争背景下市场本来就异常脆弱，SEC此举被市场解读为对中概股有所行动。
 
-《路透社》华盛顿3月13日报道，**周一，美国国家安全顾问沙利文(Jake Sullivan)，将在罗马会见中共国外交部长杨洁篪，他警告称，如果中共帮助俄罗斯逃避因乌克兰战争而受到的全面制裁，中共将面临严重后果。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/沙利文1-e1644627690391.jpg)白宫安全顾问沙利文（图片来源：网络）
-沙利文表示，**美国认为中共在入侵乌克兰之前就知道俄罗斯计划在乌克兰采取一些行动**。现在美国正在密切**关注中共向俄罗斯提供多大的经济或物质支持，以及将会造成什么后果。**
+据悉，2021年美国参议院还通过了《加速外国公司问责法案》的草案，即将进入众议院表决议程。该法案的核心内容是将审查时间由三年缩短为两年。进入识别清单的中概股将缩短退市周期。
 
-沙利文说，**美国**不会允许这种情况继续下去，**不会允许俄罗斯在任何地方和任何国家的经济制裁中获得一条生命线。**
 
-周六，**美国表示，将向乌克兰军队提供价值高达2亿美元的额外武器。**
 
-目前，**俄乌战争已经将数千名平民困在被围困的城市，并导致250万乌克兰人逃往邻国。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022030614075251206-1.jpg)图片来源：网络。
-**美国及其盟友对俄罗斯实施了全面的、前所未有的制裁，并禁止俄罗斯进口能源，同时向乌克兰提供了数十亿美元的军事和人道主义援助。**
+文字版原文：[五家中资公司进入退市清单引中概股暴跌](https://gnews.org/zh-hans/2151994/)
 
-截至目前，中共仍然拒绝将俄罗斯的行动称为入侵。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-据报道，在罗马期间，沙利文还将会见意大利总理的外交顾问路易吉‧马蒂奥洛（Luigi Mattiolo），**继续协调全球对普京发动战争的强烈回应。**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-周五**，美国和七国集团加大了对俄罗斯的压力，呼吁取消俄罗斯的“最惠国”贸易地位，这将使它们能够提高对俄罗斯商品的关税。**
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-新闻采集：文绮.子夜吴歌
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-新闻来源链接：
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[Russia counts on sanctions help from China; U.S. warns off Beijing | Reuters](https://www.reuters.com/markets/europe/russia-says-nearly-half-its-reserves-are-frozen-counts-ties-with-china-2022-03-13/)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

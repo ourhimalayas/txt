@@ -2,29 +2,35 @@
 ---
 
 
-## 新中国联邦救援信息
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2158434/)
+## 伊拉克北部库尔德族自治区遭遇导弹袭击 自治区官员如是表示
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2158543/)
 
-作者：Irene木木
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-鉴于目前乌克兰局势日益恶化，新中国联邦救援和法治基金救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-13-下午1.46.17-1.png)
-自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发，前往波兰。此外，新中国联邦和法治基金的第一批救援专机将于近期从波兰出发。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+翻译：Orpheus
 
-救援信息：[https://discord.com/channels/872153398588370944/950450831868694618/951130005566550056](https://discord.com/channels/872153398588370944/950450831868694618/951130005566550056)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220313-00000013-reut-000-4-view-edited.jpg)图片来源：路透社
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+伊拉克北部库尔德族自治区的一名干部13日说，有人从伊拉克境外向自治区首府艾比尔发射了数枚弹道导弹。 据说并没有人员伤亡。
 
-总编：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+一位美国官员告诉路透社，这些导弹是从伊朗发射的，但没有提供进一步的细节。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+并没有任何团体发表关于这次袭击的声明，也没有提供任何细节。 美国国务院发言人谴责了这次袭击，但表示没有美国人受伤，所在该地区的美国政府设施也没有遭到破坏。
+
+伊拉克国家电视台报导，库德族自治区反恐部队说，他们从伊拉克境外发射了12枚导弹，袭击了首都艾比尔，击中地点至今不明。
+
+艾比尔国际机场旁边的美军驻地过去曾遭到火箭弹和无人机的袭击，美国认为这次袭击是由亲伊朗的武装团体所为。 在过去的几个月里一直没有发生过这样的攻击。
+
+上回出现对美军的弹道导弹攻击是在2020年1月。 该袭击是对于美国杀害伊朗革命卫队指挥官苏莱曼尼的报复。
+
+**参考资料：**[news.yahoo.co.jp][イラク北部クルド人自治区に弾道ミサイル＝自治区幹部](https://news.yahoo.co.jp/articles/7a912d1e1367a0f7bd898473e3906cea2efaf97b)
+
+* * *
+
+*审核：BryanW*
+*校对：宫米叶*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-8.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

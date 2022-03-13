@@ -2,26 +2,33 @@
 ---
 
 
-## 香草山翻译部周刊|2022年3月13日第39期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2158611/)
+## SWIFT中断后俄罗斯银行的人民币存款猛增
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2158654/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Y.jpg)united-london.uk
+3月13日《零对冲》报道，俄罗斯现在正式被SWIFT切断了与美元和欧元的联系，俄罗斯VTB银行的人民币存款激增，因为普京将注意力转移到 “友好 ”国家，该银行提供了明显更高的利率。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CN-0313-1.png)
-文章仅代表作者本人观点，与Gnews无关
+这家国有银行正在提供一个最高利率为8%的人民币储蓄账户，在俄罗斯受到西方制裁后，人民币在那里被誉为 “最实惠和最有前途的资金投资选择之一”。
 
-总编： GBWater
-编辑： Lakers
-发稿： Lakers
+根据VTB的说法，三个月的存款利率是美元8%，欧元7%，而卢布存款的六个月利率是21%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-14.jpeg)
+据报道，现有客户可以在VTB网上远程开立存款账户，最低金额为100元（16美元），在VTB分行，他们可以存入最低500元人民币。VTB还表示，在过去的一周里，客户在传统储蓄产品中的存款超过了2万亿卢布（150亿美元）。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+“一些俄罗斯银行无法获得其他货币，所以人民币可能是最好的其他项选择。”澳大利亚和新西兰银行集团的亚洲研究主管吴国强（Khoon Goh）告诉彭博社。
+
+“尽管如此，俄罗斯筹集人民币的最简单方式是通过交易接收人民币。俄罗斯银行的出口客户可以向中共国出售，并收到人民币作为付款。”
+
+据《电讯报》报道，此举发生在包括俄罗斯储蓄银行和阿尔法银行在内的一系列俄罗斯贷款机构计划使用中共国的银联系统来提供客户的银行卡之后的几天内，因为维萨和万事达卡抵制俄罗斯对乌克兰的入侵而拒绝俄罗斯人再使用。银联是中共国占主导地位的支付系统，但在世界第二大经济体以外的市场占有率很小。
+
+**评论**：听了郭先生爆料的战友们都知道，习近平给了普京一万亿美金，是普京发动侵略乌克兰战争的背后金主。不仅如此，中共还在全世界谴责、制裁普京的俄罗斯之际，逆潮流而动，为被SWIFT切断美元欧元交易的卢布提供人民币跨境支付系统（CIPS）和人民币，为普京逃脱制裁打开方便之门。结果是俄乌打仗，千里之外的中共国人买单，中国人中的大多数不仅被吸血，还被洗脑，遭全世界唾弃。
+
+我们新中国联邦人，是要消灭中国共产党的新中国人，挽救的不仅是国人，还有全世界被邪恶势力蒙蔽、伤害的普通人，要阻止全球的排华、反华势头，我们都要站起来，消灭中共是正义的必需。
+
+原文链接：
+
+[https://www.zerohedge.com/markets/yuan-deposits-soar-russian-banks-after-swift-cut](https://www.zerohedge.com/markets/yuan-deposits-soar-russian-banks-after-swift-cut)
+
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 

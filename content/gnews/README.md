@@ -15,86 +15,86 @@
 
 ---
 
-### [第一名美国记者在俄乌战争中被枪杀](/content/gnews/1/README.md)
- ` 蓝莲花农场`
+### [3月13日文贵大直播要点（图片1-7）](/content/gnews/1/README.md)
+ ` 波士顿五月花农场`
 
-### [3/13/2022 文贵直播: 我们到了前线，成为消灭中国共产党的新中国人，成为互相尊重，文明，干净，诚实，团结的中国人，但也暴露了我们的很多问题，我们个人主义太强、自以为是、不尊重别人、不看别人优点、老提意见、行动力差](/content/gnews/2/README.md)
- ` 秘密翻译组-北美组`
+### [容易陷入低频牢笼的言行和念头](/content/gnews/2/README.md)
+ ` 正道人`
 
-### [3/13/2022 文贵直播：中共和普京合演“围魏救赵”：先由俄罗斯攻打乌克兰，然后在中东挑起事端，砸烂石油经济和美元，企图阻止美欧的经济金融制裁，让中共有机会打台湾，甚至放病毒，以期和美欧抗衡到底](/content/gnews/3/README.md)
- ` 秘密翻译组-北美组`
+### [沙利文称如果中国帮助俄罗斯逃避制裁将面临后果](/content/gnews/3/README.md)
+ ` Shuizhuyu`
 
-### [卢比奥：来自中国的威胁是俄罗斯的1000倍](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [吉林长春疫情大爆发 急建方舱医院](/content/gnews/5/README.md)
- ` 蓝莲花农场`
-
-### [2022/03/13 英喜时事速递](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|美国和北约紧急支援乌克兰防空导弹](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [文贵爆料3.13：中共发起中东战争，“围魏救赵 ”意在攻台](/content/gnews/8/README.md)
- ` 秘密翻译组-原创组`
-
-### [有声|五家中资公司进入退市清单引中概股暴跌](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [SWIFT中断后俄罗斯银行的人民币存款猛增](/content/gnews/10/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [有声|美国民调显示：民众认为中共对美国威胁远大于俄罗斯](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [美参议员称若俄使用化学武器就该设立禁飞区](/content/gnews/12/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [新中国联邦驻波兰梅迪卡的战地钢琴曲](/content/gnews/13/README.md)
+### [文•贵天成：文贵先生谈“孟建柱”（二十一）](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国警告如果中共助俄逃避制裁将面临严重后果](/content/gnews/14/README.md)
- ` 蓝莲花农场`
-
-### [香草山翻译部周刊|2022年3月13日第39期](/content/gnews/15/README.md)
- ` 纽约香草山MOS01`
-
-### [DC每日热点0313](/content/gnews/16/README.md)
+### [明道接受两个波兰独立制片人采访](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [伊拉克北部库尔德族自治区遭遇导弹袭击 自治区官员如是表示](/content/gnews/17/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [第一名美国记者在俄乌战争中被枪杀](/content/gnews/6/README.md)
+ ` 蓝莲花农场`
 
-### [中共利用候鸟在全世界传播病毒并甩锅美国](/content/gnews/18/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [3/13/2022 文贵直播: 我们到了前线，成为消灭中国共产党的新中国人，成为互相尊重，文明，干净，诚实，团结的中国人，但也暴露了我们的很多问题，我们个人主义太强、自以为是、不尊重别人、不看别人优点、老提意见、行动力差](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
 
-### [2022年3月13日大直播速记精萃](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
+### [3/13/2022 文贵直播：中共和普京合演“围魏救赵”：先由俄罗斯攻打乌克兰，然后在中东挑起事端，砸烂石油经济和美元，企图阻止美欧的经济金融制裁，让中共有机会打台湾，甚至放病毒，以期和美欧抗衡到底](/content/gnews/8/README.md)
+ ` 秘密翻译组-北美组`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年3月13日早](/content/gnews/20/README.md)
- ` 纽约香草山MOS01`
+### [卢比奥：来自中国的威胁是俄罗斯的1000倍](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [新闻述评：福布斯承认喜币是一场货币革命](/content/gnews/21/README.md)
- ` 开眼实验室`
+### [吉林长春疫情大爆发 急建方舱医院](/content/gnews/10/README.md)
+ ` 蓝莲花农场`
 
-### [新中国联邦救援信息](/content/gnews/22/README.md)
- ` NFSC News`
+### [2022/03/13 英喜时事速递](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新闻背景：梅迪卡——乌克兰难民救援地](/content/gnews/23/README.md)
- ` NFSC News`
-
-### [YouTube封锁俄罗斯官媒频道 范围扩及全球](/content/gnews/24/README.md)
- ` NFSC News`
-
-### [有声|强国奇闻(11)](/content/gnews/25/README.md)
+### [有声|美国和北约紧急支援乌克兰防空导弹](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [文贵爆料 3.11：历史照亮现实——看战争狂人的共性](/content/gnews/26/README.md)
+### [文贵爆料3.13：中共发起中东战争，“围魏救赵 ”意在攻台](/content/gnews/13/README.md)
  ` 秘密翻译组-原创组`
 
-### [《铁锁梦》歌曲将会影响中国女性在未来世界的地位](/content/gnews/27/README.md)
+### [有声|五家中资公司进入退市清单引中概股暴跌](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [SWIFT中断后俄罗斯银行的人民币存款猛增](/content/gnews/15/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [有声|美国民调显示：民众认为中共对美国威胁远大于俄罗斯](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [美参议员称若俄使用化学武器就该设立禁飞区](/content/gnews/17/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [新中国联邦驻波兰梅迪卡的战地钢琴曲](/content/gnews/18/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国警告如果中共助俄逃避制裁将面临严重后果](/content/gnews/19/README.md)
+ ` 蓝莲花农场`
+
+### [香草山翻译部周刊|2022年3月13日第39期](/content/gnews/20/README.md)
+ ` 纽约香草山MOS01`
+
+### [DC每日热点0313](/content/gnews/21/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [伊拉克北部库尔德族自治区遭遇导弹袭击 自治区官员如是表示](/content/gnews/22/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共利用候鸟在全世界传播病毒并甩锅美国](/content/gnews/23/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2022年3月13日大直播速记精萃](/content/gnews/24/README.md)
+ ` 雅典娜GNotes`
+
+### [新闻述评：福布斯承认喜币是一场货币革命](/content/gnews/25/README.md)
  ` 开眼实验室`
+
+### [新中国联邦救援信息](/content/gnews/26/README.md)
+ ` NFSC News`
+
+### [新闻背景：梅迪卡——乌克兰难民救援地](/content/gnews/27/README.md)
+ ` NFSC News`
 
 ### [莫德纳凭借新冠疫苗去年狂赚122亿 CEO获一揽子奖励](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`

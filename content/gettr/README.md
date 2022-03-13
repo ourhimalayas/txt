@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 10:23 PM (UTC)`
+
+❤️In Kraków, Poland at 1 am on March 13,  the NFSC & ROLF Ukraine Rescue team greeted two rescue buses carrying 118 people (including a 3-day infant) , prepared hot coffee and food when greeting the buses, helped the refugees with their luggage, and led them to the train station. #NFSCrescue #ROLFrescue<br/><br/>📍We are the NEW CHINESE people who are taking down the EVIL Chinese Communist Party! #CCP≠Chinese<br/><br/>❤️法治基金和新中国联邦救援队于3月13日凌晨1点，在波兰克拉科夫迎接2辆载有118人（包括一个3个月大的婴儿）的救援大巴，在迎接大巴时准备了热咖啡和食物，帮难民们拿行李，引领她们去火车站。<br/><br/>📍我们是消灭邪恶中国共产党的新中国人 <br/><br/>💥24-Hour Emergency Rescue Support Team Contact: <br/>💌Email: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com <br/>☎️Phone (Call or Text): <br/>+1 720-657-6776 OR +1 719-224-4232 OR<br/>+48 508-532-712 OR +48 508-531-518
+![img](https://media.gettr.com/group32/origin/2022/03/13/22/866b6238-615d-298c-bc3d-f27c318d45aa/out.jpg)
+
+---
+
+`@miles 3/13/2022 10:13 PM (UTC)`
+
+3/13/2022 Miles Guo: What are the implications of the Western sanctions imposed on the Russian oligarchs? Regardless of which passport you hold, once the CCP is sanctioned by the West, no one in China will be able to evade it. Only those citizens of the New Federal State of China who are determined to take down the CCP can save their lives and wealth. Being truthful and united is what makes us different from the CCP.<br/><br/>3/13/2022 文贵直播：俄罗斯寡头被西方制裁说明了什么？无论持哪国护照，一旦中共国被西方制裁，中国人谁也躲不过，只有灭共的新中国联邦人可以保命保财，唯真不破和团结让我们和中共不一样<br/>
+![img](https://media.gettr.com/group18/getter/2022/03/13/22/e1f4327a-5ca8-78ae-8c2a-4e7ccffcbdeb/out.jpg)
+
+---
+
 `@miles 3/13/2022 10:00 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-13
@@ -142,20 +156,6 @@ The Medyka port is a land port on the border between Poland and Ukraine. A large
 
 On the front line of relief in Ukraine, there were many women and children in the tents of the New Federal State of China. This cute little girl, happily greeted our fellow fighters. Smiling at them and even blowing a kiss to them, smiling happily and innocently. I hope the war will end soon and return the children to a regular life! We will never allow the Chinese Communist Party to still exist in the world of our children.<br/>在乌克兰救援前线，新中国联邦的帐篷里，有很多妇女和孩子。这位可爱的小女孩，开心的和我们的战友打招呼，对着战友微笑，并且送上一个飞吻，笑得是那样开心，天真无邪。希望战争尽快结束，还所有孩子一个正常的生活。新中国联邦决不允许中国共产党仍然存在于我们孩子的世界里。
 ![img](https://media.gettr.com/group18/origin/2022/03/13/05/8837ff11-44cb-7121-5f75-e67889459e4b/out.jpg)
-
----
-
-`@miles 3/13/2022 4:00 AM (UTC)`
-
-【Ukraine Rescue】03/12/2022 Innocent Ukrainian children dancing in the NFSC/ROLF tent at our Medyka rescue center, Poland.  <br/><br/>【乌克兰救援】03/12/2022 天真无邪的乌克兰儿童在新中国联邦波兰梅迪卡难民救助站的大帐篷中跳舞<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
-![img](https://media.gettr.com/group9/getter/2022/03/13/04/a3cc540f-f2bf-26a8-8f72-6a6c576d84b0/out.jpg)
-
----
-
-`@miles 3/13/2022 3:40 AM (UTC)`
-
-【Ukraine Rescue】03/12/2022 NFSC & ROLF Volunteer Nicole is interviewing the sister of the Trinity Broadcasting Network’s journalist, who is also Ukrainian, at our Medyka rescue center, Poland. Nicole told her that the NFSC people are helping the Ukrainians and fighting the communist dictatorship too and we will win.<br/><br/>【乌克兰救援】03/12/2022 新中国联邦和法治基金义工妮可在我们波兰梅迪卡难民救助站采访全球最大宗教电视台三一广播网乌克兰记者的妹妹，向她介绍新中国联邦人在帮助救援乌克兰人，也在同共产主义独裁作斗争，我们一定会赢！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group19/getter/2022/03/13/03/2e6ea64d-2771-b01e-ba0e-b791b8a47e16/out.jpg)
 
 ---
 
