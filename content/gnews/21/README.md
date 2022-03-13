@@ -2,119 +2,157 @@
 ---
 
 
-## 化学家向保罗-埃利希研究所提出进一步的问题
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2155911/)
+## 爆料百科 &#8211; 邪教组织
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2155940/)
 
-**五位科学家向保罗-埃利希研究所明确了他们的问题。**
+作者：美国纽约香草山农场-爆料百科
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共统治的70年间，
 
-作者：BLZ/原文发布于2022年3月10日23:46
-翻译：LK/校对:   蔚蓝的天
-![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-2.jpg)图片：生物新技术/辉瑞公司的復必泰（Comirnaty）疫苗。/ Imago
+During the 70 years of CCP rule
 
-来自德国大学的五位化学教授一直在研究辉瑞（Pfizer）生物新技术公司（BioNTech）的新冠病毒（Covid 19）疫苗。他们向公司提出了一些问题（[hier](https://www.berliner-zeitung.de/news/chemiker-zu-impfstoff-woher-kommt-der-grauton-li.208305)），并通过《柏林日报》得到了答案（[hier](https://www.berliner-zeitung.de/politik-gesellschaft/biontech-antwortet-zu-impfstoff-eindruck-einer-leichten-faerbung-normal-li.208786)）。随后是另一轮的提问（[hier](https://www.berliner-zeitung.de/gesundheit-oekologie/chemiker-an-biontech-diese-antwort-finden-wir-etwas-irritierend-li.209451)）。最后，《柏林日报》收到了一些值得注意的信息（ [bemerkenswerte Informationen](https://www.berliner-zeitung.de/welt-nationen/biontech-keine-chargenspezifischen-nebenwirkungen-bekannt-li.209996)），从中得出结论：监管机构还可以更深入地处理一些问题。
+将许多组织定义为邪教组织。
 
-《柏林日报》向保罗-埃利希研究所（PEI）的询问仍未得到答复。现在，化学家们已经提出了更详细的问题。PEI确认收到了这些问题。
+it defined many organizations as cults
 
-**化学家的信的内容：**
+而中共对中国人民犯下的罪行，
 
-尊敬的女士们和先生们
+And the crimes committed by the CCP against the Chinese people
 
-贵机构负责疫苗和生物医学药物的授权和批量发布，为这些德国的药品安全做出了巨大贡献。我们，这封信的签署者，是五所德语大学的化学和物理领域的教授，知道你们工作的重要性。然而，我们对BioNTech公司有条件批准的疫苗Comirnaty的质量和安全性表示严重担忧。
+悉数符合邪教组织的特征。
 
-基于这些原因，我们要求，根据PEI文件中信息自由法（IFG）第1条的规定，通过您作为公共权力机构的主席，来获取关于许可和监管数据的信息。
+all fit the characteristics of a cult
 
-具体而言，我们要求：
-
-**获取关于mRNA疫苗致癌潜在性的数据**
-
-最新的一份出版物显示，疫苗BNT162b2的mRNA，即目前正在使用的疫苗，可以通过一种逆转录酶（https://www.mdpi.com/1467-3045/44/3/73/htm）插入人类肝细胞的基因组。基于载体和/或治疗性基因剂整合到目标细胞基因组中的基因治疗剂的致癌风险是众所周知的，因此，在首次用于人类之前，应成为临床前测试的一部分。
-
-- PEI如何评估上述与（德国）《药品法》（AMG）第5条第1和第2款有关的结果？
-- PEI 是否已将上述研究的结果告知欧洲药品管理局（ EMA）？
-- EMA是否要求根据以下指南[1,2,3]对致癌潜在性进行进一步的安全性研究？
+1. 教主崇拜。
 
 
-**获取赋形剂ALC-0159和ALC-0350的注册研究信息**
+First, cult leader worship
 
-由于新的实验性疫苗在大部分健康人群中的广泛使用，我们认为必须有无可争议的证据来证明这种医学形式的安全性。因此，我们要求：
+从“东方红，太阳升，中国出了个毛泽东”，
 
-- 存在哪些有关脂质纳米颗粒（LNP）分散体在健康人肌肉注射后的安全性的相关大规模研究，并被EMA用作同意的依据？
-- 有什么安全证明？
-- BioNTech 的 Comirnaty 疫苗中使用上述两种脂质的当前纯度标准是什么？
-- 哪些药代动力学模型计算或研究可用于新赋形剂和 mRNA 在区域淋巴结中保留多长时间，以及在多剂量情况下应如何考虑这一问题？
-- EMA是根据什么数据批准赋形剂ALC-0315作为BioNTech的mRNA疫苗的有条件批准的一部分，从而批准用于肌肉注射的制剂？
-- 请告知我们你们有哪些关于LNP注射后，随时间变化，局部分布和可能的局部蓄积的临床试验，或其他研究结果。
-- 欧洲药品管理局是否要求BioNTech对ALC-0315可能的遗传毒性/致癌性进行测试，要求进行这种测试是否正确，因为a）在6个月以上的时间内给予多剂量，b）ALC-0315 LNPs可引起炎症，c）阳离子转染剂是否可引起DNA链断裂？
+from “Dongfanghong, the sun rises, China has a Mao Zedong”
 
+到当今的为我独尊的习太阳。
 
-**获取质量保证数据**
+to today’s the exclusive Xi Sun
 
-- 每一批投放市场的疫苗都是由PEI根据AMG的第32条规定进行测试和发布的吗？
-- 除了生产公司的质量保证外，是否有另一个独立的控制机构来检查各个批次的质量？
-- 是否有另一个独立的检测机构？PEI 是否拥有根据 2001/83 号指令（欧盟就人用药物制品的指令）附件 1 的现行格式的质量专家报告和批文模块 2 中的质量总体摘要？
-- 是否还有其他独立的检测机构？
-- PEI是否有成品的释放规范？PEI 是否有分析证书以及各个制造步骤的制造和检测记录？PEI的检查是否使用批文中描述的所有分析和检验方法进行？这些检验是否仅是检查测试报告，还是对每一批的随机样品也进行了完整的分析？
-- 如果赋形剂未在《欧洲药典》（Ph. Eur） 中列出，请向我们提供完整的当前“报告员滚动审查评估报告”，包括活性物质主文件（ ASMF ）和 EMF（赋形剂主文件）。
-- 请为我们提供合适的光谱，以便可靠地描述分散体的颜色和散射强度，包括确定杂质的特性和数量的方法，以便我们能够评估不同颜色印象的原因。
-- 我们要求获得 Comirnaty 疫苗质量保证规范和迄今为止的结果。 这尤其涉及，但不限于起始材料（活性成分和赋形剂）的质量保证（包括特性、纯度、杂质数量和类型的信息）、生产过程和成品药物。 对我们来说特别重要的一些方面是：
-- mRNA浓度测定和在最终剂型中的分布方法的全部细节。
-- 所有质量测试的公差范围（如颗粒大小、物质浓度、颜色、mRNA体外表达和mRNA完整性）。
-- 请告知我们如何以及通过哪些检查方法来评估mRNA的质量，即如何确定mRNA种类的特性，以及与完整mRNA相比截断的或有缺陷的mRNA的数量。
-- 请告知我们你们掌握哪些关于BNT162b2 mRNA在淋巴祖细胞中的致癌风险信息，以及你们如何评估这种风险。
-- 请告知我们，如何确保除了刺突蛋白外，体内没有其他蛋白质的形成。
-- 人们对细胞由于缩短或缺陷的mRNA产生的蛋白质的副作用了解多少？
+- 精神控制。中共建造“防火墙”，
 
 
-2022年2月4日《柏林日报》的一篇文章称，BioNTech声称已经满足了有条件批准的所有条件。请确认BioNTech这一说法的准确性，并让我们查阅测试记录及其评估。请将2021年12月16日的EMA评估报告和2022年1月24日的委员会关于变更通知组 (II/0054/G) 的决定发送给我们，其中声称满足了SO 4 和 SO 5 的特殊条件。
+Second, mind control. The CCP built a “firewall”
 
-- 在EMA关于延长上市许可的评估报告中，哪些描述为悬而未决的药品质量的特殊条件，目前仍未解决？
+全面控制教育和舆论，洗脑国民，
 
+to fully control education, public opinion and brainwash the nationals
 
-**查阅副作用数据**
+让人民相信“爹亲，娘亲，不如党亲”。
 
-世界范围内列出的副作用的数量，其中一些是严重的，包括血栓的形成和心肌炎的发生，甚至死亡，仅举几个例子，是惊人的高，最近来自企业医疗保险公司（BKK）的报告显示，未报告的病例数量甚至可能高一个数量级。
+make the people believe that “father and mother are not as close as the CCP”
 
-- 关于某些批次的副作用累积的报告令人担忧。副作用报告中是否包括批号，该数据是否可用于识别特定批次的群组？
-- 请让我们知道你们为调查副作用的原因所做的努力。
-- 是否对这些成分及其生物降解产物的药代动力学进行进一步研究，或者是否计划或要求进行这些研究？
-
-
-**对医生们的阐明**
-
-- 为接种医生和药剂师提供了哪些信息或培训，使他们能够区分完好和非完好的疫苗？
-- 稀释样品时，必须在不摇晃的情况下将悬浮液均匀化。这里的医务人员是否有特别的培训，以确保质量的一致性？
-- 是否使用校准过的注射器来抽取或稀释样本，以便每次接种都能获得一致的活性物质数量？
+- 编造邪说。共产主义早已被世界唾弃，
 
 
-**副作用的报告系统**
+Third, fabricated heresy. Communism has long been spurned by the world
 
-患者告诉我们，医生不愿意报告接种疫苗的负面效果。医生们报告说，大量的病人数据必须，也是应该输入报告中，而他们往往没有这些数据。此外，我们被告知，每份报告需要10至30分钟，这还必须在工作时间外，无偿完成。
+中共却包装美化共产主义，
 
-- 你们做了哪些工作来确保尽可能多的疑似疫苗损害案例被报告给你们？
-- 在有医疗条件表明可能存在疫苗损害的情况下，医生是否有义务询问疫苗接种情况？
-- PEI内部有什么程序来确定何时对报告的疫苗接种不良事件进行调查，认为其可能与疫苗接种有因果关系？特别是：副作用的发生与疫苗接种时间之间的时间关系，在评估因果关系方面起什么作用？当观察到某些疫苗不良事件（包括死亡）的统计学上的累积时，PEI采取了哪些措施，以及如何进行此类统计调查？
-- 您是否打算申请紧急程序，或根据第726/2004/EC号欧盟条例第20条第4款，通知欧盟委员会不符合临床试验的特殊条件？您是否打算下令暂停销售授权和召回已经供应的医药产品，直到根据726/2004/EG欧盟条例第20(4)条在紧急程序/程序的框架内做出决定？
+yet the CCP packages and glorifies communism
+
+将所谓的“毛思想”、“习思想”灌输给中国人民。
+
+and instilled the so-called “Mao Thought” and “Xi Thought” into the Chinese people
+
+- 聚敛钱财。
 
 
-由于公众的高度关注，获取所要求的信息是非常紧迫的。我们希望你们在收到这封挂号信的两周内得到答复。
+Forth, gather wealth
 
-我们保留公布此信和你们的答复的权利。
-致以亲切的问候
+中共早期打着“打土豪，分田地”的幌子，
 
-签名者：**
-Jörg Matysik**博士教授，莱比锡大学分析化学系**
-Gerald Dyker**博士教授，波鸿鲁尔大学有机化学系**
-Andreas Schnepf**博士教授，图宾根大学无机化学系**
-Tobias Unruh**博士教授，埃尔兰根**–**纽伦堡弗里德里希**–**亚历山大大学凝聚态物质物理系
-**Martin Winkler**博士教授，苏黎世应用科学大学材料和工艺工程系
+Early in the CCP’s rule, under the guise of “fight the landlord and share the land”
 
-相关链接：[**https://gnews.org/zh-hans/1955699/**](https://gnews.org/zh-hans/1955699/)
-[**https://gnews.org/zh-hans/1954742/**](https://gnews.org/zh-hans/1954742/)
-[**https://gnews.org/zh-hans/2036345/**](https://gnews.org/zh-hans/2036345/)
-[**https://gnews.org/zh-hans/1967080/**](https://gnews.org/zh-hans/1967080/)
+实为将土地收为中共所有。
 
-原文链接：**[https://www.berliner-zeitung.de/news/chemiker-richten-weitere-fragen-an-das-paul-ehrlich-institut-li.216247](https://www.berliner-zeitung.de/news/chemiker-richten-weitere-fragen-an-das-paul-ehrlich-institut-li.216247)**
+land was actually taken into the CCP’s possession
 
+海航王健、马云等相继卸磨杀驴，
+
+HNA Wang Jian, Jack Ma and others were killed as donkeys after the completion of their works
+
+就是当代版本“打土豪，分田地”。
+
+which is the current version of “fight the landlord and share the land”
+
+- 秘密结社。中国共产党实属外来组织，
+
+
+Fifth, secret associations. The CCP was a foreign organization
+
+成立早期活动均不公开透明。
+
+and its activities were not open and transparent in its early years
+
+- 对抗社会。
+
+
+Sixth, confront society
+
+中共制造各种政治运动，
+
+The CCP created various political movements
+
+“文化大革命”，数千万人民丧失。
+
+and the “Cultural Revolution” killed tens of millions of people
+
+制造种族大屠杀，新疆大屠杀、西藏大屠杀、香港大屠杀。
+
+It created genocide, the Xinjiang massacre, the Tibetan massacre, the Hong Kong massacre
+
+此外，中共还篡改历史，
+
+In addition, the CCP has falsified history
+
+掩盖篡权事实，
+
+and covered up the fact of usurpation of power
+
+谎称“没有共产党就没有新中国”，
+
+falsely claimed that “without the CCP there would not be a new China”
+
+“拯救56个少数民族”。
+
+and “save the 56 minorities”
+
+中共就是当今世界最大的邪教组织。
+
+The CCP is the largest cult in the world today
+
+摘要： 70年间，中共的累累罪行符合邪教组织的六大特点，
+
+Abstract: Over the period of 70 years, the cumulative crimes of the CCP fit the six characteristics of a cult:
+
+即教主崇拜、精神控制、编造邪说、聚敛财富、秘密结社、对抗社会。
+
+That is, cult leader worship, mind control, fabricated heresy, gather wealth, secret associations, and confront society
+
+此外，中共还篡改历史。中共就是当今世界最大的邪教组织。
+
+In addition, the CCP has falsified history. The CCP is the largest cult in the world today
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
+
+编辑：雪梨
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

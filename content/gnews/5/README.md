@@ -2,45 +2,47 @@
 ---
 
 
-## Xi Jinping Intends to Fight Energy War to Ignite Powder Keg in Middle East
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2156214/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2156298/)
 
-Translated by:东京樱花团/英翻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-149.jpg)
-On March 9, 2022, Miles Guo broke the news in a livestream that the CCP was preparing a shocking action, that was, they intended to launch an energy war in Middle East from the end of March to April.
+整理：枳实
+美工：精灵蓝
 
-Miles Guo told us that instead of being afraid, the situation of the Russia-Ukraine war has given Xi Jinping hope. However, the course of this war was more or less beyond his expectation. Xi expected two scenarios for the Russia-Ukraine war: one is that Russia will sweep across Ukraine; the other one is that the Russia-Ukraine war will cause disagreements and a gap between the United States and Europe.
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/1-129.png)图片：雅典娜农场设计组 精灵蓝
 
-If the first scenario occurs, the CCP will take the opportunity to occupy Taiwan by force, forming a double-headed situation with Russia. The CCP is betting that the United States will not dare to conduct two wars at the same time. The second scenario is what the CCP would be most happy to see. As long as the Western countries are fighting their own wars and have their own thoughts, the CCP can make use of the conflicts between them to make a big deal out of them and make a profit. After all, sowing discord and BGY are the CCP’s best tricks.
 
-What the CCP does not expect is that the Russian army are so unbearable. The U.S. and Europe are so united and are acting in unison. The CCP doesn’t realize that the U.S. has such an wisdom. The United States will become the biggest beneficiary. The U.S. are fighting a proxy war through high-tech, electronic warfare, information warfare, and communication warfare to greatly deplete Russia at a fraction of the cost, And the polar bear (Russia) is spurned by the world. More frighteningly, Europe, Japan, Australia and even Asian countries have rallied around the United States, recognizing that the world cannot live without it.
+雅典娜疫情更新（2022年 3月12日）
 
-Xi Jinping knows very well that the world can no longer tolerate him and Putin. One does not do two endlessly, he decided to play big. He wants to show the United States his strength, he wants to control the world’s lifeline – energy, he wants to use energy as a grip to blackmail the United States and Europe, he wants to establish a new type of major power relations with the United States, he wants to work with the United States to govern the planet. This is Xi Jinping’s “original intention” and Xi Jinping’s hope.
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-How to achieve this “original intention”? Xi Jinping has set his sights on the Middle East. The Chinese Communist Party has been in the Middle East for a long time. It has signed a $500 billion deal with Saudi Aramco. The UAE and Qatar have long been subservient to the CCP in order to sell oil. Iran is the hardcore evil alliance of the CCP. When you look at the Middle East countries, they are either taken down by the CCP or they are afraid of the CCP. The CCP has considerable confidence in controlling the Middle East.
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-45.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-137.png)
+[2022年3月12日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月12日改进.pdf)
 
-What’s most important is that the Persian Gulf countries in the Middle East are the world’s oil bases, known as the “oil depots of the world”. Every year, more than 750 million tons of Middle Eastern oil destined for the rest of the world must pass through the Strait of Hormuz, accounting for 90% of the total oil exports from the Gulf. According to statistics, a giant oil tanker passes through the Strait of Hormuz every five minutes on average, so the Strait of Hormuz is called “the throat of the sea oil channel” and “the valve of the world’s oil depot”.
+数据来源：
 
-The Strait of Hormuz is the only sea passage for Persian Gulf oil to Western Europe, the United States, Japan and the rest of the world, carrying 60% of the supply of Western oil consuming countries. Once it is cut off, the Western economy will encounter a fatal threat, so it is regarded as the “lifeline” of Western countries.
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-The narrowest point of the “human” shaped Strait of Hormuz is less than 39 kilometers. And the Strait of Hormuz is right under the nose of Iran. So, blocking the strait is the “killer” of the Iranian army. The Iranian army can “easily” grab the throat of this world energy corridor.
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-In 2021, an oil tanker “malfunctioned” in the strait, blocking the passage and paralyzing transport in the strait, leaving a large number of oil tankers stranded. This “malfunction” was just a dress rehearsal for the Chinese Communist Party’s efforts to paralyze the Strait of Hormuz.
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-Xi Jinping’s intention is to launch a local war in the Middle East to paralyze the Strait of Hormuz, pinch the “lifeline” of the West and force the US and Europe to bow down. The world will be co-managed with the United States to realize Xi’s dream of unifying the world.
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-Of course, Iran is also the inseparable helper of the Chinese Communist Party. The unique geographical conditions, years of sanctions by the United States, and the strong support and help from the Chinese Communist Party have made Iran tied to the Chinese Communist Party’s chariot.
+[covidlive.com.au](https://covidlive.com.au/)
 
-It is safe to say that going to war in the Middle East is already Xi’s last chance. Can he succeed in his madness? The answer is no. The end of the war between Russia and Ukraine is that Putin is gone, and Xi Jinping can only blow himself up by igniting a powder keg in the Middle East. If God wants to destroy it, he must first make it crazy. Let’s wait and see.
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
 
-Resource：
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-[习共欲打能源战争，引燃中东火药桶](https://gnews.org/zh-hans/2138371/)
+发布：tianzhihuan
 
-Written by：波士顿五月花/跟随战神
-Release: 东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
