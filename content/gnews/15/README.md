@@ -2,50 +2,68 @@
 ---
 
 
-## 明星贾斯汀·比伯妻子突发脑血栓
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2155608/)
+## 乌克兰救援前线报道3.13.2022：新的一天从NFSC咖啡开始
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2155674/)
 
-#### 【雅典娜快讯】，紧贴时代脉博
+整撰：奔跑吧黄小鸭
+![](https://assets.gnews.org/wp-content/uploads/2022/03/01.jpg)2022年3月12日，法新社战地记者路易莎来到NFSC营地，刚加入救援团队的波兰人Peter邀请她品尝NFSC咖啡
+波兰时间3月12日，自俄乌战争以来，难民人数已超过250万人，波兰边防局表示已有160 万以上的难民入境，大约100 万留在了波兰，其余的则前往其他国家。截至周六下午，当天过境波兰的人数为 46,400 人，比周五增加了 4%。
 
-#### 整理/编辑：文泓
+这场巨大的人道灾难以惊人地速度仍在延续。大救援团队在波兰克拉科夫和梅迪卡的工作越来越艰巨，救援团队还不断地在扩大。残酷的战争抵挡不了NFSC咖啡的飘香四溢，梅迪卡NFSC营地已吸引了越来越多的国际媒体前来拍摄采访。以下是波兰时间3月12日来自救援基地前线的最新消息。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7-6.png)图片来源：[protothema](https://www.protothema.gr/marie-claire/article/1040354/h-hailey-bieber-epivevaionei-oti-autes-einai-oi-pio-cool-botes-tis-sezon/) & 雅典娜设计组
+**[新的一天从一杯现磨的NFSC咖啡开始](https://gettr.com/streaming/pzl3nbdce3)**
 
+加拿大救援团队的小伙子们昨天刚到梅迪卡就值夜班，红十字会和波兰军人征求了救援团队的同意后，陆续将大批逃离乌克兰的妇女和儿童们带进NFSC营地休息。截至今天上午9点，一个晚上共接待了400多位乌克兰人。宽敞明亮的帐篷里没有了昼夜之分，室内划分了母婴区、厨房区，除了食物、毛毯，充电器等应有尽有外，还新添了SIEMENS双头咖啡机，让来这里的人不仅有保暖炉取暖，还能喝上一杯现磨的NFSC咖啡。
 
-3月13日，据7News报道，模特海莉·比伯说，她因脑血栓而住院。
+前方记者Nicole报道，240平米的NFSC帐篷太温馨了，不仅能容纳更多的乌克兰人，现磨的NFSC咖啡更吸引了很多欧美的战地记者和新闻工作者，他们纷纷来到这里喝咖啡，采访难民，顺便休息和聊天，这里已经快成为一个国际俱乐部和国际新闻中心了。
 
-海莉是著名歌星贾斯汀·比伯的妻子。周四她和丈夫坐在一起吃早餐时，出现了类似中风的症状。
+一位[法新社获奖战地摄影记者](https://gettr.com/post/pzpam80f87)Louisa Gouliamaki 在工作了一天后来到营地边拍照边享用咖啡。她有着20多年的战地记者生涯，去过世界很多的战区和难民营，她称赞NFSC营地 “Perfect” (完美）“Very nice“ “We need this place” (我们需要这个地方）。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-59.jpg)
+**因为共同的爱心大家相遇在这里      **
 
-据报道，这名25岁的年轻女子被送往加利福尼亚州棕榈泉地区的一家医院。
+NFSC营地还吸引了越来越多有爱心的西方人。[荷兰](https://gettr.com/user/Yelloduck)等一些欧洲国家的志愿者们将捐助物资送到NFSC营地。昨天刚刚自愿加入法治基金新中国联邦救援团队的[波兰人Peter](https://gettr.com/post/pzjpgr741d)，他在整个救援服务中贡献不小。
 
-“他们发现我的大脑有一个非常小的血块，导致短暂缺氧，”海莉·比伯在Instagram上分享。
+两位来自[德国的志愿者](https://gettr.com/post/pzmco18930)来在NFSC营地为小朋友带来欢乐……这里不仅是难民的庇护所，也是国际爱心人士的聚集地……
+![](https://assets.gnews.org/wp-content/uploads/2022/03/德国志愿者.jpg)
+**[国际公益机构在人道救援行动中的真实情况](https://gettr.com/post/pzlbwxa2a9)**
 
-“好在我的身体已自我调正，我在几个小时内就完全恢复了。”
+靠近波兰边境入境口的一个公益组织营地帐篷上标识着[IOM](https://gettr.com/post/pzm1rf4732)（International Oganization for Migration）。这是一家专门在战争边界为难民提供服务的国际移民机构，总部设在日内瓦。
 
-“这绝对是我经历过的最可怕的时刻之一，但我现在回家了，非常感谢所有照顾我的医生和护士！”她感谢那些向她伸出援手的人。
+战地记者Nicole带我们参观了[IOM的救援营地](https://gettr.com/post/pzm1rf4732)。这样一家拥有70多年的历史，年财政预算18亿美元，全球有上万名全职人员的老字号公益组织，它们的帐篷仅有25-30平米的空间，1台发电机，1个加热器、只见帐篷正中央有3张桌子拼在一起，上面堆满了成箱的宣传册，四周零散的椅子，没有食物和饮料，没有明亮的照明，里面没有提供服务的人员。
 
-贾斯汀·比伯在妻子透露病情细节前两天，也曾暗示了他妻子的健康和康复情况，他也没有提供任何关于可能导致比伯女士脑血栓的信息。
+不远处是紧挨着波兰边境军队的[国际红十字会营地](https://gettr.com/post/pzmv7v6add)，它是由几个十五平米的绿色帐篷连在一起，Nicole估计整个营地大约能容纳50-100人左右。
 
-在上个与贾斯汀·比伯新冠检测呈阳性，近三周她妻子一直处于健康恐慌之中。
+这些大型国际公益组织，有悠久的历史和丰富的人道救援经验，全球拥有充足的人力资源，在乌克兰战后的人道救援中，却频频向法制基金这群从未做过国际人道救援的中国志愿者们寻求帮助。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/对比.jpg)IOM营地（上）与NFSC营地![](https://assets.gnews.org/wp-content/uploads/2022/03/对比二.jpg)国际红十字会营地（上）与NFSC营地
+**国际媒体拍摄采访NFSC营地**
 
-目前这位28岁的歌手已经康复，但由于患病而被迫推迟在拉斯维加斯的现场表演。
+越来越多国际媒体来到NFSC营地拍摄取景和采访这里的难民和救援团队成员们。Nicole每天都在接受这些国际媒体的采访，向他们介绍新中国联邦和法制基金，以及乌克兰人道救援行动的故事。今天来营地的有[阿拉伯语电视台](https://gettr.com/post/pzmijrdf50)、意大利电视台、波兰最大报纸[FAKT](https://gettr.com/post/pzm1imaa26)、[波斯尼亚和黑塞哥维那电视台](https://gettr.com/post/pzmlhp38f5)、全球最大的宗教电视台TBN（Trinity Broadcasting Network）等等。
 
-当贾斯汀·比伯新冠检测呈阳性时，在3月6日时他曾经发推：“坏消息是，我的新冠检测呈阳性，‘感谢2022年！’好消息是，我感觉很好，‘感谢疫苗和加强针！’”
+Nicole告诉他们，新中国联邦人和乌克兰、波兰人民一样热爱和平，正义，民主和自由，热爱新闻自由和言论自由，这也正是我们站在这里的原因，然而我们的人道救援工作却遭到中共国家级的阻扰……
 
+这些见多识广的战地记者们对大救援行动的免费航班和源源不断的救援巴士服务纷纷表示不敢相信，截止到今天，美联社，法新社。彭博社、纽约时报，日本的某媒体都来营地拍摄，他们也与救援团队成员交流采访过。可以想象，中共一定会千方百计地出手干预，这些大媒体在国际人道救援上能否抵住中共的压力，超越政治、超越国界，如实地做出新中国联邦法制基金在梅迪卡难民营地真实的报道，最终我们将拭目以待。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/接受采访.jpg)波兰时间3月12日，Nicole在NFSC营地分别接受波兰最大的报纸FAKT（左上）、意大利电视台（左下）、波斯尼亚和黑塞哥维那电视台（右上）阿拉伯语电视台（右下）的采访
+**[NFSC营地的](https://gettr.com/post/pzpymn1179)**凌晨
+
+进入13日的凌晨，在波兰边防军的带领下，仍然有大批的人陆陆续续进入NFSC帐篷来取暖和休息，每个人进到帐篷里第一件事就是要喝一杯热乎乎的咖啡。截止清晨5:00多，今晚的NFSC营地已接待了将近200人。
+
+乌克兰人进入波兰境内后，梅迪卡难民营地只能是他们稍事休息的中转站，我们不知道他们的下一段行程是投奔亲友还是接受什么样的难民政策，只能从他们的脸上看到流露出的从容淡定，也与他们的信仰和在这场战争中坚信的正义感有直接关系，或许还与欧洲国家对难民有妥善的政策帮助有一定关系。
+
+联想到中国同胞，由于中共支持这场人道危机的邪恶本质，体现在中共处理人道危机的应变措施完全的不负责任，让我们看到那么多的中国同胞在缺失国家的尊重和关爱下，显得多么的脆弱无助。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/凌晨.jpg)
+**克拉科夫救援站动态**
+
+克拉科夫救援团队主要负责联系和接应求助者乘坐救援巴士从波兰乌克兰利沃夫到波兰的撤离、以及有需要者的免费食宿安排和后勤物资的采购补给。
+
+3月11日，据[救援大巴司机](https://gettr.com/post/pzj2hq0482)说，从乌克兰利沃夫到波兰克拉科夫的救援越来越艰难，波乌边境严查证件，路况极差，整个车程需要至少14个小时。
+
+3月12日，[12名被困乌克兰人](https://gettr.com/post/pzoe866b2c)其中有一个才出生6天的婴儿，已登上了从乌克兰利沃夫出发开往波兰克拉科夫的救援大巴
+
+3月13日的凌晨1点，气温零下3度，加拿大团队已经有第三批成员到达波兰克拉科夫与大卫汇合。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/加拿大.png)
 参考链接：
 
-1、[Hailey Bieber, wife of Justin Bieber, hospitalised with blood clot after noticing stroke symptoms](https://7news.com.au/entertainment/celebrity/hailey-bieber-wife-of-justin-bieber-hospitalised-with-blood-clot-after-noticing-stroke-symptoms--c-6036971.amp)
-
-2、[Stars With COVID-19 2022: Celebs Who Tested Positive for Coronavirus (usmagazine.com)](https://www.usmagazine.com/celebrity-news/pictures/stars-with-covid-19-2022-celebs-who-tested-positive-for-coronavirus/jessie-cave/)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 (gettr.com)](https://gettr.com/streaming/pzl3nbdce3)
 
  
 

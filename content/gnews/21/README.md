@@ -2,62 +2,50 @@
 ---
 
 
-## 多枚“伊朗产弹道导弹”击中伊拉克美军基地
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2155514/)
+## 明星贾斯汀·比伯妻子突发脑血栓
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2155608/)
 
-翻译：文乐
+#### 【雅典娜快讯】，紧贴时代脉博
 
-- 周日早些时候，至少五枚“伊朗生产的弹道导弹”击中埃尔比勒
-- 库尔德卫生部长说，这次袭击“没有受害者或伤亡”
-- 据国家新闻报道，导弹袭击了美军基地和库尔德新闻频道办公室
-- 尚未有任何组织声称对“令人发指的袭击”负责
+#### 整理/编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7-6.png)图片来源：[protothema](https://www.protothema.gr/marie-claire/article/1040354/h-hailey-bieber-epivevaionei-oti-autes-einai-oi-pio-cool-botes-tis-sezon/) & 雅典娜设计组
 
 
-2022年3月13日，路透社 – 多枚火箭弹击中伊拉克北部埃尔比勒的美国陆军基地和库尔德新闻频道办公室。 奥梅德·霍什瑙州长证实，周日凌晨，至少有五枚“伊朗生产的弹道导弹”袭击了这座城市。 他说，尚不清楚这些导弹是针对该地点的美国领事馆还是该市的机场。
+3月13日，据7News报道，模特海莉·比伯说，她因脑血栓而住院。
 
-库尔德人和美国官员证实，他们所谓的“令人发指的袭击”没有造成人员伤亡，并补充说没有任何组织立即声称对这次袭击负责。目前没有更多细节，但网上发布的视频似乎显示几枚“伊朗生产”的弹道导弹击中了埃尔比勒的基地。
+海莉是著名歌星贾斯汀·比伯的妻子。周四她和丈夫坐在一起吃早餐时，出现了类似中风的症状。
 
-伊拉克什叶派穆斯林神职人员穆克塔达·萨德尔在推特上说：“埃尔比勒受到攻击……好像库尔德人不是伊拉克人一样”。
+据报道，这名25岁的年轻女子被送往加利福尼亚州棕榈泉地区的一家医院。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1376-edited.png)多枚火箭弹击中伊拉克北部埃尔比勒的美国陆军基地和库尔德新闻频道办公室
+“他们发现我的大脑有一个非常小的血块，导致短暂缺氧，”海莉·比伯在Instagram上分享。
 
-2021年9 月，在美国发生 9/11 恐怖袭击 20 周年之际，埃尔比勒国际机场的美国基地也遭到火箭袭击。这是几个月来第二次无人机袭击机场。以埃尔比勒为首府的自治区内部安全部门最初表示，三枚火箭弹在机场附近击中。
+“好在我的身体已自我调正，我在几个小时内就完全恢复了。”
 
-库尔德反恐部队的第二份声明说，这次袭击是由装满爆炸物的无人机进行的。去年，库尔德自治区首府埃尔比勒的机场多次遭到袭击，其中包括携带炸药的无人机。
+“这绝对是我经历过的最可怕的时刻之一，但我现在回家了，非常感谢所有照顾我的医生和护士！”她感谢那些向她伸出援手的人。
 
-弹道导弹上一次针对美军是在 2020 年 1 月——这是伊朗对当月早些时候美国在巴格达机场杀害其军事指挥官卡西姆·苏莱曼尼的行动进行报复。没有美国人员在 2020 年的袭击中丧生，但许多人头部受伤。
+贾斯汀·比伯在妻子透露病情细节前两天，也曾暗示了他妻子的健康和康复情况，他也没有提供任何关于可能导致比伯女士脑血栓的信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1378.png)袭击发生在伊拉克埃尔比勒国际机场，如图所示
+在上个与贾斯汀·比伯新冠检测呈阳性，近三周她妻子一直处于健康恐慌之中。
 
-美国官员将先前的袭击归咎于与伊朗结盟的什叶派穆斯林民兵，这些民兵发誓要战斗到剩余的 2,500 名美军人员离开该国。美国军队正在领导一个国际军事联盟，其任务是帮助伊拉克军队打击逊尼派极端主义伊斯兰国家组织的残余势力。
+目前这位28岁的歌手已经康复，但由于患病而被迫推迟在拉斯维加斯的现场表演。
 
-这是两个月内的第二次袭击，一架无人机于 7 月袭击了机场。没有人员受伤或任何结构性损坏。那次袭击发生在火箭和无人机袭击美军驻扎的 Ain al-Asad 空军基地和美国驻巴格达大使馆的第二天。
+当贾斯汀·比伯新冠检测呈阳性时，在3月6日时他曾经发推：“坏消息是，我的新冠检测呈阳性，‘感谢2022年！’好消息是，我感觉很好，‘感谢疫苗和加强针！’”
 
-4 月，一架无人机在驻扎在埃尔比勒机场的美军附近投掷了炸药。
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1380.png)**伊拉克库尔德安全官员说，周六，一架无人机袭击了驻扎在伊拉克北部埃尔比勒国际机场的美军附近。图：埃尔比勒国际机场于 2 月在国际机场外再次发生火箭弹袭击后航班重新启动后的照片**
+1、[Hailey Bieber, wife of Justin Bieber, hospitalised with blood clot after noticing stroke symptoms](https://7news.com.au/entertainment/celebrity/hailey-bieber-wife-of-justin-bieber-hospitalised-with-blood-clot-after-noticing-stroke-symptoms--c-6036971.amp)
 
-伊拉克和邻国叙利亚经常成为美国和伊朗之间暴力冲突的场所。伊朗支持的什叶派伊斯兰民兵袭击了两国的美军，华盛顿有时会以空袭进行报复。
+2、[Stars With COVID-19 2022: Celebs Who Tested Positive for Coronavirus (usmagazine.com)](https://www.usmagazine.com/celebrity-news/pictures/stars-with-covid-19-2022-celebs-who-tested-positive-for-coronavirus/jessie-cave/)
 
-伊朗官方媒体本周称，以色列周一在叙利亚发动空袭，造成两名伊朗革命卫队 (IRGC) 成员丧生。伊斯兰革命卫队发誓要进行报复。
+发布：*wenly*
 
-库尔德官员没有立即说明导弹击中的位置。地区当局发言人表示，埃尔比勒机场没有航班中断。埃尔比勒的居民在网上发布了几起大型爆炸的视频，一些人说爆炸震动了他们的家园。路透社无法独立核实这些视频。
-
-自 2017 年逊尼派伊斯兰组织伊斯兰国被伊拉克、美国领导和伊朗支持的松散联盟击败以来，伊拉克一直受到长期不稳定的影响。美国和许多伊拉克官员说，从那以后，与伊朗结盟的民兵经常袭击美国在伊拉克的军事和外交场所。伊朗否认参与了这些袭击。
-
-国内政治也助长了暴力。伊拉克政党，其中大部分都有武装派别，目前正在就 10 月选举后组建政府进行紧张的谈判。接近伊朗的什叶派民兵组织私下警告说，如果他们被排除在任何执政联盟之外，他们将诉诸暴力。
-
-这些团体的主要政治敌人包括他们强大的什叶派对手、民粹主义神职人员萨德尔，他发誓要组建一个政府，将伊朗的盟友排除在外，包括库尔德人和逊尼派。
-
-新闻链接：【dailymail.co.uk】[Multiple ‘Iranian-produced ballistic missiles’ smash into Army base with MASSIVE explosion and Kurdish news channel office in Iraq: US officials confirmed that there were no casualties and that no group has claimed responsibility for strike](https://www.dailymail.co.uk/news/article-10606833/amp/Multiple-rockets-smash-Army-base-Kurdish-news-channel-office-Erbil.html)
-
-* * *
-
-审核：五通庙 
-校对: 五通庙
-发布：花羽
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-8.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

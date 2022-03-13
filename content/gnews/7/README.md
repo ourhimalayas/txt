@@ -2,30 +2,26 @@
 ---
 
 
-## 2022/03/12 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2155752/)
+## 战乱中凸显人性善与恶
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2155834/)
 
-1. 3月11日，吉林省吉林农业科技学院疫情防控混乱，导致学生感染、家长崩溃的视频被曝光，引发全网关注。
-2. 3月9日，河北迁安。一男子驾驶轿车加速冲撞路口等待红灯的多名学生及路人 ，致多人倒地，事故现场十分惨烈。
-3. 3月8日，吉林。一男子因中共疫情封控政策缺少物资在家挨饿，故意挑衅防疫人员以使让警方将其逮捕能在监狱中吃上饭。
-4. 3月11日，广东广州。广交会展馆因一疑似核酸阳性人员进入场馆采取临时封闭措施，致场馆内数万人被困隔离进行核酸检测。
-5. 3月9日，广东佛山。中共国血汗工厂的工人，在没有任何保护措施的高尘环境下进行抛光操作。
-6. 3月6日，辽宁沈阳男子点外卖汤里吃出针头，商家和外卖平台都否认是自己做的，目前未得到明确回复！
-7. 3月9日，湖北十堰。疑因被家长责骂，孩子不高兴，一脚将路边的猫踹入河里。
-8. 3月8日，福建福州。一货车因对向车远光未看清路况，撞上人为设置的限高杆。
-9. 在得知女儿生病后，80岁老父亲第一时间带着毕生积蓄前往医院。
+投稿人：友情有义
+![](https://lh4.googleusercontent.com/gRwWSFxnafuTOcWAWSZUhQcruKOLZuEKr3PSieDCIagTCP97bc81KYfIWQ57AviJyHf8yxb6OEh0lTN133DgGh0DO0AAGCwxr6m0Qx5SNK-T5wW-CJrbvDZWILxvh98bS5wEGHys)
+图片来自网络
 
+从一次世界大战到现在，战争的起因大都是独裁者为实现个人野心而冒险挑起的，当独裁者通过强权把国家搞得民不聊生一团糟而威胁到统制地位时，它就会用发动战争的手段转移矛盾，把世界拖入战乱的漩涡。
 
-* * *
+大恶莫过于杀人，当战争恶魔降临时，无数生灵涂炭，无数家破人亡，头一天还生活在和平宁静环境中的乌克兰人转瞬间就被打入了战争的深渊。只是在俄军入侵乌克兰的这十几天里，双方就有近万人死亡，二百多万难民逃亡，战乱带给人民的死亡和痛苦是无法用数字来统计的。
+![](https://lh4.googleusercontent.com/Wq81mw9zfLWvK9omN5wYkmx6N5YFrXvqsD9wYKhzVGPpfPZbwrXVAHexaNjt7REyBac8Npt0swO7-kUSo2k4U1C4T81ES-pDTUzb1NbApT2SMcX-cSoD_L0In6u0AHadBAMOQVFe)
+大善莫过于救人，新中国联邦、法制基金在这危难时刻挺身而出，启动了对俄乌战争难民的救援活动，出钱出力派出救援队进入战区，成功救助了无数的同胞和难民，在国际灾难中展现了新中国联邦人的善良、勇敢和实力。与此同时**CCP**却在用假救援、高价机票、删除救助邮箱域名，散布假信息的卑劣手段制造混乱，使一些同胞丧失了被救的机会。对比**CCP**的破坏新中国联邦人救助行动的恶行，更凸显出新中国联邦人和平、善良、智慧和秉持正道主义的高尚人格。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+战争是军事的对决，也是善恶的较量，相信人类的良知一定会战胜邪恶，世界正义联盟一定会战胜黑暗帝国，新中国联邦一定会战胜**CCP**。
 
+*审核：文筝*
 
-编辑：【英国伦敦喜庄园编辑部】
+*发布：yin*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://lh6.googleusercontent.com/w8LMlCAeYCCPuKxveGdvcyeqg1Dd6HHwfVuUxJ34hpaMbTL0LD8zVPo5ACa3FuktSvFOIcmRQ-dNekv9ZFiBBUkbYOsSDApxh1ol6EeU7ac8c05cmsznH-u-3PJcLeMP0sErzQ3W)
 
  
 

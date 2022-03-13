@@ -2,32 +2,25 @@
 ---
 
 
-## 13日新州：7 人感染病毒去世，其均已接种疫苗
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2155357/)
+## 视频|救援无私无我休戚与共
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2155458/)
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+制作：香草山视频部
 
-编辑/整理：小鱼儿
+鉴于米蒂卡救助点艰苦的环境，据救援前线记者报道，爆料革命在欧洲地区的战友当天给前线救援团队送去了大量封装好的即食中餐。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3VM8CQ65PQ4NDE3SQY.png)图片来源：雅典娜设计组&Reddit
+据了解，这些欧洲的战友们提前将食材烹饪完毕，然后将真空包装的熟食空运至波兰华沙，再由地处华沙的战友接力送去米蒂卡前线。据视频资料显示，这些中餐营养丰富、荤素兼备，而且只需稍稍加热后，前线的救援战友们就可以方便地享用到美味的食物。
 
+目前，这些食物已经被仔细地收纳在新中国联邦的救援房车旁边，而当地的战友们则拥挤在狭小的房车内，一起分享这些带着久违乡土气息的餐食。
 
-据新州卫生局3 月 13 日报道，7 人感染冠状病毒去世，其均已接种疫苗。其中，1人接种了四剂疫苗，4人接种了三剂疫苗，2人接种了两剂疫苗。
+对此，前线记者表示，欧洲战友们送去的不仅仅是单纯的食物与物品，其更是后方战友们对前线救援团队的爱心与关怀。
 
-去世者中，1人40多岁，1人50多岁，2人70多岁，2人80多岁，1人90多岁。7人中，有2人来自悉尼西南部，2人来自悉尼东南部，1人来自西悉尼，1人来自梅特兰，1人来自卧龙岗地区。
+发稿：林礼
 
-译者问：所有疫苗都没有完成临床试验，政府为什么要变相强制民众接种疫苗呢？既然，政府变相强制民众接种疫苗，那么有人来承担疫苗的副作用吗？
-
-参考资料：[COVID-19 (Coronavirus) statistics](https://www.health.nsw.gov.au/news/Pages/20220313_00.aspx) | NSW
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
