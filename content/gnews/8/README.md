@@ -2,29 +2,38 @@
 ---
 
 
-## 中日财经爆┃靠压榨用户成为世界第一移动通信
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2156923/)
+## 俄乌战争牵动台海,美中情局长：别低估习近平决心
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2157186/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-56.png)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp26.toutiaoimg.com%2Forigin%2Fpgc-image%2Fcf23e5cd5460403ebba2b11fd59921ce%3Ffrom%3Dpc&amp;imgrefurl=https%3A%2F%2Fwww.sypassword.com%2Fninfo%2F586&amp;tbnid=bCucRlACV9T2uM&amp;vet=12ahUKEwjYlsXgi8P2AhWRhaQKHZrsB5UQMygWegUIARDlAQ..i&amp;docid=C8Iz0vIMYLWrqM&amp;w=1005&amp;h=717&amp;itg=1&amp;q=%E4%B8%AD%E5%9B%BD%E7%A7%BB%E5%8A%A8&amp;ved=2ahUKEwjYlsXgi8P2AhWRhaQKHZrsB5UQMygWegUIARDlAQ)
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image005-6.jpg)
+**（德国之声）俄乌战争让全球关注中共是否可能借鉴，进而武力犯台。美国中央情报局局长伯恩斯周二（3月8日）出席众议院情报委员会时表示，中共似乎对俄罗斯入侵乌克兰后所遭遇的困难感到不安，但中共领导人习近平在台湾问题上的决心不应因此被低估。
 
-3月11日每日经济报报道，中国移动：预计2021年度营业收入约为8448.77亿元至8525.58亿元，归属于母公司股东的净利润约为1143.07亿元至1164.64亿元，扣除非经常性损益后归属于母公司股东的净利润约为1072.85亿元至1093.28亿元。
+伯恩斯称，他相信这些情势对中共在台湾问题上的考虑产生了影响，而美国显然将继续仔细关注中共的反应。**
 
-移动通信集团有限公司是一家移动通信运营商，成立于2000年4月20日。公司业务主要包括移动语音和数据业务，有线宽带以及其他信息和通信，注册资本3000亿人民币，资产规模近1.7万亿人民币，员工总数近50万人该公司已经在纽约与香港上市。2019年7月，中国移动在中国500强排行中，排名第8。2020年《财富》世界500强排行榜第65名，2021年《财富》世界500强排名第56位。
+**此外，自从俄乌战争爆发后，台湾总统蔡英文也曾公开强调，台湾必须全面提升应对认知作战，找到方法稳定民心士气。**
 
-与此同时联通和电信也公布了数据，联通2021年实现净利润63.05亿元。电信公司2021年度营业收入较上年同期增长10%—12%。
+[【援引连结】](https://www.dw.com/zh/%E4%BF%84%E7%83%8F%E6%88%B0%E7%88%AD%E7%89%BD%E5%8B%95%E5%8F%B0%E6%B5%B7-%E7%BE%8E%E4%B8%AD%E6%83%85%E5%B1%80%E9%95%B7%E5%88%A5%E4%BD%8E%E4%BC%B0%E7%BF%92%E8%BF%91%E5%B9%B3%E6%B1%BA%E5%BF%83/a-61059850)
 
-中共国移动通信手握4000多亿现金，没有负债，国企垄断生意，2021中共国上市公司年净利润，中共国移动1143亿元，位居第二，从1987年11月18日，中共国移动开通第一个移动通信系统，中共国移动的盈利能力全球第一，2020 年，移动EBITDA 率为 37.1%，位居全球第二；2020 年净利润率、总资产收益率分别为 14%、6.6%，均位居全球第一，是名符其实的吞金兽，中共国三大通信运营商靠垄断市场，压榨用户群体，从而使自己成为行业第一。
+**推出问题，敲出真相，爆料在路上！**
 
-信息来源
+**请关注和订阅我们的以下账号：**
 
-[【中国移动：预计2021年度归属于母公司股东的净利润约为1143.07亿元至1164.64亿元】](https://mi.mbd.baidu.com/r/CEvi1uTr2g?f=cp&amp;rs=2482234166&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=cff916be4257efe1&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
 
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

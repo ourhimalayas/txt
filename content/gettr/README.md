@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 2:18 PM (UTC)`
+
+The Medyka port is a land port on the border between Poland and Ukraine. A large number of refugees are withdrawing from Ukraine. In the huge refugee center area on the Polish side of the port, a group of new Chinese faces have become the focus of international media attention in recent days.Let's have a look at this group of different new Chinese faces.<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party。<br/>The Chinese Communist Party is the root cause of all disasters and wars globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/><br/>梅迪卡口岸是波乌边境的一个陆地口岸，大量的难民源源不断地从乌克兰撤出，在口岸波兰一侧巨大的难民中心区域，一群新中国人面孔，成为这几天国际媒体关注的焦点，让我们一起走进这里，看看这一群不一样的新中国人面孔<br/>我们是消灭邪恶中国共产党的新中国人。<br/>中国共产党是全世界灾难和战争的根源，只有消灭中国共产党才能拯救全人类
+![img](https://media.gettr.com/group34/origin/2022/03/13/14/4e415c6e-6446-35be-5607-affaa0cdabbb/out.jpg)
+
+---
+
 `@miles 3/13/2022 1:32 PM (UTC)`
 
 【Ukraine Rescue】03/11/2022 Three Kosovo associates from an American NGO, Refugee Direct Aid, are surprised to see Chinese faces in the scene of the Ukraine rescue. They express admiration of what the NFSC has done for rescuing Ukrainian refugees and their willingness to offer more help and cooperation with the NFSC<br/><br/>【乌克兰救援】03/11/2022 美国非政府组织“难民直接援助”的三位科索沃员工表示很惊讶看到中国面孔出现在乌克兰援救现场。他们对新中国联邦为乌克兰救援所做的工作表示钦佩，并愿意为新中国联邦提供更多帮助与合作 
@@ -149,13 +156,6 @@ On the front line of relief in Ukraine, there were many women and children in th
 
 3/11/2022 Miles Guo: The CCP is hiring people to dig up and transport bodies on the battlefield of the Russia-Ukraine war by paying them as much as 100,000 yuan a month. However, the CCP is not going to let them use the BeiDou Navigation Satellite System that it has been touting, but to use the Americans’ GPS. The CCP is going to make the Chinese people cannon fodder on the battlefield, isn’t it?<br/><br/>3/11/2022 文贵直播：中共开出10万月薪雇人去俄乌战场挖尸体、运送尸体；中共竟然不给他们使用其鼓吹的北斗导航系统，却用的是美国人的GPS，这不明摆着把中国人拿去战场当炮灰吗！
 ![img](https://media.gettr.com/group42/getter/2022/03/12/23/0f007eac-254c-1b6a-eeb0-f0f59a934e4c/out.jpg)
-
----
-
-`@miles 3/12/2022 11:35 PM (UTC)`
-
-【Ukraine Rescue】03/12/22 The NFSC & ROLF Ukraine Rescue team member Nicole says in an interview with HAYAT TV from Bosnia and Herzegovina: Over the past two weeks, we have successfully rescued more than 100 Chinese people, including Chinese students, more than 350 Ukrainians, Americans, and people from all other nationalities. We also rescued 100 children from an orphanage. We're only here to save people.<br/><br/>【乌克兰救援】03/12/22 新中国联邦和法治基金乌克兰救援团队成员妮可在接受来自波黑HAYAT电视台记者采访时说：在过去的两周里，我们成功营救了包括中国留学生在内的100多名中国人和350多名乌克兰、美国以及其他国籍人士，并从孤儿院救出 100 名儿童，我们只为救人而来<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group33/getter/2022/03/12/23/bf55efea-7c48-08aa-bda4-4a5331f7848e/out.jpg)
 
 ---
 
