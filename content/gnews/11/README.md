@@ -2,12 +2,18 @@
 ---
 
 
-## 香港正面临大量感染病例和死亡
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2156547/)
+## 西媒头条 — 第187期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2156718/)
 
-03/12/2022 ABC新闻网：香港正面临大量感染病例和死亡。香港当局建立隔离营来隔离轻度阳性病例，恐慌笼罩着这个城市。
+**制作：蚂蚁兄弟**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220313.001.png)
+
+***发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-8.jpeg)
 
  
 
