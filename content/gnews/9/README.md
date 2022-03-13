@@ -2,27 +2,31 @@
 ---
 
 
-## 有声|NFSC新闻、G|TV新闻访谈简报|2022年3月10日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2154648/)
+## PayPal宣布将封锁所有俄罗斯人电子账户
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2154901/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-1-2.png)
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-13_11-53-43..jpg)
+白邦瑞（图片来自网络）
 
+PayPal宣布加大对俄罗斯的制裁，将自3月18日起，封锁所有俄罗斯人的电子账户。
 
-文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年3月10日早](https://gnews.org/zh-hans/2138467/)
+据多家媒体综合报道，《财联社》3月13日电，PayPal支付系统宣布，将于3月18日起封锁所有俄罗斯人的电子账户。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+线上支付公司PayPal在此前的3月2日，已就俄罗斯入侵乌克兰做出“停止接受来自俄罗斯的新用户”的制裁措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
+自俄罗斯入侵乌克兰后，已有多家信用卡和电子支付公司对俄罗斯做出制裁。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+新闻链接：
+
+[https://www.hstong.com/news/detail/22031302250152475](https://www.hstong.com/news/detail/22031302250152475)
+
+[https://www.jiemian.com/article/7202505.html](https://www.jiemian.com/article/7202505.html)
+
+[https://tw.stock.yahoo.com/news/%E5%8A%A0%E5%85%A5%E5%88%B6%E8%A3%81%E8%A1%8C%E5%8B%95-paypal%E5%AE%A3%E5%B8%83%E5%81%9C%E6%AD%A2%E6%8E%A5%E5%8F%97%E4%BF%84%E7%BE%85%E6%96%AF%E6%96%B0%E7%94%A8%E6%88%B6-092309884.html](https://tw.stock.yahoo.com/news/%E5%8A%A0%E5%85%A5%E5%88%B6%E8%A3%81%E8%A1%8C%E5%8B%95-paypal%E5%AE%A3%E5%B8%83%E5%81%9C%E6%AD%A2%E6%8E%A5%E5%8F%97%E4%BF%84%E7%BE%85%E6%96%AF%E6%96%B0%E7%94%A8%E6%88%B6-092309884.html)
+
+* * *
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

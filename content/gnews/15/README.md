@@ -2,39 +2,29 @@
 ---
 
 
-## 有声|大数据显示：疫苗的毒性依制造批次而有显著的差异
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2154642/)
+## 俄乌两军发生激烈巷战 距离乌首都基辅不足5公里
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2154762/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-美国自核准给老百姓接种中共病毒疫苗，至今已经一年多了。美国的疫苗不良事件报告系统（VAERS），也因此累积了长期并且巨大的数据库，足以让科学家们应用用统计学的专业角度，来客观的评估结果。
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-145.jpg)
+乌克兰士兵手持摧毁一辆俄国装甲运兵车的“下一代轻型反战车武器”（图片来自网络）
 
-在欧美有几个独立的个人或团队，下载了VARS所提供的数据，他们都不约而同的发现，每一个“批次”的疫苗，对人体的“杀伤力”有明显的差异。他们发现其中有 5% 的“批次”编号不同的疫苗，是造成90%疫苗不良反应或死亡的罪魁祸首。
+俄罗斯入侵乌克兰已两周时间，目前俄军正逼近乌克兰首都基辅。周六（12日），在基辅郊外的伊尔平（Irpin），俄乌两军发生了激烈巷战。
 
-其中的一个德国的调查团队甚至认为：“这批数据显示了，疫苗制造商正在更大的公共试验中，进行秘密实验。他们似乎实际上就是在对公众进行致命剂量的测试”。
+据《阿波罗新闻网》3月13日报道，俄军周六（12日）在伊尔平与乌军发生激烈巷战。伊尔平距基辅边缘地区约3英里（4.8公里），基辅大部分地区都可听到两军交战的枪炮声。
 
-郭文贵先生曾多次的表示，在中国大陆，共产党有计划性的，给不同的省份的百姓及共产党官员，施打毒性强度不同的疫苗。无独有偶的，我们看见此黑暗势力，同时也在张牙舞爪的侵害和欺诈西方国家的人民。不过却又很遗憾的，西方国家的百姓已经开始意识到VARS数据所代表的血腥事实，这个事实与政府和媒体所宣传的疫苗好处是相抵触的。
+《纽约时报》的报道称，俄军之前只有一次或两次如此接近乌克兰首都。有军事分析家认为，伊尔平即便失守，也不一定意味俄军会立即向基辅推进。但俄军会进一步收紧基辅周围的封锁线。
 
-最后让我们也一起来阅览 VARS 最新一期，针对疫苗副作用所做出的数据图表。对读者您而言，它所显示的真相又是什么呢？
+乌克兰总统泽伦斯基（Volodymyr Zelensky）当日在基辅召开记者会表示，除非俄罗斯将基辅夷为平地，否则休想占领这座城市。
 
-表1: 按目前制造商划分的批号分布情况，相對應于前一期所累計的數據。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-09-at-6.27.54-PM.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-844.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-845.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-846.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-847.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-848.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-849.png)
+不过，泽伦斯基同时也表示，他愿与俄罗斯总统普京会谈，并且他已与以色列总理班奈特（Naftali Bennett）商议在耶路撒冷举行会谈的可能性，并希望班奈特能对促成与俄罗斯的和平谈判产生“积极影响”。
 
+新闻链接：
 
-文字版原文：[大数据显示：疫苗的毒性依制造批次而有显著的差异](https://gnews.org/zh-hans/2129989/)
+[https://www.aboluowang.com/2022/0313/1720063.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2022/0313/1720063.html?utm_source=dlvr.it&amp;utm_medium=twitter)
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

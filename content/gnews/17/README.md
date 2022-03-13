@@ -2,10 +2,30 @@
 ---
 
 
-## 3/11/2022 文贵直播：中共支持俄罗斯打乌克兰已将海外华人置于最危险的境地，但我们的乌克兰救援为华人面临的黑暗带来了本质性改变
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2154619/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月12日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2154678/)
 
-秘密翻译组-北美组
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-9.png)
+
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/pzpc4rff83](https://gettr.com/post/pzpc4rff83)
+访谈：[https://gettr.com/post/pzpc1y1795](https://gettr.com/post/pzpc1y1795)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+
+**更多资讯，更多关注
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[欢迎加入纽约香草山农场 Discord](https://discord.gg/ChqXAHd)**
 
  
 
