@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 12:41 AM (UTC)`
+
+“A lot of help. A lot of human souls. They give us a chance to believe in someone… you have a big heart…give us a great example… I can do the same to others, the world can be better. This is what we learned about your organization.”<br/>“（法治基金和新中国联邦）提供了大量的救助，充满了人性，让我们有机会相信一个人。你们有大善心，树立了伟大的榜样。我将会依此去行善，世界会因此而改善”
+![img](https://media.gettr.com/group15/origin/2022/03/13/00/7c5be069-52ca-127c-51de-2368a2141a34/out.jpg)
+
+---
+
 `@miles 3/13/2022 12:00 AM (UTC)`
 
 2022.03.12 NFSC News  The New Federal State of China Cooperates with Various International Organizations Placement Refugees； NFSC & Rule of Law Foundation Rescue Center Obtain the Best Location Attracted Worldwide Attention
@@ -152,15 +159,6 @@
 
 【Ukraine Rescue】03/11/22 The rescue tents of the New Federal State of China in Medyka, Poland continue to welcome many children, women and elderly refugees at 1 o'clock in the middle of the night<br/><br/>【乌克兰救援】03/11/22 新中国联邦在波兰梅迪卡的救援帐篷半夜1点还不停地迎入很多的孩子、妇女和老人难民<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
 ![img](https://media.gettr.com/group37/getter/2022/03/12/11/a9dbf625-645c-a3bb-f4c4-d9f9047837b1/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayaukclub 3/12/2022 10:40 AM (UTC)`
-
-💥💥💥Time-lapse photography of a 240 square meter tent funded by #ROLF for the #Ukrainian refugees<br/><br/>❤️❤️❤️Thanks to the frontline rescue team for all their hard work for building such a large and comfortable tent in such a short time!<br/><br/>💦💦💦法治基金为乌克兰难民资助搭建的240平米大帐篷的延时摄影，感谢拍摄者：煤油灯战友<br/><br/>💕💕💕这么短时间搭建出如此大而舒适的帐篷，感谢前线救援团队所有辛苦的付出！
-![img](https://media.gettr.com/group41/origin/2022/03/12/10/928a0a75-35ab-8e1c-58a6-311bbcbc21f3/out.jpg)
 
 ---
 
