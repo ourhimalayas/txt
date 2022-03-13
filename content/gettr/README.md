@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 2:28 AM (UTC)`
+
+3/11/2022 Miles Guo: The CCP's support for Russia to invade Ukraine has put overseas Chinese in the most dangerous situation, but our Ukraine rescue operation has brought essential change to the darkness faced by the Chinese people! The Chinese were brutally raped and killed during the Indonesia's anti-Chinese riots while the CCP's Embassy sat back and did nothing about it.<br/><br/>3/11/2022 文贵直播：中共支持俄罗斯打乌克兰已将海外华人置于最危险的境地，但我们的乌克兰救援为华人面临的黑暗带来了本质性改变！华人在印尼排华事件中被残忍地奸杀，而中共大使馆却坐视不管<br/>
+![img](https://media.gettr.com/group27/getter/2022/03/13/02/f1d4b5cb-292e-1ae2-8d87-5fdc44725d14/out.jpg)
+
+---
+
 `@miles 3/13/2022 2:21 AM (UTC)`
 
 【Ukraine Rescue】03/12/2022 Award-winning AFP war correspondent is very impressed with the NFSC & ROLF's rescue center in Medyka, Poland.<br/><br/>【乌克兰救援】03/12/2022 获奖法新社战地记者对新中国联邦和法治基金的难民救助中心印象非常深刻。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -152,13 +159,6 @@
 
 3月12号：永远相信．正义多于邪恶，好人多过坏人。【乌克兰 小男孩帮战友挂我们的横幅……<br/>让人动容的画面🙏🌹】
 ![img](https://media.gettr.com/group48/getter/2022/03/12/19/c4f9939d-2822-946a-7106-dd36e84de713/d7aaac10caa92742985f138f3e1652ce.jpg)
-
----
-
-`@miles 3/12/2022 3:47 PM (UTC)`
-
-【Ukraine Rescue】03/12/2022 Fellow fighter Nicole introduces the New Federal State of China and the Rule of Law Foundation Ukraine Rescue Operation to the biggest Polish news FAKT, also revealing the Chinese government has been interfering and sabotaging our rescue operation all along<br/><br/>【乌克兰救援】03/12/2022 妮可战友向波兰最大报纸FAKT介绍新中国联邦和法治基金的乌克兰救援行动，并揭露中共政府一直在干扰破坏我们的救援工作<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group11/getter/2022/03/12/15/569a7be4-6445-cae8-d782-1fb644fb32d7/out.jpg)
 
 ---
 
