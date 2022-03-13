@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 3:40 AM (UTC)`
+
+【Ukraine Rescue】03/12/2022 NFSC & ROLF Volunteer Nicole is interviewing the sister of the Trinity Broadcasting Network’s journalist, who is also Ukrainian, at our Medyka rescue center, Poland. Nicole told her that the NFSC people are helping the Ukrainians and fighting the communist dictatorship too and we will win.<br/><br/>【乌克兰救援】03/12/2022 新中国联邦和法治基金义工妮可在我们波兰梅迪卡难民救助站采访全球最大宗教电视台三一广播网乌克兰记者的妹妹，向她介绍新中国联邦人在帮助救援乌克兰人，也在同共产主义独裁作斗争，我们一定会赢！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group19/getter/2022/03/13/03/2e6ea64d-2771-b01e-ba0e-b791b8a47e16/out.jpg)
+
+---
+
 `@miles 3/13/2022 2:58 AM (UTC)`
 
 3/12/2022 Miles Guo’s GETTR: The CCP has started to stir up trouble in the Middle East, and something big will happen in the world after my 3 or 4 grand live broadcasts! The fellow fighters have shown the world in Ukraine that citizens of the New Federal State of China are the greatest and purest new human beings following the Way of Righteousness. The New Federal State of China will definitely be able to take down the CCP!<br/><br/>3/12/2022 文贵盖特：中共开始在中东制造事端，3、4次大直播后世界将发生大事！战友们在乌克兰给世界展现出新中国联邦人是最伟大、纯洁和以正道主义为基础的新新人类，新中国联邦一定能灭共！<br/>
@@ -150,14 +157,6 @@
 
 3月12号：我们要唱尽天下歌……让共产党无歌可唱——歌死共产党【共匪吓死啦……女人花下架了了】
 ![img](https://media.gettr.com/group19/getter/2022/03/12/19/3910810e-9d08-5183-e42e-1d5ca55a8e53/07a7f5baa0d6b990a792a7932f315bf7.jpg)
-
----
-
-`@miles 3/12/2022 7:43 PM (UTC)`
-
-3月12号：能让战地记者和有正义的人．有良知的人。在这种寒冷的战地冬天．喝上一杯新鲜的热咖啡，这是多么的浪漫．多么的有力量，好人必有好报．他们，每个人都应该有很好的咖啡喝。
-> `@himalayadcfarm 3/12/2022 7:04 PM (UTC)`<br/>🆘🇺🇦 Latest from Nicole on the #UkrainianFront: <br/>Louise, a famous AFP war correspondent who has experienced countless refugee camps, came to our tent with a look of disbelief on her face! She repeatedly exclaimed: how perfect! <br/>❤️ The new Chinese Federation's 🌈coffee🌈 illustrates true love: not just giving help for free, but giving the best and most needed to those refugees who are suffering from war! We don't just provide some hot coffee but we are giving hope to the people who lost their beautiful homes and loved ones!<br/>#NFSCRescue <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine
-![img](https://media.gettr.com/group5/origin/2022/03/12/19/3ca95d89-59f1-dec5-b72d-758e2597b901/out.jpg)
 
 ---
 

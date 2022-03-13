@@ -2,28 +2,20 @@
 ---
 
 
-## 警惕习近平将在中东挑起世界能源战争
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2154564/)
+## 七哥金句：感谢所有奔赴前线的战友们
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2154697/)
 
-##### 作者：加拿大温哥华扬帆农场 – Quitman
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1369.png)
-郭文贵先生在3月9日的大直播中透露，习近平从俄罗斯与乌克兰的战争中看到了美国才是最大的受益者，世界民主社会容不下习近平和普京的独裁政治。他认为普京之后，唯有利用好中共所控制的资源，使他自己变得更强大，习家天下才有立足之地。
+整理：雅典娜农场
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句-感谢所有奔赴前线的战友们.jpg)
+发布：枫叶红了
 
-他深信普京被灭后，可以实现中美共同治理（维护）世界，也即他梦想的“新型大国关系”。为此，他将冒险一搏，中共3月底到4月份将开启多年在中东地区，诸如伊朗、沙特和阿联酋等石油输出国渗透的力量，结合所掌握非洲安哥拉20% 石油出口权，以及对石油运输咽喉霍尔木兹海峡的控制，利用中东比较复杂混乱的局势和一些皇族宗亲对石油市场的贪婪，挑起一场世界能源战争，进一步搅乱和打垮世界经济，乘机侵占台湾，逼迫美国认可中共国成为世界第二强国，并且一同重新瓜分世界，保证中共继续奴役中国14亿人民。有新中国联邦在，相信习的梦想将是黄粱梦一场，最终的胜者一定是新中国联邦。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-原文链接：[https://gettr.com/post/pz3zdza229](https://gettr.com/post/pz3zdza229)
-
-发布/上传 – 文永
-
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
