@@ -2,10 +2,10 @@
 ---
 
 
-## ITV 新闻：俄罗斯发动新一轮袭击
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2156456/)
+## 沙特历史上最大的一次大规模处决，一天内有81人被杀
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2156520/)
 
-03/12/2022 ITV 新闻：俄罗斯发动新一轮袭击，基辅周围的战斗越来越激烈，越来越近
+03/13/2022 周六，沙特历史上最大的一次大规模处决，一天内有81人被杀
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 12:46 PM (UTC)`
+
+2022年3月13日 文贵大直播：如果西方切断中共国的SWIFT、禁止中共国参与国际外汇交易，查封盗国贼家族在海外的资产，会涉及多大规模在中共国会发生什么？爆料革命警告中东事端；中共在俄乌战争之后的下一步动作 在中东会发生什么；刘彦平 傅政华 孙立军 吴征杨澜 王岐山 孟建柱 胡舒立 单伟健 张明鹏（大连西区法院）刘强（辽宁副省长）将会是什么下场
+![img](https://media.gettr.com/group5/origin/2022/03/13/12/ea1ea88f-8fe4-237b-b91e-338a9c6c8724/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/13/2022 12:41 PM (UTC)`
+
+我们是消灭邪恶中国共产党的新中国人<br/>中国共产党是全世界灾难的根源<br/>只有消灭中国共产党才能拯救全人类<br/><br/>We are the NEW CHINESE who are taking down the EVIL Chinese Communist Party.<br/>The Chinese Communist Party is the root cause of all disasters globally. <br/>Taking down the Chinese Communist Party is the only way to save humanity!<br/><br/>Ми-нові китайці, які знищили злу Комуністичну партію Китаю.<br/>Комуністична партія Китаю є першопричиною катастроф у світі. <br/>Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group13/getter/2022/03/13/12/d9b83647-2de7-57a2-33d7-30be438a7bb0/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@blue_lotus 3/13/2022 11:29 AM (UTC)`
@@ -142,20 +156,6 @@ On the front line of relief in Ukraine, there were many women and children in th
 
 3/11/2022 Miles Guo: The professionalism exhibited by our fellow fighters, who have been working as volunteers on the front line of the Ukraine rescue operation, has earned the respect and attracted the attention of the whole world. Unlike the overseas Chinese pro-democracy activists who live on donations and gain fame through improper means, we, citizens of the New Federal State of China, who gathered together because of faith, have shown the world the best image of the Chinese people.<br/><br/>3/11/2022 文贵直播: 义工战友们在救援前线表现出来的专业精神赢得了全世界的尊敬和关注！不同于只靠捐款度日、沽名钓誉的海外民运分子，新中国联邦人因信仰凝聚在一起，展现出中国人最好的一面！<br/>
 ![img](https://media.gettr.com/group8/getter/2022/03/12/23/45061f47-c44e-9c7e-3e6d-ae8339baa3fc/out.jpg)
-
----
-
-`@miles 3/12/2022 11:17 PM (UTC)`
-
-【Ukraine Rescue】03/12/2022 Fellow fighter Nicole introduces NFSC and ROLF Ukraine Rescue Operation to a media from Roma：The Chinese Communist government does nothing to help Chinese people in Ukraine. Only the New Federal State of China and Rule of Law foundation do everything to save the Chinese people in Ukraine<br/><br/>【乌克兰救援】03/12/2022 妮可战友向罗马媒体介绍新中国联邦和法治基金在乌的救援行动：中共政府对在乌克兰的华人无所作为，只有新中国联邦和法治基金在尽一切努力拯救在乌华人<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group48/getter/2022/03/12/23/3af2091e-40a2-42d7-4c2e-07fe7a86d626/out.jpg)
-
----
-
-`@miles 3/12/2022 11:00 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-12
-![img](https://media.gettr.com/group50/origin/2022/03/12/22/ecf26bc6-6a2a-bf0e-714f-900e1f8f1461/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
