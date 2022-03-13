@@ -2,34 +2,33 @@
 ---
 
 
-## 六枚火箭袭击了库尔德电视台、美国驻伊拉克领事馆
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2154156/)
+## 短视频：德约科维奇因未接种疫苗受到歧视
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2154247/)
 
-作者：夕夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-69.png)
-突发事件2022 年 3 月 12 日下午 6:54来自伊拉克国家电视台、阿拉伯天空新闻和耶路撒冷邮报正在报道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-12-下午9.10.44.png)
-伊拉克埃尔比勒的爆炸事件，有6枚火箭弹袭击了该市。据报道，袭击发生在一个正在建设中的美国领事馆附近。
+翻译：俏如来
+校对：Lish
+视频：向上James
+编辑：文泓
 
-这条消息在推特上爆出，一些细节仍在不断变化，但大多数媒体报道称，库尔德卫星频道 k24 遭受了打击。
-
-阿拉伯天空新闻报道称，“正在伊拉克北部埃尔比勒市建造的美国大使馆总部遭到五枚远程导弹的袭击。
-
-以下是《[耶路撒冷邮报》](https://www.jpost.com/breaking-news/article-701103)的更多内容：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image01.png)图片来源：Thred
 
 
-> 埃尔比勒省长奥梅德·霍什瑙表示，多枚导弹落入该地区，并表示尚不清楚目标是美国领事馆还是该市的机场。据 INA 称，袭击中听到了五声爆炸声。
+对！你知道，就在上周，我们有关于诺瓦克·德约科维奇的故事，当时他正面临法庭判决，现在知道他已被驱逐出境。你知道，这些是新闻周刊的头条新闻，担心诺瓦克·德约科维奇会激起反对（新冠）疫苗接种的情绪是导致他被驱逐出境的原因。这是法官给出判决的理由。
 
+噢哦，看起来我们刚刚与杰夫瑞断线了。好的，在我们等待与他重新连线的时候，让我继续说吧……现在，我们又重新连线了。
 
-照片和视频正在网上分享，其中一些声称显示 k24 工作室的损坏。[https://twitter.com/AmichaiStein1/status/1502797470862131207](https://twitter.com/AmichaiStein1/status/1502797470862131207)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-12-下午9.08.18-1.png)
-参考链接：[https://www.mediaite.com/news/breaking-rocket-attacks-reportedly-strike-kurdish-tv-station-u-s-consulate-in-iraq-videos-show-huge-explosions/](https://www.mediaite.com/news/breaking-rocket-attacks-reportedly-strike-kurdish-tv-station-u-s-consulate-in-iraq-videos-show-huge-explosions/)
+杰夫瑞，你怎么看？你知道，他被驱逐出境真是因为担心他会引发一些想法。我的意思是，这与网球有什么关系？甚至都不是个关于健康方面的申明。我的意思是，实际上，他们并不担心德约科维奇将其他运动员置于危险之中。
 
+这样的担心，与担心他是天主教徒，认为他会冒犯穆斯林或犹太人，有什么区别？因此，由于他的宗教信仰，我们将他赶回家，因为他的言论可能有支持天主教的想法和信仰。我的意思是，担心他会引起反对（新冠）疫苗情绪与担心他可能支持天主教的想法和信仰没有区别。仅仅因为他的思想不一样就做出这样的判决，我认为这真的很令人震惊，这是一个巨大的错误，德约科维奇可能会就这个判决提起诉讼，对吧？
 
+是的，绝对的！你知道，这样的情况不仅仅发生在德约科维奇身上。我们在其他运动项目上也看到了这些情况。我们有一名奥运选手。来自瑞士，叫做Fabienne Schlumpf，她是一名接种过三次疫苗的奥运会运动员，（近日）患上心肌炎，可能会（提早）结束她的职业生涯，她是在接种加强针后不久就被诊断出患有心肌炎。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-14.jpg)
-
-
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 
  
 
