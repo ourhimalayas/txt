@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 3:58 PM (UTC)`
+
+【Ukraine Rescue】03/11/2022 A volunteer from New Federal State of China and ROLF interviews Kosovo associates from an America-based NGO who are surprised at our capabilities,and are also surprised to see the New China face on this occasion, and they are willing to cooperate with us.<br/>【乌克兰救援】03/11/2022 新中国联邦和法治基金的志愿者采访一家美国非政府组织的科索沃志愿者，他们对新中国联邦和法治基金的实力感到很惊讶，同时他们也很惊讶在这种场合看到新中国人面孔，他们很想和我们合作。<br/>
+![img](https://media.gettr.com/group38/getter/2022/03/13/15/7f395992-22fa-194c-4e1a-e650c2dec142/out.jpg)
+
+---
+
 `@miles 3/13/2022 3:49 PM (UTC)`
 
 【Ukraine Rescue】03/11/2022 Fellow Fighter Nicole discusses potential future cooperation with an American NGO Humanitarian Refugee Aid within Ukraine rescue operation<br/><br/>【乌克兰救援】03/11/2022 妮可战友和美国非政府组织人道主义难民救助组织的成员讨论双方未来在乌克兰救援行动中可能的合作<br/>
@@ -149,13 +156,6 @@ On the front line of relief in Ukraine, there were many women and children in th
 
 2022.03.12 晚 《新中国联邦新闻》新中国联邦人展示国际化新形象；波兰租车公司老板加入新中国联邦救援团队
 ![img](https://media.gettr.com/group12/origin/2022/03/13/01/8d17f55a-5c9f-d8dd-025c-a79511fdeb87/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/13/2022 12:41 AM (UTC)`
-
-“A lot of help. A lot of human souls. They give us a chance to believe in someone… you have a big heart…give us a great example… I can do the same to others, the world can be better. This is what we learned about your organization.”<br/>“（法治基金和新中国联邦）提供了大量的救助，充满了人性，让我们有机会相信一个人。你们有大善心，树立了伟大的榜样。我将会依此去行善，世界会因此而改善”
-![img](https://media.gettr.com/group15/origin/2022/03/13/00/7c5be069-52ca-127c-51de-2368a2141a34/out.jpg)
 
 ---
 

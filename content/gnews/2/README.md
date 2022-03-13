@@ -2,53 +2,35 @@
 ---
 
 
-## 有声|如何将俄罗斯踢出WTO, IMF, World Bank
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2157795/)
+## 广州美博会突发疫情 数万人被困检测核酸
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2158067/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-二战带来的毁灭与重建过程中，美国及同盟建立了几个管理全球经济秩序的机构。任务是消除贫困，重建欧洲，和平解决贸易争端。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-129.jpg)
-1945年以来，首次欧洲大战在乌克兰爆发，一些西方国家正在讨论如何将俄联邦从世界贸易组织，国际货币基金组织，世界银行中踢出，作为发动侵略战争的惩罚。
+作者：银河系农场 骄子，纽约香草山农场-静言
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月11日，第59届中国国际美博会所在的广州广交会展馆，因发现疫情突然封馆，致使馆内人员恐慌，未能奔逃脱身的数万人被迫接受全员核酸检测。
 
-IMF
-乌克兰和俄国在苏联解体后的1992年加入IMF，但由于协议条约中不含武装冲突条款，所以退出机制仅限于莫斯科不提交储备资产，贸易，外汇等经济数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-4.jpeg)
 
-如果违规发生并且没有改正，有70%投票权的成员国可以在“合理时限”后，暂停俄罗斯投票权，经过下一个“合理时限”后，80%的多数派可以强制俄国退出该组织。
+当天，在A、B、C三大展区超过30个展馆内，约四千多家优质展商参展，覆盖日化美妆的生产、供应及配套全产业链，吸引了数万观众。据悉，广州市云城街道11日发现核酸检测阳性人员，随即上报。广州市海珠区疫情防控办发布通告，有疑似感染者进入琶洲广交会展馆，要求展馆立即采取“临时封闭，不进不出”的管控措施，做好闭馆工作。消息一经公布，顿时引发现场恐慌。据附近居民透露，当时大批人员争先恐后向馆外奔逃，也有不少人翻越逾两米的围墙和栅栏逃离。前10秒内撤出场馆的人员成功脱身，剩下的数万人被要求就地检测核酸，合格后方可离开。
 
-WTO
-美国和欧洲盟友同时在检视暂停俄“最惠国待遇”的方法，成功后将允许施加显著高于WTO成员的关税。
+核酸检测持续了一夜。到当地时间12日上午，仍有部分人员滞留馆内。分析人士指出，从现场流出的视频来看，人员密集拥挤，非常不利于疫情的防控。中共国一直秉持的“动态清零”政策，不但与流行病学的理论相悖，其做法更侵犯了人权，令人发指。
 
-美国法律规定，取消最惠国待遇需国会授权。周五提交表决的预算法案中，排除了取消俄永久贸易正常关系条款，但授权对俄WTO成员资格进行复核。
+参考链接：[数万人被困 今年广州美博会不美了！](https://3g.163.com/dy/article/H297O9O80519K7CS.html?referFrom=google&amp;spss=adap_dy)
 
-俄在19年谈判后，于2012年加入WTO。由于没有开除条款，取消成员资格将极为困难。WTO需要66%多数派同意创建此程序，然后由75%多数投票移除俄国。历史上多数决定由其164个成员国一致同意后通过，这种非投票性过程消解了结构性改变。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-WORLD BANK GROUP
-战争开始后，世界银行已经停止了所有俄国和白俄罗斯项目，含对白俄新冠紧急救援贷款5亿1100万美元。
+总编：Zion文恩
+编辑：Zion文恩
+审核：Zion文恩
+校正/发稿：谐趣园
 
-如果俄未能完成世行协议条款中的义务，多数投票股东可以暂停莫斯科的会员资格，一年后如果没能逆转将会自动开除。
-
-
-
-文字版原文：[如何将俄罗斯踢出WTO, IMF, World Bank](https://gnews.org/zh-hans/2149335/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

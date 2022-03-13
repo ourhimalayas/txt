@@ -2,31 +2,44 @@
 ---
 
 
-## Fudan University starts quasi closed campus management
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2157417/)
+## 乌克兰人道大救援，造就了新中国联邦的第一与唯一
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2157580/)
 
-Translated by：TokyoSakura/英翻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-95.jpg)
-[Photo link](http://sh.people.com.cn/n2/2021/1126/c134768-35023407.html)
+作者：波士顿五月花 跟随战神
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220313-1.jpg)
+时间，2022年3月12日，地点，波兰梅迪卡国际救援中心。新中国联邦前线救援人员Nicole走访了现场的国际救援组织。
 
-Shanghai Fudan University started quasi-closed campus management from 8pm today (13th), with current students and faculty staying on campus and conducting nucleic acid testing as required.
+**第一站，国际移民组织（IOM）**
 
-According to CCTV news, Fudan University’s notice shows that the campus takes a separate gate area as a unit, implements relatively closed management, teachers and students do not flow across regions, inter-campus shuttle buses are suspended. The quasi-closed management time is tentatively set for two weeks, and the end time will be notified.
+IOM是专门从事战争边界为难民提供人道救援的国际组织。成立于70年前，有着悠久的营救难民的历史。总部位于日内瓦，有全职员工一万多人，遍布全球17个国家。每年预算18亿美元。
 
-Fudan will implement strict management of leaving or entering the school. Teachers and students who have a fixed residence in Shanghai can apply to leave school and stay at home and leave the school orderly after approval. If there is a real need for returning to school, teachers and students who left school can apply to their unit and return to school only after examination and approval. Teachers, students and employees who apply must submit two negative nucleic acid test reports in Shanghai within 48 hours, and strictly implement measures such as identity verification, body temperature test, health code and travel card. Outsiders are not allowed to enter the school in principle.
+IOM在营救现场有一顶帐篷。帐篷位于难民从乌克兰入境波兰的第一站。帐篷大小约20多平方米。随着镜头可以看到，帐篷里边有一个发电机、一个加热器、一个垃圾桶、几个小推车、两张桌子，桌子上放着几个纸箱，里面放着宣传品。帐篷里边没有人，也没有发现救济的食品和物品。
 
-Fudan University will also carry out online teaching activities in an orderly manner. Offline lectures will be suspended, and students and faculty will carry out online teaching according to the time specified in the class schedule.
+**第二站，国际红十字会**
 
-In addition, the cafeteria will suspend dine-in and provide packaging and take-out services, Teachers and students will wear masks throughout the meal purchase and keep a one-meter interval in line. The library, self-study classrooms, and gymnasium are only open to students and faculty in the area. The swimming pool is suspended.
+毗邻IOM的是大名鼎鼎的国际红十字救援基地。帐篷上面大大的“十”字证明着它的身份。两个类似军用的帐篷组成一个小单元，每个小单元约30多平方米。这样的小单元帐篷有3至4顶。
 
-According to the official website of Shanghai Health Commission, five cases of local confirmed cases and 78 cases of asymptomatic infections were reported in Shanghai yesterday.
+帐篷里面堆着许多杂物，看起来很凌乱，几乎占据了大部分空间。两个壮汉坐在板凳上聊天，像是工作人员。给人的感觉不像是用于难民的休息，更像是临时仓库和工作人员的休息场所。
 
-Original link：[https://www.zaobao.com/realtime/china/story20220313-1251825](https://www.zaobao.com/realtime/china/story20220313-1251825)
+**新中国联邦的营救基地**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1416.png)图片来自前线战友
+远远望去，一个巨大的帐篷映入人们的眼帘。三、四十米宽，七、八十米长，达到了惊人的250平方米。巨型帐篷在梅迪卡救援现场非常的震撼和壮观。帐篷里面的设施堪称豪华。一排排崭新的桌子、一盏盏明亮的顶灯，平整光洁的橙黄色地板，8个热辐射式取暖设备均匀地分布在帐篷里，保证帐篷里温暖如春。各种食品、饮料、用品齐全而充沛，甚至给孩子们准备了各种玩具。更令人不可思议的是里面有能够现场磨制的咖啡机。美好的一天从一杯咖啡开始。
 
-**Edited by:**TokyoSakura/英翻组
-Posted by:TokyoSakura/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+如果不是在救援营地，走进帐篷的人会以为到了豪华宾馆。现场的战友们亲切地称她为“盘古七星级营救大帐篷”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1-4.png)图片来自前线战友
+就在昨天晚上，新中国联邦的4名战友从晚上9点到凌晨5点，连续不断地接待一批又一批难民进入大帐篷。而这些妇女、儿童基本都是波兰大兵和国际红十字会的人员引领过来的。红十字会的工作人员和我们的战友交接、中转难民时，才知道新中国联邦是第一次参与人道救援。他们十分惊讶地说“真的吗？！”展现现出难以置信的表情。
 
+相比那些成立几十年、上百年的国际援助机构，新中国联邦仅仅成立一年多。新中国联邦是所有救援中最年轻的组织；新中国联邦是第一次参与国际大救援；新中国联邦的大帐篷是最大的、最好的、最豪华的、设备最齐全的七星级大帐篷；新中国联邦是投入最大、最多，涉及面最广的援助机构；新中国联邦不求名、不为利只为救人；乌克兰人道救援是华人第一次救助欧美人；新中国联邦人是最热情、最真诚、最用心的救护者。
+
+以上的诸多第一造就了新中国联邦的唯一。新中国联邦像一轮冉冉升起的的红日，必将给世界带来温暖与光明。
+
+* * *
+
+*编辑：文合*
+
+*封面：霹雳鼠年*
+
+*发布：吐纳*
 
  
 

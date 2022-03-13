@@ -2,15 +2,15 @@
 ---
 
 
-## 面临俄式被制裁 中共将会如何
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2156673/)
+## 中共祭起中东火药桶 玉石俱焚还是自取灭亡
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2157074/)
 
 文贵大直播20220313
 
-撰稿：Nine Lee（DC）
+撰稿：文仁（功成）dingding（香草山）
 
-美工：新宝（银河）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-5-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-3-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-2-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8-2-scaled.jpg)
+美工：嘿虎（雅典娜）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-6.png)
 *发布：Theodosia*
 
  
