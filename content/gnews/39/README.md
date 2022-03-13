@@ -2,24 +2,39 @@
 ---
 
 
-## 台湾｜美国2022会计年度联邦政府拨款法 三项友台条款
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2155753/)
+## 在世界媒体眼中的新中国联邦救援行动
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156255/)
 
-**撰文/ 港台前线****｜发****布日期/ 13/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-14.png)**更多资讯请关注官方盖****特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
-美东3月11日，拜登总统正式签署“2022会计年度联邦政府拨款法”，包括三项友台条文：
+作者：银河系农场 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月12日，波兰梅迪卡救援前线报道，越来越多的国际媒体前来采访法治基金新中国联邦乌克兰救援行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-13-at-9.14.03-PM.png)
+近两日，不断有欧洲国家的媒体前来采访，包括意大利电视台、波兰最大报纸、阿拉伯电视台、波斯尼亚和黑塞哥维那电视台。采访的媒体记者都对法治基金和新中国联邦，持有高度赞扬。
 
-1. 禁止美国政府将经费用于制作、采购或展示任何不正确标示台湾领土的地图
-2. 匡列300万美元的授权额度提供“全球合作暨训练架构”（GCTF）使用
-3. 国务卿应于立法后90天内就成立“台湾学人计划”的可行性向国会提交报告
+值得注意的是，媒体的问题很多集中在区分中国共产党和中国人。意大利的记者直接问战友Nicole，你们是代表中国人的吗？Nicole战友为这位记者介绍新中国联邦和法治基金，并说我们是要灭掉共产党的中国人。中国人都是热爱和平善良友好热爱自由法治的人，共产党甚至为了破坏此次人道救援，黑客了联系邮箱。Nicole还邀请媒体参观了帐篷和食物，并邀请他们帮忙转发救援讯息。
+
+前几日，在美国、日本等主流媒体的现场报道中，都有以新中国联邦的帐篷和国旗为背景。在波兰的乌克兰救援现场，新中国联邦是所有媒体无法回避的最大最专业的救援组织。此次救援是最好的机会，让世界分开共产党和中国人。
+
+参考链接：
+
+1. [American woman struggles to bring her family members to U.S. after fleeing Ukraine](https://www.cbsnews.com/video/american-woman-struggles-to-bring-her-family-members-to-us-after-fleeing-ukraine/#x)
+2. [War in Ukraine: UN says more than 2 million people have fled the country](https://www.france24.com/en/video/20220308-war-in-ukraine-un-says-more-than-2-million-people-have-fled-the-country)
 
 
-对此，台湾外交部回应表示，感谢拜登政府及美国国会跨党派友人，再次透过立法展现对台美关系的支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-“全球合作暨训练架构”（GCTF），台美于2015年6月1日签署备忘录成立“全球合作暨训练架构”，目的在发挥台湾的优势及专业，针对双方共同关切的议题合作举办训练计划，并邀请印太区域国家的官员及专家参加，以协助区域国家能力建构，借此加强区域多边合作、协助我国与区域内各国政府建立伙伴关系，进一步拓展台湾国际空间。
+编辑：文真
+总编：Zion文恩
+审核：文真
+校正/发稿：我不在这里
 
-来源｜[GCTF](https://www.gctf.tw/tw/IdeaPurpose.htm)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,22 @@
 ---
 
 
-## 在世界媒体眼中的新中国联邦救援行动
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156255/)
+## 新中国联邦建设前线基地接待大量战争难民
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156256/)
 
-作者：银河系农场 骄子
+作者：香草山写作组 静言
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月12日，波兰梅迪卡救援前线报道，越来越多的国际媒体前来采访法治基金新中国联邦乌克兰救援行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-13-at-9.14.03-PM.png)
-近两日，不断有欧洲国家的媒体前来采访，包括意大利电视台、波兰最大报纸、阿拉伯电视台、波斯尼亚和黑塞哥维那电视台。采访的媒体记者都对法治基金和新中国联邦，持有高度赞扬。
+3月12日，在救援前线梅迪卡基地，新中国联邦的一个豪华大帐篷搭建完毕，正式启用。因面积大，设施全，服务好，成为当地最受志愿者与难民欢迎的休憩场所。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-13-at-9.24.59-PM.png)
+帐篷面积达250平米，内设平整地板，多座取暖炉，桌椅板凳，食物、水、毯子等物资应有尽有。高功率发电机既能保证照明，也能为工作人员和难民提供一杯香浓的NFSC牌现磨热咖啡。战友们细心周到，代为加热婴儿食品，甚至让出自己的泡面给难民。孩子们分到糖果巧克力，欢呼雀跃，小脸蛋绽放的笑容，为逃难中的人们带来了些许欢乐。
 
-值得注意的是，媒体的问题很多集中在区分中国共产党和中国人。意大利的记者直接问战友Nicole，你们是代表中国人的吗？Nicole战友为这位记者介绍新中国联邦和法治基金，并说我们是要灭掉共产党的中国人。中国人都是热爱和平善良友好热爱自由法治的人，共产党甚至为了破坏此次人道救援，黑客了联系邮箱。Nicole还邀请媒体参观了帐篷和食物，并邀请他们帮忙转发救援讯息。
+尽管历史悠久资金雄厚的国际红十字会和国际移民组织IOM都在当地最好的位置搭建了帐篷，但因设备简陋，人手不足而未能得到青睐。而新中国联邦的大帐篷，从早到晚，甚至凌晨时分，都有络绎不绝的人们来到这里休整，成为梅迪卡基地一道最亮眼的风景线。
 
-前几日，在美国、日本等主流媒体的现场报道中，都有以新中国联邦的帐篷和国旗为背景。在波兰的乌克兰救援现场，新中国联邦是所有媒体无法回避的最大最专业的救援组织。此次救援是最好的机会，让世界分开共产党和中国人。
-
-参考链接：
-
-1. [American woman struggles to bring her family members to U.S. after fleeing Ukraine](https://www.cbsnews.com/video/american-woman-struggles-to-bring-her-family-members-to-us-after-fleeing-ukraine/#x)
-2. [War in Ukraine: UN says more than 2 million people have fled the country](https://www.france24.com/en/video/20220308-war-in-ukraine-un-says-more-than-2-million-people-have-fled-the-country)
-
+参考链接：[看看这些孩子的笑容！](https://gettr.com/comment/cse1hu8a57)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-编辑：文真
+编辑：宁文静
 总编：Zion文恩
 审核：文真
 校正/发稿：我不在这里

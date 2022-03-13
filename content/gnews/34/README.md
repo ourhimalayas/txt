@@ -2,33 +2,35 @@
 ---
 
 
-## 新中国联邦咖啡为乌克兰难民带去切实温暖
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2156406/)
+## 志愿者向罗马媒体介绍新中国联邦和法治基金的救援行动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2157200/)
 
-【撰稿】香草山农场教育部——saner三二
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-乌克兰当地时间3月13日，位于波兰边境口岸米蒂卡（Medyka）的难民安置点，新中国联邦搭建的240平米盘古七星级救援帐篷已经接待上千名难民，被郭文贵先生命名的NFSC咖啡（新中国联邦咖啡）让救援帐篷成为了一个汇聚全球爱心的国际大家庭。乌克兰难民们和各国战地记者、新闻工作者纷纷前来，在这寒冷而艰苦的边境口岸，一杯热呼呼的咖啡给他们带去切实温暖。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据接待难民长达26小时的Allen战友介绍，13日早上6点起，短短几小时内，粗略估计帐篷内的咖啡机已提供400到500杯咖啡。刚刚通过边境口岸的乌克兰难民们虽十分疲惫，但仍井然有序地排队等候自己的咖啡。如今，整个米蒂卡救援基地所有人都知道，新中国联邦救援团队有“巨大的帐篷，和美味的咖啡”。
+整理/编辑：小红帽
 
-据前线记者Nicole报道，各国媒体记者也来到帐篷内，享受一杯咖啡的同时，互相交流、采访难民、采访新中国联邦的前线战友，他们对于“新中国联邦人是消灭共产党的中国人”这一认知进一步加深。新中国联邦的七星级帐篷俨然已成为米蒂卡难民营的媒体中心。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-18.png)
-
-【新闻来源】波兰救援基地前线报道
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-- 审核/编辑/发稿:qiutian（邱甜）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-13_21-39-02.png)图片来源：郭文贵先生盖特视频截图
 
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月12日，新中国联邦和法治基金志愿者妮可向罗马媒体介绍新中国联邦和法治基金在乌克兰的救援行动。妮可强调，中共政府对在乌克兰的华人无所作为，只有新中国联邦和法治基金在尽一切努力拯救在乌克兰的华人。
+
+在采访中，妮可向罗马媒体的记者介绍：“新中国联邦和法治基金派出华人来帮助救援。我们都是志愿者。我们不仅帮助华人和留学生。我们目前已经成功营救了350名乌克兰人在内的不同种族的人。我们也成功从乌克兰尼科波尔孤儿院救出将近100个孩子。如果没有总部位于美国纽约的法治基金，我们就无法做到这些。我们很多捐款都来自热爱自由的华人。他们渴望法治、和平、正义和自由。这就是为什么我们的志愿者都穿着这件夹克。如果人们需要，我们都会在这里。我们正提供包机，我们正将人们从波兰送往纽约。我们还有另一个包机，将人们从波兰带到东南亚某国。这一切都是免费的。我们还提供巴士，这些巴士可以不间断地将人们从战区带到波兰的安全地方。”
+
+记者：“是的。不过你说有些人被落下了。请问指哪些人呢？”
+
+妮可：“很多中国学生和华人现在仍处于困境。他们从中共国得不到足够的救援。因为中共政府并没有尽其所能去帮助自己的国民。这就是为什么新中国联邦代表着全世界热爱和平、自由、正义的华人；也是为什么法治基金会派出新中国联邦的成员来边境帮助中国人民。”
+
+资料来源：[郭文贵先生2022年3月13日盖特视频](https://www.gettr.com/post/pzpf5l8aa0)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

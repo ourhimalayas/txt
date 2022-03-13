@@ -2,10 +2,10 @@
 ---
 
 
-## 专家认为疫苗强制令加速了X世代和千禧一代的疫苗死亡
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2151963/)
+## 中共病毒疫苗被错误的数据和宣传所掩盖
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2152033/)
 
-03/10/2022 股票投资高管爱德华·多德认为，疫苗强制令加速了X世代和千禧一代的疫苗死亡
+03/10/2022 战斗室：中共病毒疫苗被错误的数据和宣传所掩盖。
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
  
 

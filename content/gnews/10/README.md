@@ -2,37 +2,72 @@
 ---
 
 
-## 新型中共病毒变种导致香港疫情爆发
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2157978/)
+## 德意志银行遭抨击后改变态度 将关闭在俄业务
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2158116/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2022年3月12的盖特中谈到了香港爆发疫情的真实内幕。
+编译: Mandel
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-3.jpeg)
+- 德意志银行首席执行官曾表示，退出（俄罗斯）将“违背我们的价值观”
+- 投资者批评德意志银行在俄罗斯的业务
+- 首席执行官2021年薪资增长20 %
 
-郭先生提到他有一位来自黑龙江的老朋友，在香港居住多年，现在不幸确诊感染中共病毒。他告诉郭先生，现在的香港已经彻底死了，病死的尸体到处都是。他去找染病去世的朋友的尸体的时候，几乎是踩着尸体过去的。 很多年轻力壮的人因感染中共病毒死去，让郭先生的这位朋友感到非常疑惑。
 
-据郭先生透露，这次香港爆发的病毒不仅仅是奥米炕，大多数还是冠状病毒。这次的病毒感染率高，死亡率高，传染速度非常快。这次香港爆发的病毒是一种新型中共病毒变种，但中共不准报道。 这很可能就是中共故意释放，以达到短期内大规模死人的目的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1426-edited.png)图片来源: REUTERS/Ralph Orlowski，2020年9月21日，在德国法兰克福，德国德意志银行总部的照片
 
-郭先生表示，现在香港情况非常悲惨。由于中共在香港加大金融管制，香港银行已经不允许大额转款。
+法兰克福，3月11日（路透社） – 德意志银行因其与俄罗斯继续保持关系而面临一些投资者和政治家的尖锐批评，该行周五出人意料地表示，它将关闭在该国的业务。
 
-参考链接：[https://gettr.com/post/pzmei76928](https://gettr.com/post/pzmei76928)
+德意志银行加入了高盛和摩根大通的行列，这两家银行是莫斯科入侵乌克兰后首批退出的美国主要银行。这些举动给竞争对手带来了压力，迫使他们跟进。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+德意志银行曾抵抗（与俄罗斯）切断联系的外界压力，认为它需要支持在俄罗斯开展业务的跨国公司。
 
-总编：Zion文恩
-编辑：文真
-审核：文真
-校正/发稿：谐趣园
+但是周五晚上在法兰克福，该银行突然改变了方向。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+该银行说：“我们正在结束我们在俄罗斯的剩余业务，同时帮助我们的非俄罗斯跨国客户减少其业务。”
+
+“在俄罗斯不会有任何新的业务。”德意志银行说。
+
+一天前，德意志银行首席执行官克里斯蒂安·索英（Christian Sewing）向员工解释了该银行不退出（俄罗斯）的原因。
+
+“答案是，这将违背我们的价值观。”他写道。“我们有客户，他们不可能在一夜之间退出俄罗斯。”
+
+多年来一直致力于揭露俄罗斯腐败的投资者比尔·布朗德（Bill Browder）说，德意志银行留下来“与国际商业界完全背道而驰，并将在西方造成反弹，失去声誉和业务”。
+
+布朗德周五早些时候告诉路透社：“如果他们能够在乌克兰局势继续恶化的情况下保持这一立场，我将感到惊讶。”
+
+这一批评是在压制基辅的俄罗斯军队在乌克兰首都西北部重新集结时提出的，英国表示，莫斯科现在可能计划在几天内对该城市进行攻击。
+
+前联邦议院议员、反对金融犯罪的知名人士法比奥·德·马西（Fabio De Masi）说，德意志银行与俄罗斯精英阶层关系密切，其中许多人（指俄罗斯精英阶层）面临制裁，这种涉及到俄罗斯犯罪活动的关系必须结束。
+
+**监控**
+
+德意志银行表示，近年来它已经减少了在俄罗斯的足迹。本周，它披露了在该国有29亿欧元的信贷风险，并表示风险敞口“非常有限”。
+
+它还在俄罗斯经营着一个拥有约1500名员工的技术中心，并于12月在莫斯科开设了一个新的主要办事处，它当时说这代表着“对俄罗斯市场的重大投资和承诺”。
+
+俄罗斯过去曾使德意志银行处于水深火热之中。
+
+美国司法部多年来一直在调查它的交易，当局称这些交易被用来从俄罗斯洗钱100亿美元，这导致这家德国银行被罚款近7亿美元。
+
+德意志银行周五表示，司法部的调查“据了解正在进行中”。
+
+有关俄罗斯的争论是德意志银行在其年度报告中披露的，它在2021年支付了索英（Christian Sewing） 880万欧元（968万美元）的薪资，比一年前增加了20 %。
+
+总体而言，该贷款机构在2021年支付给员工的奖金增加了14%，即21亿欧元，为该银行十年来最赚钱的一年。
+
+(1美元=0.9088欧元)
+
+由Tom Sims、John O’Donnell和Frank Siebelt报道；Carolyn Cohn补充报道；Miranda Murray、Jason Neely、Alexander Smith和Chizu Nomiyama编辑。
+
+于2022年3月11日发表。
+
+信息来源:【reuters.com】[Deutsche Bank to wind down in Russia, reversing course after backlash](https://www.reuters.com/business/deutsche-bank-ceo-gets-20-pay-rise-2021-2022-03-11/)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-8.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

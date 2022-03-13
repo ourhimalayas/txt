@@ -2,44 +2,41 @@
 ---
 
 
-## 普丁侵乌又受挫,乌克兰东部亲俄军事团体首领丧命
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2157581/)
+## 有声|新中国联邦前线救援团现场3月9日信息
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2157937/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image003-8.jpg)**英媒报导，乌克兰东部分离领土顿内次克地区的反乌军事团体「斯巴达营」领袖佐加（遗照）在一场战役中中弹身亡  美联社**
-**俄罗斯总统普丁入侵乌克兰的行动再传受挫，英媒报导，乌国东部顿内次克地区的反乌军事团体「斯巴达营」领袖佐加已经身亡。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+在3月9日的大直播中，郭文贵先生与身处波兰梅迪卡救援前线的，新中国联邦战友现场联线，战友们自信地表示，凭借热情的服务与出色的工作，新中国联邦广泛赢得了各国友人的尊重与帮助。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-186.jpeg)图片来源：文贵大直播
 
-英国《每日邮报》报导，军头佐加在乌克兰东部的沃尔诺瓦哈镇战役中，中弹丧命。
+```
+视频中，小李、明道兄弟、文戈等战友介绍，喜马拉雅联盟委员会主席老班长，秘书长长岛哥，以及前线现场总指挥大卫等，均冲锋在前，第一时间站在第一线展开工作。目前所有救援物资已经全部到位。我们救援团队的出色表现，胜过了其他所有团队的工作。战友们给乌克兰难民提供的食物和毛毯，让他们非常感动。虽然天气很冷，但是战友们热情高涨。
+```
 
-亲俄分离主义分子在乌国东部成立「顿内次克共和国」,佐加领导的在地组织「斯巴达营」成员犹如新纳粹，自2014年成形以来，被认为犯下残忍战争罪，还曾射杀乌克兰战俘。
 
-「顿内次克共和国」领导人普希林透过Telegram证实佐加死亡，并称他「是在确保平民离开期间受到致命伤」。
+国际友人们也自发的帮助我们的救援团队搬运物资，他们对新中国联邦人跨越半个地球，来到波乌边境进行人道主义救援，表示由衷的敬佩和感谢。战友们也为自己是新中国联邦人而感到无比的骄傲和自豪。
 
-2016年，「斯巴达营」前领导人巴夫洛夫在自家公寓电梯被土制炸弹炸死，随后由佐加接任首领。
 
-**
 
-[【援引连结】](https://tw.appledaily.com/international/20220308/NQMGJDAPMVDBRHHU3RLZA4FTJY/)
+文字版原文：[新中国联邦前线救援团现场3月9日信息](https://gnews.org/zh-hans/2150953/)
 
-**推出问题，敲出真相，爆料在路上！**
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-**请关注和订阅我们的以下账号：**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**玫瑰看新闻YOUTUBE账号**：
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**玫瑰看新闻**
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
