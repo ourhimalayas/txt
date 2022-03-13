@@ -2,36 +2,31 @@
 ---
 
 
-## 多枚火箭弹向美国驻伊拉克北部埃尔比勒领事馆发射
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2155920/)
+## 数千俄罗斯游客被困泰国
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2155925/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：红杉
+![](https://assets.gnews.org/wp-content/uploads/2022/03/131-2.png)图片来自网络
+泰国旅游局局长Yuthasak Supasorn在接受美联社采访时说，因为回国航班被取消以及金融制裁而不能支付账单，约有6500名俄罗斯游客滞留在普吉岛、素叻他尼、甲米和芭堤雅这四个热门的海滨度假胜地。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Islamic-Revolutionary-Guard-Corp-Holds-Military-Exercises.jpg)
+往返俄罗斯的直航飞机几乎全部暂停，但可以通过中东的航空公司进行中转。Yuthasak补充说正在努力进行协调。
 
+由于不能使用Visa和Mastercard信用卡，一些人无法支付账单。有的酒店提供折扣进行帮助。同时泰国政府已免费提供30天的签证延期，并为被迫长期逗留的人寻找低成本的替代住宿。
 
-图片来源：美联社
+据泰国当地媒体Nation Thailand 3月10日报道，泰国银行 (BOT) 和普吉岛旅游协会 (PTA) 一直在讨论并计划推出替代支付方式，包括为俄罗斯游客提供加密货币支付服务。目前，一些旅游公司使用中国支付平台银联为在该国的俄罗斯人提供另一种支付方式。
 
-美国在伊拉克北部库尔德省的领事馆显然是几枚火箭的目标。据报道，这些导弹是从伊朗发射的。这可能是对以色列袭击叙利亚伊朗革命卫队的报复。
+根据公共卫生部的数据，俄罗斯游客是2月份入境人数最多的群体，占总数 203970人的8.6%。自从俄罗斯入侵乌克兰之后，游客人数急剧下降。由于油价上涨和通货膨胀对全球旅游的连锁反应，泰国今年可能降低其游客人数和收入目标。
 
-周日凌晨，伊拉克北部库尔德自治区首府埃尔比勒中了几枚火箭弹。据伊拉克通讯社 INA 报道，州长奥米德·霍什纳夫说：“几枚火箭弹落在埃尔比勒市。”据埃尔比勒卫生部称，没有人受伤。
+同时，菲律宾、老挝、柬埔寨、印度尼西亚和越南等东南亚国家准备迎接符合条件的游客，旨在重振因两年边境关闭和病毒限制而遭受重创的旅游业。由于庞大的中国旅行团不能出境，人们一直寄希望于俄罗斯市场来填补空位，但俄乌战争给这些希望浇了冷水。
 
-据库尔德安全部队称，埃尔比勒遭到“十二枚弹道导弹”的袭击。这次袭击的目标是美国领事馆。安全部队补充说，这些导弹是从“伊拉克和库尔德边界以东”发射的。伊拉克东部与伊朗接壤。
+*审核：**Gradient Boost*
 
-Kurdistan24 电视频道的工作室位于美国驻埃尔比勒领事馆附近，该频道在在线网络上发布了受损办公室的照片。
+*发稿：**mgjxs*
 
-库尔德自治区总理马斯鲁尔·巴尔扎尼说：“我们谴责对埃尔比勒不同地区的恐怖袭击，并呼吁居民保持冷静。”
+资料来源：
 
-伊尔纳援引伊拉克媒体的话报道了这次袭击，但没有说明伊朗是否应该对此负责。几天前，强大的伊朗革命卫队的两名成员在叙利亚首都大马士革的以色列袭击中丧生。伊朗外交部发誓要进行报复。
-
-伊拉克一再卷入其邻国伊朗和美国之间的冲突。近年来，数十起导弹和无人机袭击针对美军及其在伊拉克的利益。这些袭击被归咎于伊拉克的亲伊朗团体。
-
-埃尔比勒机场是美国领导的反伊斯兰国联盟基地的所在地，最近一次遭到两架武装无人机袭击是在 9 月。
-
-链接：[https://www.welt.de/politik/ausland/article237503129/Nordirak-Mehrere-Raketen-auf-US-Konsulat-in-Erbil-abgefeuert.html](https://www.welt.de/politik/ausland/article237503129/Nordirak-Mehrere-Raketen-auf-US-Konsulat-in-Erbil-abgefeuert.html)
-
-编辑发表： Shuizhuyu
-
+[https://abcnews.go.com/Travel/wireStory/cashless-flightless-russian-tourists-stuck-thailand-83405843https://timesofindia.indiatimes.com/business/cryptocurrency/blockchain/authorities-in-thailand-consider-accepting-cryptocurrency-from-russian-visitors/articleshow/90150731.cms](https://abcnews.go.com/Travel/wireStory/cashless-flightless-russian-tourists-stuck-thailand-83405843https://timesofindia.indiatimes.com/business/cryptocurrency/blockchain/authorities-in-thailand-consider-accepting-cryptocurrency-from-russian-visitors/articleshow/90150731.cms)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,157 +2,27 @@
 ---
 
 
-## 爆料百科 &#8211; 邪教组织
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2155940/)
+## VAERS在2022年前两个月报告的心肌炎和心包炎病例已接近去年一半
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2155952/)
 
-作者：美国纽约香草山农场-爆料百科
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中共统治的70年间，
+#### 翻译/撰稿：zzballack
 
-During the 70 years of CCP rule
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-60.jpg)图片来源：Cardiovascular Business
+据《网关专家》（Gateway Pundit）3月11日报道，疫苗不良反应报告系统（VAERS）的最新数据显示，2022年前2个月报告的心肌炎和心包炎病例数已接近去年全年的一半。这表明原本健康的美国人患上这种威胁生命的心脏疾病的速度正在加快。
 
-将许多组织定义为邪教组织。
+自实验性的新冠疫苗推出以来，美国的心肌炎病例呈爆炸式增长，甚至在通常不太可能患上该疾病的儿童和年轻人群体也出现了这一趋势。美国媒体《The Blaze》的高级编辑丹尼尔·霍罗威茨 (Daniel Horowitz) 对VAERS的数据进行了解析：“2021年，VAERS报告的心肌炎和心包炎病例有24177个；而在2022年，仅截止到2月25日，就已报告了11289个病例，几乎是去年总数的一半。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-37.png)图片来源：the gateway pundit
+如果该数字照此速率增长，那么今年与疫苗有关的心肌炎病例将是去年的三倍多。这还只是VAERS的内部数字，更不用说VAERS存在严重漏报和少报。
 
-it defined many organizations as cults
+对数据进行进一步剖析后发现了一些更加令人震惊的趋势，而且这些问题正在加倍恶化。最令人担忧的是，青少年和年轻人正经历的情况比其他年龄段更为糟糕。无论哪个年龄段，心肌炎和心包炎最常见于接种第二剂疫苗后。通过下面这张按照年龄和剂量划分的心肌心包炎病例分布图可以看出，17和18岁的青少年患上心肌炎或者心包炎的比率最高，尤其是在第二剂疫苗之后。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-21.png)图片来源：the gateway pundit
+然而可悲的是，美国政府仍在执意推动疫苗接种，甚至正在对幼儿和婴儿进行疫苗测试。数月来，罗伯特·马龙（Robert Malone）博士和彼得·麦卡洛（Peter McCullough）医生等良心人士一直在抨击当局的鲁莽行为，特别是他们最近决定批准为幼儿接种新冠疫苗。麦卡洛博士引用了多项研究来支持他的声明：疫苗诱发的心肌炎是一个迅速增长的问题，比美国公共卫生“专家”最初预测的情况至少多出50%。这种情况已变得如此普遍，以至于12至17岁孩子在接种疫苗后更有可能因心肌炎住院，而不是新冠病毒本身。
 
-而中共对中国人民犯下的罪行，
+新冠疫苗造成的伤害在未来数年仍将持续，无数人将因为这种实验性疫苗而遭受不必要的伤害或者死亡。除了心肌炎病例，自大流行开始以来，VAERS还报告了100多万个不良反应病例以及2万个死亡病例，这些数字只是冰山一角。在过去，如果疫苗导致的死亡人数达到两位数，就会被撤回，更不用说数万人了。强迫人们接种这种实验性疫苗完全是犯罪，是纯粹的邪恶，必须中止。
 
-And the crimes committed by the CCP against the Chinese people
+新闻来源：[Vaccine-Injuries SKYROCKET: Two Months into 2022, Vaccine-Related Myocarditis Reports in VAERS Have Surged to Nearly Half the Total Reported in 2021](https://www.thegatewaypundit.com/2022/03/vaccine-injuries-skyrocket-two-months-2022-vaccine-related-myocarditis-reports-vaers-surged-nearly-half-total-reported-2021/)
 
-悉数符合邪教组织的特征。
-
-all fit the characteristics of a cult
-
-1. 教主崇拜。
-
-
-First, cult leader worship
-
-从“东方红，太阳升，中国出了个毛泽东”，
-
-from “Dongfanghong, the sun rises, China has a Mao Zedong”
-
-到当今的为我独尊的习太阳。
-
-to today’s the exclusive Xi Sun
-
-- 精神控制。中共建造“防火墙”，
-
-
-Second, mind control. The CCP built a “firewall”
-
-全面控制教育和舆论，洗脑国民，
-
-to fully control education, public opinion and brainwash the nationals
-
-让人民相信“爹亲，娘亲，不如党亲”。
-
-make the people believe that “father and mother are not as close as the CCP”
-
-- 编造邪说。共产主义早已被世界唾弃，
-
-
-Third, fabricated heresy. Communism has long been spurned by the world
-
-中共却包装美化共产主义，
-
-yet the CCP packages and glorifies communism
-
-将所谓的“毛思想”、“习思想”灌输给中国人民。
-
-and instilled the so-called “Mao Thought” and “Xi Thought” into the Chinese people
-
-- 聚敛钱财。
-
-
-Forth, gather wealth
-
-中共早期打着“打土豪，分田地”的幌子，
-
-Early in the CCP’s rule, under the guise of “fight the landlord and share the land”
-
-实为将土地收为中共所有。
-
-land was actually taken into the CCP’s possession
-
-海航王健、马云等相继卸磨杀驴，
-
-HNA Wang Jian, Jack Ma and others were killed as donkeys after the completion of their works
-
-就是当代版本“打土豪，分田地”。
-
-which is the current version of “fight the landlord and share the land”
-
-- 秘密结社。中国共产党实属外来组织，
-
-
-Fifth, secret associations. The CCP was a foreign organization
-
-成立早期活动均不公开透明。
-
-and its activities were not open and transparent in its early years
-
-- 对抗社会。
-
-
-Sixth, confront society
-
-中共制造各种政治运动，
-
-The CCP created various political movements
-
-“文化大革命”，数千万人民丧失。
-
-and the “Cultural Revolution” killed tens of millions of people
-
-制造种族大屠杀，新疆大屠杀、西藏大屠杀、香港大屠杀。
-
-It created genocide, the Xinjiang massacre, the Tibetan massacre, the Hong Kong massacre
-
-此外，中共还篡改历史，
-
-In addition, the CCP has falsified history
-
-掩盖篡权事实，
-
-and covered up the fact of usurpation of power
-
-谎称“没有共产党就没有新中国”，
-
-falsely claimed that “without the CCP there would not be a new China”
-
-“拯救56个少数民族”。
-
-and “save the 56 minorities”
-
-中共就是当今世界最大的邪教组织。
-
-The CCP is the largest cult in the world today
-
-摘要： 70年间，中共的累累罪行符合邪教组织的六大特点，
-
-Abstract: Over the period of 70 years, the cumulative crimes of the CCP fit the six characteristics of a cult:
-
-即教主崇拜、精神控制、编造邪说、聚敛财富、秘密结社、对抗社会。
-
-That is, cult leader worship, mind control, fabricated heresy, gather wealth, secret associations, and confront society
-
-此外，中共还篡改历史。中共就是当今世界最大的邪教组织。
-
-In addition, the CCP has falsified history. The CCP is the largest cult in the world today
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
-
-编辑：雪梨
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
