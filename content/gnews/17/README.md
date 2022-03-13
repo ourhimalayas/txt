@@ -2,34 +2,34 @@
 ---
 
 
-## 新中国联邦人展示国际化新形象
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156348/)
+## 乌克兰救援前线视频（五）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2156376/)
 
-撰稿：纽约香草山 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
-在3月11日的大直播中，郭文贵先生连线梅迪卡救援基地的记者Nicole，对每一位奋战在救援前线的战友向世界展现出的自信、美丽、热情的国际化新形象，给予了高度评价。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1399.png)图片来自：https://gettr.com
-郭先生指出，这一次法治基金支持的乌克兰人道主义大救援，一夜之间改变了中共治下国人愚蠢、懦弱、满嘴谎言、金钱至上的形象，取而代之的是新中国联邦人高效、真诚、与世界沟通无界的国际化形象，让驻扎在基地的各国媒体记者、志愿者以及难民感受到强烈的冲击。
+**视频制作：**James
+**封面设计：**长颈鹿 
+**封底设计：**614、精靈藍 
+**监制：**精靈藍
+**编辑/发布：**翼族
 
-在听到Nicole介绍，新中国联邦救援基地在难民营里设施最齐全，服务最周到时，郭先生特意嘱咐战友，一定要提供NFSC现磨咖啡，因为每天早上一杯香气四溢的咖啡，意味着美好一天的开始。即使在难民营，也要让每一个人感受到温暖和希望。
+我们是消灭邪恶中国共产党的新中国人！
 
-郭先生强调，一线救援的战友要谨记“唯真不破”，接受媒体采访时，绝不能说假话说大话。在血腥的战争面前，新中国联邦代表中国人建立了前所未有的最高级的、最真情、最温馨的避难所，向全世界证明了中国人热爱生命、爱好和平的美好愿景，也展现了我们真诚、可贵，受人尊重的国际新形象。
+We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party.
 
-新闻链接：[2022年3月11日 文贵大直播](https://gettr.com/post/pzg47d4994)
+Ми-нові китайці, які знищили злу Комуністичну партію Китаю.
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
+中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类！
 
-编辑/总编/审核：飞虹
+The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
 
-校正/发稿：浪迹天涯
+Комуністична партія Китаю є основною причиною лих у всьому світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

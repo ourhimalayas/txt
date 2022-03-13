@@ -2,30 +2,38 @@
 ---
 
 
-## 普京软了？乌俄和平协议或将达成妥协
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2156457/)
+## 俄罗斯第三名将军在乌克兰被击毙
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156464/)
 
-撰稿：东京樱花团/盘古明月
+撰稿: 纽约香草山教育部- Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
+3月12日，国外媒体报道，一位西方国家官员称，俄罗斯将军柯列斯尼可夫少将被乌克兰部队击毙。这是俄罗斯入侵乌克兰以来第三名被乌克兰部队击毙的俄罗斯将军。俄罗斯国防部未就此事作出及时回应。国防部网站则显示，柯列斯尼可夫现任俄罗斯东部军区司令。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1403.png)
+该官员称，俄罗斯入侵乌克兰刚刚两周的时间，被杀将领数量已经跟俄罗斯在整个叙利亚冲突期间一样多。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/普京软了？乌俄和平协议或将达成妥协.png)
+乌克兰军方在推特上确认了该高级军官被消灭的消息，并表示：“俄罗斯侵略者会在乌克兰失去更多军官。”
 
-当地时间12日，俄乌谈判乌方代表团成员、乌总统办公室主任顾问波多利亚克在接受采访时表示，乌俄进行第三轮谈判后，双方以视频方式开展了系列沟通并成立了工作组。
+据报道，目前乌克兰的顽强抵抗以及天气寒冷和物资不足的问题使俄罗斯部队士气低落。
 
-目前，双方已接近就签署相关协议达成妥协。
+链接:
 
-波多利亚克表示，乌俄双方提出了多种解决冲突的建议。对乌方而言，将签署的协议中应包含双方停火、俄罗斯撤军、签署和平协议、修复乌克兰境内受损基础设施等原则性立场，最重要的是使乌克兰获得安全保障，以避免再次发生类似事件。
+**[Third Russian general killed in Ukraine ‘in sign of weakness among Putin’s forces’](https://www.independent.co.uk/news/world/europe/ukraine-russian-general-dead-putin-b2034205.html?amp)**
 
-波多利亚克指出，乌俄双方将致力于签署一份全面和综合的协议。目前，工作组正在研究相关方案并在法律层面进行讨论以形成文本。最终的协议文本将由两国总统签署。他说，在就关键立场达成一致前，双方不会透露谈判细节或做出解释。
 
-当前，俄罗斯已经深陷乌克兰战争泥沼，军事推进困难且损失惨重，同时在国际社会的联合制裁之下，内部政治、经济和社会危机一触即发。在此背景下，俄乌谈判若能取得实质性进展，或许对双方以及世界都是一件好事。
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
 
-[乌克兰谈判代表：乌俄正趋于就签署全面协议达成妥协](http://www.xhby.net/index/202203/t20220313_7461729.shtml)
+编辑/总编/审核: 飞虹
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

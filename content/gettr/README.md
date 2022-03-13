@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@blue_lotus 3/13/2022 11:29 AM (UTC)`
+
+蓝莲花农场倾情制作反战救援视频。<br/><br/>世界反战名曲“where have all the flowers gone " 本来是一首东欧民谣（一说乌克兰，一说俄罗斯）。1956年，美國極具傳奇性的民歌手彼德‧席格（Pete Seeger,b.1919）改寫了這首歌詞。 他反對侵略戰爭。从此这首歌影响了全世界各地一代又一代的人们。今天，这首曲子再次响起已经是2022年！！<br/><br/>时光流转，歌曲寄托我们的心愿。 同时把我们新中国联邦人热爱和平，反对战争，消灭中共的愿望都传达出去！！<br/><br/>花儿都去哪了？ 年轻的士兵都去哪了？坟墓朝向何方？......
+![img](https://media.gettr.com/group18/origin/2022/03/13/11/1b22ab4f-6fdb-bf9f-6cc9-e0c4e14f20a1/out.jpg)
+
+---
+
 `@miles 3/13/2022 12:09 PM (UTC)`
 
 【Ukraine Rescue】03/13/22 The NFSC’s big tent is well stocked with supplies. Ukrainian refugees can receive sufficient relief there. <br/><br/>【乌克兰救援】03/13/22 新中国联邦的大帐篷物资供应充分，乌克兰难民在这里能够得到有效救济<br/>
@@ -147,13 +156,6 @@ On the front line of relief in Ukraine, there were many women and children in th
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-12
 ![img](https://media.gettr.com/group50/origin/2022/03/12/22/ecf26bc6-6a2a-bf0e-714f-900e1f8f1461/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/12/2022 10:50 PM (UTC)`
-
-3/12/2022 Miles Guo’s GETTR: Only the kind people of the New Federal State of China have provided coffee, gas heaters, and hot water for the refugees fleeing Ukraine in the bitter cold. The virus is wreaking havoc in Hong Kong, and there are corpses everywhere. The CCP doesn't allow the people to talk about the new variant of the virus in Hong Kong which has a high infection and mortality rate. The virus could probably be released by CCP to slaughter the people of Hong Kong!<br/><br/>3/12/2022 文贵盖特：只有善良的新中国联邦人为在严寒中走出乌克兰的难民提供了咖啡、热气炉和热水；香港疫情肆虐，到处都是尸体；中共不让谈香港新的变种病毒，其感染率和死亡率都高，可能是中共放毒以屠杀香港人！
-![img](https://media.gettr.com/group48/getter/2022/03/12/22/cd476d37-77ad-65cd-85fa-39fd4820111a/out.jpg)
 
 ---
 

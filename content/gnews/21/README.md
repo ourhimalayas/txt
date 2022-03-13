@@ -2,44 +2,44 @@
 ---
 
 
-## 中共官媒记者跟随俄军采访引发关注 被揭疑似间谍身份
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2156301/)
+## 新中国联邦法治基金乌克兰人道救援行动 受多国媒体关注
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2156323/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-150.jpg)
-中共记者跟随俄军采访（图片取自推特视频截图）
+台湾宝岛农场 阿尔道夫
 
-中共官媒凤凰卫视记者卢光宇日前跟随俄罗斯军队在乌克兰采访引发关注。随后，有人在网上揭露了其疑似间谍的身份。
+[救援行動直播畫面](https://www.gettr.com/post/pzg47d4994)
 
-据《希望之声》3月11日报道，凤凰卫视的记者跟随俄罗斯军队到乌克兰东部城市马里乌波尔（Mariupol）采访，被乌克兰民众和当地情报部门盯上，怀疑其是间谍。
+為应对乌克兰-波兰边境日益增多的撤离人员和难民，法治基金(ROLF)宣布提供撤离的人道救援，暂定2022年3月15日提供免费专机。法治基金提供免费撤离巴士、飞机、中转地临时居所及30日内免费食宿等资源，目的为协助有需要人士撤离。若有撤桥、救援需要协助，可联系我们或提供需要救助之人24小时紧急热线联络方式。
 
-乌克兰自由民主联盟主席哈里托诺夫（Arthur Kharytonov）日前在推特上发布了一段这名记者采访的视频。视频中，该名记者与俄军及东乌士兵亲切交谈并互相问候。哈里托诺夫痛批此人是间谍，他在推文中写道：“这是中（共）国与俄罗斯占领者合作的完整影片。真令人恶心。”
+法治基金(ROLF)宣布提供撤离的人道救援，暂定2022年3月15日提供免费专机。针对撤离方案，法治基金(ROLF)提供的专机航线如下，可能根据情况做出调整：
 
-有网民爆料称，视频中的记者叫卢光宇，海军退役后留学俄罗斯，是总参二部的中校级特工。目前他率领一个“采访摄制组”随俄军行动，经常出入俄乌双方前线阵地。他们对乌军检查站声称自己是香港媒体，以隐瞒他们的中共国身份。
+1. 從波蘭-熱舒夫(Rzeszow)機場出發，經加拿大多倫多，前往美國紐約。
+2. 從波蘭-熱舒夫(Rzeszow)機場出發，直飛東南亞某國(待定)。
 
-CNN也对卢宇光在俄乌前线采访的事进行了报道，并发问：“这个中国人是谁？”
+**海外**等待救援人员，可提供以下“紧急救援联系方式”：
 
-新闻链接：
-
-
-
-> BREAKING: CCP media outlets are now embedding with Russian troops as they encircle Ukrainian cities 
-> 
-> Are you paying attention yet? [pic.twitter.com/uFLfoOkRJX](https://t.co/uFLfoOkRJX)
-> — Jack Posobiec 🇺🇸 (@JackPosobiec) [March 8, 2022](https://twitter.com/JackPosobiec/status/1501231427559780352?ref_src=twsrc%5Etfw)
+- 24小時客服熱線(電話/短信):+1 720-657-6776 或 +1 719-224-4232 +48 508-532-712 或 +48 508-531-518
+- Telegram: t.me/UkraineRescue
+- 郵箱: [\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection#65300e17040c0b0037001606100055572515170a110a0b08040c094b060a08)
+- GETTR: gettr.com/user/UkraineRescue
 
 
-
-[https://m.soundofhope.org/post/601937](https://m.soundofhope.org/post/601937)
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1249.png)
 
 
-> 据CNN专门报导了中共特务卢宇光：这个中国人是谁？ [pic.twitter.com/BCoYakJI2l](https://t.co/BCoYakJI2l)
-> — 糊涂3.0（复活号） (@EZqkzsCFrgcaoww) [March 10, 2022](https://twitter.com/EZqkzsCFrgcaoww/status/1501768240770727936?ref_src=twsrc%5Etfw)
+救援前线Nicole介绍情况，国际媒体聚焦法治基金、新中国联邦救援基地目前在距离乌克兰边境仅100公尺距离，在直播画面中有录到一条乌克兰避难进入波兰边境必经通道，据记者表示救援基地每天都会遇到来自世界各地的媒体、机构，目前有数十家媒体、电视台在基地。
 
+其中包括波兰最大的报纸、电视，刚才我们接受采访的是美国之音，还有彭博社、美联社、GETTY图片社，还有西班牙、意大利、科索沃，就是很多的还有包括阿拉伯语的位于迪拜的电视台。现在有很多国际的一些大的机构都主动找到我们新中国联邦和法治基金的救援的团队，跟我们合作。
 
+晚上大概是8、9点钟的时候，国际红十字会他们带领一批刚刚从边界过来的妇女、儿童，他们有进到我们的这个大帐篷里边，希望我们能够接待这些妇女、儿童。红十字基金会他们说：你们这么晚了还有义工在这边帮忙。关键是我们的这个帐篷里面还有暖气，还有给这些妇女、儿童，我们有发毯子、有食物、有水，还有小孩子们喜欢吃的糖果、巧克力。
 
 * * *
+
+新中国联邦发起乌克兰救援行动为达成人道救援目的，成员由同价值观者组成，其中救援行动由“消灭共产党的中国人！”发起，理念为“中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类”。
+
+We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party.
+
+The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
 
  
 

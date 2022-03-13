@@ -2,45 +2,34 @@
 ---
 
 
-## 新中国联邦法治基金乌克兰人道救援行动 受多国媒体关注
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2156323/)
+## 新中国联邦人展示国际化新形象
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156348/)
 
-台湾宝岛农场 阿尔道夫
+撰稿：纽约香草山 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
+在3月11日的大直播中，郭文贵先生连线梅迪卡救援基地的记者Nicole，对每一位奋战在救援前线的战友向世界展现出的自信、美丽、热情的国际化新形象，给予了高度评价。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1399.png)图片来自：https://gettr.com
+郭先生指出，这一次法治基金支持的乌克兰人道主义大救援，一夜之间改变了中共治下国人愚蠢、懦弱、满嘴谎言、金钱至上的形象，取而代之的是新中国联邦人高效、真诚、与世界沟通无界的国际化形象，让驻扎在基地的各国媒体记者、志愿者以及难民感受到强烈的冲击。
 
-[救援行動直播畫面](https://www.gettr.com/post/pzg47d4994)
+在听到Nicole介绍，新中国联邦救援基地在难民营里设施最齐全，服务最周到时，郭先生特意嘱咐战友，一定要提供NFSC现磨咖啡，因为每天早上一杯香气四溢的咖啡，意味着美好一天的开始。即使在难民营，也要让每一个人感受到温暖和希望。
 
-為应对乌克兰-波兰边境日益增多的撤离人员和难民，法治基金(ROLF)宣布提供撤离的人道救援，暂定2022年3月15日提供免费专机。法治基金提供免费撤离巴士、飞机、中转地临时居所及30日内免费食宿等资源，目的为协助有需要人士撤离。若有撤桥、救援需要协助，可联系我们或提供需要救助之人24小时紧急热线联络方式。
+郭先生强调，一线救援的战友要谨记“唯真不破”，接受媒体采访时，绝不能说假话说大话。在血腥的战争面前，新中国联邦代表中国人建立了前所未有的最高级的、最真情、最温馨的避难所，向全世界证明了中国人热爱生命、爱好和平的美好愿景，也展现了我们真诚、可贵，受人尊重的国际新形象。
 
-法治基金(ROLF)宣布提供撤离的人道救援，暂定2022年3月15日提供免费专机。针对撤离方案，法治基金(ROLF)提供的专机航线如下，可能根据情况做出调整：
+新闻链接：[2022年3月11日 文贵大直播](https://gettr.com/post/pzg47d4994)
 
-1. 從波蘭-熱舒夫(Rzeszow)機場出發，經加拿大多倫多，前往美國紐約。
-2. 從波蘭-熱舒夫(Rzeszow)機場出發，直飛東南亞某國(待定)。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
 
-**海外**等待救援人员，可提供以下“紧急救援联系方式”：
+编辑/总编/审核：飞虹
 
-- 24小時客服熱線(電話/短信):+1 720-657-6776 或 +1 719-224-4232 +48 508-532-712 或 +48 508-531-518
-- Telegram: t.me/UkraineRescue
-- 郵箱: [\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection#65300e17040c0b0037001606100055572515170a110a0b08040c094b060a08)
-- GETTR: gettr.com/user/UkraineRescue
+校正/发稿：浪迹天涯
 
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1249.png)
-
-
-救援前线Nicole介绍情况，国际媒体聚焦法治基金、新中国联邦救援基地目前在距离乌克兰边境仅100公尺距离，在直播画面中有录到一条乌克兰避难进入波兰边境必经通道，据记者表示救援基地每天都会遇到来自世界各地的媒体、机构，目前有数十家媒体、电视台在基地。
-
-其中包括波兰最大的报纸、电视，刚才我们接受采访的是美国之音，还有彭博社、美联社、GETTY图片社，还有西班牙、意大利、科索沃，就是很多的还有包括阿拉伯语的位于迪拜的电视台。现在有很多国际的一些大的机构都主动找到我们新中国联邦和法治基金的救援的团队，跟我们合作。
-
-晚上大概是8、9点钟的时候，国际红十字会他们带领一批刚刚从边界过来的妇女、儿童，他们有进到我们的这个大帐篷里边，希望我们能够接待这些妇女、儿童。红十字基金会他们说：你们这么晚了还有义工在这边帮忙。关键是我们的这个帐篷里面还有暖气，还有给这些妇女、儿童，我们有发毯子、有食物、有水，还有小孩子们喜欢吃的糖果、巧克力。
-
-* * *
-
-新中国联邦发起乌克兰救援行动为达成人道救援目的，成员由同价值观者组成，其中救援行动由“消灭共产党的中国人！”发起，理念为“中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类”。
-
-We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party.
-
-The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

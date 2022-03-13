@@ -2,38 +2,21 @@
 ---
 
 
-## 俄罗斯第三名将军在乌克兰被击毙
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156464/)
+## COVID-19 最新情报｜奧地利暂停疫苗强制令 宪法事务官员：对基本权限制不合理
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2156482/)
 
-撰稿: 纽约香草山教育部- Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
-3月12日，国外媒体报道，一位西方国家官员称，俄罗斯将军柯列斯尼可夫少将被乌克兰部队击毙。这是俄罗斯入侵乌克兰以来第三名被乌克兰部队击毙的俄罗斯将军。俄罗斯国防部未就此事作出及时回应。国防部网站则显示，柯列斯尼可夫现任俄罗斯东部军区司令。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1403.png)
-该官员称，俄罗斯入侵乌克兰刚刚两周的时间，被杀将领数量已经跟俄罗斯在整个叙利亚冲突期间一样多。
+**撰文｜疫情關注組 / 發佈時間｜13/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Dark-Blue-Running-Twittc-Banner-1.png)**更多資訊請關注官方蓋特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
+奧地利政府于去年出台疫苗授权政策，然引发法律争议，该国政府便祭出宽限期（2月5日至3月15日），据外媒报导逾宽限期后，警方将对无法提供疫苗接种证明者开罚。
 
-乌克兰军方在推特上确认了该高级军官被消灭的消息，并表示：“俄罗斯侵略者会在乌克兰失去更多军官。”
+奥地利拥有近900万人口，共通报312万例新冠确诊及15180人死亡，72%人为完全接种者，54%接种第三剂。
 
-据报道，目前乌克兰的顽强抵抗以及天气寒冷和物资不足的问题使俄罗斯部队士气低落。
+经该国卫生部门证实，将暂停疫苗授权，原因为“疫苗授权立法时的紧迫感已解除”且根据卫生和法律专家委员会提供的报告，该国政府认为目前无执行疫苗授权的必要。
 
-链接:
+负责宪法事务的卡罗琳·埃德施塔特勒 (Karoline Edtstadtler) 表示“疫苗授权对基本权利的限制是不合理的。”她认为奥地利没有实施疫苗授权的必要。
 
-**[Third Russian general killed in Ukraine ‘in sign of weakness among Putin’s forces’](https://www.independent.co.uk/news/world/europe/ukraine-russian-general-dead-putin-b2034205.html?amp)**
+來源｜[erunews](https://www.euronews.com/2022/03/09/austria-to-suspend-its-controversial-covid-vaccine-mandate)、[abcNEWS](https://abcnews.go.com/Health/wireStory/austria-suspends-vaccine-mandate-enforcement-starts-83336461)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
-
-编辑/总编/审核: 飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
