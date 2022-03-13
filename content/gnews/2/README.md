@@ -2,54 +2,104 @@
 ---
 
 
-## 俄罗斯称可能扣押西方公司留下的资产
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2153933/)
+## 帮助儿童逃离乌克兰
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2153993/)
 
-***评论：同样的情况很快会在中共国发生，可能会更严重。***
+她没有办法用语言形容她在过去的24小时内
+Ella no tiene palabras para describir todo lo que ha visto
 
-**据《CNN》 作者：Mark Thompson，2022年3月10日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/at3qq-2dwhj-3.jpg)
-伦敦（CNN Business）–俄罗斯表示，它可能会扣押在该国暂停运营的西方公司的资产。
+她所经历和看到的这一切
+Y vivido en las últimas 24 horas
 
-过去两周，来自几乎所有经济领域的数十家美国、欧洲和日本公司放弃了合资企业、工厂、商店和办公室，以回应俄罗斯对乌克兰的入侵和确保制裁。
+她没有办法用语言表达对法治基金和所有新中国联邦派出的天使们
+No tiene forma para expresarse con palabras hacia la Fundación del Estado de Derecho y a todos los ángeles enviados por el Nuevo Estado Federal de China
 
-制裁已经打击了俄罗斯的大部分金融部门，包括其中央银行，破坏了俄罗斯的货币，并可能引发主权债务违约和深度衰退，而且可能还会有更多。
+来帮助这些小孩, 她心情真的是非常非常的复杂
+Para ayudar a estos niños, ella está en un estado de ánimo muy, muy complicado
 
-美国财政部长珍妮特-耶伦周四表示，由于现有的西方制裁，俄罗斯的经济将受到“破坏”，“但我们……继续考虑我们可以采取的进一步措施。”
+她不知道用什么样的话来表达
+No sabe con qué palabra puede expresarse
 
-弗拉基米尔-普京总统曾承诺作出回应。周四，他在与政府官员的一次会议上发言，支持对离开俄罗斯的外国公司实行“外部管理”的计划。
+她说这个项目非常非常的艰难
+Ella dijo que este proyecto es muy difícil
 
-根据克里姆林宫发布并在国家媒体上播出的一段视频，普京说：“我们需要对那些将关闭生产的[公司]采取果断行动。那么，有必要……引入外部管理，然后将这些企业移交给那些想要工作的人。”
+这个不是说像我们看到的
+No es como lo que vemos
 
-俄罗斯总理米修斯廷早些时候说，已经起草了立法。
+发一点水和糖果
+Repartir un poco de agua y caramelos
 
-***关闭对话***
+整个这个过程所经历的艰难和要过很多很多的关
+Todas las dificultades y obstáculos que se deben pasar durante todo el proceso
 
-米修斯金说：“如果外国业主不合理地关闭公司，那么在这种情况下，政府建议引入外部管理。根据业主的决定，它将决定企业的未来命运。”
+要有很多很多的手续
+Debe haber muchos trámites
 
-“关键任务将是保护……组织的活动和工作。”他补充说：“大多数企业在维持工作和工资的同时宣布暂时停业，我们将密切关注这一情况。”
+她就是说你们能够在24小时之内
+Dijo que ustedes pueden lograr dentro de 24 horas
 
-出走的企业包括麦当劳（MCD）、可口可乐（COKE）和苹果（AAPL）等标志性消费和科技品牌，以及英国石油（BP）和壳牌（RDSA）等知名大石油集团。周四，高盛(Goldman Sachs, GS)加入了他们的行列，这是自战争开始以来第一家表示完全停止在该国活动的大银行。其他银行可能也会跟进，留下数十亿的未偿债务。
+能够平安, 成功地把这些孩子带到安全的地带
+De poder llevar a estos niños de manera segura y exitosa a un lugar seguro
 
-据国家通讯社塔斯社后来援引俄罗斯报纸《Izvestiya》的一篇报道，俄罗斯消费者权益组织已经拟定了一份决定离开并可能被国有化的公司名单。
+她就觉得这个是非常非常难以用语言来表达
+Ella siente que ya con esto es muy difícil de expresarse con palabras
 
-《Izvestiya》报道，这份文件被送到了俄罗斯政府和总检察长办公室，其中包括59家公司，包括大众汽车（VLKAF）、苹果、宜家、微软（MSFT）、IBM（IBM）、壳牌、麦当劳、保时捷、丰田（TM）、H&M（HNNMY），并且可以更新更多品牌。
+因为这不是一件很容易做的事情
+Porque no es algo fácil
 
-俄罗斯政府周四早些时候发布了一份清单，列出了以前进口俄罗斯的商品和设备，公司将被禁止转移出国。
+她就说从小孩子过境
+Desde que los niños crucen a la frontera
 
-根据政府网站上发表的声明，该清单包括200多种物品，包括“技术、电信、医疗设备、车辆、农业机械、电气设备”，以及“铁路车辆和机车、集装箱、涡轮机、金属和石材加工机器、显示器、投影仪、控制台和面板”。
+从这个乌克兰到波兰
+Desde Ucrania hasta Polonia
 
-这些限制将继续有效，直到2022年底。
+然后又要去西班牙
+Luego a España
 
-***文章观点仅代表作者个人，与Gnews平台无关。***
+这整个paper work
+Todo este papeleo
 
-**文章来源**：[https://www.cnn.com/2022/03/10/business/russia-nationalization-western-companies/index.html?utm\_content=2022-03-10T22%3A00%3A17&utm\_source=twCNN&utm\_term=link&utm\_medium=social](https://www.cnn.com/2022/03/10/business/russia-nationalization-western-companies/index.html?utm_content=2022-03-10T22%3A00%3A17&amp;utm_source=twCNN&amp;utm_term=link&amp;utm_medium=social)
+所有的这个法律的手续, 公文非常非常的多
+Todos los trámites legales y documentos oficiales son muchísimos
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 轰炸机
-评论：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 – 傻小子
-发布：洛杉矶盘古农场 —彩虹 Rainbow
+然后具体的每一步
+Y cada paso específico
+
+因为他们是小孩, 不是说像成人一样
+Porque ellos son niños, no son como los adultos
+
+他们坐bus, 坐30多个钟头又坐20多个钟头
+Ellos montan al autobús, pasan sentados más de 30 horas y luego 20 horas más
+
+然后中间每一个过程给他们提供安全的食宿啊
+Y en medio de cada paso, la comida y el hospedaje seguro que les proporciona
+
+然后还要给小孩子一种心理上的安慰
+Luego hay que darle a los niños una especie de consuelo psicológico
+
+这都是需要很多的努力的
+Todo esto se necesita de muchísimo esfuerzos
+
+所以她觉得如果没有法治基金和新中国联邦这些人的帮助的话
+Por eso, ella piensa que sin la ayuda de la Fundación del Estado de Derecho y las personas del Nuevo Estado Federal de China
+
+日期：03/10/2022
+原视频标题：帮助儿童逃离乌克兰
+Ayudar a los niños escaparse de Ucrania
+
+原视频网址：[https://twitter.com/caogenxiaogex/status](https://twitter.com/caogenxiaogex/status)
+
+原视频日期：03/07/2022
+原视频网址：https://twitter.com/caogenxiaogex/status/1500857488878407681?s=24
+任务编号：KC474（3951）
+视频时间段：0:00-02:20
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

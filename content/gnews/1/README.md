@@ -2,29 +2,25 @@
 ---
 
 
-## 特蕾西·霍格博士的研究表明疫苗对年轻人的风险超过益处
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2153944/)
+## 俄乌战争简讯 俄军死亡人数远超乌军
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2154002/)
 
-##### 作者：加拿大温哥华扬帆农场 – 视频组
+翻译：公平
 
-我刚刚发表了一项关于这个主题的研究，研究青少年接种疫苗的风险收益分析，你知道，我们真的应该从一开始就这样做。 你知道，通过一项大规模的研究，大多数儿童的疾病总体上非常轻微，我们需要确保为他们接种疫苗的好处大于这样做的危害。 而且，您知道，现在这一点尤其重要，因为我们知道疫苗对防止病毒传播的有效性非常小，而且转瞬即逝。 因此，为了社会利益而为儿童接种疫苗的论点不再像过去那样。 然后我们需要查看已经被感染的儿童，根据疾病预防控制中心的数据，我们知道至少有 58% 的儿童，现在应该更多了，现在肯定更多已经被感染了，尤其是对于健康的儿童。 除巳被病毒感染外我们不知道他们是否从接种疫苗中受益。 对于成年人来说，这实际上是正确的，纽约和加利福尼亚州的疾病预防控制中心的数据已经证明了这一点。
+编辑与校对：冰糖葫芦喵
 
-因此，当我们不知道是否有益处时，我们需要确保我们不会通过让儿童受益或为儿童接种疫苗而造成整体伤害，并且我们有这个已知的安全信号，我们在论文中对其进行了分析，即心肌炎​​。 男孩子尤其比女孩多，它存在于女孩和年轻男性中。 因此，即使对于以前健康、以前没有感染过的男孩，我们也没有发现有好处。 给他们第二剂实际上存在总体风险。 因此，这些是我们需要以严格的方式进行的分析类型。 直到我们知道这个问题的答案，直到我们确定我们总体上没有弊大于利。 我们需要能够让父母和孩子自行选择是否应该接种疫苗。
+据BBC新闻3月12日报道，**乌克兰总统泽伦斯基在今天的基辅新闻发布会表示，大约有1600名乌克兰军人丧生。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phpVPHNxI.jpg)
+据报道，自俄罗斯入侵乌克兰17天以来，俄罗斯军队的死亡人数远远超过乌克兰。
 
-素材：文倩
-听写：CTQ
-翻译：文𤦍(Manpui)
-发布/上传：文永
+**西方消息人士周五估计，在俄乌战争期间，俄罗斯军队死亡人数约有6000名。**
 
-* * *
+新闻来源链接：
 
-更多加拿大温哥华杨帆农场的频道，请关注：
+[https://www.bbc.com/news/live/world-europe-60717902?ns\_mchannel=social&ns\_source=twitter&ns\_campaign=bbc\_live&ns\_linkname=622caef30ce87e491a0ef37a%26Around%201%2C300%20Ukrainian%20troops%20killed%20so%20far%20-%20Zelensky%262022-03-12T14%3A34%3A52.143Z&ns\_fee=0&pinned\_post\_locator=urn:asset:ce861ba2-4d36-474d-aea4-b0e4f6a177b8&pinned\_post\_asset\_id=622caef30ce87e491a0ef37a&pinned\_post\_type=share](https://www.bbc.com/news/live/world-europe-60717902?ns_mchannel=social&amp;ns_source=twitter&amp;ns_campaign=bbc_live&amp;ns_linkname=622caef30ce87e491a0ef37a%26Around%201%2C300%20Ukrainian%20troops%20killed%20so%20far%20-%20Zelensky%262022-03-12T14%3A34%3A52.143Z&amp;ns_fee=0&amp;pinned_post_locator=urn:asset:ce861ba2-4d36-474d-aea4-b0e4f6a177b8&amp;pinned_post_asset_id=622caef30ce87e491a0ef37a&amp;pinned_post_type=share)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
