@@ -2,45 +2,47 @@
 ---
 
 
-## 中共在中东局部会有何种动作
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2155906/)
+## 俄罗斯军队在乌克兰东部推进，在西部袭击军事基地
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2155963/)
 
-撰稿：两万五，爆大料
-![](https://lh3.googleusercontent.com/YJjSyEb2-3XDx2PQ6XnSlFwyMHUxYffs5qHAh_0iRhvYF2lLiZZgkQ82zD-Ae3h6ylPEx1sau9Aa9DiWWbXwZCvh1yhfV_QCz3YyQQvfkQK6cnQEaOKV8TMVKSwhraWeGg6BMigF)
-（图片来自网络）
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-**2022年3月13日，七哥在盖特中透露中共会在中东局部会有一系列小动作，本文通过网页收集了一下目前中东的有关消息，下面是一则邪恶轴心国之一伊朗的消息：“伊朗导弹攻击伊拉克库尔德斯坦地区首府埃尔比勒，击中了美国领馆”，见图1。中共媒体发布消息，指出“连续传出坏消息，伊朗打响复仇第一枪！多枚导弹深夜发射”，见图2。伊朗为何在俄罗斯进攻乌克兰的情况下，在中东发起局部战火，本文进行分析。**
-![](https://lh4.googleusercontent.com/mubgVVt0nThxqhPHf5Zv4S6lHUwc-9U8lsUNHCXKnYjm1FO8ixUjOFK8J67dxLb_use-SHDx2B1ie-ZAn1ILyoUgNu7LphzaDsc4dui-X-6-BoRseLlIZDJSUOc5xZ5OVeWtgtjT)
-图1视频拍摄
-![](https://lh3.googleusercontent.com/xcT8jeGWOPeK666JdHxfIe76FQ0g3ujEr6Dc6lYBNYcC7ZU4OY7kz06FiGIxHeZ5y7FXpAenq420DT8Fc-KoqWmbwFugU-R8bTkg3Tmp90qFSYeVqpNJdZmnDwwajxzZTdn2UutY)
-图2视频拍摄
-
-- 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/ZL5JRDU2O5OKBLHPLSPL37MZ5E.jpg)
 
 
-外界解读本次伊朗发动导弹攻击的原因是与伊朗核专家法赫里扎德和伊朗伊斯兰革命卫队高级将领沙赫丹相继遭遇以色列暗杀有关。伊朗方面解释，袭击的目标是摩萨德在伊拉克的设施。摩萨德为以色列情报和特殊使命局，与[美国中央情报局](https://baike.baidu.com/item/%E7%BE%8E%E5%9B%BD%E4%B8%AD%E5%A4%AE%E6%83%85%E6%8A%A5%E5%B1%80/296816)、[克格勃](https://baike.baidu.com/item/%E5%85%8B%E6%A0%BC%E5%8B%83/124029)和[英国军情六处](https://baike.baidu.com/item/%E8%8B%B1%E5%9B%BD%E5%86%9B%E6%83%85%E5%85%AD%E5%A4%84/7511811)，并称为“世界四大[情报机构](https://baike.baidu.com/item/%E6%83%85%E6%8A%A5%E6%9C%BA%E6%9E%84/84987)”。
+图片来源：路透社
 
-本文认为伊朗借与“地缘宿敌”以色列的恩怨发动战火，目的是挑起中东的内乱，从而配合邪恶轴心国俄罗斯、中共让全球石油能源价格高涨。当石油价格高涨时，中共认为美国民众会因为高油价而出现内部动乱，中共可以高油价威胁西方民主社会，从而逼迫美国及欧盟与中共私下进行交易，筹码是台湾和乌克兰。
+乌克兰官员说，俄罗斯军队周日对波兰边境附近的一个大型乌克兰军事设施发动了导弹袭击，这似乎是战争中最西端的袭击。
 
-综上，本次中东战争的大幕才刚刚开始，中共的邪恶目的及计划会如何发展，让我们拭目以待七哥的下一次爆料。
+利沃夫地区军事管理局在一份声明中说，“占领者对位于亚沃里夫的国际维和与安全中心发动了空袭”。 “根据初步数据，他们发射了八枚导弹。”
 
-参考消息：
+路透社无法立即核实该报道，俄罗斯也未立即发表评论。
+
+据乌克兰国际文传电讯社报道，乌克兰武装部队陆军学院发言人安东·米罗诺维奇说，初步报告显示“没有死亡，但有关伤员的信息正在澄清中”。
+
+袭击后，路透社看到 19 辆拉响警报器的救护车从雅罗维夫工厂的方向驶来。
+
+这个 360 平方公里（140 平方英里）的设施距离波兰边境不到 25 公里（15 英里），是乌克兰最大的设施之一，也是该国西部最大的设施之一。
+
+在入侵之前，乌克兰与北约国家进行了大部分演习。最后一次大型演习是在 9 月。
+
+乌克兰西部另一个城市伊万诺-弗兰科夫斯克的市长表示，俄罗斯军队也继续袭击其机场，初步没有人员伤亡报告。
+
+英国国防部周日表示，在乌克兰东部，当乌克兰军队从北部的哈尔科夫和南部的马里乌波尔推进时，俄罗斯军队正试图包围他们。
+
+该部在推特上发布的情报更新中说：“从克里米亚推进的俄罗斯军队正试图绕过 Mykolaiv，因为他们希望向西驶向敖德萨。”
+
+星期天早上，空袭警报再次唤醒了基辅的居民，几个小时前，乌克兰总统泽连斯基警告俄罗斯军队，如果他们试图占领首都，他们将面临一场生死攸关的战斗。
+
+“如果他们决定使用地毯式炸弹并简单地抹去这个地区的历史……并摧毁我们所有人，那么他们将进入基辅。如果这是他们的目标，让他们进来，但他们将不得不在这片土地上生活 ”泽连斯基周六说。
+
+俄罗斯的炮击已将数千人困在被围困的城市中，并使 250 万乌克兰人逃往邻国。
+
+链接：[https://www.reuters.com/world/europe/ukraines-zelenskiy-warns-desolation-if-russia-tries-take-kyiv-2022-03-13/](https://www.reuters.com/world/europe/ukraines-zelenskiy-warns-desolation-if-russia-tries-take-kyiv-2022-03-13/)
 
 
 
-> 突发 | 刚刚伊朗发射多轮导弹，袭击了美国伊拉克埃尔比勒领事馆，造成重大伤亡，具体数字还未见报。根据英文推上几个记者观点，这是伊朗对普京的策应行动，而且他们还透露，拜登不会对伊朗此次袭击进行报复。
-> 接下来形势可能远比我们想象要复杂危险，想近期出国显然不太合适…[pic.twitter.com/mfrhVlZ2UN](https://t.co/mfrhVlZ2UN) [https://t.co/hXrSqPQX8O](https://t.co/hXrSqPQX8O)
-> — 昆侖 (@Kunluntalk) [March 12, 2022](https://twitter.com/Kunluntalk/status/1502789086326665217?ref_src=twsrc%5Etfw)
-
-
-
-[https://www.163.com/dy/article/H1QGC4B2054452QT.html](https://www.163.com/dy/article/H1QGC4B2054452QT.html)
-
-*审核：文筝*
-
-*发布：yin*
-
-![](https://lh6.googleusercontent.com/w8LMlCAeYCCPuKxveGdvcyeqg1Dd6HHwfVuUxJ34hpaMbTL0LD8zVPo5ACa3FuktSvFOIcmRQ-dNekv9ZFiBBUkbYOsSDApxh1ol6EeU7ac8c05cmsznH-u-3PJcLeMP0sErzQ3W)
+编辑发表： Shuizhuyu
 
  
 

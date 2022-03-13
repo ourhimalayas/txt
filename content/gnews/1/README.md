@@ -2,30 +2,40 @@
 ---
 
 
-## 数千俄罗斯游客被困泰国
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2155925/)
+## 墙内网友谈“奴性”
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2155986/)
 
-撰稿：红杉
-![](https://assets.gnews.org/wp-content/uploads/2022/03/131-2.png)图片来自网络
-泰国旅游局局长Yuthasak Supasorn在接受美联社采访时说，因为回国航班被取消以及金融制裁而不能支付账单，约有6500名俄罗斯游客滞留在普吉岛、素叻他尼、甲米和芭堤雅这四个热门的海滨度假胜地。
+撰稿：菜园子112～尕虎
+![](https://assets.gnews.org/wp-content/uploads/2022/03/132.jpg)图片制作：澳喜农场©森森
+这个世界上有一个奇妙的群体，这个群体的特征是：庙堂之上都是骗子，庙堂之下都是傻子。
 
-往返俄罗斯的直航飞机几乎全部暂停，但可以通过中东的航空公司进行中转。Yuthasak补充说正在努力进行协调。
+具体表现为：一小撮骗子忽悠着十几亿傻子。骗子吃喝嫖赌，把家眷，小三，私生子移民到万恶的西方国家，把财产转移到西方国家。然后煽动傻子说：西方国家亡我之心不死。
 
-由于不能使用Visa和Mastercard信用卡，一些人无法支付账单。有的酒店提供折扣进行帮助。同时泰国政府已免费提供30天的签证延期，并为被迫长期逗留的人寻找低成本的替代住宿。
+傻瓜们每日热血沸腾，反日，反美，反澳，反英，把世界上所有的文明国家反了好几遍了！
 
-据泰国当地媒体Nation Thailand 3月10日报道，泰国银行 (BOT) 和普吉岛旅游协会 (PTA) 一直在讨论并计划推出替代支付方式，包括为俄罗斯游客提供加密货币支付服务。目前，一些旅游公司使用中国支付平台银联为在该国的俄罗斯人提供另一种支付方式。
+这些傻子们在粮食里面用放大镜去找老鼠屎，从而证明再好的粮食里也有老鼠屎，然后呢，在一堆大便里去寻找没有被消化的米粒，从而证明大便屎也是有米粒的，不能全盘否定大便。
 
-根据公共卫生部的数据，俄罗斯游客是2月份入境人数最多的群体，占总数 203970人的8.6%。自从俄罗斯入侵乌克兰之后，游客人数急剧下降。由于油价上涨和通货膨胀对全球旅游的连锁反应，泰国今年可能降低其游客人数和收入目标。
+在这些傻瓜的眼里，官府腐败，鱼肉百姓，不能批判，不能揭露，批判揭露就是负能量，就是给境外势力递刀子。
 
-同时，菲律宾、老挝、柬埔寨、印度尼西亚和越南等东南亚国家准备迎接符合条件的游客，旨在重振因两年边境关闭和病毒限制而遭受重创的旅游业。由于庞大的中国旅行团不能出境，人们一直寄希望于俄罗斯市场来填补空位，但俄乌战争给这些希望浇了冷水。
+对铁链女，黑社会势力现象，官府欺压百姓，社会公平正义等等视而不见，这就是厉害国的正能量！
+
+这些人不仅蠢而且坏。
+
+记住：做奴隶在墙内是社会的常态，因为上面有奴隶主，不论你是否承认，你就是奴隶，所有人都是……
+
+但是，做奴才却一种心态：身为奴隶，却一心替奴隶主思考，每天都是想着：朝廷不容易，皇上不容易……
+
+近乎所有现代科技诸如汽车、火车、飞机、手机、电脑和互联网，都是欧美国家发明的。这些智慧的结晶落到奴才、骗子手中，却恐怕会成为灾祸……
+
+女人裹小脚，男人做太监，是对人最大的侮辱和摧残。种种反人类的野蛮行为，竟然在中共国存在了数千年。没见过哪个文人墨客、圣人明君、民族英雄对此质疑和批判，更谈不上呼吁废除。
+
+这就是中共国没有创新及纠错的能力，愚昧并落后的原因：我们是一个精神、文化被阉割的族群！中共国人民遭受了太多不应该遭受的深重苦难了，几十年来共产党的反文明的荒诞逻辑，现在又成了一场又一场灾难的源泉……
+
+注：文章部分观点来源于墙内网友
 
 *审核：**Gradient Boost*
 
-*发稿：**mgjxs*
-
-资料来源：
-
-[https://abcnews.go.com/Travel/wireStory/cashless-flightless-russian-tourists-stuck-thailand-83405843https://timesofindia.indiatimes.com/business/cryptocurrency/blockchain/authorities-in-thailand-consider-accepting-cryptocurrency-from-russian-visitors/articleshow/90150731.cms](https://abcnews.go.com/Travel/wireStory/cashless-flightless-russian-tourists-stuck-thailand-83405843https://timesofindia.indiatimes.com/business/cryptocurrency/blockchain/authorities-in-thailand-consider-accepting-cryptocurrency-from-russian-visitors/articleshow/90150731.cms)
+*发稿：mgjxs*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 

@@ -2,24 +2,24 @@
 ---
 
 
-## 俄军杀进小镇，双方激烈巷战！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2155881/)
+## 爆料百科 – “小粉红”
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2155938/)
 
-俄乌战火烧不停，进行谈判的同时俄军攻势未减，马不停蹄朝首都基辅进攻，根据法新社等外媒报导，双方军队在基辅郊区的伊尔平爆发激烈巷战，而伊尔平位于基辅边境地区仅约5公里。
+作者：美国纽约香草山农场-爆料百科
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+类似于自干五。是被中共成功洗脑的人，他们心里充满了“爹亲娘亲不如党亲”，“没有共产党就没有新中国“等中共宣传的洗脑口号，他们盲目的守护中共独裁政权，坚信中共是宇宙唯一真理。不接受任何对中共的批评，批评中共就像骂他亲爹，挖他家祖坟一样，而实际上他并没有从中共的独裁统治中获得任何的好处，他只是中共统治的14亿奴隶中普通的一员，也受着中共的压榨和剥削，但他就是盲目的维护中共。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3564550-PH.jpg)图片来源：美联社
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
 
-伊尔平过去一周是俄罗斯和乌克兰军队的重要战场，其中一条人道主义走廊建立在此处，数千人已经被疏散，但仍有许多人被困在伊尔平内，且这是俄军挺进基辅前的最后一个城镇。
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1084278)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
