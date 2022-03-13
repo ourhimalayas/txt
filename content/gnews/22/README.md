@@ -2,20 +2,12 @@
 ---
 
 
-## 有声|郭先生再提新中国联邦人的未来
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2157929/)
+## 有声|NFSC新闻、G|TV新闻访谈简报|2022年3月12日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2158062/)
 
 配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-在3月9日的大直播中，郭文贵先生向战友们透露了接下来即将发生的三件重大利好事件。
-
-郭先生提到，在战友的帮衬下，喜联储和喜币近期将推出接连推陈出新。此外，新媒体平台将为信息世界带来崭新的格局。
-
-再者，有关中共病毒以及疫苗的部分，郭先生表示，大型制药公司将就疫苗问题遭到全世界的围捕和人类大审判。在此情况下，作为病毒始作俑者的中共将面临远甚于俄罗斯的经济制裁和流动制裁。
-
-郭先生也再次感叹道，作为无苗、有币、有未来的新中国联邦人，战友们今后将受到来自全世界各个民族的尊敬和信赖。
-
-文字版原文：[郭先生再提新中国联邦人的未来](https://gnews.org/zh-hans/2149149/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/NFSC.jpg)
+文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年3月12日早](https://gnews.org/zh-hans/2152747/)
 
 音频处理：Fei797
 发稿：Fei797

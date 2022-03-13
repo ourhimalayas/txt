@@ -2,25 +2,28 @@
 ---
 
 
-## 有声|NFSC新闻、G|TV新闻访谈简报|2022年3月12日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2158062/)
+## 套在脖子上的枷锁已斑驳，同胞何时醒来
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2158143/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/NFSC.jpg)
-文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年3月12日早](https://gnews.org/zh-hans/2152747/)
+撰稿：东京樱花团/神的带领
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-73.png)
+[图片来源](https://m.nbd.com.cn/articles/2022-03-11/2161942.html)
 
-音频处理：Fei797
-发稿：Fei797
+续吉林市被封后吉林省省会长春市也被封。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+在被封之前我就告诉在那里的网友朋友，多储备些吃的、喝的、常用药和紧急用现金，别打疫苗，要是打了吃青蒿素保健品，买不到我给邮寄，备好伊维菌素等。他们都嫌我啰嗦，而且根本不相信我说的，居然当中的医生朋友还对我嗤之以鼻，他们都打了三、四针疫苗了。这次突然封城让他们是措手不及。有的还在上班中，有的在外出，有的还在家玩耍就被叫去做核酸，而且所有的交通工具全停了。有的朋友幸运坐朋友的车回家，有的走了一夜才到家。那个医生朋友就惨了，他家离医院很远，而且每天当班，这下根本不是走的问题了，只能被迫住在办公室里了。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+那天他们折腾得精疲力尽，回家要吃没吃要喝没喝。听说一周只允许一家出去一个人，而且一周两次，一次两个小时。家附近没有超市估计只能喝西北风了，而且宣布封城那一刻起超市的货架上都是空的。接着第二天还要做核酸，而且核酸不是一个人一做，而是10个人一组，10个人彼此不认识，若是查出有问题，这10个人将全被拉走强制隔离，而且家属也要隔离。
+
+当我关心他们表示同情，说共产党政府在剥夺你们的权利时，他们居然美滋滋的说：看我们国家多好呀，及时封城，及时做核酸，而且长春市还建了方舱医院，不像你们国外，该干啥干啥，一感染就上万人，我们在家响应党的号召，马上疫情就得到控制，几天就过去了。
+
+那一刻我好无语，被关在家里，被关在方舱医院等死和那个铁链女有什么区别，可惜他们被那无形的枷锁锁住还浑然不知，还幸灾乐祸，乐在其中。我的心在呐喊，同胞们快快醒来吧，不砸碎枷锁你永远不知道自由，权利是什么。
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

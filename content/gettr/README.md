@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 5:18 PM (UTC)`
+
+小小尼莫第二期-反战主题音乐会
+![img](https://media.gettr.com/group48/origin/2022/03/13/17/94fee881-965a-502e-1959-73e591766cc7/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/13/2022 3:58 PM (UTC)`
 
 【Ukraine Rescue】03/11/2022 A volunteer from New Federal State of China and ROLF interviews Kosovo associates from an America-based NGO who are surprised at our capabilities,and are also surprised to see the New China face on this occasion, and they are willing to cooperate with us.<br/>【乌克兰救援】03/11/2022 新中国联邦和法治基金的志愿者采访一家美国非政府组织的科索沃志愿者，他们对新中国联邦和法治基金的实力感到很惊讶，同时他们也很惊讶在这种场合看到新中国人面孔，他们很想和我们合作。<br/>
@@ -149,13 +156,6 @@ On the front line of relief in Ukraine, there were many women and children in th
 
 2022.03.12 晚《新中国联邦新闻访谈》乌克兰最新救援信息分享；新中国联邦边境救人，中共用旧图称救援乌克兰；香港疫情肆虐，新病毒？；关于辉瑞中共疫苗副反应的质疑
 ![img](https://media.gettr.com/group31/origin/2022/03/13/02/b0593707-ceea-56bc-1df3-81d51fbb7688/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/13/2022 1:28 AM (UTC)`
-
-2022.03.12 晚 《新中国联邦新闻》新中国联邦人展示国际化新形象；波兰租车公司老板加入新中国联邦救援团队
-![img](https://media.gettr.com/group12/origin/2022/03/13/01/8d17f55a-5c9f-d8dd-025c-a79511fdeb87/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

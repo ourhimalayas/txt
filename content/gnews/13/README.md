@@ -2,18 +2,31 @@
 ---
 
 
-## 文贵大直播 3/13 围魏救赵 中东即将起硝烟
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2158068/)
+## 民主党众议员呼吁制裁中共国并切断俄石油供应
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2158156/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/SharedScreenshot.jpg)图片来源 GETTR
-俄乌战争已经宣告了普京时代终结，西方系列制裁特别是SWIFT让整个俄罗斯接近被逐出球籍，很多关注灭共的人都关注中共如遭此制裁，将会出现什么局面。但爆料革命发起人郭文贵先生却在3月13日文贵大直播中爆出：中俄起死回生的邪招——围魏救赵。
+采编撰稿：加拿大温哥华扬帆农场 – 重生之鹰
 
-中东火药桶即将被中俄点燃。如果欧美不能认真严肃地研判反应，代价将是惨重的。中俄就是要利用能源危机彻底打垮欧美经济，瓦解欧美同盟，甚至影响世界和各国政治格局。如果任其所为，俄国会翻盘，中共必然会更加疯狂地发动台海战争。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
 
-郭先生告诉世界，中俄不过是在苟延残喘，垂死挣扎，专权独裁的结局都会比齐奥塞斯库还要惨。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-2-3.jpg)图片来源：jns.org
+在周六的MSNBC《亚历克斯·威特报道》节目中，众议员杰克.奥金克洛斯呼吁美国切断从俄罗斯进口石油这个他们迄今为止最重要的硬通货，对中共国实施二次制裁，施加外交压力以“进一步孤立俄罗斯”。
 
-【来源链接】https://gettr.com/streaming/pzrn4eb349
+奥金克洛斯说：“俄罗斯的入侵并不顺利，如果他们感到沮丧，按照俄罗斯军队传统，他们将更多地依靠炮兵，而不是步兵或训练有素的地面部队，他们将不分青红皂白地炮击平民区，从而导致大量伤亡。”
+
+奥金克洛斯建议美国需要立即做三件事：
+
+一、必须切断石油供应。它是目前俄罗斯经济最重要的硬通货和政府盈余来源。
+
+二、对中共国实施二级制裁，通过外交施压使中共国进一步孤立俄罗斯。
+
+三、与波兰、立陶宛和罗马尼亚合作，为乌克兰战斗机提供飞机，并补充东部北约盟国的飞机。
+
+简评：乌克兰的卫国战争已经演变为世界人民保护自由、民主，反对独裁的战争，国际社会必须坚定地全方位支持乌克兰的同时，加大对俄罗斯和其背后的黑手和支持者中共的制裁力度。才能尽快地结束战争，还乌克兰和世界人民和平的环境！
+
+原文链接：[https://www.breitbart.com/clips/2022/03/05/dem-rep-auchincloss-we-should-impose-secondary-sanctions-against-china-and-cut-off-russian-oil/](https://www.breitbart.com/clips/2022/03/05/dem-rep-auchincloss-we-should-impose-secondary-sanctions-against-china-and-cut-off-russian-oil/)
+
+编辑/发稿：云起时
 
  
 
