@@ -15,122 +15,122 @@
 
 ---
 
-### [3月13日文贵大直播要点（图片1-7）](/content/gnews/1/README.md)
- ` 波士顿五月花农场`
+### [美国支出法案生效：规定官方地图需使用不同颜色分别标注台湾和中共国](/content/gnews/1/README.md)
+ ` 日本東京方舟農場`
 
-### [容易陷入低频牢笼的言行和念头](/content/gnews/2/README.md)
+### [日本将取消俄罗斯贸易最惠国待遇](/content/gnews/2/README.md)
+ ` 日本東京方舟農場`
+
+### [香港新增确诊病例超3万例 死亡人数再创单日新高](/content/gnews/3/README.md)
+ ` 日本東京方舟農場`
+
+### [北约秘书长警告称俄罗斯可能启用化学武器](/content/gnews/4/README.md)
+ ` 日本東京方舟農場`
+
+### [容易陷入低频牢笼的言行和念头](/content/gnews/5/README.md)
  ` 正道人`
 
-### [沙利文称如果中国帮助俄罗斯逃避制裁将面临后果](/content/gnews/3/README.md)
+### [美国前总统奥巴马中共病毒检测呈阳性](/content/gnews/6/README.md)
+ ` 蓝莲花农场`
+
+### [【 G时新闻 】我们是消灭邪恶的中国共产党的新中国人](/content/gnews/7/README.md)
+ ` G-时新闻`
+
+### [美国前总统奥巴马 COVID-19 检测呈阳性](/content/gnews/8/README.md)
  ` Shuizhuyu`
 
-### [文•贵天成：文贵先生谈“孟建柱”（二十一）](/content/gnews/4/README.md)
+### [沙利文称如果中国帮助俄罗斯逃避制裁将面临后果](/content/gnews/9/README.md)
+ ` Shuizhuyu`
+
+### [爱画画的乌克兰小女孩](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [明道接受两个波兰独立制片人采访](/content/gnews/5/README.md)
+### [文•贵天成：文贵先生谈“孟建柱”（二十一）](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [明道接受两个波兰独立制片人采访](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [第一名美国记者在俄乌战争中被枪杀](/content/gnews/6/README.md)
- ` 蓝莲花农场`
-
-### [3/13/2022 文贵直播: 我们到了前线，成为消灭中国共产党的新中国人，成为互相尊重，文明，干净，诚实，团结的中国人，但也暴露了我们的很多问题，我们个人主义太强、自以为是、不尊重别人、不看别人优点、老提意见、行动力差](/content/gnews/7/README.md)
+### [3/13/2022 文贵直播: 我们到了前线，成为消灭中国共产党的新中国人，成为互相尊重，文明，干净，诚实，团结的中国人，但也暴露了我们的很多问题，我们个人主义太强、自以为是、不尊重别人、不看别人优点、老提意见、行动力差](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [3/13/2022 文贵直播：中共和普京合演“围魏救赵”：先由俄罗斯攻打乌克兰，然后在中东挑起事端，砸烂石油经济和美元，企图阻止美欧的经济金融制裁，让中共有机会打台湾，甚至放病毒，以期和美欧抗衡到底](/content/gnews/8/README.md)
+### [3/13/2022 文贵直播：中共和普京合演“围魏救赵”：先由俄罗斯攻打乌克兰，然后在中东挑起事端，砸烂石油经济和美元，企图阻止美欧的经济金融制裁，让中共有机会打台湾，甚至放病毒，以期和美欧抗衡到底](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [卢比奥：来自中国的威胁是俄罗斯的1000倍](/content/gnews/9/README.md)
+### [卢比奥：来自中国的威胁是俄罗斯的1000倍](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [吉林长春疫情大爆发 急建方舱医院](/content/gnews/10/README.md)
+### [吉林长春疫情大爆发 急建方舱医院](/content/gnews/16/README.md)
  ` 蓝莲花农场`
 
-### [2022/03/13 英喜时事速递](/content/gnews/11/README.md)
+### [2022/03/13 英喜时事速递](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|美国和北约紧急支援乌克兰防空导弹](/content/gnews/12/README.md)
+### [有声|美国和北约紧急支援乌克兰防空导弹](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [文贵爆料3.13：中共发起中东战争，“围魏救赵 ”意在攻台](/content/gnews/13/README.md)
+### [文贵爆料3.13：中共发起中东战争，“围魏救赵 ”意在攻台](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|五家中资公司进入退市清单引中概股暴跌](/content/gnews/14/README.md)
+### [有声|五家中资公司进入退市清单引中概股暴跌](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [SWIFT中断后俄罗斯银行的人民币存款猛增](/content/gnews/15/README.md)
+### [SWIFT中断后俄罗斯银行的人民币存款猛增](/content/gnews/21/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [有声|美国民调显示：民众认为中共对美国威胁远大于俄罗斯](/content/gnews/16/README.md)
+### [有声|美国民调显示：民众认为中共对美国威胁远大于俄罗斯](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [美参议员称若俄使用化学武器就该设立禁飞区](/content/gnews/17/README.md)
+### [美参议员称若俄使用化学武器就该设立禁飞区](/content/gnews/23/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [新中国联邦驻波兰梅迪卡的战地钢琴曲](/content/gnews/18/README.md)
+### [新中国联邦驻波兰梅迪卡的战地钢琴曲](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国警告如果中共助俄逃避制裁将面临严重后果](/content/gnews/19/README.md)
+### [美国警告如果中共助俄逃避制裁将面临严重后果](/content/gnews/25/README.md)
  ` 蓝莲花农场`
 
-### [香草山翻译部周刊|2022年3月13日第39期](/content/gnews/20/README.md)
- ` 纽约香草山MOS01`
-
-### [DC每日热点0313](/content/gnews/21/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [伊拉克北部库尔德族自治区遭遇导弹袭击 自治区官员如是表示](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共利用候鸟在全世界传播病毒并甩锅美国](/content/gnews/23/README.md)
+### [中共利用候鸟在全世界传播病毒并甩锅美国](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022年3月13日大直播速记精萃](/content/gnews/24/README.md)
+### [2022年3月13日大直播速记精萃](/content/gnews/27/README.md)
  ` 雅典娜GNotes`
 
-### [新闻述评：福布斯承认喜币是一场货币革命](/content/gnews/25/README.md)
+### [新闻述评：福布斯承认喜币是一场货币革命](/content/gnews/28/README.md)
  ` 开眼实验室`
 
-### [新中国联邦救援信息](/content/gnews/26/README.md)
+### [新中国联邦救援信息](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [新闻背景：梅迪卡——乌克兰难民救援地](/content/gnews/27/README.md)
+### [新闻背景：梅迪卡——乌克兰难民救援地](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [莫德纳凭借新冠疫苗去年狂赚122亿 CEO获一揽子奖励](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [高盛：俄乌战争令美国经济衰退风险增加35%](/content/gnews/29/README.md)
+### [高盛：俄乌战争令美国经济衰退风险增加35%](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美财政部强调对俄制裁扩大到加密货币](/content/gnews/30/README.md)
+### [美财政部强调对俄制裁扩大到加密货币](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [3/13/2022国内经济财经周报：2月金融数据不及预期，央行上缴万亿利润，中概股再度暴跌，或面临全面退市](/content/gnews/31/README.md)
+### [3/13/2022国内经济财经周报：2月金融数据不及预期，央行上缴万亿利润，中概股再度暴跌，或面临全面退市](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [新中国联邦不忘记！不抛弃！](/content/gnews/32/README.md)
+### [新中国联邦不忘记！不抛弃！](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德意志银行遭抨击后改变态度 将关闭在俄业务](/content/gnews/33/README.md)
+### [德意志银行遭抨击后改变态度 将关闭在俄业务](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [联合国安理会：不知道乌克兰生物武器计划](/content/gnews/34/README.md)
+### [联合国安理会：不知道乌克兰生物武器计划](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [英超禁止阿布拉莫维奇运营切尔西，球队急需出售](/content/gnews/35/README.md)
+### [英超禁止阿布拉莫维奇运营切尔西，球队急需出售](/content/gnews/37/README.md)
  ` 澳喜特战旅Gnews`
 
-### [新中国联邦乌克兰救援行动第十六天，中共继续谎称撤侨](/content/gnews/36/README.md)
+### [新中国联邦乌克兰救援行动第十六天，中共继续谎称撤侨](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰人道大救援，造就了新中国联邦的第一与唯一](/content/gnews/37/README.md)
+### [乌克兰人道大救援，造就了新中国联邦的第一与唯一](/content/gnews/39/README.md)
  ` 波士顿五月花农场`
-
-### [乌克兰教堂神父喊台湾万岁，感谢善款物资鼓舞人心！](/content/gnews/38/README.md)
- ` 蓝莲花农场`
-
-### [志愿者向罗马媒体介绍新中国联邦和法治基金的救援行动](/content/gnews/39/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [台湾｜美国2022会计年度联邦政府拨款法 三项友台条款](/content/gnews/40/README.md)
  ` 關注組`

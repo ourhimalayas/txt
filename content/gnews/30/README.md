@@ -2,53 +2,37 @@
 ---
 
 
-## 美财政部强调对俄制裁扩大到加密货币
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2158244/)
+## 新闻背景：梅迪卡——乌克兰难民救援地
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2158433/)
 
-编译：Jenny Ball
+作者：纽约香草山农场教育部-马克文、朱丽叶
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+Medyka 梅迪卡是波兰东南部喀尔巴阡省普热梅希尔县的一个村庄，它是Gmina Medyka市的所在地，2006年，人口约为2,800人，与乌克兰接壤。梅迪卡是波兰和乌克兰之间连接两国的主要公路过境点之一， 2022 年俄罗斯入侵乌克兰，梅迪卡成为一个可以接受越过边境的乌克兰难民的地点。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-13-下午1.46.40.png)
+根据历史资料，在二战期间，梅迪卡曾经被苏联和德国占领过，最终在1948 年在修改边界时归还给波兰。几十年来，波兰东南部小镇梅迪卡的市场一直是销售香烟、伏特加、玩具等商品的边境贸易集散地，十分受人青睐，广场上排列着小商店和折扣店。来自乌克兰的顾客喜欢越过边境，经营批发贸易。他们将货品带回乌克兰，在附近的西部市场上转售。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1430-edited.png)reuters.com
+自乌克兰战争爆发后，数以万计逃离战争的乌克兰人经过这里，边境口岸完全为难民开放。逃难的人群几乎都是妇女和儿童，为了到达梅迪卡边境，他们必须跋涉几百公里。
 
-在2022年3月4日拍摄的这张插图中，Coinbase 徽标前面显示了加密货币的表示。REUTERS/Dado Ruvic/Illustration/
+新中国联邦和法制基金第一时间组建国际大救援团队奔赴战区，租用大巴车救出几百个儿童、老师、妇女。随后，救援团队进一步扩大救援区域，在梅迪卡建立基地，在没有任何红十字会、其它国家人道救援组织的协助下，搭建起巨大的帐篷，在帐篷里提供取暖设备，为寒冷天气下，长途跋涉数百公里的难民提供临时安身之所。
 
-华盛顿，3 月 11 日（路透社）——美国财政部外国资产控制办公室 (OFAC) 周五发布了新指南，阐明美国公民和数字资产公司，必须遵守对俄罗斯的制裁，即使在促进加密货币交易时也是如此。
+在梅迪卡这个波兰与乌克兰的边境口岸小镇，突然出现了来自世界各地由华人组成的国际救援队，他们会说多种欧洲语言，并提供最好的设施去帮助乌克兰难民。新中国联邦、法制基金在梅迪卡的救援行动立即成了世界各国媒体的焦点。
 
-OFAC 在指南中表示，美国人民以及从事加密货币交易的企业，“必须警惕规避OFAC法规的企图”，并应“采取基于风险的措施，确保他们不参与被禁止的交易。”
+参考链接：[Medyka（维基百科）](https://en.wikipedia.org/wiki/Medyka)
 
-这一警告发布之际，加密货币行业的许多人正在回应一些立法者的担忧，即数字资产可能被用来规避西方在俄罗斯入侵乌克兰后对俄罗斯实施的制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-拜登政府官员曾表示，他们不相信俄罗斯能够使用加密货币完全逃避制裁，但仍警告公司要保持警惕。
+编辑：Jack Li文阳
+总编：Zion文恩
+审核：Jack Li文阳
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-在周一发布的指导中，金融犯罪执法网路（FinCEN）表示，加密货币交易所必须报告任何可疑活动，但周五的通知进一步明确指出，交易所被禁止从事或促进非法交易。
-
-正如一些乌克兰官员所呼吁的那样，包括币库(Coinbase)和币安(Binance)在内的主要加密货币交易所，没有响应阻止俄罗斯用户的呼吁。
-
-西方对俄罗斯实施了前所未有的严厉制裁，原因是其对乌克兰的军事攻击是二战以来欧洲最大规模的军事攻击。企业的反应各不相同，一些公司采取法律要求的措施，而另一些则采取自愿措施。
-
-加密货币提供的匿名性引起了监管机构的担忧，即这种技术可能被用来破坏制裁。
-
-周二，德国表示扩大对莫斯科的制裁，应排除使用加密货币来规避这些措施。爱沙尼亚还呼吁限制加密货币，以填补制裁漏洞。
-
-周一，美国财政部表示，使用加密货币大规模规避制裁“不一定可行”，呼吁公司保持警惕。
-
-一揽子禁令？
-
-PayPal、Visa、万事达卡等传统支付公司已暂停在俄罗斯的服务。乌克兰副总理曾呼吁，他们和加密公司以及其他公司切断与俄罗斯的联系。
-
-然而，加密货币交易所并未默许全面禁止俄罗斯用户的呼吁，专家表示，这一决定削弱了孤立莫斯科的企图。
-
-评论：任何用来违法犯罪的货币都将被淘汰！
-
-素材链接：【reuters.com】[U.S. Treasury Department stresses that Russia sanctions extend to cryptocurrency](https://www.reuters.com/business/finance/us-treasury-department-stresses-that-russia-sanctions-extend-cryptocurrency-2022-03-11/?utm_source=newsletter&amp;utm_medium=email&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
-
-* * *
-
-审核：文乐
-校对：信心满满
-发布：花羽
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-8.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

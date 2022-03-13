@@ -2,43 +2,43 @@
 ---
 
 
-## 莫德纳凭借新冠疫苗去年狂赚122亿 CEO获一揽子奖励
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2158327/)
+## 新闻述评：福布斯承认喜币是一场货币革命
+` 开眼实验室` [轉載自GNews](https://gnews.org/zh-hans/2158458/)
 
-编译： Jenny Ball
+视频制作：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220314F1RacingCar.png)迈凯轮1989年MP4/5 F1汽车
+（图片源自本文链接）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1433-edited.png)thegatewaypundit.com
 
-流行病有两件事是肯定的——第一，有些人会因此死亡； 第二，有些人因此赚得盆满钵满。
+**喜马拉雅币拥有者使用喜支付以超过500万美元的价格成功购买极品迈凯轮F1赛车的交易被福克斯定义为一场数字货币的革命。喜币创建者MILES GUO先生表示， 它意味着喜币瞬间走向了数字货币的最顶端，这是一次永久性的认可，它被视为打开世界上最高端的数字货币之门。**
 
-在 2020 年初武汉实验室释放福奇资助的中共病毒后，总部位于美国的疫苗制造商莫德纳(Moderna Inc.)与辉瑞(Pfizer-BioNTech)一起成为最大的受益者之一。在过去两年中，莫德纳公司与大流行爆发前相比实现了不可想象的转变，2020 年损失高达 7.47 亿美元，而2021 年的收入超过 120亿 美元（$12B）。
+据《福布斯》美国（[Forbes](https://forbes.mc/)）4日最新消息，“由[Himalaya Exchange](https://himalaya.exchange/)开发并新推出的数字货币支付应用程序[Himalaya Pay](https://himalaya-exchange.zendesk.com/hc/zh-cn/categories/360003360498-Himalaya-Pay-%E5%8A%9F%E8%83%BD)，帮助一位买家以500多万美元的价格购买了埃尔顿·塞纳([Ayrton Senna](https://en.wikipedia.org/wiki/Ayrton_Senna)) 迈凯轮（[1989 MP4/5 F1](https://en.wikipedia.org/wiki/McLaren_MP4/5)）的赛车。这款标志性的汽车是通过稳定币喜玛拉雅元（HDO）会员间点对点转账的方式购买的。”
 
-最令人惊讶的是，莫德纳的全部收入，都归功于其提供的唯一商业化产品：实验性 mRNA Covid-19 疫苗。
+对于刚上线不久的Himalaya Pay支付系统，顺利完成这笔大额奢饰品交易的意义究竟有多大？喜马拉雅数字货币系统结构设计者郭文贵（MILES GUO ）先生评价说：“这是对所有喜币拥有者最好的奖励！这个象征性的意义太重要了，它瞬间从一个无名小辈的数字货币走向了数字货币的最顶端，这是一次永久性的认可，它被视为打开世界上最高端的数字货币之门。这笔交易的意义深远之处在于所有涉及到的车和购买者都是世界上最有信用和最具说服力的案例，这款车的拥有者是我心中的男神，男车神曾经被视为‘巴西永远活着的耶稣’。”
 
-由于疫苗的销售额预计将超过去年的数字，该公司已决定奖励其高管、首席执行官斯蒂芬尼·班塞尔（Stephanie Bancel），并为其提供巨额的“控制权变更”一揽子计划，如果该公司是出售或合并，他在此过程中失去工作的话。
+MILES GUO上述评价并不为过，对于一款于2021年年底在美国上市的新兴数字货币——喜币（Himalaya Coin）来说，它的成长速度就像《[车手/名人堂](https://www.formula1.com/en/drivers/hall-of-fame/Ayrton_Senna.html)》评价埃尔顿·塞纳那样，“一位超凡脱俗的超级巨星像彗星飞驰而过一样”。确实如此，Himalaya生态系统的发展比预期的更快。
 
-“一揽子计划”于 2021 年底获得了这家位于马萨诸塞州的疫苗制造商董事会的批准。它将支付给已经拥有超过 43 亿净资产的班塞尔总计 9.26 亿美元。总的来说，新的一揽子计划，将比他之前同意的 960 万美元的遣散费高出近 1,000%（975%）。
+喜币的迅猛成长用英国前赛车手[马丁布伦德尔](https://en.wikipedia.org/wiki/Martin_Brundle)评价天才车手埃尔顿·塞纳话比喻喜币一点都不为过。他说，“塞纳是个天才，他的能力高度到了几乎超出边缘的地步，这接近于神话。”这就是喜币，它的成长就是一个神话，且是触手可及的神话。
 
-自大流行开始以来，金色一揽子计划只是班塞尔的最新摇钱树。据 CNBC 报道，仅在 2021 年，班塞尔作为莫德纳的 CEO 就赚了超过 1820 万美元，他的薪水为 990,385 美元，股票价值为 1500 万美元，奖金为 150 万美元。
+福布斯这篇题为《[通过喜马拉雅交易所购买标志性的迈凯轮汽车提高了对加密货币的信任](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)》的文章很好地证明福布斯对财富嗅觉力的灵敏度。该文高度肯定了喜币的未来领军地位和价值，这一现实将继续扩展到我们的生活中。
 
-但是，不仅仅是他， 莫德纳的其他高管也在与班塞尔一起套现。
+如果说，《福布斯》的观点认为，这场革命始于“一群叛逆者”创想的加密货币，那么喜币就是踩在“一群叛逆者”梦想的肩膀上，在“被比特币巩固后”，它纵身一跃，成为数字货币市场中飞速发展的领军者。“尽管我们对它们的未来还缺乏理解能力，但事实证明，它们是一种方便和安全的交易方式。”这一笔大额交易的实现，使人们的观点和交换事物的方式正在改变，尽管会有不确定性的可能，但它已为市场打开了一个全新的维度。随着越来越多的机构接受它，这种稳定、完全、私密的货币支付方式正在成为市场争抢的“钻石”。
 
-2021 年，斯蒂芬·霍格总裁兑现了 1.659 亿股股票期权，此外，还有去年总计 780 万美元的薪水和奖金。
+随着俄乌战争带给世界极不确定的未来，喜币的价值得到凸显，它正在给人们提供安全的金融港湾的作用，同时给人们带来了意想不到的改变——人们对未来世界财富观和价值观的颠覆。正如《福布斯》援引《[财富商业观察](https://www.fortunebusinessinsights.com/industry-reports/cryptocurrency-market-100149)》所描述的那样，“2020年全球加密货币市场规模为8266亿美元，预计到2028年将以11.1%的复合年增长率增至约1. 9万亿美元。许多行业预计加密货币将成为未来货币的重要组成部分，并开始接受它们进行商业交易。”因此，这笔发生在奢侈品名车收藏市场领域的交易，注定成为一个历史性的事件。
 
-莫德纳的首席技术官胡安·安德烈斯（Juan Andres）也在大赚，他卖出了 1.943 亿美元的股票，并在 2021 年从该公司赚取了 660 万美元。
+尽管还有很多人不知道这个加密货币——喜币，但这一新的资产类别已发展成“任何机构投资者或政府都不能再忽视它”的地步。正如《福布斯》透露的那样， “这款支付应用的第二个版本正在开发中。通过它，用户将能够在全球范围内进行即时加密货币转账，安排自动支付，并使用所有类型的数字货币与独家零售商购物，且不产生任何中间费。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220314Ayrton-Senna.png)F1传奇赛车手埃尔顿-塞纳（Ayrton Senna）
+（图片源自本文链接）
+信息来源：
 
-总体而言，三位高管在过去一年中已经抛售了数亿股莫德纳股票，因为他们希望在危机爆发前利用这场危机。继去年夏天股价达到 497.49 美元的高点之后，它已经跌至目前每股 139.52 美元的水平，因此，时间对于他们的抛售至关重要。
+[**Purchase Of Iconic McLaren Vehicle Through Himalaya Exchange Raises Trust In Cryptocurrencies**](https://forbes.mc/article/purchase-of-iconic-mclaren-vehicle-through-himalaya-exchange-raises-trust-in)
 
-点评：这些吃人血馒头的贪婪药企一定会在他们制造的疫苗灾难中彻底崩塌，并被历史惩罚！
+[新闻述评：福布斯承认喜币是一场货币革命](https://gnews.org/zh-hans/2114804/)
 
-素材链接：【thegatewaypundit.com】[Moderna Approves $900 Million+ Golden Parachute for CEO After Company Went From Losing $747 Million In 2020 to Making $12.2 Billion in 2021 With Its Covid Jab](https://www.thegatewaypundit.com/2022/03/moderna-approves-900-million-golden-parachute-ceo-company-went-losing-747-million-2020-making-12-2-billion-2021-covid-jab/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
+撰稿：东京樱花团/捆绑CCP一千年
 
-* * *
+发布：东京樱花团/曲别针
 
-审核：文乐
-校对：信心满满
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-8.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

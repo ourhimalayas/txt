@@ -17,6 +17,34 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 11:12 PM (UTC)`
+
+2022.03.13 NFSC News  NFSC Presents A New Image for Global Chinese Throughout Their Ukraine Rescue； NFSC Using Luxury Tents As Rest Area For Ukraine Refugees
+![img](https://media.gettr.com/group11/origin/2022/03/13/20/21e7cb18-bb21-4604-32cc-df3d6cf7a531/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/13/2022 10:48 PM (UTC)`
+
+3/13/2022 Miles Guo: We must show to the world at the rescue site: 1) We are the Chinese people taking down the CCP; 2) the CCP is the root cause of all the wars and problems around the world; 3) taking down the CCP is the fundamental solution to all the wars and sufferings of humanity; and 4) we stand with the Ukrainian people.<br/><br/>3/13/2022 文贵直播：我们一定要在救援现场向世界展示：1) 我们是消灭中国共产党的中国人；2) 中国共产党是全人类所有的战争和问题的根源；3) 消灭中国共产党是解决人类战争和所有苦难的根本手段; 4) 我们与乌克兰人民站在一起<br/>
+![img](https://media.gettr.com/group18/getter/2022/03/13/22/0fc12988-9153-6dfa-3d10-d6091a47a1b8/out.jpg)
+
+---
+
+`@miles 3/13/2022 10:38 PM (UTC)`
+
+【Ukraine Rescue】03/12/2022 In Medyka, Poland. Piano Music on the Front Line. The pianist came to the gate of our base camp again to performance. There are war, gunpowder and refugees here.  And the rescue team of NFSC is working here. The music helps soothe people's hearts and get through the tough times!  NFSC rescue team are the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity! <br/>【乌克兰救援】2022年3月12日，波兰梅迪卡，战地钢琴曲。今天这位钢琴家又来到我们大本营演奏音乐，这里有战争、炮火和难民，新中国联邦的救援团队正在这里工作，音乐能帮助抚慰人们的心灵、度过困难时期！新中国联邦救援团队是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人
+![img](https://media.gettr.com/group13/origin/2022/03/13/22/bbc0a350-8bd4-dc45-9342-23eff0c192ac/out.jpg)
+
+---
+
+`@miles 3/13/2022 10:31 PM (UTC)`
+
+The first group of fellow fighters from the Italian Himalaya Farm, including Wen Ke, Xiao Kang, Mi Feng, Mike, Ana, and Wu Jia, were the first to arrive at the frontline refugee port in Poland to organize rescue work. On March 10th, volunteers from the New Federal State of China (NFSC) and the Rule of Law Foundation (ROLF) cooperated with SSF-Rescuers Without Borders to set up a Ukrainian refugee channel in Medyka to carry out Ukrainian refugee rescue services! We are also supported by Starlink network system. Username is "New Federal State of China" and password is "takedownccp"意大利农场的第一批战友文科，小康，蜜蜂，迈克，阿娜，和吴佳最早抵达波兰前线难民口岸组织救援工作。3月10日新中国联邦法治基金的志愿者战友和无国界救援国际组织（SSF）协调作战，一起在Medyka设立乌克兰难民通道，一起进行难民救援服务工作！还有Starlink支持网络系统，我们的用户名就是“New Federal State of China”，密码就是“takedownccp"
+![img](https://media.gettr.com/group12/origin/2022/03/13/22/a8bdb602-865a-701d-7e52-54b3745fab44/out.jpg)
+
+---
+
 `@miles 3/13/2022 10:23 PM (UTC)`
 
 ❤️In Kraków, Poland at 1 am on March 13,  the NFSC & ROLF Ukraine Rescue team greeted two rescue buses carrying 118 people (including a 3-day infant) , prepared hot coffee and food when greeting the buses, helped the refugees with their luggage, and led them to the train station. #NFSCrescue #ROLFrescue<br/><br/>📍We are the NEW CHINESE people who are taking down the EVIL Chinese Communist Party! #CCP≠Chinese<br/><br/>❤️法治基金和新中国联邦救援队于3月13日凌晨1点，在波兰克拉科夫迎接2辆载有118人（包括一个3个月大的婴儿）的救援大巴，在迎接大巴时准备了热咖啡和食物，帮难民们拿行李，引领她们去火车站。<br/><br/>📍我们是消灭邪恶中国共产党的新中国人 <br/><br/>💥24-Hour Emergency Rescue Support Team Contact: <br/>💌Email: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com <br/>☎️Phone (Call or Text): <br/>+1 720-657-6776 OR +1 719-224-4232 OR<br/>+48 508-532-712 OR +48 508-531-518
@@ -128,34 +156,6 @@ The Medyka port is a land port on the border between Poland and Ukraine. A large
 
 蓝莲花农场倾情制作反战救援视频。<br/><br/>世界反战名曲“where have all the flowers gone " 本来是一首东欧民谣（一说乌克兰，一说俄罗斯）。1956年，美國極具傳奇性的民歌手彼德‧席格（Pete Seeger,b.1919）改寫了這首歌詞。 他反對侵略戰爭。从此这首歌影响了全世界各地一代又一代的人们。今天，这首曲子再次响起已经是2022年！！<br/><br/>时光流转，歌曲寄托我们的心愿。 同时把我们新中国联邦人热爱和平，反对战争，消灭中共的愿望都传达出去！！<br/><br/>花儿都去哪了？ 年轻的士兵都去哪了？坟墓朝向何方？......
 ![img](https://media.gettr.com/group18/origin/2022/03/13/11/1b22ab4f-6fdb-bf9f-6cc9-e0c4e14f20a1/out.jpg)
-
----
-
-`@miles 3/13/2022 12:09 PM (UTC)`
-
-【Ukraine Rescue】03/13/22 The NFSC’s big tent is well stocked with supplies. Ukrainian refugees can receive sufficient relief there. <br/><br/>【乌克兰救援】03/13/22 新中国联邦的大帐篷物资供应充分，乌克兰难民在这里能够得到有效救济<br/>
-![img](https://media.gettr.com/group5/getter/2022/03/13/12/8f689ea4-99ea-3110-af7d-fa4bfc6e0dcc/out.jpg)
-
----
-
-`@miles 3/13/2022 8:24 AM (UTC)`
-
-【Ukraine Rescue】03/12/2022 The Rule of Law Foundation and the New Federal State of China provides a comfortable tent for the Ukrainian refugees who crossed the border to Medyka, Poland. The volunteers have welcomed more than 400 women and children within one day. There are resting areas, children’s playground, charging stations, coffee and food provided. People from all over Europe have donated abundant supplies.<br/><br/>【乌克兰救援】03/12/2022 法治基金和新中国联邦为安全抵达波兰梅迪卡的乌克兰难民提供了舒适的帐篷。仅一天内，当地的志愿者已经接待了超过400名妇女和儿童。帐篷内提供休息区、儿童游乐区、手机电脑充电及咖啡和食物。欧洲各地的人们捐赠了大量的物资。<br/>
-![img](https://media.gettr.com/group24/getter/2022/03/13/08/48780ee4-3b25-d0ce-244d-090fdec2f127/out.jpg)
-
----
-
-`@miles 3/13/2022 7:54 AM (UTC)`
-
-
-![img](https://media.gettr.com/group42/origin/2022/03/13/07/1fc9679b-8e84-daaf-40c7-81d9e6542712/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/13/2022 5:31 AM (UTC)`
-
-On the front line of relief in Ukraine, there were many women and children in the tents of the New Federal State of China. This cute little girl, happily greeted our fellow fighters. Smiling at them and even blowing a kiss to them, smiling happily and innocently. I hope the war will end soon and return the children to a regular life! We will never allow the Chinese Communist Party to still exist in the world of our children.<br/>在乌克兰救援前线，新中国联邦的帐篷里，有很多妇女和孩子。这位可爱的小女孩，开心的和我们的战友打招呼，对着战友微笑，并且送上一个飞吻，笑得是那样开心，天真无邪。希望战争尽快结束，还所有孩子一个正常的生活。新中国联邦决不允许中国共产党仍然存在于我们孩子的世界里。
-![img](https://media.gettr.com/group18/origin/2022/03/13/05/8837ff11-44cb-7121-5f75-e67889459e4b/out.jpg)
 
 ---
 

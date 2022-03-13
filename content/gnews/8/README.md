@@ -2,10 +2,27 @@
 ---
 
 
-## 3/13/2022 文贵直播：中共和普京合演“围魏救赵”：先由俄罗斯攻打乌克兰，然后在中东挑起事端，砸烂石油经济和美元，企图阻止美欧的经济金融制裁，让中共有机会打台湾，甚至放病毒，以期和美欧抗衡到底
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2158750/)
+## 美国前总统奥巴马 COVID-19 检测呈阳性
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2158877/)
 
-秘密翻译组-北美组
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/BRGZY534P5OQDPFK5WN7ME3KKI.jpg)
+
+
+图片来源：路透社
+
+
+
+美国前总统巴拉克·奥巴马（Barack Obama）周日表示，他的 COVID-19 检测呈阳性，除了喉咙发痒外感觉良好。
+
+奥巴马在推特上写道：“我已经有几天喉咙发痒了，但除此之外我感觉很好。”
+
+“米歇尔和我很高兴接种疫苗和加强免疫，她的检测结果呈阴性。”
+
+链接：[https://www.reuters.com/world/us/former-us-president-obama-tests-positive-covid-19-2022-03-13/](https://www.reuters.com/world/us/former-us-president-obama-tests-positive-covid-19-2022-03-13/)
+
+编辑发表： Shuizhuyu
 
  
 

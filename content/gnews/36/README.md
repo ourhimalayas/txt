@@ -2,46 +2,47 @@
 ---
 
 
-## 新中国联邦乌克兰救援行动第十六天，中共继续谎称撤侨
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2157677/)
+## 联合国安理会：不知道乌克兰生物武器计划
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2158109/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-15.png)
-**新中国联邦乌克兰国际大救援进入到第十六天，为生活在这个动荡不安国家的弱势群体带来一丝求生的希望。不幸的是，中共纳粹政权举国之力阻挠、破坏新中国联邦人无偿救人善举。**
+作者：温哥华扬帆农场 動物農莊裡的小螞蟻Michael.Tonny
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月11日，联合国就俄罗斯指控乌克兰拥有美国支持的生化武器实验室，举行了紧急会议。俄罗斯将此指控作为它入侵乌克兰的借口。
 
-乌克兰当地时间13日10点，《[新中国联邦法治基金乌克兰人道救援行动](https://www.gettr.com/streaming/pzr8jja7a2)》波兰前线直播连线透露，到目前为止，中国同胞和留学生每天都有几百人利用电子邮件和电话向我们前线救援团队求救。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-4.jpeg)
 
-根据Nicole前线报道称，救援前线指挥的大卫战友深入乌克兰战区营救中国留学生，然而邪恶的中共继续动用国家级力量破坏我们与同胞取得联系，Nicole呼吁国际社会就此向中共追责，同时[希望华人同胞不要再犹豫，现在是你们逃生的唯一机会，我们救援的战友很多都病倒了，希望同胞们珍惜这次逃生机会](https://www.gettr.com/streaming/pzr8jja7a2)。”
+在安理会第8991次会议上，联合国主管和平事务的副秘书长罗斯玛丽·迪卡洛强调，俄罗斯对乌克兰城镇和村庄的导弹袭击和空袭，使用了集束弹药违反国际法并构成战争罪。联合国裁军高级代表在会上确认：不知道乌克兰有任何生物武器计划。
 
-![](https://lh4.googleusercontent.com/t5QJKVzlqlihgDjsm9ozUyyJ9FX4Cx-OLyqkTD9V1sWPTeLWjmbVqs2UARn-maiq9Lj7XhRzl5UqosHCbiFnLx3M8K7jqTDf8AYnuuld5QH8_tFC1AcaxY7k1ilPRisw_t0J0J-j)
+阿尔巴尼亚代表说，俄罗斯虚构故事，应该拿出证据。另外，俄罗斯倒是在使用化学武器方面，有劣迹可查：俄罗斯曾支持阿萨德政权对平民使用了化学武器。
 
-通过直播连线，[Nicole 战友继续介绍了我们为难民提供的优质服务](https://www.gettr.com/streaming/pzr8jja7a2)， 首先，我们在难民区搭建的250多平米的帐篷，是包括著名国际救援机构国际红十字会中的最好的帐篷；我们营地给小孩子的玩具、巧克力糖果等和充电设备以及食物、水，热喷喷的新鲜咖啡等物资，已经成为难民、记者和国际救援义工最佳避风港。
+法国代表认为，俄罗斯为掩盖自己的责任，散布谎言，制造混乱和恐惧。近年来，在欧洲土地上使用化学武器的是俄罗斯，而不是乌克兰。
 
-- ***延展阅读：***[***乌克兰难民24小时流动在所有缓冲地带，自2月24日以来已有1,575,703 名难民进入波兰***](https://www.challenges.fr/monde/ukraine-le-flot-de-refugies-ralentit-quelque-peu-en-24h00_804427)
+英国代表称俄罗斯的阴谋论 “完全是一派胡言”。
 
+美国代表说：乌克兰没有美国支持的生物武器实验室，俄罗斯凭空捏造对美国的指控，为其在乌克兰的行动辩护。乌克兰拥有并运营着自己的公共卫生实验室等基础设施，但都是用于检测和诊断 COVID-19 等疾病，而美国对此提供了援助，但她说这与生物武器无关。
 
-根据救援现场“玫瑰园”战友当天消息证实，法治基金、新中国联邦在梅蒂亚的救援营地被称为“盘古七星级大帐篷”，已经从难民营变成一个汇聚全球爱心的国际营救营，郭先生（MILES GUO）命名的NFSC咖啡吸引了很多欧美的战地记者和新闻工作者，他们纷纷来这里喝咖啡，采访难民、休息、沟通。我们这里俨然成为“梅蒂亚新闻中心”了。法新社一位获奖战地摄影记者，Louisa Gouliamaki 有着20多年的战地记者生涯，去过世界很多的战区，她在难民营工作了一天后，来到盘古7星级帐篷喝咖啡、拍照。她说：“法治基金新中国联邦的大帐篷完美，非常好，我们需要这个地方（Perfect! Very nice! We need this place!）。”
+鉴于俄罗斯过往对其他国家的虚假指控记录，美国代表说，俄罗斯有可能计划对乌克兰人民使用化学或生物武器。对此，她表示严重的关切。
 
-- ***延展阅读：***[***狗的力量：宠物是如何帮助乌克兰人应对战争***](https://www.opb.org/article/2022/03/12/the-power-of-the-dog-and-how-pets-are-helping-ukrainians-cope-with-war/)***？***
+乌克兰代表说，俄罗斯操纵并损害安理会的信誉。他警告说，莫斯科有可能利用这些指控，进行进一步的攻击行动。
 
+参考链接：
+1. [安理会第8991次会议确认不知道乌克兰任何生物武器计划](https://gnews.org/zh-hans/2150611/)
+2. [United Nations Not Aware of Any Biological Weapons Programmes, Disarmament Chief Affirms as Security Council Meets to Address Related Concerns in Ukraine](https://www.un.org/press/en/2022/sc14827.doc.htm)
 
-玫瑰园战友还说，“昨天刚自愿加入法治基金新中国联邦营救义工团队的租车公司老板、波兰本地人Peter， 亲自为Louisa Gouliamaki女士做咖啡。与此同时，大帐篷迎来了一群从荷兰开车过来给法治基金送救援物资的人们，在梅蒂亚的盘古7星级大帐篷正在成为一个集结全球爱心人士的国际大家庭。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-![](https://lh4.googleusercontent.com/LZ689v-TXA8j2Wr_mBvN5nADKv7TAkeklaH3XtMnLDWU5xrqL-_E_s3MBCkPJM9RJ1pqr1DMD1OzFOfjtTQQ9j6rkJpUdANtoxj7Imrsxf9O0dwyac_YZh_htoXIDAQ9A3aKE9ZQ)
+总编：Zion文恩
+编辑：Jack Li文阳
+审核：文真
+校正/发稿：谐趣园
 
-自2月26日新中国联邦正式发动乌克兰国际人道救援令以来已进入第16天，每天救援费非常昂贵，都是有爱心的新中国联邦人捐助的“法治基金”支持的，不但承诺救援完全免费，还提供最优质、最人道的服务。这种公开透明的救援行动彻底击溃了中国共产党的“红色基因”。中共新华社因此继续每天像报丧一样在报道“中共虚假撤侨”，声称，“截止13日，第十二架接返自乌克兰撤离中国公民临时航班安全抵达济南。此前，已有11架自乌克兰撤离中国公民的临时航班安全回国。”这是一个人尽皆知的谎言，他们为什么乐此不疲？
-
-![](https://lh4.googleusercontent.com/VfvWprfRm2dIMpAqYlndbdHLkFcqZxqNb5H6MhPqIoB3ESYh7aszUGpClq6jn07FP-aoiuncVvOPF4MWm8-BETZUH3shlqROs-Rb0KsSGkOGaUm8fRg5-YzXa-Huxc-D473Oh17i)
-
-他们每天都谎称有来自乌克兰撤侨专机，如此大规模撤侨，为何不直播采访一下从战区回家的留学生和中国工人？好像《[我和我的祖国](https://www.wenxuecity.com/news/2022/03/10/11384299.html)》还没排练好。为何不能像新中国联邦那样直播救援，这不正是中共挽回国际上极为不利的国际形象的机会吗？比你花费几十亿上百亿美金办一场腐败的冬奥会要好得多啊。中共不但没办法直播他的虚假撤侨、没有举国之力去救援同胞，而是举国之力去阻拦新中国联邦去救助中国人，这种纳粹做法，国际媒体以历历在目。
-
-2022年3月13日
-
-校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
