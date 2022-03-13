@@ -2,34 +2,41 @@
 ---
 
 
-## 伊拉克北部库尔德族自治区遭遇导弹袭击 自治区官员如是表示
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2158543/)
+## 有声|美国民调显示：民众认为中共对美国威胁远大于俄罗斯
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2158641/)
 
-翻译：Orpheus
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美媒3月11日报道，当天公布的一项民意调查显示，绝大多数美国人认为中共在经济和安全方面对美国的威胁比俄罗斯大得多。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-22.jpg)
+美国的两家调查公司，在3月2日到3月7日对1500名登记选民进行了该项民意调查。当被问及哪个国家对美国构成最大的经济威胁时，73%的受访者回答是中共国，而只有14%的人说是俄罗斯。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220313-00000013-reut-000-4-view-edited.jpg)图片来源：路透社
+当被问及哪个国家对美国构成最大的安全威胁时，52%的人也说是中共国，而只有32%的受访者说是俄罗斯。
 
-伊拉克北部库尔德族自治区的一名干部13日说，有人从伊拉克境外向自治区首府艾比尔发射了数枚弹道导弹。 据说并没有人员伤亡。
+尽管俄罗斯总统普京入侵乌克兰影响全球安全局势，但美国人仍然认为中共国在经济和军事上对美国的威胁比俄罗斯大得多。正是基于这种认知，多数美国人对美国直接出兵干预俄乌战争，表示反对或持怀疑态度。但多数美国人倾向于支持美国对乌克兰提供更多军事和人道援助，而要求对俄罗斯采取更多的制裁措施。
 
-一位美国官员告诉路透社，这些导弹是从伊朗发射的，但没有提供进一步的细节。
+有关人士认为，美国民众已经很清醒地看到，中共是俄罗斯侵略战争幕后黑手。这种民意基础，也一定会影响美国政府对中共采取更严厉的制裁措施。
 
-并没有任何团体发表关于这次袭击的声明，也没有提供任何细节。 美国国务院发言人谴责了这次袭击，但表示没有美国人受伤，所在该地区的美国政府设施也没有遭到破坏。
 
-伊拉克国家电视台报导，库德族自治区反恐部队说，他们从伊拉克境外发射了12枚导弹，袭击了首都艾比尔，击中地点至今不明。
 
-艾比尔国际机场旁边的美军驻地过去曾遭到火箭弹和无人机的袭击，美国认为这次袭击是由亲伊朗的武装团体所为。 在过去的几个月里一直没有发生过这样的攻击。
+文字版原文：[美国民调显示：民众认为中共对美国威胁远大于俄罗斯](https://gnews.org/zh-hans/2151992/)
 
-上回出现对美军的弹道导弹攻击是在2020年1月。 该袭击是对于美国杀害伊朗革命卫队指挥官苏莱曼尼的报复。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-**参考资料：**[news.yahoo.co.jp][イラク北部クルド人自治区に弾道ミサイル＝自治区幹部](https://news.yahoo.co.jp/articles/7a912d1e1367a0f7bd898473e3906cea2efaf97b)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-* * *
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-*审核：BryanW*
-*校对：宫米叶*
-*发稿：信心的选择*
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-8.jpeg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

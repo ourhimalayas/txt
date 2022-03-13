@@ -2,29 +2,39 @@
 ---
 
 
-## 《铁锁梦》歌曲将会影响中国女性在未来世界的地位
-` 开眼实验室` [轉載自GNews](https://gnews.org/zh-hans/2158381/)
+## YouTube封锁俄罗斯官媒频道 范围扩及全球
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2158432/)
 
-撰稿：东京樱花团/叶扑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220313ChainedWoman.jpg)
-在中国的历史长河中，从以母系社会为主的石器时代开始，经历奴隶社会的过渡，进入到以皇权为中心的封建社会。中共篡政之后，其宣称的社会主义旗号也不过是一块遮羞布而已，换汤不换药。
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月12日国外媒体报道，在俄罗斯入侵乌克兰后，YouTube在欧洲地区封锁了俄罗斯国家资助媒体的相关频道。3月12日，Youtube再次宣布，将对俄罗斯国家资助媒体相关频道的封锁范围扩大到全球。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-13-下午1.46.32.png)
+YouTube表示，根据公司禁止否定、缩减或淡化有充足证据的暴力事件的规定，将移除违反政策的俄罗斯入侵乌克兰相关内容，同时也封锁YouTube上受国家资助的俄罗斯媒体频道，范围扩及全球，立即生效。
 
-中共国的国内和海外女性同胞无论在身体上还是在精神上，都还处在中共统治之下，她们没有尊严，得不到尊重。中共将中华民族源远流长的传统美德全部打碎，给包括中国女性在内的每一位中国人都套上了一条无形的锁链。中共统治着人们的一切行动和思想，致使社会物欲横流，道德沦丧，许多女性在追求物欲的同时，无知地自愿给自己套上了这把魔鬼的锁链，吞服着共产主义的精神毒药，原本的人性变得扭曲，纯粹的唯物主义取代了内在的精神信仰，一切以物质利益为衡量标准，人与人之间没有了爱和承诺，也没有了相互尊敬。
+YouTube补充道，禁播的内容包括否认俄罗斯入侵乌克兰，或声称入侵是维和行动。但YouTube 拒绝具体说明在全球范围内哪些频道和多少频道被屏蔽，或者是否会恢复。
 
-新中国联邦人，特别是新中国联邦的女性，向世界展示了全新的形象，她们有信仰，有正义，有良知，不分种族，不分国界，不分宗教，勇敢无畏。随着《铁锁梦》歌曲的传播，将会唤醒更多的中国人，让中国人抛弃懦弱，不再冷漠。我们要用音乐推动世界和平，更重要的是，维护中国女性的安全和尊严。在不久的未来，新中国联邦的女性会成为世界上最受尊敬的人，她们因为拥有信仰而受他人尊重，因为拥有正义而从事有良知的事情，她们向世界付之以爱，并且收获更多的爱和尊重。
+YouTube的母公司谷歌此前已禁止俄罗斯广告商在Google全球产业与网络刊登广告。
 
-我本是花一朵，会绽放在世界每个角落，不再被中共的锁链继续禁锢。新中国联邦会联合世界的正义力量，把中共的铁锁链彻底打碎，让共产主义的幽灵从世界上永远彻底地消失。
+俄罗斯3月12日宣布，限制民众登陆社交媒体Instragram，并对其母公司Meta提出刑事诉讼，起诉Meta准许用户发表反对俄罗斯入侵的言论。
 
-信息来源：
+俄罗斯官方媒体称，包括应用商店和其他社交媒体服务在内的分销商对俄罗斯施加的限制是不正当的审查。
 
-[《铁锁梦 Chained Dream》](https://www.gettr.com/post/pyrjlxe80f)
+参考链接：[YouTube blocks Russian state-funded media channels globally](https://www.reuters.com/business/media-telecom/youtube-blocks-russian-state-funded-media-channels-globally-2022-03-11/)
 
-[2022年3月9日文贵大直播](https://www.gettr.com/streaming/pz1ocoe7cb)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-编辑：东京樱花团/曲别针
+编辑：飞虹
+总编：Zion文恩
+审核：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-发布：东京樱花团/曲别针
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-2.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

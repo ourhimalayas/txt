@@ -2,53 +2,43 @@
 ---
 
 
-## 美财政部强调对俄制裁扩大到加密货币
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2158244/)
+## 莫德纳凭借新冠疫苗去年狂赚122亿 CEO获一揽子奖励
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2158327/)
 
-编译：Jenny Ball
+编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1430-edited.png)reuters.com
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1433-edited.png)thegatewaypundit.com
 
-在2022年3月4日拍摄的这张插图中，Coinbase 徽标前面显示了加密货币的表示。REUTERS/Dado Ruvic/Illustration/
+流行病有两件事是肯定的——第一，有些人会因此死亡； 第二，有些人因此赚得盆满钵满。
 
-华盛顿，3 月 11 日（路透社）——美国财政部外国资产控制办公室 (OFAC) 周五发布了新指南，阐明美国公民和数字资产公司，必须遵守对俄罗斯的制裁，即使在促进加密货币交易时也是如此。
+在 2020 年初武汉实验室释放福奇资助的中共病毒后，总部位于美国的疫苗制造商莫德纳(Moderna Inc.)与辉瑞(Pfizer-BioNTech)一起成为最大的受益者之一。在过去两年中，莫德纳公司与大流行爆发前相比实现了不可想象的转变，2020 年损失高达 7.47 亿美元，而2021 年的收入超过 120亿 美元（$12B）。
 
-OFAC 在指南中表示，美国人民以及从事加密货币交易的企业，“必须警惕规避OFAC法规的企图”，并应“采取基于风险的措施，确保他们不参与被禁止的交易。”
+最令人惊讶的是，莫德纳的全部收入，都归功于其提供的唯一商业化产品：实验性 mRNA Covid-19 疫苗。
 
-这一警告发布之际，加密货币行业的许多人正在回应一些立法者的担忧，即数字资产可能被用来规避西方在俄罗斯入侵乌克兰后对俄罗斯实施的制裁。
+由于疫苗的销售额预计将超过去年的数字，该公司已决定奖励其高管、首席执行官斯蒂芬尼·班塞尔（Stephanie Bancel），并为其提供巨额的“控制权变更”一揽子计划，如果该公司是出售或合并，他在此过程中失去工作的话。
 
-拜登政府官员曾表示，他们不相信俄罗斯能够使用加密货币完全逃避制裁，但仍警告公司要保持警惕。
+“一揽子计划”于 2021 年底获得了这家位于马萨诸塞州的疫苗制造商董事会的批准。它将支付给已经拥有超过 43 亿净资产的班塞尔总计 9.26 亿美元。总的来说，新的一揽子计划，将比他之前同意的 960 万美元的遣散费高出近 1,000%（975%）。
 
-在周一发布的指导中，金融犯罪执法网路（FinCEN）表示，加密货币交易所必须报告任何可疑活动，但周五的通知进一步明确指出，交易所被禁止从事或促进非法交易。
+自大流行开始以来，金色一揽子计划只是班塞尔的最新摇钱树。据 CNBC 报道，仅在 2021 年，班塞尔作为莫德纳的 CEO 就赚了超过 1820 万美元，他的薪水为 990,385 美元，股票价值为 1500 万美元，奖金为 150 万美元。
 
-正如一些乌克兰官员所呼吁的那样，包括币库(Coinbase)和币安(Binance)在内的主要加密货币交易所，没有响应阻止俄罗斯用户的呼吁。
+但是，不仅仅是他， 莫德纳的其他高管也在与班塞尔一起套现。
 
-西方对俄罗斯实施了前所未有的严厉制裁，原因是其对乌克兰的军事攻击是二战以来欧洲最大规模的军事攻击。企业的反应各不相同，一些公司采取法律要求的措施，而另一些则采取自愿措施。
+2021 年，斯蒂芬·霍格总裁兑现了 1.659 亿股股票期权，此外，还有去年总计 780 万美元的薪水和奖金。
 
-加密货币提供的匿名性引起了监管机构的担忧，即这种技术可能被用来破坏制裁。
+莫德纳的首席技术官胡安·安德烈斯（Juan Andres）也在大赚，他卖出了 1.943 亿美元的股票，并在 2021 年从该公司赚取了 660 万美元。
 
-周二，德国表示扩大对莫斯科的制裁，应排除使用加密货币来规避这些措施。爱沙尼亚还呼吁限制加密货币，以填补制裁漏洞。
+总体而言，三位高管在过去一年中已经抛售了数亿股莫德纳股票，因为他们希望在危机爆发前利用这场危机。继去年夏天股价达到 497.49 美元的高点之后，它已经跌至目前每股 139.52 美元的水平，因此，时间对于他们的抛售至关重要。
 
-周一，美国财政部表示，使用加密货币大规模规避制裁“不一定可行”，呼吁公司保持警惕。
+点评：这些吃人血馒头的贪婪药企一定会在他们制造的疫苗灾难中彻底崩塌，并被历史惩罚！
 
-一揽子禁令？
-
-PayPal、Visa、万事达卡等传统支付公司已暂停在俄罗斯的服务。乌克兰副总理曾呼吁，他们和加密公司以及其他公司切断与俄罗斯的联系。
-
-然而，加密货币交易所并未默许全面禁止俄罗斯用户的呼吁，专家表示，这一决定削弱了孤立莫斯科的企图。
-
-评论：任何用来违法犯罪的货币都将被淘汰！
-
-素材链接：【reuters.com】[U.S. Treasury Department stresses that Russia sanctions extend to cryptocurrency](https://www.reuters.com/business/finance/us-treasury-department-stresses-that-russia-sanctions-extend-cryptocurrency-2022-03-11/?utm_source=newsletter&amp;utm_medium=email&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
+素材链接：【thegatewaypundit.com】[Moderna Approves $900 Million+ Golden Parachute for CEO After Company Went From Losing $747 Million In 2020 to Making $12.2 Billion in 2021 With Its Covid Jab](https://www.thegatewaypundit.com/2022/03/moderna-approves-900-million-golden-parachute-ceo-company-went-losing-747-million-2020-making-12-2-billion-2021-covid-jab/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
 
 * * *
 
 审核：文乐
 校对：信心满满
 发布：花羽
-
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-8.jpeg)
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,35 @@
 ---
 
 
-## 新闻背景：梅迪卡——乌克兰难民救援地
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2158433/)
+## 伊拉克北部库尔德族自治区遭遇导弹袭击 自治区官员如是表示
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2158543/)
 
-作者：纽约香草山农场教育部-马克文、朱丽叶
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-Medyka 梅迪卡是波兰东南部喀尔巴阡省普热梅希尔县的一个村庄，它是Gmina Medyka市的所在地，2006年，人口约为2,800人，与乌克兰接壤。梅迪卡是波兰和乌克兰之间连接两国的主要公路过境点之一， 2022 年俄罗斯入侵乌克兰，梅迪卡成为一个可以接受越过边境的乌克兰难民的地点。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-13-下午1.46.40.png)
-根据历史资料，在二战期间，梅迪卡曾经被苏联和德国占领过，最终在1948 年在修改边界时归还给波兰。几十年来，波兰东南部小镇梅迪卡的市场一直是销售香烟、伏特加、玩具等商品的边境贸易集散地，十分受人青睐，广场上排列着小商店和折扣店。来自乌克兰的顾客喜欢越过边境，经营批发贸易。他们将货品带回乌克兰，在附近的西部市场上转售。
+翻译：Orpheus
 
-自乌克兰战争爆发后，数以万计逃离战争的乌克兰人经过这里，边境口岸完全为难民开放。逃难的人群几乎都是妇女和儿童，为了到达梅迪卡边境，他们必须跋涉几百公里。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220313-00000013-reut-000-4-view-edited.jpg)图片来源：路透社
 
-新中国联邦和法制基金第一时间组建国际大救援团队奔赴战区，租用大巴车救出几百个儿童、老师、妇女。随后，救援团队进一步扩大救援区域，在梅迪卡建立基地，在没有任何红十字会、其它国家人道救援组织的协助下，搭建起巨大的帐篷，在帐篷里提供取暖设备，为寒冷天气下，长途跋涉数百公里的难民提供临时安身之所。
+伊拉克北部库尔德族自治区的一名干部13日说，有人从伊拉克境外向自治区首府艾比尔发射了数枚弹道导弹。 据说并没有人员伤亡。
 
-在梅迪卡这个波兰与乌克兰的边境口岸小镇，突然出现了来自世界各地由华人组成的国际救援队，他们会说多种欧洲语言，并提供最好的设施去帮助乌克兰难民。新中国联邦、法制基金在梅迪卡的救援行动立即成了世界各国媒体的焦点。
+一位美国官员告诉路透社，这些导弹是从伊朗发射的，但没有提供进一步的细节。
 
-参考链接：[Medyka（维基百科）](https://en.wikipedia.org/wiki/Medyka)
+并没有任何团体发表关于这次袭击的声明，也没有提供任何细节。 美国国务院发言人谴责了这次袭击，但表示没有美国人受伤，所在该地区的美国政府设施也没有遭到破坏。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+伊拉克国家电视台报导，库德族自治区反恐部队说，他们从伊拉克境外发射了12枚导弹，袭击了首都艾比尔，击中地点至今不明。
 
-编辑：Jack Li文阳
-总编：Zion文恩
-审核：Jack Li文阳
-校正/发稿：呼吸的雾霾（文小呼吸）
+艾比尔国际机场旁边的美军驻地过去曾遭到火箭弹和无人机的袭击，美国认为这次袭击是由亲伊朗的武装团体所为。 在过去的几个月里一直没有发生过这样的攻击。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+上回出现对美军的弹道导弹攻击是在2020年1月。 该袭击是对于美国杀害伊朗革命卫队指挥官苏莱曼尼的报复。
+
+**参考资料：**[news.yahoo.co.jp][イラク北部クルド人自治区に弾道ミサイル＝自治区幹部](https://news.yahoo.co.jp/articles/7a912d1e1367a0f7bd898473e3906cea2efaf97b)
+
+* * *
+
+*审核：BryanW*
+*校对：宫米叶*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-8.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
