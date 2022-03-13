@@ -2,77 +2,58 @@
 ---
 
 
-## 七国集团与欧盟加大对俄罗斯的制裁力度
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2153793/)
+## 俄罗斯称可能扣押西方公司留下的资产
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2153933/)
 
-**拜登总统**： 民主国家正在崛起以迎接这一时刻的到来，将世界团结到和平与安全的一边。 我们正在展示我们的力量 —— 我们不会动摇。
+***评论：同样的情况很快会在中共国发生，可能会更严重。***
 
-【附拜登视频讲话, 他说： 我们将确保 [#乌克兰](https://gettr.com/hashtag/%23乌克兰) 拥有防御入侵俄军的武器。 我们将提供资金、食物和援助来拯救乌克兰人民。 我将欢迎乌克兰难民。 我们应该张开双臂欢迎他们来到这里。 我们将继续与我们在欧洲的盟友站在一起，并发出一个明确无误的信息：我们将以团结鼓舞的北约的全部力量来保卫北约的每一寸领土。 我们不会在乌克兰与俄罗斯开战。 北约和俄罗斯之间的直接对抗将会是第三次世界大战 —— 我们必须努力防止这种情况的发生。 但我们已经知道，#普京 对乌克兰的战争永远不会取得胜利。 他想要不战而主宰乌克兰，但他失败了。 他想要打破欧洲的决心，但他失败了。 他想要削弱跨大西洋联盟，但他失败了。 他想要在我们的立场上分裂美国民主，但他失败了。 美国人民团结起来了，世界团结起来了，我们与乌克兰人民站在一起。 我们不会让 [#盗国贼](https://gettr.com/hashtag/%23盗国贼) 和 [#皇帝](https://gettr.com/hashtag/%23皇帝) 来支配世界的方向。 民主国家正在崛起以迎接这一时刻，将世界团结到和平与安全的一边。 我们正在展示我们的力量，我们不会动摇。 上帝保佑你们。 上帝保佑乌克兰，上帝保佑我们的军队。】
+**据《CNN》 作者：Mark Thompson，2022年3月10日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/at3qq-2dwhj-3.jpg)
+伦敦（CNN Business）–俄罗斯表示，它可能会扣押在该国暂停运营的西方公司的资产。
 
+过去两周，来自几乎所有经济领域的数十家美国、欧洲和日本公司放弃了合资企业、工厂、商店和办公室，以回应俄罗斯对乌克兰的入侵和确保制裁。
 
+制裁已经打击了俄罗斯的大部分金融部门，包括其中央银行，破坏了俄罗斯的货币，并可能引发主权债务违约和深度衰退，而且可能还会有更多。
 
-> Democracies are rising to meet this moment, rallying the world to the side of peace and security.
->  
-> We are showing our strength — and we will not falter. [pic.twitter.com/UsMf8z8P45](https://t.co/UsMf8z8P45)
-> — President Biden (@POTUS) [March 12, 2022](https://twitter.com/POTUS/status/1502460104536375297?ref_src=twsrc%5Etfw)
+美国财政部长珍妮特-耶伦周四表示，由于现有的西方制裁，俄罗斯的经济将受到“破坏”，“但我们……继续考虑我们可以采取的进一步措施。”
 
+弗拉基米尔-普京总统曾承诺作出回应。周四，他在与政府官员的一次会议上发言，支持对离开俄罗斯的外国公司实行“外部管理”的计划。
 
+根据克里姆林宫发布并在国家媒体上播出的一段视频，普京说：“我们需要对那些将关闭生产的[公司]采取果断行动。那么，有必要……引入外部管理，然后将这些企业移交给那些想要工作的人。”
 
-**美国国务院**： 美国政府正在采取行动，向普京及其核心圈子发出明确的信息，即我们将提高 [#俄罗斯](https://twitter.com/hashtag/俄罗斯?src=hashtag_click) 在 [#乌克兰](https://twitter.com/hashtag/乌克兰?src=hashtag_click) 无理开战的代价。 美国与乌克兰站在一起，确认其人民的勇敢和英雄主义行为。
+俄罗斯总理米修斯廷早些时候说，已经起草了立法。
 
-【附美国务院发文：针对俄罗斯联邦精英进行打击。美国国务院、财政部和商务部已采取额外的全面行动，作为我们与我们的盟友及合作伙伴，一起应对俄罗斯联邦对乌克兰发动有预谋、无端和无理的战争的一部分。 我们致力于确保俄罗斯政府为其进一步入侵乌克兰付出沉重的经济和外交代价……（并列出制裁人员名单）】
+***关闭对话***
 
+米修斯金说：“如果外国业主不合理地关闭公司，那么在这种情况下，政府建议引入外部管理。根据业主的决定，它将决定企业的未来命运。”
 
+“关键任务将是保护……组织的活动和工作。”他补充说：“大多数企业在维持工作和工资的同时宣布暂时停业，我们将密切关注这一情况。”
 
-> The U.S. government is taking actions and sending a clear message to Putin and his inner circle that we will up the cost of Russia's unjustified war in Ukraine. The United States stands with Ukraine and recognizes the bravery and heroism of its people. [https://t.co/RpVp0BDjxr](https://t.co/RpVp0BDjxr)
-> — Department of State (@StateDept) [March 12, 2022](https://twitter.com/StateDept/status/1502539891607019524?ref_src=twsrc%5Etfw)
+出走的企业包括麦当劳（MCD）、可口可乐（COKE）和苹果（AAPL）等标志性消费和科技品牌，以及英国石油（BP）和壳牌（RDSA）等知名大石油集团。周四，高盛(Goldman Sachs, GS)加入了他们的行列，这是自战争开始以来第一家表示完全停止在该国活动的大银行。其他银行可能也会跟进，留下数十亿的未偿债务。
 
+据国家通讯社塔斯社后来援引俄罗斯报纸《Izvestiya》的一篇报道，俄罗斯消费者权益组织已经拟定了一份决定离开并可能被国有化的公司名单。
 
+《Izvestiya》报道，这份文件被送到了俄罗斯政府和总检察长办公室，其中包括59家公司，包括大众汽车（VLKAF）、苹果、宜家、微软（MSFT）、IBM（IBM）、壳牌、麦当劳、保时捷、丰田（TM）、H&M（HNNMY），并且可以更新更多品牌。
 
-**众议院少数党领袖凯文·麦卡锡 **： 在拜登总统领导下，从俄罗斯进口的能源增加了 34% —— 但现在他甚至想进一步增加我们对外国能源的依赖。 当我们在自家后院拥有更清洁、更便宜的能源时，我们不需要依赖独裁者。 【附cnbc专栏文章：拜登需要迅速增加美国能源产量以减少对俄罗斯的依赖】
+俄罗斯政府周四早些时候发布了一份清单，列出了以前进口俄罗斯的商品和设备，公司将被禁止转移出国。
 
+根据政府网站上发表的声明，该清单包括200多种物品，包括“技术、电信、医疗设备、车辆、农业机械、电气设备”，以及“铁路车辆和机车、集装箱、涡轮机、金属和石材加工机器、显示器、投影仪、控制台和面板”。
 
+这些限制将继续有效，直到2022年底。
 
-> Under President Biden, energy imports from Russia increased by 34%—but now he wants to increase our reliance on foreign energy even more.
->  
-> We don’t need to rely on dictators when we have cleaner, cheaper energy in our own backyard.[https://t.co/BBwYXjWVgI](https://t.co/BBwYXjWVgI)
-> — Kevin McCarthy (@GOPLeader) [March 12, 2022](https://twitter.com/GOPLeader/status/1502654169529913349?ref_src=twsrc%5Etfw)
+***文章观点仅代表作者个人，与Gnews平台无关。***
 
+**文章来源**：[https://www.cnn.com/2022/03/10/business/russia-nationalization-western-companies/index.html?utm\_content=2022-03-10T22%3A00%3A17&utm\_source=twCNN&utm\_term=link&utm\_medium=social](https://www.cnn.com/2022/03/10/business/russia-nationalization-western-companies/index.html?utm_content=2022-03-10T22%3A00%3A17&amp;utm_source=twCNN&amp;utm_term=link&amp;utm_medium=social)
 
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 轰炸机
+评论：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – 傻小子
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**参议员马可·卢比奥**： 是时候开始为这样一个事实做准备了，普京对世界主要小麦生产国之一的犯罪入侵, 将导致包括美国在内的粮食价格大幅上涨、以及世界许多地区的粮食不安全的危机
-
-
-
-> It is time to start preparing for the fact that [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)’s criminal invasion of one of the worlds leading wheat producers is going to result in a massive increase in food prices including here in America & a food insecurity crisis in many parts of the world
-> — Marco Rubio (@marcorubio) [March 12, 2022](https://twitter.com/marcorubio/status/1502661176605487104?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎·布莱克本**： 迪士尼为了公共关系，暂停了在俄罗斯的业务往来，但他们仍在与 [#共产主义中国](https://twitter.com/hashtag/共产主义中国?src=hashtag_click) 做交易。
-
-
-
-> Disney paused business dealings in Russia for PR, but they’re still making deals with Communist China.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 12, 2022](https://twitter.com/MarshaBlackburn/status/1502751286374113295?ref_src=twsrc%5Etfw)
-
-
-
-**参议员泰德·克鲁兹**： 卡车司机正在为自由挺身而出。 他们在为每一个面临接种新冠 COVID 疫苗或被解雇最后通牒的工人挺身而出。 [#人民车队](https://twitter.com/hashtag/人民车队?src=hashtag_click)
-
-【附克鲁兹议员加入人民车队的视频讲话】
-
-
-
-> The truckers are standing up for freedom.
->  
-> They are standing up for every worker who is facing the ultimatum of take the COVID vaccine or be fired.
->  [#ThePeoplesConvoy](https://twitter.com/hashtag/ThePeoplesConvoy?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/3B9whQ5X08](https://t.co/3B9whQ5X08)
-> — Senator Ted Cruz (@SenTedCruz) [March 12, 2022](https://twitter.com/SenTedCruz/status/1502707932538023939?ref_src=twsrc%5Etfw)
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

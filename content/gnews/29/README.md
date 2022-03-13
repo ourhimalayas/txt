@@ -2,49 +2,77 @@
 ---
 
 
-## 俄罗斯参与了帮助伊朗破坏美国石油制裁的阴谋
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2153788/)
+## 七国集团与欧盟加大对俄罗斯的制裁力度
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2153793/)
 
-**翻译：【日本东京方舟农场】乾坤一掷**
+**拜登总统**： 民主国家正在崛起以迎接这一时刻的到来，将世界团结到和平与安全的一边。 我们正在展示我们的力量 —— 我们不会动摇。
 
-受制裁的俄罗斯油轮载有伊朗非法石油，为德黑兰提供了新的财务生命线，并凸显了拜登政府在执行制裁方面存在的重大差距。
+【附拜登视频讲话, 他说： 我们将确保 [#乌克兰](https://gettr.com/hashtag/%23乌克兰) 拥有防御入侵俄军的武器。 我们将提供资金、食物和援助来拯救乌克兰人民。 我将欢迎乌克兰难民。 我们应该张开双臂欢迎他们来到这里。 我们将继续与我们在欧洲的盟友站在一起，并发出一个明确无误的信息：我们将以团结鼓舞的北约的全部力量来保卫北约的每一寸领土。 我们不会在乌克兰与俄罗斯开战。 北约和俄罗斯之间的直接对抗将会是第三次世界大战 —— 我们必须努力防止这种情况的发生。 但我们已经知道，#普京 对乌克兰的战争永远不会取得胜利。 他想要不战而主宰乌克兰，但他失败了。 他想要打破欧洲的决心，但他失败了。 他想要削弱跨大西洋联盟，但他失败了。 他想要在我们的立场上分裂美国民主，但他失败了。 美国人民团结起来了，世界团结起来了，我们与乌克兰人民站在一起。 我们不会让 [#盗国贼](https://gettr.com/hashtag/%23盗国贼) 和 [#皇帝](https://gettr.com/hashtag/%23皇帝) 来支配世界的方向。 民主国家正在崛起以迎接这一时刻，将世界团结到和平与安全的一边。 我们正在展示我们的力量，我们不会动摇。 上帝保佑你们。 上帝保佑乌克兰，上帝保佑我们的军队。】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-140.jpg)（图片来源：freebeacon.com）
 
-这两艘名为Pegas和Linda的油轮最近受到制裁，这是美国在乌克兰被入侵中孤立俄罗斯企业的一部分。现在很明显，这两艘船最近几个月一直在运送非法的伊朗原油，专家认为此举是为了逃避美国的制裁，并表明德黑兰与莫斯科的关系有所加强。两艘船的卫星图像和详细信息是由“反伊朗核计划联合会”（UANI）提供给华盛顿自由灯塔的，UANI是一个密切追踪德黑兰非法石油贸易的监督组织。
 
-俄罗斯参与运送受制裁的伊朗原油突显了俄伊之间日益密切的联系，尤其是在莫斯科因无端入侵乌克兰而面临国际孤立的情况下。由于俄罗斯与西方金融机构隔绝，它可能会进一步支持德黑兰的非法制裁破坏计划，以帮助其抵消国际制裁。
+> Democracies are rising to meet this moment, rallying the world to the side of peace and security.
+>  
+> We are showing our strength — and we will not falter. [pic.twitter.com/UsMf8z8P45](https://t.co/UsMf8z8P45)
+> — President Biden (@POTUS) [March 12, 2022](https://twitter.com/POTUS/status/1502460104536375297?ref_src=twsrc%5Etfw)
 
-UANI在周四关于局势的声明中表示，俄罗斯“已与其盟友中共国一道参与了伊朗制裁破坏计划，以走私原油和天然气。”俄罗斯、中共国和伊朗现在正在带头破坏美国的石油制裁。反美派在俄罗斯入侵乌克兰以及拜登政府努力与伊朗签署 2015 年核协议的修订版——该协议将为德黑兰的强硬派政权提供数十亿美元的现金横财之际，这些流氓国家之间的联盟正在引发审查。俄罗斯已成为美国在这些会谈中的首要对话者，这引起了国会中许多希望看到莫斯科完全孤立的鹰派的愤怒。
 
-“伊朗一直在努力逃避对其石油出口的制裁。鉴于俄罗斯和伊朗公开表达了扩大合作的愿望，伊朗在俄罗斯找到一个合作伙伴来帮助它做到这一点也就不足为奇了，”UANI 的克莱尔·荣格曼（Claire Jungman）参谋长告诉自由灯塔。“通过使用这些现已受到制裁的俄罗斯油轮，伊朗继续创造数十亿美元的收入来资助其恶意活动。随着俄罗斯变得更加孤立，我们可能会看到这两个国家在努力逃避制裁并创造收入时更加紧密地合作。”
 
-根据 Free Beacon 审查的卫星图像，1 月 30 日，Linda 油轮首次装载伊朗原油，通过从另一艘悬挂国旗的油轮 Emerald转移装载伊朗原油，该油轮被指控从以色列海岸泄漏伊朗石油.琳达号现在正带着伊朗石油前往马来西亚。马来西亚周二表示，它将阻止这艘船进入，以惩罚俄罗斯在乌克兰的战争。还有证据表明，Linda 可能已将其名称更改为 Inda，以避免在国际数据库中被发现。
+**美国国务院**： 美国政府正在采取行动，向普京及其核心圈子发出明确的信息，即我们将提高 [#俄罗斯](https://twitter.com/hashtag/俄罗斯?src=hashtag_click) 在 [#乌克兰](https://twitter.com/hashtag/乌克兰?src=hashtag_click) 无理开战的代价。 美国与乌克兰站在一起，确认其人民的勇敢和英雄主义行为。
 
-根据UANI的跟踪信息，第二艘油轮Pegas于2021年8月末与伊朗石油接触。该船于1月18日试图将这种石油转移到土耳其马尔马拉港，但遭到拒绝。 UANI 以严重违反制裁为由请求码头运营商拒绝转让。虽然该组织没有得到回应，但似乎这些警告影起了注意。
+【附美国务院发文：针对俄罗斯联邦精英进行打击。美国国务院、财政部和商务部已采取额外的全面行动，作为我们与我们的盟友及合作伙伴，一起应对俄罗斯联邦对乌克兰发动有预谋、无端和无理的战争的一部分。 我们致力于确保俄罗斯政府为其进一步入侵乌克兰付出沉重的经济和外交代价……（并列出制裁人员名单）】
 
-Pegas于1月24日离开马尔马拉码头，仍然载有伊朗原油。从那时起，这艘船一直停泊在马尔马拉埃雷格里西检疫锚地。 UANI于1月26日再次向马尔马拉码头运营商请求有关该船有效载荷的信息，但未收到回复。
 
-像UANI这样的监督组织将伊朗-俄罗斯联盟视为两国在全球破坏稳定。该组织在周四的声明中表示，“俄罗斯和伊朗公开表达了扩大合作的愿望，特别是在武器和能源领域”。
 
-当对伊朗的国际武器禁运于2020年10月到期时，俄罗斯和中国率先表示有兴趣与伊朗达成新的武器交易。
+> The U.S. government is taking actions and sending a clear message to Putin and his inner circle that we will up the cost of Russia's unjustified war in Ukraine. The United States stands with Ukraine and recognizes the bravery and heroism of its people. [https://t.co/RpVp0BDjxr](https://t.co/RpVp0BDjxr)
+> — Department of State (@StateDept) [March 12, 2022](https://twitter.com/StateDept/status/1502539891607019524?ref_src=twsrc%5Etfw)
 
-据伊朗国家控制的媒体报道，伊朗驻俄罗斯大使周四会见了俄罗斯总统弗拉基米尔·普京的阿富汗特使，“讨论双边关系和最新的地区发展”，这是两国关系不断发展的一个迹象。
 
-中共国是伊朗非法原油的最大进口国。自由灯塔于1月份首次报道，2021年伊朗的非法石油运输量增长了40%。其中，中共国、阿拉伯联合酋长国、叙利亚、委内瑞拉和俄罗斯是最大的进口国。
 
-由于俄罗斯面临着自己的一系列严厉制裁，它可以利用与伊朗的联盟来规避国际措施并加强反美国家轴心。
+**众议院少数党领袖凯文·麦卡锡 **： 在拜登总统领导下，从俄罗斯进口的能源增加了 34% —— 但现在他甚至想进一步增加我们对外国能源的依赖。 当我们在自家后院拥有更清洁、更便宜的能源时，我们不需要依赖独裁者。 【附cnbc专栏文章：拜登需要迅速增加美国能源产量以减少对俄罗斯的依赖】
 
-“随着莫斯科变得更加孤立，”UANI说，“它可能会评估在经济和军事上进一步加强美国的对手是否符合其利益。”
 
-注：本文仅代表作者观点。
 
-原文链接：
-[https://freebeacon.com/national-security/russia-involved-in-plot-to-help-iran-bust-us-oil-sanctions/](https://freebeacon.com/national-security/russia-involved-in-plot-to-help-iran-bust-us-oil-sanctions/)
+> Under President Biden, energy imports from Russia increased by 34%—but now he wants to increase our reliance on foreign energy even more.
+>  
+> We don’t need to rely on dictators when we have cleaner, cheaper energy in our own backyard.[https://t.co/BBwYXjWVgI](https://t.co/BBwYXjWVgI)
+> — Kevin McCarthy (@GOPLeader) [March 12, 2022](https://twitter.com/GOPLeader/status/1502654169529913349?ref_src=twsrc%5Etfw)
 
-素材採編：妙喜小油鍋
-校对：妙喜小油鍋
-发布:Linda
+
+
+**参议员马可·卢比奥**： 是时候开始为这样一个事实做准备了，普京对世界主要小麦生产国之一的犯罪入侵, 将导致包括美国在内的粮食价格大幅上涨、以及世界许多地区的粮食不安全的危机
+
+
+
+> It is time to start preparing for the fact that [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)’s criminal invasion of one of the worlds leading wheat producers is going to result in a massive increase in food prices including here in America & a food insecurity crisis in many parts of the world
+> — Marco Rubio (@marcorubio) [March 12, 2022](https://twitter.com/marcorubio/status/1502661176605487104?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎·布莱克本**： 迪士尼为了公共关系，暂停了在俄罗斯的业务往来，但他们仍在与 [#共产主义中国](https://twitter.com/hashtag/共产主义中国?src=hashtag_click) 做交易。
+
+
+
+> Disney paused business dealings in Russia for PR, but they’re still making deals with Communist China.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 12, 2022](https://twitter.com/MarshaBlackburn/status/1502751286374113295?ref_src=twsrc%5Etfw)
+
+
+
+**参议员泰德·克鲁兹**： 卡车司机正在为自由挺身而出。 他们在为每一个面临接种新冠 COVID 疫苗或被解雇最后通牒的工人挺身而出。 [#人民车队](https://twitter.com/hashtag/人民车队?src=hashtag_click)
+
+【附克鲁兹议员加入人民车队的视频讲话】
+
+
+
+> The truckers are standing up for freedom.
+>  
+> They are standing up for every worker who is facing the ultimatum of take the COVID vaccine or be fired.
+>  [#ThePeoplesConvoy](https://twitter.com/hashtag/ThePeoplesConvoy?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/3B9whQ5X08](https://t.co/3B9whQ5X08)
+> — Senator Ted Cruz (@SenTedCruz) [March 12, 2022](https://twitter.com/SenTedCruz/status/1502707932538023939?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 
