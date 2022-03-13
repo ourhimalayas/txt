@@ -2,44 +2,77 @@
 ---
 
 
-## 救援前线：新中国联邦“豪华大帐篷”系列报道二
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2153711/)
+## 七国集团与欧盟加大对俄罗斯的制裁力度
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2153793/)
 
-#### ——新建二号大帐篷，新中国联邦咖啡香飘四方
+**拜登总统**： 民主国家正在崛起以迎接这一时刻的到来，将世界团结到和平与安全的一边。 我们正在展示我们的力量 —— 我们不会动摇。
 
-作者/编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/二号大棚.jpg)图片来源：救援前线电报群
+【附拜登视频讲话, 他说： 我们将确保 [#乌克兰](https://gettr.com/hashtag/%23乌克兰) 拥有防御入侵俄军的武器。 我们将提供资金、食物和援助来拯救乌克兰人民。 我将欢迎乌克兰难民。 我们应该张开双臂欢迎他们来到这里。 我们将继续与我们在欧洲的盟友站在一起，并发出一个明确无误的信息：我们将以团结鼓舞的北约的全部力量来保卫北约的每一寸领土。 我们不会在乌克兰与俄罗斯开战。 北约和俄罗斯之间的直接对抗将会是第三次世界大战 —— 我们必须努力防止这种情况的发生。 但我们已经知道，#普京 对乌克兰的战争永远不会取得胜利。 他想要不战而主宰乌克兰，但他失败了。 他想要打破欧洲的决心，但他失败了。 他想要削弱跨大西洋联盟，但他失败了。 他想要在我们的立场上分裂美国民主，但他失败了。 美国人民团结起来了，世界团结起来了，我们与乌克兰人民站在一起。 我们不会让 [#盗国贼](https://gettr.com/hashtag/%23盗国贼) 和 [#皇帝](https://gettr.com/hashtag/%23皇帝) 来支配世界的方向。 民主国家正在崛起以迎接这一时刻，将世界团结到和平与安全的一边。 我们正在展示我们的力量，我们不会动摇。 上帝保佑你们。 上帝保佑乌克兰，上帝保佑我们的军队。】
 
 
-当地时间3月12日，据乌克兰救援前方记者Reply报道，正值新中国联邦豪华大帐篷扬名梅蒂卡小镇救援中心之际，二号大帐篷于当日搭建完毕，难民接待能力直接翻番。以下是二号大帐篷搭建的视频，为我们前方战友的行动力喝彩！
 
-视频来源：救援前线电报群
-
-3月11日的文贵大直播里，郭先生让前方战友进货1000公斤咖啡豆，让乌克兰前线的战友和整个救援中心的工作人员以及难民都能喝到现磨的新中国联邦咖啡。果然，新中国联邦咖啡香飘梅蒂卡救援中心，慕名而来的工作人员络绎不绝。据前方记者妮可报道：
-
-夜幕降临，法治基金新中国联邦在梅蒂卡的盘古七星级大帐篷已经从难民营变成一个汇聚全球爱心的国际俱乐部了，由郭先生命名的NFS C 咖啡吸引了很多欧美的战地记者和新闻工作者，他们纷纷来到这里喝咖啡、采访难民，顺便休息和聊天，我们这里快成梅蒂卡新闻中心了，以下这位是法新社获奖战地摄影记者Louisa Gouliamaki。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/二号大棚12.jpg)图片来源：视频截屏
+> Democracies are rising to meet this moment, rallying the world to the side of peace and security.
+>  
+> We are showing our strength — and we will not falter. [pic.twitter.com/UsMf8z8P45](https://t.co/UsMf8z8P45)
+> — President Biden (@POTUS) [March 12, 2022](https://twitter.com/POTUS/status/1502460104536375297?ref_src=twsrc%5Etfw)
 
 
-这位女士有着20多年的战地记者生涯，去过世界很多的战区和难民营，当我问她，咱们法治基金新中国联邦的大帐篷怎么样时，她说 “Perfect” (完美）“Very nice“ “We need this place” (我们需要这个地方）。昨天刚自愿加入法治基金新中国联邦营救义工团队的波兰本地人Peter， 亲自为Louisa Gouliamaki 女士做咖啡。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/二号大棚3.jpg)图片来源：视频截屏
+**美国国务院**： 美国政府正在采取行动，向普京及其核心圈子发出明确的信息，即我们将提高 [#俄罗斯](https://twitter.com/hashtag/俄罗斯?src=hashtag_click) 在 [#乌克兰](https://twitter.com/hashtag/乌克兰?src=hashtag_click) 无理开战的代价。 美国与乌克兰站在一起，确认其人民的勇敢和英雄主义行为。
 
-
-与此同时，我们的大帐篷迎来了一群从荷兰开车过来给法治基金送救援物资的人们，很多都是来自欧洲各地，自愿为难民捐食物、儿童用品和睡袋等物品。在梅蒂亚的盘古七星级大帐篷正在成为一个集结全球爱心国际大家庭。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/二号大棚4.jpg)图片来源：视频截屏
+【附美国务院发文：针对俄罗斯联邦精英进行打击。美国国务院、财政部和商务部已采取额外的全面行动，作为我们与我们的盟友及合作伙伴，一起应对俄罗斯联邦对乌克兰发动有预谋、无端和无理的战争的一部分。 我们致力于确保俄罗斯政府为其进一步入侵乌克兰付出沉重的经济和外交代价……（并列出制裁人员名单）】
 
 
-资料来源：救援前线电报群
-*发布：文泓*
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+> The U.S. government is taking actions and sending a clear message to Putin and his inner circle that we will up the cost of Russia's unjustified war in Ukraine. The United States stands with Ukraine and recognizes the bravery and heroism of its people. [https://t.co/RpVp0BDjxr](https://t.co/RpVp0BDjxr)
+> — Department of State (@StateDept) [March 12, 2022](https://twitter.com/StateDept/status/1502539891607019524?ref_src=twsrc%5Etfw)
+
+
+
+**众议院少数党领袖凯文·麦卡锡 **： 在拜登总统领导下，从俄罗斯进口的能源增加了 34% —— 但现在他甚至想进一步增加我们对外国能源的依赖。 当我们在自家后院拥有更清洁、更便宜的能源时，我们不需要依赖独裁者。 【附cnbc专栏文章：拜登需要迅速增加美国能源产量以减少对俄罗斯的依赖】
+
+
+
+> Under President Biden, energy imports from Russia increased by 34%—but now he wants to increase our reliance on foreign energy even more.
+>  
+> We don’t need to rely on dictators when we have cleaner, cheaper energy in our own backyard.[https://t.co/BBwYXjWVgI](https://t.co/BBwYXjWVgI)
+> — Kevin McCarthy (@GOPLeader) [March 12, 2022](https://twitter.com/GOPLeader/status/1502654169529913349?ref_src=twsrc%5Etfw)
+
+
+
+**参议员马可·卢比奥**： 是时候开始为这样一个事实做准备了，普京对世界主要小麦生产国之一的犯罪入侵, 将导致包括美国在内的粮食价格大幅上涨、以及世界许多地区的粮食不安全的危机
+
+
+
+> It is time to start preparing for the fact that [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)’s criminal invasion of one of the worlds leading wheat producers is going to result in a massive increase in food prices including here in America & a food insecurity crisis in many parts of the world
+> — Marco Rubio (@marcorubio) [March 12, 2022](https://twitter.com/marcorubio/status/1502661176605487104?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎·布莱克本**： 迪士尼为了公共关系，暂停了在俄罗斯的业务往来，但他们仍在与 [#共产主义中国](https://twitter.com/hashtag/共产主义中国?src=hashtag_click) 做交易。
+
+
+
+> Disney paused business dealings in Russia for PR, but they’re still making deals with Communist China.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 12, 2022](https://twitter.com/MarshaBlackburn/status/1502751286374113295?ref_src=twsrc%5Etfw)
+
+
+
+**参议员泰德·克鲁兹**： 卡车司机正在为自由挺身而出。 他们在为每一个面临接种新冠 COVID 疫苗或被解雇最后通牒的工人挺身而出。 [#人民车队](https://twitter.com/hashtag/人民车队?src=hashtag_click)
+
+【附克鲁兹议员加入人民车队的视频讲话】
+
+
+
+> The truckers are standing up for freedom.
+>  
+> They are standing up for every worker who is facing the ultimatum of take the COVID vaccine or be fired.
+>  [#ThePeoplesConvoy](https://twitter.com/hashtag/ThePeoplesConvoy?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/3B9whQ5X08](https://t.co/3B9whQ5X08)
+> — Senator Ted Cruz (@SenTedCruz) [March 12, 2022](https://twitter.com/SenTedCruz/status/1502707932538023939?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 

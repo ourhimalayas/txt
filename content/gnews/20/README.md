@@ -2,17 +2,22 @@
 ---
 
 
-## 20220309文贵大直播：五年来中共从没停止对郭先生和爆料革命的攻击
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2153759/)
+## 乌克兰救援前线视频（三）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2153852/)
 
-作者:东京樱花团小视频组
+**视频制作：**James
+**封面设计：**精靈藍
+**封底设计：**614
+**监制：**精靈藍
+**编辑/发布：**翼族
 
-校对：东京樱花团小视频组
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-编辑发布：东京樱花团小视频组
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

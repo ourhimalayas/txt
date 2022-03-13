@@ -2,40 +2,24 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“生物科技”（五）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2153882/)
+## 俄乌战争简讯 俄军死亡人数远超乌军
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2154002/)
 
-整理：BENJ1
-编辑：Kelly
+翻译：公平
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/6a612dfb3ccf6e42.png)图片来源：雅典娜设计组
+编辑与校对：冰糖葫芦喵
+
+据BBC新闻3月12日报道，**乌克兰总统泽伦斯基在今天的基辅新闻发布会表示，大约有1600名乌克兰军人丧生。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phpVPHNxI.jpg)
+据报道，自俄罗斯入侵乌克兰17天以来，俄罗斯军队的死亡人数远远超过乌克兰。
+
+**西方消息人士周五估计，在俄乌战争期间，俄罗斯军队死亡人数约有6000名。**
+
+新闻来源链接：
+
+[https://www.bbc.com/news/live/world-europe-60717902?ns\_mchannel=social&ns\_source=twitter&ns\_campaign=bbc\_live&ns\_linkname=622caef30ce87e491a0ef37a%26Around%201%2C300%20Ukrainian%20troops%20killed%20so%20far%20-%20Zelensky%262022-03-12T14%3A34%3A52.143Z&ns\_fee=0&pinned\_post\_locator=urn:asset:ce861ba2-4d36-474d-aea4-b0e4f6a177b8&pinned\_post\_asset\_id=622caef30ce87e491a0ef37a&pinned\_post\_type=share](https://www.bbc.com/news/live/world-europe-60717902?ns_mchannel=social&amp;ns_source=twitter&amp;ns_campaign=bbc_live&amp;ns_linkname=622caef30ce87e491a0ef37a%26Around%201%2C300%20Ukrainian%20troops%20killed%20so%20far%20-%20Zelensky%262022-03-12T14%3A34%3A52.143Z&amp;ns_fee=0&amp;pinned_post_locator=urn:asset:ce861ba2-4d36-474d-aea4-b0e4f6a177b8&amp;pinned_post_asset_id=622caef30ce87e491a0ef37a&amp;pinned_post_type=share)
 
 
-郭文贵**2021**年**5**月**30**日直播
-世界上的生化、生物科技、生物武器最牛的不是中共，也不是美国，是俄罗斯。如果说美国的经济实力、科技和俄罗斯比较的话，俄罗斯是一个80岁的老人对付一个年轻力壮的18岁、装备现代化武器的、浑身是钱的这么一个年轻人，俄罗斯没有可能赢。
-
-但是对付一些黑科技，例如生物武器，还有某些战略性武器的话，俄罗斯不输美国，有些方面甚至赢过美国。世界上最早谈生物武器和生物科技武器化，甚至拿出了标准的原始鼻祖就是俄罗斯，还有乌克兰。中共国的这一套黑科技哪儿学的？全是在俄罗斯学的。所以他在俄罗斯鼻祖面前想撒谎他是撒过不去的，某种程度甚至有合作。
-
-郭文贵先生**2021**年**8**月**1**日直播
-人类走向新的文明对抗的时代，最后是邪恶接近控制世界的时候，还是被世界有信仰的、有宗教的海洋文明国家的科技文明力量消灭在世界上、地球上，否则地球全人类都会被消灭。这里面生物科技战、化学战、科技战、网络战、太空战、宗教战、夹杂在其中。
-
-在这场的人类生死决择（的大战）当中，最有力的武器是社交媒体、虚拟货币，一定是这样。2025年绝对不可能有共产党，中国人一定被解放，世界上一定会和共产主义有个大对决。我们新中国联邦在这个时候，要避免两件事情，就做两件事情，我们绝对不能成为战场中的一份子，我们要成为收拾战场的那个人。
-
-郭文贵先生**2021**年**8**月**11**日直播
-什么叫G-Club，什么叫G-Fashion，未来的结合体——AI、5G智能化、新型材料、生物科技、互联网的新时代、太空研发的时代。
-
-如果你不加入这场正道主义的灭共的事业，你会有机会坐上太空船去外太空旅行吗？你能每年享受新的空中飞机这种革命性的文明结果吗？生物科技对人类未来三到五年，癌症绝对是一粒药、几粒药就能彻底解决，糖尿病一定没有了，而且干细胞一定会得到发展，人类换肝、换肾、换心脏就跟你今天去换个美甲一样简单，只是钱的问题。你能享受这个文明吗？
-
-资料来源：郭先生GTV和盖特直播视频
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

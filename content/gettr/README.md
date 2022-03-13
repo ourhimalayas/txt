@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 2:21 AM (UTC)`
+
+【Ukraine Rescue】03/12/2022 Award-winning AFP war correspondent is very impressed with the NFSC & ROLF's rescue center in Medyka, Poland.<br/><br/>【乌克兰救援】03/12/2022 获奖法新社战地记者对新中国联邦和法治基金的难民救助中心印象非常深刻。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group39/getter/2022/03/13/02/fe2cb4b7-73cd-e249-294c-f6e4c6e1db8b/out.jpg)
+
+---
+
+`@miles 3/13/2022 2:12 AM (UTC)`
+
+2022.03.12 晚《新中国联邦新闻访谈》乌克兰最新救援信息分享；新中国联邦边境救人，中共用旧图称救援乌克兰；香港疫情肆虐，新病毒？；关于辉瑞中共疫苗副反应的质疑
+![img](https://media.gettr.com/group31/origin/2022/03/13/02/b0593707-ceea-56bc-1df3-81d51fbb7688/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/13/2022 1:28 AM (UTC)`
 
 2022.03.12 晚 《新中国联邦新闻》新中国联邦人展示国际化新形象；波兰租车公司老板加入新中国联邦救援团队
@@ -145,20 +159,6 @@
 
 【Ukraine Rescue】03/12/2022 Fellow fighter Nicole introduces the New Federal State of China and the Rule of Law Foundation Ukraine Rescue Operation to the biggest Polish news FAKT, also revealing the Chinese government has been interfering and sabotaging our rescue operation all along<br/><br/>【乌克兰救援】03/12/2022 妮可战友向波兰最大报纸FAKT介绍新中国联邦和法治基金的乌克兰救援行动，并揭露中共政府一直在干扰破坏我们的救援工作<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group11/getter/2022/03/12/15/569a7be4-6445-cae8-d782-1fb644fb32d7/out.jpg)
-
----
-
-`@miles 3/12/2022 3:20 PM (UTC)`
-
-3月12号：尊敬的战友们好，新中国联邦人……正在乌克兰战场……中东的能源市场，全世界的数字货币领域，向世界展示爱好和平，聪明，智慧无私新中国人的国际形象。正在全世界阻止由于共产党，在全世界制造的仇恨，导致，将发生大规模排华的灾难的到来，任何一个新中国联邦人，都是中华民族的英雄，我们一定要阻止在全世界排华灾难的发生！建立良好的新中国人形象！
-![img](https://media.gettr.com/group41/getter/2022/03/12/15/b1fb53f5-1892-b337-4beb-ccc2a5bba5f7/out.jpg)
-
----
-
-`@miles 3/12/2022 12:43 PM (UTC)`
-
-
-![img](https://media.gettr.com/group12/origin/2022/03/12/07/021f74f1-c770-3b2e-6df2-eba05efd2466/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

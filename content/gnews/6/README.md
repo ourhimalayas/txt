@@ -2,24 +2,39 @@
 ---
 
 
-## 俄乌战争简讯 俄军死亡人数远超乌军
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2154002/)
+## 联合国安理会开始讨论关于美国在乌克兰的生物武器实验室的说法
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2154066/)
 
-翻译：公平
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-23.png)
 
-编辑与校对：冰糖葫芦喵
+图片来自原文
 
-据BBC新闻3月12日报道，**乌克兰总统泽伦斯基在今天的基辅新闻发布会表示，大约有1600名乌克兰军人丧生。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpVPHNxI.jpg)
-据报道，自俄罗斯入侵乌克兰17天以来，俄罗斯军队的死亡人数远远超过乌克兰。
+3月9日，周三，白宫新闻秘书珍-普萨基（Jen Psaki）发出公开警告，称俄罗斯可能对其入侵的邻国乌克兰使用化学或生物武器。以回应本周俄罗斯外交部发言人玛丽亚-扎哈罗娃（Maria Zakharova）在没有证据的情况下提出的美国在乌克兰的生物武器实验室的指控。
 
-**西方消息人士周五估计，在俄乌战争期间，俄罗斯军队死亡人数约有6000名。**
+3月9日，俄罗斯第一联合国副大使德米特里-波利安斯基（Dmitry Polyansky）再次指控，敦促西方媒体报道 “关于乌克兰秘密生物实验室的新闻”。
 
-新闻来源链接：
+3月9日，五角大楼新闻秘书约翰-柯比（John Kirby）称俄罗斯的说法是 “一派胡言”。
 
-[https://www.bbc.com/news/live/world-europe-60717902?ns\_mchannel=social&ns\_source=twitter&ns\_campaign=bbc\_live&ns\_linkname=622caef30ce87e491a0ef37a%26Around%201%2C300%20Ukrainian%20troops%20killed%20so%20far%20-%20Zelensky%262022-03-12T14%3A34%3A52.143Z&ns\_fee=0&pinned\_post\_locator=urn:asset:ce861ba2-4d36-474d-aea4-b0e4f6a177b8&pinned\_post\_asset\_id=622caef30ce87e491a0ef37a&pinned\_post\_type=share](https://www.bbc.com/news/live/world-europe-60717902?ns_mchannel=social&amp;ns_source=twitter&amp;ns_campaign=bbc_live&amp;ns_linkname=622caef30ce87e491a0ef37a%26Around%201%2C300%20Ukrainian%20troops%20killed%20so%20far%20-%20Zelensky%262022-03-12T14%3A34%3A52.143Z&amp;ns_fee=0&amp;pinned_post_locator=urn:asset:ce861ba2-4d36-474d-aea4-b0e4f6a177b8&amp;pinned_post_asset_id=622caef30ce87e491a0ef37a&amp;pinned_post_type=share)
+3月10日，周四，联合国发言人斯蒂芬-杜雅里克 （Stephane Dujarric）重申了他周三所说的，一直与乌克兰政府合作的世界卫生组织表示，他们不知道乌克兰政府有任何不符合其国际条约义务的活动，包括关于化学武器或生物武器。
 
+3月10日下午，俄大使德米特里-波利安斯基在推特上呼吁召开安理会会议。在波利安斯基的推文之后，俄罗斯国防部的一条推文提到了 “关于美国在乌克兰境内的军事生物活动相关文件分析结果的简报”。
 
+此前拜登（Biden）政府拒绝了俄罗斯关于乌克兰在美国支持下运行化学和生物实验室的指责。
+
+安理会外交官证实，应俄罗斯的要求，联合国安理会将于3月11日，周五，美国东部时间上午10点举行会议，讨论莫斯科声称的 “美国在乌克兰境内的军事生物活动”。在正式宣布之前，他们以匿名的方式发言。
+
+普萨基（Psaki）称俄罗斯的说法是 “荒谬的”，并在推特上说：”这都是俄罗斯的明显策略，试图为其进一步有预谋的、无缘无故的对乌克兰的攻击辩护。”
+
+美国几个月来一直警告说，俄罗斯会采取 “假旗 “行动，为入侵制造借口。
+
+白宫的警告表明，俄罗斯可能试图为进一步升级已为期两周的冲突制造借口，俄罗斯的攻势被强于预期的乌克兰防卫者减缓，但并未停止。
+
+英国副大使詹姆斯-卡里乌基(James Kariuki)告诉安理会，俄罗斯在乌克兰的行动–围攻城市、滥杀平民、迫使数百万人逃离以寻求安全–与其在叙利亚的行动之间的 “相似之处 ““很明显”。
+
+新闻来源链接：[https://www.theweek.in/news/world/2022/03/11/unsc-to-meet-today-to-discuss-russian-claims-of-us-bioweapon-labs-in-ukraine.html](https://www.theweek.in/news/world/2022/03/11/unsc-to-meet-today-to-discuss-russian-claims-of-us-bioweapon-labs-in-ukraine.html)
+
+本文作者：Rebecca (一切心皆不可得！)
+上传排版：Hong
 
  
 
