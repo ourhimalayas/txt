@@ -2,76 +2,32 @@
 ---
 
 
-## 七国集团与欧盟加大对俄罗斯的制裁力度
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2153793/)
+## 成年人达不到立案标准！传85后女子失踪 公安拒立案并威胁家人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2153432/)
 
-**拜登总统**： 民主国家正在崛起以迎接这一时刻的到来，将世界团结到和平与安全的一边。 我们正在展示我们的力量 —— 我们不会动摇。
+撰稿：东京樱花团｜Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1356.png)
+据【看中国】2022年3月11日相关报道，江苏省徐州市“8孩案”震动全国，虽然中共官方扬言要“严惩”拐卖妇女儿童犯罪行为，但实际操作却又刻意淡化此事。近日又传出在山东省淄博市一名女子5年前失踪，迄今公安拒绝立案，女子家人网上寻人竟遭公安电话警告，引发民间关注。
 
-【附拜登视频讲话, 他说： 我们将确保 [#乌克兰](https://gettr.com/hashtag/%23乌克兰) 拥有防御入侵俄军的武器。 我们将提供资金、食物和援助来拯救乌克兰人民。 我将欢迎乌克兰难民。 我们应该张开双臂欢迎他们来到这里。 我们将继续与我们在欧洲的盟友站在一起，并发出一个明确无误的信息：我们将以团结鼓舞的北约的全部力量来保卫北约的每一寸领土。 我们不会在乌克兰与俄罗斯开战。 北约和俄罗斯之间的直接对抗将会是第三次世界大战 —— 我们必须努力防止这种情况的发生。 但我们已经知道，#普京 对乌克兰的战争永远不会取得胜利。 他想要不战而主宰乌克兰，但他失败了。 他想要打破欧洲的决心，但他失败了。 他想要削弱跨大西洋联盟，但他失败了。 他想要在我们的立场上分裂美国民主，但他失败了。 美国人民团结起来了，世界团结起来了，我们与乌克兰人民站在一起。 我们不会让 [#盗国贼](https://gettr.com/hashtag/%23盗国贼) 和 [#皇帝](https://gettr.com/hashtag/%23皇帝) 来支配世界的方向。 民主国家正在崛起以迎接这一时刻，将世界团结到和平与安全的一边。 我们正在展示我们的力量，我们不会动摇。 上帝保佑你们。 上帝保佑乌克兰，上帝保佑我们的军队。】
+据张晶晶亲人在微博指出，1985年出生的张晶晶，今年37岁，籍贯山东省菏泽市单县张集镇张楼村，她身高1.65米左右，眼睛近视，毕业于山东交通学院，曾在山东开泰集团工作两年。张晶晶于2017年1月14日在山东省淄博市走失，走失时她身穿单衣，两手抱着一件白色毛裤，当天她从淄博市妇幼保健院走出，最后的监控画面显示，当天下午7时她走到联通路尽头，走向高新区军屯村所在的山头，之后不知所向。
 
+“当时她儿子才1岁多，在妇幼保健院生病住院。”据张晶晶家人描述，在得知她失踪后，他们从菏泽连夜赶到淄博，并报警寻求警察帮助，但警方称“成年人走失不能立案”，“只能靠亲戚朋友帮忙寻找”。
 
+家人指出，张晶晶迄今走失5年，家人没日没夜寻找，除了之前在高新区军屯村所在山上找到她走失时穿着的黑色裤子和手中抱着的白色毛裤，迄今没有发现其它线索，家人猜测张晶晶恐怕遭人拐卖。其家人还说，每每想到张晶晶可能过着非人的生活，可能没有自由，没有自我，吃不饱，穿不暖，他们的心“就像被撕裂一样疼痛不止”。
 
-> Democracies are rising to meet this moment, rallying the world to the side of peace and security.
->  
-> We are showing our strength — and we will not falter. [pic.twitter.com/UsMf8z8P45](https://t.co/UsMf8z8P45)
-> — President Biden (@POTUS) [March 12, 2022](https://twitter.com/POTUS/status/1502460104536375297?ref_src=twsrc%5Etfw)
+网传求助信息还提及，张晶晶年近70的年迈父母由于思女心切，多次下跪请求淄博市张店区杏园派出所帮忙寻找，但都未果。“她的儿子现在天天哭着找妈妈，她的母亲承受不住打击，生病卧床，她的丈夫放弃工作天天奔波在寻找的路上，由于达不到立案标准，请求好心人发现疑似人员请将其拦下联络15092660828（微信号）”。
 
+根据3月4日帖文显示，张晶晶家人向外界发出求救文后，张晶晶姐姐张艳娇收到淄博杏园派出所的电话，质问他们为何在网上发寻人信息。张艳娇回答说，“我丢失了妹妹，生死未卜，你们不立案寻找，我自己还不能借助网络和网友的力量寻找吗？难道只能眼巴巴地等？难道只能关上门哭？”
 
+截止3月11日上午11时许，微博上关于“山东37岁女子失联5年家属苦寻无果”的标签吸引了3.6万人关注，但相关留言内容疑似陆续遭到移除。大陆媒体“腾讯新闻”几天前曾报导的一篇关于“发微博寻亲”的消息，目前也遭到删除，原因不明。
 
-**美国国务院**： 美国政府正在采取行动，向普京及其核心圈子发出明确的信息，即我们将提高 [#俄罗斯](https://twitter.com/hashtag/俄罗斯?src=hashtag_click) 在 [#乌克兰](https://twitter.com/hashtag/乌克兰?src=hashtag_click) 无理开战的代价。 美国与乌克兰站在一起，确认其人民的勇敢和英雄主义行为。
+**明摆着这个国家不属于人民，这个国家并不会为人民服务。一切都是宣传，老百姓连个公民都不是，却一厢情愿地爱国。被顺奸后的“贱民”到死都不明白这个国家并不属于我们。我们都是被绑架的人质，撕票都有可能，还指望强盗来救你，做梦——中国梦。**
 
-【附美国务院发文：针对俄罗斯联邦精英进行打击。美国国务院、财政部和商务部已采取额外的全面行动，作为我们与我们的盟友及合作伙伴，一起应对俄罗斯联邦对乌克兰发动有预谋、无端和无理的战争的一部分。 我们致力于确保俄罗斯政府为其进一步入侵乌克兰付出沉重的经济和外交代价……（并列出制裁人员名单）】
+信息来源：[**再传85后女失踪公安拒立案 家人网上寻人遭威胁**](https://m.secretchina.com/news/gb/2022/03/11/1000230.html)
 
-
-
-> The U.S. government is taking actions and sending a clear message to Putin and his inner circle that we will up the cost of Russia's unjustified war in Ukraine. The United States stands with Ukraine and recognizes the bravery and heroism of its people. [https://t.co/RpVp0BDjxr](https://t.co/RpVp0BDjxr)
-> — Department of State (@StateDept) [March 12, 2022](https://twitter.com/StateDept/status/1502539891607019524?ref_src=twsrc%5Etfw)
-
-
-
-**众议院少数党领袖凯文·麦卡锡 **： 在拜登总统领导下，从俄罗斯进口的能源增加了 34% —— 但现在他甚至想进一步增加我们对外国能源的依赖。 当我们在自家后院拥有更清洁、更便宜的能源时，我们不需要依赖独裁者。 【附cnbc专栏文章：拜登需要迅速增加美国能源产量以减少对俄罗斯的依赖】
-
-
-
-> Under President Biden, energy imports from Russia increased by 34%—but now he wants to increase our reliance on foreign energy even more.
->  
-> We don’t need to rely on dictators when we have cleaner, cheaper energy in our own backyard.[https://t.co/BBwYXjWVgI](https://t.co/BBwYXjWVgI)
-> — Kevin McCarthy (@GOPLeader) [March 12, 2022](https://twitter.com/GOPLeader/status/1502654169529913349?ref_src=twsrc%5Etfw)
-
-
-
-**参议员马可·卢比奥**： 是时候开始为这样一个事实做准备了，普京对世界主要小麦生产国之一的犯罪入侵, 将导致包括美国在内的粮食价格大幅上涨、以及世界许多地区的粮食不安全的危机
-
-
-
-> It is time to start preparing for the fact that [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)’s criminal invasion of one of the worlds leading wheat producers is going to result in a massive increase in food prices including here in America & a food insecurity crisis in many parts of the world
-> — Marco Rubio (@marcorubio) [March 12, 2022](https://twitter.com/marcorubio/status/1502661176605487104?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎·布莱克本**： 迪士尼为了公共关系，暂停了在俄罗斯的业务往来，但他们仍在与 [#共产主义中国](https://twitter.com/hashtag/共产主义中国?src=hashtag_click) 做交易。
-
-
-
-> Disney paused business dealings in Russia for PR, but they’re still making deals with Communist China.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 12, 2022](https://twitter.com/MarshaBlackburn/status/1502751286374113295?ref_src=twsrc%5Etfw)
-
-
-
-**参议员泰德·克鲁兹**： 卡车司机正在为自由挺身而出。 他们在为每一个面临接种新冠 COVID 疫苗或被解雇最后通牒的工人挺身而出。 [#人民车队](https://twitter.com/hashtag/人民车队?src=hashtag_click)
-
-【附克鲁兹议员加入人民车队的视频讲话】
-
-
-
-> The truckers are standing up for freedom.
->  
-> They are standing up for every worker who is facing the ultimatum of take the COVID vaccine or be fired.
->  [#ThePeoplesConvoy](https://twitter.com/hashtag/ThePeoplesConvoy?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/3B9whQ5X08](https://t.co/3B9whQ5X08)
-> — Senator Ted Cruz (@SenTedCruz) [March 12, 2022](https://twitter.com/SenTedCruz/status/1502707932538023939?ref_src=twsrc%5Etfw)
-
-
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
 
 
  

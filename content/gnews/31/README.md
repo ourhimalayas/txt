@@ -2,34 +2,44 @@
 ---
 
 
-## 六枚火箭袭击了库尔德电视台、美国驻伊拉克领事馆
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2154156/)
+## 救援前线：新中国联邦“豪华大帐篷”系列报道二
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2153711/)
 
-作者：夕夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-69.png)
-突发事件2022 年 3 月 12 日下午 6:54来自伊拉克国家电视台、阿拉伯天空新闻和耶路撒冷邮报正在报道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-12-下午9.10.44.png)
-伊拉克埃尔比勒的爆炸事件，有6枚火箭弹袭击了该市。据报道，袭击发生在一个正在建设中的美国领事馆附近。
+#### ——新建二号大帐篷，新中国联邦咖啡香飘四方
 
-这条消息在推特上爆出，一些细节仍在不断变化，但大多数媒体报道称，库尔德卫星频道 k24 遭受了打击。
+作者/编辑：文泓
 
-阿拉伯天空新闻报道称，“正在伊拉克北部埃尔比勒市建造的美国大使馆总部遭到五枚远程导弹的袭击。
-
-以下是《[耶路撒冷邮报》](https://www.jpost.com/breaking-news/article-701103)的更多内容：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/二号大棚.jpg)图片来源：救援前线电报群
 
 
-> 埃尔比勒省长奥梅德·霍什瑙表示，多枚导弹落入该地区，并表示尚不清楚目标是美国领事馆还是该市的机场。据 INA 称，袭击中听到了五声爆炸声。
+当地时间3月12日，据乌克兰救援前方记者Reply报道，正值新中国联邦豪华大帐篷扬名梅蒂卡小镇救援中心之际，二号大帐篷于当日搭建完毕，难民接待能力直接翻番。以下是二号大帐篷搭建的视频，为我们前方战友的行动力喝彩！
+
+视频来源：救援前线电报群
+
+3月11日的文贵大直播里，郭先生让前方战友进货1000公斤咖啡豆，让乌克兰前线的战友和整个救援中心的工作人员以及难民都能喝到现磨的新中国联邦咖啡。果然，新中国联邦咖啡香飘梅蒂卡救援中心，慕名而来的工作人员络绎不绝。据前方记者妮可报道：
+
+夜幕降临，法治基金新中国联邦在梅蒂卡的盘古七星级大帐篷已经从难民营变成一个汇聚全球爱心的国际俱乐部了，由郭先生命名的NFS C 咖啡吸引了很多欧美的战地记者和新闻工作者，他们纷纷来到这里喝咖啡、采访难民，顺便休息和聊天，我们这里快成梅蒂卡新闻中心了，以下这位是法新社获奖战地摄影记者Louisa Gouliamaki。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/二号大棚12.jpg)图片来源：视频截屏
 
 
-照片和视频正在网上分享，其中一些声称显示 k24 工作室的损坏。[https://twitter.com/AmichaiStein1/status/1502797470862131207](https://twitter.com/AmichaiStein1/status/1502797470862131207)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-12-下午9.08.18-1.png)
-参考链接：[https://www.mediaite.com/news/breaking-rocket-attacks-reportedly-strike-kurdish-tv-station-u-s-consulate-in-iraq-videos-show-huge-explosions/](https://www.mediaite.com/news/breaking-rocket-attacks-reportedly-strike-kurdish-tv-station-u-s-consulate-in-iraq-videos-show-huge-explosions/)
+这位女士有着20多年的战地记者生涯，去过世界很多的战区和难民营，当我问她，咱们法治基金新中国联邦的大帐篷怎么样时，她说 “Perfect” (完美）“Very nice“ “We need this place” (我们需要这个地方）。昨天刚自愿加入法治基金新中国联邦营救义工团队的波兰本地人Peter， 亲自为Louisa Gouliamaki 女士做咖啡。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/二号大棚3.jpg)图片来源：视频截屏
 
 
+与此同时，我们的大帐篷迎来了一群从荷兰开车过来给法治基金送救援物资的人们，很多都是来自欧洲各地，自愿为难民捐食物、儿童用品和睡袋等物品。在梅蒂亚的盘古七星级大帐篷正在成为一个集结全球爱心国际大家庭。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/二号大棚4.jpg)图片来源：视频截屏
 
 
+资料来源：救援前线电报群
+*发布：文泓*
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

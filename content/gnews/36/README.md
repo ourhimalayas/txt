@@ -2,25 +2,37 @@
 ---
 
 
-## 乌克兰鼓励俄军投降！缴械投降获500万卢布并赦免
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2153712/)
+## 前线快报&#8212;-3月12日 包括一名出生6天的婴儿在内的12名乌克兰妇女和儿童已撤离前往波兰
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2153263/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3564083-PH.jpg)图片来源：俄罗斯国防部
+**3月12日 俄乌战争第17天，乌克兰—利沃夫Lviv前线报道**
 
-俄罗斯全面入侵乌克兰，乌克兰多个城镇都受到战火，军队及平民死伤不断上升，世界各国纷纷祭出制裁，以期制止俄罗斯的暴行。乌克兰政府为了鼓励俄军「弃械投降」，在全球资讯科技（IT）界资助下，提供俄军每人500万卢布奖金，并予以赦免。
+**包括一名出生才6天的婴儿在内的12名乌克兰妇女和儿童，顺利从乌克兰利沃夫登上救援大巴已安全撤离前往波兰**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/031101.jpg)
+[盖特视频链接](https://www.gettr.com/post/pzoe866b2c)
 
-乌克兰总统泽伦斯基日前发布影片，向俄罗斯的母亲们喊话，不要将孩子送上战场，也不要轻信孩子将被派往某地进行训演习或非战斗条件的说词，并对孩子行踪保持警觉。
+从东部战区逃出来的12名被困乌克兰民众，包括一个才出生6天的婴儿和多名妇女儿童，登上了法治基金和新中国联邦的救援大巴。
 
-简评：普京忽悠俄军去送死，之后他们胸前挂满了勋章。俄军向乌克兰缴械投降予以赦免还有钱赚，更重要的是不为邪恶效力，不被邪恶奴役。这样的好事，不投降的俄军就是傻蛋。
+难民通过联系前线救援队在乌的志愿者，历经周折，安全从利沃夫出发往波兰撤离。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1348.png)
+愿这个在战火中出生的宝宝能够在和平安全的环境下健康成长，停止战争，呼吁和平！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1349.png)
+新中国联邦、法治基金、法治社会与国际救援组织合作，免费帮助华人同胞、乌克兰同胞、美国同胞以及全球同胞撤离乌克兰战区。根据求助者的护照及签证情况，撤离地点为美国和其他安全中转国。请有需要的全球同胞与新中国联邦24小时紧急救援客服联系。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/grafik-21.png)
+***编辑：【英国伦敦喜庄园编辑部】***
 
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1084181)
+* * *
 
-撰稿/发布：一叶知秋
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

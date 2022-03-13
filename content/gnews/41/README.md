@@ -2,24 +2,36 @@
 ---
 
 
-## 中共国疫情爆发，多点开花
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2153429/)
+## 美国和北约紧急支援乌克兰防空导弹
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151995/)
 
-撰稿：东京樱花团/Garrettw
+作者：纽约香草山 – 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国媒体3月11日报道，美国和北约正以极快的速度向乌克兰运送武器，包括高度敏感的便携式防空导弹系统。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-19.jpg)
+西方交付的这批武器，对于乌克兰来说至关重要，可以比美国情报部门预计的更有效、更猛烈的方式打击入侵的俄罗斯军队。
 
-3月11日， 31个省份新增本土“476+1048”，无症状感染者单日新增破千例。单日新增本土无症状感染者破千，连续6日无症状感染者数量超过确诊病例数量。自3月6日以来，全中国单日新增的本土无症状感染者，已经连续6日在300例以上，均超过确诊病例数量。目前，奥密克戎毒株已取代德尔塔毒株成为全球范围内的主要流行毒株。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-57.jpg)[图片来源](https://voice.baidu.com/act/newpneumonia/newpneumonia/?from=osari_aladin_banner)
-中共在数据上继续选择性的报道，领导满意的态度去处理，中共的核酸检测管用吗，确诊的患者是真正的感染还是疫苗副作用导致，我们无从知晓；另一个角度去看针对次轮的疫情在中国大陆多点开花，时间点也许是个巧合，冬奥会之后，残奥会也即将结束，俄乌战争之时，乱中取胜，危中有机，中共一贯如此，郭文贵先生曾在2022年3月11日的直播中提到3月底到4月会在中东挑起能源战争和再次放毒，然后伺机拿下台湾。这次的疫情是为中东的投毒在演一场戏吗？会让中共得逞吗？纵观上图疫情最严重的的点在广东，香港，疫情如此严重对军事行动等定会有影响，上天在灭共，帮助台湾。
+尽管这些数量庞大的防空导弹，有落入西方敌人之手的风险。但一位美国国防部高级官员认为，现在值得冒险给乌克兰支援这种武器。因为乌克兰人能够在战斗中熟练地使用这种便携式防空导弹，有效打击俄罗斯侵略者。
 
-在2020年郭文贵先生也曾讲过最好的防疫就是告诉老百姓真相，让老百姓自己去做决定，中共从不说实话，一切都是假的，中共的谎言铁锁，锁着太多人的思想，我们要挣脱它，砸碎它，就像歌曲‘铁锁梦’中的“同胞快醒来，从此要站着活，我们砸碎这铁索”……
+这位官员认为，给乌克兰支援高度便携的导弹，如“毒刺”地对空导弹可以帮助乌克兰赢得这场战争。
 
-消息来源:
+链接：
 
-[中国大陆多点开花的疫情](https://baijiahao.baidu.com/s?id=1727068067285700447&amp;wfr=spider&amp;for=pc)
+- [US, NATO Rushing Shoulder-Fired Missiles to Ukraine, but Not Without Risks](https://www.newsmax.com/world/globaltalk/missiles/2022/03/11/id/1060850/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+总编/编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

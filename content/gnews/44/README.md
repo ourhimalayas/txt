@@ -2,39 +2,41 @@
 ---
 
 
-## 吉林农业科技学校瞒报疫情 导致新冠群聚性感染
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2152090/)
+## 美国民调显示：民众认为中共对美国威胁远大于俄罗斯
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2151992/)
 
-**撰稿：日本东京方舟农场 北极**
+作者：纽约香草山 – 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美媒3月11日报道，当天公布的一项民意调查显示，绝大多数美国人认为中共在经济和安全方面对美国的威胁比俄罗斯大得多。
 
-据德国之声3月11日报道，吉林农业科技学校疑瞒报疫情丶管理混乱，导致大量师生群聚性感染。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-22.jpg)
 
-中共国新冠疫情急速升温，奥密克戎（Omicron）在十天内蔓延至半个中共国。山东丶吉林丶甘肃丶广东等地为重灾区，其中吉林农业科技学校疫情丑闻备受关注。
+美国的两家调查公司，在3月2日到3月7日对1500名登记选民进行了该项民意调查。当被问及哪个国家对美国构成最大的经济威胁时，73%的受访者回答是中共国，而只有14%的人说是俄罗斯。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-2-6.jpeg)吉林农业科技学院成为疫情重灾区，连日来，学生和家长不断向外求救，并控诉当局隐瞒疫情。（图片来自大纪元）
+当被问及哪个国家对美国构成最大的安全威胁时，52%的人也说是中共国，而只有32%的受访者说是俄罗斯。
 
-一名自称就读该校的网民“林凡一寻”在10日中午在微博发文控诉，“学校安排所有需要隔离的学生在图书馆和教学楼睡“大通铺”， “没有病的人也变成了密集接触者”。有学生发烧，老师就给退烧药，如无效再换另一种药，就是在宿舍挺着等死，有个同学现在已经没意识了，躺在寝室，等待处置”，该学生补充说。
+尽管俄罗斯总统普京入侵乌克兰影响全球安全局势，但美国人仍然认为中共国在经济和军事上对美国的威胁比俄罗斯大得多。正是基于这种认知，多数美国人对美国直接出兵干预俄乌战争，表示反对或持怀疑态度。但多数美国人倾向于支持美国对乌克兰提供更多军事和人道援助，而要求对俄罗斯采取更多的制裁措施。
 
-这位学生还透露，遭隔离的学生寝室门被胶布封着，不让上厕所，宿舍里也没厕所，同学都要急哭了；校内生活用品严重不足，寝室没有水喝，“女生卫生巾都没了，学生边流血边疼，哭着给家里打电话”，惟校方不作为丶态度强硬。
+有关人士认为，美国民众已经很清醒地看到，中共是俄罗斯侵略战争幕后黑手。这种民意基础，也一定会影响美国政府对中共采取更严厉的制裁措施。
 
-学生曾致电政府求助，但“不是拒接就是推卸责任，没有人管我们”，校方甚至打电话给上网发文求救的学生，向他们施压。
+链接：
 
-“吉林农业科技学院疫情”相关文章一度跃为微博热搜榜冠军，事件发酵后，上了央视新闻报导。10日下午，吉林农业科技学院门口集结30辆大巴，陆续将阳性病例的密切接触者、次密接学生转运出校。
+- [Poll: Wide Majority View China as Greater Threat than Russia, Little Support for U.S. Intervention in Ukraine](https://www.breitbart.com/politics/2022/03/11/poll-wide-majority-view-china-greater-threat-than-russia-little-support-u-s-intervention-ukraine/)
 
-网友“阿白的陌陌陌陌唯”在微博发文表示，确实有记者去该校采访了，但记者走后，有一部分同学又被大巴车送回来了。该网友说：“我们也没想到，这操作涨知识了，记者走了我们完了。”
 
-据被运往一个隔离点的吉林农业科技学院学生李岩（化名）3月11日下午表示，“这里就是一个荒废的疗养院，到处都很脏，正常人都接受不了，特别恶心。厕所特别脏，都是黄锈。还有一团发黄的床单，窗户打不开，全都是灰。床上不仅有虫，还有蜘蛛网。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-截至3月10日24时，据该校报告称，5天内共74人在校内感染。
+总编/编辑：飞虹
+审核：飞虹
+校正/发稿：海阔天空1
 
-参考链接：
-1. [https://reurl.cc/8WA0Ob](https://reurl.cc/8WA0Ob)
-2. [https://reurl.cc/2DAzv9](https://reurl.cc/2DAzv9)
-
-素材采编：北极
-总编： 老孙
-校对发布：文曦
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
