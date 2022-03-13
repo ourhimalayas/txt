@@ -2,29 +2,45 @@
 ---
 
 
-## 2022/03/11 泽连斯基：乌克兰打的是一场卫国战争
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2156116/)
+## 新中国联邦法治基金乌克兰人道救援行动 受多国媒体关注
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2156323/)
 
-[![](https://express.adobe.com/page/bRKTLaprfRhAw/images/8e653e34-988c-46cf-842e-8c70f3a65638.png?asset_id=564359dd-87f8-4a39-a872-ed814ea7fb72&amp;img_etag=%225f6c9639210a76189e4a994f1811466d%22&amp;size=2560)](https://express.adobe.com/page/bRKTLaprfRhAw/images/8e653e34-988c-46cf-842e-8c70f3a65638.png?asset_id=564359dd-87f8-4a39-a872-ed814ea7fb72&amp;img_etag=%225f6c9639210a76189e4a994f1811466d%22&amp;size=1024)
-**简评：**
+台湾宝岛农场 阿尔道夫
 
-俄乌战争在继续。乌克兰总统泽连斯基表示，乌克兰最终会胜利，但需要时间、耐心、智慧、精力和能力。很难说需要多久来解放乌克兰全地，但乌克兰会坚持。这是一场卫国战争，俄罗斯普京不重视本国人民和士兵的生命，把国民扔进战争的地狱。
+[救援行動直播畫面](https://www.gettr.com/post/pzg47d4994)
 
-[**GETTR视频链接**](https://gettr.com/post/pzlcu52def)
+為应对乌克兰-波兰边境日益增多的撤离人员和难民，法治基金(ROLF)宣布提供撤离的人道救援，暂定2022年3月15日提供免费专机。法治基金提供免费撤离巴士、飞机、中转地临时居所及30日内免费食宿等资源，目的为协助有需要人士撤离。若有撤桥、救援需要协助，可联系我们或提供需要救助之人24小时紧急热线联络方式。
 
-**视频字幕：**
+法治基金(ROLF)宣布提供撤离的人道救援，暂定2022年3月15日提供免费专机。针对撤离方案，法治基金(ROLF)提供的专机航线如下，可能根据情况做出调整：
 
-**泽连斯基总统**：我们能看到我们的军事胜利和敌人的损失。我们期望战斗会更早结束，侵略者会更早倒下，但这关乎生命，是战争，是战斗。我们还需要时间、需要耐心，需要我们的智慧、精力和能力，以最高水平完成我们的工作，共同达到胜利。很难说我们还要多久来解放乌克兰的土地，但我们能说我们会继续做下去，因为我们希望如此。我们已经达到了一个战略转折点，我们正朝着我们的目标，朝着我们的胜利前进。这是一场卫国战争，是与一个非常顽固的敌人作战。他不重视数以千计的本国人和士兵被杀，他召集预备役人员和应征者，把他们扔进这场战争的地狱。
+1. 從波蘭-熱舒夫(Rzeszow)機場出發，經加拿大多倫多，前往美國紐約。
+2. 從波蘭-熱舒夫(Rzeszow)機場出發，直飛東南亞某國(待定)。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+**海外**等待救援人员，可提供以下“紧急救援联系方式”：
+
+- 24小時客服熱線(電話/短信):+1 720-657-6776 或 +1 719-224-4232 +48 508-532-712 或 +48 508-531-518
+- Telegram: t.me/UkraineRescue
+- 郵箱: [\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection#65300e17040c0b0037001606100055572515170a110a0b08040c094b060a08)
+- GETTR: gettr.com/user/UkraineRescue
 
 
-*编辑：【英国伦敦喜庄园编辑部】*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1249.png)
 
-*字幕：雨中漫步* *| 翻译：致良知* *| PR：Blue* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
-[![](https://express.adobe.com/page/bRKTLaprfRhAw/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/bRKTLaprfRhAw/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
+救援前线Nicole介绍情况，国际媒体聚焦法治基金、新中国联邦救援基地目前在距离乌克兰边境仅100公尺距离，在直播画面中有录到一条乌克兰避难进入波兰边境必经通道，据记者表示救援基地每天都会遇到来自世界各地的媒体、机构，目前有数十家媒体、电视台在基地。
+
+其中包括波兰最大的报纸、电视，刚才我们接受采访的是美国之音，还有彭博社、美联社、GETTY图片社，还有西班牙、意大利、科索沃，就是很多的还有包括阿拉伯语的位于迪拜的电视台。现在有很多国际的一些大的机构都主动找到我们新中国联邦和法治基金的救援的团队，跟我们合作。
+
+晚上大概是8、9点钟的时候，国际红十字会他们带领一批刚刚从边界过来的妇女、儿童，他们有进到我们的这个大帐篷里边，希望我们能够接待这些妇女、儿童。红十字基金会他们说：你们这么晚了还有义工在这边帮忙。关键是我们的这个帐篷里面还有暖气，还有给这些妇女、儿童，我们有发毯子、有食物、有水，还有小孩子们喜欢吃的糖果、巧克力。
+
+* * *
+
+新中国联邦发起乌克兰救援行动为达成人道救援目的，成员由同价值观者组成，其中救援行动由“消灭共产党的中国人！”发起，理念为“中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类”。
+
+We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party.
+
+The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,13 @@
 ---
 
 
-## 新中国联邦人展示国际化新形象
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156348/)
+## 天空新闻：梅利托波尔的抗议者要求释放被俄罗斯军队“绑架”的市长
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2156407/)
 
-撰稿：纽约香草山 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
-在3月11日的大直播中，郭文贵先生连线梅迪卡救援基地的记者Nicole，对每一位奋战在救援前线的战友向世界展现出的自信、美丽、热情的国际化新形象，给予了高度评价。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1399.png)图片来自：https://gettr.com
-郭先生指出，这一次法治基金支持的乌克兰人道主义大救援，一夜之间改变了中共治下国人愚蠢、懦弱、满嘴谎言、金钱至上的形象，取而代之的是新中国联邦人高效、真诚、与世界沟通无界的国际化形象，让驻扎在基地的各国媒体记者、志愿者以及难民感受到强烈的冲击。
+03/12/2022 天空新闻报道：乌克兰梅利托波尔市的抗议者要求释放该市市长，他们认为该市长被俄罗斯军队绑架了
 
-在听到Nicole介绍，新中国联邦救援基地在难民营里设施最齐全，服务最周到时，郭先生特意嘱咐战友，一定要提供NFSC现磨咖啡，因为每天早上一杯香气四溢的咖啡，意味着美好一天的开始。即使在难民营，也要让每一个人感受到温暖和希望。
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-郭先生强调，一线救援的战友要谨记“唯真不破”，接受媒体采访时，绝不能说假话说大话。在血腥的战争面前，新中国联邦代表中国人建立了前所未有的最高级的、最真情、最温馨的避难所，向全世界证明了中国人热爱生命、爱好和平的美好愿景，也展现了我们真诚、可贵，受人尊重的国际新形象。
-
-新闻链接：[2022年3月11日 文贵大直播](https://gettr.com/post/pzg47d4994)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
-
-编辑/总编/审核：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

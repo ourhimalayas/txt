@@ -2,33 +2,38 @@
 ---
 
 
-## 烏克兰救援行动 成功安置超过400明妇女及儿童
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2156368/)
+## 悉尼乌克兰协会点赞新中国联邦人道救援 中共阻挠
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156424/)
 
-台湾宝岛农场 阿尔道夫
+撰稿: 澳喜农场- Leo M
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
+当地时间3月10日，悉尼的乌克兰协会刊发公告，告知在澳大利亚的乌克兰人，新中国联邦及法治基金提供在波兰的对于乌克兰难民的免费救援计划。不过，由于中国共产党对乌克兰政府的施压，不到24小时，这则人道救援公告已被撤下。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1401.png)
+郭文贵先生曾在盖特中提到，当澳洲战友刚刚来到乌克兰驻澳大利亚大使馆沟通救援事宜时，起初乌克兰人对亚洲面孔的我们的战友们是相当冷淡的。但是当使馆工作人员亲自验证了我们提供的救援行动的真实性和高效率以后，他们态度大变，立刻表示愿意提供十名义工与我们一起救援。
 
-為应对乌克兰-波兰边境日益增多的撤离人员和难民，法治基金(ROLF)宣布提供撤离的人道救援，暂定2022年3月15日提供免费专机。法治基金提供免费撤离巴士、飞机、中转地临时居所及30日内免费食宿等资源，目的为协助有需要人士撤离。若有撤桥、救援需要协助，可联系我们或提供需要救助之人24小时紧急热线联络方式。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1249.png)
-**海外**等待救援人员，可提供以下“紧急救援联系方式”：
+这份公告对于乌克兰妇女儿童的救援有巨大帮助。但又一次受到中共的阻挠。中共继上一次骚扰紧急救援热线、黑掉救援电子邮箱之后，又一次愚蠢地在世界面前暴露了它反人类的本性。
 
-- 24小時客服熱線(電話/短信):+1 720-657-6776 或 +1 719-224-4232 +48 508-532-712 或 +48 508-531-518
-- Telegram: t.me/UkraineRescue
-- 郵箱: [\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection#fda8968f9c949398af988e9e8898cdcfbd8d8f92899293909c9491d39e9290)
-- GETTR: gettr.com/user/UkraineRescue
+新闻来源：
 
+[3月9号：乌克兰协会发出新中国联邦在波对乌克兰队救援信息](https://www.gettr.com/post/pz5cnz6ce4)
 
-* * *
+[中国共产党疯狂的给乌克兰政府施压导致悉尼乌克兰协会删除救援信息](https://www.gettr.com/post/pz94rb8ea4)
 
-3月12日，据救援行动官方消息，法治基金和新中国联邦为安全抵达波兰梅迪卡的乌克兰难民提供了舒适的帐篷。仅一天内，当地的志愿者已经接待了超过400名妇女和儿童。帐篷内提供休息区、儿童游乐区、手机电脑充电及咖啡和食物。欧洲各地的人们捐赠了大量的物资。
+[中共让伪类冒充待救援者来骚扰新中国联邦的紧急救援热线](https://www.gettr.com/post/pyqrw4ba71)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
 
-新中国联邦发起乌克兰救援行动为达成人道救援目的，成员由同价值观者组成，其中救援行动由“消灭共产党的中国人！”发起，理念为“中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类”。
+编辑/总编/审核：飞虹
 
-We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party.
+校正/发稿：浪迹天涯
 
-The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
-
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

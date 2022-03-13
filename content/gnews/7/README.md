@@ -2,33 +2,12 @@
 ---
 
 
-## 乌克兰救援前线视频（五）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2156376/)
+## 意大利当局扣押了一名俄罗斯寡头的一艘超级游艇
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2156433/)
 
-**视频制作：**James
-**封面设计：**长颈鹿 
-**封底设计：**614、精靈藍 
-**监制：**精靈藍
-**编辑/发布：**翼族
+03/12/2022 意大利当局已经扣押了一名俄罗斯寡头所拥有的一艘价值5.3亿欧元的超级游艇，作为弗拉基米尔·普京入侵乌克兰后欧盟制裁的一部分
 
-我们是消灭邪恶中国共产党的新中国人！
-
-We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party.
-
-Ми-нові китайці, які знищили злу Комуністичну партію Китаю.
-
-中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类！
-
-The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
-
-Комуністична партія Китаю є основною причиною лих у всьому світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

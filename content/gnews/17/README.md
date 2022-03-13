@@ -2,46 +2,34 @@
 ---
 
 
-## Xi Jinping Intends to Fight Energy War to Ignite Powder Keg in Middle East
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2156214/)
+## 新中国联邦人展示国际化新形象
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156348/)
 
-Translated by:东京樱花团/英翻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-149.jpg)
-On March 9, 2022, Miles Guo broke the news in a livestream that the CCP was preparing a shocking action, that was, they intended to launch an energy war in Middle East from the end of March to April.
+撰稿：纽约香草山 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
+在3月11日的大直播中，郭文贵先生连线梅迪卡救援基地的记者Nicole，对每一位奋战在救援前线的战友向世界展现出的自信、美丽、热情的国际化新形象，给予了高度评价。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1399.png)图片来自：https://gettr.com
+郭先生指出，这一次法治基金支持的乌克兰人道主义大救援，一夜之间改变了中共治下国人愚蠢、懦弱、满嘴谎言、金钱至上的形象，取而代之的是新中国联邦人高效、真诚、与世界沟通无界的国际化形象，让驻扎在基地的各国媒体记者、志愿者以及难民感受到强烈的冲击。
 
-Miles Guo told us that instead of being afraid, the situation of the Russia-Ukraine war has given Xi Jinping hope. However, the course of this war was more or less beyond his expectation. Xi expected two scenarios for the Russia-Ukraine war: one is that Russia will sweep across Ukraine; the other one is that the Russia-Ukraine war will cause disagreements and a gap between the United States and Europe.
+在听到Nicole介绍，新中国联邦救援基地在难民营里设施最齐全，服务最周到时，郭先生特意嘱咐战友，一定要提供NFSC现磨咖啡，因为每天早上一杯香气四溢的咖啡，意味着美好一天的开始。即使在难民营，也要让每一个人感受到温暖和希望。
 
-If the first scenario occurs, the CCP will take the opportunity to occupy Taiwan by force, forming a double-headed situation with Russia. The CCP is betting that the United States will not dare to conduct two wars at the same time. The second scenario is what the CCP would be most happy to see. As long as the Western countries are fighting their own wars and have their own thoughts, the CCP can make use of the conflicts between them to make a big deal out of them and make a profit. After all, sowing discord and BGY are the CCP’s best tricks.
+郭先生强调，一线救援的战友要谨记“唯真不破”，接受媒体采访时，绝不能说假话说大话。在血腥的战争面前，新中国联邦代表中国人建立了前所未有的最高级的、最真情、最温馨的避难所，向全世界证明了中国人热爱生命、爱好和平的美好愿景，也展现了我们真诚、可贵，受人尊重的国际新形象。
 
-What the CCP does not expect is that the Russian army are so unbearable. The U.S. and Europe are so united and are acting in unison. The CCP doesn’t realize that the U.S. has such an wisdom. The United States will become the biggest beneficiary. The U.S. are fighting a proxy war through high-tech, electronic warfare, information warfare, and communication warfare to greatly deplete Russia at a fraction of the cost, And the polar bear (Russia) is spurned by the world. More frighteningly, Europe, Japan, Australia and even Asian countries have rallied around the United States, recognizing that the world cannot live without it.
+新闻链接：[2022年3月11日 文贵大直播](https://gettr.com/post/pzg47d4994)
 
-Xi Jinping knows very well that the world can no longer tolerate him and Putin. One does not do two endlessly, he decided to play big. He wants to show the United States his strength, he wants to control the world’s lifeline – energy, he wants to use energy as a grip to blackmail the United States and Europe, he wants to establish a new type of major power relations with the United States, he wants to work with the United States to govern the planet. This is Xi Jinping’s “original intention” and Xi Jinping’s hope.
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
 
-How to achieve this “original intention”? Xi Jinping has set his sights on the Middle East. The Chinese Communist Party has been in the Middle East for a long time. It has signed a $500 billion deal with Saudi Aramco. The UAE and Qatar have long been subservient to the CCP in order to sell oil. Iran is the hardcore evil alliance of the CCP. When you look at the Middle East countries, they are either taken down by the CCP or they are afraid of the CCP. The CCP has considerable confidence in controlling the Middle East.
+编辑/总编/审核：飞虹
 
-What’s most important is that the Persian Gulf countries in the Middle East are the world’s oil bases, known as the “oil depots of the world”. Every year, more than 750 million tons of Middle Eastern oil destined for the rest of the world must pass through the Strait of Hormuz, accounting for 90% of the total oil exports from the Gulf. According to statistics, a giant oil tanker passes through the Strait of Hormuz every five minutes on average, so the Strait of Hormuz is called “the throat of the sea oil channel” and “the valve of the world’s oil depot”.
+校正/发稿：浪迹天涯
 
-The Strait of Hormuz is the only sea passage for Persian Gulf oil to Western Europe, the United States, Japan and the rest of the world, carrying 60% of the supply of Western oil consuming countries. Once it is cut off, the Western economy will encounter a fatal threat, so it is regarded as the “lifeline” of Western countries.
-
-The narrowest point of the “human” shaped Strait of Hormuz is less than 39 kilometers. And the Strait of Hormuz is right under the nose of Iran. So, blocking the strait is the “killer” of the Iranian army. The Iranian army can “easily” grab the throat of this world energy corridor.
-
-In 2021, an oil tanker “malfunctioned” in the strait, blocking the passage and paralyzing transport in the strait, leaving a large number of oil tankers stranded. This “malfunction” was just a dress rehearsal for the Chinese Communist Party’s efforts to paralyze the Strait of Hormuz.
-
-Xi Jinping’s intention is to launch a local war in the Middle East to paralyze the Strait of Hormuz, pinch the “lifeline” of the West and force the US and Europe to bow down. The world will be co-managed with the United States to realize Xi’s dream of unifying the world.
-
-Of course, Iran is also the inseparable helper of the Chinese Communist Party. The unique geographical conditions, years of sanctions by the United States, and the strong support and help from the Chinese Communist Party have made Iran tied to the Chinese Communist Party’s chariot.
-
-It is safe to say that going to war in the Middle East is already Xi’s last chance. Can he succeed in his madness? The answer is no. The end of the war between Russia and Ukraine is that Putin is gone, and Xi Jinping can only blow himself up by igniting a powder keg in the Middle East. If God wants to destroy it, he must first make it crazy. Let’s wait and see.
-
-Resource：
-
-[习共欲打能源战争，引燃中东火药桶](https://gnews.org/zh-hans/2138371/)
-
-Written by：波士顿五月花/跟随战神
-Release: 东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 12:09 PM (UTC)`
+
+【Ukraine Rescue】03/13/22 The NFSC’s big tent is well stocked with supplies. Ukrainian refugees can receive sufficient relief there. <br/><br/>【乌克兰救援】03/13/22 新中国联邦的大帐篷物资供应充分，乌克兰难民在这里能够得到有效救济<br/>
+![img](https://media.gettr.com/group5/getter/2022/03/13/12/8f689ea4-99ea-3110-af7d-fa4bfc6e0dcc/out.jpg)
+
+---
+
 `@miles 3/13/2022 8:24 AM (UTC)`
 
 【Ukraine Rescue】03/12/2022 The Rule of Law Foundation and the New Federal State of China provides a comfortable tent for the Ukrainian refugees who crossed the border to Medyka, Poland. The volunteers have welcomed more than 400 women and children within one day. There are resting areas, children’s playground, charging stations, coffee and food provided. People from all over Europe have donated abundant supplies.<br/><br/>【乌克兰救援】03/12/2022 法治基金和新中国联邦为安全抵达波兰梅迪卡的乌克兰难民提供了舒适的帐篷。仅一天内，当地的志愿者已经接待了超过400名妇女和儿童。帐篷内提供休息区、儿童游乐区、手机电脑充电及咖啡和食物。欧洲各地的人们捐赠了大量的物资。<br/>
@@ -147,14 +154,6 @@ On the front line of relief in Ukraine, there were many women and children in th
 
 3/12/2022 Miles Guo’s GETTR: Only the kind people of the New Federal State of China have provided coffee, gas heaters, and hot water for the refugees fleeing Ukraine in the bitter cold. The virus is wreaking havoc in Hong Kong, and there are corpses everywhere. The CCP doesn't allow the people to talk about the new variant of the virus in Hong Kong which has a high infection and mortality rate. The virus could probably be released by CCP to slaughter the people of Hong Kong!<br/><br/>3/12/2022 文贵盖特：只有善良的新中国联邦人为在严寒中走出乌克兰的难民提供了咖啡、热气炉和热水；香港疫情肆虐，到处都是尸体；中共不让谈香港新的变种病毒，其感染率和死亡率都高，可能是中共放毒以屠杀香港人！
 ![img](https://media.gettr.com/group48/getter/2022/03/12/22/cd476d37-77ad-65cd-85fa-39fd4820111a/out.jpg)
-
----
-
-`@miles 3/12/2022 9:51 PM (UTC)`
-
-3月12号：新中国联邦人在乌克兰战场上的表现，时时刻刻，在改变了全世界人民如何看待中国人．和中国共产党，我们不被中国共产党代表，我们要消灭中国共产党，我们的世界观对．人道．人性，人格的尊重，将改变全世界过去对所有中国人的一切的看法。
-> `@himalayaukclub 3/12/2022 9:39 PM (UTC)`<br/>👏今天的好消息是我们的救援大巴上营救了一名才出生6天大的婴儿，应该是目前救援行动中年龄最小的对象了！愿这个在战火中出生的宝宝能够在和平安全的环境下健康成长🕊️🕊️🕊️ #呼吁和平停止战争 🙅🙅🙅<br/><br/>#法治基金 #新中国联邦 #乌克兰救援 #前线快报  <br/>📍2022年3月12日   乌克兰—利沃夫Lviv<br/><br/>从东部战区跑出来的12名被困乌克兰民众，包括一名才出生6天的婴儿和多名 #妇女儿童，登上了法治基金和新中国联邦的救援大巴🚍🚍🚍<br/>难民通过联系 #前线救援队 在乌的志愿者，历经周折，安全从 #利沃夫 出发往波兰撤离<br/><br/><br/>🆘24小时客服热线（电话/短信）：<br/>+1 720-657-6776或 +1 719-224-4232 或+48 508-532-712 或 +48 508-531-518<br/>Telegram： t.me/UkraineRescue<br/>邮箱： UkraineRescue01@protonmail.com 或 UkraineRescue02@protonmail.com
-![img](https://media.gettr.com/group36/origin/2022/03/12/21/a14edf8d-d162-6109-7c41-f5d25b5f5a50/out.jpg)
 
 ---
 

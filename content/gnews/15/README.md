@@ -2,27 +2,33 @@
 ---
 
 
-## 樱花时政┃邪恶！人蛇竟然把乌女性和未成年人作为犯罪目标
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2156289/)
+## 乌克兰救援前线视频（五）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2156376/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-92.jpg)
-（图片来源于本文链接）
+**视频制作：**James
+**封面设计：**长颈鹿 
+**封底设计：**614、精靈藍 
+**监制：**精靈藍
+**编辑/发布：**翼族
 
-刚刚逃离战争，又要冒着被人贩子盯上的危险：德国有很多志愿者愿意向乌克兰难民伸出援助之手，但也有迹象表明，人蛇和皮条客也想趁虚而入。独自在德国的乌克兰年轻女性和未成年人成为他们的犯罪目标。俄乌战争爆发后，大批乌克兰人为了逃避战火背井离乡，来到德国，据统计德国有超过8万乌克兰难民，德国有热心帮助乌难民的志愿者，不过与此同时，人蛇也会浑水摸鱼，趁机作案。
+我们是消灭邪恶中国共产党的新中国人！
 
-警方表示：“案例发生在一些乌克兰年轻女性身上，目前有大量真诚的志愿者，而另一方面，有人想利用这种动荡的局面见利忘义，谋取私利。”社会教育家塞塞克·埃文斯表示：“如果给那些收留乌克兰女性的志愿者进行登记，那就更理想了。不幸的是，其中也有人不怀好意，尤其是人生地不熟的人。值得注意的是，不怀好意的并不只有男性，也有女性。”
+We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party.
 
-20几年前她在慕尼黑创立了“Jadwiga”，这是一个专为人蛇受害者设立的咨询中心。塞塞克·埃文斯和同事们制作乌克兰语的宣传单，在火车站分发。她介绍说：“传单内容包括，不要把你的护照交给别人，把手机带在身边。上别人车之前先把车号拍下来。别人提供你住处，记得要查看对方的身份证件，把姓名和地址都抄下来。”
+Ми-нові китайці, які знищили злу Комуністичну партію Китаю.
 
-信息来源：
+中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类！
 
-[刚离战争 又入”虎口” 乌难民或成人贩目标](https://m.dw.com/zh/%E5%88%9A%E7%A6%BB%E6%88%98%E4%BA%89-%E5%8F%88%E5%85%A5%E8%99%8E%E5%8F%A3-%E4%B9%8C%E9%9A%BE%E6%B0%91%E6%88%96%E6%88%90%E4%BA%BA%E8%B4%A9%E7%9B%AE%E6%A0%87/a-61093345)
+The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+Комуністична партія Китаю є основною причиною лих у всьому світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
 
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

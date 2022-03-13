@@ -2,38 +2,31 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2156298/)
+## 澳洲多位名人突发心脏病早逝，又一位明星球员急救脱险
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2156377/)
 
-整理：枳实
-美工：精灵蓝
+#### **【雅典娜快讯】，紧贴时代脉博**
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/1-129.png)图片：雅典娜农场设计组 精灵蓝
+**翻译/编辑：文泓**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-68.png)图片来源：news.ebene-magazine & 雅典娜设计组
 
 
-雅典娜疫情更新（2022年 3月12日）
+**52岁的澳式足球协会首席运动员迪恩·沃利斯（Dean Wallis）因心脏病发作后接受了紧急手术。几天前同龄的澳洲著名板球明星球员肖恩·沃恩刚因心脏病突发去世，而沃利斯的生命也在一次重大的健康危机中被医生拯救。**
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+**在周六，曾荣获两届澳式足球冠军的明星球员的迪恩·沃利斯心脏病突发送医院急救，这位52岁的中年人是在维多利亚州埃丘卡发的心脏病，被紧急送往医院进行抢救手术。**
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-45.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-137.png)
-[2022年3月12日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月12日改进.pdf)
+**近日，因板球名将肖恩·沃恩和维多利亚州工党参议员金伯利·基钦这些52岁的同龄人均因心脏病突发而去世，周六又发生了一起造成巨大恐慌的事件。**
 
-数据来源：
+**沃利斯在1987年至2001年期间为轰炸机队打了127场比赛，在1993年、2000年该俱乐部夺冠。在他的球员生涯结束后，沃利斯曾在多家俱乐部担任助理教练，在上个月他还出席了俱乐部的名人堂活动。**
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+**几乎同一时间，周五澳洲板球名将肖恩·沃恩的遗体于从泰国运抵墨尔本。周早些时候泰国警方表示，尸检结果显示沃恩的死亡是由于自然原因。**
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+**沃恩的家人已经接受了维多利亚州政府的提议，将于3月30日在墨尔本板球场举行国葬。沃恩的家人在上周一晚上发表声明，将他去世的那晚描述为“一场无休止的噩梦”的开始。**
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+**板球名将沃恩已确认接种了新冠疫苗加强针，早期有胸痛和心脏不适；沃利斯在澳式足球俱乐部任教练，工作前提至少也是完全接种。**
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+参考链接：[Dean Wallis suffers heart attack: Essendon AFL premiership player, 52, rushed to hospital for life-saving surgery | 7NEWS](https://7news.com.au/sport/afl/ex-bomber-dean-wallis-suffers-heart-attack-c-6039739)
 
 发布：tianzhihuan
 
@@ -42,7 +35,6 @@
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
