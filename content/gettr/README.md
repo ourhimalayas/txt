@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 9:33 PM (UTC)`
+
+3/13/2022 Miles Guo: We have arrived at the front line as the new Chinese taking down the CCP. We’ve become the Chinese people who are mutually respectful, civilized, clean, honest, and united, but many of our issues have also been exposed. We are way too individualistic and self-righteous, we lack respect for others and disregards others’ strengths, and we always give advice without taking enough action.<br/><br/>3/13/2022 文贵直播: 我们到了前线，成为消灭中国共产党的新中国人，成为互相尊重，文明，干净，诚实，团结的中国人，但也暴露了我们的很多问题，我们个人主义太强、自以为是、不尊重别人、不看别人优点、老提意见、行动力差<br/>
+![img](https://media.gettr.com/group42/getter/2022/03/13/21/9a24c6b8-3a0c-43d3-eae0-749cab4e0023/out.jpg)
+
+---
+
+`@miles 3/13/2022 9:31 PM (UTC)`
+
+【Ukraine Rescue】03/12/2022 The NFSC & ROLF Ukraine Rescue team member Nicole gives an introduction about the Rule of Law Foundation to a reporter and tells him all the rescue efforts are financed and organized by the Rule of Law Foundation. She shows him everything the ROLF has provided and makes an important distinction that the New Federal State of China is totally against the Chinese Communist government<br/><br/>【乌克兰救援】03/12/2022 新中国联邦法治基金乌克兰救援团队成员妮可向一位记者介绍法治基金并且告诉他所有的救援行动都是由法治基金赞助和组织的。她向记者展示了法治基金提供的所有物资并且告诉他新中国联邦是完全反对中共政府的机构。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group12/getter/2022/03/13/21/0a1202af-6430-6dc2-933c-30ddd89e787a/out.jpg)
+
+---
+
 `@miles 3/13/2022 9:21 PM (UTC)`
 
 3/13/2022 Miles Guo: In an attempt to be able to challenge or even defeat the US and Europe, the CCP and Putin are playing the strategy of “Besiege Wei to Rescue Zhao”, which is to distract the power from the rest of the world threatening them by causing greater problems in elsewhere: start with Russia’s invasion of Ukraine, then fan the flames of war in the Middle East to destroy the petroleum economics and the US dollar so as to stop the economic and financial sanctions imposed by the US and Europe, then the CCP can take chance to attack Taiwan, and (new) viruses might be released.<br/><br/>3/13/2022 文贵直播：中共和普京合演“围魏救赵”：先由俄罗斯攻打乌克兰，然后在中东挑起事端，砸烂石油经济和美元，企图阻止美欧的经济金融制裁，让中共有机会打台湾，甚至放病毒，以期和美欧抗衡到底<br/>
@@ -142,20 +156,6 @@ On the front line of relief in Ukraine, there were many women and children in th
 
 3/12/2022 Miles Guo’s GETTR: The CCP has started to stir up trouble in the Middle East, and something big will happen in the world after my 3 or 4 grand live broadcasts! The fellow fighters have shown the world in Ukraine that citizens of the New Federal State of China are the greatest and purest new human beings following the Way of Righteousness. The New Federal State of China will definitely be able to take down the CCP!<br/><br/>3/12/2022 文贵盖特：中共开始在中东制造事端，3、4次大直播后世界将发生大事！战友们在乌克兰给世界展现出新中国联邦人是最伟大、纯洁和以正道主义为基础的新新人类，新中国联邦一定能灭共！<br/>
 ![img](https://media.gettr.com/group9/getter/2022/03/13/02/8b7cad3b-08a4-719b-f53a-abe1dd5d1313/out.jpg)
-
----
-
-`@miles 3/13/2022 2:50 AM (UTC)`
-
-【Ukraine Rescue】03/12/2022 NFSC & ROLF Volunteer Nicole is interviewed by Trinity Broadcasting Network at our Medyka rescue center, Poland. She explained to them that our NFSC is against the CCP and we love peace and rule of law, and we come here to provide humanitarian aid to all people.  <br/><br/>【乌克兰救援】03/12/2022 新中国联邦和法治基金义工妮可在我们波兰梅迪卡难民救助站接受全球最大宗教电视台三一广播网的采访，并向他们介绍了我们新中国联邦是反对中共的，我们爱好和平、法治，我们来这里为所有的人提供人道主义援助。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group22/getter/2022/03/13/02/921fe4ab-71c0-2fd8-08e8-71b141bd5ac1/out.jpg)
-
----
-
-`@miles 3/13/2022 2:28 AM (UTC)`
-
-3/11/2022 Miles Guo: The CCP's support for Russia to invade Ukraine has put overseas Chinese in the most dangerous situation, but our Ukraine rescue operation has brought essential change to the darkness faced by the Chinese people! The Chinese were brutally raped and killed during the Indonesia's anti-Chinese riots while the CCP's Embassy sat back and did nothing about it.<br/><br/>3/11/2022 文贵直播：中共支持俄罗斯打乌克兰已将海外华人置于最危险的境地，但我们的乌克兰救援为华人面临的黑暗带来了本质性改变！华人在印尼排华事件中被残忍地奸杀，而中共大使馆却坐视不管<br/>
-![img](https://media.gettr.com/group27/getter/2022/03/13/02/f1d4b5cb-292e-1ae2-8d87-5fdc44725d14/out.jpg)
 
 ---
 
