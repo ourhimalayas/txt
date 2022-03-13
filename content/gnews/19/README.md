@@ -2,33 +2,28 @@
 ---
 
 
-## WFP在波兰南部设立临时办事处向乌克兰提供粮食援助
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2154439/)
+## 乌克兰：俄罗斯有意永久控制扎波罗热核电厂
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2154583/)
 
-2022-03-12
+文 / 黃秀嬙
+發布 / 2022年3月13日 10:02 AM
+採集：玫瑰新聞組
 
-翻译：文舞两道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/L3L4LQ57AL4K1GOYN.png)图片来源：[https://www3.nhk.or.jp](https://www3.nhk.or.jp)
-根据联合国难民署（United Nations High Commissioner for Refugees）的一份报告，截至3月11日，在俄罗斯军事入侵后从逃离乌克兰的难民人数超过了259万，许多地区出现了食品和饮用水短缺。
+![扎波罗热核电厂是欧洲境内最大的核电厂。（路透社）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/images/202203/20220313/2014-12-03t000000z1175750595gm1eac31t544144217.jpg?VersionId=uk8ORrEtctWo1utl4.JvGhNuJTxBh5nl&amp;itok=5Dgfq8Or)扎波罗热核电厂是欧洲境内最大的核电厂。（路透社）
 
-在此背景下，联合国粮食计划署在波兰南部城市克拉科夫设立了一个临时办事处，向乌克兰和邻国的疏散中心提供更多的粮食援助。
 
-负责应对危机的世界粮食计划署的雅各布-克恩12日接受NHK采访时说，该计划是以基辅、马里乌波尔和哈尔科夫为重点运送粮食，这些地方正被俄罗斯军队围困着。
+（早报讯）综合外电报道，国际原子能机构（IAEA）周六（3月12日）接获乌克兰通报，指俄罗斯有意永久性地全面掌控乌克兰南部扎波罗热、也是欧洲境内最大的核电厂。不过俄罗斯已加以否认。
 
-克恩解释说计划进行的非常困难，因为“粮食就在乌克兰，由于供应链的问题，比如没有卡车司机，食物不能被运送到需要的地方，人们在失去食物的情况下变得越来越疲惫”，克恩强调最重要的是确保运送手段。
+根据IAEA在网上发表的声明，乌克兰国营核电公司Energoatom称，有大约400名俄罗斯士兵在扎波罗热“全职守候”，俄罗斯国营原子能公司Rosatom的职员也在周五（11日）抵达核电站，并宣称该核电厂归他们所有。
 
-WFP还计划向那些因为逃难没有太多现金的人发放食品券来帮助他们购买食品。
+Rosatom证实派遣专家前往扎波罗热核电厂，但坚称该核电厂和切尔诺贝利核电厂仍由乌克兰人操作，而俄罗斯专家将为乌克兰团队提供“建议”。
 
-日本林外相会见了粮食计划署总干事长比斯利，承诺日本将从已准备好的1亿美元人道主义援助中拿出一部分提供给粮食计划署。
+新闻链接：
+[乌克兰：俄罗斯有意永久控制扎波罗热核电厂](https://www.zaobao.com.sg/realtime/world/story20220313-1251820)
 
-消息来源：[ウクライナの食料支援へ WFPがポーランド南部に臨時の事務所](https://www3.nhk.or.jp/news/html/20220313/k10013528801000.html?utm_int=news-international_contents_list-items_001)
+**审核校对：Barry Jack
+上传排版：V在途中**
 
-编辑：LILY
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

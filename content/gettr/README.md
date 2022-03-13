@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 4:00 AM (UTC)`
+
+【Ukraine Rescue】03/12/2022 Innocent Ukrainian children dancing in the NFSC/ROLF tent at our Medyka rescue center, Poland.  <br/><br/>【乌克兰救援】03/12/2022 天真无邪的乌克兰儿童在新中国联邦波兰梅迪卡难民救助站的大帐篷中跳舞<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
+![img](https://media.gettr.com/group9/getter/2022/03/13/04/a3cc540f-f2bf-26a8-8f72-6a6c576d84b0/out.jpg)
+
+---
+
 `@miles 3/13/2022 3:40 AM (UTC)`
 
 【Ukraine Rescue】03/12/2022 NFSC & ROLF Volunteer Nicole is interviewing the sister of the Trinity Broadcasting Network’s journalist, who is also Ukrainian, at our Medyka rescue center, Poland. Nicole told her that the NFSC people are helping the Ukrainians and fighting the communist dictatorship too and we will win.<br/><br/>【乌克兰救援】03/12/2022 新中国联邦和法治基金义工妮可在我们波兰梅迪卡难民救助站采访全球最大宗教电视台三一广播网乌克兰记者的妹妹，向她介绍新中国联邦人在帮助救援乌克兰人，也在同共产主义独裁作斗争，我们一定会赢！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -150,13 +157,6 @@
 3月12号：送来这些火锅牛肉面．方便面的战友们．开了那么远的车，太让人感动了．我们新中国联邦人……永远不能忘记，这些真诚．比亲兄弟姐妹还亲的．这些无私的，战友．兄弟姐妹们。
 > `@dczhengjingquan 3/12/2022 7:08 PM (UTC)`<br/>【DC战友Nicole刚从救援前线发回的报道】<br/><br/>波兰战友给前线救援的战友送来"中餐馆"：有大米，康师傅红烧牛肉面面，火锅料；还有电饭锅，盘子，碗，筷子，并且很贴心地附上垃圾袋。 然后波兰战友连夜驱车回家了。 <br/><br/>#Nicole #乌克兰救援 #法治基金 #新中国联邦 #DC政经
 ![img](https://media.gettr.com/group13/origin/2022/03/12/19/b95b5b05-1cc6-5a8c-760b-6c17073e5d32/out.jpg)
-
----
-
-`@miles 3/12/2022 7:53 PM (UTC)`
-
-3月12号：我们要唱尽天下歌……让共产党无歌可唱——歌死共产党【共匪吓死啦……女人花下架了了】
-![img](https://media.gettr.com/group19/getter/2022/03/12/19/3910810e-9d08-5183-e42e-1d5ca55a8e53/07a7f5baa0d6b990a792a7932f315bf7.jpg)
 
 ---
 

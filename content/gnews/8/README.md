@@ -2,156 +2,35 @@
 ---
 
 
-## 有声|正义pk邪恶
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2154650/)
+## 有声|美情报官员警告不应低估中共攻台野心
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2154649/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-从2022/2/26七哥紧急直播，
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+3月8日，据当地媒体报道，美国联邦众议院情报委员会当天举行了有关当前全球威胁的听证会。会上，除了俄罗斯近期对乌克兰的侵略战争外，中共对台海地区的威胁也广受关注。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-16.jpg)
+美国中情局局长伯恩斯表示，俄罗斯在俄乌战争中受到的巨大挫折以及其所招致的全球制裁虽然让中共政府大为不安，但美国决不可低估中共妄图武力犯台的野心。
 
-部署乌克兰战区的救援工作以来，
+伯恩斯指出，俄罗斯与中共的伙伴关系从2019年起就一直有所增强。然而，俄罗斯在此次交战中遭遇的困境出乎中共的预料，习近平也顾虑其继续与普京交好会给中共经济带来的影响。为此，中共正在密切关注着美欧对俄罗斯制裁所导致的结果，并以此评估其犯台军事计划未来可能的走向。
 
-法制基金的救援上不封顶，
+另一方面，美国国家情报总监办公室也在最新的年度威胁评估报告中指出，中共与俄罗斯目前是全球范围内最大的威胁。该报告提及，中共在向台湾施加压力的同时，还在继续进行其历史上最大的核力量扩张和核武库多样化的进程。此外，中共入侵台湾的行为也将给全球半导体芯片供应链带来严重的干扰。
 
-二十几只飞机随时起飞，
+对此，伯恩斯警告称，中共正在试图修改全球规范制度来使自身获利，尤其是中共入侵台湾的野心不可估量，其必将伺机对台动用武力，美国必须严加防范。
 
-几十辆大巴时刻在路上，
+文字版原文：[美情报官员警告不应低估中共攻台野心](https://gnews.org/zh-hans/2138825/)
 
-新中国联邦人纷纷奔赴救援前线，
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-源源不断的物质，
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
 
-源源不断的勇士，
-
-源源不断的力量流向每一个需要帮助的地区，
-
-为陷在战火的人们送去温暖，
-
-新中国联邦的行动，
-
-就像黑暗中的一盏灯，
-
-让世人知道这里没有黑暗，
-
-只有温暖和无私的关怀，
-
-靠近这一盏灯，
-
-你会因为这一盏灯，
-
-不会被绊倒，不会掉进黑暗的坑里，
-
-更不会让你栽在阴沟里。
-
-虽然这一盏灯无法驱散全部的黑暗，
-
-只要你靠近这一盏灯，
-
-就不会让被黑暗吞噬你，
-
-因为有这一盏灯，
-
-给热爱和平的人们带来希望和未来。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/D31E2F2F-5FBF-46A1-9642-E9A06E7A3C33.png)
-新中国联邦法治基金救人，
-
-不分等级，不分国籍，连敌对我们的小粉红也救。
-
-中共的媒体每天叫嚣着，
-
-所有的华侨已经从乌克兰全部撤离，
-
-二十几个无辜的中国人就在这样无耻的谎言中，
-
-在俄罗斯的炮轰中枉死他乡。
-
-中共不伸救援之手，不顾人道主义，
-
-黑客新中国联邦救援的联系方式，
-
-其中有多少人因此而失去了获救的机会，
-
-互联网会记录中共的罪恶。
-
-那已经上车的十几个人，
-
-因为错误的相信了中共，
-
-受中共蛊惑、威逼就放弃眼前的生路，
-
-至今生死俩茫茫。
-
-从乌克兰出去的学生，
-
-中共救你是因为新中国联邦出手相救，
-
-促使每天说全部撤离的中共不得不出手救人，
-
-害人的中共怎肯甘心出手相救的是命如蝼蚁的奴役，
-
-回国的机票一万八，
-
-落到隔离21天，
-
-没有七千你如何过关，
-
-你本韭菜下贱命，
-
-砍你一刀没商量。
-
-我们新中国联邦只救人无关政治，
-
-没有任何的皮肤观念，
-
-没有任何的种族差别，
-
-无地域差别，
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9ED28DA1-8E4F-4878-98AB-4341CB0DF217_4_5005_c.jpeg)
-无老少、无强弱区分，
-
-七哥引领的新中国联邦法制基金的救援队，
-
-只有累到的侠士， 没有退缩的义士，
-
-暖和的篝火，甜甜的的巧克力，
-
-一个个不分昼夜忙碌的身影，
-
-一张张疲劳而精神奕奕神采俊美的脸庞，
-
-一杯杯香味浓郁的咖啡，
-
-编织出人类最文明的热情，
-
-冲击着人们的视野，
-
-我们是这个战乱的世界里，
-
-最真诚、最温馨、最高级的避难所，
-
-一切唯真不破，无私无我！
-
-
-
-文字版原文：[正义pk邪恶](https://gnews.org/zh-hans/2150619/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
