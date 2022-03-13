@@ -2,12 +2,18 @@
 ---
 
 
-## 【乌克兰救援】03/13/22 新中国联邦的大帐篷物资供应充分，乌克兰难民在这里能够得到有效救济
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2156636/)
+## 西媒头条 — 第187期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2156718/)
 
-【乌克兰救援】03/13/22 新中国联邦的大帐篷物资供应充分，乌克兰难民在这里能够得到有效救济。
+**制作：蚂蚁兄弟**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220313.001.png)
+
+***发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-8.jpeg)
 
  
 

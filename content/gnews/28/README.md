@@ -2,28 +2,35 @@
 ---
 
 
-## 新中国联邦乌克兰无国界救援 重塑中国人新形象
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2156385/)
+## 新中国联邦将成为世界舞台的主角
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156258/)
 
-撰稿：东京樱花团/小小星
+作者：纽约磐石农场 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月11日的大直播中，郭文贵先生表示，通过在乌克兰前线出色的救援工作，新中国联邦人向全世界充分展示了中国人的风采，新中国联邦必定将会成为世界舞台的主角。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-13-at-9.34.41-PM.png)
+郭先生说，最近全世界的主流媒体突然转向，纷纷表示要与新中国联邦合作。在波兰救援现场，战友们的所作所为通过直播快速传遍了世界。这是中国人几千年来，唯一一次以全面直播的形式，向全球展示中国人与世界平等的国际人道救援行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新中国联邦乌克兰无国界救援-重塑中国人新形象.png)
+当我们新中国联邦，以与中共截然相反的良好形象，面对波兰人和乌克兰人的时候，所产生的能量是无比巨大的。身处救援前线战场战友们的义举，是中共绝不可能做到的。因救援资金高达几十亿美元，换做中共的话，其实质就是一场贪污大戏。
 
-随着俄罗斯和乌克兰的开战，大量乌克兰难民逃离家园。新中国联邦人在法治基金和法治社会的资助下，战友们从世界各地来到了乌克兰和波兰边境，每天都在拯救生命。
+郭先生表示，加入新中国联邦绝对值得自豪与骄傲，因为世界一切都在改变，新中国联邦将会是主角，而绝不会是配角，将有更多意想不到的惊喜发生。
 
-救援队伍开设了24小时联络信箱和电报群。在乌克兰境内有三个重要地区，都有大巴车随时等待需要救助的人。同时还有飞往美国和东南亚的飞机，把难民们送到自己需要去的地方。并提供三十天酒店的住宿。所有所有的一切都是免费并且不分国籍肤色，帮助一切需要帮助的人！
+参考链接：[3/11/2022 Miles Guo: Many media outlets around the world want to cooperate…..](https://www.gettr.com/post/pzl73y6785)
 
-在芬兰边境，我们的战友们建成了最好最大最温暖的大帐篷，准备了各种食物水果，还有现磨咖啡。同时，还有战友24小时值班，这给残酷战争中的人们带来了一丝温暖！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-我们战友的大爱给中国人带来了前所未有的新形象！让世界知道我们，有一些中国人，是爱好和平和自由的。我们不等同于中国共产党。中国共产党代表不了我们！
+编辑：文真
+总编：Zion文恩
+审核：文真
+校正/发稿：我不在这里
 
-来自世界各地的战友们，说西班牙语，俄语德语英语… 以最好的形象代表着新中国联邦人，跟世界和平相处。
-
-虽然现在世界的主流媒体都被邪恶势力控制中，但新中国联邦就在那里，用事实证明给世界！
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

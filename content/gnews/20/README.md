@@ -2,37 +2,16 @@
 ---
 
 
-## 美国称从伊朗发射的导弹击中驻伊拉克领事馆附近
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2156511/)
+## 面临俄式被制裁 中共将会如何
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2156673/)
 
-编译：意大利罗马达芬奇农场 ZQ
+文贵大直播20220313
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/600x-1.jpg)
+撰稿：Nine Lee（DC）
 
-
-图片来源：法新社/盖蒂图片社
-
-周日，多达12枚导弹袭击了位于伊拉克北部城市埃尔比勒的一个庞大的美国领事馆建筑群，一名美国国防官员和一名伊拉克官员说，这是一次从邻国伊朗发动的袭击。
-
-在这次袭击中没有人员伤亡的报道，这标志着美国和伊朗之间的关系明显升级。这对长期敌人之间的敌意经常在伊拉克上演，伊拉克政府与这两个国家都是盟友。
-
-在巴格达的伊拉克官员最初说，有几枚导弹击中了美国驻伊尔比勒的领事馆，它是袭击的目标。后来，库尔德斯坦外交媒体办公室主任劳克-加法里说，没有一枚导弹击中美国设施，但该院周围地区被击中。
-
-这位美国国防部官员说，目前还不能确定究竟发射了多少枚导弹，以及这些导弹究竟落在哪里。第二位美国官员说，任何美国政府设施都没有受到损害，没有迹象表明目标是领事馆大楼，该大楼是新的，目前无人居住。
-
-这位伊拉克官员和美国官员都没有被授权与媒体讨论这一事件，他们在匿名的情况下对美联社进行了采访。
-
-位于美国领事馆附近的卫星广播频道Kurdistan24在袭击发生后不久就从他们的演播室开始播出，显示出演播室地板上的玻璃碎片和残骸。
-
-在这次袭击发生的几天前，伊朗说它将对以色列在叙利亚大马士革附近的袭击进行报复，这次袭击杀死了伊朗革命卫队的两名成员。周日，伊朗国营的伊斯兰共和国通讯社援引伊拉克媒体的话，承认在埃尔比勒发生的袭击事件，但没有说这些袭击源自哪里。
-
-伊朗发言人驳斥了关于伊朗是伊尔比勒袭击事件幕后推手的指控。伊朗议会国家安全和外交政策委员会发言人马哈茂德-阿巴斯扎德说，到目前为止，这一指控还无法得到证实。
-
-“他在接受当地新闻网站采访时说：”如果伊朗决定进行报复……那将是非常、非常严重、强烈的。
-
-链接：[https://www.bloomberg.com/news/articles/2022-03-12/u-s-consulate-in-iraq-s-kurdistan-hit-by-rockets-sky](https://www.bloomberg.com/news/articles/2022-03-12/u-s-consulate-in-iraq-s-kurdistan-hit-by-rockets-sky)
-
-编辑校对发表： Shuizhuyu
+美工：新宝（银河）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-5-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-3-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-2-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8-2-scaled.jpg)
+*发布：Theodosia*
 
  
 

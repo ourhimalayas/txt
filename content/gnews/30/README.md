@@ -2,34 +2,33 @@
 ---
 
 
-## 新中国联邦人展示国际化新形象
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156348/)
+## 新中国联邦建设前线基地接待大量战争难民
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2156256/)
 
-撰稿：纽约香草山 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
-在3月11日的大直播中，郭文贵先生连线梅迪卡救援基地的记者Nicole，对每一位奋战在救援前线的战友向世界展现出的自信、美丽、热情的国际化新形象，给予了高度评价。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1399.png)图片来自：https://gettr.com
-郭先生指出，这一次法治基金支持的乌克兰人道主义大救援，一夜之间改变了中共治下国人愚蠢、懦弱、满嘴谎言、金钱至上的形象，取而代之的是新中国联邦人高效、真诚、与世界沟通无界的国际化形象，让驻扎在基地的各国媒体记者、志愿者以及难民感受到强烈的冲击。
+作者：香草山写作组 静言
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月12日，在救援前线梅迪卡基地，新中国联邦的一个豪华大帐篷搭建完毕，正式启用。因面积大，设施全，服务好，成为当地最受志愿者与难民欢迎的休憩场所。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-13-at-9.24.59-PM.png)
+帐篷面积达250平米，内设平整地板，多座取暖炉，桌椅板凳，食物、水、毯子等物资应有尽有。高功率发电机既能保证照明，也能为工作人员和难民提供一杯香浓的NFSC牌现磨热咖啡。战友们细心周到，代为加热婴儿食品，甚至让出自己的泡面给难民。孩子们分到糖果巧克力，欢呼雀跃，小脸蛋绽放的笑容，为逃难中的人们带来了些许欢乐。
 
-在听到Nicole介绍，新中国联邦救援基地在难民营里设施最齐全，服务最周到时，郭先生特意嘱咐战友，一定要提供NFSC现磨咖啡，因为每天早上一杯香气四溢的咖啡，意味着美好一天的开始。即使在难民营，也要让每一个人感受到温暖和希望。
+尽管历史悠久资金雄厚的国际红十字会和国际移民组织IOM都在当地最好的位置搭建了帐篷，但因设备简陋，人手不足而未能得到青睐。而新中国联邦的大帐篷，从早到晚，甚至凌晨时分，都有络绎不绝的人们来到这里休整，成为梅迪卡基地一道最亮眼的风景线。
 
-郭先生强调，一线救援的战友要谨记“唯真不破”，接受媒体采访时，绝不能说假话说大话。在血腥的战争面前，新中国联邦代表中国人建立了前所未有的最高级的、最真情、最温馨的避难所，向全世界证明了中国人热爱生命、爱好和平的美好愿景，也展现了我们真诚、可贵，受人尊重的国际新形象。
+参考链接：[看看这些孩子的笑容！](https://gettr.com/comment/cse1hu8a57)
 
-新闻链接：[2022年3月11日 文贵大直播](https://gettr.com/post/pzg47d4994)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-64.jpg)
-
-编辑/总编/审核：飞虹
-
-校正/发稿：浪迹天涯
+编辑：宁文静
+总编：Zion文恩
+审核：文真
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

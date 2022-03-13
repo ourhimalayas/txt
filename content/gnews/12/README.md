@@ -2,10 +2,10 @@
 ---
 
 
-## 新中国联邦波兰救援前线报导（三）
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2156719/)
+## 新中国联邦波兰救援前线报导（一）
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2156851/)
 
-台灣寶島農場
+台灣 寶島農場
 
  
 
