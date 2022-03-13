@@ -2,29 +2,39 @@
 ---
 
 
-## 文贵爆料 3.11：历史照亮现实——看战争狂人的共性
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2158426/)
+## YouTube封锁俄罗斯官媒频道 范围扩及全球
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2158432/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/SharedScreenshot.jpg)
-历史上的战争狂人往往集“偏执、冷血、疯痴和残暴”于一身，他们为国家带来了“谎言、梦幻、战争和杀戮”，留下的是“噩梦、废墟、耻辱和无尽的痛苦”，他们的人生轨迹也彻底地改变了人类的轨迹。
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月12日国外媒体报道，在俄罗斯入侵乌克兰后，YouTube在欧洲地区封锁了俄罗斯国家资助媒体的相关频道。3月12日，Youtube再次宣布，将对俄罗斯国家资助媒体相关频道的封锁范围扩大到全球。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-13-下午1.46.32.png)
+YouTube表示，根据公司禁止否定、缩减或淡化有充足证据的暴力事件的规定，将移除违反政策的俄罗斯入侵乌克兰相关内容，同时也封锁YouTube上受国家资助的俄罗斯媒体频道，范围扩及全球，立即生效。
 
-对此，郭文贵先生在3月11日的大直播中说，“病理性报复”是所有独裁者发动战争的一个基本规律，但他们将“四面楚歌，众叛亲离”，最终坠入万劫不复的深渊，普京的时代已经结束了。
+YouTube补充道，禁播的内容包括否认俄罗斯入侵乌克兰，或声称入侵是维和行动。但YouTube 拒绝具体说明在全球范围内哪些频道和多少频道被屏蔽，或者是否会恢复。
 
-人们对于希特勒、彼得大帝、日本天皇等不同时代的皇帝和独裁者进行了大量研究后，发现这些战争发动者都有不同程度的精神疾病，他们对别人的建议和劝告置若罔闻，根本不把老百姓当人，认为自己就是神的化身，而且对人类有一种强烈的报复心理。
+YouTube的母公司谷歌此前已禁止俄罗斯广告商在Google全球产业与网络刊登广告。
 
-病理性报复是所有独裁者发动战争的一个基本规律。普京身体不好，做过两次手术。因长期受美国和欧洲打压，以及国际社会的排挤，想这次通过乌克兰战争恢复原苏联的往日荣光，并且让最不听话的苏联越野军去当炮灰，就像当年邓小平派38军打越南一样，即可立威，又可杀掉军中不忠于我的人。
+俄罗斯3月12日宣布，限制民众登陆社交媒体Instragram，并对其母公司Meta提出刑事诉讼，起诉Meta准许用户发表反对俄罗斯入侵的言论。
 
-毛泽东当年也是这样对付国民党的叛军，因为傅作义的女儿傅秋菊告诉他，这些人能反我爹也能反你。毛泽东想这些人拿着美式武器，对我来太不安全。于是，就派他们到北朝鲜送死，他仇这些国民党人。后来毛泽东的儿子死了，他发现自己的儿子接班不成，就把中国的年轻人全下方到农村去。在那里，你们被强奸、轮奸，有的甚至死去。萨达姆的手法和他们也是如出一辙，他杀死女婿后，用车托着尸体在巴格达到处转。
+俄罗斯官方媒体称，包括应用商店和其他社交媒体服务在内的分销商对俄罗斯施加的限制是不正当的审查。
 
-现在普京没法妥协，如果妥协，只有死路一条。所以他冒险做了场大赌博。就像中共绑架了所有中国人一样，他绑架了俄罗斯人，以此与西方叫板。俄罗斯有科技元素、材料，大麦、天然气和石油。我可以砍掉我的腿，甚至可以挥刀自宫，看你能否承受得起，跟你玩狠的。普京虽然困兽犹斗，但他要么被做掉，要么放核武器。我可以告诉大家，他绝对没有任何机会放出核武器。他的时代已经结束了，但俄罗斯人要为他付出代价。
+参考链接：[YouTube blocks Russian state-funded media channels globally](https://www.reuters.com/business/media-telecom/youtube-blocks-russian-state-funded-media-channels-globally-2022-03-11/)
 
-郭先生警告说，中共和普京可能会采用围魏救赵的手段，通过封锁霍尔木兹海峡，打击世界的石油产业，逼西方就范，从而化解战争危机。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-参考链接：
+编辑：飞虹
+总编：Zion文恩
+审核：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[2022年3月13日 文贵直播](https://gettr.com/streaming/pzrn4eb349)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

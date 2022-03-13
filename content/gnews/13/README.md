@@ -2,30 +2,20 @@
 ---
 
 
-## YouTube封锁俄罗斯官媒频道 范围扩及全球
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2158432/)
+## 新中国联邦救援信息
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2158434/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者：Irene木木
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月12日国外媒体报道，在俄罗斯入侵乌克兰后，YouTube在欧洲地区封锁了俄罗斯国家资助媒体的相关频道。3月12日，Youtube再次宣布，将对俄罗斯国家资助媒体相关频道的封锁范围扩大到全球。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-13-下午1.46.32.png)
-YouTube表示，根据公司禁止否定、缩减或淡化有充足证据的暴力事件的规定，将移除违反政策的俄罗斯入侵乌克兰相关内容，同时也封锁YouTube上受国家资助的俄罗斯媒体频道，范围扩及全球，立即生效。
+鉴于目前乌克兰局势日益恶化，新中国联邦救援和法治基金救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-13-下午1.46.17-1.png)
+自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发，前往波兰。此外，新中国联邦和法治基金的第一批救援专机将于近期从波兰出发。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
-YouTube补充道，禁播的内容包括否认俄罗斯入侵乌克兰，或声称入侵是维和行动。但YouTube 拒绝具体说明在全球范围内哪些频道和多少频道被屏蔽，或者是否会恢复。
-
-YouTube的母公司谷歌此前已禁止俄罗斯广告商在Google全球产业与网络刊登广告。
-
-俄罗斯3月12日宣布，限制民众登陆社交媒体Instragram，并对其母公司Meta提出刑事诉讼，起诉Meta准许用户发表反对俄罗斯入侵的言论。
-
-俄罗斯官方媒体称，包括应用商店和其他社交媒体服务在内的分销商对俄罗斯施加的限制是不正当的审查。
-
-参考链接：[YouTube blocks Russian state-funded media channels globally](https://www.reuters.com/business/media-telecom/youtube-blocks-russian-state-funded-media-channels-globally-2022-03-11/)
+救援信息：[https://discord.com/channels/872153398588370944/950450831868694618/951130005566550056](https://discord.com/channels/872153398588370944/950450831868694618/951130005566550056)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-编辑：飞虹
 总编：Zion文恩
-审核：飞虹
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
