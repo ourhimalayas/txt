@@ -2,41 +2,48 @@
 ---
 
 
-## 乌核研究设施遭炮击毁坏,IAEA：未造成辐射外泄
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2157655/)
+## 有声|《甜甜的巧克力》
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2157698/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image005-7.jpg)**图为本月4日乌克兰札波罗结核电厂受到俄军攻击，发生火灾。美联社**
-**国际原子能总署周一（****7****日）表示，他们接获报告指出，乌克兰遭包夹的第****2****大城哈尔科夫一座核研究设施因炮火袭击受损，但没有「引发辐射外泄的后果」。****
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+我们的家被匆匆塞进一个旅行箱
+妈妈的大手紧紧攥着我的小手
+一步一踉跄 在黑黑的寒夜里
+我们身后的家被轰隆隆炸成了平地……
 
-****总部在维也纳的联合国国际原子能总署（**** IAEA****）表示，乌克兰当局通报****6****日发生一起攻击事件，但并未通报这个厂址的辐射浓度有增加。****
+远远的 有篝火 有热气
+那里有一个营地！
+有个阿姨微笑着塞给了我一块巧克力…..
 
-****国际原子能总署表示，由于这座该设施「辐射物质的储存量极低」，且保持在「次临界」状态，「它通报所受的损害不会引发任何辐射外泄的后果」。****
+帐篷上挂着湖蓝色的旗子
+上面闪着金黄色的七芒星
 
-****受损设施是哈尔科夫物理暨科技研究所的一部分，制造医疗及工业用途的放射性材料。**
+那旗子上的湖蓝色和金黄色
+和我们国旗上的蓝色和黄色
+很像 很像！
 
-[【援引连结】](https://tw.appledaily.com/international/20220308/PHEOTUHX4FE3PEAR7U63LWCZKY/)
+美丽的阿姨微笑着 看着我
+甜甜的巧克力在嘴里化了
+帐篷很大， 火炉很暖……
 
-**推出问题，敲出真相，爆料在路上！**
+什么时候 我能回家？
+想念爷爷 奶奶 还有爸爸…..
 
-**请关注和订阅我们的以下账号：**
+文字版原文：[《甜甜的巧克力》](https://gnews.org/zh-hans/2146938/)
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+音频处理：Fei797
+发稿：Fei797
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,64 @@
 ---
 
 
-## Fudan University starts quasi closed campus management
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2157417/)
+## 美国及世界疫情简报（03-13-2022）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2157432/)
 
-Translated by：TokyoSakura/英翻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-95.jpg)
-[Photo link](http://sh.people.com.cn/n2/2021/1126/c134768-35023407.html)
+整理：波士顿五月花 老枪6
 
-Shanghai Fudan University started quasi-closed campus management from 8pm today (13th), with current students and faculty staying on campus and conducting nucleic acid testing as required.
+![美国及世界疫情简报](https://assets.gnews.org/wp-content/uploads/2022/03/2203.jpg)
 
-According to CCTV news, Fudan University’s notice shows that the campus takes a separate gate area as a unit, implements relatively closed management, teachers and students do not flow across regions, inter-campus shuttle buses are suspended. The quasi-closed management time is tentatively set for two weeks, and the end time will be notified.
+今天是2022年3月13号，星期日。
+以下是美国及世界昨日的疫情简报。
 
-Fudan will implement strict management of leaving or entering the school. Teachers and students who have a fixed residence in Shanghai can apply to leave school and stay at home and leave the school orderly after approval. If there is a real need for returning to school, teachers and students who left school can apply to their unit and return to school only after examination and approval. Teachers, students and employees who apply must submit two negative nucleic acid test reports in Shanghai within 48 hours, and strictly implement measures such as identity verification, body temperature test, health code and travel card. Outsiders are not allowed to enter the school in principle.
+**1．美国疫情**
 
-Fudan University will also carry out online teaching activities in an orderly manner. Offline lectures will be suspended, and students and faculty will carry out online teaching according to the time specified in the class schedule.
+美国新增新冠患者52,110人，总确诊79,507,030人。新增死亡1,701人，总死亡 967,165人。
 
-In addition, the cafeteria will suspend dine-in and provide packaging and take-out services, Teachers and students will wear masks throughout the meal purchase and keep a one-meter interval in line. The library, self-study classrooms, and gymnasium are only open to students and faculty in the area. The swimming pool is suspended.
+康州新增新冠感染343人，新增死亡33人。
 
-According to the official website of Shanghai Health Commission, five cases of local confirmed cases and 78 cases of asymptomatic infections were reported in Shanghai yesterday.
+纽约州新增新冠确诊2,229人，新增死亡24人。
 
-Original link：[https://www.zaobao.com/realtime/china/story20220313-1251825](https://www.zaobao.com/realtime/china/story20220313-1251825)
+新泽西州新增病例1,240人；新增死亡20人。
 
-**Edited by:**TokyoSakura/英翻组
-Posted by:TokyoSakura/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+马萨诸塞州新增新冠患者752人，新增死亡19人。
 
+马里兰州新增新冠患者346人，新增死亡人数为8人。
+
+加州昨日新增病例4,975人，新增死亡142人；得克萨斯州新增病例8,282人，新增死亡101人；佛罗里达州新增病例10,278人，新增死亡386人；亚利桑那州新增病例0人，新增死亡0人；乔治亚州新增病例1,027人，新增死亡64人；北卡罗来纳新增病例1,849人，新增死亡30人；田纳西州新增病例605人，新增死亡49人。
+
+**2．世界疫情**
+
+1）亚洲疫情
+
+印度新增新冠患者3,614人；日本新增55,812人；印尼新增16,110人；菲律宾新增583人；孟加拉新增257人；土耳其新增25,401人；台湾新增82人；韩国新增383,651人；中国新增19,340人。
+
+2）非洲疫情
+
+南非新增新冠患者1,671人；埃塞俄比亚新增19人；摩洛哥新增55人。
+
+3）拉美疫情
+
+巴西新增新冠患者54,022人；哥伦比亚新增782人；阿根廷新增5,615人；墨西哥新增7,878人。
+
+4）欧洲疫情
+
+俄罗斯新增新冠患者49,710人；德国新增237,089人；法国新增75,459人；英国新增73,054人；意大利新增53,961人；西班牙新增19,849人。
+
+**5）全球新冠总感染人数为455,675,890人，总死亡人数为6,038,904人。**
+
+**3．新闻简报**
+
+1、据悉，中共当局周六制定了新的 COVID-19 限制措施，包括敦促公众不要离开北京和关闭上海的学校，而香港官方警告说其冠状病毒爆发尚未达到顶峰。
+2、据悉，3 月 12 日，随着中国 COVID-19 人数的增加，中共当局解雇了两个城市的市长并关闭了上海的学校。据媒体报道，吉林市市长和长春市市长已被免职。
+
+
+
+* * *
+
+*封面：霹雳鼠年*
+
+*编辑 /发布：郭郊玉米地*
 
  
 

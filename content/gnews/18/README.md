@@ -2,33 +2,31 @@
 ---
 
 
-## 【每日聚焦】俄乌战事3月13日简要
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2157384/)
+## Fudan University starts quasi closed campus management
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2157417/)
 
-**撰稿：蓝莲花农场 文斌**
+Translated by：TokyoSakura/英翻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-95.jpg)
+[Photo link](http://sh.people.com.cn/n2/2021/1126/c134768-35023407.html)
 
-1、今天主要动作是俄军大范围的空袭和炮击，北部的切尔尼戈夫在当地时间今天早上05:46，一住宅楼遭到空袭，造成1人死亡，1人受伤。
+Shanghai Fudan University started quasi-closed campus management from 8pm today (13th), with current students and faculty staying on campus and conducting nucleic acid testing as required.
 
-2、在东部的哈尔科夫地区与顿巴斯地区之间，广大的地区受到炮击和空袭，包括哈尔科夫地区Husarivka村附近公路上的一辆民用汽车遭到炮击，包括3岁孩子在内的车上人员死亡；哈尔科夫Sharikova街公共汽车站附近发生炮击事件，造成1人死亡，3人受伤；俄军甚至炮击了顿涅茨克州莱曼镇的克拉马托尔斯克-利沃夫的疏散列车，造成1人死亡，1人受伤。据不完全统计，在过去的一天里，俄罗斯军队用大炮和迫击炮对哈尔科夫、楚胡耶夫、伊久姆、罗汉的居民区进行了约50次炮击。
+According to CCTV news, Fudan University’s notice shows that the campus takes a separate gate area as a unit, implements relatively closed management, teachers and students do not flow across regions, inter-campus shuttle buses are suspended. The quasi-closed management time is tentatively set for two weeks, and the end time will be notified.
 
-3、利沃夫：俄罗斯军队对非常靠近波兰边境的一个军事基地进行了空袭，该基地位于利沃夫以西30公里左右的Novoiavorivsk（新亚沃里夫西克），据乌克兰方面说这是一个国际维持和平与安全中心。截止目前，死亡人数已经增加到35人，另有134人受伤。据称，俄军动用战略轰炸机在黑海和亚速海上空至少发射了30多枚导弹，但是乌克兰的防空系统发挥了一定作用，一些导弹在空中被拦截击落。乌克兰谴责俄罗斯这一次轰炸行为，称这造成了该地区的紧张局势的升级。
+Fudan will implement strict management of leaving or entering the school. Teachers and students who have a fixed residence in Shanghai can apply to leave school and stay at home and leave the school orderly after approval. If there is a real need for returning to school, teachers and students who left school can apply to their unit and return to school only after examination and approval. Teachers, students and employees who apply must submit two negative nucleic acid test reports in Shanghai within 48 hours, and strictly implement measures such as identity verification, body temperature test, health code and travel card. Outsiders are not allowed to enter the school in principle.
 
-4、因为俄军利沃夫军事基地的空袭，造成乌克兰西部紧张局势升级，当地时间11:24，多地响起防空警报，包括乌曼、利沃夫，还有利沃夫南边的伊万诺-弗兰科夫斯克市，该市市长鲁斯兰-马尔坦基夫说，俄罗斯导弹再次袭击了那里的机场，俄军的目标是散播恐慌和恐惧。
+Fudan University will also carry out online teaching activities in an orderly manner. Offline lectures will be suspended, and students and faculty will carry out online teaching according to the time specified in the class schedule.
 
-5、乌克兰南部的扎波罗热州的别尔江斯克、卡霍夫卡、赫尔松等地爆发反对俄军的和平示威。而Mykolaiv地区的Bashtanka遭到猛烈轰炸。
+In addition, the cafeteria will suspend dine-in and provide packaging and take-out services, Teachers and students will wear masks throughout the meal purchase and keep a one-meter interval in line. The library, self-study classrooms, and gymnasium are only open to students and faculty in the area. The swimming pool is suspended.
 
-6、Kropivnitsky克罗皮夫尼茨基-Kryvyy Rih克雷维-Zaporizhiye扎波罗热公路在Maryinske村附近的一座桥梁被毁。
+According to the official website of Shanghai Health Commission, five cases of local confirmed cases and 78 cases of asymptomatic infections were reported in Shanghai yesterday.
 
-7、乌克兰总理：粮食储备只够国家使用几个月。
+Original link：[https://www.zaobao.com/realtime/china/story20220313-1251825](https://www.zaobao.com/realtime/china/story20220313-1251825)
 
-8、一名美国记者在乌克兰被俄军射杀，另一记者受伤。这两名美国记者是前往伊尔平拍摄撤离难民的情况，他们在通过检查站后遭到枪击。
+**Edited by:**TokyoSakura/英翻组
+Posted by:TokyoSakura/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
 
-校对：文斌/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

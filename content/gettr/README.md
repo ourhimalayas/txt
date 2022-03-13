@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 3:49 PM (UTC)`
+
+【Ukraine Rescue】03/11/2022 Fellow Fighter Nicole discusses potential future cooperation with an American NGO Humanitarian Refugee Aid within Ukraine rescue operation<br/><br/>【乌克兰救援】03/11/2022 妮可战友和美国非政府组织人道主义难民救助组织的成员讨论双方未来在乌克兰救援行动中可能的合作<br/>
+![img](https://media.gettr.com/group21/getter/2022/03/13/15/0566810c-c0e4-239f-2d8d-54e5b4fc67c7/out.jpg)
+
+---
+
 `@miles 3/13/2022 3:14 PM (UTC)`
 
 我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>Ми-нові китайці, які знищили злу Комуністичну партію Китаю<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є основною причиною лих у всьому світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
@@ -149,13 +156,6 @@ On the front line of relief in Ukraine, there were many women and children in th
 
 “A lot of help. A lot of human souls. They give us a chance to believe in someone… you have a big heart…give us a great example… I can do the same to others, the world can be better. This is what we learned about your organization.”<br/>“（法治基金和新中国联邦）提供了大量的救助，充满了人性，让我们有机会相信一个人。你们有大善心，树立了伟大的榜样。我将会依此去行善，世界会因此而改善”
 ![img](https://media.gettr.com/group15/origin/2022/03/13/00/7c5be069-52ca-127c-51de-2368a2141a34/out.jpg)
-
----
-
-`@miles 3/13/2022 12:00 AM (UTC)`
-
-2022.03.12 NFSC News  The New Federal State of China Cooperates with Various International Organizations Placement Refugees； NFSC & Rule of Law Foundation Rescue Center Obtain the Best Location Attracted Worldwide Attention
-![img](https://media.gettr.com/group9/origin/2022/03/12/23/e0bff8f9-0b20-35f9-d6c9-e5dd8e0c9447/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
