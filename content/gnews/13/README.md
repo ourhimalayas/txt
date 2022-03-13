@@ -2,29 +2,45 @@
 ---
 
 
-## 2022/03/11 泽连斯基：乌克兰打的是一场卫国战争
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2156116/)
+## 中共官媒记者跟随俄军采访引发关注 被揭疑似间谍身份
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2156301/)
 
-[![](https://express.adobe.com/page/bRKTLaprfRhAw/images/8e653e34-988c-46cf-842e-8c70f3a65638.png?asset_id=564359dd-87f8-4a39-a872-ed814ea7fb72&amp;img_etag=%225f6c9639210a76189e4a994f1811466d%22&amp;size=2560)](https://express.adobe.com/page/bRKTLaprfRhAw/images/8e653e34-988c-46cf-842e-8c70f3a65638.png?asset_id=564359dd-87f8-4a39-a872-ed814ea7fb72&amp;img_etag=%225f6c9639210a76189e4a994f1811466d%22&amp;size=1024)
-**简评：**
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-150.jpg)
+中共记者跟随俄军采访（图片取自推特视频截图）
 
-俄乌战争在继续。乌克兰总统泽连斯基表示，乌克兰最终会胜利，但需要时间、耐心、智慧、精力和能力。很难说需要多久来解放乌克兰全地，但乌克兰会坚持。这是一场卫国战争，俄罗斯普京不重视本国人民和士兵的生命，把国民扔进战争的地狱。
+中共官媒凤凰卫视记者卢光宇日前跟随俄罗斯军队在乌克兰采访引发关注。随后，有人在网上揭露了其疑似间谍的身份。
 
-[**GETTR视频链接**](https://gettr.com/post/pzlcu52def)
+据《希望之声》3月11日报道，凤凰卫视的记者跟随俄罗斯军队到乌克兰东部城市马里乌波尔（Mariupol）采访，被乌克兰民众和当地情报部门盯上，怀疑其是间谍。
 
-**视频字幕：**
+乌克兰自由民主联盟主席哈里托诺夫（Arthur Kharytonov）日前在推特上发布了一段这名记者采访的视频。视频中，该名记者与俄军及东乌士兵亲切交谈并互相问候。哈里托诺夫痛批此人是间谍，他在推文中写道：“这是中（共）国与俄罗斯占领者合作的完整影片。真令人恶心。”
 
-**泽连斯基总统**：我们能看到我们的军事胜利和敌人的损失。我们期望战斗会更早结束，侵略者会更早倒下，但这关乎生命，是战争，是战斗。我们还需要时间、需要耐心，需要我们的智慧、精力和能力，以最高水平完成我们的工作，共同达到胜利。很难说我们还要多久来解放乌克兰的土地，但我们能说我们会继续做下去，因为我们希望如此。我们已经达到了一个战略转折点，我们正朝着我们的目标，朝着我们的胜利前进。这是一场卫国战争，是与一个非常顽固的敌人作战。他不重视数以千计的本国人和士兵被杀，他召集预备役人员和应征者，把他们扔进这场战争的地狱。
+有网民爆料称，视频中的记者叫卢光宇，海军退役后留学俄罗斯，是总参二部的中校级特工。目前他率领一个“采访摄制组”随俄军行动，经常出入俄乌双方前线阵地。他们对乌军检查站声称自己是香港媒体，以隐瞒他们的中共国身份。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+CNN也对卢宇光在俄乌前线采访的事进行了报道，并发问：“这个中国人是谁？”
+
+新闻链接：
 
 
-*编辑：【英国伦敦喜庄园编辑部】*
 
-*字幕：雨中漫步* *| 翻译：致良知* *| PR：Blue* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
-[![](https://express.adobe.com/page/bRKTLaprfRhAw/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/bRKTLaprfRhAw/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+> BREAKING: CCP media outlets are now embedding with Russian troops as they encircle Ukrainian cities 
+> 
+> Are you paying attention yet? [pic.twitter.com/uFLfoOkRJX](https://t.co/uFLfoOkRJX)
+> — Jack Posobiec 🇺🇸 (@JackPosobiec) [March 8, 2022](https://twitter.com/JackPosobiec/status/1501231427559780352?ref_src=twsrc%5Etfw)
+
+
+
+[https://m.soundofhope.org/post/601937](https://m.soundofhope.org/post/601937)
+
+
+
+> 据CNN专门报导了中共特务卢宇光：这个中国人是谁？ [pic.twitter.com/BCoYakJI2l](https://t.co/BCoYakJI2l)
+> — 糊涂3.0（复活号） (@EZqkzsCFrgcaoww) [March 10, 2022](https://twitter.com/EZqkzsCFrgcaoww/status/1501768240770727936?ref_src=twsrc%5Etfw)
+
+
+
+* * *
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

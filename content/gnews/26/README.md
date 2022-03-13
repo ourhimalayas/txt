@@ -2,37 +2,45 @@
 ---
 
 
-## 胡塞武装轰炸沙特炼油厂印证郭文贵爆料
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2155704/)
+## 中共在中东局部会有何种动作
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2155906/)
 
-作者：顺其自然
-编辑：Mttfly
+撰稿：两万五，爆大料
+![](https://lh3.googleusercontent.com/YJjSyEb2-3XDx2PQ6XnSlFwyMHUxYffs5qHAh_0iRhvYF2lLiZZgkQ82zD-Ae3h6ylPEx1sau9Aa9DiWWbXwZCvh1yhfV_QCz3YyQQvfkQK6cnQEaOKV8TMVKSwhraWeGg6BMigF)
+（图片来自网络）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/M49QRAQ@B43QRRRG.png)
+**2022年3月13日，七哥在盖特中透露中共会在中东局部会有一系列小动作，本文通过网页收集了一下目前中东的有关消息，下面是一则邪恶轴心国之一伊朗的消息：“伊朗导弹攻击伊拉克库尔德斯坦地区首府埃尔比勒，击中了美国领馆”，见图1。中共媒体发布消息，指出“连续传出坏消息，伊朗打响复仇第一枪！多枚导弹深夜发射”，见图2。伊朗为何在俄罗斯进攻乌克兰的情况下，在中东发起局部战火，本文进行分析。**
+![](https://lh4.googleusercontent.com/mubgVVt0nThxqhPHf5Zv4S6lHUwc-9U8lsUNHCXKnYjm1FO8ixUjOFK8J67dxLb_use-SHDx2B1ie-ZAn1ILyoUgNu7LphzaDsc4dui-X-6-BoRseLlIZDJSUOc5xZ5OVeWtgtjT)
+图1视频拍摄
+![](https://lh3.googleusercontent.com/xcT8jeGWOPeK666JdHxfIe76FQ0g3ujEr6Dc6lYBNYcC7ZU4OY7kz06FiGIxHeZ5y7FXpAenq420DT8Fc-KoqWmbwFugU-R8bTkg3Tmp90qFSYeVqpNJdZmnDwwajxzZTdn2UutY)
+图2视频拍摄
 
-胡塞武装在也门萨那的一次集会上举起武器。（PHOTO/HANI MOHAMMED）
-据2022年3月12日半岛电视台报道，周五（3月11日）胡塞武装宣布轰炸了沙特首都利雅得以及艾卜哈和吉赞地区的石油设施和其他目标。
+- 
 
-胡塞武装发言人叶海亚•萨雷亚表示，该组9架无人机对沙特石油设施和其他地点发动袭击，并补充说，3架飞机瞄准了沙特阿美位于利雅得的炼油厂，另有6架飞机瞄准了沙特阿美在吉赞和艾卜哈地区的设施。
 
-法新社报道称，沙特首都一家炼油厂遭到无人机袭击，引发“小火”，但并未影响炼油厂的工作或原油及其衍生品的供应。沙特阿美的炼油厂位于利雅得以南，距也门边境最近的地点约1000公里，炼油能力约为每天10万桶。
+外界解读本次伊朗发动导弹攻击的原因是与伊朗核专家法赫里扎德和伊朗伊斯兰革命卫队高级将领沙赫丹相继遭遇以色列暗杀有关。伊朗方面解释，袭击的目标是摩萨德在伊拉克的设施。摩萨德为以色列情报和特殊使命局，与[美国中央情报局](https://baike.baidu.com/item/%E7%BE%8E%E5%9B%BD%E4%B8%AD%E5%A4%AE%E6%83%85%E6%8A%A5%E5%B1%80/296816)、[克格勃](https://baike.baidu.com/item/%E5%85%8B%E6%A0%BC%E5%8B%83/124029)和[英国军情六处](https://baike.baidu.com/item/%E8%8B%B1%E5%9B%BD%E5%86%9B%E6%83%85%E5%85%AD%E5%A4%84/7511811)，并称为“世界四大[情报机构](https://baike.baidu.com/item/%E6%83%85%E6%8A%A5%E6%9C%BA%E6%9E%84/84987)”。
 
-在这几天郭先生的大直播和盖特视频当中，郭先生一直在强调，习近平要在中东挑起能源战争。这话音刚落下，那边胡塞武装就已经袭击了沙特阿美的炼油厂。
+本文认为伊朗借与“地缘宿敌”以色列的恩怨发动战火，目的是挑起中东的内乱，从而配合邪恶轴心国俄罗斯、中共让全球石油能源价格高涨。当石油价格高涨时，中共认为美国民众会因为高油价而出现内部动乱，中共可以高油价威胁西方民主社会，从而逼迫美国及欧盟与中共私下进行交易，筹码是台湾和乌克兰。
 
-我们知道很多国家的能源都依赖于中东，尤其是中国、日本和韩国。如果中共在那边儿搞事儿的话，首先受害的是中国和日本。这纯粹是属于杀敌八千，自损一万的做法。因为中国不是能源出口国，是纯粹的能源进口国，而且是世界第一的石油进口国。但是习近平为了把世界经济搞垮，让美国被迫承认他是老二，中美共同治理世界，所以他宁可把中国自己的经济给打残。本来俄乌战争已经使得石油天然气的价格飙升至高位，中东战事若再起来，那能源价格就飞上天了，中国的制造业肯定会彻底玩完。
+综上，本次中东战争的大幕才刚刚开始，中共的邪恶目的及计划会如何发展，让我们拭目以待七哥的下一次爆料。
 
-再加上现在疫情零容忍政策，中共国内的疫情又基本上全面开花，山东、上海、吉林、呼和浩特，很多地方都出现了大量的疫情，实际疫情肯定比这严重得多。因为冬奥会刚开始的时候，郭先生就已经说了，在冬奥会期间奥运村有多少人感染。奥运村是属于严格管理的一个地方，虽然外国的运动员吐槽，但是奥运村的检测和管理以及各种设施也比国内的普通人的环境好很多，但是在那个地方都感染了很多。最主要的连普京团队下榻的华尔道夫酒店都有三人猝死！可想而知当时的疫情有多严重，但是为了大国面子，为了奥运会，这一切都瞒着。现在冬奥会连同残奥会结束了，而且实在瞒不住了，就报道出来了。各地采取的措施相当于2020年初武汉疫情刚爆发的时候，那么也就能知道，这波疫情来势有多汹，肯定比官方的数字要大好几倍甚至几十倍，要不然不可能采取这么严厉的措施。深圳2000多万人口的大城市、长春700万人口的城市就这么停摆了，上海也好不了多少，这造成的经济损失有多严重，只有老百姓知道。
+参考消息：
 
-现在习近平又要在中东挑起比俄乌战争更大的事情，那估计是沙特和伊朗干起来，或者是世界石油生命线的霍尔木兹海峡被炸，然后所有的船只都通行不了，石油价格上天。那世界的经济就彻底崩溃了。习近平为了他在20大能连任，为了他家族不被清算，他爸爸的坟不被掘。就要在全世界不断的挑起事端——先是病毒，然后是疫苗，接着是俄乌战争，现在又是中东搞事，最后再弄台湾。这几年的事情哪件不是与习近平有关，而暗黑势力为了自己的利益，就一直纵容他甚至与他沆瀣一气，而我们全球老百姓却要为此买单。景山那棵歪脖子树一定要给习近平留着。暗黑势力将来也一定要受到清算。胡塞武装轰炸沙特炼油厂只是刚刚开始，更大的还在后面呢。
 
-发布：tianzhihuan
 
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+> 突发 | 刚刚伊朗发射多轮导弹，袭击了美国伊拉克埃尔比勒领事馆，造成重大伤亡，具体数字还未见报。根据英文推上几个记者观点，这是伊朗对普京的策应行动，而且他们还透露，拜登不会对伊朗此次袭击进行报复。
+> 接下来形势可能远比我们想象要复杂危险，想近期出国显然不太合适…[pic.twitter.com/mfrhVlZ2UN](https://t.co/mfrhVlZ2UN) [https://t.co/hXrSqPQX8O](https://t.co/hXrSqPQX8O)
+> — 昆侖 (@Kunluntalk) [March 12, 2022](https://twitter.com/Kunluntalk/status/1502789086326665217?ref_src=twsrc%5Etfw)
+
+
+
+[https://www.163.com/dy/article/H1QGC4B2054452QT.html](https://www.163.com/dy/article/H1QGC4B2054452QT.html)
+
+*审核：文筝*
+
+*发布：yin*
+
+![](https://lh6.googleusercontent.com/w8LMlCAeYCCPuKxveGdvcyeqg1Dd6HHwfVuUxJ34hpaMbTL0LD8zVPo5ACa3FuktSvFOIcmRQ-dNekv9ZFiBBUkbYOsSDApxh1ol6EeU7ac8c05cmsznH-u-3PJcLeMP0sErzQ3W)
 
  
 

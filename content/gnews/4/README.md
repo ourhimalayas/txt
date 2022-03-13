@@ -2,45 +2,28 @@
 ---
 
 
-## 中共官媒记者跟随俄军采访引发关注 被揭疑似间谍身份
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2156301/)
+## 新中国联邦乌克兰无国界救援 重塑中国人新形象
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2156385/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-150.jpg)
-中共记者跟随俄军采访（图片取自推特视频截图）
+撰稿：东京樱花团/小小星
 
-中共官媒凤凰卫视记者卢光宇日前跟随俄罗斯军队在乌克兰采访引发关注。随后，有人在网上揭露了其疑似间谍的身份。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新中国联邦乌克兰无国界救援-重塑中国人新形象.png)
 
-据《希望之声》3月11日报道，凤凰卫视的记者跟随俄罗斯军队到乌克兰东部城市马里乌波尔（Mariupol）采访，被乌克兰民众和当地情报部门盯上，怀疑其是间谍。
+随着俄罗斯和乌克兰的开战，大量乌克兰难民逃离家园。新中国联邦人在法治基金和法治社会的资助下，战友们从世界各地来到了乌克兰和波兰边境，每天都在拯救生命。
 
-乌克兰自由民主联盟主席哈里托诺夫（Arthur Kharytonov）日前在推特上发布了一段这名记者采访的视频。视频中，该名记者与俄军及东乌士兵亲切交谈并互相问候。哈里托诺夫痛批此人是间谍，他在推文中写道：“这是中（共）国与俄罗斯占领者合作的完整影片。真令人恶心。”
+救援队伍开设了24小时联络信箱和电报群。在乌克兰境内有三个重要地区，都有大巴车随时等待需要救助的人。同时还有飞往美国和东南亚的飞机，把难民们送到自己需要去的地方。并提供三十天酒店的住宿。所有所有的一切都是免费并且不分国籍肤色，帮助一切需要帮助的人！
 
-有网民爆料称，视频中的记者叫卢光宇，海军退役后留学俄罗斯，是总参二部的中校级特工。目前他率领一个“采访摄制组”随俄军行动，经常出入俄乌双方前线阵地。他们对乌军检查站声称自己是香港媒体，以隐瞒他们的中共国身份。
+在芬兰边境，我们的战友们建成了最好最大最温暖的大帐篷，准备了各种食物水果，还有现磨咖啡。同时，还有战友24小时值班，这给残酷战争中的人们带来了一丝温暖！
 
-CNN也对卢宇光在俄乌前线采访的事进行了报道，并发问：“这个中国人是谁？”
+我们战友的大爱给中国人带来了前所未有的新形象！让世界知道我们，有一些中国人，是爱好和平和自由的。我们不等同于中国共产党。中国共产党代表不了我们！
 
-新闻链接：
+来自世界各地的战友们，说西班牙语，俄语德语英语… 以最好的形象代表着新中国联邦人，跟世界和平相处。
 
+虽然现在世界的主流媒体都被邪恶势力控制中，但新中国联邦就在那里，用事实证明给世界！
 
-
-> BREAKING: CCP media outlets are now embedding with Russian troops as they encircle Ukrainian cities 
-> 
-> Are you paying attention yet? [pic.twitter.com/uFLfoOkRJX](https://t.co/uFLfoOkRJX)
-> — Jack Posobiec 🇺🇸 (@JackPosobiec) [March 8, 2022](https://twitter.com/JackPosobiec/status/1501231427559780352?ref_src=twsrc%5Etfw)
-
-
-
-[https://m.soundofhope.org/post/601937](https://m.soundofhope.org/post/601937)
-
-
-
-> 据CNN专门报导了中共特务卢宇光：这个中国人是谁？ [pic.twitter.com/BCoYakJI2l](https://t.co/BCoYakJI2l)
-> — 糊涂3.0（复活号） (@EZqkzsCFrgcaoww) [March 10, 2022](https://twitter.com/EZqkzsCFrgcaoww/status/1501768240770727936?ref_src=twsrc%5Etfw)
-
-
-
-* * *
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,46 @@
 ---
 
 
-## 2022/03/10 疫苗导致所有年龄组过量死亡
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2156111/)
+## Xi Jinping Intends to Fight Energy War to Ignite Powder Keg in Middle East
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2156214/)
 
-[![](https://express.adobe.com/page/V5LLOBcanHc2y/images/363eae43-fcab-45c7-aa9d-9197a9d8b71e.png?asset_id=451210a6-facb-4976-a0dd-4bfc61cfc322&amp;img_etag=%22da8dd3e2d74ef9531a610f0e3e0906b3%22&amp;size=2560)](https://express.adobe.com/page/V5LLOBcanHc2y/images/363eae43-fcab-45c7-aa9d-9197a9d8b71e.png?asset_id=451210a6-facb-4976-a0dd-4bfc61cfc322&amp;img_etag=%22da8dd3e2d74ef9531a610f0e3e0906b3%22&amp;size=1024)
-**简评：**
+Translated by:东京樱花团/英翻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-149.jpg)
+On March 9, 2022, Miles Guo broke the news in a livestream that the CCP was preparing a shocking action, that was, they intended to launch an energy war in Middle East from the end of March to April.
 
-CDC疾控中心数据库有各个年龄段的数据，一位保险业分析师拿到这些数据后，按年龄进行细分，得出超额死亡的结论。从夏天进入秋天，随着强制疫苗和加强针的推行，在25至44岁的千禧年龄组，有61000名千禧一代死亡，超额死亡率增加了84%。这是有史以来最严重的超额死亡率，等于千禧一代在2021年下半年经历了一场导致58000名美军战死的越南战争。这就是疫苗导致的所有年龄组过量死亡的直接证据，是政府通过强制疫苗杀人。政客们和福奇等人在躲避。
+Miles Guo told us that instead of being afraid, the situation of the Russia-Ukraine war has given Xi Jinping hope. However, the course of this war was more or less beyond his expectation. Xi expected two scenarios for the Russia-Ukraine war: one is that Russia will sweep across Ukraine; the other one is that the Russia-Ukraine war will cause disagreements and a gap between the United States and Europe.
 
-[**GETTR视频链接**](https://gettr.com/post/pzlfdxc99b)
+If the first scenario occurs, the CCP will take the opportunity to occupy Taiwan by force, forming a double-headed situation with Russia. The CCP is betting that the United States will not dare to conduct two wars at the same time. The second scenario is what the CCP would be most happy to see. As long as the Western countries are fighting their own wars and have their own thoughts, the CCP can make use of the conflicts between them to make a big deal out of them and make a profit. After all, sowing discord and BGY are the CCP’s best tricks.
 
-**视频字幕：**
+What the CCP does not expect is that the Russian army are so unbearable. The U.S. and Europe are so united and are acting in unison. The CCP doesn’t realize that the U.S. has such an wisdom. The United States will become the biggest beneficiary. The U.S. are fighting a proxy war through high-tech, electronic warfare, information warfare, and communication warfare to greatly deplete Russia at a fraction of the cost, And the polar bear (Russia) is spurned by the world. More frighteningly, Europe, Japan, Australia and even Asian countries have rallied around the United States, recognizing that the world cannot live without it.
 
-**战斗室嘉宾**：这是CDC（疾控中心）自己的数据，各种年龄阶段混杂在一起。我的保险业专家，前南区华尔街分析师进入了CDC数据库。我们在找其他东西，但我们发现的东西相当令人震惊。他拿到这些数据，花费了一些时间和精力，做了很多功课，按年龄进行了细分。他为每个年龄组建立了基线，得出超额死亡的结论。
+Xi Jinping knows very well that the world can no longer tolerate him and Putin. One does not do two endlessly, he decided to play big. He wants to show the United States his strength, he wants to control the world’s lifeline – energy, he wants to use energy as a grip to blackmail the United States and Europe, he wants to establish a new type of major power relations with the United States, he wants to work with the United States to govern the planet. This is Xi Jinping’s “original intention” and Xi Jinping’s hope.
 
-图表四显示千禧年龄组，即25至44岁，进入秋季后，超额死亡率增加了84%。这是有史以来，我认为最严重的超额死亡率。在图表四，先给你一个概念， 你看到强制疫苗和加强针在秋季引起加速（死亡），然后到年底又一次加速。你看到的那个数据下降是报告的问题。千禧年龄段的死亡需要时间来报告，因为它们通常不是在医院死亡。因此该数据将被更新，可能显示出连续的令人不安的趋势。
+How to achieve this “original intention”? Xi Jinping has set his sights on the Middle East. The Chinese Communist Party has been in the Middle East for a long time. It has signed a $500 billion deal with Saudi Aramco. The UAE and Qatar have long been subservient to the CCP in order to sell oil. Iran is the hardcore evil alliance of the CCP. When you look at the Middle East countries, they are either taken down by the CCP or they are afraid of the CCP. The CCP has considerable confidence in controlling the Middle East.
 
-从夏天进入秋天，随着强制疫苗和加强针的推行，有6万1千多名千禧一代死亡。基本上，千禧一代在2021年下半年经历了一场越南战争，美军有5万8千人死于越南战争，所以这一代人刚刚经历了越南战争。我认为这就是疫苗导致的所有年龄组过量死亡的直接证据。
+What’s most important is that the Persian Gulf countries in the Middle East are the world’s oil bases, known as the “oil depots of the world”. Every year, more than 750 million tons of Middle Eastern oil destined for the rest of the world must pass through the Strait of Hormuz, accounting for 90% of the total oil exports from the Gulf. According to statistics, a giant oil tanker passes through the Strait of Hormuz every five minutes on average, so the Strait of Hormuz is called “the throat of the sea oil channel” and “the valve of the world’s oil depot”.
 
-米歇尔.奥林斯基拒绝回答罗恩.约翰逊参议员的信件，这不是巧合。他们在躲避，福奇不见了，她不见了，他们都在躲避。所以我要把话说出来，这是一个老话题，但它需要被重新引入对话中。这就是我们所说的“政府的杀戮”，政府通过强制疫苗杀人。
+The Strait of Hormuz is the only sea passage for Persian Gulf oil to Western Europe, the United States, Japan and the rest of the world, carrying 60% of the supply of Western oil consuming countries. Once it is cut off, the Western economy will encounter a fatal threat, so it is regarded as the “lifeline” of Western countries.
 
-**班农先生**：如果你是正确的，这太具有爆炸性了，特别是说千禧一代，千禧一代在2021年经历了一场越战。
+The narrowest point of the “human” shaped Strait of Hormuz is less than 39 kilometers. And the Strait of Hormuz is right under the nose of Iran. So, blocking the strait is the “killer” of the Iranian army. The Iranian army can “easily” grab the throat of this world energy corridor.
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+In 2021, an oil tanker “malfunctioned” in the strait, blocking the passage and paralyzing transport in the strait, leaving a large number of oil tankers stranded. This “malfunction” was just a dress rehearsal for the Chinese Communist Party’s efforts to paralyze the Strait of Hormuz.
+
+Xi Jinping’s intention is to launch a local war in the Middle East to paralyze the Strait of Hormuz, pinch the “lifeline” of the West and force the US and Europe to bow down. The world will be co-managed with the United States to realize Xi’s dream of unifying the world.
+
+Of course, Iran is also the inseparable helper of the Chinese Communist Party. The unique geographical conditions, years of sanctions by the United States, and the strong support and help from the Chinese Communist Party have made Iran tied to the Chinese Communist Party’s chariot.
+
+It is safe to say that going to war in the Middle East is already Xi’s last chance. Can he succeed in his madness? The answer is no. The end of the war between Russia and Ukraine is that Putin is gone, and Xi Jinping can only blow himself up by igniting a powder keg in the Middle East. If God wants to destroy it, he must first make it crazy. Let’s wait and see.
+
+Resource：
+
+[习共欲打能源战争，引燃中东火药桶](https://gnews.org/zh-hans/2138371/)
+
+Written by：波士顿五月花/跟随战神
+Release: 东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
 
 
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*字幕：雨中漫步* *| 听写：云岭 | 翻译：Blue**| PR：Roberts**|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
-[![](https://express.adobe.com/page/V5LLOBcanHc2y/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/V5LLOBcanHc2y/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

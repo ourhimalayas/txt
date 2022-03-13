@@ -2,157 +2,37 @@
 ---
 
 
-## 爆料百科 &#8211; 邪教组织
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2155940/)
+## 2022/03/11 疫苗产生的刺突蛋白能在体内存在超过一年
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2156113/)
 
-作者：美国纽约香草山农场-爆料百科
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中共统治的70年间，
+[![](https://express.adobe.com/page/dk6kpcYUnI96l/images/9078cbf9-5dd7-409b-8237-45c6cd9ee7ee.png?asset_id=044572ba-095c-4fe4-9069-14c59ac6afa8&amp;img_etag=%22a6facb5e6e4f1003179980440ff4e9a7%22&amp;size=2560)](https://express.adobe.com/page/dk6kpcYUnI96l/images/9078cbf9-5dd7-409b-8237-45c6cd9ee7ee.png?asset_id=044572ba-095c-4fe4-9069-14c59ac6afa8&amp;img_etag=%22a6facb5e6e4f1003179980440ff4e9a7%22&amp;size=1024)
+**简评：**
 
-During the 70 years of CCP rule
+Peter McCullough表示，mRNA在人体淋巴结中会存在几个月，令人非常担忧。生物分子诊断公司的布鲁斯发现，在呼吸道感染的情况下，刺突蛋白、S1片段在人体细胞中停留长达15个月。只要观察，就一直能在疫苗接种者的身上看到S1和S2片段，肯定超过一年。刺突蛋白在人体内无处不在。刺突蛋白能导致血栓、损害心脏。刺突蛋白独立地致病。
 
-将许多组织定义为邪教组织。
+[**GETTR视频链接**](https://gettr.com/post/pzm63q2f20)
 
-it defined many organizations as cults
+**视频字幕：**
 
-而中共对中国人民犯下的罪行，
+**Dr. Peter McCullough**：有一篇刚发表的第一作者为罗特根的临床前论文，已经证明mRNA在人体内淋巴结中会存在几个月。注册实验对其安全性进行了两个月的观察，但此产品停留在体内，一种外来物质，核苷类似物，切割扩增多态性序列和RNA在体内停留时间超过了安全期限，非常令人担忧。领导IncellDX（生物分子诊断公司）的布鲁斯-帕特森进行了数据研究，有突破性发现。布鲁斯表明，在呼吸道感染的情况下，刺突蛋白、S1片段在人类CD16阳性单核细胞中停留长达15个月。而后班萨尔发表文章说，接种疫苗后的刺突蛋白在体内进入外秘体或小磷脂包中。现在我们知道在体内独立移动的刺突蛋白。然后我让布鲁斯来参加美国座谈电台的麦卡洛报告。因为他有一个疫苗接种者的登记册，他有能力检测刺突蛋白。在节目录制过程中，我问布鲁斯，你看到了什么？他说，目前只要我观察，就一直能在疫苗接种者的身上看到S1和S2片段，持续几个月！我问他，布鲁斯，这种刺突蛋白会在体内停留多久？他的最佳估计是肯定超过一年。
 
-And the crimes committed by the CCP against the Chinese people
+**主持人**：为什么这是个问题？我认为普通听众在想，我希望我的抗体能永远存在，我们不是在说抗体。
 
-悉数符合邪教组织的特征。
+**Dr. Peter McCullough**：我们现在说的是危险的刺突蛋白。问题是，刺突蛋白究竟在体内什么地方？在几个月后死亡的疫苗接种者的尸检，揭示了这个问题。报告来自维也纳，来自德国。答案是，刺突蛋白无处不在。刺突蛋白在大脑、在心脏。
 
-all fit the characteristics of a cult
+**主持人**：我们现在说的不是刺突蛋白的抗体。我们正在谈论的是病毒的武器—危险的炎症细胞因子，促成了血栓的形成。全身到处都是，对吧？
 
-1. 教主崇拜。
+**Dr. Peter McCullough**：所有人都明白，这种血栓在身体里是件坏事。无可争议，刺突蛋白导致血栓。每一项研究都表明，它损害了内皮细胞。我和张及其同事发表了论文，证明刺突蛋白会损害内皮细胞。人们最难搞清楚的是，是具有刺突蛋白的病毒，还是单独的刺突蛋白会损害身体？一旦我们开始得到临床前的论文，不要管核衣壳，单独的刺突蛋白，我们在模型中加入刺突蛋白，会不会损害细胞？是否导致血栓？是否损害心脏？答案是肯定的。刺突蛋白独立地致病。
 
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-First, cult leader worship
 
-从“东方红，太阳升，中国出了个毛泽东”，
+*编辑：【英国伦敦喜庄园编辑部】*
 
-from “Dongfanghong, the sun rises, China has a Mao Zedong”
-
-到当今的为我独尊的习太阳。
-
-to today’s the exclusive Xi Sun
-
-- 精神控制。中共建造“防火墙”，
-
-
-Second, mind control. The CCP built a “firewall”
-
-全面控制教育和舆论，洗脑国民，
-
-to fully control education, public opinion and brainwash the nationals
-
-让人民相信“爹亲，娘亲，不如党亲”。
-
-make the people believe that “father and mother are not as close as the CCP”
-
-- 编造邪说。共产主义早已被世界唾弃，
-
-
-Third, fabricated heresy. Communism has long been spurned by the world
-
-中共却包装美化共产主义，
-
-yet the CCP packages and glorifies communism
-
-将所谓的“毛思想”、“习思想”灌输给中国人民。
-
-and instilled the so-called “Mao Thought” and “Xi Thought” into the Chinese people
-
-- 聚敛钱财。
-
-
-Forth, gather wealth
-
-中共早期打着“打土豪，分田地”的幌子，
-
-Early in the CCP’s rule, under the guise of “fight the landlord and share the land”
-
-实为将土地收为中共所有。
-
-land was actually taken into the CCP’s possession
-
-海航王健、马云等相继卸磨杀驴，
-
-HNA Wang Jian, Jack Ma and others were killed as donkeys after the completion of their works
-
-就是当代版本“打土豪，分田地”。
-
-which is the current version of “fight the landlord and share the land”
-
-- 秘密结社。中国共产党实属外来组织，
-
-
-Fifth, secret associations. The CCP was a foreign organization
-
-成立早期活动均不公开透明。
-
-and its activities were not open and transparent in its early years
-
-- 对抗社会。
-
-
-Sixth, confront society
-
-中共制造各种政治运动，
-
-The CCP created various political movements
-
-“文化大革命”，数千万人民丧失。
-
-and the “Cultural Revolution” killed tens of millions of people
-
-制造种族大屠杀，新疆大屠杀、西藏大屠杀、香港大屠杀。
-
-It created genocide, the Xinjiang massacre, the Tibetan massacre, the Hong Kong massacre
-
-此外，中共还篡改历史，
-
-In addition, the CCP has falsified history
-
-掩盖篡权事实，
-
-and covered up the fact of usurpation of power
-
-谎称“没有共产党就没有新中国”，
-
-falsely claimed that “without the CCP there would not be a new China”
-
-“拯救56个少数民族”。
-
-and “save the 56 minorities”
-
-中共就是当今世界最大的邪教组织。
-
-The CCP is the largest cult in the world today
-
-摘要： 70年间，中共的累累罪行符合邪教组织的六大特点，
-
-Abstract: Over the period of 70 years, the cumulative crimes of the CCP fit the six characteristics of a cult:
-
-即教主崇拜、精神控制、编造邪说、聚敛财富、秘密结社、对抗社会。
-
-That is, cult leader worship, mind control, fabricated heresy, gather wealth, secret associations, and confront society
-
-此外，中共还篡改历史。中共就是当今世界最大的邪教组织。
-
-In addition, the CCP has falsified history. The CCP is the largest cult in the world today
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
-
-编辑：雪梨
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*字幕/**听写：雨中漫步 | 翻译：致良知**| PR：Blue* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+[![](https://express.adobe.com/page/dk6kpcYUnI96l/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/dk6kpcYUnI96l/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

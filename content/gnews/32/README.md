@@ -2,42 +2,36 @@
 ---
 
 
-## 法新社获奖战地记者大赞法治基金的帐篷设施
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2155323/)
+## 文贵先生盖特精要- 2022/03/12
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2155651/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1383.png)[盖特直播链接](https://gettr.com/post/pzmei76928)
 
-整理/编辑：小红帽
+- 下雪的纽约展现大自然的美。俄乌战争前线零下5-8度，营救帐篷有暖气、咖啡、热水供应，展现新中国联邦与中共不一样。
+- 香港疫情持续恶化，某位在港朋友感染病毒后表示香港已“死”，尸体遍地。据说病毒并非Omicron变异，而是新变种病毒，中共不对外宣传，病毒感染率高、死亡率高。香港大额转账已不可行。
+- 大陆内强制性隔离政策（辽宁、广东西部等）。中共国内释放奖励中国人10万元支援俄罗斯等消息。
+- 中东开始有“动作”（油、伊朗、也门、各武装势力）。
+- 星期天直播，下周周二直播。预计几次大直播世界又将发生大事。
+- 对世界正确认知，充满正义的信仰，新中国联邦人有币无苗幸福的“一族”，为亚洲人挣得“面子”。
+- 欧洲、美国甚至世界全在讨论新中国联邦推翻中国共产党的话题。新中国联邦一定推倒中共！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-13_12-41-20.png)图片来源：郭文贵先生盖特视频截图
+
+*听写：call me uncle*
+
+*校对: 乐禧禧*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-3月11日，在波兰梅迪卡的乌克兰难民救援中心，著名的法新社获奖战地记者路易莎（LOUISA）对新中国联邦和法治基金的难民救助营地的印象非常深刻。
+编辑：【英国伦敦喜庄园编辑部】
 
-路易莎当天专门来到新中国联邦和法治基金的大帐篷采访和拍照，顺道品尝了法治基金为难民们准备的现煮咖啡。一位波兰当地的志愿者–一个租车公司的老板，为路易莎煮着NFSC咖啡。在大帐篷里面，所有的志愿者已经成了一个国际大家庭。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-在难民救助营地里，有来自世界各地的捐助人，还有很多波兰当地的志愿者。
 
-期间，新中国联邦和法治基金前线记者妮可跟路易莎交谈起来。
-
-妮可：“你肯定无法相信，在这里居然能喝上一杯新鲜的咖啡。你觉得我们这里的设施如何？”
-
-路易莎：“简直完美。我简直无法用言语形容。”
-
-妮可：“你去过很多战区， 请问你见过这样的难民救助中心吗？”
-
-路易莎：“一切都井井有条。而且这是在战时。这非常非常的棒！”
-
-资料来源：[郭文贵先生2022年3月13日盖特视频](https://www.gettr.com/post/pzpjgr3219)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
