@@ -2,40 +2,108 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“生物科技”（五）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2153882/)
+## 帮助儿童逃离乌克兰
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2153993/)
 
-整理：BENJ1
-编辑：Kelly
+她没有办法用语言形容她在过去的24小时内
+Ella no tiene palabras para describir todo lo que ha visto
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/6a612dfb3ccf6e42.png)图片来源：雅典娜设计组
+她所经历和看到的这一切
+Y vivido en las últimas 24 horas
 
+她没有办法用语言表达对法治基金和所有新中国联邦派出的天使们
+No tiene forma para expresarse con palabras hacia la Fundación del Estado de Derecho y a todos los ángeles enviados por el Nuevo Estado Federal de China
 
-郭文贵**2021**年**5**月**30**日直播
-世界上的生化、生物科技、生物武器最牛的不是中共，也不是美国，是俄罗斯。如果说美国的经济实力、科技和俄罗斯比较的话，俄罗斯是一个80岁的老人对付一个年轻力壮的18岁、装备现代化武器的、浑身是钱的这么一个年轻人，俄罗斯没有可能赢。
+来帮助这些小孩, 她心情真的是非常非常的复杂
+Para ayudar a estos niños, ella está en un estado de ánimo muy, muy complicado
 
-但是对付一些黑科技，例如生物武器，还有某些战略性武器的话，俄罗斯不输美国，有些方面甚至赢过美国。世界上最早谈生物武器和生物科技武器化，甚至拿出了标准的原始鼻祖就是俄罗斯，还有乌克兰。中共国的这一套黑科技哪儿学的？全是在俄罗斯学的。所以他在俄罗斯鼻祖面前想撒谎他是撒过不去的，某种程度甚至有合作。
+她不知道用什么样的话来表达
+No sabe con qué palabra puede expresarse
 
-郭文贵先生**2021**年**8**月**1**日直播
-人类走向新的文明对抗的时代，最后是邪恶接近控制世界的时候，还是被世界有信仰的、有宗教的海洋文明国家的科技文明力量消灭在世界上、地球上，否则地球全人类都会被消灭。这里面生物科技战、化学战、科技战、网络战、太空战、宗教战、夹杂在其中。
+她说这个项目非常非常的艰难
+Ella dijo que este proyecto es muy difícil
 
-在这场的人类生死决择（的大战）当中，最有力的武器是社交媒体、虚拟货币，一定是这样。2025年绝对不可能有共产党，中国人一定被解放，世界上一定会和共产主义有个大对决。我们新中国联邦在这个时候，要避免两件事情，就做两件事情，我们绝对不能成为战场中的一份子，我们要成为收拾战场的那个人。
+这个不是说像我们看到的
+No es como lo que vemos
 
-郭文贵先生**2021**年**8**月**11**日直播
-什么叫G-Club，什么叫G-Fashion，未来的结合体——AI、5G智能化、新型材料、生物科技、互联网的新时代、太空研发的时代。
+发一点水和糖果
+Repartir un poco de agua y caramelos
 
-如果你不加入这场正道主义的灭共的事业，你会有机会坐上太空船去外太空旅行吗？你能每年享受新的空中飞机这种革命性的文明结果吗？生物科技对人类未来三到五年，癌症绝对是一粒药、几粒药就能彻底解决，糖尿病一定没有了，而且干细胞一定会得到发展，人类换肝、换肾、换心脏就跟你今天去换个美甲一样简单，只是钱的问题。你能享受这个文明吗？
+整个这个过程所经历的艰难和要过很多很多的关
+Todas las dificultades y obstáculos que se deben pasar durante todo el proceso
 
-资料来源：郭先生GTV和盖特直播视频
+要有很多很多的手续
+Debe haber muchos trámites
 
-发布：tianzhihuan
+她就是说你们能够在24小时之内
+Dijo que ustedes pueden lograr dentro de 24 horas
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+能够平安, 成功地把这些孩子带到安全的地带
+De poder llevar a estos niños de manera segura y exitosa a un lugar seguro
+
+她就觉得这个是非常非常难以用语言来表达
+Ella siente que ya con esto es muy difícil de expresarse con palabras
+
+因为这不是一件很容易做的事情
+Porque no es algo fácil
+
+她就说从小孩子过境
+Desde que los niños crucen a la frontera
+
+从这个乌克兰到波兰
+Desde Ucrania hasta Polonia
+
+然后又要去西班牙
+Luego a España
+
+这整个paper work
+Todo este papeleo
+
+所有的这个法律的手续, 公文非常非常的多
+Todos los trámites legales y documentos oficiales son muchísimos
+
+然后具体的每一步
+Y cada paso específico
+
+因为他们是小孩, 不是说像成人一样
+Porque ellos son niños, no son como los adultos
+
+他们坐bus, 坐30多个钟头又坐20多个钟头
+Ellos montan al autobús, pasan sentados más de 30 horas y luego 20 horas más
+
+然后中间每一个过程给他们提供安全的食宿啊
+Y en medio de cada paso, la comida y el hospedaje seguro que les proporciona
+
+然后还要给小孩子一种心理上的安慰
+Luego hay que darle a los niños una especie de consuelo psicológico
+
+这都是需要很多的努力的
+Todo esto se necesita de muchísimo esfuerzos
+
+所以她觉得如果没有法治基金和新中国联邦这些人的帮助的话
+Por eso, ella piensa que sin la ayuda de la Fundación del Estado de Derecho y las personas del Nuevo Estado Federal de China
+
+日期：03/10/2022
+原视频标题：帮助儿童逃离乌克兰
+Ayudar a los niños escaparse de Ucrania
+
+原视频网址：[https://twitter.com/caogenxiaogex/status](https://twitter.com/caogenxiaogex/status)
+
+原视频日期：03/07/2022
+原视频网址：https://twitter.com/caogenxiaogex/status/1500857488878407681?s=24
+任务编号：KC474（3951）
+视频时间段：0:00-02:20
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

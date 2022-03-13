@@ -2,24 +2,28 @@
 ---
 
 
-## 樱花时政┃IAEA声明乌克兰诉俄罗斯欲“永久控制”扎波罗热核电站
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2154185/)
+## 投资环境恶化外资加快撤离中共国
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2154339/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1362.png)
-图片来源于本文链接
+##### 作者：加拿大温哥华扬帆农场 – 自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1367.png)
+《自由亚洲》3月8日报道，荷兰合作银行近期关闭北京分行，终止了其在中共国近三十年的金融业务。五个月前，荷兰最大的跨国金融机构荷兰银行则关闭了上海分行。
 
-据NHK3月13日消息，国际原子能机构（IAEA）总干事格罗西于12日发表声明称，乌克兰报告称俄罗斯国有核电公司Rosatom欲对乌克兰东南部的扎波罗热核电站进行全面和永久控制。
+业内人士表示，中共对外资的态度让人越来越感到忧虑，外资在中共国发展前景不被看好。据不完全统计，外资银行占外资在中共国总投资金额35%以上，外资银行的撤离让外资在中共国的投资信心大打折扣，而荷兰作为欧盟成员国，它的撤离可以看作欧洲银行撤离中共国的一个缩影。另据报道，继大批日企撤离后，多家韩企也陆续关闭其在中共国门店，包括知名韩妆企业HERA郝妍等。
 
-乌克兰国有核电公司报告说，扎波罗热核电站现由一名俄罗斯军指挥官和约400名俄罗斯士兵控制着。
+中共死期已到，接下来在为苟延残喘而继续放毒和发动区域性战争的过程中，随时会脆断解体。投资环境恶化，逐利资本外逃也是本能。
 
-同时，俄罗斯国有核电RosAtom公司的代表告诉格罗西局长，他们承认RosAtom公司的专家在扎波罗热工厂，但否认军队控制了该工厂的运作，称无意将该工厂纳入其管理结构。
+发布/上传 – 文永
 
-信息来源：[ウクライナ ザポリージャ原発をロシア“恒久的に管理”か IAEA](https://www3.nhk.or.jp/news/html/20220313/k10013528941000.html?utm_int=news-international_contents_list-items_001)
+* * *
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

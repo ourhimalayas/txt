@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 2:50 AM (UTC)`
+
+【Ukraine Rescue】03/12/2022 NFSC & ROLF Volunteer Nicole is interviewed by Trinity Broadcasting Network at our Medyka rescue center, Poland. She explained to them that our NFSC is against the CCP and we love peace and rule of law, and we come here to provide humanitarian aid to all people.  <br/><br/>【乌克兰救援】03/12/2022 新中国联邦和法治基金义工妮可在我们波兰梅迪卡难民救助站接受全球最大宗教电视台三一广播网的采访，并向他们介绍了我们新中国联邦是反对中共的，我们爱好和平、法治，我们来这里为所有的人提供人道主义援助。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group22/getter/2022/03/13/02/921fe4ab-71c0-2fd8-08e8-71b141bd5ac1/out.jpg)
+
+---
+
 `@miles 3/13/2022 2:28 AM (UTC)`
 
 3/11/2022 Miles Guo: The CCP's support for Russia to invade Ukraine has put overseas Chinese in the most dangerous situation, but our Ukraine rescue operation has brought essential change to the darkness faced by the Chinese people! The Chinese were brutally raped and killed during the Indonesia's anti-Chinese riots while the CCP's Embassy sat back and did nothing about it.<br/><br/>3/11/2022 文贵直播：中共支持俄罗斯打乌克兰已将海外华人置于最危险的境地，但我们的乌克兰救援为华人面临的黑暗带来了本质性改变！华人在印尼排华事件中被残忍地奸杀，而中共大使馆却坐视不管<br/>
@@ -152,13 +159,6 @@
 <br/>3月12号：伟大的新中国联邦……伟大的法制基金的所有的捐款战友们。
 > `@himalayadcfarm 3/12/2022 7:31 PM (UTC)`<br/>🆘🇺🇦Lasest from Nicole on the #ukraineFront<br/>Our refugee camps have become a family where the world comes together in exchange! <br/>Our refugee camps become a place for donations from all over the world! <br/> 🆘🇺🇦来自#乌克兰前线Nicole最新报道：<br/>我们的营地成为世界交流汇聚的大家庭！<br/>我们的营地成为来自世界各地的捐物处！
 ![img](https://media.gettr.com/group48/origin/2022/03/12/19/2dac62ff-864e-f7e7-f4e8-0c26b469fc56/out.jpg)
-
----
-
-`@miles 3/12/2022 7:17 PM (UTC)`
-
-3月12号：永远相信．正义多于邪恶，好人多过坏人。【乌克兰 小男孩帮战友挂我们的横幅……<br/>让人动容的画面🙏🌹】
-![img](https://media.gettr.com/group48/getter/2022/03/12/19/c4f9939d-2822-946a-7106-dd36e84de713/d7aaac10caa92742985f138f3e1652ce.jpg)
 
 ---
 

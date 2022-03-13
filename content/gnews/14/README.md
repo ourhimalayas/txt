@@ -2,108 +2,36 @@
 ---
 
 
-## 帮助儿童逃离乌克兰
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2153993/)
+## 【 蓝枫法律 】 数字货币在各国的相关法律
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2154039/)
 
-她没有办法用语言形容她在过去的24小时内
-Ella no tiene palabras para describir todo lo que ha visto
+#### **加拿大温哥华扬帆农场 – 蓝枫法律**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-13-at-09.42.12.png)
+这个地图看到就是中共国和北非一些独裁国家，他们都是把数字货币，这个里面主要是比特币，是把它屏蔽掉了，就是严禁、违法。但是在发达国家是较为认可这些数字货币的，特别是在美国和欧洲是认可其交易支付属性和货币属性。但是部分的欧洲国家和加拿大是限制其用途，比如加拿大的比特币交易所，比如RBC或者TD，他遇到你是这种情况，他就不会让你付款到那个地方了。他说我们不会跟任何加密货币，数字交易货币进行的合作。还有一个比较重要的就是加拿大和美国还有澳洲，还有部分的欧洲国家包括德国，对比特币是要收税的。我们为什么要说比特币？因为现在主要的立法就是针对比特币，因为我们的喜币，我们通过比特币就可以看得出来他对所有加密货币的态度都是一样的。
 
-她所经历和看到的这一切
-Y vivido en las últimas 24 horas
+我们再讲一下中共国的数字货币的相关法律，2013年的时候中共国有一个防范关于比特币交易的⻛险的通知。2017年开始监管比特币，2017年9月4号有一个全面禁止比特币虚拟货币交易的通知，2021年5月21号开始提出打击比特币挖矿和交易行为。这个其实是跟去年我们喜币是相关的，中共国这个立法的节奏完全是跟我们喜币的发展息息相关的。包括后边约谈银行，严打包括比特币在内的虚拟货币，他不敢说我们这个喜币。人行7月6号也发了一个防范虚拟货币交易。从2021年9月24号就是全面停止，整个中共国从去年开始所有的持有比特币及相关的都是违法的。
 
-她没有办法用语言表达对法治基金和所有新中国联邦派出的天使们
-No tiene forma para expresarse con palabras hacia la Fundación del Estado de Derecho y a todos los ángeles enviados por el Nuevo Estado Federal de China
+我们再讲一下加拿大相关的数字法规。加拿大政府认定的加密货币，他是认为是一种可转换的去中心化的加密货币。所有交易的虚拟货币的公司必须要在Fintrac注册，目的就是要合规，要保留所有的记录，报告可疑或与恐怖主义有关的交易，并确定客户是否是“政治公众人物”，这个法律适用于你在非加拿大的虚拟货币的交易所。所以如果有加拿大的客户，如果公司未再分出来注册，那么银行不得与虚拟货币交易公司开立或维持账户或者是建立代理银行的关系。
 
-来帮助这些小孩, 她心情真的是非常非常的复杂
-Para ayudar a estos niños, ella está en un estado de ánimo muy, muy complicado
+我觉得我们的喜交所可能也是这个原因，因为如果你是作为这种东⻄的话，你就必须要在Fintrac注册。所以现在在美国和加拿大还不合法，这是我的个人观点，不一定是这种情况。还有作为数字货币的交易商，你必须要作为一个叫Money Service Business受到监管。还有就是魁北克的金融机构Autorite Des Marches Financiers宣布一些与比特币相关的商业模式，包括交易所和ATM都是受限行的MSB法案监管的。然后加拿大的大部分银行是禁止向加密货币交易所入金的，各位战友汇钱去喜交所的时候就感受到这个压力了。但是这个属于一个灰色地带，他是利用各种原因来阻挠你。
 
-她不知道用什么样的话来表达
-No sabe con qué palabra puede expresarse
+CRA对于数字货币的观点，加拿大的税务局他不认可。现在的加密货币、数字货币和虚拟货币，因为我们用这三个词就是 Interchangeable。外界对加密货币、数字货币都是一个很模糊的概念，所以我们对这三个都沿用。他们不认为数字货币和加密货币以及虚拟货币是一种法定货币，他们把这些都视为一种 Commodity，就是商品。那么根据不同情况，涉及加密货币的交易所产生的任何收益通常被视为经营收入（Business Income）或者是资本利得（Capital Gain）。你现在持有加密货币或者虚拟货币你不用纳税，但如果你是处置之后得到的经营性收入和利得就会有税。经营性收入是百分之百的全额纳税，资本利得是按50%计入应纳税所得额。所谓加密货币的处置有四种情况：
 
-她说这个项目非常非常的艰难
-Ella dijo que este proyecto es muy difícil
+1.加密货币的卖出或者是赠与。这个赠与也是要收税的，比如说我送给汀兰10个喜币她有可能要缴税；
 
-这个不是说像我们看到的
-No es como lo que vemos
+2.加密货币的贸易和交换，包括处置一种加密货币以换取另一种加密货币。就是你从一种货币换成另外一种都要收税，比如说你从比特币换成以太坊，从以太坊换成喜币再从喜币换成比特币，这个都要收税，所以我觉得这个非常黑；
 
-发一点水和糖果
-Repartir un poco de agua y caramelos
+3.加密货币兑换为政府发行的货币，比如说加元那也要收税；
 
-整个这个过程所经历的艰难和要过很多很多的关
-Todas las dificultades y obstáculos que se deben pasar durante todo el proceso
+4.用加密货币去购买服务和商品也要收税。就是说加密货币的开采、贸易、提现都要收税。
 
-要有很多很多的手续
-Debe haber muchos trámites
+但是CRA想这么做其实是做不了的。比如币安为了在加拿大服务，他肯定要跟Fintrac合作。加拿大的数字货币交易所里面的信息他可能都掌握的，但是这个信息到底会不会提供给 CRA，会不会被收税，这是一个比较有争议的问题。因为数字加密货币交易所也不是傻子，大家也知道所有的去中心化的加密货币有个核心，就是每个人都有一个账本，一个很长串的数字和字母的组合，对应的就是你的钱包。你可以把它做成一个冷钱包，就是离岸的那种，没有人能够查到你账面有多少钱。只有你在加密货币上面托管的那个钱，加密货币交易所可能会把这个信息提供给政府。但是这会让很多人从加密货币交易所转向冷钱包，那么加密货币交易所就没有生意了，这个就等于是砸交易所自己的饭碗。
 
-她就是说你们能够在24小时之内
-Dijo que ustedes pueden lograr dentro de 24 horas
+所以从理论上说这个监管方和操作运营商之间有一个博弈，包括第三方的消费者或者是加密货币的资产持有者。我们托管在这个里面是想他帮我们保密和避税，他如果完全做透明了那我何必在那边做？我直接就做完全的去中心化的冷钱包了。但是他也不能完全就成为一个非法洗钱的工具，所以说他是在灰色地带游走的，这就引出来我们待会要讲的一个很著名的最近才发生的一个案例。
 
-能够平安, 成功地把这些孩子带到安全的地带
-De poder llevar a estos niños de manera segura y exitosa a un lugar seguro
+**直播视频：https://gettr.com/streaming/pyel018cd9**
 
-她就觉得这个是非常非常难以用语言来表达
-Ella siente que ya con esto es muy difícil de expresarse con palabras
-
-因为这不是一件很容易做的事情
-Porque no es algo fácil
-
-她就说从小孩子过境
-Desde que los niños crucen a la frontera
-
-从这个乌克兰到波兰
-Desde Ucrania hasta Polonia
-
-然后又要去西班牙
-Luego a España
-
-这整个paper work
-Todo este papeleo
-
-所有的这个法律的手续, 公文非常非常的多
-Todos los trámites legales y documentos oficiales son muchísimos
-
-然后具体的每一步
-Y cada paso específico
-
-因为他们是小孩, 不是说像成人一样
-Porque ellos son niños, no son como los adultos
-
-他们坐bus, 坐30多个钟头又坐20多个钟头
-Ellos montan al autobús, pasan sentados más de 30 horas y luego 20 horas más
-
-然后中间每一个过程给他们提供安全的食宿啊
-Y en medio de cada paso, la comida y el hospedaje seguro que les proporciona
-
-然后还要给小孩子一种心理上的安慰
-Luego hay que darle a los niños una especie de consuelo psicológico
-
-这都是需要很多的努力的
-Todo esto se necesita de muchísimo esfuerzos
-
-所以她觉得如果没有法治基金和新中国联邦这些人的帮助的话
-Por eso, ella piensa que sin la ayuda de la Fundación del Estado de Derecho y las personas del Nuevo Estado Federal de China
-
-日期：03/10/2022
-原视频标题：帮助儿童逃离乌克兰
-Ayudar a los niños escaparse de Ucrania
-
-原视频网址：[https://twitter.com/caogenxiaogex/status](https://twitter.com/caogenxiaogex/status)
-
-原视频日期：03/07/2022
-原视频网址：https://twitter.com/caogenxiaogex/status/1500857488878407681?s=24
-任务编号：KC474（3951）
-视频时间段：0:00-02:20
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**编辑****/****发文：蓝枫法律栏目**
 
  
 
