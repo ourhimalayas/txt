@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 1:28 AM (UTC)`
+
+2022.03.12 晚 《新中国联邦新闻》新中国联邦人展示国际化新形象；波兰租车公司老板加入新中国联邦救援团队
+![img](https://media.gettr.com/group12/origin/2022/03/13/01/8d17f55a-5c9f-d8dd-025c-a79511fdeb87/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/13/2022 12:41 AM (UTC)`
 
 “A lot of help. A lot of human souls. They give us a chance to believe in someone… you have a big heart…give us a great example… I can do the same to others, the world can be better. This is what we learned about your organization.”<br/>“（法治基金和新中国联邦）提供了大量的救助，充满了人性，让我们有机会相信一个人。你们有大善心，树立了伟大的榜样。我将会依此去行善，世界会因此而改善”
@@ -152,13 +159,6 @@
 
 
 ![img](https://media.gettr.com/group12/origin/2022/03/12/07/021f74f1-c770-3b2e-6df2-eba05efd2466/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/12/2022 11:34 AM (UTC)`
-
-【Ukraine Rescue】03/11/22 The rescue tents of the New Federal State of China in Medyka, Poland continue to welcome many children, women and elderly refugees at 1 o'clock in the middle of the night<br/><br/>【乌克兰救援】03/11/22 新中国联邦在波兰梅迪卡的救援帐篷半夜1点还不停地迎入很多的孩子、妇女和老人难民<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group37/getter/2022/03/12/11/a9dbf625-645c-a3bb-f4c4-d9f9047837b1/out.jpg)
 
 ---
 
