@@ -2,157 +2,48 @@
 ---
 
 
-## 爆料百科 &#8211; 邪教组织
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2155940/)
+## 俄罗斯军队在乌克兰东部推进，在西部袭击军事基地
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2155963/)
 
-作者：美国纽约香草山农场-爆料百科
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中共统治的70年间，
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-During the 70 years of CCP rule
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/ZL5JRDU2O5OKBLHPLSPL37MZ5E.jpg)
 
-将许多组织定义为邪教组织。
 
-it defined many organizations as cults
+图片来源：路透社
 
-而中共对中国人民犯下的罪行，
+乌克兰官员说，俄罗斯军队周日对波兰边境附近的一个大型乌克兰军事设施发动了导弹袭击，这似乎是战争中最西端的袭击。
 
-And the crimes committed by the CCP against the Chinese people
+利沃夫地区军事管理局在一份声明中说，“占领者对位于亚沃里夫的国际维和与安全中心发动了空袭”。 “根据初步数据，他们发射了八枚导弹。”
 
-悉数符合邪教组织的特征。
+路透社无法立即核实该报道，俄罗斯也未立即发表评论。
 
-all fit the characteristics of a cult
+据乌克兰国际文传电讯社报道，乌克兰武装部队陆军学院发言人安东·米罗诺维奇说，初步报告显示“没有死亡，但有关伤员的信息正在澄清中”。
 
-1. 教主崇拜。
+袭击后，路透社看到 19 辆拉响警报器的救护车从雅罗维夫工厂的方向驶来。
 
+这个 360 平方公里（140 平方英里）的设施距离波兰边境不到 25 公里（15 英里），是乌克兰最大的设施之一，也是该国西部最大的设施之一。
 
-First, cult leader worship
+在入侵之前，乌克兰与北约国家进行了大部分演习。最后一次大型演习是在 9 月。
 
-从“东方红，太阳升，中国出了个毛泽东”，
+乌克兰西部另一个城市伊万诺-弗兰科夫斯克的市长表示，俄罗斯军队也继续袭击其机场，初步没有人员伤亡报告。
 
-from “Dongfanghong, the sun rises, China has a Mao Zedong”
+英国国防部周日表示，在乌克兰东部，当乌克兰军队从北部的哈尔科夫和南部的马里乌波尔推进时，俄罗斯军队正试图包围他们。
 
-到当今的为我独尊的习太阳。
+该部在推特上发布的情报更新中说：“从克里米亚推进的俄罗斯军队正试图绕过 Mykolaiv，因为他们希望向西驶向敖德萨。”
 
-to today’s the exclusive Xi Sun
+星期天早上，空袭警报再次唤醒了基辅的居民，几个小时前，乌克兰总统泽连斯基警告俄罗斯军队，如果他们试图占领首都，他们将面临一场生死攸关的战斗。
 
-- 精神控制。中共建造“防火墙”，
+“如果他们决定使用地毯式炸弹并简单地抹去这个地区的历史……并摧毁我们所有人，那么他们将进入基辅。如果这是他们的目标，让他们进来，但他们将不得不在这片土地上生活 ”泽连斯基周六说。
 
+俄罗斯的炮击已将数千人困在被围困的城市中，并使 250 万乌克兰人逃往邻国。
 
-Second, mind control. The CCP built a “firewall”
+链接：[https://www.reuters.com/world/europe/ukraines-zelenskiy-warns-desolation-if-russia-tries-take-kyiv-2022-03-13/](https://www.reuters.com/world/europe/ukraines-zelenskiy-warns-desolation-if-russia-tries-take-kyiv-2022-03-13/)
 
-全面控制教育和舆论，洗脑国民，
 
-to fully control education, public opinion and brainwash the nationals
 
-让人民相信“爹亲，娘亲，不如党亲”。
+编辑发表： Shuizhuyu
 
-make the people believe that “father and mother are not as close as the CCP”
-
-- 编造邪说。共产主义早已被世界唾弃，
-
-
-Third, fabricated heresy. Communism has long been spurned by the world
-
-中共却包装美化共产主义，
-
-yet the CCP packages and glorifies communism
-
-将所谓的“毛思想”、“习思想”灌输给中国人民。
-
-and instilled the so-called “Mao Thought” and “Xi Thought” into the Chinese people
-
-- 聚敛钱财。
-
-
-Forth, gather wealth
-
-中共早期打着“打土豪，分田地”的幌子，
-
-Early in the CCP’s rule, under the guise of “fight the landlord and share the land”
-
-实为将土地收为中共所有。
-
-land was actually taken into the CCP’s possession
-
-海航王健、马云等相继卸磨杀驴，
-
-HNA Wang Jian, Jack Ma and others were killed as donkeys after the completion of their works
-
-就是当代版本“打土豪，分田地”。
-
-which is the current version of “fight the landlord and share the land”
-
-- 秘密结社。中国共产党实属外来组织，
-
-
-Fifth, secret associations. The CCP was a foreign organization
-
-成立早期活动均不公开透明。
-
-and its activities were not open and transparent in its early years
-
-- 对抗社会。
-
-
-Sixth, confront society
-
-中共制造各种政治运动，
-
-The CCP created various political movements
-
-“文化大革命”，数千万人民丧失。
-
-and the “Cultural Revolution” killed tens of millions of people
-
-制造种族大屠杀，新疆大屠杀、西藏大屠杀、香港大屠杀。
-
-It created genocide, the Xinjiang massacre, the Tibetan massacre, the Hong Kong massacre
-
-此外，中共还篡改历史，
-
-In addition, the CCP has falsified history
-
-掩盖篡权事实，
-
-and covered up the fact of usurpation of power
-
-谎称“没有共产党就没有新中国”，
-
-falsely claimed that “without the CCP there would not be a new China”
-
-“拯救56个少数民族”。
-
-and “save the 56 minorities”
-
-中共就是当今世界最大的邪教组织。
-
-The CCP is the largest cult in the world today
-
-摘要： 70年间，中共的累累罪行符合邪教组织的六大特点，
-
-Abstract: Over the period of 70 years, the cumulative crimes of the CCP fit the six characteristics of a cult:
-
-即教主崇拜、精神控制、编造邪说、聚敛财富、秘密结社、对抗社会。
-
-That is, cult leader worship, mind control, fabricated heresy, gather wealth, secret associations, and confront society
-
-此外，中共还篡改历史。中共就是当今世界最大的邪教组织。
-
-In addition, the CCP has falsified history. The CCP is the largest cult in the world today
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE.png)
-
-编辑：雪梨
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
