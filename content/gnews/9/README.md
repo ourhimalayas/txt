@@ -2,23 +2,31 @@
 ---
 
 
-## 有声|郭文贵先生警示世界 中共或在四月搅动中东局势
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2158419/)
+## YouTube封锁俄罗斯官媒频道 范围扩及全球
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2158432/)
 
-配音：香草山教育部 – 百香果
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-在3月9日的大直播中，郭文贵先生再一次发出预警，3月底到4月中旬，中共或在中东地区发起疯狂的行动，趁乱局入侵台湾，但最终会作茧自缚。
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月12日国外媒体报道，在俄罗斯入侵乌克兰后，YouTube在欧洲地区封锁了俄罗斯国家资助媒体的相关频道。3月12日，Youtube再次宣布，将对俄罗斯国家资助媒体相关频道的封锁范围扩大到全球。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-13-下午1.46.32.png)
+YouTube表示，根据公司禁止否定、缩减或淡化有充足证据的暴力事件的规定，将移除违反政策的俄罗斯入侵乌克兰相关内容，同时也封锁YouTube上受国家资助的俄罗斯媒体频道，范围扩及全球，立即生效。
 
-郭先生指出，习并不会如外界猜测的放弃攻台野心，相反，在看到美国成为乌克兰危机中最大受益者之后，将会坚定夺取台湾的信心。未来五到六周，中共会利用再次释放病毒的机会，挑起中东局势，发动能源战争，趁世界乱作一团，迅速发动台海区域性战争，拿下台湾，解决中共国内忧外患的困局。在实现中华大一统的夙愿之后，将要求与美国推进所谓的“中美共同治理地球”。
+YouTube补充道，禁播的内容包括否认俄罗斯入侵乌克兰，或声称入侵是维和行动。但YouTube 拒绝具体说明在全球范围内哪些频道和多少频道被屏蔽，或者是否会恢复。
 
-早在2021年8月16日，郭先生就提到中共会在中东有所行动，通过控制马六甲海峡、霍尔木兹海峡，让中东别无选择地用石油等能源来报复日本，掐住韩国的命脉，让这两国无力阻止中共向亚洲和世界的扩张。然而，郭先生强调，中共的疯狂举动，将招致全世界的制裁和围剿，最后一定以自取灭亡而告终。
+YouTube的母公司谷歌此前已禁止俄罗斯广告商在Google全球产业与网络刊登广告。
 
-文字版原文：[郭文贵先生警示世界 中共或在四月搅动中东局势](https://gnews.org/zh-hans/2141403/)
+俄罗斯3月12日宣布，限制民众登陆社交媒体Instragram，并对其母公司Meta提出刑事诉讼，起诉Meta准许用户发表反对俄罗斯入侵的言论。
 
-音频处理：Fei797
-发稿：Fei797
+俄罗斯官方媒体称，包括应用商店和其他社交媒体服务在内的分销商对俄罗斯施加的限制是不正当的审查。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+参考链接：[YouTube blocks Russian state-funded media channels globally](https://www.reuters.com/business/media-telecom/youtube-blocks-russian-state-funded-media-channels-globally-2022-03-11/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+
+编辑：飞虹
+总编：Zion文恩
+审核：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
