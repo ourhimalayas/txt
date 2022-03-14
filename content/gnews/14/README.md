@@ -2,10 +2,10 @@
 ---
 
 
-## 泽连斯基披露两军死亡数字
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159759/)
+## 美国驻伊拉克领事馆附近发生导弹爆炸
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159779/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：日本东京方舟农场—Miyali7768(文玉）
 
 
 
@@ -13,22 +13,19 @@
 
 
 
-3月13日，国外媒体报道，乌克兰总统泽连斯基前一天在莫斯科军队逼近首都基辅时表示，自俄罗斯入侵乌克兰以来，已有“约1300名”名乌克兰士兵丧生。
+据国外媒体报道，当地时间3月13日凌晨，伊朗阿塞拜疆省的哈萨巴德军事基地发射数枚导弹，在美国驻伊拉克埃尔比勒领事馆附近爆炸。
 
-泽连斯基是在媒体吹风会上披露的这一情况，这是基辅自战斗开始以来首次披露伤亡数字。
+一位伊拉克官员最初说导弹击中了美国领事馆，后来另一名官员证实导弹是在美国设施附近爆炸的。
 
-3月2日，俄罗斯曾表示俄方已损失近500名士兵，但此后一直没有更新数字。3月12日泽连斯基称，俄军已有12000人阵亡，但他表示，俄军如此巨大的伤亡并不让他开心。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-5.jpg)
-就在3月12日，俄罗斯军队加大了对基辅的压力，猛烈打击了乌克兰其他城市的平民区，基辅市长表示，基辅正在加强防御并储存食品和药品。
-
-另外乌克兰外交部长称，南部港口城市马里乌波尔正面临“地球上最严重的人道主义灾难”，俄军的袭击已经造成1500多名平民死亡。
-
+目前暂无人员伤亡报道。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12-3.jpg)
 参考链接：
-[‘Around 1,300’ Ukrainian troops killed during assault](https://news.rthk.hk/rthk/en/component/k2/1638633-20220313.htm?share=facebook)
+[Iran claims missile barrage near US consulate in Iraq](https://abcnews.go.com/International/wireStory/missiles-target-us-consulate-north-iraq-casualties-83412862)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
 总编/审核：飞虹
+编辑：文特
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

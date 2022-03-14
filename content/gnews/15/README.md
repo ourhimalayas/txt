@@ -2,48 +2,25 @@
 ---
 
 
-## 以色列斡旋停战未果 泽连斯基誓死保卫基辅
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159758/)
+## 乌国难民恐成人蛇下手目标！快快加入新中国联邦
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2159776/)
 
-作者：纽约香草山 – 侠肝义胆
+俄军侵略乌克兰19天，引发大规模难民潮逃到国外，联合国统计至少已经有250万人流离失所，其中绝大多数都是「老弱妇孺」弱势族群，国际公益团体非常担忧，贩卖人口歹徒可能趁着兵荒马乱之际，混进难民营，假借各种名义，把妇女跟小朋友带走卖掉，让本来孤苦无依的乌克兰难民，再度掉进不幸的深渊。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/b06c8cdc-bac2-48eb-bdd1-ae5bcb4e5c11.jpg)图片来源：AP Direct
 
+世界展望会呼吁，乌克兰难民必须有危机意识、三思而行，尤其是女性和年轻人，手机必须充饱电，每次乘车都要记住车号，跟具有公信力的国际志工保持密切联系，随时通报去向和所在位置，以免遭遇不测人间蒸发，成为人口贩卖集团的战利品，幸运逃离战火却又掉进更可怕的地狱。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+简评：乱世之中，人性的恶念很容易被激发，尤其那些无恶不作贩卖人口的歹徒，会趁着机会大搞人口买卖，乌克兰的难民正是他们瞄准的目标！新中国联邦人道救援在救援现场设立了救援营，热心无私的帮助乌克兰逃难的朋友们，刚刚逃离战火为了免遭坏人之手，新中国联邦大家庭欢迎你们的加入！
 
+新闻来源：[台视新闻网](https://news.ttv.com.tw/news/11103130033400N)
 
+撰稿/发布：一叶知秋
 
-国外媒体3月12日报道，以色列总理贝内特为幹旋俄乌停战，和乌克兰总统泽连斯基及法 德领导人进行了反复沟通交流。泽连斯基告诉贝内特，他希望到耶路撒冷和普京见面，进行和平谈判。
-
-贝内特为此专门访问莫斯科会见了普京，希望能够调解目前处于焦着状态的俄乌战争。但遗憾的是贝内特此行没有达成预期成果，普京仍然拒绝同泽连斯基见面进行和谈。
-
-泽连斯基说，贝内特已经向他通报了他与普京的会谈情况。此前，普京对泽连斯基多次提出的和谈建议置之不理。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-8.jpg)
-因此，泽连斯基在新闻发布会上说，乌克兰人已经准备好反击俄罗斯的疯狂进攻。俄罗斯人想要占领基辅只有杀死所有乌克兰人。俄罗斯地毯式的轰炸不能抹去乌克兰和基辅的历史记忆，更无法抹去整个欧洲的历史记忆。
-
-泽连斯基表示，乌克兰人将誓死保卫自己的首都，俄罗斯即使再派一百万军队过来，也不能占领乌克兰。
-
-参考链接：
-[‘Let Them Come’ – Zelensky Says Russians Will Have to ‘Kill Us All’ to Take Kyiv](https://www.breitbart.com/europe/2022/03/12/let-them-come-zelensky-says-russians-will-have-to-kill-us-all-to-take-kyiv/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

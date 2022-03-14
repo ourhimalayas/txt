@@ -2,41 +2,48 @@
 ---
 
 
-## 有声|历史上的今天——历史上的今天起义日
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2159649/)
+## 以色列斡旋停战未果 泽连斯基誓死保卫基辅
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159758/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1955年后，中共政府在中国四川和青海等藏区强制推行了人民公社制度和“大跃进”运动。在此期间，中共派遣军队镇压、屠杀了大批藏民，还没收当地牧民的财产并大量摧毁当地寺院；同时，中共还强迫该地区众多僧人还俗，妄图灭绝藏族的宗教和传统文化。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-13.jpg)
-资料显示，西藏的精神领袖和族群头人在当地藏人心中有着至高无上的地位。因此，自1958年起，为了更有效地镇压并控制西藏人民，中共通过请客吃饭或开办学习班等阴谋诡计，将那些有威望的藏人首领全部控制了起来，且他们当中的绝大多数人最终都下落不明、不知生死。
-
-直至1959年年初，中共西藏军区的副司令员邓少东邀请达赖喇嘛于当年3月10日前往当地军区礼堂观看文工团演出。更甚者，中共拒绝让达赖喇嘛的警卫团随行护卫。消息一经传出，各地的藏民蜂拥包围了罗布林卡宫，请求达赖喇嘛取消这次军区之行。随后，这一诉求抗议演变成了大规模的起义运动，藏民们强烈要求中共政府离开西藏。
-
-1959年3月10日，中共军队与当地藏民在藏区发生了严重的武装冲突，其中，拉萨地区的交战最为激烈。而在共军炮击藏族反抗民众并强行占领了罗布林卡宫之后，原西藏政府首脑、第十四世达赖喇嘛与八万西藏人流亡至印度并成立了西藏流亡政府，其主张西藏独立和大藏区自治。
-
-后来，这些流亡海外的藏族人将1959年3月10日定为西藏人民起义日，用以纪念当年的西藏抗暴运动。
+作者：纽约香草山 – 侠肝义胆
 
 
 
-文字版原文：[历史上的今天——历史上的今天起义日](https://gnews.org/zh-hans/2139001/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
+
+国外媒体3月12日报道，以色列总理贝内特为幹旋俄乌停战，和乌克兰总统泽连斯基及法 德领导人进行了反复沟通交流。泽连斯基告诉贝内特，他希望到耶路撒冷和普京见面，进行和平谈判。
+
+贝内特为此专门访问莫斯科会见了普京，希望能够调解目前处于焦着状态的俄乌战争。但遗憾的是贝内特此行没有达成预期成果，普京仍然拒绝同泽连斯基见面进行和谈。
+
+泽连斯基说，贝内特已经向他通报了他与普京的会谈情况。此前，普京对泽连斯基多次提出的和谈建议置之不理。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-8.jpg)
+因此，泽连斯基在新闻发布会上说，乌克兰人已经准备好反击俄罗斯的疯狂进攻。俄罗斯人想要占领基辅只有杀死所有乌克兰人。俄罗斯地毯式的轰炸不能抹去乌克兰和基辅的历史记忆，更无法抹去整个欧洲的历史记忆。
+
+泽连斯基表示，乌克兰人将誓死保卫自己的首都，俄罗斯即使再派一百万军队过来，也不能占领乌克兰。
+
+参考链接：
+[‘Let Them Come’ – Zelensky Says Russians Will Have to ‘Kill Us All’ to Take Kyiv](https://www.breitbart.com/europe/2022/03/12/let-them-come-zelensky-says-russians-will-have-to-kill-us-all-to-take-kyiv/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/审核：飞虹
+校对/发稿：为真不破20
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

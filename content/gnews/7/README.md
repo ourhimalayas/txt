@@ -2,40 +2,31 @@
 ---
 
 
-## 前线快报&#8212;-3月13日， 经过12小时的舟车劳顿，满载147人的三辆大巴今凌晨到达波兰
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2159800/)
+## 俄军猛烈空袭乌克兰西部军事基地
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2159876/)
 
-3月13日 俄乌战争第18天，波兰—克拉科夫Kraków
-![](https://assets.gnews.org/wp-content/uploads/2022/03/031202.jpg)[盖特视频链接](https://www.gettr.com/post/pzv0r4bb4d)
-昨天从利沃夫出发顺利登上救援大巴的妇女儿童，经过近12小时的舟车劳顿，今天凌晨已安全撤离至波兰👏👏👏车上有多名婴儿，最小的才只有3天！这个战火宝宝在铁血大卫的怀里睡得香甜，万佛万神保佑，这些小宝贝们都能在和平安全的环境中成长🙏🙏🙏
+采编：加拿大温哥华杨帆农场 – 青青
 
-前线救援队寒风中迎接3辆载有147人的救援大巴，并贴心地准备了热咖啡和食物，帮脱困的妈妈孩子们拿行李，引领她们去火车站。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1488.png)[盖特视频链接](https://www.gettr.com/post/pzvdfhdb3c)
-新中国联邦、法治基金、法治社会与国际救援组织合作，无偿帮助华人同胞、乌克兰同胞、美国同胞以及全球同胞撤离乌克兰战区。根据求助者的护照及签证情况，撤离地点为美国和其他安全中转国。请有需要的全球同胞与新中国联邦24小时紧急救援客服联系。
-
-🆘24小时救援客服热线（电话/短信）：
-
-+1 720-657-6776或 +1 719-224-4232 或+48 508-532-712 或 +48 508-531-518
-
-🔵Telegram： t.me/UkraineRescue
-
-🔵邮箱： [\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/grafik-14.png)
-***编辑：【英国伦敦喜庄园编辑部】***
+编译撰稿：加拿大温哥华杨帆农场 – 文明(添草灭共)
 
 
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1492.png)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+图片来源：ctvnews
 
+据加拿大《CTV新闻》3月13日报道，俄军当天发射大量导弹，猛烈袭击了乌克兰西部与波兰边境接壤的一个军事训练基地，当场造成约40人死亡。
 
-编辑：【英国伦敦喜庄园编辑部】
+据悉，本次空袭是在普京威胁将那些向乌克兰提供军事装备的欧盟成员国作为打击目标之后进行的。大约有30多枚俄罗斯巡航导弹击中了该离波兰边境不到25公里的训练基地。 报道称，波兰是北约对乌克兰军事援助的主要过境通道。目前，美国已增加部署了在当地的美军人数。而该基地长期以来一直被美国和其他北约国家的教官用来训练乌克兰军事人员。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+校对编辑：硫酸羟氯喹64
 
+发稿：青青
+
+原文链接： https://www.ctvnews.ca/world/russian-airstrike-hits-base-in-western-ukraine-kills-35-1.5817365
+
+————————————————————————————————————
+![](https://cdn.discordapp.com/attachments/931678161832394752/952726699026567208/Screen_Shot_2022-03-11_at_22.png)
 
 
  

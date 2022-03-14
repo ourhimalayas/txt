@@ -2,89 +2,56 @@
 ---
 
 
-## 拜登：“北约与俄罗斯之间的直接对抗是第三次世界大战，我们必须努力防止这种情况”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2159889/)
+## 新中国联邦记者妮可在前线采访两个波兰独立制片人
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2159952/)
 
-Joe Biden (U.S. President)
-乔·拜登（美国总统）
+妮可在与两位波兰独立电影人交谈时说，我们都是为了团结，为了帮助，为了带来和平和爱，为了从乌克兰拯救人们，而不分国籍、宗教、种族。所有的救援工作都是由法治基金资助和来自世界各地的中国新联邦的志愿者实行的。我们作为中国人，代表着支持自由和平等的新中国联邦国家!  我们不支持普京，我们是打倒中国共产主义的中国人。
 
-We’re gonna continue to stand together with our allies in Europe
-我们将继续与我们在欧洲的盟友站在一起
+**【新中国联邦救援】2022.3.11 Nicole采访两个波兰独立制片****人**
 
-and send an unmistakable message
-并传递明白无误的信息
+妮可：你能告诉我们你来自哪里吗？
 
-We’ll defend every single inch of NATO territory
-我们将保卫每一寸北约领土
+受采访者 A: 我来自波兰，克拉科夫。
 
-of the full might of the united and galvanized NATO
-团结和激励的北约的全部力量
+妮可:你呢？
 
-We will not fight a war against Russia in Ukraine
-我们不会在乌克兰与俄罗斯开战
+受采访者 B:我来自波兰的伍德。
 
-direct confrontation between NATO and Russia is World War III
-北约与俄罗斯的直接对抗将成为第三次世界大战
+妮可:好的,你们在把这次采访拍摄制作成纪录片的一部分，就像纪录片一样？
 
-Something we must strive to prevent
-这是我们必须努力防止的事情
+受采访者 B：是的，我是个记者，她是个电影制片人。我们决定我们决定自己来做这部纪录片！
 
-But we already know Putin war against Ukraine will never be a victory
-但我们已经知道普京对乌克兰的战争永远不会胜利
+妮可:太棒了！
 
-He hoped to dominate Ukraine without a fight, he failed
-他希望轻松战胜乌克兰，他失败了
+采访者 B:志愿者的工作，因为有这么多，来自世界各地的人，我认为向人们展示这一点非常好。就像他们是如何团结起来的，这是很困难的情况。
 
-he hoped fracture European resolve, he failed
-他希望破坏欧洲的决心，他失败了
+妮可：是的。
 
-he hoped to weaken the Transatlantic Alliance, he failed
-他希望削弱了跨大西洋联盟，他失败了
+受采访者 A:人们真的来自世界各地，来自四面八方，真是不可思议。
 
-He hoped to split apart American democracies in terms of our positions, he failed
-他希望在我们的立场上分裂美国民主国家，他失败了
+妮可：是的，绝对是不可思议的。你知道明道和所有这些中国人，我们不是来自中国共产党的中国。我们是来自新中国联邦。新中国联邦是独立于中共政府的。对，法治基金赞助了我们的救援工作，法治基金有一个使命就是要帮助中国人民脱离共产主义，并为所有人提供人道援助。不管他们的国籍和种族，所以这是一个真实的例子，人类一体化的美好的体现。你想对所有新中国联邦的的志愿者说几句话吗？对所有来这里的志愿者，他们实际上是从纽约、加拿大飞来的，从世界各地赶来的。他们抽出个人时间来倒这里，帮助那些[素未谋面](http://m.t086.com/chengyu/25299)的人们。他们帮助乌克兰人和所有各国越过这个边界的人。你想对这些志愿者说几句话吗？对这些法治基金会的捐助者，他们使这次救援行动成为可能。
 
-The American people united, the world is united
-美国人民是团结的，世界是团结的
+受采访者 A：谢谢你们，谢谢你们，非常感谢你们来到这里提供帮助。是的，这真的是不可思议的，人们团结在这里，我想说这真是一个非常困难的情况，我真的希望整个世界都团结起来。每个人都是平等的，不管肤色、宗教、年龄等等。这就是我认为的人人平等。
 
-And we stand with the people of Ukraine
-我们与乌克兰人民站在一起
+妮可：谢谢你们。（受采访者A:让我们支持这些观点。）
 
-We will not let autocrats and would be emperors dictate the direction of the world
-我们不会让独裁者和皇帝左右世界的方向
+妮可:  谢谢你，你想说几句话吗？
 
-Democracies are rising to meet this moment
-民主国家正在崛起迎接这一刻
+受采访者 B:我想她已经说得够多了，但我认为，你们来自世界各地和来自世界不同地区，而且你们代表新中国联邦。是的，实际上是联邦，你知道它（中共政府）它不是（联邦）。它与俄罗斯和普京沆瀣一气。我想这是一个非常好的例子，所以非常感谢你所讲的。
 
-Rally in the world to the side of peace, the side of security
-团结在世界和平的一边，安全的一边
+妮可：是的，谢谢你认识到了新中国联邦和共产党中国的区别。中共跟普京在背后合作制造了这次人道危机，所以这就是区别。我们希望与国际社会分享，我们与中国共产党是不同的，我们是由新中国联邦所代表的真正的中国人。
 
-we’re showing our strength and we will not falter
-我们正在展示我们的力量，我们不会动摇
+受采访者 A: 我们希望作为人类，我们能够停止压迫，希望正在到来，正在到来，我希望世界真正能改变。它只涉及像我们这样的人，所以如果每个人都真的团结起来，我们是平等的，我们都应该是自由的。没有战争，没有所有的麻烦，没有所有的政治。对，就是这样。
 
-God bless all of you, God bless Ukraine and God bless our troops
-上帝保佑你们所有人，上帝保佑乌克兰，上帝保佑我们的军队
+妮可：是的，和平，爱所有人。和平与爱。
 
-原视频链接: [https://twitter.com/newsmax/status/1502318377737539584?s=24](https://twitter.com/newsmax/status/1502318377737539584?s=24)
+非常感谢你，继续你的出色的工作，谢谢!
 
-Date:03/12/2022
-原视频标题:BIDEN: “Direct confrontation between NATO and Russia is World War III, something we must strive to prevent”
-拜登：“北约与俄罗斯之间的直接对抗是第三次世界大战，我们必须努力防止这种情况”
-原视频日期：2022/03/12
-原视频链接https://twitter.com/newsmax/status/1502318377737539584?s=24
-任务编号：KE450（3989）
-视频时间段 : 0:00-1:15
 
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场-庚子
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+视频剪辑：文零| 听写：Polaris | 翻译： 烟波浩淼|字幕：CG. | 编辑：昆汀|发布：闪电训练
 
  
 

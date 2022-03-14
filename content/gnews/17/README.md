@@ -2,45 +2,45 @@
 ---
 
 
-## 有声|文贵先生提醒战友，一定要注意安全
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2159675/)
+## 中共病毒疫苗创造亿万富翁 中共国六人上榜
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159760/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-新的研究发现，针对亚裔美国人社区的仇恨犯罪已经达到一些前所未有的水平。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2763.jpg)
-仇恨和极端主义研究中心公布的仇恨犯罪数据汇编显示，去年反亚裔仇恨犯罪与前年相比增加了339%，纽约、旧金山、洛杉矶和其他城市在2020年超过了他们的记录。这一显著的激增是美国十几个大城市向警方报告的涉嫌仇恨犯罪总体增长11%的一部分。
-
-非营利性民权团体亚裔美国人促进正义–AAJC的主席和执行董事约翰-C-杨说，在亚裔美国人社区遭遇由大流行病引发的种族主义时，”我们必须让人们注意到影响所有社区的仇恨，”杨说。”当我们的亚裔美国人社区受到攻击时，代表不同肤色社区和不同信仰社区的盟友的支持意义重大。我们所有的不同社区，包括LGBTQ+社区，都经历过仇恨，这其中有一种深刻但悲惨的团结。”
-
-根据数据，2021年报告的反亚裔仇恨犯罪激增，明显高于2020年，当时与前一年相比增加了124%。纽约市的上升幅度特别大，从30起到133起反亚裔仇恨犯罪，增加了343%。旧金山也经历了一个惊人的跳跃，从9起犯罪到60起，增加了567%。而洛杉矶也有类似的大幅增长，达到173%。
-
-杨说，在3月份左右，8人（其中6人是亚裔女性）在亚特兰大地区的水疗中心被枪杀后，人们的担忧达到了顶峰。尽管已经取得了一些进展，包括民选官员意识的提高，杨说这个问题还没有得到补救。
-
-3月8日，郭文贵先生在盖特发文，由于中共在全世界犯下的罪行，导致中国人被迫成为中共的代罪羔羊。文贵先生提醒广大战友们，一定要注意安全，保护好自己和家人。
+作者：温哥华扬帆农场—動物農莊裡的小螞蟻Michael.Tonny
 
 
 
-文字版原文：[文贵先生提醒战友，一定要注意安全](https://gnews.org/zh-hans/2129608/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
+
+近日，有机构披露，自中共病毒大流行开始以来，至少有9人成为新的亿万富翁，这九位新亿万富翁的总净资产为193亿美元。八位现有的亿万富翁的总财富增加了322亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-6.jpg)
+在这17位亿万富翁中，有6人来自中共国。他们分别是：中共国重庆智飞生物制品股份有限公司主席，蒋仁生家族；中共国国药控股股份有限公司，谢炳；中共国重庆智飞生物制品股份有限公司联合创始人，吴冠江；中共国天津康希诺生物联合创始人、董事长兼首席科学官朱涛；中共国天津康希诺生物联合创始人兼高级副总裁邱东旭；中共国天津康希诺生物联合创始人兼高级副总裁毛慧华。
+
+参考链接：
+1. [COVID病毒疫苗创造亿万富翁 中共国6人上榜](https://gnews.org/zh-hans/2152315/)
+2. [COVID vaccines create 9 new billionaires with combined wealth greater than cost of vaccinating world’s poorest countries](https://www.oxfam.org/en/press-releases/covid-vaccines-create-9-new-billionaires-combined-wealth-greater-cost-vaccinating)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+审核：文真
+总编：飞虹
+编辑：Jack Li文阳
+校对/发稿：为真不破20
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

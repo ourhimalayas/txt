@@ -2,35 +2,48 @@
 ---
 
 
-## 今日盖特大V推荐 — 信息战（Infowars）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2159669/)
+## 泽连斯基披露两军死亡数字
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159759/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1482-e1647224284241.png)
-盖特链接： [https://gettr.com/user/infowars](https://gettr.com/user/infowars)
-
-**信息战自述：**
-
-明天的新闻   今天
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1483.png)图片来源：网络
-**信息战简介：**
-
-信息战（InfoWars）是美国右翼新闻网站，成立于1999年，由亚历克斯·琼斯（Alex Jones）拥有和运营，隶属于言论自由有限责任公司（Free Speech Systems LLC）。
-
-信息战网站的脱口秀和其他内容主要是在位于德克萨斯州奥斯汀郊区工业区的工作室中制作。2017年的报告称，信息战网站的月访问量约为100万次，其覆盖范围超过了当时的《经济学人》和《新闻周刊》等一些主流新闻网站。
-
-信息战网站被Facebook、Twitter、YouTube、iTunes和[Roku](https://en.m.wikipedia.org/wiki/Roku#Content_and_programming)等平台以违反其服务条款为由被暂停和禁止进入。
-
-编撰：洛杉矶盘古农场 — 心照
-
-校审：洛杉矶盘古农场 — 郭友(文苏)
-
-发布：洛杉矶盘古农场 — 子萍
+作者：纽约香草山教育部 – Naughty(文行)
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+3月13日，国外媒体报道，乌克兰总统泽连斯基前一天在莫斯科军队逼近首都基辅时表示，自俄罗斯入侵乌克兰以来，已有“约1300名”名乌克兰士兵丧生。
+
+泽连斯基是在媒体吹风会上披露的这一情况，这是基辅自战斗开始以来首次披露伤亡数字。
+
+3月2日，俄罗斯曾表示俄方已损失近500名士兵，但此后一直没有更新数字。3月12日泽连斯基称，俄军已有12000人阵亡，但他表示，俄军如此巨大的伤亡并不让他开心。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-5.jpg)
+就在3月12日，俄罗斯军队加大了对基辅的压力，猛烈打击了乌克兰其他城市的平民区，基辅市长表示，基辅正在加强防御并储存食品和药品。
+
+另外乌克兰外交部长称，南部港口城市马里乌波尔正面临“地球上最严重的人道主义灾难”，俄军的袭击已经造成1500多名平民死亡。
+
+参考链接：
+[‘Around 1,300’ Ukrainian troops killed during assault](https://news.rthk.hk/rthk/en/component/k2/1638633-20220313.htm?share=facebook)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/审核：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
