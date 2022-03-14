@@ -2,33 +2,33 @@
 ---
 
 
-## 有声|中共继续周末内卷，刘彦平被调查
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2164577/)
+## 【 #G时新闻 】议员杰克.奥金克洛斯呼吁美国切断从俄罗斯进口石油
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2164705/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月12日，中共中央纪委宣布，原中纪委驻国家安全部纪委监察组组长刘彦平，涉嫌严重违纪违法，正接受调查。
+播报：加拿大温哥华扬帆农场 – yuyu
 
-刘彦平正是在几年前游说爆料革命、新中国联邦创始人郭文贵先生，试图劝说郭先生回到中共国的中共高官，当时曾在与孙力军一起执行秘密遣返任务时被FBI扣留。
+视频制作：加拿大温哥华扬帆农场 – GraceIshan
 
-这已不是中共第一次在周末宣布对其高级官员进行调查，早在2020年4月19日周日，中共就宣布了对公安部副部长孙力军的调查。在2021年10月2日周六，政协副主任傅振华被调查。
+在周六的MSNBC《亚历克斯·威特报道》节目中，众议员杰克.奥金克洛斯呼吁美国切断从俄罗斯进口石油这个他们迄今为止最重要的硬通货，对中共国实施二次制裁，施加外交压力以“进一步孤立俄罗斯”。
 
-分析人士指出，中共的所谓周末打虎，突显出中共绞肉机体制在进一步加速对自己内部的屠戮。
+奥金克洛斯说：“俄罗斯的入侵并不顺利，如果他们感到沮丧，按照俄罗斯军队传统，他们将更多地依靠炮兵，而不是步兵或训练有素的地面部队，他们将不分青红皂白地炮击平民区，从而导致大量伤亡。”
 
-文字版原文：[中共继续周末内卷，刘彦平被调查](https://gnews.org/zh-hans/2151993/)
+奥金克洛斯建议美国需要立即做三件事：
 
-音频处理：Fei797
-发稿：Fei797
+一、必须切断石油供应。它是目前俄罗斯经济最重要的硬通货和政府盈余来源。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+二、对中共国实施二级制裁，通过外交施压使中共国进一步孤立俄罗斯。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+三、与波兰、立陶宛和罗马尼亚合作，为乌克兰战斗机提供飞机，并补充东部北约盟国的飞机。
+
+简评：乌克兰的卫国战争已经演变为世界人民保护自由、民主，反对独裁的战争，国际社会必须坚定地全方位支持乌克兰的同时，加大对俄罗斯和其背后的黑手和支持者中共的制裁力度。才能尽快地结束战争，还乌克兰和世界人民和平的环境！
+
+原文链接：[https://gnews.org/zh-hant/2158203/](https://gnews.org/zh-hant/2158203/)
+
+视频链接: [https://www.gettr.com/post/pzu77f698c](https://www.gettr.com/post/pzu77f698c)
+
+编辑/发文：hongyeca
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

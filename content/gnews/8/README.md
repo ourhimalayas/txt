@@ -2,35 +2,50 @@
 ---
 
 
-## Hcoin To the Moon上线102天第36次位列新加坡iTunes摇滚音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2164475/)
+## 观察：北约和俄罗斯直接开战的风险正在快速上升（上）
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2164579/)
 
-3/14/2022 郭文贵先生的歌曲Hcoin To the Moon上线102天第36次位列新加坡iTunes摇滚音乐榜首
+作者：丁过
 
-* * *
+编辑与校对：冰糖葫芦喵、丁过
 
-[【PDF 下载】Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+近日俄乌战争不断传出好消息，**俄军从乌克兰首都基辅郊区三个方向的进攻遭受乌军的痛击，不仅损失惨重，而且被迫放弃部分已占领的阵地。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1407141308092639-600x400@1200x1200.jpg)乌克兰东部边境俄乌战争的乌克兰军队（图片来源：网络）
+根据军事观察员的报告，**乌克兰军队正在使用越来越多的先进察打一体无人机和夜视武器攻击俄军，其中，察打一体无人机具有侦察、监视、捕获和对目标实时打击的能力。由于俄军缺乏反制手段，乌军的优势、战果正在快速显现和扩大。**
 
-* * *
+此前即使是西方的军事智库都**认为俄军攻占基辅仅仅是时间问题**，但**这样的观点正在被修正。**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_102.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
+最有力的证据是**俄军最想拿下的战略要地哈尔科夫还在乌军手里。**
+
+哈尔科夫的战况之所以如此惨烈，是因为该城市距离俄罗斯边境仅20多公里，俄军可以毫无障碍地从俄罗斯境内用大炮或导弹攻击哈尔科夫，但即使如此俄罗斯还是无法攻占哈尔科夫。
+
+但是，这并不能代表乌克兰的卫国战争已经胜利在握，而是预示着**战争的进一步升级，一直小心翼翼的北约被卷入战争的风险正在快速上升：**
+
+**北约从波兰隐秘的军事机场向乌克兰输送军事装备的消息**，近日由于美军参谋长联席会议主席米利到访该基地而**被媒体公开。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220312151819966.jpg)一名乌克兰军人手持sa-16防空导弹（图片来源：路透社）
+笔者认为这是北约为了表明保护这条援助乌克兰补给线的决心，故意公开这个基地信息的。
+
+俄乌战争爆发后，普京不断声明，援助乌克兰武器和对俄罗斯实施制裁等同于对俄罗斯宣战，并对北约进行了核威胁。
+
+简单来说，**北约在乌克兰全境的补给线是乌克兰战时生命线，注定成为北约和俄罗斯角力的战线和焦点，也是双方互相试探底线的着力点。**
+
+让我们简单回顾一下双方的博弈：
+
+3月2日，俄罗斯副外长格鲁什科宣称，由于北约在持续向乌克兰提供武器，俄罗斯与北约之间存在发生军事冲突的危险。
+
+北约毫不示弱，3月9日北约秘书长斯托尔滕贝格在接受加拿大广播公司采访时警告，“要是**俄军对向乌克兰提供武器和弹药的北约补给车队发起攻击，将视同与北约开战”。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/北约警告_1-e1647287362315.jpg)北约秘书长斯托尔滕贝格
+当时斯托尔滕贝格强调：“北约各国有权提供军事装备给乌克兰进行自卫，而俄罗斯不能错判情势攻击补给线。如果对任何北约盟国车队发动任何攻击，都会触发北约宪章第五条。”
+
+**北约宪章第五条规定：“北约成员国的部队被攻击，视同对其他30个成员国的攻击，北约可以行使单独或是集体自卫权，包括使用武力。”**
+
+新闻来源链接：
+
+[https://www.epochtimes.com/gb/22/3/12/n13642030.htm](https://www.epochtimes.com/gb/22/3/12/n13642030.htm)
+
+[https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220313-%E5%8C%97%E7%BA%A6%E7%A7%98%E4%B9%A6%E9%95%BF%E8%AD%A6%E5%91%8A%E7%A7%B0%E4%BF%84%E4%BE%B5%E4%B9%8C%E5%8F%AF%E8%83%BD%E5%8A%A8%E7%94%A8%E5%8C%96%E5%AD%A6%E6%AD%A6%E5%99%A8](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220313-%E5%8C%97%E7%BA%A6%E7%A7%98%E4%B9%A6%E9%95%BF%E8%AD%A6%E5%91%8A%E7%A7%B0%E4%BF%84%E4%BE%B5%E4%B9%8C%E5%8F%AF%E8%83%BD%E5%8A%A8%E7%94%A8%E5%8C%96%E5%AD%A6%E6%AD%A6%E5%99%A8)
 
 
-[【PDF 下载】Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
