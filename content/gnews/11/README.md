@@ -2,10 +2,25 @@
 ---
 
 
-## 3/14/2022 文贵直播：中共内部的人知道喜币是中共行将灭亡之际的唯一救命稻草；乌克兰救援前线的战友向世界展示了灭共的新中国人的新面貌，为亚洲人争了脸
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2164824/)
+## 定义习近平、中共国和 21 世纪的时刻
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2165149/)
 
-秘密翻译组-北美组
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/DWO-Teaser-XiJinping-biden-aw.jpg)
+
+
+图片来源：法新社
+
+到目前为止，北京方面还没有对乌克兰战争表明明确的立场。现在，美国情报部门透露，普京已向他的共产主义盟友寻求武器支持。这一策略旨在敦促中共国做出重大承诺。
+
+美国希望敦促中共国改变其在乌克兰战争中的亲俄路线。为了做到这一点，他们正在使用他们也用来对付莫斯科的策略：尽早披露情报，以破坏对方的努力并影响政治领导层的决策过程。据美国媒体援引美国政府消息人士的话称，据说俄罗斯已要求中共国支持其战争努力。
+
+事实上，讨好中共国已经成为这场战争中的第二条外交战线。美国人在阻止中共国支持俄罗斯方面投入了大量精力。对中共国来说，对俄罗斯的承诺不仅会产生严重的经济后果。
+
+🔗 [https://www.welt.de/politik/ausland/plus237534235/Pekings-Waffen-fuer-Moskau-Entscheidender-Moment-fuer-Xi-China-und-das-21-Jahrhundert.html](https://www.welt.de/politik/ausland/plus237534235/Pekings-Waffen-fuer-Moskau-Entscheidender-Moment-fuer-Xi-China-und-das-21-Jahrhundert.html)
+
+编辑发表： Shuizhuyu
 
  
 

@@ -17,6 +17,23 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 10:38 PM (UTC)`
+
+3/14/2022 Miles Guo’s GETTR: My exposure of the CCP’s furtive actions in the Middle East has put the US and Europe on the alert; the CCP will pay a dear price for supporting Russia; the economy of Communist China is on the verge of collapse; the upcoming 20th Party Congress will accelerate the taking down of the CCP from within; the New Federal State of China will be the promoter of “One person, One vote” policy in China post the demise of CCP.<br/><br/>3/14/2022 文贵盖特：文贵爆料的中共在中东蠢蠢欲动引起了欧美的警觉；中共与俄罗斯狼狈为奸一定会付出代价；中共国的经济已到了崩溃的边缘；二十大前后中共有可能被自己人灭掉，新中国联邦将在没有共产党的中国推动一人一票的民主制度<br/>
+![img](https://media.gettr.com/group44/getter/2022/03/14/22/b0467177-05b6-c086-4f97-e0ce060fff53/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@ddnyc 3/14/2022 10:14 PM (UTC)`
+
+Check us out 🇮🇹 <br/>www.GFASHION.com
+> `@gfashion 3/14/2022 11:53 AM (UTC)`<br/>▪️Shop now at G|Fashion▪️<br/><br/>https://gfashion.com/collections/new-arrivals/products/drop-needle-poncho
+![img](https://media.gettr.com/group50/getter/2022/03/14/11/329dce27-888e-c3e3-6f1d-86c119606f85/c14079f1aa8030bb60949e25dbe579dd.jpg)
+
+---
+
 `@miles 3/14/2022 10:15 PM (UTC)`
 
 【Ukraine Rescue】03/14/22 Two Red Cross volunteers come to the NFSC’s tent to enjoy our coffee, and they are very grateful.<br/><br/>【乌克兰救援】03/14/22 两位国际红十字会的义工来到新中国联邦的帐篷享用咖啡，并表示感谢。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -142,20 +159,6 @@ The war pianist just moved the piano right next to the tents provided by the ROL
 
 2022.03.14 早 《新中国联邦新闻》
 ![img](https://media.gettr.com/group45/origin/2022/03/14/12/cfe39c71-6649-ce9f-f207-461b2eaac075/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/14/2022 12:34 PM (UTC)`
-
-【UKRAINEHELP-005】NFSC与法治基金国际人道救援行动公告和最新救援信息<br/><br/>https://gnews.org/zh-hans/2115789/<br/><br/><br/>【UKRAINEHELP-005】Announcement of New Federal State of China & Rule of Law Foundation on Emergency Rescue of Ukraine<br/><br/>https://gnews.org/2160452/<br/><br/><br/>【UKRAINEHELP-005】Оголошення про створення нової Федеральної Держави Китаю та Фонду верховенства права з надзвичайних ситуацій порятунку України<br/><br/>https://gnews.org/2160453/<br/>
-![img](https://media.gettr.com/group16/getter/2022/03/14/12/84799a75-620b-28ef-69d7-aa9c733b7614/974adb4cef6ac2baf6736c1d0e7d9be9.jpg)
-
----
-
-`@miles 3/14/2022 12:18 PM (UTC)`
-
-【Ukraine Rescue】03/12/22  NFSC Ukraine Rescue Operation volunteer Nicole introduces to the KBS reporters that we are the freedom loving Chinese people, anti-communist, and committed to take down the CCP.<br/><br/>【乌克兰救援】03/12/22  新中国联邦乌克兰救援行动的义工妮可向韩国广播公司记者介绍：我们热爱自由、反对共产主义，并致力于推翻中共。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group35/getter/2022/03/14/12/762c4079-08a2-0779-b402-a3edc5192d77/out.jpg)
 
 ---
 

@@ -2,35 +2,96 @@
 ---
 
 
-## 美国警告中共国不要在乌克兰问题上帮助俄罗斯
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2164939/)
+## 来自仍在乌克兰的娜塔莉亚的最新消息
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2165200/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+Secretary Antony Blinken:
+国务卿 安东尼 布林肯
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0059.jpg)
+An update from Nataliya, who is still in Ukraine.
+来自仍在乌克兰的娜塔莉亚的最新消息。
 
+She is staying with her people in the place she has made her new home.
+她和她的人一起住在她建造新家的地方。
 
-图片来源：路透社
+In the face of mass destruction, Nataliya and her NGO have opened a shelter for those who have escaped Eastern and Southern Ukraine.
+面对大规模破坏，娜塔莉亚和她的非政府组织为逃离乌克兰东部和南部的人开设了避难所。
 
-自入侵的第一周以来，这是自第二次世界大战以来对欧洲国家的最大袭击，东南港口已被军队包围，数十万人没有食物或水。
+Hello . I’m Nataliya,
+大家好， 我是娜塔莉娅
 
-自 2 月 24 日袭击事件开始以来，俄罗斯尚未占领乌克兰 10 个最大城市中的任何一个，克里姆林宫称这次袭击为“特殊军事行动”，旨在使其邻国非军事化和“去纳粹化”。
+I was talking to you just a month ago,
+一个月前我告诉过你们
 
-据美国官员称，俄罗斯已要求北京提供军事和经济援助。
+And from that time the life of Ukraine changed fully
+从那时起，乌克兰的生活发生了翻天覆地的变化
 
-莫斯科否认这一点，称其拥有足够的军事资源来实现其所有目标。中共国外交部将有关援助的报道称为“虚假信息”。
+Now we have war, and it’s the worst what could happen to my country
+现在我们有战争，这是我的国家可能发生的最糟糕的事情
 
-在国家安全顾问杰克沙利文在罗马会见中国最高外交官杨洁篪时，一名美国官员表示，中共国已表示愿意向俄罗斯提供援助。
+These Russia soldiers bombing our city
+这些俄罗斯士兵轰炸我们的城市
 
-美国国务院发言人内德·普赖斯周一对记者说：“我们已经与北京非常清楚地沟通，我们不会袖手旁观。” “我们不会允许任何国家补偿俄罗斯的损失。”
+It’s just fully destroyed
+它完全被摧毁了
 
-西方正在权衡如何应对来自中国、全球最大出口国和美国第一大外国商品供应商的任何参与。乌克兰危机也引发了自治台湾的担忧，北京发誓要收回台湾。
+Many civilian people died
+许多平民被杀
 
-俄罗斯国家电视台是数百万俄罗斯人的主要新闻来源，并密切关注克里姆林宫的路线，但周一，在第一频道的主要新闻节目期间，一个演播室发生了罕见的反战抗议活动。一个女人举着一个英文和俄文的标语：“NO WAR。停止战争。不要相信宣传。他们在这里骗你。”
+Our military forces, they can’t protect everybody
+我们的军队，他们无法保护所有人
+And it’s not about militaries, it’s about civilian people who are dying in their houses, in their apartments even in their basement.
+这不是关于军队，而是关于在他们的房子里、在他们的公寓里甚至在他们的地下室里死去的平民。
 
-🔗 [https://www.reuters.com/world/uk/diplomacy-efforts-step-up-after-russian-strike-ukraine-base-2022-03-14/](https://www.reuters.com/world/uk/diplomacy-efforts-step-up-after-russian-strike-ukraine-base-2022-03-14/)
+They can’t escape from this nightmare
+他们无法摆脱这场噩梦
 
-编辑发表： Shuizhuyu
+Yesterday my daughter said that she cannot live like that anymore
+昨天我女儿说她不能再这样生活了
+
+Because when there was next air raid alarm, she was so scared.
+因为当下一次空袭警报响起时，她非常害怕。
+
+And she said that she don’t want to stay here.
+她说她不想留在这里。
+
+And I can’t do anything because I want to stay with my people in my city, be-cause it’s still quite ok
+我什么也做不了，因为我想和我的人民呆在我的城市，因为这里还是不错
+
+But I just can’t imagine what those children feel that stay in Kyiv and Kharkiv
+但我无法想象那些孩子留在基辅和哈尔科夫的感受
+
+In our NGO, we opened shelter where we give accommodation to the people who escaped from eastern and southern part of Ukraine.
+在我们的非政府组织中，我们开设了避难所，为逃离乌克兰东部和南部的人们提供住宿。
+
+And also we collect and distribute different goods for internally displaced peo-ple.
+我们还为国内流离失所者收集和分发不同的货物。
+
+How I felt now, it…this is humanitarian catastrophe.
+我现在的感觉，它……这是人道主义灾难
+
+It’s pure evil
+它纯粹是邪恶的
+
+原视频链接:[https://twitter.com/secblinken/status/1501718955530018817?s=24](https://twitter.com/secblinken/status/1501718955530018817?s=24)
+
+Date:03/013/2022
+原视频标题: An update from Nataliya, who is still in Ukraine
+来自仍在乌克兰的娜塔莉亚的最新消息
+原视频日期：2022/03/09
+原视频链接: https://twitter.com/secblinken/status/1501718955530018817?s=24
+任务编号：KE451（3970）
+
+英听校: 洛杉矶盘古农场 – Raul
+翻译: 洛杉矶盘古农场 – Raul
+翻译终校: 洛杉矶盘古农场 – 好人有好报
+字幕+视频制作：洛杉矶盘古农场-庚子
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
