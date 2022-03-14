@@ -2,29 +2,34 @@
 ---
 
 
-## 视频|救援中心的欢笑服务
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2160613/)
+## 志愿者凌晨为难民接车，难民对新中国联邦表感谢
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2160668/)
 
-制作：香草山视频部
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-梅迪卡前线时间3月12日，越来越多帮助难民的志愿者们到达。帮忙搬运东西和维持秩序的志愿者不计其数，另外还有一些志愿者，从精神方面给予难民支持。
+整理/编辑：小红帽
 
-除了之前那位演奏音乐的钢琴家，另有两位来自德国的喜剧表演志愿者，他们穿着超可爱的睡衣，一个手里拿着气喇叭，手一按就有声音，另一个弹着尤克里里，两人说想为孩子们表演一些歌曲，带来一些快乐。无论如何，这可爱的装扮已经能让孩子们开怀一些了。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-14_13-46-17.png)图片来源：郭文贵先生盖特视频截图
 
-另外还有来自爱尔兰的志愿者，他们挂起代表和平与爱的西藏元素的旗子，为难民提供中国米饭。其中一位爱尔兰人还欢乐地唱歌跳舞，手里端着中国米饭，裙摆飞扬，现场气氛非常轻松。
 
-我们尊重乌克兰人面对灾难的体面和平静，可能这些在平日里微不足道的快乐，在这个时候是最有力量的。
+3月13日，凌晨1点，法治基金和新中国联邦志愿者在波兰克拉科夫迎接两辆载有118人的救援大巴。志愿者在迎接大巴时准备了热咖啡，食物和婴儿食品。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-14_13-35-16.png)
+据法治基金和新中国联邦志愿者大卫报道：“今天，由法治基金和新中国联邦安排的，从乌克兰过来的两辆大巴上有一位6天大的婴儿。这是乌克兰救援行动以来，年龄最小的被救婴儿。婴儿现在在救援的巴士上面睡得很香甜。同时，新中国联邦的志愿者也为车上的难民准备了热茶，热咖啡，和食品。”
 
-发稿：Daxia
+“在另一辆大巴上，有12位来自俄军包围的东北战区的难民们。他们在路上向法治基金和新中国联邦的志愿者发信息表示感谢。”大卫补充道。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-14_13-36-27.png)
+接车后，志愿者主动帮助难民们拿行李，并引领他们去附近的火车站。
 
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+资料来源：[郭文贵先生2022年3月14日盖特视频](https://www.gettr.com/post/pzucaeebdf)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

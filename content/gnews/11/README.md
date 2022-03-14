@@ -2,58 +2,99 @@
 ---
 
 
-## 普京祭出白磷脏弹，马里乌波尔出现人道主义危机
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2160594/)
+## 乱世中微信的信息超限战
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2160614/)
 
-#### **【雅典娜观察】和您一起洞察世界**
+作者：香草山健身部-新世界的一员
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-11.png)
+乌俄战争还在继续，
 
-翻译：文扬
-编辑：文泓
+乌克兰的人民还在饱受战乱之苦，
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/PR11FJL8YZ5Y942BA6.png)图片来源：The Moscow Times & 雅典娜设计组
+我们灭共的新中国联邦法制基金的救援一直马不停蹄的在进行，
 
+我跟很多热爱和平的人们一样，
 
-3月14日俄乌战争实时更新：
+在墙内尽力发布真实的信息，
 
-俄罗斯被指控对平民使用一种可怕的、肮脏的化学武器——白磷弹，这种炸弹曾被纳粹称为“燃烧的洋葱”，并会对人造成“无法形容”的痛苦。
+谴责俄罗斯入侵乌克兰，
 
-磷弹的特征是一声巨响和一缕明亮的白烟，但当携带化学物质的长长的白色“溪流”开始从天而降时，它的影响最为明显。
+为呼吁世界的和平尽绵薄之力，
 
-一名乌克兰高级警官指责俄罗斯军队在东部的卢甘斯克地区发动磷弹袭击。
+在当今这个物欲横流的社会，
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1123.001.jpeg)
+我发朋友圈的帖子总是跟众人格格不入，
 
-国际法禁止在人口稠密的平民区使用白磷弹，但允许它们在开放空间用作部队掩护。
+有善意的劝解，
 
-位于卢甘斯克市以西约100公里的波帕斯纳（Popasna）警察局长奥列克西·比洛希茨基（Oleksi Biloshytsky） 说，俄罗斯军队在他所在的地区使用了这种化学武器。
+有无声的抗议，给你发个中俄是友邦的图片、视频，
 
-“这就是纳粹所说‘燃烧的洋葱’，这就是俄罗斯法西斯在我们的城镇上投下的东西”，比洛希茨基在脸书（Facebook）上写道：“无法描述的痛苦和火灾”。
+更有留言表述他的不同立场，
 
-在其他地方，乌克兰一个主要城市的局势日益严峻，居民在俄罗斯的无情轰炸下顽强生存。
+也有人发出警告当心我封号，
 
-马里乌波尔是该国南部一个拥有43万人口的城市。一个旨在提供帮助的人道主义援助车队被困在西边的俄罗斯控制区，尚未抵达马里乌波尔。
+在共产党的一个声音里活着的底层的同胞们，
 
-当前马里乌波尔的人道主义危机十分严峻，已经耗尽食物和水的居民正在等待援助的到来，但没有人到来。
+容不得打破他们认知度的信息，
 
-一位居民说现在逃离是不可能的，他们告诉CNN：“这里就像一台绞肉机，实在太恐怖了。”
+在中共这个恶毒的爹亲娘亲不如党亲的毒霾社会里，
 
-马里乌波尔的局势日益严峻。据市议会称，到目前为止，已有2187名居民被杀，在过去24小时内，该市遭受了22次爆炸袭击。
+只有为电视剧虚拟的悲剧人物流泪伤心，
 
-红十字国际委员会上周表示：“马里乌波尔市的人道主义状况正变得越来越可怕和绝望，几十万人没有食物、水、暖气、电或医疗服务，人们迫切需要从战争的暴力中得到喘息，需要国际社会人道主义援助。”
+也不会为铁链女流半滴眼泪，
 
-同期，俄罗斯又轰炸了乌克兰西部的一个军事基地，该基地距离北约部队驻扎的波兰边境仅11公里。
+人们的价值观，理解力，洞察能力，见解面，
 
-如果战争如人们所担心的那样进入波兰，美国几乎肯定会直接卷入战争。
+精神面貌都分裂严重，
 
-“这将是对美国的攻击，”美国国会议员布兰登·博伊尔说。
+没有信仰的民族也没有悲悯，
 
-参考链接： [Russia Ukraine war latest: Mariupol under siege, ‘filthy’ chemical weapon claims | news.com.au — Australia’s leading news site](https://www.news.com.au/world/europe/russia-ukraine-updates-live-putin-broadening-targets-after-air-strike-near-poland/news-story/cb87c004ae0fbe3b45efeae50c485db9)
+没有灵魂的国度也缺少同情、友爱，
 
-发布：tianzhihuan
+一切正义的言论就跟对牛弹琴似的，
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+就算全世界已经一百多国家谴责俄罗斯的入侵乌克兰，
+
+中国人依然被中共硬性绑架，
+
+俄罗斯到了中国就遭殃了，
+
+所以明明知道乌克兰的勇敢值得尊重，
+
+却依然叫嚣着俄罗斯胜利！
+
+人性被爱国热情打败，
+
+善良被爱党之心扭曲，
+
+加上网络那些有意嫁接，东拼西凑、张冠李戴的假信息，
+
+刻意的带动民意，
+
+更有太多人的信息依靠那该死的百度，
+
+以至于刚愎自用的心态作怪，
+
+对我的评论和贴子就无端生出敌意，
+
+我一贯不去理论、不做回复。
+
+看不惯我朋友圈的人估计比想象的更多，
+
+中共不灭， 中国人活的比石器时代更添悲哀！
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-5.jpg)
+
+编辑/校对/发稿：林礼
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
