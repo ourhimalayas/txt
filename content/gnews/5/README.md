@@ -2,22 +2,34 @@
 ---
 
 
-## 秘翻在线：警方称，美国记者布伦特雷诺在乌克兰被俄罗斯军队开枪打死
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2160343/)
+## 美国公司Clearview已为乌克兰提供人脸识别技术
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2160384/)
 
-撰稿：文贺JP
-![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-20.jpg)图片来源：Twitter
-据基辅地区警察部队负责人安德烈·内比托夫（Andriy Nebytov）称，50 岁的电影制片人布伦特·雷诺被俄军打死。同行记者阿雷東多受伤，被基辅一家意愿救治。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-《纽约时报》的一位女发言人表示，雷诺是“一位才华横溢的电影制片人，多年来一直为《纽约时报》做出贡献”，最近一次是在 2015 年，但他“并没有被派往乌克兰时报的任何办公室”。TIME周日晚些时候发表声明，确认雷诺一直“在该地区从事时报印象（TIME Studios）聚焦全球难民危机的项目”。根据他们网站上的传记，雷诺和他的兄弟克雷格·雷诺在过去 20 年中从包括伊拉克、阿富汗和埃及在内的多个全球热点地区进行了报道。两人在 2015 年获得了皮博迪奖，该纪录片由《副刊》(Vice News) 拍摄，这部纪录片讲述了芝加哥一所学校为有严重情绪问题的学生而设的学校。
+整理/编辑：围剿维尼熊
 
-在Facebook 帖子基辅警察局长内比托夫写道，雷诺“为试图突出侵略者的独创性、残忍性和无情付出了生命”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/55D20EEB-4F01-41C6-928A-34CDF8C938A6.jpg)图片来源：搜狐
 
-笔者认为布伦特.雷诺先生关注受战争蹂躏的平民百姓，是追求自由、揭露战争罪行的使者。
 
-信息来源：[https://www.cbsnews.com/news/brent-renaud-ukraine-russia-american-journalist-killed/](https://www.cbsnews.com/news/brent-renaud-ukraine-russia-american-journalist-killed/)
+根据大纪元3月14日讯，乌克兰国防部从周六（3月12日）开始使用美国面部识别公司“Clearview AI”的技术。
 
-责编：Eric Kim
+路透社报道，Clearview联合创始人兼首席执行Hoan Ton-That说，此前该公司提出要帮助乌克兰发现俄罗斯袭击者，打击虚假信息并识别死者。Clearview公司的顾问、美国前总统巴拉克‧奥巴马执政时期的外交官李‧沃罗斯基（Lee Wolosky）补充说，乌克兰当局正在免费使用Clearview公司强大的人脸搜索引擎，以便可能在检查站审查相关人员，并用于其它方面。
+
+Hoan Ton-That表示，Clearview的技术还可用于让难民与失散的家人团聚，识别俄罗斯特工，并帮助乌克兰政府揭穿传播涉及战争假消息的社交媒体帖子。
+
+他还表示不会把Clearview作为唯一的身份识别手段，也希望该技术的使用不要违反《日内瓦公约》。
+
+参考链接：[https://www.epochtimes.com/gb/22/3/13/n13643691.htm](https://www.epochtimes.com/gb/22/3/13/n13643691.htm)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

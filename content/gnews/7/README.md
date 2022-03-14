@@ -2,25 +2,22 @@
 ---
 
 
-## 视频|美国驻伊拉克领事馆附近发生导弹爆炸
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2160328/)
+## 郭文贵盖特音频2022.03.12
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2160361/)
 
-制作：香草山视频部
+音频提供者:左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/03/out-8.jpg)
+### 视频链接：
 
-据国外媒体报道，当地时间3月13日凌晨，伊朗阿塞拜疆省的哈萨巴德军事基地发射6枚导弹，在美国驻伊拉克埃尔比勒领事馆附近爆炸。
+[https://www.gettr.com/post/pzmei76928](https://www.gettr.com/post/pzmei76928)
 
-报道称，袭击中传出5次爆炸声。埃尔比勒省省长奥梅德.科什诺表示，该地区有多枚导弹坠落。
+### 音频链接：
 
-目前暂无人员伤亡报道。
 
-发稿：谐趣园
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+编辑发布：闪电训练
 
  
 
