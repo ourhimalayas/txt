@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 12:56 PM (UTC)`
+
+2022.03.14 早 《新中国联邦新闻》
+![img](https://media.gettr.com/group45/origin/2022/03/14/12/cfe39c71-6649-ce9f-f207-461b2eaac075/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/14/2022 12:34 PM (UTC)`
 
 【UKRAINEHELP-005】NFSC与法治基金国际人道救援行动公告和最新救援信息<br/><br/>https://gnews.org/zh-hans/2115789/<br/><br/><br/>【UKRAINEHELP-005】Announcement of New Federal State of China & Rule of Law Foundation on Emergency Rescue of Ukraine<br/><br/>https://gnews.org/2160452/<br/><br/><br/>【UKRAINEHELP-005】Оголошення про створення нової Федеральної Держави Китаю та Фонду верховенства права з надзвичайних ситуацій порятунку України<br/><br/>https://gnews.org/2160453/<br/>
@@ -149,13 +156,6 @@ Miles Guo revealed why he thinks NFSC’s freshly brewed coffee is so important 
 
 2022.03.13 NFSC News  NFSC Presents A New Image for Global Chinese Throughout Their Ukraine Rescue； NFSC Using Luxury Tents As Rest Area For Ukraine Refugees
 ![img](https://media.gettr.com/group11/origin/2022/03/13/20/21e7cb18-bb21-4604-32cc-df3d6cf7a531/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/13/2022 10:48 PM (UTC)`
-
-3/13/2022 Miles Guo: We must show to the world at the rescue site: 1) We are the Chinese people taking down the CCP; 2) the CCP is the root cause of all the wars and problems around the world; 3) taking down the CCP is the fundamental solution to all the wars and sufferings of humanity; and 4) we stand with the Ukrainian people.<br/><br/>3/13/2022 文贵直播：我们一定要在救援现场向世界展示：1) 我们是消灭中国共产党的中国人；2) 中国共产党是全人类所有的战争和问题的根源；3) 消灭中国共产党是解决人类战争和所有苦难的根本手段; 4) 我们与乌克兰人民站在一起<br/>
-![img](https://media.gettr.com/group18/getter/2022/03/13/22/0fc12988-9153-6dfa-3d10-d6091a47a1b8/out.jpg)
 
 ---
 
