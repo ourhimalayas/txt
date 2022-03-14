@@ -2,16 +2,22 @@
 ---
 
 
-## 20220313郭文贵大直播 ：西方禁止中共参与国际外汇交易，查封盗国贼家族在海外的资产
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2162686/)
+## 日本东京樱花团 中文新闻播报第20期(上）
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2162823/)
 
-作者：东京樱花团小视频组
+新闻内容摘要：
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+- 1.七国集团领导人联合声明，称俄罗斯 “将被隔离在经济和金融之外
+- 2.班农先生呼吁将中共剔出SWIFT
+- 3.全球媒体聚焦乌克兰救援 新中国联邦受关注
+
+
+**播报：东京樱花团-战友520**
+
+**发布： 东京樱花团-eiei**
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/erweima.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

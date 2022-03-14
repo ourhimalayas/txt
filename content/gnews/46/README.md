@@ -2,36 +2,20 @@
 ---
 
 
-## 新中国联邦法治基金乌克兰人道救援信息
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159906/)
+## 樱花时政┃因中共威胁 日韩澳武器进口激增
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2160125/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-22.jpg)[图片来源](https://www.bbc.com/news/world-asia-china-60492134#:~:text=ADVERTISEMENT-,The%20Ukraine%20crisis%20is%20a%20major%20challenge%20for%20China,-By%20Stephen%20McDonell)
+3月14日，瑞典斯德哥尔摩国际和平研究所（SIPRI）发布了一份报告，比较了2017-21年和之前五年的全球武器交易量。报告解释说，日本、韩国和澳大利亚的情况急剧增加，”越来越多的国家将中共视为一种威胁”。 日本的进口量是世界上第十位，增长了152%。
 
+全球总体进出口贸易下降了4.6%。 前十大进口国中有六个在亚洲-大洋洲地区，包括澳大利亚和中国以及日本和韩国，SIPRI指出，该地区在过去30年里一直保持着最高的进口水平。
 
+信息源：[日韓豪の武器輸入、急増　中国の脅威背景、国際平和研](https://news.yahoo.co.jp/articles/f6ec663f204f4f25362b0bb3dd262e1eb2b8ab08#:~:text=%E6)
 
-鉴于目前乌克兰局势日益恶化，新中国联邦和法治基金救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
-
-自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发，前往波兰。此外，新中国联邦和法治基金的第一批救援专机将于近期从波兰出发。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。 求助方式及详细信息请参考以下视频。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/审核：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
