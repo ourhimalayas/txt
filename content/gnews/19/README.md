@@ -2,28 +2,38 @@
 ---
 
 
-## 苏州中小学等暂缓复课
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2160502/)
+## 俄罗斯表示希望中共帮助其抵御西方制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2160549/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16472351501.png)
-据澎湃新闻3月14日报道，苏州市新冠肺炎疫情联防联控指挥部发布紧急通告：为确保师生身体健康和校园绝对安全，原计划3月14日复课的苏州全市中学初一、初二、高一、高二年级，小学一至六年级和中职院校、技工学校，及3月17日开学的全市幼儿园（含托育机构），暂缓复课。高三、初三年级在继续做好闭环管理，暂不停课。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-自2022年开始，中共国内就开启了循环封城的模式，就像轮盘赌博机一样，不定时转到哪里，哪里就全市停摆，人员就地隔离，以至于中共国内很多人出门的时候身边就备好了衣物和药品，随时准备进入隔离状态。强制成人接种疫苗不算，学生、幼儿都必须接种疫苗，造成疫情越隔离越爆发。如果不解决病毒的源头问题，不要说暂缓复课，即使封闭学校，也不会阻止疫情爆发。
+整理/编辑：围剿维尼熊
 
-新闻参考链接：[https://www.thepaper.cn/newsDetail\_forward\_17104889](https://www.thepaper.cn/newsDetail_forward_17104889)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2965.jpg)图片来源：第一财经
 
 
-编辑：【英国伦敦喜庄园编辑部】
+根据德国之声中文网3月13日报道，俄罗斯方面周日表示，希望中国能够帮助其抵御西方制裁对俄经济造成的打击。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+俄罗斯财政部长西卢阿诺夫（Anton Siluanov）表示，俄罗斯有一部分黄金和外汇储备是以人民币计价的。西方国家正在加强对中国施压，希望限制中俄之间的双边贸易。限制俄罗斯使用其人民币储备。
+
+从俄罗斯入侵乌克兰以来，西方国家已经向俄罗斯的经济和金融系统实施了严厉制裁。俄罗斯将近一半的黄金和外汇储备都因为制裁措施而遭到冻结。
+
+西方国家冻结俄罗斯海外的储备资产，是对俄罗斯经济造成最大伤害的制裁措施之一。一个月前，西卢阿诺夫还曾表示，由于储备充足，俄罗斯将能够经受住制裁，甚至考虑在市场波动平息后向外国投资者提供欧洲债券。
+
+本周日，西卢阿诺夫说，制裁导致价值3000亿美元的俄罗斯黄金和外汇储备被冻结。而俄罗斯的储备资产约为6400亿美元。
+
+西卢阿诺夫表示，俄罗斯将履行其国债偿还义务。
+
+参考链接：[俄财长：倚赖中国帮忙渡过制裁难关](https://www.dw.com/zh/%E4%BF%84%E8%B4%A2%E9%95%BF%E5%80%9A%E8%B5%96%E4%B8%AD%E5%9B%BD%E5%B8%AE%E5%BF%99%E6%B8%A1%E8%BF%87%E5%88%B6%E8%A3%81%E9%9A%BE%E5%85%B3/a-61112084)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

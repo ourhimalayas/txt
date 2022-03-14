@@ -2,10 +2,10 @@
 ---
 
 
-## BBC新闻：俄军继续入侵之际，帮助乌克兰孤儿逃离基辅
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2160700/)
+## 多枚远程弹道导弹袭击了美国驻伊拉克埃尔比勒领事馆
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2160755/)
 
-03/12/2022 BBC新闻：俄军继续入侵之际，数万名由乌克兰国家监护的儿童急需离开这个国家
+03/13/2022 多枚远程弹道导弹袭击了美国驻伊拉克埃尔比勒领事馆
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

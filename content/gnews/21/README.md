@@ -2,12 +2,16 @@
 ---
 
 
-## 【乌克兰救援】非政府组织“难民直接援助”愿意与新中国联邦合作进行乌克兰救助工作
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2160463/)
+## 台湾｜突发！再发生主力战机坠机事件 飞行员已获救
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2160474/)
 
-【乌克兰救援】03/11/2022 美国非政府组织“难民直接援助”的三位科索沃员工表示很惊讶看到中国面孔出现在乌克兰援救现场。他们对新中国联邦为乌克兰救援所做的工作表示钦佩，并愿意为新中国联邦提供更多帮助与合作
+**撰文/ 港台前线｜发布日期/ 14/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-1-6.png)**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+14日，台东志航基地惊传幻象2000战机于飞行中失联，中校飞官于台东外海跳伞逃生，据稍早消息，飞官已由黑鹰直升机救起，人员平安、事故原因待厘清。空军司令部新闻稿表示，机号2017的单座幻象战机上午在台东外海执行战演训任务，飞官回报机械故障后，于上午11时26分跳伞、12时6分获救。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+今年一月，台湾嘉义外海才发生一起F16V战机坠海事故，3月又发生主力战机坠海事故。
+
+來源｜[中華民國國防部](https://www.mnd.gov.tw/Publish.aspx?p=79647&amp;title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&amp;SelectStyle=%e6%96%b0%e8%81%9e%e7%a8%bf)
 
  
 

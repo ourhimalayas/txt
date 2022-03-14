@@ -2,58 +2,30 @@
 ---
 
 
-## 普京祭出白磷脏弹，马里乌波尔出现人道主义危机
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2160594/)
+## 欧洲各地爆发反战抗议活动
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2160610/)
 
-#### **【雅典娜观察】和您一起洞察世界**
+![资料照片：在台湾的乌克兰人和支持者在台北抗议俄罗斯入侵乌克兰（2022年2月25号）](https://gdb.voanews.com/2623c278-a434-4ebf-884c-7dd22f6cba57_w1023_r1_s.jpg)资料照片：在台湾的乌克兰人和支持者在台北抗议俄罗斯入侵乌克兰（2022年2月25号）
+据美国之音3月14日报道，数万人在欧洲的柏林、华沙、伦敦、法兰克福、弗洛伦萨、米兰、罗马、汉堡和斯图加特等城市举行反战抗议活动。在塞浦路斯，数十名俄罗斯国民加入乌克兰人的行列。在台湾的乌克兰国民和支持者也举行游行，抗议俄罗斯入侵乌克兰。
 
-翻译：文扬
-编辑：文泓
+教皇方济各谴责在乌克兰杀害儿童和手无寸铁的平民的“野蛮行为”。表示袭击必须“在城市沦为墓地之前”停止。梵蒂冈估计有2.5万人参加了教宗在圣彼得广场的周日例行聚会。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/PR11FJL8YZ5Y942BA6.png)图片来源：The Moscow Times & 雅典娜设计组
+世界需要和平，反对战争，推翻普京的独裁统治，推翻邪恶中共。
+
+新闻参考链接：[https://www.voachinese.com/a/6483232.html](https://www.voachinese.com/a/6483232.html)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-3月14日俄乌战争实时更新：
+编辑：【英国伦敦喜庄园编辑部】
 
-俄罗斯被指控对平民使用一种可怕的、肮脏的化学武器——白磷弹，这种炸弹曾被纳粹称为“燃烧的洋葱”，并会对人造成“无法形容”的痛苦。
-
-磷弹的特征是一声巨响和一缕明亮的白烟，但当携带化学物质的长长的白色“溪流”开始从天而降时，它的影响最为明显。
-
-一名乌克兰高级警官指责俄罗斯军队在东部的卢甘斯克地区发动磷弹袭击。
-
-国际法禁止在人口稠密的平民区使用白磷弹，但允许它们在开放空间用作部队掩护。
-
-位于卢甘斯克市以西约100公里的波帕斯纳（Popasna）警察局长奥列克西·比洛希茨基（Oleksi Biloshytsky） 说，俄罗斯军队在他所在的地区使用了这种化学武器。
-
-“这就是纳粹所说‘燃烧的洋葱’，这就是俄罗斯法西斯在我们的城镇上投下的东西”，比洛希茨基在脸书（Facebook）上写道：“无法描述的痛苦和火灾”。
-
-在其他地方，乌克兰一个主要城市的局势日益严峻，居民在俄罗斯的无情轰炸下顽强生存。
-
-马里乌波尔是该国南部一个拥有43万人口的城市。一个旨在提供帮助的人道主义援助车队被困在西边的俄罗斯控制区，尚未抵达马里乌波尔。
-
-当前马里乌波尔的人道主义危机十分严峻，已经耗尽食物和水的居民正在等待援助的到来，但没有人到来。
-
-一位居民说现在逃离是不可能的，他们告诉CNN：“这里就像一台绞肉机，实在太恐怖了。”
-
-马里乌波尔的局势日益严峻。据市议会称，到目前为止，已有2187名居民被杀，在过去24小时内，该市遭受了22次爆炸袭击。
-
-红十字国际委员会上周表示：“马里乌波尔市的人道主义状况正变得越来越可怕和绝望，几十万人没有食物、水、暖气、电或医疗服务，人们迫切需要从战争的暴力中得到喘息，需要国际社会人道主义援助。”
-
-同期，俄罗斯又轰炸了乌克兰西部的一个军事基地，该基地距离北约部队驻扎的波兰边境仅11公里。
-
-如果战争如人们所担心的那样进入波兰，美国几乎肯定会直接卷入战争。
-
-“这将是对美国的攻击，”美国国会议员布兰登·博伊尔说。
-
-参考链接： [Russia Ukraine war latest: Mariupol under siege, ‘filthy’ chemical weapon claims | news.com.au — Australia’s leading news site](https://www.news.com.au/world/europe/russia-ukraine-updates-live-putin-broadening-targets-after-air-strike-near-poland/news-story/cb87c004ae0fbe3b45efeae50c485db9)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

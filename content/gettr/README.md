@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 6:47 AM (UTC)`
+
+【Ukraine Rescue】03/13/22  NFSC‘s volunteer received a  kiss of gratitude from an Ukrainian lady<br/><br/>【乌克兰救援】03/13/22  新中国联邦义工小小酥获得乌克兰难民感激的亲吻<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group30/getter/2022/03/14/06/20614a84-b1ca-8fbd-1b09-245d41cbdcd5/out.jpg)
+
+---
+
 `@miles 3/14/2022 3:13 AM (UTC)`
 
 [UKRAINEHELP-005]<br/><br/>由于需要免费专机撤离的申请人数不足，NFSC和法治基金（ROLF）宣布取消3月15日的免费专机，已经成功登记并符合条件的申请人，我们将根据每个人的目的地免费提供商业航班机票并安排他们安全离开波兰。未来的免费专机航班，将根据实际情况再重新做出计划，并公告。<br/><br/>NFSC和法治基金（ROLF）已经在波兰边境Medyka设立了24小时临时救援接待站，供来自乌克兰的难民休憩。救援接待站内提供免费咖啡、热水、食物、毛毯，并设有儿童专区。<br/>NFSC和法治基金（ROLF）每天都有安排免费巴士，从乌克兰边境利沃夫（Lviv）前往波兰的克拉科夫（Krakow)，以帮助难民撤离。<br/><br/>截止到3月13日，我们已经免费提供超过250人次酒店食宿，为1016位难民提供了免费巴士撤离，Medyka救援站接待了上千名难民，并成为国际红十字会的中转站。NFSC和ROLF提供免费救援，以帮助那些受俄罗斯非法入侵影响的人员，这是我们消灭中国共产党，支持在被共产主义和专制政府统治的国家里争取自由的使命的一部分。因为全人类的战争和所有灾难都与中国共产党有关，只有消灭中国共产党才能解决人类战争和所有苦难的根源。<br/><br/>请有需要的华人同胞、乌克兰、美国及其他国家人士，联系我们24小时服务热线。<br/><br/>24小时客服热线（电话/短信）：<br/>+1 720-657-6776 <br/>+1 719-224-4232<br/>+48 508-532-712<br/>+48 508-531-518<br/><br/>Telegram： t.me/UkraineRescue<br/>GETTR： @UkraineRescue<br/><br/>邮箱： UkraineRescue01@protonmail.com 或 UkraineRescue02@protonmail.com <br/><br/>NFSC<br/>法治基金<br/>2022年3月13日
@@ -147,13 +154,6 @@ Lydia: I just want to return to Kyiv, I love Ukraine very much. <br/><br/>蕾迪
 
 小小尼莫第二期-反战主题音乐会
 ![img](https://media.gettr.com/group48/origin/2022/03/13/17/94fee881-965a-502e-1959-73e591766cc7/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/13/2022 3:58 PM (UTC)`
-
-【Ukraine Rescue】03/11/2022 A volunteer from New Federal State of China and ROLF interviews Kosovo associates from an America-based NGO who are surprised at our capabilities,and are also surprised to see the New China face on this occasion, and they are willing to cooperate with us.<br/>【乌克兰救援】03/11/2022 新中国联邦和法治基金的志愿者采访一家美国非政府组织的科索沃志愿者，他们对新中国联邦和法治基金的实力感到很惊讶，同时他们也很惊讶在这种场合看到新中国人面孔，他们很想和我们合作。<br/>
-![img](https://media.gettr.com/group38/getter/2022/03/13/15/7f395992-22fa-194c-4e1a-e650c2dec142/out.jpg)
 
 ---
 
