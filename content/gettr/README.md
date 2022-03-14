@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 1:59 AM (UTC)`
+
+2022.03.13 农场联盟工作汇报
+![img](https://media.gettr.com/group19/origin/2022/01/24/02/bd613978-1725-3a5b-3d72-ba5ecfb1f562/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/14/2022 1:09 AM (UTC)`
 
 2022.03.13 晚《新中国联邦新闻访谈》 Covid-19疫苗如何伤害免疫系统​；前线战友如何防范病毒；如何保持心理健康？
@@ -147,13 +154,6 @@ Lydia: I just want to return to Kyiv, I love Ukraine very much. <br/><br/>蕾迪
 
 我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>Ми-нові китайці, які знищили злу Комуністичну партію Китаю<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є основною причиною лих у всьому світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
 ![img](https://media.gettr.com/group23/origin/2022/03/13/15/3e6c0b98-dc67-c3e8-fcc1-b6fb1f1ab890/out.jpg)
-
----
-
-`@miles 3/13/2022 2:18 PM (UTC)`
-
-The Medyka port is a land port on the border between Poland and Ukraine. A large number of refugees are withdrawing from Ukraine. In the huge refugee center area on the Polish side of the port, a group of new Chinese faces have become the focus of international media attention in recent days.Let's have a look at this group of different new Chinese faces.<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party。<br/>The Chinese Communist Party is the root cause of all disasters and wars globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/><br/>梅迪卡口岸是波乌边境的一个陆地口岸，大量的难民源源不断地从乌克兰撤出，在口岸波兰一侧巨大的难民中心区域，一群新中国人面孔，成为这几天国际媒体关注的焦点，让我们一起走进这里，看看这一群不一样的新中国人面孔<br/>我们是消灭邪恶中国共产党的新中国人。<br/>中国共产党是全世界灾难和战争的根源，只有消灭中国共产党才能拯救全人类
-![img](https://media.gettr.com/group34/origin/2022/03/13/14/4e415c6e-6446-35be-5607-affaa0cdabbb/out.jpg)
 
 ---
 
