@@ -2,37 +2,41 @@
 ---
 
 
-## 今日盖特大V推荐 — 格雷格·贾勒特（Gregg Jarrett）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2159795/)
+## 前线快报&#8212;-3月13日， 经过12小时的舟车劳顿，满载147人的三辆大巴今凌晨到达波兰
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2159800/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1484-e1647225203703.png)
-盖特链接： [https://gettr.com/user/greggjarrett](https://gettr.com/user/greggjarrett)
+3月13日 俄乌战争第18天，波兰—克拉科夫Kraków
+![](https://assets.gnews.org/wp-content/uploads/2022/03/031202.jpg)[盖特视频链接](https://www.gettr.com/post/pzv0r4bb4d)
+昨天从利沃夫出发顺利登上救援大巴的妇女儿童，经过近12小时的舟车劳顿，今天凌晨已安全撤离至波兰👏👏👏车上有多名婴儿，最小的才只有3天！这个战火宝宝在铁血大卫的怀里睡得香甜，万佛万神保佑，这些小宝贝们都能在和平安全的环境中成长🙏🙏🙏
 
-格雷格·贾勒特自述：
+前线救援队寒风中迎接3辆载有147人的救援大巴，并贴心地准备了热咖啡和食物，帮脱困的妈妈孩子们拿行李，引领她们去火车站。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1488.png)[盖特视频链接](https://www.gettr.com/post/pzvdfhdb3c)
+新中国联邦、法治基金、法治社会与国际救援组织合作，无偿帮助华人同胞、乌克兰同胞、美国同胞以及全球同胞撤离乌克兰战区。根据求助者的护照及签证情况，撤离地点为美国和其他安全中转国。请有需要的全球同胞与新中国联邦24小时紧急救援客服联系。
 
-福克斯新闻频道的法律和政治分析师。《俄罗斯骗局和猎巫》（THE RUSSIA HOAX and WITCH HUNT） 的作者。
+🆘24小时救援客服热线（电话/短信）：
 
-购书链接：[http://bit.ly/WitchHuntbook](https://bit.ly/WitchHuntbook)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1485.png)图片来源：网络
-**格雷格·贾勒特简介：**
++1 720-657-6776或 +1 719-224-4232 或+48 508-532-712 或 +48 508-531-518
 
-格雷格·贾勒特（Gregory Walter Jarrett 生于1955年4月7日）是美国[保守派](https://en.m.wikipedia.org/wiki/Conservatism_in_the_United_States)新闻评论员、作家和律师。
+🔵Telegram： t.me/UkraineRescue
 
-格雷格·贾勒特于2002年11月加入福克斯新闻，此前他曾在当地的NBC和ABC电视台以及国家网络法庭电视台（Court TV）和微软全国广播公司（MSNBC）工作了十多年。
-
-格雷格·贾勒特以其支持川普的评论，以及对俄罗斯干涉2016年美国大选调查的批评而闻名。2018年，他发表了《俄罗斯骗局》，认为“深层政府”试图破坏川普政府并保护2016年总统候选人希拉里·克林顿。
-
-编撰：洛杉矶盘古农场 — 心照
-
-校审：洛杉矶盘古农场 — 郭友(文苏)
-
-发布：洛杉矶盘古农场 — 子萍
+🔵邮箱： [\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/grafik-14.png)
+***编辑：【英国伦敦喜庄园编辑部】***
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

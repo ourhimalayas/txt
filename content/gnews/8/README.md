@@ -2,45 +2,37 @@
 ---
 
 
-## 美国驻伊拉克领事馆附近发生导弹爆炸
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159779/)
+## 今日盖特大V推荐 — 格雷格·贾勒特（Gregg Jarrett）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2159795/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1484-e1647225203703.png)
+盖特链接： [https://gettr.com/user/greggjarrett](https://gettr.com/user/greggjarrett)
 
+格雷格·贾勒特自述：
 
+福克斯新闻频道的法律和政治分析师。《俄罗斯骗局和猎巫》（THE RUSSIA HOAX and WITCH HUNT） 的作者。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+购书链接：[http://bit.ly/WitchHuntbook](https://bit.ly/WitchHuntbook)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1485.png)图片来源：网络
+**格雷格·贾勒特简介：**
 
+格雷格·贾勒特（Gregory Walter Jarrett 生于1955年4月7日）是美国[保守派](https://en.m.wikipedia.org/wiki/Conservatism_in_the_United_States)新闻评论员、作家和律师。
 
+格雷格·贾勒特于2002年11月加入福克斯新闻，此前他曾在当地的NBC和ABC电视台以及国家网络法庭电视台（Court TV）和微软全国广播公司（MSNBC）工作了十多年。
 
-据国外媒体报道，当地时间3月13日凌晨，伊朗阿塞拜疆省的哈萨巴德军事基地发射数枚导弹，在美国驻伊拉克埃尔比勒领事馆附近爆炸。
+格雷格·贾勒特以其支持川普的评论，以及对俄罗斯干涉2016年美国大选调查的批评而闻名。2018年，他发表了《俄罗斯骗局》，认为“深层政府”试图破坏川普政府并保护2016年总统候选人希拉里·克林顿。
 
-一位伊拉克官员最初说导弹击中了美国领事馆，后来另一名官员证实导弹是在美国设施附近爆炸的。
+编撰：洛杉矶盘古农场 — 心照
 
-目前暂无人员伤亡报道。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12-3.jpg)
-参考链接：
-[Iran claims missile barrage near US consulate in Iraq](https://abcnews.go.com/International/wireStory/missiles-target-us-consulate-north-iraq-casualties-83412862)
+校审：洛杉矶盘古农场 — 郭友(文苏)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/审核：飞虹
-编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+发布：洛杉矶盘古农场 — 子萍
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
  
 

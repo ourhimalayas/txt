@@ -2,35 +2,22 @@
 ---
 
 
-## 文贵大直播谈中共围魏救赵
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2159514/)
+## 中日财经爆┃大疆再遭制裁，设计软件被封！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2159515/)
 
-【撰稿】纽约香草山健身部-文鹰
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-19.png)
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1472.png)图片来源于本文链接
+3月12日，美国设计软件企业Figma封禁大疆等被美国制裁公司的账号。大疆内部收到了一封来自设计软件公司Figma的邮件表示，大疆在发布的制裁名单当中，因此Figma无法再提供软件服务，并开始冻结账户。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1473.png)
+Figma成立于2012年，是基于网页的界面设计协作工具，可以将项目时刻保存在云端，这样就可以保证多方用户对设计进行实时评论或修改。它有三个很显著的特性：实时协作、矢量网格、版本历史。最重要的是，这个工具非常方便，可以在一个文档中同时处理20个以上的画板。大疆等很多企业都使用Figma软件，它相当于企业设计的“画笔”。
 
-3月13日盖特消息，文贵先生在大直播中，再次向世界郑重公布：中共即将在中东地区挑起的能源战争，是一场和俄罗斯计划好的“围魏救赵”阴谋。
-文贵先生在本月10日直播，曾向世界发出警告本月底到4月份，中共会在中东地区点燃战火，制造世界能源危机，继而侵占台湾。
-郭先生这次直播讲到，中共和俄罗斯在俄乌战争开始前，就制定了‘围魏救赵’计划。中共利用控制中东地区的邪恶联盟，伊朗，沙特，叙利亚，等武装团体，制造局部战争，控制全球石油运输命脉，本质是要打垮美元（石油）。
-不幸的是还没有到月底，也就是3月12日，就发生了伊朗用导弹袭击伊拉克美领事馆事件。美军在中东的所有军事基地，都面临被邪恶联盟袭击威胁。
-历史上，中共在1979年2月发动的‘中越边境自卫反击战’，就是一场‘围魏救赵’的侵略战争。战争并没有迫使越南，从柬埔寨全面撤军。只是无数年轻中国人的鲜血，成就了政治家的个人极权野心。
-俄乌战争，是一场非正义战争。普京跟着中共已经快跑进入火葬场，中共的‘围魏救赵’中东战争计划，在爆料革命的真相面前，必会惨败结束。
-新中国联邦是拯救世界，唯一的正道主义团体，我们要和平，不要战争。中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。
+大疆是中共军民融合的核心企业之一，大量参与中共军方用于战场的长航时无人机研制，并大量开发用于监控人民的无人机，是中共邪恶统治的重要帮凶。此次设计软件禁用，将大大减缓相关无人机制造的步伐，配合之前的芯片禁售，大疆或将逐步面临停产绝境。
 
-【新闻来源】[http://\[https://gettr.com/post/pzrn4eb349\]](http://[https://gettr.com/post/pzrn4eb349])
+信息来源： [继华为之后 大疆再遭制裁：设计软件被封！](https://www.163.com/dy/article/H2BRCQ120514R9KC.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-- 审核/编辑/发稿:qiutian（邱甜）
-
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

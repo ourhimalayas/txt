@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 3:13 AM (UTC)`
+
+[UKRAINEHELP-005]<br/><br/>由于需要免费专机撤离的申请人数不足，NFSC和法治基金（ROLF）宣布取消3月15日的免费专机，已经成功登记并符合条件的申请人，我们将根据每个人的目的地免费提供商业航班机票并安排他们安全离开波兰。未来的免费专机航班，将根据实际情况再重新做出计划，并公告。<br/><br/>NFSC和法治基金（ROLF）已经在波兰边境Medyka设立了24小时临时救援接待站，供来自乌克兰的难民休憩。救援接待站内提供免费咖啡、热水、食物、毛毯，并设有儿童专区。<br/>NFSC和法治基金（ROLF）每天都有安排免费巴士，从乌克兰边境利沃夫（Lviv）前往波兰的克拉科夫（Krakow)，以帮助难民撤离。<br/><br/>截止到3月13日，我们已经免费提供超过250人次酒店食宿，为1016位难民提供了免费巴士撤离，Medyka救援站接待了上千名难民，并成为国际红十字会的中转站。NFSC和ROLF提供免费救援，以帮助那些受俄罗斯非法入侵影响的人员，这是我们消灭中国共产党，支持在被共产主义和专制政府统治的国家里争取自由的使命的一部分。因为全人类的战争和所有灾难都与中国共产党有关，只有消灭中国共产党才能解决人类战争和所有苦难的根源。<br/><br/>请有需要的华人同胞、乌克兰、美国及其他国家人士，联系我们24小时服务热线。<br/><br/>24小时客服热线（电话/短信）：<br/>+1 720-657-6776 <br/>+1 719-224-4232<br/>+48 508-532-712<br/>+48 508-531-518<br/><br/>Telegram： t.me/UkraineRescue<br/>GETTR： @UkraineRescue<br/><br/>邮箱： UkraineRescue01@protonmail.com 或 UkraineRescue02@protonmail.com <br/><br/>NFSC<br/>法治基金<br/>2022年3月13日
+![img](https://media.gettr.com/group13/getter/2022/03/14/03/705be8cd-82b7-a234-2f78-5c3d878bd886/5494699089bd1a40f6ec663fab176f0b.jpg)
+
+---
+
 `@miles 3/14/2022 2:20 AM (UTC)`
 
 3/13/2022 Miles Guo: There is a “list of four CCP cadres to be killed” inside of the CCP, who is on it? Miles Guo and the Whistleblowers’ Movement have laid out all kinds of traps for the CCP in the past decades, and the CCP will be finished in a road of no return in the Middle East, Europe, and its “Belt and Road Initiative”!<br/><br/>3/13/2022 文贵直播：共产党内部的“四杀令”是什么？郭先生和爆料革命在过去这些年给共产党挖好了各种坑，中共会在中东、欧洲和“一带一路”走上不归的死亡之路！<br/>
@@ -147,13 +154,6 @@ Lydia: I just want to return to Kyiv, I love Ukraine very much. <br/><br/>蕾迪
 
 【Ukraine Rescue】03/11/2022 A volunteer from New Federal State of China and ROLF interviews Kosovo associates from an America-based NGO who are surprised at our capabilities,and are also surprised to see the New China face on this occasion, and they are willing to cooperate with us.<br/>【乌克兰救援】03/11/2022 新中国联邦和法治基金的志愿者采访一家美国非政府组织的科索沃志愿者，他们对新中国联邦和法治基金的实力感到很惊讶，同时他们也很惊讶在这种场合看到新中国人面孔，他们很想和我们合作。<br/>
 ![img](https://media.gettr.com/group38/getter/2022/03/13/15/7f395992-22fa-194c-4e1a-e650c2dec142/out.jpg)
-
----
-
-`@miles 3/13/2022 3:49 PM (UTC)`
-
-【Ukraine Rescue】03/11/2022 Fellow Fighter Nicole discusses potential future cooperation with an American NGO Humanitarian Refugee Aid within Ukraine rescue operation<br/><br/>【乌克兰救援】03/11/2022 妮可战友和美国非政府组织人道主义难民救助组织的成员讨论双方未来在乌克兰救援行动中可能的合作<br/>
-![img](https://media.gettr.com/group21/getter/2022/03/13/15/0566810c-c0e4-239f-2d8d-54e5b4fc67c7/out.jpg)
 
 ---
 

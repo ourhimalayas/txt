@@ -2,10 +2,10 @@
 ---
 
 
-## 以色列斡旋停战未果 泽连斯基誓死保卫基辅
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159758/)
+## 中共病毒疫苗创造亿万富翁 中共国六人上榜
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159760/)
 
-作者：纽约香草山 – 侠肝义胆
+作者：温哥华扬帆农场—動物農莊裡的小螞蟻Michael.Tonny
 
 
 
@@ -13,22 +13,19 @@
 
 
 
-国外媒体3月12日报道，以色列总理贝内特为幹旋俄乌停战，和乌克兰总统泽连斯基及法 德领导人进行了反复沟通交流。泽连斯基告诉贝内特，他希望到耶路撒冷和普京见面，进行和平谈判。
-
-贝内特为此专门访问莫斯科会见了普京，希望能够调解目前处于焦着状态的俄乌战争。但遗憾的是贝内特此行没有达成预期成果，普京仍然拒绝同泽连斯基见面进行和谈。
-
-泽连斯基说，贝内特已经向他通报了他与普京的会谈情况。此前，普京对泽连斯基多次提出的和谈建议置之不理。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-8.jpg)
-因此，泽连斯基在新闻发布会上说，乌克兰人已经准备好反击俄罗斯的疯狂进攻。俄罗斯人想要占领基辅只有杀死所有乌克兰人。俄罗斯地毯式的轰炸不能抹去乌克兰和基辅的历史记忆，更无法抹去整个欧洲的历史记忆。
-
-泽连斯基表示，乌克兰人将誓死保卫自己的首都，俄罗斯即使再派一百万军队过来，也不能占领乌克兰。
+近日，有机构披露，自中共病毒大流行开始以来，至少有9人成为新的亿万富翁，这九位新亿万富翁的总净资产为193亿美元。八位现有的亿万富翁的总财富增加了322亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-6.jpg)
+在这17位亿万富翁中，有6人来自中共国。他们分别是：中共国重庆智飞生物制品股份有限公司主席，蒋仁生家族；中共国国药控股股份有限公司，谢炳；中共国重庆智飞生物制品股份有限公司联合创始人，吴冠江；中共国天津康希诺生物联合创始人、董事长兼首席科学官朱涛；中共国天津康希诺生物联合创始人兼高级副总裁邱东旭；中共国天津康希诺生物联合创始人兼高级副总裁毛慧华。
 
 参考链接：
-[‘Let Them Come’ – Zelensky Says Russians Will Have to ‘Kill Us All’ to Take Kyiv](https://www.breitbart.com/europe/2022/03/12/let-them-come-zelensky-says-russians-will-have-to-kill-us-all-to-take-kyiv/)
+1. [COVID病毒疫苗创造亿万富翁 中共国6人上榜](https://gnews.org/zh-hans/2152315/)
+2. [COVID vaccines create 9 new billionaires with combined wealth greater than cost of vaccinating world’s poorest countries](https://www.oxfam.org/en/press-releases/covid-vaccines-create-9-new-billionaires-combined-wealth-greater-cost-vaccinating)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-总编/编辑/审核：飞虹
+审核：文真
+总编：飞虹
+编辑：Jack Li文阳
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

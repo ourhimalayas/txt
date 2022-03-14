@@ -2,38 +2,89 @@
 ---
 
 
-## 吉林农业科技学院求救惨状凸显中共邪恶
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2159872/)
+## 拜登：“北约与俄罗斯之间的直接对抗是第三次世界大战，我们必须努力防止这种情况”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2159889/)
 
-**【国内新闻短评】**
+Joe Biden (U.S. President)
+乔·拜登（美国总统）
 
-中共吉林农业科技学院2022年3月10日求救：我们把生命交给党，结果呢？好心人们，求求了，帮帮同学们吧！
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1490-e1647226196537.png)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1491.png)
-**短评：**
+We’re gonna continue to stand together with our allies in Europe
+我们将继续与我们在欧洲的盟友站在一起
 
-2022年3月6日，中共吉林农业科技学院第一例中共病毒阳性出现，中共的学校并没有及时采取正确措施处理，而是让学生在图书馆和教学楼打地铺打桌铺进行所谓的隔离，结果人为制造了交叉感染，就和中共三天两头的核酸检测一样。没有病的同学也成了密接变成了阳性，学生们哭着给老师打电话，老师也没被告知怎么办，全都在学校堆着，学生们都奔溃大哭，吉林马上要变成下一个武汉初的疫情了，却没有人管。学生们孤立无援，正常的同学们在寝室没有水喝，学校态度还很强硬。志愿者大都是学生，穿着防护服风里来雨里去，很多也被感染去隔离了，一个公寓由几十个志愿者变成了寥寥无几的几个志愿者，根本没有人再当了，学生们不由心寒，每个人都在崩溃大哭。九公寓的人，被交叉感染式的野蛮隔离了好几百人，密接和次密接，后来直接把阴性的转移走，阳性的直接留下等死。有的学生已经没有意识，躺在寝室，等待处置，这样的情况一波又一波。除此之外，生活必需品也严重不足，有的女生卫生巾都没了，边流血边疼，哭着给家里打电话。被野蛮隔离的学生寝室门被胶布封着，连厕所都不让上，宿舍里也没厕所，简直惨无人道。学生们无奈之下给吉林防控打电话，不是被拒接就是推卸责任，没有人管这些学生，祖国的花朵们就这样成了刀俎上的鱼肉，任中共宰割。不仅如此，学校领导还一直压制着学生们求救的微博热搜，还给发微博的同学打电话进行威胁。
+and send an unmistakable message
+并传递明白无误的信息
 
-邪恶呀，中共！在中共治下的960万平方公里，这样惨无人道的灾难每天都在发生：八九六四天安门大屠杀如此，新疆大屠杀如此，汶川大地震如此，武汉大疫情如此，香港送中恶法如此，郑州大洪水如此……中共治下多少人，活得不如猪狗，活着活着就死了，连死了都不知道真相：刘少奇如此，邓小平如此，薄熙来如此，周永康如此，马云如此，王健林如此，赵薇如此，薇娅如此，彭帅如此，李云迪如此，王相军如此，欧金忠如此，锁链女如此……看到锁链女，想到国内这些孩子的丢失，就是中共的邪恶。中共官方都说了中共治下每年都有几百万人（失踪），几百万人是什么概念呢？相当于每年都有一个曼哈顿的人全部消失，这几百万人就是几百万个家庭。就像每个吉林农业科技学院这样的学校学生感染中共病毒后连累的都至少是几千个家庭。不论是吉林农业科技学院学生的感染还是乌克兰战争，中共都是背后的始作俑者。只有中共被灭了，才不会再出现吉林农业科技学院这样的求救惨状。
+We’ll defend every single inch of NATO territory
+我们将保卫每一寸北约领土
 
-当我们对世界上的不公与悲惨选择冷眼旁观时，等到我们自己落入苦难时，也不会有人为我们摇旗呐喊。如果中共不灭，我们全人类每个人都会成为吉林农业科技学院的学生，我们的遭遇只会比吉林农业科技学院的学生更惨。所以全世界的人们，团结起来吧，救救乌克兰，救救吉林农业科技学院的这些学生，救救自己。中共灭了，病毒才会消失；中共灭了，毒疫苗才会停止。让我们团结起来，take down the CCP！
+of the full might of the united and galvanized NATO
+团结和激励的北约的全部力量
 
-文章观点仅代表作者个人，与Gnews 平台无关
+We will not fight a war against Russia in Ukraine
+我们不会在乌克兰与俄罗斯开战
 
-新闻链接：[https://m.weibo.cn/7377874755/4745439683020364](https://m.weibo.cn/7377874755/4745439683020364)
+direct confrontation between NATO and Russia is World War III
+北约与俄罗斯的直接对抗将成为第三次世界大战
 
-素材：洛杉矶盘古农场 — 归去来兮
+Something we must strive to prevent
+这是我们必须努力防止的事情
 
-评论：洛杉矶盘古农场 — 归去来兮
+But we already know Putin war against Ukraine will never be a victory
+但我们已经知道普京对乌克兰的战争永远不会胜利
 
-编审：洛杉矶盘古农场 — 心照
+He hoped to dominate Ukraine without a fight, he failed
+他希望轻松战胜乌克兰，他失败了
 
-发布：洛杉矶盘古农场 — 子萍
+he hoped fracture European resolve, he failed
+他希望破坏欧洲的决心，他失败了
 
+he hoped to weaken the Transatlantic Alliance, he failed
+他希望削弱了跨大西洋联盟，他失败了
 
+He hoped to split apart American democracies in terms of our positions, he failed
+他希望在我们的立场上分裂美国民主国家，他失败了
+
+The American people united, the world is united
+美国人民是团结的，世界是团结的
+
+And we stand with the people of Ukraine
+我们与乌克兰人民站在一起
+
+We will not let autocrats and would be emperors dictate the direction of the world
+我们不会让独裁者和皇帝左右世界的方向
+
+Democracies are rising to meet this moment
+民主国家正在崛起迎接这一刻
+
+Rally in the world to the side of peace, the side of security
+团结在世界和平的一边，安全的一边
+
+we’re showing our strength and we will not falter
+我们正在展示我们的力量，我们不会动摇
+
+God bless all of you, God bless Ukraine and God bless our troops
+上帝保佑你们所有人，上帝保佑乌克兰，上帝保佑我们的军队
+
+原视频链接: [https://twitter.com/newsmax/status/1502318377737539584?s=24](https://twitter.com/newsmax/status/1502318377737539584?s=24)
+
+Date:03/12/2022
+原视频标题:BIDEN: “Direct confrontation between NATO and Russia is World War III, something we must strive to prevent”
+拜登：“北约与俄罗斯之间的直接对抗是第三次世界大战，我们必须努力防止这种情况”
+原视频日期：2022/03/12
+原视频链接https://twitter.com/newsmax/status/1502318377737539584?s=24
+任务编号：KE450（3989）
+视频时间段 : 0:00-1:15
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场-庚子
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

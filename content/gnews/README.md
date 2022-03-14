@@ -15,83 +15,83 @@
 
 ---
 
-### [俄军猛烈空袭乌克兰西部军事基地](/content/gnews/1/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [文贵视角: 2022年人类面临最黑暗的不是战争,而是疫苗灾难](/content/gnews/1/README.md)
+ ` 秘密翻译组-原创组`
 
-### [吉林农业科技学院求救惨状凸显中共邪恶](/content/gnews/2/README.md)
+### [拜登：“北约与俄罗斯之间的直接对抗是第三次世界大战，我们必须努力防止这种情况”](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [乌克兰免费救援巴士（利沃夫一克拉科夫）](/content/gnews/3/README.md)
+### [俄军猛烈空袭乌克兰西部军事基地](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [乌克兰免费救援巴士（利沃夫一克拉科夫）](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文•贵天成——文贵先生谈孟建柱（十九）](/content/gnews/4/README.md)
+### [文•贵天成——文贵先生谈孟建柱（十九）](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年3月13日晚](/content/gnews/5/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年3月13日晚](/content/gnews/6/README.md)
  ` 纽约香草山MOS01`
 
-### [前线快报&#8212;-3月13日， 经过12小时的舟车劳顿，满载147人的三辆大巴今凌晨到达波兰](/content/gnews/6/README.md)
+### [前线快报&#8212;-3月13日， 经过12小时的舟车劳顿，满载147人的三辆大巴今凌晨到达波兰](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [今日盖特大V推荐 — 格雷格·贾勒特（Gregg Jarrett）](/content/gnews/7/README.md)
+### [今日盖特大V推荐 — 格雷格·贾勒特（Gregg Jarrett）](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国驻伊拉克领事馆附近发生导弹爆炸](/content/gnews/8/README.md)
+### [有声|新中国联邦纽约救援团队已赴前线](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [美国驻伊拉克领事馆附近发生导弹爆炸](/content/gnews/10/README.md)
  ` NFSC News`
 
-### [乌国难民恐成人蛇下手目标！快快加入新中国联邦](/content/gnews/9/README.md)
+### [乌国难民恐成人蛇下手目标！快快加入新中国联邦](/content/gnews/11/README.md)
  ` 蓝莲花农场`
 
-### [关注中共假借民船商船攻台](/content/gnews/10/README.md)
+### [关注中共假借民船商船攻台](/content/gnews/12/README.md)
  ` NFSC News`
 
-### [中共病毒疫苗创造亿万富翁 中共国六人上榜](/content/gnews/11/README.md)
+### [中共病毒疫苗创造亿万富翁 中共国六人上榜](/content/gnews/13/README.md)
  ` NFSC News`
 
-### [泽连斯基披露两军死亡数字](/content/gnews/12/README.md)
+### [泽连斯基披露两军死亡数字](/content/gnews/14/README.md)
  ` NFSC News`
 
-### [以色列斡旋停战未果 泽连斯基誓死保卫基辅](/content/gnews/13/README.md)
+### [以色列斡旋停战未果 泽连斯基誓死保卫基辅](/content/gnews/15/README.md)
  ` NFSC News`
 
-### [有声|阿根廷桑坦德银行将提供以农产品为基础的代币担保贷款](/content/gnews/14/README.md)
+### [有声|阿根廷桑坦德银行将提供以农产品为基础的代币担保贷款](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|文贵先生提醒战友，一定要注意安全](/content/gnews/15/README.md)
+### [有声|文贵先生提醒战友，一定要注意安全](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [今日盖特大V推荐 — 信息战（Infowars）](/content/gnews/16/README.md)
+### [今日盖特大V推荐 — 信息战（Infowars）](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|历史上的今天——历史上的今天起义日](/content/gnews/17/README.md)
+### [有声|历史上的今天——历史上的今天起义日](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [欧盟和英国对谷歌勾结脸书操控广告市场启动反垄断调查](/content/gnews/18/README.md)
+### [欧盟和英国对谷歌勾结脸书操控广告市场启动反垄断调查](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|受俄军控制，切尔诺贝利核电站断电](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [不同于瑞德西韦，伊维菌素与COVID-19患者低死亡率相关](/content/gnews/20/README.md)
+### [不同于瑞德西韦，伊维菌素与COVID-19患者低死亡率相关](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [吉姆·法内尔上尉：中共正与我们进行战略竞争，要杀死我们](/content/gnews/21/README.md)
+### [吉姆·法内尔上尉：中共正与我们进行战略竞争，要杀死我们](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中日财经爆┃大疆再遭制裁，设计软件被封！](/content/gnews/22/README.md)
+### [中日财经爆┃大疆再遭制裁，设计软件被封！](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵大直播谈中共围魏救赵](/content/gnews/23/README.md)
+### [文贵大直播谈中共围魏救赵](/content/gnews/24/README.md)
  ` 纽约香草山MOS02`
 
-### [中共国疫情失控香港已成地狱](/content/gnews/24/README.md)
+### [中共国疫情失控香港已成地狱](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [新冠疫苗受害者控诉CDC对疫苗副作用报告不作为](/content/gnews/25/README.md)
+### [新冠疫苗受害者控诉CDC对疫苗副作用报告不作为](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
-
-### [文贵先生直播重点大纲2022/03/13](/content/gnews/26/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [多国确认中共病毒新变种“Deltacron”感染病例](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

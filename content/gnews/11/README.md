@@ -2,45 +2,25 @@
 ---
 
 
-## 中共病毒疫苗创造亿万富翁 中共国六人上榜
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159760/)
+## 乌国难民恐成人蛇下手目标！快快加入新中国联邦
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2159776/)
 
-作者：温哥华扬帆农场—動物農莊裡的小螞蟻Michael.Tonny
+俄军侵略乌克兰19天，引发大规模难民潮逃到国外，联合国统计至少已经有250万人流离失所，其中绝大多数都是「老弱妇孺」弱势族群，国际公益团体非常担忧，贩卖人口歹徒可能趁着兵荒马乱之际，混进难民营，假借各种名义，把妇女跟小朋友带走卖掉，让本来孤苦无依的乌克兰难民，再度掉进不幸的深渊。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/b06c8cdc-bac2-48eb-bdd1-ae5bcb4e5c11.jpg)图片来源：AP Direct
 
+世界展望会呼吁，乌克兰难民必须有危机意识、三思而行，尤其是女性和年轻人，手机必须充饱电，每次乘车都要记住车号，跟具有公信力的国际志工保持密切联系，随时通报去向和所在位置，以免遭遇不测人间蒸发，成为人口贩卖集团的战利品，幸运逃离战火却又掉进更可怕的地狱。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+简评：乱世之中，人性的恶念很容易被激发，尤其那些无恶不作贩卖人口的歹徒，会趁着机会大搞人口买卖，乌克兰的难民正是他们瞄准的目标！新中国联邦人道救援在救援现场设立了救援营，热心无私的帮助乌克兰逃难的朋友们，刚刚逃离战火为了免遭坏人之手，新中国联邦大家庭欢迎你们的加入！
 
+新闻来源：[台视新闻网](https://news.ttv.com.tw/news/11103130033400N)
 
+撰稿/发布：一叶知秋
 
-近日，有机构披露，自中共病毒大流行开始以来，至少有9人成为新的亿万富翁，这九位新亿万富翁的总净资产为193亿美元。八位现有的亿万富翁的总财富增加了322亿美元。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-6.jpg)
-在这17位亿万富翁中，有6人来自中共国。他们分别是：中共国重庆智飞生物制品股份有限公司主席，蒋仁生家族；中共国国药控股股份有限公司，谢炳；中共国重庆智飞生物制品股份有限公司联合创始人，吴冠江；中共国天津康希诺生物联合创始人、董事长兼首席科学官朱涛；中共国天津康希诺生物联合创始人兼高级副总裁邱东旭；中共国天津康希诺生物联合创始人兼高级副总裁毛慧华。
-
-参考链接：
-1. [COVID病毒疫苗创造亿万富翁 中共国6人上榜](https://gnews.org/zh-hans/2152315/)
-2. [COVID vaccines create 9 new billionaires with combined wealth greater than cost of vaccinating world’s poorest countries](https://www.oxfam.org/en/press-releases/covid-vaccines-create-9-new-billionaires-combined-wealth-greater-cost-vaccinating)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-审核：文真
-总编：飞虹
-编辑：Jack Li文阳
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

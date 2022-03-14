@@ -2,27 +2,27 @@
 ---
 
 
-## 新冠疫苗受害者控诉CDC对疫苗副作用报告不作为
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2159504/)
+## 中共国疫情失控香港已成地狱
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2159509/)
 
-翻译：文载Jenny
-校对：枳实
-字幕：文驰
-编辑：Mttfly
+采编：加拿大温哥华杨帆农场 – 文莱
 
-一位新冠疫苗接种受害者在视频中向相关人员控诉，她因接种莫德纳疫苗而患心包炎、胃痉挛、体位直立性心动过速综合征、大脑病变等疾病。美国疾控中心（CDC）作为这种实验性疫苗试验程序的制定者，连续数月都没有协调处理该接种疫苗者的副作用报告。但另一方面，美国政府却在强制为民众接种新冠疫苗，对疫苗副作用不作为，这样正常吗？
+编译撰稿：加拿大温哥华杨帆农场 – 自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1481.png)图片来源：CTV
+据加拿大[CTV新闻]3月12日报道，由于中共国疫情失控蔓延，当局再次实行了严格管控措施，包括规定北京市民不得离京，上海关闭学校等。同时，香港已开始出现大量病毒感染和死亡病例。
 
-视频链接：[What’s being done to these people is disgraceful](https://twitter.com/hameggsnsam/status/1484057040549027849?s=21)
+对此，文贵先生表示，目前香港疫情突然恶化，感染死亡率陡然上升的主要原因或是中共近期所投放的新型变种病毒所致。当局在以此举继续控制和破坏香港同时，还让世界在俄乌战争灾难中再次陷入更大的动乱而从中渔利，并为其暴政续命。
 
-发布：tianzhihuan
+同时，目前发生在中共国和香港地区的疫情危机，再次验证了文贵先生早在去年初就对世界发出的警告：病毒，疫苗以及战争给全人类来的黑暗和灾难还未真正到来。
 
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+校对编辑：硫酸羟氯喹64
 
+发稿：青青
+
+原文链接： [https://www.ctvnews.ca/health/coronavirus/china-tightens-controls-as-more-virus-cases-reported-1.5816756](https://www.ctvnews.ca/health/coronavirus/china-tightens-controls-as-more-virus-cases-reported-1.5816756)
+
+———————————————————————————————————
+![](https://cdn.discordapp.com/attachments/931678161832394752/952726699026567208/Screen_Shot_2022-03-11_at_22.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
