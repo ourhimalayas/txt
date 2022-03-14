@@ -2,35 +2,43 @@
 ---
 
 
-## 新冠疫苗加强针不能缓解新冠疫情
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2160786/)
+## 世界即将大战幕后黑手就是中共形成全球狼狈为奸的局面
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2160862/)
 
-By：喜国公民
-视频来自网络
-美国作家亚历克斯·贝伦森在接受塔克节目采访时说，人类正处于一个非常危险的时刻，新冠疫苗对欧米抗病毒一点作用都没有。在新冠疫苗和加强针接种率高的国家，新冠病毒感染率高得惊人。
+视频链接：[odysee.com/@郭文贵先生大直播精选:](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8802.61%EF%BC%89%E4%B8%96%E7%95%8C%E5%8D%B3%E5%B0%86%E5%A4%A7%E6%88%98%E5%B9%95%E5%90%8E%E9%BB%91%E6%89%8B%E5%B0%B1%E6%98%AF%E4%B8%AD%E5%85%B1%E5%BD%A2%E6%88%90%E5%85%A8%E7%90%83%E7%8B%BC%E7%8B%88%E4%B8%BA%E5%A5%B8%E7%9A%84%E5%B1%80%E9%9D%A2%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:6)
 
-贝伦森认为mRNA 新冠疫苗现在应该从市场上撤出。他说，新冠疫苗是危险的，对欧米抗变种病毒无效。用加强针来对抗新冠病毒的想法实在是疯狂。
+**郭文贵先生：**我们今天坐在这儿的时候，今天要说什么，就在瑞沃路森捋头发的时候，世界将发生大战。这个大战是跟谁有关系，最后的幕后黑手就是中国共产党，形成狼狈为奸的全球局面。对我们灭共形势是好的，但对人类真是个灾难。
 
-给人们接种更多的mRNA疫苗将在人们体内产生与新冠病毒不匹配的刺突蛋白，会导致免疫系统的混乱。
+大兵压境30万到乌克兰，乌克兰内部已经发动了29万全民的部队，而且很多都是美女啊，都漂亮得不能再漂亮的美女啊！乌克兰美女的独特漂亮天下独有，你没跟乌克兰美女打过交道，你没去过乌克兰你是不知道的。
 
-如果这些新冠疫苗当初是用来对付欧米抗病毒，就不会被药物管理局批准。辉瑞公司正试图在未来几个月内推出针对欧米抗变种病毒的mRNA新冠疫苗。
+而且现在是美军大量的科技人员、军事人员，所谓的叫代理人战争，已经到位。
 
-到那时，很可能会出现另一种新的变种病毒。因此，辉瑞等制药公司将永远给人们提供与当前变种病毒不匹配的新冠疫苗，使情况变得越来越糟。
+编辑整理：Jacques；
 
-他呼吁每一个公共卫生部门，都应该立即禁止接种mRNA新冠疫苗。
+字幕档制作：兵嫂；
 
-幸运的是，欧米抗病毒不像delta变种病毒那样危险。如果另一个毒性更强的变种病毒出现了，人们应该想好如何应对。
+视频制作及上传：Cindy；
 
-不幸的是，澳州卫生部长格雷格·亨特仍然建议人们接种第二剂加强针新冠疫苗，还将为65岁及以上的人群每年接种新冠疫苗。
+G-News发布：海贼王M.D.LUFFY；
 
-消息来源：[Canberra Press Conference, 11 March 2022](https://www.health.gov.au/ministers/the-hon-greg-hunt-mp/media/canberra-press-conference-11-march-2022-on-kimberley-kitching-japanese-encephalitis-extensions-to-vaccinationbooster-plan-winter-preparedness-plan-for-covid-and-flu)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-[Outrage as Alex Berenson baselessly tells Tucker Carlson ‘dangerous’ vaccines should be ‘withdrawn’](https://sports.yahoo.com/outrage-alex-berenson-baselessly-tells-163910649.html)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-*编辑：喜国公民*
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-*发布：喜国公民*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

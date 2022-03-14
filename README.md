@@ -15,68 +15,68 @@
 
 ---
 
-### [美国众议院批准拜登对俄罗斯石油的禁令](/content/gnews/1/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [世界即将大战幕后黑手就是中共形成全球狼狈为奸的局面](/content/gnews/2/README.md)
+### [七哥巨额判罚让欺民贼欣喜若狂,鼠目寸光者被诱抛喜币](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [乌克兰马立波被俄军围困，目前2187名平民丧生](/content/gnews/3/README.md)
+### [爆料革命最早揭露的中俄朝伊邪恶轴心大战已经一触即发](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [文•贵天成：文贵先生谈“孟建柱”（二十六）](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国政府官员和大医药公司在疫苗上欺骗美国人](/content/gnews/4/README.md)
+### [美国众议院批准拜登对俄罗斯石油的禁令](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [【乌克兰救援3.12.2022】乌克兰小女孩在新中国联邦咖啡驿站接受采访](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [从今天参会日本人的恐惧回看二战期间日军的奸杀和自杀](/content/gnews/5/README.md)
+### [世界即将大战幕后黑手就是中共形成全球狼狈为奸的局面](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [新冠疫苗加强针不能缓解新冠疫情](/content/gnews/6/README.md)
+### [乌克兰马立波被俄军围困，目前2187名平民丧生](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国政府官员和大医药公司在疫苗上欺骗美国人](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [从今天参会日本人的恐惧回看二战期间日军的奸杀和自杀](/content/gnews/9/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [新冠疫苗加强针不能缓解新冠疫情](/content/gnews/10/README.md)
  ` 澳喜农场`
 
-### [03/14每日播报｜社媒消息: 娜塔莉温特斯 郭文贵先生](/content/gnews/7/README.md)
+### [03/14每日播报｜社媒消息: 娜塔莉温特斯 郭文贵先生](/content/gnews/11/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [多枚远程弹道导弹袭击了美国驻伊拉克埃尔比勒领事馆](/content/gnews/8/README.md)
+### [多枚远程弹道导弹袭击了美国驻伊拉克埃尔比勒领事馆](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大与世界经济论坛 &#8220;大重置 &#8220;议程步调一致](/content/gnews/9/README.md)
+### [加拿大与世界经济论坛 &#8220;大重置 &#8220;议程步调一致](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [【 蓝枫法律 】 数字货币的形式及各种概念](/content/gnews/10/README.md)
+### [【 蓝枫法律 】 数字货币的形式及各种概念](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [【乌克兰救援】03/12/2022 新中国联邦法治基金乌克兰救援团队成员妮可向一位记者介绍法治基金并且告诉他所有的救援行动都是由法治基金赞助和组织的。她向记者展示了法治基金提供的所有物资并且告诉他新中国联邦是完全反对中共政府的机构](/content/gnews/11/README.md)
+### [【乌克兰救援】03/12/2022 新中国联邦法治基金乌克兰救援团队成员妮可向一位记者介绍法治基金并且告诉他所有的救援行动都是由法治基金赞助和组织的。她向记者展示了法治基金提供的所有物资并且告诉他新中国联邦是完全反对中共政府的机构](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [BBC新闻：俄军继续入侵之际，帮助乌克兰孤儿逃离基辅](/content/gnews/12/README.md)
+### [BBC新闻：俄军继续入侵之际，帮助乌克兰孤儿逃离基辅](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共正式宣布对刘彦平纪律审查和监察调查](/content/gnews/13/README.md)
+### [【乌克兰救援】来自美国非政府组织的科索沃志愿者对新中国联邦和法治基金展现出来的实力，以及在这种场合看到新中国人的面孔感到很惊讶，他们很想和我们合作](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [志愿者凌晨为难民接车，难民对新中国联邦表感谢](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【乌克兰救援】来自美国非政府组织的科索沃志愿者对新中国联邦和法治基金展现出来的实力，以及在这种场合看到新中国人的面孔感到很惊讶，他们很想和我们合作](/content/gnews/14/README.md)
+### [【乌克兰救援】妮可战友和美国非政府组织的成员讨论可能的合作](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [志愿者凌晨为难民接车，难民对新中国联邦表感谢](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【乌克兰救援】妮可战友和美国非政府组织的成员讨论可能的合作](/content/gnews/16/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共面对新中国联邦正义力量频出阴招](/content/gnews/17/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [有声｜中共发起中东战争 “围魏救赵 ”意在攻台](/content/gnews/18/README.md)
+### [有声｜中共发起中东战争 “围魏救赵 ”意在攻台](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜新中国联邦的乌克兰高效救援正在震惊国际媒体界](/content/gnews/19/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [台湾｜台湾频传电厂火警 郭文贵曾爆中共将“对台电厂动手”](/content/gnews/20/README.md)
+### [台湾｜台湾频传电厂火警 郭文贵曾爆中共将“对台电厂动手”](/content/gnews/21/README.md)
  ` 關注組`
-
-### [乱世中微信的信息超限战](/content/gnews/21/README.md)
- ` 纽约香草山MOS03`
 
 ### [欧洲各地爆发反战抗议活动](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

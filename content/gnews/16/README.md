@@ -2,10 +2,10 @@
 ---
 
 
-## 【乌克兰救援】妮可战友和美国非政府组织的成员讨论可能的合作
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2160659/)
+## BBC新闻：俄军继续入侵之际，帮助乌克兰孤儿逃离基辅
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2160700/)
 
-【乌克兰救援】03/11/2022 妮可战友和美国非政府组织人道主义难民救助组织的成员讨论双方未来在乌克兰救援行动中可能的合作
+03/12/2022 BBC新闻：俄军继续入侵之际，数万名由乌克兰国家监护的儿童急需离开这个国家
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
