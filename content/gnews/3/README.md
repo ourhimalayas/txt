@@ -2,26 +2,21 @@
 ---
 
 
-## 俄罗斯攻击乌克兰军事设施称大量国外武器在此储存
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2161442/)
+## 俄罗斯被停止SWIFT的结果是什么
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2161605/)
 
-撰稿：东京樱花团｜文小白
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯攻击乌克兰军事设施称大量国外武器在此储存.png)[*图片来源*](https://www3.nhk.or.jp/news/html/20220314/K10013530131_2203140542_2203140543_01_02.jpg)
+*发布：陶子*
 
-据NHK3月14日最新消息，随着俄罗斯继续对乌克兰进行军事攻击，乌克兰军方官员13日透露，乌克兰西部的“国际维和安全中心”的军事设施遭到俄罗斯军队轰炸，30多枚导弹被击中，造成至少35人死亡、134人受伤。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-俄罗斯国防部宣布使用了高精度远程导弹进行攻击，声称此军事设施“储存了大量从国外带来的武器和军事装备”。欧美对乌克兰的军事援助使俄罗斯非常警惕，攻击西部的军事设施被看成是俄罗斯为了牵制来自欧洲和美国的军事支持而采取的强烈手段。俄罗斯国防部还警告说，外国士兵在前往与俄罗斯交战区之前在这里进行了培训，“我们将继续消灭进入乌克兰的外国士兵。”
-
-在此情况下，乌克兰总统府顾问波德里亚克13日在推特上发文称，“俄罗斯已开始就俄乌停火谈判开展建设性讨论。”不过，俄方谋求乌克兰“中立化”和“非军事化”的原则并未改变，而且随着俄军加大攻击力度，谈判能否取得具体成果，局势仍不明朗。
-
-此外，据联合国难民事务高级专员公署（UNHCR）称，截至12日，在俄罗斯军事入侵乌克兰后，撤离的总人数已超过269万，其中，约165万人（约60%）已撤离到波兰、超过24万人被疏散到匈牙利、19万人撤离到斯洛伐克、10万人撤离到摩尔多瓦，8万人到罗马尼亚，另外有超过10万人已撤离到俄罗斯。
-
-消息来源：[**ロシア軍がウクライナ西部で空爆「外国からの武器保管」と主張**](https://www3.nhk.or.jp/news/html/20220314/k10013530131000.html?utm_int=news-international_contents_list-items_003)
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

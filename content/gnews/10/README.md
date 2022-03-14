@@ -2,48 +2,20 @@
 ---
 
 
-## 七哥停SWIFT观点迅速在社交媒体传播,我们自己差太远
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2161368/)
+## 25岁超模海莉•比伯（Hailey Bieber）“脑部血栓”住院
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2161517/)
 
-Youtube视频链接：[https://youtu.be/5Z16-W0UGOc](https://youtu.be/5Z16-W0UGOc)
+翻译 意大利达芬奇农场 小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-14-alle-10.12.03.png)图片来源：eventiavversinews.it
+25岁的超模海莉•比伯在她的Instagram上分享了她最近住院的消息。贾斯汀•比伯的缪斯女神刚刚从医院回家，她因脑血栓住院， 海莉在她的Instagram上发布了一条消息，解释了发生的事情， 并向所有人保证她情况很好。
 
-Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+海莉称这是她经历过的“ 最可怕的时刻之一”， 但她希望她的粉丝知道她现在在家，并且“很好”。“ 我非常感谢所有照顾我的优秀医生和护士！“ 她还补充说，“感谢所有带着美好祝愿和共同关心我的人，感谢所有的支持和爱。”她没有确切地分享她所经历的那种类似中风的症状， 也没有指出任何可能导致这种血栓的原因。
 
-**郭文贵先生：**在这种情况下你看看，特别是欧洲，SWIFT在清除这个事儿上你注意到了细节了吗？呼吁SWIFT清除的最多是什么媒体？社交媒体。主流媒体基本不敢说。七哥是唯一一个在这呼吁说你不搞这SWIFT你就是完蛋的，而且影响特别大。你去看看，你们没有注意到你上俄罗斯媒体、意大利媒体，很多媒体都在把我的话翻译迅速传播。也就是十几分钟，我这边直播，那边就大量传播。
+当然，很多人想知道这是否与冠状病毒有关， 但海莉从未就这个话题写过或陈述过任何观点。但是我们知道海莉参加了大都会艺术博物馆慈善晚宴，而妮琪•米娜 ( Nicki Minaj ) 却没有参加。因为只有接种新冠疫苗者才能参加。虽然没有证实她是否接种了疫苗，但这表明她已经接种了疫苗，对此我们并不是100%的确定。
 
-而且所有的欧联盟的人给我发信息说：“Miles，你刚才直播……”什么土耳其人都发信息，哇塞! 都收到了!你看他们多会用。——说一个人家Miles Guo都说了，你们根本就是孬种，你为啥不掐他SWIFT，掐他就完蛋了。再一个一万多亿的这个俄罗斯的富豪资产全在这个地中海，你为啥不采取措施?！
+原文链接：[https://www.eventiavversinews.it/la-top-model-hailey-bieber-25-anni-ha-sofferto-di-un-coagulo-di-sangue-al-cervello-ed-e-stata-ricoverata-in-ospedale/](https://www.eventiavversinews.it/la-top-model-hailey-bieber-25-anni-ha-sofferto-di-un-coagulo-di-sangue-al-cervello-ed-e-stata-ricoverata-in-ospedale/)
 
-你看他们的社交媒体用到什么极致，咱新中国联邦要好好学习。七哥，就是咱现在还没有战争呢，我直播完最起码得半小时、俩小时，甚至几个小时以后才出去。你跟人家不差远了吗。
-
-好好先生说我现在传播爆料革命是吧——推流。你推流是你的技术，推流是要传播信息。什么样的信息要马上传出去？好好兄弟。你长那么帅，你告诉我你什么信息传出去，重要的信息最快的时间传出去，而且是点到点到位你才牛。你传了个根本没有用的地方，你这打仗去了，对着天开炮，“嗒嗒嗒哒哒哒“你把枪给打弯了有什么用？
-
-人家乌克兰就很聪明，我不乱开枪，不像俄罗斯似的，傻兵对着天开枪，我打完了子弹。有用吗？人家乌克兰人，人家那小女孩带着“针刺式”导弹。
-
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+编辑、上传： Xiao  baige
 
  
 

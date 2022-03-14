@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 9:26 AM (UTC)`
+
+The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Rescue Team – 24h Hotline: +1 7206576776 or +1 719-224-4232 or +48 508-532-712 or +48 508-531-518 Telegram: t.me/UkraineRescue GETTR: https://gettr.com/user/UkraineRescue<br/>我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є першопричиною катастроф у світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
+![img](https://media.gettr.com/group20/origin/2022/03/14/05/8a24f47d-0852-31b6-91ab-92df7190ca3a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/14/2022 7:21 AM (UTC)`
 
 【Ukraine Rescue】03/13/22  NFSC‘s volunteer received a  kiss of gratitude from an Ukrainian lady<br/><br/>【乌克兰救援】03/13/22  新中国联邦义工小小酥获得乌克兰难民感激的亲吻<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,13 +154,6 @@ The first group of fellow fighters from the Italian Himalaya Farm, including Wen
 
 3/13/2022 Miles Guo: What are the implications of the Western sanctions imposed on the Russian oligarchs? Regardless of which passport you hold, once the CCP is sanctioned by the West, no one in China will be able to evade it. Only those citizens of the New Federal State of China who are determined to take down the CCP can save their lives and wealth. Being truthful and united is what makes us different from the CCP.<br/><br/>3/13/2022 文贵直播：俄罗斯寡头被西方制裁说明了什么？无论持哪国护照，一旦中共国被西方制裁，中国人谁也躲不过，只有灭共的新中国联邦人可以保命保财，唯真不破和团结让我们和中共不一样<br/>
 ![img](https://media.gettr.com/group18/getter/2022/03/13/22/e1f4327a-5ca8-78ae-8c2a-4e7ccffcbdeb/out.jpg)
-
----
-
-`@miles 3/13/2022 10:00 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-13
-![img](https://media.gettr.com/group18/origin/2022/03/13/21/20553cf7-cb05-5c5e-6cba-f333fc527b02/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

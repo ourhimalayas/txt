@@ -2,28 +2,16 @@
 ---
 
 
-## 苏州中小学等暂缓复课
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2160502/)
+## 台湾｜突发！再发生主力战机坠机事件 飞行员已获救
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2160474/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16472351501.png)
-据澎湃新闻3月14日报道，苏州市新冠肺炎疫情联防联控指挥部发布紧急通告：为确保师生身体健康和校园绝对安全，原计划3月14日复课的苏州全市中学初一、初二、高一、高二年级，小学一至六年级和中职院校、技工学校，及3月17日开学的全市幼儿园（含托育机构），暂缓复课。高三、初三年级在继续做好闭环管理，暂不停课。
+**撰文/ 港台前线｜发布日期/ 14/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-1-6.png)**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+14日，台东志航基地惊传幻象2000战机于飞行中失联，中校飞官于台东外海跳伞逃生，据稍早消息，飞官已由黑鹰直升机救起，人员平安、事故原因待厘清。空军司令部新闻稿表示，机号2017的单座幻象战机上午在台东外海执行战演训任务，飞官回报机械故障后，于上午11时26分跳伞、12时6分获救。
 
-自2022年开始，中共国内就开启了循环封城的模式，就像轮盘赌博机一样，不定时转到哪里，哪里就全市停摆，人员就地隔离，以至于中共国内很多人出门的时候身边就备好了衣物和药品，随时准备进入隔离状态。强制成人接种疫苗不算，学生、幼儿都必须接种疫苗，造成疫情越隔离越爆发。如果不解决病毒的源头问题，不要说暂缓复课，即使封闭学校，也不会阻止疫情爆发。
+今年一月，台湾嘉义外海才发生一起F16V战机坠海事故，3月又发生主力战机坠海事故。
 
-新闻参考链接：[https://www.thepaper.cn/newsDetail\_forward\_17104889](https://www.thepaper.cn/newsDetail_forward_17104889)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+來源｜[中華民國國防部](https://www.mnd.gov.tw/Publish.aspx?p=79647&amp;title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&amp;SelectStyle=%e6%96%b0%e8%81%9e%e7%a8%bf)
 
  
 
