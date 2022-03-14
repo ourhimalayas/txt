@@ -2,39 +2,35 @@
 ---
 
 
-## 有声|美国和北约紧急支援乌克兰防空导弹
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2158689/)
+## 沙利文称如果中国帮助俄罗斯逃避制裁将面临后果
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2158830/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国媒体3月11日报道，美国和北约正以极快的速度向乌克兰运送武器，包括高度敏感的便携式防空导弹系统。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-19.jpg)
-西方交付的这批武器，对于乌克兰来说至关重要，可以比美国情报部门预计的更有效、更猛烈的方式打击入侵的俄罗斯军队。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-尽管这些数量庞大的防空导弹，有落入西方敌人之手的风险。但一位美国国防部高级官员认为，现在值得冒险给乌克兰支援这种武器。因为乌克兰人能够在战斗中熟练地使用这种便携式防空导弹，有效打击俄罗斯侵略者。
-
-这位官员认为，给乌克兰支援高度便携的导弹，如“毒刺”地对空导弹可以帮助乌克兰赢得这场战争。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1131.jpg)
 
 
+图片来源：路透社
 
-文字版原文：[美国和北约紧急支援乌克兰防空导弹](https://gnews.org/zh-hans/2151995/)
+美国国家安全顾问杰克沙利文将于周一在罗马会见中国最高外交官杨洁篪，他警告北京，如果它帮助莫斯科逃避对乌克兰战争的全面制裁，它将“绝对”面临后果。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+英国《金融时报》和《华盛顿邮报》周日援引美国的话报道称，自 2 月 24 日开始入侵乌克兰以来，俄罗斯一直要求中国提供军事装备，这引发了白宫的担忧，即北京可能会破坏西方帮助乌克兰军队保卫国家的努力。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+当被问及这些报道时，中国驻华盛顿大使馆发言人刘鹏宇说：“我从未听说过。”
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+他说，中方认为乌克兰目前的局势“令人不安”，并补充说：“我们支持和鼓励一切有利于和平解决危机的努力。”
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+刘说：“应尽最大努力支持俄罗斯和乌克兰在困难的情况下继续谈判，以取得和平结果。”
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+沙利文周日告诉美国有线电视新闻网，华盛顿认为中国知道俄罗斯在入侵乌克兰之前计划在乌克兰采取一些行动，尽管北京可能不了解计划的全部内容。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+他说，现在华盛顿正在密切关注北京向俄罗斯提供经济或物质支持的程度，如果发生这种情况，将施加后果。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+沙利文说：“我们正在私下直接与北京沟通，大规模规避制裁或支持俄罗斯回避制裁肯定会产生后果。” “我们不会允许这种情况继续下去，不允许俄罗斯从世界任何国家、任何地方的绕过这些经济制裁， 而获得生命线。”
+
+链接：[https://www.reuters.com/world/white-house-adviser-discuss-russias-war-ukraine-with-chinas-top-diplomat-source-2022-03-13/](https://www.reuters.com/world/white-house-adviser-discuss-russias-war-ukraine-with-chinas-top-diplomat-source-2022-03-13/)
+
+编辑发表： Shuizhuyu
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/13/2022 11:58 PM (UTC)`
+
+3/13/2022 Miles Guo: The CCP will for sure invade Taiwan. As the CCP ignites the fuse of WWIII, the political infightings of the CCP will be in full swing. Many CCP cadres that you are familiar with will end up more miserable than Ceausescu. This year, the year of Ren Yin and the year of the water tiger, is indeed going to be the year of major changes.<br/><br/>3/13/2022 文贵直播：中共一定会打台湾，当它点燃了世界第三次大战火药桶的同时，中共内部政治大战全面开始，大家耳熟能详的很多人会比齐奥塞斯库还惨，今年是真正的寅虎大变之年！<br/>
+![img](https://media.gettr.com/group38/getter/2022/03/13/23/fa17542f-ec19-9990-61f5-bb5727cacc15/out.jpg)
+
+---
+
 `@miles 3/13/2022 11:12 PM (UTC)`
 
 2022.03.13 NFSC News  NFSC Presents A New Image for Global Chinese Throughout Their Ukraine Rescue； NFSC Using Luxury Tents As Rest Area For Ukraine Refugees
@@ -147,15 +154,6 @@ The Medyka port is a land port on the border between Poland and Ukraine. A large
 
 我们是消灭邪恶中国共产党的新中国人<br/>中国共产党是全世界灾难的根源<br/>只有消灭中国共产党才能拯救全人类<br/><br/>We are the NEW CHINESE who are taking down the EVIL Chinese Communist Party.<br/>The Chinese Communist Party is the root cause of all disasters globally. <br/>Taking down the Chinese Communist Party is the only way to save humanity!<br/><br/>Ми-нові китайці, які знищили злу Комуністичну партію Китаю.<br/>Комуністична партія Китаю є першопричиною катастроф у світі. <br/>Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group13/getter/2022/03/13/12/d9b83647-2de7-57a2-33d7-30be438a7bb0/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@blue_lotus 3/13/2022 11:29 AM (UTC)`
-
-蓝莲花农场倾情制作反战救援视频。<br/><br/>世界反战名曲“where have all the flowers gone " 本来是一首东欧民谣（一说乌克兰，一说俄罗斯）。1956年，美國極具傳奇性的民歌手彼德‧席格（Pete Seeger,b.1919）改寫了這首歌詞。 他反對侵略戰爭。从此这首歌影响了全世界各地一代又一代的人们。今天，这首曲子再次响起已经是2022年！！<br/><br/>时光流转，歌曲寄托我们的心愿。 同时把我们新中国联邦人热爱和平，反对战争，消灭中共的愿望都传达出去！！<br/><br/>花儿都去哪了？ 年轻的士兵都去哪了？坟墓朝向何方？......
-![img](https://media.gettr.com/group18/origin/2022/03/13/11/1b22ab4f-6fdb-bf9f-6cc9-e0c4e14f20a1/out.jpg)
 
 ---
 
