@@ -2,48 +2,37 @@
 ---
 
 
-## 中共假融资真骗钱的超限战
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2163263/)
+## 大直播后记：孙力军刘彦平被抓始末
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2163312/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-14-232023.jpg)
-那些试图通过投资阿里巴巴、百度和京东等中共国公司的美国存托凭证（ADR）来搭上中国共经济奇迹的人，最终陷入了一个有毒的破坏性混乱。沾沾自喜的买家，如果没有在纽约的一分钟内脱身，就被担架抬了出去。华尔街投资银行在这些美国存托凭证的上市过程中发挥了重要作用，赚取了大量的费用。而在中共国的公司则赚取了美国投资者在这些错误的ADR发行时为购买它们而付出的资金。
+整理：Rianna、铁血丹心
+编辑：Mohegayer K. Simon
 
-有超过200个中共国的ADR在美国证券交易所交易。去年，在这一切发生之前，它们的总市值仍然超过2万亿美元左右。今天是另一个日子，这些预托证券的沾手买家得到了他们的头。
-
-下面是这些天一些最大的美国存托凭证的暴跌举例。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/@H1RTGY1N3OZ6FMW.png)
 
 
-| 公司 | 代号 | **现价****$** | 今天价 | 最高跌幅 | ** ****高峰期** |
-| --- | --- | --- | --- | --- | --- |
-| Baidu | [[BIDU](https://wolfstreet.com/stock/bidu)] | 136.16 | -6.3% | **-59.9%** | 19-Feb-21 |
-| Alibaba | [[BABA](https://wolfstreet.com/stock/baba)] | 92.92 | -7.9% | **-70.9%** | 27-Oct-20 |
-| NetEase | [[NTES](https://wolfstreet.com/stock/ntes)] | 81.75 | -7.3% | **-38.3%** | 09-Feb-21 |
-| JD.com | [[JD](https://wolfstreet.com/stock/jd)] | 52.73 | -15.8% | **-51.3%** | 17-Feb-21 |
-| NIO | [[NIO](https://wolfstreet.com/stock/nio)] | 17.70 | -11.9% | **-73.6%** | 11-Jan-21 |
-| Trip.com | [[TCOM](https://wolfstreet.com/stock/tcom)] | 21.50 | -12.1% | **-64.3%** | 31-Jul-17 |
-| Pinduoduo | [PDD] | 35.75 | -17.5% | **-83.2%** | 16-Feb-21 |
-| ZTO Express | [ZTO] | 25.80 | -7.5% | **-33.2%** | 14-Jun-20 |
-| KE Holdings | [[BEKE](https://wolfstreet.com/stock/beke)] | 11.20 | -23.9% | **-85.4%** | 22-Feb-21 |
-| Li Auto | [LI] | 25.99 | -5.9% | **-45.5%** | 24-Nov-20 |
-| Didi | [[DIDI](https://wolfstreet.com/stock/didi)] | 3.40 | -10.6% | **-81.1%** | 01-Jul-21 |
+
+图片来源：墨尔本雅典娜农场设计组
 
 
-据以上的报道证实了很多中共企业长久性的维持高经济效应的能力是很低的，因为创新的能力和研究力度很薄弱。这些中共公司也没有如实的上报给美国证券公司的业绩报告和法律上的纠纷，导致投资者被误导，承受巨大的损失。
+记得孙力军当初跟我通话：“大哥，你娘就是我娘呀，你爹就是我爹呀，过年我去陪爹娘去，我得陪他俩”。我怎么听的像范伟说话一样呀，你听到这好笑，是吗？我娘现在死了到天堂了，他进监狱了，他从来没看过我爹我娘。孙力军是一个这样的烂仔流氓，贩卖钢铁的跟了孟建柱，帮助他老婆在洛杉矶看病，陪他老婆，还陪睡，说蒋姐那就是比我亲娘还亲呢，还说我天天晚上给她擦澡。你说蒋姐洗澡都得给她洗，你说这啥关系啊？文艺，你洗澡时候七哥愿意给你洗，双胞胎你俩一起，我也愿意给你俩洗啊。
 
-那些被华尔街投资人用了自己的退休基金投资了这些中共企业的美国战友们，该启动法律程序来追讨你们的损失。
+我们盘古有俩双胞胎说，郭先生我们两个愿意陪你一晚，感谢你对我们的栽培之恩。我们在盘古已经赚到了一千万啊，我说你们双胞胎为什么都嫁一个人呢？她说我们俩从小就要嫁一个人不会嫁两人的。很多人都奇怪，双胞胎在盘古的时候为啥卖卡有那么厉害？那些当官的到了盘古就说，哎我把你俩包了吧。人家说你先买卡吧，买完卡以后，就一句话，包你奶奶！这样一骗把那些老杂毛给骗懵了。我们这个双胞胎在盘古的时候是非常火非常有名的，那时孙力军到盘古的时候，一进去对所有人说，听说，这有仨双胞胎，都过来啊，你们给他仨双胞胎一人买100万卡。你知道当时的人中，北京有个超市的老板一个人当场1000万砸在那儿，1000万卡啊，双胞胎就这么管用啊。
 
-**如何向司法界举报单伟建？**
+孙力军现在在哪儿？在监狱！孟建柱曾经跟刘彦平说，郭文贵绝对是我见过中国男人中的男人，我相当的佩服。我给我们大领导建议，郭文贵和马云应该成为中国的象征性的国家副主席，就这么忽悠我。你看啊，文贵一旦回到国啊，那这个国家和党是要给他荣誉的。孙力军还说你爹是我爹你妈是我妈，我回去陪着爹妈过年，是吧？后来你看把我全家都给抓了，在我申请完政庇当天全部抓完。大家去想一想，相信共产党走进火葬场，七哥就是最好的例子，后来我母亲真的是走进了火葬场。
 
-一、打开律师网页：[https://www.top100highstakeslitigators.com/listing-categor…](https://www.top100highstakeslitigators.com/listing-category/high-stakes-litigation/)
+刘彦平被抓这个事情，刘彦平是好话说尽坏事做绝。前天我跟你七嫂说，我说你看看刘彦平被抓了，昨天我说人家毕竟把你和郭美送来（美国了）。你七嫂说你没有经历当场，他和他的秘书在香港拿着护照的时候，那个秘书看我的眼神，恨不得用眼睛把我吃了。他就不想给我，那个意思就告诉我，我早晚得弄死你，老实说他可从来没想帮咱，他是想把你骗死，把你骗回去。
 
-二、随机挑选296位律师的其中一位，根据律师邮箱地址，写举报信。可用英文，也可中文，或用软件翻译成英文，并发送至律师邮件。 **📢**
+资料来源：2022年3月13日文贵大直播
 
-就那么简单，为何不行动？
+发布：星谕
 
-**新闻来源：**[https://wolfstreet.com/2022/03/10/alibabas-u-s-listed-adr-plunged-below-first-day-closing-price-in-2014-golden-dragon-china-etf-plunged-below-its-2007-price/](https://wolfstreet.com/2022/03/10/alibabas-u-s-listed-adr-plunged-below-first-day-closing-price-in-2014-golden-dragon-china-etf-plunged-below-its-2007-price/)
-
-[https://gettr.com/post/pzv8s7bd4d](https://gettr.com/post/pzv8s7bd4d) – 感谢英喜的战友
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

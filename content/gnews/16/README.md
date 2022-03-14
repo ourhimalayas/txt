@@ -2,43 +2,28 @@
 ---
 
 
-## 有声|YouTube封锁俄罗斯官媒频道 范围扩及全球
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2163316/)
+## 秘翻在线：普京习近平合谋借俄乌战争创造有利条件向美国和北约施压
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2163422/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月12日国外媒体报道，在俄罗斯入侵乌克兰后，YouTube在欧洲地区封锁了俄罗斯国家资助媒体的相关频道。3月12日，Youtube再次宣布，将对俄罗斯国家资助媒体相关频道的封锁范围扩大到全球。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-13-%E4%B8%8B%E5%8D%881.46.32.png)
-YouTube表示，根据公司禁止否定、缩减或淡化有充足证据的暴力事件的规定，将移除违反政策的俄罗斯入侵乌克兰相关内容，同时也封锁YouTube上受国家资助的俄罗斯媒体频道，范围扩及全球，立即生效。
+**翻译：明澈**
 
-YouTube补充道，禁播的内容包括否认俄罗斯入侵乌克兰，或声称入侵是维和行动。但YouTube 拒绝具体说明在全球范围内哪些频道和多少频道被屏蔽，或者是否会恢复。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-14-233733.jpg)
+据《国会山》3月14日报道，众多时事观察家将俄罗斯入侵乌克兰定性为“普京为重振苏维埃光辉发动的战争”。这虽然符合俄罗斯的历史渊源，但这一推测是完全错误的。相较于来自俄罗斯的威胁，我们更应该把注意力集中在中共国，及其商业模式和对台湾的威胁上。
 
-YouTube的母公司谷歌此前已禁止俄罗斯广告商在Google全球产业与网络刊登广告。
+值得注意的是，俄罗斯和中共国除了将美国作为战略利益上共同的敌人，这两个国家在商业上还有着互补的需求。
 
-俄罗斯3月12日宣布，限制民众登陆社交媒体Instragram，并对其母公司Meta提出刑事诉讼，起诉Meta准许用户发表反对俄罗斯入侵的言论。
+据悉，中共国是世界上最大的移动电话、计算机、电子集成电路、太阳能二极管、半导体和汽车零部件出口国，同时也作为世界上最大的商品粮和自然资源进口国（包括石油和战略矿物），而恰恰俄罗斯和乌克兰都是这些资源的大量生产国。
 
-俄罗斯官方媒体称，包括应用商店和其他社交媒体服务在内的分销商对俄罗斯施加的限制是不正当的审查。
+为满足中共国的生产线和就业需求，中共国的商业模式要求必须在全球范围内不断地采购商品。而维持这一贸易模式的的运输路线，超过60%的货物运输都依靠着连接南海、太平洋和印度洋的马六甲海峡来完成。因此，若中共若想要避免攻台行动所带来的“海上封锁”，就必须要为商品粮和自然资源进口打通一条陆路通道。这时普京入侵乌克兰的这一举动就显得十分必要了。
 
+普京利用他的军事力量，通过和习近平勾兑，进一步扩大了双方利益捆绑的黑帮式商业关系，中共此前在乌克兰的巨额投资，料想未来中共通过俄罗斯将能谋取到更大的投资收益。这种中俄关系将中共国商业模式与普京雇佣军结合起来，形成了便利和商业的结合，即普京专门负责产生战争混乱。
 
+当普京控制了足够的石油资源、矿产和小麦，来确保习近平的陆路通道完全畅通时，即使中共对台湾发起佯攻，也足以使美国和北约动摇在乌克兰的立场。因此美国和北约将减轻对普京侵乌部队的压力，甚至当时机恰当时，中共武力犯台能够为利于普京的谈判解决方案创造先决条件。
 
-文字版原文：[YouTube封锁俄罗斯官媒频道 范围扩及全球](https://gnews.org/zh-hans/2158432/)
+据郭文贵先生3月14日直播爆料，普京和习近平的这一计谋正是中俄版的“围魏救赵”。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源：**[https://thehill.com/opinion/international/597943-putin-and-xi-look-to-beijing-for-the-real-reason-behind-the-ukraine](https://thehill.com/opinion/international/597943-putin-and-xi-look-to-beijing-for-the-real-reason-behind-the-ukraine)
 
  
 

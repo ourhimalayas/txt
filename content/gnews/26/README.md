@@ -2,43 +2,50 @@
 ---
 
 
-## 中共国本土日确诊中共病毒病例激增
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2163204/)
+## 文·贵天成——文贵先生谈“生物科技”（九）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2163254/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据媒体报道，3月13日， 中共国报告的新增本土中共病毒病例，是前一天的三倍多，达到两年来的最高水平。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-23.jpg)
-中共卫健委周日公布的数据显示，周六报告1938 例确诊病例，较前一天的 588 例急剧上升。目前不断增长的病例数使中共宣扬的“动态清零”政策捉衿见肘。
+整理：**BENJ1**
+编辑：**Kelly**
 
-中共国东北吉林省周六报告了1,412例新增本地病例，占全国总数的78％，远高于一天前的134例。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6a612dfb3ccf6e42-1.png)配图 雅典娜设计组～614
 
-据当地官媒报道，已经处于封锁状态的省会长春市，当局一直在进行大规模测试，并将一个展览中心变成一个拥有 1500 张床位的临时医院。
 
-广东深圳周六报告了 60 例确诊新本地病例，这是自 2020 年初，中共国首次报告爆发疫情以来，该市此类病例的每日最高增幅。深圳所有九区均已停止餐厅用餐，关闭一系列室内娱乐场所。
+郭文贵先生**2021**年**11**月**24**日直播
 
-当地官媒周日称，广东东莞的六名中共地方党政官员，因在中共病毒防控工作中表现不佳而被免职。
+中国人一定要问自己，这个国家能生产啥？你没有任何生产。美国有iPhone、美国的苹果电脑、苹果商店、美国的YouTube、美国的谷歌、美国的ElonMask、美国IBM电脑、美国的生物科技、美国的医药、美国的汽车、美国的飞机，随便一样拿出来是半个中国对外的产值。
 
-评论人士称，与西方国家近期大幅降低的疫情相比，一直吹嘘抗疫全球第一的中共国，多地的新增病例突然爆升，其实是疫苗灾难的开始。
+郭文贵先生**2021**年**12**月**5**日直播
 
-参考链接：
-1. [China’s daily cases of symptomatic COVID more than triple](https://www.reuters.com/business/healthcare-pharmaceuticals/china-daily-local-symptomatic-covid-cases-more-than-triple-2022-03-13/)
-2.[截至3月12日24时新型冠状病毒肺炎疫情最新情况](http://www.nhc.gov.cn/xcs/yqtb/202203/1e2807036ce7462ca6cc265f2fbb38b8.shtml)
+生物科技，那是人类未来的必然，你挡不住的，只是看有多大本事能hold住。好比过去坐牛车的突然发现有人开汽车就受不了了，弄得昏天黑地的，就觉得不应该有汽车出现，牛车多舒服啊，而且我坐得是轿。不管你多么大的地主，坐的多大的轿，坐的多豪华的牛车，最终必然被汽车淘汰。汽车的到来就预示着飞机的到来，飞机到来就预示着超音速到来，有超音速就有外太空飞机，这是个必然。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+郭文贵先生**2022**年**1**月**7**日直播
 
-总编：文真
-编辑：Jack Li文阳   
-审核：文真
-校正/发稿：Fei797
+大家记住，现在的量子电脑、生物科技会把你大脑所有的经历记载下来，你做过的梦展现下来，这就是科技，这就是伟大。就像数字货币一样，那些怀疑数字货币的人，脑子都是狗屎都不如的人。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生**2022**年**1**月**21**日直播
+
+硬钱包，过去是拿硬盘装的，现在硬钱包可以设计到什么程度？可以跟现在的量子电脑技术连在一起，生物科技连在一起，视网膜、心脏脉搏跳动、甚至你的手纹，脚纹，不拿手纹可以拿脚纹，甚至把屁当成你的特色作为识别，屁也是唯一的，不开玩笑啊。你可以设定任何一种特别的生物识别。
+
+郭文贵先生**2022**年**2**月**4**日直播
+
+你们真没有意识到，美国经济最可怕是量子电脑、生物电脑、生物科技、太空科技，然后是新型材料。人类现在面临所有的问题，就是你的科技发展。第一，必须有新型材料，Elon Musk就把太空火箭的材料搞明白了。中国连个飞机发动机也造不了，所谓太行发动机就连最基本的耐热性材料都解决不了，永远不可能造出大飞机。新的材料，美国和欧洲一定是飞跃性的。
+
+第二，就是生物科技。现在这个冠状病、，疫苗灾难、未来人类换肝、换肺、换脑子、换什么的，想换换，是吧？这就是干细胞移植技术，生物科技绝对是改变（人类）。
+
+第三，量子电脑，IBM已经公布出来了，2CM已经出来了，这是啥概念？战友们，人家在头发丝上刻出上百亿的代码。共产党现在是啥？是拿一个大鼠标器写字写不了。人家是在头发丝上刻出上百亿的代码，就这么大的差距！
+
+资料来源：郭先生GTV和盖特直播视频
+
+发布：星谕
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

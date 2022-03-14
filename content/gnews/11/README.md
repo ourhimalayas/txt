@@ -2,27 +2,39 @@
 ---
 
 
-## 首个乌克兰相扑选手在春季场白星起跑，馆内鼓掌欢呼
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2163352/)
+## 有声|俄罗斯第三名将军在乌克兰被击毙
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2163476/)
 
-撰稿：东京樱花团/ haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-154.png)
-[图片来源](https://news.yahoo.co.jp/articles/a2f93100163886ab08a845abd75fcf876024013b/images/000)
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月12日，国外媒体报道，一位西方国家官员称，俄罗斯将军柯列斯尼可夫少将被乌克兰部队击毙。这是俄罗斯入侵乌克兰以来第三名被乌克兰部队击毙的俄罗斯将军。俄罗斯国防部未就此事作出及时回应。国防部网站则显示，柯列斯尼可夫现任俄罗斯东部军区司令。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1403.png)
+该官员称，俄罗斯入侵乌克兰刚刚两周的时间，被杀将领数量已经跟俄罗斯在整个叙利亚冲突期间一样多。
 
-3月14日，乌克兰首任相扑大力士、西幕下第17排序，名狮子，25岁，本名索科洛斯基·谢尔吉，入间部屋所属，在大阪浪速区府立竞技场，举行的春季比赛的第二天，展开了首场角逐。
+乌克兰军方在推特上确认了该高级军官被消灭的消息，并表示：“俄罗斯侵略者会在乌克兰失去更多军官。”
 
-当天，他将迎战东幕下第17排序的丰翔（境川部屋）。气势磅礴的狮子在交锋中2次与对方对峙，第3次成功。将对方侧身摔倒，投倒得非常痛快。祖国受到了俄罗斯的侵略，引起了全世界的关注。在喊他的名字，出身“乌克兰”时，馆内相扑迷们为他鼓起响亮的掌声。胜利之后，掌声也更加响亮起来。结束后他并没有接受采访。
+据报道，目前乌克兰的顽强抵抗以及天气寒冷和物资不足的问题使俄罗斯部队士气低落。
 
-狮子于1997年1月16日出生在乌克兰扎波里贾州梅利托波里市，从5岁开始接触摔跤，从15岁开始参加摔跤比赛。业余时期在世界青少年锦标赛上连续3场比赛获得重量级第3名，2016年（蒙古）在世界相扑锦标赛上获得重量级第3名等，取得了不错的成绩。2018年来到日本，进入有外国人名额的入间部屋，并于2020年春天首次踏入沙场。以超过1米90的完美身材，从出道开始连续7个场地都取得了胜利，一举登上了舞台前几名。去年秋天，在东幕下第8排序的赛场上中途停赛，经历了首次失败，之后连续2个赛场上胜出，现在迎来了第17排序赛场。
 
-信息来源：
 
-[母国に届け！ウクライナ初の大相撲力士、春場所白星発進　館内で大きな拍手](https://news.yahoo.co.jp/articles/401734883b26da368f7ebb843109395e84cca0f4)
+文字版原文：[俄罗斯第三名将军在乌克兰被击毙](https://gnews.org/zh-hans/2156464/)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
