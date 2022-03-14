@@ -2,12 +2,23 @@
 ---
 
 
-## 【乌克兰救援】03/13/2022  邪恶的中国共产党是全世界所有灾难的根源
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2163311/)
+## Epidemic prevention in Shanghai! The long-distance bus terminal is closed. Proof of nucleic acid required when leaving and return to Shanghai
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2163332/)
 
-【乌克兰救援】03/13/2022  妮可战友在接受波兰独立制片人采访时强调中国共产党是全世界所有灾难的根源。而我们，新中国联邦的新中国人正致力于推翻共产党以拯救人类
+Translated by：TokyoSakura/英翻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-103.jpg)
+图片来源于本文链接
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+As the COVID-19 outbreak continues in Shanghai, China, officials in Shanghai issued enhanced preventive and control measures late at night on March 12, requiring people not to leave Shanghai unless necessary. And those leaving Shanghai to have a nucleic acid test report within 48 hours. The Shanghai long-distance bus terminal is closed from today.
+
+原文链接：
+
+**[上海嚴防疫情！長途汽車客運總站停運　離返滬須持核酸證明](https://www.setn.com/News.aspx?NewsID=1084225)**
+
+**Edited by:**TokyoSakura/英翻组
+Posted by:TokyoSakura/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+
 
  
 

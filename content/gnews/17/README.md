@@ -2,27 +2,29 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月12日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2163558/)
+## 俄罗斯入侵后向中共国要求支援 美国高官提起警戒
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2163586/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV-1.jpg)
+翻译：宫米叶
 
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年3月12日晚](https://gnews.org/zh-hans/2154678/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-14-170239.jpg)图片来源：news.yahoo.co.jp
 
-音频处理：Fei797
-发稿：Fei797
+多家美国媒体13日报道，按照美国政府高级官员所说，俄罗斯在入侵乌克兰后曾请求中共国提供军事和经济援助。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+美国总统助理苏利文(负责国家安全)将于14日在罗马与中国外交负责人杨洁篪举行会谈，预计他将表现出不容忍对俄支援的态度。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据美国媒体报道，俄罗斯在2月24日开始全面入侵乌克兰后，委托中国提供军事装备，并寻求额外的经济支持，缓解日美欧等国制裁的影响。中共国的反应并不明确，但美国对中俄之间进一步靠近加强警惕。
+
+苏利文13日露面CNN电视台，强调“正在密切关注中共国给俄罗斯提供了多大程度物力上、经济上的支持。”他说：“我告诉中国政府，任何国家都不允许对俄罗斯填补损失，美国也不会袖手旁观。”
+
+新闻 来源：[news.yahoo.co.jp][ロシア、侵攻後中国に支援要請　米警戒、高官協議で提起へ](https://news.yahoo.co.jp/articles/f109d1f7e5485221222e5c9db62a380e565e79b2)
+
+* * *
+
+*审核：BryanW 
+校对：天天
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-9.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,24 @@
 ---
 
 
-## 秘翻在线：普京习近平合谋借俄乌战争创造有利条件向美国和北约施压
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2163422/)
+## NaomiWolf博士详细介绍了辉瑞公司的文件，她聘请161名律师面对“非同寻常的罪行”
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2163465/)
 
-**翻译：明澈**
+#### 翻译                  意大利达芬奇农场                               小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-14-alle-16.37.24.png)图片来源：eventiavversinews.it
+“ 我们开始看到辉瑞到底对美国人民和世界人民做了什么。”
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-14-233733.jpg)
-据《国会山》3月14日报道，众多时事观察家将俄罗斯入侵乌克兰定性为“普京为重振苏维埃光辉发动的战争”。这虽然符合俄罗斯的历史渊源，但这一推测是完全错误的。相较于来自俄罗斯的威胁，我们更应该把注意力集中在中共国，及其商业模式和对台湾的威胁上。
+Naomi Wolf 博士最近出现在史蒂夫•班农的节目中，回顾了从辉瑞公司最近发布的新冠疫苗试验的文件中呈现出的令人不安的发现。沃尔夫博士将聘请一支庞大的律师团队， 他们已被征召审查辉瑞公司的文件，以便为这些被新冠疫苗伤害的人伸张正义。
 
-值得注意的是，俄罗斯和中共国除了将美国作为战略利益上共同的敌人，这两个国家在商业上还有着互补的需求。
+“有很多东西要呈现出来。我们需要161名律师， 因为这些罪行的规模非常大， 我们开始看到辉瑞对美国人民和世界各地人民的所作所为。”
 
-据悉，中共国是世界上最大的移动电话、计算机、电子集成电路、太阳能二极管、半导体和汽车零部件出口国，同时也作为世界上最大的商品粮和自然资源进口国（包括石油和战略矿物），而恰恰俄罗斯和乌克兰都是这些资源的大量生产国。
+她接着说，她为自己和其他人在寻求真理和正义的过程中获得的巨大帮助感到高兴。她补充说， 到目前为止，他们在审查这些辉瑞文件时所检查出的数据也令她感到震惊。
 
-为满足中共国的生产线和就业需求，中共国的商业模式要求必须在全球范围内不断地采购商品。而维持这一贸易模式的的运输路线，超过60%的货物运输都依靠着连接南海、太平洋和印度洋的马六甲海峡来完成。因此，若中共若想要避免攻台行动所带来的“海上封锁”，就必须要为商品粮和自然资源进口打通一条陆路通道。这时普京入侵乌克兰的这一举动就显得十分必要了。
+“辉瑞对大鼠和小鼠进行了多项研究……他们正在研究脂质纳米颗粒， 这项研究会导致什么结果？这就是BioTech如此兴奋的地方。这些是著名的脂质纳米颗粒， 是通过mRNA疫苗放到您体内的坚硬的脂肪外壳。BioTech 对这项技术感到非常兴奋。”
 
-普京利用他的军事力量，通过和习近平勾兑，进一步扩大了双方利益捆绑的黑帮式商业关系，中共此前在乌克兰的巨额投资，料想未来中共通过俄罗斯将能谋取到更大的投资收益。这种中俄关系将中共国商业模式与普京雇佣军结合起来，形成了便利和商业的结合，即普京专门负责产生战争混乱。
+原文链接：[https://www.eventiavversinews.it/la-dottoressa-naomi-wolf-dettaglia-i-documenti-di-pfizer-ha-arruolato-161-avvocati-per-affrontare-crimini-di-proporzioni-straordinarie-video/](https://www.eventiavversinews.it/la-dottoressa-naomi-wolf-dettaglia-i-documenti-di-pfizer-ha-arruolato-161-avvocati-per-affrontare-crimini-di-proporzioni-straordinarie-video/)
 
-当普京控制了足够的石油资源、矿产和小麦，来确保习近平的陆路通道完全畅通时，即使中共对台湾发起佯攻，也足以使美国和北约动摇在乌克兰的立场。因此美国和北约将减轻对普京侵乌部队的压力，甚至当时机恰当时，中共武力犯台能够为利于普京的谈判解决方案创造先决条件。
-
-据郭文贵先生3月14日直播爆料，普京和习近平的这一计谋正是中俄版的“围魏救赵”。
-
-**新闻来源：**[https://thehill.com/opinion/international/597943-putin-and-xi-look-to-beijing-for-the-real-reason-behind-the-ukraine](https://thehill.com/opinion/international/597943-putin-and-xi-look-to-beijing-for-the-real-reason-behind-the-ukraine)
+编辑、上传： Xiao   baige
 
  
 
