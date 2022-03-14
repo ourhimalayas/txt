@@ -2,25 +2,31 @@
 ---
 
 
-## 定义习近平、中共国和 21 世纪的时刻
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2165149/)
+## 今日盖特大V推荐 — 蒂姆·普尔（Tim Pool）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2165225/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/azz.jpg)
+盖特链接：[https://gettr.com/user/timcast](https://gettr.com/user/timcast)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/DWO-Teaser-XiJinping-biden-aw.jpg)
+***蒂姆·普尔自述：***
 
+记者, 不满的自由主义者、评论员、电影制作人、滑板手、音乐家 、前Fusion公司副总
+![](https://assets.gnews.org/wp-content/uploads/2022/03/cczz.jpg)
+图片来源：网络
 
-图片来源：法新社
+蒂姆·普尔简介：
 
-到目前为止，北京方面还没有对乌克兰战争表明明确的立场。现在，美国情报部门透露，普京已向他的共产主义盟友寻求武器支持。这一策略旨在敦促中共国做出重大承诺。
+蒂姆·普尔（Timothy Daniel Pool生于1986年3月9日）是美国著名记者、YouTuber、播客主持人和政治评论员。
 
-美国希望敦促中共国改变其在乌克兰战争中的亲俄路线。为了做到这一点，他们正在使用他们也用来对付莫斯科的策略：尽早披露情报，以破坏对方的努力并影响政治领导层的决策过程。据美国媒体援引美国政府消息人士的话称，据说俄罗斯已要求中共国支持其战争努力。
+蒂姆·普尔最初以直播2011年占领华尔街抗议活动而闻名。2013年加入副媒体集团（Vice Media），2014年加入融合电视（Fusion TV）担任媒体创新总监和高级记者。之后独自在YouTube等平台工作。
 
-事实上，讨好中共国已经成为这场战争中的第二条外交战线。美国人在阻止中共国支持俄罗斯方面投入了大量精力。对中共国来说，对俄罗斯的承诺不仅会产生严重的经济后果。
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-🔗 [https://www.welt.de/politik/ausland/plus237534235/Pekings-Waffen-fuer-Moskau-Entscheidender-Moment-fuer-Xi-China-und-das-21-Jahrhundert.html](https://www.welt.de/politik/ausland/plus237534235/Pekings-Waffen-fuer-Moskau-Entscheidender-Moment-fuer-Xi-China-und-das-21-Jahrhundert.html)
-
-编辑发表： Shuizhuyu
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

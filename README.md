@@ -15,97 +15,97 @@
 
 ---
 
-### [03/13/2022 文贵爆料： SWIFT的规则 以及导致被SWIFT系统踢出的原因](/content/gnews/1/README.md)
+### [20220313郭文贵大直播 ：中共被踢出SWIFT的结局是什么](/content/gnews/1/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220313郭文贵大直播 ：世界上最漂亮的飞机 -空客319](/content/gnews/2/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [大直播后记：农场不团结搞小圈子](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [20220313郭文贵大直播 ：将来财产最安全的就是灭共的投资G系列的新中国联邦人](/content/gnews/4/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [大直播后记：Nicole在乌克兰救援前线最新连线](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [03/13/2022 文贵爆料： SWIFT的规则 以及导致被SWIFT系统踢出的原因](/content/gnews/6/README.md)
  ` 秘密翻译组-原创组`
 
-### [今日盖特大V推荐 — 凯莉·麦克纳尼（Kayleigh McEnany）](/content/gnews/2/README.md)
+### [今日盖特大V推荐 — 凯莉·麦克纳尼（Kayleigh McEnany）](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [女子打断俄罗斯电视新闻广播抗议战争](/content/gnews/3/README.md)
+### [疫情持续发酵，中共加强管控](/content/gnews/8/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [女子打断俄罗斯电视新闻广播抗议战争](/content/gnews/9/README.md)
  ` Shuizhuyu`
 
-### [中共阻挠新中国联邦救援信息的传播](/content/gnews/4/README.md)
+### [中共阻挠新中国联邦救援信息的传播](/content/gnews/10/README.md)
  ` 扬帆枫叶快讯`
 
-### [法治基金乌克兰救援行动成效显著](/content/gnews/5/README.md)
+### [法治基金乌克兰救援行动成效显著](/content/gnews/11/README.md)
  ` 扬帆枫叶快讯`
 
-### [澳大利亚宣布对俄罗斯实施新制裁](/content/gnews/6/README.md)
+### [澳大利亚宣布对俄罗斯实施新制裁](/content/gnews/12/README.md)
  ` 日本東京方舟農場`
 
-### [【粤语配音】2022年3月14日：新中国联邦是中国人民当家作主的推动者](/content/gnews/7/README.md)
+### [【粤语配音】2022年3月14日：新中国联邦是中国人民当家作主的推动者](/content/gnews/13/README.md)
  ` MOS香港部`
 
-### [星链系统助力法治基金乌克兰救援行动](/content/gnews/8/README.md)
+### [星链系统助力法治基金乌克兰救援行动](/content/gnews/14/README.md)
  ` 扬帆枫叶快讯`
 
-### [今日盖特大V推荐 — 蒂姆·普尔（Tim Pool）](/content/gnews/9/README.md)
+### [今日盖特大V推荐 — 蒂姆·普尔（Tim Pool）](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [乌克兰救援行动 3月14 日采访救援前线小小酥战友](/content/gnews/10/README.md)
+### [乌克兰救援行动 3月14 日采访救援前线小小酥战友](/content/gnews/16/README.md)
  ` 蓝莲花农场`
 
-### [来自仍在乌克兰的娜塔莉亚的最新消息](/content/gnews/11/README.md)
+### [来自仍在乌克兰的娜塔莉亚的最新消息](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [伊朗导弹袭击美驻伊拉克新建大使馆区](/content/gnews/12/README.md)
- ` 扬帆枫叶快讯`
-
-### [中共无耻阻挠新中国联邦救援信息的传播](/content/gnews/13/README.md)
+### [中共无耻阻挠新中国联邦救援信息的传播](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [俄军猛烈空袭乌克兰西部军事基地](/content/gnews/14/README.md)
- ` 扬帆枫叶快讯`
-
-### [定义习近平、中共国和 21 世纪的时刻](/content/gnews/15/README.md)
+### [定义习近平、中共国和 21 世纪的时刻](/content/gnews/19/README.md)
  ` Shuizhuyu`
 
-### [DC大中华时事：中共从市长到卫健委主任，本轮疫情60多人被问责](/content/gnews/16/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [每日快报：中共国儿童接种中共国疫苗后被诊断出白血病](/content/gnews/17/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [秘翻在线: 深圳封锁令对全球供应链造成新打击](/content/gnews/18/README.md)
+### [秘翻在线: 深圳封锁令对全球供应链造成新打击](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国警告中共国不要在乌克兰问题上帮助俄罗斯](/content/gnews/19/README.md)
+### [美国警告中共国不要在乌克兰问题上帮助俄罗斯](/content/gnews/21/README.md)
  ` Shuizhuyu`
 
-### [中共对抗整个西方文明世界，将面临被剔除出SWIFT 系统的严重灾难](/content/gnews/20/README.md)
+### [中共对抗整个西方文明世界，将面临被剔除出SWIFT 系统的严重灾难](/content/gnews/22/README.md)
  ` YALUN 亚伦`
 
-### [英国科学家表示 中共病毒PCR检测有严重缺陷](/content/gnews/21/README.md)
+### [英国科学家表示 中共病毒PCR检测有严重缺陷](/content/gnews/23/README.md)
  ` 蓝莲花农场`
 
-### [观察：北约和俄罗斯直接开战的风险正在快速上升（下）](/content/gnews/22/README.md)
+### [观察：北约和俄罗斯直接开战的风险正在快速上升（下）](/content/gnews/24/README.md)
  ` 蓝莲花农场`
 
-### [联合国秘书长警告俄在提高核冲突警戒级别](/content/gnews/23/README.md)
+### [联合国秘书长警告俄在提高核冲突警戒级别](/content/gnews/25/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [秘翻在线: 辉瑞总裁“推销”第四针疫苗](/content/gnews/24/README.md)
+### [秘翻在线: 辉瑞总裁“推销”第四针疫苗](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美保罗参议员的福奇修正案将终结健康独裁者](/content/gnews/25/README.md)
+### [美保罗参议员的福奇修正案将终结健康独裁者](/content/gnews/27/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [五月花简报（03/14/2022）](/content/gnews/26/README.md)
+### [五月花简报（03/14/2022）](/content/gnews/28/README.md)
  ` mayflowertranslate`
 
-### [新中国联邦乌克兰前线救援咖啡厅提供服务](/content/gnews/27/README.md)
+### [新中国联邦乌克兰前线救援咖啡厅提供服务](/content/gnews/29/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [年轻的妈妈突然死亡，是因为新冠疫苗吗？](/content/gnews/28/README.md)
+### [年轻的妈妈突然死亡，是因为新冠疫苗吗？](/content/gnews/30/README.md)
  ` xiaobaige`
 
-### [新中国联邦的战地记者Nicole，为您的视频点赞](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [乌克兰救援行动 波兰独立制片人祝愿新中国人民灭共成功](/content/gnews/30/README.md)
- ` 蓝莲花农场`
-
-### [新中国联邦的豪华帐篷成了救援基地的国际会议厅](/content/gnews/31/README.md)
+### [新中国联邦的战地记者Nicole，为您的视频点赞](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [中共阻挠新中国联邦救援信息的传播](/content/gnews/32/README.md)

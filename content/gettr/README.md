@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 11:02 PM (UTC)`
+
+2022.03.14 NFSC News  The New Federal State of China’s Humanitarian Rescue Mission； AFP War Correspondent On the NFSC & ROLF Rescue Center 
+![img](https://media.gettr.com/group13/origin/2022/03/14/23/59e902ca-8625-380f-4b3e-b1dd5b7d7373/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 3/14/2022 10:59 PM (UTC)`
+
+3/13/2022 Miles Guo: All the countries sanctioned by SWIFT were authoritarian regimes; The rules of SWIFT were set by all Catholic and Christian countries around the world; exclusion from SWIFT is not a decision made by the US alone, rather the decision is made with consensus under a consistent guideline.<br/><br/>3/13/2022 文贵直播: SWIFT制裁的都是独裁的国家，其规则由全世界半数以上人口的基督教和天主教国家共同制定的！被踢出SWIFT系统并非美国说了算，它是一致的标准，一致的决策和共同的决定的结果！<br/>
+![img](https://media.gettr.com/group42/getter/2022/03/14/22/3baf4a40-93df-df9f-6562-20b496e2500a/out.jpg)
+
+---
+
 `@miles 3/14/2022 10:43 PM (UTC)`
 
 Mr. Miles Guo accurately predicted the ultimate end of the mandatory vaccines and the fate of the big vaccine companies<br/><br/>郭文贵先生准确预言停止强制疫苗和疫苗大公司的最终结局<br/>
@@ -143,22 +157,6 @@ The war pianist just moved the piano right next to the tents provided by the ROL
 
 3月14号：这才是真正的钢琴艺术家．音乐家。这位德国的大卫先生．在乌克兰救援前线．用他的钢琴一直在拯救．安抚在乌克兰战地逃出来的妇女儿童的心灵！他太伟大了……他还为我们的新中国联邦所有战友们……弹唱了新中国联邦的国歌，感谢了，他是我们中国联邦人的最好的朋友之一，永远的朋友。喜马拉雅战地现场演奏版！
 ![img](https://media.gettr.com/group28/getter/2022/03/14/15/cde52e3b-78fc-b79a-a97b-115ca4563a0c/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@miles 3/14/2022 1:24 PM (UTC)`
-
-<br/>3月14号：尊敬的战友们好，新中国联邦人．正在以消灭中国共产党……追求国际正义，人道．人权的新亚洲人……广泛得到国际的好评和尊重，我们要为亚洲人发声，我们要让全世界知道，我们是消灭中国共产党了中国人！正义的亚洲人，在前线参与乌克兰战场救援的兄弟姐妹们，你们是英雄，你们所做的一切都在影响和改变了中国人，和亚洲人在世界的形象，文贵在此向你们鞠躬致谢！
-![img](https://media.gettr.com/group28/getter/2022/03/14/13/778856ca-597a-d978-5a89-2f875bbe62b6/out.jpg)
-
----
-
-`@miles 3/14/2022 1:24 PM (UTC)`
-
-<br/>3月14号：尊敬的战友们好，新中国联邦人．正在以消灭中国共产党……追求国际正义，人道．人权的新亚洲人……广泛得到国际的好评和尊重，我们要为亚洲人发声，我们要让全世界知道，我们是消灭中国共产党了中国人！正义的亚洲人，在前线参与乌克兰战场救援的兄弟姐妹们，你们是英雄，你们所做的一切都在影响和改变了中国人，和亚洲人在世界的形象，文贵在此向你们鞠躬致谢！
-![img](https://media.gettr.com/group28/getter/2022/03/14/13/778856ca-597a-d978-5a89-2f875bbe62b6/out.jpg)
 
 ---
 

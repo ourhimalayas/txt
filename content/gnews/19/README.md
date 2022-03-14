@@ -2,33 +2,23 @@
 ---
 
 
-## 美国警告中共国不要在乌克兰问题上帮助俄罗斯
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2164939/)
+## 定义习近平、中共国和 21 世纪的时刻
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2165149/)
 
 翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0059.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/DWO-Teaser-XiJinping-biden-aw.jpg)
 
 
-图片来源：路透社
+图片来源：法新社
 
-自入侵的第一周以来，这是自第二次世界大战以来对欧洲国家的最大袭击，东南港口已被军队包围，数十万人没有食物或水。
+到目前为止，北京方面还没有对乌克兰战争表明明确的立场。现在，美国情报部门透露，普京已向他的共产主义盟友寻求武器支持。这一策略旨在敦促中共国做出重大承诺。
 
-自 2 月 24 日袭击事件开始以来，俄罗斯尚未占领乌克兰 10 个最大城市中的任何一个，克里姆林宫称这次袭击为“特殊军事行动”，旨在使其邻国非军事化和“去纳粹化”。
+美国希望敦促中共国改变其在乌克兰战争中的亲俄路线。为了做到这一点，他们正在使用他们也用来对付莫斯科的策略：尽早披露情报，以破坏对方的努力并影响政治领导层的决策过程。据美国媒体援引美国政府消息人士的话称，据说俄罗斯已要求中共国支持其战争努力。
 
-据美国官员称，俄罗斯已要求北京提供军事和经济援助。
+事实上，讨好中共国已经成为这场战争中的第二条外交战线。美国人在阻止中共国支持俄罗斯方面投入了大量精力。对中共国来说，对俄罗斯的承诺不仅会产生严重的经济后果。
 
-莫斯科否认这一点，称其拥有足够的军事资源来实现其所有目标。中共国外交部将有关援助的报道称为“虚假信息”。
-
-在国家安全顾问杰克沙利文在罗马会见中国最高外交官杨洁篪时，一名美国官员表示，中共国已表示愿意向俄罗斯提供援助。
-
-美国国务院发言人内德·普赖斯周一对记者说：“我们已经与北京非常清楚地沟通，我们不会袖手旁观。” “我们不会允许任何国家补偿俄罗斯的损失。”
-
-西方正在权衡如何应对来自中国、全球最大出口国和美国第一大外国商品供应商的任何参与。乌克兰危机也引发了自治台湾的担忧，北京发誓要收回台湾。
-
-俄罗斯国家电视台是数百万俄罗斯人的主要新闻来源，并密切关注克里姆林宫的路线，但周一，在第一频道的主要新闻节目期间，一个演播室发生了罕见的反战抗议活动。一个女人举着一个英文和俄文的标语：“NO WAR。停止战争。不要相信宣传。他们在这里骗你。”
-
-🔗 [https://www.reuters.com/world/uk/diplomacy-efforts-step-up-after-russian-strike-ukraine-base-2022-03-14/](https://www.reuters.com/world/uk/diplomacy-efforts-step-up-after-russian-strike-ukraine-base-2022-03-14/)
+🔗 [https://www.welt.de/politik/ausland/plus237534235/Pekings-Waffen-fuer-Moskau-Entscheidender-Moment-fuer-Xi-China-und-das-21-Jahrhundert.html](https://www.welt.de/politik/ausland/plus237534235/Pekings-Waffen-fuer-Moskau-Entscheidender-Moment-fuer-Xi-China-und-das-21-Jahrhundert.html)
 
 编辑发表： Shuizhuyu
 
