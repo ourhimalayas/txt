@@ -2,22 +2,12 @@
 ---
 
 
-## 郭文贵盖特音频2022.03.12
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2160361/)
+## 【乌克兰救援】非政府组织“难民直接援助”愿意与新中国联邦合作进行乌克兰救助工作
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2160463/)
 
-音频提供者:左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/03/out-8.jpg)
-### 视频链接：
+【乌克兰救援】03/11/2022 美国非政府组织“难民直接援助”的三位科索沃员工表示很惊讶看到中国面孔出现在乌克兰援救现场。他们对新中国联邦为乌克兰救援所做的工作表示钦佩，并愿意为新中国联邦提供更多帮助与合作
 
-[https://www.gettr.com/post/pzmei76928](https://www.gettr.com/post/pzmei76928)
-
-### 音频链接：
-
-
-
-
-
-编辑发布：闪电训练
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

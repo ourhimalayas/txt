@@ -2,76 +2,29 @@
 ---
 
 
-## 马乔丽·泰勒·格林：川普总统是对的
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2160383/)
+## 视频|俄罗斯入侵严重影响乌克兰小麦收成
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2160480/)
 
-众议员马乔丽·泰勒·格林： 川普总统是对的。 拜登在阿富汗的尴尬失败向全世界展示了他的软弱。 这就是为什么，普京入侵乌克兰，伊朗向我们在伊拉克的领事馆发射导弹，而 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 占据主导地位。 炒掉软弱无能之人。 弹劾！ 【转RSBN推文： “阿富汗的行动是我们国家历史上最尴尬的时刻。” 川普总统在今晚的集会之前与我们的主持人布莱恩·格伦[@brianglenntv](https://gettr.com/user/brianglenntv) 进行了交谈！（附采访川普总统的视频）】
+制作：香草山视频部
 
+据外媒报道，俄罗斯入侵乌克兰正值春季小麦发芽期，若不能及时施肥，将危及乌克兰数百万人的小麦需求。乌克兰农民表示他们现在缺乏化肥、杀虫剂和除草剂，同时他们也无法获得足够的燃料来为他们的设备提供动力。
 
+谷物经纪公司驻基辅的业务发展经理内罗巴表示，若现在不施化肥，乌克兰的冬小麦产量可能比近年来下降 15%。但一些农民警称，实际情况可能会更糟。因为近年来，黎巴嫩、埃及、也门等国家的粮食也开始依赖乌克兰小麦。俄乌战争导致小麦价格飞涨，这个月麦价已比上个月上涨了 50%。
 
-> President Trump is right.
-> 
-> Biden’s weakness was displayed for all the world to see with his embarrassing failures in Afghanistan.
-> 
-> This is why, Putin invaded Ukraine, Iran is firing missiles at our consulate in Iraq, & China is dominating.
-> 
-> Fire weak incompetent people.
-> 
-> Impeach! [https://t.co/rK7nHXDSc8](https://t.co/rK7nHXDSc8)
-> — Rep. Marjorie Taylor Greene (@RepMTG) [March 13, 2022](https://twitter.com/RepMTG/status/1503096422899625992?ref_src=twsrc%5Etfw)
+据报道，在乌克兰农业危机发生的同时，由于中共病毒导致的全球供应链问题，世界各地的食品价格已经飙升了几个月。
 
+联合国粮食机构上周表示，世界粮食价格在2月份创下历史新高，一年内已经上涨了24%以上。世界七大发达经济体的农业部长 ，将于周五在一次虚拟会议上，讨论俄罗斯入侵对全球粮食安全的影响以及如何最好地稳定粮食市场。
 
+乌克兰和俄罗斯是主要的小麦出口国，合计约占世界出口的三分之一。联合国粮食署周五表示，由于乌克兰的战爭之中，国际食品和饲料价格可能上涨多达 20%，从而引发全球小麥营养的供應上不良的激增。
 
-美前国务卿迈克·蓬佩奥： 伊朗是世界上最大的支持恐怖主义的国家。 它必须继续被指定为恐怖分子，与恐怖分子有关的制裁必须继续实施。 绝不能允许伊朗拥有核武器。
+乌克兰官员表示，仍然希望今年能有一个相对不错的收成。他们把大部分希望寄托在乌克兰西部的农民身上。到目前为止，西部地区受战争的影响很小。
 
+发稿：qiutian（邱甜）
 
-
-> Iran is the world’s largest state sponsor of terror.
-> It must remain designated as such, and terrorist-related sanctions must remain in place.
-> Iran must never be allowed to have a nuclear weapon.
-> — Mike Pompeo (@mikepompeo) [March 14, 2022](https://twitter.com/mikepompeo/status/1503183366279024640?ref_src=twsrc%5Etfw)
-
-
-
-参议员泰德·克鲁兹：飞机上要求戴口罩太荒唐了。 【视频中克鲁兹说：强制口罩，强制打疫苗和疫苗护照都是不对的，早该停止了】
-
-
-
-> Mask mandates on planes are absurd. [pic.twitter.com/ThddncVEzv](https://t.co/ThddncVEzv)
-> — Senator Ted Cruz (@SenTedCruz) [March 14, 2022](https://twitter.com/SenTedCruz/status/1503164953825533954?ref_src=twsrc%5Etfw)
-
-
-
-众议员吉姆.班克斯： 唐纳德.川普把奥巴马的伊朗核协议称为“有史以来最糟糕的协议”是正确的。 在很多方面，乔·拜登的新伊朗核协议更加糟糕。 为什么那么多民主党人支持它？
-
-
-
-> Donald Trump was right to call Obama’s JCPOA “worst deal ever negotiated”. In so many ways Joe Biden’s new Iran Nuclear Deal is even worse. Why are so many Democrats going along with this?
-> — Jim Banks (@RepJimBanks) [March 13, 2022](https://twitter.com/RepJimBanks/status/1503084199024250884?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 就在几周前，乔·拜登政府关闭了司法部一项打击 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 间谍活动的计划。 现在，国家安全官员在警告说，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 间谍对美国构成严重威胁。
-
-
-
-> Just weeks ago, Joe Biden’s administration shut down a DOJ program to combat Chinese espionage.
->  
-> Now, national security officials are warning that Chinese spies are a grave threat to the USA.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 13, 2022](https://twitter.com/MarshaBlackburn/status/1503068158424457227?ref_src=twsrc%5Etfw)
-
-
-
-前白宫经济顾问彼得·纳瓦罗: 请将此转发给全世界。 对我们所有人的巨大威胁… [#普京](https://gettr.com/hashtag/%23%E6%99%AE%E4%BA%AC) 在国际象棋世界下中国跳棋 【附realclearpolitics网登载的纳瓦罗的文章：普京在国际象棋世界下中国跳棋 普京的乌克兰帝国主义策略正在加速 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 对俄罗斯的殖民化。讽刺就是所讽刺的东西。 为了换取 [#普京](https://gettr.com/hashtag/%23%E6%99%AE%E4%BA%AC) 最终可能在乌克兰攫取的任何一块领土——当然是顿涅茨克和卢甘斯克，也许是敖德萨——普京现在被迫向 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 抵押从石油和天然气到铝的资源。 随着普京进一步加快“去美元化”以逃避美国制裁，俄罗斯卢布也越来越与人民币挂钩。】
-
-
-
-> Please retweet this to the world. HUGE threat to all of us…
-> 
-> Putin Plays Chinese Checkers in a Chess World [https://t.co/pqEPhgua8v](https://t.co/pqEPhgua8v)
-> — Peter Navarro (@RealPNavarro) [March 13, 2022](https://twitter.com/RealPNavarro/status/1503064602560667648?ref_src=twsrc%5Etfw)
-
-
+**更多资讯，更多关注
+[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 

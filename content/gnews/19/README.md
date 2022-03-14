@@ -2,26 +2,34 @@
 ---
 
 
-## 伊朗称对袭击以色列在伊拉克的战略中心负责
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2160339/)
+## 美国公司Clearview已为乌克兰提供人脸识别技术
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2160384/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-156.jpg)
-图片来源： http://www.kzaobao.com/
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-零对冲网3月13日报道，伊朗伊斯兰革命卫队已经声称对以色列在伊拉克北部库尔德地区首府埃尔比勒的战略中心的导弹袭击表示负全责。
+整理/编辑：围剿维尼熊
 
-半官方的太斯尼穆新闻机构，它与伊朗革命卫队关系密切，说有10个精密制导导弹从北部伊朗(城市不详)发射，报道说很可能造成许多伤亡，但没有提供详细情况。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/55D20EEB-4F01-41C6-928A-34CDF8C938A6.jpg)图片来源：搜狐
 
-据美国务院秘书温迪·谢尔曼早些时候说，在这次袭击中没有造成伤亡，美领事馆是一个目标，并被击中。该袭击发生在伊朗发誓要对以色列导弹袭击叙利亚大马士革造成二名伊斯兰革命卫队成员死亡进行报复后几天。埃尔比勒省长说有多个导弹射向该地区，不清楚是美领馆还是机场。
 
-上周五伊朗的核谈判突然停止，没有任何合约，该谈判的破裂引起人们对2015年所作的核协议努力可能变得无效而担忧。
+根据大纪元3月14日讯，乌克兰国防部从周六（3月12日）开始使用美国面部识别公司“Clearview AI”的技术。
 
-如果伊朗确实攻击了美领事馆，那么这个谈判就结束了，毫无疑问，周一的油价将会是一个有趣的一天。
+路透社报道，Clearview联合创始人兼首席执行Hoan Ton-That说，此前该公司提出要帮助乌克兰发现俄罗斯袭击者，打击虚假信息并识别死者。Clearview公司的顾问、美国前总统巴拉克‧奥巴马执政时期的外交官李‧沃罗斯基（Lee Wolosky）补充说，乌克兰当局正在免费使用Clearview公司强大的人脸搜索引擎，以便可能在检查站审查相关人员，并用于其它方面。
 
-#### 新闻来源： [Iran Claims Responsibility For Attacking ‘Israeli Strategic Center’ In Iraq](https://www.zerohedge.com/geopolitical/us-consulate-iraq-hit-multiple-missiles-iran-launch-suspected)
+Hoan Ton-That表示，Clearview的技术还可用于让难民与失散的家人团聚，识别俄罗斯特工，并帮助乌克兰政府揭穿传播涉及战争假消息的社交媒体帖子。
 
-#  
+他还表示不会把Clearview作为唯一的身份识别手段，也希望该技术的使用不要违反《日内瓦公约》。
+
+参考链接：[https://www.epochtimes.com/gb/22/3/13/n13643691.htm](https://www.epochtimes.com/gb/22/3/13/n13643691.htm)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

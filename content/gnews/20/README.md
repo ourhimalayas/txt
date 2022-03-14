@@ -2,63 +2,76 @@
 ---
 
 
-## 在中共国支持下，伊朗实力不断增强
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2160316/)
+## 马乔丽·泰勒·格林：川普总统是对的
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2160383/)
 
-#### 【雅典娜观察】
-
-翻译：文扬
-编辑：jocozoner
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1647231917190.jpg)图片来源：reuters&雅典娜设计组
+众议员马乔丽·泰勒·格林： 川普总统是对的。 拜登在阿富汗的尴尬失败向全世界展示了他的软弱。 这就是为什么，普京入侵乌克兰，伊朗向我们在伊拉克的领事馆发射导弹，而 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 占据主导地位。 炒掉软弱无能之人。 弹劾！ 【转RSBN推文： “阿富汗的行动是我们国家历史上最尴尬的时刻。” 川普总统在今晚的集会之前与我们的主持人布莱恩·格伦[@brianglenntv](https://gettr.com/user/brianglenntv) 进行了交谈！（附采访川普总统的视频）】
 
 
-去年，为了加强两国间在经济、政治和军事上的联系，北京和德黑兰启动了一项为期25年的合作协议。同为美国制裁的“受害者”，两国关系已经十分紧密。
 
-在最近的一次北京之行中，伊朗外交部长侯赛因·阿米尔-阿卜杜拉希扬（Hossein Amir-Abdollahian）宣布，这项雄心勃勃的全面协议已正式开始实施。随着世界愈加分裂混乱，独裁主义抬头，世界上一些强权大国开始入侵主权国家，这一战略联盟应该引起所有读者的关注。
+> President Trump is right.
+> 
+> Biden’s weakness was displayed for all the world to see with his embarrassing failures in Afghanistan.
+> 
+> This is why, Putin invaded Ukraine, Iran is firing missiles at our consulate in Iraq, & China is dominating.
+> 
+> Fire weak incompetent people.
+> 
+> Impeach! [https://t.co/rK7nHXDSc8](https://t.co/rK7nHXDSc8)
+> — Rep. Marjorie Taylor Greene (@RepMTG) [March 13, 2022](https://twitter.com/RepMTG/status/1503096422899625992?ref_src=twsrc%5Etfw)
 
-2018年11月，美国正式恢复了对伊朗的所有制裁。6个月后，特朗普政府威胁要制裁那些再从伊朗购买石油的国家。大多数国家都遵照执行，然而，中共国却依然我行我素。
 
-据[路透社最近一份报道](https://www.reuters.com/world/china/china-buys-more-iranian-oil-now-than-it-did-before-sanctions-data-shows-2022-03-01/)称，中共国“最近几个月对伊朗石油的购买量已经上升到创纪录的水平” 。事实上，现在的购买量已经超过了“2017年贸易不受美国制裁时的峰值”。2022年1月份，中共国的进口量平均每天超过70万桶。
 
-尽管伊朗受到了一些禁运和经济制裁的打击，但它已经找到了缓解经济困局的方法。它的 “药”就是比特币，这种全世界的独裁者以及地下室的年轻人都喜欢的加密货币。
+美前国务卿迈克·蓬佩奥： 伊朗是世界上最大的支持恐怖主义的国家。 它必须继续被指定为恐怖分子，与恐怖分子有关的制裁必须继续实施。 绝不能允许伊朗拥有核武器。
 
-根据Elliptic进行的研究，比特币挖矿允许（并继续允许）伊朗人“规避贸易禁运，赚取数亿美元的加密资产” 。这些加密资产然后被用来“购买进口商品和绕过制裁。”
 
-去年，作为与伊朗政府密切相关的智囊团，伊朗总统战略研究中心发表了一份相当有说服力的报告，概述了如何通过比特币和其他加密货币为该国带来额外收入。这份报告称，如果加大采矿力度，每天就可产生大约200万美元的直接收入。是的，这相当于每年7亿多美元。
 
-正如我之前讨论过的，另一个从比特币中受益的问题国家是朝鲜。仅在去年，这个闭塞国度的黑客就盗取了近4亿美元的加密货币。
+> Iran is the world’s largest state sponsor of terror.
+> It must remain designated as such, and terrorist-related sanctions must remain in place.
+> Iran must never be allowed to have a nuclear weapon.
+> — Mike Pompeo (@mikepompeo) [March 14, 2022](https://twitter.com/mikepompeo/status/1503183366279024640?ref_src=twsrc%5Etfw)
 
-在我写这篇文章时，俄罗斯人在惊恐地看着卢布不断大幅贬值，似乎也在从比特币中获益。伊朗政权不仅使用比特币，而且它也愿意采用中共国新的数字货币，即数字人民币。两者结合，一种真实的危险摆在世人面前。
 
-数字人民币显然允许一些国家（如俄罗斯、朝鲜，当然还有伊朗）免受美国制裁，与此同时，中共还妄图利用数字人民币推翻美元的地位。
 
-同样，我们有足够的理由担心。2020年，作为麻省理工学院的数字货币研究员，尼哈·纳鲁拉（Neha Narula）描述了在哈佛大学肯尼迪学院贝尔弗中心进行的一次模拟，纳鲁拉是这次模拟的参与者之一。
+参议员泰德·克鲁兹：飞机上要求戴口罩太荒唐了。 【视频中克鲁兹说：强制口罩，强制打疫苗和疫苗护照都是不对的，早该停止了】
 
-正如CNBC当时报道的那样，“其中一项模拟情势就涉及朝鲜如何研发能够打击美国本土的导弹。” 在这种模拟中，朝鲜的导弹开发 “由数字人民币资助，从而使得朝鲜能够逃避来自全球银行系统与美国的制裁。”
 
-用纳鲁拉的话来说，模拟结果“非常清楚地表明，这（数字人民币的发展）是一个国家安全问题。”
 
-纳鲁拉的看法是对的。根据美国和平研究所的说法，伊朗伊斯兰共和国已经拥有最大的、中东地区最多样化的弹道导弹储备。此外，它也是“唯一一个未事先拥有核武器就研发出射程达2000公里导弹的国家” 。
+> Mask mandates on planes are absurd. [pic.twitter.com/ThddncVEzv](https://t.co/ThddncVEzv)
+> — Senator Ted Cruz (@SenTedCruz) [March 14, 2022](https://twitter.com/SenTedCruz/status/1503164953825533954?ref_src=twsrc%5Etfw)
 
-国际原子能机构（IAEA）去年11月发布的一份季度报告称，伊朗的核“突破时间”在3到6周之间。“突破时间”是指伊朗政权为某种核武器生产武器级铀（WGU）所需的时间。
 
-然而，核的武器化需要相当长的时间，准确地说，大约需要2年。
 
-去年11月，就在IAEA报告发表的同一时间，以色列财政部长称：“伊朗在2026年前拥有核武器的可能性相当高。无论伊朗的核弹是在2024年、2026年还是2028年研发成功，它终将到来。生活中很少有事情是可以保证的。但伊朗政权将拥有核武器几乎是确定无疑的。”
+众议员吉姆.班克斯： 唐纳德.川普把奥巴马的伊朗核协议称为“有史以来最糟糕的协议”是正确的。 在很多方面，乔·拜登的新伊朗核协议更加糟糕。 为什么那么多民主党人支持它？
 
-与它的亲密盟友和主要帮手中共国一样，伊朗是个极其危险的国家。在中共国的财政和政治支持下，伊朗未来可能会变得更加危险。
 
-原文链接： [With China’s Blessing, Iran Grows in Power (theepochtimes.com)](https://www.theepochtimes.com/with-chinas-blessing-iran-grows-in-power_4327320.html)
 
-发布：tianzhihuan
+> Donald Trump was right to call Obama’s JCPOA “worst deal ever negotiated”. In so many ways Joe Biden’s new Iran Nuclear Deal is even worse. Why are so many Democrats going along with this?
+> — Jim Banks (@RepJimBanks) [March 13, 2022](https://twitter.com/RepJimBanks/status/1503084199024250884?ref_src=twsrc%5Etfw)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+参议员玛莎·布莱克本： 就在几周前，乔·拜登政府关闭了司法部一项打击 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 间谍活动的计划。 现在，国家安全官员在警告说，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 间谍对美国构成严重威胁。
+
+
+
+> Just weeks ago, Joe Biden’s administration shut down a DOJ program to combat Chinese espionage.
+>  
+> Now, national security officials are warning that Chinese spies are a grave threat to the USA.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 13, 2022](https://twitter.com/MarshaBlackburn/status/1503068158424457227?ref_src=twsrc%5Etfw)
+
+
+
+前白宫经济顾问彼得·纳瓦罗: 请将此转发给全世界。 对我们所有人的巨大威胁… [#普京](https://gettr.com/hashtag/%23%E6%99%AE%E4%BA%AC) 在国际象棋世界下中国跳棋 【附realclearpolitics网登载的纳瓦罗的文章：普京在国际象棋世界下中国跳棋 普京的乌克兰帝国主义策略正在加速 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 对俄罗斯的殖民化。讽刺就是所讽刺的东西。 为了换取 [#普京](https://gettr.com/hashtag/%23%E6%99%AE%E4%BA%AC) 最终可能在乌克兰攫取的任何一块领土——当然是顿涅茨克和卢甘斯克，也许是敖德萨——普京现在被迫向 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 抵押从石油和天然气到铝的资源。 随着普京进一步加快“去美元化”以逃避美国制裁，俄罗斯卢布也越来越与人民币挂钩。】
+
+
+
+> Please retweet this to the world. HUGE threat to all of us…
+> 
+> Putin Plays Chinese Checkers in a Chess World [https://t.co/pqEPhgua8v](https://t.co/pqEPhgua8v)
+> — Peter Navarro (@RealPNavarro) [March 13, 2022](https://twitter.com/RealPNavarro/status/1503064602560667648?ref_src=twsrc%5Etfw)
+
+
 
  
 
