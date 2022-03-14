@@ -2,45 +2,41 @@
 ---
 
 
-## 桑顿想拥有一切——在中国、在美国及在美中关系中（3/11）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2161779/)
+## 七哥预见Edward Moss被踢出PAG官司将招致最大报复
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2161859/)
 
-翻译：peacelv
+视频链接：[odysee.com/@郭文贵先生大直播精选:](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8818.61%EF%BC%89%E4%B8%83%E5%93%A5%E9%A2%84%E8%A7%81Edward-Moss%E8%A2%AB%E8%B8%A2%E5%87%BAPAG%E5%AE%98%E5%8F%B8%E5%B0%86%E6%8B%9B%E8%87%B4%E6%9C%80%E5%A4%A7%E6%8A%A5%E5%A4%8D%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:2)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/05-barrick-leaders-visit-china.jpg)图片来源: drive.google.com
+郭文贵先生：我头一段时间给我们的律师说，我说“告诉你，Edward Moss PAG官司被踢出去以后，你会遭受到最大的报复，来自于单伟建”。所以说人家法官就说了：“我会让你Miles Guo extremely painful”，极端的痛苦。你看看134个million罚下来了，然后你五天不给钱，我就把你抓起来。extremely painful！哇噻！就这么说的。我那律师回来，Miles你都说对了，extremely painful，我们律师都吓得，都那样了。
 
-事实上，桑顿喜欢说21世纪是中国的世纪，告诉奥巴马和川普政府美国应该承认是一个同行，并尽可能地适应中国的崛起。他说，通过这样做，华盛顿和北京应当能一起工作和解决更大的问题，如气候变化，大流行，不平等和朝鲜半岛无核化。
+我们那律师事务所Baker也很大很大的，好不好？也是几百个人的律师事务所，是吧。
 
-接近桑顿的人说驱使他的是“身处发生大事的房间里”的快感，扮演外交部长的角色或者甚至是美国总统的一天。
+编辑整理：Jacques；
 
-更为重要的是，中国显然是桑顿的圣地。如他在2016年的[一次可持续性发展会议上](https://www.youtube.com/watch?v=f42lJJ-n9f0)所说，“中国崛起的方式，它进入现有秩序的方式，那发生的一切是我们有生之年唯一最重要的地缘政治事件…所以如果我能对此尽一点微薄之力，我就能含笑而终了。”
+字幕档制作：兵嫂；
 
-这不是一个价值观驱动的主张……这是一个成就驱动的主张。它是冷血的。
+视频制作及上传：Cindy；
 
-——布鲁金斯学会约翰·桑顿中国中心的创始主任杰弗里·贝德
+G-News发布：海贼王M.D.LUFFY；
 
-不过，桑顿与中国打交道的方式并不像公职人员那样。例如，他不需要平衡人权与经济和地缘战略问题。贝德在担任奥巴马白宫国家安全委员会亚洲事务高级顾问时曾与桑顿打过交道，据他说，桑顿被中国完成任务的能力所迷惑。桑顿对北京的实干精神充满敬畏，无论是在控制Covid-19还是在15年内建造25000英里的高铁方面，桑顿将投资银行家的思维方式带到了他的个人外交中：他专注于大交易和大计划。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-“这不是一个价值观驱动的主张，” 贝德在谈到桑顿的方法时说，“这是一个成就驱动的主张。它是冷血的。”例如，在2009年给巴拉克·奥巴马总统的简报中，桑顿强调美国需要停止在它不能改变的事项上争斗，例如台湾和西藏，然后专注于其它两国可以一起合作的事项，根据参加会议的人员。美国历来支持台湾的民主化，并在法律上有义务向台湾的国防提供武器——俄罗斯最近入侵乌克兰的行为更凸显了这一义务。美国还捍卫藏人的权利，反对中国安全部门的掠夺。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-事实上，桑顿喜欢说21世纪是中国的世纪，告诉奥巴马和川普政府美国应该承认是一个同行，并尽可能地适应中国的崛起。他说，通过这样做，华盛顿和北京应当能一起工作和解决更大的问题，如气候变化，大流行，不平等和朝鲜半岛无核化。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-如果看起来桑顿对中国的成功有所投入，那是因为他确实如此。除了美国的政策努力外，这位68岁的商人还同时在中国平衡着众多的金融利益。他曾在中国国有银行和电信公司的董事会任职；并为中国的股票市场监管机构和主权财富基金提供咨询。最近，作为全球矿业巨头[巴里克黄金公司](https://www.barrick.com/news/news-details/2018/barrick-leaders-visit-china/default.aspx)的董事长，他通过与国有矿业公司建立合资企业等方式，引导该公司“真实而谨慎地”关注中国。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-自始至终，没有什么——不是习近平的崛起，美中贸易战，全球大流行，或者种族灭绝的指控——阻止桑顿试图让美国达成协议，为中国的崛起让路。目前为止，他最接近的一次是在2017年4月，帮助策划唐纳德·川普和习近平在海湖庄园的亲密会晤——这是一次得不偿失的胜利，没有达成任何政策改变，从今天的角度看，这可以标志着桑顿作为美中关系桥梁的最后一博。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-新闻链接: [drive.google.com][john thorntons wish to have it all -in china, in the u.s . and in the u.s-china relationship](https://drive.google.com/file/d/1X4ENjQVmYgFy2ROpGlhTkUWJSNGM1eFt/edit)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-- [桑顿想拥有一切——在中国、在美国及在美中关系中（2/11）](https://gnews.org/zh-hans/2161622/)
-- [桑顿想拥有一切——在中国、在美国及在美中关系中（4/11）](https://gnews.org/zh-hans/2161984/)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-* * *
+G-TV：日本银河系农场。
 
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-8.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

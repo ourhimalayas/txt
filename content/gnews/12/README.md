@@ -2,41 +2,34 @@
 ---
 
 
-## 七哥预见Edward Moss被踢出PAG官司将招致最大报复
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2161859/)
+## 张文宏成为第二个“钟南山”？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2161872/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选:](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8818.61%EF%BC%89%E4%B8%83%E5%93%A5%E9%A2%84%E8%A7%81Edward-Moss%E8%A2%AB%E8%B8%A2%E5%87%BAPAG%E5%AE%98%E5%8F%B8%E5%B0%86%E6%8B%9B%E8%87%B4%E6%9C%80%E5%A4%A7%E6%8A%A5%E5%A4%8D%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:2)
+撰稿：东京樱花团/Garrettw
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-64.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimgcdn.yicai.com%2Fuppics%2Fimages%2F2022%2F03%2Fe81b19fbf564bb7f520aa4bd2be442a3.jpg&amp;imgrefurl=https%3A%2F%2Fwww.yicai.com%2Fnews%2F101347201.html&amp;tbnid=3BtL-Fi3_80xmM&amp;vet=12ahUKEwj9zeSyoMX2AhUQwyoKHbmbBGQQMygAegUIARCBAQ..i&amp;docid=tw_vjjoEIydAoM&amp;w=1001&amp;h=583&amp;itg=1&amp;q=%E5%BC%A0%E6%96%87%E5%AE%8F&amp;ved=2ahUKEwj9zeSyoMX2AhUQwyoKHbmbBGQQMygAegUIARCBAQ)
+3月14日，国家传染病医学中心主任、上海复旦大学附属华山医院感染科主任张文宏微博再发千字长文解析疫情。他先从上海讲起：*起由于短期内出现了大量的病例，全国各地难免显得有些慌乱，上海也不例外。上海的精准防控在这次奥密克戎**BA.2**传播之际，由于发生突然，启动晚，病毒快，目前仍处于与病毒的并跑阶段，感到非常吃力。*
 
-郭文贵先生：我头一段时间给我们的律师说，我说“告诉你，Edward Moss PAG官司被踢出去以后，你会遭受到最大的报复，来自于单伟建”。所以说人家法官就说了：“我会让你Miles Guo extremely painful”，极端的痛苦。你看看134个million罚下来了，然后你五天不给钱，我就把你抓起来。extremely painful！哇噻！就这么说的。我那律师回来，Miles你都说对了，extremely painful，我们律师都吓得，都那样了。
+然后在谈及香港：
 
-我们那律师事务所Baker也很大很大的，好不好？也是几百个人的律师事务所，是吧。
+*1**、病毒的毒力真的是明显降低了，香港这轮疫情死亡的病例除了年纪大是高风险因素外，绝大多数有明显的基础疾病。换句话说，免疫功能正常，打过疫苗的，无论是何种疫苗，只要是加强过的，基本上都没事。对于这个病毒，消除恐惧是我们必须走出的第一步。*
 
-编辑整理：Jacques；
+*2**、我们统计的上海近六个月收治的**2266**例病例中，大多数是海外输入性病例，**94%**打过疫苗。这**2266**个病人中，重症的只有**0.1%**，危重症（需要插管）和死亡的一例也没有。有人说病人中**94%**的打了疫苗还感染，说明疫苗没有用。这就不讲道理了。现在国际旅行的人疫苗接种率很高，达到**90%**以上，其中不到**5%**的入境时候被筛查出来有核酸阳性。你去看这感染的**5%**的人，当然是大多数打过疫苗，这可以理解为打了疫苗仍有突破感染的机会。但是重症率与死亡率真的低于流感了。*
 
-字幕档制作：兵嫂；
+*3**、香港数据，新加坡和英国数据都显示，不打疫苗不一定有事，因为病毒已经变得相对比较弱了。但是有事的绝大多数都是没有打过疫苗的。在香港这次疫情中，死亡个案中，有**89.4%**的人并无接种疫苗或只注射了一针疫苗。而**80**岁或以上的死亡个案中，更有**91.5%**的人未接种或只打了一针。根据死亡率分析，接种一剂或未打针人士的整体死亡率是**2.03%**，相较接种两针人士的**0.09%**，有**23**倍的差别。*
 
-视频制作及上传：Cindy；
+*4**、**3**月**10**日英国《每日邮报》称，由于经过群体感染与高水平的疫苗接种，包括付出了惨痛的群体感染过程中大量人员的损失，新冠肺炎在英国的致死性已经低于流感。病死率下降了七倍，仅为**0.03%**。由于奥密克戎已经变得很温和，在实现了广泛接种和自然感染率的国家，新冠病毒现在可能甚至没有流感那么致命。*
 
-G-News发布：海贼王M.D.LUFFY；
+最后得出结论：
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+*老年人普遍的第三针接种，以及更好的疫苗与疫苗接种策略，可以广泛供给的口服药物，可以负担得起的广泛提供的居家检测试剂，得到有效训练和预演的分级诊疗策略，未来居家隔离的流程。*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-23.jpg)[图片来源](https://baijiahao.baidu.com/s?id=1727227681626794710&amp;wfr=spider&amp;for=pc)
+张文宏这次的公开表态是中共的又一波谎言舆论攻势，塑造一个英雄主义，安慰那些普通百姓，洗脑可怜的中国人。加以疫情为由加大疫情接种率，推出所谓的口服药，将老弱群体彻底消灭，还要让民众自费购买检测试剂，继续为CCP的苟延残喘增加一定的金融和物质条件，为打台湾控制舆论导向。战友们，墙内的同胞们，一定要保护自己及家人，这是CCP 最后疯狂的开始，我们要健身健心，锻炼好心脏等待最终的胜利，黎明前的黑暗，NFSC的那盏明灯一定要抓住。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+消息来源：[张文宏微博千字文](https://baijiahao.baidu.com/s?id=1727227681626794710&amp;wfr=spider&amp;for=pc)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

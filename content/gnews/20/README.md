@@ -2,22 +2,20 @@
 ---
 
 
-## 美国国家安全顾问沙利文警告中共：帮助俄罗斯逃避制裁将面临后果
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2161453/)
+## 25岁超模海莉•比伯（Hailey Bieber）“脑部血栓”住院
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2161517/)
 
-#### 翻译/撰稿：zzballack
+翻译 意大利达芬奇农场 小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-14-alle-10.12.03.png)图片来源：eventiavversinews.it
+25岁的超模海莉•比伯在她的Instagram上分享了她最近住院的消息。贾斯汀•比伯的缪斯女神刚刚从医院回家，她因脑血栓住院， 海莉在她的Instagram上发布了一条消息，解释了发生的事情， 并向所有人保证她情况很好。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-8.jpg)图片来源：卫报
-据《新闻极限》（Newsmax）3月13日报道，将于本周一（3月14日）在罗马会晤中共最高外交官杨洁篪的美国国家安全顾问杰克·沙利文（Jake Sullivan）3月13日在接受美国有线电视新闻网（CNN）采访时警告北京，如果中共帮助莫斯科逃避因其入侵乌克兰而受到的全面制裁，肯定会面临后果。
+海莉称这是她经历过的“ 最可怕的时刻之一”， 但她希望她的粉丝知道她现在在家，并且“很好”。“ 我非常感谢所有照顾我的优秀医生和护士！“ 她还补充说，“感谢所有带着美好祝愿和共同关心我的人，感谢所有的支持和爱。”她没有确切地分享她所经历的那种类似中风的症状， 也没有指出任何可能导致这种血栓的原因。
 
-沙利文说：“我们相信中共在入侵发生之前就已知道俄罗斯计划在乌克兰采取一些行动，尽管北京可能不了解该计划的全部内容。现在，美国正在密切关注北京将在多大程度上向俄罗斯提供经济或物质支持。我们正在直接和私下地与北京沟通，并明确警告北京：大规模逃避制裁的努力或试图帮助俄罗斯弥补其因西方制裁造成的经济损失，都肯定会产生后果。我们不会允许这种情况继续下去，也不会允许世界上任何一个国家在这些经济制裁中给俄罗斯提供生命线。”不过，沙利文并未透露中共具体将面临什么样的后果。
+当然，很多人想知道这是否与冠状病毒有关， 但海莉从未就这个话题写过或陈述过任何观点。但是我们知道海莉参加了大都会艺术博物馆慈善晚宴，而妮琪•米娜 ( Nicki Minaj ) 却没有参加。因为只有接种新冠疫苗者才能参加。虽然没有证实她是否接种了疫苗，但这表明她已经接种了疫苗，对此我们并不是100%的确定。
 
-拜登政府的一位高级官员说，俄乌战争及其对地区和全球安全的影响将是沙利文与杨洁篪会晤的一个重要议题，因为中共正在与俄罗斯结盟以推进他们自己认定的世界秩序。这次会议已经计划了一段时间，是华盛顿和北京为保持开放的沟通渠道和处理世界上两个最大经济体之间的竞争所做的更广泛努力的一部分。
+原文链接：[https://www.eventiavversinews.it/la-top-model-hailey-bieber-25-anni-ha-sofferto-di-un-coagulo-di-sangue-al-cervello-ed-e-stata-ricoverata-in-ospedale/](https://www.eventiavversinews.it/la-top-model-hailey-bieber-25-anni-ha-sofferto-di-un-coagulo-di-sangue-al-cervello-ed-e-stata-ricoverata-in-ospedale/)
 
-沙利文14日还将与意大利总理马里奥·德拉吉 (Mario Draghi)的外交顾问路易吉·马蒂奥洛（Luigi Mattiolo）会面，讨论如何协调全球对普京的入侵战争做出强有力和统一的回应。
-
-新闻来源：[US: China Faces Consequences If It Helps Russia Evade Sanctions Over Ukraine](https://www.newsmax.com/newsfront/china-us-biden-ukraine/2022/03/13/id/1060965/)
+编辑、上传： Xiao  baige
 
  
 

@@ -2,20 +2,34 @@
 ---
 
 
-## 25岁超模海莉•比伯（Hailey Bieber）“脑部血栓”住院
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2161517/)
+## 美国记者在乌克兰战区遭俄军杀害
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2161590/)
 
-翻译 意大利达芬奇农场 小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-14-alle-10.12.03.png)图片来源：eventiavversinews.it
-25岁的超模海莉•比伯在她的Instagram上分享了她最近住院的消息。贾斯汀•比伯的缪斯女神刚刚从医院回家，她因脑血栓住院， 海莉在她的Instagram上发布了一条消息，解释了发生的事情， 并向所有人保证她情况很好。
+**撰稿：日本东京方舟农场 Miyali7768(文玉)**
 
-海莉称这是她经历过的“ 最可怕的时刻之一”， 但她希望她的粉丝知道她现在在家，并且“很好”。“ 我非常感谢所有照顾我的优秀医生和护士！“ 她还补充说，“感谢所有带着美好祝愿和共同关心我的人，感谢所有的支持和爱。”她没有确切地分享她所经历的那种类似中风的症状， 也没有指出任何可能导致这种血栓的原因。
+据《中央社》3月13日报道，乌克兰基辅州警长内比托夫（Andriy Nebitov）表示，俄罗斯部队在伊尔平镇（Irpin）杀害一名美国记者，另有一名记者受伤。
 
-当然，很多人想知道这是否与冠状病毒有关， 但海莉从未就这个话题写过或陈述过任何观点。但是我们知道海莉参加了大都会艺术博物馆慈善晚宴，而妮琪•米娜 ( Nicki Minaj ) 却没有参加。因为只有接种新冠疫苗者才能参加。虽然没有证实她是否接种了疫苗，但这表明她已经接种了疫苗，对此我们并不是100%的确定。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-7.jpg)（图片来网络）
 
-原文链接：[https://www.eventiavversinews.it/la-top-model-hailey-bieber-25-anni-ha-sofferto-di-un-coagulo-di-sangue-al-cervello-ed-e-stata-ricoverata-in-ospedale/](https://www.eventiavversinews.it/la-top-model-hailey-bieber-25-anni-ha-sofferto-di-un-coagulo-di-sangue-al-cervello-ed-e-stata-ricoverata-in-ospedale/)
+据报道，根据乌克兰基辅州警长内比托夫13日在脸书（Facebook）公布出的记者身份证和护照显示，这名被杀害的摄影记者名叫芮诺（Brent Renaud），今年51岁，美国公民。
 
-编辑、上传： Xiao  baige
+另一名受伤记者在医院接受采访时揭露，事发当时，他与芮诺乘车准备前往目的地，准备拍摄平民逃难的过程，两人通过1个检查哨之后，在车上遭到俄军枪击。
+
+对此，乌克兰基辅州警长内比托夫在脸书发文表示，入侵者（俄罗斯）无所顾忌，连试图公开俄军在乌克兰真实暴行的国际媒体记者都杀。
+
+美国白宫国家安全顾问苏利文（Jake Sullivan）则告诉美国有线电视新闻网（CNN）：如果真的有美国记者被杀，将是一起令人震惊的可怕事件，也是俄罗斯总统普京及其军队暴行的又一例证。
+
+据了解，这名摄影记者芮诺经常与他的兄弟克莱格（Craig Renaud）搭档，在伊拉克、阿富汗等世界各地的战争冲突热点地区拍摄影片。芮诺还曾因一部美国芝加哥（Chicago）学校的纪录片，荣获被视为广播电视媒体界普立兹新闻奖的皮博迪（Peabody）奖。
+
+参考链接：
+1. [https://www.cna.com.tw/news/aopl/202203135004.aspx](https://www.cna.com.tw/news/aopl/202203135004.aspx)
+2.[https://www.thenewslens.com/article/163982](https://www.thenewslens.com/article/163982)
+
+撰稿：Miyali7768(文玉)
+
+编辑：幽蘭自得
+总编：老孙
+校对发布：Linda
 
  
 
