@@ -2,14 +2,20 @@
 ---
 
 
-## 【 蓝枫法律 】 第46期 未来家族信托的建立方式 &#8211; PPT展示
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2160952/)
+## SWIFT是什么
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2161142/)
 
-#### **加拿大温哥华扬帆农场 – 蓝枫法律**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/23-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-77.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-75.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-59.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/5-49.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-59.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/7-37.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/8-35.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/9-29.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/10-26.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/11-30.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/12-23.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/13-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/14-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/15-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/16-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/17-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/18-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/19-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/20-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/21-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/22-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-149.png)
-**直播视频：https://gettr.com/streaming/pyel018cd9**
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-**编辑****/****发文：蓝枫法律栏目**
+*发布：陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

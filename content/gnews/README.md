@@ -15,59 +15,59 @@
 
 ---
 
-### [【乌克兰救援】03/13/22 新中国联邦义工小小酥获得乌克兰难民感激亲吻](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新中国联邦和爆料革命的战友们正全面投入乌克兰大营救](/content/gnews/2/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [乌克兰救援现场的战友们真了不起](/content/gnews/3/README.md)
+### [谁能决定踢除SWIFT](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [乌克兰前总统&amp;普京身边人&amp;日本军人因没打疫苗心怀感恩](/content/gnews/4/README.md)
+### [小粉红对踢除SWIFT的无知](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [【乌克兰救援】03/13/22 被新中国联邦和法治基金救出的中国学生和民众心存感激，但又害怕中共，希望他们有一天能大胆的与我们一起揭露中共邪恶的本质](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [法国加拿大澳大利亚大卡车运动来自七哥策划的香港运动](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥每时每刻都在感激上天让无苗灭共者这些人没打疫苗](/content/gnews/5/README.md)
+### [断开SWIFT意味着什么](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [大敌当前乌克兰总统泽连斯基一不逃跑二不怕死三不翻脸](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美国非营利组织在乌克兰救援行动看见中国人深表惊讶](/content/gnews/6/README.md)
+### [SWIFT是什么](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [不超过三次直播你会看到世界巨变，有些绝密的话不能说](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [我们是消灭共产党的中国人](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [【乌克兰救援】03/13/22 新中国联邦义工小小酥获得乌克兰难民感激亲吻](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国非营利组织在乌克兰救援行动看见中国人深表惊讶](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【 蓝枫法律 】 第46期 未来家族信托的建立方式 &#8211; PPT展示](/content/gnews/7/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [有声｜上海急征民宅做隔离 医院现群聚感染](/content/gnews/8/README.md)
+### [有声｜上海急征民宅做隔离 医院现群聚感染](/content/gnews/12/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [蛇妖闫九指妖亡腚缸和普京及习近平异曲同工的谎言世界](/content/gnews/9/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [志愿者跟外国记者强调新中国联邦反对中国共产党](/content/gnews/10/README.md)
+### [志愿者跟外国记者强调新中国联邦反对中国共产党](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥巨额判罚让欺民贼欣喜若狂,鼠目寸光者被诱抛喜币](/content/gnews/11/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [文•贵天成：文贵先生谈“孟建柱”（二十六）](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【乌克兰救援3.12.2022】乌克兰小女孩在新中国联邦咖啡驿站接受采访](/content/gnews/13/README.md)
+### [【乌克兰救援3.12.2022】乌克兰小女孩在新中国联邦咖啡驿站接受采访](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌克兰马立波被俄军围困，目前2187名平民丧生](/content/gnews/14/README.md)
+### [乌克兰马立波被俄军围困，目前2187名平民丧生](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国政府官员和大医药公司在疫苗上欺骗美国人](/content/gnews/15/README.md)
+### [美国政府官员和大医药公司在疫苗上欺骗美国人](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新冠疫苗加强针不能缓解新冠疫情](/content/gnews/16/README.md)
+### [新冠疫苗加强针不能缓解新冠疫情](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [03/14每日播报｜社媒消息: 娜塔莉温特斯 郭文贵先生](/content/gnews/17/README.md)
+### [03/14每日播报｜社媒消息: 娜塔莉温特斯 郭文贵先生](/content/gnews/18/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [多枚远程弹道导弹袭击了美国驻伊拉克埃尔比勒领事馆](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [【乌克兰救援】03/12/2022 新中国联邦法治基金乌克兰救援团队成员妮可向一位记者介绍法治基金并且告诉他所有的救援行动都是由法治基金赞助和组织的。她向记者展示了法治基金提供的所有物资并且告诉他新中国联邦是完全反对中共政府的机构](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
