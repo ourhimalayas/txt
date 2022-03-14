@@ -2,96 +2,30 @@
 ---
 
 
-## 来自仍在乌克兰的娜塔莉亚的最新消息
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2165200/)
+## 澳大利亚宣布对俄罗斯实施新制裁
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2165239/)
 
-Secretary Antony Blinken:
-国务卿 安东尼 布林肯
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-An update from Nataliya, who is still in Ukraine.
-来自仍在乌克兰的娜塔莉亚的最新消息。
+3月14日，澳大利亚对俄罗斯扩大制裁范围，宣布对33名俄罗斯寡头、知名商人及其直系亲属实施新的制裁。
 
-She is staying with her people in the place she has made her new home.
-她和她的人一起住在她建造新家的地方。
+据《大纪元》报道，澳大利亚外交部发布声明表示，这轮新制裁针对的是那些积累了大量个人财富并对俄罗斯具有经济和战略意义的人，其中一些人和俄罗斯总统普京有关联。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-68.jpg)图为2月底澳大利亚国会大厦笼罩在乌克兰国旗颜色的灯光中（图片来自GARY RAMAGE/Gary Ramage/AFP via Getty Images）
+这些最新进入澳洲制裁名单的人包括：切尔西足球俱乐部（Chelsea Football Club）老板阿布拉莫维奇（Roman Abramovich）、俄罗斯天然气工业股份公司（Gazprom）首席执行官米勒（Alexey Miller）。
 
-In the face of mass destruction, Nataliya and her NGO have opened a shelter for those who have escaped Eastern and Southern Ukraine.
-面对大规模破坏，娜塔莉亚和她的非政府组织为逃离乌克兰东部和南部的人开设了避难所。
+还有俄罗斯银行Rossiya主席德列别杰夫（Dmitri Lebedev）、俄罗斯国家技术集团（Rostec）主席切梅佐夫（Sergey Chemezov）、输油管道公司 Transneft首席执行官尼托卡列夫（Nikolay Tokarev）、俄罗斯国有开发银行（VEB，Vnesheconombank）主席舒瓦洛夫（Igor Shuvalov）和俄罗斯直接投资基金（RDIF）首席执行官德米特里夫（Kirill Dmitriev）等。
 
-Hello . I’m Nataliya,
-大家好， 我是娜塔莉娅
+澳大利亚政府还表示，支持加拿大、欧盟、新西兰、英国和美国最近针对俄罗斯关键人物进一步实施限制的措施。
 
-I was talking to you just a month ago,
-一个月前我告诉过你们
+此前，俄罗斯入侵乌克兰后，澳大利亚已对一些俄罗斯政治人物和寡头祭出制裁，包括总统普京（Vladimir Putin）、外交部长拉夫罗夫（Sergei Lavrov）和国会议员。
 
-And from that time the life of Ukraine changed fully
-从那时起，乌克兰的生活发生了翻天覆地的变化
+参考链接：
+1.[https://www.epochtimes.com/gb/22/3/14/n13644587.htm](https://www.epochtimes.com/gb/22/3/14/n13644587.htm)
+2.[https://www.cna.com.tw/news/aopl/202203140376.aspx](https://www.cna.com.tw/news/aopl/202203140376.aspx)
 
-Now we have war, and it’s the worst what could happen to my country
-现在我们有战争，这是我的国家可能发生的最糟糕的事情
-
-These Russia soldiers bombing our city
-这些俄罗斯士兵轰炸我们的城市
-
-It’s just fully destroyed
-它完全被摧毁了
-
-Many civilian people died
-许多平民被杀
-
-Our military forces, they can’t protect everybody
-我们的军队，他们无法保护所有人
-And it’s not about militaries, it’s about civilian people who are dying in their houses, in their apartments even in their basement.
-这不是关于军队，而是关于在他们的房子里、在他们的公寓里甚至在他们的地下室里死去的平民。
-
-They can’t escape from this nightmare
-他们无法摆脱这场噩梦
-
-Yesterday my daughter said that she cannot live like that anymore
-昨天我女儿说她不能再这样生活了
-
-Because when there was next air raid alarm, she was so scared.
-因为当下一次空袭警报响起时，她非常害怕。
-
-And she said that she don’t want to stay here.
-她说她不想留在这里。
-
-And I can’t do anything because I want to stay with my people in my city, be-cause it’s still quite ok
-我什么也做不了，因为我想和我的人民呆在我的城市，因为这里还是不错
-
-But I just can’t imagine what those children feel that stay in Kyiv and Kharkiv
-但我无法想象那些孩子留在基辅和哈尔科夫的感受
-
-In our NGO, we opened shelter where we give accommodation to the people who escaped from eastern and southern part of Ukraine.
-在我们的非政府组织中，我们开设了避难所，为逃离乌克兰东部和南部的人们提供住宿。
-
-And also we collect and distribute different goods for internally displaced peo-ple.
-我们还为国内流离失所者收集和分发不同的货物。
-
-How I felt now, it…this is humanitarian catastrophe.
-我现在的感觉，它……这是人道主义灾难
-
-It’s pure evil
-它纯粹是邪恶的
-
-原视频链接:[https://twitter.com/secblinken/status/1501718955530018817?s=24](https://twitter.com/secblinken/status/1501718955530018817?s=24)
-
-Date:03/013/2022
-原视频标题: An update from Nataliya, who is still in Ukraine
-来自仍在乌克兰的娜塔莉亚的最新消息
-原视频日期：2022/03/09
-原视频链接: https://twitter.com/secblinken/status/1501718955530018817?s=24
-任务编号：KE451（3970）
-
-英听校: 洛杉矶盘古农场 – Raul
-翻译: 洛杉矶盘古农场 – Raul
-翻译终校: 洛杉矶盘古农场 – 好人有好报
-字幕+视频制作：洛杉矶盘古农场-庚子
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+撰稿：幽蘭自得
+总编：老孙
+校对发布：小斐
 
  
 

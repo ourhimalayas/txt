@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 11:39 PM (UTC)`
+
+2022.03.14《The Fringe》 Episode 146    THE CHINESE COMMUNIST PARTY (CCP) is the root cause of all disasters in the world   Only by eliminating the Chinese Communist Party can we save humanity!
+![img](https://media.gettr.com/group9/origin/2022/03/14/23/5659326d-59e9-a98c-0eb8-9be02bf732b4/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/14/2022 11:11 PM (UTC)`
 
 <br/>3月14号：天下最不要脸的，就是中国共产党……培养出来的这些极为不要脸的小粉红……根本不知道天有多高．地有多大．最冷漠的被洗脑了无知的愚蠢的这些人……们很快将为他们将为此付出代价，感谢日本银河农场制作的精美的视频。
@@ -150,13 +157,6 @@ The war pianist just moved the piano right next to the tents provided by the ROL
 
 在战火纷飞的乌克兰，只有我们新中国联邦人，不畏危险来到前线，不求任何回报，不带任何条件，向受难的所有同胞伸出援助之手。新中国联邦将让中国人找回浪漫、尊严、善良、和平、友好，让中国人成为世界上最受尊敬、最爱打交道的人，而不是共产党在全世界塑造的虚假、懦弱、自私的样子！ <br/>In the midst of the war in Ukraine, only we, the citizens of the New Federal State of China (NFSC), have been on the frontline of rescue despite the danger, all in order to extend a helping hand to our stranded compatriots, unconditionally and without expecting anything in return. <br/>The NFSC has enabled the Chinese people to recapture a sense of romance, dignity, kindness, peace and friendliness, making them the most respected and pleasant people to interact with, as opposed to the image of deceptiveness, cowardice and selfishness that the Chinese Communist Party (CCP) has portrayed throughout the world.
 ![img](https://media.gettr.com/group49/origin/2022/03/14/21/ccc514ba-e1a2-1d18-facd-21272eb9b068/out.jpg)
-
----
-
-`@miles 3/14/2022 3:35 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
-![img](https://media.gettr.com/group7/origin/2022/03/14/15/6a823638-5f9d-27cf-b67d-cd8c4ecfc677/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

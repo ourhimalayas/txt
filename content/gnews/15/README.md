@@ -2,31 +2,20 @@
 ---
 
 
-## 今日盖特大V推荐 — 蒂姆·普尔（Tim Pool）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2165225/)
+## 中共阻挠新中国联邦救援信息的传播
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2165280/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/azz.jpg)
-盖特链接：[https://gettr.com/user/timcast](https://gettr.com/user/timcast)
+加拿大温哥华扬帆农场    平民正道
 
-***蒂姆·普尔自述：***
+据3月10日盖特消息，在澳大利亚悉尼[乌克兰协会］官网首页当天公布了[法治基金]乌克兰人道救援的联络信息后不到24小时，就因中共的粗暴干涉而被迫撤销。
 
-记者, 不满的自由主义者、评论员、电影制作人、滑板手、音乐家 、前Fusion公司副总
-![](https://assets.gnews.org/wp-content/uploads/2022/03/cczz.jpg)
-图片来源：网络
+据悉，中共外交部以[新中国联邦]是非法组织为由施压，并用其14亿奴隶市场对乌克兰政府进行威胁，是[悉尼乌克兰协会］这次突然仓促撤销救援行动联络信息的原因。
 
-蒂姆·普尔简介：
+对此，文贵先生指出：中共此举直接戕害了所有身陷炮火中急需救助的战争难民，是对乌克兰受害妇女和儿童的大屠杀，并再次证明中共暴政就是世界和平与安全的毁灭者。
 
-蒂姆·普尔（Timothy Daniel Pool生于1986年3月9日）是美国著名记者、YouTuber、播客主持人和政治评论员。
+* * *
 
-蒂姆·普尔最初以直播2011年占领华尔街抗议活动而闻名。2013年加入副媒体集团（Vice Media），2014年加入融合电视（Fusion TV）担任媒体创新总监和高级记者。之后独自在YouTube等平台工作。
-
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑： 平民正道    发布：平民正道
 
  
 
