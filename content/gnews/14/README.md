@@ -2,31 +2,22 @@
 ---
 
 
-## 秘翻新闻｜中共国疫情遍布20省市
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2161222/)
+## 视频|喜马拉雅币一周分析与总结（3月7日-3月13日）
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2161275/)
 
-**By:[秘翻新闻](https://gettr.com/post/pzx1339b1e)**
+制作：香草山视频部
 
-**2022-03-14**
 
-**新闻内容:**
 
-**1. 上海急征民宅做隔离 医院现群聚感染**
+发稿：文敬
 
-**2. 中国广东、菲律宾、印尼连续地震 居民梦中惊醒**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**3. 泽连斯基坚持要求与普京直接会晤**
-
-**4. 美国五角大楼官员指出 俄罗斯”扩大 “了袭击目标范围**
-
-**5. 新中国联邦的乌克兰高效救援正在震惊国际媒体界**
-
-**🔗Gettr链接：**[https://gettr.com/post/pzx1339b1e](https://gettr.com/post/pzx1339b1e)
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,18 +2,25 @@
 ---
 
 
-## 拿着枪和棒棒糖的女孩
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2161267/)
+## 视频| 新中国联邦法治基金乌克兰人道救援信息
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2161301/)
 
-翻译/整理: 萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/03/03141.jpg)图片来自today.it
-一张 9 岁乌克兰女孩的照片，嘴里叼着棒棒糖，手里拿着步枪，头发上系着黄蓝相间的丝带，几小时内就在社交媒体上疯传。这张照片由女孩的父亲奥列克西·基里琴科拍摄，并在 Facebook 上发布，标题为“拿着糖果的年轻女孩”，以让世界关注俄罗斯对乌克兰的侵略。这位家长补充说这是他的霰弹枪，把它给她只是为了拍照。
+制作：香草山视频部
 
-然而在乌克兰孩子们那些悲剧的照片，流离失所和被剥夺了学校，被炸弹炸死，以及不打算放弃的乌克兰抵抗。这张照片在被欧洲理事会前主席唐纳德·图斯克拍下后在社交媒体上反应很大。
+鉴于目前乌克兰局势日益恶化，新中国联邦和法治基金救援团队再次发布公告表示，新中国联邦和法治基金与国际救援组织将协助华人同胞、美国及其他各国友人免费撤离。根据求助者的护照及签证状态，撤离地点为美国和其他安全中转国。我们在波兰的临时接待点将向求助者提供30天以内的免费食宿。
 
-原文链接:[https://www.today.it/mondo/bambina-fucile-lecca-lecca-chi-e.html](https://www.today.it/mondo/bambina-fucile-lecca-lecca-chi-e.html)
+自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发，前往波兰。此外，新中国联邦和法治基金的第一批救援专机将于近期从波兰出发。请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+求助方式及详细信息请参考以下视频。
 
-责任编辑/发布:意大利达芬奇农场   萧亦
+编辑：飞虹
+校对/发稿：文敬
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
