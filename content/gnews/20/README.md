@@ -2,20 +2,28 @@
 ---
 
 
-## 25岁超模海莉•比伯（Hailey Bieber）“脑部血栓”住院
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2161517/)
+## 俄乌战争：世界正面临粮食危机
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2161666/)
 
-翻译 意大利达芬奇农场 小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-14-alle-10.12.03.png)图片来源：eventiavversinews.it
-25岁的超模海莉•比伯在她的Instagram上分享了她最近住院的消息。贾斯汀•比伯的缪斯女神刚刚从医院回家，她因脑血栓住院， 海莉在她的Instagram上发布了一条消息，解释了发生的事情， 并向所有人保证她情况很好。
+**撰稿：日本东京方舟农场 子辰**
 
-海莉称这是她经历过的“ 最可怕的时刻之一”， 但她希望她的粉丝知道她现在在家，并且“很好”。“ 我非常感谢所有照顾我的优秀医生和护士！“ 她还补充说，“感谢所有带着美好祝愿和共同关心我的人，感谢所有的支持和爱。”她没有确切地分享她所经历的那种类似中风的症状， 也没有指出任何可能导致这种血栓的原因。
+2月24日自俄罗斯入侵乌克兰以后，全球粮食供应链受到影响，数百万人将面临粮食短缺问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-8.jpg)（图片来自大纪元）
+援引CNN的报导称，俄罗斯和白俄罗斯是肥料的主要出口国，自俄罗斯入侵乌克兰后，所有人都不想再接触俄罗斯产品。而白俄罗斯因支持俄罗斯入侵乌克兰，也受到西方的制裁。
 
-当然，很多人想知道这是否与冠状病毒有关， 但海莉从未就这个话题写过或陈述过任何观点。但是我们知道海莉参加了大都会艺术博物馆慈善晚宴，而妮琪•米娜 ( Nicki Minaj ) 却没有参加。因为只有接种新冠疫苗者才能参加。虽然没有证实她是否接种了疫苗，但这表明她已经接种了疫苗，对此我们并不是100%的确定。
+据悉，天然气是尿素等氮基肥料的关键成分，但目前天然气价格的飙涨助长了肥料供应紧张的问题。从而直接导致农民生产成本增长，进而影响农作物的产量。
 
-原文链接：[https://www.eventiavversinews.it/la-top-model-hailey-bieber-25-anni-ha-sofferto-di-un-coagulo-di-sangue-al-cervello-ed-e-stata-ricoverata-in-ospedale/](https://www.eventiavversinews.it/la-top-model-hailey-bieber-25-anni-ha-sofferto-di-un-coagulo-di-sangue-al-cervello-ed-e-stata-ricoverata-in-ospedale/)
+随着俄罗斯入侵乌克兰两周以来，俄、乌地区生产的主要农产品价格暴涨，而且战争对国际小麦供应有着最关键的影响。俄罗斯和乌克兰的供应占全球小麦贸易近30% ，现在这些交易也面临风险。目前，乌克兰港口一直无法正常出口粮食，而粮食贸易商考虑到对俄罗斯的金融制裁需要避免从俄罗斯采购。鉴于此，全球小麦价格不断创下历史新高。
 
-编辑、上传： Xiao  baige
+此外，乌克兰的小麦种植季节将因战争而中断，这对全球的粮食供应更是雪上加霜。
+
+参考链接：
+
+[https://www.epochtimes.com/b5/22/3/13/n13643755.htm](https://www.epochtimes.com/b5/22/3/13/n13643755.htm)
+
+撰稿：子辰
+总编：老孙
+校对发布：Linda
 
  
 
