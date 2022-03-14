@@ -2,8 +2,8 @@
 ---
 
 
-## 中共两会中的国内政治风暴
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2163744/)
+## 中国人成了全世界上最被仇恨的民族
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2163772/)
 
 台灣寶島農場
 
