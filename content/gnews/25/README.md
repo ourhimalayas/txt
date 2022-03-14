@@ -2,30 +2,30 @@
 ---
 
 
-## 志愿者凌晨为难民接车，难民对新中国联邦表感谢
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2160668/)
+## 乌克兰马立波被俄军围困，目前2187名平民丧生
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2160853/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
-整理/编辑：小红帽
+整理/编辑：小鱼儿
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-14_13-46-17.png)图片来源：郭文贵先生盖特视频截图
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/N2D4T@QTV3K_LPJS.png)图片来源：雅典娜设计组&Dubai
 
 
-3月13日，凌晨1点，法治基金和新中国联邦志愿者在波兰克拉科夫迎接两辆载有118人的救援大巴。志愿者在迎接大巴时准备了热咖啡，食物和婴儿食品。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-14_13-35-16.png)
-据法治基金和新中国联邦志愿者大卫报道：“今天，由法治基金和新中国联邦安排的，从乌克兰过来的两辆大巴上有一位6天大的婴儿。这是乌克兰救援行动以来，年龄最小的被救婴儿。婴儿现在在救援的巴士上面睡得很香甜。同时，新中国联邦的志愿者也为车上的难民准备了热茶，热咖啡，和食品。”
+据中央社（CNA）3月13日报道，乌克兰地方当局表示，自俄罗斯军队入侵至今，乌克兰被围困城市马立波（Mariupol），共有2187名马立波居民死于俄军攻击。马立波是一个人口约43万的、美丽的港口城市。
 
-“在另一辆大巴上，有12位来自俄军包围的东北战区的难民们。他们在路上向法治基金和新中国联邦的志愿者发信息表示感谢。”大卫补充道。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-14_13-36-27.png)
-接车后，志愿者主动帮助难民们拿行李，并引领他们去附近的火车站。
+据当局统计，俄军已在马立波空投约100枚炸弹。9日，当地一间妇幼医院遭到轰炸，造成17人受伤，并引发国际谴责。目前，仍约有40万人仍被困在当地无法离开。
 
-资料来源：[郭文贵先生2022年3月14日盖特视频](https://www.gettr.com/post/pzucaeebdf)
+当地政府警告，马立波的民众已在恶劣状态下苦撑了12天。当地没有电、没有水，也没有暖气，手机通讯几乎完全中断，仅剩的食物和饮水都消耗殆尽。
+
+参考链接：
+[俄軍圍城馬立波 迄今空投約百枚炸彈逾2100名平民喪生](https://www.cna.com.tw/news/aopl/202203140007.aspx)
+[维基百科](https://zh.wikipedia.org/wiki/%E9%A9%AC%E9%87%8C%E4%B9%8C%E6%B3%A2%E5%B0%94)
 
 发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)

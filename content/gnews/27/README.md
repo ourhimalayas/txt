@@ -2,29 +2,35 @@
 ---
 
 
-## 台湾｜台湾频传电厂火警 郭文贵曾爆中共将“对台电厂动手”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2160636/)
+## 新冠疫苗加强针不能缓解新冠疫情
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2160786/)
 
-**撰文/ 港台前線｜發佈日期/ 14/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-2-3.png)**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
-台湾新竹关西镇的新桃电力股份有限公司发生火警，新竹县政府消防局获报，派出共18车43人前往抢救，目前无人员受伤、受困。经济部长王美花表示，会启用备载机组，供电没问题且稳定；台电补充，新竹输电线路均正常。
+By：喜国公民
+视频来自网络
+美国作家亚历克斯·贝伦森在接受塔克节目采访时说，人类正处于一个非常危险的时刻，新冠疫苗对欧米抗病毒一点作用都没有。在新冠疫苗和加强针接种率高的国家，新冠病毒感染率高得惊人。
 
-台湾自蓬佩奥访台时点起，接连发生断电问题，发电厂、电力公司起火问题亦严重。对此，台湾政府及相关部门仅表示“供电无虞”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/photo_2022-03-14-13.38.31.jpeg) 來源：台灣電力公司/圖表顯示，3/14供電屬吃緊狀態
-据郭文贵直播透露，中共将对台发动战争，并将对攻击台湾电力供应、网路通讯系统，以达到侵略政治目的。
+贝伦森认为mRNA 新冠疫苗现在应该从市场上撤出。他说，新冠疫苗是危险的，对欧米抗变种病毒无效。用加强针来对抗新冠病毒的想法实在是疯狂。
 
-* * *
+给人们接种更多的mRNA疫苗将在人们体内产生与新冠病毒不匹配的刺突蛋白，会导致免疫系统的混乱。
 
-- 3/3 兴达电厂设备故障 549万户停电：兴达电厂开关场事故，造成全台停电户数共计约 549 万户，台湾电力公司说明，3兴达电厂设备故障造成南部系统解联。
-- 3/13 台南5区跳电40分钟：台南市中西区、北区、安平区、南区、东区等5区12日晚间6时30分发生路灯不亮的情况，经台电派员抢修，于7时10分复电。
-- 3/13 林口、万华再跳电 共3010户受影响：新北市林口区、台北市万华区13日晚间陆续传出停电，共计3010户受到影响，对此台电表示，变电所设备受潮、配电线路设备故障，导致分歧线路保护熔丝熔断、馈线跳脱，因此造成停电，时隔1小时22分后全数复电。
-- 3/14 新竹关西镇的新桃电力股份有限公司发生火警
+如果这些新冠疫苗当初是用来对付欧米抗病毒，就不会被药物管理局批准。辉瑞公司正试图在未来几个月内推出针对欧米抗变种病毒的mRNA新冠疫苗。
 
+到那时，很可能会出现另一种新的变种病毒。因此，辉瑞等制药公司将永远给人们提供与当前变种病毒不匹配的新冠疫苗，使情况变得越来越糟。
 
-* * *
+他呼吁每一个公共卫生部门，都应该立即禁止接种mRNA新冠疫苗。
 
-来源｜[yahoo](https://tw.news.yahoo.com/新桃電廠火警-大量濃煙竄出-031447271.html)
+幸运的是，欧米抗病毒不像delta变种病毒那样危险。如果另一个毒性更强的变种病毒出现了，人们应该想好如何应对。
 
+不幸的是，澳州卫生部长格雷格·亨特仍然建议人们接种第二剂加强针新冠疫苗，还将为65岁及以上的人群每年接种新冠疫苗。
+
+消息来源：[Canberra Press Conference, 11 March 2022](https://www.health.gov.au/ministers/the-hon-greg-hunt-mp/media/canberra-press-conference-11-march-2022-on-kimberley-kitching-japanese-encephalitis-extensions-to-vaccinationbooster-plan-winter-preparedness-plan-for-covid-and-flu)
+
+[Outrage as Alex Berenson baselessly tells Tucker Carlson ‘dangerous’ vaccines should be ‘withdrawn’](https://sports.yahoo.com/outrage-alex-berenson-baselessly-tells-163910649.html)
+
+*编辑：喜国公民*
+
+*发布：喜国公民*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,54 @@
 ---
 
 
-## 喜币可用于小飞象&amp;小飞侠流水打赏和医疗服务及各领域
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2161186/)
+## 战云笼罩下有全世界支持的台湾军队一定不会逊于乌克兰
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2161310/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8810.61%EF%BC%89%E5%96%9C%E5%B8%81%E5%8F%AF%E7%94%A8%E4%BA%8E%E5%B0%8F%E9%A3%9E%E8%B1%A1%E3%80%81%E5%B0%8F%E9%A3%9E%E4%BE%A0%E6%B5%81%E6%B0%B4%E6%89%93%E8%B5%8F%E5%92%8C%E5%8C%BB%E7%96%97%E6%9C%8D%E5%8A%A1%E5%8F%8A%E5%90%84%E9%A2%86%E5%9F%9F%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:3)
+Youtube视频链接：[https://youtu.be/IheJiZ39qZo](https://youtu.be/IheJiZ39qZo)
 
-郭文贵先生：好，刚才，首先文紫说战友之间看病这种HDO的交往，H-Pay，越用得越多越好。而且战友们，真的，我是真的发现很多战友真的很傻，不是一般的傻。没有人了解H-Pay，你看这么多人解（读），包括我们现在最火的节目，就是我们的鸡血王这个节目。然后唐平也问我说，有人要打赏行不行？当然行！就是要鼓励大家打赏啊！我们这个H-Pay就要在战友之间流通啊。
+Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
-现在像小飞象跟小飞侠睡觉，我觉得小飞侠就应该跟小飞象之前谈好，是不是？流一次水，咱得十个币，是吧？为啥不可以呢？先交钱，后办事，是吧？我建议你们这样，增加交易，这不是开玩笑。瑞沃路森你笑什么？跟你漂亮旁边的你的发妻说“以后只要你让我流一次水，我就给你发十个币”，是吧？Danny，你不要开玩笑。
+**Karen****：**七哥好，我想问一个问题，现在台湾如果以他现在的军力，如果在没有美军和联军出兵支持下的时候，能够像乌克兰这样子能够坚持抵抗多长的时间？
 
-刚才文紫的问题适合各个领域，为什么不可以呢？夫妻之间的所有的这种流水就是高潮，高潮就可以有奖励。包括孩子帮助了别人回来，给孩子奖励。“孩子，我可以给你几个币奖励”，是吧？你需要，我会给你奖励。
+**郭文贵先生：**超不过20个小时，就是你在拥有他们这样的领导智慧，拥有他这样的勇气和全民同心的情况下，超不过20个小时一定的，那个代价是巨大的。
+
+我再给大家重申的事情，现在俄罗斯叫世界跌破了眼睛。大家认为整个俄罗斯的现代化战争、立体化战争、所谓的AI的战争到来的时候，对基辅周围这种突然的袭击，立体化的打击，几乎几个小时的事儿，不会超过一天。
+
+但是俄罗斯军方并没有这么采取这些作战。（他采用）最传统的就是直插式包围，然后的分别包围，然后天空作为空军作为轰炸，然后战略性威胁，然后虚假信息喊口号，这是传统的不能再传统了，5000年来都是这个样子。
+
+那么这个情况下，你看看一个这么强大的完全的可以说是一个壮丁，一个拿着枪的兵在打一个七八岁的孩子，结果是如此之悲惨。这个孩子躲藏——躲猫猫，哭——示弱，引起了全世界的同情，一下子拖到现在——这已经是传奇，但接下来乌克兰会非常非常的惨。
+
+苏联只要不倒——俄罗斯，一定会很惨，甚至都想动用核武器的可能都有，这是他们绝对敢的——太丢人了！是吧？我现在就打一个六七岁的孩子，越打：追不着、摸不见，我就不是打他屁股了，我可能就要拿刀、拿斧子、拿棍子、甚至拿枪——就是穷凶极恶。
+
+反过来说到台湾，现在“习太阳”大家都看着——哇塞，原来这样，原来这样。他一定是把他第三个方案拿出来，咱必须快干。快干就是一开始的时候就不顾及世界上什么人道、人权，什么无辜的老百姓，他就不考虑这个了。而且是最快的办法就是导弹，就是导弹，甚至准核武器现在和导弹之间的距离，越来越小了——空间。比如说一个导弹的杀伤力多少，有没有核杀伤力的这种作用，带不带核材料你很难确定了。
+
+这个世界上有很多特别是中国有很多这种模糊的这种杀伤力导弹，它可能直接就给你攻过去。直接就把整个台中东半岛所有的军事设施，然后整个是高雄、台北的所有的主要政府机构、军队所在地，他就是给你来个狂轰乱炸。
+
+这种炸的时候可能是非常之快，连着炸上几个小时、10个小时；台湾肯定有一波极为猛烈的反击，台湾这个时候就一定是对大连、福建、上海等沿海、广东、江西的基地（打击），台湾的武器都是美国的，一定会上，而且可能还会占优势。
+
+大家别忘了今天的乌克兰真正的赢——还是北约在后面撑着他的。还是北约用了技术上的资源和美国派出的技术上的部队，这叫什么？代理人战争！核心老大在旁边指导，就像两个选手旁边有教练，而且给递水递茶的，是吧？要不然乌克兰可能一个小时也撑不住就完了。老百姓也懂，泽连斯基也懂。
+
+台湾这个绝对不一样的，台湾如果说能撑过三小时，我觉得台湾就赢了，不用撑过一天。为什么？美国、日本一定上，一定上！澳大利亚这邻居一定上！甚至是直接参与战争！而且如果上的话，我说过三分钟——美国要想玩狠的话三分钟，就共匪的3万多个基地，你绝对从天上“唰”就下去了。
+
+它不会是瞄半天——跟共产党拍电影一样，旁边这还谈恋爱，然后亲亲嘴，然后写遗书，然后再唱几首歌，没这事儿知道吗？“唰”一个键下去——全部给你扫平，一定是这结局。要么就美军已经跟台军勾兑好了，台军导弹的时候，你怎么反导弹怎么用？只要导弹过来，我这块的导弹就直接打到你上海、北京、广州、深圳、大连基地，（应该）怎么弄！
+
+可能第一波共匪他觉得自己很牛叉的。这是美军装备是吧？而且是AI战争,直接“咵”就给你过去了，说不定这回谁死的人多。这个时候“共匪”会疯狂，可能拿出什么核武器威胁，甚至真敢动两下子，都是有可能。
+
+但是我今天告诉……我先给你分享的Karen，我觉得台湾的部队不管如何，我觉得这次一定会大战，一定会大战，我相信台湾人不会输乌克兰人。因为台湾人70年被受这窝囊气，你想什么人能受得了70年呢？而且这全家人都在岛上，更重要是台湾有全世界的支持。
+
+你知道美军，就像刚才有人问我，我身边人说“为什么乌克兰——美军、北约不打，是吧？为什么台湾一定打？”，我说很简单，台湾就像我和卡丽熙你们这关系，能不打吗？是不是？那肯定打！乌克兰是啥关系？不是咱们的战友，是战友的战友，他还没有什么——也没什么G系列投资，也没跟我们上过街，这可以不打，可以不帮。
+
+那只要你们几个——卡丽熙、千羽，好好，还有Karen,那二话不说就冲上去了，对吧？就这么简单道理。切身利益、自身安全、共同的生死的这种关系，这一定的。谢谢Karen。
 
 编辑整理：Jacques；
 
-字幕档制作：兵嫂；
+字幕文件制作：小满；
 
 视频制作及上传：Cindy；
 
-G-News发布：海贼王M.D.LUFFY；
+G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
 声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
@@ -29,15 +57,15 @@ G-News发布：海贼王M.D.LUFFY；
 
 Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
 盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：日本银河系农场。
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

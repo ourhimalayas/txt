@@ -2,32 +2,44 @@
 ---
 
 
-## 志愿者跟外国记者强调新中国联邦反对中国共产党
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2160925/)
+## 战争中的信息战:干掉的俄罗斯坦克飞机,孩子,模特,老人
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2161179/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+Youtube视频链接：[https://youtu.be/q4qdPRPQVsM](https://youtu.be/q4qdPRPQVsM)
 
-整理/编辑：小红帽
+Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-14_14-22-47.png)图片来源：郭文贵先生盖特视频截图
+**郭文贵先生：**结果怎么样？这个“绅士先生”坚持了不到17个小时，英国已经不是欧盟国家了，这个Boris Johnson说：“这哥们儿不简单呀，真扛他，他真打呀！” 话音未落，一系列的媒体上出来了——-孩子、士兵离别、老人被撵、大楼被炸，全是平民，然后俄兵被干倒……
 
+大家记住，第二招太牛了！这叫什么？“战争中的信息战”。你看到过俄罗斯发出的信息谁信？有人信吗？它发啥都没人信！这哥们儿就找人一站：我干了它!130个坦克；30架飞机；30架护卫机，然后多少人…所有社交媒体，孩子出来唱《国歌》，模特哭倒、老人痛哭、然后在坦克前面儿阻挡坦克…你见一个这样的视频有俄国的吗？在西方主流媒体上？
 
-3月12日，新中国联邦和法治基金的乌克兰救援团队志愿者妮可向一位外国记者介绍法治基金。妮可向记者展示了法治基金提供的所有物资并且强调新中国联邦反对中国共产党。
+战争信息中的利用和媒体，泽连斯基牛了！你可能不知道，这是他一个“发小”帮他干的。Telegram本来就是俄罗斯人用的，而Telegram大老板就是UAE是吧？UAE在这事儿是跟俄国站在一边儿的——阿布扎比，跟它站在一边儿UAE！Telegram“咵咵”就出来了，Facebook，还有我们的Gettr“咣咣咣”的，牛吧？又开启了……
 
-妮可表示，新中国联邦和法治基金的志愿者是纽约法治基金派遣过来的。救援中心的设施就是法治基金购置的。救援中心为难民提供食物、咖啡、茶、零食和水果。几天前，新中国联邦和法治基金的志愿者刚刚与西班牙的“全心全意基金会”成功从乌克兰的尼科波尔地区的一家孤儿院救出了近100名孩子。法治基金的志愿者还成功救出了350人，其中有乌克兰人，美国人等。这是新中国联邦和法治基金的志愿者来这里的目的。
+编辑整理：Jacques；
 
-妮可跟记者强调：“我们是新中国联邦人，所有救援行动都是由法治基金资助和组织的。有一个非常重要的地方，我要澄清一下，因为很多人看到我们中国人和中国字在这里，他们会持怀疑的态度。他们会想，这些人是中共政府派来的吗？因为中共政府跟普京是一伙的。我想说，不是的，我们是完全反对中共政府的。新中国联邦是独立的，我们来自新中国联邦，这就是大家信任我们的原因。我们渴望和平，自由，正义和法治。”
+字幕文件制作：小满；
 
-资料来源：[郭文贵先生2022年3月14日盖特视频](https://www.gettr.com/post/pzu13v4bc9)
+视频制作及上传：Cindy；
 
-发布：tianzhihuan
+G-News发布：小满；
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
