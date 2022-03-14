@@ -2,20 +2,35 @@
 ---
 
 
-## 法治基金乌克兰救援行动成效显著
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2165274/)
+## 今日盖特大V推荐 — 凯莉·麦克纳尼（Kayleigh McEnany）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2165305/)
 
-加拿大温哥华扬帆农场    平民正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/a8o6s-atvfz.jpg)
+盖特链接：[https://gettr.com/user/KayleighMcEnany](https://gettr.com/user/KayleighMcEnany)
 
-据3月12日盖特消息，法治基金人道救援队当天在波兰麦迪卡搭建了当地最大，设施最全的营救帐篷，并因免费提供救援现场唯一的现磨咖啡，而成为难民和各地记者最心仪的避难所。
+**凯莉·麦克纳尼自述：**
 
-据悉，著名法国战地女记者[路易莎]在喝完久违的咖啡之后，对新中国联邦战地救援行动的专业性和完善性叹为观止，赞不绝口。目前，该中心帐篷内已设置了休息区、儿童游乐区、充电区以及餐饮咖啡区，并已接待了超过近500名逃难的妇女和儿童。
+共同主持人@OutnumberedFNC，@FoxNews。
+前白宫新闻秘书。 哈佛法学博士。 乔治敦。 牛津。 幸存者。
+@GilmartinSean 的妻子。 #BabyBlake 的妈妈。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/ccv.jpg)图片来源：网络
+**凯莉·麦克纳尼简介：**
 
-本次法治基金乌克兰救援行动，不仅向世人展示出新中国联邦人才是真正能消灭共产党的中国人，而且也再次证明了中共政权是全世界灾难的根源，只有彻底消灭该暴政才能拯救全人类。
+凯莉·麦克纳尼（Kayleigh McEnany，1988年4月18日－）是美国政治评论员，律师和作家。曾担任川普政府的白宫新闻发言人。
 
-* * *
+凯莉·麦克纳尼毕业于乔治敦大学和哈佛法学院。她的媒体职业生涯始于担任福克斯新闻“赫克比”（Huckabee）节目的制片人，后又担任CNN的评论员。2017年，她被任命为共和党全国委员会的国家发言人。2020年4月7日，她被任命为川普政府的白宫新闻发言人。
 
-编辑： 平民正道    发布：平民正道
+**她是两本书的作者：**
+《新美国革命：民粹主义运动的形成》（The New American Revolution: The Making of a Populist Movement）
+《在这样的时刻: 我在白宫及之后的信仰之旅》（For Such a Time as This：My Faith Journey through the White House and Beyond）
+
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+校审：洛杉矶盘古农场 —心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

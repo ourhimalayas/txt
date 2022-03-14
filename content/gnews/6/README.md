@@ -2,31 +2,30 @@
 ---
 
 
-## 今日盖特大V推荐 — 蒂姆·普尔（Tim Pool）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2165225/)
+## 澳大利亚宣布对俄罗斯实施新制裁
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2165239/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/azz.jpg)
-盖特链接：[https://gettr.com/user/timcast](https://gettr.com/user/timcast)
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-***蒂姆·普尔自述：***
+3月14日，澳大利亚对俄罗斯扩大制裁范围，宣布对33名俄罗斯寡头、知名商人及其直系亲属实施新的制裁。
 
-记者, 不满的自由主义者、评论员、电影制作人、滑板手、音乐家 、前Fusion公司副总
-![](https://assets.gnews.org/wp-content/uploads/2022/03/cczz.jpg)
-图片来源：网络
+据《大纪元》报道，澳大利亚外交部发布声明表示，这轮新制裁针对的是那些积累了大量个人财富并对俄罗斯具有经济和战略意义的人，其中一些人和俄罗斯总统普京有关联。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-68.jpg)图为2月底澳大利亚国会大厦笼罩在乌克兰国旗颜色的灯光中（图片来自GARY RAMAGE/Gary Ramage/AFP via Getty Images）
+这些最新进入澳洲制裁名单的人包括：切尔西足球俱乐部（Chelsea Football Club）老板阿布拉莫维奇（Roman Abramovich）、俄罗斯天然气工业股份公司（Gazprom）首席执行官米勒（Alexey Miller）。
 
-蒂姆·普尔简介：
+还有俄罗斯银行Rossiya主席德列别杰夫（Dmitri Lebedev）、俄罗斯国家技术集团（Rostec）主席切梅佐夫（Sergey Chemezov）、输油管道公司 Transneft首席执行官尼托卡列夫（Nikolay Tokarev）、俄罗斯国有开发银行（VEB，Vnesheconombank）主席舒瓦洛夫（Igor Shuvalov）和俄罗斯直接投资基金（RDIF）首席执行官德米特里夫（Kirill Dmitriev）等。
 
-蒂姆·普尔（Timothy Daniel Pool生于1986年3月9日）是美国著名记者、YouTuber、播客主持人和政治评论员。
+澳大利亚政府还表示，支持加拿大、欧盟、新西兰、英国和美国最近针对俄罗斯关键人物进一步实施限制的措施。
 
-蒂姆·普尔最初以直播2011年占领华尔街抗议活动而闻名。2013年加入副媒体集团（Vice Media），2014年加入融合电视（Fusion TV）担任媒体创新总监和高级记者。之后独自在YouTube等平台工作。
+此前，俄罗斯入侵乌克兰后，澳大利亚已对一些俄罗斯政治人物和寡头祭出制裁，包括总统普京（Vladimir Putin）、外交部长拉夫罗夫（Sergei Lavrov）和国会议员。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+参考链接：
+1.[https://www.epochtimes.com/gb/22/3/14/n13644587.htm](https://www.epochtimes.com/gb/22/3/14/n13644587.htm)
+2.[https://www.cna.com.tw/news/aopl/202203140376.aspx](https://www.cna.com.tw/news/aopl/202203140376.aspx)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+撰稿：幽蘭自得
+总编：老孙
+校对发布：小斐
 
  
 

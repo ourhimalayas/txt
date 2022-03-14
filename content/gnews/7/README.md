@@ -2,96 +2,20 @@
 ---
 
 
-## 来自仍在乌克兰的娜塔莉亚的最新消息
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2165200/)
+## 【粤语配音】2022年3月14日：新中国联邦是中国人民当家作主的推动者
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2165236/)
 
-Secretary Antony Blinken:
-国务卿 安东尼 布林肯
+紐約香草山-香港部
 
-An update from Nataliya, who is still in Ukraine.
-来自仍在乌克兰的娜塔莉亚的最新消息。
+俄乌前线，现在是变化巨大，据我所知，目前除了战争中的军人之外，救援工作24小时值班的，只有我们一家，而且我们将成为第一家，唯一一家，在战争中走进乌克兰国土上的，我们的战友将带着国际专业的护卫安全人员，带着追踪仪、带着车，到乌克兰境内去接人去，接中国同胞，接乌克兰妇女孩子。
 
-She is staying with her people in the place she has made her new home.
-她和她的人一起住在她建造新家的地方。
+共产党说，我在开战没几天前我就说”我们把中国同胞都救走了”，听说昨天刚刚有100多个中国人被救出去，到了捷克斯洛伐克，主要原因就是怕被我们救走，由于有竞争，由于有对比，让这100个中国人，让共产党想起来了，不在灭口了，救出去，到了捷克斯洛伐克，中国广播电视公司的人，100多个，在苏梅区，在地下室呆了那么多天，这帮共产党的孙子，太坏了，就这么撒谎。病毒。美国军队搞的，现在新中国联邦基金，新中国联邦救人，代表中国政府在救人，“铁锁女””锁链女”张冠李戴，不是李莹，是张莹，是华春莹，就这么胡说八道，这帮孙子。
 
-In the face of mass destruction, Nataliya and her NGO have opened a shelter for those who have escaped Eastern and Southern Ukraine.
-面对大规模破坏，娜塔莉亚和她的非政府组织为逃离乌克兰东部和南部的人开设了避难所。
+香港，人家100年加一起非正常死亡人数才3000人，你不到300多天就死了一万多人，600多天死了将近三万人、两万多人，正常，是吧，那为啥共产党你来了就这么多人死呢？这正常吗？
 
-Hello . I’m Nataliya,
-大家好， 我是娜塔莉娅
+现在的世界形势大家看到了吗？美国欧洲都在放狠话，共产党你和俄罗斯在一起。你是要有结果，要付出代价的，不但如此，听说俄乌谈判，共产党在后面烧火，然后现在发现共产党，经过七哥爆料革命的爆料，在中东的蠢蠢欲动，美国现在很警觉，共产党想搞事儿想搞事儿…你能搞得成吗？共产党你在国际上你没有一件事是赢的，你唯一的就是统治中国人民，用谎言、用黑社会、用黑警的手段，统治中国人民成功了，没有一样成功的，永远都不会成功。有我在，有新中国联邦在，新中国联邦就是消灭中国共产党后的，帮助中国人获得一人一票选举制度的，中国人民当家做主的推动者，新中国联邦。
 
-I was talking to you just a month ago,
-一个月前我告诉过你们
-
-And from that time the life of Ukraine changed fully
-从那时起，乌克兰的生活发生了翻天覆地的变化
-
-Now we have war, and it’s the worst what could happen to my country
-现在我们有战争，这是我的国家可能发生的最糟糕的事情
-
-These Russia soldiers bombing our city
-这些俄罗斯士兵轰炸我们的城市
-
-It’s just fully destroyed
-它完全被摧毁了
-
-Many civilian people died
-许多平民被杀
-
-Our military forces, they can’t protect everybody
-我们的军队，他们无法保护所有人
-And it’s not about militaries, it’s about civilian people who are dying in their houses, in their apartments even in their basement.
-这不是关于军队，而是关于在他们的房子里、在他们的公寓里甚至在他们的地下室里死去的平民。
-
-They can’t escape from this nightmare
-他们无法摆脱这场噩梦
-
-Yesterday my daughter said that she cannot live like that anymore
-昨天我女儿说她不能再这样生活了
-
-Because when there was next air raid alarm, she was so scared.
-因为当下一次空袭警报响起时，她非常害怕。
-
-And she said that she don’t want to stay here.
-她说她不想留在这里。
-
-And I can’t do anything because I want to stay with my people in my city, be-cause it’s still quite ok
-我什么也做不了，因为我想和我的人民呆在我的城市，因为这里还是不错
-
-But I just can’t imagine what those children feel that stay in Kyiv and Kharkiv
-但我无法想象那些孩子留在基辅和哈尔科夫的感受
-
-In our NGO, we opened shelter where we give accommodation to the people who escaped from eastern and southern part of Ukraine.
-在我们的非政府组织中，我们开设了避难所，为逃离乌克兰东部和南部的人们提供住宿。
-
-And also we collect and distribute different goods for internally displaced peo-ple.
-我们还为国内流离失所者收集和分发不同的货物。
-
-How I felt now, it…this is humanitarian catastrophe.
-我现在的感觉，它……这是人道主义灾难
-
-It’s pure evil
-它纯粹是邪恶的
-
-原视频链接:[https://twitter.com/secblinken/status/1501718955530018817?s=24](https://twitter.com/secblinken/status/1501718955530018817?s=24)
-
-Date:03/013/2022
-原视频标题: An update from Nataliya, who is still in Ukraine
-来自仍在乌克兰的娜塔莉亚的最新消息
-原视频日期：2022/03/09
-原视频链接: https://twitter.com/secblinken/status/1501718955530018817?s=24
-任务编号：KE451（3970）
-
-英听校: 洛杉矶盘古农场 – Raul
-翻译: 洛杉矶盘古农场 – Raul
-翻译终校: 洛杉矶盘古农场 – 好人有好报
-字幕+视频制作：洛杉矶盘古农场-庚子
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+现在连深圳都关了，香港关了，还有多少城市要关？你关得完吗？我不相信14亿中国人，天天像被你这么老鼠、像羊这样虐待，我就不相信中国不再出郭文贵，出一万个郭文贵，你就玩球蛋了，看着你共产党灭亡的时刻，真的可能比我预想的时间提前到来，还有我相信，共产党一定还是共产党灭了共产党，现在曾庆红，王岐山、江家、江志成、马云、孟建柱，还有几天的蹦跶？蹦达不了几天，在二十大前后，一定要把曾、王、孟拿下，否则的话，习能安全吗？是吧？不可能的吧，那么中国的经济人民币呢？港币呢？今年的大洪水的可能性是很大的，据共产党的内部人说，都在发洪水，农村再不收成，这个病毒疫苗，然后全世界在封杀中国，你们内部能活下去吗？你能活吗？
 
  
 

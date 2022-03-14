@@ -2,30 +2,41 @@
 ---
 
 
-## 澳大利亚宣布对俄罗斯实施新制裁
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2165239/)
+## 女子打断俄罗斯电视新闻广播抗议战争
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2165292/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-3月14日，澳大利亚对俄罗斯扩大制裁范围，宣布对33名俄罗斯寡头、知名商人及其直系亲属实施新的制裁。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0106.jpg)
 
-据《大纪元》报道，澳大利亚外交部发布声明表示，这轮新制裁针对的是那些积累了大量个人财富并对俄罗斯具有经济和战略意义的人，其中一些人和俄罗斯总统普京有关联。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-68.jpg)图为2月底澳大利亚国会大厦笼罩在乌克兰国旗颜色的灯光中（图片来自GARY RAMAGE/Gary Ramage/AFP via Getty Images）
-这些最新进入澳洲制裁名单的人包括：切尔西足球俱乐部（Chelsea Football Club）老板阿布拉莫维奇（Roman Abramovich）、俄罗斯天然气工业股份公司（Gazprom）首席执行官米勒（Alexey Miller）。
 
-还有俄罗斯银行Rossiya主席德列别杰夫（Dmitri Lebedev）、俄罗斯国家技术集团（Rostec）主席切梅佐夫（Sergey Chemezov）、输油管道公司 Transneft首席执行官尼托卡列夫（Nikolay Tokarev）、俄罗斯国有开发银行（VEB，Vnesheconombank）主席舒瓦洛夫（Igor Shuvalov）和俄罗斯直接投资基金（RDIF）首席执行官德米特里夫（Kirill Dmitriev）等。
+图片来源：视频截图
 
-澳大利亚政府还表示，支持加拿大、欧盟、新西兰、英国和美国最近针对俄罗斯关键人物进一步实施限制的措施。
+周一，在俄罗斯国营第一频道的直播中，一名反战抗议者跑在一名俄罗斯新闻主播身后，并展示了抗议俄罗斯对乌克兰战争的标语。
 
-此前，俄罗斯入侵乌克兰后，澳大利亚已对一些俄罗斯政治人物和寡头祭出制裁，包括总统普京（Vladimir Putin）、外交部长拉夫罗夫（Sergei Lavrov）和国会议员。
+标语上写着：“停止战争。不要相信宣传。他们在这里骗你。”
 
-参考链接：
-1.[https://www.epochtimes.com/gb/22/3/14/n13644587.htm](https://www.epochtimes.com/gb/22/3/14/n13644587.htm)
-2.[https://www.cna.com.tw/news/aopl/202203140376.aspx](https://www.cna.com.tw/news/aopl/202203140376.aspx)
+多名记者指认抗议者是俄罗斯最受欢迎的新闻频道之一第一频道的编辑玛丽娜·奥夫扬尼科娃（Marina Ovsyannikova）。
 
-撰稿：幽蘭自得
-总编：老孙
-校对发布：小斐
+她事先录制了一段视频，该视频随后在网上疯传，指责宣传网络并为她在那里工作而道歉。
+
+“不幸的是，过去几年我一直在为第一频道工作，”奥夫扬尼科娃在视频中说，“我一直在做克里姆林宫的宣传，我对此感到非常羞耻——我让人们在电视屏幕上撒谎，允许俄罗斯人民被僵尸化。”
+
+“2014年刚刚开始，我们什么都没说。克里姆林宫毒害纳瓦尔尼时，我们没有抗议。我们只是默默地看着这个不人道的政权。现在全世界都背弃了我们，我们的十代子孙不会洗掉这场自相残杀的战争，”她继续说。她指出她的父亲是乌克兰人。
+
+该视频最初由 OVD-Info 发布，这是一个旨在打击政治迫害的俄罗斯人权媒体项目。
+
+据报道，她已被当局拘留。
+
+最近几周，俄罗斯打击了独立媒体。普京于 3 月 4 日推出了一项新的审查法，限制媒体向公众传播信息，禁止任何人将入侵称为“战争”。
+
+这种审查导致《纽约时报》和彭博社等主要媒体暂停在俄罗斯的实地报道，许多其他记者因害怕入狱而离开。
+
+据 OVD-Info 称，近 14,000 名反战抗议者在俄罗斯各地被捕。
+
+🔗 [https://thehill.com/policy/international/598148-woman-interrupts-russian-tv-news-broadcast-to-protest-war](https://thehill.com/policy/international/598148-woman-interrupts-russian-tv-news-broadcast-to-protest-war)
+
+编辑发表： Shuizhuyu
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 10:43 PM (UTC)`
+
+Mr. Miles Guo accurately predicted the ultimate end of the mandatory vaccines and the fate of the big vaccine companies<br/><br/>郭文贵先生准确预言停止强制疫苗和疫苗大公司的最终结局<br/>
+![img](https://media.gettr.com/group30/getter/2022/03/14/22/899b134f-576d-0acd-5087-d135190a1c41/out.jpg)
+
+---
+
 `@miles 3/14/2022 10:38 PM (UTC)`
 
 3/14/2022 Miles Guo’s GETTR: My exposure of the CCP’s furtive actions in the Middle East has put the US and Europe on the alert; the CCP will pay a dear price for supporting Russia; the economy of Communist China is on the verge of collapse; the upcoming 20th Party Congress will accelerate the taking down of the CCP from within; the New Federal State of China will be the promoter of “One person, One vote” policy in China post the demise of CCP.<br/><br/>3/14/2022 文贵盖特：文贵爆料的中共在中东蠢蠢欲动引起了欧美的警觉；中共与俄罗斯狼狈为奸一定会付出代价；中共国的经济已到了崩溃的边缘；二十大前后中共有可能被自己人灭掉，新中国联邦将在没有共产党的中国推动一人一票的民主制度<br/>
@@ -152,13 +159,6 @@ The war pianist just moved the piano right next to the tents provided by the ROL
 
 <br/>3月14号：尊敬的战友们好，新中国联邦人．正在以消灭中国共产党……追求国际正义，人道．人权的新亚洲人……广泛得到国际的好评和尊重，我们要为亚洲人发声，我们要让全世界知道，我们是消灭中国共产党了中国人！正义的亚洲人，在前线参与乌克兰战场救援的兄弟姐妹们，你们是英雄，你们所做的一切都在影响和改变了中国人，和亚洲人在世界的形象，文贵在此向你们鞠躬致谢！
 ![img](https://media.gettr.com/group28/getter/2022/03/14/13/778856ca-597a-d978-5a89-2f875bbe62b6/out.jpg)
-
----
-
-`@miles 3/14/2022 12:56 PM (UTC)`
-
-2022.03.14 早 《新中国联邦新闻》
-![img](https://media.gettr.com/group45/origin/2022/03/14/12/cfe39c71-6649-ce9f-f207-461b2eaac075/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

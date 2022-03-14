@@ -2,34 +2,32 @@
 ---
 
 
-## 中共无耻阻挠新中国联邦救援信息的传播
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2165166/)
+## 今日盖特大V推荐 — 蒂姆·普尔（Tim Pool）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2165225/)
 
-##### 作者：加拿大温哥华扬帆农场 – 文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/azz.jpg)
+盖特链接：[https://gettr.com/user/timcast](https://gettr.com/user/timcast)
 
-3月10日，澳洲的［悉尼乌克兰协会］在其官网首页登载了［新中国联邦］关于乌克兰人道救援的联络信息，介绍了新中国联邦和爆料革命的愿景和目标，声称该举措是新中国联邦的人道主义行动，帮助流离失所的人撤离到其他国家。然而不到24小时该信息被撤下，令人费解。
+***蒂姆·普尔自述：***
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/111-6.jpg)图片来源：hromada
+记者, 不满的自由主义者、评论员、电影制作人、滑板手、音乐家 、前Fusion公司副总
+![](https://assets.gnews.org/wp-content/uploads/2022/03/cczz.jpg)
+图片来源：网络
 
-据文贵先生3月11日的大直播透露，其原因是中共外交部无耻抹黑新中国联邦是非法组织，并用14亿人的市场对乌克兰政府进行威胁所致。这是中共对身陷乌克兰战区亟需救助的各国人民生命安全直接侵犯，再次暴露中共是世界和平与安全的破坏者。
+蒂姆·普尔简介：
 
-救援前线的战友们不为所动，各项营救工作仍在有条不紊地进行。新中国联邦的人道救援无欲无求，不仅展现了新中国人真诚、勇敢、友善的新面貌，也成为救援现场各大媒体争相报道的焦点。
+蒂姆·普尔（Timothy Daniel Pool生于1986年3月9日）是美国著名记者、YouTuber、播客主持人和政治评论员。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/222-1.jpg)图片来源：gettr
+蒂姆·普尔最初以直播2011年占领华尔街抗议活动而闻名。2013年加入副媒体集团（Vice Media），2014年加入融合电视（Fusion TV）担任媒体创新总监和高级记者。之后独自在YouTube等平台工作。
 
-[新闻来源](https://gettr.com/streaming/pzg47d4994)
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-编辑/上传 – 熙攘
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
