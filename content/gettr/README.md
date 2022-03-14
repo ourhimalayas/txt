@@ -17,6 +17,48 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 10:09 PM (UTC)`
+
+【Ukraine Rescue】03/13/2022 Volunteer Nicole introduces to Agence France-Presse that the NFSC & ROLF Ukraine Humanitarian Rescue station would receive 500-1000 refugees daily, and that taking down the CCP is our mission.<br/><br/>【乌克兰救援】03/13/2022 志愿者妮可向法新社记者介绍新中国联邦法治基金乌克兰人道救援行站每天都会接纳500-1000名难民，以及我们致力于推翻中共的使命。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group22/getter/2022/03/14/22/c104e34e-6104-e559-01d0-503408bfdd83/out.jpg)
+
+---
+
+`@miles 3/14/2022 10:06 PM (UTC)`
+
+3/14/2022 Miles Guo: The people inside the CCP understand that the H-Coin is their last resort when facing the upcoming demise of the Party; our fellow fighters working at the Ukrainian rescue frontline are demonstrating the new image of Chinese people who are taking down the CCP, winning honor for the entire Asian people<br/><br/>3/14/2022 文贵直播：中共内部的人知道喜币是中共行将灭亡之际的唯一救命稻草；乌克兰救援前线的战友向世界展示了灭共的新中国人的新面貌，为亚洲人争了脸<br/>
+![img](https://media.gettr.com/group39/getter/2022/03/14/22/d7183c61-07eb-093b-bac7-2ad4d9ecd108/out.jpg)
+
+---
+
+`@miles 3/14/2022 10:04 PM (UTC)`
+
+3/13/2022 Miles Guo: What is the basis for kicking Russia out of SWIFT? Why will the CCP be kicked out of SWIFT next? What will be the consequences of being removed from SWIFT?<br/><br/>3/13/2022 文贵直播：把俄罗斯踢出SWIFT有何依据？为什么接下来中共也会被踢出SWIFT系统？被取消SWIFT后会造成什么后果？<br/>
+![img](https://media.gettr.com/group13/getter/2022/03/14/22/4c61245c-eb42-fecc-175a-349ea1bde362/out.jpg)
+
+---
+
+`@miles 3/14/2022 10:02 PM (UTC)`
+
+3/13/2022 Miles Guo: What did Liu Yanping whisper to me back then? What message did Liu Yanping help the Zeng family deliver to me? The day Liu Yanping was arrested, his daughter and mother-in-law committed suicide. Why was Liu Yanping able to be promoted to the CCP’s Central Commission for Discipline Inspection overnight? Who is the “prostitute-type” politician in the CCP?<br/><br/>3/13/2022 文贵直播：当年刘彦平跟文贵耳语说了啥？刘彦平帮曾家捎了什么信给文贵？刘彦平被抓当天，其女儿和岳母自杀；刘彦平为何能一夜之间升到中纪委？谁是“妓女型政客”？<br/>
+![img](https://media.gettr.com/group50/getter/2022/03/14/22/b81aa252-7c4f-ba78-5fa9-d3c214af9b79/out.jpg)
+
+---
+
+`@miles 3/14/2022 9:59 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-14
+![img](https://media.gettr.com/group8/origin/2022/03/14/21/ea58ccbd-fc31-ba79-4002-b6ee5b3fbbb9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/14/2022 9:59 PM (UTC)`
+
+3/13/2022 Miles Guo: The CCP's boast of having stockpiled two and a half years of grain reserve is a total lie! Once the CCP is kicked out of SWIFT, the RMB will become scrap paper, and all the assets hidden overseas by the CCP's illegitimate children will be gone!<br/><br/>3/13/2022 文贵直播：中共吹嘘已经储备了两年半的粮食完全是谎言！一旦中共被踢出SWIFT系统，人民币将成废纸，中共私生子女海外藏匿的财产也都将化为乌有！<br/>
+![img](https://media.gettr.com/group27/getter/2022/03/14/21/e0aea6f2-bbd1-192d-db4e-d75cc9247baf/out.jpg)
+
+---
+
 `@miles 3/14/2022 9:55 PM (UTC)`
 
 【Ukraine Rescue】03/13/22 A pianist came to play in front of the NFSC’s base camp again<br/><br/>【乌克兰救援】03/13/22 钢琴家再次来到新中国联邦大本营门口演奏<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
@@ -114,50 +156,6 @@ The war pianist just moved the piano right next to the tents provided by the ROL
 
 【Ukraine Rescue】03/13/22  Fellow fighter Nicole emphasizes in an interview with Polish independent producers that the evil Chinese Communist Party is the root cause of all the disasters around the world. And we, the new Chinese from the New Federal State of China, are committed to take down the Chinese Communist Party to save humanity.<br/><br/>【乌克兰救援】03/13/22  妮可战友在接受波兰独立制片人采访时强调中国共产党是全世界所有灾难的根源。而我们，新中国联邦的新中国人正致力于推翻共产党以拯救人类<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group4/getter/2022/03/14/11/e55d9c3b-921e-e9b5-90f7-7288a82f4e5b/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gtranslators_1 3/14/2022 9:34 AM (UTC)`
-
-[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.03.14 EST
-![img](https://media.gettr.com/group21/origin/2022/03/14/09/76ac9fdb-56d1-35c4-8d08-4b54843652a9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/14/2022 9:26 AM (UTC)`
-
-The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Rescue Team – 24h Hotline: +1 7206576776 or +1 719-224-4232 or +48 508-532-712 or +48 508-531-518 Telegram: t.me/UkraineRescue GETTR: https://gettr.com/user/UkraineRescue<br/>我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є першопричиною катастроф у світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
-![img](https://media.gettr.com/group20/origin/2022/03/14/05/8a24f47d-0852-31b6-91ab-92df7190ca3a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/14/2022 7:21 AM (UTC)`
-
-【Ukraine Rescue】03/13/22  NFSC‘s volunteer received a  kiss of gratitude from an Ukrainian lady<br/><br/>【乌克兰救援】03/13/22  新中国联邦义工小小酥获得乌克兰难民感激的亲吻<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group27/getter/2022/03/14/07/d4e7b1e6-2ea3-9e2b-0ad5-44b6a99916a1/out.jpg)
-
----
-
-`@miles 3/14/2022 7:18 AM (UTC)`
-
-【Ukraine Rescue】03/13/22  NFSC Ukraine Rescue Operation volunteers receive praise from KBS reporters. We are the only Chinese face in the Rescue centre, and we are proud to be people of NFSC.<br/><br/>【乌克兰救援】03/13/22  新中国联邦乌克兰救援行动的义工获得韩国广播公司记者的赞许。我们是难民援救中心唯一的亚洲人面孔。作为新中国联邦人非常自豪。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group15/getter/2022/03/14/07/2e5abac3-bbcb-e34c-cc21-7f72ecf4f2fb/out.jpg)
-
----
-
-`@miles 3/14/2022 7:13 AM (UTC)`
-
-【Ukraine Rescue】03/13/22  Peter, the driver of NFSC, has been helping us with translation work， fully with passion and enthusiasm<br/><br/>【乌克兰救援】03/13/22 新中国联邦的司机彼得一直在帮助我们做翻译工作，充满激情和热情<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group4/getter/2022/03/14/07/81b78ff1-2b76-4088-3493-221142596a66/out.jpg)
-
----
-
-`@miles 3/14/2022 7:08 AM (UTC)`
-
-【Ukraine Rescue】03/13/22 Chinese students and people rescued by NFSC and ROLF  are very grateful, but  afraid of the CCP. We hope they will uncover the EVIL nature of CCP with us in the future<br/><br/>【乌克兰救援】03/13/22 被新中国联邦和法治基金救出的中国学生和民众心存感激，但又害怕中共，希望他们有一天能大胆的与我们一起揭露中共邪恶的本质<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group16/getter/2022/03/14/07/1843af86-6abe-a042-ee29-5a0de3c53f29/out.jpg)
 
 ---
 
