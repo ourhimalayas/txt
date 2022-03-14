@@ -2,27 +2,24 @@
 ---
 
 
-## 2022年3月14日澳洲股市简报
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2161591/)
+## 泽伦斯基喊话「善恶不两立」　要微软等3企业与俄断绝关系
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2161747/)
 
-**撰稿：云彩**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
-市场适应了俄乌战争造成的震荡，澳洲股市周一收复部分跌幅。ASX 200 上涨1.2%, 收盘7147点。
+乌克兰总统泽伦斯基14日说，科技巨擘微软（Microsoft）、商业软体制造商甲骨文（Oracle Corp）和企业管理软体供应商SAP应停止在俄罗斯为他们的产品提供支援服务，以抗议俄国入侵乌克兰。
 
-农业综合公司Elders基于市场看好2022财年业绩，股价上涨11%。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3497320-PH.jpg)图片来源：Pixabay
 
-本周需关注美联储是否加息和原油价格。
+简评：弱者受到欺凌呼唤正义！乌克兰总统泽伦斯基为饱受俄罗斯摧残的乌克兰人民在尽力的呼喊，请求世界制裁俄罗斯来为乌克兰助力！也许这是没有办法的办法，当世界陷入冰冷，呼唤应该是有温度的，当世界陷入冷漠，呼唤应该是有态度的，世界真正需要回归的是正道主义！
 
-俄罗斯央行决定3月14日至18日莫斯科交易所不重新开放股票市场交易，部分非公开市场交易和使用SPFI支付系统的交易除外。
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1084871)
 
-参考资料：
+撰稿/发布：一叶知秋
 
-[ASX rises as lithium miners boost the market,Probuild finds another buyer](https://www.abc.net.au/news/2022-03-14/asx-lithium-wall-street-elders-ukraine-russia/100907674)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
-*编辑：云彩*
-
-*发布：云彩*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

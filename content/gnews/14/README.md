@@ -2,22 +2,20 @@
 ---
 
 
-## 普京利用难民作为对付欧盟的武器
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2161423/)
+## 25岁超模海莉•比伯（Hailey Bieber）“脑部血栓”住院
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2161517/)
 
-翻译/整理: 萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Immagine-9.jpg)图片来自The Times
-有一种说法叫做“双重控制”，这让意大利的情报部门和内政部处理移民的技术人员保持着警惕。“双重控制”是弗拉基米尔·普京在这次战争中使用的另一种工具，即混合战争，向欧盟施加压力。
+翻译 意大利达芬奇农场 小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-14-alle-10.12.03.png)图片来源：eventiavversinews.it
+25岁的超模海莉•比伯在她的Instagram上分享了她最近住院的消息。贾斯汀•比伯的缪斯女神刚刚从医院回家，她因脑血栓住院， 海莉在她的Instagram上发布了一条消息，解释了发生的事情， 并向所有人保证她情况很好。
 
-一方面，意大利已经受到能源价格上涨、燃料疯狂成本以及从本周开始需要以高价格找到一些食物的考验：谷物、小麦、种子油。
+海莉称这是她经历过的“ 最可怕的时刻之一”， 但她希望她的粉丝知道她现在在家，并且“很好”。“ 我非常感谢所有照顾我的优秀医生和护士！“ 她还补充说，“感谢所有带着美好祝愿和共同关心我的人，感谢所有的支持和爱。”她没有确切地分享她所经历的那种类似中风的症状， 也没有指出任何可能导致这种血栓的原因。
 
-另一方面是几周内可能抵达意大利的70万多名移民。其中主要来自乌克兰。我们的情报来源称，普京能够在几周内将 3 万人送往欧洲。此举虽然在数量上是绝对可控的，但这无疑将提高内部政治压力。
+当然，很多人想知道这是否与冠状病毒有关， 但海莉从未就这个话题写过或陈述过任何观点。但是我们知道海莉参加了大都会艺术博物馆慈善晚宴，而妮琪•米娜 ( Nicki Minaj ) 却没有参加。因为只有接种新冠疫苗者才能参加。虽然没有证实她是否接种了疫苗，但这表明她已经接种了疫苗，对此我们并不是100%的确定。
 
-政府意识到这些风险。但是意大利内政部相信会在不寻求其他欧洲国家的合作以及要求所有政府力量保持紧凑的情况下坚持下去。意大利预计将有五十万乌克兰人抵达，其中大部分是妇女和儿童。在过去的几天里，每 24 小时就有大约 3000 个移民，而且数字会迅速增长。
+原文链接：[https://www.eventiavversinews.it/la-top-model-hailey-bieber-25-anni-ha-sofferto-di-un-coagulo-di-sangue-al-cervello-ed-e-stata-ricoverata-in-ospedale/](https://www.eventiavversinews.it/la-top-model-hailey-bieber-25-anni-ha-sofferto-di-un-coagulo-di-sangue-al-cervello-ed-e-stata-ricoverata-in-ospedale/)
 
-原文链接: [https://www.repubblica.it/politica/2022/03/14/news/profughi\_ue\_putin\_russia\_ucraina-341291510/?ref=RHTP-BH-I341183651-P2-S2-T1](https://www.repubblica.it/politica/2022/03/14/news/profughi_ue_putin_russia_ucraina-341291510/?ref=RHTP-BH-I341183651-P2-S2-T1)
-
-责任编辑/发布:意大利达芬奇农场   萧亦
+编辑、上传： Xiao  baige
 
  
 

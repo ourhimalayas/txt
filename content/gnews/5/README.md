@@ -2,34 +2,20 @@
 ---
 
 
-## 美国记者在乌克兰战区遭俄军杀害
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2161590/)
+## 国内人民会过得非常惨(二)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2161742/)
 
-**撰稿：日本东京方舟农场 Miyali7768(文玉)**
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-据《中央社》3月13日报道，乌克兰基辅州警长内比托夫（Andriy Nebitov）表示，俄罗斯部队在伊尔平镇（Irpin）杀害一名美国记者，另有一名记者受伤。
+*发布：陶子*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-7.jpg)（图片来网络）
-
-据报道，根据乌克兰基辅州警长内比托夫13日在脸书（Facebook）公布出的记者身份证和护照显示，这名被杀害的摄影记者名叫芮诺（Brent Renaud），今年51岁，美国公民。
-
-另一名受伤记者在医院接受采访时揭露，事发当时，他与芮诺乘车准备前往目的地，准备拍摄平民逃难的过程，两人通过1个检查哨之后，在车上遭到俄军枪击。
-
-对此，乌克兰基辅州警长内比托夫在脸书发文表示，入侵者（俄罗斯）无所顾忌，连试图公开俄军在乌克兰真实暴行的国际媒体记者都杀。
-
-美国白宫国家安全顾问苏利文（Jake Sullivan）则告诉美国有线电视新闻网（CNN）：如果真的有美国记者被杀，将是一起令人震惊的可怕事件，也是俄罗斯总统普京及其军队暴行的又一例证。
-
-据了解，这名摄影记者芮诺经常与他的兄弟克莱格（Craig Renaud）搭档，在伊拉克、阿富汗等世界各地的战争冲突热点地区拍摄影片。芮诺还曾因一部美国芝加哥（Chicago）学校的纪录片，荣获被视为广播电视媒体界普立兹新闻奖的皮博迪（Peabody）奖。
-
-参考链接：
-1. [https://www.cna.com.tw/news/aopl/202203135004.aspx](https://www.cna.com.tw/news/aopl/202203135004.aspx)
-2.[https://www.thenewslens.com/article/163982](https://www.thenewslens.com/article/163982)
-
-撰稿：Miyali7768(文玉)
-
-编辑：幽蘭自得
-总编：老孙
-校对发布：Linda
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
