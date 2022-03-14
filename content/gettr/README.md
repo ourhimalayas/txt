@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 1:24 PM (UTC)`
+
+<br/>3月14号：尊敬的战友们好，新中国联邦人．正在以消灭中国共产党……追求国际正义，人道．人权的新亚洲人……广泛得到国际的好评和尊重，我们要为亚洲人发声，我们要让全世界知道，我们是消灭中国共产党了中国人！正义的亚洲人，在前线参与乌克兰战场救援的兄弟姐妹们，你们是英雄，你们所做的一切都在影响和改变了中国人，和亚洲人在世界的形象，文贵在此向你们鞠躬致谢！
+![img](https://media.gettr.com/group28/getter/2022/03/14/13/778856ca-597a-d978-5a89-2f875bbe62b6/out.jpg)
+
+---
+
 `@miles 3/14/2022 12:56 PM (UTC)`
 
 2022.03.14 早 《新中国联邦新闻》
@@ -149,13 +156,6 @@ Miles Guo revealed why he thinks NFSC’s freshly brewed coffee is so important 
 
 3/13/2022 Miles Guo: The CCP will for sure invade Taiwan. As the CCP ignites the fuse of WWIII, the political infightings of the CCP will be in full swing. Many CCP cadres that you are familiar with will end up more miserable than Ceausescu. This year, the year of Ren Yin and the year of the water tiger, is indeed going to be the year of major changes.<br/><br/>3/13/2022 文贵直播：中共一定会打台湾，当它点燃了世界第三次大战火药桶的同时，中共内部政治大战全面开始，大家耳熟能详的很多人会比齐奥塞斯库还惨，今年是真正的寅虎大变之年！<br/>
 ![img](https://media.gettr.com/group38/getter/2022/03/13/23/fa17542f-ec19-9990-61f5-bb5727cacc15/out.jpg)
-
----
-
-`@miles 3/13/2022 11:12 PM (UTC)`
-
-2022.03.13 NFSC News  NFSC Presents A New Image for Global Chinese Throughout Their Ukraine Rescue； NFSC Using Luxury Tents As Rest Area For Ukraine Refugees
-![img](https://media.gettr.com/group11/origin/2022/03/13/20/21e7cb18-bb21-4604-32cc-df3d6cf7a531/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
