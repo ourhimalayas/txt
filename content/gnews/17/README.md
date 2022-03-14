@@ -2,29 +2,35 @@
 ---
 
 
-## 俄罗斯入侵后向中共国要求支援 美国高官提起警戒
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2163586/)
+## 有声|在世界媒体眼中的新中国联邦救援行动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2163666/)
 
-翻译：宫米叶
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间3月12日，波兰梅迪卡救援前线报道，越来越多的国际媒体前来采访法治基金新中国联邦乌克兰救援行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-14-170239.jpg)图片来源：news.yahoo.co.jp
+近两日，不断有欧洲国家的媒体前来采访，包括意大利电视台、波兰最大报纸、阿拉伯电视台、波斯尼亚和黑塞哥维那电视台。采访的媒体记者都对法治基金和新中国联邦，持有高度赞扬。
 
-多家美国媒体13日报道，按照美国政府高级官员所说，俄罗斯在入侵乌克兰后曾请求中共国提供军事和经济援助。
+值得注意的是，媒体的问题很多集中在区分中国共产党和中国人。意大利的记者直接问战友Nicole，你们是代表中国人的吗？Nicole战友为这位记者介绍新中国联邦和法治基金，并说我们是要灭掉共产党的中国人。中国人都是热爱和平善良友好热爱自由法治的人，共产党甚至为了破坏此次人道救援，黑客了联系邮箱。Nicole还邀请媒体参观了帐篷和食物，并邀请他们帮忙转发救援讯息。
 
-美国总统助理苏利文(负责国家安全)将于14日在罗马与中国外交负责人杨洁篪举行会谈，预计他将表现出不容忍对俄支援的态度。
+前几日，在美国、日本等主流媒体的现场报道中，都有以新中国联邦的帐篷和国旗为背景。在波兰的乌克兰救援现场，新中国联邦是所有媒体无法回避的最大最专业的救援组织。此次救援是最好的机会，让世界分开共产党和中国人。
 
-据美国媒体报道，俄罗斯在2月24日开始全面入侵乌克兰后，委托中国提供军事装备，并寻求额外的经济支持，缓解日美欧等国制裁的影响。中共国的反应并不明确，但美国对中俄之间进一步靠近加强警惕。
+文字版原文：[在世界媒体眼中的新中国联邦救援行动](https://gnews.org/zh-hans/2156255/)
 
-苏利文13日露面CNN电视台，强调“正在密切关注中共国给俄罗斯提供了多大程度物力上、经济上的支持。”他说：“我告诉中国政府，任何国家都不允许对俄罗斯填补损失，美国也不会袖手旁观。”
+音频处理：Fei797
+发稿：Fei797
 
-新闻 来源：[news.yahoo.co.jp][ロシア、侵攻後中国に支援要請　米警戒、高官協議で提起へ](https://news.yahoo.co.jp/articles/f109d1f7e5485221222e5c9db62a380e565e79b2)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-* * *
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-*审核：BryanW 
-校对：天天
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-9.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

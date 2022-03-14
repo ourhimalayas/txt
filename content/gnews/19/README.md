@@ -2,27 +2,28 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月12日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2163558/)
+## 法治基金乌克兰救援行动成效显著
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2163619/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV-1.jpg)
+采编撰稿：加拿大温哥华杨帆农场 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1535.png)圖片來源：Gettr
 
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年3月12日晚](https://gnews.org/zh-hans/2154678/)
+据3月12日盖特消息，法治基金人道救援队当天在波兰麦迪卡搭建了当地最大，设施最全的营救帐篷，并因免费提供救援现场唯一的现磨咖啡，而成为难民和各地记者最心仪的避难所。
 
-音频处理：Fei797
-发稿：Fei797
+据悉，著名法国战地女记者[路易莎]在喝完久违的咖啡之后，对新中国联邦战地救援行动的专业性和完善性叹为观止，赞不绝口。目前，该中心帐篷内已设置了休息区、儿童游乐区、充电区以及餐饮咖啡区，并已接待了超过近500名逃难的妇女和儿童。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+本次法治基金乌克兰救援行动，不仅向世人展示出新中国联邦人才是真正能消灭共产党的中国人，而且也再次证明了中共政权是全世界灾难的根源，只有彻底消灭该暴政才能拯救全人类。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源： [https://www.gettr.com/post/pzo44956c7](https://www.gettr.com/post/pzo44956c7)
+
+————————————————————————————————————
+![](https://cdn.discordapp.com/attachments/855947446352871426/952725922249855016/Screen_Shot_2022-03-11_at_22.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

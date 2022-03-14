@@ -2,23 +2,12 @@
 ---
 
 
-## Epidemic prevention in Shanghai! The long-distance bus terminal is closed. Proof of nucleic acid required when leaving and return to Shanghai
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2163332/)
+## 蓬佩奥：习近平正在 &#8220;观察 &#8220;美国如何处理海外局势
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2163347/)
 
-Translated by：TokyoSakura/英翻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-103.jpg)
-图片来源于本文链接
+03/13/2022 蓬佩奥：习近平正在 “观察 “美国如何处理海外局势，如果美国不帮助准备自卫的台湾人民,这只会让习近平更大胆。
 
-As the COVID-19 outbreak continues in Shanghai, China, officials in Shanghai issued enhanced preventive and control measures late at night on March 12, requiring people not to leave Shanghai unless necessary. And those leaving Shanghai to have a nucleic acid test report within 48 hours. The Shanghai long-distance bus terminal is closed from today.
-
-原文链接：
-
-**[上海嚴防疫情！長途汽車客運總站停運　離返滬須持核酸證明](https://www.setn.com/News.aspx?NewsID=1084225)**
-
-**Edited by:**TokyoSakura/英翻组
-Posted by:TokyoSakura/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
