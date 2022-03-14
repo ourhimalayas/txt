@@ -2,22 +2,45 @@
 ---
 
 
-## 中日财经爆┃大疆再遭制裁，设计软件被封！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2159515/)
+## 发动侵略战争 俄罗斯所受制裁已成全球最多
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159904/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1472.png)图片来源于本文链接
-3月12日，美国设计软件企业Figma封禁大疆等被美国制裁公司的账号。大疆内部收到了一封来自设计软件公司Figma的邮件表示，大疆在发布的制裁名单当中，因此Figma无法再提供软件服务，并开始冻结账户。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1473.png)
-Figma成立于2012年，是基于网页的界面设计协作工具，可以将项目时刻保存在云端，这样就可以保证多方用户对设计进行实时评论或修改。它有三个很显著的特性：实时协作、矢量网格、版本历史。最重要的是，这个工具非常方便，可以在一个文档中同时处理20个以上的画板。大疆等很多企业都使用Figma软件，它相当于企业设计的“画笔”。
+作者：秘密翻译组 – 乔巴
 
-大疆是中共军民融合的核心企业之一，大量参与中共军方用于战场的长航时无人机研制，并大量开发用于监控人民的无人机，是中共邪恶统治的重要帮凶。此次设计软件禁用，将大大减缓相关无人机制造的步伐，配合之前的芯片禁售，大疆或将逐步面临停产绝境。
 
-信息来源： [继华为之后 大疆再遭制裁：设计软件被封！](https://www.163.com/dy/article/H2BRCQ120514R9KC.html)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+自俄罗斯于2月24日发动乌克兰入侵战争以来，短短十几天，俄罗斯已经超越伊朗和朝鲜，成为世界上受制裁最多的国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide13-3.jpg)
+据全球制裁检测数据库的数据显示，在2月22日之前，俄罗斯受到2,754项制裁。自2月22日以来，截至3月12日，美国和欧洲盟友等对俄罗斯施加了3,612项制裁的目标，使其所受制裁高达6,366多项。这使其超过了伊朗成为全球受制裁最多的国家。在过去的十年中，伊朗面临着3,616项制裁，其中大部分是因为其核计划和支持恐怖主义。继俄罗斯和伊朗之后，受制裁较多的国家是叙利亚2,608项、朝鲜2,077项、委内瑞拉651项、缅甸510项和古巴208项。
+
+自2月22日以来俄罗斯受到的3,612项制裁，目前主要来自8个国家或地区，制裁针对个人、实体，对游艇和飞机等也实施了相关制裁限制。其中，欧盟对俄罗斯实施的制裁最多，有678项。而法国有672项，瑞士有568项，美国有278项。
+
+参考链接：
+1. [Russia surges past Iran to become world’s most sanctioned nation](https://www.bloomberg.com/news/articles/2022-03-07/russia-surges-past-iran-to-become-world-s-most-sanctioned-nation)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/审核：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

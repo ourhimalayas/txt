@@ -2,45 +2,20 @@
 ---
 
 
-## 发动侵略战争 俄罗斯所受制裁已成全球最多
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159904/)
+## 樱花时政┃因中共威胁 日韩澳武器进口激增
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2160125/)
 
-作者：秘密翻译组 – 乔巴
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-22.jpg)[图片来源](https://www.bbc.com/news/world-asia-china-60492134#:~:text=ADVERTISEMENT-,The%20Ukraine%20crisis%20is%20a%20major%20challenge%20for%20China,-By%20Stephen%20McDonell)
+3月14日，瑞典斯德哥尔摩国际和平研究所（SIPRI）发布了一份报告，比较了2017-21年和之前五年的全球武器交易量。报告解释说，日本、韩国和澳大利亚的情况急剧增加，”越来越多的国家将中共视为一种威胁”。 日本的进口量是世界上第十位，增长了152%。
 
+全球总体进出口贸易下降了4.6%。 前十大进口国中有六个在亚洲-大洋洲地区，包括澳大利亚和中国以及日本和韩国，SIPRI指出，该地区在过去30年里一直保持着最高的进口水平。
 
+信息源：[日韓豪の武器輸入、急増　中国の脅威背景、国際平和研](https://news.yahoo.co.jp/articles/f6ec663f204f4f25362b0bb3dd262e1eb2b8ab08#:~:text=%E6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-自俄罗斯于2月24日发动乌克兰入侵战争以来，短短十几天，俄罗斯已经超越伊朗和朝鲜，成为世界上受制裁最多的国家。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide13-3.jpg)
-据全球制裁检测数据库的数据显示，在2月22日之前，俄罗斯受到2,754项制裁。自2月22日以来，截至3月12日，美国和欧洲盟友等对俄罗斯施加了3,612项制裁的目标，使其所受制裁高达6,366多项。这使其超过了伊朗成为全球受制裁最多的国家。在过去的十年中，伊朗面临着3,616项制裁，其中大部分是因为其核计划和支持恐怖主义。继俄罗斯和伊朗之后，受制裁较多的国家是叙利亚2,608项、朝鲜2,077项、委内瑞拉651项、缅甸510项和古巴208项。
-
-自2月22日以来俄罗斯受到的3,612项制裁，目前主要来自8个国家或地区，制裁针对个人、实体，对游艇和飞机等也实施了相关制裁限制。其中，欧盟对俄罗斯实施的制裁最多，有678项。而法国有672项，瑞士有568项，美国有278项。
-
-参考链接：
-1. [Russia surges past Iran to become world’s most sanctioned nation](https://www.bloomberg.com/news/articles/2022-03-07/russia-surges-past-iran-to-become-world-s-most-sanctioned-nation)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

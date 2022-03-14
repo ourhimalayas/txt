@@ -2,76 +2,28 @@
 ---
 
 
-## 马乔丽·泰勒·格林：川普总统是对的
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2160383/)
+## 苏州中小学等暂缓复课
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2160502/)
 
-众议员马乔丽·泰勒·格林： 川普总统是对的。 拜登在阿富汗的尴尬失败向全世界展示了他的软弱。 这就是为什么，普京入侵乌克兰，伊朗向我们在伊拉克的领事馆发射导弹，而 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 占据主导地位。 炒掉软弱无能之人。 弹劾！ 【转RSBN推文： “阿富汗的行动是我们国家历史上最尴尬的时刻。” 川普总统在今晚的集会之前与我们的主持人布莱恩·格伦[@brianglenntv](https://gettr.com/user/brianglenntv) 进行了交谈！（附采访川普总统的视频）】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16472351501.png)
+据澎湃新闻3月14日报道，苏州市新冠肺炎疫情联防联控指挥部发布紧急通告：为确保师生身体健康和校园绝对安全，原计划3月14日复课的苏州全市中学初一、初二、高一、高二年级，小学一至六年级和中职院校、技工学校，及3月17日开学的全市幼儿园（含托育机构），暂缓复课。高三、初三年级在继续做好闭环管理，暂不停课。
 
+自2022年开始，中共国内就开启了循环封城的模式，就像轮盘赌博机一样，不定时转到哪里，哪里就全市停摆，人员就地隔离，以至于中共国内很多人出门的时候身边就备好了衣物和药品，随时准备进入隔离状态。强制成人接种疫苗不算，学生、幼儿都必须接种疫苗，造成疫情越隔离越爆发。如果不解决病毒的源头问题，不要说暂缓复课，即使封闭学校，也不会阻止疫情爆发。
 
+新闻参考链接：[https://www.thepaper.cn/newsDetail\_forward\_17104889](https://www.thepaper.cn/newsDetail_forward_17104889)
 
-> President Trump is right.
-> 
-> Biden’s weakness was displayed for all the world to see with his embarrassing failures in Afghanistan.
-> 
-> This is why, Putin invaded Ukraine, Iran is firing missiles at our consulate in Iraq, & China is dominating.
-> 
-> Fire weak incompetent people.
-> 
-> Impeach! [https://t.co/rK7nHXDSc8](https://t.co/rK7nHXDSc8)
-> — Rep. Marjorie Taylor Greene (@RepMTG) [March 13, 2022](https://twitter.com/RepMTG/status/1503096422899625992?ref_src=twsrc%5Etfw)
+编辑：胖丁
 
+* * *
 
-
-美前国务卿迈克·蓬佩奥： 伊朗是世界上最大的支持恐怖主义的国家。 它必须继续被指定为恐怖分子，与恐怖分子有关的制裁必须继续实施。 绝不能允许伊朗拥有核武器。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> Iran is the world’s largest state sponsor of terror.
-> It must remain designated as such, and terrorist-related sanctions must remain in place.
-> Iran must never be allowed to have a nuclear weapon.
-> — Mike Pompeo (@mikepompeo) [March 14, 2022](https://twitter.com/mikepompeo/status/1503183366279024640?ref_src=twsrc%5Etfw)
-
-
-
-参议员泰德·克鲁兹：飞机上要求戴口罩太荒唐了。 【视频中克鲁兹说：强制口罩，强制打疫苗和疫苗护照都是不对的，早该停止了】
-
-
-
-> Mask mandates on planes are absurd. [pic.twitter.com/ThddncVEzv](https://t.co/ThddncVEzv)
-> — Senator Ted Cruz (@SenTedCruz) [March 14, 2022](https://twitter.com/SenTedCruz/status/1503164953825533954?ref_src=twsrc%5Etfw)
-
-
-
-众议员吉姆.班克斯： 唐纳德.川普把奥巴马的伊朗核协议称为“有史以来最糟糕的协议”是正确的。 在很多方面，乔·拜登的新伊朗核协议更加糟糕。 为什么那么多民主党人支持它？
-
-
-
-> Donald Trump was right to call Obama’s JCPOA “worst deal ever negotiated”. In so many ways Joe Biden’s new Iran Nuclear Deal is even worse. Why are so many Democrats going along with this?
-> — Jim Banks (@RepJimBanks) [March 13, 2022](https://twitter.com/RepJimBanks/status/1503084199024250884?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 就在几周前，乔·拜登政府关闭了司法部一项打击 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 间谍活动的计划。 现在，国家安全官员在警告说，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 间谍对美国构成严重威胁。
-
-
-
-> Just weeks ago, Joe Biden’s administration shut down a DOJ program to combat Chinese espionage.
->  
-> Now, national security officials are warning that Chinese spies are a grave threat to the USA.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 13, 2022](https://twitter.com/MarshaBlackburn/status/1503068158424457227?ref_src=twsrc%5Etfw)
-
-
-
-前白宫经济顾问彼得·纳瓦罗: 请将此转发给全世界。 对我们所有人的巨大威胁… [#普京](https://gettr.com/hashtag/%23%E6%99%AE%E4%BA%AC) 在国际象棋世界下中国跳棋 【附realclearpolitics网登载的纳瓦罗的文章：普京在国际象棋世界下中国跳棋 普京的乌克兰帝国主义策略正在加速 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 对俄罗斯的殖民化。讽刺就是所讽刺的东西。 为了换取 [#普京](https://gettr.com/hashtag/%23%E6%99%AE%E4%BA%AC) 最终可能在乌克兰攫取的任何一块领土——当然是顿涅茨克和卢甘斯克，也许是敖德萨——普京现在被迫向 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 抵押从石油和天然气到铝的资源。 随着普京进一步加快“去美元化”以逃避美国制裁，俄罗斯卢布也越来越与人民币挂钩。】
-
-
-
-> Please retweet this to the world. HUGE threat to all of us…
-> 
-> Putin Plays Chinese Checkers in a Chess World [https://t.co/pqEPhgua8v](https://t.co/pqEPhgua8v)
-> — Peter Navarro (@RealPNavarro) [March 13, 2022](https://twitter.com/RealPNavarro/status/1503064602560667648?ref_src=twsrc%5Etfw)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
