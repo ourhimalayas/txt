@@ -2,31 +2,53 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月14日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2164724/)
+## 音乐视频诗朗诵 乌克兰战争-《坠落》
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2164764/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-5.jpg)
+作者: 关山月
+供稿：桑桠
+编辑发稿：am夏天
+喜马拉雅纽伦堡正义农场创意部
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-14.png)
-文章仅代表作者本人观点，与Gnews无关
 
-视频参看：
-[2022.03.14早 《NFSC新闻》](https://gettr.com/streaming/pzxrf41d0c)
-[2022.03.14早 G|TV《新闻访谈》](https://gettr.com/streaming/pzy0dz8255)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-17.jpeg)
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+一片树叶从枝头坠落
+震动了整个深秋的良心
+一片羽毛从天空坠落
+留下了鸟雀们飞翔的岁月
+一片雪花在飘落中融化
+一切都在逝去，空气惊愕
 
+还有什么将要坠落
+会是浮云还是大海
+还有那飘渺的记忆
+而大海终将零落星际
+流落银河，光影破碎
+可能还会跌破仰视的目光
+
+残阳喋血，霓虹坍塌
+卑微的物质斑驳而去
+青春比落日走得更为惨烈
+爱情和生活都在塌陷
+泪水在眼角计量着苦难
+坠落大地，没有声息
+
+一切都在坠落
+诗人的心魂战栗不已
+春花秋实，坠落的季节
+风花雪月，坠落的青春
+恩义情仇，友情在坠落
+虚妄梦幻，理想在坠落
+
+一切的一切都在坠落
+怎么就看不见铁链的坠落
+凝血的铁链、陈腐的铁链
+多灾多难的大地呀
+你忍受了多少无奈的坠落
+却等不到那魔咒之链，坠落炼狱
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

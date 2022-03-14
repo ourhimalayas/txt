@@ -17,6 +17,34 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 9:55 PM (UTC)`
+
+【Ukraine Rescue】03/13/22 A pianist came to play in front of the NFSC’s base camp again<br/><br/>【乌克兰救援】03/13/22 钢琴家再次来到新中国联邦大本营门口演奏<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group8/getter/2022/03/14/21/8319a021-9f95-9b9d-d2dc-8af0409b7afe/out.jpg)
+
+---
+
+`@miles 3/14/2022 9:52 PM (UTC)`
+
+【Ukraine Rescue】03/13/2022 The German pianist played John Lennon's classic song Imagine in front of the NFSC's tents to thank the ROLF and the NFSC for bringing warmth and hope in the midst of war.<br/><br/>【乌克兰救援】03/13/2022 德国钢琴家在新中国联邦的帐篷前面演奏约翰·列侬的经典歌曲Imagine，感谢法治基金和新中国联邦在战争和硝烟中带来温暖和希望。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group35/getter/2022/03/14/21/c0f62249-39ea-0dce-d662-912cb2d999f2/out.jpg)
+
+---
+
+`@miles 3/14/2022 9:50 PM (UTC)`
+
+【Ukraine Rescue】03/13/2022 The NFSC's freshly ground coffee attracted numerous journalists from the international media. We told them, "We are the new Chinese who are fighting the Communists, the Communists are the root cause of all humanitarian disasters in the world. Taking down the CCP is the necessity to preserve humanity." French war correspondent Emma Ball-Greene listened and expressed her support, saying, "I don't want to get killed by a Chinese crazy person, but I'm saying it, fxxx that Party!"<br/><br/>【乌克兰救援】03/13/2022 新中国联邦的现磨咖啡吸引了一批又一批的国际媒体的战地记者， 我们告诉每一位来喝咖啡的新闻记者“我们是灭共的新中国人，共产党是世界所有人道灾难的源头， 灭掉共产党是维护人性的必须”。这位来自法国的美女战地记者Emma Ball-Greene听了表示支持，她表示：“虽然我并不想被那些中共国的小粉红给杀死，但我就要说，干掉X X的共产党！”<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group11/getter/2022/03/14/21/571251d4-35d9-ac82-3ab5-0ba14a4cf6b8/out.jpg)
+
+---
+
+`@miles 3/14/2022 9:44 PM (UTC)`
+
+【Ukraine Rescue】03/14/22 On the morning of March 14, representatives of all volunteer organizations in Medyka gathered in our NFSC & ROLF Ukraine Humanitarian Rescue Tent for a meeting to discuss the systematic management of the entire camp. This was a meeting of heads of relief bases initiated by the UN and the International Red Cross, as well as by organizations such as Rescuers Without Borders. Our NFSC rescue team also participated in it.<br/> <br/>【乌克兰救援】03/14/22 3月14日早，梅迪卡口岸所有义工组织的成员代表集中到我们新中国联邦法治基金乌克兰人道救援帐篷中开会，讨论整个营地的系统化管理。这是由联合国和国际红十字会，以及无国界救援者等组织发起的救援基地负责人会议。我们新中国联邦救援队也参与其中。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group3/getter/2022/03/14/21/d772df00-1476-4139-6fb9-a90c21d53417/out.jpg)
+
+---
+
 `@miles 3/14/2022 9:34 PM (UTC)`
 
 The war pianist just moved the piano right next to the tents provided by the ROL Foundation and the NFSC. He started the outdoor concert tonight with John Lennon’s classic song “Imagine”. Our fully equipped tents provide people with fresh grind coffee and warm heat. Thanks to the NFSC and the ROL Foundation, bringing some warmth and hope to people escaped from the war.<br/><br/>战地钢琴家今天把钢琴拉到了法治基金、新中国联邦的两个大帐篷前面。以约翰·列农的经典歌曲Imagine，开始了今晚的露天音乐会。我们设备齐全的大帐篷，给人们提供了新鲜现磨咖啡、温暖的暖气。感谢新中国联邦和法治基金，为战争和硝烟中的人们带来温暖和希望
@@ -130,34 +158,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 【Ukraine Rescue】03/13/22 Chinese students and people rescued by NFSC and ROLF  are very grateful, but  afraid of the CCP. We hope they will uncover the EVIL nature of CCP with us in the future<br/><br/>【乌克兰救援】03/13/22 被新中国联邦和法治基金救出的中国学生和民众心存感激，但又害怕中共，希望他们有一天能大胆的与我们一起揭露中共邪恶的本质<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group16/getter/2022/03/14/07/1843af86-6abe-a042-ee29-5a0de3c53f29/out.jpg)
-
----
-
-`@miles 3/14/2022 7:02 AM (UTC)`
-
-【Ukraine Rescue】03/13/22 Volunteer (Jin Dongnan) shares his experiences in Medyka. Unlike the Chinese Communist Party who never treat their people well, he has witnessed many women, children, and senior people have been rescued by the New Federal State of China. <br/><br/>【乌克兰救援】03/13/22 靳东南战友分享在梅迪卡的见闻感受。不像中共从不善待其人民，他目睹许多妇女儿童和老年人得到了新中国联邦的救助<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group10/getter/2022/03/14/07/d949523f-3691-d29e-70db-cc28cfd357d2/out.jpg)
-
----
-
-`@miles 3/14/2022 6:55 AM (UTC)`
-
-【Ukraine Rescue】3/13/2022 An exhausted Ukrainian girl Lera who had not slept well for a whole week during the bumpy journey to escape from her war-torn homeland found great comfort in the new Cafe set up by the rescue team of the #NewFederalStateofChina. The follow fighter told the Ukraine girl that the mission of the NFSC is to take down the Chinese Communist Party. The the boss behind the Russian-Ukraine war is the CCP, and we will win<br/><br/>【乌克兰救援】 3/13/2022仓皇逃离战火的乌克兰小女孩莱拉因路途颠簸一周未曾安眠，就在精疲力竭之时，她来到新中国联邦救援队新建的咖啡驿站，并享受到难得的安适。义工告诉乌女孩，新中国联邦人的使命是消灭中国共产党，俄乌战争背后的老板是中共，我们一定会赢<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group9/getter/2022/03/14/06/14c43a3b-59f2-67fb-9caa-07ef512f5166/out.jpg)
-
----
-
-`@miles 3/14/2022 3:13 AM (UTC)`
-
-[UKRAINEHELP-005]<br/><br/>由于需要免费专机撤离的申请人数不足，NFSC和法治基金（ROLF）宣布取消3月15日的免费专机，已经成功登记并符合条件的申请人，我们将根据每个人的目的地免费提供商业航班机票并安排他们安全离开波兰。未来的免费专机航班，将根据实际情况再重新做出计划，并公告。<br/><br/>NFSC和法治基金（ROLF）已经在波兰边境Medyka设立了24小时临时救援接待站，供来自乌克兰的难民休憩。救援接待站内提供免费咖啡、热水、食物、毛毯，并设有儿童专区。<br/>NFSC和法治基金（ROLF）每天都有安排免费巴士，从乌克兰边境利沃夫（Lviv）前往波兰的克拉科夫（Krakow)，以帮助难民撤离。<br/><br/>截止到3月13日，我们已经免费提供超过250人次酒店食宿，为1016位难民提供了免费巴士撤离，Medyka救援站接待了上千名难民，并成为国际红十字会的中转站。NFSC和ROLF提供免费救援，以帮助那些受俄罗斯非法入侵影响的人员，这是我们消灭中国共产党，支持在被共产主义和专制政府统治的国家里争取自由的使命的一部分。因为全人类的战争和所有灾难都与中国共产党有关，只有消灭中国共产党才能解决人类战争和所有苦难的根源。<br/><br/>请有需要的华人同胞、乌克兰、美国及其他国家人士，联系我们24小时服务热线。<br/><br/>24小时客服热线（电话/短信）：<br/>+1 720-657-6776 <br/>+1 719-224-4232<br/>+48 508-532-712<br/>+48 508-531-518<br/><br/>Telegram： t.me/UkraineRescue<br/>GETTR： @UkraineRescue<br/><br/>邮箱： UkraineRescue01@protonmail.com 或 UkraineRescue02@protonmail.com <br/><br/>NFSC<br/>法治基金<br/>2022年3月13日
-![img](https://media.gettr.com/group13/getter/2022/03/14/03/705be8cd-82b7-a234-2f78-5c3d878bd886/5494699089bd1a40f6ec663fab176f0b.jpg)
-
----
-
-`@miles 3/14/2022 2:20 AM (UTC)`
-
-3/13/2022 Miles Guo: There is a “list of four CCP cadres to be killed” inside of the CCP, who is on it? Miles Guo and the Whistleblowers’ Movement have laid out all kinds of traps for the CCP in the past decades, and the CCP will be finished in a road of no return in the Middle East, Europe, and its “Belt and Road Initiative”!<br/><br/>3/13/2022 文贵直播：共产党内部的“四杀令”是什么？郭先生和爆料革命在过去这些年给共产党挖好了各种坑，中共会在中东、欧洲和“一带一路”走上不归的死亡之路！<br/>
-![img](https://media.gettr.com/group7/getter/2022/03/14/02/965dbe26-63cb-dd6f-2e41-6d2b3c0e2af8/out.jpg)
 
 ---
 
