@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 11:11 PM (UTC)`
+
+<br/>3月14号：天下最不要脸的，就是中国共产党……培养出来的这些极为不要脸的小粉红……根本不知道天有多高．地有多大．最冷漠的被洗脑了无知的愚蠢的这些人……们很快将为他们将为此付出代价，感谢日本银河农场制作的精美的视频。
+![img](https://media.gettr.com/group45/getter/2022/03/14/23/7d7dbcc6-f8b2-6504-151e-3919747c10d3/out.jpg)
+
+---
+
 `@miles 3/14/2022 11:02 PM (UTC)`
 
 2022.03.14 NFSC News  The New Federal State of China’s Humanitarian Rescue Mission； AFP War Correspondent On the NFSC & ROLF Rescue Center 
@@ -150,13 +157,6 @@ The war pianist just moved the piano right next to the tents provided by the ROL
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
 ![img](https://media.gettr.com/group7/origin/2022/03/14/15/6a823638-5f9d-27cf-b67d-cd8c4ecfc677/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/14/2022 3:10 PM (UTC)`
-
-3月14号：这才是真正的钢琴艺术家．音乐家。这位德国的大卫先生．在乌克兰救援前线．用他的钢琴一直在拯救．安抚在乌克兰战地逃出来的妇女儿童的心灵！他太伟大了……他还为我们的新中国联邦所有战友们……弹唱了新中国联邦的国歌，感谢了，他是我们中国联邦人的最好的朋友之一，永远的朋友。喜马拉雅战地现场演奏版！
-![img](https://media.gettr.com/group28/getter/2022/03/14/15/cde52e3b-78fc-b79a-a97b-115ca4563a0c/out.jpg)
 
 ---
 
