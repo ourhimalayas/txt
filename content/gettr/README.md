@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 12:52 AM (UTC)`
+
+Miles Guo revealed why he thinks NFSC’s freshly brewed coffee is so important at the war zone for Ukrainian people at the moment. <br/>This is the first time in the history for Ukrainian people, in the war they are able to get a cup of freshly brewed coffee every day，文贵先生认为 NFSC 现煮咖啡在战区对乌克兰人来说如此重要。<br/>对于乌克兰人来说，这是历史上第一次，在战争中他们每天都能得到一杯现煮的咖啡
+![img](https://media.gettr.com/group26/origin/2022/03/14/00/c9dad87e-cff6-fa6e-ad9d-13a8451decc1/out.jpg)
+
+---
+
 `@miles 3/14/2022 12:32 AM (UTC)`
 
 2022.03.13 晚 《新中国联邦新闻》新中国联邦只为救人而来； 法新社战地记者高度赞扬法治基金救助中心
@@ -147,13 +154,6 @@ The Medyka port is a land port on the border between Poland and Ukraine. A large
 
 【Ukraine Rescue】03/11/2022 Three Kosovo associates from an American NGO, Refugee Direct Aid, are surprised to see Chinese faces in the scene of the Ukraine rescue. They express admiration of what the NFSC has done for rescuing Ukrainian refugees and their willingness to offer more help and cooperation with the NFSC<br/><br/>【乌克兰救援】03/11/2022 美国非政府组织“难民直接援助”的三位科索沃员工表示很惊讶看到中国面孔出现在乌克兰援救现场。他们对新中国联邦为乌克兰救援所做的工作表示钦佩，并愿意为新中国联邦提供更多帮助与合作 
 ![img](https://media.gettr.com/group35/getter/2022/03/13/13/d681d20f-a800-46e8-c279-45f222a7201e/out.jpg)
-
----
-
-`@miles 3/13/2022 12:46 PM (UTC)`
-
-2022年3月13日 文贵大直播：如果西方切断中共国的SWIFT、禁止中共国参与国际外汇交易，查封盗国贼家族在海外的资产，会涉及多大规模在中共国会发生什么？爆料革命警告中东事端；中共在俄乌战争之后的下一步动作 在中东会发生什么；刘彦平 傅政华 孙立军 吴征杨澜 王岐山 孟建柱 胡舒立 单伟健 张明鹏（大连西区法院）刘强（辽宁副省长）将会是什么下场
-![img](https://media.gettr.com/group5/origin/2022/03/13/12/ea1ea88f-8fe4-237b-b91e-338a9c6c8724/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
