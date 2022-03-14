@@ -2,68 +2,24 @@
 ---
 
 
-## 2022年3月13日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2158965/)
+## 樱花时政┃俄军导弹袭击国际维和安全中心致35死，并劫持两市长
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2159007/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220313-2.jpg)
-盖特连接：[2022年3月13日 文贵大直播：如果西方切断中共国的SWIFT、禁止中共国参与国际外汇交易，查封盗国贼家族在海外的资产，会涉及多大规模在中共国会发生什么？爆料革命警告中东事端；中共在俄乌战争之后的下一步动作 在中东会发生什么；刘彦平 傅政华 孙立军 吴征杨澜 王岐山 孟建柱 胡舒立 单伟健 张明鹏（大连西区法院）刘强（辽宁副省长）将会是什么下场](https://gettr.com/streaming/pzrn4eb349)
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-21.jpg)（图片来源于本文链接）
+乌克兰军方称，位于利沃市40公里的亚沃里夫的“国际维和安全中心”受到8枚导弹袭击。造成35人死亡，134人受伤。该市距离波兰边境很近。美国和北约国家曾与乌克兰在亚沃里夫举行名为“快速三叉戟”的演习，北约践行支持乌克兰的承诺。俄军这一攻击向北约发出的一个信号。
 
-1、宣传统一口径：我们是消灭邪恶中国共产党的新中国人；
+拥有70万人的利沃夫距离波兰边境81公里。自俄乌战事爆发以来，这里一直是许多难民前往波兰等邻国的中转站，也是在国内避难的乌克兰人的落脚点。12号西部城市伊万诺－弗兰科夫斯克和卢茨克两市的机场遭到袭击，两地位于利沃夫的南北两侧。
 
-2、中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类；
+利沃夫也是乌克兰文化名城，利沃夫旧城被联合国教科文组织列为世界文化遗产。据乌政府称，本周末，该国两个被占领城市的市长被俄军劫持。周日，包括外长库列巴在内的乌官员称，人口约2万的小城德尼波德鲁纳的市长马特维耶夫遭俄军劫持。此前，梅利托波尔市长菲德洛夫已被劫持。媒体报道，俄军在梅利托波尔安插了一名新市长名叫尼尔琴科·乌外长库列巴，并表示，俄军劫持民选市长严重违法国际法，根据日内瓦公约属于“战争罪行”。
 
-3、SWIFT就像是小区通行证，中共偷偷给俄罗斯小区通行证，违犯了SWIFT正义支付国际法则，SWIFT一定会把中共踢出；
+信息来源：
 
-4、SWIFT制裁后，中共盗国贼海外资产会被没收；
+[俄罗斯军队袭击乌克兰利沃夫市国际维和与安全中心 致35死](https://www.trt.net.tr/chinese/guo-ji/2022/03/13/e-luo-si-jun-dui-xi-ji-wu-ke-lan-li-wo-fu-shi-guo-ji-wei-he-yu-an-quan-zhong-xin-zhi-35si-1794605)
 
-5、SWIFT制裁的都是独裁国家，SWIFT从来没有惩罚过一个文明国家；
-
-6、SWIFT不是美国一个国家说了算，SWIFT惩罚是世界文明国家一致行动的结果；
-
-7、SWIFT制裁后，中共国只有几个流氓独裁的家，没有国—— 没有合法性；
-
-8、共产党一定让伊朗叙利亚也门北朝鲜发动区域战争。原因是习近平和普京玩的围魏救赵；
-
-9、中共联合邪恶轴心国（俄罗斯伊朗北朝鲜叙利亚伊拉克沙特），发动区域战争，砸烂世界能源供给，让西方妥协，放宽对俄罗斯的制裁，让中共打台湾—— 围魏救赵；
-
-10、接下来1-2周，普京会大肆的攻击基辅；
-
-11、2022年最黑暗的就是：世界可能会局部的核战，区域战争，但是最可怕的就是疫苗灾难；
-
-12、刘彦平公安至纪委，以王岐山为曾家，而皆江家也；
-
-13、中共内斗加剧：江家曾家要干掉许其亮 丁薛祥，20大前，无数的共产党高官会倒下来；
-
-14、俄罗斯不会对乌克兰使用核武器；
-
-15、新中国联邦人，投资G系列，灭共的新中国联邦人，不受西方经济制裁；
-
-16、2-3周世界剧变；
-
-**注：大直播音频——**
-
-编辑整理：文俊；
-
-发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

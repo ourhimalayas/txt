@@ -2,23 +2,45 @@
 ---
 
 
-## 职业自行车手纷纷退出比赛，比利时队医说：“免疫力被削弱”
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2158915/)
+## 救援前线：新中国联邦“豪华大帐篷”系列报道三
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2158954/)
 
-#### 编译                          意大利达芬奇农场                           小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-12-alle-22.16.43.png)图片来源：eventiavversinews.it
-最近，许多自行车选手都退出了著名的“迪雷诺-亚得里亚”赛段的比赛， 该比赛于3月7日星期一开始， 3月13日结束，“巴黎-尼斯”赛段也于3月13日星期日结束。原定的巴黎-尼斯是总共8个赛段中的第六赛段， 最近几天出现了一系列令人难以置信的现象，参赛选手纷纷退出比赛。
+**——大帐篷前祈愿和平的钢琴独奏音乐会**
 
-法国比赛不得不注意到超过40名车手的放弃，几乎是上周日开始的小组的三分之一， 这是一个非常高且不寻常的数字。在过去的几天里， 这种趋势再次加剧。其中六人没有出现在考特松，包括贾斯珀•菲利普森（Jasper Philipsen）和卢克•德布里奇(Luke Durbridge)，另外四名选手在比赛的早期赛段退出了比赛。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
 
-几乎所有退出比赛的原因是由于典型的季节性疾病、支气管炎和流感。即使是在迪雷诺-亚得里亚赛段的比赛，也出现了类似的情况。其中还涉及许多大牌人物如彼得•萨甘（PeterSagan)和理查德•卡拉帕玆（Richard Carapaz）一些赛手和医生将此归咎于新冠疫情的大流行和长时间使用口罩。“早晚都很凉，赛手很瘦，也没有穿得很厚。这种情况下， 感染是不可避免的。
 
-在参赛选手中普遍存在对这种状况的担忧，有选手引用医生的观点——认为由于两年的新冠大流行，造成人们长时间地佩戴口罩，导致免疫力某种程度地削弱。
 
-原文链接：[https://www.eventiavversinews.it/boom-di-ritiri-tra-i-ciclisti-professionisti-il-medico-del-team-belga-il-sistema-immunitario-e-indebolito/](https://www.eventiavversinews.it/boom-di-ritiri-tra-i-ciclisti-professionisti-il-medico-del-team-belga-il-sistema-immunitario-e-indebolito/)
+作者/编辑：文泓
 
-编辑、上传： Xiao  baige
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image01-1.png)图片来源：救援前线电报群视频截屏
 
+
+当地时间3月13日，据前方记者妮可报道，傍晚时分，在波兰边境小镇梅蒂卡救援中心法治基金新中国联邦一号、二号大帐篷前，正在举行一场精彩的钢琴独奏音乐会。夕阳西下，来自德国的意大利著名战地钢琴家今天特意把钢琴拉到了我们两个豪华大帐篷前面，以披头士约翰·列农的经典反战曲目《Imagine》开始了今晚的露天音乐会。
+
+《想像》（Imagine）是一首英格兰音乐家约翰·列农创作并並演奏的歌曲，是他独唱生涯中的最佳销售单曲，《滾石》杂志甚至认为《想像》是列侬“送给世界的最伟大的音乐礼物”。披头士一直推崇的理念就是“LOVE AND PEACE”，作为摇滚乐鼻祖，披头士经历过二战和越战等战争，深知战争带给人类创伤。 今天战地钢琴家演奏这首经典的曲目，也是代表了各国人民反对战争、祈愿世界和平的共同心声。
+
+梅蒂卡救援中心的盘古七星级大帐篷给人们带来了香浓的新鲜磨制的咖啡、温暖的篝火，人们在音乐中休息、聊天、沉思……感谢法治基金和新中国联邦给战争硝烟中的人们带来一些温暖和希望。
+
+今天，我们的豪华大帐篷里依旧热闹非凡，据前方记者小小酥报道，大帐篷里新添了一套BBQ烧烤装置，可以为救援中心的工作人员和难民提供方便；同时，工作人员也忙的不亦热乎，正在为一处儿童游乐区域搭建儿童家具。
+
+只要乌克兰战事没有结束，我们前方的战友坚持不懈。为我们新中国联邦战友而自豪！
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image001-1.png)图片来源：救援前线电报群（BBQ）
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image002.png)图片来源：救援前线电报群（搭建儿童家具）
+
+
+资料来源：救援前线电报群
+发布：文泓
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

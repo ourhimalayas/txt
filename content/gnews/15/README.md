@@ -2,22 +2,29 @@
 ---
 
 
-## 美国前总统奥巴马中共病毒检测呈阳性
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2158889/)
+## 香港新增确诊病例超3万例 死亡人数再创单日新高
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2158923/)
 
-翻译：冰糖葫芦喵
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-编辑与校对：冰糖葫芦喵
+3月13日，香港疫情官方通报新增COVID-19（中共病毒）确诊病例3.2万例，264名染疫者病故，死亡人数再创单日新高。
 
-《网关专家》3月13日报道，**周日，美国前总统巴拉克·奥巴马宣布，他的中共病毒检测呈阳性。奥巴马说，前第一夫人米歇尔的检测结果为阴性。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Obama-4-e1647210884847.jpg)美国前总统奥巴马（图片来源：网络）
-据报道，**奥巴马已经完全接种疫苗，并且接种了第三针加强针。此前，他与其他前总统一道参加过一场宣传中共病毒疫苗的活动。**
+据《中央社》报道，过去24小时单日新增3万2430例确诊案例，其中3例是境外输入、其他都是本土病例。264人染疫死亡，再创单日新高。
 
-新闻来源链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-82.png)（图片来自路透社）
 
-[NEW: Fully Vaxxed \*And Boosted\* Barack Obama Tests Positive For Covid-19 (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/03/new-fully-vaxxed-boosted-barack-obama-tests-positive-covid-19/)
+据了解，香港在今年初开始的第5波疫情，累计确诊病例已增至69.4万多例，累计死亡3780人。
 
+关于此次感染率高、死亡率也高的香港疫情，新中国联邦的创始人郭文贵先生12日在盖特上透露，“据说，这是冠状病毒的新变种，但中共禁止报道。”他还表示，如果是新的变种，那就有可能是中共故意放毒。香港这次彻底“死”了。
 
+参考链接：
+1.[https://www.cna.com.tw/news/acn/202203130169.aspx](https://www.cna.com.tw/news/acn/202203130169.aspx)
+2.[https://www.gettr.com/post/pzold536c7](https://www.gettr.com/post/pzold536c7)
+3.[https://www.cna.com.tw/news/acn/202203120185.aspx?topic=2012](https://www.cna.com.tw/news/acn/202203120185.aspx?topic=2012)
+
+撰稿：幽蘭自得
+总编：老孙
+校对发布：小斐
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 1:09 AM (UTC)`
+
+2022.03.13 晚《新中国联邦新闻访谈》 Covid-19疫苗如何伤害免疫系统​；前线战友如何防范病毒；如何保持心理健康？
+![img](https://media.gettr.com/group3/origin/2022/03/14/01/ae7df8ff-9b34-2fe2-4bee-fc6ebc75f10a/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/14/2022 12:52 AM (UTC)`
 
 Miles Guo revealed why he thinks NFSC’s freshly brewed coffee is so important at the war zone for Ukrainian people at the moment. <br/>This is the first time in the history for Ukrainian people, in the war they are able to get a cup of freshly brewed coffee every day，文贵先生认为 NFSC 现煮咖啡在战区对乌克兰人来说如此重要。<br/>对于乌克兰人来说，这是历史上第一次，在战争中他们每天都能得到一杯现煮的咖啡
@@ -147,13 +154,6 @@ Lydia: I just want to return to Kyiv, I love Ukraine very much. <br/><br/>蕾迪
 
 The Medyka port is a land port on the border between Poland and Ukraine. A large number of refugees are withdrawing from Ukraine. In the huge refugee center area on the Polish side of the port, a group of new Chinese faces have become the focus of international media attention in recent days.Let's have a look at this group of different new Chinese faces.<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party。<br/>The Chinese Communist Party is the root cause of all disasters and wars globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/><br/>梅迪卡口岸是波乌边境的一个陆地口岸，大量的难民源源不断地从乌克兰撤出，在口岸波兰一侧巨大的难民中心区域，一群新中国人面孔，成为这几天国际媒体关注的焦点，让我们一起走进这里，看看这一群不一样的新中国人面孔<br/>我们是消灭邪恶中国共产党的新中国人。<br/>中国共产党是全世界灾难和战争的根源，只有消灭中国共产党才能拯救全人类
 ![img](https://media.gettr.com/group34/origin/2022/03/13/14/4e415c6e-6446-35be-5607-affaa0cdabbb/out.jpg)
-
----
-
-`@miles 3/13/2022 1:32 PM (UTC)`
-
-【Ukraine Rescue】03/11/2022 Three Kosovo associates from an American NGO, Refugee Direct Aid, are surprised to see Chinese faces in the scene of the Ukraine rescue. They express admiration of what the NFSC has done for rescuing Ukrainian refugees and their willingness to offer more help and cooperation with the NFSC<br/><br/>【乌克兰救援】03/11/2022 美国非政府组织“难民直接援助”的三位科索沃员工表示很惊讶看到中国面孔出现在乌克兰援救现场。他们对新中国联邦为乌克兰救援所做的工作表示钦佩，并愿意为新中国联邦提供更多帮助与合作 
-![img](https://media.gettr.com/group35/getter/2022/03/13/13/d681d20f-a800-46e8-c279-45f222a7201e/out.jpg)
 
 ---
 

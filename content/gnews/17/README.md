@@ -2,27 +2,27 @@
 ---
 
 
-## 美国前总统奥巴马 COVID-19 检测呈阳性
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2158877/)
+## 北约秘书长警告称俄罗斯可能启用化学武器
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2158909/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+**撰稿：日本东京方舟农场 Kevin wang**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/BRGZY534P5OQDPFK5WN7ME3KKI.jpg)
+3月13日，北约秘书长斯托尔滕贝格接受德国媒体采访时表示，俄罗斯在俄乌战争中可能会动用化学武器，一旦使用俄罗斯恐犯下战争罪。
 
+据中央社报道，周日世界报引述史托腾博格表示：近日，我们听到某些媒体关于乌克兰化学和生物武器实验室的荒谬说法。克里姆林宫捏造了虚假的谎言为借口，来使其不正当的行为合理化。
 
-图片来源：路透社
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-81.png)（北约秘书长斯托尔滕贝格图片来自大纪元）
 
+史托腾博格还发出警告：如今在这些虚假的借口下，我们必须保持警戒，因为俄罗斯本身可能根据这些虚构的谎言，策划化武行动，这样将是战争罪。
 
+史托腾博格还表示，乌克兰人勇敢对抗俄罗斯入侵，但未来几天恐怕会更为艰难。
 
-美国前总统巴拉克·奥巴马（Barack Obama）周日表示，他的 COVID-19 检测呈阳性，除了喉咙发痒外感觉良好。
+参考链接：
+[https://www.cna.com.tw/news/aopl/202203130114.aspx](https://www.cna.com.tw/news/aopl/202203130114.aspx)
 
-奥巴马在推特上写道：“我已经有几天喉咙发痒了，但除此之外我感觉很好。”
-
-“米歇尔和我很高兴接种疫苗和加强免疫，她的检测结果呈阴性。”
-
-链接：[https://www.reuters.com/world/us/former-us-president-obama-tests-positive-covid-19-2022-03-13/](https://www.reuters.com/world/us/former-us-president-obama-tests-positive-covid-19-2022-03-13/)
-
-编辑发表： Shuizhuyu
+撰稿：Kevin wang
+总编：老孙
+校对发布：小斐
 
  
 

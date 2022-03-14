@@ -2,10 +2,10 @@
 ---
 
 
-## 刘彦平因严重违法违纪正在接受纪律审查和监察调查
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2151918/)
+## 中共病毒疫苗被错误的数据和宣传所掩盖
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2152033/)
 
-03/12/2022 CCTV 3月12日新闻，刘彦平因严重违法违纪正在接受纪律审查和监察调查
+03/10/2022 战斗室：中共病毒疫苗被错误的数据和宣传所掩盖。
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
  
 
