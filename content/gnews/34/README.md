@@ -2,35 +2,33 @@
 ---
 
 
-## 新冠疫苗加强针不能缓解新冠疫情
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2160786/)
+## 美国非营利组织在乌克兰救援行动看见中国人深表惊讶
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2160953/)
 
-By：喜国公民
-视频来自网络
-美国作家亚历克斯·贝伦森在接受塔克节目采访时说，人类正处于一个非常危险的时刻，新冠疫苗对欧米抗病毒一点作用都没有。在新冠疫苗和加强针接种率高的国家，新冠病毒感染率高得惊人。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-贝伦森认为mRNA 新冠疫苗现在应该从市场上撤出。他说，新冠疫苗是危险的，对欧米抗变种病毒无效。用加强针来对抗新冠病毒的想法实在是疯狂。
+整理/编辑：小红帽
 
-给人们接种更多的mRNA疫苗将在人们体内产生与新冠病毒不匹配的刺突蛋白，会导致免疫系统的混乱。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-14_15-14-21.png)图片来源：郭文贵先生盖特视频截图
 
-如果这些新冠疫苗当初是用来对付欧米抗病毒，就不会被药物管理局批准。辉瑞公司正试图在未来几个月内推出针对欧米抗变种病毒的mRNA新冠疫苗。
 
-到那时，很可能会出现另一种新的变种病毒。因此，辉瑞等制药公司将永远给人们提供与当前变种病毒不匹配的新冠疫苗，使情况变得越来越糟。
+3月11日，在波兰梅迪卡救援中心，新中国联邦和法治基金的志愿者采访一家美国非营利组织的科索沃志愿者。他们对新中国联邦和法治基金的实力以及在这种场合看到新中国人面孔感到非常惊讶，同时他们表示希望跟新中国联邦和法治基金合作。
 
-他呼吁每一个公共卫生部门，都应该立即禁止接种mRNA新冠疫苗。
+这个来自美国科罗拉多州的非营利组织叫“难民直接援助”（Refugee Direct Aid）。该组织的志愿者表示，他们在每个战争时期都会出现并帮助当地的难民，比如说科索沃战争，还有之前发生过的战争。他们对新中国联邦和法治基金的志愿者感到非常有兴趣，因为他们从来没有见过中国人出现在这些场合上。
 
-幸运的是，欧米抗病毒不像delta变种病毒那样危险。如果另一个毒性更强的变种病毒出现了，人们应该想好如何应对。
+该组织非常希望跟新中国联邦和法治基金合作，关键是新中国联邦和法治基金的实力。法治基金的帐篷第一眼就吸引他们。其中，印象最深的是新中国联邦和法治基金的组织能力和现场的设施。他们一度以为新中国联邦和法治基金的志愿者是主办方。所以他们主动找到新中国联邦和法治基金的志愿者并要求合作。
 
-不幸的是，澳州卫生部长格雷格·亨特仍然建议人们接种第二剂加强针新冠疫苗，还将为65岁及以上的人群每年接种新冠疫苗。
+资料来源：[郭文贵先生2022年3月13日盖特视频](https://www.gettr.com/post/pzstssf1d8)
 
-消息来源：[Canberra Press Conference, 11 March 2022](https://www.health.gov.au/ministers/the-hon-greg-hunt-mp/media/canberra-press-conference-11-march-2022-on-kimberley-kitching-japanese-encephalitis-extensions-to-vaccinationbooster-plan-winter-preparedness-plan-for-covid-and-flu)
+发布： tianzhihuan
 
-[Outrage as Alex Berenson baselessly tells Tucker Carlson ‘dangerous’ vaccines should be ‘withdrawn’](https://sports.yahoo.com/outrage-alex-berenson-baselessly-tells-163910649.html)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-*编辑：喜国公民*
-
-*发布：喜国公民*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

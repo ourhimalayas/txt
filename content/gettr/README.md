@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 11:08 AM (UTC)`
+
+【Ukraine Rescue】03/13/22  Fellow fighter Nicole emphasizes in an interview with Polish independent producers that the evil Chinese Communist Party is the root cause of all the disasters around the world. And we, the new Chinese from the New Federal State of China, are committed to take down the Chinese Communist Party to save humanity.<br/><br/>【乌克兰救援】03/13/22  妮可战友在接受波兰独立制片人采访时强调中国共产党是全世界所有灾难的根源。而我们，新中国联邦的新中国人正致力于推翻共产党以拯救人类<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group4/getter/2022/03/14/11/e55d9c3b-921e-e9b5-90f7-7288a82f4e5b/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gtranslators_1 3/14/2022 9:34 AM (UTC)`
@@ -149,13 +156,6 @@ Miles Guo revealed why he thinks NFSC’s freshly brewed coffee is so important 
 
 The first group of fellow fighters from the Italian Himalaya Farm, including Wen Ke, Xiao Kang, Mi Feng, Mike, Ana, and Wu Jia, were the first to arrive at the frontline refugee port in Poland to organize rescue work. On March 10th, volunteers from the New Federal State of China (NFSC) and the Rule of Law Foundation (ROLF) cooperated with SSF-Rescuers Without Borders to set up a Ukrainian refugee channel in Medyka to carry out Ukrainian refugee rescue services! We are also supported by Starlink network system. Username is "New Federal State of China" and password is "takedownccp"意大利农场的第一批战友文科，小康，蜜蜂，迈克，阿娜，和吴佳最早抵达波兰前线难民口岸组织救援工作。3月10日新中国联邦法治基金的志愿者战友和无国界救援国际组织（SSF）协调作战，一起在Medyka设立乌克兰难民通道，一起进行难民救援服务工作！还有Starlink支持网络系统，我们的用户名就是“New Federal State of China”，密码就是“takedownccp"
 ![img](https://media.gettr.com/group12/origin/2022/03/13/22/a8bdb602-865a-701d-7e52-54b3745fab44/out.jpg)
-
----
-
-`@miles 3/13/2022 10:23 PM (UTC)`
-
-❤️In Kraków, Poland at 1 am on March 13,  the NFSC & ROLF Ukraine Rescue team greeted two rescue buses carrying 118 people (including a 3-day infant) , prepared hot coffee and food when greeting the buses, helped the refugees with their luggage, and led them to the train station. #NFSCrescue #ROLFrescue<br/><br/>📍We are the NEW CHINESE people who are taking down the EVIL Chinese Communist Party! #CCP≠Chinese<br/><br/>❤️法治基金和新中国联邦救援队于3月13日凌晨1点，在波兰克拉科夫迎接2辆载有118人（包括一个3个月大的婴儿）的救援大巴，在迎接大巴时准备了热咖啡和食物，帮难民们拿行李，引领她们去火车站。<br/><br/>📍我们是消灭邪恶中国共产党的新中国人 <br/><br/>💥24-Hour Emergency Rescue Support Team Contact: <br/>💌Email: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com <br/>☎️Phone (Call or Text): <br/>+1 720-657-6776 OR +1 719-224-4232 OR<br/>+48 508-532-712 OR +48 508-531-518
-![img](https://media.gettr.com/group32/origin/2022/03/13/22/866b6238-615d-298c-bc3d-f27c318d45aa/out.jpg)
 
 ---
 

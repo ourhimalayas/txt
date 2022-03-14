@@ -2,12 +2,21 @@
 ---
 
 
-## 【乌克兰救援】03/13/22 被新中国联邦和法治基金救出的中国学生和民众心存感激，但又害怕中共，希望他们有一天能大胆的与我们一起揭露中共邪恶的本质
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2161164/)
+## 视频|喜马拉雅币一周分析与总结（3月7日-3月13日）
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2161275/)
 
-【乌克兰救援】03/13/22 被新中国联邦和法治基金救出的中国学生和民众心存感激，但又害怕中共，希望他们有一天能大胆的与我们一起揭露中共邪恶的本质
+制作：香草山视频部
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+
+发稿：文敬
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

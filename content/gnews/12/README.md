@@ -2,28 +2,40 @@
 ---
 
 
-## 俄乌战争：世界正面临粮食危机
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2161666/)
+## 七哥预见Edward Moss被踢出PAG官司将招致最大报复
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2161859/)
 
-**撰稿：日本东京方舟农场 子辰**
+视频链接：[odysee.com/@郭文贵先生大直播精选:](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8818.61%EF%BC%89%E4%B8%83%E5%93%A5%E9%A2%84%E8%A7%81Edward-Moss%E8%A2%AB%E8%B8%A2%E5%87%BAPAG%E5%AE%98%E5%8F%B8%E5%B0%86%E6%8B%9B%E8%87%B4%E6%9C%80%E5%A4%A7%E6%8A%A5%E5%A4%8D%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:2)
 
-2月24日自俄罗斯入侵乌克兰以后，全球粮食供应链受到影响，数百万人将面临粮食短缺问题。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-8.jpg)（图片来自大纪元）
-援引CNN的报导称，俄罗斯和白俄罗斯是肥料的主要出口国，自俄罗斯入侵乌克兰后，所有人都不想再接触俄罗斯产品。而白俄罗斯因支持俄罗斯入侵乌克兰，也受到西方的制裁。
+郭文贵先生：我头一段时间给我们的律师说，我说“告诉你，Edward Moss PAG官司被踢出去以后，你会遭受到最大的报复，来自于单伟建”。所以说人家法官就说了：“我会让你Miles Guo extremely painful”，极端的痛苦。你看看134个million罚下来了，然后你五天不给钱，我就把你抓起来。extremely painful！哇噻！就这么说的。我那律师回来，Miles你都说对了，extremely painful，我们律师都吓得，都那样了。
 
-据悉，天然气是尿素等氮基肥料的关键成分，但目前天然气价格的飙涨助长了肥料供应紧张的问题。从而直接导致农民生产成本增长，进而影响农作物的产量。
+我们那律师事务所Baker也很大很大的，好不好？也是几百个人的律师事务所，是吧。
 
-随着俄罗斯入侵乌克兰两周以来，俄、乌地区生产的主要农产品价格暴涨，而且战争对国际小麦供应有着最关键的影响。俄罗斯和乌克兰的供应占全球小麦贸易近30% ，现在这些交易也面临风险。目前，乌克兰港口一直无法正常出口粮食，而粮食贸易商考虑到对俄罗斯的金融制裁需要避免从俄罗斯采购。鉴于此，全球小麦价格不断创下历史新高。
+编辑整理：Jacques；
 
-此外，乌克兰的小麦种植季节将因战争而中断，这对全球的粮食供应更是雪上加霜。
+字幕档制作：兵嫂；
 
-参考链接：
+视频制作及上传：Cindy；
 
-[https://www.epochtimes.com/b5/22/3/13/n13643755.htm](https://www.epochtimes.com/b5/22/3/13/n13643755.htm)
+G-News发布：海贼王M.D.LUFFY；
 
-撰稿：子辰
-总编：老孙
-校对发布：Linda
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

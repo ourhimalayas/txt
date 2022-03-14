@@ -2,20 +2,23 @@
 ---
 
 
-## 25岁超模海莉•比伯（Hailey Bieber）“脑部血栓”住院
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2161517/)
+## 泽伦斯基喊话「善恶不两立」　要微软等3企业与俄断绝关系
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2161747/)
 
-翻译 意大利达芬奇农场 小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-14-alle-10.12.03.png)图片来源：eventiavversinews.it
-25岁的超模海莉•比伯在她的Instagram上分享了她最近住院的消息。贾斯汀•比伯的缪斯女神刚刚从医院回家，她因脑血栓住院， 海莉在她的Instagram上发布了一条消息，解释了发生的事情， 并向所有人保证她情况很好。
+乌克兰总统泽伦斯基14日说，科技巨擘微软（Microsoft）、商业软体制造商甲骨文（Oracle Corp）和企业管理软体供应商SAP应停止在俄罗斯为他们的产品提供支援服务，以抗议俄国入侵乌克兰。
 
-海莉称这是她经历过的“ 最可怕的时刻之一”， 但她希望她的粉丝知道她现在在家，并且“很好”。“ 我非常感谢所有照顾我的优秀医生和护士！“ 她还补充说，“感谢所有带着美好祝愿和共同关心我的人，感谢所有的支持和爱。”她没有确切地分享她所经历的那种类似中风的症状， 也没有指出任何可能导致这种血栓的原因。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3497320-PH.jpg)图片来源：Pixabay
 
-当然，很多人想知道这是否与冠状病毒有关， 但海莉从未就这个话题写过或陈述过任何观点。但是我们知道海莉参加了大都会艺术博物馆慈善晚宴，而妮琪•米娜 ( Nicki Minaj ) 却没有参加。因为只有接种新冠疫苗者才能参加。虽然没有证实她是否接种了疫苗，但这表明她已经接种了疫苗，对此我们并不是100%的确定。
+简评：弱者受到欺凌呼唤正义！乌克兰总统泽伦斯基为饱受俄罗斯摧残的乌克兰人民在尽力的呼喊，请求世界制裁俄罗斯来为乌克兰助力！也许这是没有办法的办法，当世界陷入冰冷，呼唤应该是有温度的，当世界陷入冷漠，呼唤应该是有态度的，世界真正需要回归的是正道主义！
 
-原文链接：[https://www.eventiavversinews.it/la-top-model-hailey-bieber-25-anni-ha-sofferto-di-un-coagulo-di-sangue-al-cervello-ed-e-stata-ricoverata-in-ospedale/](https://www.eventiavversinews.it/la-top-model-hailey-bieber-25-anni-ha-sofferto-di-un-coagulo-di-sangue-al-cervello-ed-e-stata-ricoverata-in-ospedale/)
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1084871)
 
-编辑、上传： Xiao  baige
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

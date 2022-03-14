@@ -2,21 +2,19 @@
 ---
 
 
-## 中日财经爆┃大疆再遭制裁，设计软件被封！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2159515/)
+## 樱花时政┃因中共威胁 日韩澳武器进口激增
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2160125/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1472.png)图片来源于本文链接
-3月12日，美国设计软件企业Figma封禁大疆等被美国制裁公司的账号。大疆内部收到了一封来自设计软件公司Figma的邮件表示，大疆在发布的制裁名单当中，因此Figma无法再提供软件服务，并开始冻结账户。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1473.png)
-Figma成立于2012年，是基于网页的界面设计协作工具，可以将项目时刻保存在云端，这样就可以保证多方用户对设计进行实时评论或修改。它有三个很显著的特性：实时协作、矢量网格、版本历史。最重要的是，这个工具非常方便，可以在一个文档中同时处理20个以上的画板。大疆等很多企业都使用Figma软件，它相当于企业设计的“画笔”。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-22.jpg)[图片来源](https://www.bbc.com/news/world-asia-china-60492134#:~:text=ADVERTISEMENT-,The%20Ukraine%20crisis%20is%20a%20major%20challenge%20for%20China,-By%20Stephen%20McDonell)
+3月14日，瑞典斯德哥尔摩国际和平研究所（SIPRI）发布了一份报告，比较了2017-21年和之前五年的全球武器交易量。报告解释说，日本、韩国和澳大利亚的情况急剧增加，”越来越多的国家将中共视为一种威胁”。 日本的进口量是世界上第十位，增长了152%。
 
-大疆是中共军民融合的核心企业之一，大量参与中共军方用于战场的长航时无人机研制，并大量开发用于监控人民的无人机，是中共邪恶统治的重要帮凶。此次设计软件禁用，将大大减缓相关无人机制造的步伐，配合之前的芯片禁售，大疆或将逐步面临停产绝境。
+全球总体进出口贸易下降了4.6%。 前十大进口国中有六个在亚洲-大洋洲地区，包括澳大利亚和中国以及日本和韩国，SIPRI指出，该地区在过去30年里一直保持着最高的进口水平。
 
-信息来源： [继华为之后 大疆再遭制裁：设计软件被封！](https://www.163.com/dy/article/H2BRCQ120514R9KC.html)
+信息源：[日韓豪の武器輸入、急増　中国の脅威背景、国際平和研](https://news.yahoo.co.jp/articles/f6ec663f204f4f25362b0bb3dd262e1eb2b8ab08#:~:text=%E6)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
