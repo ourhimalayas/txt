@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gtranslators_1 3/14/2022 9:34 AM (UTC)`
+
+[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.03.14 EST
+![img](https://media.gettr.com/group21/origin/2022/03/14/09/76ac9fdb-56d1-35c4-8d08-4b54843652a9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/14/2022 9:26 AM (UTC)`
 
 The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Rescue Team – 24h Hotline: +1 7206576776 or +1 719-224-4232 or +48 508-532-712 or +48 508-531-518 Telegram: t.me/UkraineRescue GETTR: https://gettr.com/user/UkraineRescue<br/>我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є першопричиною катастроф у світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
@@ -147,13 +156,6 @@ The first group of fellow fighters from the Italian Himalaya Farm, including Wen
 
 ❤️In Kraków, Poland at 1 am on March 13,  the NFSC & ROLF Ukraine Rescue team greeted two rescue buses carrying 118 people (including a 3-day infant) , prepared hot coffee and food when greeting the buses, helped the refugees with their luggage, and led them to the train station. #NFSCrescue #ROLFrescue<br/><br/>📍We are the NEW CHINESE people who are taking down the EVIL Chinese Communist Party! #CCP≠Chinese<br/><br/>❤️法治基金和新中国联邦救援队于3月13日凌晨1点，在波兰克拉科夫迎接2辆载有118人（包括一个3个月大的婴儿）的救援大巴，在迎接大巴时准备了热咖啡和食物，帮难民们拿行李，引领她们去火车站。<br/><br/>📍我们是消灭邪恶中国共产党的新中国人 <br/><br/>💥24-Hour Emergency Rescue Support Team Contact: <br/>💌Email: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com <br/>☎️Phone (Call or Text): <br/>+1 720-657-6776 OR +1 719-224-4232 OR<br/>+48 508-532-712 OR +48 508-531-518
 ![img](https://media.gettr.com/group32/origin/2022/03/13/22/866b6238-615d-298c-bc3d-f27c318d45aa/out.jpg)
-
----
-
-`@miles 3/13/2022 10:13 PM (UTC)`
-
-3/13/2022 Miles Guo: What are the implications of the Western sanctions imposed on the Russian oligarchs? Regardless of which passport you hold, once the CCP is sanctioned by the West, no one in China will be able to evade it. Only those citizens of the New Federal State of China who are determined to take down the CCP can save their lives and wealth. Being truthful and united is what makes us different from the CCP.<br/><br/>3/13/2022 文贵直播：俄罗斯寡头被西方制裁说明了什么？无论持哪国护照，一旦中共国被西方制裁，中国人谁也躲不过，只有灭共的新中国联邦人可以保命保财，唯真不破和团结让我们和中共不一样<br/>
-![img](https://media.gettr.com/group18/getter/2022/03/13/22/e1f4327a-5ca8-78ae-8c2a-4e7ccffcbdeb/out.jpg)
 
 ---
 
