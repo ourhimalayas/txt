@@ -2,32 +2,29 @@
 ---
 
 
-## 新中国联邦的新中国人正致力于推翻共产党以拯救人类
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2162243/)
+## 乌战场使用面部识别技术 助查施袭者打假
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2162358/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+采集：玫瑰新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3851077770-15_0.jpg)3月11日，在乌克兰伊万诺-弗兰科夫斯克空袭警报期间，一群平民在防空洞内听取军训教官的讲话。（彭博社）
+（早报讯）乌克兰国防部自上周六（3月12日）开始，把美国初创公司Clearview AI的面部识别技术运用在战场上。
 
-整理/编辑：小红帽
+路透社报道，由Clearview AI开发的这项技术可协助乌克兰清查俄罗斯施袭者、打击虚假信息和辨认死者身份。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-14_19-31-24.png)图片来源：郭文贵先生盖特视频截图
+Clearview AI顾问、曾在美国总统奥巴马任内担任美国外交官的沃洛斯基（Lee Wolosky）表示，乌克兰获免费使用Clearview AI强大的面部搜索引擎，除了可以在检查站进行人员身份审核，还可在其他方面派上用场。
 
+根据路透社看到Clearview AI总裁宦孙至 （Hoan Ton-That）写给基辅的一封信的副本，宦孙至在俄罗斯对乌克兰发动入侵后致信乌克兰政府，表明愿为基辅提供协助。
 
-3月13日，在波兰梅迪卡国际难民营救中心，法治基金和新中国联邦乌克兰救援行动的志愿者妮可接受了波兰独立制片人的采访。妮可强调中国共产党是全世界所有灾难的根源。而我们，新中国联邦的新中国人正致力于推翻共产党以拯救人类。
+Clearview AI表示，该公司并没有为俄罗斯提供这项技术。
 
-妮可在视频中讲述：“我是新中国联邦的一员，我们是致力于推翻邪恶的中国共产党的新中国人。中国共产党是全世界所有灾难的根源。推翻中国共产党是拯救人类的唯一途径。我们知道中共是每一次灾难，每一次人道主义危机，每一次人道暴行的幕后黑手。因此我们，来自新中国联邦的新中国人，来到这里帮助难民，帮助那些穿越国境的妇女，母亲和孩子。我们希望为他们带来安慰、温暖、希望和爱。”
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-14_19-32-02.png)
-“我们提供在整个梅迪卡难民中心里最大的两个帐篷。我们的帐篷是这里最大，设施最好的。我们有志愿者24小时不间断地向妇女和儿童提供帮助。我们的救援行动是由法治基金资助的。法治基金位于纽约并致力于为世界各地的中国人实现一个和平的法治社会，而非中共统治下的社会。我们是新中国联邦人，我们要终结全世界所有灾难和人道主义危机的根源–中国共产党。”妮可强调。
+乌克兰国防部没有回复路透社的置评请求。此前，乌克兰数码化转型部一名发言人表示，正在考虑来自Clearview AI等美国人工智能公司的提案。许多西方企业都承诺帮助乌克兰，为其提供互联网硬件、网络安全工具和其他技术支持。
 
-资料来源：[郭文贵先生2022年3月14日盖特视频](https://www.gettr.com/post/pzxh4p106a)
+宦孙至为越南裔的澳大利亚企业家，也是Clearview AI的联合创始人。Clearview AI拥有来自俄罗斯社交媒体服务平台VKontakte的超过20亿张图像，其数据库的图像总数超过100亿张。
 
-发布：tianzhihuan
+参考连结：[https://www.zaobao.com.sg/realtime/world/story20220314-1252109](https://www.zaobao.com.sg/realtime/world/story20220314-1252109)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+审核校对：Barry Jack
+上传排版：F
 
  
 
