@@ -2,57 +2,48 @@
 ---
 
 
-## 有声|阿根廷桑坦德银行将提供以农产品为基础的代币担保贷款
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2159747/)
+## 以色列斡旋停战未果 泽连斯基誓死保卫基辅
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159758/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-以小麦、玉米和大豆为基础的加密货币担保的贷款。这是金融巨头桑坦德银行的新举措，由此显示了其对区块链领域的承诺。我们暂时评估了这项服务中独一无二的服务，该服务将首先在阿根廷提供。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/blob-1.jpeg)图片来源于网络
-**桑坦德银行提供以农业代币为担保的贷款**
-
-正如桑坦德阿根廷分公司在新闻稿中宣布的那样，这些新贷款适用于农业部门的参与者。最大的新奇之处在于，后者将使用基于农业原材料的代币。
-
-小麦 (WHEA)、玉米 (CORA) 和大豆 (SOYA) 代币因此以“加密谷物”的名义创建。 根据桑坦德银行的说法，该解决方案将允许农民“ 轻松、流畅地使用新的融资系统，扩大信贷能力，使用代币化谷物”。
-
-这是基于与初创公司 Agrotoken 的合作伙伴关系，该公司专门从事谷物和种子等农产品的代币化。每个代币都以美元跟踪商品的价格。最近几个月，该公司已经通过试点与阿根廷生产商测试了这一过程。
-
-根据 Agrotoken 的首席执行官兼联合创始人 Eduardo Novillo Astrada 的说法，这是世界首创：
-
-“ 这是全球首个以农产品为基础的代币借贷实验。[…]我们正在共同创造各种金融产品，为农业生产者提供服务，使他们可以轻松顺利地获得由谷物担保的新信用体系。”
-
-**多渠道基础设施**
-
-该服务基于多个区块链解决方案：以太坊(ETH) 、Algorand [(](https://cryptoast-fr.translate.goog/fiche-ethereum/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN) ALGO) 和Polygon (MATIC)。它包括一个称为“粮食储备证明 (PoGR)”的验证过程。生产者可以使用预言机创建 PoGR 证书。
-
-这使他们能够生产（铸币）有问题的代币，然后将其用作抵押品。该过程将具体商品连接到去中心[化金融](https://cryptoast-fr.translate.goog/defi-finance-decentralisee-explications/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)（DeFi）生态系统。Agrotoken 和 Santander 希望加密货币可以在交易平台和 DeFi 应用程序上使用。
-
-如果该项目成功，桑坦德很可能会被其他大公司模仿。根据桑坦德阿根廷农业工业负责人费尔南多包蒂斯塔的说法，该集团无论如何都打算继续提供这种类型的创新产品：
-
-“ 我们依靠技术和创新创造新的商业解决方案，让生活更轻松，并为农业生产者扩大机会。 ”
-
-评价：只要是被需求的东西，都有价值，只要是这样东西可以进行代币化，就可以质押贷款，未来的去中心化金融（DeFi）将会使金融业发生翻天覆地的变化，传统银行的垄断被打破，沼泽地的主人就要重新定义了，七哥在大直播里曾经比喻过一个能灭共的屁，在去中心化金融DeFi的场景下，就会产生超级无穷的价值，将在未来被严肃的看待。
+作者：纽约香草山 – 侠肝义胆
 
 
 
-文字版原文：[阿根廷桑坦德银行将提供以农产品为基础的代币担保贷款](https://gnews.org/zh-hans/2129158/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
+
+国外媒体3月12日报道，以色列总理贝内特为幹旋俄乌停战，和乌克兰总统泽连斯基及法 德领导人进行了反复沟通交流。泽连斯基告诉贝内特，他希望到耶路撒冷和普京见面，进行和平谈判。
+
+贝内特为此专门访问莫斯科会见了普京，希望能够调解目前处于焦着状态的俄乌战争。但遗憾的是贝内特此行没有达成预期成果，普京仍然拒绝同泽连斯基见面进行和谈。
+
+泽连斯基说，贝内特已经向他通报了他与普京的会谈情况。此前，普京对泽连斯基多次提出的和谈建议置之不理。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-8.jpg)
+因此，泽连斯基在新闻发布会上说，乌克兰人已经准备好反击俄罗斯的疯狂进攻。俄罗斯人想要占领基辅只有杀死所有乌克兰人。俄罗斯地毯式的轰炸不能抹去乌克兰和基辅的历史记忆，更无法抹去整个欧洲的历史记忆。
+
+泽连斯基表示，乌克兰人将誓死保卫自己的首都，俄罗斯即使再派一百万军队过来，也不能占领乌克兰。
+
+参考链接：
+[‘Let Them Come’ – Zelensky Says Russians Will Have to ‘Kill Us All’ to Take Kyiv](https://www.breitbart.com/europe/2022/03/12/let-them-come-zelensky-says-russians-will-have-to-kill-us-all-to-take-kyiv/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/审核：飞虹
+校对/发稿：为真不破20
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

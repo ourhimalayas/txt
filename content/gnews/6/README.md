@@ -2,89 +2,26 @@
 ---
 
 
-## 拜登：“北约与俄罗斯之间的直接对抗是第三次世界大战，我们必须努力防止这种情况”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2159889/)
+## 文贵视角: 2022年人类面临最黑暗的不是战争,而是疫苗灾难
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2159921/)
 
-Joe Biden (U.S. President)
-乔·拜登（美国总统）
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Image-1-3.jpg)
+**疫苗灾难的伤害远远大于热战**
 
-We’re gonna continue to stand together with our allies in Europe
-我们将继续与我们在欧洲的盟友站在一起
+“2022年开启了人类前所未有可能的局部核战、生物战，然而最严重、最黑暗的是疫苗灾难 ! 所有的战争加在一起的总和，跟疫苗灾难比起来都是小事。”郭文贵先生在3月13日语出惊人。
 
-and send an unmistakable message
-并传递明白无误的信息
+“打疫苗之后的灾难是巨大的!特别是打了三针、四针疫苗的人，绝对结束了!啊!没什么希望了。”文贵先生提及疫苗灾难的可怖。
 
-We’ll defend every single inch of NATO territory
-我们将保卫每一寸北约领土
+**人类付出巨额代价，以迎接’无皇有主’的时代**
 
-of the full might of the united and galvanized NATO
-团结和激励的北约的全部力量
+“第二个黑暗就是人类开启了最惨烈的’无皇有主’的一个新时代，这是信息时代必然会发生的革命现象。所有皇族及独裁都将被扫入历史，开启平民时代。那些曾经靠坑、蒙、拐、骗、偷的家天下治国方式，都会被一扫而尽。”文贵先生提到所有皇权的寡头政治即将灰飞烟灭，”就像家里打扫房子、搞个结婚、过个年，屋里都弄得叮叮咣当响，是不是可能砸盆砸碗?人类也会因为’无皇有主’时代的到来,而付出巨大代价。”
 
-We will not fight a war against Russia in Ukraine
-我们不会在乌克兰与俄罗斯开战
+**2022年人类之所以面临黑暗时代是因为贪、嗔、癡、慢、疑**
 
-direct confrontation between NATO and Russia is World War III
-北约与俄罗斯的直接对抗将成为第三次世界大战
+“你看看全世界媒体现在都在助纣为虐，帮助独裁政权的媒体是为了金钱而出卖灵魂的媒体，几乎看不到一个有良知的媒体。”文贵先生指责人类第四权的媒体堕落无知，”拥有十四亿人民的中共国媒体，没有一个敢说真话的，像中共国环球时报邪恶的胡书立，干尽所有坏事。”
 
-Something we must strive to prevent
-这是我们必须努力防止的事情
-
-But we already know Putin war against Ukraine will never be a victory
-但我们已经知道普京对乌克兰的战争永远不会胜利
-
-He hoped to dominate Ukraine without a fight, he failed
-他希望轻松战胜乌克兰，他失败了
-
-he hoped fracture European resolve, he failed
-他希望破坏欧洲的决心，他失败了
-
-he hoped to weaken the Transatlantic Alliance, he failed
-他希望削弱了跨大西洋联盟，他失败了
-
-He hoped to split apart American democracies in terms of our positions, he failed
-他希望在我们的立场上分裂美国民主国家，他失败了
-
-The American people united, the world is united
-美国人民是团结的，世界是团结的
-
-And we stand with the people of Ukraine
-我们与乌克兰人民站在一起
-
-We will not let autocrats and would be emperors dictate the direction of the world
-我们不会让独裁者和皇帝左右世界的方向
-
-Democracies are rising to meet this moment
-民主国家正在崛起迎接这一刻
-
-Rally in the world to the side of peace, the side of security
-团结在世界和平的一边，安全的一边
-
-we’re showing our strength and we will not falter
-我们正在展示我们的力量，我们不会动摇
-
-God bless all of you, God bless Ukraine and God bless our troops
-上帝保佑你们所有人，上帝保佑乌克兰，上帝保佑我们的军队
-
-原视频链接: [https://twitter.com/newsmax/status/1502318377737539584?s=24](https://twitter.com/newsmax/status/1502318377737539584?s=24)
-
-Date:03/12/2022
-原视频标题:BIDEN: “Direct confrontation between NATO and Russia is World War III, something we must strive to prevent”
-拜登：“北约与俄罗斯之间的直接对抗是第三次世界大战，我们必须努力防止这种情况”
-原视频日期：2022/03/12
-原视频链接https://twitter.com/newsmax/status/1502318377737539584?s=24
-任务编号：KE450（3989）
-视频时间段 : 0:00-1:15
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场-庚子
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+“因为人类贪、嗔、癡、慢、疑，才会陷入疫苗灾难，疫苗灾难就是惩罚人类的贪、嗔、癡、慢、疑。有正道主义思想、为他人献奉的新中国联邦人倖免于这场疫苗灾难，是最幸福的无苗族!”文贵先生强调疫苗灾难的危机，”疫苗灾难是2022年最可怕的灾难，其次是金融灾难、自然灾难、医疗灾难、人道危机，最后才是战争。”
 
  
 

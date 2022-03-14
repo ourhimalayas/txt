@@ -2,10 +2,10 @@
 ---
 
 
-## 泽连斯基披露两军死亡数字
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159759/)
+## 中共病毒疫苗创造亿万富翁 中共国六人上榜
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159760/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：温哥华扬帆农场—動物農莊裡的小螞蟻Michael.Tonny
 
 
 
@@ -13,22 +13,19 @@
 
 
 
-3月13日，国外媒体报道，乌克兰总统泽连斯基前一天在莫斯科军队逼近首都基辅时表示，自俄罗斯入侵乌克兰以来，已有“约1300名”名乌克兰士兵丧生。
-
-泽连斯基是在媒体吹风会上披露的这一情况，这是基辅自战斗开始以来首次披露伤亡数字。
-
-3月2日，俄罗斯曾表示俄方已损失近500名士兵，但此后一直没有更新数字。3月12日泽连斯基称，俄军已有12000人阵亡，但他表示，俄军如此巨大的伤亡并不让他开心。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-5.jpg)
-就在3月12日，俄罗斯军队加大了对基辅的压力，猛烈打击了乌克兰其他城市的平民区，基辅市长表示，基辅正在加强防御并储存食品和药品。
-
-另外乌克兰外交部长称，南部港口城市马里乌波尔正面临“地球上最严重的人道主义灾难”，俄军的袭击已经造成1500多名平民死亡。
+近日，有机构披露，自中共病毒大流行开始以来，至少有9人成为新的亿万富翁，这九位新亿万富翁的总净资产为193亿美元。八位现有的亿万富翁的总财富增加了322亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-6.jpg)
+在这17位亿万富翁中，有6人来自中共国。他们分别是：中共国重庆智飞生物制品股份有限公司主席，蒋仁生家族；中共国国药控股股份有限公司，谢炳；中共国重庆智飞生物制品股份有限公司联合创始人，吴冠江；中共国天津康希诺生物联合创始人、董事长兼首席科学官朱涛；中共国天津康希诺生物联合创始人兼高级副总裁邱东旭；中共国天津康希诺生物联合创始人兼高级副总裁毛慧华。
 
 参考链接：
-[‘Around 1,300’ Ukrainian troops killed during assault](https://news.rthk.hk/rthk/en/component/k2/1638633-20220313.htm?share=facebook)
+1. [COVID病毒疫苗创造亿万富翁 中共国6人上榜](https://gnews.org/zh-hans/2152315/)
+2. [COVID vaccines create 9 new billionaires with combined wealth greater than cost of vaccinating world’s poorest countries](https://www.oxfam.org/en/press-releases/covid-vaccines-create-9-new-billionaires-combined-wealth-greater-cost-vaccinating)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-总编/审核：飞虹
+审核：文真
+总编：飞虹
+编辑：Jack Li文阳
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

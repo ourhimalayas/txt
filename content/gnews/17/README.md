@@ -2,10 +2,10 @@
 ---
 
 
-## 中共病毒疫苗创造亿万富翁 中共国六人上榜
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159760/)
+## 关注中共假借民船商船攻台
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159764/)
 
-作者：温哥华扬帆农场—動物農莊裡的小螞蟻Michael.Tonny
+作者：日本东京方舟农场—Miyali7768(文玉）
 
 
 
@@ -13,19 +13,18 @@
 
 
 
-近日，有机构披露，自中共病毒大流行开始以来，至少有9人成为新的亿万富翁，这九位新亿万富翁的总净资产为193亿美元。八位现有的亿万富翁的总财富增加了322亿美元。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-6.jpg)
-在这17位亿万富翁中，有6人来自中共国。他们分别是：中共国重庆智飞生物制品股份有限公司主席，蒋仁生家族；中共国国药控股股份有限公司，谢炳；中共国重庆智飞生物制品股份有限公司联合创始人，吴冠江；中共国天津康希诺生物联合创始人、董事长兼首席科学官朱涛；中共国天津康希诺生物联合创始人兼高级副总裁邱东旭；中共国天津康希诺生物联合创始人兼高级副总裁毛慧华。
+台湾媒体3月12日消息，俄罗斯入侵乌克兰引发了各方对于中共武力犯台的关切。美国国会研究处3月8日发布的一份报告认为，近年来中共虽打造了航空母舰与两栖登陆舰，但更应关注共军运用民船和商船对台执行两栖登陆作战的可能性。
+
+美国海军战争学院中国海事研究所的讲师肯尼迪，也曾发表有关于中国改民船用于两栖作战对台构成威胁的文章。指出，自2019年以来，中共远洋运输集团公司的1万5560吨级滚装式货轮“棒棰岛号“，已配备经过改装的坡道系统，能够在近岸让两栖装甲车上下船。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-6.jpg)
+新美国安全中心资深研究员许卡特表示，共军致力把民用渡轮当作两栖运输工具，是试图将中共世界级商船整合到两栖攻击部队中的一环，如果成功，中共可能会大幅增加跨台湾海峡的海运能力，消除侵犯台湾的主要障碍之一。
 
 参考链接：
-1. [COVID病毒疫苗创造亿万富翁 中共国6人上榜](https://gnews.org/zh-hans/2152315/)
-2. [COVID vaccines create 9 new billionaires with combined wealth greater than cost of vaccinating world’s poorest countries](https://www.oxfam.org/en/press-releases/covid-vaccines-create-9-new-billionaires-combined-wealth-greater-cost-vaccinating)
+[美國國會智庫報告：應關注中國恐以民船商船犯台](https://www.cna.com.tw/news/aopl/202203120196.aspx)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-审核：文真
-总编：飞虹
-编辑：Jack Li文阳
+总编/编辑/审核：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

@@ -2,44 +2,25 @@
 ---
 
 
-## 关注中共假借民船商船攻台
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159764/)
+## 乌国难民恐成人蛇下手目标！快快加入新中国联邦
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2159776/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
+俄军侵略乌克兰19天，引发大规模难民潮逃到国外，联合国统计至少已经有250万人流离失所，其中绝大多数都是「老弱妇孺」弱势族群，国际公益团体非常担忧，贩卖人口歹徒可能趁着兵荒马乱之际，混进难民营，假借各种名义，把妇女跟小朋友带走卖掉，让本来孤苦无依的乌克兰难民，再度掉进不幸的深渊。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/b06c8cdc-bac2-48eb-bdd1-ae5bcb4e5c11.jpg)图片来源：AP Direct
 
+世界展望会呼吁，乌克兰难民必须有危机意识、三思而行，尤其是女性和年轻人，手机必须充饱电，每次乘车都要记住车号，跟具有公信力的国际志工保持密切联系，随时通报去向和所在位置，以免遭遇不测人间蒸发，成为人口贩卖集团的战利品，幸运逃离战火却又掉进更可怕的地狱。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+简评：乱世之中，人性的恶念很容易被激发，尤其那些无恶不作贩卖人口的歹徒，会趁着机会大搞人口买卖，乌克兰的难民正是他们瞄准的目标！新中国联邦人道救援在救援现场设立了救援营，热心无私的帮助乌克兰逃难的朋友们，刚刚逃离战火为了免遭坏人之手，新中国联邦大家庭欢迎你们的加入！
 
+新闻来源：[台视新闻网](https://news.ttv.com.tw/news/11103130033400N)
 
+撰稿/发布：一叶知秋
 
-台湾媒体3月12日消息，俄罗斯入侵乌克兰引发了各方对于中共武力犯台的关切。美国国会研究处3月8日发布的一份报告认为，近年来中共虽打造了航空母舰与两栖登陆舰，但更应关注共军运用民船和商船对台执行两栖登陆作战的可能性。
-
-美国海军战争学院中国海事研究所的讲师肯尼迪，也曾发表有关于中国改民船用于两栖作战对台构成威胁的文章。指出，自2019年以来，中共远洋运输集团公司的1万5560吨级滚装式货轮“棒棰岛号“，已配备经过改装的坡道系统，能够在近岸让两栖装甲车上下船。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-6.jpg)
-新美国安全中心资深研究员许卡特表示，共军致力把民用渡轮当作两栖运输工具，是试图将中共世界级商船整合到两栖攻击部队中的一环，如果成功，中共可能会大幅增加跨台湾海峡的海运能力，消除侵犯台湾的主要障碍之一。
-
-参考链接：
-[美國國會智庫報告：應關注中國恐以民船商船犯台](https://www.cna.com.tw/news/aopl/202203120196.aspx)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

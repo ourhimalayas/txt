@@ -2,45 +2,37 @@
 ---
 
 
-## 有声|新中国联邦纽约救援团队已赴前线
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2159780/)
+## 今日盖特大V推荐 — 格雷格·贾勒特（Gregg Jarrett）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2159795/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1484-e1647225203703.png)
+盖特链接： [https://gettr.com/user/greggjarrett](https://gettr.com/user/greggjarrett)
+
+格雷格·贾勒特自述：
+
+福克斯新闻频道的法律和政治分析师。《俄罗斯骗局和猎巫》（THE RUSSIA HOAX and WITCH HUNT） 的作者。
+
+购书链接：[http://bit.ly/WitchHuntbook](https://bit.ly/WitchHuntbook)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1485.png)图片来源：网络
+**格雷格·贾勒特简介：**
+
+格雷格·贾勒特（Gregory Walter Jarrett 生于1955年4月7日）是美国[保守派](https://en.m.wikipedia.org/wiki/Conservatism_in_the_United_States)新闻评论员、作家和律师。
+
+格雷格·贾勒特于2002年11月加入福克斯新闻，此前他曾在当地的NBC和ABC电视台以及国家网络法庭电视台（Court TV）和微软全国广播公司（MSNBC）工作了十多年。
+
+格雷格·贾勒特以其支持川普的评论，以及对俄罗斯干涉2016年美国大选调查的批评而闻名。2018年，他发表了《俄罗斯骗局》，认为“深层政府”试图破坏川普政府并保护2016年总统候选人希拉里·克林顿。
+
+编撰：洛杉矶盘古农场 — 心照
+
+校审：洛杉矶盘古农场 — 郭友(文苏)
+
+发布：洛杉矶盘古农场 — 子萍
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/jy-2-768x432-1.jpg)
-美东时间3月4日晚，新中国联邦奔赴前线波兰参与救援的战友在纽约完成集结，大约晚上9点乘坐飞机飞往波兰，为前线带去必要的物资救济以及大量药品，如伊维菌素、青蒿素、地塞米松、维生素C、D、阿奇霉素、口罩、手套等预防中共病毒的必需品。
-
-据悉，新中国联邦目前到达前线的队伍有英喜团队、纽伦堡团队，除去补给方面的救援，前线现在开始租用大巴到乌克兰去救人，截止到直播时间，已经救出一车被困人员。
-
-此次纽约前线共有9位战友和1位常驻美国的乌克兰人。Nicole战友因雇主不允许自己去参与救援，毅然辞掉了工作。战友护送救援团队到达机场，此次救援新中国联邦乘坐的都是商务舱，在登机口还遇到了一位同去参与救援的美国人，他是一家上市公司的CEO，和战友Nicole的雇主不同的是，他鼓励自己的雇员去参与救援，他自己也身先士卒奔赴救援前线。
-
-新中国联邦希望困在乌克兰战区的中国同胞不要再听信中共大使馆的骗人话，请不要在机场等一艘船。能出来的尽快出来，乌克兰战区的情况时时刻刻都在变化，请一定不要再错过救援机会。
-
-目前纽约救援团队还在集结，后面还陆续会有团队奔赴前线参与救援。
-
-
-
-文字版原文：[新中国联邦纽约救援团队已赴前线](https://gnews.org/zh-hans/2127699/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
  
 
