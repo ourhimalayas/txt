@@ -2,27 +2,22 @@
 ---
 
 
-## 美国前总统奥巴马 COVID-19 检测呈阳性
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2158877/)
+## 美国前总统奥巴马中共病毒检测呈阳性
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2158889/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+翻译：冰糖葫芦喵
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/BRGZY534P5OQDPFK5WN7ME3KKI.jpg)
+编辑与校对：冰糖葫芦喵
+
+《网关专家》3月13日报道，**周日，美国前总统巴拉克·奥巴马宣布，他的中共病毒检测呈阳性。奥巴马说，前第一夫人米歇尔的检测结果为阴性。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Obama-4-e1647210884847.jpg)美国前总统奥巴马（图片来源：网络）
+据报道，**奥巴马已经完全接种疫苗，并且接种了第三针加强针。此前，他与其他前总统一道参加过一场宣传中共病毒疫苗的活动。**
+
+新闻来源链接：
+
+[NEW: Fully Vaxxed \*And Boosted\* Barack Obama Tests Positive For Covid-19 (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/03/new-fully-vaxxed-boosted-barack-obama-tests-positive-covid-19/)
 
 
-图片来源：路透社
-
-
-
-美国前总统巴拉克·奥巴马（Barack Obama）周日表示，他的 COVID-19 检测呈阳性，除了喉咙发痒外感觉良好。
-
-奥巴马在推特上写道：“我已经有几天喉咙发痒了，但除此之外我感觉很好。”
-
-“米歇尔和我很高兴接种疫苗和加强免疫，她的检测结果呈阴性。”
-
-链接：[https://www.reuters.com/world/us/former-us-president-obama-tests-positive-covid-19-2022-03-13/](https://www.reuters.com/world/us/former-us-president-obama-tests-positive-covid-19-2022-03-13/)
-
-编辑发表： Shuizhuyu
 
  
 
