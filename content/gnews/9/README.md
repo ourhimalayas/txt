@@ -2,12 +2,10 @@
 ---
 
 
-## 随着俄占领更多乌领土，普京谈判的要价会更高
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2163262/)
+## 消灭中国共产党的新中国人
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2163397/)
 
-03/12/2022 班农战斗室：陷入包围的乌克兰城市马里乌波尔，很快会被俄军攻破。随着俄占领更多乌领土，普京谈判的要价会更高。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+台灣寶島農場
 
  
 

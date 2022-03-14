@@ -2,34 +2,43 @@
 ---
 
 
-## 大直播后记：中南坑的下场比齐奥塞斯库惨多了
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2162870/)
+## 中共国本土日确诊中共病毒病例激增
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2163204/)
 
-整理：文晋、Lucy Liu
-编辑：Mttfly
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据媒体报道，3月13日， 中共国报告的新增本土中共病毒病例，是前一天的三倍多，达到两年来的最高水平。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-23.jpg)
+中共卫健委周日公布的数据显示，周六报告1938 例确诊病例，较前一天的 588 例急剧上升。目前不断增长的病例数使中共宣扬的“动态清零”政策捉衿见肘。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-01-下午3.16.57-27.png)
+中共国东北吉林省周六报告了1,412例新增本地病例，占全国总数的78％，远高于一天前的134例。
 
+据当地官媒报道，已经处于封锁状态的省会长春市，当局一直在进行大规模测试，并将一个展览中心变成一个拥有 1500 张床位的临时医院。
 
-我可以告诉你，这个齐奥塞斯库在罗马尼亚发生那一幕，在中国一定是会发生的，而且比那个还会惨。那个只有齐奥塞斯库他家人。你知道到了一九八几年、九几年后，齐奥塞斯库的资产在欧洲，还在那儿弄不回去呢！罗马尼亚就弄不回去那钱，他们家人享受那财富呢。我在直播中讲过十几次。
+广东深圳周六报告了 60 例确诊新本地病例，这是自 2020 年初，中共国首次报告爆发疫情以来，该市此类病例的每日最高增幅。深圳所有九区均已停止餐厅用餐，关闭一系列室内娱乐场所。
 
-但是现在你发现美国对俄罗斯的制裁行动是在什么情况？17个小时就做出了决定，而且是美国和欧洲联合做出了决定。六几年和今天的2022年的人类文明的进步、互联网的进步、世界的进步，世界的决策什么都是快的，而且是全面的。过去的共产党认为制裁我能怎么着？我该吃吃该喝喝。用习太阳的话说：我一不输出贫穷，二不输出革命，我招你惹你了？你白人吃饱撑的，管我什么闲事儿，我家的奴隶，我说了算，你管什么管？
+当地官媒周日称，广东东莞的六名中共地方党政官员，因在中共病毒防控工作中表现不佳而被免职。
 
-现在不是这个世界了。现在全世界地球就是一家人。不是你家姑娘、你家儿子，你想怎么着就怎么着了。当齐奥塞斯库被医生喊着说：打倒齐奥塞斯库！到最后从一个国家英雄迅速两口子拉出去枪毙。但是钱追的慢，看家人死的也不多。
+评论人士称，与西方国家近期大幅降低的疫情相比，一直吹嘘抗疫全球第一的中共国，多地的新增病例突然爆升，其实是疫苗灾难的开始。
 
-卡扎菲、萨达姆呢？萨达姆和卡扎菲的家人几乎是全部被歼灭。米洛舍维奇在南斯拉夫、在塞黑，几乎是在全球被追缴，不可能有任何生存的余地。齐奥塞斯库这个待遇对他们（中南坑）实在是太豪华了。中国发生的一幕，一定是在一秒钟内突然发生。你眼睛没明白过来呢，头还没转过来呢，无数人头落地。中南坑还有什么政治局委员、常委都得被撕成肉酱一样。答案是一定会发生的。但他们不会有那么好的待遇，就比这惨的多得多。而且在全世界所有他们的资产、儿女都会很惨，瞬间被查封，瞬间被拿掉。
+参考链接：
+1. [China’s daily cases of symptomatic COVID more than triple](https://www.reuters.com/business/healthcare-pharmaceuticals/china-daily-local-symptomatic-covid-cases-more-than-triple-2022-03-13/)
+2.[截至3月12日24时新型冠状病毒肺炎疫情最新情况](http://www.nhc.gov.cn/xcs/yqtb/202203/1e2807036ce7462ca6cc265f2fbb38b8.shtml)
 
-资料来源：[2022年3月13日 文贵大直播：若西方对中共经济制裁，那将是多少钱什么情况；爆料革命警告中东事端；刘 傅 孙 吴 杨 王 孟 张 胡 单EST9:50-10:00](https://www.gettr.com/streaming/pzrn4eb349)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-发布：星谕
+总编：文真
+编辑：Jack Li文阳   
+审核：文真
+校正/发稿：Fei797
 
-**更多资讯，请关注：**
-澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

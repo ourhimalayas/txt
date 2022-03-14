@@ -2,18 +2,23 @@
 ---
 
 
-## 2022年3月14日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2163203/)
+## Epidemic prevention in Shanghai! The long-distance bus terminal is closed. Proof of nucleic acid required when leaving and return to Shanghai
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2163332/)
 
-制作：DT新闻组
+Translated by：TokyoSakura/英翻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-103.jpg)
+图片来源于本文链接
 
-**中共的杀戮还在继续……**
+As the COVID-19 outbreak continues in Shanghai, China, officials in Shanghai issued enhanced preventive and control measures late at night on March 12, requiring people not to leave Shanghai unless necessary. And those leaving Shanghai to have a nucleic acid test report within 48 hours. The Shanghai long-distance bus terminal is closed from today.
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0337.jpg)
+原文链接：
 
-发稿：信心的选择
+**[上海嚴防疫情！長途汽車客運總站停運　離返滬須持核酸證明](https://www.setn.com/News.aspx?NewsID=1084225)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-9.jpeg)
+**Edited by:**TokyoSakura/英翻组
+Posted by:TokyoSakura/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+
 
  
 

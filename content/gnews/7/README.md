@@ -2,26 +2,25 @@
 ---
 
 
-## 美警告：中共如帮助俄罗斯逃避全面制裁将绝对面临后果
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2163272/)
+## 樱花时政┃岸田康夫“没有想过修改与俄罗斯的经济合作预算”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2163412/)
 
-#### 撰稿：彩虹       
+撰稿：东京樱花团/ haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-160.jpg)
+[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs.wsj.net%2Fpublic%2Fresources%2Fimages%2FS1-LW599_0907ki_G_20210907072529.jpg&amp;imgrefurl=https%3A%2F%2Fcn.wsj.com%2Farticles%2F%25E6%2597%25A5%25E6%259C%25AC%25E9%25A6%2596%25E7%259B%25B8%25E5%2580%2599%25E9%2580%2589%25E4%25BA%25BA%25E5%25B2%25B8%25E7%2594%25B0%25E6%2596%2587%25E9%259B%2584%25E8%25AE%25A4%25E4%25B8%25BA%25E9%259C%2580%25E5%2585%25B7%25E5%25A4%2587%25E5%25AF%25BC%25E5%25BC%25B9%25E6%2589%2593%25E5%2587%25BB%25E8%2583%25BD%25E5%258A%259B-11631061006&amp;tbnid=WxGYkVNOVkDHjM&amp;vet=12ahUKEwjQ9sjE78X2AhVUiv0HHWGgC5cQMygFegUIARCUAQ..i&amp;docid=aZCECmQa3PdUdM&amp;w=553&amp;h=369&amp;q=%E5%B2%B8%E7%94%B0%E6%96%87%E9%9B%84&amp;ved=2ahUKEwjQ9sjE78X2AhVUiv0HHWGgC5cQMygFegUIARCUAQ)
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1534.png)图片来源：TodayOnline
-据《新闻极限》3月13日引述《路透社》的报道，将于周一在罗马与中共国最高外交官杨洁篪会面的美国国家安全顾问杰克·沙利文（Jake Sullivan）警告北京，如果它帮助莫斯科逃避对乌克兰战争的全面制裁，将“绝对”面临后果。
+3月14日，日本首相岸田文雄在参议院预算委员会上，就在野党议员提出的以俄罗斯入侵乌克兰为由，应修改2022年度预算案中包括的与俄罗斯经济合作计划一事，他否认：“目前，没有想过修改预算。”并解释说：“对日本企业的各种支援、能源安全保障预算、人道主义支援等也包括在其中的。”
 
-另根据《国会山报》3月13日的报道，俄罗斯官员已经与中共同行联系，商讨从中共获得军事装备，但没有透露俄罗斯要求获得何种类型武器装备的任何细节，莫斯科还要求北京提供额外的经济支持。
+经济合作计划是2016年时任日本首相的安倍晋三向俄罗斯总统普京提出的。其中包括扩大能源领域的投资、促进日俄两国中小企业交流等项目。经济产业相生田光一在预算委员会上，就列入2022年度预算案的21亿日元相关预算问题表示：“进军俄罗斯的（日本）企业可能会考虑撤离。我认为将会用在以上的应对上。”上述是，针对立宪民主党森裕子、福山哲郎的回答。
 
-对此，沙利文周日告诉CNN（美国有线电视新闻网），美国相信中共在入侵发生之前就知道俄罗斯正在计划在乌克兰采取一些行动，尽管北京可能不了解所计划的全部内容。
+信息来源：
 
-他说，现在，华盛顿正在密切关注北京在多大程度上向俄罗斯提供经济或物质支持，如果发生这种情况，将施加后果。“我们正在直接地、私下地与北京沟通，大规模逃避制裁的努力或支持俄罗斯来填补制裁将面临绝对后果。我们不会允许这种情况继续下去，也不会允许世界上任何一个国家在这些经济制裁中给俄罗斯提供生命线。”
+#### [露との経済協力予算に岸田首相「修正考えていない」　参院予算委](https://news.yahoo.co.jp/articles/1ebdd1b0c3a4098491169dea5eb2b8a9563db77e)
 
-拜登政府的一位高级官员说，由于中共正在采取“与俄罗斯结盟以推进他们自己主导世界秩序”的行动，乌克兰战争及其对地区和全球安全的影响将是沙利文与杨洁篪会晤中的一个“重要议题”。
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
 
-报道指，2020年，贸易约占俄罗斯经济的46%，其中大部分是与中共国的贸易。
-
-**新闻来源**：[1](https://www.newsmax.com/newsfront/china-us-biden-ukraine/2022/03/13/id/1060965/) [2](https://thehill.com/policy/international/europe/598041-russia-seeking-military-equipment-from-china-report?rl=1)
 
  
 

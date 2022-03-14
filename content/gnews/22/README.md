@@ -2,28 +2,48 @@
 ---
 
 
-## 沙利文将警告杨洁篪 中共若支持俄罗斯会面临经济制裁
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2163102/)
+## 中共假融资真骗钱的超限战
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2163263/)
 
-**撰稿：日本东京方舟农场 海星**
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-14-232023.jpg)
+那些试图通过投资阿里巴巴、百度和京东等中共国公司的美国存托凭证（ADR）来搭上中国共经济奇迹的人，最终陷入了一个有毒的破坏性混乱。沾沾自喜的买家，如果没有在纽约的一分钟内脱身，就被担架抬了出去。华尔街投资银行在这些美国存托凭证的上市过程中发挥了重要作用，赚取了大量的费用。而在中共国的公司则赚取了美国投资者在这些错误的ADR发行时为购买它们而付出的资金。
 
-3月14日，多位美国官员表示，美国国家安全顾问沙利文计划在罗马会议中警告杨洁篪，如果中共在俄乌战争中帮助俄罗斯，将会面临经济制裁。
+有超过200个中共国的ADR在美国证券交易所交易。去年，在这一切发生之前，它们的总市值仍然超过2万亿美元左右。今天是另一个日子，这些预托证券的沾手买家得到了他们的头。
 
-据《路透社》报导，一位美国官员透露，沙利文将于3月14日在意大利罗马会见中共中央政治局委员、中央外事工作委员会办公室主任杨洁篪。他将对杨洁篪提出警告说，北京若继续支持俄罗斯，将会面临全球性的经济制裁。
+下面是这些天一些最大的美国存托凭证的暴跌举例。
 
-沙利文在接受美国传媒访问时表示，白宫正密切关注中共是否向俄罗斯提供物质或经济支援，以帮助其逃避制裁。他强调说，美国不会允许任何国家补偿俄罗斯因经济制裁而承受的损失。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-65.jpg)（图片来源：美联社）
-据悉，美国和其他国家的官员在最近几周已向中共表明，若与俄罗斯站在一起可能会对中共的贸易流动、新技术的发展带来严重后果，而且将面临二级制裁(secondary sanctions)的风险。
 
-此前，美国商务部长雷蒙多(Gina Raimondo)也表示，那些无视美国对俄罗斯出口限制的中共公司，他们制造产品所需的美国设备和软体供应也将会遭到中断。
+| 公司 | 代号 | **现价****$** | 今天价 | 最高跌幅 | ** ****高峰期** |
+| --- | --- | --- | --- | --- | --- |
+| Baidu | [[BIDU](https://wolfstreet.com/stock/bidu)] | 136.16 | -6.3% | **-59.9%** | 19-Feb-21 |
+| Alibaba | [[BABA](https://wolfstreet.com/stock/baba)] | 92.92 | -7.9% | **-70.9%** | 27-Oct-20 |
+| NetEase | [[NTES](https://wolfstreet.com/stock/ntes)] | 81.75 | -7.3% | **-38.3%** | 09-Feb-21 |
+| JD.com | [[JD](https://wolfstreet.com/stock/jd)] | 52.73 | -15.8% | **-51.3%** | 17-Feb-21 |
+| NIO | [[NIO](https://wolfstreet.com/stock/nio)] | 17.70 | -11.9% | **-73.6%** | 11-Jan-21 |
+| Trip.com | [[TCOM](https://wolfstreet.com/stock/tcom)] | 21.50 | -12.1% | **-64.3%** | 31-Jul-17 |
+| Pinduoduo | [PDD] | 35.75 | -17.5% | **-83.2%** | 16-Feb-21 |
+| ZTO Express | [ZTO] | 25.80 | -7.5% | **-33.2%** | 14-Jun-20 |
+| KE Holdings | [[BEKE](https://wolfstreet.com/stock/beke)] | 11.20 | -23.9% | **-85.4%** | 22-Feb-21 |
+| Li Auto | [LI] | 25.99 | -5.9% | **-45.5%** | 24-Nov-20 |
+| Didi | [[DIDI](https://wolfstreet.com/stock/didi)] | 3.40 | -10.6% | **-81.1%** | 01-Jul-21 |
 
-参考链接：
-1. [https://cn.reuters.com/article/china-us-rome-meeting-russia-0314-idCNKCS2LB0FO](https://cn.reuters.com/article/china-us-rome-meeting-russia-0314-idCNKCS2LB0FO)
-2. [https://news.rthk.hk/rthk/ch/component/k2/1638750-20220314.htm](https://news.rthk.hk/rthk/ch/component/k2/1638750-20220314.htm)
 
-素材采编：海星
-编辑：青城道姑
-校对发布：小斐
+据以上的报道证实了很多中共企业长久性的维持高经济效应的能力是很低的，因为创新的能力和研究力度很薄弱。这些中共公司也没有如实的上报给美国证券公司的业绩报告和法律上的纠纷，导致投资者被误导，承受巨大的损失。
+
+那些被华尔街投资人用了自己的退休基金投资了这些中共企业的美国战友们，该启动法律程序来追讨你们的损失。
+
+**如何向司法界举报单伟建？**
+
+一、打开律师网页：[https://www.top100highstakeslitigators.com/listing-categor…](https://www.top100highstakeslitigators.com/listing-category/high-stakes-litigation/)
+
+二、随机挑选296位律师的其中一位，根据律师邮箱地址，写举报信。可用英文，也可中文，或用软件翻译成英文，并发送至律师邮件。 **📢**
+
+就那么简单，为何不行动？
+
+**新闻来源：**[https://wolfstreet.com/2022/03/10/alibabas-u-s-listed-adr-plunged-below-first-day-closing-price-in-2014-golden-dragon-china-etf-plunged-below-its-2007-price/](https://wolfstreet.com/2022/03/10/alibabas-u-s-listed-adr-plunged-below-first-day-closing-price-in-2014-golden-dragon-china-etf-plunged-below-its-2007-price/)
+
+[https://gettr.com/post/pzv8s7bd4d](https://gettr.com/post/pzv8s7bd4d) – 感谢英喜的战友
 
  
 
