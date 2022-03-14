@@ -2,24 +2,29 @@
 ---
 
 
-## 泽伦斯基喊话「善恶不两立」　要微软等3企业与俄断绝关系
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2161747/)
+## 有声｜中共国疫情遍布20省市
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2161812/)
 
-乌克兰总统泽伦斯基14日说，科技巨擘微软（Microsoft）、商业软体制造商甲骨文（Oracle Corp）和企业管理软体供应商SAP应停止在俄罗斯为他们的产品提供支援服务，以抗议俄国入侵乌克兰。
+By:**秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3497320-PH.jpg)图片来源：Pixabay
+**2022-03-14**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-27.png)图片来源 网路
+[大纪元综合消息。中共病毒疫情在中国大陆急速扩大，官方通报单日感染人数达3000多例，达到两年前武汉疫情平息以来的新高。此轮疫情已遍布20个省市。](https://www.epochtimes.com/gb/22/3/13/n13643435.htmhttps://www.epochtimes.com/gb/22/3/13/n13642692.htm)
 
-简评：弱者受到欺凌呼唤正义！乌克兰总统泽伦斯基为饱受俄罗斯摧残的乌克兰人民在尽力的呼喊，请求世界制裁俄罗斯来为乌克兰助力！也许这是没有办法的办法，当世界陷入冰冷，呼唤应该是有温度的，当世界陷入冷漠，呼唤应该是有态度的，世界真正需要回归的是正道主义！
+[广东省也是本轮疫情重灾区之一，3月12日，广东本土确诊62例、本土无症状感染194例，其中深圳新增60例确诊病例、6例无症状感染者。](https://www.epochtimes.com/gb/22/3/13/n13643435.htmhttps://www.epochtimes.com/gb/22/3/13/n13642692.htm)
 
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1084871)
+[疫情严重的深圳市已宣布升级封控措施，所有食肆暂停堂食，五区全体居民被要求连续四天每日均做核酸检测。](https://www.epochtimes.com/gb/22/3/13/n13643435.htmhttps://www.epochtimes.com/gb/22/3/13/n13642692.htm)
 
-撰稿/发布：一叶知秋
+[此外，奥米炕疫情在吉林省吉林市和长春两地迅速蔓延，当地紧急增建方舱医院，从目前已启用的3家再紧急增建3家，打算增设1万张床位，显示疫情已经大规模爆发。](https://www.epochtimes.com/gb/22/3/13/n13643435.htmhttps://www.epochtimes.com/gb/22/3/13/n13642692.htm)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+[吉林省卫健委发布统计数据称，3月以来，共有2059例确诊病例以及1530例无症状感染者，其中超过一半以上的病例出现在12日，主要在吉林市与长春市。](https://www.epochtimes.com/gb/22/3/13/n13643435.htmhttps://www.epochtimes.com/gb/22/3/13/n13642692.htm)
 
+秘翻新闻 二丫编辑报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

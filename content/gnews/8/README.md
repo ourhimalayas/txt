@@ -2,18 +2,20 @@
 ---
 
 
-## 3月12日一名32岁的意大利曲棍球运动员在比赛中突感不适死亡
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2162047/)
+## 人生最重要的是辨别真假善恶
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2162143/)
 
-#### 编译                        意大利达芬奇农场                             小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-14-alle-10.43.53.png)图片来源：eventiavversinews.it
-这是周五发生在意大利北方阿皮亚诺的悲剧，这位名叫安德烈亚斯•帕拉的32岁曲棍球运动员在运动中, 突感不适, 倒在地上, 被紧急送往医院, 不幸的是帕拉在夜间死亡。当时他正在参加多洛米蒂曲棍球联赛的第二场比赛。在接下来的几天内， 将了解是否会下令进行尸检以确定死亡原因。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-目前尚不清楚发生了什么，可以肯定的是，在比赛中，他曾猛烈地侧身撞在栏杆上，但他还是站了起来，这是一个非常猛烈的撞击， 但在曲棍球运动中会经常发生。在比赛休息期间，他感到恶心，强烈的疼痛立刻惊动了他的队友， 他们打电话给救援人员。经抢救，帕拉似乎恢复过来， 但是紧接着对他又进行了第二次抢救。那时，还使用了除颤器，并启动了前往医院的紧急运输，一切都无济于事。
+*发布：陶子*
 
-原文链接：[https://www.eventiavversinews.it/bolzano-giocatore-di-hockey-32enne-muore-per-malore-improvviso-durante-la-partita-di-sabato-12-marzo/](https://www.eventiavversinews.it/bolzano-giocatore-di-hockey-32enne-muore-per-malore-improvviso-durante-la-partita-di-sabato-12-marzo/)
-
-编辑、上传： Xiao   baige
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

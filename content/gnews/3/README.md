@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党要砸烂中东石油是围魏救赵帮普京解套
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2162079/)
+## 七哥谈前线战友工作（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2162182/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
