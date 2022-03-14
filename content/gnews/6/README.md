@@ -2,44 +2,40 @@
 ---
 
 
-## 世界经济脉络三条线:创意、流通以及货币流通不被卡脖子
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2161737/)
+## 大直播后记：唆使邪恶国家四面放火，中共图谋拿下欧美
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2161787/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8813.61%EF%BC%89%E4%B8%96%E7%95%8C%E7%BB%8F%E6%B5%8E%E8%84%89%E7%BB%9C%E4%B8%89%E6%9D%A1%E7%BA%BF.%E5%88%9B%E6%84%8F%E3%80%81%E6%B5%81%E9%80%9A%E4%BB%A5%E5%8F%8A%E8%B4%A7%E5%B8%81%E6%B5%81%E9%80%9A%E4%B8%8D%E8%A2%AB%E5%8D%A1%E8%84%96%E5%AD%90%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:a)
+整理：HYS、雨桐
+编辑：文泓
 
-郭文贵先生：我们今天看到大卡车事件跟世界经济的整个的一个最大的关系是什么？我再告诉大家，大卡车就像刚才Danny说的，世界的经济脉络现在只在三条线上，没有任何第四条线。第一个就是科技文明发展，就是创意，是世界第一经济生产力；第二就是流通，越流动性越快越厉害。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/HBVL_076FPVKTW@MXMFRK.png)图片来源：雅典娜设计组
 
-现代的流通都在路上了。人类的97.8%是在陆地上住着，只要你在陆地上住着，你不可能有任何交通工具代替货车，只是点到点。过去什么B2B，B22，什么B21，都扯淡的事情。大卡车就告诉你，就是什么？必to必是必须的必。你必须需要大卡车司机，是吧，中文的，必须的必，不是B2B。它就是流通。
 
-第三件事请大家记住，人与人之间的货币流通。不会再被人卡脖子，H-Pay就牛在这儿了，我一点不开玩笑。小飞象你现在就该跟小飞侠说“咱俩不能这么每天我给你流水，咱俩得有点儿交易，十个币流一次”，H-Pay就可以了。文紫跟她老公也说“咱俩，你让我跟你，我辛辛苦苦地挣点钱回来，我还得给你流水，那对不起，十个币，你要不然咱别流”，他憋死他，他必须给你来说。文紫，20个币行不行？对吧？就地抬高、抬价，咋不行呢？H-Pay就这样就做到了。
+**主持人：**
+普京曾经说过一句话，“如果给我20年，我还你一个强大的俄罗斯”，然后俄罗斯给了他20年，最后他还给俄罗斯人民的是一个前苏联。反观中共国的这些小粉红，是否期待着回到几十年前的那种跳忠字舞，然后遍地黑蓝灰成为时尚的时代呢？
 
-大上车就这样做到了。你想要东西，是吗？用我大卡车是吗？对不起，你要支持我的整个的灭疫革命。
+嘉宾：
+七哥在2月底已经预测3月底4月初在中东会发生大事，最近发生的事情，七哥在两、三年前已经预测到了。胡塞武装攻击沙特利雅得炼油厂，它表面上的确像什叶派和逊尼派的宗教摩擦。其实，就是中共在背后参与策划的一场影响国际原油市场的这种袭击事件。包括7哥之前说中共会让伊朗突然袭击封锁霍尔木兹海峡，切断世界的这种能源供应。借此威胁世界的这个一个筹码，在背后，肯定就是中共。
 
-编辑整理：Jacques；
+郭先生：
+现在我可以告诉大家，七哥是在几天前第一个告诉全世界共产党会出手的。全世界的很多人，包括美国CIA的高层、现任领导在国会作证说习近平吓傻了、习近平不打台湾啦、共产党服软了、甚至会放弃俄罗斯，这是无知加愚蠢愚昧的结果。
 
-字幕档制作：兵嫂；
+昨天他已经看到代价了，伊朗在苏莱曼尼（伊朗前伊斯兰革命卫队最高指挥官，前伊朗二号人物，因从事恐怖活动2020年1月被美军斩首）3月11日生日之际为什么要袭击美国驻伊拉克一处领事馆？接下来会发生什么？你会看到今天郭文贵在这儿说的话，如果美国还没有搞明白共产党要干掉美国的话，美国迟早将付出惨重代价；欧洲如果不明白，欧洲共产党是要彻彻底拿下欧洲，如果欧洲人像马克龙、德国舒尔茨，什么意大利（德拉吉）啊？任何的人，只要你天真，包括英国，迟早付出（惨重）代价，共产党怎么拿下欧洲再怎么拿下美国。
 
-视频制作及上传：Cindy；
+中共有个前提，第一个在金融系统上和科技上我一定干不过你。共产党非常清楚，所以他团结了科技上完全不入流的俄罗斯、伊朗、北朝鲜，还有像沙特这种油棍、油阀，以及巴基斯坦、埃及这些国家。中东的国家将近6亿人，约10几万亿的GDP，在6亿人里的80%是生活在一个贫困线上，极少数国家是皇权和所谓的富裕者，人均GDP达到4万美元至6万美元只是极少数国家。
 
-G-News发布：海贼王M.D.LUFFY；
+这个世界上七哥说的叫“无皇有主”的时代到来，你们没有一个人跟上七哥的思路。世界哪里皇帝最多呀？中东！严格讲中东是独裁国家最多的地方。这次能和共产党和普京合作的也都是中东国家，包括现在被已经是逐渐走向民主的伊拉克，现在也被腐败，彻底由几个家族控制。中东是面临一场大的变革，这次战争之后一定会发现中东这些国家脱离了君主，进入人民做主的时代，民主的时代一定会到来。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+这次共产党是最后的疯狂，利用伊朗搞伊拉克，接下来用胡塞武装搞沙特，沙特甚至敢打伊拉克，最后甚至是沙伊战争，或者两伊战争重新开启；关于戈兰高地，叙利亚和以色列之间发生全面争夺等，为俄罗斯乌克兰战事和习近平入侵台湾达到声东击西的目的。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+资料来源：[2022年3月13日 文贵大直播](https://gettr.com/streaming/pzg47d4994)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
