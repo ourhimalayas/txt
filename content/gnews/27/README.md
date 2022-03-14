@@ -2,32 +2,10 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月13日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2159813/)
+## 乌克兰免费救援巴士（利沃夫一克拉科夫）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2159848/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-5.jpg)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-10.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/pzv6ak776d](https://gettr.com/post/pzv6ak776d)
-访谈：[https://gettr.com/post/pzvj2iac82](https://gettr.com/post/pzvj2iac82)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-14.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

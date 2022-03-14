@@ -2,16 +2,22 @@
 ---
 
 
-## 樱花时政┃因中共威胁 日韩澳武器进口激增
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2160125/)
+## 樱花时政┃切尔诺贝利的电力传输已恢复
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2160198/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-22.jpg)[图片来源](https://www.bbc.com/news/world-asia-china-60492134#:~:text=ADVERTISEMENT-,The%20Ukraine%20crisis%20is%20a%20major%20challenge%20for%20China,-By%20Stephen%20McDonell)
-3月14日，瑞典斯德哥尔摩国际和平研究所（SIPRI）发布了一份报告，比较了2017-21年和之前五年的全球武器交易量。报告解释说，日本、韩国和澳大利亚的情况急剧增加，”越来越多的国家将中共视为一种威胁”。 日本的进口量是世界上第十位，增长了152%。
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-10.jpg)[图片来源](https://news.yahoo.co.jp/articles/7fd9c966ce0084448600a2aaad17b4e452da4de5/images/000)
+据报道9日停电的切尔诺贝利核电站已由乌克兰工程师修复。
 
-全球总体进出口贸易下降了4.6%。 前十大进口国中有六个在亚洲-大洋洲地区，包括澳大利亚和中国以及日本和韩国，SIPRI指出，该地区在过去30年里一直保持着最高的进口水平。
+据乌克兰核电站运营公司称，13日，乌克兰方面的工程师恢复了向切尔诺贝利核电站的输电，废旧核燃料冷却设施也从应急电源恢复到正常模式。
 
-信息源：[日韓豪の武器輸入、急増　中国の脅威背景、国際平和研](https://news.yahoo.co.jp/articles/f6ec663f204f4f25362b0bb3dd262e1eb2b8ab08#:~:text=%E6)
+这家运营公司说：“工程师们已经消除了一场危及他们的健康和生命并威胁到整个欧洲的灾难的可能性。”
+
+但核电站本身仍处于俄军控制之下，乌方继续要求军队撤离，并在核电站半径30公里范围内解除武装。
+
+信息来源：
+
+[チェルノブイリ原発の送電が復旧](https://news.yahoo.co.jp/articles/b9b024a7321baf2017c4c0ddda763e0554fbb84a)
 
 *校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*

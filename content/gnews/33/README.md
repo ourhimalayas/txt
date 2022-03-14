@@ -2,27 +2,22 @@
 ---
 
 
-## 新冠疫苗受害者控诉CDC对疫苗副作用报告不作为
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2159504/)
+## 中日财经爆┃大疆再遭制裁，设计软件被封！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2159515/)
 
-翻译：文载Jenny
-校对：枳实
-字幕：文驰
-编辑：Mttfly
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1472.png)图片来源于本文链接
+3月12日，美国设计软件企业Figma封禁大疆等被美国制裁公司的账号。大疆内部收到了一封来自设计软件公司Figma的邮件表示，大疆在发布的制裁名单当中，因此Figma无法再提供软件服务，并开始冻结账户。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1473.png)
+Figma成立于2012年，是基于网页的界面设计协作工具，可以将项目时刻保存在云端，这样就可以保证多方用户对设计进行实时评论或修改。它有三个很显著的特性：实时协作、矢量网格、版本历史。最重要的是，这个工具非常方便，可以在一个文档中同时处理20个以上的画板。大疆等很多企业都使用Figma软件，它相当于企业设计的“画笔”。
 
-一位新冠疫苗接种受害者在视频中向相关人员控诉，她因接种莫德纳疫苗而患心包炎、胃痉挛、体位直立性心动过速综合征、大脑病变等疾病。美国疾控中心（CDC）作为这种实验性疫苗试验程序的制定者，连续数月都没有协调处理该接种疫苗者的副作用报告。但另一方面，美国政府却在强制为民众接种新冠疫苗，对疫苗副作用不作为，这样正常吗？
+大疆是中共军民融合的核心企业之一，大量参与中共军方用于战场的长航时无人机研制，并大量开发用于监控人民的无人机，是中共邪恶统治的重要帮凶。此次设计软件禁用，将大大减缓相关无人机制造的步伐，配合之前的芯片禁售，大疆或将逐步面临停产绝境。
 
-视频链接：[What’s being done to these people is disgraceful](https://twitter.com/hameggsnsam/status/1484057040549027849?s=21)
+信息来源： [继华为之后 大疆再遭制裁：设计软件被封！](https://www.163.com/dy/article/H2BRCQ120514R9KC.html)
 
-发布：tianzhihuan
-
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

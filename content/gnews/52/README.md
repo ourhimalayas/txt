@@ -2,10 +2,10 @@
 ---
 
 
-## 专家认为疫苗强制令加速了X世代和千禧一代的疫苗死亡
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2151963/)
+## 刘彦平因严重违法违纪正在接受纪律审查和监察调查
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2151918/)
 
-03/10/2022 股票投资高管爱德华·多德认为，疫苗强制令加速了X世代和千禧一代的疫苗死亡
+03/12/2022 CCTV 3月12日新闻，刘彦平因严重违法违纪正在接受纪律审查和监察调查
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
  
 
