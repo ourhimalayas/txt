@@ -2,34 +2,25 @@
 ---
 
 
-## 英国科学家表示 中共病毒PCR检测有严重缺陷
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2164773/)
+## 定义习近平、中共国和 21 世纪的时刻
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2165149/)
 
-翻译：冰糖葫芦喵
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-编辑与校对：冰糖葫芦喵
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/DWO-Teaser-XiJinping-biden-aw.jpg)
 
-《英国每日邮报》3月12日报道，**英国基于研究结果显示，用来诊断病毒的“黄金标准”PCR检测检测到的人实际上并没有被感染。一位科学家表示，PCR检测在一年前就应该被取消。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/55274547-10606107-image-m-13_1647121672195-e1647290258927.jpg)图片来源：网络。
-报道指出，**在英国就进行了超过2亿次的病毒检测，**可能会将普通感冒和流感误认为冠状病毒。这将意味着**这些病例中有许多本不应该被计入每日的统计中，**而这一数字被用来为有关封锁和其他大流行措施的决定提供信息。
 
-据悉，**许多被检测出阳性的人被迫隔离，给经济造成了巨大压力，他们做了不必要的事情。**
+图片来源：法新社
 
-必须指出的是，这种说法已被所谓的顶级专家彻底驳斥。而那些**愿意相信这种担忧的科学家在社交媒体上遭到了谴责，被指责，甚至被同行边缘化。**
+到目前为止，北京方面还没有对乌克兰战争表明明确的立场。现在，美国情报部门透露，普京已向他的共产主义盟友寻求武器支持。这一策略旨在敦促中共国做出重大承诺。
 
-3月12日，《星期日邮报》(the Mail on Sunday)在最新系列文章的第一部分中，调查了**政府在大流行期间经常说他们遵循的“科学”**是否**存在缺陷，至少在某些方面是错误的。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/120888706_78544dda-b30c-4174-bf5d-d1a7538ee54e.jpg-1.jpg)英国防疫政策严重失误（图片来源：网络）
-未来几周，**英国将调查中共病毒死亡数字是否被夸大了**。封锁是否弊大于利。
+美国希望敦促中共国改变其在乌克兰战争中的亲俄路线。为了做到这一点，他们正在使用他们也用来对付莫斯科的策略：尽早披露情报，以破坏对方的努力并影响政治领导层的决策过程。据美国媒体援引美国政府消息人士的话称，据说俄罗斯已要求中共国支持其战争努力。
 
-上个月，研究慈善机构Collateral Global和牛津大学(Oxford University)的学者发布了一份报告，得出了同样的结论。**报告称，多达三分之一的阳性病例（600万例）可能没有传染性。**
+事实上，讨好中共国已经成为这场战争中的第二条外交战线。美国人在阻止中共国支持俄罗斯方面投入了大量精力。对中共国来说，对俄罗斯的承诺不仅会产生严重的经济后果。
 
-报道指出，**牛津大学的科学家们称英国的这项每月花费20亿英镑的测试计划“混乱而浪费”。**
+🔗 [https://www.welt.de/politik/ausland/plus237534235/Pekings-Waffen-fuer-Moskau-Entscheidender-Moment-fuer-Xi-China-und-das-21-Jahrhundert.html](https://www.welt.de/politik/ausland/plus237534235/Pekings-Waffen-fuer-Moskau-Entscheidender-Moment-fuer-Xi-China-und-das-21-Jahrhundert.html)
 
-新闻采集：文逗。
-
-新闻来源链接：
-
-[Did flawed tests convince us Covid was worse than it really was? (dailymail.co.uk)](https://www.dailymail.co.uk/health/article-10606107/amp/Did-flawed-tests-convince-Covid-worse-really-was.html)
+编辑发表： Shuizhuyu
 
  
 

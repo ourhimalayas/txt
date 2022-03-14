@@ -2,28 +2,35 @@
 ---
 
 
-## 乌克兰救援行动 3月14 日采访救援前线小小酥战友
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2165217/)
+## 今日盖特大V推荐 — 凯莉·麦克纳尼（Kayleigh McEnany）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2165305/)
 
-编撰：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/03/a8o6s-atvfz.jpg)
+盖特链接：[https://gettr.com/user/KayleighMcEnany](https://gettr.com/user/KayleighMcEnany)
 
-新中国联邦法制基金3月14日报道，**加拿大团队来自多伦多蓝莲花农场的小小酥战友接受实地采访，介绍了新中国联邦在波兰梅迪卡难民营的一些工作情况。**
+**凯莉·麦克纳尼自述：**
 
-在采访中，小小酥战友介绍了救援行动值班情况和具体的工作内容：
+共同主持人@OutnumberedFNC，@FoxNews。
+前白宫新闻秘书。 哈佛法学博士。 乔治敦。 牛津。 幸存者。
+@GilmartinSean 的妻子。 #BabyBlake 的妈妈。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/ccv.jpg)图片来源：网络
+**凯莉·麦克纳尼简介：**
 
-首先，**新中国联邦主要是提供各种救援服务，给予人文关怀，同时宣传新中国联邦、爆料革命的灭共宗旨，树立中国人的正面形象，取到巨大作用。**
+凯莉·麦克纳尼（Kayleigh McEnany，1988年4月18日－）是美国政治评论员，律师和作家。曾担任川普政府的白宫新闻发言人。
 
-他说，**在搭建的大帐中提供避难人员中转和休息，帐篷内宽敞、明亮并且拥有高端的设施和功能，非常实用。**新中国联邦还**提供食物、水果、各种零食**等，特别是新中国联邦**NFSC咖啡**得到了所有的赞赏，**并且还为避难的儿童提供了特殊的场所供孩子们玩耍。**
+凯莉·麦克纳尼毕业于乔治敦大学和哈佛法学院。她的媒体职业生涯始于担任福克斯新闻“赫克比”（Huckabee）节目的制片人，后又担任CNN的评论员。2017年，她被任命为共和党全国委员会的国家发言人。2020年4月7日，她被任命为川普政府的白宫新闻发言人。
 
-其次，新中国联邦还提供设备维护服务，保证帐篷中的加热器、电器和咖啡机都能正常的工作。
+**她是两本书的作者：**
+《新美国革命：民粹主义运动的形成》（The New American Revolution: The Making of a Populist Movement）
+《在这样的时刻: 我在白宫及之后的信仰之旅》（For Such a Time as This：My Faith Journey through the White House and Beyond）
 
-随着时间的推移，经验的增长，**战友们熟悉周边坏境，逐步地把救援工作更细致化，流程更清晰化，提高帐篷的使用效率，能够在短的时间帮助更多的人。**
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+校审：洛杉矶盘古农场 —心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-此外，没有在现场救助的战友，还给前线战友千里送温暖。甚至有一位战友开着特斯拉充了7次电，行程上千公里来到来到救援中心，给前线的战友带来了可口和新鲜的中国饭菜。
-
-具体采访内容请看下面的视频：
-前线战友清平世界采访小小酥战友
-新闻素材：新中国联邦新闻乌克兰救援前线素材组。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
