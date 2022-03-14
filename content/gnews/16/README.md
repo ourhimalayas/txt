@@ -2,35 +2,35 @@
 ---
 
 
-## 捐款现在优先都用在了俄乌战场的前线救援
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2164396/)
+## Hcoin To the Moon上线102天第36次位列新加坡iTunes摇滚音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2164475/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+3/14/2022 郭文贵先生的歌曲Hcoin To the Moon上线102天第36次位列新加坡iTunes摇滚音乐榜首
 
-2022-03-11直播摘录
+* * *
 
-如果有这样一个奖励系统，还有更多的利益的话。再一个我们有更多的捐款的话，力所能及的情况下，我们可以做得越来越长，而且越来越广泛。我们希望能够拯救更多的乌克兰妇女和儿童，而且我们没有任何的要求，我们在前线的战友们最核心的事情就是告诉乌克兰的所有人，我们没有任何要求。
+[【PDF 下载】Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-第二就是要告诉全世界人民，我们和中国共产党这个政府是不一样的。我们反对共产党代表我们，我们反对这场非人道的战争，我们要救的是乌克兰妇女和儿童，还有全世界受战争、在乌克兰战场受迫害的人和需要帮助的人，包括我们中国同胞。在这种情况下，我们资金实力和团队那都需要巨大的。你想想咱们这钱，战友们，都是战友们自己省吃省喝的，我们永远要记住这些战友们，在这个时候捐的钱。现在法治基金的拉姆也在看这个直播，我相信拉姆和法治基金的两个主席，郝海东先生、叶钊颖，他们真正地把这一段捐款的人永远记住。我们要同时永远的在任何利益面前不能忘了这些捐款的人，而且我们会筹集更多的款项，我们希望更多的捐款。而且大家要知道，昨天我在车上你七嫂问我：“你们这捐款，到前线去，你们这钱可得整明白啊。” 我想笑我说：“我从来不碰法治基金的事儿，一毛钱也不碰。” 然后她说：“那海东两口子都管这事吗？”我说：“他两口子管得比他自己钱还严呢，比他自己钱都严！都是战友管的，像拉姆、老班长、长岛哥这所有人都在这法治基金里面，都是战友管的。” 她说：“人家前线捐的钱多不容易呀，可得管好了，要是有一分钱不对都是坏八辈儿良心了。” 我说：“你行行行。” 就你七嫂子一个家庭妇女都明白这个时候那个捐款的使用和捐款的合理使用是多么的重要。
+* * *
 
-这就想到，中国人有过一个C3、C4的基金这么透明这么干净过吗？我还向你七嫂子严肃地报告，因为你七嫂子也捐款，她捐了很多钱，我说：“我们所有的捐款者每分钱都有去处，而且是美国的会计师、美国的律师最终审核，我们的管理者全是联盟委员会，有老班长、长岛哥、海东所有的这些人都是我们基金的董事和主席。” 我说：“拉姆这些人都是我们整个战友当中最优秀的、专业人士。” 给她说：“你们的捐款，保证一分钱不会有任何跟这没关的事情发生。” 现在只有一个，就是过去那个去年六四搞庆典仪式的一个表演灯的20万美元到现在还没有拿回来，其他的没有一分钱浪费可以说。而且七哥向大家保证，所有这些捐款现在优先都用在了俄乌战场的前线救援，而且七哥也会让家族基金也会捐钱，过一段你们会看到的。一定记住，战友捐的永远不会多过七哥、七哥筹备的家族基金和有关捐款，我向你们保证。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_102.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
+[【PDF 下载】Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

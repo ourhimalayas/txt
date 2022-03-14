@@ -2,35 +2,20 @@
 ---
 
 
-## Hcoin To the Moon上线102天第36次位列新加坡iTunes摇滚音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2164475/)
+## 秘翻在线: 辉瑞总裁“推销”第四针疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2164509/)
 
-3/14/2022 郭文贵先生的歌曲Hcoin To the Moon上线102天第36次位列新加坡iTunes摇滚音乐榜首
+撰稿：西枫westca
 
-* * *
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-11.jpg)图片来源：网络照片
+据多家媒体3月14日报道， 辉瑞首席执行官Albert Bourla 周日在接受采访时表示，由于免疫力下降，第四剂冠状病毒疫苗将是必要的。 人们将不得不为每年接种与流感相同的加强剂疫苗做好准备。他说，就像流感疫苗一样，冠状病毒疫苗可能成为美国人每年都会接种的疫苗。该公司正在向美国食品和药物管理局提交数据，说明需要第四剂中共病毒疫苗。
 
-[【PDF 下载】Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+布尔拉在这次采访中重申，辉瑞公司正在努力制造一种疫苗，可以预防包括Omicron在内的所有变体，而且还可以保护至少一年。他的评论，是在关于辉瑞和Biontech的第三次加强剂注射，以及FDA在1月份向12至15岁的儿童扩大使用单一加强剂剂量的混合信息之后发表的。
 
-* * *
+在辉瑞不得不公布其“ 特别关注的不良反应报告”后两周，让世人注意到了1291种 疫苗副作用。 又来推广第四针疫苗，并且要年年打， 真是丧心病狂。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_102.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
-
-
-[【PDF 下载】Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Monday-14-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**新闻来源：**[Pfizer CEO says fourth dose of COVID vaccine is “necessary,” submits data to FDA – CBS News](https://www.cbsnews.com/news/covid-vaccine-fourth-dose-booster-pfizer-ceo-albert-bourla/)[辉瑞首席执行官：由于免疫力下降，第四次COVID疫苗”必要” (nypost.com)](https://nypost.com/2022/03/13/pfizer-ceo-fourth-covid-shot-necessary-due-to-waning-immunity/)
 
  
 

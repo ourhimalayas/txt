@@ -2,34 +2,26 @@
 ---
 
 
-## 美官员：俄要求中共国为其入侵乌克兰提供军事援助
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2164061/)
+## 年轻的妈妈突然死亡，是因为新冠疫苗吗？
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2164135/)
 
-翻译：噜噜咪
+#### 翻译                       意大利达芬奇农场                              小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-14-alle-18.11.00.png)图片来源：eventiavversinews.it
+据《意大利报》报道，一位年轻的母亲斯黛拉•洛玛尼尼死于不明原因的突然死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/764.png)图片来自网络
+这跟新冠疫苗有关吗？
 
-据美国官员称，俄罗斯已要求中共国提供军事援助，以支持其对乌克兰的入侵。美国官员告诉《金融时报》，随着战争进入第三周，人们怀疑俄罗斯可能正在耗尽武器装备。
+斯黛拉在她所生活的城市是一位深受爱戴且知名的妇女。当她的父亲斯坦法若在她家门前被射了15枪而死亡时，她才是个小姑娘。自2011年2月起斯黛拉从未放弃过寻求正义。
 
-这一消息传来时，美国国家安全顾问杰克·沙利文计划周一在罗马与中国最高外交政策官员杨洁篪举行会谈。
+斯黛拉•洛玛尼尼在卢卡出生长大，她最近还在那儿与尼古拉结了婚， 两人生下漂亮的孩子，小乔娅。是她的丈夫发现她躺在床上一动不动，已经死了，没有任何生命迹象。尼古拉叫来了救护车，但已经晚了。
 
-在周末启程前往意大利之前，沙利文警告中共国不要通过帮助莫斯科绕过美国及其盟国对俄罗斯总统弗拉基米尔·普京实施的当前制裁来“救助”俄罗斯。
+斯黛拉就这样离开了她深爱的家庭。她还有一位母亲和一个姐妹。人们通过社交媒体对她的不幸离去发出了无数慰问。
 
-“我们将确保中共国或其他任何人都无法补偿俄罗斯的这些损失，”沙利文周日告诉美国全国广播公司。“就这样做的具体手段而言，同样，我不会在公开场合提出所有这些，但我们将私下与中共国沟通，正如我们已经做的和将继续做的。”
+正如一开始所预料的那样， 在斯黛拉•洛玛尼尼去世的消息传出后，网上许多人都怀疑她的突然死亡与新冠疫苗有关。有些人开始对新冠疫苗持慎重态度， 特别是当所有年龄段的男人、女人，年轻人和孩子都开始突然死亡。 网上流传着对此产生的疑问。目前对于这位死去的年轻母亲还没确定是不是由疫苗引起的。
 
-最近，人们对中共国与俄罗斯日益增长的关系有了一定程度的担忧。尽管在乌克兰入侵问题上官方保持“中立”，但北京-莫斯科联合表示，他们的关系“没有限制”。
+原文链接：[https://www.eventiavversinews.it/camaiore-stella-romanini-morta-per-malore-improvviso-la-causa-e-il-vaccino-covid/](https://www.eventiavversinews.it/camaiore-stella-romanini-morta-per-malore-improvviso-la-causa-e-il-vaccino-covid/)
 
-据报道，中国官员还在2月初告诉俄罗斯高级官员，在2月20日结束的北京2022年冬奥会结束之前，暂缓入侵乌克兰。
-
-**参考资料：**[thepostmillennial][BREAKING: US officials say Russia has asked China for military aid in Ukraine invasion](https://thepostmillennial.com/us-officials-russia-china-military-aid-ukraine)
-
-* * *
-
-*审核：文乐*
-*校对：小东*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-9.jpeg)
+编辑、上传： Xiao   baige
 
  
 
