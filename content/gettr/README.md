@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 10:15 PM (UTC)`
+
+【Ukraine Rescue】03/14/22 Two Red Cross volunteers come to the NFSC’s tent to enjoy our coffee, and they are very grateful.<br/><br/>【乌克兰救援】03/14/22 两位国际红十字会的义工来到新中国联邦的帐篷享用咖啡，并表示感谢。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group38/getter/2022/03/14/22/885f88df-a7a6-179c-1629-4d85b213568b/out.jpg)
+
+---
+
 `@miles 3/14/2022 10:09 PM (UTC)`
 
 【Ukraine Rescue】03/13/2022 Volunteer Nicole introduces to Agence France-Presse that the NFSC & ROLF Ukraine Humanitarian Rescue station would receive 500-1000 refugees daily, and that taking down the CCP is our mission.<br/><br/>【乌克兰救援】03/13/2022 志愿者妮可向法新社记者介绍新中国联邦法治基金乌克兰人道救援行站每天都会接纳500-1000名难民，以及我们致力于推翻中共的使命。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -149,13 +156,6 @@ The war pianist just moved the piano right next to the tents provided by the ROL
 
 【Ukraine Rescue】03/12/22  NFSC Ukraine Rescue Operation volunteer Nicole introduces to the KBS reporters that we are the freedom loving Chinese people, anti-communist, and committed to take down the CCP.<br/><br/>【乌克兰救援】03/12/22  新中国联邦乌克兰救援行动的义工妮可向韩国广播公司记者介绍：我们热爱自由、反对共产主义，并致力于推翻中共。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group35/getter/2022/03/14/12/762c4079-08a2-0779-b402-a3edc5192d77/out.jpg)
-
----
-
-`@miles 3/14/2022 11:08 AM (UTC)`
-
-【Ukraine Rescue】03/13/22  Fellow fighter Nicole emphasizes in an interview with Polish independent producers that the evil Chinese Communist Party is the root cause of all the disasters around the world. And we, the new Chinese from the New Federal State of China, are committed to take down the Chinese Communist Party to save humanity.<br/><br/>【乌克兰救援】03/13/22  妮可战友在接受波兰独立制片人采访时强调中国共产党是全世界所有灾难的根源。而我们，新中国联邦的新中国人正致力于推翻共产党以拯救人类<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group4/getter/2022/03/14/11/e55d9c3b-921e-e9b5-90f7-7288a82f4e5b/out.jpg)
 
 ---
 
