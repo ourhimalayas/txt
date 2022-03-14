@@ -2,27 +2,45 @@
 ---
 
 
-## 中共国疫情失控香港已成地狱
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2159509/)
+## 关注中共假借民船商船攻台
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159764/)
 
-采编：加拿大温哥华杨帆农场 – 文莱
+作者：日本东京方舟农场—Miyali7768(文玉）
 
-编译撰稿：加拿大温哥华杨帆农场 – 自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1481.png)图片来源：CTV
-据加拿大[CTV新闻]3月12日报道，由于中共国疫情失控蔓延，当局再次实行了严格管控措施，包括规定北京市民不得离京，上海关闭学校等。同时，香港已开始出现大量病毒感染和死亡病例。
 
-对此，文贵先生表示，目前香港疫情突然恶化，感染死亡率陡然上升的主要原因或是中共近期所投放的新型变种病毒所致。当局在以此举继续控制和破坏香港同时，还让世界在俄乌战争灾难中再次陷入更大的动乱而从中渔利，并为其暴政续命。
 
-同时，目前发生在中共国和香港地区的疫情危机，再次验证了文贵先生早在去年初就对世界发出的警告：病毒，疫苗以及战争给全人类来的黑暗和灾难还未真正到来。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-校对编辑：硫酸羟氯喹64
 
-发稿：青青
 
-原文链接： [https://www.ctvnews.ca/health/coronavirus/china-tightens-controls-as-more-virus-cases-reported-1.5816756](https://www.ctvnews.ca/health/coronavirus/china-tightens-controls-as-more-virus-cases-reported-1.5816756)
+台湾媒体3月12日消息，俄罗斯入侵乌克兰引发了各方对于中共武力犯台的关切。美国国会研究处3月8日发布的一份报告认为，近年来中共虽打造了航空母舰与两栖登陆舰，但更应关注共军运用民船和商船对台执行两栖登陆作战的可能性。
 
-———————————————————————————————————
-![](https://cdn.discordapp.com/attachments/931678161832394752/952726699026567208/Screen_Shot_2022-03-11_at_22.png)
+美国海军战争学院中国海事研究所的讲师肯尼迪，也曾发表有关于中国改民船用于两栖作战对台构成威胁的文章。指出，自2019年以来，中共远洋运输集团公司的1万5560吨级滚装式货轮“棒棰岛号“，已配备经过改装的坡道系统，能够在近岸让两栖装甲车上下船。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-6.jpg)
+新美国安全中心资深研究员许卡特表示，共军致力把民用渡轮当作两栖运输工具，是试图将中共世界级商船整合到两栖攻击部队中的一环，如果成功，中共可能会大幅增加跨台湾海峡的海运能力，消除侵犯台湾的主要障碍之一。
+
+参考链接：
+[美國國會智庫報告：應關注中國恐以民船商船犯台](https://www.cna.com.tw/news/aopl/202203120196.aspx)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/审核：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

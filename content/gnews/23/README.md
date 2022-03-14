@@ -2,22 +2,35 @@
 ---
 
 
-## 樱花时政┃德法总统劝普京停战未果，美再增援助2亿美元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2159295/)
+## 文贵大直播谈中共围魏救赵
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2159514/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1461.png)（图片来源于本文链接）
-德总理肖尔茨和法国总统马克龙3月12日同俄罗斯总统普京通话，爱丽舍宫称此次对话“十分艰难”。美国总统拜登当天批准向乌克兰再提供2亿美元军事援助。马克龙和肖尔茨在12日同普京通话时，再次敦促立即在乌克兰停火，并通过外交解决争端。
+【撰稿】纽约香草山健身部-文鹰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-19.png)
 
-马克龙顾问透露，谈话进行得很艰难，普京没有停止战争的意愿。法方幕僚称，马卡龙和肖尔茨要求俄军停止对马里乌波尔的围攻，在断水断电的情况下，那里正在出现一场人道主义灾难。马克龙表示，欧盟正在酝酿对俄的第四个制裁方案，其力度堪比国际社会对朝鲜和叙利亚的制裁。
+3月13日盖特消息，文贵先生在大直播中，再次向世界郑重公布：中共即将在中东地区挑起的能源战争，是一场和俄罗斯计划好的“围魏救赵”阴谋。
+文贵先生在本月10日直播，曾向世界发出警告本月底到4月份，中共会在中东地区点燃战火，制造世界能源危机，继而侵占台湾。
+郭先生这次直播讲到，中共和俄罗斯在俄乌战争开始前，就制定了‘围魏救赵’计划。中共利用控制中东地区的邪恶联盟，伊朗，沙特，叙利亚，等武装团体，制造局部战争，控制全球石油运输命脉，本质是要打垮美元（石油）。
+不幸的是还没有到月底，也就是3月12日，就发生了伊朗用导弹袭击伊拉克美领事馆事件。美军在中东的所有军事基地，都面临被邪恶联盟袭击威胁。
+历史上，中共在1979年2月发动的‘中越边境自卫反击战’，就是一场‘围魏救赵’的侵略战争。战争并没有迫使越南，从柬埔寨全面撤军。只是无数年轻中国人的鲜血，成就了政治家的个人极权野心。
+俄乌战争，是一场非正义战争。普京跟着中共已经快跑进入火葬场，中共的‘围魏救赵’中东战争计划，在爆料革命的真相面前，必会惨败结束。
+新中国联邦是拯救世界，唯一的正道主义团体，我们要和平，不要战争。中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。
 
-据白宫12日公布的消息，美总统拜登批准了向乌再提供2亿美元军援，援助方案包括反坦克和防空武器系统、小型武器和协助训练乌克兰军队等项目。在战争爆发之初，拜登就已批准向乌提供价值3.5亿美元的军事援助。乌总统泽连斯基12日视频讲话，俄方释放了新信号。在就停战条件对话中，俄方给出了有所不同的路线，俄方代表不再像最初只是发出最后通牒，而是开始对话。
+【新闻来源】[http://\[https://gettr.com/post/pzrn4eb349\]](http://[https://gettr.com/post/pzrn4eb349])
 
-信息来源：[德法俄领导人再通话：普京无意停战 – DW](https://www.dw.com/zh/%E5%BE%B7%E6%B3%95%E4%BF%84%E9%A2%86%E5%AF%BC%E4%BA%BA%E5%86%8D%E9%80%9A%E8%AF%9D%E6%99%AE%E4%BA%AC%E6%97%A0%E6%84%8F%E5%81%9C%E6%88%98/a-61110391)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+- 审核/编辑/发稿:qiutian（邱甜）
+
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

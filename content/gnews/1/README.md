@@ -2,35 +2,32 @@
 ---
 
 
-## 今日盖特大V推荐 — 信息战（Infowars）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2159669/)
+## 俄军猛烈空袭乌克兰西部军事基地
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2159876/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1482-e1647224284241.png)
-盖特链接： [https://gettr.com/user/infowars](https://gettr.com/user/infowars)
+采编：加拿大温哥华杨帆农场 – 青青
 
-**信息战自述：**
-
-明天的新闻   今天
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1483.png)图片来源：网络
-**信息战简介：**
-
-信息战（InfoWars）是美国右翼新闻网站，成立于1999年，由亚历克斯·琼斯（Alex Jones）拥有和运营，隶属于言论自由有限责任公司（Free Speech Systems LLC）。
-
-信息战网站的脱口秀和其他内容主要是在位于德克萨斯州奥斯汀郊区工业区的工作室中制作。2017年的报告称，信息战网站的月访问量约为100万次，其覆盖范围超过了当时的《经济学人》和《新闻周刊》等一些主流新闻网站。
-
-信息战网站被Facebook、Twitter、YouTube、iTunes和[Roku](https://en.m.wikipedia.org/wiki/Roku#Content_and_programming)等平台以违反其服务条款为由被暂停和禁止进入。
-
-编撰：洛杉矶盘古农场 — 心照
-
-校审：洛杉矶盘古农场 — 郭友(文苏)
-
-发布：洛杉矶盘古农场 — 子萍
+编译撰稿：加拿大温哥华杨帆农场 – 文明(添草灭共)
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1492.png)
+
+图片来源：ctvnews
+
+据加拿大《CTV新闻》3月13日报道，俄军当天发射大量导弹，猛烈袭击了乌克兰西部与波兰边境接壤的一个军事训练基地，当场造成约40人死亡。
+
+据悉，本次空袭是在普京威胁将那些向乌克兰提供军事装备的欧盟成员国作为打击目标之后进行的。大约有30多枚俄罗斯巡航导弹击中了该离波兰边境不到25公里的训练基地。 报道称，波兰是北约对乌克兰军事援助的主要过境通道。目前，美国已增加部署了在当地的美军人数。而该基地长期以来一直被美国和其他北约国家的教官用来训练乌克兰军事人员。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+原文链接： https://www.ctvnews.ca/world/russian-airstrike-hits-base-in-western-ukraine-kills-35-1.5817365
+
+————————————————————————————————————
+![](https://cdn.discordapp.com/attachments/931678161832394752/952726699026567208/Screen_Shot_2022-03-11_at_22.png)
+
 
  
 

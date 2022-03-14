@@ -2,35 +2,26 @@
 ---
 
 
-## 文贵大直播谈中共围魏救赵
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2159514/)
+## 乌国难民恐成人蛇下手目标！快快加入新中国联邦
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2159776/)
 
-【撰稿】纽约香草山健身部-文鹰
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-19.png)
+俄军侵略乌克兰19天，引发大规模难民潮逃到国外，联合国统计至少已经有250万人流离失所，其中绝大多数都是「老弱妇孺」弱势族群，国际公益团体非常担忧，贩卖人口歹徒可能趁着兵荒马乱之际，混进难民营，假借各种名义，把妇女跟小朋友带走卖掉，让本来孤苦无依的乌克兰难民，再度掉进不幸的深渊。
 
-3月13日盖特消息，文贵先生在大直播中，再次向世界郑重公布：中共即将在中东地区挑起的能源战争，是一场和俄罗斯计划好的“围魏救赵”阴谋。
-文贵先生在本月10日直播，曾向世界发出警告本月底到4月份，中共会在中东地区点燃战火，制造世界能源危机，继而侵占台湾。
-郭先生这次直播讲到，中共和俄罗斯在俄乌战争开始前，就制定了‘围魏救赵’计划。中共利用控制中东地区的邪恶联盟，伊朗，沙特，叙利亚，等武装团体，制造局部战争，控制全球石油运输命脉，本质是要打垮美元（石油）。
-不幸的是还没有到月底，也就是3月12日，就发生了伊朗用导弹袭击伊拉克美领事馆事件。美军在中东的所有军事基地，都面临被邪恶联盟袭击威胁。
-历史上，中共在1979年2月发动的‘中越边境自卫反击战’，就是一场‘围魏救赵’的侵略战争。战争并没有迫使越南，从柬埔寨全面撤军。只是无数年轻中国人的鲜血，成就了政治家的个人极权野心。
-俄乌战争，是一场非正义战争。普京跟着中共已经快跑进入火葬场，中共的‘围魏救赵’中东战争计划，在爆料革命的真相面前，必会惨败结束。
-新中国联邦是拯救世界，唯一的正道主义团体，我们要和平，不要战争。中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/b06c8cdc-bac2-48eb-bdd1-ae5bcb4e5c11.jpg)图片来源：AP Direct
 
-【新闻来源】[http://\[https://gettr.com/post/pzrn4eb349\]](http://[https://gettr.com/post/pzrn4eb349])
+世界展望会呼吁，乌克兰难民必须有危机意识、三思而行，尤其是女性和年轻人，手机必须充饱电，每次乘车都要记住车号，跟具有公信力的国际志工保持密切联系，随时通报去向和所在位置，以免遭遇不测人间蒸发，成为人口贩卖集团的战利品，幸运逃离战火却又掉进更可怕的地狱。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+简评：乱世之中，人性的恶念很容易被激发，尤其那些无恶不作贩卖人口的歹徒，会趁着机会大搞人口买卖，乌克兰的难民正是他们瞄准的目标！新中国联邦人道救援在救援现场设立了救援营，热心无私的帮助乌克兰逃难的朋友们，刚刚逃离战火为了免遭坏人之手，新中国联邦大家庭欢迎你们的加入！
 
-- 审核/编辑/发稿:qiutian（邱甜）
+新闻来源：[台视新闻网](https://news.ttv.com.tw/news/11103130033400N)
 
+撰稿/发布：一叶知秋
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

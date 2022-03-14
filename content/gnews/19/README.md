@@ -2,23 +2,39 @@
 ---
 
 
-## 美驻伊拉克领事馆附近遭12枚导弹攻击！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2159342/)
+## 有声|受俄军控制，切尔诺贝利核电站断电
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2159621/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0f5cc3f2-e204-460a-85ba-ea486b60581a.jpg)图片来源：FTV
+配音：香草山农场 – 蒙古鸿雁
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月9日早上，作为人类历史上核灾难象征的切尔诺贝利核电站，停止了向国际原子能机构传输数据。当天下午，乌克兰国家能源公司表示，切尔诺贝利核电站，已与电网断开连接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1073.png)ttutu’ptu’pitu’piatu’pian图片来自https://cdn.mos.cms.futurecdn.net
+早在2月24日，俄罗斯军队就已经侵占切尔诺贝利核电站。核电站的断电缘由尚不清楚，俄罗斯军队接下来将采取什么措施也不得而知。
 
-据民视新闻网3月14日报道，俄乌战火已经是第19天，不料有消息传出，美国驻伊拉克艾比尔（Erbil）附近遭到导弹炮击，美国领事馆也受到波及。今伊朗承认发射导弹，但目标非美国领事馆，而是以色列的战略中心。
+乌克兰国家安全和情报局特别通信和信息保护局表示，核电站有2万个乏燃料组件需要持续冷却。如果没有电，水泵将无法冷却，储水池中的温度将升高。蒸发将导致核排放。设施内没有通风，所有人员将遭受危险剂量的辐射。此外，放射性云将通过风，转移到乌克兰、白俄罗斯、俄罗斯等欧洲其他地区。
 
-简评：正如郭文贵先生爆料所说，中共不敢与俄罗斯翻脸，也不敢与美国翻脸，只有挑起能源战争与区域性战争！不管中共如何的折腾也改不了灭亡的定局，垂死挣扎除了祸害人间毫无意义！
+乌克兰外长库列巴证实了这一消息，并表示，普京发动的野蛮战争正将整个欧洲置于危险之中。
 
-新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022314W0008)
 
-撰稿/发布：一叶知秋
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+文字版原文：[受俄军控制，切尔诺贝利核电站断电](https://gnews.org/zh-hans/2141952/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

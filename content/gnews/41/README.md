@@ -2,45 +2,52 @@
 ---
 
 
-## 新中国联邦乌克兰救援行动第十六天，中共继续谎称撤侨
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2157677/)
+## 高盛：俄乌战争令美国经济衰退风险增加35%
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2158281/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-15.png)
-**新中国联邦乌克兰国际大救援进入到第十六天，为生活在这个动荡不安国家的弱势群体带来一丝求生的希望。不幸的是，中共纳粹政权举国之力阻挠、破坏新中国联邦人无偿救人善举。**
+据《Washington Examiner》经济记者：Zachary Halaschak, 2022年3月11日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1431-e1647191088628.png)图片来源：shrn.org
+高盛大幅下调美国经济增长预期，并警告称俄罗斯入侵乌克兰后可能会出现经济衰退。
 
-乌克兰当地时间13日10点，《[新中国联邦法治基金乌克兰人道救援行动](https://www.gettr.com/streaming/pzr8jja7a2)》波兰前线直播连线透露，到目前为止，中国同胞和留学生每天都有几百人利用电子邮件和电话向我们前线救援团队求救。
+这家金融服务巨头在此前预测今年美国国内生产总值GDP增长2%，后将增长预测下调至1.75%。下调源自俄罗斯军队继续入侵乌克兰，这场战争导致能源价格飙升并导致更加严厉地制裁莫斯科。
 
-根据Nicole前线报道称，救援前线指挥的大卫战友深入乌克兰战区营救中国留学生，然而邪恶的中共继续动用国家级力量破坏我们与同胞取得联系，Nicole呼吁国际社会就此向中共追责，同时[希望华人同胞不要再犹豫，现在是你们逃生的唯一机会，我们救援的战友很多都病倒了，希望同胞们珍惜这次逃生机会](https://www.gettr.com/streaming/pzr8jja7a2)。”
+高盛首席经济学家 Jan Hatzius 表示：“我们现在认为，美国在明年进入衰退的风险与目前基于收益曲线斜率模型所暗示的20-35%的衰退可能性大体一致。”
 
-![](https://lh4.googleusercontent.com/t5QJKVzlqlihgDjsm9ozUyyJ9FX4Cx-OLyqkTD9V1sWPTeLWjmbVqs2UARn-maiq9Lj7XhRzl5UqosHCbiFnLx3M8K7jqTDf8AYnuuld5QH8_tFC1AcaxY7k1ilPRisw_t0J0J-j)
+高盛最近表示，它正在“关闭”其在俄罗斯的业务，并将遵守为应对冲突而对莫斯科实施的制裁。
 
-通过直播连线，[Nicole 战友继续介绍了我们为难民提供的优质服务](https://www.gettr.com/streaming/pzr8jja7a2)， 首先，我们在难民区搭建的250多平米的帐篷，是包括著名国际救援机构国际红十字会中的最好的帐篷；我们营地给小孩子的玩具、巧克力糖果等和充电设备以及食物、水，热喷喷的新鲜咖啡等物资，已经成为难民、记者和国际救援义工最佳避风港。
+随着COVID-19大流行即将结束，供应链仍处于混乱状态。乌克兰的战争正在加剧全球正在经历的通胀压力，尤其是在美国。
 
-- ***延展阅读：***[***乌克兰难民24小时流动在所有缓冲地带，自2月24日以来已有1,575,703 名难民进入波兰***](https://www.challenges.fr/monde/ukraine-le-flot-de-refugies-ralentit-quelque-peu-en-24h00_804427)
+美国最近宣布将禁止进口俄罗斯石油，以回应俄罗斯总统弗拉基米尔·普京的入侵决定。这使得美国及其欧洲盟友实施的一系列制裁措施中又增加一项。
+
+周五一加仑汽油的全国平均价格达到了4.33美元。美国石油基准——西德克萨斯中质原油期货价格——上涨至107美元，较战争爆发前的90美元涨幅巨大。周日，WTI原油一度触及130美元，为2008年以来的最高水平。
+
+能源价格上涨加剧了国内不断攀升的通胀率，截至2月份的12个月通胀率达到 7.9%，这是自1982年以来的最快通胀率。
+
+为应对物价上涨，美联储正准备进行多年来的首次加息，预计首次加息将在下周的联邦公开市场委员会会议之后进行。
+
+美联储主席杰罗姆·鲍威尔（Jerome Powell）最近在国会作证时表示，俄罗斯继续入侵乌克兰将推高油价，但向立法者保证，央行随时准备应对冲突带来的经济影响。
+
+“在短期内，我们已经看到这一点，油价比两个月、三个月前的水平大幅上涨，”鲍威尔上周在参议院银行委员会上表示。 “这将涉及汽油价格和其他燃料价格，这将体现在更高的通货膨胀中。真正的问题是，它们的程度如何，更重要的是，它们的持久性如何。”
+
+鲍威尔指出，战争和随后的制裁对经济的近期影响“仍然高度不确定”。
+
+他补充说：“在这种环境下制定适当的货币政策需要认识到经济以意想不到的方式发展。我们需要灵活应对传入的数据和不断变化的前景”。
+
+原文链接：[https://www.washingtonexaminer.com/news/risk-of-us-recession-35-as-russia-wages-war-in-ukraine-goldman-sachs](https://www.washingtonexaminer.com/news/risk-of-us-recession-35-as-russia-wages-war-in-ukraine-goldman-sachs)
+
+翻译：洛杉矶盘古农场 – 海潮
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 – 子萍
 
 
-根据救援现场“玫瑰园”战友当天消息证实，法治基金、新中国联邦在梅蒂亚的救援营地被称为“盘古七星级大帐篷”，已经从难民营变成一个汇聚全球爱心的国际营救营，郭先生（MILES GUO）命名的NFSC咖啡吸引了很多欧美的战地记者和新闻工作者，他们纷纷来这里喝咖啡，采访难民、休息、沟通。我们这里俨然成为“梅蒂亚新闻中心”了。法新社一位获奖战地摄影记者，Louisa Gouliamaki 有着20多年的战地记者生涯，去过世界很多的战区，她在难民营工作了一天后，来到盘古7星级帐篷喝咖啡、拍照。她说：“法治基金新中国联邦的大帐篷完美，非常好，我们需要这个地方（Perfect! Very nice! We need this place!）。”
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-- ***延展阅读：***[***狗的力量：宠物是如何帮助乌克兰人应对战争***](https://www.opb.org/article/2022/03/12/the-power-of-the-dog-and-how-pets-are-helping-ukrainians-cope-with-war/)***？***
-
-
-玫瑰园战友还说，“昨天刚自愿加入法治基金新中国联邦营救义工团队的租车公司老板、波兰本地人Peter， 亲自为Louisa Gouliamaki女士做咖啡。与此同时，大帐篷迎来了一群从荷兰开车过来给法治基金送救援物资的人们，在梅蒂亚的盘古7星级大帐篷正在成为一个集结全球爱心人士的国际大家庭。”
-
-![](https://lh4.googleusercontent.com/LZ689v-TXA8j2Wr_mBvN5nADKv7TAkeklaH3XtMnLDWU5xrqL-_E_s3MBCkPJM9RJ1pqr1DMD1OzFOfjtTQQ9j6rkJpUdANtoxj7Imrsxf9O0dwyac_YZh_htoXIDAQ9A3aKE9ZQ)
-
-自2月26日新中国联邦正式发动乌克兰国际人道救援令以来已进入第16天，每天救援费非常昂贵，都是有爱心的新中国联邦人捐助的“法治基金”支持的，不但承诺救援完全免费，还提供最优质、最人道的服务。这种公开透明的救援行动彻底击溃了中国共产党的“红色基因”。中共新华社因此继续每天像报丧一样在报道“中共虚假撤侨”，声称，“截止13日，第十二架接返自乌克兰撤离中国公民临时航班安全抵达济南。此前，已有11架自乌克兰撤离中国公民的临时航班安全回国。”这是一个人尽皆知的谎言，他们为什么乐此不疲？
-
-![](https://lh4.googleusercontent.com/VfvWprfRm2dIMpAqYlndbdHLkFcqZxqNb5H6MhPqIoB3ESYh7aszUGpClq6jn07FP-aoiuncVvOPF4MWm8-BETZUH3shlqROs-Rb0KsSGkOGaUm8fRg5-YzXa-Huxc-D473Oh17i)
-
-他们每天都谎称有来自乌克兰撤侨专机，如此大规模撤侨，为何不直播采访一下从战区回家的留学生和中国工人？好像《[我和我的祖国](https://www.wenxuecity.com/news/2022/03/10/11384299.html)》还没排练好。为何不能像新中国联邦那样直播救援，这不正是中共挽回国际上极为不利的国际形象的机会吗？比你花费几十亿上百亿美金办一场腐败的冬奥会要好得多啊。中共不但没办法直播他的虚假撤侨、没有举国之力去救援同胞，而是举国之力去阻拦新中国联邦去救助中国人，这种纳粹做法，国际媒体以历历在目。
-
-2022年3月13日
-
-校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921.png)
-
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
 
  
 
