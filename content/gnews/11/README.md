@@ -2,23 +2,31 @@
 ---
 
 
-## 【G时新闻】俄军导弹袭击国际维和安全中心致35人身亡，并劫持两位市长
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2164615/)
+## NFSC新闻、G|TV新闻访谈简报|2022年3月14日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2164724/)
 
-主播：加拿大温哥华扬帆农场 – 悠然
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-5.jpg)
 
-视频制作：加拿大温哥华扬帆农场 – 文雅
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-14.png)
+文章仅代表作者本人观点，与Gnews无关
 
-俄军导弹袭击国际维和安全中心致35人身亡，并劫持两位市长。
+视频参看：
+[2022.03.14早 《NFSC新闻》](https://gettr.com/streaming/pzxrf41d0c)
+[2022.03.14早 G|TV《新闻访谈》](https://gettr.com/streaming/pzy0dz8255)
 
-乌克兰军方称，位于利沃市40公里处亚沃里夫的“国际维和安全中心”受到8枚导弹袭击。造成35人死亡，134人受伤。该市距离波兰边境很近。美国和北约国家曾与乌克兰在亚沃里夫举行名为“快速三叉戟”的演习，北约践行支持乌克兰的承诺。俄军这一攻击向北约发出一个信号。拥有70万人的利沃夫距离波兰边境81公里。自俄乌战事爆发以来，这里一直是许多难民前往波兰等邻国的中转站，也是在国内避难的乌克兰人的落脚点。12号西部城市伊万诺－弗兰科夫斯克和卢茨克两市的机场遭到袭击，两地位于利沃夫的南北两侧。利沃夫也是乌克兰文化名城，利沃夫旧城被联合国教科文组织列为世界文化遗产。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-据乌克兰政府称，本周末，该国两个被占领城市的市长被俄军劫持。周日，包括外长库列巴在内的乌方官员称，约2万人的小城德尼波德鲁纳市长马特维耶夫遭俄军劫持。此前，梅利托波尔市长菲德洛夫已被劫持。媒体报道，俄军在梅利托波尔安插了一名新市长名叫尼尔琴科·乌克兰外长库列巴表示，俄军劫持民选市长严重违反国际法，根据日内瓦公约属于“战争罪行”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-17.jpeg)
 
-编辑/上传：一叶
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-盖特链接：https://gettr.com/post/pzvinkeb75
-![](https://assets.gnews.org/wp-content/uploads/2022/03/背景墙必用.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

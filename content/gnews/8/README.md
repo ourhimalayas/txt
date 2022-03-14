@@ -2,31 +2,45 @@
 ---
 
 
-## 有声|悉尼乌克兰协会点赞新中国联邦人道救援 中共阻挠
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2164686/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2164735/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间3月10日，悉尼的乌克兰协会刊发公告，告知在澳大利亚的乌克兰人，新中国联邦及法治基金提供在波兰的对于乌克兰难民的免费救援计划。不过，由于中国共产党对乌克兰政府的施压，不到24小时，这则人道救援公告已被撤下。
+翻译：土饭团
 
-郭文贵先生曾在盖特中提到，当澳洲战友刚刚来到乌克兰驻澳大利亚大使馆沟通救援事宜时，起初乌克兰人对亚洲面孔的我们的战友们是相当冷淡的。但是当使馆工作人员亲自验证了我们提供的救援行动的真实性和高效率以后，他们态度大变，立刻表示愿意提供十名义工与我们一起救援。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-43.jpg)图片来自网络
 
-这份公告对于乌克兰妇女儿童的救援有巨大帮助。但又一次受到中共的阻挠。中共继上一次骚扰紧急救援热线、黑掉救援电子邮箱之后，又一次愚蠢地在世界面前暴露了它反人类的本性。
+您若想了解全文报导内容，请点击标题链接
 
-文字版原文：[悉尼乌克兰协会点赞新中国联邦人道救援 中共阻挠](https://gnews.org/zh-hans/2156424/)
+**1.[俄罗斯在入侵乌克兰后的冲突中要求中共国对其提供军事和经济援助](https://www.foxnews.com/world/russia-asked-china-for-military-economic-aid-in-ukraine-conflict-following-invasion)**
 
-音频处理：Fei797
-发稿：Fei797
+福克斯新闻3月13日电，福克斯新闻证实，俄罗斯在入侵乌克兰后要求中共国提供军事和经济援助。为了保护情报来源，美国官员一直不愿意详细说明正在寻求何种类型的援助。国家安全顾问Jake Sullivan周日表示：“我们正在私下直接与北京沟通，大规模逃避制裁的努力或支持俄罗斯回避制裁的行为绝对会产生后果。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**2.[Barr警告中共国是美国的“最大威胁”，并警告“高度侵略性”的科技计划](https://www.foxnews.com/politics/barr-china-biggest-threat-highly-aggressive-tech-plan)**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+福克斯新闻3月12日电，前司法部长Bill Barr警告称，中共国是美国面临的“最大威胁”，并警告称北京有一个“极具侵略性的计划”来控制未来的“关键”技术。如5G通信、机器人技术、人工智能—所有这些技术在未来几年都将是至关重要的。中共国已经“通过窃取机密，在其中很多方面抢占了制高点”。
+
+**3.[Pompeo警告习近平正在“观察”美国如何处理海外局势](https://www.foxnews.com/media/pompeo-warns-xi-jinping-watching-america-handling-situations-abroad)**
+
+福克斯新闻3月13日电，前国务卿Mike Pompeo周日警告说，习近平正在“观察”美国在俄乌冲突中如何处理海外局势，并认为如果美国不帮助台湾人民作好自卫准备，这只会让中共国国家主席更有底气。台湾人“准备自己做艰苦的工作”，但认为台湾将需要美国、日本和韩国的支持。
+
+**4.[中共国中兴通讯因涉嫌违反美国缓刑而被带上法庭](https://www.reuters.com/business/media-telecom/chinas-zte-headed-court-over-possible-us-probation-violation-2022-03-14/)**
+
+路透社3月13日电，中兴通讯（000063.SZ）的律师周一被传唤到德克萨斯州的美国联邦法院，就这家中共国电信设备制造商是否违反了与涉嫌阴谋实施签证欺诈有关的缓刑法律进行听证。中兴通讯于2017年在达拉斯承认非法向伊朗和朝鲜运送美国技术，目前正在美国接受缓刑。
+
+**5.[美国在朝鲜发射导弹后新的制裁中针对俄罗斯人](https://www.reuters.com/world/china/us-imposes-new-north-korea-related-sanctions-after-missile-launches-2022-03-11/)**
+
+路透社3月11日电，在美国和韩国官员称平壤在最近的两次发射中使用了其最大的洲际弹道导弹（ICBM）系统之后，美国周五实施了新的与朝鲜有关的制裁，目标是俄罗斯个人和公司。这些措施是在担心朝鲜可能很快跟进威胁，自2017年以来首次恢复远程洲际弹道导弹和核武器的全面测试。
+
+* * *
+
+*审核：阿伯塔*
+*校对：信心满满*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-9.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 9:34 PM (UTC)`
+
+The war pianist just moved the piano right next to the tents provided by the ROL Foundation and the NFSC. He started the outdoor concert tonight with John Lennon’s classic song “Imagine”. Our fully equipped tents provide people with fresh grind coffee and warm heat. Thanks to the NFSC and the ROL Foundation, bringing some warmth and hope to people escaped from the war.<br/><br/>战地钢琴家今天把钢琴拉到了法治基金、新中国联邦的两个大帐篷前面。以约翰·列农的经典歌曲Imagine，开始了今晚的露天音乐会。我们设备齐全的大帐篷，给人们提供了新鲜现磨咖啡、温暖的暖气。感谢新中国联邦和法治基金，为战争和硝烟中的人们带来温暖和希望
+![img](https://media.gettr.com/group22/origin/2022/03/14/21/ac88f083-4e90-66f6-e651-468985ea7a08/out.jpg)
+
+---
+
+`@miles 3/14/2022 9:30 PM (UTC)`
+
+在战火纷飞的乌克兰，只有我们新中国联邦人，不畏危险来到前线，不求任何回报，不带任何条件，向受难的所有同胞伸出援助之手。新中国联邦将让中国人找回浪漫、尊严、善良、和平、友好，让中国人成为世界上最受尊敬、最爱打交道的人，而不是共产党在全世界塑造的虚假、懦弱、自私的样子！ <br/>In the midst of the war in Ukraine, only we, the citizens of the New Federal State of China (NFSC), have been on the frontline of rescue despite the danger, all in order to extend a helping hand to our stranded compatriots, unconditionally and without expecting anything in return. <br/>The NFSC has enabled the Chinese people to recapture a sense of romance, dignity, kindness, peace and friendliness, making them the most respected and pleasant people to interact with, as opposed to the image of deceptiveness, cowardice and selfishness that the Chinese Communist Party (CCP) has portrayed throughout the world.
+![img](https://media.gettr.com/group49/origin/2022/03/14/21/ccc514ba-e1a2-1d18-facd-21272eb9b068/out.jpg)
+
+---
+
 `@miles 3/14/2022 3:35 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
@@ -144,20 +158,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 3/13/2022 Miles Guo: There is a “list of four CCP cadres to be killed” inside of the CCP, who is on it? Miles Guo and the Whistleblowers’ Movement have laid out all kinds of traps for the CCP in the past decades, and the CCP will be finished in a road of no return in the Middle East, Europe, and its “Belt and Road Initiative”!<br/><br/>3/13/2022 文贵直播：共产党内部的“四杀令”是什么？郭先生和爆料革命在过去这些年给共产党挖好了各种坑，中共会在中东、欧洲和“一带一路”走上不归的死亡之路！<br/>
 ![img](https://media.gettr.com/group7/getter/2022/03/14/02/965dbe26-63cb-dd6f-2e41-6d2b3c0e2af8/out.jpg)
-
----
-
-`@miles 3/14/2022 1:59 AM (UTC)`
-
-2022.03.13 农场联盟工作汇报
-![img](https://media.gettr.com/group19/origin/2022/01/24/02/bd613978-1725-3a5b-3d72-ba5ecfb1f562/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/14/2022 1:09 AM (UTC)`
-
-2022.03.13 晚《新中国联邦新闻访谈》 Covid-19疫苗如何伤害免疫系统​；前线战友如何防范病毒；如何保持心理健康？
-![img](https://media.gettr.com/group3/origin/2022/03/14/01/ae7df8ff-9b34-2fe2-4bee-fc6ebc75f10a/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

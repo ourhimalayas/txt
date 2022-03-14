@@ -2,35 +2,39 @@
 ---
 
 
-## 英国科学家表示 中共病毒PCR检测有严重缺陷
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2164773/)
+## 2022/03/14 文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2164840/)
 
-翻译：冰糖葫芦喵
+[![](https://express.adobe.com/page/TKM9AGh7vjRsE/images/ee7695b1-c6ac-490b-8054-710dc831acf6.png?asset_id=68d585a4-76f2-4829-8fd6-249149900f68&amp;img_etag=%220d0d35d01ba3c24c2a9075cb8378accf%22&amp;size=2560)](https://express.adobe.com/page/TKM9AGh7vjRsE/images/ee7695b1-c6ac-490b-8054-710dc831acf6.png?asset_id=68d585a4-76f2-4829-8fd6-249149900f68&amp;img_etag=%220d0d35d01ba3c24c2a9075cb8378accf%22&amp;size=1024)
+**[GETTR直播链接](https://gettr.com/post/pzy3h0ebc7)**
 
-编辑与校对：冰糖葫芦喵
+• 俄乌前线变化巨大，参与前线救援战友辛苦工作（24小时值班制-史上作为救援队伍仅此一家）。将带领国际护卫和救援设备走进乌克兰解救中国同胞、乌克兰孩子、女性。
 
-《英国每日邮报》3月12日报道，**英国基于研究结果显示，用来诊断病毒的“黄金标准”PCR检测检测到的人实际上并没有被感染。一位科学家表示，PCR检测在一年前就应该被取消。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/55274547-10606107-image-m-13_1647121672195-e1647290258927.jpg)图片来源：网络。
-报道指出，**在英国就进行了超过2亿次的病毒检测，**可能会将普通感冒和流感误认为冠状病毒。这将意味着**这些病例中有许多本不应该被计入每日的统计中，**而这一数字被用来为有关封锁和其他大流行措施的决定提供信息。
+• 中共“截胡”新中国联邦救援行动，将已与救援行动联系上的在乌一百个中国人运至斯洛伐克。
 
-据悉，**许多被检测出阳性的人被迫隔离，给经济造成了巨大压力，他们做了不必要的事情。**
+• 香港历史上非正常死亡一百年三千多人，近两年来非正常死亡达二万多人，中共习惯性撒谎对外“宣传”一切正常。
 
-必须指出的是，这种说法已被所谓的顶级专家彻底驳斥。而那些**愿意相信这种担忧的科学家在社交媒体上遭到了谴责，被指责，甚至被同行边缘化。**
+• 美欧对中共放“狠话”–与俄罗斯狼狈为奸将付出代价。美欧对中共计划在中东行动保持警觉。
 
-3月12日，《星期日邮报》(the Mail on Sunday)在最新系列文章的第一部分中，调查了**政府在大流行期间经常说他们遵循的“科学”**是否**存在缺陷，至少在某些方面是错误的。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/120888706_78544dda-b30c-4174-bf5d-d1a7538ee54e.jpg-1.jpg)英国防疫政策严重失误（图片来源：网络）
-未来几周，**英国将调查中共病毒死亡数字是否被夸大了**。封锁是否弊大于利。
+• 新中国联邦是推翻中共之后实行一人一票的推动者。
 
-上个月，研究慈善机构Collateral Global和牛津大学(Oxford University)的学者发布了一份报告，得出了同样的结论。**报告称，多达三分之一的阳性病例（600万例）可能没有传染性。**
+• 中共国和香港的经济萎靡，中共疯狂购粮食，高科技没有输出。深圳、香港等地方封城。
 
-报道指出，**牛津大学的科学家们称英国的这项每月花费20亿英镑的测试计划“混乱而浪费”。**
+• 中共内部斗争持续，江、曾、王、孟势力依旧，二十大之前必定厮杀。
 
-新闻采集：文逗。
+• 感谢前线救援战友，欧美、日本、韩国等多国朋友夸奖救援行动给亚洲人“挣面子”。
 
-新闻来源链接：
+• 明天上午直播见。
 
-[Did flawed tests convince us Covid was worse than it really was? (dailymail.co.uk)](https://www.dailymail.co.uk/health/article-10606107/amp/Did-flawed-tests-convince-Covid-worse-really-was.html)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*听写：* *call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+[![](https://express.adobe.com/page/TKM9AGh7vjRsE/images/6f7d1e61-4a08-4822-8ef2-ebfe30c3fee0.jpg?asset_id=885950a2-4f24-4fda-a943-7478a4ed841d&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/TKM9AGh7vjRsE/images/6f7d1e61-4a08-4822-8ef2-ebfe30c3fee0.jpg?asset_id=885950a2-4f24-4fda-a943-7478a4ed841d&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
