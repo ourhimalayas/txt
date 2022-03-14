@@ -2,27 +2,25 @@
 ---
 
 
-## 法治基金烏克蘭救援行動
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2163714/)
+## 新中国联邦的豪华帐篷成了救援基地的国际会议厅
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2163784/)
 
-采編撰稿：加拿大溫哥華楊帆農場 – 文萊
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1535.png)圖片來源：Gettr
+**作者、编辑：Candy
+图片：Ana Italy**
 
-據3月12日蓋特消息，法治基金人道救援隊當天在波蘭麥迪卡搭建了當地最大，設施最全的營救帳篷，並因免費提供救援現場唯一的現磨咖啡，而成為難民和各地記者最心儀的避難所。
+波兰当地时间3月14日星期一，波兰梅迪卡(Mydyka,Poland )边境的组织方及各个救援组织的负责人，在我们新中国联邦搭建的豪华帐篷里开会。
+![Image](https://media.discordapp.net/attachments/950448401529577502/952921877691641906/IMAGE_2022-03-14_093103.jpg?width=541&amp;height=406)![Image](https://media.discordapp.net/attachments/950448401529577502/952921877960065074/IMAGE_2022-03-14_093109.jpg?width=541&amp;height=406)![Image](https://media.discordapp.net/attachments/950448401529577502/952921878182391838/IMAGE_2022-03-14_093112.jpg?width=541&amp;height=406)
+我们新中国联邦和法治基金共建的豪华大帐篷，是在波兰梅迪卡国际救援中心营地唯一的一个最大、最舒适的帐篷。它有200多平米，24 小时灯火通明，桌椅板凳齐全，暖炉供应暖气，食物充足丰富，儿童娱乐角，更有倍受追捧、闻名战地的现磨咖啡，战友们热情到位的服务……不但在日夜不停地接待从乌克兰战区转移出来的难民，还能为营地的各个救援组织提供召开国际会议的一个场所。
 
-據悉，著名法國戰地女記者[路易莎]在喝完久違的咖啡之後，對新中國聯邦戰地救援行動的專業性和完善性嘆為觀止，贊不絕口。目前，該中心帳篷內已設置了休息區、兒童遊樂區、充電區以及餐飲咖啡區，並已接待了超過近500名逃難的婦女和兒童。
+正像郭文贵先生一贯要求的：我们不做最好，但做唯一！自俄乌开战以来的20天的时间里，战斗在梅迪卡营地的新中国联邦人，用自己的实际行动向世人展示了我们的“唯一”，在各个方面的“唯一”。感谢你们！
 
-本次法治基金烏克蘭救援行動，不僅向世人展示出新中國聯邦人才是真正能消滅共產黨的中國人，而且也再次證明了中共政權是全世界災難的根源，只有徹底消滅該暴政才能拯救全人類。
+***发布：Candy***
 
-校對編輯：硫酸羥氯喹64
-
-發稿：青青
-
-新聞來源： [https://www.gettr.com/post/pzo44956c7](https://www.gettr.com/post/pzo44956c7)
-
-————————————————————————————————————
-![](https://cdn.discordapp.com/attachments/855947446352871426/952725922249855016/Screen_Shot_2022-03-11_at_22.png)
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

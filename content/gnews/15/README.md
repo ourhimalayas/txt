@@ -2,34 +2,33 @@
 ---
 
 
-## 美官员：俄要求中共国为其入侵乌克兰提供军事援助
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2164061/)
+## 没有一切比行动结果再重要
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2164332/)
 
-翻译：噜噜咪
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/764.png)图片来自网络
+2022-03-11直播摘录
 
-据美国官员称，俄罗斯已要求中共国提供军事援助，以支持其对乌克兰的入侵。美国官员告诉《金融时报》，随着战争进入第三周，人们怀疑俄罗斯可能正在耗尽武器装备。
+我们要唯真不破，而且在国际上更要坚持唯真不破，诚实。中国人这个假、虚伪、感情过滥，跟外国人一见面就谈感情，就套近乎，然后小恩小惠，然后骗人家外国人，然后吹牛。一说自己，都是家里边都是无敌，一说自己，都是过去多么辉煌的历史，人家外国人从来不问你过去干什么，你说现在咱俩要干啥，你给我啥，我给你啥，很实际啊。而且外国人不相信眼泪，别一张嘴就眼泪就出来了什么什么的。所以新中国联邦人一定要记住，不要跟共产党一样搞感情的欺骗，不要跟外国人展示美好的未来，更不要说你伟大的过去，就说现在你能做啥？
 
-这一消息传来时，美国国家安全顾问杰克·沙利文计划周一在罗马与中国最高外交政策官员杨洁篪举行会谈。
+在收养儿童上，战友们，我想问，很多人现在就是突然良心发现，突然善良的已经是过度了，上“流水”、下“流水”，水流的水多，我觉得没有比中国的男人女人眼泪再多的了，包括七哥，我们感情很丰富的。但是我相信，没有一切比行动结果再重要的，行动最好的结果是什么？干掉中国共产党，还有展示新中国联邦的形象。关于救孩子的事情，我建议战友们，你们现在别想这事儿，你先别冲动，就像喜币现在44.49了，我刚才看了一眼，这喜币每天的交易量是多大？现在看到了，喜币过一段时间你会看到它会发生什么事情。然后我再跟你们说在这几周以内看到共产党会在世界上即将挑起比俄乌战争还大的事件。
 
-在周末启程前往意大利之前，沙利文警告中共国不要通过帮助莫斯科绕过美国及其盟国对俄罗斯总统弗拉基米尔·普京实施的当前制裁来“救助”俄罗斯。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-“我们将确保中共国或其他任何人都无法补偿俄罗斯的这些损失，”沙利文周日告诉美国全国广播公司。“就这样做的具体手段而言，同样，我不会在公开场合提出所有这些，但我们将私下与中共国沟通，正如我们已经做的和将继续做的。”
+**关注我们**
 
-最近，人们对中共国与俄罗斯日益增长的关系有了一定程度的担忧。尽管在乌克兰入侵问题上官方保持“中立”，但北京-莫斯科联合表示，他们的关系“没有限制”。
+Discord 账号
 
-据报道，中国官员还在2月初告诉俄罗斯高级官员，在2月20日结束的北京2022年冬奥会结束之前，暂缓入侵乌克兰。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-**参考资料：**[thepostmillennial][BREAKING: US officials say Russia has asked China for military aid in Ukraine invasion](https://thepostmillennial.com/us-officials-russia-china-military-aid-ukraine)
+Gettr 账号
 
-* * *
-
-*审核：文乐*
-*校对：小东*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-9.jpeg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

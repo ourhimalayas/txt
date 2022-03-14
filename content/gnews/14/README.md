@@ -2,26 +2,33 @@
 ---
 
 
-## 年轻的妈妈突然死亡，是因为新冠疫苗吗？
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2164135/)
+## 一切的眼泪和一切的善良都不如今天我们增加灭共的力度
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2164333/)
 
-#### 翻译                       意大利达芬奇农场                              小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-14-alle-18.11.00.png)图片来源：eventiavversinews.it
-据《意大利报》报道，一位年轻的母亲斯黛拉•洛玛尼尼死于不明原因的突然死亡。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-这跟新冠疫苗有关吗？
+2022-03-11直播摘录
 
-斯黛拉在她所生活的城市是一位深受爱戴且知名的妇女。当她的父亲斯坦法若在她家门前被射了15枪而死亡时，她才是个小姑娘。自2011年2月起斯黛拉从未放弃过寻求正义。
+就像中国这几百万每年失去的人，上千万失去的人，搞掉这几个人就不需要失去上千万人。所以我们只有一个，你收养儿童还不如坚定地灭共，灭掉共产党比你收养每个人、一万个儿童都管用！七哥就永远直奔主题，一切的眼泪和一切的善良都不如今天我们增加灭共的力度。
 
-斯黛拉•洛玛尼尼在卢卡出生长大，她最近还在那儿与尼古拉结了婚， 两人生下漂亮的孩子，小乔娅。是她的丈夫发现她躺在床上一动不动，已经死了，没有任何生命迹象。尼古拉叫来了救护车，但已经晚了。
+新中国联邦会不会有这个儿童收养机构现在不方便说，以后根据情况再说。我们在国际上一定不能过度承诺，特别是在前线的战友绝对不能张嘴就来，任何一个人只要在前线造假、说谎、不诚实，绝对一分钟不会让你待在前线。在前线很辛苦，但它也是一种荣誉。到了前线的战友们如果你不能发挥作用你应该马上回来，那不是去旅游去啦，你别以为到了前线镀把金去了。跟共产党似的就到越南前线啊，一下死几十万人，大家知道那时候就是让那不会打枪的人上前面去堵枪口去，但是很多人是越南前线回来以后，还有那些什么营长、连长、团长的孩子们就因为上过越南前线，回来升了官，升成了将军。后来我跟他们打交道，我说：“你这上前线，当时你爹也是个官了，为啥去呀？” 他说：“我爹让我上前线在哪？在大理，在下关，还有在英岱（注：同音字），殷岱就是在越南前线最安全的地方之一，我在殷岱大本营，我在待了几天回来，我参加战场，照照照片，还有证人，回来就升官了。” 一辈子作为升官的基础。新中国联邦不会的，任何战友你到了前线如果你没有把你的能力发挥出来，那你回来在新中国联邦就有问题了。
 
-斯黛拉就这样离开了她深爱的家庭。她还有一位母亲和一个姐妹。人们通过社交媒体对她的不幸离去发出了无数慰问。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-正如一开始所预料的那样， 在斯黛拉•洛玛尼尼去世的消息传出后，网上许多人都怀疑她的突然死亡与新冠疫苗有关。有些人开始对新冠疫苗持慎重态度， 特别是当所有年龄段的男人、女人，年轻人和孩子都开始突然死亡。 网上流传着对此产生的疑问。目前对于这位死去的年轻母亲还没确定是不是由疫苗引起的。
+**关注我们**
 
-原文链接：[https://www.eventiavversinews.it/camaiore-stella-romanini-morta-per-malore-improvviso-la-causa-e-il-vaccino-covid/](https://www.eventiavversinews.it/camaiore-stella-romanini-morta-per-malore-improvviso-la-causa-e-il-vaccino-covid/)
+Discord 账号
 
-编辑、上传： Xiao   baige
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
