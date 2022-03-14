@@ -15,113 +15,113 @@
 
 ---
 
-### [3/13/2022 文贵直播：希望战友们在救援行动中团结一致，我们是新中国联邦人，在前线要紧跟联盟的脚步，不以农场而建立小圈子、不互相攻击；任何欺骗战友的人都不会得逞](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
-
-### [有声｜已接种加强针的前美国总统奥巴马感染中共新冠病毒](/content/gnews/2/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [20220313郭文贵大直播 ：为什么说2022年是人类历史上最黑暗的一年？](/content/gnews/3/README.md)
+### [20220313郭文贵大直播 ：西方禁止中共参与国际外汇交易，查封盗国贼家族在海外的资产](/content/gnews/1/README.md)
  ` Tokyo Sakura Video Group`
 
-### [有声｜美国五角大楼官员指出，俄罗斯&#8221;扩大 &#8220;了袭击目标范围](/content/gnews/4/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [澳大利亚多地CCP病毒感染新增再次上升](/content/gnews/2/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [20220313郭文贵大直播 ：中俄准备怎么拿下欧洲和美国？](/content/gnews/5/README.md)
- ` Tokyo Sakura Video Group`
-
-### [文•贵天成——文贵先生谈“孟建柱”（二十五）](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [20220313郭文贵大直播 ：前线无急救设施，战友文桑用推拿保住德国老人性命](/content/gnews/7/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声｜中资银行会否向俄罗斯伸出援手助其逃避制裁？](/content/gnews/8/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [中共国警告任何在军事上支持台湾的国家将面临 &#8220;最坏的后果&#8221;](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [20220313郭文贵大直播 ：我们是要消灭共产党的新中国人,世界所有灾难是因为中国共产党,解决办法就是消灭共产党](/content/gnews/10/README.md)
- ` Tokyo Sakura Video Group`
-
-### [澳大利亚、荷兰就MH17开始对俄罗斯的行动](/content/gnews/11/README.md)
- ` Shuizhuyu`
-
-### [俄罗斯警告可能被迫以卢布支付外币债务](/content/gnews/12/README.md)
- ` Shuizhuyu`
-
-### [新中国联邦救援基地为人们提供食物和休息的地方](/content/gnews/13/README.md)
+### [新中国联邦和法治基金，为战争和硝烟中的人们带来温暖和希望](/content/gnews/3/README.md)
  ` 波士顿五月花农场`
 
-### [【 G时新闻 】俄罗斯导弹袭击波兰附近美军曾驻扎的基地](/content/gnews/14/README.md)
- ` G-时新闻`
+### [澳大利亚的游轮禁令即将解除](/content/gnews/4/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [俄煤炭化肥大王：烏戰悲劇必須結束](/content/gnews/15/README.md)
- ` 喜马拉雅农场新西兰站`
+### [辉瑞CEO为第四剂CCP病毒疫苗造势](/content/gnews/5/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [俄罗斯入侵乌克兰第19天：俄罗斯周日对靠近波兰边境的军事基地进行火箭弹袭击](/content/gnews/16/README.md)
- ` Himalaya 77 G-Engineers`
+### [20220313郭文贵大直播 ：西方停止中共参与国际外汇交易，中国将出现粮食危机](/content/gnews/6/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [台空军一幻象战机失联 飞行员跳伞获救](/content/gnews/17/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [七国集团与欧盟正采取措施取消俄罗斯的WTO最惠国待遇](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2022/03/14 英喜时事速递](/content/gnews/19/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [大直播后记： 中南坑下场比齐奥塞斯库惨多了](/content/gnews/20/README.md)
- ` 雅典娜GNotes`
-
-### [乌战场使用面部识别技术 助查施袭者打假](/content/gnews/21/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [上海爆医院感染封城! 明起客运全停 非必要不离沪](/content/gnews/22/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [中国镍业大亨青山的困境](/content/gnews/23/README.md)
- ` Shuizhuyu`
-
-### [《共产党统治中国的150个家族》之“江泽民”篇（二）](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [华尔街日报：俄检察官恫言扣押美企资产或捕人](/content/gnews/25/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [中共封锁了有1700万人口的深圳](/content/gnews/26/README.md)
- ` 澳喜农场`
-
-### [新中国联邦的新中国人正致力于推翻共产党以拯救人类](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [IAEA：疲惫不堪的切尔诺贝利核电站人员已停止安全维修工作](/content/gnews/28/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [航空团体呼吁取消对航空旅行的所有COVID限制](/content/gnews/29/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [救援前线：新中国联邦“豪华大帐篷”系列报道四](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [樱花时政┃联俄两线开火各取所需 中共加速“全球自动灭共”进程](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [张文宏成为第二个“钟南山”？](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃俄罗斯入侵乌克兰将使中共受益](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻新闻｜中共国疫情遍布20省市](/content/gnews/34/README.md)
+### [有声｜习近平再喊“中国人饭碗装中国粮”引关注](/content/gnews/7/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美国政府官员和大医药公司在疫苗上欺骗美国人](/content/gnews/35/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [大直播后记：共产党点火中东围魏救赵](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
 
-### [7·24系列——沙特阿拉伯“进坑”](/content/gnews/36/README.md)
+### [新中国联邦救援中心在救援前线供应物资](/content/gnews/9/README.md)
+ ` 波士顿五月花农场`
+
+### [3/13/2022 文贵直播：希望战友们在救援行动中团结一致，我们是新中国联邦人，在前线要紧跟联盟的脚步，不以农场而建立小圈子、不互相攻击；任何欺骗战友的人都不会得逞](/content/gnews/10/README.md)
+ ` 秘密翻译组-北美组`
+
+### [20220313郭文贵大直播 ：中东乱战的开启才是乌克兰真正灾难的开始，百分之百由普习背后推动](/content/gnews/11/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [破坏性的制裁是不够的&#8211;为阻止普京需要做的事是这样的](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声｜已接种加强针的前美国总统奥巴马感染中共新冠病毒](/content/gnews/13/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [20220313郭文贵大直播 ：为什么说2022年是人类历史上最黑暗的一年？](/content/gnews/14/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [有声｜美国五角大楼官员指出，俄罗斯&#8221;扩大 &#8220;了袭击目标范围](/content/gnews/15/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [华硕回应了！出货已停滞，捐款乌克兰3千万新台币！](/content/gnews/16/README.md)
+ ` 蓝莲花农场`
+
+### [20220313郭文贵大直播 ：中俄准备怎么拿下欧洲和美国？](/content/gnews/17/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [文•贵天成——文贵先生谈“孟建柱”（二十五）](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
+
+### [20220313郭文贵大直播 ：前线无急救设施，战友文桑用推拿保住德国老人性命](/content/gnews/19/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [有声｜中资银行会否向俄罗斯伸出援手助其逃避制裁？](/content/gnews/20/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [中共国警告任何在军事上支持台湾的国家将面临 &#8220;最坏的后果&#8221;](/content/gnews/21/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [澳大利亚、荷兰就MH17开始对俄罗斯的行动](/content/gnews/22/README.md)
+ ` Shuizhuyu`
+
+### [俄罗斯警告可能被迫以卢布支付外币债务](/content/gnews/23/README.md)
+ ` Shuizhuyu`
+
+### [新中国联邦救援基地为人们提供食物和休息的地方](/content/gnews/24/README.md)
+ ` 波士顿五月花农场`
+
+### [【 G时新闻 】俄罗斯导弹袭击波兰附近美军曾驻扎的基地](/content/gnews/25/README.md)
+ ` G-时新闻`
+
+### [俄煤炭化肥大王：烏戰悲劇必須結束](/content/gnews/26/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [俄罗斯入侵乌克兰第19天：俄罗斯周日对靠近波兰边境的军事基地进行火箭弹袭击](/content/gnews/27/README.md)
+ ` Himalaya 77 G-Engineers`
+
+### [台空军一幻象战机失联 飞行员跳伞获救](/content/gnews/28/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [七国集团与欧盟正采取措施取消俄罗斯的WTO最惠国待遇](/content/gnews/29/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2022/03/14 英喜时事速递](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [救援前线：新中国联邦“豪华大帐篷”系列报道四](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [樱花时政┃联俄两线开火各取所需 中共加速“全球自动灭共”进程](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [张文宏成为第二个“钟南山”？](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃俄罗斯入侵乌克兰将使中共受益](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻新闻｜中共国疫情遍布20省市](/content/gnews/35/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [美国政府官员和大医药公司在疫苗上欺骗美国人](/content/gnews/36/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [中共瞬间武力犯台，台湾雄升飞弹系统将自卫反击](/content/gnews/37/README.md)
  ` GTV新聞訪談`
