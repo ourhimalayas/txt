@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 12:18 PM (UTC)`
+
+【Ukraine Rescue】03/12/22  NFSC Ukraine Rescue Operation volunteer Nicole introduces to the KBS reporters that we are the freedom loving Chinese people, anti-communist, and committed to take down the CCP.<br/><br/>【乌克兰救援】03/12/22  新中国联邦乌克兰救援行动的义工妮可向韩国广播公司记者介绍：我们热爱自由、反对共产主义，并致力于推翻中共。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group35/getter/2022/03/14/12/762c4079-08a2-0779-b402-a3edc5192d77/out.jpg)
+
+---
+
 `@miles 3/14/2022 11:08 AM (UTC)`
 
 【Ukraine Rescue】03/13/22  Fellow fighter Nicole emphasizes in an interview with Polish independent producers that the evil Chinese Communist Party is the root cause of all the disasters around the world. And we, the new Chinese from the New Federal State of China, are committed to take down the Chinese Communist Party to save humanity.<br/><br/>【乌克兰救援】03/13/22  妮可战友在接受波兰独立制片人采访时强调中国共产党是全世界所有灾难的根源。而我们，新中国联邦的新中国人正致力于推翻共产党以拯救人类<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -149,13 +156,6 @@ Miles Guo revealed why he thinks NFSC’s freshly brewed coffee is so important 
 
 【Ukraine Rescue】03/12/2022 In Medyka, Poland. Piano Music on the Front Line. The pianist came to the gate of our base camp again to performance. There are war, gunpowder and refugees here.  And the rescue team of NFSC is working here. The music helps soothe people's hearts and get through the tough times!  NFSC rescue team are the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity! <br/>【乌克兰救援】2022年3月12日，波兰梅迪卡，战地钢琴曲。今天这位钢琴家又来到我们大本营演奏音乐，这里有战争、炮火和难民，新中国联邦的救援团队正在这里工作，音乐能帮助抚慰人们的心灵、度过困难时期！新中国联邦救援团队是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人
 ![img](https://media.gettr.com/group13/origin/2022/03/13/22/bbc0a350-8bd4-dc45-9342-23eff0c192ac/out.jpg)
-
----
-
-`@miles 3/13/2022 10:31 PM (UTC)`
-
-The first group of fellow fighters from the Italian Himalaya Farm, including Wen Ke, Xiao Kang, Mi Feng, Mike, Ana, and Wu Jia, were the first to arrive at the frontline refugee port in Poland to organize rescue work. On March 10th, volunteers from the New Federal State of China (NFSC) and the Rule of Law Foundation (ROLF) cooperated with SSF-Rescuers Without Borders to set up a Ukrainian refugee channel in Medyka to carry out Ukrainian refugee rescue services! We are also supported by Starlink network system. Username is "New Federal State of China" and password is "takedownccp"意大利农场的第一批战友文科，小康，蜜蜂，迈克，阿娜，和吴佳最早抵达波兰前线难民口岸组织救援工作。3月10日新中国联邦法治基金的志愿者战友和无国界救援国际组织（SSF）协调作战，一起在Medyka设立乌克兰难民通道，一起进行难民救援服务工作！还有Starlink支持网络系统，我们的用户名就是“New Federal State of China”，密码就是“takedownccp"
-![img](https://media.gettr.com/group12/origin/2022/03/13/22/a8bdb602-865a-701d-7e52-54b3745fab44/out.jpg)
 
 ---
 
