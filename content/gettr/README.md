@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 7:21 AM (UTC)`
+
+【Ukraine Rescue】03/13/22  NFSC‘s volunteer received a  kiss of gratitude from an Ukrainian lady<br/><br/>【乌克兰救援】03/13/22  新中国联邦义工小小酥获得乌克兰难民感激的亲吻<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group27/getter/2022/03/14/07/d4e7b1e6-2ea3-9e2b-0ad5-44b6a99916a1/out.jpg)
+
+---
+
+`@miles 3/14/2022 7:18 AM (UTC)`
+
+【Ukraine Rescue】03/13/22  NFSC Ukraine Rescue Operation volunteers receive praise from KBS reporters. We are the only Chinese face in the Rescue centre, and we are proud to be people of NFSC.<br/><br/>【乌克兰救援】03/13/22  新中国联邦乌克兰救援行动的义工获得韩国广播公司记者的赞许。我们是难民援救中心唯一的亚洲人面孔。作为新中国联邦人非常自豪。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group15/getter/2022/03/14/07/2e5abac3-bbcb-e34c-cc21-7f72ecf4f2fb/out.jpg)
+
+---
+
+`@miles 3/14/2022 7:13 AM (UTC)`
+
+【Ukraine Rescue】03/13/22  Peter, the driver of NFSC, has been helping us with translation work， fully with passion and enthusiasm<br/><br/>【乌克兰救援】03/13/22 新中国联邦的司机彼得一直在帮助我们做翻译工作，充满激情和热情<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group4/getter/2022/03/14/07/81b78ff1-2b76-4088-3493-221142596a66/out.jpg)
+
+---
+
 `@miles 3/14/2022 7:08 AM (UTC)`
 
 【Ukraine Rescue】03/13/22 Chinese students and people rescued by NFSC and ROLF  are very grateful, but  afraid of the CCP. We hope they will uncover the EVIL nature of CCP with us in the future<br/><br/>【乌克兰救援】03/13/22 被新中国联邦和法治基金救出的中国学生和民众心存感激，但又害怕中共，希望他们有一天能大胆的与我们一起揭露中共邪恶的本质<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -35,13 +56,6 @@
 
 【Ukraine Rescue】3/13/2022 An exhausted Ukrainian girl Lera who had not slept well for a whole week during the bumpy journey to escape from her war-torn homeland found great comfort in the new Cafe set up by the rescue team of the #NewFederalStateofChina. The follow fighter told the Ukraine girl that the mission of the NFSC is to take down the Chinese Communist Party. The the boss behind the Russian-Ukraine war is the CCP, and we will win<br/><br/>【乌克兰救援】 3/13/2022仓皇逃离战火的乌克兰小女孩莱拉因路途颠簸一周未曾安眠，就在精疲力竭之时，她来到新中国联邦救援队新建的咖啡驿站，并享受到难得的安适。义工告诉乌女孩，新中国联邦人的使命是消灭中国共产党，俄乌战争背后的老板是中共，我们一定会赢<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group9/getter/2022/03/14/06/14c43a3b-59f2-67fb-9caa-07ef512f5166/out.jpg)
-
----
-
-`@miles 3/14/2022 6:47 AM (UTC)`
-
-【Ukraine Rescue】03/13/22  NFSC‘s volunteer received a  kiss of gratitude from an Ukrainian lady<br/><br/>【乌克兰救援】03/13/22  新中国联邦义工小小酥获得乌克兰难民感激的亲吻<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group30/getter/2022/03/14/06/20614a84-b1ca-8fbd-1b09-245d41cbdcd5/out.jpg)
 
 ---
 
@@ -140,20 +154,6 @@ The first group of fellow fighters from the Italian Himalaya Farm, including Wen
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-13
 ![img](https://media.gettr.com/group18/origin/2022/03/13/21/20553cf7-cb05-5c5e-6cba-f333fc527b02/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/13/2022 9:33 PM (UTC)`
-
-3/13/2022 Miles Guo: We have arrived at the front line as the new Chinese taking down the CCP. We’ve become the Chinese people who are mutually respectful, civilized, clean, honest, and united, but many of our issues have also been exposed. We are way too individualistic and self-righteous, we lack respect for others and disregards others’ strengths, and we always give advice without taking enough action.<br/><br/>3/13/2022 文贵直播: 我们到了前线，成为消灭中国共产党的新中国人，成为互相尊重，文明，干净，诚实，团结的中国人，但也暴露了我们的很多问题，我们个人主义太强、自以为是、不尊重别人、不看别人优点、老提意见、行动力差<br/>
-![img](https://media.gettr.com/group42/getter/2022/03/13/21/9a24c6b8-3a0c-43d3-eae0-749cab4e0023/out.jpg)
-
----
-
-`@miles 3/13/2022 9:31 PM (UTC)`
-
-【Ukraine Rescue】03/12/2022 The NFSC & ROLF Ukraine Rescue team member Nicole gives an introduction about the Rule of Law Foundation to a reporter and tells him all the rescue efforts are financed and organized by the Rule of Law Foundation. She shows him everything the ROLF has provided and makes an important distinction that the New Federal State of China is totally against the Chinese Communist government<br/><br/>【乌克兰救援】03/12/2022 新中国联邦法治基金乌克兰救援团队成员妮可向一位记者介绍法治基金并且告诉他所有的救援行动都是由法治基金赞助和组织的。她向记者展示了法治基金提供的所有物资并且告诉他新中国联邦是完全反对中共政府的机构。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group12/getter/2022/03/13/21/0a1202af-6430-6dc2-933c-30ddd89e787a/out.jpg)
 
 ---
 
