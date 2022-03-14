@@ -2,24 +2,27 @@
 ---
 
 
-## NaomiWolf博士详细介绍了辉瑞公司的文件，她聘请161名律师面对“非同寻常的罪行”
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2163465/)
+## 法治基金烏克蘭救援行動
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2163714/)
 
-#### 翻译                  意大利达芬奇农场                               小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-14-alle-16.37.24.png)图片来源：eventiavversinews.it
-“ 我们开始看到辉瑞到底对美国人民和世界人民做了什么。”
+采編撰稿：加拿大溫哥華楊帆農場 – 文萊
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1535.png)圖片來源：Gettr
 
-Naomi Wolf 博士最近出现在史蒂夫•班农的节目中，回顾了从辉瑞公司最近发布的新冠疫苗试验的文件中呈现出的令人不安的发现。沃尔夫博士将聘请一支庞大的律师团队， 他们已被征召审查辉瑞公司的文件，以便为这些被新冠疫苗伤害的人伸张正义。
+據3月12日蓋特消息，法治基金人道救援隊當天在波蘭麥迪卡搭建了當地最大，設施最全的營救帳篷，並因免費提供救援現場唯一的現磨咖啡，而成為難民和各地記者最心儀的避難所。
 
-“有很多东西要呈现出来。我们需要161名律师， 因为这些罪行的规模非常大， 我们开始看到辉瑞对美国人民和世界各地人民的所作所为。”
+據悉，著名法國戰地女記者[路易莎]在喝完久違的咖啡之後，對新中國聯邦戰地救援行動的專業性和完善性嘆為觀止，贊不絕口。目前，該中心帳篷內已設置了休息區、兒童遊樂區、充電區以及餐飲咖啡區，並已接待了超過近500名逃難的婦女和兒童。
 
-她接着说，她为自己和其他人在寻求真理和正义的过程中获得的巨大帮助感到高兴。她补充说， 到目前为止，他们在审查这些辉瑞文件时所检查出的数据也令她感到震惊。
+本次法治基金烏克蘭救援行動，不僅向世人展示出新中國聯邦人才是真正能消滅共產黨的中國人，而且也再次證明了中共政權是全世界災難的根源，只有徹底消滅該暴政才能拯救全人類。
 
-“辉瑞对大鼠和小鼠进行了多项研究……他们正在研究脂质纳米颗粒， 这项研究会导致什么结果？这就是BioTech如此兴奋的地方。这些是著名的脂质纳米颗粒， 是通过mRNA疫苗放到您体内的坚硬的脂肪外壳。BioTech 对这项技术感到非常兴奋。”
+校對編輯：硫酸羥氯喹64
 
-原文链接：[https://www.eventiavversinews.it/la-dottoressa-naomi-wolf-dettaglia-i-documenti-di-pfizer-ha-arruolato-161-avvocati-per-affrontare-crimini-di-proporzioni-straordinarie-video/](https://www.eventiavversinews.it/la-dottoressa-naomi-wolf-dettaglia-i-documenti-di-pfizer-ha-arruolato-161-avvocati-per-affrontare-crimini-di-proporzioni-straordinarie-video/)
+發稿：青青
 
-编辑、上传： Xiao   baige
+新聞來源： [https://www.gettr.com/post/pzo44956c7](https://www.gettr.com/post/pzo44956c7)
+
+————————————————————————————————————
+![](https://cdn.discordapp.com/attachments/855947446352871426/952725922249855016/Screen_Shot_2022-03-11_at_22.png)
+
 
  
 

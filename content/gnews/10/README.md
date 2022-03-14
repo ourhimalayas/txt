@@ -2,34 +2,33 @@
 ---
 
 
-## 美官员：俄要求中共国为其入侵乌克兰提供军事援助
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2164061/)
+## 习普合作——人类的灾难
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2164296/)
 
-翻译：噜噜咪
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/764.png)图片来自网络
+2022-03-11直播摘录
 
-据美国官员称，俄罗斯已要求中共国提供军事援助，以支持其对乌克兰的入侵。美国官员告诉《金融时报》，随着战争进入第三周，人们怀疑俄罗斯可能正在耗尽武器装备。
+我们中国人最起码的常识要有，特别是女性看到这个“锁链女”还有国内这些孩子的丢失，就共产党的邪恶，一年几百万人，这是官方说的。几百万什么概念？一个曼哈顿的人全消失了，被绑架了，每年还是啊，我相信会达到千万的级别。这一千万个人，就一千万个家庭被毁了，是中国人像猪狗一样地活着，我觉得猪狗也不会这样吧？大家看到很多那个现在视频，狗救自己的孩子，猪救自己的孩子，动物救自己的孩子，小鹿救自己的孩子那种伟大。但是中国人还就能活着，孩子丢了娘丢了他就能活着，多可怕。
 
-这一消息传来时，美国国家安全顾问杰克·沙利文计划周一在罗马与中国最高外交政策官员杨洁篪举行会谈。
+另外一个就是中国女性，中国女性在中国的所谓地位特别高啊，就为什么高呢？就中国女性有些人可以去卖淫。中国女性所谓的在人大代表政协里边能表演性地成为男人的玩物，而且坐在那里代表中国女性的时候首先要跟很多男人上床，这叫“半边天”。晓理刚才还说了一个更重要的问题，就是我们中国人现在看到这个乌克兰现场这些孩子的时候大家都想去收养。我想问很多战友们，如果没有新中国联邦你会这样吗？你收养，你收养一个两个、十个百个千个，但是你想想这场战争就不应该发生。这场战争根本的发生是中国共产党背后的金钱支持，而且是新中国联邦爆料革命在四五年前就说过，习普合作——人类的灾难，搞掉习近平，搞掉普京，就不存在所谓的这些儿童需要你收养。
 
-在周末启程前往意大利之前，沙利文警告中共国不要通过帮助莫斯科绕过美国及其盟国对俄罗斯总统弗拉基米尔·普京实施的当前制裁来“救助”俄罗斯。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-“我们将确保中共国或其他任何人都无法补偿俄罗斯的这些损失，”沙利文周日告诉美国全国广播公司。“就这样做的具体手段而言，同样，我不会在公开场合提出所有这些，但我们将私下与中共国沟通，正如我们已经做的和将继续做的。”
+**关注我们**
 
-最近，人们对中共国与俄罗斯日益增长的关系有了一定程度的担忧。尽管在乌克兰入侵问题上官方保持“中立”，但北京-莫斯科联合表示，他们的关系“没有限制”。
+Discord 账号
 
-据报道，中国官员还在2月初告诉俄罗斯高级官员，在2月20日结束的北京2022年冬奥会结束之前，暂缓入侵乌克兰。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-**参考资料：**[thepostmillennial][BREAKING: US officials say Russia has asked China for military aid in Ukraine invasion](https://thepostmillennial.com/us-officials-russia-china-military-aid-ukraine)
+Gettr 账号
 
-* * *
-
-*审核：文乐*
-*校对：小东*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-9.jpeg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

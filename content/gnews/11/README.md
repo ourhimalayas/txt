@@ -2,27 +2,35 @@
 ---
 
 
-## 欧盟正在敲定对俄罗斯“野蛮”入侵乌克兰的新一轮制裁
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2164042/)
+## 10万块钱买你命？
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2164260/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+文编：Hima
+听写：叮叮
+视频：七哥
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/U5FB3VOJOVPFFKAE2M2FERYBCQ.jpg)
+2022-03-11直播摘录
 
+我今天已经看了刚才有两句里边重点你们可能注意不到，共产党弄了什么？10万块钱就把你们命买了，这10万块钱几乎到前线就是给俄罗斯人去当炮灰去了，他的尸体一定会被野狗吃掉的。最重要的事情你看到了吗？它用GPS。北斗七星呢？哇噻！北斗七星系统呢？你用GPS你打什么仗啊？现在所谓的俄乌战争事实上就是美国和中共国的技术战争，你用人家GPS干嘛？你用北斗七星嘛！强大的国家嘛！你都上天啦，你都可以发遥控臂抓美国卫星啦，你都北斗七星啦！覆盖一半地球啦！现在的战争就是一种打你的眼睛，我能高空封你的眼，就是先打通讯设施。现在俄罗斯人的所有的遭遇的问题就是美国把它的所谓秘密通讯给破了，然后用了所谓的肩扛式最先进的专打坦克的这种小导弹。
 
-图片来源：路透社
+Eric：针刺。
 
-据美联社报道，欧盟委员会副主席 Josep Borrell Fontelles 周一表示，第四轮处罚将针对莫斯科的市场准入、金融集团成员资格以及钢铁和能源行业。
+郭文贵先生：针刺导弹。这个PRG这个东西就厉害啦，这也是美国的。那你说现在乌克兰人在那块打坦克、打将军、打飞机，都是把对方的通讯给毁掉和破解的情况下，你中共还用GPS把人送到前线去，那美军就真的在任何地方，在被窝里边人就拿了遥控器就把去的中国人“bang bang bang …”全给打成烂肉，然后让野狗把你吃掉。你有多邪恶中国共产党！太可怕了！太可怕了！太可怕了！
 
-据美联社报道，博雷尔在与北马其顿总理迪米塔尔·科瓦切夫斯基交谈后表示：“我们正在列出更多在支持破坏乌克兰主权的人方面发挥积极作用的公司和个人。”
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-“这将是对克里姆林宫进行入侵的经济和后勤基础的又一次重大打击，”他补充说。
+**关注我们**
 
-除了俄罗斯政客、寡头和实体外，欧盟已经制裁了俄罗斯总统弗拉基米尔·普京核心圈子的主要成员。欧盟还对俄罗斯的金融、能源和运输部门进行处罚，并对出口融资和签证实施出口管制和限制。
+Discord 账号
 
-🔗 [https://thehill.com/policy/international/598103-eu-finalizing-new-round-of-sanctions-on-russia-for-barbaric-invasion](https://thehill.com/policy/international/598103-eu-finalizing-new-round-of-sanctions-on-russia-for-barbaric-invasion)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-编辑发表： Shuizhuyu
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
