@@ -2,37 +2,25 @@
 ---
 
 
-## 俄罗斯警告可能被迫以卢布支付外币债务
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2162433/)
+## 华硕回应了！出货已停滞，捐款乌克兰3千万新台币！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2162515/)
 
-新闻来源：路透社
+俄罗斯出兵入侵乌克兰，多国祭出经济制裁，不少全球企业也自发性抵制、暂停或退出在俄罗斯的市场。乌克兰副总理兼数位转型部长费多罗夫10日透以公开信的方式向华硕董事长施崇棠呼吁，华硕应停止与俄罗斯的商业合作关系。
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/ecfeea15-10b0-4d2b-b231-57848d119e2b.jpg)图片来源：华硕官网
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/ALVTGANJHVOOBCJPKYDSGFZVYA.jpg)
+华硕第一时间未立即回应，今日终于发布声明表示，对俄罗斯市场的出货已停滞，为尽一份力量，华硕将捐助财团法人賑灾基金会「赈济乌克兰专户」新台币3,000万。
 
+简评：在全球援助乌克兰抵制俄罗斯的浪潮中，乌克兰副总理点名华硕虽然第一时间没有得到回应，但稍晚的回应也是很棒的，每一份抵制都是遏制邪恶的力量，每一份捐助都是伸张正义的良心！雪中送炭永不晚！
 
-资料来源：路透社
+新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022314W0261)
 
-俄罗斯财政部周一表示，它已经批准了一项偿还外币债务的临时程序，但警告称，如果制裁阻止银行以发行货币偿还债务，将以卢布支付。
+撰稿/发布：一叶知秋
 
-西方对乌克兰事件的制裁使俄罗斯与全球金融市场的关键部分隔绝，引发了自 1991 年苏联解体以来最严重的经济危机。
-
-“声称俄罗斯无法履行其主权债务义务是不真实的，”财政部长安东·西卢安诺夫在一份声明中说。 “我们有必要的资金来履行我们的义务。”
-
-政府将于周三为其两只美元计价债券支付 1.17 亿美元。
-
-该部表示，它已批准一项临时程序，允许银行以外币支付，但表示这些支付通过的可能性将取决于制裁。
-
-多家俄罗斯银行已被禁止加入 SWIFT 国际支付网络，阻碍了将资金转移到俄罗斯境外的努力。
-
-如果无法付款，财政部表示将以卢布偿还欧洲债券，这相当于违约。卢布在最近几周跌至历史低点。
-
-“冻结中央银行和政府的外汇账户可以被视为几个西方国家希望组织人为违约，”西卢阿诺夫说。
-
-🔗 [https://www.reuters.com/world/europe/russia-warns-it-may-be-forced-pay-fx-debt-roubles-due-sanctions-2022-03-14/](https://www.reuters.com/world/europe/russia-warns-it-may-be-forced-pay-fx-debt-roubles-due-sanctions-2022-03-14/)
-
-责任编辑、发布： Shuizhuyu
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

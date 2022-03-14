@@ -2,47 +2,58 @@
 ---
 
 
-## 大直播后记：共产党点火中东围魏救赵
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2162590/)
+## 俄罗斯正在与世界文明彻底切割 大踏步向西朝鲜迈进
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2162690/)
 
-整理：清水冷香、Lucy Liu
-编辑：Mohegayer K. Simon
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/@H1RTGY1N3OZ6FMW.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
+上周日午夜，俄罗斯国家媒体监管机构关闭了Instagram在俄罗斯的服务。此前Instagram母公司Meta表示，将允许乌克兰人发布“俄罗斯入侵者去死”、“俄罗斯总统弗拉基米尔·普京（Vladimir Putin）和白俄罗斯总统亚历山大·卢卡申科（Alexander Lukashenko）去死”等信息。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-14_21-38-15.png)
 
-图片来源：墨尔本雅典娜农场设计组
+就在关闭Instagram前一周，俄罗斯宣布关闭Facebook，原因是Facebook允许用户发布一些针对乌克兰境内俄罗斯入侵者的暴力呼吁。
 
+Meta公共事务总裁尼克﹒克莱格（Nick Clegg）在一份声明中说：我想明确一点，我们的政策侧重于保护人们的言论自由权，以此作为对军事入侵他们国家的自卫的一种表达。如果我们在不做任何调整的情况下应用我们的标准内容政策，我们现在将删除普通乌克兰人表达他们对入侵的俄罗斯军队的抵抗和愤怒的内容，这将被视为不可接受的。
 
-普京两次手术，身体不好，受美国、欧洲打压，国际上没有他发言的地方。然后他觉得自己要搞一下子，乌克兰的美女被别人给抢走了，想恢复所谓的原苏联的荣光。然后觉得苏联有些人也让他很生气，特别是最近，前苏联的越野军，也就是坦克部队是最不听普京话的。
+Meta官员还指出，除非针对俄罗斯平民或包含额外“可信度指标”（的个人），针对俄罗斯总统弗拉基米尔·普京或白俄罗斯总统亚历山大·卢卡申科的死亡威胁也将被允许发布。
 
-就像当年邓小平一样：我一上来，怎么立我邓小平的威呢？我当年是38军创始人，把38军直接派到越南去打仗，杀掉的都是当年不忠于我邓小平的，活着回来的全升为将军，升为大官，他们是我未来统治中国最相信的权力。像毛泽东一样，当年国民党的叛军，对于我来讲太不安全，拿着美式武器，傅作义的女儿傅冬菊告诉了我，这些人能反我爹也能反你们。这个傅冬菊，这闺女太王八蛋了，把中国给毁大发了，要没有傅冬菊，北京城不会这个样子，甚至共产党都不会这个样子。结果毛泽东就把那些人送到了北朝鲜去了，包括他仇恨的一些国民党人。
+这一决定引起了普京当局的愤怒，俄罗斯当局已对Meta展开刑事调查，并试图将该公司归类为“极端主义组织”，称该平台被用来煽动“伴随暴力的大规模骚乱”。
 
-后来是毛泽东儿子死了以后，他发现自己的儿子接班不成，就把所有人的孩子全送到农村，全弄死你们，强奸、轮奸，知识青年到农村去下乡，他这精神已经变态了。和卡扎菲、萨达姆是一模一样的，把他亲家，把他女婿弄死以后，用车拖着，全巴格达转悠。他最相信的战友、老婆来找他要，她说：我丈夫去哪儿了？（萨达姆）说：我明天送给你，砍100多瓣，拿着棺材给送回去了。大家都知道这种情况下普京是什么概念？不是说他妥不妥协呀，他就是跟你玩儿狠的，他知道他撑不住的，他就剩下两条了：他被做掉，再一个就放核武器。
+俄罗斯国家媒体监管机构Roskomnadzor发给Instagram用户的消息称，允许对俄罗斯人实施暴力的决定违反了国际法。监管机构在解释关闭该平台的原因时称，“我们需要确保公民，特别是儿童和青少年的心理健康，以保护他们免受网络骚扰和侮辱”。俄罗斯总检察长办公室以“分发包含呼吁对包括军人在内的俄罗斯人采取暴力行动的信息材料的信息”为由，要求俄罗斯国家媒体监管机构Roskomnadzor限制该国用户对Instagram的访问。
 
-我可以告诉大家，他绝对没有任何机会放出核武器，他已经结束了。普京，已经结束了，现在是俄罗斯人为他付出代价，为什么？这就是我们今天在呼吁的，中国人不要最后成为牺牲品。另外一个就是说，他现在通过人民币银联，香港港币来使用，这都是垂死挣扎。最终美国和西方的系统，你想想人家占多少呢？美欧加在一起23%。你的使用率根本决定不了大局。而且美国、西方只要想把你香港，把共产党的Swift停了—-你说那是多可怕吗？俄罗斯一旦发现以人民币这个系统也不能用的时候，它的黄金有用吗？它是过去三年储备黄金最多的，结果黄金你也没法兑现，没人敢买啊。这个世界上黄金现在比铜还不值钱呢？没人要！
+Meta Platforms,Inc.，前身为Facebook,Inc.，以Meta开展业务，是一家位于加利福尼亚州门洛帕克（Menlo Park）的美国跨国互联网技术集团。2021年10月，Facebook的母公司决定更名，以“反映其对构建元宇宙（metaverse）的关注”。2021年10月28日，Facebook,Inc.正式更名为Meta Platforms,Inc.（或Meta平台公司）。
 
-所以说兄弟姐妹们这个时候你会看到香港，人民币，只是短暂的欺骗，但是危险在哪儿知道吗？这是今天七哥告诉你们，共产党一定会在中东，让伊朗、朝鲜、伊拉克、也门、叙利亚发动区域战争，你知道为什么吗？这是我今天讲的第一个重点，他们为什么在中东搞这个事？围魏救赵这个词你们都知道，这就是他和普京玩的围魏救赵。我打你伊拉克大使馆，我弄你叙利亚，我弄卡塔尔基地，我让伊朗出手，为苏莱曼尼报仇。
+Meta平台公司该公司是Facebook、Instagram和WhatsApp以及其他子公司的母公司。Meta平台公司与Alphabet、Amazon、Apple和Microsoft.一起，是美国市值最高的五大信息技术公司。
 
-结果是什么？一旦把霍尔木兹海峡给封了，世界经济，石油就不是150块钱一桶，500块钱一桶，而是没有啦！你知道美元是什么？美元这叫石油美元呢！你不是封我Swift系统吗，Swift不是基于美元吗？我把美元给你干掉。普京等着这一刻呢，知道吗？我还有黄金，还有人民币能用的情况下，我让伊朗；我让叙利亚；我让胡塞武装；我让沙特；我让整个伊拉克；点燃战火，切断你的石油链、天然气、电。
+Meta平台公司的元产品和服务包括Facebook、Messenger、Facebook Watch和Facebook Portal。它还收购了Oculus、Giphy、Mapillary、Kustomer，并拥有Jio Platforms 9.99%的股份。
 
-（请木兰将以下的话翻译成英文）：我再告诉大家，共产党玩儿这一招。在中东点燃的战火，包括昨天伊拉克的所有的炮击，都是普京和习太阳一早的计划。就是发动乌克兰战争，同时共产党要配合普京，为了截击美国和西方的金融制裁，设立邪恶的五国，就是中共国，俄罗斯，伊朗，北朝鲜，然后现在还要加入中东这些邪恶的小国家，包括沙特这个家伙，本•萨勒曼（音），原来是巴基斯坦。这几国要在中东开展的，叫做围魏救赵，就是把中东的整个的世界的能源供给给砸烂，点燃战火。
+Instagram负责人亚当·莫塞里（Adam Mosseri）上周五推文称，Instagram在俄罗斯拥有8000万用户，80%的俄罗斯人都在关注一个海外账户，由于俄罗斯国家媒体监管机构Roskomnadzor的言论封锁，这些用户将与世界其他地区相互隔绝，这是错误的。
 
-你要制裁俄罗斯的Swift，甚至下步制裁共产党的Swift，中国和香港港币脱钩，然后影响我攻击台湾。我就让你西方的整个石油崩溃，特别是美国，虽然是石油进出口国，但石油价格影响着美国的经济和就业，然后欧洲是完全对石油和能源的依赖。整个欧洲一旦没有了油，没有了气，欧洲就会在俄罗斯身上妥协，就会要继续买俄罗斯石油和在金融上妥协，停止Swift制裁。中共就可以打台湾，这叫围魏救赵。
+自俄罗斯入侵乌克兰以来，谷歌云（Google Cloud）、谷歌支付（Google Pay）和YouTube货币化（YouTube monetization）服务在俄罗斯事实上已经死了。苹果也关闭了许多服务，包括其Apple Pay技术，并停止在俄罗斯销售硬件，导致莫斯科火车站排长队。微软、IMB和大多数美国主要信用卡公司也已停止在该国开展业务。
 
-我可以告诉大家，马上你会看到。在叙利亚、沙特、伊拉克的美军基地，美军的被打击会超出你想象，甚至放毒。这是今天直播的另外一个重点，上周我说的中东将点燃战火，伊拉克昨天被炮击，你觉得该给我点什么奖励呢？记住今天这个直播，七哥这段讲话将成为世界上未来所有军事战略人员研究的话题。你们都在其中！伟大是在不经意间发生的，经意的都不叫伟大，那叫做制造的虚伪的伟大。我们刚才这段讲话绝对会成为人类未来战争历史当中的经典，唯一一个能讲出这些话的人，就是咱新中国联邦的七哥！所以，香港的港币和中国人民币的Swift只能成为俄罗斯和他们走向疯狂的一个幻想，最终全部被归零和消灭。
+由于俄罗斯宣传机构利用社交媒体平台传播有关俄罗斯入侵乌克兰战争的虚假信息，YouTube在全球范围内封锁了俄罗斯的官方媒体频道。
 
-资料来源：2022年3月13日文贵大直播
+与此同时，俄罗斯政府上周五表示，它正在封锁流行的社交媒体应用Instagram，并对Facebook、Instagram和WhatsApp的母公司Meta Platforms,Inc.正在采取进一步行动。此前，因为Facebook暂时暂停了其仇恨言论规则以允许发布如要求俄罗斯领导人弗拉基米尔﹒普京去死的消息，俄罗斯屏蔽了Facebook，但Facebook在俄罗斯的受众比WhatsApp或Instagram少得多。
 
-发布：星谕
+作为独裁国家，俄罗斯对言论自由的管控由来以久。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+2020年，普京的对手Alexi Navalny开发了的一款允许俄罗斯人登记反对普京的抗议选票的应用程序Smart Voting上线才几个小时，俄罗斯联邦安全局（Federal Security Service of the Russian Federation，简称FSB RF，是俄罗斯和苏联克格勃KGB的主要继承机构）特工就出现在莫斯科一位谷歌高管的家中，威胁这位谷歌女性高管要么在24小时内关闭该应用程序，要么入狱。在谷歌以假名将这位高管转移到酒店后，同样一批特工再次找到了她，告诉她，他们仍然希望关闭该应用程序。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-14_21-39-42.png)
+
+莫斯科的一名苹果员工也收到了来自FSB特工的类似威胁。这款Smart Voting应用程序最终被迫从苹果和谷歌应用程序商店被下架。
+
+俄罗斯正在与世界文明彻底隔绝，大踏步向西朝鲜迈进！
+
+参考资料：
+
+[Russia to shut down Instagram service at midnight Sunday after Meta says it will allow Ukrainians to post messages like ‘Death to Russian invaders’](https://www.dailymail.co.uk/news/article-10605097/Lawmaker-calls-block-Instagram-Meta-allows-hate-speech-against-Russians.html)
+
+[Silicon Valley companies have been rewriting their rules during the war in Ukraine. Russia is retaliating.](https://www.washingtonpost.com/technology/2022/03/11/russian-prosecutor-general-seeks-ban-instagram-declare-meta-an-extremist-organization/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

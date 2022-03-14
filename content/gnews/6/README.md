@@ -2,8 +2,8 @@
 ---
 
 
-## 20220313郭文贵大直播 ：西方停止中共参与国际外汇交易，中国将出现粮食危机
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2162628/)
+## 20220313郭文贵大直播 ：西方一定会切断中共国的SWIFT、禁止中共参与国际外汇交易
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2162714/)
 
 作者：东京樱花团小视频组
 
