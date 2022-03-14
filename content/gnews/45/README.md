@@ -2,27 +2,25 @@
 ---
 
 
-## 德国志愿者因新中国联邦人急救保住生命
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159936/)
+## 新中国联邦一定能够消灭中共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159949/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者：纽约磐石农场  在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月13日，文贵大直播连线法治基金新中国联邦，驻波兰梅蒂卡救援现场，现场记者妮可讲到，波兰当地时间13日凌晨一点左右，文桑抢救了一位六十多岁、从德国开车运送救援物资的老人。
+3月12日，郭文贵先生发表盖特视频表示，他提前预警的中共将在中东地区挑动事端，已经得到了充分验证。中共唯恐世界不乱，妄图搞弱、搞乱、搞死美国之心路人皆知。在两到三周之后，世界将有大事发生。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-9.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-3.jpeg)
 
-这位老人连续驾车从德国赶往波兰边境，运送救援物资。他在搬运卸载物资时，突然昏倒。正在值夜班的文桑因为懂得中医，马上施行紧急抢救措施。经过紧急抢救，老人慢慢苏醒。恢复了意识后，医院的救护车才赶到。
+在乌克兰救援前线，新中国联邦义工们所展示的形象，是无法用金钱和设计来完成的，而是战友们人生观、世界观、价值观和内心信仰的体现。近日，全世界都在谈论新中国联邦，日本的朋友也高度赞扬新中国联邦给亚洲人争光。
 
-红十字会等国际组织并未在梅蒂卡设立紧急医疗救助设施，如果没有文桑在现场立即进行急救措施，这位老人很可能就失去了生命。
+郭先生说，战友们以出色表现向全世界证明了，新中国联邦人是最伟大、最纯洁和以正道主义为信仰的新人类，最终一定能够消灭中共。
 
-文桑接受了本台记者的采访，此时，他已经连续值班超过24小时。以下是前线记者对文桑的现场采访。
-
-参考链接：[https://gettr.com/streaming/pzrn4eb349](https://gettr.com/streaming/pzrn4eb349)
+参考链接：[https://www.gettr.com/post/pzpn0hf544](https://www.gettr.com/post/pzpn0hf544)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
 总编：文真
-编辑：Jack Li文阳   
+编辑：百香果
 审核：文真
 校正/发稿：谐趣园
 
@@ -33,6 +31,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

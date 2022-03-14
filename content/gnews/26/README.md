@@ -2,68 +2,27 @@
 ---
 
 
-## 俄罗斯入侵乌克兰第19天：俄罗斯周日对靠近波兰边境的军事基地进行火箭弹袭击
-` Himalaya 77 G-Engineers` [轉載自GNews](https://gnews.org/zh-hans/2162404/)
+## 辉瑞CEO为第四剂CCP病毒疫苗造势
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2162630/)
 
-##### 作者：77国际功成农场 – 文随Riki
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-10.jpg)哀悼者聚集在利沃夫，为在战争中阵亡的三名乌克兰士兵举行葬礼。
-- 俄罗斯入侵乌克兰突然改变了世界。目前难民人数已达200万人，根据郭先生3月13日的直播，俄罗斯入侵乌克兰战争的走向很可能成为长期战争，对乌克兰的打击力度会更大。本周日，俄罗斯国防部承认对靠近波兰边境的军事基地的一场[火箭弹袭击](https://www.theguardian.com/world/2022/mar/13/russia-widens-attacks-on-ukraine-with-missile-strike-on-base-close-to-polish-border)负责，死亡人数上升至35人。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1211D.jpg)网络图片
+辉瑞首席执行官 Albert Bourla 近日表示：为了帮助抵御下一波的CCP病毒大流行，人们将需要接种第四剂CCP病毒疫苗。
 
+Bourla 先生在一次节目中告诉哥伦比亚广播公司：“许多变种即将出现，Omicron 是第一个能够以巧妙的方式逃避我们提供的免疫保护的变种……”
 
-- 据美联社报道，**俄罗斯轰炸了她本该分娩的妇产医院后，一名孕妇和她的婴儿死亡**。该妇女被用担架被紧急送往救护车的图片已在世界各地发布。
+虽然辉瑞CEO承认现在的疫苗对于变种病毒效果不佳，但他随后又表示疫苗加强针对于变种病毒的防治效果良好；然而当他表达了对第三针效果的满意之后，他又说加强针的维护效力并不是特别持久。
 
+在一系列自相矛盾的论述之后，Bourla 先生得出结论：“如果有必要的话，我们现在需要第四针。”
 
-- 周一上午，一枚炮弹击中基辅的一栋住宅楼，造成两人死亡。乌克兰紧急服务机构表示另有三人在袭击中受伤，乌克兰总统泽伦斯基再次敦促北约实施禁飞区。
+辉瑞和 Moderna 表示，他们正在研发一种专门针对 Omicron 变体提供保护的疫苗——然而辉瑞CEO自己预测未来可能还会有更多变种。
 
+Bourla 先生说，辉瑞公司还希望制造一种疫苗，以防止 Omicron 和所有其他 SARS-CoV-2 变体 – 导致 COVID-19 的病毒，目标是保护效力至少能够维持一年。换言之，如果这种疫苗能够完成研发并成功面世，人们恐怕需要每年都扎一针。
 
-- 据英国《金融时报》报道，自入侵开始以来，俄罗斯一直要求中共国提供军事装备。这一请求在白宫引发了人们对中共援助俄罗斯并破坏西方在乌克兰的努力的担忧。美国国家安全顾问杰克·沙利文定于周一在罗马会见中国高级外交官杨洁篪。会前，[沙利文警告说，](https://www.theguardian.com/us-news/2022/mar/13/jake-sullivan-biden-national-security-adviser-china-russia)如果[北京](https://www.theguardian.com/us-news/2022/mar/13/jake-sullivan-biden-national-security-adviser-china-russia)帮助莫斯科逃避对入侵乌克兰的制裁，[它将“绝对”面临后果](https://www.theguardian.com/us-news/2022/mar/13/jake-sullivan-biden-national-security-adviser-china-russia)。
+新闻参考链接：
 
-
-- Instagram在俄罗斯被关闭，并表示它将允许乌克兰的社交媒体用户发布“俄罗斯入侵者之死”等信息。国家通信监管机构的一封电子邮件告诉人们在Instagram关闭之前将其照片和视频从Instagram上移走，并鼓励他们切换到俄罗斯自己的“竞争性互联网平台”。
-
-
-## 新中国联邦，法治基金救援方面的最新动态
-
-由于需要免费专机撤离的申请人数不足，NFSC和法治基金（ROLF）宣布取消3月15日的免费专机，已经成功登记并符合条件的申请人，将根据每个人的目的地免费提供商业航班机票并安排他们安全离开波兰。未来的免费专机航班，将根据实际情况再重新做出计划，并公告。
-
-NFSC和法治基金（ROLF）已经在波兰边境Medyka设立了24小时临时救援接待站，供来自乌克兰的难民休憩。救援接待站内提供免费咖啡、热水、食物、毛毯，并设有儿童专区。 NFSC和法治基金（ROLF）每天都有安排免费巴士，从乌克兰边境利沃夫（Lviv）前往波兰的克拉科夫（Krakow)，以帮助难民撤离。
-
-截止到3月13日，NFSC和法治基金（ROLF）已经免费提供超过250人次酒店食宿，为1016位难民提供了免费巴士撤离，Medyka救援站接待了上千名难民，并成为国际红十字会的中转站。
-
-NFSC和ROLF提供免费救援，以帮助那些受俄罗斯非法入侵影响的人员，这是消灭中国共产党，支持在被共产主义和专制政府统治的国家里争取自由的使命的一部分。因为全人类的战争和所有灾难都与中国共产党有关，只有消灭中国共产党才能解决人类战争和所有苦难的根源。
-
-## 请有需要的华人同胞、乌克兰、美国及其他国家人士，可联系24小时服务热线
-
-
-
-### 24小时客服热线（电话/短信）：
-
-- +1 720-657-6776
-- +1 719-224-4232
-- +48 508-532-712
-- +48 508-531-518
-
-
-### 其他联系方式：
-
-- Telegram： t.me/UkraineRescue
-- GETTR： @UkraineRescue
-- 邮箱： [\[email protected\]](/cdn-cgi/l/email-protection)
-    - 或 [\[email protected\]](/cdn-cgi/l/email-protection)
-
-
-
-
-编辑/上传 – 大废墙
-
-信息来源：英国卫报，喜马拉雅大使馆服务器
-
-
-* * *
-
-[Gettr: 77国际功成农场 Himalaya G|Engineers](https://gettr.com/user/himalaya77tech)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/banner_gnews00.002.png)
-
+[9 news](https://www.9news.com.au/world/covid-19-vaccine-fourth-dose-needed-pfizer-ceo-warns/56d723d0-8fcd-49f9-ade1-69f36e442046)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

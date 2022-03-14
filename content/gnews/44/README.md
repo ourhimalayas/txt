@@ -2,37 +2,20 @@
 ---
 
 
-## 新中国联邦一定能够消灭中共
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159949/)
+## 樱花时政┃因中共威胁 日韩澳武器进口激增
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2160125/)
 
-作者：纽约磐石农场  在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月12日，郭文贵先生发表盖特视频表示，他提前预警的中共将在中东地区挑动事端，已经得到了充分验证。中共唯恐世界不乱，妄图搞弱、搞乱、搞死美国之心路人皆知。在两到三周之后，世界将有大事发生。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-22.jpg)[图片来源](https://www.bbc.com/news/world-asia-china-60492134#:~:text=ADVERTISEMENT-,The%20Ukraine%20crisis%20is%20a%20major%20challenge%20for%20China,-By%20Stephen%20McDonell)
+3月14日，瑞典斯德哥尔摩国际和平研究所（SIPRI）发布了一份报告，比较了2017-21年和之前五年的全球武器交易量。报告解释说，日本、韩国和澳大利亚的情况急剧增加，”越来越多的国家将中共视为一种威胁”。 日本的进口量是世界上第十位，增长了152%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-3.jpeg)
+全球总体进出口贸易下降了4.6%。 前十大进口国中有六个在亚洲-大洋洲地区，包括澳大利亚和中国以及日本和韩国，SIPRI指出，该地区在过去30年里一直保持着最高的进口水平。
 
-在乌克兰救援前线，新中国联邦义工们所展示的形象，是无法用金钱和设计来完成的，而是战友们人生观、世界观、价值观和内心信仰的体现。近日，全世界都在谈论新中国联邦，日本的朋友也高度赞扬新中国联邦给亚洲人争光。
+信息源：[日韓豪の武器輸入、急増　中国の脅威背景、国際平和研](https://news.yahoo.co.jp/articles/f6ec663f204f4f25362b0bb3dd262e1eb2b8ab08#:~:text=%E6)
 
-郭先生说，战友们以出色表现向全世界证明了，新中国联邦人是最伟大、最纯洁和以正道主义为信仰的新人类，最终一定能够消灭中共。
-
-参考链接：[https://www.gettr.com/post/pzpn0hf544](https://www.gettr.com/post/pzpn0hf544)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
-
-总编：文真
-编辑：百香果
-审核：文真
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
