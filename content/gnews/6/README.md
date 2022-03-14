@@ -2,45 +2,36 @@
 ---
 
 
-## 泽连斯基用很少钱把乌克兰发动起来用黑科技瓦解俄罗斯
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2161359/)
+## 樱花时政┃感染人数飙升至 2 年高点 中共封锁深圳1750 万人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2161407/)
 
-Youtube视频链接：[https://youtu.be/XQqM0Rx7mM0](https://youtu.be/XQqM0Rx7mM0)
+撰稿：东京樱花团/Calvin
 
-Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/感染人数飙升至-2-年高点-中共封锁深圳1750-万人.png)
 
-**郭文贵先生：**那么他（乌克兰的战友）其中就谈到说：“七哥，乌克兰这次信息战打的是真好，社交媒体是用的真好，而且他们特别厉害。”
+由于新冠病毒数量不断上升，迫使中国实施新一轮封锁，中国正在封锁被称为中国硅谷的深圳，重要的机电和其他高科技组件的供应即将再次停止。
 
-你知道俄罗斯人用什么社交媒体？主要是Telegram，还有Facebook，他们推特很少的。然后这个俄罗斯人接受的信息，包括LAM他们也用，现在用的也不少。那么整个泽连斯基这个哥们儿聪明在哪儿了？花了很少的钱把乌克兰的优势用起来了，所有跟乌克兰有关系的工程师们发动起来，你们要利用一切黑科技让俄罗斯人内部瓦解，让全世界看到我们。
+据彭博社报道，周日，深圳将其1750万名居民置于封锁状态，封锁期应持续到3月20日。它已成为中国股票和债券市场的最新威胁，全国病例数量翻了一番，达到3200例。北京的“新冠病毒清零”政策到所为实。
 
-这个时候大家就发现就是人心它太重要了。你打人家家去，你把人家家都毁掉的时候，乌克兰那工程师他在哪的人他也得上，是吧。就像我们在喜联储的这些乌克兰人说：“你们一定要给我们特权，我们在这时候我们要以我们国家民族利益为重。”不上班你也得怎么着怎么着。人家喜联储做出决定：“你不来上班，工资照发。”你这是人家保家卫国呢，是不是，这时候你肯定这么做呀。
+深圳新的大规模封锁是对该市商业区早期限制的扩展。尽管全国各地的病例正在攀升，但据报道，感染率的激增与邻近的城市香港有关，那里目前约有30万人被隔离或居家隔离，每天记录的新感染率约为1万人。
 
-编辑整理：Jacques；
+到目前为止，当局在很大程度上抵制了封锁和大规模测试等策略，并主要依靠有针对性的应对措施，结果看到奥密克戎继续传播。在深圳，他们将对居民进行三轮大规模测试。但从更广泛上看，中共当局似乎手头的问题要大得多。
 
-字幕文件制作：小满；
+在短短几周的时间里，中国正在努力应对两年来最大的新冠病毒疫情，报告病例激增的新浪潮，该国通过允许公众快速抗原检测来调整其新冠病毒清零政策。
 
-视频制作及上传：Cindy；
+据国家卫健委和SCMP称，在新记录的病例数连续两天超过1000例后，周日新的本地传播病例激增至3200多例，这是自2020年以来由病毒感染激增最嚴重的一次。
 
-G-News发布：小满；
+到目前为止，在疫情爆发期间，约有16个省报告了新的冠状病毒感染病例，北京、天津、上海和重庆这四个特大城市也是如此。NHC表示，最令人不安的迹象之一是：当地症状病例增加了两倍多，从一天前的476例增加到1807例。无症状感染从前一天的1048例小幅达到1315例。吉林是中国东北部最近爆发疫情中心的城市，自周六以来一直被部分封锁，而与朝鲜接壤的近70万个城市地区延吉的居民周日也被限制在家中。与此同时，在东海岸，上海的金融中心和山东省的港口城市青岛也在抗击严重的疫情爆发。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+在全国各地，地方当局正在努力建造临时医院，因为他们希望每天提供数千张床位。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+信息来源：
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[China Locks Down 17.5 Million In Shenzhen As Daily COVID Cases Soar To 2-Year High](https://www.zerohedge.com/covid-19/china-locks-down-175-million-shenzhen-daily-covid-cases-double)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/喜马拉雅的微尘 
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

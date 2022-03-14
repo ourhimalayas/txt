@@ -2,12 +2,21 @@
 ---
 
 
-## 【乌克兰救援】03/13/22 新中国联邦乌克兰救援行动的义工获得韩国广播公司记者的赞许。我们是难民援救中心唯一的亚洲人面孔。作为新中国联邦人非常自豪
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2161211/)
+## 视频|喜马拉雅币一周分析与总结（3月7日-3月13日）
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2161275/)
 
-【乌克兰救援】03/13/22  新中国联邦乌克兰救援行动的义工获得韩国广播公司记者的赞许。我们是难民援救中心唯一的亚洲人面孔。作为新中国联邦人非常自豪
+制作：香草山视频部
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+
+发稿：文敬
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
