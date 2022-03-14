@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 2:20 AM (UTC)`
+
+3/13/2022 Miles Guo: There is a “list of four CCP cadres to be killed” inside of the CCP, who is on it? Miles Guo and the Whistleblowers’ Movement have laid out all kinds of traps for the CCP in the past decades, and the CCP will be finished in a road of no return in the Middle East, Europe, and its “Belt and Road Initiative”!<br/><br/>3/13/2022 文贵直播：共产党内部的“四杀令”是什么？郭先生和爆料革命在过去这些年给共产党挖好了各种坑，中共会在中东、欧洲和“一带一路”走上不归的死亡之路！<br/>
+![img](https://media.gettr.com/group7/getter/2022/03/14/02/965dbe26-63cb-dd6f-2e41-6d2b3c0e2af8/out.jpg)
+
+---
+
 `@miles 3/14/2022 1:59 AM (UTC)`
 
 2022.03.13 农场联盟工作汇报
@@ -147,13 +154,6 @@ Lydia: I just want to return to Kyiv, I love Ukraine very much. <br/><br/>蕾迪
 
 【Ukraine Rescue】03/11/2022 Fellow Fighter Nicole discusses potential future cooperation with an American NGO Humanitarian Refugee Aid within Ukraine rescue operation<br/><br/>【乌克兰救援】03/11/2022 妮可战友和美国非政府组织人道主义难民救助组织的成员讨论双方未来在乌克兰救援行动中可能的合作<br/>
 ![img](https://media.gettr.com/group21/getter/2022/03/13/15/0566810c-c0e4-239f-2d8d-54e5b4fc67c7/out.jpg)
-
----
-
-`@miles 3/13/2022 3:14 PM (UTC)`
-
-我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>Ми-нові китайці, які знищили злу Комуністичну партію Китаю<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є основною причиною лих у всьому світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
-![img](https://media.gettr.com/group23/origin/2022/03/13/15/3e6c0b98-dc67-c3e8-fcc1-b6fb1f1ab890/out.jpg)
 
 ---
 

@@ -2,22 +2,29 @@
 ---
 
 
-## 职业自行车手纷纷退出比赛，比利时队医说：“免疫力被削弱”
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2158915/)
+## 瑞士等多家国际银行机构对俄罗斯的贷款将化为乌有
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2158920/)
 
-#### 编译                          意大利达芬奇农场                           小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-12-alle-22.16.43.png)图片来源：eventiavversinews.it
-最近，许多自行车选手都退出了著名的“迪雷诺-亚得里亚”赛段的比赛， 该比赛于3月7日星期一开始， 3月13日结束，“巴黎-尼斯”赛段也于3月13日星期日结束。原定的巴黎-尼斯是总共8个赛段中的第六赛段， 最近几天出现了一系列令人难以置信的现象，参赛选手纷纷退出比赛。
+翻译：nstar
+校对：Shifter
+![](https://assets.gnews.org/wp-content/uploads/2022/03/17310140-v3-20220311130044876.jpg)图片来源：Blick
+据瑞士“Blick” 经济报报道, 俄罗斯正与世界经济隔绝。来自各行各业的300家公司已经或已经宣布撤出俄罗斯。外国银行越来越多地撤出在俄罗斯的业务。与高盛和摩根大通一起，两家主要银行也决定放弃在俄罗斯的业务，会有更多机构跟进。据 CNN Business 报道，这些撤资将花费数百亿美元。
 
-法国比赛不得不注意到超过40名车手的放弃，几乎是上周日开始的小组的三分之一， 这是一个非常高且不寻常的数字。在过去的几天里， 这种趋势再次加剧。其中六人没有出现在考特松，包括贾斯珀•菲利普森（Jasper Philipsen）和卢克•德布里奇(Luke Durbridge)，另外四名选手在比赛的早期赛段退出了比赛。
+出于这个原因，评级机构预计俄罗斯借款人将无法再向国际银行偿还债务。据总部位于巴塞尔的国际清算银行(BIS) 称，全球总计 1210 亿美元的贷款受到影响。
 
-几乎所有退出比赛的原因是由于典型的季节性疾病、支气管炎和流感。即使是在迪雷诺-亚得里亚赛段的比赛，也出现了类似的情况。其中还涉及许多大牌人物如彼得•萨甘（PeterSagan)和理查德•卡拉帕玆（Richard Carapaz）一些赛手和医生将此归咎于新冠疫情的大流行和长时间使用口罩。“早晚都很凉，赛手很瘦，也没有穿得很厚。这种情况下， 感染是不可避免的。
+据国际清算银行称，意大利银行将不得不注销欧洲的大部分资金——约 253 亿瑞士法郎。紧随其后的是法国（252 亿）和奥地利（175 亿）。
 
-在参赛选手中普遍存在对这种状况的担忧，有选手引用医生的观点——认为由于两年的新冠大流行，造成人们长时间地佩戴口罩，导致免疫力某种程度地削弱。
+正如评级机构估计的那样，即使是瑞士银行也可能无法从俄罗斯收回贷款。总共相当于 34 亿法郎的资金可能会化为乌有。根据周四发布的年度报告，瑞士主要银行瑞士信贷截至年底在俄罗斯的信贷额为 8.48 亿瑞士法郎。
 
-原文链接：[https://www.eventiavversinews.it/boom-di-ritiri-tra-i-ciclisti-professionisti-il-medico-del-team-belga-il-sistema-immunitario-e-indebolito/](https://www.eventiavversinews.it/boom-di-ritiri-tra-i-ciclisti-professionisti-il-medico-del-team-belga-il-sistema-immunitario-e-indebolito/)
+集团首席执行官托马斯·戈特斯坦 (Thomas Gottstein)认为俄罗斯的风险是可控的：“我们已经审查了这些职位，并认为该银行对俄罗斯的承诺目前得到了很好的管理，我们有适当的系统来监控相关的应对措施风险。” 该银行在莫斯科设有分支机构，拥有 125 名员工。CS估计俄罗斯子公司的净资产为1.95亿瑞士法郎。
 
-编辑、上传： Xiao  baige
+到 2021 年底，交易对手瑞银对与俄罗斯有联系的客户也面临约 6.34 亿瑞士法郎的风险。然而，最近几周该职位也有所缩减。因为存在国际银行将不得不注销其资金的风险。
+
+专家估计，俄罗斯很快将无法偿还银行的贷款。全球总计 1210 亿美元的贷款受到影响。
+
+来源链接：[Swiss loans to Russia vanish into thin air](https://www.blick.ch/wirtschaft/ueber-3-milliarden-weg-schweizer-kredite-an-russland-loesen-sich-in-luft-auf-id17310281.html)
+
+
 
  
 

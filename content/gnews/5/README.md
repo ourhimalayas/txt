@@ -2,17 +2,26 @@
 ---
 
 
-## 单伟健真面目！中共间谍和美国养老金盗贼
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2159454/)
+## 新冠疫苗受害者控诉CDC对疫苗副作用报告不作为
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2159504/)
 
-中共间谍单伟健，渗透美国盗取科技成果，骗取美国人民的投资为中共输血！单伟健公司，是插在美国人民身上的吸血管！请认清单伟健中共间谍和美国养老金盗贼的真面目！
-视频制作：亲爱滴战友
-撰稿/发布：一叶知秋
+翻译：文载Jenny
+校对：枳实
+字幕：文驰
+编辑：Mttfly
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+一位新冠疫苗接种受害者在视频中向相关人员控诉，她因接种莫德纳疫苗而患心包炎、胃痉挛、体位直立性心动过速综合征、大脑病变等疾病。美国疾控中心（CDC）作为这种实验性疫苗试验程序的制定者，连续数月都没有协调处理该接种疫苗者的副作用报告。但另一方面，美国政府却在强制为民众接种新冠疫苗，对疫苗副作用不作为，这样正常吗？
+
+视频链接：[What’s being done to these people is disgraceful](https://twitter.com/hameggsnsam/status/1484057040549027849?s=21)
+
+发布：tianzhihuan
+
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

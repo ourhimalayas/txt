@@ -2,29 +2,28 @@
 ---
 
 
-## 上海疫情严峻，学校和小区实施封闭管理
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2159335/)
+## 大量健康的运动员接种疫苗后突然倒在比赛场上
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2159417/)
 
-作者:香草山教育部 vasavarti 文·明#5267
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-72.png)
-最近上海疫情日益严峻，上海市各个高校开始封闭管理。上海交通大学 5 天前就进入了闭环 管理，复旦大学也于 13 号进入封闭管理。所有线下课程改为线上，并且核酸检测常态化。 3 月 12 日起，上海市中小学全部调整为线上教学，幼儿园、托儿所停止幼儿入园，各类培 训机构和托育机构不得开展线下培训和托育服务。![page1image4688112](https://gnews.org/c34f1985-9e4e-4a83-a610-4ab0a17f37c1)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-14-上午9.08.28.png)
-![page3image4508928](https://gnews.org/61d371cc-7872-4ff5-b24e-0cbb4cdcd71a)![page3image4507888](https://gnews.org/1e645340-ed54-4e9a-9b12-1894678ca126)
+**素材提供：**熊猫乱滚
+**翻译：**Kevin
+**校对：**Lish
+**字幕：**文驰
+**编辑：**翼族
 
+现在可能在世界各地，有超过100个左右这样的运动员突然倒下。我们已经发布了相关视频，以便让人们知道疫苗的危害。正如我们之前所说，没有证据表明这些运动员的突然倒下和他们的新冠疫苗接种相关。
 
-```
-同时，很多小区也进入了封闭管理。
-```
+您可以在我们网站上找到这些从蒙太奇式的画面中摘取出来的视频。我们发现更多这样信息的时候，我们也正在寻找更多信息，如果他们没有接种疫苗的话，是否有其它理由或原因导致运动员们突然倒下？请问你自己一个问题，你记得什么时候看到或听到过这样的故事？我的意思是，以前也许一年只有一个，但现在有数百个这样的例子。这真的很令人难过，这表明蒙蔽人们的双眼让他们看不到真相是多么容易。
 
+*发布：翼族*
 
-![page5image4706160](https://gnews.org/867df358-282f-4ed3-9289-e2d53c626688)![page5image4706368](https://gnews.org/67e0d202-87f9-40a8-a988-1190b074ab00)![page5image4706576](https://gnews.org/ee5537b6-a6d2-47e8-a9cb-570c9ec33141)![page5image4706784](https://gnews.org/60d6c805-597f-429a-9917-2147aaa96a45)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-
-```
-超市的物资也出现了一定程度的抢购。网上购菜也有一定程度的紧张。
-```
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-14-上午9.16.31.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-14-上午9.16.55.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
