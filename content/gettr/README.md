@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 12:32 AM (UTC)`
+
+2022.03.13 晚 《新中国联邦新闻》新中国联邦只为救人而来； 法新社战地记者高度赞扬法治基金救助中心
+![img](https://media.gettr.com/group50/origin/2022/03/14/00/da0c301f-afb5-1b6c-a2e8-dd637aedf35c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/13/2022 11:58 PM (UTC)`
 
 3/13/2022 Miles Guo: The CCP will for sure invade Taiwan. As the CCP ignites the fuse of WWIII, the political infightings of the CCP will be in full swing. Many CCP cadres that you are familiar with will end up more miserable than Ceausescu. This year, the year of Ren Yin and the year of the water tiger, is indeed going to be the year of major changes.<br/><br/>3/13/2022 文贵直播：中共一定会打台湾，当它点燃了世界第三次大战火药桶的同时，中共内部政治大战全面开始，大家耳熟能详的很多人会比齐奥塞斯库还惨，今年是真正的寅虎大变之年！<br/>
@@ -147,13 +154,6 @@ The Medyka port is a land port on the border between Poland and Ukraine. A large
 
 2022年3月13日 文贵大直播：如果西方切断中共国的SWIFT、禁止中共国参与国际外汇交易，查封盗国贼家族在海外的资产，会涉及多大规模在中共国会发生什么？爆料革命警告中东事端；中共在俄乌战争之后的下一步动作 在中东会发生什么；刘彦平 傅政华 孙立军 吴征杨澜 王岐山 孟建柱 胡舒立 单伟健 张明鹏（大连西区法院）刘强（辽宁副省长）将会是什么下场
 ![img](https://media.gettr.com/group5/origin/2022/03/13/12/ea1ea88f-8fe4-237b-b91e-338a9c6c8724/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/13/2022 12:41 PM (UTC)`
-
-我们是消灭邪恶中国共产党的新中国人<br/>中国共产党是全世界灾难的根源<br/>只有消灭中国共产党才能拯救全人类<br/><br/>We are the NEW CHINESE who are taking down the EVIL Chinese Communist Party.<br/>The Chinese Communist Party is the root cause of all disasters globally. <br/>Taking down the Chinese Communist Party is the only way to save humanity!<br/><br/>Ми-нові китайці, які знищили злу Комуністичну партію Китаю.<br/>Комуністична партія Китаю є першопричиною катастроф у світі. <br/>Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group13/getter/2022/03/13/12/d9b83647-2de7-57a2-33d7-30be438a7bb0/out.jpg)
 
 ---
 
