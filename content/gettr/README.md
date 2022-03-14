@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 12:34 PM (UTC)`
+
+【UKRAINEHELP-005】NFSC与法治基金国际人道救援行动公告和最新救援信息<br/><br/>https://gnews.org/zh-hans/2115789/<br/><br/><br/>【UKRAINEHELP-005】Announcement of New Federal State of China & Rule of Law Foundation on Emergency Rescue of Ukraine<br/><br/>https://gnews.org/2160452/<br/><br/><br/>【UKRAINEHELP-005】Оголошення про створення нової Федеральної Держави Китаю та Фонду верховенства права з надзвичайних ситуацій порятунку України<br/><br/>https://gnews.org/2160453/<br/>
+![img](https://media.gettr.com/group16/getter/2022/03/14/12/84799a75-620b-28ef-69d7-aa9c733b7614/974adb4cef6ac2baf6736c1d0e7d9be9.jpg)
+
+---
+
 `@miles 3/14/2022 12:18 PM (UTC)`
 
 【Ukraine Rescue】03/12/22  NFSC Ukraine Rescue Operation volunteer Nicole introduces to the KBS reporters that we are the freedom loving Chinese people, anti-communist, and committed to take down the CCP.<br/><br/>【乌克兰救援】03/12/22  新中国联邦乌克兰救援行动的义工妮可向韩国广播公司记者介绍：我们热爱自由、反对共产主义，并致力于推翻中共。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -149,13 +156,6 @@ Miles Guo revealed why he thinks NFSC’s freshly brewed coffee is so important 
 
 3/13/2022 Miles Guo: We must show to the world at the rescue site: 1) We are the Chinese people taking down the CCP; 2) the CCP is the root cause of all the wars and problems around the world; 3) taking down the CCP is the fundamental solution to all the wars and sufferings of humanity; and 4) we stand with the Ukrainian people.<br/><br/>3/13/2022 文贵直播：我们一定要在救援现场向世界展示：1) 我们是消灭中国共产党的中国人；2) 中国共产党是全人类所有的战争和问题的根源；3) 消灭中国共产党是解决人类战争和所有苦难的根本手段; 4) 我们与乌克兰人民站在一起<br/>
 ![img](https://media.gettr.com/group18/getter/2022/03/13/22/0fc12988-9153-6dfa-3d10-d6091a47a1b8/out.jpg)
-
----
-
-`@miles 3/13/2022 10:38 PM (UTC)`
-
-【Ukraine Rescue】03/12/2022 In Medyka, Poland. Piano Music on the Front Line. The pianist came to the gate of our base camp again to performance. There are war, gunpowder and refugees here.  And the rescue team of NFSC is working here. The music helps soothe people's hearts and get through the tough times!  NFSC rescue team are the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity! <br/>【乌克兰救援】2022年3月12日，波兰梅迪卡，战地钢琴曲。今天这位钢琴家又来到我们大本营演奏音乐，这里有战争、炮火和难民，新中国联邦的救援团队正在这里工作，音乐能帮助抚慰人们的心灵、度过困难时期！新中国联邦救援团队是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人
-![img](https://media.gettr.com/group13/origin/2022/03/13/22/bbc0a350-8bd4-dc45-9342-23eff0c192ac/out.jpg)
 
 ---
 

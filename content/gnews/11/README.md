@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥的私人飞机内饰设计
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2162206/)
+## 2022疫苗灾难才是真正的黑暗
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2162247/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
