@@ -2,45 +2,41 @@
 ---
 
 
-## 有声|新中国联邦纽约救援团队已赴前线
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2159780/)
+## 前线快报&#8212;-3月13日， 经过12小时的舟车劳顿，满载147人的三辆大巴今凌晨到达波兰
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2159800/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月13日 俄乌战争第18天，波兰—克拉科夫Kraków
+![](https://assets.gnews.org/wp-content/uploads/2022/03/031202.jpg)[盖特视频链接](https://www.gettr.com/post/pzv0r4bb4d)
+昨天从利沃夫出发顺利登上救援大巴的妇女儿童，经过近12小时的舟车劳顿，今天凌晨已安全撤离至波兰👏👏👏车上有多名婴儿，最小的才只有3天！这个战火宝宝在铁血大卫的怀里睡得香甜，万佛万神保佑，这些小宝贝们都能在和平安全的环境中成长🙏🙏🙏
+
+前线救援队寒风中迎接3辆载有147人的救援大巴，并贴心地准备了热咖啡和食物，帮脱困的妈妈孩子们拿行李，引领她们去火车站。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1488.png)[盖特视频链接](https://www.gettr.com/post/pzvdfhdb3c)
+新中国联邦、法治基金、法治社会与国际救援组织合作，无偿帮助华人同胞、乌克兰同胞、美国同胞以及全球同胞撤离乌克兰战区。根据求助者的护照及签证情况，撤离地点为美国和其他安全中转国。请有需要的全球同胞与新中国联邦24小时紧急救援客服联系。
+
+🆘24小时救援客服热线（电话/短信）：
+
++1 720-657-6776或 +1 719-224-4232 或+48 508-532-712 或 +48 508-531-518
+
+🔵Telegram： t.me/UkraineRescue
+
+🔵邮箱： [\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/grafik-14.png)
+***编辑：【英国伦敦喜庄园编辑部】***
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/jy-2-768x432-1.jpg)
-美东时间3月4日晚，新中国联邦奔赴前线波兰参与救援的战友在纽约完成集结，大约晚上9点乘坐飞机飞往波兰，为前线带去必要的物资救济以及大量药品，如伊维菌素、青蒿素、地塞米松、维生素C、D、阿奇霉素、口罩、手套等预防中共病毒的必需品。
+* * *
 
-据悉，新中国联邦目前到达前线的队伍有英喜团队、纽伦堡团队，除去补给方面的救援，前线现在开始租用大巴到乌克兰去救人，截止到直播时间，已经救出一车被困人员。
-
-此次纽约前线共有9位战友和1位常驻美国的乌克兰人。Nicole战友因雇主不允许自己去参与救援，毅然辞掉了工作。战友护送救援团队到达机场，此次救援新中国联邦乘坐的都是商务舱，在登机口还遇到了一位同去参与救援的美国人，他是一家上市公司的CEO，和战友Nicole的雇主不同的是，他鼓励自己的雇员去参与救援，他自己也身先士卒奔赴救援前线。
-
-新中国联邦希望困在乌克兰战区的中国同胞不要再听信中共大使馆的骗人话，请不要在机场等一艘船。能出来的尽快出来，乌克兰战区的情况时时刻刻都在变化，请一定不要再错过救援机会。
-
-目前纽约救援团队还在集结，后面还陆续会有团队奔赴前线参与救援。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-文字版原文：[新中国联邦纽约救援团队已赴前线](https://gnews.org/zh-hans/2127699/)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

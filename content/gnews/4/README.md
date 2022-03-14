@@ -2,26 +2,26 @@
 ---
 
 
-## 樱花时政┃切尔诺贝利的电力传输已恢复
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2160198/)
+## 视频|美国驻伊拉克领事馆附近发生导弹爆炸
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2160328/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-10.jpg)[图片来源](https://news.yahoo.co.jp/articles/7fd9c966ce0084448600a2aaad17b4e452da4de5/images/000)
-据报道9日停电的切尔诺贝利核电站已由乌克兰工程师修复。
+制作：香草山视频部
 
-据乌克兰核电站运营公司称，13日，乌克兰方面的工程师恢复了向切尔诺贝利核电站的输电，废旧核燃料冷却设施也从应急电源恢复到正常模式。
+据国外媒体报道，当地时间3月13日凌晨，伊朗阿塞拜疆省的哈萨巴德军事基地发射6枚导弹，在美国驻伊拉克埃尔比勒领事馆附近爆炸。
 
-这家运营公司说：“工程师们已经消除了一场危及他们的健康和生命并威胁到整个欧洲的灾难的可能性。”
+报道称，袭击中传出5次爆炸声。埃尔比勒省省长奥梅德.科什诺表示，该地区有多枚导弹坠落。
 
-但核电站本身仍处于俄军控制之下，乌方继续要求军队撤离，并在核电站半径30公里范围内解除武装。
+目前暂无人员伤亡报道。
 
-信息来源：
+发稿：谐趣园
 
-[チェルノブイリ原発の送電が復旧](https://news.yahoo.co.jp/articles/b9b024a7321baf2017c4c0ddda763e0554fbb84a)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

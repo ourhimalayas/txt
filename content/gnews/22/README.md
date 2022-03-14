@@ -2,89 +2,45 @@
 ---
 
 
-## 拜登：“北约与俄罗斯之间的直接对抗是第三次世界大战，我们必须努力防止这种情况”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2159889/)
+## 郭文贵直播摘要和音频 2022.03.13
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2160061/)
 
-Joe Biden (U.S. President)
-乔·拜登（美国总统）
+摘要撰稿人：文俊
 
-We’re gonna continue to stand together with our allies in Europe
-我们将继续与我们在欧洲的盟友站在一起
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/03/a9738e3234ffc4e2208e7348cefd29b9.jpg)
+### 视频链接：
 
-and send an unmistakable message
-并传递明白无误的信息
+[https://www.gettr.com/post/pzrn4eb349](https://www.gettr.com/post/pzrn4eb349)
 
-We’ll defend every single inch of NATO territory
-我们将保卫每一寸北约领土
+### 音频链接：
 
-of the full might of the united and galvanized NATO
-团结和激励的北约的全部力量
+### 摘要：
 
-We will not fight a war against Russia in Ukraine
-我们不会在乌克兰与俄罗斯开战
+- 宣传统一口径：我们是消灭邪恶中国共产党的新中国人
+- 中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类
+- SWIFT就像是小区通行证，中共偷偷给俄罗斯小区通行证，违犯了SWIFT正义支付国际法则，SWIFT一定会把中共踢出
+- SWIFT制裁后，中共盗国贼海外资产会被没收
+- SWIFT制裁的都是独裁国家，SWIFT从来没有惩罚过一个文明国家
+- SWIFT不是美国一个国家说了算，SWIFT惩罚是世界文明国家一致行动的结果
+- SWIFT制裁后，中共国只有几个流氓独裁的家，没有国—— 没有合法性
+- 共产党一定让伊朗叙利亚也门北朝鲜发动区域战争。原因是习和普京玩的围魏救赵
+- 中共联合邪恶轴心国（俄罗斯伊朗北朝鲜叙利亚伊拉克沙特），发动区域战争，砸烂世界能源供给，让西方妥协，放宽对俄罗斯的制裁，让中共打台湾—— 围魏救赵
+- 接下来1-2周，普京会大肆的攻击基辅
+- 2022年最黑暗的就是：世界可能会局部的核战，区域战争，但是最可怕的就是疫苗灾难
+- 刘彦平公安至纪委，以王岐山为曾家，而皆江家也
+- 中共内斗加剧：江家曾家要干掉许其亮 丁薛祥，20大前，无数的共产党高官会倒下来
+- 俄罗斯不会对乌克兰使用核武器
+- 新中国联邦人，投资G系列，灭共的新中国联邦人，不受西方经济制裁
+- 星期二直播
+- 2-3周世界剧变
 
-direct confrontation between NATO and Russia is World War III
-北约与俄罗斯的直接对抗将成为第三次世界大战
 
-Something we must strive to prevent
-这是我们必须努力防止的事情
 
-But we already know Putin war against Ukraine will never be a victory
-但我们已经知道普京对乌克兰的战争永远不会胜利
 
-He hoped to dominate Ukraine without a fight, he failed
-他希望轻松战胜乌克兰，他失败了
 
-he hoped fracture European resolve, he failed
-他希望破坏欧洲的决心，他失败了
 
-he hoped to weaken the Transatlantic Alliance, he failed
-他希望削弱了跨大西洋联盟，他失败了
-
-He hoped to split apart American democracies in terms of our positions, he failed
-他希望在我们的立场上分裂美国民主国家，他失败了
-
-The American people united, the world is united
-美国人民是团结的，世界是团结的
-
-And we stand with the people of Ukraine
-我们与乌克兰人民站在一起
-
-We will not let autocrats and would be emperors dictate the direction of the world
-我们不会让独裁者和皇帝左右世界的方向
-
-Democracies are rising to meet this moment
-民主国家正在崛起迎接这一刻
-
-Rally in the world to the side of peace, the side of security
-团结在世界和平的一边，安全的一边
-
-we’re showing our strength and we will not falter
-我们正在展示我们的力量，我们不会动摇
-
-God bless all of you, God bless Ukraine and God bless our troops
-上帝保佑你们所有人，上帝保佑乌克兰，上帝保佑我们的军队
-
-原视频链接: [https://twitter.com/newsmax/status/1502318377737539584?s=24](https://twitter.com/newsmax/status/1502318377737539584?s=24)
-
-Date:03/12/2022
-原视频标题:BIDEN: “Direct confrontation between NATO and Russia is World War III, something we must strive to prevent”
-拜登：“北约与俄罗斯之间的直接对抗是第三次世界大战，我们必须努力防止这种情况”
-原视频日期：2022/03/12
-原视频链接https://twitter.com/newsmax/status/1502318377737539584?s=24
-任务编号：KE450（3989）
-视频时间段 : 0:00-1:15
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场-庚子
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑发布：闪电训练
 
  
 
