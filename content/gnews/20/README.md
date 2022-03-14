@@ -2,26 +2,40 @@
 ---
 
 
-## 新中国联邦的豪华帐篷成了救援基地的国际会议厅
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2163784/)
+## 独裁者萨达姆之死
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2163797/)
 
-**作者、编辑：Candy
-图片：Ana Italy**
+作者：纽约香草山农场写作组 静言
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+伊拉克大体分为三股力量：萨达姆的逊尼派，萨德尔的什叶派，以及库尔德人。虽然伊拉克什叶派人口较多，但逊尼派掌握国家大权。伊拉克及整个中东周边等国都是逊尼派掌权。逊尼派自认为是正统派，什叶派是异端。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-15.jpg)
+在伊拉克近代时期，什叶派非常不满意逊尼派长期执政，不断造反起义，在同属什叶派的伊朗支持下，反对伊拉克逊尼派政府。独裁者萨达姆1979年上台以后，对什叶派的反抗毫不手软，对其进行肉体消灭。1991年和1999年，萨达姆政权两次残酷镇压什叶派暴动，屠杀了3万多什叶派，还对民众直接使用化学武器。
 
-波兰当地时间3月14日星期一，波兰梅迪卡(Mydyka,Poland )边境的组织方及各个救援组织的负责人，在我们新中国联邦搭建的豪华帐篷里开会。
-![Image](https://media.discordapp.net/attachments/950448401529577502/952921877691641906/IMAGE_2022-03-14_093103.jpg?width=541&amp;height=406)![Image](https://media.discordapp.net/attachments/950448401529577502/952921877960065074/IMAGE_2022-03-14_093109.jpg?width=541&amp;height=406)![Image](https://media.discordapp.net/attachments/950448401529577502/952921878182391838/IMAGE_2022-03-14_093112.jpg?width=541&amp;height=406)
-我们新中国联邦和法治基金共建的豪华大帐篷，是在波兰梅迪卡国际救援中心营地唯一的一个最大、最舒适的帐篷。它有200多平米，24 小时灯火通明，桌椅板凳齐全，暖炉供应暖气，食物充足丰富，儿童娱乐角，更有倍受追捧、闻名战地的现磨咖啡，战友们热情到位的服务……不但在日夜不停地接待从乌克兰战区转移出来的难民，还能为营地的各个救援组织提供召开国际会议的一个场所。
+萨达姆生活极度奢侈，拥有二十多个行宫。他的两个儿子乌代和库赛，更是骄奢淫逸，无恶不作，疯狂挥霍，搞得伊拉克是乌烟瘴气。正是萨达姆的独裁暴政和家族式贪腐之风使得伊拉克走向灭亡。
 
-正像郭文贵先生一贯要求的：我们不做最好，但做唯一！自俄乌开战以来的20天的时间里，战斗在梅迪卡营地的新中国联邦人，用自己的实际行动向世人展示了我们的“唯一”，在各个方面的“唯一”。感谢你们！
+随着自己总统地位的稳固和对权利欲望的飙升，萨达姆企图进一步统一阿拉伯世界，摆脱美国，因此在中东地区发起了一系列侵略行动。
 
-***发布：Candy***
+2003年，萨达姆被美俘虏后政权垮台，逊尼派不甘心失败，形成反美实力，出现了诸如伊斯兰国这种极端实力。为了对付伊斯兰国和逊尼派极端分子，美国借助对萨达姆极为痛恨的什叶派和库尔德人，选择在2006年12月30日宰牲节当天，把萨达姆绞死。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+曾目睹行刑过程的官员说，六十九岁的萨达姆，被黑布包住脖子，套上粗麻绳，被引导走向绞刑台。曾遭其迫害的什叶派欣喜雀跃，纷纷上街手舞足蹈并呜枪庆祝；伊拉克官员和行刑人员其后围着尸体手舞足蹈。行刑地点是在巴格达北区萨达姆时代军事情报总部，极具象征价值，因为那里曾是萨达姆政权下的行刑中心之一。
 
+参考链接：
+1. [当初为什么要杀死萨达姆？](https://wukong.toutiao.com/question/6626322711482204419/)
+2. [萨达姆伏法 临死不改桀骜不驯本性](https://www.epochtimes.com/gb/6/12/31/n1574266.htm)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+
+总编/编辑：文真
+审核：Jack Li文阳
+校正/发稿：玫瑰圓
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
