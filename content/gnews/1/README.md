@@ -2,38 +2,29 @@
 ---
 
 
-## 美国警告：中国若帮助俄罗斯逃避战争的制裁会“面临后果”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2160460/)
+## 视频|YouTube封锁俄罗斯官媒频道 范围扩及全球
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2160505/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+制作：香草山视频部
 
-整理/编辑：围剿维尼熊
+3月12日国外媒体报道，在俄罗斯入侵乌克兰后，YouTube在欧洲地区封锁了俄罗斯国家资助媒体的相关频道。3月12日，Youtube再次宣布，将对俄罗斯国家资助媒体相关频道的封锁范围扩大到全球。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
+YouTube表示，根据公司禁止否定、缩减或淡化有充足证据的暴力事件的规定，将移除违反政策的俄罗斯入侵乌克兰相关内容，同时也封锁YouTube上受国家资助的俄罗斯媒体频道，范围扩及全球，立即生效。
 
+YouTube补充道，禁播的内容包括否认俄罗斯入侵乌克兰，或声称入侵是维和行动。但YouTube 拒绝具体说明在全球范围内哪些频道和多少频道被屏蔽，或者是否会恢复。
 
-根据德国之声中文网3月14日报道，美中两国因俄乌战争关系日益紧张，两国高官14日在罗马举行会谈。
+YouTube的母公司谷歌此前已禁止俄罗斯广告商在Google全球产业与网络刊登广告。
 
-美国国家安全顾问苏利文 (Jake Sullivan)周一 (3月14日)将在罗马与中共最高外交官杨洁篪会面。他警告，如果北京帮助莫斯科逃避对乌克兰战争的全面制裁，绝对会面临后果。
+俄罗斯3月12日宣布，限制民众登陆社交媒体Instragram，并对其母公司Meta提出刑事诉讼，起诉Meta准许用户发表反对俄罗斯入侵的言论。
 
-苏利文13日告诉CNN，中国在入侵发生之前就知道俄罗斯正在计划对乌克兰采取一些行动，尽管中国可能不了解计划的全部。
+俄罗斯官方媒体称，包括应用商店和其他社交媒体服务在内的分销商对俄罗斯施加的限制是不正当的审查
 
-苏利文说，现在华盛顿正在密切关注中国在多大程度上向俄罗斯提供经济或物质支持，如果发生这种情况，美国将施加后果。
+发稿：qiutian（邱甜）
 
-尽管中共只表示“这次会晤的重点是落实去年11月中美两国元首视频会晤达成的重要共识”。但美国的一位高级官员表示，乌克兰战争及其对地区和全球安全的影响是苏利文与杨洁篪会晤期间的一个重要议题。
-
-美国官员说，在罗马期间，苏利文还将与意大利总理德拉吉(Mario Draghi)的外交顾问马蒂奥洛 (Luigi Mattiolo)会面，继续协调全球对俄罗斯总统普京发动战争的回应。
-
-参考链接：[忧北京暗助莫斯科 美中高官罗马会谈](https://www.dw.com/zh/%E6%86%82%E5%8C%97%E4%BA%AC%E6%9A%97%E5%8A%A9%E8%8E%AB%E6%96%AF%E7%A7%91-%E7%BE%8E%E4%B8%AD%E9%AB%98%E5%AE%98%E7%BE%85%E9%A6%AC%E6%9C%83%E8%AB%87/a-61113814)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注
+[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 

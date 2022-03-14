@@ -2,29 +2,26 @@
 ---
 
 
-## 视频|泽连斯基披露两军死亡数字
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2160254/)
+## 伊朗称对袭击以色列在伊拉克的战略中心负责
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2160339/)
 
-制作：香草山视频部
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-156.jpg)
+图片来源： http://www.kzaobao.com/
 
-3月13日，国外媒体报道，俄罗斯总统泽连斯基前一天在莫斯科军队逼近首都基辅时表示，自俄罗斯入侵乌克兰以来，已有“约1300名”名乌克兰士兵丧生。
+零对冲网3月13日报道，伊朗伊斯兰革命卫队已经声称对以色列在伊拉克北部库尔德地区首府埃尔比勒的战略中心的导弹袭击表示负全责。
 
-泽连斯基是在媒体吹风会上披露的这一情况，这是基辅自战斗开始以来首次披露伤亡数字。
+半官方的太斯尼穆新闻机构，它与伊朗革命卫队关系密切，说有10个精密制导导弹从北部伊朗(城市不详)发射，报道说很可能造成许多伤亡，但没有提供详细情况。
 
-3月2日，俄罗斯曾表示俄方已损失近500名士兵，但此后一直没有更新数字。3月12日泽连斯基称，俄军已有12000人阵亡，但他表示，俄军如此巨大的伤亡并不让他开心。
+据美国务院秘书温迪·谢尔曼早些时候说，在这次袭击中没有造成伤亡，美领事馆是一个目标，并被击中。该袭击发生在伊朗发誓要对以色列导弹袭击叙利亚大马士革造成二名伊斯兰革命卫队成员死亡进行报复后几天。埃尔比勒省长说有多个导弹射向该地区，不清楚是美领馆还是机场。
 
-就在3月12日，俄罗斯军队加大了对基辅的压力，猛烈打击了乌克兰其他城市的平民区，基辅市长表示，基辅正在加强防御并储存食品和药品。
+上周五伊朗的核谈判突然停止，没有任何合约，该谈判的破裂引起人们对2015年所作的核协议努力可能变得无效而担忧。
 
-另外乌克兰外交部长称，南部港口城市马里乌波尔正面临“地球上最严重的人道主义灾难”，俄军的袭击已经造成1500多名平民死亡。
+如果伊朗确实攻击了美领事馆，那么这个谈判就结束了，毫无疑问，周一的油价将会是一个有趣的一天。
 
-发稿：谐趣园
+#### 新闻来源： [Iran Claims Responsibility For Attacking ‘Israeli Strategic Center’ In Iraq](https://www.zerohedge.com/geopolitical/us-consulate-iraq-hit-multiple-missiles-iran-launch-suspected)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+#  
 
  
 

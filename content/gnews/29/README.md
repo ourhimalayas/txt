@@ -2,41 +2,32 @@
 ---
 
 
-## 前线快报&#8212;-3月13日， 经过12小时的舟车劳顿，满载147人的三辆大巴今凌晨到达波兰
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2159800/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月13日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2159813/)
 
-3月13日 俄乌战争第18天，波兰—克拉科夫Kraków
-![](https://assets.gnews.org/wp-content/uploads/2022/03/031202.jpg)[盖特视频链接](https://www.gettr.com/post/pzv0r4bb4d)
-昨天从利沃夫出发顺利登上救援大巴的妇女儿童，经过近12小时的舟车劳顿，今天凌晨已安全撤离至波兰👏👏👏车上有多名婴儿，最小的才只有3天！这个战火宝宝在铁血大卫的怀里睡得香甜，万佛万神保佑，这些小宝贝们都能在和平安全的环境中成长🙏🙏🙏
+作者：香草山翻译部
 
-前线救援队寒风中迎接3辆载有147人的救援大巴，并贴心地准备了热咖啡和食物，帮脱困的妈妈孩子们拿行李，引领她们去火车站。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1488.png)[盖特视频链接](https://www.gettr.com/post/pzvdfhdb3c)
-新中国联邦、法治基金、法治社会与国际救援组织合作，无偿帮助华人同胞、乌克兰同胞、美国同胞以及全球同胞撤离乌克兰战区。根据求助者的护照及签证情况，撤离地点为美国和其他安全中转国。请有需要的全球同胞与新中国联邦24小时紧急救援客服联系。
-
-🆘24小时救援客服热线（电话/短信）：
-
-+1 720-657-6776或 +1 719-224-4232 或+48 508-532-712 或 +48 508-531-518
-
-🔵Telegram： t.me/UkraineRescue
-
-🔵邮箱： [\[email protected\]](/cdn-cgi/l/email-protection) 或 [\[email protected\]](/cdn-cgi/l/email-protection)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/grafik-14.png)
-***编辑：【英国伦敦喜庄园编辑部】***
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-5.jpg)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-10.png)
+校对：Stay文苑
 
-* * *
+编辑：Stay文苑
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+发稿：Stay文苑
 
+新闻：[https://gettr.com/post/pzv6ak776d](https://gettr.com/post/pzv6ak776d)
+访谈：[https://gettr.com/post/pzvj2iac82](https://gettr.com/post/pzvj2iac82)
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-14.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
