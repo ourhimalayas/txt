@@ -2,33 +2,48 @@
 ---
 
 
-## 大直播后记：中南坑的下场比齐奥塞斯库惨多了
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2162870/)
+## 泰国对疫苗受害者的赔偿制度让中共国粉红情以何堪?
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2163306/)
 
-整理：文晋、Lucy Liu
-编辑：Mttfly
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-01-下午3.16.57-27.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
+人比人得死，货比货得扔！不比不知道，一比吓一跳，如果看完泰国政府对疫苗受害者的赔偿，厉害国的老小粉红看了恐怕得立即跳楼！
 
-我可以告诉你，这个齐奥塞斯库在罗马尼亚发生那一幕，在中国一定是会发生的，而且比那个还会惨。那个只有齐奥塞斯库他家人。你知道到了一九八几年、九几年后，齐奥塞斯库的资产在欧洲，还在那儿弄不回去呢！罗马尼亚就弄不回去那钱，他们家人享受那财富呢。我在直播中讲过十几次。
+据泰国当地媒体[Asia News Network](https://www.phnompenhpost.com/international/thailand-pay-45m-over-vaccine-side-effects)报导，从2021年5月19日到今年3月8日，泰国国家卫生安全办公室(National Health Security Office，简称NHSO)已向12,714 名接种COVID-19疫苗后出现不良反应的人支付了约15.09亿泰铢（4565万美元）的经济赔偿。
 
-但是现在你发现美国对俄罗斯的制裁行动是在什么情况？17个小时就做出了决定，而且是美国和欧洲联合做出了决定。六几年和今天的2022年的人类文明的进步、互联网的进步、世界的进步，世界的决策什么都是快的，而且是全面的。过去的共产党认为制裁我能怎么着？我该吃吃该喝喝。用习太阳的话说：我一不输出贫穷，二不输出革命，我招你惹你了？你白人吃饱撑的，管我什么闲事儿，我家的奴隶，我说了算，你管什么管？
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CA32755B-1BC6-47C1-AAAB-6B16C62B644A.jpeg)
 
-现在不是这个世界了。现在全世界地球就是一家人。不是你家姑娘、你家儿子，你想怎么着就怎么着了。当齐奥塞斯库被医生喊着说：打倒齐奥塞斯库！到最后从一个国家英雄迅速两口子拉出去枪毙。但是钱追的慢，看家人死的也不多。
+NHSO报告称，从2021年5月19日到今年3月8日，共有15,933人提交了Covid-19疫苗副作用报告的投诉。在裁定副作用与疫苗接种无关后，有2,328起投诉被驳回。在被驳回的案件中，有875名申诉人对NHSO早先的决定提出上诉。另有891个案件正在等待审议。
 
-卡扎菲、萨达姆呢？萨达姆和卡扎菲的家人几乎是全部被歼灭。米洛舍维奇在南斯拉夫、在塞黑，几乎是在全球被追缴，不可能有任何生存的余地。齐奥塞斯库这个待遇对他们（中南坑）实在是太豪华了。中国发生的一幕，一定是在一秒钟内突然发生。你眼睛没明白过来呢，头还没转过来呢，无数人头落地。中南坑还有什么政治局委员、常委都得被撕成肉酱一样。答案是一定会发生的。但他们不会有那么好的待遇，就比这惨的多得多。而且在全世界所有他们的资产、儿女都会很惨，瞬间被查封，瞬间被拿掉。
+泰国国家卫生安全办公室 (NHSO) 负责这项财政补偿计划。
 
-资料来源：[2022年3月13日 文贵大直播：若西方对中共经济制裁，那将是多少钱什么情况；爆料革命警告中东事端；刘 傅 孙 吴 杨 王 孟 张 胡 单EST9:50-10:00](https://www.gettr.com/streaming/pzrn4eb349)
+根据该计划，如果发生死亡或永久性残疾，每个家庭将获得400,000泰铢（约合11,900美元）；那些失去肢体或患有影响其生计的残疾的人将获得240,000泰铢（约合7,178美元）；而支付给那些患有慢性病的人的赔偿金为100,000泰铢（2,990美元）。
 
-发布：星谕
+根据NHSO副秘书长Atthaporn Limpanyalert去年12月27日的解释，任何在接种疫苗后出现不良副作用的人都可以申请初始经济援助，而无需等待确认这些影响是由疫苗接种引起的。他表示，即使后来证明副作用不是由接种疫苗引起的，NHSO也不会要求索赔人退款。
 
-**更多资讯，请关注：**
-澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+泰国全国有13个小组每周开会审议这些经济援助申请，付款将在专家组批准索赔后的五天内支付。对于被拒绝的索赔，索赔人可以在30天内向NHSO秘书长提出上诉。
+
+泰国共有69,950,844人，截止到2022年3月13日，总共接种125,940,785剂中共病毒疫苗。
+
+根据中共国公布的数据，中共国共有1,444,216,102人，截止到2022年3月13日，总共接种319,323.6万剂次中共病毒疫苗。
+
+泰国2021年的人均国内生产总值为7,645美元，从2021年5月19日到今年3月8日，泰国NHSO对12,714 名接种COVID-19疫苗后出现不良反应的人进行了赔偿。泰国NHSO同时制定了非常简单明了的赔偿时限，申诉通道，甚至特别强调，只要是赔了，即使事后证明跟疫苗无关，也不索回！
+
+而根据中共国国家统计局局长宁吉喆2022年1月17日公布的数据，2021年中共国人均GDP为12551美元。
+
+目前，中共国政府没有公开对任何一名中共病毒疫苗受害者进行过赔偿。
+
+天天为厉害国唱赞歌的老小粉红们，你们的命在共惨党眼中，连蛆都不如！
+
+参考数据：
+
+[Thailand to pay $45M over vaccine side-effects](https://www.phnompenhpost.com/international/thailand-pay-45m-over-vaccine-side-effects)
+
+[927 million baht paid to over 8,000 people suffering side effects from COVID vaccinations](https://www.thaipbsworld.com/927-million-baht-baht-paid-to-over-8000-people-suffering-side-effects-from-covid-vaccinations/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

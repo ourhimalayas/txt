@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦展现的人道价值
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2163539/)
+## 新中国联邦和乌克兰人民站在一起
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2163694/)
 
 台灣寶島農場
 
