@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 3:35 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
+![img](https://media.gettr.com/group7/origin/2022/03/14/15/6a823638-5f9d-27cf-b67d-cd8c4ecfc677/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/14/2022 3:10 PM (UTC)`
 
 3月14号：这才是真正的钢琴艺术家．音乐家。这位德国的大卫先生．在乌克兰救援前线．用他的钢琴一直在拯救．安抚在乌克兰战地逃出来的妇女儿童的心灵！他太伟大了……他还为我们的新中国联邦所有战友们……弹唱了新中国联邦的国歌，感谢了，他是我们中国联邦人的最好的朋友之一，永远的朋友。喜马拉雅战地现场演奏版！
@@ -151,13 +158,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 2022.03.13 晚《新中国联邦新闻访谈》 Covid-19疫苗如何伤害免疫系统​；前线战友如何防范病毒；如何保持心理健康？
 ![img](https://media.gettr.com/group3/origin/2022/03/14/01/ae7df8ff-9b34-2fe2-4bee-fc6ebc75f10a/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/14/2022 12:52 AM (UTC)`
-
-Miles Guo revealed why he thinks NFSC’s freshly brewed coffee is so important at the war zone for Ukrainian people at the moment. <br/>This is the first time in the history for Ukrainian people, in the war they are able to get a cup of freshly brewed coffee every day，文贵先生认为 NFSC 现煮咖啡在战区对乌克兰人来说如此重要。<br/>对于乌克兰人来说，这是历史上第一次，在战争中他们每天都能得到一杯现煮的咖啡
-![img](https://media.gettr.com/group26/origin/2022/03/14/00/c9dad87e-cff6-fa6e-ad9d-13a8451decc1/out.jpg)
 
 ---
 
