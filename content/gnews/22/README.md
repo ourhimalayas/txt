@@ -2,37 +2,23 @@
 ---
 
 
-## 大直播后记：孙力军刘彦平被抓始末
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2163312/)
+## Epidemic prevention in Shanghai! The long-distance bus terminal is closed. Proof of nucleic acid required when leaving and return to Shanghai
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2163332/)
 
-整理：Rianna、铁血丹心
-编辑：Mohegayer K. Simon
+Translated by：TokyoSakura/英翻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-103.jpg)
+图片来源于本文链接
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/@H1RTGY1N3OZ6FMW.png)
+As the COVID-19 outbreak continues in Shanghai, China, officials in Shanghai issued enhanced preventive and control measures late at night on March 12, requiring people not to leave Shanghai unless necessary. And those leaving Shanghai to have a nucleic acid test report within 48 hours. The Shanghai long-distance bus terminal is closed from today.
 
+原文链接：
 
+**[上海嚴防疫情！長途汽車客運總站停運　離返滬須持核酸證明](https://www.setn.com/News.aspx?NewsID=1084225)**
 
-图片来源：墨尔本雅典娜农场设计组
+**Edited by:**TokyoSakura/英翻组
+Posted by:TokyoSakura/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
 
-
-记得孙力军当初跟我通话：“大哥，你娘就是我娘呀，你爹就是我爹呀，过年我去陪爹娘去，我得陪他俩”。我怎么听的像范伟说话一样呀，你听到这好笑，是吗？我娘现在死了到天堂了，他进监狱了，他从来没看过我爹我娘。孙力军是一个这样的烂仔流氓，贩卖钢铁的跟了孟建柱，帮助他老婆在洛杉矶看病，陪他老婆，还陪睡，说蒋姐那就是比我亲娘还亲呢，还说我天天晚上给她擦澡。你说蒋姐洗澡都得给她洗，你说这啥关系啊？文艺，你洗澡时候七哥愿意给你洗，双胞胎你俩一起，我也愿意给你俩洗啊。
-
-我们盘古有俩双胞胎说，郭先生我们两个愿意陪你一晚，感谢你对我们的栽培之恩。我们在盘古已经赚到了一千万啊，我说你们双胞胎为什么都嫁一个人呢？她说我们俩从小就要嫁一个人不会嫁两人的。很多人都奇怪，双胞胎在盘古的时候为啥卖卡有那么厉害？那些当官的到了盘古就说，哎我把你俩包了吧。人家说你先买卡吧，买完卡以后，就一句话，包你奶奶！这样一骗把那些老杂毛给骗懵了。我们这个双胞胎在盘古的时候是非常火非常有名的，那时孙力军到盘古的时候，一进去对所有人说，听说，这有仨双胞胎，都过来啊，你们给他仨双胞胎一人买100万卡。你知道当时的人中，北京有个超市的老板一个人当场1000万砸在那儿，1000万卡啊，双胞胎就这么管用啊。
-
-孙力军现在在哪儿？在监狱！孟建柱曾经跟刘彦平说，郭文贵绝对是我见过中国男人中的男人，我相当的佩服。我给我们大领导建议，郭文贵和马云应该成为中国的象征性的国家副主席，就这么忽悠我。你看啊，文贵一旦回到国啊，那这个国家和党是要给他荣誉的。孙力军还说你爹是我爹你妈是我妈，我回去陪着爹妈过年，是吧？后来你看把我全家都给抓了，在我申请完政庇当天全部抓完。大家去想一想，相信共产党走进火葬场，七哥就是最好的例子，后来我母亲真的是走进了火葬场。
-
-刘彦平被抓这个事情，刘彦平是好话说尽坏事做绝。前天我跟你七嫂说，我说你看看刘彦平被抓了，昨天我说人家毕竟把你和郭美送来（美国了）。你七嫂说你没有经历当场，他和他的秘书在香港拿着护照的时候，那个秘书看我的眼神，恨不得用眼睛把我吃了。他就不想给我，那个意思就告诉我，我早晚得弄死你，老实说他可从来没想帮咱，他是想把你骗死，把你骗回去。
-
-资料来源：2022年3月13日文贵大直播
-
-发布：星谕
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

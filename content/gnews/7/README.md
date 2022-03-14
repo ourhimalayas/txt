@@ -2,10 +2,12 @@
 ---
 
 
-## 中共内部的政治大战全面开始
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2163522/)
+## WION新闻：西方对俄罗斯实施毁灭性的经济制裁，俄罗斯人开始感受到制裁对他们日常生活的影响
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2163545/)
 
-台灣寶島農場
+03/13/2022 WION新闻：在俄罗斯入侵乌克兰后，卢布暴跌，俄罗斯人开始感受到制裁对他们日常生活的影响
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

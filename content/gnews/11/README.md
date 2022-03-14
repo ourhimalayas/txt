@@ -2,39 +2,35 @@
 ---
 
 
-## 有声|俄罗斯第三名将军在乌克兰被击毙
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2163476/)
+## 隔空取钱 ——躺平币结束共匪的杀手锏
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2163512/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月12日，国外媒体报道，一位西方国家官员称，俄罗斯将军柯列斯尼可夫少将被乌克兰部队击毙。这是俄罗斯入侵乌克兰以来第三名被乌克兰部队击毙的俄罗斯将军。俄罗斯国防部未就此事作出及时回应。国防部网站则显示，柯列斯尼可夫现任俄罗斯东部军区司令。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1403.png)
-该官员称，俄罗斯入侵乌克兰刚刚两周的时间，被杀将领数量已经跟俄罗斯在整个叙利亚冲突期间一样多。
+作者：香草山医疗组-火星人
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+世上本无路，走的人多了就有了路；钱本来就是一张废纸，用的人多了就有了价值。
 
-乌克兰军方在推特上确认了该高级军官被消灭的消息，并表示：“俄罗斯侵略者会在乌克兰失去更多军官。”
+推翻一个政府有几种办法：1.政变军变，2.起义造反，3.别国入侵，4.金融政变。民亦载舟亦可覆舟，只有老百姓团结起来才可以推翻，共产党执政下不载都由不了你，更何况覆舟？很显然行不通，那怎么既能覆舟还不能有伤亡？试着推演一下。比如一个城市50万人，我们有500亿资金，你发展一个人反共给你奖励10万，前提是不上街，无伤亡，在家睡觉就行，到街上散步更可以，反正就是不上班。这种都是亲情发展，一是安全二是信赖，加上奖励巨大所以传播速度很快，一夜之间会传遍全城，到时候全民反共军警公安都会积极传播，谁还来抓人？钱从何来？据说海外盗国贼偷的钱可不止这一点，但是拿来谈何容易？
 
-据报道，目前乌克兰的顽强抵抗以及天气寒冷和物资不足的问题使俄罗斯部队士气低落。
+咱们先琢磨琢磨钱是个什么东西，其实就是废纸，谁都可以印，谁都可以发行，前提是要有信用，所以又叫信用货币，我们爆料革命是世界上唯一秉持唯真不破、正道主义、重新定义宇宙文明和信用价值的新型组织。
 
+既然盗国贼的钱不好拿我们干脆来另造一个更先进的更值钱的永远有自由的区块链货币，loading…. 躺平币横空出世！如果说喜币是新中国联邦的压舱石那么躺平币就是新中国联邦的流通货币，世上本无路用的人多了废纸就有了价值…. 一传十 十传百百传千千万，你加我我加你大家紧相连，同舟嘛共济海让路，号子嘛一喊浪靠边，百舸争流千帆进，波涛在后案岸在前…
 
+躺着就能赚钱的事傻子都会干，借用共匪世界的一句话：趋势来了猪都能飞起来！
 
-文字版原文：[俄罗斯第三名将军在乌克兰被击毙](https://gnews.org/zh-hans/2156464/)
+战友们接下来该做什么大家应该都清楚了吧，首先改善家庭关系，先从“蓝金黄”爱人开始，然后其他家庭成员各个击破，我们都是种子选手健身健心准备迎接新时代！
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+审核/编辑/发稿：谐趣园
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
