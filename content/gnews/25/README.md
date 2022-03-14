@@ -2,26 +2,25 @@
 ---
 
 
-## 伊朗导弹袭击美驻伊拉克新建大使馆区
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2162469/)
+## 俄煤炭化肥大王：烏戰悲劇必須結束
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2162420/)
 
-采编：加拿大温哥华杨帆农场 – 风云小哥
+採集：玫瑰新聞群組
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-14t064328z400116842rc262t918fg45087682.jpg)梅爾尼琴科在電郵中說：“烏克蘭正在上演一齣出真正的悲劇。我們迫切需要和平。”（路透社）
+（早報訊）俄羅斯煤炭和化肥大王週一（3月14日）表示，烏克蘭戰爭是一場必須停止的悲劇，否則將出現全球糧食危機，因為化肥價格對許多農民來說都已經太高了。
 
-撰稿：加拿大温哥华杨帆农场 – 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1528.png)i图片：[BREAKING: Missile Attack Targets U.S. Embassy in Iraq (mediaite.com)](https://www.mediaite.com/news/breaking-rocket-attacks-reportedly-strike-kurdish-tv-station-u-s-consulate-in-iraq-videos-show-huge-explosions/)
-据媒体【ITE新闻】3月12日报道，在伊拉克[埃尔比勒]地区一个正在建设中的美国领事馆附近，当天遭到了据悉是来自伊朗的导弹袭击。
+路透社報導，俄羅斯最大的獨立煤炭企業西伯利亞煤炭能源公司（SUEK）大股東梅爾尼琴科（Andrei Melnichenko）當天通過發言人，向路透社發出一份電郵聲明。
 
-报道称，在这座仍未完工的美国大使馆总部附近区域被五枚远程导弹袭击后，库尔德卫星电视频道也遭到了破坏。伊朗革命卫队随后宣布对以上爆炸事件负责，并声称这次导弹攻击是对以色列上周军事行动的报复。
+梅爾尼琴科在電郵中說：“烏克蘭正在上演一齣出真正的悲劇。我們迫切需要和平。”
 
-对此，文贵先生表示，本次伊朗在伊拉克挑起的战争冲突，其幕后黑手就是中共和俄罗斯。习近平当局以所谓的“围魏救赵”之计，不仅试图缓解俄军深陷乌克兰的困境，转移全世界对普京的围剿，还计划在中东地区制造战乱，通过封锁霍尔木兹海峡的石油通道，哄抬全球原油价格来根本削弱美元实力，以此消除中俄因被欧美剔除出SWIFT系统而导致的灭国危机，并最终趁美国自顾不暇之际攻占台湾。
+現年50歲的梅爾尼琴科是俄羅斯公民，但出生在白羅斯，母親是烏克蘭人。
 
-校对编辑：硫酸羟氯喹64
+梅爾尼琴科說：“作為一個生在白羅斯，身上流著烏克蘭人的血的俄羅斯公民，我非常痛苦也無法相信——眼睜睜地看著自己的兄弟族人相互戰鬥、死在沙場上。”
 
-发稿：青青
+參考連結：[https://www.zaobao.com.sg/realtime/world/story20220314-1252142](https://www.zaobao.com.sg/realtime/world/story20220314-1252142)
 
-原文链接： [BREAKING: Missile Attack Targets U.S. Embassy in Iraq (mediaite.com)](https://www.mediaite.com/news/breaking-rocket-attacks-reportedly-strike-kurdish-tv-station-u-s-consulate-in-iraq-videos-show-huge-explosions/)
-![](https://cdn.discordapp.com/attachments/855947446352871426/952725922249855016/Screen_Shot_2022-03-11_at_22.png)
-
+審核校對：Barry Jack
+上傳排版：F
 
  
 

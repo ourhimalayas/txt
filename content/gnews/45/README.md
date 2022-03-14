@@ -2,22 +2,37 @@
 ---
 
 
-## 中日财经爆┃大疆再遭制裁，设计软件被封！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2159515/)
+## 德国志愿者因新中国联邦人急救保住生命
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159936/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1472.png)图片来源于本文链接
-3月12日，美国设计软件企业Figma封禁大疆等被美国制裁公司的账号。大疆内部收到了一封来自设计软件公司Figma的邮件表示，大疆在发布的制裁名单当中，因此Figma无法再提供软件服务，并开始冻结账户。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1473.png)
-Figma成立于2012年，是基于网页的界面设计协作工具，可以将项目时刻保存在云端，这样就可以保证多方用户对设计进行实时评论或修改。它有三个很显著的特性：实时协作、矢量网格、版本历史。最重要的是，这个工具非常方便，可以在一个文档中同时处理20个以上的画板。大疆等很多企业都使用Figma软件，它相当于企业设计的“画笔”。
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月13日，文贵大直播连线法治基金新中国联邦，驻波兰梅蒂卡救援现场，现场记者妮可讲到，波兰当地时间13日凌晨一点左右，文桑抢救了一位六十多岁、从德国开车运送救援物资的老人。
 
-大疆是中共军民融合的核心企业之一，大量参与中共军方用于战场的长航时无人机研制，并大量开发用于监控人民的无人机，是中共邪恶统治的重要帮凶。此次设计软件禁用，将大大减缓相关无人机制造的步伐，配合之前的芯片禁售，大疆或将逐步面临停产绝境。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-9.jpeg)
 
-信息来源： [继华为之后 大疆再遭制裁：设计软件被封！](https://www.163.com/dy/article/H2BRCQ120514R9KC.html)
+这位老人连续驾车从德国赶往波兰边境，运送救援物资。他在搬运卸载物资时，突然昏倒。正在值夜班的文桑因为懂得中医，马上施行紧急抢救措施。经过紧急抢救，老人慢慢苏醒。恢复了意识后，医院的救护车才赶到。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+红十字会等国际组织并未在梅蒂卡设立紧急医疗救助设施，如果没有文桑在现场立即进行急救措施，这位老人很可能就失去了生命。
+
+文桑接受了本台记者的采访，此时，他已经连续值班超过24小时。以下是前线记者对文桑的现场采访。
+
+参考链接：[https://gettr.com/streaming/pzrn4eb349](https://gettr.com/streaming/pzrn4eb349)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
+总编：文真
+编辑：Jack Li文阳   
+审核：文真
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

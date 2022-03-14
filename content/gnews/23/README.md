@@ -2,25 +2,26 @@
 ---
 
 
-## 华硕回应了！出货已停滞，捐款乌克兰3千万新台币！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2162515/)
+## 伊朗导弹袭击美驻伊拉克新建大使馆区
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2162469/)
 
-俄罗斯出兵入侵乌克兰，多国祭出经济制裁，不少全球企业也自发性抵制、暂停或退出在俄罗斯的市场。乌克兰副总理兼数位转型部长费多罗夫10日透以公开信的方式向华硕董事长施崇棠呼吁，华硕应停止与俄罗斯的商业合作关系。
+采编：加拿大温哥华杨帆农场 – 风云小哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ecfeea15-10b0-4d2b-b231-57848d119e2b.jpg)图片来源：华硕官网
+撰稿：加拿大温哥华杨帆农场 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1528.png)i图片：[BREAKING: Missile Attack Targets U.S. Embassy in Iraq (mediaite.com)](https://www.mediaite.com/news/breaking-rocket-attacks-reportedly-strike-kurdish-tv-station-u-s-consulate-in-iraq-videos-show-huge-explosions/)
+据媒体【ITE新闻】3月12日报道，在伊拉克[埃尔比勒]地区一个正在建设中的美国领事馆附近，当天遭到了据悉是来自伊朗的导弹袭击。
 
-华硕第一时间未立即回应，今日终于发布声明表示，对俄罗斯市场的出货已停滞，为尽一份力量，华硕将捐助财团法人賑灾基金会「赈济乌克兰专户」新台币3,000万。
+报道称，在这座仍未完工的美国大使馆总部附近区域被五枚远程导弹袭击后，库尔德卫星电视频道也遭到了破坏。伊朗革命卫队随后宣布对以上爆炸事件负责，并声称这次导弹攻击是对以色列上周军事行动的报复。
 
-简评：在全球援助乌克兰抵制俄罗斯的浪潮中，乌克兰副总理点名华硕虽然第一时间没有得到回应，但稍晚的回应也是很棒的，每一份抵制都是遏制邪恶的力量，每一份捐助都是伸张正义的良心！雪中送炭永不晚！
+对此，文贵先生表示，本次伊朗在伊拉克挑起的战争冲突，其幕后黑手就是中共和俄罗斯。习近平当局以所谓的“围魏救赵”之计，不仅试图缓解俄军深陷乌克兰的困境，转移全世界对普京的围剿，还计划在中东地区制造战乱，通过封锁霍尔木兹海峡的石油通道，哄抬全球原油价格来根本削弱美元实力，以此消除中俄因被欧美剔除出SWIFT系统而导致的灭国危机，并最终趁美国自顾不暇之际攻占台湾。
 
-新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022314W0261)
+校对编辑：硫酸羟氯喹64
 
-撰稿/发布：一叶知秋
+发稿：青青
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+原文链接： [BREAKING: Missile Attack Targets U.S. Embassy in Iraq (mediaite.com)](https://www.mediaite.com/news/breaking-rocket-attacks-reportedly-strike-kurdish-tv-station-u-s-consulate-in-iraq-videos-show-huge-explosions/)
+![](https://cdn.discordapp.com/attachments/855947446352871426/952725922249855016/Screen_Shot_2022-03-11_at_22.png)
+
 
  
 
