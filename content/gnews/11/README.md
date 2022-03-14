@@ -2,28 +2,58 @@
 ---
 
 
-## 苏州中小学等暂缓复课
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2160502/)
+## 普京祭出白磷脏弹，马里乌波尔出现人道主义危机
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2160594/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16472351501.png)
-据澎湃新闻3月14日报道，苏州市新冠肺炎疫情联防联控指挥部发布紧急通告：为确保师生身体健康和校园绝对安全，原计划3月14日复课的苏州全市中学初一、初二、高一、高二年级，小学一至六年级和中职院校、技工学校，及3月17日开学的全市幼儿园（含托育机构），暂缓复课。高三、初三年级在继续做好闭环管理，暂不停课。
+#### **【雅典娜观察】和您一起洞察世界**
 
-自2022年开始，中共国内就开启了循环封城的模式，就像轮盘赌博机一样，不定时转到哪里，哪里就全市停摆，人员就地隔离，以至于中共国内很多人出门的时候身边就备好了衣物和药品，随时准备进入隔离状态。强制成人接种疫苗不算，学生、幼儿都必须接种疫苗，造成疫情越隔离越爆发。如果不解决病毒的源头问题，不要说暂缓复课，即使封闭学校，也不会阻止疫情爆发。
+翻译：文扬
+编辑：文泓
 
-新闻参考链接：[https://www.thepaper.cn/newsDetail\_forward\_17104889](https://www.thepaper.cn/newsDetail_forward_17104889)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/PR11FJL8YZ5Y942BA6.png)图片来源：The Moscow Times & 雅典娜设计组
 
 
-编辑：【英国伦敦喜庄园编辑部】
+3月14日俄乌战争实时更新：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+俄罗斯被指控对平民使用一种可怕的、肮脏的化学武器——白磷弹，这种炸弹曾被纳粹称为“燃烧的洋葱”，并会对人造成“无法形容”的痛苦。
+
+磷弹的特征是一声巨响和一缕明亮的白烟，但当携带化学物质的长长的白色“溪流”开始从天而降时，它的影响最为明显。
+
+一名乌克兰高级警官指责俄罗斯军队在东部的卢甘斯克地区发动磷弹袭击。
+
+国际法禁止在人口稠密的平民区使用白磷弹，但允许它们在开放空间用作部队掩护。
+
+位于卢甘斯克市以西约100公里的波帕斯纳（Popasna）警察局长奥列克西·比洛希茨基（Oleksi Biloshytsky） 说，俄罗斯军队在他所在的地区使用了这种化学武器。
+
+“这就是纳粹所说‘燃烧的洋葱’，这就是俄罗斯法西斯在我们的城镇上投下的东西”，比洛希茨基在脸书（Facebook）上写道：“无法描述的痛苦和火灾”。
+
+在其他地方，乌克兰一个主要城市的局势日益严峻，居民在俄罗斯的无情轰炸下顽强生存。
+
+马里乌波尔是该国南部一个拥有43万人口的城市。一个旨在提供帮助的人道主义援助车队被困在西边的俄罗斯控制区，尚未抵达马里乌波尔。
+
+当前马里乌波尔的人道主义危机十分严峻，已经耗尽食物和水的居民正在等待援助的到来，但没有人到来。
+
+一位居民说现在逃离是不可能的，他们告诉CNN：“这里就像一台绞肉机，实在太恐怖了。”
+
+马里乌波尔的局势日益严峻。据市议会称，到目前为止，已有2187名居民被杀，在过去24小时内，该市遭受了22次爆炸袭击。
+
+红十字国际委员会上周表示：“马里乌波尔市的人道主义状况正变得越来越可怕和绝望，几十万人没有食物、水、暖气、电或医疗服务，人们迫切需要从战争的暴力中得到喘息，需要国际社会人道主义援助。”
+
+同期，俄罗斯又轰炸了乌克兰西部的一个军事基地，该基地距离北约部队驻扎的波兰边境仅11公里。
+
+如果战争如人们所担心的那样进入波兰，美国几乎肯定会直接卷入战争。
+
+“这将是对美国的攻击，”美国国会议员布兰登·博伊尔说。
+
+参考链接： [Russia Ukraine war latest: Mariupol under siege, ‘filthy’ chemical weapon claims | news.com.au — Australia’s leading news site](https://www.news.com.au/world/europe/russia-ukraine-updates-live-putin-broadening-targets-after-air-strike-near-poland/news-story/cb87c004ae0fbe3b45efeae50c485db9)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
