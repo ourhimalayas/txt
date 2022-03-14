@@ -2,44 +2,23 @@
 ---
 
 
-## 发动侵略战争 俄罗斯所受制裁已成全球最多
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159904/)
+## 中共国创新高！十多个省份都进入高度警戒，上海大规模停课
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2159922/)
 
-作者：秘密翻译组 – 乔巴
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3f3fae47-e548-4a3e-bccb-a9c765694c8c.jpg)图片来源：RFA
 
+据民视新闻网13日深晚报道，中共国疫情再度升温，十多个省份都进入高度警戒，卫健委更通报全国新增近3400例确诊，创下2020年2月以来的单日新高。除了吉林省已成疫情重灾区外，上海地区也因染疫人数不断上升，除了大规模停课与筛检外，多个企业和学校也展开就地隔离。
 
+简评：中共病毒疫苗灾难将要来临，而中共为了催死挣扎还要继续放毒，在这场人类大劫难中，请做好自我防护，按时服用新中国联邦推荐的解药保护好自己就是保护好他人，能唤醒身边人的尽量唤醒。喜马拉雅联盟农场是大劫难中的诺亚方舟，请不要犹豫，能加入的抓紧加入！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022313I06M1)
 
+撰稿/发布：一叶知秋
 
-
-自俄罗斯于2月24日发动乌克兰入侵战争以来，短短十几天，俄罗斯已经超越伊朗和朝鲜，成为世界上受制裁最多的国家。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide13-3.jpg)
-据全球制裁检测数据库的数据显示，在2月22日之前，俄罗斯受到2,754项制裁。自2月22日以来，截至3月12日，美国和欧洲盟友等对俄罗斯施加了3,612项制裁的目标，使其所受制裁高达6,366多项。这使其超过了伊朗成为全球受制裁最多的国家。在过去的十年中，伊朗面临着3,616项制裁，其中大部分是因为其核计划和支持恐怖主义。继俄罗斯和伊朗之后，受制裁较多的国家是叙利亚2,608项、朝鲜2,077项、委内瑞拉651项、缅甸510项和古巴208项。
-
-自2月22日以来俄罗斯受到的3,612项制裁，目前主要来自8个国家或地区，制裁针对个人、实体，对游艇和飞机等也实施了相关制裁限制。其中，欧盟对俄罗斯实施的制裁最多，有678项。而法国有672项，瑞士有568项，美国有278项。
-
-参考链接：
-1. [Russia surges past Iran to become world’s most sanctioned nation](https://www.bloomberg.com/news/articles/2022-03-07/russia-surges-past-iran-to-become-world-s-most-sanctioned-nation)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

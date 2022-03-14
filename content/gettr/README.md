@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/14/2022 7:08 AM (UTC)`
+
+【Ukraine Rescue】03/13/22 Chinese students and people rescued by NFSC and ROLF  are very grateful, but  afraid of the CCP. We hope they will uncover the EVIL nature of CCP with us in the future<br/><br/>【乌克兰救援】03/13/22 被新中国联邦和法治基金救出的中国学生和民众心存感激，但又害怕中共，希望他们有一天能大胆的与我们一起揭露中共邪恶的本质<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group16/getter/2022/03/14/07/1843af86-6abe-a042-ee29-5a0de3c53f29/out.jpg)
+
+---
+
+`@miles 3/14/2022 7:02 AM (UTC)`
+
+【Ukraine Rescue】03/13/22 Volunteer (Jin Dongnan) shares his experiences in Medyka. Unlike the Chinese Communist Party who never treat their people well, he has witnessed many women, children, and senior people have been rescued by the New Federal State of China. <br/><br/>【乌克兰救援】03/13/22 靳东南战友分享在梅迪卡的见闻感受。不像中共从不善待其人民，他目睹许多妇女儿童和老年人得到了新中国联邦的救助<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group10/getter/2022/03/14/07/d949523f-3691-d29e-70db-cc28cfd357d2/out.jpg)
+
+---
+
+`@miles 3/14/2022 6:55 AM (UTC)`
+
+【Ukraine Rescue】3/13/2022 An exhausted Ukrainian girl Lera who had not slept well for a whole week during the bumpy journey to escape from her war-torn homeland found great comfort in the new Cafe set up by the rescue team of the #NewFederalStateofChina. The follow fighter told the Ukraine girl that the mission of the NFSC is to take down the Chinese Communist Party. The the boss behind the Russian-Ukraine war is the CCP, and we will win<br/><br/>【乌克兰救援】 3/13/2022仓皇逃离战火的乌克兰小女孩莱拉因路途颠簸一周未曾安眠，就在精疲力竭之时，她来到新中国联邦救援队新建的咖啡驿站，并享受到难得的安适。义工告诉乌女孩，新中国联邦人的使命是消灭中国共产党，俄乌战争背后的老板是中共，我们一定会赢<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group9/getter/2022/03/14/06/14c43a3b-59f2-67fb-9caa-07ef512f5166/out.jpg)
+
+---
+
 `@miles 3/14/2022 6:47 AM (UTC)`
 
 【Ukraine Rescue】03/13/22  NFSC‘s volunteer received a  kiss of gratitude from an Ukrainian lady<br/><br/>【乌克兰救援】03/13/22  新中国联邦义工小小酥获得乌克兰难民感激的亲吻<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
@@ -133,27 +154,6 @@ The first group of fellow fighters from the Italian Himalaya Farm, including Wen
 
 【Ukraine Rescue】03/12/2022 The NFSC & ROLF Ukraine Rescue team member Nicole gives an introduction about the Rule of Law Foundation to a reporter and tells him all the rescue efforts are financed and organized by the Rule of Law Foundation. She shows him everything the ROLF has provided and makes an important distinction that the New Federal State of China is totally against the Chinese Communist government<br/><br/>【乌克兰救援】03/12/2022 新中国联邦法治基金乌克兰救援团队成员妮可向一位记者介绍法治基金并且告诉他所有的救援行动都是由法治基金赞助和组织的。她向记者展示了法治基金提供的所有物资并且告诉他新中国联邦是完全反对中共政府的机构。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group12/getter/2022/03/13/21/0a1202af-6430-6dc2-933c-30ddd89e787a/out.jpg)
-
----
-
-`@miles 3/13/2022 9:21 PM (UTC)`
-
-3/13/2022 Miles Guo: In an attempt to be able to challenge or even defeat the US and Europe, the CCP and Putin are playing the strategy of “Besiege Wei to Rescue Zhao”, which is to distract the power from the rest of the world threatening them by causing greater problems in elsewhere: start with Russia’s invasion of Ukraine, then fan the flames of war in the Middle East to destroy the petroleum economics and the US dollar so as to stop the economic and financial sanctions imposed by the US and Europe, then the CCP can take chance to attack Taiwan, and (new) viruses might be released.<br/><br/>3/13/2022 文贵直播：中共和普京合演“围魏救赵”：先由俄罗斯攻打乌克兰，然后在中东挑起事端，砸烂石油经济和美元，企图阻止美欧的经济金融制裁，让中共有机会打台湾，甚至放病毒，以期和美欧抗衡到底<br/>
-![img](https://media.gettr.com/group24/getter/2022/03/13/21/42f85faa-3bdd-2eee-b950-ca4911cc47a8/out.jpg)
-
----
-
-`@miles 3/13/2022 6:01 PM (UTC)`
-
-Lydia: I just want to return to Kyiv, I love Ukraine very much. <br/><br/>蕾迪娅：我只想回到基辅，我非常爱乌克兰
-![img](https://media.gettr.com/group48/origin/2022/03/13/18/9cce0131-4dc4-253c-6aa3-6df83b861aa9/out.jpg)
-
----
-
-`@miles 3/13/2022 5:18 PM (UTC)`
-
-小小尼莫第二期-反战主题音乐会
-![img](https://media.gettr.com/group48/origin/2022/03/13/17/94fee881-965a-502e-1959-73e591766cc7/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

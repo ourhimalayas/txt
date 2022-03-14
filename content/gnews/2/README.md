@@ -2,32 +2,43 @@
 ---
 
 
-## 加拿大与世界经济论坛 &#8220;大重置 &#8220;议程步调一致
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2160741/)
+## 世界即将大战幕后黑手就是中共形成全球狼狈为奸的局面
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2160862/)
 
-##### 作者：加拿大温哥华扬帆农场 – 薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/03/duranimages-2.jpg)图片来源：Theduran.com
-加拿大政府关系顾问和作家克里斯·乔治 3月4日在[尼亚加拉独立报] 撰文，揭露自由党高层与世界经济论坛 (WEF)的 “大重置 “议程保持步调一致。
+视频链接：[odysee.com/@郭文贵先生大直播精选:](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8802.61%EF%BC%89%E4%B8%96%E7%95%8C%E5%8D%B3%E5%B0%86%E5%A4%A7%E6%88%98%E5%B9%95%E5%90%8E%E9%BB%91%E6%89%8B%E5%B0%B1%E6%98%AF%E4%B8%AD%E5%85%B1%E5%BD%A2%E6%88%90%E5%85%A8%E7%90%83%E7%8B%BC%E7%8B%88%E4%B8%BA%E5%A5%B8%E7%9A%84%E5%B1%80%E9%9D%A2%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:6)
 
-WEF 创始人克劳斯·施瓦布70年代初发表《达沃斯宣言》宣告“利益相关者资本主义”的诞生。达沃斯峰会旗下有 “全球青年领袖 “和 “全球塑造者 “项目。2016年施瓦布发布”大重置 “文件，称资本主义已死，社会需要重塑；2020年又发表题为 “COVID-19-大重置”的文件，鼓吹为经济和社会系统建立全新的基础。
+**郭文贵先生：**我们今天坐在这儿的时候，今天要说什么，就在瑞沃路森捋头发的时候，世界将发生大战。这个大战是跟谁有关系，最后的幕后黑手就是中国共产党，形成狼狈为奸的全球局面。对我们灭共形势是好的，但对人类真是个灾难。
 
-施瓦布曾公开称特鲁多内阁一半以上是全球青年领袖的说法已被佐证。总理特鲁多、副总理弗里兰和前卫生部长哈伊杜等，都分别在联大和达沃斯峰会上发言提倡大重置，重构全球经济体系；弗里兰还是WEF董事会高层负责推进WEF目标的董事；加拿大银行家协会成为WEF创建全球数字身份证的牵头机构。
+大兵压境30万到乌克兰，乌克兰内部已经发动了29万全民的部队，而且很多都是美女啊，都漂亮得不能再漂亮的美女啊！乌克兰美女的独特漂亮天下独有，你没跟乌克兰美女打过交道，你没去过乌克兰你是不知道的。
 
-当政府对自由车队个人和公司的银行信息进行数字控制和滥权，坐实了自由党紧随达WEF，颠覆加拿大民主的企图。
+而且现在是美军大量的科技人员、军事人员，所谓的叫代理人战争，已经到位。
 
-资料来源：[The WEF and the Liberals’ agenda for Canada](https://niagaraindependent.ca/the-wef-and-the-liberals-agenda-for-canada/)
+编辑整理：Jacques；
 
-编辑/上传 – 云起时
+字幕档制作：兵嫂；
 
-* * *
+视频制作及上传：Cindy；
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+G-News发布：海贼王M.D.LUFFY；
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

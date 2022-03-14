@@ -2,99 +2,34 @@
 ---
 
 
-## 乱世中微信的信息超限战
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2160614/)
+## 志愿者凌晨为难民接车，难民对新中国联邦表感谢
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2160668/)
 
-作者：香草山健身部-新世界的一员
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-11.png)
-乌俄战争还在继续，
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-乌克兰的人民还在饱受战乱之苦，
+整理/编辑：小红帽
 
-我们灭共的新中国联邦法制基金的救援一直马不停蹄的在进行，
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-14_13-46-17.png)图片来源：郭文贵先生盖特视频截图
 
-我跟很多热爱和平的人们一样，
 
-在墙内尽力发布真实的信息，
+3月13日，凌晨1点，法治基金和新中国联邦志愿者在波兰克拉科夫迎接两辆载有118人的救援大巴。志愿者在迎接大巴时准备了热咖啡，食物和婴儿食品。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-14_13-35-16.png)
+据法治基金和新中国联邦志愿者大卫报道：“今天，由法治基金和新中国联邦安排的，从乌克兰过来的两辆大巴上有一位6天大的婴儿。这是乌克兰救援行动以来，年龄最小的被救婴儿。婴儿现在在救援的巴士上面睡得很香甜。同时，新中国联邦的志愿者也为车上的难民准备了热茶，热咖啡，和食品。”
 
-谴责俄罗斯入侵乌克兰，
+“在另一辆大巴上，有12位来自俄军包围的东北战区的难民们。他们在路上向法治基金和新中国联邦的志愿者发信息表示感谢。”大卫补充道。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-14_13-36-27.png)
+接车后，志愿者主动帮助难民们拿行李，并引领他们去附近的火车站。
 
-为呼吁世界的和平尽绵薄之力，
+资料来源：[郭文贵先生2022年3月14日盖特视频](https://www.gettr.com/post/pzucaeebdf)
 
-在当今这个物欲横流的社会，
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1123.001.jpeg)
-我发朋友圈的帖子总是跟众人格格不入，
+发布：tianzhihuan
 
-有善意的劝解，
-
-有无声的抗议，给你发个中俄是友邦的图片、视频，
-
-更有留言表述他的不同立场，
-
-也有人发出警告当心我封号，
-
-在共产党的一个声音里活着的底层的同胞们，
-
-容不得打破他们认知度的信息，
-
-在中共这个恶毒的爹亲娘亲不如党亲的毒霾社会里，
-
-只有为电视剧虚拟的悲剧人物流泪伤心，
-
-也不会为铁链女流半滴眼泪，
-
-人们的价值观，理解力，洞察能力，见解面，
-
-精神面貌都分裂严重，
-
-没有信仰的民族也没有悲悯，
-
-没有灵魂的国度也缺少同情、友爱，
-
-一切正义的言论就跟对牛弹琴似的，
-
-就算全世界已经一百多国家谴责俄罗斯的入侵乌克兰，
-
-中国人依然被中共硬性绑架，
-
-俄罗斯到了中国就遭殃了，
-
-所以明明知道乌克兰的勇敢值得尊重，
-
-却依然叫嚣着俄罗斯胜利！
-
-人性被爱国热情打败，
-
-善良被爱党之心扭曲，
-
-加上网络那些有意嫁接，东拼西凑、张冠李戴的假信息，
-
-刻意的带动民意，
-
-更有太多人的信息依靠那该死的百度，
-
-以至于刚愎自用的心态作怪，
-
-对我的评论和贴子就无端生出敌意，
-
-我一贯不去理论、不做回复。
-
-看不惯我朋友圈的人估计比想象的更多，
-
-中共不灭， 中国人活的比石器时代更添悲哀！
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-5.jpg)
-
-编辑/校对/发稿：林礼
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

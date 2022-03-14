@@ -2,76 +2,33 @@
 ---
 
 
-## 马乔丽·泰勒·格林：川普总统是对的
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2160383/)
+## 中共瞬间武力犯台，台湾雄升飞弹系统将自卫反击
+` GTV新聞訪談` [轉載自GNews](https://gnews.org/zh-hans/2160583/)
 
-众议员马乔丽·泰勒·格林： 川普总统是对的。 拜登在阿富汗的尴尬失败向全世界展示了他的软弱。 这就是为什么，普京入侵乌克兰，伊朗向我们在伊拉克的领事馆发射导弹，而 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 占据主导地位。 炒掉软弱无能之人。 弹劾！ 【转RSBN推文： “阿富汗的行动是我们国家历史上最尴尬的时刻。” 川普总统在今晚的集会之前与我们的主持人布莱恩·格伦[@brianglenntv](https://gettr.com/user/brianglenntv) 进行了交谈！（附采访川普总统的视频）】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Hsiung-Feng-IIE.jpg)
+台湾雄升飞弹系统将自卫反击，应对中共瞬间武力犯台
 
+台湾海空战力提升特别预算11日在立院3读通过，国防部首度公开，地对地巡弋飞弹的「雄升飞弹」。中科院雄三反舰飞弹项目前总工程师张诚接受《中评社》访问时透露，台湾的防卫架构确实按照美国的建议做调整，「雄升飞弹系统」就是增程型的雄二E地对地巡弋飞弹，射程估计为1000至1200公里，属远距精准武器，打击范围可达中国内陆，具有源头打击战力，**由于中共军力崛起，想要突破第一岛链，美国想在第一岛链加强中程弹道飞弹部署，中程弹道飞弹大概射程在****1000****公里到****3000****公里，只要在琉球、韩国及台湾部署，中共解放军就完全在美国掌握之中，同时美国支持台湾拥有这种武器。**
 
+据军方最新送交立法院的书面报告，中科院新型飞弹量产厂房将在6月完工启用，年产能将达高峰。台湾飞弹数量大增，其中包括雄升飞弹。至于雄升飞弹年产能，国防部在报告中仅表示，雄升飞弹与雄二飞弹是共享生产线，两者合计的年产能目前为81枚，技巧性的隐藏起来，不过在中科院飞弹量产厂房于今年6月完工启用后，未来年产能两者合计可提高到131枚。报告中同时指出，雄三超音速反舰飞弹，由年产20枚提升为70枚；陆射／海射型剑二飞弹系统，原本年产40枚，现年产能将达150枚；天弓三型防空飞弹的年产能48枚，也将提升为96枚，台湾飞弹数量将大增。
 
-> President Trump is right.
-> 
-> Biden’s weakness was displayed for all the world to see with his embarrassing failures in Afghanistan.
-> 
-> This is why, Putin invaded Ukraine, Iran is firing missiles at our consulate in Iraq, & China is dominating.
-> 
-> Fire weak incompetent people.
-> 
-> Impeach! [https://t.co/rK7nHXDSc8](https://t.co/rK7nHXDSc8)
-> — Rep. Marjorie Taylor Greene (@RepMTG) [March 13, 2022](https://twitter.com/RepMTG/status/1503096422899625992?ref_src=twsrc%5Etfw)
+其实雄二E地对地巡弋飞弹，首批量产型是在2008年就已开始，并且已在部队服役多年，此次列入军购特别条例「海空战力提升计划」内的「雄升飞弹系统」，为增程型的雄二E地对地巡弋飞弹，值得一提的是美方从2007年开始对台的飞弹与火箭使用的军规战术型IMU惯性测量模块以及INS惯性导航系统，关键组件技术的管制，但在2018年4月5日美国政府正式批准美国厂商对台湾潜舰国造IDS战系案「营销核准证」，并为台湾军事争取40多项武器关键组件和材料管制的解禁，其中包括飞弹系统中关键的高精度陀螺仪、主动相列雷达控制接口组件，以及固态燃料的稳定剂等19项，**因为台湾自行研发的天弓、雄风系列飞弹的性能提升都运用到这些组件与原料，这些关键性技术，是由美商务部核定后，美国务院核备后出口。**
 
+军规战术型IMU与INS模块，IMU惯性测量单元模块（Inertial measurement unit）结合高可靠度的MEMS 6DOF惯性传感器， 由三轴的陀螺仪（gyroscopes）和三个方向的加速度计（accelerometers）结合成惯性传感器，用来测量物体在三度空间中的角速度和加速度，并以此解算出物体的姿态，军规战术型IMU一般安装飞弹的重心上。该模块能实时测量飞行时方位并进行校正。而INS惯性导航系统惯性导航系统是完全自主的，它既不向外部发射讯号，也不从外部接收讯号。惯性导航系统必须精确地知道在导航起始时运载体的位置，惯性测量值用来估算在启动之后所发生的位置变化。**简单的说就是美制的军规战术型****IMU****与****INS****模块可提升飞弹的精准度在****10****公尺以下。但根据军方内部人员指出精准度可达****1.5****公尺。**
 
+台湾飞弹使用军规战术型IMU与INS模块、GPS卫星导航等关键性组件，射程600公里的量产型雄二E巡弋飞弹就能精准打击有价值的军事目标，射程300公里的远程火箭（类似美国陆军使用的ATACMS炮兵飞弹系统）也可以精准攻击陆地和海上移动目标，目前这些飞弹射程与发射车技术都已在部队服役多时。**面对中共军机犯台，中南坑习近平政权为私人政治利益，挟庞大解放军攻打台湾，极可能瞬间迅速发动台海战争，若台湾受到共军第一击攻击，战术则由守转为全力的自卫反击权****。**
 
-美前国务卿迈克·蓬佩奥： 伊朗是世界上最大的支持恐怖主义的国家。 它必须继续被指定为恐怖分子，与恐怖分子有关的制裁必须继续实施。 绝不能允许伊朗拥有核武器。
+**感谢美国两党政府制定的【台湾关系法】****、****【台湾保证法】****、****【六项保证】实现美国对台湾的承诺****，维护印太地区和平的决心，为台湾在短时间内建构相对性之不对称战力，有效吓阻中共瞬间发生台海战事。**笔者认为两岸人民都想要共同追求自由、民主、法治的社会，但中共几个家族却长期控制着一个国家，不断地挑战国际体系，利用西方的民主和资本进行各种BGY和大量渗透，用国际政治作为战争的方式来创造有利的条件，从而逐渐发展成中共绝对的侵略活动，**文贵先生多次表示，习近平给了普京的两个合同，一个****4600****亿，一个****4800****亿的石油。中共一万亿美元的支持让普京对乌克兰发动战争，造成大量的人道灾难中，就能看出共产极权主义，在世界上存在是巨大的伤害，全世界只有联合消灭中共，才能有真正的安全，中共是世界邪恶轴心的原点，迅速以****SWIFT****制裁中共，将能减少俄中对中东的局部性战争，避免能源供给冲突对世界经济造成的灾难。**
 
+本文仅代表个人立场
 
+**祈祷万佛万神加持文贵先生与新中国联邦战友 Take down the CCP**!
 
-> Iran is the world’s largest state sponsor of terror.
-> It must remain designated as such, and terrorist-related sanctions must remain in place.
-> Iran must never be allowed to have a nuclear weapon.
-> — Mike Pompeo (@mikepompeo) [March 14, 2022](https://twitter.com/mikepompeo/status/1503183366279024640?ref_src=twsrc%5Etfw)
+审核:Athena雅典娜 撰稿发布:Amitofu
 
+[雄升丶增程雄三飞弹今明年进入量产 中科院下旬「无限高」射击](https://news.ltn.com.tw/news/politics/breakingnews/3854946)
 
-
-参议员泰德·克鲁兹：飞机上要求戴口罩太荒唐了。 【视频中克鲁兹说：强制口罩，强制打疫苗和疫苗护照都是不对的，早该停止了】
-
-
-
-> Mask mandates on planes are absurd. [pic.twitter.com/ThddncVEzv](https://t.co/ThddncVEzv)
-> — Senator Ted Cruz (@SenTedCruz) [March 14, 2022](https://twitter.com/SenTedCruz/status/1503164953825533954?ref_src=twsrc%5Etfw)
-
-
-
-众议员吉姆.班克斯： 唐纳德.川普把奥巴马的伊朗核协议称为“有史以来最糟糕的协议”是正确的。 在很多方面，乔·拜登的新伊朗核协议更加糟糕。 为什么那么多民主党人支持它？
-
-
-
-> Donald Trump was right to call Obama’s JCPOA “worst deal ever negotiated”. In so many ways Joe Biden’s new Iran Nuclear Deal is even worse. Why are so many Democrats going along with this?
-> — Jim Banks (@RepJimBanks) [March 13, 2022](https://twitter.com/RepJimBanks/status/1503084199024250884?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 就在几周前，乔·拜登政府关闭了司法部一项打击 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 间谍活动的计划。 现在，国家安全官员在警告说，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 间谍对美国构成严重威胁。
-
-
-
-> Just weeks ago, Joe Biden’s administration shut down a DOJ program to combat Chinese espionage.
->  
-> Now, national security officials are warning that Chinese spies are a grave threat to the USA.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 13, 2022](https://twitter.com/MarshaBlackburn/status/1503068158424457227?ref_src=twsrc%5Etfw)
-
-
-
-前白宫经济顾问彼得·纳瓦罗: 请将此转发给全世界。 对我们所有人的巨大威胁… [#普京](https://gettr.com/hashtag/%23%E6%99%AE%E4%BA%AC) 在国际象棋世界下中国跳棋 【附realclearpolitics网登载的纳瓦罗的文章：普京在国际象棋世界下中国跳棋 普京的乌克兰帝国主义策略正在加速 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 对俄罗斯的殖民化。讽刺就是所讽刺的东西。 为了换取 [#普京](https://gettr.com/hashtag/%23%E6%99%AE%E4%BA%AC) 最终可能在乌克兰攫取的任何一块领土——当然是顿涅茨克和卢甘斯克，也许是敖德萨——普京现在被迫向 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 抵押从石油和天然气到铝的资源。 随着普京进一步加快“去美元化”以逃避美国制裁，俄罗斯卢布也越来越与人民币挂钩。】
-
-
-
-> Please retweet this to the world. HUGE threat to all of us…
-> 
-> Putin Plays Chinese Checkers in a Chess World [https://t.co/pqEPhgua8v](https://t.co/pqEPhgua8v)
-> — Peter Navarro (@RealPNavarro) [March 13, 2022](https://twitter.com/RealPNavarro/status/1503064602560667648?ref_src=twsrc%5Etfw)
-
-
+[雄升飞弹射程可达中国内陆！](https://tw.stock.yahoo.com/news/%E9%9B%84%E6%98%87%E9%A3%9B%E5%BD%88%E5%B0%84%E7%A8%8B%E5%8F%AF%E9%81%94%E4%B8%AD%E5%9C%8B%E5%85%A7%E9%99%B8-%E5%B0%88%E5%AE%B6%E7%88%86-%E7%BE%8E%E5%9C%8B%E5%B8%8C%E6%9C%9B%E5%8F%B0%E7%81%A3%E6%9C%89%E9%80%99%E7%A8%AE%E6%AD%A6%E5%99%A8-013001580.html)
 
  
 
