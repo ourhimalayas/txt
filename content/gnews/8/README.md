@@ -2,40 +2,43 @@
 ---
 
 
-## 【每日聚焦】俄乌战事3月14日简要
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2163122/)
+## 中共国本土日确诊中共病毒病例激增
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2163204/)
 
-**撰稿：蓝莲花农场 文斌**
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据媒体报道，3月13日， 中共国报告的新增本土中共病毒病例，是前一天的三倍多，达到两年来的最高水平。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-23.jpg)
+中共卫健委周日公布的数据显示，周六报告1938 例确诊病例，较前一天的 588 例急剧上升。目前不断增长的病例数使中共宣扬的“动态清零”政策捉衿见肘。
 
-1、俄军在过去一天还是进行了很少的地面进攻，在顿涅茨克州和卢甘斯克州方向有所收获。
+中共国东北吉林省周六报告了1,412例新增本地病例，占全国总数的78％，远高于一天前的134例。
 
-2、乌克兰总参谋部报告说，目前俄军主要还是在试图恢复战斗力，重新集结部队，从远东等地调集增援部队，并试图改善基辅和南部作战方向的后勤支持。俄军可能打算在未来一周恢复对这两个方向的大规模攻击，但可能需要更长的时间（或可能永远不会）来集结足够的可以对基辅包围所需的兵力。
+据当地官媒报道，已经处于封锁状态的省会长春市，当局一直在进行大规模测试，并将一个展览中心变成一个拥有 1500 张床位的临时医院。
 
-3、在基辅地区轰炸了包括 “安东诺夫 “飞机工厂、无轨电车、民用住宅在内的多个目标。
+广东深圳周六报告了 60 例确诊新本地病例，这是自 2020 年初，中共国首次报告爆发疫情以来，该市此类病例的每日最高增幅。深圳所有九区均已停止餐厅用餐，关闭一系列室内娱乐场所。
 
-4、俄军炮击切尔尼戈夫的抽水站，造成4人死亡；而在切尔尼戈夫南部，据乌克兰武装部队总司令瓦列里·扎卢日尼将军透露，俄军炮兵指挥所车辆在乌克兰无人机袭击中被摧毁。
+当地官媒周日称，广东东莞的六名中共地方党政官员，因在中共病毒防控工作中表现不佳而被免职。
 
-5、哈尔科夫地区依旧遭到大面积的炮击和空袭，造成众多平民伤亡，比如在Derhachi，一枚俄罗斯炮弹击中了一栋私人住宅，爆炸导致一名女孩死亡；而哈尔科夫的Saltivka遭到多管火箭炮的猛烈攻击；在Okhtyrka市，由于夜间对居民区的空袭，至少有3人死亡。
+评论人士称，与西方国家近期大幅降低的疫情相比，一直吹嘘抗疫全球第一的中共国，多地的新增病例突然爆升，其实是疫苗灾难的开始。
 
-6、顿涅茨克：俄军继续用多管火箭炮GRAD对顿涅茨克州Avdiyivka的中心区进行炮击。
+参考链接：
+1. [China’s daily cases of symptomatic COVID more than triple](https://www.reuters.com/business/healthcare-pharmaceuticals/china-daily-local-symptomatic-covid-cases-more-than-triple-2022-03-13/)
+2.[截至3月12日24时新型冠状病毒肺炎疫情最新情况](http://www.nhc.gov.cn/xcs/yqtb/202203/1e2807036ce7462ca6cc265f2fbb38b8.shtml)
 
-7、由于Kamyenske的桥梁被毁，Enerhodar和Zaporizhiye之间的交通中断。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-8、约有160辆私家车离开马里乌波尔前往别尔江斯克。
+总编：文真
+编辑：Jack Li文阳   
+审核：文真
+校正/发稿：Fei797
 
-9、乌克兰人在被占领的赫尔松的抗议活动可能正在扩大。有不明身份者用自制燃烧弹烧毁赫尔松市议会秘书Halyna Luhova的房屋；梅利托波尔市民也继续和平示威，抗议抗俄军占领和绑架市长的行为。
-
-10、乌克兰西边多地拉响防空警报，利沃夫东北的罗夫诺市（Rivne）的电视塔被击中。
-
-11、澳大利亚对33名俄罗斯商人及其家人实施制裁；但是中国驻华盛顿大使馆的发言人称：我从未听说俄罗斯要求北京为乌克兰战争提供军事援助。
-
-校对：文斌/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

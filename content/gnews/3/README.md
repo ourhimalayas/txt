@@ -2,18 +2,12 @@
 ---
 
 
-## 2022年3月14日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2163203/)
+## 随着俄占领更多乌领土，普京谈判的要价会更高
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2163262/)
 
-制作：DT新闻组
+03/12/2022 班农战斗室：陷入包围的乌克兰城市马里乌波尔，很快会被俄军攻破。随着俄占领更多乌领土，普京谈判的要价会更高。
 
-**中共的杀戮还在继续……**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0337.jpg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-9.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

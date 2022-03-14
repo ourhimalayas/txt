@@ -2,8 +2,8 @@
 ---
 
 
-## 20220313郭文贵大直播 ：西方一定会切断中共国的SWIFT、禁止中共参与国际外汇交易
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2162714/)
+## 20220313郭文贵大直播 ：20大以前国内政治大战全面开始 将有无数官员在政治斗争中被打倒
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2162822/)
 
 作者：东京樱花团小视频组
 

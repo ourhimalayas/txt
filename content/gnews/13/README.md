@@ -2,32 +2,35 @@
 ---
 
 
-## 中日财经爆┃323家中概股蒸发3260.9亿美元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2163037/)
+## 中共病毒新变种 ”德尔塔克戎” 得到确认
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2163127/)
 
-撰稿：东京樱花团︱盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-16.png)
-[*图片来源*](https://i.ntdtv.com/assets/uploads/2021/08/GettyImages-1234295565-800x450.jpg)
+作者：台湾宝岛农场 dobi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒报导，近日，越来越多的国家出现了由中共病毒的奥米克戎变体与德尔塔变体，混合产生的德尔塔克戎新变体的感染病例，其中包括美国。就连原本否认有新变种病毒出现的世卫组织也表示，法国、荷兰和丹麦也发现了此新变种的感染病例。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-25.jpg)
+报导称，塞浦路斯科学家们在一月份时，首次报告了这种混合变体的出现。有一些专家认为，经过鉴定，这种新菌株有可能是实验室导致的结果。美国科学家在研究报告提到，重组病毒的感染机制仍然不得而知。
 
-3月14日财联社报道，据财联社星矿数据，截至3月11日收市，在美上市的323家中概股中，今年3月总蒸发市值已达3260.9亿美元，折合20706亿人民币。323家中概股当中，以上市后股价最高点与3月11日收市价计，156家公司的股价跌幅达90%及以上，占比达48.29%。
+针对此次新变种病毒的出现，世卫组织中共病毒技术主管玛丽亚•范•科霍夫表示，到目前为止，虽然还没有发现感染此新变种病毒的患者有任何不同症状，也没有迹象显示会引起更严重的感染症状，但确实可以预见，病毒会随着时间的推移而发生改变，这场疫情还远远没有结束。
 
-在此次下跌超一半的公司则多达262家，占比为81.1%。当中，阿里巴巴3月市值累跌501亿美元，排名第一，股价自高点蒸发73%；拼多多3月市值累跌247.3亿，股价自高位蒸发84%；滴滴3月市值累蒸发106.6亿，股价由高位跌去88%。
+参考链接：
+1. [There may be a new COVID variant, Deltacron. Here’s what we know about it.](https://www.usatoday.com/story/news/health/2022/03/10/covid-variant-deltacron/9442062002/)
+2. [更多國家確認新變種Deltacron感染病例](https://www.epochtimes.com/b5/22/3/12/n13642048.htm)
 
-与此同时，香港恒生指数下跌4.97%，报19531.66点，这是自2016年7月以来首度跌破20000点大关，恒生企业指数下跌7.15%，恒生科技指数下跌11.03%。截至收盘，机场、餐饮旅游指数跌超7%，酒类、电工电网、农业、海运、航空、日用化工、软饮料指数跌超4%。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-两市合计共有4266只个股下跌，A股总市值达853797.02亿元，较前一交易日蒸发22410.85亿元，完全可以载入历史，创单日最大跌幅。
+总编：文真
+编辑：Jack Li文阳    
+审核：文真
+校正/发稿：Fei797
 
-不论是在美国还是在港上市企业，以假骗偷为主要手段，最终坑害的是各地人民的血汗钱，而随着中共病毒失控和毒疫苗灾难蔓延，已掩盖不住中共经济即将到来的崩溃。
-
-新闻来源：[**323家在美上市中概股3月以来市值蒸发约2万亿人民币**](https://ml.mbd.baidu.com/r/CNLwwoLJ7i?f=cp&amp;rs=3603746122&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=e67074f37feb3fb1&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
-
-校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
-
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
