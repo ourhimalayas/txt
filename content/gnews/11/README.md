@@ -2,26 +2,25 @@
 ---
 
 
-## 大量健康的运动员接种疫苗后突然倒在比赛场上
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2159417/)
+## 新冠疫苗受害者控诉CDC对疫苗副作用报告不作为
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2159504/)
 
-**素材提供：**熊猫乱滚
-**翻译：**Kevin
-**校对：**Lish
-**字幕：**文驰
-**编辑：**翼族
+翻译：文载Jenny
+校对：枳实
+字幕：文驰
+编辑：Mttfly
 
-现在可能在世界各地，有超过100个左右这样的运动员突然倒下。我们已经发布了相关视频，以便让人们知道疫苗的危害。正如我们之前所说，没有证据表明这些运动员的突然倒下和他们的新冠疫苗接种相关。
+一位新冠疫苗接种受害者在视频中向相关人员控诉，她因接种莫德纳疫苗而患心包炎、胃痉挛、体位直立性心动过速综合征、大脑病变等疾病。美国疾控中心（CDC）作为这种实验性疫苗试验程序的制定者，连续数月都没有协调处理该接种疫苗者的副作用报告。但另一方面，美国政府却在强制为民众接种新冠疫苗，对疫苗副作用不作为，这样正常吗？
 
-您可以在我们网站上找到这些从蒙太奇式的画面中摘取出来的视频。我们发现更多这样信息的时候，我们也正在寻找更多信息，如果他们没有接种疫苗的话，是否有其它理由或原因导致运动员们突然倒下？请问你自己一个问题，你记得什么时候看到或听到过这样的故事？我的意思是，以前也许一年只有一个，但现在有数百个这样的例子。这真的很令人难过，这表明蒙蔽人们的双眼让他们看不到真相是多么容易。
+视频链接：[What’s being done to these people is disgraceful](https://twitter.com/hameggsnsam/status/1484057040549027849?s=21)
 
-*发布：翼族*
+发布：tianzhihuan
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

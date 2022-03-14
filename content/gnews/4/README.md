@@ -2,22 +2,40 @@
 ---
 
 
-## 中日财经爆┃大疆再遭制裁，设计软件被封！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2159515/)
+## 有声|受俄军控制，切尔诺贝利核电站断电
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2159621/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1472.png)图片来源于本文链接
-3月12日，美国设计软件企业Figma封禁大疆等被美国制裁公司的账号。大疆内部收到了一封来自设计软件公司Figma的邮件表示，大疆在发布的制裁名单当中，因此Figma无法再提供软件服务，并开始冻结账户。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1473.png)
-Figma成立于2012年，是基于网页的界面设计协作工具，可以将项目时刻保存在云端，这样就可以保证多方用户对设计进行实时评论或修改。它有三个很显著的特性：实时协作、矢量网格、版本历史。最重要的是，这个工具非常方便，可以在一个文档中同时处理20个以上的画板。大疆等很多企业都使用Figma软件，它相当于企业设计的“画笔”。
+配音：香草山农场 – 蒙古鸿雁
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月9日早上，作为人类历史上核灾难象征的切尔诺贝利核电站，停止了向国际原子能机构传输数据。当天下午，乌克兰国家能源公司表示，切尔诺贝利核电站，已与电网断开连接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1073.png)ttutu’ptu’pitu’piatu’pian图片来自https://cdn.mos.cms.futurecdn.net
+早在2月24日，俄罗斯军队就已经侵占切尔诺贝利核电站。核电站的断电缘由尚不清楚，俄罗斯军队接下来将采取什么措施也不得而知。
 
-大疆是中共军民融合的核心企业之一，大量参与中共军方用于战场的长航时无人机研制，并大量开发用于监控人民的无人机，是中共邪恶统治的重要帮凶。此次设计软件禁用，将大大减缓相关无人机制造的步伐，配合之前的芯片禁售，大疆或将逐步面临停产绝境。
+乌克兰国家安全和情报局特别通信和信息保护局表示，核电站有2万个乏燃料组件需要持续冷却。如果没有电，水泵将无法冷却，储水池中的温度将升高。蒸发将导致核排放。设施内没有通风，所有人员将遭受危险剂量的辐射。此外，放射性云将通过风，转移到乌克兰、白俄罗斯、俄罗斯等欧洲其他地区。
 
-信息来源： [继华为之后 大疆再遭制裁：设计软件被封！](https://www.163.com/dy/article/H2BRCQ120514R9KC.html)
+乌克兰外长库列巴证实了这一消息，并表示，普京发动的野蛮战争正将整个欧洲置于危险之中。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+
+
+文字版原文：[受俄军控制，切尔诺贝利核电站断电](https://gnews.org/zh-hans/2141952/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

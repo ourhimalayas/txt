@@ -2,50 +2,27 @@
 ---
 
 
-## 美国对俄罗斯的制裁延伸至加密货币
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2159296/)
+## 大量健康的运动员接种疫苗后突然倒在比赛场上
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2159417/)
 
-作者：纽约香草山农场 – 四季
+**素材提供：**熊猫乱滚
+**翻译：**Kevin
+**校对：**Lish
+**字幕：**文驰
+**编辑：**翼族
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+现在可能在世界各地，有超过100个左右这样的运动员突然倒下。我们已经发布了相关视频，以便让人们知道疫苗的危害。正如我们之前所说，没有证据表明这些运动员的突然倒下和他们的新冠疫苗接种相关。
 
+您可以在我们网站上找到这些从蒙太奇式的画面中摘取出来的视频。我们发现更多这样信息的时候，我们也正在寻找更多信息，如果他们没有接种疫苗的话，是否有其它理由或原因导致运动员们突然倒下？请问你自己一个问题，你记得什么时候看到或听到过这样的故事？我的意思是，以前也许一年只有一个，但现在有数百个这样的例子。这真的很令人难过，这表明蒙蔽人们的双眼让他们看不到真相是多么容易。
 
+*发布：翼族*
 
-
-
-据[ONA网站](https://www.oann.com/u-s-treasury-department-stresses-that-russia-sanctions-extend-to-cryptocurrency/)援引路透社3月11日的报道，美国财政部外国资产管制处（OFAC）周五发布了新的指导意见，澄清美国公民和数字资产公司必须遵守对俄罗斯的制裁，采取基于风险的措施，确保其不参与被禁止的交易。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-11T224044Z_1_LYNXNPEI2A164_RTROPTP_0_UKRAINE-CRISIS-OFAC-CRYPTOCURRENCY_1.jpg)在2022年3月4日拍摄的这幅插图中，加密货币的代表出现在Coinbase标志前。（REUTERS/Dado Ruvic/Illustration/）
-
-包括Coinbase和Binance在内的主要加密货币交易所，并没有像一些乌克兰官员所呼吁的那样封锁俄罗斯用户。
-
-在周一发布的指导意见中，金融犯罪执法网络（FinCEN）表示，加密货币交易所必须报告任何可疑活动，但周五的指导意见通知更进一步明确指出，交易所被禁止参与或协助非法交易。
-
-这一警告旨在防止数字资产可能被用来规避西方在俄罗斯入侵乌克兰后对其实施的制裁。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
