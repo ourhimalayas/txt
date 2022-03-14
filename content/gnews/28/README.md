@@ -2,26 +2,45 @@
 ---
 
 
-## 新冠疫苗受害者控诉CDC对疫苗副作用报告不作为
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2159504/)
+## 有声|新中国联邦纽约救援团队已赴前线
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2159780/)
 
-翻译：文载Jenny
-校对：枳实
-字幕：文驰
-编辑：Mttfly
+配音：香草山农场 – 蒙古鸿雁
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-一位新冠疫苗接种受害者在视频中向相关人员控诉，她因接种莫德纳疫苗而患心包炎、胃痉挛、体位直立性心动过速综合征、大脑病变等疾病。美国疾控中心（CDC）作为这种实验性疫苗试验程序的制定者，连续数月都没有协调处理该接种疫苗者的副作用报告。但另一方面，美国政府却在强制为民众接种新冠疫苗，对疫苗副作用不作为，这样正常吗？
 
-视频链接：[What’s being done to these people is disgraceful](https://twitter.com/hameggsnsam/status/1484057040549027849?s=21)
 
-发布：tianzhihuan
+![](https://assets.gnews.org/wp-content/uploads/2022/03/jy-2-768x432-1.jpg)
+美东时间3月4日晚，新中国联邦奔赴前线波兰参与救援的战友在纽约完成集结，大约晚上9点乘坐飞机飞往波兰，为前线带去必要的物资救济以及大量药品，如伊维菌素、青蒿素、地塞米松、维生素C、D、阿奇霉素、口罩、手套等预防中共病毒的必需品。
 
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据悉，新中国联邦目前到达前线的队伍有英喜团队、纽伦堡团队，除去补给方面的救援，前线现在开始租用大巴到乌克兰去救人，截止到直播时间，已经救出一车被困人员。
+
+此次纽约前线共有9位战友和1位常驻美国的乌克兰人。Nicole战友因雇主不允许自己去参与救援，毅然辞掉了工作。战友护送救援团队到达机场，此次救援新中国联邦乘坐的都是商务舱，在登机口还遇到了一位同去参与救援的美国人，他是一家上市公司的CEO，和战友Nicole的雇主不同的是，他鼓励自己的雇员去参与救援，他自己也身先士卒奔赴救援前线。
+
+新中国联邦希望困在乌克兰战区的中国同胞不要再听信中共大使馆的骗人话，请不要在机场等一艘船。能出来的尽快出来，乌克兰战区的情况时时刻刻都在变化，请一定不要再错过救援机会。
+
+目前纽约救援团队还在集结，后面还陆续会有团队奔赴前线参与救援。
+
+
+
+文字版原文：[新中国联邦纽约救援团队已赴前线](https://gnews.org/zh-hans/2127699/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

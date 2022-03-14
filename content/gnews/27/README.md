@@ -2,22 +2,38 @@
 ---
 
 
-## 中日财经爆┃大疆再遭制裁，设计软件被封！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2159515/)
+## 今日盖特大V推荐 — 格雷格·贾勒特（Gregg Jarrett）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2159795/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1472.png)图片来源于本文链接
-3月12日，美国设计软件企业Figma封禁大疆等被美国制裁公司的账号。大疆内部收到了一封来自设计软件公司Figma的邮件表示，大疆在发布的制裁名单当中，因此Figma无法再提供软件服务，并开始冻结账户。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1473.png)
-Figma成立于2012年，是基于网页的界面设计协作工具，可以将项目时刻保存在云端，这样就可以保证多方用户对设计进行实时评论或修改。它有三个很显著的特性：实时协作、矢量网格、版本历史。最重要的是，这个工具非常方便，可以在一个文档中同时处理20个以上的画板。大疆等很多企业都使用Figma软件，它相当于企业设计的“画笔”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1484-e1647225203703.png)
+盖特链接： [https://gettr.com/user/greggjarrett](https://gettr.com/user/greggjarrett)
 
-大疆是中共军民融合的核心企业之一，大量参与中共军方用于战场的长航时无人机研制，并大量开发用于监控人民的无人机，是中共邪恶统治的重要帮凶。此次设计软件禁用，将大大减缓相关无人机制造的步伐，配合之前的芯片禁售，大疆或将逐步面临停产绝境。
+格雷格·贾勒特自述：
 
-信息来源： [继华为之后 大疆再遭制裁：设计软件被封！](https://www.163.com/dy/article/H2BRCQ120514R9KC.html)
+福克斯新闻频道的法律和政治分析师。《俄罗斯骗局和猎巫》（THE RUSSIA HOAX and WITCH HUNT） 的作者。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+购书链接：[http://bit.ly/WitchHuntbook](https://bit.ly/WitchHuntbook)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1485.png)图片来源：网络
+**格雷格·贾勒特简介：**
+
+格雷格·贾勒特（Gregory Walter Jarrett 生于1955年4月7日）是美国[保守派](https://en.m.wikipedia.org/wiki/Conservatism_in_the_United_States)新闻评论员、作家和律师。
+
+格雷格·贾勒特于2002年11月加入福克斯新闻，此前他曾在当地的NBC和ABC电视台以及国家网络法庭电视台（Court TV）和微软全国广播公司（MSNBC）工作了十多年。
+
+格雷格·贾勒特以其支持川普的评论，以及对俄罗斯干涉2016年美国大选调查的批评而闻名。2018年，他发表了《俄罗斯骗局》，认为“深层政府”试图破坏川普政府并保护2016年总统候选人希拉里·克林顿。
+
+编撰：洛杉矶盘古农场 — 心照
+
+校审：洛杉矶盘古农场 — 郭友(文苏)
+
+发布：洛杉矶盘古农场 — 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

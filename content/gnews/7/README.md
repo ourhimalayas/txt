@@ -2,90 +2,52 @@
 ---
 
 
-## 拜登：“北约与俄罗斯之间的直接对抗是第三次世界大战，我们必须努力防止这种情况”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2159889/)
+## 樱花深度报道┃中俄联盟带来的风险（下）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2160161/)
 
-Joe Biden (U.S. President)
-乔·拜登（美国总统）
+编译：东京樱花团/Hopkins
 
-We’re gonna continue to stand together with our allies in Europe
-我们将继续与我们在欧洲的盟友站在一起
+【摘要】在俄罗斯入侵乌克兰之前，中国国家主席习近平可能正在加码他与普京关系升温的好处。他的俄罗斯同行正在反击美国的力量，使美国在欧洲的联盟紧张，并在基辅骚扰隔壁的一个年轻的民主国家——所有这些对中共来说几乎没有成本。也许，只是也许，普京甚至会为习近平实现他最重要的外交政策目标铺平道路：武力统一台湾。
 
-and send an unmistakable message
-并传递明白无误的信息
+然而，自战争开始以来，中共与普京合作的陷阱已经暴露无遗。一个重振旗鼓的美国联盟网络集体对俄罗斯实施了致命性制裁。北京试图做它通常做的事情——在各方之间跳踢踏舞，假装保持中立——但发现自己在世界主要大国中是一个异类。没有人知道习近平的同情心在哪里，他的立场进一步疏远了加强的跨大西洋联盟。
 
-We’ll defend every single inch of NATO territory
-我们将保卫每一寸北约领土
+也许普京战争最持久的结果将是导致中共政权的灭亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1498.png)Getty / The Atlantic
+但有很多理由相信这种情况几乎不会发生。最根本的是，两国正朝着相反的方向前进。普京掌管着一个衰落的权力，缺乏维持其政治影响力的经济活力。他有能力向美国领导的全球体系扔一枚手榴弹。相反，中国将自己视为一个正在崛起的大国，而这种崛起仍然（至少目前）与同样的世界秩序联系在一起。习近平和普京一样，希望改变这个体系，但他不能承受太大的破坏。中国经济与世界其他地区如此紧密相连，以至于习近平可能引发的任何动荡都会对他造成下台。
 
-of the full might of the united and galvanized NATO
-团结和激励的北约的全部力量
+加布耶夫说，中国人“希望尽可能多地从参与全球经济和供应链中受益”。他补充说，对中国来说，“与普京对统治乌克兰的痴迷相比，对‘大国’的实际含义的描述更加务实，不那么情绪化，而且更具远见和长远。”
 
-We will not fight a war against Russia in Ukraine
-我们不会在乌克兰与俄罗斯开战
+随着中国变得越来越强大，他们的利益差距可能会扩大。加布耶夫说，习近平“希望通过技术真正主宰俄罗斯经济，将俄罗斯作为初级合作伙伴融入中国联盟，尊重其主权，但使其外交政策和经济更加服从中国的外交政策目标。” “到目前为止，中国还没有能力强迫俄罗斯这样做。但 10 年、15 年后，[那] 完全有可能，这就是 [对俄罗斯] 的风险。”
 
-direct confrontation between NATO and Russia is World War III
-北约与俄罗斯的直接对抗将成为第三次世界大战
+从这个意义上说，普京与习近平的友谊对他们每个人来说可能和对华盛顿一样危险。随着乌克兰事件的发展，他们可能正在弄清楚这一点。
 
-Something we must strive to prevent
-这是我们必须努力防止的事情
+在某些方面，他们的伙伴关系正在支付红利。普京从习近平那里得到了宝贵的外交支持，从北京的角度来看，莫斯科在推动民主方面正在做自耕农的工作。
 
-But we already know Putin war against Ukraine will never be a victory
-但我们已经知道普京对乌克兰的战争永远不会胜利
+然而，为了帮助他的“最好的朋友”，习近平只愿意走这么远。北京在普京的安全担忧（它称之为“合法的”）和他的战争（它没有谴责，但也没有明确支持）之间划清界限。在联合国安理会就一项谴责俄罗斯入侵乌克兰的措施进行投票时，中国投了弃权票。
 
-He hoped to dominate Ukraine without a fight, he failed
-他希望轻松战胜乌克兰，他失败了
+部分原因是意识形态。中国主张国际关系应以“不干涉”他国事务为基础。没有比入侵更大的干涉形式，因此普京的侵略使习近平处于尴尬的外交地位。中国官员在他们对乌克兰的评论中一再强调他们对尊重国家主权的重视。
 
-he hoped fracture European resolve, he failed
-他希望破坏欧洲的决心，他失败了
+不仅如此，中国自身的国家利益将限制习近平能够提供多少支持。例如，尽管北京反对对俄罗斯实施的制裁，并且可能会想方设法帮助普京逃避制裁，但中国已经融入全球经济，不会冒被制裁的风险。制裁宣布后，中国国有银行开始限制购买俄罗斯商品的信贷，中国支持的亚洲基础设施投资银行暂停了与俄罗斯有关的活动。研究公司凯投宏观 (Capital Economics) 的首席亚洲经济学家马克·威廉姆斯 (Mark Williams) 在 2 月份的一份报告中写道：“中国很可能会在西方制裁允许的范围内，通过金融和贸易支持俄罗斯。” “大公司和政府不会冒与西方关系进一步破裂的风险。”
 
-he hoped to weaken the Transatlantic Alliance, he failed
-他希望削弱了跨大西洋联盟，他失败了
+这是坦克胎面上路的地方。归根结底，中国的首要任务始终是中国。到目前为止，北京一直坚称其与莫斯科的友谊“坚如磐石”，但它只会帮助普京（或就此而言，任何其他人），只要这不损害其自身议程。这意味着习近平和普京之间的婚姻很可能仍然只是一种表面婚姻。两人仍然会给美国及其朋友带来很多麻烦，但可能难以实现真正的联盟，就像美国与日本或英国的那种联盟，双方都愿意协调行动和政策。
 
-He hoped to split apart American democracies in terms of our positions, he failed
-他希望在我们的立场上分裂美国民主国家，他失败了
+普京帮了习近平一个大忙：揭示了如果中国发动自己的战争会发生什么。普京的入侵表明——与北京领导层似乎相信的相反——美国的同盟体系仍然存在、很好，而且仍然有效。痴迷于国内稳定的中国共产党可能对俄罗斯受到制裁的程度感到有些不安，并计算着忍受制裁的代价。许多评论员预测，乌克兰危机将成为中国对台湾发动军事袭击的前兆。到目前为止，它可能做了相反的事情。
 
-The American people united, the world is united
-美国人民是团结的，世界是团结的
+现在的问题是：习近平有何反应？乌克兰政府已直接呼吁中国利用其对普京的影响力来结束敌对行动。据我们所知，北京方面一直不置可否。所以习近平面临一个重大的选择：他可以抓住这个千载难逢的机会，成为全球好人，代表乌克兰介入危机，在此过程中帮助缓解中美对抗，并将其政府定位为国际事务中的建设性参与者.或者他可以继续与普京同床并追求他削弱美国实力的长期目标。
 
-And we stand with the people of Ukraine
-我们与乌克兰人民站在一起
+也许普京战争最持久的结果将是导致中共政权的灭亡。
 
-We will not let autocrats and would be emperors dictate the direction of the world
-我们不会让独裁者和皇帝左右世界的方向
+（全文完）
 
-Democracies are rising to meet this moment
-民主国家正在崛起迎接这一刻
+作者：迈克尔·舒曼（Michael Schuman）/《大西洋》杂志特约作家
 
-Rally in the world to the side of peace, the side of security
-团结在世界和平的一边，安全的一边
+迈克尔·舒曼（Michael Schuman）是大西洋理事会全球中国中心（Global China Hub）的非常驻高级研究员，著有《超级大国中断：世界中国史》（Superpower Interrupted： The Chinese History of the World）和《奇迹：亚洲寻求财富的史诗故事》（The Miracle： The Epic Story of Asia’s Quest for Wealth）。
 
-we’re showing our strength and we will not falter
-我们正在展示我们的力量，我们不会动摇
+信息来源：[China’s Russia Risk](https://www.theatlantic.com/international/archive/2022/03/xi-putin-friendship-russia-ukraine/626973/)
 
-God bless all of you, God bless Ukraine and God bless our troops
-上帝保佑你们所有人，上帝保佑乌克兰，上帝保佑我们的军队
-
-原视频链接: [https://twitter.com/newsmax/status/1502318377737539584?s=24](https://twitter.com/newsmax/status/1502318377737539584?s=24)
-
-Date:03/12/2022
-原视频标题:BIDEN: “Direct confrontation between NATO and Russia is World War III, something we must strive to prevent”
-拜登：“北约与俄罗斯之间的直接对抗是第三次世界大战，我们必须努力防止这种情况”
-原视频日期：2022/03/12
-原视频链接https://twitter.com/newsmax/status/1502318377737539584?s=24
-任务编号：KE450（3989）
-视频时间段 : 0:00-1:15
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场-庚子
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

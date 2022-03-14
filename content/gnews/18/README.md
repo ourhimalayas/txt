@@ -2,45 +2,18 @@
 ---
 
 
-## 中共病毒疫苗创造亿万富翁 中共国六人上榜
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159760/)
+## 【粤语配音】2022年3月13日：中共和普京密谋合演“围魏救赵”
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2159975/)
 
-作者：温哥华扬帆农场—動物農莊裡的小螞蟻Michael.Tonny
+紐約香草山-香港部
 
+共产党玩的这招儿，在中东点燃的战火，包括昨天伊拉克的所有的炮击，都是共产党和普京、习太阳一早的计划，就是发动乌克兰战争，同时共产党要配合普京，为了截击美国和西方的金融制裁，这邪恶的五国就是中共国、俄罗斯国，伊朗国、北朝鲜国，然后现在还有加入的中东的邪恶的小国家，包括沙特的穆哈默德・本・萨勒曼，原来是巴基斯坦。
 
+这几国要在中东开展的叫“围魏救赵”就是把中东的整个的世界的能源供给的所有基本的（设施）砸烂它，点燃战火，达到你（美欧）制裁俄罗斯SWIFT，甚至下一步制裁共产党的SWIFT，中国和香港港币脱钩，然后影响我（中共）攻击台湾，我（中共）让你西方的整个石油崩溃，特别是美国，虽然是石油净出口国，但石油价格影响了美国的经济和就业
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+然后欧洲是完全的石油和能源的依赖，整个欧洲，一旦没有了油、没有了汽，欧洲就会在俄罗斯这事上妥协，就会要继续买俄罗斯石油和在金融上妥协，停止SWIFT制裁，中共就可以打台湾，这叫“围魏救赵”。我会告诉大家，马上你看到了，在叙利亚、在沙特、在伊拉克，美军基地、美军被打击会超出你想象，甚至放毒。
 
-
-
-近日，有机构披露，自中共病毒大流行开始以来，至少有9人成为新的亿万富翁，这九位新亿万富翁的总净资产为193亿美元。八位现有的亿万富翁的总财富增加了322亿美元。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-6.jpg)
-在这17位亿万富翁中，有6人来自中共国。他们分别是：中共国重庆智飞生物制品股份有限公司主席，蒋仁生家族；中共国国药控股股份有限公司，谢炳；中共国重庆智飞生物制品股份有限公司联合创始人，吴冠江；中共国天津康希诺生物联合创始人、董事长兼首席科学官朱涛；中共国天津康希诺生物联合创始人兼高级副总裁邱东旭；中共国天津康希诺生物联合创始人兼高级副总裁毛慧华。
-
-参考链接：
-1. [COVID病毒疫苗创造亿万富翁 中共国6人上榜](https://gnews.org/zh-hans/2152315/)
-2. [COVID vaccines create 9 new billionaires with combined wealth greater than cost of vaccinating world’s poorest countries](https://www.oxfam.org/en/press-releases/covid-vaccines-create-9-new-billionaires-combined-wealth-greater-cost-vaccinating)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-审核：文真
-总编：飞虹
-编辑：Jack Li文阳
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+记住七哥这段讲话，将成为世界未来军事、战略，所有人研究的话题，伟大是在不经意间发生的，经意的都不叫伟大，叫做制造虚伪的伟大，我们刚才这段讲话，绝对会成为人类未来战争历史当中，唯一一个能讲出这些话的人，就是咱新中国联邦你七哥，香港的港币和中国人民币的SWIFT，只能成为俄罗斯和他们走向疯狂的一个幻想，最终全部被归零和消灭，谢谢
 
  
 

@@ -2,38 +2,26 @@
 ---
 
 
-## 今日盖特大V推荐 — 格雷格·贾勒特（Gregg Jarrett）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2159795/)
+## 樱花时政┃德法规劝普京停战无果 美再援乌2亿美元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2160094/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1484-e1647225203703.png)
-盖特链接： [https://gettr.com/user/greggjarrett](https://gettr.com/user/greggjarrett)
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1495.png)[图片来源](https://gnews.org/wp-admin/post-new.php?lang=zh-hans#imgrc=PNkE2FrKnGD_qM)
+德国总理肖尔茨和法国总统马克龙3月12日同俄罗斯总统普京通话，爱丽舍宫称此次对话“十分艰难”。美国总统拜登当天批准向乌克兰再提供2亿美元军事援助。
 
-格雷格·贾勒特自述：
+马克龙和肖尔茨在12日同普京通话时，再次敦促立即在乌克兰停火，并通过外交解决争端。马克龙顾问透露，谈话进行得”很艰难”，普京没有停止战争的意愿。法方幕僚称，马卡龙和肖尔茨要求俄军停止对马里乌波尔的围攻，在断水断电的情况下，那里正在出现一场人道主义灾难。
 
-福克斯新闻频道的法律和政治分析师。《俄罗斯骗局和猎巫》（THE RUSSIA HOAX and WITCH HUNT） 的作者。
+马克龙表示，将竭尽外交手段，坚持对普京的强硬路线，施加”最大”压力。马克龙此前已透露，欧盟正在酝酿对俄的第四个制裁方案，其力度堪比国际社会对朝鲜和叙利亚的制裁。
 
-购书链接：[http://bit.ly/WitchHuntbook](https://bit.ly/WitchHuntbook)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1485.png)图片来源：网络
-**格雷格·贾勒特简介：**
+据白宫12日公布的消息，美总统拜登批准了向乌再提供2亿美元军援，援助方案包括反坦克和防空武器系统、小型武器和协助训练乌克兰军队等项目。
 
-格雷格·贾勒特（Gregory Walter Jarrett 生于1955年4月7日）是美国[保守派](https://en.m.wikipedia.org/wiki/Conservatism_in_the_United_States)新闻评论员、作家和律师。
+在战争爆发之初，拜登就已批准向乌提供价值3.5亿美元的军事援助。
 
-格雷格·贾勒特于2002年11月加入福克斯新闻，此前他曾在当地的NBC和ABC电视台以及国家网络法庭电视台（Court TV）和微软全国广播公司（MSNBC）工作了十多年。
+信息来源：[德法俄领导人再通话：普京无意停战](https://www.dw.com/zh/%E5%BE%B7%E6%B3%95%E4%BF%84%E9%A2%86%E5%AF%BC%E4%BA%BA%E5%86%8D%E9%80%9A%E8%AF%9D%E6%99%AE%E4%BA%AC%E6%97%A0%E6%84%8F%E5%81%9C%E6%88%98/a-61110391)
 
-格雷格·贾勒特以其支持川普的评论，以及对俄罗斯干涉2016年美国大选调查的批评而闻名。2018年，他发表了《俄罗斯骗局》，认为“深层政府”试图破坏川普政府并保护2016年总统候选人希拉里·克林顿。
-
-编撰：洛杉矶盘古农场 — 心照
-
-校审：洛杉矶盘古农场 — 郭友(文苏)
-
-发布：洛杉矶盘古农场 — 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U+20](https://discord.gg/2vuvRm7z6U+20)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

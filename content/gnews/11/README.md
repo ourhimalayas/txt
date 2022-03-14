@@ -2,33 +2,24 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月13日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2159813/)
+## 樱花时政┃俄罗斯发动战争后向中共求援 美国表示不会袖手旁观
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2160121/)
 
-作者：香草山翻译部
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-63.jpg)[图片来源](https://www.bbc.com/news/world-europe-60729216#:~:text=Zhytomyr%3A%20Aerial%20attacks,By%20Oleh%20Chernysh)
+几家美国媒体3月13日报道，美国官员称，俄罗斯在入侵乌克兰后向中共请求军事和经济援助。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-5.jpg)
+3月14日，美国总统国家安全事务助理沙利文在罗马会见了中共国外交部的杨洁篪，表示不会容忍对俄罗斯的支持。
 
+据美国媒体报道，俄罗斯在2月24日发动对乌克兰的全面入侵后，要求中共国提供军事装备和物资。并要求提供额外的经济援助，以减轻日本、美国、欧洲和其它国家实施制裁的影响。中共国对此的反应尚未透露，但美国对中俄的进一步接近越来越警觉。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-10.png)
-校对：Stay文苑
+13日，沙利文在CNN电视台表示，正在 “密切关注中共国向俄罗斯提供了多大程度的物资和经济支持，并强调，我们已经告诉中共国政府，不会允许任何国家来弥补俄罗斯的损失，美国不会袖手旁观。
 
-编辑：Stay文苑
+信息源：[ロシア、侵攻後中国に支援要請　米警戒、高官協議で提起へ](https://news.yahoo.co.jp/articles/f109d1f7e5485221222e5c9db62a380e565e79b2#:~:text=%E3%8)
 
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/pzv6ak776d](https://gettr.com/post/pzv6ak776d)
-访谈：[https://gettr.com/post/pzvj2iac82](https://gettr.com/post/pzvj2iac82)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-14.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

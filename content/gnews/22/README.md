@@ -2,45 +2,89 @@
 ---
 
 
-## 有声|文贵先生提醒战友，一定要注意安全
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2159675/)
+## 拜登：“北约与俄罗斯之间的直接对抗是第三次世界大战，我们必须努力防止这种情况”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2159889/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+Joe Biden (U.S. President)
+乔·拜登（美国总统）
 
+We’re gonna continue to stand together with our allies in Europe
+我们将继续与我们在欧洲的盟友站在一起
 
-新的研究发现，针对亚裔美国人社区的仇恨犯罪已经达到一些前所未有的水平。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2763.jpg)
-仇恨和极端主义研究中心公布的仇恨犯罪数据汇编显示，去年反亚裔仇恨犯罪与前年相比增加了339%，纽约、旧金山、洛杉矶和其他城市在2020年超过了他们的记录。这一显著的激增是美国十几个大城市向警方报告的涉嫌仇恨犯罪总体增长11%的一部分。
+and send an unmistakable message
+并传递明白无误的信息
 
-非营利性民权团体亚裔美国人促进正义–AAJC的主席和执行董事约翰-C-杨说，在亚裔美国人社区遭遇由大流行病引发的种族主义时，”我们必须让人们注意到影响所有社区的仇恨，”杨说。”当我们的亚裔美国人社区受到攻击时，代表不同肤色社区和不同信仰社区的盟友的支持意义重大。我们所有的不同社区，包括LGBTQ+社区，都经历过仇恨，这其中有一种深刻但悲惨的团结。”
+We’ll defend every single inch of NATO territory
+我们将保卫每一寸北约领土
 
-根据数据，2021年报告的反亚裔仇恨犯罪激增，明显高于2020年，当时与前一年相比增加了124%。纽约市的上升幅度特别大，从30起到133起反亚裔仇恨犯罪，增加了343%。旧金山也经历了一个惊人的跳跃，从9起犯罪到60起，增加了567%。而洛杉矶也有类似的大幅增长，达到173%。
+of the full might of the united and galvanized NATO
+团结和激励的北约的全部力量
 
-杨说，在3月份左右，8人（其中6人是亚裔女性）在亚特兰大地区的水疗中心被枪杀后，人们的担忧达到了顶峰。尽管已经取得了一些进展，包括民选官员意识的提高，杨说这个问题还没有得到补救。
+We will not fight a war against Russia in Ukraine
+我们不会在乌克兰与俄罗斯开战
 
-3月8日，郭文贵先生在盖特发文，由于中共在全世界犯下的罪行，导致中国人被迫成为中共的代罪羔羊。文贵先生提醒广大战友们，一定要注意安全，保护好自己和家人。
+direct confrontation between NATO and Russia is World War III
+北约与俄罗斯的直接对抗将成为第三次世界大战
 
+Something we must strive to prevent
+这是我们必须努力防止的事情
 
+But we already know Putin war against Ukraine will never be a victory
+但我们已经知道普京对乌克兰的战争永远不会胜利
 
-文字版原文：[文贵先生提醒战友，一定要注意安全](https://gnews.org/zh-hans/2129608/)
+He hoped to dominate Ukraine without a fight, he failed
+他希望轻松战胜乌克兰，他失败了
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+he hoped fracture European resolve, he failed
+他希望破坏欧洲的决心，他失败了
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+he hoped to weaken the Transatlantic Alliance, he failed
+他希望削弱了跨大西洋联盟，他失败了
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+He hoped to split apart American democracies in terms of our positions, he failed
+他希望在我们的立场上分裂美国民主国家，他失败了
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+The American people united, the world is united
+美国人民是团结的，世界是团结的
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+And we stand with the people of Ukraine
+我们与乌克兰人民站在一起
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+We will not let autocrats and would be emperors dictate the direction of the world
+我们不会让独裁者和皇帝左右世界的方向
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Democracies are rising to meet this moment
+民主国家正在崛起迎接这一刻
+
+Rally in the world to the side of peace, the side of security
+团结在世界和平的一边，安全的一边
+
+we’re showing our strength and we will not falter
+我们正在展示我们的力量，我们不会动摇
+
+God bless all of you, God bless Ukraine and God bless our troops
+上帝保佑你们所有人，上帝保佑乌克兰，上帝保佑我们的军队
+
+原视频链接: [https://twitter.com/newsmax/status/1502318377737539584?s=24](https://twitter.com/newsmax/status/1502318377737539584?s=24)
+
+Date:03/12/2022
+原视频标题:BIDEN: “Direct confrontation between NATO and Russia is World War III, something we must strive to prevent”
+拜登：“北约与俄罗斯之间的直接对抗是第三次世界大战，我们必须努力防止这种情况”
+原视频日期：2022/03/12
+原视频链接https://twitter.com/newsmax/status/1502318377737539584?s=24
+任务编号：KE450（3989）
+视频时间段 : 0:00-1:15
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场-庚子
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,46 +2,42 @@
 ---
 
 
-## 美国驻伊拉克领事馆附近发生导弹爆炸
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2159779/)
+## 樱花深度报道┃中俄联盟带来的风险（上）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2160092/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
+编译：东京樱花团/Hopkins
 
+【摘要】在俄罗斯入侵乌克兰之前，中共国家主席习近平可能正在加码他与普京关系升温的好处。他的俄罗斯同行正在反击美国的力量，使美国在欧洲的联盟紧张，并在基辅骚扰隔壁的一个年轻的民主国家——所有这些对中共来说几乎没有成本。也许，只是也许，普京甚至会为习近平实现他最重要的外交政策目标铺平道路：武力统一台湾。
 
+然而，自战争开始以来，中国与普京合作的陷阱已经暴露无遗。一个重振旗鼓的美国联盟网络集体对俄罗斯实施了致命性制裁。北京试图做它通常做的事情——在各方之间跳踢踏舞，假装保持中立——但发现自己在世界主要大国中是一个异类。没有人知道习近平的同情心在哪里，他的立场进一步疏远了加强的跨大西洋联盟。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+也许普京战争最持久的结果将是导致中共政权的灭亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1496.png)Getty / The Atlantic
+在俄罗斯入侵乌克兰之前，中国国家主席习近平可能正在加码他与弗拉基米尔·普京关系升温的好处。他的俄罗斯同行正在反击美国的力量，使美国在欧洲的联盟紧张，并在基辅骚扰隔壁的一个年轻的民主国家——所有这些对中国来说几乎没有成本。也许，只是也许，普京甚至会为习近平实现他最重要的外交政策目标铺平道路：武力统一台湾。
 
+然而，自战争开始以来，中国与普京合作的陷阱已经暴露无遗。一个重振旗鼓的美国联盟网络集体对俄罗斯实施了致命性制裁。北京试图做它通常做的事情——在各方之间跳踢踏舞，假装保持中立——但发现自己在世界主要大国中是一个异类。没有人知道习近平的同情心在哪里，他的立场进一步疏远了加强的跨大西洋联盟。
 
+这些矛盾应该不足为奇。自一个世纪前共产党在中国成立以来，它与俄罗斯的关系曾经有着巨大的希望，但也经常陷入危险之中。所以今天任何可能都存在。
 
-据国外媒体报道，当地时间3月13日凌晨，伊朗阿塞拜疆省的哈萨巴德军事基地发射数枚导弹，在美国驻伊拉克埃尔比勒领事馆附近爆炸。
+在华盛顿，中国和俄罗斯之间的关系表面上正在改善，这让安全专家担心，美国将需要与世界上两个最强大的威权国家组成的邪恶联盟抗衡，这些国家决心以有利于他们的方式重塑全球秩序。阴谋集团可能会带来巨大的战略挑战：一次面对一个人已经够困难的了，正如普京入侵乌克兰的悲剧所表明的那样；对美国全球力量的双重且可能是协调的攻击将更加复杂。北京和莫斯科可以互相帮助逃避美国的制裁，从而剥夺华盛顿的影响力。反美的可能性是无穷无尽的。
 
-一位伊拉克官员最初说导弹击中了美国领事馆，后来另一名官员证实导弹是在美国设施附近爆炸的。
+但远不能确定。中国和俄罗斯在冷战期间错失了联手对抗美国的机会，因为意识形态的争斗、个人的竞争和相互冲突的野心让他们自己一败涂地。今天，中国和俄罗斯的利益也并不完全一致——事实上，两国很可能走向不同的未来。
 
-目前暂无人员伤亡报道。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12-3.jpg)
-参考链接：
-[Iran claims missile barrage near US consulate in Iraq](https://abcnews.go.com/International/wireStory/missiles-target-us-consulate-north-iraq-casualties-83412862)
+最重要的是，中国与俄罗斯的关系正在成为北京领导人希望在世界上扮演什么角色的一个测试案例。他们一再声称支持“和平共处”和结束分裂的“冷战思维”。但是，在他不合时宜地寻求重建苏联帝国的过程中，即使是被动地站在普京一边，习近平似乎只是另一个正在形成的独裁者。那么，北京如何处理与莫斯科的关系，将有助于将中国定义为一个大国。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+近几十年来，中国在世界上的地位在很大程度上取决于与美国的关系。但在许多方面，俄罗斯对于现代中国的故事同样至关重要，无论是好是坏。
 
-总编/审核：飞虹
-编辑：文特
-校对/发稿：为真不破20
+（未完待续）
 
-**更多资讯，更多关注**
+作者：迈克尔·舒曼（Michael Schuman）/《大西洋》杂志特约作家
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+迈克尔·舒曼（Michael Schuman）是大西洋理事会全球中国中心（Global China Hub）的非常驻高级研究员，著有《超级大国中断：世界中国史》（Superpower Interrupted： The Chinese History of the World）和《奇迹：亚洲寻求财富的史诗故事》（The Miracle： The Epic Story of Asia’s Quest for Wealth）。
 
+信息来源：[China’s Russia Risk](https://www.theatlantic.com/international/archive/2022/03/xi-putin-friendship-russia-ukraine/626973/)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
