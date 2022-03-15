@@ -16,6 +16,8 @@
 ---
 ## 頁面 32/41 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) ... [41](/content/README-41.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)
 
+[文字版：8月29日2018 年文贵先生报平安直播: 谈王健事件发布会的准备工作；班农开会8小时基本内容](/content/2018/09/20180901-709890250224874284.md)
+
 [文字版：路德访谈前白宫切尼副总统国安顾问叶望辉、曹长青：中美贸易战、美国中期选举、郭文贵爆料的意义](/content/2018/08/20180830-588921941020307115.md)
 
 [文字版8月24日澳大利亚是西方向中共说不的开始！西方的一根筋为什么能赢中共的千招会！西方用法律．宗教．科技．赢到了什么！](/content/2018/08/20180827-8438310387412088286.md)
@@ -63,8 +65,6 @@
 [文字版：July 9th 2018．王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？](/content/2018/07/20180710-2033069974209071479.md)
 
 [文字版：July 6th 2018 郭媒体直播](/content/2018/07/20180707-180274757659338281.md)
-
-[翻译：中国电子间谍威胁 by Bill](/content/2018/07/20180707-1620127195279414710.md)
 
 
 ## 頁面 32/41 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) ... [41](/content/README-41.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)

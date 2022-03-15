@@ -16,6 +16,8 @@
 ---
 ## 頁面 8/41 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [41](/content/README-41.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[2021年8月19日郭文贵先生吃烧鸡配辣椒盖特全文字版](/content/2021/08/20210819-1569809.md)
+
 [全文字版2021年8月18日郭文贵先生G-TV直播](/content/2021/08/20210818-1477935.md)
 
 [全文字版2021年8月17日郭文贵先生G-TV直播](/content/2021/08/20210817-1475351.md)
@@ -63,8 +65,6 @@
 [全文字版2021年7月16日郭文贵先生G-TV直播](/content/2021/07/20210716-1402217.md)
 
 [全文字版郭文贵先生2021年7月15日G-TV直播](/content/2021/07/20210715-1399731.md)
-
-[全文字版2021年7月14日郭文贵先生G-TV直播](/content/2021/07/20210714-1397682.md)
 
 
 ## 頁面 8/41 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [41](/content/README-41.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)

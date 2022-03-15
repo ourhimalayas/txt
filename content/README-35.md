@@ -16,6 +16,8 @@
 ---
 ## 頁面 35/41 [**<**](/content/README-34.md) [1](/content/README.md) ... [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) **35** [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) [40](/content/README-40.md) [41](/content/README-41.md) ... [**>**](/content/README-36.md) [查看全部](/content/README-all.md)
 
+[文字版：3月24号郭先生平安视频向大家汇报．昨天的会议交流＂中南妖与中南怪＂情况！一切都是刚刚开始](/content/2018/04/20180418-6369908428549122870.md)
+
 [文字版20183月21日江．曾．两家是如何以65%的利息放高利贷的！](/content/2018/04/20180418-6803153181379823520.md)
 
 [文字版：2018年3月20号今天我们完成了对．谣言．诽谤．威胁．文贵的陈军先生．袁健斌先生．林宇丹女士(美猴王)三个人的控告！我们绝不会忘掉一个帮助我文贵的任何一个恩人！也不会放过一个伤害我们的坏人！](/content/2018/04/20180418-7259055052246962788.md)
@@ -63,8 +65,6 @@
 [文字版2018年2月12号郭媒体首次直播测试谈吴征如何送钱给《博讯》与韦石](/content/2018/04/20180418-3829299290570910245.md)
 
 [文字版：文贵2月11号报平安视频](/content/2018/04/20180418-7379798999426119015.md)
-
-[文字版：2018年2月10日郭先生再 郭媒体六段演讲](/content/2018/04/20180418-7159181407052206452.md)
 
 
 ## 頁面 35/41 [**<**](/content/README-34.md) [1](/content/README.md) ... [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) **35** [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) [40](/content/README-40.md) [41](/content/README-41.md) ... [**>**](/content/README-36.md) [查看全部](/content/README-all.md)

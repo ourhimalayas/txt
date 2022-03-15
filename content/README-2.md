@@ -16,6 +16,8 @@
 ---
 ## 頁面 2/41 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [41](/content/README-41.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
 
+[2022年2月13日《文贵大直播》全文字版](/content/2022/02/20220213-2004866.md)
+
 [2022年2月11日《文贵大直播》全文字版](/content/2022/02/20220211-1991251.md)
 
 [2022年2月9日《文贵大直播》全文字版](/content/2022/02/20220209-1986483.md)
@@ -63,8 +65,6 @@
 [2022年1月9日 文贵大直播 全文字版](/content/2022/01/20220109-1842354.md)
 
 [2022年1月7日郭文贵先生直播全文字版](/content/2022/01/20220107-1837036.md)
-
-[2022年1月5日郭文贵先生直播全文字版](/content/2022/01/20220105-1830280.md)
 
 
 ## 頁面 2/41 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [41](/content/README-41.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
