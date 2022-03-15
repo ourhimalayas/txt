@@ -2,52 +2,40 @@
 ---
 
 
-## 中共控制百姓的四座大牢
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2166640/)
+## 最毒不过人心,人心一旦失去信仰控制比魔还魔比狗还臭
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2166731/)
 
-作者：纽约香草山农场教育部-马克文，朱丽叶
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8829.61%EF%BC%89%E6%9C%80%E6%AF%92%E4%B8%8D%E8%BF%87%E4%BA%BA%E5%BF%83%2C%E4%BA%BA%E5%BF%83%E4%B8%80%E6%97%A6%E5%A4%B1%E5%8E%BB%E4%BF%A1%E4%BB%B0%E6%8E%A7%E5%88%B6%E6%AF%94%E9%AD%94%E8%BF%98%E9%AD%94%E6%AF%94%E7%8B%97%E8%BF%98%E8%87%AD%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:c)
 
+郭文贵先生：我走出清丰看守所，我阅尽人间的苍凉、人情的冷漠、人生的现实，世界上最毒不过人心我告诉你。很多人骂“狗改不了吃屎”，我想问问人类，人类上，记住狗是人类的朋友，狗吃人吗？可你人吃狗肉。狗改不了吃屎，你人改了吃屎了吗？你人还吃人呢。
 
+最毒不过人心我告诉你，人心一旦没有了信仰控制，比魔还魔，比狗还臭，不如狗！你看那“锁链女”，你看中国对女性，你看看周围人的冷漠，包括我，你能受得了吗？你们的妈妈、你们的姐妹、你们的闺女24年（被）锁着链子，被无数个男人来天天在那块强奸轮奸，还不让吃不让穿，然后生那么多孩子，这是人道吗？就这就有政府撒谎，有人到那蹭热度、蹭流量、拍视频，天诛地灭都不过为之。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+编辑整理：Jacques；
 
+字幕档制作：兵嫂；
 
+视频制作及上传：Cindy；
 
-中共用尽了邪恶的手段钳制中国百姓，可总结为控制百姓的四座大牢：
+G-News发布：海贼王M.D.LUFFY；
 
-1）以家为牢，通过散播病毒，严控百姓自由。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-2）以网为牢，切断外网与中国的链接，斩断百姓了解世界真实情况的管道。通过控制的新闻媒体牢牢占据百姓的业余时间。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide15-1.jpg)
-3）以贷为牢，普及月度还款，掏干百姓钱包，让百姓背上沉重贷款，在贷款的牢笼里，疲于奔命，无暇顾及世界实时。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-4）以校为牢，把学校从传播知识的圣地，变成操纵青少年思想的阵营。学校垒起一座思考的地牢，将学生的求知欲，好奇心，创新能力全部杀死，摧垮学生的胆量，学校只有一个任务，教学生两个字：听话。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-从经济，精神，娱乐，健康，焊起四座铜墙铁壁般的牢笼，把百姓，圈禁起来，不能呼吸，达到长期奴役百姓的目的。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-参考链接：
-[1. 2022年3月13日 文贵大直播：如果西方切断中共国的SWIFT、禁止中共国参与国际外汇交易，查封盗国贼家族在海外的资产，会涉及多大规模在中共国会发生什么？爆料革命警告中东事端；中共在俄乌战争之后的下一步动作 在中东会发生什么；刘彦平 傅政华 孙立军 吴征杨澜 王岐山 孟建柱 胡舒立 单伟健 张明鹏（大连西区法院）刘强（辽宁副省长）将会是什么下场](https://gettr.com/streaming/pzrn4eb349)
-[2. 胡塞武装：我们轰炸了利雅得、艾卜哈和吉赞的石油设施](https://chinese.aljazeera.net/news/military/2022/3/12/%E8%83%A1%E5%A1%9E%E6%AD%A6%E8%A3%85%E6%88%91%E4%BB%AC%E8%BD%B0%E7%82%B8%E4%BA%86%E5%88%A9%E9%9B%85%E5%BE%97%E8%89%BE%E5%8D%9C%E5%93%88%E5%92%8C%E5%90%89%E8%B5%9E%E7%9A%84%E7%9F%B3%E6%B2%B9%E8%AE%BE)
-3. [中国单日新增病例再激增 多地居民面临封城](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E5%8D%95%E6%97%A5%E6%96%B0%E5%A2%9E%E7%97%85%E4%BE%8B%E5%86%8D%E6%BF%80%E5%A2%9E-%E5%A4%9A%E5%9C%B0%E5%B1%85%E6%B0%91%E9%9D%A2%E4%B8%B4%E5%B0%81%E5%9F%8E/a-61110390)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-总编/编辑/审核：DM
-校对/发稿：为真不破20
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-**更多资讯，更多关注**
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+G-TV：日本银河系农场。
 
  
 

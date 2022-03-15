@@ -2,42 +2,48 @@
 ---
 
 
-## 感谢习近平王岐山PAG太平联盟帮助爆料革命办砸冬奥
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2166575/)
+## 香港恒生指数跌破2万大关
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2166636/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8824.61%EF%BC%89%E6%84%9F%E8%B0%A2%E4%B9%A0%E8%BF%91%E5%B9%B3%E7%8E%8B%E5%B2%90%E5%B1%B1PAG%E5%A4%AA%E5%B9%B3%E8%81%94%E7%9B%9F%E5%B8%AE%E5%8A%A9%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD%E5%8A%9E%E7%A0%B8%E5%86%AC%E5%A5%A5%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:0)
+作者：日本方舟农场 – Andy5
 
-郭文贵先生：我想说这次冬奥会里边，真的你们没有任何人看到这个冬奥会里边对我们爆料革命有多好！就是我一看到冬奥会的信息，我就真的是我走道儿我就想晃着走，过去我看人走道儿，男的走道儿怎么拧屁股啊？我觉得很别扭，现在我都想拧着屁股走道儿我觉得啊，我就觉得简直幸福不行不行的了！
 
-我觉得是老天真的帮我们，就是说没有一件事儿不是“习太阳”帮我们都干了，我们想干很难，他都帮我们干了，还得感谢王岐山。包括这PAG太平联盟，包括这冬奥会他整个干这事儿，漏水、对运动员的威胁。
 
-再一个选址，大家现在全世界都在问一个问题：北京啥时候有滑雪的地方？所有看直播的，北京，你在北京哪滑过雪呢？你们啥时候滑过雪呢？中国你说雪最多的东北，长白山、什么什么这那的，你啥时候冰雪运动是中国人的主要运动了呢？何况冰雪运动在世界的体育界里边它都是小项目。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-编辑整理：Jacques；
 
-字幕档制作：兵嫂；
 
-视频制作及上传：Cindy；
+当地时间3月14日，香港恒生指数大跌近5%，其中，恒生科技指数更是暴跌11%，刷新历史最大跌幅。目前，恒指已跌破2万点大关，暂时停留在1万9千5百点。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide14-2.jpg)
+据查询，恒指最高峰出现在2018年，突破了3万3千点。然而，在2019年香港人轰轰烈烈的返送中，以及2020年中共疫情爆发后，就开始了一段长长的的下坡。尽管在21年初曾一度回到了近3万点，但在去年末直接跌至了2万3000点。今年，恒指一直徘徊于2万5千点下方，但从2月以来，几乎每个交易日都存在跌幅。
 
-G-News发布：海贼王M.D.LUFFY；
+郭文贵先生从2019年起就一直警告，香港已经沦为臭港，香港的经济会越来越糟。而当恒生指数从接近3万5千点，跌破2万点的时候，则意味着香港乃至中共的经济出了大问题。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+参考链接：
+1. [33154！恒生指数再创历史新高](https://www.cs.com.cn/xwzx/bignews2017/180102/18011101_78045/)
+2. [后疫情之”变”问道2021｜安信国际韩致立：恒指将突破35000点 看好医药、新零售](https://www.sohu.com/a/444166695_161105)
+3. [港股恒指失守23000点 创21个月新低丨星港钱潮](https://finance.caixin.com/2021-12-20/101820023.html)
+4. [港股恒指自2016年首次跌破20000点 思摩尔大跌逾20%](https://finance.sina.com.cn/stock/hkstock/marketalerts/2022-03-14/doc-imcwipih8352000.shtml)
+5. [史上单日最大下跌！恒生科技指数暴跌11% 腾讯闪崩 16只成份股跌超10%…](http://finance.eastmoney.com/a/202203142308377088.html)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+总编/编辑/审核：DM
+校对/发稿：为真不破20
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**更多资讯，更多关注**
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-G-TV：日本银河系农场。
+
 
  
 

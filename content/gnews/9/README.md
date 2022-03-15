@@ -2,18 +2,23 @@
 ---
 
 
-## 秘翻在线：【速报】日本政府冻结包括新兴财阀在内的17人的资产
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2166616/)
+## 美将警告中共勿步俄后尘 攻击邻居恐催生「太平洋版北约」
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2166652/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/画像1-14.png)（图片源自本文链接）
-FNN综合在线１月１５日消息：15日，作为对俄罗斯入侵乌克兰的追加制裁，日本政府内阁决定冻结包括新兴财阀在内的17人的资产。
+据LTN3月15日报道，俄罗斯不顾国际反对，执意对乌克兰发动入侵战争，出征不顺如入泥淖，连带让最大盟友中共陷尴尬处境，对此，美国太平洋空军司令维巴赫（Kenneth Wilsbach）警告中共，应在俄乌冲突中吸取教训，即无端攻击邻居会遭致比俄罗斯更强烈国际反应，甚至催生中方最不愿见到的「太平洋版北约」。
 
-新追加的制裁是针对俄罗斯议会的17名议员，以及支持总统弗拉基米尔-普京的新兴企业集团–寡头的负责人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phpk5je5l.jpg)图片来源：美联社
 
-制裁对象者与日本金融机构进行交易需要政府许可，实质上资产被有效冻结。
+简评：美国太平洋空军司令警告中共不要无端攻击邻居，“邻居”这词虽然含糊，但全世界都知道指的是台湾。据郭文贵先生爆料称，习大神为了完成“大一统”是要一心攻打台湾的。美方虽然发出了警告，但中共穷途末路时或会有极端疯狂的举动，台湾同胞请保重，全世界赶快醒来！
 
-信息源：[【速報】日本政府が追加制裁「オリガルヒ」トップなど17人の資産を凍結 (msn.com)](https://www.msn.com/ja-jp/money/other/%E9%80%9F%E5%A0%B1-%E6%97%A5%E6%9C%AC%E6%94%BF%E5%BA%9C%E3%81%8C%E8%BF%BD%E5%8A%A0%E5%88%B6%E8%A3%81-%E3%82%AA%E3%83%AA%E3%82%AC%E3%83%AB%E3%83%92-%E3%83%88%E3%83%83%E3%83%97%E3%81%AA%E3%81%A917%E4%BA%BA%E3%81%AE%E8%B3%87%E7%94%A3%E3%82%92%E5%87%8D%E7%B5%90/ar-AAV3Jgy?ocid=msedgntp)
+新闻来源：[LTN](https://news.ltn.com.tw/news/world/breakingnews/3859751)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 20220313郭文贵大直播 ：一秒钟无数人头落地常委会被撕成肉泥
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2166478/)
+## 20220313郭文贵大直播 ：刘彦平好话说尽，坏事做绝！七哥在中东和欧洲给中共做好了死亡陷阱
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2166512/)
 
 作者：东京樱花团小视频组
 
