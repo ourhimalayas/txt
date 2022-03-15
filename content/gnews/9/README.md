@@ -2,60 +2,30 @@
 ---
 
 
-## 推翻中共就是根除世界灾难的源头
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2167760/)
+## 中国房地产企业融创中国股债双杀
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2167886/)
 
-作者：香草山健身部-新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-26.png)
+发布 / 2022年3月15日 4:01 PM
+采集：玫瑰新闻组
 
-截止3月13日我们法治基金国际救援已免费提供超过250人次酒店食宿，
-为1016位难民提供了免费巴士撤离，
-Medyka救援站接待了上千名难民，
-并成为国际红十字会的中转站。
-NFSC和ROLF提供免费救援，以帮助那些受俄罗斯非法入侵影响的人员，
-这是我们消灭中国共产党，
-支持在被共产主义和专制政府统治的国家里，
-争取自由使命的一部分。
-因为全人类的战争和所有灾难都与中国共产党有关，
-只有消灭中国共产党才能解决人类的战争和所有苦难的根源。
-世界上真正的爱是没有边界的．不分种族和宗教的．
-我们新中国联邦跟全世界的人和平共处．互相尊敬．
-拒绝活在中共刻意营造的种族主义，
-拒绝中共拉仇恨的政治操作，
-新中国联邦的宣言就是要推翻邪恶的中国共产党，
-为实现自由、民主的法治社会，
-独裁中共剥夺了中国人的信仰，
-掐灭了中国人的希望，
-它让我们的母亲流泪，
-让我们的姐妹成了铁链女，
-让我们的女儿逃不出彭帅的命运。
-新中国联邦就是带领中国人脱离中国共产党，
-让中国人生活在没有中国共产党统治的法治社会。
-让世人不分国籍尊重人权，建立和平，
-恢复国际次序。
-法制基金为饱受战争灾难的人们无偿提供免费救援，
-供来自乌克兰的难民休憩。
-救援接待站内提供的免费咖啡、热水、食物、毛毯，
-并设有儿童专区。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3154.gif)
 
-只有消灭中国共产党才能拯救全人类
-我们与乌克兰人民站在一起！
+债务忧虑罩顶下，中国房企融创中国旗下的债券继续走弱，“21融创01​”下跌超过20%，遭深交所临停；上交所的“16融创07”跌幅亦接近20%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-65.jpg)
+据路透社报道，消息面方面，融创上周曾公告称，持有人已经同意为境内公司债“20融创01”增加一个2023年回售选择权的议案，该期债将由2+2年改为2+1+1年。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+融创其他境内债方面，深交所上市的“21融创03”跌幅亦达16%。
 
-- 审核/编辑/发稿:qiutian（邱甜）
+此外，近期中国房企美元债亦持续跳水，融创美元债亦叠创新低。目前除年内到期的一只券还在40美分（面值1美元）以上之外，融创其余美元债二级价格均已跌向20美分附近。
 
+融创股价亦跟随板块弱势大幅走低，融创中国港股最新跌约15%。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻链接：
+[中国房企融创中国股债双杀](https://www.zaobao.com.sg/realtime/china/story20220315-1252590)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

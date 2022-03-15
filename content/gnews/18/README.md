@@ -2,24 +2,29 @@
 ---
 
 
-## 马立波传捷报！乌军宣布：俄军地面部队被击退
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2167666/)
+## 樱花FM|中日财经爆:索尼停止在俄罗斯销售PS5与游戏软件
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2167795/)
 
-俄罗斯入侵乌克兰，乌克兰各大城市持续遭受俄军攻击，第二大城哈尔科夫也面对轮番炮击，乌克兰武装部队总参谋部表示，俄国拟定在该区域再度增兵，另外，马立波（Mariupol）地区的俄军也被击退。
+音频：东京樱花团/战友520
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/php3v3DI0.jpg)图片来源：美联社
+![](https://assets.gnews.org/wp-content/uploads/2022/03/索尼停止在俄罗斯销售PS5与游戏软件-1.png)
 
-其中乌东城市马立波不断遭到俄方炮击，近乎成为炼狱，俄军地面部队也持续向前推进，寻求占领，不过乌克兰军方宣布，俄军被击退，目前人员已向后撤离，俄方损失约为150人、2辆战车以及1辆装甲运兵车。
+3月10日，索尼互动娱乐公司（SIE）宣布停止在俄罗斯销售家用视频游戏机“PlayStation（PS）5”和游戏软件，以及“PlayStation Store”的运营，该商店可以通过互联网购买游戏软件和其他产品。
 
-新闻来源：[LTN](https://news.ltn.com.tw/news/world/breakingnews/3859791)
+同一天在PS官方推特上公布：“希望在乌克兰实现和平”。
 
-撰稿/发布：一叶知秋
+索尼互动娱乐有限公司（Sony Interactive Entertainment LLC；简称SIE），原称索尼电脑娱乐株式会社（Sony Computer Entertainment Inc.，简称为SCEI或SCE），是索尼集团旗下的游戏机、游戏软件开发、制造与贩售厂商。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+文字版原文：
 
+
+| [中日财经爆┃索尼停止在俄罗斯销售PS5与游戏软件](https://gnews.org/zh-hans/2136307/) |   |
+| --- | --- |
+
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

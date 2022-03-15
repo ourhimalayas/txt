@@ -2,38 +2,241 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“孟建柱”（二十七）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2167275/)
+## COVID-19 疫苗接种要求违宪——给德国议会的一封信
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2167603/)
 
-#### 整理人: 小儿
-整理：小红帽
+撰稿: kai奋斗
+![](https://assets.gnews.org/wp-content/uploads/2022/03/152.jpg)图片制作：澳喜农场©森森
+2022 年 3 月 9 日
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/07ea8cf8456b5ea8.png)图片来源：雅典娜农场设计组（614）
+亲爱的联邦议院议员，女士们，先生们，
 
+你们很快将不得不决定一项强制接种疫苗的法律。强制接种疫苗限制了公民的基本权利，包括身体完整的基本权利，有可能侵犯人类尊严和自决权。下面签名的 81 位科学家向您提交这封信，要求在此问题上做出宪法决定。
 
-**郭文贵2017年7月6日直播：王岐山的新豪宅及孟建柱，傅政华（续）**
+宪法审查包括四个问题：
 
-我不会忍。真、善、忍是骗人的。他给你假、丑、恶，你要真、善、忍。那不就永远死路一条了吗？你只有比他狠，你用你的真对付他的假，你用你的善对付他的丑，你用你的狠对付他的恶。我这个狠是好狠，我是对坏人狠，我不对好人狠。这有什么不对的吗？
+**1.) ****该法律的哪个目的是符合宪法的？**
 
-今年王岐山站在那中央电视台跟我讲话，搞政治高级黑，威胁党内同志，最后达到自己目的，叫你闭嘴。然后，孟建柱同志跟王岐山一起，当好所有这些高官们的保护伞。孟建柱跟王岐山一起，对所有的知情者灭口，对所有的知情者进行封杀。
+**2.) ****这种措施，即强制接种疫苗，是否适合实现这些目标？**
 
-有个高官跟我说，文贵，为什么不抓王岐山，孟建柱，傅政华呀？因为抓人的工具在他们手里。我绝对不相信，中国历史上有那样的事情发生，但是最终结果一定是老百姓要跟他们算清账。王岐山就是个不不折不扣的赵高，孟建柱就是一个魏忠贤，傅政华就是这个来俊臣。赵高，来俊臣，魏忠贤的下场，还有李斯的下场，都是满门抄斩，一个都不放过。
+**3.) ****这个措施有必要吗？**
 
-在共产党的那个位置，你政法委书记孟建柱，你孙立军，你傅政华，你王岐山，十九大你能干下去？你能干到二十大吗？我就在这等着你，你能把我杀了吗？你能把我，我的儿女，我的家人都杀了吗？我就拿我现在的钱，我就跟你死磕了。我把你所有家族的，你所有的钱财，全都给你灭了。你不信试试。你拿黑社会对付我郭文贵呢。我绝对不会吃你这一套。你继续骗我，我有很多事没有做。如果孟建柱，傅政华，王岐山，你觉得我手里没有你的性爱视频和你受贿收钱的视频，你收这些大额资金，巨额犯罪杀人的证据，害人的证据，咱走着瞧，走着瞧。我已经用三年证明给你们看，郭文贵到底是什么人了。我有没有料？咱们一集一集地放出来看。还是那句话，山东莘县阳谷县搭县，信不信咱走着看。这是我老家的话，对吧？
+**4.) ****这个措施合适吗？**
 
-你王岐山，你孟建柱，你傅政华不就是100多斤嘛。你穿着警服，共产党给你那个权力，你就像原来周永康，令计划，薄熙来，郭伯雄，徐才厚那样，被抓起来后，啥都不是。你离开那个椅子算啥呀？你那些什么提拔的，那些狗官们跟你一起啊？树倒猢狲散，我深信这一条。共产党的官在利益面前大家是一体的，一旦你离开那个位置，你啥都不是。当共产党的官，别的本事没有，背叛那是全人类第一。谁忠于郭伯雄了？郭伯雄死了以后，我没发现一个人说，“那个坟也把我埋了，我也跟你死了去吧。”没见啊。郭伯雄那么厉害，被抓起来了，有几个人跟他一起了？那武警的王司令，我跟他喝酒的时候，他在咔咔地喝，说：“文贵，我要是出了啥事，我的战士们，那都是跟我全冲了卖命的。”现在他被抓了，听说还自杀了。我没见一个人自杀，我也没见任何一个人为了郭伯雄，王司令跑到秦城去说，我跟你一起蹲监狱。
+从法律的角度来看，第一条规则是举证责任在于你们立法者。其次，针对这个问题的担忧就足以宣布强制接种疫苗是违宪的。
 
-还好日子呢？你孟建柱，你傅政华，你王岐山就是神呐，跟着你说，你被抓了，我也给带上手铐吧。十九大你能当上，那是中国人的悲哀。你会死得更惨。我认为你当不上，你当上就是革命，对不对？你吓唬谁呢？你骗我这么多遍。你看看美国会有什么行动？你看看欧洲会有什么行动？你看看全世界人民会怎么对待你–王岐山，孟建柱，傅政华等人。
+在下文中，我们表明对上述所有标准中人们存在的担忧，因此强制接种疫苗的法定命令将是违宪的，支持我们每个论点的综合证据可以在我们参考的附件中找到。
 
-发布： Frank2021
+第一个问题， 受宪法保护的自决权禁止强制个人接种疫苗以保护自己。就宪法而言，强制疫苗是为了保护他人的说法站不住脚，尽管不能绝对排除对第三方健康存在的风险，而国家也不能以其他方式保证这一点。这里宪法似乎只允许以下两个目标：
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+a.) 将严重疾病（重症监护患者和死亡）的数量减少到与其他传染病相当的水平；
 
+b.) 防止医疗保健系统严重超载。
+
+第二个问题，强制接种疫苗的适用性值得怀疑，因为现有的 COVID-19 疫苗不能产生足够的免疫力，因此不能提供足够的保护免受他人侵害：
+
+a) 几周后，疫苗接种不仅不再对感染概率产生积极影响，甚至会增加这种概率，正如 Omikron 目前所展示的那样 [附件 1：第 4 节] ；
+
+b) 疫苗接种对疾病的严重程度只有轻微，会在短时间内降低 [附件 1：第 2 和 3 节] ；
+
+c) 接种过疫苗的人\*的传染性不亚于未接种过疫苗的人。因此疫苗接种不能中断感染链 [附件 1：第 7 节]。
+
+（\*“未接种疫苗/接种疫苗”一词含糊不清。因此，我们谈论的是接种或未接种 COVID-19 疫苗的人；如果确实有必要，会给出接种疫苗的次数。）
+
+第三个问题， 必须否认接种疫苗的一般义务的必要性，因为
+
+a) 不再给出 COVID-19 的特殊危险。随着 omicron 变体的出现，感染严重程度只是达到正常季节性流感的水平[附件 1：第 1 节] ；
+
+b) 疫苗接种并非没有替代方案，因为可以使用高效的治疗和预防措施[附件 2] ；
+
+c) 医疗保健系统没有显着负担过重[附件 3]。
+
+第四个问题， 疫苗接种要求是不合适的，因为可用的疫苗不仅不安全，而且具有前所未有的潜在风险：
+
+a)  COVID-19 疫苗是有条件批准的新药，其中长期潜在风险尚未得到充分调查的事实；
+
+b) 必须通过 Paul-Ehrlich-Institut 记录的疫苗接种副作用的危险性和频率来衡量；
+
+c) 合理估计至少 80% 的副作用未登记 [附件 4]；
+
+d) 以无法解释的大量死亡来衡量，特别是在中年至青春期，这在时间上与疫苗接种有关[附件 5]；
+
+e) 针对新出现的广泛的副作用，其程度只能在很长的一段时间内去评估[附件 6]。
+
+根据以上论据​​，关于 COVID-19 疫苗接种义务的法律是不能通过的，因为它不适合、没有必要、不适合，因此其所追求的目标是违宪的。
+
+近几个月针对该法律的讨论已经给我们的社会造成了很大的震动和分裂，我们要求您利用关于强制接种疫苗的辩论作为机会，采取其他可以治愈和调和我们的民主的方法。
+
+以下是联署签名单Die Autorengruppe
+
+Prof. Dr. Jessica Agarwal
+
+Prof. Dr. Thomas Aigner
+
+Prof. Dr. Ralf Alleweldt
+
+Prof. Dr. Dr. h.c. Kai Ambos
+
+Prof. Kerstin Behnke
+
+Prof. Dr. Ralf B. Bergmann
+
+Prof. Dr. Andreas Brenner (CH)
+
+Prof. Dr. Klaus Buchenau
+
+Dr. Matthias Burchardt
+
+Prof. Dr. med. Paul Cullen
+
+Prof. Dr. Viktoria Däschlein-Gessner
+
+Ass.-Prof. Dr. theol. Jan Dochhorn
+
+Prof. Dr. Ole Döring
+
+Prof. Dr. Gerald Dyker
+
+Dr. Alexander Erdmann
+
+Prof. Dr. Michael Esfeld (CH)
+
+Dr. Claas Falldorf
+
+Dr. Matthias Fechner
+
+Dr. med. Johann Frahm
+
+Prof. Dr. Katrin Gierhake
+
+Prof. Dr. Frank Göttmann
+
+Prof. Dr. Ulrike Guérot
+
+Prof. Dr. Lothar Harzheim
+
+Prof. em. Dr. med. habil. Karl Hecht
+
+Prof. Dr. Saskia Hekker
+
+Prof. Dr. Martina Hentschel
+
+Prof. Dr. med. Sven Hildebrandt
+
+Prof. Dr. Detlef Hiller
+
+Prof. Dr. Oliver Hirsch
+
+Prof. em. Dr. med. Dr. Georg Hörmann
+
+Prof. Dr. Thomas Sören Hoffmann
+
+Dr. Agnes Imhof
+
+Dr. René Kegelmann
+
+Prof. Dr. theol. Martin Kirschner
+
+Dr. Sandra Kostner
+
+Prof. Dr. Boris Kotchoubey
+
+Prof. Dr. Klaus Kroy
+
+Prof. Dr. Christof Kuhbandner
+
+PD Dr. Axel Bernd Kunze
+
+Dr. Norbert Lamm
+
+Prof. Dr. Salvatore Lavecchia
+
+Dr. Christian Lehmann
+
+Dr. h. c. theol. Christian Lehnert
+
+Prof. Dr. Normann Lorenz
+
+Prof. Dr. Stephan Luckhaus
+
+PD Dr. Stefan Luft
+
+Prof. Dr. Jörg Matysik
+
+Dr. Christian Mézes
+
+Prof. Dr. Klaus Morawetz
+
+Prof. Dr. Gerd Morgenthaler
+
+Prof. Dr. Ralph Neuhäuser
+
+Dagmar L. Neuhäuser
+
+Dr. med. Sven Gerhard Nevermann
+
+Dr. Henning Nörenberg
+
+Prof. Dr. Gabriele Peters
+
+Prof. Dr. Christian Pietsch
+
+Dr. med. Steffen Rabe
+
+Prof. Dr. Konrad Reif
+
+Prof. Dr. Günter Reiner
+
+Prof. Dr. Matthias Reitzner
+
+Prof. Dr. Markus Riedenauer
+
+Prof. Dr. Günter Roth
+
+Prof. Dr. Andreas Schnepf
+
+Prof. em. Dr. med. Wolfram Schüffel
+
+Prof. Prof. Dr. med. Klaus-Martin Schulte
+
+Dr. Jens Schwachtje
+
+Prof. Dr. Harald Schwaetzer
+
+Prof. Dr. Henrieke Stahl
+
+Prof. Dr. Anke Steppuhn
+
+Prof. Dr. Wolfgang Stölzle (CH)
+
+Prof. Dr. Lutz Stührenberg
+
+Dr. med. Henrik Ullrich
+
+Prof. Dr. Tobias Unruh
+
+Dr. med. Hans-Jürgen Vogel
+
+Dr. habil. Ulrich Vosgerau
+
+Dr. Christine Wehrstedt
+
+Dr. Jan Christoph Wehrstedt
+
+Prof. Dr. Christin Werner
+
+Prof. Dr. Martin Winkler (CH)
+
+Dr. med. Jens Wurster (CH)
+
+Prof. Dr. Christin
+
+*审核：**Gradient Boost*
+
+*发稿：**mgjxs*
+
+新闻参考链接：[https://7argumente.de/](https://7argumente.de/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

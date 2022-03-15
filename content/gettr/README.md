@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 9:14 AM (UTC)`
+
+彭博快讯：最近一次袭击发生在离波兰边境如此之近的地方，也就是北约的领土，这就是为什么乌克兰一直在呼吁北约在乌克兰建立禁飞区。这次报道的背景是新中国联邦和法治基金的救援帐篷和标志。<br/><br/>Bloomberg Quicktake: The latest strike happened so closed to Poland's border, a NATO member’s territory, which is why Ukraine has been calling for NATO to establish a no-fly zone in Ukraine. The background of this reporting is NFSC and ROLF’s rescue tents and logos.
+![img](https://media.gettr.com/group23/getter/2022/03/15/09/51219ee1-26aa-37ba-8e58-130d11f77979/out.jpg)
+
+---
+
 `@miles 3/15/2022 9:09 AM (UTC)`
 
 【Ukrainian Rescue】03/13/2022 Nicole interviews a Japanese TV reporter in front of the rescue tent of the New Federal State of China in Ukraine, and explains to him that the movement led by Mr. Miles Guo to take down the CCP is to restore peace, freedom and justice to the world.The Japanese TV reporter thinks that our work will be successful, making peace in all over the world.<br/><br/>【乌克兰救援】03/13/2022妮可在乌克兰的新中国联邦救援帐篷前采访日本电视台记者，并介绍郭文贵先生发起的消灭中共运动，要给世界恢复和平、自由和正义。日本电视台记者认为我们的一定会成功，并将和平带到世界各地。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -152,13 +159,6 @@ Italian Lorenzo told us about what the 2 unimaginable true pictures he witnessed
 
 2022.03.14 NFSC News  The New Federal State of China’s Humanitarian Rescue Mission； AFP War Correspondent On the NFSC & ROLF Rescue Center 
 ![img](https://media.gettr.com/group13/origin/2022/03/14/23/59e902ca-8625-380f-4b3e-b1dd5b7d7373/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/14/2022 10:59 PM (UTC)`
-
-3/13/2022 Miles Guo: All the countries sanctioned by SWIFT were authoritarian regimes; The rules of SWIFT were set by all Catholic and Christian countries around the world; exclusion from SWIFT is not a decision made by the US alone, rather the decision is made with consensus under a consistent guideline.<br/><br/>3/13/2022 文贵直播: SWIFT制裁的都是独裁的国家，其规则由全世界半数以上人口的基督教和天主教国家共同制定的！被踢出SWIFT系统并非美国说了算，它是一致的标准，一致的决策和共同的决定的结果！<br/>
-![img](https://media.gettr.com/group42/getter/2022/03/14/22/3baf4a40-93df-df9f-6562-20b496e2500a/out.jpg)
 
 ---
 

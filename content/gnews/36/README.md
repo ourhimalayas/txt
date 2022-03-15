@@ -2,36 +2,41 @@
 ---
 
 
-## 俄乌局势僵持不下，金融市场大跌
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2166106/)
+## 愿咖啡陪你度过漫长黑夜
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2166205/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：银河系农场 – 骄子
 
-整理：等风来
-编辑：围剿维尼熊
-![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe-1.png)
-根据FX168财经报社3月15日报道， 周一(3月14日)美市盘中，美股震荡下跌，道指回吐450点的涨幅回落至平盘下方；美元指数也延续跌势，交投于99下方；黄金等贵金属遭遇疯狂抛售，其中现货黄金一度自高位回落超40美元至1950下方，而现货钯金则大跌超16%；原油市场也遭到抛售潮。
 
-此外，市场还关注美联储本周三的利率决议。预计美联储将在周三为期两天的会议结束时将联邦基金利率从零上调0.25个百分点。
 
-美股周一震荡下跌，油价也大幅下跌，交易员密切关注乌克兰和俄罗斯战争的最新进展。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-除了乌克兰和俄罗斯之间的新谈判之外，中国新一轮封锁是本周开始时原油价格下跌的原因。
 
-俄乌第四轮谈判从于美时间周一凌晨00:30开始，双方沟通未能达成共识，谈判将于周二继续。
 
-鉴于双方都愿意对话，乌克兰危机最糟糕的时期可能已经过去。金价不太可能在短期内突破上周创下的历史新高。
+3月14日救援前线消息，自从NFSC咖啡在梅迪卡推出后，给无数疲惫的人带去了安慰。郭先生说每天一杯暖暖的咖啡对于西方人来说非常重要，而在梅迪卡这样艰苦的救援环境下，咖啡更有巨大的作用。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-9.jpg)
+在新中国联邦的豪华大帐篷内，时时都有咖啡飘香。对于难民来说，连续几十个小时的逃离身心俱疲，咖啡给了他们最好的提神醒脑暖心的作用。而对西方的媒体工作者来说，一杯咖啡更是能让他们立即精神焕发。前线多数媒体工作记者都夸赞NFSC咖啡是最好喝的咖啡。现磨咖啡的提供者就是我们这些灭共的中国人。就连联合国的3个代表听到我们有咖啡，都非常兴奋。
 
-参考链接：[https://hk.investing.com/news/commodities-news/article-220303](https://hk.investing.com/news/commodities-news/article-220303)
+愿NFSC咖啡陪伴难民和各媒体工作记者度过这些艰苦岁月。
 
-*发布：tianzhihuan*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+总编/编辑/审核：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

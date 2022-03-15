@@ -2,27 +2,37 @@
 ---
 
 
-## 让枪口对向俄军！基辅修车厂变军工厂
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2167523/)
+## 美国10年期债券利率创两年半新高
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2167738/)
 
-乌克兰基辅一家汽车维修厂摇身成为临时军工厂，把夺自俄罗斯军人的武器改造之后，交给乌克兰部队保家卫国。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3567601-PH.jpg)图片来源：达志影像
+整理：等风来
+编辑：围剿维尼熊
 
-修车厂老板费成柯（Oleksandr Fedchenko）说，俄国上月出兵后，他持续和员工脑力激扬，看能不能想出好点子协助军力悬殊的国军，结果竟然发现我们有员工懂得制造武」。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2977.jpg)图片来源：51CTO
 
-费成柯说：我们会重新打造这些武器，让枪口指向敌军，而非我方。
 
-简评：基辅修车厂变军工厂，虽然乌克兰实力不如俄罗斯，但乌克兰人民的抗敌之心是不可摧毁的！得人心者得天下，俄罗斯兴不义之师入侵乌克兰，哪怕天时地利有优势，也攻不下乌克兰人民的人和，更何况还有全球陆续的援助！普京野心猖狂，这算盘打错了！
+根据大纪元3月15日讯，美联储召开例会决定利率政策前夕，美国10年债殖利率周一（14日）冲高到2.145%，创下2019年7月以来新高峰，30年公债殖利率也涨到2.481%。
 
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1085279)
+纳指受此影响同日大跌2.04%。泛欧600指数周一却上涨1.2%，反映俄乌会谈渐渐露出和平的曙光。
 
-撰稿/发布：一叶知秋
+与地缘政治息息相关的国际油价近期猛跌，同时金价出现较大的回吐卖压。油价和金价这两项指标近期自高峰大幅修正，反映投机客认为乌克兰战事走向外交途径解决的概率颇高。美股近期的走向与油金同步下滑，反映投资人普遍对整体金融环境感到悲观。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+摩根士丹利估计，美联储3月份将升息1码（0.25%）、2022年将升息5码、2023年底之前美国联邦基本利率将升到2.625%。
+
+美银在最新的报告中预测，标普500指数跌入熊市的概率已高达35%；纳指最新报价为12,581点，已较去年11月的历史高峰16,212点回跌22.3%；费城半导体指数也自高峰回跌约25%。
+
+参考链接：[https://www.epochtimes.com/gb/22/3/15/n13646501.htm](https://www.epochtimes.com/gb/22/3/15/n13646501.htm)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
