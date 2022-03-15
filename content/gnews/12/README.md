@@ -2,33 +2,30 @@
 ---
 
 
-## 美日举行2022年度首次大规模军演
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2169598/)
+## 乌总统顾问称战争可能5月初结束
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2169683/)
 
-作者：台湾宝岛农场 dobi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月14日，据外媒报导，日本陆上自卫队两栖旅和美国第31海军陆战队远征部队（MEU）将在印太地区举办为期三周的2022年度”首次大规模演习”，藉以因应中共蠢蠢欲动、不断扩张的海上威胁。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-26.jpg)
-据报导，此次大规模演习将会持续到3月25日。日本陆上自卫队司令官吉田圭秀表示：将有400名自卫队成员，以及600名冲绳基地的海军陆战队成员参与训练，加强两支部队之间的互操作性。且在演习中，日本两栖快速部署旅（ARDB，日称水陆机动团），将和美国部队将举行模拟的地面、海上和空中作战行动。
+采集：玫瑰新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-14t133452z1057803800rc2d2t9y5l45091135.jpg)乌克兰总统顾问阿雷斯托维奇周一晚表示，结束乌克兰战争的确切日期取决于克里姆林宫愿意为这场战争投入多少资源。（路透社）
+（早报讯）乌克兰总统顾问阿雷斯托维奇说，到了5月初俄罗斯耗尽资源时，乌克兰战争有可能就会结束。
 
-美军指挥官纳科涅茨尼上校则表示：此次演习的主要目的是”威慑竞争对手并阻止其侵略“。而第31海军陆战队远征部队和水陆机动团，是第一岛链内训练有素、准备最充分的两支危机反应部队。而所谓的第一岛链防线的划定则包括日本群岛、冲绳列岛、台湾和菲律宾群岛等。美军认为，这是防守中共最有战略效益的区域。
+路透社报道，阿雷斯托维奇（Oleksiy Arestovich）并没有直接参与乌克兰和俄罗斯之间的谈判工作。乌俄至今已进行了四轮谈判，但除了设立几条人道走廊让平民撤离，双方的谈判并没有取得太多实质性的成果。
 
-参考链接：[應對中共擴張威脅 日美舉行大規模兩棲軍演](https://www.epochtimes.com/b5/22/3/14/n13644962.htm)
+阿雷斯托维奇周一晚（3月14日）在数家乌克兰媒体发布的一段视频中表示，结束战争的确切日期取决于克里姆林宫愿意为这场战争投入多少资源。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+阿雷斯托维奇说：“我认为不会超过5月初，也许更早，我们就可以达成一份和平协议。”
 
-总编：Zion文恩
-编辑：谐趣园 
-审核：Zion文恩
-校正/发稿：Fei797
+他说：“我们已来到一个拐点。要么很快，一两周内就达成和平协议，谈妥撤军等等；要么他们尝试征召一些叙利亚人再打第二回合，我们再次把他们击败后，应该可以在4月中或4月底达成协议。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+阿雷斯托维奇表示，另一个“完全疯狂”的可能性是俄罗斯再派一批只受过一个月军训的新兵来打乌克兰。
+
+不过，阿雷斯托维奇也坦承，即使乌俄双方达成和平协议，且乌克兰坚持要俄罗斯军队完全撤出乌克兰，在未来一年里，两国之间的小型军事冲突仍可能拖上一年。
+
+参考连结：[https://www.zaobao.com.sg/realtime/world/story20220315-1252450](https://www.zaobao.com.sg/realtime/world/story20220315-1252450)
+
+审核校对：Barry Jack
+上传排版：F
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
