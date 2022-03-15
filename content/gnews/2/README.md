@@ -2,36 +2,24 @@
 ---
 
 
-## 【 G时新闻 】白宫警告中共如果军事援助俄罗斯将面临严重后果
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2170846/)
+## 粉色照亮夜空，天空树和河津樱花的和声
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170880/)
 
-播报：加拿大温哥华扬帆农场 – 悠然
+撰稿：东京樱花团｜haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1685.png)[*图片提供*](https://msp.c.yimg.jp/images/v2/FUTi93tXq405grZVGgDqG2gaE5FEeKFFOU_TPxnJWIuvOGecYgU9ErOnBZHUR23FIpHmARo0eXKl5BFxxNTgN5-6MnvAu0lBbRt5uLLLBjVsmpjQ2mGkywVXSfUJ14EoaWFcCJmyrsvGdFA15yjrHmAuxWCdNCxgDri-FtgZ3TN27rxf15Pc2MjUCKmrlOaDU1LB2PNo6tfGzZ1U-TDQF7HfeMTMpjoVDsWkVNBMzTRhbrPMuCqINPwSEOZXWowSQJa9E4DIbOz9BCLVRJR941bR35cgikbTqPknAMmD4ZiUZ8JmK8fH3lmodeW47yM6/20170220_120758_5b5b34f4_w1920.jpg?errorImage=false)
+影师[7桑](https://twitter.com/_szuna)在Twitter上投稿了一幅自己的作品，拍的是天空树和河津樱花重叠的美景，引起了很大反响，很多人被这一东京特有的景色给迷住了。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1686.png)
+在照片中，前面盛开的河津樱花，后面亮着粉红色的天空树闪闪发光，真是美轮美奂，至今已收到1万3000多个推友“点赞”。
 
-视频制作：加拿大温哥华扬帆农场 – 文雅
+说起樱花，之所以在3月上旬开花是因为河津樱花是早开的品种（早樱）。虽然背景是夜空，但天空树和樱花的颜色相映成趣，给人一种阳光普照般的华丽印象。天空树的粉红色表现了樱花花瓣飘扬的美丽，是用特别照明点亮的。
 
-零对冲网3月14日报道，于周一去罗马参加与中共高级外交官杨洁篪会见的杰克·沙利文告诉CNN说美国已经直接地通过私人管道告诉中共如果中共在俄乌战争中作为俄罗斯的后盾的话，将面临大规模制裁行动。
+Twitter上出现了“与河津樱花同步的天空树真漂亮”等的留言。
 
-一位拜登政府高官引用多个报告称美国向中共传达了美国对中共支持俄罗斯的深度担忧。该官员对于美国掌握的情报关于中共正在提供还是准备提供俄罗斯经济和军事援助的问题拒绝回答，但说对话是坦率而又直接的，沙利文直接表达了深切关注和对某些行动的可能影响和后果。
+信息来源：[**スカイツリーと河津桜の息をのむハーモニー　夜空をピンクに照らす瞬間を切り取った写真がすてき**](https://news.yahoo.co.jp/articles/27044120e1215a2c037987992afa315512060fbd)
 
-美国防部官员说： “ 如果中共国在这场战争中选择实体支持俄罗斯的话，对中共国来说后果很严重。”
-
-中共国外交部说它有权利去捍卫自己的合法权益。
-
-原文链接：https://gnews.org/zh-hans/2165860/
-
-视频链接：https://gettr.com/post/p103xj9969e
-
-发稿：文莱
-
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

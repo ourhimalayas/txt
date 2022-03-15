@@ -2,29 +2,24 @@
 ---
 
 
-## 秘翻在线: 与美国关系日趋紧张的沙特阿拉伯邀请习近平访问
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2170729/)
+## 樱花时政┃印度接受俄罗斯出售原油的提议
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170868/)
 
-撰稿：西枫westca
+撰稿：东京樱花团｜haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-0-9.png)[*图片来源*](https://images-ext-1.discordapp.net/external/oaZjILuG-6uxFXWLnvaMUqgB02JpM921V7QI8o6jnA8/%3Fexp%3D10800/https/newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220315-00000040-reut-000-2-view.jpg?width=951&amp;height=614)
+印度有可能会接受俄罗斯廉价出售原油和其他商品的提议，两位政府高级官员透露了上述内容。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-8-1.jpg)图片来源： 网络照片
-据华尔街日报3月15日报道，沙特阿拉伯邀请中国国家主席习近平访问利雅得，以加强与北京的关系。
+西方国家对入侵乌克兰的俄罗斯进行了经济制裁，企图孤立该国。几位美国政府官员最近承认印度在军事方面对俄罗斯武器的依赖仍然很大，同时表示希望印度尽可能远离俄罗斯。但是，印度希望与重要的贸易伙伴俄罗斯保持友好关系。实际上，在本月初举行的联合国紧急特别会议上，印度在谴责俄罗斯的决议中投了弃权票。
 
-据《华尔街日报》报道，对利雅得的邀请是在沙特阿拉伯与美国的关系紧张的情况下发出的。定于4月开始的斋月之后的这次旅行标志着习近平自中共病毒大流行病开始以来的首次对外国事访问。
+印度国内所需原油80%是进口的，而通常从俄罗斯进口原油的比率只有2~3%。但是，今年油价上涨了40%，因此，如果想降低进口成本，那么现在就要研究扩大从俄罗斯进口的方案。
 
-据该报道称，一位沙特官员表示： “王储和习近平是亲密的朋友，双方都明白建立更紧密关系的巨大潜力，这不仅仅是’他们向我们购买石油，我们向他们购买武器的问题’。”
+一位政府官员表示：“俄罗斯提出以非常低廉的价格出售原油和其他商品。我们将欣然接受。”据该官员透露，“要想实行，需要确保运输工具和加入保险等准备工作，一旦这些准备工作完成，将接受俄罗斯的提议。”
 
-习近平的潜在访问将与王储穆罕默德-本-萨勒曼及其与拜登总统的关系形成鲜明对比，拜登在2020年大选期间承诺将沙特作为一个 “贱民 “国家对待。穆罕默德王子在最近几周拒绝与拜登就俄罗斯入侵期间油价飙升的努力进行交谈。在俄罗斯入侵乌克兰期间，沙特阿拉伯拒绝了美国要求抽取更多石油以遏制原油价格飙升的要求。
+信息来源：[**インド、ロシアから原油などの売却提案受け入れる意向＝政府高官**](https://news.yahoo.co.jp/articles/0a93ea269d1614a4ba08a5c90b8222a5eaa1d2c6)
 
-同时，阿拉伯联合酋长国（UAE）也对联合国安理会谴责莫斯科攻击乌克兰的决议保持沉默。
-
-**新闻来源：**
-
-[Saudi Arabia Invites China’s Xi to Visit Kingdom Amid Strained U.S. Relations – WSJ](https://www.wsj.com/articles/saudi-arabia-invites-chinas-xi-to-visit-kingdom-amid-strained-u-s-relations-11647284211)
-
-[Saudi Arabia invites China’s Xi to visit Riyadh: report](https://thehill.com/policy/international/598207-saudi-arabia-invites-chinas-xi-to-visit-riyadh-report)
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

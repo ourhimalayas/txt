@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 10:21 PM (UTC)`
+
+The tearful face in this painting is the little girl who escaped from her hometown. She hated war, prayed for peace, and longed to play with her father. But it all turned into a luxury. Little girl, don't give up hope, there is the New China Federation, and there are brave, kind, caring and just people. The Chinese who want to destroy the Chinese Communist Party will help you.<br/>这幅画中泪流满面的脸是那个从家乡逃出来的小女孩。 她讨厌战争，祈求和平，渴望和父亲一起玩耍。 但这一切都变成了奢侈品。 小姑娘，不要放弃希望，有新中国联邦，有勇敢、善良、有爱心、正义的人。消灭中国共产党的中国人会帮助你。
+![img](https://media.gettr.com/group12/origin/2022/03/15/22/93a5bff1-f7f9-8e5f-26c0-fdbb7a436d6a/out.jpg)
+
+---
+
+`@miles 3/15/2022 10:13 PM (UTC)`
+
+Recently, the Chinese Communist Party (CCP) shamelessly lied，to the public that the Rule of Law Foundation's NFSC's rescue mission to Ukraine was assigned by the CCP. In the public, the Chinese Communist Party blatantly lied<br/>近日，中共竟然恬不知耻地对外谎称，法治基金新中国联邦对乌克兰的救援行动是受中共指派，光天化日之下，中共公然撒谎。
+![img](https://media.gettr.com/group26/origin/2022/03/15/22/4f10540f-576e-ac19-16fd-85f1ed0a0f18/out.jpg)
+
+---
+
 `@miles 3/15/2022 10:02 PM (UTC)`
 
 3/15/2022 Miles Guo: For the first time since the establishment of the CCP regime, Beijing, wealthy coastal areas, and the war zones preparing to attack Taiwan secretly reported to the CCP's Central Committee that they could not pay their salaries. Half of the grain being transferred from Heilongjiang Province to the Xinjiang concentration camps was unloaded on the way, and even the political godfather, Zeng Qinghong, has been threatened<br/><br/>3/15/2022 文贵直播：共匪建政以来首次出现，北京、沿海富裕地区和对台战区密报中央，说发不出工资了，黑龙江调往新疆集中营的粮食在路上被截了一半，连政治教父曾庆红都受到了威胁<br/>
@@ -141,22 +155,6 @@ On 14 March, in the large tent of the New Federal State of China（NFSC）,<br/>
 
 【Ukraine Rescue】03/14/22 NFSC Volunteer Nicole tells two Polish independent journalists that Miles Guo is leading the Chinese people to take down the CCP and free the Chinese people from the shackles of communism.<br/><br/>【乌克兰救援】03/14/22 新中国联邦义工妮可告诉两位波兰独立制片人郭文贵先生正在带领中国人民推翻共产党的统治，让中国人民摆脱共产主义。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
 ![img](https://media.gettr.com/group21/getter/2022/03/15/11/644bcdb8-bdf8-dec6-137f-8258ec4c200f/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gtranslators_1 3/15/2022 8:58 AM (UTC)`
-
-[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.03.15 EST
-![img](https://media.gettr.com/group26/origin/2022/03/15/08/a9cbfa15-7b3d-7882-2feb-280a8947bef4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/15/2022 9:14 AM (UTC)`
-
-彭博快讯：最近一次袭击发生在离波兰边境如此之近的地方，也就是北约的领土，这就是为什么乌克兰一直在呼吁北约在乌克兰建立禁飞区。这次报道的背景是新中国联邦和法治基金的救援帐篷和标志。<br/><br/>Bloomberg Quicktake: The latest strike happened so closed to Poland's border, a NATO member’s territory, which is why Ukraine has been calling for NATO to establish a no-fly zone in Ukraine. The background of this reporting is NFSC and ROLF’s rescue tents and logos.
-![img](https://media.gettr.com/group23/getter/2022/03/15/09/51219ee1-26aa-37ba-8e58-130d11f77979/out.jpg)
 
 ---
 
