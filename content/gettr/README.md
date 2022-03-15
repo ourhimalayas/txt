@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 11:43 PM (UTC)`
+
+2022.03.15《The Fringe》 Episode 147   GUERRA ENVOLVE MAIS PAISES E MERCENARIOS
+![img](https://media.gettr.com/group17/origin/2022/03/15/23/33ad756e-4c4f-4879-cac7-bc40f8776274/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/15/2022 10:59 PM (UTC)`
 
 2022.03.15 NFSC News   NFSC Participates in First-Ever International Rescue Relief Meeting in Medyka； Zelenskyy On Russian Invasion: Ukraine Will Never Be Conquered
@@ -150,13 +157,6 @@ On 14 March, in the large tent of the New Federal State of China（NFSC）,<br/>
 
 2022年3月15日 文贵大直播：香港股市跌破两万点；擀面杖经济难以为继；中共全球拉仇恨行径；疫苗大灾难如何面对
 ![img](https://media.gettr.com/group40/origin/2022/03/15/12/a5f196e7-0e7a-d600-e1ca-313f9e96e0ba/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/15/2022 11:25 AM (UTC)`
-
-【Ukraine Rescue】03/14/2022 Two journalists from London are enjoying the NFSC Coffee in NFSC and ROLF rescue tent. They say this is the best coffee so far in Poland! <br/><br/>【乌克兰救援】03/14/2022 两位来自伦敦的记者正在新中国联邦和法治基金的救援帐篷里享用新中国联邦的咖啡。他们说这是目前波兰最棒的咖啡！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group6/getter/2022/03/15/11/ce04cc4e-5471-dc79-1619-a2fc71688649/out.jpg)
 
 ---
 

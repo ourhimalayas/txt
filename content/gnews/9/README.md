@@ -2,20 +2,20 @@
 ---
 
 
-## 樱花时政┃印度接受俄罗斯出售原油的提议
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170868/)
+## 粉色照亮夜空，天空树和河津樱花的和声
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170880/)
 
 撰稿：东京樱花团｜haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-0-9.png)[*图片来源*](https://images-ext-1.discordapp.net/external/oaZjILuG-6uxFXWLnvaMUqgB02JpM921V7QI8o6jnA8/%3Fexp%3D10800/https/newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220315-00000040-reut-000-2-view.jpg?width=951&amp;height=614)
-印度有可能会接受俄罗斯廉价出售原油和其他商品的提议，两位政府高级官员透露了上述内容。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1685.png)[*图片提供*](https://msp.c.yimg.jp/images/v2/FUTi93tXq405grZVGgDqG2gaE5FEeKFFOU_TPxnJWIuvOGecYgU9ErOnBZHUR23FIpHmARo0eXKl5BFxxNTgN5-6MnvAu0lBbRt5uLLLBjVsmpjQ2mGkywVXSfUJ14EoaWFcCJmyrsvGdFA15yjrHmAuxWCdNCxgDri-FtgZ3TN27rxf15Pc2MjUCKmrlOaDU1LB2PNo6tfGzZ1U-TDQF7HfeMTMpjoVDsWkVNBMzTRhbrPMuCqINPwSEOZXWowSQJa9E4DIbOz9BCLVRJR941bR35cgikbTqPknAMmD4ZiUZ8JmK8fH3lmodeW47yM6/20170220_120758_5b5b34f4_w1920.jpg?errorImage=false)
+影师[7桑](https://twitter.com/_szuna)在Twitter上投稿了一幅自己的作品，拍的是天空树和河津樱花重叠的美景，引起了很大反响，很多人被这一东京特有的景色给迷住了。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1686.png)
+在照片中，前面盛开的河津樱花，后面亮着粉红色的天空树闪闪发光，真是美轮美奂，至今已收到1万3000多个推友“点赞”。
 
-西方国家对入侵乌克兰的俄罗斯进行了经济制裁，企图孤立该国。几位美国政府官员最近承认印度在军事方面对俄罗斯武器的依赖仍然很大，同时表示希望印度尽可能远离俄罗斯。但是，印度希望与重要的贸易伙伴俄罗斯保持友好关系。实际上，在本月初举行的联合国紧急特别会议上，印度在谴责俄罗斯的决议中投了弃权票。
+说起樱花，之所以在3月上旬开花是因为河津樱花是早开的品种（早樱）。虽然背景是夜空，但天空树和樱花的颜色相映成趣，给人一种阳光普照般的华丽印象。天空树的粉红色表现了樱花花瓣飘扬的美丽，是用特别照明点亮的。
 
-印度国内所需原油80%是进口的，而通常从俄罗斯进口原油的比率只有2~3%。但是，今年油价上涨了40%，因此，如果想降低进口成本，那么现在就要研究扩大从俄罗斯进口的方案。
+Twitter上出现了“与河津樱花同步的天空树真漂亮”等的留言。
 
-一位政府官员表示：“俄罗斯提出以非常低廉的价格出售原油和其他商品。我们将欣然接受。”据该官员透露，“要想实行，需要确保运输工具和加入保险等准备工作，一旦这些准备工作完成，将接受俄罗斯的提议。”
-
-信息来源：[**インド、ロシアから原油などの売却提案受け入れる意向＝政府高官**](https://news.yahoo.co.jp/articles/0a93ea269d1614a4ba08a5c90b8222a5eaa1d2c6)
+信息来源：[**スカイツリーと河津桜の息をのむハーモニー　夜空をピンクに照らす瞬間を切り取った写真がすてき**](https://news.yahoo.co.jp/articles/27044120e1215a2c037987992afa315512060fbd)
 
 *校对：东京樱花团/東洋武士*
 *发布：东京樱花团/tdownc2p*

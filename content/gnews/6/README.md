@@ -2,20 +2,18 @@
 ---
 
 
-## 粉色照亮夜空，天空树和河津樱花的和声
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170880/)
+## 乌总统泽伦斯基希望连线日本国会并发表“抗议俄入侵演说”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170892/)
 
 撰稿：东京樱花团｜haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1685.png)[*图片提供*](https://msp.c.yimg.jp/images/v2/FUTi93tXq405grZVGgDqG2gaE5FEeKFFOU_TPxnJWIuvOGecYgU9ErOnBZHUR23FIpHmARo0eXKl5BFxxNTgN5-6MnvAu0lBbRt5uLLLBjVsmpjQ2mGkywVXSfUJ14EoaWFcCJmyrsvGdFA15yjrHmAuxWCdNCxgDri-FtgZ3TN27rxf15Pc2MjUCKmrlOaDU1LB2PNo6tfGzZ1U-TDQF7HfeMTMpjoVDsWkVNBMzTRhbrPMuCqINPwSEOZXWowSQJa9E4DIbOz9BCLVRJR941bR35cgikbTqPknAMmD4ZiUZ8JmK8fH3lmodeW47yM6/20170220_120758_5b5b34f4_w1920.jpg?errorImage=false)
-影师[7桑](https://twitter.com/_szuna)在Twitter上投稿了一幅自己的作品，拍的是天空树和河津樱花重叠的美景，引起了很大反响，很多人被这一东京特有的景色给迷住了。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1686.png)
-在照片中，前面盛开的河津樱花，后面亮着粉红色的天空树闪闪发光，真是美轮美奂，至今已收到1万3000多个推友“点赞”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1687.png)[*图片来源*](https://images-ext-2.discordapp.net/external/T9lfc2YyFA8KId9nDVh6ZkuUJbFtgWKr8h94QiTtB2Q/%3Fexp%3D10800/https/newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220315-07728496-nnn-000-4-thumb.jpg)
+据悉，乌克兰总统泽伦斯基向日本政府提议：在日本国会发表抗议俄罗斯的在线演讲。
 
-说起樱花，之所以在3月上旬开花是因为河津樱花是早开的品种（早樱）。虽然背景是夜空，但天空树和樱花的颜色相映成趣，给人一种阳光普照般的华丽印象。天空树的粉红色表现了樱花花瓣飘扬的美丽，是用特别照明点亮的。
+据多位日本政府官员和执政党人士透露，网上演讲是通过乌克兰大使馆到日本政府探讨的。泽伦斯基总统已经在英国议会进行了视频演讲，预计日本国会也会对俄罗斯的侵略表示强烈抗议。
 
-Twitter上出现了“与河津樱花同步的天空树真漂亮”等的留言。
+但是据相关人士透露，日本国会会议上还没有进行过网上演讲的先例，因此政府将慎重考虑。
 
-信息来源：[**スカイツリーと河津桜の息をのむハーモニー　夜空をピンクに照らす瞬間を切り取った写真がすてき**](https://news.yahoo.co.jp/articles/27044120e1215a2c037987992afa315512060fbd)
+信息来源：[**ウクライナ・ゼレンスキー大統領  日本の国会で“ロシアに抗議の演説”打診**](https://news.yahoo.co.jp/articles/78e8070848df4ed5a61200f849d8c6290187dd5b)
 
 *校对：东京樱花团/東洋武士*
 *发布：东京樱花团/tdownc2p*

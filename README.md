@@ -15,143 +15,143 @@
 
 ---
 
-### [洛伦佐讲述乌波边境撤离的经历](/content/gnews/1/README.md)
+### [3/15/2022 文贵直播：习近平最信任的秘书韩立平说当前中共最大的不确定性是皇帝的身体；即便美国炸了中共3万个军事基地，中共仍会死灰复燃，灭掉中共的一定会是中共自己](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [“零容忍”无法停止中共国毒害孩子的步伐](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [乌克兰救援前线战友采访美国国际媒体署](/content/gnews/3/README.md)
+ ` 蓝莲花农场`
+
+### [洛伦佐讲述乌波边境撤离的经历](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共国每年有2381.2万件消费投诉事件](/content/gnews/2/README.md)
+### [中共国每年有2381.2万件消费投诉事件](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌总统泽伦斯基希望连线日本国会并发表“抗议俄入侵演说”](/content/gnews/3/README.md)
+### [乌总统泽伦斯基希望连线日本国会并发表“抗议俄入侵演说”](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [许多国家面临饥荒的危险](/content/gnews/4/README.md)
+### [许多国家面临饥荒的危险](/content/gnews/7/README.md)
  ` xiaobaige`
 
-### [樱花灭共诗——奴女吟](/content/gnews/5/README.md)
+### [樱花灭共诗——奴女吟](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [粉色照亮夜空，天空树和河津樱花的和声](/content/gnews/6/README.md)
+### [粉色照亮夜空，天空树和河津樱花的和声](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [3/15/2022 文贵直播：共匪建政以来首次出现，北京、沿海富裕地区和对台战区密报中央，说发不出工资了，黑龙江调往新疆集中营的粮食在路上被截了一半，连政治教父曾庆红都受到了威胁](/content/gnews/7/README.md)
+### [3/15/2022 文贵直播：共匪建政以来首次出现，北京、沿海富裕地区和对台战区密报中央，说发不出工资了，黑龙江调往新疆集中营的粮食在路上被截了一半，连政治教父曾庆红都受到了威胁](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [俄罗斯国营电视台现场直播中女工作人员呼吁反战](/content/gnews/8/README.md)
+### [俄罗斯国营电视台现场直播中女工作人员呼吁反战](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃印度接受俄罗斯出售原油的提议](/content/gnews/9/README.md)
+### [樱花时政┃印度接受俄罗斯出售原油的提议](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯宣布退出欧洲人权监督委员会](/content/gnews/10/README.md)
+### [俄罗斯宣布退出欧洲人权监督委员会](/content/gnews/13/README.md)
  ` 蓝莲花农场`
 
-### [【 G时新闻 】白宫警告中共如果军事援助俄罗斯将面临严重后果](/content/gnews/11/README.md)
+### [【 G时新闻 】白宫警告中共如果军事援助俄罗斯将面临严重后果](/content/gnews/14/README.md)
  ` G-时新闻`
 
-### [3/15/2022 文贵直播：中东为什么会燃起战火？因为中共要赌一把美国不会同时打乌克兰、中东和台湾的三场战争；但如果中共打台湾，美国一定会出手，会采取轰炸战略，但灭共还要靠中国人](/content/gnews/12/README.md)
+### [3/15/2022 文贵直播：中东为什么会燃起战火？因为中共要赌一把美国不会同时打乌克兰、中东和台湾的三场战争；但如果中共打台湾，美国一定会出手，会采取轰炸战略，但灭共还要靠中国人](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [五月花简报（03/15/2022）](/content/gnews/13/README.md)
+### [五月花简报（03/15/2022）](/content/gnews/16/README.md)
  ` mayflowertranslate`
 
-### [沙特考虑放弃石油美元转向人民币结算](/content/gnews/14/README.md)
- ` 蓝莲花农场`
-
-### [2022/03/15 文贵先生直播重点大纲](/content/gnews/15/README.md)
+### [2022/03/15 文贵先生直播重点大纲](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022年3月15日大直播速记精萃](/content/gnews/16/README.md)
+### [2022年3月15日大直播速记精萃](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [【乌克兰救援】3/13乌克兰前线救援团队‘热线小组’ 哈雷、Feather、Kent接受采访（2）](/content/gnews/17/README.md)
+### [【乌克兰救援】3/13乌克兰前线救援团队‘热线小组’ 哈雷、Feather、Kent接受采访（2）](/content/gnews/19/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [3/15/2022 文贵直播：韩正主使抓捕马建副部长，因为马健调查并掌握了韩私生子女和非法财产的秘密；韩正告诉亲信，俄乌战争开打预示中共的灭亡，因为习会攻打台湾，走上普京的不归路](/content/gnews/18/README.md)
+### [3/15/2022 文贵直播：韩正主使抓捕马建副部长，因为马健调查并掌握了韩私生子女和非法财产的秘密；韩正告诉亲信，俄乌战争开打预示中共的灭亡，因为习会攻打台湾，走上普京的不归路](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [国际媒体正在全面认知新中国联邦](/content/gnews/19/README.md)
+### [国际媒体正在全面认知新中国联邦](/content/gnews/21/README.md)
  ` 扬帆枫叶快讯`
 
-### [克拉科夫救援站迎来年龄最小的难民](/content/gnews/20/README.md)
- ` 扬帆枫叶快讯`
-
-### [3/15/2022 文贵直播：韩正竟然冲破禁止出京的限制偷偷潜回上海，他去干嘛了？“郭文贵”三个字对中共的震慑力太大了，竟然能把韩正从椅子上震起来，看来龙头改龟头，阳气上升了](/content/gnews/21/README.md)
+### [3/15/2022 文贵直播：韩正竟然冲破禁止出京的限制偷偷潜回上海，他去干嘛了？“郭文贵”三个字对中共的震慑力太大了，竟然能把韩正从椅子上震起来，看来龙头改龟头，阳气上升了](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [波兰救援前线归来话感动](/content/gnews/22/README.md)
+### [波兰救援前线归来话感动](/content/gnews/23/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【乌克兰救援】3/13号，乌克兰前线救援团队‘热线小组’ 的哈雷、Feather、Kent接受采访（1）](/content/gnews/23/README.md)
+### [【乌克兰救援】3/13号，乌克兰前线救援团队‘热线小组’ 的哈雷、Feather、Kent接受采访（1）](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [乌克兰中国学生反驳中共政权完全撤离的说法](/content/gnews/24/README.md)
+### [乌克兰中国学生反驳中共政权完全撤离的说法](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年3月15日早](/content/gnews/25/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年3月15日早](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [韩国保守派被提名人尹锡悦赢得总统选举](/content/gnews/26/README.md)
+### [韩国保守派被提名人尹锡悦赢得总统选举](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [俄军空袭基辅市区 多处民宅遭击中至少2人死亡](/content/gnews/27/README.md)
+### [俄军空袭基辅市区 多处民宅遭击中至少2人死亡](/content/gnews/28/README.md)
  ` 日本東京方舟農場`
 
-### [2022年3月15日，全球中共病毒疫情情况汇总](/content/gnews/28/README.md)
+### [2022年3月15日，全球中共病毒疫情情况汇总](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [又一个Isobel Yeung?](/content/gnews/29/README.md)
- ` 秘密翻译组-原创组`
-
-### [【每日聚焦】俄乌战事3月14日简要](/content/gnews/30/README.md)
+### [普京和习近平颠覆整个世界秩序的阴谋](/content/gnews/30/README.md)
  ` 蓝莲花农场`
 
-### [首席执行官阿尔伯特·布尔拉 (Albert Bourla) 尝试撇清自已与 COVID mRNA 疫苗的责任关系，暗示他只是在同事的压力下才决定开发出这款特殊的“违反直觉”的疫苗](/content/gnews/31/README.md)
+### [又一个Isobel Yeung?](/content/gnews/31/README.md)
+ ` 秘密翻译组-原创组`
+
+### [【每日聚焦】俄乌战事3月14日简要](/content/gnews/32/README.md)
+ ` 蓝莲花农场`
+
+### [首席执行官阿尔伯特·布尔拉 (Albert Bourla) 尝试撇清自已与 COVID mRNA 疫苗的责任关系，暗示他只是在同事的压力下才决定开发出这款特殊的“违反直觉”的疫苗](/content/gnews/33/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [拜登和欧洲暂停俄贸易地位，加剧普京经济痛苦](/content/gnews/32/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [新中国联邦驻波兰救援营地的儿童娱乐角](/content/gnews/33/README.md)
+### [新中国联邦驻波兰救援营地的儿童娱乐角](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新西兰财经G乐部2022年3月15日:财经新闻整理](/content/gnews/34/README.md)
+### [新西兰财经G乐部2022年3月15日:财经新闻整理](/content/gnews/35/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [3/15/2022国际财经快讯：俄乌谈判、美国加息赌注导致黄金下滑；俄罗斯寻求恢复伊朗核协议，石油暴跌](/content/gnews/35/README.md)
+### [3/15/2022国际财经快讯：俄乌谈判、美国加息赌注导致黄金下滑；俄罗斯寻求恢复伊朗核协议，石油暴跌](/content/gnews/36/README.md)
  ` 秘密翻译组金融团队`
 
-### [克拉科夫救援站迎来年龄最小的难民](/content/gnews/36/README.md)
+### [克拉科夫救援站迎来年龄最小的难民](/content/gnews/37/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [日本两栖部队和美国海军陆战队首次共同演练空降攻击](/content/gnews/37/README.md)
+### [日本两栖部队和美国海军陆战队首次共同演练空降攻击](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻新闻｜新中国联邦使华人在国际救援中得到肯定](/content/gnews/38/README.md)
+### [秘翻新闻｜新中国联邦使华人在国际救援中得到肯定](/content/gnews/39/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美太平洋空军司令警告中共 攻击邻居恐催生太平洋版北约](/content/gnews/39/README.md)
+### [美太平洋空军司令警告中共 攻击邻居恐催生太平洋版北约](/content/gnews/40/README.md)
  ` G-NEWS TAIWAN`
 
-### [樱花头条┃美油企：禁运俄罗斯石油, 油价最高将飙到200美元](/content/gnews/40/README.md)
+### [樱花头条┃美油企：禁运俄罗斯石油, 油价最高将飙到200美元](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共治下惨无人道，七护士揭发真相又被“辟谣”](/content/gnews/41/README.md)
+### [中共治下惨无人道，七护士揭发真相又被“辟谣”](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美日联合军演以应对“竞争对手”的潜在侵略](/content/gnews/42/README.md)
+### [美日联合军演以应对“竞争对手”的潜在侵略](/content/gnews/43/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【秘翻新视野】我们是消灭中国共产党的新中国人](/content/gnews/43/README.md)
+### [【秘翻新视野】我们是消灭中国共产党的新中国人](/content/gnews/44/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [新中国联邦（NFSC）是第一个进入战场中救援的团体](/content/gnews/44/README.md)
+### [新中国联邦（NFSC）是第一个进入战场中救援的团体](/content/gnews/45/README.md)
  ` 日本東京方舟農場`
 
-### [中共企业股市暴跌 美股损失高达1.1万亿美元](/content/gnews/45/README.md)
+### [中共企业股市暴跌 美股损失高达1.1万亿美元](/content/gnews/46/README.md)
  ` 波士顿五月花农场金融部`
-
-### [mRNA“DNA基因编辑”——不再是阴谋论](/content/gnews/46/README.md)
- ` 喜马拉雅农场新西兰站`
 
 ### [台湾｜台北市长柯文哲宴请10名中企高层 名单惊见中共关系人](/content/gnews/47/README.md)
  ` 關注組`
