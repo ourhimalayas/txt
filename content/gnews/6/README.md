@@ -2,48 +2,48 @@
 ---
 
 
-## 美元和欧元不是你死我活的关系而是互相依存的男女关系
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2166522/)
+## 香港恒生指数跌破2万大关
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2166636/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8822.61%EF%BC%89%E7%BE%8E%E5%85%83%E5%92%8C%E6%AC%A7%E5%85%83%E4%B8%8D%E6%98%AF%E4%BD%A0%E6%AD%BB%E6%88%91%E6%B4%BB%E7%9A%84%E5%85%B3%E7%B3%BB%E8%80%8C%E6%98%AF%E4%BA%92%E7%9B%B8%E4%BE%9D%E5%AD%98%E7%9A%84%E7%94%B7%E5%A5%B3%E5%85%B3%E7%B3%BB%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:b)
+作者：日本方舟农场 – Andy5
 
-郭文贵先生：很多人以为说这是欧元和美元的战争，大家一定记住，这是王八蛋的逻辑。美元和欧元之间的关系是啥你知道吗？战友们，我可以告诉大家，就是男女之间的关系，谁没了谁都不行。很多所谓经济专家说的话你要相信了那就找死呢，你有多少钱赔多少钱。
 
-美国需要欧元，但不允许你比我强大。这就像小飞象、小飞侠，俩人默默之间到底谁是老大在家里面？它是我离不了你，你离不了我，但是咱俩你要把我压迫大了，我就找别人去，是吧？咱俩没有法定的关系，但是咱俩有互相需要的关系，互相相爱的关系。但是我绝对需要晚上需要你，白天需要你，但是你不能压迫到我不能活。
 
-美元不能没有欧元，欧元不能没有美元。因为美元要没有了欧元，人民币就做大，瑞元就做大，所以他说……既然你看小飞象说我没有小飞侠我就找另外一个人，我找瑞沃路森嘛，我找Danny嘛，是吧？那反正我得找一个，现在你是我最佳选择，我就靠你。但如果是小飞侠是被干掉了，那就很有可能选Danny、瑞沃路森了，就这么简单。文紫你老公在不在你旁边，你是一样啊，是不是？你是最好的选择。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-不存在所谓美元要干掉欧元，不存在欧元干掉美元，只有美元会自杀或欧元会自杀，（所以）不存在这个。美元，现在弱美元对美国经济是最好的，是吧？而且欧元强美元，欧元也不愿意干，欧元不想跟俄罗斯这么弄。
 
-欧洲最核心的利益就是跟俄罗斯别打，还东扩。但是俄罗斯说：“孙子，你想弄死我，还跟我不打仗，那我怎么干呐？我非打你不行！”
 
-对美国而言，你俄国你现在打吧，你打了现在对我是好的，欧洲弱，我最强。美国海外最大利益还是欧洲，美元和欧元之间不会导致战争，它只是利益考量的一部分，而且美国内部的政治选举即将到来。
+当地时间3月14日，香港恒生指数大跌近5%，其中，恒生科技指数更是暴跌11%，刷新历史最大跌幅。目前，恒指已跌破2万点大关，暂时停留在1万9千5百点。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide14-2.jpg)
+据查询，恒指最高峰出现在2018年，突破了3万3千点。然而，在2019年香港人轰轰烈烈的返送中，以及2020年中共疫情爆发后，就开始了一段长长的的下坡。尽管在21年初曾一度回到了近3万点，但在去年末直接跌至了2万3000点。今年，恒指一直徘徊于2万5千点下方，但从2月以来，几乎每个交易日都存在跌幅。
 
-编辑整理：Jacques；
+郭文贵先生从2019年起就一直警告，香港已经沦为臭港，香港的经济会越来越糟。而当恒生指数从接近3万5千点，跌破2万点的时候，则意味着香港乃至中共的经济出了大问题。
 
-字幕档制作：兵嫂；
+参考链接：
+1. [33154！恒生指数再创历史新高](https://www.cs.com.cn/xwzx/bignews2017/180102/18011101_78045/)
+2. [后疫情之”变”问道2021｜安信国际韩致立：恒指将突破35000点 看好医药、新零售](https://www.sohu.com/a/444166695_161105)
+3. [港股恒指失守23000点 创21个月新低丨星港钱潮](https://finance.caixin.com/2021-12-20/101820023.html)
+4. [港股恒指自2016年首次跌破20000点 思摩尔大跌逾20%](https://finance.sina.com.cn/stock/hkstock/marketalerts/2022-03-14/doc-imcwipih8352000.shtml)
+5. [史上单日最大下跌！恒生科技指数暴跌11% 腾讯闪崩 16只成份股跌超10%…](http://finance.eastmoney.com/a/202203142308377088.html)
 
-视频制作及上传：Cindy；
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-G-News发布：海贼王M.D.LUFFY；
+总编/编辑/审核：DM
+校对/发稿：为真不破20
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+**更多资讯，更多关注**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
 
  
 
