@@ -2,33 +2,70 @@
 ---
 
 
-## 有声|美国对俄罗斯的制裁延伸至加密货币
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2169993/)
+## 美证监会迫使在美中企退市，令中概股投资前景恶化
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2170061/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据[ONA网站](https://www.oann.com/u-s-treasury-department-stresses-that-russia-sanctions-extend-to-cryptocurrency/)援引路透社3月11日的报道，美国财政部外国资产管制处（OFAC）周五发布了新的指导意见，澄清美国公民和数字资产公司必须遵守对俄罗斯的制裁，采取基于风险的措施，确保其不参与被禁止的交易。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/KFC-1.jpg)在中国东部山东省济南市，一名骑自行车的人经过百胜餐饮肯德基的广告牌。 （美联社图片）
+来源于美国《新闻极限》（Newsmax）网站2022年03月15日的报道，
 
-包括Coinbase和Binance在内的主要加密货币交易所，并没有像一些乌克兰官员所呼吁的那样封锁俄罗斯用户。
+美国证券交易委员会( Securities and Exchange Commission，SEC)确定可能因不符合审计要求而从华尔街退市的中共国公司的举措，正在推动更多基金经理清退所持股份，并使近期新上市中概股的前景黯淡。
 
-在周一发布的指导意见中，金融犯罪执法网络（FinCEN）表示，加密货币交易所必须报告任何可疑活动，但周五的指导意见通知更进一步明确指出，交易所被禁止参与或协助非法交易。
+美国证券交易委员会上周首次确定了五家可能面临退市的中共国公司，其中包括肯德基运营商百胜中国控股公司。
 
-这一警告旨在防止数字资产可能被用来规避西方在俄罗斯入侵乌克兰后对其实施的制裁。
+在美国和中共国监管机构之间长期存在审计僵局的情况下，美方此举再次引发了投资者的担忧，并触发了中共国企业美国存托凭证(American depositary receipt，ADR)的大规模抛售。
 
-文字版原文：[美国对俄罗斯的制裁延伸至加密货币](https://gnews.org/zh-hans/2159296/)
+高盛(Goldman Sachs)估计，美国机构投资者目前持有约2000亿美元的中共国ADR风险敞口。
 
-音频处理：Fei797
-发稿：Fei797
+华盛顿方面要求能够完全查阅在美国上市的中共国公司的账目，但中共国政府禁止外方审查本土会计师事务所的工作文件。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+“整个行业越来越难投资……我们乾脆放弃，暂时退出任何在美上市的中共国企业，”一家总部位于纽约的大型对冲基金的投资组合经理表示。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这位投资组合经理表示，该基金自2019年底开始出售中共国企业的ADR，并计划在未来几周内抛售任何剩余持仓。他拒绝透露身份，因为未获授权对媒体发言。
+
+追踪在华尔街上市中共国企业的“纳斯达克金龙中国指数”(Nasdaq Golden Dragon China Index)自上周四以来连续两天下跌超过10%，使得今年以来的跌幅扩大到34%。该指数在2021年下跌了43%。
+
+那些对在美国上市的中共国公司风险敞口较少的公司正在权衡其他选择，以保持在中共国的投资。
+
+对在美国上市的中共国企业的担忧重现之际，对风险资产的兴趣因地缘政治风险上升和世界第二大经济体增长前景低迷而受到抑制。
+
+专注于中共国的资产管理公司美国金瑞基金(Krane Funds Advisors)表示，其持有的49亿美元的中共国的互联网交易所交易基金(KraneShare CSI，Exchange Traded Fund，ETF)旨在在未来几个月内将其投资组合中的所有中共国ADR转换为其香港股票。
+
+然而，美国金瑞基金周五表示，预计美国和中共国监管机构之间在审计问题达成妥协“仍然是可以实现的”。
+
+中共国证监会周五也向投资者做出了一定程度的保证，称其有信心与美国对口机构达成协议，以解决审计争执。
+
+银行家们表示，监管的不确定性可能会进一步阻碍中共国公司在华尔街的新上市计划，因为审计要求的不确定性以及中共国离岸上市的新规定给筹资前景蒙上阴影。
+
+Chardan特殊目的收购公司(Special Purpose Acquisition Company，SPAC)投资银行部驻纽约董事总经理翁英杰(Yingjie Weng)告诉《路透社》，中共国公司未来在美国上市的前景仍然不明朗。
+
+她补充说，那些被广泛用于规避外国投资限制、采用复杂离岸控股结构的公司，不太可能获得美国证券交易委员的批准。。
+
+**简评：**
+原本就承受着巨大监管整治压力的中概股，除了在近期需要面对俄乌局势变化以及通胀上升和美国加息前景的不安影响外。美国证券交易委员进一步迫使中概股退市的举措，引发下跌狂潮。周四，在美上市的中共国公司，度过了自2008年金融危机以来最黑暗的一天。
+
+针对中概股在美上市时，美方和中方的区别在于：美国方面要求能够完全查阅在美国上市的中共国公司的账目，但中共国政府禁止外方审查当地会计师事务所的工作文件。而这极不合理的在美上市但不能被美方审查的方式却被美国各大基金默认并投资。这也是华尔街深度参与中共向外渗透、扩张的邪恶计划的表现之一。
+
+我相信这只是一个开端，中概股除了将被美方审查以外，还将被各大基金战略性撤出。中概股留在美国的将成为鸡肋，市值股价被不信任抛售，并且还要经受审查。无论被勒令退市还是因为鸡肋自主退市，又将对中概股公司造成巨大资金影响（需要真金白银的美元去赎回股票）。所以，此次决定将深远影响中共国的经济及在国际市场的融资信誉。这可能是骆驼身上最重的一根稻草。
+
+新闻链接：[SEC’s Move to Delist Chinese ADRs Worsens Investment Outlook](https://www.newsmax.com/finance/streettalk/sec-adr-china/2022/03/14/id/1061015/)
+
+*翻译/简评：Brianchow*
+
+*校对：村民彼得潘*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

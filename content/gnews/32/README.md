@@ -2,29 +2,33 @@
 ---
 
 
-## 韩国周二CCP病毒感染死亡病例再创新高
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2169644/)
+## 大型金融机构恢复雇佣未接种疫苗员工
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2169715/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3.15-F.jpg)网络图片
-周二，韩国迎来了自疫情大流行以来最为致命的一天——该国在过去的 24 小时内一共报告了 293 人死亡案例。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月14日，据外媒报道，摩根大通在一份工作备忘录中表示，将从4月4日起恢复雇用未接种疫苗员工，并放弃办公场所口罩强制要求。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-上午11.23.51.png)
+这份备忘录还显示，同日将废除对未接种疫苗的员工进行强制测试，停止要求员工报告中共病毒感染情况。另外对公共场所的口罩要求更改为“自愿”，立刻生效。这家美国最大的银行解释道，鉴于目前美国的确诊病例在显著减少，有必要减少各种限制措施，逐步恢复生活常态。但纽约市的员工必须继续遵守该市疫苗接种政策，直到取消。它补充说华尔街将继续提供免费的家庭测试套件。
 
-于此同时，1196名的重症及危重症患者数量也创下了历史新高。韩国卫生官员表示，在努力扩大资源后，该国的医疗反应保持稳定，仍有超过 30% 的指定用于 COVID-19 治疗的重症监护病房可供使用。不过考虑到感染、住院和死亡之间存在时间上的延迟，预计未来几周医疗系统的压力会增加。
+与此同时，富国银行正计划从3月14日开始让员工返回办公室。花旗集团将从3月21日开始，将召集美国境内全体员工回公司上班，每周至少两天。分析人士认为，这些转变凸显了企业和政府官员越来越倾向于寻求恢复正常。亦有观点认为，当下全球供应短缺、金融滞胀的惨淡现状，加之俄乌战争的影响，使得各国政府、全球的企业家对口罩令、强制疫苗政策等管控措施逐渐失去了耐心。恢复生产、刺激经济、繁荣经贸等举措，预示着全球后疫情时代的到来。
 
-卫生部高级官员在简报会上表示：“我们预计（严重或危急病例）的数量将增加到 2,000例 左右。我们正在为此准备我们的医疗反应。”
+参考链接：[JPMorgan to resume hiring unvaccinated individuals, drop mask mandate -memo](https://financialpost.com/pmn/business-pmn/jpmorgan-to-resume-hiring-unvaccinated-individuals-drop-mask-mandate-memo)
 
-韩国在过去 7 天内平均每天报告约 337,000 例的新增CCP病毒感染案例，周二的数据则为362,283 例——比 1 月中旬 Omicron刚刚成为主要菌株时的水平增加了 80 倍以上。该国的累计感染数量现在超过 720 万，自 2 月以来增加了 640 万。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-卫生官员同时表示，到目前为止，该国因CCP病毒感染而导致的死亡率数低于美国和欧洲。根据韩国疾病控制和预防机构的数据，到目前为止，该国每 100,000 人中有 17.6 人死于 COVID-19，而美国为 285.5 人，英国为 237.5 人。
+编辑：谐趣园
+总编：Zion文恩
+审核：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-Omicron 变体的存在已经迫使韩国放弃严格的隔离管控措施及主动病例追踪，将有限的医疗资源集中在优先群体上，包括 60 岁及以上的人和患有既往疾病的人。
-
-*发布：Gradient Boost*
-
-新闻参考链接：
-
-[AP News](https://apnews.com/article/covid-health-south-korea-pandemics-23161b8f66dc2332c54a573e4f6e2430)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

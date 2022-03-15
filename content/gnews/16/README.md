@@ -2,24 +2,22 @@
 ---
 
 
-## 第四个欧盟制裁方案通过，俄罗斯仅在钢铁上就损失了 33 亿美元
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2169970/)
+## 佛罗伦萨队前锋23岁的加布里埃尔•戈里患心肌炎
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2170046/)
 
-翻译/整理: 萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/03/03154.jpg)图片来自ansa.it
-欧盟理事会通过了对俄罗斯的第四套制裁措施：禁止与一些国有企业的所有交易，预计将限制国防、安全和能源行业的货物和技术出口,以及停止奢侈品出口。
+#### 翻译                        意大利达芬奇农场                       小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-15-alle-18.48.04.png)图片来源：eventiavversinews.it
+佛罗伦萨队23岁前锋加布里埃尔•戈里( Gabriele Gori )，目前他被借到科森扎， 突发心肌炎。
 
-钢铁进口禁令会给俄罗斯带来的 33 亿美元收入损失，该禁令将导致俄罗斯进一步失去进入欧盟金融市场的机会。
+这是近几个月来足球运动员中的又一个案例。
 
-随着对莫斯科的新一揽子制裁措施的通过和俄罗斯“最惠国”条款的暂停，法国财政部长布鲁诺·勒梅尔（ Bruno Le Maire）表示欧盟有权随时增加对俄罗斯产品的关税。
+卡拉布里亚足球协会在3月14日星期一晚报告了他的心肌炎症：“科森扎足球公司通知，其成员加布里埃尔•戈里在新冠病毒检测呈阴性后进行了特定检查，他已被确认患有轻度心肌炎，，致使他无法上场。他会接受定期的身体检查， 以检测其身体状况，这还需要几个星期才能得到结果。”
 
-英国宣布对莫斯科实施新的一揽子经济制裁，以应对乌克兰入侵，意在影响去年估计价值9亿英镑，超过10亿欧元的俄罗斯产品的进口。同时英国政府已将多达 350 名俄罗斯人物的名字列入受制裁者的黑名单，冻结在英国发现的资产并禁止旅行。
+加布里埃尔•戈里是在2010年的青年巡回赛中被佛罗伦萨队的观察员注意到的，所以在那个赛季结束时，他就身着紫色球衣前往佛罗伦萨。
 
-美国正在针对乌克兰对俄罗斯实施新的制裁，还针对白俄罗斯总统亚历山大·卢卡申科及其家人。美国财政部宣布。
+原文链接：[https://www.eventiavversinews.it/miocardite-per-lattaccante-23enne-della-fiorentina-gabriele-gori/](https://www.eventiavversinews.it/miocardite-per-lattaccante-23enne-della-fiorentina-gabriele-gori/)
 
-原文链接: [https://www.ansa.it/sito/notizie/mondo/2022/03/15/ucraina-adottato-il-quarto-pacchetto-di-sanzioni-ue-solo-sullacciaio-persi-33-miliardi\_e9ab8aba-d2f2-43ba-b791-112006b9f9ac.html](https://www.ansa.it/sito/notizie/mondo/2022/03/15/ucraina-adottato-il-quarto-pacchetto-di-sanzioni-ue-solo-sullacciaio-persi-33-miliardi_e9ab8aba-d2f2-43ba-b791-112006b9f9ac.html)
-
-责任编辑/发布:意大利达芬奇农场   萧亦
+编辑、上传： Xiao   baige
 
  
 
