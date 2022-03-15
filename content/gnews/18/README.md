@@ -2,63 +2,25 @@
 ---
 
 
-## 谢谢你，英雄（乌克兰男孩的心声）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2167832/)
+## 中国｜郭文贵预言又中？！当红艺人邓伦涉偷税漏税 遭罚人民币1.06亿
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2167934/)
 
-作者：纽约香草山教育部-蓝之灵（hortênsia)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2497.jpg)
+**撰文/ 港台前线｜发布日期/ 15/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/郭文貴預言又中？！當紅藝人鄧倫涉偷稅漏稅-遭罰人民幣1.06億.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-你是我的英雄
-在绝望中
-伸出援助的手
-温暖我的心
-这个冬天特别寒冷
-侵略者炮弹
-毁灭所有希望
-未来是个黑洞
-不知何去何从
+上海市税务局今日（15日）通报，知名艺人邓伦涉嫌偷逃税款，被罚1.06亿元人民币，消息引起全国哗然，网民表示难以至信。
 
-爸爸上了战场
-妈妈担忧哭泣
-我还没有长大
-失去了家
-被迫逃离
-未来是一个黑洞
-我不知何去何从
+根据中共当局的通报显示，邓伦在2019年至2020年期间，通过虚构业务转换收入性质进行虚假申报，偷逃个人所得税4765.82万元，其他少缴个人所得税1399.32万元。
 
-谢谢你，我的英雄
-你们就像黑夜里的光
-给了我希望
-冰冷绝望的心
-有了温度
-再次跳跃
-谢谢你们
-我的英雄
-谢谢你们
-温暖的大帐篷
-背井离乡的人们
-对生活
-充满希望
-我们没有被抛弃
-有你们
-和
-我们同行
+上海市税务局有关负责人表示，税务部门将持续加强对文化娱乐领域从业人员的税收监管，并对协助偷逃税款的相关经纪公司及经纪人、中介机构等进行联动检查，依法严肃查处涉税违法行为，不断提升相关人员及企业的税法遵从度，进一步营造法治公平的税收环境。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-26.png)
+事实上，新中国联邦发起人郭文贵先生早在上个月20日的一次直播中就提前预告，冬奥会后，中共将整肃音乐界、演艺界，把之前被掩盖、被禁止的丑闻陆续曝光，届时，很可能会引发金融、地产等行业的骨牌效应，进入一个恶循环。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+2天前，即3月13日，北京2022年冬季奥运会正式闭幕。
 
-- 审核/编辑/发稿:qiutian（邱甜）
+来源｜[上海税务报](https://news.cnstock.com/news,bwkx-202203-4845537.htm)
 
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

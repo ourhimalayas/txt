@@ -2,68 +2,54 @@
 ---
 
 
-## 玛莎·布莱克本：俄罗斯和中共国是新的邪恶轴心,在削弱美国实力方面有着共同的利益
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2166727/)
+## 乌克兰救援前线报道3.15.2022：一曲“喜马拉雅之颠”响彻梅迪卡天空
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2167516/)
 
-参议员玛莎·布莱克本： 俄罗斯和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 是新的邪恶轴心的一部分，在削弱美国实力方面有着共同的利益。 【附视频：玛莎议员接受福克斯采访，谈话内容翻译如下： 俄罗斯是 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的加油站。 他们是中共最大的供应商。 但我们需要知道的是，中共国将在多大程度上推动救助俄罗斯。以及是否在经济上使用银联卡，是否在我们将俄罗斯从SWIFT系统中踢出时试图回填取代。 我有一个决议案，参议院支持将他们完全排除在 SWIFT 系统之外。你必须看看能源的购买情况。然后是 [#习近平](https://gettr.com/hashtag/%23%E4%B9%A0%E8%BF%91%E5%B9%B3) 和普京之间的关系，我认为他们是新邪恶轴心的新锚。伊朗和朝鲜也加入了他们的行列。】
+整撰：奔跑吧黄小鸭
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_20220315-133312_Insta.jpg)德国战地艺术家Davide与德国友人Lukas合照，Lukas将为乌克兰而战。Davide在他的INS上说：“每个人都可以选择如何战斗，有些人选择拿起武器，我选择了用我的钢琴。”（图片来自INS截图）
+新中国联邦法治基金人道救援的整体投入和全方位的行动越来越显示出其在整个梅迪卡救援中心的重要位置。来自前线Nicole的消息，两个NFSC营地平均每天接待500-1000人，至少有10家以上的国际媒体和自由制片人来到营地拍摄采访，来这里的人都喜欢NFSC咖啡，喜欢这里的一应俱全。
 
+今天最精彩的瞬间莫过于“喜马拉雅之颠”的钢琴曲飘荡在梅迪卡救援中心，那一刻，无法用言语形容的激动心情充满了全身。那些和平时期稍纵即逝的点点滴滴，在梅迪卡营地里显得那么的珍贵，那么的打动人心，我们将为您记录这些历史时刻，以下是波兰时间3月14日来自前线的最新消息：
 
+**越来越多国际媒体的采访**
 
-> Russia and China are part of the new Axis of Evil with a shared interest in weakening American power. [pic.twitter.com/9KxRQbrJxv](https://t.co/9KxRQbrJxv)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 14, 2022](https://twitter.com/MarshaBlackburn/status/1503417542353764357?ref_src=twsrc%5Etfw)
+前线Nicole报道，NFSC营地和救援团队成员陆续接受了纽约时报、CNN、彭博社、美联社、法新社、西班牙、科索沃、波兰、瑞典、韩国KBS、日本、香港、德国以及丹麦媒体的采访，还有一些独立制片人也对新中国联邦法制基金的人道救援行动产生了极大的兴趣。来自日韩的记者都为新中国联邦人在乌克兰战争中做出的人道救援表现出同为亚洲人的荣耀感。
 
+- 韩国最大电视台KBS的采访，两位记者非常佩服和支持新中国联邦人消灭中国共产党, 其中一位韩国记者会说中文 他用中文说“新中国联邦”。
+- 两位波兰独立制片人说，波兰人民也曾经被共产主义统治。1989年，莱赫·瓦文萨带领波兰人民推翻了共产主义，建立了一人一票的普选法案。她们祝愿中国的瓦文萨-郭文贵先生带领中国人民的灭共运动成功。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/韩国记者2.jpg)Nicole在NFSC营地前接受韩国KBS电视台采访 （图片来自NFSC news 素材区）
+**无与伦比的NFSC空间**
 
-前国务卿迈克.蓬佩奥： 当你在美国安全的核心任务集——即阻止坏人继续侵略——上失败时会发生这种情况。 【附福克斯一段采访：蓬佩奥就一位美国记者在乌克兰厄平被杀做评论，称拜登政府对俄罗斯的侵略行径所采取的行动太迟、太微弱而导致这样的事情发生】
+NFSC营地无论设备，场地，人员，环境都是其他小的NGO组织无法比拟的。在战争冲突的环境下，NFSC营地为这里的人们提供独一无二的空间，不仅有现磨的NFSC咖啡，还有稳定免费的天空WIFI。
 
+NFSC营地应该是梅迪卡救援中心唯一使用Starlink的场地，连接天空WIFI后，营地外的手机下载速度达到114Mbps。“当我们说free wifi的密码是 takedownccp时，有树大拇指的，会心一笑的，高兴击掌的，看来这是一个令所有人都喜欢的密码”，来自救援团队成员LuRen提供的信息。
 
+现磨的NFSC咖啡大受欢迎。英国《每日快报》（Daily Express) 和 《太阳报》（The Sun Newspaper) 的记者说新中国联邦的咖啡是他们喝过的最好的咖啡。
 
-> This is what happens when you fail at the core mission-set of American security, which is to deter the bad guys from continued aggression. [pic.twitter.com/D928ixg4ZK](https://t.co/D928ixg4ZK)
-> — Mike Pompeo (@mikepompeo) [March 14, 2022](https://twitter.com/mikepompeo/status/1503389718070837258?ref_src=twsrc%5Etfw)
+新中国联邦救援团队多方合作，源源不断的救援物资还从克拉科夫救援站运送到梅迪卡NFSC营地中。文耀战友在前线直播中说，在物资奇缺的当下，用尽全力才争取到这顶240平米帐篷，如果战局持续，可能会增加更大的帐篷。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/咖啡2-2.jpg)国际红十字会的工作人员和志愿者们称 “这是世界上最好的咖啡“，他们感谢新中国联邦人所做的一切努力。（图片来自NFSC news 素材区）
+**NFSC营地首场NGO组织集合会议**
 
+今天，梅迪卡救援中心的首场NGO组织集合会议在240平米的NFSC营地召开，包括国际红十字会在内，至少80多位国际公益组织的负责人参加了会议。会议主要讨论所有在场公益组织的资源整合和统一管理，与波兰政府机构的对接，如警察、消防、医疗救援以及海关部门。作为唯一亚洲面孔的新中国联邦人，在这场人道灾难到来的时候，展现出了绝对优势的救援力量。这是新中国联邦法制基金史与国际人道救援机构的一次无前例的实战合作。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/开会.png)图片来自NFSC news 素材区
+**战地艺术家现场演绎“喜马拉雅之颠”**
 
+昨天，德国钢琴家大卫主动将钢琴搬到NFSC帐篷前，正对着国际各大媒体的转播台。全世界已无法回避，新中国联邦法治基金的人道救援在梅迪卡的存在。今天，大卫在NSFC营地前演奏了“喜马拉雅之颠”，琴声飘荡在梅迪卡救援中心，释放出了无穷无尽的力量。
 
+Nicole在直播中介绍，大卫来NFSC营地喝咖啡时说，他去过很多战争冲突地区表演，从来没有见过亚洲面孔，这次在梅迪卡遇见新中国联邦人让他感到非常惊讶。新中国联邦蓝色的旗帜，中间的星星很像欧盟的旗帜，他出于好奇在网上搜索新中国联邦，当发现社交媒体上传播乌克兰人道救援的信息，并了解到新中国联邦是要推翻中国共产党后，他马上决定要支持，他选择将钢琴放到NFSC营地前。
 
+大卫还说，他曾在都柏林火车站的某个公共场合演奏，当时正值香港发生反送中和平抗议的时候，在他表演的现场有一群人支持中共镇压香港人，他们发出很大的“噪音”，他为了盖住“噪音”把钢琴声调到最大音量。
 
-> 参议员马可·卢比奥：
-> 切断与俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) 的关系很容易，但如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 入侵台湾，想切断关系就不会那么容易了。
-> 
-> 现在我们太依赖#中共国了
-> 
-> 我们必须开始在美国制造更多东西
-> 【附中字视频】 [https://t.co/Cmn3rHY5FB](https://t.co/Cmn3rHY5FB) [pic.twitter.com/L1bihHGJ7b](https://t.co/L1bihHGJ7b)
-> — 美国政要直译推 (@zhiyitw33) [March 15, 2022](https://twitter.com/zhiyitw33/status/1503577253015289859?ref_src=twsrc%5Etfw)
+这台已遍布斑驳的钢琴，显示出它跟随大卫曾奔赴战争和冲突地区的不平凡经历。大卫弹奏这首“喜马拉雅之颠”时，充满了他对战争的理解，对乱世平民的同情和爱，以及对法制基金人道救援的理解和对新中国联邦故事的理解。在他的Ins上最新显示一张的照片，背后是NFSC营地，上面写着“**每个人都在选择自己如何战斗，有些人选择武器，我选择我的钢琴。”**
 
+夜幕降临，篝火里燃烧的木材发出阵阵的霹雳声，伴随着钢琴声，此时的梅迪卡显得如此的宁静。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_20220315-133312_Insta.png)图片来自INS截图
+**照亮梅迪卡夜空中的NFSC明灯**
 
+进入15日的凌晨1点30分，NFSC营地里依旧有很多人在这里休息，取暖! 这里有带孩子的妈妈，有年青的学生，有老人孩子；
 
-众议员迈克·华尔兹： 看看我们在短短18个月里在中东的地位跌了多少。 我们已经从白宫草坪上的历史性和平协议（亚伯拉罕协议）转变为现在的领导人不会接受我们总统的呼吁，而是向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 靠拢。 【转推来自华尔街日报：沙特阿拉伯邀请 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 习近平访问利雅得，因为该国希望加深与北京的联系】
-
-
-
-> Look how far we’ve fallen in just 18 months in the Middle East. 
-> 
-> We’ve gone from historic peace deals on the White House lawn (Abraham Accords) to now leaders won’t take our President’s calls and are moving towards China. [https://t.co/xQ3P8HQNg8](https://t.co/xQ3P8HQNg8)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 14, 2022](https://twitter.com/michaelgwaltz/status/1503511359060910084?ref_src=twsrc%5Etfw)
-
-
-
-众议院军事委员会： 如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 协助普京大屠杀，我们必须制裁中共国，拜登必须明确这一点。 如果拜登政府允许中共国的武器屠杀乌克兰平民或允许中共国银行为普京的血钱洗钱，国会将采取行动。 【附卫报新闻：国安顾问沙利文说如果中共国帮助俄罗斯逃避制裁将面临后果】
-
-
-
-> We must sanction China if they assist w/ Putin's massacre and Biden must make that clear.
->  
-> Congress will act if the Biden admin allows Chinese weapons to slaughter Ukrainian civilians or allows Chinese banks to launder Putin’s blood money.[https://t.co/Kwywp9JMKU](https://t.co/Kwywp9JMKU)
-> — Armed Services GOP (@HASCRepublicans) [March 14, 2022](https://twitter.com/HASCRepublicans/status/1503494226998398979?ref_src=twsrc%5Etfw)
-
-
-
-白宫： (国家安全顾问) 杰克·沙利文@JakeSullivan46 今天在意大利罗马会见了中共政治局委员、外事工作委员会办公室主任杨洁篪。 他们的会议是继 2021 年 11 月 15 日拜登总统和习近平主席之间的虚拟会议上的后续。沙利文先生提出了一系列美中关系的问题，并实质性地讨论了俄罗斯对乌克兰的战争。 他们还强调了保持美中之间开放沟通渠道的重要性。
-
-
-
-> .[@JakeSullivan46](https://twitter.com/JakeSullivan46?ref_src=twsrc%5Etfw) met today with Chinese Communist Party Politburo Member and Director of the Office of the Foreign Affairs Commission Yang Jiechi in Rome, Italy. Their meeting followed up on the November 15, 2021 virtual meeting between President Biden and President Xi.
-> — The White House (@WhiteHouse) [March 14, 2022](https://twitter.com/WhiteHouse/status/1503468239963238400?ref_src=twsrc%5Etfw)
+凌晨2点时分，波兰边防人员送来一家人包括四只小狗。新中国联邦和法治基金提供的平安，祥和，温暖和友爱，此时此刻的这里，不像避难所，更像一个旅途小憩的场所。人们在这里不仅享受免费的饮料食品，更享受这一刻的安心与平和。来自前线Lu Ren的信息。
 
 
 
