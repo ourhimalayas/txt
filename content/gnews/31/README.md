@@ -2,29 +2,33 @@
 ---
 
 
-## 【 G时新闻 】联合国呼吁采取行动防止战争导致全球粮食体系崩溃
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2169735/)
+## 大型金融机构恢复雇佣未接种疫苗员工
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2169715/)
 
-播报：加拿大温哥华扬帆农场 – 莉李鲤
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月14日，据外媒报道，摩根大通在一份工作备忘录中表示，将从4月4日起恢复雇用未接种疫苗员工，并放弃办公场所口罩强制要求。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-上午11.23.51.png)
+这份备忘录还显示，同日将废除对未接种疫苗的员工进行强制测试，停止要求员工报告中共病毒感染情况。另外对公共场所的口罩要求更改为“自愿”，立刻生效。这家美国最大的银行解释道，鉴于目前美国的确诊病例在显著减少，有必要减少各种限制措施，逐步恢复生活常态。但纽约市的员工必须继续遵守该市疫苗接种政策，直到取消。它补充说华尔街将继续提供免费的家庭测试套件。
 
-视频制作：加拿大温哥华扬帆农场 – 文雅
+与此同时，富国银行正计划从3月14日开始让员工返回办公室。花旗集团将从3月21日开始，将召集美国境内全体员工回公司上班，每周至少两天。分析人士认为，这些转变凸显了企业和政府官员越来越倾向于寻求恢复正常。亦有观点认为，当下全球供应短缺、金融滞胀的惨淡现状，加之俄乌战争的影响，使得各国政府、全球的企业家对口罩令、强制疫苗政策等管控措施逐渐失去了耐心。恢复生产、刺激经济、繁荣经贸等举措，预示着全球后疫情时代的到来。
 
-据法国国际广播电台3月14日报道，联合国秘书长古特瑞斯警告称，俄、乌之战可能对全球粮食供应产生深远的后果，可能导致“全球粮食体系崩溃，饥荒四起”。世界上45个开发程度最低的国家进口的小麦，至少有1／3产自乌克兰和俄罗斯。联合国全球粮价指数现在已经达到历史最高点。
+参考链接：[JPMorgan to resume hiring unvaccinated individuals, drop mask mandate -memo](https://financialpost.com/pmn/business-pmn/jpmorgan-to-resume-hiring-unvaccinated-individuals-drop-mask-mandate-memo)
 
-古特瑞斯表示：“这场战争造成的的冲击波远远超出乌克兰，同时也对世上最脆弱的人民和国家形成打击。即使在开战之前，发展中国家就因通贷膨胀、利率上涨和债务负担而难以走向复苏，如今他们的粮仓又遭到了轰炸”。世界粮食计划署（WFP）供应的小麦有半数以上产自乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-战争带来的除了死亡，就是社会秩序和各种体系的崩塌，尤其是中共病毒还在全球肆虐，疫苗灾难即将发生的时候。俄罗斯入侵乌克兰所带来的恶劣影响还没有开始，但已然能预见：不久的将来，一定会有大量的难民和饥饿的灾民让整个世界不堪重负，一定会有可怕的疫苗灾难产生。
+编辑：谐趣园
+总编：Zion文恩
+审核：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-一定要停止战争，消灭中共，切断中共对俄罗斯的供应。
-
-原文链接：[https://gnews.org/zh-hans/2166178/](https://gnews.org/zh-hans/2158133/)
-
-视频链接：[https://gettr.com/post/p103yv8a8df](https://gettr.com/post/p103yv8a8df)
-
-发稿：野草
-
-————————————————————————————————————
-![](https://assets.gnews.org/wp-content/uploads/2022/03/加载内容.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

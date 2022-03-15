@@ -2,48 +2,50 @@
 ---
 
 
-## 拜登不顾两党的支持，亲自扼杀了波兰的飞机交易
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2169888/)
+## 新西兰财经G乐部2022年3月15日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2169868/)
 
-据《Newsmax》 作者：Luca Cacciatore，2022年3月10日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1665-e1647362153989.png)(Mandel Ngan/法新社通过盖蒂图片社)
-据英国《每日邮报》周四报道，尽管有共和党和民主党人支持这项交易，但总统乔-拜登担心波兰向乌克兰转让米格-29喷气机可能会使与俄罗斯的紧张局势升级，因此取消了这项交易。
+采集整理：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2022/03/FN4ZhamaUAQOFCE.jpg)
+正文
 
-白宫在周三的新闻发布会上正式宣布决定扼杀由欧洲外交官发起的这一想法，称其目前不会支持美国或波兰向乌克兰转让喷气机。
+**1、中共国资委：1-2月央企业实现净利润2821.7亿元，同比增长20.4%**
 
-新闻秘书约翰-柯比说：“我们目前不支持向乌克兰空军转让战机，也不希望看到它们由我们保管。”
+中共国务院国资委获悉，1-2月，中央企业实现营业收入5.7万亿元、利润总额3678.7亿元、净利润2821.7亿元，同比分别增长17.6%、20.6%、20.4%，运行质量持续改善，为一季度“开门红”奠定了坚实基础。
 
-该计划此前在国会得到两党的支持，然后被搁置。
+财经G评：权力集中、资源垄断、司法垄断、国企做大、效率低下、国进民退、每况愈下！
 
-“现在是普京对我们可能做什么感到恐惧的时候了。这就是战争。人们正在死去。我们需要立即向泽伦斯基总统和乌克兰人民提供飞机。”犹他州参议员米特-罗姆尼在推特上写道，并分享了他赞同这一决定的听证会的视频。
+链接：[https://news.cnstock.com/news,bwkx-202203-4845261.htm](https://news.cnstock.com/news,bwkx-202203-4845261.htm)
 
-参议院外交关系委员会主席鲍勃-梅嫩德斯（Bob Menendez）周一致函国务卿安东尼-布林肯和国防部长劳埃德-奥斯汀，呼吁美国更换波兰或其他北约国家捐赠给乌克兰的任何飞机。
+**2、摩根大通：阿里巴巴将持续面临抛售压力，降目标价至65美元**
+![img](https://media.gettr.com/group43/origin/2022/03/15/04/e2546cbf-e1fd-6f6c-3175-f09eee4c4fd5/49d9a90047f98e2cb8366ad187180cdd_500x0.png)
+财联社3月14日 摩根大通 分析师Alex Yao将 阿里巴巴 评级从增持下调至减持，目标价从180美元下调至65美元。该分析师表示，由于地缘政治和宏观风险上升，大量全球投资者正在减少对中国 互联网行业 的投资。而阿里巴巴作为中国互联网板块中被广泛持有的股票之一，该股近期将继续面临抛售压力。
 
-“乌克兰人拥有我们集体能够提供的一切可能的军事援助手段，这对欧洲和美国的安全至关重要。”梅嫩德斯写道。
+财经G评：根据统计阿里巴巴自2020年10月到现在不到2年的时间已经从319美元跌到现在77美元跌幅高达230%！
 
-他补充说：“我将支持参议院努力实施措施，对为乌克兰国防提供飞机的我们的盟友进行补偿。”
+链接：[https://www.sohu.com/a/529793098\_222256](https://www.sohu.com/a/529793098_222256)
 
-据《邮报》报道，乌克兰总统沃洛季米尔-泽伦斯基指责美国和波兰在拿人民的生命开玩笑。
+**3、“雪松系”百亿纾困计划生变**
+![img](https://media.gettr.com/group29/origin/2022/03/15/05/7a9284bc-afc2-32c5-c822-7180fe84b911/46095220a10a1c5e07fe59033200ed9a_500x0.png)
+“雪松系”掌门人张劲，希望通过让渡上市公司齐翔腾达（002408.SZ）控制权，以缓解资金危机的计划横生变数。3月7日，齐翔腾达公告，控股股东齐翔集团及一致行动人雪松实业，正筹划控制权变更，交易对方系专业投资管理机构。交易顺利达成，雪松控股或可获得百亿资金纾困。昨日，齐翔集团收到证监会山东监管局下发的《行政处罚事先告知书》，按照相关规定，该集团在6个月内，不能直接转让上市公司股权。
 
-泽伦斯基说：“听着，我们在打仗! 我们没有时间考虑所有这些信号。这不是乒乓球！这关系到人的生命! 我们再次要求：更快地解决这个问题。”
+链接：[https://finance.sina.com.cn/stock/s/2022-03-15/doc-imcwipih8519576.shtml](https://finance.sina.com.cn/stock/s/2022-03-15/doc-imcwipih8519576.shtml)
 
-文章观点仅代表作者个人，与Gnews平台无关。
+**4、乌克兰政府与FTX、Kuna和Everstake合作推出加密货币捐赠网站**
+![img](https://media.gettr.com/group43/origin/2022/03/15/05/4ef777bc-7dd8-b1c2-47d4-b4161c598a04/9780cae9010e6b2384b6336b92d94bf5_500x0.png)
+加密货币交易所FTX和Kuna以及质押平台Everstake已与乌克兰政府官员达成合作，为希望发送加密货币来帮助乌克兰和其人民的用户推出了一个捐赠网站。在周一的一份声明中，乌克兰数字化转型部长表示，乌克兰政府已经推出了Aid for Ukraine这个平台，接受BTC、ETH、USDT、DOT、SOL、DOGE、XMR、ICX和NEO捐款，“以此来支持人们为自由而战。据该网站称，截至撰写本文时，用户已经发送了超过4800万美元的加密货币，约占该平台2亿美元目标的24%。这些资金将被发送到乌克兰国家银行，用于购买“弹药和必需品”，以支持该国的武装部队和人道主义援助项目。乌克兰中央银行还接受各种法币捐款。
 
-文章来源: [https://www.newsmax.com/politics/poland-jet-deal-zelenskyy/2022/03/10/id/1060678/](https://www.newsmax.com/politics/poland-jet-deal-zelenskyy/2022/03/10/id/1060678/)
+链接： [https://cointelegraphcn.com/news/ukrainian-government-launches-crypto-donation-website-with-ftx-kuna-and-everstake](https://cointelegraphcn.com/news/ukrainian-government-launches-crypto-donation-website-with-ftx-kuna-and-everstake)
 
-翻译：洛杉矶盘古农场 – Mike Li
+**5、欧盟全面的加密货币法规包离批准又近了一步**
+![img](https://media.gettr.com/group28/origin/2022/03/15/05/54013311-5adf-09cb-e787-8f13691824a8/cdb862a5cac120597fb9888fd2c1059f_500x0.png)
+欧盟 (EU) 用于管理加密资产的具有里程碑意义的监管框架在其批准过程中已经通过了另一个门槛。周一，欧盟议会经济和货币事务委员会以 31 票对 4票赞成加密资产市场（MiCA）框架的新草案，有 23 票弃权。该框架广泛涵盖了加密货币的发行和交易，并承诺通过促进在国家之间有效的“通行证”许可证，使加密公司更容易在欧盟 27 个成员国中扩张。“最后，商定的文本包括打击市场操纵和防止洗钱、恐怖主义融资和其他犯罪活动的措施，”周一投票的官方声明说。
 
-校对：洛杉矶盘古农场 – 轰炸机
+链接： [https://www.coindesk.com/policy/2022/03/14/eus-sweeping-crypto-regulations-package-one-step-closer-to-ratification/](https://www.coindesk.com/policy/2022/03/14/eus-sweeping-crypto-regulations-package-one-step-closer-to-ratification/)
 
-编辑：洛杉矶盘古农场 – 傻小子
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
 
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+上传排版：文勇
 
  
 
