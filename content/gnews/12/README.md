@@ -2,36 +2,22 @@
 ---
 
 
-## 俄执政党拟让对遵守西方制裁的实体和个人进行刑事处罚
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2166021/)
+## 新中国联邦首次参与国际组织救援会议
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2166198/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+台湾宝岛农场
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7c70e3e8-4dcb-4a97-a227-215e1c8de880-1.jpg)
+3月14日早间， 新中国联邦乌克兰人道救援帐篷中开启基地系统化管理得相关会议，本次会议意义重大，为新中国联邦首次参与国际组织会议，且全部主角为新中国联邦代表得中国人。
 
-整理/编辑：围剿维尼熊
+来自全世界各国和组织的救援团队聚集在法治基金捐赠的帐篷里面，召开了第一次 战地救援联合协调大会。 这个画面将被载入史册。这次全世界救援组织的战地联合协调会议，凝聚着全世界爱好和平和反对战争的群体的正义的力量。不分种族，肤色，文化，政治背景的救援群体，为了救人救世而聚集了起来。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
+* * *
 
+新中国联邦发起乌克兰救援行动为达成人道救援目的，成员由同价值观者组成，其中救援行动由“消灭共产党的中国人！”发起，理念为“中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类”。
 
-根据大纪元3月15日讯，俄罗斯执政党统一俄罗斯党领导人周一（3月14日）警告，该党正在提议，让那些遵从西方国家对俄罗斯实施制裁的公司承担刑事责任。
+We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party.
 
-统一俄罗斯党总委员会书记安德烈‧图尔恰克（Andrey Turchak）表示，该党近期将为俄罗斯议会准备相关修正案。
-
-图尔恰克称，该党提议“对遵守和执行西方制裁的此类（商业）实体及其管理人员确定严厉的责任，包括刑事责任”。
-
-在俄罗斯入侵乌克兰后，除了西方政府采取的经济制裁手段，各国公司也纷纷退出或暂停在俄罗斯的业务。俄罗斯已逐渐成为一个“经济孤岛”。
-
-西方国家在对俄罗斯实施严厉制裁的同时，也在防范其采取措施规避制裁，包括使用中共的银行系统绕过限制其使用SWIFT支付系统的制裁。
-
-参考链接：[https://www.epochtimes.com/gb/22/3/14/n13646095.htm](https://www.epochtimes.com/gb/22/3/14/n13646095.htm)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
 
  
 

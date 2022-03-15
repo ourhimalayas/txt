@@ -2,10 +2,30 @@
 ---
 
 
-## 3/13/2022 文贵直播: SWIFT制裁的都是独裁的国家，其规则由全世界半数以上人口的基督教和天主教国家共同制定的！被踢出SWIFT系统并非美国说了算，它是一致的标准，一致的决策和共同的决定的结果！
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2165690/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月14日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2166016/)
 
-秘密翻译组-北美组
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-2-1.png)
+
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/p101xs3702b](https://gettr.com/post/p101xs3702b)
+访谈：[https://gettr.com/post/p1021q3737f](https://gettr.com/post/p1021q3737f)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-17.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

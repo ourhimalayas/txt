@@ -2,22 +2,33 @@
 ---
 
 
-## 新中国联邦首次参与国际组织救援会议
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2166198/)
+## 2022/03/12 自由车队在为每一个美国人的权利发声
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2166365/)
 
-台湾宝岛农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7c70e3e8-4dcb-4a97-a227-215e1c8de880-1.jpg)
-3月14日早间， 新中国联邦乌克兰人道救援帐篷中开启基地系统化管理得相关会议，本次会议意义重大，为新中国联邦首次参与国际组织会议，且全部主角为新中国联邦代表得中国人。
+**简评：**
 
-来自全世界各国和组织的救援团队聚集在法治基金捐赠的帐篷里面，召开了第一次 战地救援联合协调大会。 这个画面将被载入史册。这次全世界救援组织的战地联合协调会议，凝聚着全世界爱好和平和反对战争的群体的正义的力量。不分种族，肤色，文化，政治背景的救援群体，为了救人救世而聚集了起来。
+参议员Ted Cruz赞扬自由车队的卡车司机们抗议疫苗暴政的勇敢行为，称他们在为全美350万卡车司机，为每一位美国人的权利，为所有被强制接种疫苗，或者因拒绝接种疫苗而被解雇的人发声。政府没有权利强制疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/031202-1.jpg)
+[GETTR视频链接](https://gettr.com/post/pzvmh2b7ee)
+
+**视频字幕：**
+
+**Senator Ted Cruz：**太令人惊叹了。当我们的车队驶过，沿路都能看聚集在一起的男女，挥舞旗子，鸣笛表达支持。当我们驶过一个接一个的立交桥，几乎每座立交桥，都有人群聚集，挥舞着旗子，向卡车司机说谢谢。让我告诉你，这些卡车司机，他们正在为每一位美国人的权利发声。他们正在为全美350万卡车司机发声。而且不仅仅是为卡车司机，也在为警察和消防员发声。他们在为士兵、水手、空军和海军陆战队发声，在为医生、护士和教师发声，他们在为航空公司的飞行员和空乘人员发声，为所有被不公正且非法责令接种COVID疫苗，或（因拒绝接种）而被解雇的人发声，政府无权这样做。
+
+*字幕：free20200604|选题：势不可挡|听写：雨中漫步|翻译：Blue|校对：Roberts|简评/文字整理/编辑：胖丁*
 
 * * *
 
-新中国联邦发起乌克兰救援行动为达成人道救援目的，成员由同价值观者组成，其中救援行动由“消灭共产党的中国人！”发起，理念为“中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类”。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party.
 
-The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

@@ -2,107 +2,59 @@
 ---
 
 
-## 克鲁兹参议员：是时候结束暴虐的强制疫苗了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2165459/)
+## 全球疫情疫苗数据更新（10天中发生的4个病例）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2165682/)
 
-Ted Cruz (Texas Senator)
-泰德·克鲁斯（德克萨斯州参议员）
+整理：枳实
+美工：精灵蓝
 
-Well, Sean, let me start with just a word of encouragement
-好吧，肖恩，让我先说一句鼓励的话
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/1-129.png)图片：雅典娜农场设计组 精灵蓝
 
-As you noted, I spent the day with the People’s convoy
-正如你所说，我和人民车队一起度过了一天
 
-I went and joined them this morning
-今天早上我去参加了他们
+雅典娜疫情更新（2022年 3月14日）
 
-spoke with them and then joined the convoy, rode in the lead rig
-与他们交谈，然后加入车队，乘坐领头的车
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-They’re circling the beltway around Washington, DC
-他们环绕在华盛顿特区的环城公路上
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-78.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-63.png)
+**疫情随笔**
 
-and then the lead rig we broke off from the convoy
-然后我们领头的车从车队中脱离
+过去10天发生的病例：
 
-We headed straight to the Capitol in Washington, D.C.
-我们直奔华盛顿特区的国会大厦
+疫苗灾难尚未到来，然而端倪已经不断出现，笔者身边的已经开始发现起因蹊跷的肿瘤病人，耳闻的发生在身边的副作用病例更是不计其数。推特上有一位医生罗列了最近10天来在新闻中的病例：
 
-And I gotta tell you, it was inspirational
-我得告诉你，这很鼓舞人心
+- 棒球运动员前道奇王牌投手Odalis Perez去世，享年44岁 。
+- 前澳大利亚板球运动员Shane Warne死于52岁，心脏病发作。
+- 澳大利亚工党参议员Kimberley Kitching死于52岁，心脏病发作，而当时她正在驾车，所幸成功在路边停车。
+- 名模Hailey Bieber年仅25岁，因发现中风症状而入院，诊断为脑部血栓。
 
-Seeing truckers from all over the country
-看到来自全国各地的卡车司机
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-53.png)
+[2022年3月14日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月14日改进-1.pdf)
 
-they started in California, they came all across the country
-他们从加利福尼亚开始，他们横跨全国各地
+数据来源：
 
-their numbers grew and grew and grew
-他们的人数越来越多，越来越多
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-so that you had 1000s of truckers
-所以就有了 1000 多名卡车司机
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-you had 1000s of RV’s and cars and people supporting them
-有 1000 辆房车和汽车，还有支持他们的人
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-standing up for freedom standing up against these illegal
-捍卫自由反对这些非法行为
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-and unconstitutional vaccine mandates
-和违宪的强制疫苗规定
+[covidlive.com.au](https://covidlive.com.au/)
 
-And the thing that was so powerful
-非常的震撼
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
 
-is as we would drive along lining the streets
-像我们沿着街道行驶时
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-there would be people with signs, people with American flags waving
-会有人举着牌子，挥舞着美国国旗的人
+发布：tianzhihuan
 
-Sean, just about every overpass that we went under
-肖恩，我们走过的几乎每一个立交桥
-
-There were people lined up there waving flags
-那里有挥舞旗帜的人排队
-
-saying thank you, giving you the thumbs up
-说谢谢，竖起大拇指
-
-And I do think the disaster that is Washington
-我确实认为华盛顿的灾难
-
-that is Biden and Schumer and Pelosi the abuse
-那是拜登、舒默和佩洛西烂用职权
-
-that we’re seeing from Washington
-我们从华盛顿在看到的
-
-the one good thing is it is waking people
-如果它能唤醒人们，那是一件好事
-
-原视频链接: [https://twitter.com/sentedcruz/status/1502117538637004842?s=24](https://twitter.com/sentedcruz/status/1502117538637004842?s=24)
-
-Date:03/11/2022
-原视频标题:Senator Cruz: It’s time to end the tyrannical vaccine mandate!
-克鲁兹参议员：是时候结束暴虐的强制疫苗了！
-原视频日期：2022/03/10
-原视频链接https://twitter.com/sentedcruz/status/1502117538637004842?s=24
-任务编号：KE449（3979）
-视频时间段 : 0:00-1:10
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

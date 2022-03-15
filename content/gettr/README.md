@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 3:30 AM (UTC)`
+
+3月14号：每句话，👉👉👉👉👉👉像导弹一样，砸到中南坑．那些老杂毛的l 心尖上……共产党，你玩球弹了！
+![img](https://media.gettr.com/group9/getter/2022/03/15/03/ebb201f0-dbff-3e29-3247-424d95a967fe/out.jpg)
+
+---
+
 `@miles 3/15/2022 3:01 AM (UTC)`
 
 3月14号太多，我的好多投资领域，已经投资了香港的朋友，给我发了类似这样的信息🙈🙈🙈但愿有更多人能跟随新中国联邦，做一个消灭中国共产党的得到自己真正信仰的人。真正的能够明白👉“相信共产党走进火葬场”远离共产党才能有未来和希望！莘县阳谷县搭县咱们走着看！<br/>【亲爱的miles，我们在香港的股市的投资彻底崩塌了，我不想说后悔，当初没有听你的话，导致今天这种严重的不可收拾的后果，我为我相信共产党付出了不能承受的代价，我还是要告诉你，你是我的好兄弟。你是我的英雄，我的弟弟听了你的话，售完了所有的香港的股市的资产，谢谢你亲爱的兄弟。】
@@ -154,13 +161,6 @@ Check us out 🇮🇹 <br/>www.GFASHION.com
 
 【Ukraine Rescue】03/13/2022 Volunteer Nicole introduces to Agence France-Presse that the NFSC & ROLF Ukraine Humanitarian Rescue station would receive 500-1000 refugees daily, and that taking down the CCP is our mission.<br/><br/>【乌克兰救援】03/13/2022 志愿者妮可向法新社记者介绍新中国联邦法治基金乌克兰人道救援行站每天都会接纳500-1000名难民，以及我们致力于推翻中共的使命。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group22/getter/2022/03/14/22/c104e34e-6104-e559-01d0-503408bfdd83/out.jpg)
-
----
-
-`@miles 3/14/2022 10:06 PM (UTC)`
-
-3/14/2022 Miles Guo: The people inside the CCP understand that the H-Coin is their last resort when facing the upcoming demise of the Party; our fellow fighters working at the Ukrainian rescue frontline are demonstrating the new image of Chinese people who are taking down the CCP, winning honor for the entire Asian people<br/><br/>3/14/2022 文贵直播：中共内部的人知道喜币是中共行将灭亡之际的唯一救命稻草；乌克兰救援前线的战友向世界展示了灭共的新中国人的新面貌，为亚洲人争了脸<br/>
-![img](https://media.gettr.com/group39/getter/2022/03/14/22/d7183c61-07eb-093b-bac7-2ad4d9ecd108/out.jpg)
 
 ---
 

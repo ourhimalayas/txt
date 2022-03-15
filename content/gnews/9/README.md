@@ -2,30 +2,41 @@
 ---
 
 
-## 新中国联邦救援队参与难民营地的管理会议
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2166069/)
+## 愿咖啡陪你度过漫长黑夜
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2166205/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-整理/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-15_10-03-40.png)图片来源：郭文贵先生盖特视频截图
+作者：银河系农场 – 骄子
 
 
-3月4日上午，波兰梅迪卡口岸所有义工组织的成员代表集中到新中国联邦和法治基金的乌克兰人道救援帐篷中开会讨论整个营地的系统化管理。这是由联合国和国际红十字会、以及无国界救援者等组织发起的救援基地负责人会议。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-15_10-03-29.png)
-新中国联邦的救援队也参与其中。这是首次有华人的面孔参加国际难民救援营地的管理会议。
 
-资料来源：[郭文贵先生2022年3月15日盖特视频](https://www.gettr.com/post/p100qx4a947)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+3月14日救援前线消息，自从NFSC咖啡在梅迪卡推出后，给无数疲惫的人带去了安慰。郭先生说每天一杯暖暖的咖啡对于西方人来说非常重要，而在梅迪卡这样艰苦的救援环境下，咖啡更有巨大的作用。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-9.jpg)
+在新中国联邦的豪华大帐篷内，时时都有咖啡飘香。对于难民来说，连续几十个小时的逃离身心俱疲，咖啡给了他们最好的提神醒脑暖心的作用。而对西方的媒体工作者来说，一杯咖啡更是能让他们立即精神焕发。前线多数媒体工作记者都夸赞NFSC咖啡是最好喝的咖啡。现磨咖啡的提供者就是我们这些灭共的中国人。就连联合国的3个代表听到我们有咖啡，都非常兴奋。
+
+愿NFSC咖啡陪伴难民和各媒体工作记者度过这些艰苦岁月。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/审核：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

@@ -2,37 +2,29 @@
 ---
 
 
-## 俄乌局势僵持不下，金融市场大跌
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2166106/)
+## 美国不满中共国支援俄罗斯军需物资
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2166225/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+2022-03-14
 
-整理：等风来
-编辑：围剿维尼熊
-![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe-1.png)
-根据FX168财经报社3月15日报道， 周一(3月14日)美市盘中，美股震荡下跌，道指回吐450点的涨幅回落至平盘下方；美元指数也延续跌势，交投于99下方；黄金等贵金属遭遇疯狂抛售，其中现货黄金一度自高位回落超40美元至1950下方，而现货钯金则大跌超16%；原油市场也遭到抛售潮。
+翻译：文舞两道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Q9E6WY87NNA4F00.png)照片来源：https://www3.nhk.or.jp
+包括美国主要报纸《华盛顿邮报》在内的多家媒体13日表示，美国政府官员指出自俄罗斯对乌克兰发动军事入侵以来，一直请求中共国为俄罗斯提供军事物资。俄罗斯想要什么样的武器，中方是什么反应等虽没有报道，但政府官员指出，“俄罗斯正面临某些武器的短缺”。
 
-此外，市场还关注美联储本周三的利率决议。预计美联储将在周三为期两天的会议结束时将联邦基金利率从零上调0.25个百分点。
+美国白宫负责安全政策的国家安全顾问沙利文13日在美国有线电视新闻网（CNN）上露面说，“我们正在关注中共国将向俄罗斯提供多少物质和财政支持”。沙利文将于14日在意大利首都罗马会见中共国中央政治局委员杨洁篪。
 
-美股周一震荡下跌，油价也大幅下跌，交易员密切关注乌克兰和俄罗斯战争的最新进展。
+中工国对乌克兰局势表现出亲俄立场，反复强调“防止紧张局势升级和失控是一项紧迫任务”，特别是在制裁上采取消极的态度。
 
-除了乌克兰和俄罗斯之间的新谈判之外，中国新一轮封锁是本周开始时原油价格下跌的原因。
+消息来源：
 
-俄乌第四轮谈判从于美时间周一凌晨00:30开始，双方沟通未能达成共识，谈判将于周二继续。
+[“ロシアが中国に軍事物資の支援求める” 米複数メディア](https://www3.nhk.or.jp/news/html/20220314/k10013530221000.html?utm_int=news-international_contents_list-items_003)
 
-鉴于双方都愿意对话，乌克兰危机最糟糕的时期可能已经过去。金价不太可能在短期内突破上周创下的历史新高。
+编辑：LILY
+发布：肥鯮
 
-参考链接：[https://hk.investing.com/news/commodities-news/article-220303](https://hk.investing.com/news/commodities-news/article-220303)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,22 @@
 ---
 
 
-## 全体义工的努力赢了世界的尊重和关注
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2164759/)
+## 秘翻在线: 深圳封锁令对全球供应链造成新打击
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2164960/)
 
-作者：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在3月11日的大直播中，郭文贵先生表示，全体义工战友在救援前线所表现的专业精神，充分赢得了全世界的尊重和关注。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-45.jpg)
-郭先生说，新中国联邦赶赴前线开展救援以后，能迅速组织起来，对外展示良好形象，并被世界媒体所关注，是全球战友共同努力的结果。因为法治基金和法治社会，也是全球战友捐款和努力而成立的，这是任何一个有钱人用钱买不到的。过去五年，全球义工在街头抗议和直播等活动中积累的成功经验，在俄乌真实的战场上得到了充分的展现。其专业的人道救援水准，迅速获得了全世界的尊重与关注，与共产党假恶丑的表现截然相反。
+撰稿：西枫westca
 
-同样，义工们出色的表现，与30多年来只靠捐款度日和沽名钓誉的海外民运分子，也形成了强烈对比。新中国联邦因为有信仰，凝聚了真有良知的人，启发了人性中最好的一面。共同的信仰，让全体战友拥有了超出常人的精气神。这种充沛的动力，推动义工们向全世界展现了中国人最最美好的一面。这是中共更不愿意看到的，因为新中国联邦团结了海外华人。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-7-1.jpg)图片来源：网络照片
+知名数字媒体公司Axios 首席经济记者尼尔欧文（Neil Irwin）3月13日发推说， 深圳对于中共病毒的新的封锁令将会对美国的通货膨胀造成巨大的不利影响， 但这个信息还未被广泛报道。
 
-参考链接：[义工战友们在救援前线表现出来的专业精神赢得了全世界的尊敬和关注！](https://www.gettr.com/post/pzowjr724d)
+深圳市疫情防控指挥部3月13日发布全市社区小区封闭式管理，公交、地铁停运， 除担任防疫任务的工作人员，均居家办公，暂停生产经营活动一周。全员三轮核酸检测。这座1700多万人的大城市，连同邻近的号称“世界加工厂” 的东莞一同进入“慢生活”。
 
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+深圳市是世界大部分技术制造业的所在地，而世界上大多数工业产品都可以在东莞企业群体的“工业生物链”中找到与其相配套的行业和产品。苹果供应商富士康已关闭两家生产iPhone的工厂。
 
-总编/编辑/审核：飞虹
-校对/发稿：Hetangyuese
+在中共国，主要从事制造业的城市封锁不仅会影响本国的经济复苏， 还可能对全球供应链会造成新的打击。对于已高达7.9%（2月统计数字）通货膨胀率的美国，多种产品的供应链断裂，对经济的打击会是雪上加霜。
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**新闻来源：**[Neil Irwin on Twitter: “We’re currently living in the brief moment between when Finance/Econ Twitter has realized that the new Covid lockdowns in Shenzhen are going to have hugely bad consequences for US inflation, but that has not yet become a widely-reported conventional wisdom.” / Twitter](https://mobile.twitter.com/Neil_Irwin/status/1503202338340757516)[富士康因新冠疫情封锁在深圳停产 – 协议 (protocol.com)](https://www.protocol.com/bulletins/shenzhen-lockdown-manufacturing)
 
  
 
