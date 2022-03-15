@@ -2,35 +2,28 @@
 ---
 
 
-## 乌克兰准备谈判 但绝不投降
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2167373/)
+## 战争狂普京失去民心，侵略国国民大逃离！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2167493/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-乌克兰外交部长库列巴3月12日表示，乌克兰已对谈判做好准备，以结束两周前俄罗斯发动的入侵战争。他说，乌克兰不会投降，也不会接受最后通牒。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-上午2.39.00.png)
-库列巴在无党派、非营利组织“复兴民主倡议”召开的视频会议上表示，如果乌克兰拥有战斗机和更多攻击型飞机来摧毁俄军的大型军事纵队，就可以拯救更多百姓的生命。
+撰稿：东京樱花团/待命（文晓）
 
-库列巴提及南部港口城市马立波时表示，虽然马立波遭到围困，但仍在乌克兰的控制之下。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/战争狂普京失去民心，侵略国国民大逃离！.png)
 
-自俄罗斯2月24日入侵乌克兰后，迄今为止，已有至少250万人被沦为难民。西方国家迅速采取行动，要将俄罗斯孤立于世界贸易和全球金融体系之外。但库列巴表示，尽管有这些制裁，乌克兰仍然需要更多的军事物资，以及需要西方国家采取更多的措施，来打击俄罗斯的经济。
+3月15日BBC新闻消息：在东欧的格鲁吉亚议会外，一名男子将装有衣服和食物的箱子装上一辆开往乌克兰的卡车。
 
-参考链接：[Ukrainian foreign minister says ready to negotiate, but will not surrender](https://www.reuters.com/world/europe/ukrainian-foreign-minister-says-ready-negotiate-will-not-surrender-2022-03-12/)
+自俄罗斯开始入侵乌克兰以来，已有超过25000名俄罗斯人来到格鲁吉亚。前面提到的男子叶夫根尼-利亚明（23岁）就是其中之一。俄罗斯人在格鲁吉亚的所有主要城市都很难找到负担得起的住宿设施。许多人提着行李箱在首都第比利斯徘徊，有些人还带着宠物。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+梁明(音译)的风衣翻领上，有一条蓝黄相间的乌克兰国旗丝带。正是因为这些丝带，在俄罗斯对乌克兰发动战争的第二天，很多人因参加反战示威而被捕。
 
-编辑：Jack Li文阳
-总编：文真
-审核：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+在大学学习政治学的梁明(音译)说：我明白，反对普京政权的最好方式是移民俄罗斯。 我将尽我所能帮助乌克兰人，这是我的责任。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+信息来源：[ロシアで「頭脳流出」進む　数千人が海外へ脱出、ウクライナ侵攻で（BBC News） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/dc2abed4739bbccc995d77ada1b6f03e764cf1eb)
+
+这是怎样的场景？这是怎样的战争？俄罗斯去侵犯乌克兰，战火中的乌克兰人民却都不愿意离开家乡。而侵略国的俄罗斯，其国民在纷纷逃离！人民，是分得清好坏，看得清对错的。
+
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

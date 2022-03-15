@@ -2,35 +2,35 @@
 ---
 
 
-## 马斯克向俄罗斯普京下战书 ：以乌克兰为赌注进行单挑
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2167311/)
+## 中东事件是中俄联手策划的围魏救赵
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2167339/)
 
-文 / 林辉智
-发布 / 2022年3月15日 12:00 AM
-采集：玫瑰新闻组
+作者：日本方舟农场Andy5 纽约香草山农场 文鹰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月13日的大直播中，郭文贵先生透露，目前中共和俄罗斯挑动伊朗等国对美国的攻击，搅乱中东局势，就是一场围魏救赵的行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-上午2.38.42.png)
+郭先生指出，现在中共、俄罗斯、北朝鲜、伊朗、沙特等组成的五大邪恶国家联盟，为了应对美国等西方文明国家的制裁，利用对中东地区的绝对控制，挑动胡塞武装轰炸沙特炼油厂、伊朗发射导弹攻击美军基地，在霍尔木斯海峡制造战争，打垮世界能源供给，用能源价格的攀升逼迫西方国家撤销对俄罗斯的制裁。同时，也让西方国家在中共趁乱攻台之际，忌惮能源危机而不敢做出任何制裁。
 
-![特斯拉创办人马斯克（左）以俄文拼出俄罗斯总统普京（右）的全名，并透过推特向他喊话：“我在此向弗拉基米尔普京发出一对一战斗的挑战。赌注是乌克兰。” （法新社）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/images/202203/20220315/untitledpresentation13.jpg?VersionId=6oPCasu8iml8lFqhG5gPHfePgQNa2WSW&amp;itok=KIcEF_PN)特斯拉创办人马斯克（左）以俄文拼出俄罗斯总统普京（右）的全名，并透过推特向他喊话：“我在此向弗拉基米尔普京发出一对一战斗的挑战。赌注是乌克兰。” （法新社）
+郭先生强调，目前在中东发生的事件只是刚刚开始，更重大的事情将在近期发生。最终，中共和俄罗斯等邪恶轴心国，会遭到全世界的谴责和制裁，而中共高官们必将面临齐奥塞斯库的结局。
 
-（早报讯）特斯拉（Tesla）创办人马斯克（Elon Musk）周一（3月14日）向俄罗斯总统普京下战书，要与他进行“单挑”，并指赌注就是乌克兰。
+参考链接：
+1.[https://www.gettr.com/streaming/pzrn4eb349](http://1.	https://www.gettr.com/streaming/pzrn4eb349)
+2.[https://gettr.com/post/pz3zdza229](http://2.	https://gettr.com/post/pz3zdza229)
 
-马斯克以俄文拼出普京的全名，并透过推特向他喊话：“我在此向普京发出一对一战斗的挑战。赌注是乌克兰。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-此外，马斯克还在另一则推文中标记克里姆林宫，并询问道：“你接受这场战斗吗？”
+编辑：宁文静
+总编：文真
+审核：宁文静、文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3151.gif)
-
-法新社报道，马斯克一名追随者在贴文中指马斯克可能没有考虑清楚他发出的挑战，马斯克回应说：“我绝对认真”。他补充说：“如果普京能够如此轻易地羞辱西方，那么他就会接受挑战。但他不会。” 克里姆林宫方面没有立即作出反应。
-
-自俄罗斯入侵乌克兰以来，50岁的南非裔马斯克已经表示支持基辅。他本月在推特上力挺乌克兰，并指“对伟大的俄罗斯人民表示同情，因为他们不希望发生这场战争”。
-
-除此之外，马斯克还直接回应了基辅的请求，启动了乌克兰的星链互联网服务，并送出设备，帮助受俄军攻击的乌克兰地区实现互联网连接。
-
-新闻来源：
-[马斯克向普京下战书 以乌克兰为赌注进行单挑](https://www.zaobao.com.sg/realtime/world/story20220314-1252288)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

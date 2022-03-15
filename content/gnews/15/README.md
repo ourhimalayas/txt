@@ -2,23 +2,23 @@
 ---
 
 
-## 樱花FM|中日财经爆:俄央行宣布半年内提现不能超过1万美元
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2167294/)
+## 樱花FM|中日财经爆:任天堂宣布停止向俄罗斯发货
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2167297/)
 
 音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/RFYuP6jRd7GgOVjiruXkUpQWD_36D40joF2rUcq7z0rS5tqmWXZL8lTLJ9ZBIGnlphUI5QGxXpFIDCWNeiuzmVnLmiIMCU3iVDmNvVB73S-Int5X0OWw4EUcgae6ffpK3A)
-俄罗斯央行9日宣布，在今年9月之前的半年内，将从美元计价的银行账户中提取的金额限制在1万美元以内，因入侵乌克兰而在美国和欧洲受到严厉经济制裁的普京政府急于阻止外汇外流。
+![](https://lh3.googleusercontent.com/3FbmqYKaUDhVak4UDPkalPZ4qsl4oEObVeixKITgPU9uVmFCaZ3SbAIfMWreWUsLJ8npxOBLAJcoXt6yxSFJY0iq4neXfMHngZF1tK554Lto9Z9A7TsrjcU-pu6PXxuS7Q)
+日本任天堂株式会社3月10日宣布，将停止向俄罗斯运送主游戏机“Nintendo Switch”和游戏软件。由于物流中断，恢复发货时间未定。
 
-由于欧美制裁收紧，卢布兑美元汇率较入侵前下跌约40%。2月底，俄罗斯央行决定紧急加息，以遏制因货币贬值导致的通胀加速，但此后卢布持续贬值。
+任天堂俄罗斯网店已停止以俄罗斯货币卢布进行交易，无法使用购买游戏等服务。
 
-为此，俄罗斯总统普京于本月2日签署了一项总统令，禁止汇出或提取超过1万美元的现金。6日，俄罗斯央行将汇往国外的最高金额限制为每月5000美元。
+原定于4月在海外发售的Switch游戏软件《Advance Wars 1 + 2: Re-Boot Camp》的发布已被推迟。这是一款出现坦克等的游戏，据说“考虑到了世界局势”。
 
-在卢布大幅波动的俄罗斯，据说有五分之一的人存入美元存款以保护自己的资产，这将对公民的生活产生重大影响。
+任天堂是一家主要从事电子游戏的开发、制造与发行的日本公司，是目前世界三大游戏机生产商之一。
 
 文字版原文：
 
 
-| [中日财经爆┃俄央行宣布半年内提现不能超过1万美元](https://gnews.org/zh-hans/2136192/) |   |
+| [中日财经爆┃任天堂宣布停止向俄罗斯发货](https://gnews.org/zh-hans/2136228/) |   |
 | --- | --- |
 
 
