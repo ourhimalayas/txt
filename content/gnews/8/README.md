@@ -2,35 +2,77 @@
 ---
 
 
-## 英国防部消息人士称俄只能再维持两周的战斗
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2169753/)
+## 2022年3月15日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2169853/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/u.jpg)usadailybrief.com
-《每日邮报》3月15日报道，俄罗斯军队可能在乌克兰只能再维持14天的战斗。该报援引英国国防部消息人士的话说，两周后，俄罗斯军队可能难以守住他们在乌克兰占领的土地。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220315-2.jpg)
+视频连接：[2022年3月15日 文贵大直播：香港股市跌破两万点；擀面杖经济难以为继；中共全球拉仇恨行径；疫苗大灾难如何面对](https://gettr.com/streaming/p1051m93814)
 
-消息人士坚持认为，俄军正在逃亡中。而且消息人士称，在14天内，乌克兰的抵抗力应该比入侵部队更强。
+1、共产党爪牙布隆伯格编造谣言，给新中国联邦“挖坑”；
 
-“很快，俄罗斯被击落的直升机数量将达到数百架。”乌克兰总统泽连斯基说，“他们已经损失了80架战机，数百辆坦克，以及数千个其他单位的设备。在19天内，俄罗斯军队在乌克兰的损失比在车臣的两场血腥的、长达数年的战争中的损失还要多。”
+2、新加坡都在排华，新中国联邦乌克兰国际人道救援行动，影响巨大，拯救我们的孩子和未来；
 
-与此同时，据美联社报道，在周二黎明前不久，俄罗斯的一系列打击袭击了基辅的一个居民区。这些袭击引发了一场大火，并在一栋15层的公寓楼里展开了救援。
+3、习包子不知道！韩正违反中南海规定，乔装打扮坐火车偷偷回上海了，见了文贵先生最好朋友，布置后事；
 
-据美联社报道，至少有一人死亡，其他人仍被困在里面。
+4、建国建党以来第一次，北京市发不出工资，要求中央给钱，几个沿海地区也出现了发不出工资的情况；
 
-市区一个地铁站的入口被爆炸产生的冲击波损坏。该站曾被用作防空洞。
+5、曾庆红，也开始回避谈政治了，说明被警告了；
 
-据《纽约邮报》报道，乌克兰国家警察说，俄罗斯军队星期二袭击了9个定居点，至少有53处民用设施在袭击中受损。这些地点包括居民楼、学校和公用事业基础设施。有平民和警察受伤。
+6、黑龙江往新疆集中营的粮食，被砍了一半，粮食出现重大问题；
 
-《每日邮报》指出，俄罗斯国民警卫队队长维克多·佐洛托夫（Viktor Zolotov）周二承认，“不是一切都像我们希望的那样快速发展”。但是，他仍然发誓俄罗斯将 “一步步 “取得胜利。
+7、福建战备区秘密报告中共，出现极不稳定因素；
 
-**特评：**普通人没有人希望任何火战继续打下去，但发动这场战争的普京和习已经疯狂，他们只为了一己私利而将乌克兰和俄罗斯拉入灾难深渊。
+8、习近平身边贴身秘书韩立平见了老师说最大的危机不确定因素，历史上从来都是皇帝的身体决定国家的命运，快跑；
 
-从这个消息看到的是俄罗斯军队毫无士气，俄罗斯国内反战浪潮迭起，但相信俄乌之战不会很快结束。
+9、中共恐惧三件事：
 
-参考链接：
+1）、乌克兰救援，让新中国联邦人代表了中国人
 
-[https://www.dailymail.co.uk/news/article-10613069/Putins-forces-able-fight-14-days-military-experts-say.html](https://www.dailymail.co.uk/news/article-10613069/Putins-forces-able-fight-14-days-military-experts-say.html)
+2）、喜币让很多战友赚了钱
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+3）、在西方打造的社交媒体平台，抢夺了话语权
+
+10、香港金融崩塌，广东1万多亿的GDP会垮，逃荒即将来临。常委里60-70%在广东有利益，导致以共灭共；
+
+11、疫情还会持续很长时间；
+
+12、房地产垮台，从黑龙江，吉林，北京开始；
+
+13、第三道大门：经济房地产失控病毒失控，共产党内部问题转移视线外部解决打台湾；
+
+14、中国共产党在中东点火就是掩盖他要打台湾，赌的是美国不可能同时打三场战争；
+
+15、中美沙杨谈判：如果中共为俄罗斯的入侵提供任何支持和打台湾，美国不会袖手旁观。杨洁篪表示：可以卖了俄罗斯和美国做交易，沙利文根本没这根筋，美方不在乎；
+
+16、疫苗灾难到5月份再看！新中国联邦给战友最大的礼物就是没打疫苗；
+
+17、台湾农场 假“大牛”换汇，被骗的钱，台湾农场负责；
+
+**注：大直播音频正在制作和上传中，敬请关注****——**
+
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

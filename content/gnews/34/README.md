@@ -2,16 +2,12 @@
 ---
 
 
-## 文贵已剧透 中共将出演
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2169012/)
+## 【乌克兰救援】03/14/22 两位国际红十字会的义工来到新中国联邦的帐篷享用咖啡，并表示感谢
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2169372/)
 
-文贵大直播20220315
+【乌克兰救援】03/14/22 两位国际红十字会的义工来到新中国联邦的帐篷享用咖啡，并表示感谢
 
-撰稿：文仁（功成）Poplar（盘古）dingding（香草山）
-
-美工：长颈鹿（雅典娜）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-1-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-1-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-1-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-1-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-1-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-1-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-1-5.png)
-*发布：Theodosia*
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

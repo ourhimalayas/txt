@@ -2,33 +2,37 @@
 ---
 
 
-## 大型金融机构恢复雇佣未接种疫苗员工
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2169715/)
+## 【 G时新闻 】澳州和荷兰就马航MH17被击落事件对俄罗斯发起法律行动
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2169800/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月14日，据外媒报道，摩根大通在一份工作备忘录中表示，将从4月4日起恢复雇用未接种疫苗员工，并放弃办公场所口罩强制要求。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-上午11.23.51.png)
-这份备忘录还显示，同日将废除对未接种疫苗的员工进行强制测试，停止要求员工报告中共病毒感染情况。另外对公共场所的口罩要求更改为“自愿”，立刻生效。这家美国最大的银行解释道，鉴于目前美国的确诊病例在显著减少，有必要减少各种限制措施，逐步恢复生活常态。但纽约市的员工必须继续遵守该市疫苗接种政策，直到取消。它补充说华尔街将继续提供免费的家庭测试套件。
+播报：加拿大温哥华扬帆农场 – 莉李鲤
 
-与此同时，富国银行正计划从3月14日开始让员工返回办公室。花旗集团将从3月21日开始，将召集美国境内全体员工回公司上班，每周至少两天。分析人士认为，这些转变凸显了企业和政府官员越来越倾向于寻求恢复正常。亦有观点认为，当下全球供应短缺、金融滞胀的惨淡现状，加之俄乌战争的影响，使得各国政府、全球的企业家对口罩令、强制疫苗政策等管控措施逐渐失去了耐心。恢复生产、刺激经济、繁荣经贸等举措，预示着全球后疫情时代的到来。
+视频制作：加拿大温哥华扬帆农场 – 文雅
 
-参考链接：[JPMorgan to resume hiring unvaccinated individuals, drop mask mandate -memo](https://financialpost.com/pmn/business-pmn/jpmorgan-to-resume-hiring-unvaccinated-individuals-drop-mask-mandate-memo)
+在俄罗斯入侵乌克兰已接近三个星期，国际社会对俄罗斯实施了历史上最严厉的制裁之时，2022年3月14日，澳大利亚和荷兰宣布根据《国际民用航空公约》，对俄罗斯击落马航MH17的事件对俄罗斯发起联合法律诉讼。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+2014年7月17日，一枚俄罗斯制造的地对空导弹在乌克兰顿涅茨克上空击中了马航MH17航班，所有283 名乘客和 15 名机组人员全部遇难。其中有超过三分之二的乘客是荷兰人，还有38名澳州人。
 
-编辑：谐趣园
-总编：Zion文恩
-审核：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+2014 年 3 月上旬，乌克兰东部发生武装冲突， 美国联邦航空管理局对 MH17 航线以南的克里米亚上空的航班发出限制。但此警告不包括 MH17 坠机区域。当MH17被击落时，另外三架属于印度，台湾和新加坡的商用飞机也在同一区域飞行。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+事件发生后，荷兰司法部会同比利时、乌克兰、澳大利亚和马来西亚对事件展开了调查，采访了证人并检查了法医样本、卫星数据、截获的通信和网络上的信息。
+
+调查遭到了俄罗斯的阻挠。由于害怕俄罗斯的报复，一些证人的证词都是匿名提交的。俄罗斯特勤局还试图侵入马来西亚总检察长办公室和澳大利亚联邦警察局窃取调查档案。
+
+俄罗斯拒绝对事件承担责任，停止了与澳大利亚和荷兰的谈判，并多次拒绝了两国提出的返回会谈的要求。
+
+根据调查结果，澳州和荷兰坚持认为俄罗斯应对MH17事件负责。澳州外交部长玛丽斯·佩恩说，澳州和荷兰的联合行动将是 追求真相和正义的重要一步。
+
+俄罗斯对乌克兰的无端入侵表明，国际社会必须追究俄罗斯公然违反国际法和《联合国宪章》的责任，包括对乌克兰主权和领空的威胁。
+
+原文链接：[https://gnews.org/zh-hans/2165808/](https://gnews.org/zh-hans/2158133/)
+
+视频链接：[https://gettr.com/post/p1040kgac55](https://gettr.com/post/p1040kgac55)
+
+发稿：野草
+
+————————————————————————————————————
+![](https://assets.gnews.org/wp-content/uploads/2022/03/加载内容.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

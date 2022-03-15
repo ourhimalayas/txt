@@ -2,35 +2,38 @@
 ---
 
 
-## 盖特跨媒体交叉发布功能上线
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2169810/)
+## 新州15日：6人感染冠状病毒去世，其均已接种疫苗
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2169902/)
 
-作者：纽约香草山-Delilah小胖
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据盖特官方账户3月14日报道，跨媒体交叉发布功能于今日上线盖特。该功能将实现用户的原创盖文同步发布在所关联的推特账户中。这意味着盖特用户能够在无需重复登陆其他社交媒体平台的情况下，与跨平台的关注者第一时间分享信息，实现交叉互动。据悉，本功能面向所有现阶段的500万盖特注册用户。
+#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-4.jpeg)
+编辑/整理：小鱼儿
 
-据盖特首席执行官杰森·米勒先生透露：这仅仅是盖特碾压那些限制言论的社交媒体寡头的开始。未来盖特还将实现针对脸书的交叉发布功能。随着盖特短视频功能—GVision的逐步上线，盖特还将实现针对Instagram和Tiktok的交叉发布功能。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1667.png)
 
-参考链接：
-1. [https://gettr.com/post/pzzsgd5ff9](https://gettr.com/post/pzzsgd5ff9)
-2. [http://Watch Jason Miller live on GETTR](http://Watch%20Jason%20Miller%20live%20on%20GETTR)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+据新州卫生部3月15日报道，6人感染冠状病毒去世，其均已接种疫苗。其中，2人接种三剂，4人接种两剂。
 
-总编：Zion文恩
-编辑：谐趣园   
-审核：Zion文恩
-校正/发稿：谐趣园
+去世者中，40多岁1人，70多岁1人，80多岁1人，90多岁3人。其中，两名来自悉尼西南部，一名来自悉尼内西区，一名来自河滨区地区，一名来自塔里，一名来自克拉伦斯谷地区。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+另外，新州14日，1人感染冠状病毒去世，接种一剂。新州13 日，7 人感染冠状病毒去世，其均已接种疫苗。其中，1人接种四剂，4人接种三剂，2人接种两剂。
+
+译者问：疫苗真的有效吗？除了疫苗外，民众是否有权利，选择其他预防方案？例如，青蒿素、伊维菌素、槲皮素……等等。
+
+参考资料：
+[COVID-19 (Coronavirus) statistics  | 15 March NSW](https://www.health.nsw.gov.au/news/Pages/20220315_00.aspx)
+[COVID-19 (Coronavirus) statistics  | 14 March NSW](https://www.health.nsw.gov.au/news/Pages/20220314_00.aspx)
+[COVID-19 (Coronavirus) statistics  | 13 March NSW](https://www.health.nsw.gov.au/news/Pages/20220313_00.aspx)
+
+发布： 星谕
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
