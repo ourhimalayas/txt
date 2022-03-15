@@ -2,29 +2,26 @@
 ---
 
 
-## 樱花FM|中日财经爆:任天堂宣布停止向俄罗斯发货
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2167297/)
+## 樱花时政┃美国官员表示，俄罗斯要求中共国提供军事援助
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2167479/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/3FbmqYKaUDhVak4UDPkalPZ4qsl4oEObVeixKITgPU9uVmFCaZ3SbAIfMWreWUsLJ8npxOBLAJcoXt6yxSFJY0iq4neXfMHngZF1tK554Lto9Z9A7TsrjcU-pu6PXxuS7Q)
-日本任天堂株式会社3月10日宣布，将停止向俄罗斯运送主游戏机“Nintendo Switch”和游戏软件。由于物流中断，恢复发货时间未定。
+撰稿：东京樱花团/ Calvin
 
-任天堂俄罗斯网店已停止以俄罗斯货币卢布进行交易，无法使用购买游戏等服务。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/美国官员表示，俄罗斯要求中共国提供军事援助.png)
 
-原定于4月在海外发售的Switch游戏软件《Advance Wars 1 + 2: Re-Boot Camp》的发布已被推迟。这是一款出现坦克等的游戏，据说“考虑到了世界局势”。
+据美国官员称，俄罗斯已要求中共国提供军事援助，以支持其入侵乌克兰。美国官员告诉英国《金融时报》，随着战争进入第三周，现在是怀疑俄罗斯的武器可能已经快耗尽了，需要中共的军事援助。消息发布之际，美国国家安全顾问杰克·沙利文计划周一在罗马与中共国外交政策高级官员杨洁篪会面。
 
-任天堂是一家主要从事电子游戏的开发、制造与发行的日本公司，是目前世界三大游戏机生产商之一。
+在周末前往意大利之前，沙利文警告中共国不要帮助莫斯科绕过美国及其盟友目前对俄罗斯总统弗拉基米尔·普京实施的制裁来“援助”俄罗斯。Sullivan周日告诉NBC，我们将确保中共国和其他任何的国家组织都无法帮助俄罗斯去缓解制裁带来的损失。同样，就这样做的具体方式而言，我不会公开阐述所有这些，但我们将像我们已经做并将继续做的那样，继续私下与中共国沟通。
 
-文字版原文：
+最近，人们对中共国与俄罗斯关系的不断发展感到一定程度的担忧。尽管北京已经正式对乌克兰战争保持“中立”态度，但北京——莫斯科联合表示，他们之间的关系是“没有限制的”。据报道，中共国官员还在2月初告诉俄罗斯高级官员，要推迟入侵乌克兰，直到2月结束的2022年北京冬奥会结束。
 
+消息来源：
 
-| [中日财经爆┃任天堂宣布停止向俄罗斯发货](https://gnews.org/zh-hans/2136228/) |   |
-| --- | --- |
+[BREAKING: US officials say Russia has asked China for military aid in Ukraine invasion](https://thepostmillennial.com/us-officials-russia-china-military-aid-ukraine)
 
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,33 @@
 ---
 
 
-## 乌克兰准备谈判 但绝不投降
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2167373/)
+## 视频|中共国本土日确诊中共病毒病例激增
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2167480/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-乌克兰外交部长库列巴3月12日表示，乌克兰已对谈判做好准备，以结束两周前俄罗斯发动的入侵战争。他说，乌克兰不会投降，也不会接受最后通牒。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-上午2.39.00.png)
-库列巴在无党派、非营利组织“复兴民主倡议”召开的视频会议上表示，如果乌克兰拥有战斗机和更多攻击型飞机来摧毁俄军的大型军事纵队，就可以拯救更多百姓的生命。
+制作:香草山视频部
 
-库列巴提及南部港口城市马立波时表示，虽然马立波遭到围困，但仍在乌克兰的控制之下。
+据媒体报道，3月13日， 中共国报告的新增本土中共病毒病例，是前一天的三倍多，达到两年来的最高水平。
 
-自俄罗斯2月24日入侵乌克兰后，迄今为止，已有至少250万人被沦为难民。西方国家迅速采取行动，要将俄罗斯孤立于世界贸易和全球金融体系之外。但库列巴表示，尽管有这些制裁，乌克兰仍然需要更多的军事物资，以及需要西方国家采取更多的措施，来打击俄罗斯的经济。
+中共卫健委周日公布的数据显示，周六报告1938 例确诊病例，较前一天的 588 例急剧上升。目前不断增长的病例数使中共宣扬的“动态清零”政策捉衿见肘。
+中共国东北吉林省周六报告了1,412例新增本地病例，占全国总数的78％，远高于一天前的134例。
 
-参考链接：[Ukrainian foreign minister says ready to negotiate, but will not surrender](https://www.reuters.com/world/europe/ukrainian-foreign-minister-says-ready-negotiate-will-not-surrender-2022-03-12/)
+据当地官媒报道，已经处于封锁状态的省会长春市，当局一直在进行大规模测试，并将一个展览中心变成一个拥有 1500 张床位的临时医院。
+广东深圳周六报告了 60 例确诊新本地病例，这是自 2020 年初，中共国首次报告爆发疫情以来，该市此类病例的每日最高增幅。深圳所有九区均已停止餐厅用餐，关闭一系列室内娱乐场所。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+当地官媒周日称，广东东莞的六名中共地方党政官员，因在中共病毒防控工作中表现不佳而被免职。
 
-编辑：Jack Li文阳
-总编：文真
-审核：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+评论人士称，与西方国家近期大幅降低的疫情相比，一直吹嘘抗疫全球第一的中共国，多地的新增病例突然爆升，其实是疫苗灾难的开始。
+
+编辑：Jack Li(文阳）
+校对/发稿：文敬
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
