@@ -2,24 +2,32 @@
 ---
 
 
-## 注射第三剂新冠疫苗后，澳大利亚运动员斯图尔特•麦克斯温患上了心包炎
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2168281/)
+## SEC迫使在美中企退市举措使得中概股的投资与上市前景愈发黯淡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2168318/)
 
-#### 翻译                                意大利达芬奇农场                 小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-15-alle-10.20.42.png)图片来源：eventiavversinews.it
-澳大利亚越野和中长跑运动员斯图尔特•麦克斯温（ Stewart McSweyn）没有完成3月8日星期二在墨尔本举行的5000米比赛。在还剩三圈的时候， 他突然出现了呼吸问题并放弃了比赛。斯图尔特•麦克斯温参加了2020年东京奥运会，并成功晋级男子1500米决赛。为了参加3月18日至20日在塞尔维亚贝尔格莱德举行的室内世界锦标赛，最近斯图尔特•麦克斯温接受了第三剂新冠疫苗。这位澳大利亚选手本应参加1500米和5000米比赛。现在，由于诊断出心包炎，他将不得不放弃世锦赛和其他比赛。
+#### 翻译/撰稿：zzballack
 
-麦克斯温的团队立即认为这起事件与他在1月份感染的新冠病毒有关， 但进一步的检查显示，这是与最近注射的第三剂疫苗有关系。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-3.png)图片来源：南华早报
+据《新闻极限》（Newsmax）3月14日报道，美国证券交易委员会（SEC）上周首次列出了五家可能因为不符合审计要求而从纽约退市的中国公司名单，包括肯德基运营商百胜中国控股有限公司（Yum China Holdings）。此举正在促使更多基金退出持股，并使短期内中国企业赴美上市的前景变得黯淡。
 
-麦克斯温的教练尼克•比都( Nic Bideau )表示， 围绕这位澳大利亚田径明星发生的事情应该是对所有运动员的警告。“ 医生告诉他不该在得了新冠病毒以后这么近的时间再接种新冠疫苗。这只会带来伤害，而这种伤害似乎已经发生了。他的心脏出了问题，显然也影响了他的呼吸。他接种疫苗是为了与世界上最优秀的人竞争，他必须接种新冠疫苗。”麦克斯温打加强针只是为了确保他可以旅行并参加下周在塞尔维亚贝尔格莱德举行的室内世界锦标赛。
+华盛顿要求能够完全查阅在美上市中国公司的账目，但中共政府禁止外方审查本地会计师事务所的工作文件。
 
-现在他已退出所有比赛，他将去心脏病专家那儿做进一步的检查。例如：“先去看心脏病专家，进行更多的血液检查和心电图，他们会告诉我们更多的信息。他一周内不会跑步， 可能需要服用一些药物。如果一切顺利， 他应该会在10天后恢复训练。”
+美中监管机构因为审计问题的对峙由来已久，美方此举重新引起了投资者的担忧，并触发了中国企业美国存托凭证(ADR)的大规模抛售。高盛（Goldman Sachs）估计，美国机构投资者目前持有约2000亿美元的中国ADR风险敞口。
 
-麦克斯温仍然计划参加下个月在悉尼举行的全国锦标赛， 目前他确认的第一场国际比赛是5月13日在卡塔尔多哈举行的钻石联赛。
+纽约一家大型对冲基金的投资组合经理匿名说：“整个行业越来越难投资。我们干脆放弃，暂时退出任何在美上市的中国企业。我们的基金自2019年底开始出脱中国企业的ADR，并计划在未来几周内抛售所有剩余持仓。”
 
-原文链接：[https://www.eventiavversinews.it/latleta-olimpico-stewart-mcsweyn-si-sente-male-durante-la-gara-di-5000-metri-a-melbourne-gli-esami-mostrano-una-pericardite-dopo-la-terza-dose-ricevuta-per-partecipare-ai-mondiali-indoor-la-prossi/](https://www.eventiavversinews.it/latleta-olimpico-stewart-mcsweyn-si-sente-male-durante-la-gara-di-5000-metri-a-melbourne-gli-esami-mostrano-una-pericardite-dopo-la-terza-dose-ricevuta-per-partecipare-ai-mondiali-indoor-la-prossi/)
+追踪在纽约上市中国企业的“纳斯达克金龙中国指数”(Nasdaq Golden Dragon China Index)自上周四（3月10日）以来连续两天下跌超过10%，使得今年以来的跌幅扩大到34%。该指数在2021年下跌了43%。
 
-编辑、上传：Xiao   baige
+对在美上市中国企业的担忧重现之际，地缘政治风险上升和中国增长前景低迷抑制了对风险资产的偏好。银行家们说，监管的不确定性可能进一步阻碍中国公司在纽约的新上市计划，审计要求的不确定性以及中国关于离岸上市的新规则给筹资前景蒙上阴影。
+
+Chardan特殊目的收购公司(SPAC)投资银行部驻纽约董事总经理翁英杰（音译，Yingjie Weng）说：“中国公司未来在美国上市的前景仍然不明朗。那些被广泛用于规避外国投资限制、采用复杂离岸控股结构的公司，不太可能获得SEC的批准。”
+
+新闻来源：[SEC’s Move to Delist Chinese ADRs Worsens Investment Outlook](https://www.newsmax.com/streettalk/sec-adr-china/2022/03/14/id/1061015/)
+
+[秘翻在线：SEC納5傢中概股進退市風險名單 熱門中概股集體下挫](https://gnews.org/zh-hant/2143748/)
+
+[秘翻在线：SEC调查5家中概股公司 引发股票爆跌](https://gnews.org/zh-hans/2143338/)
 
  
 
