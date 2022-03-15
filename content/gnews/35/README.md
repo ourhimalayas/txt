@@ -2,81 +2,68 @@
 ---
 
 
-## 基辅的中国愤青：俄乌战争让我看清了中共政权的虚伪
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2166527/)
+## 玛莎·布莱克本：俄罗斯和中共国是新的邪恶轴心,在削弱美国实力方面有着共同的利益
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2166727/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/smoke-rises-600x400-1.jpg)图片：Efrem Lukatsky摄/美联社
-翻译：
-
-来自《大纪元时报》2022年3月13日的报道，一位来自乌克兰基辅的中共国学生说：“我曾经是一个爱国的愤青，如果有人敢说中共当局的坏话，我就会立即跟他干。现在，我永远不会再相信我们的政权。永远，永远，永远不会。”
-
-梅清和（化名）3月10日告诉中文大纪元记者，在俄乌战争爆发前，她完全信任中共政权和中共国驻乌克兰大使馆。现在，她看到了这个政权是如何欺骗中共国人民的，而其在基辅的大使馆则在欺骗中共国留学生，包括她。
-
-梅说，在乌克兰她没有放弃的唯一原因是，那里的人非常友好，并主动帮助她。她说，他们是她信任的人。
-
-**尴尬的撤离**
-
-当美国、澳大利亚、日本以及其他发达国家和发展中国家正在撤离他们的公民时，梅和她在基辅的中共国学生同伴开始担心。梅说，“（中共国）大使馆告诉我们，不会有战争，这些西方国家都在撒谎”，她指出，她和她的同学们相信中共国大使馆知道局势的真相，并会保护他们。
-
-“我们当时真的很激动，反对并诽谤美国政府……因为中共国大使馆告诉我们，是美国在鼓吹战争，试图制造混乱。”
-
-在俄罗斯于2月24日开始入侵之前，梅曾享受着她作为一个中共国“爱国愤青”的生活。她说，大多数中共国青年心中都有仇恨，因为他们在中共国接受的洗脑教育。在学校里，学生被教导要诋毁西方发达国家，并称自己为爱国者。
-
-梅说：“要知道，对我们来说，去波兰、土耳其、罗马尼亚、摩尔多瓦和斯洛伐克（本来）很容易。在战争发生之前，我们可以乘飞机或火车去这些国家。这很容易，也很便宜。但我们没有这样做，因为大使馆说不会有战争。”
-
-她的生活在2月24日凌晨发生了变化。
-
-梅说：“凌晨3点，我听到了炮击声。我再也睡不着了，想立即逃离。幸运的是，我很快找到并买了一张从基辅到华沙的机票，这个航班将在上午10点起飞。但到了早上6点，媒体报道说俄罗斯军队已经摧毁了基辅机场，我的航班被取消了。”
-
-然后她发现自己陷入了恐慌。她联系了她的中共国同学，试图找到一个逃离的方法。很快，他们意识到，自己没有办法撤离，他们需要帮助。
-
-梅回忆说：“我们并没有为战争做好准备。我们手中没有足够的食物和现金。每台自动提款机前都排着长队（提取现金）……孩子们在防空洞里哭泣……无家可归的狗和猫在街上奔跑。而大使馆直到第二天（2月25日）才对我们的请求作出回应。”
-
-在2月25日向中共国大使馆提交撤离申请表后，梅和她的朋友们开始了充满挑战的等待。
-
-她说：“大使馆一直要求我们等待，直到3月1日才开始安排撤离。当天被撤离的（中共国）学生（在社交媒体平台上）发帖说，大使馆只把他们送到边境，要求他们自己照顾自己。”
-
-梅说她不敢尝试这种撤离方式。
-
-**决定留在基辅**
-
-随着战争继续发展，梅恢复了平静。她在对中共国大使馆的撤离安排感到失望的同时，却被处于困难时期的乌克兰当地人所感动。
-
-梅说：“我的一些乌克兰同学在战争开始后加入了军队。他们现在就在前线，留下来的乌克兰同学每天都会检查我们外国留学生的状况和需求。他们问我是否想要撤离，如果我愿意，他们会帮助我……宿舍管理员为我们准备了食物和饮料，一旦有警报，就把我们带到防空洞。”
-
-梅说，她决定和帮助她的人一起留在基辅。同时，她对中共国官方媒体对乌克兰局势的报道感到非常愤怒，她认为这些报道是中共政权的观点。
-
-她说：“我每天都看中共国的新闻。中共国的媒体都在报道俄罗斯军队在乌克兰的表现如何出色，乌克兰军队如何糟糕，以及乌克兰军队如何利用我们的外国学生作为人质……这些都是谎言。”
-
-梅说，她相信中共政权希望这些学生都成为咬乌克兰人的毒蛇，就好比救过蛇的农夫。她说：“你能理解我的感受吗？我就像得了精神分裂症一样。”
-
-梅说，她想告诉世界，是乌克兰士兵将中共国留学生从苏梅市和其他地方的战区撤离，是乌克兰士兵和警察在俄罗斯军队向中共国公民开枪时将他们救出，乌克兰人民正在帮助那些滞留在该国的中共国留学生。
-
-梅说：“我的良知告诉我，我应该回馈这个国家。我是个人。如果我（重复中共媒体的谎言来诽谤西方和乌克兰），我连做人的底线都没有了。那我为什么还要生活在这个世界上？”
-
-**简评：**
-被中共洗脑的小粉红，别看现在叫得欢，当他们有一天被中共抛弃，认清中共的真面目，他们会比普通人更加痛恨中国共产党。由于中共灌输的是谎言，于是中共必须要制造出更多的谎言来维护前面的谎言，因此中共需要时时刻刻给中共国的百姓洗脑。但在全球互通的互联网世界，信息无孔不入，那些接触了西方自由思想的中共国的留学生更加懂得如何甄别信息的真假。所以只要打碎中共政权的宣传机器，让真相回到中国社会，中共的谎言将不攻自破。
-
-这场乌克兰保卫战一定可以促使一部分中共国的留学生开始对中共的谎言产生质疑。因为他们亲眼所见的乌克兰人民的精神面貌并不像中共国所宣传的那样狼狈不堪；他们亲眼所见的中共政权的“伟大”在现实面前一文不值。中共政权最成功的就是它的谎言，但最终导致它彻底失败的也一定会是它赖以生存的谎言。
+参议员玛莎·布莱克本： 俄罗斯和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 是新的邪恶轴心的一部分，在削弱美国实力方面有着共同的利益。 【附视频：玛莎议员接受福克斯采访，谈话内容翻译如下： 俄罗斯是 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的加油站。 他们是中共最大的供应商。 但我们需要知道的是，中共国将在多大程度上推动救助俄罗斯。以及是否在经济上使用银联卡，是否在我们将俄罗斯从SWIFT系统中踢出时试图回填取代。 我有一个决议案，参议院支持将他们完全排除在 SWIFT 系统之外。你必须看看能源的购买情况。然后是 [#习近平](https://gettr.com/hashtag/%23%E4%B9%A0%E8%BF%91%E5%B9%B3) 和普京之间的关系，我认为他们是新邪恶轴心的新锚。伊朗和朝鲜也加入了他们的行列。】
 
 
 
-新闻链接：[Chinese Student in Kyiv: I See the True Face of Chinese Regime](https://www.theepochtimes.com/chinese-student-in-kyiv-i-see-the-true-face-of-the-chinese-regime_4333661.html)
-
-*翻译/简评: kkoto(芬兰大灰狼)*
-
-*校对: Harvey（叶知秋）*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+> Russia and China are part of the new Axis of Evil with a shared interest in weakening American power. [pic.twitter.com/9KxRQbrJxv](https://t.co/9KxRQbrJxv)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 14, 2022](https://twitter.com/MarshaBlackburn/status/1503417542353764357?ref_src=twsrc%5Etfw)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+前国务卿迈克.蓬佩奥： 当你在美国安全的核心任务集——即阻止坏人继续侵略——上失败时会发生这种情况。 【附福克斯一段采访：蓬佩奥就一位美国记者在乌克兰厄平被杀做评论，称拜登政府对俄罗斯的侵略行径所采取的行动太迟、太微弱而导致这样的事情发生】
+
+
+
+> This is what happens when you fail at the core mission-set of American security, which is to deter the bad guys from continued aggression. [pic.twitter.com/D928ixg4ZK](https://t.co/D928ixg4ZK)
+> — Mike Pompeo (@mikepompeo) [March 14, 2022](https://twitter.com/mikepompeo/status/1503389718070837258?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 参议员马可·卢比奥：
+> 切断与俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) 的关系很容易，但如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 入侵台湾，想切断关系就不会那么容易了。
+> 
+> 现在我们太依赖#中共国了
+> 
+> 我们必须开始在美国制造更多东西
+> 【附中字视频】 [https://t.co/Cmn3rHY5FB](https://t.co/Cmn3rHY5FB) [pic.twitter.com/L1bihHGJ7b](https://t.co/L1bihHGJ7b)
+> — 美国政要直译推 (@zhiyitw33) [March 15, 2022](https://twitter.com/zhiyitw33/status/1503577253015289859?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·华尔兹： 看看我们在短短18个月里在中东的地位跌了多少。 我们已经从白宫草坪上的历史性和平协议（亚伯拉罕协议）转变为现在的领导人不会接受我们总统的呼吁，而是向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 靠拢。 【转推来自华尔街日报：沙特阿拉伯邀请 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 习近平访问利雅得，因为该国希望加深与北京的联系】
+
+
+
+> Look how far we’ve fallen in just 18 months in the Middle East. 
+> 
+> We’ve gone from historic peace deals on the White House lawn (Abraham Accords) to now leaders won’t take our President’s calls and are moving towards China. [https://t.co/xQ3P8HQNg8](https://t.co/xQ3P8HQNg8)
+> — Rep. Mike Waltz (@michaelgwaltz) [March 14, 2022](https://twitter.com/michaelgwaltz/status/1503511359060910084?ref_src=twsrc%5Etfw)
+
+
+
+众议院军事委员会： 如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 协助普京大屠杀，我们必须制裁中共国，拜登必须明确这一点。 如果拜登政府允许中共国的武器屠杀乌克兰平民或允许中共国银行为普京的血钱洗钱，国会将采取行动。 【附卫报新闻：国安顾问沙利文说如果中共国帮助俄罗斯逃避制裁将面临后果】
+
+
+
+> We must sanction China if they assist w/ Putin's massacre and Biden must make that clear.
+>  
+> Congress will act if the Biden admin allows Chinese weapons to slaughter Ukrainian civilians or allows Chinese banks to launder Putin’s blood money.[https://t.co/Kwywp9JMKU](https://t.co/Kwywp9JMKU)
+> — Armed Services GOP (@HASCRepublicans) [March 14, 2022](https://twitter.com/HASCRepublicans/status/1503494226998398979?ref_src=twsrc%5Etfw)
+
+
+
+白宫： (国家安全顾问) 杰克·沙利文@JakeSullivan46 今天在意大利罗马会见了中共政治局委员、外事工作委员会办公室主任杨洁篪。 他们的会议是继 2021 年 11 月 15 日拜登总统和习近平主席之间的虚拟会议上的后续。沙利文先生提出了一系列美中关系的问题，并实质性地讨论了俄罗斯对乌克兰的战争。 他们还强调了保持美中之间开放沟通渠道的重要性。
+
+
+
+> .[@JakeSullivan46](https://twitter.com/JakeSullivan46?ref_src=twsrc%5Etfw) met today with Chinese Communist Party Politburo Member and Director of the Office of the Foreign Affairs Commission Yang Jiechi in Rome, Italy. Their meeting followed up on the November 15, 2021 virtual meeting between President Biden and President Xi.
+> — The White House (@WhiteHouse) [March 14, 2022](https://twitter.com/WhiteHouse/status/1503468239963238400?ref_src=twsrc%5Etfw)
 
 
 

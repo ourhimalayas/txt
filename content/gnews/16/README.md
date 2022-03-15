@@ -2,23 +2,63 @@
 ---
 
 
-## 台湾｜台北市长柯文哲宴请10名中企高层 名单惊见中共关系人
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2168038/)
+## 新中国联邦大帐篷
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2168132/)
 
-**撰文/ 港台前线｜发布日期/ 15/03/2022**.
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-17.png)**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
-台北市长柯文哲被爆出利用公帑宴请中共关系人，媒体报导称柯以市府名义，为规避外界监督而拒绝提供与会名单，其中包含“中国银行台北分行长陈长江、中国建设银行台北分行副行长沈启明、交通银行台北分行资深副总周艳、中国农业银行台北办事处代表刘瑞宁、中国南方航空台北分公司财务总监赖新峰、中国邮政航空台北分公司总经理王奕然、中国东方航空台北分公司副总经理惠杨、冶春餐厅总经理申滨、台湾闽投经济发展有限公司总经理特助李华围、台湾妙管家股份有限公司总经理李群。”
+作者：纽约香草山教育部-蓝之灵（hortênsia)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+长长的队伍
+阻隔着希望
+侵略者炮火在身后飞扬
+寒冷冬天
+冷了心肠
+我们在寒风中彷徨
 
-中国银行台北分行行长陈长江（出生于厦门），过去曾任中国银行金边分行行长；交通银行为中国第五大银行；冶春餐厅则是首家来台投资的中国独资餐饮企业“扬州冶春茶社”所设；台湾闽投经济发展有限公司为福建省投资开发集团所设立，该集团是福建省属大型国有独资公司，主要业务涉及电力、燃气、铁路等。
+终于过境了
+看见了一个大帐篷
+那是什么
+一个帐篷
+新中国联邦人在帮忙
+温暖的咖啡
+久违的味道
+孩子们开始蹦蹦跳跳
+生的希望
+在温暖中发芽生长
 
-此宴会名单被公布，台北市政府并未进一步证实，北市府发言人择表示“基于个资保护原则，除非征得受邀宾客同意，否则市府不得片面公开”。关于外界对宴会的疑虑，工业总会相关人员强调“工总旗下大陆事务委员会原本就经常主办中国各省赴台重要经贸活动，出席餐会是很正常且合规”。
+一个帐篷啊
+点燃生活希望
+一个帐篷啊
+捂热绝望心肠
+一个帐篷啊
+一群人在匆匆忙忙
+一个帐篷啊
+他们说是新中国联邦
 
-面对外界的质疑声量，柯文哲本人称“之前也有请过AIT、欧盟、日商，为何都不要我公布，现在请中国企业就要？”并直言这是针对性地搞意识形态。
+一个大帐篷
+咖啡的味道散着芳香
+苹果，香蕉，巧克力
+让孩子们笑声高扬
+冰冷人们
+得到片刻温养
+有爱有光
+温暖心房
+前路
+不再迷茫
 
-對宴请中企、中共关系人事，新北市长侯友宜（国民党籍）表示，每件事在做的过程中，都要以国家、人民的利益为最大考量。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2505-scaled.jpg)
 
-来源｜[自由財經](https://news.ltn.com.tw/news/politics/breakingnews/3859099)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
+- 审核/编辑/发稿:qiutian（邱甜）
+
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
