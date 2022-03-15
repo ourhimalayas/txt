@@ -2,33 +2,23 @@
 ---
 
 
-## 有声|美国对俄罗斯的制裁延伸至加密货币
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2169993/)
+## 佛罗伦萨队前锋23岁的加布里埃尔•戈里患心肌炎
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2170046/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据[ONA网站](https://www.oann.com/u-s-treasury-department-stresses-that-russia-sanctions-extend-to-cryptocurrency/)援引路透社3月11日的报道，美国财政部外国资产管制处（OFAC）周五发布了新的指导意见，澄清美国公民和数字资产公司必须遵守对俄罗斯的制裁，采取基于风险的措施，确保其不参与被禁止的交易。
+#### 翻译                        意大利达芬奇农场                       小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-15-alle-18.48.04.png)图片来源：eventiavversinews.it
+佛罗伦萨队23岁前锋加布里埃尔•戈里( Gabriele Gori )，目前他被借到科森扎， 突发心肌炎。
 
-包括Coinbase和Binance在内的主要加密货币交易所，并没有像一些乌克兰官员所呼吁的那样封锁俄罗斯用户。
+这是近几个月来足球运动员中的又一个案例。
 
-在周一发布的指导意见中，金融犯罪执法网络（FinCEN）表示，加密货币交易所必须报告任何可疑活动，但周五的指导意见通知更进一步明确指出，交易所被禁止参与或协助非法交易。
+卡拉布里亚足球协会在3月14日星期一晚报告了他的心肌炎症：“科森扎足球公司通知，其成员加布里埃尔•戈里在新冠病毒检测呈阴性后进行了特定检查，他已被确认患有轻度心肌炎，，致使他无法上场。他会接受定期的身体检查， 以检测其身体状况，这还需要几个星期才能得到结果。”
 
-这一警告旨在防止数字资产可能被用来规避西方在俄罗斯入侵乌克兰后对其实施的制裁。
+加布里埃尔•戈里是在2010年的青年巡回赛中被佛罗伦萨队的观察员注意到的，所以在那个赛季结束时，他就身着紫色球衣前往佛罗伦萨。
 
-文字版原文：[美国对俄罗斯的制裁延伸至加密货币](https://gnews.org/zh-hans/2159296/)
+原文链接：[https://www.eventiavversinews.it/miocardite-per-lattaccante-23enne-della-fiorentina-gabriele-gori/](https://www.eventiavversinews.it/miocardite-per-lattaccante-23enne-della-fiorentina-gabriele-gori/)
 
-音频处理：Fei797
-发稿：Fei797
+编辑、上传： Xiao   baige
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
