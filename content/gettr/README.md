@@ -17,6 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 3:50 AM (UTC)`
+
+3月14号：今天一直很兴奋太多太多的好消息了，但是看了这位战友的对．7哥的过度的鼓励，突然有点儿晕了……俺去睡觉觉去了。【极高的智商 + 超强的情报来源 + 超强的情报分析整合能力 + 对事物本质的认识和对世界运转深刻的阅历。这就是我认识的七哥，独一无二，世界就这么一个七哥。🙏🏻】
+![img](https://media.gettr.com/group30/getter/2022/03/15/03/4f2cd036-1f81-fa34-6086-f50b5b318c2e/5399fcc84e1cb32ec708c8b34a78c6f6.jpg)
+
+---
+
+`@miles 3/15/2022 3:43 AM (UTC)`
+
+3月14日：真正的爱是没有边界的．不分种族和宗教的．中国人只有懂得了与全世界的人和平共处．互相尊敬．不要再活在那些低级的种族主义和拉仇恨的政治操作中，中国人才能真正的获得世界上的尊重……<br/>中国共产党通过洗脑控制的中国的十几亿奴隶……所有的灾难的问题的根本原因，就是中国人没有信仰，对人绝对不尊重．导致了中国现在与天斗．与地斗．天天斗人乐在其中的灾难！轮回灾难中！无法形容的严重后果。
+> `@himalayadcfarm 3/14/2022 7:24 PM (UTC)`<br/>🆘🇺🇦🆘战地咖啡日记<br/>❤️来自英国《每日快报》（Daily Express) 和 《太阳报》（The Sun Newspaper) 的记者品尝着新中国联邦人的咖啡，感叹这是他们喝过的最好的咖啡☕❤️<br/>❤️我们的帐篷宽敞明亮，整洁温馨。我们的咖啡蕴含着浓浓的爱意，这些都在传递着人类文明之精神！<br/>🆘🇺🇦🆘 Battlefield Coffee Diary <br/>❤️Two Gentlemen from the Daily Express (UK) and The Sun Newspaper tasted the coffee and exclaimed that it was the best one they have had! <br/>❤️ Our tent is bright, clean, and welcoming. Our coffee is full of love, and all of this conveys the spirit of human civilization!<br/>##NFSCRescue <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine<br/><br/>️
+![img](https://media.gettr.com/group33/origin/2022/03/14/19/7d0e0964-8f80-7869-2c31-3d4cc0857746/out.jpg)
+
+---
+
 `@miles 3/15/2022 3:30 AM (UTC)`
 
 3月14号：每句话，👉👉👉👉👉👉像导弹一样，砸到中南坑．那些老杂毛的l 心尖上……共产党，你玩球弹了！
@@ -147,20 +162,6 @@ Mr. Miles Guo accurately predicted the ultimate end of the mandatory vaccines an
 Check us out 🇮🇹 <br/>www.GFASHION.com
 > `@gfashion 3/14/2022 11:53 AM (UTC)`<br/>▪️Shop now at G|Fashion▪️<br/><br/>https://gfashion.com/collections/new-arrivals/products/drop-needle-poncho
 ![img](https://media.gettr.com/group50/getter/2022/03/14/11/329dce27-888e-c3e3-6f1d-86c119606f85/c14079f1aa8030bb60949e25dbe579dd.jpg)
-
----
-
-`@miles 3/14/2022 10:15 PM (UTC)`
-
-【Ukraine Rescue】03/14/22 Two Red Cross volunteers come to the NFSC’s tent to enjoy our coffee, and they are very grateful.<br/><br/>【乌克兰救援】03/14/22 两位国际红十字会的义工来到新中国联邦的帐篷享用咖啡，并表示感谢。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group38/getter/2022/03/14/22/885f88df-a7a6-179c-1629-4d85b213568b/out.jpg)
-
----
-
-`@miles 3/14/2022 10:09 PM (UTC)`
-
-【Ukraine Rescue】03/13/2022 Volunteer Nicole introduces to Agence France-Presse that the NFSC & ROLF Ukraine Humanitarian Rescue station would receive 500-1000 refugees daily, and that taking down the CCP is our mission.<br/><br/>【乌克兰救援】03/13/2022 志愿者妮可向法新社记者介绍新中国联邦法治基金乌克兰人道救援行站每天都会接纳500-1000名难民，以及我们致力于推翻中共的使命。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group22/getter/2022/03/14/22/c104e34e-6104-e559-01d0-503408bfdd83/out.jpg)
 
 ---
 

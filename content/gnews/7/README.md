@@ -2,29 +2,26 @@
 ---
 
 
-## 美国不满中共国支援俄罗斯军需物资
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2166225/)
+## 俄官媒编辑公开反战！吴釗燮：需要勇气！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2166355/)
 
-2022-03-14
+俄乌战火掀起全球反战潮，1名俄罗斯国营电视台的女编辑冲进节目直播中，跑到主播身后高举反战标语，大喊：停止战争，不要打仗！当场遭到逮捕。台湾外交部长吴釗燮15日对此回应：为良知发声需要勇气，停止战争、停止罪行！
 
-翻译：文舞两道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Q9E6WY87NNA4F00.png)照片来源：https://www3.nhk.or.jp
-包括美国主要报纸《华盛顿邮报》在内的多家媒体13日表示，美国政府官员指出自俄罗斯对乌克兰发动军事入侵以来，一直请求中共国为俄罗斯提供军事物资。俄罗斯想要什么样的武器，中方是什么反应等虽没有报道，但政府官员指出，“俄罗斯正面临某些武器的短缺”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3088220-PH.jpg)图片来源：三立新闻网
 
-美国白宫负责安全政策的国家安全顾问沙利文13日在美国有线电视新闻网（CNN）上露面说，“我们正在关注中共国将向俄罗斯提供多少物质和财政支持”。沙利文将于14日在意大利首都罗马会见中共国中央政治局委员杨洁篪。
+对于该位俄国女编辑的举动，吴釗燮特别表示，为良知发声需要勇气，停止战争、停止罪行，并标注「与乌克兰站在一起」，表达台湾力挺乌克兰的人道精神。
 
-中工国对乌克兰局势表现出亲俄立场，反复强调“防止紧张局势升级和失控是一项紧迫任务”，特别是在制裁上采取消极的态度。
+简评：为良知发声需要勇气，停止战争、停止罪行！消灭邪恶不光需要勇气，更需要的是行动！俄国女编辑的举动是英勇正义的，当场遭到逮捕也在她预料之中，明知不可为而为之，女英雄！
 
-消息来源：
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1085134)
 
-[“ロシアが中国に軍事物資の支援求める” 米複数メディア](https://www3.nhk.or.jp/news/html/20220314/k10013530221000.html?utm_int=news-international_contents_list-items_003)
+撰稿/发布：一叶知秋
 
-编辑：LILY
-发布：肥鯮
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
