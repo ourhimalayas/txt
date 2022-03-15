@@ -2,22 +2,24 @@
 ---
 
 
-## 白宫警告中共如果军事援助俄罗斯后果很严重
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2165860/)
+## 俄罗斯已要求中共提供战争援助
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2165924/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-164.jpg)
-图片来源： www.huaglad.com
+采编/编译撰稿：加拿大温哥华杨帆农场 – 薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1588.png)图片来源：[https://thepostmillennial.com/us-officials-russia-china-military-aid-ukraine](http://图源：https://thepostmillennial.com/us-officials-russia-china-military-aid-ukraine)
+据加拿大[后千禧年]3月13日报道，随着俄乌战争已进入第三周，在疑是俄军武器装备和弹药正消耗殆尽的情况下，普京已向中共提出军事援助以支持其侵略行动的要求。
 
-零对冲网3月14日报道，于周一去罗马参加与中共高级外交官杨洁篪会见的杰克·沙利文告诉CNN说美国已经直接地通过私人管道告诉中共如果中共在俄乌战争中作为俄罗斯的后盾的话，将面临大规模制裁行动。
+对此，美国家安全顾问[沙利文]警告中共，不要试图绕过欧美对普京当局实施的制裁而援助俄罗斯，美方一定会确保俄所遭受的制裁损失无法从中共或其他任国家那里得到补偿。
 
-一位拜登政府高官引用多个报告称美国向中共传达了美国对中共支持俄罗斯的深度担忧。该官员对于美国掌握的情报关于中共正在提供还是准备提供俄罗斯经济和军事援助的问题拒绝回答，但说对话是坦率而又直接的，沙利文直接表达了深切关注和对某些行动的可能影响和后果。
+据悉，沙利文正在准备与中共最高外交官杨洁篪于次日在罗马进行双边会晤，以敦促中共当局不可逾越以上对普京政府进行全面围剿的红线。
 
-美国防部官员说： “ 如果中共国在这场战争中选择实体支持俄罗斯的话，对中共国来说后果很严重。”
+校对编辑：硫酸羟氯喹64
 
-中共国外交部说它有权利去捍卫自己的合法权益。
+发稿：青青
 
-#### 新闻来源： [White House Warns China Over ‘Deep Concerns’ About Assistance To Russia In 7-Hour Rome Meeting](https://www.zerohedge.com/geopolitical/here-are-all-latest-news-and-developments-ukraine-war-march-14)
+新闻链接：
+
+[BREAKING: US officials say Russia has asked China for military aid in Ukraine invasion](https://thepostmillennial.com/us-officials-russia-china-military-aid-ukraine)
 
  
 

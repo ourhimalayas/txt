@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 2:28 AM (UTC)`
+
+
+![img](https://media.gettr.com/group23/origin/2022/03/15/02/86b2e4c6-66b6-91ee-7bb1-7fa305516b30/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@miles 3/15/2022 2:19 AM (UTC)`
+
+Italian Lorenzo told us about what the 2 unimaginable true pictures he witnessed along the way before he reached the big tent of the New Federal State of China with his Ukrainian wife and father-in-law <br/><br/>來自意大利的Lorenzo告訴我們，他帶着烏克蘭太太和岳父來到新中國聯邦的大帳篷之前，路上看見兩樣難以想像的實況
+![img](https://media.gettr.com/group47/origin/2022/03/15/02/505c81a8-14fb-a97a-188a-a80bd7a71f7e/out.jpg)
+
+---
+
 `@miles 3/15/2022 2:19 AM (UTC)`
 
 Italian Lorenzo told us about what the 2 unimaginable true pictures he witnessed along the way before he reached the big tent of the New Federal State of China with his Ukrainian wife and father-in-law <br/><br/>來自意大利的Lorenzo告訴我們，他帶着烏克蘭太太和岳父來到新中國聯邦的大帳篷之前，路上看見兩樣難以想像的實況
@@ -143,20 +159,6 @@ Check us out 🇮🇹 <br/>www.GFASHION.com
 
 3/13/2022 Miles Guo: What did Liu Yanping whisper to me back then? What message did Liu Yanping help the Zeng family deliver to me? The day Liu Yanping was arrested, his daughter and mother-in-law committed suicide. Why was Liu Yanping able to be promoted to the CCP’s Central Commission for Discipline Inspection overnight? Who is the “prostitute-type” politician in the CCP?<br/><br/>3/13/2022 文贵直播：当年刘彦平跟文贵耳语说了啥？刘彦平帮曾家捎了什么信给文贵？刘彦平被抓当天，其女儿和岳母自杀；刘彦平为何能一夜之间升到中纪委？谁是“妓女型政客”？<br/>
 ![img](https://media.gettr.com/group50/getter/2022/03/14/22/b81aa252-7c4f-ba78-5fa9-d3c214af9b79/out.jpg)
-
----
-
-`@miles 3/14/2022 9:59 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-14
-![img](https://media.gettr.com/group8/origin/2022/03/14/21/ea58ccbd-fc31-ba79-4002-b6ee5b3fbbb9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/14/2022 9:59 PM (UTC)`
-
-3/13/2022 Miles Guo: The CCP's boast of having stockpiled two and a half years of grain reserve is a total lie! Once the CCP is kicked out of SWIFT, the RMB will become scrap paper, and all the assets hidden overseas by the CCP's illegitimate children will be gone!<br/><br/>3/13/2022 文贵直播：中共吹嘘已经储备了两年半的粮食完全是谎言！一旦中共被踢出SWIFT系统，人民币将成废纸，中共私生子女海外藏匿的财产也都将化为乌有！<br/>
-![img](https://media.gettr.com/group27/getter/2022/03/14/21/e0aea6f2-bbd1-192d-db4e-d75cc9247baf/out.jpg)
 
 ---
 
