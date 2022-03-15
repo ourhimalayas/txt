@@ -2,31 +2,21 @@
 ---
 
 
-## 有声|中共忌惮新中国联邦人的国际形象
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2169956/)
+## 中国关闭深圳商业中心以应对新冠肺炎疫情激增
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2170000/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-在3月11日的大直播中，郭先生表示，在乌克兰的救援行动中，战友们展示了中国人最独特和最优秀的一面，在国际舆论层面对中共造成了巨大打击。
+采编撰稿：加拿大温哥华扬帆农场 – 重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-14.jpg)
+周日，中共国政府为应对冠状病毒感染的激增，关闭了拥有1750万人口的南方商业中心深圳，并通过暂停公共汽车服务限制前往上海。  毗邻香港的深圳是一个金融和科技中心，是中共国一些最知名公司如华为、比亚迪汽车、平安保险、腾讯控股的总部所在地。在周日报告60例新增病例后，深圳的每个人都将接受三轮测。 除供应食品、燃料和其他必需品的企业外，所有企业都被勒令关闭或在家办公。
 
-郭先生说，全世界都看到了中共已是四面楚歌，堕入了塔西陀陷阱。而新中国联邦人的优秀表现，跟中共形成了强烈的对比，对其形成了沉重的打击。澳喜农场通过优秀的工作，让乌克兰澳洲商会把新中国联邦的救援信息挂在了网上，意义重大。然而，在中共的威胁下，尽管商会最终被迫撤下了相关信息，但中共当局在国际上利用其主权国家地位阻挠人道主义救援的丑恶行径，已被世人皆知。
+香港周日报告了3.2万例病例。 在香港和内地吉林、山东、上海等地近期出现大量感染病例后，中共当局在毗邻香港的深圳采取的新一轮“零容忍”限制措施，封锁了整个城市，以发现和隔离每一个感染者。
 
-目前，中共已经无法回避新中国联邦在全球范围内展开的人道主义救援行动。被中共打压的言论与行动，正是世界所普遍认可的价值标准。战友们的形象、气质，以及行动的效率和结果，都在改变中共治下的国人只能给西方生产廉价物品、坑蒙拐骗的印象，取而代之的，是新中国联邦人最真诚、善良、美好的一面议。
+自疫情爆发以来，中共当局在多城多地实施封城、强制核酸检测和强制疫苗措施，搞得民不聊生。表面上是为人民健康福祉，实际上是少数人大发疫苗经济之财，同时对民众加强监管、实施网格化管理的“枫桥经验”，为应对未来可能发生的突发事件的练兵。
 
-文字版原文：[中共忌惮新中国联邦人的国际形象](https://gnews.org/zh-hans/2158162/)
+新闻链接：[https://www.ctvnews.ca/health/coronavirus/china-shuts-business-centre-of-shenzhen-to-fight-covid-19-surge-1.5817377](https://www.ctvnews.ca/health/coronavirus/china-shuts-business-centre-of-shenzhen-to-fight-covid-19-surge-1.5817377)
 
-音频处理：Fei797
-发稿：Fei797
+编辑/上传：文所未闻
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
