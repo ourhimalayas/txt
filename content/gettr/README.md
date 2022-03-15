@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 2:04 AM (UTC)`
+
+我们是消灭邪恶中国共产党的新中国人<br/>中国共产党是全世界灾难的根源<br/>只有消灭中国共产党才能拯救全人类<br/>我们与乌克兰人民站在一起<br/><br/>We are the NEW CHINESE who are taking down the EVIL Chinese Communist Party.<br/>The Chinese Communist Party is the root cause of all disasters globally. <br/>Taking down the Chinese Communist Party is the only way to save humanity!<br/>We stand with the Ukrainians.<br/><br/>Ми-нові китайці, які знищиваємо злу Комуністичну Партiю Китаю.<br/>Комуністична Партiя Китаю є основною причиною лих у всьому світі. <br/>Тільки знищивши Комуністичну Партiю Китаю, можна врятувати все людство.<br/>Ми разом з українцями.
+![img](https://media.gettr.com/group15/getter/2022/03/15/02/d422f670-80e0-b014-ac6a-f7dcad3a68f6/out.jpg)
+
+---
+
 `@miles 3/15/2022 1:39 AM (UTC)`
 
 【Ukraine Rescue】In Medyka, Poland. ●How the Video Was Filmed on the Front Line of Rescue●Nicole and Mingdao, the two rescue members of New Federal State of China are  preparing to shoot a video in cold weather. Many of these people in our rescue team are working around the clock. It is the only rescue tent on the front line with 24-hour service. NFSC rescue team is the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity! <br/>【乌克兰救援】波兰梅迪卡，●救援一线的视频是如何拍出来的●<br/>新中国联邦救援团队的妮可和明道战友正在寒冷的天气下准备拍摄，我们救援团队的许多人正像他们一样夜以继日地工作着，我们的救援帐篷也是前线唯一24小时服务的救援点。新中国联邦救援团队是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类
@@ -150,13 +157,6 @@ Check us out 🇮🇹 <br/>www.GFASHION.com
 
 【Ukraine Rescue】03/13/22 A pianist came to play in front of the NFSC’s base camp again<br/><br/>【乌克兰救援】03/13/22 钢琴家再次来到新中国联邦大本营门口演奏<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
 ![img](https://media.gettr.com/group8/getter/2022/03/14/21/8319a021-9f95-9b9d-d2dc-8af0409b7afe/out.jpg)
-
----
-
-`@miles 3/14/2022 9:52 PM (UTC)`
-
-【Ukraine Rescue】03/13/2022 The German pianist played John Lennon's classic song Imagine in front of the NFSC's tents to thank the ROLF and the NFSC for bringing warmth and hope in the midst of war.<br/><br/>【乌克兰救援】03/13/2022 德国钢琴家在新中国联邦的帐篷前面演奏约翰·列侬的经典歌曲Imagine，感谢法治基金和新中国联邦在战争和硝烟中带来温暖和希望。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group35/getter/2022/03/14/21/c0f62249-39ea-0dce-d662-912cb2d999f2/out.jpg)
 
 ---
 

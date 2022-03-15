@@ -2,45 +2,35 @@
 ---
 
 
-## 日本敦促加密公司遵守对俄罗斯的制裁
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2165722/)
+## 澳州和荷兰就马航MH17被击落事件对俄罗斯发起法律行动
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2165808/)
 
-编译： Jenny Ball
+By：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1587.png)图片来自网络
+在俄罗斯入侵乌克兰已接近三个星期，国际社会对俄罗斯实施了历史上最严厉的制裁之时，2022年3月14日，澳大利亚和荷兰宣布根据《国际民用航空公约》，对俄罗斯击落马航MH17的事件对俄罗斯发起联合法律诉讼。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1581-edited.png)2018年3月30日，日本东京，一名男子站在加密货币交易所的广告附近。REUTERS/Toru Hanai/Files
+2014年7月17日，一枚俄罗斯制造的地对空导弹在乌克兰顿涅茨克上空击中了马航MH17航班，所有283 名乘客和 15 名机组人员全部遇难。其中有超过三分之二的乘客是荷兰人，还有38名澳州人。
 
-东京，3 月 14 日（路透社）——周一，日本当局下令加密交易所不得处理涉及加密资产的交易，因乌克兰战争而对俄罗斯和白俄罗斯这些资产实施冻结制裁。
+2014 年 3 月上旬，乌克兰东部发生武装冲突， 美国联邦航空管理局对 MH17 航线以南的克里米亚上空的航班发出限制。但此警告不包括 MH17 坠机区域。当MH17被击落时，另外三架属于印度，台湾和新加坡的商用飞机也在同一区域飞行。
 
-上周五，七国集团 (G7) 发表声明称，西方国家“将让使用数字资产来增加和转移其财富的俄罗斯非法行为者付出代价”。
+事件发生后，荷兰司法部会同比利时、乌克兰、澳大利亚和马来西亚对事件展开了调查，采访了证人并检查了法医样本、卫星数据、截获的通信和网络上的信息。
 
-G7 发达经济体越来越担心加密货币被俄罗斯实体用作入侵乌克兰实施金融制裁的漏洞。
+调查遭到了俄罗斯的阻挠。由于害怕俄罗斯的报复，一些证人的证词都是匿名提交的。俄罗斯特勤局还试图侵入马来西亚总检察长办公室和澳大利亚联邦警察局窃取调查档案。
 
-周五，美国财政部发布了新指南，要求总部位于美国的加密货币公司，不得与制裁目标进行交易。
+俄罗斯拒绝对事件承担责任，停止了与澳大利亚和荷兰的谈判，并多次拒绝了两国提出的返回会谈的要求。
 
-日本金融厅的一位高级官员表示：“我们决定发布公告，以保持 G7 的态势。”“越早越好。”
+根据调查结果，澳州和荷兰坚持认为俄罗斯应对MH17事件负责。澳州外交部长玛丽斯·佩恩说，澳州和荷兰的联合行动将是 追求真相和正义的重要一步。
 
-日本金融厅和财务省在一份联合声明中表示，日本政府将加强措施，**防止使用违反制裁的加密资产转移资金。**
+俄罗斯对乌克兰的无端入侵表明，国际社会必须追究俄罗斯公然违反国际法和《联合国宪章》的责任，包括对乌克兰主权和领空的威胁。
 
-日本在对私人数字货币制定更严格的规则方面，落后于全球金融监管机构的转变，而 G7 富国和 20 国集团强国都呼吁加强对“稳定币”的监管。
+消息来源：[Australia and Netherlands launch legal action against Russia over downing of Malaysian Airlines MH17](https://www.skynews.com.au/australia-news/australia-and-netherlands-launch-legal-action-against-russia-over-downing-of-malaysian-airlines-mh17/news-story/5cbfac07a0429f2537712c3979b40d91)
 
-周一，日本金融厅表示，未经授权向制裁目标付款，包括通过加密资产，将面临最高三年的监禁或 100 万日元（8,487.52 美元）的罚款。($1 = 117.8200 yen)
+[Malaysia Airlines Flight 17](https://en.wikipedia.org/wiki/Malaysia_Airlines_Flight_17)
 
-据行业协会称，截至 3 月 4 日，**日本共有 ****31 ****家加密货币交易所**。
+*编辑：喜国公民*
 
-鉴于新市场的受欢迎程度激增，全球监管机构仍然担心新市场对投资者的安全性。美国SEC将“市场操纵的可能性”列为拒绝多个比特币现货ETF申请的主要原因之一。
-
-评论：数字货币是未来的趋势，但是，像比特币那样4%的人持有96%的高度被操纵的加密货币，必将被市场淘汰。
-
-素材链接：【reuters.com】[Japan urges crypto firms to comply with sanctions against Russia](https://www.reuters.com/business/finance/japan-urges-crypto-exchanges-act-line-with-sanctions-against-russia-2022-03-14/?utm_source=newsletter&amp;utm_medium=email&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
-
-* * *
-
-审核：文乐
-校队：小东
-发布：花羽
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-9.jpeg)
-
+*发布：喜国公民*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
