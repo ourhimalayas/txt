@@ -2,31 +2,13 @@
 ---
 
 
-## 秘翻新闻｜新中国联邦使华人在国际救援中得到肯定
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2169328/)
+## 天空新闻：基辅遭受三次不同的袭击
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2169458/)
 
-**By:[秘翻新闻](https://gettr.com/post/p104dnvb157)**
+03/14/2022 澳大利亚天空新闻：基辅遭受三次不同的袭击
 
-**2022-03-15**
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-**新闻内容:**
-
-**1. 经济持续下行 阿里和腾讯传大裁员**
-
-**2. 欧盟成员国将对俄实施第四次制裁措施**
-
-**3. 法国停止了疫苗接种证和强制口罩制度**
-
-**4. 沙利文与杨洁篪会面 点明中共挺俄有后果**
-
-**5. 乌克兰要求俄罗斯撤军 国际法院16日裁决**
-
-**🔗Gettr链接：**[https://gettr.com/post/p104dnvb157](https://gettr.com/post/p104dnvb157)
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

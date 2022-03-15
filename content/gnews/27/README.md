@@ -2,35 +2,56 @@
 ---
 
 
-## 新中国联邦助人的同时，也得到了帮助
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2168789/)
+## 一场别开生面的艺术品展示暨HPAY线下推介会
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2168923/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7de6ac4312622a21f44f7622fdba0ec0.jpg)图源：网路
-梅迪卡前线时间3月14日晚至15日凌晨，战友六月的鲜花叙述了值夜班的情况。有两组波兰人志愿者主动上镜表达对新中国联邦救援行动的感激，并约定明晚还会上镜。救援前线的发电机燃料用完了，因为距离售卖燃油的地方较远，当地警察建议战友去借一些。和当地一个商店的波兰人通过翻译机交流，找到了一位军人朋友去帮助战友找燃料。由于是夜里，大部分人都已入睡，这位波兰人一家一家帮着找，在路上一直对新中国联邦表达感谢，同时一直有志愿者帮助把难民带到我们帐篷里来，志愿者听说我们没燃油了也要给我们提供帮助。最后我们很顺利找到了燃油。
+#### 作者：空本南图、幕紗公子
+编辑：文泓
 
-新中国联邦因为帮助别人而得到了尊重，同时也得到了别人对我们的帮助。尊重是相互的，帮助也是相互的。
-
-* * *
-
-撰稿、发布：银河系农场—-骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0313_Handflag17x24cm2.png)
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-163.png)图片来源：Rick战友提供
 
 
- 
+2月的南半球正是盛夏的季节，当2⽉1⽇喜马拉雅支付（HPay）在全球如期上线，为了提⾼HPay在南半球市场的知名度，也让农场战友对HPay安全、快捷的交易有一个直观的感受，2月18日由墨尔本雅典娜农场组织其会员成员单位TIDO Art主办了⼀场⼩型户外艺术展暨HPay推介会，并由《猫本来了》节⽬组全程直播。
 
- 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-164.png)图片来源：Rick战友提供
+
+
+虽说展出规模有限，但从展品的⽔准和数量来看，ᰁ约100件⽂房、茶道、⾹道、摆件及衍⽣品等（不含纸本作品），均达到了专业的展览要求。现场有很多来⾃新中国联邦各农场的艺术爱好者和知名主播，例如猫本⼩哥、天池、威廉、莎莎主播等战友。
+
+主办方是住在墨尔本的Rick先⽣一家，他们将很多书画、瓷器作品以及相关的艺术衍⽣品，如同蚂蚁搬家⼀样运到⼀个公园进⾏户外展示。他们多次奔波于家与公园之间，精⼼策划布展并使出了浑身解数。这一切缘于他们对艺术的情怀与⽣活的热爱，还有推⼴HPay的热情。艺术是有魔⼒的，⼒量之磅礴实在难以估量。有艺术融入及经其提升的⽣活是充满激情与希望的。现在⼜有了HPay，可以想象一下未来我们的⽣活会发生怎样大的改变？
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-80.png)图片来源：Rick战友提供
+
+
+在直播过程中，Rick先⽣和优雅的ᰀ兽⼥⼠，不断给现场嘉宾和直播观众讲解他们对艺术品的理解，以及艺术和艺术衍⽣品的渊源。谈及艺术的魔⼒，纵观艺术史，古希腊雕像的静穆与典雅曾经让整个城邦为之倾倒；近代欧洲群星璀璨的思想启蒙时代也是肇始于⽂艺复兴时期，其中美术起着中流砥柱的引领作⽤。在当代社会发展进程中，艺术始终扮演着时代先锋的⻆⾊。⼀位哲⼈说，⽣命本⽆意义，任何意义都是我们赋予的。⼀⽅⾯，艺术能够给平凡的⽣活带来澎湃的激情，而艺术起源之⼀是⾼涨情绪内在需要的形式化。艺术品⾃身蕴含着的精神形式能够感动到⼈，也能激发⼈积极向上的⾃由意志。
+
+Rick作为一名艺术爱好者，他能感受到其中精神价值与我们新中国联邦的价值观⾮常契合，他也愿意把此能ᰁ量传递给家⼈，以及素不相识的其他艺术爱好者。今天通过在线下推⼴HPay的形式，让更多的普通⼈能通过艺术品的审美属性调剂⽣活，更能让⼤家了解和使⽤HPay。
+
+出于爱的跃动与浪漫⽽温馨的情怀，他们开始了⾏动。Rick先⽣和优雅的ᰀ兽⼥⼠饶有趣味地给猫本⼩哥和观众们介绍着艺术品，猫本⼩哥连连发问，在直播过程中和线上观众不断地互动。
+
+在现场直播采访中，Rick还谈到，在近期的新中国联邦GEDU教育专场中，郭先⽣明确指出未来G教育的核⼼竞争⼒所在：“传统的教育已被⼯具化和功利化，⽽对于⼈⼀⽣的成⻓⽽⾔，看似⽆⽤的艺术和⼈⽂恰恰是最具⻓远价值最有教育意义的！”从这⼀点上来看，我们雅典娜农场先⾏试⽔艺术品展示和郭先⽣对GEDU教育未来的期望是不谋⽽合的，我们将继续战略布局艺术领域，深耕艺术价值传递，扩⼤新中国联邦倡导的正道主义在世界的艺术影响⼒。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-66.png)图片来源：Rick战友提供
+
+
+现场⼀条精美的丝⼱吸引了猫本小哥的目光，他很好奇，这丝⼱是如何能做到如艺术品般优雅和浑然天成？Rick解释道，这是艺术衍⽣品，每⼀条丝⼱都是由纸本作品衍⽣⽽来，并且数量ᰁ有限⼗分难得。禁不住猫本⼩哥⼀再怂恿，Rick“忍痛割爱”将⼏款丝⼱献出来供直播现场观众选购。
+
+如今我们有了HPay的支付⽅式，现场交易变得超级简单，而且HPay真正做到了交易零成本、秒到账。现场直播观众随即将丝⼱抢购⼀空。虽然我们早已知道HPay使⽤的安全和便捷，但当我们真正交易使⽤时还是⼀次⼜⼀次得被它惊艳到。
+
+最后，Rick将收到的HCN拿出来参与现场抽奖。此举更是引起了观众的刷屏和互动⼩⾼潮，最终让现场的多位幸运战友中奖领取了HCN。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-57.png)图片来源：Rick战友提供
+
+
+艺术品的价值是需要经过⼈们仔细品评与咀嚼后才能显现，⼀旦⼈们能够从中获得思想与精神的启示，这将像灯塔⼀样指引着旅⾏中的你与我。就像每次听⼤直播，郭⽂贵先⽣的声⾳就像⿊暗中的灯塔，指引着迷途中的我们。现在有了HPAY，在我们寻找未来美好⽣活的真正价值所在的路上，⼜多了⼀道保障，让我们更加看到了希望。推⽽⼴之，我们⼀旦获得通过艺术品窥探其中价值秘密的能⼒，⼀旦拥有辨别真伪善恶的能⼒，犹如拥有⼀个崭新的世界，⼀个在光明与希望照耀下纯净的精神世界。这也是HPay新的⽀付⽅式将给我们带来的⼀个全新的世界。
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

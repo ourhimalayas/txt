@@ -2,26 +2,33 @@
 ---
 
 
-## 受切尔诺贝利事故影响的乌克兰歌手在日举行音乐会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2169308/)
+## 俄罗斯机长反战广播获得网络高度赞扬
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2169440/)
 
-撰稿：东京樱花团︱文小白
+作者：纽约磐石农场 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台媒3月14日报道，近日网络流传的一段影片显示，一名俄罗斯航空公司的机长通过机上广播，谴责普京政府入侵乌克兰是犯罪行为，获得网络无数赞誉。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-22.jpg)
+在乌克兰外交官谢尔巴于推特分享的这段影片中，在一架飞往土耳其的俄罗斯客机上，机长通过广播向乘客表达了对俄罗斯入侵乌克兰的谴责。他表示这是一种犯罪，并认为，每一位明智的俄罗斯公民都会同意他的观点，并会尽一切努力阻止战争。同时该机长也强调，希望大家不要仇视俄罗斯人。对此，同机的乘客纷纷给予掌声表示支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/受切尔诺贝利事故影响的乌克兰歌手在日举行音乐会.png)[*照片来源*](https://www3.nhk.or.jp/news/html/20220315/K10013532931_2203151754_2203151806_01_03.jpg)
+影片曝光后随即引发网络热议，很多人都对机长的勇于发声和愿为自由付出代价大加赞赏。此前，在俄军入侵乌克兰后，普京于3月4日签署法案，禁止媒体传播所谓俄军的“假消息”，违者将面临最高15年徒刑。外界普遍解读，这是俄罗斯政府在刻意打压国内汹涌的反战言论。
 
-俄罗斯对乌克兰军事入侵战争还在继续，然而在东方的日本东京，来自乌克兰的歌手娜塔莎-古兹在涩谷举行了一场慈善音乐会。
+参考链接：[入侵烏克蘭是犯罪！俄國機長「反戰廣播」曝光 網讚勇敢可敬](https://news.ltn.com.tw/news/world/breakingnews/3859158)
 
-音乐会共演唱了11首歌曲，包括一首使用乌克兰乐器“bandura”的歌曲《我的基辅》，其歌词是根据首都基辅的场景创作的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-在慈善音乐会上，来自乌克兰的歌手娜塔莎-古兹进行了表演，她在6岁时受到切尔诺贝利核事故的辐射。娜塔莎说，在核事故发生后，她经历了很多困难和悲伤，但在那段时间里，音乐也多次拯救了她，她还展示了她强有力的歌声。
+总编：Zion文恩
+编辑：小鹿妞妞
+审核：宁文静
+校正/发稿：Fei797
 
-大厅里约140名观众，演出在充满为和平祈祷的美妙音乐声中进行。演出结束后，大厅里想起了热烈的掌声。娜塔莎说：“我希望我的歌声能够帮助日本人民感受到与乌克兰人民的亲近。”音乐会的所有收入都将捐给乌克兰大使馆。
-
-本文来源：[**チェルノブイリ事故で被ばくのウクライナ出身歌手らが演奏会**](https://www3.nhk.or.jp/news/html/20220315/k10013532931000.html?utm_int=news-international_contents_list-items_002)
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

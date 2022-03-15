@@ -2,31 +2,34 @@
 ---
 
 
-## 善良的人类都反对战争
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2168329/)
+## 乌克兰前沿每日报道
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2168694/)
 
-撰稿：骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-18.17.43.png)图源：网路
-梅迪卡前线时间3月15日，战友Nicole采访了连着七天都在为难民演奏音乐的钢琴家Davide Martello。这位钢琴家说自己不关心政治，但是非常反对战争，他在很多战争和动乱的场面去安抚过受难的百姓。他曾去过阿富汗，动乱时期的土耳其，巴黎恐怖和爆炸事件，在一些经历了自然灾害如洪水的地区。他四处奔走，为世界呼吁和平和爱，他说自己未去过香港，但为香港人演奏过。他说现在的科技进步太方便了，starlink这样的高科技只会使人与人的连接更加容易，无论人们是什么种族和语言，善良的人们彼此都有一颗和平的心。只有和平和爱，还有音乐，才能够让全人类团结一致。
+整理：奔跑吧黄小鸭
+![](https://assets.gnews.org/wp-content/uploads/2022/03/61122592_403.jpg)图片来自：https://www.dw.com/
+基辅时间3月15日，今天是俄罗斯入侵乌克兰的第二十天。俄军对乌克兰首都基辅发起了猛烈袭击，俄罗斯亲克林姆林宫的第一频道继续出现内部工作人员的反战行为。美国死死盯住中共，美安全顾问沙利文和杨洁篪长谈7小时。以下是最新的相关消息：
 
-Nicole战友告诉钢琴家，人类社会一切罪恶的根源就是共产党，只有推翻了共产党才能有人类团结和分享爱的可能。而新中国联邦就是消灭共产党的中国人。钢琴家说虽然他不懂政治，但是他认为一个政府如果不与世界联网，违背历史潮流，想要倒退，那是不可能的。
+**俄乌前沿最新动态**
 
-* * *
+- 首都基辅发生大爆炸，俄罗斯空袭住宅楼和地铁站，造成两人死亡。今晚将开始长时间的宵禁，直到周四早上
+- 一位美国高级国防官员表示，在周末几乎没有进展后，几乎所有的俄罗斯军事攻势仍然停滞不前
+- 乌克兰总统称，俄罗斯和乌克兰之间的谈判将于周二继续进行
+- 一名俄罗斯妇女举着反战标语出现在俄普京政府控制的第一频道晚间新闻节目的片场。只见该节目的主持人身后有个标志清晰可见，上面写着“不要战争，停止战争，不要相信宣传，他们在这里骗你”。这位女士是该频道的编辑，据信目前已被警方拘留
+- 据 BBC 俄罗斯报道，俄罗斯一家法院对当地居民处以 80,000 卢布（666 美元）的罚款，原因是他使用社交媒体呼吁举行反战集会。根据内政部的一份声明显示，该男子已被拘留并承认有罪。尽管俄罗斯已经加强了审查法和制定了新法律，但仍有数千名俄罗斯人在全国各地的反战集会上被捕
 
-撰稿、发布：银河系农场—-骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0313_Handflag17x24cm2.png)
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**世界各国最新动态**
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+- 中共最高外交官杨洁篪在罗马与美国国家安全顾问杰克沙利文举行的长达 7 小时的会晤后，呼吁双方保持克制。该会议受到密切关注，因为在会议开始前几个小时，美国安全官员指责中共表示愿意向俄罗斯提供武器
+- 欧盟公布了对俄罗斯的第四套制裁措施，旨在削弱其为入侵提供资金的能力
+- 英国将于周二宣布对 100 多名与俄罗斯普京政府有联系的个人实施新制裁。英国还宣布了针对俄罗斯伏特加和奢侈品的新制裁措施
+- 据路透社援引航班跟踪服务的数据称，一架与切尔西足球俱乐部老板和俄罗斯寡头罗曼·阿布拉莫维奇有关的喷气式飞机降落在莫斯科。数据显示，这架喷气式飞机从以色列起飞，并在前往俄罗斯的途中在土耳其短暂停留。路透社称，周一在特拉维夫的本古里安机场看到了同样拥有以色列和葡萄牙公民身份的阿布
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+原文链接：
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
- 
+[Ukraine war latest: Kyiv residential buildings hit by Russian strikes – BBC News (www-bbc-com.translate.goog)](https://www-bbc-com.translate.goog/news/live/world-europe-60746557?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=sc)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

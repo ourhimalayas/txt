@@ -2,37 +2,23 @@
 ---
 
 
-## 有声|新中国联邦一定能够消灭中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2169360/)
+## 视频|天主教宗方济各为乌克兰发表声明
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2169466/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月12日，郭文贵先生发表盖特视频表示，他提前预警的中共将在中东地区挑动事端，已经得到了充分验证。中共唯恐世界不乱，妄图搞弱、搞乱、搞死美国之心路人皆知。在两到三周之后，世界将有大事发生。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-3.jpeg)
-在乌克兰救援前线，新中国联邦义工们所展示的形象，是无法用金钱和设计来完成的，而是战友们人生观、世界观、价值观和内心信仰的体现。近日，全世界都在谈论新中国联邦，日本的朋友也高度赞扬新中国联邦给亚洲人争光。
+制作: 香草山视频部
 
-郭先生说，战友们以出色表现向全世界证明了，新中国联邦人是最伟大、最纯洁和以正道主义为信仰的新人类，最终一定能够消灭中共。
+盖特3月14日消息，近日天主教教宗方济各为乌克兰战争发表声明，呼吁以上帝之名停止战争，敦促人道主义走廊变得安全有效。
 
+教宗方济各说，本周乌克兰马里乌波尔市变成了一座烈士城市，乌克兰正在被俄罗斯侵略军所蹂躏。俄军杀害儿童和手无寸铁无辜民众的野蛮行为，全世界应当在马里乌波尔市被彻底变成墓地之前，全力制止俄罗斯的武装侵略。对此，他怀着悲痛的心情，与民众一起恳求结束战争。
 
+教宗要求俄乌双方展开谈判，让人道主义走廊变得安全有效。同时，他以上帝之名，让人们听到受难者的呼喊，停止轰炸和攻击和立即停止屠杀行为。
 
-文字版原文：[新中国联邦一定能够消灭中共](https://gnews.org/zh-hans/2159949/)
+发稿：谐趣园
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

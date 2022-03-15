@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@laobangzhang 3/15/2022 8:48 AM (UTC)`
+
+‼️🆘🆘紧急通知🆘🆘‼️<br/>请注意此“台湾大牛”（名字中为简体字“湾”）为虚假账户。<br/>此诈骗账户已造成有些战友的财产损失，战友们务必小心🙏<br/>⚠️⚠️⚠️注意⚠️⚠️⚠️<br/>任何想要跨农场委托他人汇款或有任何的经济往来都务必通过所在农场的农场负责人与对方农场负责人取得联系报备和沟通，不能私自委托，否则一旦造成损失将自行承担‼️<br/>2022年3月15日<br/>
+![img](https://media.gettr.com/group37/getter/2022/03/15/08/7987b83e-2fcc-fcaa-be82-e9852c5f6174/099f729faafbcb0d2375c1e84003408f.jpg)
+
+---
+
 `@miles 3/15/2022 1:47 PM (UTC)`
 
 On 14 March, in the large tent of the New Federal State of China（NFSC）,<br/>between the NFSC's frontline rescue teams, various rescuers without borders organizations, the official rescue organizations, and the International Red Cross.<br/>the rescuers could make better coordinated and communicative actions about the work at hand.<br/>We are the new Chinese who is taking down the evil CCP, <br/>and this is the first time that we have attended an international conference as the new Chinese3月14日，在新中国联邦（NFSC）的大帐篷里，<br/>NFSC一线救援队、各类救援无国界组织、官方救援组织、国际红十字会。<br/>救援人员可以就手头的工作做出更好的协调和沟通行动。<br/>我们是打倒中共邪党的新中国人，<br/>这是我们作为新华人第一次参加国际会议。
@@ -149,13 +158,6 @@ On 14 March, in the large tent of the New Federal State of China（NFSC）,<br/>
 ---
 
 **:arrows_clockwise: miles 已轉發**
-
-`@miles 3/15/2022 2:19 AM (UTC)`
-
-Italian Lorenzo told us about what the 2 unimaginable true pictures he witnessed along the way before he reached the big tent of the New Federal State of China with his Ukrainian wife and father-in-law <br/><br/>來自意大利的Lorenzo告訴我們，他帶着烏克蘭太太和岳父來到新中國聯邦的大帳篷之前，路上看見兩樣難以想像的實況
-![img](https://media.gettr.com/group47/origin/2022/03/15/02/505c81a8-14fb-a97a-188a-a80bd7a71f7e/out.jpg)
-
----
 
 `@miles 3/15/2022 2:19 AM (UTC)`
 

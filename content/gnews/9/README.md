@@ -2,15 +2,41 @@
 ---
 
 
-## 美太平洋空军司令警告中共 攻击邻居恐催生太平洋版北约
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2169245/)
+## 有声|泽连斯基披露两军死亡数字
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2169404/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Kenneth-Wilsbach.jpg)
-根据《美国之音》报导，美国太平洋空军司令维巴赫（Kenneth Wilsbach）于当地时间14日在美国空军协会一场视频会议中警告中共，应在俄乌冲突中吸取教训，即无端攻击邻居会遭致比俄罗斯更强烈国际反应，甚至催生中方最不愿见到的「太平洋版北约」。国际社会在此次俄乌事件中已展现出非常明确的态度，即「当一个超级强权无端对邻居发动攻击时，国际会如何团结汇聚力量，对攻击发起方实施各种层面上的制裁，并对受攻击方提供援助」，太平洋美军正在密切注意中共在此地区的活动，他要求所有人都紧盯中国和朝鲜的动态，避免北京和平壤利用欧洲的战事伺机而动。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月13日，国外媒体报道，乌克兰总统泽连斯基前一天在莫斯科军队逼近首都基辅时表示，自俄罗斯入侵乌克兰以来，已有“约1300名”名乌克兰士兵丧生。
 
-审核:Athena雅典娜 发布:Amitofu
+泽连斯基是在媒体吹风会上披露的这一情况，这是基辅自战斗开始以来首次披露伤亡数字。
 
-[美将领：盼中国汲取教训，未受挑衅攻击邻居会遭致比俄罗斯更强烈国际反应](https://www.voachinese.com/a/us-commander-warns-china-not-to-use-ukraine-to-make-unprovoked-attack-otherwise-will-face-even-stronger-international-reactions-20220314/6485230.html)
+3月2日，俄罗斯曾表示俄方已损失近500名士兵，但此后一直没有更新数字。3月12日泽连斯基称，俄军已有12000人阵亡，但他表示，俄军如此巨大的伤亡并不让他开心。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-5.jpg)
+就在3月12日，俄罗斯军队加大了对基辅的压力，猛烈打击了乌克兰其他城市的平民区，基辅市长表示，基辅正在加强防御并储存食品和药品。
+
+另外乌克兰外交部长称，南部港口城市马里乌波尔正面临“地球上最严重的人道主义灾难”，俄军的袭击已经造成1500多名平民死亡。
+
+
+
+文字版原文：[泽连斯基披露两军死亡数字](https://gnews.org/zh-hans/2159759/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
