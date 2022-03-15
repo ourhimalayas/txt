@@ -2,25 +2,31 @@
 ---
 
 
-## 中共把大连病毒来源风向引向国际货运
-` 儒为` [轉載自GNews](https://gnews.org/zh-hans/2168287/)
+## 善良的人类都反对战争
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2168329/)
 
-作者：意大利罗马达芬奇农场-儒为
-![](https://assets.gnews.org/wp-content/uploads/2022/03/大连疫情.jpeg)封面来源：网络图片
-中新网大连2022年3月15日报道，3月14日0-24时，大连市新增9例新冠肺炎本土确诊病例和8例无症状感染者，均在封控区重点人群主动排查中发现。中共大连市人民政府新闻办公室15日举行疫情防控新闻发布会，大连金普新区管委会副主任王杰通报称，经初步分析，本轮大连疫情病毒来源与国内其他地区不同源，暂不排除与国际货物运输有关联，没有情况显示与冷链有关。
+撰稿：骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-18.17.43.png)图源：网路
+梅迪卡前线时间3月15日，战友Nicole采访了连着七天都在为难民演奏音乐的钢琴家Davide Martello。这位钢琴家说自己不关心政治，但是非常反对战争，他在很多战争和动乱的场面去安抚过受难的百姓。他曾去过阿富汗，动乱时期的土耳其，巴黎恐怖和爆炸事件，在一些经历了自然灾害如洪水的地区。他四处奔走，为世界呼吁和平和爱，他说自己未去过香港，但为香港人演奏过。他说现在的科技进步太方便了，starlink这样的高科技只会使人与人的连接更加容易，无论人们是什么种族和语言，善良的人们彼此都有一颗和平的心。只有和平和爱，还有音乐，才能够让全人类团结一致。
 
-**浅析：**
+Nicole战友告诉钢琴家，人类社会一切罪恶的根源就是共产党，只有推翻了共产党才能有人类团结和分享爱的可能。而新中国联邦就是消灭共产党的中国人。钢琴家说虽然他不懂政治，但是他认为一个政府如果不与世界联网，违背历史潮流，想要倒退，那是不可能的。
 
-中共利用“中共病毒”对全国实施事实性的“军管”，把老百姓“锁在家里”和关进“方舱监狱”，中共病毒成为中共管控老百姓肉体最有力的工具；中共利用“网络”对全国老百姓进行“精神封锁”，“网络”成为中共“洗脑”和“奴化”百姓认知的最有力工具……最终目的就是要把14亿奴隶绑架在“共产主义”破车上，成为与西方勾兑和威胁世界的工具。
+* * *
 
-Eglise医生在直播中多次说过，“中共病毒”的传染方式是“空气传播”、是“气溶胶传播”，“快递”和“接触”是很难传染的，除非快递员在快递件上吐口唾液之后马上交给到你手上，那么国际货物运输能把国外病毒带到中共国的说法就太可笑了。中共用这么无耻低级的谎言到处甩锅病毒来源，目的就是用来欺骗和绑架国内的老百姓。
+撰稿、发布：银河系农场—-骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0313_Handflag17x24cm2.png)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-中共把大连病毒来源风向引向国际货运，中共这种到处病毒“碰瓷”的无赖行为，这不仅是在侮辱人类的智商，更是在把自己的邪恶本质暴露在世人面前，最后人人得而诛之。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-新闻来源：🔗[大连：病毒来源与国内其他地区不同源 不排除与国际货运有关联](https://www.chinanews.com.cn/sh/2022/03-15/9702351.shtml)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-*编辑/校对/发稿：意大利罗马达芬奇农场-儒为*
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

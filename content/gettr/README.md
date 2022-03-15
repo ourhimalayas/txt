@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 12:17 PM (UTC)`
+
+2022年3月15日 文贵大直播：香港股市跌破两万点；擀面杖经济难以为继；中共全球拉仇恨行径；疫苗大灾难如何面对
+![img](https://media.gettr.com/group40/origin/2022/03/15/12/a5f196e7-0e7a-d600-e1ca-313f9e96e0ba/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/15/2022 11:25 AM (UTC)`
 
 【Ukraine Rescue】03/14/2022 Two journalists from London are enjoying the NFSC Coffee in NFSC and ROLF rescue tent. They say this is the best coffee so far in Poland! <br/><br/>【乌克兰救援】03/14/2022 两位来自伦敦的记者正在新中国联邦和法治基金的救援帐篷里享用新中国联邦的咖啡。他们说这是目前波兰最棒的咖啡！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
@@ -154,13 +161,6 @@ Italian Lorenzo told us about what the 2 unimaginable true pictures he witnessed
 
 2022.03.14 晚《新中国联邦新闻访谈》俄乌战争最新军事进展。新中国联邦救援最新情况。我们是消灭邪恶的中国共产党的新中国人。 沙利文杨洁篪在罗马会面，中东爆发危机。 美欧最新的数字货币令对喜币意味着什么。 香港与大陆的中共病毒疫情爆发，是否新的中共病毒变种？
 ![img](https://media.gettr.com/group8/origin/2022/03/15/01/6b6fcf7e-0388-7aaa-3ba7-dcad429539f2/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/15/2022 12:35 AM (UTC)`
-
-2022.03.14 晚 《新中国联邦新闻》灭共的新中国联邦人是未来免受制裁的唯一人群； 郭先生解析Swift系统的意义
-![img](https://media.gettr.com/group28/origin/2022/03/15/00/447ac7d7-86c1-b91e-d799-15660a589ef7/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

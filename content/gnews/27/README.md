@@ -2,24 +2,32 @@
 ---
 
 
-## 注射第三剂新冠疫苗后，澳大利亚运动员斯图尔特•麦克斯温患上了心包炎
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2168281/)
+## 中共企业股市暴跌 美股损失高达1.1万亿美元
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2168294/)
 
-#### 翻译                                意大利达芬奇农场                 小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-15-alle-10.20.42.png)图片来源：eventiavversinews.it
-澳大利亚越野和中长跑运动员斯图尔特•麦克斯温（ Stewart McSweyn）没有完成3月8日星期二在墨尔本举行的5000米比赛。在还剩三圈的时候， 他突然出现了呼吸问题并放弃了比赛。斯图尔特•麦克斯温参加了2020年东京奥运会，并成功晋级男子1500米决赛。为了参加3月18日至20日在塞尔维亚贝尔格莱德举行的室内世界锦标赛，最近斯图尔特•麦克斯温接受了第三剂新冠疫苗。这位澳大利亚选手本应参加1500米和5000米比赛。现在，由于诊断出心包炎，他将不得不放弃世锦赛和其他比赛。
+素材：波士顿五月花Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-15-at-6.53.35-PM.png)图片来源：互联网
+由于对北京与俄罗斯的关系的担忧以及潜在的被美股退市的恐慌日益加剧，在美国交易的中国重量级公司的股票周一暴跌。
 
-麦克斯温的团队立即认为这起事件与他在1月份感染的新冠病毒有关， 但进一步的检查显示，这是与最近注射的第三剂疫苗有关系。
+在美国上市的最大的中国公司–电子商务巨头阿里巴巴的股票在周一受到最严重的冲击，在纽约证券交易所下跌10%，达到近六年来的最低水平，这一暴跌将其从2020年10月的历史最高价以来的损失推高至6130亿美元。
 
-麦克斯温的教练尼克•比都( Nic Bideau )表示， 围绕这位澳大利亚田径明星发生的事情应该是对所有运动员的警告。“ 医生告诉他不该在得了新冠病毒以后这么近的时间再接种新冠疫苗。这只会带来伤害，而这种伤害似乎已经发生了。他的心脏出了问题，显然也影响了他的呼吸。他接种疫苗是为了与世界上最优秀的人竞争，他必须接种新冠疫苗。”麦克斯温打加强针只是为了确保他可以旅行并参加下周在塞尔维亚贝尔格莱德举行的室内世界锦标赛。
+同行的在线零售商JD.com和拼多多也发布了同样惊人的跌幅，分别暴跌11%和21%，相比自去年2月这些公司的历史高点以来，加剧的跌势已经抹去了近2890亿美元的市值。
 
-现在他已退出所有比赛，他将去心脏病专家那儿做进一步的检查。例如：“先去看心脏病专家，进行更多的血液检查和心电图，他们会告诉我们更多的信息。他一周内不会跑步， 可能需要服用一些药物。如果一切顺利， 他应该会在10天后恢复训练。”
+Oanda分析师Ed Moya在周一的电子邮件中说，在过去的一年里，中国股市 “经历了一段艰难的时期”，首先因为中共加强了对本国科技公司粗暴的监管运动，另外最近，美上市的中共国企业面临可能会因为与政府的潜在联系而被从美国交易所除名。
 
-麦克斯温仍然计划参加下个月在悉尼举行的全国锦标赛， 目前他确认的第一场国际比赛是5月13日在卡塔尔多哈举行的钻石联赛。
+周二，美国证券交易委员会确定了五家中国公司，包括快餐业巨头百胜中国和生物技术公司BeiGene，要求他们必须交出审计记录，否则将面临从美国交易所除名，自那时起，百胜集团和贝因美的股票分别暴跌了近30%。
 
-原文链接：[https://www.eventiavversinews.it/latleta-olimpico-stewart-mcsweyn-si-sente-male-durante-la-gara-di-5000-metri-a-melbourne-gli-esami-mostrano-una-pericardite-dopo-la-terza-dose-ricevuta-per-partecipare-ai-mondiali-indoor-la-prossi/](https://www.eventiavversinews.it/latleta-olimpico-stewart-mcsweyn-si-sente-male-durante-la-gara-di-5000-metri-a-melbourne-gli-esami-mostrano-una-pericardite-dopo-la-terza-dose-ricevuta-per-partecipare-ai-mondiali-indoor-la-prossi/)
+Ed Moya说，北京与克里姆林宫的关系亦使投资者对投资中共国企业股票进一步 “复杂化”，他指出周末有报道称俄罗斯在对乌克兰的战争中要求中国提供军事援助，中共被警告说任何协助俄罗斯军事侵略行为可能导致中共国银行被踢出swift系统，类似于上个月迫使莫斯科证券交易所关闭的报复性制裁。
 
-编辑、上传：Xiao   baige
+其他在美国上市的顶级中国企业股票同样陷入大跌，包括互联网巨头百度、特斯拉竞争对手NIO和游戏公司网易，它们在周一分别下跌了8%、12%和10%。
+
+总的来说，在美国交易的十大中共国公司从新冠病毒大流行期间的历史高点以来，损失已超过1.1万亿美元的市值–这代表着它们周一的总价值约为5200亿美元的两倍多。
+
+原文链接：[Chinese Stock Crash: U.S. Losses Top $1.1 Trillion As Beijing’s Russia Ties Spark Investor Concerns](https://www.forbes.com/sites/jonathanponciano/2022/03/14/chinese-stock-crash-us-losses-top-11-trillion-as-beijings-russia-ties-spark-investor-concerns/?sh=4b2ad4713554)
+
+* * *
+
+*编辑&发布：Vicky*
 
  
 

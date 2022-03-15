@@ -2,43 +2,37 @@
 ---
 
 
-## 属于前克格勃官员谢尔盖-切梅佐夫的1.4亿英镑超级游艇被西班牙扣押
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2168757/)
+## 《I draw my life 》真实版
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2168834/)
 
-素材：波士顿五月花Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-15-at-7.36.42-PM.png)图片来源：dailymail
-随着西方国家继续收紧对弗拉基米尔-普京核心圈子的绞索，西班牙扣押了其第一艘俄罗斯寡头拥有的超级游艇。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/maxresdefault-54.jpg)
+梅迪卡前线时间3月13日，一个乌克兰小女孩来到新中国联邦的帐篷内，她特别爱画画，战友送了她一套画笔。不多久小女孩的母亲给战友看了孩子的画。这几幅画让人心都碎了。有一幅画画的是在战争的炮火中，哭泣的孩子在祈祷，还有一幅画是一个士兵拿枪指着一个求饶的平民，外面裹着一层圆圈像是地球，圈外有水滴一样的东西，似乎在表达战争和杀戮会让地球流泪。还有一张画，画了两只手，根据颜色左边是乌克兰，右边是俄罗斯，两只手的形态非常不自然，既不像牵手也不像放手，小女孩的母亲说这个画是要表达反对战争，不得不说小孩画得太好了，简直像极了乌克兰和俄罗斯现在的情况。接下来的一张画是用颜色分别代表俄罗斯和白俄罗斯的两个凶恶的面孔，把夹在中间的乌克兰蹂躏到满脸是伤痕。
 
-瓦莱丽号是一艘价值1.4亿英镑的船只，最终属于前克格勃官员谢尔盖-切梅佐夫，已在巴塞罗那被扣押，之前它一直在那里进行维修。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-19.52.20-1280x716.png)
 
-西班牙首相佩德罗-桑切斯(Pedro Sanchez)周一宣布了这一举措，同时承诺 “会有更多人”被收缴资产。
-
-他在接受西班牙国家电视台La Sexta采访时说：“今天我们扣押了一艘属于一个主要寡头的游艇。还会有更多，我们必须对弗拉基米尔-普京、他的政权和他的寡头们采取有力和坚定的行动，他们通过压迫俄罗斯人民在腐败体系中发了财。”
-
-他没有说出这艘船的名字，但消息灵通人士指出，这艘船是切梅佐夫通过其继女阿纳斯塔西娅-伊格纳托娃拥有的Valerie。
-
-切梅佐夫是一名前高级将领，在两人一起驻扎在苏联东德为克格勃工作时结识了普京。
-
-2001年普京成为俄罗斯总统后，他凭借与普京的个人关系发了财。
-
-2007年，普京任命切梅佐夫为国防和技术企业集团Rostec的负责人，该集团价值几百亿美元。
-
-属于罗曼-阿布拉莫维奇的460英尺超级游艇Solaris号，直到几天前还在与瓦莱丽号在同一个巴塞罗那造船厂进行维修。
-
-但是，这艘价值4.2亿英镑的船在制裁到来之前，匆匆驶向周末停靠的 “安全港 “黑山港。
-
-本月早些时候，西班牙交通部官员要求巴利阿里群岛的码头通知他们，是否有属于俄罗斯国民的87英尺以上的船只停靠在那里。
-
-当时的报道称，如果随后作为欧盟命令的一揽子制裁措施的一部分进行扣押，那么受影响的超级游艇之一将是阿纳斯塔西娅女士。
-
-根据2021年潘多拉文件信息泄露中发表的一篇文章，瓦莱丽注册在切梅佐夫的继女阿纳斯塔西娅-伊格纳托娃名下。
-
-原文链接：[£140million superyacht belonging to ex-KGB officer Sergey Chemezov is seized by Spain as the West clamps down on Putin’s oligarchs](https://www.dailymail.co.uk/news/article-10614183/Ukraine-war-Spain-seizes-oligarch-superyacht.html)
+看完这几张画，这简直就是《I draw my life 》的真实版。《I draw my life 》是乌克兰小女孩演唱的呼吁和平的歌曲，歌里唱充满暴力的世界不会有未来，我们爱好和平，呼吁停止战争，这些都和上面这个孩子画得这些画太相符了。我们愿意尽最大努力救援乌克兰，愿这首歌这些画，永远留在我们的记忆里，曾经万恶的共产党如此破坏过孩子的家园。
 
 * * *
 
-*编辑&发布：Vicky*
+撰稿、发布：银河系农场—-骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0313_Handflag17x24cm2.png)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+
+ 
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
