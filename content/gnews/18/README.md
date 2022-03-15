@@ -2,35 +2,28 @@
 ---
 
 
-## 乌克兰准备谈判 但绝不投降
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2167373/)
+## 让枪口对向俄军！基辅修车厂变军工厂
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2167523/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-乌克兰外交部长库列巴3月12日表示，乌克兰已对谈判做好准备，以结束两周前俄罗斯发动的入侵战争。他说，乌克兰不会投降，也不会接受最后通牒。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-上午2.39.00.png)
-库列巴在无党派、非营利组织“复兴民主倡议”召开的视频会议上表示，如果乌克兰拥有战斗机和更多攻击型飞机来摧毁俄军的大型军事纵队，就可以拯救更多百姓的生命。
+乌克兰基辅一家汽车维修厂摇身成为临时军工厂，把夺自俄罗斯军人的武器改造之后，交给乌克兰部队保家卫国。
 
-库列巴提及南部港口城市马立波时表示，虽然马立波遭到围困，但仍在乌克兰的控制之下。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3567601-PH.jpg)图片来源：达志影像
 
-自俄罗斯2月24日入侵乌克兰后，迄今为止，已有至少250万人被沦为难民。西方国家迅速采取行动，要将俄罗斯孤立于世界贸易和全球金融体系之外。但库列巴表示，尽管有这些制裁，乌克兰仍然需要更多的军事物资，以及需要西方国家采取更多的措施，来打击俄罗斯的经济。
+修车厂老板费成柯（Oleksandr Fedchenko）说，俄国上月出兵后，他持续和员工脑力激扬，看能不能想出好点子协助军力悬殊的国军，结果竟然发现我们有员工懂得制造武」。
 
-参考链接：[Ukrainian foreign minister says ready to negotiate, but will not surrender](https://www.reuters.com/world/europe/ukrainian-foreign-minister-says-ready-negotiate-will-not-surrender-2022-03-12/)
+费成柯说：我们会重新打造这些武器，让枪口指向敌军，而非我方。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+简评：基辅修车厂变军工厂，虽然乌克兰实力不如俄罗斯，但乌克兰人民的抗敌之心是不可摧毁的！得人心者得天下，俄罗斯兴不义之师入侵乌克兰，哪怕天时地利有优势，也攻不下乌克兰人民的人和，更何况还有全球陆续的援助！普京野心猖狂，这算盘打错了！
 
-编辑：Jack Li文阳
-总编：文真
-审核：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1085279)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
