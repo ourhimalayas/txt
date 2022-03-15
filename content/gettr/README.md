@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 8:52 AM (UTC)`
+
+24小时客服热线（电话/短信）： +1 720-657-6776 或 +1 719-224-4232 或 +48 508-532-712 或 +48 508-531-518 Telegram： t.me/UkraineRescue 盖特： https://gettr.com/user/UkraineRescue The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Rescue Team – News & Updates. 24h Hotline: +1 720-657-6776 or +1 719-224-4232 or +48 508-532-712 or +48 508-531-518 Telegram: t.me/UkraineRescue GETTR: https://gettr.com/user/UkraineRescue
+![img](https://media.gettr.com/group28/origin/2022/03/15/07/8a1f6798-2af2-6bd4-dcca-dbc141834d03/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/15/2022 6:37 AM (UTC)`
 
 【Ukraine Rescue】Nicole interviewed the Pianist Davide Martello in front of the big tent of the NFSC and ROLF, and explained to him the task of the NFSC is taking down the CCP, because it is the root cause of all the disasters around the world. Davide highly praised the rescue efforts of the NFSC.<br/><br/>【乌克兰救援】妮可在新中国联邦和法治基金的大帐篷前采访了钢琴家Davide Martello，向他解释了新中国联邦的任务就是打倒中共，因为它是全世界所有灾难的根源。 Davide高度赞扬了新中国联邦的救援工作。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -152,13 +159,6 @@ Italian Lorenzo told us about what the 2 unimaginable true pictures he witnessed
 
 Mr. Miles Guo accurately predicted the ultimate end of the mandatory vaccines and the fate of the big vaccine companies<br/><br/>郭文贵先生准确预言停止强制疫苗和疫苗大公司的最终结局<br/>
 ![img](https://media.gettr.com/group30/getter/2022/03/14/22/899b134f-576d-0acd-5087-d135190a1c41/out.jpg)
-
----
-
-`@miles 3/14/2022 10:38 PM (UTC)`
-
-3/14/2022 Miles Guo’s GETTR: My exposure of the CCP’s furtive actions in the Middle East has put the US and Europe on the alert; the CCP will pay a dear price for supporting Russia; the economy of Communist China is on the verge of collapse; the upcoming 20th Party Congress will accelerate the taking down of the CCP from within; the New Federal State of China will be the promoter of “One person, One vote” policy in China post the demise of CCP.<br/><br/>3/14/2022 文贵盖特：文贵爆料的中共在中东蠢蠢欲动引起了欧美的警觉；中共与俄罗斯狼狈为奸一定会付出代价；中共国的经济已到了崩溃的边缘；二十大前后中共有可能被自己人灭掉，新中国联邦将在没有共产党的中国推动一人一票的民主制度<br/>
-![img](https://media.gettr.com/group44/getter/2022/03/14/22/b0467177-05b6-c086-4f97-e0ce060fff53/out.jpg)
 
 ---
 
