@@ -15,113 +15,113 @@
 
 ---
 
-### [2022/03/12 乌克兰梅利托波尔市遭俄罗斯炮击，市长被绑架](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声｜乌克兰与机构合作推出加密货币捐赠网站](/content/gnews/2/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [秘翻在线：中-美矛盾的新火种，美国对中共国可能向俄罗斯提供‘援助’表现出强烈忧虑](/content/gnews/3/README.md)
+### [秘翻在线：【速报】日本政府冻结包括新兴财阀在内的17人的资产](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022/03/13 泽连斯基：侵略者不会停止战争](/content/gnews/4/README.md)
+### [感谢习近平王岐山PAG太平联盟帮助爆料革命办砸冬奥](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [在战争和经济崩塌时虚拟货币是最大赢家,喜币是最大赢家](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [基辅的中国愤青：俄乌战争让我看清了中共政权的虚伪](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022/03/12 自由车队在为每一个美国人的权利发声](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [日本反对党要求首相重审与俄罗斯合作的预算](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄官媒编辑公开反战！吴釗燮：需要勇气！](/content/gnews/7/README.md)
- ` 蓝莲花农场`
-
-### [郭文贵精品视频-政治经济金融策略大师论第三次世界大战中的经济危机](/content/gnews/8/README.md)
- ` cindy`
-
-### [有声｜沙利文与杨洁篪会面 点明中共挺俄有后果](/content/gnews/9/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [【五月花讯】乌克兰人道救援现场协调会在梅迪卡新中国联邦救援基地召开](/content/gnews/10/README.md)
- ` 波士顿五月花农场`
-
-### [2022/03/12 中共威胁向台湾提供军事支持的国家](/content/gnews/11/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [新冠疫苗是在救人还是在杀人](/content/gnews/12/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [罗谢尔·瓦伦斯基和“即将到来的厄运”](/content/gnews/13/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [泰国已向15,933名遭受Covid-19疫苗受害者支付4,500万美元的赔偿金](/content/gnews/14/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [美国不满中共国支援俄罗斯军需物资](/content/gnews/15/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [郭文贵精品视频-政治经济金融策略大师论中东能源战争的“围魏救赵”](/content/gnews/16/README.md)
- ` cindy`
-
-### [愿咖啡陪你度过漫长黑夜](/content/gnews/17/README.md)
- ` NFSC News`
-
-### [沙利文：如果中共帮助俄罗斯绕过制裁将面临后果](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [大直播后记：一定做最坏的打算](/content/gnews/19/README.md)
+### [大直播后记：救援前线传播爱意，新中国联邦消灭中共](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [美参议员称卡车司机为所有美国人权力发声](/content/gnews/20/README.md)
- ` NFSC News`
+### [美元和欧元不是你死我活的关系而是互相依存的男女关系](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [联合国呼吁采取行动防止战争导致全球粮食体系崩溃](/content/gnews/21/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [20220313郭文贵大直播 ：刘彦平好话说尽，坏事做绝！七哥在中东和欧洲给中共做好了死亡陷阱](/content/gnews/7/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [郭文贵先生2022年3月14日盖特视频（9分28秒）全文字版](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [普京出台收习近平数千亿美元转身与美国和欧洲讲数卖习](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [中共招募中国人给俄罗斯当炮灰](/content/gnews/23/README.md)
- ` NFSC News`
+### [20220313郭文贵大直播 ：一秒钟无数人头落地常委会被撕成肉泥](/content/gnews/9/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [德国战地钢琴家在难民救援中心弹奏反战歌曲](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [俄乌局势僵持不下，金融市场大跌](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
-
-### [新中国联邦参与国际组织战地救援协调大会](/content/gnews/26/README.md)
- ` 纽约香草山MOS02`
-
-### [新中国联邦救援队参与难民营地的管理会议](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [新中国联邦新闻、GTV新闻访谈简报|2022年3月14日晚](/content/gnews/28/README.md)
- ` 纽约香草山MOS01`
-
-### [红十字会志愿者到法治基金的帐篷享用咖啡并表示感谢](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [俄罗斯在乌克兰的行为等同“国家恐怖主义”](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [乌克兰难民感恩新中国联邦志愿者](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国约有35,000例感染中共病毒Omicron的BA.2子变体](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [波兰最大报纸Fakt采访妮可](/content/gnews/33/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [3/14/2022 文贵盖特：新中国联邦将成为全球首家和唯一一家进入乌克兰解救中国同胞和乌克兰妇女儿童的救援团体；面对竞争的压力，中共把已与新中国联邦联系上的在乌100个中国人转移到斯洛伐克](/content/gnews/34/README.md)
- ` 秘密翻译组-北美组`
-
-### [特斯拉创始人埃隆·马斯克向普京发起决斗挑战](/content/gnews/35/README.md)
+### [乌克兰救援前线报道3.13.2022：新中国联邦的战友们每天都会接纳500-1000名难民](/content/gnews/10/README.md)
  ` 秘密翻译组-原创组`
 
-### [意大利电视台采访Nicole](/content/gnews/36/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [2022/03/12 乌克兰梅利托波尔市遭俄罗斯炮击，市长被绑架](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [郭文贵精品视频-政治经济金融策略大师预判中共趁世界经济危机打台湾](/content/gnews/12/README.md)
+ ` cindy`
+
+### [有声｜乌克兰与机构合作推出加密货币捐赠网站](/content/gnews/13/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [秘翻在线：中-美矛盾的新火种，美国对中共国可能向俄罗斯提供‘援助’表现出强烈忧虑](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2022/03/13 泽连斯基：侵略者不会停止战争](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [日本反对党要求首相重审与俄罗斯合作的预算](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [俄官媒编辑公开反战！吴釗燮：需要勇气！](/content/gnews/17/README.md)
+ ` 蓝莲花农场`
+
+### [彭佩奥:习近平正注视着美国在乌克兰的“软弱”](/content/gnews/18/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [郭文贵精品视频-政治经济金融策略大师论第三次世界大战中的经济危机](/content/gnews/19/README.md)
+ ` cindy`
+
+### [有声｜沙利文与杨洁篪会面 点明中共挺俄有后果](/content/gnews/20/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [【五月花讯】乌克兰人道救援现场协调会在梅迪卡新中国联邦救援基地召开](/content/gnews/21/README.md)
+ ` 波士顿五月花农场`
+
+### [新冠疫苗是在救人还是在杀人](/content/gnews/22/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [泰国已向15,933名遭受Covid-19疫苗受害者支付4,500万美元的赔偿金](/content/gnews/23/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [愿咖啡陪你度过漫长黑夜](/content/gnews/24/README.md)
+ ` NFSC News`
+
+### [泽连斯基称乌克兰绝不会被征服](/content/gnews/25/README.md)
+ ` NFSC News`
+
+### [天主教宗方济各为乌克兰发表声明](/content/gnews/26/README.md)
+ ` NFSC News`
+
+### [中共为战争控制大陆百姓以家为牢](/content/gnews/27/README.md)
+ ` NFSC News`
+
+### [联合国呼吁采取行动防止战争导致全球粮食体系崩溃](/content/gnews/28/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [德国战地钢琴家在难民救援中心弹奏反战歌曲](/content/gnews/29/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [俄乌局势僵持不下，金融市场大跌](/content/gnews/30/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [新中国联邦参与国际组织战地救援协调大会](/content/gnews/31/README.md)
+ ` 纽约香草山MOS02`
+
+### [新中国联邦救援队参与难民营地的管理会议](/content/gnews/32/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [新中国联邦新闻、GTV新闻访谈简报|2022年3月14日晚](/content/gnews/33/README.md)
+ ` 纽约香草山MOS01`
+
+### [俄罗斯在乌克兰的行为等同“国家恐怖主义”](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [乌克兰难民感恩新中国联邦志愿者](/content/gnews/35/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国约有35,000例感染中共病毒Omicron的BA.2子变体](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [港股遭遇“黑色星期一”，港币联系汇率再度接近红线](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`

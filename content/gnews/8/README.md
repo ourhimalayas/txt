@@ -2,25 +2,46 @@
 ---
 
 
-## 郭文贵精品视频-政治经济金融策略大师论第三次世界大战中的经济危机
-` cindy` [轉載自GNews](https://gnews.org/zh-hans/2166304/)
+## 普京出台收习近平数千亿美元转身与美国和欧洲讲数卖习
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2166482/)
 
-撰稿：澳喜cindy
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8821.61%EF%BC%89%E6%99%AE%E4%BA%AC%E5%87%BA%E5%8F%B0%E6%94%B6%E4%B9%A0%E8%BF%91%E5%B9%B3%E6%95%B0%E5%8D%83%E4%BA%BF%E7%BE%8E%E5%85%83%E8%BD%AC%E8%BA%AB%E4%B8%8E%E7%BE%8E%E5%9B%BD%E5%92%8C%E6%AC%A7%E6%B4%B2%E8%AE%B2%E6%95%B0%E5%8D%96%E4%B9%A0%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:f)
 
-经济金融专家-郭先生，从2017年刚出来爆料时就常常提到，史诗级别的金融危机不久将到来。如今我们已经感受到了。世界各国的恶性通货膨胀、经济萎缩已初见端倪。郭先生当时的预判除了他所掌握的经济学的循环周期原理外，可能更多的是，他知道中共将发起的生化战、中东能源战、台海之战而导致的世界经济大崩塌的因素更是引发这场经济危机的烈度更强的主要方面。
+郭文贵先生：结局是啥，知道吗？兄弟姐妹们？共产党想拿俄罗斯玩，跟人家玩呢，就是“习太阳”他的情商和智商，就像路大脑袋、蛇妖闫要想挑战七哥一样，是吧？就像那高冰尘要跟七哥争宠一样，七哥坐这块就不用说，就这样站5分钟（注：手摸头），小飞象、文紫得喜欢我也不会喜欢高冰尘去啊，是吧？这就跟我，垃圾是吧？你不找死呢吗？
 
-郭先生肯定地告诉我们：大约在今年的5月份，金融危机将从美国，欧洲会逐渐开始。
+“习太阳”跟普京玩政治，人家普京“啪”去了，48小时，56小时，签完合同，几千亿美元拿走，是吧？所有的气、油钱全付，先拿钱来，是吧？“咵”就走了，回去跟美国、欧洲讲数儿，直接是什么？欧元暴涨，美元大跌。
 
-中俄为轴心的邪恶五国联盟，联系在一起挑战美国。就在西方对侵略者普京实行严厉制裁之际，中共不顾14亿百姓的死活，竟让俄罗斯通过人民币跨境支付系统，将他们的卢布兑换成人民币，然后再将人民币兑换成美元，在全球结算，绕过了swift制裁。中国引火烧身必将引发西方把他也踢出swift。中共本来美元外汇储备就不多。这几年被新中国联邦人打的金融这条腿已经残废了，继续从欧美国家股市、金融机构骗钱的日子没有了。中国每年72%原油，30%以上粮食进口都需要外汇。这势必将导致经济严重经济滞胀，甚至是饿死人的惨状都会出现。何况中共打台湾还将需要大量的费用。所以中国同胞保命是第一要务。
+很多人说这是美国最大受益者，美国和俄罗斯的游戏，绝对错了。这是一场世界上，你未来会看到这场战争发生以后，绝对是中国的“习太阳”对政治的无知、对国际政治的无知和自我的狂妄，和中国的骗、互相欺骗。
 
-俄乌战争，全世界最恨的不是普京和俄罗斯而是中共和中国人。因为全世界都看到了，共产党的CIPS人民币支付系统代替了SWIFT美元支付系统，也就是中国政府和绑架下的14亿中国人是俄侵占乌克兰的金主。这个黑锅是中国人好几辈子都付不起的代价。
+就像那个告诉“习太阳”普京说“绝美的绝妙的”这种欺骗一样，是一种国际政治欺骗和十四亿中国人认为“美帝国主义一直在死亡中在堕落中，中国要领导全世界”这种无知一样，是愚蠢、无知、欺骗，对国际规则、完全被欺骗的老百姓造出一个集体自杀的决定的结果。
 
-中共盗国贼们自以为自家的100万亿美金全部转移出去了，可以把这个漏了洞的大船放弃，自己可以逃到安全的彼岸了。他们想的太美了！他们哪里知道我们的文贵先生早找到了他们的藏宝之处。他们在世界藏的钱和狗粮，都会被挖出来。中国人要被这次中共愚蠢的绑架行动付出相当惨重的代价，对我们的影响是没法估量的。习近平一旦打台湾，中国很快步俄罗斯的后尘。人民币将成为废纸，即便实行了数字货币，那也是中共那几个大脑袋完全中心化的控制着人们的支出。中国百姓将进入奴隶的生活方式。请大家尽快醒来吧！一起结束这个专制的共产主义邪恶政体。
+就是中国共产党疯了！而且这个疯狂被俄罗斯彻底利用，赢家一定是俄罗斯，赢家一定是美国，灭的是中国，而且欧洲因此会重生。
 
-*编辑：cindy*
+编辑整理：Jacques；
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+字幕档制作：兵嫂；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

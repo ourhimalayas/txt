@@ -2,34 +2,45 @@
 ---
 
 
-## 新中国联邦参与国际组织战地救援协调大会
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2166077/)
+## 天主教宗方济各为乌克兰发表声明
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2166199/)
 
-【撰稿】香草山健身部-文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-22.png)
+作者：纽约磐石农场—在远方
 
-波兰当地时间3月14日，梅蒂卡救援站所有义工组织的成员代表集中在新中国联邦的最大救援帐篷中，召开会议讨论整个营地的系统化管理。
-这次会议由联合国、国际红十字会、以及无国界救援者等组织联合发起。当天早上，新中国联邦救援人员已经与联合国救援工作人员完成对接。会议计划，把新中国联邦帐篷这一排作为一列新的难民营地所在。 新中国联邦救援人员表示，根据救援需要，可以搭建更大的帐篷，全力配合国际组织的需要。
-据悉，会议将于明日早晨继续召开，新中国联邦救援人员会参与探讨基地的整合建设。
-这次会议是新中国联邦首次全程参与全球国际组织的合作，而且，为会议提供会议场地。会议结束后，所以与会人员主动起立，当场感谢新中国联邦所提供的国际人道主义帮助。新中国联邦参与国际合作受到全球组织的欢迎与认可。
-这是历史上首次，在国际舞台上，有新中国联邦而没有中国共产党的国际组织会议。这一时刻将被载入史册。
 
-【素材来源】前线报道
-[https://mega.nz/file/tEEC3Y5Z#a-QwUOtyibUsEbdBw3zQ6Md-nmPhCIwKOttiIpRuGsY](https://mega.nz/file/tEEC3Y5Z#a-QwUOtyibUsEbdBw3zQ6Md-nmPhCIwKOttiIpRuGsY)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-- 审核/编辑/发稿:qiutian（邱甜）
 
+
+盖特3月14日消息，近日天主教教宗方济各为乌克兰战争发表声明，呼吁以上帝之名停止战争，敦促人道主义走廊变得安全有效。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-7.jpg)
+教宗方济各说，本周乌克兰马里乌波尔市变成了一座烈士城市，乌克兰正在被俄罗斯侵略军所蹂躏。俄军杀害儿童和手无寸铁无辜民众的野蛮行为，全世界应当在马里乌波尔市被彻底变成墓地之前，全力制止俄罗斯的武装侵略。对此，他怀着悲痛的心情，与民众一起恳求结束战争。
+
+教宗要求俄乌双方展开谈判，让人道主义走廊变得安全有效。同时，他以上帝之名，让人们听到受难者的呼喊，停止轰炸和攻击和立即停止屠杀行为。
+
+参考链接：
+[以上帝之名，讓人們聽到那些受難者的呼喊，讓轟炸和攻擊停止。 讓我們真正地、果斷地走向談判，讓人道主義走廊變得安全有效](https://www.gettr.com/post/pzwnwm0ee3)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/审核：DM
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,43 @@
 ---
 
 
-## 有声｜乌克兰与机构合作推出加密货币捐赠网站
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2166426/)
+## 感谢习近平王岐山PAG太平联盟帮助爆料革命办砸冬奥
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2166575/)
 
-**By:秘翻新聞**
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8824.61%EF%BC%89%E6%84%9F%E8%B0%A2%E4%B9%A0%E8%BF%91%E5%B9%B3%E7%8E%8B%E5%B2%90%E5%B1%B1PAG%E5%A4%AA%E5%B9%B3%E8%81%94%E7%9B%9F%E5%B8%AE%E5%8A%A9%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD%E5%8A%9E%E7%A0%B8%E5%86%AC%E5%A5%A5%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:0)
 
-**2022-03-15**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片222.png)图片源自:雅虎新闻
-据[雅虎新闻](https://finance.yahoo.com/news/ukraine-partners-ftx-everstake-launch-171345958.html?fr=sycsrp_catchall)3月15日报道，乌克兰政府周一开启了一个新的加密货币捐赠网站，简化了将数字货币捐款转成子弹、绷带和其他战争物资的流程。
+郭文贵先生：我想说这次冬奥会里边，真的你们没有任何人看到这个冬奥会里边对我们爆料革命有多好！就是我一看到冬奥会的信息，我就真的是我走道儿我就想晃着走，过去我看人走道儿，男的走道儿怎么拧屁股啊？我觉得很别扭，现在我都想拧着屁股走道儿我觉得啊，我就觉得简直幸福不行不行的了！
 
-Everstake 的增长主管 Vlad Likhuta 告诉 CoinDesk，对乌克兰的援助得到了加密货币交易所 FTX、博彩平台 Everstake 和乌克兰的 Kuna 交易所的支持支持，将把捐赠的加密货币发送给乌克兰国家银行，乌克兰精通加密货币的数字化转型部也参与其中。
+我觉得是老天真的帮我们，就是说没有一件事儿不是“习太阳”帮我们都干了，我们想干很难，他都帮我们干了，还得感谢王岐山。包括这PAG太平联盟，包括这冬奥会他整个干这事儿，漏水、对运动员的威胁。
 
-据该网站称，目前已经筹集了约 4800 万美元的比特币、DOT、以太币、SOL、USDT 和其他加密货币。其他估计数字接近 1 亿美元。
+再一个选址，大家现在全世界都在问一个问题：北京啥时候有滑雪的地方？所有看直播的，北京，你在北京哪滑过雪呢？你们啥时候滑过雪呢？中国你说雪最多的东北，长白山、什么什么这那的，你啥时候冰雪运动是中国人的主要运动了呢？何况冰雪运动在世界的体育界里边它都是小项目。
 
-该网站加深了政府公共部门和私营部门在加密领域的前所未有的合作。一份新闻稿称，FTX 正在将捐款转换为法币存入乌克兰国家银行，它将这种关系描述为“第一次”。
+编辑整理：Jacques；
 
-Everstake称，乌克兰中央银行正在使用这部分捐款支持人道主义援助计划，以及乌克兰的武装部队。人民将继续为自由而战，但他们需要更多的弹药和必需品。
+字幕档制作：兵嫂；
 
-（秘翻新闻 自由信仰 编译报道）
+视频制作及上传：Cindy；
 
-发布:星星
+G-News发布：海贼王M.D.LUFFY；
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
