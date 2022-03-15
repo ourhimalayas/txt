@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 4:35 PM (UTC)`
+
+The New Federal State Of China provides humanitarian aid at the polish and Ukrainian border
+![img](https://media.gettr.com/group44/origin/2022/03/15/16/a11f31a6-9298-a0bd-74ad-d0169c54075b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/15/2022 4:33 PM (UTC)`
+
+【Ukraine Rescue】03/15/22 Some suspicious-looking Chinese faces appeared in the vicinity of the NFSC Medyka Rescue Center. Their nervous expressions made one wonder if this was yet another CCP’s plot to harass and sabotage NFSC & ROLF Ukraine Rescue Operation.<br/><br/>【乌克兰救援】03/15/22 一些形迹可疑的华人面孔出现在新中国联邦梅迪卡救援中心的附近。他们慌张的神色令人不禁怀疑：这是否又是由中共在背后主使，企图对新中国联邦及法治基金的乌克兰救援行动进行骚扰和破坏<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group48/getter/2022/03/15/16/a21b41a0-28ec-8dd4-35e3-facb9c0b9e84/out.jpg)
+
+---
+
 `@miles 3/15/2022 3:02 PM (UTC)`
 
 铁锁梦 MV<br/>Chained Dream<br/> <br/>演唱：Miles Guo<br/>歌词：威廉王<br/>编曲：小光<br/>制作：唐平<br/> 原曲：（女人花）<br/><br/>Cover by Miles Guo<br/>Lyrics: William Wong<br/>Arrangement: Xiao Guang<br/>Producer: Tang Ping<br/>Original Song: Flower Woman <br/><br/>我本花一朵<br/>A beautiful budding rose<br/> <br/>被拐骗山中<br/>since abducted to the mountains<br/> <br/>从此亲人永相隔<br/>forever separated from family <br/> <br/>囚禁二十年 我受尽了折磨<br/>Locked up and tormented for two decades<br/> <br/>这个世界不要我<br/>the world has abandoned me<br/> <br/>醒来吧 别再如此冷漠<br/>Wake up, don’t be stone cold<br/> <br/>醒来吧 抛掉所有懦弱<br/>Wake up, shake off all cowardice<br/> <br/>只为能 紧握住亲人手<br/>In order to hold loved one’s hands<br/> <br/>要埋葬 那邪恶的中共<br/>the evil CCP must be buried<br/> <br/>牙齿全拔落<br/>Teeth all pulled<br/> <br/>铁锁已斑驳<br/>shackles mottled<br/> <br/>这就是我的一生<br/>this is my life in its entirety<br/><br/>同胞快醒来<br/>Fellow compatriots be awakened<br/> <br/>从此要站着活<br/>live standing on your feet<br/> <br/>我们砸碎这铁锁<br/>let’s smash the shackles break the chain
@@ -145,22 +159,6 @@ On 14 March, in the large tent of the New Federal State of China（NFSC）,<br/>
 
 3月14号太多，我的好多投资领域，已经投资了香港的朋友，给我发了类似这样的信息🙈🙈🙈但愿有更多人能跟随新中国联邦，做一个消灭中国共产党的得到自己真正信仰的人。真正的能够明白👉“相信共产党走进火葬场”远离共产党才能有未来和希望！莘县阳谷县搭县咱们走着看！<br/>【亲爱的miles，我们在香港的股市的投资彻底崩塌了，我不想说后悔，当初没有听你的话，导致今天这种严重的不可收拾的后果，我为我相信共产党付出了不能承受的代价，我还是要告诉你，你是我的好兄弟。你是我的英雄，我的弟弟听了你的话，售完了所有的香港的股市的资产，谢谢你亲爱的兄弟。】
 ![img](https://media.gettr.com/group20/getter/2022/03/15/03/ecef995b-756b-311a-c2fa-051f9911d08b/ca8193a7e6b9096f23368b11344a419f.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@elyon 3/15/2022 1:45 AM (UTC)`
-
-10分钟前，有一位小男孩找到我，他和母亲得到我们贴心帮助后很感动，主动用翻译器打下如下文字，看了后我感到浑身像充电了一样。充满了自豪感，感觉无比高大！他问我们是哪里人，我说是新中国联邦人，他的年纪未必知道其中的含义，但我听懂了他在多次重复”Chinese”， 并树起了拇指， 母亲还向我要了联系方式呢！ 朋友就是这样交上的，用爱心。 我询问过男孩的母亲，他们很愿意将我我跟男孩的这张合影作新闻发布。❤️❤️❤️
-![img](https://media.gettr.com/group27/getter/2022/03/15/01/64fcc287-8066-c192-87d8-53dcf8e367b1/bb0fb0bafa005c3455c10f2d573925a7.jpg)
-
----
-
-`@miles 3/15/2022 2:28 AM (UTC)`
-
-
-![img](https://media.gettr.com/group23/origin/2022/03/15/02/86b2e4c6-66b6-91ee-7bb1-7fa305516b30/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
