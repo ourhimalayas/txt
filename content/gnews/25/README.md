@@ -2,63 +2,42 @@
 ---
 
 
-## 谢谢你，英雄（乌克兰男孩的心声）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2167832/)
+## 文•贵天成——文贵先生谈“生物科技”（一）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2167892/)
 
-作者：纽约香草山教育部-蓝之灵（hortênsia)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2497.jpg)
+整理：BENJ1
+编辑：守望黎明
 
-你是我的英雄
-在绝望中
-伸出援助的手
-温暖我的心
-这个冬天特别寒冷
-侵略者炮弹
-毁灭所有希望
-未来是个黑洞
-不知何去何从
-
-爸爸上了战场
-妈妈担忧哭泣
-我还没有长大
-失去了家
-被迫逃离
-未来是一个黑洞
-我不知何去何从
-
-谢谢你，我的英雄
-你们就像黑夜里的光
-给了我希望
-冰冷绝望的心
-有了温度
-再次跳跃
-谢谢你们
-我的英雄
-谢谢你们
-温暖的大帐篷
-背井离乡的人们
-对生活
-充满希望
-我们没有被抛弃
-有你们
-和
-我们同行
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-26.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-- 审核/编辑/发稿:qiutian（邱甜）
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/6a612dfb3ccf6e42-1.png)图片来源：雅典娜设计组
 
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**郭文贵先生2017年5月16日直播**
+我觉得现在宗教与科学之间的界限，实际上逐渐的在往一起靠拢。它包含了自然哲学、自然学、还有这个物理科学，是现代的物理科学，然后是哲学，再以后是宗教学，也可以说是神力学。我们人类现在已经到了其他星球去了。
+
+在过去这都是迷信，这都是伪宗教，但现在很多已经属于物理。当下的、有为的世界已经可以和未来的、无为世界进行了良好的沟通。这是相当不错的，所以我们人类现在是最好的时代，最快乐的时代。而且我投资了很多很多在生物科技上。我认为人类的未来10年到30年是最伟大的生物科技的时代。
+
+**郭文贵先生2019年8月6日直播**
+美国现在卖国的企业集团会彻底苏醒过来，美国将用5G、AI、生物科技和大量的制造产业重回美国的同时，将产生新的能源集团、新的经济模式。美国会真正地重新开始，让世界更伟大，让世界更和平，也让美国再次伟大。
+
+无庸置疑。5G、AI、生物科技、新能源，然后整个新兴市场重新建立，印度、越南、柬埔寨、缅甸、部分非洲国家、拉美国家，会全面形成新市场。这个时候，亚洲四小龙——但愿还能包括香港，能够回来，彻底凉在一边的只有这五个国家，它们会被踢出局。世界将显出新的格局、新的局面。
+
+**郭文贵先生2020年3月16日直播**
+知道我这两天在干啥吗？战友们。我正强烈、全面地参与到各国政府所谓的灭疫，还有现在的找解药。千万别忘了，全世界上三个最牛的投资集团——投资到医药行业的、拥有一定行业规模的，就是我们原来的合作基金。我们这个基金里面的合作者，拥有世界上最先进的医院、最先进的生物研究，我们是投资生物科技最多的基金之一。可以说，我们说第二没人敢说第一的。现在他们每家都来找我，啊，要搞解药、要搞疫苗。我对他们非常清楚地说：如果你们想赚大钱，想搞解药和疫苗的话，你必定死无葬身之地，你啥也捞不着。但如果你想拯救全人类，你可能得到万亿的财富。然后我给他们支了几招。现在他们绝对牛了，这几天马上见成效。
+
+**郭文贵先生2020年3月31日直播**
+我一直认为美国要再次强大，靠的不是川普总统，而是美国的生物科技。早在1988年、1989年，我就投资了生物科技公司，大家都知道的。我当时就投了Gene Fourth，后来投赛雷拉基因公司（Celera Genomics），是个基因排序公司。赛雷拉股票赚了好多钱啊，好多好多钱。还有在硅谷的、专门做DNA排序的晶体公司，我也投了他们，也赚了很多很多钱，赚钱多得都不好意思了。
+
+###  
+
+发布：tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
