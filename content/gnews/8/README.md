@@ -2,27 +2,34 @@
 ---
 
 
-## 新中国联邦儿童对乌克兰战争的看法
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2165956/)
+## 新中国联邦参与国际组织战地救援协调大会
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2166077/)
 
-撰稿：喜爱迪
-![pastedGraphic.png](https://assets.gnews.org/wp-content/uploads/2022/03/1003AF6E-EB0B-4045-9B02-4F059270EF8E.png)
-来自网络截图
+【撰稿】香草山健身部-文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-22.png)
 
-我是新中国联邦的一个 11 岁的孩子，现在我住在澳大利亚。我不得不说，我对发生在乌克兰的入侵战争很难过。因为，乌克兰即将有无数家庭面临分离。而且，我从报纸上看到，有一个事情是乌克兰的一位母亲和她的孩子都在俄罗斯军队对住宅区的轰炸中被炸死。这让我非常心碎，因为每一个生命都很重要。如果这些政客不是那么腐败和贪图金钱和权力，那么许多人的生命就可以得救了。
+波兰当地时间3月14日，梅蒂卡救援站所有义工组织的成员代表集中在新中国联邦的最大救援帐篷中，召开会议讨论整个营地的系统化管理。
+这次会议由联合国、国际红十字会、以及无国界救援者等组织联合发起。当天早上，新中国联邦救援人员已经与联合国救援工作人员完成对接。会议计划，把新中国联邦帐篷这一排作为一列新的难民营地所在。 新中国联邦救援人员表示，根据救援需要，可以搭建更大的帐篷，全力配合国际组织的需要。
+据悉，会议将于明日早晨继续召开，新中国联邦救援人员会参与探讨基地的整合建设。
+这次会议是新中国联邦首次全程参与全球国际组织的合作，而且，为会议提供会议场地。会议结束后，所以与会人员主动起立，当场感谢新中国联邦所提供的国际人道主义帮助。新中国联邦参与国际合作受到全球组织的欢迎与认可。
+这是历史上首次，在国际舞台上，有新中国联邦而没有中国共产党的国际组织会议。这一时刻将被载入史册。
 
-在这场战争中，许多孩子与父母分离。我想他们是很难受的。因为如果我和父母分开，我会非常难过。我不知道为什么：人们怎么能让战争发生？这个世界怎么不做任何事情来阻止它呢？这些邪恶的政客只关心自己的家人，而不关心别人。他们只关心自己的孩子，而不关心其他人的孩子。
+【素材来源】前线报道
+[https://mega.nz/file/tEEC3Y5Z#a-QwUOtyibUsEbdBw3zQ6Md-nmPhCIwKOttiIpRuGsY](https://mega.nz/file/tEEC3Y5Z#a-QwUOtyibUsEbdBw3zQ6Md-nmPhCIwKOttiIpRuGsY)
 
-我想问那些发动战争的邪恶之人：你从杀戮中得到什么？一个简单的答案是：只有邪恶的战争策划者从中得到好处。乌克兰人民和俄罗斯人民都将在这场战争中受到影响。两国的人民都无法在战时保持安静和安全的生活。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-由于战争，和我年纪差不多的孩子被剥夺了上学的权利和机会。此外，他们与家人失散，其中一些人的生命会处于极大危险之中。从来没有一场没有死亡和痛苦的战争。如果一小撮人不是那么无情，这一切本可以避免的。同时，每个有正义的人都应该站出来，为和平而战。
+- 审核/编辑/发稿:qiutian（邱甜）
 
-请传播真相！拯救乌克兰！
 
-*审核：三只松鼠*
-
-*发布：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

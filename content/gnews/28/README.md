@@ -2,107 +2,28 @@
 ---
 
 
-## 克鲁兹参议员：是时候结束暴虐的强制疫苗了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2165459/)
+## 大直播后记：高歌一曲为战友，新中国联邦带来新希望
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2165570/)
 
-Ted Cruz (Texas Senator)
-泰德·克鲁斯（德克萨斯州参议员）
+整理：文晋、Lucy Liu
+编辑：文泓
 
-Well, Sean, let me start with just a word of encouragement
-好吧，肖恩，让我先说一句鼓励的话
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-80.png)图片来源：雅典娜设计组
 
-As you noted, I spent the day with the People’s convoy
-正如你所说，我和人民车队一起度过了一天
 
-I went and joined them this morning
-今天早上我去参加了他们
+这首《铁锁梦》在国内影响太大了啊。昨天晚上我就收到好多信息，发信息的什么样人都有。我发现这个歌真不能乱唱，说一下我的感受。过去你们是咋听我唱歌的呀，为啥呢？最近因为有好多人给我发信息，就说这个铁锁梦（有些人）唱得是真难听啊。那些听过原唱的人说，真受不了，四川调都出来了。我这一听，真是浑身起鸡皮疙瘩，（这首歌）很多人都乱唱。
 
-spoke with them and then joined the convoy, rode in the lead rig
-与他们交谈，然后加入车队，乘坐领头的车
+所以说到艺术，必须得让人舒服或者让人感动。如果让别人听着像那个锵刀的感觉就实在是痛苦，谢谢你们爱听七哥砸锅砸铁的这种金属声音。不过，现在这个声音已经是响彻世界。昨天有好莱坞的团队给我创作了一个新的歌曲，昨天我发给了唐平，她说：这歌不适合你，这是什么歌呀？今天早上又一个好莱坞团队给我创作了新的歌曲，这首歌曲的一句话就把我感动了。其中歌词里有一句话，是英文唱的：我们很美丽；另外一句就是：We Are Family（我们是一家）。它就是这样的一个外国人（创作）的歌曲，（可以）用中文英文唱的。这首歌特别适合男女高兴的时候，有助于欢快气氛。
 
-They’re circling the beltway around Washington, DC
-他们环绕在华盛顿特区的环城公路上
+我评价不错，我问他：“为什么这么写（歌词）呢？”他说：“世界太黑暗，病毒在肆虐，（乌克兰）战争还在持续，然后我看了你们新中国联邦很多很多视频，新中国联邦带给人类的是希望，我希望你成为世界的歌星，给人类带来希望。”我说这个（想法）很好，所以今天我们有文艺带来的帅哥美女还有家庭组，我们要献上高歌，给前线的战友们，给全球的人类和战友们带来希望。
 
-and then the lead rig we broke off from the convoy
-然后我们领头的车从车队中脱离
+资料来源：[2022年3月13日 文贵大直播](https://gettr.com/streaming/pzg47d4994)
 
-We headed straight to the Capitol in Washington, D.C.
-我们直奔华盛顿特区的国会大厦
-
-And I gotta tell you, it was inspirational
-我得告诉你，这很鼓舞人心
-
-Seeing truckers from all over the country
-看到来自全国各地的卡车司机
-
-they started in California, they came all across the country
-他们从加利福尼亚开始，他们横跨全国各地
-
-their numbers grew and grew and grew
-他们的人数越来越多，越来越多
-
-so that you had 1000s of truckers
-所以就有了 1000 多名卡车司机
-
-you had 1000s of RV’s and cars and people supporting them
-有 1000 辆房车和汽车，还有支持他们的人
-
-standing up for freedom standing up against these illegal
-捍卫自由反对这些非法行为
-
-and unconstitutional vaccine mandates
-和违宪的强制疫苗规定
-
-And the thing that was so powerful
-非常的震撼
-
-is as we would drive along lining the streets
-像我们沿着街道行驶时
-
-there would be people with signs, people with American flags waving
-会有人举着牌子，挥舞着美国国旗的人
-
-Sean, just about every overpass that we went under
-肖恩，我们走过的几乎每一个立交桥
-
-There were people lined up there waving flags
-那里有挥舞旗帜的人排队
-
-saying thank you, giving you the thumbs up
-说谢谢，竖起大拇指
-
-And I do think the disaster that is Washington
-我确实认为华盛顿的灾难
-
-that is Biden and Schumer and Pelosi the abuse
-那是拜登、舒默和佩洛西烂用职权
-
-that we’re seeing from Washington
-我们从华盛顿在看到的
-
-the one good thing is it is waking people
-如果它能唤醒人们，那是一件好事
-
-原视频链接: [https://twitter.com/sentedcruz/status/1502117538637004842?s=24](https://twitter.com/sentedcruz/status/1502117538637004842?s=24)
-
-Date:03/11/2022
-原视频标题:Senator Cruz: It’s time to end the tyrannical vaccine mandate!
-克鲁兹参议员：是时候结束暴虐的强制疫苗了！
-原视频日期：2022/03/10
-原视频链接https://twitter.com/sentedcruz/status/1502117538637004842?s=24
-任务编号：KE449（3979）
-视频时间段 : 0:00-1:10
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

@@ -2,22 +2,107 @@
 ---
 
 
-## 秘翻在线: 深圳封锁令对全球供应链造成新打击
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2164960/)
+## 克鲁兹参议员：是时候结束暴虐的强制疫苗了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2165459/)
 
-撰稿：西枫westca
+Ted Cruz (Texas Senator)
+泰德·克鲁斯（德克萨斯州参议员）
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-7-1.jpg)图片来源：网络照片
-知名数字媒体公司Axios 首席经济记者尼尔欧文（Neil Irwin）3月13日发推说， 深圳对于中共病毒的新的封锁令将会对美国的通货膨胀造成巨大的不利影响， 但这个信息还未被广泛报道。
+Well, Sean, let me start with just a word of encouragement
+好吧，肖恩，让我先说一句鼓励的话
 
-深圳市疫情防控指挥部3月13日发布全市社区小区封闭式管理，公交、地铁停运， 除担任防疫任务的工作人员，均居家办公，暂停生产经营活动一周。全员三轮核酸检测。这座1700多万人的大城市，连同邻近的号称“世界加工厂” 的东莞一同进入“慢生活”。
+As you noted, I spent the day with the People’s convoy
+正如你所说，我和人民车队一起度过了一天
 
-深圳市是世界大部分技术制造业的所在地，而世界上大多数工业产品都可以在东莞企业群体的“工业生物链”中找到与其相配套的行业和产品。苹果供应商富士康已关闭两家生产iPhone的工厂。
+I went and joined them this morning
+今天早上我去参加了他们
 
-在中共国，主要从事制造业的城市封锁不仅会影响本国的经济复苏， 还可能对全球供应链会造成新的打击。对于已高达7.9%（2月统计数字）通货膨胀率的美国，多种产品的供应链断裂，对经济的打击会是雪上加霜。
+spoke with them and then joined the convoy, rode in the lead rig
+与他们交谈，然后加入车队，乘坐领头的车
 
-**新闻来源：**[Neil Irwin on Twitter: “We’re currently living in the brief moment between when Finance/Econ Twitter has realized that the new Covid lockdowns in Shenzhen are going to have hugely bad consequences for US inflation, but that has not yet become a widely-reported conventional wisdom.” / Twitter](https://mobile.twitter.com/Neil_Irwin/status/1503202338340757516)[富士康因新冠疫情封锁在深圳停产 – 协议 (protocol.com)](https://www.protocol.com/bulletins/shenzhen-lockdown-manufacturing)
+They’re circling the beltway around Washington, DC
+他们环绕在华盛顿特区的环城公路上
+
+and then the lead rig we broke off from the convoy
+然后我们领头的车从车队中脱离
+
+We headed straight to the Capitol in Washington, D.C.
+我们直奔华盛顿特区的国会大厦
+
+And I gotta tell you, it was inspirational
+我得告诉你，这很鼓舞人心
+
+Seeing truckers from all over the country
+看到来自全国各地的卡车司机
+
+they started in California, they came all across the country
+他们从加利福尼亚开始，他们横跨全国各地
+
+their numbers grew and grew and grew
+他们的人数越来越多，越来越多
+
+so that you had 1000s of truckers
+所以就有了 1000 多名卡车司机
+
+you had 1000s of RV’s and cars and people supporting them
+有 1000 辆房车和汽车，还有支持他们的人
+
+standing up for freedom standing up against these illegal
+捍卫自由反对这些非法行为
+
+and unconstitutional vaccine mandates
+和违宪的强制疫苗规定
+
+And the thing that was so powerful
+非常的震撼
+
+is as we would drive along lining the streets
+像我们沿着街道行驶时
+
+there would be people with signs, people with American flags waving
+会有人举着牌子，挥舞着美国国旗的人
+
+Sean, just about every overpass that we went under
+肖恩，我们走过的几乎每一个立交桥
+
+There were people lined up there waving flags
+那里有挥舞旗帜的人排队
+
+saying thank you, giving you the thumbs up
+说谢谢，竖起大拇指
+
+And I do think the disaster that is Washington
+我确实认为华盛顿的灾难
+
+that is Biden and Schumer and Pelosi the abuse
+那是拜登、舒默和佩洛西烂用职权
+
+that we’re seeing from Washington
+我们从华盛顿在看到的
+
+the one good thing is it is waking people
+如果它能唤醒人们，那是一件好事
+
+原视频链接: [https://twitter.com/sentedcruz/status/1502117538637004842?s=24](https://twitter.com/sentedcruz/status/1502117538637004842?s=24)
+
+Date:03/11/2022
+原视频标题:Senator Cruz: It’s time to end the tyrannical vaccine mandate!
+克鲁兹参议员：是时候结束暴虐的强制疫苗了！
+原视频日期：2022/03/10
+原视频链接https://twitter.com/sentedcruz/status/1502117538637004842?s=24
+任务编号：KE449（3979）
+视频时间段 : 0:00-1:10
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

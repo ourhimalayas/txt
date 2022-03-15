@@ -2,30 +2,22 @@
 ---
 
 
-## 新中国联邦救援队参与难民营地的管理会议
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2166069/)
+## 新中国联邦首次参与国际组织救援会议
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2166198/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+台湾宝岛农场
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7c70e3e8-4dcb-4a97-a227-215e1c8de880-1.jpg)
+3月14日早间， 新中国联邦乌克兰人道救援帐篷中开启基地系统化管理得相关会议，本次会议意义重大，为新中国联邦首次参与国际组织会议，且全部主角为新中国联邦代表得中国人。
 
-整理/编辑：小红帽
+来自全世界各国和组织的救援团队聚集在法治基金捐赠的帐篷里面，召开了第一次 战地救援联合协调大会。 这个画面将被载入史册。这次全世界救援组织的战地联合协调会议，凝聚着全世界爱好和平和反对战争的群体的正义的力量。不分种族，肤色，文化，政治背景的救援群体，为了救人救世而聚集了起来。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-15_10-03-40.png)图片来源：郭文贵先生盖特视频截图
+* * *
 
+新中国联邦发起乌克兰救援行动为达成人道救援目的，成员由同价值观者组成，其中救援行动由“消灭共产党的中国人！”发起，理念为“中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类”。
 
-3月4日上午，波兰梅迪卡口岸所有义工组织的成员代表集中到新中国联邦和法治基金的乌克兰人道救援帐篷中开会讨论整个营地的系统化管理。这是由联合国和国际红十字会、以及无国界救援者等组织发起的救援基地负责人会议。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-15_10-03-29.png)
-新中国联邦的救援队也参与其中。这是首次有华人的面孔参加国际难民救援营地的管理会议。
+We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party.
 
-资料来源：[郭文贵先生2022年3月15日盖特视频](https://www.gettr.com/post/p100qx4a947)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
 
  
 
