@@ -2,70 +2,111 @@
 ---
 
 
-## 玛莎·布莱克本：俄罗斯和中共国是新的邪恶轴心,在削弱美国实力方面有着共同的利益
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2166727/)
+## mRNA“DNA基因编辑”——不再是阴谋论
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2168111/)
 
-参议员玛莎·布莱克本： 俄罗斯和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 是新的邪恶轴心的一部分，在削弱美国实力方面有着共同的利益。 【附视频：玛莎议员接受福克斯采访，谈话内容翻译如下： 俄罗斯是 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的加油站。 他们是中共最大的供应商。 但我们需要知道的是，中共国将在多大程度上推动救助俄罗斯。以及是否在经济上使用银联卡，是否在我们将俄罗斯从SWIFT系统中踢出时试图回填取代。 我有一个决议案，参议院支持将他们完全排除在 SWIFT 系统之外。你必须看看能源的购买情况。然后是 [#习近平](https://gettr.com/hashtag/%23%E4%B9%A0%E8%BF%91%E5%B9%B3) 和普京之间的关系，我认为他们是新邪恶轴心的新锚。伊朗和朝鲜也加入了他们的行列。】
+编译： sherryok （水云间）
 
+![](https://img2.jiemian.com/101/original/20190226/155115378058411300_a700x398.jpg)
 
+新冠世界3月13日刊登了署名为伊尔多·丘多夫（Igor Chudov）的文章，揭露中共病毒疫苗修改人类基因的真相，下面是中文翻译。
 
-> Russia and China are part of the new Axis of Evil with a shared interest in weakening American power. [pic.twitter.com/9KxRQbrJxv](https://t.co/9KxRQbrJxv)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 14, 2022](https://twitter.com/MarshaBlackburn/status/1503417542353764357?ref_src=twsrc%5Etfw)
+本文将揭露 Moderna 和“事实核查人员”的谎言和省略的真相，他们不诚实地声称 mRNA 注射不会改变人类 DNA。我会证明，在这段时间里，Moderna 正在暗中修改人类基因。
 
+我最近写了一系列关于 mRNA COVID“疫苗”的文章，意外地逆转录成人类 DNA 并在人类细胞中创造了奇怪的 DNA 遗传密码，包括 p130 肿瘤基因的密码，以及产生刺突蛋白的永久 DNA 密码.
 
+虽然这与“中共病毒疫苗制造的刺突蛋白无害，而且在2-3 天内消失”的承诺背道而驰，但越来越多的科学实验证实 mRNA 中共病毒“疫苗”具有深远且令人不安的永久性遗传效应。
 
-前国务卿迈克.蓬佩奥： 当你在美国安全的核心任务集——即阻止坏人继续侵略——上失败时会发生这种情况。 【附福克斯一段采访：蓬佩奥就一位美国记者在乌克兰厄平被杀做评论，称拜登政府对俄罗斯的侵略行径所采取的行动太迟、太微弱而导致这样的事情发生】
+从那以后，我获得新的 信息， 关于 Moderna 正在全速推进 改变和有意编辑人类 DNA 的 mRNA 技术的商业化。
 
+这是非常危险的。
 
+令人惊讶的是，这一消息并未在主流媒体上广泛报道。
 
-> This is what happens when you fail at the core mission-set of American security, which is to deter the bad guys from continued aggression. [pic.twitter.com/D928ixg4ZK](https://t.co/D928ixg4ZK)
-> — Mike Pompeo (@mikepompeo) [March 14, 2022](https://twitter.com/mikepompeo/status/1503389718070837258?ref_src=twsrc%5Etfw)
+首先，请阅读我之前的两篇文章：
 
+–最可怕的恐惧：辉瑞 mRNA 转录到你的 DNA 中
 
+–从辉瑞 mRNA 疫苗转录的 DNA 含有突变 gp130 肿瘤基因
 
+Fierce Biotech 中闪着光辉和不加批判的 文章，无意中证实了我文章中强调的一些指控。
 
+具体来说：
 
-> 参议员马可·卢比奥：
-> 切断与俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) 的关系很容易，但如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 入侵台湾，想切断关系就不会那么容易了。
-> 
-> 现在我们太依赖#中共国了
-> 
-> 我们必须开始在美国制造更多东西
-> 【附中字视频】 [https://t.co/Cmn3rHY5FB](https://t.co/Cmn3rHY5FB) [pic.twitter.com/L1bihHGJ7b](https://t.co/L1bihHGJ7b)
-> — 美国政要直译推 (@zhiyitw33) [March 15, 2022](https://twitter.com/zhiyitw33/status/1503577253015289859?ref_src=twsrc%5Etfw)
+– Moderna 过去一直在积极致力于修改人类 DNA —  DNA 修改正在进行中，而不是“已知的不可能”
 
+– 因此 Moderna 知道 mRNA 技术能够改变人类 DNA
 
+– Moderna 非常清楚其 mRNA 纳米颗粒针对的是人类肝脏
 
-众议员迈克·华尔兹： 看看我们在短短18个月里在中东的地位跌了多少。 我们已经从白宫草坪上的历史性和平协议（亚伯拉罕协议）转变为现在的领导人不会接受我们总统的呼吁，而是向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 靠拢。 【转推来自华尔街日报：沙特阿拉伯邀请 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 习近平访问利雅得，因为该国希望加深与北京的联系】
+Moderna 2021年的一份声明， 我们已经知道这是它是骗人的。
 
+现在，经过多年的研究，Moderna 正在将 mRNA 基因编辑商业化， 我们知道MODERNA的上述声明就是谎言。
 
+Moderna 在这笔 元基因Metagenomi 交易中寻求什么？
 
-> Look how far we’ve fallen in just 18 months in the Middle East. 
-> 
-> We’ve gone from historic peace deals on the White House lawn (Abraham Accords) to now leaders won’t take our President’s calls and are moving towards China. [https://t.co/xQ3P8HQNg8](https://t.co/xQ3P8HQNg8)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 14, 2022](https://twitter.com/michaelgwaltz/status/1503511359060910084?ref_src=twsrc%5Etfw)
+这似乎有两件事：
 
-
-
-众议院军事委员会： 如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 协助普京大屠杀，我们必须制裁中共国，拜登必须明确这一点。 如果拜登政府允许中共国的武器屠杀乌克兰平民或允许中共国银行为普京的血钱洗钱，国会将采取行动。 【附卫报新闻：国安顾问沙利文说如果中共国帮助俄罗斯逃避制裁将面临后果】
-
-
-
-> We must sanction China if they assist w/ Putin's massacre and Biden must make that clear.
->  
-> Congress will act if the Biden admin allows Chinese weapons to slaughter Ukrainian civilians or allows Chinese banks to launder Putin’s blood money.[https://t.co/Kwywp9JMKU](https://t.co/Kwywp9JMKU)
-> — Armed Services GOP (@HASCRepublicans) [March 14, 2022](https://twitter.com/HASCRepublicans/status/1503494226998398979?ref_src=twsrc%5Etfw)
+- 一个“允许将大 DNA 片段精确整合到基因组中的系统”。众所周知，Moderna 的 mRNA Covid vax 确实会产生 DNA 片段，但它们可能无法正确整合到我们的 23 条染色体中，因此可能会以不受控制的方式表达自己。
 
 
+对以上更详细的解释是：
 
-白宫： (国家安全顾问) 杰克·沙利文@JakeSullivan46 今天在意大利罗马会见了中共政治局委员、外事工作委员会办公室主任杨洁篪。 他们的会议是继 2021 年 11 月 15 日拜登总统和习近平主席之间的虚拟会议上的后续。沙利文先生提出了一系列美中关系的问题，并实质性地讨论了俄罗斯对乌克兰的战争。 他们还强调了保持美中之间开放沟通渠道的重要性。
+“我们在 ASGCT 上展示的研究描述了我们一流的可编程 CAST 基因编辑系统，如何将大片段 DNA 精确整合到目标基因组中，以及这些系统在体外和体内基因疗法开发中的潜力。”
 
-
-
-> .[@JakeSullivan46](https://twitter.com/JakeSullivan46?ref_src=twsrc%5Etfw) met today with Chinese Communist Party Politburo Member and Director of the Office of the Foreign Affairs Commission Yang Jiechi in Rome, Italy. Their meeting followed up on the November 15, 2021 virtual meeting between President Biden and President Xi.
-> — The White House (@WhiteHouse) [March 14, 2022](https://twitter.com/WhiteHouse/status/1503468239963238400?ref_src=twsrc%5Etfw)
+- 此外，虽然 Moderna 擅长创造集中在肝脏、卵巢、睾丸等中的纳米颗粒，并产生长期存在的刺突蛋白，生成 DNA，但它在决定哪些特定基因编辑可以商业化方面没有核心竞争力：“元基因（Metagenomi） 的从天然样本中发现 DNA，这些 DNA 可以被测序以创建新的基因编辑工具。”
 
 
+我们应该为这些高度机密的发展鼓掌还是害怕？
+
+基因编辑的魅力和危险
+
+首先，基因编辑是一个我们需要理性思考的话题，以一种非常严格地，但开放的心态。例如，根据 23andme 的说法，我应该有一个“糖尿病基因”。这不是我想要拥有的基因，也不想传给我的后代（为时已晚）。我知道“糖尿病基因”并不是完全负面的，它们确实提供了一些生存优势。然而，编辑掉糖尿病基因是我至少可以接受的一种智力可能性。
+
+基因编辑的危险是多方面的。对于像我这样相信进化的人来说： 我们的基因系统已经进化了数十亿年，通过进化、渐进式改进、试验和经历了行星规模的大量错误。
+
+这种十亿年进化的结果绝对不完美的，但会产生一个有效的、有弹性的、复杂的和强大的人类和动物生态系统，在这个生态系统中，不同和多样化的动物和人类生活、成长、战斗、繁殖、抵抗疾病等。就像最近两年时间的表现，我们人类可以利用我们数千年来进化的先天免疫系统，轻松对抗邪恶实验者创造的最糟糕的实验室病毒。
+
+对于我们这些相信上帝的人来说，人类基因是上帝设计的，让我们按照他的形象，被我们用来生活、思考、犯错、坠入爱河和繁衍后代。我们的基因使我们非常多样化。
+
+对于宗教人士来说，遗传密码实际上是上帝为每个人制定的程序。改变这一点（例如，与通过手术修复身体伤害相反）是对上帝对我们最神圣的内部“程序”的编码的直接侮辱。
+
+人类基因编辑本质上是“超人类主义者”，其中人体被改变以超越我们的自然发展路径。
+
+因此，即使我们人们可以考虑任何事情，包括“基因编辑”， 我们也需要以最大的怀疑态度来看待它。
+
+无论我们相信上帝还是进化论，无论如何， 我们目前的人类知识和安全程序根本无法支持像基因编辑这样危险而深远的事情。
+
+会出什么问题？让我给你一个候选名单，我想通过你在评论中的建议来补充：
+
+– 我们对基因编辑基本上没有监督。Moderna 正在 完全保密地进行可能非常危险的“基因编辑”实验。围绕对大多数基本人类代码进行实验的“完全保密”的事实本身就是令人憎恶的，如果不是彻头彻尾的犯罪，也是不道德的。
+
+—我们没有能够接触到普通大众的独立媒体， 能够对“COVID 的圣牛”，即辉瑞和 Moderna 提出任何怀疑或质疑。这些价值数十亿美元的公司抛弃了他们的广告购买者、律师、说客等，并无耻地聘请来自政府的监管机构。
+
+我们的新生儿没有律师或说客。他们所拥有的只是他们的上帝赋予的基因。
+
+–许多基因变化影响深远，而且后果并不明显。 基因不像开/关开关那样运作。它们根据条件表观遗传地表达自己，就像带有 IF 或 WHILE 语句的计算机代码也有条件地执行一样。因此，改变一个基因可能会在几十年或几代后产生完全意想不到的后果，就像软件代码一样。
+
+–改变基因，尤其是涉及种系的基因，不仅会重新编程个体，还会改变传递给后代的遗传密码。这些基因在受孕和胎儿发育过程中以不明显的方式相互作用，影响新生儿 及其后代的发育和终生命运。随着基因代代相传，“次要”基因编辑可能相当于对整个人类进行重新编程。
+
+–改变与人类行为有关的基因可能会使我们的社会系统短路。例如，编辑掉导致人们不循规蹈矩（并且可能很麻烦）的基因，可能会导致后代无法质疑或抵抗他们的主人。
+
+正如过去两年所表明的那样，“科学”在很多方面让我们失望：
+
+– Sars-Cov-2 可能是导致数百万人死亡的实验室产品
+
+– 开发它的科学家试图掩盖自己的角色
+
+– 同样一批人假装是我们的救世主和“卫生当局和专家”
+
+– 通常，科学家不愿意冒着资金或工作的风险来反对危险但有利可图的产品，例如 mRNA COVID“疫苗”或基因编辑项目
+
+因此，信任那些从事营利性项目的“科学家”，同时这些项目涉及巨​​额财务意外之财，而且可能损害后代，简直是疯了。
+
+我改变了主意：请不要碰我的糖尿病基因。不要践踏我的基因。
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

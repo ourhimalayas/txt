@@ -2,24 +2,37 @@
 ---
 
 
-## 【 蓝枫法律 】 国际清算银行的“Money Flower Model”（金钱花模型）告诉你为什么Hpay非常适合大众使用
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2169300/)
+## 有声|新中国联邦一定能够消灭中共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2169360/)
 
-#### **加拿大温哥华扬帆农场 – 蓝枫法律**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-15-at-21.21.33.png)
-上图是国际清算银行2017年的一个模型，叫 “Money Flower Model”（钱花模型），它说明了几个核心的特点：
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月12日，郭文贵先生发表盖特视频表示，他提前预警的中共将在中东地区挑动事端，已经得到了充分验证。中共唯恐世界不乱，妄图搞弱、搞乱、搞死美国之心路人皆知。在两到三周之后，世界将有大事发生。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-3.jpeg)
+在乌克兰救援前线，新中国联邦义工们所展示的形象，是无法用金钱和设计来完成的，而是战友们人生观、世界观、价值观和内心信仰的体现。近日，全世界都在谈论新中国联邦，日本的朋友也高度赞扬新中国联邦给亚洲人争光。
 
-最左边红色这部分，代表这个东西是否是普通大众都可以使用的。像比特币和以太坊，就比较偏离这个方向，它们的使用门槛非常高，使用者要掌握很多关于电脑操作、VPN、冷钱包、热钱包的知识，否则就使用不了，所以它们并不适合大众使用。
+郭先生说，战友们以出色表现向全世界证明了，新中国联邦人是最伟大、最纯洁和以正道主义为信仰的新人类，最终一定能够消灭中共。
 
-绿色的这部分，代表电子化。电子化就是指它是虚拟的，有一个核心，就是数据库，它的信息都存在这个数据库里。
 
-蓝色部分，是央行发布的，比如说央行数字货币。还有一个是点对点，我的理解就是在这个中间，喜币把整个都打通了。
 
-为什么央行也是呢？因为喜币其实是我们新中国联邦、喜联储发行的货币，所以它处于所有点的最核心，包括 HPAY就是支持点对点的电子化交易，不管是买卖喜币，还是转换HDO、以后的喜加币、喜日元，都很方便，把比特币和以太坊那种很复杂的操作简化了，非常适合大众使用。
+文字版原文：[新中国联邦一定能够消灭中共](https://gnews.org/zh-hans/2159949/)
 
-**直播视频：https://gettr.com/streaming/pyel018cd9**
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-**编辑/发文：蓝枫法律栏目**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

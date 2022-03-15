@@ -2,75 +2,26 @@
 ---
 
 
-## 俄乌战争第18天：图像记录了乌克兰的糟糕情况
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2169170/)
+## 受切尔诺贝利事故影响的乌克兰歌手在日举行音乐会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2169308/)
 
-自俄罗斯军队入侵乌克兰以来，导致了一系列人道主义危机的发生。
+撰稿：东京樱花团︱文小白
 
-俄乌战争第18天，美联社的摄影师们在伊尔平和乌克兰各地拍摄到了满目疮痍的场景。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/受切尔诺贝利事故影响的乌克兰歌手在日举行音乐会.png)[*照片来源*](https://www3.nhk.or.jp/news/html/20220315/K10013532931_2203151754_2203151806_01_03.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture3-7.jpg)
+俄罗斯对乌克兰军事入侵战争还在继续，然而在东方的日本东京，来自乌克兰的歌手娜塔莎-古兹在涩谷举行了一场慈善音乐会。
 
-（当俄罗斯的炮弹击中乌克兰首都郊区的伊尔平时，两名乌克兰士兵周日靠着一堵墙做掩护，头低在光秃秃的地面上。）
+音乐会共演唱了11首歌曲，包括一首使用乌克兰乐器“bandura”的歌曲《我的基辅》，其歌词是根据首都基辅的场景创作的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture4-3.png)
+在慈善音乐会上，来自乌克兰的歌手娜塔莎-古兹进行了表演，她在6岁时受到切尔诺贝利核事故的辐射。娜塔莎说，在核事故发生后，她经历了很多困难和悲伤，但在那段时间里，音乐也多次拯救了她，她还展示了她强有力的歌声。
 
-（另一名士兵挖了一个散兵坑。）
+大厅里约140名观众，演出在充满为和平祈祷的美妙音乐声中进行。演出结束后，大厅里想起了热烈的掌声。娜塔莎说：“我希望我的歌声能够帮助日本人民感受到与乌克兰人民的亲近。”音乐会的所有收入都将捐给乌克兰大使馆。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture5-1.png)
+本文来源：[**チェルノブイリ事故で被ばくのウクライナ出身歌手らが演奏会**](https://www3.nhk.or.jp/news/html/20220315/k10013532931000.html?utm_int=news-international_contents_list-items_002)
 
-（在伊尔平的一个公园里，一个女人的尸体躺在倒下的树木和瓦砾中。在地下，许多人躲在没有电的地下室里。）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture6-3.png)
-
-（伊尔平也是俄罗斯军队周日向美国时报记者布伦特-雷诺的汽车开火的地方，他被打死，一名同事受伤。）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture7-1.jpg)
-
-（哈尔科夫被炸毁的建筑物的炮弹和一间被损坏的幼儿园教室。）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture8-1.jpg)
-（被围困的马里乌波尔的瓦砾。）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture9-2.jpg)
-
-（在首都基辅，消防员试图扑灭一个被毁坏的食品储存设施的火焰。）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture10-2.jpg)
-
-（在布罗瓦里的一家医院，医生和护士正在为受伤和失去肢体的人治疗。）
-
-其他图片显示了在乌克兰西部和邻国的避难所里的难民的生活。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture11-1.png)
-
-（一个男孩在做拼图）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture12.jpg)
-
-（一个家庭蜷缩在一堆行李箱后面）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture12-1.png)
-
-（一位母亲在挤满床的房间里给她年幼的孩子读书。）
-
-新闻来源链接：[https://www.kob.com/news/ap-photos-day-18-images-capture-widespread-destruction/6417831/?cat=649](https://www.kob.com/news/ap-photos-day-18-images-capture-widespread-destruction/6417831/?cat=649)
-
-图片来源链接：
-
-1. [https://www.kob.com/apimages/ap93d9c621bc01465e9a0ad3f12c4f84e6.jpg](https://www.kob.com/apimages/ap93d9c621bc01465e9a0ad3f12c4f84e6.jpg)
-2. [https://content.api.news/v3/images/bin/802a2ea356c5985a1fe0817b6c611705](https://content.api.news/v3/images/bin/802a2ea356c5985a1fe0817b6c611705)
-3. [https://tnimage.s3.hicloud.net.tw/photos/2022/AP/20220314/a1d92b0018114285be89729b7719bd60.jpg](https://tnimage.s3.hicloud.net.tw/photos/2022/AP/20220314/a1d92b0018114285be89729b7719bd60.jpg)
-4. [https://storage.googleapis.com/afs-prod/media/f65b0ce392eb4384ab8e4e41ac0931dc/3000.jpeg](https://storage.googleapis.com/afs-prod/media/f65b0ce392eb4384ab8e4e41ac0931dc/3000.jpeg)
-5. [https://tnimage.s3.hicloud.net.tw/photos/2022/AP/20220314/62e09a8f4f1e4e91bbcdfbc217efaea6.jpg](https://tnimage.s3.hicloud.net.tw/photos/2022/AP/20220314/62e09a8f4f1e4e91bbcdfbc217efaea6.jpg)
-6. [https://bloximages.chicago2.vip.townnews.com/valdostadailytimes.com/content/tncms/assets/v3/editorial/c/cb/ccbc3b6f-77ec-5e61-b96f-97170c47e99f/622e7f7614225.image.jpg?resize=750%2C500](https://bloximages.chicago2.vip.townnews.com/valdostadailytimes.com/content/tncms/assets/v3/editorial/c/cb/ccbc3b6f-77ec-5e61-b96f-97170c47e99f/622e7f7614225.image.jpg?resize=750%2C500)
-7. [https://tnimage.s3.hicloud.net.tw/photos/2022/AP/20220314/eb54e29b27aa44d5b2b94ee38b8a81f6.jpg](https://tnimage.s3.hicloud.net.tw/photos/2022/AP/20220314/eb54e29b27aa44d5b2b94ee38b8a81f6.jpg)
-8. [https://sg.news.yahoo.com/ap-photos-day-18-images-232232698.html](https://sg.news.yahoo.com/ap-photos-day-18-images-232232698.html)
-9. [https://tnimage.s3.hicloud.net.tw/photos/2022/AP/20220314/a39ff720da3c4615a58c56320e8fb48c.jpg](https://tnimage.s3.hicloud.net.tw/photos/2022/AP/20220314/a39ff720da3c4615a58c56320e8fb48c.jpg)
-
-
-本文作者：Rebecca (一切心皆不可得！) 
-上传排版：Hong
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
