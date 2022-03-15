@@ -2,33 +2,29 @@
 ---
 
 
-## 樱花FM|俄罗斯受到5532项国际制裁 麦当劳亦宣布退出
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2167001/)
+## 有声｜欧盟成员国将对俄实施第四次制裁措施
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2167110/)
 
-音频：东京樱花团/战友520
+By:**秘翻新闻**
 
-![](https://lh3.googleusercontent.com/tqDWpaaFv8hC8wdrOiftznh7AuZG2FzLvqkchFOigDJg0bwOXUYKMG82UToqx79m6fTmITqxLepq4cD-8OlkalJXhxTVOLSPWU3Y1V0dCYMI61_AiuWdSckDTDM1kJvRbQ)
+**2022-03-15**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-55.png)图片来源 路透社
+[《路透社》3月14日报道，周一，欧盟轮值主席国法国办公室在推特上写道，欧盟成员国已经同意对俄罗斯实施第四次制裁措施，最新的制裁措施一旦在欧盟官方刊物公布，就将正式实施。](https://www.reuters.com/world/europe/eu-member-states-press-ahead-with-new-package-sanctions-against-russia-2022-03-14/)
 
-3月9号中国经济网报道，美国餐饮连锁公司麦当劳宣布，将暂时关闭俄罗斯境内的850家门店，但是会继续支付员工工资，旗下的麦当劳叔叔之家慈善基金也将继续运营。
+[据报道，制裁的细节没有披露，但法国总统表示，俄罗斯的最惠国贸易地位将被取消。这可能会打开欧盟禁止或对俄罗斯商品征收惩罚性关税的大门，让俄罗斯与朝鲜或伊朗平起平坐。](https://www.reuters.com/world/europe/eu-member-states-press-ahead-with-new-package-sanctions-against-russia-2022-03-14/)
 
-麦当劳在俄罗斯和乌克兰的餐厅占其整个系统销售额的2%，约占其收入的9%，占其营业收入的3%。追溯往昔，1990年1月在莫斯科开业的第一家麦当劳被视为苏联解体的标志之一，吸引5万人排队就餐，创下营业额迄今未被打破。麦当劳32年前在莫斯科开设了其在苏联的第一家分店，彼时还在苏联解体前几个月。
+[据外交消息人士称，制裁措施包括禁止进口俄罗斯钢铁，禁止出口奢侈品，包括价值超过5万欧元(5.5万美元)的汽车，以及禁止投资石油公司和能源行业。](https://www.reuters.com/world/europe/eu-member-states-press-ahead-with-new-package-sanctions-against-russia-2022-03-14/)
 
-在麦当劳宣布停止营业几小时后，星巴克表示，在俄罗斯运营130家门店的当地特许合作伙伴也将立即暂停运营。2014年，俄罗斯与克里米亚地区爆发冲突之际，美国对莫斯科实施了制裁，俄罗斯则迅速关闭了一连串的麦当劳餐厅，理由是“违反卫生条例”。当时，媒体和评论员纷纷猜测关店的动机，有些人认为这是对美国和欧洲制裁的回应。
+[周一早些时候，外交人士表示，他们还将把切尔西足球俱乐部老板罗曼·阿布拉莫维奇和其他14人列入欧盟制裁的俄罗斯亿万富翁名单。](https://www.reuters.com/world/europe/eu-member-states-press-ahead-with-new-package-sanctions-against-russia-2022-03-14/)
 
-在俄罗斯拥有1000多家门店的肯德基在其发布年度业绩的同时，也发布了一则声明宣布暂停业务。星巴克公司、可口可乐公司也宣布暂停在俄罗斯的业务，此前百事、可口可乐，联合利华、宝马奔驰、耐克、阿迪达斯等近100个外国品牌已经退出。
+[欧盟委员会主席乌尔苏拉·冯·德莱恩也表示，欧盟正在努力暂停俄罗斯在国际货币基金组织和世界银行等主要多边机构的成员资格。](https://www.reuters.com/world/europe/eu-member-states-press-ahead-with-new-package-sanctions-against-russia-2022-03-14/)
 
-得道多助失道寡助，入侵乌克兰致使俄罗斯现在受到5532项国际制裁，远远超过了伊朗（3616），叙利亚（2608），朝鲜（2077），中共国（未知），数字还在增长，俄罗斯能不能抗得住来自全世界的排斥，恐怕不是俄罗斯统治者说了算。
+秘翻新闻 冰糖葫芦喵编译报道
 
-文字版原文：
+发布 : 恩典
 
-
-| [俄罗斯受到5532项国际制裁 麦当劳亦宣布退出](https://gnews.org/zh-hans/2132162/) |   |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

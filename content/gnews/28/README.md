@@ -2,42 +2,23 @@
 ---
 
 
-## 愿咖啡陪你度过漫长黑夜
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2166205/)
+## 泰国已向15,933名遭受Covid-19疫苗受害者支付4,500万美元的赔偿金
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2166246/)
 
-作者：银河系农场 – 骄子
+2022-03-14
 
+翻译：elli
+![](https://assets.gnews.org/wp-content/uploads/2022/03/cdc-90ejoVTj2-M-unsplash-scaled-1.jpg)图片来源：[Thailand Pays Out $45 Million as Compensation to 15,933 People Following Covid-19 Vaccine Adverse Reactions](https://www.thegatewaypundit.com/2022/03/thailand-pays-45-million-15933-people-following-covid-19-vaccine-adverse-reactions/)
+据当地新闻报道，从2021年5月19日到今年3月8日，泰国国家卫生安全办公室（NHSO）已经向接受COVID-19疫苗后出现不良反应的人支付了约15.09亿泰铢（4565万美元）的经济赔偿。在死亡或永久残疾的情况下，每个家庭将获得40万泰铢（11900美元）。24万泰铢（7178美元）是支付给那些失去肢体或遭受残疾而影响其生计的人。10万泰铢（2990美元）支付给那些患有慢性病的人。” 评：自作孽，不可活。各国政府，主流媒体掩盖covid疫苗真相，酿成今日恶果。再用老百姓的税金赔偿。只是现在还未到covid疫苗灾难全面爆发就已经支出惊人，但愿青蒿琥脂等解药广为流传，更多性命得以保全。
 
+翻译来源：[Thailand Pays Out $45 Million as Compensation to 15,933 People Following Covid-19 Vaccine Adverse Reactions](https://www.thegatewaypundit.com/2022/03/thailand-pays-45-million-15933-people-following-covid-19-vaccine-adverse-reactions/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+编辑：LILY
+发布：肥鯮
 
-
-
-3月14日救援前线消息，自从NFSC咖啡在梅迪卡推出后，给无数疲惫的人带去了安慰。郭先生说每天一杯暖暖的咖啡对于西方人来说非常重要，而在梅迪卡这样艰苦的救援环境下，咖啡更有巨大的作用。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-9.jpg)
-在新中国联邦的豪华大帐篷内，时时都有咖啡飘香。对于难民来说，连续几十个小时的逃离身心俱疲，咖啡给了他们最好的提神醒脑暖心的作用。而对西方的媒体工作者来说，一杯咖啡更是能让他们立即精神焕发。前线多数媒体工作记者都夸赞NFSC咖啡是最好喝的咖啡。现磨咖啡的提供者就是我们这些灭共的中国人。就连联合国的3个代表听到我们有咖啡，都非常兴奋。
-
-愿NFSC咖啡陪伴难民和各媒体工作记者度过这些艰苦岁月。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

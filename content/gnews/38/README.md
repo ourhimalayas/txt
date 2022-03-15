@@ -2,22 +2,37 @@
 ---
 
 
-## 秘翻在线: 深圳封锁令对全球供应链造成新打击
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2164960/)
+## 港股遭遇“黑色星期一”，港币联系汇率再度接近红线
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2165483/)
 
-撰稿：西枫westca
+#### 【雅典娜观察】和您一起洞察世界
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-7-1.jpg)图片来源：网络照片
-知名数字媒体公司Axios 首席经济记者尼尔欧文（Neil Irwin）3月13日发推说， 深圳对于中共病毒的新的封锁令将会对美国的通货膨胀造成巨大的不利影响， 但这个信息还未被广泛报道。
+整理/编辑：文泓
 
-深圳市疫情防控指挥部3月13日发布全市社区小区封闭式管理，公交、地铁停运， 除担任防疫任务的工作人员，均居家办公，暂停生产经营活动一周。全员三轮核酸检测。这座1700多万人的大城市，连同邻近的号称“世界加工厂” 的东莞一同进入“慢生活”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/71EPOXQ25CQ0M4G@HVI.png)图片来源：Chicago Today & 雅典娜设计组
 
-深圳市是世界大部分技术制造业的所在地，而世界上大多数工业产品都可以在东莞企业群体的“工业生物链”中找到与其相配套的行业和产品。苹果供应商富士康已关闭两家生产iPhone的工厂。
 
-在中共国，主要从事制造业的城市封锁不仅会影响本国的经济复苏， 还可能对全球供应链会造成新的打击。对于已高达7.9%（2月统计数字）通货膨胀率的美国，多种产品的供应链断裂，对经济的打击会是雪上加霜。
+3月14日周一，港股遭遇“黑色星期一”，市场主要指数全线下挫，其中恒生指数跌幅超1000点，创下2020年5月以来最大单日跌幅，自2016年以来首次跌破两万点关口。
 
-**新闻来源：**[Neil Irwin on Twitter: “We’re currently living in the brief moment between when Finance/Econ Twitter has realized that the new Covid lockdowns in Shenzhen are going to have hugely bad consequences for US inflation, but that has not yet become a widely-reported conventional wisdom.” / Twitter](https://mobile.twitter.com/Neil_Irwin/status/1503202338340757516)[富士康因新冠疫情封锁在深圳停产 – 协议 (protocol.com)](https://www.protocol.com/bulletins/shenzhen-lockdown-manufacturing)
+截至收盘，恒生指数跌4.97%或者1022.13点，报收19531.66点；恒生科技指数跌11.03%或者468.37点，报收3778.60点；恒生国企指数跌7.15%或者505.05点，报收6,555.55点。
+
+在恒生指数成分股中，美团(HK:3690)和阿里巴巴(HK:9988)分别下跌16.84%和10.09%，仅这两只股票给大盘累计贡献跌幅超300个点，占今日恒生指数总跌幅(1022点)近三分之一。
+
+当日港币美元联系汇率收报7.83，再度接近7.85的红线，港币联系汇率再度遭遇重大考验。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-156.png)图片来源：英为财经
+对于港股近期大幅调整，有媒体分析受近期美国证监会首次披露五家因《外国公司担责法》被暂时列入“预摘牌清单”的公司，引起投资者对于海外中概股担忧，而且海外货币紧缩预期、俄乌冲突不确定性，都使市场忧虑加剧。墙内媒体猜测是近期香港疫情大爆发导致港股大跌。
+
+按照郭先生的分析，以往只要港交所所长李小加动一下金手指，再大的利空袭来港股跌幅都有限。从3月14日港股遭遇“黑色星期一”来看，金手指已完全失灵，香港的投资者“用脚投票”、去意已决。同期港币对美元联系汇率已经逼近7.85红线，这一切绝非偶然。
+
+参考链接：[港股再遇“黑色星期一” 恒指收跌超千点](https://cn.investing.com/news/stock-market-news/article-2088696)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

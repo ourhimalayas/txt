@@ -2,25 +2,27 @@
 ---
 
 
-## 乌克兰11岁男童独自逃难千里 进入斯洛伐克求生
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2166888/)
+## 视频|新中国联邦人乌克兰救援在行动
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2166961/)
 
-俄罗斯入侵乌克兰后造成280万难民出逃，来自札波罗热的11岁男童哈拉夫（Hassan Al-Khalaf）在独自搭车、步行620英里（约998公里）后终于进入斯洛伐克，让斯国边界警察都心疼地哭了出来。
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpJe43xf.jpg)图片来源：路透
+3月14日，新中国联邦和法治基金的乌克兰救援活动仍在继续,该活动目前已成功营救了包括中国留学生在内的100多名中国人和350多名乌克兰、美国以及其他国籍人士，并从孤儿院救出100名儿童，受到了多国媒体的高度赞扬。
 
-据《路透》报导，哈拉夫的爸爸早已过世，妈妈想要留在乌克兰照顾年迈的祖母，但又担心哈拉夫留下来不安全，因此让他独自出门前往斯洛伐克投靠在当地读书的哥哥。
+在近两日中，亦有多家欧洲媒体都对参与救援活动的一线战友进行了采访与报道，其中就包括意大利电视台、波兰最大报纸、阿拉伯电视台、波斯尼亚和黑塞哥维那电视台等多个国家官方媒体。其中，一位意大利的记者曾直接向战友发问称，你们是代表中国人的吗？被采访战友则坚定地如是回答，我们是要灭掉共产党的新中国人，我们只为救人而来。
 
-简评：勇敢乐观的小男孩在战火中独自逃生让人心疼，不知还有多少这样的孩子无法逃离。若未来中共侵略台湾，联军炮火灭共之时，在中国需要救援的是更多的人，那时候有无数像这样的孩子，亲爱的同胞们，为了应对大灾难请先做好自救的准备！
+日前，还有前线战友发回消息称，由法治基金、新中国联邦在梅蒂亚建立起的盘古七星级大帐篷，已经从难民营升级成为一个充满爱心的国际俱乐部了。而由郭先生亲自命名的NFSC咖啡则受到了各国记者的一致好评。
 
-新闻来源：[LTN](https://news.ltn.com.tw/news/world/breakingnews/3860021)
+发稿：Daxia
 
-撰稿/发布：一叶知秋
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
