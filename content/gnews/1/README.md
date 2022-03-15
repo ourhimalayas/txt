@@ -2,23 +2,24 @@
 ---
 
 
-## 白宫对中共支持俄国的公开表态
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2169953/)
+## 第四个欧盟制裁方案通过，俄罗斯仅在钢铁上就损失了 33 亿美元
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2169970/)
 
-**编译:verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/33-8.jpg)
-3月14日当地时间美国国家安全顾问杰克·沙利文在罗马与中共国最高外交官、政治局委员杨洁篪进行了长达7小时的会晤。
+翻译/整理: 萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/03/03154.jpg)图片来自ansa.it
+欧盟理事会通过了对俄罗斯的第四套制裁措施：禁止与一些国有企业的所有交易，预计将限制国防、安全和能源行业的货物和技术出口,以及停止奢侈品出口。
 
-美国国务院已经证实这次会晤美方对中共的指控：
+钢铁进口禁令会给俄罗斯带来的 33 亿美元收入损失，该禁令将导致俄罗斯进一步失去进入欧盟金融市场的机会。
 
-- 沙利文已经直接和非常清楚地提出了美国对中共国在俄入侵乌克兰后支持俄罗斯的关切；
-- 美国已经非常清楚地告诉中共美方不会袖手旁观；
-- 美国对中共国目前与俄罗斯的关系 “深表关切” ，美国官员不愿就中共国是否援助俄罗斯发表评论
+随着对莫斯科的新一揽子制裁措施的通过和俄罗斯“最惠国”条款的暂停，法国财政部长布鲁诺·勒梅尔（ Bruno Le Maire）表示欧盟有权随时增加对俄罗斯产品的关税。
 
+英国宣布对莫斯科实施新的一揽子经济制裁，以应对乌克兰入侵，意在影响去年估计价值9亿英镑，超过10亿欧元的俄罗斯产品的进口。同时英国政府已将多达 350 名俄罗斯人物的名字列入受制裁者的黑名单，冻结在英国发现的资产并禁止旅行。
 
-七哥在视频也说到美国与欧洲很认真的观察中共与俄国的动态。美国此公开的发言，就意味着美国灭共的态度会更加严厉。
+美国正在针对乌克兰对俄罗斯实施新的制裁，还针对白俄罗斯总统亚历山大·卢卡申科及其家人。美国财政部宣布。
 
-**新闻来源：**https://www.zerohedge.com/geopolitical/here-are-all-latest-news-and-developments-ukraine-war-march-14
+原文链接: [https://www.ansa.it/sito/notizie/mondo/2022/03/15/ucraina-adottato-il-quarto-pacchetto-di-sanzioni-ue-solo-sullacciaio-persi-33-miliardi\_e9ab8aba-d2f2-43ba-b791-112006b9f9ac.html](https://www.ansa.it/sito/notizie/mondo/2022/03/15/ucraina-adottato-il-quarto-pacchetto-di-sanzioni-ue-solo-sullacciaio-persi-33-miliardi_e9ab8aba-d2f2-43ba-b791-112006b9f9ac.html)
+
+责任编辑/发布:意大利达芬奇农场   萧亦
 
  
 

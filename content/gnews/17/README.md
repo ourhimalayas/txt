@@ -2,26 +2,35 @@
 ---
 
 
-## 2022.3.15大直播 乌克兰前线战友机智应对不良媒体的恶意污蔑
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2169799/)
+## 盖特跨媒体交叉发布功能上线
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2169810/)
 
-撰稿：大浪小水花
+作者：纽约香草山-Delilah小胖
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据盖特官方账户3月14日报道，跨媒体交叉发布功能于今日上线盖特。该功能将实现用户的原创盖文同步发布在所关联的推特账户中。这意味着盖特用户能够在无需重复登陆其他社交媒体平台的情况下，与跨平台的关注者第一时间分享信息，实现交叉互动。据悉，本功能面向所有现阶段的500万盖特注册用户。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-15-at-9.14.38-PM.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-4.jpeg)
 
+据盖特首席执行官杰森·米勒先生透露：这仅仅是盖特碾压那些限制言论的社交媒体寡头的开始。未来盖特还将实现针对脸书的交叉发布功能。随着盖特短视频功能—GVision的逐步上线，盖特还将实现针对Instagram和Tiktok的交叉发布功能。
 
-郭文贵先生在2022年3月15日大直播中，跟梅迪卡一线的战友连线，了解近日救助站的情况。
+参考链接：
+1. [https://gettr.com/post/pzzsgd5ff9](https://gettr.com/post/pzzsgd5ff9)
+2. [http://Watch Jason Miller live on GETTR](http://Watch%20Jason%20Miller%20live%20on%20GETTR)
 
-前线战友提到，今天早晨先后有几个西方媒体的记者来到救助站采访，相拿这次人道救援和新中国联邦灭共的政治诉求做文章，企图污蔑新中国联邦这次纯粹为救人的人道救援有政治目的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-我们的Nicole战友和文耀战友不卑不亢的回击了对方的谬论，明确指出打倒共产主义是一个人性问题，世界上一切的灾难包括这次俄乌战争，都来自共产党，都来自共产主义。我们要消灭这个邪恶的政权，才会消灭这个世界上一切的邪恶行为。所有热爱自由的人们都应该站在历史正义的一边。新中国联邦的人道救援同样没有任何政治目的，只是想救助那些被迫离开家园的妇女儿童，帮助、关怀和温暖他们，这些都是人道主义援助行为。新中国联邦的目标是为了帮助中国人能像你们（指采访记者）一样享受言论和新闻自由，这不是政治问题，而是一个人道主义问题。
+总编：Zion文恩
+编辑：谐趣园   
+审核：Zion文恩
+校正/发稿：谐趣园
 
-记者还提到新中国联邦的创始人郭文贵先生，Nicole战友用两位波兰制片人对郭先生的评价向记者介绍，郭文贵先生就是中国的瓦文萨，他带领中国人铲除共产主义，让中国人生活在一个没有共产主义的和平社会，让中国人能够享有言论、新闻和思想自由。新中国联邦正在做的就是粉碎中共的铁拳，铲除这个给全世界带来灾难的祸根。
-
-郭文贵先生指出，所有的人道灾难都是政治灾难，这些无良媒体，在强权面前从来不敢传播真相，为弱者发声，他们就是一群精神流氓，支持这些流氓媒体的灾难就是世界上有了共产党，有了普京。郭先生明确表示，前线战友对这种流氓媒体不用客气，要狠狠的批回去。 郭先生重申，前线战友们的一举一动在世界上影响巨大，战友们用实际行动为华人和亚裔人争光，赢得了全世界的认可和尊重。
-
-参考链接：[2022年3月15日文贵大直播](https://gettr.com/streaming/p1051m93814)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
