@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@blue_lotus 3/15/2022 3:53 PM (UTC)`
+
+蓝莲花农场制作。 根据郭先生直播，我们的战友单独将这段精彩爆料做成视频，请战友们让全世界知道中共邪恶！！<br/><br/>您的每一次转发，点赞，分享都是射向中共的子弹！超限战的战场，处处都是前线！！！！<br/><br/>中共不死，世界难安！！ <br/><br/>Take down the Chinese Communist Party ！
+![img](https://media.gettr.com/group49/origin/2022/03/15/15/937a848c-f5d3-8145-4f99-5a92b185ad0e/out.jpg)
+
+---
+
 `@miles 3/15/2022 10:21 PM (UTC)`
 
 The tearful face in this painting is the little girl who escaped from her hometown. She hated war, prayed for peace, and longed to play with her father. But it all turned into a luxury. Little girl, don't give up hope, there is the New China Federation, and there are brave, kind, caring and just people. The Chinese who want to destroy the Chinese Communist Party will help you.<br/>这幅画中泪流满面的脸是那个从家乡逃出来的小女孩。 她讨厌战争，祈求和平，渴望和父亲一起玩耍。 但这一切都变成了奢侈品。 小姑娘，不要放弃希望，有新中国联邦，有勇敢、善良、有爱心、正义的人。消灭中国共产党的中国人会帮助你。
@@ -148,13 +157,6 @@ On 14 March, in the large tent of the New Federal State of China（NFSC）,<br/>
 
 3月15号：尊敬的战友们好．这个故事非常具体，非常感人……
 ![img](https://media.gettr.com/group42/getter/2022/03/15/11/a3f9bcb5-7f60-6b00-1b41-37f38aa82829/out.jpg)
-
----
-
-`@miles 3/15/2022 11:18 AM (UTC)`
-
-【Ukraine Rescue】03/14/22 NFSC Volunteer Nicole tells two Polish independent journalists that Miles Guo is leading the Chinese people to take down the CCP and free the Chinese people from the shackles of communism.<br/><br/>【乌克兰救援】03/14/22 新中国联邦义工妮可告诉两位波兰独立制片人郭文贵先生正在带领中国人民推翻共产党的统治，让中国人民摆脱共产主义。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group21/getter/2022/03/15/11/644bcdb8-bdf8-dec6-137f-8258ec4c200f/out.jpg)
 
 ---
 
