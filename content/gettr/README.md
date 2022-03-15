@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 12:26 PM (UTC)`
+
+【Ukraine Rescue】03/14/2022 Multiple rescue organizations for the first time gathered at the NFSC and ROLF rescue tent discussing how to better manage the rescue camps in Medyka<br/><br/>【乌克兰救援】03/14/2022 多个救援组织第一次聚集在新中国联邦和法治基金的救援帐篷里开会讨论如何把梅迪卡的救援营地管理得更好<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group7/getter/2022/03/15/12/643c4988-b0c6-5167-15d3-88befe72a6fd/out.jpg)
+
+---
+
 `@miles 3/15/2022 12:17 PM (UTC)`
 
 2022年3月15日 文贵大直播：香港股市跌破两万点；擀面杖经济难以为继；中共全球拉仇恨行径；疫苗大灾难如何面对
@@ -154,13 +161,6 @@ Italian Lorenzo told us about what the 2 unimaginable true pictures he witnessed
 
 【Ukraine Rescue】In Medyka, Poland. ●How the Video Was Filmed on the Front Line of Rescue●Nicole and Mingdao, the two rescue members of New Federal State of China are  preparing to shoot a video in cold weather. Many of these people in our rescue team are working around the clock. It is the only rescue tent on the front line with 24-hour service. NFSC rescue team is the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity! <br/>【乌克兰救援】波兰梅迪卡，●救援一线的视频是如何拍出来的●<br/>新中国联邦救援团队的妮可和明道战友正在寒冷的天气下准备拍摄，我们救援团队的许多人正像他们一样夜以继日地工作着，我们的救援帐篷也是前线唯一24小时服务的救援点。新中国联邦救援团队是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类
 ![img](https://media.gettr.com/group47/origin/2022/03/15/01/ac34439d-15be-4251-e687-cd5a6bca0c10/out.jpg)
-
----
-
-`@miles 3/15/2022 1:14 AM (UTC)`
-
-2022.03.14 晚《新中国联邦新闻访谈》俄乌战争最新军事进展。新中国联邦救援最新情况。我们是消灭邪恶的中国共产党的新中国人。 沙利文杨洁篪在罗马会面，中东爆发危机。 美欧最新的数字货币令对喜币意味着什么。 香港与大陆的中共病毒疫情爆发，是否新的中共病毒变种？
-![img](https://media.gettr.com/group8/origin/2022/03/15/01/6b6fcf7e-0388-7aaa-3ba7-dcad429539f2/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

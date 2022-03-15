@@ -2,16 +2,28 @@
 ---
 
 
-## 樱花头条┃三星停止向俄罗斯运送产品
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2168856/)
+## 樱花头条┃日本对俄态度转趋强硬 称北方四岛为”固有领土”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2168909/)
 
 撰稿：东京樱花团/樱花传媒
 
-三星停止向俄罗斯运送智能手机、半导体和家用电器.
+日本对俄态度转趋强硬
 
-[信息来源](https://www.gettr.com/post/pybcf90905)
+岸田文雄改称北方四岛为
 
-*校对：东京樱花团/asket、马拉多纳（素材来源）
+“固有领土”。
+
+在俄国侵略乌克兰后
+
+日方认清与俄罗斯和谈无望
+
+在领土主权上转趋强硬
+
+以配合美欧联合制俄的表态。
+
+[信息来源](https://gettr.com/post/pz129aba49)
+
+*校对：东京樱花团/asket
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  

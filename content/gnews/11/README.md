@@ -2,27 +2,42 @@
 ---
 
 
-## 腾讯恐将面临数亿罚款
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2168627/)
+## 属于前克格勃官员谢尔盖-切梅佐夫的1.4亿英镑超级游艇被西班牙扣押
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2168757/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-9.jpg)（图片来自网络）
-据《凤凰网科技》3月14日报道，据知情人士透露，腾讯因旗下微信支付移动网络违反了央行的某些规定而可能面临数亿元罚款。
+素材：波士顿五月花Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-15-at-7.36.42-PM.png)图片来源：dailymail
+随着西方国家继续收紧对弗拉基米尔-普京核心圈子的绞索，西班牙扣押了其第一艘俄罗斯寡头拥有的超级游艇。
 
-据报道，知情人士表示，中（共）国央行在2021年底结束的对微信支付的例行检查中发现了这些“不合规”行为，其中一些人士表示，罚款金额仍在商议中，可能至少达人民币数亿元，这将远远高于监管机构过去对非银行支付公司违反反洗钱规则所处以的罚款额。
+瓦莱丽号是一艘价值1.4亿英镑的船只，最终属于前克格勃官员谢尔盖-切梅佐夫，已在巴塞罗那被扣押，之前它一直在那里进行维修。
 
-此外，“腾讯裁员”13日也上了微博热搜。网络流传的一份聊天记录显示，腾讯此次裁员6000人，其中PCG裁员4000人，CSIG裁员2000人。被裁员工抽自多个项目组，也有项目组被整个裁掉。不过，据腾讯的知情人士透露，腾讯PCG确实存在裁员状况，但数量被夸大。
+西班牙首相佩德罗-桑切斯(Pedro Sanchez)周一宣布了这一举措，同时承诺 “会有更多人”被收缴资产。
 
-据悉，腾讯股价在14日受到微信支付罚款以及裁员等消息承压，港股收盘跌9.79％,报331.8港币。而恒生指数也于今日暴跌千点失守1.9万点关卡，创2016年以来新低。
+他在接受西班牙国家电视台La Sexta采访时说：“今天我们扣押了一艘属于一个主要寡头的游艇。还会有更多，我们必须对弗拉基米尔-普京、他的政权和他的寡头们采取有力和坚定的行动，他们通过压迫俄罗斯人民在腐败体系中发了财。”
 
-参考链接：
-1.[https://webcache.googleusercontent.com/search?q=cache:BPQgRXc0i1YJ:https://tech.ifeng.com/c/8ENXFzbra6d+&cd=8&hl=zh-TW&ct=clnk&gl=jp](https://webcache.googleusercontent.com/search?q=cache:BPQgRXc0i1YJ:https://tech.ifeng.com/c/8ENXFzbra6d+&amp;cd=8&amp;hl=zh-TW&amp;ct=clnk&amp;gl=jp)
-2.[https://www.163.com/dy/article/H2E0VK0G0519APGA.html](https://www.163.com/dy/article/H2E0VK0G0519APGA.html)
-3.[https://webcache.googleusercontent.com/search?q=cache:WmAYldNB0SYJ:https://tw.stock.yahoo.com/news/%25E5%25A4%25A7%25E9%2599%25B8%25E7%2594%25A2%25E6%25A5%25AD-%25E9%25A8%25B0%25E8%25A8%258A%25E6%25B6%2589%25E6%25B4%2597%25E9%258C%25A2-%25E6%2581%2590%25E6%258C%25A8%25E5%258F%25B2%25E4%25B8%258A%25E6%2596%25B0%25E9%25AB%2598%25E7%25BD%25B0%25E6%25AC%25BE-233952939.html+&cd=9&hl=zh-TW&ct=clnk&gl=jp](https://webcache.googleusercontent.com/search?q=cache:WmAYldNB0SYJ:https://tw.stock.yahoo.com/news/%25E5%25A4%25A7%25E9%2599%25B8%25E7%2594%25A2%25E6%25A5%25AD-%25E9%25A8%25B0%25E8%25A8%258A%25E6%25B6%2589%25E6%25B4%2597%25E9%258C%25A2-%25E6%2581%2590%25E6%258C%25A8%25E5%258F%25B2%25E4%25B8%258A%25E6%2596%25B0%25E9%25AB%2598%25E7%25BD%25B0%25E6%25AC%25BE-233952939.html+&amp;cd=9&amp;hl=zh-TW&amp;ct=clnk&amp;gl=jp)
+他没有说出这艘船的名字，但消息灵通人士指出，这艘船是切梅佐夫通过其继女阿纳斯塔西娅-伊格纳托娃拥有的Valerie。
 
-素材采编：幽蘭自得
-编辑：青城道姑
-校对发布：Linda
+切梅佐夫是一名前高级将领，在两人一起驻扎在苏联东德为克格勃工作时结识了普京。
+
+2001年普京成为俄罗斯总统后，他凭借与普京的个人关系发了财。
+
+2007年，普京任命切梅佐夫为国防和技术企业集团Rostec的负责人，该集团价值几百亿美元。
+
+属于罗曼-阿布拉莫维奇的460英尺超级游艇Solaris号，直到几天前还在与瓦莱丽号在同一个巴塞罗那造船厂进行维修。
+
+但是，这艘价值4.2亿英镑的船在制裁到来之前，匆匆驶向周末停靠的 “安全港 “黑山港。
+
+本月早些时候，西班牙交通部官员要求巴利阿里群岛的码头通知他们，是否有属于俄罗斯国民的87英尺以上的船只停靠在那里。
+
+当时的报道称，如果随后作为欧盟命令的一揽子制裁措施的一部分进行扣押，那么受影响的超级游艇之一将是阿纳斯塔西娅女士。
+
+根据2021年潘多拉文件信息泄露中发表的一篇文章，瓦莱丽注册在切梅佐夫的继女阿纳斯塔西娅-伊格纳托娃名下。
+
+原文链接：[£140million superyacht belonging to ex-KGB officer Sergey Chemezov is seized by Spain as the West clamps down on Putin’s oligarchs](https://www.dailymail.co.uk/news/article-10614183/Ukraine-war-Spain-seizes-oligarch-superyacht.html)
+
+* * *
+
+*编辑&发布：Vicky*
 
  
 
