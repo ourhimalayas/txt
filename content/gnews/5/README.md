@@ -2,49 +2,33 @@
 ---
 
 
-## 北京冬奥会是人类最大耻辱,奥林匹克组织不会再有未来
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2166795/)
+## 樱花FM|俄罗斯受到5532项国际制裁 麦当劳亦宣布退出
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2167001/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8831.61%EF%BC%89%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A%E6%98%AF%E4%BA%BA%E7%B1%BB%E6%9C%80%E5%A4%A7%E8%80%BB%E8%BE%B1%2C%E5%A5%A5%E6%9E%97%E5%8C%B9%E5%85%8B%E7%BB%84%E7%BB%87%E4%B8%8D%E4%BC%9A%E5%86%8D%E6%9C%89%E6%9C%AA%E6%9D%A5%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:1)
+音频：东京樱花团/战友520
 
-郭文贵先生：你看看现在这个加拿大，你看看法国，你看看即将被砍头的乌克兰和俄国。世界元首都这么说话了：这是我的女人，我要拿回来！
+![](https://lh3.googleusercontent.com/tqDWpaaFv8hC8wdrOiftznh7AuZG2FzLvqkchFOigDJg0bwOXUYKMG82UToqx79m6fTmITqxLepq4cD-8OlkalJXhxTVOLSPWU3Y1V0dCYMI61_AiuWdSckDTDM1kJvRbQ)
 
-就共产党这个毒，你就像认识路大脑袋一样，你跟他在一起你老是摸嗓子，因为他老吐痰，“咯儿～咯儿～”，你老摸嗓子；跟蛇妖闫你就老晃荡，你就老觉得好像地震似的，喔噻，她晃啊，晃得你晕啊，她坐在这儿她手老这么晃，她就整得受不了，就老在那得瑟。你看到鸡腿潘那个小样子的时候，你就发现原来你那么伟大、那么巨大，是吧？
+3月9号中国经济网报道，美国餐饮连锁公司麦当劳宣布，将暂时关闭俄罗斯境内的850家门店，但是会继续支付员工工资，旗下的麦当劳叔叔之家慈善基金也将继续运营。
 
-你看到高冰尘的时候，你发现：喔噻我自己太帅了！你说这，别说七哥了，七哥只能排老三，是吧？你看瑞沃路森，“咔～”小头（型）、Danny这样子，你叫高冰尘得啥感觉呀？他老婆能不给他戴绿帽子吗？她得找一个亚洲的性能力强的给他戴绿帽子，那能不戴绿帽子吗？看着你这俩人不跟你跑了吗？它是个本能。
+麦当劳在俄罗斯和乌克兰的餐厅占其整个系统销售额的2%，约占其收入的9%，占其营业收入的3%。追溯往昔，1990年1月在莫斯科开业的第一家麦当劳被视为苏联解体的标志之一，吸引5万人排队就餐，创下营业额迄今未被打破。麦当劳32年前在莫斯科开设了其在苏联的第一家分店，彼时还在苏联解体前几个月。
 
-所以说兄弟姐妹们你看到今天，我们所有兄弟姐妹们、爆料革命战友你看到，你想想北京冬奥会带给我们的启示，共产党几乎是霸占了全世界、污染了全世界所有的国际组织，而且北京冬奥会就是对世界人类上最大的耻辱！我不相信国际奥林匹克组织还有未来了。
+在麦当劳宣布停止营业几小时后，星巴克表示，在俄罗斯运营130家门店的当地特许合作伙伴也将立即暂停运营。2014年，俄罗斯与克里米亚地区爆发冲突之际，美国对莫斯科实施了制裁，俄罗斯则迅速关闭了一连串的麦当劳餐厅，理由是“违反卫生条例”。当时，媒体和评论员纷纷猜测关店的动机，有些人认为这是对美国和欧洲制裁的回应。
 
-你知道这冬奥会还没结束呢，一旦开打，它打台湾，国内再暴乱，世界经济剧下，所有的奥运会运动员回了国都会被清算，没有一个运动员回来会说是英雄的，一个都不会，你记住我的话，一个都不会的。他们去就是一生中最大的错误。
+在俄罗斯拥有1000多家门店的肯德基在其发布年度业绩的同时，也发布了一则声明宣布暂停业务。星巴克公司、可口可乐公司也宣布暂停在俄罗斯的业务，此前百事、可口可乐，联合利华、宝马奔驰、耐克、阿迪达斯等近100个外国品牌已经退出。
 
-然后回来以后他一定是吐槽，任何人敢夸这个冬奥会，你就是感觉再好你也不敢夸，你夸你绝对死了，那只有骂，骂就往死的骂。
+得道多助失道寡助，入侵乌克兰致使俄罗斯现在受到5532项国际制裁，远远超过了伊朗（3616），叙利亚（2608），朝鲜（2077），中共国（未知），数字还在增长，俄罗斯能不能抗得住来自全世界的排斥，恐怕不是俄罗斯统治者说了算。
 
-编辑整理：Jacques；
+文字版原文：
 
-字幕档制作：兵嫂；
 
-视频制作及上传：Cindy；
+| [俄罗斯受到5532项国际制裁 麦当劳亦宣布退出](https://gnews.org/zh-hans/2132162/) |   |
+| --- | --- |
 
-G-News发布：海贼王M.D.LUFFY；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

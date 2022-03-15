@@ -2,23 +2,32 @@
 ---
 
 
-## 泰国已向15,933名遭受Covid-19疫苗受害者支付4,500万美元的赔偿金
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2166246/)
+## 新冠疫苗是在救人还是在杀人
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2166259/)
 
-2022-03-14
+##### 作者：加拿大温哥华扬帆农场 – 视频组
 
-翻译：elli
-![](https://assets.gnews.org/wp-content/uploads/2022/03/cdc-90ejoVTj2-M-unsplash-scaled-1.jpg)图片来源：[Thailand Pays Out $45 Million as Compensation to 15,933 People Following Covid-19 Vaccine Adverse Reactions](https://www.thegatewaypundit.com/2022/03/thailand-pays-45-million-15933-people-following-covid-19-vaccine-adverse-reactions/)
-据当地新闻报道，从2021年5月19日到今年3月8日，泰国国家卫生安全办公室（NHSO）已经向接受COVID-19疫苗后出现不良反应的人支付了约15.09亿泰铢（4565万美元）的经济赔偿。在死亡或永久残疾的情况下，每个家庭将获得40万泰铢（11900美元）。24万泰铢（7178美元）是支付给那些失去肢体或遭受残疾而影响其生计的人。10万泰铢（2990美元）支付给那些患有慢性病的人。” 评：自作孽，不可活。各国政府，主流媒体掩盖covid疫苗真相，酿成今日恶果。再用老百姓的税金赔偿。只是现在还未到covid疫苗灾难全面爆发就已经支出惊人，但愿青蒿琥脂等解药广为流传，更多性命得以保全。
+现在我们都知道，在医学文献中发表辉瑞公司的试验中，注射疫苗的人比注射安慰剂的人死得更多。换句话说，疫苗比安慰剂杀死的人更多。现在，对于疫苗来说，它不应该是这样的，对吗？疫苗应该是为了拯救生命。但事实上，在临床试验中，得到新冠病毒(COVID)药物的人比没有得到药物的人死得更多。原因是，临床试验表明，每22,000名获得新冠病毒药物的人中，可以拯救1条生命。然而，更多的人死亡，得到药物的人死亡是因为死于不同的原因，他们死于疫苗。但是看一下，每个人都专注于我们能从新冠病毒中拯救多少生命，而没有关注有多少死亡是由疫苗造成的。所以我计算了一下，结果证明每22000人注射疫苗的人中我们可以拯救一个人，那么疫苗在一年内拯救了10,000条生命。 10,000条生命! 现在每年有3,000,000人死亡，你仅仅拯救了10,000条生命。祝贺！那是个舍入误差。我们把这个国家搞得天翻地覆，只为拯救10,000条生命。但实际上我们并没有拯救10,000条生命。因为当你看一下疫苗不良事件报告系统（VAERS）的数字，再看看那12种不同的方式，甚至没有使用疫苗不良事件报告系统，你会得出至少有150,000人被疫苗杀死的结论，这没有其他解释。因此，你杀死了150,000人只为可能挽救10,000人的生命，而且是在实际变异体与疫苗相匹配的情况下，这并不符合常识。因此，换句话讲，对于孩子来说，风险收益甚至更差，就是”我们杀死117个孩子只为拯救一条生命”。因为每个人都聚焦于从新冠病毒中可以拯救多少生命，而并不关注有多少人真正死于这种疫苗。这一切都被掩盖了，因为不允许医生们谈论这个问题，一旦他们谈论这个问题，就会失去执照，或被解雇。
 
-翻译来源：[Thailand Pays Out $45 Million as Compensation to 15,933 People Following Covid-19 Vaccine Adverse Reactions](https://www.thegatewaypundit.com/2022/03/thailand-pays-45-million-15933-people-following-covid-19-vaccine-adverse-reactions/)
+素材 – 蓝色天空
+听写 – 文倩
+翻译 – Aima
+校对 – 啊啊小苹果
+字幕 – 杰尼龟
+审核 – 文倩
+发布/上传 – 熙攘
 
-编辑：LILY
-发布：肥鯮
+* * *
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
