@@ -2,35 +2,73 @@
 ---
 
 
-## 中东事件是中俄联手策划的围魏救赵
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2167339/)
+## 【信仰之声】鉴查隐秘事的父
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2167503/)
 
-作者：日本方舟农场Andy5 纽约香草山农场 文鹰
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月13日的大直播中，郭文贵先生透露，目前中共和俄罗斯挑动伊朗等国对美国的攻击，搅乱中东局势，就是一场围魏救赵的行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-上午2.38.42.png)
-郭先生指出，现在中共、俄罗斯、北朝鲜、伊朗、沙特等组成的五大邪恶国家联盟，为了应对美国等西方文明国家的制裁，利用对中东地区的绝对控制，挑动胡塞武装轰炸沙特炼油厂、伊朗发射导弹攻击美军基地，在霍尔木斯海峡制造战争，打垮世界能源供给，用能源价格的攀升逼迫西方国家撤销对俄罗斯的制裁。同时，也让西方国家在中共趁乱攻台之际，忌惮能源危机而不敢做出任何制裁。
+作者：纽约香草山福音部 — 山城小哥
 
-郭先生强调，目前在中东发生的事件只是刚刚开始，更重大的事情将在近期发生。最终，中共和俄罗斯等邪恶轴心国，会遭到全世界的谴责和制裁，而中共高官们必将面临齐奥塞斯库的结局。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
 
-参考链接：
-1.[https://www.gettr.com/streaming/pzrn4eb349](http://1.	https://www.gettr.com/streaming/pzrn4eb349)
-2.[https://gettr.com/post/pz3zdza229](http://2.	https://gettr.com/post/pz3zdza229)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-编辑：宁文静
-总编：文真
-审核：宁文静、文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+
+
+
+
+
+
+
+
+我们中国人传统里有“积阴德”这个说法。所谓“积阴德”，就是做一些他人不知道的善事。为什么我们的祖先会有“积阴德”的这个说法呢？仔细一想，其实是因为他们在意识或者在潜意识里或多或少地意识到了有神存在，相信有神存在，并且相信神了解人所做的隐秘的善事，并且最终奖赏他们。我们的祖先在古代虽然没有《圣经》，但依然能意识到神的存在，并且知道神是一位会奖励“阴德”的神。这正如保罗弟兄所说:“自从创造天地以来，上帝永恒的大能和神性是明明可知的，虽然肉眼看不见，但透过受造之物就可以领悟，因而人类毫无借口推说不知。(罗马书 1:20 )”
+
+在马太福音里，耶稣基督说到：“你们要小心，行善的时候不可张扬，故意叫人看见，否则就不能得你们天父的赏赐了。(马太福音 6:1 )”后来耶稣基督又说:“你们周济穷人的时候，右手所做的别叫左手知道，要不声不响地去做。这样，鉴察隐秘事的天父必赏赐你们。你们祷告的时候，要进入内室，关上门，向你们肉眼看不见的父祈祷，鉴察隐秘事的父必赏赐你们。你们禁食的时候，不叫人们看出你在禁食，只让你肉眼看不见的父知道，鉴察隐秘事的父必赏赐你。”(马太福音 6:3-4,6,18 )
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1604.png)
+
+做善事如果故意张扬，让人知道，人就只能得到从人而来的赞扬和荣耀，而得不到从神来的奖赏。因为所做的善事不是出于对神的信心，从人而来的赞扬和荣耀只归给了人，没有归给神，没有荣耀神，而没有荣耀神，也就没有了永恒的价值。
+
+神希望我们所做的善事是发自对神的信心，是为了荣耀神而做，把荣耀归给神。隐秘事，显明真信心。从而我们可以在神面前“因信称义”，我们“因信称义”了，就可以活在神面前。我们的父神是一位鉴查隐秘事的神，我们的神是希望我们“因信称义”的神，我们的神是希望我们活在祂面前的神。
+
+后来保罗弟兄更是说到：“无论做什么事，都要发自内心，像是为主做的，而不是为人做的，(歌罗西书 3:23 )”我们所做的一切，都是要讨那位永活的，肉眼看不见的神的喜悦，而不再是讨人的喜悦，甚至不能是讨自己的喜悦。
+
+其实荣耀的父神不仅鉴查我们的隐秘事，祂还塑造和洞察我们一切的心思意念。保罗弟兄说：“到主耶稣再来的时候，祂会揭开暗中的隐情，使人心里的动机显露。到时候上帝会给各人应得的称赞。(哥林多前书 4:5 )”
+
+我们实在应该庆幸我们有这样一位圣洁公义，鉴查万事的父神，因为祂的审判全然真实公义。正如《诗篇》里说的:“
+
+义人必因耶和华而欢欣，
+
+并且投靠祂，
+
+心地正直的人必赞美祂。
+
+(诗篇 64:10 )”
+
+2022年3月15日
+
+（本文仅代表作者个人观点）
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c.jpg)
+
+*编辑 /校对*：德州牛仔
+
+*发稿：Yuki*jiang
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

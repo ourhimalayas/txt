@@ -2,70 +2,42 @@
 ---
 
 
-## 玛莎·布莱克本：俄罗斯和中共国是新的邪恶轴心,在削弱美国实力方面有着共同的利益
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2166727/)
+## 北京冬奥结果是经济崩溃中共世界形象崩溃一切重新改变
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2167020/)
 
-参议员玛莎·布莱克本： 俄罗斯和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 是新的邪恶轴心的一部分，在削弱美国实力方面有着共同的利益。 【附视频：玛莎议员接受福克斯采访，谈话内容翻译如下： 俄罗斯是 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的加油站。 他们是中共最大的供应商。 但我们需要知道的是，中共国将在多大程度上推动救助俄罗斯。以及是否在经济上使用银联卡，是否在我们将俄罗斯从SWIFT系统中踢出时试图回填取代。 我有一个决议案，参议院支持将他们完全排除在 SWIFT 系统之外。你必须看看能源的购买情况。然后是 [#习近平](https://gettr.com/hashtag/%23%E4%B9%A0%E8%BF%91%E5%B9%B3) 和普京之间的关系，我认为他们是新邪恶轴心的新锚。伊朗和朝鲜也加入了他们的行列。】
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8836.61%EF%BC%89%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E7%BB%93%E6%9E%9C%E6%98%AF%E7%BB%8F%E6%B5%8E%E5%B4%A9%E6%BA%83%E4%B8%AD%E5%85%B1%E4%B8%96%E7%95%8C%E5%BD%A2%E8%B1%A1%E5%B4%A9%E6%BA%83%E4%B8%80%E5%88%87%E9%87%8D%E6%96%B0%E6%94%B9%E5%8F%98%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:a)
 
+**郭文贵先生：**所以这次的冬奥会最后的结果是什么呀？———经济崩溃、世界形象崩溃、共产党的所有国际关系全崩溃，最后把14亿中国人和海外华人绑上了共产党这个战车，绑上了共产党的战车，共产党又绑到了俄罗斯的普京的战车，然后普京和中国共产党和中国人民成为了人类上最丑陋的一群。
 
+然后大量地在全世界拉仇恨———排华。你看到谷爱凌，你看看“锁链女”，你看看在北京招收的这些运动员，人家对华人咋样？任何参加过北京冬奥会的见中国人回去会骂你，我可以告诉你。世界经济受到了重大的重创，失去工作，就美国人说：“CCP Lie！American Die!”是共产党疯狂，让你失去工作，让你失去一切！他怎么不恨中国人呢？
 
-> Russia and China are part of the new Axis of Evil with a shared interest in weakening American power. [pic.twitter.com/9KxRQbrJxv](https://t.co/9KxRQbrJxv)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 14, 2022](https://twitter.com/MarshaBlackburn/status/1503417542353764357?ref_src=twsrc%5Etfw)
+再看看海外的欺民贼、伪类，你看那“火鸡龚”，还有看那高冰尘，你再看“路大脑袋”、“蛇妖闫”，这一切就像头两天有个记者说：“这个“蛇妖闫”她连个屁都不是，她把我们给骗了，我们准备起诉她。”你们注意到很多媒体上关于她的都给删掉了，在西方是很少有的。同时你能看到这些欺民贼在海外这些“要饭党”给中国人带来的形象，华盛顿有一句话，你见这些年在华盛顿搞游说的中国人有几个有正经职业的？你们见过吗？你给我指出来掰手指头数一数，数一数有几个？我都感到丢人！所以说这个世界一切都将重新改变，一切都重新改变！
 
+编辑整理：Jacques；
 
+字幕档制作：兵嫂；
 
-前国务卿迈克.蓬佩奥： 当你在美国安全的核心任务集——即阻止坏人继续侵略——上失败时会发生这种情况。 【附福克斯一段采访：蓬佩奥就一位美国记者在乌克兰厄平被杀做评论，称拜登政府对俄罗斯的侵略行径所采取的行动太迟、太微弱而导致这样的事情发生】
+视频制作及上传：Cindy；
 
+G-News发布：海贼王M.D.LUFFY；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-> This is what happens when you fail at the core mission-set of American security, which is to deter the bad guys from continued aggression. [pic.twitter.com/D928ixg4ZK](https://t.co/D928ixg4ZK)
-> — Mike Pompeo (@mikepompeo) [March 14, 2022](https://twitter.com/mikepompeo/status/1503389718070837258?ref_src=twsrc%5Etfw)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-> 参议员马可·卢比奥：
-> 切断与俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) 的关系很容易，但如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 入侵台湾，想切断关系就不会那么容易了。
-> 
-> 现在我们太依赖#中共国了
-> 
-> 我们必须开始在美国制造更多东西
-> 【附中字视频】 [https://t.co/Cmn3rHY5FB](https://t.co/Cmn3rHY5FB) [pic.twitter.com/L1bihHGJ7b](https://t.co/L1bihHGJ7b)
-> — 美国政要直译推 (@zhiyitw33) [March 15, 2022](https://twitter.com/zhiyitw33/status/1503577253015289859?ref_src=twsrc%5Etfw)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-
-众议员迈克·华尔兹： 看看我们在短短18个月里在中东的地位跌了多少。 我们已经从白宫草坪上的历史性和平协议（亚伯拉罕协议）转变为现在的领导人不会接受我们总统的呼吁，而是向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 靠拢。 【转推来自华尔街日报：沙特阿拉伯邀请 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 习近平访问利雅得，因为该国希望加深与北京的联系】
-
-
-
-> Look how far we’ve fallen in just 18 months in the Middle East. 
-> 
-> We’ve gone from historic peace deals on the White House lawn (Abraham Accords) to now leaders won’t take our President’s calls and are moving towards China. [https://t.co/xQ3P8HQNg8](https://t.co/xQ3P8HQNg8)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 14, 2022](https://twitter.com/michaelgwaltz/status/1503511359060910084?ref_src=twsrc%5Etfw)
-
-
-
-众议院军事委员会： 如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 协助普京大屠杀，我们必须制裁中共国，拜登必须明确这一点。 如果拜登政府允许中共国的武器屠杀乌克兰平民或允许中共国银行为普京的血钱洗钱，国会将采取行动。 【附卫报新闻：国安顾问沙利文说如果中共国帮助俄罗斯逃避制裁将面临后果】
-
-
-
-> We must sanction China if they assist w/ Putin's massacre and Biden must make that clear.
->  
-> Congress will act if the Biden admin allows Chinese weapons to slaughter Ukrainian civilians or allows Chinese banks to launder Putin’s blood money.[https://t.co/Kwywp9JMKU](https://t.co/Kwywp9JMKU)
-> — Armed Services GOP (@HASCRepublicans) [March 14, 2022](https://twitter.com/HASCRepublicans/status/1503494226998398979?ref_src=twsrc%5Etfw)
-
-
-
-白宫： (国家安全顾问) 杰克·沙利文@JakeSullivan46 今天在意大利罗马会见了中共政治局委员、外事工作委员会办公室主任杨洁篪。 他们的会议是继 2021 年 11 月 15 日拜登总统和习近平主席之间的虚拟会议上的后续。沙利文先生提出了一系列美中关系的问题，并实质性地讨论了俄罗斯对乌克兰的战争。 他们还强调了保持美中之间开放沟通渠道的重要性。
-
-
-
-> .[@JakeSullivan46](https://twitter.com/JakeSullivan46?ref_src=twsrc%5Etfw) met today with Chinese Communist Party Politburo Member and Director of the Office of the Foreign Affairs Commission Yang Jiechi in Rome, Italy. Their meeting followed up on the November 15, 2021 virtual meeting between President Biden and President Xi.
-> — The White House (@WhiteHouse) [March 14, 2022](https://twitter.com/WhiteHouse/status/1503468239963238400?ref_src=twsrc%5Etfw)
-
-
+G-TV：日本银河系农场。
 
  
 

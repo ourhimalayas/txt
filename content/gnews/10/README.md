@@ -2,35 +2,28 @@
 ---
 
 
-## 与独裁为伍必成陪葬 新中国联邦独善其身
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2167340/)
+## 让枪口对向俄军！基辅修车厂变军工厂
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2167523/)
 
-作者：纽约香草山农场 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月13日的大直播中，郭文贵先生指出，无论是手握大权的官员，还是财可敌国的富豪，只要与独裁者为伍，最终都不会有好下场。乱世之中，只有以灭共为己任的新中国联邦人，能够独善其身。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-上午2.38.49.png)
-郭先生说，齐奥赛思库从权力巅峰到被公审、执行死刑，仅用了六天。遗憾的是，齐氏夫妇藏在国外的资产，一直被其子孙享用至今。卡扎菲、萨达姆被全球追捕声名狼藉，家人或战死或囚禁，财富也被西方国家没收。而这次，美欧联手对俄罗斯的制裁，只用了17个小时就做出决定。俄两大超级富豪，即使拥有以色列和英国的护照，依然未能逃脱个人资产被冻结的制裁。对中共权贵家族的制裁，全球查封冻结财产，遣返家人，会在极短时间内发生。
+乌克兰基辅一家汽车维修厂摇身成为临时军工厂，把夺自俄罗斯军人的武器改造之后，交给乌克兰部队保家卫国。
 
-郭先生透露，与上述情况相反，新中国联邦因揭露中共的罪恶，致力推翻中共独裁体制，创建一个民主、自由、法治的新中国，而成为财富、资产不受制裁牵连的世界新力量。乱世浊流中，唯有新中国联邦人，能够独善其身。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3567601-PH.jpg)图片来源：达志影像
 
-参考链接：
-1.[https://gettr.com/post/pzrn4eb349](https://gettr.com/post/pzrn4eb349)
-2.[https://gettr.com/post/pzsoho2805](https://gettr.com/post/pzsoho2805)
+修车厂老板费成柯（Oleksandr Fedchenko）说，俄国上月出兵后，他持续和员工脑力激扬，看能不能想出好点子协助军力悬殊的国军，结果竟然发现我们有员工懂得制造武」。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+费成柯说：我们会重新打造这些武器，让枪口指向敌军，而非我方。
 
-编辑：文真
-总编：文真
-审核：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+简评：基辅修车厂变军工厂，虽然乌克兰实力不如俄罗斯，但乌克兰人民的抗敌之心是不可摧毁的！得人心者得天下，俄罗斯兴不义之师入侵乌克兰，哪怕天时地利有优势，也攻不下乌克兰人民的人和，更何况还有全球陆续的援助！普京野心猖狂，这算盘打错了！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1085279)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
