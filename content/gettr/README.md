@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 6:37 AM (UTC)`
+
+【Ukraine Rescue】Nicole interviewed the Pianist Davide Martello in front of the big tent of the NFSC and ROLF, and explained to him the task of the NFSC is taking down the CCP, because it is the root cause of all the disasters around the world. Davide highly praised the rescue efforts of the NFSC.<br/><br/>【乌克兰救援】妮可在新中国联邦和法治基金的大帐篷前采访了钢琴家Davide Martello，向他解释了新中国联邦的任务就是打倒中共，因为它是全世界所有灾难的根源。 Davide高度赞扬了新中国联邦的救援工作。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group39/getter/2022/03/15/06/9d2b13c0-b27e-9fc5-109c-4b4cccfd1386/out.jpg)
+
+---
+
 `@miles 3/15/2022 3:50 AM (UTC)`
 
 3月14号：今天一直很兴奋太多太多的好消息了，但是看了这位战友的对．7哥的过度的鼓励，突然有点儿晕了……俺去睡觉觉去了。【极高的智商 + 超强的情报来源 + 超强的情报分析整合能力 + 对事物本质的认识和对世界运转深刻的阅历。这就是我认识的七哥，独一无二，世界就这么一个七哥。🙏🏻】
@@ -152,16 +159,6 @@ Mr. Miles Guo accurately predicted the ultimate end of the mandatory vaccines an
 
 3/14/2022 Miles Guo’s GETTR: My exposure of the CCP’s furtive actions in the Middle East has put the US and Europe on the alert; the CCP will pay a dear price for supporting Russia; the economy of Communist China is on the verge of collapse; the upcoming 20th Party Congress will accelerate the taking down of the CCP from within; the New Federal State of China will be the promoter of “One person, One vote” policy in China post the demise of CCP.<br/><br/>3/14/2022 文贵盖特：文贵爆料的中共在中东蠢蠢欲动引起了欧美的警觉；中共与俄罗斯狼狈为奸一定会付出代价；中共国的经济已到了崩溃的边缘；二十大前后中共有可能被自己人灭掉，新中国联邦将在没有共产党的中国推动一人一票的民主制度<br/>
 ![img](https://media.gettr.com/group44/getter/2022/03/14/22/b0467177-05b6-c086-4f97-e0ce060fff53/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@ddnyc 3/14/2022 10:14 PM (UTC)`
-
-Check us out 🇮🇹 <br/>www.GFASHION.com
-> `@gfashion 3/14/2022 11:53 AM (UTC)`<br/>▪️Shop now at G|Fashion▪️<br/><br/>https://gfashion.com/collections/new-arrivals/products/drop-needle-poncho
-![img](https://media.gettr.com/group50/getter/2022/03/14/11/329dce27-888e-c3e3-6f1d-86c119606f85/c14079f1aa8030bb60949e25dbe579dd.jpg)
 
 ---
 
