@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 12:13 AM (UTC)`
+
+3/14/2022 Miles Guo’s GETTR: The New Federal State of China will be the first one and the only one in the world to go to Ukraine to rescue our fellow Chinese and the Ukrainian women and children. Faced with the pressure of competition, the CCP transferred to Slovakia 100 Chinese trapped in Ukraine who were in touch with the New Federal State of China. The CCP, which has lost conscience and tells outright lies, is bound to be taken down!<br/><br/>3/14/2022 文贵盖特：新中国联邦将成为全球首家和唯一一家进入乌克兰解救中国同胞和乌克兰妇女儿童的救援团体；面对竞争的压力，中共把已与新中国联邦联系上的在乌100个中国人转移到斯洛伐克；撒谎成性、泯灭良知的中共必被灭！<br/>
+![img](https://media.gettr.com/group33/getter/2022/03/15/00/d5f7bea1-8998-af6e-3b99-4c771c1edb82/out.jpg)
+
+---
+
 `@miles 3/14/2022 11:39 PM (UTC)`
 
 2022.03.14《The Fringe》 Episode 146    THE CHINESE COMMUNIST PARTY (CCP) is the root cause of all disasters in the world   Only by eliminating the Chinese Communist Party can we save humanity!
@@ -150,13 +157,6 @@ Check us out 🇮🇹 <br/>www.GFASHION.com
 
 The war pianist just moved the piano right next to the tents provided by the ROL Foundation and the NFSC. He started the outdoor concert tonight with John Lennon’s classic song “Imagine”. Our fully equipped tents provide people with fresh grind coffee and warm heat. Thanks to the NFSC and the ROL Foundation, bringing some warmth and hope to people escaped from the war.<br/><br/>战地钢琴家今天把钢琴拉到了法治基金、新中国联邦的两个大帐篷前面。以约翰·列农的经典歌曲Imagine，开始了今晚的露天音乐会。我们设备齐全的大帐篷，给人们提供了新鲜现磨咖啡、温暖的暖气。感谢新中国联邦和法治基金，为战争和硝烟中的人们带来温暖和希望
 ![img](https://media.gettr.com/group22/origin/2022/03/14/21/ac88f083-4e90-66f6-e651-468985ea7a08/out.jpg)
-
----
-
-`@miles 3/14/2022 9:30 PM (UTC)`
-
-在战火纷飞的乌克兰，只有我们新中国联邦人，不畏危险来到前线，不求任何回报，不带任何条件，向受难的所有同胞伸出援助之手。新中国联邦将让中国人找回浪漫、尊严、善良、和平、友好，让中国人成为世界上最受尊敬、最爱打交道的人，而不是共产党在全世界塑造的虚假、懦弱、自私的样子！ <br/>In the midst of the war in Ukraine, only we, the citizens of the New Federal State of China (NFSC), have been on the frontline of rescue despite the danger, all in order to extend a helping hand to our stranded compatriots, unconditionally and without expecting anything in return. <br/>The NFSC has enabled the Chinese people to recapture a sense of romance, dignity, kindness, peace and friendliness, making them the most respected and pleasant people to interact with, as opposed to the image of deceptiveness, cowardice and selfishness that the Chinese Communist Party (CCP) has portrayed throughout the world.
-![img](https://media.gettr.com/group49/origin/2022/03/14/21/ccc514ba-e1a2-1d18-facd-21272eb9b068/out.jpg)
 
 ---
 
