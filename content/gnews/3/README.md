@@ -2,14 +2,14 @@
 ---
 
 
-## 樱花头条┃特魯多：加拿大和北約要避免與俄直接衝突
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2169101/)
+## 樱花头条┃美油企：禁运俄罗斯石油, 油价最高将飙到200美元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2169175/)
 
 撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/031537.png)
-特魯多：加拿大和北約要避免與俄直接衝突。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/031538.png)
+美国最大页岩油公司执行长警告, 禁运俄罗斯石油,油价将飙到200美元.
 
-信息来源：[https://gettr.com/post/pyalhlc9b6](https://gettr.com/post/pyalhlc9b6)
+信息来源：[https://gettr.com/post/pyamnz3c45](https://gettr.com/post/pyamnz3c45)
 
 *编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*

@@ -2,33 +2,27 @@
 ---
 
 
-## 西班牙首相桑切斯传达了西班牙人对乌克兰难民的承诺和声援
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2169016/)
+## 泽连斯基探视受伤的乌克兰士兵分发奖牌
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2169098/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture2-8.png)
+#### 撰稿：nstar
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-15-at-8.05.18-PM.jpeg)
+面对令人难以置信的逆境，乌克兰总统弗拉基米尔·泽连斯基继续表现出强大的领导力。
 
-图片来自原文
+周日，乌克兰总统泽连斯基在参观一家军事医院时为受伤的士兵颁奖。泽连斯基的办公室在一份声明中说：“总统沃洛德米尔·泽连斯基探望了在军事医院接受治疗的受伤的乌克兰捍卫者。 ”在那里，泽伦斯基向受伤士兵颁发了“勇气和奉献的勋章和勋章，并表彰了在困难条件下模范工作的医院工作人员”。
 
-西班牙首相佩德罗-桑切斯（Pedro Sánchez）宣布，国防部包租的一架飞机将于本周抵达，机上载有20或30名患有某种形式癌症的乌克兰儿童在其家人。
+据乌克兰国防部称，泽连斯基在访问期间对伤员说：“伙计们，早日康复。我相信，你们发言的最好礼物将是我们共同的胜利！”
 
-桑切斯在访问位于波苏埃洛-德-阿拉尔孔（Pozuelo de Alarcón）的乌克兰难民关怀、接待和转介中心时作出承诺，西班牙政府已经为照顾乌克兰难民准备了所有的后勤服务。
+自从俄罗斯入侵乌克兰开始，泽连斯基已经认可了许多为乌克兰服务的士兵。周六，泽连斯基授予八名军人“乌克兰英雄”称号，以表彰他们“在捍卫乌克兰国家主权和领土完整方面表现出的个人勇气和英雄主义”。其中六个奖项是追授的。
 
-首先，马德里、巴塞罗那和阿利坎特，那里已经准备好了三个护理中心和第一接待中心，这三个有大量乌克兰社区代表的城市开始协调。
+泽连斯基本人因其在俄罗斯袭击他的国家时的勇气而获奖。上周，罗纳德·里根总统基金会和研究所宣布泽连斯基将获得罗纳德·里根自由奖。
 
-而且，已经批准了一个接待和保护难民的计划，可增加12000个难民名额。
+“虽然是一个没有军事背景的政治新手，但泽连斯基总统通过拒绝逃离首都、敦促乌克兰人抵抗以及制定成功的沟通策略赢得了欧洲领导人和公民的支持，赢得了乌克兰和世界各地的尊重”，里根基金会说。
 
-简而言之，西班牙将树立一个团结、协调、协作和机构间合作的榜样。
-
-桑切斯也感谢非政府组织和第三方所做的工作。
-
-桑切斯向在西班牙的乌克兰难民传达了 “西班牙人民的承诺和团结”。
-
-并向难民保证，难民们将能感受到家的温暖。会尽全力满足难民们的需求。
-
-新闻来源链接：[https://www.eurasiareview.com/14032022-spains-pm-sanchez-assures-ukrainian-refugees-of-the-commitment-and-solidarity-of-spanish-people/](https://www.eurasiareview.com/14032022-spains-pm-sanchez-assures-ukrainian-refugees-of-the-commitment-and-solidarity-of-spanish-people/)
-
-本文作者：Rebecca (一切心皆不可得！)  
-上传排版：Hong
+新闻来源：
+1.[GET ZEL SOON: Watch Zelenskyy Visit Wounded Ukrainian Soldiers, Hand Out…](https://www.iheart.com/content/2022-03-15-sean-hannity-get-zel-soon-watch-zelenskyy-visit-wounded-ukrainian-soldiers-hand-out-medals/)
+2.[GET ZEL SOON: Watch Zelenskyy Visit Wounded Ukrainian Soldiers, Hand Out Medals](https://hannity.com/media-room/get-zel-soon-watch-zelenskyy-visit-wounded-ukrainian-soldiers-in-hospital-hand-out-medals/)
 
  
 

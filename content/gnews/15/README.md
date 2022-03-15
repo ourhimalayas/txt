@@ -2,26 +2,14 @@
 ---
 
 
-## 樱花头条┃日本对俄态度转趋强硬 称北方四岛为”固有领土”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2168909/)
+## 樱花头条┃研究新发现 COVID可能导致大脑发生变化
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2168996/)
 
 撰稿：东京樱花团/樱花传媒
 
-日本对俄态度转趋强硬
+研究新发现, Covid 可能导致大脑发生变化, 主要发生在与气味相关的区域.
 
-岸田文雄改称北方四岛为
-
-“固有领土”。
-
-在俄国侵略乌克兰后
-
-日方认清与俄罗斯和谈无望
-
-在领土主权上转趋强硬
-
-以配合美欧联合制俄的表态。
-
-[信息来源](https://gettr.com/post/pz129aba49)
+[信息来源](https://gettr.com/post/pz045o69f5)
 
 *校对：东京樱花团/asket
 发布：东京樱花团/tdownc2p*

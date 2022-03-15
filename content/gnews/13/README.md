@@ -2,28 +2,32 @@
 ---
 
 
-## 顿巴斯袭击造成30人受伤，俄罗斯被控使用化学武器
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2168946/)
+## 西班牙首相桑切斯传达了西班牙人对乌克兰难民的承诺和声援
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2169016/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-11.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture2-8.png)
 
 图片来自原文
 
-国际法禁止在人口密集的平民区使用白磷弹，只允许在空地上作为部队的掩护。
+西班牙首相佩德罗-桑切斯（Pedro Sánchez）宣布，国防部包租的一架飞机将于本周抵达，机上载有20或30名患有某种形式癌症的乌克兰儿童在其家人。
 
-3月12日，周六，乌克兰卢甘斯克市以西约100公里（60英里）的波帕斯纳（Popasna）的警察局长奥列克西-比洛希茨基（Oleksi Biloshytsky）指责俄罗斯在顿巴斯东部地区使用了磷化学炸弹武器。
+桑切斯在访问位于波苏埃洛-德-阿拉尔孔（Pozuelo de Alarcón）的乌克兰难民关怀、接待和转介中心时作出承诺，西班牙政府已经为照顾乌克兰难民准备了所有的后勤服务。
 
-“这就是纳粹所说的‘燃烧的洋葱’，而这就是俄西斯主义者（‘俄罗斯人’和‘法西斯主义者’的混合体）正在向我们的城镇投放的东西。难以形容的痛苦和火灾，”他在 Facebook 上写道。
+首先，马德里、巴塞罗那和阿利坎特，那里已经准备好了三个护理中心和第一接待中心，这三个有大量乌克兰社区代表的城市开始协调。
 
-乌克兰检察官说，周末，俄罗斯军队炸弹袭击了斯维亚托吉尔斯克修道院，有近1000名平民在此避难的，造成30位平民受伤。
+而且，已经批准了一个接待和保护难民的计划，可增加12000个难民名额。
 
-据顿涅茨克军事指挥官帕夫洛-基里连科（Pavlo Kirilenko）说，周六晚上，一列从顿巴斯疏散人员到西部城市利沃夫的火车遭到了炮击。有一人死亡，另一人受伤。
+简而言之，西班牙将树立一个团结、协调、协作和机构间合作的榜样。
 
-周末遭到袭击的地区位于亲俄叛军在战争开始前宣布的，所谓的卢甘斯克和顿涅茨克分离主义 “共和国 “之外。
+桑切斯也感谢非政府组织和第三方所做的工作。
 
-新闻来源链接：[https://www.thedefensepost.com/2022/03/13/russia-accused-chemical-attacks/](https://www.thedefensepost.com/2022/03/13/russia-accused-chemical-attacks/)
+桑切斯向在西班牙的乌克兰难民传达了 “西班牙人民的承诺和团结”。
 
-本文作者：Rebecca (一切心皆不可得！)
+并向难民保证，难民们将能感受到家的温暖。会尽全力满足难民们的需求。
+
+新闻来源链接：[https://www.eurasiareview.com/14032022-spains-pm-sanchez-assures-ukrainian-refugees-of-the-commitment-and-solidarity-of-spanish-people/](https://www.eurasiareview.com/14032022-spains-pm-sanchez-assures-ukrainian-refugees-of-the-commitment-and-solidarity-of-spanish-people/)
+
+本文作者：Rebecca (一切心皆不可得！)  
 上传排版：Hong
 
  

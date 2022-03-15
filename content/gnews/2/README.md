@@ -2,20 +2,25 @@
 ---
 
 
-## 樱花头条┃鲍里斯·约翰逊、贾斯汀·特鲁多和马克·鲁特录制视频 表达对乌克兰人的声援
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2169110/)
+## 中共以疫情为由关闭深圳商业中心
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2169182/)
 
-撰稿：东京樱花团/樱花传媒
+采编：加拿大温哥华杨帆农场 – 重生之鹰
 
-鲍里斯·约翰逊、贾斯汀·特鲁多和马克·鲁特录制了一段视频，表达了对乌克兰人的声援。
+编译撰稿：加拿大温哥华杨帆农场 – 硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1651.png)图片来源：CTV
+据加拿大CTV新闻3月13日报道，中共日前以疫情再次爆发为由，关闭了深圳南方商业中心，并停止所有公共交通服务已避免人口向市外流动。
 
-“面对普京和俄罗斯的侵略，我们与乌克兰人民站在一起”.
+报道称，在当天出现大量新增病毒感染病例之后，所有深圳居民都将被迫接受三轮核酸检测。除供应食品、燃料和其他必需品的企业外，所有商业机构都被当局勒令关闭。
 
-信息来源：[https://gettr.com/post/pytjlvd057](https://gettr.com/post/pytjlvd057)
+评论指出，中共当局以疫情失控为由，在各沿海主要城市包括上海，深圳和香港，特别是毗邻台湾的军事重地实行封城锁户，以呼应独裁党魁习近平即将在台海发动的侵略战争，并提前为攻占台湾做好各项内部控制准备。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻链接：[https://www.ctvnews.ca/health/coronavirus/china-shuts-business-centre-of-shenzhen-to-fight-covid-19-surge-1.5817377](https://www.ctvnews.ca/health/coronavirus/china-shuts-business-centre-of-shenzhen-to-fight-covid-19-surge-1.5817377)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
