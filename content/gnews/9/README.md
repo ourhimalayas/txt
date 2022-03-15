@@ -2,23 +2,30 @@
 ---
 
 
-## 马立波传捷报！乌军宣布：俄军地面部队被击退
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2167666/)
+## 2022/03/13 教皇方济各：以上帝之名，停止战争和杀戮
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2167696/)
 
-俄罗斯入侵乌克兰，乌克兰各大城市持续遭受俄军攻击，第二大城哈尔科夫也面对轮番炮击，乌克兰武装部队总参谋部表示，俄国拟定在该区域再度增兵，另外，马立波（Mariupol）地区的俄军也被击退。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-15-090302.jpg)
+GETTR视频链接：[https://gettr.com/post/pzwnwm0ee3](https://gettr.com/post/pzwnwm0ee3)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/php3v3DI0.jpg)图片来源：美联社
+**视频字幕：**
 
-其中乌东城市马立波不断遭到俄方炮击，近乎成为炼狱，俄军地面部队也持续向前推进，寻求占领，不过乌克兰军方宣布，俄军被击退，目前人员已向后撤离，俄方损失约为150人、2辆战车以及1辆装甲运兵车。
+**教皇方济各：**本周，马里乌波尔市成为令人痛心的战争中的一个烈士城市，乌克兰正在被蹂躏。面对杀害儿童、对无辜民众和手无寸铁的平民的野蛮行为，没有任何合理的战略理由。我们需要在城市沦为墓地前，制止这种不可接受的武装侵略。我怀着悲痛的心情，与普通人一起恳求结束这场战争。以上帝之名，让人们听到那些受难者的呼喊，让轰炸和攻击停止。让我们真正地、果断地走向谈判，让人道主义走廊变得安全有效。以上帝之名，我请求你们：停止这场屠杀。
 
-新闻来源：[LTN](https://news.ltn.com.tw/news/world/breakingnews/3859791)
+**简评：**
 
-撰稿/发布：一叶知秋
+俄乌战争在继续。教皇方济各发表讲话：乌克兰正在被蹂躏。面对杀戮，没有任何合理的战争理由。以上帝之名，停止轰炸和攻击，走向谈判桌。以上帝之名，停止屠杀。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
