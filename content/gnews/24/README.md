@@ -2,23 +2,31 @@
 ---
 
 
-## 泰国已向15,933名遭受Covid-19疫苗受害者支付4,500万美元的赔偿金
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2166246/)
+## 【五月花讯】乌克兰人道救援现场协调会在梅迪卡新中国联邦救援基地召开
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2166291/)
 
-2022-03-14
+素材：清平世界（前线战友）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/73db579a-2a3d-4d8e-a601-fa9b39c0b7f9-1.jpg)图片来源：清平世界
+当地时间2022年3月14日，波兰梅迪卡口岸，新中国联邦乌克兰人道救援帐篷中，首次没有中国共产党、只有新中国联邦的中国人参与的国际组织会议，在这里召开。
 
-翻译：elli
-![](https://assets.gnews.org/wp-content/uploads/2022/03/cdc-90ejoVTj2-M-unsplash-scaled-1.jpg)图片来源：[Thailand Pays Out $45 Million as Compensation to 15,933 People Following Covid-19 Vaccine Adverse Reactions](https://www.thegatewaypundit.com/2022/03/thailand-pays-45-million-15933-people-following-covid-19-vaccine-adverse-reactions/)
-据当地新闻报道，从2021年5月19日到今年3月8日，泰国国家卫生安全办公室（NHSO）已经向接受COVID-19疫苗后出现不良反应的人支付了约15.09亿泰铢（4565万美元）的经济赔偿。在死亡或永久残疾的情况下，每个家庭将获得40万泰铢（11900美元）。24万泰铢（7178美元）是支付给那些失去肢体或遭受残疾而影响其生计的人。10万泰铢（2990美元）支付给那些患有慢性病的人。” 评：自作孽，不可活。各国政府，主流媒体掩盖covid疫苗真相，酿成今日恶果。再用老百姓的税金赔偿。只是现在还未到covid疫苗灾难全面爆发就已经支出惊人，但愿青蒿琥脂等解药广为流传，更多性命得以保全。
+所有参与乌克兰人道救援的义工组织成员代表在这里聚集，讨论整个救援营地的系统化管理。这是由联合国、国际红十字会、无国界救援者等组织发起的救援基地负责人会议。我们新中国联邦救援队也参加会议中。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7c70e3e8-4dcb-4a97-a227-215e1c8de880-2.jpg)图片来源：清平世界
+早上，新中国联邦的战友跟营地里的联合国救援工作人员对接，他们即将把我们这一排作为一列新营地，进行规划安排。我们表示：如果局势变化需要，我们可以搭建更大的帐篷，可随时联系我们。
 
-翻译来源：[Thailand Pays Out $45 Million as Compensation to 15,933 People Following Covid-19 Vaccine Adverse Reactions](https://www.thegatewaypundit.com/2022/03/thailand-pays-45-million-15933-people-following-covid-19-vaccine-adverse-reactions/)
+这并不是一个临时会议，这是计划内的会议。新中国联邦是首次全程参与全球国际组织的合作，而且是会议场地提供方，是低调的主角。会议结束后有人起立，感谢新中国联邦提供的帮助。新中国联邦参与国际合作，受到全球组织的认可和欢迎，这是没有CCP 只有灭共的中国人参加的国际组织救援会议，CCP共产党早已不被接纳了。
 
-编辑：LILY
-发布：肥鯮
+这是一个伟大的事业！来自全世界各国和国际组织的救援团队，聚集在法治基金捐赠的新中国联邦大帐篷里面，召开了第一次战地救援联合协调大会，这个画面将载入史册。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图47.png)视频截屏：新中国联邦战友文耀，在现场做直播报道（来源：清平世界）
+这次全世界救援组织的战地联合协调会，凝聚着全世界爱好和平和反战群体的正义力量。不分种族、肤色、文化、政治背景，各个救援群体为了救人救世而聚集起来。
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+这是一次正道主义的大融合，在这些义工的背后，更是数以亿计的捐赠者的信念和信仰，有了这些正义的爱好和平的人类，我们一定会战胜邪恶势力和灾难，铲除共产党和共产国际这样的邪恶势力。让世界重归安宁祥和，重建人类社会新秩序。
+
+新中国联邦树立了新一代中国人的形象，是全世界最专业、最有信誉、灭共救人的人道主义群体之一。
+
+* * *
+
+*编辑 /发布：吐纳*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
