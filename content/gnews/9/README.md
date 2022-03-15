@@ -2,41 +2,23 @@
 ---
 
 
-## 有声|泽连斯基披露两军死亡数字
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2169404/)
+## 视频|泽连斯基称乌克兰绝不会被征服
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2169484/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月13日，国外媒体报道，乌克兰总统泽连斯基前一天在莫斯科军队逼近首都基辅时表示，自俄罗斯入侵乌克兰以来，已有“约1300名”名乌克兰士兵丧生。
+制作: 香草山视频部
 
-泽连斯基是在媒体吹风会上披露的这一情况，这是基辅自战斗开始以来首次披露伤亡数字。
+盖特3月14日消息，近日乌克兰总统泽连斯基发表视频演说表示，俄罗斯侵略者无法征服乌克兰，呼吁欧洲各国共同抗击俄国侵略。
 
-3月2日，俄罗斯曾表示俄方已损失近500名士兵，但此后一直没有更新数字。3月12日泽连斯基称，俄军已有12000人阵亡，但他表示，俄军如此巨大的伤亡并不让他开心。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-5.jpg)
-就在3月12日，俄罗斯军队加大了对基辅的压力，猛烈打击了乌克兰其他城市的平民区，基辅市长表示，基辅正在加强防御并储存食品和药品。
+泽连斯基说，俄罗斯侵略者缺乏勇气和意志，他们只是坚持使用暴力和恐怖袭击、仅是武器多于乌克兰而已，但他们却没有人类正常生活的自然思维，以便让人民感觉幸福和拥有梦想。泽连斯基嘲讽俄罗斯侵略者天生没有正常生活的能力，无论俄军的铁蹄践踏在世界任何地方，这样的梦想都无法实现，只能非常艰难的为生存而斗争。
 
-另外乌克兰外交部长称，南部港口城市马里乌波尔正面临“地球上最严重的人道主义灾难”，俄军的袭击已经造成1500多名平民死亡。
+泽连斯基还不断地向友好国家表明，他们应该为乌克兰人民做出更多的事情。因为这不仅仅是为了乌克兰，而是为了全体欧洲人民。俄罗斯侵略军蓄意轰炸和平城市，袭击救护车和医院的行为，不会只是针对乌克兰。一旦实力足够，普京政府就会变本加厉的继续侵略下去。
 
+发稿：谐趣园
 
-
-文字版原文：[泽连斯基披露两军死亡数字](https://gnews.org/zh-hans/2159759/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 【乌克兰救援】03/14/22 两位国际红十字会的义工来到新中国联邦的帐篷享用咖啡，并表示感谢
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2169372/)
+## 天空新闻：基辅遭受三次不同的袭击
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2169458/)
 
-【乌克兰救援】03/14/22 两位国际红十字会的义工来到新中国联邦的帐篷享用咖啡，并表示感谢
+03/14/2022 澳大利亚天空新闻：基辅遭受三次不同的袭击
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

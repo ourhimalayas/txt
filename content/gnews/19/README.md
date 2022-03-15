@@ -2,22 +2,41 @@
 ---
 
 
-## 美禁止采购错误标示台湾归属的地图
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2169250/)
+## 有声|泽连斯基披露两军死亡数字
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2169404/)
 
-采编/撰稿：加拿大温哥华杨帆农场 – 自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1652.png)图片来源：台湾英文
-据《台湾英文》3月12日报道，美国总统拜登当天签署了2022年度财政支出法案，其中包括禁止国务院采购将台湾描绘为中共国领土地图的修正案。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月13日，国外媒体报道，乌克兰总统泽连斯基前一天在莫斯科军队逼近首都基辅时表示，自俄罗斯入侵乌克兰以来，已有“约1300名”名乌克兰士兵丧生。
 
-据悉，该修正案由共和党议员[蒂芬尼]等人撰写，以禁止制作、购买或展示任何不正确标示台湾当局所管辖的领土、岛屿及社会经济体系的地图。
+泽连斯基是在媒体吹风会上披露的这一情况，这是基辅自战斗开始以来首次披露伤亡数字。
 
-评论指出，在中共目前于全球四处煽风点火，磨刀霍霍准备攻打台湾之际，拜登此举则凸显美国密切关注台海局势并决意维护台湾利益的决心。
+3月2日，俄罗斯曾表示俄方已损失近500名士兵，但此后一直没有更新数字。3月12日泽连斯基称，俄军已有12000人阵亡，但他表示，俄军如此巨大的伤亡并不让他开心。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-5.jpg)
+就在3月12日，俄罗斯军队加大了对基辅的压力，猛烈打击了乌克兰其他城市的平民区，基辅市长表示，基辅正在加强防御并储存食品和药品。
 
-校对编辑：硫酸羟氯喹64
+另外乌克兰外交部长称，南部港口城市马里乌波尔正面临“地球上最严重的人道主义灾难”，俄军的袭击已经造成1500多名平民死亡。
 
-发稿：青青
 
-原文链接： [https://www.taiwannews.com.tw/en/news/4470813](https://www.taiwannews.com.tw/en/news/4470813)
+
+文字版原文：[泽连斯基披露两军死亡数字](https://gnews.org/zh-hans/2159759/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
