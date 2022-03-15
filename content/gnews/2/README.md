@@ -2,29 +2,36 @@
 ---
 
 
-## 秘翻在线: 与美国关系日趋紧张的沙特阿拉伯邀请习近平访问
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2170729/)
+## 【 G时新闻 】白宫警告中共如果军事援助俄罗斯将面临严重后果
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2170846/)
 
-撰稿：西枫westca
+播报：加拿大温哥华扬帆农场 – 悠然
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-8-1.jpg)图片来源： 网络照片
-据华尔街日报3月15日报道，沙特阿拉伯邀请中国国家主席习近平访问利雅得，以加强与北京的关系。
+视频制作：加拿大温哥华扬帆农场 – 文雅
 
-据《华尔街日报》报道，对利雅得的邀请是在沙特阿拉伯与美国的关系紧张的情况下发出的。定于4月开始的斋月之后的这次旅行标志着习近平自中共病毒大流行病开始以来的首次对外国事访问。
+零对冲网3月14日报道，于周一去罗马参加与中共高级外交官杨洁篪会见的杰克·沙利文告诉CNN说美国已经直接地通过私人管道告诉中共如果中共在俄乌战争中作为俄罗斯的后盾的话，将面临大规模制裁行动。
 
-据该报道称，一位沙特官员表示： “王储和习近平是亲密的朋友，双方都明白建立更紧密关系的巨大潜力，这不仅仅是’他们向我们购买石油，我们向他们购买武器的问题’。”
+一位拜登政府高官引用多个报告称美国向中共传达了美国对中共支持俄罗斯的深度担忧。该官员对于美国掌握的情报关于中共正在提供还是准备提供俄罗斯经济和军事援助的问题拒绝回答，但说对话是坦率而又直接的，沙利文直接表达了深切关注和对某些行动的可能影响和后果。
 
-习近平的潜在访问将与王储穆罕默德-本-萨勒曼及其与拜登总统的关系形成鲜明对比，拜登在2020年大选期间承诺将沙特作为一个 “贱民 “国家对待。穆罕默德王子在最近几周拒绝与拜登就俄罗斯入侵期间油价飙升的努力进行交谈。在俄罗斯入侵乌克兰期间，沙特阿拉伯拒绝了美国要求抽取更多石油以遏制原油价格飙升的要求。
+美国防部官员说： “ 如果中共国在这场战争中选择实体支持俄罗斯的话，对中共国来说后果很严重。”
 
-同时，阿拉伯联合酋长国（UAE）也对联合国安理会谴责莫斯科攻击乌克兰的决议保持沉默。
+中共国外交部说它有权利去捍卫自己的合法权益。
 
-**新闻来源：**
+原文链接：https://gnews.org/zh-hans/2165860/
 
-[Saudi Arabia Invites China’s Xi to Visit Kingdom Amid Strained U.S. Relations – WSJ](https://www.wsj.com/articles/saudi-arabia-invites-chinas-xi-to-visit-kingdom-amid-strained-u-s-relations-11647284211)
+视频链接：https://gettr.com/post/p103xj9969e
 
-[Saudi Arabia invites China’s Xi to visit Riyadh: report](https://thehill.com/policy/international/598207-saudi-arabia-invites-chinas-xi-to-visit-riyadh-report)
+发稿：文莱
 
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

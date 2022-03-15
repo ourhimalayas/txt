@@ -17,6 +17,34 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 10:02 PM (UTC)`
+
+3/15/2022 Miles Guo: For the first time since the establishment of the CCP regime, Beijing, wealthy coastal areas, and the war zones preparing to attack Taiwan secretly reported to the CCP's Central Committee that they could not pay their salaries. Half of the grain being transferred from Heilongjiang Province to the Xinjiang concentration camps was unloaded on the way, and even the political godfather, Zeng Qinghong, has been threatened<br/><br/>3/15/2022 文贵直播：共匪建政以来首次出现，北京、沿海富裕地区和对台战区密报中央，说发不出工资了，黑龙江调往新疆集中营的粮食在路上被截了一半，连政治教父曾庆红都受到了威胁<br/>
+![img](https://media.gettr.com/group43/getter/2022/03/15/22/eee0c89a-097a-1aab-69ed-e9da76e9a528/out.jpg)
+
+---
+
+`@miles 3/15/2022 10:01 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-15
+![img](https://media.gettr.com/group31/origin/2022/03/15/22/d7eede8b-61d3-1c98-2073-8244387fcd11/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/15/2022 9:59 PM (UTC)`
+
+3/15/2022 Miles Guo: Why will there be wars in the Middle East? Because the CCP is betting that the U.S. won’t be able to simultaneously fight three wars in Ukraine, the Middle East, and Taiwan, respectively. But if the CCP attacks Taiwan, the U.S. will for sure take action by bombing the mainland. Anyway, it is up to us Chinese to take down the CCP.<br/><br/>3/15/2022 文贵直播：中东为什么会燃起战火？因为中共要赌一把美国不会同时打乌克兰、中东和台湾的三场战争；但如果中共打台湾，美国一定会出手，会采取轰炸战略，但灭共还要靠中国人<br/>
+![img](https://media.gettr.com/group32/getter/2022/03/15/21/531a4ae5-f726-c1c8-8c08-b7fbec3d56a0/out.jpg)
+
+---
+
+`@miles 3/15/2022 9:57 PM (UTC)`
+
+3/15/2022 Miles Guo：Han Zheng ordered the arrest of the Vice Minister Ma Jian because Ma Jian investigated and seized the secrets of Han’s illegitimate children and illegal assets; Han Zheng told his crony that the start of Russian invasion of Ukraine heralded the demise of the CCP, because Xi would follow Putin’s path and attack Taiwan<br/><br/>3/15/2022 文贵直播：韩正主使抓捕马建副部长因为马建调查并掌握了韩私生子女和非法财产的秘密；韩正告诉亲信，俄乌战争开打预示中共的灭亡，因为习会攻打台湾，走上普京的不归路<br/>
+![img](https://media.gettr.com/group32/getter/2022/03/15/21/b62e9f6e-33df-60a8-609f-3bc206913da6/out.jpg)
+
+---
+
 `@miles 3/15/2022 9:51 PM (UTC)`
 
 3/15/2022 Miles Guo: Han Zheng sneaked back to Shanghai disregarding the Pandemic restriction rule in Beijing, where did he go? After Pangu’s dragon head turned into turtle head, ‘Guo Wengui’s name became a taboo in the CCP and made Han Zheng shudder<br/><br/>3/15/2022 文贵直播：韩正竟然冲破禁止出京的限制偷偷潜回上海，他去干嘛了？“郭文贵”三个字对中共的震慑力太大了，竟然能把韩正从椅子上震起来，看来龙头改龟头，阳气上升了<br/>
@@ -129,34 +157,6 @@ On 14 March, in the large tent of the New Federal State of China（NFSC）,<br/>
 
 彭博快讯：最近一次袭击发生在离波兰边境如此之近的地方，也就是北约的领土，这就是为什么乌克兰一直在呼吁北约在乌克兰建立禁飞区。这次报道的背景是新中国联邦和法治基金的救援帐篷和标志。<br/><br/>Bloomberg Quicktake: The latest strike happened so closed to Poland's border, a NATO member’s territory, which is why Ukraine has been calling for NATO to establish a no-fly zone in Ukraine. The background of this reporting is NFSC and ROLF’s rescue tents and logos.
 ![img](https://media.gettr.com/group23/getter/2022/03/15/09/51219ee1-26aa-37ba-8e58-130d11f77979/out.jpg)
-
----
-
-`@miles 3/15/2022 9:09 AM (UTC)`
-
-【Ukrainian Rescue】03/13/2022 Nicole interviews a Japanese TV reporter in front of the rescue tent of the New Federal State of China in Ukraine, and explains to him that the movement led by Mr. Miles Guo to take down the CCP is to restore peace, freedom and justice to the world.The Japanese TV reporter thinks that our work will be successful, making peace in all over the world.<br/><br/>【乌克兰救援】03/13/2022妮可在乌克兰的新中国联邦救援帐篷前采访日本电视台记者，并介绍郭文贵先生发起的消灭中共运动，要给世界恢复和平、自由和正义。日本电视台记者认为我们的一定会成功，并将和平带到世界各地。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group46/getter/2022/03/15/09/5e0c9cd3-819c-a24b-b36c-201d3d11350f/out.jpg)
-
----
-
-`@miles 3/15/2022 8:52 AM (UTC)`
-
-24小时客服热线（电话/短信）： +1 720-657-6776 或 +1 719-224-4232 或 +48 508-532-712 或 +48 508-531-518 Telegram： t.me/UkraineRescue 盖特： https://gettr.com/user/UkraineRescue The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Rescue Team – News & Updates. 24h Hotline: +1 720-657-6776 or +1 719-224-4232 or +48 508-532-712 or +48 508-531-518 Telegram: t.me/UkraineRescue GETTR: https://gettr.com/user/UkraineRescue
-![img](https://media.gettr.com/group28/origin/2022/03/15/07/8a1f6798-2af2-6bd4-dcca-dbc141834d03/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/15/2022 6:37 AM (UTC)`
-
-【Ukraine Rescue】Nicole interviewed the Pianist Davide Martello in front of the big tent of the NFSC and ROLF, and explained to him the task of the NFSC is taking down the CCP, because it is the root cause of all the disasters around the world. Davide highly praised the rescue efforts of the NFSC.<br/><br/>【乌克兰救援】妮可在新中国联邦和法治基金的大帐篷前采访了钢琴家Davide Martello，向他解释了新中国联邦的任务就是打倒中共，因为它是全世界所有灾难的根源。 Davide高度赞扬了新中国联邦的救援工作。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group39/getter/2022/03/15/06/9d2b13c0-b27e-9fc5-109c-4b4cccfd1386/out.jpg)
-
----
-
-`@miles 3/15/2022 3:50 AM (UTC)`
-
-3月14号：今天一直很兴奋太多太多的好消息了，但是看了这位战友的对．7哥的过度的鼓励，突然有点儿晕了……俺去睡觉觉去了。【极高的智商 + 超强的情报来源 + 超强的情报分析整合能力 + 对事物本质的认识和对世界运转深刻的阅历。这就是我认识的七哥，独一无二，世界就这么一个七哥。🙏🏻】
-![img](https://media.gettr.com/group30/getter/2022/03/15/03/4f2cd036-1f81-fa34-6086-f50b5b318c2e/5399fcc84e1cb32ec708c8b34a78c6f6.jpg)
 
 ---
 
