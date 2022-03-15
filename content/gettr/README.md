@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 3:02 PM (UTC)`
+
+铁锁梦 MV<br/>Chained Dream<br/> <br/>演唱：Miles Guo<br/>歌词：威廉王<br/>编曲：小光<br/>制作：唐平<br/> 原曲：（女人花）<br/><br/>Cover by Miles Guo<br/>Lyrics: William Wong<br/>Arrangement: Xiao Guang<br/>Producer: Tang Ping<br/>Original Song: Flower Woman <br/><br/>我本花一朵<br/>A beautiful budding rose<br/> <br/>被拐骗山中<br/>since abducted to the mountains<br/> <br/>从此亲人永相隔<br/>forever separated from family <br/> <br/>囚禁二十年 我受尽了折磨<br/>Locked up and tormented for two decades<br/> <br/>这个世界不要我<br/>the world has abandoned me<br/> <br/>醒来吧 别再如此冷漠<br/>Wake up, don’t be stone cold<br/> <br/>醒来吧 抛掉所有懦弱<br/>Wake up, shake off all cowardice<br/> <br/>只为能 紧握住亲人手<br/>In order to hold loved one’s hands<br/> <br/>要埋葬 那邪恶的中共<br/>the evil CCP must be buried<br/> <br/>牙齿全拔落<br/>Teeth all pulled<br/> <br/>铁锁已斑驳<br/>shackles mottled<br/> <br/>这就是我的一生<br/>this is my life in its entirety<br/><br/>同胞快醒来<br/>Fellow compatriots be awakened<br/> <br/>从此要站着活<br/>live standing on your feet<br/> <br/>我们砸碎这铁锁<br/>let’s smash the shackles break the chain
+![img](https://media.gettr.com/group34/getter/2022/03/15/15/d23ba317-0881-41b6-f833-b174b512a8a4/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@laobangzhang 3/15/2022 8:48 AM (UTC)`
@@ -154,15 +161,6 @@ On 14 March, in the large tent of the New Federal State of China（NFSC）,<br/>
 
 
 ![img](https://media.gettr.com/group23/origin/2022/03/15/02/86b2e4c6-66b6-91ee-7bb1-7fa305516b30/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@miles 3/15/2022 2:19 AM (UTC)`
-
-Italian Lorenzo told us about what the 2 unimaginable true pictures he witnessed along the way before he reached the big tent of the New Federal State of China with his Ukrainian wife and father-in-law <br/><br/>來自意大利的Lorenzo告訴我們，他帶着烏克蘭太太和岳父來到新中國聯邦的大帳篷之前，路上看見兩樣難以想像的實況
-![img](https://media.gettr.com/group47/origin/2022/03/15/02/505c81a8-14fb-a97a-188a-a80bd7a71f7e/out.jpg)
 
 ---
 
