@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 2:19 AM (UTC)`
+
+Italian Lorenzo told us about what the 2 unimaginable true pictures he witnessed along the way before he reached the big tent of the New Federal State of China with his Ukrainian wife and father-in-law <br/><br/>來自意大利的Lorenzo告訴我們，他帶着烏克蘭太太和岳父來到新中國聯邦的大帳篷之前，路上看見兩樣難以想像的實況
+![img](https://media.gettr.com/group47/origin/2022/03/15/02/505c81a8-14fb-a97a-188a-a80bd7a71f7e/out.jpg)
+
+---
+
 `@miles 3/15/2022 2:04 AM (UTC)`
 
 我们是消灭邪恶中国共产党的新中国人<br/>中国共产党是全世界灾难的根源<br/>只有消灭中国共产党才能拯救全人类<br/>我们与乌克兰人民站在一起<br/><br/>We are the NEW CHINESE who are taking down the EVIL Chinese Communist Party.<br/>The Chinese Communist Party is the root cause of all disasters globally. <br/>Taking down the Chinese Communist Party is the only way to save humanity!<br/>We stand with the Ukrainians.<br/><br/>Ми-нові китайці, які знищиваємо злу Комуністичну Партiю Китаю.<br/>Комуністична Партiя Китаю є основною причиною лих у всьому світі. <br/>Тільки знищивши Комуністичну Партiю Китаю, можна врятувати все людство.<br/>Ми разом з українцями.
@@ -150,13 +157,6 @@ Check us out 🇮🇹 <br/>www.GFASHION.com
 
 3/13/2022 Miles Guo: The CCP's boast of having stockpiled two and a half years of grain reserve is a total lie! Once the CCP is kicked out of SWIFT, the RMB will become scrap paper, and all the assets hidden overseas by the CCP's illegitimate children will be gone!<br/><br/>3/13/2022 文贵直播：中共吹嘘已经储备了两年半的粮食完全是谎言！一旦中共被踢出SWIFT系统，人民币将成废纸，中共私生子女海外藏匿的财产也都将化为乌有！<br/>
 ![img](https://media.gettr.com/group27/getter/2022/03/14/21/e0aea6f2-bbd1-192d-db4e-d75cc9247baf/out.jpg)
-
----
-
-`@miles 3/14/2022 9:55 PM (UTC)`
-
-【Ukraine Rescue】03/13/22 A pianist came to play in front of the NFSC’s base camp again<br/><br/>【乌克兰救援】03/13/22 钢琴家再次来到新中国联邦大本营门口演奏<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group8/getter/2022/03/14/21/8319a021-9f95-9b9d-d2dc-8af0409b7afe/out.jpg)
 
 ---
 
