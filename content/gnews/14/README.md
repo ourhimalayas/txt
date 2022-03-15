@@ -2,35 +2,22 @@
 ---
 
 
-## 有声|中共病毒疫苗创造亿万富翁 中共国六人上榜
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2169447/)
+## 中共資助俄羅斯將受到嚴厲製裁
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2169471/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，有机构披露，自中共病毒大流行开始以来，至少有9人成为新的亿万富翁，这九位新亿万富翁的总净资产为193亿美元。八位现有的亿万富翁的总财富增加了322亿美元。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-6.jpg)
-在这17位亿万富翁中，有6人来自中共国。他们分别是：中共国重庆智飞生物制品股份有限公司主席，蒋仁生家族；中共国国药控股股份有限公司，谢炳；中共国重庆智飞生物制品股份有限公司联合创始人，吴冠江；中共国天津康希诺生物联合创始人、董事长兼首席科学官朱涛；中共国天津康希诺生物联合创始人兼高级副总裁邱东旭；中共国天津康希诺生物联合创始人兼高级副总裁毛慧华。
+采編：加拿大溫哥華楊帆農場 – 文明（添草滅共）
 
+撰稿：加拿大溫哥華楊帆農場 – 文萊
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1653.png)圖片來源：極限新聞
+據【極限新聞】3月14日報道，美國家安全顧問【沙利文】當天在會晤中共外交頭目楊潔篪時強調，如果習近平當局一意孤行，繼續幫助俄軍入侵烏克蘭，美方將采取必要措施嚴打中共。
 
+報道稱，沙利文警告楊潔篪，繼續選邊支持俄羅斯將使中共在全球範圍內進一步被孤立，並還將受到歐美及其盟國在經濟和金融以及科技等全方面的嚴厲製裁。 對此，文貴先生在當天蓋特中表示：目前，在新中國聯邦的推動和引導之下，世界聯合滅共勢力已不可同日而語。習近平當局在面臨歐美同盟全力圍剿以及內部政敵隨時嘩變的絕境之中，其駕崩之時已計日可待。
 
-文字版原文：[中共病毒疫苗创造亿万富翁 中共国六人上榜](https://gnews.org/zh-hans/2159760/)
+校對編輯：硫酸羥氯喹64
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+發稿：青青
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文鏈接： [US to Warn China of Perils of Aiding Russia at Rome Meet | Newsmax.com](https://www.newsmax.com/headline/jake-sullivan-warn-china-russia/2022/03/14/id/1061020/)
 
  
 
