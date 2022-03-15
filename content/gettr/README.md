@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 10:59 PM (UTC)`
+
+2022.03.15 NFSC News   NFSC Participates in First-Ever International Rescue Relief Meeting in Medyka； Zelenskyy On Russian Invasion: Ukraine Will Never Be Conquered
+![img](https://media.gettr.com/group10/origin/2022/03/15/22/e3605b3e-b49a-544a-3013-6800d6fdef47/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@blue_lotus 3/15/2022 3:53 PM (UTC)`
@@ -150,13 +157,6 @@ On 14 March, in the large tent of the New Federal State of China（NFSC）,<br/>
 
 【Ukraine Rescue】03/14/2022 Two journalists from London are enjoying the NFSC Coffee in NFSC and ROLF rescue tent. They say this is the best coffee so far in Poland! <br/><br/>【乌克兰救援】03/14/2022 两位来自伦敦的记者正在新中国联邦和法治基金的救援帐篷里享用新中国联邦的咖啡。他们说这是目前波兰最棒的咖啡！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
 ![img](https://media.gettr.com/group6/getter/2022/03/15/11/ce04cc4e-5471-dc79-1619-a2fc71688649/out.jpg)
-
----
-
-`@miles 3/15/2022 11:18 AM (UTC)`
-
-3月15号：尊敬的战友们好．这个故事非常具体，非常感人……
-![img](https://media.gettr.com/group42/getter/2022/03/15/11/a3f9bcb5-7f60-6b00-1b41-37f38aa82829/out.jpg)
 
 ---
 

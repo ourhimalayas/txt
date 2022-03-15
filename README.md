@@ -111,62 +111,62 @@
 ### [拜登和欧洲暂停俄贸易地位，加剧普京经济痛苦](/content/gnews/32/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [佛罗伦萨队前锋23岁的加布里埃尔•戈里患心肌炎](/content/gnews/33/README.md)
- ` xiaobaige`
-
-### [新中国联邦驻波兰救援营地的儿童娱乐角](/content/gnews/34/README.md)
+### [新中国联邦驻波兰救援营地的儿童娱乐角](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新西兰财经G乐部2022年3月15日:财经新闻整理](/content/gnews/35/README.md)
+### [新西兰财经G乐部2022年3月15日:财经新闻整理](/content/gnews/34/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [3/15/2022国际财经快讯：俄乌谈判、美国加息赌注导致黄金下滑；俄罗斯寻求恢复伊朗核协议，石油暴跌](/content/gnews/36/README.md)
+### [3/15/2022国际财经快讯：俄乌谈判、美国加息赌注导致黄金下滑；俄罗斯寻求恢复伊朗核协议，石油暴跌](/content/gnews/35/README.md)
  ` 秘密翻译组金融团队`
 
-### [克拉科夫救援站迎来年龄最小的难民](/content/gnews/37/README.md)
+### [克拉科夫救援站迎来年龄最小的难民](/content/gnews/36/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [日本两栖部队和美国海军陆战队首次共同演练空降攻击](/content/gnews/38/README.md)
+### [日本两栖部队和美国海军陆战队首次共同演练空降攻击](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻新闻｜新中国联邦使华人在国际救援中得到肯定](/content/gnews/39/README.md)
+### [秘翻新闻｜新中国联邦使华人在国际救援中得到肯定](/content/gnews/38/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美太平洋空军司令警告中共 攻击邻居恐催生太平洋版北约](/content/gnews/40/README.md)
+### [美太平洋空军司令警告中共 攻击邻居恐催生太平洋版北约](/content/gnews/39/README.md)
  ` G-NEWS TAIWAN`
 
-### [樱花头条┃美油企：禁运俄罗斯石油, 油价最高将飙到200美元](/content/gnews/41/README.md)
+### [樱花头条┃美油企：禁运俄罗斯石油, 油价最高将飙到200美元](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共治下惨无人道，七护士揭发真相又被“辟谣”](/content/gnews/42/README.md)
+### [中共治下惨无人道，七护士揭发真相又被“辟谣”](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美日联合军演以应对“竞争对手”的潜在侵略](/content/gnews/43/README.md)
+### [美日联合军演以应对“竞争对手”的潜在侵略](/content/gnews/42/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【秘翻新视野】我们是消灭中国共产党的新中国人](/content/gnews/44/README.md)
+### [【秘翻新视野】我们是消灭中国共产党的新中国人](/content/gnews/43/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [新中国联邦（NFSC）是第一个进入战场中救援的团体](/content/gnews/45/README.md)
+### [新中国联邦（NFSC）是第一个进入战场中救援的团体](/content/gnews/44/README.md)
  ` 日本東京方舟農場`
 
-### [中共企业股市暴跌 美股损失高达1.1万亿美元](/content/gnews/46/README.md)
+### [中共企业股市暴跌 美股损失高达1.1万亿美元](/content/gnews/45/README.md)
  ` 波士顿五月花农场金融部`
 
-### [mRNA“DNA基因编辑”——不再是阴谋论](/content/gnews/47/README.md)
+### [mRNA“DNA基因编辑”——不再是阴谋论](/content/gnews/46/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [台湾｜台北市长柯文哲宴请10名中企高层 名单惊见中共关系人](/content/gnews/48/README.md)
+### [台湾｜台北市长柯文哲宴请10名中企高层 名单惊见中共关系人](/content/gnews/47/README.md)
  ` 關注組`
 
-### [“你们占领乌克兰/台湾，我们占领你们”](/content/gnews/49/README.md)
+### [“你们占领乌克兰/台湾，我们占领你们”](/content/gnews/48/README.md)
  ` 秘密翻译组-原创组`
 
-### [中国｜郭文贵预言又中？！当红艺人邓伦涉偷税漏税 遭罚人民币1.06亿](/content/gnews/50/README.md)
+### [中国｜郭文贵预言又中？！当红艺人邓伦涉偷税漏税 遭罚人民币1.06亿](/content/gnews/49/README.md)
  ` 關注組`
 
-### [中国｜大陆疫情升温 逾60名官员被问责](/content/gnews/51/README.md)
+### [中国｜大陆疫情升温 逾60名官员被问责](/content/gnews/50/README.md)
  ` 關注組`
+
+### [《避风港HAVEN》直播内容精选（第二十集 ·上）](/content/gnews/51/README.md)
+ ` 喜马拉雅纽约磐石农场`
 
 ### [玛莎·布莱克本：俄罗斯和中共国是新的邪恶轴心,在削弱美国实力方面有着共同的利益](/content/gnews/52/README.md)
  ` 美国政要直译推`
