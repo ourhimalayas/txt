@@ -2,20 +2,34 @@
 ---
 
 
-## 秘翻在线: 辉瑞总裁“推销”第四针疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2164509/)
+## 英国科学家表示 中共病毒PCR检测有严重缺陷
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2164773/)
 
-撰稿：西枫westca
+翻译：冰糖葫芦喵
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-11.jpg)图片来源：网络照片
-据多家媒体3月14日报道， 辉瑞首席执行官Albert Bourla 周日在接受采访时表示，由于免疫力下降，第四剂冠状病毒疫苗将是必要的。 人们将不得不为每年接种与流感相同的加强剂疫苗做好准备。他说，就像流感疫苗一样，冠状病毒疫苗可能成为美国人每年都会接种的疫苗。该公司正在向美国食品和药物管理局提交数据，说明需要第四剂中共病毒疫苗。
+编辑与校对：冰糖葫芦喵
 
-布尔拉在这次采访中重申，辉瑞公司正在努力制造一种疫苗，可以预防包括Omicron在内的所有变体，而且还可以保护至少一年。他的评论，是在关于辉瑞和Biontech的第三次加强剂注射，以及FDA在1月份向12至15岁的儿童扩大使用单一加强剂剂量的混合信息之后发表的。
+《英国每日邮报》3月12日报道，**英国基于研究结果显示，用来诊断病毒的“黄金标准”PCR检测检测到的人实际上并没有被感染。一位科学家表示，PCR检测在一年前就应该被取消。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/55274547-10606107-image-m-13_1647121672195-e1647290258927.jpg)图片来源：网络。
+报道指出，**在英国就进行了超过2亿次的病毒检测，**可能会将普通感冒和流感误认为冠状病毒。这将意味着**这些病例中有许多本不应该被计入每日的统计中，**而这一数字被用来为有关封锁和其他大流行措施的决定提供信息。
 
-在辉瑞不得不公布其“ 特别关注的不良反应报告”后两周，让世人注意到了1291种 疫苗副作用。 又来推广第四针疫苗，并且要年年打， 真是丧心病狂。
+据悉，**许多被检测出阳性的人被迫隔离，给经济造成了巨大压力，他们做了不必要的事情。**
 
-**新闻来源：**[Pfizer CEO says fourth dose of COVID vaccine is “necessary,” submits data to FDA – CBS News](https://www.cbsnews.com/news/covid-vaccine-fourth-dose-booster-pfizer-ceo-albert-bourla/)[辉瑞首席执行官：由于免疫力下降，第四次COVID疫苗”必要” (nypost.com)](https://nypost.com/2022/03/13/pfizer-ceo-fourth-covid-shot-necessary-due-to-waning-immunity/)
+必须指出的是，这种说法已被所谓的顶级专家彻底驳斥。而那些**愿意相信这种担忧的科学家在社交媒体上遭到了谴责，被指责，甚至被同行边缘化。**
+
+3月12日，《星期日邮报》(the Mail on Sunday)在最新系列文章的第一部分中，调查了**政府在大流行期间经常说他们遵循的“科学”**是否**存在缺陷，至少在某些方面是错误的。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/120888706_78544dda-b30c-4174-bf5d-d1a7538ee54e.jpg-1.jpg)英国防疫政策严重失误（图片来源：网络）
+未来几周，**英国将调查中共病毒死亡数字是否被夸大了**。封锁是否弊大于利。
+
+上个月，研究慈善机构Collateral Global和牛津大学(Oxford University)的学者发布了一份报告，得出了同样的结论。**报告称，多达三分之一的阳性病例（600万例）可能没有传染性。**
+
+报道指出，**牛津大学的科学家们称英国的这项每月花费20亿英镑的测试计划“混乱而浪费”。**
+
+新闻采集：文逗。
+
+新闻来源链接：
+
+[Did flawed tests convince us Covid was worse than it really was? (dailymail.co.uk)](https://www.dailymail.co.uk/health/article-10606107/amp/Did-flawed-tests-convince-Covid-worse-really-was.html)
 
  
 

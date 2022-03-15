@@ -2,107 +2,37 @@
 ---
 
 
-## 克鲁兹参议员：是时候结束暴虐的强制疫苗了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2165459/)
+## 港股遭遇“黑色星期一”，港币联系汇率再度接近红线
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2165483/)
 
-Ted Cruz (Texas Senator)
-泰德·克鲁斯（德克萨斯州参议员）
+#### 【雅典娜观察】和您一起洞察世界
 
-Well, Sean, let me start with just a word of encouragement
-好吧，肖恩，让我先说一句鼓励的话
+整理/编辑：文泓
 
-As you noted, I spent the day with the People’s convoy
-正如你所说，我和人民车队一起度过了一天
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/71EPOXQ25CQ0M4G@HVI.png)图片来源：Chicago Today & 雅典娜设计组
 
-I went and joined them this morning
-今天早上我去参加了他们
 
-spoke with them and then joined the convoy, rode in the lead rig
-与他们交谈，然后加入车队，乘坐领头的车
+3月14日周一，港股遭遇“黑色星期一”，市场主要指数全线下挫，其中恒生指数跌幅超1000点，创下2020年5月以来最大单日跌幅，自2016年以来首次跌破两万点关口。
 
-They’re circling the beltway around Washington, DC
-他们环绕在华盛顿特区的环城公路上
+截至收盘，恒生指数跌4.97%或者1022.13点，报收19531.66点；恒生科技指数跌11.03%或者468.37点，报收3778.60点；恒生国企指数跌7.15%或者505.05点，报收6,555.55点。
 
-and then the lead rig we broke off from the convoy
-然后我们领头的车从车队中脱离
+在恒生指数成分股中，美团(HK:3690)和阿里巴巴(HK:9988)分别下跌16.84%和10.09%，仅这两只股票给大盘累计贡献跌幅超300个点，占今日恒生指数总跌幅(1022点)近三分之一。
 
-We headed straight to the Capitol in Washington, D.C.
-我们直奔华盛顿特区的国会大厦
+当日港币美元联系汇率收报7.83，再度接近7.85的红线，港币联系汇率再度遭遇重大考验。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-156.png)图片来源：英为财经
+对于港股近期大幅调整，有媒体分析受近期美国证监会首次披露五家因《外国公司担责法》被暂时列入“预摘牌清单”的公司，引起投资者对于海外中概股担忧，而且海外货币紧缩预期、俄乌冲突不确定性，都使市场忧虑加剧。墙内媒体猜测是近期香港疫情大爆发导致港股大跌。
 
-And I gotta tell you, it was inspirational
-我得告诉你，这很鼓舞人心
+按照郭先生的分析，以往只要港交所所长李小加动一下金手指，再大的利空袭来港股跌幅都有限。从3月14日港股遭遇“黑色星期一”来看，金手指已完全失灵，香港的投资者“用脚投票”、去意已决。同期港币对美元联系汇率已经逼近7.85红线，这一切绝非偶然。
 
-Seeing truckers from all over the country
-看到来自全国各地的卡车司机
+参考链接：[港股再遇“黑色星期一” 恒指收跌超千点](https://cn.investing.com/news/stock-market-news/article-2088696)
 
-they started in California, they came all across the country
-他们从加利福尼亚开始，他们横跨全国各地
+发布：tianzhihuan
 
-their numbers grew and grew and grew
-他们的人数越来越多，越来越多
-
-so that you had 1000s of truckers
-所以就有了 1000 多名卡车司机
-
-you had 1000s of RV’s and cars and people supporting them
-有 1000 辆房车和汽车，还有支持他们的人
-
-standing up for freedom standing up against these illegal
-捍卫自由反对这些非法行为
-
-and unconstitutional vaccine mandates
-和违宪的强制疫苗规定
-
-And the thing that was so powerful
-非常的震撼
-
-is as we would drive along lining the streets
-像我们沿着街道行驶时
-
-there would be people with signs, people with American flags waving
-会有人举着牌子，挥舞着美国国旗的人
-
-Sean, just about every overpass that we went under
-肖恩，我们走过的几乎每一个立交桥
-
-There were people lined up there waving flags
-那里有挥舞旗帜的人排队
-
-saying thank you, giving you the thumbs up
-说谢谢，竖起大拇指
-
-And I do think the disaster that is Washington
-我确实认为华盛顿的灾难
-
-that is Biden and Schumer and Pelosi the abuse
-那是拜登、舒默和佩洛西烂用职权
-
-that we’re seeing from Washington
-我们从华盛顿在看到的
-
-the one good thing is it is waking people
-如果它能唤醒人们，那是一件好事
-
-原视频链接: [https://twitter.com/sentedcruz/status/1502117538637004842?s=24](https://twitter.com/sentedcruz/status/1502117538637004842?s=24)
-
-Date:03/11/2022
-原视频标题:Senator Cruz: It’s time to end the tyrannical vaccine mandate!
-克鲁兹参议员：是时候结束暴虐的强制疫苗了！
-原视频日期：2022/03/10
-原视频链接https://twitter.com/sentedcruz/status/1502117538637004842?s=24
-任务编号：KE449（3979）
-视频时间段 : 0:00-1:10
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

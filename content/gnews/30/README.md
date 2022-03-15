@@ -2,34 +2,22 @@
 ---
 
 
-## 英国科学家表示 中共病毒PCR检测有严重缺陷
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2164773/)
+## 秘翻在线: 深圳封锁令对全球供应链造成新打击
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2164960/)
 
-翻译：冰糖葫芦喵
+撰稿：西枫westca
 
-编辑与校对：冰糖葫芦喵
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-7-1.jpg)图片来源：网络照片
+知名数字媒体公司Axios 首席经济记者尼尔欧文（Neil Irwin）3月13日发推说， 深圳对于中共病毒的新的封锁令将会对美国的通货膨胀造成巨大的不利影响， 但这个信息还未被广泛报道。
 
-《英国每日邮报》3月12日报道，**英国基于研究结果显示，用来诊断病毒的“黄金标准”PCR检测检测到的人实际上并没有被感染。一位科学家表示，PCR检测在一年前就应该被取消。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/55274547-10606107-image-m-13_1647121672195-e1647290258927.jpg)图片来源：网络。
-报道指出，**在英国就进行了超过2亿次的病毒检测，**可能会将普通感冒和流感误认为冠状病毒。这将意味着**这些病例中有许多本不应该被计入每日的统计中，**而这一数字被用来为有关封锁和其他大流行措施的决定提供信息。
+深圳市疫情防控指挥部3月13日发布全市社区小区封闭式管理，公交、地铁停运， 除担任防疫任务的工作人员，均居家办公，暂停生产经营活动一周。全员三轮核酸检测。这座1700多万人的大城市，连同邻近的号称“世界加工厂” 的东莞一同进入“慢生活”。
 
-据悉，**许多被检测出阳性的人被迫隔离，给经济造成了巨大压力，他们做了不必要的事情。**
+深圳市是世界大部分技术制造业的所在地，而世界上大多数工业产品都可以在东莞企业群体的“工业生物链”中找到与其相配套的行业和产品。苹果供应商富士康已关闭两家生产iPhone的工厂。
 
-必须指出的是，这种说法已被所谓的顶级专家彻底驳斥。而那些**愿意相信这种担忧的科学家在社交媒体上遭到了谴责，被指责，甚至被同行边缘化。**
+在中共国，主要从事制造业的城市封锁不仅会影响本国的经济复苏， 还可能对全球供应链会造成新的打击。对于已高达7.9%（2月统计数字）通货膨胀率的美国，多种产品的供应链断裂，对经济的打击会是雪上加霜。
 
-3月12日，《星期日邮报》(the Mail on Sunday)在最新系列文章的第一部分中，调查了**政府在大流行期间经常说他们遵循的“科学”**是否**存在缺陷，至少在某些方面是错误的。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/120888706_78544dda-b30c-4174-bf5d-d1a7538ee54e.jpg-1.jpg)英国防疫政策严重失误（图片来源：网络）
-未来几周，**英国将调查中共病毒死亡数字是否被夸大了**。封锁是否弊大于利。
-
-上个月，研究慈善机构Collateral Global和牛津大学(Oxford University)的学者发布了一份报告，得出了同样的结论。**报告称，多达三分之一的阳性病例（600万例）可能没有传染性。**
-
-报道指出，**牛津大学的科学家们称英国的这项每月花费20亿英镑的测试计划“混乱而浪费”。**
-
-新闻采集：文逗。
-
-新闻来源链接：
-
-[Did flawed tests convince us Covid was worse than it really was? (dailymail.co.uk)](https://www.dailymail.co.uk/health/article-10606107/amp/Did-flawed-tests-convince-Covid-worse-really-was.html)
+**新闻来源：**[Neil Irwin on Twitter: “We’re currently living in the brief moment between when Finance/Econ Twitter has realized that the new Covid lockdowns in Shenzhen are going to have hugely bad consequences for US inflation, but that has not yet become a widely-reported conventional wisdom.” / Twitter](https://mobile.twitter.com/Neil_Irwin/status/1503202338340757516)[富士康因新冠疫情封锁在深圳停产 – 协议 (protocol.com)](https://www.protocol.com/bulletins/shenzhen-lockdown-manufacturing)
 
  
 

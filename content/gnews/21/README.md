@@ -2,43 +2,113 @@
 ---
 
 
-## 加拿大卫星公司提供雷达图像帮乌抗俄
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2165374/)
+## 美国称: 乌克兰没有生物武器计划
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2165375/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/C.jpg)anytvnews.com
-据《真北方》（TRUE NORTH）3月13日报道，加拿大卫星制造商MDA正在向乌克兰提供近乎实时的卫星图像，以监测俄罗斯部队的动向。
+Linda Thomas-Greenfield (US ambassador to the UN)
+琳达·托马斯-格林菲尔德（美国驻联合国大使）
 
-“我们可以提供情报报告，人们可以从我们的雷达图像确定地面或海上的情况。”MDA首席执行官迈克·格林利（Mike Greenley）星期二告诉路透社，“这一切都是为了……做正确的事情，给乌克兰提供他们需要的支持。”
+Russia asks the Security Council for today’s meeting for the sole purpose
+俄罗斯要求安理会召开今天会议的唯一目的
 
-格林利说，在合成孔径雷达（SAR）图像中，”你可以看到车辆群，你可以看到建筑物的变化，你可以看到桥梁的变化，你可以在所有天气条件下看到海上的船只，无论白天还是黑夜。”
+of lying and spreading disinformation
+撒谎和传播虚假信息
 
-据格林利说，这些情报是通过设在西方的商业机构或政府传达给乌克兰的。他补充说，MDA在3月4日得到了加拿大政府的批准，与乌克兰分享这些图像。
+and that is exactly what you have heard from the Russian PR this morning
+这正是你今天早上从俄罗斯公关那里听到的
 
-当被问及他是否担心俄罗斯的报复时，格林利说，MDA已经采取了 “略微提高的安全姿态”。
+You also heard from Ms. Nakamitsu
+你也从中満 女士你了听到了的消息
 
-乌克兰数字转型部长米哈伊洛·费多罗夫（Mykhailo Fedorov）两周前曾在推特上向国际社会发出呼吁，要求提供合成孔径雷达（SAR）卫星数据。
+that the UN is not aware of any biological or chemical weapons programs in Ukraine
+联合国不知道乌克兰有任何生物或化学武器计划
 
-“我们非常需要有机会观察俄罗斯军队的动向，尤其是在夜间，而我们的技术是盲目的。”费多罗夫3月1日在推特上说。
+Last month, Secretary Blinken laid out with tragic accuracy
+上个月，布林肯国务卿给出了悲惨的准确性
 
-俄罗斯称其在乌克兰的行动为 “特别行动”，声称其目的不是为了占领领土。
+what Russia was about to do
+俄罗斯打算做什么
 
-MDA的举动是加拿大和加拿大公司对俄罗斯采取的一系列行动中最新的一次。这些行动包括禁止俄罗斯银行业务，对俄罗斯飞机关闭加拿大领空，以及将俄罗斯酒类从政府经营的酒类商店的货架上移除。
+he specifically warn that Russia would manufacture a pretext for attack
+他特别警告俄罗斯会制造攻击的借口
 
-值得注意的是，总理贾斯汀·特鲁多于2月28日宣布禁止从俄罗斯进口原油。“这个行业占俄罗斯联邦预算收入的三分之一以上。”特鲁多说，“虽然加拿大近年来进口的数量很少，但这项措施发出了一个强有力的信息。”
+and even cautioned that Russia would fabricate allegations about chemical or biological weapons
+甚至警告说俄罗斯会捏造有关化学物质或生物武器的指控
 
-**特评**：
+to justify its own violent attacks against the Ukrainian people
+为自己对乌克兰人民的暴力袭击辩护
 
-加拿大是五眼联盟之一，是G7也是北约成员国，经过加拿大政府的批准，这样的加拿大公司作为商业机构给乌克兰提供情报技术支持。
+Today, the world is watching Russia do exactly what we warned it would
+今天，全世界都在注视着俄罗斯完全按照我们的警告行事
 
-由此，联想到伊隆·马斯克为乌克兰提供的星链，我们新中国联邦的前线救助义工们在波兰边境Medyka搭起的最大帐篷周围使用的就是用星链的接收器为各国战地记者、国际救援组织和难民们无偿提供WIFI，意大利达芬奇农场的文科战友在现场反馈的信息显示，网速特别快，比他们在附近定的酒店提供的WIFI还快很多。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/S.jpg)图片由意大利达芬奇农场文科拍摄![](https://assets.gnews.org/wp-content/uploads/2022/03/T.jpg)
-现磨的咖啡、德国钢琴家帐篷外现场的演绎，提供用户名“New Federal State of China”（新中国联邦）、密码“takedownccp”（消灭中国共产党）的最快WIFI，再加上篝火和帐篷内的煤气灯、鼓风机和生活用品一应俱全，当然还有义工日夜辛苦付出的爱与热情，感动了所有身处困难中的人们，让我们搭建的帐篷成了最温暖的七星难民救助中心。
+Russia is attempting to use the Security Council to legitimize disinformation
+俄罗斯正试图利用安理会使虚假信息合法化
 
-参考链接：
+and deceive people to justify President Putin’s war of choice against the Ukrainian people
+并欺骗人们为普京总统对乌克兰人民的选择战争辩护
 
-[https://tnc.news/2022/03/13/canadian-satellite-company-helping-ukraine-fight-russia/](https://tnc.news/2022/03/13/canadian-satellite-company-helping-ukraine-fight-russia/)
+and China, too, has been spreading disinformation in support of Russia’s outrageous claims
+而且中国也一直在散布虚假信息，以支持俄罗斯的无耻主张
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+I will say this once: Ukraine does not have a biological weapons program
+我要说一次：乌克兰没有生物武器计划
+
+There are no Ukrainian biological weapons laboratories supported by the United States
+没有美国支持的乌克兰生物武器实验室
+
+not near Russia’s border or anywhere
+不在俄罗斯边境或任何地方
+
+So here are the facts: Ukraine owns and operates his own public health laboratory infrastructure
+事实如下：乌克兰拥有并运营着自己的公共卫生实验室基础设施
+
+These facilities make it possible to detect
+这些设施可以检测
+
+and diagnose diseases like COVID-19 which benefit us all
+并诊断像 COVID-19 这样有益于我们所有人的疾病
+
+the United States has assisted Ukraine to do this safely and securely
+美国已协助乌克兰安全可靠地做到这一点
+
+This is work that has been done proudly, clearly and out in the open
+这是一项自豪、清晰、公开地完成的工作
+
+This work has everything to do with protecting the health of people
+这项工作与保护人们的健康息息相关
+
+It has absolutely nothing, absolutely nothing to do with biological weapons
+它与生化武器完全无关，与生化武器完全无关
+
+In fact, it is Russia that has long maintained a biological weapon program in violation of international law
+事实上，长期违反国际法维持生物武器计划的是俄罗斯
+
+It is Russia that has well a well-documented history of using chemical weapons
+俄罗斯使用化学武器的历史有据可查
+
+It is Russia who is the aggressor here
+这里的俄罗斯才是侵略者
+
+原视频链接; [https://twitter.com/disclosetv/status/1502332454572548101?s=24](https://twitter.com/disclosetv/status/1502332454572548101?s=24)
+
+Date:03/13/2022
+原视频标题:US: Ukraine does not have a biological weapons program
+美国称: 乌克兰没有生物武器计划
+原视频日期：2022/03/12
+原视频链接https://twitter.com/disclosetv/status/1502332454572548101?s=24
+任务编号：KE452（3988）
+视频时间段 : 0:00-2:33
+
+英听校：洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 -好人有好报
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

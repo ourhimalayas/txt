@@ -2,8 +2,8 @@
 ---
 
 
-## 20220313郭文贵大直播 ：世界上最漂亮的飞机 -空客319
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2165359/)
+## 20220313郭文贵大直播 ：中共被踢出SWIFT的结局是什么
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2165367/)
 
 作者：东京樱花团小视频组
 
