@@ -2,40 +2,59 @@
 ---
 
 
-## 因指挥官未接种疫苗 美海军拒绝其部署军舰
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2165611/)
+## 全球疫情疫苗数据更新（10天中发生的4个病例）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2165682/)
 
-翻译：噜噜咪
+整理：枳实
+美工：精灵蓝
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1031862068_06020251199_1920x0_80_0_0_01d09f1aafa57a09cc3a6bfca324d669.png)图片来源：路透社
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/1-129.png)图片：雅典娜农场设计组 精灵蓝
 
-美国海军军舰因指挥官以宗教反对为由拒绝接种COVID疫苗而无法进行部署。与此同时，服务人员正在联合起来进行法律斗争，对美国政府的疫苗强制令提起诉讼。
 
-尽管一位联邦法官最近裁定，在根据宗教豁免拒绝COVID-19疫苗后，不能将这位不知名的指挥官免职，但海军官员仍然拒绝部署该舰。
+雅典娜疫情更新（2022年 3月14日）
 
-上个月由法官史蒂芬·D·梅里迪发布的初步禁令禁止海军和海军陆战队对这位不知名的指挥官进行纪律处分，同时禁止他的中校（也提出反对因宗教豁免而接种疫苗）被要求接种疫苗以继续工作。据《海军时报》报道，此案“提出了关于军队良好秩序和纪律与军人作为美国公民的合法权利之间的界限问题”。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-这并不是军方第一次因疫苗强制令而受到抨击。上个月，美国陆军宣布它将“立即开始让拒绝接种COVID-19疫苗的士兵离开部队”。
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-78.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-63.png)
+**疫情随笔**
 
-关于未接种疫苗的士兵，陆军进一步表示，那些寄希望基于医疗或宗教原因获得豁免的士兵将在审查他们的请求时“暂时免于”接种疫苗。
+过去10天发生的病例：
 
-据称，有关指挥官已经造成了与COVID有关的监管问题。佛罗里达州2月28日的文件称，该指挥官此前在生病上班后无视海军程序，使“几十个”船员暴露于COVID中。在正在进行的法律诉讼中，有争议的是，如果一名指挥官自己不遵守命令，他就不能领导320名船员，但该指挥官和其他未接种疫苗的工人仍然坚定地选择不接种疫苗，这是他们的第一修正案权利。
+疫苗灾难尚未到来，然而端倪已经不断出现，笔者身边的已经开始发现起因蹊跷的肿瘤病人，耳闻的发生在身边的副作用病例更是不计其数。推特上有一位医生罗列了最近10天来在新闻中的病例：
 
-内华达州长的共和党候选人乔伊·吉尔伯特本周在他的推特上写道：“根据海军的说法，因为指挥官拒绝接种COVID-19疫苗，一艘美国驱逐舰无法部署。相比我们的国家安全，国家更关心你的疫苗接种状况。”德克萨斯州参议员泰德·克鲁兹说：“拜登的非法疫苗强制令现在正在积极破坏美国的国家安全。”
+- 棒球运动员前道奇王牌投手Odalis Perez去世，享年44岁 。
+- 前澳大利亚板球运动员Shane Warne死于52岁，心脏病发作。
+- 澳大利亚工党参议员Kimberley Kitching死于52岁，心脏病发作，而当时她正在驾车，所幸成功在路边停车。
+- 名模Hailey Bieber年仅25岁，因发现中风症状而入院，诊断为脑部血栓。
 
-虽然法律斗争仍在继续，但已经有469人因拒绝接种中共病毒COVID-19疫苗而被离职。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-53.png)
+[2022年3月14日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月14日改进-1.pdf)
 
-根据海军的数据，有4593名现役军人和3241名预备役军人仍未接种疫苗。到目前为止，只有12名现役军人获得了永久医疗豁免；另有212人获得了临时医疗豁免。对COVID-19疫苗的宗教豁免申请仍有待批准。
+数据来源：
 
-**参考资料：**[thenationalpulse][U.S. Navy Refuses to Deploy Warship Due to Unvaccinated Commanding Officer](https://thenationalpulse.com/2022/03/12/u-s-navy-refuses-to-deploy-warship-due-to-unvaccinated-commanding-officer/)
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-* * *
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-*审核：文乐*
-*校对：小东*
-*发布：信心的选择*
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-9.jpeg)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

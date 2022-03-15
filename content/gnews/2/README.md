@@ -2,59 +2,43 @@
 ---
 
 
-## 全球疫情疫苗数据更新（10天中发生的4个病例）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2165682/)
+## 3/15/2022 银河快讯: 官房副长官表示射杀美国记者是 &#8220;不可接受的&#8221;;网络犯罪集团对丰田公司的声明：&#8221;盗取的超过15万个案例机密信息将被公开&#8221;
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2165746/)
 
-整理：枳实
-美工：精灵蓝
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-14-at-8.19.49-PM.png)
+[图片来源](https://news.yahoo.co.jp/articles/b90394c1d00e16e484703b51a7d26f6d6917ce51/images/000)
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/1-129.png)图片：雅典娜农场设计组 精灵蓝
+**1. 内阁官房副长官表示射杀美国记者是 “不可接受的”**
 
+[据时事通信社3月14号报道，内阁官房副长官磯崎仁彦在新闻发布会上说，就据报道一名美国记者在乌克兰首都基辅郊区被俄罗斯军队枪杀一事，”新闻自由在任何国家都必须得到尊重”。他强调说：”如果是真的，对包括记者在内的平民的攻击是绝对不能接受的。”](https://news.yahoo.co.jp/articles/28440812b6202eb5cc171882e8665b500371123a)
 
-雅典娜疫情更新（2022年 3月14日）
+**2. 网络犯罪集团对丰田公司的声明：”盗取的超过15万个案例机密信息将被公开”**
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+[据东海电视3月14号报道，一个进行网络攻击的犯罪集团向丰田集团旗下的汽车零部件制造商Denso发出声明，称其将公布盗取的机密信息。据三井物产信息安全公司称，一个自称 “潘多拉 “的网络犯罪团伙在互联网上发表了这一声明。被盗信息包括订货明细，图纸等。这个团伙使用一种叫赎金软件的病毒软件来索取赎金。2月，丰田的商业伙伴小岛出版工业公司受到勒索软件的影响，导致丰田在日本的工厂暂时停产。丰田汽车公司表示，Denso于13日与他们联系，到目前为止还没有受到影响。](https://news.yahoo.co.jp/articles/acba83c77d4b28a7cd59d8c329ed72c1487ceeba)
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-78.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-63.png)
-**疫情随笔**
+**3. 日本金融厅为了防止俄罗斯利用比特币等加密资产逃避经济制裁，要求加密资产兑换商采取措施**
 
-过去10天发生的病例：
+[据NEWS WEB 3月14号报道，金融厅和财政部已要求30家加密资产交易所确保彻底检查客户指定的与俄罗斯进行加密资产交易的收取人地址，如果发现收取人受到经济制裁，将不发送此信件，并迅速向财政部报告，加强对交易的监督。西方和日本已经对俄罗斯实施了制裁，包括禁止一些银行进入SWIFT，这是一个涉及世界各地金融机构的国际支付网络，但有人指出，使用比特币等加密资产代替货币可能为制裁提供漏洞。金融厅加强措施，提高一系列制裁的有效性。](https://www3.nhk.or.jp/news/html/20220314/k10013530621000.html?utm_int=news-business_contents_news-main_004)
 
-疫苗灾难尚未到来，然而端倪已经不断出现，笔者身边的已经开始发现起因蹊跷的肿瘤病人，耳闻的发生在身边的副作用病例更是不计其数。推特上有一位医生罗列了最近10天来在新闻中的病例：
+**4. 本月开始在一部分地区试行使用数字货币发放福利金**
 
-- 棒球运动员前道奇王牌投手Odalis Perez去世，享年44岁 。
-- 前澳大利亚板球运动员Shane Warne死于52岁，心脏病发作。
-- 澳大利亚工党参议员Kimberley Kitching死于52岁，心脏病发作，而当时她正在驾车，所幸成功在路边停车。
-- 名模Hailey Bieber年仅25岁，因发现中风症状而入院，诊断为脑部血栓。
+[据NEWS WEB 3月14号报道，本月将进行一次 “数字货币 “的试发放，即可以取代纸币和硬币的电子货币。据官员称，本次试行活动将在福岛县会津若松市和宫城县气仙沼市进行，由包括主要银行和电信公司在内的约70家公司组成的联合体进行。该示范项目旨在利用数字货币为有孩子的家庭提供福利，符合条件的居民可以下载一个专门的应用程序，然后他们可以立即领取数字货币。收到的数字货币被用作优惠券，用于购买儿童护理项目。](https://www3.nhk.or.jp/news/html/20220314/k10013529891000.html?utm_int=news-business_contents_list-items_010)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-53.png)
-[2022年3月14日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月14日改进-1.pdf)
+**5.62.2%的公司计划在2022年增加招聘正式员工 ，上升到2018年以来的水平 **
 
-数据来源：
+[据帝国数据库3月14号报道，由于中共病毒（COVID-19）的传播，以及由此带来的控制人员流动措施的影响，包括防止病毒传播的优先措施，2022年2月全职员工和非全职员工的比例出现下降。关于2022财政年度（从2022年4月至2023年3月入职）的长期雇员招聘，62.2%的公司表示计划招聘比上次调查增加了6.9个点，是四年来第一次增加。25.5%的公司还表示，他们计划招聘的员工数量将 “增加”，自2018年中共病毒（COVID-19）传播之前，上升到四年来的最高水平，每四家公司就有一家预计会增加。](https://news.yahoo.co.jp/articles/25d75e32cb61de0f4f9c70d2044554bf46d73fdf)
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+**6. 岸田内閣 「支持」53％「不支持」25％ NHK民意調査**
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+[据NEWS WEB 3月14号报道，从本月11日开始的三天里，NHK采用RDD方法进行了一项民意调查，即用计算机生成的电话随机拨打全国18岁及以上人群的固定电话和手机号码。共有2202人被列为调查对象，56%，即1223人作出了回应。表示 “支持 “岸田内阁的人比上个月下降了一个百分点，至53%，而表示 “不支持 “的人下降了两个百分点，至25%。](https://www3.nhk.or.jp/news/html/20220314/k10013530451000.html)
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+【日本银河系农场-阿尔法星球】
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+中文文案：返朴归真
 
-[covidlive.com.au](https://covidlive.com.au/)
+校对：Totoro
 
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+素材：文德
 
  
 

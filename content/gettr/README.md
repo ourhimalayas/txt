@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 1:39 AM (UTC)`
+
+【Ukraine Rescue】In Medyka, Poland. ●How the Video Was Filmed on the Front Line of Rescue●Nicole and Mingdao, the two rescue members of New Federal State of China are  preparing to shoot a video in cold weather. Many of these people in our rescue team are working around the clock. It is the only rescue tent on the front line with 24-hour service. NFSC rescue team is the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity! <br/>【乌克兰救援】波兰梅迪卡，●救援一线的视频是如何拍出来的●<br/>新中国联邦救援团队的妮可和明道战友正在寒冷的天气下准备拍摄，我们救援团队的许多人正像他们一样夜以继日地工作着，我们的救援帐篷也是前线唯一24小时服务的救援点。新中国联邦救援团队是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类
+![img](https://media.gettr.com/group47/origin/2022/03/15/01/ac34439d-15be-4251-e687-cd5a6bca0c10/out.jpg)
+
+---
+
 `@miles 3/15/2022 1:14 AM (UTC)`
 
 2022.03.14 晚《新中国联邦新闻访谈》俄乌战争最新军事进展。新中国联邦救援最新情况。我们是消灭邪恶的中国共产党的新中国人。 沙利文杨洁篪在罗马会面，中东爆发危机。 美欧最新的数字货币令对喜币意味着什么。 香港与大陆的中共病毒疫情爆发，是否新的中共病毒变种？
@@ -150,13 +157,6 @@ Check us out 🇮🇹 <br/>www.GFASHION.com
 
 【Ukraine Rescue】03/13/2022 The German pianist played John Lennon's classic song Imagine in front of the NFSC's tents to thank the ROLF and the NFSC for bringing warmth and hope in the midst of war.<br/><br/>【乌克兰救援】03/13/2022 德国钢琴家在新中国联邦的帐篷前面演奏约翰·列侬的经典歌曲Imagine，感谢法治基金和新中国联邦在战争和硝烟中带来温暖和希望。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group35/getter/2022/03/14/21/c0f62249-39ea-0dce-d662-912cb2d999f2/out.jpg)
-
----
-
-`@miles 3/14/2022 9:50 PM (UTC)`
-
-【Ukraine Rescue】03/13/2022 The NFSC's freshly ground coffee attracted numerous journalists from the international media. We told them, "We are the new Chinese who are fighting the Communists, the Communists are the root cause of all humanitarian disasters in the world. Taking down the CCP is the necessity to preserve humanity." French war correspondent Emma Ball-Greene listened and expressed her support, saying, "I don't want to get killed by a Chinese crazy person, but I'm saying it, fxxx that Party!"<br/><br/>【乌克兰救援】03/13/2022 新中国联邦的现磨咖啡吸引了一批又一批的国际媒体的战地记者， 我们告诉每一位来喝咖啡的新闻记者“我们是灭共的新中国人，共产党是世界所有人道灾难的源头， 灭掉共产党是维护人性的必须”。这位来自法国的美女战地记者Emma Ball-Greene听了表示支持，她表示：“虽然我并不想被那些中共国的小粉红给杀死，但我就要说，干掉X X的共产党！”<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group11/getter/2022/03/14/21/571251d4-35d9-ac82-3ab5-0ba14a4cf6b8/out.jpg)
 
 ---
 
