@@ -2,35 +2,26 @@
 ---
 
 
-## 新中国联邦的战地记者Nicole，为您的视频点赞
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2163970/)
+## 年轻的妈妈突然死亡，是因为新冠疫苗吗？
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2164135/)
 
-**作者、编辑：Candy**
-**视频提供：Nicole**
+#### 翻译                       意大利达芬奇农场                              小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-14-alle-18.11.00.png)图片来源：eventiavversinews.it
+据《意大利报》报道，一位年轻的母亲斯黛拉•洛玛尼尼死于不明原因的突然死亡。
 
-尊敬的Nicole女士，您好!
+这跟新冠疫苗有关吗？
 
-我非常喜欢这个小视频，因为您言简意赅、又非常完整地介绍了故事发生的时间、地点、视频里的人物是谁、他们正在做什么和将要做什么。其中，将要在此举行现场国际救援会议的原因，给我留下了非常深刻的印象。虽然只有两句，但包含了大量的信息：
+斯黛拉在她所生活的城市是一位深受爱戴且知名的妇女。当她的父亲斯坦法若在她家门前被射了15枪而死亡时，她才是个小姑娘。自2011年2月起斯黛拉从未放弃过寻求正义。
 
-第一、我们的豪华大帐蓬是波兰梅迪卡救援营地条件最好的。因为它面积最大，有暖炉、各种食物、饮用水、儿童乐园，还有香气四溢的现磨咖啡。大家都知道，是郭先生特别要求提供的这个咖啡机。他说：欧洲人最重视早晨的第一杯咖啡，因为它预示着美好一天的开始。
+斯黛拉•洛玛尼尼在卢卡出生长大，她最近还在那儿与尼古拉结了婚， 两人生下漂亮的孩子，小乔娅。是她的丈夫发现她躺在床上一动不动，已经死了，没有任何生命迹象。尼古拉叫来了救护车，但已经晚了。
 
-第二、因为刚刚送走一批难民。我们从视频中可以看出：战友们已经搞好卫生，清理完现场。难怪棚内看不到了众多难民，而是非常干净整齐的环境。
+斯黛拉就这样离开了她深爱的家庭。她还有一位母亲和一个姐妹。人们通过社交媒体对她的不幸离去发出了无数慰问。
 
-所以，我为您的这个视频点赞；我还要给这样的现场管理点个大赞！
+正如一开始所预料的那样， 在斯黛拉•洛玛尼尼去世的消息传出后，网上许多人都怀疑她的突然死亡与新冠疫苗有关。有些人开始对新冠疫苗持慎重态度， 特别是当所有年龄段的男人、女人，年轻人和孩子都开始突然死亡。 网上流传着对此产生的疑问。目前对于这位死去的年轻母亲还没确定是不是由疫苗引起的。
 
-注意安全、保重身体，期待您的更多报道。
+原文链接：[https://www.eventiavversinews.it/camaiore-stella-romanini-morta-per-malore-improvviso-la-causa-e-il-vaccino-covid/](https://www.eventiavversinews.it/camaiore-stella-romanini-morta-per-malore-improvviso-la-causa-e-il-vaccino-covid/)
 
-一个从视频里认识您的战友，Candy。
-
-2022.3.15美国
-
-***发布：Candy***
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+编辑、上传： Xiao   baige
 
  
 

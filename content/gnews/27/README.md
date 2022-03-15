@@ -2,35 +2,22 @@
 ---
 
 
-## 美国警告中共国不要在乌克兰问题上帮助俄罗斯
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2164939/)
+## 秘翻在线: 深圳封锁令对全球供应链造成新打击
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2164960/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：西枫westca
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0059.jpg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-7-1.jpg)图片来源：网络照片
+知名数字媒体公司Axios 首席经济记者尼尔欧文（Neil Irwin）3月13日发推说， 深圳对于中共病毒的新的封锁令将会对美国的通货膨胀造成巨大的不利影响， 但这个信息还未被广泛报道。
 
+深圳市疫情防控指挥部3月13日发布全市社区小区封闭式管理，公交、地铁停运， 除担任防疫任务的工作人员，均居家办公，暂停生产经营活动一周。全员三轮核酸检测。这座1700多万人的大城市，连同邻近的号称“世界加工厂” 的东莞一同进入“慢生活”。
 
-图片来源：路透社
+深圳市是世界大部分技术制造业的所在地，而世界上大多数工业产品都可以在东莞企业群体的“工业生物链”中找到与其相配套的行业和产品。苹果供应商富士康已关闭两家生产iPhone的工厂。
 
-自入侵的第一周以来，这是自第二次世界大战以来对欧洲国家的最大袭击，东南港口已被军队包围，数十万人没有食物或水。
+在中共国，主要从事制造业的城市封锁不仅会影响本国的经济复苏， 还可能对全球供应链会造成新的打击。对于已高达7.9%（2月统计数字）通货膨胀率的美国，多种产品的供应链断裂，对经济的打击会是雪上加霜。
 
-自 2 月 24 日袭击事件开始以来，俄罗斯尚未占领乌克兰 10 个最大城市中的任何一个，克里姆林宫称这次袭击为“特殊军事行动”，旨在使其邻国非军事化和“去纳粹化”。
-
-据美国官员称，俄罗斯已要求北京提供军事和经济援助。
-
-莫斯科否认这一点，称其拥有足够的军事资源来实现其所有目标。中共国外交部将有关援助的报道称为“虚假信息”。
-
-在国家安全顾问杰克沙利文在罗马会见中国最高外交官杨洁篪时，一名美国官员表示，中共国已表示愿意向俄罗斯提供援助。
-
-美国国务院发言人内德·普赖斯周一对记者说：“我们已经与北京非常清楚地沟通，我们不会袖手旁观。” “我们不会允许任何国家补偿俄罗斯的损失。”
-
-西方正在权衡如何应对来自中国、全球最大出口国和美国第一大外国商品供应商的任何参与。乌克兰危机也引发了自治台湾的担忧，北京发誓要收回台湾。
-
-俄罗斯国家电视台是数百万俄罗斯人的主要新闻来源，并密切关注克里姆林宫的路线，但周一，在第一频道的主要新闻节目期间，一个演播室发生了罕见的反战抗议活动。一个女人举着一个英文和俄文的标语：“NO WAR。停止战争。不要相信宣传。他们在这里骗你。”
-
-🔗 [https://www.reuters.com/world/uk/diplomacy-efforts-step-up-after-russian-strike-ukraine-base-2022-03-14/](https://www.reuters.com/world/uk/diplomacy-efforts-step-up-after-russian-strike-ukraine-base-2022-03-14/)
-
-编辑发表： Shuizhuyu
+**新闻来源：**[Neil Irwin on Twitter: “We’re currently living in the brief moment between when Finance/Econ Twitter has realized that the new Covid lockdowns in Shenzhen are going to have hugely bad consequences for US inflation, but that has not yet become a widely-reported conventional wisdom.” / Twitter](https://mobile.twitter.com/Neil_Irwin/status/1503202338340757516)[富士康因新冠疫情封锁在深圳停产 – 协议 (protocol.com)](https://www.protocol.com/bulletins/shenzhen-lockdown-manufacturing)
 
  
 

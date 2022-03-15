@@ -2,26 +2,34 @@
 ---
 
 
-## 定义习近平、中共国和 21 世纪的时刻
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2165149/)
+## 中共无耻阻挠新中国联邦救援信息的传播
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2165166/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+##### 作者：加拿大温哥华扬帆农场 – 文明(添草灭共)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/DWO-Teaser-XiJinping-biden-aw.jpg)
+3月10日，澳洲的［悉尼乌克兰协会］在其官网首页登载了［新中国联邦］关于乌克兰人道救援的联络信息，介绍了新中国联邦和爆料革命的愿景和目标，声称该举措是新中国联邦的人道主义行动，帮助流离失所的人撤离到其他国家。然而不到24小时该信息被撤下，令人费解。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111-6.jpg)图片来源：hromada
 
-图片来源：法新社
+据文贵先生3月11日的大直播透露，其原因是中共外交部无耻抹黑新中国联邦是非法组织，并用14亿人的市场对乌克兰政府进行威胁所致。这是中共对身陷乌克兰战区亟需救助的各国人民生命安全直接侵犯，再次暴露中共是世界和平与安全的破坏者。
 
-到目前为止，北京方面还没有对乌克兰战争表明明确的立场。现在，美国情报部门透露，普京已向他的共产主义盟友寻求武器支持。这一策略旨在敦促中共国做出重大承诺。
+救援前线的战友们不为所动，各项营救工作仍在有条不紊地进行。新中国联邦的人道救援无欲无求，不仅展现了新中国人真诚、勇敢、友善的新面貌，也成为救援现场各大媒体争相报道的焦点。
 
-美国希望敦促中共国改变其在乌克兰战争中的亲俄路线。为了做到这一点，他们正在使用他们也用来对付莫斯科的策略：尽早披露情报，以破坏对方的努力并影响政治领导层的决策过程。据美国媒体援引美国政府消息人士的话称，据说俄罗斯已要求中共国支持其战争努力。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/222-1.jpg)图片来源：gettr
 
-事实上，讨好中共国已经成为这场战争中的第二条外交战线。美国人在阻止中共国支持俄罗斯方面投入了大量精力。对中共国来说，对俄罗斯的承诺不仅会产生严重的经济后果。
+[新闻来源](https://gettr.com/streaming/pzg47d4994)
 
-🔗 [https://www.welt.de/politik/ausland/plus237534235/Pekings-Waffen-fuer-Moskau-Entscheidender-Moment-fuer-Xi-China-und-das-21-Jahrhundert.html](https://www.welt.de/politik/ausland/plus237534235/Pekings-Waffen-fuer-Moskau-Entscheidender-Moment-fuer-Xi-China-und-das-21-Jahrhundert.html)
+编辑/上传 – 熙攘
 
-编辑发表： Shuizhuyu
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,8 +2,8 @@
 ---
 
 
-## 20220313郭文贵大直播 ：将来财产最安全的就是灭共的投资G系列的新中国联邦人
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2165342/)
+## 20220313郭文贵大直播 ：中共被踢出SWIFT的结局是什么
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2165367/)
 
 作者：东京樱花团小视频组
 
