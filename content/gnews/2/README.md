@@ -2,24 +2,30 @@
 ---
 
 
-## 中共国动用预备役军人应对疫情失控
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2170327/)
+## NFSC新闻、G|TV新闻访谈简报|2022年3月15日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2170421/)
 
-原文采编：文莱      翻译编辑：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-17.jpg)图片来源：Japan Times
-据加拿大《CTV新闻》3月14日引述台北报道称，由于“奥密克戎”变种大爆发，中共国周一开始禁止人员流动，并动用预备役军人来执行封锁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-5.jpg)
 
-据中共国国家卫生委员会的报告，在最近的24小时内有1,337个本地传播的病例，其中大部分发生在东北吉林省。由此，该省民众不同城市间的流动必须得到警方的许可，同时拥有900万人口的长春市从上周五已经开始全城封锁。与此同时，东部沿海和内陆的其他省市也有病例报道，深圳市在周日进入全城封锁。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-15.png)
+文章仅代表作者本人观点，与Gnews无关
 
-而在香港，由于其计算病例的方法与大陆不同，同一时间内报告了最近26908个新病例和249例死亡。
+视频参看：
+[2022.03.15早 《NFSC新闻》](https://gettr.com/streaming/p104qwc6790)
+[2022.03.15早 G|TV《新闻访谈》](https://gettr.com/streaming/p105enx4887)
 
-中共国一向隐瞒其疫情真相，数据造假。公开的数据远远低于真实情况。但是，中共国封城，封小区以及动用预备役军人等一系列举动，传递出了很多的真相。通过正常逻辑思维，不难看透CCP一贯的假、骗、黑。不论任何，纸包不住火，只是时间和代价问题。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-原文链接：https://www.ctvnews.ca/health/coronavirus/china-battles-multiple-outbreaks-driven-by-stealth-omicron-1.5818035
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-18.jpeg)
 
-编辑/上传：文所未闻
-
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

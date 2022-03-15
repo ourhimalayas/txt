@@ -2,39 +2,37 @@
 ---
 
 
-## DC每日热点0315
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2170317/)
+## Hcoin To the Moon上线103天第37次位列新加坡iTunes摇滚音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2170354/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2022/03/80DC4B4B-94C1-458F-A930-114EBE100724-scaled.jpeg)
-道琼斯指数 33279.52 ▲1.02%
-纳斯达克指数 12798.39 ▲1.73%
-WTI纽约原油CFD 94.017 ▼8.73%
-布伦特原油CFD 98.124 ▼8.21%
-标普50指数 1,748.71▼68.62%
-美元兑人民币 1USD=6.371 RMB
-美元兑港币 1USD=7.824 HKD
-国际黄金 1908.00美元/盎司
-全球CCP病毒感染人数460,593,540例
+3/15/2022 郭文贵先生的歌曲Hcoin To the Moon上线103天第37次位列新加坡iTunes摇滚音乐榜首
 
-1、不畏战火，欧盟三国领导人前往基辅 展示对乌克兰的支持
-2、俄罗斯“央视”黄金档节目直播被反战编辑举牌打断
-3、报告：全球武器贸易略有下降，但欧洲、东亚和大洋洲的武器进口增加
-4、俄军继续炮击基辅 第四轮和谈结束 未取得突破
-5、美将领：盼中共国汲取教训，未受挑衅攻击邻居会遭致比俄罗斯更强烈国际反应
-6、欧安组织主席：俄罗斯在乌克兰行为等同“国家恐怖主义”
-7、最高法院拒绝允许阿桑奇对遣返决定提出上诉
-8、香港特首指不能与深圳封城比较 现阶段没能力全民强检
-9、土库曼大选揭晓：儿子谢尔达尔当选接替父亲古尔班古力成为总统
-10、欧盟周二正式批准针对俄罗斯入侵乌克兰的一连串新制裁措施，其中包括禁止对俄能源行业的投资，禁止奢侈品出口和禁止从俄罗斯进口钢铁产品
-11、俄罗斯财长表示，在西方制裁阻止动用美元和欧元外汇后，俄罗斯将使用其外汇储备中的人民币
-12、约翰逊敦促欧洲国家快快与俄罗斯能源脱钩
-13、王毅称俄乌冲突中共国持中立立场 不应受制裁影响
-14、媒体披露法国向俄罗斯出售军火直到2020年
-15、土耳其总统埃尔多安称排除购买更多俄武器
-16、法国取消疫苗证 无需戴口罩旋风” 机队
-17、阿里和腾讯股价再暴跌 大裁员消息上热搜
-18、乌总统顾问：俄乌战争可能在5月结束
+* * *
+
+[【PDF 下载】Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_102.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
+
+
+[【PDF 下载】Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Tuesday-15-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
