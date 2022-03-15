@@ -2,23 +2,22 @@
 ---
 
 
-## 白宫对中共支持俄国的公开表态
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2169953/)
+## 德国排俄事件
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2169989/)
 
-**编译:verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/33-8.jpg)
-3月14日当地时间美国国家安全顾问杰克·沙利文在罗马与中共国最高外交官、政治局委员杨洁篪进行了长达7小时的会晤。
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-25.jpg)
+自2月底乌克兰被入侵以来，在德国的俄罗斯人已成为数百起袭击事件的受害者。
 
-美国国务院已经证实这次会晤美方对中共的指控：
+德国警方报告说，自普京上个月下令入侵乌克兰以来，在德国发生了数百起针对俄罗斯裔人的犯罪事件
 
-- 沙利文已经直接和非常清楚地提出了美国对中共国在俄入侵乌克兰后支持俄罗斯的关切；
-- 美国已经非常清楚地告诉中共美方不会袖手旁观；
-- 美国对中共国目前与俄罗斯的关系 “深表关切” ，美国官员不愿就中共国是否援助俄罗斯发表评论
+根据《世界报》的报道，自2月24日以来，有318起与犯罪有关的事件被报告给警方，有86起就发生在柏林一带。
 
+“据报道，担任德国反种族主义专员的Reem Alabali-Radovan说：”有些人不再敢在街上说俄语了。”这让我非常担心。” “还有对俄罗斯食品市场的攻击，儿童在学校受到侮辱，”她继续说。”我们不能容忍这些。”
 
-七哥在视频也说到美国与欧洲很认真的观察中共与俄国的动态。美国此公开的发言，就意味着美国灭共的态度会更加严厉。
+由于战争，俄国人被歧视和排挤。这只是在德国开头，慢慢地会蔓延开来的。可想而知，当中共被国际社会认为病毒是中共释放出来时，我相信排华的趋势会比俄国人更加严重，因为中共国人以前的傲慢和野蛮也增加了仇视的程度。以上的报道只是最轻级别的歧视与排挤的案例，请大家记得做好准备。
 
-**新闻来源：**https://www.zerohedge.com/geopolitical/here-are-all-latest-news-and-developments-ukraine-war-march-14
+**新闻来源**：[https://www.breitbart.com/europe/2022/03/14/ukraine-crisis-hundreds-of-criminal-attacks-on-russians-in-germany/](https://www.breitbart.com/europe/2022/03/14/ukraine-crisis-hundreds-of-criminal-attacks-on-russians-in-germany/)
 
  
 

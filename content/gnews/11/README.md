@@ -2,23 +2,34 @@
 ---
 
 
-## 德国排俄事件
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2169989/)
+## 【秘翻时评】 香港股市开市一度跌破1万9千点
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2170012/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-25.jpg)
-自2月底乌克兰被入侵以来，在德国的俄罗斯人已成为数百起袭击事件的受害者。
+By:[**秘翻时评**](https://gettr.com/post/p10517hf500)
 
-德国警方报告说，自普京上个月下令入侵乌克兰以来，在德国发生了数百起针对俄罗斯裔人的犯罪事件
+**[2022‑03‑15](https://gettr.com/post/p10517hf500)**
 
-根据《世界报》的报道，自2月24日以来，有318起与犯罪有关的事件被报告给警方，有86起就发生在柏林一带。
+**新闻内容:**
 
-“据报道，担任德国反种族主义专员的Reem Alabali-Radovan说：”有些人不再敢在街上说俄语了。”这让我非常担心。” “还有对俄罗斯食品市场的攻击，儿童在学校受到侮辱，”她继续说。”我们不能容忍这些。”
+1.悔帮普京大官宣！俄电视台员工举反战标语闯入播出
+2.美中高层密会7小时 警告中共勿暗助俄罗斯
+3.台湾南北都停电 影响4000户
+4.香港股市开市一度跌破1万9千点
 
-由于战争，俄国人被歧视和排挤。这只是在德国开头，慢慢地会蔓延开来的。可想而知，当中共被国际社会认为病毒是中共释放出来时，我相信排华的趋势会比俄国人更加严重，因为中共国人以前的傲慢和野蛮也增加了仇视的程度。以上的报道只是最轻级别的歧视与排挤的案例，请大家记得做好准备。
+**今日主题内容:**
 
-**新闻来源**：[https://www.breitbart.com/europe/2022/03/14/ukraine-crisis-hundreds-of-criminal-attacks-on-russians-in-germany/](https://www.breitbart.com/europe/2022/03/14/ukraine-crisis-hundreds-of-criminal-attacks-on-russians-in-germany/)
+1. 欧盟成员国将对俄实施第四次制裁措施
+2. 香港股市彻底崩塌
+3. 新中国联邦前线救援战友接受世界媒体
 
+
+喜欢记得点赞订阅分享喔！！
+Gettr链接：**[https://gettr.com/post/p10517hf500](https://gettr.com/post/p10517hf500)**
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
