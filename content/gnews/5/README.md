@@ -2,29 +2,35 @@
 ---
 
 
-## 【 G时新闻 】联合国呼吁采取行动防止战争导致全球粮食体系崩溃
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2169735/)
+## 中共与俄罗斯合演“围魏救赵”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2169796/)
 
-播报：加拿大温哥华扬帆农场 – 莉李鲤
+作者：纽约磐石农场 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月13日的《文贵大直播》中，郭文贵先生揭露了中共和俄罗斯“围魏救赵”的阴谋。当下，中俄两大邪恶独裁政权企图破坏中东和平，以达到阻止西方制裁，让中共脱身攻打台湾的目的。
 
-视频制作：加拿大温哥华扬帆农场 – 文雅
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-7.jpeg)
 
-据法国国际广播电台3月14日报道，联合国秘书长古特瑞斯警告称，俄、乌之战可能对全球粮食供应产生深远的后果，可能导致“全球粮食体系崩溃，饥荒四起”。世界上45个开发程度最低的国家进口的小麦，至少有1／3产自乌克兰和俄罗斯。联合国全球粮价指数现在已经达到历史最高点。
+郭先生表示，近日中东地区突然点燃的战火，是习近平和普京的“围魏救赵”计划。即俄罗斯在侵略乌克兰的同时，中共要配合普京拦截美国和西方的金融制裁，由中共国、俄罗斯、伊朗、朝鲜和中东一些小国，所组成的邪恶轴心，在破坏中东地区的和平。计划包括把中东所有石油设施彻底摧毁，点燃第三次世界大战的战火，使西方石油供应崩溃，以此来反击西方把俄罗斯踢出SWIFT系统，甚至有可能对中共采取同样的制裁措施。美国虽然是石油净出口国，但是石油价格影响着美国的经济和就业。而作为对石油和能源完全依赖的欧洲，则会被迫对俄罗斯妥协，放弃金融手段制裁俄罗斯，中共此时就可以趁机攻打台湾。
 
-古特瑞斯表示：“这场战争造成的的冲击波远远超出乌克兰，同时也对世上最脆弱的人民和国家形成打击。即使在开战之前，发展中国家就因通贷膨胀、利率上涨和债务负担而难以走向复苏，如今他们的粮仓又遭到了轰炸”。世界粮食计划署（WFP）供应的小麦有半数以上产自乌克兰。
+郭先生警告说，接下来在沙特、叙利亚、伊拉克等地方的美军基地，所受到的袭击会超出世界的想象，不排除孤注一掷的中共独裁核心再次放毒威胁全球的可能。
 
-战争带来的除了死亡，就是社会秩序和各种体系的崩塌，尤其是中共病毒还在全球肆虐，疫苗灾难即将发生的时候。俄罗斯入侵乌克兰所带来的恶劣影响还没有开始，但已然能预见：不久的将来，一定会有大量的难民和饥饿的灾民让整个世界不堪重负，一定会有可怕的疫苗灾难产生。
+参考链接：[3/13/2022 文贵直播：中共和普京合演“围魏救赵”](https://www.gettr.com/post/pzu0jre025)
 
-一定要停止战争，消灭中共，切断中共对俄罗斯的供应。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-原文链接：[https://gnews.org/zh-hans/2166178/](https://gnews.org/zh-hans/2158133/)
+总编：Zion文恩
+编辑：Ivy001   
+审核：Zion文恩
+校正/发稿：谐趣园
 
-视频链接：[https://gettr.com/post/p103yv8a8df](https://gettr.com/post/p103yv8a8df)
-
-发稿：野草
-
-————————————————————————————————————
-![](https://assets.gnews.org/wp-content/uploads/2022/03/加载内容.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

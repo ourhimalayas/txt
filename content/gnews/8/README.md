@@ -2,33 +2,36 @@
 ---
 
 
-## 泰国向疫苗受害者支付巨额赔偿
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2169716/)
+## 英国防部消息人士称俄只能再维持两周的战斗
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2169753/)
 
-作者：温哥华扬帆农场—動物農莊裡的小螞蟻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据泰国当地媒体3月10日的报道，从去年5月到今年3月初，泰国政府已向12,714 名接种中共病毒疫苗后出现不良反应的人支付了约15.09亿泰铢，约合4565万美元的经济赔偿。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-上午11.24.15.png)
-泰国国家卫生安全办公室NHSO规定，任何在接种疫苗后出现不良副作用的人都可以申请初始经济援助，而无需等待确认这些影响是由疫苗接种引起的。他表示，即使后来证明副作用不是由接种疫苗引起的，NHSO也不会要求索赔人退款。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/u.jpg)usadailybrief.com
+《每日邮报》3月15日报道，俄罗斯军队可能在乌克兰只能再维持14天的战斗。该报援引英国国防部消息人士的话说，两周后，俄罗斯军队可能难以守住他们在乌克兰占领的土地。
 
-据悉，泰国全国有13个小组每周开会审议这些经济援助申请，付款将在专家组批准索赔后的五天内支付。对于被拒绝的索赔，索赔人可以在30天内向NHSO秘书长提出上诉。分析人士指出，泰国2021年的人均国内生产总值为7千多美元，并不富裕。但泰国NHSO制定了非常简单明了的赔偿时限，申诉通道，甚至不对误赔的案例追索，彰显了人道主义的关怀。
+消息人士坚持认为，俄军正在逃亡中。而且消息人士称，在14天内，乌克兰的抵抗力应该比入侵部队更强。
 
-参考链接：[泰国对疫苗受害者的赔偿制度让中共国粉红情以何堪?](https://gnews.org/zh-hans/2163306/)
+“很快，俄罗斯被击落的直升机数量将达到数百架。”乌克兰总统泽连斯基说，“他们已经损失了80架战机，数百辆坦克，以及数千个其他单位的设备。在19天内，俄罗斯军队在乌克兰的损失比在车臣的两场血腥的、长达数年的战争中的损失还要多。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+与此同时，据美联社报道，在周二黎明前不久，俄罗斯的一系列打击袭击了基辅的一个居民区。这些袭击引发了一场大火，并在一栋15层的公寓楼里展开了救援。
 
-编辑：宁文静
-总编：宁文静
-审核：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+据美联社报道，至少有一人死亡，其他人仍被困在里面。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+市区一个地铁站的入口被爆炸产生的冲击波损坏。该站曾被用作防空洞。
+
+据《纽约邮报》报道，乌克兰国家警察说，俄罗斯军队星期二袭击了9个定居点，至少有53处民用设施在袭击中受损。这些地点包括居民楼、学校和公用事业基础设施。有平民和警察受伤。
+
+《每日邮报》指出，俄罗斯国民警卫队队长维克多·佐洛托夫（Viktor Zolotov）周二承认，“不是一切都像我们希望的那样快速发展”。但是，他仍然发誓俄罗斯将 “一步步 “取得胜利。
+
+**特评：**普通人没有人希望任何火战继续打下去，但发动这场战争的普京和习已经疯狂，他们只为了一己私利而将乌克兰和俄罗斯拉入灾难深渊。
+
+从这个消息看到的是俄罗斯军队毫无士气，俄罗斯国内反战浪潮迭起，但相信俄乌之战不会很快结束。
+
+参考链接：
+
+[https://www.dailymail.co.uk/news/article-10613069/Putins-forces-able-fight-14-days-military-experts-say.html](https://www.dailymail.co.uk/news/article-10613069/Putins-forces-able-fight-14-days-military-experts-say.html)
+
+**编译 发布：意大利罗马达芬奇农场 Roma**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

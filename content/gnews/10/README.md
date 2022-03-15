@@ -2,33 +2,29 @@
 ---
 
 
-## 波兰总理呼吁应冻结俄国海外资产重建乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2169714/)
+## 【 G时新闻 】联合国呼吁采取行动防止战争导致全球粮食体系崩溃
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2169735/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒消息，当地时间3月14日，波兰总理莫拉维茨奇表示，应该把隶属俄罗斯政府、以及俄国金融寡头的海外冻结资产，用以成立一个基金来帮助乌克兰的战后重建。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-上午11.23.45.png)
-莫拉维茨奇在会晤立陶宛和乌克兰总理后表示，波兰将全面冻结并没收俄罗斯的国家资产。他呼吁国际社会，应当通过以俄罗斯为基础的大型基金，为乌克兰进行重建工作。
+播报：加拿大温哥华扬帆农场 – 莉李鲤
 
-据悉，目前俄军的侵略行为，已经摧毁了乌克兰的大量基础设施和民众赖以生存的家园，迫使超过280万难民逃离该国。西方社会已因此对俄罗斯的个人和相关金融寡头，实施了严厉的金融制裁。其中包括俄罗斯外长拉夫洛夫，以及英超球队切尔西的老板布拉莫维奇等人。
+视频制作：加拿大温哥华扬帆农场 – 文雅
 
-参考链接：[波蘭總理：以凍結的俄國資產重建烏克蘭](https://www.rti.org.tw/news/view/id/2127217)
+据法国国际广播电台3月14日报道，联合国秘书长古特瑞斯警告称，俄、乌之战可能对全球粮食供应产生深远的后果，可能导致“全球粮食体系崩溃，饥荒四起”。世界上45个开发程度最低的国家进口的小麦，至少有1／3产自乌克兰和俄罗斯。联合国全球粮价指数现在已经达到历史最高点。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+古特瑞斯表示：“这场战争造成的的冲击波远远超出乌克兰，同时也对世上最脆弱的人民和国家形成打击。即使在开战之前，发展中国家就因通贷膨胀、利率上涨和债务负担而难以走向复苏，如今他们的粮仓又遭到了轰炸”。世界粮食计划署（WFP）供应的小麦有半数以上产自乌克兰。
 
-编辑：谐趣园
-总编：Zion文恩
-审核：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+战争带来的除了死亡，就是社会秩序和各种体系的崩塌，尤其是中共病毒还在全球肆虐，疫苗灾难即将发生的时候。俄罗斯入侵乌克兰所带来的恶劣影响还没有开始，但已然能预见：不久的将来，一定会有大量的难民和饥饿的灾民让整个世界不堪重负，一定会有可怕的疫苗灾难产生。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+一定要停止战争，消灭中共，切断中共对俄罗斯的供应。
+
+原文链接：[https://gnews.org/zh-hans/2166178/](https://gnews.org/zh-hans/2158133/)
+
+视频链接：[https://gettr.com/post/p103yv8a8df](https://gettr.com/post/p103yv8a8df)
+
+发稿：野草
+
+————————————————————————————————————
+![](https://assets.gnews.org/wp-content/uploads/2022/03/加载内容.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
