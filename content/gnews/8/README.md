@@ -2,30 +2,20 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月15日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2170421/)
+## 俄军入侵乌克兰引发汹涌难民潮
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2170544/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-5.jpg)
+加拿大温哥华扬帆农场    平民正道
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-15.png)
-文章仅代表作者本人观点，与Gnews无关
+据美国【极限新闻】3月14日报道，最新数据显示，俄乌战争已导致逃离乌克兰的难民人数接近300多万，成为欧洲自二战以来最严重的人道危机。
 
-视频参看：
-[2022.03.15早 《NFSC新闻》](https://gettr.com/streaming/p104qwc6790)
-[2022.03.15早 G|TV《新闻访谈》](https://gettr.com/streaming/p105enx4887)
+报道称，在与乌克兰边境接壤的中东欧地区，包括波兰、斯洛伐克、罗马尼亚、匈牙利等国政府和各地志愿救援者正在为涌入其境内的数百万妇女和儿童提供食物、住宿和医疗援助。欧盟官员表示，最终逃离的难民人数将超过500万人。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+对此，作为救援行动中最重要的力量，法治基金和新中国联邦将于近日组成包括专业安保人员在内的救援团队，率先于各国首次奔赴乌克兰境内的交战区，直接救助当地急需撤离的妇孺和被困华侨。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-18.jpeg)
+* * *
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑： 平民正道    发布：平民正道
 
  
 
