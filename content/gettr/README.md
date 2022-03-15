@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 1:14 AM (UTC)`
+
+2022.03.14 晚《新中国联邦新闻访谈》俄乌战争最新军事进展。新中国联邦救援最新情况。我们是消灭邪恶的中国共产党的新中国人。 沙利文杨洁篪在罗马会面，中东爆发危机。 美欧最新的数字货币令对喜币意味着什么。 香港与大陆的中共病毒疫情爆发，是否新的中共病毒变种？
+![img](https://media.gettr.com/group8/origin/2022/03/15/01/6b6fcf7e-0388-7aaa-3ba7-dcad429539f2/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/15/2022 12:35 AM (UTC)`
 
 2022.03.14 晚 《新中国联邦新闻》灭共的新中国联邦人是未来免受制裁的唯一人群； 郭先生解析Swift系统的意义
@@ -150,13 +157,6 @@ Check us out 🇮🇹 <br/>www.GFASHION.com
 
 【Ukraine Rescue】03/13/2022 The NFSC's freshly ground coffee attracted numerous journalists from the international media. We told them, "We are the new Chinese who are fighting the Communists, the Communists are the root cause of all humanitarian disasters in the world. Taking down the CCP is the necessity to preserve humanity." French war correspondent Emma Ball-Greene listened and expressed her support, saying, "I don't want to get killed by a Chinese crazy person, but I'm saying it, fxxx that Party!"<br/><br/>【乌克兰救援】03/13/2022 新中国联邦的现磨咖啡吸引了一批又一批的国际媒体的战地记者， 我们告诉每一位来喝咖啡的新闻记者“我们是灭共的新中国人，共产党是世界所有人道灾难的源头， 灭掉共产党是维护人性的必须”。这位来自法国的美女战地记者Emma Ball-Greene听了表示支持，她表示：“虽然我并不想被那些中共国的小粉红给杀死，但我就要说，干掉X X的共产党！”<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group11/getter/2022/03/14/21/571251d4-35d9-ac82-3ab5-0ba14a4cf6b8/out.jpg)
-
----
-
-`@miles 3/14/2022 9:44 PM (UTC)`
-
-【Ukraine Rescue】03/14/22 On the morning of March 14, representatives of all volunteer organizations in Medyka gathered in our NFSC & ROLF Ukraine Humanitarian Rescue Tent for a meeting to discuss the systematic management of the entire camp. This was a meeting of heads of relief bases initiated by the UN and the International Red Cross, as well as by organizations such as Rescuers Without Borders. Our NFSC rescue team also participated in it.<br/> <br/>【乌克兰救援】03/14/22 3月14日早，梅迪卡口岸所有义工组织的成员代表集中到我们新中国联邦法治基金乌克兰人道救援帐篷中开会，讨论整个营地的系统化管理。这是由联合国和国际红十字会，以及无国界救援者等组织发起的救援基地负责人会议。我们新中国联邦救援队也参与其中。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group3/getter/2022/03/14/21/d772df00-1476-4139-6fb9-a90c21d53417/out.jpg)
 
 ---
 
