@@ -2,59 +2,34 @@
 ---
 
 
-## 全球疫情疫苗数据更新（10天中发生的4个病例）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2165682/)
+## 意大利电视台采访Nicole
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2165694/)
 
-整理：枳实
-美工：精灵蓝
+在接受意大利媒体采访时，妮可分享说，法治基金赞助了免费巴士和包机，以帮助救援任务，拯救乌克兰人，中国学生以及远离战区的其他国籍人士。驻扎在波兰的新中国联邦成员将在必要时协助营救难民。代表中国人民的，爱好和平和争取自由的新中国联邦人是支持这次救援任务的志愿者。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/1-129.png)图片：雅典娜农场设计组 精灵蓝
+妮可：新中国联邦和法治基金送来了所有这些中国人。我们都是志愿者，我们不仅帮助援救中国人、学生，还有所有的人。我们已经成功救援了350名乌克兰人和所有[其他]国籍的人。我们还成功地救援了96名来自乌克兰尼科波尔的儿童。他们有些是父母或父亲都在战斗中，这就是为什么父母不得不把他们的孩子送到孤儿院。所以我们与国际人权律师和政府合作，我们把这些孩子安全地送到了西班牙的巴塞罗那。
 
+没有总部设在纽约的法治基金的赞助，我们无法做到 。因为很多的捐款来自热爱自由的中国人民，他们渴望法治、和平、正义和自由。这就是为什么所有的志愿者，我们穿着这件夹克。只要有需要，我们就会一直在这里。而且我们会提供包机把他们[被救援者]从波兰送到纽约；我们还有另外一个时间表会免费把他们从波兰送到东南亚的某个国家。我们也提供巴士不停地接人，从战区送到一个在波兰的安全的地方。
 
-雅典娜疫情更新（2022年 3月14日）
+记者：是的，是的，你说他们已经被遗弃了，你的意思是什么？
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+妮可：我从波兰军队和与我交谈的人那里了解到的情况是：有些父亲或丈夫，他们必须留在乌克兰打仗。
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-78.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-63.png)
-**疫情随笔**
+记者：我是说一些外国人，比如中国人
 
-过去10天发生的病例：
+妮可：中国人，是的
 
-疫苗灾难尚未到来，然而端倪已经不断出现，笔者身边的已经开始发现起因蹊跷的肿瘤病人，耳闻的发生在身边的副作用病例更是不计其数。推特上有一位医生罗列了最近10天来在新闻中的病例：
+记者：他们必须要旅行穿过这个边境？
 
-- 棒球运动员前道奇王牌投手Odalis Perez去世，享年44岁 。
-- 前澳大利亚板球运动员Shane Warne死于52岁，心脏病发作。
-- 澳大利亚工党参议员Kimberley Kitching死于52岁，心脏病发作，而当时她正在驾车，所幸成功在路边停车。
-- 名模Hailey Bieber年仅25岁，因发现中风症状而入院，诊断为脑部血栓。
+妮可：中国学生和中国人，他们正在挣扎。他们没有得到足够的援助或救援。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-53.png)
-[2022年3月14日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月14日改进-1.pdf)
+记者：这是为什么呢？
 
-数据来源：
+妮可：因为中国共产党政府没有尽他们的责任来帮助自己的人民。这就是为什么新中国联邦我们代表全球热爱和平、自由和正义的中国人，法治基金正在送新中国联邦的成员来到边境这里帮助中国人民。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+记者： 谢谢你！
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+视频剪辑：文零| 听写，校对： Polaris |翻译：烟波浩淼 | 视频制作+字幕： CG. | 编辑：|发布：叶子
 
  
 

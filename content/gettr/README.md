@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@elyon 3/15/2022 1:45 AM (UTC)`
+
+10分钟前，有一位小男孩找到我，他和母亲得到我们贴心帮助后很感动，主动用翻译器打下如下文字，看了后我感到浑身像充电了一样。充满了自豪感，感觉无比高大！他问我们是哪里人，我说是新中国联邦人，他的年纪未必知道其中的含义，但我听懂了他在多次重复”Chinese”， 并树起了拇指， 母亲还向我要了联系方式呢！ 朋友就是这样交上的，用爱心。 我询问过男孩的母亲，他们很愿意将我我跟男孩的这张合影作新闻发布。❤️❤️❤️
+![img](https://media.gettr.com/group27/getter/2022/03/15/01/64fcc287-8066-c192-87d8-53dcf8e367b1/bb0fb0bafa005c3455c10f2d573925a7.jpg)
+
+---
+
 `@miles 3/15/2022 2:28 AM (UTC)`
 
 
@@ -152,13 +161,6 @@ Check us out 🇮🇹 <br/>www.GFASHION.com
 
 3/13/2022 Miles Guo: What is the basis for kicking Russia out of SWIFT? Why will the CCP be kicked out of SWIFT next? What will be the consequences of being removed from SWIFT?<br/><br/>3/13/2022 文贵直播：把俄罗斯踢出SWIFT有何依据？为什么接下来中共也会被踢出SWIFT系统？被取消SWIFT后会造成什么后果？<br/>
 ![img](https://media.gettr.com/group13/getter/2022/03/14/22/4c61245c-eb42-fecc-175a-349ea1bde362/out.jpg)
-
----
-
-`@miles 3/14/2022 10:02 PM (UTC)`
-
-3/13/2022 Miles Guo: What did Liu Yanping whisper to me back then? What message did Liu Yanping help the Zeng family deliver to me? The day Liu Yanping was arrested, his daughter and mother-in-law committed suicide. Why was Liu Yanping able to be promoted to the CCP’s Central Commission for Discipline Inspection overnight? Who is the “prostitute-type” politician in the CCP?<br/><br/>3/13/2022 文贵直播：当年刘彦平跟文贵耳语说了啥？刘彦平帮曾家捎了什么信给文贵？刘彦平被抓当天，其女儿和岳母自杀；刘彦平为何能一夜之间升到中纪委？谁是“妓女型政客”？<br/>
-![img](https://media.gettr.com/group50/getter/2022/03/14/22/b81aa252-7c4f-ba78-5fa9-d3c214af9b79/out.jpg)
 
 ---
 

@@ -2,23 +2,36 @@
 ---
 
 
-## 乌克兰电视塔遭击中至少9死9伤
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2165906/)
+## 俄执政党拟让对遵守西方制裁的实体和个人进行刑事处罚
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2166021/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3542258-PH.jpg)图片来源：乌克兰陆军参谋总部脸书
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-俄军入侵乌克兰至今进入第20天，乌克兰多个城镇都受到攻击，平民死伤不断上升。乌克兰西北部罗夫诺州（Rivne region）州长科瓦尔 （Vitaliy Koval）指出，一座电视塔和附近的一栋行政大楼遭飞弹击中，造成酿9死9伤，该州电视和电台都停止播放。
+整理/编辑：围剿维尼熊
 
-简评：在战争中，媒体是十分重要的一部分，及时向世界传出战争真相，可以唤醒更多的正义力量！俄军攻击乌克兰电视塔，无疑是阻断媒体传播的一部分，在这个时候，一个能传播真相正义的媒体显得十分的重要，请全世界的媒体为正义发声，不要在消极沉默的了！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
 
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1085023)
 
-撰稿/发布：一叶知秋
+根据大纪元3月15日讯，俄罗斯执政党统一俄罗斯党领导人周一（3月14日）警告，该党正在提议，让那些遵从西方国家对俄罗斯实施制裁的公司承担刑事责任。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+统一俄罗斯党总委员会书记安德烈‧图尔恰克（Andrey Turchak）表示，该党近期将为俄罗斯议会准备相关修正案。
+
+图尔恰克称，该党提议“对遵守和执行西方制裁的此类（商业）实体及其管理人员确定严厉的责任，包括刑事责任”。
+
+在俄罗斯入侵乌克兰后，除了西方政府采取的经济制裁手段，各国公司也纷纷退出或暂停在俄罗斯的业务。俄罗斯已逐渐成为一个“经济孤岛”。
+
+西方国家在对俄罗斯实施严厉制裁的同时，也在防范其采取措施规避制裁，包括使用中共的银行系统绕过限制其使用SWIFT支付系统的制裁。
+
+参考链接：[https://www.epochtimes.com/gb/22/3/14/n13646095.htm](https://www.epochtimes.com/gb/22/3/14/n13646095.htm)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
