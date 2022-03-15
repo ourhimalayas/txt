@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 9:51 PM (UTC)`
+
+3/15/2022 Miles Guo: Han Zheng sneaked back to Shanghai disregarding the Pandemic restriction rule in Beijing, where did he go? After Pangu’s dragon head turned into turtle head, ‘Guo Wengui’s name became a taboo in the CCP and made Han Zheng shudder<br/><br/>3/15/2022 文贵直播：韩正竟然冲破禁止出京的限制偷偷潜回上海，他去干嘛了？“郭文贵”三个字对中共的震慑力太大了，竟然能把韩正从椅子上震起来，看来龙头改龟头，阳气上升了<br/>
+![img](https://media.gettr.com/group44/getter/2022/03/15/21/c6dabc2a-e9f6-b668-3d00-c0108540e057/out.jpg)
+
+---
+
 `@miles 3/15/2022 8:04 PM (UTC)`
 
 NFSC and ROLF Ukraine Humanitarian Rescue Mission<br/>
@@ -150,14 +157,6 @@ On 14 March, in the large tent of the New Federal State of China（NFSC）,<br/>
 
 3月14号：今天一直很兴奋太多太多的好消息了，但是看了这位战友的对．7哥的过度的鼓励，突然有点儿晕了……俺去睡觉觉去了。【极高的智商 + 超强的情报来源 + 超强的情报分析整合能力 + 对事物本质的认识和对世界运转深刻的阅历。这就是我认识的七哥，独一无二，世界就这么一个七哥。🙏🏻】
 ![img](https://media.gettr.com/group30/getter/2022/03/15/03/4f2cd036-1f81-fa34-6086-f50b5b318c2e/5399fcc84e1cb32ec708c8b34a78c6f6.jpg)
-
----
-
-`@miles 3/15/2022 3:43 AM (UTC)`
-
-3月14日：真正的爱是没有边界的．不分种族和宗教的．中国人只有懂得了与全世界的人和平共处．互相尊敬．不要再活在那些低级的种族主义和拉仇恨的政治操作中，中国人才能真正的获得世界上的尊重……<br/>中国共产党通过洗脑控制的中国的十几亿奴隶……所有的灾难的问题的根本原因，就是中国人没有信仰，对人绝对不尊重．导致了中国现在与天斗．与地斗．天天斗人乐在其中的灾难！轮回灾难中！无法形容的严重后果。
-> `@himalayadcfarm 3/14/2022 7:24 PM (UTC)`<br/>🆘🇺🇦🆘战地咖啡日记<br/>❤️来自英国《每日快报》（Daily Express) 和 《太阳报》（The Sun Newspaper) 的记者品尝着新中国联邦人的咖啡，感叹这是他们喝过的最好的咖啡☕❤️<br/>❤️我们的帐篷宽敞明亮，整洁温馨。我们的咖啡蕴含着浓浓的爱意，这些都在传递着人类文明之精神！<br/>🆘🇺🇦🆘 Battlefield Coffee Diary <br/>❤️Two Gentlemen from the Daily Express (UK) and The Sun Newspaper tasted the coffee and exclaimed that it was the best one they have had! <br/>❤️ Our tent is bright, clean, and welcoming. Our coffee is full of love, and all of this conveys the spirit of human civilization!<br/>##NFSCRescue <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine<br/><br/>️
-![img](https://media.gettr.com/group33/origin/2022/03/14/19/7d0e0964-8f80-7869-2c31-3d4cc0857746/out.jpg)
 
 ---
 

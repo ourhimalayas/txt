@@ -15,46 +15,46 @@
 
 ---
 
-### [秘翻在线: 与美国关系日趋紧张的沙特阿拉伯邀请习近平访问](/content/gnews/1/README.md)
+### [3/15/2022 文贵直播：中东为什么会燃起战火？因为中共要赌一把美国不会同时打乌克兰、中东和台湾的三场战争；但如果中共打台湾，美国一定会出手，会采取轰炸战略，但灭共还要靠中国人](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [秘翻在线: 与美国关系日趋紧张的沙特阿拉伯邀请习近平访问](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [灭共者之郭氏情报站（39）2022/03/15 文贵大直播](/content/gnews/2/README.md)
+### [沙特考虑放弃石油美元转向人民币结算](/content/gnews/3/README.md)
+ ` 蓝莲花农场`
+
+### [灭共者之郭氏情报站（39）2022/03/15 文贵大直播](/content/gnews/4/README.md)
  ` MOS Designer香草山设计部`
 
-### [2022/03/15 文贵先生直播重点大纲](/content/gnews/3/README.md)
+### [2022/03/15 文贵先生直播重点大纲](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022年3月15日大直播速记精萃](/content/gnews/4/README.md)
+### [2022年3月15日大直播速记精萃](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [【乌克兰救援】3/13乌克兰前线救援团队‘热线小组’ 哈雷、Feather、Kent接受采访（2）](/content/gnews/5/README.md)
+### [【乌克兰救援】3/13乌克兰前线救援团队‘热线小组’ 哈雷、Feather、Kent接受采访（2）](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [3/15/2022 文贵直播：韩正主使抓捕马建副部长，因为马健调查并掌握了韩私生子女和非法财产的秘密；韩正告诉亲信，俄乌战争开打预示中共的灭亡，因为习会攻打台湾，走上普京的不归路](/content/gnews/6/README.md)
+### [3/15/2022 文贵直播：韩正主使抓捕马建副部长，因为马健调查并掌握了韩私生子女和非法财产的秘密；韩正告诉亲信，俄乌战争开打预示中共的灭亡，因为习会攻打台湾，走上普京的不归路](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [国际媒体正在全面认知新中国联邦](/content/gnews/7/README.md)
+### [国际媒体正在全面认知新中国联邦](/content/gnews/9/README.md)
  ` 扬帆枫叶快讯`
 
-### [克拉科夫救援站迎来年龄最小的难民](/content/gnews/8/README.md)
+### [克拉科夫救援站迎来年龄最小的难民](/content/gnews/10/README.md)
  ` 扬帆枫叶快讯`
 
-### [3/15/2022 文贵直播：韩正竟然冲破禁止出京的限制偷偷潜回上海，他去干嘛了？“郭文贵”三个字对中共的震慑力太大了，竟然能把韩正从椅子上震起来，看来龙头改龟头，阳气上升了](/content/gnews/9/README.md)
+### [3/15/2022 文贵直播：韩正竟然冲破禁止出京的限制偷偷潜回上海，他去干嘛了？“郭文贵”三个字对中共的震慑力太大了，竟然能把韩正从椅子上震起来，看来龙头改龟头，阳气上升了](/content/gnews/11/README.md)
  ` 秘密翻译组-北美组`
 
-### [美国将严惩中共资助俄罗斯](/content/gnews/10/README.md)
+### [美国将严惩中共资助俄罗斯](/content/gnews/12/README.md)
  ` 扬帆枫叶快讯`
 
-### [美禁止采购错误标示台湾归属的地图](/content/gnews/11/README.md)
+### [美禁止采购错误标示台湾归属的地图](/content/gnews/13/README.md)
  ` 扬帆枫叶快讯`
 
-### [中共以疫情为由关闭深圳商业中心](/content/gnews/12/README.md)
- ` 扬帆枫叶快讯`
-
-### [俄军入侵乌克兰引发汹涌难民潮](/content/gnews/13/README.md)
- ` 扬帆枫叶快讯`
-
-### [俄罗斯已要求中共提供战争援助](/content/gnews/14/README.md)
+### [中共以疫情为由关闭深圳商业中心](/content/gnews/14/README.md)
  ` 扬帆枫叶快讯`
 
 ### [波兰救援前线归来话感动](/content/gnews/15/README.md)
