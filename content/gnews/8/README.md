@@ -2,29 +2,35 @@
 ---
 
 
-## 有声｜联合国吁迅速行动 防俄乌战使全球粮食体系崩溃
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2167234/)
+## 中东事件是中俄联手策划的围魏救赵
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2167339/)
 
-By:**秘翻新闻**
+作者：日本方舟农场Andy5 纽约香草山农场 文鹰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月13日的大直播中，郭文贵先生透露，目前中共和俄罗斯挑动伊朗等国对美国的攻击，搅乱中东局势，就是一场围魏救赵的行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-上午2.38.42.png)
+郭先生指出，现在中共、俄罗斯、北朝鲜、伊朗、沙特等组成的五大邪恶国家联盟，为了应对美国等西方文明国家的制裁，利用对中东地区的绝对控制，挑动胡塞武装轰炸沙特炼油厂、伊朗发射导弹攻击美军基地，在霍尔木斯海峡制造战争，打垮世界能源供给，用能源价格的攀升逼迫西方国家撤销对俄罗斯的制裁。同时，也让西方国家在中共趁乱攻台之际，忌惮能源危机而不敢做出任何制裁。
 
-**2022-03-15**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-39.png)图片来源 AFP
-[据中央社15日报道，联合国秘书长古特瑞斯（Antonio Guterres）当天警告称，由于俄罗斯进攻乌克兰，世界各国必须采取行动，以防止全球粮食体系崩溃导致饥荒四起，并呼吁立即终止俄乌战事。](https://cn.theaustralian.com.au/2022/03/15/64607/)
+郭先生强调，目前在中东发生的事件只是刚刚开始，更重大的事情将在近期发生。最终，中共和俄罗斯等邪恶轴心国，会遭到全世界的谴责和制裁，而中共高官们必将面临齐奥塞斯库的结局。
 
-[古特瑞斯表示，俄乌之战可能对全球粮食供应产生影响深远的后果，进而对最贫穷人口造成严重伤害。](https://cn.theaustralian.com.au/2022/03/15/64607/)
+参考链接：
+1.[https://www.gettr.com/streaming/pzrn4eb349](http://1.	https://www.gettr.com/streaming/pzrn4eb349)
+2.[https://gettr.com/post/pz3zdza229](http://2.	https://gettr.com/post/pz3zdza229)
 
-[他称：这场战争的冲击远超乌克兰本土，同时也对世上最脆弱的人民和国家形成打击。](https://cn.theaustralian.com.au/2022/03/15/64607/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-[古特瑞斯还指出，即使在开战之前，发展中国家就因【空前通贷膨胀、利率不断上扬和债务负担逼近 而难以摆脱疫情，走向复苏，如今他们的粮仓又遭到了轰炸】。世界粮食计划署（WFP）供应的小麦有半数以上产自乌克兰。](https://cn.theaustralian.com.au/2022/03/15/64607/)
+编辑：宁文静
+总编：文真
+审核：宁文静、文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[此外，古特瑞斯警告，联合国全球粮价指数现已达到历史最高点，世界上45个开发程度最低的国家所进口的小麦，至少有1／3产自乌克兰和俄罗斯。](https://cn.theaustralian.com.au/2022/03/15/64607/)
-
-秘翻新闻.玫瑰编辑报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

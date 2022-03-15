@@ -2,39 +2,29 @@
 ---
 
 
-## 中美“罗马会谈”，双方的目的是什么？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2167150/)
+## 樱花FM|中日财经爆:任天堂宣布停止向俄罗斯发货
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2167297/)
 
-#### **掌握情报，世界就在你脚下**
+音频：东京樱花团/战友520
+![](https://lh3.googleusercontent.com/3FbmqYKaUDhVak4UDPkalPZ4qsl4oEObVeixKITgPU9uVmFCaZ3SbAIfMWreWUsLJ8npxOBLAJcoXt6yxSFJY0iq4neXfMHngZF1tK554Lto9Z9A7TsrjcU-pu6PXxuS7Q)
+日本任天堂株式会社3月10日宣布，将停止向俄罗斯运送主游戏机“Nintendo Switch”和游戏软件。由于物流中断，恢复发货时间未定。
 
-**作者/编辑：幕紗公子**
+任天堂俄罗斯网店已停止以俄罗斯货币卢布进行交易，无法使用购买游戏等服务。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/10-28.png)图片来源：hotqiqi
+原定于4月在海外发售的Switch游戏软件《Advance Wars 1 + 2: Re-Boot Camp》的发布已被推迟。这是一款出现坦克等的游戏，据说“考虑到了世界局势”。
+
+任天堂是一家主要从事电子游戏的开发、制造与发行的日本公司，是目前世界三大游戏机生产商之一。
+
+文字版原文：
 
 
-习共祸乱中东，危及欧美能源经济基础，企图以颠覆美国权力秩序，进而以影响中期选举相要挟，欲使拜登政府放松对中俄的打压。
+| [中日财经爆┃任天堂宣布停止向俄罗斯发货](https://gnews.org/zh-hans/2136228/) |   |
+| --- | --- |
 
-罗马会谈，拜登政府是强硬？还是暂时隐忍缓兵？
 
-美国与中共国的经济还尚未脱钩，与政治党派利益相关的财阀涉中利益（在中国的投资及回报）可能会使拜登政府有所顾忌，因为该政府对各种未来事态的管控结果将影响党派在中期选举中的成败。
-
-习共先以挑动中东战火敲打美欧，借由欧洲不愿完全受制于美国的小算盘牵制美国对能源供给现状的改变。如果美国暂时选择绥靖，则相对释放了中共及俄罗斯的战略空间。
-
-拜登政府不得不顾忌本国与欧州的政治、经济、供应链的稳定。这是影响其继续当政与否的重要基础。
-
-依循郭文贵先生对于美扼杀中共之策略的明晰，美国以缓慢绞死中共的策略与中共急于改变被动现状的意图存在本质的战略冲突。
-
-因此“罗马谈判”不管双方达成了相关共识，还是美国继续选择以“缓兵慢图”，中俄已是刀俎下的鱼肉。
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

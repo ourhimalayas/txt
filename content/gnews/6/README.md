@@ -2,27 +2,35 @@
 ---
 
 
-## 樱花FM|美国暂缓向乌克兰提供战斗机 避免加剧俄罗斯紧张情绪
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2167243/)
+## 乌克兰准备谈判 但绝不投降
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2167373/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/RCVfI-Skh3b4s_ntrClbayI38aW3ONTFzPakI2Jjh5Zv4qiYXrW7cGlwmXXh4Y7OtIpzghu-RDxws76TO76vixpmShNPMJ5l8Mj_4mAoB2osUzm4CeRjnLGf8CSoBUy7NA)
-美国国防部发言人柯比9日宣布，将放弃参与向乌克兰提供波兰拥有的前苏联制造的战斗机的计划。认为与继续入侵乌克兰的俄罗斯之间存在加剧紧张局势的高风险。
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+乌克兰外交部长库列巴3月12日表示，乌克兰已对谈判做好准备，以结束两周前俄罗斯发动的入侵战争。他说，乌克兰不会投降，也不会接受最后通牒。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-上午2.39.00.png)
+库列巴在无党派、非营利组织“复兴民主倡议”召开的视频会议上表示，如果乌克兰拥有战斗机和更多攻击型飞机来摧毁俄军的大型军事纵队，就可以拯救更多百姓的生命。
 
-美国国防部长奥斯汀当天与波兰国防部长协商，表示美国政府“不支持”提供战机的计划。虽然乌克兰敦促提供战斗机，但计划落空。
+库列巴提及南部港口城市马立波时表示，虽然马立波遭到围困，但仍在乌克兰的控制之下。
 
-在美国和波兰之间，正在考虑将波兰拥有的前苏联战斗机“米格-29”送往乌克兰的计划。然而，一方面担心通过向乌克兰提供物资引起俄罗斯的强烈反对，另一方面还无法决定具体的运输路线。
+自俄罗斯2月24日入侵乌克兰后，迄今为止，已有至少250万人被沦为难民。西方国家迅速采取行动，要将俄罗斯孤立于世界贸易和全球金融体系之外。但库列巴表示，尽管有这些制裁，乌克兰仍然需要更多的军事物资，以及需要西方国家采取更多的措施，来打击俄罗斯的经济。
 
-文字版原文：
+参考链接：[Ukrainian foreign minister says ready to negotiate, but will not surrender](https://www.reuters.com/world/europe/ukrainian-foreign-minister-says-ready-negotiate-will-not-surrender-2022-03-12/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-| [美国暂缓向乌克兰提供战斗机 避免加剧俄罗斯紧张情绪](https://gnews.org/zh-hans/2135128/) |   |
-| --- | --- |
+编辑：Jack Li文阳
+总编：文真
+审核：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

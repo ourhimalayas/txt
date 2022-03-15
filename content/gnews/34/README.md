@@ -2,31 +2,34 @@
 ---
 
 
-## 新中国联邦救援队参与难民营地的管理会议
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2166069/)
+## 新中国联邦参与国际组织战地救援协调大会
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2166077/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+【撰稿】香草山健身部-文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-22.png)
 
-整理/编辑：小红帽
+波兰当地时间3月14日，梅蒂卡救援站所有义工组织的成员代表集中在新中国联邦的最大救援帐篷中，召开会议讨论整个营地的系统化管理。
+这次会议由联合国、国际红十字会、以及无国界救援者等组织联合发起。当天早上，新中国联邦救援人员已经与联合国救援工作人员完成对接。会议计划，把新中国联邦帐篷这一排作为一列新的难民营地所在。 新中国联邦救援人员表示，根据救援需要，可以搭建更大的帐篷，全力配合国际组织的需要。
+据悉，会议将于明日早晨继续召开，新中国联邦救援人员会参与探讨基地的整合建设。
+这次会议是新中国联邦首次全程参与全球国际组织的合作，而且，为会议提供会议场地。会议结束后，所以与会人员主动起立，当场感谢新中国联邦所提供的国际人道主义帮助。新中国联邦参与国际合作受到全球组织的欢迎与认可。
+这是历史上首次，在国际舞台上，有新中国联邦而没有中国共产党的国际组织会议。这一时刻将被载入史册。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-15_10-03-40.png)图片来源：郭文贵先生盖特视频截图
+【素材来源】前线报道
+[https://mega.nz/file/tEEC3Y5Z#a-QwUOtyibUsEbdBw3zQ6Md-nmPhCIwKOttiIpRuGsY](https://mega.nz/file/tEEC3Y5Z#a-QwUOtyibUsEbdBw3zQ6Md-nmPhCIwKOttiIpRuGsY)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+
+- 审核/编辑/发稿:qiutian（邱甜）
 
 
-3月4日上午，波兰梅迪卡口岸所有义工组织的成员代表集中到新中国联邦和法治基金的乌克兰人道救援帐篷中开会讨论整个营地的系统化管理。这是由联合国和国际红十字会、以及无国界救援者等组织发起的救援基地负责人会议。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-15_10-03-29.png)
-新中国联邦的救援队也参与其中。这是首次有华人的面孔参加国际难民救援营地的管理会议。
-
-资料来源：[郭文贵先生2022年3月15日盖特视频](https://www.gettr.com/post/p100qx4a947)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
