@@ -2,33 +2,31 @@
 ---
 
 
-## 中共企业股市暴跌 美股损失高达1.1万亿美元
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2168294/)
+## 善良的人类都反对战争
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2168329/)
 
-素材：波士顿五月花Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-15-at-6.53.35-PM.png)图片来源：互联网
-由于对北京与俄罗斯的关系的担忧以及潜在的被美股退市的恐慌日益加剧，在美国交易的中国重量级公司的股票周一暴跌。
+撰稿：骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-18.17.43.png)图源：网路
+梅迪卡前线时间3月15日，战友Nicole采访了连着七天都在为难民演奏音乐的钢琴家Davide Martello。这位钢琴家说自己不关心政治，但是非常反对战争，他在很多战争和动乱的场面去安抚过受难的百姓。他曾去过阿富汗，动乱时期的土耳其，巴黎恐怖和爆炸事件，在一些经历了自然灾害如洪水的地区。他四处奔走，为世界呼吁和平和爱，他说自己未去过香港，但为香港人演奏过。他说现在的科技进步太方便了，starlink这样的高科技只会使人与人的连接更加容易，无论人们是什么种族和语言，善良的人们彼此都有一颗和平的心。只有和平和爱，还有音乐，才能够让全人类团结一致。
 
-在美国上市的最大的中国公司–电子商务巨头阿里巴巴的股票在周一受到最严重的冲击，在纽约证券交易所下跌10%，达到近六年来的最低水平，这一暴跌将其从2020年10月的历史最高价以来的损失推高至6130亿美元。
-
-同行的在线零售商JD.com和拼多多也发布了同样惊人的跌幅，分别暴跌11%和21%，相比自去年2月这些公司的历史高点以来，加剧的跌势已经抹去了近2890亿美元的市值。
-
-Oanda分析师Ed Moya在周一的电子邮件中说，在过去的一年里，中国股市 “经历了一段艰难的时期”，首先因为中共加强了对本国科技公司粗暴的监管运动，另外最近，美上市的中共国企业面临可能会因为与政府的潜在联系而被从美国交易所除名。
-
-周二，美国证券交易委员会确定了五家中国公司，包括快餐业巨头百胜中国和生物技术公司BeiGene，要求他们必须交出审计记录，否则将面临从美国交易所除名，自那时起，百胜集团和贝因美的股票分别暴跌了近30%。
-
-Ed Moya说，北京与克里姆林宫的关系亦使投资者对投资中共国企业股票进一步 “复杂化”，他指出周末有报道称俄罗斯在对乌克兰的战争中要求中国提供军事援助，中共被警告说任何协助俄罗斯军事侵略行为可能导致中共国银行被踢出swift系统，类似于上个月迫使莫斯科证券交易所关闭的报复性制裁。
-
-其他在美国上市的顶级中国企业股票同样陷入大跌，包括互联网巨头百度、特斯拉竞争对手NIO和游戏公司网易，它们在周一分别下跌了8%、12%和10%。
-
-总的来说，在美国交易的十大中共国公司从新冠病毒大流行期间的历史高点以来，损失已超过1.1万亿美元的市值–这代表着它们周一的总价值约为5200亿美元的两倍多。
-
-原文链接：[Chinese Stock Crash: U.S. Losses Top $1.1 Trillion As Beijing’s Russia Ties Spark Investor Concerns](https://www.forbes.com/sites/jonathanponciano/2022/03/14/chinese-stock-crash-us-losses-top-11-trillion-as-beijings-russia-ties-spark-investor-concerns/?sh=4b2ad4713554)
+Nicole战友告诉钢琴家，人类社会一切罪恶的根源就是共产党，只有推翻了共产党才能有人类团结和分享爱的可能。而新中国联邦就是消灭共产党的中国人。钢琴家说虽然他不懂政治，但是他认为一个政府如果不与世界联网，违背历史潮流，想要倒退，那是不可能的。
 
 * * *
 
-*编辑&发布：Vicky*
+撰稿、发布：银河系农场—-骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0313_Handflag17x24cm2.png)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

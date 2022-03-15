@@ -2,25 +2,63 @@
 ---
 
 
-## 中国｜大陆疫情升温 逾60名官员被问责
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2167578/)
+## 谢谢你，英雄（乌克兰男孩的心声）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2167832/)
 
-**撰文/ 港台前线｜发布日期/ 15/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/大陸疫情升溫-逾60名官員被問責.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+作者：纽约香草山教育部-蓝之灵（hortênsia)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2497.jpg)
 
-香港地区自上个月开始，单日确诊数字始终保持高位，周一新增26908宗确诊病例，286名感染者离世，累计感染人数超过72万人次。
+你是我的英雄
+在绝望中
+伸出援助的手
+温暖我的心
+这个冬天特别寒冷
+侵略者炮弹
+毁灭所有希望
+未来是个黑洞
+不知何去何从
 
-严重的疫情感染趋势蔓延至中国大陆地区，至少27个省市区受到影响，主要集中在吉林、深圳地区，多名官员因抗疫不力而被问责。
+爸爸上了战场
+妈妈担忧哭泣
+我还没有长大
+失去了家
+被迫逃离
+未来是一个黑洞
+我不知何去何从
 
-中共党媒报道，广东省公安厅副厅长黄守应等6人因疫情防控失责被免去职务，另外，吉林市市长王路、长春市卫健委主任高玉堂、九台区区长李欣、山东青岛市、内蒙古呼和浩特市、包头市等60名官员因为“风险隐患警惕性不高，麻痺大意，疫情防控措施落实不力”而被处分或免职。
+谢谢你，我的英雄
+你们就像黑夜里的光
+给了我希望
+冰冷绝望的心
+有了温度
+再次跳跃
+谢谢你们
+我的英雄
+谢谢你们
+温暖的大帐篷
+背井离乡的人们
+对生活
+充满希望
+我们没有被抛弃
+有你们
+和
+我们同行
 
-目前，根据中共卫健委的最新通报显示，深圳市自星期一起，一连七天开展三轮全员核酸检测，各小区实行封闭式管理，除保障城市运行及物资货运的交通外，公交、地铁暂时停运，全市人员非必要不得离开当地。包括富士康在内多间外企也必须配合当地政府的防疫工作暂停营运。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-26.png)
 
-吉林省政府完成订购1200万份新冠抗原检测试剂，准备陆续分派给民众，进行自我检测，这是大陆首个大规模使用自测新冠抗原试剂的地区。另外，来自黑龙江、辽宁等几个省的多支医疗队，合共940名医护人员已抵达吉林市支援，配合加紧启动定点医院和建设方舱医院。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-来源｜[健康时报](http://www.jksb.com.cn/html/xinwen/2022/0314/175640.html)
+- 审核/编辑/发稿:qiutian（邱甜）
 
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

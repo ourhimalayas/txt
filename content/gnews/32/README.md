@@ -2,63 +2,54 @@
 ---
 
 
-## 谢谢你，英雄（乌克兰男孩的心声）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2167832/)
+## “你们占领乌克兰/台湾，我们占领你们”
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2167937/)
 
-作者：纽约香草山教育部-蓝之灵（hortênsia)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2497.jpg)
+整理报道：Skagen
 
-你是我的英雄
-在绝望中
-伸出援助的手
-温暖我的心
-这个冬天特别寒冷
-侵略者炮弹
-毁灭所有希望
-未来是个黑洞
-不知何去何从
+**“你们占领乌克兰，我们占领你们”**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图像-2-6.jpg)
+俄罗斯寡头在法国拥有海景的豪华宫殿和伦敦的高档公寓可能成为乌克兰难民的家园。
 
-爸爸上了战场
-妈妈担忧哭泣
-我还没有长大
-失去了家
-被迫逃离
-未来是一个黑洞
-我不知何去何从
+（1）在英国：伦敦富裕的贝尔格雷夫广场，五名活动人士闯入寡头奥列格·德里帕斯卡的庄园，宣布 “你们占领乌克兰，我们占领你们”。
 
-谢谢你，我的英雄
-你们就像黑夜里的光
-给了我希望
-冰冷绝望的心
-有了温度
-再次跳跃
-谢谢你们
-我的英雄
-谢谢你们
-温暖的大帐篷
-背井离乡的人们
-对生活
-充满希望
-我们没有被抛弃
-有你们
-和
-我们同行
+（2）在法国：大西洋城市比亚里茨（Biarritz）是俄罗斯精英们最喜欢的游乐场，活动人士闯入了普京小女儿卡捷琳娜`·蒂霍诺娃（Katerina Tikhonova）的别墅。他们换了锁，并在社交媒体上发布视频，邀请乌克兰难民入住。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-26.png)
+普京前女婿基里尔·沙马洛夫（Shamalov）的法国别墅也被占了。普京前妻柳德米拉也住在附近第二任丈夫的别墅里。她家房子面向街道的大门上被人绘制了乌克兰国旗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+（3）意大利：警方扣押了最干净的俄罗斯寡头安德烈•梅利尼琴科（Andrey Melnichenko）的一艘几亿欧元的船高级游艇价值。
 
-- 审核/编辑/发稿:qiutian（邱甜）
+（4）德国：阿利舍尔·乌斯马诺夫的156米长的Dilbar游艇，价值近40亿英镑，已在汉堡的一个船厂被扣押。
+
+这些活动人士的占领活动显然得到了政府的默许。
+
+**英国住房部长支持在法律上将俄罗斯寡头的房产变成乌克兰难民营**
+
+英国住房部长Michael Gove周日对BBC说，”我将探索受制裁个人的住宅和财产用于人道主义和其他目的的可能性”。
+
+“如果他们因支持普京而受到制裁，那么他们就没有权利使用这些房子，这些房产应用于帮助别人。”
+
+**几座巨型豪宅**
+最近几天最受关注的是寡头罗曼·阿布拉莫维奇，他在英国拥有至少70处房产，总价值约为44亿欧元。他的全球房产组合的价值是这个数字的两倍。
+
+铝业寡头奥列格-德里帕斯卡(Oleg Deripaska)拥有超过170亿英镑的财富，除了伦敦的豪宅，他还拥有的汉姆斯通大厦，可能为未来的乌克兰难民提供游泳池、桑拿房、健身房和花圃。
+
+前普京部长伊戈尔·舒瓦洛夫在伦敦的白厅区拥有一套价值约1亿英镑的豪华公寓。这位55岁的律师多年来一直是普京和他多年的副手德米特里-梅德韦杰夫最亲密的顾问之一。
+
+西方国家旋风一样从政府到民间，这么行动一致的制裁活动，将对俄罗斯和所有支持战争的邪恶国家寡头们形成极大的震撼作用，从而形成对普京和习近平本人的压力。习和普本是因为抗不住内部压力而发动战争，但是制裁将加剧他们内部的压力，这会要了他们的命。
+
+“**你们占领台湾，我们占领你们”**
+
+**对于海外的单伟健们，俄罗斯寡头的命运离他们还远吗？**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1649.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/81641577-af12-4a0d-8c14-d4113a24df7c.jpg)
+来源：
+
+BBC
+
+[Jyllandspost](https://jyllands-posten.dk/international/ECE13823489/forslag-ukrainske-flygtninge-skal-bo-i-oligarkers-luksuspalaeer/)
 
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
