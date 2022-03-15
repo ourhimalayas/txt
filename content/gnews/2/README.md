@@ -2,30 +2,20 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月15日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2170421/)
+## 美国将严惩中共资助俄罗斯
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2170579/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-5.jpg)
+加拿大温哥华扬帆农场    平民正道
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-15.png)
-文章仅代表作者本人观点，与Gnews无关
+据【极限新闻】3月14日报道，美国家安全顾问【沙利文】当天在会晤中共外交头目杨洁篪时强调，如果习近平当局一意孤行，继续帮助俄军入侵乌克兰，美方将采取必要措施严打中共。
 
-视频参看：
-[2022.03.15早 《NFSC新闻》](https://gettr.com/streaming/p104qwc6790)
-[2022.03.15早 G|TV《新闻访谈》](https://gettr.com/streaming/p105enx4887)
+报道称，沙利文警告杨洁篪，继续选边支持俄罗斯将使中共在全球范围内进一步被孤立，并还将受到欧美及其盟国在经济和金融以及科技等全方面的严厉制裁。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+对此，文贵先生在当天盖特中表示：目前，在新中国联邦的推动和引导之下，世界联合灭共势力已不可同日而语。习近平当局在面临欧美同盟全力围剿以及内部政敌随时哗变的绝境之中，其驾崩之时已计日可待。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-18.jpeg)
+* * *
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑： 平民正道    发布：平民正道
 
  
 

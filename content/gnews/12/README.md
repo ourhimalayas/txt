@@ -2,30 +2,33 @@
 ---
 
 
-## 愤怒的法国群众占据了普京女儿的豪宅
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2170123/)
+## 沙特首都及部分地区的石油设施遭胡塞武装组织轰炸
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2170309/)
 
-**撰稿：日本东京方舟农场 嵩山谷风**
+**撰稿：日本东京方舟农场 Kevin wang**
 
-2022年3月13日，俄罗斯入侵乌克兰第19天，一名愤怒的法国群众突袭并控制了俄罗斯总统普京女儿在法国比亚里茨的一座豪宅。
+3月12日，沙特首都利雅得及部分地区的石油设施和其他目标遭也门胡塞武装组织用无人机轰炸，三日后，沙特于15日突邀习近平访问该国。此外，有媒体统计称也门在过去的一个月内也遭遇了近700次空袭。
 
-据悉，普京女儿的这座别墅，位于法国大西洋沿岸，别墅有八间卧室和三间浴室。35 岁的Katerina Tikhonova（季霍诺娃）目前是俄罗斯国家智力发展基金会的主任。
+据半岛新闻报道， 3月12日，也门胡塞武装发言人叶海亚·萨雷亚表示，该组织用 9 架无人机对沙特石油设施和其他地点发动袭击，并补充说，3 架飞机瞄准了沙特阿美位于利雅得的炼油厂，另有 6 架飞机瞄准了沙特阿美在吉赞和艾卜哈地区的设施,并解释说，这些无人机属于“萨马德3型”和“萨马德1型”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-73.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-98.png)（图片来自网络）
 
-据乌克兰新闻机构UNIAN报道说，闯入住所的男子名为皮埃尔·阿夫纳，他在进入房间更换了门锁后宣布，此住所欢迎所有巴黎的乌克兰难民入住，还按普京“特别军事行动”的说辞称之为“特别入住行动”。
+有消息人士分析，这些针对沙特不同地区重要设施和民用物体的破坏和恐怖行为，并非仅针对沙特，而且“在更广泛的意义上，它旨在破坏世界能源供应的安全和稳定，从而对全球经济产生负面影响。
 
-目前得知，皮埃尔和数名声援他的人已被巴黎警方控制。据声援人士表示，这些好人没有做错任何事，我们都提议使用俄罗斯寡头的别墅来欢迎乌克兰难民。
+此外，就在该袭击发生3日后，据路透社报道，沙特于15日邀请中共党主席习近平访问该国。报导称，沙特计划复制2017年美国前总统特朗普首次以总统身份出访沙特时给予的热情接待。有沙特官员说，王储和习近平是亲密的朋友，双方都明白加强关系的巨大潜力。
 
-此外，位于英国伦敦市中心贝尔格雷夫广场的亿万富翁俄罗斯寡头[奥列格·德里帕斯卡](https://www.newsweek.com/topic/oleg-deripaska)(Oleg Deripaska)拥有的豪宅，也被占领者占据，这些活动人士闯入该豪宅并悬挂了乌克兰国旗。
+据悉，中共在俄乌战争中对俄罗斯的侵略行为一直未有谴责，并拒绝配合国际上对俄罗斯的强力制裁。
+
+此外，据BBC中文报道，尽管全世界都在关注在乌克兰，但中东国家也门正在经历八年战乱中最为动荡的局面之一，仅过去一个月，就有超过700次空袭发生在这个国家。报道中显示，也门多地遭遇空袭，有多人丧生，另有多处房屋被炸毁。
 
 参考链接：
-[https://www.newsweek.com/vladimir-putin-daughters-house-raided-activist-ukraine-flag-france-pierre-afner-1687629](https://www.newsweek.com/vladimir-putin-daughters-house-raided-activist-ukraine-flag-france-pierre-afner-1687629)
+1.[https://chinese.aljazeera.net/news/military/2022/3/12/%E8%83%A1%E5%A1%9E%E6%AD%A6%E8%A3%85%E6%88%91%E4%BB%AC%E8%BD%B0%E7%82%B8%E4%BA%86%E5%88%A9%E9%9B%85%E5%BE%97%E8%89%BE%E5%8D%9C%E5%93%88%E5%92%8C%E5%90%89%E8%B5%9E%E7%9A%84%E7%9F%B3%E6%B2%B9%E8%AE%BE](https://chinese.aljazeera.net/news/military/2022/3/12/%E8%83%A1%E5%A1%9E%E6%AD%A6%E8%A3%85%E6%88%91%E4%BB%AC%E8%BD%B0%E7%82%B8%E4%BA%86%E5%88%A9%E9%9B%85%E5%BE%97%E8%89%BE%E5%8D%9C%E5%93%88%E5%92%8C%E5%90%89%E8%B5%9E%E7%9A%84%E7%9F%B3%E6%B2%B9%E8%AE%BE)
+2.[https://twitter.com/bbcchinese/status/1503702831601262592](https://twitter.com/bbcchinese/status/1503702831601262592)
+3.[https://cn.reuters.com/article/saudi-arabia-xi-jinping-visit-0315-idCNKCS2LC05X](https://cn.reuters.com/article/saudi-arabia-xi-jinping-visit-0315-idCNKCS2LC05X)
 
-素材采编：嵩山谷风
-编辑：子辰
+素材采编：Kevin wang
 总编：青城道姑
-发布：小斐
+校对发布：小斐
 
  
 
