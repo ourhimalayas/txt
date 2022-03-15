@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 1:22 PM (UTC)`
+
+【Ukraine Rescue】03/15/22 Nicole explains to Bloomberg reporter Aggi Cantrill that the political goal of the NFSC to eliminate the CCP is also a humanitarian goal, and that all humanitarian disasters are caused by the CCP, not only in China, but also in Xin Jiang, Hong Kong, Taiwan, and the war in Ukraine, all of which have the CCP's black hand behind them. Whether it is the rescue of Ukrainian refugees or helping the Chinese people to eliminate the Communist Party, it is all for humanitarian purposes.<br/><br/>【乌克兰救援】03/15/22 妮可向彭博社记者Aggi Cantrill介绍：新中国联邦消灭中国共产的的政治目标同时也是人道目标，所有人道灾难都是中国共产党造成的，不仅是中国，包括新疆、香港、台湾，以及乌克兰的战争，背后都有共产党的黑手，无论是对乌克兰难民的救助，还是帮助中国人民铲除共产党，都是出于人道主义的目的。<br/>
+![img](https://media.gettr.com/group40/getter/2022/03/15/13/06cf698e-1ea6-33ec-c11a-f6b746c2fa4e/out.jpg)
+
+---
+
 `@miles 3/15/2022 12:26 PM (UTC)`
 
 【Ukraine Rescue】03/14/2022 Multiple rescue organizations for the first time gathered at the NFSC and ROLF rescue tent discussing how to better manage the rescue camps in Medyka<br/><br/>【乌克兰救援】03/14/2022 多个救援组织第一次聚集在新中国联邦和法治基金的救援帐篷里开会讨论如何把梅迪卡的救援营地管理得更好<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -154,13 +161,6 @@ Italian Lorenzo told us about what the 2 unimaginable true pictures he witnessed
 
 我们是消灭邪恶中国共产党的新中国人<br/>中国共产党是全世界灾难的根源<br/>只有消灭中国共产党才能拯救全人类<br/>我们与乌克兰人民站在一起<br/><br/>We are the NEW CHINESE who are taking down the EVIL Chinese Communist Party.<br/>The Chinese Communist Party is the root cause of all disasters globally. <br/>Taking down the Chinese Communist Party is the only way to save humanity!<br/>We stand with the Ukrainians.<br/><br/>Ми-нові китайці, які знищиваємо злу Комуністичну Партiю Китаю.<br/>Комуністична Партiя Китаю є основною причиною лих у всьому світі. <br/>Тільки знищивши Комуністичну Партiю Китаю, можна врятувати все людство.<br/>Ми разом з українцями.
 ![img](https://media.gettr.com/group15/getter/2022/03/15/02/d422f670-80e0-b014-ac6a-f7dcad3a68f6/out.jpg)
-
----
-
-`@miles 3/15/2022 1:39 AM (UTC)`
-
-【Ukraine Rescue】In Medyka, Poland. ●How the Video Was Filmed on the Front Line of Rescue●Nicole and Mingdao, the two rescue members of New Federal State of China are  preparing to shoot a video in cold weather. Many of these people in our rescue team are working around the clock. It is the only rescue tent on the front line with 24-hour service. NFSC rescue team is the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity! <br/>【乌克兰救援】波兰梅迪卡，●救援一线的视频是如何拍出来的●<br/>新中国联邦救援团队的妮可和明道战友正在寒冷的天气下准备拍摄，我们救援团队的许多人正像他们一样夜以继日地工作着，我们的救援帐篷也是前线唯一24小时服务的救援点。新中国联邦救援团队是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类
-![img](https://media.gettr.com/group47/origin/2022/03/15/01/ac34439d-15be-4251-e687-cd5a6bca0c10/out.jpg)
 
 ---
 

@@ -2,34 +2,37 @@
 ---
 
 
-## 乌克兰前沿每日报道
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2168694/)
+## 《I draw my life 》真实版
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2168834/)
 
-整理：奔跑吧黄小鸭
-![](https://assets.gnews.org/wp-content/uploads/2022/03/61122592_403.jpg)图片来自：https://www.dw.com/
-基辅时间3月15日，今天是俄罗斯入侵乌克兰的第二十天。俄军对乌克兰首都基辅发起了猛烈袭击，俄罗斯亲克林姆林宫的第一频道继续出现内部工作人员的反战行为。美国死死盯住中共，美安全顾问沙利文和杨洁篪长谈7小时。以下是最新的相关消息：
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/maxresdefault-54.jpg)
+梅迪卡前线时间3月13日，一个乌克兰小女孩来到新中国联邦的帐篷内，她特别爱画画，战友送了她一套画笔。不多久小女孩的母亲给战友看了孩子的画。这几幅画让人心都碎了。有一幅画画的是在战争的炮火中，哭泣的孩子在祈祷，还有一幅画是一个士兵拿枪指着一个求饶的平民，外面裹着一层圆圈像是地球，圈外有水滴一样的东西，似乎在表达战争和杀戮会让地球流泪。还有一张画，画了两只手，根据颜色左边是乌克兰，右边是俄罗斯，两只手的形态非常不自然，既不像牵手也不像放手，小女孩的母亲说这个画是要表达反对战争，不得不说小孩画得太好了，简直像极了乌克兰和俄罗斯现在的情况。接下来的一张画是用颜色分别代表俄罗斯和白俄罗斯的两个凶恶的面孔，把夹在中间的乌克兰蹂躏到满脸是伤痕。
 
-**俄乌前沿最新动态**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-19.52.20-1280x716.png)
 
-- 首都基辅发生大爆炸，俄罗斯空袭住宅楼和地铁站，造成两人死亡。今晚将开始长时间的宵禁，直到周四早上
-- 一位美国高级国防官员表示，在周末几乎没有进展后，几乎所有的俄罗斯军事攻势仍然停滞不前
-- 乌克兰总统称，俄罗斯和乌克兰之间的谈判将于周二继续进行
-- 一名俄罗斯妇女举着反战标语出现在俄普京政府控制的第一频道晚间新闻节目的片场。只见该节目的主持人身后有个标志清晰可见，上面写着“不要战争，停止战争，不要相信宣传，他们在这里骗你”。这位女士是该频道的编辑，据信目前已被警方拘留
-- 据 BBC 俄罗斯报道，俄罗斯一家法院对当地居民处以 80,000 卢布（666 美元）的罚款，原因是他使用社交媒体呼吁举行反战集会。根据内政部的一份声明显示，该男子已被拘留并承认有罪。尽管俄罗斯已经加强了审查法和制定了新法律，但仍有数千名俄罗斯人在全国各地的反战集会上被捕
+看完这几张画，这简直就是《I draw my life 》的真实版。《I draw my life 》是乌克兰小女孩演唱的呼吁和平的歌曲，歌里唱充满暴力的世界不会有未来，我们爱好和平，呼吁停止战争，这些都和上面这个孩子画得这些画太相符了。我们愿意尽最大努力救援乌克兰，愿这首歌这些画，永远留在我们的记忆里，曾经万恶的共产党如此破坏过孩子的家园。
+
+* * *
+
+撰稿、发布：银河系农场—-骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0313_Handflag17x24cm2.png)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
 
-**世界各国最新动态**
+ 
 
-- 中共最高外交官杨洁篪在罗马与美国国家安全顾问杰克沙利文举行的长达 7 小时的会晤后，呼吁双方保持克制。该会议受到密切关注，因为在会议开始前几个小时，美国安全官员指责中共表示愿意向俄罗斯提供武器
-- 欧盟公布了对俄罗斯的第四套制裁措施，旨在削弱其为入侵提供资金的能力
-- 英国将于周二宣布对 100 多名与俄罗斯普京政府有联系的个人实施新制裁。英国还宣布了针对俄罗斯伏特加和奢侈品的新制裁措施
-- 据路透社援引航班跟踪服务的数据称，一架与切尔西足球俱乐部老板和俄罗斯寡头罗曼·阿布拉莫维奇有关的喷气式飞机降落在莫斯科。数据显示，这架喷气式飞机从以色列起飞，并在前往俄罗斯的途中在土耳其短暂停留。路透社称，周一在特拉维夫的本古里安机场看到了同样拥有以色列和葡萄牙公民身份的阿布
-
-
-原文链接：
-
-[Ukraine war latest: Kyiv residential buildings hit by Russian strikes – BBC News (www-bbc-com.translate.goog)](https://www-bbc-com.translate.goog/news/live/world-europe-60746557?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=sc)
-
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

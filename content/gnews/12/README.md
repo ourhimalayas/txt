@@ -2,20 +2,22 @@
 ---
 
 
-## 樱花头条┃美国FDA在德州败诉 辉瑞被迫公开疫苗数据
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2168891/)
+## 樱花头条┃泽连斯基向英国议会发表视频讲话
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2168948/)
 
 撰稿：东京樱花团/樱花传媒
 
-美国FDA在德州败诉 ！
+泽连斯基向英国议会发表讲话
 
-辉瑞被迫公开疫苗数据 !
+“我们将在海上作战!
 
-副作用足足9页！目前披露的文件中列出了1000多种不良反应。
+我们将在空中作战!
 
-[信息来源](https://www.gettr.com/post/pygw9e4420)
+我们不会投降!”
 
-*校对：东京樱花团/asket、马拉多纳（素材来源）
+[信息来源](https://gettr.com/post/pz07s60428)
+
+*校对：东京樱花团/asket
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
