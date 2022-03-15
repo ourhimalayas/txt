@@ -2,113 +2,49 @@
 ---
 
 
-## 美国称: 乌克兰没有生物武器计划
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2165375/)
+## 砸碎这铁锁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2165424/)
 
-Linda Thomas-Greenfield (US ambassador to the UN)
-琳达·托马斯-格林菲尔德（美国驻联合国大使）
+**作者**：江山
+![](https://assets.gnews.org/wp-content/uploads/2022/03/031106.jpg)网络图片
+一曲《锁链梦》，一生锁链泪。七哥哭了，是一个男人的眼泪，他用沙哑的声音吟唱着：“我本花一朵，被拐骗山中……” 述说着一个女人的故事，一个女人的一生。
 
-Russia asks the Security Council for today’s meeting for the sole purpose
-俄罗斯要求安理会召开今天会议的唯一目的
+七哥经历过太多的悲伤，他经历过“89六四”中共的血腥屠杀，那些年轻的学生为了争取国家的自由和民主，牺牲在天安门广场上，是坦克的履带，是人民军队的枪口。
 
-of lying and spreading disinformation
-撒谎和传播虚假信息
+那一天，八弟中了枪，因为医院故意拖延，不给治疗，流血不止，永远地离开了……七哥被关进了清风看守所，一个从此改变了他人生命运的地方。七哥戴上了死刑犯的镣铐，也是铁链。
 
-and that is exactly what you have heard from the Russian PR this morning
-这正是你今天早上从俄罗斯公关那里听到的
+因为七哥卖了自己的摩托车去赞助天安门广场上的学生，因为七哥是“89六四”的参与者。那时候我还在看电视，看着，看着，那些学生和静坐的人们就被中共定性为反革命爆乱分子了。
 
-You also heard from Ms. Nakamitsu
-你也从中満 女士你了听到了的消息
+七哥在靑丰看守所的日子里，也是铁链带走了身边好多年轻的生命，七哥眼睁睁地看着他们一个个被人扣响了死亡的扳机。悲壮和麻木，生命在那一刻得到了怎样的诠释？瞬间的生与死一定是憾天动地撬动灵魂的，那一刻，唯有七哥能懂。
 
-that the UN is not aware of any biological or chemical weapons programs in Ukraine
-联合国不知道乌克兰有任何生物或化学武器计划
+后来，七哥说自己一顿能吃12个馍馍。懂行的师父说：“一定是那些冤魂野鬼在帮着吃啊，是让七哥替他们报仇呢”。七哥说，造孽的人一定会遭报应的，人是不会死的，他们还活着，因为灵魂不灭。
 
-Last month, Secretary Blinken laid out with tragic accuracy
-上个月，布林肯国务卿给出了悲惨的准确性
+七哥奇迹般的从死囚牢里活了出来。那段时间，狱友们最快乐的事情就是抢着嗅隔壁女号里扔过来的卫生巾，七哥偶尔还会给大伙儿讲讲玉米地里的故事，讲讲给老师递过的纸巾……对性的神秘和亲近，是一个成熟人生的开始。
 
-what Russia was about to do
-俄罗斯打算做什么
+我喜欢七哥，正是从他的玉米地想到了九儿的红高粱，后来还有七哥和七嫂私奔的故事，是小桥流水的声音，是天真灿烂的浪漫。没有虚伪，没有道貌岸然的道德牌坊，是一种两情悦悦，没有权力的影子，没有铜钱的味道。七哥就是要打开另一道禁锢国人的锁链，让人们不再谈性色变。
 
-he specifically warn that Russia would manufacture a pretext for attack
-他特别警告俄罗斯会制造攻击的借口
+性是美好的，如阳光下的蝶恋花，如湖畔边的风拂柳，如红杏出墙般的娇艳……都是春天的歌。“锁链女”就没有那么幸运了，她被扯碎了花瓣，毁掉了花蕊，连同花的柄一起在地上被蹂躏、被糟蹋，被囚禁二十四年，受尽了折磨，从此亲人永相隔。
 
-and even cautioned that Russia would fabricate allegations about chemical or biological weapons
-甚至警告说俄罗斯会捏造有关化学物质或生物武器的指控
+人性与兽性，佛魔两重天：牙齿全拔落，铁锁已斑驳。唐平那如泣如诉的哀鸣，死去活来的无助让七哥发出怒吼：“醒来吧，别再如此冷漠；醒来吧，抛掉所有懦弱。只为能握住亲人手，要埋葬那邪恶的中共……”
 
-to justify its own violent attacks against the Ukrainian people
-为自己对乌克兰人民的暴力袭击辩护
+人们记得，有一张文革时期的照片，是一个女人因为偷情被判了死刑，那个时候中国的流氓犯很多，立志灭共以后的七哥也常被中共冠以诸如“郭三秒”这样的名号，这是中共辱民的方式。人们却不晓得“宇宙无限大，地球是一粒沙”的来路，不晓得畸形的权力所带来的倾轧与变态，是对人性的玩弄和污辱，是要人命的。
 
-Today, the world is watching Russia do exactly what we warned it would
-今天，全世界都在注视着俄罗斯完全按照我们的警告行事
+还有，还有……中共“蓝、金、黄”的黄啊！红黄蓝的黄！中共何曾把中国人当过人？把中国女人当过女人？把中国孩子当过孩子？醒来吧，抛掉所有懦弱！醒来吧，别做地狱里的猪狗！醒来吧！埋葬这邪恶中共，砸碎这铁锁！
 
-Russia is attempting to use the Security Council to legitimize disinformation
-俄罗斯正试图利用安理会使虚假信息合法化
+*校对：穆清|审核：仙女儿-文善*
 
-and deceive people to justify President Putin’s war of choice against the Ukrainian people
-并欺骗人们为普京总统对乌克兰人民的选择战争辩护
+* * *
 
-and China, too, has been spreading disinformation in support of Russia’s outrageous claims
-而且中国也一直在散布虚假信息，以支持俄罗斯的无耻主张
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-I will say this once: Ukraine does not have a biological weapons program
-我要说一次：乌克兰没有生物武器计划
 
-There are no Ukrainian biological weapons laboratories supported by the United States
-没有美国支持的乌克兰生物武器实验室
+编辑：【英国伦敦喜庄园编辑部】
 
-not near Russia’s border or anywhere
-不在俄罗斯边境或任何地方
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-So here are the facts: Ukraine owns and operates his own public health laboratory infrastructure
-事实如下：乌克兰拥有并运营着自己的公共卫生实验室基础设施
 
-These facilities make it possible to detect
-这些设施可以检测
-
-and diagnose diseases like COVID-19 which benefit us all
-并诊断像 COVID-19 这样有益于我们所有人的疾病
-
-the United States has assisted Ukraine to do this safely and securely
-美国已协助乌克兰安全可靠地做到这一点
-
-This is work that has been done proudly, clearly and out in the open
-这是一项自豪、清晰、公开地完成的工作
-
-This work has everything to do with protecting the health of people
-这项工作与保护人们的健康息息相关
-
-It has absolutely nothing, absolutely nothing to do with biological weapons
-它与生化武器完全无关，与生化武器完全无关
-
-In fact, it is Russia that has long maintained a biological weapon program in violation of international law
-事实上，长期违反国际法维持生物武器计划的是俄罗斯
-
-It is Russia that has well a well-documented history of using chemical weapons
-俄罗斯使用化学武器的历史有据可查
-
-It is Russia who is the aggressor here
-这里的俄罗斯才是侵略者
-
-原视频链接; [https://twitter.com/disclosetv/status/1502332454572548101?s=24](https://twitter.com/disclosetv/status/1502332454572548101?s=24)
-
-Date:03/13/2022
-原视频标题:US: Ukraine does not have a biological weapons program
-美国称: 乌克兰没有生物武器计划
-原视频日期：2022/03/12
-原视频链接https://twitter.com/disclosetv/status/1502332454572548101?s=24
-任务编号：KE452（3988）
-视频时间段 : 0:00-2:33
-
-英听校：洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 -好人有好报
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

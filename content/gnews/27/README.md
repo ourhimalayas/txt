@@ -2,23 +2,34 @@
 ---
 
 
-## 秘翻在线: 深圳封锁令对全球供应链造成新打击
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2164960/)
+## 中共无耻阻挠新中国联邦救援信息的传播
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2165166/)
 
-撰稿：西枫westca
+##### 作者：加拿大温哥华扬帆农场 – 文明(添草灭共)
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-7-1.jpg)图片来源：网络照片
-知名数字媒体公司Axios 首席经济记者尼尔欧文（Neil Irwin）3月13日发推说， 深圳对于中共病毒的新的封锁令将会对美国的通货膨胀造成巨大的不利影响， 但这个信息还未被广泛报道。
+3月10日，澳洲的［悉尼乌克兰协会］在其官网首页登载了［新中国联邦］关于乌克兰人道救援的联络信息，介绍了新中国联邦和爆料革命的愿景和目标，声称该举措是新中国联邦的人道主义行动，帮助流离失所的人撤离到其他国家。然而不到24小时该信息被撤下，令人费解。
 
-深圳市疫情防控指挥部3月13日发布全市社区小区封闭式管理，公交、地铁停运， 除担任防疫任务的工作人员，均居家办公，暂停生产经营活动一周。全员三轮核酸检测。这座1700多万人的大城市，连同邻近的号称“世界加工厂” 的东莞一同进入“慢生活”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111-6.jpg)图片来源：hromada
 
-深圳市是世界大部分技术制造业的所在地，而世界上大多数工业产品都可以在东莞企业群体的“工业生物链”中找到与其相配套的行业和产品。苹果供应商富士康已关闭两家生产iPhone的工厂。
+据文贵先生3月11日的大直播透露，其原因是中共外交部无耻抹黑新中国联邦是非法组织，并用14亿人的市场对乌克兰政府进行威胁所致。这是中共对身陷乌克兰战区亟需救助的各国人民生命安全直接侵犯，再次暴露中共是世界和平与安全的破坏者。
 
-在中共国，主要从事制造业的城市封锁不仅会影响本国的经济复苏， 还可能对全球供应链会造成新的打击。对于已高达7.9%（2月统计数字）通货膨胀率的美国，多种产品的供应链断裂，对经济的打击会是雪上加霜。
+救援前线的战友们不为所动，各项营救工作仍在有条不紊地进行。新中国联邦的人道救援无欲无求，不仅展现了新中国人真诚、勇敢、友善的新面貌，也成为救援现场各大媒体争相报道的焦点。
 
-**新闻来源：**[Neil Irwin on Twitter: “We’re currently living in the brief moment between when Finance/Econ Twitter has realized that the new Covid lockdowns in Shenzhen are going to have hugely bad consequences for US inflation, but that has not yet become a widely-reported conventional wisdom.” / Twitter](https://mobile.twitter.com/Neil_Irwin/status/1503202338340757516)[富士康因新冠疫情封锁在深圳停产 – 协议 (protocol.com)](https://www.protocol.com/bulletins/shenzhen-lockdown-manufacturing)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/222-1.jpg)图片来源：gettr
 
+[新闻来源](https://gettr.com/streaming/pzg47d4994)
+
+编辑/上传 – 熙攘
+
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
