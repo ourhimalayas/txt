@@ -2,29 +2,63 @@
 ---
 
 
-## 樱花FM|中日财经爆:索尼停止在俄罗斯销售PS5与游戏软件
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2167795/)
+## 谢谢你，英雄（乌克兰男孩的心声）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2167832/)
 
-音频：东京樱花团/战友520
+作者：纽约香草山教育部-蓝之灵（hortênsia)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2497.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/索尼停止在俄罗斯销售PS5与游戏软件-1.png)
+你是我的英雄
+在绝望中
+伸出援助的手
+温暖我的心
+这个冬天特别寒冷
+侵略者炮弹
+毁灭所有希望
+未来是个黑洞
+不知何去何从
 
-3月10日，索尼互动娱乐公司（SIE）宣布停止在俄罗斯销售家用视频游戏机“PlayStation（PS）5”和游戏软件，以及“PlayStation Store”的运营，该商店可以通过互联网购买游戏软件和其他产品。
+爸爸上了战场
+妈妈担忧哭泣
+我还没有长大
+失去了家
+被迫逃离
+未来是一个黑洞
+我不知何去何从
 
-同一天在PS官方推特上公布：“希望在乌克兰实现和平”。
+谢谢你，我的英雄
+你们就像黑夜里的光
+给了我希望
+冰冷绝望的心
+有了温度
+再次跳跃
+谢谢你们
+我的英雄
+谢谢你们
+温暖的大帐篷
+背井离乡的人们
+对生活
+充满希望
+我们没有被抛弃
+有你们
+和
+我们同行
 
-索尼互动娱乐有限公司（Sony Interactive Entertainment LLC；简称SIE），原称索尼电脑娱乐株式会社（Sony Computer Entertainment Inc.，简称为SCEI或SCE），是索尼集团旗下的游戏机、游戏软件开发、制造与贩售厂商。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-26.png)
 
-文字版原文：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-
-| [中日财经爆┃索尼停止在俄罗斯销售PS5与游戏软件](https://gnews.org/zh-hans/2136307/) |   |
-| --- | --- |
+- 审核/编辑/发稿:qiutian（邱甜）
 
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,78 +2,60 @@
 ---
 
 
-## 品读荐书反乌托邦三部曲之二：《1984》极权病毒肆虐世界
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2167819/)
+## 俄乌战争｜欧盟派遣政要访问乌国 明确对乌克兰主权及独立的支持
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2167833/)
 
-整理/编辑：Rianna
+**撰文/ 港台前线｜发布日期/ 15/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-16.png)**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+據波兰官方网站公告，波兰总理 *马特乌什·莫拉维茨基*、国家安全和国防委员会主席 *雅罗斯瓦夫·卡钦斯基*以及捷克共和国总理 *佩特尔·菲亚拉*和斯洛文尼亚总理 *雅内兹·扬沙*等人，今日将作为欧洲理事会代表前往基辅与乌克兰总统、总理会见。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/13-7.jpg)图片来源：《1984》剧照
+本次访问由欧洲理事会主席 *查尔斯·米歇尔* 和欧盟委员会主席 *乌尔苏拉·冯德莱恩* 协商后组织，为表达欧盟对乌克兰主权和独立的明确支持。此外，欧盟委员会主席乌尔苏拉·冯德莱恩(Ursula von der Leyen)于推特表示，面对战争越来越残酷，欧盟将提供乌克兰12 亿欧元的宏观金融援助计划和 5 亿欧元的人道主义援助。
 
 
-《1984》是英国左翼作家乔治.奥威尔写的一部长篇政治小说，它刻画了一个令人窒息恐怖的社会，老大哥作为党的权力象征，追逐最极端的独裁目标，对人性极其残酷的扼杀，消灭思想萌芽。
 
-“那白色的墙面上镌刻着的党的口号：
-战争即和平
-自由即奴役
-无知即力量
-巡逻警察并不可怕，真正可怕的是思想警察。而且只要他停留在电屏设定的可视范围内，就会被监视和监听。显然，你不知道自己什么时候会被监视。思想警察会多久一次、通过何种系统接入私人线路，是完全不可知的，甚至可以认为，他们在全天候地监视着所有人。不管怎样说，只要他们愿意，可以随时接入你的线路。”
+> Putin's war is becoming more brutal by the day. 
+> 
+> I just informed President [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) of the 4th package of sanctions. 
+> 
+> The EU is with the Ukrainian people. 
+> 
+> We support them with a €1.2 billion macro-financial assistance package and €500 million in humanitarian aid. [pic.twitter.com/9siOxbRdsB](https://t.co/9siOxbRdsB)
+> — Ursula von der Leyen (@vonderleyen) [March 14, 2022](https://twitter.com/vonderleyen/status/1503377015927357445?ref_src=twsrc%5Etfw)
 
-中共国的大数据监控无处不在，开发人脸识别技术逃无处可逃。这次病毒疫情监测健康码更加运用点线面结合方式控制每一个人的行程，只要你用了Wi-Fi和蓝牙就是透明人，如同裸奔。
 
-“两分钟仇恨节目最最可怕的地方，不在于你必须参加，而在于你简直无法在其过程中保持克制。不需要任何借口，只要置身其中30秒，只需30秒，人们就会变得近乎疯狂地恐惧、变得极端地仇恨、甚至会有杀人的冲动。想实施暴行、想用锤子砸烂敌人的脑壳。”
 
-这一点描述我们并不陌生，从毛时代开批斗大会仇恨地主反坏右，到现在参加党建活动必须表态反对美帝国主义，反对一切民主自由国家多么可怕。而这种洗脑像癌症一样传染给下一代儿童，从小培训他们仇恨自己父母，爱比爹亲比娘亲的党。
+欧洲理事会主席查尔斯·米歇尔（Charles Michel）发推明确，欧盟将继续支持南高加索地区的稳定、和平及繁荣。
 
-“他们又用另一种手段，去教唆孩子反对他们的父母，监视他们，并告发他们的异端思想。实际上，家庭早已失去了它本来的含义，成了思想警察的延伸。这种策略意味着，日日夜夜监视你包围你、随时将你告发的人，恰恰是你身边最亲近的人。突然孩子们近身围着他，不停地跳着，大喊着“大叛徒”、“思想罪犯”——他们俩强加给温斯顿的罪行。小女孩时刻和哥哥保持一致，哥哥怎么做，她就跟着怎么做。”
 
-“眼下，已进入仇恨周活动的第六天，大家都受够了游行、演说、呐喊、颂歌、摇旗、招贴、电影、蜡像、擂鼓、鸣号、跺足、坦克轰鸣飞机盘旋以及枪炮隆隆的折磨了。6天过后，人们已经亢奋到了极点对欧亚国的仇恨，也已经到了将近走火入魔的地步。如果让那2000名将于活动最后一天被绞死的欧亚国俘虏落在他们手上，他们一定会像野兽一样把他们撕碎。然而就在这时，大洋国政府突然宣布：交战对象不是欧亚国，而是东亚国，欧亚国实则是他们的盟友。”
 
-现在中共国也同样做战争宣传，发动小粉红宣扬仇恨乌克兰，赞美普京和伊朗、巴基斯坦等其它邪恶轴心国。
+> Discussed today with [@azpresident](https://twitter.com/azpresident?ref_src=twsrc%5Etfw) latest developments in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw), regional security and the impact of the war on the South Caucasus.
+> 
+> This follows my meeting last week also with [@NikolPashinyan](https://twitter.com/NikolPashinyan?ref_src=twsrc%5Etfw) 
+> 
+> The [#EU](https://twitter.com/hashtag/EU?src=hash&amp;ref_src=twsrc%5Etfw) will continue supporting a stable, peaceful and prosperous South Caucasus. [pic.twitter.com/7WeWLex17Q](https://t.co/7WeWLex17Q)
+> — Charles Michel (@eucopresident) [March 14, 2022](https://twitter.com/eucopresident/status/1503336093357424642?ref_src=twsrc%5Etfw)
 
-“如果所有人都听信党这别有用心的谎言，如果所有记录都如是记载这谎言，那么这谎言就会顺理成章地变成历史，变成真理了。于是党的口号，也就变成这样：“谁主宰历史，谁就主宰未来；谁主宰现在，谁就主宰历史。”
 
-“故事开始于60年代中期。那时，大清洗运动正如火如荼，许多革命功勋都在运动中被排挤掉了。到了1970年，除了老大哥本人以外，其余反叛人士都已被悉数消灭，一个也没有留下来。这些人统统是以叛国罪和反革命罪被揭发的。党员从来都是没有闲暇时间的，当然除了睡觉这一类不能集体参与的活动以外。党的原则是，除了工作、吃饭、睡觉外，你—定要参加一些公社的集体活动。”
 
-这是读者网友多么熟悉的一个经典场面，党篡改历史，任意P掉老照片里的人物，如果刘少奇被打倒，所有照片他就会消失殆尽，仿佛不曾在历史上有过。抗日战争也是颠倒黑白，竟然把胜负双方完全篡改，让多少人相信了是共产党抗日，把国民党的痕迹抹去。
+捷克共和国总理佩特尔·菲亚拉发布推特:
 
-“无产者根本就不能算作人类，”他口无遮拦地说道，“到2050年，或者更早，现存的所有由旧语阐述的思想都将消失。整个历史文化将被彻底颠覆。当然，党一直在宣称，恰恰是党把无产者从奴役中解放了出来。但同时，党却运用双重思想教导党员，要将无产者视作下等人，是下等人，就要像牲畜般劳作。”
 
-这不就是党高层对群众的看法吗？他们骨子里压根瞧不起工人阶级，但假惺惺地关心无产阶级，称自己代表最广大工人阶级利益的三个代表口号，无产者只是用来打击地主乡绅的打手和工具，用完当抹布一样扔掉。
 
-“如果“婚委会”认为，这对夫妇互相吸引对方的仅仅是他们彼此的肉体的话，他们依然不可能有机会在一起。唯一能让他们承认的结婚目的，恐怕就是制造新生儿来为党服务。党的真正意图，无非是扼杀人们的生理本能，倘若扼杀不成，就干脆将其扭曲。”
+> Today, we are going together with PM of Poland Mateusz Morawiecki, deputy PM Jarosław Kaczyński and PM of Slovenia Janez Janša to Kiev as representatives of the European Council to meet with president Zelensky and PM Shmyhal.[https://t.co/Q52Ur8hybu](https://t.co/Q52Ur8hybu)
+> — Petr Fiala (@P\_Fiala) [March 15, 2022](https://twitter.com/P_Fiala/status/1503632915334377473?ref_src=twsrc%5Etfw)
 
-中共国从延安开始实施的组织介绍婚姻同样如此，只是为了控制和生育，抹杀一切自由恋爱和情感。之后欺骗女知青嫁给农民，八千湘女下天山莫不如此。
 
-“一切都藏匿在迷雾中。历史已经被篡改，就连篡改这回事儿，也已经被人们彻底遗忘了，谎言变成了真理。”男主角温斯顿本身在真理部工作，恰恰是负责修改档案资料的人，所以他是接触第一手资料的，但工作的枯燥乏味让他认同修改档案是正常生活方式，只像一个上了发条的机器那样循规蹈矩做事。但女主角朱丽娅有意无意的和他接触，让他开始好奇质疑现实的女主角的背景情况。
 
-“如果她也在记录科工作，那事情就好办多了，但问题是她在小说科，而他根本不知道小说科的门是向哪儿开的；她的工作就像他先前猜测的那样，是在小说科保养小说创作机。她很喜欢这份工作，她的主要工作职责是负责毛病不断的高压电机的运转和维修。不论在何种情况下，只要说起性，她都会变得非常敏锐。与温斯顿不同，她已经洞悉了党在禁欲方面的良苦用心：性的本能，不仅仅会创造自己的生活，还会让人摆脱党的控制，因此，只要有可能，党总会想方设法地毁掉它。而更重要的是，性行为被剥夺后，能够让人歇斯底里起来，而这正是党所需要的，它能将人的这种状态，转变为对战争的狂热和对领袖的崇拜。”
+波兰政府发言人Piotr Müller推特强调，本次出访由欧洲理事会主席查尔斯·米歇尔和欧盟委员会主席乌尔苏拉·冯德莱恩组织，为表达欧盟对乌克兰的支持。
 
-共产党的贪官们妻妾成群，拥有彻底的性自由，对老百姓禁止情感自由恋爱，他们嫖娼玩弄女性、在别墅、地牢里圈养性奴隶就是恋爱，而我们普通人恋爱、结婚却被说成耍流氓。他们有预谋的宣扬拜金主义，教唆男人对身边女性实施PUA，扭曲正常人际关系。
 
-“党成功地将这种世界观移植到了这些读不懂它的人身上。他们能接受那些明显违背现实的荒唐事，因为他们全然不知道党对他们做了什么，也不去理会身边究竟发生了什么大事。因为缺乏理解，所以他们安分守己他们可以吞下一切，甚至连渣都不剩，这些东西也不会对他们构成伤害，就像鸟儿硬生生地吞下一颗谷粒，又有何妨？”
 
-“我说的意思不是招供，招供也不意味着背叛。不论你说了什么做了什么，都没关系，感情才是最重要的。如果他们能够让我停止爱你——那才是真正的背叛。她仔细想了一下。“他们不能那么做，”她最后说，“有一件事他们办不到。他们能逼你招认任何事——任何事情——但是，他们不能逼你相信自己讲的话是真的或假的，他们钻不进你的脑子里。”
+> The visit was consulted with the [@eucopresident](https://twitter.com/eucopresident?ref_src=twsrc%5Etfw) [@CharlesMichel](https://twitter.com/CharlesMichel?ref_src=twsrc%5Etfw) and the President of the [@EU\_Commission](https://twitter.com/EU_Commission?ref_src=twsrc%5Etfw) [@vonderleyen](https://twitter.com/vonderleyen?ref_src=twsrc%5Etfw). Europe must guarantee the independence and territorial integrity of Ukraine!
+> — Piotr Müller (@PiotrMuller) [March 15, 2022](https://twitter.com/PiotrMuller/status/1503644480796336135?ref_src=twsrc%5Etfw)
 
-朱丽娅对党的体系洞察很深，深刻理解党的本质，认为爱情和性是其中一个漏洞。但她对人性的怕死恐惧还没理解，高估了自己的人性，也因为她此时还没受过酷刑，轻视了党对大脑思想控制如火纯青的地步。
 
-“现在，我们采用的迫害方式跟过去不同吗？我们不会满足于消极的服从，更不会满足于卑微的屈服，我们要你诚心投降，而且这种诚心源自你的自由意志。我们绝不会因为异端分子的对抗，就不问缘由地将他消灭。只要他跟我们对抗，我们就绝不消灭他。我们会改变他，控制他的内心思想，改造他，燃烧掉他内心所有的邪恶和幻觉，把他引到我们这边来。我们要的不是他表面上的认同，而是内心和灵魂深处的认同。在杀死他之前，我们会把他变成我们的人。”
 
-温斯顿和朱丽娅都被抵抗组织诱捕了，温斯顿意志坚定地以为爱情可以战胜一切，但老大哥通过无时不在的大数据监控洞悉了人们潜意识的恐惧，同样找到了温斯顿最恐惧的事物，那是来自童年的噩梦，他终于放弃了所有抵抗。
-
-“他突然想到，他可以把对他的惩罚转移到仅有的一个人身上；于是，他开始疯狂地大叫起来，一遍又一遍：
-
-“去咬朱丽亚！去咬朱丽亚！不要咬我！朱丽亚！我不在意你们对她做什么。哪怕是撕扯她的脸，嚼碎她的骨头。不要咬我！咬朱丽亚！别咬我！”
-
-他回到了仁爱部大楼，所有的罪行都被党赦免了，灵魂得到了净化，洁白如雪。公审时，他坦白了一切罪行，指控了每一个人。他走在白瓷砖铺就的走廊上，感觉像沐浴在阳光里一般，一位荷枪实弹的警卫跟在他身后。期待已久的子弹，终于射进了他的脑袋，眼眶流下了两行热泪，他已经战胜了自己，他爱老大哥。”
-
-发布：tianzhihuan
-
-更多资讯，请关注：                         
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+來源｜[波蘭政府官方網站](https://www.gov.pl/web/primeminister/prime-ministers-visit-to-kyiv)
 
  
 
