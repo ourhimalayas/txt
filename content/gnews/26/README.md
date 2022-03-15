@@ -2,33 +2,31 @@
 ---
 
 
-## SEC迫使在美中企退市举措使得中概股的投资与上市前景愈发黯淡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2168318/)
+## 善良的人类都反对战争
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2168329/)
 
-#### 翻译/撰稿：zzballack
+撰稿：骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-18.17.43.png)图源：网路
+梅迪卡前线时间3月15日，战友Nicole采访了连着七天都在为难民演奏音乐的钢琴家Davide Martello。这位钢琴家说自己不关心政治，但是非常反对战争，他在很多战争和动乱的场面去安抚过受难的百姓。他曾去过阿富汗，动乱时期的土耳其，巴黎恐怖和爆炸事件，在一些经历了自然灾害如洪水的地区。他四处奔走，为世界呼吁和平和爱，他说自己未去过香港，但为香港人演奏过。他说现在的科技进步太方便了，starlink这样的高科技只会使人与人的连接更加容易，无论人们是什么种族和语言，善良的人们彼此都有一颗和平的心。只有和平和爱，还有音乐，才能够让全人类团结一致。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-3.png)图片来源：南华早报
-据《新闻极限》（Newsmax）3月14日报道，美国证券交易委员会（SEC）上周首次列出了五家可能因为不符合审计要求而从纽约退市的中国公司名单，包括肯德基运营商百胜中国控股有限公司（Yum China Holdings）。此举正在促使更多基金退出持股，并使短期内中国企业赴美上市的前景变得黯淡。
+Nicole战友告诉钢琴家，人类社会一切罪恶的根源就是共产党，只有推翻了共产党才能有人类团结和分享爱的可能。而新中国联邦就是消灭共产党的中国人。钢琴家说虽然他不懂政治，但是他认为一个政府如果不与世界联网，违背历史潮流，想要倒退，那是不可能的。
 
-华盛顿要求能够完全查阅在美上市中国公司的账目，但中共政府禁止外方审查本地会计师事务所的工作文件。
+* * *
 
-美中监管机构因为审计问题的对峙由来已久，美方此举重新引起了投资者的担忧，并触发了中国企业美国存托凭证(ADR)的大规模抛售。高盛（Goldman Sachs）估计，美国机构投资者目前持有约2000亿美元的中国ADR风险敞口。
+撰稿、发布：银河系农场—-骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0313_Handflag17x24cm2.png)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-纽约一家大型对冲基金的投资组合经理匿名说：“整个行业越来越难投资。我们干脆放弃，暂时退出任何在美上市的中国企业。我们的基金自2019年底开始出脱中国企业的ADR，并计划在未来几周内抛售所有剩余持仓。”
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-追踪在纽约上市中国企业的“纳斯达克金龙中国指数”(Nasdaq Golden Dragon China Index)自上周四（3月10日）以来连续两天下跌超过10%，使得今年以来的跌幅扩大到34%。该指数在2021年下跌了43%。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-对在美上市中国企业的担忧重现之际，地缘政治风险上升和中国增长前景低迷抑制了对风险资产的偏好。银行家们说，监管的不确定性可能进一步阻碍中国公司在纽约的新上市计划，审计要求的不确定性以及中国关于离岸上市的新规则给筹资前景蒙上阴影。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-Chardan特殊目的收购公司(SPAC)投资银行部驻纽约董事总经理翁英杰（音译，Yingjie Weng）说：“中国公司未来在美国上市的前景仍然不明朗。那些被广泛用于规避外国投资限制、采用复杂离岸控股结构的公司，不太可能获得SEC的批准。”
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-新闻来源：[SEC’s Move to Delist Chinese ADRs Worsens Investment Outlook](https://www.newsmax.com/streettalk/sec-adr-china/2022/03/14/id/1061015/)
-
-[秘翻在线：SEC納5傢中概股進退市風險名單 熱門中概股集體下挫](https://gnews.org/zh-hant/2143748/)
-
-[秘翻在线：SEC调查5家中概股公司 引发股票爆跌](https://gnews.org/zh-hans/2143338/)
-
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
