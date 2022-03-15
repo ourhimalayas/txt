@@ -2,20 +2,22 @@
 ---
 
 
-## 秘翻在线: 辉瑞总裁“推销”第四针疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2164509/)
+## 秘翻在线: 深圳封锁令对全球供应链造成新打击
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2164960/)
 
 撰稿：西枫westca
 
 校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-11.jpg)图片来源：网络照片
-据多家媒体3月14日报道， 辉瑞首席执行官Albert Bourla 周日在接受采访时表示，由于免疫力下降，第四剂冠状病毒疫苗将是必要的。 人们将不得不为每年接种与流感相同的加强剂疫苗做好准备。他说，就像流感疫苗一样，冠状病毒疫苗可能成为美国人每年都会接种的疫苗。该公司正在向美国食品和药物管理局提交数据，说明需要第四剂中共病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-7-1.jpg)图片来源：网络照片
+知名数字媒体公司Axios 首席经济记者尼尔欧文（Neil Irwin）3月13日发推说， 深圳对于中共病毒的新的封锁令将会对美国的通货膨胀造成巨大的不利影响， 但这个信息还未被广泛报道。
 
-布尔拉在这次采访中重申，辉瑞公司正在努力制造一种疫苗，可以预防包括Omicron在内的所有变体，而且还可以保护至少一年。他的评论，是在关于辉瑞和Biontech的第三次加强剂注射，以及FDA在1月份向12至15岁的儿童扩大使用单一加强剂剂量的混合信息之后发表的。
+深圳市疫情防控指挥部3月13日发布全市社区小区封闭式管理，公交、地铁停运， 除担任防疫任务的工作人员，均居家办公，暂停生产经营活动一周。全员三轮核酸检测。这座1700多万人的大城市，连同邻近的号称“世界加工厂” 的东莞一同进入“慢生活”。
 
-在辉瑞不得不公布其“ 特别关注的不良反应报告”后两周，让世人注意到了1291种 疫苗副作用。 又来推广第四针疫苗，并且要年年打， 真是丧心病狂。
+深圳市是世界大部分技术制造业的所在地，而世界上大多数工业产品都可以在东莞企业群体的“工业生物链”中找到与其相配套的行业和产品。苹果供应商富士康已关闭两家生产iPhone的工厂。
 
-**新闻来源：**[Pfizer CEO says fourth dose of COVID vaccine is “necessary,” submits data to FDA – CBS News](https://www.cbsnews.com/news/covid-vaccine-fourth-dose-booster-pfizer-ceo-albert-bourla/)[辉瑞首席执行官：由于免疫力下降，第四次COVID疫苗”必要” (nypost.com)](https://nypost.com/2022/03/13/pfizer-ceo-fourth-covid-shot-necessary-due-to-waning-immunity/)
+在中共国，主要从事制造业的城市封锁不仅会影响本国的经济复苏， 还可能对全球供应链会造成新的打击。对于已高达7.9%（2月统计数字）通货膨胀率的美国，多种产品的供应链断裂，对经济的打击会是雪上加霜。
+
+**新闻来源：**[Neil Irwin on Twitter: “We’re currently living in the brief moment between when Finance/Econ Twitter has realized that the new Covid lockdowns in Shenzhen are going to have hugely bad consequences for US inflation, but that has not yet become a widely-reported conventional wisdom.” / Twitter](https://mobile.twitter.com/Neil_Irwin/status/1503202338340757516)[富士康因新冠疫情封锁在深圳停产 – 协议 (protocol.com)](https://www.protocol.com/bulletins/shenzhen-lockdown-manufacturing)
 
  
 

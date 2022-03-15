@@ -2,22 +2,43 @@
 ---
 
 
-## 秘翻在线: 深圳封锁令对全球供应链造成新打击
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2164960/)
+## 加拿大卫星公司提供雷达图像帮乌抗俄
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2165374/)
 
-撰稿：西枫westca
+![](https://assets.gnews.org/wp-content/uploads/2022/03/C.jpg)anytvnews.com
+据《真北方》（TRUE NORTH）3月13日报道，加拿大卫星制造商MDA正在向乌克兰提供近乎实时的卫星图像，以监测俄罗斯部队的动向。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-7-1.jpg)图片来源：网络照片
-知名数字媒体公司Axios 首席经济记者尼尔欧文（Neil Irwin）3月13日发推说， 深圳对于中共病毒的新的封锁令将会对美国的通货膨胀造成巨大的不利影响， 但这个信息还未被广泛报道。
+“我们可以提供情报报告，人们可以从我们的雷达图像确定地面或海上的情况。”MDA首席执行官迈克·格林利（Mike Greenley）星期二告诉路透社，“这一切都是为了……做正确的事情，给乌克兰提供他们需要的支持。”
 
-深圳市疫情防控指挥部3月13日发布全市社区小区封闭式管理，公交、地铁停运， 除担任防疫任务的工作人员，均居家办公，暂停生产经营活动一周。全员三轮核酸检测。这座1700多万人的大城市，连同邻近的号称“世界加工厂” 的东莞一同进入“慢生活”。
+格林利说，在合成孔径雷达（SAR）图像中，”你可以看到车辆群，你可以看到建筑物的变化，你可以看到桥梁的变化，你可以在所有天气条件下看到海上的船只，无论白天还是黑夜。”
 
-深圳市是世界大部分技术制造业的所在地，而世界上大多数工业产品都可以在东莞企业群体的“工业生物链”中找到与其相配套的行业和产品。苹果供应商富士康已关闭两家生产iPhone的工厂。
+据格林利说，这些情报是通过设在西方的商业机构或政府传达给乌克兰的。他补充说，MDA在3月4日得到了加拿大政府的批准，与乌克兰分享这些图像。
 
-在中共国，主要从事制造业的城市封锁不仅会影响本国的经济复苏， 还可能对全球供应链会造成新的打击。对于已高达7.9%（2月统计数字）通货膨胀率的美国，多种产品的供应链断裂，对经济的打击会是雪上加霜。
+当被问及他是否担心俄罗斯的报复时，格林利说，MDA已经采取了 “略微提高的安全姿态”。
 
-**新闻来源：**[Neil Irwin on Twitter: “We’re currently living in the brief moment between when Finance/Econ Twitter has realized that the new Covid lockdowns in Shenzhen are going to have hugely bad consequences for US inflation, but that has not yet become a widely-reported conventional wisdom.” / Twitter](https://mobile.twitter.com/Neil_Irwin/status/1503202338340757516)[富士康因新冠疫情封锁在深圳停产 – 协议 (protocol.com)](https://www.protocol.com/bulletins/shenzhen-lockdown-manufacturing)
+乌克兰数字转型部长米哈伊洛·费多罗夫（Mykhailo Fedorov）两周前曾在推特上向国际社会发出呼吁，要求提供合成孔径雷达（SAR）卫星数据。
+
+“我们非常需要有机会观察俄罗斯军队的动向，尤其是在夜间，而我们的技术是盲目的。”费多罗夫3月1日在推特上说。
+
+俄罗斯称其在乌克兰的行动为 “特别行动”，声称其目的不是为了占领领土。
+
+MDA的举动是加拿大和加拿大公司对俄罗斯采取的一系列行动中最新的一次。这些行动包括禁止俄罗斯银行业务，对俄罗斯飞机关闭加拿大领空，以及将俄罗斯酒类从政府经营的酒类商店的货架上移除。
+
+值得注意的是，总理贾斯汀·特鲁多于2月28日宣布禁止从俄罗斯进口原油。“这个行业占俄罗斯联邦预算收入的三分之一以上。”特鲁多说，“虽然加拿大近年来进口的数量很少，但这项措施发出了一个强有力的信息。”
+
+**特评**：
+
+加拿大是五眼联盟之一，是G7也是北约成员国，经过加拿大政府的批准，这样的加拿大公司作为商业机构给乌克兰提供情报技术支持。
+
+由此，联想到伊隆·马斯克为乌克兰提供的星链，我们新中国联邦的前线救助义工们在波兰边境Medyka搭起的最大帐篷周围使用的就是用星链的接收器为各国战地记者、国际救援组织和难民们无偿提供WIFI，意大利达芬奇农场的文科战友在现场反馈的信息显示，网速特别快，比他们在附近定的酒店提供的WIFI还快很多。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/S.jpg)图片由意大利达芬奇农场文科拍摄![](https://assets.gnews.org/wp-content/uploads/2022/03/T.jpg)
+现磨的咖啡、德国钢琴家帐篷外现场的演绎，提供用户名“New Federal State of China”（新中国联邦）、密码“takedownccp”（消灭中国共产党）的最快WIFI，再加上篝火和帐篷内的煤气灯、鼓风机和生活用品一应俱全，当然还有义工日夜辛苦付出的爱与热情，感动了所有身处困难中的人们，让我们搭建的帐篷成了最温暖的七星难民救助中心。
+
+参考链接：
+
+[https://tnc.news/2022/03/13/canadian-satellite-company-helping-ukraine-fight-russia/](https://tnc.news/2022/03/13/canadian-satellite-company-helping-ukraine-fight-russia/)
+
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 
