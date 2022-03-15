@@ -2,35 +2,20 @@
 ---
 
 
-## 有声|中共病毒疫苗创造亿万富翁 中共国六人上榜
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2169447/)
+## 克拉科夫救援站迎来年龄最小的难民
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2169514/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，有机构披露，自中共病毒大流行开始以来，至少有9人成为新的亿万富翁，这九位新亿万富翁的总净资产为193亿美元。八位现有的亿万富翁的总财富增加了322亿美元。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-6.jpg)
-在这17位亿万富翁中，有6人来自中共国。他们分别是：中共国重庆智飞生物制品股份有限公司主席，蒋仁生家族；中共国国药控股股份有限公司，谢炳；中共国重庆智飞生物制品股份有限公司联合创始人，吴冠江；中共国天津康希诺生物联合创始人、董事长兼首席科学官朱涛；中共国天津康希诺生物联合创始人兼高级副总裁邱东旭；中共国天津康希诺生物联合创始人兼高级副总裁毛慧华。
+采编撰稿：加拿大温哥华杨帆农场 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1655.png)图片来源：GETTR
+据3月13日盖特报道，法治基金救援队当天在波兰克拉科夫凌晨1点，迎来了2辆满载乌克兰战争难民的救援大客车，在向这些被救助的妇女和儿童提供免费饮食之后，他们随即都被全部妥善安置。
 
+据悉，在以上被新中国联邦接待的118位难民中，包括一个三个月大婴儿和一名刚刚出生仅6天的新生儿，这是本次法治基金救援行动中年龄最小的被救助者。 此外，针对进一步的救援措施，文贵先生表示，新中国联邦将在国际职业安保人员的保护下，携带包括先进定位装置等专业搜救设备，深入乌克兰炮火漫天的战区直接实施营救受困同胞和当地难民的人道行动。
 
+校对编辑：硫酸羟氯喹64
 
-文字版原文：[中共病毒疫苗创造亿万富翁 中共国六人上榜](https://gnews.org/zh-hans/2159760/)
+发稿：青青
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源：[https://gettr.com/post/pzucaeebdf](https://gettr.com/post/pzucaeebdf)
 
  
 

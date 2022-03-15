@@ -2,29 +2,33 @@
 ---
 
 
-## 国际媒体正在全面认知新中国联邦
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2169624/)
+## 印度或考虑低价进口俄罗斯石油
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2169666/)
 
-采编 撰稿：加拿大温哥华杨帆农场 – 晨熹
+撰稿：红杉
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.15-I.jpg)图片来自网络
+据报道，两名印度官员表示：印度可能会接受俄罗斯提出的以折扣价购买原油和其他商品的提议。尽管西方试图通过制裁孤立莫斯科，但德里仍希望与其主要贸易伙伴保持关系。印度也没有在联合国投票谴责俄罗斯的侵略。
 
+印度80%的石油需要进口，通常只从俄罗斯购买约2%至3%。但随着油价大幅上涨，政府正在考虑增加进口，以帮助减少不断上涨的能源费用。
 
+一位印度官员说，愿意接受俄罗斯的极低折扣的石油和其他商品，并表示这种贸易需要一些准备工作，包括运输、保险和获得原油混合物，一旦完成，印度就会接受俄罗斯的提议。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
+另一名官员称，除了石油，印度还从俄罗斯及其盟友白俄罗斯寻找更便宜的化肥。同时，印度正试图与俄罗斯建立卢比-卢布机制，以继续双边贸易。
 
+美国官员希望印度尽可能地与俄罗斯保持距离，但也意识到其军工严重依赖俄罗斯。印度安全机构一官员表示，因为与中共国的领土争端不断升温，需要保持其武装部队的充足供应。不能突然用其他供应商取代俄罗斯，尤其是在国防领域。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1657.png)图片来源：GETTR
-据3月13日盖特直播报道，在法治基金波兰梅迪卡救援中心，尼蔻战友随机采访了现场两位分别来自美国和日本的记者，并向其介绍了新中国联邦和法治基金及其发起人和引领者郭文贵先生。
+尽管过去十年国防进口显著下降，但印度在军事硬件方面对俄罗斯的依赖度依然高达60%。美国外交官唐纳德·卢最近表示，美国政府正在考虑是否依据《美国敌对国家制裁法案》（CAATSA）对印度施加制裁，因其购买5套俄罗斯S-400防空导弹系统。
 
-报道称，作为全球大媒体的一线新闻记者，他们非常了解中共国现状，也清楚认识俄罗斯入侵乌克兰的幕后操纵者，甚至指出正在试图控制世界的邪恶共产主义是全人类公敌，并对誓言消灭中共的新中国联邦人和法治基金救援行动表示钦佩和感谢。
+审核：Gradient Boost
 
-此外，受访记者对文贵先生表达了由衷的敬意，并表示愿意跟随郭先生一起灭共，以更多的行动来改变中国，帮助新中国联邦推翻中共政权的统治！
+发布：Gradient Boost
 
-校对编辑：硫酸羟氯喹64
+资料来源：
 
-发稿：青青
+[Russia may have found a buyer for its cheap oil: India](https://edition.cnn.com/2022/03/14/energy/india-russia-oil/index.html)
 
-新闻来源：[https://gettr.com/streaming/pzr8jja7a2](https://gettr.com/streaming/pzr8jja7a2)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/EN-e1646965309541.jpg)
+[Ukraine war update, March 15: India considers buying Russian oil; ICJ provisional order on Russia this week](https://indianexpress.com/article/explained/ukraine-war-update-march-15-7820403/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
