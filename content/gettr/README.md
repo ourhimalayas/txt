@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gtranslators_1 3/15/2022 8:58 AM (UTC)`
+
+[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.03.15 EST
+![img](https://media.gettr.com/group26/origin/2022/03/15/08/a9cbfa15-7b3d-7882-2feb-280a8947bef4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/15/2022 9:14 AM (UTC)`
 
 彭博快讯：最近一次袭击发生在离波兰边境如此之近的地方，也就是北约的领土，这就是为什么乌克兰一直在呼吁北约在乌克兰建立禁飞区。这次报道的背景是新中国联邦和法治基金的救援帐篷和标志。<br/><br/>Bloomberg Quicktake: The latest strike happened so closed to Poland's border, a NATO member’s territory, which is why Ukraine has been calling for NATO to establish a no-fly zone in Ukraine. The background of this reporting is NFSC and ROLF’s rescue tents and logos.
@@ -152,13 +161,6 @@ Italian Lorenzo told us about what the 2 unimaginable true pictures he witnessed
 
 <br/>3月14号：天下最不要脸的，就是中国共产党……培养出来的这些极为不要脸的小粉红……根本不知道天有多高．地有多大．最冷漠的被洗脑了无知的愚蠢的这些人……们很快将为他们将为此付出代价，感谢日本银河农场制作的精美的视频。
 ![img](https://media.gettr.com/group45/getter/2022/03/14/23/7d7dbcc6-f8b2-6504-151e-3919747c10d3/out.jpg)
-
----
-
-`@miles 3/14/2022 11:02 PM (UTC)`
-
-2022.03.14 NFSC News  The New Federal State of China’s Humanitarian Rescue Mission； AFP War Correspondent On the NFSC & ROLF Rescue Center 
-![img](https://media.gettr.com/group13/origin/2022/03/14/23/59e902ca-8625-380f-4b3e-b1dd5b7d7373/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
