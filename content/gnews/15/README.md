@@ -2,241 +2,49 @@
 ---
 
 
-## COVID-19 疫苗接种要求违宪——给德国议会的一封信
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2167603/)
+## 2022/03/03 赫尔松成为俄乌战争中第一个被俄罗斯占领的城市
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2167699/)
 
-撰稿: kai奋斗
-![](https://assets.gnews.org/wp-content/uploads/2022/03/152.jpg)图片制作：澳喜农场©森森
-2022 年 3 月 9 日
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-15-091016.png)
+GETTR视频链接：[https://gettr.com/post/py4eaq5e60](https://gettr.com/post/py4eaq5e60)
 
-亲爱的联邦议院议员，女士们，先生们，
+**视频字幕：**
 
-你们很快将不得不决定一项强制接种疫苗的法律。强制接种疫苗限制了公民的基本权利，包括身体完整的基本权利，有可能侵犯人类尊严和自决权。下面签名的 81 位科学家向您提交这封信，要求在此问题上做出宪法决定。
+**主持人：**随着俄罗斯对乌克兰的进攻进入第二周，乌克兰首都基辅发生了大型爆炸事件，但是基辅仍然在乌克兰的控制之下，赫尔松南部港口已经成为第一个被占领的大城市，俄罗斯军队已经强行进入市议会大楼。
 
-宪法审查包括四个问题：
+首都基辅在一夜之间发生了大规模爆炸。该国第二大城市哈尔科夫遭到猛烈炮击，在持续数小时的炮击后，港口城市马里乌波尔恐怕有数百人死亡。同时，英国军事情报称，距离乌克兰首都中心约30公里的庞大俄罗斯车队被当地的抵抗、机械故障和拥堵所阻挡。
 
-**1.) ****该法律的哪个目的是符合宪法的？**
+联合国称，自俄罗斯开始入侵以来，已有一百万难民离开乌克兰。大多数都前往了邻国。在39个国家要求进行调查后，海牙国际刑事法院开始对乌克兰可能的战争罪行进行调查。国际残奥委员会表示，俄罗斯和白俄罗斯运动员将被禁止参加周五在北京召开的冬季残奥会。
 
-**2.) ****这种措施，即强制接种疫苗，是否适合实现这些目标？**
+让我们在这一小时（节目）的开始，对乌克兰目前的局势做一个概述。这里有一张地图。在这场冲突中，当地的消息来源仍有相互矛盾的地方，但到目前为止，这些红色的地区是那些主要由俄罗斯军队控制的地区。我们稍后会有更多分析。但首先，马克·莱伯特带来了新消息。
 
-**3.) ****这个措施有必要吗？**
+**马克****·****莱伯特：**在首都基辅的一次直播结束时，又一次侵略行为被拍到。这到底是什么？哥伦比亚广播公司的查理·达格将这一时刻描述为他所经历的两个最大的爆炸事件。据报道，爆炸发生在市中心，靠近一个地铁站，时间是凌晨两点左右。爆炸发生在俄罗斯军队占领战略港口城市赫尔松的数小时之后。第一个沦陷的大城市的市长说，有武装部队找到他。他只是要求他们不要向民众开枪。俄罗斯人计划在那里建立一个军事管理机构。任何留下来的人都必须遵守每天的宵禁令，并且只能独自在外行走。对乌克兰第二大城市哈尔科夫的野蛮攻击继续向其南部蔓延。另一个战略性港口城市马里乌波尔也受到猛烈攻击。尽管俄罗斯承诺不以城市或平民为目标，但其市长表示，俄罗斯人有意摧毁这些城市和人民。
 
-**4.) ****这个措施合适吗？**
+**Vadym Boichenko (Mayor of Mariupol****马里乌波尔****)****：**不幸的是，重要的基础设施再次被破坏。我们又一次停电、停水、停暖。
 
-从法律的角度来看，第一条规则是举证责任在于你们立法者。其次，针对这个问题的担忧就足以宣布强制接种疫苗是违宪的。
+**马克****–****莱伯特：**在首都东北部，俄罗斯军队“拜访”了科诺托普市长，其中一人高举手榴弹，与居民进行了紧张的交锋。市长向民众传达的最后通牒是要么投降，要么将面临从远处的开火。大多数人似乎想继续战斗。在周三晚上从一个未公开的地点发布的视频信息中，乌克兰总统敦促所有乌克兰人抵制俄罗斯的占领。
 
-在下文中，我们表明对上述所有标准中人们存在的担忧，因此强制接种疫苗的法定命令将是违宪的，支持我们每个论点的综合证据可以在我们参考的附件中找到。
+**泽连斯基总统：**我们是一个在一周内打破敌人计划的国家，多年来偷偷摸摸写的计划充满对我们国家和人民的仇恨。
 
-第一个问题， 受宪法保护的自决权禁止强制个人接种疫苗以保护自己。就宪法而言，强制疫苗是为了保护他人的说法站不住脚，尽管不能绝对排除对第三方健康存在的风险，而国家也不能以其他方式保证这一点。这里宪法似乎只允许以下两个目标：
+**马克****–****莱伯特：**有时，俄罗斯面临着尴尬的局面，无论是被农民拖走的价值数百万美元的俄罗斯防空系统，还是乌克兰男子在一辆正在运行的俄罗斯坦克上兜风。俄罗斯称，在战斗中其部队有498人死亡，另有1597人受伤。乌克兰报告说，到目前为止已有2000名平民死亡。在收到39个国家的请求后，国际刑事法院已经开始对俄罗斯入侵乌克兰的战争罪进行调查。一周后，一个城市被摧毁，许多乌克兰人留下来继续战斗。正如联合国所说，逃离乌克兰的难民人数现在已经达到100万。
 
-a.) 将严重疾病（重症监护患者和死亡）的数量减少到与其他传染病相当的水平；
+**简评：**
 
-b.) 防止医疗保健系统严重超载。
+随着俄罗斯对乌克兰的进攻进入第二周，乌克兰首都基辅发生大爆炸。第二大城市哈尔科夫和战略性港口城市马里乌波尔均遭到猛烈炮击，基础设施再次被破坏，再一次停电、停水、停暖，数百人死亡，但是基辅仍然在乌克兰控制之下。赫尔松成为第一个被俄罗斯占领的大城市。俄罗斯人计划在赫尔松建立一个军事管理机构。任何留下来的人必须遵守宵禁令，并且只能独自在外行走。乌克兰总统敦促所有乌克兰人抵制俄罗斯的入侵。
 
-第二个问题，强制接种疫苗的适用性值得怀疑，因为现有的 COVID-19 疫苗不能产生足够的免疫力，因此不能提供足够的保护免受他人侵害：
+乌克兰报告说，到目前为止有2000名平民死亡。联合国称，从战争开始，已经有一百万难民逃离乌克兰。在收到39个国家的请求后，海牙国际刑事法院已经开始对俄罗斯入侵乌克兰的战争罪进行调查。国际残奥委员会表示，俄罗斯和白俄罗斯运动员被禁止参加北京冬季残奥会。
 
-a) 几周后，疫苗接种不仅不再对感染概率产生积极影响，甚至会增加这种概率，正如 Omikron 目前所展示的那样 [附件 1：第 4 节] ；
+* * *
 
-b) 疫苗接种对疾病的严重程度只有轻微，会在短时间内降低 [附件 1：第 2 和 3 节] ；
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-c) 接种过疫苗的人\*的传染性不亚于未接种过疫苗的人。因此疫苗接种不能中断感染链 [附件 1：第 7 节]。
 
-（\*“未接种疫苗/接种疫苗”一词含糊不清。因此，我们谈论的是接种或未接种 COVID-19 疫苗的人；如果确实有必要，会给出接种疫苗的次数。）
+编辑：【英国伦敦喜庄园编辑部】
 
-第三个问题， 必须否认接种疫苗的一般义务的必要性，因为
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-a) 不再给出 COVID-19 的特殊危险。随着 omicron 变体的出现，感染严重程度只是达到正常季节性流感的水平[附件 1：第 1 节] ；
-
-b) 疫苗接种并非没有替代方案，因为可以使用高效的治疗和预防措施[附件 2] ；
-
-c) 医疗保健系统没有显着负担过重[附件 3]。
-
-第四个问题， 疫苗接种要求是不合适的，因为可用的疫苗不仅不安全，而且具有前所未有的潜在风险：
-
-a)  COVID-19 疫苗是有条件批准的新药，其中长期潜在风险尚未得到充分调查的事实；
-
-b) 必须通过 Paul-Ehrlich-Institut 记录的疫苗接种副作用的危险性和频率来衡量；
-
-c) 合理估计至少 80% 的副作用未登记 [附件 4]；
-
-d) 以无法解释的大量死亡来衡量，特别是在中年至青春期，这在时间上与疫苗接种有关[附件 5]；
-
-e) 针对新出现的广泛的副作用，其程度只能在很长的一段时间内去评估[附件 6]。
-
-根据以上论据​​，关于 COVID-19 疫苗接种义务的法律是不能通过的，因为它不适合、没有必要、不适合，因此其所追求的目标是违宪的。
-
-近几个月针对该法律的讨论已经给我们的社会造成了很大的震动和分裂，我们要求您利用关于强制接种疫苗的辩论作为机会，采取其他可以治愈和调和我们的民主的方法。
-
-以下是联署签名单Die Autorengruppe
-
-Prof. Dr. Jessica Agarwal
-
-Prof. Dr. Thomas Aigner
-
-Prof. Dr. Ralf Alleweldt
-
-Prof. Dr. Dr. h.c. Kai Ambos
-
-Prof. Kerstin Behnke
-
-Prof. Dr. Ralf B. Bergmann
-
-Prof. Dr. Andreas Brenner (CH)
-
-Prof. Dr. Klaus Buchenau
-
-Dr. Matthias Burchardt
-
-Prof. Dr. med. Paul Cullen
-
-Prof. Dr. Viktoria Däschlein-Gessner
-
-Ass.-Prof. Dr. theol. Jan Dochhorn
-
-Prof. Dr. Ole Döring
-
-Prof. Dr. Gerald Dyker
-
-Dr. Alexander Erdmann
-
-Prof. Dr. Michael Esfeld (CH)
-
-Dr. Claas Falldorf
-
-Dr. Matthias Fechner
-
-Dr. med. Johann Frahm
-
-Prof. Dr. Katrin Gierhake
-
-Prof. Dr. Frank Göttmann
-
-Prof. Dr. Ulrike Guérot
-
-Prof. Dr. Lothar Harzheim
-
-Prof. em. Dr. med. habil. Karl Hecht
-
-Prof. Dr. Saskia Hekker
-
-Prof. Dr. Martina Hentschel
-
-Prof. Dr. med. Sven Hildebrandt
-
-Prof. Dr. Detlef Hiller
-
-Prof. Dr. Oliver Hirsch
-
-Prof. em. Dr. med. Dr. Georg Hörmann
-
-Prof. Dr. Thomas Sören Hoffmann
-
-Dr. Agnes Imhof
-
-Dr. René Kegelmann
-
-Prof. Dr. theol. Martin Kirschner
-
-Dr. Sandra Kostner
-
-Prof. Dr. Boris Kotchoubey
-
-Prof. Dr. Klaus Kroy
-
-Prof. Dr. Christof Kuhbandner
-
-PD Dr. Axel Bernd Kunze
-
-Dr. Norbert Lamm
-
-Prof. Dr. Salvatore Lavecchia
-
-Dr. Christian Lehmann
-
-Dr. h. c. theol. Christian Lehnert
-
-Prof. Dr. Normann Lorenz
-
-Prof. Dr. Stephan Luckhaus
-
-PD Dr. Stefan Luft
-
-Prof. Dr. Jörg Matysik
-
-Dr. Christian Mézes
-
-Prof. Dr. Klaus Morawetz
-
-Prof. Dr. Gerd Morgenthaler
-
-Prof. Dr. Ralph Neuhäuser
-
-Dagmar L. Neuhäuser
-
-Dr. med. Sven Gerhard Nevermann
-
-Dr. Henning Nörenberg
-
-Prof. Dr. Gabriele Peters
-
-Prof. Dr. Christian Pietsch
-
-Dr. med. Steffen Rabe
-
-Prof. Dr. Konrad Reif
-
-Prof. Dr. Günter Reiner
-
-Prof. Dr. Matthias Reitzner
-
-Prof. Dr. Markus Riedenauer
-
-Prof. Dr. Günter Roth
-
-Prof. Dr. Andreas Schnepf
-
-Prof. em. Dr. med. Wolfram Schüffel
-
-Prof. Prof. Dr. med. Klaus-Martin Schulte
-
-Dr. Jens Schwachtje
-
-Prof. Dr. Harald Schwaetzer
-
-Prof. Dr. Henrieke Stahl
-
-Prof. Dr. Anke Steppuhn
-
-Prof. Dr. Wolfgang Stölzle (CH)
-
-Prof. Dr. Lutz Stührenberg
-
-Dr. med. Henrik Ullrich
-
-Prof. Dr. Tobias Unruh
-
-Dr. med. Hans-Jürgen Vogel
-
-Dr. habil. Ulrich Vosgerau
-
-Dr. Christine Wehrstedt
-
-Dr. Jan Christoph Wehrstedt
-
-Prof. Dr. Christin Werner
-
-Prof. Dr. Martin Winkler (CH)
-
-Dr. med. Jens Wurster (CH)
-
-Prof. Dr. Christin
-
-*审核：**Gradient Boost*
-
-*发稿：**mgjxs*
-
-新闻参考链接：[https://7argumente.de/](https://7argumente.de/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

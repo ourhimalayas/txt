@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 9:09 AM (UTC)`
+
+【Ukrainian Rescue】03/13/2022 Nicole interviews a Japanese TV reporter in front of the rescue tent of the New Federal State of China in Ukraine, and explains to him that the movement led by Mr. Miles Guo to take down the CCP is to restore peace, freedom and justice to the world.The Japanese TV reporter thinks that our work will be successful, making peace in all over the world.<br/><br/>【乌克兰救援】03/13/2022妮可在乌克兰的新中国联邦救援帐篷前采访日本电视台记者，并介绍郭文贵先生发起的消灭中共运动，要给世界恢复和平、自由和正义。日本电视台记者认为我们的一定会成功，并将和平带到世界各地。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group46/getter/2022/03/15/09/5e0c9cd3-819c-a24b-b36c-201d3d11350f/out.jpg)
+
+---
+
 `@miles 3/15/2022 8:52 AM (UTC)`
 
 24小时客服热线（电话/短信）： +1 720-657-6776 或 +1 719-224-4232 或 +48 508-532-712 或 +48 508-531-518 Telegram： t.me/UkraineRescue 盖特： https://gettr.com/user/UkraineRescue The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Rescue Team – News & Updates. 24h Hotline: +1 720-657-6776 or +1 719-224-4232 or +48 508-532-712 or +48 508-531-518 Telegram: t.me/UkraineRescue GETTR: https://gettr.com/user/UkraineRescue
@@ -152,13 +159,6 @@ Italian Lorenzo told us about what the 2 unimaginable true pictures he witnessed
 
 3/13/2022 Miles Guo: All the countries sanctioned by SWIFT were authoritarian regimes; The rules of SWIFT were set by all Catholic and Christian countries around the world; exclusion from SWIFT is not a decision made by the US alone, rather the decision is made with consensus under a consistent guideline.<br/><br/>3/13/2022 文贵直播: SWIFT制裁的都是独裁的国家，其规则由全世界半数以上人口的基督教和天主教国家共同制定的！被踢出SWIFT系统并非美国说了算，它是一致的标准，一致的决策和共同的决定的结果！<br/>
 ![img](https://media.gettr.com/group42/getter/2022/03/14/22/3baf4a40-93df-df9f-6562-20b496e2500a/out.jpg)
-
----
-
-`@miles 3/14/2022 10:43 PM (UTC)`
-
-Mr. Miles Guo accurately predicted the ultimate end of the mandatory vaccines and the fate of the big vaccine companies<br/><br/>郭文贵先生准确预言停止强制疫苗和疫苗大公司的最终结局<br/>
-![img](https://media.gettr.com/group30/getter/2022/03/14/22/899b134f-576d-0acd-5087-d135190a1c41/out.jpg)
 
 ---
 

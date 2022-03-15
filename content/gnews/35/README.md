@@ -2,34 +2,33 @@
 ---
 
 
-## 新中国联邦参与国际组织战地救援协调大会
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2166077/)
+## 联合国呼吁采取行动防止战争导致全球粮食体系崩溃
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2166178/)
 
-【撰稿】香草山健身部-文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-22.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GettyImages-468902064-1200x802-700x420-1.jpg)Getty图片社
+据法国国际广播电台3月14日报道，联合国秘书长古特瑞斯警告称，俄、乌之战可能对全球粮食供应产生深远的后果，可能导致“全球粮食体系崩溃，饥荒四起”。世界上45个开发程度最低的国家进口的小麦，至少有1／3产自乌克兰和俄罗斯。联合国全球粮价指数现在已经达到历史最高点。
 
-波兰当地时间3月14日，梅蒂卡救援站所有义工组织的成员代表集中在新中国联邦的最大救援帐篷中，召开会议讨论整个营地的系统化管理。
-这次会议由联合国、国际红十字会、以及无国界救援者等组织联合发起。当天早上，新中国联邦救援人员已经与联合国救援工作人员完成对接。会议计划，把新中国联邦帐篷这一排作为一列新的难民营地所在。 新中国联邦救援人员表示，根据救援需要，可以搭建更大的帐篷，全力配合国际组织的需要。
-据悉，会议将于明日早晨继续召开，新中国联邦救援人员会参与探讨基地的整合建设。
-这次会议是新中国联邦首次全程参与全球国际组织的合作，而且，为会议提供会议场地。会议结束后，所以与会人员主动起立，当场感谢新中国联邦所提供的国际人道主义帮助。新中国联邦参与国际合作受到全球组织的欢迎与认可。
-这是历史上首次，在国际舞台上，有新中国联邦而没有中国共产党的国际组织会议。这一时刻将被载入史册。
+古特瑞斯表示：“这场战争造成的的冲击波远远超出乌克兰，同时也对世上最脆弱的人民和国家形成打击。即使在开战之前，发展中国家就因通贷膨胀、利率上涨和债务负担而难以走向复苏，如今他们的粮仓又遭到了轰炸”。世界粮食计划署（WFP）供应的小麦有半数以上产自乌克兰。
 
-【素材来源】前线报道
-[https://mega.nz/file/tEEC3Y5Z#a-QwUOtyibUsEbdBw3zQ6Md-nmPhCIwKOttiIpRuGsY](https://mega.nz/file/tEEC3Y5Z#a-QwUOtyibUsEbdBw3zQ6Md-nmPhCIwKOttiIpRuGsY)
+战争带来的除了死亡，就是社会秩序和各种体系的崩塌，尤其是中共病毒还在全球肆虐，疫苗灾难即将发生的时候。俄罗斯入侵乌克兰所带来的恶劣影响还没有开始，但已然能预见：不久的将来，一定会有大量的难民和饥饿的灾民让整个世界不堪重负，一定会有可怕的疫苗灾难产生。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+一定要停止战争，消灭中共，切断中共对俄罗斯的供应，停止强制疫苗，溯源病毒真相，找出疫苗解药，人类社会才可能继续拥有未来。
 
-- 审核/编辑/发稿:qiutian（邱甜）
+新闻参考链接：[联合国吁迅速行动 防俄乌战使全球粮食体系崩溃](https://www.rfi.fr/cn/%E8%81%94%E5%90%88%E5%9B%BD%E5%90%81%E8%BF%85%E9%80%9F%E8%A1%8C%E5%8A%A8-%E9%98%B2%E4%BF%84%E4%B9%8C%E6%88%98%E4%BD%BF%E5%85%A8%E7%90%83%E7%B2%AE%E9%A3%9F%E4%BD%93%E7%B3%BB%E5%B4%A9%E6%BA%83)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

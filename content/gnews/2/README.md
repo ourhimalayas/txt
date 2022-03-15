@@ -2,82 +2,60 @@
 ---
 
 
-## 我们正处于热核战争的边缘
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2167729/)
+## 俄乌战争｜欧盟派遣政要访问乌国 明确对乌克兰主权及独立的支持
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2167833/)
 
-编译：the world  ,  weiwei
+**撰文/ 港台前线｜发布日期/ 15/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-16.png)**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+據波兰官方网站公告，波兰总理 *马特乌什·莫拉维茨基*、国家安全和国防委员会主席 *雅罗斯瓦夫·卡钦斯基*以及捷克共和国总理 *佩特尔·菲亚拉*和斯洛文尼亚总理 *雅内兹·扬沙*等人，今日将作为欧洲理事会代表前往基辅与乌克兰总统、总理会见。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1612-edited.png)banned.video
+本次访问由欧洲理事会主席 *查尔斯·米歇尔* 和欧盟委员会主席 *乌尔苏拉·冯德莱恩* 协商后组织，为表达欧盟对乌克兰主权和独立的明确支持。此外，欧盟委员会主席乌尔苏拉·冯德莱恩(Ursula von der Leyen)于推特表示，面对战争越来越残酷，欧盟将提供乌克兰12 亿欧元的宏观金融援助计划和 5 亿欧元的人道主义援助。
 
-我们正处于热核战争的边缘，当我今天早上在《每日邮报》上看到这句话时，我很难相信它。
 
-所以我去查找了一些线索，发现在西方新闻中没有任何其他地方在说这件事。
 
-后来我们的工作人员花了一些时间，找到了它的俄文版本，我们检查了它，并请人翻译了它。我们找到了一个有字幕的版本，俄罗斯总统弗拉基米尔-普京威胁要发动核战争，并说在眨眼之间，他说如果北约继续进行其第五条章程的接管行动，你们将没有时间来眨眼。
+> Putin's war is becoming more brutal by the day. 
+> 
+> I just informed President [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) of the 4th package of sanctions. 
+> 
+> The EU is with the Ukrainian people. 
+> 
+> We support them with a €1.2 billion macro-financial assistance package and €500 million in humanitarian aid. [pic.twitter.com/9siOxbRdsB](https://t.co/9siOxbRdsB)
+> — Ursula von der Leyen (@vonderleyen) [March 14, 2022](https://twitter.com/vonderleyen/status/1503377015927357445?ref_src=twsrc%5Etfw)
 
-这不是常规的全球化主义者的行动，这有可能是现在正在展开的世界末日类型的事件。
 
-我一直在说，我非常希望你们最终能听到我的声音，通过印刷品、电视和网络将其传递给你们的观众。你们是否明白，如果乌克兰加入北约并试图通过军事手段收回克里米亚，欧洲国家将自动被卷入与俄罗斯的冲突战争当中？
 
-当然，北约和俄罗斯的潜力是不可比拟的。但是我们也知道，俄罗斯是领先的核武器国家之一，而且它上面的一些现代化装备，甚至在很多方面超过了其他的国家。
+欧洲理事会主席查尔斯·米歇尔（Charles Michel）发推明确，欧盟将继续支持南高加索地区的稳定、和平及繁荣。
 
-这场战争不会有胜利的一方。我们倒回10秒 所以他刚刚威胁说要去使用他们的高超音速巡航导弹和弹道导弹。
 
-当然，美国有更秘密更先进的东西。但问题是，这并不重要，这是核武器。
 
-而且他们已经在欧洲和各地都部署了携带手提箱核武器的俄罗斯自杀工兵。所以就算基于太空的系统击落了俄罗斯的弹道导弹或潜艇发射的导弹，也没有什么用，核弹已经就位了。
+> Discussed today with [@azpresident](https://twitter.com/azpresident?ref_src=twsrc%5Etfw) latest developments in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw), regional security and the impact of the war on the South Caucasus.
+> 
+> This follows my meeting last week also with [@NikolPashinyan](https://twitter.com/NikolPashinyan?ref_src=twsrc%5Etfw) 
+> 
+> The [#EU](https://twitter.com/hashtag/EU?src=hash&amp;ref_src=twsrc%5Etfw) will continue supporting a stable, peaceful and prosperous South Caucasus. [pic.twitter.com/7WeWLex17Q](https://t.co/7WeWLex17Q)
+> — Charles Michel (@eucopresident) [March 14, 2022](https://twitter.com/eucopresident/status/1503336093357424642?ref_src=twsrc%5Etfw)
 
-虽然美国也有自杀式部队，遍布各地，但这不是一个良好的情况。……
 
-俄罗斯是领先的核武器国家之一，而且它上面的一些现代化装备，甚至在很多方面超过了其他的国家，这场战争不会有胜利的一方。你们一定会被卷入到这场冲突当中不管你喜不喜欢。
 
-现在，让我来分解一下这方面的时间表。如果在开始的时候，俄罗斯人被北约部队压制，北约对俄罗斯进行突袭，使用所有的重型武器和高科技武器，普京说，他们将在各战区使用战术核武器对付这些部队。
+捷克共和国总理佩特尔·菲亚拉发布推特:
 
-这将在大约在10分钟之内发生。届时，命令将被发出，一旦遍布欧洲的巡航导弹，高超音速导弹向俄罗斯军事基地发射。
 
-一旦俄罗斯做出使用战术核武器的决定，他们会让他们所有的潜艇浮出水面，让他们的巡航导弹准备好，让他们的洲际弹道导弹准备好。
 
-一旦他们用雷达和卫星探测到西方的导弹发射，他们承诺将完全倾斜出他们的核武器。他们的潜艇将在我们的海岸线上出现。
+> Today, we are going together with PM of Poland Mateusz Morawiecki, deputy PM Jarosław Kaczyński and PM of Slovenia Janez Janša to Kiev as representatives of the European Council to meet with president Zelensky and PM Shmyhal.[https://t.co/Q52Ur8hybu](https://t.co/Q52Ur8hybu)
+> — Petr Fiala (@P\_Fiala) [March 15, 2022](https://twitter.com/P_Fiala/status/1503632915334377473?ref_src=twsrc%5Etfw)
 
-他们将蒸发曼哈顿、洛杉矶，所有的俄罗斯城市也将被蒸发掉。西欧将被蒸发。我住在德克萨斯州奥斯汀，将有梅尔夫尖端的导弹回到大气层，向德克萨斯州中部各地的军事目标发射几十枚核弹头。
 
-我们中的大多数人会被当场击倒，也许你的屋顶会塌陷。但是当你来到外面时，你就会呼吸到那些甜美的核辐射。
 
-当然，如果你幸运的活着的话，电力在几年内也不会恢复。所以这就是我们的现状，我们活在 一个邪恶、颓废的撒旦 社会，这就是现在局势紧迫的程度。
+波兰政府发言人Piotr Müller推特强调，本次出访由欧洲理事会主席查尔斯·米歇尔和欧盟委员会主席乌尔苏拉·冯德莱恩组织，为表达欧盟对乌克兰的支持。
 
-因此，在你把你的孩子装进车里，开到5英里外的学校，然后开到15分钟外的工作地点，然后走进你的办公室，坐在电脑前的时间。
 
-在25分钟之内 ，我们所知道的世界就会结束。一旦它开始，我们在5到10分钟内不会收到警报。
 
-如果它发生的时候我正在直播，在蘑菇云开始形成之前，在冲击波袭来之前，在空气爆裂之前，氢弹在2000英尺的空中引爆。我将没有时间上车去接我四岁的女儿。
+> The visit was consulted with the [@eucopresident](https://twitter.com/eucopresident?ref_src=twsrc%5Etfw) [@CharlesMichel](https://twitter.com/CharlesMichel?ref_src=twsrc%5Etfw) and the President of the [@EU\_Commission](https://twitter.com/EU_Commission?ref_src=twsrc%5Etfw) [@vonderleyen](https://twitter.com/vonderleyen?ref_src=twsrc%5Etfw). Europe must guarantee the independence and territorial integrity of Ukraine!
+> — Piotr Müller (@PiotrMuller) [March 15, 2022](https://twitter.com/PiotrMuller/status/1503644480796336135?ref_src=twsrc%5Etfw)
 
-你的娱乐就这样消失了。  你会问，为什么会发生这种情况？ 因为那些 精神病患者想要统治全球。 …….
 
-另外，我昨天去了杂货店，那里的橙汁、牛奶、黄油、生菜和所有东西几乎都是空的。与美国其他地区相比，德克萨斯州是一个粮仓，德克萨斯州，像加利福尼亚州一样，我们有大规模的食品系统。
 
-我们在边境上有热带地区。我的意思是，我们拥有这一切。美国第三大柑橘生产国是南部的德克萨斯州。
-
-而商店的货架看起来就像飓风即将来临，人们把它们清理干净了，这说明了一些问题。在东北地区，当地的新闻都在报道这个问题。
-
-几个月来，它们基本上都是光秃秃的。而这是因为农民和人们无法在新冠病毒的封锁的情况下进行生产，供应链被打破了。
-
-每个人都认为偷懒很有趣，不去工作很有趣，整天站在那里聊天也很有趣。   这就是文明崩溃的方式。
-
-那么，对于全球话主义者，他们是不让你生产。他们还让你的货币贬值，以便让那些经营企业的人，那些供应供应链的人，让他们再也无法维持生计。
-
-因为如果你提高价格，人们就无法支付，你就无法得到资金来运作。因此，我们将进入一个大萧条。我们将进入经济崩溃。我们将进入恶性通货膨胀。
-
-因为我们正在进入战争。 ……
-
-来源：【banned.video】[OAN’S Pearson Sharp Breaks Down Vaccine Lunacy](https://banned.video/watch?id=61fc563b93976400e06036e5)
-
-* * *
-
-审核：Aries的星
-校对：小东
-发布：花羽
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-9.jpeg)
+來源｜[波蘭政府官方網站](https://www.gov.pl/web/primeminister/prime-ministers-visit-to-kyiv)
 
  
 
