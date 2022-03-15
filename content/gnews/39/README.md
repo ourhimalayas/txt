@@ -2,70 +2,41 @@
 ---
 
 
-## 玛莎·布莱克本：俄罗斯和中共国是新的邪恶轴心,在削弱美国实力方面有着共同的利益
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2166727/)
+## 文•贵天成——文贵先生谈“生物科技”（一）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2167892/)
 
-参议员玛莎·布莱克本： 俄罗斯和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 是新的邪恶轴心的一部分，在削弱美国实力方面有着共同的利益。 【附视频：玛莎议员接受福克斯采访，谈话内容翻译如下： 俄罗斯是 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的加油站。 他们是中共最大的供应商。 但我们需要知道的是，中共国将在多大程度上推动救助俄罗斯。以及是否在经济上使用银联卡，是否在我们将俄罗斯从SWIFT系统中踢出时试图回填取代。 我有一个决议案，参议院支持将他们完全排除在 SWIFT 系统之外。你必须看看能源的购买情况。然后是 [#习近平](https://gettr.com/hashtag/%23%E4%B9%A0%E8%BF%91%E5%B9%B3) 和普京之间的关系，我认为他们是新邪恶轴心的新锚。伊朗和朝鲜也加入了他们的行列。】
+整理：BENJ1
+编辑：守望黎明
 
-
-
-> Russia and China are part of the new Axis of Evil with a shared interest in weakening American power. [pic.twitter.com/9KxRQbrJxv](https://t.co/9KxRQbrJxv)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 14, 2022](https://twitter.com/MarshaBlackburn/status/1503417542353764357?ref_src=twsrc%5Etfw)
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/6a612dfb3ccf6e42-1.png)图片来源：雅典娜设计组
 
 
+**郭文贵先生2017年5月16日直播**
+我觉得现在宗教与科学之间的界限，实际上逐渐的在往一起靠拢。它包含了自然哲学、自然学、还有这个物理科学，是现代的物理科学，然后是哲学，再以后是宗教学，也可以说是神力学。我们人类现在已经到了其他星球去了。
 
-前国务卿迈克.蓬佩奥： 当你在美国安全的核心任务集——即阻止坏人继续侵略——上失败时会发生这种情况。 【附福克斯一段采访：蓬佩奥就一位美国记者在乌克兰厄平被杀做评论，称拜登政府对俄罗斯的侵略行径所采取的行动太迟、太微弱而导致这样的事情发生】
+在过去这都是迷信，这都是伪宗教，但现在很多已经属于物理。当下的、有为的世界已经可以和未来的、无为世界进行了良好的沟通。这是相当不错的，所以我们人类现在是最好的时代，最快乐的时代。而且我投资了很多很多在生物科技上。我认为人类的未来10年到30年是最伟大的生物科技的时代。
 
+**郭文贵先生2019年8月6日直播**
+美国现在卖国的企业集团会彻底苏醒过来，美国将用5G、AI、生物科技和大量的制造产业重回美国的同时，将产生新的能源集团、新的经济模式。美国会真正地重新开始，让世界更伟大，让世界更和平，也让美国再次伟大。
 
+无庸置疑。5G、AI、生物科技、新能源，然后整个新兴市场重新建立，印度、越南、柬埔寨、缅甸、部分非洲国家、拉美国家，会全面形成新市场。这个时候，亚洲四小龙——但愿还能包括香港，能够回来，彻底凉在一边的只有这五个国家，它们会被踢出局。世界将显出新的格局、新的局面。
 
-> This is what happens when you fail at the core mission-set of American security, which is to deter the bad guys from continued aggression. [pic.twitter.com/D928ixg4ZK](https://t.co/D928ixg4ZK)
-> — Mike Pompeo (@mikepompeo) [March 14, 2022](https://twitter.com/mikepompeo/status/1503389718070837258?ref_src=twsrc%5Etfw)
+**郭文贵先生2020年3月16日直播**
+知道我这两天在干啥吗？战友们。我正强烈、全面地参与到各国政府所谓的灭疫，还有现在的找解药。千万别忘了，全世界上三个最牛的投资集团——投资到医药行业的、拥有一定行业规模的，就是我们原来的合作基金。我们这个基金里面的合作者，拥有世界上最先进的医院、最先进的生物研究，我们是投资生物科技最多的基金之一。可以说，我们说第二没人敢说第一的。现在他们每家都来找我，啊，要搞解药、要搞疫苗。我对他们非常清楚地说：如果你们想赚大钱，想搞解药和疫苗的话，你必定死无葬身之地，你啥也捞不着。但如果你想拯救全人类，你可能得到万亿的财富。然后我给他们支了几招。现在他们绝对牛了，这几天马上见成效。
 
+**郭文贵先生2020年3月31日直播**
+我一直认为美国要再次强大，靠的不是川普总统，而是美国的生物科技。早在1988年、1989年，我就投资了生物科技公司，大家都知道的。我当时就投了Gene Fourth，后来投赛雷拉基因公司（Celera Genomics），是个基因排序公司。赛雷拉股票赚了好多钱啊，好多好多钱。还有在硅谷的、专门做DNA排序的晶体公司，我也投了他们，也赚了很多很多钱，赚钱多得都不好意思了。
 
+###  
 
+发布：tianzhihuan
 
-
-> 参议员马可·卢比奥：
-> 切断与俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) 的关系很容易，但如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 入侵台湾，想切断关系就不会那么容易了。
-> 
-> 现在我们太依赖#中共国了
-> 
-> 我们必须开始在美国制造更多东西
-> 【附中字视频】 [https://t.co/Cmn3rHY5FB](https://t.co/Cmn3rHY5FB) [pic.twitter.com/L1bihHGJ7b](https://t.co/L1bihHGJ7b)
-> — 美国政要直译推 (@zhiyitw33) [March 15, 2022](https://twitter.com/zhiyitw33/status/1503577253015289859?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·华尔兹： 看看我们在短短18个月里在中东的地位跌了多少。 我们已经从白宫草坪上的历史性和平协议（亚伯拉罕协议）转变为现在的领导人不会接受我们总统的呼吁，而是向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 靠拢。 【转推来自华尔街日报：沙特阿拉伯邀请 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 习近平访问利雅得，因为该国希望加深与北京的联系】
-
-
-
-> Look how far we’ve fallen in just 18 months in the Middle East. 
-> 
-> We’ve gone from historic peace deals on the White House lawn (Abraham Accords) to now leaders won’t take our President’s calls and are moving towards China. [https://t.co/xQ3P8HQNg8](https://t.co/xQ3P8HQNg8)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 14, 2022](https://twitter.com/michaelgwaltz/status/1503511359060910084?ref_src=twsrc%5Etfw)
-
-
-
-众议院军事委员会： 如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 协助普京大屠杀，我们必须制裁中共国，拜登必须明确这一点。 如果拜登政府允许中共国的武器屠杀乌克兰平民或允许中共国银行为普京的血钱洗钱，国会将采取行动。 【附卫报新闻：国安顾问沙利文说如果中共国帮助俄罗斯逃避制裁将面临后果】
-
-
-
-> We must sanction China if they assist w/ Putin's massacre and Biden must make that clear.
->  
-> Congress will act if the Biden admin allows Chinese weapons to slaughter Ukrainian civilians or allows Chinese banks to launder Putin’s blood money.[https://t.co/Kwywp9JMKU](https://t.co/Kwywp9JMKU)
-> — Armed Services GOP (@HASCRepublicans) [March 14, 2022](https://twitter.com/HASCRepublicans/status/1503494226998398979?ref_src=twsrc%5Etfw)
-
-
-
-白宫： (国家安全顾问) 杰克·沙利文@JakeSullivan46 今天在意大利罗马会见了中共政治局委员、外事工作委员会办公室主任杨洁篪。 他们的会议是继 2021 年 11 月 15 日拜登总统和习近平主席之间的虚拟会议上的后续。沙利文先生提出了一系列美中关系的问题，并实质性地讨论了俄罗斯对乌克兰的战争。 他们还强调了保持美中之间开放沟通渠道的重要性。
-
-
-
-> .[@JakeSullivan46](https://twitter.com/JakeSullivan46?ref_src=twsrc%5Etfw) met today with Chinese Communist Party Politburo Member and Director of the Office of the Foreign Affairs Commission Yang Jiechi in Rome, Italy. Their meeting followed up on the November 15, 2021 virtual meeting between President Biden and President Xi.
-> — The White House (@WhiteHouse) [March 14, 2022](https://twitter.com/WhiteHouse/status/1503468239963238400?ref_src=twsrc%5Etfw)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
