@@ -2,59 +2,44 @@
 ---
 
 
-## 全球疫情疫苗数据更新（10天中发生的4个病例）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2165682/)
+## 日本敦促加密公司遵守对俄罗斯的制裁
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2165722/)
 
-整理：枳实
-美工：精灵蓝
+编译： Jenny Ball
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/1-129.png)图片：雅典娜农场设计组 精灵蓝
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1581-edited.png)2018年3月30日，日本东京，一名男子站在加密货币交易所的广告附近。REUTERS/Toru Hanai/Files
 
+东京，3 月 14 日（路透社）——周一，日本当局下令加密交易所不得处理涉及加密资产的交易，因乌克兰战争而对俄罗斯和白俄罗斯这些资产实施冻结制裁。
 
-雅典娜疫情更新（2022年 3月14日）
+上周五，七国集团 (G7) 发表声明称，西方国家“将让使用数字资产来增加和转移其财富的俄罗斯非法行为者付出代价”。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+G7 发达经济体越来越担心加密货币被俄罗斯实体用作入侵乌克兰实施金融制裁的漏洞。
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-78.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-63.png)
-**疫情随笔**
+周五，美国财政部发布了新指南，要求总部位于美国的加密货币公司，不得与制裁目标进行交易。
 
-过去10天发生的病例：
+日本金融厅的一位高级官员表示：“我们决定发布公告，以保持 G7 的态势。”“越早越好。”
 
-疫苗灾难尚未到来，然而端倪已经不断出现，笔者身边的已经开始发现起因蹊跷的肿瘤病人，耳闻的发生在身边的副作用病例更是不计其数。推特上有一位医生罗列了最近10天来在新闻中的病例：
+日本金融厅和财务省在一份联合声明中表示，日本政府将加强措施，**防止使用违反制裁的加密资产转移资金。**
 
-- 棒球运动员前道奇王牌投手Odalis Perez去世，享年44岁 。
-- 前澳大利亚板球运动员Shane Warne死于52岁，心脏病发作。
-- 澳大利亚工党参议员Kimberley Kitching死于52岁，心脏病发作，而当时她正在驾车，所幸成功在路边停车。
-- 名模Hailey Bieber年仅25岁，因发现中风症状而入院，诊断为脑部血栓。
+日本在对私人数字货币制定更严格的规则方面，落后于全球金融监管机构的转变，而 G7 富国和 20 国集团强国都呼吁加强对“稳定币”的监管。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-53.png)
-[2022年3月14日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月14日改进-1.pdf)
+周一，日本金融厅表示，未经授权向制裁目标付款，包括通过加密资产，将面临最高三年的监禁或 100 万日元（8,487.52 美元）的罚款。($1 = 117.8200 yen)
 
-数据来源：
+据行业协会称，截至 3 月 4 日，**日本共有 ****31 ****家加密货币交易所**。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+鉴于新市场的受欢迎程度激增，全球监管机构仍然担心新市场对投资者的安全性。美国SEC将“市场操纵的可能性”列为拒绝多个比特币现货ETF申请的主要原因之一。
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+评论：数字货币是未来的趋势，但是，像比特币那样4%的人持有96%的高度被操纵的加密货币，必将被市场淘汰。
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+素材链接：【reuters.com】[Japan urges crypto firms to comply with sanctions against Russia](https://www.reuters.com/business/finance/japan-urges-crypto-exchanges-act-line-with-sanctions-against-russia-2022-03-14/?utm_source=newsletter&amp;utm_medium=email&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+* * *
 
-[covidlive.com.au](https://covidlive.com.au/)
+审核：文乐
+校队：小东
+发布：花羽
 
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-9.jpeg)
 
  
 

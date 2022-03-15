@@ -2,30 +2,31 @@
 ---
 
 
-## 俄罗斯空袭乌克兰西部基地造成35人死亡
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2165555/)
+## 美国发最后通牒 中共不要帮助俄罗斯
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2165589/)
 
-##### 作者：加拿大温哥华扬帆农场 – 青青（采编）、文明(添草灭共)（撰稿）
+翻译：灭共文明
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/111-8.jpg)
+编辑与校对：灭共文明
 
-据《CTV新闻》3月13日报道，俄罗斯发射导弹袭击了乌克兰西部与波兰边境接壤的一个军事训练基地，造成35人死亡。报道称，这是俄罗斯威胁将欧盟成员国对乌援助武器运输作为军事打击目标之后进行的，这些武器正在帮助乌克兰战士保卫他们的国家免受俄罗斯的残酷攻击。
+《路透社》乌克兰利沃夫3月14日报道，**周一，美国在与中共进行”紧张”会谈后，警告中共不要帮助莫斯科入侵乌克兰。美国国务院发言人内德·普莱斯(Ned Price)对记者表示，美国已经非常清楚地向北京传达了不会袖手旁观的立场。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/普莱斯.jpg)
+报道指出，美国一名官员表示，在国家安全顾问杰克·沙利文(Jake Sullivan)在罗马**会见中共最高外交官杨洁篪时，中共表示愿意向俄罗斯提供援助。**一名美国官员说，**七小时的紧张会谈，反映了这一时刻的严重性。**
 
-乌克兰西部利沃夫地区的州长称，30多枚俄罗斯巡航导弹击中了这个离波兰最近的边境点不到25公里的训练基地。波兰是西方对乌克兰军事援助的过境通道，美国已增加部署在那里的美军人数。该基地所属区域也被称为国际维持和平与安全中心，长期以来一直被用来训练乌克兰军事人员，经常有来自美国和其他北约国家的教官参加。
+乌克兰总统泽伦斯基的高级助手基利洛·季莫申科(Kyrylo Tymoshenko)后来表示，**俄罗斯再次阻止了试图带着物资抵达该市的人道主义援助车队。**
 
-[新闻链接](https://www.ctvnews.ca/world/russian-airstrike-hits-base-in-western-ukraine-kills-35-1.5817365)
+目前，**超过280万人逃离了乌克兰。马里乌波尔是冲突中最严重的人道主义危机的所在地。**
 
-编辑/上传 – 熙攘
+乌克兰外交部表示，**一名孕妇上周被拍到在被俄罗斯轰炸的马里乌波尔一家妇产医院中受伤撤离，随后她和她的孩子一起死亡**。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/妇女.jpg)俄罗斯炮击损毁的一家妇产医院抬出一名受伤的孕妇（图片来源：网络）
+据报道，**马里乌波尔市**当地政府表示，**目前已有多达2500名平民死亡。**
 
-* * *
+新闻来源链接：
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+[U.S. warns China not to help Russia as anti-war protest disrupts state TV | Reuters](https://www.reuters.com/world/uk/diplomacy-efforts-step-up-after-russian-strike-ukraine-base-2022-03-14/)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
