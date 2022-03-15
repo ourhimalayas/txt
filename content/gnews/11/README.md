@@ -2,27 +2,28 @@
 ---
 
 
-## 有声｜经济持续下行 阿里和腾讯传大裁员
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2169051/)
+## 泽连斯基探视受伤的乌克兰士兵分发奖牌
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2169098/)
 
-By:**秘翻新闻**
+#### 撰稿：nstar
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-15-at-8.05.18-PM.jpeg)
+面对令人难以置信的逆境，乌克兰总统弗拉基米尔·泽连斯基继续表现出强大的领导力。
 
-**2022-03-15**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/315_11.jpg)图片来源 新唐人
-[新唐人](https://www.ntdtv.com/gb/2022/03/14/a103373601.html)3月15日报道，中共国疫情大面积反弹，使正在下行的经济雪上加霜。互联网巨头腾讯和阿里巴巴都传出大裁员的消息。据内部员工猜测，腾讯预计裁员10%-30%，阿里裁30%。
+周日，乌克兰总统泽连斯基在参观一家军事医院时为受伤的士兵颁奖。泽连斯基的办公室在一份声明中说：“总统沃洛德米尔·泽连斯基探望了在军事医院接受治疗的受伤的乌克兰捍卫者。 ”在那里，泽伦斯基向受伤士兵颁发了“勇气和奉献的勋章和勋章，并表彰了在困难条件下模范工作的医院工作人员”。
 
-在刚刚过去的这个周末，随着内部员工在网络上陆续爆料，腾讯和阿里巴巴大裁员的消息相继冲上微博热搜。两大互联网顶级巨头裁员，再次使民众对中共国经济的信心受到打击。另据大陆媒体爆料，阿里飞猪和腾讯也有大裁员情况。
+据乌克兰国防部称，泽连斯基在访问期间对伤员说：“伙计们，早日康复。我相信，你们发言的最好礼物将是我们共同的胜利！”
 
-大陆媒体引述知情人士的消息证实，腾讯PCG确实存在裁员状况。近期，PCG的小鹅拼拼项目组被解散，应用宝项目组也部分裁员，这两个项目组被精简的人员，有的被裁，有的转到其它部门。
+自从俄罗斯入侵乌克兰开始，泽连斯基已经认可了许多为乌克兰服务的士兵。周六，泽连斯基授予八名军人“乌克兰英雄”称号，以表彰他们“在捍卫乌克兰国家主权和领土完整方面表现出的个人勇气和英雄主义”。其中六个奖项是追授的。
 
-在此之前，字节跳动、爱奇艺、美团、快手、滴滴等互联网大厂也相继传出裁员消息。
+泽连斯基本人因其在俄罗斯袭击他的国家时的勇气而获奖。上周，罗纳德·里根总统基金会和研究所宣布泽连斯基将获得罗纳德·里根自由奖。
 
-（秘翻新闻 二丫编辑报道）
+“虽然是一个没有军事背景的政治新手，但泽连斯基总统通过拒绝逃离首都、敦促乌克兰人抵抗以及制定成功的沟通策略赢得了欧洲领导人和公民的支持，赢得了乌克兰和世界各地的尊重”，里根基金会说。
 
-发布 : 文橙
+新闻来源：
+1.[GET ZEL SOON: Watch Zelenskyy Visit Wounded Ukrainian Soldiers, Hand Out…](https://www.iheart.com/content/2022-03-15-sean-hannity-get-zel-soon-watch-zelenskyy-visit-wounded-ukrainian-soldiers-hand-out-medals/)
+2.[GET ZEL SOON: Watch Zelenskyy Visit Wounded Ukrainian Soldiers, Hand Out Medals](https://hannity.com/media-room/get-zel-soon-watch-zelenskyy-visit-wounded-ukrainian-soldiers-in-hospital-hand-out-medals/)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

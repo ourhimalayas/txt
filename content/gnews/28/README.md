@@ -2,31 +2,33 @@
 ---
 
 
-## 善良的人类都反对战争
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2168329/)
+## 新中国联邦（NFSC）是第一个进入战场中救援的团体
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2168401/)
 
-撰稿：骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-18.17.43.png)图源：网路
-梅迪卡前线时间3月15日，战友Nicole采访了连着七天都在为难民演奏音乐的钢琴家Davide Martello。这位钢琴家说自己不关心政治，但是非常反对战争，他在很多战争和动乱的场面去安抚过受难的百姓。他曾去过阿富汗，动乱时期的土耳其，巴黎恐怖和爆炸事件，在一些经历了自然灾害如洪水的地区。他四处奔走，为世界呼吁和平和爱，他说自己未去过香港，但为香港人演奏过。他说现在的科技进步太方便了，starlink这样的高科技只会使人与人的连接更加容易，无论人们是什么种族和语言，善良的人们彼此都有一颗和平的心。只有和平和爱，还有音乐，才能够让全人类团结一致。
+**撰稿：日本东京方舟农场 北极**
 
-Nicole战友告诉钢琴家，人类社会一切罪恶的根源就是共产党，只有推翻了共产党才能有人类团结和分享爱的可能。而新中国联邦就是消灭共产党的中国人。钢琴家说虽然他不懂政治，但是他认为一个政府如果不与世界联网，违背历史潮流，想要倒退，那是不可能的。
+郭文贵先生3月14日在盖特（GETTR）发布的视频中表示，新中国联邦（New Federal State Of China，简称NFSC）将成为第一家在战争中，走进乌克兰国土，救援中国同胞的团体。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0.png)2022年3月14日郭文贵先生盖特视频。（图片来盖特）
+郭先生透露，我们将成为第一家也是唯一一家，在战争中，走进乌克兰国土上的救援团体。NFSC的战友们将在国际专业安保人员的护卫下，携带追踪仪，驱车到乌克兰境内营救中国同胞和乌克兰妇女儿童。
 
-* * *
+郭先生在视频中痛斥，中共救援同胞的谎言已被戳破了。中共早在俄乌战争刚开始时就向国内民众撒谎说，“我们所有中国同胞都被救走了”。而直到昨天，有一百多名中国同胞刚刚被中共接到捷克斯洛伐克。主要原因就是怕这些同胞就被NFSC救走，其实NFSC早已派人跟被困同胞取得了联系，已经快接近营救地点。但是中共知道情报后立即抢先把他们接走，否则这些被困同胞就是死在那儿都不会救他们。
 
-撰稿、发布：银河系农场—-骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0313_Handflag17x24cm2.png)
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+郭先生说，这一百多名同胞都是中共遗弃在乌克兰境内广播电视中心的工作人员。俄军入侵后，他们在乌克兰苏梅区的地下室忍受了近3周时间，中共明明知道存在人道危机，却向国内媒体撒谎称，已撤离乌克兰境内所有中国同胞。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+正是由于NFSC日益瞩目的乌克兰救援行动，使得中共在国际上处于舆论危机之中，为掩盖真相，才匆忙撤离自己的工作人员。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+参考链接：
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
- 
+> [郭文贵先生2022年3月14日盖特视频（9分28秒）全文字版](https://gnews.org/zh-hans/2166160/)
+
+
+
+素材采编：北极
+总编：青城道姑
+校对发布：Linda
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/15/2022 1:47 PM (UTC)`
+
+On 14 March, in the large tent of the New Federal State of China（NFSC）,<br/>between the NFSC's frontline rescue teams, various rescuers without borders organizations, the official rescue organizations, and the International Red Cross.<br/>the rescuers could make better coordinated and communicative actions about the work at hand.<br/>We are the new Chinese who is taking down the evil CCP, <br/>and this is the first time that we have attended an international conference as the new Chinese3月14日，在新中国联邦（NFSC）的大帐篷里，<br/>NFSC一线救援队、各类救援无国界组织、官方救援组织、国际红十字会。<br/>救援人员可以就手头的工作做出更好的协调和沟通行动。<br/>我们是打倒中共邪党的新中国人，<br/>这是我们作为新华人第一次参加国际会议。
+![img](https://media.gettr.com/group26/origin/2022/03/15/13/11b9310a-83f5-c20e-779b-3c5e47ff4184/out.jpg)
+
+---
+
 `@miles 3/15/2022 1:22 PM (UTC)`
 
 【Ukraine Rescue】03/15/22 Nicole explains to Bloomberg reporter Aggi Cantrill that the political goal of the NFSC to eliminate the CCP is also a humanitarian goal, and that all humanitarian disasters are caused by the CCP, not only in China, but also in Xin Jiang, Hong Kong, Taiwan, and the war in Ukraine, all of which have the CCP's black hand behind them. Whether it is the rescue of Ukrainian refugees or helping the Chinese people to eliminate the Communist Party, it is all for humanitarian purposes.<br/><br/>【乌克兰救援】03/15/22 妮可向彭博社记者Aggi Cantrill介绍：新中国联邦消灭中国共产的的政治目标同时也是人道目标，所有人道灾难都是中国共产党造成的，不仅是中国，包括新疆、香港、台湾，以及乌克兰的战争，背后都有共产党的黑手，无论是对乌克兰难民的救助，还是帮助中国人民铲除共产党，都是出于人道主义的目的。<br/>
@@ -154,13 +161,6 @@ Italian Lorenzo told us about what the 2 unimaginable true pictures he witnessed
 
 Italian Lorenzo told us about what the 2 unimaginable true pictures he witnessed along the way before he reached the big tent of the New Federal State of China with his Ukrainian wife and father-in-law <br/><br/>來自意大利的Lorenzo告訴我們，他帶着烏克蘭太太和岳父來到新中國聯邦的大帳篷之前，路上看見兩樣難以想像的實況
 ![img](https://media.gettr.com/group47/origin/2022/03/15/02/505c81a8-14fb-a97a-188a-a80bd7a71f7e/out.jpg)
-
----
-
-`@miles 3/15/2022 2:04 AM (UTC)`
-
-我们是消灭邪恶中国共产党的新中国人<br/>中国共产党是全世界灾难的根源<br/>只有消灭中国共产党才能拯救全人类<br/>我们与乌克兰人民站在一起<br/><br/>We are the NEW CHINESE who are taking down the EVIL Chinese Communist Party.<br/>The Chinese Communist Party is the root cause of all disasters globally. <br/>Taking down the Chinese Communist Party is the only way to save humanity!<br/>We stand with the Ukrainians.<br/><br/>Ми-нові китайці, які знищиваємо злу Комуністичну Партiю Китаю.<br/>Комуністична Партiя Китаю є основною причиною лих у всьому світі. <br/>Тільки знищивши Комуністичну Партiю Китаю, можна врятувати все людство.<br/>Ми разом з українцями.
-![img](https://media.gettr.com/group15/getter/2022/03/15/02/d422f670-80e0-b014-ac6a-f7dcad3a68f6/out.jpg)
 
 ---
 

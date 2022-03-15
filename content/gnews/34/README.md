@@ -2,26 +2,25 @@
 ---
 
 
-## 中日财经爆┃日本切断俄虚拟货币变现渠道
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2168146/)
+## 注射第三剂新冠疫苗后，澳大利亚运动员斯图尔特•麦克斯温患上了心包炎
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2168281/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-12.png)[图片链接](https://jp.reuters.com/article/ukraine-crisis-emirates-crypto-idJPKCN2LB0B0)
-3月11日，包括日本、美国和德国在内的七国集团宣布，将加强对俄罗斯的经济制裁，数字货币也被列为制裁目标。
+#### 翻译                                意大利达芬奇农场                 小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-15-alle-10.20.42.png)图片来源：eventiavversinews.it
+澳大利亚越野和中长跑运动员斯图尔特•麦克斯温（ Stewart McSweyn）没有完成3月8日星期二在墨尔本举行的5000米比赛。在还剩三圈的时候， 他突然出现了呼吸问题并放弃了比赛。斯图尔特•麦克斯温参加了2020年东京奥运会，并成功晋级男子1500米决赛。为了参加3月18日至20日在塞尔维亚贝尔格莱德举行的室内世界锦标赛，最近斯图尔特•麦克斯温接受了第三剂新冠疫苗。这位澳大利亚选手本应参加1500米和5000米比赛。现在，由于诊断出心包炎，他将不得不放弃世锦赛和其他比赛。
 
-随着制裁的加剧，俄罗斯富人加快变现他们持有的数字货币。路透社3月12日报道，富有的俄罗斯客户已经要求阿拉伯联合酋长国（UAE）的公司兑现他们持有的大量比特币（BTC）和其他数字货币。
+麦克斯温的团队立即认为这起事件与他在1月份感染的新冠病毒有关， 但进一步的检查显示，这是与最近注射的第三剂疫苗有关系。
 
-3月14日，日本金融管理局（FSA）要求加密资产（数字货币）交易商不得将数字货币变现汇款到已被确定为资产冻结者的账户。
+麦克斯温的教练尼克•比都( Nic Bideau )表示， 围绕这位澳大利亚田径明星发生的事情应该是对所有运动员的警告。“ 医生告诉他不该在得了新冠病毒以后这么近的时间再接种新冠疫苗。这只会带来伤害，而这种伤害似乎已经发生了。他的心脏出了问题，显然也影响了他的呼吸。他接种疫苗是为了与世界上最优秀的人竞争，他必须接种新冠疫苗。”麦克斯温打加强针只是为了确保他可以旅行并参加下周在塞尔维亚贝尔格莱德举行的室内世界锦标赛。
 
-这一要求是根据乌克兰目前的局势做出的。即使不是直接目标，如果参与其中，也被要求报备金融管理局。向资产被冻结者付款是受日本《外汇管理法》监管的。
+现在他已退出所有比赛，他将去心脏病专家那儿做进一步的检查。例如：“先去看心脏病专家，进行更多的血液检查和心电图，他们会告诉我们更多的信息。他一周内不会跑步， 可能需要服用一些药物。如果一切顺利， 他应该会在10天后恢复训练。”
 
-信息源：
+麦克斯温仍然计划参加下个月在悉尼举行的全国锦标赛， 目前他确认的第一场国际比赛是5月13日在卡塔尔多哈举行的钻石联赛。
 
-[金融庁、仮想通貨業者に制裁対象者の送金停止を要請](https://coinpost.jp/?p=329869)
+原文链接：[https://www.eventiavversinews.it/latleta-olimpico-stewart-mcsweyn-si-sente-male-durante-la-gara-di-5000-metri-a-melbourne-gli-esami-mostrano-una-pericardite-dopo-la-terza-dose-ricevuta-per-partecipare-ai-mondiali-indoor-la-prossi/](https://www.eventiavversinews.it/latleta-olimpico-stewart-mcsweyn-si-sente-male-durante-la-gara-di-5000-metri-a-melbourne-gli-esami-mostrano-una-pericardite-dopo-la-terza-dose-ricevuta-per-partecipare-ai-mondiali-indoor-la-prossi/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+编辑、上传：Xiao   baige
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

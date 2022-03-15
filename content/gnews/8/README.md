@@ -2,14 +2,14 @@
 ---
 
 
-## 樱花头条┃马斯克：“星链”不封俄罗斯新闻
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2169099/)
+## 樱花头条┃特魯多：加拿大和北約要避免與俄直接衝突
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2169101/)
 
 撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/031536.png)
-马斯克：“星链”不封俄罗斯新闻。马斯克“很抱歉成为一位言论自由绝对主义者”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/031537.png)
+特魯多：加拿大和北約要避免與俄直接衝突。
 
-信息来源：[https://gettr.com/post/pyakn8da99](https://gettr.com/post/pyakn8da99)
+信息来源：[https://gettr.com/post/pyalhlc9b6](https://gettr.com/post/pyalhlc9b6)
 
 *编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*
