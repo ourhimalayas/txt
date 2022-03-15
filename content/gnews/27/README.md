@@ -2,17 +2,18 @@
 ---
 
 
-## 恒指跌破2万点 中共即将崩溃 战争和病毒肆虐 华人何去何从
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2169011/)
+## 樱花头条┃美油企：禁运俄罗斯石油, 油价最高将飙到200美元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2169175/)
 
-文贵大直播20220315
+撰稿：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/031538.png)
+美国最大页岩油公司执行长警告, 禁运俄罗斯石油,油价将飙到200美元.
 
-撰稿：ILOVE战神（香草山）Arthur文徐（DC）
+信息来源：[https://gettr.com/post/pyamnz3c45](https://gettr.com/post/pyamnz3c45)
 
-美工：sotres（香草山）Bobby（英喜）新宝（银河系）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022.03.15_中共即将崩溃-华人何去何从_final.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10.png)
-*发布：Theodosia*
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

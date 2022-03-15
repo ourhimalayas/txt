@@ -2,31 +2,23 @@
 ---
 
 
-## 秘翻新闻｜新中国联邦使华人在国际救援中得到肯定
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2169328/)
+## 两中共国公民试图将两名无证婴儿从乌克兰带到罗马尼亚
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2169432/)
 
-**By:[秘翻新闻](https://gettr.com/post/p104dnvb157)**
+翻译：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/03/啊啊啊.jpg)
+来源：乌克兰国家边防局
 
-**2022-03-15**
+据乌克兰政府官网2022 年 3 月 14 日发布的新闻：在切尔诺夫策地区（Chernivtsi)的波鲁布内(Porubne)检查站，边防警卫阻止了该两人将婴儿带出乌克兰的企图。
 
-**新闻内容:**
+国家边防局发现，两名中共国公民试图带着两个年幼的孩子从乌克兰步行到罗马尼亚，该两人无法出具任何关于婴儿的文件。不久之前，这两名中共国人在入境乌克兰时都没有随带孩子。
 
-**1. 经济持续下行 阿里和腾讯传大裁员**
+该两人无法回答他们的孩子来自哪里，现在乌克兰国家警察正在调查此事。
 
-**2. 欧盟成员国将对俄实施第四次制裁措施**
+新闻来源：
 
-**3. 法国停止了疫苗接种证和强制口罩制度**
+[乌克兰国家边防局](https://dpsu.gov.ua/ua/news/gromadyani-kitayu-namagalisya-vivezti-do-rumunii-dvoh-nemovlyat-bez-dokumentiv)
 
-**4. 沙利文与杨洁篪会面 点明中共挺俄有后果**
-
-**5. 乌克兰要求俄罗斯撤军 国际法院16日裁决**
-
-**🔗Gettr链接：**[https://gettr.com/post/p104dnvb157](https://gettr.com/post/p104dnvb157)
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

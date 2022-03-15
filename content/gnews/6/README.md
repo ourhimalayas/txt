@@ -2,30 +2,33 @@
 ---
 
 
-## 视频|中共控制百姓的四座大牢
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2169534/)
+## 美日举行2022年度首次大规模军演
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2169598/)
 
-制作: 香草山视频部
+作者：台湾宝岛农场 dobi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月14日，据外媒报导，日本陆上自卫队两栖旅和美国第31海军陆战队远征部队（MEU）将在印太地区举办为期三周的2022年度”首次大规模演习”，藉以因应中共蠢蠢欲动、不断扩张的海上威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-26.jpg)
+据报导，此次大规模演习将会持续到3月25日。日本陆上自卫队司令官吉田圭秀表示：将有400名自卫队成员，以及600名冲绳基地的海军陆战队成员参与训练，加强两支部队之间的互操作性。且在演习中，日本两栖快速部署旅（ARDB，日称水陆机动团），将和美国部队将举行模拟的地面、海上和空中作战行动。
 
-中共用尽了邪恶的手段钳制中国百姓，可总结为控制百姓的四座大牢：
+美军指挥官纳科涅茨尼上校则表示：此次演习的主要目的是”威慑竞争对手并阻止其侵略“。而第31海军陆战队远征部队和水陆机动团，是第一岛链内训练有素、准备最充分的两支危机反应部队。而所谓的第一岛链防线的划定则包括日本群岛、冲绳列岛、台湾和菲律宾群岛等。美军认为，这是防守中共最有战略效益的区域。
 
-1）以家为牢，通过散播病毒，严控百姓自由。
+参考链接：[應對中共擴張威脅 日美舉行大規模兩棲軍演](https://www.epochtimes.com/b5/22/3/14/n13644962.htm)
 
-2）以网为牢，切断外网与中国的链接，斩断百姓了解世界真实情况的管道。通过控制的新闻媒体牢牢占据百姓的业余时间。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-3）以贷为牢，普及月度还款，掏干百姓钱包，让百姓背上沉重贷款，在贷款的牢笼里，疲于奔命，无暇顾及世界实时。
-
-4）以校为牢，把学校从传播知识的圣地，变成操纵青少年思想的阵营。学校垒起一座思考的地牢，将学生的求知欲，好奇心，创新能力全部杀死，摧垮学生的胆量，学校只有一个任务，教学生两个字：听话。
-
-从经济，精神，娱乐，健康，焊起四座铜墙铁壁般的牢笼，把百姓，圈禁起来，不能呼吸，达到长期奴役百姓的目的。
-
-发稿：谐趣园
+总编：Zion文恩
+编辑：谐趣园 
+审核：Zion文恩
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

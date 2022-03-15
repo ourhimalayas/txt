@@ -2,33 +2,15 @@
 ---
 
 
-## 西班牙首相桑切斯传达了西班牙人对乌克兰难民的承诺和声援
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2169016/)
+## 美太平洋空军司令警告中共 攻击邻居恐催生太平洋版北约
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2169245/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture2-8.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Kenneth-Wilsbach.jpg)
+根据《美国之音》报导，美国太平洋空军司令维巴赫（Kenneth Wilsbach）于当地时间14日在美国空军协会一场视频会议中警告中共，应在俄乌冲突中吸取教训，即无端攻击邻居会遭致比俄罗斯更强烈国际反应，甚至催生中方最不愿见到的「太平洋版北约」。国际社会在此次俄乌事件中已展现出非常明确的态度，即「当一个超级强权无端对邻居发动攻击时，国际会如何团结汇聚力量，对攻击发起方实施各种层面上的制裁，并对受攻击方提供援助」，太平洋美军正在密切注意中共在此地区的活动，他要求所有人都紧盯中国和朝鲜的动态，避免北京和平壤利用欧洲的战事伺机而动。
 
-图片来自原文
+审核:Athena雅典娜 发布:Amitofu
 
-西班牙首相佩德罗-桑切斯（Pedro Sánchez）宣布，国防部包租的一架飞机将于本周抵达，机上载有20或30名患有某种形式癌症的乌克兰儿童在其家人。
-
-桑切斯在访问位于波苏埃洛-德-阿拉尔孔（Pozuelo de Alarcón）的乌克兰难民关怀、接待和转介中心时作出承诺，西班牙政府已经为照顾乌克兰难民准备了所有的后勤服务。
-
-首先，马德里、巴塞罗那和阿利坎特，那里已经准备好了三个护理中心和第一接待中心，这三个有大量乌克兰社区代表的城市开始协调。
-
-而且，已经批准了一个接待和保护难民的计划，可增加12000个难民名额。
-
-简而言之，西班牙将树立一个团结、协调、协作和机构间合作的榜样。
-
-桑切斯也感谢非政府组织和第三方所做的工作。
-
-桑切斯向在西班牙的乌克兰难民传达了 “西班牙人民的承诺和团结”。
-
-并向难民保证，难民们将能感受到家的温暖。会尽全力满足难民们的需求。
-
-新闻来源链接：[https://www.eurasiareview.com/14032022-spains-pm-sanchez-assures-ukrainian-refugees-of-the-commitment-and-solidarity-of-spanish-people/](https://www.eurasiareview.com/14032022-spains-pm-sanchez-assures-ukrainian-refugees-of-the-commitment-and-solidarity-of-spanish-people/)
-
-本文作者：Rebecca (一切心皆不可得！)  
-上传排版：Hong
+[美将领：盼中国汲取教训，未受挑衅攻击邻居会遭致比俄罗斯更强烈国际反应](https://www.voachinese.com/a/us-commander-warns-china-not-to-use-ukraine-to-make-unprovoked-attack-otherwise-will-face-even-stronger-international-reactions-20220314/6485230.html)
 
  
 

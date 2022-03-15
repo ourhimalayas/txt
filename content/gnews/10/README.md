@@ -2,31 +2,35 @@
 ---
 
 
-## 多个国际教育机构暂停俄罗斯会员的资格及认证
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2169500/)
+## 俄军队只能再坚持14天，泽伦斯基敦促俄罗斯军队投降
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2169539/)
 
-作者：纽约磐石农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒3月14日消息，随着俄罗斯侵略乌克兰的战争不断升级，国际社会对其的谴责和制裁纷至沓来。近日，多个国际教育认证机构发表声明，强烈谴责俄罗斯侵略行为，决定暂停俄罗斯境内的相关活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-26.jpg)
-据悉，工商管理硕士协会、国际商管学院促进协会、欧洲管理发展基金会等机构，于3月11日发表联合证明，表态反对俄罗斯入侵乌克兰。声明说，身为商业教育机构的全球领导者，上述机构坚定地与乌克兰人民站在一起，对俄罗斯的侵略所引发的人道危机迅速上升表示高度关切，并支持乌克兰人民捍卫自己的生活方式和主权。因此，决定暂停俄罗斯教育机构的所有会员资格和认证活动，直到另行通知。
+#### 撰稿：彩虹       
 
-参考链接：[AMBA、AACSB聯合聲明 暫停俄羅斯教育機構會員資格](https://news.ltn.com.tw/news/world/breakingnews/3858568)
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1654.png)图片来源：METRO
+根据《新闻极限》3月15日的文章，《每日邮报》援引英国国防部消息人士的话说，两周后，俄罗斯军队可能难以守住他们在乌克兰占领的土地。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+消息人士坚持认为，俄军正在夹着尾巴逃跑。在未来14天，乌克兰将会对入侵部队采取更有力的抵抗。
 
-总编：Zion文恩
-编辑：宁文静
-审核：Zion文恩
-校正/发稿：Fei797
+乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelenskyy）说，“俄罗斯被击落的直升机数量很快就会达到数百架，他们已经损失了80架战机、数百辆坦克和数以千计的其他单位的设备。在19天内，俄军在乌克兰的损失超过了在车臣的两场血腥的长年战争”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+《每日邮报》指出，俄罗斯国民警卫队队长维克多·佐洛托夫（Viktor Zolotov）周二承认，“这一切并不像我们希望的那样快速发展”。
+
+乌克兰总统泽伦斯基说，“敌人很困惑”，没有料到会遇到乌克兰这么顽强的抵抗。他说：“他们的士兵知道这一点，他们的军官也意识到这一点。他们逃离了战场，他们放弃了军事装备。我们用战利品来保护乌克兰。今天，俄罗斯军队实际上已经成为我们军队的设备供应商之一，他们做梦都无法想象这样的事情。”
+
+泽伦斯基向俄罗斯军队喊话说：“如果你们的部队向我们投降，我们将以人道的、你们军队中没有的方式体面地对待你们，不会采用你们的军队对待我们的方式。自己选择吧！”
+
+泽伦斯基还预言了乌克兰将会最终胜利，泽伦斯基说：“我们在这场历史性战争第19天的抵抗已经结束。这又是艰难的一天，但我们的胜利仍在接近，接近乌克兰的和平。”泽伦斯基说，俄罗斯军事领导人一定会被追究战争罪的责任。
+
+他说：“对俄罗斯军队的战争罪行的追责是不可避免的。对他们在乌克兰市内蓄意制造的人道主义灾难的责任进行追责是不可避免的。全世界都看到在马里乌波尔（Mariupol）发生的事情，包括在哈尔科夫（Kharkiv）、切尔尼戈夫（Chernihiv）、苏米（Sumy）、奥赫蒂尔卡（Okhtyrka）、霍斯托梅尔（Hostomel）和伊尔平（Irpin），在我们所有的城市发生的事情。”
+
+**新闻来源**
+
+[Russia May Only Have 14 Days](https://www.newsmax.com/newsfront/russia-two-weeks-ukraine-invasion/2022/03/15/id/1061237/)
+
+[Zelenskyy Urges Russian Troops to Surrender, Predicts Ukraine Victory](https://www.newsmax.com/newsfront/ukraine-zelenskyy-urges-russians/2022/03/15/id/1061239/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
