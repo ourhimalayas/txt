@@ -2,28 +2,36 @@
 ---
 
 
-## 秘翻在线: 与美国关系日趋紧张的沙特阿拉伯邀请习近平访问
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2170729/)
+## 俄罗斯宣布退出欧洲人权监督委员会
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2170851/)
 
-撰稿：西枫westca
+翻译：冰糖葫芦喵
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-8-1.jpg)图片来源： 网络照片
-据华尔街日报3月15日报道，沙特阿拉伯邀请中国国家主席习近平访问利雅得，以加强与北京的关系。
+编辑与校对：冰糖葫芦喵、灭共文明
 
-据《华尔街日报》报道，对利雅得的邀请是在沙特阿拉伯与美国的关系紧张的情况下发出的。定于4月开始的斋月之后的这次旅行标志着习近平自中共病毒大流行病开始以来的首次对外国事访问。
+《路透社》3月15日报道，**周二，俄罗斯宣布退出欧洲理事会(Council of Europe)，避免因入侵乌克兰被其踢出局。这个泛欧集团的使命是维护人权和法治，自二战后成立以来，俄罗斯是第二个离开该集团的国家。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/OKAK4WWH4VOHHEY6772GY2J7DA-e1647381303527.jpg)3月14日，在法国斯特拉斯堡举行的一次讨论俄罗斯入侵乌克兰问题的特别会议（路透社）
+在1969年，希腊在也做了同样的事情，也是为了避免被驱逐退出欧盟理事会，当时一群军官在一次军事政变中夺取了权力。五年后，它在恢复民主后重新加入。
 
-据该报道称，一位沙特官员表示： “王储和习近平是亲密的朋友，双方都明白建立更紧密关系的巨大潜力，这不仅仅是’他们向我们购买石油，我们向他们购买武器的问题’。”
+据报道，**在周一起草的一项决议中，欧洲理事会表示，俄罗斯应该被赶出欧盟。在欧洲这个共同的家园里，没有侵略者的容身之地。**
 
-习近平的潜在访问将与王储穆罕默德-本-萨勒曼及其与拜登总统的关系形成鲜明对比，拜登在2020年大选期间承诺将沙特作为一个 “贱民 “国家对待。穆罕默德王子在最近几周拒绝与拜登就俄罗斯入侵期间油价飙升的努力进行交谈。在俄罗斯入侵乌克兰期间，沙特阿拉伯拒绝了美国要求抽取更多石油以遏制原油价格飙升的要求。
+该决议获得全体一致通过。决议称，俄罗斯未能恰当地履行其判决，这一事实将减轻俄罗斯退出欧洲人权法庭的影响。
 
-同时，阿拉伯联合酋长国（UAE）也对联合国安理会谴责莫斯科攻击乌克兰的决议保持沉默。
+报道指出，**俄罗斯退出该机构具有象征意义。该机构制定了《欧洲人权公约》(European Convention on Human Rights)，并在共产主义垮台后帮助东欧国家实现了政治制度民主化。**
 
-**新闻来源：**
+**人权公约将不再适用于俄罗斯，俄罗斯人将不再能够向欧洲人权法院**(European Court of human rights)**上诉反对他们的政府。**在俄罗斯入侵乌克兰的第二天，即2月25日，该组织暂停了俄罗斯的成员国资格。
 
-[Saudi Arabia Invites China’s Xi to Visit Kingdom Amid Strained U.S. Relations – WSJ](https://www.wsj.com/articles/saudi-arabia-invites-chinas-xi-to-visit-kingdom-amid-strained-u-s-relations-11647284211)
+希腊前总理帕潘德里欧(George Papandreou)表示，**今天的决定不是针对俄罗斯人民，而是针对俄罗斯总统普京的独裁、盗国贼统治和压迫政权。**他还说，希腊实在20世纪70年代被踢出了欧洲理事会，这个决定加强了希腊人民争取民主和自由的斗争。
 
-[Saudi Arabia invites China’s Xi to visit Riyadh: report](https://thehill.com/policy/international/598207-saudi-arabia-invites-chinas-xi-to-visit-riyadh-report)
+
+
+报道称，俄**罗斯议会代表团团长彼得·托尔斯泰**(Pyotr Tolstoy)在其Telegram频道上表示，他已递交外交部长拉夫罗夫(Sergei Lavrov)的一封信，**信中宣布莫斯科决定退出国际监督机构。**
+
+**独立于欧盟的欧洲委员会(Council of Europe)证实，它收到了莫斯科的信。**
+
+新闻来源链接：
+
+[Russia quits Council of Europe rights watchdog | Reuters](https://www.reuters.com/world/europe/russia-formally-quits-council-europe-rights-watchdog-2022-03-15/)
 
  
 
