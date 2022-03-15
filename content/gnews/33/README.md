@@ -2,60 +2,24 @@
 ---
 
 
-## 推翻中共就是根除世界灾难的源头
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2167760/)
+## 普京女儿豪宅遭占领！ 挥舞乌克兰国旗：欢迎难民
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2167763/)
 
-作者：香草山健身部-新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-26.png)
+俄罗斯入侵乌克兰已经接近三周，遭到了强烈的国际谴责与制裁，作为普京的家人当然不免也受到波及，普亭二女儿季霍诺娃（Katerina Tikhonova）名下一栋位在法国的别墅，近日遭到两名俄罗斯激进分子占领，他们声称要将房子提供给乌克兰难民住。
 
-截止3月13日我们法治基金国际救援已免费提供超过250人次酒店食宿，
-为1016位难民提供了免费巴士撤离，
-Medyka救援站接待了上千名难民，
-并成为国际红十字会的中转站。
-NFSC和ROLF提供免费救援，以帮助那些受俄罗斯非法入侵影响的人员，
-这是我们消灭中国共产党，
-支持在被共产主义和专制政府统治的国家里，
-争取自由使命的一部分。
-因为全人类的战争和所有灾难都与中国共产党有关，
-只有消灭中国共产党才能解决人类的战争和所有苦难的根源。
-世界上真正的爱是没有边界的．不分种族和宗教的．
-我们新中国联邦跟全世界的人和平共处．互相尊敬．
-拒绝活在中共刻意营造的种族主义，
-拒绝中共拉仇恨的政治操作，
-新中国联邦的宣言就是要推翻邪恶的中国共产党，
-为实现自由、民主的法治社会，
-独裁中共剥夺了中国人的信仰，
-掐灭了中国人的希望，
-它让我们的母亲流泪，
-让我们的姐妹成了铁链女，
-让我们的女儿逃不出彭帅的命运。
-新中国联邦就是带领中国人脱离中国共产党，
-让中国人生活在没有中国共产党统治的法治社会。
-让世人不分国籍尊重人权，建立和平，
-恢复国际次序。
-法制基金为饱受战争灾难的人们无偿提供免费救援，
-供来自乌克兰的难民休憩。
-救援接待站内提供的免费咖啡、热水、食物、毛毯，
-并设有儿童专区。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/photo.php_.png)图片来源：截自YouTube
 
-只有消灭中国共产党才能拯救全人类
-我们与乌克兰人民站在一起！
+简评：普京二女儿别墅遭到占领，挥舞乌克兰国旗，反战者的行为艺术值得点赞！不知作为普京的女儿本人有何感想，作为独裁老爹也许会掌控女儿，但作为女儿无需支持老爹，坚持正义才是应该做的事情！季霍诺娃！请为了俄乌人民甚至你的家族站出来反对普京，不要因普京的罪恶未来遭受祸及！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-65.jpg)
+新闻来源：[联合新闻网](https://udn.com/news/story/122699/6165143?list_ch2_index)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+撰稿/发布：一叶知秋
 
-- 审核/编辑/发稿:qiutian（邱甜）
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

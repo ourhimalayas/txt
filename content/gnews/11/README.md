@@ -2,25 +2,25 @@
 ---
 
 
-## 注射第三剂新冠疫苗后，澳大利亚运动员斯图尔特•麦克斯温患上了心包炎
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2168281/)
+## 英媒报道：俄罗斯国家电视台编辑和制片人旗帜鲜明反战被拘留
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2168375/)
 
-#### 翻译                                意大利达芬奇农场                 小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-15-alle-10.20.42.png)图片来源：eventiavversinews.it
-澳大利亚越野和中长跑运动员斯图尔特•麦克斯温（ Stewart McSweyn）没有完成3月8日星期二在墨尔本举行的5000米比赛。在还剩三圈的时候， 他突然出现了呼吸问题并放弃了比赛。斯图尔特•麦克斯温参加了2020年东京奥运会，并成功晋级男子1500米决赛。为了参加3月18日至20日在塞尔维亚贝尔格莱德举行的室内世界锦标赛，最近斯图尔特•麦克斯温接受了第三剂新冠疫苗。这位澳大利亚选手本应参加1500米和5000米比赛。现在，由于诊断出心包炎，他将不得不放弃世锦赛和其他比赛。
+撰稿：喜妈
 
-麦克斯温的团队立即认为这起事件与他在1月份感染的新冠病毒有关， 但进一步的检查显示，这是与最近注射的第三剂疫苗有关系。
+英媒卫报最新报道：俄罗斯国家电视台編輯兼製片人瑪麗娜·奧夫揚尼科娃（Marina Ovsyannikova）3 月 14 日，突然出現在俄羅斯國家電視台重要節目的片場，手上拿著一張寫著“停止戰爭”的海報。 她已被拘留。本文分享她在早先录制的一段视频。
 
-麦克斯温的教练尼克•比都( Nic Bideau )表示， 围绕这位澳大利亚田径明星发生的事情应该是对所有运动员的警告。“ 医生告诉他不该在得了新冠病毒以后这么近的时间再接种新冠疫苗。这只会带来伤害，而这种伤害似乎已经发生了。他的心脏出了问题，显然也影响了他的呼吸。他接种疫苗是为了与世界上最优秀的人竞争，他必须接种新冠疫苗。”麦克斯温打加强针只是为了确保他可以旅行并参加下周在塞尔维亚贝尔格莱德举行的室内世界锦标赛。
+视频文字如下：在乌克兰进行的战争是犯罪，俄国是侵略者。这个侵略应由一个人负责，这个人就是弗拉德米尔·普京。我的父亲是乌克兰人，母亲是俄国人，他们从不是敌人。我脖子上的项链象征俄国需要马上停止对异族的战争，同时应有机会与我们兄弟情谊国家谋求和平。不幸的是，我在国家一频道工作，为克里姆林宫宣传服务，我感到耻辱，我为我自己在屏幕上说谎而感到耻辱，我为参与让俄国人民成为僵尸而耻辱。当2014年一切开始时，我们就沉默。当克里姆林宫毒害阿里克谢·那瓦列时就没上街。我们只是看着这个反人类的政权，现在整个世界都反对我们。我们10代人都洗不清这场对异族战争带给我们的耻辱。我们是俄国人，我们聪明有思想。只有我们才有力量去停止这个疯狂。我们上街吧。别害怕，他们不能把我们全抓起来。
 
-现在他已退出所有比赛，他将去心脏病专家那儿做进一步的检查。例如：“先去看心脏病专家，进行更多的血液检查和心电图，他们会告诉我们更多的信息。他一周内不会跑步， 可能需要服用一些药物。如果一切顺利， 他应该会在10天后恢复训练。”
+笔者认为，这是一个特别让人欣赏和感动的有良知的举动，是发动战争的狂人普京不能代表俄罗斯国家和俄罗斯人民一个例子。换句话说，就是普京的邪恶只能代表他自己，他利用了对国家、军队和宣传工具的掌握，绑架了俄罗斯国家和俄罗斯人民。俄罗斯人民绝大多数是有良知和道德底线，是能分清楚善恶，有正义感的。
 
-麦克斯温仍然计划参加下个月在悉尼举行的全国锦标赛， 目前他确认的第一场国际比赛是5月13日在卡塔尔多哈举行的钻石联赛。
+同时，笔者还看到，真相救国，真相拯救民族，同样体现在当下的被共产妖魔毒害的俄罗斯普京政权。我们想说的是，人民只要拥有真相，都是可以得到力量，启开智慧，并积极行动反对强权和独裁。人民，无论在哪个国家和哪个地区，无论人种和宗教信仰如何，都是走向正义就能得到解放。
 
-原文链接：[https://www.eventiavversinews.it/latleta-olimpico-stewart-mcsweyn-si-sente-male-durante-la-gara-di-5000-metri-a-melbourne-gli-esami-mostrano-una-pericardite-dopo-la-terza-dose-ricevuta-per-partecipare-ai-mondiali-indoor-la-prossi/](https://www.eventiavversinews.it/latleta-olimpico-stewart-mcsweyn-si-sente-male-durante-la-gara-di-5000-metri-a-melbourne-gli-esami-mostrano-una-pericardite-dopo-la-terza-dose-ricevuta-per-partecipare-ai-mondiali-indoor-la-prossi/)
+参考消息：
 
-编辑、上传：Xiao   baige
+Employee bursts onto live Russian state TV to denounce war: ‘They are lying to you here’
 
+[https://www.theguardian.com/world/2022/mar/14/russian-tv-employee-interrupts-news-broadcast-marina-ovsyannikova](https://www.theguardian.com/world/2022/mar/14/russian-tv-employee-interrupts-news-broadcast-marina-ovsyannikova)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,31 @@
 ---
 
 
-## 善良的人类都反对战争
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2168329/)
+## 中兴通讯被控涉嫌签证欺诈 或违反认罪协议缓刑规定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2168449/)
 
-撰稿：骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-18.17.43.png)图源：网路
-梅迪卡前线时间3月15日，战友Nicole采访了连着七天都在为难民演奏音乐的钢琴家Davide Martello。这位钢琴家说自己不关心政治，但是非常反对战争，他在很多战争和动乱的场面去安抚过受难的百姓。他曾去过阿富汗，动乱时期的土耳其，巴黎恐怖和爆炸事件，在一些经历了自然灾害如洪水的地区。他四处奔走，为世界呼吁和平和爱，他说自己未去过香港，但为香港人演奏过。他说现在的科技进步太方便了，starlink这样的高科技只会使人与人的连接更加容易，无论人们是什么种族和语言，善良的人们彼此都有一颗和平的心。只有和平和爱，还有音乐，才能够让全人类团结一致。
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-172.jpg)
+（图片来自网络）
 
-Nicole战友告诉钢琴家，人类社会一切罪恶的根源就是共产党，只有推翻了共产党才能有人类团结和分享爱的可能。而新中国联邦就是消灭共产党的中国人。钢琴家说虽然他不懂政治，但是他认为一个政府如果不与世界联网，违背历史潮流，想要倒退，那是不可能的。
+美国联邦调查局特工近日指证持访问学者签证来到美国的一名中共国公民，实际上是在新泽西州为中共国科技公司中兴通讯工作，与签证目的地不符。这一指证可能表明，中兴通讯或涉嫌违反其于2017年签下的认罪协议的缓刑规定。
+
+据《大纪元》3月15日报道，美国联邦调查局（FBI）特工马库斯·旺德格姆（Marcus Wondergem）3月14日在达拉斯（Dallas）联邦法院举行的一场听证会上，指证一名中（共）国公民假借到佐治亚理工学院教授张继昆（音译，Gee-Kung Chang）的实验室做研究之名来到美国，但几乎没有在那里待过，而是住进了位于新泽西州莫里斯敦（Morristown）的中兴通讯（ZTE Corp）附近的公寓。
+
+据旺德格姆透露，他不仅查看了佐治亚理工学院实验室的门禁记录，并且还提供了这些中共国公民在莫里斯敦公寓的租约。
+
+美国地方法院法官埃德·金凯德（Ed Kinkeade）将中兴公司律师传唤到法庭，指控该公司涉嫌参与签证欺诈。而这一指控表明，中兴通讯还涉嫌违反了其涉及向伊朗非法运输美国技术案件的认罪协议的缓刑规定。
+
+根据2021年3月公布的一份起诉书，中兴通讯在新泽西的前研究主管余建军（音译，Jianjun Yu）和佐治亚理工学院教授张继昆（音译，Gee-Kung Chang），被控至少在2014年至2018年期间，涉嫌合谋利用签证欺诈，将持访问学者签证的中共国公民带到美国，而这些人却在中兴通讯进行研究工作。
+
+这一消息被披露后，中兴通讯的股价大幅下跌。上周，中兴在香港股市的跌幅超过12%；本周一又进一步下跌了7%。
+
+新闻链接：
+
+[https://www.epochtimes.com/gb/22/3/14/n13646447.htm](https://www.epochtimes.com/gb/22/3/14/n13646447.htm)
 
 * * *
 
-撰稿、发布：银河系农场—-骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0313_Handflag17x24cm2.png)
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

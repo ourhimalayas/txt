@@ -2,70 +2,51 @@
 ---
 
 
-## 玛莎·布莱克本：俄罗斯和中共国是新的邪恶轴心,在削弱美国实力方面有着共同的利益
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2166727/)
+## 乌克兰战争:如果帮助俄罗斯逃避制裁， 中国将面临后果-美国
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2167034/)
 
-参议员玛莎·布莱克本： 俄罗斯和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 是新的邪恶轴心的一部分，在削弱美国实力方面有着共同的利益。 【附视频：玛莎议员接受福克斯采访，谈话内容翻译如下： 俄罗斯是 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的加油站。 他们是中共最大的供应商。 但我们需要知道的是，中共国将在多大程度上推动救助俄罗斯。以及是否在经济上使用银联卡，是否在我们将俄罗斯从SWIFT系统中踢出时试图回填取代。 我有一个决议案，参议院支持将他们完全排除在 SWIFT 系统之外。你必须看看能源的购买情况。然后是 [#习近平](https://gettr.com/hashtag/%23%E4%B9%A0%E8%BF%91%E5%B9%B3) 和普京之间的关系，我认为他们是新邪恶轴心的新锚。伊朗和朝鲜也加入了他们的行列。】
+翻译：小小小鸟
+![](https://assets.gnews.org/wp-content/uploads/2022/03/eight_col_068_AA_11032022_645241.jpg)
+美国国家安全顾问杰克-沙利文周一将在罗⻢与中国最高外交官 杨洁篪会面，他警告北京，如果他们帮助莫斯科规避对乌克兰战 争的全面制裁，它将“绝对”面临后果。
 
+《金融时报》和《华盛顿邮报》周日援引美国官员的话报道，自 2月24日开始入侵乌克兰以来，俄罗斯向中国索要军事装备，这 引发了白宫的担忧，即北京可能会破坏⻄方帮助乌克兰军队保卫 其国家的努力。
 
+在被问及这些报道时，中国驻华盛顿大使馆的发言人刘鹏宇说， “我从来没有听说过这些”。他说，中国认为乌克兰目前的局势“令 人不安”，并补充说:“我们支持并鼓励一切有利于和平解决危机 的努力”。“应尽最大努力支持俄罗斯和乌克兰在困难的情况下推 进谈判，以取得一个和平的结果”。
 
-> Russia and China are part of the new Axis of Evil with a shared interest in weakening American power. [pic.twitter.com/9KxRQbrJxv](https://t.co/9KxRQbrJxv)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 14, 2022](https://twitter.com/MarshaBlackburn/status/1503417542353764357?ref_src=twsrc%5Etfw)
+沙利文周日告诉美国有线电视新闻网CNN，华盛顿认为中国在入 侵发生之前就知道俄罗斯计划在乌克兰采取一些行动，尽管北京 可能不了解所计划的全部内容。现在华盛顿正在密切关注北京在 多大程度上向俄罗斯提供经济或物质上的支持，如果发生这种情 况，华盛顿将施加后果。
 
+沙利文说:“我们正在直接、私下地与北京沟通，大规模逃避制 裁的努力或支持俄罗斯回填制裁的行为绝对会有后果”。“我们不 会允许这种情况继续下去，也不允许世界上任何国家、任何地方 的这些经济制裁给俄罗斯提供逃避机会”。
 
+拜登政府的一位高级官员说，乌克兰战争及其对地区和全球安全 的影响将是沙利文与杨洁篪会晤中的一个“重要议题”，因为中国 有“与俄罗斯结盟以推进他们自己的世界秩序愿景”的举措。
 
-前国务卿迈克.蓬佩奥： 当你在美国安全的核心任务集——即阻止坏人继续侵略——上失败时会发生这种情况。 【附福克斯一段采访：蓬佩奥就一位美国记者在乌克兰厄平被杀做评论，称拜登政府对俄罗斯的侵略行径所采取的行动太迟、太微弱而导致这样的事情发生】
+这位官员说，这次会议已经计划了一段时间，是华盛顿和北京为 保持开放的沟通渠道和管理世界上两个最大经济体之间的竞争所 作的更广泛努力的一部分。
 
+匿名消息人士补充说，这次会面没有预期的具体结果。
 
+北京一家智库的负责人和中国政府顾问王辉耀在周日发表在《纽 约时报》的专栏中警告说，“螺旋式升级”，并说中国“处于独特的 地位，可以在⻄方支持的乌克兰和俄罗斯之间充当中立的调解 人”，以结束本次战争。“尽管⻄方的一些人可能觉得这个想法不 太好，但现在是时候在中国的帮助下为俄罗斯领导人提供一个台 阶下了”。
 
-> This is what happens when you fail at the core mission-set of American security, which is to deter the bad guys from continued aggression. [pic.twitter.com/D928ixg4ZK](https://t.co/D928ixg4ZK)
-> — Mike Pompeo (@mikepompeo) [March 14, 2022](https://twitter.com/mikepompeo/status/1503389718070837258?ref_src=twsrc%5Etfw)
+美国周六表示将向乌克兰部队紧急提供价值高达2亿美元(2.93 亿新元)的额外武器，因为他们正在试图抵御俄罗斯的炮击。 华盛顿及其盟友对俄罗斯实施了全面的、前所未有的制裁，并禁 止其能源进口，同时向乌克兰提供了数十亿美元的军事和人道主 义援助。
 
+他们单独和共同呼吁中国、海湾国家和其他未能谴责俄罗斯入侵 的国家加入到将俄罗斯从全球经济中孤立出来的行列中。
 
+作为俄罗斯的重要贸易伙伴，北京拒绝将俄罗斯的行动称为入 侵，尽管中国国家主席习近平上周在与德国总理奥拉夫-肖尔茨 和法国总统埃⻢纽埃尔-⻢克⻰进行视频会晤后确实呼吁在乌克 兰实行 “最大限度的克制”。
 
+习近平还担忧对俄罗斯的制裁会对全球金融、能源供应、运输和 供应链产生影响，因为越来越多的迹象表明，⻄方的制裁正在限 制中国购买俄罗斯石油的能力。 然而，《环球时报》的前总编辑胡锡进在推特上说，“如果沙利 文认为他能说服中国参与对俄罗斯的制裁，他将会感到失望。”
 
+#### 乌克兰战争可能对中国经济产生影响–IMF
 
-> 参议员马可·卢比奥：
-> 切断与俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) 的关系很容易，但如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 入侵台湾，想切断关系就不会那么容易了。
-> 
-> 现在我们太依赖#中共国了
-> 
-> 我们必须开始在美国制造更多东西
-> 【附中字视频】 [https://t.co/Cmn3rHY5FB](https://t.co/Cmn3rHY5FB) [pic.twitter.com/L1bihHGJ7b](https://t.co/L1bihHGJ7b)
-> — 美国政要直译推 (@zhiyitw33) [March 15, 2022](https://twitter.com/zhiyitw33/status/1503577253015289859?ref_src=twsrc%5Etfw)
+国际货币基金组织总裁Kristalina Georgieva上周表示，这场危机 也可能使中国今年无法实现其5.5%的增⻓目标。她说，她已经与 中国央行行⻓谈过，预计对俄罗斯结束战争的压力会越来越大。
 
+美国官员说，在罗⻢会晤期间，沙利文还将会⻅意大利总理德拉 吉的外交顾问路易吉-⻢蒂奥洛，以继续协调全球对俄罗斯总统 弗拉基米尔-普京“选择战争”的强烈反应。
 
+华盛顿和七大发达经济体周五加大了对俄罗斯的压力，呼吁取消 其“最惠国”贸易地位，这将使他们能够提高对俄罗斯商品的关 税。
 
-众议员迈克·华尔兹： 看看我们在短短18个月里在中东的地位跌了多少。 我们已经从白宫草坪上的历史性和平协议（亚伯拉罕协议）转变为现在的领导人不会接受我们总统的呼吁，而是向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 靠拢。 【转推来自华尔街日报：沙特阿拉伯邀请 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 习近平访问利雅得，因为该国希望加深与北京的联系】
+2020年，外贸大约占俄罗斯经济总体的46%，其中大部分是与中国的贸易。中国其最大的出口国。
 
+参考链接：[Ukraine war: China will face consequences if it helps Russia evade sanctions – US](https://www.rnz.co.nz/news/world/463276/ukraine-war-china-will-face-consequences-if-it-helps-russia-evade-sanctions-us)
 
-
-> Look how far we’ve fallen in just 18 months in the Middle East. 
-> 
-> We’ve gone from historic peace deals on the White House lawn (Abraham Accords) to now leaders won’t take our President’s calls and are moving towards China. [https://t.co/xQ3P8HQNg8](https://t.co/xQ3P8HQNg8)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 14, 2022](https://twitter.com/michaelgwaltz/status/1503511359060910084?ref_src=twsrc%5Etfw)
-
-
-
-众议院军事委员会： 如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 协助普京大屠杀，我们必须制裁中共国，拜登必须明确这一点。 如果拜登政府允许中共国的武器屠杀乌克兰平民或允许中共国银行为普京的血钱洗钱，国会将采取行动。 【附卫报新闻：国安顾问沙利文说如果中共国帮助俄罗斯逃避制裁将面临后果】
-
-
-
-> We must sanction China if they assist w/ Putin's massacre and Biden must make that clear.
->  
-> Congress will act if the Biden admin allows Chinese weapons to slaughter Ukrainian civilians or allows Chinese banks to launder Putin’s blood money.[https://t.co/Kwywp9JMKU](https://t.co/Kwywp9JMKU)
-> — Armed Services GOP (@HASCRepublicans) [March 14, 2022](https://twitter.com/HASCRepublicans/status/1503494226998398979?ref_src=twsrc%5Etfw)
-
-
-
-白宫： (国家安全顾问) 杰克·沙利文@JakeSullivan46 今天在意大利罗马会见了中共政治局委员、外事工作委员会办公室主任杨洁篪。 他们的会议是继 2021 年 11 月 15 日拜登总统和习近平主席之间的虚拟会议上的后续。沙利文先生提出了一系列美中关系的问题，并实质性地讨论了俄罗斯对乌克兰的战争。 他们还强调了保持美中之间开放沟通渠道的重要性。
-
-
-
-> .[@JakeSullivan46](https://twitter.com/JakeSullivan46?ref_src=twsrc%5Etfw) met today with Chinese Communist Party Politburo Member and Director of the Office of the Foreign Affairs Commission Yang Jiechi in Rome, Italy. Their meeting followed up on the November 15, 2021 virtual meeting between President Biden and President Xi.
-> — The White House (@WhiteHouse) [March 14, 2022](https://twitter.com/WhiteHouse/status/1503468239963238400?ref_src=twsrc%5Etfw)
-
-
+审核校对：Barry Jack
+上传排版：F
 
  
 
