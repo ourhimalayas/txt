@@ -2,23 +2,30 @@
 ---
 
 
-## 欧盟三国总理访问乌克兰
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2171280/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月15日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2171315/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ukraine-russia-conflict-204056.jpg)战争迫使乌克兰人在地铁站内栖身。捷克、波兰、斯洛文尼亚三国总理15日同时访问乌克兰，表达支持。（法新社）
-（早报讯）捷克总理、波兰总理及斯洛文尼亚总理一起前往乌克兰首都基辅会见乌克兰领导人。此次访问旨在强调欧盟对乌克兰的明确支持。他们是战争爆发以来首批前往基辅进行访问的外国领导人。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-19.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-12.png)
 
-法新社报道，波兰总理府官网3月15日发布的声明说：“访问的目的是确认整个欧洲联盟对乌克兰主权和独立的明确支持，并递交为乌克兰国家和社会提供广泛支持的计划。”波兰总理莫拉维茨基、捷克总理菲亚拉以及斯洛伐文尼亚总理扬沙是作为欧洲理事会的代表于15日前往乌克兰基辅访问，并与乌克兰总统泽连斯基和总理什梅加尔举行会谈。
 
-中国通讯社报道，欧盟三国总理已就此次访问与欧洲理事会主席米歇尔和欧洲委员会主席冯德莱恩达成一致。
+校对：Stay文苑
 
-此外，乌克兰外交部长库列巴15日在社交媒体上说，他与加拿大外长梅拉妮·若利进行了电话会谈。
+编辑：Stay文苑
 
-参考连结：[https://www.zaobao.com.sg/realtime/world/story20220316-1252642](https://www.zaobao.com.sg/realtime/world/story20220316-1252642)
+发稿：Stay文苑
 
-审核校对：Barry Jack
-上传排版：F
+新闻：[https://gettr.com/post/p1081o70b81](https://gettr.com/post/p1081o70b81)
+访谈：[https://gettr.com/post/p1088ord2ba](https://gettr.com/post/p1088ord2ba)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-18.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

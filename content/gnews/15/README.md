@@ -2,43 +2,27 @@
 ---
 
 
-## 我们是消灭中国共产党的中国人
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2171868/)
+## 樱花FM|中日财经爆:美国恢复进口委内瑞拉石油 获释两囚犯
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2172165/)
 
-作者：纽约香草山农场-恩永存
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/XvnFuLczfzHaenG6UZvld_H9Gb4Rj9B7k505050Pf5TxCnjMQvKp9oryLn55VHcEl9gF5t214UeTHNDj6qyqJSEXzctu3ZV9Dcq3TvNfTpW7A0r7PmETfOyl8hJSyWh9XMMNLzkd)
+美国将放松对委内瑞拉的石油禁运，以增加其原油供应。本周二，美国总统拜登宣布立即禁止从俄进口石油和天然气。3月8日，美国总统拜登宣布美国立即禁止从俄罗斯进口新的石油、某些成品油、液化天然气以及煤炭。拜登表示，禁令代表“美国港口不会再接受俄罗斯的石油产品，华盛顿将给予相关企业45天时间来终止其采购俄能源的现有合同。”
 
+俄是全球世界第三大石油生产国。美国目前从俄进口的石油和石油副产品占其总进口量的8%。在宣布禁止从俄石油禁止令之前，美国官员上周末和马杜罗会面，这是双方首次高级别会议。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
-3月13日郭文贵先生在大直播中反复强调新中国联邦，法治基金这次乌克兰国际人道救援的主题。
+自2019年以来，委内瑞拉一直受到美石油出口禁运限制。白宫刚刚宣布，委政府释放了两名入狱的美国人。一名是西特哥石油公司前主管卡德纳斯，另一名获释的美国人名叫费南德兹。一旦美国和马杜罗政府就取消石油禁运达成协议，美国石油生产商雪佛龙公司可能是第一个受益者。
 
-第一，我们是消灭中国共产党的中国人；
-
-第二，中国共产党是全人类所有的战争和问题的根源；
-
-第三，消灭中国共产党是解决人类战争和所有苦难的根本手段; 第四 我们与乌克兰人民站在一起。
-
-郭先生为了维护新中国联邦的正义行动，正确形像，深知战友们为救援付出的努力，更明白大家想做好救援的真心，但因战友们知识见识有限，对事物判断欠佳，给邪恶中共留下了可乘之机，他们以谎言抢夺新中国联邦的救援功劳。郭先生以为真不破的态度，在大直播中对战友们所做的事公开褒贬，让大家回归救援主题，彼此团结，同心同行，同辱同荣，与全球救援组织一起完成救援行动。
-
-新闻链接：[https://gettr.com/post/pzuk2c9034](https://gettr.com/post/pzuk2c9034)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-31.jpg)
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+文字版原文：
 
 
+| [中日财经爆┃美国恢复进口委内瑞拉石油 获释两囚犯](https://gnews.org/zh-hans/2137371/) |   |
+| --- | --- |
 
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

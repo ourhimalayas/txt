@@ -2,41 +2,32 @@
 ---
 
 
-## 有声|新中国联邦参与国际组织战地救援协调大会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2171822/)
+## 志愿者向波兰媒体人介绍郭文贵先生带领中国人消灭中共
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2171914/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-22-768x436-1.png)
+整理/编辑：小红帽
 
-
-波兰当地时间3月14日，梅蒂卡救援站所有义工组织的成员代表集中在新中国联邦的最大救援帐篷中，召开会议讨论整个营地的系统化管理。
-这次会议由联合国、国际红十字会、以及无国界救援者等组织联合发起。当天早上，新中国联邦救援人员已经与联合国救援工作人员完成对接。会议计划，把新中国联邦帐篷这一排作为一列新的难民营地所在。 新中国联邦救援人员表示，根据救援需要，可以搭建更大的帐篷，全力配合国际组织的需要。
-据悉，会议将于明日早晨继续召开，新中国联邦救援人员会参与探讨基地的整合建设。
-这次会议是新中国联邦首次全程参与全球国际组织的合作，而且，为会议提供会议场地。会议结束后，所以与会人员主动起立，当场感谢新中国联邦所提供的国际人道主义帮助。新中国联邦参与国际合作受到全球组织的欢迎与认可。
-这是历史上首次，在国际舞台上，有新中国联邦而没有中国共产党的国际组织会议。这一时刻将被载入史册。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-16_11-18-05.png)图片来源：郭文贵先生盖特视频截图
 
 
+3月13日，在波兰梅迪卡难民援救中心，新中国联邦和法治基金志愿者妮可告诉两位波兰独立媒体人，郭文贵先生正在带领中国人民推翻共产党的统治，并让中国人民摆脱共产主义。
 
-文字版原文：[新中国联邦参与国际组织战地救援协调大会](https://gnews.org/zh-hans/2166077/)
+妮可：“我爱波兰人民。因为在我非常小的时候，就在新闻上听到波兰人民脱离了共产主义。所以你们也经历了同样的一个过程。我记得整个过程中，你们有一位伟大的领导人发挥了很大的作用。他的名字是瓦文萨（Walesa)。现在我们也有一个中国的瓦文萨，他的名字是郭文贵。他正在引领中国人民推翻共产党的统治。”
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+波兰媒体人：“我由衷地祝你们好运，并尽快实现摆脱中共的目标。因为我们所有人都支持你们。 ”
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+资料来源：[郭文贵先生2022年3月15日盖特视频](https://www.gettr.com/post/p104rsifbe0)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+发布：tianzhihuan
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

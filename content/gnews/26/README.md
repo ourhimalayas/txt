@@ -2,30 +2,54 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月15日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2171315/)
+## 法国解除有关未接种疫苗、戴口罩的中共病毒限制措施
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2171648/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-19.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-12.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1732.png)2022 年 3 月 14 日，星期一，在法国西南部比亚里茨的一个市场上没有口罩的人。Bob Edme/AP
+《旧金山纪事报》援引美联社2022年3月14日巴黎报道，法国周一解除了大部分中共病毒限制措施，取消了在大多数环境中戴口罩的需要，并允许未接种疫苗的人重返餐馆、运动场和其他场所。
+
+法国政府本月早些时候基于对医院状况改善的评估以及数周感染人数稳步下降的结果宣布了这一举措。这距离定于4月10日举行的第一轮总统选举还有不到一个月的时间。
+
+但最近几天，新感染病例的数量再次开始增加，这引起了一些科学家的担忧，即现在解除限制可能还为时过早。根据7天的平均水平计算，新感染人数已超过6万人，高于一周前的约5万人。
+
+从周一开始，人们进入餐馆和酒吧、电影院、剧院、集市等地方和使用地区间的交通工具不再需要出示疫苗接种证明。这所谓的疫苗通行证是于1月底生效的。
+
+巴黎的餐馆老板洛朗·内格里(Laurent Negre)称赞“回归正常”。“我们已经习惯了这些限制措施和复杂的规则，所以我们现在会更加享受工作……所以这是个好消息。”他说。
+
+23岁的巴黎人巴托洛姆·莱西(Bartholome Laisi)说：“这是一件好事，因为人们将能获得更多的行动自由。但我们需要小心并对其进行监控，以避免紧随其后的另一波（病毒）浪潮。”
+
+在医院和疗养院，未接种疫苗的人必须提供最近的阴性检测或最近康复的证明才能进入。学校、企业和办公室不再需要戴口罩。在公共交通工具、医院和其他卫生设施中，它们仍然是强制性的。
+
+周一，住在巴黎附近的乔斯琳·穆勒(Jocelyne Muller)仍然戴着口罩走在法国首都的街道上，当时她刚从郊区火车下车。她说，“尽管口罩并没有特别困扰我”，但能够摘下它也“是一种解脱”。“现在我们只希望它能把人们带回电影院、剧院和所有艺术场所”。
+
+在拥有6700万人口的法国，超过92%的12岁及以上人群已完全接种了疫苗。
+
+简评:
+
+法国宣布取消了对人民在中共病毒防疫上的大部分限制措施，欧美多国也都已经采取了类似的松绑措施。我们知道，郭文贵先生和新中国联邦人在一年多以前就指出了，病毒和疫苗，是中共国和西方沼泽地的邪恶势力对世界人民进行的杀戮和迫害，他们的恶行一定会败露。
+
+我们看到，2周前辉瑞公司被迫公布了疫苗试验的报告，报告披露出来疫苗上千种可怕的负作用。辉瑞和其他疫苗生产商，即将被各国受害人告上法庭，受到正义的审判和惩罚。
+
+现在欧美这些政府和政要们，看到毒疫苗阴谋即将真相大白，马上摇身一变，从强迫人民注射毒疫苗，转到赶紧和疫苗灾难切割，想要以此脱逃人民的惩罚。法国不到一个月就要开始总统大选，马克龙政府此时竟也不顾科学家的建议了，抓住时机，改变防疫政策，这很明显是为了获得法国人民更多的选票。
+
+郭文贵先生在疫苗推行之初就警告世人，大规模的疫苗灾难将随着疫苗接种的普及而爆发。如今，灾难正在到来。这要求我们所有人一定要采取措施做好应对准备，同时要求国际社会继续推动病毒溯源，彻底除掉中共这个制毒放毒的始作俑者，避免同样的灾难再次发生。
+
+新闻链接: [https://www.sfgate.com/news/article/France-lifts-COVID-19-rules-on-unvaccinated-mask-17000193.php](https://www.sfgate.com/news/article/France-lifts-COVID-19-rules-on-unvaccinated-mask-17000193.php)
+
+翻译/简评: Sima（正道主义）
+
+PR: Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-校对：Stay文苑
+编辑：【英国伦敦喜庄园编辑部】
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p1081o70b81](https://gettr.com/post/p1081o70b81)
-访谈：[https://gettr.com/post/p1088ord2ba](https://gettr.com/post/p1088ord2ba)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-18.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

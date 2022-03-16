@@ -2,40 +2,40 @@
 ---
 
 
-## 法国取消疫苗通行证及强制口罩令
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2171813/)
+## 我们是消灭中国共产党的中国人
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2171868/)
 
-作者：银河系农场 – 骄子
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+作者：纽约香草山农场-恩永存
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
+3月13日郭文贵先生在大直播中反复强调新中国联邦，法治基金这次乌克兰国际人道救援的主题。
 
-法国宣布自3月14日起放宽部分防疫限制，即日起除搭乘公共交通工具外，包括学生在内，大部分公众场合下不再强制配戴口罩。另外，进入餐厅、戏院、博物馆等公众场所时也毋须出示疫苗通行证，不过，进入医院、老人院和伤残人士中心等除外。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-4.jpg)
-最近一周该国感染人数再次增加，有科学家担忧，现在解除限制为时过早。根据 7 天的平均值推算，新增感染人数超过 6万人，高于一周前的 5万人。科学议会成员兼政府首席防疫医疗顾问戴佛西表示疫情仍未结束，呼吁民众仍应保持谨慎。
+第一，我们是消灭中国共产党的中国人；
 
-参考链接：
-[‘Return of Freedom’ France Drops COVID Vaccination Pass and Forced Mask Wearing](https://www.breitbart.com/europe/2022/03/14/return-of-freedom-france-drops-covid-vaccination-pass-and-forced-mask-wearing/)
+第二，中国共产党是全人类所有的战争和问题的根源；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+第三，消灭中国共产党是解决人类战争和所有苦难的根本手段; 第四 我们与乌克兰人民站在一起。
 
-总编/编辑/审核：天滅中共
-校对/发稿：为真不破20
+郭先生为了维护新中国联邦的正义行动，正确形像，深知战友们为救援付出的努力，更明白大家想做好救援的真心，但因战友们知识见识有限，对事物判断欠佳，给邪恶中共留下了可乘之机，他们以谎言抢夺新中国联邦的救援功劳。郭先生以为真不破的态度，在大直播中对战友们所做的事公开褒贬，让大家回归救援主题，彼此团结，同心同行，同辱同荣，与全球救援组织一起完成救援行动。
+
+新闻链接：[https://gettr.com/post/pzuk2c9034](https://gettr.com/post/pzuk2c9034)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-31.jpg)
+
+编辑/校对/发稿：滚滚长江都是水
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
 
 
