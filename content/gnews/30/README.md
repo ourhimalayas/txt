@@ -2,41 +2,32 @@
 ---
 
 
-## 美国前总统奥巴马确诊中共病毒
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2175606/)
+## 【秘翻时评】史上首次 欧洲理事会投票通过开除俄罗斯会籍
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2175636/)
 
-作者: 纽约香草山教育部-Naughty(文行)
+By:**[秘翻时评](https://gettr.com/post/p10b211be53)**
 
+**[2022-03-16](https://gettr.com/post/p10b211be53)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
-据美国媒体3月13日消息，美国前总统奥巴马当天表示，他的中共病毒筛检结果呈阳性。不过症状相当轻微，仅感觉喉咙发痒。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11648750_031322-wls-obama-covid-5p-vo-vid.jpeg)图片来源: 网络
-当天下午，奥巴马在 Facebook 和 Twitter 上分享的一份声明中宣布了他的诊断结果，并在推文中说，他和夫人米歇尔都已经完全接种了中共病毒疫苗和加强针，目前米歇尔的中共病毒检验结果为阴性。
+**秘翻晚间新闻:**
+1.史上首次 欧洲理事会投票通过开除俄罗斯会籍
+2.民宅遭俄军轰炸 基辅实施35小时宵禁
+3.中共控美国删驻乌使馆删生物实验室文件 赵立坚谎言被当面揭穿
+4.中概股暴泻股价几乎归零 阿里腾讯多家网企裁员
 
-自去年美国向公众提供中共病毒疫苗以来，奥巴马一直在大声疾呼接种疫苗的重要性，但他在接种完三针疫苗后还是被确诊了。
+**时评内容:**
 
-新闻链接: [https://people.com/politics/barack-obama-tests-positive-for-covid-19-michelle-negative/](https://people.com/politics/barack-obama-tests-positive-for-covid-19-michelle-negative/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-32.jpg)
-
-编辑: 飞虹
-
-校对/发稿: 卡夫卡的甲壳虫
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+1. 金玉其外 败絮其中 如此中共还妄想统治宇宙
+2. 控美国使馆「删生物实验室文件」,　赵立坚谎言被当面揭穿
 
 
+喜欢记得点赞订阅分享喔！！
+Gettr链接：[**https://gettr.com/post/p10b211be53**](https://gettr.com/post/p10b211be53)
 
+发布:恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

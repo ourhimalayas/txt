@@ -15,128 +15,128 @@
 
 ---
 
-### [如果中共帮助俄罗斯，两党议员表示会支持制裁中共国](/content/gnews/1/README.md)
+### [面临俄罗斯威胁，北约将在东欧部署更多部队和导弹防御系统](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|波兰总理呼吁应冻结俄国海外资产重建乌克兰](/content/gnews/2/README.md)
+### [澳防长警告北京可能利用俄乌冲突吞并台湾](/content/gnews/2/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [有声|中共当局批准病毒快筛试剂盒上市](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [有声|美日举行2022年度首次大规模军演](/content/gnews/3/README.md)
+### [有声|法国取消疫苗通行证及强制口罩令](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [下周三大直播兄弟姐妹们见到的可能就是已经破产的七哥](/content/gnews/4/README.md)
+### [如果中共帮助俄罗斯，两党议员表示会支持制裁中共国](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声|波兰总理呼吁应冻结俄国海外资产重建乌克兰](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [有声|美日举行2022年度首次大规模军演](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [下周三大直播兄弟姐妹们见到的可能就是已经破产的七哥](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2022/03/16文贵先生盖特精要](/content/gnews/5/README.md)
+### [2022/03/16文贵先生盖特精要](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【转】截至3.16 俄乌战事汇总（1）](/content/gnews/6/README.md)
+### [【转】截至3.16 俄乌战事汇总（1）](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘密翻译组扛起社交媒体半壁江山，利益荣誉却要得最少](/content/gnews/7/README.md)
+### [秘密翻译组扛起社交媒体半壁江山，利益荣誉却要得最少](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [WTO成员国撤销俄罗斯&#8221;最惠国待遇&#8221;](/content/gnews/8/README.md)
+### [WTO成员国撤销俄罗斯&#8221;最惠国待遇&#8221;](/content/gnews/12/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [中澳关系在军事、政治、科学领域再创新低](/content/gnews/9/README.md)
+### [中澳关系在军事、政治、科学领域再创新低](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [习共赌美不敢同时打三场战争，攻台恰是其灭亡第三道大门](/content/gnews/10/README.md)
+### [习共赌美不敢同时打三场战争，攻台恰是其灭亡第三道大门](/content/gnews/14/README.md)
  ` 波士顿五月花农场`
 
-### [七哥说—第56期](/content/gnews/11/README.md)
+### [七哥说—第56期](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [世界政治军事经济大变局下无苗灭共者再加上无苗有币者](/content/gnews/12/README.md)
+### [世界政治军事经济大变局下无苗灭共者再加上无苗有币者](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [韩正乔装私返上海，共匪内绞烽烟再起](/content/gnews/13/README.md)
- ` 波士顿五月花农场`
-
-### [新中国联邦在推特上被广泛介绍](/content/gnews/14/README.md)
+### [新中国联邦在推特上被广泛介绍](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022/03/15 文贵先生直播精要](/content/gnews/15/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [加拿大环境和气候变化部为中国共产党提供资金](/content/gnews/16/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [俄罗斯因侵略行为导致经济大幅倒退](/content/gnews/17/README.md)
+### [俄罗斯因侵略行为导致经济大幅倒退](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [乌克兰超过280万难民正在逃离故土](/content/gnews/18/README.md)
+### [乌克兰超过280万难民正在逃离故土](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [警惕中共利用或破坏新中国联邦乌克兰救援](/content/gnews/19/README.md)
+### [警惕中共利用或破坏新中国联邦乌克兰救援](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [救援营地消息：救援无国界](/content/gnews/20/README.md)
+### [救援营地消息：救援无国界](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|多个国际教育机构暂停俄罗斯会员的资格及认证](/content/gnews/21/README.md)
+### [有声|多个国际教育机构暂停俄罗斯会员的资格及认证](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|泽连斯基称乌克兰绝不会被征服](/content/gnews/22/README.md)
+### [有声|泽连斯基称乌克兰绝不会被征服](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [2022年3月16日，全球中共病毒疫情情况汇总](/content/gnews/23/README.md)
+### [2022年3月16日，全球中共病毒疫情情况汇总](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|乌克兰准备谈判 但绝不投降](/content/gnews/24/README.md)
+### [有声|乌克兰准备谈判 但绝不投降](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [澳大利亚昆士兰州每日有超过千名儿童确诊CCP病毒](/content/gnews/25/README.md)
+### [澳大利亚昆士兰州每日有超过千名儿童确诊CCP病毒](/content/gnews/26/README.md)
  ` 澳喜特战旅Gnews`
 
-### [墙内网友翻墙钻洞回京被堵记](/content/gnews/26/README.md)
+### [墙内网友翻墙钻洞回京被堵记](/content/gnews/27/README.md)
  ` 澳喜特战旅Gnews`
 
-### [美国海关查扣李宁公司产品 因其涉嫌使用朝鲜劳工](/content/gnews/27/README.md)
+### [美国海关查扣李宁公司产品 因其涉嫌使用朝鲜劳工](/content/gnews/28/README.md)
  ` 日本东京方舟农场`
 
-### [3/16/2022 国际财经快讯：日本首相岸田发出新的支出信号以缓和燃料成本的打击；供应担忧平衡乌克兰谈判，石油升至100美元以上](/content/gnews/28/README.md)
+### [3/16/2022 国际财经快讯：日本首相岸田发出新的支出信号以缓和燃料成本的打击；供应担忧平衡乌克兰谈判，石油升至100美元以上](/content/gnews/29/README.md)
  ` 秘密翻译组金融团队`
 
-### [章家敦：中共国和俄罗斯才是正在研发生物武器的国家](/content/gnews/29/README.md)
+### [【秘翻时评】史上首次 欧洲理事会投票通过开除俄罗斯会籍](/content/gnews/30/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [章家敦：中共国和俄罗斯才是正在研发生物武器的国家](/content/gnews/31/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [美国前总统奥巴马确诊中共病毒](/content/gnews/30/README.md)
+### [美国前总统奥巴马确诊中共病毒](/content/gnews/32/README.md)
  ` GTV News Talk`
 
-### [俄罗斯即将掀起大规模债务违约潮](/content/gnews/31/README.md)
+### [俄罗斯即将掀起大规模债务违约潮](/content/gnews/33/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [普京抓捕情报机构高管](/content/gnews/32/README.md)
+### [普京抓捕情报机构高管](/content/gnews/34/README.md)
  ` GTV News Talk`
 
-### [福克斯摄像师在乌克兰战火中丧生 记者重伤](/content/gnews/33/README.md)
+### [福克斯摄像师在乌克兰战火中丧生 记者重伤](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共Y-8军机南海坠毁](/content/gnews/34/README.md)
+### [中共Y-8军机南海坠毁](/content/gnews/36/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [大直播后记：新中国联邦最精彩的三件事](/content/gnews/35/README.md)
+### [大直播后记：新中国联邦最精彩的三件事](/content/gnews/37/README.md)
  ` 雅典娜GNotes`
 
-### [美专家再指心肌炎与中共病毒疫苗的关联](/content/gnews/36/README.md)
+### [美专家再指心肌炎与中共病毒疫苗的关联](/content/gnews/38/README.md)
  ` NFSC News`
 
-### [惠誉：如果俄罗斯以卢布支付美元债券票息将构成主权违约](/content/gnews/37/README.md)
+### [惠誉：如果俄罗斯以卢布支付美元债券票息将构成主权违约](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共经济危机重重](/content/gnews/38/README.md)
+### [中共经济危机重重](/content/gnews/40/README.md)
  ` NFSC News`
 
-### [英国COVID感染再度上升 九成死亡发生在接种疫苗人群](/content/gnews/39/README.md)
+### [英国COVID感染再度上升 九成死亡发生在接种疫苗人群](/content/gnews/41/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [乌克兰人道救援国际合作会议，继续在新中国联邦大帐篷进行](/content/gnews/40/README.md)
- ` 波士顿五月花农场`
-
-### [三星暂停向俄罗斯供货](/content/gnews/41/README.md)
- ` 喜马拉雅农场新西兰站`
 
 ### [秘翻新闻｜拜登將访欧讨论乌克兰议题](/content/gnews/42/README.md)
  ` 秘密翻译组-即时新闻播报组`
