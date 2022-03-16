@@ -18,20 +18,20 @@
 ### [大直播后记：香港金融市场崩盘必将引发广东经济垮塌](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [日本将因乌克兰问题撤销俄罗斯的“最惠国待遇”地位](/content/gnews/2/README.md)
+### [美司法部指控中共监视和恐吓美国异见人士](/content/gnews/2/README.md)
+ ` 蓝莲花农场`
+
+### [日本将因乌克兰问题撤销俄罗斯的“最惠国待遇”地位](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [速报┃俄军占领医院 400名患者和居民被扣为人质](/content/gnews/3/README.md)
+### [速报┃俄军占领医院 400名患者和居民被扣为人质](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [抑制了中共国港口发展，威胁到全球的供应链](/content/gnews/4/README.md)
+### [抑制了中共国港口发展，威胁到全球的供应链](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵连线波兰Medyka边境救援前线战友](/content/gnews/5/README.md)
+### [文贵连线波兰Medyka边境救援前线战友](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [北约负责人告诉普京，军事联盟已经得到加强](/content/gnews/6/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [拜登称普京为“战犯”](/content/gnews/7/README.md)
  ` 温哥华圆成农场🇨🇦`
