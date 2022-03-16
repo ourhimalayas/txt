@@ -2,33 +2,43 @@
 ---
 
 
-## 美参议院决议调查普京政府的战争罪
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2172460/)
+## 清丰看守所六十几位被枪决的六四勇士以生命捍卫了尊严
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2172776/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/wara.jpg)
-3月15日周二，美国参议院批准了一项决议，来调查普京政府对乌克兰发动战争入侵的罪责。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8841.61%EF%BC%89%E6%B8%85%E4%B8%B0%E7%9C%8B%E5%AE%88%E6%89%80%E5%85%AD%E5%8D%81%E5%87%A0%E4%BD%8D%E8%A2%AB%E6%9E%AA%E5%86%B3%E7%9A%84%E5%85%AD%E5%9B%9B%E5%8B%87%E5%A3%AB%E4%BB%A5%E7%94%9F%E5%91%BD%E6%8D%8D%E5%8D%AB%E4%BA%86%E5%B0%8A%E4%B8%A5%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:3)
 
-参议员表示普京正在实施暴力、战争、危害人类罪，鼓励国际刑事法院对普京及其安理会和军事领导人进行调查。据悉上周美国官员已经在收集讯息，其中包括俄罗斯攻击乌克兰本土，不仅是核电站等军事目标，甚至是平民住所和妇产医院，因此死亡的平民不计其数。这已经不是简单的战争罪，已经侵犯人权和国际人道主义法，是人类大屠杀罪。
+**郭文贵先生：**这就是七哥走到今天，从清丰看守所看到共产党这么邪恶，但是记住，那六十多个勇士那是真真正正拿生命捍卫自己的尊严的勇士，你觉得中国只有那六十几个人吗？后来六四之后几万人被枪决、被秘密枪杀、被关押，你觉得会有少数吗？
 
-乌克兰总统泽连斯基表示俄罗斯必将为战争罪负责，他敦促俄罗斯士兵尽快投降。
+包括海外，你看我天天骂欺民贼伪类，但是你觉得海外有没有一些有良知的人？——是有的，而且不在少数，只是他没有伸手要钱搞骗捐。
 
-撰稿、发布：银河系农场—-骄子
+一定要记住，不要放弃对好人的希望，永远要相信好人多过坏人，而且永远要记住，坏人是有原因的，坏人是很多环境、社会经历造成，但是好人，我告诉你是更需要一个大家要相信一个更好的环境，那就是信仰、良知、勇气。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0313_Handflag17x24cm2.png)
+编辑整理：Jacques；
+
+字幕档制作：兵嫂；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
 欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
 Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
 盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
- 
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
