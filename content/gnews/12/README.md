@@ -2,33 +2,45 @@
 ---
 
 
-## 中共Y-8军机南海坠毁
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2175347/)
+## 有声|推荐墙诗：梦中的真实
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2175538/)
 
-##### 作者：加拿大温哥华扬帆农场 – 自由法兰西🇫🇷
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-20.jpg)
-&lt;[台湾英文新闻](https://www.taiwannews.com.tw/en/news/4468203)&gt;3月10日报道，台国家安全局上周四证实，一架中共Y-8军机3月初在南海坠毁，在全球聚焦俄乌冲突之际，中共利用搜救之机，趁机测试美国及南海主权声索国底线。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+伤痕累累强忍着
+让哭泣留在心底
+如果我哭出声
+在梦里被称作懦夫
+那么这辈子
+就休想再摆脱那耻辱的封印
+我的脑海里栽种着一支笔
+梦的营养液滋润着她
+长出俏丽叶子与茁壮根须
+抚慰蓝天安抚白云
+我的心田培育着一朵花
+飘零的花瓣停留在落寞的窗口
+问候每一片像蝴蝶翻飞的落叶
+请不要触摸那饱经风霜的花蕊
+我怕你沾上洗不掉的馨香一瓣
+请不要在我梦中的田野赶路
+不要喝到醉醺来敲我的心门
+我害怕失去那份恬淡的真实
+我害怕一醒过来就接着说谎
 
-越南记者6日首次发推披露消息，称中共空军3月1日飞越三亚西南海域时，与一架Y-8海上巡逻机失去联系，该机在越南海岸坠毁。中共很快展开救援，并用海上演习来遮掩。
+文字版原文：[推荐墙诗：梦中的真实](https://gnews.org/zh-hans/2165683/)
 
-尽管中共官方从未承认此事，但台湾方面注意到，自一架Y-8反潜机1日通过台湾防空识别区回去以后，一直到3月7号，再无任何Y-8反潜机出现在台湾西南空域，而过去中共几乎天天派Y-8反潜机扰台。
+音频处理：Fei797
+发稿：Fei797
 
-三月初正值美前国务卿蓬佩奥访台，以往美官员赴台，解放军会单日派出数十架军机扰台，但此次只是发布了临时南海军演讯息，耐人寻味。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-原文链接：[https://www.taiwannews.com.tw/en/news/4468203](https://www.taiwannews.com.tw/en/news/4468203)
-
-编辑/上传 – 大废墙
-素材/采编 – 自由法兰西🇫🇷
-
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

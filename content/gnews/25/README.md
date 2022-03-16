@@ -2,28 +2,35 @@
 ---
 
 
-## 三星暂停向俄罗斯供货
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2174759/)
+## 美中外长罗马会谈无果
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2174786/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3852635520-11.jpg)三星副会长韩宗熙说，三星将制定多方面的应对措施，以最大限度地降低俄乌局势对公司业务的影响。（彭博社）
-（早报讯）三星副会长韩宗熙周三（3月16日）在股东大会上表示，三星已经暂停向俄罗斯供货，正在密切关注对俄经济制裁情况。
+作者：纽约香草山农场 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月15日的大直播中，郭文贵先生透露了美中两国外长此前一天在意大利罗马举行的长达七个小时会谈的内幕消息。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-23.jpg)
+郭先生指出，美中双方因分歧严重，基本难以达成任何共识。其中，美国国家安全顾问沙利文明确表态称，如果中共继续为俄罗斯提供金融支持，并允诺俄方要求提供军用物资，美国将对中共实施与俄罗斯同样的制裁，并冻结、查封中共高官及显贵的海外资产。另外，中共之后若武力侵台，美国将与同盟国联手参战。
 
-韩联社报道，韩宗熙是在回答三星是否计划撤离俄罗斯的提问时作此表示。他强调，三星将制定多方面的应对措施，以最大限度地降低俄乌局势对公司业务的影响。
+郭先生表示，作为中共的传声筒，杨洁篪依然以所谓的战狼姿态威胁美国，并声称台湾是中共的内政，以及中俄两国是战略全天候伙伴关系。为此，俄罗斯出兵乌克兰是欧洲东扩及美国多年霸权的结果，中共会坚决予以支持，且中共早就做好了被美国制裁的准备。
 
-三星已为乌克兰提供了相当于600万美元（约818万新元）的援助，并将探讨额外的援助方案。
+但郭先生强调，杨洁篪的态度就如同当年在伊拉克的萨达姆政府一样：直至最后一刻，其外交部发言人依旧态度强硬的发表反美宣言。然而，这些狂妄言论最终都会随着中共政权的垮台而烟消云散。
 
-对于三星并购事宜，韩宗熙表示，由于内外不确定性因素尚存，目前难以确定推进并购的具体时间。他强调，只要有利于三星实现可持续发展并提升股东价值，就不为业务板块和规模设限。
+参考链接：[**2022年3月15日 文贵大直播：香港股市跌破两万点；擀面杖经济难以为继；中共全球拉仇恨行径；疫苗大灾难如何面对**](https://gettr.com/streaming/p1051m93814)
 
-他还表示，三星正在积极考虑并购人工智能、5G、汽车零部件等领域企业的方案，但由于并购事宜需要保密，无法提供具体信息。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-韩宗熙今年1月曾表示，三星正在探讨多个领域的并购事宜，预计近期将发布好消息。
+总编：Irene木木
+编辑：谐趣园
+审核：Ivy001
+校正/发稿：Fei797
 
-参考连结：[https://www.zaobao.com.sg/realtime/world/story20220316-1252821](https://www.zaobao.com.sg/realtime/world/story20220316-1252821)
-
-审核校对：Barry Jack
-上传排版：F
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

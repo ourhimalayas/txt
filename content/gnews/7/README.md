@@ -2,16 +2,11 @@
 ---
 
 
-## 20220315郭文贵大直播 ：广东经济的崩塌是共产党的噩梦开始
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2175504/)
+## 习近平现阶段最大的危机是健康问题
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2175610/)
 
-作者：东京樱花团小视频组
+台灣寶島農場
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

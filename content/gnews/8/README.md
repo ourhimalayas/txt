@@ -2,28 +2,26 @@
 ---
 
 
-## 普京抓捕情报机构高管
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2175499/)
+## 美国前总统奥巴马确诊中共病毒
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2175606/)
 
-作者: MOS 柳是多水土透
+作者: 纽约香草山教育部-Naughty(文行)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
-3月12日，国外媒体报道，俄联邦安全局(FSB)负责海外情报工作的长官——谢尔盖·贝塞达中将及其副手阿纳托利·博卢克，于11日被普京下令软禁在家。68岁的贝塞达之前任FSB五局局长，博卢克任行动情报部主任。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/methode_times_prod_web_bin_cdf6df92-a189-11ec-a33b-e5ebed659a52.jpeg)图片来源: 网络
-普京认为，战争进展不利，和俄方大量伤亡是由于情报有误。开战前他曾被告知，乌克兰仅会做象征性抵抗，人民普遍对现状不满，会配合侵略军推翻政府，乌军战力薄弱，遍布新纳粹成员，受到攻击后会很快投降。但当俄派出轻型部队迅速攻占关键设施后，却遭到猛烈反击和持续抵抗。乌克兰人更紧密地团结在了泽林斯基政府周围，仅首都就有10万人以上加入民兵组织，就连乌东部俄语区也存在民意反转。
+据美国媒体3月13日消息，美国前总统奥巴马当天表示，他的中共病毒筛检结果呈阳性。不过症状相当轻微，仅感觉喉咙发痒。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11648750_031322-wls-obama-covid-5p-vo-vid.jpeg)图片来源: 网络
+当天下午，奥巴马在 Facebook 和 Twitter 上分享的一份声明中宣布了他的诊断结果，并在推文中说，他和夫人米歇尔都已经完全接种了中共病毒疫苗和加强针，目前米歇尔的中共病毒检验结果为阴性。
 
-攻势受阻后，俄被迫放弃速战速决计划，转为消耗战，攻城战，导致了大量平民伤亡和不断升级的制裁。
+自去年美国向公众提供中共病毒疫苗以来，奥巴马一直在大声疾呼接种疫苗的重要性，但他在接种完三针疫苗后还是被确诊了。
 
-新闻链接:
+新闻链接: [https://people.com/politics/barack-obama-tests-positive-for-covid-19-michelle-negative/](https://people.com/politics/barack-obama-tests-positive-for-covid-19-michelle-negative/)
 
-- [https://www.thetimes.co.uk/article/kremlin-arrests-fsb-chiefs-in-fallout-from-ukraine-invasion-chaos-92w0829c5](https://www.thetimes.co.uk/article/kremlin-arrests-fsb-chiefs-in-fallout-from-ukraine-invasion-chaos-92w0829c5)
-- [https://www.dailymail.co.uk/news/article-10603045/Putin-places-head-FSBs-foreign-intelligence-branch-house-arrest.html](https://www.dailymail.co.uk/news/article-10603045/Putin-places-head-FSBs-foreign-intelligence-branch-house-arrest.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-32.jpg)
 
+编辑: 飞虹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-33.jpg)
-
-编辑/校对/发稿: 卡夫卡的甲壳虫
+校对/发稿: 卡夫卡的甲壳虫
 
 **更多资讯，更多关注**
 

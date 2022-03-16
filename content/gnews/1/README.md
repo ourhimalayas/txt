@@ -2,8 +2,8 @@
 ---
 
 
-## 习近平现阶段最大的危机是健康问题
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2175610/)
+## 中国房地产的泡沫化危机
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2175681/)
 
 台灣寶島農場
 
