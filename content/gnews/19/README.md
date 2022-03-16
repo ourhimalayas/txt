@@ -2,31 +2,31 @@
 ---
 
 
-## 墙内网友翻墙钻洞回京被堵记
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2176025/)
+## 警惕中共利用或破坏新中国联邦乌克兰救援
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2176228/)
 
-撰稿：菜园子112～尕虎
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3.15-D.jpg)
-网络图片
+作者：纽约香草山农场-文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据盖特平台消息显示，中共当局近日公然将新中国联邦和法治基金在乌克兰的人道救援行动据为己有，妄图抢夺前线团队的救援成果。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-16-上午11.55.28.png)
+为此，中共大肆窃取前线救援战友拍摄的图片和视频，甚至指派间谍混入米蒂卡救援现场偷拍新中国联邦义工战友的救援工作，以此混淆视听，并通过其大外宣进行虚假宣传，更伺机对新中国联邦和法治基金在乌克兰的救援行动进行破坏。
 
-3月14日晚上开车返京，路上健康宝弹窗，陷入了不隔离就消除不了弹窗、有弹窗就无法进京的死循环。于是在花了四五个小时尝试了几个大型检查站均无法通过后，无奈之下，决定抖个机灵。
+参考链接：[近日，中共竟然恬不知耻地对外谎称…](https://gettr.com/post/p107gg9f5cf)
 
-在河北廊坊找了一个小路的检查站，叫小甸屯检查站，弃车步行，想尝试徒步进京。在穿过一大片农田、小树林等复杂地形且踩了一脚泥，中间还摔了两跤后，发现了一条小河，在夜黑风高的情况下，通过我丰富的初中地理知识，结合地图判断这条河是从廊坊往北京流的，于是沿着河边往北京方向走。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-走到一半发现有一个接近三米的栅栏，我本着不抛弃不放弃的精神开始尝试翻墙。在缺少工具辅助且本人运动能力着实较差的情况下，又摔了两跤。我的脑海中迅速回忆了我看过的有关“越狱”的各类文艺作品，想到此地不宜久留，必须另寻他法。
+编辑：玫瑰圓
+总编：Irene木木
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-在发现栅栏下方土质较松后，我从树林子里捡了个木棍开始挖洞，想要以钻洞的方式进入北京。大概从凌晨三点半挖到四点半，每当我想要放弃，我就看看远方首都的灯火通明，顿时又充满了刨洞的激情。
-
-洞挖通后，在弄了一身泥后，我顺利的钻了过去，心想终于来到了伟大的首都,祖国的心脏。于是满怀希望的向前走，走了不到五十米，一盏探照灯打到了我的身上，差点没闪瞎我，接着扩音器里传来了警察叔叔的声音“站住，别动！”接下来的对话过程不再赘述，最杀人诛心的一句话是：“我们三点就看到你在那里忙活了，又是翻墙又是挖洞的，没好意思打扰你……”
-
-我原以为警察叔叔至少开个车送我回廊坊吧，结果警察叔叔让我怎么来的怎么回去，还把探照灯关了。我只能又摸黑去找挖的洞，钻洞回到了河北廊坊。社会主义铁拳还是厉害的，希望大家引以为戒“遵纪守法”！
-
-注：文章内容由墙内网友自述整理而成
-
-*审核：**Gradient Boost*
-
-*发布：Gradient Boost*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

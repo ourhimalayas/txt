@@ -2,33 +2,24 @@
 ---
 
 
-## 波兰友人盛赞中国的“瓦文萨”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2171674/)
+## 亚洲｜朝鲜发射新型弹道导弹惊动美国 分析：可能危害美国本土
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2174056/)
 
-作者：纽约磐石农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月15日，据郭文贵先生发布的盖特视频显示，新中国联邦和法治基金乌克兰前线直播团队在波兰梅蒂卡采访了救援营地中的两位波兰独立制片人。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-8.jpeg)
-在回传的视频资料中，记者Nicole向两位波兰友人传达了对她对波兰人们的热爱。在谈到波兰的历史时，Nicole表示，一位伟大的波兰领导人瓦文萨当时带领着所有波兰人民脱离了共产主义的暴政；而今，中国也有一个“瓦文萨，就是新中国联邦的创始人郭文贵先生，他正在带领中国人民推翻中国共产党的残暴独裁统治。
+**撰文/ 港台前線｜發佈日期/ 16/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-1-7.png)**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-对此，这两位波兰独立制片人先是祝愿中国的瓦文萨——郭文贵先生——带领中国人民的灭共运动可以成功；其次，他们也强调，热爱自由的波兰人民将与中国人民坚定地站在一起。
+韩国武装部队参谋联席会表示，3月16日上午9时许，朝鲜在平壤附近的顺安机场发射了一个飞行体，但随后立即失败。
 
-参考链接：[【乌克兰救援】03/14/22 新中国联邦义工妮可告诉两位波兰独立制片人郭文贵先生正在带领中国人民推翻共产党的统治，让中国人民摆脱共产主义。](https://www.gettr.com/post/p104rsifbe0)
+日本首相岸田文雄于16日上午对媒体称，有掌握此消息，且正在搜集其他相关资讯。内阁官房长官松野博则在新闻发布会上表示“目前尚未确认弹道导弹的飞行路径”。面对朝鲜的军事动态，日本政府明确将继续与美、韩密切合作。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+韓國國防相關人士則告訴記者，彈道導彈並未升空，具體的爆炸情形則需要分析；美國方面，美國印太司令部發表聲明譴責朝鮮發射彈道導彈的行為。
 
-总编：Irene木木
-编辑：Ivy001   
-审核：Irene木木
-校正/发稿：谐趣园
+对于本次朝鲜发射弹道导弹失败一事，美日韩三国均发布分析指称，朝鲜在弹道导弹上运用了新技术，朝鲜可能已经掌握足以危害美国本土安全的弹道导弹。而日本防卫省则确认，该导弹为2020年10月阅兵典礼公布的新型弹道导弹。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月，金正恩恢复核试验及弹道导弹试射，于2月27日和3月5日进行的弹道导弹试射，朝鲜中央通讯社报导称“是一次侦察卫星发射试验”。朝鲜积极研发新型弹道导弹技术，美国财政部于本月11日宣布将对朝鲜实施制裁，防止朝鲜获得弹道导弹开发所需的材料及技术。
+
+來源｜[經濟新聞](https://www.nikkei.com/article/DGXZQOGM1617S0W2A310C2000000/?n_cid=BMSR2P001_202203161019)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

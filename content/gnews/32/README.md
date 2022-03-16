@@ -2,35 +2,43 @@
 ---
 
 
-## 美专家再指心肌炎与中共病毒疫苗的关联
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2175229/)
+## 普京抓捕情报机构高管
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2175499/)
 
-作者：纽约磐石农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月14日，据盖特消息显示，美国心脏病专家彼得-麦卡洛教授日前在接受采访时指出，大量的证据表明，心肌炎与接种中共病毒疫苗有关。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-26.jpg)
-麦卡洛教授表示，美国正在推行的强制疫苗令是一个非常严重的问题。尤其自2021年中旬起，未成年人开始接种中共病毒疫苗，而在其后6个月中，超过两百篇不同类型的、关于心肌炎以及人体传导系统被破坏而需要放置起搏器的医学论文被陆续发表。
+作者: MOS 柳是多水土透
 
-此外，麦卡洛教授也列举了众多因接种中共病毒疫苗而导致严重不良反应的案例：一名女孩在接种疫苗后被确诊患有心肌炎，这一病症随即引发了后续的移植感染，最终造成患者死亡。同时，还有很多优秀的运动员因接种中共病毒疫苗及其加强针而导致运动能力丧失，甚至猝死的病例。
 
-对此，麦卡洛教授认为，医学界虽然尚不能完全掌握中共病毒疫苗的内幕，但政府以某种方式掩盖疫苗对儿童和成人所造成的伤害已经成为科学界的一部分共识。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
+3月12日，国外媒体报道，俄联邦安全局(FSB)负责海外情报工作的长官——谢尔盖·贝塞达中将及其副手阿纳托利·博卢克，于11日被普京下令软禁在家。68岁的贝塞达之前任FSB五局局长，博卢克任行动情报部主任。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/methode_times_prod_web_bin_cdf6df92-a189-11ec-a33b-e5ebed659a52.jpeg)图片来源: 网络
+普京认为，战争进展不利，和俄方大量伤亡是由于情报有误。开战前他曾被告知，乌克兰仅会做象征性抵抗，人民普遍对现状不满，会配合侵略军推翻政府，乌军战力薄弱，遍布新纳粹成员，受到攻击后会很快投降。但当俄派出轻型部队迅速攻占关键设施后，却遭到猛烈反击和持续抵抗。乌克兰人更紧密地团结在了泽林斯基政府周围，仅首都就有10万人以上加入民兵组织，就连乌东部俄语区也存在民意反转。
 
-参考链接：[我們不清楚這一切的背後到底是什麼，他們會以某種方式，來掩蓋所有這些正在受傷的兒童和一切，說這從未發生過。是誰在什麼時候接種了疫苗，什麼時候得了心肌炎，人們遲早會把兩者聯繫起來，目前貌似是相關的](https://www.gettr.com/post/pzv5mp745a)
+攻势受阻后，俄被迫放弃速战速决计划，转为消耗战，攻城战，导致了大量平民伤亡和不断升级的制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+新闻链接:
 
-总编：Irene木木
-编辑：宁文静
-审核：Irene木木
-校正/发稿：Fei797
+- [https://www.thetimes.co.uk/article/kremlin-arrests-fsb-chiefs-in-fallout-from-ukraine-invasion-chaos-92w0829c5](https://www.thetimes.co.uk/article/kremlin-arrests-fsb-chiefs-in-fallout-from-ukraine-invasion-chaos-92w0829c5)
+- [https://www.dailymail.co.uk/news/article-10603045/Putin-places-head-FSBs-foreign-intelligence-branch-house-arrest.html](https://www.dailymail.co.uk/news/article-10603045/Putin-places-head-FSBs-foreign-intelligence-branch-house-arrest.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-33.jpg)
+
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

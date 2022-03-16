@@ -2,33 +2,41 @@
 ---
 
 
-## 中共Y-8军机南海坠毁
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2175347/)
+## 美国前总统奥巴马确诊中共病毒
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2175606/)
 
-##### 作者：加拿大温哥华扬帆农场 – 自由法兰西🇫🇷
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-20.jpg)
-&lt;[台湾英文新闻](https://www.taiwannews.com.tw/en/news/4468203)&gt;3月10日报道，台国家安全局上周四证实，一架中共Y-8军机3月初在南海坠毁，在全球聚焦俄乌冲突之际，中共利用搜救之机，趁机测试美国及南海主权声索国底线。
+作者: 纽约香草山教育部-Naughty(文行)
 
-越南记者6日首次发推披露消息，称中共空军3月1日飞越三亚西南海域时，与一架Y-8海上巡逻机失去联系，该机在越南海岸坠毁。中共很快展开救援，并用海上演习来遮掩。
 
-尽管中共官方从未承认此事，但台湾方面注意到，自一架Y-8反潜机1日通过台湾防空识别区回去以后，一直到3月7号，再无任何Y-8反潜机出现在台湾西南空域，而过去中共几乎天天派Y-8反潜机扰台。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
+据美国媒体3月13日消息，美国前总统奥巴马当天表示，他的中共病毒筛检结果呈阳性。不过症状相当轻微，仅感觉喉咙发痒。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11648750_031322-wls-obama-covid-5p-vo-vid.jpeg)图片来源: 网络
+当天下午，奥巴马在 Facebook 和 Twitter 上分享的一份声明中宣布了他的诊断结果，并在推文中说，他和夫人米歇尔都已经完全接种了中共病毒疫苗和加强针，目前米歇尔的中共病毒检验结果为阴性。
 
-三月初正值美前国务卿蓬佩奥访台，以往美官员赴台，解放军会单日派出数十架军机扰台，但此次只是发布了临时南海军演讯息，耐人寻味。
+自去年美国向公众提供中共病毒疫苗以来，奥巴马一直在大声疾呼接种疫苗的重要性，但他在接种完三针疫苗后还是被确诊了。
 
-原文链接：[https://www.taiwannews.com.tw/en/news/4468203](https://www.taiwannews.com.tw/en/news/4468203)
+新闻链接: [https://people.com/politics/barack-obama-tests-positive-for-covid-19-michelle-negative/](https://people.com/politics/barack-obama-tests-positive-for-covid-19-michelle-negative/)
 
-编辑/上传 – 大废墙
-素材/采编 – 自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-32.jpg)
 
-* * *
+编辑: 飞虹
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+校对/发稿: 卡夫卡的甲壳虫
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

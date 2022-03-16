@@ -2,37 +2,31 @@
 ---
 
 
-## 救援前线日本友人力挺新中国联邦灭共
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2171665/)
+## 有声｜中共早已“金玉其外，败絮其中”
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2173008/)
 
-作者：纽约磐石农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月15日，据郭文贵先生在盖特平台上发布的视频显示，新中国联邦和法治基金乌克兰前线的救援队员Nicole在波兰梅蒂卡营地采访一位日本电视台的记者时，这位日本友人表示，新中国联邦一定能够消灭中共，并将和平带到世界各地。
+**By:秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-11.jpeg)
+**2022-03-16**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7777777uuu.jpg)
+在3月15日的文贵大直播中，郭文贵先生惊爆中共从政治高层到经济基础不为世人所知的一些内幕。
 
-这位日本友人提到，日本媒体眼下正在报道乌俄边境的情况，而梅蒂卡救援营地中发生的一切让他们一行人非常感动。他认为，新中国联邦和法治基金的救援行动产生了奇迹。
+郭先生透露，近期，中共常委韩正、前常委曾庆红等表现出一些怪异的行动。
 
-同时，这位日本友人也用日语对支持新中国联邦的日本民众强调，人民需要和平，而如果全世界的民众共同努力，世界将会变得更加美好。
+不被允许出京的韩正以看目前为名，实际是为了政治目的，经过乔装打扮后秘密坐火车出京回上海，并告知郭先生一位朋友“啥也别问，快跑”！
 
-此外，Nicole战友也向这位日本友人介绍了新中国联邦的创始人郭文贵先生以及无数追随郭先生一同推翻邪恶中共的战友。对此，这位日本友人支持称，新中国联邦一定能够成功。
+近来，曾庆红也开始讲政治了，这表明他已经受到了巨大的压力。
 
-参考链接：[https://www.gettr.com/post/p103wyl5514](https://www.gettr.com/post/p103wyl5514)
+此外，郭先生还爆料，自建国以来，北京财政第一次面临发不出工资的窘困，要求中央给钱，沿海也出现了随时发不出工资的情况。运往新疆集中营的粮食，被削减了一半， 中共国的粮食将面临重大危机。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+然而，在这样内虚困顿面前，中共竟然还妄想攻打台湾。文贵先生正告中共：敢打台湾，必将自取灭亡。
 
-总编：Irene木木
-编辑：小鹿妞妞   
-审核：Irene木木
-校正/发稿：谐趣园
+（秘翻原创组回响撰写报道）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

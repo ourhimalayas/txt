@@ -2,40 +2,35 @@
 ---
 
 
-## 有声|乌克兰准备谈判 但绝不投降
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2176081/)
+## 俄罗斯因侵略行为导致经济大幅倒退
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2176230/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-乌克兰外交部长库列巴3月12日表示，乌克兰已对谈判做好准备，以结束两周前俄罗斯发动的入侵战争。他说，乌克兰不会投降，也不会接受最后通牒。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-15-上午2.39.00-2.png)
-库列巴在无党派、非营利组织“复兴民主倡议”召开的视频会议上表示，如果乌克兰拥有战斗机和更多攻击型飞机来摧毁俄军的大型军事纵队，就可以拯救更多百姓的生命。
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月15日，据相关媒体报道，俄罗斯普京政府因肆意发动侵略战争所引发的国际制裁，可能将导致俄罗斯经济至少倒退30年，回到接近前苏联时代的水平。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-16-上午11.55.43.png)
+报道提及，目前，西方已经将俄罗斯从SWIFT系统中剔除，并冻结了俄罗斯中央银行的外汇储备。同时，美国和英国已经停止进口来自俄罗斯的石油和天然气。此外，美国还对本国的高科技设备和奢侈品实施了出口管制，且多国政府正在禁止俄罗斯船只进入当地港口——这一系列制裁措施正在让俄罗斯的金融和货币体系加速崩溃。为此，普京政府被迫关闭了该国的股市，并强制使用人为手段支撑卢布价格。
 
-库列巴提及南部港口城市马立波时表示，虽然马立波遭到围困，但仍在乌克兰的控制之下。
+据统计，全球当前已有超过300个标志性品牌主动缩减、停止，甚至退出俄罗斯市场。另一方面，投资人和政策专家也指出，美国公司在未来5年内基本不可能恢复在俄罗斯的商业运营。更甚者，西方恐将制裁普京政府视为长期战略举措，这一时间可能会长达10到20年。
 
-自俄罗斯2月24日入侵乌克兰后，迄今为止，已有至少250万人被沦为难民。西方国家迅速采取行动，要将俄罗斯孤立于世界贸易和全球金融体系之外。但库列巴表示，尽管有这些制裁，乌克兰仍然需要更多的军事物资，以及需要西方国家采取更多的措施，来打击俄罗斯的经济。
+对此，有评论人士表示，俄罗斯经过40年努力所达到的市场经济繁荣或将在一夕之间化为泡影。
 
+参考链接：[普廷侵略烏克蘭代價慘 俄國經濟恐倒退30年](https://news.ltn.com.tw/news/world/breakingnews/3860305)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-文字版原文：[乌克兰准备谈判 但绝不投降](https://gnews.org/zh-hans/2167373/)
+编辑：Ivy001
+总编：Irene木木
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

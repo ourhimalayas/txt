@@ -2,29 +2,35 @@
 ---
 
 
-## 澳大利亚昆士兰州每日有超过千名儿童确诊CCP病毒
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2176039/)
+## 乌克兰超过280万难民正在逃离故土
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2176229/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3.16-E.jpg)网络图片
-澳大利亚昆士兰州的卫生数据显示，自该州 Omicron 疫情大流行高峰以来，每天有超过 1000 名儿童被诊断出感染CCP病毒，而且这一数字还在出现上升趋势。
+作者：纽约香草山农场-Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+截止当地时间3月14日，据联合国公布的最新数据显示，自 2 月 24 日俄罗斯入侵乌克兰以来，从乌克兰逃离的难民人数已经攀升至280 余万，而这也成为二战后欧洲增长最快的一次难民危机。 但欧盟官员则预计，这一数字最终可能超过五百万。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-16-上午11.55.36.png)
+据悉，除却已经撤离乌克兰的民众外，仍滞留在当地的居民也有数百万人流离失所：他们大多数停留在较为平静的西部地区，包括边境城市利沃夫。然而，此前一天，俄罗斯刚刚袭击了一个地处波兰边境附近的乌克兰基地，造成35人遇难，另有数千人不得不再度离开乌克兰西部，进入东欧地区。
 
-该地区学生的CCP病毒感染病例在 2 月 23 日达到峰值，为2223 例，该时间点大约在返校的额两周之后。然而直到现在，儿童的感染病例数仍然处于相对高位——周一，1852 名儿童的病毒检测呈阳性。
+据有关报道提及，目前，乌克兰包括首都基辅在内的许多主要城市的交战仍在继续，但乌克兰政府仍然在尝试通过十条人道主义走廊疏散平民。对此，波兰总理莫拉维茨基在早先的新闻发布会上表示，除了乌克兰境内的侵略战争外，俄罗斯在波兰边境附近的袭击表明，莫斯科当局希望在平民中制造恐慌。
 
-传染病专家保罗格里芬博士警告说，真实数字可能更高：“鉴于我们对快速抗原测试的依赖，准确跟踪是一项挑战……我认为很明显，目前学校的病例有所增加。”
+当下，波兰等前线国家接收了超过一半以上的乌克兰难民，而其他边境国家包括斯洛伐克、罗马尼亚、匈牙利和摩尔多瓦也接收了绝大多数的战争逃难者。
 
-部分专家将惊人的感染现况归咎于该地区的儿童疫苗接种率，然而事实上儿童疫苗接种早已在该州实施，并且现有证据已经表明CCP病毒疫苗对于防止传染毫无效力。在昆士兰州的 5-11 岁儿童中，42.99% 的人接种了 一剂CCP病毒疫苗，全国平均水平则为 51.27%。
+参考链接：[Refugee exodus reaches 2.8 million as Russia strikes hit west Ukraine](https://www.reuters.com/world/europe/russian-attacks-western-ukraine-prompt-more-people-flee-2022-03-14/)
 
-在 12 月至 2 月的 Omicron 浪潮中，总共有1136 名儿童因CCP病毒感染而住院，其中 23 人需要重症监护。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-在过去的 24 小时中，昆士兰州的 COVID-19 病例略有增加，记录了 6136 例新病例。昆士兰卫生局已确认过去 24 小时内有 3 人因CCP病毒而死亡，低于昨天报告的 10 人。昆士兰州目前有近 30,000 人感染了该病毒。
+编辑：飞虹
+总编：Irene木木
+审核：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-*发布：Gradient Boost*
-
-新闻参考链接：
-
-[9 News](https://www.9news.com.au/national/coronavirus-update-australia-nsw-covid19-cases-almost-triple-with-reporting-issue-victoria-queensland-wa/9a7b45b4-9e0b-4827-bfd5-8914392658a2)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
