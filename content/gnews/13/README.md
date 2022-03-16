@@ -2,38 +2,32 @@
 ---
 
 
-## 泽连斯基向遇害美国记者家属发送感人信
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176864/)
+## 拜登称普京是战争罪犯并承诺向乌克兰输送更多武器
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2176936/)
 
-作者：新西兰伊甸农场-玫瑰
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒15日报道，美国记者布伦特·雷诺在乌克兰首都附近报道难民故事时遇难。 50岁的雷诺是一位著名的电影制片人，他经常前往世界上一些最黑暗和最危险的角落拍摄纪录片。3月13日，在俄罗斯军队于基辅附近向他的车辆开火后遇难身亡。据悉，他正在为一份关于难民的报告收集材料。
+翻译：冰糖葫芦喵
 
-乌克兰总统泽连斯基3月15日在网上发表了一封写给雷诺家人的信，表达他的“衷心哀悼”。他称雷诺是一位“才华横溢、勇敢的记者”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-59.jpg)
-泽连斯基在信中说，“布伦特在记录数百万乌克兰人的人类悲剧、破坏和苦难时失去了生命。他带着所有的勇气和决心，前往最危险的战区，拍摄了侵略者对我们国家施加的前所未有的残酷和邪恶。”
+编辑与校对：冰糖葫芦喵
 
-“乌克兰人民正在与俄罗斯政权作斗争，以保卫他们的家园和世界民主，他们与你们一起哀悼。”“我们感谢布伦特的专业精神和对同情、道德和正义价值观的承诺。”
+《路透华》盛顿3月16日报道，因俄罗斯入侵乌克兰，**美国总统拜登周三表示，俄罗斯总统普京是个战争罪犯，并宣布向乌克兰追加8亿美元的安全援助，包括击落俄罗斯飞机和坦克的武器。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7O74BJS7GFNUDDHXGYL64UHDCU-e1647466845185.jpg)美国总统拜登在国务卿布林肯和国防部副部长希克斯的陪同下谈及美国政府的援助（路透社）
+据报道，拜登在当天接受记者采访时说：“哦，我认为他是一名战犯。”这是拜登首次公开用”战争罪犯“给普京贴标签。
 
-“愿布伦特的生命、服务和牺牲激励全世界几代人站出来为光明力量对抗黑暗力量而战。”
+白宫新闻发言人莎琪后来说，拜登的话是发自内心的。她指出，**有一个单独的法律程序来确定普京是否违反了国际法，是否犯下了战争罪，国务院目前正在进行这个程序。**
 
-参考链接：[The people of Ukraine are mourning with you’: Zelenskyy sends moving letter to family of slain US journalist](https://www.stuff.co.nz/world/europe/300541835/the-people-of-ukraine-are-mourning-with-you-zelenskyy-sends-moving-letter-to-family-of-slain-us-journalist)
+周三早些时候，拜登说，**美国已经向乌克兰提供10亿美元的安全援助，**并**回应了乌克兰总统泽伦斯基向美国国会发出的紧急呼吁，要求提供军事援助，**以抵御俄罗斯的入侵。他还说，美国**将继续向乌克兰提供武器**，帮助其作战和自卫，**提供人道主义救援，并通过额外的财政援助支持乌克兰经济。**
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+拜登说:“**这项新计划**本身就将为乌克兰提**供前所未有的援助，其中包括800套防空系统，**以阻止俄罗斯飞机和直升机对乌克兰人的攻击。”
 
-总编：天滅中共
-编辑/审核:飞虹
-校对/发稿：Hetangyuese
+拜登说，应泽伦斯基的要求，**华盛顿将帮助乌克兰获得更多的远程导弹防空系统。它还将提供9000套反装甲系统、无人机和7000件轻武器，**如机关枪、霰弹枪和榴弹发射器，帮助乌克兰平民为保卫国家而战。
 
-**更多资讯，更多关注**
+据报道，**新的资金将来自拜登签署成为法律的支出法案，其中包括向乌克兰提供136亿美元的新援助。**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+新闻来源链接：
+
+[Biden calls Putin a ‘war criminal,’ sending more weapons to Ukraine | Reuters](https://www.reuters.com/world/biden-announce-new-security-assistance-ukraine-after-signing-massive-spending-2022-03-16/)
+
+
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 11:01 PM (UTC)`
+
+2022.03.16 NFSC News   NFSC Volunteers overcome difficulties and stick to their duty； CCP and Russia’s plot on countering and diverting attention of the West
+![img](https://media.gettr.com/group41/origin/2022/02/19/23/808a60d4-ecaa-654c-ec2c-280a21ab4033/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/16/2022 10:04 PM (UTC)`
 
 3/15/2022 Miles Guo: The CCP is sparing no effort to defame the New Federal State of China and our rescue operation in Ukraine by spreading rumors in Africa and sending CCP-backed Bloomberg to interview us as a setup, but Nicole and our fellow fighters did an excellent job with smart responses at the interview; the NFSC people on the frontline demonstrate a new image of the new Chinese that earns respect from other Asian countries<br/><br/>3/15/2022  文贵直播:  中共不遗余力地企图诋毁新中国联邦在乌克兰的救援行动，他们不但在非洲散布谣言，还在乌克兰救援前线通过布隆伯格的采访给新中国联邦挖坑，但Nicole和前线战友们表现绝佳机智应对；新中国联邦人在前线展现了令其他亚洲国家尊重的新中国人的形象<br/>
@@ -150,13 +157,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 【Ukraine Rescue】 03/16/22 VOA journalist: I think any Chinese has to take NFSC’s people as an idol and example to follow in the future. We need to push out the bad CCP, not only for China, but also for everyone. The CCP puts the hard-earned money squeezed out of the Chinese into their own pockets.<br/><br/>【乌克兰救援】 03/16/22 美国之音记者：任何一个中国人都要把新中国联邦人当作偶像和榜样去学习，我们需要推翻这个邪恶的中共，不仅仅是为了中国人，也是为了世界上每个人。中共把压榨中国人的血汗钱放进自己的腰包。<br/>
 ![img](https://media.gettr.com/group38/getter/2022/03/16/10/a6ab2387-d6d6-51f9-5f8a-1e9a7e352444/out.jpg)
-
----
-
-`@miles 3/16/2022 9:17 AM (UTC)`
-
-【Ukraine Rescue】 03/16/22 Nicole was interviewed by an independent French reporter and explained to him that we're the NFSC people taking down the Chinese Communist Party because the Chinese Communist Party is the root cause of all the global disasters and humanitarian crisis, so taking down the Chinese Communist Party is the only way to save humanity<br/><br/>【乌克兰救援】 03/16/22 妮可接受法国独立记者的采访，向他介绍我们是消灭邪恶中共的新中国联邦人，中共是所有全球灾难和人道主义危机的根源，只有消灭中共才能拯救全人类<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group19/getter/2022/03/16/09/cc6e526f-dd91-a4de-f66b-5e0d69b8124c/out.jpg)
 
 ---
 

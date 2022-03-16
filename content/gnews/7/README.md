@@ -2,51 +2,44 @@
 ---
 
 
-## 欧洲药品管理局列出了杨森和摩德纳疫苗的新副作用
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2176939/)
+## 拜登称普京为“战犯”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2177056/)
 
-编译：七龙珠
+**编译: 真北007**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1822-edited.png)diariosur.es
+来自英国卫报（THE GUARDIAN）3月16日的新闻报道：
 
-在第一种情况下，摩德纳针剂的最新副作用被认为“未知频率”的发生，第二种情况尽管无法证明这种联系，但由于它是一种严重的疾病，所以发出了警告。
+3月16日下午，美国总统拜登在白宫回答记者提问时说，他认为普京是战犯。
+![Biden calls Russia's Putin a 'war criminal', Kremlin says comment  'unforgivable' | Al Arabiya English](https://vid.alarabiya.net/images/2021/12/09/cb8c8115-7156-4c22-a01a-70470f03b70e/cb8c8115-7156-4c22-a01a-70470f03b70e_16x9_1200x676.jpg?width=1138)图片来源：[Alarabiya News/AFP](https://english.alarabiya.net/News/world/2022/03/17/Biden-calls-Russia-s-Putin-a-war-criminal-Kremlin-says-comment-unforgivable-)
+随后白宫新闻秘书珍·普萨基（Jen Psaki）在简报会上向记者证实，拜登认为俄罗斯总统弗拉基米尔·普京是“战犯”。
 
-在其持续的监测中，欧洲药品管理局（EMA）药品安全委员会（PRAC）已将杨森和摩德纳Moderna的Covid-19疫苗的新副作用列入其中。
+她的记者招待会是在拜登与一名记者在早前的对话之后立即进行，当时总统被问及他是否准备好称普京为入侵乌克兰的战犯。
 
-具体来说，就杨森的疫苗而言，PRAC建议将有皮肤表现的小血管炎（皮肤血管的炎症，可能导致皮疹、皮肤表面下的红色点状或扁平斑点和瘀伤）作为一种可能的“未知频率”的副作用加入。
+在最初回答“不”之后，拜登转身说：“哦，我认为他是战犯。”
 
-小血管炎可由病毒或细菌感染引起，也可由药物和疫苗引起。
+普萨基说，拜登的言论“不言自明”。
 
-在适当的支持性护理下，疾病的表现通常会随着时间的推移而自动缓解。
+“他正在回答一个被问到的直接问题，并回应他在电视上看到的内容。 我们都看到了一个外国独裁者在一个的国家进行的野蛮和可怕行径， 包括威胁和夺走平民生命、涉及医院、怀孕妇女、记者和其他人。”
 
-PRAC审查了全世界总共21个报告的病例，包括10个符合单器官皮肤血管炎既定定义的病例。对于这10个案例中的大多数，没有发现其他明显的解释；其中8个案例发生在注射疫苗后不久。
+“他是发自内心的，”普萨基补充道。
 
-在西班牙，已经接种了1,981,492剂这种疫苗，其中333,500剂是在安达卢西亚地区接种的。
+普萨基被问及是否有任何改变促使拜登做出这样的评估，以及为什么他在迄今为止的三周战争中拒绝使用这个词。
 
-严重疾病警告
+她说：“他的回答是基于他在电视上看到的情况，那是一个野蛮的独裁者入侵他国和采取各种野蛮行动。”并且，她承认国务院有一个更正式的程序来正式指定外国领导人 作为战犯：“有一个正在进行的法律程序，国务院对此进行监督。”
 
-对于摩德纳Moderna疫苗，PRAC建议在产品信息中加入关于爆发毛细血管渗漏综合症（CFS）的警告，这是一种严重的、非常罕见的疾病，会导致液体从小血管（毛细血管）渗漏，导致手臂和腿部迅速肿胀、体重突然增加、感觉晕眩、血液变稠、白蛋白（一种重要的血液蛋白）水平低下和低血压。
+对于拜登的美国对乌克兰的“安全援助”一揽子计划的评论：“以确保每个人都充分了解援助的全部内容”， 普萨基解释道：“总统今天宣布的是向乌克兰额外提供 8 亿美元的安全系统，仅在过去一周内，美国的安全援助总额就达到了 10 亿美元，自拜登政府上台以来已超过 20 亿美元。这种援助将采取从国防部直接向乌克兰军队转移装备的形式，以帮助他们保卫自己的国家免受俄罗斯肆意和无理的入侵。”
 
-毛细血管渗漏综合征常与病毒感染、某些血癌、炎症性疾病和某些治疗有关。
+原文链接：[The Guardian: Joe Biden calls Vladimir Putin a ‘war criminal’ – as it happened.](https://www.theguardian.com/us-news/live/2022/mar/16/zelenskiy-congress-address-ukraine-russia-invasion-joe-biden-live-updates?filterKeyEvents=false&amp;page=with:block-623235d78f081efd3276d3da#block-623235d78f081efd3276d3da)
 
-PRAC评估了所有可用的数据以及Eudravigilance数据库中报告的注射Moderna和辉瑞mRNA疫苗后的所有病例。
+**编辑：MQ**
 
-委员会的结论是，没有足够的证据来确定这两种疫苗与发生新的CFS病例之间的因果关系。然而，PRAC建议在摩德纳产品信息中加入一个警告，以使医护人员和患者意识到疾病发作的潜在风险。
+**发布：MQ**
 
-委员会建议发出这一警告，因为一些CFS发作的案例表明与Moderna疫苗有关，总共审查了55个报告的CFS病例，其中11个使用Moderna，44个使用Pfizer。
+20210316
 
-应该记住，在西班牙已经使用了16,760,191(92.2%)的摩德纳剂量，在安达卢西亚已经分发了3,319,540剂。
-
-来源：【diariosur.es】[Advierten de un nuevo efecto secundario de la vacuna de Moderna ya detectado con Janssen y AstraZeneca](https://www.diariosur.es/sociedad/salud/nuevos-efectos-secundarios-vacunas-moderna-janssen-20220314130812-nt.html)
-
-* * *
-
-审核：Aries的星
-校对：小东
-发布：花羽
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
