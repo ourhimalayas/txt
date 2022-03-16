@@ -2,31 +2,38 @@
 ---
 
 
-## 樱花FM|中日财经爆：时隔一天 俄央行将美金取现额砍半
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2172979/)
+## 埃隆•马斯克推特发帖对普京发起挑战
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2172981/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/V8ac0L4_EOooW4OTMt-Zclx33yevrELtaw8ceJlMDlqATO5rqleYoPLZQS01nwrhXakelP4Z2-zWFnUnFCv_egs_xN3z-Q7BIrasneMjTfKvligbefpb-PliWBuLOOHhK-SvqU2t)
-俄罗斯央行周四（3月9日）宣布，未来六个月限制俄罗斯企业取得外币限制在10000美金以内。但是时隔一天，俄央行3月10日就把限额大砍50%，限制在最多5000美元。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-俄罗斯因入侵乌克兰而遭制裁后，这是当局保存硬通货的最新措施。
+整理：等风来
+编辑：围剿维尼熊
 
-3月10日至9月10日的限制期间，俄罗斯当地公司和企业人士最多只能取得5000美元等值的美元、日圆、英镑和欧元现金，而且只能用于支付海外公务旅行。
-
-俄罗斯央行网站声明称，在特殊情况下，经与监管机构协商，5000美元的上限可以提高。企业和个体商业人士取得其他外币现金则无上限。
-
-俄罗斯央行在3月9日宣布，在9月9日之前的半年时间内，拥有外汇账户的公民提取资金不得超过1万美元，并表示银行不得出售硬通货。
-
-文字版原文：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/DE49F33F-692D-47CD-9740-61107DA46B0B.jpg)图片来源：推特
 
 
-| [中日财经爆┃时隔一天 俄央行将美金取现额砍半](https://gnews.org/zh-hans/2142719/) |   |
-| --- | --- |
+根据澳大利亚人报中文网报道，法新社14日电，美国太空探索科技公司（SpaceX）和特斯拉汽车公司（Tesla）创始人埃隆·马斯克（Elon Musk）在推特上向俄罗斯总统普京（Vladimir Putin）下战帖，赌注是乌克兰的命运。
 
+马斯克14日在推特（Twitter）发文：“我特此向普京提出挑战，来场一对一决斗。赌注是乌克兰。”并直接标记普京的官方英文推特帐号说：“你接受这场决斗吗？”马斯克想看看普京是否有勇气与他单挑，而不是透过他国家的军队。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
+马斯克的这条推文下有一人留言说，马斯克下战帖前可能没有深思熟虑。但马斯克说，他绝对是认真的。他还说，如果普京可以那么轻易地羞辱西方，那么他要接受挑战，但他不会。
+
+马斯克此前在乌克兰启动星链（Starlink）网络服务，并运送设备到乌克兰，让遭受俄军攻击的地区连上网路。
+
+克里姆林宫尚未对马斯克的推文发表回应，但车臣领袖卡德罗夫（Ramzan Kadyrov）在Telegram讽刺说：“马斯克，我不会建议你跟普京较量。你们的重量级别差太多了。”
+
+参考链接：[以乌克兰作赌注 马斯克向普京下战帖单挑](https://cn.theaustralian.com.au/2022/03/15/64646/)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
