@@ -2,34 +2,86 @@
 ---
 
 
-## 韩国对乌援助非武器物资 日本禁止对俄出口多种技术
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2171096/)
+## 制裁针对俄罗斯寡头的游艇
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2171152/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture-1097.jpg)日本首相岸田文雄和韩国总统文在寅资料图片 © 网络图片
-据法国国际广播电台3月15日报道，韩国国防部15日宣布向乌克兰提供的援助物资清单已敲定，包括头盔、帐篷、军粮等非武器军需品以及个人应急包、药品等20多种，总价值10亿韩元（约515万元人民币），正在同乌方就运输方案进行协商。乌克兰政府此前曾通过外交渠道正式请求韩方为其提供包括武器在内的军事和人道主义援助，但韩国政府表明难以提供杀伤性武器。此外，韩国两大航空公司—大韩航空和韩亚航空的航线将不再经由俄罗斯领空。
+The Port of Trieste, sees the ship known as sailing yacht A
+的里雅斯特港，看到被称为航行游艇A的帆船
 
-日本向乌克兰提供了自卫队拥有的装备物资，包括防弹背心、帐篷、防寒服、应急食品、照相机、卫生用品、应急食品、发电机等。日本政府当天宣布，作为对俄罗斯的经济制裁，18日起原则上禁止出口半导体、通信设备等约300种产品及技术，也可能禁止出口电脑、智能手机、船舶、柴油发动机等产品，并禁止提供技术和程序。其中包括原本向俄罗斯出口的普通民生用品。向俄罗斯提供炼油设备和技术也将叫停。
+worth about 578 million belonging to Andrey Melnichenko
+它的价值约5.78亿，属于安德烈·梅尔尼琴科
 
-被日本政府全面禁止交易的是俄罗斯国防部、联邦保安局、航空器制造企业米格公司等约50家团体。白俄罗斯的国防部也将成为禁止对象。迄今为止，日本实施的对俄制裁和限制包括冻结普京等俄官员的资产、限制与俄央行交易等。
+He owns a fertilizer producer and coal company
+他拥有一家化肥生产商和煤炭公司
 
-普京悍然发动对乌克兰的侵略战争，导致俄罗斯被国际社会从各个方面严厉制裁，俄罗斯国内经济崩溃，物价飞涨，卢布暴跌，人民生活水平倒退几十年，俄罗斯民众也被全球声讨。普京给俄罗斯带来了几十年都消化不掉的灾难。前车之鉴，希望俄罗斯的悲剧不要在中共国上演，推翻中共，中国能够建立一个真正的民主法治社会。
+This follow the impounding of Lady M that’s owned by Alexei Mordashov
+这是在扣押阿列克谢·莫尔达绍夫拥有的 Lady M 之后发生的
 
-[新闻参考链接](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20220315-%E9%9F%A9%E5%9B%BD%E5%B0%86%E5%AF%B9%E4%B9%8C%E6%8F%B4%E5%8A%A920%E4%BD%99%E7%B1%BB%E9%9D%9E%E6%AD%A6%E5%99%A8%E7%89%A9%E8%B5%84-%E6%97%A5%E6%9C%AC%E5%B0%86%E7%A6%81%E6%AD%A2%E5%AF%B9%E4%BF%84%E5%87%BA%E5%8F%A3%E7%BA%A6300%E7%A7%8D%E4%BA%A7%E5%93%81%E6%8A%80%E6%9C%AF)
+So called richest man in Russia
+这个被称为俄罗斯的首富
 
-*编辑：胖丁*
+and Lena belonging to Gennady Timchenko, who controls an oil exporting com-pany
+和属于根纳季·蒂姆琴科的莉娜，他控制着一家石油出口公司
 
-* * *
+French officials sees the $120 million Amore Velo, claiming it’s owned by Igor Sechin
+法国官员看到价值 1.2 亿美元的爱茉莉维洛，声称它由伊戈尔·谢钦所有
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+That’s the head of the Russian state owned Oil Company Rosneft
+那是俄罗斯国有石油公司Rosneft的负责人
 
+Other oligarchs are trying to prevent this from happening
+其他寡头正试图阻止这种情况发生
 
-编辑：【英国伦敦喜庄园编辑部】
+after it left port in Montenegro on March the second
+在它于 3 月 2 日离开黑山港口后
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+the GALACTICA SUPER NOVA owned by Lukoil CEO Vagit Alekperov
+卢克石油公司首席执行官瓦吉特·阿列克佩罗夫拥有的银河超级新星
 
+turned off automatic tracking systems which is against the law for a ship of its size
+关闭了自动跟踪系统，这对这样大小的船只来说是违法的
 
+After Britain’s sanction Roman Abramovich
+在英国制裁正在出售他在足球俱乐部
+
+the billionaire who’s selling his stake in the football club Chelsea
+切尔西的股份的亿万富翁罗曼·阿布拉莫维奇之后
+
+his two super yachts began moving
+他的两艘超级游艇开始移动
+
+reportedly to reach countries without formal extradition agreements
+据报道，到达没有正式签署引渡协议的国家
+
+His Eclipse is the world’s second largest such boat
+他的 Eclipse 是世界上第二大此类的船
+
+It’s got its own missile defense system
+它有自己的导弹防御系统
+
+A mini submarine is well after recent renovations, it’s estimated value is $1 billion
+一艘迷你潜艇经过最近的翻新，估计价值 10 亿美元
+
+**原视频链接**:[https://twitter.com/ben94548078/status/1503119680277561347?s=24](https://twitter.com/ben94548078/status/1503119680277561347?s=24)
+
+Date:03/14/2022
+原视频标题:Sanctions take aim at Russian oligarchs’ yachts
+制裁针对俄罗斯寡头的游艇
+原视频日期：2022/03/14
+原视频链接https://twitter.com/ben94548078/status/1503119680277561347?s=24
+任务编号：KE453（4006）
+视频时间段 : 0:00-1:15
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
