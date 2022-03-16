@@ -2,10 +2,10 @@
 ---
 
 
-## 法国取消疫苗通行证及强制口罩令
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2171813/)
+## 战友克服困难 轮流值班 坚持高质量服务
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2171830/)
 
-作者：银河系农场 – 骄子
+作者：香草山教育部 -飞虹
 
 
 
@@ -13,12 +13,14 @@
 
 
 
-法国宣布自3月14日起放宽部分防疫限制，即日起除搭乘公共交通工具外，包括学生在内，大部分公众场合下不再强制配戴口罩。另外，进入餐厅、戏院、博物馆等公众场所时也毋须出示疫苗通行证，不过，进入医院、老人院和伤残人士中心等除外。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-4.jpg)
-最近一周该国感染人数再次增加，有科学家担忧，现在解除限制为时过早。根据 7 天的平均值推算，新增感染人数超过 6万人，高于一周前的 5万人。科学议会成员兼政府首席防疫医疗顾问戴佛西表示疫情仍未结束，呼吁民众仍应保持谨慎。
+波兰当地时间3月14日晚，前方战友在救援连线直播中，简要介绍了他们工作的一些情况。 除了基本的难民工作外，每天会有7-8名战友为大直播服务。
+
+为了帮助难民抵御寒冷，战友们在帐篷外燃起篝火，24小时燃烧，供难民取暖。 另外，为了照顾到随时有可能抵达的难民，战友们还特意制定了24小时全天候、不间断的轮班制度。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12-5.jpg)
+不过，由于当地气候十分寒冷，最低可达零下4-5度，大多数战友都放下小我，不畏严寒，不但没有躲在帐篷内，还把室外的篝火让给难民，自己在寒风中工作，尤其看守机位的战友，经常冻到麻木，场面令人感动。
 
 参考链接：
-[‘Return of Freedom’ France Drops COVID Vaccination Pass and Forced Mask Wearing](https://www.breitbart.com/europe/2022/03/14/return-of-freedom-france-drops-covid-vaccination-pass-and-forced-mask-wearing/)
+[新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-14](https://gettr.com/streaming/p1018xdeb8a)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 

@@ -2,40 +2,38 @@
 ---
 
 
-## 波斯尼亚和黑塞哥维那电视台采访妮可
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2172275/)
+## 澳州拨款开发稀土资源以减少世界对中共国稀土的依赖
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2172439/)
 
-波斯尼亚和黑塞哥维那新闻媒体采访了Nicole战友。新中国联邦在波兰的这次人道主义救援提供了公交车跟包机服务，这次的目标是为难民提供一个安全的地方。
+By：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1747.png)图片来自网络
+澳大利亚将为制造业拨款2.43亿澳元，其中部分款项将用于生产电动汽车以及其它工业所需要的稀土材料，以减少全球对中共国稀土材料的依赖。
 
-**【新中国联邦救援】****2022.3.13 ****波斯尼亚和黑塞哥维那电视台采****访**
+全世界已知的稀土矿中，大约36%储藏在中共国。中共国是目前世界第一大稀土生产国，约占世界出口额总量的90%。
 
-Nicole：帮助他们从战区逃到安全的地方，因此，在过去的两周里，我们已经成功地解救了100多名中国人，包括中国学生，超过350名乌克兰人、美国人和其他国籍的人。我们还与领先的西班牙基金会合作，和波兰政府，还有乌克兰政府从一个孤儿院拯救了100名儿童。我们把他们从乌克兰带到波兰，然后把他们送到了西班牙的巴塞罗那。我们与国际人权组织合作，从3月15日开始，我们提供包机来救人，我们有两架来自波兰的定期航班，一个是飞往纽约的航班，另一个航班将飞往东南亚某地。
+澳洲正在建设第一家稀土分离工厂，建成后将成为世界上第二大除中共以外的稀土生产基地，将为全世界提供所需的稀土材料，可满足全球5%以上的需求。
 
-Reporter: 今天在这里和所有的人在一起是不是很 困难？
+稀土对于制造电动汽车和风力涡轮机至关重要，预计未来几年的需求将呈指数级增长。
 
-Nicole：当然，但这场战争所带来的人道主义危机是毁灭性的，我看到妇女和儿童，他们很无助。
+在俄罗斯入侵乌克兰之后，俄罗斯遭受到全世界对它的严厉制裁。因中共国与俄罗斯形成了邪恶同盟，中共也必将受到同样的制裁。世界各国开始意思到，对中共国的依赖可能会在未来给自身带来困境。
 
-Reporter：不幸的是，没有父母的孩子。
+例如，荷兰曾过于依赖俄罗斯的石油和天然气，俄罗斯入侵乌克兰受到制裁之后，荷兰不得不重新考虑这些能源的来源。
 
-Nicole：没错。这是为什么我们要花更多的精力来帮助拯救这100个孤儿。这些孩子失去了他们的父母，因为他们的父母想留在乌克兰作战。
+自从新冠大流行爆发以来，澳洲面临来自中共国的很多胁迫，特别是在澳洲提出对新冠病毒的来源进行调查后，中共国对澳洲产品征收了高额关税。
 
-Reporter：这些孩子的年龄是多少？
+澳洲政府开发稀土资源的做法是明智之举。能够认识到世界政治，经济格局正在发生深刻的变化，是及其重要的。
 
-Nicole：他们的年龄在7到17岁之间。因此，我们与一个名叫”全心全意基金会” 的西班牙人权组织合作，让他们逃出乌克兰并将他们全部送到西班牙的巴塞罗那办理各种手续。我们非常自豪，在这个可怕的时刻，我们把孩子们带到了一个安全的地方。我们也有许多妇女和老人，不管他们的国籍是什么，现在是每个人都应该帮助的时候了。
+消息来源：[Federal election 2022: Australia’s move away from China with electric car manufacturing](https://www.news.com.au/technology/motoring/hitech/federal-election-2022-australias-move-away-from-china-with-electric-car-manufacturing/news-story/ed1c4edecaa751180a9f28b326dbc26c)
 
-Reporter：在美国，人们对这场战争有什么看法？
+[Scott Morrison tells Europe and Australians to be careful on creating ‘dependence with China’ and backs coal power stations](https://www.skynews.com.au/australia-news/politics/scott-morrison-tells-europe-and-australians-to-be-careful-on-creating-dependence-with-china-and-backs-coal-power-stations/news-story/53a2d6745b0902bc3bd49c1efd283c7a)
 
-Nicole：  对我们来说，我们只是来救人的。我们不搞政治，我们对政治冲突不感兴趣，我们只对拯救无辜的人感兴趣。因为妇女和儿童他们是无辜的，他们不应该处于如此悲惨的境地。我们是人道主义援助，我们想帮助人们，在这个危机时刻，我们是非政治性的，我们没有对任何政治事件进行评论，我们只是来关心人类。
+[稀土金属](https://zh.wikipedia.org/wiki/%E7%A8%80%E5%9C%9F%E9%87%91%E5%B1%9E)
 
-Reporter: 非常感谢您！
+*编辑：喜国公民*
 
-Nicole: 谢谢。
+*发布：喜国公民*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
 
-
-
-
-
-视频制作：文零| 听写：Polaris | 翻译，字幕： tonyj | 编辑：Quentin | 发布：闪电训练
 
  
 

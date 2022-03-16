@@ -2,91 +2,46 @@
 ---
 
 
-## 拜登签署法案,向乌克兰提供历史性的136亿美元资金
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2172182/)
+## 樱花FM|新中国联邦乌克兰前线救援直击中共虚假撤侨
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2172410/)
 
-拜登总统： 我刚刚签署了两党的政府资助法案，使政府保持开放，并向乌克兰提供历史性的 136 亿美元资金。
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/3DfBU68RDdIBFFlJWUmyOPO-Hu1DQRbJTHrp7u_MZsB_BZupIhDnEiS40WIGdiir04zpPJlMi_1GrLLIgtN-oM6p7QMgMLPircS4pCuxenEHiCPKfeKYaUl3Klrzw-HxDaDrfldF)
+**俄乌战争打响后身在乌克兰的中国人生死未卜，中共竟然宣布已经撤离华人。在大量受困的中国同胞求救无门的情况下，新中国联邦紧急奔赴乌克兰启动救援行动，这不仅震惊了世界也撼动了中共朝野上下，不断制造虚假的撤侨行动暴露了中共政权正在失去民心的恐慌心理。**
 
+据中共国新华社10日消息称，“又有两架接返自乌克兰撤离中国公民的临时航班先后安全回到国内。”据说，这是“第八、第九架”从乌克兰撤离中国公民回家的临时航班，分别抵达杭州和济南。这是真的吗？看看新中国联邦乌克兰实地救援就知道中共国虚假救援有多假。
 
+根据［[2022年3月9日 文贵大直播](https://gettr.com/post/pz1ocoe7cb%0a)］新中国联邦乌克兰大救援团队现场报道的消息，“大卫战友带领的救援队第一时间冲到前线救援，9日当天又有一批法治基金的救援物资送达救援站。救援物资用的帐篷是所有国际救援组织里最好的，所有食物、毛毯等救援物品都是最好的。” （见1:04直播时段）
 
-> I just signed the Bipartisan Government Funding Bill into law — keeping the government open and providing a historic $13.6 billion in funding to Ukraine.
-> — President Biden (@POTUS) [March 15, 2022](https://twitter.com/POTUS/status/1503804282532859905?ref_src=twsrc%5Etfw)
+根据大卫现场直播采访说，救援团队联络到波兰的义工凯妙（音译），并协助新中国联邦救援队的实际工作，他说，“这名义工帮我们拿到了波兰市在克拉科夫境内大巴拍摄许可和新闻采访权，这个非常重要。帮助我们的凯妙义工会六国语言包括中文。”
 
-
-
-参议员泰德·克鲁兹： 在闭门会议上，民主党人扔了口罩。 是时候结束政治表演了！ 【视频中克鲁兹批：2周前的国情咨文演讲大会上，国会的500多人里没几个带口罩的，拜登，哈里斯，佩洛西都不戴口罩，只有看到镜头时民主党人才赶紧掏出口罩，好像镜头能传播病毒似的，这些强制政策太愚蠢了】
-
-
-
-> In closed door meetings, Democrats ditch their masks.
->  
-> It’s time to end the political theater! [pic.twitter.com/rQ3VubxZFl](https://t.co/rQ3VubxZFl)
-> — Senator Ted Cruz (@SenTedCruz) [March 16, 2022](https://twitter.com/SenTedCruz/status/1503895886425903105?ref_src=twsrc%5Etfw)
+- ***延展阅读：***[***新中国联邦在乌克兰人道救援行动激起中共虚假撤侨***](https://gnews.org/zh-hans/2110771/)
+- ***延展阅读：***[***新中国联邦法治基金乌克兰国际人道救援行动：帮助乌克兰儿童逃离战火***](https://www.youtube.com/watch?v=mj7EUhzZO5s)
 
 
+这位凯妙先生说，“我知道你们需要翻译，我15年前去过武汉。”他说，“我在那里很多东西不能讲，这是中国所缺乏的言论自由，他们说我是老外，有许多话不能讲。但我在这里遇到很好的华人，我们可以随便聊，有一种言论自由的兴奋，我非常高兴。很高兴和你们一起帮助乌克兰人，帮助你们团队。为了世界和平，感谢你们。”
 
-拜登总统： 这场战争使近 300 万乌克兰人沦为难民。乌克兰境内有超过 1200 万人需要人道主义援助。 美国正在与我们在欧洲及其他地区的合作伙伴一起帮助领导全球人道主义应对。
+凯妙先生朴实的话语中透露了一句众所周知的现实，即中国人不能说真话。而在自由国土的新中国联邦人可以畅所欲言，唯真不破。为什么就是这样说真话都令人兴奋呢？因为在乌克兰战场，各国都在无条件撤离自己的国民，而[中共一再声称华人已经撤离](https://www.secretchina.com/news/gb/2022/03/03/999464.html)，却至今仍在声称撤侨，号称已经是第九架撤离包机，却无任何可信的证据表明这些，因为他们没有撤侨也不敢撤侨，更不想撤侨，一些前后矛盾的所谓撤侨行动的消息只是在新中国联邦的救援行动映衬下所做出的一种虚假掩饰。这就是为什么凯妙先生因为新中国联邦人说真话而感到兴奋，因为他看到了真实的中国人。
 
+大卫战友说：“乌克兰这个民族真的值得我们尊重，蒙受这样大灾难，但你在他们眼神里看到的是坚定、自信和团结。我们（新中国联邦人）应该成长得更加坚定，不再被共产党欺骗。（见[1：14.38 直播时段](https://gettr.com/post/pz1ocoe7cb)）
 
-
-> This war has turned nearly 3 million Ukrainians into refugees. That’s on top of more than 12 million people who require humanitarian assistance inside Ukraine. 
->  
-> The United States is helping to lead a global humanitarian response with our partners in Europe and beyond.
-> — President Biden (@POTUS) [March 15, 2022](https://twitter.com/POTUS/status/1503820553399984130?ref_src=twsrc%5Etfw)
+- ***延展阅读：***[***伟大壮举-新中国联邦派往乌克兰战场的救援队无偿救援***](https://gnews.org/zh-hans/2119240/)
 
 
+由此可见，中共国新华社报道撤侨新闻从“首批”“第二批”和“又有两架”和“已有7架”直到10日的“九架次接返自乌克兰撤离中国公民的临时航班安全回国”的报道完全不可信，或说中共国驻乌克兰大使馆撤侨属实，但为什么我们说他是假撤侨呢？因为无论从新华社图片画面到CCTV视频画面，都没有现场采访难民的报道。那些挥舞着国旗的粉红们看上去更像官二代和中共的家属子弟们，对于中国工人被救援的画面一个也没有，不但如此，中国工人死于乌克兰战火的消息一个都没有报道。
 
-众议员迈克·沃尔兹： 这是中共侵蚀美元的一大步(且使他们的经济免受制裁)。 （转华尔街日报：知情人士说，沙特阿拉伯正在谈判以人民币为其向中国出售的石油定价。此举将削弱美元在石油市场的主导地位。）
+更不幸的是，根据新中国联邦“小王子”透露消息，共产党动用国际力量，以“你的信用卡被盗刷为由”关闭了紧急人道救援的电子邮箱，这等同于杀人！（见38：28时段）这样的操守是典型的中共做法。世界上除了侵略者俄罗斯以外，没有哪个国际组织在国际救援行动时会切断与难民唯一的通信联络方式，而这再次证明，中共是反人类国际跨国犯罪组织。
 
-
-
-> Big step for the CCP to erode the US dollar (and make their economy sanction-proof). [https://t.co/9VHre8BW40](https://t.co/9VHre8BW40)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 15, 2022](https://twitter.com/michaelgwaltz/status/1503774897000038409?ref_src=twsrc%5Etfw)
+文字版原文：
 
 
-
-众议员加拉格尔媒体办公室： 加拉格尔：“我们需要指出 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在这里扮演的角色。这种威权国家的联盟，是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 发起的反对美国的新冷战的一个特征。我们越早认识到这一点，我们就能越快赢得这场战争。”
-
-
-
-> Rep. Gallagher: "We need to call out the role that the Chinese are playing here. This alliance among authoritarian states is a feature of the New Cold War that China has launched against America. The sooner we recognize that, the sooner we can win the New Cold War." [pic.twitter.com/iESxeptI3k](https://t.co/iESxeptI3k)
-> — Rep. Gallagher Press Office (@RepGallagher) [March 15, 2022](https://twitter.com/RepGallagher/status/1503750442026688520?ref_src=twsrc%5Etfw)
+| [新中国联邦乌克兰前线救援直击中共虚假撤侨](https://gnews.org/zh-hans/2140241/) |   |
+| --- | --- |
 
 
-
-美国务卿安东尼·布林肯： 今天与乌克兰外交部长库列巴[@DmytroKuleba](https://twitter.com/DmytroKuleba) 进行了交谈。 我重申美国将继续支持乌克兰人民，并承诺让普京为他对乌克兰的无端和不人道轰炸负责。 [#与乌克兰团结在一起](https://twitter.com/hashtag/%E4%B8%8E%E4%B9%8C%E5%85%8B%E5%85%B0%E5%9B%A2%E7%BB%93%E5%9C%A8%E4%B8%80%E8%B5%B7?src=hashtag_click)[#UnitedWithUkraine](https://twitter.com/hashtag/UnitedWithUkraine?src=hashtag_click)
-
-
-
-> Spoke with Ukrainian Foreign Minister [@DmytroKuleba](https://twitter.com/DmytroKuleba?ref_src=twsrc%5Etfw) today. I reaffirmed the United States’ continued support for the Ukrainian people and commitment to hold Putin accountable for his unwarranted and inhumane bombardment of Ukraine. [#UnitedWithUkraine](https://twitter.com/hashtag/UnitedWithUkraine?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Secretary Antony Blinken (@SecBlinken) [March 15, 2022](https://twitter.com/SecBlinken/status/1503831874652848130?ref_src=twsrc%5Etfw)
-
-
-
-众议员克里斯·斯图尔德： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在密切关注西方如何保卫乌克兰。 为了台湾爱好自由的人民，我们必须竭尽全力捍卫爱好自由的乌克兰人民。 【附福克斯视频：川普总统表示他认为中共国会尽早入侵台湾】
-
-
-
-> China is closely watching how the West defends Ukraine.
-> 
-> For the sake of the freedom-loving people of Taiwan, we must do everything in our power to defend the freedom-loving people of Ukraine. [pic.twitter.com/hHvbjZdSJL](https://t.co/hHvbjZdSJL)
-> — Rep. Chris Stewart (@RepChrisStewart) [March 15, 2022](https://twitter.com/RepChrisStewart/status/1503832516003835905?ref_src=twsrc%5Etfw)
-
-
-
-参议员汤姆.科顿： 参议院投票撤销了拜登的旅行期间戴口罩的强制令。 拜登很少戴口罩，除非一个人在外面的时候。但他正在强迫两岁的孩子在飞机上戴口罩。 是时候让众议院安排投票，结束这种疯狂状态。
-
-
-
-> The Senate voted to revoke Biden's travel mask mandate. 
-> 
-> While Biden rarely wears a mask unless he's alone outside, he is forcing two-year-olds to wear masks on planes. 
-> 
-> It's time for the House to schedule a vote. End the madness.
-> — Tom Cotton (@TomCottonAR) [March 16, 2022](https://twitter.com/TomCottonAR/status/1503908925376241666?ref_src=twsrc%5Etfw)
-
-
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
