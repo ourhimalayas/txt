@@ -2,35 +2,63 @@
 ---
 
 
-## 郭先生解析Swift系统的意义
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176558/)
+## 加拿大税务局正在加速收债 发出两个重要提醒
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2176719/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月13日，郭先生在大直播中揭示，SWIFT系统就等同于金融领域的地球村，被踢出此系统就是被踢出了地球村。
+作者：Jordan Press
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-176.png)
+据加通社报道，加拿大税务局将在今年报税季之前加紧收债，并提醒欠税的人不要错过最后期限。
 
-郭先生解释道，SWIFT系统并非由一个国家定义，而是大部分文明国家遵照二战后的国际秩序所建立的系统。加入SWIFT，就有了使用各类设施的资格证。相反，是否将某国踢出该系统，需要很多国家一致做出决定。因此，被踢出SWIFT系统就意味着被踢出了地球村，全球的财产都将被没收。至今为止，被剔除出该系统的国家，都是专制独裁并且对人类尤其是本国人民造成伤害的政权。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-49.jpg)
-郭先生还指出，目前中共帮俄罗斯绕道进入国际结算系统的行为，已经触犯了SWIFT的规定，国际社会一定也会将中共剔除出此系统。这就将造成墙内老百姓如现在俄罗斯民众一样，被限制行动、贸易交易以及文明交流的范围。
+报道称，去年大选结束后，负责加拿大税务局（CRA）的联邦部长被告知，CRA计划在纳税季之前全速收债。
 
-郭先生最后强调，只要是中国人就很难免受SWIFT制裁带来的影响。而唯一能让中国人免受制裁的，就是加入爆料革命新中国联邦，参与灭共事业，参与G系列投资。唯一能让中国人安全的，就是成为灭共的新中国联邦人。
+向税收部长Diane Lebouthillier提交的简报文件称，考虑到与COVID-19大流行有关的健康和经济问题，CRA不得不作出调整，这是计划采取的四项措施中的最后一项。CRA计划在今年年初全面恢复收账工作。
 
-参考链接：[**2022年3月13日 文贵大直播：若西方对中共经济制裁，那将是多少钱什么情况；爆料革命警告中东事端；刘 傅 孙 吴 杨 王 孟 张 胡 单**](https://www.gettr.com/streaming/pzrn4eb349)
+随着对疫情的担忧消退，CRA和它所协助的部门正准备应对未偿债务的激增，并将付出额外的努力来收债，尤其是在纳税季节到来之际。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+**欠税最后期限**
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
+由于4月30日是星期六，因此今年的税务申报截止日期为5月2日。
 
-**更多资讯，更多关注**
+税务局说，如果在5月2日或之前收到报税表，或者有邮戳的纸质报税，就视为已提交。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+但是，对于那些欠税的人来说，缴纳税款的截止日期仍然是4月30日。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+今年的这个日期也是所有有资格享受利息减免的人支付自2020税收年度起所有税债的最后期限。
+
+Lebouthillier的国会秘书Peter Fragiskatos说，CRA计划保持“以人为本”的方式，与那些面临债务困难的人合作。
+
+新冠病毒(COVID-19)大流行的第一波于2020年3月席卷全国，当时正值报税季节。
+
+随着经济陷入螺旋式下降，300万人失业，更多人的工作时间被削减，政府推迟了报税的截止日期和收债工作。这使CRA的人员得以专注于发放疫情补助金，旨在让加拿大人的口袋里留有更多现金，帮助他们支付账单。
+
+2020年秋季，税务局的收债活动重新启动，但没有全面展开。CRA在给部长Lebouthillier的信中说，那时，欠税数额已经增加。
+
+CRA在最近的简报中称：“随着合规和审计活动的恢复，预计在即将到来的报税季节，收款将会增加。”
+
+**建议网上报税**
+
+政府建议人们在网上报税，以加快处理时间。处理纸质报税可能需要几周的时间。
+
+部长的国会秘书Fragiskatos说，CRA已经在YouTube和政府网站上发布了报税教程，帮助在线报税者。
+
+“我鼓励人们务必在截止日期前提交申请，”Fragiskatos说。“为了获得可用的福利和信用，这样做真的很重要。”
+
+来源：https://www.cp24.com/news/cra-looked-to-resume-collection-efforts-in-full-ahead-of-tax-season-documents-show-1.5821166
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

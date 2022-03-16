@@ -2,35 +2,43 @@
 ---
 
 
-## 俄罗斯因侵略行为导致经济大幅倒退
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2176230/)
+## 下周三大直播兄弟姐妹们见到的可能就是已经破产的七哥
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2176373/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月15日，据相关媒体报道，俄罗斯普京政府因肆意发动侵略战争所引发的国际制裁，可能将导致俄罗斯经济至少倒退30年，回到接近前苏联时代的水平。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-16-上午11.55.43.png)
-报道提及，目前，西方已经将俄罗斯从SWIFT系统中剔除，并冻结了俄罗斯中央银行的外汇储备。同时，美国和英国已经停止进口来自俄罗斯的石油和天然气。此外，美国还对本国的高科技设备和奢侈品实施了出口管制，且多国政府正在禁止俄罗斯船只进入当地港口——这一系列制裁措施正在让俄罗斯的金融和货币体系加速崩溃。为此，普京政府被迫关闭了该国的股市，并强制使用人为手段支撑卢布价格。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8861.61%EF%BC%89%E4%B8%8B%E5%91%A8%E4%B8%89%E5%A4%A7%E7%9B%B4%E6%92%AD%E5%85%84%E5%BC%9F%E5%A7%90%E5%A6%B9%E4%BB%AC%E8%A7%81%E5%88%B0%E7%9A%84%E5%8F%AF%E8%83%BD%E5%B0%B1%E6%98%AF%E5%B7%B2%E7%BB%8F%E7%A0%B4%E4%BA%A7%E7%9A%84%E4%B8%83%E5%93%A5%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:c)
 
-据统计，全球当前已有超过300个标志性品牌主动缩减、停止，甚至退出俄罗斯市场。另一方面，投资人和政策专家也指出，美国公司在未来5年内基本不可能恢复在俄罗斯的商业运营。更甚者，西方恐将制裁普京政府视为长期战略举措，这一时间可能会长达10到20年。
+**郭文贵先生：**兄弟姐妹，我们真的要爱自己的战友，没有比我们再富有、没有比我们再幸福的。我们这些人在一起的时候真的要感恩上天，真的要感恩。我不知道你们怎么想，我每天都幸福的不行，我老唱。你嫂子老问我“你每天你什么高兴地唱？你都快破产了你还唱！”
 
-对此，有评论人士表示，俄罗斯经过40年努力所达到的市场经济繁荣或将在一夕之间化为泡影。
+我说“为什么不唱？破产也值得庆祝哇”郭文贵。成天造我的谣说我是Billionaire，我从来不是Billionaire，这回破产了，我当个“破产王”多高兴！我这一辈子啥事儿我得尝尝，我看看破产啥感觉啊。 川普能搞好几次破产，我为啥不能能搞一次破产是不是？我得破破！
 
-参考链接：[普廷侵略烏克蘭代價慘 俄國經濟恐倒退30年](https://news.ltn.com.tw/news/world/breakingnews/3860305)
+不要担心我兄弟姐妹们，有你们在、有新中国联邦在，什么都不用担心。咱们下周三继续直播。兄弟姐妹们可能下周三你们见到我，就已经是破产的七哥了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+编辑整理：Jacques；
 
-编辑：Ivy001
-总编：Irene木木
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+字幕档制作：兵嫂；
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

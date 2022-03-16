@@ -2,35 +2,36 @@
 ---
 
 
-## 有声|法国取消疫苗通行证及强制口罩令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2176408/)
+## 灭共的新中国联邦人是未来免受制裁的唯一人群
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176557/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-法国宣布自3月14日起放宽部分防疫限制，即日起除搭乘公共交通工具外，包括学生在内，大部分公众场合下不再强制配戴口罩。另外，进入餐厅、戏院、博物馆等公众场所时也毋须出示疫苗通行证，不过，进入医院、老人院和伤残人士中心等除外。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-4.jpg)
-最近一周该国感染人数再次增加，有科学家担忧，现在解除限制为时过早。根据 7 天的平均值推算，新增感染人数超过 6万人，高于一周前的 5万人。科学议会成员兼政府首席防疫医疗顾问戴佛西表示疫情仍未结束，呼吁民众仍应保持谨慎。
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在3月13日的大直播中，郭先生与战友分享了俄罗斯大富豪Alex因受普京发动对乌克兰的入侵战争而被牵连，其个人财富全部被制裁，本人也被警察带走。Alex是黄金和化肥公司的老板，此人很会赚钱且钱都合法，个人品味不俗，低调严谨。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-48.jpg)
+随着全球化的发展，SWIFT成为了全世界统一认证的支付系统。郭先生把SWIFT形象地比喻为进入地球村大门的钥匙，俄罗斯被SWIFT踢出，所有俄罗斯人的账户都会受到影响，无法支付任何生活所需，就算有再多不具备流通性的黄金，也无法用来支付。尽管很多俄罗斯富豪都持有第三国护照，照样会受制裁。未来中共国一旦被SWIFT制裁，也会和俄罗斯一样，不分老百姓还是盗国贼或者持有他国护照，每个人都逃脱不了。
 
+这时候唯有新中国联邦人可以免受制裁，因Hpay 提供了一个超级的流通支付系统。秉持消灭中国共产党的使命，投资过G系列、喜币、喜联储，这些会成为护身符，保护每一个战友的安全和财富。
 
+参考链接：[俄罗斯寡头被西方制裁说明了什么？](https://gettr.com/post/pzu0el34d1)
 
-文字版原文：[法国取消疫苗通行证及强制口罩令](https://gnews.org/zh-hans/2171813/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

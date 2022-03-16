@@ -2,33 +2,35 @@
 ---
 
 
-## 有声|中共当局批准病毒快筛试剂盒上市
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2176422/)
+## 郭先生解析Swift系统的意义
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176558/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中共党媒3月14日报道，由于墙内本土疫情近日快速扩散，中共国家药监局于3月11日宣布，在核酸检测基础上，增加抗原快速检测作为补充，12日，中国国家药监局批准南京诺唯赞、北京金沃夫、深圳华大因源、广州万孚生物、北京华科泰生物这5家企业的快筛试剂正式上市。截至当地时间3月14日，快筛试剂盒已开始上架墙内各电商平台。 两年以来，中共当局一直采取大范围、高密度的核酸检测，作为防控“中共病毒”的有效筛查手段。在其他各国很常见的抗原快筛试剂盒，在中共国却始终未被采用。 “老百姓药房”上海门市员工当日表示，各门店在12日晚已获得发售快筛试剂盒的通知，但还无法直接购买。民众尚需登记预约。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-7.jpg)
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+3月13日，郭先生在大直播中揭示，SWIFT系统就等同于金融领域的地球村，被踢出此系统就是被踢出了地球村。
 
+郭先生解释道，SWIFT系统并非由一个国家定义，而是大部分文明国家遵照二战后的国际秩序所建立的系统。加入SWIFT，就有了使用各类设施的资格证。相反，是否将某国踢出该系统，需要很多国家一致做出决定。因此，被踢出SWIFT系统就意味着被踢出了地球村，全球的财产都将被没收。至今为止，被剔除出该系统的国家，都是专制独裁并且对人类尤其是本国人民造成伤害的政权。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-49.jpg)
+郭先生还指出，目前中共帮俄罗斯绕道进入国际结算系统的行为，已经触犯了SWIFT的规定，国际社会一定也会将中共剔除出此系统。这就将造成墙内老百姓如现在俄罗斯民众一样，被限制行动、贸易交易以及文明交流的范围。
 
-文字版原文：[中共当局批准病毒快筛试剂盒上市](https://gnews.org/zh-hans/2171817/)
+郭先生最后强调，只要是中国人就很难免受SWIFT制裁带来的影响。而唯一能让中国人免受制裁的，就是加入爆料革命新中国联邦，参与灭共事业，参与G系列投资。唯一能让中国人安全的，就是成为灭共的新中国联邦人。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+参考链接：[**2022年3月13日 文贵大直播：若西方对中共经济制裁，那将是多少钱什么情况；爆料革命警告中东事端；刘 傅 孙 吴 杨 王 孟 张 胡 单**](https://www.gettr.com/streaming/pzrn4eb349)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

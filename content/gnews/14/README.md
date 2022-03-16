@@ -2,24 +2,34 @@
 ---
 
 
-## 不同批次新冠疫苗的活性成分含量不同再次被确认
-` Little c` [轉載自GNews](https://gnews.org/zh-hans/2176393/)
+## 面临俄罗斯威胁，北约将在东欧部署更多部队和导弹防御系统
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2176443/)
 
-作者：波士顿五月花 Little c
+#### 撰稿：彩虹 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/mrna-vaccine-e1646326849638.jpg)图片来自网络
+#### 责编：白夜 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1815.png)图片来源：天空新闻
+据《新闻极限》3月15日引述路透社的报道，官员和外交官们说，北约（NATO）将于周三告诉其军事指挥官，在莫斯科入侵乌克兰后，需要制定出威慑俄罗斯的新方法计划，包括在东欧部署更多部队和导弹防御系统。
 
-自法院要求FDA公开辉瑞新冠疫苗文件，Dr. Naomi Wolf 已组织了几百位医生和律师志愿者对文件进行分析。在周一3/14的Warroom 节目中她向班农透露了一个令人不安的发现，不同批次的新冠疫苗的活性成分含量不同。数据显示不同批次疫苗的危险活性成分含量从3微克，10微克，30微克，到100微克不等。
+报道说，包括美国总统拜登在内的盟国领导人将于3月24日在布鲁塞尔聚会，在之前的这一个多星期内，国防部长们将在北约总部发布军事建议。
 
-这也再次确认了去年科学家们根据VAERS的数据得出的类似结论([www.howbadismybatch.com](http://www.howbadismybatch.com/))。
+部长们还将听取他们的乌克兰同行列兹尼科夫（Oleksii Reznikov）的意见，由于俄罗斯对乌克兰城市的攻击仍在继续，俄罗斯军队试图控制基辅，预计列兹尼科夫将恳求北约各个国家提供更多的武器。
 
-参考链接：
+周二，北约秘书长斯托尔滕贝格(Jens Stoltenberg)表示，“我们需要针对这一新的现实重新设定我们的军事态势，部长们将开始就具体措施进行重要讨论，以在所有领域加强我们的长期安全。”
 
-[This Is Big: Naomi Wolf Confirms Big Pharma Was Adding Varying Amounts of Active Ingredient to Batches of COVID Vaccine](https://www.thegatewaypundit.com/2022/03/big-naomi-wolf-confirms-big-pharma-adding-varying-amounts-active-ingredient-batches-covid-vaccine-video/)
+文章说，虽然包括美国、英国和法国在内的至少10个北约最大的盟国已经在其东翼部署了更多的军队、舰艇和战机，并让更多力量待命，但北约仍必须考虑如何面对中期欧洲的新安全形势。
 
-—————————————————————–
+报道指出，2月27日，俄罗斯总统普京（Vladimir Putin）命令俄罗斯的核力量进入高度警戒状态。3月13日，俄罗斯导弹击中了乌克兰与北约成员国波兰边境附近的一个基地，从而将入侵行动直接带到了北约门口。
 
-*编辑 /发布：Little c*
+美国警告说，这些导弹来自俄罗斯，从而证明了莫斯科有能力打击北约的欧洲东部盟国，如果俄罗斯在乌克兰发动化学袭击，将对莫斯科产生无法确定的后果。
+
+北约成立于1949年，旨在遏制来自苏联的军事威胁，它没有保卫乌克兰的条约义务，但它必须保卫其30个盟国。
+
+然而，外交官们说，北约希望避免直接说明他们的计划，或者什么会触发他们的“第5条”集体防御承诺，认为“战略模糊”也是针对任何俄罗斯侵略的一种防御手段。
+
+**新闻来源**
+
+[NATO Begins Planning for More Troops on Eastern Flank After Ukraine Invasion](https://www.newsmax.com/newsfront/nato/2022/03/15/id/1061366/)
 
  
 
