@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 2:31 AM (UTC)`
+
+
+![img](https://media.gettr.com/group25/origin/2022/03/16/02/2d90862b-6988-cb94-7ae1-34b00e21ac5d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/16/2022 2:04 AM (UTC)`
 
 [Ukraine Rescue]  On 3/13, Halley, Feather, and Kent of the Ukraine Frontline Rescue Operation 'Hotline Team' were interviewed, they were put into high intensity jobs immediately after their arrival. Let's hear why they decided to go to the frontline, how the Frontline Hotline Center works, who and what they encountered.<br/><br/>【乌克兰救援】3/13号，乌克兰前线救援团队‘热线小组’ 的哈雷、Feather、Kent接受了采访，他们在抵达后立刻投入到高度紧张的工作中，来听听他们为何决定去往前线，前线热线中心大概的工作情况，以及他们遇到了哪些人和事。
@@ -152,13 +159,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission<br/>
 
 The New Federal State Of China provides humanitarian aid at the polish and Ukrainian border
 ![img](https://media.gettr.com/group44/origin/2022/03/15/16/a11f31a6-9298-a0bd-74ad-d0169c54075b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/15/2022 4:33 PM (UTC)`
-
-【Ukraine Rescue】03/15/22 Some suspicious-looking Chinese faces appeared in the vicinity of the NFSC Medyka Rescue Center. Their nervous expressions made one wonder if this was yet another CCP’s plot to harass and sabotage NFSC & ROLF Ukraine Rescue Operation.<br/><br/>【乌克兰救援】03/15/22 一些形迹可疑的华人面孔出现在新中国联邦梅迪卡救援中心的附近。他们慌张的神色令人不禁怀疑：这是否又是由中共在背后主使，企图对新中国联邦及法治基金的乌克兰救援行动进行骚扰和破坏<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group48/getter/2022/03/15/16/a21b41a0-28ec-8dd4-35e3-facb9c0b9e84/out.jpg)
 
 ---
 
