@@ -2,24 +2,86 @@
 ---
 
 
-## 新中国联邦在梅蒂卡国际舞台露峥嵘
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2171144/)
+## 制裁针对俄罗斯寡头的游艇
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2171152/)
 
-作者：温哥华扬帆农场 – 自由法兰西🇫🇷
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-15-at-8.15.53-PM.png)
-3月14日早上9:30，在梅蒂卡新中国联邦营地里，乌克兰难民营救国际间合作会议准时召开了。宽敞明亮的大帐篷里，我们的文耀和文科战友，代表新中国联邦和法制基金，作为会议召集方、主办方和场地提供方，以东道主的身份坐在与会者中心，并向参加会议的各国义工代表提供了热腾腾的茶点、新鲜牛奶、早餐、暖气和在战地难得一见的暖心饮品 – NFSC现磨咖啡。
+The Port of Trieste, sees the ship known as sailing yacht A
+的里雅斯特港，看到被称为航行游艇A的帆船
 
-而十几位外国友人，围坐在宽大的会议桌旁，身上各种语言的Logo，代表着他们来自不同的救援组织。根据Nicole战友的介绍和我在网上查阅的资料，他们分别代表国际红十字会、西班牙卡迪纳(CADENA)国际救援队、法国PHF人道消防救援队和德国Tier-Ambulanz动物急救组织等救援机构，此外，还有标着“Ratownik”（波兰语）和”Paracrew”标示的另外两家机构。会议全程用英语讨论，我们的战友也在会议中积极参与发言。
+worth about 578 million belonging to Andrey Melnichenko
+它的价值约5.78亿，属于安德烈·梅尔尼琴科
 
-根据Nicole战友的介绍，我们新中国联邦和法制基金的义工已经成为了梅蒂卡救援中心 – 这个全球瞩目的乌克兰难民营救国际舞台上的主角。目前这里所有的国际间会议，包括媒体之间的会议，都会在我们NFSC的帐篷里举行。就在昨天，这里还召开了国际红十字会和无国界医生的会议。
+He owns a fertilizer producer and coal company
+他拥有一家化肥生产商和煤炭公司
 
-我们的前线战友，新中国联邦人，正用自己的实际行动，一改中共治下的中国人懦弱、冷漠、自私的形象，以正义、阳光、自信的新形象出现在国际舞台！正如帐篷里随处可见的标示和横幅上写的那样，我们正在大声告诉全世界：我们是新中国人，我们是灭共的，我们和中共不一样！
+This follow the impounding of Lady M that’s owned by Alexei Mordashov
+这是在扣押阿列克谢·莫尔达绍夫拥有的 Lady M 之后发生的
 
-注：根据DC战友Nicole从救援前线发回的视频撰写
+So called richest man in Russia
+这个被称为俄罗斯的首富
 
-来源： Discord : NFSC news -救援前线素材区
+and Lena belonging to Gennady Timchenko, who controls an oil exporting com-pany
+和属于根纳季·蒂姆琴科的莉娜，他控制着一家石油出口公司
 
-编辑/上传：文所未闻
+French officials sees the $120 million Amore Velo, claiming it’s owned by Igor Sechin
+法国官员看到价值 1.2 亿美元的爱茉莉维洛，声称它由伊戈尔·谢钦所有
+
+That’s the head of the Russian state owned Oil Company Rosneft
+那是俄罗斯国有石油公司Rosneft的负责人
+
+Other oligarchs are trying to prevent this from happening
+其他寡头正试图阻止这种情况发生
+
+after it left port in Montenegro on March the second
+在它于 3 月 2 日离开黑山港口后
+
+the GALACTICA SUPER NOVA owned by Lukoil CEO Vagit Alekperov
+卢克石油公司首席执行官瓦吉特·阿列克佩罗夫拥有的银河超级新星
+
+turned off automatic tracking systems which is against the law for a ship of its size
+关闭了自动跟踪系统，这对这样大小的船只来说是违法的
+
+After Britain’s sanction Roman Abramovich
+在英国制裁正在出售他在足球俱乐部
+
+the billionaire who’s selling his stake in the football club Chelsea
+切尔西的股份的亿万富翁罗曼·阿布拉莫维奇之后
+
+his two super yachts began moving
+他的两艘超级游艇开始移动
+
+reportedly to reach countries without formal extradition agreements
+据报道，到达没有正式签署引渡协议的国家
+
+His Eclipse is the world’s second largest such boat
+他的 Eclipse 是世界上第二大此类的船
+
+It’s got its own missile defense system
+它有自己的导弹防御系统
+
+A mini submarine is well after recent renovations, it’s estimated value is $1 billion
+一艘迷你潜艇经过最近的翻新，估计价值 10 亿美元
+
+**原视频链接**:[https://twitter.com/ben94548078/status/1503119680277561347?s=24](https://twitter.com/ben94548078/status/1503119680277561347?s=24)
+
+Date:03/14/2022
+原视频标题:Sanctions take aim at Russian oligarchs’ yachts
+制裁针对俄罗斯寡头的游艇
+原视频日期：2022/03/14
+原视频链接https://twitter.com/ben94548078/status/1503119680277561347?s=24
+任务编号：KE453（4006）
+视频时间段 : 0:00-1:15
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

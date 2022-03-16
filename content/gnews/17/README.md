@@ -2,16 +2,10 @@
 ---
 
 
-## 五月花简报（03/15/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2170774/)
+## 3/15/2022 文贵直播：中东为什么会燃起战火？因为中共要赌一把美国不会同时打乌克兰、中东和台湾的三场战争；但如果中共打台湾，美国一定会出手，会采取轰炸战略，但灭共还要靠中国人
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2170842/)
 
-编辑：波士顿五月花—-冲天一怒
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/DED8FD88-0FE5-4956-A389-7C575D1BEFC6.jpeg)
-
-*发布：思澈*
-
-
+秘密翻译组-北美组
 
  
 

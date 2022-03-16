@@ -2,21 +2,25 @@
 ---
 
 
-## 乌总统泽伦斯基希望连线日本国会并发表“抗议俄入侵演说”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170892/)
+## 中共国每年有2381.2万件消费投诉事件
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170903/)
 
-撰稿：东京樱花团｜haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1687.png)[*图片来源*](https://images-ext-2.discordapp.net/external/T9lfc2YyFA8KId9nDVh6ZkuUJbFtgWKr8h94QiTtB2Q/%3Fexp%3D10800/https/newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220315-07728496-nnn-000-4-thumb.jpg)
-据悉，乌克兰总统泽伦斯基向日本政府提议：在日本国会发表抗议俄罗斯的在线演讲。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-76.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.caixin.com%2F2017-03-15%2F1489575465929654.jpg&amp;imgrefurl=https%3A%2F%2Fdatanews.caixin.com%2Fm%2F2017-03-15%2F101066373.html&amp;tbnid=JPDHTOdfEf4UHM&amp;vet=12ahUKEwiai_CYz8j2AhVK0uAKHfrhAGcQMygIegUIARCaAQ..i&amp;docid=gcjVTTfc1Yy31M&amp;w=480&amp;h=320&amp;itg=1&amp;q=3.15%E6%8A%95%E8%AF%89&amp;ved=2ahUKEwiai_CYz8j2AhVK0uAKHfrhAGcQMygIegUIARCaAQ)
+3月15日每经经济报道，去年，通过全国12315平台等渠道共受理消费者投诉举报咨询2381.2
 
-据多位日本政府官员和执政党人士透露，网上演讲是通过乌克兰大使馆到日本政府探讨的。泽伦斯基总统已经在英国议会进行了视频演讲，预计日本国会也会对俄罗斯的侵略表示强烈抗议。
+万件，为消费者挽回经济损失55.5亿元，同比增长26%。通过构建有群众参与的全局性、动态性评价体系，调解成功率提高30.9个百分点，投诉举报处理时长缩短15.41天，消费维权效能明显提升，已推动8.7万家重点企业入驻全国12315平台。
 
-但是据相关人士透露，日本国会会议上还没有进行过网上演讲的先例，因此政府将慎重考虑。
+中共新闻统计在不经意间透漏出了中共国假丑骗的经济市场，每年投诉举报2381.2万件，为消费者挽回损失55.5亿元，中共以此为光荣事件，从来不去考虑源头的问题，为何有这么多投诉？
 
-信息来源：[**ウクライナ・ゼレンスキー大統領  日本の国会で“ロシアに抗議の演説”打診**](https://news.yahoo.co.jp/articles/78e8070848df4ed5a61200f849d8c6290187dd5b)
+中共把消费者当做牛羊一般任人屠宰，中国人每天都在假丑骗中度过，只有消灭共产党才可以解救国人。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
+消息来源：
+
+[【2021年全国12315平台挽回消费者损失超55亿元】](https://ml.mbd.baidu.com/r/CRDAzsEl8s?f=cp&amp;rs=2054748433&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=5b73362f459212bb&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 

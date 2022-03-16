@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@globalhimalaya 3/15/2022 1:07 AM (UTC)`
+
+Steve Bannon: Do we have an alternative but to take down the CCP?<br/>CAPT Jim Fanell: No!<br/>班农先生：除了灭掉中共以外，我们还有其它选择吗？<br/>战斗室嘉宾：没有！你不灭掉它，它就杀死你<br/><br/>班农先生越来越直接了！
+![img](https://media.gettr.com/group47/origin/2022/03/15/01/17478d31-bd8f-9554-39c5-c5ff764360b5/out.jpg)
+
+---
+
+`@miles 3/16/2022 12:37 AM (UTC)`
+
+2022.03.15 晚 《新中国联邦新闻》乌克兰总统顾问预计战争最快5月结束；西班牙扣押普京盟友的豪华游艇
+![img](https://media.gettr.com/group41/origin/2022/03/16/00/b0efd273-d254-7cfa-9269-97f67d35a8b2/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/15/2022 11:43 PM (UTC)`
 
 2022.03.15《The Fringe》 Episode 147   GUERRA ENVOLVE MAIS PAISES E MERCENARIOS
@@ -143,20 +159,6 @@ On 14 March, in the large tent of the New Federal State of China（NFSC）,<br/>
 
 【Ukraine Rescue】03/15/22 Nicole explains to Bloomberg reporter Aggi Cantrill that the political goal of the NFSC to eliminate the CCP is also a humanitarian goal, and that all humanitarian disasters are caused by the CCP, not only in China, but also in Xin Jiang, Hong Kong, Taiwan, and the war in Ukraine, all of which have the CCP's black hand behind them. Whether it is the rescue of Ukrainian refugees or helping the Chinese people to eliminate the Communist Party, it is all for humanitarian purposes.<br/><br/>【乌克兰救援】03/15/22 妮可向彭博社记者Aggi Cantrill介绍：新中国联邦消灭中国共产的的政治目标同时也是人道目标，所有人道灾难都是中国共产党造成的，不仅是中国，包括新疆、香港、台湾，以及乌克兰的战争，背后都有共产党的黑手，无论是对乌克兰难民的救助，还是帮助中国人民铲除共产党，都是出于人道主义的目的。<br/>
 ![img](https://media.gettr.com/group40/getter/2022/03/15/13/06cf698e-1ea6-33ec-c11a-f6b746c2fa4e/out.jpg)
-
----
-
-`@miles 3/15/2022 12:26 PM (UTC)`
-
-【Ukraine Rescue】03/14/2022 Multiple rescue organizations for the first time gathered at the NFSC and ROLF rescue tent discussing how to better manage the rescue camps in Medyka<br/><br/>【乌克兰救援】03/14/2022 多个救援组织第一次聚集在新中国联邦和法治基金的救援帐篷里开会讨论如何把梅迪卡的救援营地管理得更好<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group7/getter/2022/03/15/12/643c4988-b0c6-5167-15d3-88befe72a6fd/out.jpg)
-
----
-
-`@miles 3/15/2022 12:17 PM (UTC)`
-
-2022年3月15日 文贵大直播：香港股市跌破两万点；擀面杖经济难以为继；中共全球拉仇恨行径；疫苗大灾难如何面对
-![img](https://media.gettr.com/group40/origin/2022/03/15/12/a5f196e7-0e7a-d600-e1ca-313f9e96e0ba/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
