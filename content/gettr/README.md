@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 9:17 AM (UTC)`
+
+【Ukraine Rescue】 03/16/22 Nicole was interviewed by an independent French reporter and explained to him that we're the NFSC people taking down the Chinese Communist Party because the Chinese Communist Party is the root cause of all the global disasters and humanitarian crisis, so taking down the Chinese Communist Party is the only way to save humanity<br/><br/>【乌克兰救援】 03/16/22 妮可接受法国独立记者的采访，向他介绍我们是消灭邪恶中共的新中国联邦人，中共是所有全球灾难和人道主义危机的根源，只有消灭中共才能拯救全人类<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group19/getter/2022/03/16/09/cc6e526f-dd91-a4de-f66b-5e0d69b8124c/out.jpg)
+
+---
+
 `@miles 3/16/2022 9:00 AM (UTC)`
 
 The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Rescue Team – 24h Hotline: +1 7206576776 or +1 719-224-4232 or +48 508-532-712 or +48 508-531-518 Telegram: t.me/UkraineRescue GETTR: https://gettr.com/user/UkraineRescue<br/>我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є першопричиною катастроф у світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
@@ -151,13 +158,6 @@ Recently, the Chinese Communist Party (CCP) shamelessly lied，to the public tha
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-15
 ![img](https://media.gettr.com/group31/origin/2022/03/15/22/d7eede8b-61d3-1c98-2073-8244387fcd11/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/15/2022 9:59 PM (UTC)`
-
-3/15/2022 Miles Guo: Why will there be wars in the Middle East? Because the CCP is betting that the U.S. won’t be able to simultaneously fight three wars in Ukraine, the Middle East, and Taiwan, respectively. But if the CCP attacks Taiwan, the U.S. will for sure take action by bombing the mainland. Anyway, it is up to us Chinese to take down the CCP.<br/><br/>3/15/2022 文贵直播：中东为什么会燃起战火？因为中共要赌一把美国不会同时打乌克兰、中东和台湾的三场战争；但如果中共打台湾，美国一定会出手，会采取轰炸战略，但灭共还要靠中国人<br/>
-![img](https://media.gettr.com/group32/getter/2022/03/15/21/531a4ae5-f726-c1c8-8c08-b7fbec3d56a0/out.jpg)
 
 ---
 
