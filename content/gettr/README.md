@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 3:12 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 NFSC and ROLF Ukraine Humanitarian Rescue Mission
+![img](https://media.gettr.com/group34/origin/2022/03/16/14/f5fce8a3-c0a7-6869-3212-77a8a943e7a0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/16/2022 3:12 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 NFSC and ROLF Ukraine Humanitarian Rescue Mission
+![img](https://media.gettr.com/group34/origin/2022/03/16/14/f5fce8a3-c0a7-6869-3212-77a8a943e7a0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gtranslators_1 3/16/2022 1:41 PM (UTC)`
@@ -142,20 +156,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 [Ukraine Rescue]  On 3/13, Halley, Feather, and Kent of the Ukraine Frontline Rescue Operation 'Hotline Team' were interviewed, they were put into high intensity jobs immediately after their arrival. Let's hear why they decided to go to the frontline, how the Frontline Hotline Center works, who and what they encountered.<br/><br/>【乌克兰救援】3/13号，乌克兰前线救援团队‘热线小组’ 的哈雷、Feather、Kent接受了采访，他们在抵达后立刻投入到高度紧张的工作中，来听听他们为何决定去往前线，前线热线中心大概的工作情况，以及他们遇到了哪些人和事。
 ![img](https://media.gettr.com/group41/origin/2022/03/16/02/464ffd92-ea52-b77e-2905-ac1a489963f1/out.jpg)
-
----
-
-`@miles 3/16/2022 1:14 AM (UTC)`
-
-【Ukraine Rescue】03/14/22 Nicole is reporting live from the Medyka Rescue Center for the fourth day: We are volunteers of the NFSC, our mission is to take down the Chinese Communist Party and to provide rescue support for the Ukrainian people fleeing the war.<br/><br/>【乌克兰救援】03/14/22 妮可在梅迪卡救援中心进行第四天的直播报道：我们是新中国联邦的志愿者，致力于推翻中共，并为逃离战火的乌克兰人民提供救援。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group18/getter/2022/03/16/01/3edd9069-471c-b55a-956b-dfe7e5caeb51/out.jpg)
-
----
-
-`@miles 3/16/2022 1:13 AM (UTC)`
-
-2022.03.15 晚《新中国联邦新闻访谈》俄乌战况；前线大营救及； 中东，台海局势
-![img](https://media.gettr.com/group6/origin/2022/03/16/01/71709723-fb95-e033-4eef-f23bf91a8634/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

@@ -2,40 +2,39 @@
 ---
 
 
-## 美国前总统奥巴马确诊中共病毒
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2175606/)
+## 有声|新中国联邦大帐篷设置分区为更好地服务难民
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2175756/)
 
-作者: 纽约香草山教育部-Naughty(文行)
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+梅迪卡前线时间3月12日，新中国联邦超大豪华帐篷搭建完毕后，便无缝衔接地进入使用阶段，目前已经接待400多名难民。
+
+尽管当地条件比较艰难，但我们尽可能做到最好，文戈七雄战友及时安装了取暖设备，保证帐篷内的温暖。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-41.jpg)
+目前这个大帐篷还做了某些分区，除了之前的NFSC咖啡区和食品区，现在还设置了儿童玩耍区和电子设备充电区。在儿童玩耍区，我们准备了小椅子、各类玩具。孩子们在此区域嬉笑玩耍，也能让家长安心休息一下。电子设备充电区就在咖啡区的旁边，世界各地的媒体工作者都可以随时充电，同时还可以享用NFSC咖啡。另外还有一个烧烤架也已经摆放好，大家可以聚在一起吃些烤肉，在寒冷天气为人体提供热量。
+
+目前帐篷内的物资非常充分，有很多志愿者送来的物资都被放到新中国联邦这个大帐篷里，以便能给更多的难民用到。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
-据美国媒体3月13日消息，美国前总统奥巴马当天表示，他的中共病毒筛检结果呈阳性。不过症状相当轻微，仅感觉喉咙发痒。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11648750_031322-wls-obama-covid-5p-vo-vid.jpeg)图片来源: 网络
-当天下午，奥巴马在 Facebook 和 Twitter 上分享的一份声明中宣布了他的诊断结果，并在推文中说，他和夫人米歇尔都已经完全接种了中共病毒疫苗和加强针，目前米歇尔的中共病毒检验结果为阴性。
 
-自去年美国向公众提供中共病毒疫苗以来，奥巴马一直在大声疾呼接种疫苗的重要性，但他在接种完三针疫苗后还是被确诊了。
+文字版原文：[新中国联邦大帐篷设置分区为更好地服务难民](https://gnews.org/zh-hans/2164756/)
 
-新闻链接: [https://people.com/politics/barack-obama-tests-positive-for-covid-19-michelle-negative/](https://people.com/politics/barack-obama-tests-positive-for-covid-19-michelle-negative/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-32.jpg)
-
-编辑: 飞虹
-
-校对/发稿: 卡夫卡的甲壳虫
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
