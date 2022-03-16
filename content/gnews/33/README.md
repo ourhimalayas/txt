@@ -2,37 +2,22 @@
 ---
 
 
-## 欧盟禁止顶级信用评级公司对俄罗斯及俄企进行评级
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2173259/)
+## 令人震惊的照片：急诊室的尸体被遗弃在地上
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2174028/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译/整理: 萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Immagine-11.jpg)图片来自ansa.it
+Omicron 变种在中共国和香港地区似乎已经失控。深圳处于封锁状态，而香港医院不再知道将尸体放在哪里。至少这似乎是一张在主要社交网络上广为传播的照片所描述的情况，照片显示，六个装有死者的塑料袋躺在急诊室的地板上，里面躺满了在治疗的病人。
 
-整理：等风来
-编辑：围剿维尼熊
+香港伊丽莎白医院的情况已经到了极限，但没人能猜到他们是在医院病房里留下尸体。这家香港医院公司是该地区第三家专门为 Covid 患者服务的公共设施，拥有 2,000 张床位。医院的情况非常危急。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe-2.png)图片来源：雅典娜设计组
+医院试图以某种方式证明网络上流传的这张可怕照片的真实性，要求市民了解它所面临的困难，因为该市的太平间因第五波新冠疫情而饱和。据一些媒体报道，此外，为了应对大量死亡，甚至在医院外安装了巨型冷藏集装箱。
 
+新冠疫情在香港现在几乎耗尽该岛的卫生系统。每天必须处理 2.6 万例新的阳性病例，总共有 73.3 万例被感染。在过去的 24 小时内，大约 720 万居民中有 249 人死亡，与大流行的头两年只有 213 人死亡相比，这个数字相当高。
 
-根据路透伦敦3月15日报道，欧盟执委会周二表示，欧盟已禁止顶级信用评级公司对俄罗斯以及该国的公司进行评级。
+原文链接: [https://www.today.it/mondo/hong-kong-cadaveri-ospedale-pronto-soccorso.html](https://www.today.it/mondo/hong-kong-cadaveri-ospedale-pronto-soccorso.html)
 
-欧盟执委会在一份声明中表示，这些制裁措施将进一步有助于加大对克里姆林宫的经济施压，并削弱其为入侵乌克兰筹集资金的能力。
-
-这套措施是与国际伙伴、特别是与美国协调进行的。全球三大评级机构—标普全球、穆迪和惠誉如果藐视这一禁令，将面临在欧盟失去运营许可的风险。
-
-对于遭受美国财政部海外资产控制办公室（OFAC）最严厉制裁的一批俄罗斯公司，这三家机构都已撤销或暂停提供企业评级。但随着新的禁止令出台，看来会越来越迫使这些机构放弃对更多俄罗斯公司的评级。
-
-目前只有惠誉表示遵守信用评级机构的所有相关规定。
-
-参考链接：[欧盟宣布禁止顶级信用评级机构对俄罗斯与俄企进行评级](https://cn.reuters.com/article/CNIntlBizNews/idCNKCS2LD037?irpc=932)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责任编辑/发布:意大利达芬奇农场   萧亦
 
  
 

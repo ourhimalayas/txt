@@ -2,31 +2,27 @@
 ---
 
 
-## 3月14日俄罗斯入侵乌克兰战局最新信息
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2174725/)
+## 三星暂停向俄罗斯供货
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2174759/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-18.jpg)
+采集：玫瑰新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3852635520-11.jpg)三星副会长韩宗熙说，三星将制定多方面的应对措施，以最大限度地降低俄乌局势对公司业务的影响。（彭博社）
+（早报讯）三星副会长韩宗熙周三（3月16日）在股东大会上表示，三星已经暂停向俄罗斯供货，正在密切关注对俄经济制裁情况。
 
-[图片来源](https://image.pbs.org/video-assets/s03kIDk-asset-mezzanine-16x9-ETXr6Av.jpg?crop=1920x1080&amp;format=jpg)
+韩联社报道，韩宗熙是在回答三星是否计划撤离俄罗斯的提问时作此表示。他强调，三星将制定多方面的应对措施，以最大限度地降低俄乌局势对公司业务的影响。
 
-乌克兰抵抗俄罗斯军事入侵第十九天，俄军继续展开进攻行动。
+三星已为乌克兰提供了相当于600万美元（约818万新元）的援助，并将探讨额外的援助方案。
 
-以下是3月14日主要情况汇总：
+对于三星并购事宜，韩宗熙表示，由于内外不确定性因素尚存，目前难以确定推进并购的具体时间。他强调，只要有利于三星实现可持续发展并提升股东价值，就不为业务板块和规模设限。
 
-- 敌人继续使用飞机支持地面部队，破坏乌克兰的军事和民用基础设施。
-- 据现有情报，俄军继续组建更多的占领部队。计划加强哈尔科夫方向的俄联邦武装部队的集结。
-- 俄军继续用大炮和坦克轰击民用基础设施。
-- 俄军继续对居民点进行导弹和炸弹袭击。
-- 俄军很可能对白俄罗斯的设施进行挑衅，以使白俄罗斯武装部队卷入冲突。
-- 在马里乌波尔（Mariupol）方向，敌人正试图占领马里乌波尔。乌克兰士兵成功击退了入侵者的进攻。敌人的总损失约为150人，2辆坦克，7辆步兵战车和1辆装甲运兵车。在遭受损失后，占领者停止进攻并撤退了。
-- 在卡米扬卡（Kamyanka）定居点，俄军在侦察战中遭受了重大损失，被迫撤退。
-- 乌克兰炮兵和飞机对俄军前进路线上堆积的军事装备和纵队进行了火力破坏。有12个单位的机动车辆被摧毁。
+他还表示，三星正在积极考虑并购人工智能、5G、汽车零部件等领域企业的方案，但由于并购事宜需要保密，无法提供具体信息。
 
+韩宗熙今年1月曾表示，三星正在探讨多个领域的并购事宜，预计近期将发布好消息。
 
-新闻来源链接：[https://www.mil.gov.ua/en/news/2022/03/15/operational-information-on-24-00-14-03-2022-regarding-the-russian-invasion/?\_\_cf\_chl\_f\_tk=744YlilqLiBp18iMlAQdRHoQMmQXyBlouB6ce\_J4uxY-1647326061-0-gaNycGzNB6U](https://www.mil.gov.ua/en/news/2022/03/15/operational-information-on-24-00-14-03-2022-regarding-the-russian-invasion/?__cf_chl_f_tk=744YlilqLiBp18iMlAQdRHoQMmQXyBlouB6ce_J4uxY-1647326061-0-gaNycGzNB6U)
+参考连结：[https://www.zaobao.com.sg/realtime/world/story20220316-1252821](https://www.zaobao.com.sg/realtime/world/story20220316-1252821)
 
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
+审核校对：Barry Jack
+上传排版：F
 
  
 
