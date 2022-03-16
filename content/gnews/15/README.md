@@ -2,21 +2,19 @@
 ---
 
 
-## 樱花FM|中日财经爆：高盛和摩根大通关闭俄罗斯业务
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2172791/)
+## 樱花FM|俄罗斯入侵乌克兰2周内71名儿童死亡
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2172980/)
 
 音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/YMfETEbgEOjmj2_N2ds8j99QgPUOXpdPvD1hmsKFwDDGMzADhlVmueS34alA5hz_5076gJPWsV9hEVzZpO9LD-kTKN5HcHsoIcpNEuADPNGPxk4Ubuoxgr93TTj3ts7L36KXmMlG)
-高盛集团和摩根大通3月10日表示正在关闭在俄罗斯的业务，成为首批在俄罗斯入侵乌克兰后关闭在俄业务的美国银行。
+![](https://lh6.googleusercontent.com/VJiM6rYAxI6iPmss_lmvQuUkrdm4-cLXz34Osxb3zgUdgHPs2MX4ZRFArq4IB8d6sy8mzOLAAqzvd0VvRhqXm6oMx2hiYSiQrZxPncN14nI6FCAEnItJhI5_0F4yuOlHCUAdQ5FM)
+基辅AFP时事，乌克兰最高会议(议会)人权监察专员吕德米拉·德尼索娃10日透露。2月24日俄罗斯入侵乌克兰后，截至3月10日的2周内至少有71名儿童死亡，超过100人受伤。
 
-高盛对俄罗斯的信贷风险敞口为6.5亿美元，该公司周四（3月10日）表示，正在关闭在俄罗斯的业务，此举可能会增加竞争对手跟进的压力。据一位熟悉情况的消息人士称，任何损失都是“无关紧要的”。
-
-仅仅几个小时后，摩根大通表示正在“积极关闭俄罗斯业务”，并且不在那里开展任何新业务。其在俄罗斯的业务目前仅限于帮助全球客户处理和结清先前存在的债务，管理他们与俄罗斯有关的风险，以及充当客户资产的托管方。
+乌克兰9日，东南部马里乌波尔产科医院遭到俄罗斯攻击，包括1名女孩在内的3人死亡。国际谴责高涨。丹尼索瓦先生还介绍了孩子死亡的例子。首都基辅西部日特米尔州空袭摧毁7栋房屋，3名儿童死亡。据说东部李珠姆住宅也遭到炮击，2名儿童死亡。
 
 文字版原文：
 
 
-| [中日财经爆┃高盛和摩根大通关闭俄罗斯业务](https://gnews.org/zh-hans/2142617/) |   |
+| [俄罗斯入侵乌克兰2周内71名儿童死亡](https://gnews.org/zh-hans/2142809/) |   |
 | --- | --- |
 
 

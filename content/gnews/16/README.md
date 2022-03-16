@@ -2,33 +2,31 @@
 ---
 
 
-## 法治基金救援帐篷附近出现疑似中共卧底
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2172787/)
+## 樱花FM|中日财经爆：时隔一天 俄央行将美金取现额砍半
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2172979/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+音频：东京樱花团/战友520
+![](https://lh3.googleusercontent.com/V8ac0L4_EOooW4OTMt-Zclx33yevrELtaw8ceJlMDlqATO5rqleYoPLZQS01nwrhXakelP4Z2-zWFnUnFCv_egs_xN3z-Q7BIrasneMjTfKvligbefpb-PliWBuLOOHhK-SvqU2t)
+俄罗斯央行周四（3月9日）宣布，未来六个月限制俄罗斯企业取得外币限制在10000美金以内。但是时隔一天，俄央行3月10日就把限额大砍50%，限制在最多5000美元。
 
-整理/编辑：小红帽
+俄罗斯因入侵乌克兰而遭制裁后，这是当局保存硬通货的最新措施。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-16_13-14-42.png)图片来源：郭文贵先生盖特视频截图
+3月10日至9月10日的限制期间，俄罗斯当地公司和企业人士最多只能取得5000美元等值的美元、日圆、英镑和欧元现金，而且只能用于支付海外公务旅行。
+
+俄罗斯央行网站声明称，在特殊情况下，经与监管机构协商，5000美元的上限可以提高。企业和个体商业人士取得其他外币现金则无上限。
+
+俄罗斯央行在3月9日宣布，在9月9日之前的半年时间内，拥有外汇账户的公民提取资金不得超过1万美元，并表示银行不得出售硬通货。
+
+文字版原文：
 
 
-3月15日，在波兰的梅迪卡难民援救中心，两个形迹可疑的华人面孔出现中国联邦和法治基金救援帐篷附近。他们慌张的神色令人不禁怀疑：这些人是否由中国共产党主使，企图对新中国联邦及法治基金的乌克兰救援行动进行骚扰和破坏。
+| [中日财经爆┃时隔一天 俄央行将美金取现额砍半](https://gnews.org/zh-hans/2142719/) |   |
+| --- | --- |
 
-从视频可见，这两个可疑的华人，在被新中国联邦志愿者的镜头捕捉后，慌忙离开，并不时回头看往法治基金帐篷这边。
 
-以下是现场可疑华人的照片：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-16_13-14-54.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-16_13-15-20.png)
-资料来源：[郭文贵先生2022年3月16日盖特视频](https://www.gettr.com/post/p1068wl7319)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

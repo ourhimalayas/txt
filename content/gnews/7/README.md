@@ -2,42 +2,21 @@
 ---
 
 
-## 在美国还有两党及参议院众议院和司法部等机构在管法官
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2172939/)
+## 视频|多个国际教育机构暂停俄罗斯会员的资格及认证
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2173079/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8843.61%EF%BC%89%E5%9C%A8%E7%BE%8E%E5%9B%BD%E8%BF%98%E6%9C%89%E4%B8%A4%E5%85%9A%E5%8F%8A%E5%8F%82%E8%AE%AE%E9%99%A2%E4%BC%97%E8%AE%AE%E9%99%A2%E5%92%8C%E5%8F%B8%E6%B3%95%E9%83%A8%E7%AD%89%E6%9C%BA%E6%9E%84%E5%9C%A8%E7%AE%A1%E6%B3%95%E5%AE%98%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:e)
+制作：香草山视频部
 
-**郭文贵先生：**首先我回答大家，我更加相信美国的法律，我更加相信美国的法官。你看到头两天纽约出现两个什么事情？大概4天前一个纽约的法官帮助自己的孩子找工作，结果有人一检举他，立马辞职了，是吧。
+台媒3月14日消息，随着俄罗斯侵略乌克兰的战争不断升级，国际社会对其的谴责和制裁纷至沓来。近日，多个国际教育认证机构发表声明，强烈谴责俄罗斯侵略行为，决定暂停俄罗斯境内的相关活动。
 
-另外一个是更夸张的是法官帮助自己的儿子来给人家约炮，是吧，就好像是这个消息是吧？因为我没看明白。结果人家告他，一告他呢，就是结果这个案子被Dismiss掉了，多夸张。人家告他，法官给他儿子约炮，然后他法官就不会立这个案子，那咋解决的呢？美国就是律师法律委员会，The ABA人家继续调查，这一调查这个法官立马就辞职了。
+据悉，工商管理硕士协会、国际商管学院促进协会、欧洲管理发展基金会等机构，于3月11日发表联合证明，表态反对俄罗斯入侵乌克兰。声明说，身为商业教育机构的全球领导者，上述机构坚定地与乌克兰人民站在一起，对俄罗斯的侵略所引发的人道危机迅速上升表示高度关切，并支持乌克兰人民捍卫自己的生活方式和主权。因此，决定暂停俄罗斯教育机构的所有会员资格和认证活动，直到另行通知。
 
-美国不是没人管，你在中共国，哪儿都有坏法官，哪儿都有坏法官，是吧，但是谁管的法官呢？管法官的人谁管他的呢？共产党。在美国它有两党，它有参议院，它有众议院，它有司法部，它有律师委员会，有法官委员会。它只是时间早晚的问题。
+发稿：qiutian（邱甜）
 
-编辑整理：Jacques；
-
-字幕档制作：兵嫂；
-
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+**更多资讯，更多关注
+[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 

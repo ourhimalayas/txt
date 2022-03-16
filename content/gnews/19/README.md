@@ -2,31 +2,40 @@
 ---
 
 
-## 樱花FM|中日财经爆：中共国扛不住卢布贬值 只能扩大交易幅度
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2172784/)
+## 俄乌战争导致大宗商品价格进一步上涨
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2172828/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/1RX3sTIoDdzNvVOmjH73_6_P2QWfTvXlyjbzFZm21jeJbL-e8dak25FHlOi1L5XWKQXmIEHzeQbCCzujBvhdgS_oVlGxptykOhIC9sYvSsRzzU16lLsg-umjylODSiHTx6etmoGa)
-中共国外汇交易中心周四（3月10日）称，为顺应市场发展要求，决定自周五(11日)起，银行间外汇市场人民币兑俄罗斯卢布即期交易价浮动幅度由5%扩大至10%。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-外汇交易中心网站发布的公告并指出，即每日银行间外汇市场人民币兑俄罗斯卢布的即期交易价可在交易中心对外公布的当日人民币兑俄罗斯卢布中间价上下10%的幅度内浮动。
+整理：等风来
+编辑：围剿维尼熊
 
-俄罗斯军事入侵乌克兰，遭到西方民主国家的集体大规模经济制裁，卢布大幅度贬值。
-
-中共国前外管局国际收支司司长管涛认为，由于近期国际市场卢布兑美元汇率波动加剧，而境内市场人民币兑非美货币5%的波幅不足以吸收外围市场影响，扩大波幅后能够较好反应国际外汇市场的变化。
-
-“人民币/卢布价格主要取决于美元兑卢布和人民币的变动，”一中资行交易员表示，近期卢布大幅波动，所以要扩大交易区间。
-
-文字版原文：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe-2.png)图片来源：雅典娜设计组
 
 
-| [中日财经爆|中共国扛不住卢布贬值 只能扩大交易幅度](https://gnews.org/zh-hans/2141446/) |   |
-| --- | --- |
+根据路透社3月15日报道，俄罗斯对乌克兰发动战争后，原油和其他大宗商品的价格变得更加昂贵。
 
+美国2月生产者物价指数(PPI)强劲上涨，受汽油等商品的价格急升推动，预计随着大宗商品价格上涨和全球贸易干扰加剧，该指数将出现进一步的上涨。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
+美国劳工部周二发布报告表明，通胀在未来几个月仍将保持令人不安的高水平，尽管2月核心生产者物价的压力仅略有增加。
+
+美国联邦储备委员会（FED）预计将于周三进行逾三年来的首次加息，目前通胀远高于美联储2%的目标。经济学家预测，联储今年将加息多达七次。并预计3月PPI将出现更大幅度的上涨。
+
+油价上涨和俄乌战争给纽约州企业的信心造成打击。根据另一份报告，纽约联邦储备银行表示，3月其衡量当前企业状况的指标骤降14.9点，至负11.8，为2020年5月以来最低。读数低于零表明该州制造业活动萎缩。
+
+制造商报告称，新订单和发货量出现萎缩，但投入成本还在增加，制造商还上调了其制成品价格。
+
+参考链接：[https://cn.reuters.com/article/wrapup-usa-ppi-0315-tues-idCNKCS2LD02K](https://cn.reuters.com/article/wrapup-usa-ppi-0315-tues-idCNKCS2LD02K)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
