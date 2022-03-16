@@ -2,38 +2,26 @@
 ---
 
 
-## 中共拒美核查审计底稿，中概股摘牌之路开启
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2171233/)
+## 中共国每年有2381.2万件消费投诉事件
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170903/)
 
-#### 【雅典娜观察】和您一起洞察世界
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-76.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.caixin.com%2F2017-03-15%2F1489575465929654.jpg&amp;imgrefurl=https%3A%2F%2Fdatanews.caixin.com%2Fm%2F2017-03-15%2F101066373.html&amp;tbnid=JPDHTOdfEf4UHM&amp;vet=12ahUKEwiai_CYz8j2AhVK0uAKHfrhAGcQMygIegUIARCaAQ..i&amp;docid=gcjVTTfc1Yy31M&amp;w=480&amp;h=320&amp;itg=1&amp;q=3.15%E6%8A%95%E8%AF%89&amp;ved=2ahUKEwiai_CYz8j2AhVK0uAKHfrhAGcQMygIegUIARCaAQ)
+3月15日每经经济报道，去年，通过全国12315平台等渠道共受理消费者投诉举报咨询2381.2
 
-**整理/编辑：文泓**
+万件，为消费者挽回经济损失55.5亿元，同比增长26%。通过构建有群众参与的全局性、动态性评价体系，调解成功率提高30.9个百分点，投诉举报处理时长缩短15.41天，消费维权效能明显提升，已推动8.7万家重点企业入驻全国12315平台。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/B8_@L1NXS03O@3ZT33.png)图片来源：The Motley Fool & 雅典娜设计组
+中共新闻统计在不经意间透漏出了中共国假丑骗的经济市场，每年投诉举报2381.2万件，为消费者挽回损失55.5亿元，中共以此为光荣事件，从来不去考虑源头的问题，为何有这么多投诉？
 
+中共把消费者当做牛羊一般任人屠宰，中国人每天都在假丑骗中度过，只有消灭共产党才可以解救国人。
 
-当地时间3月14日据大纪元报道，美国证券交易委员会（SEC）3月10日已将五家中国公司列入一份**“临时退市清单”**，因其拒绝让美国监管机构审查它们的审计底稿。
+消息来源：
 
-跟据美国《[外国公司问责法](https://www.epochtimes.com/gb/tag/%E5%A4%96%E5%9B%BD%E5%85%AC%E5%8F%B8%E9%97%AE%E8%B4%A3%E6%B3%95.html)》，如果监管机构连续三年无法审查在美上市公司审计底稿，该公司将被列入“确定退市清单”中；如该公司三年连续都在“确定退市清单”中，在第三年后正式进入退市程序。同时，在在被列入“确定退市清单”后，需提交额外的披露，包括中共政府对公司的影响力以及执政党相关人员在公司任职情况等。
+[【2021年全国12315平台挽回消费者损失超55亿元】](https://ml.mbd.baidu.com/r/CRDAzsEl8s?f=cp&amp;rs=2054748433&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=5b73362f459212bb&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-这五家公司首批上榜，是因它们率先提交年度报告。SEC将按照上市公司提交年度报告的先后依次认定那些违反《外国公司问责法》的公司。在接下来的几个月中，各公司会陆续披露年报，预计还会有更多中概股被加入“临时退市清单”中。在加入清单15个工作日后，该公司就会列入正式清单。
-
-所有在美上市的中国公司都可能最终出现在退市清单上，因中共的法律禁止它们向美国监管机构提供审计底稿。中共《证券法》规定，境外证券监督管理机构不得在中国境内直接进行调查取证等活动。未经中共国务院证券监督管理机构和国务院有关主管部门同意，任何单位和个人不得擅自向境外提供与证券业务活动有关的文件和资料。
-
-美国通过《外国公司问责法》迫使那些无视美国审计法规的公司从美国交易所退市，这是美国政府与中国“金融脱钩计划”的一部分。美国正在有计划地实施与中国经济脱钩的政策，试图从美国经济中剥离中国经济，并在志同道合的国家中间重建产业链。
-
-目前中概股在全面摘牌强大压力下，也许会对审计底稿进行“修改”；同时，SEC的雷霆行动正迫使在美国上市的中国公司转赴[香港上市](https://www.epochtimes.com/gb/tag/%E9%A6%99%E6%B8%AF%E4%B8%8A%E5%B8%82.html)。阿里巴巴、京东、百度、哔哩哔哩、携程、微博和蔚来已迈出了这一步。
-
-参考链接：[中共拒美查审计底稿 中概股摘牌之路开启](https://www.epochtimes.com/gb/22/3/14/n13644943.htm)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

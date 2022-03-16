@@ -2,22 +2,44 @@
 ---
 
 
-## 石油美元出现裂缝 沙特考虑接受人民币
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2172765/)
+## 七哥从强大经济能力&amp;国际关系和辨物识人做起走到今天
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2172860/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-112.jpg)
-图片来源：m.sohu.com
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8842.61%EF%BC%89%E4%B8%83%E5%93%A5%E4%BB%8E%E5%BC%BA%E5%A4%A7%E7%BB%8F%E6%B5%8E%E8%83%BD%E5%8A%9B%E3%80%81%E5%9B%BD%E9%99%85%E5%85%B3%E7%B3%BB%E5%92%8C%E8%BE%A8%E7%89%A9%E8%AF%86%E4%BA%BA%E5%81%9A%E8%B5%B7%E8%B5%B0%E5%88%B0%E4%BB%8A%E5%A4%A9%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:c)
 
-零对冲网3月15日报道，在进去40年中一个核心的稳定因素是因美元储备状况的扶植，全球金融系统基于石油美元的锚定。那就是产油国出售石油给美国和其他国家，均以美元结算，形成这种以美元计价的资产再循环投资美元计价的市场，这就是培植全球美元货币。这个过程奠定了美国在全球无容置疑的金融超级大国的地位。
+**郭文贵先生：**钱那个东西很重要，真的钱把很多人的腰给弯下来。一个国家的经济发展、一个国家的整个社会的稳定和有法律系统，最后有信仰是社会一系列的安全文明的保障。所以新中国联邦，你说“穷着搞革命”，我从来不相信，在这个时候大家有币和没币是啥感觉啊？想想。
 
-但在我们报道了关于华尔街日报称“沙特阿拉伯正在与北京进行密切谈判用人民币购买石油的事宜”，这将使以石油美元为主导的全球石油市场发生变化，这意味着全球原油出口市场不仅将向亚洲倾斜，也意味着指向了美国金融系统因着过去十年来超发美元以应付政府的化费而损害美元储备状况。
+第二个，我给你们天天伸手要钱，一直播“能不能先捐点钱呐？Danny、路森你们先别脱衣服，先给我捐100块，文紫医生，是吧？小飞象跟小飞侠你俩要不要先捐100块？” 不是钱的问题，你恶心得慌，我也没钱呐，是不是？不见得咱都有钱呐。
 
-沙特对美国不干预也门内战感到很不爽，而且对美国撤离阿富汗时的狼狈感到震惊，而中共国从沙特进口原油占沙特出口的25%，如果用人民币结算的话，就加强了中共国的货币，将成为全球石油人民币储备货币。
+所以七哥从第一天起，从清丰看守所出来，必须强大我的经济能力和国际关系和对事物辨别的能力和多交朋友，我才有今天的话。七哥在垃圾里找饭吃的情况下给你们讲出这些话来也不可能，物质生活不一定决定你的信仰，但物质生活绝对会影响你的信仰，影响你的人生。
 
-俄乌战争使得西方世界更需要能源，造成商品价格上升，而中共不声不响地在西方忙于搞定能源时选择在资金方面捞好处，它拉拢了非西方的也是富裕的原石油美元客户，给予新的产品—-人民币，中共正在主动性地将美元挤出全球储备货币系统。
+这就是我一定要告诉大家，一定要面对现实，不要忽悠自己。这就是不要相信共产党说的那样，“你们是无产阶级，你们都不要有钱、有东西”，是吧？“你们的钱财都是我的，爹亲娘亲没有党亲”，谁信呐？信了不就是傻子了嘛，我们一定要面对现实。
 
-#### 新闻来源： [Petrodollar Cracks: Saudi Arabia Considers Accepting Yuan For Chinese Oil Sales](https://www.zerohedge.com/markets/petrodollar-cracks-saudi-arabia-considers-accepting-yuan-chinese-oil-sales)
+编辑整理：Jacques；
+
+字幕档制作：兵嫂；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

@@ -2,31 +2,43 @@
 ---
 
 
-## 樱花FM|中日财经爆：中共国扛不住卢布贬值 只能扩大交易幅度
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2172784/)
+## 在美国还有两党及参议院众议院和司法部等机构在管法官
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2172939/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/1RX3sTIoDdzNvVOmjH73_6_P2QWfTvXlyjbzFZm21jeJbL-e8dak25FHlOi1L5XWKQXmIEHzeQbCCzujBvhdgS_oVlGxptykOhIC9sYvSsRzzU16lLsg-umjylODSiHTx6etmoGa)
-中共国外汇交易中心周四（3月10日）称，为顺应市场发展要求，决定自周五(11日)起，银行间外汇市场人民币兑俄罗斯卢布即期交易价浮动幅度由5%扩大至10%。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8843.61%EF%BC%89%E5%9C%A8%E7%BE%8E%E5%9B%BD%E8%BF%98%E6%9C%89%E4%B8%A4%E5%85%9A%E5%8F%8A%E5%8F%82%E8%AE%AE%E9%99%A2%E4%BC%97%E8%AE%AE%E9%99%A2%E5%92%8C%E5%8F%B8%E6%B3%95%E9%83%A8%E7%AD%89%E6%9C%BA%E6%9E%84%E5%9C%A8%E7%AE%A1%E6%B3%95%E5%AE%98%E3%80%902022%E5%B9%B402%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:e)
 
-外汇交易中心网站发布的公告并指出，即每日银行间外汇市场人民币兑俄罗斯卢布的即期交易价可在交易中心对外公布的当日人民币兑俄罗斯卢布中间价上下10%的幅度内浮动。
+**郭文贵先生：**首先我回答大家，我更加相信美国的法律，我更加相信美国的法官。你看到头两天纽约出现两个什么事情？大概4天前一个纽约的法官帮助自己的孩子找工作，结果有人一检举他，立马辞职了，是吧。
 
-俄罗斯军事入侵乌克兰，遭到西方民主国家的集体大规模经济制裁，卢布大幅度贬值。
+另外一个是更夸张的是法官帮助自己的儿子来给人家约炮，是吧，就好像是这个消息是吧？因为我没看明白。结果人家告他，一告他呢，就是结果这个案子被Dismiss掉了，多夸张。人家告他，法官给他儿子约炮，然后他法官就不会立这个案子，那咋解决的呢？美国就是律师法律委员会，The ABA人家继续调查，这一调查这个法官立马就辞职了。
 
-中共国前外管局国际收支司司长管涛认为，由于近期国际市场卢布兑美元汇率波动加剧，而境内市场人民币兑非美货币5%的波幅不足以吸收外围市场影响，扩大波幅后能够较好反应国际外汇市场的变化。
+美国不是没人管，你在中共国，哪儿都有坏法官，哪儿都有坏法官，是吧，但是谁管的法官呢？管法官的人谁管他的呢？共产党。在美国它有两党，它有参议院，它有众议院，它有司法部，它有律师委员会，有法官委员会。它只是时间早晚的问题。
 
-“人民币/卢布价格主要取决于美元兑卢布和人民币的变动，”一中资行交易员表示，近期卢布大幅波动，所以要扩大交易区间。
+编辑整理：Jacques；
 
-文字版原文：
+字幕档制作：兵嫂；
 
+视频制作及上传：Cindy；
 
-| [中日财经爆|中共国扛不住卢布贬值 只能扩大交易幅度](https://gnews.org/zh-hans/2141446/) |   |
-| --- | --- |
+G-News发布：海贼王M.D.LUFFY；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
