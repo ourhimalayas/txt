@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 6:13 PM (UTC)`
+
+【Ukraine Rescue】In Medyka, Poland. The photographer captured an unforgettable video that happened on the front line: during the short interval between serving two groups of refugees in the rescue tent of NFSC, one rescue member was playing football with a Ukrainian boy. We want the war to end as soon as possible and Ukrainian people can return to a peaceful life. NFSC rescue team is the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity! <br/>【乌克兰救援】波兰梅迪克， 摄影师抓拍到了救援前线的一个难忘的视频，在服务两批难民的简短空隙时间，一名救援队员正和一名乌克兰孩子在新中国联邦的救援帐篷内踢足球。我们希望战争尽快结束，乌克兰人民能够恢复和平的生活！新中国联邦救援团队是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。
+![img](https://media.gettr.com/group11/origin/2022/03/16/18/d42c671b-8adb-a8fe-b275-279cde232387/out.jpg)
+
+---
+
+`@miles 3/16/2022 6:10 PM (UTC)`
+
+【Ukraine Rescue】<br/>In the cold night, the rescue team from the New Federal state of China and the Rule of Law Foundation prepared warm tents, blankets, food, hot coffee, chargers, toiletries, etc. so that everyone who escape Ukraine can enjoy a moment of comfort.<br/>【乌克兰救援】<br/>在寒冷的夜里，来自新中国联邦、法制基金的救援队，为大家准备了温暖的帐篷、毛毯、食物、热咖啡、充电器、洗漱用品等，让每一位逃离乌克兰的人都能享受到片刻的舒适。
+![img](https://media.gettr.com/group5/origin/2022/03/16/18/827d23aa-5293-6c1b-91b8-71283d2c1b4d/out.jpg)
+
+---
+
 `@miles 3/16/2022 4:18 PM (UTC)`
 
 3月16号：【长岛哥，刚才，波兰🇵🇱第二大广播电台ZET 在他们的官方推特账号上报道了“中共不代表中国人“ “新中国联邦在梅蒂卡的帐篷是最大最好的“】<br/>https://twitter.com/rafalmizejewski/status/1504088603089162252?s=21
@@ -143,20 +157,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 3/15/2022 Miles Guo: Our fellow fighter had warned Liu Yazhou to run, and I was the first to know that Liu Yazhou would be arrested. The three most marvelous things about the New Federal State of China: 1) the Ukraine rescue operation; 2) the Himalaya Coin that has made a lot of people rich; and 3) our media platforms capable of competing with the CCP to make our voice heard. Yang Jiechi doesn't even dare to mention my name and the NFSC & ROLF Ukraine rescue operation.<br/><br/>3/15/2022 文贵直播：咱战友曾提醒刘亚洲快跑，文贵最早知道刘亚洲会被抓；新中国联邦最精彩的3件事：1) 乌克兰救援；2) 喜币让很多人赚了钱；3) 我们的媒体平台能与中共抢夺话语权；杨洁篪竟不敢提文贵的名字和乌克兰救援！<br/>
 ![img](https://media.gettr.com/group17/getter/2022/03/16/07/74ed575b-d48b-61a0-5168-e01076f348eb/out.jpg)
-
----
-
-`@miles 3/16/2022 7:01 AM (UTC)`
-
-3/15/2022 文贵直播：习近平最信任的秘书韩立平说当前中共最大的不确定性是皇帝的身体；即便美国炸了中共3万个军事基地，中共仍会死灰复燃，灭掉中共的一定会是中共自己<br/><br/>3/15/2022 Miles Guo: Han Liping, who is Xi Jinping's most trusted secretary, said the currently biggest uncertainty of the CCP is the health condition of the emperor, Xi. Even if the US bombed all the 30,000 CCP military bases, the CCP would revive. It is definitely the CCP itself that will take down the CCP.
-![img](https://media.gettr.com/group15/getter/2022/03/16/06/168a73d2-a511-5fd6-f640-a4e6391d6658/out.jpg)
-
----
-
-`@miles 3/16/2022 5:32 AM (UTC)`
-
-The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Rescue Team – 24h Hotline: +1 7206576776 or +1 719-224-4232 or +48 508-532-712 or +48 508-531-518 Telegram: t.me/UkraineRescue GETTR: https://gettr.com/user/UkraineRescue<br/>我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є першопричиною катастроф у світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
-![img](https://media.gettr.com/group33/origin/2022/03/16/04/209b7700-8e67-53d0-f2bb-9f48b88dd8be/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

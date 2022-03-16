@@ -15,56 +15,56 @@
 
 ---
 
-### [面临俄罗斯威胁，北约将在东欧部署更多部队和导弹防御系统](/content/gnews/1/README.md)
+### [2022年3月15日 《文贵大直播》全文字版](/content/gnews/1/README.md)
+ ` 温哥华扬帆农场《文贵大直播》全文听写组`
+
+### [面临俄罗斯威胁，北约将在东欧部署更多部队和导弹防御系统](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳防长警告北京可能利用俄乌冲突吞并台湾](/content/gnews/2/README.md)
+### [澳防长警告北京可能利用俄乌冲突吞并台湾](/content/gnews/3/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [有声|中共当局批准病毒快筛试剂盒上市](/content/gnews/3/README.md)
+### [有声|中共当局批准病毒快筛试剂盒上市](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [有声|法国取消疫苗通行证及强制口罩令](/content/gnews/4/README.md)
+### [有声|法国取消疫苗通行证及强制口罩令](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [如果中共帮助俄罗斯，两党议员表示会支持制裁中共国](/content/gnews/5/README.md)
+### [如果中共帮助俄罗斯，两党议员表示会支持制裁中共国](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|波兰总理呼吁应冻结俄国海外资产重建乌克兰](/content/gnews/6/README.md)
+### [有声|波兰总理呼吁应冻结俄国海外资产重建乌克兰](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [不同批次新冠疫苗的活性成分含量不同再次被确认](/content/gnews/7/README.md)
+### [不同批次新冠疫苗的活性成分含量不同再次被确认](/content/gnews/8/README.md)
  ` Little c`
 
-### [有声|美日举行2022年度首次大规模军演](/content/gnews/8/README.md)
+### [有声|美日举行2022年度首次大规模军演](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [下周三大直播兄弟姐妹们见到的可能就是已经破产的七哥](/content/gnews/9/README.md)
+### [下周三大直播兄弟姐妹们见到的可能就是已经破产的七哥](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2022/03/16文贵先生盖特精要](/content/gnews/10/README.md)
+### [2022/03/16文贵先生盖特精要](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【转】截至3.16 俄乌战事汇总（1）](/content/gnews/11/README.md)
+### [【转】截至3.16 俄乌战事汇总（1）](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘密翻译组扛起社交媒体半壁江山，利益荣誉却要得最少](/content/gnews/12/README.md)
+### [秘密翻译组扛起社交媒体半壁江山，利益荣誉却要得最少](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [WTO成员国撤销俄罗斯&#8221;最惠国待遇&#8221;](/content/gnews/13/README.md)
+### [WTO成员国撤销俄罗斯&#8221;最惠国待遇&#8221;](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [中澳关系在军事、政治、科学领域再创新低](/content/gnews/14/README.md)
+### [中澳关系在军事、政治、科学领域再创新低](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [习共赌美不敢同时打三场战争，攻台恰是其灭亡第三道大门](/content/gnews/15/README.md)
+### [习共赌美不敢同时打三场战争，攻台恰是其灭亡第三道大门](/content/gnews/16/README.md)
  ` 波士顿五月花农场`
 
-### [七哥说—第56期](/content/gnews/16/README.md)
+### [七哥说—第56期](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [世界政治军事经济大变局下无苗灭共者再加上无苗有币者](/content/gnews/17/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [新中国联邦在推特上被广泛介绍](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
