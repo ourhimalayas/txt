@@ -2,40 +2,42 @@
 ---
 
 
-## 美国记者在乌克兰被枪杀……《时代》杂志：&#8221;极为震惊&#8221;。 哀悼、谴责之声蔓延(2)
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2173910/)
+## 杀习近平一人则2300万台湾同胞+14亿同胞+全世界得救
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2173960/)
 
-[上一篇：美国记者在乌克兰被枪杀……《时代》杂志：”极为震惊”。 哀悼、谴责之声蔓延(1)](https://gnews.org/zh-hans/2173309/)
+Youtube视频链接：[https://youtu.be/3MxhWZyjf94](https://youtu.be/3MxhWZyjf94)
 
-翻译：zicoround
+Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1766-edited.png)news.yahoo.co.jp
+**郭文贵先生：**这个时候我希望是习怎么样？我希望他不打，我希望他真地放下“屠刀立地成佛”。但这是有点很幻想，相当于一个三岁的政治水平。但是我是人，我站在台湾同胞上，站在中国人长远利益上，如果我是习近平我今天，或者我是习近平身边的人，我就把他做掉，我一定把他做掉。
 
-“记者不应被当作目标”
+他甭说是“习太阳”，他就是我亲爹、他就是我亲哥，我一定手起刀落把他头给砍下来。因为我砍下他的头，我能拯救14亿中国人，我能拯救2300万人。我绝对能做到，这点你们相不相信？我绝对能做到。我没有刀，我把他咬我也得把他脖子咬断，因为他拯救他自己、拯救人类。
 
-国际组高层和世界领导人也发出了呼吁。
+编辑整理：Jacques；
 
-法国总统马克龙在推特发文说：“我认为所有被勇气与理想、以及新闻报导自由所驱动记者们的事迹。 这种自由是我们民主的根本。”
+字幕文件制作：小满；
 
-英国首相约翰逊也在推特强烈谴责，“普京杀害布伦特・雷诺为等无辜平民的野蛮行径，不仅使乌克兰，而且使全人类遭受考验。” 他透露，已与乌克兰总统泽连斯基会面，并“承诺将继续尽一切可能结束这场悲惨的战争。”
+视频制作及上传：Cindy；
 
-保护新闻自由、致力促进记者安全的UNESCO（联合国教科文组织）总干事奥黛丽-阿祖莱发表了一份谴责声明。
+G-News发布：小满；
 
-“记者承担着在战争时期提供信息的重要作用，绝不应成为攻击目标。 我们要求尊重国际人道主义标准，切实保护记者和媒体人员。”
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-采访报导多个战乱地区，2014年获得皮博迪奖
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-布伦特先生曾就职于NBC（全国广播公司）和《纽约时报》等美国新闻机构，在多个战乱地区进行过采访报导。 2014年，他与他的兄弟克雷格合作的系列节目《高中最后希望》（Last Chance High），对芝加哥学校中情绪不稳定的学生和教师的状况进行了描述，并因此获得了美国杰出广播作品皮博迪奖。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-【完结】
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-来源：【news.yahoo.co.jp】[米ジャーナリスト、ウクライナで銃撃受け死亡…タイム誌「大きなショック」。追悼や非難の声広がる](https://news.yahoo.co.jp/articles/19ae6fef1ab65adaa5d8b24c673616cae359aced?page=2)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-审核：BryanW 
-校对：宫米叶
-发布：花羽
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

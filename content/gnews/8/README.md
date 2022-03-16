@@ -2,8 +2,8 @@
 ---
 
 
-## 20220315文贵大直播：韩正违背习令，乔装回上海，韩正又说，俄乌开战我们都得完蛋
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2173871/)
+## 20220315文贵大直播：中共在中东问题上的战略目的是什么？
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2173912/)
 
 作者:东京樱花团小视频组
 

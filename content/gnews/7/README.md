@@ -2,49 +2,49 @@
 ---
 
 
-## “独裁者”福奇的权力受到兰德·保罗修正案的限制
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2173881/)
+## 全世界无法否定五年来对海航王健马云乌克兰台湾的爆料
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2173936/)
 
-编译： Jenny Ball
+Youtube视频链接：[https://youtu.be/74qFjZ-kwQQ](https://youtu.be/74qFjZ-kwQQ)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1770.png)图片来源：republicbrief.com
+Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
-最近可能没有了安东尼·福奇博士的消息，但至少有一位共和党人正在采取措施，试图剥弱他不受约束和不负责任的权威，从而避免他在过去两年中表现出的官僚暴政。
+**郭文贵先生：**这时候形成了什么？一党独大，所有的政治斗争对江河的毁坏，几个腐败家族盗国的结果，和完全找出来一个以为对老百姓该下手、敢下手的“习二”“习太阳”。
 
-兰德·保罗（Rand Paul）经常与这个拒绝个人自由等美国理念的人发生冲突，他计划立法解除福奇的国家过敏和传染病研究所（NIAID）所长职位，并将他的权力重新分配给三个新的研究所。
+共产党这时候是要怎么再把地再分一回，怎么把钱再弄回来，找个二货上去，“南普陀计划”，让习……“你干完一届，你杀完人，弄完以后，一脚把你踹完。” 都是这小子干的，是吧？跟我没关系。共产党再继续执政。
 
-保罗在福克斯新闻周一的一篇文章中写道：“新冠病毒的影响并不止于此，我们失去的不仅仅是个人健康，我们失去了自由。我们失去了生机勃勃的小镇日常生活。我们失去了孩子的成长和学习。两年来，我们的生活被这个小暴君和那些渴望权力的官僚俘虏。”
+它没想到“习二”上来成“习太阳”了，要把所有的所谓“南普陀”的人全灭掉，“而且我要给全世界把脉，全世界都病了，我脑子很清楚，我很健康，我要给全世界治病。” 这个局面已经无法更改。
 
-“在过去的两年里，我们学到了很多东西，但特别值得一提的是，**任何人都不应成为“独裁者”**。**任何人都不应该拥有为数百万美国人做出决定的单方面权力**，”他继续说道。
+特别新中国联邦Miles Guo带着战友振臂高呼：TAKE DOWN THE CCP，中国共产党不等同于中国人，中国人活在水深火热之中，江河已毁，人心已烂，跟世界为敌。
 
-“**为确保不再将无效、不科学的封锁和命令强加给美国人民**，我将提出一项修正案，取消安东尼·福奇博士作为NIAID所长的职位，并将他的权力分为三个独立的新机构，”保罗说。这个想法很可能会遭到职业管理者及其支持者的强烈反对。
+经过五年的爆料，海航事件、王健事件、马云事件、私有化、习近平的各种行为、乌克兰、冠状病毒、疫苗、台湾，共产党的经济“买买买”到现在是“卖卖卖”，然后收回所谓的征服香港、杀害香港同胞，现在欲侵占台湾，全世界没有人敢否定我们说这些有一样是假的。
 
-保罗的修正案，将是从福奇手中夺走 NIAID 控制权的一种方式。**自里根总统当选以来，福奇就作为这个庞大机构的负责人，他控制着数十亿美元的预算。这笔钱中的一部分可能已被送到武汉的中共实验室，该实验室进行了“功能获得”研究**，许多人怀疑新冠病毒是从那里逃脱出来。
+编辑整理：Jacques；
 
-参议员在他的立法中说：“这三个研究所中的每一个都将由一名主任领导，该主任由总统任命，并由参议院确认，任期五年。这将对纳税人资助的职位产生问责和监督，该职位在很大程度上滥用了权力，并在 COVID-19 大流行期间，对许多失败和错误信息负有责任。”
+字幕文件制作：小满；
 
-“没有人应该拥有支配科学的唯一权力，**尤其是当那个人从来没有遵循科学的时候**。我从一开始就这么说，而且，关于口罩、封锁、学校、自然免疫力，所有这些，我一次又一次地被证明是正确的”保罗说。
+视频制作及上传：Cindy；
 
-“一个理性的人可能会问，我们到底为何花了这么长时间才找到真相？为什么我们花了两年时间不关注科学？”保罗继续说：“好吧，当‘科学’由一个人支配时，就会发生这种情况，一个未经选举产生的官僚，拥有太多的权力。”
+G-News发布：小满；
 
-**拜登总统的首席医疗顾问总是将自己标榜为“科学”**，正如他在接受哥伦比亚广播公司新闻采访时表明的，自己是一个拒绝接受国会监督的观点的独裁者。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-根据保罗在他的专栏中的说法，COVID 霸主摧毁了生命，摧毁了小企业，关闭了学校，并伤害了社会的儿童，保罗称这些都是封锁的主要受害者。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-“在全国范围内，自 2020 年初以来，数以百万计的孩子没有经历过正常的上学日。无论是虚拟学习、还是必须整天戴口罩、被有机玻璃隔开、强制接种疫苗、每周或每日测试，取消了课外活动、体育运动，没有什么是正常的，它给我们的孩子留下了伤疤，”保罗认为。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-“过去两年我们学到的最大教训是，任何人都不应该拥有如此不受约束的权力。我的修正案将在本周获得投票，最终将强制问责并解雇福奇博士，”保罗宣称。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-福奇离开电视广播与民主党担心 COVID 限制可能对其选举前景产生负面影响的担忧完全同步；然而，如果民主党在 11 月中期选举后继续控制国会，福奇可能会重新领导新一轮的封锁，这使得保罗参议员的提议比以往任何时候都更加重要。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-素材链接：[republicbrief.com][‘Dictator in chief’ Dr. Fauci’s power to be limited by Rand Paul’s amendment](https://republicbrief.com/dictator-in-chief-dr-faucis-power-to-be-limited-by-rand-pauls-amendment/)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-* * *
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
