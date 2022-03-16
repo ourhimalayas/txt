@@ -15,116 +15,116 @@
 
 ---
 
-### [【乌克兰救援】03/14/22 妮可在梅迪卡救援中心进行第四天的直播报道：我们是新中国联邦的志愿者，致力于推翻中共，并为逃离战火的乌克兰人民提供救援](/content/gnews/1/README.md)
+### [2022/03/16 英喜时事速递](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共美化杨洁篪同沙利文在意大利罗马的会晤](/content/gnews/2/README.md)
+ ` 儒为`
+
+### [大直播后记：战友展示新中国联邦形象](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [【乌克兰大救援】3/14/2022 著名战地钢琴家大卫·马特罗在梅地卡奏响新中国联邦的国歌，以表达对大救援行动的支持](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [昆士兰建筑业巨头 Condev 倒闭](/content/gnews/2/README.md)
+### [坑中岁月难静好](/content/gnews/5/README.md)
+ ` 银河勇气之星`
+
+### [中共国有几千万人处于封锁中，官员呼吁60岁以上人接种](/content/gnews/6/README.md)
  ` 澳喜农场`
 
-### [日本东京樱花团 中文新闻播报第22期](/content/gnews/3/README.md)
+### [文•贵天成——文贵先生谈“Mike Bloomberg (迈克尔•布隆伯格)”（二）](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【乌克兰救援】03/14/22 妮可在梅迪卡救援中心进行第四天的直播报道：我们是新中国联邦的志愿者，致力于推翻中共，并为逃离战火的乌克兰人民提供救援](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [昆士兰建筑业巨头 Condev 倒闭](/content/gnews/9/README.md)
+ ` 澳喜农场`
+
+### [日本东京樱花团 中文新闻播报第22期](/content/gnews/10/README.md)
  ` Tokyo Sakura Video Group`
 
-### [以色列：最多允许5000名乌克兰人入境](/content/gnews/4/README.md)
+### [以色列：最多允许5000名乌克兰人入境](/content/gnews/11/README.md)
  ` xiaobaige`
 
-### [大直播后记：俄乌战争背后黑手是共产党，而新中国联邦人继续救人](/content/gnews/5/README.md)
+### [大直播后记：俄乌战争背后黑手是共产党，而新中国联邦人继续救人](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [20220315文贵大直播：共产党拿下香港就是为了实现共产主义铁拳的肆意妄为](/content/gnews/6/README.md)
+### [20220315文贵大直播：共产党拿下香港就是为了实现共产主义铁拳的肆意妄为](/content/gnews/13/README.md)
  ` Tokyo Sakura Video Group`
 
-### [英首相中东行欲弃俄油 沙特与中共愈走愈近](/content/gnews/7/README.md)
- ` 波士顿五月花农场金融部`
-
-### [20220315文贵大直播：前线战友注意安全，小心布隆伯格这种政治流氓](/content/gnews/8/README.md)
+### [20220315文贵大直播：前线战友注意安全，小心布隆伯格这种政治流氓](/content/gnews/14/README.md)
  ` Tokyo Sakura Video Group`
 
-### [大直播后记：以共灭共不可阻挡！](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [20220315文贵大直播：排华事件一定会发生，中共宁予外贼不予家奴对的外援助拿回扣](/content/gnews/10/README.md)
- ` Tokyo Sakura Video Group`
-
-### [辉瑞CEO承认选择mRNA疫苗技术是反常理的](/content/gnews/11/README.md)
+### [辉瑞CEO承认选择mRNA疫苗技术是反常理的](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [20220315文贵大直播：中共内部问题，转移视线，外部解决打台湾](/content/gnews/12/README.md)
- ` Tokyo Sakura Video Group`
+### [你认为在我们看到这个国家发生了这么多屠杀之后，福奇医 生会逃脱法律制裁吗?](/content/gnews/16/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [大直播后记：曾庆红受到威胁，韩正布置后事](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [【乌克兰救援】03/15/22 一些形迹可疑的华人面孔出现在新中国联邦梅迪卡救援中心的附近](/content/gnews/14/README.md)
+### [【乌克兰救援】03/15/22 一些形迹可疑的华人面孔出现在新中国联邦梅迪卡救援中心的附近](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共拥有的福布斯解雇了一位顶级透明度专栏作家](/content/gnews/15/README.md)
+### [中共拥有的福布斯解雇了一位顶级透明度专栏作家](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【乌克兰救援】03/15/22 妮可向彭博社记者Aggi Cantrill介绍：新中国联邦消灭中国共产的的政治目标同时也是人道目标，所有人道灾难都是中国共产党造成的](/content/gnews/16/README.md)
+### [【乌克兰救援】03/15/22 妮可向彭博社记者Aggi Cantrill介绍：新中国联邦消灭中国共产的的政治目标同时也是人道目标，所有人道灾难都是中国共产党造成的](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [辽宁政法系统持续震荡](/content/gnews/17/README.md)
- ` 澳喜特战旅Gnews`
-
-### [亚洲｜朝鲜发射新型弹道导弹惊动美国 分析：可能危害美国本土](/content/gnews/18/README.md)
+### [亚洲｜朝鲜发射新型弹道导弹惊动美国 分析：可能危害美国本土](/content/gnews/20/README.md)
  ` 關注組`
 
-### [令人震惊的照片：急诊室的尸体被遗弃在地上](/content/gnews/19/README.md)
+### [令人震惊的照片：急诊室的尸体被遗弃在地上](/content/gnews/21/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [现在所有“专家”被迫承认：他们在COVID上都错了](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【乌克兰救援】03/14/2022 多个救援组织第一次聚集在新中国联邦和法治基金的救援帐篷里开会讨论如何把梅迪卡的救援营地管理得更好](/content/gnews/21/README.md)
+### [【乌克兰救援】03/14/2022 多个救援组织第一次聚集在新中国联邦和法治基金的救援帐篷里开会讨论如何把梅迪卡的救援营地管理得更好](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【乌克兰救援】03/14/2022 两位来自伦敦的记者正在新中国联邦和法治基金的救援帐篷里享用新中国联邦的咖啡。他们说这是目前波兰最棒的咖啡](/content/gnews/22/README.md)
+### [【乌克兰救援】03/14/2022 两位来自伦敦的记者正在新中国联邦和法治基金的救援帐篷里享用新中国联邦的咖啡。他们说这是目前波兰最棒的咖啡](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共敢对台湾开战是赌美国不可能同时打赢三场战争](/content/gnews/23/README.md)
+### [中共敢对台湾开战是赌美国不可能同时打赢三场战争](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [专家警告说新的伊朗核协议将帮助普京逃避制裁](/content/gnews/24/README.md)
+### [专家警告说新的伊朗核协议将帮助普京逃避制裁](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [FBI特工称，刘特佐从高盛的一马公司交易中窃取了14.2亿美元](/content/gnews/25/README.md)
+### [FBI特工称，刘特佐从高盛的一马公司交易中窃取了14.2亿美元](/content/gnews/26/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [华硕电脑断供俄罗斯市场](/content/gnews/26/README.md)
+### [华硕电脑断供俄罗斯市场](/content/gnews/27/README.md)
  ` 澳喜农场`
 
-### [欧盟禁止顶级信用评级公司对俄罗斯及俄企进行评级](/content/gnews/27/README.md)
+### [欧盟禁止顶级信用评级公司对俄罗斯及俄企进行评级](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [苹果供应商富士康在COVID封锁下关闭深圳厂区](/content/gnews/28/README.md)
+### [苹果供应商富士康在COVID封锁下关闭深圳厂区](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声｜中共早已“金玉其外，败絮其中”](/content/gnews/29/README.md)
+### [有声｜中共早已“金玉其外，败絮其中”](/content/gnews/30/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [埃隆•马斯克推特发帖对普京发起挑战](/content/gnews/30/README.md)
+### [埃隆•马斯克推特发帖对普京发起挑战](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美参议院决议支持对普京进行战争罪调查](/content/gnews/31/README.md)
+### [美参议院决议支持对普京进行战争罪调查](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄乌战争导致大宗商品价格进一步上涨](/content/gnews/32/README.md)
+### [俄乌战争导致大宗商品价格进一步上涨](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳州人权专员抨击扩大卫生官的应急权限](/content/gnews/33/README.md)
+### [澳州人权专员抨击扩大卫生官的应急权限](/content/gnews/34/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [世界银行将向乌克兰提供30亿美元一揽子援助计划](/content/gnews/34/README.md)
+### [世界银行将向乌克兰提供30亿美元一揽子援助计划](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登签署法案,向乌克兰提供历史性的136亿美元资金](/content/gnews/35/README.md)
+### [拜登签署法案,向乌克兰提供历史性的136亿美元资金](/content/gnews/36/README.md)
  ` 美国政要直译推`
 
-### [沙特考虑部分对中共国出口石油以人民币结算](/content/gnews/36/README.md)
+### [沙特考虑部分对中共国出口石油以人民币结算](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新中国联邦驻波兰梅迪卡国际救援中心营地印象](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [韩正瞒习秘回上海，韩立平称历史上都是“皇帝”的身体决定着乾坤](/content/gnews/38/README.md)
  ` YALUN 亚伦`

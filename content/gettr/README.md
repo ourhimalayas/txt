@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 10:48 AM (UTC)`
+
+【Ukraine Rescue】3/14/2022 Davide Martello, a renowned warzone musician, moved his piano close to the tents of the New Federal State of China (NFSC) after he found out the NFSC people are striving to take down the Chinese Communist Party and are now providing humanitarian aid to the refugees from Ukraine. He then played the NFSC anthem—the Pinnacle of Freedom to show his support. <br/><br/>【Ukraine Rescue】3/14/2022 著名战地音乐家大卫·马特罗在了解到新中国联邦人正在努力推翻中国共产党，并且正在为乌克兰难民提供人道援助后，把他的钢琴搬到新中国联邦搭建的帐篷附近，并当地演奏了新中国联邦国歌—自由之巔以表支持。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group6/getter/2022/03/16/10/b137cc60-b0fe-7490-60e9-a9b87ac20847/out.jpg)
+
+---
+
+`@miles 3/16/2022 10:44 AM (UTC)`
+
+【乌克兰救援】 03/16/22 一位波兰志愿者丹尼尔表示，新中国联邦的咖啡在整个基地是个传奇。他身旁的美国志愿者虽然还没有喝过，但表示早有耳闻，马上要去尝尝。<br/><br/>【Ukraine Rescue】 03/16/22 Daniel， a volunteer from Poland, said that the coffee of the NFSC is legendary on the whole site. The American volunteer Alyssa said she’s going to try it.<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group16/getter/2022/03/16/10/19686924-a7da-6e42-0fac-00e8640ca622/out.jpg)
+
+---
+
+`@miles 3/16/2022 10:41 AM (UTC)`
+
+【Ukraine Rescue】 03/16/22 VOA journalist: I think any Chinese has to take NFSC’s people as an idol and example to follow in the future. We need to push out the bad CCP, not only for China, but also for everyone. The CCP puts the hard-earned money squeezed out of the Chinese into their own pockets.<br/><br/>【乌克兰救援】 03/16/22 美国之音记者：任何一个中国人都要把新中国联邦人当作偶像和榜样去学习，我们需要推翻这个邪恶的中共，不仅仅是为了中国人，也是为了世界上每个人。中共把压榨中国人的血汗钱放进自己的腰包。<br/>
+![img](https://media.gettr.com/group38/getter/2022/03/16/10/a6ab2387-d6d6-51f9-5f8a-1e9a7e352444/out.jpg)
+
+---
+
 `@miles 3/16/2022 9:17 AM (UTC)`
 
 【Ukraine Rescue】 03/16/22 Nicole was interviewed by an independent French reporter and explained to him that we're the NFSC people taking down the Chinese Communist Party because the Chinese Communist Party is the root cause of all the global disasters and humanitarian crisis, so taking down the Chinese Communist Party is the only way to save humanity<br/><br/>【乌克兰救援】 03/16/22 妮可接受法国独立记者的采访，向他介绍我们是消灭邪恶中共的新中国联邦人，中共是所有全球灾难和人道主义危机的根源，只有消灭中共才能拯救全人类<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -137,27 +158,6 @@ Steve Bannon: Do we have an alternative but to take down the CCP?<br/>CAPT Jim F
 
 The tearful face in this painting is the little girl who escaped from her hometown. She hated war, prayed for peace, and longed to play with her father. But it all turned into a luxury. Little girl, don't give up hope, there is the New China Federation, and there are brave, kind, caring and just people. The Chinese who want to destroy the Chinese Communist Party will help you.<br/>这幅画中泪流满面的脸是那个从家乡逃出来的小女孩。 她讨厌战争，祈求和平，渴望和父亲一起玩耍。 但这一切都变成了奢侈品。 小姑娘，不要放弃希望，有新中国联邦，有勇敢、善良、有爱心、正义的人。消灭中国共产党的中国人会帮助你。
 ![img](https://media.gettr.com/group12/origin/2022/03/15/22/93a5bff1-f7f9-8e5f-26c0-fdbb7a436d6a/out.jpg)
-
----
-
-`@miles 3/15/2022 10:13 PM (UTC)`
-
-Recently, the Chinese Communist Party (CCP) shamelessly lied，to the public that the Rule of Law Foundation's NFSC's rescue mission to Ukraine was assigned by the CCP. In the public, the Chinese Communist Party blatantly lied<br/>近日，中共竟然恬不知耻地对外谎称，法治基金新中国联邦对乌克兰的救援行动是受中共指派，光天化日之下，中共公然撒谎。
-![img](https://media.gettr.com/group26/origin/2022/03/15/22/4f10540f-576e-ac19-16fd-85f1ed0a0f18/out.jpg)
-
----
-
-`@miles 3/15/2022 10:02 PM (UTC)`
-
-3/15/2022 Miles Guo: For the first time since the establishment of the CCP regime, Beijing, wealthy coastal areas, and the war zones preparing to attack Taiwan secretly reported to the CCP's Central Committee that they could not pay their salaries. Half of the grain being transferred from Heilongjiang Province to the Xinjiang concentration camps was unloaded on the way, and even the political godfather, Zeng Qinghong, has been threatened<br/><br/>3/15/2022 文贵直播：共匪建政以来首次出现，北京、沿海富裕地区和对台战区密报中央，说发不出工资了，黑龙江调往新疆集中营的粮食在路上被截了一半，连政治教父曾庆红都受到了威胁<br/>
-![img](https://media.gettr.com/group43/getter/2022/03/15/22/eee0c89a-097a-1aab-69ed-e9da76e9a528/out.jpg)
-
----
-
-`@miles 3/15/2022 10:01 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-15
-![img](https://media.gettr.com/group31/origin/2022/03/15/22/d7eede8b-61d3-1c98-2073-8244387fcd11/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
