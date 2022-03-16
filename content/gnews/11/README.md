@@ -2,35 +2,31 @@
 ---
 
 
-## 韩国两大航空公司宣佈航线不再经由俄罗斯领空
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176863/)
+## 遭西方指责的沙特王子在俄罗斯和中共国问题上面临两难境地
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2176919/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-韩国两大航空公司，大韩航空和韩亚航空15日宣布，停飞俄罗斯航线，同时，所有飞往欧美的航线也不再经由俄罗斯领空。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-虽然，俄罗斯政府并未禁止韩国航班在俄罗斯领空飞行，但出于安全考虑，两大航空公司还是决定绕飞。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-58.jpg)
-大韩航空在一份声明中表示，仁川至莫斯科以及符拉迪沃斯托克之间的航班，包括在莫斯科中途停留的航班全部暂停，同时，首尔往来伦敦等欧洲航线的航班将改道中国、哈萨克斯坦和土耳其等其他国家，而往来纽约等北美地区的航班则改道阿拉斯加和太平洋，预计单程将分别增加1～2小时左右的飞行时间。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/B5HZGQTLEBLJPGI3YI5F63NXE4.jpg)
 
-另外，有报道指，自俄罗斯入侵乌克兰，欧洲对俄罗斯关闭领空后，包括日本全美航空在内的各大航空公司都有计划改道欧亚航线。
 
-参考链接：[Korean Air to reroute flights that use Russian airspace](https://www.reuters.com/world/asia-pacific/korean-air-says-reroute-flights-that-used-russian-airspace-2022-03-15/)
+图片来源：路透社
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+美国和英国正在加大对沙特阿拉伯的压力，要求其增加石油产量并联合努力孤立俄罗斯，而利雅得几乎没有表现出回应的意愿，并再次威胁要在向中共国出售石油时放弃美元。
 
-总编/编辑/审核：天滅中共
-校对/发稿：Hetangyuese
+在美国安全顾问布雷特麦格克率美国代表团抵达的第二天，英国首相鲍里斯约翰逊周三飞抵世界最大的原油出口国。
 
-**更多资讯，更多关注**
+沙特阿拉伯及其邻国阿拉伯联合酋长国是少数几个拥有闲置产能的产油国之一，它们对西方要求增加原油以冷却炙手可热的价格的呼吁置之不理，并坚持与俄罗斯和其他国家签署欧佩克+供应协议。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+沙特事实上的统治者王储穆罕默德·本·萨勒曼 (Mohammed bin Salman) 因 2018 年沙特记者贾马尔·卡舒吉 (Jamal Khashoggi) 被谋杀、利雅得的人权记录和也门战争而面临西方尖锐批评。到目前为止，美国总统乔·拜登拒绝直接与被广泛称为 MbS 的王子打交道。
+
+由于美国与沙特的关系处于低谷，尽管沙特仍与华盛顿保持密切的安全关系，但沙特的回应是加强与俄罗斯和中共国的关系。
+
+两名消息人士称，美国官员周二会见了沙特高级官员，敦促他们增加石油产量并找到结束也门战争的政治解决方案，沙特领导的部队正在与伊朗支持的胡塞组织作战。
+
+🔗[https://www.reuters.com/world/saudi-prince-rebuked-by-west-faces-dilemma-over-russia-china-2022-03-16/](https://www.reuters.com/world/saudi-prince-rebuked-by-west-faces-dilemma-over-russia-china-2022-03-16/)
+
+编辑发表： Shuizhuyu
 
  
 

@@ -2,38 +2,38 @@
 ---
 
 
-## 泽连斯基向遇害美国记者家属发送感人信
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176864/)
+## 泽连斯基宣布乌克兰退出加入北约计划
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2176920/)
 
-作者：新西兰伊甸农场-玫瑰
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒15日报道，美国记者布伦特·雷诺在乌克兰首都附近报道难民故事时遇难。 50岁的雷诺是一位著名的电影制片人，他经常前往世界上一些最黑暗和最危险的角落拍摄纪录片。3月13日，在俄罗斯军队于基辅附近向他的车辆开火后遇难身亡。据悉，他正在为一份关于难民的报告收集材料。
+编译：七龙珠
 
-乌克兰总统泽连斯基3月15日在网上发表了一封写给雷诺家人的信，表达他的“衷心哀悼”。他称雷诺是一位“才华横溢、勇敢的记者”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-59.jpg)
-泽连斯基在信中说，“布伦特在记录数百万乌克兰人的人类悲剧、破坏和苦难时失去了生命。他带着所有的勇气和决心，前往最危险的战区，拍摄了侵略者对我们国家施加的前所未有的残酷和邪恶。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1821-edited.png)Volodymyr Zelensky说乌克兰不得不承认它将无法加入**北约世界（视频） // EFE（照片）**
 
-“乌克兰人民正在与俄罗斯政权作斗争，以保卫他们的家园和世界民主，他们与你们一起哀悼。”“我们感谢布伦特的专业精神和对同情、道德和正义价值观的承诺。”
+乌克兰总统沃洛季米尔-泽伦斯基周二从加入北约的计划中退了出来。他是在波兰、斯洛文尼亚和捷克共和国领导人访问基辅期间作出这一宣布的。他的此决定符合俄罗斯的要求之一，即放弃对乌克兰的入侵，尽管莫斯科迄今没有发表任何声明。泽伦斯基本人提出的替代方案是与西方的“单独”安全“保障”。
 
-“愿布伦特的生命、服务和牺牲激励全世界几代人站出来为光明力量对抗黑暗力量而战。”
+“如果我们不能走进北约大门，那么我们必须与我们可以合作的组织合作，来帮助我们保护自己，拥有单独的保障”，乌克兰总统在星期二发布的视频声明中承认。他强调说：“我们已经意识到，乌克兰将不会成为北约的成员”。他说：“我们是讲道理的人。”在这个信息中，乌克兰政府上周开始的转变得到了落实。
 
-参考链接：[The people of Ukraine are mourning with you’: Zelenskyy sends moving letter to family of slain US journalist](https://www.stuff.co.nz/world/europe/300541835/the-people-of-ukraine-are-mourning-with-you-zelenskyy-sends-moving-letter-to-family-of-slain-us-journalist)
+他感叹北约“似乎被俄罗斯的侵略所催眠”，拒绝在乌克兰上空设立禁飞区。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+“我们听到的论调是，如果北约对俄罗斯飞机关闭领空，第三次世界大战就会开始”。他说：“这就是为什么没有在乌克兰上空设立人道主义禁飞区，这就是为什么俄罗斯人可以轰炸城市，杀害人民，炸毁医院和学校”。
 
-总编：天滅中共
-编辑/审核:飞虹
-校对/发稿：Hetangyuese
+周二，乌克兰人和俄罗斯人又回到了两星期前白俄罗斯和乌克兰之间延长的谈判桌上。3月7日，克里姆林宫发言人德米特里-佩斯科夫（Dmitry Peskov）说，如果除其他要求外，基辅修改宪法以保证中立，使乌克兰成为北约成员国和俄罗斯之间的缓冲国，那么他的国家将“当场”停止入侵。
 
-**更多资讯，更多关注**
+一天后，泽连斯基在接受美国广播公司采访时宣布，“我们准备好接受必须保证我国安全的各个国家的任何保证。而俄罗斯也在这些国家之列，因为它是我们的邻国”。然而，面对俄罗斯的攻击，尤其是继续针对平民的攻击，泽伦斯基政府继续要求北约提供军事支持。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+2019年2月19日，时任乌克兰总统波罗申科签署了《乌克兰宪法》第85条的修正案。这使得最高拉达，即一院制国会，有 “权力”来“决定国内和外交政策的原则”，包括乌克兰获得欧盟和北大西洋公约组织的正式成员资格。波罗申科说，他的国家将“不晚于2023年”申请这两个项目。
+
+到目前为止，乌克兰要求北约在其领土上进行直接干预，特别是保护其领空以结束来自俄罗斯飞机的威胁，但他的呼声都被置若罔闻。北约秘书长延斯-斯托尔滕贝格上周末在安塔利亚外交论坛上发言时，并没有关闭乌克兰加入跨大西洋组织的大门，他的论点是“应由乌克兰自由决定”。
+
+来源：【elmundo.es】[Volodimir Zelenski reconoce que Ucrania “no será miembro de la OTAN”](https://www.elmundo.es/internacional/2022/03/15/6230a6af21efa0a4138b459b.html)
+
+* * *
+
+审核：Aries的星
+校对：阿伯塔
+发布：花羽
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
 
  
 

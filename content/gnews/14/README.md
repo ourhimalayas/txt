@@ -2,26 +2,22 @@
 ---
 
 
-## 乌克兰总统顾问预计战争最快5月结束
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176860/)
+## 韩国两大航空公司宣佈航线不再经由俄罗斯领空
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176863/)
 
 作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒15日报道，乌克兰总统军事顾问阿列斯托维奇14日晚间表示，俄罗斯可能会在5月初因耗尽战备物资而终止对乌克兰的侵略行为。
+韩国两大航空公司，大韩航空和韩亚航空15日宣布，停飞俄罗斯航线，同时，所有飞往欧美的航线也不再经由俄罗斯领空。
 
-虽然阿列斯托维奇并未直接参与俄乌之间的谈判事宜，但根据他的说法，俄罗斯确切停止攻打乌克兰的时间点，主要取决于俄罗斯还能为战事投入多少资源。即便两国达成和平协议，在俄罗斯同意完全撤出乌克兰的情况下，小规模的战略冲突仍可能会持续一年。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-55.jpg)
-乌克兰武装部队早前表示，自 2 月 24 日以来，已有12,000 多名俄罗斯士兵丧生。
+虽然，俄罗斯政府并未禁止韩国航班在俄罗斯领空飞行，但出于安全考虑，两大航空公司还是决定绕飞。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-58.jpg)
+大韩航空在一份声明中表示，仁川至莫斯科以及符拉迪沃斯托克之间的航班，包括在莫斯科中途停留的航班全部暂停，同时，首尔往来伦敦等欧洲航线的航班将改道中国、哈萨克斯坦和土耳其等其他国家，而往来纽约等北美地区的航班则改道阿拉斯加和太平洋，预计单程将分别增加1～2小时左右的飞行时间。
 
-美国方面也有情报显示，保守估计已有大约6,000名俄军，相当于8个营级战斗群兵力阵亡，显示俄军伤亡确实十分惨重。
+另外，有报道指，自俄罗斯入侵乌克兰，欧洲对俄罗斯关闭领空后，包括日本全美航空在内的各大航空公司都有计划改道欧亚航线。
 
-另外，英国国防部的每日更新情报也指出，俄罗斯入侵乌克兰的战争已经进入第四个星期，但俄军进攻基辅的战线依然未取得明显进展。俄军集结基辅西北部连绵数十公里的大车队，在过去一个星期始终停滞不前，反而乌克兰这边持续性的突袭给他们带来了巨大影响，这意味着物资补给、军队士气等问题仍然困扰着俄军。
+参考链接：[Korean Air to reroute flights that use Russian airspace](https://www.reuters.com/world/asia-pacific/korean-air-says-reroute-flights-that-used-russian-airspace-2022-03-15/)
 
-参考链接：
-1. [War could be over by May, says Ukrainian presidential adviser](https://www.reuters.com/world/europe/war-could-be-over-by-may-says-ukrainian-presidential-adviser-2022-03-15/)
-2. [Russia-Ukraine war: early morning strikes hit Kyiv hours before peace talks](https://www.theguardian.com/world/2022/mar/15/russia-ukraine-war-fresh-blasts-in-kyiv-as-zelenskiy-says-ceasefire-talks-will-resume)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
 总编/编辑/审核：天滅中共
 校对/发稿：Hetangyuese
@@ -33,7 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  

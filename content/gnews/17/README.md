@@ -2,34 +2,39 @@
 ---
 
 
-## 隐形奥米炕BA2占美国病例的四分之一
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2176788/)
+## 乌克兰总统顾问预计战争最快5月结束
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176860/)
 
-#### 选材/编译 ：Cran
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+外媒15日报道，乌克兰总统军事顾问阿列斯托维奇14日晚间表示，俄罗斯可能会在5月初因耗尽战备物资而终止对乌克兰的侵略行为。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16474609761.png)
-据美国周刊3月16日报道，新冠病毒的奥米炕（Omicron）变种称为BA2。根据美国疾病控制和预防中心（CDC）的估计，BA2占美国所有新序列病例的近四分之一。
+虽然阿列斯托维奇并未直接参与俄乌之间的谈判事宜，但根据他的说法，俄罗斯确切停止攻打乌克兰的时间点，主要取决于俄罗斯还能为战事投入多少资源。即便两国达成和平协议，在俄罗斯同意完全撤出乌克兰的情况下，小规模的战略冲突仍可能会持续一年。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-55.jpg)
+乌克兰武装部队早前表示，自 2 月 24 日以来，已有12,000 多名俄罗斯士兵丧生。
 
-根据CDC昨天公布的数据，预计在3月6日至12日期间，预计的BA2 在23.1%的新序例新冠病毒样本中被确认。在13.7%的样本中发现了BA2，这标志着与前一周相比有明显上升。而在这之前一周的7.1%样本中发现了BA2。
+美国方面也有情报显示，保守估计已有大约6,000名俄军，相当于8个营级战斗群兵力阵亡，显示俄军伤亡确实十分惨重。
 
-如果目前的趋势继续下去。BA2正在赶超美国其他类型的奥米炕，包括BA1。到目前为止这基本是全球主导版本的类型。
+另外，英国国防部的每日更新情报也指出，俄罗斯入侵乌克兰的战争已经进入第四个星期，但俄军进攻基辅的战线依然未取得明显进展。俄军集结基辅西北部连绵数十公里的大车队，在过去一个星期始终停滞不前，反而乌克兰这边持续性的突袭给他们带来了巨大影响，这意味着物资补给、军队士气等问题仍然困扰着俄军。
 
-CDC的数据也显示了BA2在美国的高发地区。以及该变种出现的10个不同地区，每个地区都包括多个州。涉及BA2最多的第二区包括，新泽西、纽约、波多黎各和维尔京群岛，在那里，截至3月12日，在39%的样本中都发现了这种病毒。
+参考链接：
+1. [War could be over by May, says Ukrainian presidential adviser](https://www.reuters.com/world/europe/war-could-be-over-by-may-says-ukrainian-presidential-adviser-2022-03-15/)
+2. [Russia-Ukraine war: early morning strikes hit Kyiv hours before peace talks](https://www.theguardian.com/world/2022/mar/15/russia-ukraine-war-fresh-blasts-in-kyiv-as-zelenskiy-says-ceasefire-talks-will-resume)
 
-另一个高发区包括康涅狄格州、缅因州、马萨诸塞州、新罕布什尔州、罗德岛州和佛蒙特州。在那里的38.6%的样本中发现了此变异型。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-在所有其他地区，BA2感染率都低于30%。在第4地区的，阿拉巴马州、佛罗里达州、乔治亚州、肯塔基州、密西西比州、北卡罗来纳州、南卡罗来纳州和田纳西州——感染率低至12.4%。
+总编/编辑/审核：天滅中共
+校对/发稿：Hetangyuese
 
-应该注意的是，上述数据基于即时预报模型，该模型提供了循环变异类型的预估。非预估数字通常在预估数据公布后的几周内提供。
+**更多资讯，更多关注**
 
-BA2病例在其他国家也在增加。3月11日英国卫生安全局（HSA）的数据显示，在2月27日至3月6日期间，68.6%的序列病例为BA2，有31.1%为BA1，这显示BA2占主导地位。
-
-BA2是奥米炕变体的一个亚型，已发现它的传播性高于先前占优势的BA1。BA2病例，在一些国家的报告中的比例上升后，成为今年正在进行的研究的主题。
-
-英国3月11日的HSA数据显示，感染BA2后住院的风险，似乎并不比BA1高。BA2的一个关键特征，是它再感染那些已经感染过BA1患者的能力。这意味着他们可以感染奥米炕两次。但迄今为止仍相对罕见。
-
-[Source](https://www.newsweek.com/ba-2-us-covid-prevalence-dominant-faster-spreading-hotspots-1688536)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

@@ -2,36 +2,34 @@
 ---
 
 
-## 普京抓捕情报机构高管
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176862/)
+## 【每日聚焦】俄乌战争3月16日简要
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2176905/)
 
-作者：香草山农场 – 柳是多水土透
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒12日报道，俄罗斯联邦安全局负责海外情报工作的长官——谢尔盖·贝塞达中将及其副手阿纳托利·博卢克——11日被普京下令软禁在家。
+编撰与校对：文斌
 
-68岁的贝塞达曾任俄罗斯联邦安全局局长，而博卢克則是行动情报部主任。普京认为，战争进展不利，和俄方大量伤亡是由于情报有误。开战前他曾被告知，乌克兰仅会做象征性抵抗，人民普遍对现状不满，会配合侵略军推翻政府，乌军战力薄弱，遍布新纳粹成员，受到攻击后会很快投降。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-57.jpg)
-但当俄罗斯派出轻型部队迅速攻占关键设施后，却遭到猛烈反击和持续抵抗。乌克兰人更紧密地团结在了泽连斯基政府周围，仅首都就有10万人以上加入民兵组织，就连乌东部俄语区也存在民意反转。 攻势受阻后，俄罗斯被迫放弃速战速决计划，转为消耗战，攻城战，导致了大量平民伤亡和不断升级的制裁。
+1、乌克兰总统办公室助理表示，乌克兰武装部队在一些方向上进行了主动性的进攻。比如在苏梅地区Trostyanets附近的俄军作战部队被乌克兰军队摧毁；南部的赫尔松空军基地被乌克兰军队突袭，大量俄军直升机等被摧毁。
 
-参考链接：
-1. [Kremlin arrests FSB chiefs in fallout from Ukraine chaos](https://www.thetimes.co.uk/article/kremlin-arrests-fsb-chiefs-in-fallout-from-ukraine-invasion-chaos-92w0829c5)
-2. [Putin ‘has placed the head of the FSB’s foreign intelligence branch under house arrest because he is furious at security services for failing to warn him’ that Ukraine could fiercely resist invasion](https://www.dailymail.co.uk/news/article-10603045/Putin-places-head-FSBs-foreign-intelligence-branch-house-arrest.html)
+2、基辅仍然承受着俄军炮击，当地时间上午，一枚炮弹击中了基辅Shevchenkivskyi区的一栋12层楼房。据初步消息，有两人受伤。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+3、切尔尼戈夫一个面包店遭到俄军炮击，至少有10人死亡。
 
-总编：天滅中共
-编辑/审核:飞虹
-校对/发稿：Hetangyuese
+4、哈尔科夫多个地区遭到猛烈炮击，其中有居民区遭到数小时的猛烈炮击。
 
-**更多资讯，更多关注**
+5、卢甘斯克地区Rubizhne的炮击事件造成1人死亡，而Severodonetsk（塞维罗涅茨克）则遭遇猛烈炮击。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+6、俄罗斯导弹夜袭乌克兰中西部城市文尼察，暂无伤亡的信息，但是击中了电视塔，导致播出中断。
+
+7、赫尔松州的斯卡多夫斯克镇因为市长和他的副手被武装人员（据信是俄罗斯人）绑架，当地居民在当地行政办公室外抗议。
+
+8、俄罗斯军舰炮击了Odesa西南方向的莱贝德夫卡、桑热伊卡、扎托卡和贝伦基地区的海岸线。
+
+9、又有俄罗斯导弹在中部城市Cherkasy（切尔卡西）地区上空被击落。
+
+10、超过3207辆汽车和超过3000人，包括772名儿童在内连夜从马里乌波尔疏散到Zaporizhiye，但是马里乌波尔保卫战继续。
+
+11、英国情报部门：俄罗斯正在调兵遣将，包括远东战区、太平洋舰队和亚美尼亚等地。而且经证实，位于格鲁吉亚的Tskhinvali（茨欣瓦利）第四卫队占领基地的俄军正通过罗基隧道离开该地区，前往乌克兰作战。另据报道，来自所谓的南奥塞梯的志愿者也正在前往乌克兰。
+
+
 
  
 
