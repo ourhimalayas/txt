@@ -2,41 +2,38 @@
 ---
 
 
-## 有声|文贵大直播谈中共围魏救赵
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2171624/)
+## 英国必须自己种植粮食并生产更多作物以保护自己
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2171738/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-19-1.png)
-3月13日盖特消息，文贵先生在大直播中，再次向世界郑重公布：中共即将在中东地区挑起的能源战争，是一场和俄罗斯计划好的“围魏救赵”阴谋。
-文贵先生在本月10日直播，曾向世界发出警告本月底到4月份，中共会在中东地区点燃战火，制造世界能源危机，继而侵占台湾。
-郭先生这次直播讲到，中共和俄罗斯在俄乌战争开始前，就制定了‘围魏救赵’计划。中共利用控制中东地区的邪恶联盟，伊朗，沙特，叙利亚，等武装团体，制造局部战争，控制全球石油运输命脉，本质是要打垮美元（石油）。
-不幸的是还没有到月底，也就是3月12日，就发生了伊朗用导弹袭击伊拉克美领事馆事件。美军在中东的所有军事基地，都面临被邪恶联盟袭击威胁。
-历史上，中共在1979年2月发动的‘中越边境自卫反击战’，就是一场‘围魏救赵’的侵略战争。战争并没有迫使越南，从柬埔寨全面撤军。只是无数年轻中国人的鲜血，成就了政治家的个人极权野心。
-俄乌战争，是一场非正义战争。普京跟着中共已经快跑进入火葬场，中共的‘围魏救赵’中东战争计划，在爆料革命的真相面前，必会惨败结束。
-新中国联邦是拯救世界，唯一的正道主义团体，我们要和平，不要战争。中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1741-edited.png)dailymail.co.uk
 
+保守党议员警告说，由于担心短缺和价格上涨，英国需要种植更多自己的粮食。
 
+丹尼尔·考钦斯基（Daniel Kawczynski） 说，英国必须自己生产更多的农作物，以使自己免受俄罗斯入侵乌克兰造成的损害。
 
-文字版原文：[文贵大直播谈中共围魏救赵](https://gnews.org/zh-hans/2159514/)
+该国最大的鸡肉生产商“两姐妹食品集团”(The 2 Sisters Food Group) 警告说，今年夏天食品价格可能上涨 15%。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+世界上大约 30% 的小麦来自乌克兰和俄罗斯，该公司表示，这场冲突“给英国的粮食安全带来了重大威胁”，可能导致小麦、大麦和玉米的短缺。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+考钦斯基先生现在写信给环境部长乔治·尤斯蒂斯（George Eustice），警告说“我们自己的作物生产，对于确保我们有足够的食物来养活我们的人口至关重要”。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+评论：全球一体化的远景，是所以参与的国家都必须是文明手法遵守共同约定的条约，这些都是中共最忌惮的，中共一向公开吹嘘的“弯道超车”就是不打自招。但是，由于利益集团的贪婪，纵容邪恶的独裁国家，使其得以用全球生产链，或生命线的粮食、石油绑架世界。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+英国的脱欧是对这个陷阱威胁认识的第一步，现在已经认识到要自给自足才能保证主权独立和人民安康。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+灭共者文贵先生曾坚定地断言，灭掉世界灾难之源中共和达沃斯集团，世界政治格局，经济格局和地缘政治，都将彻底改变，走向以正道主义为根据的新的人类文明时代！
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+素材链接：【dailymail.co.uk】[Britain must grown its own food and produce more crops to protect itself from shortage and price rises caused by Russia’s invasion of Ukraine, warns Tory MP](https://www.dailymail.co.uk/news/article-10613385/Britain-grown-food-produce-crops-protect-shortage.html)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
+
+审核：文乐
+校对：小东
+发布：花羽
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
 
  
 

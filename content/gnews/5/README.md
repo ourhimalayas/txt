@@ -2,30 +2,32 @@
 ---
 
 
-## 英国必须自己种植粮食并生产更多作物以保护自己
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2171738/)
+## 沙特邀请习近平访问
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2171826/)
 
 编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1741-edited.png)dailymail.co.uk
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1743-edited.png)thehill.com
 
-保守党议员警告说，由于担心短缺和价格上涨，英国需要种植更多自己的粮食。
+《华尔街日报》周一报道称，沙乌地阿拉伯邀请中共国家主席习近平访问利雅得，以加强与北京的关系。
 
-丹尼尔·考钦斯基（Daniel Kawczynski） 说，英国必须自己生产更多的农作物，以使自己免受俄罗斯入侵乌克兰造成的损害。
+据《华尔街日报》报道，此次访问邀请是在沙特与美国的关系紧张后发出的。
 
-该国最大的鸡肉生产商“两姐妹食品集团”(The 2 Sisters Food Group) 警告说，今年夏天食品价格可能上涨 15%。
+据该报报道，这次访问将标志着习近平自 COVID-19 大流行开始以来的首次外国访问，定于 4 月开始的斋月之后进行。
 
-世界上大约 30% 的小麦来自乌克兰和俄罗斯，该公司表示，这场冲突“给英国的粮食安全带来了重大威胁”，可能导致小麦、大麦和玉米的短缺。
+据《华尔街日报》报道，一名沙特官员表示：“王储和习近平是亲密的朋友，他们都明白建立更紧密关系的巨大潜力。”“这不仅仅是‘他们从我们这里购买石油，我们从他们那里购买武器’。”
 
-考钦斯基先生现在写信给环境部长乔治·尤斯蒂斯（George Eustice），警告说“我们自己的作物生产，对于确保我们有足够的食物来养活我们的人口至关重要”。
+习近平的潜在访问将与王储穆罕默德·本·萨勒曼与拜登总统的关系形成鲜明对比，拜登在 2020 年大选期间承诺将沙特王国视为“贱民”国家。
 
-评论：全球一体化的远景，是所以参与的国家都必须是文明手法遵守共同约定的条约，这些都是中共最忌惮的，中共一向公开吹嘘的“弯道超车”就是不打自招。但是，由于利益集团的贪婪，纵容邪恶的独裁国家，使其得以用全球生产链，或生命线的粮食、石油绑架世界。
+据《华尔街日报》报道，最近几周，穆罕默德亲王拒绝与拜登就俄罗斯入侵期间遏制油价飙升的努力进行对话。
 
-英国的脱欧是对这个陷阱威胁认识的第一步，现在已经认识到要自给自足才能保证主权独立和人民安康。
+在俄罗斯入侵乌克兰的整个过程中，沙特一直拒绝美国提出的增加石油产量以遏制飙升的原油价格的请求。
 
-灭共者文贵先生曾坚定地断言，灭掉世界灾难之源中共和达沃斯集团，世界政治格局，经济格局和地缘政治，都将彻底改变，走向以正道主义为根据的新的人类文明时代！
+与此同时，阿拉伯联合大公国（UAE）也未参与联合国安理会谴责莫斯科袭击乌克兰的决议。
 
-素材链接：【dailymail.co.uk】[Britain must grown its own food and produce more crops to protect itself from shortage and price rises caused by Russia’s invasion of Ukraine, warns Tory MP](https://www.dailymail.co.uk/news/article-10613385/Britain-grown-food-produce-crops-protect-shortage.html)
+评论：文贵先生早在中共行动之前就向世界预报：中共要在中东搞事，在中东吉布提的行动，目的就是对普京入侵乌克兰的围魏救赵，和中共在这些行动之后对台湾的侵略行动！
+
+素材链接：【thehill.com】[Saudi Arabia invites China’s Xi to visit Riyadh: report](https://thehill.com/policy/international/598207-saudi-arabia-invites-chinas-xi-to-visit-riyadh-report)
 
 * * *
 
