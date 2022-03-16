@@ -2,22 +2,26 @@
 ---
 
 
-## 警惕中共利用或破坏新中国联邦乌克兰救援
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2176228/)
+## 乌克兰超过280万难民正在逃离故土
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2176229/)
 
-作者：纽约香草山农场-文真
+作者：纽约香草山农场-Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据盖特平台消息显示，中共当局近日公然将新中国联邦和法治基金在乌克兰的人道救援行动据为己有，妄图抢夺前线团队的救援成果。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-16-上午11.55.28.png)
-为此，中共大肆窃取前线救援战友拍摄的图片和视频，甚至指派间谍混入米蒂卡救援现场偷拍新中国联邦义工战友的救援工作，以此混淆视听，并通过其大外宣进行虚假宣传，更伺机对新中国联邦和法治基金在乌克兰的救援行动进行破坏。
+截止当地时间3月14日，据联合国公布的最新数据显示，自 2 月 24 日俄罗斯入侵乌克兰以来，从乌克兰逃离的难民人数已经攀升至280 余万，而这也成为二战后欧洲增长最快的一次难民危机。 但欧盟官员则预计，这一数字最终可能超过五百万。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-16-上午11.55.36.png)
+据悉，除却已经撤离乌克兰的民众外，仍滞留在当地的居民也有数百万人流离失所：他们大多数停留在较为平静的西部地区，包括边境城市利沃夫。然而，此前一天，俄罗斯刚刚袭击了一个地处波兰边境附近的乌克兰基地，造成35人遇难，另有数千人不得不再度离开乌克兰西部，进入东欧地区。
 
-参考链接：[近日，中共竟然恬不知耻地对外谎称…](https://gettr.com/post/p107gg9f5cf)
+据有关报道提及，目前，乌克兰包括首都基辅在内的许多主要城市的交战仍在继续，但乌克兰政府仍然在尝试通过十条人道主义走廊疏散平民。对此，波兰总理莫拉维茨基在早先的新闻发布会上表示，除了乌克兰境内的侵略战争外，俄罗斯在波兰边境附近的袭击表明，莫斯科当局希望在平民中制造恐慌。
+
+当下，波兰等前线国家接收了超过一半以上的乌克兰难民，而其他边境国家包括斯洛伐克、罗马尼亚、匈牙利和摩尔多瓦也接收了绝大多数的战争逃难者。
+
+参考链接：[Refugee exodus reaches 2.8 million as Russia strikes hit west Ukraine](https://www.reuters.com/world/europe/russian-attacks-western-ukraine-prompt-more-people-flee-2022-03-14/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-编辑：玫瑰圓
+编辑：飞虹
 总编：Irene木木
-审核：Irene木木
+审核：飞虹
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

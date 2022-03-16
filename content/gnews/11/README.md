@@ -2,24 +2,35 @@
 ---
 
 
-## 不同批次新冠疫苗的活性成分含量不同再次被确认
-` Little c` [轉載自GNews](https://gnews.org/zh-hans/2176393/)
+## 有声|法国取消疫苗通行证及强制口罩令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2176408/)
 
-作者：波士顿五月花 Little c
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+法国宣布自3月14日起放宽部分防疫限制，即日起除搭乘公共交通工具外，包括学生在内，大部分公众场合下不再强制配戴口罩。另外，进入餐厅、戏院、博物馆等公众场所时也毋须出示疫苗通行证，不过，进入医院、老人院和伤残人士中心等除外。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-4.jpg)
+最近一周该国感染人数再次增加，有科学家担忧，现在解除限制为时过早。根据 7 天的平均值推算，新增感染人数超过 6万人，高于一周前的 5万人。科学议会成员兼政府首席防疫医疗顾问戴佛西表示疫情仍未结束，呼吁民众仍应保持谨慎。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/mrna-vaccine-e1646326849638.jpg)图片来自网络
 
-自法院要求FDA公开辉瑞新冠疫苗文件，Dr. Naomi Wolf 已组织了几百位医生和律师志愿者对文件进行分析。在周一3/14的Warroom 节目中她向班农透露了一个令人不安的发现，不同批次的新冠疫苗的活性成分含量不同。数据显示不同批次疫苗的危险活性成分含量从3微克，10微克，30微克，到100微克不等。
 
-这也再次确认了去年科学家们根据VAERS的数据得出的类似结论([www.howbadismybatch.com](http://www.howbadismybatch.com/))。
+文字版原文：[法国取消疫苗通行证及强制口罩令](https://gnews.org/zh-hans/2171813/)
 
-参考链接：
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-[This Is Big: Naomi Wolf Confirms Big Pharma Was Adding Varying Amounts of Active Ingredient to Batches of COVID Vaccine](https://www.thegatewaypundit.com/2022/03/big-naomi-wolf-confirms-big-pharma-adding-varying-amounts-active-ingredient-batches-covid-vaccine-video/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-—————————————————————–
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-*编辑 /发布：Little c*
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
