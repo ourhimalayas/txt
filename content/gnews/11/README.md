@@ -2,34 +2,31 @@
 ---
 
 
-## 自由党希望加拿大成为“实验室肉类”引领者
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2175273/)
+## 有声|发动侵略战争 俄罗斯所受制裁已成全球最多
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2175384/)
 
-##### 作者：加拿大温哥华扬帆农场 – 薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-31.png)
-加拿大[[真北方](https://tnc.news/2022/03/14/liberals-want-canada-to-be-a-leader-in-lab-meat-production/)]14日报道，自由党议员热衷于气候变化和农业对全球气温威胁有关议题，紧扣联合国 “政府间气候变化专门委员会”（IPCC）的报告， 希望加拿大在生产替代性蛋白质来源，一种来自昆虫的 “实验室肉类” 方面成为领导者。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+自俄罗斯于2月24日发动乌克兰入侵战争以来，短短十几天，俄罗斯已经超越伊朗和朝鲜，成为世界上受制裁最多的国家。
 
-2月28日，在IPCC发布的第六份题为《2022年气候变化：影响、适应和脆弱性》的评估报告中，专门提到 “用于食品和饲料替代蛋白质来源”。报告称“实验室肉类”或’清洁肉’未来将对人类蛋白质需求有潜在贡献。
+据全球制裁检测数据库的数据显示，在2月22日之前，俄罗斯受到2,754项制裁。自2月22日以来，截至3月12日，美国和欧洲盟友等对俄罗斯施加了3,612项制裁的目标，使其所受制裁高达6,366多项。这使其超过了伊朗成为全球受制裁最多的国家。在过去的十年中，伊朗面临着3,616项制裁，其中大部分是因为其核计划和支持恐怖主义。继俄罗斯和伊朗之后，受制裁较多的国家是叙利亚2,608项、朝鲜2,077项、委内瑞拉651项、缅甸510项和古巴208项。
 
-自由党议员认为这是一个高风险、高回报的举措，目前已成为美国、新加坡和以色列追求的目标，提议联邦政府投资于该技术。这一建议获得加拿大创新、科学和工业部部长商鹏飞的赞同。
+自2月22日以来俄罗斯受到的3,612项制裁，目前主要来自8个国家或地区，制裁针对个人、实体，对游艇和飞机等也实施了相关制裁限制。其中，欧盟对俄罗斯实施的制裁最多，有678项。而法国有672项，瑞士有568项，美国有278项。
 
-强硬的环保主义者一直主张用人工产品、昆虫和藻类等替代品来取代肉类，以此来减少农业部门产生的碳排放。2013年，联合国世界粮农组织粮食发布报告，称世界应该放下偏见，准备开始食用虫子。
+文字版原文：[发动侵略战争 俄罗斯所受制裁已成全球最多](https://gnews.org/zh-hans/2159904/)
 
-原文链接：[Liberals want Canada to be a leader in bug-based “lab meat” production](https://tnc.news/2022/03/14/liberals-want-canada-to-be-a-leader-in-bug-based-lab-meat-production/)
+音频处理：Fei797
+发稿：Fei797
 
-编辑/上传 – 大废墙
-素材/采编 – 薇文
-翻译 – 薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

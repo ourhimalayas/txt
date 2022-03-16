@@ -2,27 +2,44 @@
 ---
 
 
-## 有声｜拜登总统将访问欧洲讨论乌克兰议题
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2175083/)
+## 中共经济危机重重
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2175084/)
 
-By:**秘翻新闻**
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月15日，据相关媒体消息显示，香港恒生指数当天依旧延续前一天的颓势，再次大跌超过5%，直接跌穿两万点的支撑位，且盘后仍继续下行。 对此，郭文贵先生也在盖特平台上发布消息称，一位香港的朋友发信感谢郭先生早前的提醒，从而让他能在港股崩溃前撤出资金。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-28.jpg)
+同一日，各类经济负面消息充斥着整个中共国内的新闻版面。首先，墙内上证指数大跌2.6%，深成指和创业板跌幅也双双超过3%。其次，腾讯和阿里均被爆出将减少三成员工。同时，有消息人士透露，腾讯还因微信支付违反了中共的《反洗钱法》，即将面临创纪录的巨额罚单。
 
-**2022-03-16**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/316_8.png)图片来源 法广新闻
-[法广网](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220315-nbc%E6%8A%A5%E9%81%93-%E7%BE%8E%E5%9B%BD%E6%80%BB%E7%BB%9F%E6%8B%9C%E7%99%BB%E5%B0%86%E8%AE%BF%E9%97%AE%E6%AC%A7%E6%B4%B2)当地时间3月15日报道，白宫发言人普萨基15日发布声明表示，美国总统拜登将出访欧洲，参加24日在布鲁塞尔举行的北约特别峰会，讨论应对俄罗斯侵略乌克兰的问题。
+另一方面，中共恒大集团宣布，其将退出广州南沙阳光半岛项目，并将该项目划归给某中共央企接盘。有评论人士称，恒大早已无力摆脱自身的债务困境，中共的房地产企业危机将进一步恶化。
 
-普萨基表示，拜登也会参加欧洲理事会峰会，讨论对乌克兰议题，包含跨大西洋对俄罗斯施加经济制裁、提供人道援助，以及应对随冲突而来的挑战等。
+最后，中共福建省银保监局当天突然发表声明扬言，中共国内的银行理财产品并非零风险，为此，当局要求消费者提高对所有理财产品的风险意识。
 
-普萨基表示，这趟出访意在强调美国对北约盟友的承诺坚定如铁。
+郭先生早先在直播中强调，一旦港股跌破两万点大关，中共的经济必然会出现严重的问题。而今，中共国内的经济现状正在逐渐显露出其破败的真面目。
 
-另据《纽约时报》报道，俄乌爆发战争，已促使美国外交思维发生巨变，幅度之大为911恐怖攻击事件以来之最，也让全美国充满使命感，对盟国及敌国皆是如此。俄罗斯侵略乌克兰，让美、欧团结的紧密程度，为二战以来仅有的。
+参考链接：
+1. [3月14号太多，我的好多投资领域，已经投资了香港的朋友，给我发了类似这样的信息**🙈🙈🙈**但愿有更多人能跟随新中国联邦，做一个消灭中国共产党的得到自己真正信仰的人。](https://www.gettr.com/post/p1024xd1423)
+2. [消息称腾讯阿里将大规模裁员，最高涉及30%](https://www.sohu.com/a/529520628_118792)
+3. [騰訊傳因微信支付違規或面臨創紀錄罰款](https://udn.com/news/story/7333/6164242?from=udn-ch1_breaknews-1-cate4-news)
+4. [银行理财产品也开始亏钱了，福建银保监局提醒：净值化时代“零风险”都成过去式](https://www.sohu.com/a/529726303_313745)
+5. [恒大集团退出广州南沙阳光半岛项目，央企中航信托接手](https://finance.sina.com.cn/jjxw/2022-03-14/doc-imcwiwss6015961.shtml)
+6. [多因素导致A股市场大跌：短期超卖后市场信心的重建需要时间](http://finance.china.com.cn/stock/zqyw/20220315/5763122.shtml)
+7. [收评：港股恒指跌5.72%恒生科指跌8.1% 腾讯跌10%失守300港元](https://finance.sina.com.cn/stock/hkstock/marketalerts/2022-03-15/doc-imcwipih8610116.shtml)
 
-（秘翻新闻 自由信仰 编译报道）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-发布 : 文橙
+总编：Irene木木
+编辑：Ivy001
+审核：Irene木木
+校正/发稿：Fei797
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

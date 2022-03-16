@@ -2,8 +2,8 @@
 ---
 
 
-## 金融工具就是合法的诈骗手段
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2175406/)
+## 我们是新中国联邦人 目标是灭共（上）
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2175514/)
 
 台灣寶島農場
 

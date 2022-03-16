@@ -2,35 +2,38 @@
 ---
 
 
-## 惠誉：如果俄罗斯以卢布支付美元债券票息将构成主权违约
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2175107/)
+## 中共被停止SWIFT系统的后果
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2175149/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-整理：gardeniahu
-编辑：围剿维尼熊
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe-2.png)图片来源：雅典娜设计组
+作者: 纽约磐石农场—在远方
 
 
-根据路透纽约3月15日报道，信用评级机构惠誉表示，如果俄罗斯以卢布支付美元债券票息，那么在宽限期满后将构成主权违约。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
+在3月13日的大直播中，郭文贵先生解读了中共国如果被国际社会剔除SWIFT系统之后的凄惨结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0d2a854a1f1d14db938a4e001877bd8c.png)图片来源: GETTR (@himalayaathena)
+郭先生说，中共吹嘘为了攻打台湾，已经储备了两年半的粮食。这种把明年还没收割的粮食，都已“纳入”粮仓的说法，是典型的谎言。而2.5年的粮食，总共价值约为4000亿美元。但中共只有1万亿美元的外汇储备，而且还欠外债7000亿美元。如果中共因为侵略台湾，而被国际社会剔除SWIFT系统，人民币就会立刻变成冥币而失去购买功能。像津巴布韦和刚果一样，其通货膨胀就会达到无法想象的程度。
 
-俄罗斯需要在周三支付两笔总计约1.17亿美元的硬通货票息。
+被剔除SWIFT系统意味着中共国被踢出了地球村，被局限了活动范围、行为往来和贸易服务，并且中共高官的所有海外盗国资产都会被清零。
 
-自俄罗斯上个月入侵乌克兰后引发了全球制裁，这限制了莫斯科获取和支配资金的能力。
+参考链接: [https://www.gettr.com/post/pzvqw0a925](https://www.gettr.com/post/pzvqw0a925)
 
-如果俄罗斯以本币支付3月16日到期的美元计价欧洲债券(eurobond)票息，在30天宽限期到期后，将构成主权违约。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-33.jpg)
 
-参考链接：[俄罗斯以卢布支付美元债券票息将构成主权违约–惠誉](https://www.reuters.com/article/ukraine-crisis-russia-default-idCNL6S2VI09M)
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
-*发布：tianzhihuan*
+**更多资讯，更多关注**
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 
