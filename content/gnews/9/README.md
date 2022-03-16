@@ -2,37 +2,16 @@
 ---
 
 
-## 俄罗斯央行即日起暂停从银行购买黄金
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2174428/)
+## 视频|新中国联邦战友采访战地钢琴家
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2174573/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+制作：香草山视频部
 
-整理：li yan li
-编辑：小红帽
+波兰当地时间3月15日，战友Nicole采访了连续七天都在为难民演奏音乐的钢琴家Davide Martello。 这位钢琴家说自己不关心政治，但是非常反对战争，他在很多战争和动乱的场面去安抚过受难的百姓。他曾去过阿富汗，动乱时期的土耳其，以及发生了恐怖和爆炸事件的巴黎。 在一些经历了自然灾害如洪水的地区。他四处奔走，为世界呼吁和平和爱，他说自己未去过香港，但为香港人演奏过。谈到starlink，他说，现在的科技进步太方便了，starlink这样的高科技只会使人与人的连接更加容易，无论什么种族和语言，善良的人们彼此都有一颗和平的心。只有和平和爱，还有音乐，才能够让全人类团结一致。 NIcole战友告诉钢琴家，人类社会一切罪恶的根源就是共产党，只有推翻了共产党才能有人类团结和分享爱的可能。而新中国联邦就是消灭共产党的中国人。钢琴家说虽然他不懂政治，但是他认为一个政府如果不与世界联网，违背历史潮流，想要倒退，那是不可能的。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe-2.png)图片来源：雅典娜设计组
+发稿：木香
 
 
-根据路透社3月15日报道，俄罗斯中央银行表示，将从周二起暂停从银行购买黄金，理由是为了满足家庭对黄金的增长需求。这是西方国家对俄罗斯制裁以来，俄罗斯央行在抵御俄罗斯市场风暴方面的一个新尝试。
-
-2月28日，俄罗斯央行将基准利率从9.5%上调至20%，当时[卢布](http://biz.finance.sina.com.cn/forex/quote.php?code=USDRUB&amp;img_type=min)暴跌至了历史最低水平，俄罗斯民众纷纷从银行提取现金。
-
-此前，西方国家对俄罗斯实施了前所未有的金融制裁，包括将俄罗斯主要央行驱逐出SWIFT支付系统，同时冻结了俄罗斯央行在外将近一半的外汇储备。
-
-为了应对西方国家对俄罗斯所实施的，前所未有的制裁措施，克里姆林宫采取了所谓的解除乌克兰武装的“特别行动”。
-
-俄罗斯央行表示，将从3月15日起暂停从银行购买黄金，但没有说明该变化会持续多久。
-
-新闻链接：[俄罗斯央行即日起停止从银行购买黄金以满足家庭需求](https://cn.reuters.com/article/russian-cenbank-gold-0315-tues-idCNKCS2LD03I?il=0)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
