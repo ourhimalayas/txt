@@ -2,44 +2,39 @@
 ---
 
 
-## 男人的个性和性格是最重要的,女人的善良是最重要的
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2173678/)
+## 大直播后记：CCP赌美国不会同时打三场战争
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2173717/)
 
-Youtube视频链接：[https://youtu.be/yauZLlExfJA](https://youtu.be/yauZLlExfJA)
+整理：奮鬥、雨桐
+编辑：skyandmoon
 
-Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/shine_1.png)图片来源：雅典娜设计组
 
-**郭文贵先生：**我觉得有才华的男人远远比有肌肉的男人要可爱得多得多。我对有才华的男人，我是从小，我们知道我的成长的经历，我就觉得非常尊敬。我就觉得，一遇到有才华的男人，我就一下子人就变了：我就感觉这人哪都看着顺眼，哪都好看。我就觉得对善良的女人，我就觉得我看哪都好，这是我从小的本能，这是我的成长的环境来给我养成的。
 
-你像Eric这样的，这种有智慧的，他有智慧，非常聪明。而且什么事情他有他独特的个性和魅力，你能感觉他跟别人不一样，是吧？你发现这个人跟谁都一样的时候，你就没啥兴趣了。不是你装，你装不出来的。所以男人个性和性格是最重要的，女人的善良是最重要的。这女人不是说胸多大，脸多漂亮，我从来没有看过女的拿脸或什么胸大，我觉得从来没有过。
+安红：
 
-我就觉得这个女的叫我感受到她那种善良，再加上聪明，那就一下子就感觉不一样了。人家说“情人眼里出西施”，我觉得哪里也出不了西施。我觉得从善良里边能看到西施。我觉得对男人，只要这个男人有个性、有性格、智慧，那我一下子就来劲了，就感觉这人就是无比伟岸。我看人是不一样的。
+七哥，我问个问题。其实中共一直在背后，挑动各种事端发生。我们都知道这个邪恶的国家，他们都已经连成一片了。那么打台湾是否意味着中共是直接来挑战，或者直接向全世界表明，他们就是明目张胆的支持普京，或者说他跟普京在一起。到那个时候，美国和西方会怎么做？谢谢。
 
-编辑整理：Jacques；
+七哥：
 
-字幕文件制作：小满；
+我觉得美国一定开干的，一定开干！我觉得共产党会在未来的两三周内对台湾、中东都会搞动作。因为这是能源的问题，他要掐掉美国的能源。最早2017年，七哥就告诉大家霍尔木兹海峡，就是中东能源。2017年，七哥说：“跟韩正见过面的这位朋友，过去整个中国的能源都归他管，后来回到上海。”他说，共产党这里一定在这。七哥你说太对了，一定在这个能源线上搞西方，你断掉我的SWIFT，我断掉你的整个能源线。
 
-视频制作及上传：Cindy；
+因为工业发达国家，天然气和油是它的一个经济的衡量标准，美元是石油美元，所以CCP要干掉它。这是很疯狂的，他一定会做的。他最大的问题是要干啥，知道吗？兄弟姐妹，今天我最后告诉你们，为什么中国共产党要在中东再点一炮，他的战略目的是什么？大家能说出来吗？看看谁知道？
 
-G-News发布：小满；
+共产党所有的算盘就是赌：美国不可能同时打三场战争。俄乌开战、中东开打，伊朗、沙特、伊拉克、胡塞、叙利亚一定开战，而且背后都是共产党的导弹部队，都是共产党给的武器、共产党的雇佣兵。然后阿富汗死掉几百万人，饿死以后，出来大量的恐怖分子。美国你掺和乌克兰，现在美国打仗，在乌克兰，绝对都是美国和整个北约的技术指导，严格讲就是美国跟他打、欧洲跟他打——就是北约。那么中东再打的话，美国不是欧洲了，那美国跟谁打？美国是跟共产党打。共产党再去打台湾的时候，美国不可能有第三场战争同时进行。美国的战略就是同时打赢两场战争。这是在伊拉克战争，1997年之后制定的政策。97、98、99到2000年美国确定战略，就是同时打赢两场战争。在南斯拉夫，当时说决定要打赢一场战争。当时把美军的投放，从过去的两周、和一周，改成48小时。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+现在就是赌你美国不能同时打赢三场战争。他在中东点火，就是要掩盖他去台湾。那么一旦这个时候，美国、欧洲没有选择，一定动手。但是大家记住动手的结局：美国、欧洲，他俩加一起也不可能到大陆去，把部队派到大陆也是不可能的，只能轰炸。轰炸完以后，如果中国人不起来灭共产党，共产党还在那儿，他能再像过去解放区、战区、抗日，把国民党给灭了。这帮流氓，就像路大脑袋，现在还活着，还直播呢，是吧？蛇妖闫还活着，九指妖还要骗，还发明了Sa币；高冰尘还活着。这帮烂人，生命力很强的，也能活下去。中国人继续去看他的直播，中国人继续受共产党领导。所以说一定会参战。谢谢。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+资料來源：[2022.3.15文贵大直播](https://www.gettr.com/streaming/p1051m93814)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+*发布：tianzhihuan*
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

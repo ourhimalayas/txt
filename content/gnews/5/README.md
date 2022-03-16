@@ -2,35 +2,45 @@
 ---
 
 
-## 中共核酸检测犯罪的事实
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2173701/)
+## 台湾最大的两个问题是内部卖台贼和军队内部三一三剩一
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2173749/)
 
-撰稿：东京樱花团/Georgesong
+Youtube视频链接：[https://youtu.be/KeQL\_xAzK14](https://youtu.be/KeQL_xAzK14)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/中共核酸检测犯罪的事实.png)
+Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
-第一,涉嫌诈骗罪
-核酸检测最大的作用就是发现无症状感染者。而早在2020年2月武汉疫情期间对300名无症状感染者的采样进行了培养，结果全部为阴性，这证明核酸检测准确性和有效性极低。据此核酸检测在防疫工作中是可有可无的。共匪犯罪集团利用可有可无的核酸检测为道具从民众手中掠夺走的财富保守估计在5000亿元。这种以非法占有为目的，捏造事实隐瞒真相骗取财物的行为，涉嫌诈骗罪。
+**郭文贵先生：**对台湾来讲，最大就是两个问题：内部卖台贼，这是我真的很担心的。就这帮孙子是太坏了，你看乌克兰竟然没有一个，就连他的政敌泽连斯科都佩服泽连斯基。泽连“锁”斯基先生这回很惨， 但泽连斯科、泽连琴科都出来说，“了不得，我跟你站在一起”！他都被限制出境，跑都跑不了，是吧？就这：老子我跟你一起和他干！是吧？这是乌克兰的伟大！
 
-第二，涉嫌强迫交易罪
-核酸检测公司为了在短时间内获取最大利益，共匪犯罪集团以通知命令等方式强制民众进行核酸检测，核酸检测本质上是有价值的商业服务，强制民众核酸检测本质是以暴力胁迫手段强买强卖，强迫他人提供接受服务。情节严重涉嫌强迫交易罪。
+你看台湾，连战、郭伯雄，是吧？什么这九那九，马英九，包括民进党里边很多人，我告诉你，我掌握绝对的情报。很多人都在跟共产党出主意、拿对策、做呼应、使劲往上靠：“你们来吧，快点来吧。来就来快点，别让美国人和日本人参与”。——出这个招：我们现在是否有什么其他计划，随时让我们掌握信息、打哪不打哪、我们谁谁孩子在军队、谁谁将军已经是明确了。
 
-第三，涉嫌故意杀人罪
-核酸检测时采用的鼻咽拭子，并非普通的棉签。而是用呢绒和聚酯纤维在塑料棒上织融而成，具有一定的硬度，会对口腔鼻腔造成损伤。采集液具有一定的腐蚀性按常理是禁止接触人体皮肤的。但是共匪犯罪集团隐瞒了这两点。故意用对人体有伤害的鼻咽拭子和有腐蚀性的采集液。去接触人们的咽腔和鼻腔。导致很多人在做了核酸检测之后出现发烧、咳嗽、头晕、心脏早搏等症状。甚至有人为此而死亡。这种直接或间接用有害物质接触人的机体导致人的生命非自然终结具有故意性的犯罪行为。涉嫌故意杀人罪。
+这是非常可怕的，有多少人是真心要和老共军队决一死战呢？大概30%。30%是傻乎乎地、犹犹豫豫、不坚定，另外30%是彻底被老共收买了。这个局势是在乌克兰没有的。“三一三剩一“，就是目前这个局面。
 
-第四，涉嫌非法拘禁罪
-世界上任何一个传染病防治法都明确规定。隔离的对象仅限于病人疑似病人密接的医护人员。但是在实际防疫工作中，共匪犯罪集团随意规定隔离条件如发现一例核酸检测阳性全班隔离、全公司隔离，全小区隔离，这种超出传染病防治法规定的隔离对象，非法拘禁他人，非法剥夺他人人身自由的行为，涉嫌非法拘禁罪。
+编辑整理：Jacques；
 
-另外对未参加核酸检测者赋予黄码、红码限制通行限制进入某些场所甚至拘留等行为，也涉嫌该罪。
+字幕文件制作：小满；
 
-第五，涉嫌非法采集人类遗传生物资源罪
-根据国际人类遗传资源管理及生物安全相关法律规定，核酸检测时采集的样本法律上属于人类遗传资源，采集人类遗传资源超过500人就必须提前取得该国最高管理部门批准，并且取得被采集人书面同意。不得采用欺骗、胁迫等方式取得。而在实际操作中，共匪以健康筛查为幌子，欺骗、诱导、胁迫人们参与其中。涉嫌刑法中所列非法采集人类遗传资源罪和强迫他人提供生物样本罪。
+视频制作及上传：Cindy；
 
-对于共匪所支持的核酸检测犯罪集团及其违法行为人人都可以予以抵制、斗争、控告。
+G-News发布：小满；
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

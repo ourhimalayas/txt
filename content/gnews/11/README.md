@@ -2,42 +2,27 @@
 ---
 
 
-## 俄罗斯的国际形象和无法在全世界合法投资赚钱不可逆转
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2173651/)
+## 普京犯下战争罪！美参院一致通过谴责 促国际法院调查
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2173669/)
 
-Youtube视频链接：[https://youtu.be/YDBZLka-ZLs](https://youtu.be/YDBZLka-ZLs)
+俄罗斯全面入侵乌克兰，首都基辅等大城多处遭到轰炸，已造成数千平民丧命，更有超过300万乌克兰人沦为难民，还传出俄军使用日内瓦公约禁用、伤害更大的真空弹及白磷弹。
 
-Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3861617_1_1.jpg)图片来源：路透
 
-**郭文贵先生：**俄罗斯已经完了，你觉得俄罗斯还有未来吗？好好（先生）兄弟，你觉得俄罗斯还有未来吗？两件事它不可逆转了：俄罗斯在世界上想叫世界人民认为它是个和平式的使者和国际上的正常的国家力量，不可能，短期内不可能，有普京的时代是不可能；俄罗斯人想到全世界合法的投资和赚钱和花钱和旅行绝对不可能！这两条就完了。
+《路透》报导，美国联邦参议院15日一致通过一项谴责俄罗斯总统普京犯下战争罪的决议案，在严重分裂的美国国会罕见地展现出如此团结一致的表现。
 
-这不说战争结果，别说被干掉还是干不干掉，先别说，剩下就两个奇怪的结局：一，和解了，大家都回去，它也要面对这个结局；二，它放核武器，或者是乌克兰和美国在哪方面再支持它，把它给整怎么着了，然后它再来个狠的，什么“切尔诺贝利泄漏”或者什么“普京被那边被做掉”，这种滑稽的结局一定会出现的，突然间，会突然间。一方被干掉，一方停战，被改变，或哪个人再出事，但是俄罗斯的命运不会改变的，就是这结局了。
+由共和党资深参议员葛兰姆（Lindsey Graham）提出，并得到两党参议员支持，这项决议案将敦促海牙和其他国家的国际刑事法院（ICC）在调查俄罗斯入侵乌克兰犯下的战争罪时，将目标放在俄罗斯军队。
 
-编辑整理：Jacques；
+简评：严重分裂的美国国会罕见地展现出如此团结一致，大船难调头，一旦调头则全力前进，普京抓紧回头是岸吧，一条邪路走到黑，最后的结果是生灵涂炭！入魔的狂人最后还有一丝丝的良善，假如还有那一丝丝的善念，请停止战争！
 
-字幕文件制作：小满；
+新闻来源：[LTN](https://news.ltn.com.tw/news/world/breakingnews/3861617)
 
-视频制作及上传：Cindy；
+撰稿/发布：一叶知秋
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

@@ -2,22 +2,32 @@
 ---
 
 
-## 石油美元出现裂缝 沙特考虑接受人民币
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2172765/)
+## 法治基金救援帐篷附近出现疑似中共卧底
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2172787/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-112.jpg)
-图片来源：m.sohu.com
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-零对冲网3月15日报道，在进去40年中一个核心的稳定因素是因美元储备状况的扶植，全球金融系统基于石油美元的锚定。那就是产油国出售石油给美国和其他国家，均以美元结算，形成这种以美元计价的资产再循环投资美元计价的市场，这就是培植全球美元货币。这个过程奠定了美国在全球无容置疑的金融超级大国的地位。
+整理/编辑：小红帽
 
-但在我们报道了关于华尔街日报称“沙特阿拉伯正在与北京进行密切谈判用人民币购买石油的事宜”，这将使以石油美元为主导的全球石油市场发生变化，这意味着全球原油出口市场不仅将向亚洲倾斜，也意味着指向了美国金融系统因着过去十年来超发美元以应付政府的化费而损害美元储备状况。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-16_13-14-42.png)图片来源：郭文贵先生盖特视频截图
 
-沙特对美国不干预也门内战感到很不爽，而且对美国撤离阿富汗时的狼狈感到震惊，而中共国从沙特进口原油占沙特出口的25%，如果用人民币结算的话，就加强了中共国的货币，将成为全球石油人民币储备货币。
 
-俄乌战争使得西方世界更需要能源，造成商品价格上升，而中共不声不响地在西方忙于搞定能源时选择在资金方面捞好处，它拉拢了非西方的也是富裕的原石油美元客户，给予新的产品—-人民币，中共正在主动性地将美元挤出全球储备货币系统。
+3月15日，在波兰的梅迪卡难民援救中心，两个形迹可疑的华人面孔出现中国联邦和法治基金救援帐篷附近。他们慌张的神色令人不禁怀疑：这些人是否由中国共产党主使，企图对新中国联邦及法治基金的乌克兰救援行动进行骚扰和破坏。
 
-#### 新闻来源： [Petrodollar Cracks: Saudi Arabia Considers Accepting Yuan For Chinese Oil Sales](https://www.zerohedge.com/markets/petrodollar-cracks-saudi-arabia-considers-accepting-yuan-chinese-oil-sales)
+从视频可见，这两个可疑的华人，在被新中国联邦志愿者的镜头捕捉后，慌忙离开，并不时回头看往法治基金帐篷这边。
+
+以下是现场可疑华人的照片：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-16_13-14-54.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-16_13-15-20.png)
+资料来源：[郭文贵先生2022年3月16日盖特视频](https://www.gettr.com/post/p1068wl7319)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

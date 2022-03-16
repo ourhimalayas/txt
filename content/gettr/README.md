@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 9:00 AM (UTC)`
+
+The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Rescue Team – 24h Hotline: +1 7206576776 or +1 719-224-4232 or +48 508-532-712 or +48 508-531-518 Telegram: t.me/UkraineRescue GETTR: https://gettr.com/user/UkraineRescue<br/>我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є першопричиною катастроф у світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
+![img](https://media.gettr.com/group33/origin/2022/03/16/04/209b7700-8e67-53d0-f2bb-9f48b88dd8be/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/16/2022 8:51 AM (UTC)`
 
 3/15/2022 Miles Guo: Since the CCP has not invaded Taiwan, the third gate of taking down the CCP has not been completely opened. The CCP virus is rampant in Hong Kong and the combination of the previous variants and Omicron has emerged. Outbreaks of the virus in places like Jilin province indicate that the pandemic is out of the CCP’s control. The “Zero COVID” policy is a political fraud, which will lead to humanitarian disasters.<br/><br/>3/15/2022 文贵直播: 中共未对台开战，尚不能说灭共的第三道大门已经彻底打开；香港病毒肆虐，出现老病毒和奥米炕的混合体；吉林等地病毒大爆发说明中共疫情已失控，清零政策就是政治欺骗，从而导致人道灾难<br/>
@@ -151,13 +158,6 @@ Recently, the Chinese Communist Party (CCP) shamelessly lied，to the public tha
 
 3/15/2022 Miles Guo: Why will there be wars in the Middle East? Because the CCP is betting that the U.S. won’t be able to simultaneously fight three wars in Ukraine, the Middle East, and Taiwan, respectively. But if the CCP attacks Taiwan, the U.S. will for sure take action by bombing the mainland. Anyway, it is up to us Chinese to take down the CCP.<br/><br/>3/15/2022 文贵直播：中东为什么会燃起战火？因为中共要赌一把美国不会同时打乌克兰、中东和台湾的三场战争；但如果中共打台湾，美国一定会出手，会采取轰炸战略，但灭共还要靠中国人<br/>
 ![img](https://media.gettr.com/group32/getter/2022/03/15/21/531a4ae5-f726-c1c8-8c08-b7fbec3d56a0/out.jpg)
-
----
-
-`@miles 3/15/2022 9:57 PM (UTC)`
-
-3/15/2022 Miles Guo：Han Zheng ordered the arrest of the Vice Minister Ma Jian because Ma Jian investigated and seized the secrets of Han’s illegitimate children and illegal assets; Han Zheng told his crony that the start of Russian invasion of Ukraine heralded the demise of the CCP, because Xi would follow Putin’s path and attack Taiwan<br/><br/>3/15/2022 文贵直播：韩正主使抓捕马建副部长因为马建调查并掌握了韩私生子女和非法财产的秘密；韩正告诉亲信，俄乌战争开打预示中共的灭亡，因为习会攻打台湾，走上普京的不归路<br/>
-![img](https://media.gettr.com/group32/getter/2022/03/15/21/b62e9f6e-33df-60a8-609f-3bc206913da6/out.jpg)
 
 ---
 
