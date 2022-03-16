@@ -2,45 +2,34 @@
 ---
 
 
-## 多伦多将迎来10年来最温暖St. Patrick&#8217;s Day
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2176882/)
+## 【每日聚焦】俄乌战争3月16日简要
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2176905/)
 
-作者：Lauren O’Neil
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_0Z449626.jpg)
-天气预报显示，本周多伦多将迎来异常温暖的天气，一股温和的太平洋空气将在2022年St. Patrick’s Day之前抵达多伦多。
+编撰与校对：文斌
 
-这是爱尔兰人的运气吗？不，这只是多伦多应该有的三月，赶快让我们从严冬的蹂躏下喘口气吧。
+1、乌克兰总统办公室助理表示，乌克兰武装部队在一些方向上进行了主动性的进攻。比如在苏梅地区Trostyanets附近的俄军作战部队被乌克兰军队摧毁；南部的赫尔松空军基地被乌克兰军队突袭，大量俄军直升机等被摧毁。
 
-加拿大环境部发布预报显示3月17日星期四的最高气温为17摄氏度，预计全天天气晴朗，气温有可能会上升得更高。
+2、基辅仍然承受着俄军炮击，当地时间上午，一枚炮弹击中了基辅Shevchenkivskyi区的一栋12层楼房。据初步消息，有两人受伤。
 
-在经历了一个充满强风、冰冷的空气和那种从侧面吹来直接击中你眼球的雪之后，对多伦多许多人来说，这将是一场受欢迎的热浪，虽然是短暂的，但人们依旧期待。
+3、切尔尼戈夫一个面包店遭到俄军炮击，至少有10人死亡。
 
-预计多伦多本周将开始变暖，到St. Patrick’s Day时将达到至少17摄氏度的高温。
+4、哈尔科夫多个地区遭到猛烈炮击，其中有居民区遭到数小时的猛烈炮击。
 
-气天气网络的Kelly Sonnenburg在周一发布的最新消息中说：周四将真正感受到爱尔兰人的好运，预计气温将达到十几度。
+5、卢甘斯克地区Rubizhne的炮击事件造成1人死亡，而Severodonetsk（塞维罗涅茨克）则遭遇猛烈炮击。
 
-对多伦多人来说，这将是最近10多年来最温暖的St. Patrick’s Day。
+6、俄罗斯导弹夜袭乌克兰中西部城市文尼察，暂无伤亡的信息，但是击中了电视塔，导致播出中断。
 
-历史上多伦多St. Patrick’s Day有记录以来的最高温度是19.4摄氏度，发生在1945年3月17 日。而五年后的1950年的St. Patrick’s Day则是有记录以来的最低温度-19.4摄氏度。
+7、赫尔松州的斯卡多夫斯克镇因为市长和他的副手被武装人员（据信是俄罗斯人）绑架，当地居民在当地行政办公室外抗议。
 
-天气网络说在本周末之前气温将与通常的4月下旬或5月初的气温相当，但是也别对春天早到报太大希望，因为到周末多伦多气温会下降，接近5摄氏度季节性气温，春天来临之前可能还会有更多的雪。
+8、俄罗斯军舰炮击了Odesa西南方向的莱贝德夫卡、桑热伊卡、扎托卡和贝伦基地区的海岸线。
 
-来源：https://www.blogto.com/city/2022/03/toronto-expected-warmest-st-patricks-day-weather-10-years/
+9、又有俄罗斯导弹在中部城市Cherkasy（切尔卡西）地区上空被击落。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+10、超过3207辆汽车和超过3000人，包括772名儿童在内连夜从马里乌波尔疏散到Zaporizhiye，但是马里乌波尔保卫战继续。
 
-**关注我们**
+11、英国情报部门：俄罗斯正在调兵遣将，包括远东战区、太平洋舰队和亚美尼亚等地。而且经证实，位于格鲁吉亚的Tskhinvali（茨欣瓦利）第四卫队占领基地的俄军正通过罗基隧道离开该地区，前往乌克兰作战。另据报道，来自所谓的南奥塞梯的志愿者也正在前往乌克兰。
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

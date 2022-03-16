@@ -2,38 +2,52 @@
 ---
 
 
-## 泽连斯基向遇害美国记者家属发送感人信
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176864/)
+## 加拿大又宣布制裁俄罗斯15名高官
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2176866/)
 
-作者：新西兰伊甸农场-玫瑰
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒15日报道，美国记者布伦特·雷诺在乌克兰首都附近报道难民故事时遇难。 50岁的雷诺是一位著名的电影制片人，他经常前往世界上一些最黑暗和最危险的角落拍摄纪录片。3月13日，在俄罗斯军队于基辅附近向他的车辆开火后遇难身亡。据悉，他正在为一份关于难民的报告收集材料。
+作者：边缘君
+![](https://assets.gnews.org/wp-content/uploads/2022/03/40_13355E32.jpg)
+今天（3月15日），乌克兰总统泽连斯基在加拿大国会议会上发表讲话。他反问加拿大政客，如果俄罗斯围攻温哥华，或者瞄准多伦多的CN Tower，加拿大人会有怎样的感受。
 
-乌克兰总统泽连斯基3月15日在网上发表了一封写给雷诺家人的信，表达他的“衷心哀悼”。他称雷诺是一位“才华横溢、勇敢的记者”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-59.jpg)
-泽连斯基在信中说，“布伦特在记录数百万乌克兰人的人类悲剧、破坏和苦难时失去了生命。他带着所有的勇气和决心，前往最危险的战区，拍摄了侵略者对我们国家施加的前所未有的残酷和邪恶。”
+泽连斯基表示，自战争开始以来的20天内，已有97名儿童丧生。他再次呼吁西方国家在乌克兰设立禁飞区，以防止俄罗斯空袭造成平民伤亡。
 
-“乌克兰人民正在与俄罗斯政权作斗争，以保卫他们的家园和世界民主，他们与你们一起哀悼。”“我们感谢布伦特的专业精神和对同情、道德和正义价值观的承诺。”
+在泽连斯基发表讲话之前，加拿大于3月14日给他送了一份见面礼：联邦政府宣布制裁15名俄罗斯官员，包括军事人员和将军。
 
-“愿布伦特的生命、服务和牺牲激励全世界几代人站出来为光明力量对抗黑暗力量而战。”
+加拿大外交部长乔美兰（Mélanie Joly）说：“一点一点，就像你每天看到的那样，我们的目标是增加对俄罗斯政权的压力，我们正在制裁这些人，因为他们是参与制造乌克兰灾难相关决策的一部分。”
 
-参考链接：[The people of Ukraine are mourning with you’: Zelenskyy sends moving letter to family of slain US journalist](https://www.stuff.co.nz/world/europe/300541835/the-people-of-ukraine-are-mourning-with-you-zelenskyy-sends-moving-letter-to-family-of-slain-us-journalist)
+据悉，加拿大对俄罗斯个人和实体的制裁，主要为财产冻结、进出口限制和金融禁令。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+**以下是加拿大近期针对俄罗斯的制裁清单：**
 
-总编：天滅中共
-编辑/审核:飞虹
-校对/发稿：Hetangyuese
+2月24日，加拿大连续修订《特别经济措施（俄罗斯）条例》两次。第一次，在制裁名单里增加俄罗斯351名国家杜马成员（类似于国会议员），5个经济实体，并对俄罗斯主权债务实施新禁令。第二次，新增31名个人和19个实体。所有个人和实体都将受到广泛的交易禁令。
 
-**更多资讯，更多关注**
+2月28日，加拿大进一步修订《特别经济措施（俄罗斯）条例》，制裁名单新增俄罗斯联邦安全理事会18名成员，包括总统普京、外交部长、国防部长、司法部长和财政部长。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+3月4日，加拿大进一步修订《特别经济措施（俄罗斯）条例》，制裁名单新增10名能源部门高管。他们为该国拥有或控制的石油实体，俄罗斯石油公司（Rosneft）或俄罗斯天然气工业股份公司（Gazprom）工作。
+
+3月6日，加拿大进一步修订《特别经济措施（俄罗斯）条例》，制裁名单新增10名现任或前任高级政府官员及其亲密伙伴，以及传播虚假信息的代理人。加拿大还禁止任何俄罗斯船舶停靠或经过加拿大水域。
+
+3月10日，加拿大进一步修订《特别经济措施（俄罗斯）条例》，制裁名单新增32个国防实体，其中大部分为俄罗斯拥有或与俄罗斯政府有合约；新增5名高级官员和相关同事。加拿大还禁止所有加拿大人进口特定的俄罗斯石油产品。
+
+还有就是3月14日宣布的制裁，已在文章开头叙述。
+
+以上只是俄乌战争爆发以来的新增制裁。自2014年俄罗斯企图吞并克里米亚以来，加拿大联邦政府已经制裁了该国900多名个人和实体。
+
+来源：https://www.international.gc.ca/world-monde/international\_relations-relations\_internationales/sanctions/russia-russie.aspx?lang=eng
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
