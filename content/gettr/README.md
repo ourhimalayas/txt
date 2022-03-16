@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 1:14 AM (UTC)`
+
+【Ukraine Rescue】03/14/22 Nicole is reporting live from the Medyka Rescue Center for the fourth day: We are volunteers of the NFSC, our mission is to take down the Chinese Communist Party and to provide rescue support for the Ukrainian people fleeing the war.<br/><br/>【乌克兰救援】03/14/22 妮可在梅迪卡救援中心进行第四天的直播报道：我们是新中国联邦的志愿者，致力于推翻中共，并为逃离战火的乌克兰人民提供救援。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group18/getter/2022/03/16/01/3edd9069-471c-b55a-956b-dfe7e5caeb51/out.jpg)
+
+---
+
+`@miles 3/16/2022 1:13 AM (UTC)`
+
+2022.03.15 晚《新中国联邦新闻访谈》俄乌战况；前线大营救及； 中东，台海局势
+![img](https://media.gettr.com/group6/origin/2022/03/16/01/71709723-fb95-e033-4eef-f23bf91a8634/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@globalhimalaya 3/15/2022 1:07 AM (UTC)`
@@ -145,20 +159,6 @@ The New Federal State Of China provides humanitarian aid at the polish and Ukrai
 
 铁锁梦 MV<br/>Chained Dream<br/> <br/>演唱：Miles Guo<br/>歌词：威廉王<br/>编曲：小光<br/>制作：唐平<br/> 原曲：（女人花）<br/><br/>Cover by Miles Guo<br/>Lyrics: William Wong<br/>Arrangement: Xiao Guang<br/>Producer: Tang Ping<br/>Original Song: Flower Woman <br/><br/>我本花一朵<br/>A beautiful budding rose<br/> <br/>被拐骗山中<br/>since abducted to the mountains<br/> <br/>从此亲人永相隔<br/>forever separated from family <br/> <br/>囚禁二十年 我受尽了折磨<br/>Locked up and tormented for two decades<br/> <br/>这个世界不要我<br/>the world has abandoned me<br/> <br/>醒来吧 别再如此冷漠<br/>Wake up, don’t be stone cold<br/> <br/>醒来吧 抛掉所有懦弱<br/>Wake up, shake off all cowardice<br/> <br/>只为能 紧握住亲人手<br/>In order to hold loved one’s hands<br/> <br/>要埋葬 那邪恶的中共<br/>the evil CCP must be buried<br/> <br/>牙齿全拔落<br/>Teeth all pulled<br/> <br/>铁锁已斑驳<br/>shackles mottled<br/> <br/>这就是我的一生<br/>this is my life in its entirety<br/><br/>同胞快醒来<br/>Fellow compatriots be awakened<br/> <br/>从此要站着活<br/>live standing on your feet<br/> <br/>我们砸碎这铁锁<br/>let’s smash the shackles break the chain
 ![img](https://media.gettr.com/group34/getter/2022/03/15/15/d23ba317-0881-41b6-f833-b174b512a8a4/out.jpg)
-
----
-
-`@miles 3/15/2022 1:47 PM (UTC)`
-
-On 14 March, in the large tent of the New Federal State of China（NFSC）,<br/>between the NFSC's frontline rescue teams, various rescuers without borders organizations, the official rescue organizations, and the International Red Cross.<br/>the rescuers could make better coordinated and communicative actions about the work at hand.<br/>We are the new Chinese who is taking down the evil CCP, <br/>and this is the first time that we have attended an international conference as the new Chinese3月14日，在新中国联邦（NFSC）的大帐篷里，<br/>NFSC一线救援队、各类救援无国界组织、官方救援组织、国际红十字会。<br/>救援人员可以就手头的工作做出更好的协调和沟通行动。<br/>我们是打倒中共邪党的新中国人，<br/>这是我们作为新华人第一次参加国际会议。
-![img](https://media.gettr.com/group26/origin/2022/03/15/13/11b9310a-83f5-c20e-779b-3c5e47ff4184/out.jpg)
-
----
-
-`@miles 3/15/2022 1:22 PM (UTC)`
-
-【Ukraine Rescue】03/15/22 Nicole explains to Bloomberg reporter Aggi Cantrill that the political goal of the NFSC to eliminate the CCP is also a humanitarian goal, and that all humanitarian disasters are caused by the CCP, not only in China, but also in Xin Jiang, Hong Kong, Taiwan, and the war in Ukraine, all of which have the CCP's black hand behind them. Whether it is the rescue of Ukrainian refugees or helping the Chinese people to eliminate the Communist Party, it is all for humanitarian purposes.<br/><br/>【乌克兰救援】03/15/22 妮可向彭博社记者Aggi Cantrill介绍：新中国联邦消灭中国共产的的政治目标同时也是人道目标，所有人道灾难都是中国共产党造成的，不仅是中国，包括新疆、香港、台湾，以及乌克兰的战争，背后都有共产党的黑手，无论是对乌克兰难民的救助，还是帮助中国人民铲除共产党，都是出于人道主义的目的。<br/>
-![img](https://media.gettr.com/group40/getter/2022/03/15/13/06cf698e-1ea6-33ec-c11a-f6b746c2fa4e/out.jpg)
 
 ---
 

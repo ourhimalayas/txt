@@ -2,31 +2,30 @@
 ---
 
 
-## 俄军空袭基辅市区 多处民宅遭击中至少2人死亡
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2170205/)
+## NFSC新闻、G|TV新闻访谈简报|2022年3月15日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2170421/)
 
-**撰稿：日本东京方舟农场 海星**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-5.jpg)
 
-3月15日，乌克兰紧急救援中心在facebook上发帖表示，基辅市区多处居民住宅区遭到俄军空袭，造成至少2人死亡。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-15.png)
+文章仅代表作者本人观点，与Gnews无关
 
-据《中央社》报导，乌克兰基辅市紧急救援中心在facebook上发布的一篇贴文表示，15日凌晨，俄军空袭了基辅市中心，多处居民住宅区遭到攻击。其中一幢位于斯威亚托希斯基区（Sviatoshynsky）的16层住宅大楼被击中，急救人员迅速赶到现场救援，从瓦砾中抬出两具遗体，并救出27人。
+视频参看：
+[2022.03.15早 《NFSC新闻》](https://gettr.com/streaming/p104qwc6790)
+[2022.03.15早 G|TV《新闻访谈》](https://gettr.com/streaming/p105enx4887)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-74.jpg)（图片来源：facebook.com/MNS.GOV.UA）
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-紧急救援中心还表示，位于摩斯提斯卡街（Mostytska）的一幢10层楼住宅大楼，底下5层楼因遭到射击而引发火灾。此外，波迪斯克区（Podilsk）、奧索科尔斯基区（Osokorky）等地区的居民住宅也遭到了攻击。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-18.jpeg)
 
-报道称，多名在现场的法新社记者表示，今天清晨听到基辅市中心至少传出3声巨大爆炸声。一名法新社记者看到波迪斯克区的一幢大楼中间被炸得一片焦黑，浓烟不断从破碎的窗户冒出。
-
-据悉，目前基辅市几乎已经完全被俄军包围。
-
-俄罗斯自2月24日非法入侵乌克兰以来，基辅市约300万居民被迫逃离出城，远赴他国避难。
-
-参考链接：
-1. [https://www.cna.com.tw/news/aopl/202203150244.aspx](https://www.cna.com.tw/news/aopl/202203150244.aspx)
-
-素材采编：海星
-总编：青城道姑
-校对发布：小斐
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
