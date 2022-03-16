@@ -2,36 +2,22 @@
 ---
 
 
-## 【 G时新闻 】白宫警告中共如果军事援助俄罗斯将面临严重后果
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2170846/)
+## 乌总统泽伦斯基希望连线日本国会并发表“抗议俄入侵演说”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170892/)
 
-播报：加拿大温哥华扬帆农场 – 悠然
+撰稿：东京樱花团｜haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1687.png)[*图片来源*](https://images-ext-2.discordapp.net/external/T9lfc2YyFA8KId9nDVh6ZkuUJbFtgWKr8h94QiTtB2Q/%3Fexp%3D10800/https/newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220315-07728496-nnn-000-4-thumb.jpg)
+据悉，乌克兰总统泽伦斯基向日本政府提议：在日本国会发表抗议俄罗斯的在线演讲。
 
-视频制作：加拿大温哥华扬帆农场 – 文雅
+据多位日本政府官员和执政党人士透露，网上演讲是通过乌克兰大使馆到日本政府探讨的。泽伦斯基总统已经在英国议会进行了视频演讲，预计日本国会也会对俄罗斯的侵略表示强烈抗议。
 
-零对冲网3月14日报道，于周一去罗马参加与中共高级外交官杨洁篪会见的杰克·沙利文告诉CNN说美国已经直接地通过私人管道告诉中共如果中共在俄乌战争中作为俄罗斯的后盾的话，将面临大规模制裁行动。
+但是据相关人士透露，日本国会会议上还没有进行过网上演讲的先例，因此政府将慎重考虑。
 
-一位拜登政府高官引用多个报告称美国向中共传达了美国对中共支持俄罗斯的深度担忧。该官员对于美国掌握的情报关于中共正在提供还是准备提供俄罗斯经济和军事援助的问题拒绝回答，但说对话是坦率而又直接的，沙利文直接表达了深切关注和对某些行动的可能影响和后果。
+信息来源：[**ウクライナ・ゼレンスキー大統領  日本の国会で“ロシアに抗議の演説”打診**](https://news.yahoo.co.jp/articles/78e8070848df4ed5a61200f849d8c6290187dd5b)
 
-美国防部官员说： “ 如果中共国在这场战争中选择实体支持俄罗斯的话，对中共国来说后果很严重。”
-
-中共国外交部说它有权利去捍卫自己的合法权益。
-
-原文链接：https://gnews.org/zh-hans/2165860/
-
-视频链接：https://gettr.com/post/p103xj9969e
-
-发稿：文莱
-
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

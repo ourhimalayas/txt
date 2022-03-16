@@ -2,31 +2,38 @@
 ---
 
 
-## 澳媒报道：俄军俘虏称“感到耻辱”（3）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2171264/)
+## 有声|美参议员称卡车司机为所有美国人权力发声
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2171351/)
 
-撰稿：喜妈
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+盖特3月14日消息，近日美国德州参议员特德·克鲁兹发表演说表示，自由车队卡车司机，正在为全体美国人民的权利发声。
 
-视频&字幕：喜安娜
+该议员说，在自由卡车车队所经过的沿途，都能看见男女老少聚集在一起，挥舞着国旗，鸣笛向他们表示支持，这是非常令人惊叹的。当车队驶过每一座立交桥时，桥上都站满了支持车队的人群，向卡车司机表达感谢。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-6.jpg)
+并且，参议员强调，这些司机正在为每一位美国人的权力发声，也是在为全美350万卡车司机发声，为警察、消防员、为美国军人、医生、护士和教师发声，为航空公司的飞行员和空乘人员发声，为所有不公正且被非法强制接种中共病毒疫苗的人们，或者因拒绝接种疫苗而被解雇的人们发声。
 
-澳媒最近报道，在俄罗斯发动的对乌克兰的侵略战争中，被俘虏的俄国军人称，为自己参与的战争感到“歉疚”。自己参与这次由普京发动的战争，是有“罪”并需要“救赎”。
 
-视频文字如下：
 
-我们做好一切准备，但这意味着救赎吗？我为留在俄罗斯的人民感到歉疚。他们没有罪，他们的罪是他们被误导了，有些人甚至没有网络，他们没有另外的方式来（得到资讯），他们总是不断被洗脑，他们得到单一信息：乌克兰被纳粹占领等，也许我真的学到一课，上帝啊，我于是终见（真相），并努力（将真相）告诉那些在俄罗斯的人们。
+文字版原文：[美参议员称卡车司机为所有美国人权力发声](https://gnews.org/zh-hans/2166196/)
 
-从以上的表述，笔者认为，这是一个非常典型的例子，人民被独裁政权洗脑，并在自己的实地观察和对事物的切身体会中，得知真相，被真相震撼。当这位被俘的俄罗斯军人，感叹上天给了他机会得以见到真相，重新调整自己的资讯和判断，他有着一种责任，去重塑自己的头脑。同时，他还认为，这样的真相应该分享给更多自己的同胞，更多的被独裁者蒙蔽的俄罗斯同胞。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-这个俄罗斯军人的见解，是很真实的。他们在得到真相之后的震撼是真实的，在得知真相后的悔恨是真实的。这就说明，真相的力量，说明人民的良知始终是存在的。这些被误导的民众，一旦有机会接触到真相，世界都是可以改变，人民也是可以被拯救的。对于独裁者和独裁专制政权所施加给人民长期的洗脑，单方面的资讯灌输，只有真相才能破解。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-从这里，我们也看到，洗脑是可怕的，媒体服从于集权对人民的思想绑架是极为可怕的。而让我们看到希望的是：真相是唯一的，也是有力的还击武器。真相拯救世界，真相拯救人民。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-参考消息：
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-‘I feel shame’: Captured Russian soldier’s powerful denunciation of Ukraine invasion
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[https://apple.news/ADr679sgOQEqyG0l5hlXGeQ](https://apple.news/ADr679sgOQEqyG0l5hlXGeQ)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

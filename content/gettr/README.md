@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 2:04 AM (UTC)`
+
+[Ukraine Rescue]  On 3/13, Halley, Feather, and Kent of the Ukraine Frontline Rescue Operation 'Hotline Team' were interviewed, they were put into high intensity jobs immediately after their arrival. Let's hear why they decided to go to the frontline, how the Frontline Hotline Center works, who and what they encountered.<br/><br/>【乌克兰救援】3/13号，乌克兰前线救援团队‘热线小组’ 的哈雷、Feather、Kent接受了采访，他们在抵达后立刻投入到高度紧张的工作中，来听听他们为何决定去往前线，前线热线中心大概的工作情况，以及他们遇到了哪些人和事。
+![img](https://media.gettr.com/group41/origin/2022/03/16/02/464ffd92-ea52-b77e-2905-ac1a489963f1/out.jpg)
+
+---
+
 `@miles 3/16/2022 1:14 AM (UTC)`
 
 【Ukraine Rescue】03/14/22 Nicole is reporting live from the Medyka Rescue Center for the fourth day: We are volunteers of the NFSC, our mission is to take down the Chinese Communist Party and to provide rescue support for the Ukrainian people fleeing the war.<br/><br/>【乌克兰救援】03/14/22 妮可在梅迪卡救援中心进行第四天的直播报道：我们是新中国联邦的志愿者，致力于推翻中共，并为逃离战火的乌克兰人民提供救援。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
@@ -152,13 +159,6 @@ The New Federal State Of China provides humanitarian aid at the polish and Ukrai
 
 【Ukraine Rescue】03/15/22 Some suspicious-looking Chinese faces appeared in the vicinity of the NFSC Medyka Rescue Center. Their nervous expressions made one wonder if this was yet another CCP’s plot to harass and sabotage NFSC & ROLF Ukraine Rescue Operation.<br/><br/>【乌克兰救援】03/15/22 一些形迹可疑的华人面孔出现在新中国联邦梅迪卡救援中心的附近。他们慌张的神色令人不禁怀疑：这是否又是由中共在背后主使，企图对新中国联邦及法治基金的乌克兰救援行动进行骚扰和破坏<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group48/getter/2022/03/15/16/a21b41a0-28ec-8dd4-35e3-facb9c0b9e84/out.jpg)
-
----
-
-`@miles 3/15/2022 3:02 PM (UTC)`
-
-铁锁梦 MV<br/>Chained Dream<br/> <br/>演唱：Miles Guo<br/>歌词：威廉王<br/>编曲：小光<br/>制作：唐平<br/> 原曲：（女人花）<br/><br/>Cover by Miles Guo<br/>Lyrics: William Wong<br/>Arrangement: Xiao Guang<br/>Producer: Tang Ping<br/>Original Song: Flower Woman <br/><br/>我本花一朵<br/>A beautiful budding rose<br/> <br/>被拐骗山中<br/>since abducted to the mountains<br/> <br/>从此亲人永相隔<br/>forever separated from family <br/> <br/>囚禁二十年 我受尽了折磨<br/>Locked up and tormented for two decades<br/> <br/>这个世界不要我<br/>the world has abandoned me<br/> <br/>醒来吧 别再如此冷漠<br/>Wake up, don’t be stone cold<br/> <br/>醒来吧 抛掉所有懦弱<br/>Wake up, shake off all cowardice<br/> <br/>只为能 紧握住亲人手<br/>In order to hold loved one’s hands<br/> <br/>要埋葬 那邪恶的中共<br/>the evil CCP must be buried<br/> <br/>牙齿全拔落<br/>Teeth all pulled<br/> <br/>铁锁已斑驳<br/>shackles mottled<br/> <br/>这就是我的一生<br/>this is my life in its entirety<br/><br/>同胞快醒来<br/>Fellow compatriots be awakened<br/> <br/>从此要站着活<br/>live standing on your feet<br/> <br/>我们砸碎这铁锁<br/>let’s smash the shackles break the chain
-![img](https://media.gettr.com/group34/getter/2022/03/15/15/d23ba317-0881-41b6-f833-b174b512a8a4/out.jpg)
 
 ---
 

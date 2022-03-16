@@ -2,26 +2,32 @@
 ---
 
 
-## 俄罗斯国营电视台现场直播中女工作人员呼吁反战
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170869/)
+## 今日盖特大V推荐 — 自由医疗（Freedom Medical）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2171106/)
 
-撰稿：东京樱花团｜haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1684.png)[*图片来源*](https://news.yahoo.co.jp/articles/1b4888aada5c7cb4c3397a2a041567450b8e3b70/images/000)
-“停止战争！不要相信宣传，他们在这里说谎！”3月14日，一名女性闯入俄罗斯国营电视台新闻节目，在播音员身后向观众呼吁，提出反战标语。该事件发生在1频道直播中，被拍到的女性是该电台的工作人员玛丽娜·奥夫沙尼科娃。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/a8o6s-atvfz-2.jpg)
+***盖特链接***：[https://gettr.com/user/MedicalFreedom](https://gettr.com/user/MedicalFreedom)
 
-独立新闻网站“美杜莎”的编辑凯文·罗斯洛克在推特上上传了奥夫沙尼科娃事先录制的视频信息。视频中，她吐露说，父亲是乌克兰人，为参与克里姆林宫的宣传而感到羞愧。
+**医疗自由自述：**
 
-“乌克兰发生的事情就是犯罪，俄罗斯是侵略国，此次侵略的责任在于普京的良心。”视频通过社交媒体迅速传播开来。
+自由医疗 (FMA) 是一个由医疗专业人员组成的组织，联合起来保护您的宪法医疗权利并让您夺回您的健康。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/vyy.jpg)图片来源：网络
+**自由医疗简介：**
 
-“我们俄罗斯人因为能思考，所以很聪明。能够阻止这种疯狂的只有我们的力量。我们抗议吧！什么都不要害怕，因为他们不能把我们所有人都关起来。”
+自由医疗(Freedom Medical， www.freedommed.org) 是一个私人医疗保健系统，于2022年3月3日由大胡子泽连科等医生(Dr.Vladimir Zelenko) 医生创立。旨在将患者的健康和福利置于制药公司的利润和愿望之上，建立一种患者和医生之间的医疗保健关系，这是以患者为中心的医疗保健，基于个体患者的需求，摆脱大型制药公司和大型政府卫生官僚机构的权力控制和腐败，重新恢复对医患关系的信心。
 
-几家媒体随后报道了奥夫沙尼科娃被警方逮捕的消息，国营塔斯社报道说，有可能被关几天。但是，如果被判犯有侵袭乌克兰后普京总统签署的《伪新闻法》的话，最高可判处15年监禁。
+通过每月99美元会员费，自由医疗将全国各地的美国人与世界一流的医生网络联系起来，他们将把患者的健康——而不是大型制药公司的利益——作为他们的首要任务。
 
-信息来源：[**【映像】ロシア国営テレビの生放送でスタッフ女性が反戦を訴える**](https://news.yahoo.co.jp/articles/1b4888aada5c7cb4c3397a2a041567450b8e3b70)
+低成本每月订阅模式可提供终极的健康保护和护理——不受政府干预。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+校审：洛杉矶盘古农场 —心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

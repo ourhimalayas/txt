@@ -2,71 +2,119 @@
 ---
 
 
-## 玛莎·布莱克本：俄罗斯和中共国是新的邪恶轴心,在削弱美国实力方面有着共同的利益
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2166727/)
+## 《避风港HAVEN》直播内容精选（第二十集 ·上）
+` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/2167395/)
 
-参议员玛莎·布莱克本： 俄罗斯和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 是新的邪恶轴心的一部分，在削弱美国实力方面有着共同的利益。 【附视频：玛莎议员接受福克斯采访，谈话内容翻译如下： 俄罗斯是 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的加油站。 他们是中共最大的供应商。 但我们需要知道的是，中共国将在多大程度上推动救助俄罗斯。以及是否在经济上使用银联卡，是否在我们将俄罗斯从SWIFT系统中踢出时试图回填取代。 我有一个决议案，参议院支持将他们完全排除在 SWIFT 系统之外。你必须看看能源的购买情况。然后是 [#习近平](https://gettr.com/hashtag/%23%E4%B9%A0%E8%BF%91%E5%B9%B3) 和普京之间的关系，我认为他们是新邪恶轴心的新锚。伊朗和朝鲜也加入了他们的行列。】
-
-
-
-> Russia and China are part of the new Axis of Evil with a shared interest in weakening American power. [pic.twitter.com/9KxRQbrJxv](https://t.co/9KxRQbrJxv)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 14, 2022](https://twitter.com/MarshaBlackburn/status/1503417542353764357?ref_src=twsrc%5Etfw)
+**[2022-3-8《避风港》(20) GETTR直播回放： 辉瑞报告被揭露 – 黑暗医疗的背后（一）](https://gettr.com/post/pywfxh6c89)**
 
 
 
-前国务卿迈克.蓬佩奥： 当你在美国安全的核心任务集——即阻止坏人继续侵略——上失败时会发生这种情况。 【附福克斯一段采访：蓬佩奥就一位美国记者在乌克兰厄平被杀做评论，称拜登政府对俄罗斯的侵略行径所采取的行动太迟、太微弱而导致这样的事情发生】
+## 风起云涌
+
+### **FDA和辉瑞败诉，被迫公布疫苗多达1291项副作用等骇人数据。**
+
+1月中旬，德克萨斯州一家联邦法院作出裁决，勒令FDA必须在一个月内公布12000页用来做出对辉瑞Biotech新冠疫苗进行审批的数据，以及之后每30天公布55000页相关临床资料文件，直到所有45万页文件全部公之于众。**FDA原本计划对此封存保密直到2096年**。
+
+**在首批公开的55000页文件中，就有显示多达1291项副作用被罗列出来**，两针后1个月内的不良反应的病例列表就已长达31页，特殊病症附录长达9页。疫苗伤害人身体的所有部位，器官。且在随后的数据中显示，**仅在疫苗不良反应报告系统中，就记录了超过1百万例不良副作用反馈，其中更有24000例被标记为死亡**！
+
+### 参考观点：
+
+1，首先我们需要知道，这只是刚刚开始，最后要公布的资料总共多达45万多页，而现在公布的只是其冰山一角。
+
+2，目前主要的不良反应大致有几类
+严重致死类：例如，过敏性休克，心脏聚停，心肌炎，脑梗，呼吸和心力衰竭
+重症致残类：例如，血栓，癫痫，视网膜病变，脊髓炎
+慢性疾病类：例如，贫血，重证肌无力，生殖系统病变，各种内分泌疾病，炎症和自身免疫系统疾病。
+
+3，实际上，当辉瑞向FDA提交审批程序申请时，就已经有15万8千例不良反应报告！此时我们不禁要画上一个大大的问号，不得不想去追问FDA，为什么在如此情况下还要通过辉瑞的新冠疫苗审批？辉瑞为什么明知自己的产品有如此多恶性不良反应，依然向FDA提交申请，要求通过审批上市？！
+
+4，疫苗公司故意隐瞒这些真实数据，接种者们在不知情下同意接种，也就是说他们一开始就误导大众，实际上人为的制造了大流行。浅层面上是为了金钱、权力、欲望，深层面来说就是屠杀、灭绝人类的行为，甚至比我们想象的更加黑暗。这些伪科学机构必须要被人们清算和去除，否则人类会走向终结。
+
+**科学家指出，辉瑞用误导词汇推广他们的疫苗是95%有效，疫苗只是实验性生物药剂，他们的数据显示，接种疫苗比未接种疫苗高出48%的死亡概率，心脏病复发比未接种人群高出500%。**
 
 
 
-> This is what happens when you fail at the core mission-set of American security, which is to deter the bad guys from continued aggression. [pic.twitter.com/D928ixg4ZK](https://t.co/D928ixg4ZK)
-> — Mike Pompeo (@mikepompeo) [March 14, 2022](https://twitter.com/mikepompeo/status/1503389718070837258?ref_src=twsrc%5Etfw)
+### 维多诺大主教2021年警告世界“邪恶的大重启计划”。
+
+维加诺大主教在2021年圣诞前夕写给美国的信徒以及爱国者的信中说：
+当我们看到周围发生的事情时，就会明白那些破坏基督教社会的人对进步和自由的承诺是多么的虚伪，一个新的巴别塔的前景是多么的具有欺骗性，它不仅没有考虑到上帝，甚至直接与他对立。敌人的地狱式挑战在几个世纪里重复着，没有改变，但它注定要不可阻挡地失败。在这个千禧年的阴谋背后，撒旦始终如一，唯一改变的是与他合作的特定个人。
+
+眼下对美国以及全人类都是关键时刻，那些疫情大爆发的紧急情况，全球变暖和绿色经济的闹剧，以及大重置与深层政府共谋，故意诱发的经济危机，都只是一个更严重问题的后果，如果我们想打败它，就必须深入了解它。这个问题本质上是道德问题；而事实上，它是宗教问题。
+
+**我们必须把上帝重新放在首位，不仅在我们的个人生活中，而且在我们的社会生活中。**
 
 
 
+## 风雨同舟
+
+### 病案分析：
+
+**病案1**
+
+请教一下，我一个朋友，52岁，肺癌现在扩散胸腔,准备做第二次化疗，胸腔已经积水，去年11月发现还是早期，估计与二针疫苗有关系，青蒿素不知道管用吗?
+
+答：对于转移性肿瘤，对青蒿素的反应个体差异很大，这位朋友已经是中末期了。青蒿素对早期的，即便有转移的案例，能产生作用。有一例乳腺癌患者，发生同侧腋下 淋巴结转移后，用青蒿琥酯后，反应很好，在手术清除全部同侧腋下淋巴结后，做手术清扫腋下淋巴结病理切片中发现，原先的13个从乳腺癌转移的6个有癌细胞的阳性淋巴结，全部转阴。这是最成功的一个尝试。对本来就抵触放化疗的患者，可以尝试药用青蒿素，在监控肝脏功能的情况下，伤害小，成本低，还增强自身的免疫力。
+上个世纪40、50年代，美国大药厂研发出来放化疗治疗癌症的方法，对患者的成功案例有了太多水分。从某种程度上来说是相当邪恶的治疗方法。本来有着正常意志，有生活情趣的人经过化疗，让他们毫无尊严，生不如死，充满遗憾地离开人世，让人不甚唏嘘……所以我是反对化疗的，请远离这些黑暗医疗系统，积极自救，不放弃生命，生命就不会放弃你！
+
+**病案2**
+
+现在医院给妈妈打防止有血栓的针，这与地塞米松有冲突吗？我记得地塞米松不能与阿斯匹林服用。阿斯匹林也是控制血栓的吗？
+
+答：妈妈住院了，应该至少是中症。让我们观察疾病矛盾的主次。阿司匹林对胃肠道有刺激，地塞米松会继续弱化胃肠黏膜，两者加在一起很容易引起胃黏膜出血，造成穿孔。先救命，解决主要矛盾。在毒血症的抢救中，比地塞米松更高效的内固醇药物与溶血栓的药物一起静脉用，显效最快最直接。抢救原则是救命为先。
+
+**病案3**
+
+我妻子还有两周够停硫酸羟氯喹30天，我先试了一下双氢青蒿哌喹，分五天每天1片一共服用5片，第五片出现心跳加速，脖子发紧，骨骼也不舒服。停药后症状消失，这是不是喹宁中毒？之前一直服用硫酸羟氯喹。
+
+答：是的，典型的奎宁中毒。**奎宁半衰期实在太长！一定要等待50-60天，等身体彻底排干净奎宁，再用含喹宁类的青蒿素衍生物！**
+
+**病案4**
+
+新冠病毒感染后2周血液免疫细胞学检查：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/避风港-20-病案4附图.png)
+答：这是血液免疫T细胞检查结果，CD是免疫T细胞表面的受体, 认为按数字命名, 跟自然感染过病毒直接相关。低调的T3, T16, T19, T56细胞，不像CD4，CD8这样有名气。在血液CD16和CD56数量增加，预示着有过感染，或正有炎症，或有囊肿一样的病灶存在于体内。炎症缓解后会慢慢减小趋于正常。不用过于担心。
+
+**病案5**
+
+青蒿素需要一直吃吗？还是吃三周停下来，然后再连吃三周吗？怎样判断是否需要坚持吃呢？常年吃会不会伤害身体？
+
+答：如果服用剂量比较高400-500毫克/天，吃一周停一周。有条件的可以检查肝功能状况。 如果服用剂量低100毫克/天，可以长期服用。作为保健品，有吃有停没有问题。
+
+**病案6**
+
+请问Eglise医生，有轻微的地中海贫血能吃青蒿素吗？
+
+答：必须先补血。就诊血液科,请医生帮助有效补铁。维生素C也要先补上，剂量也要比正常人高。
+
+**病案7**
+
+一线药物没有，只有保健品。检测不重要，母女俩都要服药，不管有无症状。按照治疗量，服用各种维生素。黑孜然籽油4 茶匙，大约4000毫克一天，NAC2400mg/天, 槲皮素 2000毫克/天，D3 1万国际单位， 维C 1000-1500 mg，没有胃肠道不适可以服用锌75mg，不然50mg/天，褪黑素睡前 10mg/天，青蒿素450毫克晚饭吃，其它的早中饭吃。
+昨天咳嗽有痰，可以把NAC片剂抹粉加蒸馏水化痰止咳。雾化器是专门的雾化器，不是一般的空气加湿器。急用可以用。母亲要用阿司匹林，女儿年轻用一周就可以了。阿司匹林要饭后服用。
 
 
-> 参议员马可·卢比奥：
-> 切断与俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) 的关系很容易，但如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 入侵台湾，想切断关系就不会那么容易了。
-> 
-> 现在我们太依赖#中共国了
-> 
-> 我们必须开始在美国制造更多东西
-> 【附中字视频】 [https://t.co/Cmn3rHY5FB](https://t.co/Cmn3rHY5FB) [pic.twitter.com/L1bihHGJ7b](https://t.co/L1bihHGJ7b)
-> — 美国政要直译推 (@zhiyitw33) [March 15, 2022](https://twitter.com/zhiyitw33/status/1503577253015289859?ref_src=twsrc%5Etfw)
+
+在GETTR看 喜马拉雅纽约磐石农场 Himalaya NewYork ROCK直播——
+
+**[2022-3-8《避风港》(20) GETTR直播回放： 辉瑞报告被揭露 – 黑暗医疗的背后（一）](https://gettr.com/post/pywfxh6c89)**
 
 
 
-众议员迈克·华尔兹： 看看我们在短短18个月里在中东的地位跌了多少。 我们已经从白宫草坪上的历史性和平协议（亚伯拉罕协议）转变为现在的领导人不会接受我们总统的呼吁，而是向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 靠拢。 【转推来自华尔街日报：沙特阿拉伯邀请 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 习近平访问利雅得，因为该国希望加深与北京的联系】
+[Eglise医生关于Omicron病毒预防及治疗建议方案 – 更新版](https://gnews.org/zh-hans/1853397/)
+
+[Eglise医生关于新冠預防及治療建議方案Omicron更新版（均飯後服用）](https://gnews.org/zh-hant/1853467/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/c3c69d5a-2260-42ac-8ccb-0afa54284a38.jpg)治疗方案![omicron 预防方案](https://assets.gnews.org/wp-content/uploads/2022/01/9f90a4ad-5c07-4d1e-9259-afb28d50f076.jpg)预防方案
 
 
+文案：Eglise医生/万物有灵
 
-> Look how far we’ve fallen in just 18 months in the Middle East. 
-> 
-> We’ve gone from historic peace deals on the White House lawn (Abraham Accords) to now leaders won’t take our President’s calls and are moving towards China. [https://t.co/xQ3P8HQNg8](https://t.co/xQ3P8HQNg8)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 14, 2022](https://twitter.com/michaelgwaltz/status/1503511359060910084?ref_src=twsrc%5Etfw)
+听写：丹文/Gloria
 
+文稿整理：Gloria
 
+视频：黑嫂子
 
-众议院军事委员会： 如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 协助普京大屠杀，我们必须制裁中共国，拜登必须明确这一点。 如果拜登政府允许中共国的武器屠杀乌克兰平民或允许中共国银行为普京的血钱洗钱，国会将采取行动。 【附卫报新闻：国安顾问沙利文说如果中共国帮助俄罗斯逃避制裁将面临后果】
-
-
-
-> We must sanction China if they assist w/ Putin's massacre and Biden must make that clear.
->  
-> Congress will act if the Biden admin allows Chinese weapons to slaughter Ukrainian civilians or allows Chinese banks to launder Putin’s blood money.[https://t.co/Kwywp9JMKU](https://t.co/Kwywp9JMKU)
-> — Armed Services GOP (@HASCRepublicans) [March 14, 2022](https://twitter.com/HASCRepublicans/status/1503494226998398979?ref_src=twsrc%5Etfw)
-
-
-
-白宫： (国家安全顾问) 杰克·沙利文@JakeSullivan46 今天在意大利罗马会见了中共政治局委员、外事工作委员会办公室主任杨洁篪。 他们的会议是继 2021 年 11 月 15 日拜登总统和习近平主席之间的虚拟会议上的后续。沙利文先生提出了一系列美中关系的问题，并实质性地讨论了俄罗斯对乌克兰的战争。 他们还强调了保持美中之间开放沟通渠道的重要性。
-
-
-
-> .[@JakeSullivan46](https://twitter.com/JakeSullivan46?ref_src=twsrc%5Etfw) met today with Chinese Communist Party Politburo Member and Director of the Office of the Foreign Affairs Commission Yang Jiechi in Rome, Italy. Their meeting followed up on the November 15, 2021 virtual meeting between President Biden and President Xi.
-> — The White House (@WhiteHouse) [March 14, 2022](https://twitter.com/WhiteHouse/status/1503468239963238400?ref_src=twsrc%5Etfw)
-
-
-
+编辑/发布：FoxRina
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/%E7%A3%90%E7%9F%B3discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
