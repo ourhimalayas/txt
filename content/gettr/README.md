@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 7:22 AM (UTC)`
+
+《灭共的雪》摇滚版即将发布打榜，请预定郭文贵先生最新歌曲！<br/><br/>“The Terminator Snow” Rock version coming soon， pre-save Miles Guo’s new release now!<br/><br/>预定链接 Pre-save link：<br/>https://gyro.to/TheTerminatorSnow
+![img](https://media.gettr.com/group50/getter/2022/03/16/07/a55c6d9e-4312-f05d-cf2d-4ff27075bcab/out.jpg)
+
+---
+
 `@miles 3/16/2022 7:04 AM (UTC)`
 
 3/15/2022 Miles Guo: Our fellow fighter had warned Liu Yazhou to run, and I was the first to know that Liu Yazhou would be arrested. The three most marvelous things about the New Federal State of China: 1) the Ukraine rescue operation; 2) the Himalaya Coin that has made a lot of people rich; and 3) our media platforms capable of competing with the CCP to make our voice heard. Yang Jiechi doesn't even dare to mention my name and the NFSC & ROLF Ukraine rescue operation.<br/><br/>3/15/2022 文贵直播：咱战友曾提醒刘亚洲快跑，文贵最早知道刘亚洲会被抓；新中国联邦最精彩的3件事：1) 乌克兰救援；2) 喜币让很多人赚了钱；3) 我们的媒体平台能与中共抢夺话语权；杨洁篪竟不敢提文贵的名字和乌克兰救援！<br/>
@@ -151,13 +158,6 @@ Recently, the Chinese Communist Party (CCP) shamelessly lied，to the public tha
 
 3/15/2022 Miles Guo: Han Zheng sneaked back to Shanghai disregarding the Pandemic restriction rule in Beijing, where did he go? After Pangu’s dragon head turned into turtle head, ‘Guo Wengui’s name became a taboo in the CCP and made Han Zheng shudder<br/><br/>3/15/2022 文贵直播：韩正竟然冲破禁止出京的限制偷偷潜回上海，他去干嘛了？“郭文贵”三个字对中共的震慑力太大了，竟然能把韩正从椅子上震起来，看来龙头改龟头，阳气上升了<br/>
 ![img](https://media.gettr.com/group44/getter/2022/03/15/21/c6dabc2a-e9f6-b668-3d00-c0108540e057/out.jpg)
-
----
-
-`@miles 3/15/2022 8:04 PM (UTC)`
-
-NFSC and ROLF Ukraine Humanitarian Rescue Mission<br/>
-![img](https://media.gettr.com/group9/origin/2022/03/15/19/2356294e-4ae3-a2a5-e7b5-3545c6f6d323/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
