@@ -2,58 +2,38 @@
 ---
 
 
-## 有声|推翻中共就是根除世界灾难的源头
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2175857/)
+## 有声|愿咖啡陪你度过漫长黑夜
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2175924/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-截止3月13日我们法治基金国际救援已免费提供超过250人次酒店食宿，
-为1016位难民提供了免费巴士撤离，
-Medyka救援站接待了上千名难民，
-并成为国际红十字会的中转站。
-NFSC和ROLF提供免费救援，以帮助那些受俄罗斯非法入侵影响的人员，
-这是我们消灭中国共产党，
-支持在被共产主义和专制政府统治的国家里，
-争取自由使命的一部分。
-因为全人类的战争和所有灾难都与中国共产党有关，
-只有消灭中国共产党才能解决人类的战争和所有苦难的根源。
-世界上真正的爱是没有边界的．不分种族和宗教的．
-我们新中国联邦跟全世界的人和平共处．互相尊敬．
-拒绝活在中共刻意营造的种族主义，
-拒绝中共拉仇恨的政治操作，
-新中国联邦的宣言就是要推翻邪恶的中国共产党，
-为实现自由、民主的法治社会，
-独裁中共剥夺了中国人的信仰，
-掐灭了中国人的希望，
-它让我们的母亲流泪，
-让我们的姐妹成了铁链女，
-让我们的女儿逃不出彭帅的命运。
-新中国联邦就是带领中国人脱离中国共产党，
-让中国人生活在没有中国共产党统治的法治社会。
-让世人不分国籍尊重人权，建立和平，
-恢复国际次序。
-法制基金为饱受战争灾难的人们无偿提供免费救援，
-供来自乌克兰的难民休憩。
-救援接待站内提供的免费咖啡、热水、食物、毛毯，
-并设有儿童专区。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月14日救援前线消息，自从NFSC咖啡在梅迪卡推出后，给无数疲惫的人带去了安慰。郭先生说每天一杯暖暖的咖啡对于西方人来说非常重要，而在梅迪卡这样艰苦的救援环境下，咖啡更有巨大的作用。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-9.jpg)
+在新中国联邦的豪华大帐篷内，时时都有咖啡飘香。对于难民来说，连续几十个小时的逃离身心俱疲，咖啡给了他们最好的提神醒脑暖心的作用。而对西方的媒体工作者来说，一杯咖啡更是能让他们立即精神焕发。前线多数媒体工作记者都夸赞NFSC咖啡是最好喝的咖啡。现磨咖啡的提供者就是我们这些灭共的中国人。就连联合国的3个代表听到我们有咖啡，都非常兴奋。
 
-只有消灭中国共产党才能拯救全人类
-我们与乌克兰人民站在一起！
+愿NFSC咖啡陪伴难民和各媒体工作记者度过这些艰苦岁月。
 
-文字版原文：[推翻中共就是根除世界灾难的源头](https://gnews.org/zh-hans/2167760/)
 
-音频处理：Fei797
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+文字版原文：[愿咖啡陪你度过漫长黑夜](https://gnews.org/zh-hans/2166205/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
