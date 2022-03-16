@@ -2,40 +2,35 @@
 ---
 
 
-## 日本将取消所有COVID(CCP Virus)限制
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2174604/)
+## 美中外长罗马会谈无果
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2174786/)
 
-**撰稿：日本东京方舟农场 JIHO**
+作者：纽约香草山农场 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月15日的大直播中，郭文贵先生透露了美中两国外长此前一天在意大利罗马举行的长达七个小时会谈的内幕消息。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-23.jpg)
+郭先生指出，美中双方因分歧严重，基本难以达成任何共识。其中，美国国家安全顾问沙利文明确表态称，如果中共继续为俄罗斯提供金融支持，并允诺俄方要求提供军用物资，美国将对中共实施与俄罗斯同样的制裁，并冻结、查封中共高官及显贵的海外资产。另外，中共之后若武力侵台，美国将与同盟国联手参战。
 
-根据路透社3 月 16 日东京消息，日本定于周三宣布取消对东京和其他 17 个县实施的 CCP病毒限制，因为由 Omicron 变体引起的感染浪潮继续消退。
+郭先生表示，作为中共的传声筒，杨洁篪依然以所谓的战狼姿态威胁美国，并声称台湾是中共的内政，以及中俄两国是战略全天候伙伴关系。为此，俄罗斯出兵乌克兰是欧洲东扩及美国多年霸权的结果，中共会坚决予以支持，且中共早就做好了被美国制裁的准备。
 
-据当地媒体报道，首相岸田文雄定于晚上 7 点发表讲话，预计他将在 3 月 21 日宣布取消限制措施，同时进一步放宽边境措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-3.jpg)（图片取自BBC）
-东京周二记录了 7836 例冠状病毒病例，比一周前下降了 12%。2 月份，Omicron 浪潮导致首都和整个日本的感染率创纪录，这是迄今为止该国最致命的大流行潮。
+但郭先生强调，杨洁篪的态度就如同当年在伊拉克的萨达姆政府一样：直至最后一刻，其外交部发言人依旧态度强硬的发表反美宣言。然而，这些狂妄言论最终都会随着中共政权的垮台而烟消云散。
 
-日本约 71% 的弱势老年人口接受了第三剂疫苗，可见疫苗接种对于新冠感染完全没有预期承诺的效果。
+参考链接：[**2022年3月15日 文贵大直播：香港股市跌破两万点；擀面杖经济难以为继；中共全球拉仇恨行径；疫苗大灾难如何面对**](https://gettr.com/streaming/p1051m93814)
 
-目前在日本 47 个县中的 18 个县实施的所谓准紧急状态限制措施主要是限制餐馆和其他企业的营业时间。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-据共同社报道，由于住院人数过多，西部大阪府的官员曾考虑要求延长限制，但最终决定让限制到期。
+总编：Irene木木
+编辑：谐趣园
+审核：Ivy001
+校正/发稿：Fei797
 
-这些措施对经济产生了影响，尤其是服务业。
-
-瑞银SuMi TRUST财富管理公司首席日本经济学家 Daiju Aoki 表示：“如果解除限制，将释放一定数量的服务需求，因为现在家庭有很多储蓄，而且恰逢春假。”
-
-健康专家表示，当前的奥米克浪潮还没有结束，新的变种随时可能出现。但东北大学教授 Hitoshi Oshitani 表示，在两年大流行期间反复使用的限制措施已经失去了对公共行为的效力。
-
-“我们需要在现阶段采取不同的策略来抑制传播，”政府应对大流行病的首席顾问 Oshitani 说。“现在讨论这种病毒的一种退出策略还为时过早。”
-
-媒体称，岸田还可能宣布从 4 月起将日本的每日入境人数限制从目前的 7,000 人提高到 10,000 人，这是放松严格的边境规定的最新举措，该规定已招致企业和教育工作者的批评。
-
-参考链接：
-[https://www.reuters.com/world/asia-pacific/japan-set-remove-most-covid-restrictions-new-infections-ebb-2022-03-16/](https://www.reuters.com/world/asia-pacific/japan-set-remove-most-covid-restrictions-new-infections-ebb-2022-03-16/)
-
-撰稿：JIHO
-总编：老孙
-校对发布：文曦
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

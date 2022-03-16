@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gtranslators_1 3/16/2022 1:41 PM (UTC)`
+
+https://gettr.com/streaming/p10bftt7ad6
+![img](https://media.gettr.com/group20/origin/2022/03/16/13/a50a349b-9397-7a39-e3e6-9e1582739c3e/3b50883913a55216cd462a1f5f978c20.jpg)
+
+---
+
 `@miles 3/16/2022 1:16 PM (UTC)`
 
 【Ukraine Rescue】03/16/2022 Nicole interviews a cameraman from a Spanish news outlet and introduces us as the New Chinese from the New Federal State of China who are taking down the Chinese Communist Party.The cameraman says “You are doing good, We are proud of you with your collaboration!”<br/><br/>【乌克兰救援】03/16/2022 妮可采访一家西班牙新闻媒体的摄影师，并向他介绍我们是来自新中国联邦的新中国人，我们的目标是推翻中国共产党。这位摄影师说：“你们做得很棒！我为你们的合作感到自豪！”<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,15 +156,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 2022.03.15 晚《新中国联邦新闻访谈》俄乌战况；前线大营救及； 中东，台海局势
 ![img](https://media.gettr.com/group6/origin/2022/03/16/01/71709723-fb95-e033-4eef-f23bf91a8634/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@globalhimalaya 3/15/2022 1:07 AM (UTC)`
-
-Steve Bannon: Do we have an alternative but to take down the CCP?<br/>CAPT Jim Fanell: No!<br/>班农先生：除了灭掉中共以外，我们还有其它选择吗？<br/>战斗室嘉宾：没有！你不灭掉它，它就杀死你<br/><br/>班农先生越来越直接了！
-![img](https://media.gettr.com/group47/origin/2022/03/15/01/17478d31-bd8f-9554-39c5-c5ff764360b5/out.jpg)
 
 ---
 

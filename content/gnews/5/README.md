@@ -2,18 +2,23 @@
 ---
 
 
-## 【 蓝枫法律 】 数字货币在各国的相关法律
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2175071/)
+## 巴西确认有新变异“德尔塔克隆(Deltacron)” 株
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2175240/)
 
-#### **加拿大温哥华扬帆农场 – 蓝枫法律**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-16-at-21.05.39.png)
-这个地图看到就是中共国和北非一些独裁国家，他们都是把数字货币，这个里面主要是比特币，是把它屏蔽掉了，就是严禁、违法。但是在发达国家是较为认可这些数字货币的，特别是在美国和欧洲是认可其交易支付属性和货币属性。
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-182.jpg)
+[图片来源](https://www.jiji.com/sp/article?k=2022031600193&amp;g=int&amp;p=20220316ds42&amp;rel=pv)
 
-但是部分的欧洲国家和加拿大是限制其用途，比如加拿大的比特币交易所，比如RBC或者TD，他遇到你是这种情况，他就不会让你付款到那个地方了。他说我们不会跟任何加密货币，数字交易货币进行的合作。还有一个比较重要的就是加拿大和美国还有澳洲，还有部分的欧洲国家包括德国，对比特币是要收税的。
+圣保罗时事，巴西卫生部长凯洛加在15日透露，确认了2例新型冠状病毒的新变异株“德尔塔克隆(Deltacron)株”在国内感染被发现。Deltacron新毒株具有变异“Delta株”和“Omicron株”的特征。据说1例在北部阿马帕州，另一例在隔壁的帕拉州被发现。
 
-**直播视频：https://gettr.com/streaming/pyel018cd9**
+消息来源：
 
-**编辑****/****发文：蓝枫法律栏目**
+[新変異株「デルタクロン」を確認　ブラジル](https://www.jiji.com/sp/article?k=2022031600193&amp;g=int)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+
 
  
 
