@@ -2,16 +2,26 @@
 ---
 
 
-## 美太平洋空军司令警告中共 攻击邻居恐催生太平洋版北约
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2169245/)
+## 中共国每年有2381.2万件消费投诉事件
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170903/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Kenneth-Wilsbach.jpg)
-根据《美国之音》报导，美国太平洋空军司令维巴赫（Kenneth Wilsbach）于当地时间14日在美国空军协会一场视频会议中警告中共，应在俄乌冲突中吸取教训，即无端攻击邻居会遭致比俄罗斯更强烈国际反应，甚至催生中方最不愿见到的「太平洋版北约」。国际社会在此次俄乌事件中已展现出非常明确的态度，即「当一个超级强权无端对邻居发动攻击时，国际会如何团结汇聚力量，对攻击发起方实施各种层面上的制裁，并对受攻击方提供援助」，太平洋美军正在密切注意中共在此地区的活动，他要求所有人都紧盯中国和朝鲜的动态，避免北京和平壤利用欧洲的战事伺机而动。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-76.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.caixin.com%2F2017-03-15%2F1489575465929654.jpg&amp;imgrefurl=https%3A%2F%2Fdatanews.caixin.com%2Fm%2F2017-03-15%2F101066373.html&amp;tbnid=JPDHTOdfEf4UHM&amp;vet=12ahUKEwiai_CYz8j2AhVK0uAKHfrhAGcQMygIegUIARCaAQ..i&amp;docid=gcjVTTfc1Yy31M&amp;w=480&amp;h=320&amp;itg=1&amp;q=3.15%E6%8A%95%E8%AF%89&amp;ved=2ahUKEwiai_CYz8j2AhVK0uAKHfrhAGcQMygIegUIARCaAQ)
+3月15日每经经济报道，去年，通过全国12315平台等渠道共受理消费者投诉举报咨询2381.2
 
-审核:Athena雅典娜 发布:Amitofu
+万件，为消费者挽回经济损失55.5亿元，同比增长26%。通过构建有群众参与的全局性、动态性评价体系，调解成功率提高30.9个百分点，投诉举报处理时长缩短15.41天，消费维权效能明显提升，已推动8.7万家重点企业入驻全国12315平台。
 
-[美将领：盼中国汲取教训，未受挑衅攻击邻居会遭致比俄罗斯更强烈国际反应](https://www.voachinese.com/a/us-commander-warns-china-not-to-use-ukraine-to-make-unprovoked-attack-otherwise-will-face-even-stronger-international-reactions-20220314/6485230.html)
+中共新闻统计在不经意间透漏出了中共国假丑骗的经济市场，每年投诉举报2381.2万件，为消费者挽回损失55.5亿元，中共以此为光荣事件，从来不去考虑源头的问题，为何有这么多投诉？
 
+中共把消费者当做牛羊一般任人屠宰，中国人每天都在假丑骗中度过，只有消灭共产党才可以解救国人。
+
+消息来源：
+
+[【2021年全国12315平台挽回消费者损失超55亿元】](https://ml.mbd.baidu.com/r/CRDAzsEl8s?f=cp&amp;rs=2054748433&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=5b73362f459212bb&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

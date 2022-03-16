@@ -2,8 +2,8 @@
 ---
 
 
-## 中国房地产的泡沫化危机
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2175681/)
+## 中共面临缺粮、缺钱危机
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2175877/)
 
 台灣寶島農場
 

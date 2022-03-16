@@ -2,36 +2,31 @@
 ---
 
 
-## 惠誉：如果俄罗斯以卢布支付美元债券票息将构成主权违约
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2175107/)
+## 俄罗斯即将掀起大规模债务违约潮
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2175559/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+##### 作者：加拿大温哥华扬帆农场 – 文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-22.jpg)
+据加拿大《金融邮报》3月15日报道，自俄罗斯上月发起侵乌战争以来，该国经济迅速下滑、货币开始崩溃，其债务被评估机构降至垃圾级别。 
 
-整理：gardeniahu
-编辑：围剿维尼熊
+据悉，俄政府表示其所有债务都将偿还，但因被国际社会制裁而无法使用美元支付，该国政府及其所属公司（包括俄罗斯天然气工业股份公司、卢克石油公司和俄罗斯储蓄银行）所欠的约1500亿美元外币债务将出现违约潮。 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe-2.png)图片来源：雅典娜设计组
+报道称，该违约浪潮将给多家国际货币投资管理公司带来噩梦，包括贝莱德公司和太平洋投资管理公司。其影响可能波及养老基金、教育基金等投资组合。
 
+[原文链接](https://financialpost.com/news/economy/russia-is-spiralling-toward-a-150-billion-default-nightmare?_gl=1*17dwnvf*_ga*OTk5NjI5MDkuMTYzNjgxMTY1Mg..*_ga_72QH41ZTMR*MTY0NzM2MTk1OC4yLjAuMTY0NzM2MTk1OC4w&amp;_ga=2.204022288.1821036928.1647361957-99962909.1636811652)
 
-根据路透纽约3月15日报道，信用评级机构惠誉表示，如果俄罗斯以卢布支付美元债券票息，那么在宽限期满后将构成主权违约。
+编辑/上传 – 大废墙
+素材/采编 – 文明(添草灭共)
 
-俄罗斯需要在周三支付两笔总计约1.17亿美元的硬通货票息。
+* * *
 
-自俄罗斯上个月入侵乌克兰后引发了全球制裁，这限制了莫斯科获取和支配资金的能力。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-如果俄罗斯以本币支付3月16日到期的美元计价欧洲债券(eurobond)票息，在30天宽限期到期后，将构成主权违约。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-参考链接：[俄罗斯以卢布支付美元债券票息将构成主权违约–惠誉](https://www.reuters.com/article/ukraine-crisis-russia-default-idCNL6S2VI09M)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

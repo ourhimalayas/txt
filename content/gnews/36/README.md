@@ -2,46 +2,39 @@
 ---
 
 
-## 苹果供应商富士康在COVID封锁下关闭深圳厂区
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2173015/)
+## 日本将取消所有COVID(CCP Virus)限制
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2174604/)
 
-***评论：**在中共的疫情封锁下，越来越多的外资会撤离。*
+**撰稿：日本东京方舟农场 JIHO**
 
-据《marketwatch.com》作者：Mike Murphy，2022年3月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1758-e1647410303196.png)中共国深圳富士康标志。图片来源：AFP 通过 Getty images
-台湾公司称生产将被重新分配到其他地点。
+根据路透社3 月 16 日东京消息，日本定于周三宣布取消对东京和其他 17 个县实施的 CCP病毒限制，因为由 Omicron 变体引起的感染浪潮继续消退。
 
-苹果公司（-AAPL, -2.66% ）组件供应商富士康科技有限公司将暂时关闭其在中共国深圳的业务，因为COVID-19案例激增。
+据当地媒体报道，首相岸田文雄定于晚上 7 点发表讲话，预计他将在 3 月 21 日宣布取消限制措施，同时进一步放宽边境措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-3.jpg)（图片取自BBC）
+东京周二记录了 7836 例冠状病毒病例，比一周前下降了 12%。2 月份，Omicron 浪潮导致首都和整个日本的感染率创纪录，这是迄今为止该国最致命的大流行潮。
 
-总部位于台湾的富士康（2354，-0.48%），也被称为鸿海精密工业公司，在周日晚上的一份声明中表示，它正在暂停深圳两个园区的生产，并将生产重新分配到其他地点。
+日本约 71% 的弱势老年人口接受了第三剂疫苗，可见疫苗接种对于新冠感染完全没有预期承诺的效果。
 
-富士康在一份声明中说：“由于我们在中国有多样化的生产基地，我们已经调整了生产线，以尽量减少潜在的影响。”
+目前在日本 47 个县中的 18 个县实施的所谓准紧急状态限制措施主要是限制餐馆和其他企业的营业时间。
 
-深圳是香港附近的一个科技中心，在新的COVID病例激增后，周日早些时候被封锁了。虽然富士康没有说明这些园区将关闭多长时间，但它在声明中表示，关闭将继续，直到得到当地政府的绿灯。城市封锁将至少持续到3月20日。
+据共同社报道，由于住院人数过多，西部大阪府的官员曾考虑要求延长限制，但最终决定让限制到期。
 
-虽然富士康在中共国的大部分iPhone生产是在其位于中国中部的郑州工厂完成的，但深圳区——严格来说是在龙华和观澜的郊区——是其最大的厂区，估计有45万名员工。富士康在中共国各地有大约十几家工厂。
+这些措施对经济产生了影响，尤其是服务业。
 
-其他一些位于深圳的科技公司将受到封锁的影响，包括华为和优派（3037，-4.46%）——苹果的另一个供应商，以及英特尔公司（INTC, -3.12%）和Nvidia Corp.（ NVDA,-3.48%），根据日经亚洲的一份报告。
+瑞银SuMi TRUST财富管理公司首席日本经济学家 Daiju Aoki 表示：“如果解除限制，将释放一定数量的服务需求，因为现在家庭有很多储蓄，而且恰逢春假。”
 
-截至周日晚些时候，富士康股价在台湾交易中下跌约1%。
+健康专家表示，当前的奥米克浪潮还没有结束，新的变种随时可能出现。但东北大学教授 Hitoshi Oshitani 表示，在两年大流行期间反复使用的限制措施已经失去了对公共行为的效力。
 
-原文连接：[https://www.marketwatch.com/story/apple-supplier-foxconn-shuts-shenzhen-production-amid-covid-lockdown-11647229786](https://www.marketwatch.com/story/apple-supplier-foxconn-shuts-shenzhen-production-amid-covid-lockdown-11647229786)
+“我们需要在现阶段采取不同的策略来抑制传播，”政府应对大流行病的首席顾问 Oshitani 说。“现在讨论这种病毒的一种退出策略还为时过早。”
 
-翻译：洛杉矶盘古农场 – TrueSky
+媒体称，岸田还可能宣布从 4 月起将日本的每日入境人数限制从目前的 7,000 人提高到 10,000 人，这是放松严格的边境规定的最新举措，该规定已招致企业和教育工作者的批评。
 
-校对：洛杉矶盘古农场 – 轰炸机
+参考链接：
+[https://www.reuters.com/world/asia-pacific/japan-set-remove-most-covid-restrictions-new-infections-ebb-2022-03-16/](https://www.reuters.com/world/asia-pacific/japan-set-remove-most-covid-restrictions-new-infections-ebb-2022-03-16/)
 
-评论：洛杉矶盘古农场 – 轰炸机
-
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场–子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+撰稿：JIHO
+总编：老孙
+校对发布：文曦
 
  
 

@@ -2,35 +2,23 @@
 ---
 
 
-## 美专家再指心肌炎与中共病毒疫苗的关联
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2175229/)
+## 东京奥运会金牌得主、23岁高尔夫选手内莉•科达突发血栓
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2175591/)
 
-作者：纽约磐石农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月14日，据盖特消息显示，美国心脏病专家彼得-麦卡洛教授日前在接受采访时指出，大量的证据表明，心肌炎与接种中共病毒疫苗有关。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-26.jpg)
-麦卡洛教授表示，美国正在推行的强制疫苗令是一个非常严重的问题。尤其自2021年中旬起，未成年人开始接种中共病毒疫苗，而在其后6个月中，超过两百篇不同类型的、关于心肌炎以及人体传导系统被破坏而需要放置起搏器的医学论文被陆续发表。
+#### 翻译                  意大利达芬奇农场                 小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-16-alle-15.13.21.png)图片来源：eventiavversinews.it
+3月13日星期日，内莉•科达（Nelly Korda）在Instagram上宣布， 她在佛罗里达州蓬特韦德拉海滩时突发血栓，迫使她进入急诊室。
 
-此外，麦卡洛教授也列举了众多因接种中共病毒疫苗而导致严重不良反应的案例：一名女孩在接种疫苗后被确诊患有心肌炎，这一病症随即引发了后续的移植感染，最终造成患者死亡。同时，还有很多优秀的运动员因接种中共病毒疫苗及其加强针而导致运动能力丧失，甚至猝死的病例。
+23岁的科达目前是世界排名第二的高尔夫选手，仅次于26岁的韩国选手高英姬 (Jin Young Ko), 并在最近的东京奥运会上获得金牌。这是近期另一例年轻运动员血栓形成的案例。
 
-对此，麦卡洛教授认为，医学界虽然尚不能完全掌握中共病毒疫苗的内幕，但政府以某种方式掩盖疫苗对儿童和成人所造成的伤害已经成为科学界的一部分共识。
+内莉•科达出生于佛罗里达州布雷登顿，是两名捷克籍网球运动员的女儿。她的父亲皮特•科达(Petr Korda) 是90年代最优秀的网球运动员之一，曾获得澳大利亚网球公开赛单打冠军( 1998年)并在1996年与世界排名第一的瑞典人斯特凡•埃德贝里(Stefan Edberg)配对合作。
 
-参考链接：[我們不清楚這一切的背後到底是什麼，他們會以某種方式，來掩蓋所有這些正在受傷的兒童和一切，說這從未發生過。是誰在什麼時候接種了疫苗，什麼時候得了心肌炎，人們遲早會把兩者聯繫起來，目前貌似是相關的](https://www.gettr.com/post/pzv5mp745a)
+这位高尔夫选手写道， 她周五在佛罗里达州的蓬特韦德拉海滩拍摄照片和商业形象。早上锻炼后，她注意到手臂肿胀。在她的医生的建议下，她去了急诊室，在那里做出了血栓形成的诊断。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+原文链接：[https://www.eventiavversinews.it/trombosi-improvvisa-per-la-golfista-23enne-nelly-korda-medaglia-doro-alle-olimpiadi-di-tokyo/](https://www.eventiavversinews.it/trombosi-improvvisa-per-la-golfista-23enne-nelly-korda-medaglia-doro-alle-olimpiadi-di-tokyo/)
 
-总编：Irene木木
-编辑：宁文静
-审核：Irene木木
-校正/发稿：Fei797
+编辑、上传： Xiao  baige
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
