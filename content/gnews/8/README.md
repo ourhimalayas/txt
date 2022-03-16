@@ -2,24 +2,37 @@
 ---
 
 
-## 不同批次新冠疫苗的活性成分含量不同再次被确认
-` Little c` [轉載自GNews](https://gnews.org/zh-hans/2176393/)
+## 有声|波兰总理呼吁应冻结俄国海外资产重建乌克兰
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2176395/)
 
-作者：波士顿五月花 Little c
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台媒消息，当地时间3月14日，波兰总理莫拉维茨奇表示，应该把隶属俄罗斯政府、以及俄国金融寡头的海外冻结资产，用以成立一个基金来帮助乌克兰的战后重建。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-15-%E4%B8%8A%E5%8D%8811.23.45.png)
+莫拉维茨奇在会晤立陶宛和乌克兰总理后表示，波兰将全面冻结并没收俄罗斯的国家资产。他呼吁国际社会，应当通过以俄罗斯为基础的大型基金，为乌克兰进行重建工作。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/mrna-vaccine-e1646326849638.jpg)图片来自网络
+据悉，目前俄军的侵略行为，已经摧毁了乌克兰的大量基础设施和民众赖以生存的家园，迫使超过280万难民逃离该国。西方社会已因此对俄罗斯的个人和相关金融寡头，实施了严厉的金融制裁。其中包括俄罗斯外长拉夫洛夫，以及英超球队切尔西的老板布拉莫维奇等人。
 
-自法院要求FDA公开辉瑞新冠疫苗文件，Dr. Naomi Wolf 已组织了几百位医生和律师志愿者对文件进行分析。在周一3/14的Warroom 节目中她向班农透露了一个令人不安的发现，不同批次的新冠疫苗的活性成分含量不同。数据显示不同批次疫苗的危险活性成分含量从3微克，10微克，30微克，到100微克不等。
 
-这也再次确认了去年科学家们根据VAERS的数据得出的类似结论([www.howbadismybatch.com](http://www.howbadismybatch.com/))。
 
-参考链接：
+文字版原文：[波兰总理呼吁应冻结俄国海外资产重建乌克兰](https://gnews.org/zh-hans/2169714/)
 
-[This Is Big: Naomi Wolf Confirms Big Pharma Was Adding Varying Amounts of Active Ingredient to Batches of COVID Vaccine](https://www.thegatewaypundit.com/2022/03/big-naomi-wolf-confirms-big-pharma-adding-varying-amounts-active-ingredient-batches-covid-vaccine-video/)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-—————————————————————–
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*编辑 /发布：Little c*
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

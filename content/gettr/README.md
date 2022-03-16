@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 6:35 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-采访被新中国联邦救援的学生<br/>Interviewing Chinese Students who were rescued from Ukraine By NFSC and ROLF
+![img](https://media.gettr.com/group3/origin/2022/03/16/18/07633f45-878f-537c-564f-b37852a4609e/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/16/2022 6:13 PM (UTC)`
 
 【Ukraine Rescue】In Medyka, Poland. The photographer captured an unforgettable video that happened on the front line: during the short interval between serving two groups of refugees in the rescue tent of NFSC, one rescue member was playing football with a Ukrainian boy. We want the war to end as soon as possible and Ukrainian people can return to a peaceful life. NFSC rescue team is the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity! <br/>【乌克兰救援】波兰梅迪克， 摄影师抓拍到了救援前线的一个难忘的视频，在服务两批难民的简短空隙时间，一名救援队员正和一名乌克兰孩子在新中国联邦的救援帐篷内踢足球。我们希望战争尽快结束，乌克兰人民能够恢复和平的生活！新中国联邦救援团队是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。
@@ -150,13 +157,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 《灭共的雪》摇滚版即将发布打榜，请预定郭文贵先生最新歌曲！<br/><br/>“The Terminator Snow” Rock version coming soon， pre-save Miles Guo’s new release now!<br/><br/>预定链接 Pre-save link：<br/>https://gyro.to/TheTerminatorSnow
 ![img](https://media.gettr.com/group50/getter/2022/03/16/07/a55c6d9e-4312-f05d-cf2d-4ff27075bcab/out.jpg)
-
----
-
-`@miles 3/16/2022 7:04 AM (UTC)`
-
-3/15/2022 Miles Guo: Our fellow fighter had warned Liu Yazhou to run, and I was the first to know that Liu Yazhou would be arrested. The three most marvelous things about the New Federal State of China: 1) the Ukraine rescue operation; 2) the Himalaya Coin that has made a lot of people rich; and 3) our media platforms capable of competing with the CCP to make our voice heard. Yang Jiechi doesn't even dare to mention my name and the NFSC & ROLF Ukraine rescue operation.<br/><br/>3/15/2022 文贵直播：咱战友曾提醒刘亚洲快跑，文贵最早知道刘亚洲会被抓；新中国联邦最精彩的3件事：1) 乌克兰救援；2) 喜币让很多人赚了钱；3) 我们的媒体平台能与中共抢夺话语权；杨洁篪竟不敢提文贵的名字和乌克兰救援！<br/>
-![img](https://media.gettr.com/group17/getter/2022/03/16/07/74ed575b-d48b-61a0-5168-e01076f348eb/out.jpg)
 
 ---
 
