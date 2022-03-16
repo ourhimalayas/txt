@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 10:57 AM (UTC)`
+
+【Ukraine Rescue】03/14/22 Fellow fighter Wendy introduces their daily work at the rescue scene<br/><br/>【乌克兰救援】03/14/22 Wendy战友介绍在救援现场的日常工作情况<br/> <br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group41/getter/2022/03/16/10/71c590d9-3d0e-6a32-3822-daf86484b3ca/out.jpg)
+
+---
+
 `@miles 3/16/2022 10:48 AM (UTC)`
 
 【Ukraine Rescue】3/14/2022 Davide Martello, a renowned warzone musician, moved his piano close to the tents of the New Federal State of China (NFSC) after he found out the NFSC people are striving to take down the Chinese Communist Party and are now providing humanitarian aid to the refugees from Ukraine. He then played the NFSC anthem—the Pinnacle of Freedom to show his support. <br/><br/>【Ukraine Rescue】3/14/2022 著名战地音乐家大卫·马特罗在了解到新中国联邦人正在努力推翻中国共产党，并且正在为乌克兰难民提供人道援助后，把他的钢琴搬到新中国联邦搭建的帐篷附近，并当地演奏了新中国联邦国歌—自由之巔以表支持。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -151,13 +158,6 @@ Steve Bannon: Do we have an alternative but to take down the CCP?<br/>CAPT Jim F
 
 蓝莲花农场制作。 根据郭先生直播，我们的战友单独将这段精彩爆料做成视频，请战友们让全世界知道中共邪恶！！<br/><br/>您的每一次转发，点赞，分享都是射向中共的子弹！超限战的战场，处处都是前线！！！！<br/><br/>中共不死，世界难安！！ <br/><br/>Take down the Chinese Communist Party ！
 ![img](https://media.gettr.com/group49/origin/2022/03/15/15/937a848c-f5d3-8145-4f99-5a92b185ad0e/out.jpg)
-
----
-
-`@miles 3/15/2022 10:21 PM (UTC)`
-
-The tearful face in this painting is the little girl who escaped from her hometown. She hated war, prayed for peace, and longed to play with her father. But it all turned into a luxury. Little girl, don't give up hope, there is the New China Federation, and there are brave, kind, caring and just people. The Chinese who want to destroy the Chinese Communist Party will help you.<br/>这幅画中泪流满面的脸是那个从家乡逃出来的小女孩。 她讨厌战争，祈求和平，渴望和父亲一起玩耍。 但这一切都变成了奢侈品。 小姑娘，不要放弃希望，有新中国联邦，有勇敢、善良、有爱心、正义的人。消灭中国共产党的中国人会帮助你。
-![img](https://media.gettr.com/group12/origin/2022/03/15/22/93a5bff1-f7f9-8e5f-26c0-fdbb7a436d6a/out.jpg)
 
 ---
 

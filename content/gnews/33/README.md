@@ -2,39 +2,34 @@
 ---
 
 
-## 俄乌战争导致大宗商品价格进一步上涨
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2172828/)
+## 美参议院决议支持对普京进行战争罪调查
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2172957/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 撰稿：彩虹
 
-整理：等风来
-编辑：围剿维尼熊
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-77.jpg)图片来源：推特
+据《国会山报》3月15日报道，周二，参议院通过了一项不具约束力的决议，支持对俄罗斯总统弗拉基米尔·普京（Vladimir Putin）入侵乌克兰的行为进行战争罪调查。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe-2.png)图片来源：雅典娜设计组
+该决议由共和党参议员林赛·格雷厄姆（Lindsey Graham）牵头，在与参议员兰德·保罗（Rand Paul）就决议的修改进行协商后，以语音表决方式通过。
 
+格雷厄姆的决议支持参议院谴责俄罗斯军队实施的“包括战争罪、反人类罪和系统性侵犯人权行为。”正式支持进行战争罪调查，鼓励各国向国际刑事法院（ICC）请愿，调查俄罗斯军队和俄罗斯总统弗拉基米尔·普京实施的战争罪行。
 
-根据路透社3月15日报道，俄罗斯对乌克兰发动战争后，原油和其他大宗商品的价格变得更加昂贵。
+格雷厄姆在一份声明中说，他对决议的通过感到“非常兴奋”，美国“应该尽我们所能，通过及时向法院提供信息和情报来帮助这项调查”。
 
-美国2月生产者物价指数(PPI)强劲上涨，受汽油等商品的价格急升推动，预计随着大宗商品价格上涨和全球贸易干扰加剧，该指数将出现进一步的上涨。
+他称，“我的下一步是与我们的英国盟友并希望与其他国家合作，建立一个情报小组，向公众提供从事战争罪的俄罗斯军事单位，并开始点名其指挥官。一场公开指责运动正在进行中。”
 
-美国劳工部周二发布报告表明，通胀在未来几个月仍将保持令人不安的高水平，尽管2月核心生产者物价的压力仅略有增加。
+参议院多数党领袖查尔斯·舒默（Charles Schumer）补充说，参议院已经联合起来，“认为弗拉基米尔·普京不能逃避对乌克兰人民犯下的暴行的责任。”
 
-美国联邦储备委员会（FED）预计将于周三进行逾三年来的首次加息，目前通胀远高于美联储2%的目标。经济学家预测，联储今年将加息多达七次。并预计3月PPI将出现更大幅度的上涨。
+他说：“今天通过的由格雷厄姆参议员倡导的立法发出了一个明确无误的信息，即美国参议院与乌克兰站在一起，反对普京，并支持所有让普京为对乌克兰人民犯下的暴行负责的努力”。
 
-油价上涨和俄乌战争给纽约州企业的信心造成打击。根据另一份报告，纽约联邦储备银行表示，3月其衡量当前企业状况的指标骤降14.9点，至负11.8，为2020年5月以来最低。读数低于零表明该州制造业活动萎缩。
+文章报道，该决议由20多名参议员正式提出，包括与格雷厄姆一起领导参议院拨款委员会（Senate Appropriations Committee State）和对外行动小组委员会（Foreign Operations subcommittee）的克里斯·库恩斯（Chris Coons）参议员，以及参议院第二号民主党人、参议院乌克兰核心小组共同主席迪克·杜宾（Dick Durbin）。
 
-制造商报告称，新订单和发货量出现萎缩，但投入成本还在增加，制造商还上调了其制成品价格。
+报道说，作为格雷厄姆和保罗谈判的一部分，周二晚上在参议院通过的决议还包括这样的措辞：该决议不是对俄罗斯的战争宣言或授权，也没有为向乌克兰派遣美国军队开绿灯。
 
-参考链接：[https://cn.reuters.com/article/wrapup-usa-ppi-0315-tues-idCNKCS2LD02K](https://cn.reuters.com/article/wrapup-usa-ppi-0315-tues-idCNKCS2LD02K)
+**新闻来源**
 
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Senate passes resolution supporting Putin war crime probe](https://thehill.com/homenews/senate/598374-senate-passes-resolution-supporting-putin-war-crime-probe?rl=1)
 
  
 
