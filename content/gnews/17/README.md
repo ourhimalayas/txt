@@ -2,26 +2,27 @@
 ---
 
 
-## 西班牙扣押普京盟友的豪华游艇
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176861/)
+## 泽连斯基向遇害美国记者家属发送感人信
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176864/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：新西兰伊甸农场-玫瑰
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒15日消息，西班牙首相桑切斯14日在电视节目中确认，当局在巴塞罗那暂时扣押了俄罗斯富豪一艘价值1亿4000万美元的游艇，并承诺还会有更多针对俄罗斯寡头的行动。
+外媒15日报道，美国记者布伦特·雷诺在乌克兰首都附近报道难民故事时遇难。 50岁的雷诺是一位著名的电影制片人，他经常前往世界上一些最黑暗和最危险的角落拍摄纪录片。3月13日，在俄罗斯军队于基辅附近向他的车辆开火后遇难身亡。据悉，他正在为一份关于难民的报告收集材料。
 
-有报道引述消息人士指出，这艘85公尺的超级豪华游艇的主人是俄罗斯总统普京的盟友，切梅佐夫，他曾是前苏联国家安全委员会官员，现在是俄罗斯国家技术集团的负责人。另外还有两位尚未被列入制裁名单的俄罗斯寡头的游艇，目前也停靠在巴塞罗那。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-56.jpg)
-切梅佐夫在2014年和2020年分别因俄罗斯吞并克里米亚而受到美国和英国的制裁，本月又再一次被美国和澳洲列入制裁名单。不仅如此，美国这次还将切梅佐夫的继女，以及他的妻子和儿子一同纳入制裁范围。
+乌克兰总统泽连斯基3月15日在网上发表了一封写给雷诺家人的信，表达他的“衷心哀悼”。他称雷诺是一位“才华横溢、勇敢的记者”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-59.jpg)
+泽连斯基在信中说，“布伦特在记录数百万乌克兰人的人类悲剧、破坏和苦难时失去了生命。他带着所有的勇气和决心，前往最危险的战区，拍摄了侵略者对我们国家施加的前所未有的残酷和邪恶。”
 
-根据一位政府消息人士的说法，在西班牙当局确认所有权以及核对制裁对象名单之前，这艘游艇将继续被扣押。
+“乌克兰人民正在与俄罗斯政权作斗争，以保卫他们的家园和世界民主，他们与你们一起哀悼。”“我们感谢布伦特的专业精神和对同情、道德和正义价值观的承诺。”
 
-这是继各国对俄罗斯实施制裁以来，第一宗经确认的俄罗斯公民在西班牙被扣押财产的事件。自俄罗斯2月24日对乌克兰展开军事行动以来，西方已经制裁了俄罗斯多名亿万富翁，冻结了俄罗斯国家资产，并切断了大部分俄罗斯企业与全球经济的联系。
+“愿布伦特的生命、服务和牺牲激励全世界几代人站出来为光明力量对抗黑暗力量而战。”
 
-参考链接：[Spain seizes Russian oligarch’s yacht in Barcelona](https://www.reuters.com/world/europe/spain-seizes-russian-oligarchs-yacht-barcelona-2022-03-14/)
+参考链接：[The people of Ukraine are mourning with you’: Zelenskyy sends moving letter to family of slain US journalist](https://www.stuff.co.nz/world/europe/300541835/the-people-of-ukraine-are-mourning-with-you-zelenskyy-sends-moving-letter-to-family-of-slain-us-journalist)
 
 ![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-总编/编辑/审核：天滅中共
+总编：天滅中共
+编辑/审核:飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

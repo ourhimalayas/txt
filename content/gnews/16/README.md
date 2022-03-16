@@ -2,36 +2,32 @@
 ---
 
 
-## 普京抓捕情报机构高管
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176862/)
+## 拜登称普京是战争罪犯并承诺向乌克兰输送更多武器
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2176936/)
 
-作者：香草山农场 – 柳是多水土透
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒12日报道，俄罗斯联邦安全局负责海外情报工作的长官——谢尔盖·贝塞达中将及其副手阿纳托利·博卢克——11日被普京下令软禁在家。
+翻译：冰糖葫芦喵
 
-68岁的贝塞达曾任俄罗斯联邦安全局局长，而博卢克則是行动情报部主任。普京认为，战争进展不利，和俄方大量伤亡是由于情报有误。开战前他曾被告知，乌克兰仅会做象征性抵抗，人民普遍对现状不满，会配合侵略军推翻政府，乌军战力薄弱，遍布新纳粹成员，受到攻击后会很快投降。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-57.jpg)
-但当俄罗斯派出轻型部队迅速攻占关键设施后，却遭到猛烈反击和持续抵抗。乌克兰人更紧密地团结在了泽连斯基政府周围，仅首都就有10万人以上加入民兵组织，就连乌东部俄语区也存在民意反转。 攻势受阻后，俄罗斯被迫放弃速战速决计划，转为消耗战，攻城战，导致了大量平民伤亡和不断升级的制裁。
+编辑与校对：冰糖葫芦喵
 
-参考链接：
-1. [Kremlin arrests FSB chiefs in fallout from Ukraine chaos](https://www.thetimes.co.uk/article/kremlin-arrests-fsb-chiefs-in-fallout-from-ukraine-invasion-chaos-92w0829c5)
-2. [Putin ‘has placed the head of the FSB’s foreign intelligence branch under house arrest because he is furious at security services for failing to warn him’ that Ukraine could fiercely resist invasion](https://www.dailymail.co.uk/news/article-10603045/Putin-places-head-FSBs-foreign-intelligence-branch-house-arrest.html)
+《路透华》盛顿3月16日报道，因俄罗斯入侵乌克兰，**美国总统拜登周三表示，俄罗斯总统普京是个战争罪犯，并宣布向乌克兰追加8亿美元的安全援助，包括击落俄罗斯飞机和坦克的武器。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7O74BJS7GFNUDDHXGYL64UHDCU-e1647466845185.jpg)美国总统拜登在国务卿布林肯和国防部副部长希克斯的陪同下谈及美国政府的援助（路透社）
+据报道，拜登在当天接受记者采访时说：“哦，我认为他是一名战犯。”这是拜登首次公开用”战争罪犯“给普京贴标签。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+白宫新闻发言人莎琪后来说，拜登的话是发自内心的。她指出，**有一个单独的法律程序来确定普京是否违反了国际法，是否犯下了战争罪，国务院目前正在进行这个程序。**
 
-总编：天滅中共
-编辑/审核:飞虹
-校对/发稿：Hetangyuese
+周三早些时候，拜登说，**美国已经向乌克兰提供10亿美元的安全援助，**并**回应了乌克兰总统泽伦斯基向美国国会发出的紧急呼吁，要求提供军事援助，**以抵御俄罗斯的入侵。他还说，美国**将继续向乌克兰提供武器**，帮助其作战和自卫，**提供人道主义救援，并通过额外的财政援助支持乌克兰经济。**
 
-**更多资讯，更多关注**
+拜登说:“**这项新计划**本身就将为乌克兰提**供前所未有的援助，其中包括800套防空系统，**以阻止俄罗斯飞机和直升机对乌克兰人的攻击。”
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+拜登说，应泽伦斯基的要求，**华盛顿将帮助乌克兰获得更多的远程导弹防空系统。它还将提供9000套反装甲系统、无人机和7000件轻武器，**如机关枪、霰弹枪和榴弹发射器，帮助乌克兰平民为保卫国家而战。
+
+据报道，**新的资金将来自拜登签署成为法律的支出法案，其中包括向乌克兰提供136亿美元的新援助。**
+
+新闻来源链接：
+
+[Biden calls Putin a ‘war criminal,’ sending more weapons to Ukraine | Reuters](https://www.reuters.com/world/biden-announce-new-security-assistance-ukraine-after-signing-massive-spending-2022-03-16/)
+
+
 
  
 
