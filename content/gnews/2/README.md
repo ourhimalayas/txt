@@ -2,18 +2,31 @@
 ---
 
 
-## 视频|战友克服困难 轮流值班 坚持高质量服务
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2174689/)
+## 3月14日俄罗斯入侵乌克兰战局最新信息
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2174725/)
 
-制作：香草山视频部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-18.jpg)
 
-波兰当地时间3月14日晚，前方战友在救援连线直播中，简要介绍了他们工作的一些情况。 除了基本的难民工作外，每天会有7-8名战友为大直播服务。
+[图片来源](https://image.pbs.org/video-assets/s03kIDk-asset-mezzanine-16x9-ETXr6Av.jpg?crop=1920x1080&amp;format=jpg)
 
-为了帮助难民抵御寒冷，战友们在帐篷外燃起篝火，24小时燃烧，供难民取暖。 另外，为了照顾到随时有可能抵达的难民，战友们还特意制定了24小时全天候、不间断的轮班制度。 不过，由于当地气候十分寒冷，最低可达零下4-5度，大多数战友都放下小我，不畏严寒，不但没有躲在帐篷内，还把室外的篝火让给难民，自己在寒风中工作，尤其看守机位的战友，经常冻到麻木，场面令人感动。
+乌克兰抵抗俄罗斯军事入侵第十九天，俄军继续展开进攻行动。
 
-发稿：木香
+以下是3月14日主要情况汇总：
+
+- 敌人继续使用飞机支持地面部队，破坏乌克兰的军事和民用基础设施。
+- 据现有情报，俄军继续组建更多的占领部队。计划加强哈尔科夫方向的俄联邦武装部队的集结。
+- 俄军继续用大炮和坦克轰击民用基础设施。
+- 俄军继续对居民点进行导弹和炸弹袭击。
+- 俄军很可能对白俄罗斯的设施进行挑衅，以使白俄罗斯武装部队卷入冲突。
+- 在马里乌波尔（Mariupol）方向，敌人正试图占领马里乌波尔。乌克兰士兵成功击退了入侵者的进攻。敌人的总损失约为150人，2辆坦克，7辆步兵战车和1辆装甲运兵车。在遭受损失后，占领者停止进攻并撤退了。
+- 在卡米扬卡（Kamyanka）定居点，俄军在侦察战中遭受了重大损失，被迫撤退。
+- 乌克兰炮兵和飞机对俄军前进路线上堆积的军事装备和纵队进行了火力破坏。有12个单位的机动车辆被摧毁。
 
 
+新闻来源链接：[https://www.mil.gov.ua/en/news/2022/03/15/operational-information-on-24-00-14-03-2022-regarding-the-russian-invasion/?\_\_cf\_chl\_f\_tk=744YlilqLiBp18iMlAQdRHoQMmQXyBlouB6ce\_J4uxY-1647326061-0-gaNycGzNB6U](https://www.mil.gov.ua/en/news/2022/03/15/operational-information-on-24-00-14-03-2022-regarding-the-russian-invasion/?__cf_chl_f_tk=744YlilqLiBp18iMlAQdRHoQMmQXyBlouB6ce_J4uxY-1647326061-0-gaNycGzNB6U)
+
+本文作者：Rebecca (一切心皆不可得！)
+上传排版：Hong
 
  
 

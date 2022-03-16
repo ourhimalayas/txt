@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 12:30 PM (UTC)`
+
+2022.03.16 早 《新中国联邦新闻》
+![img](https://media.gettr.com/group6/liveorigin/2022/03/16/12/9ef270a8-bf53-3076-8460-451047d90c79/db77deaeeaadf94601c75dae84bb7948.jpg)
+
+---
+
 `@miles 3/16/2022 10:57 AM (UTC)`
 
 【Ukraine Rescue】03/14/22 Fellow fighter Wendy introduces their daily work at the rescue scene<br/><br/>【乌克兰救援】03/14/22 Wendy战友介绍在救援现场的日常工作情况<br/> <br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -149,15 +156,6 @@ Steve Bannon: Do we have an alternative but to take down the CCP?<br/>CAPT Jim F
 
 2022.03.15 NFSC News   NFSC Participates in First-Ever International Rescue Relief Meeting in Medyka； Zelenskyy On Russian Invasion: Ukraine Will Never Be Conquered
 ![img](https://media.gettr.com/group10/origin/2022/03/15/22/e3605b3e-b49a-544a-3013-6800d6fdef47/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@blue_lotus 3/15/2022 3:53 PM (UTC)`
-
-蓝莲花农场制作。 根据郭先生直播，我们的战友单独将这段精彩爆料做成视频，请战友们让全世界知道中共邪恶！！<br/><br/>您的每一次转发，点赞，分享都是射向中共的子弹！超限战的战场，处处都是前线！！！！<br/><br/>中共不死，世界难安！！ <br/><br/>Take down the Chinese Communist Party ！
-![img](https://media.gettr.com/group49/origin/2022/03/15/15/937a848c-f5d3-8145-4f99-5a92b185ad0e/out.jpg)
 
 ---
 

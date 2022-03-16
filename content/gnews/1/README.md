@@ -2,25 +2,23 @@
 ---
 
 
-## 英国约翰逊与阿布扎比王储讨论能源安全和贸易
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2174696/)
+## 消息：日本将撤销俄罗斯最惠国待遇
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2174731/)
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+采集：玫瑰新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/ishikawa.jpg)根据日本政府的数据，2021年日本的进口海胆，81%来自俄罗斯。（档案照）
+（早报讯）两名掌握直接信息的人士周三（3月16日）向路透社披露，日本政府将撤销给予俄罗斯的最惠国待遇，作为其入侵乌克兰的进一步制裁措施。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0111.jpg)
+另据日本NHK电视台，岸田文雄政府将在周三宣布这一决定。日本所属的七国集团（G7）上周五已表示将寻求撤销俄罗斯的最惠国待遇。
 
+日本《每日新闻》报道，取消俄罗斯的最惠国待遇，意味着日本将提高对俄罗斯进口的海胆和螃蟹等特定海产品的关税。
 
-图片来源： 路透社
+根据日本政府的数据，2021年在日本的进口海胆和螃蟹中，来自俄罗斯的占比分别为81%和47.6%。
 
-约翰逊的发言人周三表示，英国首相鲍里斯·约翰逊和阿联酋事实上的统治者谢赫·穆罕默德·本·扎耶德·阿勒纳哈扬讨论了两国在能源安全、绿色技术和贸易方面加强合作。
+参考连结：[https://www.zaobao.com.sg/realtime/world/story20220316-1252793](https://www.zaobao.com.sg/realtime/world/story20220316-1252793)
 
-“领导人讨论了加强英国和阿联酋在能源安全、绿色技术和贸易方面合作的机会，”发言人在一份详细说明约翰逊与阿布扎比王储会面的声明中说。
-
-“他们还同意，面对日益增长的全球威胁，有必要加强我们强有力的安全、国防和情报合作。”
-
-🔗 [https://www.reuters.com/world/uks-johnson-abu-dhabi-crown-prince-discuss-energy-security-trade-2022-03-16/](https://www.reuters.com/world/uks-johnson-abu-dhabi-crown-prince-discuss-energy-security-trade-2022-03-16/)
-
-编辑发布： Shuizhuyu
+审核校对：Barry Jack
+上传排版：F
 
  
 

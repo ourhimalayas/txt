@@ -2,37 +2,46 @@
 ---
 
 
-## 埃隆•马斯克推特发帖对普京发起挑战
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2172981/)
+## 苹果供应商富士康在COVID封锁下关闭深圳厂区
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2173015/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+***评论：**在中共的疫情封锁下，越来越多的外资会撤离。*
 
-整理：等风来
-编辑：围剿维尼熊
+据《marketwatch.com》作者：Mike Murphy，2022年3月14日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1758-e1647410303196.png)中共国深圳富士康标志。图片来源：AFP 通过 Getty images
+台湾公司称生产将被重新分配到其他地点。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/DE49F33F-692D-47CD-9740-61107DA46B0B.jpg)图片来源：推特
+苹果公司（-AAPL, -2.66% ）组件供应商富士康科技有限公司将暂时关闭其在中共国深圳的业务，因为COVID-19案例激增。
+
+总部位于台湾的富士康（2354，-0.48%），也被称为鸿海精密工业公司，在周日晚上的一份声明中表示，它正在暂停深圳两个园区的生产，并将生产重新分配到其他地点。
+
+富士康在一份声明中说：“由于我们在中国有多样化的生产基地，我们已经调整了生产线，以尽量减少潜在的影响。”
+
+深圳是香港附近的一个科技中心，在新的COVID病例激增后，周日早些时候被封锁了。虽然富士康没有说明这些园区将关闭多长时间，但它在声明中表示，关闭将继续，直到得到当地政府的绿灯。城市封锁将至少持续到3月20日。
+
+虽然富士康在中共国的大部分iPhone生产是在其位于中国中部的郑州工厂完成的，但深圳区——严格来说是在龙华和观澜的郊区——是其最大的厂区，估计有45万名员工。富士康在中共国各地有大约十几家工厂。
+
+其他一些位于深圳的科技公司将受到封锁的影响，包括华为和优派（3037，-4.46%）——苹果的另一个供应商，以及英特尔公司（INTC, -3.12%）和Nvidia Corp.（ NVDA,-3.48%），根据日经亚洲的一份报告。
+
+截至周日晚些时候，富士康股价在台湾交易中下跌约1%。
+
+原文连接：[https://www.marketwatch.com/story/apple-supplier-foxconn-shuts-shenzhen-production-amid-covid-lockdown-11647229786](https://www.marketwatch.com/story/apple-supplier-foxconn-shuts-shenzhen-production-amid-covid-lockdown-11647229786)
+
+翻译：洛杉矶盘古农场 – TrueSky
+
+校对：洛杉矶盘古农场 – 轰炸机
+
+评论：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场–子萍
 
 
-根据澳大利亚人报中文网报道，法新社14日电，美国太空探索科技公司（SpaceX）和特斯拉汽车公司（Tesla）创始人埃隆·马斯克（Elon Musk）在推特上向俄罗斯总统普京（Vladimir Putin）下战帖，赌注是乌克兰的命运。
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-马斯克14日在推特（Twitter）发文：“我特此向普京提出挑战，来场一对一决斗。赌注是乌克兰。”并直接标记普京的官方英文推特帐号说：“你接受这场决斗吗？”马斯克想看看普京是否有勇气与他单挑，而不是透过他国家的军队。
-
-马斯克的这条推文下有一人留言说，马斯克下战帖前可能没有深思熟虑。但马斯克说，他绝对是认真的。他还说，如果普京可以那么轻易地羞辱西方，那么他要接受挑战，但他不会。
-
-马斯克此前在乌克兰启动星链（Starlink）网络服务，并运送设备到乌克兰，让遭受俄军攻击的地区连上网路。
-
-克里姆林宫尚未对马斯克的推文发表回应，但车臣领袖卡德罗夫（Ramzan Kadyrov）在Telegram讽刺说：“马斯克，我不会建议你跟普京较量。你们的重量级别差太多了。”
-
-参考链接：[以乌克兰作赌注 马斯克向普京下战帖单挑](https://cn.theaustralian.com.au/2022/03/15/64646/)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
