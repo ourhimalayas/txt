@@ -2,18 +2,12 @@
 ---
 
 
-## 20220315文贵大直播：中共在中东问题上的战略目的是什么？
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2173912/)
+## 【乌克兰救援】03/15/22 妮可向彭博社记者Aggi Cantrill介绍：新中国联邦消灭中国共产的的政治目标同时也是人道目标，所有人道灾难都是中国共产党造成的
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2174087/)
 
-作者:东京樱花团小视频组
+【乌克兰救援】03/15/22 妮可向彭博社记者Aggi Cantrill介绍：新中国联邦消灭中国共产的的政治目标同时也是人道目标，所有人道灾难都是中国共产党造成的，不仅是中国，包括新疆、香港、台湾，以及乌克兰的战争，背后都有共产党的黑手，无论是对乌克兰难民的救助，还是帮助中国人民铲除共产党，都是出于人道主义的目的
 
-校对：东京樱花团小视频组
-
-编辑发布：东京樱花团小视频组
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,42 +2,56 @@
 ---
 
 
-## 杀习近平一人则2300万台湾同胞+14亿同胞+全世界得救
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2173960/)
+## 中共拥有的福布斯解雇了一位顶级透明度专栏作家
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2174122/)
 
-Youtube视频链接：[https://youtu.be/3MxhWZyjf94](https://youtu.be/3MxhWZyjf94)
+编译： Jenny Ball
 
-Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1777.png)图片来源：naturalnews.com
 
-**郭文贵先生：**这个时候我希望是习怎么样？我希望他不打，我希望他真地放下“屠刀立地成佛”。但这是有点很幻想，相当于一个三岁的政治水平。但是我是人，我站在台湾同胞上，站在中国人长远利益上，如果我是习近平我今天，或者我是习近平身边的人，我就把他做掉，我一定把他做掉。
+《自然新闻》 – 长期倡导透明度的亚当·安德杰耶夫斯基（Adam Andrzejewski）在美国政府，特别是福奇（Tony Fauci）的美国国立卫生研究院（NIH）施加压力后，取消了他长达 8 年的《福布斯》专栏，根据《国家脉动》的揭露。
 
-他甭说是“习太阳”，他就是我亲爹、他就是我亲哥，我一定手起刀落把他头给砍下来。因为我砍下他的头，我能拯救14亿中国人，我能拯救2300万人。我绝对能做到，这点你们相不相信？我绝对能做到。我没有刀，我把他咬我也得把他脖子咬断，因为他拯救他自己、拯救人类。
+安杰耶夫斯基（Andrzejewski ）——OpenTheBooks.com的首席执行官和创始人——在被福布斯终止后，在他的新“子栈”（Substack）专栏中转发了这个故事。
 
-编辑整理：Jacques；
+由于对他的一些以福奇为重点的专栏感到不满，包括关于福奇家庭财务状况的重磅消息，安杰耶夫斯基回忆道：
 
-字幕文件制作：小满；
+“两名董事、两名局长和两名高级公关官员，没有在周日早上向福布斯的负责人发送电子邮件，因为他们想更正有关福奇旅行报销的记录。他们发送那封电子邮件，是为了下意识地发送一条信息：我们不喜欢安杰耶夫斯基的监督工作，我们希望您对此有所作为。不幸的是，福布斯很快就屈服了。”
 
-视频制作及上传：Cindy；
+福布斯执行编辑卡罗琳·霍华德（Caroline Howard）于 2022 年 1 月 15 日给安杰耶夫斯基的电子邮件开头写道：“我看到这是你在 3 周内发表的关于福奇的第三篇文章。”接着指责安德杰耶夫斯基在宣传，而不是做新闻。
 
-G-News发布：小满；
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1779.png)图片来源：naturalnews.com
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+仅仅一天后，两名 NIH 主任、两名局长和两名高级公关官员——都是政府雇员——向《福布斯》施加了压力。他们声称，福奇从未“收集”金钱礼物，而是收取了与安德热耶夫斯基报道金额的等额面值的门票。换句话说：没啥区别。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+但正如 安杰耶夫斯基所说，《福布斯》很快就屈服了：
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+在 NIH 向兰德尔·雷恩（Randall Lane）发送电子邮件后的 24 小时内，我的《福布斯》常规编辑致电并宣布了新规则。《福布斯》禁止我撰写有关福奇的文章，并要求我对所有未来的话题进行预先报批。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+然后，大约 10 天后的 1 月 28 日，《福布斯》悄无声息终止了我的专栏。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+在《福布斯》取消我专栏的那一天，编辑们屈膝了。一篇关于福奇的新文章发表了：“[**福奇的肖像将很快挂在史密森尼博物馆**](https://www.forbes.com/sites/suzannerowankelleher/2022/01/28/fauci-portrait-smithsonian/?sh=4873bf1c1770)。”(译注：吹捧文章)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+当然，这篇文章被指定为编辑精选。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+福布斯在 2014 年被一家中共国公司收购。就连《华盛顿邮报》也这样写道：
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+2014年，一家名为《综合鲸鱼媒体》（Integrated Whale Media）的香港投资集团，收购了美国最著名的媒体公司之一《福布斯》媒体的多数股权。在这种情况下，很难证明因果关系。但自那次收购以来，已经有几起编辑干预涉及中共国的报道，这引发了人们对《福布斯》杂志对编辑独立性的承诺的质疑。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+10 月 9 日，资深中国评论员和中共批评者章家敦（Gordon Chang）收到了《福布斯》评论编辑艾维克·罗伊（Avik S.A. Roy）的电子邮件。“由于《福布斯》内容的广泛重组，”罗伊写道，“我们将结束与你的正式关系。”罗伊补充说，“作为组织的结果，你为我们写的文章将不再存储在《福布斯》服务器上，也不会出现在 Forbes.com 上，”根据章家敦应我要求转发给我的电子邮件。
+
+在美国NIH和中共之间，《福布斯》现在似乎只对精英合并宣传感兴趣。
+
+**评论：文贵先生已经为我们解读了中共大外宣的构成和作用：收买国外媒体，继续洗脑逃到墙外的中国人；用收买的国外“主流”媒体洗白中共欺骗自由世界的人们。**
+
+素材链接：[naturalnews.com][Revealed: China-owned Forbes fired a top transparency columnist after a pressure campaign from Fauci’s NIH](China-owned%20Forbes%20fired%20a%20top%20transparency%20columnist%20after%20a%20pressure%20campaign%20from%20Fauci’s%20NIH)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
+
 
  
 
