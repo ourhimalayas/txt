@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 4:18 PM (UTC)`
+
+3月16号：【长岛哥，刚才，波兰🇵🇱第二大广播电台ZET 在他们的官方推特账号上报道了“中共不代表中国人“ “新中国联邦在梅蒂卡的帐篷是最大最好的“】<br/>https://twitter.com/rafalmizejewski/status/1504088603089162252?s=21
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gtranslators_2 3/16/2022 3:28 PM (UTC)`
@@ -151,13 +157,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Rescue Team – 24h Hotline: +1 7206576776 or +1 719-224-4232 or +48 508-532-712 or +48 508-531-518 Telegram: t.me/UkraineRescue GETTR: https://gettr.com/user/UkraineRescue<br/>我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є першопричиною катастроф у світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
 ![img](https://media.gettr.com/group33/origin/2022/03/16/04/209b7700-8e67-53d0-f2bb-9f48b88dd8be/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/16/2022 2:31 AM (UTC)`
-
-
-![img](https://media.gettr.com/group25/origin/2022/03/16/02/2d90862b-6988-cb94-7ae1-34b00e21ac5d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
