@@ -2,31 +2,47 @@
 ---
 
 
-## 樱花FM|中日财经爆：意大利宣布中资收购阿尔皮航空交易无效
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2172977/)
+## 苹果供应商富士康在COVID封锁下关闭深圳厂区
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2173015/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/VpPaO1zP0JKs9h46bMoJdKW91ebTZtmoTf2mbG-j84Mi407te7grYp7Ng8aIsWPJsB_cZgxhCQfHnpDoP21oZT-U4pcUCAb_4ze8FlwmJS5OtbgX-Af3KjDZ0K2FN_kVjUA9LCLk)
-路透社3月10日援引三名意大利政府官员消息报导，意大利周四宣布中资收购一家军用无人机企业的交易无效。
+***评论：**在中共的疫情封锁下，越来越多的外资会撤离。*
 
-意大利政府去年对2018年中资收购总部位于意大利北部的Alpi Aviation 75%股份的交易展开了调查。
+据《marketwatch.com》作者：Mike Murphy，2022年3月14日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1758-e1647410303196.png)中共国深圳富士康标志。图片来源：AFP 通过 Getty images
+台湾公司称生产将被重新分配到其他地点。
 
-消息人士称，意大利政府决定宣布该交易无效。此前调查得出结论认为，根据意大利旨在保护具有重要战略意义资产的“黄金权力”规定，相关人员应将交易情况告知政府。
+苹果公司（-AAPL, -2.66% ）组件供应商富士康科技有限公司将暂时关闭其在中共国深圳的业务，因为COVID-19案例激增。
 
-参与收购的中资企业是中联投控股和中车资本控股。这两家企业又由无锡蠡园经济开发区管委会和国务院国有资产监督管理委员会控制。
+总部位于台湾的富士康（2354，-0.48%），也被称为鸿海精密工业公司，在周日晚上的一份声明中表示，它正在暂停深圳两个园区的生产，并将生产重新分配到其他地点。
 
-阿尔皮航空（Alpi Aviation）是一家意大利飞机制造商，成立于1999年，总部位于意大利波代诺内。该公司生产一系列有人及无人固定翼和旋转翼飞机。2018年，一家中共国政府控制的公司收购了阿尔皮航空，并将技术转移到中共国。
+富士康在一份声明中说：“由于我们在中国有多样化的生产基地，我们已经调整了生产线，以尽量减少潜在的影响。”
 
-文字版原文：
+深圳是香港附近的一个科技中心，在新的COVID病例激增后，周日早些时候被封锁了。虽然富士康没有说明这些园区将关闭多长时间，但它在声明中表示，关闭将继续，直到得到当地政府的绿灯。城市封锁将至少持续到3月20日。
+
+虽然富士康在中共国的大部分iPhone生产是在其位于中国中部的郑州工厂完成的，但深圳区——严格来说是在龙华和观澜的郊区——是其最大的厂区，估计有45万名员工。富士康在中共国各地有大约十几家工厂。
+
+其他一些位于深圳的科技公司将受到封锁的影响，包括华为和优派（3037，-4.46%）——苹果的另一个供应商，以及英特尔公司（INTC, -3.12%）和Nvidia Corp.（ NVDA,-3.48%），根据日经亚洲的一份报告。
+
+截至周日晚些时候，富士康股价在台湾交易中下跌约1%。
+
+原文连接：[https://www.marketwatch.com/story/apple-supplier-foxconn-shuts-shenzhen-production-amid-covid-lockdown-11647229786](https://www.marketwatch.com/story/apple-supplier-foxconn-shuts-shenzhen-production-amid-covid-lockdown-11647229786)
+
+翻译：洛杉矶盘古农场 – TrueSky
+
+校对：洛杉矶盘古农场 – 轰炸机
+
+评论：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场–子萍
 
 
-| [中日财经爆┃意大利宣布中资收购阿尔皮航空交易无效](https://gnews.org/zh-hans/2142627/) |   |
-| --- | --- |
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
