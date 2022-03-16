@@ -2,32 +2,35 @@
 ---
 
 
-## 3月14日俄罗斯入侵乌克兰战局最新信息
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2174725/)
+## 美中外长罗马会谈无果
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2174786/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-18.jpg)
+作者：纽约香草山农场 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月15日的大直播中，郭文贵先生透露了美中两国外长此前一天在意大利罗马举行的长达七个小时会谈的内幕消息。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-23.jpg)
+郭先生指出，美中双方因分歧严重，基本难以达成任何共识。其中，美国国家安全顾问沙利文明确表态称，如果中共继续为俄罗斯提供金融支持，并允诺俄方要求提供军用物资，美国将对中共实施与俄罗斯同样的制裁，并冻结、查封中共高官及显贵的海外资产。另外，中共之后若武力侵台，美国将与同盟国联手参战。
 
-[图片来源](https://image.pbs.org/video-assets/s03kIDk-asset-mezzanine-16x9-ETXr6Av.jpg?crop=1920x1080&amp;format=jpg)
+郭先生表示，作为中共的传声筒，杨洁篪依然以所谓的战狼姿态威胁美国，并声称台湾是中共的内政，以及中俄两国是战略全天候伙伴关系。为此，俄罗斯出兵乌克兰是欧洲东扩及美国多年霸权的结果，中共会坚决予以支持，且中共早就做好了被美国制裁的准备。
 
-乌克兰抵抗俄罗斯军事入侵第十九天，俄军继续展开进攻行动。
+但郭先生强调，杨洁篪的态度就如同当年在伊拉克的萨达姆政府一样：直至最后一刻，其外交部发言人依旧态度强硬的发表反美宣言。然而，这些狂妄言论最终都会随着中共政权的垮台而烟消云散。
 
-以下是3月14日主要情况汇总：
+参考链接：[**2022年3月15日 文贵大直播：香港股市跌破两万点；擀面杖经济难以为继；中共全球拉仇恨行径；疫苗大灾难如何面对**](https://gettr.com/streaming/p1051m93814)
 
-- 敌人继续使用飞机支持地面部队，破坏乌克兰的军事和民用基础设施。
-- 据现有情报，俄军继续组建更多的占领部队。计划加强哈尔科夫方向的俄联邦武装部队的集结。
-- 俄军继续用大炮和坦克轰击民用基础设施。
-- 俄军继续对居民点进行导弹和炸弹袭击。
-- 俄军很可能对白俄罗斯的设施进行挑衅，以使白俄罗斯武装部队卷入冲突。
-- 在马里乌波尔（Mariupol）方向，敌人正试图占领马里乌波尔。乌克兰士兵成功击退了入侵者的进攻。敌人的总损失约为150人，2辆坦克，7辆步兵战车和1辆装甲运兵车。在遭受损失后，占领者停止进攻并撤退了。
-- 在卡米扬卡（Kamyanka）定居点，俄军在侦察战中遭受了重大损失，被迫撤退。
-- 乌克兰炮兵和飞机对俄军前进路线上堆积的军事装备和纵队进行了火力破坏。有12个单位的机动车辆被摧毁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
+总编：Irene木木
+编辑：谐趣园
+审核：Ivy001
+校正/发稿：Fei797
 
-新闻来源链接：[https://www.mil.gov.ua/en/news/2022/03/15/operational-information-on-24-00-14-03-2022-regarding-the-russian-invasion/?\_\_cf\_chl\_f\_tk=744YlilqLiBp18iMlAQdRHoQMmQXyBlouB6ce\_J4uxY-1647326061-0-gaNycGzNB6U](https://www.mil.gov.ua/en/news/2022/03/15/operational-information-on-24-00-14-03-2022-regarding-the-russian-invasion/?__cf_chl_f_tk=744YlilqLiBp18iMlAQdRHoQMmQXyBlouB6ce_J4uxY-1647326061-0-gaNycGzNB6U)
-
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

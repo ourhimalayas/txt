@@ -2,26 +2,31 @@
 ---
 
 
-## 英国约翰逊与阿布扎比王储讨论能源安全和贸易
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2174696/)
+## 秘翻新闻｜拜登將访欧讨论乌克兰议题
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2174746/)
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+**By:[秘翻新闻](https://gettr.com/post/p10a55o88eb)**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0111.jpg)
+**2022-03-16**
 
+**新闻内容:**
 
-图片来源： 路透社
+**1. 多项数据表明外资正全面撤离中共国市场**
 
-约翰逊的发言人周三表示，英国首相鲍里斯·约翰逊和阿联酋事实上的统治者谢赫·穆罕默德·本·扎耶德·阿勒纳哈扬讨论了两国在能源安全、绿色技术和贸易方面加强合作。
+**2. 中概股和A股继续暴跌 腾讯阿里市值共蒸发逾1兆美元**
 
-“领导人讨论了加强英国和阿联酋在能源安全、绿色技术和贸易方面合作的机会，”发言人在一份详细说明约翰逊与阿布扎比王储会面的声明中说。
+**3. 拜登将宣布向乌克兰提供10亿美元的军事援助**
 
-“他们还同意，面对日益增长的全球威胁，有必要加强我们强有力的安全、国防和情报合作。”
+**4. 俄罗斯表示已经对伊朗核协议作出书面保证**
 
-🔗 [https://www.reuters.com/world/uks-johnson-abu-dhabi-crown-prince-discuss-energy-security-trade-2022-03-16/](https://www.reuters.com/world/uks-johnson-abu-dhabi-crown-prince-discuss-energy-security-trade-2022-03-16/)
+**5. 沙特据报考虑对华部分石油贸易使用人民币计价**
 
-编辑发布： Shuizhuyu
+**🔗Gettr链接：**[https://gettr.com/post/p10a55o88eb](https://gettr.com/post/p10a55o88eb)
 
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
