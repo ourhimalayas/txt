@@ -2,19 +2,26 @@
 ---
 
 
-## 许多国家面临饥荒的危险
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2170888/)
+## 中共国每年有2381.2万件消费投诉事件
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170903/)
 
-#### 翻译                   意大利达芬奇农场                                  小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-15-alle-23.05.24-2.png)图片来源：imolaoggi.it
-俄罗斯对乌克兰的入侵“给全球粮食安全带来风险”。国际货币基金组织在一份关于乌克兰的初步报告中支持了这一点。由于乌克兰和俄罗斯的农产品出口受阻， 事实上， 战争已导致价格急剧上涨， 并对最贫穷国家产生影响。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-76.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.caixin.com%2F2017-03-15%2F1489575465929654.jpg&amp;imgrefurl=https%3A%2F%2Fdatanews.caixin.com%2Fm%2F2017-03-15%2F101066373.html&amp;tbnid=JPDHTOdfEf4UHM&amp;vet=12ahUKEwiai_CYz8j2AhVK0uAKHfrhAGcQMygIegUIARCaAQ..i&amp;docid=gcjVTTfc1Yy31M&amp;w=480&amp;h=320&amp;itg=1&amp;q=3.15%E6%8A%95%E8%AF%89&amp;ved=2ahUKEwiai_CYz8j2AhVK0uAKHfrhAGcQMygIegUIARCaAQ)
+3月15日每经经济报道，去年，通过全国12315平台等渠道共受理消费者投诉举报咨询2381.2
 
-“ 乌克兰的战争意味着非洲的饥荒，”国际货币基金组织总干事克里斯塔利娜•格奥尔基耶娃周日在接受哥伦比亚广播公司采访时说。
+万件，为消费者挽回经济损失55.5亿元，同比增长26%。通过构建有群众参与的全局性、动态性评价体系，调解成功率提高30.9个百分点，投诉举报处理时长缩短15.41天，消费维权效能明显提升，已推动8.7万家重点企业入驻全国12315平台。
 
-原文链接：[https://www.imolaoggi.it/2022/03/15/ucraina-fmi-rischio-carestia-in-molti-paesi/](https://www.imolaoggi.it/2022/03/15/ucraina-fmi-rischio-carestia-in-molti-paesi/)
+中共新闻统计在不经意间透漏出了中共国假丑骗的经济市场，每年投诉举报2381.2万件，为消费者挽回损失55.5亿元，中共以此为光荣事件，从来不去考虑源头的问题，为何有这么多投诉？
 
-编辑、上传： Xiao   baige
+中共把消费者当做牛羊一般任人屠宰，中国人每天都在假丑骗中度过，只有消灭共产党才可以解救国人。
 
+消息来源：
+
+[【2021年全国12315平台挽回消费者损失超55亿元】](https://ml.mbd.baidu.com/r/CRDAzsEl8s?f=cp&amp;rs=2054748433&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=5b73362f459212bb&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
