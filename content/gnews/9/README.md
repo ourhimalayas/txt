@@ -2,32 +2,31 @@
 ---
 
 
-## 志愿者向波兰媒体人介绍郭文贵先生带领中国人消灭中共
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2171914/)
+## 视频|西班牙扣押普京盟友的豪华游艇
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2172170/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+制作：香草山视频部
 
-整理/编辑：小红帽
+外媒15日消息，西班牙首相桑切斯14日在电视节目中确认，当局在巴塞罗那暂时扣押了俄罗斯富豪一艘价值1亿4000万美元的游艇，并承诺还会有更多针对俄罗斯寡头的行动。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-16_11-18-05.png)图片来源：郭文贵先生盖特视频截图
+有报道引述消息人士指出，这艘85公尺的超级豪华游艇的主人是俄罗斯总统普京的盟友，切梅佐夫，他曾是前苏联国家安全委员会官员，现在是俄罗斯国家技术集团的负责人。另外还有两位尚未被列入制裁名单的俄罗斯寡头的游艇，目前也停靠在巴塞罗那。
 
+切梅佐夫在2014年和2020年分别因俄罗斯吞并克里米亚而受到美国和英国的制裁，本月又再一次被美国和澳洲列入制裁名单。不仅如此，美国这次还将切梅佐夫的继女，以及他的妻子和儿子一同纳入制裁范围。
 
-3月13日，在波兰梅迪卡难民援救中心，新中国联邦和法治基金志愿者妮可告诉两位波兰独立媒体人，郭文贵先生正在带领中国人民推翻共产党的统治，并让中国人民摆脱共产主义。
+根据一位政府消息人士的说法，在西班牙当局确认所有权以及核对制裁对象名单之前，这艘游艇将继续被扣押。
 
-妮可：“我爱波兰人民。因为在我非常小的时候，就在新闻上听到波兰人民脱离了共产主义。所以你们也经历了同样的一个过程。我记得整个过程中，你们有一位伟大的领导人发挥了很大的作用。他的名字是瓦文萨（Walesa)。现在我们也有一个中国的瓦文萨，他的名字是郭文贵。他正在引领中国人民推翻共产党的统治。”
+这是继各国对俄罗斯实施制裁以来，第一宗经确认的俄罗斯公民在西班牙被扣押财产的事件。自俄罗斯2月24日对乌克兰展开军事行动以来，西方已经制裁了俄罗斯多名亿万富翁，冻结了俄罗斯国家资产，并切断了大部分俄罗斯企业与全球经济的联系。
 
-波兰媒体人：“我由衷地祝你们好运，并尽快实现摆脱中共的目标。因为我们所有人都支持你们。 ”
+发稿：Daxia
 
-资料来源：[郭文贵先生2022年3月15日盖特视频](https://www.gettr.com/post/p104rsifbe0)
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

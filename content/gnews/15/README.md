@@ -2,35 +2,42 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月14日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2171756/)
+## 我们是消灭中国共产党的中国人
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2171868/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-
+作者：纽约香草山农场-恩永存
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-2-1-1187x1536-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
+3月13日郭文贵先生在大直播中反复强调新中国联邦，法治基金这次乌克兰国际人道救援的主题。
 
+第一，我们是消灭中国共产党的中国人；
 
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年3月14日晚](https://gnews.org/zh-hans/2166016/)
+第二，中国共产党是全人类所有的战争和问题的根源；
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+第三，消灭中国共产党是解决人类战争和所有苦难的根本手段; 第四 我们与乌克兰人民站在一起。
+
+郭先生为了维护新中国联邦的正义行动，正确形像，深知战友们为救援付出的努力，更明白大家想做好救援的真心，但因战友们知识见识有限，对事物判断欠佳，给邪恶中共留下了可乘之机，他们以谎言抢夺新中国联邦的救援功劳。郭先生以为真不破的态度，在大直播中对战友们所做的事公开褒贬，让大家回归救援主题，彼此团结，同心同行，同辱同荣，与全球救援组织一起完成救援行动。
+
+新闻链接：[https://gettr.com/post/pzuk2c9034](https://gettr.com/post/pzuk2c9034)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-31.jpg)
+
+编辑/校对/发稿：滚滚长江都是水
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 
  
 

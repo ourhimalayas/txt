@@ -2,42 +2,27 @@
 ---
 
 
-## 我们是消灭中国共产党的中国人
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2171868/)
+## 视频|英国解除所有防疫旅游限制
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2172088/)
 
-作者：纽约香草山农场-恩永存
+制作：香草山视频部
 
+英国政府14日表示，自3月18日起，所有入境英国的旅客毋须再填写表格申报疫苗接种情况，同时取消要求未接种疫苗者必须出示出发前后的病毒阴性检测证明，这意味着，旅客可以像以往一样到英国旅行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
-3月13日郭文贵先生在大直播中反复强调新中国联邦，法治基金这次乌克兰国际人道救援的主题。
+英国航空公司（Airlines UK）旅游业主席奥尔德斯莱德（Tim Alderslade）对此表示欢迎，他认为，新措施将预示“英国的旅游业已经归来”。
 
-第一，我们是消灭中国共产党的中国人；
+不过，值得忧虑的是，目前，英格兰、苏格兰、威尔士及北爱尔兰四个地区单日确诊数字仍然逐日攀升，在医院留医的感染者人数也正在增加。有专家表示，大部分新增个案都是感染了更具传播力的变种病毒Omicron。卫生大臣贾伟德（Sajid Javid）回应指，当局会持续监察疫情，将视情况迅速推行措施作出应对。
 
-第二，中国共产党是全人类所有的战争和问题的根源；
+发稿：Daxia
 
-第三，消灭中国共产党是解决人类战争和所有苦难的根本手段; 第四 我们与乌克兰人民站在一起。
-
-郭先生为了维护新中国联邦的正义行动，正确形像，深知战友们为救援付出的努力，更明白大家想做好救援的真心，但因战友们知识见识有限，对事物判断欠佳，给邪恶中共留下了可乘之机，他们以谎言抢夺新中国联邦的救援功劳。郭先生以为真不破的态度，在大直播中对战友们所做的事公开褒贬，让大家回归救援主题，彼此团结，同心同行，同辱同荣，与全球救援组织一起完成救援行动。
-
-新闻链接：[https://gettr.com/post/pzuk2c9034](https://gettr.com/post/pzuk2c9034)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-31.jpg)
-
-编辑/校对/发稿：滚滚长江都是水
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
