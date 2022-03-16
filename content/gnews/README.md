@@ -15,32 +15,32 @@
 
 ---
 
-### [3/15/2022 文贵直播: 中共不遗余力地企图诋毁新中国联邦在乌克兰的救援行动，他们不但在非洲散布谣言，还在乌克兰救援前线通过布隆伯格的采访给新中国联邦挖坑，但Nicole和前线战友们表现绝佳机智应对](/content/gnews/1/README.md)
+### [多伦多老师因提议让不戴口罩孩子分开坐被停职](/content/gnews/1/README.md)
+ ` MG FARM`
+
+### [多伦多将迎来10年来最温暖St. Patrick&#8217;s Day](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [《变红》导演在市议会获得荣誉](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [加拿大又宣布制裁俄罗斯15名高官](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [3/15/2022 文贵直播: 中共不遗余力地企图诋毁新中国联邦在乌克兰的救援行动，他们不但在非洲散布谣言，还在乌克兰救援前线通过布隆伯格的采访给新中国联邦挖坑，但Nicole和前线战友们表现绝佳机智应对](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [秘翻在线:俄乌战争让习近平进退两难](/content/gnews/2/README.md)
+### [秘翻在线:俄乌战争让习近平进退两难](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [大多伦多地区约150名LifeLabs员工罢工](/content/gnews/3/README.md)
- ` MG FARM`
+### [乌克兰的泽连斯基要求美国国会“保护我们的天空”对抗俄罗斯](/content/gnews/7/README.md)
+ ` Shuizhuyu`
 
-### [2月份加拿大平均房价达到创纪录的81.6万美元，自去年以来上涨20%](/content/gnews/4/README.md)
- ` MG FARM`
-
-### [近 75% 的加拿大人认为，在乌克兰持续不断的战争中，北约应为军事干预做好准备](/content/gnews/5/README.md)
- ` MG FARM`
-
-### [拥有100多套房的房东在家门口被杀了](/content/gnews/6/README.md)
- ` MG FARM`
-
-### [隐形奥米炕BA2占美国病例的四分之一](/content/gnews/7/README.md)
+### [隐形奥米炕BA2占美国病例的四分之一](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [在新闻直播中呼吁反战的女子获释 俄法院判决罚款3万卢布](/content/gnews/8/README.md)
+### [在新闻直播中呼吁反战的女子获释 俄法院判决罚款3万卢布](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [澳大利亚承认与中共国的战争是可能的，美国将在北领地部署几十万军队](/content/gnews/9/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
 
 ### [新中国联邦人乌克兰救援在行动](/content/gnews/10/README.md)
  ` 纽约香草山MOS01`
