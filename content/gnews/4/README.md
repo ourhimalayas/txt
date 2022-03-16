@@ -2,26 +2,26 @@
 ---
 
 
-## 卫星画面曝光！多架俄军直升机遭摧毁
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2173342/)
+## 中日财经爆|欧盟禁止标普、穆迪和惠誉对俄罗斯以及其企业进行评级
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2173499/)
 
-美国星球实验室公司（Planet Labs）最新卫星影像显示，俄罗斯多架军用直升机在刻松国际机场（Kherson International Airport）遭乌克兰部队摧毁。
+撰稿：东京樱花团/peterwong
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3554298-PH.jpg)图片来源：乌克兰武装部队参谋总部脸书
+![](https://assets.gnews.org/wp-content/uploads/2022/03/欧盟禁止标普、穆迪和惠誉对俄罗斯以及其企业进行评级.png)[图片来源](https://www.google.co.jp/imgres?imgurl=http%3A%2F%2Fimage.yjcf360.com%2Fu%2Fcms%2Fwww%2F201908%2F011404117hif.png&amp;imgrefurl=http%3A%2F%2Fwww.yjcf360.com%2Fgushifocus%2F623852.htm&amp;tbnid=0Ux9o0kRZDCAzM&amp;vet=12ahUKEwiFl567hcr2AhXIz4sBHYUwBZQQMygTegUIARCnAQ..i&amp;docid=zVGiM12-lZmmRM&amp;w=454&amp;h=313&amp;q=%E6%A0%87%E6%99%AE%E3%80%81%E7%A9%86%E8%BF%AA%E5%92%8C%E6%83%A0%E8%AA%89%E4%B8%89%E5%A4%A7%E8%AF%84%E7%BA%A7%E6%9C%BA%E6%9E%84&amp;ved=2ahUKEwiFl567hcr2AhXIz4sBHYUwBZQQMygTegUIARCnAQ)
 
-据称这是乌军在此次交战中对俄军直升机最具破坏性的攻击，至少3架俄军直升机著火或被摧毁，机场附近的军用车辆也遭击中。另一张由无人机在邻近科米沙尼（Komyshany）村落拍摄的影像，也显示机场冒出大量黑烟。
+欧盟执委会周二（3月15日）表示，作为其最新制裁方案的一部分，欧盟已禁止顶级信用评级公司对俄罗斯以及其公司进行评级。
 
-美国公司「马萨尔科技」（Maxar Technologies）昨天的卫星影像显示，俄军多架直升机停在刻松国际机场停机坪，周边地区也停放多辆军车。
+欧盟执委会在一份声明中说，“这些制裁措施将进一步加大对克里姆林宫的经济施压，并削弱其为入侵乌克兰筹集资金的能力”，并称这套措施是“与国际伙伴、特别是与美国协调进行的”。
 
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1085828)
+全球三大评级机构标普全球、穆迪和惠誉如果藐视这一禁令，则将面临在欧盟失去运营许可的风险。
 
-撰稿/发布：一叶知秋
+该三家机构均已撤销或暂停遭受美国财政部海外资产控制办公室(OFAC)最严厉制裁的一批俄罗斯公司提供企业评级服务，但周二的举措从表面上看会迫使这些机构放弃对更多该国公司的评级。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+消息来源：[欧盟宣布禁止顶级信用评级机构对俄罗斯与俄企进行评级](https://cn.reuters.com/article/eu-bans-rating-russian-0315-firms-tues-idCNKCS2LD037?il=0)
 
+*编辑：东京樱花团/逢⑦必变
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

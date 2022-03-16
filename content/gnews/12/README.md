@@ -2,38 +2,25 @@
 ---
 
 
-## 欧盟禁止顶级信用评级公司对俄罗斯及俄企进行评级
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2173259/)
+## 有声｜台湾逾7成民众愿意为台而战 近7成赞成延长兵役
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2173283/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+By:**秘翻新闻**
 
-整理：等风来
-编辑：围剿维尼熊
+**2022-03-16**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-30.png)图片来源 SAM YEH/AFP via Getty Images
+[新唐人北京时间3月16日消息，中共支持俄罗斯入侵乌克兰，加重了台湾的危机感，但也激发了台湾人的斗志。](https://www.ntdtv.com/gb/2022/03/15/a103374679.html)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe-2.png)图片来源：雅典娜设计组
+[15日，台湾国际战略学会及台湾国际研究学会在其共同主办的“乌克兰战争与台海安全”民调发表会上宣布，如果台海开战，台湾70.2%的受访者表示愿意为保卫台湾而战。另外，有69.6%的民众表示，支持延长目前仅4个月的义务役役期。](https://www.ntdtv.com/gb/2022/03/15/a103374679.html)
 
+[中华民国国防部长邱国正当天表示，有关延长兵役的举措仍在研议中，“如果定案，公布一年后才会实施”。](https://www.ntdtv.com/gb/2022/03/15/a103374679.html)
 
-根据路透伦敦3月15日报道，欧盟执委会周二表示，欧盟已禁止顶级信用评级公司对俄罗斯以及该国的公司进行评级。
+秘翻新闻 二丫编辑报道
 
-欧盟执委会在一份声明中表示，这些制裁措施将进一步有助于加大对克里姆林宫的经济施压，并削弱其为入侵乌克兰筹集资金的能力。
+发布 : 恩典
 
-这套措施是与国际伙伴、特别是与美国协调进行的。全球三大评级机构—标普全球、穆迪和惠誉如果藐视这一禁令，将面临在欧盟失去运营许可的风险。
-
-对于遭受美国财政部海外资产控制办公室（OFAC）最严厉制裁的一批俄罗斯公司，这三家机构都已撤销或暂停提供企业评级。但随着新的禁止令出台，看来会越来越迫使这些机构放弃对更多俄罗斯公司的评级。
-
-目前只有惠誉表示遵守信用评级机构的所有相关规定。
-
-参考链接：[欧盟宣布禁止顶级信用评级机构对俄罗斯与俄企进行评级](https://cn.reuters.com/article/CNIntlBizNews/idCNKCS2LD037?irpc=932)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
