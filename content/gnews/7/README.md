@@ -2,32 +2,33 @@
 ---
 
 
-## 如果中共帮助俄罗斯，两党议员表示会支持制裁中共国
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2176399/)
+## 有声|中共当局批准病毒快筛试剂盒上市
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2176422/)
 
-####  撰稿：彩虹      
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共党媒3月14日报道，由于墙内本土疫情近日快速扩散，中共国家药监局于3月11日宣布，在核酸检测基础上，增加抗原快速检测作为补充，12日，中国国家药监局批准南京诺唯赞、北京金沃夫、深圳华大因源、广州万孚生物、北京华科泰生物这5家企业的快筛试剂正式上市。截至当地时间3月14日，快筛试剂盒已开始上架墙内各电商平台。 两年以来，中共当局一直采取大范围、高密度的核酸检测，作为防控“中共病毒”的有效筛查手段。在其他各国很常见的抗原快筛试剂盒，在中共国却始终未被采用。 “老百姓药房”上海门市员工当日表示，各门店在12日晚已获得发售快筛试剂盒的通知，但还无法直接购买。民众尚需登记预约。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-7.jpg)
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1813.png)图片来源：纽约时报
-3月15日，《国会山报》报道说，两党议员都表示，如果中共协助俄罗斯规避美国和欧盟的制裁，他们将愿意支持对中共进行经济处罚。
 
-其中，佛罗里达州共和党参议员马可·卢比奥（Marco Rubio）暗示，中共可能已经在协助俄罗斯。
+文字版原文：[中共当局批准病毒快筛试剂盒上市](https://gnews.org/zh-hans/2171817/)
 
-他表示：“我只想说，我的看法是他们已经在帮助他们（俄罗斯）。我不需要看到任何东西就可以告诉你，我知道中共会出于很多不同的原因帮助俄罗斯，主要是因为他们把俄罗斯视为这种反西方、反美国的努力中的伙伴，这种努力广泛地涉及重新定义世界的秩序。”
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-情报委员会排名第一的卢比奥认为，应该“制裁，对那些个别公司或参与其中的人进行制裁”。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-参议院多数党党鞭迪克·德宾（Dick Durbin）说，如果中共要帮助克里姆林宫，他们可能会面临严重的后果，但他警告说，在西方可能会造成重大的经济影响。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-德宾说：“这一切都互有关联，而且变得非常严重。尽管他们是全球经济中的一个小角色，我们对俄罗斯所做的也将对我们产生一些影响。他们为我们提供关键的矿物，我们在很多方面都使用这些矿物”。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-参议院少数党领袖米奇·麦康纳尔（Mitch McConnell）也表示，如果中共和任何其他考虑援助俄罗斯的国家真的这么做了，他将支持对其进行经济处罚。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-麦康奈尔告诉记者，“我认为我们不介意施加任何可能的压力，不仅是对俄罗斯，还有那些试图帮助俄罗斯的国家。”
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**新闻来源**
-
-[Lawmakers Willing to Sanction China if They Help Russia](https://www.newsmax.com/newsfront/china-sanctions-russia-ukraine/2022/03/15/id/1061371/)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
