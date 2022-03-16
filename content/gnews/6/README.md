@@ -2,37 +2,32 @@
 ---
 
 
-## 《I draw my life 》真实版
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176565/)
+## 在新闻直播中呼吁反战的女子获释 俄法院判决罚款3万卢布
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2176761/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-梅迪卡前线时间3月13日，一个乌克兰小女孩来到新中国联邦的帐篷内，她特别爱画画，战友送了她一套画笔。不多久，小女孩的母亲给战友看了孩子的画，这几幅画让人心都碎了。
+翻译：zicoround
 
-其中一幅，画的是在战争的炮火中，哭泣的孩子在祈祷。另一张，画是一个士兵拿枪指着一个求饶的平民，外面裹着一层圆圈像是地球，圈外有水滴一样的东西，似乎在表达战争和杀戮会让地球流泪。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-53.jpg)
-还有一张，画了两只手，根据颜色左边是乌克兰，右边是俄罗斯，两只手的形态非常不自然，既不像牵手也不像放手，小女孩的母亲说这个画是要表达反对战争，不得不说小孩画得太好了，简直像极了乌克兰和俄罗斯现在的情况。接下来的一张画，是用颜色分别代表着俄罗斯和白俄罗斯的两个凶恶的面孔，把夹在中间的乌克兰蹂躏到满脸是伤痕。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-68.jpg)图片来源：AFPBB News
 
-看完这几张画，赞叹它如《I draw my life 》的真实版。《I draw my life 》是乌克兰小女孩演唱的呼吁和平的歌曲，歌中唱道，充满暴力的世界不会有未来，我们爱好和平，呼吁停止战争。
+此前闯入直播中的热门新闻节目，抗议俄罗斯入侵乌克兰的俄罗斯政府电视台一名女总监于15日被莫斯科法院判决支付3万卢布（约3万3千日元）的罚款后予以释放。
 
-两个小女孩以歌与画祈祷和平，同样震撼人心。而我们愿意尽最大努力救援乌克兰，愿这首歌这些画，永远留在我们的记忆里，曾经万恶的共产党如此破坏过孩子的家园。
+14日晚，“第一频道”的总监玛琳娜·奥夫沙尼科娃手持写有“反对战争”的标语牌，打断了该台在俄收视率最高的夜间新闻节目。 她被指控呼吁非法抗议活动罪，可能被判处最长10天的拘留。
 
-参考链接：[《I draw my life 》真实版（视频）](https://discord.com/channels/872153398588370944/950448401529577502/952638720694169)
+该指控不是因为扰乱直播，而是因为通过视频发布了一个呼吁俄罗斯人参加反战抗议的信息。 就在最近，该国通过了一项新法律，旨在打击发布有关俄军 “虚假信息”的媒体工作者。 辩护律师告诉法新社，奥夫沙尼科娃女士今后可能会根据该法而被追诉，并面临最高15年的监禁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+出庭时，奥夫沙尼科娃女士并不认罪，并陈述“我至今确信俄罗斯是有罪的”。判决后，她告诉记者，“实际上已经两天没合眼”，透露出她被审讯了14个小时以上。
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
+**参考资料：**[news.goo.ne.jp][TVで反戦訴えた女性釈放 ロシア裁判所、罰金3万円科す](https://news.goo.ne.jp/article/afpbb/world/afpbb-3395214.html)
 
-**更多资讯，更多关注**
+请阅读相关文章：[俄罗斯政府电视台的直播中突然“反对战争” 总监被捕](https://gnews.org/zh-hans/2170307/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+* * *
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+*审核：BryanW*
+*校对：宫米叶*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
 
  
 

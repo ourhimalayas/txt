@@ -2,37 +2,33 @@
 ---
 
 
-## 摒弃口炮，学会尊重，永远的修行
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176564/)
+## 澳大利亚承认与中共国的战争是可能的，美国将在北领地部署几十万军队
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2176757/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月13日大直播中，文贵先生指出了在乌克兰大救援行动中存在的一些问题。
+编译：意大利罗马达芬奇农场： ZQ
 
-在前线参加大救援行动的战友都很辛苦，有的甚至都不怎么休息。但是，永远有键盘手、口炮党给郭先生发送无数条建议和批评，中国人的很多毛病如个人主义很强、自以为是，不尊重别人的任何劳动，在这里体现得淋漓尽致。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-52.jpg)
-另外，前线有些战友也是自我感觉良好，常常拍脑瓜子就是一个决定，几乎忘记了我们此去前线的目的，是救援难民而不是搞大张旗鼓正襟危坐地新闻宣传。同时，应该在现场展示代表我们的一些介绍也未呈现，导致中国共产党钻空子截胡，谎称救援是他们搞的。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0113.jpg)
 
-因此，郭先生强调，一定要在现场展示，我们是消灭邪恶中国共产党的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党，才能拯救全人类。
 
-通过这些问题的发掘，也给战友提供了更多的思路。我们的敌人是共产党，对付爆料革命他们无所不用其极，耍尽下流肮脏的手段。郭先生曾说，我们都是从中共国这个肮脏的地方走出来，身上难免带有共产党的那些毛病，过而能改，一生的修行。
+图片来源：路透社
 
-参考链接：[2022年3月13日 文贵大直播](https://gettr.com/post/pzrn4eb349)
+随着与中国的紧张关系加剧，数千名接受过使用地对空导弹系统、高机动性火炮火箭和无人驾驶飞机训练的美国士兵将前往澳大利亚。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+大约由2200名军人组成的美国海军陆战队轮换部队将从9月起即将驻扎在北领地。
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
+澳大利亚国防军宣布，这是在北领地的第11次部署，并将首次包括250名美国陆军人员。
 
-**更多资讯，更多关注**
+这支特遣队是美国在印度-太平洋地区正在进行的一部分举措，目的是为未来几年中国可能入侵台湾做准备。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+国防部长彼得-达顿在9月警告说，与中国的冲突 “不应该被打折扣”，并在周三告诉美国研究中心，北京可能会寻求吞并台湾，而世界正专注于俄罗斯对乌克兰的入侵。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+海军的部署将补充澳大利亚皇家空军和美国空军之间的强化空中合作计划。大约1000名海军陆战队员已经在达尔文登陆。他们将与澳大利亚国防军一起训练，以确保他们有能力应对该地区的危机。这可能包括人道主义援助，救灾，疏散任务，以及加强美国大使馆或军事行动。
+
+达尔文的位置就在十几个亚洲国家和一些世界上最繁忙的航道的南边，这使它成为一个战略中转站。训练将包括实弹军事演习，以提高澳大利亚和美国部队以及其他地区盟友部队之间的凝聚力。
+
+澳大利亚国防军北部部队指挥官马库斯-康斯特布尔上校说，美国联盟是澳大利亚最重要的防务关系，是国家安全计划的核心。
+
+🔗 [https://www.dailymail.co.uk/news/article-10617533/United-States-deploy-THOUSANDS-troops.html?ito=native\_share\_article-masthead](https://www.dailymail.co.uk/news/article-10617533/United-States-deploy-THOUSANDS-troops.html?ito=native_share_article-masthead)
 
  
 
