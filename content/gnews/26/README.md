@@ -2,10 +2,16 @@
 ---
 
 
-## 3/15/2022 文贵直播：韩正主使抓捕马建副部长，因为马健调查并掌握了韩私生子女和非法财产的秘密；韩正告诉亲信，俄乌战争开打预示中共的灭亡，因为习会攻打台湾，走上普京的不归路
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2170609/)
+## 五月花简报（03/15/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2170774/)
 
-秘密翻译组-北美组
+编辑：波士顿五月花—-冲天一怒
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/DED8FD88-0FE5-4956-A389-7C575D1BEFC6.jpeg)
+
+*发布：思澈*
+
+
 
  
 

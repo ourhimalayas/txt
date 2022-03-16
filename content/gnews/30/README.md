@@ -2,30 +2,22 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年3月15日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2170421/)
+## 【乌克兰救援】3/13号，乌克兰前线救援团队‘热线小组’ 的哈雷、Feather、Kent接受采访（1）
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2170440/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-5.jpg)
+作者：加拿大温哥华杨帆农场 – 视频组
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-15.png)
-文章仅代表作者本人观点，与Gnews无关
+【乌克兰救援】3/13号，乌克兰前线救援团队的‘热线小组’ 的哈雷、Feather、Kent接受了采访，他们在抵达后立刻投入高度紧张的工作中，来听听他们为何决定去往前线，前线热线中心大概的工作情况，以及他们遇到了哪些人和事
 
-视频参看：
-[2022.03.15早 《NFSC新闻》](https://gettr.com/streaming/p104qwc6790)
-[2022.03.15早 G|TV《新闻访谈》](https://gettr.com/streaming/p105enx4887)
+【乌克兰救援】3/13号，乌克兰前线救援团队‘热线小组’ ，哈雷、Feather、Kent接受采访（1）
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+翻译：文永
+校对：文永
+复核：Kent
+字幕：陈廷青
+审核：Kent
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-18.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑/发稿：青青
 
  
 

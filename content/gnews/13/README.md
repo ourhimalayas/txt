@@ -2,26 +2,25 @@
 ---
 
 
-## 中共国每年有2381.2万件消费投诉事件
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170903/)
+## 新中国联邦在梅蒂卡国际舞台露峥嵘
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2171144/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-76.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.caixin.com%2F2017-03-15%2F1489575465929654.jpg&amp;imgrefurl=https%3A%2F%2Fdatanews.caixin.com%2Fm%2F2017-03-15%2F101066373.html&amp;tbnid=JPDHTOdfEf4UHM&amp;vet=12ahUKEwiai_CYz8j2AhVK0uAKHfrhAGcQMygIegUIARCaAQ..i&amp;docid=gcjVTTfc1Yy31M&amp;w=480&amp;h=320&amp;itg=1&amp;q=3.15%E6%8A%95%E8%AF%89&amp;ved=2ahUKEwiai_CYz8j2AhVK0uAKHfrhAGcQMygIegUIARCaAQ)
-3月15日每经经济报道，去年，通过全国12315平台等渠道共受理消费者投诉举报咨询2381.2
+作者：温哥华扬帆农场 – 自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-15-at-8.15.53-PM.png)
+3月14日早上9:30，在梅蒂卡新中国联邦营地里，乌克兰难民营救国际间合作会议准时召开了。宽敞明亮的大帐篷里，我们的文耀和文科战友，代表新中国联邦和法制基金，作为会议召集方、主办方和场地提供方，以东道主的身份坐在与会者中心，并向参加会议的各国义工代表提供了热腾腾的茶点、新鲜牛奶、早餐、暖气和在战地难得一见的暖心饮品 – NFSC现磨咖啡。
 
-万件，为消费者挽回经济损失55.5亿元，同比增长26%。通过构建有群众参与的全局性、动态性评价体系，调解成功率提高30.9个百分点，投诉举报处理时长缩短15.41天，消费维权效能明显提升，已推动8.7万家重点企业入驻全国12315平台。
+而十几位外国友人，围坐在宽大的会议桌旁，身上各种语言的Logo，代表着他们来自不同的救援组织。根据Nicole战友的介绍和我在网上查阅的资料，他们分别代表国际红十字会、西班牙卡迪纳(CADENA)国际救援队、法国PHF人道消防救援队和德国Tier-Ambulanz动物急救组织等救援机构，此外，还有标着“Ratownik”（波兰语）和”Paracrew”标示的另外两家机构。会议全程用英语讨论，我们的战友也在会议中积极参与发言。
 
-中共新闻统计在不经意间透漏出了中共国假丑骗的经济市场，每年投诉举报2381.2万件，为消费者挽回损失55.5亿元，中共以此为光荣事件，从来不去考虑源头的问题，为何有这么多投诉？
+根据Nicole战友的介绍，我们新中国联邦和法制基金的义工已经成为了梅蒂卡救援中心 – 这个全球瞩目的乌克兰难民营救国际舞台上的主角。目前这里所有的国际间会议，包括媒体之间的会议，都会在我们NFSC的帐篷里举行。就在昨天，这里还召开了国际红十字会和无国界医生的会议。
 
-中共把消费者当做牛羊一般任人屠宰，中国人每天都在假丑骗中度过，只有消灭共产党才可以解救国人。
+我们的前线战友，新中国联邦人，正用自己的实际行动，一改中共治下的中国人懦弱、冷漠、自私的形象，以正义、阳光、自信的新形象出现在国际舞台！正如帐篷里随处可见的标示和横幅上写的那样，我们正在大声告诉全世界：我们是新中国人，我们是灭共的，我们和中共不一样！
 
-消息来源：
+注：根据DC战友Nicole从救援前线发回的视频撰写
 
-[【2021年全国12315平台挽回消费者损失超55亿元】](https://ml.mbd.baidu.com/r/CRDAzsEl8s?f=cp&amp;rs=2054748433&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=5b73362f459212bb&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+来源： Discord : NFSC news -救援前线素材区
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+编辑/上传：文所未闻
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
