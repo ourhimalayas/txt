@@ -2,26 +2,38 @@
 ---
 
 
-## 秘翻在线:俄乌战争让习近平进退两难
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2176834/)
+## 泽连斯基向遇害美国记者家属发送感人信
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176864/)
 
-#### 翻译/撰稿：文旺|校对：沙拉猫
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-35.png)图片来源：businessinsider.com
-普金悍然挥军入侵乌克兰至今已有20天，但在勇敢的泽伦斯基总统和坚强的乌克兰军民的顽强抵抗下，这场非正义的战争并非如普金预计的那样速战速决，而是变成了持久的消耗战，成了独裁者普京的一场噩梦。俄国侵略战争造成乌克兰无数城镇被毁，大量平民死亡，以及高达300万的难民，让世界绝大多数人民选择站在正义一边，支持乌克兰保家卫国的英勇战斗，西方各国也加大了对乌克兰的人道救助，军需支援，以及不得不对俄国采取更加严厉的制裁。在此背景下，俄罗斯最大的支持者中共国就成了世界关注的焦点，更让普京的靠山独裁者习近平陷入了不敢轻举妄动的境地。
+作者：新西兰伊甸农场-玫瑰
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+外媒15日报道，美国记者布伦特·雷诺在乌克兰首都附近报道难民故事时遇难。 50岁的雷诺是一位著名的电影制片人，他经常前往世界上一些最黑暗和最危险的角落拍摄纪录片。3月13日，在俄罗斯军队于基辅附近向他的车辆开火后遇难身亡。据悉，他正在为一份关于难民的报告收集材料。
 
-《华盛顿时报》（Washington Times）3月15日的报道称，习近平支持普京，但会遭到西方制裁的打击。报道援引分析人士说，中共国主要关心的不是战争造成的人道主义灾难，而是自己的利益。
+乌克兰总统泽连斯基3月15日在网上发表了一封写给雷诺家人的信，表达他的“衷心哀悼”。他称雷诺是一位“才华横溢、勇敢的记者”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-59.jpg)
+泽连斯基在信中说，“布伦特在记录数百万乌克兰人的人类悲剧、破坏和苦难时失去了生命。他带着所有的勇气和决心，前往最危险的战区，拍摄了侵略者对我们国家施加的前所未有的残酷和邪恶。”
 
-报道认为，俄罗斯和中共国原本期望俄军会迅速推进并接管乌克兰首都基辅，随后建立一个亲俄的傀儡政府，但期望尚未实现。战斗进行了近三周，乌克兰的主要城市都没有完全在俄罗斯的控制之下。美国中情局局长威廉·伯恩斯（William Burns）上周表示，中国共产党领导人在与俄罗斯的关系上已投入巨资，计划建立长久的伙伴关系。他告诉参议院情报特别委员会说，他确实相信习近平对所看到的情况感到不安，部分原因是中共自己的情报似乎没有告诉他到底将会发生什么，“我预计这种情况不会很快改变。”
+“乌克兰人民正在与俄罗斯政权作斗争，以保卫他们的家园和世界民主，他们与你们一起哀悼。”“我们感谢布伦特的专业精神和对同情、道德和正义价值观的承诺。”
 
-报道称，白宫国家安全顾问杰克·沙利文（Jake Sullivan）在周日接受CNN电视采访时表示，中俄似乎在入侵乌克兰计划方面进行了某种协调。他表示，“我们也密切关注中国在多大程度上确实向俄罗斯提供了何种形式的支持，包括物质或经济支持。” 周一，沙利文在罗马与中共高级官员杨洁篪会面了七个小时。在事先安排的一次会议中，他转达了拜登政府对中共国可能在乌克兰战争中为俄罗斯提供军事和经济支持的担忧。
+“愿布伦特的生命、服务和牺牲激励全世界几代人站出来为光明力量对抗黑暗力量而战。”
 
-报道指出，西方国家对俄国的一系列制裁有可能大范围削弱俄罗斯的工业和金融基础。沙利文表示，美国已通知中共国，“我们不会袖手旁观，不会允许任何国家赔偿俄罗斯因经济制裁造成的损失。”当被问及如果中共国帮助莫斯科规避美国和欧洲的制裁，是否会面临美国制裁时，他拒绝发表评论，但一位随行的政府高级官员向记者表示，沙利文直接向杨洁篪表达了美国的担忧以及采取某些行动的潜在影响和后果。报道指出，然而，中共下属的《人民日报》却援引杨洁篪对沙利文先生的话说，拜登总统为了缓解双边紧张局势，曾向习近平承诺，美国不寻求新冷战，也不会寻求新冷战，以改变中国的共产主义制度。
+参考链接：[The people of Ukraine are mourning with you’: Zelenskyy sends moving letter to family of slain US journalist](https://www.stuff.co.nz/world/europe/300541835/the-people-of-ukraine-are-mourning-with-you-zelenskyy-sends-moving-letter-to-family-of-slain-us-journalist)
 
-报道称，中情局长伯恩斯表示，中共国担心与莫斯科结盟以及默认并暗中支持普京对乌克兰的军事侵略，包括俄军袭击平民的战争行为， 会损害中共国的声誉。他说，习近平担心，中共国的经济虽然规模很大，但会因西方对俄罗斯的制裁而受到打击，加剧北京今年低于预期的经济增长率。对习近平的另一个挫折是，美国和欧洲以俄国入侵乌克兰之前难以想象的方式重新建立了亲密关系，并加强了跨大西洋联盟，使美欧在经济上联合起来惩罚俄罗斯。中共国与欧盟的双向贸易远大于和莫斯科的双边贸易，而且一直在寻找挑拨美国与其北约盟国关系的方法，试图将欧洲与美国分开，并单独与欧洲国家建立关系，以扩大其在欧洲大陆的影响力。当下这种美欧的团结让习近平感到不安。
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-报道最后引述伯恩斯的话说，普京侵略乌克兰唯一的成功之处，就是让中共国这种企图分裂美欧的可能性大大降低。
+总编：天滅中共
+编辑/审核:飞虹
+校对/发稿：Hetangyuese
 
-消息来源：[Chinese leader tested by Russian invasion of Ukraine](https://www.washingtontimes.com/news/2022/mar/15/chinese-leader-tested-russian-invasion-ukraine/)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

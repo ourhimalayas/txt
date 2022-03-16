@@ -2,37 +2,34 @@
 ---
 
 
-## HPay未来会成为我们的SWIFT
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176559/)
+## 隐形奥米炕BA2占美国病例的四分之一
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2176788/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月13日，郭先生在大直播中谈到，未来一旦共产党被国际SWIFT制裁，将会遍及海内外所有的中国人。彼时，国内老百姓的生活将会极度艰难，人民币会变成废纸。
+#### 选材/编译 ：Cran
 
-郭先生大力鼓励战友宣传推广HPay，因为HPay将会起到和SWIFT一样的作用，遍及全球，并且是秒到，点对点，安全隐私。HPay使用的人越来越多，可以买到的物资也会越多，对于国内被共产党波及的受到制裁的老百姓来说，有些不愿醒来的只就跟着共产党去了，而大部分老百姓要生活下去，HPay将是唯一的选择。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-50.jpg)
-郭先生常说希望共产党死就死，不要带走那么多人，光靠战友呐喊去唤醒，永远叫不醒那些装睡的人，胆小懦弱的人。同时他还提到未来喜币、躺平币都必须通过HPay使用流通。当中国人的钱不再受共产党控制的时候，很快共产党就没了。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16474609761.png)
+据美国周刊3月16日报道，新冠病毒的奥米炕（Omicron）变种称为BA2。根据美国疾病控制和预防中心（CDC）的估计，BA2占美国所有新序列病例的近四分之一。
 
-随着世界对数字货币的认知，尤其是俄罗斯对乌克兰的入侵，更加速了数字货币的市场增长，美国正以极快速度调整对数字货币的法律责任。这些毫无疑问都是人类进入数字货币时代的确准信号。
+根据CDC昨天公布的数据，预计在3月6日至12日期间，预计的BA2 在23.1%的新序例新冠病毒样本中被确认。在13.7%的样本中发现了BA2，这标志着与前一周相比有明显上升。而在这之前一周的7.1%样本中发现了BA2。
 
-而中国庞大的14亿人，将通过Hpay会和这个世界重新拥抱。
+如果目前的趋势继续下去。BA2正在赶超美国其他类型的奥米炕，包括BA1。到目前为止这基本是全球主导版本的类型。
 
-参考链接：[2022年3月13日 文贵大直播](https://gettr.com/post/pzu0el34d1)
+CDC的数据也显示了BA2在美国的高发地区。以及该变种出现的10个不同地区，每个地区都包括多个州。涉及BA2最多的第二区包括，新泽西、纽约、波多黎各和维尔京群岛，在那里，截至3月12日，在39%的样本中都发现了这种病毒。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+另一个高发区包括康涅狄格州、缅因州、马萨诸塞州、新罕布什尔州、罗德岛州和佛蒙特州。在那里的38.6%的样本中发现了此变异型。
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
+在所有其他地区，BA2感染率都低于30%。在第4地区的，阿拉巴马州、佛罗里达州、乔治亚州、肯塔基州、密西西比州、北卡罗来纳州、南卡罗来纳州和田纳西州——感染率低至12.4%。
 
-**更多资讯，更多关注**
+应该注意的是，上述数据基于即时预报模型，该模型提供了循环变异类型的预估。非预估数字通常在预估数据公布后的几周内提供。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+BA2病例在其他国家也在增加。3月11日英国卫生安全局（HSA）的数据显示，在2月27日至3月6日期间，68.6%的序列病例为BA2，有31.1%为BA1，这显示BA2占主导地位。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+BA2是奥米炕变体的一个亚型，已发现它的传播性高于先前占优势的BA1。BA2病例，在一些国家的报告中的比例上升后，成为今年正在进行的研究的主题。
+
+英国3月11日的HSA数据显示，感染BA2后住院的风险，似乎并不比BA1高。BA2的一个关键特征，是它再感染那些已经感染过BA1患者的能力。这意味着他们可以感染奥米炕两次。但迄今为止仍相对罕见。
+
+[Source](https://www.newsweek.com/ba-2-us-covid-prevalence-dominant-faster-spreading-hotspots-1688536)
 
  
 

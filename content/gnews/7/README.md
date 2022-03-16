@@ -2,55 +2,35 @@
 ---
 
 
-## 乌克兰的泽连斯基要求美国国会“保护我们的天空”对抗俄罗斯
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2176826/)
+## 韩国两大航空公司宣佈航线不再经由俄罗斯领空
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176863/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+韩国两大航空公司，大韩航空和韩亚航空15日宣布，停飞俄罗斯航线，同时，所有飞往欧美的航线也不再经由俄罗斯领空。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/E66Y6IXB55LC7CZKOUUAB2EY2M.jpg)
+虽然，俄罗斯政府并未禁止韩国航班在俄罗斯领空飞行，但出于安全考虑，两大航空公司还是决定绕飞。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-58.jpg)
+大韩航空在一份声明中表示，仁川至莫斯科以及符拉迪沃斯托克之间的航班，包括在莫斯科中途停留的航班全部暂停，同时，首尔往来伦敦等欧洲航线的航班将改道中国、哈萨克斯坦和土耳其等其他国家，而往来纽约等北美地区的航班则改道阿拉斯加和太平洋，预计单程将分别增加1～2小时左右的飞行时间。
 
+另外，有报道指，自俄罗斯入侵乌克兰，欧洲对俄罗斯关闭领空后，包括日本全美航空在内的各大航空公司都有计划改道欧亚航线。
 
-图片来源：路透社
+参考链接：[Korean Air to reroute flights that use Russian airspace](https://www.reuters.com/world/asia-pacific/korean-air-says-reroute-flights-that-used-russian-airspace-2022-03-15/)
 
-乌克兰总统泽连斯基周三在美国国会发表讲话，敦促美国立法者采取更多措施保护他的国家免受俄罗斯的入侵，并恳求乔·拜登总统成为世界“和平领袖”。
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-“俄罗斯已经把乌克兰的天空变成了成千上万人的死亡之源，”泽连斯基在一个视频演讲中说，演讲中间还播放了他的国家死亡和破坏的图形视频，最后呼吁“关闭乌克兰上空的天空”。
+总编/编辑/审核：天滅中共
+校对/发稿：Hetangyuese
 
-泽连斯基继续推动在乌克兰上空设立禁飞区，并要求提供飞机和防御系统，以应对俄罗斯上个月发动的引发难民潮的入侵。他还呼吁对俄罗斯实施更多经济制裁。
+**更多资讯，更多关注**
 
-泽连斯基通过翻译说，乌克兰正面临自二战以来欧洲从未经历过的恐怖，该国的命运正在决定之中。
-
-“我要求太多了吗？在乌克兰上空建立一个禁飞区来救人可以吗？这是否太多了？”泽连斯基在基辅的讲话中问道，基辅是一个每天都遭到袭击的首都，他说 “乌克兰不会放弃”。
-
-泽连斯基最后用英语直接向拜登恳求：“我希望你成为世界的领袖。成为世界的领袖就意味着成为和平的领袖。”
-
-他在发言前后受到了起立鼓掌。
-
-泽连斯基援引美国历史，要求立法者记住 1941 年日本轰炸夏威夷珍珠港、2001 年基地组织袭击美国以及民权领袖小马丁·路德·金 1963 年在华盛顿发表的“我有一个梦想”演讲。
-
-“我有一个梦想。今天你们每个人都知道这些话。我可以说：我有需要。我需要保护我们的天空，”泽伦斯基说。
-
-民主党和共和党议员在演讲后表示，他们准备通过压制俄罗斯、提供包括飞机在内的更多军事援助和收紧全球人权法，迅速为乌克兰做更多事情。但他们再次拒绝设立禁飞区，称与拥有核武器的俄罗斯发生更广泛战争的风险太大。
-
-拜登和北约也反对设立禁飞区。白宫不支持帮助将俄罗斯制造的米格战机转移到乌克兰的提议，尽管这一想法在国会得到了一些支持——尤其是在反对派共和党人中。
-
-泽连斯基说，乌克兰感谢美国的压倒性支持，感谢拜登“亲自参与，真诚地致力于保卫乌克兰和全世界的民主”。
-
-“在我们国家，整个欧洲是最黑暗的时刻，我呼吁你们做更多，”泽伦斯基补充到。
-
-拜登周二签署了向乌克兰提供136亿美元紧急援助的法律，以帮助其获得更多武器和人道主义援助。他此前宣布禁止俄罗斯能源进口，并呼吁暂停降低俄罗斯出口关税的贸易地位。预计众议院最快将于本周投票暂停该地位。
-
-周二，泽连斯基在向外国听众发表演讲时寻求支持他的国家，他向加拿大议会请求设立禁飞区，并要求西方对俄罗斯实施更多制裁。他本月向英国和欧洲议会发出了类似的呼吁。
-
-美国众议院议长南希佩洛西向他介绍了乌克兰语，意思是“乌克兰的荣耀”。在他的发言结束时，泽连斯基挥了挥手，把手放在胸前表示感谢。
-
-支持乌克兰是一个罕见的例子，共和党人和拜登的民主党同僚在严重分裂的国会中结盟。
-
-🔗[https://www.reuters.com/world/ukraine-president-zelenskiy-seek-more-help-speech-us-congress-2022-03-16/](https://www.reuters.com/world/ukraine-president-zelenskiy-seek-more-help-speech-us-congress-2022-03-16/)
-
-编辑发表： Shuizhuyu
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

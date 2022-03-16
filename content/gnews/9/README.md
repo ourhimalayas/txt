@@ -2,32 +2,37 @@
 ---
 
 
-## 在新闻直播中呼吁反战的女子获释 俄法院判决罚款3万卢布
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2176761/)
+## 西班牙扣押普京盟友的豪华游艇
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176861/)
 
-翻译：zicoround
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+外媒15日消息，西班牙首相桑切斯14日在电视节目中确认，当局在巴塞罗那暂时扣押了俄罗斯富豪一艘价值1亿4000万美元的游艇，并承诺还会有更多针对俄罗斯寡头的行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-68.jpg)图片来源：AFPBB News
+有报道引述消息人士指出，这艘85公尺的超级豪华游艇的主人是俄罗斯总统普京的盟友，切梅佐夫，他曾是前苏联国家安全委员会官员，现在是俄罗斯国家技术集团的负责人。另外还有两位尚未被列入制裁名单的俄罗斯寡头的游艇，目前也停靠在巴塞罗那。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-56.jpg)
+切梅佐夫在2014年和2020年分别因俄罗斯吞并克里米亚而受到美国和英国的制裁，本月又再一次被美国和澳洲列入制裁名单。不仅如此，美国这次还将切梅佐夫的继女，以及他的妻子和儿子一同纳入制裁范围。
 
-此前闯入直播中的热门新闻节目，抗议俄罗斯入侵乌克兰的俄罗斯政府电视台一名女总监于15日被莫斯科法院判决支付3万卢布（约3万3千日元）的罚款后予以释放。
+根据一位政府消息人士的说法，在西班牙当局确认所有权以及核对制裁对象名单之前，这艘游艇将继续被扣押。
 
-14日晚，“第一频道”的总监玛琳娜·奥夫沙尼科娃手持写有“反对战争”的标语牌，打断了该台在俄收视率最高的夜间新闻节目。 她被指控呼吁非法抗议活动罪，可能被判处最长10天的拘留。
+这是继各国对俄罗斯实施制裁以来，第一宗经确认的俄罗斯公民在西班牙被扣押财产的事件。自俄罗斯2月24日对乌克兰展开军事行动以来，西方已经制裁了俄罗斯多名亿万富翁，冻结了俄罗斯国家资产，并切断了大部分俄罗斯企业与全球经济的联系。
 
-该指控不是因为扰乱直播，而是因为通过视频发布了一个呼吁俄罗斯人参加反战抗议的信息。 就在最近，该国通过了一项新法律，旨在打击发布有关俄军 “虚假信息”的媒体工作者。 辩护律师告诉法新社，奥夫沙尼科娃女士今后可能会根据该法而被追诉，并面临最高15年的监禁。
+参考链接：[Spain seizes Russian oligarch’s yacht in Barcelona](https://www.reuters.com/world/europe/spain-seizes-russian-oligarchs-yacht-barcelona-2022-03-14/)
 
-出庭时，奥夫沙尼科娃女士并不认罪，并陈述“我至今确信俄罗斯是有罪的”。判决后，她告诉记者，“实际上已经两天没合眼”，透露出她被审讯了14个小时以上。
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-**参考资料：**[news.goo.ne.jp][TVで反戦訴えた女性釈放 ロシア裁判所、罰金3万円科す](https://news.goo.ne.jp/article/afpbb/world/afpbb-3395214.html)
+总编/编辑/审核：天滅中共
+校对/发稿：Hetangyuese
 
-请阅读相关文章：[俄罗斯政府电视台的直播中突然“反对战争” 总监被捕](https://gnews.org/zh-hans/2170307/)
+**更多资讯，更多关注**
 
-* * *
-
-*审核：BryanW*
-*校对：宫米叶*
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

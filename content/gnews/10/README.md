@@ -2,25 +2,28 @@
 ---
 
 
-## 新中国联邦人乌克兰救援在行动
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176566/)
+## 乌克兰总统顾问预计战争最快5月结束
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176860/)
 
-作者：纽约香草山-Noemi
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月14日，新中国联邦和法治基金的乌克兰救援活动仍在继续,该活动目前已成功营救了包括中国留学生在内的100多名中国人和350多名乌克兰、美国以及其他国籍人士，并从孤儿院救出100名儿童，受到了多国媒体的高度赞扬。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-54.jpg)
-在近两日中，亦有多家欧洲媒体都对参与救援活动的一线战友进行了采访与报道，其中就包括意大利电视台、波兰最大报纸、阿拉伯电视台、波斯尼亚和黑塞哥维那电视台等多个国家官方媒体。其中，一位意大利的记者曾直接向战友发问称，你们是代表中国人的吗？被采访战友则坚定地如是回答，我们是要灭掉共产党的新中国人，我们只为救人而来。
+外媒15日报道，乌克兰总统军事顾问阿列斯托维奇14日晚间表示，俄罗斯可能会在5月初因耗尽战备物资而终止对乌克兰的侵略行为。
 
-日前，还有前线战友发回消息称，由法治基金、新中国联邦在梅蒂亚建立起的盘古七星级大帐篷，已经从难民营升级成为一个充满爱心的国际俱乐部了。而由郭先生亲自命名的NFSC咖啡则受到了各国记者的一致好评。
+虽然阿列斯托维奇并未直接参与俄乌之间的谈判事宜，但根据他的说法，俄罗斯确切停止攻打乌克兰的时间点，主要取决于俄罗斯还能为战事投入多少资源。即便两国达成和平协议，在俄罗斯同意完全撤出乌克兰的情况下，小规模的战略冲突仍可能会持续一年。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-55.jpg)
+乌克兰武装部队早前表示，自 2 月 24 日以来，已有12,000 多名俄罗斯士兵丧生。
+
+美国方面也有情报显示，保守估计已有大约6,000名俄军，相当于8个营级战斗群兵力阵亡，显示俄军伤亡确实十分惨重。
+
+另外，英国国防部的每日更新情报也指出，俄罗斯入侵乌克兰的战争已经进入第四个星期，但俄军进攻基辅的战线依然未取得明显进展。俄军集结基辅西北部连绵数十公里的大车队，在过去一个星期始终停滞不前，反而乌克兰这边持续性的突袭给他们带来了巨大影响，这意味着物资补给、军队士气等问题仍然困扰着俄军。
 
 参考链接：
-1. “&gt;新中国联邦和法治基金乌克兰救援行动
-2. [我们是消灭邪恶的中国共产党的新中国人](https://gnews.org/zh-hans/2158878/)
-3. &lt;a href="https://法治基金新中国联邦在梅蒂亚的盘古七星级大帐篷已经从难民营变成一个汇聚全球爱心的国际俱乐部
+1. [War could be over by May, says Ukrainian presidential adviser](https://www.reuters.com/world/europe/war-could-be-over-by-may-says-ukrainian-presidential-adviser-2022-03-15/)
+2. [Russia-Ukraine war: early morning strikes hit Kyiv hours before peace talks](https://www.theguardian.com/world/2022/mar/15/russia-ukraine-war-fresh-blasts-in-kyiv-as-zelenskiy-says-ceasefire-talks-will-resume)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-总编/编辑/审核：DM
+总编/编辑/审核：天滅中共
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -30,7 +33,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  

@@ -2,35 +2,32 @@
 ---
 
 
-## 郭先生解析Swift系统的意义
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176558/)
+## 在新闻直播中呼吁反战的女子获释 俄法院判决罚款3万卢布
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2176761/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月13日，郭先生在大直播中揭示，SWIFT系统就等同于金融领域的地球村，被踢出此系统就是被踢出了地球村。
+翻译：zicoround
 
-郭先生解释道，SWIFT系统并非由一个国家定义，而是大部分文明国家遵照二战后的国际秩序所建立的系统。加入SWIFT，就有了使用各类设施的资格证。相反，是否将某国踢出该系统，需要很多国家一致做出决定。因此，被踢出SWIFT系统就意味着被踢出了地球村，全球的财产都将被没收。至今为止，被剔除出该系统的国家，都是专制独裁并且对人类尤其是本国人民造成伤害的政权。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-49.jpg)
-郭先生还指出，目前中共帮俄罗斯绕道进入国际结算系统的行为，已经触犯了SWIFT的规定，国际社会一定也会将中共剔除出此系统。这就将造成墙内老百姓如现在俄罗斯民众一样，被限制行动、贸易交易以及文明交流的范围。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-68.jpg)图片来源：AFPBB News
 
-郭先生最后强调，只要是中国人就很难免受SWIFT制裁带来的影响。而唯一能让中国人免受制裁的，就是加入爆料革命新中国联邦，参与灭共事业，参与G系列投资。唯一能让中国人安全的，就是成为灭共的新中国联邦人。
+此前闯入直播中的热门新闻节目，抗议俄罗斯入侵乌克兰的俄罗斯政府电视台一名女总监于15日被莫斯科法院判决支付3万卢布（约3万3千日元）的罚款后予以释放。
 
-参考链接：[**2022年3月13日 文贵大直播：若西方对中共经济制裁，那将是多少钱什么情况；爆料革命警告中东事端；刘 傅 孙 吴 杨 王 孟 张 胡 单**](https://www.gettr.com/streaming/pzrn4eb349)
+14日晚，“第一频道”的总监玛琳娜·奥夫沙尼科娃手持写有“反对战争”的标语牌，打断了该台在俄收视率最高的夜间新闻节目。 她被指控呼吁非法抗议活动罪，可能被判处最长10天的拘留。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+该指控不是因为扰乱直播，而是因为通过视频发布了一个呼吁俄罗斯人参加反战抗议的信息。 就在最近，该国通过了一项新法律，旨在打击发布有关俄军 “虚假信息”的媒体工作者。 辩护律师告诉法新社，奥夫沙尼科娃女士今后可能会根据该法而被追诉，并面临最高15年的监禁。
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
+出庭时，奥夫沙尼科娃女士并不认罪，并陈述“我至今确信俄罗斯是有罪的”。判决后，她告诉记者，“实际上已经两天没合眼”，透露出她被审讯了14个小时以上。
 
-**更多资讯，更多关注**
+**参考资料：**[news.goo.ne.jp][TVで反戦訴えた女性釈放 ロシア裁判所、罰金3万円科す](https://news.goo.ne.jp/article/afpbb/world/afpbb-3395214.html)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+请阅读相关文章：[俄罗斯政府电视台的直播中突然“反对战争” 总监被捕](https://gnews.org/zh-hans/2170307/)
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+* * *
+
+*审核：BryanW*
+*校对：宫米叶*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
 
  
 
