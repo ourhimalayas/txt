@@ -2,34 +2,43 @@
 ---
 
 
-## 中日财经爆┃日本政府将去除俄罗斯 &#8220;最惠国待遇&#8221;
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2173602/)
+## 台湾与大陆军队差距相当于爆料革命创始人与普通战友比
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2173698/)
 
-撰稿：东京樱花团/百花李香
+Youtube视频链接：[https://youtu.be/9rg1tSj-1k8](https://youtu.be/9rg1tSj-1k8)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/日本政府将去除俄罗斯最惠国待遇.png)[图片来源](https://gnews.org/wp-admin/post-new.php#:~:text=Ukraine%20crisis%3A%20Tough,Katya%20Adler)
+Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
-作为追加制裁，在七国集团（G7）已提出将俄罗斯从低关税的优惠措施“最惠国待遇”中移除之后，日本政府于15日也决定对俄实施相应的措施。随着对螃蟹和海胆等俄罗斯海产品征收关税的政策，相关的修正法案也将提交给本届国会以便获得通过。
+**郭文贵先生：**讲到台湾，还有整个俄乌战争，提到两件问题：台湾二十几万的现役军人、二十几万的预备役，将近五十万的军人，那是专业军人。你不要看这个，台湾的整个军人的专业程度和大陆是怎么比呢？我跟台湾那些老将军、那些老不要脸的接触过无数次，大陆的这些我就更清楚了，是吧？相当于什么概念？
 
-最惠国待遇是一国给予所有成员国的最优惠待遇，对所有成员国一视同仁，如优惠关税税率等，是世界贸易组织（WTO）平等对待成员国的基本原则之一。俄罗斯于2012年加入了世贸组织，日本对来自俄罗斯的进口商品适用与其它加盟国成员相同的关税税率。
+咱们大家，咱们现在5个人在这边同步直播。爆料革命，我说爆料革命，卡丽熙谈爆料革命、千羽你谈，Karen、好好你都谈爆料革命。在战友眼里边，谁是爆料革命专家？肯定是七哥。第二就是卡丽熙，战友们然后会觉得千羽、Karen、好好你们论着往下排，对吧？那么，台湾和大陆的军事比较是什么概念？我告诉你们，就是七哥和好好先生来比，谈爆料革命这样的差距。不管你好好先生你多有激情，还是你再次被欺骗，你怎么谈爆料革命，都跟七哥不是这个级别的，为什么？我是创始人。
 
-此前3月11日，七国集团领导人宣布了他们的政策，作为额外制裁，取消对俄罗斯的最惠国待遇。同一天，美国总统拜登宣布撤销优惠关税税率。加拿大已经表示，对来自俄罗斯的进口产品将征收35%的高关税。
+编辑整理：Jacques；
 
-日本与美国和欧洲一致，也打算取消俄罗斯的优惠关税税率。另外，不会像加拿大那样引入额外的高关税。
+字幕文件制作：小满；
 
-如果被排除在优惠关税率之外，俄罗斯螃蟹的关税率将从4%提高到6%，海胆从7%提高到10%，三文鱼和其它产品从3.5%提高到5%。此外，从俄罗斯进口的主要进口商品液化天然气（LNG）和煤炭的关税税率在优惠待遇之前就已经为零。据政府部门官员称，总体而言，很难预见出现大规模的制裁效果。
+视频制作及上传：Cindy；
 
-为此，政府也在考虑对海产品和其它产品的进口实行 “禁运”。但如果进口停止，餐桌上的影响将是不可避免的，所以政府将继续根据情况进行评估。
+G-News发布：小满；
 
-据相关贸易政策人士表示，这是一个将俄罗斯排除在全球贸易制度之外的意向声明，具有重大的政治意义。然而，面对汇率波动等其它因素，单纯改变关税税率的制裁效果不大，对某些产品实施禁运也是可能的。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-图片：
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-信息源：[カニやウニ…食卓に影響も　日本政府、「最恵国待遇」ロシア排除へ](text=%E3)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

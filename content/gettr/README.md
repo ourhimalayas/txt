@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 8:51 AM (UTC)`
+
+3/15/2022 Miles Guo: Since the CCP has not invaded Taiwan, the third gate of taking down the CCP has not been completely opened. The CCP virus is rampant in Hong Kong and the combination of the previous variants and Omicron has emerged. Outbreaks of the virus in places like Jilin province indicate that the pandemic is out of the CCP’s control. The “Zero COVID” policy is a political fraud, which will lead to humanitarian disasters.<br/><br/>3/15/2022 文贵直播: 中共未对台开战，尚不能说灭共的第三道大门已经彻底打开；香港病毒肆虐，出现老病毒和奥米炕的混合体；吉林等地病毒大爆发说明中共疫情已失控，清零政策就是政治欺骗，从而导致人道灾难<br/>
+![img](https://media.gettr.com/group41/getter/2022/03/16/08/4b622fa8-9e4c-461f-876c-aca842cff18a/out.jpg)
+
+---
+
 `@miles 3/16/2022 7:22 AM (UTC)`
 
 《灭共的雪》摇滚版即将发布打榜，请预定郭文贵先生最新歌曲！<br/><br/>“The Terminator Snow” Rock version coming soon， pre-save Miles Guo’s new release now!<br/><br/>预定链接 Pre-save link：<br/>https://gyro.to/TheTerminatorSnow
@@ -151,13 +158,6 @@ Recently, the Chinese Communist Party (CCP) shamelessly lied，to the public tha
 
 3/15/2022 Miles Guo：Han Zheng ordered the arrest of the Vice Minister Ma Jian because Ma Jian investigated and seized the secrets of Han’s illegitimate children and illegal assets; Han Zheng told his crony that the start of Russian invasion of Ukraine heralded the demise of the CCP, because Xi would follow Putin’s path and attack Taiwan<br/><br/>3/15/2022 文贵直播：韩正主使抓捕马建副部长因为马建调查并掌握了韩私生子女和非法财产的秘密；韩正告诉亲信，俄乌战争开打预示中共的灭亡，因为习会攻打台湾，走上普京的不归路<br/>
 ![img](https://media.gettr.com/group32/getter/2022/03/15/21/b62e9f6e-33df-60a8-609f-3bc206913da6/out.jpg)
-
----
-
-`@miles 3/15/2022 9:51 PM (UTC)`
-
-3/15/2022 Miles Guo: Han Zheng sneaked back to Shanghai disregarding the Pandemic restriction rule in Beijing, where did he go? After Pangu’s dragon head turned into turtle head, ‘Guo Wengui’s name became a taboo in the CCP and made Han Zheng shudder<br/><br/>3/15/2022 文贵直播：韩正竟然冲破禁止出京的限制偷偷潜回上海，他去干嘛了？“郭文贵”三个字对中共的震慑力太大了，竟然能把韩正从椅子上震起来，看来龙头改龟头，阳气上升了<br/>
-![img](https://media.gettr.com/group44/getter/2022/03/15/21/c6dabc2a-e9f6-b668-3d00-c0108540e057/out.jpg)
 
 ---
 

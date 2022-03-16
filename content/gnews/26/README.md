@@ -2,32 +2,59 @@
 ---
 
 
-## 法治基金救援帐篷附近出现疑似中共卧底
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2172787/)
+## 澳州人权专员抨击扩大卫生官的应急权限
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2172824/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+***评论：**知名官员站出来抨击政府过度干预及过度反应，这会鼓舞那些有同样想法但害怕发表评论的人。强制接种疫苗永远践踏人权，我们需要有作为的人权监督机构。*
 
-整理/编辑：小红帽
+据《天空新闻》作者：Crystal Wu， 2022年3月14日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1752-e1647409412195.png)图片来源：《天空新闻》
+昆士兰州人权专员斯科特·麦克杜格尔（Scott McDougall）认为，COVID-19流行病的法律“不再适用”，因为限制措施对心理健康的影响超过了公共卫生的风险。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-16_13-14-42.png)图片来源：郭文贵先生盖特视频截图
+昆士兰州政府扩大首席卫生官应急权限的举动，遭到该州人权专员的猛烈抨击。
+
+昆士兰州人权专员斯科特·麦克杜格尔（Scott McDougall）将出席议会听证会，称是时候结束当前的流行病法律了。
+
+麦克杜格尔先生坚持认为，该州的流行病法律“不再适用”，其中包括赋予首席人事官（CHO）限制行动和拘留隔离人员的权力。
+
+麦克杜格尔先生说，大流行限制措施对人们心理健康的影响，远远超过了大流行对公共卫生的风险。
+
+“作为一个社区群体，我们已经了解到隔离条件对人们心理健康的影响、将人们限制在家中的公共卫生指示以及强制接种疫苗所带来的人权限制，”他在提交给委员会的一份12页文件中说到。
+
+“如果没有适当的监督、透明度和外部审查，就无法继续施加如此重大的人权限制的权力。否则，它们与人权的兼容性就存在问题。”
+
+“委员会建议不要继续执行该法案，而是用全面的、与人权兼容的流行病立法来取代。”
+
+该法案会继续将原定于2022年4月30日到期的《公共卫生法》临时修正案延长至2022年10月31日。
+
+该法案的扩大修正案，包括：
+
+- 根据该法案增加两个关键决策者的权力：首席卫生官 (CHO)——他可能会采取行动应对昆士兰州COVID-19的传播，包括发布公共卫生指示，要求保持身体距离、限制行动和集会，要求人们隔离或自我隔离，并采取其他遏制病毒传播措施；
+- 应急人员——他们也可能采取相关行动，特别是针对个人，包括发布拘留令；
+- 授权共享机密信息以进行接触者追踪；
+- 通过对违规行为进行适当处罚，鼓励遵守隔离检疫要求和其他公共卫生指示；
+- 增加法规可延长宣布突发公共卫生事件的期限，从7天延长至90天；
+- 允许对在政府安排住宿中的强制隔离人员的相关费用收费；
+- 保护为了追踪COVID-19病毒传播而收集的个人信息。
 
 
-3月15日，在波兰的梅迪卡难民援救中心，两个形迹可疑的华人面孔出现中国联邦和法治基金救援帐篷附近。他们慌张的神色令人不禁怀疑：这些人是否由中国共产党主使，企图对新中国联邦及法治基金的乌克兰救援行动进行骚扰和破坏。
+文章来源：[https://www.skynews.com.au/australia-news/coronavirus/queensland-human-rights-commissioner-slams-plan-to-extend-chief-health-officers-covid19-emergency-powers/news-story/f521a66f99f767a3d3d6e32e0b18aebf](https://www.skynews.com.au/australia-news/coronavirus/queensland-human-rights-commissioner-slams-plan-to-extend-chief-health-officers-covid19-emergency-powers/news-story/f521a66f99f767a3d3d6e32e0b18aebf)
 
-从视频可见，这两个可疑的华人，在被新中国联邦志愿者的镜头捕捉后，慌忙离开，并不时回头看往法治基金帐篷这边。
+翻译：洛杉矶盘古农场 – maru
 
-以下是现场可疑华人的照片：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-16_13-14-54.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-16_13-15-20.png)
-资料来源：[郭文贵先生2022年3月16日盖特视频](https://www.gettr.com/post/p1068wl7319)
+校对：洛杉矶盘古农场 – Mike Li
 
-发布：tianzhihuan
+评论：洛杉矶盘古农场 – maru
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 –子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
