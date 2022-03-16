@@ -2,26 +2,27 @@
 ---
 
 
-## 中日财经爆|欧盟禁止标普、穆迪和惠誉对俄罗斯以及其企业进行评级
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2173499/)
+## 新中国联邦已从乌克兰战区累计救出1434人
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2173620/)
 
-撰稿：东京樱花团/peterwong
+**撰稿：新中国联邦  幽蘭自得**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/欧盟禁止标普、穆迪和惠誉对俄罗斯以及其企业进行评级.png)[图片来源](https://www.google.co.jp/imgres?imgurl=http%3A%2F%2Fimage.yjcf360.com%2Fu%2Fcms%2Fwww%2F201908%2F011404117hif.png&amp;imgrefurl=http%3A%2F%2Fwww.yjcf360.com%2Fgushifocus%2F623852.htm&amp;tbnid=0Ux9o0kRZDCAzM&amp;vet=12ahUKEwiFl567hcr2AhXIz4sBHYUwBZQQMygTegUIARCnAQ..i&amp;docid=zVGiM12-lZmmRM&amp;w=454&amp;h=313&amp;q=%E6%A0%87%E6%99%AE%E3%80%81%E7%A9%86%E8%BF%AA%E5%92%8C%E6%83%A0%E8%AA%89%E4%B8%89%E5%A4%A7%E8%AF%84%E7%BA%A7%E6%9C%BA%E6%9E%84&amp;ved=2ahUKEwiFl567hcr2AhXIz4sBHYUwBZQQMygTegUIARCnAQ)
+3月16日，据新中国联邦的前线报导，截至目前，新中国联邦的乌克兰人道救援行动，已从乌克兰战区安全救出1434人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-178.jpg)（图片来自GETTR）
+据了解，新中国联邦法制基金、法治社会发起的乌克兰人道救援，截至目前，已从乌克兰战区救出1434人，救援大巴发车次数达29次，并且没有发生任何安全事故。
 
-欧盟执委会周二（3月15日）表示，作为其最新制裁方案的一部分，欧盟已禁止顶级信用评级公司对俄罗斯以及其公司进行评级。
+此外，由于中共对仍滞留在乌克兰战区的华人不管不顾，新中国联邦决定，在国际专业安保人员的护卫下，携带追踪仪，驱车到乌克兰境内营救中国同胞以及乌克兰的妇女和儿童。
 
-欧盟执委会在一份声明中说，“这些制裁措施将进一步加大对克里姆林宫的经济施压，并削弱其为入侵乌克兰筹集资金的能力”，并称这套措施是“与国际伙伴、特别是与美国协调进行的”。
+目前，该计划正在紧锣密鼓的筹备中。
 
-全球三大评级机构标普全球、穆迪和惠誉如果藐视这一禁令，则将面临在欧盟失去运营许可的风险。
+参考链接：
+1.[https://www.gettr.com/streaming/p10a3807db6](https://www.gettr.com/streaming/p10a3807db6)
+2.[https://www.gettr.com/streaming/p1051m93814](https://www.gettr.com/streaming/p1051m93814)
 
-该三家机构均已撤销或暂停遭受美国财政部海外资产控制办公室(OFAC)最严厉制裁的一批俄罗斯公司提供企业评级服务，但周二的举措从表面上看会迫使这些机构放弃对更多该国公司的评级。
+撰稿：幽蘭自得
+总编：老孙
+校对发布：爱放飞
 
-消息来源：[欧盟宣布禁止顶级信用评级机构对俄罗斯与俄企进行评级](https://cn.reuters.com/article/eu-bans-rating-russian-0315-firms-tues-idCNKCS2LD037?il=0)
-
-*编辑：东京樱花团/逢⑦必变
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
