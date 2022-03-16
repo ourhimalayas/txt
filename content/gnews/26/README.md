@@ -2,22 +2,32 @@
 ---
 
 
-## 乌总统泽伦斯基希望连线日本国会并发表“抗议俄入侵演说”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170892/)
+## 今日盖特大V推荐 — 自由医疗（Freedom Medical）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2171106/)
 
-撰稿：东京樱花团｜haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1687.png)[*图片来源*](https://images-ext-2.discordapp.net/external/T9lfc2YyFA8KId9nDVh6ZkuUJbFtgWKr8h94QiTtB2Q/%3Fexp%3D10800/https/newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220315-07728496-nnn-000-4-thumb.jpg)
-据悉，乌克兰总统泽伦斯基向日本政府提议：在日本国会发表抗议俄罗斯的在线演讲。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/a8o6s-atvfz-2.jpg)
+***盖特链接***：[https://gettr.com/user/MedicalFreedom](https://gettr.com/user/MedicalFreedom)
 
-据多位日本政府官员和执政党人士透露，网上演讲是通过乌克兰大使馆到日本政府探讨的。泽伦斯基总统已经在英国议会进行了视频演讲，预计日本国会也会对俄罗斯的侵略表示强烈抗议。
+**医疗自由自述：**
 
-但是据相关人士透露，日本国会会议上还没有进行过网上演讲的先例，因此政府将慎重考虑。
+自由医疗 (FMA) 是一个由医疗专业人员组成的组织，联合起来保护您的宪法医疗权利并让您夺回您的健康。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/vyy.jpg)图片来源：网络
+**自由医疗简介：**
 
-信息来源：[**ウクライナ・ゼレンスキー大統領  日本の国会で“ロシアに抗議の演説”打診**](https://news.yahoo.co.jp/articles/78e8070848df4ed5a61200f849d8c6290187dd5b)
+自由医疗(Freedom Medical， www.freedommed.org) 是一个私人医疗保健系统，于2022年3月3日由大胡子泽连科等医生(Dr.Vladimir Zelenko) 医生创立。旨在将患者的健康和福利置于制药公司的利润和愿望之上，建立一种患者和医生之间的医疗保健关系，这是以患者为中心的医疗保健，基于个体患者的需求，摆脱大型制药公司和大型政府卫生官僚机构的权力控制和腐败，重新恢复对医患关系的信心。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+通过每月99美元会员费，自由医疗将全国各地的美国人与世界一流的医生网络联系起来，他们将把患者的健康——而不是大型制药公司的利益——作为他们的首要任务。
+
+低成本每月订阅模式可提供终极的健康保护和护理——不受政府干预。
+
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+校审：洛杉矶盘古农场 —心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

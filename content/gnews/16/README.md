@@ -2,13 +2,13 @@
 ---
 
 
-## 沙特考虑部分对中共国出口石油以人民币结算
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2171311/)
+## 多家媒体报道俄罗斯要求中共国向其提供武器
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2171459/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220316-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
+03/14/2022 多家媒体报道俄罗斯要求中共国向其提供武器。虽然中方还未对此回应，它确实引发了中共国武器进入乌克兰的担心，这最终将升级这场冲突。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

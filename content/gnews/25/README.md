@@ -2,26 +2,87 @@
 ---
 
 
-## 中共国每年有2381.2万件消费投诉事件
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170903/)
+## 制裁针对俄罗斯寡头的游艇
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2171152/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-76.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.caixin.com%2F2017-03-15%2F1489575465929654.jpg&amp;imgrefurl=https%3A%2F%2Fdatanews.caixin.com%2Fm%2F2017-03-15%2F101066373.html&amp;tbnid=JPDHTOdfEf4UHM&amp;vet=12ahUKEwiai_CYz8j2AhVK0uAKHfrhAGcQMygIegUIARCaAQ..i&amp;docid=gcjVTTfc1Yy31M&amp;w=480&amp;h=320&amp;itg=1&amp;q=3.15%E6%8A%95%E8%AF%89&amp;ved=2ahUKEwiai_CYz8j2AhVK0uAKHfrhAGcQMygIegUIARCaAQ)
-3月15日每经经济报道，去年，通过全国12315平台等渠道共受理消费者投诉举报咨询2381.2
+The Port of Trieste, sees the ship known as sailing yacht A
+的里雅斯特港，看到被称为航行游艇A的帆船
 
-万件，为消费者挽回经济损失55.5亿元，同比增长26%。通过构建有群众参与的全局性、动态性评价体系，调解成功率提高30.9个百分点，投诉举报处理时长缩短15.41天，消费维权效能明显提升，已推动8.7万家重点企业入驻全国12315平台。
+worth about 578 million belonging to Andrey Melnichenko
+它的价值约5.78亿，属于安德烈·梅尔尼琴科
 
-中共新闻统计在不经意间透漏出了中共国假丑骗的经济市场，每年投诉举报2381.2万件，为消费者挽回损失55.5亿元，中共以此为光荣事件，从来不去考虑源头的问题，为何有这么多投诉？
+He owns a fertilizer producer and coal company
+他拥有一家化肥生产商和煤炭公司
 
-中共把消费者当做牛羊一般任人屠宰，中国人每天都在假丑骗中度过，只有消灭共产党才可以解救国人。
+This follow the impounding of Lady M that’s owned by Alexei Mordashov
+这是在扣押阿列克谢·莫尔达绍夫拥有的 Lady M 之后发生的
 
-消息来源：
+So called richest man in Russia
+这个被称为俄罗斯的首富
 
-[【2021年全国12315平台挽回消费者损失超55亿元】](https://ml.mbd.baidu.com/r/CRDAzsEl8s?f=cp&amp;rs=2054748433&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=5b73362f459212bb&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+and Lena belonging to Gennady Timchenko, who controls an oil exporting com-pany
+和属于根纳季·蒂姆琴科的莉娜，他控制着一家石油出口公司
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+French officials sees the $120 million Amore Velo, claiming it’s owned by Igor Sechin
+法国官员看到价值 1.2 亿美元的爱茉莉维洛，声称它由伊戈尔·谢钦所有
+
+That’s the head of the Russian state owned Oil Company Rosneft
+那是俄罗斯国有石油公司Rosneft的负责人
+
+Other oligarchs are trying to prevent this from happening
+其他寡头正试图阻止这种情况发生
+
+after it left port in Montenegro on March the second
+在它于 3 月 2 日离开黑山港口后
+
+the GALACTICA SUPER NOVA owned by Lukoil CEO Vagit Alekperov
+卢克石油公司首席执行官瓦吉特·阿列克佩罗夫拥有的银河超级新星
+
+turned off automatic tracking systems which is against the law for a ship of its size
+关闭了自动跟踪系统，这对这样大小的船只来说是违法的
+
+After Britain’s sanction Roman Abramovich
+在英国制裁正在出售他在足球俱乐部
+
+the billionaire who’s selling his stake in the football club Chelsea
+切尔西的股份的亿万富翁罗曼·阿布拉莫维奇之后
+
+his two super yachts began moving
+他的两艘超级游艇开始移动
+
+reportedly to reach countries without formal extradition agreements
+据报道，到达没有正式签署引渡协议的国家
+
+His Eclipse is the world’s second largest such boat
+他的 Eclipse 是世界上第二大此类的船
+
+It’s got its own missile defense system
+它有自己的导弹防御系统
+
+A mini submarine is well after recent renovations, it’s estimated value is $1 billion
+一艘迷你潜艇经过最近的翻新，估计价值 10 亿美元
+
+**原视频链接**:[https://twitter.com/ben94548078/status/1503119680277561347?s=24](https://twitter.com/ben94548078/status/1503119680277561347?s=24)
+
+Date:03/14/2022
+原视频标题:Sanctions take aim at Russian oligarchs’ yachts
+制裁针对俄罗斯寡头的游艇
+原视频日期：2022/03/14
+原视频链接https://twitter.com/ben94548078/status/1503119680277561347?s=24
+任务编号：KE453（4006）
+视频时间段 : 0:00-1:15
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

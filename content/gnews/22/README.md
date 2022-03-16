@@ -2,86 +2,32 @@
 ---
 
 
-## 制裁针对俄罗斯寡头的游艇
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2171152/)
+## 韩正瞒习秘回上海，韩立平称历史上都是“皇帝”的身体决定着乾坤
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2171260/)
 
-The Port of Trieste, sees the ship known as sailing yacht A
-的里雅斯特港，看到被称为航行游艇A的帆船
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-worth about 578 million belonging to Andrey Melnichenko
-它的价值约5.78亿，属于安德烈·梅尔尼琴科
+3月15日，郭文贵先生于Gettr大直播中连爆大料，常委韩正秘密出行回上海与友人谈话透露几个中共关键问题，并表示，总书记习近平贴身秘书称目前中共最大的危机是历史上都是“皇帝”的身体决定着乾坤。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/a-59-890x608-1.png)图片来源Getty Images
 
-He owns a fertilizer producer and coal company
-他拥有一家化肥生产商和煤炭公司
 
-This follow the impounding of Lady M that’s owned by Alexei Mordashov
-这是在扣押阿列克谢·莫尔达绍夫拥有的 Lady M 之后发生的
+其实，现在领导人出京是不被允许的。韩正突破中南海的病毒隔离政策限制，冒着巨大潜在感染新冠病毒的风险，打着看望母亲为名乔装打扮，瞒过习近平坐上火车偷偷地出京回上海。据悉，韩正是孟建柱、孙力军、刘彦平的绝对后台，这次秘密回上海实际是为了政治需要，甚至是布置后事。
 
-So called richest man in Russia
-这个被称为俄罗斯的首富
+与韩正见会面的郭先生朋友透露，从韩正的状态可以明显看出他的恐惧，问他几个问题也只是摇头回应，这是之前绝对没有过的。“啥也别问、别说，赶快跑。”韩正说道。有趣的是，当这位朋友提及郭先生的情况，韩正猛然站起来并且激烈反应，而且千叮咛、万嘱咐不能跟郭先生联系，千万不可透露他回过上海。
 
-and Lena belonging to Gennady Timchenko, who controls an oil exporting com-pany
-和属于根纳季·蒂姆琴科的莉娜，他控制着一家石油出口公司
+韩正还谈及几个关键问题，透露中共自建国以来首都北京第一次向中央报告因财政面临巨额赤字导致公务员发不出工资，请求中央财政拨款救助。同时，中国沿海几个主要经济城市也出现了发不出工资的情况，甚至战备区福建沿海等地也给中央写密报称面临极不稳定因素，出现没钱发工资的困窘。
 
-French officials sees the $120 million Amore Velo, claiming it’s owned by Igor Sechin
-法国官员看到价值 1.2 亿美元的爱茉莉维洛，声称它由伊戈尔·谢钦所有
+其中有人去厦门问曾庆红，当问及下一步是否要搞孟建柱、王岐山甚至会波及到曾本人的时候，曾大怒拍着桌子说，“滚，不要谈政治，中央有中央的决定，一切服从中央的决定。”要知道，原来曾张口就是习近平就是个傻货，王岐山就是鬼子六、流氓。这回说要服从中央，讲政治，只能说明曾庆红已感受到严重的威胁，本人可能不保。
 
-That’s the head of the Russian state owned Oil Company Rosneft
-那是俄罗斯国有石油公司Rosneft的负责人
+还有，从黑龙江运往新疆集中营调运的粮食，途中其中的一半被意外卸下，胡春华、韩正说千万不要让习知道，说明粮食也出现重大问题。最后，说只要中共开打台湾，中共必将灭亡。
 
-Other oligarchs are trying to prevent this from happening
-其他寡头正试图阻止这种情况发生
+奉劝友人快走的不止韩正，还有习近平的贴身秘书韩立平。韩立平是中办副主任，也是彭丽媛办公室对外联络总协调。现在所有习身边的人会见别人的政策是要提前打报告，会见完还要写报告，还不能一人单独会面。在这种情况下韩立平与他当年的老师私下会面，在回答现在最大的危机是和最大的不确定因素的问题时说，“历史上都是‘皇帝’的身体决定着乾坤，离开吧，快走。”
 
-after it left port in Montenegro on March the second
-在它于 3 月 2 日离开黑山港口后
+从中共高层不曾有过的恐惧和奉劝周边人快速逃离中国的表现来看，中共距离崩溃越来越近。
 
-the GALACTICA SUPER NOVA owned by Lukoil CEO Vagit Alekperov
-卢克石油公司首席执行官瓦吉特·阿列克佩罗夫拥有的银河超级新星
+**附：**
 
-turned off automatic tracking systems which is against the law for a ship of its size
-关闭了自动跟踪系统，这对这样大小的船只来说是违法的
-
-After Britain’s sanction Roman Abramovich
-在英国制裁正在出售他在足球俱乐部
-
-the billionaire who’s selling his stake in the football club Chelsea
-切尔西的股份的亿万富翁罗曼·阿布拉莫维奇之后
-
-his two super yachts began moving
-他的两艘超级游艇开始移动
-
-reportedly to reach countries without formal extradition agreements
-据报道，到达没有正式签署引渡协议的国家
-
-His Eclipse is the world’s second largest such boat
-他的 Eclipse 是世界上第二大此类的船
-
-It’s got its own missile defense system
-它有自己的导弹防御系统
-
-A mini submarine is well after recent renovations, it’s estimated value is $1 billion
-一艘迷你潜艇经过最近的翻新，估计价值 10 亿美元
-
-**原视频链接**:[https://twitter.com/ben94548078/status/1503119680277561347?s=24](https://twitter.com/ben94548078/status/1503119680277561347?s=24)
-
-Date:03/14/2022
-原视频标题:Sanctions take aim at Russian oligarchs’ yachts
-制裁针对俄罗斯寡头的游艇
-原视频日期：2022/03/14
-原视频链接https://twitter.com/ben94548078/status/1503119680277561347?s=24
-任务编号：KE453（4006）
-视频时间段 : 0:00-1:15
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新华社14日报导，习近平、李克强、栗战书、汪洋、王沪宁、赵乐际、王岐山等中共高层官员出席北京2022年冬残奥会闭幕式，独缺韩正。
 
  
 
