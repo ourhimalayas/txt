@@ -2,47 +2,44 @@
 ---
 
 
-## 英国COVID感染再度上升 九成死亡发生在接种疫苗人群
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2174910/)
+## 中共经济危机重重
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2175084/)
 
-编译：Jenny Ball
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月15日，据相关媒体消息显示，香港恒生指数当天依旧延续前一天的颓势，再次大跌超过5%，直接跌穿两万点的支撑位，且盘后仍继续下行。 对此，郭文贵先生也在盖特平台上发布消息称，一位香港的朋友发信感谢郭先生早前的提醒，从而让他能在港股崩溃前撤出资金。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-28.jpg)
+同一日，各类经济负面消息充斥着整个中共国内的新闻版面。首先，墙内上证指数大跌2.6%，深成指和创业板跌幅也双双超过3%。其次，腾讯和阿里均被爆出将减少三成员工。同时，有消息人士透露，腾讯还因微信支付违反了中共的《反洗钱法》，即将面临创纪录的巨额罚单。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Covid-19-Coronavirus-Virus-Concept.jpg)图片来源：newstarget.com
+另一方面，中共恒大集团宣布，其将退出广州南沙阳光半岛项目，并将该项目划归给某中共央企接盘。有评论人士称，恒大早已无力摆脱自身的债务困境，中共的房地产企业危机将进一步恶化。
 
-上月底俄罗斯入侵乌克兰后，全世界都在关注乌克兰的战争，而全球领导人之间的大多数对话都集中在这场战争上。
+最后，中共福建省银保监局当天突然发表声明扬言，中共国内的银行理财产品并非零风险，为此，当局要求消费者提高对所有理财产品的风险意识。
 
-**这意味着几乎没有人谈论通胀上升、持续的供应链危机、经济管理不善，当然还有新冠大流行。**
+郭先生早先在直播中强调，一旦港股跌破两万点大关，中共的经济必然会出现严重的问题。而今，中共国内的经济现状正在逐渐显露出其破败的真面目。
 
-但有些人仍在关注这些问题，尤其是新冠病毒——包括《纽约时报》前作家亚历克斯·贝伦森，他从一开始就关注这一流行病，并经常在大多数人看到新模式之前就打破关于新兴模式叙述的故事。
+参考链接：
+1. [3月14号太多，我的好多投资领域，已经投资了香港的朋友，给我发了类似这样的信息**🙈🙈🙈**但愿有更多人能跟随新中国联邦，做一个消灭中国共产党的得到自己真正信仰的人。](https://www.gettr.com/post/p1024xd1423)
+2. [消息称腾讯阿里将大规模裁员，最高涉及30%](https://www.sohu.com/a/529520628_118792)
+3. [騰訊傳因微信支付違規或面臨創紀錄罰款](https://udn.com/news/story/7333/6164242?from=udn-ch1_breaknews-1-cate4-news)
+4. [银行理财产品也开始亏钱了，福建银保监局提醒：净值化时代“零风险”都成过去式](https://www.sohu.com/a/529726303_313745)
+5. [恒大集团退出广州南沙阳光半岛项目，央企中航信托接手](https://finance.sina.com.cn/jjxw/2022-03-14/doc-imcwiwss6015961.shtml)
+6. [多因素导致A股市场大跌：短期超卖后市场信心的重建需要时间](http://finance.china.com.cn/stock/zqyw/20220315/5763122.shtml)
+7. [收评：港股恒指跌5.72%恒生科指跌8.1% 腾讯跌10%失守300港元](https://finance.sina.com.cn/stock/hkstock/marketalerts/2022-03-15/doc-imcwipih8610116.shtml)
 
-他在英国发现了一个这样的新模式：在那里，目前 COVID 感染率再次上升，更糟糕的是，90% 死于该病毒的人已经接种了疫苗，这导致他推测世界已经浪费了实现群体免疫的机会。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-上周晚些时候，贝伦森在他的子栈（Substack） 页面上写道：“来自英国的新数据，在去年使用 mRNA 和 DNA 注射试图击败冠状病毒的富裕国家，引发了关于 Covid 发展方向点亮了危险信号。”“**住院和死亡人数仍然居高不下，绝大多数发生在接种疫苗的人身上**。2 月，每周死于新冠病毒的 1000 名英国人中，有 90% 接种了疫苗。”
+总编：Irene木木
+编辑：Ivy001
+审核：Irene木木
+校正/发稿：Fei797
 
-贝伦森继续指出，不仅新感染人数远高于 Omicron 变体出现之前，而且，在 2 月份短暂下降之后，它们也再次上升。此外，他说，加强疫苗似乎没有为年轻人住院提供太多保护。
-
-他还指出，英国有关 COVID 的数据至关重要，因为该国很早就为人口注射了加强剂，而且，英国的数据集“比美国的数据集更完整，政治化程度更低”。
-
-“日复一日，一周又一周，**这些数字变得越来越令人担忧**。他们暗示，如果不能完全阻止早期呼吸道病毒流行中发生的群体免疫的自然进展，mRNA 和 DNA 注射可能会减慢自然进展速度，”他警告说。
-
-“事实上，英国现在报告说 99% 的成年人对 COVID 有抗体，主要是接种疫苗的结果。**这一水平远远高于流行病学家认为支持群体免疫所必需的水平**。然而，COVID 感染、住院和死亡人数继续有增无减，”贝伦森继续说道。“现在有近 12,000 名英国人因 COVID 住院，比去年这个时候还要多。”
-
-这位前《泰晤士报》作家还发布了一张“令人惊叹”的图表，其中包含英国政府定期发布的近期每周“监视报告”：
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/british-COVID-report.jpg)[图标来源](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1058464/Vaccine-surveillance-report-week-9.pdf)
-
-**评论：随着五月份专家预测的疫苗灾难大爆发的临近，我们只有祈祷更多的人能够在疫苗的谎言中清醒过来，祈祷更多被注射了mRNA实验的人，能够及早使用解药青蒿素排除刺突蛋白的毒素。90%接种人群的死亡率，所有数据点亮的危险信号意味着，疫苗的灾难将远远大于所有人类战争之和！**
-
-参考资料：[newstarget][Britain experiencing COVID infection rise again with 90% of deaths occurring in the vaccinated: Have we lost chance for herd immunity forever?](https://www.newstarget.com/2022-03-14-britain-experiencing-covid-infection-rise-again.html)
-
-* * *
-
-*审核：文乐*
-*校对：阿伯塔*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

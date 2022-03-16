@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gtranslators_2 3/16/2022 3:28 PM (UTC)`
+
+[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.03.16 EST
+![img](https://media.gettr.com/group48/origin/2022/03/16/15/afbe6c07-b850-4333-e878-fb1025891695/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/16/2022 3:12 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 NFSC and ROLF Ukraine Humanitarian Rescue Mission
@@ -149,13 +158,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 
 ![img](https://media.gettr.com/group25/origin/2022/03/16/02/2d90862b-6988-cb94-7ae1-34b00e21ac5d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/16/2022 2:04 AM (UTC)`
-
-[Ukraine Rescue]  On 3/13, Halley, Feather, and Kent of the Ukraine Frontline Rescue Operation 'Hotline Team' were interviewed, they were put into high intensity jobs immediately after their arrival. Let's hear why they decided to go to the frontline, how the Frontline Hotline Center works, who and what they encountered.<br/><br/>【乌克兰救援】3/13号，乌克兰前线救援团队‘热线小组’ 的哈雷、Feather、Kent接受了采访，他们在抵达后立刻投入到高度紧张的工作中，来听听他们为何决定去往前线，前线热线中心大概的工作情况，以及他们遇到了哪些人和事。
-![img](https://media.gettr.com/group41/origin/2022/03/16/02/464ffd92-ea52-b77e-2905-ac1a489963f1/out.jpg)
 
 ---
 
