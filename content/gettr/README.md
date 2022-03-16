@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 5:32 AM (UTC)`
+
+The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Rescue Team – 24h Hotline: +1 7206576776 or +1 719-224-4232 or +48 508-532-712 or +48 508-531-518 Telegram: t.me/UkraineRescue GETTR: https://gettr.com/user/UkraineRescue<br/>我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є першопричиною катастроф у світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
+![img](https://media.gettr.com/group33/origin/2022/03/16/04/209b7700-8e67-53d0-f2bb-9f48b88dd8be/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/16/2022 2:31 AM (UTC)`
 
 
@@ -152,13 +159,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission<br/>
 3月15号：这就是新中国联邦人负责任……讲信用．敢承担责任……和迅速的行动能力，感谢台湾农场做出这些……本不应该承担．却主动承担的责任！全球农场兄弟姐妹们，我们一定要为自己的行为负责任。我们也要告知全球的所有战友们，下不为例，任何在没有一个全面按照喜联盟要求沟通的转款，任何农场任何人不在负责。这对台湾农场并不是公平的，但是为了维护新中国联邦的尊严，我们必须这么做。
 > `@ching 3/15/2022 7:21 PM (UTC)`<br/>經聯盟指示，台灣農場已全面停止換匯工作，不再接收任何匯兌資金。對於已經匯出款項的戰友，我們將進行妥善迅速的善後安排。對於因有意參與匯兌但被騙徒騙取資金的兩位戰友（共計38萬人民幣），我們已通過HPAY發放了全額補償。現公佈騙徒的收款帳戶資訊。對於詐騙戰友的惡人，我們一個也不放過，追到天涯海角也要將之繩之以法！
 ![img](https://media.gettr.com/group29/getter/2022/03/15/19/d3d43456-aa80-27a8-858e-138668cd6d2c/25f4ae23e6e47dca4719844c45698447.jpg)
-
----
-
-`@miles 3/15/2022 4:35 PM (UTC)`
-
-The New Federal State Of China provides humanitarian aid at the polish and Ukrainian border
-![img](https://media.gettr.com/group44/origin/2022/03/15/16/a11f31a6-9298-a0bd-74ad-d0169c54075b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
