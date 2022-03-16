@@ -2,59 +2,34 @@
 ---
 
 
-## 澳州人权专员抨击扩大卫生官的应急权限
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2172824/)
+## 美参议院决议支持对普京进行战争罪调查
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2172957/)
 
-***评论：**知名官员站出来抨击政府过度干预及过度反应，这会鼓舞那些有同样想法但害怕发表评论的人。强制接种疫苗永远践踏人权，我们需要有作为的人权监督机构。*
+#### 撰稿：彩虹
 
-据《天空新闻》作者：Crystal Wu， 2022年3月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1752-e1647409412195.png)图片来源：《天空新闻》
-昆士兰州人权专员斯科特·麦克杜格尔（Scott McDougall）认为，COVID-19流行病的法律“不再适用”，因为限制措施对心理健康的影响超过了公共卫生的风险。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-77.jpg)图片来源：推特
+据《国会山报》3月15日报道，周二，参议院通过了一项不具约束力的决议，支持对俄罗斯总统弗拉基米尔·普京（Vladimir Putin）入侵乌克兰的行为进行战争罪调查。
 
-昆士兰州政府扩大首席卫生官应急权限的举动，遭到该州人权专员的猛烈抨击。
+该决议由共和党参议员林赛·格雷厄姆（Lindsey Graham）牵头，在与参议员兰德·保罗（Rand Paul）就决议的修改进行协商后，以语音表决方式通过。
 
-昆士兰州人权专员斯科特·麦克杜格尔（Scott McDougall）将出席议会听证会，称是时候结束当前的流行病法律了。
+格雷厄姆的决议支持参议院谴责俄罗斯军队实施的“包括战争罪、反人类罪和系统性侵犯人权行为。”正式支持进行战争罪调查，鼓励各国向国际刑事法院（ICC）请愿，调查俄罗斯军队和俄罗斯总统弗拉基米尔·普京实施的战争罪行。
 
-麦克杜格尔先生坚持认为，该州的流行病法律“不再适用”，其中包括赋予首席人事官（CHO）限制行动和拘留隔离人员的权力。
+格雷厄姆在一份声明中说，他对决议的通过感到“非常兴奋”，美国“应该尽我们所能，通过及时向法院提供信息和情报来帮助这项调查”。
 
-麦克杜格尔先生说，大流行限制措施对人们心理健康的影响，远远超过了大流行对公共卫生的风险。
+他称，“我的下一步是与我们的英国盟友并希望与其他国家合作，建立一个情报小组，向公众提供从事战争罪的俄罗斯军事单位，并开始点名其指挥官。一场公开指责运动正在进行中。”
 
-“作为一个社区群体，我们已经了解到隔离条件对人们心理健康的影响、将人们限制在家中的公共卫生指示以及强制接种疫苗所带来的人权限制，”他在提交给委员会的一份12页文件中说到。
+参议院多数党领袖查尔斯·舒默（Charles Schumer）补充说，参议院已经联合起来，“认为弗拉基米尔·普京不能逃避对乌克兰人民犯下的暴行的责任。”
 
-“如果没有适当的监督、透明度和外部审查，就无法继续施加如此重大的人权限制的权力。否则，它们与人权的兼容性就存在问题。”
+他说：“今天通过的由格雷厄姆参议员倡导的立法发出了一个明确无误的信息，即美国参议院与乌克兰站在一起，反对普京，并支持所有让普京为对乌克兰人民犯下的暴行负责的努力”。
 
-“委员会建议不要继续执行该法案，而是用全面的、与人权兼容的流行病立法来取代。”
+文章报道，该决议由20多名参议员正式提出，包括与格雷厄姆一起领导参议院拨款委员会（Senate Appropriations Committee State）和对外行动小组委员会（Foreign Operations subcommittee）的克里斯·库恩斯（Chris Coons）参议员，以及参议院第二号民主党人、参议院乌克兰核心小组共同主席迪克·杜宾（Dick Durbin）。
 
-该法案会继续将原定于2022年4月30日到期的《公共卫生法》临时修正案延长至2022年10月31日。
+报道说，作为格雷厄姆和保罗谈判的一部分，周二晚上在参议院通过的决议还包括这样的措辞：该决议不是对俄罗斯的战争宣言或授权，也没有为向乌克兰派遣美国军队开绿灯。
 
-该法案的扩大修正案，包括：
+**新闻来源**
 
-- 根据该法案增加两个关键决策者的权力：首席卫生官 (CHO)——他可能会采取行动应对昆士兰州COVID-19的传播，包括发布公共卫生指示，要求保持身体距离、限制行动和集会，要求人们隔离或自我隔离，并采取其他遏制病毒传播措施；
-- 应急人员——他们也可能采取相关行动，特别是针对个人，包括发布拘留令；
-- 授权共享机密信息以进行接触者追踪；
-- 通过对违规行为进行适当处罚，鼓励遵守隔离检疫要求和其他公共卫生指示；
-- 增加法规可延长宣布突发公共卫生事件的期限，从7天延长至90天；
-- 允许对在政府安排住宿中的强制隔离人员的相关费用收费；
-- 保护为了追踪COVID-19病毒传播而收集的个人信息。
-
-
-文章来源：[https://www.skynews.com.au/australia-news/coronavirus/queensland-human-rights-commissioner-slams-plan-to-extend-chief-health-officers-covid19-emergency-powers/news-story/f521a66f99f767a3d3d6e32e0b18aebf](https://www.skynews.com.au/australia-news/coronavirus/queensland-human-rights-commissioner-slams-plan-to-extend-chief-health-officers-covid19-emergency-powers/news-story/f521a66f99f767a3d3d6e32e0b18aebf)
-
-翻译：洛杉矶盘古农场 – maru
-
-校对：洛杉矶盘古农场 – Mike Li
-
-评论：洛杉矶盘古农场 – maru
-
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场 –子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[Senate passes resolution supporting Putin war crime probe](https://thehill.com/homenews/senate/598374-senate-passes-resolution-supporting-putin-war-crime-probe?rl=1)
 
  
 

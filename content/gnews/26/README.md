@@ -2,47 +2,25 @@
 ---
 
 
-## 苹果供应商富士康在COVID封锁下关闭深圳厂区
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2173015/)
+## 华硕电脑断供俄罗斯市场
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2173591/)
 
-***评论：**在中共的疫情封锁下，越来越多的外资会撤离。*
+撰稿：两万五，爆大料
+![](https://assets.gnews.org/wp-content/uploads/2022/03/两万2.png)
+（图片来自网络）
 
-据《marketwatch.com》作者：Mike Murphy，2022年3月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1758-e1647410303196.png)中共国深圳富士康标志。图片来源：AFP 通过 Getty images
-台湾公司称生产将被重新分配到其他地点。
+台湾“中央社”消息称，乌克兰副总理费多罗夫在推特发文点名华硕电脑股份有限公司（简称[华硕](https://baike.baidu.com/item/%E5%8D%8E%E7%A1%95/348585)）电脑公司退出俄罗斯，华硕14日晚在推特发文回应称，对俄罗斯市场的出货已停止。华硕与乌克兰的隔空对话说明什么，本文进行分析。
 
-苹果公司（-AAPL, -2.66% ）组件供应商富士康科技有限公司将暂时关闭其在中共国深圳的业务，因为COVID-19案例激增。
+[华硕](https://baike.baidu.com/item/%E5%8D%8E%E7%A1%95/348585)公司成立于1990年4月2日，是[中国](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD/22516505)[台湾](https://baike.baidu.com/item/%E5%8F%B0%E6%B9%BE/122340)的国际品牌公司，也是全球最大的主板的制造商，同时亦为[显卡](https://baike.baidu.com/item/%E6%98%BE%E5%8D%A1/133122)、桌上电脑、通讯产品、[光驱](https://baike.baidu.com/item/%E5%85%89%E9%A9%B1/339047)等产品的领导厂商。本文华硕公司的公开表态，已经暗示台湾政府对本次俄乌战争的立场-支持乌克兰！华硕还声称，一直致力遵从所在各国的规范，加上供应链、物流、银行交易及其他因素所形成的“复合性挑战”，对俄罗斯市场的出货已停止。
 
-总部位于台湾的富士康（2354，-0.48%），也被称为鸿海精密工业公司，在周日晚上的一份声明中表示，它正在暂停深圳两个园区的生产，并将生产重新分配到其他地点。
+在乌克兰点名华硕加入制裁俄罗斯的行列，民进党当局立刻进行表态。台“行政院”顾问郑宏辉在脸书呼吁华硕拿出“世界科技大厂的高度，负起维护国际秩序的责任，与全球科技巨头站在一起抵制俄罗斯”。
 
-富士康在一份声明中说：“由于我们在中国有多样化的生产基地，我们已经调整了生产线，以尽量减少潜在的影响。”
+综上，本文认为随着战争的持续，越来越多有正义的企业会加入抵制俄罗斯行列！
 
-深圳是香港附近的一个科技中心，在新的COVID病例激增后，周日早些时候被封锁了。虽然富士康没有说明这些园区将关闭多长时间，但它在声明中表示，关闭将继续，直到得到当地政府的绿灯。城市封锁将至少持续到3月20日。
+*审核：文筝*
 
-虽然富士康在中共国的大部分iPhone生产是在其位于中国中部的郑州工厂完成的，但深圳区——严格来说是在龙华和观澜的郊区——是其最大的厂区，估计有45万名员工。富士康在中共国各地有大约十几家工厂。
-
-其他一些位于深圳的科技公司将受到封锁的影响，包括华为和优派（3037，-4.46%）——苹果的另一个供应商，以及英特尔公司（INTC, -3.12%）和Nvidia Corp.（ NVDA,-3.48%），根据日经亚洲的一份报告。
-
-截至周日晚些时候，富士康股价在台湾交易中下跌约1%。
-
-原文连接：[https://www.marketwatch.com/story/apple-supplier-foxconn-shuts-shenzhen-production-amid-covid-lockdown-11647229786](https://www.marketwatch.com/story/apple-supplier-foxconn-shuts-shenzhen-production-amid-covid-lockdown-11647229786)
-
-翻译：洛杉矶盘古农场 – TrueSky
-
-校对：洛杉矶盘古农场 – 轰炸机
-
-评论：洛杉矶盘古农场 – 轰炸机
-
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场–子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*发布：MG 4*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

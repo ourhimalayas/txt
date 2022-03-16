@@ -2,18 +2,12 @@
 ---
 
 
-## 20220315文贵大直播：爆料革命最精彩的三件事
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2174060/)
+## 辉瑞CEO承认选择mRNA疫苗技术是反常理的
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2174164/)
 
-作者:东京樱花团小视频组
+03/14/2022 班农战斗室：辉瑞CEO承认选择mRNA疫苗技术是反常理的。辉瑞的CEO在48小时内先说对于mRNA疫苗这种神秘产品他们一无所知，不承担责任，然后又说你要去打第四针。这太离奇和吓人了。
 
-校对：东京樱花团小视频组
-
-编辑发布：东京樱花团小视频组
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

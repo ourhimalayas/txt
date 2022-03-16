@@ -2,62 +2,56 @@
 ---
 
 
-## 用美国军事飞机执行的新中国联邦乌克兰大营救前所未有
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2174039/)
+## 中共拥有的福布斯解雇了一位顶级透明度专栏作家
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2174122/)
 
-Youtube视频链接：[https://youtu.be/NyOPpkyjlpU](https://youtu.be/NyOPpkyjlpU)
+编译： Jenny Ball
 
-Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1777.png)图片来源：naturalnews.com
 
-**郭文贵先生：**但是最好的避免战争的方式就是备战，就是乌克兰告诉你的：备战是避免战争最好的方式。台湾人已经做到了，这么多年从来没有服过，我们新中国联邦人更是如此。俄乌战争，七哥能在瞬间咱们新中国联邦调动这个力量去救援，人道救援，你觉得是昨天晚上我发梦了？我梦到能有行动吗？谁给你租飞机呀？你有钱吗？有钱钱哪来的？在美国你有钱你不说，共产党在美国钱是不能用的。
+《自然新闻》 – 长期倡导透明度的亚当·安德杰耶夫斯基（Adam Andrzejewski）在美国政府，特别是福奇（Tony Fauci）的美国国立卫生研究院（NIH）施加压力后，取消了他长达 8 年的《福布斯》专栏，根据《国家脉动》的揭露。
 
-法治基金、法治社会有用了吧？法治基金、法治社会，在国际上唯一能跟NGO先组织的。“我有Karen A公司”，搭都不搭理你，你凭什么？你有什么资格跟我来前去救援去？我有千羽什么开发集团，一脚给你蹦一边去了，你上你那继续开发去吧。卡丽熙：“我念念经，我有钱我有币。” 你上一边待着去吧，是吧？你有金砖来也不要你的。
+安杰耶夫斯基（Andrzejewski ）——OpenTheBooks.com的首席执行官和创始人——在被福布斯终止后，在他的新“子栈”（Substack）专栏中转发了这个故事。
 
-它有规则，你没有全面的布局，新中国联邦人在国际上没被认可，大家知道咱是干啥的？出资有处，来资有因，还有合法平台，还有正当理由，而且是和平正义的。
+由于对他的一些以福奇为重点的专栏感到不满，包括关于福奇家庭财务状况的重磅消息，安杰耶夫斯基回忆道：
 
-这几个问题如果没有过去几年做成，你能一夜之间吗？关键（就算）你有钱你有关系吗？是吧？凭什么“大力神”飞机给你飞过去呀？你以为你有钱？那你们有钱，你给“路大脑袋”“蛇妖闫”“火鸡龚”什么这帮孙子，你给他五倍钱你看他能找到不？听他吓唬。
+“两名董事、两名局长和两名高级公关官员，没有在周日早上向福布斯的负责人发送电子邮件，因为他们想更正有关福奇旅行报销的记录。他们发送那封电子邮件，是为了下意识地发送一条信息：我们不喜欢安杰耶夫斯基的监督工作，我们希望您对此有所作为。不幸的是，福布斯很快就屈服了。”
 
-还有什么一个“找爹博”：“哎呦我跟你说多少钱……”这个孙子早晚一天他会遭雷劈的。这个事情最可怕的就是什么？医生给你开假药；专家跟你说假话，所谓一个战地记者瞪眼说谎话这个王八蛋这个孙子。
+福布斯执行编辑卡罗琳·霍华德（Caroline Howard）于 2022 年 1 月 15 日给安杰耶夫斯基的电子邮件开头写道：“我看到这是你在 3 周内发表的关于福奇的第三篇文章。”接着指责安德杰耶夫斯基在宣传，而不是做新闻。
 
-美国所有的军事飞机和军事机密商用它有几个前提条件：它必须是在联合国的框架组织下你租用，而且使用者你的身份是最重要的。Karen你再有钱你也不能去租飞机，说我去干嘛去，我要干点什么其他事去，我约我男朋友去。那对美国、美军是个耻辱，怎么可能？谁（要是）租给你飞机他下台了，是不是？你不具备这些条件，你的钱不是钱，你的钱是纸。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1779.png)图片来源：naturalnews.com
 
-这就是大家兄弟（姐妹）要明白的，这就是新中国联邦的力量。如果你没有国际化的组织概念、没有国际化的法律概念和国际的政治概念、国际的关系概念，没有地域政治和地域宗教的概念，你没有经历过战争和战争中的概念，你不懂得这些，你一样都不可能。
+仅仅一天后，两名 NIH 主任、两名局长和两名高级公关官员——都是政府雇员——向《福布斯》施加了压力。他们声称，福奇从未“收集”金钱礼物，而是收取了与安德热耶夫斯基报道金额的等额面值的门票。换句话说：没啥区别。
 
-这就像直播一样。推流的前提是墨镜、小白白和福利前期做大量工作，否则你推不了流，你好好推流，你叫卡丽熙给我推推试试去？你叫Karen推推试试去？它是一整套的工作的程序，缺一不可。
+但正如 安杰耶夫斯基所说，《福布斯》很快就屈服了：
 
-今天的咱们新中国联邦的大救援是对世界政治、局势、战争、军事、经济、国际关系、社会管理、社会的精英整个全面的体现的一个结果。说着容易，太难了！14亿中国人有几个能做到的？中国过去一百年从来没有过中国人发起的国际大救援救中国人。
+在 NIH 向兰德尔·雷恩（Randall Lane）发送电子邮件后的 24 小时内，我的《福布斯》常规编辑致电并宣布了新规则。《福布斯》禁止我撰写有关福奇的文章，并要求我对所有未来的话题进行预先报批。
 
-从昨天到现在，国内的一片沸腾。看到现在国内多少人说了？“我们在乌克兰根本没人救，所谓的救我们全是假的！”结果国内现在都传：那个郭老七郭文贵那个“龙头”龙主，龙主出手啦，龙主出手啦！”是吧？
+然后，大约 10 天后的 1 月 28 日，《福布斯》悄无声息终止了我的专栏。
 
-在黑龙江派到乌克兰的工程队，还有中建七公司、中建四公司、中外建的，大量地传发：龙主出手啦，我们等着吧，都可以救。
+在《福布斯》取消我专栏的那一天，编辑们屈膝了。一篇关于福奇的新文章发表了：“[**福奇的肖像将很快挂在史密森尼博物馆**](https://www.forbes.com/sites/suzannerowankelleher/2022/01/28/fauci-portrait-smithsonian/?sh=4873bf1c1770)。”(译注：吹捧文章)
 
-多少当官的现在找我联系？“七哥，千万别爆我，把孩子把我朋友给我救出来，怎么都行。”在很多人在家人生死面前，他们还是知道的，爹亲娘亲还是家人亲，不是党亲。党是王八蛋，党是孙子，党是可以卖的，党是可以消灭的。
+当然，这篇文章被指定为编辑精选。
 
-编辑整理：Jacques；
+福布斯在 2014 年被一家中共国公司收购。就连《华盛顿邮报》也这样写道：
 
-字幕文件制作：小满；
+2014年，一家名为《综合鲸鱼媒体》（Integrated Whale Media）的香港投资集团，收购了美国最著名的媒体公司之一《福布斯》媒体的多数股权。在这种情况下，很难证明因果关系。但自那次收购以来，已经有几起编辑干预涉及中共国的报道，这引发了人们对《福布斯》杂志对编辑独立性的承诺的质疑。
 
-视频制作及上传：Cindy；
+10 月 9 日，资深中国评论员和中共批评者章家敦（Gordon Chang）收到了《福布斯》评论编辑艾维克·罗伊（Avik S.A. Roy）的电子邮件。“由于《福布斯》内容的广泛重组，”罗伊写道，“我们将结束与你的正式关系。”罗伊补充说，“作为组织的结果，你为我们写的文章将不再存储在《福布斯》服务器上，也不会出现在 Forbes.com 上，”根据章家敦应我要求转发给我的电子邮件。
 
-G-News发布：小满；
+在美国NIH和中共之间，《福布斯》现在似乎只对精英合并宣传感兴趣。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+**评论：文贵先生已经为我们解读了中共大外宣的构成和作用：收买国外媒体，继续洗脑逃到墙外的中国人；用收买的国外“主流”媒体洗白中共欺骗自由世界的人们。**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+素材链接：[naturalnews.com][Revealed: China-owned Forbes fired a top transparency columnist after a pressure campaign from Fauci’s NIH](China-owned%20Forbes%20fired%20a%20top%20transparency%20columnist%20after%20a%20pressure%20campaign%20from%20Fauci’s%20NIH)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+* * *
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,22 +2,12 @@
 ---
 
 
-## 郭文贵盖特音频2022.03.14
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2174044/)
+## 【乌克兰救援】03/15/22 一些形迹可疑的华人面孔出现在新中国联邦梅迪卡救援中心的附近
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2174124/)
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/03/out-10.jpg)
-### 视频链接：
+【乌克兰救援】03/15/22 一些形迹可疑的华人面孔出现在新中国联邦梅迪卡救援中心的附近。他们慌张的神色令人不禁怀疑：这是否又是由中共在背后主使，企图对新中国联邦及法治基金的乌克兰救援行动进行骚扰和破坏
 
-[https://www.gettr.com/post/pzy3h0ebc7](https://www.gettr.com/post/pzy3h0ebc7)
-
-### 音频链接：
-
-
-
-
-
-编辑发布：闪电训练
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
