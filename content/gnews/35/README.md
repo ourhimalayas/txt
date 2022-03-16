@@ -2,28 +2,39 @@
 ---
 
 
-## 世界银行将向乌克兰提供30亿美元一揽子援助计划
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2172796/)
+## 俄乌战争导致大宗商品价格进一步上涨
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2172828/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-83.jpg)
-（图片来自网络）
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-世界银行继上周批准向乌克兰提供7.23亿美元的援助后，本周一又宣布再增加近两亿美元的援助。
+整理：等风来
+编辑：围剿维尼熊
 
-据《大纪元》3月15日报道，世界银行周一（3月14日）批准了近2亿美元的额外及重新规划资金，以供乌克兰在遭到俄罗斯大规模进攻的情况下，加强对该国弱势群体的支持。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe-2.png)图片来源：雅典娜设计组
 
-《路透社》的报道称，世界银行周一批准的这笔近两亿美元的资金，是继上周批准7.23亿美元援助后的追加资金，而这些钱是援助乌克兰一揽子计划的一部分。
 
-世界银行行长戴维‧马尔帕斯（David Malpass）在《华盛顿邮报》主办的一次视频活动中表示，该行希望在未来6至8周内，敲定向乌克兰及其人民提供30亿美元的一揽子援助计划。
+根据路透社3月15日报道，俄罗斯对乌克兰发动战争后，原油和其他大宗商品的价格变得更加昂贵。
 
-此外，马尔帕斯还在会见波兰经济部长彼得‧诺瓦克（Piotr Nowak）时表示，世银准备通过融资和咨询服务来支持波兰，帮助其应对乌克兰难民的涌入。
+美国2月生产者物价指数(PPI)强劲上涨，受汽油等商品的价格急升推动，预计随着大宗商品价格上涨和全球贸易干扰加剧，该指数将出现进一步的上涨。
 
-新闻链接：
+美国劳工部周二发布报告表明，通胀在未来几个月仍将保持令人不安的高水平，尽管2月核心生产者物价的压力仅略有增加。
 
-[https://www.epochtimes.com/gb/22/3/14/n13646278.htm](https://www.epochtimes.com/gb/22/3/14/n13646278.htm)
+美国联邦储备委员会（FED）预计将于周三进行逾三年来的首次加息，目前通胀远高于美联储2%的目标。经济学家预测，联储今年将加息多达七次。并预计3月PPI将出现更大幅度的上涨。
 
-* * *
+油价上涨和俄乌战争给纽约州企业的信心造成打击。根据另一份报告，纽约联邦储备银行表示，3月其衡量当前企业状况的指标骤降14.9点，至负11.8，为2020年5月以来最低。读数低于零表明该州制造业活动萎缩。
+
+制造商报告称，新订单和发货量出现萎缩，但投入成本还在增加，制造商还上调了其制成品价格。
+
+参考链接：[https://cn.reuters.com/article/wrapup-usa-ppi-0315-tues-idCNKCS2LD02K](https://cn.reuters.com/article/wrapup-usa-ppi-0315-tues-idCNKCS2LD02K)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
