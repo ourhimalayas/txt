@@ -2,28 +2,25 @@
 ---
 
 
-## 乌克兰总统顾问预计战争最快5月结束
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176860/)
+## 普京抓捕情报机构高管
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176862/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：香草山农场 – 柳是多水土透
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒15日报道，乌克兰总统军事顾问阿列斯托维奇14日晚间表示，俄罗斯可能会在5月初因耗尽战备物资而终止对乌克兰的侵略行为。
+外媒12日报道，俄罗斯联邦安全局负责海外情报工作的长官——谢尔盖·贝塞达中将及其副手阿纳托利·博卢克——11日被普京下令软禁在家。
 
-虽然阿列斯托维奇并未直接参与俄乌之间的谈判事宜，但根据他的说法，俄罗斯确切停止攻打乌克兰的时间点，主要取决于俄罗斯还能为战事投入多少资源。即便两国达成和平协议，在俄罗斯同意完全撤出乌克兰的情况下，小规模的战略冲突仍可能会持续一年。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-55.jpg)
-乌克兰武装部队早前表示，自 2 月 24 日以来，已有12,000 多名俄罗斯士兵丧生。
-
-美国方面也有情报显示，保守估计已有大约6,000名俄军，相当于8个营级战斗群兵力阵亡，显示俄军伤亡确实十分惨重。
-
-另外，英国国防部的每日更新情报也指出，俄罗斯入侵乌克兰的战争已经进入第四个星期，但俄军进攻基辅的战线依然未取得明显进展。俄军集结基辅西北部连绵数十公里的大车队，在过去一个星期始终停滞不前，反而乌克兰这边持续性的突袭给他们带来了巨大影响，这意味着物资补给、军队士气等问题仍然困扰着俄军。
+68岁的贝塞达曾任俄罗斯联邦安全局局长，而博卢克則是行动情报部主任。普京认为，战争进展不利，和俄方大量伤亡是由于情报有误。开战前他曾被告知，乌克兰仅会做象征性抵抗，人民普遍对现状不满，会配合侵略军推翻政府，乌军战力薄弱，遍布新纳粹成员，受到攻击后会很快投降。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-57.jpg)
+但当俄罗斯派出轻型部队迅速攻占关键设施后，却遭到猛烈反击和持续抵抗。乌克兰人更紧密地团结在了泽连斯基政府周围，仅首都就有10万人以上加入民兵组织，就连乌东部俄语区也存在民意反转。 攻势受阻后，俄罗斯被迫放弃速战速决计划，转为消耗战，攻城战，导致了大量平民伤亡和不断升级的制裁。
 
 参考链接：
-1. [War could be over by May, says Ukrainian presidential adviser](https://www.reuters.com/world/europe/war-could-be-over-by-may-says-ukrainian-presidential-adviser-2022-03-15/)
-2. [Russia-Ukraine war: early morning strikes hit Kyiv hours before peace talks](https://www.theguardian.com/world/2022/mar/15/russia-ukraine-war-fresh-blasts-in-kyiv-as-zelenskiy-says-ceasefire-talks-will-resume)
+1. [Kremlin arrests FSB chiefs in fallout from Ukraine chaos](https://www.thetimes.co.uk/article/kremlin-arrests-fsb-chiefs-in-fallout-from-ukraine-invasion-chaos-92w0829c5)
+2. [Putin ‘has placed the head of the FSB’s foreign intelligence branch under house arrest because he is furious at security services for failing to warn him’ that Ukraine could fiercely resist invasion](https://www.dailymail.co.uk/news/article-10603045/Putin-places-head-FSBs-foreign-intelligence-branch-house-arrest.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-总编/编辑/审核：天滅中共
+总编：天滅中共
+编辑/审核:飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -33,7 +30,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
