@@ -2,37 +2,42 @@
 ---
 
 
-## 大直播后记：新中国联邦最精彩的三件事
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2175345/)
+## 普京抓捕情报机构高管
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2175499/)
 
-整理：Anita、请你喝可乐
-编辑：Mohegayer K. Simon
-
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/@H1RTGY1N3OZ6FMW.png)
+作者: MOS 柳是多水土透
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
+3月12日，国外媒体报道，俄联邦安全局(FSB)负责海外情报工作的长官——谢尔盖·贝塞达中将及其副手阿纳托利·博卢克，于11日被普京下令软禁在家。68岁的贝塞达之前任FSB五局局长，博卢克任行动情报部主任。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/methode_times_prod_web_bin_cdf6df92-a189-11ec-a33b-e5ebed659a52.jpeg)图片来源: 网络
+普京认为，战争进展不利，和俄方大量伤亡是由于情报有误。开战前他曾被告知，乌克兰仅会做象征性抵抗，人民普遍对现状不满，会配合侵略军推翻政府，乌军战力薄弱，遍布新纳粹成员，受到攻击后会很快投降。但当俄派出轻型部队迅速攻占关键设施后，却遭到猛烈反击和持续抵抗。乌克兰人更紧密地团结在了泽林斯基政府周围，仅首都就有10万人以上加入民兵组织，就连乌东部俄语区也存在民意反转。
 
-图片来源：墨尔本雅典娜农场设计组
+攻势受阻后，俄被迫放弃速战速决计划，转为消耗战，攻城战，导致了大量平民伤亡和不断升级的制裁。
+
+新闻链接:
+
+- [https://www.thetimes.co.uk/article/kremlin-arrests-fsb-chiefs-in-fallout-from-ukraine-invasion-chaos-92w0829c5](https://www.thetimes.co.uk/article/kremlin-arrests-fsb-chiefs-in-fallout-from-ukraine-invasion-chaos-92w0829c5)
+- [https://www.dailymail.co.uk/news/article-10603045/Putin-places-head-FSBs-foreign-intelligence-branch-house-arrest.html](https://www.dailymail.co.uk/news/article-10603045/Putin-places-head-FSBs-foreign-intelligence-branch-house-arrest.html)
 
 
-咱这个战友找刘亚洲谈话说，这回不是跟你开玩笑，只是多大多小，小心点，做点打算吧，不要老想好事。刘亚州还挺横的说，我们家从来都是没把这个命当回事，活到今天我都是赚的，随便爱咋的咋的。就是那种所谓官女婿牛叉叉的样子。他被抓以后，他家里人找咱这个战友，咱这个战友说，亚洲当时很狂啊，他家人说不是啊，亚洲回来睡不着觉。向习示好，习不理他，跑也跑不了。已经一个月了，发现有人跟踪他，而且办公室已经被秘密抄过了，刘亚洲懂得跑不了了，那总不能自杀呀，那只有面对。我是早于任何人知道的，八个月前知道刘亚洲被抓。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-33.jpg)
 
-现在咱这个战友就在看直播，他昨天告诉我，到今天为止，爆料革命有太多传奇，但是我们新中国联邦最精彩的是三件事。第一，乌克兰救援。整个党内说，你这么大个国家，在俄乌事上，我们成了牺牲品。叫这个龙头那个哥们儿，到全世界代表中国人，这是多大的事啊，还能收拾得了吗？杨洁篪去意大利见沙利文的时候，旁边有人给杨洁篪说，很多人现在都发现那个小子在战场折腾很大。你知道杨告诉他说，长点脑袋，别再提这个词了，你找死啊，不要把火引到我们这儿来，千万不要提。就连外交部，都不能提郭文贵，然后这一提都是吓破了胆，都怕染这个事。到了意大利，当地人就问他，在乌克兰现场的那帮救援的中国人是你们外交部的吗？杨洁篪是扭头就走。沙利文这次给杨洁篪警告，据说话都说到家了，说你再弄下去我这怎么着怎么着，比所有对俄罗斯的经济制裁还夸张的对付你。杨洁篪也很嚣张，说我们早就知道你们这么干，我们不管做什么，你们都会这么干，但是你们不会得逞。但是就咱这件事，咱这个战友说，七哥，这一次救援，咱们新中国联邦真的一下走向国际化。
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
-第二，是喜币，你让这么多人赚了钱，对共产党内部触动太大，共产党从来都是抢别人，哪让别人挣钱呢。他说，你现在那个市值是3000亿现金，战友现在赚了几百亿啊，这了不得。而且未来还可能有更多N倍的涨，而且这个走得那么强，技术含量这么高，特别是Hpay。他知道我们在干啥，因为内部情报很多，他说你哪一仗干成对共产党都是致命的。
+**更多资讯，更多关注**
 
-第三，他是做梦也没想到你们能在西方世界，和战友这些被共产党抛弃的弃儿，甚至都是被定为精神病、失败一族的人，一起打造了一个这样的媒体。而共产党就怕别人跟他抢话语权，就怕被代表。所以我告诉你们干掉共产党一定是我们不是任何人！
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-资料来源：2022年3月15日文贵大直播
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-发布：星谕
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 

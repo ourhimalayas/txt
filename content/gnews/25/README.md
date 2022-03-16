@@ -2,52 +2,40 @@
 ---
 
 
-## 福克斯摄像师在乌克兰战火中丧生 记者重伤
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2175385/)
+## 美国前总统奥巴马确诊中共病毒
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2175606/)
 
-**翻译：噜噜咪**
+作者: 纽约香草山教育部-Naughty(文行)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip福克斯摄像师在乌克兰战火中丧生-记者重伤.png)
 
-福克斯新闻的摄影师皮埃尔·扎克谢夫斯基在基辅郊外的一次暴力袭击中丧生，福克斯新闻的记者本杰明·霍尔也因此受伤。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
+据美国媒体3月13日消息，美国前总统奥巴马当天表示，他的中共病毒筛检结果呈阳性。不过症状相当轻微，仅感觉喉咙发痒。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11648750_031322-wls-obama-covid-5p-vo-vid.jpeg)图片来源: 网络
+当天下午，奥巴马在 Facebook 和 Twitter 上分享的一份声明中宣布了他的诊断结果，并在推文中说，他和夫人米歇尔都已经完全接种了中共病毒疫苗和加强针，目前米歇尔的中共病毒检验结果为阴性。
 
-福克斯新闻媒体首席执行官苏珊娜·斯科特在给同事的说明中宣布了这一悲惨消息。她说，扎克谢夫斯基和霍尔在霍伦卡村报道时，“他们的车被来袭的火炮击中”。
+自去年美国向公众提供中共病毒疫苗以来，奥巴马一直在大声疾呼接种疫苗的重要性，但他在接种完三针疫苗后还是被确诊了。
 
-新闻网没有公布有关霍尔病情的更多信息——只是说他因伤正在医院接受治疗。
+新闻链接: [https://people.com/politics/barack-obama-tests-positive-for-covid-19-michelle-negative/](https://people.com/politics/barack-obama-tests-positive-for-covid-19-michelle-negative/)
 
-斯科特说，扎克谢夫斯基最近因其“无价的工作”而受到福克斯公司的表彰。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-32.jpg)
 
-斯科特说：“他有卓越才能，在现场没有哪个岗位是他没帮过的——从摄影师到工程师到编辑到制片人——他在巨大的压力下以巨大的技巧完成了这一切。他深深地致力于讲述故事，他的勇敢、专业精神和职业道德在每家媒体的记者中都很有名。”斯科特补充说：“他非常受欢迎——媒体行业中所有报道过外国故事的人都知道并尊重皮埃尔。”
+编辑: 飞虹
 
-以下是Mediaite新闻网获得的一份说明：
+校对/发稿: 卡夫卡的甲壳虫
 
-亲爱的同事们：
+**更多资讯，更多关注**
 
-今天上午，我们怀着巨大的悲痛和沉重的心情分享关于我们敬爱的摄影师皮埃尔·扎克谢夫斯基的消息。皮埃尔在乌克兰基辅郊外的霍伦卡遇难。昨天，皮埃尔与本杰明·霍尔一起进行新闻采集，他们的车辆被来袭的炮火击中。
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-皮埃尔是一名战区摄影师，在他长期为我们工作期间，为福克斯新闻报道了从伊拉克到阿富汗到叙利亚的几乎所有国际新闻。作为一名记者，他的热情和才华是无与伦比的。总部在伦敦的皮埃尔自2月以来一直在乌克兰工作。他才华横溢，在现场没有哪个岗位是他没有帮过忙的——从摄影师到工程师到编辑到制片人——而且他都是在每家媒体记者的巨大压力下完成的。他非常受欢迎——媒体行业中所有报道过外国新闻的人都知道并尊重皮埃尔。
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-去年，他在美国撤军后将我们的阿富汗自由职业者和他们的家人送出国境方面发挥了关键作用。12月，在我们的年度员工焦点奖上，皮埃尔被授予“无名英雄”奖，以表彰他宝贵的工作。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-杰伊·华莱士今天早上说得最好—“皮埃尔是我们所有国际报道中的一个常客。我和其他无数人一样，在到达现场看到他拿着相机时，总是感觉到一种额外的安心。他的积极精神、无拘无束的能量和对故事的洞察力将继续传承下去”。
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-我们向皮埃尔的妻子米歇尔和家人表示最深切的慰问——请为他们祈祷。请继续为本杰明·霍尔祈祷，他仍在乌克兰住院治疗。我们将根据需要继续联系，提供任何进一步的更新。
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
-今天对福克斯新闻媒体和所有冒着生命危险传递新闻的记者来说，是令人心碎的一天。我把皮埃尔在现场做他喜欢的事情的照片留给你们。
 
-衷心的慰问
-
-苏珊娜
-
-**素材链接**：[**toddstarnes.com**][BREAKING: Fox Cameraman Killed in Ukraine Attack, Journalist Seriously Injured](https://www.toddstarnes.com/media/breaking-fox-cameraman-killed-in-ukraine-attack-journalist-seriously-injured/)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
 
  
 
