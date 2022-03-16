@@ -2,36 +2,39 @@
 ---
 
 
-## 灭共的新中国联邦人是未来免受制裁的唯一人群
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176557/)
+## 新中国联邦揭露彭博社（Bloomberg)在援乌营地“试水”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2176623/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在3月13日的大直播中，郭先生与战友分享了俄罗斯大富豪Alex因受普京发动对乌克兰的入侵战争而被牵连，其个人财富全部被制裁，本人也被警察带走。Alex是黄金和化肥公司的老板，此人很会赚钱且钱都合法，个人品味不俗，低调严谨。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-48.jpg)
-随着全球化的发展，SWIFT成为了全世界统一认证的支付系统。郭先生把SWIFT形象地比喻为进入地球村大门的钥匙，俄罗斯被SWIFT踢出，所有俄罗斯人的账户都会受到影响，无法支付任何生活所需，就算有再多不具备流通性的黄金，也无法用来支付。尽管很多俄罗斯富豪都持有第三国护照，照样会受制裁。未来中共国一旦被SWIFT制裁，也会和俄罗斯一样，不分老百姓还是盗国贼或者持有他国护照，每个人都逃脱不了。
+**作者：Nicole**
+**编辑：Candy**
 
-这时候唯有新中国联邦人可以免受制裁，因Hpay 提供了一个超级的流通支付系统。秉持消灭中国共产党的使命，投资过G系列、喜币、喜联储，这些会成为护身符，保护每一个战友的安全和财富。
+Nicole：补充一下昨天郭先生大直播里提到的王岐山的好朋友Bloomberg派出的记者采访咱们的事情。
+2022.3.15郭先生GETTR大直播
+这个记者叫Aggi Cantrill, 来自德国柏林，说流利的中文，她一开始来就跟我说中文，我问她在哪里学的中文，她说在德国，后来去北京呆了3年，住东直门。她告诉我说，她是Bloomberg 的财经记者，财经记者被派到前线做战地报道，有点奇怪（王歧山是财经口的） 她一开始说要采访20分钟，后来采访8分钟就匆匆结束了，可能她觉得采访不理想。 可惜的是，在旁边录像的战友只录了5分多钟，没有录全
 
-参考链接：[俄罗斯寡头被西方制裁说明了什么？](https://gettr.com/post/pzu0el34d1)
+她一共问了4个问题 1）你们的组织是什么？ 2）你们是否在故意混淆（conflate）政治企图和人道救援？她的言外之意，你们是在打着人道救援的名义搞政治 3）这个组织是领导是郭文贵吗？ 4）中国并没有表现出支持俄罗斯的入侵乌克兰的行动呀，你们怎么看这个战争？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+第4个问题，录像的战友没有录上。
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
+从这几个问题看，这个记者是有备而来，是带着任务来的，她问问题的立场完全是站在中共代言人的立场上的。 因为我们在营地遇到的所有西方记者，一般都不知道郭先生的名字，也从来不把我们的救援行动说成是搞政治。 只有这个记者上来就提郭先生的名字，上来就说我们打着人道救援搞政治，还替中共在俄乌战争洗地开脱。
+![Image](https://media.discordapp.net/attachments/825592691433668613/953732996807143484/IMG_6922.jpg?width=656&amp;height=369)
+采访结束后，她离开我们营地，过了10多分钟回来找我说，这个采访不一定能播出，要看编辑的决定，我问她编辑在哪里，她说在伦敦。 我说，好的。 然后她就离开了。
 
-**更多资讯，更多关注**
+又过了大概20多分钟，她又回来了，这次我不在帐篷外（我在帐篷里面拍视频）她找到录采访视频的战友，说他们总部决定不能播这个采访，因为这个采访里面有很多“issues” ，据这个战友说，这个记者看起来非常紧张，坐立不安， 她要求录视频的战友马上删掉这个视频。 结果这个战友就当着她的面把视频从手机里删除了。这个记者反复强调千万不要把这个视频公布在社交媒体上。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+这个记者的要求是无理的，我们请示了长岛哥，长岛哥让我们想办法从录视频的战友手机里恢复这个视频，后来恢复了，加了字幕，郭先生的盖特就发出去了。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+郭先生盖特发了这个视频后，这个记者给我发WhatsApp了说，“她看到了，很不幸这个视频被发出去了”
 
+昨天彭博社来了之后，咱们新中国联邦的营地上就出现了可疑的中国人来偷偷拍摄我们，大卫哥发现我们新中国联邦的旗子被人捅了窟窿。
+![Image](https://media.discordapp.net/attachments/950448401529577502/953606055957528576/image0.jpg?width=656&amp;height=369)图片来源：前线摄影师煤油灯战友
+***发布：Candy***
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

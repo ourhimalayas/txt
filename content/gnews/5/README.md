@@ -2,45 +2,31 @@
 ---
 
 
-## 多伦多将迎来10年来最温暖St. Patrick&#8217;s Day
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2176882/)
+## 遭西方指责的沙特王子在俄罗斯和中共国问题上面临两难境地
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2176919/)
 
-作者：Lauren O’Neil
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_0Z449626.jpg)
-天气预报显示，本周多伦多将迎来异常温暖的天气，一股温和的太平洋空气将在2022年St. Patrick’s Day之前抵达多伦多。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-这是爱尔兰人的运气吗？不，这只是多伦多应该有的三月，赶快让我们从严冬的蹂躏下喘口气吧。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/B5HZGQTLEBLJPGI3YI5F63NXE4.jpg)
 
-加拿大环境部发布预报显示3月17日星期四的最高气温为17摄氏度，预计全天天气晴朗，气温有可能会上升得更高。
 
-在经历了一个充满强风、冰冷的空气和那种从侧面吹来直接击中你眼球的雪之后，对多伦多许多人来说，这将是一场受欢迎的热浪，虽然是短暂的，但人们依旧期待。
+图片来源：路透社
 
-预计多伦多本周将开始变暖，到St. Patrick’s Day时将达到至少17摄氏度的高温。
+美国和英国正在加大对沙特阿拉伯的压力，要求其增加石油产量并联合努力孤立俄罗斯，而利雅得几乎没有表现出回应的意愿，并再次威胁要在向中共国出售石油时放弃美元。
 
-气天气网络的Kelly Sonnenburg在周一发布的最新消息中说：周四将真正感受到爱尔兰人的好运，预计气温将达到十几度。
+在美国安全顾问布雷特麦格克率美国代表团抵达的第二天，英国首相鲍里斯约翰逊周三飞抵世界最大的原油出口国。
 
-对多伦多人来说，这将是最近10多年来最温暖的St. Patrick’s Day。
+沙特阿拉伯及其邻国阿拉伯联合酋长国是少数几个拥有闲置产能的产油国之一，它们对西方要求增加原油以冷却炙手可热的价格的呼吁置之不理，并坚持与俄罗斯和其他国家签署欧佩克+供应协议。
 
-历史上多伦多St. Patrick’s Day有记录以来的最高温度是19.4摄氏度，发生在1945年3月17 日。而五年后的1950年的St. Patrick’s Day则是有记录以来的最低温度-19.4摄氏度。
+沙特事实上的统治者王储穆罕默德·本·萨勒曼 (Mohammed bin Salman) 因 2018 年沙特记者贾马尔·卡舒吉 (Jamal Khashoggi) 被谋杀、利雅得的人权记录和也门战争而面临西方尖锐批评。到目前为止，美国总统乔·拜登拒绝直接与被广泛称为 MbS 的王子打交道。
 
-天气网络说在本周末之前气温将与通常的4月下旬或5月初的气温相当，但是也别对春天早到报太大希望，因为到周末多伦多气温会下降，接近5摄氏度季节性气温，春天来临之前可能还会有更多的雪。
+由于美国与沙特的关系处于低谷，尽管沙特仍与华盛顿保持密切的安全关系，但沙特的回应是加强与俄罗斯和中共国的关系。
 
-来源：https://www.blogto.com/city/2022/03/toronto-expected-warmest-st-patricks-day-weather-10-years/
+两名消息人士称，美国官员周二会见了沙特高级官员，敦促他们增加石油产量并找到结束也门战争的政治解决方案，沙特领导的部队正在与伊朗支持的胡塞组织作战。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+🔗[https://www.reuters.com/world/saudi-prince-rebuked-by-west-faces-dilemma-over-russia-china-2022-03-16/](https://www.reuters.com/world/saudi-prince-rebuked-by-west-faces-dilemma-over-russia-china-2022-03-16/)
 
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑发表： Shuizhuyu
 
  
 

@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 10:04 PM (UTC)`
+
+3/15/2022 Miles Guo: The CCP is sparing no effort to defame the New Federal State of China and our rescue operation in Ukraine by spreading rumors in Africa and sending CCP-backed Bloomberg to interview us as a setup, but Nicole and our fellow fighters did an excellent job with smart responses at the interview; the NFSC people on the frontline demonstrate a new image of the new Chinese that earns respect from other Asian countries<br/><br/>3/15/2022  文贵直播:  中共不遗余力地企图诋毁新中国联邦在乌克兰的救援行动，他们不但在非洲散布谣言，还在乌克兰救援前线通过布隆伯格的采访给新中国联邦挖坑，但Nicole和前线战友们表现绝佳机智应对；新中国联邦人在前线展现了令其他亚洲国家尊重的新中国人的形象<br/>
+![img](https://media.gettr.com/group14/getter/2022/03/16/22/06c86e7c-d5ce-a148-3a67-848a8f4f17ba/out.jpg)
+
+---
+
+`@miles 3/16/2022 9:59 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-16
+![img](https://media.gettr.com/group25/origin/2022/03/16/21/3093ff23-d05d-2f4f-7f67-315ca8332c92/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/16/2022 6:55 PM (UTC)`
 
 1. The Italian war veteran WenKe presented the New  Federal Sate Of China  network on the front line to Davide Martello, the famous Italian-born war pianist from Germany. Music and technology, make us feel peace and freedom.<br/>2. Davide Martello played the national anthem of the New Federal State Of China  in tribute to <br/>the Rule of Law Foundation and the New  Federal State Of China for bringing warmth and hope in the midst of war.<br/>3. In the face of war and violence. Our children used their paintbrushes to draw the peaceful world they dreamed of.<br/><br/>1.意大利文科给德国的意大利裔著名战地钢琴家Davide Martello介绍新中国联邦在前线的卫星网络。音乐和科技让我们感受到和平和自由。<br/>2.Davide Martello为感谢法治基金和新中国联邦在战争和硝烟中带来温暖和希望，特意弹奏新中国联邦国歌，以示敬意。<br/>3.在战争和暴力面前，我们的孩子用画笔画出他们梦想的和平世界。
@@ -143,20 +157,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 【Ukraine Rescue】 03/16/22 Nicole was interviewed by an independent French reporter and explained to him that we're the NFSC people taking down the Chinese Communist Party because the Chinese Communist Party is the root cause of all the global disasters and humanitarian crisis, so taking down the Chinese Communist Party is the only way to save humanity<br/><br/>【乌克兰救援】 03/16/22 妮可接受法国独立记者的采访，向他介绍我们是消灭邪恶中共的新中国联邦人，中共是所有全球灾难和人道主义危机的根源，只有消灭中共才能拯救全人类<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group19/getter/2022/03/16/09/cc6e526f-dd91-a4de-f66b-5e0d69b8124c/out.jpg)
-
----
-
-`@miles 3/16/2022 9:00 AM (UTC)`
-
-The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Rescue Team – 24h Hotline: +1 7206576776 or +1 719-224-4232 or +48 508-532-712 or +48 508-531-518 Telegram: t.me/UkraineRescue GETTR: https://gettr.com/user/UkraineRescue<br/>我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є першопричиною катастроф у світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
-![img](https://media.gettr.com/group33/origin/2022/03/16/04/209b7700-8e67-53d0-f2bb-9f48b88dd8be/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/16/2022 8:51 AM (UTC)`
-
-3/15/2022 Miles Guo: Since the CCP has not invaded Taiwan, the third gate of taking down the CCP has not been completely opened. The CCP virus is rampant in Hong Kong and the combination of the previous variants and Omicron has emerged. Outbreaks of the virus in places like Jilin province indicate that the pandemic is out of the CCP’s control. The “Zero COVID” policy is a political fraud, which will lead to humanitarian disasters.<br/><br/>3/15/2022 文贵直播: 中共未对台开战，尚不能说灭共的第三道大门已经彻底打开；香港病毒肆虐，出现老病毒和奥米炕的混合体；吉林等地病毒大爆发说明中共疫情已失控，清零政策就是政治欺骗，从而导致人道灾难<br/>
-![img](https://media.gettr.com/group41/getter/2022/03/16/08/4b622fa8-9e4c-461f-876c-aca842cff18a/out.jpg)
 
 ---
 
