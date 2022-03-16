@@ -2,8 +2,8 @@
 ---
 
 
-## 救援行动中 新中国联邦迈向国际化
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2175333/)
+## 金融工具就是合法的诈骗手段
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2175406/)
 
 台灣寶島農場
 

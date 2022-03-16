@@ -2,38 +2,10 @@
 ---
 
 
-## 中共被停止SWIFT系统的后果
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2175149/)
+## 中共要打台湾，美国和世界现已深信不疑
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2175265/)
 
-作者: 纽约磐石农场—在远方
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
-在3月13日的大直播中，郭文贵先生解读了中共国如果被国际社会剔除SWIFT系统之后的凄惨结果。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0d2a854a1f1d14db938a4e001877bd8c.png)图片来源: GETTR (@himalayaathena)
-郭先生说，中共吹嘘为了攻打台湾，已经储备了两年半的粮食。这种把明年还没收割的粮食，都已“纳入”粮仓的说法，是典型的谎言。而2.5年的粮食，总共价值约为4000亿美元。但中共只有1万亿美元的外汇储备，而且还欠外债7000亿美元。如果中共因为侵略台湾，而被国际社会剔除SWIFT系统，人民币就会立刻变成冥币而失去购买功能。像津巴布韦和刚果一样，其通货膨胀就会达到无法想象的程度。
-
-被剔除SWIFT系统意味着中共国被踢出了地球村，被局限了活动范围、行为往来和贸易服务，并且中共高官的所有海外盗国资产都会被清零。
-
-参考链接: [https://www.gettr.com/post/pzvqw0a925](https://www.gettr.com/post/pzvqw0a925)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-33.jpg)
-
-编辑/校对/发稿: 卡夫卡的甲壳虫
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-
+台灣寶島農場
 
  
 

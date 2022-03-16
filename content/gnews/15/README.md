@@ -2,27 +2,35 @@
 ---
 
 
-## 有声｜拜登总统将访问欧洲讨论乌克兰议题
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2175083/)
+## 美专家再指心肌炎与中共病毒疫苗的关联
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2175229/)
 
-By:**秘翻新闻**
+作者：纽约磐石农场 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月14日，据盖特消息显示，美国心脏病专家彼得-麦卡洛教授日前在接受采访时指出，大量的证据表明，心肌炎与接种中共病毒疫苗有关。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-26.jpg)
+麦卡洛教授表示，美国正在推行的强制疫苗令是一个非常严重的问题。尤其自2021年中旬起，未成年人开始接种中共病毒疫苗，而在其后6个月中，超过两百篇不同类型的、关于心肌炎以及人体传导系统被破坏而需要放置起搏器的医学论文被陆续发表。
 
-**2022-03-16**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/316_8.png)图片来源 法广新闻
-[法广网](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220315-nbc%E6%8A%A5%E9%81%93-%E7%BE%8E%E5%9B%BD%E6%80%BB%E7%BB%9F%E6%8B%9C%E7%99%BB%E5%B0%86%E8%AE%BF%E9%97%AE%E6%AC%A7%E6%B4%B2)当地时间3月15日报道，白宫发言人普萨基15日发布声明表示，美国总统拜登将出访欧洲，参加24日在布鲁塞尔举行的北约特别峰会，讨论应对俄罗斯侵略乌克兰的问题。
+此外，麦卡洛教授也列举了众多因接种中共病毒疫苗而导致严重不良反应的案例：一名女孩在接种疫苗后被确诊患有心肌炎，这一病症随即引发了后续的移植感染，最终造成患者死亡。同时，还有很多优秀的运动员因接种中共病毒疫苗及其加强针而导致运动能力丧失，甚至猝死的病例。
 
-普萨基表示，拜登也会参加欧洲理事会峰会，讨论对乌克兰议题，包含跨大西洋对俄罗斯施加经济制裁、提供人道援助，以及应对随冲突而来的挑战等。
+对此，麦卡洛教授认为，医学界虽然尚不能完全掌握中共病毒疫苗的内幕，但政府以某种方式掩盖疫苗对儿童和成人所造成的伤害已经成为科学界的一部分共识。
 
-普萨基表示，这趟出访意在强调美国对北约盟友的承诺坚定如铁。
+参考链接：[我們不清楚這一切的背後到底是什麼，他們會以某種方式，來掩蓋所有這些正在受傷的兒童和一切，說這從未發生過。是誰在什麼時候接種了疫苗，什麼時候得了心肌炎，人們遲早會把兩者聯繫起來，目前貌似是相關的](https://www.gettr.com/post/pzv5mp745a)
 
-另据《纽约时报》报道，俄乌爆发战争，已促使美国外交思维发生巨变，幅度之大为911恐怖攻击事件以来之最，也让全美国充满使命感，对盟国及敌国皆是如此。俄罗斯侵略乌克兰，让美、欧团结的紧密程度，为二战以来仅有的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-（秘翻新闻 自由信仰 编译报道）
+总编：Irene木木
+编辑：宁文静
+审核：Irene木木
+校正/发稿：Fei797
 
-发布 : 文橙
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

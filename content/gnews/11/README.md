@@ -2,28 +2,34 @@
 ---
 
 
-## 联合国开发计划署：俄乌战争长期化将导致90%乌克兰人面临贫困
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2175185/)
+## 自由党希望加拿大成为“实验室肉类”引领者
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2175273/)
 
-撰稿：东京樱花团｜haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/mtxx01.png)
-[*图片来源*](https://images-ext-1.discordapp.net/external/pui1bh4siuH74k7M07-hOiU9BRfdIrLgA3UwmzDmeJM/%3Fexp%3D10800/https/newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220316-00000100-reut-000-2-view.jpg?width=912&amp;height=614)
+##### 作者：加拿大温哥华扬帆农场 – 薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-31.png)
+加拿大[[真北方](https://tnc.news/2022/03/14/liberals-want-canada-to-be-a-leader-in-lab-meat-production/)]14日报道，自由党议员热衷于气候变化和农业对全球气温威胁有关议题，紧扣联合国 “政府间气候变化专门委员会”（IPCC）的报告， 希望加拿大在生产替代性蛋白质来源，一种来自昆虫的 “实验室肉类” 方面成为领导者。
 
-联合国开发计划署（UNDP）3月16日预测说，如果俄罗斯和乌克兰的战争长期持续下去，乌克兰最多有90%的人口将面临贫困。
+2月28日，在IPCC发布的第六份题为《2022年气候变化：影响、适应和脆弱性》的评估报告中，专门提到 “用于食品和饲料替代蛋白质来源”。报告称“实验室肉类”或’清洁肉’未来将对人类蛋白质需求有潜在贡献。
 
-联合国开发计划署总裁施泰纳在接受路透社采访时指出：“如果纷争长期化，贫困率将大幅上升。最坏的情况是乌克兰经济全面崩溃，如果这样，最多90%的人将面临贫困线以下或高（贫困）的危险。”贫困线是表示能购买生活所需物品的最低收入的指标，根据斯坦纳的介绍，通常每人每天规定为5.50-13美元。俄罗斯军事侵略乌克兰之前，乌克兰境内每天生活在5.5美元贫困线以下人的比例约为2%。
+自由党议员认为这是一个高风险、高回报的举措，目前已成为美国、新加坡和以色列追求的目标，提议联邦政府投资于该技术。这一建议获得加拿大创新、科学和工业部部长商鹏飞的赞同。
 
-施泰纳强调说：“为了避免乌克兰经济崩溃，联合国开发计划署正在与乌克兰政府合作。”乌克兰政府高层有关人士10日表示：“俄罗斯军队在乌克兰至今已破坏了至少1000亿美元价值的基础设施，一半国内企业已经完全中断了工程。”
+强硬的环保主义者一直主张用人工产品、昆虫和藻类等替代品来取代肉类，以此来减少农业部门产生的碳排放。2013年，联合国世界粮农组织粮食发布报告，称世界应该放下偏见，准备开始食用虫子。
 
-施泰纳担忧地表示：“过去在乌克兰用18年时间积累的开发利润，在一年或一年半后有可能完全消失。”更强调了乌克兰在世界上的重要性，“非洲国家小麦进口的三分之一依靠乌克兰和俄罗斯，非洲45个发展中国家（LDC）正在致力于粮食仓库，以稳定国家的经济。”
+原文链接：[Liberals want Canada to be a leader in bug-based “lab meat” production](https://tnc.news/2022/03/14/liberals-want-canada-to-be-a-leader-in-bug-based-lab-meat-production/)
 
-信息来源：[**紛争長引けばウクライナ人の9割が貧困に直面＝国連開発計画**](https://news.yahoo.co.jp/articles/59034f89bdd400838cbb88c75489af8d17698ade)
+编辑/上传 – 大废墙
+素材/采编 – 薇文
+翻译 – 薇文
 
-校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-1.png)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,92 @@
 ---
 
 
-## 为中国同胞的命运祈福！
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2175189/)
+## 俄罗斯寡头遭遇西方制裁，超级豪华游艇命运几何？
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2175277/)
 
-**撰稿：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/22-16.jpg)
-中共国国内经济已经快要彻底崩溃了。生意失败，工作流失，贷款无法偿还，长期封锁已经把大多数中底层的中国人逼到了墙角。有些人连手机都卖了来维持基本生活需求，有些人对封锁也开始反感了。这一切所发生的都只不过是中共的一种手段：把人民变穷，制造生活上的混乱，开始紧紧地控制人民的言行举止。
+#### 【雅典娜观察】和您一起洞察世界
 
-那些曾经岁月静好的中国同胞也快要感受到中共的迫害，因为中共为了世界争霸一定不惜一切的牺牲所有中国老百姓的幸福福与利益。中共国社会渐渐地走向北韩模式，还有死亡率会随着疫苗导致的次生灾害飙升。少了很多人，这有利于中共中央控制民众。
+翻译/编辑：文泓
 
-我是一名新加坡华人，非常关心国内同胞的未来。我觉得中国同胞的选择可能有三个：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1797.png)
 
-第一：大多数的老百姓全都跪了，任由中共摆布。以大多数来压制少数的反抗声音，继续牺牲那些中共觉得没用的老百姓。
 
-第二：由于中共卖了“中国梦”给大多数人，这是一项可以激发人民对中共不满的导火线，导致大规模的反抗。假如大多数民众开始反省为什么“中国梦“那么不堪一击和为什么中共中央没有作为，个人私欲大过于国家，这样，中共聪明反被聪明误。
 
-第三：七哥说过要大家远离城市，到一个可以自足的地方，直到中共瓦解的那一天。食物，水和避免病毒感染应该是国内同胞最重要的考量。把所有欲望都抛开，一心一意的健康活着。团结也是生存的一个很重要的因素，互相帮助，互补长短，能长远地保存实力。
+图片来源：SuperYachtFan & 雅典娜设计组（SY A）
 
-但愿老天快点让中国老百姓的噩梦结束，南無阿弥陀佛！
+
+对于俄罗斯的寡头们而言，西方社会统一的制裁行动正在造成真正的麻烦。他们的超级豪华游艇为躲避制裁东躲西藏、落荒而逃。现在盘点一下寡头们游艇的命运。
+
+最有名航海狂人数罗曼·阿布拉莫维奇（Roman Abramovich），上周二欧盟将他列入制裁名单，他有两艘游艇要紧急处理。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1799.png)
+
+
+
+图片来源： Auto Evolution（**Solaris**）
+
+
+这艘价值4.74亿美元、长458英尺的巨型游艇Solaris，原在巴塞罗那的一个修理厂里，但现在已脱离了欧盟的制裁网络，正在穿越地中海的路上。
+
+周日，它在俄罗斯水手喜欢的一个泊位——黑山共和国外抛锚，此地恰好没有与美国签订引渡条约。
+
+现在，它正朝着土耳其的方向行驶，这个国家是北约成员国，但没有加入西方对俄罗斯的制裁。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1801.png)
+
+
+
+图片来源：Boat International（**Eclipse**）
+
+
+阿布的另一艘游艇，价值4.38亿美元的“Eclipse”，是一艘533英尺的游艇，据说有自己的导弹防御系统，上周通过直布罗陀海峡进入地中海，目前是在前往加勒比海的路上。
+
+目前它正游弋在阿尔及利亚海岸附近，与此同时，阿布本人周一被发现在特拉维夫的本古里安机场，因阿布拉莫维奇先生拥有俄罗斯和以色列双重国籍，而以色列是另一个没有签署制裁协议的国家。
+
+阿布是比较幸运，其他热爱海洋的寡头们就没有这么幸运了。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1802.png)图片来源：CharterWorld
+
+
+与俄罗斯总统普京关系密切的化肥和煤炭亿万富翁安德烈·梅尔尼琴科（Andrey Melnichenko），上周末在港口城市的里雅斯特，意大利警方扣押了他价值6亿美元、469英尺的超级游艇SY A——据称是世界上最大的私人帆船。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1803.png)图片来源：Moran Yacht& Ship （Lady M）
+
+
+早些时候意大利当局还查获了俄罗斯首富、钢铁巨头阿列克谢·莫尔达索夫（Alexey Mordashov）拥有的价值2700万美元的Lady M，及金融家和普京助手根纳季·季姆琴科（Gennady Timchenko）的Lena。
+
+法国在3月初扣押了280英尺的游艇Amore Vero，它与普京先生最信任的心腹之一的伊戈尔·谢钦（Igor Sechin）有关。其他的超级游艇正匆匆忙忙地逃离西方的包围圈，前往马尔代夫和塞舌尔的安全地带。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1804.png)
+
+
+而莫尔达索夫先生的第二艘游艇Nord，估计价值3亿美元，上周在塞舌尔附近抛锚，现在正向马尔代夫驶去。
+
+目前，甚至一些不在制裁名单上的俄罗斯亿万富翁船主正在把他们的船开往远离制裁的宁静水域。
+
+科技大师尤里·米尔纳（Yuri Milner）的游艇Andromeda也在塞舌尔群岛附近；零售业巨头谢尔盖·加利茨基（Sergey Galitsky）的340英尺游艇Quantum Blue已经从摩纳哥（曾被短暂扣留）出发，前往苏伊士运河附近的埃及小镇赛德港。其他船只正在完全脱离网络，关闭允许船只被追踪的自动信息系统。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1805.png)图片来源：CharterWorld （**Amadea**）
+
+
+根据美国海军研究所的资料，被制裁的投资银行家苏莱曼·克里莫夫（Suleyman Kerimov）拥有的348英尺长游艇Amadea，在2月24日，即制裁开始的那一天，停止传输其位置。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1806.png)图片来源：Auto Evolution（**Graceful**）
+
+
+还有一艘俄罗斯的超级游艇，早在在制裁开始之前就已经采取行动。价值1亿美元、270英尺的超级游艇Graceful于2月7日从汉堡船厂锚地起航，凭借超人的远见，突然取消了这项预定的维护工作。
+
+在俄罗斯入侵前整整两个星期，2月9日它已经安全地停靠在俄罗斯飞地加里宁格勒，船主就是弗拉基米尔·普京。
+
+参考链接：[How Russia’s oligarchs are steering their super yachts to safety (afr.com)](https://www.afr.com/world/europe/how-russia-s-oligarchs-are-steering-their-super-yachts-to-safety-20220316-p5a4z6)
+
+发布：星谕
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
