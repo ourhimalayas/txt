@@ -2,44 +2,53 @@
 ---
 
 
-## 中共经济危机重重
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2175084/)
+## 德保险公司解雇发布COVID疫苗伤害数据的首席执行官
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2175075/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月15日，据相关媒体消息显示，香港恒生指数当天依旧延续前一天的颓势，再次大跌超过5%，直接跌穿两万点的支撑位，且盘后仍继续下行。 对此，郭文贵先生也在盖特平台上发布消息称，一位香港的朋友发信感谢郭先生早前的提醒，从而让他能在港股崩溃前撤出资金。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-28.jpg)
-同一日，各类经济负面消息充斥着整个中共国内的新闻版面。首先，墙内上证指数大跌2.6%，深成指和创业板跌幅也双双超过3%。其次，腾讯和阿里均被爆出将减少三成员工。同时，有消息人士透露，腾讯还因微信支付违反了中共的《反洗钱法》，即将面临创纪录的巨额罚单。
+**翻译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip德保险公司解雇发布COVID疫苗伤害数据的首席执行官.png)图片来源：childrenshealthdefense.org
+上个月，德国最大的健康保险公司之一的首席执行官，在发布数据表明德国卫生当局严重低估了 COVID-19 疫苗伤害的报告后，被突然解雇。
 
-另一方面，中共恒大集团宣布，其将退出广州南沙阳光半岛项目，并将该项目划归给某中共央企接盘。有评论人士称，恒大早已无力摆脱自身的债务困境，中共的房地产企业危机将进一步恶化。
+由安德烈亚斯·肖夫贝克（Andreas Schofbeck）在 BKK/ProVita 发布的数据已从公司网站上删除。
 
-最后，中共福建省银保监局当天突然发表声明扬言，中共国内的银行理财产品并非零风险，为此，当局要求消费者提高对所有理财产品的风险意识。
+肖夫贝克注意到，与疫苗相关的健康保险索赔意外增加，他在 2 月通知保罗·埃利希研究所（Paul Ehrlich Institude PEI）——相当于德国的CDC——BKK 数据表明 ，PEI 少报了COVID 疫苗的不良事件。
 
-郭先生早先在直播中强调，一旦港股跌破两万点大关，中共的经济必然会出现严重的问题。而今，中共国内的经济现状正在逐渐显露出其破败的真面目。
+肖夫贝克在给 PEI 的信中写道：
 
-参考链接：
-1. [3月14号太多，我的好多投资领域，已经投资了香港的朋友，给我发了类似这样的信息**🙈🙈🙈**但愿有更多人能跟随新中国联邦，做一个消灭中国共产党的得到自己真正信仰的人。](https://www.gettr.com/post/p1024xd1423)
-2. [消息称腾讯阿里将大规模裁员，最高涉及30%](https://www.sohu.com/a/529520628_118792)
-3. [騰訊傳因微信支付違規或面臨創紀錄罰款](https://udn.com/news/story/7333/6164242?from=udn-ch1_breaknews-1-cate4-news)
-4. [银行理财产品也开始亏钱了，福建银保监局提醒：净值化时代“零风险”都成过去式](https://www.sohu.com/a/529726303_313745)
-5. [恒大集团退出广州南沙阳光半岛项目，央企中航信托接手](https://finance.sina.com.cn/jjxw/2022-03-14/doc-imcwiwss6015961.shtml)
-6. [多因素导致A股市场大跌：短期超卖后市场信心的重建需要时间](http://finance.china.com.cn/stock/zqyw/20220315/5763122.shtml)
-7. [收评：港股恒指跌5.72%恒生科指跌8.1% 腾讯跌10%失守300港元](https://finance.sina.com.cn/stock/hkstock/marketalerts/2022-03-15/doc-imcwipih8610116.shtml)
+“如果将这些数字扩展到全年和德国人口，**德国可能有 25-300 万人在**新冠疫苗接种后，接受了疫苗接种副作用（AE）的治疗。” 然而，根据一些专家的说法，当涉及到 COVID 疫苗不良事件和死亡的准确性时，保险公司的数据可能最终被证明是最能说明问题的——这是因为，保险公司非常积极地仔细跟踪其数据中可能产生深远影响的任何异常情况，这关乎他们的利润和损失。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+BKK 数据与美国保险业数据和以色列卫生部进行的一项调查收集的不良事件报告不谋而合。
 
-总编：Irene木木
-编辑：Ivy001
-审核：Irene木木
-校正/发稿：Fei797
+BKK 数据揭示了令人担忧的安全信号
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据肖夫贝克2 月 21 日致 PEI 的信函：
+
+- 分析了来自 **1090 万人的数据**。
+- 根据医生账单数据，2021年前2.5个季度，**有216,695人接受了疫苗AE治疗**。
+- 对 8300 万人的一整年推断的数据意味着**， 25-300 万人可能接受了AE治疗**。
+- 4-5% 的接种疫苗者接受了 AE 治疗。
+
+
+在他的信中，肖夫贝克推测了漏报的可能原因，并指出：
+
+“我们的第一个假设是，由于报告疫苗不良事件不支付任何补偿，因此，通常不会向 PEI报告，因为涉及的费用很高。医生向我们报告，报告疑似疫苗不良事件大约需要半小时。这意味着 300 万例疫苗不良事件疑似病例，需要大约 150 万个医生的工作时间。”
+
+肖夫贝克得出的结论是，这些数据提供了一个“重要的警告信号”，并且“不能排除对人类生命的危险”。
+
+尽管 PEI 公开宣布将与 BKK 合作审查数据，但截至肖夫贝克被公司解雇时，当局尚未对他关于少报的说法展开调查。
+
+**素材链接**：[childrenshealthdefense.org][German Insurance Company Fires CEO Who Released COVID Vaccine Injury Data, Then Scrubs Data From Website](https://childrenshealthdefense.org/defender/german-insurance-fires-andreas-schofbeck-covid-vaccine-injuries-data/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=e3e53e22-a272-44df-8cef-aaf2fbc79c92)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

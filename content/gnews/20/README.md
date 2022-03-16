@@ -2,52 +2,46 @@
 ---
 
 
-## 德保险公司解雇发布COVID疫苗伤害数据的首席执行官
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2175075/)
+## 英国COVID感染再度上升 九成死亡发生在接种疫苗人群
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2174910/)
 
-**翻译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip德保险公司解雇发布COVID疫苗伤害数据的首席执行官.png)图片来源：childrenshealthdefense.org
-上个月，德国最大的健康保险公司之一的首席执行官，在发布数据表明德国卫生当局严重低估了 COVID-19 疫苗伤害的报告后，被突然解雇。
+编译：Jenny Ball
 
-由安德烈亚斯·肖夫贝克（Andreas Schofbeck）在 BKK/ProVita 发布的数据已从公司网站上删除。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Covid-19-Coronavirus-Virus-Concept.jpg)图片来源：newstarget.com
 
-肖夫贝克注意到，与疫苗相关的健康保险索赔意外增加，他在 2 月通知保罗·埃利希研究所（Paul Ehrlich Institude PEI）——相当于德国的CDC——BKK 数据表明 ，PEI 少报了COVID 疫苗的不良事件。
+上月底俄罗斯入侵乌克兰后，全世界都在关注乌克兰的战争，而全球领导人之间的大多数对话都集中在这场战争上。
 
-肖夫贝克在给 PEI 的信中写道：
+**这意味着几乎没有人谈论通胀上升、持续的供应链危机、经济管理不善，当然还有新冠大流行。**
 
-“如果将这些数字扩展到全年和德国人口，**德国可能有 25-300 万人在**新冠疫苗接种后，接受了疫苗接种副作用（AE）的治疗。” 然而，根据一些专家的说法，当涉及到 COVID 疫苗不良事件和死亡的准确性时，保险公司的数据可能最终被证明是最能说明问题的——这是因为，保险公司非常积极地仔细跟踪其数据中可能产生深远影响的任何异常情况，这关乎他们的利润和损失。
+但有些人仍在关注这些问题，尤其是新冠病毒——包括《纽约时报》前作家亚历克斯·贝伦森，他从一开始就关注这一流行病，并经常在大多数人看到新模式之前就打破关于新兴模式叙述的故事。
 
-BKK 数据与美国保险业数据和以色列卫生部进行的一项调查收集的不良事件报告不谋而合。
+他在英国发现了一个这样的新模式：在那里，目前 COVID 感染率再次上升，更糟糕的是，90% 死于该病毒的人已经接种了疫苗，这导致他推测世界已经浪费了实现群体免疫的机会。
 
-BKK 数据揭示了令人担忧的安全信号
+上周晚些时候，贝伦森在他的子栈（Substack） 页面上写道：“来自英国的新数据，在去年使用 mRNA 和 DNA 注射试图击败冠状病毒的富裕国家，引发了关于 Covid 发展方向点亮了危险信号。”“**住院和死亡人数仍然居高不下，绝大多数发生在接种疫苗的人身上**。2 月，每周死于新冠病毒的 1000 名英国人中，有 90% 接种了疫苗。”
 
-根据肖夫贝克2 月 21 日致 PEI 的信函：
+贝伦森继续指出，不仅新感染人数远高于 Omicron 变体出现之前，而且，在 2 月份短暂下降之后，它们也再次上升。此外，他说，加强疫苗似乎没有为年轻人住院提供太多保护。
 
-- 分析了来自 **1090 万人的数据**。
-- 根据医生账单数据，2021年前2.5个季度，**有216,695人接受了疫苗AE治疗**。
-- 对 8300 万人的一整年推断的数据意味着**， 25-300 万人可能接受了AE治疗**。
-- 4-5% 的接种疫苗者接受了 AE 治疗。
+他还指出，英国有关 COVID 的数据至关重要，因为该国很早就为人口注射了加强剂，而且，英国的数据集“比美国的数据集更完整，政治化程度更低”。
 
+“日复一日，一周又一周，**这些数字变得越来越令人担忧**。他们暗示，如果不能完全阻止早期呼吸道病毒流行中发生的群体免疫的自然进展，mRNA 和 DNA 注射可能会减慢自然进展速度，”他警告说。
 
-在他的信中，肖夫贝克推测了漏报的可能原因，并指出：
+“事实上，英国现在报告说 99% 的成年人对 COVID 有抗体，主要是接种疫苗的结果。**这一水平远远高于流行病学家认为支持群体免疫所必需的水平**。然而，COVID 感染、住院和死亡人数继续有增无减，”贝伦森继续说道。“现在有近 12,000 名英国人因 COVID 住院，比去年这个时候还要多。”
 
-“我们的第一个假设是，由于报告疫苗不良事件不支付任何补偿，因此，通常不会向 PEI报告，因为涉及的费用很高。医生向我们报告，报告疑似疫苗不良事件大约需要半小时。这意味着 300 万例疫苗不良事件疑似病例，需要大约 150 万个医生的工作时间。”
+这位前《泰晤士报》作家还发布了一张“令人惊叹”的图表，其中包含英国政府定期发布的近期每周“监视报告”：
 
-肖夫贝克得出的结论是，这些数据提供了一个“重要的警告信号”，并且“不能排除对人类生命的危险”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/british-COVID-report.jpg)[图标来源](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1058464/Vaccine-surveillance-report-week-9.pdf)
 
-尽管 PEI 公开宣布将与 BKK 合作审查数据，但截至肖夫贝克被公司解雇时，当局尚未对他关于少报的说法展开调查。
+**评论：随着五月份专家预测的疫苗灾难大爆发的临近，我们只有祈祷更多的人能够在疫苗的谎言中清醒过来，祈祷更多被注射了mRNA实验的人，能够及早使用解药青蒿素排除刺突蛋白的毒素。90%接种人群的死亡率，所有数据点亮的危险信号意味着，疫苗的灾难将远远大于所有人类战争之和！**
 
-**素材链接**：[childrenshealthdefense.org][German Insurance Company Fires CEO Who Released COVID Vaccine Injury Data, Then Scrubs Data From Website](https://childrenshealthdefense.org/defender/german-insurance-fires-andreas-schofbeck-covid-vaccine-injuries-data/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=e3e53e22-a272-44df-8cef-aaf2fbc79c92)
+参考资料：[newstarget][Britain experiencing COVID infection rise again with 90% of deaths occurring in the vaccinated: Have we lost chance for herd immunity forever?](https://www.newstarget.com/2022-03-14-britain-experiencing-covid-infection-rise-again.html)
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+*审核：文乐*
+*校对：阿伯塔*
+*发布：信心的选择*
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
-
-
 
  
 

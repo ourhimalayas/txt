@@ -2,8 +2,8 @@
 ---
 
 
-## 我们是新中国联邦人 目标是灭共（上）
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2175514/)
+## 习近平现阶段最大的危机是健康问题
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2175610/)
 
 台灣寶島農場
 

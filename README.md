@@ -15,38 +15,38 @@
 
 ---
 
-### [我们是新中国联邦人 目标是灭共（上）](/content/gnews/1/README.md)
+### [习近平现阶段最大的危机是健康问题](/content/gnews/1/README.md)
  ` G-NEWS TAIWAN`
 
-### [20220315郭文贵大直播 ：广东经济的崩塌是共产党的噩梦开始](/content/gnews/2/README.md)
- ` Tokyo Sakura Video Group`
-
-### [俄军队无差别攻击遭世界谴责](/content/gnews/3/README.md)
+### [俄罗斯即将掀起大规模债务违约潮](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [樱花时政┃俄4舰驶入津轻海峡 中共国无人机突进防空识别区](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|新中国联邦法治基金乌克兰人道救援信息](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [美方对中共国援俄后果提出警告](/content/gnews/6/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [宝马、米其林供应链中断，阳狮放弃在俄罗斯的控制权](/content/gnews/7/README.md)
- ` Shuizhuyu`
-
-### [3/15/2022 文贵直播: 中共未对台开战，尚不能说灭共的第三道大门已经彻底打开；香港病毒肆虐，出现老病毒和奥米炕的混合体，吉林等地病毒大爆发说明中共疫情已失控](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
-
-### [蓬佩奥表示普京和其支持者应当为侵略行径付出代价](/content/gnews/9/README.md)
+### [乌克兰向俄罗斯军车发射火箭炮](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [梅迪卡营救中心成为该营地国际救援会议中心](/content/gnews/10/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [有声|发动侵略战争 俄罗斯所受制裁已成全球最多](/content/gnews/11/README.md)
+### [有声|推荐墙诗：梦中的真实](/content/gnews/4/README.md)
  ` MOSREC`
+
+### [英国继续对俄罗斯和白俄罗斯个人和实体实施制裁](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [我们是新中国联邦人 目标是灭共（上）](/content/gnews/6/README.md)
+ ` G-NEWS TAIWAN`
+
+### [20220315郭文贵大直播 ：广东经济的崩塌是共产党的噩梦开始](/content/gnews/7/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [普京抓捕情报机构高管](/content/gnews/8/README.md)
+ ` GTV News Talk`
+
+### [有声|新中国联邦法治基金乌克兰人道救援信息](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [3/15/2022 文贵直播: 中共未对台开战，尚不能说灭共的第三道大门已经彻底打开；香港病毒肆虐，出现老病毒和奥米炕的混合体，吉林等地病毒大爆发说明中共疫情已失控](/content/gnews/10/README.md)
+ ` 秘密翻译组-北美组`
+
+### [秘翻在线：中印俄欲打造“亚洲货币” 挑战美元](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [中共Y-8军机南海坠毁](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
@@ -63,71 +63,71 @@
 ### [美专家再指心肌炎与中共病毒疫苗的关联](/content/gnews/16/README.md)
  ` NFSC News`
 
-### [中共被停止SWIFT系统的后果](/content/gnews/17/README.md)
- ` GTV News Talk`
-
-### [惠誉：如果俄罗斯以卢布支付美元债券票息将构成主权违约](/content/gnews/18/README.md)
+### [惠誉：如果俄罗斯以卢布支付美元债券票息将构成主权违约](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共经济危机重重](/content/gnews/19/README.md)
+### [中共经济危机重重](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [德保险公司解雇发布COVID疫苗伤害数据的首席执行官](/content/gnews/20/README.md)
+### [德保险公司解雇发布COVID疫苗伤害数据的首席执行官](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国COVID感染再度上升 九成死亡发生在接种疫苗人群](/content/gnews/21/README.md)
+### [英国COVID感染再度上升 九成死亡发生在接种疫苗人群](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登计划下周前往欧洲讨论俄罗斯](/content/gnews/22/README.md)
+### [拜登计划下周前往欧洲讨论俄罗斯](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【 G时新闻 】英国防部消息人士称俄只能再维持两周的战斗](/content/gnews/23/README.md)
+### [【 G时新闻 】英国防部消息人士称俄只能再维持两周的战斗](/content/gnews/22/README.md)
  ` G-时新闻`
 
-### [乌克兰人道救援国际合作会议，继续在新中国联邦大帐篷进行](/content/gnews/24/README.md)
+### [乌克兰人道救援国际合作会议，继续在新中国联邦大帐篷进行](/content/gnews/23/README.md)
  ` 波士顿五月花农场`
 
-### [美中外长罗马会谈无果](/content/gnews/25/README.md)
+### [美中外长罗马会谈无果](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [三星暂停向俄罗斯供货](/content/gnews/26/README.md)
+### [三星暂停向俄罗斯供货](/content/gnews/25/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [秘翻新闻｜拜登將访欧讨论乌克兰议题](/content/gnews/27/README.md)
+### [秘翻新闻｜拜登將访欧讨论乌克兰议题](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [福克斯新闻两员工 在基辅遭炮击身亡](/content/gnews/28/README.md)
+### [福克斯新闻两员工 在基辅遭炮击身亡](/content/gnews/27/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [消息：日本将撤销俄罗斯最惠国待遇](/content/gnews/29/README.md)
+### [消息：日本将撤销俄罗斯最惠国待遇](/content/gnews/28/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [现身直播举反战标语 俄女编辑被罚3万卢布](/content/gnews/30/README.md)
+### [现身直播举反战标语 俄女编辑被罚3万卢布](/content/gnews/29/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [日本将取消所有COVID(CCP Virus)限制](/content/gnews/31/README.md)
+### [日本将取消所有COVID(CCP Virus)限制](/content/gnews/30/README.md)
  ` 日本东京方舟农场`
 
-### [欧盟三国领导人深入基辅进行访问](/content/gnews/32/README.md)
+### [欧盟三国领导人深入基辅进行访问](/content/gnews/31/README.md)
  ` 日本东京方舟农场`
 
-### [台湾国军标枪反装甲飞弹和刺针防空飞弹，直击中共两栖机械部队抢滩](/content/gnews/33/README.md)
+### [台湾国军标枪反装甲飞弹和刺针防空飞弹，直击中共两栖机械部队抢滩](/content/gnews/32/README.md)
  ` G-NEWS TAIWAN`
 
-### [乌克兰救援前线报道3.16.2022：波兰前线的成员们任重而道远](/content/gnews/34/README.md)
+### [乌克兰救援前线报道3.16.2022：波兰前线的成员们任重而道远](/content/gnews/33/README.md)
  ` 秘密翻译组-原创组`
 
-### [亚洲｜朝鲜发射新型弹道导弹惊动美国 分析：可能危害美国本土](/content/gnews/35/README.md)
+### [亚洲｜朝鲜发射新型弹道导弹惊动美国 分析：可能危害美国本土](/content/gnews/34/README.md)
  ` 關注組`
 
-### [新西兰财经G乐部2022年3月16日:财经新闻整理](/content/gnews/36/README.md)
+### [新西兰财经G乐部2022年3月16日:财经新闻整理](/content/gnews/35/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [苹果供应商富士康在COVID封锁下关闭深圳厂区](/content/gnews/37/README.md)
+### [苹果供应商富士康在COVID封锁下关闭深圳厂区](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声｜中共早已“金玉其外，败絮其中”](/content/gnews/38/README.md)
+### [有声｜中共早已“金玉其外，败絮其中”](/content/gnews/37/README.md)
  ` 秘密翻译组-即时新闻播报组`
+
+### [奥密克戎疫情恶化 危及中共经济核心上海和广东](/content/gnews/38/README.md)
+ ` 日本東京方舟農場`
 
 ### [拜登签署法案,向乌克兰提供历史性的136亿美元资金](/content/gnews/39/README.md)
  ` 美国政要直译推`
