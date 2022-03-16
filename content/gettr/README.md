@@ -17,7 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 3/16/2022 1:08 PM (UTC)`
+`@miles 3/16/2022 1:16 PM (UTC)`
+
+【Ukraine Rescue】03/16/2022 Nicole interviews a cameraman from a Spanish news outlet and introduces us as the New Chinese from the New Federal State of China who are taking down the Chinese Communist Party.The cameraman says “You are doing good, We are proud of you with your collaboration!”<br/><br/>【乌克兰救援】03/16/2022 妮可采访一家西班牙新闻媒体的摄影师，并向他介绍我们是来自新中国联邦的新中国人，我们的目标是推翻中国共产党。这位摄影师说：“你们做得很棒！我为你们的合作感到自豪！”<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group44/getter/2022/03/16/13/b85f7407-a277-326b-3b49-350b1398d94d/out.jpg)
+
+---
+
+`@miles 3/16/2022 1:13 PM (UTC)`
+
+3月16号，尊敬的战友们好，香港病毒大流行，正在导致香港大量人员，被秘密死亡，一切死亡和感染的数据都是假的……共产党的经济和将实行的攻台计划！引发了党内的剧烈的政治斗争。共产党人为了保护自己的巨额财富，要与太阳拼死一战，也保护自己的海外市场和私生子女！
+![img](https://media.gettr.com/group20/getter/2022/03/16/13/2456de69-708d-9c4a-67bc-11bbe72c0ae7/out.jpg)
+
+---
+
+`@miles 3/16/2022 1:11 PM (UTC)`
 
 The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Rescue Team – 24h Hotline: +1 7206576776 or +1 719-224-4232 or +48 508-532-712 or +48 508-531-518 Telegram: t.me/UkraineRescue GETTR: https://gettr.com/user/UkraineRescue<br/>我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є першопричиною катастроф у світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
 ![img](https://media.gettr.com/group33/origin/2022/03/16/04/209b7700-8e67-53d0-f2bb-9f48b88dd8be/6383d6c383a688bc0ce747d8282e44b3.jpeg)
@@ -142,20 +156,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 Steve Bannon: Do we have an alternative but to take down the CCP?<br/>CAPT Jim Fanell: No!<br/>班农先生：除了灭掉中共以外，我们还有其它选择吗？<br/>战斗室嘉宾：没有！你不灭掉它，它就杀死你<br/><br/>班农先生越来越直接了！
 ![img](https://media.gettr.com/group47/origin/2022/03/15/01/17478d31-bd8f-9554-39c5-c5ff764360b5/out.jpg)
-
----
-
-`@miles 3/16/2022 12:37 AM (UTC)`
-
-2022.03.15 晚 《新中国联邦新闻》乌克兰总统顾问预计战争最快5月结束；西班牙扣押普京盟友的豪华游艇
-![img](https://media.gettr.com/group41/origin/2022/03/16/00/b0efd273-d254-7cfa-9269-97f67d35a8b2/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/15/2022 11:43 PM (UTC)`
-
-2022.03.15《The Fringe》 Episode 147   GUERRA ENVOLVE MAIS PAISES E MERCENARIOS
-![img](https://media.gettr.com/group17/origin/2022/03/15/23/33ad756e-4c4f-4879-cac7-bc40f8776274/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
