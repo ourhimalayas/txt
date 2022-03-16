@@ -2,25 +2,25 @@
 ---
 
 
-## 俄罗斯国营电视台现场直播中女工作人员呼吁反战
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170869/)
+## 中共国每年有2381.2万件消费投诉事件
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2170903/)
 
-撰稿：东京樱花团｜haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1684.png)[*图片来源*](https://news.yahoo.co.jp/articles/1b4888aada5c7cb4c3397a2a041567450b8e3b70/images/000)
-“停止战争！不要相信宣传，他们在这里说谎！”3月14日，一名女性闯入俄罗斯国营电视台新闻节目，在播音员身后向观众呼吁，提出反战标语。该事件发生在1频道直播中，被拍到的女性是该电台的工作人员玛丽娜·奥夫沙尼科娃。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-76.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.caixin.com%2F2017-03-15%2F1489575465929654.jpg&amp;imgrefurl=https%3A%2F%2Fdatanews.caixin.com%2Fm%2F2017-03-15%2F101066373.html&amp;tbnid=JPDHTOdfEf4UHM&amp;vet=12ahUKEwiai_CYz8j2AhVK0uAKHfrhAGcQMygIegUIARCaAQ..i&amp;docid=gcjVTTfc1Yy31M&amp;w=480&amp;h=320&amp;itg=1&amp;q=3.15%E6%8A%95%E8%AF%89&amp;ved=2ahUKEwiai_CYz8j2AhVK0uAKHfrhAGcQMygIegUIARCaAQ)
+3月15日每经经济报道，去年，通过全国12315平台等渠道共受理消费者投诉举报咨询2381.2
 
-独立新闻网站“美杜莎”的编辑凯文·罗斯洛克在推特上上传了奥夫沙尼科娃事先录制的视频信息。视频中，她吐露说，父亲是乌克兰人，为参与克里姆林宫的宣传而感到羞愧。
+万件，为消费者挽回经济损失55.5亿元，同比增长26%。通过构建有群众参与的全局性、动态性评价体系，调解成功率提高30.9个百分点，投诉举报处理时长缩短15.41天，消费维权效能明显提升，已推动8.7万家重点企业入驻全国12315平台。
 
-“乌克兰发生的事情就是犯罪，俄罗斯是侵略国，此次侵略的责任在于普京的良心。”视频通过社交媒体迅速传播开来。
+中共新闻统计在不经意间透漏出了中共国假丑骗的经济市场，每年投诉举报2381.2万件，为消费者挽回损失55.5亿元，中共以此为光荣事件，从来不去考虑源头的问题，为何有这么多投诉？
 
-“我们俄罗斯人因为能思考，所以很聪明。能够阻止这种疯狂的只有我们的力量。我们抗议吧！什么都不要害怕，因为他们不能把我们所有人都关起来。”
+中共把消费者当做牛羊一般任人屠宰，中国人每天都在假丑骗中度过，只有消灭共产党才可以解救国人。
 
-几家媒体随后报道了奥夫沙尼科娃被警方逮捕的消息，国营塔斯社报道说，有可能被关几天。但是，如果被判犯有侵袭乌克兰后普京总统签署的《伪新闻法》的话，最高可判处15年监禁。
+消息来源：
 
-信息来源：[**【映像】ロシア国営テレビの生放送でスタッフ女性が反戦を訴える**](https://news.yahoo.co.jp/articles/1b4888aada5c7cb4c3397a2a041567450b8e3b70)
+[【2021年全国12315平台挽回消费者损失超55亿元】](https://ml.mbd.baidu.com/r/CRDAzsEl8s?f=cp&amp;rs=2054748433&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=5b73362f459212bb&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 

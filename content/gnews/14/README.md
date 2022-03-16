@@ -2,33 +2,38 @@
 ---
 
 
-## 澳媒报道：俄军俘虏称“感到耻辱”（4）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2171300/)
+## 有声|中共为战争控制大陆百姓以家为牢
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2171369/)
 
-撰稿：喜妈
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月24日，乌克兰战争爆发，郭文贵先生曾发出预警，习近平与普京早有预谋，将在中东开启第二战场，打击美国等西方国家的供油生命线。果然，中东开始发生了战事，上周五，胡塞武装用无人机对沙特石油设施实施了轰炸。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-7.jpg)
+战争同时，中国大陆突然在大多数省市同时出现严重疫情。其实战争之前，中共早已通过制造疫情实现学校停课，商家关门。中共不费一兵一卒，把百姓以家为牢，将百姓圈禁起来。通过扫描打卡，严密监视百姓行踪，变相实行军管。此外，中共还控制舆论，禁止同情乌克兰。
 
-视频&字幕：喜安娜
+疫情成为配合中共在世界各地开战的工具，任世界发生天翻地覆的变化，中国百姓都可以避而不见，把所有关注都集中在控制疫情上，中共已经把疫情变成控制百姓的有效工具。
 
-澳媒最近报道，在俄罗斯发动的对乌克兰的侵略战争中，被俘虏的俄国军人称，为自己参与的战争感到“耻辱”。自己参与这次由普京发起的邪恶侵略战争，无法“赎回”，也无法“清除”罪恶。
 
-视频文字如下：
 
-这个女士站在这里，并哭泣，我感到耻辱。我不知道，我们为什么要做这个，我们知道得很少，我们以自己的思考来说极少。我们为这块土地带来忧伤。不知道，多少时间可以清除这一切，有可能赎回吗？我们会坐牢或以我们应得的方式（受到惩罚）。
+文字版原文：[中共为战争控制大陆百姓以家为牢](https://gnews.org/zh-hans/2166197/)
 
-从以上内容，笔者认为，战争带给所有俄罗斯参战军人的，不仅是耻辱；正如这位俘虏军人所说，是无法赎回的罪过。即使他们以坐牢或者其他方式被惩罚，也不一定能够实现赎罪的想法。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-同时，这位俘虏的俄罗斯军人说得很实在，他们的所作所为在乌克兰的土地上，带来的伤害，带来的忧伤，也是无法清除的。因为，战争太残忍，这战争里死伤的生命，岂是一个赎罪和悔恨能够复原和抚平？
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-这就是为什么，我们要反战，要和平，要消灭邪恶的原因所在。一切的邪恶都是少数人的作为，是为少数人的利益所存在；消灭这邪恶少数人，世界才能获得安宁和秩序。相信，通过这次战争，不仅乌克兰人民看清楚了战争的实质，俄罗斯人民也看清楚了战争的实质，世界都看到和明白，谁在战争的背后，谁是战争罪犯，谁是邪恶的少数人。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-传递真相，消除邪恶，人人都有责任，每个人都需要行动起来，捍卫正义。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-参考消息：
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-‘I feel shame’: Captured Russian soldier’s powerful denunciation of Ukraine invasion
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[https://apple.news/ADr679sgOQEqyG0l5hlXGeQ](https://apple.news/ADr679sgOQEqyG0l5hlXGeQ)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
