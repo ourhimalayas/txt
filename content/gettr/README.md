@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 11:30 PM (UTC)`
+
+2022.03.16《The Fringe》 Episode 148
+![img](https://media.gettr.com/group44/origin/2022/03/16/23/857daff6-8aa8-c647-5b07-ec621dce4bb5/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/16/2022 11:01 PM (UTC)`
 
 2022.03.16 NFSC News   NFSC Volunteers overcome difficulties and stick to their duty； CCP and Russia’s plot on countering and diverting attention of the West
@@ -150,13 +157,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 【乌克兰救援】 03/16/22 一位波兰志愿者丹尼尔表示，新中国联邦的咖啡在整个基地是个传奇。他身旁的美国志愿者虽然还没有喝过，但表示早有耳闻，马上要去尝尝。<br/><br/>【Ukraine Rescue】 03/16/22 Daniel， a volunteer from Poland, said that the coffee of the NFSC is legendary on the whole site. The American volunteer Alyssa said she’s going to try it.<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group16/getter/2022/03/16/10/19686924-a7da-6e42-0fac-00e8640ca622/out.jpg)
-
----
-
-`@miles 3/16/2022 10:41 AM (UTC)`
-
-【Ukraine Rescue】 03/16/22 VOA journalist: I think any Chinese has to take NFSC’s people as an idol and example to follow in the future. We need to push out the bad CCP, not only for China, but also for everyone. The CCP puts the hard-earned money squeezed out of the Chinese into their own pockets.<br/><br/>【乌克兰救援】 03/16/22 美国之音记者：任何一个中国人都要把新中国联邦人当作偶像和榜样去学习，我们需要推翻这个邪恶的中共，不仅仅是为了中国人，也是为了世界上每个人。中共把压榨中国人的血汗钱放进自己的腰包。<br/>
-![img](https://media.gettr.com/group38/getter/2022/03/16/10/a6ab2387-d6d6-51f9-5f8a-1e9a7e352444/out.jpg)
 
 ---
 
