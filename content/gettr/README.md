@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/16/2022 6:55 PM (UTC)`
+
+1. The Italian war veteran WenKe presented the New  Federal Sate Of China  network on the front line to Davide Martello, the famous Italian-born war pianist from Germany. Music and technology, make us feel peace and freedom.<br/>2. Davide Martello played the national anthem of the New Federal State Of China  in tribute to <br/>the Rule of Law Foundation and the New  Federal State Of China for bringing warmth and hope in the midst of war.<br/>3. In the face of war and violence. Our children used their paintbrushes to draw the peaceful world they dreamed of.<br/><br/>1.意大利文科给德国的意大利裔著名战地钢琴家Davide Martello介绍新中国联邦在前线的卫星网络。音乐和科技让我们感受到和平和自由。<br/>2.Davide Martello为感谢法治基金和新中国联邦在战争和硝烟中带来温暖和希望，特意弹奏新中国联邦国歌，以示敬意。<br/>3.在战争和暴力面前，我们的孩子用画笔画出他们梦想的和平世界。
+![img](https://media.gettr.com/group48/origin/2022/03/16/18/0fd7957d-4fa1-327b-355c-9e5d2c18ee39/out.jpg)
+
+---
+
 `@miles 3/16/2022 6:35 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-采访被新中国联邦救援的学生<br/>Interviewing Chinese Students who were rescued from Ukraine By NFSC and ROLF
@@ -150,13 +157,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 3/15/2022 Miles Guo: Since the CCP has not invaded Taiwan, the third gate of taking down the CCP has not been completely opened. The CCP virus is rampant in Hong Kong and the combination of the previous variants and Omicron has emerged. Outbreaks of the virus in places like Jilin province indicate that the pandemic is out of the CCP’s control. The “Zero COVID” policy is a political fraud, which will lead to humanitarian disasters.<br/><br/>3/15/2022 文贵直播: 中共未对台开战，尚不能说灭共的第三道大门已经彻底打开；香港病毒肆虐，出现老病毒和奥米炕的混合体；吉林等地病毒大爆发说明中共疫情已失控，清零政策就是政治欺骗，从而导致人道灾难<br/>
 ![img](https://media.gettr.com/group41/getter/2022/03/16/08/4b622fa8-9e4c-461f-876c-aca842cff18a/out.jpg)
-
----
-
-`@miles 3/16/2022 7:22 AM (UTC)`
-
-《灭共的雪》摇滚版即将发布打榜，请预定郭文贵先生最新歌曲！<br/><br/>“The Terminator Snow” Rock version coming soon， pre-save Miles Guo’s new release now!<br/><br/>预定链接 Pre-save link：<br/>https://gyro.to/TheTerminatorSnow
-![img](https://media.gettr.com/group50/getter/2022/03/16/07/a55c6d9e-4312-f05d-cf2d-4ff27075bcab/out.jpg)
 
 ---
 
