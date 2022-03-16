@@ -2,42 +2,25 @@
 ---
 
 
-## 3月14日被载入史册-新中国联邦首次参与全球国际组织合作
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2171838/)
+## 台湾被俄罗斯列为不友善国家！吴釗燮：深感自豪
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2172103/)
 
-作者：纽约香草山农场教育部-马克文、朱丽叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/470effaf-5ef1-4b05-8dac-f51785b0087c.jpg)图片来源：台湾外交部
 
+俄罗斯入侵乌克兰引发全球关注，各国纷纷对俄罗斯祭出经济制裁，俄罗斯政府先前公布一份「不友善国家／地区」名单，台湾也入列。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
-3月14日，在波兰medyka梅迪卡，联合国和国际红十字会，以及无国界救援者，在新中国联邦-法制基金的人道救援大帐篷里举行会议。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-174.jpg)
-会议讨论对乌克兰人道救援的系统化管理。会议决定将新中国联邦帐篷区，作为难民救助的营地中心。
+对此，外交部长吴釗燮表示，台湾与其他民主国家共同谴责并采取制裁措施，因此被列为不友善的民主国家，但我们深感自豪。
 
-新中国联邦，作为此次国际会议的首要参与者，不但是此次国际组织会议的场所提供方，而且表示，会全力配合国际组织需要，可提供更大帐篷及配套设备。
+简评：近朱者赤，近墨者黑！与流氓国家为伍的只有利益，被流氓国家列为不友善的自然是荣耀！跟流氓国家做生意，永远换不来友谊，当流氓国家没有钱了，剩下的只有讨伐与唾弃！
 
-国际组织各方代表，全体起立，感谢新中国联邦的雪中送炭。
+新闻来源：[台视新闻网](https://news.ttv.com.tw/news/11103160000700W)
 
-3月14日这一天，因新中国联邦站上了世界舞台而被载入史册。
+撰稿/发布：一叶知秋
 
-新闻来源：[https://mega.nz/file/tEEC3Y5Z#a-QwUOtyibUsEbdBw3zQ6Md-nmPhCIwKOttiIpRuGsY](https://mega.nz/file/tEEC3Y5Z#a-QwUOtyibUsEbdBw3zQ6Md-nmPhCIwKOttiIpRuGsY)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-185.jpeg)
-
-
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

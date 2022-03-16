@@ -2,30 +2,12 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月15日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2171315/)
+## 多家媒体报道俄罗斯要求中共国向其提供武器
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2171459/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-19.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-12.png)
+03/14/2022 多家媒体报道俄罗斯要求中共国向其提供武器。虽然中方还未对此回应，它确实引发了中共国武器进入乌克兰的担心，这最终将升级这场冲突。
 
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p1081o70b81](https://gettr.com/post/p1081o70b81)
-访谈：[https://gettr.com/post/p1088ord2ba](https://gettr.com/post/p1088ord2ba)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-18.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

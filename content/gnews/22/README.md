@@ -2,25 +2,30 @@
 ---
 
 
-## 美参院通过永久实行夏令时法案
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2171295/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月15日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2171315/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/us-lawmakers-wrap-up-week-capitol-hil45047434.jpg)美国参议院周二以投票方式一致通过了《阳光保护法》法案，允许美国从2023年起永久实行夏令时。（法新社）
-（早报讯）美国参议院周二（3月15日）通过了夏令时永久化法案。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-19.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-12.png)
 
-路透社报道，这项法案将允许美国从2023年开始永久实行夏令时，结束每年两次调整时钟的做法。
 
-倡议者认为，这一举措意味着美国冬季下午日照将更充足，并有利于更多经济活动。
+校对：Stay文苑
 
-参议院周二以投票方式一致通过了这项名为《阳光保护法》的法案。众议院已就此法案举行了委员会听证会，但仍必须通过该法案才能提交总统拜登签署成为法律。白宫没有说明拜登是否支持。
+编辑：Stay文苑
 
-自2015年以来，美国约有30个州已经出台终止每年两次调整时钟的相关法案，一些州则提议只有在毗邻州属也这么做时才采取相同措施。
+发稿：Stay文苑
 
-参考连结：[https://www.zaobao.com.sg/realtime/world/story20220316-1252772](https://www.zaobao.com.sg/realtime/world/story20220316-1252772)
+新闻：[https://gettr.com/post/p1081o70b81](https://gettr.com/post/p1081o70b81)
+访谈：[https://gettr.com/post/p1088ord2ba](https://gettr.com/post/p1088ord2ba)
 
-审核校对：Barry Jack
-上传排版：F
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-18.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

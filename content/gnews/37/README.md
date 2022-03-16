@@ -2,40 +2,50 @@
 ---
 
 
-## 又一个Isobel Yeung?
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2170173/)
+## 新西兰财经G乐部2022年3月15日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2169868/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图像-11.jpg)
-图片来源：密翻视频截图
+采集整理：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2022/03/FN4ZhamaUAQOFCE.jpg)
+正文
 
-彭博社女记者阿吉·坎特里尔Aggi Cantrill在采访法治基金义工Nicole时挖坑，以所谓的人道主义来完成政治目标，显然她的背后逻辑是“人道救援不能有政治目的”。郭文贵先生一语击穿他们的荒谬无耻：共产党俄罗斯可以杀人，我们不可以救人，这是什么狗屁逻辑？
+**1、中共国资委：1-2月央企业实现净利润2821.7亿元，同比增长20.4%**
 
-这种所谓的主流媒体不但对普京独裁政治遭成的乌克兰人民的人道灾难没有一点同情，还堂而皇之、大言不惭、胡搅蛮缠、质疑起我们越来越获得乌克兰人民和世界巨大赞赏的新中国联邦法治基金的援救行动。共产党怕了，恐惧了，他们派出所有他们隐藏在所谓主流媒体的力量来打击我们，造谣污蔑我们。
+中共国务院国资委获悉，1-2月，中央企业实现营业收入5.7万亿元、利润总额3678.7亿元、净利润2821.7亿元，同比分别增长17.6%、20.6%、20.4%，运行质量持续改善，为一季度“开门红”奠定了坚实基础。
 
-让我们来看看这位女记者Aggi Cantrill，在她的领英中她自我介绍：我是一名电视制作人和视频记者，常驻柏林，在经济、政治和社会问题的报道方面经验丰富。我能够用英语、德语和法语流利地工作，**也能用B2水平的普通话工作**。
+财经G评：权力集中、资源垄断、司法垄断、国企做大、效率低下、国进民退、每况愈下！
 
-我们来看看她的普通话学习经历，她是2012-2015在伦敦国王大学英国文学专业的，期间上夜校学的中文，最后甚至专门到中国人民大学学了中文，达到了 GPA4.0， 所以她完全听得懂中文。请前方战友注意。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1676.png)
-她马上尝到了好处，在伦敦的**中伦律师事务所**找到了实习机会
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1680.png)
-看看中伦律师事务所吧，中伦律师事务所创立于1993年，是中国司法部最早批准设立的合伙制律师事务所之一。大家很容易发现阿吉·坎特里尔和杨贝贝的相似之处。
+链接：[https://news.cnstock.com/news,bwkx-202203-4845261.htm](https://news.cnstock.com/news,bwkx-202203-4845261.htm)
 
-2019年阿吉·坎特里尔进入彭博Bloomberg电视（德国）。
+**2、摩根大通：阿里巴巴将持续面临抛售压力，降目标价至65美元**
+![img](https://media.gettr.com/group43/origin/2022/03/15/04/e2546cbf-e1fd-6f6c-3175-f09eee4c4fd5/49d9a90047f98e2cb8366ad187180cdd_500x0.png)
+财联社3月14日 摩根大通 分析师Alex Yao将 阿里巴巴 评级从增持下调至减持，目标价从180美元下调至65美元。该分析师表示，由于地缘政治和宏观风险上升，大量全球投资者正在减少对中国 互联网行业 的投资。而阿里巴巴作为中国互联网板块中被广泛持有的股票之一，该股近期将继续面临抛售压力。
 
-今日的俄乌战场上，Bloomberg派出这样的记者团队，不但不报道战场真相，却质疑我们救人，这就是在帮助俄罗斯杀人。其背后的原因就是：Bloomberg是共产党的一条长期圈养的狗。
+财经G评：根据统计阿里巴巴自2020年10月到现在不到2年的时间已经从319美元跌到现在77美元跌幅高达230%！
 
-对待这种邪恶，一定不能退缩，迎头痛击，我们曝光他们的真面目。
+链接：[https://www.sohu.com/a/529793098\_222256](https://www.sohu.com/a/529793098_222256)
 
-来源：
+**3、“雪松系”百亿纾困计划生变**
+![img](https://media.gettr.com/group29/origin/2022/03/15/05/7a9284bc-afc2-32c5-c822-7180fe84b911/46095220a10a1c5e07fe59033200ed9a_500x0.png)
+“雪松系”掌门人张劲，希望通过让渡上市公司齐翔腾达（002408.SZ）控制权，以缓解资金危机的计划横生变数。3月7日，齐翔腾达公告，控股股东齐翔集团及一致行动人雪松实业，正筹划控制权变更，交易对方系专业投资管理机构。交易顺利达成，雪松控股或可获得百亿资金纾困。昨日，齐翔集团收到证监会山东监管局下发的《行政处罚事先告知书》，按照相关规定，该集团在6个月内，不能直接转让上市公司股权。
 
-[Aggi Cantrill领英](https://de.linkedin.com/in/aggi-cantrill-31567060)
+链接：[https://finance.sina.com.cn/stock/s/2022-03-15/doc-imcwipih8519576.shtml](https://finance.sina.com.cn/stock/s/2022-03-15/doc-imcwipih8519576.shtml)
 
-[2022.3.15大直播](https://gettr.com/streaming/p1051m93814)
+**4、乌克兰政府与FTX、Kuna和Everstake合作推出加密货币捐赠网站**
+![img](https://media.gettr.com/group43/origin/2022/03/15/05/4ef777bc-7dd8-b1c2-47d4-b4161c598a04/9780cae9010e6b2384b6336b92d94bf5_500x0.png)
+加密货币交易所FTX和Kuna以及质押平台Everstake已与乌克兰政府官员达成合作，为希望发送加密货币来帮助乌克兰和其人民的用户推出了一个捐赠网站。在周一的一份声明中，乌克兰数字化转型部长表示，乌克兰政府已经推出了Aid for Ukraine这个平台，接受BTC、ETH、USDT、DOT、SOL、DOGE、XMR、ICX和NEO捐款，“以此来支持人们为自由而战。据该网站称，截至撰写本文时，用户已经发送了超过4800万美元的加密货币，约占该平台2亿美元目标的24%。这些资金将被发送到乌克兰国家银行，用于购买“弹药和必需品”，以支持该国的武装部队和人道主义援助项目。乌克兰中央银行还接受各种法币捐款。
 
-[Aggi Cantrill 对Nicole的采访](https://gettr.com/post/p104pr30f81)
+链接： [https://cointelegraphcn.com/news/ukrainian-government-launches-crypto-donation-website-with-ftx-kuna-and-everstake](https://cointelegraphcn.com/news/ukrainian-government-launches-crypto-donation-website-with-ftx-kuna-and-everstake)
 
+**5、欧盟全面的加密货币法规包离批准又近了一步**
+![img](https://media.gettr.com/group28/origin/2022/03/15/05/54013311-5adf-09cb-e787-8f13691824a8/cdb862a5cac120597fb9888fd2c1059f_500x0.png)
+欧盟 (EU) 用于管理加密资产的具有里程碑意义的监管框架在其批准过程中已经通过了另一个门槛。周一，欧盟议会经济和货币事务委员会以 31 票对 4票赞成加密资产市场（MiCA）框架的新草案，有 23 票弃权。该框架广泛涵盖了加密货币的发行和交易，并承诺通过促进在国家之间有效的“通行证”许可证，使加密公司更容易在欧盟 27 个成员国中扩张。“最后，商定的文本包括打击市场操纵和防止洗钱、恐怖主义融资和其他犯罪活动的措施，”周一投票的官方声明说。
 
+链接： [https://www.coindesk.com/policy/2022/03/14/eus-sweeping-crypto-regulations-package-one-step-closer-to-ratification/](https://www.coindesk.com/policy/2022/03/14/eus-sweeping-crypto-regulations-package-one-step-closer-to-ratification/)
+
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
+
+上传排版：文勇
 
  
 
