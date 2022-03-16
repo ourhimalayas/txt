@@ -2,36 +2,32 @@
 ---
 
 
-## 新中国联邦人乌克兰救援在行动
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176566/)
+## 在新闻直播中呼吁反战的女子获释 俄法院判决罚款3万卢布
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2176761/)
 
-作者：纽约香草山-Noemi
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月14日，新中国联邦和法治基金的乌克兰救援活动仍在继续,该活动目前已成功营救了包括中国留学生在内的100多名中国人和350多名乌克兰、美国以及其他国籍人士，并从孤儿院救出100名儿童，受到了多国媒体的高度赞扬。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-54.jpg)
-在近两日中，亦有多家欧洲媒体都对参与救援活动的一线战友进行了采访与报道，其中就包括意大利电视台、波兰最大报纸、阿拉伯电视台、波斯尼亚和黑塞哥维那电视台等多个国家官方媒体。其中，一位意大利的记者曾直接向战友发问称，你们是代表中国人的吗？被采访战友则坚定地如是回答，我们是要灭掉共产党的新中国人，我们只为救人而来。
+翻译：zicoround
 
-日前，还有前线战友发回消息称，由法治基金、新中国联邦在梅蒂亚建立起的盘古七星级大帐篷，已经从难民营升级成为一个充满爱心的国际俱乐部了。而由郭先生亲自命名的NFSC咖啡则受到了各国记者的一致好评。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-68.jpg)图片来源：AFPBB News
 
-参考链接：
-1. “&gt;新中国联邦和法治基金乌克兰救援行动
-2. [我们是消灭邪恶的中国共产党的新中国人](https://gnews.org/zh-hans/2158878/)
-3. &lt;a href="https://法治基金新中国联邦在梅蒂亚的盘古七星级大帐篷已经从难民营变成一个汇聚全球爱心的国际俱乐部
+此前闯入直播中的热门新闻节目，抗议俄罗斯入侵乌克兰的俄罗斯政府电视台一名女总监于15日被莫斯科法院判决支付3万卢布（约3万3千日元）的罚款后予以释放。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+14日晚，“第一频道”的总监玛琳娜·奥夫沙尼科娃手持写有“反对战争”的标语牌，打断了该台在俄收视率最高的夜间新闻节目。 她被指控呼吁非法抗议活动罪，可能被判处最长10天的拘留。
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
+该指控不是因为扰乱直播，而是因为通过视频发布了一个呼吁俄罗斯人参加反战抗议的信息。 就在最近，该国通过了一项新法律，旨在打击发布有关俄军 “虚假信息”的媒体工作者。 辩护律师告诉法新社，奥夫沙尼科娃女士今后可能会根据该法而被追诉，并面临最高15年的监禁。
 
-**更多资讯，更多关注**
+出庭时，奥夫沙尼科娃女士并不认罪，并陈述“我至今确信俄罗斯是有罪的”。判决后，她告诉记者，“实际上已经两天没合眼”，透露出她被审讯了14个小时以上。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**参考资料：**[news.goo.ne.jp][TVで反戦訴えた女性釈放 ロシア裁判所、罰金3万円科す](https://news.goo.ne.jp/article/afpbb/world/afpbb-3395214.html)
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+请阅读相关文章：[俄罗斯政府电视台的直播中突然“反对战争” 总监被捕](https://gnews.org/zh-hans/2170307/)
+
+* * *
+
+*审核：BryanW*
+*校对：宫米叶*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
 
  
 

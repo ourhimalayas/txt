@@ -2,37 +2,33 @@
 ---
 
 
-## 《I draw my life 》真实版
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176565/)
+## 澳大利亚承认与中共国的战争是可能的，美国将在北领地部署几十万军队
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2176757/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-梅迪卡前线时间3月13日，一个乌克兰小女孩来到新中国联邦的帐篷内，她特别爱画画，战友送了她一套画笔。不多久，小女孩的母亲给战友看了孩子的画，这几幅画让人心都碎了。
+编译：意大利罗马达芬奇农场： ZQ
 
-其中一幅，画的是在战争的炮火中，哭泣的孩子在祈祷。另一张，画是一个士兵拿枪指着一个求饶的平民，外面裹着一层圆圈像是地球，圈外有水滴一样的东西，似乎在表达战争和杀戮会让地球流泪。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-53.jpg)
-还有一张，画了两只手，根据颜色左边是乌克兰，右边是俄罗斯，两只手的形态非常不自然，既不像牵手也不像放手，小女孩的母亲说这个画是要表达反对战争，不得不说小孩画得太好了，简直像极了乌克兰和俄罗斯现在的情况。接下来的一张画，是用颜色分别代表着俄罗斯和白俄罗斯的两个凶恶的面孔，把夹在中间的乌克兰蹂躏到满脸是伤痕。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0113.jpg)
 
-看完这几张画，赞叹它如《I draw my life 》的真实版。《I draw my life 》是乌克兰小女孩演唱的呼吁和平的歌曲，歌中唱道，充满暴力的世界不会有未来，我们爱好和平，呼吁停止战争。
 
-两个小女孩以歌与画祈祷和平，同样震撼人心。而我们愿意尽最大努力救援乌克兰，愿这首歌这些画，永远留在我们的记忆里，曾经万恶的共产党如此破坏过孩子的家园。
+图片来源：路透社
 
-参考链接：[《I draw my life 》真实版（视频）](https://discord.com/channels/872153398588370944/950448401529577502/952638720694169)
+随着与中国的紧张关系加剧，数千名接受过使用地对空导弹系统、高机动性火炮火箭和无人驾驶飞机训练的美国士兵将前往澳大利亚。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+大约由2200名军人组成的美国海军陆战队轮换部队将从9月起即将驻扎在北领地。
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
+澳大利亚国防军宣布，这是在北领地的第11次部署，并将首次包括250名美国陆军人员。
 
-**更多资讯，更多关注**
+这支特遣队是美国在印度-太平洋地区正在进行的一部分举措，目的是为未来几年中国可能入侵台湾做准备。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+国防部长彼得-达顿在9月警告说，与中国的冲突 “不应该被打折扣”，并在周三告诉美国研究中心，北京可能会寻求吞并台湾，而世界正专注于俄罗斯对乌克兰的入侵。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+海军的部署将补充澳大利亚皇家空军和美国空军之间的强化空中合作计划。大约1000名海军陆战队员已经在达尔文登陆。他们将与澳大利亚国防军一起训练，以确保他们有能力应对该地区的危机。这可能包括人道主义援助，救灾，疏散任务，以及加强美国大使馆或军事行动。
+
+达尔文的位置就在十几个亚洲国家和一些世界上最繁忙的航道的南边，这使它成为一个战略中转站。训练将包括实弹军事演习，以提高澳大利亚和美国部队以及其他地区盟友部队之间的凝聚力。
+
+澳大利亚国防军北部部队指挥官马库斯-康斯特布尔上校说，美国联盟是澳大利亚最重要的防务关系，是国家安全计划的核心。
+
+🔗 [https://www.dailymail.co.uk/news/article-10617533/United-States-deploy-THOUSANDS-troops.html?ito=native\_share\_article-masthead](https://www.dailymail.co.uk/news/article-10617533/United-States-deploy-THOUSANDS-troops.html?ito=native_share_article-masthead)
 
  
 

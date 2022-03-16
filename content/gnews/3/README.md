@@ -2,34 +2,55 @@
 ---
 
 
-## 隐形奥米炕BA2占美国病例的四分之一
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2176788/)
+## 大多伦多地区约150名LifeLabs员工罢工
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2176827/)
 
-#### 选材/编译 ：Cran
+作者：Joshua Freeman
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/23_1155262342_0.jpg)
+在大多伦多地区医学实验室LifeLabs工作的大约150名快递员和收发室员工罢工了。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16474609761.png)
-据美国周刊3月16日报道，新冠病毒的奥米炕（Omicron）变种称为BA2。根据美国疾病控制和预防中心（CDC）的估计，BA2占美国所有新序列病例的近四分之一。
+代表这些工人的安省公务员工会(OPSEU)与这家实验室服务公司的谈判未能达成协议。
 
-根据CDC昨天公布的数据，预计在3月6日至12日期间，预计的BA2 在23.1%的新序例新冠病毒样本中被确认。在13.7%的样本中发现了BA2，这标志着与前一周相比有明显上升。而在这之前一周的7.1%样本中发现了BA2。
+OPSEU主席Warren (Smokey) Thomas在一份声明中称:” LifeLabs是加拿大最赚钱的企业之一，但却不支付员工最低的生活工资。”
 
-如果目前的趋势继续下去。BA2正在赶超美国其他类型的奥米炕，包括BA1。到目前为止这基本是全球主导版本的类型。
+“即使在经历了大流行带来的艰苦工作和牺牲之后，LifeLabs也不认为要给员工更多的报酬。”
 
-CDC的数据也显示了BA2在美国的高发地区。以及该变种出现的10个不同地区，每个地区都包括多个州。涉及BA2最多的第二区包括，新泽西、纽约、波多黎各和维尔京群岛，在那里，截至3月12日，在39%的样本中都发现了这种病毒。
+该工会指出，多伦多快递和收发室员工“生活在加拿大最昂贵的城市”，而他们的平均年薪约为$3.5万元，这些员工应该获得更大份额的公司利润。
 
-另一个高发区包括康涅狄格州、缅因州、马萨诸塞州、新罕布什尔州、罗德岛州和佛蒙特州。在那里的38.6%的样本中发现了此变异型。
+LifeLabs在给CP24的电邮中表示，公司致力于达成一项公平的协议，但工会离开了谈判桌。
 
-在所有其他地区，BA2感染率都低于30%。在第4地区的，阿拉巴马州、佛罗里达州、乔治亚州、肯塔基州、密西西比州、北卡罗来纳州、南卡罗来纳州和田纳西州——感染率低至12.4%。
+该公司表示：“自2021年5月以来，我们一直在谈判；我们提供有竞争力的报价，然而OPSEU已经离开了谈判桌上。“我们希望我们能很快达成一项平衡的协议，继续支持我们员工的需求和他们所服务的社区。”
 
-应该注意的是，上述数据基于即时预报模型，该模型提供了循环变异类型的预估。非预估数字通常在预估数据公布后的几周内提供。
+工会方面否认其要求不合理。谈判小组主席马Mahmood Alawneh在一份声明中说:“我们不是在寻找月亮。我们只是在寻求体面的补偿，以便能适当地为我们的家庭提供生活。我们很多人要做两份、三份工作来维持生计。”
 
-BA2病例在其他国家也在增加。3月11日英国卫生安全局（HSA）的数据显示，在2月27日至3月6日期间，68.6%的序列病例为BA2，有31.1%为BA1，这显示BA2占主导地位。
+目前还不清楚罢工会持续多久。
 
-BA2是奥米炕变体的一个亚型，已发现它的传播性高于先前占优势的BA1。BA2病例，在一些国家的报告中的比例上升后，成为今年正在进行的研究的主题。
+值得一提的是，LifeLabs的一项FlyClear计划提供航空旅行的检测服务，包括PCR检测和快速抗原检测，其中PCR检测就设在多伦多皮尔逊国际机场，可以在24小时至48小时内出结果，快速抗原检测可以30分钟内出结束。目前还不清楚罢工行动是否会对这些服务造成影响。
 
-英国3月11日的HSA数据显示，感染BA2后住院的风险，似乎并不比BA1高。BA2的一个关键特征，是它再感染那些已经感染过BA1患者的能力。这意味着他们可以感染奥米炕两次。但迄今为止仍相对罕见。
+与此同时，LifeLabs表示有一个业务连续性计划，以便维持快递和邮件服务，“最大限度地减少对患者和医疗护理的任何干扰。”
 
-[Source](https://www.newsweek.com/ba-2-us-covid-prevalence-dominant-faster-spreading-hotspots-1688536)
+上周，该公司在其网站上发表声明称，尽管有罢工行动，其服务仍将继续。
+
+LifeLabs建议客户在其网站上查找任何可能受到罢工影响的地点，如果需要联系重新预约。
+
+在COVID-19大流行期间，检测和诊断服务一直受到公众的关注。LifeLabs目前提供各种检测服务，包括与Shoppers’ Drug Mart合作的COVID-19 PCR和快速抗原检测。
+
+来源：https://toronto.ctvnews.ca/around-150-lifelabs-couriers-and-mailroom-staff-in-the-greater-toronto-area-go-on-strike-1.5819146
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

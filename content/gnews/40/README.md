@@ -2,36 +2,33 @@
 ---
 
 
-## 惠誉：如果俄罗斯以卢布支付美元债券票息将构成主权违约
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2175107/)
+## 中共Y-8军机南海坠毁
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2175347/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+##### 作者：加拿大温哥华扬帆农场 – 自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-20.jpg)
+&lt;[台湾英文新闻](https://www.taiwannews.com.tw/en/news/4468203)&gt;3月10日报道，台国家安全局上周四证实，一架中共Y-8军机3月初在南海坠毁，在全球聚焦俄乌冲突之际，中共利用搜救之机，趁机测试美国及南海主权声索国底线。
 
-整理：gardeniahu
-编辑：围剿维尼熊
+越南记者6日首次发推披露消息，称中共空军3月1日飞越三亚西南海域时，与一架Y-8海上巡逻机失去联系，该机在越南海岸坠毁。中共很快展开救援，并用海上演习来遮掩。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe-2.png)图片来源：雅典娜设计组
+尽管中共官方从未承认此事，但台湾方面注意到，自一架Y-8反潜机1日通过台湾防空识别区回去以后，一直到3月7号，再无任何Y-8反潜机出现在台湾西南空域，而过去中共几乎天天派Y-8反潜机扰台。
 
+三月初正值美前国务卿蓬佩奥访台，以往美官员赴台，解放军会单日派出数十架军机扰台，但此次只是发布了临时南海军演讯息，耐人寻味。
 
-根据路透纽约3月15日报道，信用评级机构惠誉表示，如果俄罗斯以卢布支付美元债券票息，那么在宽限期满后将构成主权违约。
+原文链接：[https://www.taiwannews.com.tw/en/news/4468203](https://www.taiwannews.com.tw/en/news/4468203)
 
-俄罗斯需要在周三支付两笔总计约1.17亿美元的硬通货票息。
+编辑/上传 – 大废墙
+素材/采编 – 自由法兰西🇫🇷
 
-自俄罗斯上个月入侵乌克兰后引发了全球制裁，这限制了莫斯科获取和支配资金的能力。
+* * *
 
-如果俄罗斯以本币支付3月16日到期的美元计价欧洲债券(eurobond)票息，在30天宽限期到期后，将构成主权违约。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-参考链接：[俄罗斯以卢布支付美元债券票息将构成主权违约–惠誉](https://www.reuters.com/article/ukraine-crisis-russia-default-idCNL6S2VI09M)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

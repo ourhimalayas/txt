@@ -2,18 +2,22 @@
 ---
 
 
-## 灭共的新中国联邦人是未来免受制裁的唯一人群
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176557/)
+## HPay未来会成为我们的SWIFT
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176559/)
 
 作者：银河系农场—骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在3月13日的大直播中，郭先生与战友分享了俄罗斯大富豪Alex因受普京发动对乌克兰的入侵战争而被牵连，其个人财富全部被制裁，本人也被警察带走。Alex是黄金和化肥公司的老板，此人很会赚钱且钱都合法，个人品味不俗，低调严谨。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-48.jpg)
-随着全球化的发展，SWIFT成为了全世界统一认证的支付系统。郭先生把SWIFT形象地比喻为进入地球村大门的钥匙，俄罗斯被SWIFT踢出，所有俄罗斯人的账户都会受到影响，无法支付任何生活所需，就算有再多不具备流通性的黄金，也无法用来支付。尽管很多俄罗斯富豪都持有第三国护照，照样会受制裁。未来中共国一旦被SWIFT制裁，也会和俄罗斯一样，不分老百姓还是盗国贼或者持有他国护照，每个人都逃脱不了。
+3月13日，郭先生在大直播中谈到，未来一旦共产党被国际SWIFT制裁，将会遍及海内外所有的中国人。彼时，国内老百姓的生活将会极度艰难，人民币会变成废纸。
 
-这时候唯有新中国联邦人可以免受制裁，因Hpay 提供了一个超级的流通支付系统。秉持消灭中国共产党的使命，投资过G系列、喜币、喜联储，这些会成为护身符，保护每一个战友的安全和财富。
+郭先生大力鼓励战友宣传推广HPay，因为HPay将会起到和SWIFT一样的作用，遍及全球，并且是秒到，点对点，安全隐私。HPay使用的人越来越多，可以买到的物资也会越多，对于国内被共产党波及的受到制裁的老百姓来说，有些不愿醒来的只就跟着共产党去了，而大部分老百姓要生活下去，HPay将是唯一的选择。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-50.jpg)
+郭先生常说希望共产党死就死，不要带走那么多人，光靠战友呐喊去唤醒，永远叫不醒那些装睡的人，胆小懦弱的人。同时他还提到未来喜币、躺平币都必须通过HPay使用流通。当中国人的钱不再受共产党控制的时候，很快共产党就没了。
 
-参考链接：[俄罗斯寡头被西方制裁说明了什么？](https://gettr.com/post/pzu0el34d1)
+随着世界对数字货币的认知，尤其是俄罗斯对乌克兰的入侵，更加速了数字货币的市场增长，美国正以极快速度调整对数字货币的法律责任。这些毫无疑问都是人类进入数字货币时代的确准信号。
+
+而中国庞大的14亿人，将通过Hpay会和这个世界重新拥抱。
+
+参考链接：[2022年3月13日 文贵大直播](https://gettr.com/post/pzu0el34d1)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
@@ -27,9 +31,6 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-
 
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
