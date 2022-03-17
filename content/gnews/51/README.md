@@ -2,89 +2,36 @@
 ---
 
 
-## 国务院：任何支持普京谎言的国家(比如中共国)都是在加剧乌克兰的毁灭
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2178013/)
+## 7·24系列——中共支持俄罗斯入侵乌克兰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2179943/)
 
-> 美国国务院：
-> 美国在乌克兰没有化学或生物武器计划。
-> 俄罗斯政府需要停止说谎 [#StopTheLies](https://twitter.com/hashtag/StopTheLies?src=hash&amp;ref_src=twsrc%5Etfw)。
-> 【附中字视频：任何支持这些谎言的国家(如 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw))都是在加剧乌克兰的毁灭】 [https://t.co/XbrNQ5m6E2](https://t.co/XbrNQ5m6E2) [pic.twitter.com/Za2HAA6x4x](https://t.co/Za2HAA6x4x)
-> — 美国政要直译推 (@zhiyitw33) [March 17, 2022](https://twitter.com/zhiyitw33/status/1504287097636548610?ref_src=twsrc%5Etfw)
+**整理：**雅典娜情报组（翼族、BENJ1、禄森）
+**编辑：**翼族
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GettyImages-1148400307.jpg)图片来源：大纪元
+据郭文贵先生爆料，习近平2012年上台后首访美国，遭到时任美国总统奥巴马的羞辱，回国后急速转向俄罗斯，与普京一拍即合结成邪恶同盟。
 
+2022年2月24日，俄罗斯入侵乌克兰，至今中共政府未正式表态反对俄罗斯的侵略行为。3月2日，联合国大会成员国对一项旨在谴责俄罗斯入侵乌克兰并要求俄罗斯立即撤军的决议草案进行了投票， 其中141个国家投了赞成票，5个国家投了反对票，分别是俄罗斯、白俄罗斯、朝鲜、厄立特里亚和叙利亚，而作为联合国常任理事国的中共国则投了弃权票，其暧昧态度令人玩味。
 
+而早在2021年的年末，中共国务委员兼外交部长王毅12月30日在接受中共官方媒体采访时表示，“我们为全球治理贡献‘中俄担当’。双方坚定维护以联合国为核心的国际体系和以国际法为基础的国际秩序，**共同反对干涉别国内政，反对单边制裁和长臂管辖**，成为践行真正多边主义、维护国际公平正义的中流砥柱，让世界看到大国应有的样子”。并且王毅还表示，“**只要中俄两个大国肩并肩站在一起**、背靠背深化协作，国际秩序就乱不了，世界公理就倒不了，**霸权主义就赢不了**”。根据中共一贯的语言风格，王毅的表态说明，中俄已决定联合起来对抗美国。
 
-参议员玛莎·布莱克本： #共产主义中国 希望利用发生在世界舞台上的危机——我们承受不起拜登政府的失策。
+2月4日，北京冬季奥运会开幕，普京成为唯一一个参加开幕式的国际重要人士，习近平在北京设宴欢迎，庆祝外交上的胜利。在习近平和普京随后发表的一份联合声明中，他们宣布建立一个**以莫斯科和北京为核心、不受美国力量束缚的国际新秩序**的愿景。习近平和普京在本次会面后郑重宣告，**两国的友谊“没有止境”**。习近平还宣布，**中俄两国继续保持“相互坚定支持”的伙伴关系**，而且他支持普京对西方在欧洲背叛行径的指责。
 
+据中共官方报道，他们在宴会上讨论了“双方关心的重大热点问题”。据郭文贵先生爆料，习普二人在没有翻译在场的情况下，借助翻译器密谈了两个小时。虽然两人讨论的细节从未公开过，但就在这次会面的20天后，俄罗斯入侵乌克兰，引发了欧洲几十年来最严重的战争。而郭文贵先生在早前的直播中爆料称，习近平和普京计划分头行动，俄罗斯攻打乌克兰，中共则会直取台湾。
 
+俄乌战争爆发后，中共外交部在2022年3月2日举行的例行记者会上，有日媒记者提问：中（共）国会不会继续购买俄罗斯的天然气？目前西方国家都在制裁俄罗斯，中（共）国如果继续与俄罗斯进行正常贸易的话，是否对中方有影响？中共外交部发言人汪文斌回复称，**中方坚决反对任何非法单边制裁**，中（共）国要求有关方面在处理乌克兰问题和对俄关系时“不得损害中方和其他方面的正当权益”。中俄双方将继续本着相互尊重、平等互利精神，“开展正常的贸易合作”。
 
-> Communist China wants to take advantage of the crises happening on the world stage — we cannot afford a slip up by the Biden administration.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 16, 2022](https://twitter.com/MarshaBlackburn/status/1504149600860577792?ref_src=twsrc%5Etfw)
+虽然自俄罗斯入侵乌克兰以来，中共政府矢口否认事先知情普京将发动战争，但习近平的北京宣言和王毅的表态、两个事件时间点的吻合以及郭文贵先生的爆料，都印证了中共与俄罗斯的邪恶同盟一起谋划了这起侵略战争。并且已有媒体援引情报部门的信息称，中共曾请求俄方在冬奥会结束之后再出兵乌克兰。只是出乎普京和习近平预料的是，俄军遭遇到了乌克兰的激烈抵抗，以及西方对俄罗斯侵略行为的强烈反应。
 
+无论如何，中共支持俄罗斯侵略乌克兰的罪行已是铁板钉钉，等待习近平和中共的将会是有史以来最严厉的惩罚。
 
+*发布：翼族*
 
-参议员卢比奥新闻办公室： 参议员卢比奥、格雷厄姆和同事们赞赏参议院一致通过了两党决议，呼吁普京和他的政权成员为被指控的战争罪行、侵略和侵犯人权行为负责。
-
-
-
-> Sen Rubio, [@LindseyGrahamSC](https://twitter.com/LindseyGrahamSC?ref_src=twsrc%5Etfw), & colleagues applauded the Senate's unanimous passage of their bipartisan resolution calling for [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) & members of his regime to be held accountable for acts of alleged war crimes, aggression, & human rights abuses.
-> 
-> Read ⬇️[https://t.co/xO6phndG53](https://t.co/xO6phndG53)
-> — Senator Rubio Press (@SenRubioPress) [March 16, 2022](https://twitter.com/SenRubioPress/status/1504153298416328705?ref_src=twsrc%5Etfw)
-
-
-
-白宫： 今天,总统宣布了一项8亿美元的援助计划，帮助乌克兰抵御俄罗斯的无理入侵。 这使得美国在过去一周承诺给乌克兰的安全援助总额达到10亿美元，自总统上任以来共达20亿美元 。新的8亿美元一揽子计划包括: – 800套防空系统 – 9000套反装甲系统 – 7,000件小型武器 – 2000万发子弹 -无人机系统 等等。这种援助将采取直接从国防部向乌克兰军方移交设备的形式。我们继续与盟国和伙伴合作，为向乌克兰输送更多援助提供便利。
-
-
-
-> Today, [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) announced an $800M assistance package to help Ukraine defend their country against Russia’s unprovoked and unjustified invasion.
-> 
-> This brings the total U.S. security assistance committed to Ukraine to $1B in the past week and a total of $2B since [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) took office.
-> — The White House (@WhiteHouse) [March 16, 2022](https://twitter.com/WhiteHouse/status/1504148983849050122?ref_src=twsrc%5Etfw)
-
-
-
-比尔.格茨： [#中国共产党](https://gettr.com/hashtag/%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A) 最高领导人习近平试图挽救北京对弗拉基米尔.普京的投资，但在乌克兰入侵中面临重大考验 【转华盛顿时报比尔.格茨报道：俄罗斯入侵乌克兰考验中国领导人 – 习近平支持普京，但西方制裁可能打击北京】
-
-
-
-> Chinese Communist Party Supreme Leader Xi Jinping is trying to salvage Beijing’s investment in Vladimir Putin but is facing a major test in the Ukraine invasion [https://t.co/YU5er4iXAD](https://t.co/YU5er4iXAD)
-> — Bill Gertz (@BillGertz) [March 16, 2022](https://twitter.com/BillGertz/status/1504083558599700486?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎.布莱克本： 沙特阿拉伯希望使用 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的数字人民币进行石油销售。 我们的对手正在利用这个机会排挤美国，只要拜登允许他们这样做，他们就会继续。
-
-
-
-> Saudi Arabia wants to use Communist China’s Digital Yuan for oil sales.
-> 
-> Our adversaries are using this opportunity to dismiss the U.S., and they will continue to do so as long as Biden allows them to.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 16, 2022](https://twitter.com/MarshaBlackburn/status/1504179978954579969?ref_src=twsrc%5Etfw)
-
-
-
-拜登总统： 普京正在给乌克兰造成骇人听闻的破坏和恐怖——轰炸公寓楼和产科病房。 昨天，我们看到有报道称俄罗斯军队将数百名医生和病人扣为人质。 这些都是暴行。 使世界愤慨。
-
-
-
-> Putin is inflicting appalling devastation and horror on Ukraine — bombing apartment buildings and maternity wards. 
->  
-> Yesterday, we saw reports that Russian forces were holding hundreds of doctors and patients hostage.
->  
-> These are atrocities. It is an outrage to the world.
-> — President Biden (@POTUS) [March 16, 2022](https://twitter.com/POTUS/status/1504182615011643403?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克·蓬佩奥： 英国以 5.3 亿美元的价格解救出其被扣为人质的公民。 我们(川普政府) 阻止了支付血钱 —— 不奖励人质劫持者。那笔现金会用来恐吓以色列、英国和美国。 可悲的是，伊朗与俄罗斯和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 一起正在向西方发起冲击。 绥靖政策在失败之前总是感觉良好 —— 它向来如此。 【转美联社记者推文：伊朗官方媒体称，英国已经“偿还了德黑兰5.3亿美元的长期逾期债务”，双重国籍者被释放。】
-
-
-
-> The UK priced taking & holding its citizens hostage at $530 million. We prevented paying blood money— not rewarding hostage-takers. That cash will terrorize Israel, UK & US. Sadly, Iran, w/Russia & China, is rolling the West. Appeasement feels good until it fails— it always does. [https://t.co/0VcGfgQSD7](https://t.co/0VcGfgQSD7)
-> — Mike Pompeo (@mikepompeo) [March 16, 2022](https://twitter.com/mikepompeo/status/1504199072604958722?ref_src=twsrc%5Etfw)
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

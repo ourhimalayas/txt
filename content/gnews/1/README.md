@@ -2,8 +2,8 @@
 ---
 
 
-## 伟大的战友们了不起
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2182903/)
+## 救援前线战友对中国人的影响
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2182933/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
