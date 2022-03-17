@@ -2,25 +2,25 @@
 ---
 
 
-## 乌克兰民众排队领面包遭俄军攻击，至少10人惨死！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2177518/)
+## 俄军无差别攻击遭世界谴责
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2177524/)
 
-虽然两国代表积极谈判，但俄罗斯战火不停歇，持续对乌克兰发动攻击，距离乌克兰首都基辅约145公里的切尔尼戈夫市（Chernihiv）也遭到猛攻，当地一群民众排队领面包时遭火箭攻击，造成大量伤亡，残忍画面曝光，让人见到人命在战争之中的渺小无助。
+采编：加拿大温哥华杨帆农场 – 文明
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3569818-PH.jpg)图片来源：KSergatskova
+撰稿：加拿大温哥华杨帆农场 – 文莱
 
-切尔尼戈夫市已被俄军包围多时，先前才传出不少住宅区遭到炮袭，没想到又传出悲剧。市长乔斯（Vyacheslav Chaus）也证实至少10位平民在排队领取面包时遭炮击死亡。他强调这并非俄军首次攻击平民，「俄军持续对本市与州内其他城市大多数民用基础设施炮击、摧毁」。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_20220316-214822_Samsung-Internet2.jpg)图片来源：Foxnews
 
-简评：人命在战争中是那么的渺小，作为邪恶的侵略者，攻击平民是最愚蠢的方式，除了拉仇恨再无其他，即使得到了地盘也难以安抚民心，这样的侵略哪怕有再多的借口也注定是失败的！今天有多么的残忍，未来就有多少的清单！
 
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1086186)
+据【ITE新闻】3月14日报道，在美国记者[雷诺]于日前被俄军枪杀后，[福克斯]电视新闻记者霍尔当天在乌克兰基辅的俄军空袭中受伤。
 
-撰稿/发布：一叶知秋
+报道称，俄乌战争以来，世界各国的志愿者和新闻媒体人员不断涌入乌克兰以帮助当地难民和报道战地新闻，但普京当局对平民百姓的无差别攻击，夺去了无数妇孺和无辜者的生命。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+对此，美国务院严厉谴责了俄军践踏国际法和对新闻媒体人士进行的屠杀，[记者保护委员会]也因此敦促俄罗斯立即停止针对记者和平民的暴力戕害。
+
+校对编辑：硫酸羟氯喹64
+
+新闻来源： [Benjamin Hall of Fox News Wounded in Ukraine (mediaite.com)](https://www.mediaite.com/news/breaking-fox-news-reporter-wounded-in-ukraine/)
 
  
 
