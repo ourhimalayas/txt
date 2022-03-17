@@ -2,26 +2,31 @@
 ---
 
 
-## 乌克兰总统签署虚拟资产法案 加密货币交易在乌合法化
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2182508/)
+## 援乌营地消息：波兰最美药剂师
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2182563/)
 
-**撰稿：日本东京方舟农场 海星**
+**作者：小小酥
+编辑：Candy**
 
-3月17日，乌克兰总统泽伦斯基(Volodymyr Zelenskyy)签署了虚拟资产法案，该国加密货币交易正式合法化。
+*编者按：作者是工作在新中国联邦和法治基金驻波兰梅迪卡国际人道主义救援中心、援乌难民的志愿者，来自喜马拉雅蓝莲花农场。波兰当地时间3月17日发来信息如下：*
+视频来源：小小酥
+当我们新中国联邦团结一致在做正义的事情的时候，所有人都会在帮助。
 
-据《CoinDesk》报导，泽伦斯基于17日签署了一项关于虚拟资产的法案，使原本在法律灰色地带运行的加密货币能正式在乌克兰境内合法流通。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-87.jpg)（图片来源：网络）
-报道称，乌克兰数字化转型部在周三的一份声明中表示，该法案确定了虚拟资产的法律地位、分类、所有权和监管机构，将由乌克兰国家证券和股票市场委员会监管。法案还为加密货币交易所设定了注册要求，只要符合要求的交易所就能够合法运营，银行也可以为其开设账户。此外，乌克兰财政部正在努力修订税法和民法，以全面启动虚拟资产市场。
+这是一位波兰的药剂师，笑容非常甜美。我们经常去她所在的药店给前线战友们购买医务物资，一来一去我们也熟悉了起来。她也知道了我们的来意，也知道我们是来帮助乌克兰人民的。
 
-乌克兰副总理兼数字化转型部部长费多罗夫（Mykhailo Fedorov）在通过该法案修正案的国会上表示，乌克兰境内和境外的加密货币公司都将能合法运作，乌克兰人民也将可以便利、安全地与全球虚拟资产市场接轨。
+今天早晨我们去取医用物资的时候，小姐姐说要免费送给我们一箱子医用消毒酒精，这正是我们现在所需要的，也正好是我们今天想去定购的货物！万佛万神都在帮助我们新中国联邦，想啥来啥！
 
-乌克兰遭俄罗斯入侵的过去三周里，该国政府已经通过加密货币交易收到了来自全球各国爱好和平人士的捐赠，价值至少1亿美元。这些加密货币捐款将用于购买国防装备以及救援当地难民。
+让我们一起来感谢这位波兰最美药剂师！我们一定会以胜利而结束这场战争！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/美女药剂师.png)图片来源：小小酥
+*我们后方的战友们祝战斗在前线的勇士们，注意安全，防疫抗毒，保健身体，平安回家！*
 
-参考链接：
-1. [https://www.coindesk.com/policy/2022/03/16/ukraines-zelensky-signs-virtual-assets-bill-into-law-legalizing-crypto/](https://www.coindesk.com/policy/2022/03/16/ukraines-zelensky-signs-virtual-assets-bill-into-law-legalizing-crypto/)2. [https://www.cna.com.tw/news/aopl/202203170264.aspx](https://www.cna.com.tw/news/aopl/202203170264.aspx)
+***发布：candy***
 
-总编：老孙
-校对发布：小斐
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
