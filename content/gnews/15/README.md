@@ -2,37 +2,24 @@
 ---
 
 
-## 有声|普京抓捕情报机构高管
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2177998/)
+## 秘翻在线：五人被指控在美国为中共国秘密警察工作
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2178202/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月12日，国外媒体报道，俄联邦安全局(FSB)负责海外情报工作的长官——谢尔盖·贝塞达中将及其副手阿纳托利·博卢克，于11日被普京下令软禁在家。68岁的贝塞达之前任FSB五局局长，博卢克任行动情报部主任。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/methode_times_prod_web_bin_cdf6df92-a189-11ec-a33b-e5ebed659a52.jpeg)图片来源: 网络
-普京认为，战争进展不利，和俄方大量伤亡是由于情报有误。开战前他曾被告知，乌克兰仅会做象征性抵抗，人民普遍对现状不满，会配合侵略军推翻政府，乌军战力薄弱，遍布新纳粹成员，受到攻击后会很快投降。但当俄派出轻型部队迅速攻占关键设施后，却遭到猛烈反击和持续抵抗。乌克兰人更紧密地团结在了泽林斯基政府周围，仅首都就有10万人以上加入民兵组织，就连乌东部俄语区也存在民意反转。
+撰稿：文贺JP
+![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-27.jpg)图片来源：CBS NEWS
+华盛顿—美国司法部周三宣布，五名个人被指控在美代表中共国秘密警察机构工作，其目的是压制、骚扰直言不讳并发出异议声音的在美华人。
 
-攻势受阻后，俄被迫放弃速战速决计划，转为消耗战，攻城战，导致了大量平民伤亡和不断升级的制裁。
+检察官在联邦法院公开了三项独立的刑事诉讼，指控被告跟踪、骚扰和监视居住在纽约和美国各地的中国公民。其计划包括，从试图以虚假卖淫手段勒索国会候选人，到试图贿赂国税局雇员以获取受害者的纳税信息。该犯罪计划，导致至少有一名受害者在香港被判入狱。
 
+涉案人员为林启明、王树军、孙强(Jason)及弗兰克(Frank).刘和Matthew Ziburis。他们分别以跟踪、监视，利诱、诽谤、威胁、贿赂等间谍手段渗透政见异议人士，被检方控诉。
 
+司法部国家安全司助理司法部长马修·奥尔森周三表示“跨国镇压伤害了美国和世界各地的人民，并威胁到法治本身”，“这种活动与美国的基本价值观背道而驰，当它违反美国法律时，我们不会容忍它” 。
 
-文字版原文：[普京抓捕情报机构高管](https://gnews.org/zh-hans/2175499/)
+笔者观点：美国在觉醒、世界在觉醒。用蓝金黄手段扰乱别国价值观、攻击民主法治基石的卑略行径终将暴露。越发标志着中共并不代表中国人民，中国人民不接受被中共代表的理念正在被国际社会认可。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+信息来源：[https://www.cbsnews.com/news/chinese-secret-police-indictments-justice-department/?intcid=CNM-00-10abd1h](https://www.cbsnews.com/news/chinese-secret-police-indictments-justice-department/?intcid=CNM-00-10abd1h)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+责编： Eric Kim
 
  
 

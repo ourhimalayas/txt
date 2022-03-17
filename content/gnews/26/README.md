@@ -2,24 +2,32 @@
 ---
 
 
-## 樱花时政┃七国集团议长会议发表联合声明促俄罗斯立即撤兵
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2177883/)
+## 中日财经爆|俄罗斯和中共正在研究替代SWIFT的方案以逃避制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2177885/)
 
-撰稿：东京樱花团/文小白
+撰稿：东京樱花团/peterwong
 
-日本时间3月16日23:00七国集团（G7）议长在网上举行了会议。会议强烈谴责了俄罗斯对乌克兰的军事入侵，呼吁各国政府通力合作，以外交手段促进恢复和平。会议结束后发表了联合声明。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
 
-乌克兰最高议会议长斯蒂芬丘克出席了会议，并汇报了当前乌克兰的现状及形势，期待着各国的进一步支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/03173.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fassets.euromoneydigital.com%2Fdims4%2Fdefault%2F48ddaa5%2F2147483647%2Fstrip%2Ftrue%2Fcrop%2F960x625%2B0%2B0%2Fresize%2F800x521!%2Fquality%2F90%2F%3Furl%3Dhttp%253A%252F%252Feuromoney-brightspot.s3.amaz)
+俄罗斯一位资深议员周三（3月16日）表示，俄罗斯和中共国正努力在金融信息系统之间建立合作，以逃避西方对其金融系统的制裁。
 
-日本的众议院议长细田发言说“以武力片面改变现状，动摇国际社会秩序的基础是绝对不能接受的”。并表明日本将与国际社会合作共同应对当前的危机。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1846.png)
-随后，7国集团发表了联合声明，“最强烈地谴责俄罗斯的侵略战争”，并要求俄罗斯立即从乌克兰撤军。会议结束后，各国议会将与政府密切合作，通过外交手段恢复和平，以保证国际社会持续的和平稳定。
+由于俄乌战争，几家俄罗斯银行被禁止进入SWIFT国际支付网络，因而无法将资金转移到俄罗斯境外。一个可能的选择是连接到中共国的CIPS支付平台。
 
-信息来源：[**G7 下院議長ら会合 外交手段で平和の回復目指す共同宣言発表**](https://www3.nhk.or.jp/news/html/20220317/k10013535421000.html?utm_int=news-international_contents_list-items_005)
+俄罗斯议会下院金融委员会主席Anatoly Aksakov说，“为消除在维持贸易往来方面的风险，需要在俄罗斯和中国的金融信息系统之间建立合作，我知道这样的工作正在进行，我们的央行正在与中国人民银行合作，相信目前的形势将刺激有关进程。俄中贸易在1-2月增长逾40%，这种关系应该进一步加强。”
 
-*校对：东京樱花团/喜马拉雅的微尘
+俄罗斯财政部表示，在使用美元和欧元储备受阻后，莫斯科方面将动用其外汇储备中的人民币。
+
+同时，一些俄罗斯银行正在通过中共国的银联系统发卡，因为制裁导致他们发行的Visa卡和万事达卡无法在海外使用。
+
+消息来源：[**莫斯科和北京方面正在研究替代SWIFT支付系统的变通方案–俄罗斯议员**](https://cn.reuters.com/article/russia-china-swift-fin-0317-idCNKCS2LE03I?il=0)
+
+*编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,29 @@
 ---
 
 
-## 秘翻在线：五人被指控在美国为中共国秘密警察工作
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2178202/)
+## 视频|英国扩大对俄罗斯制裁
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2178318/)
 
-撰稿：文贺JP
-![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-27.jpg)图片来源：CBS NEWS
-华盛顿—美国司法部周三宣布，五名个人被指控在美代表中共国秘密警察机构工作，其目的是压制、骚扰直言不讳并发出异议声音的在美华人。
+制作：香草山视频部
 
-检察官在联邦法院公开了三项独立的刑事诉讼，指控被告跟踪、骚扰和监视居住在纽约和美国各地的中国公民。其计划包括，从试图以虚假卖淫手段勒索国会候选人，到试图贿赂国税局雇员以获取受害者的纳税信息。该犯罪计划，导致至少有一名受害者在香港被判入狱。
+英国媒体15日报道，英国政府宣布加大对俄罗斯的贸易制裁，包括奢侈品出口禁令、提高数百种俄罗斯商品的进口关税以及切断对与该国贸易的财政支持。此外，英国政府将仿效美国政府，停止俄罗斯及白俄罗斯的数百种商品享受世界贸易组织的最惠国待遇。
 
-涉案人员为林启明、王树军、孙强(Jason)及弗兰克(Frank).刘和Matthew Ziburis。他们分别以跟踪、监视，利诱、诽谤、威胁、贿赂等间谍手段渗透政见异议人士，被检方控诉。
+英国国际贸易部表示：世界贸易组织是建立在尊重法治的基础上，而普京对此表示藐视，因此将剥夺俄罗斯政府加入世贸组织的主要利益。
 
-司法部国家安全司助理司法部长马修·奥尔森周三表示“跨国镇压伤害了美国和世界各地的人民，并威胁到法治本身”，“这种活动与美国的基本价值观背道而驰，当它违反美国法律时，我们不会容忍它” 。
+英国外交部指出，这次新一轮的制裁，受冲击的俄罗斯菁英合计资产净值达1000亿英镑，其中包括克里姆林宫发言人培斯科夫和俄国外交部发言人沙卡洛娃。
 
-笔者观点：美国在觉醒、世界在觉醒。用蓝金黄手段扰乱别国价值观、攻击民主法治基石的卑略行径终将暴露。越发标志着中共并不代表中国人民，中国人民不接受被中共代表的理念正在被国际社会认可。
+同一天，欧盟也正式批准了对俄罗斯的第四轮制裁措施，包括禁止对俄罗斯能源领域的新投资，并设下對鋼鐵和奢侈品的貿易限制。此外，部分个人及部分国有企业将受到制裁。
 
-信息来源：[https://www.cbsnews.com/news/chinese-secret-police-indictments-justice-department/?intcid=CNM-00-10abd1h](https://www.cbsnews.com/news/chinese-secret-police-indictments-justice-department/?intcid=CNM-00-10abd1h)
+发稿：Daxia
 
-责编： Eric Kim
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

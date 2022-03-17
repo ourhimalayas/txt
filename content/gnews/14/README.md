@@ -2,89 +2,32 @@
 ---
 
 
-## 国务院：任何支持普京谎言的国家(比如中共国)都是在加剧乌克兰的毁灭
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2178013/)
+## 大直播后记：沒打疫苗是爆料革命给战友最好的礼物
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2178235/)
 
-> 美国国务院：
-> 美国在乌克兰没有化学或生物武器计划。
-> 俄罗斯政府需要停止说谎 [#StopTheLies](https://twitter.com/hashtag/StopTheLies?src=hash&amp;ref_src=twsrc%5Etfw)。
-> 【附中字视频：任何支持这些谎言的国家(如 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw))都是在加剧乌克兰的毁灭】 [https://t.co/XbrNQ5m6E2](https://t.co/XbrNQ5m6E2) [pic.twitter.com/Za2HAA6x4x](https://t.co/Za2HAA6x4x)
-> — 美国政要直译推 (@zhiyitw33) [March 17, 2022](https://twitter.com/zhiyitw33/status/1504287097636548610?ref_src=twsrc%5Etfw)
+整理：馨馨、雨桐
+编辑：朝花夕拾
 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7-44.png)图片来源：雅典娜设计组
 
 
-参议员玛莎·布莱克本： #共产主义中国 希望利用发生在世界舞台上的危机——我们承受不起拜登政府的失策。
+七哥：特别是共产党他更害怕。 他非常清楚，这是美国赢了。 经济上、科技上、军事上。现在美国和中共和苏联比，已经是七哥和路大脑袋和那个高冰尘比了。从任何角度他都是垃圾、都是屎。彻底完了，谢谢。
 
+文蓝：对整个医疗行业的冲击，在未来会是什么样的一个情况?
 
+七哥：我觉得很多人在问这个问题。你看安红妹妹今天是大病初愈。她站在这里坐在这里，这是真的是你看她脸色，她是变了个人呐。脸也瘦了。她头两天跟我说的时候，说脸都是黄的，所以没法出镜。今天她能活着回来，她最有感触，生命的意义健康的意义有多大。 人不健康了就完了。 你想想，安红要打三针疫苗的话，安红今天能坐在这吗？ 那是啥结局呀?  就是草原也好、文智也好、文蓝也好，你们今天所有战友们，爆料革命给你们最大的礼物，就是让你们没打疫苗。 它高于一切。 就是说我们是骗子3秒郭3秒，郭3秒强奸犯让你们不打疫苗，你们要感谢这个强奸犯，你要感谢这个郭3秒。 如果是骗子的话，你们真遇到了最好的骗子，最好你们多遇到这样的骗子。
 
-> Communist China wants to take advantage of the crises happening on the world stage — we cannot afford a slip up by the Biden administration.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 16, 2022](https://twitter.com/MarshaBlackburn/status/1504149600860577792?ref_src=twsrc%5Etfw)
+爆料革命新中国联邦不是只取腰包，然后解掉你腰带，然后要你的命。 爆料革命是直接救你的命。 而且救你几代人。 严格讲是你家的祖脉就给你保留下来。 疫苗这件事大德，真的是我不知道用什么语言来形容。你们到5月份再说。 七哥就这么自信，你们会一切都改变。 由于这场疫苗灾难，接下来发生的事情，医生和所有客户之间的关系彻底打破。 人类90%的人打了疫苗，还会再相信医生吗? 对药他会再那么相信吗？人类上文明的开始就是火，有了火开始吃食物，然后人类有了社群，互相保护，然后有了当时的酋长，就原始人类—群，社群的开始。
 
+从野人到了社群文化，社群文化最核心一样是什么？大家想办法治病、活下去、有病互相保护，安全健康，然后共同的生儿育女、互相保护。 这是人类的一个基本的。现在把最原始的这个互相保护的、让对方健康的社群技术给毁了。 你知道现在有多可怕，俄乌战争，有人在记者在前线，这帮孙子哎，所谓的严肃媒体，你看有人敢问病毒哪来的？ 就是给你打疫苗，就不问病毒哪来的。 悲剧。 所以说兄弟姐妹们，这场疫情，整个的信用基础，社会的基础，一切被毁掉了。 全人类只有一个新中国联邦，建立了个社群，不打疫苗，战胜了人类上从未有过的黑暗。
 
+资料来源：[2022年3月15日 文贵大直播](https://gettr.com/streaming/p1051m93814)
 
-参议员卢比奥新闻办公室： 参议员卢比奥、格雷厄姆和同事们赞赏参议院一致通过了两党决议，呼吁普京和他的政权成员为被指控的战争罪行、侵略和侵犯人权行为负责。
-
-
-
-> Sen Rubio, [@LindseyGrahamSC](https://twitter.com/LindseyGrahamSC?ref_src=twsrc%5Etfw), & colleagues applauded the Senate's unanimous passage of their bipartisan resolution calling for [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) & members of his regime to be held accountable for acts of alleged war crimes, aggression, & human rights abuses.
-> 
-> Read ⬇️[https://t.co/xO6phndG53](https://t.co/xO6phndG53)
-> — Senator Rubio Press (@SenRubioPress) [March 16, 2022](https://twitter.com/SenRubioPress/status/1504153298416328705?ref_src=twsrc%5Etfw)
-
-
-
-白宫： 今天,总统宣布了一项8亿美元的援助计划，帮助乌克兰抵御俄罗斯的无理入侵。 这使得美国在过去一周承诺给乌克兰的安全援助总额达到10亿美元，自总统上任以来共达20亿美元 。新的8亿美元一揽子计划包括: – 800套防空系统 – 9000套反装甲系统 – 7,000件小型武器 – 2000万发子弹 -无人机系统 等等。这种援助将采取直接从国防部向乌克兰军方移交设备的形式。我们继续与盟国和伙伴合作，为向乌克兰输送更多援助提供便利。
-
-
-
-> Today, [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) announced an $800M assistance package to help Ukraine defend their country against Russia’s unprovoked and unjustified invasion.
-> 
-> This brings the total U.S. security assistance committed to Ukraine to $1B in the past week and a total of $2B since [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) took office.
-> — The White House (@WhiteHouse) [March 16, 2022](https://twitter.com/WhiteHouse/status/1504148983849050122?ref_src=twsrc%5Etfw)
-
-
-
-比尔.格茨： [#中国共产党](https://gettr.com/hashtag/%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A) 最高领导人习近平试图挽救北京对弗拉基米尔.普京的投资，但在乌克兰入侵中面临重大考验 【转华盛顿时报比尔.格茨报道：俄罗斯入侵乌克兰考验中国领导人 – 习近平支持普京，但西方制裁可能打击北京】
-
-
-
-> Chinese Communist Party Supreme Leader Xi Jinping is trying to salvage Beijing’s investment in Vladimir Putin but is facing a major test in the Ukraine invasion [https://t.co/YU5er4iXAD](https://t.co/YU5er4iXAD)
-> — Bill Gertz (@BillGertz) [March 16, 2022](https://twitter.com/BillGertz/status/1504083558599700486?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎.布莱克本： 沙特阿拉伯希望使用 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的数字人民币进行石油销售。 我们的对手正在利用这个机会排挤美国，只要拜登允许他们这样做，他们就会继续。
-
-
-
-> Saudi Arabia wants to use Communist China’s Digital Yuan for oil sales.
-> 
-> Our adversaries are using this opportunity to dismiss the U.S., and they will continue to do so as long as Biden allows them to.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 16, 2022](https://twitter.com/MarshaBlackburn/status/1504179978954579969?ref_src=twsrc%5Etfw)
-
-
-
-拜登总统： 普京正在给乌克兰造成骇人听闻的破坏和恐怖——轰炸公寓楼和产科病房。 昨天，我们看到有报道称俄罗斯军队将数百名医生和病人扣为人质。 这些都是暴行。 使世界愤慨。
-
-
-
-> Putin is inflicting appalling devastation and horror on Ukraine — bombing apartment buildings and maternity wards. 
->  
-> Yesterday, we saw reports that Russian forces were holding hundreds of doctors and patients hostage.
->  
-> These are atrocities. It is an outrage to the world.
-> — President Biden (@POTUS) [March 16, 2022](https://twitter.com/POTUS/status/1504182615011643403?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克·蓬佩奥： 英国以 5.3 亿美元的价格解救出其被扣为人质的公民。 我们(川普政府) 阻止了支付血钱 —— 不奖励人质劫持者。那笔现金会用来恐吓以色列、英国和美国。 可悲的是，伊朗与俄罗斯和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 一起正在向西方发起冲击。 绥靖政策在失败之前总是感觉良好 —— 它向来如此。 【转美联社记者推文：伊朗官方媒体称，英国已经“偿还了德黑兰5.3亿美元的长期逾期债务”，双重国籍者被释放。】
-
-
-
-> The UK priced taking & holding its citizens hostage at $530 million. We prevented paying blood money— not rewarding hostage-takers. That cash will terrorize Israel, UK & US. Sadly, Iran, w/Russia & China, is rolling the West. Appeasement feels good until it fails— it always does. [https://t.co/0VcGfgQSD7](https://t.co/0VcGfgQSD7)
-> — Mike Pompeo (@mikepompeo) [March 16, 2022](https://twitter.com/mikepompeo/status/1504199072604958722?ref_src=twsrc%5Etfw)
-
-
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

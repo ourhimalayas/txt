@@ -2,32 +2,28 @@
 ---
 
 
-## 中日财经爆|俄罗斯和中共正在研究替代SWIFT的方案以逃避制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2177885/)
+## 中日财经爆|阿里巴巴和腾讯今年将裁员数万人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2177904/)
 
 撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/03174.png)[图片来源](https://www.malaysiasun.com/news/272392752/alibaba-tencent-look-to-trim-workforce-by-up-to-30-pc)
+路透社3月16日报导，阿里巴巴和腾讯控股准备在今年裁减数万个职位，这会是它们最大的裁员行动，目前中共互联网行业巨头正努力应对中共政府全面的监管打击。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
+虽然阿里巴巴尚未明确整个集团的裁员目标，但据一位了解该公司计划的消息人士估计，这家中共国最大的电子商务公司最终可能会裁掉其员工总数的15%以上，约为3.9万人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/03173.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fassets.euromoneydigital.com%2Fdims4%2Fdefault%2F48ddaa5%2F2147483647%2Fstrip%2Ftrue%2Fcrop%2F960x625%2B0%2B0%2Fresize%2F800x521!%2Fquality%2F90%2F%3Furl%3Dhttp%253A%252F%252Feuromoney-brightspot.s3.amaz)
-俄罗斯一位资深议员周三（3月16日）表示，俄罗斯和中共国正努力在金融信息系统之间建立合作，以逃避西方对其金融系统的制裁。
+另有三位知情人士称，腾讯也计划在今年裁减其一些业务部门的员工。这其中一位人士说，其负责视频流媒体和搜索等业务的部门今年将裁员10%-15%。
 
-由于俄乌战争，几家俄罗斯银行被禁止进入SWIFT国际支付网络，因而无法将资金转移到俄罗斯境外。一个可能的选择是连接到中共国的CIPS支付平台。
+监管部门的打击，加上经济放缓，使大多数中共国互联网公司的销售增长急剧放缓，股价骤跌，在国内筹集新资和业务扩张更加艰难，迫使阿里巴巴和腾讯等公司寻找削减运营成本的方法。
 
-俄罗斯议会下院金融委员会主席Anatoly Aksakov说，“为消除在维持贸易往来方面的风险，需要在俄罗斯和中国的金融信息系统之间建立合作，我知道这样的工作正在进行，我们的央行正在与中国人民银行合作，相信目前的形势将刺激有关进程。俄中贸易在1-2月增长逾40%，这种关系应该进一步加强。”
+阿里巴巴2月公布财报显示，其单季营收创2014年上市来最低增幅，受到核心业务部门销售下降和竞争加剧的影响。自去年年初以来，其股票已经下跌超过60%。自2020年底以来，中共政府对该公司处以创纪录的28亿美元罚款，并对互联网行业出台了一系列新规。
 
-俄罗斯财政部表示，在使用美元和欧元储备受阻后，莫斯科方面将动用其外汇储备中的人民币。
+据了解腾讯计划的消息人士称，在2021年底的一次腾讯内部会议上，首席执行官马化腾告诉员工，公司应该为“冬天”做好准备，这番话令一些员工忧心他们的饭碗恐怕不保。
 
-同时，一些俄罗斯银行正在通过中共国的银联系统发卡，因为制裁导致他们发行的Visa卡和万事达卡无法在海外使用。
-
-消息来源：[**莫斯科和北京方面正在研究替代SWIFT支付系统的变通方案–俄罗斯议员**](https://cn.reuters.com/article/russia-china-swift-fin-0317-idCNKCS2LE03I?il=0)
+消息来源：[焦点：阿里巴巴和腾讯准备裁员“过冬” 应对中国监管打压–消息](https://cn.reuters.com/article/alibabatencent-layoff-sources-0316-wedn-idCNKCS2LD13V?il=0)
 
 *编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
