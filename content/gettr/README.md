@@ -123,13 +123,6 @@ The new Chinese volunteers working at the rescue center at Medyka are not from t
 
 ---
 
-`@miles 3/17/2022 12:40 AM (UTC)`
-
-2022.03.16 晚 《新中国联邦新闻》11岁男孩独自逃离乌克兰 于斯洛伐克与家人团聚； 两名福克斯战地记者在乌克兰遇袭丧生
-![img](https://media.gettr.com/group47/origin/2022/03/17/00/0e91cb9d-ae61-c665-4363-7cbd47d60f3a/9548d67018b19975dcafea4c4484666a.png)
-
----
-
 `@miles 3/17/2022 12:17 AM (UTC)`
 
 3/16/2022 Miles Guo’s GETTR: There are so many people in the CCP who want to eliminate Xi Jinping. It’s said the virus is spreading like an AI specifically targeting the CCP, which claims to be closer to you than your parents. Bloomberg had a guilty conscience such that they contacted our fellow fighters Nicole and Wen Yao after my grand live broadcast yesterday, indicating our livestream had a huge impact.<br/><br/>3/16/2022 文贵盖特：共产党内部有太多人要干掉习近平，据说AI病毒去找比爹娘还亲的共产党了，彭博社在文贵大直播后做贼心虚地去找Nicole战友和文耀战友，说明咱直播的传播力很强啊 <br/>
@@ -155,6 +148,13 @@ The new Chinese volunteers working at the rescue center at Medyka are not from t
 
 2022.03.16 NFSC News   NFSC Volunteers overcome difficulties and stick to their duty； CCP and Russia’s plot on countering and diverting attention of the West
 ![img](https://media.gettr.com/group41/origin/2022/02/19/23/808a60d4-ecaa-654c-ec2c-280a21ab4033/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 3/16/2022 10:04 PM (UTC)`
+
+3/15/2022 Miles Guo: The CCP is sparing no effort to defame the New Federal State of China and our rescue operation in Ukraine by spreading rumors in Africa and sending CCP-backed Bloomberg to interview us as a setup, but Nicole and our fellow fighters did an excellent job with smart responses at the interview; the NFSC people on the frontline demonstrate a new image of the new Chinese that earns respect from other Asian countries<br/><br/>3/15/2022  文贵直播:  中共不遗余力地企图诋毁新中国联邦在乌克兰的救援行动，他们不但在非洲散布谣言，还在乌克兰救援前线通过布隆伯格的采访给新中国联邦挖坑，但Nicole和前线战友们表现绝佳机智应对；新中国联邦人在前线展现了令其他亚洲国家尊重的新中国人的形象<br/>
+![img](https://media.gettr.com/group14/getter/2022/03/16/22/06c86e7c-d5ce-a148-3a67-848a8f4f17ba/out.jpg)
 
 ---
 
