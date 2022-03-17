@@ -2,54 +2,36 @@
 ---
 
 
-## 英国出版商审查西方书籍以维持在中共国的廉价印刷合同
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2178819/)
+## 欧洲委员会一致决议开除俄罗斯会籍 俄宣布：将自行退出
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2179005/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/china-leader-xi-jinping-raise-glass-donald-trump-welcome-getty-640x480-1.jpg)习近平。图片：TPG/盖蒂图片社
-《布赖特巴特新闻网》2022年3月15日消息，据报道，英国的两家出版商对西方读者的书籍进行了审查，以维持他们在中共国廉价生产书籍的能力。
+撰稿：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-5.png)
+3月15日，欧洲委员会宣布，经大会表决通过将开除俄罗斯会籍，但俄罗斯在表决结果公布之前，便宣布将启动退出欧洲委员会的相关程序，俄罗斯将继希腊之后，成为欧洲委员会第二个宣布退出该机构的成员国。俄罗斯若退出欧洲委员会，将不再是欧洲人权公约的签署国。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1866.png)图片来自：https://www.reuters.com
+欧洲委员会，是欧洲最主要的人权组织，面对俄罗斯侵略乌克兰严重侵害人权一事，于14日连续两天在法国斯特拉斯堡召开议会大会PACE，讨论并投票决定俄罗斯的去留。
 
-英国《金融时报》报道，据称英国出版商Octopus Books 和Quatro已从面向中共国以外读者的书籍中删除了引用主题被中共视为禁区的内容，如台湾和西藏，因为他们希望维持与中共国境内印刷公司的合同。
+15日晚间，欧洲委员会宣布以216票同意、0票反对、3票弃权通过议案，大会一致认为俄罗斯不能再留在欧洲委员会，这项表决结果代表着欧洲委员会40多个成员国反对俄罗斯侵略乌克兰的行为。
 
-该报声称获得了证明这两家出版社对书籍进行了秘密编辑的文件。据英国《金融时报》报道，Octopus至少在两本书中删除了对台湾的引用，并在另一个例子中审查了关于这个岛国的整个章节。台湾拥有自己的独立民主政府，并拥有独特的文化、货币、书面语言和军队。尽管中共政府从未统治过该岛，但中共声称拥有其所有权。
+新闻链接：[Russia quits Council of Europe rights watchdog](https://www.reuters.com/world/europe/russia-formally-quits-council-europe-rights-watchdog-2022-03-15/)
 
-该报道还声称，英国图画书出版商Quarto从畅销书《This Book is Anti-Racist》中删除了对香港一名异见人士的引用。据称，Quarto还对作品进行了编辑，将引用台湾人国籍的内容改为“东亚”，并修改了关于西藏问题的文本以符合中共政府的主张，后者声称西藏一直是中共国的领土，尽管西藏在1951年被毛泽东部队吞并之前就已经是独立的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6765EFEC-ECC8-4F65-9ED8-04E97F0DB5B6.jpeg)
 
-拥有 Octopus Books 的阿歇特出版公司(Hachette)的一名员工告诉该报，该公司在“道德层面”上不同意审查制度，但表示“还没有不同意到让他们提高其书籍价格的程度”。
+编辑：飞虹
 
-为了进一步支持其说法，该报声称获得了美国印刷公司当纳利公司(RR Donnelley & Sons)制作的一份备忘录，该备忘录中写道，其中共国印刷商被禁止印刷包含新疆地区侵犯人权行为或者中共病毒源自中共国的书籍。
+总编：zhong
 
-美国出版业以外的其他主要机构也屈服于中共政府的想法，包括美国“国家橄榄球联盟”(NFL)和美国“国家篮球协会”(NBA)，他们都分别在台湾和香港的问题上“安抚”了这个共产主义政权。
+審核：纽约香草山教育部 Naughty(文行)
 
-美国地球仪制造商MOVA甚至向美国人出售带有所谓九段线的地球仪，九段线勾勒出中共在南海可疑的领土主张。
+校正/发稿：浪迹天涯
 
-去年，德国出版商卡尔森(Carlsen)也屈服于中共国的要求，甚至实际销毁了一本声称武汉病毒来自中共国的儿童书的副本。
-
-英国出版商也有修改作品以“安抚”这个共产主义政权的历史，学术出版商施普林格·自然 (Springer Nature)和剑桥大学出版社(Cambridge University Press)此前因阻止数百篇文章在中共国被访问而受到批评。
-
-**简评：**
-西方出版商、学术界、科研界与西方主流媒体一样，已经完全被中共成功蓝金黄。高尔基曾说过“书是人类进步的阶梯”，阅读被独裁者修订的书籍，可能走入的会是地狱，中共国的历史课本就是最好的例子。如今，为了维持自己高额的利润，西方大型出版社在中共廉价印刷合同的驱使下，将中共认为对其政权不利的新疆、西藏、香港、台湾的内容随意删除或者篡改事实。从什么时候开始中共国的审查制度被言论自由的西方世界接受并广泛应用，而这些传播知识者变成了中共的爪牙。中共在西方各大高校、研究机构的大撒币以及利用中国人廉价科研劳动力的渗透，偷走了大量的科技技术，更使得西方许多科学家一脚踏入泥潭，与中共沆瀣一气。
-
-2019年底中共发动的中共病毒大战，就是这一切的现世报。中共病毒的研发，资金和技术来自于西方科研机构。而掩盖病毒真相、宣传中共病毒疫苗的是被中共渗透的学术界以及西方主流媒体和卫生机构。中共一直以来以十四亿中国人和市场作为绑架资本社会的武器，用其擅长的恶毒手段，软硬兼施激发出西方人道德与文明约束下的人性的邪恶。如果没有新中国联邦爆料革命站出来揭穿这些真相，随着西方人阅读这些书籍，再加上主流媒体为中共的洗白，中共的邪恶可能真的会被掩埋，西方文明也会逐渐分崩瓦解，那时候中国人甚至全世界人民将会活在万劫不复的地狱。这是西方文明与共产主义的终极之战，新中国联邦爆料革命希望与国际社会一道，坚守正义，坚持唯真不破的原则，共同消灭邪恶的中国共产党政权。
-
-新闻链接：[UK Publishers Censor Western Books to Preserve Cheap Printing Contracts in Communist China: Report](https://www.breitbart.com/europe/2022/03/15/uk-publishers-censor-books-to-appeace-communist-china-report/)
-
-*翻译/简评：milkcat*
-
-*校对: Harvey（叶知秋）*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
