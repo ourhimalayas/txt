@@ -2,39 +2,36 @@
 ---
 
 
-## 美国之音记者：新中国联邦的灭共事业是中国人的榜样
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2179010/)
+## 新中国联邦救援信息：
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2179194/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏 
+作者：纽约香草山农场 – Irene木木
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。同时，自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发，前往波兰。
 
-整理/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/13-21.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-17_13-45-05.png)图片来源：郭文贵先生盖特视频截图
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
+
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+
+链接：
+
+- [《乌克兰救援》](https://www.gettr.com/post/pzvg8vdf4f)
 
 
-3月15日，在波兰梅迪卡国际难民营救中心，法治基金和新中国联邦志愿者妮可采访了美国之音记者KALIN BENTULA（音译）。美国之音记者表示，任何一个中国人都要把新中国联邦人当作偶像和榜样去学习，我们需要推翻这个邪恶的中国共产党，不仅仅是为了中国人，也是为了世界上每个人。中共把压榨中国人的血汗钱放进自己的腰包里。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-以下是妮可跟美国之音记者的采访对话。
+总编：zhong
+校正/发稿：海阔天空1
 
-妮可：“您好，欢迎来到我们的大帐篷，这是由法治基金资助的。我们是新中国联邦人，我们是致力于推翻中国共产党的新中国联邦人。因为中国共产党是造成全球灾难和人道主义危机的根源。因此，我们这些来自新中国联邦的中国人，希望通过推翻中共来帮助这个世界。让这个世界能够成为一个更美好的地方，让每个人都能享受自由、和平和民主。请告诉我们，您叫什么名字，来自哪里，好吗？”
-
-美国之音记者：“我叫KALIN BENTULA，我是一名长期从事电视工作的记者。现在我为美国之音工作，我是一个美国人。我也加入了这个由美国政府资助的媒体。我们报道过许多人、事情和事件。我们关注的事情有人道危机和战争。我们支持和平、和平进程和和平倡议。比如你们所倡议行动。”
-
-“在我看来，你们此次来到这里，简直太棒了。每个人都看到了，每个人都注意到了，中国人的另一面。我看到你们在这里，充满了活力，而且（为乌克兰难民）提供了非常大的帮助。这点非常重要，你们做得非常棒。我认为任何中国人，无论在中共国境内还是境外，都要看一看（这里发生了什么），他们必须把你们作为偶像和学习的榜样。因为你们的目标和你们的目的是非常有价值和非常重要的。”美国之音记者补充道。
-
-美国之音记者强调：“就像你们一样，作为人类，我们需要跳出种族限制和各种限制，我们需要推翻这个邪恶的中共。这不仅仅是为了中国人，也是为了世界上的每个人。让我非常心痛的是，中共在国际市场上，以800美元的价格发售苹果手机，但是中共国的工人们每小时只能拿到2美元、1美元。差价都去哪那里了？差价都到了共产党自己人的腰包里了。这就是我的看法。非常感谢你，谢谢你给我这个机会。感谢我身后的这位女士（妮可）。”
-
-[资料来源：郭文贵先生2022年3月16日盖特视频](https://www.gettr.com/post/p10bb49d5b7)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

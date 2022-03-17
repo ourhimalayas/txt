@@ -2,10 +2,10 @@
 ---
 
 
-## 代表乌克兰人民，泽连斯基总统号召俄罗斯士兵投降
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2179218/)
+## 新中国联邦梅迪卡救援中心出现在“今日美国”报道中
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2179312/)
 
-03/15/2022 代表乌克兰人民，泽连斯基总统号召俄罗斯士兵投降
+03/14/2022 新中国联邦梅迪卡救援中心出现在3月14日“今日美国”的相关报道中。原报道标题为“乌克兰难民抵达波兰”，视频链接：[https://youtu.be/3U4tlkK\_FX8](https://youtu.be/3U4tlkK_FX8)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
