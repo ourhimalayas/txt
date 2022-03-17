@@ -2,22 +2,27 @@
 ---
 
 
-## 樱花时政┃乌克兰切断与俄罗斯连接电网 转为与欧盟相连接
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2180082/)
+## 欧盟通过具有里程碑意义的数字货币监管新草案
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2180169/)
 
-撰稿：东京樱花团丨风翼
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-0-2-1.png)[*图片来源*](https://www.rfa.org/cantonese/news/0301-ua-eu-photo-3.jpeg)
-据布鲁塞尔时事报道：负责能源的欧盟专员西蒙森于3月16日宣布“已将摩尔多瓦和乌克兰两国的电力网络联接起来”。表示此举原因是回应乌克兰在俄罗斯入侵后退出了电力网络向欧盟提出的要求，也希望为维持乌克兰的稳定电力供应做出贡献。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/R2QXCSQ5HNAFBDHR6HB6JNWUBA.jpg)
+外媒报道，3月15日，欧盟议会的经济和货币事务委员会以31票对4票通过了数字货币市场监管的框架草案。24票弃权。该框架草案称为MiCA，包括数字货币的发行和交易，以及通过成员国之间有效的许可证来确保全面扩张。反对市场操纵和洗钱、恐怖主义融资和其他犯罪活动。
 
-从前苏联时代就开始的连接方式的转换，标志着乌克兰和摩尔多瓦的电力系统脱离了俄罗斯的影响。西蒙森先生在声明中说：“这是欧盟与乌克兰关系中的一个历史性里程碑。乌克兰现在是欧洲的一部分，”来强调团结一致的看法。
+这是欧盟具有里程碑意义的一个框架草案，它预示欧盟数字货币全面监管法案正在快速完善。目前该草案已经进入下一步谈判流程。
 
-从法新社3月4日报道的，被俄罗斯军队占领的切尔诺贝利核电站4号机组被掩体覆盖的事故发生后，乌克兰国有电力公司于3月14日刚恢复北部切尔诺贝利核电站的电力供应输电线路，又被俄罗斯军队破坏。俄罗斯极不人道的破坏人类生存行为和战争行为，从对其SWIFT制裁，网络断网、高级芯片制裁到欧盟欢迎乌克兰的加入，不难看出国际社会已将入侵者俄罗斯放在了对立面，没有未来的俄罗斯将何去何从，全世界拭目以待。
+据悉此前该委员会取消了能源消耗过高的数字货币矿工工作模式，后续的替代条款要求在2025年之前将这些企业列入分类系统，逐渐减轻数字货币的高碳排放对环境带来的污染，尽量使用可再生能源。
 
-信息来源：[**ウクライナ、ＥＵと電力網連結  ロシアから切り替え、連帯強調**](https://www.jiji.com/sp/article?k=2022031700530&amp;g=int)
+撰稿、发布：银河系农场—-骄子
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+reference：[https://www.coindesk.com/policy/2022/03/14/eus-sweeping-crypto-regulations-package-one-step-closer-to-ratification/](https://www.coindesk.com/policy/2022/03/14/eus-sweeping-crypto-regulations-package-one-step-closer-to-ratification/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0313_Handflag17x24cm2-2.png)
+欢迎订阅我们的G-News账号：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+* * *
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 12:12 PM (UTC)`
+
+2022年3月17日 文贵大直播：俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向
+![img](https://media.gettr.com/group8/origin/2022/03/17/12/3fb84fc3-3092-347d-8828-f09c8b38bae8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/17/2022 10:59 AM (UTC)`
 
 【Ukraine Rescue】03/16/2022 Nicole: All of our more than 60 brothers and sisters on the front line are working systematically. Everyone is working very hard for the ROLF & NFSC's Rescue Operation in their respective positions to make a little contribution.<br/><br/>【乌克兰救援】03/16/2022 妮可：我们整个在前线的60多名的战友都在有条不紊的，在各自的岗位上，大家都在努力的为这次法治基金和新中国联邦组织的这场救援的活动在贡献自己一点点的力量<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -148,13 +155,6 @@ The new Chinese volunteers working at the rescue center at Medyka are not from t
 
 2022.03.16 NFSC News   NFSC Volunteers overcome difficulties and stick to their duty； CCP and Russia’s plot on countering and diverting attention of the West
 ![img](https://media.gettr.com/group41/origin/2022/02/19/23/808a60d4-ecaa-654c-ec2c-280a21ab4033/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/16/2022 10:04 PM (UTC)`
-
-3/15/2022 Miles Guo: The CCP is sparing no effort to defame the New Federal State of China and our rescue operation in Ukraine by spreading rumors in Africa and sending CCP-backed Bloomberg to interview us as a setup, but Nicole and our fellow fighters did an excellent job with smart responses at the interview; the NFSC people on the frontline demonstrate a new image of the new Chinese that earns respect from other Asian countries<br/><br/>3/15/2022  文贵直播:  中共不遗余力地企图诋毁新中国联邦在乌克兰的救援行动，他们不但在非洲散布谣言，还在乌克兰救援前线通过布隆伯格的采访给新中国联邦挖坑，但Nicole和前线战友们表现绝佳机智应对；新中国联邦人在前线展现了令其他亚洲国家尊重的新中国人的形象<br/>
-![img](https://media.gettr.com/group14/getter/2022/03/16/22/06c86e7c-d5ce-a148-3a67-848a8f4f17ba/out.jpg)
 
 ---
 
