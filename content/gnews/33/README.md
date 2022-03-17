@@ -2,21 +2,36 @@
 ---
 
 
-## 被中共和媒体愚弄者醒来吧 不要去地狱做猪狗!
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2176458/)
+## 灭共的新中国联邦人是未来免受制裁的唯一人群
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176557/)
 
-作者：Evalu
-校对：Shifter
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-15-at-8.12.56-PM.jpeg)图片来源：Gettr
-3月15日在文贵大直播中，郭先生曝了很多的中南坑老杂毛尤其是韩正的料。中共老杂毛们已经如惊弓之鸟，他们自知罪孽深重，免不了被中国人民以及世界人民所唾弃，免不了受上天的惩罚。
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在3月13日的大直播中，郭先生与战友分享了俄罗斯大富豪Alex因受普京发动对乌克兰的入侵战争而被牵连，其个人财富全部被制裁，本人也被警察带走。Alex是黄金和化肥公司的老板，此人很会赚钱且钱都合法，个人品味不俗，低调严谨。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-48.jpg)
+随着全球化的发展，SWIFT成为了全世界统一认证的支付系统。郭先生把SWIFT形象地比喻为进入地球村大门的钥匙，俄罗斯被SWIFT踢出，所有俄罗斯人的账户都会受到影响，无法支付任何生活所需，就算有再多不具备流通性的黄金，也无法用来支付。尽管很多俄罗斯富豪都持有第三国护照，照样会受制裁。未来中共国一旦被SWIFT制裁，也会和俄罗斯一样，不分老百姓还是盗国贼或者持有他国护照，每个人都逃脱不了。
 
-在直播中，郭先生讲述了当年他去某地山上去见一位高人，在靠近那里的时候，他自己身体出现状况，出现孩提时代曾有过但很久不出现的大量鼻出血，随后这位高人从水晶球中看到了预示，预言文贵所进行的伟大事业一定会成功，让文贵先生在事业成功后去那个山里归隐。
+这时候唯有新中国联邦人可以免受制裁，因Hpay 提供了一个超级的流通支付系统。秉持消灭中国共产党的使命，投资过G系列、喜币、喜联储，这些会成为护身符，保护每一个战友的安全和财富。
 
-虽然郭先生没有讲得很仔细，但我们深信，新中国联邦，曝料革命确实是受到上天护佑的，回想起在2020年6月4日新中国联邦成立时，文贵先生咬指歃血为盟之刻天空同时出现闪电，这是我们大家亲眼所见的，我们知道这绝不是偶然的，这是上天为新中国联邦护航。
+参考链接：[俄罗斯寡头被西方制裁说明了什么？](https://gettr.com/post/pzu0el34d1)
 
-就像文贵先生一直说的，我们人类是有主人的，我们人类的主人要救我们脱离魔鬼的辖制。在这一伟大历史转变时期，我们新中国联邦人是有福的，我们共同战斗，也共同见证这个伟大的时刻。要成为新中国联邦人，我们首先要有人的良知，这是上天早就在我们心底里安置的，只是被这个魔鬼时代人的各种自私，贪婪，懦弱等所遮蔽。当人的良知被唤醒，被真相所惊醒，我们就能重新做人，大家团结起来一起与邪恶作斗争，如果我们一直浑浑噩噩，与邪恶为伍，就彻底丢失了人的良知，上天就会让我们去地狱做猪狗的。醒来吧，同胞们！为我们自己，为子孙后代，不辜负上天的使命，砸碎中共这个魔鬼的锁链。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-来源链接：[https://www.gettr.com/streaming/p1051m93814](https://www.gettr.com/streaming/p1051m93814)
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
