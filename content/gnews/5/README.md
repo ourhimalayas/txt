@@ -2,35 +2,32 @@
 ---
 
 
-## 有声|新中国联邦参与国际组织战地救援协调大会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2181978/)
+## 这个战场上最重要的贡献者，每个人都是英雄
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2182093/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-波兰当地时间3月14日，梅蒂卡救援站所有义工组织的成员代表集中在新中国联邦的最大救援帐篷中，召开会议讨论整个营地的系统化管理。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-这次会议由联合国、国际红十字会、以及无国界救援者等组织联合发起。当天早上，新中国联邦救援人员已经与联合国救援工作人员完成对接。会议计划，把新中国联邦帐篷这一排作为一列新的难民营地所在。 新中国联邦救援人员表示，根据救援需要，可以搭建更大的帐篷，全力配合国际组织的需要。
+2022-03-15直播摘录
 
-据悉，会议将于明日早晨继续召开，新中国联邦救援人员会参与探讨基地的整合建设。
+“习太阳”可能要把真的中国人民、中国民族彻底给烤焦，在这种情况下，我们看到前线的时候，我们跟谁在作战？我们的对手是“习太阳”，是邪恶的独裁普京大帝。俄罗斯是发起了完全没有理由的完全是没有任何正义的，对乌克兰的战争，到乌克兰去抓纳粹，你觉得这有多荒唐的语言，就像现在共产党告诉全世界人民：我们是世界上最爱好和平的民族和国家，中国共产党人在中国是世界上最好的民主法治社会，中国人在活着这种奴隶的社会都天天偷着乐。这种王八蛋的流氓逻辑，想欺骗全世界75亿人，你觉得他们是不是疯了呢？在这种情况下，世界上每一个地球人都有义务，都应该保护我们的未来和我们的安全和我们的家人和孩子。而在战场之上，所有人都应该参与，到达前线的战友们，就是这个战场上最重要的贡献者，每个人都是英雄。
 
-本次会议场地由新中国联邦提供，会议结束后，所有与会人员主动起立，当场感谢新中国联邦所提供的国际人道主义帮助。这次会议是新中国联邦首次全程参与全球国际组织的合作，受到了全球组织的欢迎与认可。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-这是历史上首次，在国际舞台上，有新中国联邦而没有中国共产党的国际组织会议。这一时刻将被载入史册。
+**关注我们**
 
-文字版原文：[新中国联邦参与国际组织战地救援协调大会](https://gnews.org/zh-hans/2169623/)
+Discord 账号
 
-音频处理：Fei797
-发稿：Fei797
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+Gettr 账号
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
