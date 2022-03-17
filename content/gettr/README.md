@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 1:31 AM (UTC)`
+
+【Ukraine Rescue】16/03/22  Italian war-zone pianist Davide Martello volunteers to play “The Terminator Snow” that Nicole once played for him.<br/><br/>【乌克兰救援】16/03/22 意大利战地钢琴家Davide Martello主动要求弹奏Nicole战友曾经给他播放的《灭共的雪》<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group50/getter/2022/03/17/01/eec17eaf-ff1e-8fb1-2b01-12fc2feeb985/out.jpg)
+
+---
+
 `@miles 3/17/2022 1:15 AM (UTC)`
 
 2022.03.16 晚《新中国联邦新闻访谈》文斌战友分享俄乌战争最新军事动态；乌克兰救援活动最新进展分享；泽连斯基美国会演讲，敦促拜登成为世界和平捍卫者；欧米克朗变种肆虐全球，醉翁之意是否在疫苗。
@@ -149,13 +156,6 @@ https://gettr.com/streaming/p10bftt7ad6
 
 【Ukraine Rescue】03/16/2022 Nicole interviews a cameraman from a Spanish news outlet and introduces us as the New Chinese from the New Federal State of China who are taking down the Chinese Communist Party.The cameraman says “You are doing good, We are proud of you with your collaboration!”<br/><br/>【乌克兰救援】03/16/2022 妮可采访一家西班牙新闻媒体的摄影师，并向他介绍我们是来自新中国联邦的新中国人，我们的目标是推翻中国共产党。这位摄影师说：“你们做得很棒！我为你们的合作感到自豪！”<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group44/getter/2022/03/16/13/b85f7407-a277-326b-3b49-350b1398d94d/out.jpg)
-
----
-
-`@miles 3/16/2022 1:13 PM (UTC)`
-
-3月16号，尊敬的战友们好，香港病毒大流行，正在导致香港大量人员，被秘密死亡，一切死亡和感染的数据都是假的……共产党的经济和将实行的攻台计划！引发了党内的剧烈的政治斗争。共产党人为了保护自己的巨额财富，要与太阳拼死一战，也保护自己的海外市场和私生子女！
-![img](https://media.gettr.com/group20/getter/2022/03/16/13/2456de69-708d-9c4a-67bc-11bbe72c0ae7/out.jpg)
 
 ---
 
