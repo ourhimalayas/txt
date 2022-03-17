@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 10:25 AM (UTC)`
+
+The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Rescue Team – 24h Hotline: +1 7206576776 or +1 719-224-4232 or +48 508-532-712 or +48 508-531-518 Telegram: t.me/UkraineRescue GETTR: https://gettr.com/user/UkraineRescue<br/>我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є першопричиною катастроф у світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
+![img](https://media.gettr.com/group29/origin/2022/03/17/07/e4aef75e-9b3f-a145-5373-3effdd86aa6a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/17/2022 10:21 AM (UTC)`
 
 【Ukraine Rescue】 03/16/22 Volunteer Wenyao set up a Kids Corner at the camp, where she drew pictures with the children to make them forget the pain bought by the war. A girl is so happy and she hugged Wenyao affectionately. The children’s mothers get to have some rest thanks to the Kids Corner.<br/><br/>【乌克兰救援】 03/16/22 文燿战友在基地设立了“孩子角”，亲自陪小朋友画画，让他们暂时忘记战争。小朋友们开心地玩耍，亲切地拥抱文燿。孩子们的妈妈们也终于能在此时得到一些休息。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -148,13 +155,6 @@ The new Chinese volunteers working at the rescue center at Medyka are not from t
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-16
 ![img](https://media.gettr.com/group25/origin/2022/03/16/21/3093ff23-d05d-2f4f-7f67-315ca8332c92/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/16/2022 6:55 PM (UTC)`
-
-1. The Italian war veteran WenKe presented the New  Federal Sate Of China  network on the front line to Davide Martello, the famous Italian-born war pianist from Germany. Music and technology, make us feel peace and freedom.<br/>2. Davide Martello played the national anthem of the New Federal State Of China  in tribute to <br/>the Rule of Law Foundation and the New  Federal State Of China for bringing warmth and hope in the midst of war.<br/>3. In the face of war and violence. Our children used their paintbrushes to draw the peaceful world they dreamed of.<br/><br/>1.意大利文科给德国的意大利裔著名战地钢琴家Davide Martello介绍新中国联邦在前线的卫星网络。音乐和科技让我们感受到和平和自由。<br/>2.Davide Martello为感谢法治基金和新中国联邦在战争和硝烟中带来温暖和希望，特意弹奏新中国联邦国歌，以示敬意。<br/>3.在战争和暴力面前，我们的孩子用画笔画出他们梦想的和平世界。
-![img](https://media.gettr.com/group48/origin/2022/03/16/18/0fd7957d-4fa1-327b-355c-9e5d2c18ee39/out.jpg)
 
 ---
 
