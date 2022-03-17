@@ -2,26 +2,31 @@
 ---
 
 
-## 闯俄国电视台新闻直播间-反对战争和欺骗
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2182345/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月17日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2182377/)
 
-编辑： 上帝的孩子
-发稿：am夏天
-德国纽伦堡正义农场
-来源：阿波罗新闻网
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-6.jpg)
 
-俄罗斯入侵乌克兰，总统泽伦斯基带领全国军民携手抗俄，激起全球反俄浪潮，包括俄罗斯本国在内，都涌现众多抗议人潮。1名俄罗斯电视台女编辑，日前还冲进新闻节目直播中，跑到主播身后高举反战标语，大喊“停止战争，不要打仗”，虽然她当场就遭到逮捕，但勇敢冒险为乌克兰发声的举动，广受各国网友敬佩。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-17.png)
+文章仅代表作者本人观点，与Gnews无关
 
-乌克兰官方信息来源核实中心15日凌晨释出俄罗斯官媒14日的新闻节目影片，画面中该电视台女编辑玛丽娜·奥夫扬尼科娃（Marina Ovsyannikova），冲进晚间新闻的直播现场，大喊“停止战争，不要打仗”，手上高举用俄文写下“不要相信宣传，他们在这里骗你”的标语，呼吁“俄罗斯人反对战争”。
+视频参看：
+[2022.03.17 《NFSC新闻》](https://gettr.com/streaming/p10gf3o9d08)
+[2022.03.17早《NFSC新闻访谈》](https://gettr.com/streaming/p10gzlwbcdc)
 
-抗议行动当下，主播加大音量念出提词器上的内容，试图盖过玛丽娜，但在画面被紧急切换到录制片段前，玛丽娜的抗议仍被播出数秒钟。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-知道自己这样做肯定会被逮捕，玛丽娜还事先录下一段自白，并寄给俄罗斯独立人权媒体（OVD-Info，OI）。她在影片中说，“很遗憾，多年来我一直在为官媒工作，帮助克里姆林宫的大内宣。我现在为此感到很惭愧，真的非常惭愧，我被要求在电视上公然说谎。我为自己的助纣为虐导致人民僵尸化而感到羞耻”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-2.png)
 
-玛丽娜也呼吁同胞们加入反战抗议活动，“只有我们有能力阻止这疯狂的一切。去抗议吧！不要害怕，他们不能囚禁我们所有人”。
+**更多资讯，更多关注**
+[纽约香草山农场NFSC-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场NFSC-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-新闻来源：[https://www.aboluowang.com/2022/0315/1720954.html](https://www.aboluowang.com/2022/0315/1720954.html)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,25 +2,36 @@
 ---
 
 
-## Alnylam起诉辉瑞和莫德纳mRNA专利侵权
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2182496/)
+## 美追加对乌军事援助称“普京永远无法获胜”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2182533/)
 
-**撰稿：日本东京方舟农场 画画  **
+**撰稿：文舞两道**
 
-Alnylam Pharmaceuticals, Inc. 周四(17 日) 表示，已在美国特拉华州地区法院分别对辉瑞和Moderna提起诉讼，要求赔偿此两家公司在制造和销售其信使RNA（mRNA）中共病毒疫苗时侵犯美国专利第11,246,933号（”933专利”），该专利涉及Alnylam公司的可生物降解阳离子脂质，是mRNA 中共病毒疫苗成功的基础。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-86.jpg)
-Alnylam 表示，它正在寻求两家公司就使用其脂质纳米粒子 (LNP) 技术提出赔偿。据悉，该技术重点是在体内携带和提供基于 RNA 的疗法，这是 mRNA COVID-19疫苗成功的基础。
+3月16日，美拜登总统签署总统令，决定向乌克兰追加提供总额8亿美元的军事援助，并将提供无人机和防空导弹系统。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1927.png)图片来源：[NHK](https://www3.nhk.or.jp/news/html/20220317/k10013536971000.html?utm_int=news-international_contents_list-items_007)
+拜登总统在现场表示，“我们支持为自由而战，这是美国和全世界的基本原则，普京永远无法获胜”。拜登总统说，“为防止飞机和直升机袭击平民并保卫乌克兰领空”，我们还将为乌克兰提供无人机和防空系统。
 
-Alnylam宣称：不打算寻求禁令或采取阻碍疫苗生产、销售或分销的行动。这样官方声明以及诉讼诉求，释放了强烈的信号: 只要专利侵权的赔偿金。
+据白宫称，此次军事援助将包括800个防空导弹系统“毒刺”和100架无人机。
 
-参考链接：1.[https://www.businesswire.com/news/home/20220317005522/en/Alnylam-Pharmaceuticals-Files-Patent-Infringement-Suits-against-Pfizer-and-Moderna](https://www.businesswire.com/news/home/20220317005522/en/Alnylam-Pharmaceuticals-Files-Patent-Infringement-Suits-against-Pfizer-and-Moderna)
-2.[https://www.sinotrade.com.tw/richclub/news/623330d17b27b6e9101d5662](https://www.sinotrade.com.tw/richclub/news/623330d17b27b6e9101d5662)
-3 . [https://finance.yahoo.com/news/alnylam-pharmaceuticals-files-patent-infringement-113000178.html?guccounter=1&guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce\_referrer\_sig=AQAAAJFGPg3U7qXlzz0k7Pjj5KuMhuGeeRw77FkSX8TR3WaFLwdaLTF7sOIBmiXfIoGSUEZeSAribu8ijSs38j9B4VtL7TPZQPhBU3l-hXOzL8rYxVZYuAuFL8LKPh5vLJa6oy42XxGd1hhwMl4MQVVikjDbSNnSa8gpjLmhzUoaDZ6k](https://finance.yahoo.com/news/alnylam-pharmaceuticals-files-patent-infringement-113000178.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAJFGPg3U7qXlzz0k7Pjj5KuMhuGeeRw77FkSX8TR3WaFLwdaLTF7sOIBmiXfIoGSUEZeSAribu8ijSs38j9B4VtL7TPZQPhBU3l-hXOzL8rYxVZYuAuFL8LKPh5vLJa6oy42XxGd1hhwMl4MQVVikjDbSNnSa8gpjLmhzUoaDZ6k)
+乌克兰总统泽连斯基呼吁在乌克兰上空建立禁飞区，并提供战斗机以抵御俄罗斯军机的轰炸和导弹袭击。美国否认了直接与俄罗斯发生军事冲突的可能性。
 
-编辑：画画
-总编：青城道姑
-校对发布：小斐
+另一方面，在平民伤亡不断增加的情况下，加强乌克兰的防空能力已成为当务之急。现在美国在紧盯俄罗斯的同时，尽可能的为乌克兰提供军事支援，拜登总统说，在为乌克兰提供远程防空系统的同时，将尽力与同盟国、友好国一起提供更多的武器和装备”。并表示在各国的协助下将进一步加强对乌克兰的军事援助。
 
+此外，拜登总统对记者说，普金是“战犯”，这是拜登总统首次使用“战犯”一词严厉的指责普金。
+
+白宫发言人萨基在新闻发布会上说，“这是总统在看到独裁者杀害公民，袭击医院、孕妇和记者的残暴行径后发表的言论”。并表示，国际法院正在调查俄罗斯的行为是否构成战争罪。
+
+信息来源：[NHK：米 ウクライナに追加軍事支援 「プーチンを絶対に勝たせない」](https://www3.nhk.or.jp/news/html/20220317/k10013536971000.html?utm_int=news-international_contents_list-items_007)
+
+**编辑：MQ**
+
+**发布：歪桑の幽霓控**
+
+20220317
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
