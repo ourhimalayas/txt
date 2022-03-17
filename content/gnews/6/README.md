@@ -2,10 +2,10 @@
 ---
 
 
-## 如果俄罗斯发射导弹至北约领土，北约将采取措施
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2181189/)
+## 【乌克兰救援】波兰记者Rafał Miżejewski在推特上说“中国共产党不能代表中国 ”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2181320/)
 
-03/15/2022 北约秘书长答记者问时表示，如果俄罗斯的导弹意外或故意发射到北约领土，以及如果中共向俄罗斯提供军事援助，北约将采取措施
+【乌克兰救援】03/16/2022  波兰记者Rafał Miżejewski在推特上引用妮可战友的话：“中共当局不能代表中国，它是独裁政权，这就是我们帮助救援的原因，我们与乌克兰人站在一起”
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

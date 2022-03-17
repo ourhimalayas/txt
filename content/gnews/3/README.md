@@ -2,48 +2,31 @@
 ---
 
 
-## 有声|独裁者之死—齐奥塞斯库
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2181211/)
+## 澳大利亚新南威尔士州CCP病毒感染新增再破两万
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2181418/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月13日的文贵大直播中，郭先生多次提到了前罗马尼亚共产党独裁者尼古拉-齐奥塞斯库的结局，让我们回顾历史，重温这一共产主义独裁者及其夫人的传奇经历和他们悲惨的人生结局。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-15-%E4%B8%8A%E5%8D%8811.24.24.png)
-尼古拉·齐奥塞斯库，出生于1918年1月26日，1965年至1989年任罗马尼亚共产党总书记，1967年至1989年间任国务委员会主席，1974年起为该国首任总统。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.17-D.jpg)网络图片
+本周三，澳大利亚新南威尔士州再度记录了 20,087 例 COVID-19 新增感染病例。而在前一天的周二，这一数字则直接突破30,000——随着 Omicron BA.2 子变体的传播，卫生专家敦促居民遵守各项公共卫生措施。
 
-齐奥塞斯库对内实行独裁统治，剥夺人民的人权和言论自由，控制人民思想，用秘密警察监视人民生活。齐政权反对妇女堕胎，禁止离婚，以此来增加国家人口，增强国力，使民众生活在恐怖的高压下。
+同时该州又有五人因患CCP病毒而不幸离世，目前仍然有34人处于重症监护的状态。
 
-齐奥塞斯库政权是东欧集团中坚决执行“斯大林体制”的政权。他追崇个人崇拜，居功自傲。齐奥塞斯库作为总统拥有了直接颁布法律、任免政府成员的大权，集党、政、军大权于一身，成了主宰一切的绝对权威。80年代初，齐奥塞斯库夫人埃列娜在政坛上上升到仅次于她丈夫的地位。
+一周以前，新南威尔士州报告的病例数目还在10,000至20,000之间，健康专家当时就警告Omicron的BA.2 子变体可能导致感染在四到六周内翻倍。
 
-在齐奥塞斯库的领导下，罗马尼亚盲目快速发展工业。到80年代，该国进入债务高潮期。民众生活必需的农副食品、药品、日用品供应极度紧缺，煤气、暖气和电力供应严重不足，国民陷入生活困境，怨声载道。
+传染病专家罗伯特·布伊教授对这一子变体表示担忧：“它可能同样严重，2022 年截至目前的死亡人数比前两年的全年总额都多……我们必须保持警惕，同时我们必须机智应对。”
 
-1989年12月16日，罗马尼亚西部边境重镇蒂米什瓦拉出现骚乱，罗马尼亚共产主义政府用“ 煽动民族仇恨”来定性事件，并用军警坦克血腥镇压反抗的示威群众。事件中，民众喊出了“打倒齐奥塞斯库”等口号，蒂米什瓦拉事件，是直接导致齐奥塞斯库灭亡的导火索。
+布伊教授认为，虽然恢复封锁暂时没有必要，但人们应该考虑恢复在室内佩戴口罩，如果可能的话尽量在家工作，并避开人群。
 
-1989年12月21日，齐奥塞斯库在首都召集10万群众大会，齐在发表讲话，抨击蒂米什瓦拉事件。广场上有人大喊了一声：“打倒齐奥塞斯库！”。群众的政府的愤怒一下被点燃了，人们高喊着：“打倒杀人犯！”，群众大会演变成反齐奥塞斯库的示威。很快罗马尼亚“救国阵线”宣告成立，宣布解散齐奥塞斯库的全部政权机构。支持齐奥塞斯库的保安部队与反对他的军队和群众展开激烈巷战。起义者占领了电台和电视台。
+昨天公布的维多利亚州废水测试结果显示，BA.2 子变体已经是该州一半以上采样的流域中最普遍的CCP病毒变异类型。BA.2子变体在 1 月份美国报告的病例中仅占不到 100 例，然而上周它在美国 CCP病毒病的占比约为 23%。
 
-齐奥塞斯库看到局面彻底失控，22日中午，夫妇二人乘坐直升飞机逃离党中央大厦。到达博特尼后，立即转乘汽车逃跑，结果被罗马尼亚救国阵线逮捕。25日，特别军事法庭判处齐奥塞斯库夫妇死刑。当日，齐和妻子被枪决。 颇具讽刺意味的是，在齐奥塞斯库夫妇被执行枪决的两周后，时任“救国阵线委员会**”**领导人颁布法令废除死刑；并在1991年得到《罗马尼亚宪法》的明文支持。
+*发布：Gradient Boost*
 
+新闻参考链接：
 
+[NSW records 20,087 new infections amid warning over Omicron BA.2 sub-variant](https://www.9news.com.au/national/coronavirus-update-nsw-clocks--20087-new-infection-as-experts-warn-about-subvariant-ba2/d6938f52-6cb4-43cb-887c-565dc0428c3a)
 
-文字版原文：[独裁者之死—齐奥塞斯库](https://gnews.org/zh-hans/2169717/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[What we know about Omicron BA.2 sub-variant](https://www.9news.com.au/health/explainer-what-we-know-about-ba2-variant-stealth-version-of-omicron/f475a14d-edba-4fe4-b521-a7c1eb7ca0f7)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

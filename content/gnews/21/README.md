@@ -2,16 +2,36 @@
 ---
 
 
-## 中共强力救市 股指回光返照
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2180550/)
+## 俄乌战争敲响德国汽车制造业警钟 避免过度依赖独裁专制国家
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2180835/)
 
-文贵大直播20220317
+据大纪元3月17日报道，德国汽车业界人士认为，应在俄乌战争中吸取教训，避免过度依赖独裁专制国家，尤其是中共国。
 
-撰稿：蚂蚁的城堡（新西兰）
+俄罗斯入侵乌克兰之后，不仅面临西方国家连番严厉的经济制裁，许多国际企业也纷纷中止了在俄业务。
 
-美工：Maggie（秘翻）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-1.png)
-*发布：Theodosia*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-3-2.jpeg)俄乌战争爆发后，国际企业面临中止在俄业务的压力。德国汽车业界人士认为，这显示了依赖专制国家的巨大风险。（图片来自大纪元）
+
+据财经媒体的消息称，德国汽车制造业三巨头：大众（Volkswagen）、宝马（BMW）和奔驰（Mercedes-Benz）在俄乌战争爆发一周后，就暂停了在俄罗斯的生产和销售。这三家汽车制造商去年在俄罗斯，仅售出不到30万辆汽车，相较于全球交付的1,300万辆汽车，这仅是小小一部分。
+
+然而，一位德国汽车制造商的顾问表示，如果在类似情况下面临退出中共国的压力，这些欧洲企业可能面临生存危机。
+
+该财经媒体指出，大众汽车面临的就是生存危机。尽管准确数字没有披露，但大众汽车的年度净利润至少一半来自于中共国。
+
+大众汽车是世界第二大的汽车制造商。大众汽车连同旗下子公司奥迪（Audi）、保时捷（Porsche）和斯柯达（Skoda）产销的汽车合并计算，“在2021年，每9.5秒就有一辆汽车在中国售出”。
+
+本周三，就俄乌战争相关问题，中美双方代表在罗马举行了艰难的会谈。会后美方代表认定中共决意援助俄罗斯继续入侵乌克兰。
+
+正如一位大众汽车前内部人士所说，大众汽车与中共国的接触“已在倒数计时”（was a ticking clock）。
+
+德国智库全球公共政策研究所（GPPI）所长本纳（Thorsten Benner）说：“俄罗斯的事件应让德国公司感到恐惧，因为你可看到，对一个考虑派兵占领另一块领土的威权大国进行投资，是多么的冒险。”
+
+德国社民党联合主席克林拜尔（Lars Klingbeil）对媒体表示，“我们必须大幅减少对独裁国家的依赖。在能源供应方面，我们看到了对俄罗斯的过度依赖。对于中共国，我们现在就可以开始切割。”
+
+参考链接：
+[https://www.epochtimes.com/gb/22/3/17/n13652030.htm](https://www.epochtimes.com/gb/22/3/17/n13652030.htm)
+
+总编：老孙
+校对发布：文曦
 
  
 

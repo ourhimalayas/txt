@@ -2,87 +2,51 @@
 ---
 
 
-## 国务院：任何支持普京谎言的国家(比如中共国)都是在加剧乌克兰的毁灭
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2178013/)
+## 英国出版商审查西方书籍以维持在中共国的廉价印刷合同
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2178819/)
 
-> 美国国务院：
-> 美国在乌克兰没有化学或生物武器计划。
-> 俄罗斯政府需要停止说谎 [#StopTheLies](https://twitter.com/hashtag/StopTheLies?src=hash&amp;ref_src=twsrc%5Etfw)。
-> 【附中字视频：任何支持这些谎言的国家(如 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw))都是在加剧乌克兰的毁灭】 [https://t.co/XbrNQ5m6E2](https://t.co/XbrNQ5m6E2) [pic.twitter.com/Za2HAA6x4x](https://t.co/Za2HAA6x4x)
-> — 美国政要直译推 (@zhiyitw33) [March 17, 2022](https://twitter.com/zhiyitw33/status/1504287097636548610?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/china-leader-xi-jinping-raise-glass-donald-trump-welcome-getty-640x480-1.jpg)习近平。图片：TPG/盖蒂图片社
+《布赖特巴特新闻网》2022年3月15日消息，据报道，英国的两家出版商对西方读者的书籍进行了审查，以维持他们在中共国廉价生产书籍的能力。
 
+英国《金融时报》报道，据称英国出版商Octopus Books 和Quatro已从面向中共国以外读者的书籍中删除了引用主题被中共视为禁区的内容，如台湾和西藏，因为他们希望维持与中共国境内印刷公司的合同。
 
+该报声称获得了证明这两家出版社对书籍进行了秘密编辑的文件。据英国《金融时报》报道，Octopus至少在两本书中删除了对台湾的引用，并在另一个例子中审查了关于这个岛国的整个章节。台湾拥有自己的独立民主政府，并拥有独特的文化、货币、书面语言和军队。尽管中共政府从未统治过该岛，但中共声称拥有其所有权。
 
-参议员玛莎·布莱克本： #共产主义中国 希望利用发生在世界舞台上的危机——我们承受不起拜登政府的失策。
+该报道还声称，英国图画书出版商Quarto从畅销书《This Book is Anti-Racist》中删除了对香港一名异见人士的引用。据称，Quarto还对作品进行了编辑，将引用台湾人国籍的内容改为“东亚”，并修改了关于西藏问题的文本以符合中共政府的主张，后者声称西藏一直是中共国的领土，尽管西藏在1951年被毛泽东部队吞并之前就已经是独立的。
 
+拥有 Octopus Books 的阿歇特出版公司(Hachette)的一名员工告诉该报，该公司在“道德层面”上不同意审查制度，但表示“还没有不同意到让他们提高其书籍价格的程度”。
 
+为了进一步支持其说法，该报声称获得了美国印刷公司当纳利公司(RR Donnelley & Sons)制作的一份备忘录，该备忘录中写道，其中共国印刷商被禁止印刷包含新疆地区侵犯人权行为或者中共病毒源自中共国的书籍。
 
-> Communist China wants to take advantage of the crises happening on the world stage — we cannot afford a slip up by the Biden administration.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 16, 2022](https://twitter.com/MarshaBlackburn/status/1504149600860577792?ref_src=twsrc%5Etfw)
+美国出版业以外的其他主要机构也屈服于中共政府的想法，包括美国“国家橄榄球联盟”(NFL)和美国“国家篮球协会”(NBA)，他们都分别在台湾和香港的问题上“安抚”了这个共产主义政权。
 
+美国地球仪制造商MOVA甚至向美国人出售带有所谓九段线的地球仪，九段线勾勒出中共在南海可疑的领土主张。
 
+去年，德国出版商卡尔森(Carlsen)也屈服于中共国的要求，甚至实际销毁了一本声称武汉病毒来自中共国的儿童书的副本。
 
-参议员卢比奥新闻办公室： 参议员卢比奥、格雷厄姆和同事们赞赏参议院一致通过了两党决议，呼吁普京和他的政权成员为被指控的战争罪行、侵略和侵犯人权行为负责。
+英国出版商也有修改作品以“安抚”这个共产主义政权的历史，学术出版商施普林格·自然 (Springer Nature)和剑桥大学出版社(Cambridge University Press)此前因阻止数百篇文章在中共国被访问而受到批评。
 
+**简评：**
+西方出版商、学术界、科研界与西方主流媒体一样，已经完全被中共成功蓝金黄。高尔基曾说过“书是人类进步的阶梯”，阅读被独裁者修订的书籍，可能走入的会是地狱，中共国的历史课本就是最好的例子。如今，为了维持自己高额的利润，西方大型出版社在中共廉价印刷合同的驱使下，将中共认为对其政权不利的新疆、西藏、香港、台湾的内容随意删除或者篡改事实。从什么时候开始中共国的审查制度被言论自由的西方世界接受并广泛应用，而这些传播知识者变成了中共的爪牙。中共在西方各大高校、研究机构的大撒币以及利用中国人廉价科研劳动力的渗透，偷走了大量的科技技术，更使得西方许多科学家一脚踏入泥潭，与中共沆瀣一气。
 
+2019年底中共发动的中共病毒大战，就是这一切的现世报。中共病毒的研发，资金和技术来自于西方科研机构。而掩盖病毒真相、宣传中共病毒疫苗的是被中共渗透的学术界以及西方主流媒体和卫生机构。中共一直以来以十四亿中国人和市场作为绑架资本社会的武器，用其擅长的恶毒手段，软硬兼施激发出西方人道德与文明约束下的人性的邪恶。如果没有新中国联邦爆料革命站出来揭穿这些真相，随着西方人阅读这些书籍，再加上主流媒体为中共的洗白，中共的邪恶可能真的会被掩埋，西方文明也会逐渐分崩瓦解，那时候中国人甚至全世界人民将会活在万劫不复的地狱。这是西方文明与共产主义的终极之战，新中国联邦爆料革命希望与国际社会一道，坚守正义，坚持唯真不破的原则，共同消灭邪恶的中国共产党政权。
 
-> Sen Rubio, [@LindseyGrahamSC](https://twitter.com/LindseyGrahamSC?ref_src=twsrc%5Etfw), & colleagues applauded the Senate's unanimous passage of their bipartisan resolution calling for [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) & members of his regime to be held accountable for acts of alleged war crimes, aggression, & human rights abuses.
-> 
-> Read ⬇️[https://t.co/xO6phndG53](https://t.co/xO6phndG53)
-> — Senator Rubio Press (@SenRubioPress) [March 16, 2022](https://twitter.com/SenRubioPress/status/1504153298416328705?ref_src=twsrc%5Etfw)
+新闻链接：[UK Publishers Censor Western Books to Preserve Cheap Printing Contracts in Communist China: Report](https://www.breitbart.com/europe/2022/03/15/uk-publishers-censor-books-to-appeace-communist-china-report/)
 
+*翻译/简评：milkcat*
 
+*校对: Harvey（叶知秋）*
 
-白宫： 今天,总统宣布了一项8亿美元的援助计划，帮助乌克兰抵御俄罗斯的无理入侵。 这使得美国在过去一周承诺给乌克兰的安全援助总额达到10亿美元，自总统上任以来共达20亿美元 。新的8亿美元一揽子计划包括: – 800套防空系统 – 9000套反装甲系统 – 7,000件小型武器 – 2000万发子弹 -无人机系统 等等。这种援助将采取直接从国防部向乌克兰军方移交设备的形式。我们继续与盟国和伙伴合作，为向乌克兰输送更多援助提供便利。
+* * *
 
-
-
-> Today, [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) announced an $800M assistance package to help Ukraine defend their country against Russia’s unprovoked and unjustified invasion.
-> 
-> This brings the total U.S. security assistance committed to Ukraine to $1B in the past week and a total of $2B since [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) took office.
-> — The White House (@WhiteHouse) [March 16, 2022](https://twitter.com/WhiteHouse/status/1504148983849050122?ref_src=twsrc%5Etfw)
-
-
-
-比尔.格茨： [#中国共产党](https://gettr.com/hashtag/%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A) 最高领导人习近平试图挽救北京对弗拉基米尔.普京的投资，但在乌克兰入侵中面临重大考验 【转华盛顿时报比尔.格茨报道：俄罗斯入侵乌克兰考验中国领导人 – 习近平支持普京，但西方制裁可能打击北京】
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> Chinese Communist Party Supreme Leader Xi Jinping is trying to salvage Beijing’s investment in Vladimir Putin but is facing a major test in the Ukraine invasion [https://t.co/YU5er4iXAD](https://t.co/YU5er4iXAD)
-> — Bill Gertz (@BillGertz) [March 16, 2022](https://twitter.com/BillGertz/status/1504083558599700486?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎.布莱克本： 沙特阿拉伯希望使用 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的数字人民币进行石油销售。 我们的对手正在利用这个机会排挤美国，只要拜登允许他们这样做，他们就会继续。
-
-
-
-> Saudi Arabia wants to use Communist China’s Digital Yuan for oil sales.
-> 
-> Our adversaries are using this opportunity to dismiss the U.S., and they will continue to do so as long as Biden allows them to.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 16, 2022](https://twitter.com/MarshaBlackburn/status/1504179978954579969?ref_src=twsrc%5Etfw)
-
-
-
-拜登总统： 普京正在给乌克兰造成骇人听闻的破坏和恐怖——轰炸公寓楼和产科病房。 昨天，我们看到有报道称俄罗斯军队将数百名医生和病人扣为人质。 这些都是暴行。 使世界愤慨。
-
-
-
-> Putin is inflicting appalling devastation and horror on Ukraine — bombing apartment buildings and maternity wards. 
->  
-> Yesterday, we saw reports that Russian forces were holding hundreds of doctors and patients hostage.
->  
-> These are atrocities. It is an outrage to the world.
-> — President Biden (@POTUS) [March 16, 2022](https://twitter.com/POTUS/status/1504182615011643403?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克·蓬佩奥： 英国以 5.3 亿美元的价格解救出其被扣为人质的公民。 我们(川普政府) 阻止了支付血钱 —— 不奖励人质劫持者。那笔现金会用来恐吓以色列、英国和美国。 可悲的是，伊朗与俄罗斯和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 一起正在向西方发起冲击。 绥靖政策在失败之前总是感觉良好 —— 它向来如此。 【转美联社记者推文：伊朗官方媒体称，英国已经“偿还了德黑兰5.3亿美元的长期逾期债务”，双重国籍者被释放。】
-
-
-
-> The UK priced taking & holding its citizens hostage at $530 million. We prevented paying blood money— not rewarding hostage-takers. That cash will terrorize Israel, UK & US. Sadly, Iran, w/Russia & China, is rolling the West. Appeasement feels good until it fails— it always does. [https://t.co/0VcGfgQSD7](https://t.co/0VcGfgQSD7)
-> — Mike Pompeo (@mikepompeo) [March 16, 2022](https://twitter.com/mikepompeo/status/1504199072604958722?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 

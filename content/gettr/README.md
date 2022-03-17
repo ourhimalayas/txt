@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 3:19 PM (UTC)`
+
+❤️❤️Humanitarian Rescue Operation of ROLF and NFSC #NFSCrescue #ROLFrescue<br/><br/>1️⃣Frontline Express on March 13, 2022:<br/>At 1 am on March 13, the frontline rescue team greeted two rescue buses carrying 118 people in Kraków, Poland. All are women and children from the Ukrainian battlefield. The rescue team prepared hot coffee and food when greeting the buses, helped the refugees with their luggage, and led them to the train station.<br/><br/>2️⃣We are the NEW CHINESE people who are taking down the EVIL Chinese Communist Party! #CCP≠Chinese<br/><br/>💥💥💥24-Hour Emergency Rescue Support Team Contact: <br/>💌💌💌Email: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com <br/>☎️☎️☎️Phone (Call or Text): <br/>+1 720-657-6776 OR <br/>+1 719-224-4232 OR<br/>+48 508-532-712 OR <br/>+48 508-531-518
+![img](https://media.gettr.com/group39/origin/2022/03/17/15/cf33330d-91e6-83c6-317a-b249dcb8d3b7/839ebe8f1fd85b986446c05efc8f5a9d.jpg)
+> `@miles 3/13/2022 10:23 PM (UTC)`<br/>❤️In Kraków, Poland at 1 am on March 13,  the NFSC & ROLF Ukraine Rescue team greeted two rescue buses carrying 118 people (including a 3-day infant) , prepared hot coffee and food when greeting the buses, helped the refugees with their luggage, and led them to the train station. #NFSCrescue #ROLFrescue<br/><br/>📍We are the NEW CHINESE people who are taking down the EVIL Chinese Communist Party! #CCP≠Chinese<br/><br/>❤️法治基金和新中国联邦救援队于3月13日凌晨1点，在波兰克拉科夫迎接2辆载有118人（包括一个3个月大的婴儿）的救援大巴，在迎接大巴时准备了热咖啡和食物，帮难民们拿行李，引领她们去火车站。<br/><br/>📍我们是消灭邪恶中国共产党的新中国人 <br/><br/>💥24-Hour Emergency Rescue Support Team Contact: <br/>💌Email: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com <br/>☎️Phone (Call or Text): <br/>+1 720-657-6776 OR +1 719-224-4232 OR<br/>+48 508-532-712 OR +48 508-531-518
+![img](https://media.gettr.com/group32/origin/2022/03/13/22/866b6238-615d-298c-bc3d-f27c318d45aa/out.jpg)
+
+---
+
 `@miles 3/17/2022 2:27 PM (UTC)`
 
 It is common knowledge that Putin fights Ukraine, and Xi Jinping fights Taiwan.Even the volunteers who accidentally met Medica's comrades from the rescue front knew about it.Putin's attack on Ukraine was allbacked by the Chinese Communist Party (CCP),which instead imported large quantities of Russian wheat when the world was imposing military sanctions on Russia. At the same time, the CCP's running dogs are voicing their solidarity with Putin <br/>and saying that they want to marry Ukrainian beauties.<br/>The running dogs are CCP's network united war team.<br/>普京打乌克兰，习近平打台湾，这是路人皆知的事情。连梅迪卡救援前线的战友在路上 偶遇的志愿者都知道。普京攻打乌克兰的背后都是共产党的支持，在全世界都在对俄罗斯实施军事制裁的时候，共产党反而大量进口俄罗斯小麦。同时国内小粉红一片声援普京的声音，还口口声声个个都要娶乌克兰美女。小粉红是共产党的网络统战部队，如果没有一声号令怎么一下子有那么多此类言论。
@@ -148,12 +157,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 2022.03.16 晚《新中国联邦新闻访谈》文斌战友分享俄乌战争最新军事动态；乌克兰救援活动最新进展分享；泽连斯基美国会演讲，敦促拜登成为世界和平捍卫者；欧米克朗变种肆虐全球，醉翁之意是否在疫苗。
 ![img](https://media.gettr.com/group5/origin/2022/03/17/01/7f0d81c4-f798-9492-2fa7-88b6cb304021/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/17/2022 1:08 AM (UTC)`
-
-The new Chinese volunteers working at the rescue center at Medyka are not from the CCP-ruled China; they are peace-loving people from the democratic world representing NFSC (New Federal State of China) and ROLF (Rule of Law Foundation). NFSC is entirely independent of Communist China, with commitment and determination to take down the evil Chinese Communist Party and save billions of Chinese living inside of CCP-ruled China without human rights, equality, and democracy. 新中国联邦人乌克兰人道救援行动，受到了世界爱好和平人士的赞赏，在救援前线的大爱和友善形象，让世界看到了一个和CCP奴役下的中国人完全不一样的形象。伟大的救援行动，让人们明白，共产党不代表中国人，我们爱好和平，永远和乌克兰人们站在一起。<br/> https://www.prfree.org/news-new-york-based-non-profit-ukraine-rescue-operation-catches-attention-at-the-international-refugee-rescue-center-at-the-medyka-border-of-poland-1068530.html
 
 ---
 

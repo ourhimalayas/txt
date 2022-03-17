@@ -15,161 +15,161 @@
 
 ---
 
-### [沙特考虑对中共国的石油销售放弃美元结算](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [日本首相将访印度，建立印太伙伴关系](/content/gnews/1/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [台立委呼吁调查接连断电问题 谨防中共渗透](/content/gnews/2/README.md)
- ` NFSC News`
-
-### [有声|独裁者之死—齐奥塞斯库](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [迹象表明中共正在军事支持俄罗斯](/content/gnews/4/README.md)
- ` 波士顿五月花农场`
-
-### [第三次世界大战人类将面临的四个战场](/content/gnews/5/README.md)
- ` NFSC News`
-
-### [如果俄罗斯发射导弹至北约领土，北约将采取措施](/content/gnews/6/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [有声|HPay未来会成为我们的SWIFT](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [中共疫情失控 墻內和香港高官频染疫](/content/gnews/8/README.md)
- ` NFSC News`
-
-### [有声|乌克兰超过280万难民正在逃离故土](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [传递爱和温暖的NFSC咖啡](/content/gnews/10/README.md)
- ` 波士顿五月花农场`
-
-### [西媒头条 — 第190期](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [视频|朝鲜发射新型弹道导弹惊动美国 分析称可能危害美国本土](/content/gnews/12/README.md)
- ` MOSVIDEO`
-
-### [港股中共崩盘风向标](/content/gnews/13/README.md)
- ` 纽约香草山MOS03`
-
-### [3/15/2022 文贵直播：老毕因唱出“毛贼东”而被下岗，中国人会付出更惨烈的代价，习太阳会把中国整个民族烤焦](/content/gnews/14/README.md)
- ` 秘密翻译组-北美组`
-
-### [俄乌战争敲响德国汽车制造业警钟 避免过度依赖独裁专制国家](/content/gnews/15/README.md)
- ` 日本东京方舟农场`
-
-### [樱花时政┃美司法部起诉五名中共特工](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [杰克·沙利文在罗马与杨洁篪会面，向中共国施压不要帮助俄罗斯](/content/gnews/17/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [彭博社记者采访新中国联邦前线救援战友背后有中共黑影](/content/gnews/18/README.md)
- ` 波士顿五月花农场金融部`
-
-### [天空新闻：俄罗斯军队杀害排队买面包的百姓](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [西方欲擒故纵 中俄双双入瓮](/content/gnews/20/README.md)
- ` MilesGuoLivePPT`
-
-### [中共强力救市 股指回光返照](/content/gnews/21/README.md)
- ` MilesGuoLivePPT`
-
-### [联合国儿童基金会称乌克兰儿童以每分钟55人的速度成为难民](/content/gnews/22/README.md)
- ` topnews`
-
-### [拜登宣布向乌克兰提供8亿美元的额外援助](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [乌克兰战场俄罗斯重大损失，拜登总统签署新援助计划](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [德国对俄罗斯的卡巴斯基反病毒软件发出警告](/content/gnews/25/README.md)
- ` topnews`
-
-### [山姆·法迪斯：中共对台湾不采取行动是不可能的](/content/gnews/26/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [沃尔玛计划在美国招聘5万多名员工以应对劳动力短缺](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [乌总统签署虚拟资产法案 加密货币在乌克兰正式合法化](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [警告：mRNA刺突蛋造成下一代“卵巢衰竭”不孕症](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国止赎房数量达两年来最高水平](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [北约的红线在哪里？](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中日财经爆┃监守自盗的中共国银行](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [3/17/2022 国际财经快讯：普京承认西方制裁已重创俄罗斯经济; 能源供应危机下煤炭股重新成为市场宠儿](/content/gnews/33/README.md)
- ` 秘密翻译组金融团队`
-
-### [欧盟通过具有里程碑意义的数字货币监管新草案](/content/gnews/34/README.md)
- ` 银河歌舞厅`
-
-### [政界内讧转移民愤至特首](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻新闻｜沙特考虑用人民币结算中共国贸易](/content/gnews/36/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [【信仰之声】不是功利，乃是像神 】不是功利](/content/gnews/37/README.md)
- ` 纽约香草山MOS03`
-
-### [樱花时政┃岸田总理明确表示北方领土被“非法占领”](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [专家逼针赶尽杀绝港人](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [消息：阿里和腾讯今年准备裁减数万个职位](/content/gnews/40/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [从1元的宜家冰淇淋看NFSC咖啡的奥秘和智慧](/content/gnews/41/README.md)
+### [2022.3.17大直播 乌克兰救援行动让中共恐惧 为华人争光](/content/gnews/2/README.md)
  ` 秘密翻译组-原创组`
 
-### [中日财经爆┃中共国房地产税改革试点将被推迟](/content/gnews/42/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [澳大利亚新南威尔士州CCP病毒感染新增再破两万](/content/gnews/3/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [蔡英文总统慰问日本福岛和宫城地震](/content/gnews/43/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [乌克兰总统泽连斯基签署虚拟资产法案，使之成为法律，正式将加密货币合法化](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [韩国中共病毒感染数再创新高](/content/gnews/44/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [有声|NFSC新闻、G|TV新闻访谈简报|2022年3月15日早](/content/gnews/5/README.md)
+ ` MOSREC`
 
-### [7·24系列——中共支持俄罗斯入侵乌克兰](/content/gnews/45/README.md)
- ` 墨尔本雅典娜农场`
+### [【乌克兰救援】波兰记者Rafał Miżejewski在推特上说“中国共产党不能代表中国 ”](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共在顫抖 爆料革命近期最值得稱道的三件事](/content/gnews/46/README.md)
+### [中共推广石油人民币企图逃脱制裁](/content/gnews/7/README.md)
+ ` NFSC News`
+
+### [沙特考虑对中共国的石油销售放弃美元结算](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [有声|中共与俄罗斯合演“围魏救赵”](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [台立委呼吁调查接连断电问题 谨防中共渗透](/content/gnews/10/README.md)
+ ` NFSC News`
+
+### [中共持续扰台 入侵野心人尽皆知](/content/gnews/11/README.md)
+ ` NFSC News`
+
+### [有声|独裁者之死—齐奥塞斯库](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [迹象表明中共正在军事支持俄罗斯](/content/gnews/13/README.md)
+ ` 波士顿五月花农场`
+
+### [第三次世界大战人类将面临的四个战场](/content/gnews/14/README.md)
+ ` NFSC News`
+
+### [如果俄罗斯发射导弹至北约领土，北约将采取措施](/content/gnews/15/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [有声|HPay未来会成为我们的SWIFT](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [美国及世界疫情简报（03-17-2022）](/content/gnews/17/README.md)
+ ` 波士顿五月花农场`
+
+### [中共疫情失控 墻內和香港高官频染疫](/content/gnews/18/README.md)
+ ` NFSC News`
+
+### [美国警告中共不得军援俄罗斯](/content/gnews/19/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [3/15/2022 文贵直播：老毕因唱出“毛贼东”而被下岗，中国人会付出更惨烈的代价，习太阳会把中国整个民族烤焦](/content/gnews/20/README.md)
+ ` 秘密翻译组-北美组`
+
+### [俄乌战争敲响德国汽车制造业警钟 避免过度依赖独裁专制国家](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [拜登提供顶级尖端防控系统 弥补乌克兰“禁飞区”方案](/content/gnews/47/README.md)
- ` 日本东京方舟农场`
+### [樱花时政┃美司法部起诉五名中共特工](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新西兰情报机构挫败外国势力窃取敏感技术](/content/gnews/48/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [杰克·沙利文在罗马与杨洁篪会面，向中共国施压不要帮助俄罗斯](/content/gnews/23/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国之音记者：新中国联邦的灭共事业是中国人的榜样](/content/gnews/49/README.md)
+### [彭博社记者采访新中国联邦前线救援战友背后有中共黑影](/content/gnews/24/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [西方欲擒故纵 中俄双双入瓮](/content/gnews/25/README.md)
+ ` MilesGuoLivePPT`
+
+### [中共强力救市 股指回光返照](/content/gnews/26/README.md)
+ ` MilesGuoLivePPT`
+
+### [联合国儿童基金会称乌克兰儿童以每分钟55人的速度成为难民](/content/gnews/27/README.md)
+ ` topnews`
+
+### [拜登宣布向乌克兰提供8亿美元的额外援助](/content/gnews/28/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [德国对俄罗斯的卡巴斯基反病毒软件发出警告](/content/gnews/29/README.md)
+ ` topnews`
+
+### [山姆·法迪斯：中共对台湾不采取行动是不可能的](/content/gnews/30/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [沃尔玛计划在美国招聘5万多名员工以应对劳动力短缺](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英国出版商审查西方书籍以维持在中共国的廉价印刷合同](/content/gnews/50/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [乌总统签署虚拟资产法案 加密货币在乌克兰正式合法化](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [国务院：任何支持普京谎言的国家(比如中共国)都是在加剧乌克兰的毁灭](/content/gnews/51/README.md)
- ` 美国政要直译推`
+### [警告：mRNA刺突蛋造成下一代“卵巢衰竭”不孕症](/content/gnews/33/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [《觉醒》—揭露中共假骗偷](/content/gnews/52/README.md)
+### [美国止赎房数量达两年来最高水平](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [北约的红线在哪里？](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中日财经爆┃监守自盗的中共国银行](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [3/17/2022 国际财经快讯：普京承认西方制裁已重创俄罗斯经济; 能源供应危机下煤炭股重新成为市场宠儿](/content/gnews/37/README.md)
+ ` 秘密翻译组金融团队`
+
+### [欧盟通过具有里程碑意义的数字货币监管新草案](/content/gnews/38/README.md)
+ ` 银河歌舞厅`
+
+### [政界内讧转移民愤至特首](/content/gnews/39/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻新闻｜沙特考虑用人民币结算中共国贸易](/content/gnews/40/README.md)
  ` 秘密翻译组-即时新闻播报组`
+
+### [【信仰之声】不是功利，乃是像神 】不是功利](/content/gnews/41/README.md)
+ ` 纽约香草山MOS03`
+
+### [樱花时政┃岸田总理明确表示北方领土被“非法占领”](/content/gnews/42/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [消息：阿里和腾讯今年准备裁减数万个职位](/content/gnews/43/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [中日财经爆┃中共国房地产税改革试点将被推迟](/content/gnews/44/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [蔡英文总统慰问日本福岛和宫城地震](/content/gnews/45/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [7·24系列——中共支持俄罗斯入侵乌克兰](/content/gnews/46/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共在顫抖 爆料革命近期最值得稱道的三件事](/content/gnews/47/README.md)
+ ` 日本东京方舟农场`
+
+### [拜登提供顶级尖端防控系统 弥补乌克兰“禁飞区”方案](/content/gnews/48/README.md)
+ ` 日本东京方舟农场`
+
+### [新西兰情报机构挫败外国势力窃取敏感技术](/content/gnews/49/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国之音记者：新中国联邦的灭共事业是中国人的榜样](/content/gnews/50/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [英国出版商审查西方书籍以维持在中共国的廉价印刷合同](/content/gnews/51/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [国务院：任何支持普京谎言的国家(比如中共国)都是在加剧乌克兰的毁灭](/content/gnews/52/README.md)
+ ` 美国政要直译推`
 
 ### [美国政府官员和大医药公司在疫苗上欺骗美国人](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

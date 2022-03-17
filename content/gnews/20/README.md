@@ -2,18 +2,10 @@
 ---
 
 
-## 西方欲擒故纵 中俄双双入瓮
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2180555/)
+## 3/15/2022 文贵直播：老毕因唱出“毛贼东”而被下岗，中国人会付出更惨烈的代价，习太阳会把中国整个民族烤焦
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2181046/)
 
-文贵大直播20220317
-
-文贵大直播顾问团集体创作
-
-执笔：文仁（功成）Poplar（盘古）坐看云起时（扬帆）
-
-美工：长颈鹿（雅典娜）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8-7.png)
-*发布：Theodosia*
+秘密翻译组-北美组
 
  
 

@@ -2,12 +2,16 @@
 ---
 
 
-## 山姆·法迪斯：中共对台湾不采取行动是不可能的
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2180452/)
+## 中共强力救市 股指回光返照
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2180550/)
 
-03/15/2022 03/15/2022 山姆·法迪斯：中共对台湾不采取行动是不可能的。他们会”饿死”台湾让其屈服。如果美国掉以轻心，美国是会战败的。
+文贵大直播20220317
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+撰稿：蚂蚁的城堡（新西兰）
+
+美工：Maggie（秘翻）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-1.png)
+*发布：Theodosia*
 
  
 
