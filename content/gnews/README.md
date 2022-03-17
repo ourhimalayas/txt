@@ -24,29 +24,29 @@
 ### [乌克兰总统签署虚拟资产法案 加密货币交易在乌合法化](/content/gnews/3/README.md)
  ` 日本東京方舟農場`
 
-### [Alnylam起诉辉瑞和莫德纳mRNA专利侵权](/content/gnews/4/README.md)
+### [乌克兰：泽连斯基总统为该国签署了一项对加密货币友好的法律](/content/gnews/4/README.md)
+ ` 纽约香草山MOS02`
+
+### [Alnylam起诉辉瑞和莫德纳mRNA专利侵权](/content/gnews/5/README.md)
  ` 日本東京方舟農場`
 
-### [印尼排华共产党的不作为与今天几近相似](/content/gnews/5/README.md)
+### [印尼排华共产党的不作为与今天几近相似](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC每日热点0317](/content/gnews/6/README.md)
+### [DC每日热点0317](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [五月花简报（03/17/2022）](/content/gnews/7/README.md)
+### [五月花简报（03/17/2022）](/content/gnews/8/README.md)
  ` mayflowertranslate`
 
-### [习太阳何时落山？中南坑急不可待](/content/gnews/8/README.md)
+### [习太阳何时落山？中南坑急不可待](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥采访妮可](/content/gnews/9/README.md)
+### [七哥采访妮可](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [邻国正在为反战的俄罗斯人形成的移民潮做准备](/content/gnews/10/README.md)
+### [邻国正在为反战的俄罗斯人形成的移民潮做准备](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [乌克兰城市遭到更多俄罗斯袭击，和平谈判进展甚微](/content/gnews/11/README.md)
- ` Shuizhuyu`
 
 ### [NFSC新闻、NFSC新闻访谈简报|2022年3月17日早](/content/gnews/12/README.md)
  ` 纽约香草山MOS01`

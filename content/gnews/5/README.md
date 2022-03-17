@@ -2,22 +2,24 @@
 ---
 
 
-## 印尼排华共产党的不作为与今天几近相似
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2182488/)
+## Alnylam起诉辉瑞和莫德纳mRNA专利侵权
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2182496/)
 
-**【郭先生直播摘要】****2022.3.11 ****印尼排华共产党的不作为与今天几近相似**
+**撰稿：日本东京方舟农场 画画  **
 
-**郭先生：**
+Alnylam Pharmaceuticals, Inc. 周四(17 日) 表示，已在美国特拉华州地区法院分别对辉瑞和Moderna提起诉讼，要求赔偿此两家公司在制造和销售其信使RNA（mRNA）中共病毒疫苗时侵犯美国专利第11,246,933号（”933专利”），该专利涉及Alnylam公司的可生物降解阳离子脂质，是mRNA 中共病毒疫苗成功的基础。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-86.jpg)
+Alnylam 表示，它正在寻求两家公司就使用其脂质纳米粒子 (LNP) 技术提出赔偿。据悉，该技术重点是在体内携带和提供基于 RNA 的疗法，这是 mRNA COVID-19疫苗成功的基础。
 
-当年印尼排华的时候很多华人家里被杀被奸，很多小孩浑身是血跑到印尼大使馆，中华人民共和国共产党驻印尼大使馆，结果所谓代表中国人民的比爹娘还亲大使馆说什么，这属于印尼内部事情，全给轰出去了。轰出去当地就在印尼大使馆的西侧墙，西侧墙有一个沟，你去看一看印尼大使馆当时有一个沟，那一个沟旁边是当时印尼大使馆所有搞活动的地方，有一个台子，当场中国人在现场被奸被杀，最小的7岁的女孩。
+Alnylam宣称：不打算寻求禁令或采取阻碍疫苗生产、销售或分销的行动。这样官方声明以及诉讼诉求，释放了强烈的信号: 只要专利侵权的赔偿金。
 
-大使馆那时候他们已经有监控设备了，那时候就有了，看着没管。在大使馆拉出来的人，当场女性被头砍掉以后，拿竹签签着挑着，放在大使馆前面。十多岁的女孩被强奸完以后轮奸完，已经跟肉体一样了，从这个肛门插过去，从胸口插出一根棍子，挂在了大使馆门口，你们华人还再来找吗？你不要再进了，他们不管你的。
+参考链接：1.[https://www.businesswire.com/news/home/20220317005522/en/Alnylam-Pharmaceuticals-Files-Patent-Infringement-Suits-against-Pfizer-and-Moderna](https://www.businesswire.com/news/home/20220317005522/en/Alnylam-Pharmaceuticals-Files-Patent-Infringement-Suits-against-Pfizer-and-Moderna)
+2.[https://www.sinotrade.com.tw/richclub/news/623330d17b27b6e9101d5662](https://www.sinotrade.com.tw/richclub/news/623330d17b27b6e9101d5662)
+3 . [https://finance.yahoo.com/news/alnylam-pharmaceuticals-files-patent-infringement-113000178.html?guccounter=1&guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce\_referrer\_sig=AQAAAJFGPg3U7qXlzz0k7Pjj5KuMhuGeeRw77FkSX8TR3WaFLwdaLTF7sOIBmiXfIoGSUEZeSAribu8ijSs38j9B4VtL7TPZQPhBU3l-hXOzL8rYxVZYuAuFL8LKPh5vLJa6oy42XxGd1hhwMl4MQVVikjDbSNnSa8gpjLmhzUoaDZ6k](https://finance.yahoo.com/news/alnylam-pharmaceuticals-files-patent-infringement-113000178.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAJFGPg3U7qXlzz0k7Pjj5KuMhuGeeRw77FkSX8TR3WaFLwdaLTF7sOIBmiXfIoGSUEZeSAribu8ijSs38j9B4VtL7TPZQPhBU3l-hXOzL8rYxVZYuAuFL8LKPh5vLJa6oy42XxGd1hhwMl4MQVVikjDbSNnSa8gpjLmhzUoaDZ6k)
 
-但是新中国联邦这个行动就像黑暗中的一盏灯，最起码让你知道这不是黑夜，你可能会因为这盏灯你不会绊倒，你不会掉坑里面，但绝对不是比爹娘还亲的共产党。当你遭受排华的时候，他把这个灯给你整掉了，整灭了你一定会栽死在阴沟里。现在有本事的华人，你去到所有的中国共产党，比你爹娘还亲的各地大使馆去看看，能不能帮你。在乌克兰出去的学生，他救你是因为新中国联邦在前线救人，他怕我们跟他抢人，我们某种程度上促使了共产党把他们救回去。
-
-但共产党不甘心，这些奴隶救了你怎么能白救呢？要你18000的钱，21天的隔离加上7000块钱，2万块钱给你干掉了。2万块3、4千美金呐，相当于当地的钱好多钱。
-
-视频剪辑：文知 |听写：雨山溪桥客|翻译：Arthur | 校对：Polaris |编辑：昆汀 |发布：文鸣
+编辑：画画
+总编：青城道姑
+校对发布：小斐
 
  
 
