@@ -2,94 +2,22 @@
 ---
 
 
-## 两位被救助的老人
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2179787/)
+## 中日财经爆┃中共国房地产税改革试点将被推迟
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2180004/)
 
-作者：美东香草山教育部-蓝之灵（Hortensia)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-83.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6E9206EB-640E-4DC4-8E12-F6CD0EBFCA9C-1.jpeg)
-两位老人
+撰稿：东京樱花团丨立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-0-1-2.png)[*图片来源*](https://pic3.zhimg.com/v2-f15a8a7eac64ef891a576828cd52a9dc_1440w.jpg?source=172ae18b)
+中共国政府透露今年年底前不会推出仿照日本固定资产税的房地产税试点。去年10月在全国人民代表大会常务委员会上决定要扩大房产税试点城市的决定。
 
-落入战火风云
+然而，新华社16日表示，中共财政部一位高级别官员透露“今年不具备扩大试点城市数量的条件”。至于决定放弃的理由，解释说“在部分城市进行了事前调查，综合考虑了各方面的情况”。
 
-似水中浮萍
+李克强总理在5日表示，对经济现状有一种危机感，面临着需求萎缩等三重压力，这次（扩大试点城市）推迟的原因也是担心对经济产生不良影响。
 
-似落叶
+信息来源：[**中国  不動産税の試験導入  年内は見送り**](https://news.yahoo.co.jp/articles/2510e150b5e27a1a5232d74252ec4d215cc81b14)
 
-就要飘零
-
-新中国联邦勇士
-
-开着巴士
-
-在危机中
-
-拯救生命
-
-来也匆匆
-
-去也匆匆
-
-两位老人
-
-搭上了巴士
-
-穿越危险重重
-
-来到了安全的大帐篷
-
-新中国联邦人
-
-全程陪同
-
-来也从容
-
-去也从容
-
-两位老人
-
-坐上飞机
-
-去往美国
-
-离开熟悉故土
-
-泪眼朦胧
-
-来时充满憧憬
-
-去时留有愿景
-
-两位老人
-
-得到新中国联邦救助
-
-安全前行
-
-留下愿景
-
-祈求和平
-
-但愿有一日
-
-回归故土
-
-再见
-
-欣欣向荣
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-48.jpg)
-
-编辑/校对/发稿：林礼
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,89 @@
 ---
 
 
-## 切尔西球队老板向俄罗斯提供可观收入再遭欧盟制裁
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2179982/)
+## 弹钢琴的英雄传递爱与温柔
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2180056/)
 
-**撰稿：日本东京方舟农场 Miyali7768(文玉)**
+作者：美东香草山教育部-蓝之灵（Hortensia)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-83.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/D94A4712-2981-49F8-AD22-7747A120F5A9.jpeg)
+你是一个英雄
 
-据《自由时报》3月16日报道，鉴于俄罗斯富豪，同时也是英超切尔西球队老板的阿布拉莫维奇（Roman Abramovich）为俄罗斯政府提供可观收入，欧盟将其列入第4波制裁名单。
+在难民营里
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-12.jpg)图为阿布拉莫维奇（图片来自自由时报）
+弹着钢琴
 
-据报道，先前英国和加拿大都已经冻结阿布拉莫维奇的资产，欧盟也跟进了制裁行动，欧盟表示，阿布拉莫维奇有特殊渠道能够向俄罗斯总统普金（Vladimir Putin）对话，也与普金保持非常好的关系。这样的连结也帮助他维持着巨大的财富。
+优雅，从容
 
-此外，这位寡头从事的经济活动也被认为提供给俄罗斯政府可观的收入。欧洲理事会表示：“阿布拉莫维奇是钢铁公司耶弗拉兹（Evraz）的主要股东，该集团也是向俄罗斯缴纳大量税金的单位之一，阿布拉莫维奇是一直受益于负责吞并克里米亚与入侵乌克兰的决策者。”
+一曲灭共的雪
 
-另外，因英国政府的制裁，阿布拉莫维奇的切尔西球队也受到影响，特别是针对俄罗斯条款，将禁止球队出售门票与纪念商品，而且也无法签下新的球员，不过目前欧盟则不会对切尔西进行制裁。
+你让泪水横流
 
-据了解，欧洲联盟此次推出的第4波对俄侵乌制裁，主要打击目标针对俄罗斯亲普京寡头以及俄罗斯企业。此前，欧盟已经公布了一份制裁黑名单，包括862人及53个实体，禁止他们进入欧盟，并允许成员国冻结其资产。
+眼睛朦胧
 
-参考链接：
-1.[https://sports.ltn.com.tw/news/breakingnews/3860990](https://sports.ltn.com.tw/news/breakingnews/3860990)
-2.[https://reurl.cc/9ONWZn](https://reurl.cc/9ONWZn)
+无国界的音乐
 
-编辑：幽蘭自得
-总编：老孙
-校对发布：Linda
+在寒风中
+
+漂流
+
+爱和激情
+
+有了共鸣
+
+心与心
+
+距离更近
+
+战火摧残人们
+
+琴声让人不再
+
+冰冷
+
+你是一个英雄
+
+有着不一样的面孔
+
+信仰没有不同
+
+在寒冷的冬天
+
+传递同样的爱和温柔
+
+请侵略者也来倾听
+
+这天籁之音
+
+一起放下暴虐和残忍
+
+一起来欣赏
+
+这美丽声音
+
+你是一个英雄
+
+用你美丽音乐
+
+传递爱与温柔
+
+在这个战火纷飞年代
+
+送上温情温暖
+
+找回失去家园人们 的心灵
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-48.jpg)
+
+编辑/校对/发稿：林礼
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
