@@ -2,19 +2,16 @@
 ---
 
 
-## 韩国中共病毒感染数再创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2179962/)
+## 蔡英文总统慰问日本福岛和宫城地震
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2179963/)
 
 撰稿：东京樱花团丨立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1891.png)[*图片来源*](https://images-ext-1.discordapp.net/external/c6_bIuma0t3FVdErFbrUcLALWbxE60bvFKcbNMfooNg/https/www.jiji.com/news2/kiji_photos/202203/20220317at62S_o.jpg?width=1010&amp;height=613)
-根据【首尔时事】报道，韩国防疫当局于17日宣布，中共病毒（新冠病毒）16日单日新增病例62万1328人，是有史以来新增数最多的一天，这比前一天增加了22万，第一次超过了60万人，死亡人数也比前日急剧增加164人，达到了429人。在世界上应付中共病毒对策相对成功的韩国社会，随着变异株“奥密克戎”的扩大而迎来了新考验。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-0-10.png)[*图片来源*](https://images-ext-2.discordapp.net/external/XH5cHtBetdVvdQB5OQYs_EIRmFHWU38Ir2bDn3yYWes/%3Fexp%3D10800/https/newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220317-00000002-ftaiwan-000-1-view.jpg)
+据《台北中央社》消息，福岛县和宫城县发生了观测最大震度6强的地震，蔡英文总统于17日更新推特，对于日本再次遭遇大地震表示“心痛”，同时也希望“损害能够保持最低限度”。
 
-- ***延展阅读：***[***巴西确认了新变异株“德尔塔克戎”（DeltaClon）***](https://www.jiji.com/jc/article?k=2022031600193&amp;g=int)
+此外，她强调了与日本的羁绊关系，“台湾总是和日本人民在一起”，并提出，“如果需要帮助，请随时告诉我。”
 
-
-重症患者的数量仍然很高，为1159名。报道还指出，除了放款防疫措施外，9日投票的总统选举之前的集会等其他活动可能导致了感染的扩大。另外，除了PCR检测，还设置了专门机构进行快读抗原检测，呈阳性的人也被列入感染者之列，这可能影响了新增感染人数。
-
-信息来源：[**コロナ感染１日６０万人  死者急増、過去最多―韓国**](https://www.jiji.com/jc/article?k=2022031700737&amp;g=int)
+信息来源：[**蔡総統「台湾はいつも日本と一緒」 福島沖地震でお見舞いのメッセージ**](https://news.yahoo.co.jp/articles/d5af3323d363c8c9c5949aa5e15a225f2932a49a)
 
 *校对：东京樱花团/東洋武士*
 *发布：东京樱花团/tdownc2p*

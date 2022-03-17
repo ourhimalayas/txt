@@ -2,12 +2,16 @@
 ---
 
 
-## 拜登宣布向乌克兰提供8亿美元的额外援助
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2180519/)
+## 中共强力救市 股指回光返照
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2180550/)
 
-03/16/2022 拜登宣布向乌克兰提供8亿美元的额外援助,以帮助他们抵御俄罗斯的入侵
+文贵大直播20220317
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+撰稿：蚂蚁的城堡（新西兰）
+
+美工：Maggie（秘翻）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-1.png)
+*发布：Theodosia*
 
  
 

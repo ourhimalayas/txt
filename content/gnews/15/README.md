@@ -2,18 +2,12 @@
 ---
 
 
-## 西方欲擒故纵 中俄双双入瓮
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2180555/)
+## 天空新闻：俄罗斯军队杀害排队买面包的百姓
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2180583/)
 
-文贵大直播20220317
+03/15/2022 天空新闻：莫斯科声称他们没有针对乌克兰的平民，但俄罗斯军队在切尔尼戈夫市开枪打死了10名排队买面包的人。
 
-文贵大直播顾问团集体创作
-
-执笔：文仁（功成）Poplar（盘古）坐看云起时（扬帆）
-
-美工：长颈鹿（雅典娜）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8-7.png)
-*发布：Theodosia*
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

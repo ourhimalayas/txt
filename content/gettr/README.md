@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 2:27 PM (UTC)`
+
+It is common knowledge that Putin fights Ukraine, and Xi Jinping fights Taiwan.Even the volunteers who accidentally met Medica's comrades from the rescue front knew about it.Putin's attack on Ukraine was allbacked by the Chinese Communist Party (CCP),which instead imported large quantities of Russian wheat when the world was imposing military sanctions on Russia. At the same time, the CCP's running dogs are voicing their solidarity with Putin <br/>and saying that they want to marry Ukrainian beauties.<br/>The running dogs are CCP's network united war team.<br/>普京打乌克兰，习近平打台湾，这是路人皆知的事情。连梅迪卡救援前线的战友在路上 偶遇的志愿者都知道。普京攻打乌克兰的背后都是共产党的支持，在全世界都在对俄罗斯实施军事制裁的时候，共产党反而大量进口俄罗斯小麦。同时国内小粉红一片声援普京的声音，还口口声声个个都要娶乌克兰美女。小粉红是共产党的网络统战部队，如果没有一声号令怎么一下子有那么多此类言论。
+![img](https://media.gettr.com/group21/origin/2022/03/17/14/8f6216bb-a330-294b-c465-64966b7af827/out.jpg)
+
+---
+
 `@miles 3/17/2022 2:23 PM (UTC)`
 
 中国（中共国）政府已经跟美国政府承认他们（中共）是支持俄罗斯攻打乌克兰<br/><br/> https://gnews.org/zh-hans/2178748/
@@ -147,13 +154,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 `@miles 3/17/2022 1:08 AM (UTC)`
 
 The new Chinese volunteers working at the rescue center at Medyka are not from the CCP-ruled China; they are peace-loving people from the democratic world representing NFSC (New Federal State of China) and ROLF (Rule of Law Foundation). NFSC is entirely independent of Communist China, with commitment and determination to take down the evil Chinese Communist Party and save billions of Chinese living inside of CCP-ruled China without human rights, equality, and democracy. 新中国联邦人乌克兰人道救援行动，受到了世界爱好和平人士的赞赏，在救援前线的大爱和友善形象，让世界看到了一个和CCP奴役下的中国人完全不一样的形象。伟大的救援行动，让人们明白，共产党不代表中国人，我们爱好和平，永远和乌克兰人们站在一起。<br/> https://www.prfree.org/news-new-york-based-non-profit-ukraine-rescue-operation-catches-attention-at-the-international-refugee-rescue-center-at-the-medyka-border-of-poland-1068530.html
-
----
-
-`@miles 3/17/2022 12:17 AM (UTC)`
-
-3/16/2022 Miles Guo’s GETTR: There are so many people in the CCP who want to eliminate Xi Jinping. It’s said the virus is spreading like an AI specifically targeting the CCP, which claims to be closer to you than your parents. Bloomberg had a guilty conscience such that they contacted our fellow fighters Nicole and Wen Yao after my grand live broadcast yesterday, indicating our livestream had a huge impact.<br/><br/>3/16/2022 文贵盖特：共产党内部有太多人要干掉习近平，据说AI病毒去找比爹娘还亲的共产党了，彭博社在文贵大直播后做贼心虚地去找Nicole战友和文耀战友，说明咱直播的传播力很强啊 <br/>
-![img](https://media.gettr.com/group14/getter/2022/03/17/00/4711d600-a735-1a60-0d54-00ac178b2324/out.jpg)
 
 ---
 
