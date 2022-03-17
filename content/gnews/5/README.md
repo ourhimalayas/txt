@@ -2,8 +2,8 @@
 ---
 
 
-## 中概股将被踢出美国
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181808/)
+## 共产党建党以来北京第一次向中央报告财政巨亏损
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181862/)
 
 台灣寶島農場
 

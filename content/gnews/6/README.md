@@ -2,68 +2,81 @@
 ---
 
 
-## 数字独裁即将到来——我们能阻止它吗？（3/5）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2181800/)
+## 2022年3月17日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2181840/)
 
-翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-4.jpg)
+盖特连接：[2022年3月17日 文贵大直播：俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向](https://gettr.com/streaming/p10fr57b127)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1910.png)图片来源：childrenshealthdefense.org
+1、曾庆红提前回京，台湾可能要开战了；
 
-【接上篇：[数字独裁即将到来——我们能阻止它吗？（2/5）](https://gnews.org/zh-hans/2181482/)】
+2、曾庆红每天都在关注乌克兰救援行动，他很清楚：这种发酵是止不住的；
 
-在达沃斯专题演讲中，听起来他似乎是这种人类智能设计冒险的支持者，但在 2019 年接受 CNN 采访时，他还表示“我们绝不能低估人类的愚蠢”。
+3、俄乌战争不可能发生的3件事：
 
-我们拥有设计新生命形式（包括新型人类）的技术这一事实，并不一定意味着我们足够聪明可以设计出比迄今为止自然进化所提出的更好的东西。
+1）普京投降；
 
-赫拉利在达沃斯演讲中还指出，科学现在使我们能够不仅在有机领域创造生命，而且在无机领域也能创造生命。我们谈论的是“**活的”机器人等**。
+2）反戈中共；
 
-他还提出了谁**“拥有”你的 ****DNA ****的问题，如果它可以被绘制和黑客攻击，那它属于您、公司还是政府**？
+3） 打核战。
 
-“**自由意志的日子已经结束了”**
+4、瓦里克告诉普京，俄乌战争再往下走，全完了。好消息，普京有可能找台阶下，收手。坏消息，共产党会晚一点灭亡；
 
-无论赫拉利对超人类主义的真实感受如何，他都强调说，我们拥有灵魂和自由意志的想法的日子“已经结束了”。
+5、西藏唱歌的小伙子被自焚，共产党将其打死烧了；
 
-赫拉利预测，在未来，人们将能够回顾并看到， COVID 大流行是生物监控接管并成为常态的转折点。
+6、曾庆红建议身边人猫2年，多存点粮，大陆股市和香港股市，快卖；
 
-施瓦布解释了这是如何发生的，他公开承认，世界经济论坛青年全球领袖计划的参与者，已经“渗透”了许多世界政府的内阁。
+7 、曾庆红对俄乌战争评价：这个世界最大赢家——美国，我们（中共）将输掉这场国际上的游戏（Game on）；
 
-例如，在加拿大，包括总理贾斯汀·特鲁多在内的大约一半的政客，都接受了施瓦布的培训。
+8、即使普京停战，习近平也会打台湾，而习近平必须要把王岐山、孟建柱抓了审判了，想把曾庆红抓了把韩正灭了；
 
-施瓦布梦想一个人类连接到云的世界，能够通过自己的大脑访问互联网。当然，这也意味着那些可能想要修改你的思想、情感、信仰和行为的人可以访问你的大脑，无论他们是技术精英本身还是随机的黑客
+9、美欧可能和普京做一个交易，让普京停战，解封他的个人资产和家人安全。这对乌克兰是个好消息；
 
-如果你相信你的想法和行为一直而且永远都在你自己的控制之下，那就再想一想吧。
+10、共产党这两天拿出1000亿美元救恒生指数，2万点是恒生指数的信用底线；
 
-我们已经拥有直接改变思想、情绪和行为的技术。其中一些能力在英国国防部与德国联邦国防军国防规划办公室合作创建的 2021 年项目报告中进行了描述。
+11、3-4月是时机，习近平在等待疫苗灾难的来临，最迟不超过5月，一旦来临，习近平会动手；
 
-报告说：
+12、文贵先生对美国的建议：
 
-“人类增强可以‘直接增强行为’。如果你能以积极的方式改变一个人的行为，你也可以控制它对人自身不利。”
+1）要求中共提供病毒真相
 
-这份名为“人类增强——新范式的黎明，一项战略意义项目”的报告，回顾了英国和德国国防部的科学目标，它们正是标题所暗示的内容。为了赢得未来的战争，人类增强被强调为重点关注的领域：
+2）立法像对付俄罗斯一样对中共经济制裁
 
-“人类增强将变得越来越重要，部分原因是，它可以直接增强人类的能力和行为，部分原因是，它是人与机器之间的粘合体。”
+13、港币还要挣扎一段时间，打台湾港币就结束了，不打台湾撑不过今年年底；
 
-我想提请您注意的关键词是肯定人类增强可以“直接增强行为”。如果你可以增强行为，那就意味着你可以改变某人的行为。如果你能以积极的方式改变一个人的行为，你也可以控制它以损害这个人的自身利益。
+14、共产党被灭后，香港和台湾一定要独立，离而不分，新中国联邦没能力没兴趣，也不应该搞政治；
 
-从理论上讲，绝对任何人，任何具有大脑到云连接和所需生物增强（例如力量或速度）的随机平民，都可以得到无线指令来执行暗杀，即使没有事先培训。
+15、韩国COSMOS、温暖姐姐、瑞沃路森，打着文贵先生名义骗战友喜币，详见联盟公告；
 
-或者，他们的身体可以暂时由具有必备技能的远程操作员接管。概念证明已经存在，并由纽黑文大学国家安全系教授查尔斯·摩根博士在下面的讲座中进行了审查。
+16、青蒿素不要喝酒；
 
-**使用互联网和大脑植入物，思想可以从一个人转移到另一个人。发送者也可以直接影响接收者的身体运动。**
+17、铁锁梦即将上线可以打榜；
 
-**这是一个反乌托邦的未来世界经济论坛，及其全球盟友正在积极尝试实施，无论全人类是否同意。**
+**注：大直播音频正在制作和上传中，敬请关注****——**
 
-**未完待续**
+**（大直播音频位置）**
 
-素材链接：[childrenshealthdefense.org] [The Digital Dictatorship Is Coming — Can We Stop It?](https://childrenshealthdefense.org/defender/digital-dictatorship-world-economic-forum/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=8f9af747-e6ec-44c1-9a44-83ef5cd6ee1a)
+编辑整理：文俊；
 
-* * *
+发布：黎明之前；
 
-*审核：文乐
-校对：花羽
-发稿*：*Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-1.jpeg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

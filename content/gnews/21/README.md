@@ -2,26 +2,32 @@
 ---
 
 
-## 2022.3.17大直播 乌克兰救援行动让中共恐惧 为华人争光
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2181434/)
+## 波兰记者报道新中国联邦救援团
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2181607/)
 
-撰稿：大浪小水花
+作者：香草山农场教育部 saner三二
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月16日，据波兰边境口岸梅蒂卡难民安置点传来的消息显示，前线记者Nicole当天代表新中国联邦救援团队接受了波兰第二大广播电台ZET记者的采访。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-121.jpg)
+采访中，Nicole向波兰记者介绍了新中国联邦此次行动的核心就是人道主义援助。Nicole也反复强调称，前线救援团代表的是消灭邪恶中国共产党的新中国人。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-17-at-8.32.40-PM.jpeg)
+随后，这位波兰记者在推特平台上发布了关于新中国联邦救援行动过程的报道。当中，这位记者提到，在梅蒂卡，最大的难民援助帐篷是由新中国联邦人搭建的。他还援引了Nicole采访时的语句表示，“支持普京的共产党当局不代表我们中国的人民，它是一个独裁政权。这就是我们新中国人参与救援的原因，我们与乌克兰人民并肩作战。”
 
+参考链接：[W Medyce największy namiot z pomocą dla uchodźców rozstawili…Chińczycy. “Komunistyczne władze, które wspierają Putina, nie reprezentują naszego narodu. To dyktatura. Dlatego to my zaangażowaliśmy się w pomoc. Stoimy ramię w ramię z Ukraińcami”.](https://twitter.com/rafalmizejewski/status/1504088603089162252?s=21)
 
-郭文贵先生在2022年3月17日大直播中，向梅迪卡救助站的前线战友们转达了墙内体制内战友对他们的关注和关心。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-郭先生告诉战友，现在国内的体制内的很多战友，每天都高度的关注我们在乌克兰前线的救援，战友们接受国际媒体采访，被中共走狗骚扰以及前线战友们的人身安全无不让墙内战友们牵挂。他们表示第一次看到中国人干干净净的在国际上独立的、没有任何政治背景的、没有政治诉求的、没有条件的在救人。
+总编/编辑：Irene木木
+审核：Jack Li文阳
+校正/发稿：Fei797
 
-郭先生称赞前线战友们在全世界正在酝酿排华的危机时刻，用实际行动证明我们是一个追求独立、法治、信仰、自由、民主的民族，一个人道的、与国际能和平相处的一个中华民族；证明亚洲人不是懦夫，亚洲人有正义感。战友们用行动给华人给亚裔人脸上贴金。华人和亚裔人都会感谢战友们。
-
-郭先生还特别提到，新中国联邦前往乌克兰进行人道救援让中共曾庆宏非常震惊，曾甚至认为是党内有高人给郭先生出的主意。郭先生指出，当时在看到乌克兰的惨状后并没有商量，当即决定前往乌克兰进行救援，我们没有任何政治图谋，只为救人。
-
-郭先生强调，战友们在救援前线的所作所为和展示出的新中国人形象引起的国际关注让共产党的这些流氓政治家们感到了恐惧。
-
-参考链接：[2022年3月17日文贵大直播](https://gettr.com/streaming/p10fr57b127)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,8 +2,8 @@
 ---
 
 
-## 香港股市跌下2万点时 港币就会失去与美元的挂勾
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181781/)
+## 新中国联邦成为国际红十字会等国际组织机构的临时会议地点
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181829/)
 
 台灣寶島農場
 

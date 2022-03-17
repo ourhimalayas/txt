@@ -2,8 +2,8 @@
 ---
 
 
-## 普京灭了 俄乌战争停止 习一定会打台湾
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181731/)
+## 中概股将被踢出美国
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181808/)
 
 台灣寶島農場
 
