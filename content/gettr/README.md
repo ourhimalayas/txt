@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 10:21 AM (UTC)`
+
+【Ukraine Rescue】 03/16/22 Volunteer Wenyao set up a Kids Corner at the camp, where she drew pictures with the children to make them forget the pain bought by the war. A girl is so happy and she hugged Wenyao affectionately. The children’s mothers get to have some rest thanks to the Kids Corner.<br/><br/>【乌克兰救援】 03/16/22 文燿战友在基地设立了“孩子角”，亲自陪小朋友画画，让他们暂时忘记战争。小朋友们开心地玩耍，亲切地拥抱文燿。孩子们的妈妈们也终于能在此时得到一些休息。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group45/getter/2022/03/17/10/bd35874b-2cdc-7bb4-a2f9-064d9312fc7e/out.jpg)
+
+---
+
+`@miles 3/17/2022 10:11 AM (UTC)`
+
+【Ukraine Rescue】03/16/2022 Polish journalist Rafał Miżejewski quoted Nicole’s words in his tweets: "The Chinese Communist Party does not represent China, and it’s dictatorship, that's why we are we are providing help for refugees and we stay side by side with Ukrainian people."<br/><br/>【乌克兰救援】03/16/2022  波兰记者Rafał Miżejewski在推特上引用妮可战友的话："中共当局不能代表中国，它是独裁政权，这就是我们帮助救援的原因，我们与乌克兰人站在一起"<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group40/getter/2022/03/17/10/e451fc37-9dfd-eb21-911c-c92f5c690785/out.jpg)
+
+---
+
 `@miles 3/17/2022 5:32 AM (UTC)`
 
 3/16/2022 Miles Guo’s GETTR: The Hang Seng Index will wipe out not only the wealth accumulated in the past 100 years, but also the Mandatory Provident Fund in Hong Kong; the internal investigation of CCP predicted earthquake to occur in Hong Kong, yet none of the buildings in Hong Kong is earthquake proof; the CCP’s original plan was to unleash CCP virus in Taiwan, yet it is Hong Kong, Shenzhen and Jinlin where the virus has been rampant. The “Zero COVID” policy of the CCP will lead to disasters; the mission of the New Federal State of China is to bring freedom of faith, rule of law and individual security to all Chinese<br/><br/>3/16/2022 文贵盖特：恒生指数将抹去港人百年基业和强积金；香港房屋不防震，而中共内部文件却预测香港将发生地震；原本给台湾准备的病毒在香港、深圳、吉林肆虐，清零政策将带来灾难；新中国联邦将让老百姓在中国拥有信仰自由、法治、安全<br/>
@@ -141,20 +155,6 @@ The new Chinese volunteers working at the rescue center at Medyka are not from t
 
 1. The Italian war veteran WenKe presented the New  Federal Sate Of China  network on the front line to Davide Martello, the famous Italian-born war pianist from Germany. Music and technology, make us feel peace and freedom.<br/>2. Davide Martello played the national anthem of the New Federal State Of China  in tribute to <br/>the Rule of Law Foundation and the New  Federal State Of China for bringing warmth and hope in the midst of war.<br/>3. In the face of war and violence. Our children used their paintbrushes to draw the peaceful world they dreamed of.<br/><br/>1.意大利文科给德国的意大利裔著名战地钢琴家Davide Martello介绍新中国联邦在前线的卫星网络。音乐和科技让我们感受到和平和自由。<br/>2.Davide Martello为感谢法治基金和新中国联邦在战争和硝烟中带来温暖和希望，特意弹奏新中国联邦国歌，以示敬意。<br/>3.在战争和暴力面前，我们的孩子用画笔画出他们梦想的和平世界。
 ![img](https://media.gettr.com/group48/origin/2022/03/16/18/0fd7957d-4fa1-327b-355c-9e5d2c18ee39/out.jpg)
-
----
-
-`@miles 3/16/2022 6:35 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-采访被新中国联邦救援的学生<br/>Interviewing Chinese Students who were rescued from Ukraine By NFSC and ROLF
-![img](https://media.gettr.com/group3/origin/2022/03/16/18/07633f45-878f-537c-564f-b37852a4609e/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/16/2022 6:13 PM (UTC)`
-
-【Ukraine Rescue】In Medyka, Poland. The photographer captured an unforgettable video that happened on the front line: during the short interval between serving two groups of refugees in the rescue tent of NFSC, one rescue member was playing football with a Ukrainian boy. We want the war to end as soon as possible and Ukrainian people can return to a peaceful life. NFSC rescue team is the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity! <br/>【乌克兰救援】波兰梅迪克， 摄影师抓拍到了救援前线的一个难忘的视频，在服务两批难民的简短空隙时间，一名救援队员正和一名乌克兰孩子在新中国联邦的救援帐篷内踢足球。我们希望战争尽快结束，乌克兰人民能够恢复和平的生活！新中国联邦救援团队是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。
-![img](https://media.gettr.com/group11/origin/2022/03/16/18/d42c671b-8adb-a8fe-b275-279cde232387/out.jpg)
 
 ---
 
