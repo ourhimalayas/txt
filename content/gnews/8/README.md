@@ -2,90 +2,30 @@
 ---
 
 
-## 弹钢琴的英雄传递爱与温柔
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2180056/)
+## 【G时新闻】五名在美华人因监视威胁反共华人被美国司法部起诉
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2180154/)
 
-作者：美东香草山教育部-蓝之灵（Hortensia)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-83.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/D94A4712-2981-49F8-AD22-7747A120F5A9.jpeg)
-你是一个英雄
+主播：加拿大温哥华扬帆农场–莉李鲤
 
-在难民营里
+视频制作：加拿大温哥华扬帆农场 –文雅
 
-弹着钢琴
+美国司法部周二在纽约东区逮捕了刘范（音）、马修·兹布里斯(Matthew Ziburis)，周三逮捕了王淑君（音），另外两位林启明(（音）和孙强（音）被告在逃。司法部指控这五人为中共秘密警察工作，骚扰、监视居住在美国的反共中国公民。 。这五名被告被控威胁和监视在美反共华人，以帮助中共国秘密警察将他们锁定为逮捕目标。 在一个案例中，林启明（音）试图破坏一名退伍军人在美国国会发起的运动，这名退伍军人是1989年中国民主运动的学生领袖。据皮斯说，林威胁要攻击这位候选人，并犯下了其它罪行，以阻止他当选国会议员。 在另一个案例中，王淑君（音）冒充纽约皇后区的知名作家和活动人士，滥用职权向中共提供信息。 在第三起案件中，包括刘范（音）、马修·兹布里斯(Matthew Ziburis)和孙强（音）在内的三名被告试图暗中监视并摧毁一名居住在加州洛杉矶的中国人的艺术品。受害者的作品一直被中共国政府批评。 FBI正在调查这三起案件。美国国家安全局(National Security Division)助理总检察长马修·奥尔森(Matthew Olsen)周三表示，“世界各地的独裁国家都有企图超越国界，对敢于公开反对压迫和腐败的个人进行恐吓或实施报复。” 五位被告面临多项指控，包括合谋充当中共国政府代理人，进行州际骚扰和贿赂一名公职人员。
 
-优雅，从容
+据美国司法部官员说，这些指控的最高刑期为五年。 美国司法部随后会对白俄罗斯、伊朗和俄罗斯特工提起诉讼。 奥尔森还说，来自中国、伊朗、俄罗斯和其他国家的外国特工监视和威胁美国国内“异见人士”的案件出现了惊人的增长。
 
-一曲灭共的雪
+编辑/发文：让子弹飞飞飞
 
-你让泪水横流
+盖特链接：[https://gettr.com/post/p10g77l73e7](https://gettr.com/post/p10g77l73e7)
 
-眼睛朦胧
+* * *
 
-无国界的音乐
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-在寒风中
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-漂流
-
-爱和激情
-
-有了共鸣
-
-心与心
-
-距离更近
-
-战火摧残人们
-
-琴声让人不再
-
-冰冷
-
-你是一个英雄
-
-有着不一样的面孔
-
-信仰没有不同
-
-在寒冷的冬天
-
-传递同样的爱和温柔
-
-请侵略者也来倾听
-
-这天籁之音
-
-一起放下暴虐和残忍
-
-一起来欣赏
-
-这美丽声音
-
-你是一个英雄
-
-用你美丽音乐
-
-传递爱与温柔
-
-在这个战火纷飞年代
-
-送上温情温暖
-
-找回失去家园人们 的心灵
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-48.jpg)
-
-编辑/校对/发稿：林礼
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

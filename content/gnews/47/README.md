@@ -2,24 +2,48 @@
 ---
 
 
-## 秘翻在线: 海康威视预收购ASML光刻机开启芯片生产线
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2177221/)
+## 联合国法庭命令俄罗斯停止入侵，中共又投反对票
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2177598/)
 
-撰稿：西枫westca
+素材：波士顿五月花 2020灭共必胜
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-13.jpg)图片来源：网络照片
-据南华早报3月16日报道，杭州海康威视数字技术有限公司计划购买一台由荷兰ASML控股公司制造的二手光刻机，用于其内部的芯片制造业务，这标志着在美国贸易限制和全球半导体短缺的情况下，这家中共国有企业朝着技术自给自足的方向迈出了一大步。
 
-海康威视数字技术公司是全球最大的视频监控摄像机供应商之一，在2021年控制了全球监控设备市场的约四分之一。海康威视因涉嫌侵犯人权和践踏北京对待维吾尔族穆斯林和其他以穆斯林为主的少数民族，自2019年10月以来一直被列入美国贸易黑名单。美国的贸易限制和ASML机器的国内替代品供应稀缺，促使中国科技公司从日本、韩国、台湾、新加坡和美国寻求二手设备。
 
-海康威视预计将花费550万美元购买一套二手AT：850C晶圆步进系统。该消息人士说，它将成为这家中国公司8英寸晶圆装配线的一个组成部分，为其监控摄像机制造芯片。AT:850C由ASML公司于2005年建造，用于在光刻半导体制造中投射电路图像。ASML在光刻设备方面几乎占据了全球市场的主导地位，该设备是制造芯片的基本系统。
 
-海康威视寻求二手ASML机器来启动自己的芯片生产，这反映了在中共国病毒再次爆发，中美之间的紧张局势加剧以及乌克兰战争对国际贸易的潜在影响的情况下，全球半导体供应链中挥之不去的不确定性。
 
-**新闻来源：**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
 
-[US-China tech war: Chinese surveillance camera maker Hikvision to acquire second-hand ASML machine for chip production | South China Morning Post (scmp.com)](https://www.scmp.com/tech/tech-war/article/3170691/us-china-tech-war-chinese-surveillance-camera-maker-hikvision-acquire?module=perpetual_scroll_0&amp;pgtype=article&amp;campaign=3170691)
+
+
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image1-11.jpg)图片来自互联网
+
+3.16日位于海牙的联合国国际法庭（ICJ）命令俄罗斯停止入侵乌克兰，称法庭没有看到任何证据支持克林姆林宫的战争理由，即乌克兰正在该国东部对讲俄语人实施种族灭绝。
+
+法院以13票对2票通过了一项临时命令，即“俄罗斯联邦应停止于2022年2月24日在乌克兰境内开始的军事行动”。只有俄罗斯和中国的法官对该命令投了反对票。
+
+这项判决戳穿了普京对乌克兰的指责，称乌克兰军队在自己境内对东部卢甘斯克和顿涅茨克的人民实行种族灭绝。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-69.jpg)图片来自互联网
+
+有意思的是来自中共国的大法官薛捍勤和俄罗斯大法官一起投了反对票，习近平领导下的中共似乎铁了心和普京的俄罗斯一起下地狱，在人类文明的道路上越走越远。
+
+另据一则来自喜马拉雅联盟的可靠情报，中共政府已经私下跟美国政府承认他们是支持俄罗斯攻打乌克兰的，这两则消息结合在一起，不言而喻，中共就是俄罗斯入侵乌克兰最大的帮凶，是中共给予了普京熊胆，否则普京也不敢悍然发动战争以一己之力对抗全世界。
+
+独裁政权在奔溃前总是要挣扎一下的，习近平的中共在崩溃前拉着同样独裁的俄罗斯普京一起下地狱，对人类文明说不定也是一件大的”贡献”
+
+原文链接：https://www.theguardian.com/world/2022/mar/16/un-international-court-of-justice-orders-russia-to-halt-invasion-of-ukraine
+
+——————————————————————————————————————–
+
+*编辑 /发布：2020灭共必胜*
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
+
 
  
 
