@@ -2,44 +2,33 @@
 ---
 
 
-## 预设立场的彭博社记者采访
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2177536/)
+## 美参议院举行打击威权主义听证会，切断其支持系统
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2177706/)
 
-【撰稿】纽约香草山健身部—Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-25.png)
+![资料照：2021年8月4日，来自新泽西州的民主党参议员梅嫩德斯在参议院外交委员会上。（美联社）](https://gdb.voanews.com/c93f20c7-ff43-4539-9b2e-627a85ef4cc8_w1023_r1_s.jpg)资料照：2021年8月4日，来自新泽西州的民主党参议员梅嫩德斯在参议院外交委员会上。（美联社）
+据美国之音3月16日报道，美国参议院外委会15日举行听证会，讨论如何重击俄罗斯和中共国等威权主义国家带来的严重威胁。外委会主席梅嫩德斯参议员表示，普京对乌克兰的入侵向世人显示了威权主义的危险。美国及其盟友必须打击21世纪新型威权支持系统，包括用于颠覆民主原则和促进独裁者利益的数字威权主义。
 
-3月15日，前线记者妮可在波兰梅迪卡接受了彭博社记者Aggi Cantrill的采访。
+梅嫩德斯参议员表示，在过去的二十年里，一种新型的21世纪的威权主义的支持体系已经出现。普京对乌克兰的入侵向世界显示了这其中的危险。“威权领导人不是在专制孤立的情况下运作，而是通过新的盗贼金融机制、虚假信息专业人员和一系列安全服务网络来相互保护，免受民主压力并确保他们的压制性统治，从委内瑞拉到古巴，从白俄罗斯到缅甸，独裁者都得到中共国和俄罗斯的支持。”
 
-Aggi一共问了妮可4个问题
+美国必须对抗威权主义并支持民主，必须切断他们的生命线，削弱他们相互缓冲制裁带来的冲击的能力。必须打击数字威权主义——包括虚假信息、宣传和审查制度。其中打击虚假信息尤其重要。
 
-1）介绍一下你们的组织，以及你们来美迪卡做什么？
-2）你们显然拥有一个政治目标——打倒中国共产党，你认为用人道主义工作完成政治目标有问题吗？
-3）这个组织的领导是郭文贵吗？
-4）中国并没有表现出支持俄罗斯的入侵乌克兰的行动呀，你们怎么看这个战争？
+信息超限战是中共的强项，因为中共以假治国，自产自销虚假信息，一瞬间能让整个中共国小粉红狂热，爱国主义爆棚。普京入侵乌克兰之后，中共国配合俄罗斯宣传，散布美国在乌克兰拥有生物实验室，从事生化武器活动的虚假信息，引发中共国内舆论一边倒地支持普京和谴责美国。数字信息，用得好腾云展翅，用得不好一败涂地。
 
-从这几个问题看，这显然是一个预设立场的采访。这个记者是带着任务来的，她的问题是经过精心设计，完全是中共代言人的立场。
+新闻参考链接：[https://www.voachinese.com/a/us-senate-hearing-authoritarianism-china-russia-20220315/6487281.html](https://www.voachinese.com/a/us-senate-hearing-authoritarianism-china-russia-20220315/6487281.html)
 
-首先，她试图通过混淆概念来抹黑我们的救援行动，从根本上否定我们的人道主义救援行动，并把我们定义为别有用心的政治团体。其次，她还试图帮中共洗地，为中共掩盖帮助俄罗斯侵略乌克兰的真相。
+编辑：胖丁
 
-我们前线记者妮可的回答，有力的回击了Aggi的挑衅。妮可说，消灭中国共产党不是政治目的，而是维护人权的需要，是出于人道主义的目的。因为，中国共产党不仅迫害中国人民，而且，还迫害香港，新疆，台湾和法轮功学员，并且，在国际上的所有独裁国家，背后都有中国共产党的支持。消灭中国共产党，不仅是为了帮助中国人民获得真正的民主和自由，也是对中国人民的人道主义救助。
+* * *
 
-邪不胜正！彭博社记者跳梁小丑一般的表演，只能说明中共非常害怕我们的救援行动。只能证明我们新中国联邦的人道主义救援行动，获得越来越广泛的关注和认同，在国际上的影响力越来越大，更多国家的人开始认识和支持新中国联邦。新中国联邦的崛起已经势不可挡。
-
-【新闻链接】[https://mega.nz/file/1RhWCDBJ#okPwgEHMeg7y-Zhb7XD5uZCCDcQC\_lyBDj2xuQPm2zo https://discord.com/channels/@me/718495684394745917/953714404732588062](https://mega.nz/file/1RhWCDBJ#okPwgEHMeg7y-Zhb7XD5uZCCDcQC_lyBDj2xuQPm2zo%20https://discord.com/channels/@me/718495684394745917/953714404732588062)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-- 审核/编辑/发稿:qiutian（邱甜）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,20 +2,26 @@
 ---
 
 
-## 加拿大媒体敦促问责《紧急状态法》
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2177265/)
+## 加拿大无力应对前所未有的通货膨胀
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2177356/)
 
-采编/编译撰稿：加拿大温哥华扬帆农场 – 薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1833.png)图片来源：orontosun.com/opinion/editorials/editorial-dont-forget-about-emergencies-act-inquiry
-据[多伦多太阳报]3月14日报道，依照加拿大联邦法律，在自由党政府启动[紧急状态法]之后，议会必须随即成立专门委员会对当局引入该法的理由及其使用情况进行调查。
+采编：加拿大温哥华扬帆农场 – 文莱
 
-据悉，由于在该法案被启用的60天后，相关议会委员会必须对实施该法的必要性和所造成的后果进行评调查，因此，特鲁多当局绝无可能逃避该问责机制，必须在委员会面前作出回答。 报道称，尽管毫无必要引入《紧急状态法》来镇压和平对抗议活动，但自由党政府在没有任何审查和依据的情况下就草率动用该法案，甚至无任何法院令就恣意冻结抗议者的银行账户。特鲁多的这种越权施政因严重破坏了加拿大法治，而绝不能被姑息，并必须对此问责到底。
+编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1836.png)图片来源：真北方
+
+据加拿大《真北方》3月16日报道，该国经济学家近日警告，目前的恶性通胀水平几乎已达到历史最高点，全国的商品物价因此将会失控飙升。
+
+报道称，与去年相比，加拿大平均物价指数的上升或将超过6%。此外，由于俄乌战争造成国际能源产品供应链的断裂，整个加拿大燃油价格近期暴涨不断。其中温哥华地区的汽油价格已超过2加元每升，而食品公司的原料价格则提高了80%，日用品价格也因此相伴上涨。同时，运输和化肥成本的增加，已迫使农民将差价转嫁给所有消费者。
+
+据悉，即使不考虑上述汽油和食品成本的大幅上升，加拿大当前的通胀指数仍接近5%，而达到近几十年来的最高水平。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：青青
 
-新闻来源： [EDITORIAL: Don’t forget about Emergencies Act inquiry](https://torontosun.com/opinion/editorials/editorial-dont-forget-about-emergencies-act-inquiry)
+原文链接：[https://tnc.news/2022/03/16/economists-predict-inflation-in-canada-about-to-reach-30-year-high/](https://tnc.news/2022/03/16/economists-predict-inflation-in-canada-about-to-reach-30-year-high/)
 
  
 

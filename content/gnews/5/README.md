@@ -2,24 +2,25 @@
 ---
 
 
-## 中共加大煤炭产量以图能源独立
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2177559/)
+## 乌国遭掳市长获释！乌克兰总统：他从未放弃！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2177735/)
 
-采编撰稿：加拿大温哥华扬帆农场 – 重生之鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1843.png)图片来源：后千禧年
-据加拿大[后千禧年]3月14日报道，在俄乌战争所导致全球大宗商品价格飙升后，中共计划大规模增加煤炭开采，以减少其对能源产品进口的依赖。
+乌克兰东南部梅利托波尔市（Melitopol）市长费德罗夫（Ivan Fedorov）11日遭俄军掳走，一度传出他遭受酷刑，不过今天传出好消息，乌克兰以交换战俘的方式，成功让费德罗夫重获自由。
 
-据悉，中共国对各种燃料产品的需求占全球供应量的一半以上，中共当局试图通过提高煤炭产量和增加燃料储备以减少对外国能源产品进口的依赖。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phpxAoWQi.jpg)图片来源：乌克兰大使馆网站
 
-评论指出，中共以上的举措表明，习近平当局已清楚认识到欧美即将对其发起的经济制裁已成定局，在无法逃避的打击之下，必须提前在能源储备方面提前布局。
+乌克兰总统泽伦斯基慷慨激昂地说：「我们终于设法让梅利托波尔市市长获释，我们的梅利托波尔市不会向占领者屈服」，他还补充：「费德罗夫自由了，我已经与他有过联络，俄国军队在11日绑架他，并说服他合作，但费德罗夫没有低头，他从未放弃，我们也从未放弃，因为我们是乌克兰人」。
 
-校对编辑：硫酸羟氯喹64
+简评：千军易得，一将难求！费德罗夫没有低头，从未放弃，费德罗夫不仅仅忠诚于乌克兰，更是忠诚于正义不向邪恶低头！乌克兰人的骄傲！
 
-发稿：青青
+新闻来源：[LTN](https://news.ltn.com.tw/news/world/breakingnews/3862267)
 
-新闻链接：
+撰稿/发布：一叶知秋
 
-[https://thepostmillennial.com/china-ramps-up-coal-production-in-bid-for-energy-independence](https://thepostmillennial.com/china-ramps-up-coal-production-in-bid-for-energy-independence)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

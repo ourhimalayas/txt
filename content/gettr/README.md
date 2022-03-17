@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 2:55 AM (UTC)`
+
+安红妹妹就是青蒿素和酒一起吃出的问题。在这里再次提醒大家，青蒿素是中共病毒解药，但是吃青蒿素期间不能饮酒。切记切记！<br/>Just to remind everybody, artemisinin is the antidote to the CCP virus, but you can’t take artemisinin or its derivatives with alcohol.
+![img](https://media.gettr.com/group18/origin/2022/03/17/02/c20b20cf-7298-78ec-37b8-eb82e0cbca4a/35a656c15b7cab524851fcb18981f2ce.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@torontofarmcn 3/17/2022 12:40 AM (UTC)`
@@ -142,13 +149,6 @@ The new Chinese volunteers working at the rescue center at Medyka are not from t
 
 [ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.03.16 EST
 ![img](https://media.gettr.com/group48/origin/2022/03/16/15/afbe6c07-b850-4333-e878-fb1025891695/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/16/2022 3:12 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 NFSC and ROLF Ukraine Humanitarian Rescue Mission
-![img](https://media.gettr.com/group34/origin/2022/03/16/14/f5fce8a3-c0a7-6869-3212-77a8a943e7a0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

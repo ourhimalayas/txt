@@ -2,25 +2,32 @@
 ---
 
 
-## 乌克兰民众排队领面包遭俄军攻击，至少10人惨死！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2177518/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月16晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2177664/)
 
-虽然两国代表积极谈判，但俄罗斯战火不停歇，持续对乌克兰发动攻击，距离乌克兰首都基辅约145公里的切尔尼戈夫市（Chernihiv）也遭到猛攻，当地一群民众排队领面包时遭火箭攻击，造成大量伤亡，残忍画面曝光，让人见到人命在战争之中的渺小无助。
+作者：香草山翻译部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3569818-PH.jpg)图片来源：KSergatskova
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-6.jpg)
 
-切尔尼戈夫市已被俄军包围多时，先前才传出不少住宅区遭到炮袭，没想到又传出悲剧。市长乔斯（Vyacheslav Chaus）也证实至少10位平民在排队领取面包时遭炮击死亡。他强调这并非俄军首次攻击平民，「俄军持续对本市与州内其他城市大多数民用基础设施炮击、摧毁」。
 
-简评：人命在战争中是那么的渺小，作为邪恶的侵略者，攻击平民是最愚蠢的方式，除了拉仇恨再无其他，即使得到了地盘也难以安抚民心，这样的侵略哪怕有再多的借口也注定是失败的！今天有多么的残忍，未来就有多少的清单！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1-4.png)
+校对：Stay文苑
 
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1086186)
+编辑：Stay文苑
 
-撰稿/发布：一叶知秋
+发稿：Stay文苑
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+新闻：[https://gettr.com/post/p10e5e43259](https://gettr.com/post/p10e5e43259)
+访谈：[https://gettr.com/post/p10e63c4c1c](https://gettr.com/post/p10e63c4c1c)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-2.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
