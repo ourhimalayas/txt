@@ -2,81 +2,28 @@
 ---
 
 
-## 2022年3月17日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2181840/)
+## 俄强烈要求美停止向乌克兰提供武器 沙利文警告勿使用化武
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2181880/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-4.jpg)
-盖特连接：[2022年3月17日 文贵大直播：俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向](https://gettr.com/streaming/p10fr57b127)
+翻译：Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-35.jpg)
+图片来源：《零对冲 》
 
-1、曾庆红提前回京，台湾可能要开战了；
+《零对冲》引用国际文传电讯社报道说，俄罗斯安全委员会秘书尼古拉·帕特鲁舍夫（Nikolai Patrushe）周三在电话中告诉他的美国同行杰克·沙利文（Jake Sullivan）要求停止美国和西方向乌克兰军队供应武器。
 
-2、曾庆红每天都在关注乌克兰救援行动，他很清楚：这种发酵是止不住的；
+此后多日以来，克里姆林宫已向北约国家发出通知，称任何来自外部的基辅盟国的入境军事物资都将被视为“合法目标”。 电话中还就乌克兰在北约问题上保持中立的基础上，就制定具体停火计划的可能性进行了多次反复讨论，这次呼吁还侧重于推动停火。
 
-3、俄乌战争不可能发生的3件事：
+白宫 在一份声明中指出：“沙利文先生明确阐述了美国将继续与我们的盟国和合作伙伴充分协调，继续让俄罗斯为它的侵略行为付出成本，支持捍卫乌克兰主权和领土完整并加强北约东翼的承诺，”
 
-1）普京投降；
+到目前为止，这些“代价”一直停留在制裁和国际孤立领域。 考虑到沙利文警告俄罗斯同行不要部署任何化学武器，这次通话令人紧张——尽管目前尚不清楚为什么美国认为俄罗斯军方准备将其作为一种选择。
 
-2）反戈中共；
+沙利文警告俄罗斯安全委员会秘书尼古拉·帕特鲁舍夫将军俄罗斯若在乌克兰发动任何化学或生物武器袭击必须面对的后果。据白宫称，沙利文同时在通话中表示，如果俄罗斯对待外交努力是认真的，就应该停止对乌克兰城镇的袭击。
 
-3） 打核战。
+拜登周二签署了一项支出法案，该法案将拨款数十亿美元用于为乌克兰提供武器以及国防和人道主义援助。
 
-4、瓦里克告诉普京，俄乌战争再往下走，全完了。好消息，普京有可能找台阶下，收手。坏消息，共产党会晚一点灭亡；
+周三早上，泽伦斯基总统在一个虚拟的地址对国会就西方回到支持禁飞区发表了一个演讲。 他还敦促美国向基辅提供更多“强大的飞机”——以及更多的武器，以阻止俄罗斯的袭击。
 
-5、西藏唱歌的小伙子被自焚，共产党将其打死烧了；
-
-6、曾庆红建议身边人猫2年，多存点粮，大陆股市和香港股市，快卖；
-
-7 、曾庆红对俄乌战争评价：这个世界最大赢家——美国，我们（中共）将输掉这场国际上的游戏（Game on）；
-
-8、即使普京停战，习近平也会打台湾，而习近平必须要把王岐山、孟建柱抓了审判了，想把曾庆红抓了把韩正灭了；
-
-9、美欧可能和普京做一个交易，让普京停战，解封他的个人资产和家人安全。这对乌克兰是个好消息；
-
-10、共产党这两天拿出1000亿美元救恒生指数，2万点是恒生指数的信用底线；
-
-11、3-4月是时机，习近平在等待疫苗灾难的来临，最迟不超过5月，一旦来临，习近平会动手；
-
-12、文贵先生对美国的建议：
-
-1）要求中共提供病毒真相
-
-2）立法像对付俄罗斯一样对中共经济制裁
-
-13、港币还要挣扎一段时间，打台湾港币就结束了，不打台湾撑不过今年年底；
-
-14、共产党被灭后，香港和台湾一定要独立，离而不分，新中国联邦没能力没兴趣，也不应该搞政治；
-
-15、韩国COSMOS、温暖姐姐、瑞沃路森，打着文贵先生名义骗战友喜币，详见联盟公告；
-
-16、青蒿素不要喝酒；
-
-17、铁锁梦即将上线可以打榜；
-
-**注：大直播音频正在制作和上传中，敬请关注****——**
-
-**（大直播音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+原文链接：[https://www.zerohedge.com/geopolitical/russia-demands-us-stop-arms-flow-ukraine-call-sullivan-warns-against-chemical-weapons](https://www.zerohedge.com/geopolitical/russia-demands-us-stop-arms-flow-ukraine-call-sullivan-warns-against-chemical-weapons)
 
  
 

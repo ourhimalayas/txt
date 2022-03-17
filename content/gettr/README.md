@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 6:14 PM (UTC)`
+
+❤️❤️The ROLF & NFSC will do everything they can to help Ukraine refugees leave the battlefield, and bring warmth and comfort to the rescued people who were injured in the war.<br/><br/>⚠️⚠️When the Chinese Communist Party supported Putin of Russia in launching this unjust war, the New Federal State of China unconditionally rescued Chinese compatriots and Ukrainian women and children.<br/><br/>💥💥We the NEW CHINESE people, are taking down the evil Chinese Communist Party. The CCP is the root cause of global disasters. Taking down the CCP is the only way to save humanity!<br/><br/>❤️❤️法治基金和新中国联邦会竭尽所能帮助难民离开乌克兰战区，给战争中受到伤害的被救援民众带去温暖和抚慰。<br/><br/>⚠️⚠️在中共用老百姓的民脂民膏无条件地支持俄罗斯普京发动这场不义之战的时候，新中国联邦在无条件地救助华人同胞以及乌克兰的妇女和儿童。<br/><br/>💥💥我们是消灭邪恶中共的新中国人！中共是全世界灾难的根源，只有消灭中共才能拯救全人类！
+![img](https://media.gettr.com/group28/origin/2022/03/17/18/62a96a0c-ee34-ec17-3850-904c2d7af7c7/out.jpg)
+
+---
+
 `@miles 3/17/2022 4:36 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
@@ -150,13 +157,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 3/15/2022 Miles Guo: The COVID virus outbreak and economic crisis happening in Hong Kong will lead to a series of problems in China：the real estate market will start to collapse most likely from the north all the way to the south, and the pandemic is getting further out of control; the CCP’s last hope is to attack Taiwan, which opens the third door to taking down the CCP<br/><br/>3/15/2022 文贵直播：香港病毒和经济危机会进而导致中共国自北向南一系列的房地产崩盘和进一步病毒失控，中共最后的疯狂必将是打台湾，届时灭共第三道大门就会打开<br/>
 ![img](https://media.gettr.com/group20/getter/2022/03/17/05/bf04fced-8680-87f2-6d01-0cc92d5053a5/out.jpg)
-
----
-
-`@miles 3/17/2022 2:55 AM (UTC)`
-
-安红妹妹就是青蒿素和酒一起吃出的问题。在这里再次提醒大家，青蒿素是中共病毒解药，但是吃青蒿素期间不能饮酒。切记切记！<br/>Just to remind everybody, artemisinin is the antidote to the CCP virus, but you can’t take artemisinin or its derivatives with alcohol.
-![img](https://media.gettr.com/group18/origin/2022/03/17/02/c20b20cf-7298-78ec-37b8-eb82e0cbca4a/35a656c15b7cab524851fcb18981f2ce.jpeg)
 
 ---
 

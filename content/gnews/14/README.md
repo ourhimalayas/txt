@@ -2,10 +2,22 @@
 ---
 
 
-## 新中国联邦成为国际红十字会等国际组织机构的临时会议地点
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181829/)
+## 郭文贵盖特音频2022.03.16
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2181866/)
 
-台灣寶島農場
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/03/out-11.jpg)
+### **视频链接：**
+
+[https://www.gettr.com/post/p10aie8d8ab](https://www.gettr.com/post/p10aie8d8ab)
+
+### 音频链接：
+
+
+
+
+
+编辑发布：闪电训练
 
  
 
