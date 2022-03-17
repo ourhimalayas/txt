@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 4:36 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
+![img](https://media.gettr.com/group30/origin/2022/03/17/16/b925dc25-5c92-1f43-22f3-9b9da81b3d80/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/17/2022 3:45 PM (UTC)`
 
 
@@ -150,15 +157,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 安红妹妹就是青蒿素和酒一起吃出的问题。在这里再次提醒大家，青蒿素是中共病毒解药，但是吃青蒿素期间不能饮酒。切记切记！<br/>Just to remind everybody, artemisinin is the antidote to the CCP virus, but you can’t take artemisinin or its derivatives with alcohol.
 ![img](https://media.gettr.com/group18/origin/2022/03/17/02/c20b20cf-7298-78ec-37b8-eb82e0cbca4a/35a656c15b7cab524851fcb18981f2ce.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@torontofarmcn 3/17/2022 12:40 AM (UTC)`
-
-【 #乌克兰大救援 】<br/>A week ago, Lidiia and Volodymyr arrived the hotel safely in Krakow, Poland from Lviv, Ukraine on a rescue bus arranged by the New Federal State of China and the Rule of Law Foundation.<br/><br/>On March 15, with the assistance of our frontline comrades, they completed the Covid-PCR test that is required for entry into the United States, and they departed from Krakow airport for the United States on March 16.<br/><br/>With the efforts of the #NFSC and the #ROLF and the entire rescue team, Lidiia and Volodymyr were able to get on the flight to New York on March 16, where they will start a new life with their daughter.<br/><br/>一周前, Lidiia 和 Volodymyr 夫妇乘坐我们的救援大巴从乌克兰利沃夫安全抵达波兰克拉科夫并入住酒店。<br/><br/>他们在前线战友的陪同下完成了入境美国需要的新冠PCR检测，3月16日从克拉科夫机场乘机飞往美国纽约与亲人团聚。<br/><br/>#法治基金 #新中国联邦 <br/>#Ukrainerescue <br/>
-![img](https://media.gettr.com/group25/getter/2022/03/17/00/a5656e16-567c-219c-17cc-c26407ecc9da/out.jpg)
 
 ---
 

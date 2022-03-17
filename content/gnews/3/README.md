@@ -2,12 +2,10 @@
 ---
 
 
-## 【乌克兰救援】新中国联邦和法治基金战友的救援工作：幕后花絮
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2181755/)
+## 新中国联邦成为国际红十字会等国际组织机构的临时会议地点
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181829/)
 
-【乌克兰救援】03/12/2022  新中国联邦和法治基金战友的救援工作：幕后花絮
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+台灣寶島農場
 
  
 

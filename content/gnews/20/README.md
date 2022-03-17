@@ -2,31 +2,36 @@
 ---
 
 
-## 澳大利亚新南威尔士州CCP病毒感染新增再破两万
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2181418/)
+## 布伦伯格虚假采访企图抹黑国际人道救援
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2181439/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3.17-D.jpg)网络图片
-本周三，澳大利亚新南威尔士州再度记录了 20,087 例 COVID-19 新增感染病例。而在前一天的周二，这一数字则直接突破30,000——随着 Omicron BA.2 子变体的传播，卫生专家敦促居民遵守各项公共卫生措施。
+作者：纽约香草山农场 Naughty(文行)/Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月15日，据新中国联邦和法治基金救援团队在波兰梅蒂卡救助站的报道，布伦伯格当天派遣记者抵达了前线救助站，现场采访了救援义工妮可战友。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-196.jpg)
+这位来自布伦伯格的财经记者名为阿吉-坎翠尔，是一位会讲流利中文的德国人。然而在采访中，坎翠尔先后问了妮可几个极具政治企图和指向性的问题，包括救援团队隶属什么组织，这一组织是否由郭文贵先生领导，团队在当地的任务，救援行动是否具有政治目标，以及救援团队如何看待中共和此次俄乌战争。
 
-同时该州又有五人因患CCP病毒而不幸离世，目前仍然有34人处于重症监护的状态。
+值得注意的是，此次采访显然带着一个预设的立场，且上述问题明显被精心设计过，其目的即为通过混淆概念来抹黑新中国联邦和法治基金的救援行动，并掩盖中共支持俄罗斯侵略乌克兰的真相。
 
-一周以前，新南威尔士州报告的病例数目还在10,000至20,000之间，健康专家当时就警告Omicron的BA.2 子变体可能导致感染在四到六周内翻倍。
+对此，妮可战友不卑不亢地回击了对方的谬论，并明确指出，推翻共产主义是一个人性问题，因为世界上的一切灾难都来自共产党和共产主义；再者，新中国联邦和法治基金的人道救援只为帮助那些遭受战争迫害的妇女和儿童；最后，郭文贵先生正在带领中国人铲除共产主义，从而让中国人能够享有言论、新闻和思想自由。
 
-传染病专家罗伯特·布伊教授对这一子变体表示担忧：“它可能同样严重，2022 年截至目前的死亡人数比前两年的全年总额都多……我们必须保持警惕，同时我们必须机智应对。”
+此外，采访结束后，这位布伦伯格的记者还无理地要求参与现场录制的新中国联邦义工删除其保留的采访视频，该名记者甚至反复禁止义工战友将此条视频公布在社交媒体上。为此，有爆料革命战友指出，这种要求显然是中共在幕后操纵的故技重施，即先进行虚假采访，再企图销毁原始采访录像，最后利用后期加工混淆事实，妄图抹黑和诋毁新中国联邦和法治基金的这次国际人道救援行动。
 
-布伊教授认为，虽然恢复封锁暂时没有必要，但人们应该考虑恢复在室内佩戴口罩，如果可能的话尽量在家工作，并避开人群。
+参考链接：[03/15/22 妮可向彭博社记者Aggi Cantrill介绍：新中国联邦消灭中国共产的的政治目标同时也是人道目标，所有人道灾难都是中国共产党造成的，不仅是中国，包括新疆、香港、台湾，以及乌克兰的战争，背后都有共产党的黑手，无论是对乌克兰难民的救助，还是帮助中国人民铲除共产党，都是出于人道主义的目的。](https://gettr.com/post/p104pr30f81)
 
-昨天公布的维多利亚州废水测试结果显示，BA.2 子变体已经是该州一半以上采样的流域中最普遍的CCP病毒变异类型。BA.2子变体在 1 月份美国报告的病例中仅占不到 100 例，然而上周它在美国 CCP病毒病的占比约为 23%。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-*发布：Gradient Boost*
+总编：Irene木木
+编辑/审核：文真
+校正/发稿：Fei797
 
-新闻参考链接：
-
-[NSW records 20,087 new infections amid warning over Omicron BA.2 sub-variant](https://www.9news.com.au/national/coronavirus-update-nsw-clocks--20087-new-infection-as-experts-warn-about-subvariant-ba2/d6938f52-6cb4-43cb-887c-565dc0428c3a)
-
-[What we know about Omicron BA.2 sub-variant](https://www.9news.com.au/health/explainer-what-we-know-about-ba2-variant-stealth-version-of-omicron/f475a14d-edba-4fe4-b521-a7c1eb7ca0f7)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

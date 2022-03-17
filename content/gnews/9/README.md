@@ -2,10 +2,12 @@
 ---
 
 
-## 俄乌战争 乌克兰的智慧征服了全世界
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181710/)
+## 【乌克兰救援】新中国联邦和法治基金战友的救援工作：幕后花絮
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2181755/)
 
-台灣寶島農場
+【乌克兰救援】03/12/2022  新中国联邦和法治基金战友的救援工作：幕后花絮
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,18 +2,18 @@
 ---
 
 
-## 波兰记者报道新中国联邦救援团
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2181607/)
+## 新中国联邦咖啡名扬救援营地
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2181716/)
 
-作者：香草山农场教育部 saner三二
+作者：纽约香草山农场 saner三二
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月16日，据波兰边境口岸梅蒂卡难民安置点传来的消息显示，前线记者Nicole当天代表新中国联邦救援团队接受了波兰第二大广播电台ZET记者的采访。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-121.jpg)
-采访中，Nicole向波兰记者介绍了新中国联邦此次行动的核心就是人道主义援助。Nicole也反复强调称，前线救援团代表的是消灭邪恶中国共产党的新中国人。
+当地时间3月16日，据身处新中国联邦和法治基金在波兰梅蒂卡救援点的文耀战友回传的前线消息显示，新中国联邦救援营地再添一台由法治基金支援的专业咖啡机，为乌克兰难民、各国媒体人员和其他国际救援组织的义工带去了更多的温暖。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-91.jpg)
+据悉，自3月11日晚间起，新中国联邦的前线救援帐篷中就不间断地供应现磨咖啡；如今，新中国联邦咖啡已经在整个梅迪卡营地内人尽皆知：一杯杯现磨咖啡不仅给疲惫的难民们送去了及时的抚慰，也给各国记者和国际义工留下了深刻印象。
 
-随后，这位波兰记者在推特平台上发布了关于新中国联邦救援行动过程的报道。当中，这位记者提到，在梅蒂卡，最大的难民援助帐篷是由新中国联邦人搭建的。他还援引了Nicole采访时的语句表示，“支持普京的共产党当局不代表我们中国的人民，它是一个独裁政权。这就是我们新中国人参与救援的原因，我们与乌克兰人民并肩作战。”
+前线战友表示，在当地寒冷艰苦的环境中，这些咖啡代表了新中国联邦人友好、温暖、专业以及维护和平的崭新形象，其更是新中国联邦与世界各组织建立良好合作关系的桥梁。与此同时，新中国联邦的口号——“我们是消灭邪恶中国共产党的新中国人”——将随着新中国联邦咖啡一起，深入每一位当地人员的内心。
 
-参考链接：[W Medyce największy namiot z pomocą dla uchodźców rozstawili…Chińczycy. “Komunistyczne władze, które wspierają Putina, nie reprezentują naszego narodu. To dyktatura. Dlatego to my zaangażowaliśmy się w pomoc. Stoimy ramię w ramię z Ukraińcami”.](https://twitter.com/rafalmizejewski/status/1504088603089162252?s=21)
+参考链接：[03/16/22 一位波兰志愿者丹尼尔表示，新中国联邦的咖啡在整个基地是个传奇。他身旁的美国志愿者虽然还没有喝过，但表示早有耳闻，马上要去尝尝。](https://www.gettr.com/post/p10aw5j23a1)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
