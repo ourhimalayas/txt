@@ -2,32 +2,52 @@
 ---
 
 
-## 波兰记者报道新中国联邦救援团
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2181607/)
+## 日本正式决定下周结束疫情准紧急状态
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2181622/)
 
-作者：香草山农场教育部 saner三二
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月16日，据波兰边境口岸梅蒂卡难民安置点传来的消息显示，前线记者Nicole当天代表新中国联邦救援团队接受了波兰第二大广播电台ZET记者的采访。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-121.jpg)
-采访中，Nicole向波兰记者介绍了新中国联邦此次行动的核心就是人道主义援助。Nicole也反复强调称，前线救援团代表的是消灭邪恶中国共产党的新中国人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/J-scaled.jpg)asia.nikkei.com
+日本共同社3月17日报道，日本政府本周四正式决定按计划在下周取消日本所有剩余的关于COVID的准紧急状态遏制措施，因为最近新感染的数量呈下降趋势。
 
-随后，这位波兰记者在推特平台上发布了关于新中国联邦救援行动过程的报道。当中，这位记者提到，在梅蒂卡，最大的难民援助帐篷是由新中国联邦人搭建的。他还援引了Nicole采访时的语句表示，“支持普京的共产党当局不代表我们中国的人民，它是一个独裁政权。这就是我们新中国人参与救援的原因，我们与乌克兰人民并肩作战。”
+东京和附近的千叶县、神奈川县和埼玉县是18个将于周一结束限制的地区之一。其他地区包括爱知、大阪和京都。
 
-参考链接：[W Medyce największy namiot z pomocą dla uchodźców rozstawili…Chińczycy. “Komunistyczne władze, które wspierają Putina, nie reprezentują naszego narodu. To dyktatura. Dlatego to my zaangażowaliśmy się w pomoc. Stoimy ramię w ramię z Ukraińcami”.](https://twitter.com/rafalmizejewski/status/1504088603089162252?s=21)
+因奥米克戎（Omicron）病毒变种从年初开始的迅速蔓延，受到遏制的县的数量一度扩大到36个，其余18个县的措施期限已被延长了两次。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+随着禁令的解除，该国将自1月8日以来首次摆脱此类措施。
 
-总编/编辑：Irene木木
-审核：Jack Li文阳
-校正/发稿：Fei797
+但是，由于对传染性的BA.2亚变体的担忧仍然存在，这可能会导致病毒的重新出现并对医疗系统造成压力，反对党表示完全取消限制还为时过早。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+日本立宪民主党在一份声明中说，人们可能将取消限制视为 “安全宣言”，而他们警告说，感染可能会反弹，特别是在日本新的商业和学校年度开始的4月前后，社会交流通常会增加后。
+
+岸田文雄首相周三说，仍将有一个过渡期，在此期间，人们应最大限度地注意防止感染。
+
+准紧急状态允许省长要求餐馆和酒吧提前关闭并停止供应酒精，与全面紧急状态相比，它在覆盖面和限制方面更为有限。
+
+内阁办公室高级副部长菊川田仁史（Hitoshi Kikawada）在谈到18个县时说：“新的中共（冠状）病毒病例数量呈下降趋势，医院的压力正在缓解。”
+
+他补充说：“在努力恢复社会经济活动的同时，保持和加强医疗反应是很重要的。”
+
+作为使这些活动正常化的努力的一部分，政府计划不再要求公司在工作场所确认与病毒患者密切接触者，如果他们已经实施了防止感染传播的措施。
+
+取消所有准紧急限制的最新决定也符合新的政府准则，该准则规定，尽管感染人数居高不下，但当卫生保健系统的压力有望缓解时，就可以结束此类措施。
+
+共同社前一天还报道称，新西兰将于4月对澳大利亚人重新开放边境，其他国家将于5月重新开放。新西兰总理杰辛达·阿登（Jacinda Ardern）周三表示，新西兰将在4月向澳大利亚人重新开放边境，并在5月向不需要签证的国际旅行者开放边境。随着新西兰度过奥米克戎（Omicron）变种的感染高峰期，开放边境的举措提前了数月进行。
+
+接种了疫苗的澳大利亚人将能够从4月13日起免于隔离入境，从5月2日起，来自日本、美国、英国和韩国等免签证国家的完全接种的旅行者可以进入新西兰。之前新西兰宣布要到7月之后才被允许入境。
+
+**特评**：各国政府都在纷纷取消疫情的限制政策，日本政府在做，新西兰政府也在提前开放边境。
+
+郭先生早在去年底今年初就告诉我们，疫情封锁和疫苗强制令都会取消，但疫苗灾难会在5月后逐渐显现。各国政府取消各种限制令后，不是说病毒已经消失，个人不能对疫情的严重性掉以轻心，必须做好防护。
+
+笔者相信郭先生说的，之所以各国都在取消限制政策，不是因为疫情得到控制，而是经济将出大问题，各级政府都要撑不下去了而不得不为之之举。
+
+参考链接：
+
+[https://english.kyodonews.net/news/2022/03/bc188041dee7-panel-oks-japan-ending-covid-19-quasi-emergency-next-week.html](https://english.kyodonews.net/news/2022/03/bc188041dee7-panel-oks-japan-ending-covid-19-quasi-emergency-next-week.html)
+
+[https://english.kyodonews.net/news/2022/03/5b95a129057b-new-zealand-to-reopen-border-to-australians-in-april-others-in-may.html](https://english.kyodonews.net/news/2022/03/5b95a129057b-new-zealand-to-reopen-border-to-australians-in-april-others-in-may.html)
+
+**编译 发布：意大利罗马达芬奇农场 Roma**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

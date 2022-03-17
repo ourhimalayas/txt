@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦成为国际红十字会等国际组织机构的临时会议地点
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181829/)
+## 共产党建党以来北京第一次向中央报告财政巨亏损
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181862/)
 
 台灣寶島農場
 
