@@ -2,23 +2,36 @@
 ---
 
 
-## 美将在台海战争中彻底歼灭共军
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2179132/)
+## 新中国联邦救援信息：
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2179194/)
 
-加拿大温哥华扬帆农场    平民正道
+作者：纽约香草山农场 – Irene木木
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。同时，自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发，前往波兰。
 
-据3月15日文贵直播报道，一旦习近平当局斗胆自不量力发动台海战争，美国将毫不犹豫出兵保卫台湾，并将以此彻底毁灭中共党卫军。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/13-21.png)
 
-据悉，为负隅顽抗美国即将对中共采取的包括停止其使用SWIFT国际金融系统等严厉制裁，习近平当局已计划联合伊朗和也门等独裁政权在中东地区发动战争，不仅通过封锁霍尔木兹海峡的石油通道来控制欧美赖以发展的能源供应，以击垮石油美元经济；而且还企图趁美国同时介入乌克兰和中东地区这两场战争之机，出其不意攻占台湾。
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
 
-报道指出，由于美国历来的战略方针是在同一时间能打赢两场局部战争，因此，习近平必将在美国专注应对乌克兰和中东局势之时，孤注一掷发动针对美国的第三场战争：台海之战。
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
-对此，文贵先生表示：中共出兵攻打台湾之际，就是彻底灭共的第三道大门被真正打开之时。美国这次无论如何都将对中共开战，而新中国联邦将是随后胜利打扫战场的最终受益者。
+链接：
 
-* * *
+- [《乌克兰救援》](https://www.gettr.com/post/pzvg8vdf4f)
 
-编辑： 平民正道    发布：平民正道
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+总编：zhong
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

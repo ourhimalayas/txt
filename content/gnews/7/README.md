@@ -2,24 +2,38 @@
 ---
 
 
-## 视频|波兰友人盛赞中国的“瓦文萨”
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2179139/)
+## 英国扩大对俄罗斯制裁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2179195/)
 
-制作：香草山视频部
+撰稿：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-5.png)
+英国媒体15日报道，英国政府宣布加大对俄罗斯的贸易制裁，包括奢侈品出口禁令、提高数百种俄罗斯商品的进口关税以及切断对与该国贸易的财政支持。此外，英国政府将仿效美国政府，停止俄罗斯及白俄罗斯的数百种商品享受世界贸易组织的最惠国待遇。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1868.png)图片来自：https://www.export.org.uk
+英国国际贸易部表示：世界贸易组织是建立在尊重法治的基础上，而普京对此表示藐视，因此将剥夺俄罗斯政府加入世贸组织的主要利益。
 
-3月15日，据郭文贵先生发布的盖特视频显示，新中国联邦和法治基金乌克兰前线直播团队在波兰梅蒂卡采访了救援营地中的两位波兰独立制片人。
+英国外交部指出，这次新一轮的制裁，受冲击的俄罗斯菁英合计资产净值达1000亿英镑，其中包括克里姆林宫发言人培斯科夫和俄国外交部发言人沙卡洛娃。
 
-在回传的视频资料中，记者Nicole向两位波兰友人传达了对她对波兰人们的热爱。在谈到波兰的历史时，Nicole表示，一位伟大的波兰领导人瓦文萨当时带领着所有波兰人民脱离了共产主义的暴政；而今，中国也有一个“瓦文萨，就是新中国联邦的创始人郭文贵先生，他正在带领中国人民推翻中国共产党的残暴独裁统治。
+同一天，欧盟也正式批准了对俄罗斯的第四轮制裁措施，包括禁止对俄罗斯能源领域的新投资，并设下對鋼鐵和奢侈品的貿易限制。此外，部分个人及部分国有企业将受到制裁。
 
-对此，这两位波兰独立制片人先是祝愿中国的瓦文萨——郭文贵先生——带领中国人民的灭共运动可以成功；其次，他们也强调，热爱自由的波兰人民将与中国人民坚定地站在一起。
+新闻链接：[New UK sanctions on Russia include ban on luxury exports, hiked import tariffs and halt to UKEF aid](https://www.export.org.uk/news/599062/New-UK-sanctions-on-Russia-include-ban-on-luxury-exports-hiked-import-tariffs-and-halt-to-UKEF-aid.htm)
 
-发稿：林礼
+[EU restrictive measures in response to the crisis in Ukraine](https://www.consilium.europa.eu/en/policies/sanctions/restrictive-measures-ukraine-crisis/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2216E39C-254A-4B4E-A990-F203C3B861B5.jpeg)
+
+审核/总编：zhong
+
+编辑：飞虹
+
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

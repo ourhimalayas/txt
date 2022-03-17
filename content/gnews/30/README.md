@@ -2,42 +2,88 @@
 ---
 
 
-## 樱花深度报道┃中共黑客对美国发动新一轮攻击（下）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2177940/)
+## 国务院：任何支持普京谎言的国家(比如中共国)都是在加剧乌克兰的毁灭
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2178013/)
 
-编译：东京樱花团/Hopkins
+> 美国国务院：
+> 美国在乌克兰没有化学或生物武器计划。
+> 俄罗斯政府需要停止说谎 [#StopTheLies](https://twitter.com/hashtag/StopTheLies?src=hash&amp;ref_src=twsrc%5Etfw)。
+> 【附中字视频：任何支持这些谎言的国家(如 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw))都是在加剧乌克兰的毁灭】 [https://t.co/XbrNQ5m6E2](https://t.co/XbrNQ5m6E2) [pic.twitter.com/Za2HAA6x4x](https://t.co/Za2HAA6x4x)
+> — 美国政要直译推 (@zhiyitw33) [March 17, 2022](https://twitter.com/zhiyitw33/status/1504287097636548610?ref_src=twsrc%5Etfw)
 
-【摘要】近来美国多个州政府以及数百万美国人都遭到中共黑客攻击，中共黑客除了盗窃敏感信息，还传播关于俄乌纷争中的不实信息。现在是美国牛仔们发挥他们的精神、掏出他们更大的枪的时候了：只要中共不停止用黑客手段窃取美国信息、不停止进行政治宣传，美国应该一直对中共经济进行彻底的制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1848.png)（图片说明）2020年8月4日，一名黑客在中国广东东莞市使用他的电脑。(Nicolas Asfouri/AFP via Getty Images)
-很多人比较关注来自俄罗斯的黑客威胁，其实这新一轮来自APT41的攻击提醒了世界，中共黑客才是全世界长期、最大的威胁。
 
-中共还花钱利用网络广告宣传政治斗争的假消息。最近中共在阿塞拜疆、香港、哈萨克斯坦、塔吉克斯坦、土库曼斯坦、乌兹别克斯坦等地区的脸书（Facebook）投放了21个广告，为俄罗斯镇压乌克兰造势，和传播反对北约的信息。
 
-中共帮助俄罗斯推动的另一个假消息是，称美国政府出资在乌克兰建立生物实验室。这种说法是为将来把生化武器的使用归咎到美国头上做好准备。
+参议员玛莎·布莱克本： #共产主义中国 希望利用发生在世界舞台上的危机——我们承受不起拜登政府的失策。
 
-3月9日，美国政府否认了这种说法。“美国政府在乌克兰没有任何生化实验室，完全符合《化学武器公约》和《生物武器公约》的规定。美国政府在其它地区也没有开发或拥有这些武器。正是俄罗斯在积极推动生化武器开发项目，这违反了《化学武器公约》和《生物武器公约》。”
 
-美国公众需要更高的透明度了解来自俄罗斯的威胁，更要警惕来自中共的威胁。美国政府不仅要驳斥俄罗斯散播的关于俄乌之争的政治宣传，也要揭露中共政府在其中所作的宣传。
 
-谷歌公司应该向大众公开美国究竟哪几个州遭到了APT41的攻击。这样公众才能推动这些州改善网络安全，或通过投票表达民意。
+> Communist China wants to take advantage of the crises happening on the world stage — we cannot afford a slip up by the Biden administration.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 16, 2022](https://twitter.com/MarshaBlackburn/status/1504149600860577792?ref_src=twsrc%5Etfw)
 
-中共政府在世界范围内持续进行的黑客活动和政治宣传，让世界民众清楚地看到，中共政府与其它反对民主的国家政府合谋实施他们的罪行。俄罗斯、伊朗和北朝鲜这几个国家都不断使用黑客和政治宣传作为反对自由世界秩序的工具。而中共政府与他们有关联，这表明，我们需要更警惕地保护美国和盟国的企业及地方政府。我们应该投入更多力量共同抵御这些黑客在世界互联网上的胡作非为。
 
-美国司法部2020年对APT41组织五个成员的起诉几乎是一纸空文，至今没有一个人认罪、没有一个在服刑。
 
-是美国牛仔发挥他们的精神、掏出他们更大的枪的时候了：只要中共不停止用黑客手段窃取美国信息、不停止进行政治宣传，美国应该一直对中共经济进行彻底的制裁。
+参议员卢比奥新闻办公室： 参议员卢比奥、格雷厄姆和同事们赞赏参议院一致通过了两党决议，呼吁普京和他的政权成员为被指控的战争罪行、侵略和侵犯人权行为负责。
 
-（全文完）
 
-*作者简介：*
 
-*安德斯**‧**科尔（Anders Corr），2001年获颁耶鲁大学的政治学学士及硕士学位，2008年荣获哈佛大学的政府管理学博士学位。他是科尔分析公司（Corr Analytics Inc.）总裁，《政治风险杂志》（the Journal of Political Risk）发行人，研究领域广涉北美、欧洲和亚洲等地。他撰的最新著作是《权力的集中》（The Concentration of Power: Institutionalization, Hierarchy, and Hegemony，2021年出版）和《大国大战略》（Great Powers, Grand Strategies: the New Game in the South China Sea，2018年出版）。*
+> Sen Rubio, [@LindseyGrahamSC](https://twitter.com/LindseyGrahamSC?ref_src=twsrc%5Etfw), & colleagues applauded the Senate's unanimous passage of their bipartisan resolution calling for [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) & members of his regime to be held accountable for acts of alleged war crimes, aggression, & human rights abuses.
+> 
+> Read ⬇️[https://t.co/xO6phndG53](https://t.co/xO6phndG53)
+> — Senator Rubio Press (@SenRubioPress) [March 16, 2022](https://twitter.com/SenRubioPress/status/1504153298416328705?ref_src=twsrc%5Etfw)
 
-信息来源：[*China Hacks America Again*](https://www.theepochtimes.com/china-hacks-america-again_4328650.html)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
+
+白宫： 今天,总统宣布了一项8亿美元的援助计划，帮助乌克兰抵御俄罗斯的无理入侵。 这使得美国在过去一周承诺给乌克兰的安全援助总额达到10亿美元，自总统上任以来共达20亿美元 。新的8亿美元一揽子计划包括: – 800套防空系统 – 9000套反装甲系统 – 7,000件小型武器 – 2000万发子弹 -无人机系统 等等。这种援助将采取直接从国防部向乌克兰军方移交设备的形式。我们继续与盟国和伙伴合作，为向乌克兰输送更多援助提供便利。
+
+
+
+> Today, [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) announced an $800M assistance package to help Ukraine defend their country against Russia’s unprovoked and unjustified invasion.
+> 
+> This brings the total U.S. security assistance committed to Ukraine to $1B in the past week and a total of $2B since [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) took office.
+> — The White House (@WhiteHouse) [March 16, 2022](https://twitter.com/WhiteHouse/status/1504148983849050122?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨： [#中国共产党](https://gettr.com/hashtag/%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A) 最高领导人习近平试图挽救北京对弗拉基米尔.普京的投资，但在乌克兰入侵中面临重大考验 【转华盛顿时报比尔.格茨报道：俄罗斯入侵乌克兰考验中国领导人 – 习近平支持普京，但西方制裁可能打击北京】
+
+
+
+> Chinese Communist Party Supreme Leader Xi Jinping is trying to salvage Beijing’s investment in Vladimir Putin but is facing a major test in the Ukraine invasion [https://t.co/YU5er4iXAD](https://t.co/YU5er4iXAD)
+> — Bill Gertz (@BillGertz) [March 16, 2022](https://twitter.com/BillGertz/status/1504083558599700486?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎.布莱克本： 沙特阿拉伯希望使用 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的数字人民币进行石油销售。 我们的对手正在利用这个机会排挤美国，只要拜登允许他们这样做，他们就会继续。
+
+
+
+> Saudi Arabia wants to use Communist China’s Digital Yuan for oil sales.
+> 
+> Our adversaries are using this opportunity to dismiss the U.S., and they will continue to do so as long as Biden allows them to.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 16, 2022](https://twitter.com/MarshaBlackburn/status/1504179978954579969?ref_src=twsrc%5Etfw)
+
+
+
+拜登总统： 普京正在给乌克兰造成骇人听闻的破坏和恐怖——轰炸公寓楼和产科病房。 昨天，我们看到有报道称俄罗斯军队将数百名医生和病人扣为人质。 这些都是暴行。 使世界愤慨。
+
+
+
+> Putin is inflicting appalling devastation and horror on Ukraine — bombing apartment buildings and maternity wards. 
+>  
+> Yesterday, we saw reports that Russian forces were holding hundreds of doctors and patients hostage.
+>  
+> These are atrocities. It is an outrage to the world.
+> — President Biden (@POTUS) [March 16, 2022](https://twitter.com/POTUS/status/1504182615011643403?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥： 英国以 5.3 亿美元的价格解救出其被扣为人质的公民。 我们(川普政府) 阻止了支付血钱 —— 不奖励人质劫持者。那笔现金会用来恐吓以色列、英国和美国。 可悲的是，伊朗与俄罗斯和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 一起正在向西方发起冲击。 绥靖政策在失败之前总是感觉良好 —— 它向来如此。 【转美联社记者推文：伊朗官方媒体称，英国已经“偿还了德黑兰5.3亿美元的长期逾期债务”，双重国籍者被释放。】
+
+
+
+> The UK priced taking & holding its citizens hostage at $530 million. We prevented paying blood money— not rewarding hostage-takers. That cash will terrorize Israel, UK & US. Sadly, Iran, w/Russia & China, is rolling the West. Appeasement feels good until it fails— it always does. [https://t.co/0VcGfgQSD7](https://t.co/0VcGfgQSD7)
+> — Mike Pompeo (@mikepompeo) [March 16, 2022](https://twitter.com/mikepompeo/status/1504199072604958722?ref_src=twsrc%5Etfw)
+
 
 
  

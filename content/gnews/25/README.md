@@ -2,52 +2,40 @@
 ---
 
 
-## 欧盟议会撤回对比特币工作量证明的禁令
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2178545/)
+## 新中国联邦国际救援队进入乌克兰境内救援
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2178566/)
 
-ECON委员会投票反对一项限制欧盟工作证明采矿的条款，并通过了一项替代规则。
+作者：澳喜农场 – Leo M
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月15日文贵大直播透露，新中国联邦人道救援队已经进入乌克兰境内，成功救出了几批中国人和乌克兰妇女儿童，是目前唯一的由中国人乃至亚洲人主导的战地救援队。
 
-据《Bitcoin Magazine》记者：NAMCIOSMAR，2022年3月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture-54-e1647493735753.jpg)图片来源：原文
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-39.png)
 
+据前线记者采访乌克兰救援行动的战友，新中国联邦与专业的国际救援团队合作无间。在乌克兰境内使用的位置追踪器和特制大巴都属于专业的救援设备，为确保人员安全聘有随行安保人员，且安保人员均具备特种部队经历，目前在前线的救援行动已经由安保人员捕获一位混入救援队伍中，意图随车回到救援基地的俄罗斯人，该名男子目前已遭到乌波边境海关拘留。
 
-- 欧盟经济委员会周一投票删除了与欧洲大陆事实上禁止比特币开采有关的部分。
-- 该条款是MiCA规则的一部分，该规则是欧盟监管比特币和加密货币的立法草案，该草案在周一的投票会议上获得通过。
-- 通过了一项关于PoW（工作量证明）的替代修正案，将比特币挖矿添加到欧盟可持续金融分类中。
+自俄罗斯入侵乌克兰伊始，中共就匆匆宣布乌克兰境内所有中国公民已经被全部救出，并迅速发动网军播放挺俄视频并对乌克兰人的苦难幸灾乐祸，对乌境内中国人的安全造成了巨大威胁。大卫战友透露，乌克兰境内已经没有任何中共的撤侨人员。乌境内的中国人成了被中共灭口的对象。新中国联邦与法治基金发起的救援行动，希望通过消灭邪恶中国共产党的新中国人向世界证明，中共不等于中国人，而中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。
 
+目前，新中国联邦救援行动已经获得国际媒体关注，并表示赞同灭共理念，新中国联邦正在用行动向世界证明自己。更有记者表示，以新中国联邦救援理念为荣。
 
-据多份报告称，欧盟（EU）已经放弃了对比特币开采和相关活动实施事实上的禁令的计划，这可能会损害该地区促进可持续技术的努力。
+链接：
 
-对工作量证明 (PoW) 共识机制提出的事实上的禁令是欧盟一项主要法案草案的一部分，即加密资产市场 (MiCA) 立法，该法案于 2020 年推出，旨在通过以下方式加强对比特币和加密货币的监管在整个非洲大陆建立更详细和简化的监管框架。
-
-巴黎 MEP Pierre Person发推文说：“似乎理性和常识占了上风，我们必须继续捍卫技术中立原则。欧洲必须继续参与全球竞争！”
-
-欧盟经济和货币事务委员会（ECON）周一投票反对PoW禁令，同时通过了一项新修正案，将加密货币挖矿添加到欧盟可持续金融分类中。
-
-另一方面，根据欧洲议会的官方新闻稿，更广泛的MiCA立法以31票对4票和23票弃权获得批准。除了要求立法提案将任何“对气候变化做出重大贡献”的加密货币采矿活动纳入欧盟可持续活动分类法之外，MiCA 还定义监管机构来监督比特币和加密货币市场，“支持市场完整性和金融稳定，”根据新闻稿，“包括打击市场操纵和防止洗钱、恐怖主义融资和其他犯罪活动的措施”。
-
-“通过采用 MiCA 报告，欧洲议会为可以在全球范围内制定标准的创新友好型加密监管铺平了道路，”欧洲议会议员Stefan Berger在新闻稿中表示。
-
-更新（2022 年 3 月 14 日 – UTC 时间晚上 9:00）：在整个过程中添加来自欧洲议会官方新闻稿的信息。
-
-文章观点仅代表作者个人，与Gnews平台无关
-
-文章来源：[https://bitcoinmagazine.com/markets/eu-parliament-backtracks-ban-on-bitcoin-proof-of-work](https://bitcoinmagazine.com/markets/eu-parliament-backtracks-ban-on-bitcoin-proof-of-work)
-
-翻译：洛杉矶盘古农场 – Raul
-
-校对：洛杉矶盘古农场 – Mike Li
-
-编辑：洛杉矶盘古农场 – 傻小子
-
-发布：洛杉矶盘古农场 – 子萍
+- [2022年3月15日 文贵大直播：](https://gettr.com/streaming/p1051m93814)
+- [【乌克兰救援】 03/16/22 美国之音记者：](https://gettr.com/post/p10bb49d5b7)
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+总编：zhong
+编辑：zhong
+校正/发稿：海阔天空1
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
