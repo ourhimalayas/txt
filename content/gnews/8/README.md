@@ -2,30 +2,44 @@
 ---
 
 
-## 大直播后记：杨洁篪外交失败
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2178838/)
+## 伟大的美国培养出中俄伊朝巴邪恶共同体,到清算的时候了
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2178888/)
 
-整理：美哥 铁血丹心
-编辑：李易通
+Youtube视频链接：[https://youtu.be/nR4Brpabtu8](https://youtu.be/nR4Brpabtu8)
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/7-44.png)图片来源：雅典娜设计组
+Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
+**郭文贵先生：**记住兄弟姐妹们，人类绝对是和平时间太长了，没有这么长过。由于美帝国主义在二战以后领导全世界，真是伟大的美国，让世界从来没有过，万年没有过——战争、自然灾害、死亡人数是平均率最低的。人类享受的和平时间，单和平时间最长，全球没有大规模战争。
 
-杨洁篪和美国就谈了两件事儿，这一点秘密都没有的，咱都非常清楚。就是美国想给共产党明确，我在你这儿有利益，你别绑架我的利益。在俄罗斯这件事上，如果你要继续金融上支持，还有你要真派军队或者军用物资提供给它的话，对俄罗斯的所有的制裁手段都对你管用，一样也不少，而且一定会对中国共产党所有海外资产全部查封。而且如果你要借机打台湾，美国没有选择一定参战，就这么简单，没有任何其他事。
+人类的科技和文明对大自然和整个人类的对外的探索是发展最快的，还诞生了信息互联网时代。美国太伟大，它不是完美，美国太伟大。伟大的美国培养出一个绝对邪恶的共同体——中、俄、伊、朝、还有巴基斯坦这几个邪恶的国家，但是人类到清算的时候。我相信人类会走上一个新的文明，在冠状病毒和疫苗灾难后。
 
-这就要命了，那杨洁篪是干什么？这个货是官僚烂得很、双面，他是要代表共产党喊两声：“你不要低估了我们的意志，台湾是我们内政的一部分，共产党早就做好了你们对我们制裁的准备。针对俄罗斯你们有朋友，我们不能有朋友吗？你支持乌克兰，支持欧洲，它们不是你的朋友吗？我们的朋友就是俄罗斯，我们两国之间的关系是合法的，遵循了联合国宪章没结盟，但是我们是战略全天候24小时兄弟伙伴关系。你们对俄罗斯的做法是你们多年霸道的结果，你们欧洲东扩（这是完全骗人的东扩），我们不允许你们把战火点到我们大门去，我们不可能坐视不管，我们跟俄罗斯之间有战略关系，很清楚的就是要支持。台湾是我的内政，随时打，你管不着。然后你要制裁我，我不怕，中国人不是你想怎么着就怎么着……”
+我可以告诉大家，刚才我们谈的战争加在一堆都没有疫苗灾难的后果严重，一定记住我的话。严格讲我们每个人现在都在乌克兰，你只要身边有打疫苗的，你就在乌克兰。我们去乌克兰救人的时候千万别忘了自己，我们有面对人类最大的挑战，就是疫苗灾难。
 
-就是跟当年的萨达姆一样，最后都死球了，外交部发言人还在那喊：“美帝国主义马上会在水深火热之中进入火海、美帝国主义完了、布什也完了，然后伊拉克的怒火会烧到纽约、华盛顿。”你记住，杨洁篪、王毅最后会像非洲大草原被撕碎的鳄鱼，杨洁篪和王毅最后就是这种下场，他们会被美帝国主义抓起来，不让你吊死，成天像萨达姆一样在里边要抽根雪茄，三年睡不着觉，每天都不让你睡超过2小时。杨洁篪和王毅及他们的家人一定是这结果。如果是法律允许、国际法允许，应该把杨洁篪和王毅的牙给它拔下来，放到一个永远不腐蚀的缸里边，我们要让全世界看看这叫钢牙，肛门的牙展示给人类。把杨洁篪、王毅这两个钢牙全都给它放在那儿，瓶子收藏起来。所以说你别听他瞎咋呼，没有一点用。
+编辑整理：Jacques；
 
-这回去意大利他实际上想干什么？他想跟美国人说我可以卖掉俄罗斯，但是你得给我个大交易，但是美国人脑子里没这根筋，沙利文压根儿就不跟你讲这个事。据我所知，这次中共的外交谈判非常失败，美方完全就是根本不在乎你，美方现在特别有信心，乌克兰这场战争最大赢家是美国，让美国这个国家会再强大100年～200年都可能。所有的一切利益、信用，把整个苏联打没了，把整个共产党打没了，然后美国成为唯一的的帝国。（七哥唱）这个世界需要我，这个世界是需要美国，欧洲更需要了，特别是共产党，更害怕这次美国赢了。
+字幕文件制作：小满；
 
-资料来源：[2022年3月15日 文贵大直播](https://gettr.com/streaming/p1051m93814)
+视频制作及上传：Cindy；
 
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,20 +2,19 @@
 ---
 
 
-## 秘翻在线：收容了数百人避难者的乌克兰马里乌波尔的剧院被空袭
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2178806/)
+## 乌克兰老人走路惨遭俄军轰炸！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2178849/)
 
-撰稿：待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/画像1-17.png)（图片源自本文链接）
-3月17日时事通信社消息：被俄罗斯军队围困的乌克兰南部港口城市马里乌波尔（Mariupol）当局16日宣布，俄罗斯军队轰炸了数百名平民避难的剧院。
+俄军入侵乌克兰未有停战跡象，甚至被乌方指控，连平民也不放过。最近有段影片拍到，一名手无寸铁的乌克兰老人走在路上，结果遭到停在不远处的俄军战车轰炸。
+视频来源：[NEXTA](https://twitter.com/nexta_tv)
+新闻来源：[联合新闻网](https://udn.com/news/story/122663/6170923?list_ch2_index)
 
-市政府在短信应用程序Telegram上的一篇帖子中说，数百人被疏散的剧院是被俄罗斯军队蓄意摧毁的。当局发布的照片显示，剧院的中央部分被完全摧毁，废墟中冒出浓烟。
+撰稿/发布：一叶知秋
 
-由美国空间技术公司Maxar Technologies提供的本月14日拍摄的卫星图像显示，剧院两侧的地面上有用俄语写的 “儿童 “字样。市政府目前正试图确认人员伤亡状况，但因该地区持续的炮击而受阻。
-
-同时，据乌克兰当局称，同一天在该国北部的切尔尼戈夫，俄罗斯军队袭击了排队领取面包的人群，有10人被杀。此外，一个住宅区遭到炮击，从废墟中发现的五具尸体中包括三名儿童。
-
-信息来源：[「数百人」避難の劇場に空爆 ウクライナ南部マリウポリ（ＡＦＰ＝時事） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/587b2fa7fb4f2d1710451dc1778b4faa37f54b94)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
