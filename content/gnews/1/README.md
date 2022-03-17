@@ -2,8 +2,8 @@
 ---
 
 
-## 俄乌战争改变人类格局 美国一国独大
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181525/)
+## 俄乌战争 乌克兰的智慧征服了全世界
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181710/)
 
 台灣寶島農場
 

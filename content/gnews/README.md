@@ -15,68 +15,68 @@
 
 ---
 
-### [俄乌战争改变人类格局 美国一国独大](/content/gnews/1/README.md)
+### [俄乌战争 乌克兰的智慧征服了全世界](/content/gnews/1/README.md)
  ` G-NEWS TAIWAN`
 
-### [继陈峰、谭向东后，海航集团又两名高管被捕](/content/gnews/2/README.md)
+### [我们是消灭中国共产党的中国人](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [3/15/2022 文贵直播：香港曾向世界展示中国人有能力拥有民主、法治和自由，但中共通过以下三件事：1）解放军要象征性进驻；2）拿下香港交易所；3）拿下香港立法委，彻底把香港变成死港](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
+
+### [美国参议院通过决议调查普京的战争罪](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [俄乌战争会如何落幕 普京的下场为何](/content/gnews/5/README.md)
+ ` G-NEWS TAIWAN`
+
+### [波兰记者报道新中国联邦救援团](/content/gnews/6/README.md)
+ ` NFSC News`
+
+### [俄乌战争停火有望](/content/gnews/7/README.md)
+ ` G-NEWS TAIWAN`
+
+### [中共国安秘密警察使用令人发指的手段阻止受害人参加竞选](/content/gnews/8/README.md)
+ ` 温哥华扬帆农场`
+
+### [有声|英国扩大对俄罗斯制裁](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [继陈峰、谭向东后，海航集团又两名高管被捕](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄乌战争中共将输掉一切 美国是最大赢家](/content/gnews/3/README.md)
- ` G-NEWS TAIWAN`
+### [【乌克兰救援】文燿战友陪小朋友画画，帮助他们暂时忘记伤痛](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵大直播 3/17 中共还会有二十大吗？](/content/gnews/4/README.md)
+### [文贵大直播 3/17 中共还会有二十大吗？](/content/gnews/12/README.md)
  ` 秘密翻译组-原创组`
 
-### [数字独裁即将到来——我们能阻止它吗？（2/5）](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [游戏开始：政府的强制性疫苗接种使自己承受压力](/content/gnews/6/README.md)
+### [游戏开始：政府的强制性疫苗接种使自己承受压力](/content/gnews/13/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [俄乌战争推高通胀，英格兰银行再升利率](/content/gnews/7/README.md)
- ` 澳喜特战旅Gnews`
+### [乌克兰战争人道危机根源来自中共](/content/gnews/14/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [日本首相将访印度，建立印太伙伴关系](/content/gnews/8/README.md)
- ` 澳喜特战旅Gnews`
+### [布伦伯格虚假采访企图抹黑国际人道救援](/content/gnews/15/README.md)
+ ` NFSC News`
 
-### [2022.3.17大直播 乌克兰救援行动让中共恐惧 为华人争光](/content/gnews/9/README.md)
+### [2022.3.17大直播 乌克兰救援行动让中共恐惧 为华人争光](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [澳大利亚新南威尔士州CCP病毒感染新增再破两万](/content/gnews/10/README.md)
+### [澳大利亚新南威尔士州CCP病毒感染新增再破两万](/content/gnews/17/README.md)
  ` 澳喜特战旅Gnews`
 
-### [乌克兰总统泽连斯基签署虚拟资产法案，使之成为法律，正式将加密货币合法化](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [有声|11岁男孩独自逃离乌克兰 于斯洛伐克与家人团聚](/content/gnews/12/README.md)
- ` MOSREC`
-
-### [有声|NFSC新闻、G|TV新闻访谈简报|2022年3月15日早](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [【乌克兰救援】波兰记者Rafał Miżejewski在推特上说“中国共产党不能代表中国 ”](/content/gnews/14/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共推广石油人民币企图逃脱制裁](/content/gnews/15/README.md)
+### [中共推广石油人民币企图逃脱制裁](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [有声|中共与俄罗斯合演“围魏救赵”](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [台立委呼吁调查接连断电问题 谨防中共渗透](/content/gnews/17/README.md)
+### [台立委呼吁调查接连断电问题 谨防中共渗透](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [中共持续扰台 入侵野心人尽皆知](/content/gnews/18/README.md)
+### [中共持续扰台 入侵野心人尽皆知](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [第三次世界大战人类将面临的四个战场](/content/gnews/19/README.md)
- ` NFSC News`
-
-### [美国及世界疫情简报（03-17-2022）](/content/gnews/20/README.md)
+### [美国及世界疫情简报（03-17-2022）](/content/gnews/21/README.md)
  ` 波士顿五月花农场`
-
-### [中共疫情失控 墻內和香港高官频染疫](/content/gnews/21/README.md)
- ` NFSC News`
 
 ### [3/15/2022 文贵直播：老毕因唱出“毛贼东”而被下岗，中国人会付出更惨烈的代价，习太阳会把中国整个民族烤焦](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`

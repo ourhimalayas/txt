@@ -2,31 +2,38 @@
 ---
 
 
-## 澳大利亚新南威尔士州CCP病毒感染新增再破两万
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2181418/)
+## 继陈峰、谭向东后，海航集团又两名高管被捕
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2181509/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3.17-D.jpg)网络图片
-本周三，澳大利亚新南威尔士州再度记录了 20,087 例 COVID-19 新增感染病例。而在前一天的周二，这一数字则直接突破30,000——随着 Omicron BA.2 子变体的传播，卫生专家敦促居民遵守各项公共卫生措施。
+##### 整理：li yan li
+编辑：围剿维尼熊
 
-同时该州又有五人因患CCP病毒而不幸离世，目前仍然有34人处于重症监护的状态。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-一周以前，新南威尔士州报告的病例数目还在10,000至20,000之间，健康专家当时就警告Omicron的BA.2 子变体可能导致感染在四到六周内翻倍。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_3004.jpg)图片来源：百度百科
 
-传染病专家罗伯特·布伊教授对这一子变体表示担忧：“它可能同样严重，2022 年截至目前的死亡人数比前两年的全年总额都多……我们必须保持警惕，同时我们必须机智应对。”
 
-布伊教授认为，虽然恢复封锁暂时没有必要，但人们应该考虑恢复在室内佩戴口罩，如果可能的话尽量在家工作，并避开人群。
+据大纪元2022年03月17日讯 在原董事长陈峰、首席执行官谭向东被执行强制措施后，海航集团又有两名高管被警方带走。
 
-昨天公布的维多利亚州废水测试结果显示，BA.2 子变体已经是该州一半以上采样的流域中最普遍的CCP病毒变异类型。BA.2子变体在 1 月份美国报告的病例中仅占不到 100 例，然而上周它在美国 CCP病毒病的占比约为 23%。
+多位接近海航集团的人士披露，3月14日上午，由海航航空板块重组的海航航空集团有限公司董事长包启发，被警方从海航大厦带走，当天即被执行强制措施。一起被带走的还有海航集团原监事长孙明宇。
 
-*发布：Gradient Boost*
+去年9月24日，海航集团原董事长陈峰、首席执行官谭向东被采取强制措施。截至目前，海航集团已有四名高管被警方执行强制措施。
 
-新闻参考链接：
+据第一财经报导指出，包启发和孙明宇被带走，或与陈峰案件有关。在王健去世、陈峰回归后，包启发一度进入海航集团董事局，孙明宇则是海航集团的监事会主席，同时任海南省慈航公益基金会理事会理事长兼秘书长。
 
-[NSW records 20,087 new infections amid warning over Omicron BA.2 sub-variant](https://www.9news.com.au/national/coronavirus-update-nsw-clocks--20087-new-infection-as-experts-warn-about-subvariant-ba2/d6938f52-6cb4-43cb-887c-565dc0428c3a)
+与此同时，海航航空集团也已发布内部文件，撤销包启发的安全管理委员会主任职务，由海航航空集团总裁王英明担任。
 
-[What we know about Omicron BA.2 sub-variant](https://www.9news.com.au/health/explainer-what-we-know-about-ba2-variant-stealth-version-of-omicron/f475a14d-edba-4fe4-b521-a7c1eb7ca0f7)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+参考链接：[海航航空集团董事长被带走 已有四名高管被捕](https://www.epochtimes.com/gb/22/3/16/n13651125.htm)
+
+*发布：Mttfly*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

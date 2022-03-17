@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 3:45 PM (UTC)`
+
+
+![img](https://media.gettr.com/group15/origin/2022/03/17/15/36b24681-009a-9b8d-1085-0442356dd003/ae87f6a22a61491d1f18bb7eaaf7209e.jpg)
+> `@miles 3/17/2022 3:43 PM (UTC)`<br/>💥 March 15, 2022    #Krakow，Poland <br/>📍 At 1 am, the rescue members from Canada joined the rescue team to greet rescue buses. Fellow fighters prepared the banner of NFSC & ROLF to welcome nearly 150 Ukrainian refugees in Kraków, Poland. <br/>#NFSCrescue #ROLFrescue #ukrainehelp <br/><br/>📍 We are the NEW CHINESE people who are taking down the EVIL Chinese Communist Party  #CCP≠Chinese<br/><br/>#法治基金 #新中国联邦 #乌克兰救援<br/>2022年3月15日   波兰— #克拉科夫 Kraków <br/>📍凌晨1点，来自加拿大的战友加入了迎接三辆救援大巴的队伍，战友们准备了新中国联邦和法治基金的横幅迎接近150位乌克兰难民。<br/> <br/>📍我们是消灭邪恶中国共产党的新中国人！
+![img](https://media.gettr.com/group5/origin/2022/03/17/15/fa322675-f538-dc58-2fe0-485f0a89a4d8/out.jpg)
+
+---
+
+`@miles 3/17/2022 3:43 PM (UTC)`
+
+💥 March 15, 2022    #Krakow，Poland <br/>📍 At 1 am, the rescue members from Canada joined the rescue team to greet rescue buses. Fellow fighters prepared the banner of NFSC & ROLF to welcome nearly 150 Ukrainian refugees in Kraków, Poland. <br/>#NFSCrescue #ROLFrescue #ukrainehelp <br/><br/>📍 We are the NEW CHINESE people who are taking down the EVIL Chinese Communist Party  #CCP≠Chinese<br/><br/>#法治基金 #新中国联邦 #乌克兰救援<br/>2022年3月15日   波兰— #克拉科夫 Kraków <br/>📍凌晨1点，来自加拿大的战友加入了迎接三辆救援大巴的队伍，战友们准备了新中国联邦和法治基金的横幅迎接近150位乌克兰难民。<br/> <br/>📍我们是消灭邪恶中国共产党的新中国人！
+![img](https://media.gettr.com/group5/origin/2022/03/17/15/fa322675-f538-dc58-2fe0-485f0a89a4d8/out.jpg)
+
+---
+
 `@miles 3/17/2022 3:37 PM (UTC)`
 
 📍On March 13th, the NFSC members, who are taking down the evil Chinese Communist Party, were in Poland. <br/>💙The NFSC front-line rescue team drove nearly 600 KM back and forth, transporting rescue supplies from Kraków to the Medyka rescue outpost;<br/>💙Fellow fighters helped lift dozens of kilograms of engines to get off the car to ensure the local power supply; <br/>💙The NFSC & ROLF rescue tents are filled with all kinds of supplies, sending intimate warmth to the stranded Ukrainian people who cross the border.<br/><br/>📍3月13日，消灭邪恶中国共产党的新中国联邦人在波兰克拉科夫<br/>💙新中国联邦前线救援战友当天来回驱车近600多公里，从克拉科夫运送救援物资到梅迪卡救援前哨站；<br/>💙战友们帮忙抬几十公斤的发动机下车，保证当地的电力供应；<br/>💙法治基金，新中国联邦的救援帐篷里放满了各类补给品，为跨越边境的乌克兰被困民众送去贴心的温暖<br/>#NFSCrescue #ROLFrescue #ukrainehelp <br/>#法治基金 #新中国联邦 #乌克兰救援 #前线快报
@@ -143,20 +159,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 【 #乌克兰大救援 】<br/>A week ago, Lidiia and Volodymyr arrived the hotel safely in Krakow, Poland from Lviv, Ukraine on a rescue bus arranged by the New Federal State of China and the Rule of Law Foundation.<br/><br/>On March 15, with the assistance of our frontline comrades, they completed the Covid-PCR test that is required for entry into the United States, and they departed from Krakow airport for the United States on March 16.<br/><br/>With the efforts of the #NFSC and the #ROLF and the entire rescue team, Lidiia and Volodymyr were able to get on the flight to New York on March 16, where they will start a new life with their daughter.<br/><br/>一周前, Lidiia 和 Volodymyr 夫妇乘坐我们的救援大巴从乌克兰利沃夫安全抵达波兰克拉科夫并入住酒店。<br/><br/>他们在前线战友的陪同下完成了入境美国需要的新冠PCR检测，3月16日从克拉科夫机场乘机飞往美国纽约与亲人团聚。<br/><br/>#法治基金 #新中国联邦 <br/>#Ukrainerescue <br/>
 ![img](https://media.gettr.com/group25/getter/2022/03/17/00/a5656e16-567c-219c-17cc-c26407ecc9da/out.jpg)
-
----
-
-`@miles 3/17/2022 2:28 AM (UTC)`
-
-
-![img](https://media.gettr.com/group31/origin/2022/03/17/02/3ad0cf32-fbb6-1c03-6313-609c184c52cd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/17/2022 1:31 AM (UTC)`
-
-【Ukraine Rescue】16/03/22  Italian war-zone pianist Davide Martello volunteers to play “The Terminator Snow” that Nicole once played for him.<br/><br/>【乌克兰救援】16/03/22 意大利战地钢琴家Davide Martello主动要求弹奏Nicole战友曾经给他播放的《灭共的雪》<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group50/getter/2022/03/17/01/eec17eaf-ff1e-8fb1-2b01-12fc2feeb985/out.jpg)
 
 ---
 
