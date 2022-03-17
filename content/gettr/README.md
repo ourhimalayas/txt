@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 11:39 PM (UTC)`
+
+2022.03.17《The Fringe》 Episode 149
+![img](https://media.gettr.com/group49/origin/2022/03/17/23/e8dd9d88-401c-c7d7-b86f-7bb92d417788/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/17/2022 11:01 PM (UTC)`
 
 2022.03.17 NFSC News   11-year-old boy fled Ukraine alone and reunited with family in Slovakia； Two Fox War Correspondents Killed in an Attack in Ukraine
@@ -150,13 +157,6 @@ Chinese Communist Party Again Deliberately Undermines NFSC Rescue<br/>中国共�
 
 2022年3月17日 文贵大直播：俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向
 ![img](https://media.gettr.com/group8/origin/2022/03/17/12/3fb84fc3-3092-347d-8828-f09c8b38bae8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/17/2022 10:59 AM (UTC)`
-
-【Ukraine Rescue】03/16/2022 Nicole: All of our more than 60 brothers and sisters on the front line are working systematically. Everyone is working very hard for the ROLF & NFSC's Rescue Operation in their respective positions to make a little contribution.<br/><br/>【乌克兰救援】03/16/2022 妮可：我们整个在前线的60多名的战友都在有条不紊的，在各自的岗位上，大家都在努力的为这次法治基金和新中国联邦组织的这场救援的活动在贡献自己一点点的力量<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group18/getter/2022/03/17/10/a964a2e6-4ebc-4889-fead-2edd448c0275/out.jpg)
 
 ---
 

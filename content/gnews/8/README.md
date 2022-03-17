@@ -2,220 +2,87 @@
 ---
 
 
-## 中共对台湾很可能是围而不打
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2182878/)
+## 盖特首席执行官杰森·米勒谈论盖特的新功能“为直播提供的实时翻译”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2182935/)
 
-我刚才已经说了
-Hace rato ya lo había dicho
+Jason Miller (Gettr CEO)
+杰森·米勒（盖特首席执行官）
 
-就是现在它用的可能是
-En estos momentos a lo mejor usarán
+So I think this is pretty exciting
+所以我认为这很令人兴奋
 
-取这个第一个方式
-Esta primera forma
+Scrolling through here, Mendel mouse come to us from Germany
+滚动到这里，孟德尔鼠标从德国来我们这里
 
-第二个方式是什么呢
-¿Cuál es la segunda forma?
+I got to use the Translate button here
+我必须在这里使用翻译按钮
 
-这个但愿大家
-Espero que todos
+Oh, this is the other thing, I got to tell you guys with regard to the live streams
+哦，这是另一件事，我要告诉你们关于直播的事情
 
-台湾同胞别信我的
-Mis compatriotas de Taiwán no crean en mí
+We went through a demonstration on this with the engineering team over the weekend
+我们在周末与工程师团队进行了演示
 
-我觉得第二个方式
-Yo siento que la segunda manera
+Very soon we’re gonna have a live translations for the live streams
+很快我们将为直播提供实时翻译
 
-可能是很恐怖的
-Tal vez sea horrible
+This technology is so cool
+这技术太酷了
 
-就是叫做 围而不打
-Y se llama rodear sin atacar
+The engineer that was on with us, he was showing us literally he’s talking
+和我们在一起的工程师，他向我们展示了他在说话
 
-它找各种理由一下把台海
-Buscan todo tipo de excusas para que el estrecho de Taiwán
+he could go through whatever he was speaking to us in English
+他可以通过他用英语对我们说的任何内容
 
-现在已经潜水艇全到了
-Ahorita ya todos los submarinos llegaron
+but then he would say I want to show the characters in Japanese
+但后来他会说我想用日语显示字符
 
-它就把你所有的
-Quieren que toda la isla
+I want to show in French, I want to show in Hindi went through
+我想用法语展示，我想用印地语展示
 
-台岛给你孤立化
-La isla de Taiwán sea aislada
+and literally in real time could change everything going on
+并且从字面上实时可以改变正在发生的一切
 
-说岛内有台独分子
-Diciendo que dentro de la isla hay miembros independistas de Taiwán
+So as we start running up to the April French elections
+因此，当我们开始准备四月的法国大选时
 
-或者岛内制造什么样的动乱
-O que se ha ocasionado algún tipo de agitación dentro de la isla
+as we start running up to the May Colombian elections
+当我们开始准备五月的哥伦比亚选举时
 
-它把岛给围了
-Entonces te rodea la isla
+as we look ahead to Brazil, going up to this October
+当我们展望今年十月的巴西的选举时
 
-饿不死你，也饿个半死
-No te deja morir de hambre, pero medio muerto de hambre te deja
+and then even the US which will be in November
+然后甚至是11月的美国的选举的时候
 
-然后让全世界这种
-Luego hace que en todo el mundo
+but obviously a lot of our friends from around the world want to know
+但显然我们有很多来自世界各地的朋友都想知道
 
-经济崩垮、台湾崩垮
-Se colapsa la economía, Taiwán se derrumba
+what the heck is going on with US elections
+美国大选到底会发生什么
 
-它就饿死你、饿趴下你
-Te hace morir de hambre, te caes del hambre
+and big Republican comeback and all those things
+和共和党的大卷土重来以及所有这些事情
 
-这是它第二招
-Este es su segundo truco
+then people will be able to see exactly what’s going on
+然后人们将能够准确地看到正在发生的事情
 
-你不打它就这样
-Si no lo ataca es así
+原视频链接[https://gettr.com/streaming/pzzwh67730](https://gettr.com/streaming/pzzwh67730)
 
-第三个 叫做迅速的占岛
-El tercero, se llama invadir rápidamente la isla
+Date:03/16/2022
+原视频标题:Gettr CEO Jason Miller talk about Gettr’s new feature “ live transla-tions for the live streams”
+盖特首席执行官杰森·米勒谈论盖特的新功能“为直播提供的实时翻译”
+原视频日期：2022/03/14
+原视频链接https://gettr.com/streaming/pzzwh67730
+任务编号：KE455（4017）
+视频时间段 : 10:13-11:16
 
-我现在看来
-A mi parecer
-
-围而不打的这种
-Rodear sin atacar
-
-围而不打的这种可能性更大一些
-Esta forma es la que tiene más probabilidad
-
-因为在乌克兰
-Porque en Ucrania
-
-实际上俄军受到了重挫重伤
-En realidad, las tropas rusas resultaron gravemente heridas
-
-而且共产党也有情报
-Además, el PCCh también tiene información
-
-它知道美国欧洲会慢动手
-Saben que Estados Unidos y Europa tendrán acciones lentas
-
-但不等于不动手
-Pero no significa que no tengan acciones
-
-特别是美国
-Especialmente EE. UU
-
-这个世界真需要美国
-Este mundo de verdad necesita a EE. UU
-
-这个时候兄弟姐妹们
-Estos momentos hermanos y hermanas
-
-共产党是很明白的
-El PCCh está claramente
-
-你万一要是说所谓的直攻台湾
-De que si llegas a atacar directamente a Taiwán
-
-攻下来你不就完蛋了
-Si no llegas a conquistarlo, estás jodido
-
-它围的话 它有退有进，不会输
-Si sólo lo rodean tienen retroceso o ingreso, no perderán
-
-大不了我做个交易
-O hago un trato
-
-然后呢
-luego
-
-今天飞，一会儿还会飞飞机
-Hoy vuelan, en un rato volarán otra vez
-
-就咱直播（的时候）
-En (el momento) que nosotros estamos de transmisión en vivo
-
-大概是今天这里的凌晨
-Es mas o menos en la madrugada de aquí
-
-一会儿台湾几个小时内
-En un rato dentro de unas horas Taiwán
-
-又有飞机飞过去
-Volverá a pasar los aviones
-
-你会看到昨天和今天
-Verás que entre ayer y hoy
-
-最起码安排2到3波
-Al menos organizaron 2 a 3 olas
-
-然后直接加密
-Y lo cifran de inmediatamente
-
-这种心理震慑这叫围而不打
-Este tipo de shock psicológico se llama rodear sin atacar
-
-飞机、潜水艇围岛
-Cazas, submarinos que rodean la isla
-
-破坏你的贸易、恐吓
-Sabotean tu comercio, te intimida
-
-但是战友们记住
-Pero compañeros luchadores, recuerden
-
-这次台湾的事
-El suceso de Taiwán de esta vez
-
-是到了了结的时候了
-Es momento de terminar
-
-绝对到了了结的时候
-Definitivamente es momento de terminar
-
-不可能
-Imposible
-
-这件事情就过去了
-Este asunto llega a pasar
-
-这绝对不会的
-Es definitivamente imposible
-
-我可以告诉你们
-Yo les puedo decir a ustedes
-
-要么直打
-O atacan directamente
-
-要么把你弄出个事儿
-O te meten en problemas
-
-你要么把共产党灭了
-O destruyes al Partido Comunista
-
-要么把你台湾灭了
-O destruyen a Taiwán
-
-没有任何其他可能性
-No hay ninguna otra posibilidad
-
-不要有任何侥幸心理
-No tenga psicología casual
-
-原视频网址：[https://gettr.com/post/pyrlxfe2fb](https://gettr.com/post/pyrlxfe2fb)
-
-日期：03/15/2022
-原视频标题：中共对台湾很可能是围而不打
-Es muy posible que el PCCh rodee a Taiwán sin atacar
-
-原视频日期：03/08/2022
-原视频网址：https://gettr.com/post/pyrlxfe2fb
-任务编号：KC475（3983）
-视频时间段：0:00-02:19
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
 字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
+审片：洛杉矶盘古农场-银龙
 发布：洛杉矶盘古农场 – 彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

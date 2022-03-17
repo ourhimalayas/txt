@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥请教救援现场战友的两个问题，世界扬名的新中国联邦咖啡
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2182918/)
+## 共产党与人斗理论的变态邪恶
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2182960/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

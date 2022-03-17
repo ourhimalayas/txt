@@ -2,8 +2,8 @@
 ---
 
 
-## 曾庆红回京，台湾准备开战
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2182931/)
+## 乌战争的结果大局已定
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2182971/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

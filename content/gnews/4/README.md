@@ -2,8 +2,8 @@
 ---
 
 
-## 世界已经改变，救援现场的不断改进
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2182927/)
+## 共产党和俄罗斯异曲同工之处
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2182965/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

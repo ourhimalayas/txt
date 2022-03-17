@@ -2,42 +2,20 @@
 ---
 
 
-## 美国国防部长称北约团结一致支持乌克兰
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2182915/)
+## 中国的环境被污染殆尽
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2182956/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image004-5.jpg)**美国国防部长奥斯汀**
-**路透布鲁塞尔3月16日 – 美国国防部长奥斯汀周三在抵达与北约国家对口官员的会议时说，北约盟国将继续向乌克兰提供防御性武器，并一致支持基辅。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-“我们仍然团结一致支持乌克兰。”他告诉记者。”我们谴责俄罗斯无端和无理的入侵…。我们支持他们(乌克兰人)自我防御的能力，并将继续支持他们，”他并表示北约捍卫所有盟国的承诺”坚若盘石”。
+*发布：陶子*
 
-俄罗斯称其在乌克兰的行动为”特别行动”。**
-
-
-
-[【援引连结】](https://cn.reuters.com/article/usa-defense-secretary-nato-ukraine-0316-idCNKCS2LD0ZV)
-
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
