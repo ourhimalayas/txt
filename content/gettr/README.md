@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 2:23 PM (UTC)`
+
+中国（中共国）政府已经跟美国政府承认他们（中共）是支持俄罗斯攻打乌克兰<br/><br/> https://gnews.org/zh-hans/2178748/
+
+---
+
 `@miles 3/17/2022 1:51 PM (UTC)`
 
 3/15/2022 Miles Guo: The Hang Seng Index is a bubble completely made up by the CCP. It is the enterprises under the CCP’s control that are manipulating the financial market in Hong Kong. The recent plunge of the China concepts stock is unprecedented in the history of humanity. The Hang Seng Index dropping below 20,000 means that the international financial scam launched by the CCP can no longer continue.<br/><br/>3/15/2022 文贵直播：恒生指数都是中共兑的水，中共控制的企业在操纵着香港金融市场；最近中概股的大跌在人类上前所未有；恒生跌破2万点说明中共在香港的国际金融骗局玩不下去了<br/>
@@ -148,13 +154,6 @@ The new Chinese volunteers working at the rescue center at Medyka are not from t
 
 3/16/2022 Miles Guo’s GETTR: There are so many people in the CCP who want to eliminate Xi Jinping. It’s said the virus is spreading like an AI specifically targeting the CCP, which claims to be closer to you than your parents. Bloomberg had a guilty conscience such that they contacted our fellow fighters Nicole and Wen Yao after my grand live broadcast yesterday, indicating our livestream had a huge impact.<br/><br/>3/16/2022 文贵盖特：共产党内部有太多人要干掉习近平，据说AI病毒去找比爹娘还亲的共产党了，彭博社在文贵大直播后做贼心虚地去找Nicole战友和文耀战友，说明咱直播的传播力很强啊 <br/>
 ![img](https://media.gettr.com/group14/getter/2022/03/17/00/4711d600-a735-1a60-0d54-00ac178b2324/out.jpg)
-
----
-
-`@miles 3/17/2022 12:10 AM (UTC)`
-
-3/15/2022 Miles Guo: The fall of Hong Kong's Hang Seng Index below 20,000 points means that it has lost its base of the GDP required by the Hong Kong dollar to be pegged to the US dollar. The collapse of Hong Kong's economy would lead to a chain reaction in Guangdong. The conflict will intensify between the retired and new CCP Politburo Standing Committee members who have many interests in Guangdong, and this will make the Ceausescu’s moment happen to the CCP sooner.<br/><br/>3/15/2022 文贵直播: 香港恒生指数跌破2万点意味着港币失去了和美元挂钩的GDP的基础；香港经济的崩溃会导致广东产生连锁反应。在广东拥有众多利益的新老常委之间的矛盾会愈演愈烈，加速了齐奥塞斯库效应的到来<br/>
-![img](https://media.gettr.com/group39/getter/2022/03/17/00/ebafb129-088a-c673-3494-1bcbb495a6f1/out.jpg)
 
 ---
 
