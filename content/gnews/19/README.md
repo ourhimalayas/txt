@@ -2,27 +2,38 @@
 ---
 
 
-## 【 G时新闻 】WTO成员国撤销俄罗斯”最惠国待遇
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2177930/)
+## 有声|美国前总统奥巴马确诊中共病毒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2177948/)
 
-播报：加拿大温哥华扬帆农场 – 文广
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据美国媒体3月13日消息，美国前总统奥巴马当天表示，他的中共病毒筛检结果呈阳性。不过症状相当轻微，仅感觉喉咙发痒。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11648750_031322-wls-obama-covid-5p-vo-vid.jpeg)图片来源: 网络
+当天下午，奥巴马在 Facebook 和 Twitter 上分享的一份声明中宣布了他的诊断结果，并在推文中说，他和夫人米歇尔都已经完全接种了中共病毒疫苗和加强针，目前米歇尔的中共病毒检验结果为阴性。
 
-视频制作：加拿大温哥华扬帆农场 – GraceIshan
+自去年美国向公众提供中共病毒疫苗以来，奥巴马一直在大声疾呼接种疫苗的重要性，但他在接种完三针疫苗后还是被确诊了。
 
-在俄罗斯持续对乌克兰进行军事侵略的情况下，越来越多的制裁将俄罗斯排除在全球经济贸易之外。15日，世贸组织的14个成员国和地区，宣布取消俄罗斯 “最惠国待遇 “的优惠贸易待遇。
 
-包括日本、美国、欧盟、澳大利亚和韩国在内的共14个世贸组织成员国和地区15日发表声明，强烈谴责俄罗斯不尊重国际组织，对乌克兰的侵略严重违反了国际法。一致通过取消俄罗斯“最惠国待遇”。
 
-最惠国待遇是世贸组织协议的基本原则之一。声明表示，撤销对俄罗斯的最惠国待遇，是保护世贸组织成员国安全利益的有力措施。
+文字版原文：[美国前总统奥巴马确诊中共病毒](https://gnews.org/zh-hans/2175606/)
 
-该声明是继七国集团（G7）本月11日宣布制裁后发表的，在贸易上越来越多地将俄罗斯排除在全球经济之外。这被认为是一个异常严厉的警告，因为这意味着作为稳定的自由贸易制度基石的规则正在被排除在某些国家之外。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-视频链接：[https://www.gettr.com/post/p10de2gccc0](https://www.gettr.com/post/p10de2gccc0)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-发稿：野草
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-————————————————————————————————————
-![](https://assets.gnews.org/wp-content/uploads/2022/03/加载内容.png)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

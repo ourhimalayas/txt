@@ -2,37 +2,34 @@
 ---
 
 
-## 有声|普京抓捕情报机构高管
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2177998/)
+## 布林肯批中共在俄乌问题上站在了历史错误的一边
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2178014/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月12日，国外媒体报道，俄联邦安全局(FSB)负责海外情报工作的长官——谢尔盖·贝塞达中将及其副手阿纳托利·博卢克，于11日被普京下令软禁在家。68岁的贝塞达之前任FSB五局局长，博卢克任行动情报部主任。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/methode_times_prod_web_bin_cdf6df92-a189-11ec-a33b-e5ebed659a52.jpeg)图片来源: 网络
-普京认为，战争进展不利，和俄方大量伤亡是由于情报有误。开战前他曾被告知，乌克兰仅会做象征性抵抗，人民普遍对现状不满，会配合侵略军推翻政府，乌军战力薄弱，遍布新纳粹成员，受到攻击后会很快投降。但当俄派出轻型部队迅速攻占关键设施后，却遭到猛烈反击和持续抵抗。乌克兰人更紧密地团结在了泽林斯基政府周围，仅首都就有10万人以上加入民兵组织，就连乌东部俄语区也存在民意反转。
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-54.jpg)
+美国国务卿布林肯（图片来自《德国之声》）
 
-攻势受阻后，俄被迫放弃速战速决计划，转为消耗战，攻城战，导致了大量平民伤亡和不断升级的制裁。
+美国国务卿布林肯批评中共在有关俄罗斯入侵乌克兰的问题上，“已经站在了历史错误的一边”。他同时还警告中共不要对俄提供援助。
 
+据《大纪元》3月16日报道，布林肯当日在接受NPR采访时表示，中共作为联合国安理会常任理事国，没有宣布强烈反对俄罗斯入侵乌克兰，这与其负责维护和平与安全的承诺背道而驰。
 
+俄乌战争爆发几周来，中共高层一直摆出所谓的“中立”姿态，声称中方“致力于劝和促谈”。但中共官媒却通过“引述”的方式，继续向世界各地散布来自俄方的虚假信息，竭力打造亲俄反美的舆论环境。
 
-文字版原文：[普京抓捕情报机构高管](https://gnews.org/zh-hans/2175499/)
+对此，布林肯在采访中指出，“这与中方一再重申的《联合国宪章》的神圣性，以及包括（尊重）国家主权在内的基本原则完全不符。”
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+西方国家不仅担心中共会帮助俄罗斯传递战争虚假信息，更担心中共助莫斯科逃避经济制裁，甚至可能对俄进行军事援助。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+布林肯在采访中提出了对中共的两点期望：一个是明确反对俄罗斯入侵；另一个是不要对俄罗斯提供援助。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+布林肯指出，中国（中共）在乌克兰问题上已经站在了历史错误的一边。如果中方真的以某种方式向俄罗斯提供物质支持，那将会更糟，只会让中国（中共）在亚欧非和世界其它地区名声扫地。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+新闻链接：
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[https://www.voachinese.com/a/6488530.html](https://www.voachinese.com/a/6488530.html)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[https://www.epochtimes.com/gb/22/3/16/n13651053.htm](https://www.epochtimes.com/gb/22/3/16/n13651053.htm)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
 
  
 

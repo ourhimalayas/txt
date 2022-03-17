@@ -2,39 +2,43 @@
 ---
 
 
-## 有声|泽连斯基再次敦促北约设立乌克兰禁飞区
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2177916/)
+## 樱花深度报道┃中共黑客对美国发动新一轮攻击（下）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2177940/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-国外媒体3月14日报道，乌克兰总统泽连斯基在午夜过后不久发布的视频讲话中，继续敦促北约将乌克兰领空设为禁航区，称“如果你不关闭我们的天空，俄罗斯导弹落在你的领土、北约领土、北约公民的家中只是时间问题”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-16-at-10.37.31-PM.png)图片来源: 网络
-泽连斯基发表讲话前，俄罗斯部队刚刚对乌克兰西部城市利沃夫的军事训练场发动空袭，造成35人丧生，超过130人受伤。利沃夫靠近波兰边境，而波兰正是北约会员国之一。
+编译：东京樱花团/Hopkins
 
-地区州长马科齐茨基称，俄罗斯对这个距离波兰边境不到25公里的大型军事基地发射超过30枚火箭。这是莫斯科2月24日入侵乌克兰以来，攻击地点最靠近波兰的一次。
+【摘要】近来美国多个州政府以及数百万美国人都遭到中共黑客攻击，中共黑客除了盗窃敏感信息，还传播关于俄乌纷争中的不实信息。现在是美国牛仔们发挥他们的精神、掏出他们更大的枪的时候了：只要中共不停止用黑客手段窃取美国信息、不停止进行政治宣传，美国应该一直对中共经济进行彻底的制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1848.png)（图片说明）2020年8月4日，一名黑客在中国广东东莞市使用他的电脑。(Nicolas Asfouri/AFP via Getty Images)
+很多人比较关注来自俄罗斯的黑客威胁，其实这新一轮来自APT41的攻击提醒了世界，中共黑客才是全世界长期、最大的威胁。
 
-美国国防部发言人柯比称，从这次空袭的目标来看，俄罗斯正在扩大他们攻击的范围。
+中共还花钱利用网络广告宣传政治斗争的假消息。最近中共在阿塞拜疆、香港、哈萨克斯坦、塔吉克斯坦、土库曼斯坦、乌兹别克斯坦等地区的脸书（Facebook）投放了21个广告，为俄罗斯镇压乌克兰造势，和传播反对北约的信息。
 
+中共帮助俄罗斯推动的另一个假消息是，称美国政府出资在乌克兰建立生物实验室。这种说法是为将来把生化武器的使用归咎到美国头上做好准备。
 
+3月9日，美国政府否认了这种说法。“美国政府在乌克兰没有任何生化实验室，完全符合《化学武器公约》和《生物武器公约》的规定。美国政府在其它地区也没有开发或拥有这些武器。正是俄罗斯在积极推动生化武器开发项目，这违反了《化学武器公约》和《生物武器公约》。”
 
-文字版原文：[泽连斯基再次敦促北约设立乌克兰禁飞区](https://gnews.org/zh-hans/2175731/)
+美国公众需要更高的透明度了解来自俄罗斯的威胁，更要警惕来自中共的威胁。美国政府不仅要驳斥俄罗斯散播的关于俄乌之争的政治宣传，也要揭露中共政府在其中所作的宣传。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+谷歌公司应该向大众公开美国究竟哪几个州遭到了APT41的攻击。这样公众才能推动这些州改善网络安全，或通过投票表达民意。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+中共政府在世界范围内持续进行的黑客活动和政治宣传，让世界民众清楚地看到，中共政府与其它反对民主的国家政府合谋实施他们的罪行。俄罗斯、伊朗和北朝鲜这几个国家都不断使用黑客和政治宣传作为反对自由世界秩序的工具。而中共政府与他们有关联，这表明，我们需要更警惕地保护美国和盟国的企业及地方政府。我们应该投入更多力量共同抵御这些黑客在世界互联网上的胡作非为。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+美国司法部2020年对APT41组织五个成员的起诉几乎是一纸空文，至今没有一个人认罪、没有一个在服刑。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+是美国牛仔发挥他们的精神、掏出他们更大的枪的时候了：只要中共不停止用黑客手段窃取美国信息、不停止进行政治宣传，美国应该一直对中共经济进行彻底的制裁。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+（全文完）
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+*作者简介：*
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*安德斯**‧**科尔（Anders Corr），2001年获颁耶鲁大学的政治学学士及硕士学位，2008年荣获哈佛大学的政府管理学博士学位。他是科尔分析公司（Corr Analytics Inc.）总裁，《政治风险杂志》（the Journal of Political Risk）发行人，研究领域广涉北美、欧洲和亚洲等地。他撰的最新著作是《权力的集中》（The Concentration of Power: Institutionalization, Hierarchy, and Hegemony，2021年出版）和《大国大战略》（Great Powers, Grand Strategies: the New Game in the South China Sea，2018年出版）。*
+
+信息来源：[*China Hacks America Again*](https://www.theepochtimes.com/china-hacks-america-again_4328650.html)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
+
 
  
 

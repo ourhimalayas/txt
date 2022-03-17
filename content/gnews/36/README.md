@@ -2,44 +2,49 @@
 ---
 
 
-## 预设立场的彭博社记者采访
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2177536/)
+## 联合国法庭命令俄罗斯停止入侵，中共又投反对票
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2177598/)
 
-【撰稿】纽约香草山健身部—Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-25.png)
-
-3月15日，前线记者妮可在波兰梅迪卡接受了彭博社记者Aggi Cantrill的采访。
-
-Aggi一共问了妮可4个问题
-
-1）介绍一下你们的组织，以及你们来美迪卡做什么？
-2）你们显然拥有一个政治目标——打倒中国共产党，你认为用人道主义工作完成政治目标有问题吗？
-3）这个组织的领导是郭文贵吗？
-4）中国并没有表现出支持俄罗斯的入侵乌克兰的行动呀，你们怎么看这个战争？
-
-从这几个问题看，这显然是一个预设立场的采访。这个记者是带着任务来的，她的问题是经过精心设计，完全是中共代言人的立场。
-
-首先，她试图通过混淆概念来抹黑我们的救援行动，从根本上否定我们的人道主义救援行动，并把我们定义为别有用心的政治团体。其次，她还试图帮中共洗地，为中共掩盖帮助俄罗斯侵略乌克兰的真相。
-
-我们前线记者妮可的回答，有力的回击了Aggi的挑衅。妮可说，消灭中国共产党不是政治目的，而是维护人权的需要，是出于人道主义的目的。因为，中国共产党不仅迫害中国人民，而且，还迫害香港，新疆，台湾和法轮功学员，并且，在国际上的所有独裁国家，背后都有中国共产党的支持。消灭中国共产党，不仅是为了帮助中国人民获得真正的民主和自由，也是对中国人民的人道主义救助。
-
-邪不胜正！彭博社记者跳梁小丑一般的表演，只能说明中共非常害怕我们的救援行动。只能证明我们新中国联邦的人道主义救援行动，获得越来越广泛的关注和认同，在国际上的影响力越来越大，更多国家的人开始认识和支持新中国联邦。新中国联邦的崛起已经势不可挡。
-
-【新闻链接】[https://mega.nz/file/1RhWCDBJ#okPwgEHMeg7y-Zhb7XD5uZCCDcQC\_lyBDj2xuQPm2zo https://discord.com/channels/@me/718495684394745917/953714404732588062](https://mega.nz/file/1RhWCDBJ#okPwgEHMeg7y-Zhb7XD5uZCCDcQC_lyBDj2xuQPm2zo%20https://discord.com/channels/@me/718495684394745917/953714404732588062)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-- 审核/编辑/发稿:qiutian（邱甜）
+素材：波士顿五月花 2020灭共必胜
 
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
+
+
+
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image1-11.jpg)图片来自互联网
+
+3.16日位于海牙的联合国国际法庭（ICJ）命令俄罗斯停止入侵乌克兰，称法庭没有看到任何证据支持克林姆林宫的战争理由，即乌克兰正在该国东部对讲俄语人实施种族灭绝。
+
+法院以13票对2票通过了一项临时命令，即“俄罗斯联邦应停止于2022年2月24日在乌克兰境内开始的军事行动”。只有俄罗斯和中国的法官对该命令投了反对票。
+
+这项判决戳穿了普京对乌克兰的指责，称乌克兰军队在自己境内对东部卢甘斯克和顿涅茨克的人民实行种族灭绝。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-69.jpg)图片来自互联网
+
+有意思的是来自中共国的大法官薛捍勤和俄罗斯大法官一起投了反对票，习近平领导下的中共似乎铁了心和普京的俄罗斯一起下地狱，在人类文明的道路上越走越远。
+
+另据一则来自喜马拉雅联盟的可靠情报，中共政府已经私下跟美国政府承认他们是支持俄罗斯攻打乌克兰的，这两则消息结合在一起，不言而喻，中共就是俄罗斯入侵乌克兰最大的帮凶，是中共给予了普京熊胆，否则普京也不敢悍然发动战争以一己之力对抗全世界。
+
+独裁政权在奔溃前总是要挣扎一下的，习近平的中共在崩溃前拉着同样独裁的俄罗斯普京一起下地狱，对人类文明说不定也是一件大的”贡献”
+
+原文链接：https://www.theguardian.com/world/2022/mar/16/un-international-court-of-justice-orders-russia-to-halt-invasion-of-ukraine
+
+——————————————————————————————————————–
+
+*编辑 /发布：2020灭共必胜*
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
