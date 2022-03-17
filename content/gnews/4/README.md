@@ -2,25 +2,25 @@
 ---
 
 
-## 俄军无差别攻击遭世界谴责
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2177524/)
+## 急缺物资援助！台湾为乌克兰尽一份力
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2177627/)
 
-采编：加拿大温哥华杨帆农场 – 文明
+俄罗斯武力攻击乌克兰至今，导致超过百万名乌克兰难民逃离家园进入波兰、斯洛伐克等邻近国家避难，生活物资匱乏，亟待世界各国伸援相助以度过难关。
 
-撰稿：加拿大温哥华杨帆农场 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-16.png)图片来源：yahoo
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_20220316-214822_Samsung-Internet2.jpg)图片来源：Foxnews
+「Taiwan Can Help」在疫情爆发后，台湾第一时间捐赠口罩为世界做出贡献，这次由外交部发起「募集民间爱心物资援助乌克兰难民」活动，希望再次唤起台湾民众的热血，即日起至3/18一起筹募所需民生用品帮助乌克兰难民度过难关。所需物资有20项，募集完成后将统一寄送至邻近乌克兰的欧洲国家，透过当地救济单位照料乌克兰难民。
 
+简评：乌克兰人民在俄罗斯的炮火中受难，不仅仅需要物资上的援助，更需要的是世界各国政治上的支持！物资援助，治标不治本，战火不停，再做的援助也无济于事，只能是无尽的消耗！世界各国想要援助乌克兰人民，请在正义与邪恶之间做一个强有力的表态！
 
-据【ITE新闻】3月14日报道，在美国记者[雷诺]于日前被俄军枪杀后，[福克斯]电视新闻记者霍尔当天在乌克兰基辅的俄军空袭中受伤。
+新闻来源：[yahoo](https://tw.news.yahoo.com/%E7%82%BA%E7%83%8F%E5%85%8B%E8%98%AD%E7%9B%A1%E4%B8%80%E4%BB%BD%E5%8A%9B%EF%BC%81%E6%80%A5%E7%BC%BA%E9%80%99-20-%E9%A1%9E%E7%89%A9%E8%B3%87-%E4%B8%80%E8%B5%B7%E6%8F%B4%E5%8A%A9%E7%83%8F%E5%85%8B%E8%98%AD%E9%9B%A3%E6%B0%91-051354655.html)
 
-报道称，俄乌战争以来，世界各国的志愿者和新闻媒体人员不断涌入乌克兰以帮助当地难民和报道战地新闻，但普京当局对平民百姓的无差别攻击，夺去了无数妇孺和无辜者的生命。
+撰稿/发布：一叶知秋
 
-对此，美国务院严厉谴责了俄军践踏国际法和对新闻媒体人士进行的屠杀，[记者保护委员会]也因此敦促俄罗斯立即停止针对记者和平民的暴力戕害。
-
-校对编辑：硫酸羟氯喹64
-
-新闻来源： [Benjamin Hall of Fox News Wounded in Ukraine (mediaite.com)](https://www.mediaite.com/news/breaking-fox-news-reporter-wounded-in-ukraine/)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

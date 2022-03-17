@@ -2,24 +2,27 @@
 ---
 
 
-## 韩国两大航空公司宣佈航线不再经由俄罗斯领空
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176863/)
+## 泽连斯基向遇害美国记者家属发送感人信
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176864/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：新西兰伊甸农场-玫瑰
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-韩国两大航空公司，大韩航空和韩亚航空15日宣布，停飞俄罗斯航线，同时，所有飞往欧美的航线也不再经由俄罗斯领空。
+外媒15日报道，美国记者布伦特·雷诺在乌克兰首都附近报道难民故事时遇难。 50岁的雷诺是一位著名的电影制片人，他经常前往世界上一些最黑暗和最危险的角落拍摄纪录片。3月13日，在俄罗斯军队于基辅附近向他的车辆开火后遇难身亡。据悉，他正在为一份关于难民的报告收集材料。
 
-虽然，俄罗斯政府并未禁止韩国航班在俄罗斯领空飞行，但出于安全考虑，两大航空公司还是决定绕飞。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-58.jpg)
-大韩航空在一份声明中表示，仁川至莫斯科以及符拉迪沃斯托克之间的航班，包括在莫斯科中途停留的航班全部暂停，同时，首尔往来伦敦等欧洲航线的航班将改道中国、哈萨克斯坦和土耳其等其他国家，而往来纽约等北美地区的航班则改道阿拉斯加和太平洋，预计单程将分别增加1～2小时左右的飞行时间。
+乌克兰总统泽连斯基3月15日在网上发表了一封写给雷诺家人的信，表达他的“衷心哀悼”。他称雷诺是一位“才华横溢、勇敢的记者”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-59.jpg)
+泽连斯基在信中说，“布伦特在记录数百万乌克兰人的人类悲剧、破坏和苦难时失去了生命。他带着所有的勇气和决心，前往最危险的战区，拍摄了侵略者对我们国家施加的前所未有的残酷和邪恶。”
 
-另外，有报道指，自俄罗斯入侵乌克兰，欧洲对俄罗斯关闭领空后，包括日本全美航空在内的各大航空公司都有计划改道欧亚航线。
+“乌克兰人民正在与俄罗斯政权作斗争，以保卫他们的家园和世界民主，他们与你们一起哀悼。”“我们感谢布伦特的专业精神和对同情、道德和正义价值观的承诺。”
 
-参考链接：[Korean Air to reroute flights that use Russian airspace](https://www.reuters.com/world/asia-pacific/korean-air-says-reroute-flights-that-used-russian-airspace-2022-03-15/)
+“愿布伦特的生命、服务和牺牲激励全世界几代人站出来为光明力量对抗黑暗力量而战。”
+
+参考链接：[The people of Ukraine are mourning with you’: Zelenskyy sends moving letter to family of slain US journalist](https://www.stuff.co.nz/world/europe/300541835/the-people-of-ukraine-are-mourning-with-you-zelenskyy-sends-moving-letter-to-family-of-slain-us-journalist)
 
 ![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-总编/编辑/审核：天滅中共
+总编：天滅中共
+编辑/审核:飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
