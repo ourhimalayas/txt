@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 9:58 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-17
+![img](https://media.gettr.com/group4/origin/2022/03/17/21/169404ec-fb6a-687b-a00d-381216c435b5/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/17/2022 9:57 PM (UTC)`
+
+3/17/2022 Miles Guo: Here is the key intelligence I received this morning. The US and Europe are very likely to unfreeze Putin's personal assets, guarantee his personal safety, and refrain from personal attacks on Putin in exchange for a truce. Putin has taken his girlfriend and sons back to Russia, and it is possible that Putin will withdraw his troops.<br/><br/>3/17/2022 文贵直播：文贵今早获得了重要情报，美欧或将通过解封普京个人资产、保证其安全以及不进行个人攻击来换取停战；普京已将其女朋友和儿子接回俄罗斯，普京有可能撤军<br/>
+![img](https://media.gettr.com/group44/getter/2022/03/17/21/42225730-78c7-48f2-1788-82af2f1b86d8/out.jpg)
+
+---
+
 `@miles 3/17/2022 7:53 PM (UTC)`
 
 This is a local pharmacy in Poland. NFSC volunteers come here often to purchase medical supplies. After the lady heard that we were the new Chinese who came to help the Ukrainian refugees, she donated a box of hand sanitizers. Kindness spreads without borders. Thanks for her kindness!<br/>这是波兰当地的一家药店，战友们经常来这里购买医疗物资，当这位女药剂师得知，我们 是救助乌克兰难⺠的新中国人，她赠送了我们一箱医用消毒洗手液，善心无国界，谢谢她的爱心!
@@ -143,20 +157,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 【Ukraine Rescue】03/16/2022 Polish journalist Rafał Miżejewski quoted Nicole’s words in his tweets: "The Chinese Communist Party does not represent China, and it’s dictatorship, that's why we are we are providing help for refugees and we stay side by side with Ukrainian people."<br/><br/>【乌克兰救援】03/16/2022  波兰记者Rafał Miżejewski在推特上引用妮可战友的话："中共当局不能代表中国，它是独裁政权，这就是我们帮助救援的原因，我们与乌克兰人站在一起"<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group40/getter/2022/03/17/10/e451fc37-9dfd-eb21-911c-c92f5c690785/out.jpg)
-
----
-
-`@miles 3/17/2022 5:32 AM (UTC)`
-
-3/16/2022 Miles Guo’s GETTR: The Hang Seng Index will wipe out not only the wealth accumulated in the past 100 years, but also the Mandatory Provident Fund in Hong Kong; the internal investigation of CCP predicted earthquake to occur in Hong Kong, yet none of the buildings in Hong Kong is earthquake proof; the CCP’s original plan was to unleash CCP virus in Taiwan, yet it is Hong Kong, Shenzhen and Jinlin where the virus has been rampant. The “Zero COVID” policy of the CCP will lead to disasters; the mission of the New Federal State of China is to bring freedom of faith, rule of law and individual security to all Chinese<br/><br/>3/16/2022 文贵盖特：恒生指数将抹去港人百年基业和强积金；香港房屋不防震，而中共内部文件却预测香港将发生地震；原本给台湾准备的病毒在香港、深圳、吉林肆虐，清零政策将带来灾难；新中国联邦将让老百姓在中国拥有信仰自由、法治、安全<br/>
-![img](https://media.gettr.com/group33/getter/2022/03/17/05/70696bc2-e7c8-a5d1-d45e-b6ee763783ed/out.jpg)
-
----
-
-`@miles 3/17/2022 5:31 AM (UTC)`
-
-3/15/2022 Miles Guo: Bi Fujian, a former CCTV host, was laid off by singing “Thief Mao (Zedong)”, the Chinese people may have to pay higher price where “Xi the Sun” will burn the whole China nation to the ground; Bloomberg who treats Wang Qishan as real daddy attempted to trap our fellow fighters on the front line by claiming our humanitarian rescue is playing politics, all these evil scumbags will be put behind bars!<br/><br/>3/15/2022 文贵直播：老毕因唱出“毛贼东”而被下岗，中国人会付出更惨烈的代价，习太阳会把中国整个民族烤焦；视王岐山如亲爹的布隆伯格给前线战友挖坑，诬陷新中国联邦人道救援是搞政治，它们不会逃脱人类大审判！<br/>
-![img](https://media.gettr.com/group35/getter/2022/03/17/05/c01a59e4-54f5-f6a2-de5c-8657ac2f143f/out.jpg)
 
 ---
 

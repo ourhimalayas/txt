@@ -2,37 +2,24 @@
 ---
 
 
-## DC每日热点0317
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2182449/)
+## Alnylam起诉辉瑞和莫德纳mRNA专利侵权
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2182496/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2022/03/93A37259-63FA-4422-A3FC-EBCFF44AAB2B-scaled.jpeg)
-道琼斯指数 34055.77 ▼0.02%
-纳斯达克指数 13427.38 ▼0.07%
-WTI纽约原油CFD 102.256 ▲7.56%
-布伦特原油CFD 106.034 ▲8.19%
-标普50指数 2,418.51▼56.57%
-美元兑人民币 1USD=6.348 RMB
-美元兑港币 1USD=7.817 HKD
-国际黄金 1947.20美元/盎司
-全球CCP病毒感染人数464,926,800例
+**撰稿：日本东京方舟农场 画画  **
 
-1、隐瞒与中国军工企业主管关系 华裔美国海军上尉被判刑
-2、蓬佩奥：若台湾成为中共国一部分那不是统一，而是摧毁一个主权独立国家的侵略行动
-3、帮中共国收集异见人士信息并策划攻击 五人遭美司法部起诉
-4、美政府官员发表声明纪念亚特兰大枪击案一周年，承诺打击反亚裔偏见和针对女性的暴力
-5、国际法院3月16日要求俄罗斯“立即暂停其在2月24日开始的军事行动”
-6、美联邦通信委员会吊销两家中资电信企业在美经营牌照
-7、泽连斯基对美国会演说 呼吁加大支持 拜登随后宣布新的8亿美元援乌方案
-8、因入侵乌克兰 俄罗斯已不再是欧洲委员会成员国
-9、独家随侵乌俄军采访 凤凰卫视记者被指是虚假信息扩音器
-10、法国准备介入国际法庭诉讼 支持乌克兰
-11、港府拟大缩咨询以加快规划发展 民团形容为敌视民意 有违世界潮流
-12、美联储宣布加息 鲍威尔预期美国通胀今年下半年会回落
-13、拜登授权向乌克兰提供尖端武器 美媒指包括无人机弹簧刀
-14、法国大选新民调 马克龙支持率30% 大幅领先勒庞梅朗雄 1/4选民或弃权
-15、英国首相访海湾 要求增加石油供应
-16、捷克总理菲亚拉周三呼吁西方加快向乌克兰提供更多武器装备
+Alnylam Pharmaceuticals, Inc. 周四(17 日) 表示，已在美国特拉华州地区法院分别对辉瑞和Moderna提起诉讼，要求赔偿此两家公司在制造和销售其信使RNA（mRNA）中共病毒疫苗时侵犯美国专利第11,246,933号（”933专利”），该专利涉及Alnylam公司的可生物降解阳离子脂质，是mRNA 中共病毒疫苗成功的基础。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-86.jpg)
+Alnylam 表示，它正在寻求两家公司就使用其脂质纳米粒子 (LNP) 技术提出赔偿。据悉，该技术重点是在体内携带和提供基于 RNA 的疗法，这是 mRNA COVID-19疫苗成功的基础。
+
+Alnylam宣称：不打算寻求禁令或采取阻碍疫苗生产、销售或分销的行动。这样官方声明以及诉讼诉求，释放了强烈的信号: 只要专利侵权的赔偿金。
+
+参考链接：1.[https://www.businesswire.com/news/home/20220317005522/en/Alnylam-Pharmaceuticals-Files-Patent-Infringement-Suits-against-Pfizer-and-Moderna](https://www.businesswire.com/news/home/20220317005522/en/Alnylam-Pharmaceuticals-Files-Patent-Infringement-Suits-against-Pfizer-and-Moderna)
+2.[https://www.sinotrade.com.tw/richclub/news/623330d17b27b6e9101d5662](https://www.sinotrade.com.tw/richclub/news/623330d17b27b6e9101d5662)
+3 . [https://finance.yahoo.com/news/alnylam-pharmaceuticals-files-patent-infringement-113000178.html?guccounter=1&guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce\_referrer\_sig=AQAAAJFGPg3U7qXlzz0k7Pjj5KuMhuGeeRw77FkSX8TR3WaFLwdaLTF7sOIBmiXfIoGSUEZeSAribu8ijSs38j9B4VtL7TPZQPhBU3l-hXOzL8rYxVZYuAuFL8LKPh5vLJa6oy42XxGd1hhwMl4MQVVikjDbSNnSa8gpjLmhzUoaDZ6k](https://finance.yahoo.com/news/alnylam-pharmaceuticals-files-patent-infringement-113000178.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAJFGPg3U7qXlzz0k7Pjj5KuMhuGeeRw77FkSX8TR3WaFLwdaLTF7sOIBmiXfIoGSUEZeSAribu8ijSs38j9B4VtL7TPZQPhBU3l-hXOzL8rYxVZYuAuFL8LKPh5vLJa6oy42XxGd1hhwMl4MQVVikjDbSNnSa8gpjLmhzUoaDZ6k)
+
+编辑：画画
+总编：青城道姑
+校对发布：小斐
 
  
 

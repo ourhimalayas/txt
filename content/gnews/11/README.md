@@ -2,23 +2,25 @@
 ---
 
 
-## Alnylam起诉辉瑞和莫德纳mRNA专利侵权
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2182496/)
+## 乌克兰总统签署虚拟资产法案 加密货币交易在乌合法化
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2182508/)
 
-**撰稿：日本东京方舟农场 画画  **
+**撰稿：日本东京方舟农场 海星**
 
-Alnylam Pharmaceuticals, Inc. 周四(17 日) 表示，已在美国特拉华州地区法院分别对辉瑞和Moderna提起诉讼，要求赔偿此两家公司在制造和销售其信使RNA（mRNA）中共病毒疫苗时侵犯美国专利第11,246,933号（”933专利”），该专利涉及Alnylam公司的可生物降解阳离子脂质，是mRNA 中共病毒疫苗成功的基础。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-86.jpg)
-Alnylam 表示，它正在寻求两家公司就使用其脂质纳米粒子 (LNP) 技术提出赔偿。据悉，该技术重点是在体内携带和提供基于 RNA 的疗法，这是 mRNA COVID-19疫苗成功的基础。
+3月17日，乌克兰总统泽伦斯基(Volodymyr Zelenskyy)签署了虚拟资产法案，该国加密货币交易正式合法化。
 
-Alnylam宣称：不打算寻求禁令或采取阻碍疫苗生产、销售或分销的行动。这样官方声明以及诉讼诉求，释放了强烈的信号: 只要专利侵权的赔偿金。
+据《CoinDesk》报导，泽伦斯基于17日签署了一项关于虚拟资产的法案，使原本在法律灰色地带运行的加密货币能正式在乌克兰境内合法流通。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-87.jpg)（图片来源：网络）
+报道称，乌克兰数字化转型部在周三的一份声明中表示，该法案确定了虚拟资产的法律地位、分类、所有权和监管机构，将由乌克兰国家证券和股票市场委员会监管。法案还为加密货币交易所设定了注册要求，只要符合要求的交易所就能够合法运营，银行也可以为其开设账户。此外，乌克兰财政部正在努力修订税法和民法，以全面启动虚拟资产市场。
 
-参考链接：1.[https://www.businesswire.com/news/home/20220317005522/en/Alnylam-Pharmaceuticals-Files-Patent-Infringement-Suits-against-Pfizer-and-Moderna](https://www.businesswire.com/news/home/20220317005522/en/Alnylam-Pharmaceuticals-Files-Patent-Infringement-Suits-against-Pfizer-and-Moderna)
-2.[https://www.sinotrade.com.tw/richclub/news/623330d17b27b6e9101d5662](https://www.sinotrade.com.tw/richclub/news/623330d17b27b6e9101d5662)
-3 . [https://finance.yahoo.com/news/alnylam-pharmaceuticals-files-patent-infringement-113000178.html?guccounter=1&guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce\_referrer\_sig=AQAAAJFGPg3U7qXlzz0k7Pjj5KuMhuGeeRw77FkSX8TR3WaFLwdaLTF7sOIBmiXfIoGSUEZeSAribu8ijSs38j9B4VtL7TPZQPhBU3l-hXOzL8rYxVZYuAuFL8LKPh5vLJa6oy42XxGd1hhwMl4MQVVikjDbSNnSa8gpjLmhzUoaDZ6k](https://finance.yahoo.com/news/alnylam-pharmaceuticals-files-patent-infringement-113000178.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAJFGPg3U7qXlzz0k7Pjj5KuMhuGeeRw77FkSX8TR3WaFLwdaLTF7sOIBmiXfIoGSUEZeSAribu8ijSs38j9B4VtL7TPZQPhBU3l-hXOzL8rYxVZYuAuFL8LKPh5vLJa6oy42XxGd1hhwMl4MQVVikjDbSNnSa8gpjLmhzUoaDZ6k)
+乌克兰副总理兼数字化转型部部长费多罗夫（Mykhailo Fedorov）在通过该法案修正案的国会上表示，乌克兰境内和境外的加密货币公司都将能合法运作，乌克兰人民也将可以便利、安全地与全球虚拟资产市场接轨。
 
-编辑：画画
-总编：青城道姑
+乌克兰遭俄罗斯入侵的过去三周里，该国政府已经通过加密货币交易收到了来自全球各国爱好和平人士的捐赠，价值至少1亿美元。这些加密货币捐款将用于购买国防装备以及救援当地难民。
+
+参考链接：
+1. [https://www.coindesk.com/policy/2022/03/16/ukraines-zelensky-signs-virtual-assets-bill-into-law-legalizing-crypto/](https://www.coindesk.com/policy/2022/03/16/ukraines-zelensky-signs-virtual-assets-bill-into-law-legalizing-crypto/)2. [https://www.cna.com.tw/news/aopl/202203170264.aspx](https://www.cna.com.tw/news/aopl/202203170264.aspx)
+
+总编：老孙
 校对发布：小斐
 
  

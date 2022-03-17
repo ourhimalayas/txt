@@ -15,74 +15,74 @@
 
 ---
 
-### [新中国联邦国际救援](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [【 G时新闻 】中俄法官对国际法院裁定俄应立即停止侵乌投反对票](/content/gnews/2/README.md)
- ` G-时新闻`
-
-### [援乌营地消息：波兰最美药剂师](/content/gnews/3/README.md)
+### [全球疫情疫苗数据更新（新的一波疫情已经开始）](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年3月上旬发生的国际重要事件](/content/gnews/4/README.md)
+### [中南海的老杂毛都在想着弄死习近平](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [新中国联邦国际救援](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【 G时新闻 】中俄法官对国际法院裁定俄应立即停止侵乌投反对票](/content/gnews/4/README.md)
+ ` G-时新闻`
+
+### [援乌营地消息：波兰最美药剂师](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2022年3月上旬发生的国际重要事件](/content/gnews/6/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [3/17/2022 文贵直播：文贵今早获得了重要情报，美欧或将通过解封普京个人资产、保证其安全以及不进行个人攻击来换取停战；普京已将其女朋友和儿子接回俄罗斯，普京有可能撤军](/content/gnews/5/README.md)
+### [3/17/2022 文贵直播：文贵今早获得了重要情报，美欧或将通过解封普京个人资产、保证其安全以及不进行个人攻击来换取停战；普京已将其女朋友和儿子接回俄罗斯，普京有可能撤军](/content/gnews/7/README.md)
  ` 秘密翻译组-北美组`
 
-### [基辅遭受了三起单独的袭击](/content/gnews/6/README.md)
+### [基辅遭受了三起单独的袭击](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美追加对乌军事援助称“普京永远无法获胜”](/content/gnews/7/README.md)
+### [美追加对乌军事援助称“普京永远无法获胜”](/content/gnews/9/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [铁锁梦](/content/gnews/8/README.md)
+### [铁锁梦](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [乌克兰总统签署虚拟资产法案 加密货币交易在乌合法化](/content/gnews/9/README.md)
+### [乌克兰总统签署虚拟资产法案 加密货币交易在乌合法化](/content/gnews/11/README.md)
  ` 日本東京方舟農場`
 
-### [乌克兰：泽连斯基总统为该国签署了一项对加密货币友好的法律](/content/gnews/10/README.md)
+### [乌克兰：泽连斯基总统为该国签署了一项对加密货币友好的法律](/content/gnews/12/README.md)
  ` 纽约香草山MOS02`
 
-### [Alnylam起诉辉瑞和莫德纳mRNA专利侵权](/content/gnews/11/README.md)
+### [Alnylam起诉辉瑞和莫德纳mRNA专利侵权](/content/gnews/13/README.md)
  ` 日本東京方舟農場`
 
-### [印尼排华共产党的不作为与今天几近相似](/content/gnews/12/README.md)
+### [印尼排华共产党的不作为与今天几近相似](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC每日热点0317](/content/gnews/13/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [五月花简报（03/17/2022）](/content/gnews/14/README.md)
+### [五月花简报（03/17/2022）](/content/gnews/15/README.md)
  ` mayflowertranslate`
 
-### [七哥采访妮可](/content/gnews/15/README.md)
+### [七哥采访妮可](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [邻国正在为反战的俄罗斯人形成的移民潮做准备](/content/gnews/16/README.md)
+### [邻国正在为反战的俄罗斯人形成的移民潮做准备](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年3月17日早](/content/gnews/17/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年3月17日早](/content/gnews/18/README.md)
  ` 纽约香草山MOS01`
 
-### [论中国共产党极权统治下人们的平庸之恶](/content/gnews/18/README.md)
+### [论中国共产党极权统治下人们的平庸之恶](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [华为证实加保守党领候选人为孟晚舟案提供协助](/content/gnews/19/README.md)
+### [华为证实加保守党领候选人为孟晚舟案提供协助](/content/gnews/20/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [纽约卫生部门帮前州长低报养老院死亡人数](/content/gnews/20/README.md)
+### [纽约卫生部门帮前州长低报养老院死亡人数](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [《避风港HAVEN》直播内容精选（第二十集 ·下）](/content/gnews/21/README.md)
+### [《避风港HAVEN》直播内容精选（第二十集 ·下）](/content/gnews/22/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [拜登周五将与习近平通话](/content/gnews/22/README.md)
+### [拜登周五将与习近平通话](/content/gnews/23/README.md)
  ` Shuizhuyu`
-
-### [数字独裁即将到来——我们能阻止它吗？（4/5）](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [有声|灭共者之郭氏情报站（39）2022/03/15 文贵大直播](/content/gnews/24/README.md)
  ` MOSREC`
@@ -108,47 +108,47 @@
 ### [新西兰财经G乐部2022年3月17日:财经新闻整理](/content/gnews/31/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [【秘翻时评】俄罗斯官媒出现离职潮](/content/gnews/32/README.md)
+### [俄乌战争预示着中共的灭亡](/content/gnews/32/README.md)
+ ` NFSC News`
+
+### [【秘翻时评】俄罗斯官媒出现离职潮](/content/gnews/33/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [樱花时政┃美司法部起诉五名中共特工](/content/gnews/33/README.md)
+### [樱花时政┃美司法部起诉五名中共特工](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [杰克·沙利文在罗马与杨洁篪会面，向中共国施压不要帮助俄罗斯](/content/gnews/34/README.md)
+### [杰克·沙利文在罗马与杨洁篪会面，向中共国施压不要帮助俄罗斯](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [联合国儿童基金会称乌克兰儿童以每分钟55人的速度成为难民](/content/gnews/35/README.md)
+### [联合国儿童基金会称乌克兰儿童以每分钟55人的速度成为难民](/content/gnews/36/README.md)
  ` topnews`
 
-### [拜登宣布向乌克兰提供8亿美元的额外援助](/content/gnews/36/README.md)
+### [拜登宣布向乌克兰提供8亿美元的额外援助](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [德国对俄罗斯的卡巴斯基反病毒软件发出警告](/content/gnews/37/README.md)
+### [德国对俄罗斯的卡巴斯基反病毒软件发出警告](/content/gnews/38/README.md)
  ` topnews`
 
-### [山姆·法迪斯：中共对台湾不采取行动是不可能的](/content/gnews/38/README.md)
+### [山姆·法迪斯：中共对台湾不采取行动是不可能的](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [沃尔玛计划在美国招聘5万多名员工以应对劳动力短缺](/content/gnews/39/README.md)
+### [沃尔玛计划在美国招聘5万多名员工以应对劳动力短缺](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乌总统签署虚拟资产法案 加密货币在乌克兰正式合法化](/content/gnews/40/README.md)
+### [乌总统签署虚拟资产法案 加密货币在乌克兰正式合法化](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [警告：mRNA刺突蛋造成下一代“卵巢衰竭”不孕症](/content/gnews/41/README.md)
+### [警告：mRNA刺突蛋造成下一代“卵巢衰竭”不孕症](/content/gnews/42/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国止赎房数量达两年来最高水平](/content/gnews/42/README.md)
+### [美国止赎房数量达两年来最高水平](/content/gnews/43/README.md)
  ` 墨尔本雅典娜农场`
 
-### [北约的红线在哪里？](/content/gnews/43/README.md)
+### [北约的红线在哪里？](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃监守自盗的中共国银行](/content/gnews/44/README.md)
+### [中日财经爆┃监守自盗的中共国银行](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [欧盟通过具有里程碑意义的数字货币监管新草案](/content/gnews/45/README.md)
- ` 银河歌舞厅`
 
 ### [政界内讧转移民愤至特首](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
