@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 7:16 PM (UTC)`
+
+
+![img](https://media.gettr.com/group45/origin/2022/03/17/19/deef0939-08b2-0a3a-e820-612048cb78d1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/17/2022 6:14 PM (UTC)`
 
 ❤️❤️The ROLF & NFSC will do everything they can to help Ukraine refugees leave the battlefield, and bring warmth and comfort to the rescued people who were injured in the war.<br/><br/>⚠️⚠️When the Chinese Communist Party supported Putin of Russia in launching this unjust war, the New Federal State of China unconditionally rescued Chinese compatriots and Ukrainian women and children.<br/><br/>💥💥We the NEW CHINESE people, are taking down the evil Chinese Communist Party. The CCP is the root cause of global disasters. Taking down the CCP is the only way to save humanity!<br/><br/>❤️❤️法治基金和新中国联邦会竭尽所能帮助难民离开乌克兰战区，给战争中受到伤害的被救援民众带去温暖和抚慰。<br/><br/>⚠️⚠️在中共用老百姓的民脂民膏无条件地支持俄罗斯普京发动这场不义之战的时候，新中国联邦在无条件地救助华人同胞以及乌克兰的妇女和儿童。<br/><br/>💥💥我们是消灭邪恶中共的新中国人！中共是全世界灾难的根源，只有消灭中共才能拯救全人类！
@@ -150,13 +157,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 3/15/2022 Miles Guo: The CCP embassy and consulates have been evacuated from Ukraine, but they are remotely manipulating the fake rescue operation. The New Federal State of China has entered Ukraine to rescue the fellow Chinese people, using truth and strength to defeat the CCP's fraud. Brother David tells the story of cleverly handling the infiltration of a Russian spy to a chartered bus of our rescue operation.<br/><br/>3/15/2022 文贵直播：中共使领馆已撤离乌克兰，却远程操控搞虚假救援；新中国联邦进入乌克兰救援中国同胞，用真和实力干掉中共的假；大卫讲述巧妙处理俄罗斯间谍渗透救援巴士的故事<br/>
 ![img](https://media.gettr.com/group11/getter/2022/03/17/05/30d1d7b2-06b4-ede2-7639-c4b605daa0a2/out.jpg)
-
----
-
-`@miles 3/17/2022 5:23 AM (UTC)`
-
-3/15/2022 Miles Guo: The COVID virus outbreak and economic crisis happening in Hong Kong will lead to a series of problems in China：the real estate market will start to collapse most likely from the north all the way to the south, and the pandemic is getting further out of control; the CCP’s last hope is to attack Taiwan, which opens the third door to taking down the CCP<br/><br/>3/15/2022 文贵直播：香港病毒和经济危机会进而导致中共国自北向南一系列的房地产崩盘和进一步病毒失控，中共最后的疯狂必将是打台湾，届时灭共第三道大门就会打开<br/>
-![img](https://media.gettr.com/group20/getter/2022/03/17/05/bf04fced-8680-87f2-6d01-0cc92d5053a5/out.jpg)
 
 ---
 
