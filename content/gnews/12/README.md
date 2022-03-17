@@ -2,25 +2,25 @@
 ---
 
 
-## 乌国遭掳市长获释！乌克兰总统：他从未放弃！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2177735/)
+## 俄罗斯大规模债务违约潮即将到来
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2177879/)
 
-乌克兰东南部梅利托波尔市（Melitopol）市长费德罗夫（Ivan Fedorov）11日遭俄军掳走，一度传出他遭受酷刑，不过今天传出好消息，乌克兰以交换战俘的方式，成功让费德罗夫重获自由。
+采编/撰稿：加拿大温哥华杨帆农场 – 文明(添草灭共)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpxAoWQi.jpg)图片来源：乌克兰大使馆网站
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_20220316-231322_Photos.jpg)图片来源：AFP VIA GETTY IMAGES
 
-乌克兰总统泽伦斯基慷慨激昂地说：「我们终于设法让梅利托波尔市市长获释，我们的梅利托波尔市不会向占领者屈服」，他还补充：「费德罗夫自由了，我已经与他有过联络，俄国军队在11日绑架他，并说服他合作，但费德罗夫没有低头，他从未放弃，我们也从未放弃，因为我们是乌克兰人」。
 
-简评：千军易得，一将难求！费德罗夫没有低头，从未放弃，费德罗夫不仅仅忠诚于乌克兰，更是忠诚于正义不向邪恶低头！乌克兰人的骄傲！
+据加拿大《金融邮报》3月15日报道，自俄军上月入侵乌克兰以来，俄罗斯经济迅速下滑、金融开始崩溃。目前，该国偿还所欠外债的信用能力已被国际金融评估机构降至最低。
 
-新闻来源：[LTN](https://news.ltn.com.tw/news/world/breakingnews/3862267)
+报道称，尽管普京当局表示将如约偿还所有债务，但由于欧美的金融和经济制裁而无法再使用美元支付。可以因此预见，俄国政府及其所属公司，例如俄天然气工业股份公司、卢克石油公司和俄罗斯储蓄银行等所欠的1500亿美元债务将无法如数偿还。
 
-撰稿/发布：一叶知秋
+目前，俄罗斯的债务危机将给多家国际货币投资管理机构，包括[贝莱德公司]和[太平洋投资管理公司]等带来无可挽回的损失，所造成的致命影响将波及其养老基金、教育基金等投资组合。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+原文链接：[https://financialpost.com/news/economy/russia-is-spirall](https://financialpost.com/news/economy/russia-is-spiralling-toward-a-150-billion-default-nightmare?_gl=1*17dwnvf*_ga*OTk5NjI5MDkuMTYzNjgxMTY1Mg..*_ga_72QH41ZTMR*MTY0NzM2MTk1OC4yLjAuMTY0NzM2MTk1OC4w&amp;_ga=2.204022288.1821036928.1647361957-99962909.1636811652)
 
  
 

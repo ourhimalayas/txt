@@ -2,33 +2,34 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月15日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2177767/)
+## 大直播后记：北京发生财政亏空，韩正回沪安顿后事
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2177908/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+整理：Anita、请你喝可乐
+编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-12-1187x1536-1.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/17-7.png)图片来源：雅典娜设计组
 
 
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年3月15日晚](https://gnews.org/zh-hans/2171315/)
+这几天各国的政要都在联系我，包括昨天韩正办公室的人，知道我这里有点信息（来套近乎）。他说，好久不见你了，你折腾动静那么大我都没法联系。你老娘过世的时候，我也想到你家去看看，但是碍于身份特殊，抱歉未能成行。现在我给大家爆个料，头两天我一个最好的朋友在上海见了韩正。这件事情意味着什么？
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+在病毒疫情期间，北京（中共）是不允许高官出城，连出宫都不行。谁都得在坑里待着，韩正呆在西山。我告诉你一个信息，韩正为啥是去一趟上海？我其实可以告诉你，连习近平都不知道他去上海。今天给你们先爆个猛料，我直播完习近平去核实韩正有没有回上海，我报的料是真是假？习近平不知道的我知道。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+你说韩正为啥去上海？是去见了我哥们吗？这么秘密地回去，还是几个人乔装打扮坐火车回去了，这都是（在党内）不允许的。因为现在习近平就像普京一样，所有人见他得弄个大桌子，提前两到三个星期隔离。但是韩正在这种情况下突破中南坑的限制，冒着巨大风险，甚至感染病毒风险回上海去了，说是他老娘病了（就看老娘去了）。实际上是干什么？（有）政治计划，见了我一个上海的哥们应该是我们绝对战友，现在已经出来了。就这几天啊，这个战友说的话：“从韩正的恐惧整个人的状态来看，共产党是完了。我问他几句关键话，他直摇头。”
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+韩正跟他是几十年的朋友，原来不是这样的。韩正说：“这啥也别问，啥也别说啊。咱俩认识一场，赶快跑！”
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+这位战友是马上就跑出来了，他肯定是有钱有势啊，不用咱帮忙，人家啪的一下就出来了。出来安置妥当后他才发现，原来他出来后的第二天、第三天，好几个人都被抓。这个时候，咱的战友说什么，他说文贵，你知道我问了韩正那么多敏感的事情，问到一个事儿，就是龙头的哥们你们怎么看？谁知韩正紧张的一下子从椅子上蹿起，当时就说：“你千万不能跟那个人联系”。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+哇塞，自从咱们的龙头变成龟头以后，我发现力量更强大、阳气上升。这个哥们给我讲了个很的关键话，他说，自中共建国以来（共产党你们听着，只有郭文贵知道你的核心秘密），北京市第一次向中央报告财政亏损发不出工资，请中央给钱；第二，沿海的几个好的城市都发不出工资，不但如此，福建要打台湾的几个所谓的战备区，都给中央写秘密报告，说我们这边出现了极不稳定因素，一旦打台湾，可能当地就乱。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+资料来源：[2022年3月15日 文贵大直播](https://gettr.com/streaming/p1051m93814)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

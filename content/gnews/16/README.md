@@ -2,44 +2,42 @@
 ---
 
 
-## 预设立场的彭博社记者采访
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2177536/)
+## 有声|中共经济危机重重
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2177820/)
 
-【撰稿】纽约香草山健身部—Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-25.png)
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间3月15日，据相关媒体消息显示，香港恒生指数当天依旧延续前一天的颓势，再次大跌超过5%，直接跌穿两万点的支撑位，且盘后仍继续下行。 对此，郭文贵先生也在盖特平台上发布消息称，一位香港的朋友发信感谢郭先生早前的提醒，从而让他能在港股崩溃前撤出资金。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-28.jpg)
+同一日，各类经济负面消息充斥着整个中共国内的新闻版面。首先，墙内上证指数大跌2.6%，深成指和创业板跌幅也双双超过3%。其次，腾讯和阿里均被爆出将减少三成员工。同时，有消息人士透露，腾讯还因微信支付违反了中共的《反洗钱法》，即将面临创纪录的巨额罚单。
 
-3月15日，前线记者妮可在波兰梅迪卡接受了彭博社记者Aggi Cantrill的采访。
+另一方面，中共恒大集团宣布，其将退出广州南沙阳光半岛项目，并将该项目划归给某中共央企接盘。有评论人士称，恒大早已无力摆脱自身的债务困境，中共的房地产企业危机将进一步恶化。
 
-Aggi一共问了妮可4个问题
+最后，中共福建省银保监局当天突然发表声明扬言，中共国内的银行理财产品并非零风险，为此，当局要求消费者提高对所有理财产品的风险意识。
 
-1）介绍一下你们的组织，以及你们来美迪卡做什么？
-2）你们显然拥有一个政治目标——打倒中国共产党，你认为用人道主义工作完成政治目标有问题吗？
-3）这个组织的领导是郭文贵吗？
-4）中国并没有表现出支持俄罗斯的入侵乌克兰的行动呀，你们怎么看这个战争？
-
-从这几个问题看，这显然是一个预设立场的采访。这个记者是带着任务来的，她的问题是经过精心设计，完全是中共代言人的立场。
-
-首先，她试图通过混淆概念来抹黑我们的救援行动，从根本上否定我们的人道主义救援行动，并把我们定义为别有用心的政治团体。其次，她还试图帮中共洗地，为中共掩盖帮助俄罗斯侵略乌克兰的真相。
-
-我们前线记者妮可的回答，有力的回击了Aggi的挑衅。妮可说，消灭中国共产党不是政治目的，而是维护人权的需要，是出于人道主义的目的。因为，中国共产党不仅迫害中国人民，而且，还迫害香港，新疆，台湾和法轮功学员，并且，在国际上的所有独裁国家，背后都有中国共产党的支持。消灭中国共产党，不仅是为了帮助中国人民获得真正的民主和自由，也是对中国人民的人道主义救助。
-
-邪不胜正！彭博社记者跳梁小丑一般的表演，只能说明中共非常害怕我们的救援行动。只能证明我们新中国联邦的人道主义救援行动，获得越来越广泛的关注和认同，在国际上的影响力越来越大，更多国家的人开始认识和支持新中国联邦。新中国联邦的崛起已经势不可挡。
-
-【新闻链接】[https://mega.nz/file/1RhWCDBJ#okPwgEHMeg7y-Zhb7XD5uZCCDcQC\_lyBDj2xuQPm2zo https://discord.com/channels/@me/718495684394745917/953714404732588062](https://mega.nz/file/1RhWCDBJ#okPwgEHMeg7y-Zhb7XD5uZCCDcQC_lyBDj2xuQPm2zo%20https://discord.com/channels/@me/718495684394745917/953714404732588062)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-- 审核/编辑/发稿:qiutian（邱甜）
+郭先生早先在直播中强调，一旦港股跌破两万点大关，中共的经济必然会出现严重的问题。而今，中共国内的经济现状正在逐渐显露出其破败的真面目。
 
 
+
+文字版原文：[中共经济危机重重](https://gnews.org/zh-hans/2175084/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

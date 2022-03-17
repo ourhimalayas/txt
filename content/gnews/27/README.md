@@ -2,50 +2,32 @@
 ---
 
 
-## 随着感染率的放缓，日本将全面取消COVID-19的限制
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2177193/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月16晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2177664/)
 
-编译：七叶之芒
+作者：香草山翻译部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1829-edited.png)东京（美联社）–日本首相岸田文雄周三宣布计划在3月21日全面取消冠状病毒限制，因为由高传染性的omicron变体引发的新感染有所减缓。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-6.jpg)
 
-岸田在周三的新闻发布会上说，目前在包括东京地区在内的18个县实施的COVID-19限制措施将按计划于周一结束，因为他的政府寻求谨慎地扩大消费活动，以帮助受到严重伤害的经济回到正轨。
 
-岸田说：“这将是一个过渡时期，以便我们能够通过采取最大限度的预防措施，尽可能地恢复正常的日常生活。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1-4.png)
+校对：Stay文苑
 
-这将是日本自1月初以来首次不受病毒限制。该计划将在一个专家小组于周四批准后正式通过。
+编辑：Stay文苑
 
-日本的每日病例数在2月初飙升至超过10万的新高后，在最近几周稳步下降。新病例已经减少了大约一半。
+发稿：Stay文苑
 
-岸田说，取消限制将允许更多的国内旅行，以及为有疫苗接种记录和病毒检测呈阴性的人举办聚会和大型活动。
+新闻：[https://gettr.com/post/p10e5e43259](https://gettr.com/post/p10e5e43259)
+访谈：[https://gettr.com/post/p10e63c4c1c](https://gettr.com/post/p10e63c4c1c)
 
-但日本还没有向外国游客开放边境。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-2.png)
 
-岸田周三没有提到进一步放宽日本的边境管制。他的政府已经放宽了边境限制，将每日新抵达者的限制增加到7000人，以便允许外国学者、学生、商人和实习生进入，此前日本国内外都批评将他们关在外面是排外主义和不科学的。
-
-虽然omicron在大多数人身上引起轻微的症状，而且死亡率仍然很低，但最近一波是日本迄今为止最致命的一波，因为病人的总数比早期的几倍要高。不过，自两年前开始流行以来，日本的死亡人数总计约为26,000人，明显低于许多其他国家。
-
-专家说，大多数受害者是老年患者，他们的基础疾病在感染病毒后迅速恶化。
-
-岸田面临的批评是，他推迟了强化注射，直到所有城市都准备好，使病毒在全国迅速蔓延。
-
-此后，他的政府开设了大规模接种中心，以加快强化计划的实施。大约72%的65岁或以上的人已经接受了第三次接种，但总体而言，加强型疫苗只达到了三分之一的人口。
-
-专家们敦促在取消限制后要谨慎行事，因为可能会出现感染复发的情况。在全国范围内，omicron的一个亚变体正在逐渐取代主要菌株。
-
-在一些地区，医院床位占用率仍然超过50%，口服抗病毒药没有达到预期的人数。尽管岸田政府已承诺确保数百万剂量的两种进口口服药丸，但它们并没有被广泛使用。一种相当大，难以吞咽，另一种不能与许多其他药物结合使用。
-
-正在进行的COVID-19限制措施主要限于饮食店，要求缩短服务时间。还要求一般公众在家工作，避免参加聚会和大型活动，以及在公共场所时戴口罩，并遵循其他基本的防病毒措施。
-
-来源：[apnews.com][Japan to fully lift COVID-19 restrictions as infections slow](https://apnews.com/article/covid-business-health-japan-tokyo-234df972f5e02618f76127cf366c8354)
-
-* * *
-
-审核：Aries的星
-校对：信心满满
-发布：花羽
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

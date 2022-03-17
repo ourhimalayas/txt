@@ -2,42 +2,36 @@
 ---
 
 
-## 普京抓捕情报机构高管
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2175499/)
+## 灭共的新中国联邦人是未来免受制裁的唯一人群
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176557/)
 
-作者: MOS 柳是多水土透
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在3月13日的大直播中，郭先生与战友分享了俄罗斯大富豪Alex因受普京发动对乌克兰的入侵战争而被牵连，其个人财富全部被制裁，本人也被警察带走。Alex是黄金和化肥公司的老板，此人很会赚钱且钱都合法，个人品味不俗，低调严谨。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-48.jpg)
+随着全球化的发展，SWIFT成为了全世界统一认证的支付系统。郭先生把SWIFT形象地比喻为进入地球村大门的钥匙，俄罗斯被SWIFT踢出，所有俄罗斯人的账户都会受到影响，无法支付任何生活所需，就算有再多不具备流通性的黄金，也无法用来支付。尽管很多俄罗斯富豪都持有第三国护照，照样会受制裁。未来中共国一旦被SWIFT制裁，也会和俄罗斯一样，不分老百姓还是盗国贼或者持有他国护照，每个人都逃脱不了。
 
+这时候唯有新中国联邦人可以免受制裁，因Hpay 提供了一个超级的流通支付系统。秉持消灭中国共产党的使命，投资过G系列、喜币、喜联储，这些会成为护身符，保护每一个战友的安全和财富。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-67.png)
-3月12日，国外媒体报道，俄联邦安全局(FSB)负责海外情报工作的长官——谢尔盖·贝塞达中将及其副手阿纳托利·博卢克，于11日被普京下令软禁在家。68岁的贝塞达之前任FSB五局局长，博卢克任行动情报部主任。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/methode_times_prod_web_bin_cdf6df92-a189-11ec-a33b-e5ebed659a52.jpeg)图片来源: 网络
-普京认为，战争进展不利，和俄方大量伤亡是由于情报有误。开战前他曾被告知，乌克兰仅会做象征性抵抗，人民普遍对现状不满，会配合侵略军推翻政府，乌军战力薄弱，遍布新纳粹成员，受到攻击后会很快投降。但当俄派出轻型部队迅速攻占关键设施后，却遭到猛烈反击和持续抵抗。乌克兰人更紧密地团结在了泽林斯基政府周围，仅首都就有10万人以上加入民兵组织，就连乌东部俄语区也存在民意反转。
+参考链接：[俄罗斯寡头被西方制裁说明了什么？](https://gettr.com/post/pzu0el34d1)
 
-攻势受阻后，俄被迫放弃速战速决计划，转为消耗战，攻城战，导致了大量平民伤亡和不断升级的制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-新闻链接:
-
-- [https://www.thetimes.co.uk/article/kremlin-arrests-fsb-chiefs-in-fallout-from-ukraine-invasion-chaos-92w0829c5](https://www.thetimes.co.uk/article/kremlin-arrests-fsb-chiefs-in-fallout-from-ukraine-invasion-chaos-92w0829c5)
-- [https://www.dailymail.co.uk/news/article-10603045/Putin-places-head-FSBs-foreign-intelligence-branch-house-arrest.html](https://www.dailymail.co.uk/news/article-10603045/Putin-places-head-FSBs-foreign-intelligence-branch-house-arrest.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-33.jpg)
-
-编辑/校对/发稿: 卡夫卡的甲壳虫
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 
 
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

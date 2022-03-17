@@ -2,11 +2,13 @@
 ---
 
 
-## 3/15/2022 文贵直播：中共使领馆已撤离乌克兰，却远程操控搞虚假救援；新中国联邦进入乌克兰救援中国同胞，用真和实力干掉中共的假
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2177463/)
+## 香港第5波中共病毒疫情死亡暴增 棺木供应不及
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2177747/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

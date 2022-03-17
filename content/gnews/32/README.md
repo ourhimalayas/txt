@@ -2,38 +2,24 @@
 ---
 
 
-## 泽连斯基向遇害美国记者家属发送感人信
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176864/)
+## 中共假借疫情防控发起经济超限战
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2177445/)
 
-作者：新西兰伊甸农场-玫瑰
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒15日报道，美国记者布伦特·雷诺在乌克兰首都附近报道难民故事时遇难。 50岁的雷诺是一位著名的电影制片人，他经常前往世界上一些最黑暗和最危险的角落拍摄纪录片。3月13日，在俄罗斯军队于基辅附近向他的车辆开火后遇难身亡。据悉，他正在为一份关于难民的报告收集材料。
+采编/撰稿：加拿大温哥华扬帆农场 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1838.png)图片链接：[中共自爆房地产，已然倒计时读秒 – GNEWS](https://gnews.org/zh-hans/2038850/)
+据加拿大媒体【CTV新闻】3月15日报道，由于中共近期加强了沿海各大货运港口的防疫控制，因而使汽车和电子工业原材料的进口受到阻断的风险。
 
-乌克兰总统泽连斯基3月15日在网上发表了一封写给雷诺家人的信，表达他的“衷心哀悼”。他称雷诺是一位“才华横溢、勇敢的记者”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-59.jpg)
-泽连斯基在信中说，“布伦特在记录数百万乌克兰人的人类悲剧、破坏和苦难时失去了生命。他带着所有的勇气和决心，前往最危险的战区，拍摄了侵略者对我们国家施加的前所未有的残酷和邪恶。”
+报道称，当局在俄乌战争、油价飙升和消费疲软之际实施了极端的“病毒清零”政策。深圳、上海和宁波等港口业务的中断，将对国际贸易及其相关企业群体产生巨大冲击，并造成大量集装箱货运的长期停滞。
 
-“乌克兰人民正在与俄罗斯政权作斗争，以保卫他们的家园和世界民主，他们与你们一起哀悼。”“我们感谢布伦特的专业精神和对同情、道德和正义价值观的承诺。”
+评论指出：中共国目前的经济几近坍塌，特别是支撑其国内金融和劳动力市场的房地产建筑业已摇摇欲坠，而因此所导致的金融崩溃，必将使其在能源获取，产品供应链乃至互联网运行等方面都无以为继。
 
-“愿布伦特的生命、服务和牺牲激励全世界几代人站出来为光明力量对抗黑暗力量而战。”
+随着欧美及其盟国即将把中共剔除出SWIFT国际金融系统，无法承受的内部危机必将迫使习近平当局为逃避灭亡，铤而走险武统台湾，从而因此正式打开彻底灭共的第三道大门。
 
-参考链接：[The people of Ukraine are mourning with you’: Zelenskyy sends moving letter to family of slain US journalist](https://www.stuff.co.nz/world/europe/300541835/the-people-of-ukraine-are-mourning-with-you-zelenskyy-sends-moving-letter-to-family-of-slain-us-journalist)
+校对编辑：硫酸羟氯喹64
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+发稿：青青
 
-总编：天滅中共
-编辑/审核:飞虹
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+原文链接：[China’s COVID cases climb, threaten trade disruption | CTV News](https://www.ctvnews.ca/health/coronavirus/china-s-covid-19-cases-climb-raise-threat-of-trade-disruption-1.5819524)
 
  
 

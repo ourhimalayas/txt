@@ -2,26 +2,27 @@
 ---
 
 
-## 加拿大无力应对前所未有的通货膨胀
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2177356/)
+## 大多数加拿大人支持北约军援乌克兰
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2177736/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
+采编：加拿大温哥华杨帆农场 – 文莱
 
-编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+翻译编辑：加拿大温哥华杨帆农场 – 文所未闻
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1836.png)图片来源：真北方
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-12-1.jpg)图片来源：《多伦多城市报》
 
-据加拿大《真北方》3月16日报道，该国经济学家近日警告，目前的恶性通胀水平几乎已达到历史最高点，全国的商品物价因此将会失控飙升。
 
-报道称，与去年相比，加拿大平均物价指数的上升或将超过6%。此外，由于俄乌战争造成国际能源产品供应链的断裂，整个加拿大燃油价格近期暴涨不断。其中温哥华地区的汽油价格已超过2加元每升，而食品公司的原料价格则提高了80%，日用品价格也因此相伴上涨。同时，运输和化肥成本的增加，已迫使农民将差价转嫁给所有消费者。
+据《多伦多太阳报》3月15日报道，最新民调显示，大部分加拿大人认为，随着俄乌战事升级，北约应立即进行军事干预，以维护欧洲地区的安全。
 
-据悉，即使不考虑上述汽油和食品成本的大幅上升，加拿大当前的通胀指数仍接近5%，而达到近几十年来的最高水平。
+据悉，在参与本次调查的近3000名加拿大和美国人中，约64%的人认为俄乌战争将持续多年。此外，约65%的人表示，加拿大政府应对俄政府实施更严厉的制裁。同时，约75%的受访者担忧当前局势将导致第三次世界大战。
+
+报道称，目前大部分加拿大人都支持乌克兰加入北约。据《北大西洋公约》第5条规定，对任何一个北约成员国的攻击将被认定为对整个北约组织的侵犯，因此所有北约国家都有责任保卫被攻击盟国的安全。
 
 校对编辑：硫酸羟氯喹64
 
-发稿：青青
+发稿：文明(添草灭共)
 
-原文链接：[https://tnc.news/2022/03/16/economists-predict-inflation-in-canada-about-to-reach-30-year-high/](https://tnc.news/2022/03/16/economists-predict-inflation-in-canada-about-to-reach-30-year-high/)
+原文链接： [https://torontosun.com/news/national/canadians-believe-nato-should-prepare-to-fight-russias-invasion-of-ukraine-survey](https://torontosun.com/news/national/canadians-believe-nato-should-prepare-to-fight-russias-invasion-of-ukraine-survey)
 
  
 
