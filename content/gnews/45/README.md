@@ -2,20 +2,27 @@
 ---
 
 
-## 政界内讧转移民愤至特首
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2180137/)
+## 欧盟通过具有里程碑意义的数字货币监管新草案
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2180169/)
 
-作者：东京樱花团丨阿恩
-![](https://assets.gnews.org/wp-content/uploads/2022/03/myk3AP5Dv2YyNa_BHy3iwaHb6G1vHrUTuA6KkLgOipA.jpg)
-第五波疫情一发不可收拾，确诊及死亡个案持续，特首林郑月娥近日饱受抨击，有来自内地网民的谩骂，还有港区政协委员张志刚撰文狠批其执政能力，并列出港府抗疫16宗罪，包括院舍长者逼针不力、居家隔离乱象、医院爆满、病人「与尸同眠」等。他同时狠批港官失职，已牵连中共国各大城市，称香港百年来的崇高地位和卓著声誉，被港府官员毁于一旦。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/R2QXCSQ5HNAFBDHR6HB6JNWUBA.jpg)
+外媒报道，3月15日，欧盟议会的经济和货币事务委员会以31票对4票通过了数字货币市场监管的框架草案。24票弃权。该框架草案称为MiCA，包括数字货币的发行和交易，以及通过成员国之间有效的许可证来确保全面扩张。反对市场操纵和洗钱、恐怖主义融资和其他犯罪活动。
 
-香港受害于中共病毒和新冠疫苗，港府和专家逼针达九成也无阻几何式爆发的感染率，官方公布的死亡率冠绝全球。当港人醒悟被欺骗时已是人财两失，健康被新冠疫苗夺取，工作机会被港府偷走，无休止的防疫积聚的民愤已经到了爆发的程度，失去健康、没有工作、没有饭吃的港人随时都会抱着大不了一死的心态冲出门集结反抗暴政。适逢特首换届，那些参选人的团队迅速利用民众的愤作为攻击政敌的武器，在媒体上发表极具攻击性的言论，大有代民发声讨伐暴政的味道。自从国安法实施后，文字狱成为桎梏港人的枷锁，不少港人在社交媒体上的评论惹来香港国安的控罪，而这些政要和议员们就可以肆无忌惮地在媒体和社交平台攻击政府和个人，中共的法制无半点公义可言。这些政客所要做的就是将人民的怒火从中共政权转向个人，尤其是即将离任的特首，在离任前背负毁坏香港名声的罪名也算是为中共做出的最后贡献。没有人会同情林郑月娥被千夫所指，当她在香港公屋蜗居接受中共“栽培”的那一刻起，她的良知就被中共夺去成为交易的代价，她爬上权力顶峰得万众瞩目，也会从高处堕下成为千古罪人。
+这是欧盟具有里程碑意义的一个框架草案，它预示欧盟数字货币全面监管法案正在快速完善。目前该草案已经进入下一步谈判流程。
 
-资料来源：[**張志剛力數林鄭多宗罪：每朝仍誇誇其談  官員失職牽連內地疫情**](https://www.hk01.com/%E6%94%BF%E6%83%85/747897/%E5%BC%B5%E5%BF%97%E5%89%9B%E5%8A%9B%E6%95%B8%E6%9E%97%E9%84%AD%E5%A4%9A%E5%AE%97%E7%BD%AA-%E6%AF%8F%E6%9C%9D%E4%BB%8D%E8%AA%87%E8%AA%87%E5%85%B6%E8%AB%87-%E5%AE%98%E5%93%A1%E5%A4%B1%E8%81%B7%E7%89%BD%E9%80%A3%E5%85%A7%E5%9C%B0%E7%96%AB%E6%83%85)
+据悉此前该委员会取消了能源消耗过高的数字货币矿工工作模式，后续的替代条款要求在2025年之前将这些企业列入分类系统，逐渐减轻数字货币的高碳排放对环境带来的污染，尽量使用可再生能源。
 
-*校对：东京樱花团/文小白*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+撰稿、发布：银河系农场—-骄子
+
+reference：[https://www.coindesk.com/policy/2022/03/14/eus-sweeping-crypto-regulations-package-one-step-closer-to-ratification/](https://www.coindesk.com/policy/2022/03/14/eus-sweeping-crypto-regulations-package-one-step-closer-to-ratification/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0313_Handflag17x24cm2-2.png)
+欢迎订阅我们的G-News账号：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+* * *
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
