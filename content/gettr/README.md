@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 7:53 PM (UTC)`
+
+This is a local pharmacy in Poland. NFSC volunteers come here often to purchase medical supplies. After the lady heard that we were the new Chinese who came to help the Ukrainian refugees, she donated a box of hand sanitizers. Kindness spreads without borders. Thanks for her kindness!<br/>这是波兰当地的一家药店，战友们经常来这里购买医疗物资，当这位女药剂师得知，我们 是救助乌克兰难⺠的新中国人，她赠送了我们一箱医用消毒洗手液，善心无国界，谢谢她的爱心!
+![img](https://media.gettr.com/group19/origin/2022/03/17/19/3971197b-3a5e-d16f-2fa4-cc8d80afdd49/out.jpg)
+
+---
+
 `@miles 3/17/2022 7:16 PM (UTC)`
 
 
@@ -150,13 +157,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 3/15/2022 Miles Guo: Bi Fujian, a former CCTV host, was laid off by singing “Thief Mao (Zedong)”, the Chinese people may have to pay higher price where “Xi the Sun” will burn the whole China nation to the ground; Bloomberg who treats Wang Qishan as real daddy attempted to trap our fellow fighters on the front line by claiming our humanitarian rescue is playing politics, all these evil scumbags will be put behind bars!<br/><br/>3/15/2022 文贵直播：老毕因唱出“毛贼东”而被下岗，中国人会付出更惨烈的代价，习太阳会把中国整个民族烤焦；视王岐山如亲爹的布隆伯格给前线战友挖坑，诬陷新中国联邦人道救援是搞政治，它们不会逃脱人类大审判！<br/>
 ![img](https://media.gettr.com/group35/getter/2022/03/17/05/c01a59e4-54f5-f6a2-de5c-8657ac2f143f/out.jpg)
-
----
-
-`@miles 3/17/2022 5:26 AM (UTC)`
-
-3/15/2022 Miles Guo: The CCP embassy and consulates have been evacuated from Ukraine, but they are remotely manipulating the fake rescue operation. The New Federal State of China has entered Ukraine to rescue the fellow Chinese people, using truth and strength to defeat the CCP's fraud. Brother David tells the story of cleverly handling the infiltration of a Russian spy to a chartered bus of our rescue operation.<br/><br/>3/15/2022 文贵直播：中共使领馆已撤离乌克兰，却远程操控搞虚假救援；新中国联邦进入乌克兰救援中国同胞，用真和实力干掉中共的假；大卫讲述巧妙处理俄罗斯间谍渗透救援巴士的故事<br/>
-![img](https://media.gettr.com/group11/getter/2022/03/17/05/30d1d7b2-06b4-ede2-7639-c4b605daa0a2/out.jpg)
 
 ---
 
