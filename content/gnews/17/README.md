@@ -2,30 +2,39 @@
 ---
 
 
-## 国际法院下令俄罗斯立即停止入侵
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2177797/)
+## 有声|泽连斯基再次敦促北约设立乌克兰禁飞区
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2177916/)
 
-![](https://s.rfi.fr/media/display/5f95fd80-a558-11ec-a61a-005056bfb2b6/w:1024/p:16x9/AP22075544875748.webp)2022 年 3 月 16 日，荷兰海牙联合国最高法院应乌克兰要求下令俄罗斯停止其毁灭性入侵，记者们在屏幕上聆听主审法官琼·多诺霍（Joan Donoghue）的讲话。 AP – Peter Dejong
-据法广3月16日报道，位于荷兰海牙的联合国国际法院16日要求俄罗斯立即停止对乌克兰的入侵行动，国际法院对俄罗斯大规模入侵乌克兰造成的人道悲剧严重关切。裁决文件显示，13名法官投赞成票，2名法官投反对票，分别来自俄罗斯和中共国。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+国外媒体3月14日报道，乌克兰总统泽连斯基在午夜过后不久发布的视频讲话中，继续敦促北约将乌克兰领空设为禁航区，称“如果你不关闭我们的天空，俄罗斯导弹落在你的领土、北约领土、北约公民的家中只是时间问题”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-16-at-10.37.31-PM.png)图片来源: 网络
+泽连斯基发表讲话前，俄罗斯部队刚刚对乌克兰西部城市利沃夫的军事训练场发动空袭，造成35人丧生，超过130人受伤。利沃夫靠近波兰边境，而波兰正是北约会员国之一。
 
-联合国最高法庭裁决乌克兰胜诉后，基辅当局称赞这是司法的完全胜利，也是乌克兰的胜利。乌克兰代表要求“俄罗斯必须按照国际法院的裁决行动，从乌克兰撤军”。
+地区州长马科齐茨基称，俄罗斯对这个距离波兰边境不到25公里的大型军事基地发射超过30枚火箭。这是莫斯科2月24日入侵乌克兰以来，攻击地点最靠近波兰的一次。
 
-作为对战争罪指控调查的一部分，海牙的另一家法院—国际刑事法院（ICC）也在调查这场冲突。该法院检察官周三访问了该国。
-
-新闻参考链接：[https://www.rfi.fr/cn/中国/20220316-国际法院下令俄罗斯立即停止入侵](https://www.rfi.fr/cn/中国/20220316-国际法院下令俄罗斯立即停止入侵)
-
-编辑：MQ
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+美国国防部发言人柯比称，从这次空袭的目标来看，俄罗斯正在扩大他们攻击的范围。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+文字版原文：[泽连斯基再次敦促北约设立乌克兰禁飞区](https://gnews.org/zh-hans/2175731/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

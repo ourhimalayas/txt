@@ -2,35 +2,63 @@
 ---
 
 
-## “七星”帐篷长成记
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2177170/)
+## 全球疫情疫苗数据更新（卵巢癌发病率为何增加？）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2177477/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/帐篷封面.jpg)
-新中国联邦第一批志愿者赶到波兰边境梅迪卡（Medyka)是3月3日晚，到法治基金、新中国联邦的七星帐篷全部搭建好是3月10日。如今咱们的帐篷不仅接待了从乌克兰逃难过来的上千人，还在3月14、15日两天用于包括联合国、国际红字会、无国界医生救援组织（SSF）等多个国际救援组织在内的救援基地协调会。
+整理：枳实
+美工：精灵蓝
 
-按照全程参与帐篷搭建和协调会的意大利罗马达芬奇农场文科介绍，新中国联邦人不仅提供了设施齐全的帐篷作为会议场地，咱们还是低调的主角。当天会议结束后有人主动起立当着全场的面感谢咱们提供的帮助。因着这批帐篷搭建和完善之后，我们完全在当地打开了 局面。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/W1.jpeg)图左边那个小的是第二个9平米沿街的帐篷，中间的是50平米的，右边那个是240平米的最大帐篷
-2月24日普京发动对乌克兰入侵行动后，大批乌克兰人逃往波兰，梅迪卡是波兰与乌克兰相接的9个关口中唯一一个可以步行出来的，每天涌向这里的难民越来越多，我们搭建帐篷的地方逐渐正由一片荒地发展为一个重要的难民中转站。也因此，3月14日才将各救援组织都聚集起来，讨论营地管理与建设主题。当地设想将此处从临时建成为一个永久的救援营地。新中国联邦人首次参与其中，展现的完全是新中国人的形象。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-68.png)图片：雅典娜农场设计组 精灵蓝
 
-当时志愿者们初来乍到，想搭帐篷都被警察阻挡。据介绍，当时当地机构和其他国际救援机构零星搭了些帐篷，帐篷区就在难民出口和巴士上车点边上。我们的开拓者以诚信和善意与他们打交道，在关口停车场边上的荒地上首先搭起了一个9平米的物资仓库帐篷，第二天占住沿街的位置，交涉后搭起了第二个9平米的接待帐篷，日本NHK电视台报道中出现的那幅新中国联邦旗及背景就是这第二个帐篷。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/W3-1.jpeg)搭建50平米帐篷的荒地![](https://assets.gnews.org/wp-content/uploads/2022/03/W6.jpg)搭建50平米帐篷时国际友人来帮忙
-荒地上长起的新中国联邦的救援中心，这被我们称作“七星”的帐篷其实不是一个，而是前后4个。除了第一、第二个9平米的小帐篷外，又建了个50平米和240平米的综合帐篷。240平米那个最大的帐篷依靠专业人士搭建。
 
-我们的帐篷不是安置人用的，人不长期住在里面，是上巴士、等巴士的中转站。外面零下的温度，这里是乌克兰逃出来的人需要短暂取暖休息的第一站，关口堵车，有人要步行30公里才能到达这里，然后巴士带他们再转去难民营或者去到其他各个国家。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/W5.jpeg)ppapai派上大用的房车
-帐篷搭好后，我们在最大的帐篷里面加装了8个煤气灯，其他的帐篷还有鼓风机来供暖，配上新的毛毯、椅子、和现磨的咖啡，还在帐篷外边燃起篝火，弄来可以烧好一阵子的木头。想想要营造一个温暖的中转中心，生活用品一应俱全，开拓者要付出多少？
-![](https://assets.gnews.org/wp-content/uploads/2022/03/W2-1.jpg)专门为篝火添置的大铁盆
-来自欧洲、美加的后援团队陆续到来后，一切开始上正轨。大家轮流值班，24小时提供多语言服务；最快的WIFI、最香的现磨咖啡，甚至给孩子专门辟出一块活动区…….还都是免费的。短短一周时间，我们的救援中心已长成那里最靓的风景。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/W7.jpeg)夜幕下的新闻中心，前景是那一大堆烧篝火的木头
-文科笑着介绍说，我们的4个帐篷位置特别，国际记者和新闻中心就在后面，各国战地记者寻着新鲜咖啡的香气就来到帐篷附近，人人都想喝咖啡。按照Nicole的说法，这NFSC咖啡缘太神奇了。她和其他的志愿者们一遍又一遍地向各媒体解释新中国联邦人是消灭中国共产党的新中国人，中共是世界灾难的根源，必须消灭中共才能拯救所有人。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ST4.jpeg)特制的钢琴被拉到我们帐篷外
-这些天来，每当傍晚，意大利出生的德国钢琴师就拉过来带轮子特制的钢琴，在我们的帐篷外演奏一小时，他已经会弹我们的“喜马拉雅之巅”。音乐响起，来来往往的难民可以暂时忘却痛苦忧伤而得一刻美好与安宁。
+雅典娜疫情更新（2022年 3月16日）
 
-七星级的帐篷静静地立在那里，我们新中国联邦给世界带来的震撼已经传响。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-（除题图外，所有照片皆由文科提供）
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-35.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/12-29.png)
+**辉瑞的大鼠试验**
 
-**采写 发布：意大利罗马达芬奇农场 Roma**
+我们都知道，福奇曾经吹嘘过mRNA疫苗如何从中共获得了冠状病毒的编码，然后直接形成mRNA产品，跳过动物实验直接给人注射的。[本月初因法庭判决而被迫曝光的辉瑞文件中](https://phmpt.org/pfizers-documents/)，其中一份文件证明，辉瑞后来还是做了动物试验的。
+
+而这份[辉瑞文件](https://phmpt.org/wp-content/uploads/2022/03/125742_S1_M4_4223_185350.pdf)揭露了mRNA制剂肌肉注射后在大鼠的卵巢，肾上腺，脾脏和肝脏积累。这个研究中有几点细节值得关注。
+
+其一，辉瑞的mRNA制剂肌肉注射后1小时，2小时，4小时，8小时，24小时以及48小时在这些关键脏器的浓度持续升高。这个发现的临床意义极大，尤其是在卵巢的富集，与接种疫苗后普遍出现的月经周期改变，甚至类似乳腺癌的影像学表现都可能密切相关。这个研究结果，辉瑞和FDA都不打算及时向公众公布，这些所谓“疫苗”的知情同意体现在何处？
+
+其二，试验观察到，肌肉注射后48小时内，mRNA在上述脏器中的浓度持续倍增，而48小时之后发生怎样，这个试验却没有观察，更不要说远期数据了。
+
+其三，这个试验中mRNA编码的不是刺突蛋白，而是没有药理作用的其它蛋白，试验设计者为何要这么做？是否因为刺突蛋白的mRNA会造成大鼠死亡，影响试验结果？或是担心试验中大鼠细胞制造的刺突蛋白脱落对实验人员造成威胁？ 尽管这个研究没有继续观察注射后48小时后大鼠发生了什么，但是人类却代替大鼠参与了有史以来最大规模的人体试验，部分试验结果已经被披露。[苏格兰公共卫生部 (PHS)的数据](https://scotland.shinyapps.io/phs-covid-wider-impact/)显示，卵巢癌患者人数在2021 年的已知趋势明显高于 2020 年和 2017-2019 年的平均值。如下图所示：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/13-20.png)
+来自英国的官方数据更显示，截至 2021 年 11 月，已向英国医学监管机构MHRA 的黄卡计划报告了近 40,000 起月经变化和意外阴道出血事件，这些都是疑似的辉瑞疫苗的副作用病例。
+
+讽刺的是，辉瑞甚至都没有在其临床试验中特意关注月经的变化，以至于伦敦帝国理工学院生殖免疫学讲师 Victoria Male 博士在英国医学杂志上发表了[一篇文章](https://www.bmj.com/content/374/bmj.n2211)，呼吁在未来的临床研究中，应积极收集关于月经改变和阴道出血的信息。
+
+[2022年3月16日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月16日改进.pdf)
+
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

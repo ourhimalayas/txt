@@ -2,31 +2,34 @@
 ---
 
 
-## 中日财经爆|俄罗斯和中共正在研究替代SWIFT的方案以逃避制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2177885/)
+## 布林肯批中共在俄乌问题上站在了历史错误的一边
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2178014/)
 
-撰稿：东京樱花团/peterwong
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-54.jpg)
+美国国务卿布林肯（图片来自《德国之声》）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
+美国国务卿布林肯批评中共在有关俄罗斯入侵乌克兰的问题上，“已经站在了历史错误的一边”。他同时还警告中共不要对俄提供援助。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/03173.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fassets.euromoneydigital.com%2Fdims4%2Fdefault%2F48ddaa5%2F2147483647%2Fstrip%2Ftrue%2Fcrop%2F960x625%2B0%2B0%2Fresize%2F800x521!%2Fquality%2F90%2F%3Furl%3Dhttp%253A%252F%252Feuromoney-brightspot.s3.amaz)
-俄罗斯一位资深议员周三（3月16日）表示，俄罗斯和中共国正努力在金融信息系统之间建立合作，以逃避西方对其金融系统的制裁。
+据《大纪元》3月16日报道，布林肯当日在接受NPR采访时表示，中共作为联合国安理会常任理事国，没有宣布强烈反对俄罗斯入侵乌克兰，这与其负责维护和平与安全的承诺背道而驰。
 
-由于俄乌战争，几家俄罗斯银行被禁止进入SWIFT国际支付网络，因而无法将资金转移到俄罗斯境外。一个可能的选择是连接到中共国的CIPS支付平台。
+俄乌战争爆发几周来，中共高层一直摆出所谓的“中立”姿态，声称中方“致力于劝和促谈”。但中共官媒却通过“引述”的方式，继续向世界各地散布来自俄方的虚假信息，竭力打造亲俄反美的舆论环境。
 
-俄罗斯议会下院金融委员会主席Anatoly Aksakov说，“为消除在维持贸易往来方面的风险，需要在俄罗斯和中国的金融信息系统之间建立合作，我知道这样的工作正在进行，我们的央行正在与中国人民银行合作，相信目前的形势将刺激有关进程。俄中贸易在1-2月增长逾40%，这种关系应该进一步加强。”
+对此，布林肯在采访中指出，“这与中方一再重申的《联合国宪章》的神圣性，以及包括（尊重）国家主权在内的基本原则完全不符。”
 
-俄罗斯财政部表示，在使用美元和欧元储备受阻后，莫斯科方面将动用其外汇储备中的人民币。
+西方国家不仅担心中共会帮助俄罗斯传递战争虚假信息，更担心中共助莫斯科逃避经济制裁，甚至可能对俄进行军事援助。
 
-同时，一些俄罗斯银行正在通过中共国的银联系统发卡，因为制裁导致他们发行的Visa卡和万事达卡无法在海外使用。
+布林肯在采访中提出了对中共的两点期望：一个是明确反对俄罗斯入侵；另一个是不要对俄罗斯提供援助。
 
-消息来源：[**莫斯科和北京方面正在研究替代SWIFT支付系统的变通方案–俄罗斯议员**](https://cn.reuters.com/article/russia-china-swift-fin-0317-idCNKCS2LE03I?il=0)
+布林肯指出，中国（中共）在乌克兰问题上已经站在了历史错误的一边。如果中方真的以某种方式向俄罗斯提供物质支持，那将会更糟，只会让中国（中共）在亚欧非和世界其它地区名声扫地。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
+新闻链接：
 
+[https://www.voachinese.com/a/6488530.html](https://www.voachinese.com/a/6488530.html)
+
+[https://www.epochtimes.com/gb/22/3/16/n13651053.htm](https://www.epochtimes.com/gb/22/3/16/n13651053.htm)
+
+* * *
 
  
 

@@ -2,63 +2,29 @@
 ---
 
 
-## 全球疫情疫苗数据更新（卵巢癌发病率为何增加？）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2177477/)
+## 中日财经爆┃因涉北韩劳工李宁产品遭美国海关查扣
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2177745/)
 
-整理：枳实
-美工：精灵蓝
+撰稿人：东京樱花团/山顶闲人
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-68.png)图片：雅典娜农场设计组 精灵蓝
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1845.png)图片来源于本文链接
+美国海关和边境保护局在当地时间15日发出的声明中表示，美国各地海关自昨(14日)起执行有关拘留令，若李宁公司能够在扣留通知发出后30天内提供明确和令人信服的证据，证明其商品不是由罪犯劳工、强迫劳工或受刑事制裁的契约劳工所生产，有关产品将可获放行，否则商品可能会被扣押和没收。
 
-雅典娜疫情更新（2022年 3月16日）
+根据2017年通过的美国敌对国家制裁法案（Countering America’s Adversaries Through Sanctions Act，简称CAATSA），任何产品若其生产全部或部分涉及北韩、伊朗及俄罗斯，均不可入口美国，除非生产商能证明有关产品不涉及强迫劳动力。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+不过，北韩多年来向俄罗斯和中国等地派遣数以万计的公民从事体力劳动，并从中获得5亿美元的外汇。根据彭博通讯社纪录，有关款额在联合国2017年叫停这种做法以惩罚平壤的核试验和弹道导弹试射时，约占该国经济的1.5%。自此，尽管俄罗斯已停止聘用北韩劳工，但仍有北韩人到中俄做工，主要从事伐木工作，人数可能涉及数千人，但由于俄罗斯受制裁，有关工人以支薪，令北韩获得外汇的数额有所减少。
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-35.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/12-29.png)
-**辉瑞的大鼠试验**
+中共国很多所谓成功的巨型私人企业，背后都有中共红色权贵家族利用权力和行政资源，对这些巨型私人企业提供扶持和政策倾斜，而中共红色权贵家族又通过这些企业攫取大量财富。而作为中共国体育用品巨头的李宁正是这种企业的代表，背后的中共红色权贵家族利用自己的权力，为李宁公司提供来自北韩的廉价劳动力，使李宁的产品拥有更低的成本，在国际上更有竞争力。本次李宁公司产品被查扣事件，还能看出中共强迫新疆人进行劳动并非空穴来凤，中共早已在人权议题上劣迹斑斑，不知多少来自少数民族和其他中共友邦的民众在中共国境内进行着高强度的体力劳动，再次证明了中共不灭，世界不宁。
 
-我们都知道，福奇曾经吹嘘过mRNA疫苗如何从中共获得了冠状病毒的编码，然后直接形成mRNA产品，跳过动物实验直接给人注射的。[本月初因法庭判决而被迫曝光的辉瑞文件中](https://phmpt.org/pfizers-documents/)，其中一份文件证明，辉瑞后来还是做了动物试验的。
+消息来源：[美国禁李宁产品入口 疑涉北韩强迫劳工](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220316-%E7%BE%8E%E5%9B%BD%E7%A6%81%E6%9D%8E%E5%AE%81%E4%BA%A7%E5%93%81%E5%85%A5%E5%8F%A3-%E7%96%91%E6%B6%89%E5%8C%97%E9%9F%A9%E5%BC%BA%E8%BF%AB%E5%8A%B3%E5%B7%A5)
 
-而这份[辉瑞文件](https://phmpt.org/wp-content/uploads/2022/03/125742_S1_M4_4223_185350.pdf)揭露了mRNA制剂肌肉注射后在大鼠的卵巢，肾上腺，脾脏和肝脏积累。这个研究中有几点细节值得关注。
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
 
-其一，辉瑞的mRNA制剂肌肉注射后1小时，2小时，4小时，8小时，24小时以及48小时在这些关键脏器的浓度持续升高。这个发现的临床意义极大，尤其是在卵巢的富集，与接种疫苗后普遍出现的月经周期改变，甚至类似乳腺癌的影像学表现都可能密切相关。这个研究结果，辉瑞和FDA都不打算及时向公众公布，这些所谓“疫苗”的知情同意体现在何处？
-
-其二，试验观察到，肌肉注射后48小时内，mRNA在上述脏器中的浓度持续倍增，而48小时之后发生怎样，这个试验却没有观察，更不要说远期数据了。
-
-其三，这个试验中mRNA编码的不是刺突蛋白，而是没有药理作用的其它蛋白，试验设计者为何要这么做？是否因为刺突蛋白的mRNA会造成大鼠死亡，影响试验结果？或是担心试验中大鼠细胞制造的刺突蛋白脱落对实验人员造成威胁？ 尽管这个研究没有继续观察注射后48小时后大鼠发生了什么，但是人类却代替大鼠参与了有史以来最大规模的人体试验，部分试验结果已经被披露。[苏格兰公共卫生部 (PHS)的数据](https://scotland.shinyapps.io/phs-covid-wider-impact/)显示，卵巢癌患者人数在2021 年的已知趋势明显高于 2020 年和 2017-2019 年的平均值。如下图所示：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/13-20.png)
-来自英国的官方数据更显示，截至 2021 年 11 月，已向英国医学监管机构MHRA 的黄卡计划报告了近 40,000 起月经变化和意外阴道出血事件，这些都是疑似的辉瑞疫苗的副作用病例。
-
-讽刺的是，辉瑞甚至都没有在其临床试验中特意关注月经的变化，以至于伦敦帝国理工学院生殖免疫学讲师 Victoria Male 博士在英国医学杂志上发表了[一篇文章](https://www.bmj.com/content/374/bmj.n2211)，呼吁在未来的临床研究中，应积极收集关于月经改变和阴道出血的信息。
-
-[2022年3月16日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月16日改进.pdf)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

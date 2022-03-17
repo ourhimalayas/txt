@@ -2,38 +2,28 @@
 ---
 
 
-## 泽连斯基向遇害美国记者家属发送感人信
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176864/)
+## 墙内的同胞请记住只有Hpay才能让你在血腥的未来中得到安全
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2177192/)
 
-作者：新西兰伊甸农场-玫瑰
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒15日报道，美国记者布伦特·雷诺在乌克兰首都附近报道难民故事时遇难。 50岁的雷诺是一位著名的电影制片人，他经常前往世界上一些最黑暗和最危险的角落拍摄纪录片。3月13日，在俄罗斯军队于基辅附近向他的车辆开火后遇难身亡。据悉，他正在为一份关于难民的报告收集材料。
+墙内的同胞有一个Hpay，有一能充电的手机，有一个翻墙的办法，这是唯一能救你的。
 
-乌克兰总统泽连斯基3月15日在网上发表了一封写给雷诺家人的信，表达他的“衷心哀悼”。他称雷诺是一位“才华横溢、勇敢的记者”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-59.jpg)
-泽连斯基在信中说，“布伦特在记录数百万乌克兰人的人类悲剧、破坏和苦难时失去了生命。他带着所有的勇气和决心，前往最危险的战区，拍摄了侵略者对我们国家施加的前所未有的残酷和邪恶。”
+**【郭先生直播摘要】****2022.3.9 ****墙内的同胞请记住只有****Hpay****才能让你在血腥的未来中**
 
-“乌克兰人民正在与俄罗斯政权作斗争，以保卫他们的家园和世界民主，他们与你们一起哀悼。”“我们感谢布伦特的专业精神和对同情、道德和正义价值观的承诺。”
+**得到安****全**
 
-“愿布伦特的生命、服务和牺牲激励全世界几代人站出来为光明力量对抗黑暗力量而战。”
+**郭先生****：**** **
 
-参考链接：[The people of Ukraine are mourning with you’: Zelenskyy sends moving letter to family of slain US journalist](https://www.stuff.co.nz/world/europe/300541835/the-people-of-ukraine-are-mourning-with-you-zelenskyy-sends-moving-letter-to-family-of-slain-us-journalist)
+现在你看看这个世界， 疫苗灾难还真的没有开始。那么我们中国的战友和同胞们， 记住怎么能让你在战争和未来的血腥中能让你们安全呢？我告诉大家，你们不懂的什么叫 Hpay和 Hcoin，今天你看到俄乌战争你就知道，美国把整个俄罗斯的swift踢出以后，俄罗斯人叫天天不灵叫地地不应，哭爹喊娘都不管用。不管多有钱的人，他们现在真的不能拿现金去支付平常的豪华费用，没有支付现金没有钱，你不可能拿着黄金去买面包去。所有国内的战友，记住今天七哥说的一句话，很快比俄罗斯还惨就会到中共国来。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+美欧一定会在世界上分出来，无皇有主的人类的新模式。也就是没有任何的集权，包括中东的所有皇室集权都会消失。人类上只有一个方式就是民主，以民为天下的政权正式诞生，不可能再有任何独裁政府。那么他们现在第一个做什么？大家记住现在的战争是什么？乌克兰是美欧的战争代理人，俄罗斯是中共的代理人或者中共和俄罗斯所谓独裁者的代理人，严格讲是美中的战争，俄罗斯和俄罗斯派到前线的人和乌克兰人都是牺牲者。
 
-总编：天滅中共
-编辑/审核:飞虹
-校对/发稿：Hetangyuese
+那中国人是什么？中国人就是被吃掉的，一个又一个的皑皑白骨，无处不在的，你就是这个牺牲品，战争中的食物。
 
-**更多资讯，更多关注**
+能救你的是什么？对俄罗斯所有的金融制裁，你都要想到唯一一个Hpay。Hpay不收你一分钱知道吗国内的战友？不要你一分钱，你没有任何风险，我想骗你都骗不了你，我想强奸你我也没有那么多肾去强奸你。你有一个Hpay，有一能充电的手机，有一个翻墙的办法，这是唯一救你的。因为你的钱，你可以给你家人和别人买东西。还有更多的使用Hpay，之间战友们可以买粮食可以救你的命，可以买药甚至是交通。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+听七哥的，完全不花成本的，不需要你任何风险的，下载一个Hpay。到那个时候，我们甚至可以在一万五千里，甚至在月球上也可以救你，只要Hpay能用，我们就可以给你发钱，你就可以买东西，就这么简单。如果过去你们问我怎么解决战争的问题，包括台湾的同胞，Hpay可以让你看到俄罗斯和乌克兰战争中的最最大的灾难，通信支付和购买你必备的生活品。
+
+视频剪辑：GC| 听写：雨山溪桥客|翻译：Arthur |校对：tonyj|视频制作+字幕：刀锋舞者|编辑：昆汀|发布：叶子
 
  
 

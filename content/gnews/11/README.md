@@ -2,36 +2,49 @@
 ---
 
 
-## 中日财经爆| 美联储宣布自2018年以来首次加息
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2177881/)
+## 新中国联邦乌克兰救援行动在乌克兰的救援中心引起了国际关注
+` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/2177972/)
 
-撰稿：东京樱花团/peterwong
+翻译：冰糖葫芦喵
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
+编辑与校对：冰糖葫芦喵
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/03172.png)[图片来源](https://www.businesstoday.in/latest/policy/story/us-federal-reserve-sees-case-building-for-interest-rate-cuts-this-year-204770-2019-06-20)
-美国联邦储备委员会周三(3月16日)宣布自2018年来首次加息，并制定了一项激进的计划，希望明年将借贷成本推至限制性水平，对高通胀和乌克兰战争的担忧盖过了中共病毒大流行的风险。
+PR Free新闻网站3月17日消息，**总部设在纽约的非盈利组织、新中国联邦乌克兰救援行动在波兰梅迪卡边境建立的国际难民救援中心，引起了世界的关注。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/UKRAIN-RESCUE.png)
+随着俄罗斯对乌克兰的非法入侵，数以百万计的难民正试图逃离乌克兰。
 
-联邦公开市场委员会以加息25个基点开始了收紧政策的行动，将指标利率从目前的近零水平上调的举措将影响到针对消费者和企业的其他各种利率。
+据报道，一支由100多名新中国联邦志愿者和32辆救援巴士的特殊救援队伍，代表着法治基金(ROLF)和新中国联邦(NFSC)，在波兰边境的梅迪卡国际难民救援中心进行救援，该中心每天24小时对外开放。
 
-美联储出人意料地预计，在今年剩下的六次政策会议上，每次都会加息25个基点，这将使联邦基金利率目标区间在2022年底达到1.75%-2.00%。到明年年底，政策利率预计将达到2.80%，高于政策制定者现在认为的会减缓经济增长的2.40%的水平。
+截至2022年3月16日，他们已经解救了1625名难民，其中包括乌克兰妇女、儿童、美国人和来自许多国家的人。
 
-美联储主席鲍威尔在为期两天的会议结束后表示,经济表现强劲，且如果需要，联储官员将在未来的会议上更加激进地加息以控制通胀。
+报道称，新中国联邦救援队为难民和国际志愿者组织的成员搭建了一个巨大的难民帐篷。2022年3月14日，首届国际救援大会在新中国联邦和法治基金搭建的舒适的人道主义救援帐篷中举行。该会议为有系统地协调梅迪卡难民营的国际救援任务奠定了基础。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/国际救援组织开会.png)
+一名新中国联邦志愿者Nicole在接受波兰当地媒体采访时说，我们致力于打倒中国共产党（中共），因为中共是全球所有灾难的根源。
 
-美联储决策者将2022年的经济增长预测从去年12月预计的4%下调至2.8%，他们开始考虑全球经济面临的新风险。
+报道指出，在梅迪卡救援中心工作的新中国联邦志愿者不是来自中共统治下的中国人。他们是来自民主世界爱好和平的人，代表着新中国联邦（NFSC）和法治基金（ROLF）。
 
-美联储在一份声明中表示：“俄罗斯入侵乌克兰造成了巨大的民众苦难和经济困难。这对美国经济的影响高度不确定，但在短期内，入侵和相关事件可能会给通胀带来额外的上行压力，并给经济活动造成压力。”
+新中国联邦完全不同于中共，有承诺和决心打倒邪恶的中共，拯救数十亿生活在其统治下、没有人权、平等和民主的中国人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/l0b7rhe6ddqspwr7btlr.jpg)
+而法治基金的使命是通过人道主义援助和民主支持，把中国人民从邪恶的中共的镇压中解放出来。
 
-联储在此份声明中放弃了此前长期使用的说法，即疫情是美国面临的最直接经济风险。这标志着全面抗疫行动已经结束，美联储宣布提高联邦基金利率，并承诺“持续加息”以遏制目前处于40年来最高水平的通胀。
+报道中称，新中国联邦志愿者向世界展示了中国人民无条件的爱和人道主义新形象。中共从不尊重生命，正因为如此，当代中国人民在关键时刻挺身而出，用相互理解、尊重和信任与世界联系起来，帮助有需要的人，支持失去家园的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/euairxatud6skzojodya.jpg)
+新中国联邦志愿者小Sarah在她的社交媒体中写道”“我们新中国联邦人和乌克兰人民站在一起，因为我们热爱和平和尊重人权，”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xe3pikx40i18zs6dhmum.jpg)
+**小编评论：**
 
-最新声明称，美联储预计将在“未来的一次会议上“开始缩减其近9万亿美元的资产负债表。
+新中国联邦的善行义举已经得到全世界人民的认可，只要是本着客观公正，支持正义立场的新闻媒体，都应该会报道我们的正义行动。
 
-消息来源：[**综述：美联储宣布加息25个基点 并暗示将采取更激进利率路径阻击通胀（更新版）**](https://cn.reuters.com/article/wrapup-fed-0316-idCNKCS2LE02Y?il=0)
+新中国联邦人在乌克兰救援行动中，为全世界的中国人乃至亚洲人树立了一个有口皆碑的正义形象，并且赢得全世界的尊重。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
+新中国联邦法制基金的行为与邪恶中共支持侵略，对同胞和身处战区的难民毫无怜悯之心和冷血，形成了巨大反差。毫无疑问，我们在这条特殊的战线上对中共形成巨大威胁，并给其带来巨大打击。
+
+新闻来源链接：
+
+[New York-Based Non-Profit Ukraine Rescue Operation Catches Attention at the International Refugee Rescue Center at the Medyka Border of Poland (prfree.org)](https://www.prfree.org/news-new-york-based-non-profit-ukraine-rescue-operation-catches-attention-at-the-international-refugee-rescue-center-at-the-medyka-border-of-poland-1068530.html)
+
+[(608) ROLF Ukraine Rescue Video – YouTube](https://www.youtube.com/watch?v=8HkQR8DeiXg)
+
 
 
  

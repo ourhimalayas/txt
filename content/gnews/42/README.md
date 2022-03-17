@@ -2,22 +2,27 @@
 ---
 
 
-## 灭共的新中国联邦人是未来免受制裁的唯一人群
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176557/)
+## 泽连斯基向遇害美国记者家属发送感人信
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176864/)
 
-作者：银河系农场—骄子
+作者：新西兰伊甸农场-玫瑰
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在3月13日的大直播中，郭先生与战友分享了俄罗斯大富豪Alex因受普京发动对乌克兰的入侵战争而被牵连，其个人财富全部被制裁，本人也被警察带走。Alex是黄金和化肥公司的老板，此人很会赚钱且钱都合法，个人品味不俗，低调严谨。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-48.jpg)
-随着全球化的发展，SWIFT成为了全世界统一认证的支付系统。郭先生把SWIFT形象地比喻为进入地球村大门的钥匙，俄罗斯被SWIFT踢出，所有俄罗斯人的账户都会受到影响，无法支付任何生活所需，就算有再多不具备流通性的黄金，也无法用来支付。尽管很多俄罗斯富豪都持有第三国护照，照样会受制裁。未来中共国一旦被SWIFT制裁，也会和俄罗斯一样，不分老百姓还是盗国贼或者持有他国护照，每个人都逃脱不了。
+外媒15日报道，美国记者布伦特·雷诺在乌克兰首都附近报道难民故事时遇难。 50岁的雷诺是一位著名的电影制片人，他经常前往世界上一些最黑暗和最危险的角落拍摄纪录片。3月13日，在俄罗斯军队于基辅附近向他的车辆开火后遇难身亡。据悉，他正在为一份关于难民的报告收集材料。
 
-这时候唯有新中国联邦人可以免受制裁，因Hpay 提供了一个超级的流通支付系统。秉持消灭中国共产党的使命，投资过G系列、喜币、喜联储，这些会成为护身符，保护每一个战友的安全和财富。
+乌克兰总统泽连斯基3月15日在网上发表了一封写给雷诺家人的信，表达他的“衷心哀悼”。他称雷诺是一位“才华横溢、勇敢的记者”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-59.jpg)
+泽连斯基在信中说，“布伦特在记录数百万乌克兰人的人类悲剧、破坏和苦难时失去了生命。他带着所有的勇气和决心，前往最危险的战区，拍摄了侵略者对我们国家施加的前所未有的残酷和邪恶。”
 
-参考链接：[俄罗斯寡头被西方制裁说明了什么？](https://gettr.com/post/pzu0el34d1)
+“乌克兰人民正在与俄罗斯政权作斗争，以保卫他们的家园和世界民主，他们与你们一起哀悼。”“我们感谢布伦特的专业精神和对同情、道德和正义价值观的承诺。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+“愿布伦特的生命、服务和牺牲激励全世界几代人站出来为光明力量对抗黑暗力量而战。”
 
-总编/编辑/审核：DM
+参考链接：[The people of Ukraine are mourning with you’: Zelenskyy sends moving letter to family of slain US journalist](https://www.stuff.co.nz/world/europe/300541835/the-people-of-ukraine-are-mourning-with-you-zelenskyy-sends-moving-letter-to-family-of-slain-us-journalist)
+
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+
+总编：天滅中共
+编辑/审核:飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -27,10 +32,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-
-
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  

@@ -2,35 +2,52 @@
 ---
 
 
-## 韩国两大航空公司宣佈航线不再经由俄罗斯领空
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176863/)
+## 乔丹：如果他们在11月赢得众议院，美国共和党将调查福奇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2177035/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-韩国两大航空公司，大韩航空和韩亚航空15日宣布，停飞俄罗斯航线，同时，所有飞往欧美的航线也不再经由俄罗斯领空。
+编译：七叶之芒
 
-虽然，俄罗斯政府并未禁止韩国航班在俄罗斯领空飞行，但出于安全考虑，两大航空公司还是决定绕飞。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-58.jpg)
-大韩航空在一份声明中表示，仁川至莫斯科以及符拉迪沃斯托克之间的航班，包括在莫斯科中途停留的航班全部暂停，同时，首尔往来伦敦等欧洲航线的航班将改道中国、哈萨克斯坦和土耳其等其他国家，而往来纽约等北美地区的航班则改道阿拉斯加和太平洋，预计单程将分别增加1～2小时左右的飞行时间。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1825-edited.png)conservativebrief.com
 
-另外，有报道指，自俄罗斯入侵乌克兰，欧洲对俄罗斯关闭领空后，包括日本全美航空在内的各大航空公司都有计划改道欧亚航线。
+几位共和党议员表示，如果共和党在2022年的中期选举中重新获得众议院的多数席位，他们计划对安东尼-福奇博士展开调查。
 
-参考链接：[Korean Air to reroute flights that use Russian airspace](https://www.reuters.com/world/asia-pacific/korean-air-says-reroute-flights-that-used-russian-airspace-2022-03-15/)
+在接受福克斯新闻采访时，俄亥俄州共和党议员吉姆-乔丹说，共和党人将“揭开福奇”对冠状病毒大流行的起源的了解。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+乔丹说：“如果美国人民让我们重新掌权，我们肯定会这样做。”他补充说，他的同事将推动国会对冠状病毒的起源进行调查。
 
-总编/编辑/审核：天滅中共
-校对/发稿：Hetangyuese
+“因为我们现在毫无疑问地知道，福奇博士在1月31日和2月1日知道这个东西来自一个实验室”，乔丹争辩说。“全国的顶级科学家都在说它来自一个实验室。一位科学家说，我们现在从2月1日的电话会议上得到了笔记。一位科学家说，‘我不知道这怎么可能在自然界中发生，但在实验室中很容易做到’。”
 
-**更多资讯，更多关注**
+“然而就在几天之内，他们改变了自己的立场，写了那篇出现在《自然医学》杂志上的文章，然后被现在著名的《柳叶刀》杂志引用，这成为福奇可以出去告诉人们这不是来自实验室的事实的福音，而事实上他们知道它是来自实验室的”，乔丹继续说道。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+“有趣的是，我们指出了这一点。我们上周刚刚了解到这一点，两位医生在早期最坚定地认为这个东西来自实验室：一位是克里斯蒂安-安德森博士。2020年1月31日，他在一封电子邮件中对福奇博士这样说。‘病毒看起来是经过设计的。病毒与进化论不一致’。所以，他知道它来自一个实验室”。他补充说。
+
+“他们改变了自己的立场”，乔丹争辩说。“而几个月后，你猜怎么着？他们得到了890万美元，包括他和[罗伯特]加里博士–那个说它不可能自然发生的人。”
+
+“我们什么时候才能对安东尼-福奇负责？听着，他现在的失踪只有一个原因，也只有一个原因。民主党人正在关注民意调查。不是死去的美国人让民主党人采取行动。不是死去的美国人让福奇消失了。而是民意调查。我想让安东尼-福奇负责”，德克萨斯州共和党议员奇普-罗伊说。
+
+他补充说：“如果你在看这个，福奇博士，请注意，因为当美国人把众议院的控制权交给我们时，上帝保佑，我们将代表美国人民得到一些答案。”
+
+肯塔基州共和党参议员兰德-保罗（Rand Paul）发誓，如果共和党在中期选举中赢回参议院，将调查福奇。
+
+“如果我们在11月获胜，如果我是一个委员会的主席，如果我有传票权，我们将对他的每一份记录进行调查”，保罗说。“我们会有一个调查员逐一进行调查，因为我们不需要这种情况再次发生。”
+
+保罗本周提出一项修正案，将取消福奇作为国家过敏和传染病研究所主任的职位。
+
+保罗说，其目的是分散该职位，以便没有一个人可以以公共卫生的名义充当“总独裁者”。
+
+保罗的修正案将重组NIAID，将其分解为三个独立的国家研究机构，都有自己的主任，包括国家过敏性疾病研究所、国家传染病研究所和国家免疫性疾病研究所。
+
+“在过去的两年里，我们学到了很多东西，但有一个教训，特别是，没有一个人应该被视为‘总独裁者’”，保罗在宣布该修正案的声明中说。“没有一个人应该有单方面的权力来为数百万美国人做决定。”
+
+来源：[conservativebrief.com][Jordan Says GOP Will Investigate Dr. Fauci If They Win House in November](https://conservativebrief.com/gop-10-61110/)
+
+* * *
+
+审核：Aries的星
+校对：信心满满
+发布：花羽
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
 
  
 

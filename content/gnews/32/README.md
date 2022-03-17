@@ -2,24 +2,25 @@
 ---
 
 
-## 中共假借疫情防控发起经济超限战
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2177445/)
+## 乌国遭掳市长获释！乌克兰总统：他从未放弃！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2177735/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1838.png)图片链接：[中共自爆房地产，已然倒计时读秒 – GNEWS](https://gnews.org/zh-hans/2038850/)
-据加拿大媒体【CTV新闻】3月15日报道，由于中共近期加强了沿海各大货运港口的防疫控制，因而使汽车和电子工业原材料的进口受到阻断的风险。
+乌克兰东南部梅利托波尔市（Melitopol）市长费德罗夫（Ivan Fedorov）11日遭俄军掳走，一度传出他遭受酷刑，不过今天传出好消息，乌克兰以交换战俘的方式，成功让费德罗夫重获自由。
 
-报道称，当局在俄乌战争、油价飙升和消费疲软之际实施了极端的“病毒清零”政策。深圳、上海和宁波等港口业务的中断，将对国际贸易及其相关企业群体产生巨大冲击，并造成大量集装箱货运的长期停滞。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phpxAoWQi.jpg)图片来源：乌克兰大使馆网站
 
-评论指出：中共国目前的经济几近坍塌，特别是支撑其国内金融和劳动力市场的房地产建筑业已摇摇欲坠，而因此所导致的金融崩溃，必将使其在能源获取，产品供应链乃至互联网运行等方面都无以为继。
+乌克兰总统泽伦斯基慷慨激昂地说：「我们终于设法让梅利托波尔市市长获释，我们的梅利托波尔市不会向占领者屈服」，他还补充：「费德罗夫自由了，我已经与他有过联络，俄国军队在11日绑架他，并说服他合作，但费德罗夫没有低头，他从未放弃，我们也从未放弃，因为我们是乌克兰人」。
 
-随着欧美及其盟国即将把中共剔除出SWIFT国际金融系统，无法承受的内部危机必将迫使习近平当局为逃避灭亡，铤而走险武统台湾，从而因此正式打开彻底灭共的第三道大门。
+简评：千军易得，一将难求！费德罗夫没有低头，从未放弃，费德罗夫不仅仅忠诚于乌克兰，更是忠诚于正义不向邪恶低头！乌克兰人的骄傲！
 
-校对编辑：硫酸羟氯喹64
+新闻来源：[LTN](https://news.ltn.com.tw/news/world/breakingnews/3862267)
 
-发稿：青青
+撰稿/发布：一叶知秋
 
-原文链接：[China’s COVID cases climb, threaten trade disruption | CTV News](https://www.ctvnews.ca/health/coronavirus/china-s-covid-19-cases-climb-raise-threat-of-trade-disruption-1.5819524)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
