@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 10:22 PM (UTC)`
+
+2022年3月17日: 法治基金,法治社会捐款留言精选集<br/><br/>法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>March 17,2022 Rule of Law Foundation and Society donors messages collection <br/><br/>The Rule of Law Foundation and Society team heartfully thank all of our supporters and donors！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
+![img](https://media.gettr.com/group39/getter/2022/03/17/22/ed2345a6-3ad9-ebec-120d-ce9b7b07962b/out.jpg)
+
+---
+
 `@miles 3/17/2022 9:58 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-17
@@ -150,13 +157,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 【Ukraine Rescue】 03/16/22 Volunteer Wenyao set up a Kids Corner at the camp, where she drew pictures with the children to make them forget the pain bought by the war. A girl is so happy and she hugged Wenyao affectionately. The children’s mothers get to have some rest thanks to the Kids Corner.<br/><br/>【乌克兰救援】 03/16/22 文燿战友在基地设立了“孩子角”，亲自陪小朋友画画，让他们暂时忘记战争。小朋友们开心地玩耍，亲切地拥抱文燿。孩子们的妈妈们也终于能在此时得到一些休息。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group45/getter/2022/03/17/10/bd35874b-2cdc-7bb4-a2f9-064d9312fc7e/out.jpg)
-
----
-
-`@miles 3/17/2022 10:11 AM (UTC)`
-
-【Ukraine Rescue】03/16/2022 Polish journalist Rafał Miżejewski quoted Nicole’s words in his tweets: "The Chinese Communist Party does not represent China, and it’s dictatorship, that's why we are we are providing help for refugees and we stay side by side with Ukrainian people."<br/><br/>【乌克兰救援】03/16/2022  波兰记者Rafał Miżejewski在推特上引用妮可战友的话："中共当局不能代表中国，它是独裁政权，这就是我们帮助救援的原因，我们与乌克兰人站在一起"<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group40/getter/2022/03/17/10/e451fc37-9dfd-eb21-911c-c92f5c690785/out.jpg)
 
 ---
 
