@@ -2,26 +2,40 @@
 ---
 
 
-## 中日财经爆┃监守自盗的中共国银行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2180193/)
+## 沃尔玛计划在美国招聘5万多名员工以应对劳动力短缺
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2180435/)
 
-撰稿：东京樱花/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-81.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2022%252F0316%252Fd91ea3c4j00r8tw67002nd000gx00asp.jpg%26thumbnail%3D660x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FH2JH2DAJ0519RAAQ.html&amp;tbnid=dxrQj8r2fCkQSM&amp;vet=12ahUKEwjFwZ7ph832AhUG5hoKHcBlD4QQMygFegUIARCuAQ..i&amp;docid=4IOz96x_XEqiQM&amp;w=609&amp;h=388&amp;q=%E5%B7%A5%E5%95%86%E9%93%B6%E8%A1%8C%E5%8D%97%E5%AE%81%E5%88%86%E8%A1%8C&amp;ved=2ahUKEwjFwZ7ph832AhUG5hoKHcBlD4QQMygFegUIARCuAQ)
-3月17日凤凰财经新闻，南宁市多个储户在工商银行南宁分行的逾2.5亿元存款“不翼而飞”，暗箱操作的银行高管一审获无期徒刑，案发后仍有约1.2亿元未归还，但是法院认为银行不用承担任何赔付责任，涉案的储户陷入了血本无归的境地。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-为什么银行可以完全免责？3月14日，就梁建红一案有关问题，记者电话联系到梁建红案时任工行广西分行副行长、南宁分行主要负责人，但他拒绝了记者的采访请求，仅表示“这个不接受采访，谢谢”。
+整理：gardeniahu
+编辑：围剿维尼熊
 
-银行转挪客户账户资金是从2018年9月起，一直持续到2019年5月，作案时间跨度如此之长，为何银行内其他人毫无察觉？据报道，经受害者反映和判决书证实，2018年12月7日，在中国工商银行南宁市东葛东支行，一名储户曾拿着经工作人员替换的假存单来办业务，被柜员识破系伪造后当场报警。然而，这起案件最终不了了之，使涉案人员得以继续作案半年之久。银行是否涉嫌包庇自己的员工？为何在发现问题后没有及时启动调查？银行在内控机制上存在哪些漏洞导致内鬼有机可乘？这些问题都是导致涉事银行犯罪行为。高管是银行的员工，银行是法人。法人应该承担相应的法律责任。如果高管有过错银行可向高管追究。因为至始至终和储户发生合同关系的是银行，不是银行员工。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe-2.png)图片来源：雅典娜设计组
 
-在储户迈入银行大门、选择在某家银行储蓄时，一定是相信了这家银行存款是可靠的，银行的工作人员也是可以信赖的。银行工作人员如果没有银行背书，恐怕储户也不会轻易相信一个陌生人推荐的存款产品。因中共国是独裁者统治的社会，已失去了法律监管约束的能力，只要有足够大的权力，就可以为所欲为，也致使银行可以随意的盗取客户账户存款这样监守自盗的行为屡次发生而不受法律约束。
 
-消息来源：
+据财联社3月17日讯，零售巨头沃尔玛公司（NYSE:WMT）美东时间周三（3月16日）宣布，计划在5月前招聘5万多名美国员工，以增强其物流中心和门店的实力。
 
-[【2.5亿存款不翼而飞“案中案”：工行女高管诈骗被判无期，涉案金额达35.6亿】](https://ml.mbd.baidu.com/r/CXVZLXZAbu?f=cp&amp;rs=181255381&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=a0f18f889b236761&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+因新冠疫情的原因，零售行业正在面临工人短缺的情况，各公司都在努力留住和雇佣更多的工人。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+在劳动力市场吃紧的情况下，沃尔玛将员工平均时薪提高到了16.40美元，在某些特定岗位，起薪高达每小时30美元。
+
+作为世界上最大的零售公司，沃尔玛表示，新招聘员工将主要在其门店、俱乐部和供应链中担任职务。
+
+公司正在将目光投向大卖场以外的领域，因为它正在加强其广告业务，扩大其第三方市场，并在更多的市场推出直接送货上门的食品杂货配送服务。
+
+美国全国零售联合会周二表示，预计今年零售销售行业将稳步增长，从而将加大对工人的需求。
+
+参考链接：[沃尔玛积极扩张业务 计划在美国招聘5万多名员工](https://m.cn.investing.com/news/stock-market-news/article-2089398)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

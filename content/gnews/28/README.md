@@ -2,24 +2,27 @@
 ---
 
 
-## 樱花时政┃岸田总理明确表示北方领土被“非法占领”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2180074/)
+## 欧盟通过具有里程碑意义的数字货币监管新草案
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2180169/)
 
-撰稿：东京樱花团/ haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-80.jpg)[图片来源](https://news.yahoo.co.jp/articles/eb915aabdf84031ebd576b873fb75bbe05dadd29/images/000)
-据产经新闻报道，日本首相岸田文雄在3月17日上午举行的参议院预算委员会上，就北方领土问题表示:“我们的立场是，被俄罗斯非法占领的。”政府对俄罗斯入侵乌克兰的行为表示“没有法律依据的占领”、“没有任何法律依据，是非法的”，自民党外交部会长佐藤正久主张：“应该用4个字明确‘非法占领’”。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/R2QXCSQ5HNAFBDHR6HB6JNWUBA.jpg)
+外媒报道，3月15日，欧盟议会的经济和货币事务委员会以31票对4票通过了数字货币市场监管的框架草案。24票弃权。该框架草案称为MiCA，包括数字货币的发行和交易，以及通过成员国之间有效的许可证来确保全面扩张。反对市场操纵和洗钱、恐怖主义融资和其他犯罪活动。
 
-就北方领土问题，日本政府推进日俄和平条约协商，一直回避使用“日本固有领土”或“非法占领”等措辞。俄军入侵乌克兰后，总理再次使用了“固有领土”一词。
+这是欧盟具有里程碑意义的一个框架草案，它预示欧盟数字货币全面监管法案正在快速完善。目前该草案已经进入下一步谈判流程。
 
-对于“没有任何法律依据，是非法的”的说法，佐藤指出：“虽然有些深入，但是非常绕弯子。”到平成21年麻生太郞政府为止，一直明确地表示了“非法占据”，主张对俄罗斯应强硬态度，应该改变说法。
+据悉此前该委员会取消了能源消耗过高的数字货币矿工工作模式，后续的替代条款要求在2025年之前将这些企业列入分类系统，逐渐减轻数字货币的高碳排放对环境带来的污染，尽量使用可再生能源。
 
-信息来源：
+撰稿、发布：银河系农场—-骄子
 
-[首相、北方領土は「不法占拠」と明言](https://news.yahoo.co.jp/articles/155cca96d3cbeb5910aaa8ce0cb3ff288f675a33)
+reference：[https://www.coindesk.com/policy/2022/03/14/eus-sweeping-crypto-regulations-package-one-step-closer-to-ratification/](https://www.coindesk.com/policy/2022/03/14/eus-sweeping-crypto-regulations-package-one-step-closer-to-ratification/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0313_Handflag17x24cm2-2.png)
+欢迎订阅我们的G-News账号：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+* * *
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

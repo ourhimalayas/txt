@@ -2,28 +2,88 @@
 ---
 
 
-## 中日财经爆┃因涉北韩劳工李宁产品遭美国海关查扣
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2177745/)
+## 国务院：任何支持普京谎言的国家(比如中共国)都是在加剧乌克兰的毁灭
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2178013/)
 
-撰稿人：东京樱花团/山顶闲人
+> 美国国务院：
+> 美国在乌克兰没有化学或生物武器计划。
+> 俄罗斯政府需要停止说谎 [#StopTheLies](https://twitter.com/hashtag/StopTheLies?src=hash&amp;ref_src=twsrc%5Etfw)。
+> 【附中字视频：任何支持这些谎言的国家(如 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw))都是在加剧乌克兰的毁灭】 [https://t.co/XbrNQ5m6E2](https://t.co/XbrNQ5m6E2) [pic.twitter.com/Za2HAA6x4x](https://t.co/Za2HAA6x4x)
+> — 美国政要直译推 (@zhiyitw33) [March 17, 2022](https://twitter.com/zhiyitw33/status/1504287097636548610?ref_src=twsrc%5Etfw)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1845.png)图片来源于本文链接
-美国海关和边境保护局在当地时间15日发出的声明中表示，美国各地海关自昨(14日)起执行有关拘留令，若李宁公司能够在扣留通知发出后30天内提供明确和令人信服的证据，证明其商品不是由罪犯劳工、强迫劳工或受刑事制裁的契约劳工所生产，有关产品将可获放行，否则商品可能会被扣押和没收。
 
-根据2017年通过的美国敌对国家制裁法案（Countering America’s Adversaries Through Sanctions Act，简称CAATSA），任何产品若其生产全部或部分涉及北韩、伊朗及俄罗斯，均不可入口美国，除非生产商能证明有关产品不涉及强迫劳动力。
+参议员玛莎·布莱克本： #共产主义中国 希望利用发生在世界舞台上的危机——我们承受不起拜登政府的失策。
 
-不过，北韩多年来向俄罗斯和中国等地派遣数以万计的公民从事体力劳动，并从中获得5亿美元的外汇。根据彭博通讯社纪录，有关款额在联合国2017年叫停这种做法以惩罚平壤的核试验和弹道导弹试射时，约占该国经济的1.5%。自此，尽管俄罗斯已停止聘用北韩劳工，但仍有北韩人到中俄做工，主要从事伐木工作，人数可能涉及数千人，但由于俄罗斯受制裁，有关工人以支薪，令北韩获得外汇的数额有所减少。
 
-中共国很多所谓成功的巨型私人企业，背后都有中共红色权贵家族利用权力和行政资源，对这些巨型私人企业提供扶持和政策倾斜，而中共红色权贵家族又通过这些企业攫取大量财富。而作为中共国体育用品巨头的李宁正是这种企业的代表，背后的中共红色权贵家族利用自己的权力，为李宁公司提供来自北韩的廉价劳动力，使李宁的产品拥有更低的成本，在国际上更有竞争力。本次李宁公司产品被查扣事件，还能看出中共强迫新疆人进行劳动并非空穴来凤，中共早已在人权议题上劣迹斑斑，不知多少来自少数民族和其他中共友邦的民众在中共国境内进行着高强度的体力劳动，再次证明了中共不灭，世界不宁。
 
-消息来源：[美国禁李宁产品入口 疑涉北韩强迫劳工](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220316-%E7%BE%8E%E5%9B%BD%E7%A6%81%E6%9D%8E%E5%AE%81%E4%BA%A7%E5%93%81%E5%85%A5%E5%8F%A3-%E7%96%91%E6%B6%89%E5%8C%97%E9%9F%A9%E5%BC%BA%E8%BF%AB%E5%8A%B3%E5%B7%A5)
+> Communist China wants to take advantage of the crises happening on the world stage — we cannot afford a slip up by the Biden administration.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 16, 2022](https://twitter.com/MarshaBlackburn/status/1504149600860577792?ref_src=twsrc%5Etfw)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
+
+
+参议员卢比奥新闻办公室： 参议员卢比奥、格雷厄姆和同事们赞赏参议院一致通过了两党决议，呼吁普京和他的政权成员为被指控的战争罪行、侵略和侵犯人权行为负责。
+
+
+
+> Sen Rubio, [@LindseyGrahamSC](https://twitter.com/LindseyGrahamSC?ref_src=twsrc%5Etfw), & colleagues applauded the Senate's unanimous passage of their bipartisan resolution calling for [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) & members of his regime to be held accountable for acts of alleged war crimes, aggression, & human rights abuses.
+> 
+> Read ⬇️[https://t.co/xO6phndG53](https://t.co/xO6phndG53)
+> — Senator Rubio Press (@SenRubioPress) [March 16, 2022](https://twitter.com/SenRubioPress/status/1504153298416328705?ref_src=twsrc%5Etfw)
+
+
+
+白宫： 今天,总统宣布了一项8亿美元的援助计划，帮助乌克兰抵御俄罗斯的无理入侵。 这使得美国在过去一周承诺给乌克兰的安全援助总额达到10亿美元，自总统上任以来共达20亿美元 。新的8亿美元一揽子计划包括: – 800套防空系统 – 9000套反装甲系统 – 7,000件小型武器 – 2000万发子弹 -无人机系统 等等。这种援助将采取直接从国防部向乌克兰军方移交设备的形式。我们继续与盟国和伙伴合作，为向乌克兰输送更多援助提供便利。
+
+
+
+> Today, [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) announced an $800M assistance package to help Ukraine defend their country against Russia’s unprovoked and unjustified invasion.
+> 
+> This brings the total U.S. security assistance committed to Ukraine to $1B in the past week and a total of $2B since [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) took office.
+> — The White House (@WhiteHouse) [March 16, 2022](https://twitter.com/WhiteHouse/status/1504148983849050122?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨： [#中国共产党](https://gettr.com/hashtag/%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A) 最高领导人习近平试图挽救北京对弗拉基米尔.普京的投资，但在乌克兰入侵中面临重大考验 【转华盛顿时报比尔.格茨报道：俄罗斯入侵乌克兰考验中国领导人 – 习近平支持普京，但西方制裁可能打击北京】
+
+
+
+> Chinese Communist Party Supreme Leader Xi Jinping is trying to salvage Beijing’s investment in Vladimir Putin but is facing a major test in the Ukraine invasion [https://t.co/YU5er4iXAD](https://t.co/YU5er4iXAD)
+> — Bill Gertz (@BillGertz) [March 16, 2022](https://twitter.com/BillGertz/status/1504083558599700486?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎.布莱克本： 沙特阿拉伯希望使用 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的数字人民币进行石油销售。 我们的对手正在利用这个机会排挤美国，只要拜登允许他们这样做，他们就会继续。
+
+
+
+> Saudi Arabia wants to use Communist China’s Digital Yuan for oil sales.
+> 
+> Our adversaries are using this opportunity to dismiss the U.S., and they will continue to do so as long as Biden allows them to.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 16, 2022](https://twitter.com/MarshaBlackburn/status/1504179978954579969?ref_src=twsrc%5Etfw)
+
+
+
+拜登总统： 普京正在给乌克兰造成骇人听闻的破坏和恐怖——轰炸公寓楼和产科病房。 昨天，我们看到有报道称俄罗斯军队将数百名医生和病人扣为人质。 这些都是暴行。 使世界愤慨。
+
+
+
+> Putin is inflicting appalling devastation and horror on Ukraine — bombing apartment buildings and maternity wards. 
+>  
+> Yesterday, we saw reports that Russian forces were holding hundreds of doctors and patients hostage.
+>  
+> These are atrocities. It is an outrage to the world.
+> — President Biden (@POTUS) [March 16, 2022](https://twitter.com/POTUS/status/1504182615011643403?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥： 英国以 5.3 亿美元的价格解救出其被扣为人质的公民。 我们(川普政府) 阻止了支付血钱 —— 不奖励人质劫持者。那笔现金会用来恐吓以色列、英国和美国。 可悲的是，伊朗与俄罗斯和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 一起正在向西方发起冲击。 绥靖政策在失败之前总是感觉良好 —— 它向来如此。 【转美联社记者推文：伊朗官方媒体称，英国已经“偿还了德黑兰5.3亿美元的长期逾期债务”，双重国籍者被释放。】
+
+
+
+> The UK priced taking & holding its citizens hostage at $530 million. We prevented paying blood money— not rewarding hostage-takers. That cash will terrorize Israel, UK & US. Sadly, Iran, w/Russia & China, is rolling the West. Appeasement feels good until it fails— it always does. [https://t.co/0VcGfgQSD7](https://t.co/0VcGfgQSD7)
+> — Mike Pompeo (@mikepompeo) [March 16, 2022](https://twitter.com/mikepompeo/status/1504199072604958722?ref_src=twsrc%5Etfw)
+
 
 
  

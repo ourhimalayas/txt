@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 1:51 PM (UTC)`
+
+3/15/2022 Miles Guo: The Hang Seng Index is a bubble completely made up by the CCP. It is the enterprises under the CCP’s control that are manipulating the financial market in Hong Kong. The recent plunge of the China concepts stock is unprecedented in the history of humanity. The Hang Seng Index dropping below 20,000 means that the international financial scam launched by the CCP can no longer continue.<br/><br/>3/15/2022 文贵直播：恒生指数都是中共兑的水，中共控制的企业在操纵着香港金融市场；最近中概股的大跌在人类上前所未有；恒生跌破2万点说明中共在香港的国际金融骗局玩不下去了<br/>
+![img](https://media.gettr.com/group38/getter/2022/03/17/13/02d3f827-97a2-522e-bd0d-7d2cfc9f12fb/out.jpg)
+
+---
+
+`@miles 3/17/2022 1:49 PM (UTC)`
+
+Chinese Communist Party Again Deliberately Undermines NFSC Rescue<br/>中国共产党再次蓄意破坏新中国联邦救援行动
+![img](https://media.gettr.com/group23/origin/2022/03/17/13/e02e81d8-3c6d-ab38-cae0-1e295ddb9dda/out.jpg)
+
+---
+
+`@miles 3/17/2022 1:44 PM (UTC)`
+
+3/15/2022 Miles Guo: Hong Kong, as an international financial city, used to show to the world that Chinese people deserve democracy, rule of law and freedom; however, the Chinese Communist Party completely turned Hong Kong into a dead city by: (1)  symbolically dispatching PLA in Hong Kong, (2) taking over Hong Kong Stock Exchange, and (3) taking over HK Legislative Council<br/><br/>3/15/2022 文贵直播：香港曾向世界展示中国人有能力拥有民主、法治和自由，但中共通过以下三件事：1）解放军要象征性进驻；2）拿下香港交易所；3）拿下香港立法委，彻底把香港变成死港<br/>
+![img](https://media.gettr.com/group23/getter/2022/03/17/05/6b63af54-d906-425d-3006-c9d47b19140a/out.jpg)
+
+---
+
 `@miles 3/17/2022 12:12 PM (UTC)`
 
 2022年3月17日 文贵大直播：俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向
@@ -134,27 +155,6 @@ The new Chinese volunteers working at the rescue center at Medyka are not from t
 
 3/15/2022 Miles Guo: The fall of Hong Kong's Hang Seng Index below 20,000 points means that it has lost its base of the GDP required by the Hong Kong dollar to be pegged to the US dollar. The collapse of Hong Kong's economy would lead to a chain reaction in Guangdong. The conflict will intensify between the retired and new CCP Politburo Standing Committee members who have many interests in Guangdong, and this will make the Ceausescu’s moment happen to the CCP sooner.<br/><br/>3/15/2022 文贵直播: 香港恒生指数跌破2万点意味着港币失去了和美元挂钩的GDP的基础；香港经济的崩溃会导致广东产生连锁反应。在广东拥有众多利益的新老常委之间的矛盾会愈演愈烈，加速了齐奥塞斯库效应的到来<br/>
 ![img](https://media.gettr.com/group39/getter/2022/03/17/00/ebafb129-088a-c673-3494-1bcbb495a6f1/out.jpg)
-
----
-
-`@miles 3/16/2022 11:30 PM (UTC)`
-
-2022.03.16《The Fringe》 Episode 148
-![img](https://media.gettr.com/group44/origin/2022/03/16/23/857daff6-8aa8-c647-5b07-ec621dce4bb5/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/16/2022 11:01 PM (UTC)`
-
-2022.03.16 NFSC News   NFSC Volunteers overcome difficulties and stick to their duty； CCP and Russia’s plot on countering and diverting attention of the West
-![img](https://media.gettr.com/group41/origin/2022/02/19/23/808a60d4-ecaa-654c-ec2c-280a21ab4033/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/16/2022 10:04 PM (UTC)`
-
-3/15/2022 Miles Guo: The CCP is sparing no effort to defame the New Federal State of China and our rescue operation in Ukraine by spreading rumors in Africa and sending CCP-backed Bloomberg to interview us as a setup, but Nicole and our fellow fighters did an excellent job with smart responses at the interview; the NFSC people on the frontline demonstrate a new image of the new Chinese that earns respect from other Asian countries<br/><br/>3/15/2022  文贵直播:  中共不遗余力地企图诋毁新中国联邦在乌克兰的救援行动，他们不但在非洲散布谣言，还在乌克兰救援前线通过布隆伯格的采访给新中国联邦挖坑，但Nicole和前线战友们表现绝佳机智应对；新中国联邦人在前线展现了令其他亚洲国家尊重的新中国人的形象<br/>
-![img](https://media.gettr.com/group14/getter/2022/03/16/22/06c86e7c-d5ce-a148-3a67-848a8f4f17ba/out.jpg)
 
 ---
 
