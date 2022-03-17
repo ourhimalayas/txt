@@ -2,20 +2,47 @@
 ---
 
 
-## 钢琴上的和平天使——Davide Martello
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2179371/)
+## 英国国家犯罪署正在追查普京及其亲信在伦敦资产
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2179617/)
 
-#### 撰稿: nstar
-![](https://assets.gnews.org/wp-content/uploads/2022/03/钢琴.jpg)
-Davide Martello 于1981年11 月 1 日出生于德国 Lörrach 市（黑森林的弗赖堡的西南部，德国、法国和瑞士的边界三角区）, 现在住在博登湖畔直接与瑞士接壤的大学城康斯坦斯。他的父亲鼓励他的才华，分享他对古典音乐的热爱。 13岁时，他创作了自己的作品。 27 岁时申请到柏林的一所音乐学校，但他更愿意追求自己改造钢琴的梦想。他买了一架旧三角钢琴，在里面安装了扬声器和 LED 灯。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-他在波茨坦广场演奏了他的第一场“音乐会”。自 2011 年以来，他一直在世界各地旅行，并在建筑有趣的地方表演自己的作品。 Martello在新闻界被称为“钢琴上的和平天使”。
+翻译：文扬
+编辑：文泓
 
-Davide在梅迪卡了解到，梅迪卡救援中心工作的中国志愿者并非来自中共统治的中国，他们是代表NFSC（新中国联邦）和ROLF（法治基金会）的民主世界爱好和平的新中国人。新中国联邦人在乌克兰的道救援行动，受到了世界爱好和平人士的赞赏，在救援前线的大爱和友善形象，让世界看到了一个和中共奴役下的中国人完全不一样的形象。让人们明白, 我们爱好和平, 共产党不代表中国人!
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/TPJ9MZHXA@O6CQWYJ-1.png)图片来源：Republic World & 雅典娜设计组
 
-Davide Martello 为感谢法治基金和新中国联邦在战争和硝烟中和乌克兰人们站在一起, 给人们带来温暖和希望，特意弹奏[新中国联邦国歌](https://gettr.com/post/p10cou)，以示敬意。
 
-22 年 3 月 16 日，战地钢琴家Davide Martello主动要求弹奏Nicole战友曾经给他播放的《[灭共的雪](https://gettr.com/post/p10ea6%E2%80%A6)》。
+**目前俄乌冲突正不断升级，俄罗斯正面临着全球孤立和经济危机，西方国家对俄进行多重制裁，世界各大品牌也因其入侵乌克兰的行动而退出俄罗斯市场。**
+
+**持续的俄乌冲突导致了包括儿童在内的大量生命损失，死亡人数每天都在上升。由于俄罗斯继续炮击和轰炸乌克兰城市，这场危机还造成了财产损失。**
+
+**美国和其他北约盟国正在呼吁停火和进行外交对话。他们还在对俄罗斯和俄罗斯人实施制裁，逼迫俄罗斯总统弗拉基米尔·普京能够结束这场冲突。**
+
+**近日，俄罗斯卫星通讯社发表的一份报告称，英国国家犯罪署（NCA）将与该国的情报部门合作，以确定据称由普京及其同伙在伦敦保存的资产。**
+
+《每日电讯报》周三（3月16日）的一份报告援引英国国家犯罪署的消息称，普京价值数百万美元的个人资产被藏匿在伦敦，该机构将与军情五处、军情六处和政府通信总部（GCHQ）机构合作，力求追查这些资产。
+
+一位消息人士告诉记者：“现在已有专人在那里（NCA）工作，这就是‘反专制洗钱’小组将投入时间的原因。该小组将追踪普京和他的亲信的钱。”
+
+根据该报告，这次对普京资产的调查不会简单，还将包括白俄罗斯在英国的资金。“我们将使用该机构可用的所有立法选项和策略来起诉那些在英国清洗资产的腐败精英，”该报援引一位英国国家犯罪署发言人的话说。
+
+在普京于2月24日下令在乌克兰采取“军事行动”后，英国随即实施制裁，冻结俄罗斯总统和外交部长谢尔盖·拉夫罗夫的资产。
+
+**根据英国的制裁名单，拉夫罗夫是俄罗斯政府的关键决策者。**
+
+原文链接： [Kleptocracy hunt: UK to go after Putin’s London assets worth millions of pounds, World News | wionews.com](https://www.wionews.com/world/uk-security-services-to-go-after-vladimir-putins-millions-of-dollars-worth-of-assets-in-london-462923)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 

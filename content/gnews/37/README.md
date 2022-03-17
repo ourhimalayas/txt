@@ -2,36 +2,88 @@
 ---
 
 
-## 中日财经爆| 美联储宣布自2018年以来首次加息
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2177881/)
+## 国务院：任何支持普京谎言的国家(比如中共国)都是在加剧乌克兰的毁灭
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2178013/)
 
-撰稿：东京樱花团/peterwong
+> 美国国务院：
+> 美国在乌克兰没有化学或生物武器计划。
+> 俄罗斯政府需要停止说谎 [#StopTheLies](https://twitter.com/hashtag/StopTheLies?src=hash&amp;ref_src=twsrc%5Etfw)。
+> 【附中字视频：任何支持这些谎言的国家(如 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw))都是在加剧乌克兰的毁灭】 [https://t.co/XbrNQ5m6E2](https://t.co/XbrNQ5m6E2) [pic.twitter.com/Za2HAA6x4x](https://t.co/Za2HAA6x4x)
+> — 美国政要直译推 (@zhiyitw33) [March 17, 2022](https://twitter.com/zhiyitw33/status/1504287097636548610?ref_src=twsrc%5Etfw)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/03172.png)[图片来源](https://www.businesstoday.in/latest/policy/story/us-federal-reserve-sees-case-building-for-interest-rate-cuts-this-year-204770-2019-06-20)
-美国联邦储备委员会周三(3月16日)宣布自2018年来首次加息，并制定了一项激进的计划，希望明年将借贷成本推至限制性水平，对高通胀和乌克兰战争的担忧盖过了中共病毒大流行的风险。
 
-联邦公开市场委员会以加息25个基点开始了收紧政策的行动，将指标利率从目前的近零水平上调的举措将影响到针对消费者和企业的其他各种利率。
+参议员玛莎·布莱克本： #共产主义中国 希望利用发生在世界舞台上的危机——我们承受不起拜登政府的失策。
 
-美联储出人意料地预计，在今年剩下的六次政策会议上，每次都会加息25个基点，这将使联邦基金利率目标区间在2022年底达到1.75%-2.00%。到明年年底，政策利率预计将达到2.80%，高于政策制定者现在认为的会减缓经济增长的2.40%的水平。
 
-美联储主席鲍威尔在为期两天的会议结束后表示,经济表现强劲，且如果需要，联储官员将在未来的会议上更加激进地加息以控制通胀。
 
-美联储决策者将2022年的经济增长预测从去年12月预计的4%下调至2.8%，他们开始考虑全球经济面临的新风险。
+> Communist China wants to take advantage of the crises happening on the world stage — we cannot afford a slip up by the Biden administration.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 16, 2022](https://twitter.com/MarshaBlackburn/status/1504149600860577792?ref_src=twsrc%5Etfw)
 
-美联储在一份声明中表示：“俄罗斯入侵乌克兰造成了巨大的民众苦难和经济困难。这对美国经济的影响高度不确定，但在短期内，入侵和相关事件可能会给通胀带来额外的上行压力，并给经济活动造成压力。”
 
-联储在此份声明中放弃了此前长期使用的说法，即疫情是美国面临的最直接经济风险。这标志着全面抗疫行动已经结束，美联储宣布提高联邦基金利率，并承诺“持续加息”以遏制目前处于40年来最高水平的通胀。
 
-最新声明称，美联储预计将在“未来的一次会议上“开始缩减其近9万亿美元的资产负债表。
+参议员卢比奥新闻办公室： 参议员卢比奥、格雷厄姆和同事们赞赏参议院一致通过了两党决议，呼吁普京和他的政权成员为被指控的战争罪行、侵略和侵犯人权行为负责。
 
-消息来源：[**综述：美联储宣布加息25个基点 并暗示将采取更激进利率路径阻击通胀（更新版）**](https://cn.reuters.com/article/wrapup-fed-0316-idCNKCS2LE02Y?il=0)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
+
+> Sen Rubio, [@LindseyGrahamSC](https://twitter.com/LindseyGrahamSC?ref_src=twsrc%5Etfw), & colleagues applauded the Senate's unanimous passage of their bipartisan resolution calling for [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) & members of his regime to be held accountable for acts of alleged war crimes, aggression, & human rights abuses.
+> 
+> Read ⬇️[https://t.co/xO6phndG53](https://t.co/xO6phndG53)
+> — Senator Rubio Press (@SenRubioPress) [March 16, 2022](https://twitter.com/SenRubioPress/status/1504153298416328705?ref_src=twsrc%5Etfw)
+
+
+
+白宫： 今天,总统宣布了一项8亿美元的援助计划，帮助乌克兰抵御俄罗斯的无理入侵。 这使得美国在过去一周承诺给乌克兰的安全援助总额达到10亿美元，自总统上任以来共达20亿美元 。新的8亿美元一揽子计划包括: – 800套防空系统 – 9000套反装甲系统 – 7,000件小型武器 – 2000万发子弹 -无人机系统 等等。这种援助将采取直接从国防部向乌克兰军方移交设备的形式。我们继续与盟国和伙伴合作，为向乌克兰输送更多援助提供便利。
+
+
+
+> Today, [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) announced an $800M assistance package to help Ukraine defend their country against Russia’s unprovoked and unjustified invasion.
+> 
+> This brings the total U.S. security assistance committed to Ukraine to $1B in the past week and a total of $2B since [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) took office.
+> — The White House (@WhiteHouse) [March 16, 2022](https://twitter.com/WhiteHouse/status/1504148983849050122?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨： [#中国共产党](https://gettr.com/hashtag/%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A) 最高领导人习近平试图挽救北京对弗拉基米尔.普京的投资，但在乌克兰入侵中面临重大考验 【转华盛顿时报比尔.格茨报道：俄罗斯入侵乌克兰考验中国领导人 – 习近平支持普京，但西方制裁可能打击北京】
+
+
+
+> Chinese Communist Party Supreme Leader Xi Jinping is trying to salvage Beijing’s investment in Vladimir Putin but is facing a major test in the Ukraine invasion [https://t.co/YU5er4iXAD](https://t.co/YU5er4iXAD)
+> — Bill Gertz (@BillGertz) [March 16, 2022](https://twitter.com/BillGertz/status/1504083558599700486?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎.布莱克本： 沙特阿拉伯希望使用 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的数字人民币进行石油销售。 我们的对手正在利用这个机会排挤美国，只要拜登允许他们这样做，他们就会继续。
+
+
+
+> Saudi Arabia wants to use Communist China’s Digital Yuan for oil sales.
+> 
+> Our adversaries are using this opportunity to dismiss the U.S., and they will continue to do so as long as Biden allows them to.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 16, 2022](https://twitter.com/MarshaBlackburn/status/1504179978954579969?ref_src=twsrc%5Etfw)
+
+
+
+拜登总统： 普京正在给乌克兰造成骇人听闻的破坏和恐怖——轰炸公寓楼和产科病房。 昨天，我们看到有报道称俄罗斯军队将数百名医生和病人扣为人质。 这些都是暴行。 使世界愤慨。
+
+
+
+> Putin is inflicting appalling devastation and horror on Ukraine — bombing apartment buildings and maternity wards. 
+>  
+> Yesterday, we saw reports that Russian forces were holding hundreds of doctors and patients hostage.
+>  
+> These are atrocities. It is an outrage to the world.
+> — President Biden (@POTUS) [March 16, 2022](https://twitter.com/POTUS/status/1504182615011643403?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥： 英国以 5.3 亿美元的价格解救出其被扣为人质的公民。 我们(川普政府) 阻止了支付血钱 —— 不奖励人质劫持者。那笔现金会用来恐吓以色列、英国和美国。 可悲的是，伊朗与俄罗斯和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 一起正在向西方发起冲击。 绥靖政策在失败之前总是感觉良好 —— 它向来如此。 【转美联社记者推文：伊朗官方媒体称，英国已经“偿还了德黑兰5.3亿美元的长期逾期债务”，双重国籍者被释放。】
+
+
+
+> The UK priced taking & holding its citizens hostage at $530 million. We prevented paying blood money— not rewarding hostage-takers. That cash will terrorize Israel, UK & US. Sadly, Iran, w/Russia & China, is rolling the West. Appeasement feels good until it fails— it always does. [https://t.co/0VcGfgQSD7](https://t.co/0VcGfgQSD7)
+> — Mike Pompeo (@mikepompeo) [March 16, 2022](https://twitter.com/mikepompeo/status/1504199072604958722?ref_src=twsrc%5Etfw)
+
 
 
  

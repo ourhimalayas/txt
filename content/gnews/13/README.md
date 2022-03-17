@@ -2,22 +2,93 @@
 ---
 
 
-## 世界排名第一的俄罗斯网球选手可能会被禁止参赛，除非他反对普京
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2179648/)
+## 两位被救助的老人
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2179787/)
 
-#### 翻译/撰稿：zzballack
+作者：美东香草山教育部-蓝之灵（Hortensia)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-83.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6E9206EB-640E-4DC4-8E12-F6CD0EBFCA9C-1.jpeg)
+两位老人
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-11.jpg)图片来源：天空体育
-据《雅虎体育》3月16日报道，世界男子网球头号单打选手、俄罗斯运动员丹尼尔·梅德韦杰夫 (Daniil Medvedev)可能会被禁止参加温布尔登（Wimbledon）网球公开赛，除非他公开谴责俄罗斯总统普京。
+落入战火风云
 
-英国体育大臣奈及尔·休德森 (Nigel Huddleston)透露，他们正在与全英俱乐部讨论阻止普京的支持者参与这一重大网球赛事。当休德森做出上述决定的时候，俄罗斯和白俄罗斯的运动员正在遭受前所未有的体育制裁，包括被排除出男子戴维斯杯和女子比莉·简·金杯网球团体赛事。
+似水中浮萍
 
-休得森3月15日在英国议会数字、文化、媒体和体育特别委员会举办的听证会上表示：“需要做得远不止这些。我们可能需要一些保证，即便他们不是普京的支持者。我们正在考虑可能需要提出什么样的要求，以尝试获得这些方面的保证。”当被问及希望在英国参赛的俄罗斯和白俄罗斯运动员是否会被英国政府要求谴责普京时，休德森说：“细节仍在讨论中，其中也包括与其他国家进行的此类讨论。如果我们能就此达成某种广泛的全球共识，那就更好了。”
+似落叶
 
-自俄罗斯无端地对乌克兰发动侵略以来，全球各行各业的俄罗斯人或多或少地受到了波及：寡头的资产被冻结、体育界的个人和团队被禁止参加国际赛事、知名艺人不得不另投它国或者取消演出。虽然这种连坐制度有些太过苛刻，但这也为全球的华人甚至亚裔敲响警钟。随着中共在全球到处制造仇恨，导致排华现象会不可避免地到来。海内外华人甚至亚裔必须明确表达自己的反共灭共立场，并用实际行动向世人证明这一点，新中国联邦的新中国人在波兰的梅迪卡救援中心进行的乌克兰人道主义救援行动就是一个最好的参考。
+就要飘零
 
-新闻来源：[Daniil Medvedev may be banned from Wimbledon unless he denounces Putin](https://sports.yahoo.com/daniil-medvedev-may-be-banned-from-wimbledon-unless-he-denounces-putin-181432724.html)
+新中国联邦勇士
+
+开着巴士
+
+在危机中
+
+拯救生命
+
+来也匆匆
+
+去也匆匆
+
+两位老人
+
+搭上了巴士
+
+穿越危险重重
+
+来到了安全的大帐篷
+
+新中国联邦人
+
+全程陪同
+
+来也从容
+
+去也从容
+
+两位老人
+
+坐上飞机
+
+去往美国
+
+离开熟悉故土
+
+泪眼朦胧
+
+来时充满憧憬
+
+去时留有愿景
+
+两位老人
+
+得到新中国联邦救助
+
+安全前行
+
+留下愿景
+
+祈求和平
+
+但愿有一日
+
+回归故土
+
+再见
+
+欣欣向荣
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-48.jpg)
+
+编辑/校对/发稿：林礼
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
