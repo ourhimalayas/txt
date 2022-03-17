@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 5:23 AM (UTC)`
+
+3/15/2022 Miles Guo: The COVID virus outbreak and economic crisis happening in Hong Kong will lead to a series of problems in China：the real estate market will start to collapse most likely from the north all the way to the south, and the pandemic is getting further out of control; the CCP’s last hope is to attack Taiwan, which opens the third door to taking down the CCP<br/><br/>3/15/2022 文贵直播：香港病毒和经济危机会进而导致中共国自北向南一系列的房地产崩盘和进一步病毒失控，中共最后的疯狂必将是打台湾，届时灭共第三道大门就会打开<br/>
+![img](https://media.gettr.com/group20/getter/2022/03/17/05/bf04fced-8680-87f2-6d01-0cc92d5053a5/out.jpg)
+
+---
+
 `@miles 3/17/2022 2:55 AM (UTC)`
 
 安红妹妹就是青蒿素和酒一起吃出的问题。在这里再次提醒大家，青蒿素是中共病毒解药，但是吃青蒿素期间不能饮酒。切记切记！<br/>Just to remind everybody, artemisinin is the antidote to the CCP virus, but you can’t take artemisinin or its derivatives with alcohol.
@@ -149,13 +156,6 @@ The new Chinese volunteers working at the rescue center at Medyka are not from t
 
 [ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.03.16 EST
 ![img](https://media.gettr.com/group48/origin/2022/03/16/15/afbe6c07-b850-4333-e878-fb1025891695/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/16/2022 3:12 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 NFSC and ROLF Ukraine Humanitarian Rescue Mission
-![img](https://media.gettr.com/group34/origin/2022/03/16/14/f5fce8a3-c0a7-6869-3212-77a8a943e7a0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

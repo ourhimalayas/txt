@@ -2,42 +2,44 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“昆仑银行”（一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2178372/)
+## 台湾重生后会发现新中国联邦是拯救台湾最重要力量之一
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2178604/)
 
-整理：BENJI
-编辑：jocozoner
+Youtube视频链接：[https://youtu.be/VGOhVWP-RXI](https://youtu.be/VGOhVWP-RXI)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/20-4.png)图片来源：雅典娜设计组
+Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
+**郭文贵先生：**台湾人民过去的七、八十年的智慧、科技、善良、民主、法治和国际观，所有的付出都化成了你们现在成为了全世界护佑你们的能力，我一直深信天会佑台湾的。
 
-**郭文贵先生2017年6月16日明镜专访第三期**
+你去过台湾你知道，台湾的那些佛教、各种地方，台湾是有万佛万神的加持，而且我相信今年到了结的时候了。台湾一旦跟中共了结完以后独立了也好什么…，台湾那个地方是人类上最好的地方。我相信到英国去的300万香港人，一大半会移到台湾去，做好准备吧。
 
-【自2:07起】郭文贵先生（纠正陈小平道）：是20万亿！这20万亿的资产和现金。我那天说找不到2万亿我从18楼跳下去，现在是20万亿了。
+新中国联邦人，当把旗子立到台湾的时候 ，会成为台湾最最重要的、必须合作的、不可忽视的信任的力量。现在台湾人这些政府由于国民党在那、这些卖台贼在那，我们现在不愿意深入，等到台湾重生以后，你会看到新中国联邦的旗帜在台湾高空永远地飘扬。你会发现我们会是拯救台湾最重要的力量之一。咱走着看。谢谢！
 
-陈小平：这是跟一个家族有关系？
+编辑整理：Jacques；
 
-郭文贵先生：这就是一个家族的啊。我那91本我不敢再往下看了。你看看那谁啊，大家都不知道。你知道吗？姚庆先生控制的一个叫什么？叫**昆仑银行**。还有一个是石油公司，专门做伊朗的，过去几年封闭的时候（意思是伊朗受美国制裁时），叫**鲲鹏石油**。这是最大的一个做伊朗的（石油公司）。结果是什么呀？是姚庆先生控制的。你知道光现金多少钱在账上吗？现金1600亿美元，现金就1600亿美元！
+字幕文件制作：小满；
 
-整个美国国家控制的，一个国家，就是石油控制的钱，给转到了一个个人手里面去了。这还是国家所谓的政策，你去想想他是打的什么名义，全是国营的名义。把国营的变成自己的了，把老百姓的变成自己的了。这个把所谓的国家政策、国家安全的能源变成自己的了。你知道这个可怕的程度是完全超出你想像的。这不是盗国贼了，这是盗国神。您明白吗？这是盗国神啊这是。
+视频制作及上传：Cindy；
 
-陈小平：他，现在从你掌握的情况来看，房产就是这些（吗？）……
+G-News发布：小满；
 
-郭文贵先生（无奈）：唉！多了，哎我没——我爆的房产是很小的一部分。（平和且有深意地对陈说道）一切都是刚刚开始。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-陈小平（微笑）：所以等于说20万亿还不止，用你的话说。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-郭文贵先生（看了几页资料）：那几套房子在这里还算啥钱，算什么钱啊！因为这里有一些公司是我打过交道的。我看完以后简直不敢相信了，你知道吗？你像这个天津燕山股权投资、海航搞的这些基金、长城机电这几家不良资产公司、苏州工业区的几个公司，那不是你开玩笑的，那都是国家企业呀！整个国家就两个不良资产处理：一个长城，一个中建投。这全成你家的了，这个国家成你们的了，这是一个常委。那要是那些常委呢？这老百姓哪如猪狗啊？这猪狗杀之前，在美国还得给你放点音乐给你放放血。这家伙直接的就是什么了给你呀。这是开玩笑吗？**昆仑银行**、昆仑石化，这是在全世界相当大的石油公司。所有伊朗的油和钱全跑那儿去了。美国制裁的公司，现在是私人的，把我吓死了。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-而且我看了那个银行帐号，你能想想在今天全世界反恐这种大形势下，我去开个帐号比登天都难，人家几百个帐号，几百亿、上千亿的美元转来转去，转到个人帐号去。这是何等的权力和金融力量，（以及）国家的利益交换才能达到的目的啊。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-发布：tianzhihuan
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-**更多资讯，请关注：
-**[**澳大利亚墨尔本雅典娜农场Twitter**](https://twitter.com/HimalayaAthena1)**：HimalayaAthena
-**[**澳大利亚墨尔本雅典娜农场Gettr**](https://www.gettr.com/user/himalayaathena)**：himalayaathena
-**[**澳大利亚墨尔本雅典娜农场YouTube**](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[**澳大利亚墨尔本雅典娜农场Discord**](https://discord.gg/KQQVvwBNvm)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
