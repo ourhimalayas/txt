@@ -2,20 +2,18 @@
 ---
 
 
-## 雅典娜时报-第234期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2177303/)
+## 七哥金句：在中岳庙里的一句话
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2177335/)
 
-#### 《雅典娜时报》汇聚全球新闻时事
+整理：雅典娜农场
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句3-1.png)
+发布：枫叶红了
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/829864694670950410/953806813831262268/155_3.png?width=807&amp;height=1201)![圖片](https://media.discordapp.net/attachments/829864694670950410/953806814275837992/155_4.png?width=807&amp;height=1201)
-*发布：陶子*
-
-**更多资讯，请关注：
+**更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
 [澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

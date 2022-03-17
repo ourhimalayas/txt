@@ -15,14 +15,14 @@
 
 ---
 
-### [雅典娜时报-第234期](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [人民币五万限制导致破窗效应](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [七哥金句：新中国联邦纯粹只为救助！](/content/gnews/3/README.md)
+### [七哥金句：在中岳庙里的一句话](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
+
+### [美参议院团结一致通过决议案 谴责普京犯下战争罪](/content/gnews/2/README.md)
+ ` 日本東京方舟農場`
+
+### [中共国面临被国际社会制裁的风险越来越大](/content/gnews/3/README.md)
+ ` 澳喜农场`
 
 ### [加密货币保护金融自由](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -33,17 +33,17 @@
 ### [3/15/2022 文贵直播: 香港恒生指数跌破2万点意味着港币失去了和美元挂钩的GDP的基础；香港经济的崩溃会导致广东产生连锁反应](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [3/16/2022 文贵盖特：据说AI病毒去找比爹娘还亲的共产党了，彭博社在文贵大直播后做贼心虚地去找Nicole战友和文耀战友，说明咱直播的传播力很强啊](/content/gnews/7/README.md)
- ` 秘密翻译组-北美组`
-
-### [乌克兰为什么没有加入北约](/content/gnews/8/README.md)
+### [《共产党统治中国的150个家族》之“江泽民”篇（三）](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线: 海康威视预收购ASML光刻机开启芯片生产线](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
+### [3/16/2022 文贵盖特：据说AI病毒去找比爹娘还亲的共产党了，彭博社在文贵大直播后做贼心虚地去找Nicole战友和文耀战友，说明咱直播的传播力很强啊](/content/gnews/8/README.md)
+ ` 秘密翻译组-北美组`
 
-### [疫情蔓延之际A股港股又遭暴跌](/content/gnews/10/README.md)
- ` 澳喜农场`
+### [新中国联邦援乌营地迎来商用专业咖啡机](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻在线: 海康威视预收购ASML光刻机开启芯片生产线](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [随着感染率的放缓，日本将全面取消COVID-19的限制](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`

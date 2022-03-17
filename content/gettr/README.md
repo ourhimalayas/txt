@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 12:40 AM (UTC)`
+
+2022.03.16 晚 《新中国联邦新闻》11岁男孩独自逃离乌克兰 于斯洛伐克与家人团聚； 两名福克斯战地记者在乌克兰遇袭丧生
+![img](https://media.gettr.com/group47/origin/2022/03/17/00/0e91cb9d-ae61-c665-4363-7cbd47d60f3a/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/17/2022 12:17 AM (UTC)`
 
 3/16/2022 Miles Guo’s GETTR: There are so many people in the CCP who want to eliminate Xi Jinping. It’s said the virus is spreading like an AI specifically targeting the CCP, which claims to be closer to you than your parents. Bloomberg had a guilty conscience such that they contacted our fellow fighters Nicole and Wen Yao after my grand live broadcast yesterday, indicating our livestream had a huge impact.<br/><br/>3/16/2022 文贵盖特：共产党内部有太多人要干掉习近平，据说AI病毒去找比爹娘还亲的共产党了，彭博社在文贵大直播后做贼心虚地去找Nicole战友和文耀战友，说明咱直播的传播力很强啊 <br/>
@@ -150,13 +157,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 2022.03.16 早 《新中国联邦新闻》
 ![img](https://media.gettr.com/group6/liveorigin/2022/03/16/12/9ef270a8-bf53-3076-8460-451047d90c79/db77deaeeaadf94601c75dae84bb7948.jpg)
-
----
-
-`@miles 3/16/2022 10:57 AM (UTC)`
-
-【Ukraine Rescue】03/14/22 Fellow fighter Wendy introduces their daily work at the rescue scene<br/><br/>【乌克兰救援】03/14/22 Wendy战友介绍在救援现场的日常工作情况<br/> <br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group41/getter/2022/03/16/10/71c590d9-3d0e-6a32-3822-daf86484b3ca/out.jpg)
 
 ---
 
