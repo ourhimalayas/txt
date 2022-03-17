@@ -2,37 +2,32 @@
 ---
 
 
-## 西班牙扣押普京盟友的豪华游艇
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176861/)
+## 拜登称普京是战争罪犯并承诺向乌克兰输送更多武器
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2176936/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒15日消息，西班牙首相桑切斯14日在电视节目中确认，当局在巴塞罗那暂时扣押了俄罗斯富豪一艘价值1亿4000万美元的游艇，并承诺还会有更多针对俄罗斯寡头的行动。
+翻译：冰糖葫芦喵
 
-有报道引述消息人士指出，这艘85公尺的超级豪华游艇的主人是俄罗斯总统普京的盟友，切梅佐夫，他曾是前苏联国家安全委员会官员，现在是俄罗斯国家技术集团的负责人。另外还有两位尚未被列入制裁名单的俄罗斯寡头的游艇，目前也停靠在巴塞罗那。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-56.jpg)
-切梅佐夫在2014年和2020年分别因俄罗斯吞并克里米亚而受到美国和英国的制裁，本月又再一次被美国和澳洲列入制裁名单。不仅如此，美国这次还将切梅佐夫的继女，以及他的妻子和儿子一同纳入制裁范围。
+编辑与校对：冰糖葫芦喵
 
-根据一位政府消息人士的说法，在西班牙当局确认所有权以及核对制裁对象名单之前，这艘游艇将继续被扣押。
+《路透华》盛顿3月16日报道，因俄罗斯入侵乌克兰，**美国总统拜登周三表示，俄罗斯总统普京是个战争罪犯，并宣布向乌克兰追加8亿美元的安全援助，包括击落俄罗斯飞机和坦克的武器。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7O74BJS7GFNUDDHXGYL64UHDCU-e1647466845185.jpg)美国总统拜登在国务卿布林肯和国防部副部长希克斯的陪同下谈及美国政府的援助（路透社）
+据报道，拜登在当天接受记者采访时说：“哦，我认为他是一名战犯。”这是拜登首次公开用”战争罪犯“给普京贴标签。
 
-这是继各国对俄罗斯实施制裁以来，第一宗经确认的俄罗斯公民在西班牙被扣押财产的事件。自俄罗斯2月24日对乌克兰展开军事行动以来，西方已经制裁了俄罗斯多名亿万富翁，冻结了俄罗斯国家资产，并切断了大部分俄罗斯企业与全球经济的联系。
+白宫新闻发言人莎琪后来说，拜登的话是发自内心的。她指出，**有一个单独的法律程序来确定普京是否违反了国际法，是否犯下了战争罪，国务院目前正在进行这个程序。**
 
-参考链接：[Spain seizes Russian oligarch’s yacht in Barcelona](https://www.reuters.com/world/europe/spain-seizes-russian-oligarchs-yacht-barcelona-2022-03-14/)
+周三早些时候，拜登说，**美国已经向乌克兰提供10亿美元的安全援助，**并**回应了乌克兰总统泽伦斯基向美国国会发出的紧急呼吁，要求提供军事援助，**以抵御俄罗斯的入侵。他还说，美国**将继续向乌克兰提供武器**，帮助其作战和自卫，**提供人道主义救援，并通过额外的财政援助支持乌克兰经济。**
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+拜登说:“**这项新计划**本身就将为乌克兰提**供前所未有的援助，其中包括800套防空系统，**以阻止俄罗斯飞机和直升机对乌克兰人的攻击。”
 
-总编/编辑/审核：天滅中共
-校对/发稿：Hetangyuese
+拜登说，应泽伦斯基的要求，**华盛顿将帮助乌克兰获得更多的远程导弹防空系统。它还将提供9000套反装甲系统、无人机和7000件轻武器，**如机关枪、霰弹枪和榴弹发射器，帮助乌克兰平民为保卫国家而战。
 
-**更多资讯，更多关注**
+据报道，**新的资金将来自拜登签署成为法律的支出法案，其中包括向乌克兰提供136亿美元的新援助。**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+新闻来源链接：
+
+[Biden calls Putin a ‘war criminal,’ sending more weapons to Ukraine | Reuters](https://www.reuters.com/world/biden-announce-new-security-assistance-ukraine-after-signing-massive-spending-2022-03-16/)
+
+
 
  
 

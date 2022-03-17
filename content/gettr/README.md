@@ -17,6 +17,19 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 1:15 AM (UTC)`
+
+2022.03.16 晚《新中国联邦新闻访谈》文斌战友分享俄乌战争最新军事动态；乌克兰救援活动最新进展分享；泽连斯基美国会演讲，敦促拜登成为世界和平捍卫者；欧米克朗变种肆虐全球，醉翁之意是否在疫苗。
+![img](https://media.gettr.com/group5/origin/2022/03/17/01/7f0d81c4-f798-9492-2fa7-88b6cb304021/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 3/17/2022 1:08 AM (UTC)`
+
+The new Chinese volunteers working at the rescue center at Medyka are not from the CCP-ruled China; they are peace-loving people from the democratic world representing NFSC (New Federal State of China) and ROLF (Rule of Law Foundation). NFSC is entirely independent of Communist China, with commitment and determination to take down the evil Chinese Communist Party and save billions of Chinese living inside of CCP-ruled China without human rights, equality, and democracy. 新中国联邦人乌克兰人道救援行动，受到了世界爱好和平人士的赞赏，在救援前线的大爱和友善形象，让世界看到了一个和CCP奴役下的中国人完全不一样的形象。伟大的救援行动，让人们明白，共产党不代表中国人，我们爱好和平，永远和乌克兰人们站在一起。<br/> https://www.prfree.org/news-new-york-based-non-profit-ukraine-rescue-operation-catches-attention-at-the-international-refugee-rescue-center-at-the-medyka-border-of-poland-1068530.html
+
+---
+
 `@miles 3/17/2022 12:40 AM (UTC)`
 
 2022.03.16 晚 《新中国联邦新闻》11岁男孩独自逃离乌克兰 于斯洛伐克与家人团聚； 两名福克斯战地记者在乌克兰遇袭丧生
@@ -143,20 +156,6 @@ https://gettr.com/streaming/p10bftt7ad6
 
 3月16号，尊敬的战友们好，香港病毒大流行，正在导致香港大量人员，被秘密死亡，一切死亡和感染的数据都是假的……共产党的经济和将实行的攻台计划！引发了党内的剧烈的政治斗争。共产党人为了保护自己的巨额财富，要与太阳拼死一战，也保护自己的海外市场和私生子女！
 ![img](https://media.gettr.com/group20/getter/2022/03/16/13/2456de69-708d-9c4a-67bc-11bbe72c0ae7/out.jpg)
-
----
-
-`@miles 3/16/2022 1:11 PM (UTC)`
-
-The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Rescue Team – 24h Hotline: +1 7206576776 or +1 719-224-4232 or +48 508-532-712 or +48 508-531-518 Telegram: t.me/UkraineRescue GETTR: https://gettr.com/user/UkraineRescue<br/>我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є першопричиною катастроф у світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
-![img](https://media.gettr.com/group33/origin/2022/03/16/04/209b7700-8e67-53d0-f2bb-9f48b88dd8be/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/16/2022 12:30 PM (UTC)`
-
-2022.03.16 早 《新中国联邦新闻》
-![img](https://media.gettr.com/group6/liveorigin/2022/03/16/12/9ef270a8-bf53-3076-8460-451047d90c79/db77deaeeaadf94601c75dae84bb7948.jpg)
 
 ---
 

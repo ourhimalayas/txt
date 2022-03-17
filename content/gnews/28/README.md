@@ -2,39 +2,37 @@
 ---
 
 
-## 新中国联邦揭露彭博社（Bloomberg)在援乌营地“试水”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2176623/)
+## 西班牙扣押普京盟友的豪华游艇
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176861/)
 
-**作者：Nicole**
-**编辑：Candy**
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+外媒15日消息，西班牙首相桑切斯14日在电视节目中确认，当局在巴塞罗那暂时扣押了俄罗斯富豪一艘价值1亿4000万美元的游艇，并承诺还会有更多针对俄罗斯寡头的行动。
 
-Nicole：补充一下昨天郭先生大直播里提到的王岐山的好朋友Bloomberg派出的记者采访咱们的事情。
-2022.3.15郭先生GETTR大直播
-这个记者叫Aggi Cantrill, 来自德国柏林，说流利的中文，她一开始来就跟我说中文，我问她在哪里学的中文，她说在德国，后来去北京呆了3年，住东直门。她告诉我说，她是Bloomberg 的财经记者，财经记者被派到前线做战地报道，有点奇怪（王歧山是财经口的） 她一开始说要采访20分钟，后来采访8分钟就匆匆结束了，可能她觉得采访不理想。 可惜的是，在旁边录像的战友只录了5分多钟，没有录全
+有报道引述消息人士指出，这艘85公尺的超级豪华游艇的主人是俄罗斯总统普京的盟友，切梅佐夫，他曾是前苏联国家安全委员会官员，现在是俄罗斯国家技术集团的负责人。另外还有两位尚未被列入制裁名单的俄罗斯寡头的游艇，目前也停靠在巴塞罗那。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-56.jpg)
+切梅佐夫在2014年和2020年分别因俄罗斯吞并克里米亚而受到美国和英国的制裁，本月又再一次被美国和澳洲列入制裁名单。不仅如此，美国这次还将切梅佐夫的继女，以及他的妻子和儿子一同纳入制裁范围。
 
-她一共问了4个问题 1）你们的组织是什么？ 2）你们是否在故意混淆（conflate）政治企图和人道救援？她的言外之意，你们是在打着人道救援的名义搞政治 3）这个组织是领导是郭文贵吗？ 4）中国并没有表现出支持俄罗斯的入侵乌克兰的行动呀，你们怎么看这个战争？
+根据一位政府消息人士的说法，在西班牙当局确认所有权以及核对制裁对象名单之前，这艘游艇将继续被扣押。
 
-第4个问题，录像的战友没有录上。
+这是继各国对俄罗斯实施制裁以来，第一宗经确认的俄罗斯公民在西班牙被扣押财产的事件。自俄罗斯2月24日对乌克兰展开军事行动以来，西方已经制裁了俄罗斯多名亿万富翁，冻结了俄罗斯国家资产，并切断了大部分俄罗斯企业与全球经济的联系。
 
-从这几个问题看，这个记者是有备而来，是带着任务来的，她问问题的立场完全是站在中共代言人的立场上的。 因为我们在营地遇到的所有西方记者，一般都不知道郭先生的名字，也从来不把我们的救援行动说成是搞政治。 只有这个记者上来就提郭先生的名字，上来就说我们打着人道救援搞政治，还替中共在俄乌战争洗地开脱。
-![Image](https://media.discordapp.net/attachments/825592691433668613/953732996807143484/IMG_6922.jpg?width=656&amp;height=369)
-采访结束后，她离开我们营地，过了10多分钟回来找我说，这个采访不一定能播出，要看编辑的决定，我问她编辑在哪里，她说在伦敦。 我说，好的。 然后她就离开了。
+参考链接：[Spain seizes Russian oligarch’s yacht in Barcelona](https://www.reuters.com/world/europe/spain-seizes-russian-oligarchs-yacht-barcelona-2022-03-14/)
 
-又过了大概20多分钟，她又回来了，这次我不在帐篷外（我在帐篷里面拍视频）她找到录采访视频的战友，说他们总部决定不能播这个采访，因为这个采访里面有很多“issues” ，据这个战友说，这个记者看起来非常紧张，坐立不安， 她要求录视频的战友马上删掉这个视频。 结果这个战友就当着她的面把视频从手机里删除了。这个记者反复强调千万不要把这个视频公布在社交媒体上。
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-这个记者的要求是无理的，我们请示了长岛哥，长岛哥让我们想办法从录视频的战友手机里恢复这个视频，后来恢复了，加了字幕，郭先生的盖特就发出去了。
+总编/编辑/审核：天滅中共
+校对/发稿：Hetangyuese
 
-郭先生盖特发了这个视频后，这个记者给我发WhatsApp了说，“她看到了，很不幸这个视频被发出去了”
+**更多资讯，更多关注**
 
-昨天彭博社来了之后，咱们新中国联邦的营地上就出现了可疑的中国人来偷偷拍摄我们，大卫哥发现我们新中国联邦的旗子被人捅了窟窿。
-![Image](https://media.discordapp.net/attachments/950448401529577502/953606055957528576/image0.jpg?width=656&amp;height=369)图片来源：前线摄影师煤油灯战友
-***发布：Candy***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

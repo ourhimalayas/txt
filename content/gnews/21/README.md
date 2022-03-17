@@ -2,38 +2,46 @@
 ---
 
 
-## 泽连斯基向遇害美国记者家属发送感人信
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176864/)
+## 马里亚诺研究的新疫苗试验被迫瘫痪
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2176984/)
 
-作者：新西兰伊甸农场-玫瑰
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒15日报道，美国记者布伦特·雷诺在乌克兰首都附近报道难民故事时遇难。 50岁的雷诺是一位著名的电影制片人，他经常前往世界上一些最黑暗和最危险的角落拍摄纪录片。3月13日，在俄罗斯军队于基辅附近向他的车辆开火后遇难身亡。据悉，他正在为一份关于难民的报告收集材料。
+编译：七龙珠
 
-乌克兰总统泽连斯基3月15日在网上发表了一封写给雷诺家人的信，表达他的“衷心哀悼”。他称雷诺是一位“才华横溢、勇敢的记者”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-59.jpg)
-泽连斯基在信中说，“布伦特在记录数百万乌克兰人的人类悲剧、破坏和苦难时失去了生命。他带着所有的勇气和决心，前往最危险的战区，拍摄了侵略者对我们国家施加的前所未有的残酷和邪恶。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1824-edited.png)larazon.es
 
-“乌克兰人民正在与俄罗斯政权作斗争，以保卫他们的家园和世界民主，他们与你们一起哀悼。”“我们感谢布伦特的专业精神和对同情、道德和正义价值观的承诺。”
+由于难以找到未接种疫苗或未感染的志愿者，西班牙高等科学研究理事会（CSIC）和生物工厂（Biofabri）取消了在西班牙进行的临床试验。
 
-“愿布伦特的生命、服务和牺牲激励全世界几代人站出来为光明力量对抗黑暗力量而战。”
+在西班牙国家研究委员会—西班牙高等科学研究理事会（CSIC）正在进行的三个项目中处于最先进阶段的covid疫苗项目—来自国家生物技术中心（CNB）的科学家马里亚诺-埃斯特本（Mariano Esteban）和胡安-卡利西亚（Juan García Arriaza）与生物工厂（Biofabri）合作的项目，由于难以完成其下一阶段：人体临床试验而陷入了瘫痪。研究人员列举的原因是西班牙人口中的疫苗接种率很高，以及Omicron变体的高发率。
 
-参考链接：[The people of Ukraine are mourning with you’: Zelenskyy sends moving letter to family of slain US journalist](https://www.stuff.co.nz/world/europe/300541835/the-people-of-ukraine-are-mourning-with-you-zelenskyy-sends-moving-letter-to-family-of-slain-us-journalist)
+“在分析了西班牙SARS-CoV-2感染的状后，我们评估了这项临床试验的机会，决定撤回我们提交给西班牙药品管理局（AEMPS）的评估文件”， CSIC消息人士告诉欧洲新闻社。原则上，对这种疫苗模型的研究，包括使用天花家族的高度减毒病毒作为“载体”引入SARS-CoV-2尖峰蛋白“继续进行以适应新的变体”。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+招募计划
 
-总编：天滅中共
-编辑/审核:飞虹
-校对/发稿：Hetangyuese
+第一阶段的试验，预计将招募约100名志愿者，在拉巴斯医院进行，该医院已经开始招募。在这个阶段，112名志愿者参与其中，并对剂量的影响进行分析，而第二阶段将对500名志愿者的免疫原性和安全性结果进行评估。最后，第三阶段将招募20,000至30,000名健康人，在他们身上可以评估疫苗的功效。
 
-**更多资讯，更多关注**
+2021年8月，西班牙药品和保健品管理局（AEMPS）要求研究人员对国家生物技术中心（CNB）调查人员的临床试验的一些具体方面进行一系列“澄清”。卫生部长Carolina Darias说，这“只是一个常规程序”。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+尽管有传言说人体临床试验没有得到批准，因为该疫苗在一只猴子身上造成了肺部损伤，但卫生部否认了这一说法。事实上，科学和创新部长戴安娜-莫兰特在回应已发表的报告时说：“解释是，科学就是这样，它有它的过程。在研究中，你并不总是能得到你想要的结果。”从那时起，直到昨天的声明，人们不知道研究的进展情况。
+
+另外两种公共疫苗
+
+除了马里亚诺-埃斯特本的研究之外，还有另外两个正在进行的疫苗项目。两者目前都在小鼠身上进行了测试。其中一个是由CNB-CSIC的主任路易斯-恩胡安尼斯领导的，尽管进展较慢，但追求的目标更为宏大：找到一种合成的、可消除病毒的疫苗，不仅能降低感染的严重程度，还能减缓病毒的传播速度：“此疫苗还‘诱发了呼吸道粘膜的免疫力’，这是病毒进入的途径。这种免疫力为用于评估其疗效的小鼠提供了完全的保护”，这位科学家在周一解释说。而且它已经有了一个明确的日期：如果一切顺利，它将在2023年上市。
+
+另一个项目是维森特-拉拉加及其团队的项目，即合成DNA疫苗，据这位西班牙科学家说，这种类型的疫苗“可以完美地适应”对抗更多的抗性病毒变体。
+
+投资近2300万欧元
+
+到目前为止，科学和创新部已经资助了大约十个关于Covid疫苗的项目，总金额为782.7万欧元。其中，有三个项目是由西班牙高等科学研究理事会的研究人员开发的，已经投入了550.7万欧元的公共资金。卡洛斯三世健康研究所方面也通过科威特基金为七项与疫苗有关的研究拨款232.1万欧元。
+
+来源：【larazon.es】[El prototipo vacunal de Mariano Esteban contra la covid paraliza su desarrollo](https://www.larazon.es/sociedad/20220315/bsegx3wdlnhvneakiifkjyztwi.html)
+
+* * *
+
+审核：Aries的星
+校对：小东
+发布：花羽
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
 
  
 
