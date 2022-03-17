@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 10:59 AM (UTC)`
+
+【Ukraine Rescue】03/16/2022 Nicole: All of our more than 60 brothers and sisters on the front line are working systematically. Everyone is working very hard for the ROLF & NFSC's Rescue Operation in their respective positions to make a little contribution.<br/><br/>【乌克兰救援】03/16/2022 妮可：我们整个在前线的60多名的战友都在有条不紊的，在各自的岗位上，大家都在努力的为这次法治基金和新中国联邦组织的这场救援的活动在贡献自己一点点的力量<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group18/getter/2022/03/17/10/a964a2e6-4ebc-4889-fead-2edd448c0275/out.jpg)
+
+---
+
 `@miles 3/17/2022 10:25 AM (UTC)`
 
 The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Rescue Team – 24h Hotline: +1 7206576776 or +1 719-224-4232 or +48 508-532-712 or +48 508-531-518 Telegram: t.me/UkraineRescue GETTR: https://gettr.com/user/UkraineRescue<br/>我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є першопричиною катастроф у світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
@@ -148,13 +155,6 @@ The new Chinese volunteers working at the rescue center at Medyka are not from t
 
 3/15/2022 Miles Guo: The CCP is sparing no effort to defame the New Federal State of China and our rescue operation in Ukraine by spreading rumors in Africa and sending CCP-backed Bloomberg to interview us as a setup, but Nicole and our fellow fighters did an excellent job with smart responses at the interview; the NFSC people on the frontline demonstrate a new image of the new Chinese that earns respect from other Asian countries<br/><br/>3/15/2022  文贵直播:  中共不遗余力地企图诋毁新中国联邦在乌克兰的救援行动，他们不但在非洲散布谣言，还在乌克兰救援前线通过布隆伯格的采访给新中国联邦挖坑，但Nicole和前线战友们表现绝佳机智应对；新中国联邦人在前线展现了令其他亚洲国家尊重的新中国人的形象<br/>
 ![img](https://media.gettr.com/group14/getter/2022/03/16/22/06c86e7c-d5ce-a148-3a67-848a8f4f17ba/out.jpg)
-
----
-
-`@miles 3/16/2022 9:59 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-16
-![img](https://media.gettr.com/group25/origin/2022/03/16/21/3093ff23-d05d-2f4f-7f67-315ca8332c92/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

@@ -2,46 +2,28 @@
 ---
 
 
-## 英国国家犯罪署正在追查普京及其亲信在伦敦资产
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2179617/)
+## 受“联系汇率制度”影响 港澳金管局不得不跟进美联储加息
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2179633/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-49.png)
+[图片来源](https://m.jiemian.com/article/5806856.html)
 
-翻译：文扬
-编辑：文泓
+香港金管局3月17日公告称，由于港元受限于兑美元的“联系汇率制度”，在美联储宣布加息25个基点后，香港上调基本利率至0.75%。受此影响，澳门金管局发公告称，由于澳门元与港元挂钩，澳门也不得不将利率调升至0.75%。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/TPJ9MZHXA@O6CQWYJ-1.png)图片来源：Republic World & 雅典娜设计组
+香港金融管理局今天发公告称，美联储于香港时间3月17日清晨公布将联邦基金利率的目标区间上调25基点至0.25-0.5厘。顺应美联储的决定，香港金融管理局今日亦上调其基本利率。根据预设公式[1](https://www.hkma.gov.hk/chi/news-and-media/press-releases/2022/03/20220317-4/#1)，今日基本利率设定为0.75%。
 
+美联储亦表示，通胀持续高企，继续加息是合适的做法，并预计最快可能在下一次会议开始缩表。
 
-**目前俄乌冲突正不断升级，俄罗斯正面临着全球孤立和经济危机，西方国家对俄进行多重制裁，世界各大品牌也因其入侵乌克兰的行动而退出俄罗斯市场。**
+香港基本利率定于当前的美国联邦基金利率目标区间的下限加50基点，或隔夜及1个月香港银行同业拆息的5天移动平均数的平均值，以其较高者为准。由于美国于3月16日（美国时间）调高联邦基金利率的目标区间25基点，因此当前的美国联邦基金利率目标区间的下限加50基点是0.75%。而隔夜及1个月香港银行同业拆息的5天移动平均数的平均值是0.14%。根据其预设公式，基本利率设定为0.75%。
 
-**持续的俄乌冲突导致了包括儿童在内的大量生命损失，死亡人数每天都在上升。由于俄罗斯继续炮击和轰炸乌克兰城市，这场危机还造成了财产损失。**
+澳门金融管理局今天发公告称， 3月17日把贴现窗基本利率调升25个基点至0.75%。鉴于澳门元与港元挂钩，两地政策性息率变动必须基本一致，旨在维持港澳联系汇率制度的有效运作。因此，澳门金管局跟随香港金管局同步调整其基本利率。
 
-**美国和其他北约盟国正在呼吁停火和进行外交对话。他们还在对俄罗斯和俄罗斯人实施制裁，逼迫俄罗斯总统弗拉基米尔·普京能够结束这场冲突。**
+消息来源:**[金管局回應美聯儲加息](https://www.hkma.gov.hk/chi/news-and-media/press-releases/2022/03/20220317-4/#1) ****；****[澳門貼現窗基本利率調升至0.75%](https://www.amcm.gov.mo/zh/news-and-announcements/press-releases/gap/base-rate-of-the-discount-window)**
 
-**近日，俄罗斯卫星通讯社发表的一份报告称，英国国家犯罪署（NCA）将与该国的情报部门合作，以确定据称由普京及其同伙在伦敦保存的资产。**
-
-《每日电讯报》周三（3月16日）的一份报告援引英国国家犯罪署的消息称，普京价值数百万美元的个人资产被藏匿在伦敦，该机构将与军情五处、军情六处和政府通信总部（GCHQ）机构合作，力求追查这些资产。
-
-一位消息人士告诉记者：“现在已有专人在那里（NCA）工作，这就是‘反专制洗钱’小组将投入时间的原因。该小组将追踪普京和他的亲信的钱。”
-
-根据该报告，这次对普京资产的调查不会简单，还将包括白俄罗斯在英国的资金。“我们将使用该机构可用的所有立法选项和策略来起诉那些在英国清洗资产的腐败精英，”该报援引一位英国国家犯罪署发言人的话说。
-
-在普京于2月24日下令在乌克兰采取“军事行动”后，英国随即实施制裁，冻结俄罗斯总统和外交部长谢尔盖·拉夫罗夫的资产。
-
-**根据英国的制裁名单，拉夫罗夫是俄罗斯政府的关键决策者。**
-
-原文链接： [Kleptocracy hunt: UK to go after Putin’s London assets worth millions of pounds, World News | wionews.com](https://www.wionews.com/world/uk-security-services-to-go-after-vladimir-putins-millions-of-dollars-worth-of-assets-in-london-462923)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+校对：东京樱花团/逢⑦必变
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
 
 
  
