@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国股市在大范围的封锁中下跌
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2179286/)
+## 新中国联邦梅迪卡救援中心出现在“今日美国”报道中
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2179312/)
 
-03/15/2022 由于疫情危机，中共国的主要股市昨天出现暴跌。中共国的清零政策损害了其经济增长。 如果经济不反弹，就会使习近平进行历史性的第三任期的企图受到质疑。
+03/14/2022 新中国联邦梅迪卡救援中心出现在3月14日“今日美国”的相关报道中。原报道标题为“乌克兰难民抵达波兰”，视频链接：[https://youtu.be/3U4tlkK\_FX8](https://youtu.be/3U4tlkK_FX8)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

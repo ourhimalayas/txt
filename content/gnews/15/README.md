@@ -2,21 +2,31 @@
 ---
 
 
-## 钢琴上的和平天使——Davide Martello
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2179371/)
+## 少年儿童心脏问题：学校要求参加一些运动前检查心电图
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2179538/)
 
-#### 撰稿: nstar
-![](https://assets.gnews.org/wp-content/uploads/2022/03/钢琴.jpg)
-Davide Martello 于1981年11 月 1 日出生于德国 Lörrach 市（黑森林的弗赖堡的西南部，德国、法国和瑞士的边界三角区）, 现在住在博登湖畔直接与瑞士接壤的大学城康斯坦斯。他的父亲鼓励他的才华，分享他对古典音乐的热爱。 13岁时，他创作了自己的作品。 27 岁时申请到柏林的一所音乐学校，但他更愿意追求自己改造钢琴的梦想。他买了一架旧三角钢琴，在里面安装了扬声器和 LED 灯。
+撰稿：文月
+![](https://assets.gnews.org/wp-content/uploads/2022/03/171-2.png)图片来自网络
+加州橙县 （Orange Country）的公立学校今后将要求想参加某一类的体育项目的学生事先进行心脏检查。其目的是通过心电图排除心脏骤停的风险和隐患。
 
-他在波茨坦广场演奏了他的第一场“音乐会”。自 2011 年以来，他一直在世界各地旅行，并在建筑有趣的地方表演自己的作品。 Martello在新闻界被称为“钢琴上的和平天使”。
+然而当前官员们仍然不愿意承认：自CCP病毒疫苗接种开始以来，此类病例便有所增加。
 
-Davide在梅迪卡了解到，梅迪卡救援中心工作的中国志愿者并非来自中共统治的中国，他们是代表NFSC（新中国联邦）和ROLF（法治基金会）的民主世界爱好和平的新中国人。新中国联邦人在乌克兰的道救援行动，受到了世界爱好和平人士的赞赏，在救援前线的大爱和友善形象，让世界看到了一个和中共奴役下的中国人完全不一样的形象。让人们明白, 我们爱好和平, 共产党不代表中国人!
+新条例可在学校当局的网页上阅读。这是其中一段节选翻译：
 
-Davide Martello 为感谢法治基金和新中国联邦在战争和硝烟中和乌克兰人们站在一起, 给人们带来温暖和希望，特意弹奏[新中国联邦国歌](https://gettr.com/post/p10cou)，以示敬意。
+“2021-22学年的新规定，希望参加体育项目的高中生必须进行心电图（ECG）检查。心电图检查有助于识别有心脏骤停风险的运动员，心脏骤停是田径运动中的主要死亡原因。”
 
-22 年 3 月 16 日，战地钢琴家Davide Martello主动要求弹奏Nicole战友曾经给他播放的《[灭共的雪](https://gettr.com/post/p10ea6%E2%80%A6)》。
+“在2021-2022年FHSAA赛季开始之前，所有高中学生运动员都必须接受心电图检查。心电图将通过当地医疗机构和组织，在高中校园提供服务”
 
+以后越来越多的疫苗的副作用开始显现出来，学校等公共场所有必要考虑配备更多的防护措施，比如像自动体外除颤器（AED）等急救设备，有研究结果显示，在84%的心脏骤停事件中使用后，大多数的患者都可以存活了下来，同时在学校普及一些急救知识，这样可以拯救更多的生命。
+
+*审核：**Gradient*
+
+*发稿：**mgjxs*
+
+参考文献：[https://www.ocps.net/departments/athletics/sports\_physicals](https://www.ocps.net/departments/athletics/sports_physicals)
+
+[https://www.ocps.net/departments/athletics/sports\_physicals](https://www.ocps.net/departments/athletics/sports_physicals)[https://report24.news/herzprobleme-bei-kindern-und-jugendlichen-nehmen-zu-schulen-schreiben-ekg-fuer-sport-vor/?feed\_id=13318](https://report24.news/herzprobleme-bei-kindern-und-jugendlichen-nehmen-zu-schulen-schreiben-ekg-fuer-sport-vor/?feed_id=13318)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
