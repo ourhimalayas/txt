@@ -2,36 +2,32 @@
 ---
 
 
-## 惠誉：如果俄罗斯以卢布支付美元债券票息将构成主权违约
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2175107/)
+## 梅迪卡营救中心成为该营地国际救援会议中心
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2175405/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+##### 作者：加拿大温哥华扬帆农场 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-33.png)
+/// 关于文章其它的注意事项：
 
-整理：gardeniahu
-编辑：围剿维尼熊
+据文贵先生盖特报道，3月14日清早，法治基金梅迪卡营救中心250m²的大帐篷里迎来了负责该营地整个营救任务的工作团队在这里召开集体工作会议。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f7f3817f4c8144fe-2.png)图片来源：雅典娜设计组
+这是由联合国和国际红十字会及无国界救援者等组织发起的救援基地负责人会议。与会人员约为30人，包括新中国联邦救援团队代表在内的，梅迪卡口岸所有义工组织的成员代表。他们统一集中到这里，讨论整个营地的系统化管理和互相之间的协同配合。
 
+法治基金梅迪卡营救中心为来自世界各地的国际救援人员，在艰苦的战争环境中提供了一个非常难得的、温暖舒适的工作环境。新中国联邦更表示：如果局势变化需要，可以搭建更大的帐篷，全力配合国际组织需要。
 
-根据路透纽约3月15日报道，信用评级机构惠誉表示，如果俄罗斯以卢布支付美元债券票息，那么在宽限期满后将构成主权违约。
+原文链接：[https://gettr.com/post/p100qx4a947](https://gettr.com/post/p100qx4a947)
 
-俄罗斯需要在周三支付两笔总计约1.17亿美元的硬通货票息。
+编辑/上传 – 大废墙
 
-自俄罗斯上个月入侵乌克兰后引发了全球制裁，这限制了莫斯科获取和支配资金的能力。
+* * *
 
-如果俄罗斯以本币支付3月16日到期的美元计价欧洲债券(eurobond)票息，在30天宽限期到期后，将构成主权违约。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-参考链接：[俄罗斯以卢布支付美元债券票息将构成主权违约–惠誉](https://www.reuters.com/article/ukraine-crisis-russia-default-idCNL6S2VI09M)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

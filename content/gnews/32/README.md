@@ -2,20 +2,22 @@
 ---
 
 
-## 普京抓捕情报机构高管
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176862/)
+## 泽连斯基向遇害美国记者家属发送感人信
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176864/)
 
-作者：香草山农场 – 柳是多水土透
+作者：新西兰伊甸农场-玫瑰
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒12日报道，俄罗斯联邦安全局负责海外情报工作的长官——谢尔盖·贝塞达中将及其副手阿纳托利·博卢克——11日被普京下令软禁在家。
+外媒15日报道，美国记者布伦特·雷诺在乌克兰首都附近报道难民故事时遇难。 50岁的雷诺是一位著名的电影制片人，他经常前往世界上一些最黑暗和最危险的角落拍摄纪录片。3月13日，在俄罗斯军队于基辅附近向他的车辆开火后遇难身亡。据悉，他正在为一份关于难民的报告收集材料。
 
-68岁的贝塞达曾任俄罗斯联邦安全局局长，而博卢克則是行动情报部主任。普京认为，战争进展不利，和俄方大量伤亡是由于情报有误。开战前他曾被告知，乌克兰仅会做象征性抵抗，人民普遍对现状不满，会配合侵略军推翻政府，乌军战力薄弱，遍布新纳粹成员，受到攻击后会很快投降。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-57.jpg)
-但当俄罗斯派出轻型部队迅速攻占关键设施后，却遭到猛烈反击和持续抵抗。乌克兰人更紧密地团结在了泽连斯基政府周围，仅首都就有10万人以上加入民兵组织，就连乌东部俄语区也存在民意反转。 攻势受阻后，俄罗斯被迫放弃速战速决计划，转为消耗战，攻城战，导致了大量平民伤亡和不断升级的制裁。
+乌克兰总统泽连斯基3月15日在网上发表了一封写给雷诺家人的信，表达他的“衷心哀悼”。他称雷诺是一位“才华横溢、勇敢的记者”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-59.jpg)
+泽连斯基在信中说，“布伦特在记录数百万乌克兰人的人类悲剧、破坏和苦难时失去了生命。他带着所有的勇气和决心，前往最危险的战区，拍摄了侵略者对我们国家施加的前所未有的残酷和邪恶。”
 
-参考链接：
-1. [Kremlin arrests FSB chiefs in fallout from Ukraine chaos](https://www.thetimes.co.uk/article/kremlin-arrests-fsb-chiefs-in-fallout-from-ukraine-invasion-chaos-92w0829c5)
-2. [Putin ‘has placed the head of the FSB’s foreign intelligence branch under house arrest because he is furious at security services for failing to warn him’ that Ukraine could fiercely resist invasion](https://www.dailymail.co.uk/news/article-10603045/Putin-places-head-FSBs-foreign-intelligence-branch-house-arrest.html)
+“乌克兰人民正在与俄罗斯政权作斗争，以保卫他们的家园和世界民主，他们与你们一起哀悼。”“我们感谢布伦特的专业精神和对同情、道德和正义价值观的承诺。”
+
+“愿布伦特的生命、服务和牺牲激励全世界几代人站出来为光明力量对抗黑暗力量而战。”
+
+参考链接：[The people of Ukraine are mourning with you’: Zelenskyy sends moving letter to family of slain US journalist](https://www.stuff.co.nz/world/europe/300541835/the-people-of-ukraine-are-mourning-with-you-zelenskyy-sends-moving-letter-to-family-of-slain-us-journalist)
 
 ![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 

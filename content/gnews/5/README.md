@@ -2,25 +2,30 @@
 ---
 
 
-## 乌国遭掳市长获释！乌克兰总统：他从未放弃！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2177735/)
+## 国际法院下令俄罗斯立即停止入侵
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2177797/)
 
-乌克兰东南部梅利托波尔市（Melitopol）市长费德罗夫（Ivan Fedorov）11日遭俄军掳走，一度传出他遭受酷刑，不过今天传出好消息，乌克兰以交换战俘的方式，成功让费德罗夫重获自由。
+![](https://s.rfi.fr/media/display/5f95fd80-a558-11ec-a61a-005056bfb2b6/w:1024/p:16x9/AP22075544875748.webp)2022 年 3 月 16 日，荷兰海牙联合国最高法院应乌克兰要求下令俄罗斯停止其毁灭性入侵，记者们在屏幕上聆听主审法官琼·多诺霍（Joan Donoghue）的讲话。 AP – Peter Dejong
+据法广3月16日报道，位于荷兰海牙的联合国国际法院16日要求俄罗斯立即停止对乌克兰的入侵行动，国际法院对俄罗斯大规模入侵乌克兰造成的人道悲剧严重关切。裁决文件显示，13名法官投赞成票，2名法官投反对票，分别来自俄罗斯和中共国。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpxAoWQi.jpg)图片来源：乌克兰大使馆网站
+联合国最高法庭裁决乌克兰胜诉后，基辅当局称赞这是司法的完全胜利，也是乌克兰的胜利。乌克兰代表要求“俄罗斯必须按照国际法院的裁决行动，从乌克兰撤军”。
 
-乌克兰总统泽伦斯基慷慨激昂地说：「我们终于设法让梅利托波尔市市长获释，我们的梅利托波尔市不会向占领者屈服」，他还补充：「费德罗夫自由了，我已经与他有过联络，俄国军队在11日绑架他，并说服他合作，但费德罗夫没有低头，他从未放弃，我们也从未放弃，因为我们是乌克兰人」。
+作为对战争罪指控调查的一部分，海牙的另一家法院—国际刑事法院（ICC）也在调查这场冲突。该法院检察官周三访问了该国。
 
-简评：千军易得，一将难求！费德罗夫没有低头，从未放弃，费德罗夫不仅仅忠诚于乌克兰，更是忠诚于正义不向邪恶低头！乌克兰人的骄傲！
+新闻参考链接：[https://www.rfi.fr/cn/中国/20220316-国际法院下令俄罗斯立即停止入侵](https://www.rfi.fr/cn/中国/20220316-国际法院下令俄罗斯立即停止入侵)
 
-新闻来源：[LTN](https://news.ltn.com.tw/news/world/breakingnews/3862267)
+编辑：MQ
 
-撰稿/发布：一叶知秋
+* * *
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

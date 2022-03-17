@@ -2,44 +2,30 @@
 ---
 
 
-## 预设立场的彭博社记者采访
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2177536/)
+## 中日财经爆┃因涉北韩劳工李宁产品遭美国海关查扣
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2177745/)
 
-【撰稿】纽约香草山健身部—Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-25.png)
+撰稿人：东京樱花团/山顶闲人
 
-3月15日，前线记者妮可在波兰梅迪卡接受了彭博社记者Aggi Cantrill的采访。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
 
-Aggi一共问了妮可4个问题
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1845.png)图片来源于本文链接
+美国海关和边境保护局在当地时间15日发出的声明中表示，美国各地海关自昨(14日)起执行有关拘留令，若李宁公司能够在扣留通知发出后30天内提供明确和令人信服的证据，证明其商品不是由罪犯劳工、强迫劳工或受刑事制裁的契约劳工所生产，有关产品将可获放行，否则商品可能会被扣押和没收。
 
-1）介绍一下你们的组织，以及你们来美迪卡做什么？
-2）你们显然拥有一个政治目标——打倒中国共产党，你认为用人道主义工作完成政治目标有问题吗？
-3）这个组织的领导是郭文贵吗？
-4）中国并没有表现出支持俄罗斯的入侵乌克兰的行动呀，你们怎么看这个战争？
+根据2017年通过的美国敌对国家制裁法案（Countering America’s Adversaries Through Sanctions Act，简称CAATSA），任何产品若其生产全部或部分涉及北韩、伊朗及俄罗斯，均不可入口美国，除非生产商能证明有关产品不涉及强迫劳动力。
 
-从这几个问题看，这显然是一个预设立场的采访。这个记者是带着任务来的，她的问题是经过精心设计，完全是中共代言人的立场。
+不过，北韩多年来向俄罗斯和中国等地派遣数以万计的公民从事体力劳动，并从中获得5亿美元的外汇。根据彭博通讯社纪录，有关款额在联合国2017年叫停这种做法以惩罚平壤的核试验和弹道导弹试射时，约占该国经济的1.5%。自此，尽管俄罗斯已停止聘用北韩劳工，但仍有北韩人到中俄做工，主要从事伐木工作，人数可能涉及数千人，但由于俄罗斯受制裁，有关工人以支薪，令北韩获得外汇的数额有所减少。
 
-首先，她试图通过混淆概念来抹黑我们的救援行动，从根本上否定我们的人道主义救援行动，并把我们定义为别有用心的政治团体。其次，她还试图帮中共洗地，为中共掩盖帮助俄罗斯侵略乌克兰的真相。
+中共国很多所谓成功的巨型私人企业，背后都有中共红色权贵家族利用权力和行政资源，对这些巨型私人企业提供扶持和政策倾斜，而中共红色权贵家族又通过这些企业攫取大量财富。而作为中共国体育用品巨头的李宁正是这种企业的代表，背后的中共红色权贵家族利用自己的权力，为李宁公司提供来自北韩的廉价劳动力，使李宁的产品拥有更低的成本，在国际上更有竞争力。本次李宁公司产品被查扣事件，还能看出中共强迫新疆人进行劳动并非空穴来凤，中共早已在人权议题上劣迹斑斑，不知多少来自少数民族和其他中共友邦的民众在中共国境内进行着高强度的体力劳动，再次证明了中共不灭，世界不宁。
 
-我们前线记者妮可的回答，有力的回击了Aggi的挑衅。妮可说，消灭中国共产党不是政治目的，而是维护人权的需要，是出于人道主义的目的。因为，中国共产党不仅迫害中国人民，而且，还迫害香港，新疆，台湾和法轮功学员，并且，在国际上的所有独裁国家，背后都有中国共产党的支持。消灭中国共产党，不仅是为了帮助中国人民获得真正的民主和自由，也是对中国人民的人道主义救助。
+消息来源：[美国禁李宁产品入口 疑涉北韩强迫劳工](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220316-%E7%BE%8E%E5%9B%BD%E7%A6%81%E6%9D%8E%E5%AE%81%E4%BA%A7%E5%93%81%E5%85%A5%E5%8F%A3-%E7%96%91%E6%B6%89%E5%8C%97%E9%9F%A9%E5%BC%BA%E8%BF%AB%E5%8A%B3%E5%B7%A5)
 
-邪不胜正！彭博社记者跳梁小丑一般的表演，只能说明中共非常害怕我们的救援行动。只能证明我们新中国联邦的人道主义救援行动，获得越来越广泛的关注和认同，在国际上的影响力越来越大，更多国家的人开始认识和支持新中国联邦。新中国联邦的崛起已经势不可挡。
-
-【新闻链接】[https://mega.nz/file/1RhWCDBJ#okPwgEHMeg7y-Zhb7XD5uZCCDcQC\_lyBDj2xuQPm2zo https://discord.com/channels/@me/718495684394745917/953714404732588062](https://mega.nz/file/1RhWCDBJ#okPwgEHMeg7y-Zhb7XD5uZCCDcQC_lyBDj2xuQPm2zo%20https://discord.com/channels/@me/718495684394745917/953714404732588062)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-- 审核/编辑/发稿:qiutian（邱甜）
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
 
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

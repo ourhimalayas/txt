@@ -2,33 +2,13 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月16晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2177664/)
+## 香港第5波中共病毒疫情死亡暴增 棺木供应不及
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2177747/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-6.jpg)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1-4.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p10e5e43259](https://gettr.com/post/p10e5e43259)
-访谈：[https://gettr.com/post/p10e63c4c1c](https://gettr.com/post/p10e63c4c1c)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-2.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

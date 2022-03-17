@@ -2,23 +2,37 @@
 ---
 
 
-## 新中国联邦在推特上被广泛介绍
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2176262/)
+## 灭共的新中国联邦人是未来免受制裁的唯一人群
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176557/)
 
-#### 报道：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16474476181.png)
-波兰第二大广播电台ZET记者Rafał Miżejewski在推特上写道：
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在3月13日的大直播中，郭先生与战友分享了俄罗斯大富豪Alex因受普京发动对乌克兰的入侵战争而被牵连，其个人财富全部被制裁，本人也被警察带走。Alex是黄金和化肥公司的老板，此人很会赚钱且钱都合法，个人品味不俗，低调严谨。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-48.jpg)
+随着全球化的发展，SWIFT成为了全世界统一认证的支付系统。郭先生把SWIFT形象地比喻为进入地球村大门的钥匙，俄罗斯被SWIFT踢出，所有俄罗斯人的账户都会受到影响，无法支付任何生活所需，就算有再多不具备流通性的黄金，也无法用来支付。尽管很多俄罗斯富豪都持有第三国护照，照样会受制裁。未来中共国一旦被SWIFT制裁，也会和俄罗斯一样，不分老百姓还是盗国贼或者持有他国护照，每个人都逃脱不了。
 
-在梅迪卡，最大的难民援助帐篷是由……中国人搭建的。 “支持普京的共产党当局不代表我们的人民。这是一个独裁政权。这就是我们参与帮助的原因。我们与乌克兰人并肩作战。”
+这时候唯有新中国联邦人可以免受制裁，因Hpay 提供了一个超级的流通支付系统。秉持消灭中国共产党的使命，投资过G系列、喜币、喜联储，这些会成为护身符，保护每一个战友的安全和财富。
 
-这条推文发布短短3个小时的时间就获得了1000多次点赞，300多次转发。
+参考链接：[俄罗斯寡头被西方制裁说明了什么？](https://gettr.com/post/pzu0el34d1)
 
-推文配图是我们两位战友义工在新中国联邦的救援帐篷前的留影，帐篷上悬挂着新中国联邦的国旗和救援标志。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-推文引用妮可的原话告诉世界：“中国共产党是独裁政权，不能代表真正的中国人。”
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
 
-这次乌克兰救援行动，不仅让新中国联邦在国际社会崭露头角，更为所有黄皮肤的亚裔人种树立了绝对正面的形象。我们用实际行动告诉世界：中国人是热爱和平，渴望民主自由，愿意与文明社会为伍的，当民主国家受到独裁政权的侵犯时，我们会积极勇敢并有实力投入互帮互助的救援行动！
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1647447429.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

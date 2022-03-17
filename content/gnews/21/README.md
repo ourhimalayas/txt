@@ -2,26 +2,24 @@
 ---
 
 
-## 新中国联邦援乌营地迎来商用专业咖啡机
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2177225/)
+## 中共假借疫情防控发起经济超限战
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2177445/)
 
-**作者、编辑：Candy**
+采编/撰稿：加拿大温哥华扬帆农场 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1838.png)图片链接：[中共自爆房地产，已然倒计时读秒 – GNEWS](https://gnews.org/zh-hans/2038850/)
+据加拿大媒体【CTV新闻】3月15日报道，由于中共近期加强了沿海各大货运港口的防疫控制，因而使汽车和电子工业原材料的进口受到阻断的风险。
 
-3月16日波兰时间，法治基金出资购买的一个商用专业咖啡机，已经运到新中国联邦驻波兰梅迪卡的援乌营地，为援乌国际救援中心的人们提供现磨咖啡助力！
-![Image](https://media.discordapp.net/attachments/950448401529577502/953613928552890388/3DF34E8D-5C99-4AF9-B4FD-93B8B5E5A937.jpg?width=541&amp;height=406)图片来源：文耀![Image](https://media.discordapp.net/attachments/950448401529577502/953613805949190144/957BCE1D-54B9-4BA6-96B1-2E0C8E9EE5F2.jpg?width=541&amp;height=406)图片来源：文耀![Image](https://media.discordapp.net/attachments/950448401529577502/953613657999286312/9BF8B55E-0E31-41D4-9FDE-5C51A992E510.jpg?width=541&amp;height=406)图片来源：文耀
-自从我们新中国联邦在援乌营地添加的家用咖啡机，新中国联邦咖啡马上成了营地明星，每个人都喜欢得赞不绝口。但是在人特别多的时候，会影响人们及时喝到咖啡。
+报道称，当局在俄乌战争、油价飙升和消费疲软之际实施了极端的“病毒清零”政策。深圳、上海和宁波等港口业务的中断，将对国际贸易及其相关企业群体产生巨大冲击，并造成大量集装箱货运的长期停滞。
 
-今天添加了这个新的商用咖啡机，每小时可以产出124杯咖啡，花费了6000多欧元，有咖啡机中的法拉利之称！这下救援中心的人们一定会更及时地喝到更加香醇的现磨咖啡，闻名的新中国联邦战地现磨咖啡。
+评论指出：中共国目前的经济几近坍塌，特别是支撑其国内金融和劳动力市场的房地产建筑业已摇摇欲坠，而因此所导致的金融崩溃，必将使其在能源获取，产品供应链乃至互联网运行等方面都无以为继。
 
-让我们衷心地感谢为法治基金捐款的爱心奉献者们！
+随着欧美及其盟国即将把中共剔除出SWIFT国际金融系统，无法承受的内部危机必将迫使习近平当局为逃避灭亡，铤而走险武统台湾，从而因此正式打开彻底灭共的第三道大门。
 
-***发布：Candy***
+校对编辑：硫酸羟氯喹64
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+发稿：青青
+
+原文链接：[China’s COVID cases climb, threaten trade disruption | CTV News](https://www.ctvnews.ca/health/coronavirus/china-s-covid-19-cases-climb-raise-threat-of-trade-disruption-1.5819524)
 
  
 

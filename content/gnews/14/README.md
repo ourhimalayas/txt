@@ -2,10 +2,32 @@
 ---
 
 
-## 3/15/2022 文贵直播：中共使领馆已撤离乌克兰，却远程操控搞虚假救援；新中国联邦进入乌克兰救援中国同胞，用真和实力干掉中共的假
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2177463/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月16晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2177664/)
 
-秘密翻译组-北美组
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-6.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1-4.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/p10e5e43259](https://gettr.com/post/p10e5e43259)
+访谈：[https://gettr.com/post/p10e63c4c1c](https://gettr.com/post/p10e63c4c1c)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-2.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

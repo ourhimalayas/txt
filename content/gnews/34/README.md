@@ -2,53 +2,36 @@
 ---
 
 
-## 澳防长警告北京可能利用俄乌冲突吞并台湾
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2176429/)
+## 普京抓捕情报机构高管
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176862/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/A.jpg)marketsubset.com
-随着与中共国紧张关系加剧，数千名接受过使用地对空导弹系统、高机动性火炮火箭和无人驾驶飞机训练的美国士兵将前往澳大利亚。
+作者：香草山农场 – 柳是多水土透
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+外媒12日报道，俄罗斯联邦安全局负责海外情报工作的长官——谢尔盖·贝塞达中将及其副手阿纳托利·博卢克——11日被普京下令软禁在家。
 
-由大约2200名男女军人组成的美国海军陆战队轮换部队将在即将到来的9月旱季期间驻扎在北领地。澳大利亚国防军宣布，这是第11次部署到北领地地区，并首次包括250名美国陆军人员。
-
-这支特遣队是美国在印太地区正在进行的倡议的一部分，目的是为未来几年中共国可能入侵台湾做准备。
-
-澳大利亚的国防部长彼得·达顿（Peter Dutton）在去年9月警告说，与中共国的冲突 “不应该被打折扣”，并在本周三告诉美国研究中心，北京可能会寻求吞并台湾，而世界正专注于俄罗斯对乌克兰的入侵。
-
-海军的部署将补充澳大利亚皇家空军和美国空军之间的强化空中合作计划。
-
-大约1000名海军陆战队员已经在达尔文港登陆。他们将与澳大利亚国防军一起训练，以确保他们有能力应对该地区的危机。这可能包括人道主义援助、救灾、疏散任务，以及加强美国大使馆或军事行动。训练将包括实弹军事演习，以提高澳大利亚和美国部队以及其他地区盟友部队之间的凝聚力。
-
-达尔文港的位置就在十几个亚洲国家和一些世界上最繁忙的航道的南边，这使它成为一个战略中转站。
-
-海军陆战队预计将在10月完成轮换。在宣布这一消息的同时，达顿先生警告说，如果有必要，将使用 “可信的军事力量 ”来阻止印太地区的独裁主义蔓延。
-
-在对美国研究中心的讲话中，达顿先生警告说，中俄联盟产生了“不祥的征兆”，他说澳大利亚和美国将围绕共同利益加紧塑造印太地区。
-
-“澳大利亚和美国在致力于地区稳定方面步调一致。”他在论坛上说。
-
-该国防部长直接针对中共国，说共产党领导人可能会寻求利用乌克兰冲突的掩护，以“一个有用的分心的机会来追求他们自己的侵略和胁迫行为”。
-
-达顿先生说：“这种威胁主要来自北京，它有自己公开声明的领土野心，而且最近与克里姆林宫建立了‘无限制’的合作关系。”
-
-为了对付北京在该地区日益增长的侵略，美国、澳大利亚和英国宣布了AUKUS协议，该协议将使堪培拉在未来几十年内获得核动力潜艇。此举激怒了这个共产主义超级大国，其官媒警告说此举可能使澳大利亚成为核打击的目标。
-
-达顿先生进一步警告说，澳大利亚在面对俄罗斯入侵时支持乌克兰后，可能会成为不断升级的网络攻击的目标。
-
-“克里姆林宫长期以来一直寻求将互联网作为武器，作为在后苏联时代进行不对称战争的一种手段。”达顿先生还将俄罗斯的入侵称为 “史无前例的灾难”，可能会摧毁普京总统。
-
-他补充说：“今天，是乌克兰人民在为捍卫他们的自由而战斗，以抵御灭亡。如果普京总统成功了，所有自由国家都将面临一个更黑暗的明天。”
-
-**特评**：这篇3月15日英国《每日邮报》的新闻报道了一支美国特遣队包括250名美陆军将进入澳大利亚参加美澳联合行动。为了应对中共对台湾及印太地区的侵略扩张，美国、澳大利亚和英国宣布了AUKUS协议，该协议将使澳大利亚在未来几十年内获得核动力潜艇。此举激怒了中共，其官媒警告说此举可能使澳大利亚成为核打击的目标。
-
-笔者将该文中澳大利亚国防部长本周三对美国研究中心发表的警告重点翻译编辑出来，达顿防长警告称中俄联盟产生了“不祥的征兆”。看来世界尤其印太地区对中俄“无限制”的合作关系即中共是普京入侵乌克兰的支持者这点已然看得明白，对中共以俄乌之战为掩护来攻台的行动也在做应对准备。
-
-郭先生爆料称，习一定会打台湾，他是普京入侵乌克兰战争背后的金主，中共还在中东搞事，就是在赌美国不可能同时打赢三场战争。
+68岁的贝塞达曾任俄罗斯联邦安全局局长，而博卢克則是行动情报部主任。普京认为，战争进展不利，和俄方大量伤亡是由于情报有误。开战前他曾被告知，乌克兰仅会做象征性抵抗，人民普遍对现状不满，会配合侵略军推翻政府，乌军战力薄弱，遍布新纳粹成员，受到攻击后会很快投降。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-57.jpg)
+但当俄罗斯派出轻型部队迅速攻占关键设施后，却遭到猛烈反击和持续抵抗。乌克兰人更紧密地团结在了泽连斯基政府周围，仅首都就有10万人以上加入民兵组织，就连乌东部俄语区也存在民意反转。 攻势受阻后，俄罗斯被迫放弃速战速决计划，转为消耗战，攻城战，导致了大量平民伤亡和不断升级的制裁。
 
 参考链接：
+1. [Kremlin arrests FSB chiefs in fallout from Ukraine chaos](https://www.thetimes.co.uk/article/kremlin-arrests-fsb-chiefs-in-fallout-from-ukraine-invasion-chaos-92w0829c5)
+2. [Putin ‘has placed the head of the FSB’s foreign intelligence branch under house arrest because he is furious at security services for failing to warn him’ that Ukraine could fiercely resist invasion](https://www.dailymail.co.uk/news/article-10603045/Putin-places-head-FSBs-foreign-intelligence-branch-house-arrest.html)
 
-[https://www.dailymail.co.uk/news/article-10617533/United-States-deploy-THOUSANDS-troops.html](https://www.dailymail.co.uk/news/article-10617533/United-States-deploy-THOUSANDS-troops.html)
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+总编：天滅中共
+编辑/审核:飞虹
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

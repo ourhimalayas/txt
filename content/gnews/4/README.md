@@ -2,27 +2,41 @@
 ---
 
 
-## 大多数加拿大人支持北约军援乌克兰
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2177736/)
+## 有声|中共经济危机重重
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2177820/)
 
-采编：加拿大温哥华杨帆农场 – 文莱
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间3月15日，据相关媒体消息显示，香港恒生指数当天依旧延续前一天的颓势，再次大跌超过5%，直接跌穿两万点的支撑位，且盘后仍继续下行。 对此，郭文贵先生也在盖特平台上发布消息称，一位香港的朋友发信感谢郭先生早前的提醒，从而让他能在港股崩溃前撤出资金。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-28.jpg)
+同一日，各类经济负面消息充斥着整个中共国内的新闻版面。首先，墙内上证指数大跌2.6%，深成指和创业板跌幅也双双超过3%。其次，腾讯和阿里均被爆出将减少三成员工。同时，有消息人士透露，腾讯还因微信支付违反了中共的《反洗钱法》，即将面临创纪录的巨额罚单。
 
-翻译编辑：加拿大温哥华杨帆农场 – 文所未闻
+另一方面，中共恒大集团宣布，其将退出广州南沙阳光半岛项目，并将该项目划归给某中共央企接盘。有评论人士称，恒大早已无力摆脱自身的债务困境，中共的房地产企业危机将进一步恶化。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-12-1.jpg)图片来源：《多伦多城市报》
+最后，中共福建省银保监局当天突然发表声明扬言，中共国内的银行理财产品并非零风险，为此，当局要求消费者提高对所有理财产品的风险意识。
+
+郭先生早先在直播中强调，一旦港股跌破两万点大关，中共的经济必然会出现严重的问题。而今，中共国内的经济现状正在逐渐显露出其破败的真面目。
 
 
-据《多伦多太阳报》3月15日报道，最新民调显示，大部分加拿大人认为，随着俄乌战事升级，北约应立即进行军事干预，以维护欧洲地区的安全。
 
-据悉，在参与本次调查的近3000名加拿大和美国人中，约64%的人认为俄乌战争将持续多年。此外，约65%的人表示，加拿大政府应对俄政府实施更严厉的制裁。同时，约75%的受访者担忧当前局势将导致第三次世界大战。
+文字版原文：[中共经济危机重重](https://gnews.org/zh-hans/2175084/)
 
-报道称，目前大部分加拿大人都支持乌克兰加入北约。据《北大西洋公约》第5条规定，对任何一个北约成员国的攻击将被认定为对整个北约组织的侵犯，因此所有北约国家都有责任保卫被攻击盟国的安全。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-校对编辑：硫酸羟氯喹64
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-发稿：文明(添草灭共)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-原文链接： [https://torontosun.com/news/national/canadians-believe-nato-should-prepare-to-fight-russias-invasion-of-ukraine-survey](https://torontosun.com/news/national/canadians-believe-nato-should-prepare-to-fight-russias-invasion-of-ukraine-survey)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
