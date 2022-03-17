@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 5:32 AM (UTC)`
+
+3/16/2022 Miles Guo’s GETTR: The Hang Seng Index will wipe out not only the wealth accumulated in the past 100 years, but also the Mandatory Provident Fund in Hong Kong; the internal investigation of CCP predicted earthquake to occur in Hong Kong, yet none of the buildings in Hong Kong is earthquake proof; the CCP’s original plan was to unleash CCP virus in Taiwan, yet it is Hong Kong, Shenzhen and Jinlin where the virus has been rampant. The “Zero COVID” policy of the CCP will lead to disasters; the mission of the New Federal State of China is to bring freedom of faith, rule of law and individual security to all Chinese<br/><br/>3/16/2022 文贵盖特：恒生指数将抹去港人百年基业和强积金；香港房屋不防震，而中共内部文件却预测香港将发生地震；原本给台湾准备的病毒在香港、深圳、吉林肆虐，清零政策将带来灾难；新中国联邦将让老百姓在中国拥有信仰自由、法治、安全<br/>
+![img](https://media.gettr.com/group33/getter/2022/03/17/05/70696bc2-e7c8-a5d1-d45e-b6ee763783ed/out.jpg)
+
+---
+
+`@miles 3/17/2022 5:31 AM (UTC)`
+
+3/15/2022 Miles Guo: Bi Fujian, a former CCTV host, was laid off by singing “Thief Mao (Zedong)”, the Chinese people may have to pay higher price where “Xi the Sun” will burn the whole China nation to the ground; Bloomberg who treats Wang Qishan as real daddy attempted to trap our fellow fighters on the front line by claiming our humanitarian rescue is playing politics, all these evil scumbags will be put behind bars!<br/><br/>3/15/2022 文贵直播：老毕因唱出“毛贼东”而被下岗，中国人会付出更惨烈的代价，习太阳会把中国整个民族烤焦；视王岐山如亲爹的布隆伯格给前线战友挖坑，诬陷新中国联邦人道救援是搞政治，它们不会逃脱人类大审判！<br/>
+![img](https://media.gettr.com/group35/getter/2022/03/17/05/c01a59e4-54f5-f6a2-de5c-8657ac2f143f/out.jpg)
+
+---
+
+`@miles 3/17/2022 5:26 AM (UTC)`
+
+3/15/2022 Miles Guo: The CCP embassy and consulates have been evacuated from Ukraine, but they are remotely manipulating the fake rescue operation. The New Federal State of China has entered Ukraine to rescue the fellow Chinese people, using truth and strength to defeat the CCP's fraud. Brother David tells the story of cleverly handling the infiltration of a Russian spy to a chartered bus of our rescue operation.<br/><br/>3/15/2022 文贵直播：中共使领馆已撤离乌克兰，却远程操控搞虚假救援；新中国联邦进入乌克兰救援中国同胞，用真和实力干掉中共的假；大卫讲述巧妙处理俄罗斯间谍渗透救援巴士的故事<br/>
+![img](https://media.gettr.com/group11/getter/2022/03/17/05/30d1d7b2-06b4-ede2-7639-c4b605daa0a2/out.jpg)
+
+---
+
 `@miles 3/17/2022 5:23 AM (UTC)`
 
 3/15/2022 Miles Guo: The COVID virus outbreak and economic crisis happening in Hong Kong will lead to a series of problems in China：the real estate market will start to collapse most likely from the north all the way to the south, and the pandemic is getting further out of control; the CCP’s last hope is to attack Taiwan, which opens the third door to taking down the CCP<br/><br/>3/15/2022 文贵直播：香港病毒和经济危机会进而导致中共国自北向南一系列的房地产崩盘和进一步病毒失控，中共最后的疯狂必将是打台湾，届时灭共第三道大门就会打开<br/>
@@ -134,28 +155,6 @@ The new Chinese volunteers working at the rescue center at Medyka are not from t
 
 【Ukraine Rescue】In Medyka, Poland. The photographer captured an unforgettable video that happened on the front line: during the short interval between serving two groups of refugees in the rescue tent of NFSC, one rescue member was playing football with a Ukrainian boy. We want the war to end as soon as possible and Ukrainian people can return to a peaceful life. NFSC rescue team is the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity! <br/>【乌克兰救援】波兰梅迪克， 摄影师抓拍到了救援前线的一个难忘的视频，在服务两批难民的简短空隙时间，一名救援队员正和一名乌克兰孩子在新中国联邦的救援帐篷内踢足球。我们希望战争尽快结束，乌克兰人民能够恢复和平的生活！新中国联邦救援团队是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。
 ![img](https://media.gettr.com/group11/origin/2022/03/16/18/d42c671b-8adb-a8fe-b275-279cde232387/out.jpg)
-
----
-
-`@miles 3/16/2022 6:10 PM (UTC)`
-
-【Ukraine Rescue】<br/>In the cold night, the rescue team from the New Federal state of China and the Rule of Law Foundation prepared warm tents, blankets, food, hot coffee, chargers, toiletries, etc. so that everyone who escape Ukraine can enjoy a moment of comfort.<br/>【乌克兰救援】<br/>在寒冷的夜里，来自新中国联邦、法制基金的救援队，为大家准备了温暖的帐篷、毛毯、食物、热咖啡、充电器、洗漱用品等，让每一位逃离乌克兰的人都能享受到片刻的舒适。
-![img](https://media.gettr.com/group5/origin/2022/03/16/18/827d23aa-5293-6c1b-91b8-71283d2c1b4d/out.jpg)
-
----
-
-`@miles 3/16/2022 4:18 PM (UTC)`
-
-3月16号：【长岛哥，刚才，波兰🇵🇱第二大广播电台ZET 在他们的官方推特账号上报道了“中共不代表中国人“ “新中国联邦在梅蒂卡的帐篷是最大最好的“】<br/>https://twitter.com/rafalmizejewski/status/1504088603089162252?s=21
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gtranslators_2 3/16/2022 3:28 PM (UTC)`
-
-[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.03.16 EST
-![img](https://media.gettr.com/group48/origin/2022/03/16/15/afbe6c07-b850-4333-e878-fb1025891695/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
