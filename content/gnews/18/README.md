@@ -2,79 +2,36 @@
 ---
 
 
-## 乌克兰：泽连斯基总统为该国签署了一项对加密货币友好的法律
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2182497/)
+## 美追加对乌军事援助称“普京永远无法获胜”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2182533/)
 
-翻译：香草山商业部——文锤
+**撰稿：文舞两道**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+3月16日，美拜登总统签署总统令，决定向乌克兰追加提供总额8亿美元的军事援助，并将提供无人机和防空导弹系统。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1927.png)图片来源：[NHK](https://www3.nhk.or.jp/news/html/20220317/k10013536971000.html?utm_int=news-international_contents_list-items_007)
+拜登总统在现场表示，“我们支持为自由而战，这是美国和全世界的基本原则，普京永远无法获胜”。拜登总统说，“为防止飞机和直升机袭击平民并保卫乌克兰领空”，我们还将为乌克兰提供无人机和防空系统。
 
+据白宫称，此次军事援助将包括800个防空导弹系统“毒刺”和100架无人机。
 
+乌克兰总统泽连斯基呼吁在乌克兰上空建立禁飞区，并提供战斗机以抵御俄罗斯军机的轰炸和导弹袭击。美国否认了直接与俄罗斯发生军事冲突的可能性。
 
+另一方面，在平民伤亡不断增加的情况下，加强乌克兰的防空能力已成为当务之急。现在美国在紧盯俄罗斯的同时，尽可能的为乌克兰提供军事支援，拜登总统说，在为乌克兰提供远程防空系统的同时，将尽力与同盟国、友好国一起提供更多的武器和装备”。并表示在各国的协助下将进一步加强对乌克兰的军事援助。
 
+此外，拜登总统对记者说，普金是“战犯”，这是拜登总统首次使用“战犯”一词严厉的指责普金。
 
-乌克兰总统 Volodymyr Zelensky 签署了一项法律，既要规范，又要鼓励采用加密货币。具体而言，这将使为加密货币定义精确的法律地位成为可能，并且还将允许该国的银行为专业人士管理加密资产账户。
+白宫发言人萨基在新闻发布会上说，“这是总统在看到独裁者杀害公民，袭击医院、孕妇和记者的残暴行径后发表的言论”。并表示，国际法院正在调查俄罗斯的行为是否构成战争罪。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/blob.jpg)[图片来源于网络](https://cryptoast.fr/ukraine-president-zelensky-signe-loi-crypto-friendly-pays/)
+信息来源：[NHK：米 ウクライナに追加軍事支援 「プーチンを絶対に勝たせない」](https://www3.nhk.or.jp/news/html/20220317/k10013536971000.html?utm_int=news-international_contents_list-items_007)
 
-**加密货币现在在乌克兰受到青睐**
+**编辑：MQ**
 
-乌克兰现任总统Volodymyr Zelensky刚刚正式将国内加密货币的使用[合法化](https://cryptoast-fr.translate.goog/fiches-crypto/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)。
+**发布：歪桑の幽霓控**
 
-在支持该国的大量捐款（迄今为止以加密货币形式提供的超过 1 亿美元）之后，泽伦斯基总统刚刚签署了最初于去年 2 月在乌克兰最高拉达（Supreme Rada）内生效的数字资产法。
+20220317
 
-这项新法律将重点关注以下几点：
-
-- 确定加密货币的法律地位和精确分类；
-- 任命乌克兰国家银行及国家证券和股票市场委员会为监管机构；
-- 创建数字资产服务提供商列表，以便向相关机构注册；
-- 实施措施以规范在乌克兰境内加密货币的使用。
-
-
-此外，从现在开始，加密货币领域的公司以及交易所将必须向政府注册，以获得在该国运营的验证。此外，乌克兰银行现在将能够为专业人士管理加密货币账户。
-
-乌克兰政府还表示，财政部已经在着手修改该国的税法和民法典，以适应加密货币。
-
-“总统签署这项法律是让加密货币行业走出阴影并在乌克兰启动虚拟资产合法市场的重要一步，”数字化转型部表示。
-
-**有意义的新法律**
-
-一方面，就当前情况而言，这一决定似乎是合乎逻辑的，因为乌克兰能够从国际社会对加密货币的大量援助中受益，但也因为乌克兰是世界上数量最多加密货币持有者的 5 个国家之一。
-
-与此同时，根据议会的一份声明，越来越多的专注于加密货币的公司正在乌克兰发展。因此，法律框架必须最终强加于人。
-
-总体而言，这些措施将有助于规范国内加密货币的使用，同时促进其在民众中的采用，数字转型副总理Mykhailo Fedovov证实了这一想法：
-
-“这项新法律为我们国家的业务发展提供了额外的机会。外国和乌克兰的加密货币公司现在将能够在该领土上合法经营，而乌克兰人将可以轻松安全地进入全球虚拟资产市场。市场主体将享受法律保护，并能够在与政府协商的基础上做出决定。 ”
-
-**原文阅读：**
-
-**[Ukraine : le président Zelensky signe une loi crypto-friendly pour le pays (cryptoast.fr)](https://cryptoast.fr/ukraine-president-zelensky-signe-loi-crypto-friendly-pays/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

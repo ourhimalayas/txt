@@ -2,51 +2,32 @@
 ---
 
 
-## 全球疫情疫苗数据更新（新的一波疫情已经开始）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2182669/)
+## 关于25至44岁人群死亡增加的惊人发现
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2182736/)
 
-整理：枳实
-美工：精灵蓝
+作者：约瑟夫·默科拉（Joseph）
+发布日期：2022年3月11日
+新闻来源：Mercola.com
+翻译：文虓Bobby
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/6-68.png)图片：雅典娜农场设计组 精灵蓝
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1936.png)
 
+在这段视频中，基金经理爱德华·多德(Edward Dowd)使用美国疾病控制与预防中心(CDC)自己的数据显示，25岁至44岁年龄组的死亡率上升了84%。他指出，死亡人数的增加与秋季接种COVID-19疫苗的强制（授权）和支持者有关。
 
-雅典娜疫情更新（2022年 3月17日）
+多德说，这一消息“令人震惊”。“我认为，这是历史上最严重的超额死亡率。基本上，千禧一代在2021年下半年经历了越南战争。”
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+去年秋天，千禧一代遭受了有史以来最严重的超额死亡率，与这些死亡同时发生的是宣布强制疫苗和批准加强针。
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/90F_189VA3FOQRJF1NKY.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-195.png)
-**各国疫情的比较**
+这些较年轻的人群感染COVID的风险并不特别大，而2021年秋季出现这一高峰的规模和时间，让人对对疫苗强制和加强针提出明确质疑。
 
-澳洲的疫情几天来连日增长。从下图中的各国每日新增病例（每百万人口）曲线比较中可以看出全球范围内很多国家的新一波疫情已经开始。比较韩国和香港，在一周前香港和韩国的疫情曲线基本上是同步暴增。可是香港却忽然莫名其妙的陡降，郭先生上次直播提到过，香港的疫情数字完全是假的，这样就说得通了。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ANDXCXE_6D1LZM.png)
-[2022年3月17日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月17日改进.pdf)
+如你所知，针对较年轻人群的死亡报告通常也要慢得多(由于对非住院死亡的报告较慢)，因此，最近这一年龄组的死亡率持续上升至2022年初，极有可能进一步发展，并可能预示着2022年该年龄人群的死亡率将继续上升。
 
-数据来源：
+***原文链接：***
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[https://www.sott.net/article/465379-Shocking-findings-on-increased-deaths-in-25-to-44-year-olds](https://www.sott.net/article/465379-Shocking-findings-on-increased-deaths-in-25-to-44-year-olds)
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**审核校对：玫瑰天空
+上传排版：V在途中**
 
  
 
