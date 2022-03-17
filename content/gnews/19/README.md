@@ -2,43 +2,22 @@
 ---
 
 
-## 中东石油——影响战争的重要因素
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2178568/)
+## 樱花时政┃多名记者在乌克兰战争中遇难
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2178589/)
 
-作者：纽约香草山农场教育部-马克文、朱丽叶
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-石油是现代社会不可缺少的重要物资，人们的衣食住行都离不了石油。第一次世界大战后，石油在经济和军事上的重要地位日益明显，一个国家掌握石油资源的能力，影响到战争的胜败存亡，成为各大国必争之资源。中东主要的产油国有沙特阿拉伯、伊拉克、伊朗、科威特、阿联酋、卡塔尔。全球石油输出排前3名的国家：沙特阿拉伯、俄罗斯、伊拉克。俄罗斯入侵乌克兰战争爆发后，美国等西方民主国家为制裁俄罗斯，宣布不再采购俄罗斯石油，中东成了民主国家石油资源的重要生命线。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1863.png)[图片来源](https://www.indiatoday.in/world/russia-ukraine-war/story/russia-ukraine-war-highlights-emergency-unsc-meeting-called-to-discuss-ukraine-humanitarian-situation-1925817-2022-03-16)
+自俄罗斯入侵乌克兰以来，至少已有5名记者丧生，30多名记者受伤。3月15日，乌克兰议会人权专员丹尼索娃议员表示，除美国记者布伦特·雷诺外，乌克兰记者 杜达尔和扎昆也死于俄军炮火。同一天，美国福克斯新闻报道，摄影师扎采夫斯基和记者库夫什诺瓦在基辅附近遇难。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-30.jpg)
+丹尼索娃议员强调，“俄军极力阻止对其在乌克兰战争罪行的客观报道，杀害、枪击记者。”她指出，记者杜达尔在乌南部城市尼古拉耶夫附近遇难，摄影师扎昆在基辅死于火箭攻击。她还表示，外国记者也遭到目标明确的枪击，有多名记者受伤，其中一名瑞士人和两名丹麦人。英国天空新闻记者团队摄下了自己如何在基辅西北部的布察遭枪击的情景，记者拉姆塞受伤。  福克斯新闻通报说，扎采夫斯基和库夫什诺娃周一与记者霍尔所乘的车在霍伦卡遭到攻击，霍尔亦受伤，将继续在医院救治。
 
-历史资料显示，1990年8月-1991年2月的海湾战争，伊拉克独裁者萨达姆公然宣布入侵科威特，推翻科威特政府，要完成伊拉克“大统一”。此举引发中东石油危机及价格震荡，在联合国授权下，以美国为首的西方国家组建联军快速反击，重创伊拉克军队，最终把伊拉克赶出科威特，稳定了石油市场。
+为了破坏通讯，俄军摧毁了数座电视塔，分别位于基辅和乌罗夫诺附近地区，有多人丧生。
 
-2022年2月24日俄国独裁者普京发动入侵乌克兰战争，乌克兰总统泽连斯基率领人民拼死抵抗，战势出现了对持状态。郭文贵先生对战争发展早有预测，中共阴谋在中东开启第二战场，打击美国等西方国家的主要能源供给生命线，围魏救赵，同时抓住时机武统台湾，开辟第三战场。
+信息来源：[多名记者在乌克兰战争中遇难](https://www.dw.com/zh/%E5%A4%9A%E5%90%8D%E8%AE%B0%E8%80%85%E5%9C%A8%E4%B9%8C%E5%85%8B%E5%85%B0%E6%88%98%E4%BA%89%E4%B8%AD%E9%81%87%E9%9A%BE/a-61151679)
 
-3月4，胡塞武装宣布轰炸了沙特首都的石油设施以及其他目标，引起国际石油市场价格暴涨，造成恐慌。如果发生中东石油战争，美国等西方国家的石油资源会出现崩溃的危险，势必影响到美国等西方国家提供给乌克兰与台湾的军事支持。
-
-第三次世界大战从病毒疫苗已经转到地面战场，世界民主制度国家与独裁制度国家的最终对决已经开启，正义必将战胜邪恶，重整世界新秩序。
-
-链接：
-
-- [石油战争](https://zh.wikipedia.org/wiki/%E7%9F%B3%E6%B2%B9%E6%88%98%E4%BA%89)
-- [石油](https://zh.wikipedia.org/wiki/%E7%9F%B3%E6%B2%B9)
-- [海湾战争](https://zh.wikipedia.org/wiki/%E6%B5%B7%E6%B9%BE%E6%88%98%E4%BA%89)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
-
-总编：zhong
-编辑：Jack Li文阳
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

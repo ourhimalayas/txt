@@ -2,52 +2,53 @@
 ---
 
 
-## 断中共SWIFT同时查封资产&amp;断互联网&amp;砸黄金重金属价格
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2178660/)
+## 英国出版商审查西方书籍以维持在中共国的廉价印刷合同
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2178819/)
 
-Youtube视频链接：[https://youtu.be/nwYSFlcsS58](https://youtu.be/nwYSFlcsS58)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/china-leader-xi-jinping-raise-glass-donald-trump-welcome-getty-640x480-1.jpg)习近平。图片：TPG/盖蒂图片社
+《布赖特巴特新闻网》2022年3月15日消息，据报道，英国的两家出版商对西方读者的书籍进行了审查，以维持他们在中共国廉价生产书籍的能力。
 
-Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+英国《金融时报》报道，据称英国出版商Octopus Books 和Quatro已从面向中共国以外读者的书籍中删除了引用主题被中共视为禁区的内容，如台湾和西藏，因为他们希望维持与中共国境内印刷公司的合同。
 
-**郭文贵先生：**关于SWIFT这个完以后有什么币？对共产党一定要记住SWIFT这有两个级别：
+该报声称获得了证明这两家出版社对书籍进行了秘密编辑的文件。据英国《金融时报》报道，Octopus至少在两本书中删除了对台湾的引用，并在另一个例子中审查了关于这个岛国的整个章节。台湾拥有自己的独立民主政府，并拥有独特的文化、货币、书面语言和军队。尽管中共政府从未统治过该岛，但中共声称拥有其所有权。
 
-第一：就是咱所说的断网，就你啥都没了，就不让你用了——就断网了，就断网了。比如头两天咱们有战友使用G-TV是吧？乱来，G-TV就把你清除账号了，没有什么币了，不存在你多长时间了，没有什么币了，就给你断网，这是一个级别。
+该报道还声称，英国图画书出版商Quarto从畅销书《This Book is Anti-Racist》中删除了对香港一名异见人士的引用。据称，Quarto还对作品进行了编辑，将引用台湾人国籍的内容改为“东亚”，并修改了关于西藏问题的文本以符合中共政府的主张，后者声称西藏一直是中共国的领土，尽管西藏在1951年被毛泽东部队吞并之前就已经是独立的。
 
-第二个我有条件的、限制性的，某种货币让你交易。
+拥有 Octopus Books 的阿歇特出版公司(Hachette)的一名员工告诉该报，该公司在“道德层面”上不同意审查制度，但表示“还没有不同意到让他们提高其书籍价格的程度”。
 
-但我觉得美国一定是给他断网的，而且我觉得美国对中共SWIFT的时候一定是三件事同时干：
+为了进一步支持其说法，该报声称获得了美国印刷公司当纳利公司(RR Donnelley & Sons)制作的一份备忘录，该备忘录中写道，其中共国印刷商被禁止印刷包含新疆地区侵犯人权行为或者中共病毒源自中共国的书籍。
 
-第一件事情查封你所有的海外的，所谓共产党资产和中国领导资产。一定不会像对俄罗斯一样——普京本人不弄你。但是大家要记住，普京——个人不可能开帐户，普京的几个最亲近的人——代理人开账号。大家都知道那几个人，是吧？那就封他，就等于封普京了。习近平也不可能开账号，但习近平呢，还有韩正，这帮孙子的所有家人、朋友帐号肯定给他封了，整个个人财富全封了。所以停——断网，个人财物查封。
+美国出版业以外的其他主要机构也屈服于中共政府的想法，包括美国“国家橄榄球联盟”(NFL)和美国“国家篮球协会”(NBA)，他们都分别在台湾和香港的问题上“安抚”了这个共产主义政权。
 
-第三个是干什么事情，对老共可能更加狠的，让他想不到——把互联网、整个互联网给它断了。“根器”就给你断了，直接把你“根器”就给你断了。那时候的香港港币还是有什么？就没了。人民币直接就是冥币了，
+美国地球仪制造商MOVA甚至向美国人出售带有所谓九段线的地球仪，九段线勾勒出中共在南海可疑的领土主张。
 
-而且到那个时候，可能是前所未有的，美国为了自身的安全和整个欧洲人的经济安全，它必须做出一条，可能是美国在黄金还有这些重金属价格上，可能会有国家紧急措施，因为普京和“习太阳”搞了一些黄金，是吧？美国就不会让你这些黄金叫你变成东西，让你变成铜都不值。
+去年，德国出版商卡尔森(Carlsen)也屈服于中共国的要求，甚至实际销毁了一本声称武汉病毒来自中共国的儿童书的副本。
 
-编辑整理：Jacques；
+英国出版商也有修改作品以“安抚”这个共产主义政权的历史，学术出版商施普林格·自然 (Springer Nature)和剑桥大学出版社(Cambridge University Press)此前因阻止数百篇文章在中共国被访问而受到批评。
 
-字幕文件制作：小满；
+**简评：**
+西方出版商、学术界、科研界与西方主流媒体一样，已经完全被中共成功蓝金黄。高尔基曾说过“书是人类进步的阶梯”，阅读被独裁者修订的书籍，可能走入的会是地狱，中共国的历史课本就是最好的例子。如今，为了维持自己高额的利润，西方大型出版社在中共廉价印刷合同的驱使下，将中共认为对其政权不利的新疆、西藏、香港、台湾的内容随意删除或者篡改事实。从什么时候开始中共国的审查制度被言论自由的西方世界接受并广泛应用，而这些传播知识者变成了中共的爪牙。中共在西方各大高校、研究机构的大撒币以及利用中国人廉价科研劳动力的渗透，偷走了大量的科技技术，更使得西方许多科学家一脚踏入泥潭，与中共沆瀣一气。
 
-视频制作及上传：Cindy；
+2019年底中共发动的中共病毒大战，就是这一切的现世报。中共病毒的研发，资金和技术来自于西方科研机构。而掩盖病毒真相、宣传中共病毒疫苗的是被中共渗透的学术界以及西方主流媒体和卫生机构。中共一直以来以十四亿中国人和市场作为绑架资本社会的武器，用其擅长的恶毒手段，软硬兼施激发出西方人道德与文明约束下的人性的邪恶。如果没有新中国联邦爆料革命站出来揭穿这些真相，随着西方人阅读这些书籍，再加上主流媒体为中共的洗白，中共的邪恶可能真的会被掩埋，西方文明也会逐渐分崩瓦解，那时候中国人甚至全世界人民将会活在万劫不复的地狱。这是西方文明与共产主义的终极之战，新中国联邦爆料革命希望与国际社会一道，坚守正义，坚持唯真不破的原则，共同消灭邪恶的中国共产党政权。
 
-G-News发布：小满；
+新闻链接：[UK Publishers Censor Western Books to Preserve Cheap Printing Contracts in Communist China: Report](https://www.breitbart.com/europe/2022/03/15/uk-publishers-censor-books-to-appeace-communist-china-report/)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+*翻译/简评：milkcat*
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+*校对: Harvey（叶知秋）*
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+* * *
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+编辑：【英国伦敦喜庄园编辑部】
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

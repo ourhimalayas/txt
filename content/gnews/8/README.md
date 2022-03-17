@@ -2,27 +2,31 @@
 ---
 
 
-## 有声｜新中国联邦乌克兰救援行动引发国际关注
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2178742/)
+## 大直播后记：杨洁篪外交失败
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2178838/)
 
-By:**秘翻新闻**
+整理：美哥 铁血丹心
+编辑：李易通
 
-**2022-03-17**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-32.png)图片来源 PRFree
-[据PRFree网站3月16日报道，新中国联邦及法治基金对乌克兰开展了救援行动，在波兰梅迪卡边境的国际难民救援中心引起了广泛关注。截至目前，这一百多名来自新中国联邦的志愿者使用32辆救援巴士，已从乌克兰成功解救出了1625名难民，其中包括乌克兰妇女、儿童、美国人和来自许多国家的国际友人。](https://www.prfree.org/news-new-york-based-non-profit-ukraine-rescue-operation-catches-attention-at-the-international-refugee-rescue-center-at-the-medyka-border-of-poland-1068530.html)
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/7-44.png)图片来源：雅典娜设计组
 
-[在此次救援活动中，新中国联邦救援队在当地为难民和国际志愿者组织的成员们建造出了一个超级巨大的难民帐篷，面积约250平方米。第一次国际救援会议已于本月14日在这个舒适的人道主义救济帐篷中成功举行。据悉，这次会议为系统协调梅迪卡难民营的国际救援团奠定了良好基础。](https://www.prfree.org/news-new-york-based-non-profit-ukraine-rescue-operation-catches-attention-at-the-international-refugee-rescue-center-at-the-medyka-border-of-poland-1068530.html)
 
-[其中，一名新中国联邦志愿者、妮可在接受采访时表示：我们致力于推翻中国共产党，因为中共是全球所有灾难的根源。据其表示，在梅迪卡救援中心工作的新中国志愿者并非来自中国共产党统治的中共国内，而是来自民主世界的一群和平人士，他们代表新中国联邦和法治基金会。](https://www.prfree.org/news-new-york-based-non-profit-ukraine-rescue-operation-catches-attention-at-the-international-refugee-rescue-center-at-the-medyka-border-of-poland-1068530.html)
+杨洁篪和美国就谈了两件事儿，这一点秘密都没有的，咱都非常清楚。就是美国想给共产党明确，我在你这儿有利益，你别绑架我的利益。在俄罗斯这件事上，如果你要继续金融上支持，还有你要真派军队或者军用物资提供给它的话，对俄罗斯的所有的制裁手段都对你管用，一样也不少，而且一定会对中国共产党所有海外资产全部查封。而且如果你要借机打台湾，美国没有选择一定参战，就这么简单，没有任何其他事。
 
-[PRFree网站在最后写道，这位新中国联邦的志愿者以无条件的爱和人道主义意图向世界展示了中国人民的新形象。而中国共产党却从不关心生命。这就是为什么当代的中国人民现在在关键时刻站了起来，以相互理解、尊重和信任与世界联系，帮助有需要的人，支持那些失去家园的人。](https://www.prfree.org/news-new-york-based-non-profit-ukraine-rescue-operation-catches-attention-at-the-international-refugee-rescue-center-at-the-medyka-border-of-poland-1068530.html)
+这就要命了，那杨洁篪是干什么？这个货是官僚烂得很、双面，他是要代表共产党喊两声：“你不要低估了我们的意志，台湾是我们内政的一部分，共产党早就做好了你们对我们制裁的准备。针对俄罗斯你们有朋友，我们不能有朋友吗？你支持乌克兰，支持欧洲，它们不是你的朋友吗？我们的朋友就是俄罗斯，我们两国之间的关系是合法的，遵循了联合国宪章没结盟，但是我们是战略全天候24小时兄弟伙伴关系。你们对俄罗斯的做法是你们多年霸道的结果，你们欧洲东扩（这是完全骗人的东扩），我们不允许你们把战火点到我们大门去，我们不可能坐视不管，我们跟俄罗斯之间有战略关系，很清楚的就是要支持。台湾是我的内政，随时打，你管不着。然后你要制裁我，我不怕，中国人不是你想怎么着就怎么着……”
 
-秘翻新闻 Noemi编译报道
+就是跟当年的萨达姆一样，最后都死球了，外交部发言人还在那喊：“美帝国主义马上会在水深火热之中进入火海、美帝国主义完了、布什也完了，然后伊拉克的怒火会烧到纽约、华盛顿。”你记住，杨洁篪、王毅最后会像非洲大草原被撕碎的鳄鱼，杨洁篪和王毅最后就是这种下场，他们会被美帝国主义抓起来，不让你吊死，成天像萨达姆一样在里边要抽根雪茄，三年睡不着觉，每天都不让你睡超过2小时。杨洁篪和王毅及他们的家人一定是这结果。如果是法律允许、国际法允许，应该把杨洁篪和王毅的牙给它拔下来，放到一个永远不腐蚀的缸里边，我们要让全世界看看这叫钢牙，肛门的牙展示给人类。把杨洁篪、王毅这两个钢牙全都给它放在那儿，瓶子收藏起来。所以说你别听他瞎咋呼，没有一点用。
 
-发布 : 恩典
+这回去意大利他实际上想干什么？他想跟美国人说我可以卖掉俄罗斯，但是你得给我个大交易，但是美国人脑子里没这根筋，沙利文压根儿就不跟你讲这个事。据我所知，这次中共的外交谈判非常失败，美方完全就是根本不在乎你，美方现在特别有信心，乌克兰这场战争最大赢家是美国，让美国这个国家会再强大100年～200年都可能。所有的一切利益、信用，把整个苏联打没了，把整个共产党打没了，然后美国成为唯一的的帝国。（七哥唱）这个世界需要我，这个世界是需要美国，欧洲更需要了，特别是共产党，更害怕这次美国赢了。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
+资料来源：[2022年3月15日 文贵大直播](https://gettr.com/streaming/p1051m93814)
+
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
