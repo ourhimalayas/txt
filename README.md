@@ -15,58 +15,58 @@
 
 ---
 
-### [两万人的帛琉也叫帕劳将对新中国联邦台湾战友以礼相待](/content/gnews/1/README.md)
+### [有声｜南京疫情升级 中小学停课 小区封闭](/content/gnews/1/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [断中共SWIFT同时查封资产&amp;断互联网&amp;砸黄金重金属价格](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [新中国联邦为难民提供的现磨咖啡成为援救中心的传奇](/content/gnews/2/README.md)
+### [秘翻在线：中俄考虑整合其银行支付网络以替代被西方排除在外的SWIFT](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [两万人的帛琉也叫帕劳将对新中国联邦台湾战友以礼相待](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [新中国联邦为难民提供的现磨咖啡成为援救中心的传奇](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声｜因无核酸证明遭医院推诿 吉林一女病童夭亡](/content/gnews/3/README.md)
+### [有声｜因无核酸证明遭医院推诿 吉林一女病童夭亡](/content/gnews/6/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [台湾重生后会发现新中国联邦是拯救台湾最重要力量之一](/content/gnews/4/README.md)
+### [台湾重生后会发现新中国联邦是拯救台湾最重要力量之一](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [樱花时政┃多名记者在乌克兰战争中遇难](/content/gnews/5/README.md)
+### [樱花时政┃多名记者在乌克兰战争中遇难](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃俄军袭击乌克兰平民 拜登称普京为战犯](/content/gnews/6/README.md)
+### [樱花时政┃俄军袭击乌克兰平民 拜登称普京为战犯](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [基辅继续遭受袭击，15层高的住宅楼被击中](/content/gnews/7/README.md)
+### [基辅继续遭受袭击，15层高的住宅楼被击中](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [大直播后记：东南亚国家是否会暴力排华？](/content/gnews/8/README.md)
+### [大直播后记：东南亚国家是否会暴力排华？](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [有声｜储户2.5亿存款被盗 工商银行却被判无责](/content/gnews/9/README.md)
+### [有声｜储户2.5亿存款被盗 工商银行却被判无责](/content/gnews/12/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [俄乌战争让HPay和喜币变身东欧国家安全和平的捍卫者](/content/gnews/10/README.md)
+### [俄乌战争让HPay和喜币变身东欧国家安全和平的捍卫者](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [欧盟议会撤回对比特币工作量证明的禁令](/content/gnews/11/README.md)
+### [欧盟议会撤回对比特币工作量证明的禁令](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [央企信托接手恒大广州项目股权透露什么信号](/content/gnews/12/README.md)
- ` 澳喜农场`
-
-### [【G时新闻】一张来自香港医院急诊室令人震惊的照片：尸体被遗弃在地上](/content/gnews/13/README.md)
+### [【G时新闻】一张来自香港医院急诊室令人震惊的照片：尸体被遗弃在地上](/content/gnews/15/README.md)
  ` G-时新闻`
 
-### [帮中共国收集异见人士信息并策划攻击 五人被起诉](/content/gnews/14/README.md)
+### [帮中共国收集异见人士信息并策划攻击 五人被起诉](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [喜币&amp;喜联储&amp;HPay来到人间要吃的粮食就是消灭共产党](/content/gnews/15/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [有声｜布林肯：俄乌问题上中共站到历史错误一方](/content/gnews/16/README.md)
+### [有声｜布林肯：俄乌问题上中共站到历史错误一方](/content/gnews/17/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [视频|美参议院决议支持调查普京政府的战争罪](/content/gnews/17/README.md)
- ` MOSVIDEO`
-
-### [视频|欧洲委员会一致决议开除俄罗斯会籍 俄宣布：将自行退出](/content/gnews/18/README.md)
+### [视频|美参议院决议支持调查普京政府的战争罪](/content/gnews/18/README.md)
  ` MOSVIDEO`
 
 ### [战地音乐家了解新中国联邦的灭共使命后用行动表支持](/content/gnews/19/README.md)

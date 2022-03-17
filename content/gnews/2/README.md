@@ -2,60 +2,52 @@
 ---
 
 
-## 新中国联邦为难民提供的现磨咖啡成为援救中心的传奇
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2178625/)
+## 断中共SWIFT同时查封资产&amp;断互联网&amp;砸黄金重金属价格
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2178660/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+Youtube视频链接：[https://youtu.be/nwYSFlcsS58](https://youtu.be/nwYSFlcsS58)
 
-整理/编辑：小红帽
+Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-17_12-55-15.png)图片来源：郭文贵先生盖特视频截图
+**郭文贵先生：**关于SWIFT这个完以后有什么币？对共产党一定要记住SWIFT这有两个级别：
 
+第一：就是咱所说的断网，就你啥都没了，就不让你用了——就断网了，就断网了。比如头两天咱们有战友使用G-TV是吧？乱来，G-TV就把你清除账号了，没有什么币了，不存在你多长时间了，没有什么币了，就给你断网，这是一个级别。
 
-3月15日，在波兰梅迪卡难民援救中心，一位波兰的志愿者丹尼尔表示新中国联邦的咖啡在整个救援基地是个传奇。另一位美国志愿者艾莉莎表示，虽然没有喝过新中国联邦的咖啡，但是早有所闻。
+第二个我有条件的、限制性的，某种货币让你交易。
 
-新中国联邦和法治基金志愿者妮可跟来自波兰和美国的两位志愿者进行了简短的采访。
+但我觉得美国一定是给他断网的，而且我觉得美国对中共SWIFT的时候一定是三件事同时干：
 
-妮可：“您好，请告诉大家，您叫什么名字和来自哪里好吗？”
+第一件事情查封你所有的海外的，所谓共产党资产和中国领导资产。一定不会像对俄罗斯一样——普京本人不弄你。但是大家要记住，普京——个人不可能开帐户，普京的几个最亲近的人——代理人开账号。大家都知道那几个人，是吧？那就封他，就等于封普京了。习近平也不可能开账号，但习近平呢，还有韩正，这帮孙子的所有家人、朋友帐号肯定给他封了，整个个人财富全封了。所以停——断网，个人财物查封。
 
-艾莉莎：“好的。我叫艾莉莎，来自美国明尼苏达州明尼阿波利斯市。我是Alight的成员。 ”
+第三个是干什么事情，对老共可能更加狠的，让他想不到——把互联网、整个互联网给它断了。“根器”就给你断了，直接把你“根器”就给你断了。那时候的香港港币还是有什么？就没了。人民币直接就是冥币了，
 
-妮可：“Alight是一个人道救援组织，对吧？”
+而且到那个时候，可能是前所未有的，美国为了自身的安全和整个欧洲人的经济安全，它必须做出一条，可能是美国在黄金还有这些重金属价格上，可能会有国家紧急措施，因为普京和“习太阳”搞了一些黄金，是吧？美国就不会让你这些黄金叫你变成东西，让你变成铜都不值。
 
-艾莉莎：“Alight是一个人道主义组织，我们遍布19个国家，拥有3000多名员工。我们的团队在两个星期前作出响应来到这里。我们在尽我们所能去支持这里所有的志愿者和令人惊叹的当地组织。”
+编辑整理：Jacques；
 
-妮可：“真棒。您呢？请问您叫什么名字，来自哪里呢？”
+字幕文件制作：小满；
 
-丹尼尔：“我是来自波兰华沙的丹尼尔。我来这里拍摄这里的情况。”
+视频制作及上传：Cindy；
 
-妮可：“你们曾在最大的那个帐篷里和其他组织开会。那个帐篷是由法治基金提供的。我们是新中国联邦的志愿者，我们在这里的中国人正在推翻邪恶的中国共产党，为所有人恢复人道主义和和平。因为中共是诸多人道主义和全球灾难的根源。这就是我们到这里的原因。我们来这里很多天了。在这里，我们有四个帐篷。你们今早来开会的帐篷是其中最大的一个。你们品尝了我们的咖啡了吗？”
+G-News发布：小满；
 
-丹尼尔：“是的。我喝过了。”
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-妮可：“味道怎么样？”
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-丹尼尔：“绝对好喝。我一会儿又要去喝了。”
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-妮可：“您是怎么听说我们的咖啡的？”
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-丹尼尔：“你们的咖啡在整个基地是个传奇。太感谢了。”
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-妮可：“（艾莉莎）您喝过我们的咖啡吗？”
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-艾莉莎：“我还没有，但我一定会去喝的。”
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-妮可：“好的，请随意取用。我们在这里为每个人服务，我们都站在一起，我们是一个人类整体， 我们彼此关怀，互相支持。我们代表着新中国联邦的新中国人。非常感谢你们。”
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-资料来源：[郭文贵先生2022年3月16日盖特视频](https://www.gettr.com/post/p10aw5j23a1)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
