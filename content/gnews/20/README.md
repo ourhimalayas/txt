@@ -2,28 +2,40 @@
 ---
 
 
-## 中日财经爆|阿里巴巴和腾讯今年将裁员数万人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2177904/)
+## 有声|泽连斯基再次敦促北约设立乌克兰禁飞区
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2177916/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/03174.png)[图片来源](https://www.malaysiasun.com/news/272392752/alibaba-tencent-look-to-trim-workforce-by-up-to-30-pc)
-路透社3月16日报导，阿里巴巴和腾讯控股准备在今年裁减数万个职位，这会是它们最大的裁员行动，目前中共互联网行业巨头正努力应对中共政府全面的监管打击。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+国外媒体3月14日报道，乌克兰总统泽连斯基在午夜过后不久发布的视频讲话中，继续敦促北约将乌克兰领空设为禁航区，称“如果你不关闭我们的天空，俄罗斯导弹落在你的领土、北约领土、北约公民的家中只是时间问题”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-16-at-10.37.31-PM.png)图片来源: 网络
+泽连斯基发表讲话前，俄罗斯部队刚刚对乌克兰西部城市利沃夫的军事训练场发动空袭，造成35人丧生，超过130人受伤。利沃夫靠近波兰边境，而波兰正是北约会员国之一。
 
-虽然阿里巴巴尚未明确整个集团的裁员目标，但据一位了解该公司计划的消息人士估计，这家中共国最大的电子商务公司最终可能会裁掉其员工总数的15%以上，约为3.9万人。
+地区州长马科齐茨基称，俄罗斯对这个距离波兰边境不到25公里的大型军事基地发射超过30枚火箭。这是莫斯科2月24日入侵乌克兰以来，攻击地点最靠近波兰的一次。
 
-另有三位知情人士称，腾讯也计划在今年裁减其一些业务部门的员工。这其中一位人士说，其负责视频流媒体和搜索等业务的部门今年将裁员10%-15%。
+美国国防部发言人柯比称，从这次空袭的目标来看，俄罗斯正在扩大他们攻击的范围。
 
-监管部门的打击，加上经济放缓，使大多数中共国互联网公司的销售增长急剧放缓，股价骤跌，在国内筹集新资和业务扩张更加艰难，迫使阿里巴巴和腾讯等公司寻找削减运营成本的方法。
 
-阿里巴巴2月公布财报显示，其单季营收创2014年上市来最低增幅，受到核心业务部门销售下降和竞争加剧的影响。自去年年初以来，其股票已经下跌超过60%。自2020年底以来，中共政府对该公司处以创纪录的28亿美元罚款，并对互联网行业出台了一系列新规。
 
-据了解腾讯计划的消息人士称，在2021年底的一次腾讯内部会议上，首席执行官马化腾告诉员工，公司应该为“冬天”做好准备，这番话令一些员工忧心他们的饭碗恐怕不保。
+文字版原文：[泽连斯基再次敦促北约设立乌克兰禁飞区](https://gnews.org/zh-hans/2175731/)
 
-消息来源：[焦点：阿里巴巴和腾讯准备裁员“过冬” 应对中国监管打压–消息](https://cn.reuters.com/article/alibabatencent-layoff-sources-0316-wedn-idCNKCS2LD13V?il=0)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

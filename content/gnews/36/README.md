@@ -2,64 +2,44 @@
 ---
 
 
-## 全球疫情疫苗数据更新（卵巢癌发病率为何增加？）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2177477/)
+## 预设立场的彭博社记者采访
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2177536/)
 
-整理：枳实
-美工：精灵蓝
+【撰稿】纽约香草山健身部—Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-25.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-68.png)图片：雅典娜农场设计组 精灵蓝
+3月15日，前线记者妮可在波兰梅迪卡接受了彭博社记者Aggi Cantrill的采访。
+
+Aggi一共问了妮可4个问题
+
+1）介绍一下你们的组织，以及你们来美迪卡做什么？
+2）你们显然拥有一个政治目标——打倒中国共产党，你认为用人道主义工作完成政治目标有问题吗？
+3）这个组织的领导是郭文贵吗？
+4）中国并没有表现出支持俄罗斯的入侵乌克兰的行动呀，你们怎么看这个战争？
+
+从这几个问题看，这显然是一个预设立场的采访。这个记者是带着任务来的，她的问题是经过精心设计，完全是中共代言人的立场。
+
+首先，她试图通过混淆概念来抹黑我们的救援行动，从根本上否定我们的人道主义救援行动，并把我们定义为别有用心的政治团体。其次，她还试图帮中共洗地，为中共掩盖帮助俄罗斯侵略乌克兰的真相。
+
+我们前线记者妮可的回答，有力的回击了Aggi的挑衅。妮可说，消灭中国共产党不是政治目的，而是维护人权的需要，是出于人道主义的目的。因为，中国共产党不仅迫害中国人民，而且，还迫害香港，新疆，台湾和法轮功学员，并且，在国际上的所有独裁国家，背后都有中国共产党的支持。消灭中国共产党，不仅是为了帮助中国人民获得真正的民主和自由，也是对中国人民的人道主义救助。
+
+邪不胜正！彭博社记者跳梁小丑一般的表演，只能说明中共非常害怕我们的救援行动。只能证明我们新中国联邦的人道主义救援行动，获得越来越广泛的关注和认同，在国际上的影响力越来越大，更多国家的人开始认识和支持新中国联邦。新中国联邦的崛起已经势不可挡。
+
+【新闻链接】[https://mega.nz/file/1RhWCDBJ#okPwgEHMeg7y-Zhb7XD5uZCCDcQC\_lyBDj2xuQPm2zo https://discord.com/channels/@me/718495684394745917/953714404732588062](https://mega.nz/file/1RhWCDBJ#okPwgEHMeg7y-Zhb7XD5uZCCDcQC_lyBDj2xuQPm2zo%20https://discord.com/channels/@me/718495684394745917/953714404732588062)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+
+- 审核/编辑/发稿:qiutian（邱甜）
 
 
-雅典娜疫情更新（2022年 3月16日）
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-35.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/12-29.png)
-**辉瑞的大鼠试验**
-
-我们都知道，福奇曾经吹嘘过mRNA疫苗如何从中共获得了冠状病毒的编码，然后直接形成mRNA产品，跳过动物实验直接给人注射的。[本月初因法庭判决而被迫曝光的辉瑞文件中](https://phmpt.org/pfizers-documents/)，其中一份文件证明，辉瑞后来还是做了动物试验的。
-
-而这份[辉瑞文件](https://phmpt.org/wp-content/uploads/2022/03/125742_S1_M4_4223_185350.pdf)揭露了mRNA制剂肌肉注射后在大鼠的卵巢，肾上腺，脾脏和肝脏积累。这个研究中有几点细节值得关注。
-
-其一，辉瑞的mRNA制剂肌肉注射后1小时，2小时，4小时，8小时，24小时以及48小时在这些关键脏器的浓度持续升高。这个发现的临床意义极大，尤其是在卵巢的富集，与接种疫苗后普遍出现的月经周期改变，甚至类似乳腺癌的影像学表现都可能密切相关。这个研究结果，辉瑞和FDA都不打算及时向公众公布，这些所谓“疫苗”的知情同意体现在何处？
-
-其二，试验观察到，肌肉注射后48小时内，mRNA在上述脏器中的浓度持续倍增，而48小时之后发生怎样，这个试验却没有观察，更不要说远期数据了。
-
-其三，这个试验中mRNA编码的不是刺突蛋白，而是没有药理作用的其它蛋白，试验设计者为何要这么做？是否因为刺突蛋白的mRNA会造成大鼠死亡，影响试验结果？或是担心试验中大鼠细胞制造的刺突蛋白脱落对实验人员造成威胁？ 尽管这个研究没有继续观察注射后48小时后大鼠发生了什么，但是人类却代替大鼠参与了有史以来最大规模的人体试验，部分试验结果已经被披露。[苏格兰公共卫生部 (PHS)的数据](https://scotland.shinyapps.io/phs-covid-wider-impact/)显示，卵巢癌患者人数在2021 年的已知趋势明显高于 2020 年和 2017-2019 年的平均值。如下图所示：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/13-20.png)
-来自英国的官方数据更显示，截至 2021 年 11 月，已向英国医学监管机构MHRA 的黄卡计划报告了近 40,000 起月经变化和意外阴道出血事件，这些都是疑似的辉瑞疫苗的副作用病例。
-
-讽刺的是，辉瑞甚至都没有在其临床试验中特意关注月经的变化，以至于伦敦帝国理工学院生殖免疫学讲师 Victoria Male 博士在英国医学杂志上发表了[一篇文章](https://www.bmj.com/content/374/bmj.n2211)，呼吁在未来的临床研究中，应积极收集关于月经改变和阴道出血的信息。
-
-[2022年3月16日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月16日改进.pdf)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
