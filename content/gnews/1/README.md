@@ -2,8 +2,8 @@
 ---
 
 
-## 俄乌战争 乌克兰的智慧征服了全世界
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181710/)
+## 俄乌战争 普京有可能收手
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181795/)
 
 台灣寶島農場
 

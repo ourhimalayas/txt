@@ -2,47 +2,31 @@
 ---
 
 
-## 中共持续扰台 入侵野心人尽皆知
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2181231/)
+## 澳大利亚新南威尔士州CCP病毒感染新增再破两万
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2181418/)
 
-作者：台湾宝岛农场-dobi/银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11347F78-A231-449E-955E-9D16275688DB.jpeg)
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.17-D.jpg)网络图片
+本周三，澳大利亚新南威尔士州再度记录了 20,087 例 COVID-19 新增感染病例。而在前一天的周二，这一数字则直接突破30,000——随着 Omicron BA.2 子变体的传播，卫生专家敦促居民遵守各项公共卫生措施。
 
+同时该州又有五人因患CCP病毒而不幸离世，目前仍然有34人处于重症监护的状态。
 
-当地时间3月16日，据台湾国防部当天晚间公布的“实时军事动态”显示，中共解放军的1架“运-8”电子侦查机于当天进入台湾西南防空识别区，且一路绕行整个台湾南部空域。而就在本周一，中共军队还派出了1架“运-8”远距离支援干扰机、5架“歼-16”战机、7架“歼-10”战机和1架无人机在台湾西南领空活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/596568EC-AB80-4DD9-A470-67427262ACF8.jpeg)
-而据波兰梅蒂卡救援前线当天传回的消息称，当地一位热心的德国志愿者在与救援团队的交谈中提到，如果中共习近平发动战争，其对象一定是台湾。
+一周以前，新南威尔士州报告的病例数目还在10,000至20,000之间，健康专家当时就警告Omicron的BA.2 子变体可能导致感染在四到六周内翻倍。
 
-早先，郭文贵先生曾在直播中多次向世界发出密集的警告称，中共将在北京冬奥委会后对台湾动手。近期，郭先生又反复预警表示，台海危机已经迫在眉睫，且战争已是箭在弦上，一触即发。为了对应眼下的紧迫现况，台湾政府和人民一定要谨慎地防备并积极地应对，从而尽可能降低即将到来的人道灾难。
+传染病专家罗伯特·布伊教授对这一子变体表示担忧：“它可能同样严重，2022 年截至目前的死亡人数比前两年的全年总额都多……我们必须保持警惕，同时我们必须机智应对。”
 
-参考鏈接：[中共持续扰台 入侵野心人尽皆知](http://中共持续扰台%20入侵野心人尽皆知)
+布伊教授认为，虽然恢复封锁暂时没有必要，但人们应该考虑恢复在室内佩戴口罩，如果可能的话尽量在家工作，并避开人群。
 
-1.[https://news.ltn.com.tw/news/politics/breakingnews/3861886%E3%80%8B](https://news.ltn.com.tw/news/politics/breakingnews/3861886%E3%80%8B)2.[https://discord.com/channels/872153398588370944/950448401529577502/953638634895048744](https://discord.com/channels/872153398588370944/950448401529577502/953638634895048744)
+昨天公布的维多利亚州废水测试结果显示，BA.2 子变体已经是该州一半以上采样的流域中最普遍的CCP病毒变异类型。BA.2子变体在 1 月份美国报告的病例中仅占不到 100 例，然而上周它在美国 CCP病毒病的占比约为 23%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/47F634B3-F481-4E0A-9342-F6AFEF11909F.jpeg)
+*发布：Gradient Boost*
 
-编辑：靜言
+新闻参考链接：
 
-总编：Irene 木木
+[NSW records 20,087 new infections amid warning over Omicron BA.2 sub-variant](https://www.9news.com.au/national/coronavirus-update-nsw-clocks--20087-new-infection-as-experts-warn-about-subvariant-ba2/d6938f52-6cb4-43cb-887c-565dc0428c3a)
 
-审核：Irene 木木
-
-校正/发稿：玫瑰圓
-
-更多资讯，更多关注
-
-纽约香草山农场GTV-香草山之声
-
-纽约香草山农场GTV-MOS TALK 香草山访谈
-
-纽约香草山农场Gettr
-
-纽约香草山农场 YouTube
-
-欢迎加入纽约香草山农场 Discord
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/D7B5E5DA-D452-4967-BC67-19D442E2031E.jpeg)
-
+[What we know about Omicron BA.2 sub-variant](https://www.9news.com.au/health/explainer-what-we-know-about-ba2-variant-stealth-version-of-omicron/f475a14d-edba-4fe4-b521-a7c1eb7ca0f7)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

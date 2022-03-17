@@ -2,8 +2,8 @@
 ---
 
 
-## 俄乌战争会如何落幕 普京的下场为何
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181618/)
+## 普京灭了 俄乌战争停止 习一定会打台湾
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181731/)
 
 台灣寶島農場
 

@@ -15,77 +15,77 @@
 
 ---
 
-### [俄乌战争 乌克兰的智慧征服了全世界](/content/gnews/1/README.md)
+### [俄乌战争 普京有可能收手](/content/gnews/1/README.md)
  ` G-NEWS TAIWAN`
 
-### [我们是消灭中国共产党的中国人](/content/gnews/2/README.md)
+### [香港股市跌下2万点时 港币就会失去与美元的挂勾](/content/gnews/2/README.md)
+ ` G-NEWS TAIWAN`
+
+### [【乌克兰救援】新中国联邦和法治基金战友的救援工作：幕后花絮](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中国房地产崩塌将成为共产党的噩梦](/content/gnews/4/README.md)
+ ` G-NEWS TAIWAN`
+
+### [普京灭了 俄乌战争停止 习一定会打台湾](/content/gnews/5/README.md)
+ ` G-NEWS TAIWAN`
+
+### [3/15/2022 文贵直播：恒生指数都是中共兑的水，中共控制的企业在操纵着香港金融市场；最近中概股的大跌在人类上前所未有；恒生跌破2万点说明中共在香港的国际金融骗局玩不下去了](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [【乌克兰救援】每个人都在为法制基金和新中国联邦组织的这场救援的活动而努力](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [新中国联邦咖啡名扬救援营地](/content/gnews/8/README.md)
+ ` NFSC News`
+
+### [俄乌战争 乌克兰的智慧征服了全世界](/content/gnews/9/README.md)
+ ` G-NEWS TAIWAN`
+
+### [我们是消灭中国共产党的中国人](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [3/15/2022 文贵直播：香港曾向世界展示中国人有能力拥有民主、法治和自由，但中共通过以下三件事：1）解放军要象征性进驻；2）拿下香港交易所；3）拿下香港立法委，彻底把香港变成死港](/content/gnews/3/README.md)
+### [3/15/2022 文贵直播：香港曾向世界展示中国人有能力拥有民主、法治和自由，但中共通过以下三件事：1）解放军要象征性进驻；2）拿下香港交易所；3）拿下香港立法委，彻底把香港变成死港](/content/gnews/11/README.md)
  ` 秘密翻译组-北美组`
 
-### [美国参议院通过决议调查普京的战争罪](/content/gnews/4/README.md)
+### [美国参议院通过决议调查普京的战争罪](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [俄乌战争会如何落幕 普京的下场为何](/content/gnews/5/README.md)
- ` G-NEWS TAIWAN`
+### [日本正式决定下周结束疫情准紧急状态](/content/gnews/13/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [波兰记者报道新中国联邦救援团](/content/gnews/6/README.md)
+### [波兰记者报道新中国联邦救援团](/content/gnews/14/README.md)
  ` NFSC News`
 
-### [俄乌战争停火有望](/content/gnews/7/README.md)
- ` G-NEWS TAIWAN`
-
-### [中共国安秘密警察使用令人发指的手段阻止受害人参加竞选](/content/gnews/8/README.md)
- ` 温哥华扬帆农场`
-
-### [有声|英国扩大对俄罗斯制裁](/content/gnews/9/README.md)
+### [有声|俄国体育部发出警告 体坛惊现转籍潮](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [继陈峰、谭向东后，海航集团又两名高管被捕](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【乌克兰救援】文燿战友陪小朋友画画，帮助他们暂时忘记伤痛](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [文贵大直播 3/17 中共还会有二十大吗？](/content/gnews/12/README.md)
+### [文贵大直播 3/17 中共还会有二十大吗？](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [游戏开始：政府的强制性疫苗接种使自己承受压力](/content/gnews/13/README.md)
+### [游戏开始：政府的强制性疫苗接种使自己承受压力](/content/gnews/17/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [乌克兰战争人道危机根源来自中共](/content/gnews/14/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [布伦伯格虚假采访企图抹黑国际人道救援](/content/gnews/15/README.md)
+### [布伦伯格虚假采访企图抹黑国际人道救援](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [2022.3.17大直播 乌克兰救援行动让中共恐惧 为华人争光](/content/gnews/16/README.md)
+### [2022.3.17大直播 乌克兰救援行动让中共恐惧 为华人争光](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
 
-### [澳大利亚新南威尔士州CCP病毒感染新增再破两万](/content/gnews/17/README.md)
+### [澳大利亚新南威尔士州CCP病毒感染新增再破两万](/content/gnews/20/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中共推广石油人民币企图逃脱制裁](/content/gnews/18/README.md)
+### [中共持续扰台 入侵野心人尽皆知](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [台立委呼吁调查接连断电问题 谨防中共渗透](/content/gnews/19/README.md)
- ` NFSC News`
-
-### [中共持续扰台 入侵野心人尽皆知](/content/gnews/20/README.md)
- ` NFSC News`
-
-### [美国及世界疫情简报（03-17-2022）](/content/gnews/21/README.md)
- ` 波士顿五月花农场`
-
-### [3/15/2022 文贵直播：老毕因唱出“毛贼东”而被下岗，中国人会付出更惨烈的代价，习太阳会把中国整个民族烤焦](/content/gnews/22/README.md)
- ` 秘密翻译组-北美组`
-
-### [俄乌战争敲响德国汽车制造业警钟 避免过度依赖独裁专制国家](/content/gnews/23/README.md)
+### [俄乌战争敲响德国汽车制造业警钟 避免过度依赖独裁专制国家](/content/gnews/22/README.md)
  ` 日本东京方舟农场`
 
-### [樱花时政┃美司法部起诉五名中共特工](/content/gnews/24/README.md)
+### [樱花时政┃美司法部起诉五名中共特工](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2022年3月17日郭先生大直播 文字同步精要](/content/gnews/24/README.md)
+ ` 焦點20分`
 
 ### [杰克·沙利文在罗马与杨洁篪会面，向中共国施压不要帮助俄罗斯](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

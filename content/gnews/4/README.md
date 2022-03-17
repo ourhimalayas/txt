@@ -2,12 +2,10 @@
 ---
 
 
-## 美国参议院通过决议调查普京的战争罪
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2181645/)
+## 中国房地产崩塌将成为共产党的噩梦
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2181748/)
 
-03/15/2022 今日印度： 美国参议院通过决议调查普京及其整个政权入侵乌克兰的战争罪
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+台灣寶島農場
 
  
 
