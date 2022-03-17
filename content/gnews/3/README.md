@@ -2,33 +2,34 @@
 ---
 
 
-## 国际新闻热点 International News Updates
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2182280/)
+## 北京市是共产党建国以来第一次出现财政危机
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2182318/)
 
-Contributor: 9 Lights
-撰稿人：九灯
-Himalaya Nuremberg Germany
-德国纽伦堡正义农场翻译部
+文编：Hima
+听写：叮叮
+视频：七哥
 
-1. Wenyao and Wenke from New Federal State of China as hosts welcomed international organisations and their members to the ROLF tent for the International Refugees Rescue Meeting. 来自新中国联邦的文耀和文科以东道主的身份欢迎国际组织和其救援人员来到法治基金的大帐篷中展开国际难民救援多变会议。
+2022-03-15直播摘录
 
+但是韩正在这种情况下突破“中南坑”的限制，冒着巨大风险甚至是传染上病毒回上海去了，说是干什么去了？说他老娘病了！去看老娘去了！实际上是干什么去了——政治计划！见了我一个上海的咱哥们，是咱绝对战友，现在已经出来了，就在几天前。已经出来了这个人，说了几句话，说：“从韩正的恐惧和韩正整个人的状态来看，共产党是完了。” 他说：“我问了他几句关键话，直摇头韩正。原来跟我那么多年俺俩几十年朋友，从来不是这样子，‘啥也别问，啥也别说，别说别问’，直摇头。”然后这位战友发现完了！他说：“那你让我干啥？” 结果韩正说：“咱俩认识一场，赶快跑！” 咱这战友一听，行了！啥也别说就跑出来了！这个人肯定有钱有势啊，不用咱帮忙人就“啪”地就出来了。出来以后把人家啥事都弄完了，他才发现原来他出来的第二天、第三天好几个人都被抓了。那么这个时候咱们战友跟我说什么 ？他说：“文贵，你知道我说的问韩正那么多敏感事的时候，问到一个字他是当时就从椅子上窜起来了，‘你千万不能跟那个人联系！’ 我就问：‘你那个‘龙头’的哥们是不是对你们触动很大？’” 韩正“嚓”地站起来：“你千万不能跟那个人联系！你绝对不能！你千万不能让他知道我回上海了！” 哇塞，咱们“龙头”变“龟头”以后我发现力量变得更大了，阳气上升，阳气上！这个哥们给我讲了很关键的话，他说：“国内建国建党以来……” 建党以来啊，共产党你们老杂毛听着，只有郭文贵知道你们的核心秘密。
 
-2. In a statement on 13th March, Argentina has halted registration of export sales of soy oil and meal, the export ban may have implications for China concerning higher food prices in the future.
-据路透社消息，3月13日南美重要的农产品出口国阿根廷暂停了豆油及豆粕的出口登记，此举可能引发中国民众对未来食品价格上涨的担忧。Washington has threatened to impose potential sanctions on Chinese companies if they continue trading with Russian companies. China’s foreign minister Wang Yi responded to the threat “China has the right to safeguard its legitimate rights and interests”.
-美国警告称如果一些中国公司继续与俄罗斯公司进行贸易往来，将可能对它们实施制裁。中国外交部长王毅回应称：“中国有权维护其合法权益”。
+北京市第一次向中央报告财政巨亏损，发不出工资，请中共给钱；第二，就连沿海的几个好的城市都发不出工资了；不但如此，所谓的战备区福建要打台湾的那几个给中央写秘密报告：我们这里边出现极不稳定因素，一旦打台湾可能这个当地就乱，而且完全没有钱发工资。其中，其中一个人非常重要的，到厦门，现在曾还在厦门住着呢，还在厦门，每年冬天曾都到厦门。其中一个人去见曾庆红，问曾庆红：“现在再往下搞是不是要搞孟、搞建柱、搞岐山？会不会对您这儿……” 曾庆红“哐”一拍桌子：“滚！不要在这里谈政治。中央有中央的决定，一切服从中央的决定！” 这哥们回来跟我说，他说：“我知道曾庆红完了。因为跟我原来是张口就是‘习近平就是个傻货，王岐山这个什么流氓，“鬼子六”就是个流氓，他嘴里能吐出什么象牙’，他张口就骂的，不把他当人的。这回他装神弄鬼起来，要讲政治、听从党中央，说明受到威胁了。”但这个战友他说：“七哥，你知道吗？我知道北京市是共产党建国以来第一次向中央申请我们没钱发工资了，财政上撑不住了。”
 
-3. The Besieged Mariupol has no electricity ,gas or water for a continuous 13 days, and about 400 doctors and patients are held like hostages inside the hospital.
-被围困的马里波尔已经连续13天没有水，电和天然气了, 大约400名医生和病人被当作人质困在医院里。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-4.Petrodollar hegemony is challenged as Saudi Arabia considers selling some of its oil in CNY than USD, after ‘active talks’ between Riyadh and Beijing on this Tuesday.
-石油美元体系受到挑战，在本周二利雅得和北京的’积极会谈’后，沙特阿拉伯考虑接受人民币结算来出售石油。
+**关注我们**
 
-1. According to Taiwan’s media Liberty Times Net, a confidential document leaked by the Federal Security Service ( FSB ) says before the breaking of the Ukraine war Xi Jingping, the President of CCP, had considered to hit Taiwan and take over it before the autumn of 2022. This would coincide with the Russian invasion of Ukraine.
-据台湾自由时报报道，一份FSB外泄的机密文件透露习近平在乌克兰爆发战争前曾考虑在2022年武力犯台，并在秋天来临前全面接管台湾。文件内容也正好印证习普结盟的事实。
-2. WSJ reports that the soaring of COVID-19 cases in Chinese manufacturing hubs Shenzhen and Changchun may halt production at the electronics and auto factories, which would batter the world’s supply chain again.
-根据华尔街日报的分析，近日中国制造业基地的深圳及长春的冠确诊病例的上升将会影响许多电子及汽车工厂的产量，从而会再一次对全球供应链带来猛烈的冲击。
+Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
