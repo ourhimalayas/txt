@@ -2,47 +2,81 @@
 ---
 
 
-## 新西兰财经G乐部2022年3月17日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2181809/)
+## 2022年3月17日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2181840/)
 
-采集整理：蚂蚁的城堡
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FODSMYKaUAASUC6.jpg)
-正文
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-4.jpg)
+盖特连接：[2022年3月17日 文贵大直播：俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向](https://gettr.com/streaming/p10fr57b127)
 
-**1、刘鹤主持中共国务院金融委会议研究当前形势**
-![img](https://media.gettr.com/group49/origin/2022/03/17/05/c30e67fc-b4fb-3a4f-5838-a88200465b70/e212748a76f3a9f18cfde89272318aef_500x0.png)
-会议强调：有关部门要切实承担起自身职责，积极出台对市场有利的政策，慎重出台收缩性政策。对市场关注的热点问题要及时回应。凡是对资本市场产生重大影响的政策，应事先与金融管理部门协调，保持政策预期的稳定和一致性。国务院金融委将根据党中央、国务院的要求，加大协调和沟通力度，必要时进行问责。金融机构必须从大局出发，坚定支持实体经济发展。欢迎长期机构投资者增加持股比例。链接：[http://www.csrc.gov.cn/csrc/c100028/c2093820/content.shtml](http://www.csrc.gov.cn/csrc/c100028/c2093820/content.shtml)
+1、曾庆红提前回京，台湾可能要开战了；
 
-**2、六部委齐发声！A股反击，港股、中概股见证历史**
-![img](https://media.gettr.com/group25/origin/2022/03/17/05/7d378281-560d-f7eb-7dda-e0a36ed91639/16e2dd14fa27cc01df429ebb047d4d57_500x0.png)
-周三（3月16日），A股港股中概股集体大涨，沪指收盘大涨3.48%，创业板指涨超5%。港股恒生指数涨9.08%，恒生科技指数涨22.2%，创史上最大单日涨幅。中概股最高涨超80%。3月16日，国务院金融稳定发展委员会召开专题会议，研究当前经济形势和资本市场问题。随后，央行、银保监会、证监会迅速开会和发文表态。房地产、中概股、货币政策等均被提及。
+2、曾庆红每天都在关注乌克兰救援行动，他很清楚：这种发酵是止不住的；
 
-财经G评：翻译成人话就是—中共国家力量干预市场，2007年美国次贷危机证明—国家干预市场的做法没有用！多空力量不是靠吹出来的！短期上涨一般都靠忽悠，中共2015年以来到现在的熊市给出了答案！
+3、俄乌战争不可能发生的3件事：
 
-链接：[https://finance.sina.com.cn/stock/marketresearch/2022-03-17/doc-imcwiwss6497787.shtml](https://finance.sina.com.cn/stock/marketresearch/2022-03-17/doc-imcwiwss6497787.shtml)
+1）普京投降；
 
-**3、美联储宣布加息25个基点 并暗示将采取更激进利率路径阻击通胀**
-![img](https://media.gettr.com/group26/origin/2022/03/17/05/b9ac6ffa-c31f-73f1-7ed5-6c9a183ffecc/2bb4bb4a52039ab3a3a719acdb119737_500x0.png)
-路透华盛顿3月16日 – 美国联邦储备委员会(美联储/FED)周三宣布自2018年来首次加息，并制定了一项激进的计划，希望明年将借贷成本推至限制性水平，美联储出人意料地预计，在今年剩下的六次政策会议上，每次都会加息25个基点，这将使联邦基金利率目标区间在2022年底达到1.75%-2.00%。到明年年底，政策利率预计将达到2.80%，高于政策制定者现在认为的会减缓经济增长的2.40%的水平。
+2）反戈中共；
 
-链接：[https://cn.reuters.com/article/wrapup-fed-0316-idCNKCS2LE02Y](https://cn.reuters.com/article/wrapup-fed-0316-idCNKCS2LE02Y)
+3） 打核战。
 
-**4、富力地产预计无法按期兑付，19.5亿“16富力04”拟推进债券展期**
-![img](https://media.gettr.com/group45/origin/2022/03/17/06/d4e21e1f-d851-8e29-325a-4a24e9bfccdb/1fca4c5026ee1c395795b2261e8ad973_500x0.png)
-3月17日 – 虽然中共金融委日前表态支持房企化解风险，但民企面临的短期忧虑不减。陷入流动性困境的房地产商–广州富力[2777.HK](https://cn.reuters.com/companies/2777.HK)周三晚间称，公司预计无法在4月7日“16富力04”债到期前，筹措到足额兑付资金，拟于近期与债券持有人就债券展期事宜进行沟通。本次涉及的债券“16富力04”债券余额19.5亿元人民币，当期利率6.7%，将于2022年4月7日到期兑付。
+4、瓦里克告诉普京，俄乌战争再往下走，全完了。好消息，普京有可能找台阶下，收手。坏消息，共产党会晚一点灭亡；
 
-链接： https://cn.reuters.com/article/r-f-properties-0317-thur-idCNKCS2LE0C7?il=0
+5、西藏唱歌的小伙子被自焚，共产党将其打死烧了；
 
-**5、乌克兰的 Zelenskyy 将虚拟资产法案签署为法律，使加密合法化**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FODSMYKaUAASUC6-1.jpg)
-乌克兰在与俄罗斯的战争期间收到了 1 亿美元的加密货币捐款。乌克兰总统 Volodymyr Zelenskyy 将该国的加密货币合法化，签署了一项关于虚拟资产的法案，以支持该国防御俄罗斯入侵的数字资产捐赠热潮。数字化转型部周三在一份声明中表示，该法律确定了虚拟资产的法律地位、分类、所有权和监管机构，并为加密服务提供商设定了注册要求。该市场将由乌克兰国家证券和股票市场委员会监管。数字部在推文中表示，交易所将能够合法运营，银行将为它们开设账户。
+6、曾庆红建议身边人猫2年，多存点粮，大陆股市和香港股市，快卖；
 
-财经G评：俄乌战争开始—世界接受数字货币；俄乌战争之中—俄罗斯民众逃往数字货币；战争之后—乌克兰将拥抱数字货币！
-链接： [https://www.coindesk.com/policy/2022/03/16/ukraines-zelensky-signs-virtual-assets-bill-into-law-legalizing-crypto/](https://www.coindesk.com/policy/2022/03/16/ukraines-zelensky-signs-virtual-assets-bill-into-law-legalizing-crypto/)
+7 、曾庆红对俄乌战争评价：这个世界最大赢家——美国，我们（中共）将输掉这场国际上的游戏（Game on）；
 
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
+8、即使普京停战，习近平也会打台湾，而习近平必须要把王岐山、孟建柱抓了审判了，想把曾庆红抓了把韩正灭了；
 
-上传排版：文勇
+9、美欧可能和普京做一个交易，让普京停战，解封他的个人资产和家人安全。这对乌克兰是个好消息；
+
+10、共产党这两天拿出1000亿美元救恒生指数，2万点是恒生指数的信用底线；
+
+11、3-4月是时机，习近平在等待疫苗灾难的来临，最迟不超过5月，一旦来临，习近平会动手；
+
+12、文贵先生对美国的建议：
+
+1）要求中共提供病毒真相
+
+2）立法像对付俄罗斯一样对中共经济制裁
+
+13、港币还要挣扎一段时间，打台湾港币就结束了，不打台湾撑不过今年年底；
+
+14、共产党被灭后，香港和台湾一定要独立，离而不分，新中国联邦没能力没兴趣，也不应该搞政治；
+
+15、韩国COSMOS、温暖姐姐、瑞沃路森，打着文贵先生名义骗战友喜币，详见联盟公告；
+
+16、青蒿素不要喝酒；
+
+17、铁锁梦即将上线可以打榜；
+
+**注：大直播音频正在制作和上传中，敬请关注****——**
+
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
