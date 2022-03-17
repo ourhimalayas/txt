@@ -15,97 +15,97 @@
 
 ---
 
-### [秘翻在线: 海康威视预收购ASML光刻机开启芯片生产线](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [疫情蔓延之际A股港股又遭暴跌](/content/gnews/2/README.md)
- ` 澳喜农场`
-
-### [随着感染率的放缓，日本将全面取消COVID-19的限制](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [墙内的同胞请记住只有Hpay才能让你在血腥的未来中得到安全](/content/gnews/4/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [大直播后记：香港金融市场崩盘必将引发广东经济垮塌](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [美司法部指控中共监视和恐吓美国异见人士](/content/gnews/6/README.md)
- ` 蓝莲花农场`
-
-### [日本将因乌克兰问题撤销俄罗斯的“最惠国待遇”地位](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [抑制了中共国港口发展，威胁到全球的供应链](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [文贵连线波兰Medyka边境救援前线战友](/content/gnews/9/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [拜登称普京为“战犯”](/content/gnews/10/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [乔丹：如果他们在11月赢得众议院，美国共和党将调查福奇](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【粤语配音】2022年3月16日：香港病毒会导致香港大量人员被死亡](/content/gnews/12/README.md)
- ` MOS香港部`
-
-### [马里亚诺研究的新疫苗试验被迫瘫痪](/content/gnews/13/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [五月花简报（03/16/2022）](/content/gnews/14/README.md)
- ` mayflowertranslate`
-
-### [新中国联邦援乌营地见闻：戴手套做饭的春花](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [拜登称普京是战争罪犯并承诺向乌克兰输送更多武器](/content/gnews/16/README.md)
- ` 蓝莲花农场`
-
-### [泽连斯基向遇害美国记者家属发送感人信](/content/gnews/17/README.md)
- ` 纽约香草山MOS01`
-
-### [韩国两大航空公司宣佈航线不再经由俄罗斯领空](/content/gnews/18/README.md)
- ` 纽约香草山MOS01`
-
-### [普京抓捕情报机构高管](/content/gnews/19/README.md)
- ` 纽约香草山MOS01`
-
-### [西班牙扣押普京盟友的豪华游艇](/content/gnews/20/README.md)
- ` 纽约香草山MOS01`
-
-### [3/15/2022 文贵直播: 中共不遗余力地企图诋毁新中国联邦在乌克兰的救援行动，他们不但在非洲散布谣言，还在乌克兰救援前线通过布隆伯格的采访给新中国联邦挖坑，但Nicole和前线战友们表现绝佳机智应对](/content/gnews/21/README.md)
+### [3/15/2022 文贵直播: 香港恒生指数跌破2万点意味着港币失去了和美元挂钩的GDP的基础；香港经济的崩溃会导致广东产生连锁反应](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [秘翻在线:俄乌战争让习近平进退两难](/content/gnews/22/README.md)
+### [3/16/2022 文贵盖特：据说AI病毒去找比爹娘还亲的共产党了，彭博社在文贵大直播后做贼心虚地去找Nicole战友和文耀战友，说明咱直播的传播力很强啊](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [秘翻在线: 海康威视预收购ASML光刻机开启芯片生产线](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [在新闻直播中呼吁反战的女子获释 俄法院判决罚款3万卢布](/content/gnews/23/README.md)
+### [疫情蔓延之际A股港股又遭暴跌](/content/gnews/4/README.md)
+ ` 澳喜农场`
+
+### [随着感染率的放缓，日本将全面取消COVID-19的限制](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新中国联邦揭露彭博社（Bloomberg)在援乌营地“试水”](/content/gnews/24/README.md)
+### [墙内的同胞请记住只有Hpay才能让你在血腥的未来中得到安全](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [大直播后记：香港金融市场崩盘必将引发广东经济垮塌](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [美司法部指控中共监视和恐吓美国异见人士](/content/gnews/8/README.md)
+ ` 蓝莲花农场`
+
+### [日本将因乌克兰问题撤销俄罗斯的“最惠国待遇”地位](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [抑制了中共国港口发展，威胁到全球的供应链](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [文贵连线波兰Medyka边境救援前线战友](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [拜登称普京为“战犯”](/content/gnews/12/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [乔丹：如果他们在11月赢得众议院，美国共和党将调查福奇](/content/gnews/13/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【粤语配音】2022年3月16日：香港病毒会导致香港大量人员被死亡](/content/gnews/14/README.md)
+ ` MOS香港部`
+
+### [马里亚诺研究的新疫苗试验被迫瘫痪](/content/gnews/15/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [五月花简报（03/16/2022）](/content/gnews/16/README.md)
+ ` mayflowertranslate`
+
+### [新中国联邦援乌营地见闻：戴手套做饭的春花](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [灭共的新中国联邦人是未来免受制裁的唯一人群](/content/gnews/25/README.md)
+### [拜登称普京是战争罪犯并承诺向乌克兰输送更多武器](/content/gnews/18/README.md)
+ ` 蓝莲花农场`
+
+### [泽连斯基向遇害美国记者家属发送感人信](/content/gnews/19/README.md)
  ` 纽约香草山MOS01`
 
-### [2022年3月15日 《文贵大直播》全文字版](/content/gnews/26/README.md)
+### [韩国两大航空公司宣佈航线不再经由俄罗斯领空](/content/gnews/20/README.md)
+ ` 纽约香草山MOS01`
+
+### [普京抓捕情报机构高管](/content/gnews/21/README.md)
+ ` 纽约香草山MOS01`
+
+### [西班牙扣押普京盟友的豪华游艇](/content/gnews/22/README.md)
+ ` 纽约香草山MOS01`
+
+### [3/15/2022 文贵直播: 中共不遗余力地企图诋毁新中国联邦在乌克兰的救援行动，他们不但在非洲散布谣言，还在乌克兰救援前线通过布隆伯格的采访给新中国联邦挖坑，但Nicole和前线战友们表现绝佳机智应对](/content/gnews/23/README.md)
+ ` 秘密翻译组-北美组`
+
+### [秘翻在线:俄乌战争让习近平进退两难](/content/gnews/24/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [在新闻直播中呼吁反战的女子获释 俄法院判决罚款3万卢布](/content/gnews/25/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [新中国联邦揭露彭博社（Bloomberg)在援乌营地“试水”](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [灭共的新中国联邦人是未来免受制裁的唯一人群](/content/gnews/27/README.md)
+ ` 纽约香草山MOS01`
+
+### [2022年3月15日 《文贵大直播》全文字版](/content/gnews/28/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [被中共和媒体愚弄者醒来吧 不要去地狱做猪狗!](/content/gnews/27/README.md)
+### [被中共和媒体愚弄者醒来吧 不要去地狱做猪狗!](/content/gnews/29/README.md)
  ` 秘密翻译组-原创组`
 
-### [澳防长警告北京可能利用俄乌冲突吞并台湾](/content/gnews/28/README.md)
+### [澳防长警告北京可能利用俄乌冲突吞并台湾](/content/gnews/30/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [有声|中共当局批准病毒快筛试剂盒上市](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [有声|法国取消疫苗通行证及强制口罩令](/content/gnews/30/README.md)
- ` MOSREC`
-
-### [有声|波兰总理呼吁应冻结俄国海外资产重建乌克兰](/content/gnews/31/README.md)
+### [有声|中共当局批准病毒快筛试剂盒上市](/content/gnews/31/README.md)
  ` MOSREC`
 
 ### [WTO成员国撤销俄罗斯&#8221;最惠国待遇&#8221;](/content/gnews/32/README.md)
