@@ -2,22 +2,20 @@
 ---
 
 
-## 西班牙扣押普京盟友的豪华游艇
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176861/)
+## 韩国两大航空公司宣佈航线不再经由俄罗斯领空
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2176863/)
 
 作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒15日消息，西班牙首相桑切斯14日在电视节目中确认，当局在巴塞罗那暂时扣押了俄罗斯富豪一艘价值1亿4000万美元的游艇，并承诺还会有更多针对俄罗斯寡头的行动。
+韩国两大航空公司，大韩航空和韩亚航空15日宣布，停飞俄罗斯航线，同时，所有飞往欧美的航线也不再经由俄罗斯领空。
 
-有报道引述消息人士指出，这艘85公尺的超级豪华游艇的主人是俄罗斯总统普京的盟友，切梅佐夫，他曾是前苏联国家安全委员会官员，现在是俄罗斯国家技术集团的负责人。另外还有两位尚未被列入制裁名单的俄罗斯寡头的游艇，目前也停靠在巴塞罗那。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-56.jpg)
-切梅佐夫在2014年和2020年分别因俄罗斯吞并克里米亚而受到美国和英国的制裁，本月又再一次被美国和澳洲列入制裁名单。不仅如此，美国这次还将切梅佐夫的继女，以及他的妻子和儿子一同纳入制裁范围。
+虽然，俄罗斯政府并未禁止韩国航班在俄罗斯领空飞行，但出于安全考虑，两大航空公司还是决定绕飞。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-58.jpg)
+大韩航空在一份声明中表示，仁川至莫斯科以及符拉迪沃斯托克之间的航班，包括在莫斯科中途停留的航班全部暂停，同时，首尔往来伦敦等欧洲航线的航班将改道中国、哈萨克斯坦和土耳其等其他国家，而往来纽约等北美地区的航班则改道阿拉斯加和太平洋，预计单程将分别增加1～2小时左右的飞行时间。
 
-根据一位政府消息人士的说法，在西班牙当局确认所有权以及核对制裁对象名单之前，这艘游艇将继续被扣押。
+另外，有报道指，自俄罗斯入侵乌克兰，欧洲对俄罗斯关闭领空后，包括日本全美航空在内的各大航空公司都有计划改道欧亚航线。
 
-这是继各国对俄罗斯实施制裁以来，第一宗经确认的俄罗斯公民在西班牙被扣押财产的事件。自俄罗斯2月24日对乌克兰展开军事行动以来，西方已经制裁了俄罗斯多名亿万富翁，冻结了俄罗斯国家资产，并切断了大部分俄罗斯企业与全球经济的联系。
-
-参考链接：[Spain seizes Russian oligarch’s yacht in Barcelona](https://www.reuters.com/world/europe/spain-seizes-russian-oligarchs-yacht-barcelona-2022-03-14/)
+参考链接：[Korean Air to reroute flights that use Russian airspace](https://www.reuters.com/world/asia-pacific/korean-air-says-reroute-flights-that-used-russian-airspace-2022-03-15/)
 
 ![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 

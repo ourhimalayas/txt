@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 12:17 AM (UTC)`
+
+3/16/2022 Miles Guo’s GETTR: There are so many people in the CCP who want to eliminate Xi Jinping. It’s said the virus is spreading like an AI specifically targeting the CCP, which claims to be closer to you than your parents. Bloomberg had a guilty conscience such that they contacted our fellow fighters Nicole and Wen Yao after my grand live broadcast yesterday, indicating our livestream had a huge impact.<br/><br/>3/16/2022 文贵盖特：共产党内部有太多人要干掉习近平，据说AI病毒去找比爹娘还亲的共产党了，彭博社在文贵大直播后做贼心虚地去找Nicole战友和文耀战友，说明咱直播的传播力很强啊 <br/>
+![img](https://media.gettr.com/group14/getter/2022/03/17/00/4711d600-a735-1a60-0d54-00ac178b2324/out.jpg)
+
+---
+
+`@miles 3/17/2022 12:10 AM (UTC)`
+
+3/15/2022 Miles Guo: The fall of Hong Kong's Hang Seng Index below 20,000 points means that it has lost its base of the GDP required by the Hong Kong dollar to be pegged to the US dollar. The collapse of Hong Kong's economy would lead to a chain reaction in Guangdong. The conflict will intensify between the retired and new CCP Politburo Standing Committee members who have many interests in Guangdong, and this will make the Ceausescu’s moment happen to the CCP sooner.<br/><br/>3/15/2022 文贵直播: 香港恒生指数跌破2万点意味着港币失去了和美元挂钩的GDP的基础；香港经济的崩溃会导致广东产生连锁反应。在广东拥有众多利益的新老常委之间的矛盾会愈演愈烈，加速了齐奥塞斯库效应的到来<br/>
+![img](https://media.gettr.com/group39/getter/2022/03/17/00/ebafb129-088a-c673-3494-1bcbb495a6f1/out.jpg)
+
+---
+
 `@miles 3/16/2022 11:30 PM (UTC)`
 
 2022.03.16《The Fringe》 Episode 148
@@ -143,20 +157,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 【Ukraine Rescue】03/14/22 Fellow fighter Wendy introduces their daily work at the rescue scene<br/><br/>【乌克兰救援】03/14/22 Wendy战友介绍在救援现场的日常工作情况<br/> <br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group41/getter/2022/03/16/10/71c590d9-3d0e-6a32-3822-daf86484b3ca/out.jpg)
-
----
-
-`@miles 3/16/2022 10:48 AM (UTC)`
-
-【Ukraine Rescue】3/14/2022 Davide Martello, a renowned warzone musician, moved his piano close to the tents of the New Federal State of China (NFSC) after he found out the NFSC people are striving to take down the Chinese Communist Party and are now providing humanitarian aid to the refugees from Ukraine. He then played the NFSC anthem—the Pinnacle of Freedom to show his support. <br/><br/>【Ukraine Rescue】3/14/2022 著名战地音乐家大卫·马特罗在了解到新中国联邦人正在努力推翻中国共产党，并且正在为乌克兰难民提供人道援助后，把他的钢琴搬到新中国联邦搭建的帐篷附近，并当地演奏了新中国联邦国歌—自由之巔以表支持。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group6/getter/2022/03/16/10/b137cc60-b0fe-7490-60e9-a9b87ac20847/out.jpg)
-
----
-
-`@miles 3/16/2022 10:44 AM (UTC)`
-
-【乌克兰救援】 03/16/22 一位波兰志愿者丹尼尔表示，新中国联邦的咖啡在整个基地是个传奇。他身旁的美国志愿者虽然还没有喝过，但表示早有耳闻，马上要去尝尝。<br/><br/>【Ukraine Rescue】 03/16/22 Daniel， a volunteer from Poland, said that the coffee of the NFSC is legendary on the whole site. The American volunteer Alyssa said she’s going to try it.<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group16/getter/2022/03/16/10/19686924-a7da-6e42-0fac-00e8640ca622/out.jpg)
 
 ---
 
