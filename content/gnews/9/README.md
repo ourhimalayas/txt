@@ -2,54 +2,34 @@
 ---
 
 
-## 华为证实加保守党领候选人为孟晚舟案提供协助
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2182217/)
+## 国际热点新闻快讯 International News Updates
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2182296/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/N.jpg)globalist.news
-据加拿大保守派媒体《真北方》3月16日报道，中共电信巨头华为已经证实，保守党领袖候选人让·卡雷斯特（Jean Charest）为该公司工作的内容包括 “有限地协助 ”引渡首席财务官孟晚舟的案件。
+Contributor: Cici
+撰稿人：Cici
+德国纽伦堡正义农场翻译部
+Himalaya Nuremberg Germany
 
-华为在加拿大的企业事务副总裁阿利汗·韦尔希（Alykhan Velshi）说，虽然该公司不会涉足保守党领导层的竞选，但在收到多个相关问题后，他们感到不得不澄清卡雷斯特在他们那里的角色。
+1.在乌克兰战争期间，俄罗斯首次在波兰边境附近进行了重大的导弹袭击。周日早上，在利沃夫市附近军事训练区的袭击中,有35人丧生，另有134人受伤。
+During the invasion, Russia carried out a major missile strike near the Polish border for the first time. Until Monday morning, at least 35 people were killed and 134 people were injured in an attack on a military training district near the city of Lviv.
 
-“华为感谢卡雷斯特和麦卡锡·特劳特律师事务所（McCarthy Tetrault）的团队，感谢他们自2019年年中以来的忠诚建议和支持。” 韦尔希在周二给《环球新闻》（Global News）的一份声明中说，“该公司得到的战略支持主要集中在5G和加拿大的商业监管环境方面”。
+2.”谁是法西斯主义者，我来决定！”弗拉基米尔·普京（Vladimir Putin）复活了苏联的反法西斯主义，并伪造了历史。
+“Who is the fascists, I’ll decide!” Vladimir Putin resurrected Soviet anti-fascism and falsified history.
 
-韦尔希说，卡雷斯特在一系列问题上为华为提供了支持，其中包括在孟晚舟的引渡案上提供 “有限的协助”。
+1. 新中国联邦和法制基金在波兰梅迪卡营救基地帐篷内提供休息区、儿童游乐区、手机电脑充电及现磨咖啡和食物。
+NFSC and ROLF provide rest areas, children’s play areas, mobile phone and computer charging zone, freshly grounded coffee and food for anybody to use at the Medyka refugee camp in Poland.
 
-卡雷斯特之前与华为合作，而保守党多年来一直呼吁以国家安全为由禁止华为进入加拿大的电信网络，这已经成为他竞选的一个问题。
 
-《真北方》（True North）联系了卡雷斯特的竞选团队，询问有关他参与这家中共国有公司的进一步细节。
+4. 乌克兰卫生部长说：自俄罗斯侵略战争开始以来，乌克兰已有七家医院被不可挽回地摧毁。
+Ukraine’s Minister of Health said that since the beginning of the Russian Invasion, there were seven hospitals irreparably destroyed in Ukraine.
 
-卡雷斯特的发言人米歇尔·科茨·马瑟（Michelle Coates Mather）表示，虽然麦卡锡·特劳特律师事务所被雇来处理包括5G在内的多个问题，但其主要作用是帮助释放加拿大的两位迈克尔的。
+5. 在Facebook和Twitter之后，Instagram现在在俄罗斯被封锁。
+After Facebook and Twitter, Instagram is now banned in Russia.
 
-“卡雷斯特先生坚持他的声明。” 科茨·马瑟说，“他非常自豪与康明凯（Michael  Kovrig）的家人合作，释放了两位迈克尔（ Michael Spavor 和Michael  Kovrig）。”
+6. Karen Kingston, 美国的生物技术分析师，前辉瑞制药员工和举报人, 告知大家，Covid19 疫苗注射剂内部的基因工程的水凝胶能够对人们体内的基因进行编程。
 
-科茨·马瑟说，如果卡雷斯特成为保守党领袖，他将禁止华为进入5G网络，并下令对所有战略性自然资源和电信基础设施项目进行国家安全审查。
-
-在2020年保守党领导人竞选期间，卡雷斯特与华为公司的关系首次受到质疑，他最终拒绝参加竞选。
-
-由于担心中共国政府可能要求华为进行监控和窃取机密，华为已被多个国家限制参与未来的5G网络。这家电信巨头否认了这些指控，但其与中共的密切关系以及进行监控的意愿已被媒体充分记录。
-
-特鲁多政府已经推迟了对华为参与加拿大5G网络的决定。
-
-卡雷斯特上周在卡尔加里举行的领导人竞选发布会上回答问题时宣称，他对与华为所做的工作感到 “自豪”，并表示他曾帮助确保加拿大公民康明凯和迈克尔·斯帕弗获释，他们在孟晚舟被捕后不久被中共国拘留。
-
-他说：“我们在华为所做的工作，我为我们在帮助解决孟晚舟女士的情况方面所做的事情感到非常自豪。我与康明凯的家人合作，使我们能够释放两个迈克尔。”
-
-卡雷斯特在最近接受真北方的 “安德鲁·劳顿秀 ”（The Andrew Lawton Show）采访时说，他在为华为工作时并没有代表中共国的利益。
-
-“我努力争取达成一项协议，让这两名迈克尔回来。” 卡雷斯特周一说，“我不会为此道歉，一分钟也不会，因为当你有这种责任，有机会帮助你的国家时，你就会这么做。”
-
-**特评**：这篇报道很有趣，可以看出中共对加拿大政坛的渗透是全方位的，不论是自由党还是保守党的领导人都不会放过。
-
-而争相与中共拉关系，参与以华为为代表的中共大企业的合作曾经令政客们风光一时，如今又成为政治不正确。难为了这些见风使舵、见利忘义的政客们，为了竞选，要刻意淡化与中共的合作，而强调为了救被中共无理由抓的加拿大人质——两位迈克尔。
-
-现今的加拿大政坛很令人失望，只有像卡车司机行动的那些普通人都被唤醒后给加拿大来一个彻底的改变，加拿大才能重新崛起。
-
-参考链接：
-
-[https://tnc.news/2022/03/16/huawei-confirms-jean-charest-offered-assistance-on-meng-wanzhou-case1/](https://tnc.news/2022/03/16/huawei-confirms-jean-charest-offered-assistance-on-meng-wanzhou-case1/)
-
-**编译 发布：意大利罗马达芬奇农场 Roma**
-
+Karen Kingston, an American biotech analyst, former Pfizer employee and whistleblower, informs the public that the genetically engineered hydrogel inside the Covid19 vaccine can program the genes in human bodies.
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,45 @@
 ---
 
 
-## 共产党赌美国不可能同时打三场战争
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2182308/)
+## 中共清零政策让全球供应链再次陷入困境
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2182376/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-2022-03-15直播摘录
+#### 整理：等风来
+编辑：围剿维尼熊
 
-没人知道吧？共产党所有的算盘就是赌一个美国不可能同时打三场战争。俄乌开战、中东开打伊朗、沙特、伊拉克、胡塞、叙利亚一定开战，而且背后的都是共产党的导弹部队，都是共产党给的武器，共产党的雇佣兵。然后阿富汗这个死掉几百万人，饿死以后出来大量的恐怖分子。美国你参乎乌克兰，现在美国打仗，在乌克兰绝对都是美国和整个北约的技术指导。严格讲，就是美国跟他打、和欧洲跟他打，就是北约。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-82.jpg)
 
-那么在中东再打的话，美国，不是欧洲了，那美国跟谁打？美国是跟共产党打。然后共产党再去打台湾的时候，美国不可能有第三场战争同时进行。美国的战略就是同时打赢两场战争。这是在伊拉克战争以后，1997年之后制定的政策，1997、1998、1999到2000年，美国确定战略，同时打赢两场战争。在南斯拉夫，当时战争说就决定性的要打赢一场战争，当时把美军的投放从过去两周和一周改成48小时投放。那么现在就是赌你美国不能同时打赢三场战争。他在中东点火就是要掩盖他去台湾。那么一旦这个时候，美国欧洲没有选择一定动手。但是大家记住，动手的结局，美国、欧洲他俩加一起也不可能到大陆去，把部队派到大陆去，不可能的，只能轰炸。
+**图片来源：雅典娜设计组**
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
+根据纽约时报3月16日报道，随着中共慌乱遏制国内新冠病毒疫情，他们正在实施给全球供应链增添混乱的封闭管理和限制措施。
 
-Discord 账号
+这些措施的实施打乱了丰田和大众汽车、苹果手机等制成品的生产，也在打乱电路板和计算机缆线等零部件的生产。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+中共采取的“清零政策”需要严格的封闭管理，要在政府指定的区域做大规模病毒检测以及隔离。这些“清零”措施已对作为中国制造业支柱的工厂和交通网带来恶果。
 
-Gettr 账号
+因送货司机司机做核酸检测耽误送货，船只需在港口等待数小时才能装货，集装箱运费正在上涨，仓库也出现产品堆积的情况。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+中共政府表示病毒仍在传播，遏制疫情必须采取更严厉的措施。
+
+封闭管理已导致南方的电子工厂以及华中地区许多工业企业停工。上海附近的城市或关闭高速公路出口，导致关键部件的物流出现瘫痪。
+
+此外，空运也面临着新的困难，中国民用航空局调整部分上海入境国际客运航班，分流到其他城市，这会进一步延迟出口。
+
+彼得森国际经济研究所的高级研究员玛丽·洛夫里说，中国将尽其所能控制疫情。问题是哪个更厉害，是中国政府还是病毒。
+
+参考链接：[中国严格防控新一轮疫情，全球供应链再受冲击](https://cn.nytimes.com/business/20220316/covid-china-economy/)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
