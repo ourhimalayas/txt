@@ -2,37 +2,29 @@
 ---
 
 
-## 中共推广石油人民币企图逃脱制裁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2181295/)
+## 俄乌战争推高通胀，英格兰银行再升利率
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2181470/)
 
-作者：银河系农场 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月16日，据相关媒体报道，在近期与沙特阿拉伯进行的谈判中，中共正在试图使用人民币作为部分石油销售和定价的结算币种。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.17-E.jpg)网络图片
+英国央行本周四自去年 12 月以来第三次上调关键利率以应对通胀压力。自俄罗斯入侵乌克兰之后，专家普遍认为全球通胀浪潮会再次加速，而英国央行的反应在同行之间相对来说较为敏感和迅速。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-5.jpeg)
+在战争将油价推至本月早些时候的 13 年最高点之后，英格兰银行将其关键利率提高至0.75%的水平。此前一天，美联储将基准短期利率上调至 0.25%，以抑制自 1980 年代初以来最严重的通胀。
 
-报道提及，作为世界上最大的石油进口国和石油生产国，中共和沙特阿拉伯之间的谈判可能会破坏美元和欧元在此类交易中的主导地位。同时，有关人员也表示，中共此举意在扩大人民币在全球商品交易中的影响力。
+英格兰银行以 8 票对 1 票赞成提升利率，称入侵乌克兰引发了能源和其他大宗商品价格“大幅上涨”，并可能加剧供应链问题——这些问题扰乱了许多原材料的运输。该银行表示，现在预计通胀将持续更长时间，并将以比战前更高的速度达到峰值。
 
-对此，郭文贵先生早先曾在直播中预警称，中共一直妄图在中东操纵战争，为此，其一定会将霍尔木兹海峡的石油运输路线切段，用以此报复美国对俄罗斯入侵乌克兰的经济制裁。在此种情况下，一旦世界的石油供应出现问题，以其为锚的美元地位就会动摇。
+该银行在一份声明中表示：“未来几个月，全球通胀压力将进一步显着增强，而包括英国在内的能源净进口国经济体的增长可能会放缓。”
 
-但大多分析师认为，鉴于中共人民币有限的兑换性和流通性，其想替代美元和欧元成为国际主导货币的可能性接近于零。
+英格兰银行于 12 月开始加息，原因是人们担心随着全球开始摆脱冠状病毒大流行，消费者价格会开始上涨，对工业所需的能源和原材料的需求也将有所增加。根据国家统计局的数据，1 月份消费者价格通胀年率加速至 5.5%。
 
-参考链接：[Petro-Yuan Still Far-Fetched Even Amid Saudi Mulling Oil Deals](https://www.bloombergquint.com/amp/china/petro-yuan-still-far-fetched-even-amid-saudi-mulling-oil-deals)
+在俄罗斯入侵乌克兰之前，英格兰银行预计通胀将在 4 月份达到 7.25% 左右的峰值，是其 2% 通胀目标的三倍多。然而该银行在周四表示，现在预计通胀率将在 6 月底加速至 8% 左右，并可能在今年晚些时候进一步上升。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+*发布：Gradient Boost*
 
-总编：Irene木木
-编辑：静言   
-审核：Irene木木
-校正/发稿：谐趣园
+新闻参考链接：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[Bank of England raises rates as Ukraine war boosts inflation](https://apnews.com/article/russia-ukraine-business-europe-prices-inflation-9b1e15ca2c06c102faa4599d163412d1)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

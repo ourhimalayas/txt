@@ -2,37 +2,37 @@
 ---
 
 
-## 俄乌战争敲响德国汽车制造业警钟 避免过度依赖独裁专制国家
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2180835/)
+## 中共疫情失控 墻內和香港高官频染疫
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2181175/)
 
-据大纪元3月17日报道，德国汽车业界人士认为，应在俄乌战争中吸取教训，避免过度依赖独裁专制国家，尤其是中共国。
+作者：纽约香草山农场-Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月16日，郭文贵先生在最新发布的盖特视频中爆料称，中共病毒疫情近期已经在中共国内的多个省市及香港地区完全失控，其中不乏达官显贵染疫身亡。
 
-俄罗斯入侵乌克兰之后，不仅面临西方国家连番严厉的经济制裁，许多国际企业也纷纷中止了在俄业务。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-3.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-3-2.jpeg)俄乌战争爆发后，国际企业面临中止在俄业务的压力。德国汽车业界人士认为，这显示了依赖专制国家的巨大风险。（图片来自大纪元）
+郭先生表示，香港当地因中共病毒死亡的人数正在不断飙升，日本、台湾等地的上好棺木和骨灰盒等殡葬用品近日被频频运往香港，且其价格往往高出市价的五至十倍。
 
-据财经媒体的消息称，德国汽车制造业三巨头：大众（Volkswagen）、宝马（BMW）和奔驰（Mercedes-Benz）在俄乌战争爆发一周后，就暂停了在俄罗斯的生产和销售。这三家汽车制造商去年在俄罗斯，仅售出不到30万辆汽车，相较于全球交付的1,300万辆汽车，这仅是小小一部分。
+与此同时，中共国内的疫情也愈演愈烈：除却普通民众外，中共党内已有多名政治局委员、新老常委以及这些官员的家属都感染了中共病毒，而这一蔓延趋势引起了中共高层的极度恐慌。
 
-然而，一位德国汽车制造商的顾问表示，如果在类似情况下面临退出中共国的压力，这些欧洲企业可能面临生存危机。
+郭先生最后还指出，中共针对疫情实行的“清零”政策本质上就是倒行逆施的“假大空”政策，而这一政策将同大跃进时期一样，导致无数墙内同胞的无辜牺牲。
 
-该财经媒体指出，大众汽车面临的就是生存危机。尽管准确数字没有披露，但大众汽车的年度净利润至少一半来自于中共国。
+参考链接：[3月16号，尊敬的战友们好，香港病毒大流行，正在导致香港大量人员，被秘密死亡，一切死亡和感染的数据都是假的……](https://www.gettr.com/post/p10aie8d8ab)
 
-大众汽车是世界第二大的汽车制造商。大众汽车连同旗下子公司奥迪（Audi）、保时捷（Porsche）和斯柯达（Skoda）产销的汽车合并计算，“在2021年，每9.5秒就有一辆汽车在中国售出”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-本周三，就俄乌战争相关问题，中美双方代表在罗马举行了艰难的会谈。会后美方代表认定中共决意援助俄罗斯继续入侵乌克兰。
+审核：Ivy001
+编辑：玫瑰圓
+总编：Irene木木
+校正/发稿：谐趣园
 
-正如一位大众汽车前内部人士所说，大众汽车与中共国的接触“已在倒数计时”（was a ticking clock）。
-
-德国智库全球公共政策研究所（GPPI）所长本纳（Thorsten Benner）说：“俄罗斯的事件应让德国公司感到恐惧，因为你可看到，对一个考虑派兵占领另一块领土的威权大国进行投资，是多么的冒险。”
-
-德国社民党联合主席克林拜尔（Lars Klingbeil）对媒体表示，“我们必须大幅减少对独裁国家的依赖。在能源供应方面，我们看到了对俄罗斯的过度依赖。对于中共国，我们现在就可以开始切割。”
-
-参考链接：
-[https://www.epochtimes.com/gb/22/3/17/n13652030.htm](https://www.epochtimes.com/gb/22/3/17/n13652030.htm)
-
-总编：老孙
-校对发布：文曦
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

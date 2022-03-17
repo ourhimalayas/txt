@@ -2,37 +2,47 @@
 ---
 
 
-## 中共疫情失控 墻內和香港高官频染疫
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2181175/)
+## 中共持续扰台 入侵野心人尽皆知
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2181231/)
 
-作者：纽约香草山农场-Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月16日，郭文贵先生在最新发布的盖特视频中爆料称，中共病毒疫情近期已经在中共国内的多个省市及香港地区完全失控，其中不乏达官显贵染疫身亡。
+作者：台湾宝岛农场-dobi/银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11347F78-A231-449E-955E-9D16275688DB.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-3.jpeg)
 
-郭先生表示，香港当地因中共病毒死亡的人数正在不断飙升，日本、台湾等地的上好棺木和骨灰盒等殡葬用品近日被频频运往香港，且其价格往往高出市价的五至十倍。
+当地时间3月16日，据台湾国防部当天晚间公布的“实时军事动态”显示，中共解放军的1架“运-8”电子侦查机于当天进入台湾西南防空识别区，且一路绕行整个台湾南部空域。而就在本周一，中共军队还派出了1架“运-8”远距离支援干扰机、5架“歼-16”战机、7架“歼-10”战机和1架无人机在台湾西南领空活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/596568EC-AB80-4DD9-A470-67427262ACF8.jpeg)
+而据波兰梅蒂卡救援前线当天传回的消息称，当地一位热心的德国志愿者在与救援团队的交谈中提到，如果中共习近平发动战争，其对象一定是台湾。
 
-与此同时，中共国内的疫情也愈演愈烈：除却普通民众外，中共党内已有多名政治局委员、新老常委以及这些官员的家属都感染了中共病毒，而这一蔓延趋势引起了中共高层的极度恐慌。
+早先，郭文贵先生曾在直播中多次向世界发出密集的警告称，中共将在北京冬奥委会后对台湾动手。近期，郭先生又反复预警表示，台海危机已经迫在眉睫，且战争已是箭在弦上，一触即发。为了对应眼下的紧迫现况，台湾政府和人民一定要谨慎地防备并积极地应对，从而尽可能降低即将到来的人道灾难。
 
-郭先生最后还指出，中共针对疫情实行的“清零”政策本质上就是倒行逆施的“假大空”政策，而这一政策将同大跃进时期一样，导致无数墙内同胞的无辜牺牲。
+参考鏈接：[中共持续扰台 入侵野心人尽皆知](http://中共持续扰台%20入侵野心人尽皆知)
 
-参考链接：[3月16号，尊敬的战友们好，香港病毒大流行，正在导致香港大量人员，被秘密死亡，一切死亡和感染的数据都是假的……](https://www.gettr.com/post/p10aie8d8ab)
+1.[https://news.ltn.com.tw/news/politics/breakingnews/3861886%E3%80%8B](https://news.ltn.com.tw/news/politics/breakingnews/3861886%E3%80%8B)2.[https://discord.com/channels/872153398588370944/950448401529577502/953638634895048744](https://discord.com/channels/872153398588370944/950448401529577502/953638634895048744)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/47F634B3-F481-4E0A-9342-F6AFEF11909F.jpeg)
 
-审核：Ivy001
-编辑：玫瑰圓
-总编：Irene木木
-校正/发稿：谐趣园
+编辑：靜言
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+总编：Irene 木木
+
+审核：Irene 木木
+
+校正/发稿：玫瑰圓
+
+更多资讯，更多关注
+
+纽约香草山农场GTV-香草山之声
+
+纽约香草山农场GTV-MOS TALK 香草山访谈
+
+纽约香草山农场Gettr
+
+纽约香草山农场 YouTube
+
+欢迎加入纽约香草山农场 Discord
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/D7B5E5DA-D452-4967-BC67-19D442E2031E.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

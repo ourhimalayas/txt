@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 3:37 PM (UTC)`
+
+📍On March 13th, the NFSC members, who are taking down the evil Chinese Communist Party, were in Poland. <br/>💙The NFSC front-line rescue team drove nearly 600 KM back and forth, transporting rescue supplies from Kraków to the Medyka rescue outpost;<br/>💙Fellow fighters helped lift dozens of kilograms of engines to get off the car to ensure the local power supply; <br/>💙The NFSC & ROLF rescue tents are filled with all kinds of supplies, sending intimate warmth to the stranded Ukrainian people who cross the border.<br/><br/>📍3月13日，消灭邪恶中国共产党的新中国联邦人在波兰克拉科夫<br/>💙新中国联邦前线救援战友当天来回驱车近600多公里，从克拉科夫运送救援物资到梅迪卡救援前哨站；<br/>💙战友们帮忙抬几十公斤的发动机下车，保证当地的电力供应；<br/>💙法治基金，新中国联邦的救援帐篷里放满了各类补给品，为跨越边境的乌克兰被困民众送去贴心的温暖<br/>#NFSCrescue #ROLFrescue #ukrainehelp <br/>#法治基金 #新中国联邦 #乌克兰救援 #前线快报
+![img](https://media.gettr.com/group10/origin/2022/03/17/15/a6f5989a-13f6-879f-ad45-456f349de6dc/out.jpg)
+
+---
+
 `@miles 3/17/2022 3:19 PM (UTC)`
 
 ❤️❤️Humanitarian Rescue Operation of ROLF and NFSC #NFSCrescue #ROLFrescue<br/><br/>1️⃣Frontline Express on March 13, 2022:<br/>At 1 am on March 13, the frontline rescue team greeted two rescue buses carrying 118 people in Kraków, Poland. All are women and children from the Ukrainian battlefield. The rescue team prepared hot coffee and food when greeting the buses, helped the refugees with their luggage, and led them to the train station.<br/><br/>2️⃣We are the NEW CHINESE people who are taking down the EVIL Chinese Communist Party! #CCP≠Chinese<br/><br/>💥💥💥24-Hour Emergency Rescue Support Team Contact: <br/>💌💌💌Email: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com <br/>☎️☎️☎️Phone (Call or Text): <br/>+1 720-657-6776 OR <br/>+1 719-224-4232 OR<br/>+48 508-532-712 OR <br/>+48 508-531-518
@@ -150,13 +157,6 @@ The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Re
 
 【Ukraine Rescue】16/03/22  Italian war-zone pianist Davide Martello volunteers to play “The Terminator Snow” that Nicole once played for him.<br/><br/>【乌克兰救援】16/03/22 意大利战地钢琴家Davide Martello主动要求弹奏Nicole战友曾经给他播放的《灭共的雪》<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
 ![img](https://media.gettr.com/group50/getter/2022/03/17/01/eec17eaf-ff1e-8fb1-2b01-12fc2feeb985/out.jpg)
-
----
-
-`@miles 3/17/2022 1:15 AM (UTC)`
-
-2022.03.16 晚《新中国联邦新闻访谈》文斌战友分享俄乌战争最新军事动态；乌克兰救援活动最新进展分享；泽连斯基美国会演讲，敦促拜登成为世界和平捍卫者；欧米克朗变种肆虐全球，醉翁之意是否在疫苗。
-![img](https://media.gettr.com/group5/origin/2022/03/17/01/7f0d81c4-f798-9492-2fa7-88b6cb304021/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
