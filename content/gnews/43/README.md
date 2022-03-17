@@ -2,50 +2,63 @@
 ---
 
 
-## 随着感染率的放缓，日本将全面取消COVID-19的限制
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2177193/)
+## 全球疫情疫苗数据更新（卵巢癌发病率为何增加？）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2177477/)
 
-编译：七叶之芒
+整理：枳实
+美工：精灵蓝
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1829-edited.png)东京（美联社）–日本首相岸田文雄周三宣布计划在3月21日全面取消冠状病毒限制，因为由高传染性的omicron变体引发的新感染有所减缓。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-68.png)图片：雅典娜农场设计组 精灵蓝
 
-岸田在周三的新闻发布会上说，目前在包括东京地区在内的18个县实施的COVID-19限制措施将按计划于周一结束，因为他的政府寻求谨慎地扩大消费活动，以帮助受到严重伤害的经济回到正轨。
 
-岸田说：“这将是一个过渡时期，以便我们能够通过采取最大限度的预防措施，尽可能地恢复正常的日常生活。”
+雅典娜疫情更新（2022年 3月16日）
 
-这将是日本自1月初以来首次不受病毒限制。该计划将在一个专家小组于周四批准后正式通过。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-日本的每日病例数在2月初飙升至超过10万的新高后，在最近几周稳步下降。新病例已经减少了大约一半。
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-35.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/12-29.png)
+**辉瑞的大鼠试验**
 
-岸田说，取消限制将允许更多的国内旅行，以及为有疫苗接种记录和病毒检测呈阴性的人举办聚会和大型活动。
+我们都知道，福奇曾经吹嘘过mRNA疫苗如何从中共获得了冠状病毒的编码，然后直接形成mRNA产品，跳过动物实验直接给人注射的。[本月初因法庭判决而被迫曝光的辉瑞文件中](https://phmpt.org/pfizers-documents/)，其中一份文件证明，辉瑞后来还是做了动物试验的。
 
-但日本还没有向外国游客开放边境。
+而这份[辉瑞文件](https://phmpt.org/wp-content/uploads/2022/03/125742_S1_M4_4223_185350.pdf)揭露了mRNA制剂肌肉注射后在大鼠的卵巢，肾上腺，脾脏和肝脏积累。这个研究中有几点细节值得关注。
 
-岸田周三没有提到进一步放宽日本的边境管制。他的政府已经放宽了边境限制，将每日新抵达者的限制增加到7000人，以便允许外国学者、学生、商人和实习生进入，此前日本国内外都批评将他们关在外面是排外主义和不科学的。
+其一，辉瑞的mRNA制剂肌肉注射后1小时，2小时，4小时，8小时，24小时以及48小时在这些关键脏器的浓度持续升高。这个发现的临床意义极大，尤其是在卵巢的富集，与接种疫苗后普遍出现的月经周期改变，甚至类似乳腺癌的影像学表现都可能密切相关。这个研究结果，辉瑞和FDA都不打算及时向公众公布，这些所谓“疫苗”的知情同意体现在何处？
 
-虽然omicron在大多数人身上引起轻微的症状，而且死亡率仍然很低，但最近一波是日本迄今为止最致命的一波，因为病人的总数比早期的几倍要高。不过，自两年前开始流行以来，日本的死亡人数总计约为26,000人，明显低于许多其他国家。
+其二，试验观察到，肌肉注射后48小时内，mRNA在上述脏器中的浓度持续倍增，而48小时之后发生怎样，这个试验却没有观察，更不要说远期数据了。
 
-专家说，大多数受害者是老年患者，他们的基础疾病在感染病毒后迅速恶化。
+其三，这个试验中mRNA编码的不是刺突蛋白，而是没有药理作用的其它蛋白，试验设计者为何要这么做？是否因为刺突蛋白的mRNA会造成大鼠死亡，影响试验结果？或是担心试验中大鼠细胞制造的刺突蛋白脱落对实验人员造成威胁？ 尽管这个研究没有继续观察注射后48小时后大鼠发生了什么，但是人类却代替大鼠参与了有史以来最大规模的人体试验，部分试验结果已经被披露。[苏格兰公共卫生部 (PHS)的数据](https://scotland.shinyapps.io/phs-covid-wider-impact/)显示，卵巢癌患者人数在2021 年的已知趋势明显高于 2020 年和 2017-2019 年的平均值。如下图所示：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/13-20.png)
+来自英国的官方数据更显示，截至 2021 年 11 月，已向英国医学监管机构MHRA 的黄卡计划报告了近 40,000 起月经变化和意外阴道出血事件，这些都是疑似的辉瑞疫苗的副作用病例。
 
-岸田面临的批评是，他推迟了强化注射，直到所有城市都准备好，使病毒在全国迅速蔓延。
+讽刺的是，辉瑞甚至都没有在其临床试验中特意关注月经的变化，以至于伦敦帝国理工学院生殖免疫学讲师 Victoria Male 博士在英国医学杂志上发表了[一篇文章](https://www.bmj.com/content/374/bmj.n2211)，呼吁在未来的临床研究中，应积极收集关于月经改变和阴道出血的信息。
 
-此后，他的政府开设了大规模接种中心，以加快强化计划的实施。大约72%的65岁或以上的人已经接受了第三次接种，但总体而言，加强型疫苗只达到了三分之一的人口。
+[2022年3月16日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月16日改进.pdf)
 
-专家们敦促在取消限制后要谨慎行事，因为可能会出现感染复发的情况。在全国范围内，omicron的一个亚变体正在逐渐取代主要菌株。
+数据来源：
 
-在一些地区，医院床位占用率仍然超过50%，口服抗病毒药没有达到预期的人数。尽管岸田政府已承诺确保数百万剂量的两种进口口服药丸，但它们并没有被广泛使用。一种相当大，难以吞咽，另一种不能与许多其他药物结合使用。
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-正在进行的COVID-19限制措施主要限于饮食店，要求缩短服务时间。还要求一般公众在家工作，避免参加聚会和大型活动，以及在公共场所时戴口罩，并遵循其他基本的防病毒措施。
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-来源：[apnews.com][Japan to fully lift COVID-19 restrictions as infections slow](https://apnews.com/article/covid-business-health-japan-tokyo-234df972f5e02618f76127cf366c8354)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-* * *
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-审核：Aries的星
-校对：信心满满
-发布：花羽
+[covidlive.com.au](https://covidlive.com.au/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-10.jpeg)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
