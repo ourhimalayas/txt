@@ -2,10 +2,10 @@
 ---
 
 
-## 拜登宣布向乌克兰提供8亿美元的额外援助
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2180519/)
+## 天空新闻：俄罗斯军队杀害排队买面包的百姓
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2180583/)
 
-03/16/2022 拜登宣布向乌克兰提供8亿美元的额外援助,以帮助他们抵御俄罗斯的入侵
+03/15/2022 天空新闻：莫斯科声称他们没有针对乌克兰的平民，但俄罗斯军队在切尔尼戈夫市开枪打死了10名排队买面包的人。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
