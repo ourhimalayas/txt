@@ -2,31 +2,44 @@
 ---
 
 
-## 少年儿童心脏问题：学校要求参加一些运动前检查心电图
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2179538/)
+## 文•贵天成——文贵先生谈“昆仑银行”（三）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2179585/)
 
-撰稿：文月
-![](https://assets.gnews.org/wp-content/uploads/2022/03/171-2.png)图片来自网络
-加州橙县 （Orange Country）的公立学校今后将要求想参加某一类的体育项目的学生事先进行心脏检查。其目的是通过心电图排除心脏骤停的风险和隐患。
+整理：BENJI
+编辑：jocozoner
 
-然而当前官员们仍然不愿意承认：自CCP病毒疫苗接种开始以来，此类病例便有所增加。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/20-4.png)图片来源：雅典娜设计组
 
-新条例可在学校当局的网页上阅读。这是其中一段节选翻译：
 
-“2021-22学年的新规定，希望参加体育项目的高中生必须进行心电图（ECG）检查。心电图检查有助于识别有心脏骤停风险的运动员，心脏骤停是田径运动中的主要死亡原因。”
+**郭文贵先生2020年1月3日直播**
 
-“在2021-2022年FHSAA赛季开始之前，所有高中学生运动员都必须接受心电图检查。心电图将通过当地医疗机构和组织，在高中校园提供服务”
+【自10:36起】我来告诉大家苏莱曼尼这个人是个什么人物。我可以告诉大家，说他是中国的什么人物？有人一定会说什么孟建柱、王岐山，绝对是不对的。我可以告诉大家，它是中国的——如果比喻的话、形容的话——它是真正的中国年轻的江泽民，他是横跨四代的将军。
 
-以后越来越多的疫苗的副作用开始显现出来，学校等公共场所有必要考虑配备更多的防护措施，比如像自动体外除颤器（AED）等急救设备，有研究结果显示，在84%的心脏骤停事件中使用后，大多数的患者都可以存活了下来，同时在学校普及一些急救知识，这样可以拯救更多的生命。
+**昆仑银行**的成立，就是由他家族和中共发起的。伊朗到中国的石油，可以说没有他同意，你一桶你也做不成。他在香港的房子就在南湾，我记得南湾20号还是21号，我在山顶上，两个豪宅全是他的。他的家人大多数住在香港，还有住在上海和北京，偶尔的会在日本，日本也有房子。**昆仑银行**当年1700亿，现在是将近2800多亿美元，他和哈梅内伊两个人说了算。鲁哈尼总统碰都别碰，你连知道都不行，知道都是犯法的。由于伊朗的这种体制，它是两个军队，这个所谓的这是皇家军，旁边跟着什么？皇家军里三个最重要的情报部长、装备部长、能源部长同时被干掉了。
 
-*审核：**Gradient*
+**郭文贵先生2020年1月14日直播**
 
-*发稿：**mgjxs*
+【自29:18起】大家我们再想想，（当）我们再看霍梅尼，再看哈梅内伊家族的时候，哈梅内伊8个兄弟姐妹全在日内瓦，全在瑞士、苏黎世、英国，几个人全在香港有房子，孩子在上海长期居住。仅仅**昆仑银行**就2000多亿美元，全部是由他控制，美国的国家报告一年1500亿美元的石油，这完全是错的，哈梅内伊家族和整个伊朗大概每年2500亿到3000亿美元，80%～90%全归他了，而这些钱绝大多数都在昆仑银行和日本银行，以及香港和台湾银行洗钱。这是跟中共的王岐山、孟建柱、江泽民、江志诚一模一样！
 
-参考文献：[https://www.ocps.net/departments/athletics/sports\_physicals](https://www.ocps.net/departments/athletics/sports_physicals)
+**郭文贵先生2020年11月30日直播**
 
-[https://www.ocps.net/departments/athletics/sports\_physicals](https://www.ocps.net/departments/athletics/sports_physicals)[https://report24.news/herzprobleme-bei-kindern-und-jugendlichen-nehmen-zu-schulen-schreiben-ekg-fuer-sport-vor/?feed\_id=13318](https://report24.news/herzprobleme-bei-kindern-und-jugendlichen-nehmen-zu-schulen-schreiben-ekg-fuer-sport-vor/?feed_id=13318)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+你看看那所谓的股票市场、所谓的银行，我啥时候说的？2017年，2018年的时候。包商银行，一定破产！北京银行，一定破产！招商银行，也得破产！民生银行也悬！平安银行，百分之百被制裁，它一被制裁就完了，**跟昆仑银行一样**！平安银行，一定被制裁！负责制定这个经济制裁的，就有我们最熟悉的战友，两三个，就有我们最好的几个战友都在里面，想想是谁吧！说实在话，我真不想让中国老百姓受害，但是，这真没办法。
+
+**往期回顾：**
+
+[文·贵天成——文贵先生谈“昆仑银行”（一）](https://gnews.org/zh-hans/2178372/)
+
+[文·贵天成——文贵先生谈“昆仑银行”（二）](https://gnews.org/zh-hans/2179346/)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：
+**[**澳大利亚墨尔本雅典娜农场Twitter**](https://twitter.com/HimalayaAthena1)**：HimalayaAthena
+**[**澳大利亚墨尔本雅典娜农场Gettr**](https://www.gettr.com/user/himalayaathena)**：himalayaathena
+**[**澳大利亚墨尔本雅典娜农场YouTube**](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[**澳大利亚墨尔本雅典娜农场Discord**](https://discord.gg/KQQVvwBNvm)
+[**澳大利亚墨尔本雅典娜农场GTV直播1台**](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
