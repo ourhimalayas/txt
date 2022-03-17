@@ -2,51 +2,42 @@
 ---
 
 
-## 全球疫情疫苗数据更新（新的一波疫情已经开始）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2182669/)
+## 新中国联邦乌克兰救援行动在乌克兰的救援中心引起了国际关注
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2182783/)
 
-整理：枳实
-美工：精灵蓝
+PR Free新闻网站3月17日消息，**总部设在纽约的非盈利组织、新中国联邦乌克兰救援行动，在波兰梅迪卡边境的国际难民救援中心引起了世界的关注。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/255994_220317004708-073373-1-e1647556178524.jpg)
+随着俄罗斯对乌克兰的非法入侵，数以百万计的难民正试图逃离乌克兰。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/6-68.png)图片：雅典娜农场设计组 精灵蓝
+据报道，**一支由数百名新中国联邦志愿者和32辆救援巴士的特殊救援队伍，代表着法治基金(ROLF)和新中国联邦(NFSC)，在波兰边境的梅迪卡国际难民救援中心，该中心每天24小时对外开放**。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/UKRAIN-RESCUE-1.png)
+**截至2022年3月16日，他们已经解救了1625名难民**，其中包括乌克兰妇女、儿童、美国人和来自许多国家的人。
 
+报道称，**新中国联邦救援队为难民和国际志愿者组织的成员搭建了一个巨大的难民帐篷。**2022年3月14日，**首届国际救援大会在新中国联邦和法治基金搭建的舒适的人道主义救援帐篷中举行。**会议为有系统地协调梅迪卡难民营的国际救援任务奠定了基础。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/国际救援组织开会-2.png)
+一名新中国联邦志愿者Nicole在接受波兰当地媒体采访时说，**我们致力于打倒中国共产党，因为中国共产党是全球所有灾难的根源。**
 
-雅典娜疫情更新（2022年 3月17日）
+报道指出，在梅迪卡救援中心工作的**新中国联邦志愿者不是来自中国共产党统治下的中国人。他们是来自民主世界爱好和平的人**，**代表着新中国联邦（NFSC）和法治基金（ROLF）。**
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+新中国联邦完全对立于中国共产党，有承诺和决心打倒邪恶的中共，拯救数十亿生活在其统治下、没有人权、平等和民主的中国人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/l0b7rhe6ddqspwr7btlr-1.jpg)
+法治基金会的使命是通过人道主义援助和民主支持，把中国人民从邪恶的中共的镇压中解放出来。
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/90F_189VA3FOQRJF1NKY.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-195.png)
-**各国疫情的比较**
+报道中称，**新中国联邦志愿者向世界展示了中国人民无条件的爱和人道主义新形象。中共从不尊重生命，**正因为如此，当代中国人民在关键时刻挺身而出，用相互理解、尊重和信任与世界联系起来，帮助有需要的人，支持失去家园的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/euairxatud6skzojodya-1.jpg)
+新中国联邦志愿者小Sarah在她的社交媒体中写道**”“我们新中国联邦人和乌克兰人民站在一起，因为我们热爱和平和尊重人权，”**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/e8ebk2mhwvrxn7byspwj-1-1.png)
+小编评论：
 
-澳洲的疫情几天来连日增长。从下图中的各国每日新增病例（每百万人口）曲线比较中可以看出全球范围内很多国家的新一波疫情已经开始。比较韩国和香港，在一周前香港和韩国的疫情曲线基本上是同步暴增。可是香港却忽然莫名其妙的陡降，郭先生上次直播提到过，香港的疫情数字完全是假的，这样就说得通了。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ANDXCXE_6D1LZM.png)
-[2022年3月17日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月17日改进.pdf)
+**新中国联邦的善行义举已经得到全世界人民的认可，只要是本着客观公正，支持正义立场的新闻媒体，都应该会报道我们的正义行动。**
 
-数据来源：
+**新中国联邦人在乌克兰救援行动中**，为全世界的中国人乃至亚洲人树立了一个有口皆碑的正义形象，并且赢得全世界的尊重。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+新中国联邦法制基金的行为与邪恶中共支持侵略，对同胞和身处战区的难民毫无怜悯之心和冷血，形成了巨大反差。毫无疑问，**我们在这条特殊的战线上对中共形成巨大威胁，并给其带来巨大打击。**
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+新闻来源链接：
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://www.prfree.org/news-new-york-based-non-profit-ukraine-rescue-operation-catches-attention-at-the-international-refugee-rescue-center-at-the-medyka-border-of-poland-1068530.html](https://www.prfree.org/news-new-york-based-non-profit-ukraine-rescue-operation-catches-attention-at-the-international-refugee-rescue-center-at-the-medyka-border-of-poland-1068530.html)
 
  
 

@@ -2,26 +2,45 @@
 ---
 
 
-## 美追加对乌军事援助称“普京永远无法获胜”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2182533/)
+## 2022年3月上旬发生的国际重要事件
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2182554/)
 
-**撰稿：文舞两道**
+整理：Elli
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1928.png)图片来源：[WION](https://www.wionews.com/world/top-10-world-news-russia-ukraine-war-covid-19-in-china-and-more-461367)
+3 月 1 日：俄罗斯入侵乌克兰成为全世界焦点时期，英国政府悄无声息发布发布了一份报告，确认现在完全接种疫苗的人占英格兰Covid-19 死亡人数中的 90%；
+ 世卫组织选择德国电信“标准化发放二维码”并创建全球疫苗护照
 
-3月16日，美拜登总统签署总统令，决定向乌克兰追加提供总额8亿美元的军事援助，并将提供无人机和防空导弹系统。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1927.png)图片来源：[NHK](https://www3.nhk.or.jp/news/html/20220317/k10013536971000.html?utm_int=news-international_contents_list-items_007)
-拜登总统在现场表示，“我们支持为自由而战，这是美国和全世界的基本原则，普京永远无法获胜”。拜登总统说，“为防止飞机和直升机袭击平民并保卫乌克兰领空”，我们还将为乌克兰提供无人机和防空系统。
+3 月 2 日：埃隆马斯克被要求在俄罗斯境内 “关闭”特斯拉，理由是他为逃离乌克兰的难民免费提供电动汽车免费充电服务
 
-据白宫称，此次军事援助将包括800个防空导弹系统“毒刺”和100架无人机。
+3 月 3 日：FEMA宣布在核爆炸的情况下，保持社交距离并戴上口罩
 
-乌克兰总统泽连斯基呼吁在乌克兰上空建立禁飞区，并提供战斗机以抵御俄罗斯军机的轰炸和导弹袭击。美国否认了直接与俄罗斯发生军事冲突的可能性。
+3 月 4 日：欧盟预计食品危机，韩国饲料生产商声明此为不可抗力；
+ Coinbase 首席执行官说目前普通俄罗斯民众赖以生存的支付系统就是加密货币”
 
-另一方面，在平民伤亡不断增加的情况下，加强乌克兰的防空能力已成为当务之急。现在美国在紧盯俄罗斯的同时，尽可能的为乌克兰提供军事支援，拜登总统说，在为乌克兰提供远程防空系统的同时，将尽力与同盟国、友好国一起提供更多的武器和装备”。并表示在各国的协助下将进一步加强对乌克兰的军事援助。
+3 月 5 日：那是达斯（Darth）入侵者吗？以色列电视频道无意中播放了来自乌克兰的“实况录像”……展示了《星球大战》中坠毁的 TIE 战斗机
 
-此外，拜登总统对记者说，普金是“战犯”，这是拜登总统首次使用“战犯”一词严厉的指责普金。
+3 月 6 日：Psaki 声称 Keystone XL 管道对天然气价格上涨没有任何影响
 
-白宫发言人萨基在新闻发布会上说，“这是总统在看到独裁者杀害公民，袭击医院、孕妇和记者的残暴行径后发表的言论”。并表示，国际法院正在调查俄罗斯的行为是否构成战争罪。
+3 月 7 日：辉瑞公布5000页1,291 种Covid 疫苗副作用；
+ 匈牙利成为第9个取消所有入境要求的国家
 
-信息来源：[NHK：米 ウクライナに追加軍事支援 「プーチンを絶対に勝たせない」](https://www3.nhk.or.jp/news/html/20220317/k10013536971000.html?utm_int=news-international_contents_list-items_007)
+3 月 8 日：加拿大银行支持 WEF 提议的数字身份证
+
+3 月 9 日：美国通胀在过去一年飙升 7.9%，创 40 年新高
+
+3 月 10 日：俄罗斯入侵乌克兰对世界粮食供应产生“巨大负面影响”
+
+3 月 11 日：“我们从未有如此吸引眼球”——阿联酋的公司被俄罗斯人要求清算加密货币的请求淹没
+
+3 月 12 日：Facebook（脸书）允许发布对俄罗斯入侵者实施报复并施加暴力的战争帖子
+
+3 月 13 日：随着每日 COVID 病例飙升两年以来新高，中国在深圳封锁了1750 万人
+
+3 月 14 日：法国取消了关于疫苗护照、戴口罩的 COVID-19 规定
+
+**参考链接：**
+1. [National Post: ‘We’ve never had this much interest’: Firms in UAE deluged with requests from Russians to liquidate crypto.](https://nationalpost.com/news/world/weve-never-had-this-much-interest-firms-in-uae-deluged-with-requests-from-russians-to-liquidate-crypto)
+2. [Fox News: Psaki claims Keystone XL Pipeline would make no difference for rising gas prices.](https://www.foxbusiness.com/politics/psaki-claims-keystone-xl-pipeline-would-make-no-difference-in-rising-gas-prices)
 
 **编辑：MQ**
 

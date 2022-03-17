@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/17/2022 11:01 PM (UTC)`
+
+2022.03.17 NFSC News   11-year-old boy fled Ukraine alone and reunited with family in Slovakia； Two Fox War Correspondents Killed in an Attack in Ukraine
+![img](https://media.gettr.com/group27/origin/2022/03/17/22/b7f4a98c-5d25-ab8a-103b-191f0636937f/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 3/17/2022 10:55 PM (UTC)`
+
+3/17/2022 Miles Guo: What kind of scheme did Wang Huning plot for Xi Jinping? Xi is waiting for the outbreak of the COVID vaccine disasters in May, when the US will be facing an influx of refugees from all over the world. Xi wants to take down the US with COVID vaccine catastrophe and refugee crisis<br/><br/>3/17/2022 文贵直播：习近平在王沪宁的撺掇下打的是什么算盘？习在等待5月美国爆发疫苗灾难，赌的是到时候全世界的难民都会涌入美国，习打算用疫苗灾难和难民潮打倒美国<br/>
+![img](https://media.gettr.com/group16/getter/2022/03/17/22/a4101fab-c5ad-afc6-3814-a3e2235716b5/out.jpg)
+
+---
+
 `@miles 3/17/2022 10:22 PM (UTC)`
 
 2022年3月17日: 法治基金,法治社会捐款留言精选集<br/><br/>法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>March 17,2022 Rule of Law Foundation and Society donors messages collection <br/><br/>The Rule of Law Foundation and Society team heartfully thank all of our supporters and donors！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
@@ -143,20 +157,6 @@ Chinese Communist Party Again Deliberately Undermines NFSC Rescue<br/>中国共�
 
 【Ukraine Rescue】03/16/2022 Nicole: All of our more than 60 brothers and sisters on the front line are working systematically. Everyone is working very hard for the ROLF & NFSC's Rescue Operation in their respective positions to make a little contribution.<br/><br/>【乌克兰救援】03/16/2022 妮可：我们整个在前线的60多名的战友都在有条不紊的，在各自的岗位上，大家都在努力的为这次法治基金和新中国联邦组织的这场救援的活动在贡献自己一点点的力量<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group18/getter/2022/03/17/10/a964a2e6-4ebc-4889-fead-2edd448c0275/out.jpg)
-
----
-
-`@miles 3/17/2022 10:25 AM (UTC)`
-
-The New Federal State Of China & the Rule of Law Foundation Ukraine Frontline Rescue Team – 24h Hotline: +1 7206576776 or +1 719-224-4232 or +48 508-532-712 or +48 508-531-518 Telegram: t.me/UkraineRescue GETTR: https://gettr.com/user/UkraineRescue<br/>我们是消灭邪恶中国共产党的新中国人<br/>We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party<br/>中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类<br/>The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!<br/>Комуністична партія Китаю є першопричиною катастроф у світі. Тільки знищивши Комуністичну партію Китаю, можна врятувати все людство.
-![img](https://media.gettr.com/group29/origin/2022/03/17/07/e4aef75e-9b3f-a145-5373-3effdd86aa6a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/17/2022 10:21 AM (UTC)`
-
-【Ukraine Rescue】 03/16/22 Volunteer Wenyao set up a Kids Corner at the camp, where she drew pictures with the children to make them forget the pain bought by the war. A girl is so happy and she hugged Wenyao affectionately. The children’s mothers get to have some rest thanks to the Kids Corner.<br/><br/>【乌克兰救援】 03/16/22 文燿战友在基地设立了“孩子角”，亲自陪小朋友画画，让他们暂时忘记战争。小朋友们开心地玩耍，亲切地拥抱文燿。孩子们的妈妈们也终于能在此时得到一些休息。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group45/getter/2022/03/17/10/bd35874b-2cdc-7bb4-a2f9-064d9312fc7e/out.jpg)
 
 ---
 
