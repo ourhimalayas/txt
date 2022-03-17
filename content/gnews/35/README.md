@@ -2,21 +2,20 @@
 ---
 
 
-## 钢琴上的和平天使——Davide Martello
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2179371/)
+## 蔡英文总统慰问日本福岛和宫城地震
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2179963/)
 
-#### 撰稿: nstar
-![](https://assets.gnews.org/wp-content/uploads/2022/03/钢琴.jpg)
-Davide Martello 于1981年11 月 1 日出生于德国 Lörrach 市（黑森林的弗赖堡的西南部，德国、法国和瑞士的边界三角区）, 现在住在博登湖畔直接与瑞士接壤的大学城康斯坦斯。他的父亲鼓励他的才华，分享他对古典音乐的热爱。 13岁时，他创作了自己的作品。 27 岁时申请到柏林的一所音乐学校，但他更愿意追求自己改造钢琴的梦想。他买了一架旧三角钢琴，在里面安装了扬声器和 LED 灯。
+撰稿：东京樱花团丨立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-0-10.png)[*图片来源*](https://images-ext-2.discordapp.net/external/XH5cHtBetdVvdQB5OQYs_EIRmFHWU38Ir2bDn3yYWes/%3Fexp%3D10800/https/newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220317-00000002-ftaiwan-000-1-view.jpg)
+据《台北中央社》消息，福岛县和宫城县发生了观测最大震度6强的地震，蔡英文总统于17日更新推特，对于日本再次遭遇大地震表示“心痛”，同时也希望“损害能够保持最低限度”。
 
-他在波茨坦广场演奏了他的第一场“音乐会”。自 2011 年以来，他一直在世界各地旅行，并在建筑有趣的地方表演自己的作品。 Martello在新闻界被称为“钢琴上的和平天使”。
+此外，她强调了与日本的羁绊关系，“台湾总是和日本人民在一起”，并提出，“如果需要帮助，请随时告诉我。”
 
-Davide在梅迪卡了解到，梅迪卡救援中心工作的中国志愿者并非来自中共统治的中国，他们是代表NFSC（新中国联邦）和ROLF（法治基金会）的民主世界爱好和平的新中国人。新中国联邦人在乌克兰的道救援行动，受到了世界爱好和平人士的赞赏，在救援前线的大爱和友善形象，让世界看到了一个和中共奴役下的中国人完全不一样的形象。让人们明白, 我们爱好和平, 共产党不代表中国人!
+信息来源：[**蔡総統「台湾はいつも日本と一緒」 福島沖地震でお見舞いのメッセージ**](https://news.yahoo.co.jp/articles/d5af3323d363c8c9c5949aa5e15a225f2932a49a)
 
-Davide Martello 为感谢法治基金和新中国联邦在战争和硝烟中和乌克兰人们站在一起, 给人们带来温暖和希望，特意弹奏[新中国联邦国歌](https://gettr.com/post/p10cou)，以示敬意。
-
-22 年 3 月 16 日，战地钢琴家Davide Martello主动要求弹奏Nicole战友曾经给他播放的《[灭共的雪](https://gettr.com/post/p10ea6%E2%80%A6)》。
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
