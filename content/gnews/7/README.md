@@ -2,44 +2,46 @@
 ---
 
 
-## 台湾重生后会发现新中国联邦是拯救台湾最重要力量之一
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2178604/)
+## 可靠消息称中共政府向美承认支持俄侵乌
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2178748/)
 
-Youtube视频链接：[https://youtu.be/VGOhVWP-RXI](https://youtu.be/VGOhVWP-RXI)
+作者：波士顿五月花背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-17-at-1.40.13-PM.png)图片来源：互联网
+据新中国联邦可靠消息透露，中国（中共国）政府已经跟美国政府承认他们（中共）是支持俄罗斯攻打乌克兰，目前该消息还未公开。
 
-Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+**中共不但不遣责俄侵乌，还公开称与俄友谊****“****坚如磐石****“**
 
-**郭文贵先生：**台湾人民过去的七、八十年的智慧、科技、善良、民主、法治和国际观，所有的付出都化成了你们现在成为了全世界护佑你们的能力，我一直深信天会佑台湾的。
+自2月24日俄罗斯入侵乌克兰开始，中共国在联合国的两次表决中均投了弃权票，并且没有对俄罗斯的入侵行为提出谴责。不但不谴责，还高调支持。上周一（3月7日）中共国外长王毅在政协人大两会议会期间新闻发布会上表示，北京和莫斯科之间的友谊”坚如磐石”。
 
-你去过台湾你知道，台湾的那些佛教、各种地方，台湾是有万佛万神的加持，而且我相信今年到了结的时候了。台湾一旦跟中共了结完以后独立了也好什么…，台湾那个地方是人类上最好的地方。我相信到英国去的300万香港人，一大半会移到台湾去，做好准备吧。
+最新消息，周三（3月16日）联合国国际法院以 13 票对 2 票裁定临时命令“俄罗斯联邦应立即暂停其于 2022 年 2 月 24 日在乌克兰境内开始的军事行动”。法庭上只有俄罗斯和中国法官对该命令投了反对票。
 
-新中国联邦人，当把旗子立到台湾的时候 ，会成为台湾最最重要的、必须合作的、不可忽视的信任的力量。现在台湾人这些政府由于国民党在那、这些卖台贼在那，我们现在不愿意深入，等到台湾重生以后，你会看到新中国联邦的旗帜在台湾高空永远地飘扬。你会发现我们会是拯救台湾最重要的力量之一。咱走着看。谢谢！
+**美国掌握确凿证据表明中共支持俄侵乌，会谈摊牌压力下，中共被迫承认？**
 
-编辑整理：Jacques；
+周一(3月14日)美国国家安全顾问沙利文与中共政治局委员杨洁篪在罗马长达七小时高强度会谈后，美国表达对中俄联盟深度担忧，或已对中共在经济和武器暗地里支持俄罗斯摊牌。
 
-字幕文件制作：小满；
+媒体援引华盛顿官员的话称，俄罗斯最近几天专门要求中国提供包括无人机在内的军事装备。周一，美国警告盟友，中国曾暗示愿意采取行动提供军事和经济支持。美国有线电视新闻网早些时候的一次采访中，沙利文先生表示，美国“直接、私下与北京沟通，大规模规避制裁的努力或支持俄罗斯回避制裁肯定会产生后果”。【1】
 
-视频制作及上传：Cindy；
+美国之音报道，尽管杨洁篪在会谈中尽力将中国打扮成俄乌冲突中中立的一方，重申支持俄乌和谈的立场，美方官员认定北京已经决定要对饱受美国和西方制裁之苦的俄罗斯提供援助，而且美方在沙杨会后对有效改变北京的挺俄立场开始持悲观的态度。【2】
 
-G-News发布：小满；
+俄罗斯入侵乌克兰在国际上受到前所未有的孤立，一面倒支持乌克兰；军事上战争已现反转，俄军闪电战计划和暗杀斩首计划已流产，美欧攻破俄秘密通讯系统，俄军成活靶子，军心动摇，乌总统泽连斯基称乌军在关键方向上反击；经济金融方面，裁俄罗斯石油收入和欧美金融核弹制裁，将俄踢出Swift系统，俄寡头在西方被冻结财产损失巨大，内部经济崩溃；乌俄民意冰火两重天，乌克兰人民绝大多少支持泽连斯基抗击俄入侵，俄罗斯人民上街抗议普京独裁，反战情绪高涨，普京丧失民心。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+周三（3月16日）乌克兰和俄罗斯在达成停火和撤军方面取得了“重大”进展，达成了一项包含15点的和平协议草案。【3】
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+中俄秘密计划–俄侵乌，中共取台湾，面临破产。郭文贵先生周二（3月15日）谈及沙杨会谈时爆料：中共想跟美国谈，卖掉俄罗斯，美国没那根筋，根本不在乎，俄乌战争，美国是最大赢家。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+俄罗斯普大帝与中共习太阳友谊小船说翻就翻？
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+参考链接：
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+【1】[罗马会谈美对中俄联盟担忧或对中共暗撑俄摊牌](https://gnews.org/zh-hans/2166724/)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+【2】[俄乌战争：一场意志和制度的较量](https://www.voachinese.com/a/6486832.html)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+【3】[和平的 15 点计划：乌克兰和俄罗斯采取“重大”步骤达成协议](https://www.dailymail.co.uk/news/article-10620527/Ukraine-Russia-significant-steps-agreement-ceasefire-withdrawal.html)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+* * *
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*编辑&发布：Vicky*
 
  
 
