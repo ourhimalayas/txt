@@ -2,34 +2,38 @@
 ---
 
 
-## 俄国体育部发出警告 体坛惊现转籍潮
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2179217/)
+## 俄罗斯入侵乌克兰将给通胀带来额外的上行压力
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2179269/)
 
-日本东京方舟农场—Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-5.png)
-外媒15日报道，自俄乌战争以来，全球体坛齐声谴责俄罗斯的入侵行为。国际奥委会建议所有国际单项运动组织禁止俄罗斯与白俄罗斯的运动员参赛，目前国际篮球总会、国际乒乓球总会、国际足总、世界羽联、国际滑冰联盟纷纷响应，开始抵制俄罗斯。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1869.png)图片来自: https://sports.ltn.com.tw
-本次的禁赛令一发布，掀起了俄国体坛的转籍风潮，运动员为避免有限的体育生涯葬送在战争之上，纷纷宣布变更国籍。原效力于英力士车队的俄罗斯车手西瓦科夫已宣布更改国籍，将代表法国出赛；国际象棋大师罗曼诺夫则将代表挪威出赛；俄国知名花滑教练朱林也曾透露，不排除大量俄罗斯选手更改国籍的可能性。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-对此，俄国体育部副部长巴伊苏丹诺夫在接受采访时，对转籍的俄国选手强烈警告，称更改国籍以后就不要回来了。
+整理：等风来
+编辑：围剿维尼熊
 
-来源链接：[普廷政府出招！俄國體壇爆轉籍潮 體育部警告：以後不要回來了](https://sports.ltn.com.tw/news/breakingnews/3860876)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/22146799-BB92-4A66-8397-4061B6E7DAA3.jpg)图片来源：雅典娜设计组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2216E39C-254A-4B4E-A990-F203C3B861B5.jpeg)
 
-编辑：飞虹
+根据路透社3月16日报道，美国联邦储备委员会(美联储/FED)的联邦公开市场委员会(FOMC)货币政策会议后发布声明：
 
-总编：zhong
+经济活动和就业指标继续增强。近几个月就业增长强劲，失业率大幅下降，通胀仍居高不下。
 
-校正/发稿：浪迹天涯
+俄罗斯入侵乌克兰造成了巨大的民众苦难和经济困难，可能会给通胀带来额外的上行压力，并给经济活动造成压力。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-5.png)
+随着货币政策立场的适当收紧，委员会预计通胀将回归到2%的目标，劳动力市场将保持强劲。为了支持这些目标，委员会决定将联邦基金利率目标区间提高到0.25%-0.50%。委员会预计将开始减持美国公债、机构债和机构抵押贷款支持证券(MBS)。
+
+在评估适当的货币政策立场时，如果出现可能阻碍委员会目标实现的风险，委员会将准备酌情调整货币政策立场。
+
+参考链接：[美联储3月15-16日货币政策声明全文](https://cn.reuters.com/article/text-fed-meeting-0316-wedn-idCNKCS2LE03C?il=0)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

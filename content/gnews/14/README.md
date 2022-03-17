@@ -2,27 +2,36 @@
 ---
 
 
-## 有声｜国际法庭命令俄罗斯停止在乌军事行动
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2179140/)
+## 新中国联邦救援信息：
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2179194/)
 
-**By:秘翻新闻**
+作者：纽约香草山农场 – Irene木木
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。同时，自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发，前往波兰。
 
-**2022-03-17**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-17-14.49.31.jpg)
-[路透社](https://www.reuters.com/world/europe/world-court-rule-emergency-measures-ukraine-vs-russia-case-2022-03-16/)北京时间3月17日报道，联合国负责处理国家争端的海牙国际法庭，周三命令俄罗斯立即停止在乌克兰的军事行动，尽管国际法庭没有直接的执行手段，但国际法庭的裁决具有约束力。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/13-21.png)
 
-国际法庭在一项裁决中表示：俄罗斯联邦应立即暂停其于 2022 年 2 月 24 日在乌克兰领土上开始的军事行动。
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
 
-在俄罗斯入侵乌克兰后不久，乌克兰向国际法庭提起诉讼，称 “莫斯科声称的军事行动是为了防止乌克兰东部发生种族灭绝”是没有任何证据的。除此之外，基辅还要求对俄军采取紧急的“临时措施”，在案件全面审理之前停止暴力行为。这些措施于周三获得法庭批准。
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
-乌克兰总统泽连斯基对国际法庭的裁决表示欢迎，认为这是乌克兰对俄罗斯案件的完全胜利。泽伦斯基在推特上表示：国际法庭的命令根据国际法具有约束力，俄罗斯必须立即遵守，无视该命令俄罗斯将进一步被孤立。
+链接：
 
-（秘翻新闻 自由信仰 编译报道）
+- [《乌克兰救援》](https://www.gettr.com/post/pzvg8vdf4f)
 
-发布:星星
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+总编：zhong
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

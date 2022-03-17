@@ -2,32 +2,26 @@
 ---
 
 
-## 美参议院决议支持调查普京政府的战争罪
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2179156/)
+## 视频|乌克兰超过280万难民正在逃离故土
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2179211/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-5.png)
-3月15日，美国参议院一致通过了一项不具法律拘束效力的决议，鼓励并支持国际刑事法院对普京个人及其政权、安全理事会与军方领导人无端向乌克兰发起战争而犯下的战争罪进行调查。外媒报导称，参议院通过该决议，强烈谴责俄罗斯的侵犯行为是“暴力、战争及反人类罪”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1867.png)图片来自：https://dothaneagle.com/
-外媒报导曾指出，美国官员已经针对俄罗斯入侵是否犯下战争罪在收集相关讯息，其中俄罗斯攻击乌克兰本土的目标，不仅是核电站或军事设施，甚至将平民住所和妇产医院等作为攻击目标，因此死亡的平民不计其数。
+制作：香草山视频部
 
-目前，美国将把它与盟国和合作伙伴收集的信息发送给总部位于日内瓦的联合国人权理事会，该理事会已成立一个调查委员会，调查俄罗斯可能侵犯人权的行为，并追究俄罗斯领导人的责任。乌克兰总统泽连斯基也表示，俄罗斯必将为战争罪负责，他敦促俄罗斯士兵尽快投降。
+截止当地时间3月14日，据联合国公布的最新数据显示，自 2 月 24 日俄罗斯入侵乌克兰以来，从乌克兰逃离的难民人数已经攀升至280 余万，而这也成为二战后欧洲增长最快的一次难民危机。 但欧盟官员则预计，这一数字最终可能超过五百万。
 
-新闻链接: [Senate Passes Resolution Backing War Crimes Probe of Putin and His Regime](https://www.newsmax.com/us/war-crimes/2022/03/15/id/1061362/)
+据悉，除却已经撤离乌克兰的民众外，仍滞留在当地的居民也有数百万人流离失所：他们大多数停留在较为平静的西部地区，包括边境城市利沃夫。然而，此前一天，俄罗斯刚刚袭击了一个地处波兰边境附近的乌克兰基地，造成35人遇难，另有数千人不得不再度离开乌克兰西部，进入东欧地区。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6765EFEC-ECC8-4F65-9ED8-04E97F0DB5B6.jpeg)
+据有关报道提及，目前，乌克兰包括首都基辅在内的许多主要城市的交战仍在继续，但乌克兰政府仍然在尝试通过十条人道主义走廊疏散平民。对此，波兰总理莫拉维茨基在早先的新闻发布会上表示，除了乌克兰境内的侵略战争外，俄罗斯在波兰边境附近的袭击表明，莫斯科当局希望在平民中制造恐慌。
 
-審核/编辑/总编：zhong
+当下，波兰等前线国家接收了超过一半以上的乌克兰难民，而其他边境国家包括斯洛伐克、罗马尼亚、匈牙利和摩尔多瓦也接收了绝大多数的战争逃难者。
 
-校正/发稿：浪迹天涯
+发稿：林礼
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-5.png)
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

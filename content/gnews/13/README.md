@@ -2,43 +2,38 @@
 ---
 
 
-## 任何发布关于乌克兰不真实消息的，盖特将给予删号处理
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2179145/)
+## 英国扩大对俄罗斯制裁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2179195/)
 
-Youtube视频链接：[https://youtu.be/5mX2U7b\_11k](https://youtu.be/5mX2U7b_11k)
+撰稿：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-5.png)
+英国媒体15日报道，英国政府宣布加大对俄罗斯的贸易制裁，包括奢侈品出口禁令、提高数百种俄罗斯商品的进口关税以及切断对与该国贸易的财政支持。此外，英国政府将仿效美国政府，停止俄罗斯及白俄罗斯的数百种商品享受世界贸易组织的最惠国待遇。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1868.png)图片来自：https://www.export.org.uk
+英国国际贸易部表示：世界贸易组织是建立在尊重法治的基础上，而普京对此表示藐视，因此将剥夺俄罗斯政府加入世贸组织的主要利益。
 
-Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+英国外交部指出，这次新一轮的制裁，受冲击的俄罗斯菁英合计资产净值达1000亿英镑，其中包括克里姆林宫发言人培斯科夫和俄国外交部发言人沙卡洛娃。
 
-**郭文贵先生：**据我所知，盖特己经有了很严明的政策，就是所有在盖特发这个乌克兰不真实消息的，不是给你删除，是给你删号。大家一定要记住，是给你删号。你也不用投诉，你不能有任何理由，它一定给你删号。因为这对整个法律和对乌克兰战争中的老百姓是不公平的，是绝对不公平的。
+同一天，欧盟也正式批准了对俄罗斯的第四轮制裁措施，包括禁止对俄罗斯能源领域的新投资，并设下對鋼鐵和奢侈品的貿易限制。此外，部分个人及部分国有企业将受到制裁。
 
-你看我这块刚刚收到这个信息，（看电话信息）哦！我天呐！普京真是要、真的是要使用核武器呢还。所以说这是不可以的。另外一个，大家记住，你可以不干事，千万不能干假事、千万千万不能干假事儿。一定要记住兄弟姐妹们，一定要记住。
+新闻链接：[New UK sanctions on Russia include ban on luxury exports, hiked import tariffs and halt to UKEF aid](https://www.export.org.uk/news/599062/New-UK-sanctions-on-Russia-include-ban-on-luxury-exports-hiked-import-tariffs-and-halt-to-UKEF-aid.htm)
 
-编辑整理：Jacques；
+[EU restrictive measures in response to the crisis in Ukraine](https://www.consilium.europa.eu/en/policies/sanctions/restrictive-measures-ukraine-crisis/)
 
-字幕文件制作：小满；
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2216E39C-254A-4B4E-A990-F203C3B861B5.jpeg)
 
-视频制作及上传：Cindy；
+审核/总编：zhong
 
-G-News发布：小满；
+编辑：飞虹
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+校正/发稿：浪迹天涯
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

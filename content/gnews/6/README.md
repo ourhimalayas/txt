@@ -2,10 +2,10 @@
 ---
 
 
-## 新中国联邦梅迪卡救助中心出现在英国ITV相关报道中
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2179196/)
+## 战狼发言人赵立坚要继续绑架全体中国人民做陪葬品
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2179237/)
 
-03/13/2022 新中国联邦梅迪卡救助中心出现在英国ITV3月13日乌克兰难民报道中，原报道链接：https://youtu.be/CIPql2PNm20
+03/15/2022 中共外交部战狼发言人赵立坚在3月15日记者会上表示：反对美国因俄乌问题损害中国正当经济权益，并声称还要继续同俄罗斯开展经贸合作。这无疑是要继续绑架全体中国人民做俄罗斯的陪葬品。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
