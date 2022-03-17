@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：疫苗真相
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2177418/)
+## 七哥金句：得和失去之间就是人生
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2177433/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句8.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句9.png)
 发布：枫叶红了
 
 **更多资讯，请关注：****

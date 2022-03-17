@@ -15,83 +15,83 @@
 
 ---
 
-### [3/16/2022 文贵盖特：恒生指数将抹去港人百年基业和强积金；香港房屋不防震，而中共内部文件却预测香港将发生地震；原本给台湾准备的病毒在香港、深圳、吉林肆虐，清零政策将带来灾难](/content/gnews/1/README.md)
+### [中共加大煤炭产量以图能源独立](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [预设立场的彭博社记者采访](/content/gnews/2/README.md)
+ ` 纽约香草山MOS02`
+
+### [俄军无差别攻击遭世界谴责](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [乌克兰民众排队领面包遭俄军攻击，至少10人惨死！](/content/gnews/4/README.md)
+ ` 蓝莲花农场`
+
+### [3/16/2022 文贵盖特：恒生指数将抹去港人百年基业和强积金；香港房屋不防震，而中共内部文件却预测香港将发生地震；原本给台湾准备的病毒在香港、深圳、吉林肆虐，清零政策将带来灾难](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [大直播后记：俄乌战争的背后真正的黑手是中国共产党](/content/gnews/2/README.md)
+### [大直播后记：俄乌战争的背后真正的黑手是中国共产党](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [全球疫情疫苗数据更新（卵巢癌发病率为何增加？）](/content/gnews/3/README.md)
+### [全球疫情疫苗数据更新（卵巢癌发病率为何增加？）](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [3/15/2022 文贵直播：中共使领馆已撤离乌克兰，却远程操控搞虚假救援；新中国联邦进入乌克兰救援中国同胞，用真和实力干掉中共的假](/content/gnews/4/README.md)
+### [3/15/2022 文贵直播：中共使领馆已撤离乌克兰，却远程操控搞虚假救援；新中国联邦进入乌克兰救援中国同胞，用真和实力干掉中共的假](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共假借疫情防控发起经济超限战](/content/gnews/5/README.md)
+### [中共假借疫情防控发起经济超限战](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [七哥金句：得和失去之间就是人生](/content/gnews/6/README.md)
+### [七哥金句：得和失去之间就是人生](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [3/15/2022 文贵直播：香港病毒和经济危机会进而导致中共国自北向南一系列的房地产崩盘和进一步病毒失控，中共最后的疯狂必将是打台湾，届时灭共第三道大门就会打开](/content/gnews/7/README.md)
+### [3/15/2022 文贵直播：香港病毒和经济危机会进而导致中共国自北向南一系列的房地产崩盘和进一步病毒失控，中共最后的疯狂必将是打台湾，届时灭共第三道大门就会打开](/content/gnews/11/README.md)
  ` 秘密翻译组-北美组`
 
-### [五名在美华人因监视威胁反共华人被美国司法部起诉](/content/gnews/8/README.md)
+### [五名在美华人因监视威胁反共华人被美国司法部起诉](/content/gnews/12/README.md)
  ` 澳喜农场`
 
-### [加拿大通脹指數近5%，達到近幾十年的最高水平。](/content/gnews/9/README.md)
+### [加拿大通脹指數近5%，達到近幾十年的最高水平。](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [七哥金句：疫苗真相](/content/gnews/10/README.md)
+### [七哥金句：疫苗真相](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：共党就是用一招控制中国人](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [浅谈喜币铸币权与传统货币铸币权的差别以及未来货币的走向](/content/gnews/12/README.md)
- ` 澳喜农场`
-
-### [加拿大无力应对前所未有的通货膨胀](/content/gnews/13/README.md)
+### [加拿大无力应对前所未有的通货膨胀](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [加密货币保护金融自由](/content/gnews/14/README.md)
+### [加密货币保护金融自由](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加拿大媒体敦促问责《紧急状态法》](/content/gnews/15/README.md)
+### [加拿大媒体敦促问责《紧急状态法》](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [3/15/2022 文贵直播: 香港恒生指数跌破2万点意味着港币失去了和美元挂钩的GDP的基础；香港经济的崩溃会导致广东产生连锁反应](/content/gnews/16/README.md)
+### [3/15/2022 文贵直播: 香港恒生指数跌破2万点意味着港币失去了和美元挂钩的GDP的基础；香港经济的崩溃会导致广东产生连锁反应](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [3/16/2022 文贵盖特：据说AI病毒去找比爹娘还亲的共产党了，彭博社在文贵大直播后做贼心虚地去找Nicole战友和文耀战友，说明咱直播的传播力很强啊](/content/gnews/17/README.md)
+### [3/16/2022 文贵盖特：据说AI病毒去找比爹娘还亲的共产党了，彭博社在文贵大直播后做贼心虚地去找Nicole战友和文耀战友，说明咱直播的传播力很强啊](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [秘翻在线: 海康威视预收购ASML光刻机开启芯片生产线](/content/gnews/18/README.md)
+### [秘翻在线: 海康威视预收购ASML光刻机开启芯片生产线](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [随着感染率的放缓，日本将全面取消COVID-19的限制](/content/gnews/19/README.md)
+### [随着感染率的放缓，日本将全面取消COVID-19的限制](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [墙内的同胞请记住只有Hpay才能让你在血腥的未来中得到安全](/content/gnews/20/README.md)
+### [墙内的同胞请记住只有Hpay才能让你在血腥的未来中得到安全](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [大直播后记：香港金融市场崩盘必将引发广东经济垮塌](/content/gnews/21/README.md)
+### [“七星”帐篷长成记](/content/gnews/23/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [大直播后记：香港金融市场崩盘必将引发广东经济垮塌](/content/gnews/24/README.md)
  ` 雅典娜GNotes`
 
-### [拜登称普京为“战犯”](/content/gnews/22/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [乔丹：如果他们在11月赢得众议院，美国共和党将调查福奇](/content/gnews/23/README.md)
+### [乔丹：如果他们在11月赢得众议院，美国共和党将调查福奇](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【粤语配音】2022年3月16日：香港病毒会导致香港大量人员被死亡](/content/gnews/24/README.md)
+### [【粤语配音】2022年3月16日：香港病毒会导致香港大量人员被死亡](/content/gnews/26/README.md)
  ` MOS香港部`
-
-### [五月花简报（03/16/2022）](/content/gnews/25/README.md)
- ` mayflowertranslate`
-
-### [新中国联邦援乌营地见闻：戴手套做饭的春花](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [拜登称普京是战争罪犯并承诺向乌克兰输送更多武器](/content/gnews/27/README.md)
  ` 蓝莲花农场`
