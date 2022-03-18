@@ -2,42 +2,47 @@
 ---
 
 
-## 中共开始让轻型病例集中传染拖延治疗时机致人死地
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2187827/)
+## CBC标志性的电视节目《Family Feud Canada》今年回归
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2187870/)
 
-**【国内新闻短评】**
+作者：BlogTo
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_134620307.jpg)
+CBC标志性的电视节目《Family Feud Canada》今年回归，目前开启报名，寻找“加拿大最有活力的家庭”。如果你愿意挑战游戏节目，你可能有机会赢$30,000奖金并在国家电视台上大放异彩。
 
-腾讯新闻2022年3月16日报道：国家卫健委：轻型病例先集中隔离，若加重则送医
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2057.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2058.png)图片来源：网络
-**短评：**
+据报道，《Family Feud Canada》节目由多伦多喜剧演员Gerry Dee主持，于2019年12月推出，为年满18岁的加拿大人提供高达30,000元的奖金。
 
-2022年3月16日，中共的邪恶让我们再一次超出了我们的想象。自古以来医生都是全力以赴争取最佳治疗时机，以便尽早降低患者损失拯救患者脱离苦海；如今，邪恶中共竟然让轻型病例先集中传染，故意拖延最佳治疗时机，让病例加重到重度残疾或者直接死亡，连送医的机会都没有，直接送火葬场。再一次证明中共不是医生，中共就是屠夫，屠杀人类的屠夫。
+现已向今年的参赛者开放申请，虽然没有截止日期，但制作人敦促人们尽快申请。
 
-2022年3月16日，中共卫健破坏委为进一步做好中共病毒医疗谋杀工作，切实提高谋杀规范化、同质化索命水平，中共破坏卫健破坏委和中共中医毒药管理局组织专门蒙大家的杀人专家对《中共病毒谋杀方案（试行第八版 修订版）》进行了修订，形成了《中共病毒谋杀方案（试行第九版）》，并印发各地参照执行。新版谋杀方案是在认真释放德尔塔、奥密克戎等变异毒株后，深入分析相关谋杀成果的基础上形成的。重点修订内容如下：
+申请网址：
 
-一，弱化病例发现和报告程序。在打着核酸检测的幌子实则人为集中传染的基础上，增加抗原检测名义的集中传染环节作为补充，进一步提高病例制造能力。
+[https://www.cbc.ca/television/familyfeud/here-s-how-to-apply-to-be-on-family-feud-canada-1.5183063](https://www.cbc.ca/television/familyfeud/here-s-how-to-apply-to-be-on-family-feud-canada-1.5183063)
 
-二，对病例实施分类谋杀。根据各地反映的“奥密克戎变异毒株患者可以说成以无症状感染者和轻型病例为主，故意说他们并不需要过多治疗，这样就可以避免全部收治，避免占用中共不愿斥资投入只为疯狂敛财的本就稀少的医疗资源。
+候选人需要提交三到五分钟长的视频，通过虚拟试镜。制片人正在寻找能够代表他们家乡的杰出和自豪的家庭。试镜包括舞蹈、歌唱和大胆的服装秀。
 
-三，进一步规范病毒谋杀流程，提高病毒谋杀效率。将中共毒药监局批准的两种特异中共病毒写入谋杀使用方案。
+成功的申请者将获接到电话通知，然后是模拟游戏。
 
-四，对中医毒药谋杀内容进行了修订完善。结合各地临床谋杀经验，加强中医除药物外的其他谋杀应用方法，增加了毒针灸谋杀内容：结合儿童患者特点，增加儿童中医谋杀相关内容。
+《Family Feud Canada》有望于今年9月在多伦多开始录制节目。制作人将联系从试镜中选出的人参加节目。
 
-五，调整解除隔离管理、出院标准以及解除隔离管理、出院后注意事项。将“出院后继续进行14天隔离管理和健康状况监测”修改为“解除隔离管理或出院后继续进行7天居家健康监测”，以增加复阳概率、增加传染风险、达到制造更多传染的目的。
+去年，多伦多一家超市的老板和他的表兄弟们竞争。虽然他们没有获胜，但他们很享受这次经历。
 
-邪恶中共，竟敢这样明文规定拖延治疗时机，制造更多传染，这就在光天化日之下丧心病狂地杀人。我R（ri）你八辈祖宗。
+超市老板Mario Masellis告诉blogTO说，在国家电视台上和我的表兄弟一起做这件事非常令人兴奋。
 
-新闻链接：
-[**https://view.inews.qq.com/a/20220316A0071Z00**](https://view.inews.qq.com/a/20220316A0071Z00)
+来源：https://www.blogto.com/film/2022/03/family-feud-canada-popular-gameshow-and-win-30000/
 
-素材：洛杉矶盘古农场 — 归去来兮
-评论：洛杉矶盘古农场 — 归去来兮
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

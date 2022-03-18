@@ -15,107 +15,107 @@
 
 ---
 
-### [白宫表示美国缺乏针对新冠病毒浪潮的测试和治疗方法](/content/gnews/1/README.md)
+### [逃离的乌克兰富豪返回国家与总统为伍](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中国新的COVID封锁引发对经济破坏的担忧](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [最大集装箱运输公司称中共疫情封锁扰乱供应链](/content/gnews/2/README.md)
+### [白宫表示美国缺乏针对新冠病毒浪潮的测试和治疗方法](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [最大集装箱运输公司称中共疫情封锁扰乱供应链](/content/gnews/4/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [女人寻求帮助寻找失散多年的亲生母亲](/content/gnews/3/README.md)
+### [女人寻求帮助寻找失散多年的亲生母亲](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [接种疫苗的12岁女孩在睡梦中死于心脏病](/content/gnews/4/README.md)
+### [接种疫苗的12岁女孩在睡梦中死于心脏病](/content/gnews/6/README.md)
  ` xiaobaige`
 
-### [【转】截至3.18 俄乌战事汇总（1）](/content/gnews/5/README.md)
+### [【转】截至3.18 俄乌战事汇总（1）](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [多伦多警方称约会骗子从弱势受害者那里骗走了 30,000 元](/content/gnews/6/README.md)
+### [多伦多警方称约会骗子从弱势受害者那里骗走了 30,000 元](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [CBC标志性的电视节目《Family Feud Canada》今年回归](/content/gnews/7/README.md)
+### [CBC标志性的电视节目《Family Feud Canada》今年回归](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [蓬佩奥表示，台湾需强有力支持来抵制胆大妄为的中共](/content/gnews/8/README.md)
+### [蓬佩奥表示，台湾需强有力支持来抵制胆大妄为的中共](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共开始让轻型病例集中传染拖延治疗时机致人死地](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [MV版Hcoin To the Moon上线99天第36次位列匈牙利iTunes热门MV榜首](/content/gnews/10/README.md)
+### [MV版Hcoin To the Moon上线99天第36次位列匈牙利iTunes热门MV榜首](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵先生直播精要 2022/03/17](/content/gnews/11/README.md)
+### [有声|中共被停止SWIFT系统的后果](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [文贵先生直播精要 2022/03/17](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|俄罗斯曾要求中国支持入侵乌克兰](/content/gnews/12/README.md)
+### [有声|俄罗斯曾要求中国支持入侵乌克兰](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [2022年3月18日，全球中共病毒疫情情况汇总](/content/gnews/13/README.md)
+### [2022年3月18日，全球中共病毒疫情情况汇总](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [大直播后记：新中国联邦人怎么做人](/content/gnews/14/README.md)
+### [大直播后记：新中国联邦人怎么做人](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [有声|战友克服困难 轮流值班 坚持高质量服务](/content/gnews/15/README.md)
+### [有声|战友克服困难 轮流值班 坚持高质量服务](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [布坎南称美国的重大利益决定了俄乌战争的结束](/content/gnews/16/README.md)
+### [布坎南称美国的重大利益决定了俄乌战争的结束](/content/gnews/18/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [援乌营地：战友波兰租车公司老板Peter](/content/gnews/17/README.md)
+### [援乌营地：战友波兰租车公司老板Peter](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|梅迪卡口岸的难民连夜排队等候离开](/content/gnews/18/README.md)
+### [有声|梅迪卡口岸的难民连夜排队等候离开](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [网队因允许未接种疫苗的凯里-欧文进入主场更衣室被NBA罚款](/content/gnews/19/README.md)
+### [网队因允许未接种疫苗的凯里-欧文进入主场更衣室被NBA罚款](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [官员：向美驻伊拉克领事馆发射的导弹来自伊朗](/content/gnews/20/README.md)
+### [官员：向美驻伊拉克领事馆发射的导弹来自伊朗](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [韩国船只向朝鲜巡逻艇鸣枪示警](/content/gnews/21/README.md)
+### [韩国船只向朝鲜巡逻艇鸣枪示警](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年3月18日早](/content/gnews/22/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年3月18日早](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [日裔美国女星福原诚司在遭受袭击后呼吁停止亚裔仇恨](/content/gnews/23/README.md)
+### [日裔美国女星福原诚司在遭受袭击后呼吁停止亚裔仇恨](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国会政要赞同对中共支援俄罗斯进行制裁](/content/gnews/24/README.md)
+### [美国会政要赞同对中共支援俄罗斯进行制裁](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [拜登首称普京为战犯](/content/gnews/25/README.md)
+### [拜登首称普京为战犯](/content/gnews/27/README.md)
  ` NFSC News`
 
-### [班农先生称消灭中共别无选择](/content/gnews/26/README.md)
+### [班农先生称消灭中共别无选择](/content/gnews/28/README.md)
  ` NFSC News`
 
-### [加拿大通货膨胀将创30年新高](/content/gnews/27/README.md)
+### [加拿大通货膨胀将创30年新高](/content/gnews/29/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [简述阿拉伯之春及颜色革命](/content/gnews/28/README.md)
- ` NFSC News`
-
-### [曾庆红提前回京 台海战争一触即发](/content/gnews/29/README.md)
+### [曾庆红提前回京 台海战争一触即发](/content/gnews/30/README.md)
  ` 焦點20分`
 
-### [3/18/2022国际财经快讯：奥地利储备银行研究可能退出俄罗斯；澳大利亚制裁与采矿业有联系的俄罗斯亿万富翁](/content/gnews/30/README.md)
+### [3/18/2022国际财经快讯：奥地利储备银行研究可能退出俄罗斯；澳大利亚制裁与采矿业有联系的俄罗斯亿万富翁](/content/gnews/31/README.md)
  ` 秘密翻译组金融团队`
 
-### [秘翻新闻｜俄乌战争将彻底改变世界格局](/content/gnews/31/README.md)
+### [秘翻新闻｜俄乌战争将彻底改变世界格局](/content/gnews/32/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [参议员斯科特公开信：与中共国在经济上完全彻底脱钩](/content/gnews/32/README.md)
+### [参议员斯科特公开信：与中共国在经济上完全彻底脱钩](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新西兰财经G乐部2022年3月18日:财经新闻整理](/content/gnews/33/README.md)
+### [新西兰财经G乐部2022年3月18日:财经新闻整理](/content/gnews/34/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [中共国推崇俄罗斯关于美国在乌克兰的实验室的阴谋论](/content/gnews/34/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [美国再次军售台湾以防中共入侵](/content/gnews/35/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
