@@ -2,88 +2,58 @@
 ---
 
 
-## 参议员卢比奥：中共国100%站在 普京后面
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2183750/)
+## 《新闻周刊》记者感谢新中国联邦和法治基金的救援工作
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2184066/)
 
-参议员马可.卢比奥： 毫不怀疑 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click) 站在哪一边 他们100%站在 普京 [#Putin](https://twitter.com/hashtag/Putin?src=hashtag_click) 后面 他们宁愿世界不知道这一点，但这不会阻止他们尽可能多地帮助他（普京）
+#### 【雅典娜快讯】，紧贴时代脉搏
 
+整理/编辑：小红帽
 
-
-> Have ZERO doubt about whose side [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) is on 
-> 
-> They are 100% behind [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> They would prefer the world not know this, but that will not stop them from helping him as much as they can
-> — Marco Rubio (@marcorubio) [March 17, 2022](https://twitter.com/marcorubio/status/1504587222015569920?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-18_11-56-05.png)图片来源：郭文贵先生盖特视频截图
 
 
+3月16日，在波兰的梅迪卡难民援救中心，《新闻周刊》驻波兰记者莉娜塔·金感谢法治基金和新中国联邦对乌克兰的人道救援，并祝愿新中国联邦早日推翻中共独裁政权。
 
-前国务卿迈克.蓬佩奥： 我担心拜登总统 [@POTUS](https://twitter.com/POTUS) 不会回答 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军费预算的增加，而是喋喋不休地将包容性作为我们军队的最高目标，这是建立一支不基于卓越和作战能力、而以政治灌输军队的准则 【转蓬佩奥发表在华盛顿时报文章：美国未来的安全态势必须阻止独裁统治的进军】
+新中国联邦和法治基金志愿者妮可跟《新闻周刊》驻波兰记者莉娜塔·金进行了采访。
 
+妮可：“我们来自新中国联邦。我们是要推翻中国共产党的新中国人。”
 
+莉娜塔·金：“你的意思是政治方面的反对派？”
 
-> I fear that [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) won't answer the increase in China’s military budget, but prattle about inclusivity as our military’s highest purpose, which is code for creating a military not based upon excellence & warfighting capacity but political indoctrination.[https://t.co/3HQOy8YGyk](https://t.co/3HQOy8YGyk)
-> — Mike Pompeo (@mikepompeo) [March 17, 2022](https://twitter.com/mikepompeo/status/1504579612822671361?ref_src=twsrc%5Etfw)
+妮可：“是的，没错。因为中国共产党是世界上所有灾难和人道主义危机的根源。他们对香港人民的自由进行镇压。现在又对台湾的自由造成威胁。中共还是此次（俄罗斯入侵乌克兰）的幕后黑手。他们迫害人民，剥夺人民的思想自由、宗教自由。他们是全世界所有危机的根本原因。这就是为什么我们这些来自新中国联邦的新中国人，要推翻中国共产党的原因，因为我们希望这个世界变得更加美好。推翻中国共产党是拯救人类并让世界变得更美好的唯一途径。”
 
+莉娜塔·金：“你们为什么来波兰，背后作出决策的人是谁呢？”
 
+妮可：“资助这次救援工作的是法治基金。我们都是志愿者。我们的救援活动是由法治基金资助的。这是个非政府组织，其使命是帮助中共国人民摆脱共产主义。这样中共国人民也能像你们一样，生活在一个和平、自由没有共产主义的社会里。我们的帐篷是最大、设备最完善的。我们每天接待500至1000名难民。”
 
-众议员迈克尓·麦考尔(众议院军事委员会资深成员）: [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 原本预计在三到四天内接管乌克兰，但 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 人民的反抗意志却出乎所有人的意料。 这就是为什么我一直在敦促拜登总统[@POTUS](https://twitter.com/POTUS) 帮助促成将 S-300 等远程防空系统运送到乌克兰。 时间就是生命。 【附麦考尔议员接受福克斯采访视频】
+莉娜塔·金：“他们就这样进来吗？”
 
+妮可：“是的。这些难民是被红十字会和很多波兰及国际人道主义援助组织带到这里的。我们受到了波兰人民的热烈欢迎。”
 
+莉娜塔·金：“你们会在这里停留多少天？”
 
-> Putin was expected to take over Ukraine in three to four days, but will of the Ukrainian people have defied all expectations. That’s why I’ve been urging [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) to help facilitate the transfer of longer-range air defense systems like the S-300 to Ukraine. Time is of the essence. [pic.twitter.com/cTWlKP6ps3](https://t.co/cTWlKP6ps3)
-> — Michael McCaul (@RepMcCaul) [March 17, 2022](https://twitter.com/RepMcCaul/status/1504523255633354755?ref_src=twsrc%5Etfw)
+妮可：“只要有需要，我们会一直呆在这里。这就是我们对乌克兰人民提供人道主义援助的承诺。我们和乌克兰人民站在一起。我们支持乌克兰人民。这就是我们在这里的原因。”
 
+莉娜塔·金：“你们的行动在财务方面是如何得到资助的？你们是如何筹集资金的？”
 
+妮可：“我们的资金来自法治基金。法治基金有来自世界各地的捐款。因为全世界有很多人想帮助中共国人民从共产主义中解放出来。我们还从身处中共国的人们那里得到大量的捐款。那些勇敢的中共国人民，尽管他们仍在共产主义的压迫下，他们还是给这个组织捐款。这样我们可以做些好事来向全世界人民传递希望、同情心和爱心。
 
-众议员迈克·加拉格尔新闻办公室： 众议员加拉格尔提出了《保护我们的药品供应链免受中共国侵害法案》，该法案将结束美国在药品制造方面对 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的依赖。 从作者@mikeginsberg98 的文章阅读更多关于此法案的信息：（附文章链接） 【图片中内容： “#中共 曾经威胁过一次，要从美国扣留救生药物，如果我们认为他们不会再尝试这样做，那我们就是疯子。 国会需要一个积极的计划来保护我们关键的药品供应链并结束我们对 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的依赖。这是国家安全的当务之急，对许多美国人来说，是生死攸关的问题，” -加拉格尔议员说。】
+莉娜塔·金：“我们非常感谢你们在这里所做的一切。我们从未有过类似经历，像这次一样接受来自全世界的帮助。对我们来说，也是很令人惊讶的。”
 
+妮可：“没有来自中共国境内的中共国人民的捐助，我们的救援行动是不可能实现的。他们是对法治基金最慷慨最勇敢的捐助者。您愿意对那些法治基金的捐助者说几句话吗？”
 
+莉娜塔·金：“非常感谢你们来到波兰，在这里进行救援工作。我认为你们在告诉我们什么是慷慨和友谊，并且在非常艰难的环境下对其他人类的关怀。我们非常非常感激你们对乌克兰人民的帮助。你们在帮助乌克兰人之际，也在帮助我们波兰人民。因为我们需要在战争时期，在这里欢迎乌克兰难民的到来并帮助他们。再次对你们表示感谢。我会为你们的使命-推翻中共的政权而祈祷。”
 
-> Rep. Gallagher introduced the Protecting our Pharmaceutical Supply Chain from China Act, which would end U.S. dependence on China for pharmaceutical manufacturing.
-> 
-> Read more about his bill from [@mikeginsberg98](https://twitter.com/mikeginsberg98?ref_src=twsrc%5Etfw) here: [https://t.co/XqtBLkWyr7](https://t.co/XqtBLkWyr7) [pic.twitter.com/FLcavWnyqm](https://t.co/FLcavWnyqm)
-> — Rep. Gallagher Press Office (@RepGallagher) [March 17, 2022](https://twitter.com/RepGallagher/status/1504535164805955587?ref_src=twsrc%5Etfw)
+资料来源：[郭文贵先生2022年3月18日盖特视频](https://www.gettr.com/post/p10kkosc86b)
 
+发布：tianzhihuan
 
-
-参议员玛莎.布莱克本： 亨特·拜登的笔记本电脑始终是真实的，但主流媒体和大科技公司却禁止人们谈论它。 【转纽约邮报报道：《纽约时报》的（最新）报道证实了亨特·拜登臭名昭著的笔记本电脑的存在】
-
-
-
-> Hunter Biden’s laptop was always real, but the mainstream media and big tech silenced you for talking about it anyway. [pic.twitter.com/GYxA7Oyrme](https://t.co/GYxA7Oyrme)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 17, 2022](https://twitter.com/MarshaBlackburn/status/1504538136017317893?ref_src=twsrc%5Etfw)
-
-
-
-美国务卿安东尼·布林肯： 我们不仅目睹了克里姆林宫领导的对 [#乌克兰](https://gettr.com/hashtag/%23%E4%B9%8C%E5%85%8B%E5%85%B0) 人民的残酷、暴力攻击，我们还目睹了一场真相与暴政的战争。 正如施瓦辛格[@Schwarzenegger](https://gettr.com/user/Schwarzenegger) 解释的那样，我们不责怪俄罗斯人民，(但) 我们需要你知道你的政府对你隐瞒了什么。 【转斯瓦辛格的推文：我爱俄罗斯人民。 这就是为什么我必须告诉你们真相。请观看和分享。（附视频）】
-
-
-
-> We are not just witnessing a brutal, violent Kremlin-led attack on the Ukrainian people, we are witnessing a war of the truth vs. tyranny. As [@Schwarzenegger](https://twitter.com/Schwarzenegger?ref_src=twsrc%5Etfw) explains, we do not blame the people of Russia, and we need you to know what your government is hiding from you. [https://t.co/QK8zhwsOnR](https://t.co/QK8zhwsOnR)
-> — Secretary Antony Blinken (@SecBlinken) [March 17, 2022](https://twitter.com/SecBlinken/status/1504534544761995266?ref_src=twsrc%5Etfw)
-
-
-
-比尔.格茨： 本周华盛顿时报 [@WashTimes](https://twitter.com/WashTimes) 内幕专栏：太平洋将军誓言美国对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对台湾的任何攻击将会作出强烈反应； 美国米格战斗机可以帮助乌克兰； 海军在朝鲜附近进行航母行动 【附专栏链接】
-
-
-
-> This week’s Inside the Ring column [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): Pacific general vows strong US response to any Chinese attack on Taiwan; US MiGs could help Ukraine; Navy conducts carrier ops near North Korea [https://t.co/Pc7c4elsqp](https://t.co/Pc7c4elsqp)
-> — Bill Gertz (@BillGertz) [March 17, 2022](https://twitter.com/BillGertz/status/1504514611692855296?ref_src=twsrc%5Etfw)
-
-
-
-参议员泰德·克鲁兹： 拜登害怕普京。这就是我们陷入困境的原因。 拜登的团队正在编造借口，不给乌克兰提供自卫的关键武器。他们在扯皮防御性武器和进攻性武器。事实上，乌克兰使用的所有武器都是为了自卫。
-
-
-
-> Biden is scared of Putin. That's what got us into this mess.
-> 
-> Biden's team is making up excuses not to give Ukraine key weapons to defend themselves. They talk about defensive weapons vs. offensive weapons. In truth, all the weapons Ukraine is using are to defend itself. [pic.twitter.com/ISCTurZA7C](https://t.co/ISCTurZA7C)
-> — Ted Cruz (@tedcruz) [March 18, 2022](https://twitter.com/tedcruz/status/1504637461271511040?ref_src=twsrc%5Etfw)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,21 +2,28 @@
 ---
 
 
-## 俄乌战争让供应链雪上加霜
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2184257/)
+## 泽林斯基美国会演讲 拜登再增8亿美元军事援助
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2184504/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+作者：纽约香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月16日，乌克兰总统泽林斯基，通过视频向美国参众两会议员发表演讲，感谢美国对乌克兰提供的帮助。
 
-*发布：陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6-34.jpg)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+在演讲中，泽连斯基援引珍珠港事件和9/11恐怖袭击，播放乌克兰遭受俄罗斯炮火蹂躏的视频，要求美国、要求全世界在乌克兰上空设立禁飞区，并呼吁拜登总统承担起维护世界和平的使命。 数小时后，拜登总统宣布向乌克兰提供额外的8亿美元军事援助。据悉，此次援助将支付包括100架尖端无人机、600套毒刺防空系统、2600套标枪反装甲系统等在内的军事装备。
 
+链接：
+
+- [Biden calls Putin a ‘war criminal’ after signing off on $800 million in new military aid: March 16 recap](https://eu.usatoday.com/story/news/politics/2022/03/16/ukraine-invasion-live-updates-zelenskyy-congress/7056525001/)
+- [Zelensky Addresses U.S Congress:](https://gettr.com/post/p10bwltb711)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+总编/编辑：雪梨
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
