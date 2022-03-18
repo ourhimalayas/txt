@@ -2,29 +2,69 @@
 ---
 
 
-## 大直播后记：改天换地的时代即将到来
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2187568/)
+## 美大学球队遭遇惨烈车祸9死
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2187682/)
 
-#### 整理：枫叶红了、铁血丹心
-编辑：朝花夕拾
+作者：Cedar Attanasio, Jill Bleed and Anita Snow
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-208.png)
+据报道，西德克萨斯州周二发生一宗惨烈的迎面相撞车祸，造成9人死亡，其中包括新墨西哥州的6名大学生和一名教练，他们刚打完高尔夫球比赛回来，以及一名13岁的男孩。最新调查显示，出事的其中一辆车是由13岁男孩驾驶的。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-30.png)图片来源：雅典娜设计组
+遇难者中有来自葡萄牙和墨西哥的西南大学学生。两名来自安省的学生被送往医院，情况危急，但已经稳定。。
 
+事故发生在新墨西哥州以东约50公里的Andrews县，一辆小货车越过双车道公路的中间线，撞上一辆载有的大学男子和女子高尔夫球队员的面包车。
 
-12：00-12：03
+当局稍后公布死者有：高尔夫球教练Tyler James, 26岁，来自新墨西哥州Hobbs；球员Mauricio Sanchez，19岁，来自墨西哥；Travis Garcia，19岁，来自德州Pleasanton；Jackson Zinn，22岁，来自科罗拉多州Westminster；Karisa Raines，21岁，来自德州Fort Stockton；Laci Stone，18岁，来自德州Nocona；Tiago Sousa,，18岁，来自葡萄牙。
 
-我告诉大家香港港币最终一定会彻底灭掉，香港的房地产和经济会一塌糊涂。深圳和香港的这个地震这一次刚才没跟你说完的是DAYAFTER，香港这个是很吓人的，香港只要有一次地震那就香港就成了死城了，但是这个地震原因在哪里？这肯定是自然现象。但是所有懂得地震专家都明白，你看到很多人已经发出了警告了说如果地球的就这个西板块，也就是说昆仑山的这个中间的板块儿，这个印尼和印度之间那个板块往北移的话这个可能是整个人类的大劫难，香港瞬间就没了！昨天在东京的7.7级地震和深圳的地震香港深度有感，真是我觉得是改天换地的时代还有即将到来的疫苗大灾难。战友们一定要记住你们是没有国家没有组织，你们有点啥事没有任何人救你们帮你们，从这次两年的冠状病毒看到了只有新中国联邦是不要你钱不要你命不让你双休的唯一！有时候直播让你脱点衣服唯一这就这点牺牲，冷一点儿是吧？就这点奉献的，大家以命相处的兄弟姐妹战友如果这个基地还不能让你活得快乐，还不能让你相处，这个人类上没有一个组织是适合你，没有一个宗教适合你！我们最后还要一起来为前线的染上病毒的8个战友啊正义小Sara，还有英喜的小小妹，老马两口子、卓玛还有文科，这个还有谁呀这文戈也染上了？天哪，文戈也染上了！还有兄弟姐妹们，还有我们的小王子也染上了！就在这儿前天我拥抱我没带口罩，结果他来送检测器完了拥抱了，我惨了我回到家就我被隔离了是吧，我回家带了口罩吃饭旁边吃去，然后今天来的时候又是检查，这个病毒一定要小心！再说一次吃青蒿素不要喝酒，安红差点要了自己的命，任何酒精都不能和青蒿素一起吃！兄弟姐妹们！但是青蒿素绝对治百病绝对治病啊！非常重要，太多例子，咱一起为他们祈福吧！
+遇难的还有来自德州Seminole县的Henrich Siemans，38岁，以及一名与他同乘小货车的13岁男孩。
 
-资料来源：[文贵3月17日大直播](https://gettr.com/streaming/p10fr57b127)
+受伤的两名加拿大学生分别是来自密西沙加的Dayton Price，19岁，以及来自Amherstview的Hayden Underhill，20岁。两人都已被直升机送往医院。
 
-*发布：wenly*
+Underhll的哥哥Drew说，他们的父母正在飞往德克萨斯州的飞机上。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+“冰球一度是他生活中的重要部分，但他真正热爱的是高尔夫，”Drew Underhill说，“他的情况还好。”
+
+墨西哥高尔夫联盟在网上向死者中的19岁墨西哥学生Mauicio Sanchez的亲人表示哀悼。
+
+高尔夫球队成员Jasmin Collum原本计划参加比赛，但在最后一刻决定去休斯敦看望父母。她的母亲说：“我们认识车上的所有人，基本上整个球队都不在了，或者进了医院。”
+
+美国国家运输安全委员会发言人Eric Weiss说，该委员会周三向事故现场派出了一个调查小组。
+
+这支高尔夫球队当时乘坐的是一辆2017年的福特Transit面包车，事发时正拖着一辆拖车，与卡车相撞后，两辆车都起火了。他说，两辆车在一条限速为每小时75英里(120公里)的双车道柏油路上相撞，但调查人员尚未确定两辆车的行驶速度。
+
+西南大学是一所私立基督教学院，位于新墨西哥州的Hobbs，靠近德克萨斯州的州界线。
+
+周三，在球队训练的校园附近球场摆放了鲜花、高尔夫球和手工制作的标志，上面有一个十字架和首字母USW。
+
+Rockwind社区经理Ben Kirks说：“这是我们为球员和教练所能做的。”
+
+“这些孩子都是很棒的孩子，他们是很棒的社区成员。”
+
+新墨西哥州州长在脸书上表示，对失去的生命感到“深切悲痛”。
+
+“这是一场可怕的事故。在我们等待当局进一步消息的同时，我为社区和所有遇难者的亲人祈祷。”
+
+德克萨斯州州长也表达了同情：“我们与那些在昨晚发生的致命车祸中过早失去生命的人的亲人们一起哀悼。”
+
+球队当天在达拉斯以西约505公里的Midland College学院参加高尔夫球锦标赛。
+
+校长Quint Thurman在一份声明中说”“我们仍在了解事故的细节，但得知我们的学生和他们的教练失去了生命，我们深感悲痛和悲痛。”校方在推特上表示校园内将提供咨询和宗教服务。
+
+来源：https://www.cp24.com/sports/2-university-golfers-from-ontario-in-critical-condition-after-texas-crash-that-killed-9-people-1.5822312
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
