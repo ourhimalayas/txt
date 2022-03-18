@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 5:01 PM (UTC)`
+
+
+![img](https://media.gettr.com/group17/liveorigin/2022/03/18/17/664263a7-51fd-5d16-2dc8-f520f7515b5e/db77deaeeaadf94601c75dae84bb7948.jpg)
+
+---
+
 `@miles 3/18/2022 4:37 PM (UTC)`
 
 3月18号：刚开完会！这会儿特别想直播，特别特别想和战友聊聊天。https://gettr.com/post/p10lj6qf5fe
@@ -147,13 +154,6 @@
 
 3/17/2022 Miles Guo: The West has realized that they should seize the overseas state-owned assets of the CCP ASAP. Changpeng Zhao will be finished, but the Himalaya Coin will be the cleanest and greatest digital currency. Many Hong Kong people have bought the Himalaya Coin recently. Xi daydreams that the COVID vaccine disaster and worldwide financial collapse will bring the CCP its best moment, which, however, will become Xi’s nightmare.<br/><br/>3/17/2022 文贵直播：西方意识到要尽快查封中共在海外的国有资产；赵长鹏会完蛋，喜币将成为全世界最伟大、最干净的币，最近港人大量买喜币；习幻想疫苗灾难和世界金融崩溃将带来中共最美好的时刻，但这却会成为他的噩梦<br/>
 ![img](https://media.gettr.com/group40/getter/2022/03/18/01/a74a1afb-04ae-95e3-3fde-5e4630a070c5/out.jpg)
-
----
-
-`@miles 3/18/2022 12:49 AM (UTC)`
-
-3/17/2022 Miles Guo: It is recommended that the US pass legislation after this May to demand all the information about the virus from the CCP, otherwise the US should impose economic sanctions on the CCP as it did on Russia and seize the CCP's assets overseas.<br/><br/>3/17/2022 文贵直播：建议美国在今年五月份以后通过立法要求中共提供所有关于病毒的信息，否则将像对待俄罗斯一样对中共进行经济制裁，并查封中共在海外的资产<br/>
-![img](https://media.gettr.com/group38/getter/2022/03/18/00/2b02ae0b-081c-e99e-2620-1c33e63a75e0/out.jpg)
 
 ---
 

@@ -2,38 +2,27 @@
 ---
 
 
-## 简述阿拉伯之春及颜色革命
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2187218/)
+## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月16晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2187246/)
 
-作者：香草山写作组 静言
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV-3.jpg)
+
+文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年3月16晚](https://gnews.org/zh-hans/2177664/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2010年底开始，突尼斯一名小贩抗议警察执法而自焚，引发了该国各行各业群起抗议政府的一场茉莉花革命，以致阿拉伯世界人民效仿，纷纷起义推翻原政权，导致一个新中东的诞生，被称阿拉伯之春运动。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-4.jpeg)
-
-从当时外部环境分析，1990年代，苏联垮台后，在中亚和东欧等国家，开始举行全国选举。但由于不透明或选举舞弊，引发人民大规模抗议。这一系列以非暴力形式推翻专制政权的民间运动称为颜色革命，其典型代表是乌克兰的橙色革命，用橙色与共产革命的血腥红色加以区别。
-
-另外，2008年西方经济危机对中东地区经济产生负面影响，尤其这些靠石油出口的阿拉伯国家，石油下跌对经济造成了沉重打击。经济不振，失业率升高，社会财富分配不公，民生凋敝，人道危机加剧等，引发起人民强烈的不满情绪和变革诉求。
-
-中东及北非多个国家长期遭受专制政权和家族统治，政府贪污腐败，侵犯人权，政治体制僵化，领导人长期甚至终身执政，不思改革，政治经济分配不透明等问题困扰着这些国家。
-
-这些地区人口结构变化也是一大因素，大量受过一定教育、熟谙网络且对现状不满的年轻人，站出来表达对政府的诉求。现代移动通讯技术和互联网，社交媒体在其中起到了重要的作用。
-
-在短短几个月内，埃及推翻了时任总统穆巴拉克長达30年的政权，利比亚前领导人卡扎菲被击毙，也门政权倒台，敘利亚陷入內战，巴林政府改组，阿拉伯之春推翻了包含突尼斯在內的6个专制独裁者。其他阿拉伯国家如阿尔及利亚，约旦，沙特，伊拉克，阿曼等国也都受到不同程度的影响，陆续发生抗议示威活动，迫使多国政府作出变革。
-
-阿拉伯之春很快延烧至中东以外的欧亚、美洲等地，如2011年2月的中国茉莉花事件，2011年9月的美国占领华尔街运动，希腊，马来西亚，哈萨克斯坦等国也出現大規模反政府示威游行。其对现代社会的民主民权运动产生了更广泛更深远的影响。
-
-参考链接：
-1. [阿拉伯之春](https://zh.wikipedia.org/wiki/阿拉伯之春)
-2. [阿拉伯之春](https://zh.gov-civ-guarda.pt/arab-spring)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
-
-总编：宁文静
-编辑：Jack Li文阳
-审核：Jack Li文阳
-校正/发稿：谐趣园
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

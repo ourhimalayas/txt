@@ -2,44 +2,35 @@
 ---
 
 
-## 韩国船只向朝鲜巡逻艇鸣枪示警
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2187382/)
+## 现在骗局被揭穿
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2187493/)
 
-***评论：**朝鲜问题的实质也是因为有中共在其背后的资金支持，驱使他不失时机地窜出来刷一下存在感。中共是一切灾难的根源，醒醒吧，全世界爱好和平的人们，只有消灭中共才能拯救全人类。*
+文编：Hima
+听写：叮叮
+视频：七哥
 
-据《Washington Examiner》记者：Christopher Hutton，2022年3月8日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2039-e1647620226691.png)图片来源：网络
-一艘韩国海军舰艇在朝鲜巡逻艇突破其边界后向其鸣枪示警。
+2022-03-15直播摘录
 
-韩国人据官员报道，周二上午，这艘朝鲜船只越过朝韩边界后，韩国海军舰艇开火。事件发生的同一天，韩国当局扣留了第二艘越过边境的朝鲜船只。
+香港就叫国际金融城市它所仰赖生存下唯一的手段。那么现在骗局被揭穿，为什么？战争到来了，香港的码头贸易、香港的所有的货币和金融贷款、金融工具，也就是对冲基金，这些基金作为国际上投资的对大陆的过桥城市，投资的主体——共产党快完了，你觉得靠它活着的人还能行吗？猪都没了那毛儿还能活着吗？那肯定没了。所以说这个时候猪都死了，毛儿肯定要堕落，它跌下2万点的时候什么概念？18000点，战友们，几乎剩下都是血汗钱。18000点里边的60%到70%还是共产党控制。
 
-根据韩国参谋长联席会议的一份声明，据报道在追赶第二艘的朝鲜巡逻艇在韩国鸣枪示警后朝鲜船只立即撤退。
+那么共产党现在整个它值多少钱呢？18000点大概在2万亿到1万8000亿吧，就这个概念。那么18000亿的几万家企业去掉共产党的剩下5000亿，也就4000亿到5000亿美元。我告诉你，香港跟美元的汇率挂钩的它的最低线它不能少于5000亿美元，因为它香港的GDP、香港的每年的政府盈利就是5000亿美元，低于5000亿了它就破产了，港币就不能了，所以它跌破两万点的时候，它就失去了和美元挂钩的香港的GDP的基础，就是你没有了。
 
-韩国海军将被扣船带到附近的码头。据韩国联合通讯社报道，该船七名船员中有六名穿着军装。
+这个是跟美元挂钩是5000亿是保证什么呢？港币7块7毛3，7块7毛3、7块7毛3，五千亿、五千亿，少于5000亿低于7块7毛3挂钩就不行了。现在还咬着，还咬着啊，共产党让香港还咬着美国这个“屎厥子”还不松口，这边喊着你咬着美国的“屎厥子”不松口啊。我老娘老骂人说：“你就是个死脑袋，咬着‘屎厥子’不撒口。” 就是明知人家是个“屎”你还咬着它干啥呢？你离了人家你活不了。现在共产党想往里再兑水，继续咬住美国这个“屎厥子”，但是它难在哪？就是刚才我一开始给你们爆料一样，韩主任说的话，还有见韩正的人说“快跑吧！” 习的身体出问题了！中国共产党的肌理出问题了，共产党的经济出问题了。而且现在是要跟乌克兰和俄罗斯这场战争没有人能活过去。所以现在有朋友凡是说这话都是好朋友，快跑吧！人吃人的社会来了！
 
-虽然两国之间的小规模冲突并不少见，但这是自两国于 2018 年签署缓和紧张局势的军事协议以来，朝鲜军舰首次越过既定边界，退休的韩国中将 Chun In-bum告诉美国之音。“这是一个接触然后离开的事件。”
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-该事件与周二韩国大选同时发生。虽然朝鲜试图在其南部邻国选举的同时引发政治紧张局势，但全认为这次海上事件可能是巧合。
+**关注我们**
 
-最近几周，朝鲜增加了军事活动。该国在过去两周内测试了两枚弹道导弹，并声称对其间谍卫星进行了“重要”测试。
+Discord 账号
 
-文章来源：[https://www.washingtonexaminer.com/news/south-korean-vessel-fired-warning-shot-at-north-korean-patrol-boat](https://www.washingtonexaminer.com/news/south-korean-vessel-fired-warning-shot-at-north-korean-patrol-boat)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-翻译：洛杉矶盘古农场 – Raul
+Gettr 账号
 
-校对：洛杉矶盘古农场 – Mike Li
-
-评论：洛杉矶盘古农场 – Wendy
-
-编辑：洛杉矶盘古农场 – Wendy
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

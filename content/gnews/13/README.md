@@ -2,36 +2,41 @@
 ---
 
 
-## 美国会政要赞同对中共支援俄罗斯进行制裁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2187283/)
+## 文贵先生盖特精要- 2022/03/18
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2187346/)
 
-作者：纽约香草山 侠肝义胆/纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据美媒3月15日报道，美国两党议员均表示，如果中共协助俄罗斯逃避美国和欧盟的制裁，他们将愿意支持对中共进行经济制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-18-上午11.45.46.png)
-美国会重量级参议员卢比奥认为，中共已经在协助俄罗斯逃避西方制裁。因为中俄是反西方民主的同盟关系，中共在背后帮助俄罗斯，就是为了双方共同主导和控制世界秩序。参议院少数党领袖麦康奈尔也表示，支持对中共和任何其他援助俄罗斯的国家施加压力，并进行必要制裁。国家安全顾问沙利文已向中共外交官直接发出警告，中共若协助俄罗斯将面临美国严厉制裁的后果。据悉，在当日，美国参议院两党派还罕见地一致通过了一项决议，谴责俄罗斯总统普京为战犯，并建议海牙国际刑事法院以及其他国家，针对俄罗斯入侵乌克兰期间所犯下的罪行进行调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2038.png)[盖特直播链接](https://gettr.com/post/p10mjhof85d)
 
-此前一天，美国太平洋空军司令巴维·巴赫警告中共，若无端攻击邻国，恐怕会催生太平洋版北约。来自喜马拉雅联盟委员会的可靠情报，中共国政府已经向美国政府承认了支持俄罗斯攻打乌克兰的立场。因此，分析人士认为，在中美罗马外交谈判彻底失败的背景下，美国国会一致要求对中共进行制裁的诉求很可能将付诸行动。
+- “九指妖”组织人员在大使馆门口闹事，警察带走闹事人员。
+- 俄乌战争中，中共国展现莫名“优越感”，世界认识到中共国协助俄罗斯侵占乌克兰。
+- 香港经济走低破二万点再反弹最终结局将崩盘，最近恒生指数让华尔街“震惊”、部分人“倾家荡产”。
+- 七哥某美国朋友曾询问三针疫苗接种后果，很不幸前天这位朋友在香港去世。香港97.6%感染新混合病毒均是接种过疫苗。
+- 乌克兰前线救援人员挨边十人感染病毒，情况不正常无直接证据被投毒，中共派人在营救帐篷附近“搞小动作”。
+- 七哥因睡眠不足等原因，眼袋明显变大，自身感觉良好。
+- 七哥全新电脑被骇客，全新手机迅速被骇客。
+- 单伟健代表的PAG利用非法收取信息联合多维网制造假证据出庭展示“证据”，继续在“作死”路上狂奔。
+- 油价飙升、全球供应链遭受重创。
+- 七哥某从事供应链生意朋友原价七千万美元购买的房子欲四千万美元出售。
+- 中东朋友发信息印证七哥爆料–五月份之前经济危机，一切罪恶源于中国共产党。
 
-参考链接：
-1.[Lawmakers Willing to Sanction China if They Help Russia](https://www.newsmax.com/newsfront/china-sanctions-russia-ukraine/2022/03/15/id/1061371/)
-2.[美將警告中國勿步俄後塵 攻擊鄰居恐催生「太平洋版北約」](https://news.ltn.com.tw/news/world/breakingnews/3859751)
-3.[美參議院罕見團結 無異議譴責蒲亭為戰犯](https://www.rti.org.tw/news/view/id/2127359)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+*听写：call me uncle*
 
-编辑：宁文静
-总编：宁文静
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+*校对 : 乐禧禧*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

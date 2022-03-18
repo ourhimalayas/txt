@@ -2,30 +2,54 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月18日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2187372/)
+## 中共病毒疫苗后的典型症状和可能的检验指标
+` 香草山醫療部` [轉載自GNews](https://gnews.org/zh-hans/2187478/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-6.jpg)
+**主讲**：文翡博士、Mike Yuan医生（长阔高深）
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-18.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2022/03/logo-5-768x103-2.jpg)
 
-视频参看：
-[2022.03.18早 《NFSC新闻》](https://gettr.com/streaming/p10lzsj28f3)
-[2022.03.18早《NFSC新闻访谈》](https://gettr.com/streaming/p10mc3j085d)
+**主持**： 文紫医生、玛丽雅  **记录**：Zion文恩
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+在2月20日的《医学视角》节目中，香草山医疗部的文翡博士和 Mike Yuan医生详细讲述了“中共病毒“疫苗的S蛋白导致各类病理征状的可能机制，以及可能的临床检验指标。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-2.png)
+一、 S蛋白可过度激活免疫系统。主要表现在：1、引起迟发固有免疫应答，这一特征与“长病程中共病毒”相类似；2，尽管在接种疫苗后的一段时间内，有限的细胞免疫和体液免疫可能会产生一定的保护作用，但是这一保护作用往往只能持续4至6个月；频繁地接种加强针，可产生类似慢性感染的症状，进而有导致T细胞耗竭的可能。已在某些接种疫苗后患者的血液病理样本中发现CD8+T细胞减少的现象。据推测，多剂疫苗后所出现的疱疹病毒复发、EB病毒复发、疲劳、发热、淋巴肿大、皮疹等现象，可能与之相关。Mike Yuan医生指出，临床常见的血常规检查、C反应蛋白、血沉(ESR) 等指标，可初步判断是否有免疫机能异常，仍需结合风湿筛查、抗O试验 (ASO)排除风湿病和溶血链球菌感染等因素。文翡博士和文紫医生补充道，现在已有一些生化实验室推出了“长病程中共病毒”和“中共病毒疫苗后遗症”生化化验项目，比如IFN-β, IFN-γ, IL-6，IFN-λ2/3, PTX3 等项目
 
-**更多资讯，更多关注**
-[纽约香草山农场NFSC-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场NFSC-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/免疫-1-scaled.jpg)
+
+二、 血栓、血小板减少症等血液疾病。体外实验发现，S蛋白可与凝血酶原结合，产生结构异常的血凝块，并具有较强的促炎活性。此外，中共病毒的患者血样中，纤维蛋白自身抗体在急性感染后长期存在。以上发现可能与接种疫苗后，老年或体弱人群出现不同程度的血栓有着密切的关系。文翡博士建议，在接种疫苗后的短期内，可进行凝血功能、D-二聚体等项目的筛查。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/血栓-1.jpg)
+
+三、 心血管症状。接种疫苗后，有些青年人群、老年人群出现了心肌炎、心包炎。尽管机制尚不明确，但在一些疫苗后心肌炎、心包炎患者中检验出了α-肌球蛋白抗体，以及肌钙蛋白升高等心肌酶谱的异常。另有一众患者症状主要是胸痛，气短还有心律失常。文翡博士指出，周围的朋友有感到左肩疼痛，有体位性的心律不齐，在站起来的时候能感受到心脏跳动，走一走就有点喘，还有些非特异性的，比如嗜睡，发热，膝盖和腿痛。文翡博士建议，在接种疫苗后可进行心肌酶谱、心电图、或超声心动图的检查。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/心脏-1.jpg)
+
+四、 内分泌紊乱。S蛋白可引起下丘脑的功能失调，导致某些经下丘脑、垂体调控的内分泌轴机能紊乱，进而干扰正常的经期或内分泌腺体的机能。已在一些接种两剂疫苗以上的人群中，出现了桥本氏甲状腺炎或格雷夫氏症，在女性接种者中，较为普遍地出现了月经迟滞的现象。因此，在接种疫苗一段时间后，应及时检查垂体、甲状腺、卵巢的功能。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/月经-1.jpg)
+
+五、 神经系统病变。Mike Yuan医生指出，尽管相关病理机制研究尚未清晰，但长病程中共病毒感染和中共病毒疫苗后遗症的患者中，普遍出现了神经痛、记忆衰退、认知功能下降、格林巴利综合征等神经系统病变。在过去一年，他所经手的有上述神经病变的患者中，绝大多数是注射了多剂“中共病毒”疫苗的。文翡博士推测，此类神经病变可能与S蛋白激惹固有免疫应答后，单核细胞异常极化所介导的炎性损伤相关；在一些重症患者中，脑脊液样本出现了抗髓鞘碱性蛋白抗体升高。神经科专家Mike Yuan医生指出，这些特异性的神经性病变，应在有经验的神经科医师诊断下进行个体化的治疗。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/神经-1.jpg)
+
+(本文为作者观点，不代表GNEWS立场)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2-2.png)
+
+校对/编辑/发稿：Zion文恩
+
+**更多信息，更多关注**
+
+[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 
