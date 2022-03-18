@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 12:59 PM (UTC)`
+
+2022.03.18 早《新中国联邦新闻访谈》俄罗斯和乌克兰 三大不可能；习一定会打台湾；若中共支持俄罗斯侵略，将为此付出代价；中共所谓“清零“政策，疫情情况；俄乌战争，西方国家真正在乎：经济、权力
+![img](https://media.gettr.com/group32/origin/2022/03/18/12/850e9d98-b0e1-0617-bc59-c74b13fe44d8/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/18/2022 12:29 PM (UTC)`
 
 2022.03.18早 《新中国联邦新闻》救援基地“儿童角”为孩子带来天真笑容  著名战地音乐家演奏新中国联邦国歌
@@ -147,13 +154,6 @@
 
 3/17/2022 Miles Guo: Here is the key intelligence I received this morning. The US and Europe are very likely to unfreeze Putin's personal assets, guarantee his personal safety, and refrain from personal attacks on Putin in exchange for a truce. Putin has taken his girlfriend and sons back to Russia, and it is possible that Putin will withdraw his troops.<br/><br/>3/17/2022 文贵直播：文贵今早获得了重要情报，美欧或将通过解封普京个人资产、保证其安全以及不进行个人攻击来换取停战；普京已将其女朋友和儿子接回俄罗斯，普京有可能撤军<br/>
 ![img](https://media.gettr.com/group44/getter/2022/03/17/21/42225730-78c7-48f2-1788-82af2f1b86d8/out.jpg)
-
----
-
-`@miles 3/17/2022 7:53 PM (UTC)`
-
-This is a local pharmacy in Poland. NFSC volunteers come here often to purchase medical supplies. After the lady heard that we were the new Chinese who came to help the Ukrainian refugees, she donated a box of hand sanitizers. Kindness spreads without borders. Thanks for her kindness!<br/>这是波兰当地的一家药店，战友们经常来这里购买医疗物资，当这位女药剂师得知，我们 是救助乌克兰难⺠的新中国人，她赠送了我们一箱医用消毒洗手液，善心无国界，谢谢她的爱心!
-![img](https://media.gettr.com/group19/origin/2022/03/17/19/3971197b-3a5e-d16f-2fa4-cc8d80afdd49/out.jpg)
 
 ---
 
