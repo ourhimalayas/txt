@@ -2,59 +2,56 @@
 ---
 
 
-## 州长玛丽·西蒙在纪念白金禧年时亲自会见了女王
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2187789/)
+## 接种疫苗的12岁女孩在睡梦中死于心脏病
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2187905/)
 
-作者：The Canadian Press
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/03/23_1P31Kb5_0.jpg)
-周二，加拿大总督拜见了英国女王，谈到了加拿大的历史书应该重写，以反映王室和原住民之间关系的事实。
+翻译       意大利达芬奇农场          小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-18-alle-16.31.50.png)图片来源：eventiavversinews.it
+皮埃特拉•伯劳考皮奥•阿格古伊拉( Piettra Procopio Aguiar )在睡觉时死于癫痫发作和心脏病发作。皮埃特拉的母亲希拉•伯劳考皮奥(Sheila Procopio )在社交媒体上宣布女儿死亡。从她的帖子可以看出，希拉仍然无法相信女儿突然悲惨的死亡。
 
-女王在温莎城堡用下午茶招待了总督玛丽·西蒙(Mary Simon)和她的丈夫弗雷泽（Whit Fraser）。王室的推特账号发布的一张照片显示，西蒙与世界上在位时间最长的君主鞠躬握手。
+“ 我们还不知道发生了什么！皮埃特拉一直是一个健康的孩子， 她从未有过我们所知道的任何神经或心脏问题。”希拉写道。
 
-总督府发表的一份声明称，西蒙会见了女王，并分享了“加拿大人对女王陛下今年白金禧年的良好祝愿”。
+“她可能在睡觉时癫痫发作， 心脏病发作，但这些只是假设。30天报告出来以后，我们会知道到底发生了什么，”她补充道。
 
-西蒙在声明中说：“很荣幸今天早些时候会见了女王伊丽莎白二世陛下。”
+以下是皮埃特拉母亲所写：
 
-“我们的女王在这些困难时期是如此的鼓舞人心，很荣幸与她分享了因纽特人的ajuinnata概念，它意味着永不放弃，也是我作为总督的工作指导。”
+她走了……但并不是永远……
 
-在接受CBC采访时，西蒙说，她向女王谈及许多。“过去的历史错误，以及我们需要如何改变加拿大的历史书籍，这样年轻人就可以了解真正的历史是什么，同时不必互相指责。
+我的舞者、同伴、知心朋友、那个鼓励我的人，我的太阳、我的力量、我的空气、我的生命……
 
-西蒙说，她觉得女王对影响加拿大的问题很了解，包括最近反疫苗命令抗议者占领渥太华。
+我无法呼吸、我的心好痛……好痛……
 
-西蒙谈到女王对封锁的反应时说：“我觉得她很难理解。”
+皮埃特拉就像彩虹宝贝一样来到我们的身边、在痛失双胞胎后，她给我们带来了欢乐！
 
-“这就像乌克兰危机一样，她觉得很难理解。”
+多么快乐！
 
-西蒙说，女王告诉她，她知道生活在一个被围困的城市里是什么感觉，空袭警报每时每刻都在响。
+她很可爱，对每个人都很友善，她与每个人都打招呼。
 
-西蒙说：”会谈非常温暖人心，她非常热情，非常犀利，谈论了很多，你知道，她自己的孩子和孙辈，以及我们在乌克兰面临的形势。这是她最担心的事情……(她)非常担心乌克兰人民将会发生什么。”
+她是一个特别的女孩，她醒来时唱着歌，总是很快乐。
 
-这是西蒙与女王的第二次正式会面，也是第一次面对面的会面。
+每个提到她的人都在谈论她的阳光，她的笑容，她的甜美……她是如此……
 
-总督夫妇周二还会见了威尔士亲王和康沃尔公爵夫人。
+这有多么难，我们多么想念她。我们多痛苦、我多么想念她的亲吻和拥抱……
 
-根据总督府的声明，总督夫妇参加女王登基60周年庆典的植树活动，并在3月17日离开伦敦前往阿拉伯联合酋长国、卡塔尔和科威特进行工作访问，
+我们与她的告别是：“ 晚安妈妈，祝福你，你与上帝同眠， 我爱你。”
 
-女王于2月20日公开宣布新冠病毒检测呈阳性后，已经恢复了亲自会晤。
+第二天早上， 当我跟她告别去上班，我去吻她， 她冰冷、僵硬、毫无生气……
 
-杜鲁多上周在英国与英国首相约翰逊就俄罗斯入侵乌克兰问题举行会谈时会见了英国女王。
+上帝呀， 这是我一生中经历的最大痛苦，我多么希望这一切都被删除。
 
-来源：https://www.cp24.com/news/gov-gen-mary-simon-meets-with-queen-in-person-as-she-marks-platinum-jubilee-1.5820536
+我祈求上帝赋予我承受这一切的力量……支持我的家人……我不想质疑上帝，为什么会发生这一切……
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+我只想感谢皮埃特拉的生命，我与她度过的每一天……我只与她待了几天……我本想与她待更长的时间……
 
-**关注我们**
+但要感谢这一礼物，这的的确确是一份礼物，她是在我生日那一天出现在我们的生活，问能为我们做什么，问我们是否都好，她亲吻并拥抱我们。
 
-Discord 账号
+哦！我的小女儿，我们多么想你！
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+一位网民问希拉她的女儿是否接种了疫苗， 她回答道：“ 是的， 我们应该等待报告结果。”
 
-Gettr 账号
+原文链接：[https://www.eventiavversinews.it/12-anni-muore-a-causa-di-un-attacco-di-cuore-nel-sonno-indagini-in-corso-per-stabilire-il-legame-con-il-vaccino/](https://www.eventiavversinews.it/12-anni-muore-a-causa-di-un-attacco-di-cuore-nel-sonno-indagini-in-corso-per-stabilire-il-legame-con-il-vaccino/)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑、上传： Xiao   baige
 
  
 
