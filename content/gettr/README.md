@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 5:25 AM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月17日第13天当日救援统计：<br/>巴士救援难民：47人<br/>Medyka救援站接待：约470人<br/>巴士发车：1次<br/><br/>累计救援总计：<br/>巴士救援难民：1672人<br/>Medyka救援站接待：约6186人<br/>巴士发车：33次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation report <br/><br/>Day 13 - Date: March 17, 2022 :<br/><br/>Refugees Rescued by Bus: 47 people<br/>Medyka Rescue Station Reception: about 470 people<br/>Bus Departure: 1 time<br/><br/>Total：<br/>Refugees Rescued by Bus: 1672 people<br/>Medyka Rescue Station Reception: about 6186 people<br/>Bus Departures: 33 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group18/getter/2022/03/18/05/eef23e76-3184-a352-1618-e37a5b40596a/eac50922e0b7326d62e1f2a855dbcb24.jpg)
+
+---
+
+`@miles 3/18/2022 5:16 AM (UTC)`
+
+3/17/2022 Miles Guo: Citizens of the New Federal State of China are using the NFSC coffee to deliver their messages from the bottom of their hearts to the refugees suffering from the war that we understand them, we love them, we are here for them, and we stick together!<br/><br/>3/17/2022 文贵直播: 新中国联邦人通过现磨的NFSC咖啡向饱受战火煎熬的难民们传递心声，我们懂你们、爱你们，我们为你们付出，我们在一起！<br/>
+![img](https://media.gettr.com/group38/getter/2022/03/18/05/27e3bd0f-9379-7646-b661-beca2c11c5da/out.jpg)
+
+---
+
 `@miles 3/18/2022 3:06 AM (UTC)`
 
 【Ukraine Rescue】03/16/2022 Newsweek correspondent in Poland Renata Kim expresses her gratitude to the New Federal State of China and the Rule of Law Foundation of providing humanitarian aid to Ukrainian people, wishing the New Federal State of China to overthrow the Chinese Communist Party dictatorship as soon as possible<br/><br/>【乌克兰救援】03/16/2022 Newsweek 《新闻周刊》驻波兰记者莉娜塔·金感谢法治基金和新中国联邦对乌克兰的人道救援，并祝愿新中国联邦早日推翻中共独裁政权
@@ -142,22 +156,6 @@ This is a local pharmacy in Poland. NFSC volunteers come here often to purchase 
 
 💥 March 15, 2022    #Krakow，Poland <br/>📍 At 1 am, the rescue members from Canada joined the rescue team to greet rescue buses. Fellow fighters prepared the banner of NFSC & ROLF to welcome nearly 150 Ukrainian refugees in Kraków, Poland. <br/>#NFSCrescue #ROLFrescue #ukrainehelp <br/><br/>📍 We are the NEW CHINESE people who are taking down the EVIL Chinese Communist Party  #CCP≠Chinese<br/><br/>#法治基金 #新中国联邦 #乌克兰救援<br/>2022年3月15日   波兰— #克拉科夫 Kraków <br/>📍凌晨1点，来自加拿大的战友加入了迎接三辆救援大巴的队伍，战友们准备了新中国联邦和法治基金的横幅迎接近150位乌克兰难民。<br/> <br/>📍我们是消灭邪恶中国共产党的新中国人！
 ![img](https://media.gettr.com/group5/origin/2022/03/17/15/fa322675-f538-dc58-2fe0-485f0a89a4d8/out.jpg)
-
----
-
-`@miles 3/17/2022 3:37 PM (UTC)`
-
-📍On March 13th, the NFSC members, who are taking down the evil Chinese Communist Party, were in Poland. <br/>💙The NFSC front-line rescue team drove nearly 600 KM back and forth, transporting rescue supplies from Kraków to the Medyka rescue outpost;<br/>💙Fellow fighters helped lift dozens of kilograms of engines to get off the car to ensure the local power supply; <br/>💙The NFSC & ROLF rescue tents are filled with all kinds of supplies, sending intimate warmth to the stranded Ukrainian people who cross the border.<br/><br/>📍3月13日，消灭邪恶中国共产党的新中国联邦人在波兰克拉科夫<br/>💙新中国联邦前线救援战友当天来回驱车近600多公里，从克拉科夫运送救援物资到梅迪卡救援前哨站；<br/>💙战友们帮忙抬几十公斤的发动机下车，保证当地的电力供应；<br/>💙法治基金，新中国联邦的救援帐篷里放满了各类补给品，为跨越边境的乌克兰被困民众送去贴心的温暖<br/>#NFSCrescue #ROLFrescue #ukrainehelp <br/>#法治基金 #新中国联邦 #乌克兰救援 #前线快报
-![img](https://media.gettr.com/group10/origin/2022/03/17/15/a6f5989a-13f6-879f-ad45-456f349de6dc/out.jpg)
-
----
-
-`@miles 3/17/2022 3:19 PM (UTC)`
-
-❤️❤️Humanitarian Rescue Operation of ROLF and NFSC #NFSCrescue #ROLFrescue<br/><br/>1️⃣Frontline Express on March 13, 2022:<br/>At 1 am on March 13, the frontline rescue team greeted two rescue buses carrying 118 people in Kraków, Poland. All are women and children from the Ukrainian battlefield. The rescue team prepared hot coffee and food when greeting the buses, helped the refugees with their luggage, and led them to the train station.<br/><br/>2️⃣We are the NEW CHINESE people who are taking down the EVIL Chinese Communist Party! #CCP≠Chinese<br/><br/>💥💥💥24-Hour Emergency Rescue Support Team Contact: <br/>💌💌💌Email: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com <br/>☎️☎️☎️Phone (Call or Text): <br/>+1 720-657-6776 OR <br/>+1 719-224-4232 OR<br/>+48 508-532-712 OR <br/>+48 508-531-518
-![img](https://media.gettr.com/group39/origin/2022/03/17/15/cf33330d-91e6-83c6-317a-b249dcb8d3b7/839ebe8f1fd85b986446c05efc8f5a9d.jpg)
-> `@miles 3/13/2022 10:23 PM (UTC)`<br/>❤️In Kraków, Poland at 1 am on March 13,  the NFSC & ROLF Ukraine Rescue team greeted two rescue buses carrying 118 people (including a 3-day infant) , prepared hot coffee and food when greeting the buses, helped the refugees with their luggage, and led them to the train station. #NFSCrescue #ROLFrescue<br/><br/>📍We are the NEW CHINESE people who are taking down the EVIL Chinese Communist Party! #CCP≠Chinese<br/><br/>❤️法治基金和新中国联邦救援队于3月13日凌晨1点，在波兰克拉科夫迎接2辆载有118人（包括一个3个月大的婴儿）的救援大巴，在迎接大巴时准备了热咖啡和食物，帮难民们拿行李，引领她们去火车站。<br/><br/>📍我们是消灭邪恶中国共产党的新中国人 <br/><br/>💥24-Hour Emergency Rescue Support Team Contact: <br/>💌Email: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com <br/>☎️Phone (Call or Text): <br/>+1 720-657-6776 OR +1 719-224-4232 OR<br/>+48 508-532-712 OR +48 508-531-518
-![img](https://media.gettr.com/group32/origin/2022/03/13/22/866b6238-615d-298c-bc3d-f27c318d45aa/out.jpg)
 
 ---
 

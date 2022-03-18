@@ -2,21 +2,27 @@
 ---
 
 
-## 俄军炸毁马立波剧院！乌克兰前州长：130人获救
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2184014/)
+## 视频|中共国疫情“大跃进“ 香港黑暗时刻将至
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2184157/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3570066-PH.jpg)图片来源：三立新闻网
+制作：香草山视频部
 
-俄罗斯军队持续对乌克兰境内进行轰炸，乌克兰顿内茨克（Donetsk）前州长塔鲁塔今天表示，马立波市（Mariupol）一座戏剧院遭到轰炸后，躲在当中避难的民众陆续离开这座建筑物，至少130人获救。
+郭文贵先生在此前的大直播中，准确地预测香港恒生指数的起伏。3月16，郭先生发布盖特视频表示，恒生指数将抹平香港的百年基业，香港强积金也将因此化为泡影。针对近日深圳地震，香港震感强烈一事，郭先生爆料，早在1988年，中共已分析，香港将在2010-2035年间发生地震。香港建筑不设防震系统，一旦发生地震，对香港将是毁灭性的灾难。
 
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1086947)
+在国内，中共强力执行的“清零“政策，将导致大规模的人道灾难，甚至是大劫难。
 
-撰稿/发布：一叶知秋
+中共欺骗国民，置人民生死于不顾，而新中国联邦将让中国人在自由、民主、法治的社会里，享受安全、健康的生活。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+发稿：Daxia
+
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

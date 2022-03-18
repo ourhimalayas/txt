@@ -2,23 +2,20 @@
 ---
 
 
-## 视频|新中国联邦咖啡名扬救援营地
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2184104/)
+## 习二要干掉上海帮比普京干掉乌克兰都难
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2184174/)
 
-制作：香草山视频部
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-当地时间3月16日，据身处新中国联邦和法治基金在波兰梅蒂卡救援点的文耀战友回传的前线消息显示，新中国联邦救援营地再添一台由法治基金支援的专业咖啡机，为乌克兰难民、各国媒体人员和其他国际救援组织的义工带去了更多的温暖。
+*发布：陶子*
 
-据悉，自3月11日晚间起，新中国联邦的前线救援帐篷中就不间断地供应现磨咖啡；如今，新中国联邦咖啡已经在整个梅迪卡营地内人尽皆知：一杯杯现磨咖啡不仅给疲惫的难民们送去了及时的抚慰，也给各国记者和国际义工留下了深刻印象。
-
-前线战友表示，在当地寒冷艰苦的环境中，这些咖啡代表了新中国联邦人友好、温暖、专业以及维护和平的崭新形象，其更是新中国联邦与世界各组织建立良好合作关系的桥梁。与此同时，新中国联邦的口号——“我们是消灭邪恶中国共产党的新中国人”——将随着新中国联邦咖啡一起，深入每一位当地人员的内心。
-
-发稿：林礼
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

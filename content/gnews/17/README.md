@@ -2,88 +2,50 @@
 ---
 
 
-## 参议员卢比奥：中共国100%站在 普京后面
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2183750/)
+## 俄罗斯入侵乌克兰：“普京将寻找下台阶的机会”
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2183904/)
 
-参议员马可.卢比奥： 毫不怀疑 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click) 站在哪一边 他们100%站在 普京 [#Putin](https://twitter.com/hashtag/Putin?src=hashtag_click) 后面 他们宁愿世界不知道这一点，但这不会阻止他们尽可能多地帮助他（普京）
+素材：波士顿五月花Gina 文红
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-18-at-11.28.45-AM.png)图片来源：GETTY IMAGES
+**即使最残酷的战争也会有结束的一天。有时，就像1945 年一样，唯一的结果就是搏斗到你死我活。不过大多数情况下，战争会达成协议，虽然无法让所有人满意，但至少结束了流血冲突。**
 
+通常，即使在最残酷和最激烈的冲突之后，双方都会逐渐恢复他们旧有的、没那么敌对的关系。
 
+如果幸运的话，我们开始看到俄罗斯和乌克兰之间正在开始这个进程。
 
-> Have ZERO doubt about whose side [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) is on 
-> 
-> They are 100% behind [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> They would prefer the world not know this, but that will not stop them from helping him as much as they can
-> — Marco Rubio (@marcorubio) [March 17, 2022](https://twitter.com/marcorubio/status/1504587222015569920?ref_src=twsrc%5Etfw)
+愤慨，特别是乌克兰，对这场战争的愤慨将持续几十年。但双方都希望、并且需要和平：对乌克兰而言，城镇遭遇了猛烈的攻击；而在俄罗斯方面，则蒙受了人员和物资的重大损失。按照乌克兰总统的说法，俄罗斯此次的损失超过了在车臣两次惨烈战争的总和，不过这样的说法无法得以证实。
 
+但没有人愿意签署可能导致自己倒台的和平协议。
 
+对于俄罗斯总统普京来说，他正寻求挽回面子的方法。
 
-前国务卿迈克.蓬佩奥： 我担心拜登总统 [@POTUS](https://twitter.com/POTUS) 不会回答 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军费预算的增加，而是喋喋不休地将包容性作为我们军队的最高目标，这是建立一支不基于卓越和作战能力、而以政治灌输军队的准则 【转蓬佩奥发表在华盛顿时报文章：美国未来的安全态势必须阻止独裁统治的进军】
+**战争出路**
 
+乌克兰总统泽连斯基在外交上已经表现出非凡的技巧，为了摆脱俄罗斯的纠缠，他显然愿意说和做任何他自己和乌克兰人民可以接受的事。
 
+泽连斯基有个压倒一切的目标，就是确保乌克兰走出战争后仍然是一个团结、独立的国家，而不是俄罗斯的一个行政区。
 
-> I fear that [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) won't answer the increase in China’s military budget, but prattle about inclusivity as our military’s highest purpose, which is code for creating a military not based upon excellence & warfighting capacity but political indoctrination.[https://t.co/3HQOy8YGyk](https://t.co/3HQOy8YGyk)
-> — Mike Pompeo (@mikepompeo) [March 17, 2022](https://twitter.com/mikepompeo/status/1504579612822671361?ref_src=twsrc%5Etfw)
+对于普京来说，现在最重要的是他可以宣布胜利。即便他政府中人人都明白，俄罗斯在这次不必要的入侵中被打得头破血流；即便俄罗斯了解国际局势的大约两成民众都将明白，
 
+普京需要争取的是民众中其他绝大多数人的支持，他们更愿意相信国家电视台播报的内容，即便有那个特别勇敢的电视主编玛琳娜·欧夫斯安妮科娃（Marina Ovsyannikova）在电视直播节目中突然出现，告诉观众他们看到的都是宣传。
 
+那么，普京可以怎样从这场灾难战争中走出来，又让自己在大多数民众眼中看起来还不错呢？
 
-众议员迈克尓·麦考尔(众议院军事委员会资深成员）: [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 原本预计在三到四天内接管乌克兰，但 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 人民的反抗意志却出乎所有人的意料。 这就是为什么我一直在敦促拜登总统[@POTUS](https://twitter.com/POTUS) 帮助促成将 S-300 等远程防空系统运送到乌克兰。 时间就是生命。 【附麦考尔议员接受福克斯采访视频】
+**输赢胜负**
 
+但这些都只是容易做的部分。 更难做到的是想方设法实现泽连斯基和乌克兰急迫加入欧盟的想法。这也正是是俄罗斯同样迫切要制止的，尽管还是有办法可想。
 
+最让乌克兰难以接受的是，俄罗斯完全无视其签署的保护乌克兰边界的庄严国际条约，公然掠夺乌克兰的领土。
 
-> Putin was expected to take over Ukraine in three to four days, but will of the Ukrainian people have defied all expectations. That’s why I’ve been urging [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) to help facilitate the transfer of longer-range air defense systems like the S-300 to Ukraine. Time is of the essence. [pic.twitter.com/cTWlKP6ps3](https://t.co/cTWlKP6ps3)
-> — Michael McCaul (@RepMcCaul) [March 17, 2022](https://twitter.com/RepMcCaul/status/1504523255633354755?ref_src=twsrc%5Etfw)
+今天，乌克兰已经击退了如此猛烈的俄罗斯袭击，令普京的军队显得软弱无力。除非普京的军队能够占领基辅和乌克兰更多的领土，否则乌克兰将作为一个国家实体生存下去，就像芬兰在1940 年一样。
 
+失去克里米亚、失去乌克兰部分东部地区将是痛苦、非法和毫无公正可言的损失。但是，如果普京要想胜出，就必须使用比现阶段更有杀伤力的武器。就目前的情况来看，在第三个星期的战斗中，没有人会怀疑谁将是这场战争的真正赢家。
 
+参考来源：[俄罗斯入侵乌克兰：“普京将寻找下台阶的机会”](https://www.bbc.com/zhongwen/simp/world-60778860)
 
-众议员迈克·加拉格尔新闻办公室： 众议员加拉格尔提出了《保护我们的药品供应链免受中共国侵害法案》，该法案将结束美国在药品制造方面对 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的依赖。 从作者@mikeginsberg98 的文章阅读更多关于此法案的信息：（附文章链接） 【图片中内容： “#中共 曾经威胁过一次，要从美国扣留救生药物，如果我们认为他们不会再尝试这样做，那我们就是疯子。 国会需要一个积极的计划来保护我们关键的药品供应链并结束我们对 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的依赖。这是国家安全的当务之急，对许多美国人来说，是生死攸关的问题，” -加拉格尔议员说。】
+* * *
 
-
-
-> Rep. Gallagher introduced the Protecting our Pharmaceutical Supply Chain from China Act, which would end U.S. dependence on China for pharmaceutical manufacturing.
-> 
-> Read more about his bill from [@mikeginsberg98](https://twitter.com/mikeginsberg98?ref_src=twsrc%5Etfw) here: [https://t.co/XqtBLkWyr7](https://t.co/XqtBLkWyr7) [pic.twitter.com/FLcavWnyqm](https://t.co/FLcavWnyqm)
-> — Rep. Gallagher Press Office (@RepGallagher) [March 17, 2022](https://twitter.com/RepGallagher/status/1504535164805955587?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎.布莱克本： 亨特·拜登的笔记本电脑始终是真实的，但主流媒体和大科技公司却禁止人们谈论它。 【转纽约邮报报道：《纽约时报》的（最新）报道证实了亨特·拜登臭名昭著的笔记本电脑的存在】
-
-
-
-> Hunter Biden’s laptop was always real, but the mainstream media and big tech silenced you for talking about it anyway. [pic.twitter.com/GYxA7Oyrme](https://t.co/GYxA7Oyrme)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 17, 2022](https://twitter.com/MarshaBlackburn/status/1504538136017317893?ref_src=twsrc%5Etfw)
-
-
-
-美国务卿安东尼·布林肯： 我们不仅目睹了克里姆林宫领导的对 [#乌克兰](https://gettr.com/hashtag/%23%E4%B9%8C%E5%85%8B%E5%85%B0) 人民的残酷、暴力攻击，我们还目睹了一场真相与暴政的战争。 正如施瓦辛格[@Schwarzenegger](https://gettr.com/user/Schwarzenegger) 解释的那样，我们不责怪俄罗斯人民，(但) 我们需要你知道你的政府对你隐瞒了什么。 【转斯瓦辛格的推文：我爱俄罗斯人民。 这就是为什么我必须告诉你们真相。请观看和分享。（附视频）】
-
-
-
-> We are not just witnessing a brutal, violent Kremlin-led attack on the Ukrainian people, we are witnessing a war of the truth vs. tyranny. As [@Schwarzenegger](https://twitter.com/Schwarzenegger?ref_src=twsrc%5Etfw) explains, we do not blame the people of Russia, and we need you to know what your government is hiding from you. [https://t.co/QK8zhwsOnR](https://t.co/QK8zhwsOnR)
-> — Secretary Antony Blinken (@SecBlinken) [March 17, 2022](https://twitter.com/SecBlinken/status/1504534544761995266?ref_src=twsrc%5Etfw)
-
-
-
-比尔.格茨： 本周华盛顿时报 [@WashTimes](https://twitter.com/WashTimes) 内幕专栏：太平洋将军誓言美国对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对台湾的任何攻击将会作出强烈反应； 美国米格战斗机可以帮助乌克兰； 海军在朝鲜附近进行航母行动 【附专栏链接】
-
-
-
-> This week’s Inside the Ring column [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): Pacific general vows strong US response to any Chinese attack on Taiwan; US MiGs could help Ukraine; Navy conducts carrier ops near North Korea [https://t.co/Pc7c4elsqp](https://t.co/Pc7c4elsqp)
-> — Bill Gertz (@BillGertz) [March 17, 2022](https://twitter.com/BillGertz/status/1504514611692855296?ref_src=twsrc%5Etfw)
-
-
-
-参议员泰德·克鲁兹： 拜登害怕普京。这就是我们陷入困境的原因。 拜登的团队正在编造借口，不给乌克兰提供自卫的关键武器。他们在扯皮防御性武器和进攻性武器。事实上，乌克兰使用的所有武器都是为了自卫。
-
-
-
-> Biden is scared of Putin. That's what got us into this mess.
-> 
-> Biden's team is making up excuses not to give Ukraine key weapons to defend themselves. They talk about defensive weapons vs. offensive weapons. In truth, all the weapons Ukraine is using are to defend itself. [pic.twitter.com/ISCTurZA7C](https://t.co/ISCTurZA7C)
-> — Ted Cruz (@tedcruz) [March 18, 2022](https://twitter.com/tedcruz/status/1504637461271511040?ref_src=twsrc%5Etfw)
-
-
+*编辑&发布：Vicky*
 
  
 

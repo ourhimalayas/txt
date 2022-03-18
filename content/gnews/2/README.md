@@ -2,22 +2,21 @@
 ---
 
 
-## 樱花时政┃中日两国多地地震 灭共年天灾人祸频繁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2184109/)
+## 2025绝对没有中国共产党
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2184184/)
 
-作者：东京樱花团/神的带领
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1958.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.chinapress.com.my%2Fwp-content%2Fuploads%2F2021%2F03%2FJapan_Earthquake-210321-dy-b1-noresize.jpg&amp;imgrefurl=https%3A%2F%2Fwww.chinapress.com.my%2F20210321%2F%25E5%25AE%25AB%25E5%259F%258E%25E5%258E%)
-3月16日，日本续东北大地震11后的5天，东北部的宫城县又发生了6级强的大地震。整个日本都有不同的震感。而且据日本电视台报有一人抢救无效死亡，三人重伤，25人受伤。这次地震造成房屋道路的毁坏，新干线的轨道也有损毁。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-日本报道及时救助更积极，没有发生房倒屋塌埋人的场面，也没有部队做秀。要是在中共国不知会死多少人，会有多少人被活埋在豆腐渣楼房里。
+*发布：陶子*
 
-近期，中共国境内也是地震频发。3月14日广东惠州市惠东县海域发生4.1级地震，广州、深圳和香港震感强烈。3月17日新疆和田地区皮山县发生5.2级地震。3月17日甘肃张掖市肃南县发生5.1级地震。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-这个世界的天灾已经很恐怖了，但是共产党的病毒、疫苗、战争人祸更让人恐怖十倍。
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

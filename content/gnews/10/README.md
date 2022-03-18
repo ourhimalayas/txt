@@ -2,21 +2,20 @@
 ---
 
 
-## 【五月花讯】新中国联邦战友Nicole，在梅迪卡接受媒体采访
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2184035/)
+## 樱花时政┃日本政府宣布特例措施 允许无身份保证的乌克兰难民入境
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2184158/)
 
-2022年3月17日，新中国联邦战友Nicole，在梅迪卡国际救援基地，接受媒体采访。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1961.png)[图片来源](https://gnews.org/wp-admin/post-new.php#:~:text=Photos%3A%20Protesters%20around%20the%20world%20rally%20in%20support%20of%20Ukraine)
+日本内阁官房长官松野博一3月18日宣布了一项特列措施，为顺利接收因俄军入侵而导致的乌克兰难民，即使在日本没有亲属保证其身份的情况下，也将作为特例获准入境日本。并且签证会快速审核签发，也不需要新冠的阴性证明。
 
-自从2月24俄罗斯非法入侵乌克兰以来，新中国联邦立即开展针对乌克兰难民、同时包括在乌的华人、美国人、国际友人在内的一系列人道救援活动，在波兰梅迪卡口岸建立人道救援基地，受到国际社会和媒体的高度关注。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/C3293C91-E68F-4BAB-AC37-67D9AF61466F.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/8FFAF0A2-2EA1-4736-8C6C-725E0B4653DF.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/545F478B-2882-4DE5-A0A1-33DB613CABE9.jpg)
-* * *
+而且政府已经成立了一个由专门领导负责的特别工作组，将为乌克兰难民提供进一步的援助措施。
 
-*照片来源：前线战友*
+信息源：[身元保証なしで避難民の入国許可　政府、ウクライナで特例](text=%E8%)
 
-*图片处理：水涨船高*
-
-*编辑 /发布：吐纳*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/BF3AEDD4-FF84-4F36-87A8-BB46FFA95EFB.jpg)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

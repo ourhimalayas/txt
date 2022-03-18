@@ -2,23 +2,20 @@
 ---
 
 
-## 视频|俄乌战争预示着中共的灭亡
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2184113/)
+## 习二给美欧送大礼包，美欧和普京将达成协议
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2184191/)
 
-制作：香草山视频部
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-3月15日，郭文贵先生在大直播中揭秘称，中共国安部副部长马建被捕的原因在于，其掌握了韩正私生子女和非法财产的秘密。
+*发布：陶子*
 
-郭先生解释道，马建手里握有韩正在澳洲的情妇、私生子女和财产的秘密情报，再加上韩正本来就是孙力军、孟建柱和刘彦平等人的后台，因此，韩正早先授意孟建柱和王岐山抓捕马建。
-
-另一方面，郭先生提到，在俄乌战争刚刚爆发时，有一位已经逃至海外的战友曾询问过韩正此次战争的结果。对此，韩正表示，俄乌开战必将意味着中共的灭亡，因为习近平一定会借此机会攻打台湾，与普京一起走上不归路。
-
-发稿：林礼
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
