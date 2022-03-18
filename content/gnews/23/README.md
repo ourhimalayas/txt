@@ -2,28 +2,32 @@
 ---
 
 
-## 美国司法部起诉五名中共代理人
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2184503/)
+## 乌克兰登山界名人参军保家卫国 曾成功登顶圣母峰
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2184639/)
 
-作者：纽约香草山 – 雪梨
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-周三，美国司法部正式公布针对五名中共代理人发起的诉讼。这五名中共代理人被控非法跟踪、恐吓和压制在美异见人士。
+**撰稿：日本东京方舟农场   Miyali7768(文玉) **
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-37.jpg)
+据《中央社》3月17日报道，俄乌战争持续，乌克兰首位登上圣母峰的女性加雷（Irina Galay）自愿参军保家卫国。她指控俄罗斯总统普京企图消灭乌克兰的民族和文化，并强调乌克兰人斗志高昂，将坚持战斗直到战争结束。
 
-据悉，一名被告试图破坏一名美国退伍军人的美国国会竞选；另一位假借自己的身份，非法收集异见人士的信息，并传递给中共；其他三名被告策划破坏不同政见人士的艺术品。 助理总检察长Matthew Olsen在新闻发布会上表示，美国执法部门专注于调查中共及其代理人对美国的威胁和挑战，并强调中国人和华裔是中共罪行的受害者。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-17.jpg)图为乌克兰女子加雷（Irina Galay）（图片来自网络）
 
-链接：
+据报道，加雷原本打算今年春天到尼泊尔挑战安纳布尔纳峰（Annapurna），不料俄军在2月24日入侵，她决定离开首都基辅，加入乌克兰军队捍卫自己的国家。
 
-- [联邦检察官已指控五人涉嫌代表中国秘密警察跟踪、骚扰和监视美国居民](https://gettr.com/post/p10fan975fc)
-- [Five Individuals Charged Variously with Stalking, Harassing and Spying on U.S. Residents on Behalf of the PRC Secret Police](https://www.justice.gov/opa/pr/five-individuals-charged-variously-stalking-harassing-and-spying-us-residents-behalf-prc-0)
+加雷在接受德国《法兰克福广讯报》表示，普京发动的不是一般的战争，乌克兰人认为他正在进行种族灭绝，企图消灭乌克兰的民族和文化。
 
+加雷强调，普京不会在乌克兰罢手，这场战争其实是全欧洲的战争，乌克兰人民斗志高昂，团结起来抵御外侮，将坚持战斗直到战争结束。对于发动侵略的普京，她表示，所有独裁者的下场都一样。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+此外，加雷还说，自己不怕在这场战争中死亡，但对战争感到愤慨。她尤其佩服许多乌克兰的母亲，把孩子送到欧洲其它国家，跟她一样自愿留在国内参战。目前，加雷在乌克兰军队负责补给作业。
 
-总编/编辑：雪梨
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据悉，加雷现年33岁，2016年挑战圣母峰成功，成为第一位征服世界最高峰的乌克兰女性。去年她登顶世界第2高峰K2，再度写下乌克兰女性登山史，是登山界的名人。
+
+参考链接：
+[https://www.cna.com.tw/news/aopl/202203180016.aspx](https://www.cna.com.tw/news/aopl/202203180016.aspx)
+
+编辑：幽蘭自得
+总编：老孙
+校对发布：Linda
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

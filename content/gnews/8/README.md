@@ -2,44 +2,31 @@
 ---
 
 
-## 俄罗斯封杀BBC新闻网
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2184755/)
+## 中共国房地产巨头阳光城境内境外债同时违约
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2184877/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3 月 16 日（路透社）——俄罗斯当局周三封锁了英国 BBC 的网站，外交部发言人扎哈罗娃在 Telegram 帖子中表示，这只是俄罗斯对西方发动信息战的开始，莫斯科将对西方媒体采取更多报复措施。
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-202.png)
+据《大纪元》3月18日报道，中共国房地产巨头阳光城集团股份有限公司的境内境外债同时出现实质性违约。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-205.jpg)（图片来自AFP）
+据报道，中国建设银行3月16日发布公告，阳光城集团股份有限公司（简称“阳光城”）规模6亿人民币的中期票据“20阳光城MTN001”3月15日到期应付，但发行人未能按期足额支付利息或兑付本金，构成实质性违约。
 
-英国广播公司的俄罗斯服务网站也被封锁。该网站发布了一段视频，指导俄罗斯人如何通过 VPN 和应用程序继续访问媒体。 它呼吁读者下载 BBC 应用程序并在社交媒体平台上关注新闻网站。
+与此同时，阳光城控股股东福建阳光集团有限公司（简称“阳光集团”）公告，存续金额1.06亿美元的境外债券“YANGOG 12.5 02/20/22”本息实质违约，存续金额3亿美金的“YANGOG 12.5 01/04/24”利息实质违约，应付利息金额1875万美元。
 
-俄罗斯周三还阻止了对至少 31 个其他媒体网站的访问，在总统普京向乌克兰派遣军队后，俄罗斯网络镇压急剧升级。
+另据《中国基金报》报导，未来一年内，阳光城几乎每个月都有债券到期，控股股东阳光集团情况也类似，而且到期日更为集中。由于前述两只境外债券违约很可能触发其它离岸融资项目的加速偿还，3月11日阳光集团称正在评估资产和预期现金流，制定整体重组计划。
 
-法新社无法从国内访问 30 多家俄罗斯和外国媒体，这些网站都被俄罗斯列入了封锁名单。
+然而，阳光城在回复深交所问询函中称，公司可动用资金占账面资金比例不足1%，现金已经枯竭。
 
-位于以色列的两家俄语媒体9 TV Channel Israel 和 Vesti Israel也被封锁。
+另外，在美元债方面，3月18日本金2276万美元的“SUNSHI 10 1/4 03/18/22”也到期。目前阳光城存续美元债一共有8笔，合计规模22.18亿美元。
 
-覆盖俄罗斯北高加索地区的独立媒体网站也无法访问，乌克兰和爱沙尼亚的媒体网站也是如此。
-
-据报道，自从俄罗斯入侵乌克兰以来，俄罗斯限制访问越来越多的独立媒体，并阻止访问全球社交媒体巨头 Facebook、Twitter 和 Instagram。
+此前，阳光城2月7日已发布公告，因净利润大幅亏损，该公司主体信用等级被东方金诚国际信用评估有限公司下调评级展望为负面。
 
 参考链接：
+[https://www.epochtimes.com/b5/22/3/17/n13654087.htm](https://www.epochtimes.com/b5/22/3/17/n13654087.htm)
 
-- [Russia blocks BBC website, says it’s only beginning of its response](https://www.reuters.com/world/russia-blocks-bbc-website-says-its-only-beginning-its-response-2022-03-16/)
-- [Russia Blocks Access to BBC, Vows More Media Retaliation](https://www.themoscowtimes.com/2022/03/16/russia-blocks-access-to-bbc-vows-more-media-retaliation-a76964)
+总编：老孙
+校对发布：爱放飞
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-编辑/校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

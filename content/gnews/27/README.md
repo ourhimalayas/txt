@@ -2,51 +2,28 @@
 ---
 
 
-## 5名中共间谍被美国司法部指控，中共跨国镇压遭打击
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2184371/)
+## 欧盟通过数字货币监管新草案
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2184501/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16475846101.png)加州的艺术家陈维明(音译）创作了一个将中共国主席习近平的脸刻绘成一个中共病毒球蛋白的雕塑。陈维明的雕塑曾在加州展出，但在去年的一场火灾中被毁。（Getty图片）
-来自《每日邮报》2022年03月16日的报道，美国联邦检察官对五名男子提出指控，称他们是中共间谍，试图摧毁居住在美国的反共异议人士的生活。
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月14日，欧盟议会的经济和货币事务委员会以31票赞成、4票反对、24票弃权，通过了数字货币市场监管的框架草案。该草案包含数字货币的发行和交易，并承诺通过成员国之间的有效许可证，来确保相关企业在成员国之间全面通行。此外，协议中还包括一系列打击市场操纵、洗钱、恐怖主义融资和其他犯罪活动的措施。
 
-联邦政府周三公布的投诉显示，这些人——刘藩(Fan‘Frank’Liu)、马修·兹布里斯(Matthew Ziburis)、孙强(Quiang‘Jason’Sun)、王书君和林启明(音译)——参与了无耻和广泛的计划，旨在让反对中华人民共和国的美国居民闭嘴。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-29.jpg)
 
-在一起阴谋中，法院文件中指出林启明是中共国安全机构的成员，他雇用了一名私家侦探来收集一名还在继续批评中共政府的天安门广场事件抗议活动领导人的破坏性信息。尽管法庭文件没有指明受害者的身份，但一位接近调查的人士向《纽约时报》证实，林启明的目标是熊焱。
+这是欧盟具有里程碑意义的一个框架草案，它预示欧盟数字货币全面监管法案正在快速完善。
 
-熊焱的被指控的策划者试图找到任何有关他的财务或私人生活的破坏性信息，然后在没有发现任何线索后，尝试用妓女来诱骗他。据说，林启明甚至要求对熊焱进行暴力攻击或制造一起车祸，以使他消声。
+链接：
 
-同样，据NBC新闻报道，两名嫌疑人将目标对准了加州的艺术家陈维明（陈创作了一个将中共国国家主席习近平的脸刻绘成一个中共病毒球蛋白的雕塑）并设法在他的工作室安装了隐藏的摄像机和麦克风。陈维明的雕塑曾在加州展出，但在去年的一场火灾中被毁。
-
-其他阴谋还包括跟踪、骚扰和试图获取持不同政见者的个人信息，比如他们的护照和美国社会安全号码的副本。
-
-这些案件凸显出美国官员所称的中共政府在寻找、压制和威胁海外亲民主活动人士方面的日益积极的努力。
-
-美国司法部最高国家安全官员、助理总检察长马修·奥尔森(Matthew Olsen)在周三的新闻发布会上说：“全世界的专制国家感到有恃无恐，以至于超越其边界，恐吓或报复那些敢于公开反对压迫和腐败的人。这种活动与美国的基本价值观背道而驰。”他补充说：“当这种压迫的行为违反我们的法律时，我们不会在美国容忍它。”
-
-简评：
-
-中国共产党不像它自己宣传的那样伟光正，它的本质肮脏、卑鄙、丑陋、无耻至极。我们从共产党如何对待海外的异议人士的事件中就可以看出，中国共产党首先就是通过调查你的钱和私生活来寻找突破点，通过掌握你的个人隐私来威胁你，这就是中共伪政权的特征，它善于采用这种阴暗卑劣的手段来威胁反对它的异议人士。
-
-美国是法制国家，如果这些异议人士有违法行为，中共完全可以通过正规渠道，采取法律手段来维护侵害它权益的行为。但中共不会、不能、也不敢这么做。它们心里十分清楚，它们做的恶是不能拿出来放到阳光下的。
-
-我们新中国联邦的人已经走上了灭共的征途，并且一定会坚持到底，永不放弃。正如新闻报道中提到的那样，中国共产党为了维护自己的独裁统治，不会对任何人有仁慈之心，不会放过任何一个反对它的人。所以我们新中国人没有选择，只有消灭中国共产党，并且也只有这样才能解救十四亿中共国人民，才能让我们的下一代有健康、有安全，有美好的未来。
-
-新闻链接: [https://www.dailymail.co.uk/news/article-10621077/Five-Chinese-spies-charged-plotting-against-anti-Beijing-dissidents-US.html](https://www.dailymail.co.uk/news/article-10621077/Five-Chinese-spies-charged-plotting-against-anti-Beijing-dissidents-US.html)
-
-翻译/简评: kkoto(芬兰大灰狼)
-
-PR:Harvey（叶知秋）
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- [EU’s Sweeping Crypto Regulations Package One Step Closer to Ratification](https://www.coindesk.com/policy/2022/03/14/eus-sweeping-crypto-regulations-package-one-step-closer-to-ratification/)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+总编：飞虹
+编辑：雪梨
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

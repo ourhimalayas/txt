@@ -2,39 +2,45 @@
 ---
 
 
-## 2022/03/14 大药厂、疫苗公司会被起诉追责
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2184633/)
+## 4月1日起入境加拿大 无需出示病毒测试证明
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2184754/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/031308.jpg)[GETTR视频链接](https://gettr.com/post/p105tieaa61)
-**视频字幕**：
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+加拿大广播公司新闻获悉，加拿大联邦政府将于周四宣布，将在本月底前结束对完全接种疫苗的旅行者的入境前 中共病毒测试要求。
 
-**Naomi Wolf：**多德先生，你是说，因为（大药厂的）欺骗行为，他们不可能（被法律）豁免，你以前说的是这个意思。每一个辉瑞mRNA疫苗的受害者可以起诉辉瑞，这是你所预见的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-116.png)
 
-**Mr. Dowd：**不仅如此，如果欺诈成立，全世界与辉瑞和莫德纳签订合同的政府，合同都无效。按照判例法，当你与有欺诈行为的一方签订合同，合同自动失效，豁免也自动失效。不仅个人可以起诉，政府也可以起诉，由此产生的连锁反应令人难以置信。所以我说，我们现在要靠自己，因为这会使FDA、CDC和NIH倒闭，使许多政客的职业生涯葬送，全球的政府都会胆战心惊。这是个问题，大问题。
+知情人士证实，加拿大正在取消机场和陆路过境点的检测要求。卫生、交通和旅游部长将于周四上午举行新闻发布会，宣布边境措施的变化。
 
-**Naomi Wolf**：你似乎在说我们不需要政府，他们背弃了我们，没有做任何调查。太好了，我们不需要媒体，他们被大药厂和盖茨的钱完全腐蚀，没有揭露真相。我们现在看到他们不知所云，毫无帮助，你是说这些都会发生……
+目前，进入该国的旅客必须在飞行或抵达边境之前出示抗原或分子检测阴性的证明。
 
-**简评**：
+消息人士称，对完全接种疫苗的旅行者的检测要求将在 4 月 1 日之前取消。
 
-辉瑞公司的秘密文件解封后，如果欺诈罪名被判成立，全世界与辉瑞、莫德纳签订合同的政府和合同都会自动失效，豁免也自动失效。不仅每一个mRNA疫苗的受害者可以起诉辉瑞，政府也可以起诉，由此产生难以置信的连锁反应，FDA、CDC和NIH会因此倒闭，许多政客的职业生涯被葬送。人民会抛弃媒体和政府，因为他们帮助大药厂和盖茨等人谋财害命，屠杀人类。
+此举是在疫情大流行两年后开始的，随着旅行人数的不断增加，各省和地区结束了涉及疫苗护照、聚会和口罩的限制。
 
-疫苗护照可以停止，但是疫苗灾难一定会爆发。全世界一半以上接种了至少一针疫苗的人口会因此遭难，疫苗公司、大药厂、所有强迫疫苗的政府、公司和个人都会以殉葬的方式为自己的行为买单。
+消息人士称，联邦政府将继续对抵达加拿大的旅客进行随机测试，以识别和追踪变异毒株。
 
-*字幕：雨中漫步|听写：云岭|翻译：Roberts|校对：Blue|简评/文字整理/编辑：胖丁*
+周三，加拿大总理特鲁多在安大略省艾利斯顿发言称，没有明确检测制度何时结束，但建议将取消更多的病毒限制措施。
 
-* * *
+麦克马斯特大学传染病专家兼副教授表示，取消检测是明智之举，因为一旦奥米炕波及加拿大，这种疾病就会非常普遍，以至于在边境进行的检测基本上变得毫无意义。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+参考链接：
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+- [Federal government to end pre-arrival COVID testing for travellers entering Canada](https://www.cbc.ca/news/politics/federal-government-to-drop-pre-departure-testing-1.6386763)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
+编辑/校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

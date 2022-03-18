@@ -2,51 +2,28 @@
 ---
 
 
-## 波兰第二大广播电台ZET公开支持：中共不代表中国人
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2184462/)
+## 美国司法部起诉五名中共代理人
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2184503/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：纽约香草山 – 雪梨
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+周三，美国司法部正式公布针对五名中共代理人发起的诉讼。这五名中共代理人被控非法跟踪、恐吓和压制在美异见人士。
 
-整理/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-37.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-18_13-25-43.png)图片来源：郭文贵先生盖特视频截图
+据悉，一名被告试图破坏一名美国退伍军人的美国国会竞选；另一位假借自己的身份，非法收集异见人士的信息，并传递给中共；其他三名被告策划破坏不同政见人士的艺术品。 助理总检察长Matthew Olsen在新闻发布会上表示，美国执法部门专注于调查中共及其代理人对美国的威胁和挑战，并强调中国人和华裔是中共罪行的受害者。
+
+链接：
+
+- [联邦检察官已指控五人涉嫌代表中国秘密警察跟踪、骚扰和监视美国居民](https://gettr.com/post/p10fan975fc)
+- [Five Individuals Charged Variously with Stalking, Harassing and Spying on U.S. Residents on Behalf of the PRC Secret Police](https://www.justice.gov/opa/pr/five-individuals-charged-variously-stalking-harassing-and-spying-us-residents-behalf-prc-0)
 
 
-3月16日，在波兰梅迪卡难民援救中心，波兰第二大广播电台ZET采访了新中国联邦和法治基金志愿者妮可。当ZET的记者了解了新中国联邦和法治基金的理念后深表敬意。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-ZET的记者：“我想了解一下你们都提供什么样的帮助呢？”
-
-妮可：“我们是来自新中国联邦的成员。我们并非来自中共政府。我们致力于推翻中共政权，所以我们和中共政府不同。我们已经在这里几个星期了。我们所做的是为跨越边境的难民提供人道主义援助，特别是妇女和儿童。这里是整个难民中心最大的帐篷。那边是另外一个帐篷。我们平均每天接收500到1000名难民。这些难民大多数是妇女和儿童。你可以从帐篷里看到我们提供全天候后的志愿者服务。”
-
-ZET的记者：“我想知道你所说的运动的理念是什么？我认为你们想用自己的行动证明不是所有的中国人都支持俄罗斯和普京。因为中共及其政府在支持俄罗斯的入侵。”
-
-妮可：“中国共产党并不能代表中国人民。我们从未选举过中共作为政府。它们是独裁者。所以中共政府并不代表中国人民，而新中国联邦才能代表中国人民。因为同为人类，我们遵从和平、自由及法治的普世价值。这是为什么我们在这里给难民提供人道援助。我们跟乌克兰人民站在一起。我们也支持波兰人民打开边境的善举。新中国联邦人就像大家一样，我们热爱和平、自由和法治，我们和中国共产党完全不同。我们要铲除中共，中共是这场战争、全球灾难和人道危机的根源。这是为什么推翻中共是确保全人类和平，自由及法治的唯一途径，而不仅仅是为了中国人民。”
-
-ZET的记者：“你们的运动是否会形成一个政党？”
-
-妮可：“我们的使命是铲除中共，就好像你如何看待波兰的团结工会运动一样。”
-
-ZET的记者：“是的，那更像是一场运动，而非是一个政党。”
-
-妮可：“我们这个运动就是要打倒共产主义，就像你们当时为了帮助波兰人民获取自由和和平，以及生活在一个没有共产主义的社会中一样。这就和我们当下所做的事情一样。”
-
-妮可：“在您了解到我们的工作和理念后，您的感受是怎样的呢？
-
-ZET记者：“我非常感动。这是我第一次来到梅迪卡边境。说实话，我非常高兴波兰人们在全国范围内援助难民。我在这里呆了一个小时，看到所有的帐篷都是外国志愿者搭建的，比如说你们华人，还有意大利人、法国人和英国人。所以我真的很高兴。”
-
-采访结束后，这位ZET的记者在其[推特](https://twitter.com/rafalmizejewski/status/1504088603089162252?s=12)上公开报道“中国共产党不代表中国人。”
-
-资料来源：[郭文贵先生2022年3月18日盖特视频](https://www.gettr.com/post/p10jqfk681f)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+总编/编辑：雪梨
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

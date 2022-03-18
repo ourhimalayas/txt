@@ -2,26 +2,60 @@
 ---
 
 
-## 疯狂的习近平危矣
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2184641/)
+## 宝宝出生刚三天
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2184765/)
 
-撰稿：东京樱花团/深藏不露
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-124.jpg)
-图片来源于网络
+作者：纽约香草山教育部-蓝之灵（hortênsia)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+出生三天的宝宝
+什么也不懂
+不知战火残酷
+也不懂侵略者凶狠
+暖暖产房
+装满受了伤的人
 
-2022年3月17日郭先生大直播爆料：丁薛祥，朱学军，韩立平秘书，习近平都能控制？我才不相信呢！你怎么知道谁不会用手指甲往水里弹点啥呢？普京只要别疯狂，停战，欧洲会是大欧洲，美国更强大。然后习近平一定会打台湾。可能在打前他就会被灭掉。我不相信中国会有20大，即便有10%的概率，我不相信习近平能保住他的权力。2025，绝对没有共产党。这场战争，最大的受益者，除了美国，就是我们新中国联邦人！
+救助的巴士
+来自新中国联邦
+妈妈带着宝宝逃离
+来到了波兰边境
+这里的环境好安静
+没有浓烟
+也没有炮声
+通过长长队伍
+来到了温暖大帐篷
+妈妈喝到了热水
+宝宝吃到了奶水
 
-中共已经没有20大，即使有10%的可能有20大，也不会是习近平掌权。很有可能习近平被内部发动政变干掉，然后江泽民、曾庆红重新掌权！但是，最终他们也逃不了病毒疫苗的责任，逃不掉爆料革命的揭露，后面很可能与新中国联邦谈判，他们和平交出政权换取家族和部分财产的平安。相信以曾庆红为代表的江家帮比习近平有智慧的多的多的多，会看清国际形势会和平的放弃权力，让中国人真真正正拥有一人一票的选举权！！
+片刻的从容
+片刻的安宁
+享受着关怀和温情
+前路茫茫
+不知去向何方
+帐篷里休憩
+积蓄新的力量
+坚强的妈妈
+没有哭泣
+眼泪不属于勇敢的乌克兰
+只希望
+勇敢的爸爸
+早日赶跑侵略者
+妈妈带着宝宝
+回家
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2545.jpg)
 
-[2022年3月17日 文贵大直播：](https://gettr.com/post/p10fr57b127)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
+- 审核/编辑/发稿:qiutian（邱甜）
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

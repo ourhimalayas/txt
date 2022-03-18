@@ -2,8 +2,8 @@
 ---
 
 
-## 20220317郭文贵大直播 ：现在的中国必将解体，香港台湾新疆西藏等地会发展成各自独立的新中国联邦体制，与世界和平相处
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2184777/)
+## 20220317郭文贵大直播 ：新中国联邦华丽地以人道主义形象走向了世界的政治舞台
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2184919/)
 
 作者：东京樱花团小视频组
 
