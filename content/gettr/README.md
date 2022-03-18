@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 2:21 PM (UTC)`
+
+【Ukraine Rescue】03/18/2022 Peter, the owner of the Polish Car rental company, has been participating as a volunteer in the rescue operations of the New Federal State of China.<br/><br/>【乌克兰救援】03/18/2022 波兰租车公司老板Peter一直作为志愿者参加新中国联邦的救援行动。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group42/getter/2022/03/18/14/76fca205-e0b8-ba66-1b44-fa3a70674752/out.jpg)
+
+---
+
+`@miles 3/18/2022 2:16 PM (UTC)`
+
+【Ukraine Rescue】03/17/22 Italian war-zone pianist Davide Martello has become a fellow fighter of the Whistleblowers’ Movement. When he comes to the NFSC rescue center, one of our volunteers plays him Mr. Miles Guo’s  ‘A Roar of The Vast Sea’,  then he performs this song with his piano. <br/> <br/>【乌克兰救援】03/17/22 战地钢琴家Davide Martello已然成为了爆料革命的战友。当他来新中国联邦救援营地时，有我们的志愿者给他播放了郭文贵先生的歌曲《沧海一声啸》，于是他用钢琴演绎了这首灭共歌曲。<br/><br/>
+![img](https://media.gettr.com/group19/getter/2022/03/18/14/9817ae46-5650-6682-3574-c3cc065d31e5/out.jpg)
+
+---
+
 `@miles 3/18/2022 1:29 PM (UTC)`
 
 <br/>3月18号：尊敬的战友们好……共产党和俄罗斯的生死相依的关系什么时候完球蛋！世界的经济危机什么时候是最坏的时候？香港病毒的感染率，和死亡率．成了世界之谜！
@@ -140,20 +154,6 @@
 
 3/17/2022 Miles Guo: What kind of scheme did Wang Huning plot for Xi Jinping? Xi is waiting for the outbreak of the COVID vaccine disasters in May, when the US will be facing an influx of refugees from all over the world. Xi wants to take down the US with COVID vaccine catastrophe and refugee crisis<br/><br/>3/17/2022 文贵直播：习近平在王沪宁的撺掇下打的是什么算盘？习在等待5月美国爆发疫苗灾难，赌的是到时候全世界的难民都会涌入美国，习打算用疫苗灾难和难民潮打倒美国<br/>
 ![img](https://media.gettr.com/group16/getter/2022/03/17/22/a4101fab-c5ad-afc6-3814-a3e2235716b5/out.jpg)
-
----
-
-`@miles 3/17/2022 10:22 PM (UTC)`
-
-2022年3月17日: 法治基金,法治社会捐款留言精选集<br/><br/>法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>March 17,2022 Rule of Law Foundation and Society donors messages collection <br/><br/>The Rule of Law Foundation and Society team heartfully thank all of our supporters and donors！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
-![img](https://media.gettr.com/group39/getter/2022/03/17/22/ed2345a6-3ad9-ebec-120d-ce9b7b07962b/out.jpg)
-
----
-
-`@miles 3/17/2022 9:58 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-17
-![img](https://media.gettr.com/group4/origin/2022/03/17/21/169404ec-fb6a-687b-a00d-381216c435b5/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
