@@ -2,49 +2,44 @@
 ---
 
 
-## 2022/03/14 俄乌战争继续，城市断水断电，35人死亡
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2184669/)
+## 俄罗斯封杀BBC新闻网
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2184755/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/031309.jpg)[GETTR视频链接](https://gettr.com/post/p105ql46bff)
-**视频字幕**：
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3 月 16 日（路透社）——俄罗斯当局周三封锁了英国 BBC 的网站，外交部发言人扎哈罗娃在 Telegram 帖子中表示，这只是俄罗斯对西方发动信息战的开始，莫斯科将对西方媒体采取更多报复措施。
 
-**（NBC晚间新闻）画外音**：过去24小时内，战争正向西推进。俄罗斯用30枚巡航导弹攻击乌克兰最著名的军事基地。乌克兰官员说，大多数导弹被击落，造成35人死亡，至少134人受伤。五角大楼证实没有美国人被杀，（俄罗斯）试图切断乌克兰从西方获得武器供应。用于北约军事演习的庞大训练设施在危险中靠近波兰边境。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-202.png)
 
-**沙利文**：我们将保卫北约的每一寸领土。
+英国广播公司的俄罗斯服务网站也被封锁。该网站发布了一段视频，指导俄罗斯人如何通过 VPN 和应用程序继续访问媒体。 它呼吁读者下载 BBC 应用程序并在社交媒体平台上关注新闻网站。
 
-**画外音**：20公里外，空袭警报在第二天清晨打破了这个西部城市的安全感。
+俄罗斯周三还阻止了对至少 31 个其他媒体网站的访问，在总统普京向乌克兰派遣军队后，俄罗斯网络镇压急剧升级。
 
-**Molly（现场记者）**：利沃夫一直是相对安全的避难所。它一直是逃离东部暴力的人们的目的地，这里是人们离开乌克兰前往波兰或欧洲其他地方的出发点。不过在过去的几天里，对于难民、居民和城市内的任何人来说，留下的风险系数开始发生变化。
+法新社无法从国内访问 30 多家俄罗斯和外国媒体，这些网站都被俄罗斯列入了封锁名单。
 
-**利沃夫居民**：我感觉事情有变。现在的乌克兰没有安全的地方，因为你在与一个可以把导弹射向任何欧盟首都的国家交战。
+位于以色列的两家俄语媒体9 TV Channel Israel 和 Vesti Israel也被封锁。
 
-**画外音**：在北部猛烈的炮击中，在首都内部，人们看到泽连斯基总统走到一家军事医院，向受伤的士兵颁发总统奖章。在东南部，被围困的马利奥波尔市的局势日益严峻，该市断水、断粮、断暖、断电已超过一周。一支载有100吨援助物资的车队正在路上，仍然在城外50公里处。但其他地方的人道主义走廊似乎还在发挥作用。泽连斯基说，在过去几天里，随着俄罗斯军队在东部取得进展，已有1250人被疏散。乌克兰人在抗议占领。但在利沃夫，一个城市正在凝聚。随着战火的逼近。63岁的米洛斯拉夫，他从未想过会再拿起枪。但我们会保护我们的城市，他说。我记得如何射击杀人。
+覆盖俄罗斯北高加索地区的独立媒体网站也无法访问，乌克兰和爱沙尼亚的媒体网站也是如此。
 
-**Kate**：莫莉现在从利沃夫加入我们。莫莉，今晚有一些关于切尔诺贝利核电站的消息。
+据报道，自从俄罗斯入侵乌克兰以来，俄罗斯限制访问越来越多的独立媒体，并阻止访问全球社交媒体巨头 Facebook、Twitter 和 Instagram。
 
-**Molly**：凯特，对的。请记住，俄罗斯人仍然控制着那座工厂。四天前，它完全失去了动力。今晚，我们了解到，乌克兰专家团队已经修复了一条电力线。电力恢复了。
+参考链接：
 
-**简评**：
-
-过去24小时内，俄乌战争继续向西推进。在俄罗斯30枚巡航导弹的攻击下，35人死亡，至少134人受伤。利沃夫曾经是相对安全的避难所，随着战争的推进，风险系数在提高。63岁的利沃夫居民米洛斯拉夫，再次拿起枪加入了保卫城市的战斗。泽连斯基总统来到首都基辅的一家军事医院慰问受伤的士兵，并向他们颁发总统奖章。被围困的马利奥波尔市断水、断粮、断暖、断电已超过一周，救援车队被阻在路上。被俄罗斯人控制的切尔诺贝利核电站，四天前失去了动力，乌克兰专家团队已经修复电力。
-
-乌克兰在俄罗斯的炮火中，城市、基地被炸毁、人员伤亡惨重，但是总统和民众仍然在战斗，就连63岁的老人都重新拿起枪来加入战队。同仇敌忾，一致对外，不屈服不退缩，乌克兰已经打赢了这场卫国战争。
-
-*字幕：雨中漫步|听写：云岭|翻译：致良知|校对：Roberts|简评/文字整理/编辑：胖丁*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- [Russia blocks BBC website, says it’s only beginning of its response](https://www.reuters.com/world/russia-blocks-bbc-website-says-its-only-beginning-its-response-2022-03-16/)
+- [Russia Blocks Access to BBC, Vows More Media Retaliation](https://www.themoscowtimes.com/2022/03/16/russia-blocks-access-to-bbc-vows-more-media-retaliation-a76964)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+编辑/校正/发稿：海阔天空1
 
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

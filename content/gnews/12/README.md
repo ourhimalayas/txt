@@ -2,28 +2,16 @@
 ---
 
 
-## 中日财经爆┃日本冻结俄罗斯高官资产，又增加15人和9个团体
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2184623/)
+## 20220317郭文贵大直播 ：香港台湾未来与中国是“离而不分”，和平发展，符合各方的利益
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2184716/)
 
-撰稿：东京樱花团/闻雨
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-203.jpg)
-[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.azernews.az%2Fmedia%2F2022%2F03%2F08%2Fjapan_flag_220222.jpg&amp;imgrefurl=https%3A%2F%2Fwww.azernews.az%2Fregion%2F190400.html&amp;tbnid=gP0T93uOXxe2kM&amp;vet=12ahUKEwiOvO2Dhc_2AhXoTPUHHQu2DYoQMygEegUIARCQAQ.)
+作者：东京樱花团小视频组
 
-据《产经新闻》报道，3月18日，日本政府因俄罗斯入侵乌克兰而对其实施额外的经济制裁，其中包括俄罗斯政府官员和新兴寡头集团的富豪们共15人，以及9个团体，将冻结他们的资产。 存款协议和贷款等资金交换将受制于许可证制度。加上这次的新制裁，资产被冻结的个人和团体总数上升为95个。
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
-迄今为止，日本已经对包括总统普京在内的俄罗斯政府官员和俄罗斯中央银行，以及俄罗斯的盟友白俄罗斯总统卢卡申科发出了一系列的资产冻结。
-
-日本政府也开始加大力度配合国际社会，一起掐断独裁政府及他的帮凶的输血管。
-
-信息来源：
-
-#### [ロシア幹部らの資産凍結　政府、１５人・９団体を追加](https://www.sankei.com/article/20220318-CJCDUGUWOJNQ5B6DM454TSTJBQ/%20)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

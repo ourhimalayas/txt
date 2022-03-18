@@ -2,8 +2,8 @@
 ---
 
 
-## 20220317郭文贵大直播 ：香港台湾未来与中国是“离而不分”，和平发展，符合各方的利益
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2184716/)
+## 20220317郭文贵大直播 ： 中共为征服全世界等待疫苗灾难的到来
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2184813/)
 
 作者：东京樱花团小视频组
 
