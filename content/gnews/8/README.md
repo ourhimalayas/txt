@@ -2,25 +2,21 @@
 ---
 
 
-## 视频|中共推广石油人民币企图逃脱制裁
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2184375/)
+## 雅典娜时报-第236期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2184396/)
 
-制作：香草山视频部
+#### 《雅典娜时报》汇聚全球新闻时事
 
-3月16日，据相关媒体报道，在近期与沙特阿拉伯进行的谈判中，中共正在试图使用人民币作为部分石油销售和定价的结算币种。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/954183638772244500/155.png?width=807&amp;height=1201)![圖片](https://media.discordapp.net/attachments/825592691433668612/954183639204237352/155_7.png?width=807&amp;height=1201)
+*发布：陶子*
 
-报道提及，作为世界上最大的石油进口国和石油生产国，中共和沙特阿拉伯之间的谈判可能会破坏美元和欧元在此类交易中的主导地位。同时，有关人员也表示，中共此举意在扩大人民币在全球商品交易中的影响力。
-
-对此，郭文贵先生早先曾在直播中预警称，中共一直妄图在中东操纵战争，为此，其一定会将霍尔木兹海峡的石油运输路线切段，用以此报复美国对俄罗斯入侵乌克兰的经济制裁。在此种情况下，一旦世界的石油供应出现问题，以其为锚的美元地位就会动摇。
-
-但大多分析师认为，鉴于中共人民币有限的兑换性和流通性，其想替代美元和欧元成为国际主导货币的可能性接近于零。
-
-发稿：qiutian（邱甜）
-
-**更多资讯，更多关注
-[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
