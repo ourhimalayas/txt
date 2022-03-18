@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 3:24 PM (UTC)`
+
+❤️【Ukraine Rescue】March 16, 2022—Kraków, Poland<br/>💦At 2 am on March 16, the frontline rescue team greeted three rescue buses carrying 182 Ukrainian refugees and evacuated them to a local railway station or hotels arranged by Rule of Law Foundation.<br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>❤️【乌克兰救援】2022/03/16—波兰克拉科夫<br/>💦3月16日凌晨2点，前线救援团队迎接了三辆载有182位乌克兰难民的救援大巴，并顺利将他们疏散到当地的火车站或者法治基金安排的酒店。<br/><br/>💥💥💥24-Hour Emergency Rescue Support Team Contact: <br/>💌💌💌Email: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com <br/>☎️☎️☎️Phone (Call or Text): <br/>+1 720-657-6776 OR <br/>+1 719-224-4232 OR<br/>+48 508-532-712 OR <br/>+48 508-531-518
+![img](https://media.gettr.com/group3/origin/2022/03/18/15/ba5b3b15-b11c-ebfa-94e1-0a5d0e6bf50c/out.jpg)
+
+---
+
 `@miles 3/18/2022 2:54 PM (UTC)`
 
 叶钊颖-郝海东-飞飞 《大实话·第十四场》： “战争害人 战友救人 CCP是一切灾难的根源 只有灭共才能拯救人类 新中国联邦人会战斗到底。”   2022-03-18
@@ -147,13 +154,6 @@
 
 2022.03.17《The Fringe》 Episode 149
 ![img](https://media.gettr.com/group49/origin/2022/03/17/23/e8dd9d88-401c-c7d7-b86f-7bb92d417788/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/17/2022 11:01 PM (UTC)`
-
-2022.03.17 NFSC News   11-year-old boy fled Ukraine alone and reunited with family in Slovakia； Two Fox War Correspondents Killed in an Attack in Ukraine
-![img](https://media.gettr.com/group27/origin/2022/03/17/22/b7f4a98c-5d25-ab8a-103b-191f0636937f/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
