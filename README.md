@@ -15,107 +15,107 @@
 
 ---
 
-### [美國務院批准向英國出售導彈防禦系統](/content/gnews/1/README.md)
- ` 日本东京方舟农场`
-
-### [大直播后记：新联邦人绝无能力也不可能去搞政治](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [美在波兰部署陆基神盾系统](/content/gnews/3/README.md)
- ` 日本东京方舟农场`
-
-### [即便没有身份担保仍许可难民入境 日本政府为乌克兰开启特例](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [3/17/2022 文贵直播: 新中国联邦人通过现磨的NFSC咖啡向饱受战火煎熬的难民们传递心声，我们懂你们、爱你们，我们为你们付出，我们在一起](/content/gnews/5/README.md)
+### [3/17/2022 文贵直播: 曾庆红叫江西老家的人囤粮、抓农业，并暗示身边人卖掉中共国和香港的股票；曾庆红说俄乌战争的最大赢家是美国，中共却输得又快又惨；曾预测王岐山会栽在陈峰手里](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [三艘俄罗斯潜艇相继出现在北海道海岸](/content/gnews/6/README.md)
+### [3/17/2022 文贵直播：普京昨天被美国正式定为战犯，凡是和他沆瀣一气的都会完蛋！在全世界因憎恨普京、毛泽东、习近平而迁怒于中国人的时候，新中国联邦人以华丽的人道主义形象走上世界政治舞台，证明我们和中共完全不一样](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [西藏歌手才旺罗布被“自焚”](/content/gnews/3/README.md)
+ ` 日本东京方舟农场`
+
+### [日媒头条——第2期](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [著名战地音乐家演奏新中国联邦国歌](/content/gnews/7/README.md)
- ` NFSC News`
+### [美國務院批准向英國出售導彈防禦系統](/content/gnews/5/README.md)
+ ` 日本东京方舟农场`
 
-### [普京：心向西方的公民是 &#8220;叛徒&#8221; 暗示加强国内管束](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [大直播后记： 坚持内心的良知，不要在意别人的看法](/content/gnews/9/README.md)
+### [大直播后记：新联邦人绝无能力也不可能去搞政治](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [普萨基：中国拒绝谴责入侵 与其代表的一切背道而驰](/content/gnews/10/README.md)
+### [美在波兰部署陆基神盾系统](/content/gnews/7/README.md)
+ ` 日本东京方舟农场`
+
+### [即便没有身份担保仍许可难民入境 日本政府为乌克兰开启特例](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [法治基金乌克兰救援行动荣光亚洲](/content/gnews/11/README.md)
+### [3/17/2022 文贵直播: 新中国联邦人通过现磨的NFSC咖啡向饱受战火煎熬的难民们传递心声，我们懂你们、爱你们，我们为你们付出，我们在一起](/content/gnews/9/README.md)
+ ` 秘密翻译组-北美组`
+
+### [三艘俄罗斯潜艇相继出现在北海道海岸](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [著名战地音乐家演奏新中国联邦国歌](/content/gnews/11/README.md)
+ ` NFSC News`
+
+### [普京：心向西方的公民是 &#8220;叛徒&#8221; 暗示加强国内管束](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [大直播后记： 坚持内心的良知，不要在意别人的看法](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [普萨基：中国拒绝谴责入侵 与其代表的一切背道而驰](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [法治基金乌克兰救援行动荣光亚洲](/content/gnews/15/README.md)
  ` 扬帆枫叶快讯`
 
-### [戳破「不打平民」谎言　乌国43间医院遭无情战火轰炸](/content/gnews/12/README.md)
+### [戳破「不打平民」谎言　乌国43间医院遭无情战火轰炸](/content/gnews/16/README.md)
  ` 蓝莲花农场`
 
-### [波兰女药剂师赠送NFSC战友一箱洗手液](/content/gnews/13/README.md)
+### [波兰女药剂师赠送NFSC战友一箱洗手液](/content/gnews/17/README.md)
  ` 波士顿五月花农场`
 
-### [俄新闻审查致媒体人纷纷辞职并离开俄罗斯](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [俄侵乌致109名儿童死亡 美乌收集俄罪行证据](/content/gnews/18/README.md)
+ ` 波士顿五月花农场金融部`
 
-### [有声｜大疆被指对乌克兰无人机做手脚 暗助俄罗斯](/content/gnews/15/README.md)
+### [有声｜大疆被指对乌克兰无人机做手脚 暗助俄罗斯](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [《历史的今天》2022.03.18](/content/gnews/16/README.md)
+### [《历史的今天》2022.03.18](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [东芝开发的世界最小感应器](/content/gnews/17/README.md)
+### [东芝开发的世界最小感应器](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声｜中共转向 央视突报俄军巨大损失](/content/gnews/18/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [乌克兰救援前线报道3.18.2022：新中国联邦站在人类进步的一边](/content/gnews/19/README.md)
+### [乌克兰救援前线报道3.18.2022：新中国联邦站在人类进步的一边](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [【秘翻时评】白宫：今晚9时拜登将与习近平通话](/content/gnews/20/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [视频|喜交所见证F1传奇赛车手标志性的迈凯轮汽车交易，开启数字货币革命光明前景](/content/gnews/21/README.md)
+### [视频|喜交所见证F1传奇赛车手标志性的迈凯轮汽车交易，开启数字货币革命光明前景](/content/gnews/23/README.md)
  ` KarmaLabs`
 
-### [美国再次军售台湾以防中共入侵](/content/gnews/22/README.md)
+### [美国再次军售台湾以防中共入侵](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [多国谴责俄罗斯对平民避难处发动攻击](/content/gnews/23/README.md)
+### [多国谴责俄罗斯对平民避难处发动攻击](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乌克兰救援前线报道3.17.2022：3月15日打假彭博社](/content/gnews/24/README.md)
- ` 秘密翻译组-原创组`
-
-### [日本拟决定接收乌部分克兰避难者](/content/gnews/25/README.md)
+### [日本拟决定接收乌部分克兰避难者](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [韩正秘密去上海](/content/gnews/26/README.md)
+### [韩正秘密去上海](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国国土安全顾问警告中共，支持俄罗斯将面临严重后果](/content/gnews/27/README.md)
+### [美国国土安全顾问警告中共，支持俄罗斯将面临严重后果](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [速报┃泽伦斯基在日本国会的演讲已决定于6月23日举行](/content/gnews/28/README.md)
+### [速报┃泽伦斯基在日本国会的演讲已决定于6月23日举行](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [全方位制裁——欧航局冻结与俄罗斯火星研究项目](/content/gnews/29/README.md)
+### [全方位制裁——欧航局冻结与俄罗斯火星研究项目](/content/gnews/30/README.md)
  ` 澳喜特战旅Gnews`
 
-### [新罕布什尔州批准使用伊维菌素治疗中共病毒](/content/gnews/30/README.md)
+### [新罕布什尔州批准使用伊维菌素治疗中共病毒](/content/gnews/31/README.md)
  ` 银河歌舞厅`
 
-### [美国众议院赞成取消俄罗斯与白俄罗斯贸易最惠国待遇](/content/gnews/31/README.md)
+### [美国众议院赞成取消俄罗斯与白俄罗斯贸易最惠国待遇](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳宣布制裁俄罗斯11个实体和2名寡头](/content/gnews/32/README.md)
+### [澳宣布制裁俄罗斯11个实体和2名寡头](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花头条┃提防中共 亚太国家纷纷增购武器](/content/gnews/33/README.md)
+### [樱花头条┃提防中共 亚太国家纷纷增购武器](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新的录像显示了乌克兰城市马里乌波尔的真实破坏程度](/content/gnews/34/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [乌方表示停火协议达成妥协还需要时间](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
