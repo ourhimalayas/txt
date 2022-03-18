@@ -2,52 +2,34 @@
 ---
 
 
-## 宝宝出生刚三天
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2184765/)
+## 亚裔在纽约无故遇袭，嫌犯被控仇恨犯罪
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2184844/)
 
-作者：纽约香草山教育部-蓝之灵（hortênsia)
+作者：纽约香草山教育部 – Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-出生三天的宝宝
-什么也不懂
-不知战火残酷
-也不懂侵略者凶狠
-暖暖产房
-装满受了伤的人
+美国纽约州Yonkers市一名67岁亚裔女子被不认识的男子Tammel Esco尾随跟踪并趁其不备暴力殴打。
 
-救助的巴士
-来自新中国联邦
-妈妈带着宝宝逃离
-来到了波兰边境
-这里的环境好安静
-没有浓烟
-也没有炮声
-通过长长队伍
-来到了温暖大帐篷
-妈妈喝到了热水
-宝宝吃到了奶水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-100.png)
 
-片刻的从容
-片刻的安宁
-享受着关怀和温情
-前路茫茫
-不知去向何方
-帐篷里休憩
-积蓄新的力量
-坚强的妈妈
-没有哭泣
-眼泪不属于勇敢的乌克兰
-只希望
-勇敢的爸爸
-早日赶跑侵略者
-妈妈带着宝宝
-回家
+美国纽约再传亚裔女性被仇恨攻击事件，一名67岁亚裔妇女11日傍晚返家时，在公寓前遭到陌生男子狂揍猛踹、拳打脚踢超过125下，还被骂「亚洲婊子」等脏话，所幸妇人伤势稳定，男子也被逮捕。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2545.jpg)
+根据公寓的监视器画面，亚裔女子推开公寓1楼大门、推着推车进入大厅，当她拿出钥匙准备进门时，身材高大的非裔男子艾斯科突然从后头闯入大厅，举起右手重重地往女子的后脑打去，女子瞬间瘫软倒地，接着他两手左右开弓，一共揍了妇人125拳，外加7记猛踹，之后还向倒地的受害者吐痰。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+纽约州韦斯切斯特郡（Westchester County）检察官表示，妇人被打到脑出血、骨折，脸部破裂，头部及脸上也多处挫伤，所幸送医后伤势稳定。
 
-- 审核/编辑/发稿:qiutian（邱甜）
+艾斯科在攻击事件后已被捕，13日他被控二级伤害及二级谋杀未遂等罪名，不过昨14日韦斯切斯特郡地区检察官又加重他的罪名，将两项指控提升至仇恨犯罪（hate crime）。
 
+扬克斯市警察局说艾斯科前科累累，先前已经被逮捕过14次，还有多项被定罪的纪录，先前犯过的罪行包括刺伤别人等。 同栋公寓的住户沙巴杰（Sken Shabaj）形容受害妇人人缘佳，是个非常、非常好的人，有2名女儿，丈夫已经过世，生前是邮差。
+
+参考链接：
+
+- [Yonkers man hit with hate crime in ‘appalling’ attack on Asian woman](https://nypost.com/2022/03/14/yonkers-man-hit-with-hate-crime-in-attack-on-asian-woman/)
+- [Man arrested in violent hate-crime beating of Asian woman in Yonkers](https://www.youtube.com/watch?v=H0KWPqUBGUQ)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+编辑/校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
