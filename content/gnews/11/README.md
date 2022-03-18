@@ -2,27 +2,20 @@
 ---
 
 
-## 视频|中共国疫情“大跃进“ 香港黑暗时刻将至
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2184157/)
+## 视频|欧盟通过数字货币监管新草案
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2184169/)
 
 制作：香草山视频部
 
-郭文贵先生在此前的大直播中，准确地预测香港恒生指数的起伏。3月16，郭先生发布盖特视频表示，恒生指数将抹平香港的百年基业，香港强积金也将因此化为泡影。针对近日深圳地震，香港震感强烈一事，郭先生爆料，早在1988年，中共已分析，香港将在2010-2035年间发生地震。香港建筑不设防震系统，一旦发生地震，对香港将是毁灭性的灾难。
+3月14日，欧盟议会的经济和货币事务委员会以31票赞成、4票反对、24票弃权，通过了数字货币市场监管的框架草案。该草案包含数字货币的发行和交易，并承诺通过成员国之间的有效许可证，来确保相关企业在成员国之间全面通行。此外，协议中还包括一系列打击市场操纵、洗钱、恐怖主义融资和其他犯罪活动的措施。
+这是欧盟具有里程碑意义的一个框架草案，它预示欧盟数字货币全面监管法案正在快速完善。
 
-在国内，中共强力执行的“清零“政策，将导致大规模的人道灾难，甚至是大劫难。
-
-中共欺骗国民，置人民生死于不顾，而新中国联邦将让中国人在自由、民主、法治的社会里，享受安全、健康的生活。
-
-发稿：Daxia
-
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+发稿：文敬
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

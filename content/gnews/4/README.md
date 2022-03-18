@@ -2,8 +2,8 @@
 ---
 
 
-## 普京一定完了最多混个好死
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2184170/)
+## 习二在等待美国疫苗灾难到来
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2184235/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
