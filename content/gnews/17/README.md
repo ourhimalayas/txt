@@ -2,27 +2,35 @@
 ---
 
 
-## 莫德纳首席执行官疫情间卖出4亿美元自家股
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2185759/)
+## 瑞士银行家协会披露俄罗斯客户在瑞士存放约2000亿美元
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2185803/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-01-17t094714z1195135065rc2i0s9m2y44062992.jpg)小小瓶的冠病疫苗，让班塞尔成为大大的亿万富豪。（路透社）
-（早报讯）生产冠病疫苗的美国药厂莫德纳（Moderna）首席执行官班塞尔（Stephane Bancel），过去两年多的冠病疫情期间，总共出售了超过4亿美元的莫德纳股票，肯定晋升为亿万富豪行列。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-根据莫德纳过去呈报给美国证券交易委员会（SEC）的文件显示，从2020年1月到现在，班塞尔就已经减持了总值达4亿零800万美元的莫德纳股票。
+整理：等风来
+编辑：围剿维尼熊
 
-美国消费者新闻与商业频道（CNBC）引述，高管薪酬数据公司Equilar也独立验证了班塞尔的股票交易，证实班塞尔的股票出售过程是符合2018年SEC采用的10b5-1条规。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_3012.jpg)图片来源：搜狐
 
-根据该报告，莫德纳的股价在冠病疫苗成功问市之后就开始飙升。班塞尔也就因此已经成为了亿万富翁。而且以截至今年3月1日的公司股权报告来计算，单单班塞尔持有的剩余股票的净值，估计就已经超过53亿美元。
 
-班塞尔在去年即将结束前，也曾以每股243.42美元的平均价格，总共出售了1万股莫德纳股票。单是这项局内人交易总值达243万4200美元。
+根据路透苏黎世3月17日讯，瑞士银行家协会(Swiss Bankers Association)估计，瑞士的秘密银行持有多达2130亿美元的俄罗斯财富。
 
-在2020年1月之前，莫德纳股价一直都是在20美元的区域波动的。当疫情扩大之后，因为莫德纳的疫苗受到广泛接受，其股价更是一度飚高到2021年9月份的月450美元。该股隔夜闭市报168.26美元，跌1.10美元。
+这表明俄罗斯富人与瑞士银行的业务范围，远比几家金融公司开始详述的资产负债表上的风险敞口要大得多。
 
-参考连结：[https://www.zaobao.com.sg/realtime/world/story20220318-1253499](https://www.zaobao.com.sg/realtime/world/story20220318-1253499)
+瑞士银行家协会的披露对瑞士来说是罕见的。在莫斯科上个月入侵乌克兰之后，瑞士采取了不寻常的举措，针对俄罗斯资金实施欧盟的制裁措施。
 
-审核校对：Barry Jack
-上传排版：F
+社会民主党联合主席Mattea Meyer也呼吁瑞士掐断与普京及其政府关系密切的俄罗斯人的任何资金。
+
+参考链接：[俄罗斯人在瑞士秘密银行拥有多达2,130亿美元海外资金](https://cn.reuters.com/article/russian-swiss-banks-wealth-0317-thur-idCNKCS2LF0A9?il=0)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

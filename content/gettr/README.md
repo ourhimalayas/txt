@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 12:29 PM (UTC)`
+
+2022.03.18早 《新中国联邦新闻》救援基地“儿童角”为孩子带来天真笑容  著名战地音乐家演奏新中国联邦国歌
+![img](https://media.gettr.com/group20/origin/2022/02/20/13/fe2d495c-6274-6a1a-c376-9a1515a9ca57/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/18/2022 11:55 AM (UTC)`
 
 3月17日，《新闻周刊》驻波兰华沙记者Renata Kim来到了新中国联邦驻梅迪卡（Medyka）的难民救助中心，并对我们的志愿者进行了采访。以下是其对新中国联邦救援行动的报道：<br/> <br/>华裔反共人士为乌克兰提供救援服务<br/> <br/>梅迪卡最大的帐篷是由来自新中国联邦（NFSC）和法治基金（ROLF）的中国人搭建的，在这里你不仅可以享用到新鲜烤制的糕点，还能饮用到机器现磨的咖啡，这无疑为人们带来了温暖。对于儿童来说，帐篷的角落里还设有一个游戏角。<br/>“我们希望在孩子们忙于玩耍的时候，能让疲惫的母亲们能休息一会儿” -- 来自纽约的年轻中国志愿者妮可解释到。<br/><br/>搭建帐篷的费用是由上述两个组织的成员从世界各地捐赠的。他们致力于铲除北京的共产主义政权，因为在他们看来，北京（中共）是世界上所有邪恶的根源，而现在，他们也投身到难民救助的行列之中。<br/><br/>“我们对这些难民深表同情。一切都会好起来，我们会为打造一个民主、自由的中国而奋斗”--妮可说到，并邀请我们去喝咖啡。<br/><br/>“你会暖和起来的” --她鼓励道，而她的朋友很快就为我们准备好了一杯上好的热拿铁咖啡，并深深地鞠了一躬。与此同时，另一名志愿者正在对我们的谈话进行现场报道。<br/><br/>“这是给我们的支持者的，让他们知道我们在行动”--她解释说。<br/><br/>烧烤的香味在边境口岸飘荡，在缓缓落下的暮色中，意大利钢琴家弹奏着《想象》，悠扬的琴声带来了一种超现实的感受。他也来到梅迪卡，以某种方式提供帮助。他为难民演奏的音乐，使他们忘记战争，至少是暂时的。<br/><br/> 原文：https://www.newsweek.pl/polska/spoleczenstwo/wojna-w-ukrainie-wloski-pianista-gra-dla-uchodzcow-imagine-amerykanin-smazy-im/vyf4qsn
@@ -147,13 +154,6 @@
 
 This is a local pharmacy in Poland. NFSC volunteers come here often to purchase medical supplies. After the lady heard that we were the new Chinese who came to help the Ukrainian refugees, she donated a box of hand sanitizers. Kindness spreads without borders. Thanks for her kindness!<br/>这是波兰当地的一家药店，战友们经常来这里购买医疗物资，当这位女药剂师得知，我们 是救助乌克兰难⺠的新中国人，她赠送了我们一箱医用消毒洗手液，善心无国界，谢谢她的爱心!
 ![img](https://media.gettr.com/group19/origin/2022/03/17/19/3971197b-3a5e-d16f-2fa4-cc8d80afdd49/out.jpg)
-
----
-
-`@miles 3/17/2022 7:16 PM (UTC)`
-
-
-![img](https://media.gettr.com/group45/origin/2022/03/17/19/deef0939-08b2-0a3a-e820-612048cb78d1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
