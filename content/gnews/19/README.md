@@ -2,89 +2,49 @@
 ---
 
 
-## 参议员卢比奥：中共国100%站在 普京后面
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2183750/)
+## 泄露录音：前NIH老大曾以失业威胁民众强推COVID疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2183793/)
 
-参议员马可.卢比奥： 毫不怀疑 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click) 站在哪一边 他们100%站在 普京 [#Putin](https://twitter.com/hashtag/Putin?src=hashtag_click) 后面 他们宁愿世界不知道这一点，但这不会阻止他们尽可能多地帮助他（普京）
+编译： Jenny Ball
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1951-edited.png)naturalnews.com
 
+《自然新闻》 – 正如总统有任期限制一样，该国最高官僚也应该有任期限制，前美国国立卫生研究院（NIH）院长弗朗西斯·柯林斯（Frances Collins）博士泄露的录音证明了这一点，他现在是乔·拜登的首席“科学顾问”。
 
-> Have ZERO doubt about whose side [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) is on 
-> 
-> They are 100% behind [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> They would prefer the world not know this, but that will not stop them from helping him as much as they can
-> — Marco Rubio (@marcorubio) [March 17, 2022](https://twitter.com/marcorubio/status/1504587222015569920?ref_src=twsrc%5Etfw)
+据独家获得音频的《每日电讯报》报道，柯林斯和骗子安东尼·福奇博士，他自里根第一任期开始就一直在管理国家过敏和传染病研究所（NIAID），他们曾经声称的政治中立完全是谎言。
 
+除了他认为政府有权强制接种疫苗（这是基于 1905 年最高法院的案件）之外，他还明确表示，如果人们拒绝接种疫苗，就应该被丢在大街上，并失去唯一收入来源。
 
+而且，当然，由于他是左翼官僚，他对川普总统不屑一顾。
 
-前国务卿迈克.蓬佩奥： 我担心拜登总统 [@POTUS](https://twitter.com/POTUS) 不会回答 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军费预算的增加，而是喋喋不休地将包容性作为我们军队的最高目标，这是建立一支不基于卓越和作战能力、而以政治灌输军队的准则 【转蓬佩奥发表在华盛顿时报文章：美国未来的安全态势必须阻止独裁统治的进军】
+“音频源自去年 10 月 26 日的政治学院活动，该活动由芝加哥大学的今日基督教神学家罗素·摩尔主持。政治研究所由前总统奥巴马的顾问大卫阿克塞尔罗德创立，”布莱特巴特新闻援引该报道指出。
 
+在柯林斯被摩尔介绍为他的私人朋友，以及他的读书俱乐部的成员之后，谈话转向了对疫苗授权的讨论，这位前 NIH 主任说，他“认为毫无疑问”大约一个月前，拜登发布的命令“是合法的”，并补充说，拒绝接受这些命令的人应该受到失业的威胁。
 
+“[授权]是否能说服那些不会去打疫苗的人？”据报道，柯林斯在回答之前反问自己：“哦，会的，尤其是如果这意味着失去工作。”
 
-> I fear that [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) won't answer the increase in China’s military budget, but prattle about inclusivity as our military’s highest purpose, which is code for creating a military not based upon excellence & warfighting capacity but political indoctrination.[https://t.co/3HQOy8YGyk](https://t.co/3HQOy8YGyk)
-> — Mike Pompeo (@mikepompeo) [March 17, 2022](https://twitter.com/mikepompeo/status/1504579612822671361?ref_src=twsrc%5Etfw)
+《每日电讯报》进一步指出：
 
+作为证据，他描述了失业威胁在说服对疫苗犹豫不决的 NIH 员工和承包商接种疫苗方面是多么地成功。当柯林斯向 46,000 名员工中2000名拒绝接种的工人明确表示，如果他们 [没有] 采取措施，他们“在下个月有被解雇的严重危险”，柯林斯说，他得到了“很大的反响”。
 
+“现实让他们做出选择，”柯林斯解释说，因此，即使是“非常抵抗”的人也选择接种疫苗。
 
-众议员迈克尓·麦考尔(众议院军事委员会资深成员）: [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 原本预计在三到四天内接管乌克兰，但 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 人民的反抗意志却出乎所有人的意料。 这就是为什么我一直在敦促拜登总统[@POTUS](https://twitter.com/POTUS) 帮助促成将 S-300 等远程防空系统运送到乌克兰。 时间就是生命。 【附麦考尔议员接受福克斯采访视频】
+柯林斯随后表现出他卑鄙的党派偏见，将冠状病毒死亡归咎于当时的总统川普，同时无视在拜登领导下有着更多死亡的事实。
 
+“上届政府中一位非常、非常自私和误入歧途的总统，对这个国家的人民造成了巨大伤害，”他的话在我们国家已经肆虐的党派之争火上浇油。
 
+柯林斯说：“成千上万本不应该死亡。”“因此，有人试图通过寻找其他人的责任，来转移人们对这种可怕情况的注意力。”
 
-> Putin was expected to take over Ukraine in three to four days, but will of the Ukrainian people have defied all expectations. That’s why I’ve been urging [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) to help facilitate the transfer of longer-range air defense systems like the S-300 to Ukraine. Time is of the essence. [pic.twitter.com/cTWlKP6ps3](https://t.co/cTWlKP6ps3)
-> — Michael McCaul (@RepMcCaul) [March 17, 2022](https://twitter.com/RepMcCaul/status/1504523255633354755?ref_src=twsrc%5Etfw)
+多么可悲的小人啊。
 
+素材链接：【naturalnews.com】[Former NIH head Frances Collins touts using threat of unemployment to push COVID vaccine compliance, leaked recording reveals](https://www.naturalnews.com/2022-03-14-former-nih-head-touts-threat-unemployment-push-vaccine-compliance.html)
 
+* * *
 
-众议员迈克·加拉格尔新闻办公室： 众议员加拉格尔提出了《保护我们的药品供应链免受中共国侵害法案》，该法案将结束美国在药品制造方面对 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的依赖。 从作者@mikeginsberg98 的文章阅读更多关于此法案的信息：（附文章链接） 【图片中内容： “#中共 曾经威胁过一次，要从美国扣留救生药物，如果我们认为他们不会再尝试这样做，那我们就是疯子。 国会需要一个积极的计划来保护我们关键的药品供应链并结束我们对 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的依赖。这是国家安全的当务之急，对许多美国人来说，是生死攸关的问题，” -加拉格尔议员说。】
-
-
-
-> Rep. Gallagher introduced the Protecting our Pharmaceutical Supply Chain from China Act, which would end U.S. dependence on China for pharmaceutical manufacturing.
-> 
-> Read more about his bill from [@mikeginsberg98](https://twitter.com/mikeginsberg98?ref_src=twsrc%5Etfw) here: [https://t.co/XqtBLkWyr7](https://t.co/XqtBLkWyr7) [pic.twitter.com/FLcavWnyqm](https://t.co/FLcavWnyqm)
-> — Rep. Gallagher Press Office (@RepGallagher) [March 17, 2022](https://twitter.com/RepGallagher/status/1504535164805955587?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎.布莱克本： 亨特·拜登的笔记本电脑始终是真实的，但主流媒体和大科技公司却禁止人们谈论它。 【转纽约邮报报道：《纽约时报》的（最新）报道证实了亨特·拜登臭名昭著的笔记本电脑的存在】
-
-
-
-> Hunter Biden’s laptop was always real, but the mainstream media and big tech silenced you for talking about it anyway. [pic.twitter.com/GYxA7Oyrme](https://t.co/GYxA7Oyrme)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 17, 2022](https://twitter.com/MarshaBlackburn/status/1504538136017317893?ref_src=twsrc%5Etfw)
-
-
-
-美国务卿安东尼·布林肯： 我们不仅目睹了克里姆林宫领导的对 [#乌克兰](https://gettr.com/hashtag/%23%E4%B9%8C%E5%85%8B%E5%85%B0) 人民的残酷、暴力攻击，我们还目睹了一场真相与暴政的战争。 正如施瓦辛格[@Schwarzenegger](https://gettr.com/user/Schwarzenegger) 解释的那样，我们不责怪俄罗斯人民，(但) 我们需要你知道你的政府对你隐瞒了什么。 【转斯瓦辛格的推文：我爱俄罗斯人民。 这就是为什么我必须告诉你们真相。请观看和分享。（附视频）】
-
-
-
-> We are not just witnessing a brutal, violent Kremlin-led attack on the Ukrainian people, we are witnessing a war of the truth vs. tyranny. As [@Schwarzenegger](https://twitter.com/Schwarzenegger?ref_src=twsrc%5Etfw) explains, we do not blame the people of Russia, and we need you to know what your government is hiding from you. [https://t.co/QK8zhwsOnR](https://t.co/QK8zhwsOnR)
-> — Secretary Antony Blinken (@SecBlinken) [March 17, 2022](https://twitter.com/SecBlinken/status/1504534544761995266?ref_src=twsrc%5Etfw)
-
-
-
-比尔.格茨： 本周华盛顿时报 [@WashTimes](https://twitter.com/WashTimes) 内幕专栏：太平洋将军誓言美国对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对台湾的任何攻击将会作出强烈反应； 美国米格战斗机可以帮助乌克兰； 海军在朝鲜附近进行航母行动 【附专栏链接】
-
-
-
-> This week’s Inside the Ring column [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): Pacific general vows strong US response to any Chinese attack on Taiwan; US MiGs could help Ukraine; Navy conducts carrier ops near North Korea [https://t.co/Pc7c4elsqp](https://t.co/Pc7c4elsqp)
-> — Bill Gertz (@BillGertz) [March 17, 2022](https://twitter.com/BillGertz/status/1504514611692855296?ref_src=twsrc%5Etfw)
-
-
-
-参议员泰德·克鲁兹： 拜登害怕普京。这就是我们陷入困境的原因。 拜登的团队正在编造借口，不给乌克兰提供自卫的关键武器。他们在扯皮防御性武器和进攻性武器。事实上，乌克兰使用的所有武器都是为了自卫。
-
-
-
-> Biden is scared of Putin. That's what got us into this mess.
-> 
-> Biden's team is making up excuses not to give Ukraine key weapons to defend themselves. They talk about defensive weapons vs. offensive weapons. In truth, all the weapons Ukraine is using are to defend itself. [pic.twitter.com/ISCTurZA7C](https://t.co/ISCTurZA7C)
-> — Ted Cruz (@tedcruz) [March 18, 2022](https://twitter.com/tedcruz/status/1504637461271511040?ref_src=twsrc%5Etfw)
-
-
-
+审核：文乐
+校对：信心满满
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

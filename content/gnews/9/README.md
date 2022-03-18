@@ -2,45 +2,22 @@
 ---
 
 
-## 我们不一样！
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2184335/)
+## 雅典娜时报-第235期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2184366/)
 
-##### 加拿大温哥华扬帆农场 – 文字：Kannie文勤 视频制作：雪原伞
+#### 《雅典娜时报》汇聚全球新闻时事
 
-我们不是独裁中共人，我们是热愛和平追求民主、法治、自由灭共的新中国人。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/953837329661968394/155_5.jpg)![圖片](https://media.discordapp.net/attachments/825592691433668612/953837330098192444/155_6.jpg)
+*发布：陶子*
 
-我们的救援是世界的唯一！
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-唯一一个是有铺地板的超級大帳篷、有供暖、有各种充电更有星链Wi-Fi。
-
-唯一一个在帐篷內除了提供热水、糖果食物及用品外，更有提供温暖人心的现磨热咖啡。
-
-唯一一个己救出除了中国同胞外，还救出了逃离烏克兰的白人。
-
-唯一一个从炮火连天的烏克兰救出了100个儿童，并将他们安全送达西班牙安頓。
-
-唯一一个是所有工作人员是來自各国的新中国联邦沒有薪酬的义工。
-
-唯一一个是救援工作发起和救援资金來自法治基金，而法治基金沒有政府、政党、社会团体等作背景，法治基金唯一捐款者是來自郭文贵先生创建的无国界、无肤色区分有共同追求正道主义目标的新中国联邦人。
-
-我们是消灭邪恶中国共产党的新中国人
-
-中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类！
-
-文字：kannie 文勤
-制作：雪原伞
-
-发布/上传 – 云起时
-
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
