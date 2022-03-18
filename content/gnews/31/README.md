@@ -2,36 +2,45 @@
 ---
 
 
-## 中共多地官员成为习近平“动态清零”防疫政策的牺牲品
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2184713/)
+## 4月1日起入境加拿大 无需出示病毒测试证明
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2184754/)
 
-**撰稿：日本东京方舟农场  北极**
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+加拿大广播公司新闻获悉，加拿大联邦政府将于周四宣布，将在本月底前结束对完全接种疫苗的旅行者的入境前 中共病毒测试要求。
 
-据德国之声3月18日报道，中共党魁习近平周四（3月17日）强调继续坚持“动态清零”的防疫政策，多名地方官员因防疫不力遭免职，成为该政策的牺牲品。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-116.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-201.png)习近平在周四的谈话中，要求疫情较为严重的地区党政主要领导和各级领导干部，要把防疫工作放在第一位，尽锐出战，决战决胜。（图片来自德国之声）
+知情人士证实，加拿大正在取消机场和陆路过境点的检测要求。卫生、交通和旅游部长将于周四上午举行新闻发布会，宣布边境措施的变化。
 
-中共党魁习近平周四在主持中央政治局常委会时宣称，中国仍将坚持“动态清零”的防疫政策，希望尽快遏止本土疫情持续扩散。习近平还发出警告，对失职失责导致疫情失控的要立即依纪依规查处，严肃问责。”
+目前，进入该国的旅客必须在飞行或抵达边境之前出示抗原或分子检测阴性的证明。
 
-近日，中共国正面临2022年最严重的本土新冠疫情。根据中共卫健委周五（3月18日）上午公布的最新数据，前一天共确诊了2,461起病例，其中包含2,388起本土案例与73起境外输入案例。本土案例中，吉林省有1,834起确诊案例，福建省有113例，广东省74例，天津则有61例。
+消息人士称，对完全接种疫苗的旅行者的检测要求将在 4 月 1 日之前取消。
 
-因中共国多地因疫情失控，导致多名地方官员遭免职或惩处。其中，吉林省长春市17日宣布，有16名中国共产党党员干部与公职人员因防疫不力，受到撤职或警告处分。此前，吉林市市长王路及长春市九台区区长李欣已在12日凌晨遭免去职务。除此之外，广东省也有6名官员职务遭免除。
+此举是在疫情大流行两年后开始的，随着旅行人数的不断增加，各省和地区结束了涉及疫苗护照、聚会和口罩的限制。
 
-3月8日，中共卫健委新冠疫情应对小组组长梁万年在接受采访时表示，“中国在抗疫过程中秉承的“动态清零”政策，并不等于追求零感染。新冠病毒的传播途径非常容易实现，像这次奥密克戎的流行株，传播力这么强，我们还不完全具备让民众零感染的手段。“
+消息人士称，联邦政府将继续对抵达加拿大的旅客进行随机测试，以识别和追踪变异毒株。
 
-早在去年3月18日，美国爱达荷州病理学家瑞恩·科尔（Ryan Cole）博士发布声明表示，接种中共病毒疫苗会导致免疫力下降，其他病毒和癌症发病率上升。“在 艾滋病患者中，CD4细胞（辅助性 T 细胞）受到抑制，导致免疫功能下降，并使患者容易患上各种疾病。接种中共病毒疫苗后，出现的情况与艾滋病类似，是CD8细胞（杀伤性T细胞）的减少。CD8 细胞有什么作用？它会对抗所有其他病毒和癌细胞。” 科尔表示。
+周三，加拿大总理特鲁多在安大略省艾利斯顿发言称，没有明确检测制度何时结束，但建议将取消更多的病毒限制措施。
 
-截至3月14日，中共国大陆累计报告疫苗接种近32亿剂，疫苗接种总人数达到12.7亿多人。
+麦克马斯特大学传染病专家兼副教授表示，取消检测是明智之举，因为一旦奥米炕波及加拿大，这种疾病就会非常普遍，以至于在边境进行的检测基本上变得毫无意义。
 
 参考链接：
-1.[https://reurl.cc/QjArWM](https://reurl.cc/QjArWM)
-2.[https://reurl.cc/12A6GV](https://reurl.cc/12A6GV)
-3.[https://gnews.org/zh-hans/1599947/](https://gnews.org/zh-hans/1599947/)
-4.[https://gnews.org/zh-hans/2172185/](https://gnews.org/zh-hans/2172185/)
 
-总编：老孙
-校对发布：爱放飞
+- [Federal government to end pre-arrival COVID testing for travellers entering Canada](https://www.cbc.ca/news/politics/federal-government-to-drop-pre-departure-testing-1.6386763)
 
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+编辑/校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

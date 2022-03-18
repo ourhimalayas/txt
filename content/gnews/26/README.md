@@ -2,43 +2,52 @@
 ---
 
 
-## 不惧中共武力威胁，台湾将继续捍卫其主权和民主
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2184884/)
+## 亚历山大·温德曼曾在中共资助的研究生院任职
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2185290/)
 
-翻译：li yan li
-编辑：文泓
+编译：wenwu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-76.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1990-edited.png)thenationalpulse.com
 
+亚历山大·温德曼（Alexander Vindman）中校曾在一所研究生院担任高级研究员的时候，接受了一个来自（有争议的）中共所影响的组织的资金，并与之合作；这个中共组织被美国国务院标记为渗透美国政治，据《国家脉动》披露。
 
-3月17日，据天空新闻报道，台湾外交部长吴钊燮说，习近平的统一意图将导致中共国对台湾和印度洋-太平洋其他地区“施加他们的威权观点”。吴钊燮对中共国试图（武力）统一台湾这个东亚国家发出了严重警告。
+温德曼曾在唐纳德·川普总统的第一次弹劾审判中作证 ，在2020年9月至2021年8月也曾担任约翰斯·霍普金斯大学的保罗·尼采高级国际研究学院（SAIS，Paul H. Nitze School of Advanced International Studies）的高级研究员。
 
-在接受天空新闻的独家采访时吴钊燮先生说，无论中共国的军事力量多么强大，台湾将继续捍卫其主权和民主。
+作为外交政策研究所（FPI）的高级研究员，温德曼在其任期中还与 SAIS 一起参加了一些活动，宣传他的书《这里，权力很重要》（Here, Right Matters）。
 
-这位台湾的外交部长说，中共国希望通过所谓“统一中国”来改变“国际秩序”。
+然而，SAIS接受了中美交流基金会（CUSEF）的资助，并派其学生参加了由中共影响的集团赞助的中国之旅。
 
-面对这个挑战，台湾必须非常坚定地抵制威权主义的扩张，台湾将非常努力地战斗，不仅要保护台湾的主权，还要保护台湾的自由民主的生活方式。
+中美交流基金会是中共国“统一战线”（United Front）的一部分，美国联邦政府认为它是中共国政府的秘密行动，也就是“以收编和消除可能反对其执政的中国共产党的政策和权力的来源”，并“影响外国政府采取支持北京的行动或立场”。
 
-外交部长承认习近平和他的官员“不断谈论统一”，并说台湾已受到了实质的军事胁迫。
+美国国务院将联合阵线比作中共国政权的“法宝”，即是通过渗透美国政治、媒体和学术界来推进其偏好的政策。
 
-他说：“有一个指标，就是中共不断空中入侵我们的防空识别区（ADIZ），仅去年一年，他们就有近1000架次的飞机侵入我们的防空识别区，这非常具有威胁性。”
+2017年，SAIS 宣布在其中共国研究部门设立一个新的捐赠教授职位，并启动了一个名为“太平洋共同体倡议”的新研究项目，旨在研究“中共国在亚洲和世界的更广泛作用，以及对其邻国和合作夥伴意味着什么”。正如《外交政策》所指出的，这两个项目都得到了CUSEF的大量资助。
 
-“除此之外，中共PLA越来越强大的海军部队，他们一直在台湾周围进行演习，还针对台湾部署相当数量的导弹。”
+除了接受 CUSEF 的资助，SAIS 还将其学生派往中国，以换取对中国共产党的“有利报道”，这也是 CUSEF 曾对西方记者采取过的类似手段。
 
-针对这些军事活动，吴先生承认台湾需要做好准备，并已开始与“志同道合的国家”就中共国的威胁和台湾建立最佳防御进行对话。
+“除了多年来合作制作多个中国论坛外，CUSEF 还赞助和组织约翰斯·霍普金斯大学 SAIS 的研究生团体访问中共国，”CUSEF 网站解释说，该网站有一整个页面专门介绍该团体与 SAIS 的合作。
 
-外交部长说，台湾有责任有决心保护台湾的主权、民主和领土。
+“在最近一次从2017年11月17-27日的旅行中，20名（SAIS）学生获得了更好地了解中共国的能源转型。在为期10天的访问中，教授们和学生们访问了北京、深圳、常州和上海，进行了实质性的会谈，”据 CUSEF 网站显示。值得一提的是，《国家脉动》以前曾曝光过参加由 CUSEF 赞助的旅行的学生在回来后，（必须）称赞中共国是一个优于美国的“了不起的共产主义国家”。
 
-新闻链接：[Taiwan Foreign Minister Joseph Wu says Chinese President Xi Jinping wants to ‘change the international order’](https://www.skynews.com.au/world-news/china/taiwan-foreign-minister-joseph-wu-says-chinese-president-xi-jinping-wants-to-change-the-international-order/news-story/1f7065871e15f0e0d41eca0c4d7e66fe)
+CUSEF 和 SAIS 于2019年还共同撰写了学术报告，包括《美中在亚洲：缓解紧张局势和加强合作》，也就是温德曼加入学校（任职）的前一年。根据其介绍（如下图），这项工作“侧重于美国和中共国如何在关键的互动领域缓解紧张局势，并加强合作，从而为未来更广泛的社区倡议奠定基础”。
 
-发布：tianzhihuan
+根据其2016年年度报告，SAIS 还与 CUSEF 共同举办了活动。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+“在2016年3月，CUSEF 与约翰斯·霍普金斯大学高级与国际研究学院（SAIS）合作，共同举办了题为‘中共国的新经济计划：对中共国、亚洲和全球经济的影响’。中国银监会前主席刘明康教授是主旨发言人，”文件指出。
+
+在俄罗斯不断入侵乌克兰的情况下，温德曼一直呼吁美国在冲突中发挥更大的作用，尽管民意调查显示大多数美国人不这么认为。
+
+（文章仅代表作者观点与GNEWS无关）
+
+新闻来源：[thenationalpulse.com] [Alexander Vindman Served At Grad School Funded By Chinese Communist Group](https://thenationalpulse.com/2022/03/16/vindman-served-at-ccp-funded-sais-school/)
+
+* * *
+
+审核：文乐
+校对：花羽
+发布：花羽
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-1.jpeg)
 
  
 

@@ -2,74 +2,88 @@
 ---
 
 
-## 随着难民计划的扩大，21名乌克兰儿童飞往英国接受癌症治疗
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2182668/)
+## 参议员卢比奥：中共国100%站在 普京后面
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2183750/)
 
-作者：艾米·吉本斯（Amy Gibbons）
-发布日期：2022年3月14日
-新闻来源：独立报（INDEPENDENT）
-翻译：文虓Bobby
+参议员马可.卢比奥： 毫不怀疑 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click) 站在哪一边 他们100%站在 普京 [#Putin](https://twitter.com/hashtag/Putin?src=hashtag_click) 后面 他们宁愿世界不知道这一点，但这不会阻止他们尽可能多地帮助他（普京）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1934.png)
 
-鲍里斯·约翰逊表示，在波兰边境附近的一个军事基地遭到袭击后，英国将“寻求更多选项来加强乌克兰的自卫（能力）”。
 
-英国宣布将为21名严重患病的乌克兰儿童提供癌症治疗，英国人被敦促向逃离战争的人们开放家园。
+> Have ZERO doubt about whose side [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) is on 
+> 
+> They are 100% behind [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> They would prefer the world not know this, but that will not stop them from helping him as much as they can
+> — Marco Rubio (@marcorubio) [March 17, 2022](https://twitter.com/marcorubio/status/1504587222015569920?ref_src=twsrc%5Etfw)
 
-孩子们和他们的直系亲属于周日晚上从波兰抵达，在被送往NHS医院继续治疗之前，他们将接受评估。
 
-卫生大臣萨伊德·贾维德(Sajid Javid)在宣布他们抵达时表示:“我很自豪，英国为这些乌克兰儿童提供了挽救生命的医疗护理，他们在接受治疗的同时，因俄罗斯入侵而被迫离开自己的国家。”
 
-这些孩子是在俄罗斯袭击乌克兰西部亚沃里夫附近的一个军事训练基地后抵达的，该基地距离乌克兰与北约成员国波兰的边境不到15英里(24公里)。
+前国务卿迈克.蓬佩奥： 我担心拜登总统 [@POTUS](https://twitter.com/POTUS) 不会回答 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军费预算的增加，而是喋喋不休地将包容性作为我们军队的最高目标，这是建立一支不基于卓越和作战能力、而以政治灌输军队的准则 【转蓬佩奥发表在华盛顿时报文章：美国未来的安全态势必须阻止独裁统治的进军】
 
-周日，在与乌克兰总统弗拉基米尔·泽伦斯基的通话中，约翰逊“表示，英国将继续寻求更多的选项来加强乌克兰的自卫（能力），与合作伙伴合作，包括周二在伦敦举行的联合远征军演习(JEF)会议”，唐宁街10号的一位发言人说。
 
-来自丹麦、芬兰、爱沙尼亚、冰岛、拉脱维亚、立陶宛、荷兰、瑞典和挪威的代表将参加北欧安全联盟峰会。
 
-约翰逊表示，俄罗斯总统弗拉基米尔•普京(Vladimir Putin)的“野蛮行为”“不仅考验着乌克兰，也考验着全人类”。
+> I fear that [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) won't answer the increase in China’s military budget, but prattle about inclusivity as our military’s highest purpose, which is code for creating a military not based upon excellence & warfighting capacity but political indoctrination.[https://t.co/3HQOy8YGyk](https://t.co/3HQOy8YGyk)
+> — Mike Pompeo (@mikepompeo) [March 17, 2022](https://twitter.com/mikepompeo/status/1504579612822671361?ref_src=twsrc%5Etfw)
 
-希望在英国为难民提供庇护的人们，可以从周一开始，通过政府的新人道主义计划，打算资助乌克兰人的英国公民可以进行注册登记。
 
-英国财政大臣迈克尔·戈夫表示，将于周五开始将英国人和逃离战争的人进行匹配，同时他预计第一批采用新路线的难民将在本周末抵达英国。
 
-保守党议员丹尼·克鲁格告诉BBC，该计划将为乌克兰难民提供“朋友”和支持。
+众议员迈克尓·麦考尔(众议院军事委员会资深成员）: [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 原本预计在三到四天内接管乌克兰，但 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 人民的反抗意志却出乎所有人的意料。 这就是为什么我一直在敦促拜登总统[@POTUS](https://twitter.com/POTUS) 帮助促成将 S-300 等远程防空系统运送到乌克兰。 时间就是生命。 【附麦考尔议员接受福克斯采访视频】
 
-“当一个家庭到来时，他们真正需要的往往是朋友。他们需要有人把他们介绍到这个地区，带他们去教堂，或者告诉他们托儿所在哪里。”
 
-“这些服务不是地方议会最能提供的，但在需要专业支持的地方，特别是需要咨询或就业培训的地方，我们就需要专业服务。”
 
-与此同时，英国将向乌克兰提供500多台便携式发电机，为包括医院和庇护所在内的基本服务提供能源。
+> Putin was expected to take over Ukraine in three to four days, but will of the Ukrainian people have defied all expectations. That’s why I’ve been urging [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) to help facilitate the transfer of longer-range air defense systems like the S-300 to Ukraine. Time is of the essence. [pic.twitter.com/cTWlKP6ps3](https://t.co/cTWlKP6ps3)
+> — Michael McCaul (@RepMcCaul) [March 17, 2022](https://twitter.com/RepMcCaul/status/1504523255633354755?ref_src=twsrc%5Etfw)
 
-约翰逊表示，他们将帮助缓解目前困扰该国的电力短缺问题。
 
-唐宁街表示，在与泽伦斯基通话期间，这些人还“谴责了布伦特•雷诺(Brent Renaud)和无数无辜乌克兰人被屠杀，以及德尼普罗鲁德(Dniprorudne)和梅利托波尔(Melitopol)市长被绑架”。
 
-据周日报道，在乌克兰首都基辅附近，俄罗斯军队向雷诺的车辆开火，雷诺这位著名的美国电影制片人被杀。
+众议员迈克·加拉格尔新闻办公室： 众议员加拉格尔提出了《保护我们的药品供应链免受中共国侵害法案》，该法案将结束美国在药品制造方面对 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的依赖。 从作者@mikeginsberg98 的文章阅读更多关于此法案的信息：（附文章链接） 【图片中内容： “#中共 曾经威胁过一次，要从美国扣留救生药物，如果我们认为他们不会再尝试这样做，那我们就是疯子。 国会需要一个积极的计划来保护我们关键的药品供应链并结束我们对 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的依赖。这是国家安全的当务之急，对许多美国人来说，是生死攸关的问题，” -加拉格尔议员说。】
 
-泽伦斯基指控俄罗斯绑架乌克兰南部港口城市梅利托波尔的市长。
 
-乌克兰外交部长德米特罗·库勒巴(Dmytro Kuleba)周日在推特上表示，“俄罗斯战犯”“绑架了另一名民选的乌克兰市长，即德尼普罗鲁德(Dniprorudne Yevhen Matveyev)市长”。
 
-外交大臣利兹·特拉斯在与乌克兰外长库勒巴交谈后表示，英国“正在尽我们所能提供支持，包括防御性武器和人道主义援助”。
+> Rep. Gallagher introduced the Protecting our Pharmaceutical Supply Chain from China Act, which would end U.S. dependence on China for pharmaceutical manufacturing.
+> 
+> Read more about his bill from [@mikeginsberg98](https://twitter.com/mikeginsberg98?ref_src=twsrc%5Etfw) here: [https://t.co/XqtBLkWyr7](https://t.co/XqtBLkWyr7) [pic.twitter.com/FLcavWnyqm](https://t.co/FLcavWnyqm)
+> — Rep. Gallagher Press Office (@RepGallagher) [March 17, 2022](https://twitter.com/RepGallagher/status/1504535164805955587?ref_src=twsrc%5Etfw)
 
-库勒巴表示，两人讨论了“对俄罗斯实施更多制裁的下一步行动”。
 
-他在推特上写道:“必须加大压力，直到俄罗斯停止其无意义的侵略和野蛮的战争罪行。感谢英国加大对乌克兰的支持。”
 
-约翰逊正准备本周与北欧和波罗的海国家的领导人举行一系列会晤，寻求增强欧洲在俄罗斯入侵乌克兰后的恢复能力。
+参议员玛莎.布莱克本： 亨特·拜登的笔记本电脑始终是真实的，但主流媒体和大科技公司却禁止人们谈论它。 【转纽约邮报报道：《纽约时报》的（最新）报道证实了亨特·拜登臭名昭著的笔记本电脑的存在】
 
-唐宁街10号表示，在本周于伦敦举行的俄罗斯经济论坛(JEF)峰会上，他将敦促各国领导人共同努力，确保不再有更多国家成为普京侵略的受害者。
 
-周一晚上，约翰逊将在其乡间官邸契克斯(Chequers)招待这群人共进晚餐。
 
-该联盟将于周二在伦敦举行会议，之后首相将与芬兰和瑞典的领导人在下午于唐宁街会面。
+> Hunter Biden’s laptop was always real, but the mainstream media and big tech silenced you for talking about it anyway. [pic.twitter.com/GYxA7Oyrme](https://t.co/GYxA7Oyrme)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 17, 2022](https://twitter.com/MarshaBlackburn/status/1504538136017317893?ref_src=twsrc%5Etfw)
 
-***原文链接：***
 
-[https://www.independent.co.uk/news/uk/ukraine-children-cancer-uk-refugee-scheme-b2035123.html](https://www.independent.co.uk/news/uk/ukraine-children-cancer-uk-refugee-scheme-b2035123.html)
 
-**审核校对：玫瑰天空
-上传排版：V在途中**
+美国务卿安东尼·布林肯： 我们不仅目睹了克里姆林宫领导的对 [#乌克兰](https://gettr.com/hashtag/%23%E4%B9%8C%E5%85%8B%E5%85%B0) 人民的残酷、暴力攻击，我们还目睹了一场真相与暴政的战争。 正如施瓦辛格[@Schwarzenegger](https://gettr.com/user/Schwarzenegger) 解释的那样，我们不责怪俄罗斯人民，(但) 我们需要你知道你的政府对你隐瞒了什么。 【转斯瓦辛格的推文：我爱俄罗斯人民。 这就是为什么我必须告诉你们真相。请观看和分享。（附视频）】
+
+
+
+> We are not just witnessing a brutal, violent Kremlin-led attack on the Ukrainian people, we are witnessing a war of the truth vs. tyranny. As [@Schwarzenegger](https://twitter.com/Schwarzenegger?ref_src=twsrc%5Etfw) explains, we do not blame the people of Russia, and we need you to know what your government is hiding from you. [https://t.co/QK8zhwsOnR](https://t.co/QK8zhwsOnR)
+> — Secretary Antony Blinken (@SecBlinken) [March 17, 2022](https://twitter.com/SecBlinken/status/1504534544761995266?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨： 本周华盛顿时报 [@WashTimes](https://twitter.com/WashTimes) 内幕专栏：太平洋将军誓言美国对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对台湾的任何攻击将会作出强烈反应； 美国米格战斗机可以帮助乌克兰； 海军在朝鲜附近进行航母行动 【附专栏链接】
+
+
+
+> This week’s Inside the Ring column [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): Pacific general vows strong US response to any Chinese attack on Taiwan; US MiGs could help Ukraine; Navy conducts carrier ops near North Korea [https://t.co/Pc7c4elsqp](https://t.co/Pc7c4elsqp)
+> — Bill Gertz (@BillGertz) [March 17, 2022](https://twitter.com/BillGertz/status/1504514611692855296?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹： 拜登害怕普京。这就是我们陷入困境的原因。 拜登的团队正在编造借口，不给乌克兰提供自卫的关键武器。他们在扯皮防御性武器和进攻性武器。事实上，乌克兰使用的所有武器都是为了自卫。
+
+
+
+> Biden is scared of Putin. That's what got us into this mess.
+> 
+> Biden's team is making up excuses not to give Ukraine key weapons to defend themselves. They talk about defensive weapons vs. offensive weapons. In truth, all the weapons Ukraine is using are to defend itself. [pic.twitter.com/ISCTurZA7C](https://t.co/ISCTurZA7C)
+> — Ted Cruz (@tedcruz) [March 18, 2022](https://twitter.com/tedcruz/status/1504637461271511040?ref_src=twsrc%5Etfw)
+
+
 
  
 
