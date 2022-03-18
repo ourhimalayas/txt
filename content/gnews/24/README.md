@@ -2,23 +2,61 @@
 ---
 
 
-## 如果中共向俄罗斯提供军事援助，拜登要警告习近平将采取报复措施。
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2185308/)
+## 歌曲┃墙国内的新联邦人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2185343/)
 
-翻译编辑：波士顿五月花—思澈
+作词：东京樱花团/天路天道
+演唱：东京樱花团/MC文艺
 
-美国国务卿布林肯说拜登要向习近平明确表示美国立场
+那夜的墙没有留住你
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/D97A4692-5D16-4DEA-8EB4-B233F43D20A5.jpeg)
+墙内的苦谁知道我哭泣
 
-美国国务卿安东尼-布林肯说，美国总统乔-拜登周五与中国国家主席习近平通话时，将警告北京不要为俄罗斯在乌克兰的战争提供军事援助。
+他的呐喊声 仿佛还在我耳边响起
 
-“拜登总统明天（2022/03/18/星期五）将与习主席通话，并将明确表示，中国将为其支持俄罗斯侵略的任何行动承担责任。而且我们将毫不犹豫地向中共征收费用。”布林肯说。
+告诉我 你曾来过这里
 
-资料来源：[https://insiderpaper.com/blinken-biden-will-warn-xi-of-retaliation-if-beijing-provides-military-aid-to-russia/](https://insiderpaper.com/blinken-biden-will-warn-xi-of-retaliation-if-beijing-provides-military-aid-to-russia/)
+你造的 盘古共匪已取去
 
-*发布：思澈*
+你建的金泉还矗立在那里
 
+我愿意陪您 打倒共匪 穿越G系
+
+可你不辞辛苦地灭共中 也是为我的
+
+联邦人 我在喜马拉雅等您
+
+他们说你忘记了 休息
+
+是不是因为那里有灭共的好消息
+
+还是那里的G系
+
+才能酿出 我要的喜币
+
+在墙外又有盖特TV成立
+
+我知道那一定就是您
+
+再没有人能唱出您那样灭共的歌曲
+
+再没有一个善良的七哥让我难忘记
+
+您说的喜币 让我很感激
+
+伴随七哥的路上 都是惊喜
+
+我愿意陪您干翻共匪 穿越 G系
+
+可您不要喜币 还让我的后代有出息
+
+墙内人我在喜马拉雅等您
+
+赶快参加G系 一起翱翔天际
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/xingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
 
 
 

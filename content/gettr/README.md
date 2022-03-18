@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 11:55 AM (UTC)`
+
+3月17日，《新闻周刊》驻波兰华沙记者Renata Kim来到了新中国联邦驻梅迪卡（Medyka）的难民救助中心，并对我们的志愿者进行了采访。以下是其对新中国联邦救援行动的报道：<br/> <br/>华裔反共人士为乌克兰提供救援服务<br/> <br/>梅迪卡最大的帐篷是由来自新中国联邦（NFSC）和法治基金（ROLF）的中国人搭建的，在这里你不仅可以享用到新鲜烤制的糕点，还能饮用到机器现磨的咖啡，这无疑为人们带来了温暖。对于儿童来说，帐篷的角落里还设有一个游戏角。<br/>“我们希望在孩子们忙于玩耍的时候，能让疲惫的母亲们能休息一会儿” -- 来自纽约的年轻中国志愿者妮可解释到。<br/><br/>搭建帐篷的费用是由上述两个组织的成员从世界各地捐赠的。他们致力于铲除北京的共产主义政权，因为在他们看来，北京（中共）是世界上所有邪恶的根源，而现在，他们也投身到难民救助的行列之中。<br/><br/>“我们对这些难民深表同情。一切都会好起来，我们会为打造一个民主、自由的中国而奋斗”--妮可说到，并邀请我们去喝咖啡。<br/><br/>“你会暖和起来的” --她鼓励道，而她的朋友很快就为我们准备好了一杯上好的热拿铁咖啡，并深深地鞠了一躬。与此同时，另一名志愿者正在对我们的谈话进行现场报道。<br/><br/>“这是给我们的支持者的，让他们知道我们在行动”--她解释说。<br/><br/>烧烤的香味在边境口岸飘荡，在缓缓落下的暮色中，意大利钢琴家弹奏着《想象》，悠扬的琴声带来了一种超现实的感受。他也来到梅迪卡，以某种方式提供帮助。他为难民演奏的音乐，使他们忘记战争，至少是暂时的。<br/><br/> 原文：https://www.newsweek.pl/polska/spoleczenstwo/wojna-w-ukrainie-wloski-pianista-gra-dla-uchodzcow-imagine-amerykanin-smazy-im/vyf4qsn
+![img](https://media.gettr.com/group47/getter/2022/03/18/11/a5ba2ecb-4114-b268-77a6-deee4f928f61/eb54042f847a8dca1f67278130af2972.jpg)
+
+---
+
 `@miles 3/18/2022 10:21 AM (UTC)`
 
 【Ukrainian Rescue】03/12/22 The Ukrainian reporter of TBN, the world's largest Christian TV network, is interviewed by us at the big tent of the NFSC and ROLF. She supports the NFSC to take down communism and wishes Chinese people to get freedom. She also thanks ROLF for sending so many volunteers to help the people of Ukraine.<br/><br/>【乌克兰救援】03/12/22 全球最大基督教电视台TBN的乌克兰记者在新中国联邦和法治基金的大帐篷接受我们的采访，表示支持新中国联邦消灭共产主义，祝愿中国人获得自由，并感谢法治基金派出这么多义工帮助乌克兰人民。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,13 +154,6 @@ This is a local pharmacy in Poland. NFSC volunteers come here often to purchase 
 
 
 ![img](https://media.gettr.com/group45/origin/2022/03/17/19/deef0939-08b2-0a3a-e820-612048cb78d1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/17/2022 6:14 PM (UTC)`
-
-❤️❤️The ROLF & NFSC will do everything they can to help Ukraine refugees leave the battlefield, and bring warmth and comfort to the rescued people who were injured in the war.<br/><br/>⚠️⚠️When the Chinese Communist Party supported Putin of Russia in launching this unjust war, the New Federal State of China unconditionally rescued Chinese compatriots and Ukrainian women and children.<br/><br/>💥💥We the NEW CHINESE people, are taking down the evil Chinese Communist Party. The CCP is the root cause of global disasters. Taking down the CCP is the only way to save humanity!<br/><br/>❤️❤️法治基金和新中国联邦会竭尽所能帮助难民离开乌克兰战区，给战争中受到伤害的被救援民众带去温暖和抚慰。<br/><br/>⚠️⚠️在中共用老百姓的民脂民膏无条件地支持俄罗斯普京发动这场不义之战的时候，新中国联邦在无条件地救助华人同胞以及乌克兰的妇女和儿童。<br/><br/>💥💥我们是消灭邪恶中共的新中国人！中共是全世界灾难的根源，只有消灭中共才能拯救全人类！
-![img](https://media.gettr.com/group28/origin/2022/03/17/18/62a96a0c-ee34-ec17-3850-904c2d7af7c7/out.jpg)
 
 ---
 
