@@ -2,21 +2,30 @@
 ---
 
 
-## 乌克兰边防局：超过32万人返乡为国家而战
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2184609/)
+## 未接种疫苗者也可无需检测自由入境英国
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2184704/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/94a8871d-7031-4b91-9981-478b36697804.jpg)
+**撰稿：日本东京方舟农场  JIHO**
 
-俄罗斯入侵乌克兰战火仍未停歇，超过3百万乌克兰人因而逃离家乡，今乌克兰国家边防警卫队表示，有超过32万名乌克兰公民返回家园，为国家挺身而战，并坚定的说：乌克兰人必须像所有人一样自由。
+据天空新闻3月18日报道，任何从3月18日凌晨4点到达英国的人都不再需要遵守之前的任何规定。英国一系列“应急措施”将被保留，以便部长们可以在需要时采取“迅速和相称的行动”来应对新的变体。
 
-新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022318W0154)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-2.png)**图片来自Getty**
 
-撰稿/发布：一叶知秋
+据了解，这些即将被取消的限制包括来自，已检测到新变种的国家的针对性测试。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+该部门表示，这些计划只会在“极端情况下”实施。
+
+以前只有完全接种疫苗的人才能进入英国而无需进行测试。
+
+所有抵达者以前还必须在旅行后 72 小时内填写乘客定位表，并提供他们的地址、电话号码、护照和航班详细信息。
+
+这些表格是两年前推出的，当时入境者必须在家隔离，以帮助检查旅客是否遵守规定。
+
+参考链接
+[https://reurl.cc/akmoDX](https://news.sky.com/story/covid-19-remaining-restrictions-for-travel-to-uk-scrapped-including-tests-and-passenger-locator-forms-12568954)
+
+总编：老孙
+校对发布：Linda
 
  
 

@@ -2,21 +2,26 @@
 ---
 
 
-## 七哥專門給習二把脈
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2184266/)
+## 疫苗致美国千禧一代超额死亡率增加84%
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2184500/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+作者：纽约香草山 – 雪梨
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月16日班农战斗室节目中，根据美国疾控中心的数据，随着美国政府推行强制疫苗和疫苗加强针政策，至2021年秋季，超过6万名美国千禧一代，即25至44岁年龄段的美国人死亡，死亡人数超过越南战争。同期，疫苗导致千禧一代的超额死亡率增加了84%。超额死亡，即在特定时间段内的死亡人数，与同一时间段内预期死亡人数之间的差异。
 
-*发布：陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-28.jpg)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+链接：
 
+- [25-44 岁的千禧一代超额死亡率增加了 84%。疫苗强打的政府在杀人](https://gettr.com/post/p10fs6ma37e)
+- [Excess Deaths Associated with COVID-19](https://www.cdc.gov/nchs/nvss/vsrr/covid19/excess_deaths.htm)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+总编/编辑：雪梨
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

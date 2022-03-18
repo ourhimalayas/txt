@@ -2,28 +2,27 @@
 ---
 
 
-## 俄军轰炸乌克兰剧院 大量平民生死未卜
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2184502/)
+## 俄发动入侵战争导致其面临违约风险
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2184555/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月16日，乌克兰外交部表示，马里乌波尔市一家收容了大约1200名平民的剧院遭到俄军轰炸。目前，马里乌波尔市政府正在努力确定伤亡人数。
+**撰稿：日本东京方舟农场  子辰**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-28.jpg)
+3月18日，由于俄罗斯入侵乌克兰引发了一系列的国际制裁。这些制裁减少了该国可用的外汇储备，并限制其进入全球金融体系，直接导致俄罗斯面临违约风险，标普已将其评级降为CC。
 
-据悉，俄军此次使用威力强大的炸弹进行，剧院中间部分被完全损毁，大量浓烟冒出。根据卫星图像显示，剧院前后的空地，均用俄语写着巨大的“儿童”字样。对此，乌克兰外交部指控俄罗斯政府犯下战争罪。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-15.jpg)（图片来自大纪元）
 
-链接：
+标普表示，尽管俄罗斯财政部公开向其表明，该政府目前仍试图将款项转移给债券持有人，但标普认为，未来几周到期的俄罗斯欧元债券的偿债付款可能会面临类似的技术困难。
 
-- [烏控俄轟炸馬立波劇院 逾千平民生死未卜](https://news.ltn.com.tw/news/world/breakingnews/3862213)
+另据，金融市场数据提供商路孚特公司（Refinitiv）的数据，俄罗斯债券的流动性非常差，且一直在这个水平徘徊，大多数债券的交易次数都很低，每天成交数量屈指可数。
 
+鉴于此，担心俄罗斯偿还债务的能力，另外两大国际信用评级机构惠誉（Fitch）和穆迪（Moody’s）已在本月将俄罗斯的评级下调了几个等级。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+参考链接：
+[https://www.epochtimes.com/gb/22/3/17/n13654315.htm](https://www.epochtimes.com/gb/22/3/17/n13654315.htm)
 
-总编：飞虹
-编辑：雪梨
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+总编：老孙
+校队发布：Linda
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

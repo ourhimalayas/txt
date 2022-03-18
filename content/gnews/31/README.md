@@ -2,125 +2,89 @@
 ---
 
 
-## 《避风港HAVEN》直播内容精选（第二十一集· 下 ）
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/2182765/)
+## 参议员卢比奥：中共国100%站在 普京后面
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2183750/)
 
-视频剪辑：文舒
-[《避风港HAVEN》直播内容精选（第二十一集· 上 ）](https://gnews.org/zh-hans/2182551/)
-
-现场问答：
-
-1. 纽约停止强制疫苗了吗？
-答：没有，佛罗里达州是美国第一个州停止儿童5-11岁疫苗强制接种。纽约停止的是疫苗护照。
-
-
-2. 给自己打青蒿琥酯的针剂有需要注意的吗？
-
-**答：找家人给自己打吧。有注意事项：青蒿琥酯从青蒿素里衍炼出来的,目的就是增加它的水溶性，青蒿素完全就是脂溶的。但青蒿琥酯不是纯粹的水溶性。纯粹水溶剂用生理盐水一稀释就马上溶解，像青霉素，链霉素等。青蒿琥酯必须用碳酸氢钠先稀释, 然后再加上生理盐水，按照它的说明书严格地规范操作。青蒿琥酯粉剂60mg, 配1毫升的碳酸氢钠及5毫升的生理盐水，所以最终溶剂是6毫升，如果你要注射120mg，那就意味着是2盒的量，这个体积也增加到12毫升，相当大的容量，针筒要足够大，否则，反复注射自己要吃苦了。**
-
-自己给自己打针一般都注射在大腿，在家里用面团，自己练习300回，基本就是能手了。注射时注意，进入臀大肌的时候要回抽一下，最好不要直接进入血管。
-
-3. 我是中共病毒omicron的康复者，我现在的后遗症是严重记忆里减退，脑雾，吃什么药或者保健品可以恢复记忆力？
-
-**答：医生可开的处方药， 氟伏沙明Fluvoxamine或百忧解Fluoxetine。心理或神经内科医生可以开，你可以说明你的症状，强调自己极度的抑郁。青蒿素也可以，但是青蒿素相对于它发挥效用慢一些。百忧解15天以内不会产生依赖，但是不能常吃。**
-
-4. 我在感染期间没有吃过的阿司匹林，因为我有高血压，我每天吃高血压药，感染已经超过一个半月了，请问现在防血栓吃什么药物？
-
-**答：现在还可以服用阿司匹林。如果现在没有血栓症状就用预防剂量，可以吃1-3个月微小剂量80或81mg/天。也可以用天然替代品白柳树皮。**
-
-5. 青蒿素衍生物对肺气肿有帮助吗？
-
-**答：应该有帮助。肺气肿也是一种弥漫性炎症，没有临床数据，但是感觉应该可以，没有害处。**
-
-6. 三岁的孩子得过新冠之后，在不能用伊维菌素和青高速的情况，孩子体内会残留多少刺突蛋白？
-
-**答：残留不了多少，病毒进入人体必经之路就是ACE2受体,而儿童的数量特别少，分布也稀，所以病毒进入体细胞的量也少，所以，儿童症状缓解之后，不会有很多刺突蛋白残留在细胞里面，所以家长不用担心排毒的问题，平常可以加强孩子的营养素，2、3岁的孩子可以吃那种软胶糖，维生素c，维生素d3，黑孜然籽油的糖，这对儿童的发育也有好处。**
-
-7. 服用36mg伊维菌素，7天之后再继续服用青蒿琥酯片剂，需要休息一下吗？
-
-**答：无需。感染急性期伊维菌素7天服用后开始青蒿琥酯疗程。琥脂按照自己的服用节律需要休药一周，伊维菌素只有一周的急性期治疗量，以后就维持最多一周两次的预防量,在青蒿琥脂的休药期服用。**
-
-8. 我现在晚上睡眠心跳从50-125来回，24小时Holter的报告只给出了窦性心律，其他都没有问题，昨天开始青蒿琥酯200mg ，请问我是不是可以逐渐加量到300-400mg/天？
-
-**答：可以自己试，根据肝脏情况。**
-
-9. 轻度地中海贫血，医生说补铁没有用，吃青蒿素如何补铁呢？
-
-**答：要跟血液科医生商量，用什么方法给他做更有效的补铁治疗，哪怕静脉用药。**
-
-10. 我没打疫苗，只是保健用，青蒿素保健品500mg 吃两天停四天这样可以吗？吃到第三天就想睡觉而且出汗。
-
-**答：可以。每个人都不同，可以根据自己的情况，对于大剂量青蒿素保健品, 可以时间短服用，长时间休药。**
-
-11. 请问用青蒿琥酯排毒，同时用奶蓟护草肝可以吗？排毒后体内残留的刺突蛋白会不会继续生长？
-
-**答：可以。奶蓟草是护肝保健品，可以在休药期间服用。同时建议加黑孜然籽油，都是护肝的。**
-
-**我觉得刺突蛋白只要存在就有复制的可能性。所以排毒是个漫长的过程。每年都要排毒保养。**
-
-**（某国家动物研究：青蒿素衍生物可以延长人类寿命，平均延长32年）**
-
-12. 在墙内很多人打疫苗之后都乏力，跟疫苗有关吗？
-
-**答：有关。典型的疫苗后刺突蛋白副反应。一是免疫过激反应，消耗你的免疫系统的免疫细胞，二是它引起所有血管壁的细胞慢性炎症。包括植物神经功能的紊乱。是综合的影响。**
-
-13. 我女儿11岁半，月底感染了病毒，感染期间就来了月经，首次月经持续了10天左右，后续需要注意什么吗？第二次大概一周，是不是病毒提前了她的月经的到来？
-
-**答：完全有可能。11岁半来月经是正常的年龄。10-14岁都是正常的年龄。而且刚刚开始的时候的确不规律。放松紧绷的神经, 坚持不到预防用药。**
-
-14. 硫酸亚铁和亚铁血红素有什么区别呢？吃青蒿素的时候可以硫酸亚铁补铁吗？
-
-**答：硫酸亚铁很难被人体吸收，亚铁血红素相对于它容易吸收的多。**
-
-15. 吃了印度的青蒿琥酯，晚上睡得特别好，正常吗？
-**答：正常。青蒿素有助眠的作用。**
-
-16. 80岁老人能使用咱们伊维菌素的预防吗，平时要用降压药，偶尔服用阿司匹林？
-
-**答：可以。**
-
-17. 最近我发现把无线的蓝牙耳机放进耳朵里会引起耳鸣，甚至一侧的头也会疼，还有一次出现耳鸣和听力减退，这是不是刺突蛋白引起的耳梗？
-
-**答：不能否定。病毒感染后会引发这类病症，耳蜗周围毛细血管壁出现炎症，引起耳鸣，听力下降。避免使用诱发这种症状的器械，如蓝牙耳机。生活习惯要改变, 同时青蒿素治疗。**
-
-**《风平浪静》 **
-
-趁着乌俄战火交加之际，辉瑞骇人的疫苗数据小心翼翼地被揭开了一角，疫苗真相在还没有被完全揭露之前，我们都已经听到了疫苗灾难的脚步声，越来越多看到了电影记录般的离奇疾病和死亡，撒旦和它的信徒们正在利用科学，借用新冠疫苗剥夺人类的健康和生命，摧毁人类。这次疫情就是以科学的名义屠杀被科学洗脑的顺民, 科学被盗用, 滥用, 成了少数人控制多数人的工具. 从某种意义上说, 撒旦的信徒利用”科学”侵害上帝的子民. 上帝的信徒没了, 居住在他们心中的上帝就会被驱赶出去. 撒旦的潘多拉魔盒的确发了威。
-
-当这血淋淋的事实被一点一点抽丝剥茧展示在世人面前时，人们从以前的鸵鸟心态一下要转变到直面现实的时候，很多人必定会绝望，迷茫，恐惧，无助！这些人需要解药，需要比药剂还要有希望和能量的解药，我想应该就是，一具来自最古老的智慧良方—信仰。
-
-**以后我们想每期都为观众送上一段圣经语录，送给希望获得拯救的人，让寻求的必寻见，登上信仰的方舟，重获新生。**
-
-疫情发展到今天，证实了实际上根本就没有疫苗，人类自己已然无法控制这场瘟疫！
-
-一位心碎的母亲在社交媒体发出呐喊，想寻找跟自己女儿一样的疫苗受害者，给孩子一个交代！当看到孩子一口一口地吐鲜血，除了耳朵，内脏眼睛鼻子嘴巴全部都出血，十几个小时不能停止！血小板只有10，高烧40度不退！血淋淋的即视感，所有看到的人们都无法淡定！
-
-在全球疫苗灾难面前，我们哭喊，惧怕能阻挡灾难吗？不能！人类是那么渺小！当苦难降临的时候，就是神对世人说话的时候！只有寻求才能寻见！
-
-在此，我为不幸患病的女孩和家人，观看直播和回放的观众，选送以下圣经经文，在您呼求神的救治时，不妨安静地用心诵读，愿您重拾平安健康，愿您寻见神，得到神的救恩！
-
-**《圣经·約翰福音》14:19不久以后，世人不再看见我，你们却要看见我，因為我活着，你们也要活著。**
-
-**亲爱的天父，无论我们活在哪個世代，有时都难免会感到无奈、无助和乏力。求圣灵提醒我们无论何时都要仰望你，重新校调我们的视野，因为你仍然活着，我们也要活着，使我们能在任何世代中都能坚定为你作证！**
-
-**以上奉主基督耶稣的名祷告，Amen！**
-
-[《避风港HAVEN》直播链接](https://gettr.com/post/pzb22u5bfb)
+参议员马可.卢比奥： 毫不怀疑 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click) 站在哪一边 他们100%站在 普京 [#Putin](https://twitter.com/hashtag/Putin?src=hashtag_click) 后面 他们宁愿世界不知道这一点，但这不会阻止他们尽可能多地帮助他（普京）
 
 
 
-> [《避风港HAVEN》直播内容精选（第二十一集· 上 ）](https://gnews.org/zh-hans/2182551/)
+> Have ZERO doubt about whose side [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) is on 
+> 
+> They are 100% behind [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> They would prefer the world not know this, but that will not stop them from helping him as much as they can
+> — Marco Rubio (@marcorubio) [March 17, 2022](https://twitter.com/marcorubio/status/1504587222015569920?ref_src=twsrc%5Etfw)
 
 
 
-文案：Eglise/万物有灵
+前国务卿迈克.蓬佩奥： 我担心拜登总统 [@POTUS](https://twitter.com/POTUS) 不会回答 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军费预算的增加，而是喋喋不休地将包容性作为我们军队的最高目标，这是建立一支不基于卓越和作战能力、而以政治灌输军队的准则 【转蓬佩奥发表在华盛顿时报文章：美国未来的安全态势必须阻止独裁统治的进军】
 
-听写/整理：华夏公民
 
-视频剪辑：文舒
 
-编辑发布：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2022/03/预防方案.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/治疗方案.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
+> I fear that [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) won't answer the increase in China’s military budget, but prattle about inclusivity as our military’s highest purpose, which is code for creating a military not based upon excellence & warfighting capacity but political indoctrination.[https://t.co/3HQOy8YGyk](https://t.co/3HQOy8YGyk)
+> — Mike Pompeo (@mikepompeo) [March 17, 2022](https://twitter.com/mikepompeo/status/1504579612822671361?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克尓·麦考尔(众议院军事委员会资深成员）: [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 原本预计在三到四天内接管乌克兰，但 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 人民的反抗意志却出乎所有人的意料。 这就是为什么我一直在敦促拜登总统[@POTUS](https://twitter.com/POTUS) 帮助促成将 S-300 等远程防空系统运送到乌克兰。 时间就是生命。 【附麦考尔议员接受福克斯采访视频】
+
+
+
+> Putin was expected to take over Ukraine in three to four days, but will of the Ukrainian people have defied all expectations. That’s why I’ve been urging [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) to help facilitate the transfer of longer-range air defense systems like the S-300 to Ukraine. Time is of the essence. [pic.twitter.com/cTWlKP6ps3](https://t.co/cTWlKP6ps3)
+> — Michael McCaul (@RepMcCaul) [March 17, 2022](https://twitter.com/RepMcCaul/status/1504523255633354755?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加拉格尔新闻办公室： 众议员加拉格尔提出了《保护我们的药品供应链免受中共国侵害法案》，该法案将结束美国在药品制造方面对 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的依赖。 从作者@mikeginsberg98 的文章阅读更多关于此法案的信息：（附文章链接） 【图片中内容： “#中共 曾经威胁过一次，要从美国扣留救生药物，如果我们认为他们不会再尝试这样做，那我们就是疯子。 国会需要一个积极的计划来保护我们关键的药品供应链并结束我们对 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的依赖。这是国家安全的当务之急，对许多美国人来说，是生死攸关的问题，” -加拉格尔议员说。】
+
+
+
+> Rep. Gallagher introduced the Protecting our Pharmaceutical Supply Chain from China Act, which would end U.S. dependence on China for pharmaceutical manufacturing.
+> 
+> Read more about his bill from [@mikeginsberg98](https://twitter.com/mikeginsberg98?ref_src=twsrc%5Etfw) here: [https://t.co/XqtBLkWyr7](https://t.co/XqtBLkWyr7) [pic.twitter.com/FLcavWnyqm](https://t.co/FLcavWnyqm)
+> — Rep. Gallagher Press Office (@RepGallagher) [March 17, 2022](https://twitter.com/RepGallagher/status/1504535164805955587?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎.布莱克本： 亨特·拜登的笔记本电脑始终是真实的，但主流媒体和大科技公司却禁止人们谈论它。 【转纽约邮报报道：《纽约时报》的（最新）报道证实了亨特·拜登臭名昭著的笔记本电脑的存在】
+
+
+
+> Hunter Biden’s laptop was always real, but the mainstream media and big tech silenced you for talking about it anyway. [pic.twitter.com/GYxA7Oyrme](https://t.co/GYxA7Oyrme)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 17, 2022](https://twitter.com/MarshaBlackburn/status/1504538136017317893?ref_src=twsrc%5Etfw)
+
+
+
+美国务卿安东尼·布林肯： 我们不仅目睹了克里姆林宫领导的对 [#乌克兰](https://gettr.com/hashtag/%23%E4%B9%8C%E5%85%8B%E5%85%B0) 人民的残酷、暴力攻击，我们还目睹了一场真相与暴政的战争。 正如施瓦辛格[@Schwarzenegger](https://gettr.com/user/Schwarzenegger) 解释的那样，我们不责怪俄罗斯人民，(但) 我们需要你知道你的政府对你隐瞒了什么。 【转斯瓦辛格的推文：我爱俄罗斯人民。 这就是为什么我必须告诉你们真相。请观看和分享。（附视频）】
+
+
+
+> We are not just witnessing a brutal, violent Kremlin-led attack on the Ukrainian people, we are witnessing a war of the truth vs. tyranny. As [@Schwarzenegger](https://twitter.com/Schwarzenegger?ref_src=twsrc%5Etfw) explains, we do not blame the people of Russia, and we need you to know what your government is hiding from you. [https://t.co/QK8zhwsOnR](https://t.co/QK8zhwsOnR)
+> — Secretary Antony Blinken (@SecBlinken) [March 17, 2022](https://twitter.com/SecBlinken/status/1504534544761995266?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨： 本周华盛顿时报 [@WashTimes](https://twitter.com/WashTimes) 内幕专栏：太平洋将军誓言美国对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对台湾的任何攻击将会作出强烈反应； 美国米格战斗机可以帮助乌克兰； 海军在朝鲜附近进行航母行动 【附专栏链接】
+
+
+
+> This week’s Inside the Ring column [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): Pacific general vows strong US response to any Chinese attack on Taiwan; US MiGs could help Ukraine; Navy conducts carrier ops near North Korea [https://t.co/Pc7c4elsqp](https://t.co/Pc7c4elsqp)
+> — Bill Gertz (@BillGertz) [March 17, 2022](https://twitter.com/BillGertz/status/1504514611692855296?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹： 拜登害怕普京。这就是我们陷入困境的原因。 拜登的团队正在编造借口，不给乌克兰提供自卫的关键武器。他们在扯皮防御性武器和进攻性武器。事实上，乌克兰使用的所有武器都是为了自卫。
+
+
+
+> Biden is scared of Putin. That's what got us into this mess.
+> 
+> Biden's team is making up excuses not to give Ukraine key weapons to defend themselves. They talk about defensive weapons vs. offensive weapons. In truth, all the weapons Ukraine is using are to defend itself. [pic.twitter.com/ISCTurZA7C](https://t.co/ISCTurZA7C)
+> — Ted Cruz (@tedcruz) [March 18, 2022](https://twitter.com/tedcruz/status/1504637461271511040?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
