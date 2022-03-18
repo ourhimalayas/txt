@@ -2,29 +2,27 @@
 ---
 
 
-## 有声|美国司法部起诉五名中共代理人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188199/)
+## 香港中共病毒疫情持续高峰 导致停尸房和棺材不足
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2188381/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-周三，美国司法部正式公布针对五名中共代理人发起的诉讼。这五名中共代理人被控非法跟踪、恐吓和压制在美异见人士。
+《路透社》香港3月18日报道，**周五，香港报告了20,082例新增中共病毒确诊病例，以及206例死亡病例。卫生专家呼吁摆脱“病毒清零”政策，该政策已经使香港陷入绝境。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/60858242_101-e1647637759429.jpg)香港确诊病人被安置在明爱医院外的空地（图片来演：网络）
+专家还指出，各种限制，包括禁止来自英国和美国等九个国家的航班，对返回香港的居民进行长达14天的检疫，以及关闭学校、体育馆、海滩和其他场所，让许多人感到沮丧。
 
-据悉，一名被告试图破坏一名美国退伍军人的美国国会竞选；另一位假借自己的身份，非法收集异见人士的信息，并传递给中共；其他三名被告策划破坏不同政见人士的艺术品。 助理总检察长Matthew Olsen在新闻发布会上表示，美国执法部门专注于调查中共及其代理人对美国的威胁和挑战，并强调中国人和华裔是中共罪行的受害者。
+报道指出，**最近每天都有2万~ 3万名左右的确诊患者。**但也有分析认为，由于很多人在家检测出阳性，而且不向政府报告结果**，实际数字要高得多。**
 
-文字版原文：[美国司法部起诉五名中共代理人](https://gnews.org/zh-hans/2184503/)
+此前，香港周四新增21,650例确诊病例，比周三的29,272例有所下降，但每天确诊新增病例仍然维持在2万以上。
 
-音频处理：Fei797
-发稿：Fei797
+据香港大学本周的一项研究估计，**在香港740万居民中，大约有一半可能已被感染，实际情况可能更糟糕。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+到目前为止，**香港两个月来已有100多万例确诊病例，5000多人死亡，导致公众殓房不足，棺材不足等危机。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/香港棺材.jpg)香港九龙区，一具空棺材被移到灵车上（图片来源：法新社）
+根据约翰‧霍普金斯大学的统计数据，截至美东时间3月18日，**全球的中共病毒病例总数超过4.65亿例，死亡人数超过606万人。**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[Hong Kong reports 20,082 new COVID cases as city promised fewer restrictions | Reuters](https://www.reuters.com/business/healthcare-pharmaceuticals/hong-kong-reports-20082-new-covid-cases-friday-2022-03-18/)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

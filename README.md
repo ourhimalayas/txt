@@ -15,77 +15,77 @@
 
 ---
 
-### [拜登在与中共国国家主席的电话中发出警告](/content/gnews/1/README.md)
+### [七哥金句：民族的语言和服饰](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：音乐就像人之间的密码](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句就：音乐让你知道人应该如何活着](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|中共推广石油人民币企图逃脱制裁](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [香港中共病毒疫情持续高峰 导致停尸房和棺材不足](/content/gnews/5/README.md)
+ ` 蓝莲花农场`
+
+### [有声|俄军轰炸乌克兰剧院 大量平民生死未卜](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [有声|灭共第三道大门 – 中共武力攻台](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [拜登在与中共国国家主席的电话中发出警告](/content/gnews/8/README.md)
  ` Shuizhuyu`
 
-### [中共国加大煤炭产量以争取能源独立](/content/gnews/2/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [有声|中共国疫情“大跃进“ 香港黑暗时刻将至](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [2022/03/18 英喜时事速递](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|美国司法部起诉五名中共代理人](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [郭文贵精品视频-中共助纣为虐将中国同胞置于危险境地](/content/gnews/6/README.md)
- ` cindy`
-
-### [有声|泽林斯基美国会演讲 拜登再增8亿美元军事援助](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [媒体呼吁启动问责机制，质询特鲁多援引《紧急状态法》](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [美考虑支援乌克兰“弹簧刀”无人机](/content/gnews/9/README.md)
- ` GTV News Talk`
-
-### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月17日晚](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [拜登严厉批评普京为 &#8220;杀人的独裁者 &#8220;](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [俄罗斯战俘表示他们不愿参加侵略战争](/content/gnews/12/README.md)
- ` GTV News Talk`
-
-### [【 #G时新闻 】台湾购买美式武器以应对中共可能即将发动的台海战争](/content/gnews/13/README.md)
- ` G-时新闻`
-
-### [瑞士银行与西方一致参与对俄罗斯及其富裕公民的严厉制裁](/content/gnews/14/README.md)
+### [欢乐灭共歌](/content/gnews/9/README.md)
  ` 秘密翻译组-原创组`
 
-### [自卫队创立“网络防御部队” 一体化加强防御态势](/content/gnews/15/README.md)
+### [有声|中共国疫情“大跃进“ 香港黑暗时刻将至](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [2022/03/18 英喜时事速递](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声|美国司法部起诉五名中共代理人](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [郭文贵精品视频-中共助纣为虐将中国同胞置于危险境地](/content/gnews/13/README.md)
+ ` cindy`
+
+### [拜登严厉批评普京为 &#8220;杀人的独裁者 &#8220;](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国的疫情封锁令全球经济充满不确定性](/content/gnews/16/README.md)
+### [瑞士银行与西方一致参与对俄罗斯及其富裕公民的严厉制裁](/content/gnews/15/README.md)
+ ` 秘密翻译组-原创组`
+
+### [自卫队创立“网络防御部队” 一体化加强防御态势](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共国的疫情封锁令全球经济充满不确定性](/content/gnews/17/README.md)
  ` GTV News Talk`
 
-### [逃离的乌克兰富豪返回国家与总统为伍](/content/gnews/17/README.md)
+### [逃离的乌克兰富豪返回国家与总统为伍](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [最大集装箱运输公司称中共疫情封锁扰乱供应链](/content/gnews/18/README.md)
+### [最大集装箱运输公司称中共疫情封锁扰乱供应链](/content/gnews/19/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [接种疫苗的12岁女孩在睡梦中死于心脏病](/content/gnews/19/README.md)
+### [接种疫苗的12岁女孩在睡梦中死于心脏病](/content/gnews/20/README.md)
  ` xiaobaige`
 
-### [【转】截至3.18 俄乌战事汇总（1）](/content/gnews/20/README.md)
+### [【转】截至3.18 俄乌战事汇总（1）](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [蓬佩奥表示，台湾需强有力支持来抵制胆大妄为的中共](/content/gnews/21/README.md)
+### [蓬佩奥表示，台湾需强有力支持来抵制胆大妄为的中共](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [MV版Hcoin To the Moon上线99天第36次位列匈牙利iTunes热门MV榜首](/content/gnews/22/README.md)
+### [MV版Hcoin To the Moon上线99天第36次位列匈牙利iTunes热门MV榜首](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵先生直播精要 2022/03/17](/content/gnews/23/README.md)
+### [文贵先生直播精要 2022/03/17](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [大直播后记：新中国联邦人怎么做人](/content/gnews/24/README.md)
- ` 雅典娜GNotes`
 
 ### [布坎南称美国的重大利益决定了俄乌战争的结束](/content/gnews/25/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
