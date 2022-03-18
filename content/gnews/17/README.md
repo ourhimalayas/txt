@@ -2,36 +2,20 @@
 ---
 
 
-## 日本拟决定接收乌部分克兰避难者
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2186318/)
+## 东芝开发的世界最小感应器
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2186499/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/ haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-28.jpg)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220318-00000013-ann-000-4-thumb.jpg?exp=10800)
+东芝公司针对自动驾驶，开发出了可以掌握300米以外位置的世界最小传感器。新装置将激光反射到物体上测量距离，以高精度检测黑暗和雪等普通相机难以捕捉到的东西。将去年开发的装置小型化4成，维持了画质，完成了可以掌握之前1.5倍、300米之外的世界最小装置。东芝也想活用到基础设施的监视等方面。
 
-整理：gardeniahu
-编辑：围剿维尼熊
+信息来源：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2004.png)图片来源：雅典娜设计组
+[東芝が開発　300m先を把握する世界最小センサー](https://news.yahoo.co.jp/articles/ca883406a66bf8b02b9f372c9b728eef7893f384)
 
-
-根据NHK3月18日报道，七国集团（G7）外长于日本时间17日晚，以线上形式围绕俄乌局势召开紧急会议。
-
-会议认为因俄罗斯持续入侵乌克兰，接收乌克兰避难者的周边国家也处境艰难，尤其是邻国摩尔多瓦情况尤为严峻，为此，会议一致决定，以七国集团为核心，设置援助团体。
-
-日本政府也准备加强对乌克兰及其周边国家的支援，计划结合当地需求，运送食品和医疗用品等物资。
-
-日本政府还打算从人道主义观点出发，对在日本国内没有亲人朋友的乌克兰避难者予以接收，并根据本人意愿，给予滞留期限为1年的就劳在留资格。
-
-参考链接：[G7外长紧急磋商乌局势 决定设置援助团体](https://www3.nhk.or.jp/nhkworld/zh/news/355376/)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

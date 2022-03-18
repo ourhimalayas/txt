@@ -2,28 +2,35 @@
 ---
 
 
-## 《新闻周刊》波兰华沙记者Renata Kim报道新中国联邦梅迪卡难民救援站
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2186060/)
+## 日本拟决定接收乌部分克兰避难者
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2186318/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Cover.jpeg)
-3月17日，总部设在纽约的《新闻周刊》驻波兰华沙记者Renata Kim来到了新中国联邦驻梅迪卡的难民救助中心，并对我们的志愿者进行了采访。以下是其相关报道中对新中国联邦救援行动的描述：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/p1.jpeg)
-# 华裔反共人士为乌克兰提供救援服务
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-梅迪卡最大的帐篷是由来自新中国联邦（NFSC）和法治基金（ROLF）的中国人搭建的 – 在这里你不仅可以享用到新鲜烤制的糕点，还能饮用到机器现磨的咖啡，这无疑为人们带来了温暖。对于儿童来说，帐篷的角落里还设有一个游戏角。
-“我们希望在孩子们忙于玩耍的时候，能让疲惫的母亲们休息一会儿” — 来自纽约的年轻中国志愿者妮可解释到。
-搭建帐篷的费用是由上述两个组织的成员从世界各地捐赠的。他们致力于铲除北京的共产主义政权，因为在他们看来，北京（中共）是世界上所有邪恶的根源，而现在，他们也投身到难民救助的行列之中。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/p2.jpeg)
-“我们对这些难民深表同情。一切都会好起来，我们会为打造一个民主、自由的中国而奋斗”–妮可说到，并邀请我们去喝咖啡。
-“你会暖和起来的” –她鼓励道，而她的朋友很快就为我们准备好了一杯上好的热拿铁，并深深地鞠了一躬。与此同时，另一名志愿者正在对我们的谈话进行现场报道。
-“这是给我们的支持者的，让他们知道我们在行动”–她解释说。
-烧烤的香味在边境口岸飘荡，在缓缓落下的暮色中，意大利钢琴家弹奏着《想象》，悠扬的琴声带来了一种超现实的感受。他也来到梅迪卡，以某种方式提供帮助。他为难民演奏的音乐，使他们忘记战争，至少是暂时的。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/p3.jpeg)
-原文链接：[Wojna w Ukrainie. Włoski pianista gra dla uchodźców „Imagine”, Amerykanin smaży im naleśniki – Społeczeństwo – Newsweek.pl](https://www.newsweek.pl/polska/spoleczenstwo/wojna-w-ukrainie-wloski-pianista-gra-dla-uchodzcow-imagine-amerykanin-smazy-im/vyf4qsn)
+整理：gardeniahu
+编辑：围剿维尼熊
 
-注：《新闻周刊》是总部设在纽约的国际刊物，在欧美亚洲有22个分支机构，包括北京、香港等地，在西方世界和国际上深具影响力。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2004.png)图片来源：雅典娜设计组
 
-秘密翻译组/精翻组编辑报道
+
+根据NHK3月18日报道，七国集团（G7）外长于日本时间17日晚，以线上形式围绕俄乌局势召开紧急会议。
+
+会议认为因俄罗斯持续入侵乌克兰，接收乌克兰避难者的周边国家也处境艰难，尤其是邻国摩尔多瓦情况尤为严峻，为此，会议一致决定，以七国集团为核心，设置援助团体。
+
+日本政府也准备加强对乌克兰及其周边国家的支援，计划结合当地需求，运送食品和医疗用品等物资。
+
+日本政府还打算从人道主义观点出发，对在日本国内没有亲人朋友的乌克兰避难者予以接收，并根据本人意愿，给予滞留期限为1年的就劳在留资格。
+
+参考链接：[G7外长紧急磋商乌局势 决定设置援助团体](https://www3.nhk.or.jp/nhkworld/zh/news/355376/)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

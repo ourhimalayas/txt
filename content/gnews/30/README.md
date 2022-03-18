@@ -2,38 +2,19 @@
 ---
 
 
-## 乌方表示停火协议达成妥协还需要时间
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2185839/)
+## 新罕布什尔州批准使用伊维菌素治疗中共病毒
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2186068/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0x0-scaled.jpg)
+近日美国新罕布什尔州众议员通过一项法案，该法案规定伊维菌素不再是处方药物，药剂师可以更加方便地为人们提供人用伊维菌素。共和党人表示伊维菌素已经相继在一些国家被专门使用治疗中共病毒，众议员以183对159票批准了该法案。
 
-整理：等风来
-编辑：围剿维尼熊
+伊维菌素作为治疗中共病毒的药物，却因各种政治原因被蒙尘，医生和药店都不敢开处方，一些因为给病人使用此药物的医生甚至被吊销执照。支持该法案的共和党人认为该立法将会防止新罕布什尔州的人错误用药。另外俄克拉荷马州、密苏里州、印第安纳州、亚利桑那州和阿拉斯加的类似法案正在等待立法批准。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/298281F3-3344-4113-8DE3-7B89F52D58AB.jpg)图片来源：网易
-
-
-根据NHK3月18日报道，俄罗斯军队正在加强对首都基辅的包围。与此同时，俄军还对南部海滨城市敖德萨近郊的城镇发动了进攻，黑海沿岸的战斗也趋于激化。
-
-此外，在东部的马里乌波尔，包括儿童在内的众多市民避难的一座剧场遭到袭击。
-
-俄乌停火谈判仍以在线方式持续进行。俄外交部发言人扎哈罗娃17日说，双方正在探讨军事、政治以及人道方面的问题。在谈判中，俄罗斯强烈要求乌克兰保持中立。
-
-不过，乌克兰代表团成员、乌克兰总统办公室顾问波多利亚克表示，双方分歧依然严重，估计要达成妥协还需要数日到一周半左右的时间。
-
-美国等国担心俄罗斯会在乌克兰使用生物武器或化学武器，对此加强了警戒。
-
-参考链接：[黑海沿岸战斗也趋激化 俄乌谈判仍在继续](https://www3.nhk.or.jp/nhkworld/zh/news/355374/)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+撰稿、发布：银河系农场—-骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0313_Handflag17x24cm2-3.png)
+欢迎订阅我们的G-News账号：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
