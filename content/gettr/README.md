@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 8:41 PM (UTC)`
+
+3月18号：太搞笑……太真实了……【七哥您好! 这鹅(俄)爹如此不堪一击，让粉红们很伤心啊。🙏🙏🙏🙏】
+![img](https://media.gettr.com/group8/getter/2022/03/18/20/e03745a2-1abe-4eaa-e301-8e62eb425a82/out.jpg)
+
+---
+
 `@miles 3/18/2022 7:46 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-乌克兰救援每日汇报
@@ -149,13 +156,6 @@ Helping hands from the NFSC for the Ukrainians!<br/>At Medyka, the boarder of Uk
 
 【Ukraine Rescue】03/16/2022 ZET, the second largest radio station in Poland, interviewed Nicole, after knowing the philosophy of the Rule of Law Foundation and New Federal State of China,  tweeted on their Twitter account that "the Chinese Communist Party does not represent the Chinese". <br/><br/>【乌克兰救援】03/16/2022 波兰第二大广播电台ZET 采访妮可， 了解了新中国联邦和法治基金的理念后深表敬意， 并在他们的推特账号上报道了“中共不代表中国人“
 ![img](https://media.gettr.com/group18/getter/2022/03/18/02/1918962d-c017-158d-6e15-78c6c8abd456/out.jpg)
-
----
-
-`@miles 3/18/2022 2:49 AM (UTC)`
-
-3/17/2022 Miles Guo: Zeng Qinghong is going to take off earlier to return to Beijing, what does that mean? The CCP members who are in support of invading Taiwan are idiots. Zeng Qinghong's advice to the people around him is to stay home for two years, don’t get infected by the virus, and that the most important thing is to make sure the family members are healthy, meaning that the CCP will be finished in two years.<br/><br/>3/17/2022 文贵直播：曾庆红提前起驾回京，这意味着啥？党内支持打台湾的比猪还蠢；曾庆红对身边人的忠告是在家躲两年、活着不染毒、家人健康最重要，意思就是共产党过两年就完蛋了<br/>
-![img](https://media.gettr.com/group41/getter/2022/03/18/02/e12a7086-582f-9f43-092d-7e6a96145c74/out.jpg)
 
 ---
 

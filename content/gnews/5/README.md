@@ -2,35 +2,29 @@
 ---
 
 
-## 拜登严厉批评普京为 &#8220;杀人的独裁者 &#8220;
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2188068/)
+## 有声|泽林斯基美国会演讲 拜登再增8亿美元军事援助
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188135/)
 
-翻译：天天
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月16日，乌克兰总统泽林斯基，通过视频向美国参众两会议员发表演讲，感谢美国对乌克兰提供的帮助。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5AA5DB1D-0CC2-41A2-8213-BA7EBD5199D7.jpg)图片来自原文视频截图
+在演讲中，泽连斯基援引珍珠港事件和9/11恐怖袭击，播放乌克兰遭受俄罗斯炮火蹂躏的视频，要求美国、要求全世界在乌克兰上空设立禁飞区，并呼吁拜登总统承担起维护世界和平的使命。 数小时后，拜登总统宣布向乌克兰提供额外的8亿美元军事援助。据悉，此次援助将支付包括100架尖端无人机、600套毒刺防空系统、2600套标枪反装甲系统等在内的军事装备。
 
-17日，美国总统拜登用：“杀人的独裁者”等称呼严厉批评了普京总统。 美国认为俄罗斯的侵略行径构成“战争罪”的观点不断强化。
+文字版原文：[泽林斯基美国会演讲 拜登再增8亿美元军事援助](https://gnews.org/zh-hans/2184504/)
 
-拜登总统称：“（普京总统）是一个杀人的独裁者。让我们一起反对策动对乌克兰人民的不道德战争的真凶。”
+音频处理：Fei797
+发稿：Fei797
 
-前几天，拜登总统批评普京总统的措词不断强硬，直呼其为“战争罪犯。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-17日，美国国务卿布林肯曾表示，美国将考虑支持ICC（国际刑事法院=International Criminal Court）启动调查（俄罗斯的入侵）是否构成“战争罪”。
-
-国务卿布林肯称“故意以平民为目标就是战争罪。”
-
-同时，白宫宣布，拜登总统和中共国国家主席习近平将于18日就乌克兰局势等问题进行电话会谈。 这是自俄罗斯入侵乌克兰以来美中两国领导人的首次会谈。
-
-**参考资料：**[news.goo.ne.jp][バイデン氏「人殺しの独裁者」プーチン氏を厳しく批判](https://news.goo.ne.jp/article/ntv_news24/world/ntv_news24-2022031802822638.html)
-
-* * *
-
-*审核：BryanW*
-*校对：宫米叶*
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-11.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

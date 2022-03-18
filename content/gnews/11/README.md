@@ -2,36 +2,25 @@
 ---
 
 
-## 中共国的疫情封锁令全球经济充满不确定性
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2187996/)
+## 【 #G时新闻 】台湾购买美式武器以应对中共可能即将发动的台海战争
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2188053/)
 
-作者: 纽约香草山 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月15日，据外媒报道，中共国从南到北的疫情封锁政策，加上俄乌战争、创历史的通胀以及量化宽松的投资措施的结束，使全球的经济复苏蒙上了阴影。
+播报：加拿大温哥华扬帆农场 – yuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/18-03-2022-1.jpg)图片来源网络
+视频制作：加拿大温哥华扬帆农场 -文所未闻
 
-当天，石油现货价格回到每桶100美元以下。纽约石油期货下跌6.4%，将过去一周的跌幅扩大到22%以上。上周，油价自金融危机以来首次超过每桶130美元，反映出人们预期战争带来的供应冲击可能是持久的。同时，四处扩散的中共国疫情并未结束，也使市场遭受了重大打击。 对全球供应链状况的担忧和对中共国经济状况的质疑，已造成中共国股市近期的大幅下跌。人们对世界终于越过疫情走向经济复苏及增长产生了怀疑。在以外贸出口为主的城市，比如深圳，很多工厂被迫停工，加剧了供应短缺，并推动了价格上涨。”不确定性 “已经成为一个热门词汇。
+据【台湾新闻】3月16日报道，美国防部已通知国会，将向台湾再次出售有助于其提高不对称作战能力的特殊军事装备，以应对中共可能即将发动的台海战争。
 
+据悉，此次对台军售主要是与作战训练、后勤补给和战场控制等相关的先进装备和精确武器。美国在蔡英文执政期间，总共对台进行了18次军售，其中16次的目标都是提高台军面对中共入侵时的不对称作战能力。同时也表明美台之间已达成默契，以持续提高台军最大限度的防御作战能力。
 
+报道称，拜登政府在2月份的印太战略报告中首次将台湾列为合作伙伴，而积极对台军售是美国致力于协助台湾抵御中共入侵的标志，也是向包括日本在内的亚太地区盟国发出加强安全合作以共同维护该地区安全和稳定的信号。
 
-相关链接:
+原文链接：[https://gnews.org/zh-hant/2186489/](https://gnews.org/zh-hant/2186489/)
 
-[https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw](https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw)
+视频链接: [https://gettr.com/post/p10nb4p64ae](https://gettr.com/post/p10nb4p64ae)
 
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+编辑/发文：hongyeca
 
-编辑: 飞虹
-
-校正/发稿：Petite abeille
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

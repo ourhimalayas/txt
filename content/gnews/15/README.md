@@ -2,42 +2,36 @@
 ---
 
 
-## 最大集装箱运输公司称中共疫情封锁扰乱供应链
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2187918/)
+## 中共国的疫情封锁令全球经济充满不确定性
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2187996/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/m.jpg)strategicpipa.org
-3月18日《零对冲》报道，尽管中共国深圳在封锁六天后允许工厂和公共交通在周五重新启动以缓解疫情，但全球供应链已经受到影响。
+作者: 纽约香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月15日，据外媒报道，中共国从南到北的疫情封锁政策，加上俄乌战争、创历史的通胀以及量化宽松的投资措施的结束，使全球的经济复苏蒙上了阴影。
 
-马士基（Maersk）是世界上最大的集装箱运输公司，它告诉客户，中共国对COVID病毒的零容忍态度已经产生了新的供应链堵塞和物流延误。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/18-03-2022-1.jpg)图片来源网络
 
-在彭博社获得的一份马士基给客户的备忘录中说，“虽然制造业还在中共国的其他地方进行，但这些延误仍将影响产量，尽管还不是很严重。”
+当天，石油现货价格回到每桶100美元以下。纽约石油期货下跌6.4%，将过去一周的跌幅扩大到22%以上。上周，油价自金融危机以来首次超过每桶130美元，反映出人们预期战争带来的供应冲击可能是持久的。同时，四处扩散的中共国疫情并未结束，也使市场遭受了重大打击。 对全球供应链状况的担忧和对中共国经济状况的质疑，已造成中共国股市近期的大幅下跌。人们对世界终于越过疫情走向经济复苏及增长产生了怀疑。在以外贸出口为主的城市，比如深圳，很多工厂被迫停工，加剧了供应短缺，并推动了价格上涨。”不确定性 “已经成为一个热门词汇。
 
-马士基在深圳封锁六天后，已经在中共国启动了应急计划。这场混乱使工厂关闭，运输业陷入停滞状态。
 
-在中共国发生的事情往往会对其他地方产生严重的影响，因为中共国占世界总制造能力的三分之一。深圳是中共国的一个顶级制造中心，拥有中共国最大的港口之一深圳港。如果你在亚马逊上购买一个电子产品，它很可能是“中国制造”的，并通过集装箱船从这个地区运出。
 
-供应链分析研究公司“项目44”（project44）的高级副总裁亚当·康帕恩（Adam Compain）告诉BBC新闻，自封锁以来，在一些中共国港口等待的船只数量有所增加。
+相关链接:
 
-康帕恩说：“我们看到在盐田港外等待的船只数量增加了28.5%，盐田港是一个通往欧洲和北美的主要出口港。”
+[https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw](https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw)
 
-盐田与深圳处于同一地区。去年，由于疫情爆发，盐田经历了有限的运营，并促成了对美国的产品交付的重大延误。
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-“这是一把双刃剑。”英国商会中国分会常务理事史蒂芬·林奇（Steven Lynch）说，“中共国迅速的封锁造成了巨大的干扰，但随后会相对迅速地恢复正常。”林奇解释说，“我们以前见过这种封锁，所以公司已经投入了强大的供应链管理。”
+编辑: 飞虹
 
-好消息是习近平周五承诺软化抗疫行动对经济的影响。然而，最近对多个城市和数千万人以及工厂的封锁，已经在最糟糕的时候产生了溢出效应，因为战争和通货膨胀使供应链问题变得更糟。
+校正/发稿：Petite abeille
 
-**特评**：这篇新闻看到了是深圳和盐田港货物运输出现的问题，也提及中共国内不能正常生产而造成的破坏性影响。
-
-我们知道，世界供应链一定会出大问题，这篇新闻所涉及的是一个点，即将辐射到面。其更深层的原因是中共国的经济出了大问题，目前的世界工厂出了问题，目前的世界分工合作模式在分崩离析。
-
-郭先生一直在警告，病毒和疫苗灾难还没有真正开始，2022年将是人类历史上最黑暗的时刻。世界做好准备来应对了吗？形势绝不像林奇先生想的那么可乐观。
-
-参考链接：
-
-[https://www.zerohedge.com/markets/maersk-warns-chinas-covid-lockdowns-disrupt-supply-chains](https://www.zerohedge.com/markets/maersk-warns-chinas-covid-lockdowns-disrupt-supply-chains)
-
-**编译 发布：意大利罗马达芬奇农场 Roma**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
