@@ -2,27 +2,24 @@
 ---
 
 
-## 美在波兰部署陆基神盾系统
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2186747/)
+## 美國務院批准向英國出售導彈防禦系統
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2186769/)
 
-**撰稿：日本东京方舟农场  北极**
+**撰稿：日本東京方舟農場 北極**
 
-据中央社3月18日报道，随着乌克兰战事恶化，波兰即将部署美国陆基神盾导弹防御系统。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-204.png)部署在罗马尼亚的美国陆基“宙斯盾”系统。（图片来自网络）
-华府表示，在附近城镇雷兹科沃（Redzikowo）部署的神盾系统将于今年开始运作，目的是捍卫西方国家，对抗来自伊朗等国家发射的弹道导弹。
+據中央社報道，美國國務院3月17日批准了對英國出售價值7億美元的洛克希德馬丁公司（Lockheed Martin Corp.）製造的一套彈道導彈防衛雷達與兩套指揮控制和作戰管理通訊系統。
 
-据悉，该工程2016 年5月13日动工，是部署在欧洲的第二套神盾系统。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-204.png)美國今天批准可對英國出售價值7億美元的導彈防禦系統。（圖片來自網絡）
 
-而在此前一天，美军在罗马尼亚部署类似系统，当时官方名称为“陆基神盾系统“（Aegis Ashore）。
+據悉，早在俄羅斯入侵烏克蘭之前，英國政府就開始討論軍售事宜，而俄羅斯入侵烏克蘭之後，歐洲國家紛紛要求購買更多美製武器。
 
-俄罗斯总统普京（Vladimir Putin）曾反对上述导弹防御部署，称其目的不是单纯防御，而是针对俄罗斯。
+美國國務院指出，加大軍售可提升北大西洋公約組織（NATO）盟國防衛能力，維持歐洲政治穩定與經濟安全。
 
-参考链接：
-1.[https://www.cna.com.tw/news/aopl/202203180262.aspx](https://www.cna.com.tw/news/aopl/202203180262.aspx)
-2.[https://www.bbc.com/zhongwen/simp/world/2016/05/160512\_romania\_us\_missile\_defence](https://www.bbc.com/zhongwen/simp/world/2016/05/160512_romania_us_missile_defence)
+參考鏈接：
+[https://www.cna.com.tw/news/aopl/202203180118.aspx](https://www.cna.com.tw/news/aopl/202203180118.aspx)
 
-总编：青城道姑
-校对发布：爱放飞
+總編： 青城道姑
+校對發佈： 文曦
 
  
 

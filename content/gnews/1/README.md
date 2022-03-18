@@ -2,26 +2,27 @@
 ---
 
 
-## 乌克兰总统呼吁美国更多行动
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2187138/)
+## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月16晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2187246/)
 
-作者：加拿大温哥华扬帆农场-文所未闻
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV-3.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2033.png)图片来源：CNN
+文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年3月16晚](https://gnews.org/zh-hans/2177664/)
 
+音频处理：Fei797
+发稿：Fei797
 
-据加拿大自由媒体《后千禧年》3月16日报道，当天上午乌克兰总统泽伦斯基在美国国会发表了演讲，泽伦斯基呼吁美国更多地帮助乌克兰，并直接呼吁拜登成为 “世界领袖”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-据悉，当泽伦斯基出现在国会的屏幕上时，国会议员起立欢呼，众议院议长南希-佩洛西称他为”勇敢的领导”。在演讲中，泽伦斯基说表示，八年来乌克兰一直在抵制俄罗斯的侵略，而乌克兰从未放弃。现在乌克兰国家的命运正在被决定。他呼吁美国国会采取更大的行动来支持和保护乌克兰。
-
-由于北约和美国一直避免与俄罗斯的直接冲突而导致第三世界大战， 拜登政府一再表示，他们不会支持在乌克兰上空设立 “禁飞区”。但是，短视的政治家们殊不知，第三次世界大战已经开始，俄罗斯对乌克兰的入侵，中共国在中东正在酝酿的各种冲突，以及蓄谋已久对台湾的武力进攻，都清楚的表明 — 第三次世界大战已经开始。
-
-* * *
-
-原文链接：https://thepostmillennial.com/breaking-zelensky-begs-congress-for-a-no-fly-zone
-
-采编：文莱， 编撰：文所未闻， 编辑发稿：硫酸羟氯喹64
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
